@@ -2,18 +2,27 @@
 ---
 
 
-## 美台同盟官方明确定性 中共攻台只有死路一条
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2310408/)
+## 视频|美国海军司令称密切关注中共与所罗门群岛的秘密安排
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2310643/)
 
-文贵大直播20220408
+制作：香草山视频部
 
-撰稿：Poplar（盘古）
+澳洲媒体4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。
 
-书法：沙漠之花（香草山）
+对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
 
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片9-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片10-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片11-1.png)
-*发布：Theodosia*
+帕帕罗指出，“这是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。
+
+帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
+
+此外，帕帕罗认为印度洋—太平洋地区发生武装冲突的可能性越来越大，澳洲人需要对此持“现实主义”态度。他强调，“由于事件的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
+
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

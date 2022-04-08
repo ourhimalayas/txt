@@ -2,29 +2,18 @@
 ---
 
 
-## 加拿大将禁止外国人投机性购买房地产
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311058/)
+## 【 蓝枫法律 】 范式转移 &#8211; 区块链
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2311063/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+#### **加拿大温哥华扬帆农场 – 蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-08-at-23.09.25.png)
+区块链思维的第一个点，就是范式转移。那什么是范式转移呢？以前人们需要把地图打印出来去用，但现在在设备上就可以使用谷歌地图，这就是一种思维方式的范式转移，范式转移指一个领域里出现新的学术成果，打破了原有的假设或者法则，从而迫使人们对本学科的很多基本理论做出根本性的修正。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494304201.png)图片来源：CTV News
+范式转移是一种认知系统，很出名的一个是改变了当时整个世界认知系统的哥白尼的日心说。我们人类在很多时间内，是在一个不具备完全信息或者是数据非常缺乏的条件下，建立起对自己、社会和世界的一个认知的系统，因此范式一旦形成它就会束缚我们对事物的一个想象力，范式转移便是冲出原有的束缚的限制，为人的思想和行动打开一个创新的可能性，比如数字唱片逐渐代替磁带和黑胶。
 
+**直播视频：**[**https://gettr.com/streaming/p139yc3123f**](https://gettr.com/streaming/p139yc3123f)
 
-据【CTV新闻】4月6日报道，加拿大政府的联邦预算报告中将对外国购房者有重大限制政策：非该国居民在未来两年内将被禁止购买任何房地产。
-
-这项包括禁止购买公寓和独立屋的限制政策主要针对投机性炒房的外国人，而加拿大永久居民、外籍工人和留学生等购买生活住宅则将不受该政策的约束。
-
-据悉，联邦政府已开始对那些空置或未被充分使用的非加拿大居民所拥有的房产加增 1% 的税赋。而安省已将外国购房者税从 15% 提高到了 20%。新斯科舍省也公布了对非本地居民购房者的新税政策。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：
-
-[https://www.ctvnews.ca/politics/federal-budget-to-include-ban-on-foreign-home-buyers-billions-for-housing-1.5850968](https://www.ctvnews.ca/politics/federal-budget-to-include-ban-on-foreign-home-buyers-billions-for-housing-1.5850968)
-
-[https://www.bnnbloomberg.ca/feds-plan-foreign-homebuyer-ban-billions-to-speed-up-supply-ctv-news-1.1748691](https://www.bnnbloomberg.ca/feds-plan-foreign-homebuyer-ban-billions-to-speed-up-supply-ctv-news-1.1748691)
+**编辑****/****发文：蓝枫法律栏目**
 
  
 

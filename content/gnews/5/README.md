@@ -2,34 +2,27 @@
 ---
 
 
-## 耶鲁公布仍在俄运营的公司里中共国公司为数最多
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2311336/)
+## 安大略省疫情在预料之中再次恶化
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311390/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午11.26.09.png)图片来源：互联网
-根据耶鲁管理学院公布仍在俄罗斯运营的 149 家国际公司中，中共国控制的公司数量最多达42家。
+采编：加拿大温哥华扬帆农场 – 青青
 
-据乌克兰国家通讯社（Ukraine）周五（4月8日）报道，乌克兰总统办公室主任安德烈·耶尔马克（Andriy Yermak）在[Telegram](https://t.me/ermaka2022/195)频道上写道：“耶鲁管理学院的分析师已经展示了哪些国家的公司仍在俄罗斯继续运营。”【1】
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午11.28.24.png)图片来自*Yermak Telegram*截图
-从耶鲁管理学院提供 149 家仍在俄运营的国际公司，按国家统计，可以看到中共国的国际公司是最多的有 42 家，名单上其他包括：28 家法国公司、22 家美国公司、21 家印度公司、13 家德国公司、13 家日本公司和 10 家意大利公司。
+撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-耶尔马克强调：“我们正在加紧与外国政府合作，寻找合适的措辞来阻止公司与俄罗斯合作。因为俄罗斯联邦预算中的每一美元都是我们孩子的血液。“
-
-从中共国驻俄罗斯大使馆截至2020年10月9日，在俄中资企业名单显示有69家。【2】
-
-中共在乌投资遭遇巨大损失。根据中共国商务部统计，在乌克兰实际经营的中企有30家，对乌克兰的累计投资达90亿美元，包括中共国企中粮集团、招商局集团在黑海沿岸的敖德萨港口码头巨额投资。此前俄军狂轰滥炸敖德萨港口。
-
-参考链接：
-
-【1】[149 international companies continue operations with Russia – Yermak](https://www.ukrinform.net/rubric-ato/3451963-149-international-companies-continue-operations-with-russia-yermak.html)
-
-【2】[在俄中资企业名单](http://ru.china-embassy.org/zgzj/zzqy/)
-
-* * *
-
-*编辑&发布：长岛开心*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494317091.png)图片来源：CTV News
 
 
+据CTV新闻4月6日报道，安省卫生部门当天称，疫情已再度席卷该省，每天已可能有超过10万个新增感染病例，而因此住院的人数正以每周40%的速度递增。
+
+对安省生活废水的最新检测分析显示，目前的疫情已达到1月初峰值，即每天约12万个新病例，同时该省约5%的人口处于被感染状态。
+
+报道称，传播性更强的奥密克戎亚变体以及取消配戴口罩的规定是本次疫情复发的主要因素。对此，有专家指出：在还远未度过疫情最高峰的状态下就取消配戴口罩的规定是一个巨大错误，政府应立即恢复该规定，否则在病毒传播速度越来越快的情况下，如果没有足够的医护人员，医院增加床位或其他医疗资源则毫无意义。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://toronto.ctvnews.ca/ontario-likely-seeing-100k-to-120k-new-covid-19-cases-each-day-head-of-science-table-says-1.5851187](https://toronto.ctvnews.ca/ontario-likely-seeing-100k-to-120k-new-covid-19-cases-each-day-head-of-science-table-says-1.5851187)
 
  
 

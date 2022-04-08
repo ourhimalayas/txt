@@ -17,6 +17,32 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 4:08 PM (UTC)`
+
+4月8号, 郭文贵先生两首新歌上线第五天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>12国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰 🇳🇿 ,蒙古🇲🇳热门歌曲第二名🥈<br/>新西兰🇳🇿 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第二名🥈<br/><br/>https://gnews.org/2310805/<br/><br/>5天全球iTunes打榜记录第一名🥇总计：116次<br/><br/>https://gnews.org/2311079<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙，菲律宾、柬埔寨, 蒙古，亚美尼亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>
+
+---
+
+`@miles 4/8/2022 4:06 PM (UTC)`
+
+04/08/2022 on the 5th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 12 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on New Zealand 🇳🇿 and Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#2 🥈 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Five days Global iTunes Charts #1 🥇Ranking Records In Total: 116 times<br/><br/>https://gnews.org/2311079<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Philippines, Cambodia, Mongolia, Armenia 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
+`@miles 4/8/2022 3:56 PM (UTC)`
+
+ 4月8号：民主绝对是个好东西，人民能管好人民．人民根本不需要一个所谓的比爹娘还亲的．邪恶无比的中国共产党……
+![img](https://media.gettr.com/group39/getter/2022/04/08/15/45b0927a-4be1-e7be-cdd1-0683d926ce9b/d08a2f8e231db228f5f63a7d2214e869.jpg)
+
+---
+
+`@miles 4/8/2022 3:55 PM (UTC)`
+
+ 4月8号：共产党执政中国快一百年了，骄傲的上海人．还是不如外国人的一条狗．关键是在内心的世界里自己也认为自己不如那条狗的命值钱，这都是共产党搞出来的．这就是要征服全世界给世界把脉．治病的结果．太可悲了。
+![img](https://media.gettr.com/group25/getter/2022/04/08/15/4cc7ca53-a15b-e650-784e-e3599564d598/out.jpg)
+
+---
+
 `@miles 4/8/2022 3:10 PM (UTC)`
 
  4月8号：尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组织中国共产党……你们现在一定要想办法活下去，活着等到新中国联邦……拯救你们的那一天的到来……
@@ -126,34 +152,6 @@ The Indian volunteer is very interested in the "extermination of the Communist P
 
 2022.04.07《The Fringe》 Episode 164
 ![img](https://media.gettr.com/group8/origin/2022/04/07/23/4bf052bf-1544-59fb-3980-ffcc9b4f9408/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 11:25 PM (UTC)`
-
-<br/>【Ukraine Rescue】04/06/2022  A Christian shares that in a prophetic picture she received from God, she sees the NFSC volunteers become the first drops of water in a tidal wave that’s to influence the world. The Chinese people are carried by God and will break free sooner than they could imagine.<br/><br/><br/>【乌克兰救援】04/06/2022. 一位基督徒分享她从上帝那里得到的预言启示，她看见使徒般的新中国联邦人成为一股影响世界浪潮的前面几滴水珠。中国人是被上帝举起的人，他们会比想象中更快的获得自由
-![img](https://media.gettr.com/group6/getter/2022/04/07/23/72628927-e78d-1174-2950-e3d66d0d28c2/out.jpg)
-
----
-
-`@miles 4/7/2022 11:03 PM (UTC)`
-
-2022.04.07 NFSC News  Shanghai New Cases surging, Armed Police Forces Dispatched for Patrolling
-![img](https://media.gettr.com/group13/origin/2022/03/28/22/a9b7491e-450e-b60b-ada6-c0a7a61e2cae/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/7/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-07<br/>For English：gettr.com/post/p144ax0c526
-![img](https://media.gettr.com/group30/origin/2022/04/07/21/8b7429e5-f33e-1706-9ff0-4db4d2627eda/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/7/2022 9:01 PM (UTC)`
-
-2022.04.07  新中国联邦 | 喜健康   情绪压力与营养吸收的关系
-![img](https://media.gettr.com/group33/origin/2022/04/07/20/9a3099fa-2439-f4c3-aabd-44ddfab5e763/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

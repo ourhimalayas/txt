@@ -2,31 +2,27 @@
 ---
 
 
-## 您可以通过检举揭发帮助欧盟制裁中共
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310226/)
+## 有声｜江浙紧急为上海筹措6万间隔离房
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310227/)
 
-编译：波士顿五月花—-思澈
+By:**秘翻新闻**
 
-中共媒体和公司支持支援俄罗斯的行为属于违反制裁涉及到的个人，公司和第三国
+**2022-04-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-21.png)
+近来，失控的上海疫情占据了大众的关注焦点，在疫情管控中上演的荒唐闹剧及人间惨剧也在接连不断地发生。据郭文贵先生在近期的直播中所称，上海此轮疫情本由疫苗引起，但中共为了掩盖这一事实，采取一些极端的封管措施以掩人耳目，这表明中共已经将疫苗灾难政治化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1752A305-D46D-4F57-8B7C-438D2FC68C54.jpeg)
+在中共历来的政治运动中，官方的所作所为只有让民众想不到，没有他们做不到的。
 
-分享有关违反欧盟制裁的信息，有助于欧盟成员国正在进行的调查取得成功，并提高欧盟制裁的有效性。
+据[中共媒体](https://www.sogou.com/link?url=44aejrzSKwVOL8XMZK4TpgPT9lK_n5UQxP1iQSLBvFt0Z4f5iFP8zr1cTjJoVIVJRiMnWkVR4OO2wKelUak-kA..)报道，4月初，江苏、浙江两地将紧急为上海的密接隔离人员提供房源，总量为6万间。其中，江苏、浙江各3万间。目前，江苏已筹措并提供1.6万间，浙江已筹措并提供2.1万间。剩余房源将于近日筹措完成。
 
-如果你知道可能违反了任何欧盟制裁，你可以通过自愿提供信息来提请委员会注意。这些信息可以涉及，例如，**有关违反制裁的事实，其情况和涉及的个人、公司和第三国。这些可以是不为公众所知但为你所知的事实，可以涵盖过去、正在进行或计划进行的违反制裁行为，以及试图规避欧盟制裁的行为。**
+如此兴师动众地异地隔离密接者，其对于抗疫的意义何在呢？
 
-你可以通过两种方式报告违反制裁行为。
+秘翻新闻 Julia/菜园子编辑报道
 
-💥直接联系我们：如果你站出来，提供你的姓名和联系方式，就能给我们带来最大的帮助，因为这将使你的陈述更加可信，使我们更有可能采取行动。
-要通过这种方式报告违反制裁的行为，你可以简单地发送一封电子邮件到 **[\[email protected\]](/cdn-cgi/l/email-protection#cfbdaaa3aab7e2bcaea1acbba6a0a1bc8faaace1aababda0bfaee1aaba)**
-💥保持匿名：如果你不想透露你的身份，你可以通过欧盟制裁举报工具向我们发送匿名信息，这是一个高度安全的在线平台。管理该工具的欧盟委员会完全致力于保护你的匿名性。
+发布 : 恩典
 
-要访问该工具，了解你的匿名性如何得到保护，并报告违反制裁的情况，出于安全考虑，请在浏览器中复制粘贴或手动重新输入以下网址：**[https://EUsanctions.integrityline.com](https://eusanctions.integrityline.com/)**
-
-素材来源：[https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions\_en#whistleblower](https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions_en#whistleblower)
-
-*发布：思澈*
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
 
 
  
