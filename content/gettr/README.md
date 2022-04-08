@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 8:49 PM (UTC)`
+
+2022.04.08  新中国联邦 | 喜健康   危机干预和信仰的力量
+![img](https://media.gettr.com/group20/origin/2022/04/08/20/7b6aed73-ff64-1dfa-95a0-3c62e7d3f1e7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/8/2022 7:00 PM (UTC)`
 
 2022.04.08  新中国联邦 | 军情室   俄乌战事更新；北约援助乌克兰装备一览；现代战争中的杀伤链概念
@@ -145,13 +152,6 @@ A Danish Christian volunteer: The CCP have been killing His people for years but
 
 2022.04.07 晚  新中国联邦 | 新闻访谈   枫桥经验下的灾难逻辑；盖特推特的变化；联合国的现状
 ![img](https://media.gettr.com/group22/origin/2022/04/08/00/f331a841-6dc1-abd7-e893-bcd93cb1bef5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/8/2022 12:29 AM (UTC)`
-
-2022.04.07 晚  新中国联邦 | 新闻    郭文贵先生谈法治的重要性；新中国联邦乌克兰救援前线报导
-![img](https://media.gettr.com/group3/origin/2022/04/08/00/e9dd82cf-bd0b-67c2-9f06-c4fa40980cda/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

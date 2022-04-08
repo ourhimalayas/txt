@@ -2,31 +2,40 @@
 ---
 
 
-## 一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2311885/)
+## 斯洛伐克宣布向乌克兰转让S-300防空系统
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2312062/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-好吧，人们可以随心所欲地称我为反疫苗人士。但我告诉你们，我的生活本不该如此。我不该需要这些东西来（帮助我）四处走动。我不该在商店里需要轮椅来四处走动。我的脚和腿本不该需要消炎药。我因为出行（的需要）而接种了疫苗。我接种了疫苗，因为有人告诉我，(不打疫苗)不能乘坐飞机或火车。有人告诉我，如果我不接种疫苗，我就不能旅行。有人告诉我，如果我不接种疫苗，我就无法见我的家人。随便你， 叫我反疫苗人士吧。我接种了这该死的疫苗，结果我吃尽了苦头。现在Jason Kenney(加拿大阿省省长)给人们每支疫苗100元，或者礼品卡（作为激励）。这并不值得。这（完全）不值得。
+根据总理爱德华·赫格（Eduard Heger）的声明，斯洛伐克周五（4月8日）宣布，这个北约成员国已经向乌克兰捐赠了S-300防空系统，以 “帮助其抵御俄罗斯的侵略”，这是一个极具挑衅性的声明。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-55.jpg)newsnpr.org
+斯洛伐克在北约的官方推特账户也证实，它正在 “加强对乌克兰的支持”，将 “S-300防空系统送到乌克兰，使其能够抵御俄罗斯的持续侵略。
 
-素材提供：蓝色天空
-软件听写：文倩
-听写校对：文倩
-文稿翻译：文倩
-翻译校对：小白咖啡馆
-字幕添加：文雅
-最终审核：文倩
-编辑/发稿：hongyeca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
+斯洛伐克国防部甚至公布了似乎是一个移动的S-300装置正在准备并从一个军事基地撤出的视频。到目前为止，似乎只有一个单位将被交给乌克兰部队。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+总理赫格曾表示，他的国家将前苏联时期的防御系统 “捐赠 ”给乌克兰。这一消息是在他与欧盟高级官员访问乌克兰首都时宣布的，当时正值与泽连斯基总统会面。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+因此，鉴于S-300正是所需的主要设备类型，北约似乎正一点一点地朝着在乌克兰上空建立潜在的 “禁飞区 ”迈进。考虑到这一最初有点象征性的第一步，俄罗斯的反应无疑将是激烈的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+美联社注意到，这是对泽连斯基敦促西方对乌克兰上空的俄罗斯飞机设立禁飞区的直接回应。
+
+泽连斯基在上个月通过视频与美国立法者谈话时提到了S-300的名字，呼吁建立防御系统，让乌克兰对俄罗斯战机和导弹 “关闭天空”。
+
+这一行动也是在北约外交部长周四在布鲁塞尔举行会议之后发生的，据报道，他们同意向乌克兰提供 “新的和更重的武器”，尽管还没有界定考虑哪些确切的武器系统。
+
+俄罗斯发誓，它已经准备好将任何从外部截获的外国武器运输作为 “合法目标 ”进行攻击。S-300的转让无疑将北约和俄罗斯带到了一个更直接的碰撞轨道上，目前还不清楚其他北约盟国在多大程度上同意了这种挑衅性的交付。
+
+**快评**：这是零对冲4月8日早间的一篇报道【1】，让我们看到“北约与俄罗斯被带到了一个更直接的碰撞轨道上”。
+
+与此同时，零对冲还发表了另外两篇文章【2】、【3】，关注的是芬兰和瑞典这两个长期对北约保持中立的国家，最近因为俄乌战争的影响而迫切要加入北约，北约也表示可以通过快速通道让它们达成。
+
+显而易见，俄乌之战正在彻底改变欧洲的政治形势。加上法国、匈牙利等都面临着大选，尘埃落定后，郭先生说，一个以乌克兰为中心的欧洲将崛起，俄罗斯将被解体。那北约呢，北约如何发展呢？我们拭目以待。
+
+参考链接：
+【1】[https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine](https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine)
+【2】[https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament](https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament)
+【3】[https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast](https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast)
+
+**编译 发布：意大利罗马达芬奇农场Roma**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
