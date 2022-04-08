@@ -2,31 +2,26 @@
 ---
 
 
-## 【G叻睇真D】加拿大安省已接种疫苗者感染新冠病毒死亡率增高
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2312519/)
+## 加拿大阿省首席卫生执行官被免职
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312600/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据自媒体《反信号》4月5日报道，尽管主流媒体仍在为注射疫苗加强针摇旗呐喊，但官方数据却显示：在安省因感染新冠病毒而死亡的病例中，已接种疫苗者数量要远超未接种者。
+作者：加拿大温哥华扬帆农场-薇文
 
-据悉，目前未接种疫苗者的新冠病毒感染死亡率为0.02，而那些已完全接种以及注射了疫苗加强剂的人，感染死亡率则为0.03。同时，根据住院和重症监护室病例情况，已接种病人数量远远超过未接种患者。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-873.png)图片来源：TNT
 
-报道指出，由于在整个疫情期间，约有10%的加拿大人感染了新冠病毒，总体死亡接近0.01%，并与每年的流感死亡率接近。因此，当局所推行的疫苗接种，其有效性不言而喻。
 
-盖特链接：[https://www.gettr.com/post/p147tyq2d6d](https://www.gettr.com/post/p147tyq2d6d)
+加拿大[国家电讯报]网络媒体4日报道，阿尔伯塔省医疗卫生服务系统(AHS)的首席执行官维尔纳·姚4日被解雇，原因是疫情期间对该系统管理不善。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+阿省政府在应对大疫情期所表现的专横霸道，其中一个方面就体现在住院和ICU病床数量的种种劣迹。系统的病床数据不断被篡改，错误的数据使阿省的医疗系统显得始终处于不堪重负的崩溃边缘，而实际上政府的医疗资源却未充分利用。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+维尔纳·姚的另一件丑闻是，她试图暂停和解雇系统内2.6万多名未接种疫苗的 “临时工”，以实现疫苗高接种率目标。媒体曝光后才有所收敛。她似乎只服务于阿省的新民主党和护士工会，使疫情看起來像是一个需要更严格封锁和限制才能解决的问题。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+阿省医疗保健系统需深入改革，用更少的管理人员和更多的独立医生来改善医疗服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+新闻链接：[Dr. Verna Yiu Has Been Removed As Alberta Health Services CEO](https://thenationaltelegraph.com/regional/breaking-dr-verna-yiu-has-been-removed-as-alberta-health-services-ceo)
+
+编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

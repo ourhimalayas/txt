@@ -2,43 +2,44 @@
 ---
 
 
-## 4/09/2022 银河快讯：日本外务省驱逐8名俄罗斯驻日外交人员；日本禁止从俄罗斯进口煤炭、伏特加等产品
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2312739/)
+## 出去买菜被警察喝斥的上海男士获得小区居民的集体助威
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2312775/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/news6012150_50.jpeg)
-[图片来源](https://news.tbs.co.jp/newseye/tbs_newseye6012150.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/005_副本.png)
+据新闻/真话[@TuCaoFakeNews](https://twitter.com/TuCaoFakeNews)于[上午5:11 · 2022年4月9日](https://twitter.com/TuCaoFakeNews/status/1512538710377922560)发布的推特
 
-**1．日本外务省驱逐8名俄罗斯驻日外交官等人员**
+实在太饿了，上海一男子想开车出去买菜，结果被警察拦住，他与警察争吵起来，意想不到的是，小区所有的居民其实都在盯着这场冲突，他们一起高喊给男子助威，因为他们也和男子一样饿
 
-[据NHK 4月8日报道，就乌克兰局势，日本外交部宣布采取措施，驱逐俄罗斯驻日本大使馆的8名外交官和其他人员。8日，外务省副秘书长致电俄罗斯驻日本大使，表示“杀害如此多的平民是对国际人道主义法的严重违反，是战争罪，不可原谅，应受到严厉谴责”，并要求立即将所有俄罗斯军事部队撤出该地区。随后通知俄驻日使馆副秘书长，她将采取措施，将俄罗斯驻日本大使馆的总共8名俄罗斯外交官和俄罗斯贸易代表的官员驱逐出该国。](https://www3.nhk.or.jp/news/html/20220408/k10013573221000.html)
 
-**2． 日本对俄罗斯追加制裁，禁止进口煤炭、伏特加等产品**
 
-[据FNN报道，岸田首相在4月8日的新闻发布会上宣布了对俄罗斯的额外制裁。制裁措施包括：（1）禁止从俄罗斯进口煤炭；（2）对一些机械、木材和伏特加酒实行进口禁令；（3）禁止在俄罗斯进行新的投资；（4）对俄罗斯最大的银行Zberbank和Alfa Bank实行资产冻结；以及（5）对个人和公司实行资产冻结，其中400 近20个与军事有关的组织被宣布加入目标名单，其中包括近20名俄罗斯军事人员和议员。](https://news.yahoo.co.jp/articles/61d269bc82f2846270e2a771e02d54126584d5b9)
+> 实在太饿了，上海一男子想开车出去买菜，结果被警察拦住，他与警察争吵起来，意想不到的是，小区所有的居民其实都在盯着这场冲突，他们一起高喊给男子助威，因为他们也和男子一样饿[pic.twitter.com/SNBcSeHOm1](https://t.co/SNBcSeHOm1)
+> — 新闻/真话 (@TuCaoFakeNews) [April 8, 2022](https://twitter.com/TuCaoFakeNews/status/1512538710377922560?ref_src=twsrc%5Etfw)
 
-**3． 东京燃气社长：萨哈林2号天然气购买打算继续**
 
-[东京燃气公司总裁内田隆史接受读卖新闻采访时表示，来自俄罗斯远东萨哈林2号项目的液化天然气“如果进口停止，将导致城市燃气供应中断”，该公司将继续采购天然气以确保稳定供应。日本进口的液化天然气中，约有8%来自萨哈林2号。他说，根据供求关系买卖液化天然气的现货交易在数量上是短缺的，并称“试图从现货（代替俄罗斯生产）中全部购买，在物理上是不可能的”。由于液化天然气涨价，天然气价格将继续上涨。](https://news.yahoo.co.jp/articles/1a2e8e89aec87b2aac8d22e86f277df7be1bf9bd)
 
-**4．2月经常账户三个月首次出现盈余**
+上海的同胞们，为了活着，让我们站起来冲破这牢笼！
 
-[据NHK 4月8日报道，根据财务省发布的国际收支统计，今年2月日本的经常账户盈余为16483亿日元。这是三个月来日本首次录得盈余，但由于油价上涨和其他因素造成的进口增加，盈余比去年同月减少42.5%。显示从海外证券投资中获得的利息和红利的交换的主要收入余额为22,745亿日元，主要是由于2月份美国政府债券的利息支付，从而确保经常账户余额的盈余。](https://www3.nhk.or.jp/news/html/20220408/k10013572701000.html)
+撰稿：喜马拉雅的肉夹馍；
 
-**5．日清将提高商业用面粉的价格**
+审核：喜马拉雅的馍夹肉；
 
-[据NHK 4月8日报道，在乌克兰紧张局势和其他因素的背景下，政府出售的进口小麦价格大幅上涨，主要面粉制造商日清面粉厂已决定从今年6月起提高商业用小麦粉的价格。按每25公斤的价格计算，用于面包和其他产品的强筋面粉370日元；用于乌冬面和零食的中等强度和轻质面粉将被提高325日元。这是行业历史上第二大增幅。](https://www3.nhk.or.jp/news/html/20220408/k10013573081000.html)
+校对：Maarago；
 
-**6．消费者态度指数连续第三个月下降**
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[据NHK 4月8日报道，上个月的消费者态度指数表明消费者的购物意愿，比前一个月恶化了2.4点。内阁办公室分析了汽油和其他资源及原材料价格持续上涨的影响，以及俄罗斯入侵乌克兰导致的价格进一步上涨，这增加了未来的不确定性。因此，消费者情绪的基本基调被向下修正为“疲软的迹象”。这是连续第三个月下调主旨判断，也是自2020年4月以来的第一次。](https://www3.nhk.or.jp/news/html/20220408/k10013573131000.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**【日本银河系农场-阿尔法星球】**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-素材：文德
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-作者：帆間知津
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-校对：windfish
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

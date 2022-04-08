@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 11:48 PM (UTC)`
+
+💯
+> `@nagege2021 4/8/2022 11:09 PM (UTC)`<br/>🆘乌克兰人道救援行动🆘<br/><br/>来自新中国联邦波兰救援营地Leo文科战友现场实况图文报道：<br/><br/>今天晚上下大雨 ，晚上突然来了很多难民，公交车却没有来，所以整个营地所有帐篷都是挤满了人，我们的大帐篷内也睡满了人，而且还在陆续进人，同行的国际组织义工也在一起帮忙，他们说这个帐篷太棒了，里面温暖舒适，设施齐全，不然今晚这样的情况，真不知道这些难民如何度过。<br/> <br/><br/>
+![img](https://media.gettr.com/group18/getter/2022/04/08/23/5fa41cf3-34ce-6446-265e-d8f363ce9007/out.jpg)
+
+---
+
+`@miles 4/8/2022 11:40 PM (UTC)`
+
+🆘‼️‼️
+> `@weilanzhijing 4/8/2022 11:22 PM (UTC)`<br/>#nocovidvaccines
+![img](https://media.gettr.com/group13/origin/2022/04/08/23/e4ca78bc-4be8-e19a-3eb9-82907bcea7f2/out.jpg)
+
+---
+
 `@miles 4/8/2022 11:37 PM (UTC)`
 
 2022.04.08《The Fringe》 Episode 165  Sweeping New Sanctions against Russia
@@ -138,20 +154,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 
  4月8号：尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组织中国共产党……你们现在一定要想办法活下去，活着等到新中国联邦……拯救你们的那一天的到来……
 ![img](https://media.gettr.com/group7/getter/2022/04/08/15/3177f5db-dbb5-bbf2-895d-334b9b24ab5d/out.jpg)
-
----
-
-`@miles 4/8/2022 2:51 PM (UTC)`
-
-【Ukraine Rescue】 2022/3/31 Ukraine lady Olga: It is a mixed feeling that she is able to bring her two kids to the USA with the fight paid by the ROLF and the help from the NFSC, while her husband and all her friends still stay in Ukraine. The NFSC rescue team deserves five stars out of five for all the support provided.  Russian troops killed the Ukrainian and destroyed her homeland. <br/><br/>【乌克兰救援】 2022/3/31 乌克兰女士奥尔加：在法治基金支付机票和新中国联邦的帮助下，她能够将两个孩子带到美国，而她的丈夫和她所有的朋友还都留在乌克兰，这种感觉是复杂的。 新中国联邦救援队提供的帮助应获五星佳评。 俄罗斯军队屠杀乌克兰人民并摧毁了她的家园。<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/08/14/243211a3-318d-0ddd-a5ea-86ac335c2842/out.jpg)
-
----
-
-`@miles 4/8/2022 1:57 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月7日第34天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9831人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 34 - Date: April 7, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9831 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group24/getter/2022/04/08/13/f23f96a9-97e9-6ff6-dad1-dc7a7d7b8fa1/7ca0655c6ce6392704aa7883e36ec64f.jpg)
 
 ---
 

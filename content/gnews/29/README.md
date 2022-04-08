@@ -2,49 +2,31 @@
 ---
 
 
-## 美国法院恢复拜登政府对所有联邦雇员的疫苗强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2312066/)
+## 【G叻睇真D】加拿大安省已接种疫苗者感染新冠病毒死亡率增高
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2312519/)
 
-作者：纽约香草山农场 – 四季
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据自媒体《反信号》4月5日报道，尽管主流媒体仍在为注射疫苗加强针摇旗呐喊，但官方数据却显示：在安省因感染新冠病毒而死亡的病例中，已接种疫苗者数量要远超未接种者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据悉，目前未接种疫苗者的新冠病毒感染死亡率为0.02，而那些已完全接种以及注射了疫苗加强剂的人，感染死亡率则为0.03。同时，根据住院和重症监护室病例情况，已接种病人数量远远超过未接种患者。
 
+报道指出，由于在整个疫情期间，约有10%的加拿大人感染了新冠病毒，总体死亡接近0.01%，并与每年的流感死亡率接近。因此，当局所推行的疫苗接种，其有效性不言而喻。
 
+盖特链接：[https://www.gettr.com/post/p147tyq2d6d](https://www.gettr.com/post/p147tyq2d6d)
 
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-据[网关专家](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)4月7日的报道，美国拜登总统要求所有联邦雇员接种COVID-19疫苗的规定当日得到了联邦上诉法院的支持。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/blob-1.jpeg)[图片来源](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)
-
-在一项2-1的裁决中，第五巡回上诉法院的一个小组推翻了下级法院的裁决，并下令驳回了一项挑战该强制令的诉讼。这是政府在新奥尔良上诉法院的一次罕见胜利。裁决称联邦法官对该案件没有管辖权，那些挑战该要求的人可以根据公务员法寻求行政补救措施。
-
-早在去年1月，布朗法官阻止了拜登政府对联邦雇员的最后一次疫苗强制令。政府认为，宪法赋予总统作为联邦工作人员的最高领导，与私营企业的首席执行官一样，有权力要求员工接种疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

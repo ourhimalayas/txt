@@ -2,33 +2,24 @@
 ---
 
 
-## 病毒大流行和乌克兰战争致使中国农民在播种季节面临肥料短缺问题
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2312564/)
+## 乌总统向联合国通报俄军对平民的大屠杀
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312618/)
 
-撰稿：东京樱花团/calvin
+作者：加拿大温哥华扬帆农场-重生之鹰
 
-中国氮肥工业协会周五警告说，冠状病毒封锁可能会破坏中国东北地区农场的化肥供应，从而危及春季玉米和大豆种植季节。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220409-farmer-spreads-fertilizer-farm-food-china.jpg)（图片来自文内链接）
-路透社解释说，中国农民通常在4月初囤积化肥，但是在过去几个月冠状病毒爆发后对全国货物和人员流动实施的控制使工厂关闭并干扰了运输。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-874.png)图片来源：CTV
 
-此外，由于对世界上最大的出口国俄罗斯实施制裁，全球化肥的供应已经中断。从美国到中国，全世界的化肥化学品价格正在飙升30%至40%。
 
-这些高价格使中国的经销商不愿意增加他们的库存，使库存短缺数千吨。准备发货的化肥产品的生产商说，中国的冠状病毒限制使他们无法将货物送往中国东北的农场。即使获签必要的运输通行证，这些公司也可能会缺少卡车司机，因为许多人因为冠状病毒而退出了这个行业。
+来自CTV NEWS 4月5日的报道称，乌克兰总统弗拉基米尔·泽伦斯基(Volodymyr zelensky)指责俄罗斯人在乌克兰犯下了令人发指的暴行，并于周二告诉联合国安理会(UN Security Council)，应立即以战争罪的罪名将肇事者送上二战后在纽伦堡设立的法庭。
 
-虽然中国官方媒体坚称，局势已经得到控制，将以某种方式及时供应充足的化肥，以保证4月底的播种，但中国周一从美国购买大量玉米，以对冲赌注。
+泽伦斯基在乌克兰通过视频向联合国外交官发表讲话，他说，“平民遭受酷刑，后脑中枪，被扔到井里，在公寓里被手榴弹炸飞，在汽车里被坦克碾死。他们砍掉他们的四肢，割断他们的喉咙。妇女在她们的孩子面前被强奸和杀害，有的人们的舌头被拔掉，“泽伦斯基说，”无论是那些实施杀戮的人，还是那些下达命令的人，都必须立即以战争罪被绳之以法”，接受类似于战后德国所使用的法庭审判。“
 
-不幸的是，美国农业部上周表示，尽管需求量很大，由于燃料和化肥的价格已经飙升，美国农民也计划减少今年春季的玉米种植。
+俄罗斯军队在从基辅郊区撤出之前，在布查和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈抗议，他们的暴行必须得到审判！
 
-独裁者习近平一直在推动中国尽可能地自给自足，但是包括习近平在内的中国官员在2月份勉强承认，粮食安全可能是来年的一个问题。
+链接：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
 
-习近平在一次政治局常委会议上说：”中国人民的粮食必须由中国人自己生产，并掌握在中国人手中。”他所设定的目标，如果没有充足的化肥供应，将很难实现。
+编辑发稿：硫酸羟氯喹64
 
-信息来源：
-[Pandemic, Ukraine War Leave Chinese Farmers with Fertilizer Shortage During Planting Season](https://www.breitbart.com/asia/2022/04/04/pandemic-ukraine-war-leave-chinese-farmers-fertilizer-shortage-planting-season/)
-
-编辑：东京樱花团/曲别针
-发布：东京樱花团/曲别针
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
