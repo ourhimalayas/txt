@@ -2,10 +2,10 @@
 ---
 
 
-## 日本主管部门已制定援助乌避难民众草案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306442/)
+## 联合国大会投票表决暂停俄罗斯人权理事会资格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306443/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220408-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220408-1.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)

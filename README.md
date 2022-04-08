@@ -15,86 +15,86 @@
 
 ---
 
-### [芬兰扣押了运往俄罗斯的价值4600万美元的艺术品](/content/gnews/1/README.md)
- ` 日本東京方舟農場`
-
-### [遏制高企油价，IEA计划再释放近6000万桶石油](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220406文贵大直播：上海实行军管与假抗疫](/content/gnews/3/README.md)
- ` Tokyo Sakura Video Group`
-
-### [樱花时政┃中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲情报官员拜访所罗门群岛，索加瓦雷总理依旧骑墙](/content/gnews/5/README.md)
- ` 走进澳洲`
-
-### [樱花时政┃联大表决暂停俄人权理事会资格，中共投反对票](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国疫情封控乱象](/content/gnews/7/README.md)
- ` 走进澳洲`
-
-### [秘翻在线：韩国新冠（中共病毒）新增确诊数、危重症数、死亡人数统计](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [缅怀英烈消灭中共八九六四的血不能白流](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [谈古论今 | 上海防疫不是防疫是对内超限战](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [联合国大会投票表决暂停俄罗斯人权理事会资格](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本主管部门已制定援助乌避难民众草案](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：北约秘书长表示乌克兰战争有可能持续数年](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [喜币让人真正实现劳动获得的财富不受掠夺](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [上海宝山区警察白卫兵摆拍送物资后装车全程被网上直播](/content/gnews/15/README.md)
+### [俄罗斯退出人权理事会的模式开启中共等极权国家的先河](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美军参谋首长：美国会助台湾自卫](/content/gnews/16/README.md)
- ` 蓝莲花农场`
+### [芬兰扣押了运往俄罗斯的价值4600万美元的艺术品](/content/gnews/2/README.md)
+ ` 日本東京方舟農場`
 
-### [国企文件揭露中共早就想在所罗门群岛建立军事基地](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
+### [遏制高企油价，IEA计划再释放近6000万桶石油](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [大直播后记：音乐对灭共的重要性](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [墨尔本博物馆移除部分创伤作品](/content/gnews/20/README.md)
- ` 走进澳洲`
-
-### [20220401郭文贵大直播 ：大直播PPT「《商君书》和中共极权统治」](/content/gnews/21/README.md)
+### [20220406文贵大直播：上海实行军管与假抗疫](/content/gnews/4/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国参议院全票通过法案 剥夺俄罗斯和白俄罗斯的正常贸易关系地位](/content/gnews/22/README.md)
+### [樱花时政┃中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳洲情报官员拜访所罗门群岛，索加瓦雷总理依旧骑墙](/content/gnews/6/README.md)
+ ` 走进澳洲`
+
+### [樱花时政┃联大表决暂停俄人权理事会资格，中共投反对票](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国疫情封控乱象](/content/gnews/8/README.md)
+ ` 走进澳洲`
+
+### [秘翻在线：韩国新冠（中共病毒）新增确诊数、危重症数、死亡人数统计](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [缅怀英烈消灭中共八九六四的血不能白流](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [谈古论今 | 上海防疫不是防疫是对内超限战](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [联合国大会投票表决暂停俄罗斯人权理事会资格](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本主管部门已制定援助乌避难民众草案](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：北约秘书长表示乌克兰战争有可能持续数年](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [喜币让人真正实现劳动获得的财富不受掠夺](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [上海宝山区警察白卫兵摆拍送物资后装车全程被网上直播](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美军参谋首长：美国会助台湾自卫](/content/gnews/17/README.md)
+ ` 蓝莲花农场`
+
+### [国企文件揭露中共早就想在所罗门群岛建立军事基地](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [大直播后记：音乐对灭共的重要性](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [墨尔本博物馆移除部分创伤作品](/content/gnews/21/README.md)
+ ` 走进澳洲`
+
+### [20220401郭文贵大直播 ：大直播PPT「《商君书》和中共极权统治」](/content/gnews/22/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国参议院全票通过法案 剥夺俄罗斯和白俄罗斯的正常贸易关系地位](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [乌克兰总统通报俄军对平民的大屠杀](/content/gnews/23/README.md)
+### [乌克兰总统通报俄军对平民的大屠杀](/content/gnews/24/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大将立法要求社交媒体为新闻付费](/content/gnews/24/README.md)
+### [加拿大将立法要求社交媒体为新闻付费](/content/gnews/25/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多政府因错误疫情政策而造成巨大浪费](/content/gnews/25/README.md)
+### [特鲁多政府因错误疫情政策而造成巨大浪费](/content/gnews/26/README.md)
  ` 扬帆枫叶快讯`
 
-### [阿尔伯塔省首席卫生官被免职](/content/gnews/26/README.md)
+### [阿尔伯塔省首席卫生官被免职](/content/gnews/27/README.md)
  ` 扬帆枫叶快讯`
-
-### [被封5天，告诉你中共防疫乱象](/content/gnews/27/README.md)
- ` 澳喜农场`
 
 ### [【G时新闻】美国参议院一致通过“乌克兰民主防御租借法案”](/content/gnews/28/README.md)
  ` G-时新闻`

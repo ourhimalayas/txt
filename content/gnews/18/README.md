@@ -2,123 +2,24 @@
 ---
 
 
-## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
+## 国企文件揭露中共早就想在所罗门群岛建立军事基地
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2306373/)
 
-这才是真正的中国人的悲哀
-Esto es realmente la tristeza de los verdaderos chinos
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16493771911.png)图片来源：路透社
+据《澳州天空新闻》（Sky News）4月6日报道，尽管中共否认与所罗门群岛签订安全条约是为了在印太地区建立一个军事基地，但根据澳大利亚天空新闻掌握的一份来自中共国企的外流文件，北京早在2020年就计划在距离昆士兰海岸仅2000公里的所罗门群岛为中共解放军建立一个基地。
 
-就是你根本不知道真假善恶之分
-Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
+这份文件是一封信件，署名人是中航国际成套设备有限公司（Avic International Project Engineering Company）的总经理钱荣，收件人为所罗门群岛伊沙贝尔省的（Isabel）前省长莱斯利·基科洛（Leslie Kikolo）。根据这封信件的照片，标题表明此文件来自中航国际成套设备的“合同意向书”（letter of intent），日期为2020年9月29日。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-775.png)
+钱荣在意向书中写道：“中航国际成套设备有意于伊沙贝尔省承租一片土地75年，以便推动中共解放军的海军基础设施工程。在开展有关项目之前，中共国将会协助所罗门发展基础设施、教育和体育。中航国际成套设备也将协助所罗门群岛提升教育水平和加强与中共的军事合作。”
 
-那么海外欺民贼能到今天
-Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
+中共和所罗门两国政府至今未曾公开交待有关内容，而这封信件则揭露了两国政府的隐瞒行为。中共驻所罗门大使馆网站4月5日发稿狡辩说，有关中共有意在所罗门兴建军事基地的报导为“少数别有用心的人完全是出于政治目的而故意散布此类假消息”。所罗门群岛总理梅纳西·索加瓦雷（Manasseh Sogavare）的办公室在4月1日表示，中所两国拟签订的安全条约内容并不包括中共在所罗门建立军事基地。
 
-就是(因为)没有真假善恶之分
-Es (porque) no hay distinción entre el bien y el mal
+中航国际成套设备公司的官网资料指出，其母公司为中航国际（AVIC International）。而根据中航国际的官网资料，其母公司是直属于中共国务院的央企—中国航空工业集团有限公司（AVIC）。
 
-有这么多无知的中国海外同胞
-Existen tantos compatriotas chinos ignorantes en el extranjero
+*责编：白夜*
 
-和中国同胞真有良知的人
-Y compatriotas chinos con conciencia
-
-但是他却没有信仰
-Pero no tiene creencia
-
-真的想灭共的人
-Gente que realmente quieren destruir al PCCh
-
-他却没有任何辨别真假的能力
-Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
-
-被他们利用几十年
-Fueron utilizados por ellos durante décadas
-
-我再告诉大家
-Les diré de nuevo
-
-你们从来没有想过亨利小哥
-Ustedes nunca pensaron, Hengli Xiaoge
-
-在过去几十年被这些人害的人
-Personas que fueron asesinadas por estas personas en las últimas décadas
-
-你们知道有多少人吗
-Ustedes saben ¿cuántas personas hay?
-
-谁能告诉我一个数字
-Alguien me puede decir una cifra
-
-被他们给骗回去的
-Los que fueron engañados por ellos
-
-被他们给抓起来, 被他们给伤害的
-Arrestados, heridos por ellos
-
-被他们给骗了上床的
-Engañados a la cama por ellos
-
-骗走钱的有多少个
-Y cuántos fueron estafados
-
-就像草根小哥
-Así como Caogen Xiaoge
-
-给路大脑袋傻捐, 捐了几百次
-Donó estúpidamente a Lude cientos de veces
-
-最后是路大脑袋说你活该
-Finalmente, Lude dijo que te lo mereces
-
-我让你捐了吗
-¿Acaso te dije que donaras?
-
-然后你再看这个王书君
-Luego ves a este Wang Shujun
-
-你们知道这个王书君这个人
-Ustedes saben que este hombre Wang Shujun
-
-害了多少人吗?
-¿Le hizo daño a cuántas personas?
-
-他最起码接触华人几百个人的信息
-Al menos tiene acceso de información de cientos de chinos
-
-让他给传输给共产党了
-Que lo transmitía al PCCh
-
-很多华人找他所谓作政庇
-Muchos chinos lo buscaron por un supuesto asilo político
-
-多少人已经被弄回去了
-Cuantas personas han sido llevadas de regreso
-
-你能查出来吗
-¿Logras averiguarlo?
-
-**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
-
-日期：04/06/2022
-原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
-Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
-
-原视频日期：03/28/2021
-原视频网址：https://gettr.com/post/p128wet3a28
-任务编号：KC487(4114)
-视频时间段：0:00-1:30
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[China dishonest about military plans with Solomon Islands after surfacing of new alliance](https://www.skynews.com.au/world-news/china/china-dishonest-about-military-plans-with-solomon-islands-after-surfacing-of-new-alliance/news-story/bdd5dc5f577debbf3ffc34dfa7ef878d)
 
  
 

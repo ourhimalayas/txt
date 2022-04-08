@@ -2,39 +2,123 @@
 ---
 
 
-## 大直播后记：音乐对灭共的重要性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2306346/)
+## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
 
-整理：馨馨、红红火火
-编辑：Mohegayer K. Simon
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-692.png)图片来源：墨尔本雅典娜农场设计组
-青藤：非常感谢威廉的分享，把所有打榜歌曲的一些细节跟我们做了一个分享，我认为一个歌曲除了它的旋律之外，它的歌词也是一个非常核心的内容。尤其对我们中国人来说，所有的这些中文歌曲的歌词真的是能够打动人心的。我们知道其实在作词方面列侬是一个非常有成就的一个人，他在当年的反战运动中，有很多的歌曲流传至今，而且被视为是当年反战的一个圣歌。我觉得文贵先生的这几首灭共的歌，可以视为是这个时代反共的圣歌，也从此而开启了整个反共的浪潮。因为这些所有的歌曲，所有的歌词都是打动人心，触动了我们心灵的，我们希望得到一个结果。那好，我把这个话题先交给我们的老班长，然后嘉宾再来分享，老班长请。
+这才是真正的中国人的悲哀
+Esto es realmente la tristeza de los verdaderos chinos
 
-老班长：好，谢谢。我对音乐的见解，当然不如威廉王，我自己不懂音乐，但是我还是沉浸在最近的灭共音乐里。之前唐平说每一个音乐都是射向CCP的一颗子弹。现在看起来不是子弹，它是核弹，它甚至比核弹还要强大。因为在每个人心目中它都会产生共鸣，尤其像最近的铁锁女和灭共的雪。曲调是大家都熟悉的曲，但是经过了改编之后，由文贵先生这么演绎出来，赋予了一种全新的生命力和战斗力。这个曲调一响起来，我相信共产党一听到这种旋律他就心慌，这就是音乐的力量，这是其他任何宣传都达不到的效果。
+就是你根本不知道真假善恶之分
+Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
 
-另外全球我们是24个农场， 再加上一个G education，我们就算25个。满打满算我们全球就几万个注册战友，但是我们一次一次的打榜到排名一二，甚至最高峰的时候一到七八名全都被我们占据了。你要知道，这是在一个英文歌曲为主流的平台上，中文歌曲你根本就从来没有机会上100位，甚至1000位都没你的份，你就没这个资格上这一块儿。但是我们文贵先生这几首歌，都是以中文为主唱的，只有一首歌是英文的。那么为什么能达到这样的效果？是不是每个人都能听得懂呢？还真不一定每个人都听得懂。但是我绝对相信所有来下载这首歌的人有两个原因，一个是真的爱这首歌，一个是我支持你们。我听不懂我也知道你们在干什么，那么这股力量就很强大了。那么背后到底有多少人支持我们？这个是共产党可能都不敢算出的数字。现在我们一上去，第一天就能打第一名、第2名出来，这不是开玩笑的。
+那么海外欺民贼能到今天
+Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
 
-另外一个，大家有没有想过这些平台，他要顶着多大的压力来给我们上榜，这是极不容易的。虽然大家说打压我们，但你要记住对平台来说你要打榜，他本身是高兴的，商业行为上他是获益的，为什么他不去做。就像推特，推特他关掉任何的账户，特别是像关掉川普总统账户，一下自带粉丝几千万的人，他不是脑子有问题吗？他为什么这样做呢？屈服于政治的压力和经济利益的压力。共产党给你钱给你压力，还有中国市场等等一系列利益来诱惑你。然后一边给胡萝卜一边敲棒子，你就投降了。在这种压力下，全世界的正义到哪去了？没有。但是我反过来说，不管有多大压力，这些媒体平台毕竟让我们上榜了。这就是跟共产党的一次又一次较量之中，共产党可能烧了很多很多的钱，我们只是坚持坚持再坚持，我们用我们的坚持耗死共产党。
+就是(因为)没有真假善恶之分
+Es (porque) no hay distinción entre el bien y el mal
 
-我觉得威廉王唐平绝对是天才，他们是带有使命的天才。他们其他事情不一定做得多漂亮，在爆料革命音乐上，我觉得谁都不可替代他们。郭先生说唐萍是摇滚之母，威廉王的写词，如果不是一个战友，如果不是发自内心的这种共频共振，不可能有这样的作品，不可能有一个一个字扎心的那种。所以我觉得这就是音乐的力量。
+有这么多无知的中国海外同胞
+Existen tantos compatriotas chinos ignorantes en el extranjero
 
-最后我想说，今天的音乐是不是也像媒体一样，像我们的政治一样，像我们的金融体系一样，也该改革了呢？我们音乐有太多的咿咿呀呀，你爱我我爱你，哥哥妹妹卿卿我我的，太多这种无病呻吟的东西了，越玩越邪乎了。今天突然告诉你们，有文贵先生还有威廉王唐萍这样的作品，告诉你，音乐回到它的本质，是内心深处最强烈情感的表达，而且是最关键最重要的情感的表达，它不仅是给你产生共振，它是武器，它是核武器。它可以把全世界的人唱到一起去，拧成一股强大的力量，所以，以音乐灭共，我觉得威廉王唐萍加上我们的天才的演绎者文贵先生，可以把音乐的力量提高到一个新的高度，谢谢。
+和中国同胞真有良知的人
+Y compatriotas chinos con conciencia
 
-青藤：谢谢老班长。好，那我们先请文峰开始吧。
+但是他却没有信仰
+Pero no tiene creencia
 
-文峰：好吧，老班长讲了以后，我都不知道该怎么讲了，每次打榜我都有参与。我并不是很懂音乐，但是我发现就是从那个takedown CCP开始，我儿子才开始接触爆料革命，因为是英文的，他中文不好，那他就听这个曲子，take down CCP。听完以后，他就很喜欢那个曲子，那个韵味。他学过五线谱，他听了以后，他就把那个五线谱写出来了。写出来以后，他自己又开始拉。我就觉得音乐的这种力量，就是这种传递的力量他是非常大的，尤其是对一些懂音乐的人。从take down CCP到fight for HONGKONG、酒灭中共系列，一直到现在的铁链梦，我就觉得咱们以前从来没享受过这种自由，那么现在终于给了我们一个机会了，就是咱们这个摇滚巨星出了一个歌，我们打榜，我就要支持他，我觉得这就是我的自由。每买一次，我就觉得它就像一个子弹一样，就是射向中共的，否则的话，中共他为什么这么惧怕。为什么花了那么大的精力在这个音乐平台去维稳？要么就是不让这个歌能够成功的上线，要么就是修改数据。就这一件事就说明中共对于真相的传播，是多么的害怕。而音乐就是一个非常重要的方式，小唐姐还有威廉王，真的是起了非常非常重要的作用。
+真的想灭共的人
+Gente que realmente quieren destruir al PCCh
 
-Eglise：好，谢谢，我特别同意文峰对威廉王的评价，深有同感，同时非常赞同老班长对威廉王和小唐姐音乐天赋的肯定。
+他却没有任何辨别真假的能力
+Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
 
-资料来源：[2022年4月6日 文贵大直播](https://gettr.com/post/p13unl27254)
+被他们利用几十年
+Fueron utilizados por ellos durante décadas
 
-*发布：tianzhihuan*
+我再告诉大家
+Les diré de nuevo
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+你们从来没有想过亨利小哥
+Ustedes nunca pensaron, Hengli Xiaoge
+
+在过去几十年被这些人害的人
+Personas que fueron asesinadas por estas personas en las últimas décadas
+
+你们知道有多少人吗
+Ustedes saben ¿cuántas personas hay?
+
+谁能告诉我一个数字
+Alguien me puede decir una cifra
+
+被他们给骗回去的
+Los que fueron engañados por ellos
+
+被他们给抓起来, 被他们给伤害的
+Arrestados, heridos por ellos
+
+被他们给骗了上床的
+Engañados a la cama por ellos
+
+骗走钱的有多少个
+Y cuántos fueron estafados
+
+就像草根小哥
+Así como Caogen Xiaoge
+
+给路大脑袋傻捐, 捐了几百次
+Donó estúpidamente a Lude cientos de veces
+
+最后是路大脑袋说你活该
+Finalmente, Lude dijo que te lo mereces
+
+我让你捐了吗
+¿Acaso te dije que donaras?
+
+然后你再看这个王书君
+Luego ves a este Wang Shujun
+
+你们知道这个王书君这个人
+Ustedes saben que este hombre Wang Shujun
+
+害了多少人吗?
+¿Le hizo daño a cuántas personas?
+
+他最起码接触华人几百个人的信息
+Al menos tiene acceso de información de cientos de chinos
+
+让他给传输给共产党了
+Que lo transmitía al PCCh
+
+很多华人找他所谓作政庇
+Muchos chinos lo buscaron por un supuesto asilo político
+
+多少人已经被弄回去了
+Cuantas personas han sido llevadas de regreso
+
+你能查出来吗
+¿Logras averiguarlo?
+
+**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
+
+日期：04/06/2022
+原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
+
+原视频日期：03/28/2021
+原视频网址：https://gettr.com/post/p128wet3a28
+任务编号：KC487(4114)
+视频时间段：0:00-1:30
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
