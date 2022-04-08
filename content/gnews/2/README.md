@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃上海要求全民在家自检 苏州出现奥秘克戎新变种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309295/)
+## 樱花头条┃各省上万名医护人员支援上海 军队卫勤支援上海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309357/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-上海继续封城，政府要求全民在家自检； 苏州又现奥密克戎新变种。
+各省上万名医护人员支援上海; 军队卫勤支援上海。
 
-信息来源：[https://www.gettr.com/post/p13fwvyd8c0](https://www.gettr.com/post/p13fwvyd8c0)
+信息来源：[https://www.gettr.com/post/p13grv0ce24](https://www.gettr.com/post/p13grv0ce24)
 
-编辑：东京樱花团/asket、文米（素材）
+编辑：东京樱花团/asket、包子/文米（素材）
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****

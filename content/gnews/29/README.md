@@ -2,41 +2,29 @@
 ---
 
 
-## 新南威尔士州发现首例“德尔塔克戎”病例
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2308068/)
+## 德国总理肖尔茨推迟向乌克兰援助坦克
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2308168/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-135.jpg)图片来自网络
-《9 News》近日报道，在新南威尔士州发现了第一例新的新冠变体“德尔塔克戎”病例。
+**撰稿：日本东京方舟农场 北极**
 
-新州卫生厅每周的新冠报告表示该州录得一例德尔塔克戎和一例奥米克戎和多个次变异组合病例。
+据Politico网站4月7日报道，知情人士透露，德国总理奥拉夫·肖尔茨（Olaf Scholz）不顾内阁高级官员的压力，决定推迟向乌克兰援助坦克。
 
-德尔塔克戎是一种“重组”病毒，这意味着它是两种不同变体的混合体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-12.jpeg)德国总理奥拉夫·肖尔茨（Olaf Scholz）。（图片来自Politico）
 
-卫生当局表示，没有证据表明这些新毒株会导致更多疾病或抵消当前新冠疫苗的影响。
+该援助计划由副总理兼经济部长罗伯特·哈贝克（Robert Habeck）和外交部长安娜莱娜·贝尔博克（Annalena Baerbock）推动，涉及大约100辆坦克。最初预计本周将就此事做出决定。但肖尔茨却表示，德国应该首先与西方盟国就此问题达成共识，然后再提供如此重要的军事装备。
 
-今天，新的每日新冠数字的趋势也发生了变化，一些州记录的新病例有所下降。
+总理的犹豫引起了执政联盟绿党、自由民主党（FDP）和中右翼基督教民主联盟（CDU）的强烈反对。德国联邦议院欧洲事务委员会主席、绿党主席安东·霍夫赖特（Anton Hofreiter）表示，重要的是德国在欧盟和北约中表现出“领导力”，而不是躲在其他国家后面。
 
-与昨天相比，新南威尔士州和维多利亚州都报告了新冠病毒病例数量的减少。
+乌克兰驻德国大使安德烈·梅尔尼克（Andriy Melnyk）周四表示，基辅强烈希望柏林提供Marder和Leopard坦克，以及防空“Gepard”坦克。
 
-新南威尔士州报告了 20396 例，而昨天记录为 22255 例。
-
-该州与新冠相关的还有八人丧生。
-
-有1435人在医院感染病毒，44人在重症监护室。
-
-维多利亚州记录了 11,192 例新的新冠病例，比昨天的 12314 例减少了 1000 多例。
-
-该州还有四人死于新冠。
+柏林全球公共政策研究所智库主任托尔斯滕·本纳（Thorsten Benner）认为，德国因过于依赖俄罗斯天然气供应，导致对俄罗斯实施制裁时的软弱立场已经受到盟友的批评，“我认为，对于德国的信誉来说，至关重要的是，我们不会在对俄制裁上到处踩刹车，至少有一方面是表现积极的。“本纳呼吁说。
 
 参考链接：
+[https://reurl.cc/VjKE1Y](https://reurl.cc/VjKE1Y)
 
-[https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46](https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46)
+总编： 青城道姑
+发布： 文曦
 
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,26 @@
 ---
 
 
-## 樱花时政┃佩洛西染疫 访台行程延后
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2308843/)
+## 打了新冠疫苗还被感染：医务人员集中爆发新冠感染
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2309058/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/佩洛西染疫-访台行程延后.png)图片来源于本文链接
+#### 编译 意大利达芬奇农场 小白鸽
 
-美国会众议院议长佩洛西的办公室表示，佩洛西确诊感染中共病毒（新冠病毒Covid-19），目前没有症状。她原定于4月8日启程，率领国会代表团访问日本之后到访台湾，佩洛西的发言人表示，这次访问行程将延后。现年82岁的佩洛西已接种了2针中共病毒疫苗和加强针。她的办公室称，佩洛西将遵循美国联邦疾病防控中心（CDC）的指南开始隔离。根据CDC的标准，确诊者应隔离5天，无症状或症状减轻者在解除隔离后的5天内，需要在与人接触时戴上口罩，避免传染。
+意大利国家紧急状态已结束，但是医疗卫生工作人员的状况并没有太大的好转。相反，对于他们的疫苗强制令延长至2022年12月31日，如不遵守，停职。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-08-alle-10.56.42.png)图片来源：ilparagone.it
+尽管医务人员都接种了疫苗，但是大量医务人员仍然继续感染新冠病毒，不得不在家隔离。最近仅在意大利北方威内托大区被感染的医务人员多达2260人，平均每星期130人；而未感染的医务人员将承受双倍甚至是3倍的工作量直至同事痊愈。
 
-信息来源： 
-[佩洛西染疫 访台行程延后](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220407-%E4%BD%A9%E6%B4%9B%E8%A5%BF%E6%9F%93%E7%96%AB-%E8%AE%BF%E5%8F%B0%E8%A1%8C%E7%A8%8B%E5%BB%B6%E5%90%8E)
+但同时还存在另一个问题：未接种新冠疫苗的同事仍被停职，被迫待在家里。虽然有人为此呼吁，但政府对此并不理会。许多地方医疗机构不得不雇佣经验不足的麻醉师和急救人员。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+新冠疫苗不是解决新冠病毒的办法，但意大利政府还在强制医疗卫生工作人员必须接种新冠疫苗——不接种者禁止工作，而接种疫苗后却仍然不断发生感染，甚至爆发集中感染。爆料革命告诉我们新冠疫苗根本不能防止感染，现在的病毒就是疫苗反应。如此高的接种率会使病毒一波接一波，无法根除。
+
+
+
+参考链接：
+
+[https://www.ilparagone.it/attualita/vaccinati-e-contagiati-emergenza-sanitari-scoppia-il-caso-degli-ospedali/](https://www.ilparagone.it/attualita/vaccinati-e-contagiati-emergenza-sanitari-scoppia-il-caso-degli-ospedali/)
+
+编辑、上传：Xiao baige
 
  
 
