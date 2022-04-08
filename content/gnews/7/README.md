@@ -2,31 +2,22 @@
 ---
 
 
-## 沪上封城杂感
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2308144/)
+## 视频|美财政部长将就加密市场监管及政策发表演讲
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2308167/)
 
-**作者：**无相
-**图片设计：**614
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/04/f7cc8fddafd640a5.png)
-习二治国实可怜，
-封门闭户万人嫌。
-老鼠扛枪窝里横，
-总把万民置倒悬。
-菜米盐茶不纾困，
-市廛街闾断炊烟。
-盛世红朝岁月好，
-千门万户哭连天。
-帝王知耻犹已诏，
-扯根卵毛景山悬！
+制作：香草山视频部
 
-*发布：翼族*
+4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
+
+对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
+
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

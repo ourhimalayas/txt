@@ -2,42 +2,51 @@
 ---
 
 
-## 破产后的七哥在家里说话有时候真有点弱,要求不能太多
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2308124/)
+## 【修罗短评】只盼明年清明时，已将共匪深深葬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2308127/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%888%EF%BC%9A9%EF%BC%89%E7%A0%B4%E4%BA%A7%E5%90%8E%E7%9A%84%E4%B8%83%E5%93%A5%E5%9C%A8%E5%AE%B6%E9%87%8C%E8%AF%B4%E8%AF%9D%E6%9C%89%E6%97%B6%E5%80%99%E7%9C%9F%E6%9C%89%E7%82%B9%E5%BC%B1%2C%E8%A6%81%E6%B1%82%E4%B8%8D%E8%83%BD%E5%A4%AA%E5%A4%9A%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:5)
+**作者:修罗闻道**
 
-**郭文贵先生：**我在家你七嫂子天天憋我难受，不敢说实话，是吧？因为你七嫂子现在很不容易，你说我要说几句，你七嫂子很在乎，让她很生气。那就对不起了，对你们我就不憋着了，哈哈哈哈！我不受这个气啦！想说啥说啥！哎呀现在我这是在家里边也受气，你说我这破产了，你说说点啥话吧也真不硬气。
+清明时节雨纷纷，封城百姓饿断魂。
 
-兄弟姐妹们你们不懂这感觉，我不希望你们每个人都试一把。但是有一天你们会明白：爹有、娘有、老婆和孩子有，不如你自己有。你说你七哥个人破产了，你说你在家里边儿真说话就有时候还真有点弱，毕竟这东西不在你名下，你咋办？是吧？你吃吃喝喝的，你就要求别那么多了。虽然说郭家的资产创造当中，我起到关键作用，但是它不在你名下它就不在你名下。所以说夫妻也好，儿女也好，大家还真得整明白，是吧？
+天价蔬菜疯狂卖，还要百姓叩皇恩。
 
-字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
+两个月以前，共匪糟蹋着老百姓上千亿的血汗钱，表演了一场假大空的冬奥会，开幕式丢人，闭幕式遭骂。骂声还未落，病毒就诡异地在全国范围内多点爆发，而且找不到源头。一度有吉林农大的学生怀疑，是体内的灭活疫苗复活了。
 
-编辑整理：Jacques；
+[![](https://express.adobe.com/page/6g1m5IqWyGl4j/images/1380954e-28de-4293-a2a7-bbf859578f6d.jpg?asset_id=1030ef94-95f8-4cca-8bae-c2b77edd6988&amp;img_etag=%22ae2411616cc3937211a0310d4c7ec036%22&amp;size=1024)](https://express.adobe.com/page/6g1m5IqWyGl4j/images/1380954e-28de-4293-a2a7-bbf859578f6d.jpg?asset_id=1030ef94-95f8-4cca-8bae-c2b77edd6988&amp;img_etag=%22ae2411616cc3937211a0310d4c7ec036%22&amp;size=1024)
 
-字幕档制作：知津；
+终究是年轻人脑子灵活啊，很快就能意识到问题所在。打入身体的冠状病毒疫苗就是不稳定的炸弹，随时可以爆发，而目前的疫苗灾难只是初显，大面积蔓延成雷区的日子还没有真正到来。
 
-视频制作及上传：Cindy；
+相比于上面这位年轻人的分析，中共官员的腐朽脑子就明显不够用了，以上海为例，作为墙内最大和最开放的城市，在本次疫情爆发初期，上海曾经努力效仿西方发达国家的相对温和的防控政策，但好景不长，迫于中共独裁体制的所谓“清零政策”的压力，最终依然做出了独裁统治一定会做的错误决定——封城。大面积的封城，完全不用脑子做判断。新病毒，老办法，政府只负责严控封城，而对百姓的食物、医疗保障等民生问题视若无睹，短短两周，饿死、病死和自杀的惨剧已经频繁发生。而疫苗带给人类的灾难还没有真正开始，一直以来被公认的“优等生”上海在防疫工作上尚且如此，当同样的灾难发生在其它城市，后果难以想象。
 
-G-News发布：海贼王M.D.LUFFY；
+每每此时，都忍不住想起郭先生的忠告，2022年是最艰难的一年，一定要活下去。郭先生也曾建议我们远离大城市，找一个小城市或者山上，能独立生存的地方，活下去。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+今天的上海和吉林，一刀切式的封城，市民不能走出楼房，村民不能走出院子，千万人一夜之间进入穴居生活，家里是缺粮少菜，外边是“白色恐怖”。共匪宣传了几十年所谓的国民党的白色恐怖，今天终于领会了“白色恐怖”的真正含义，就是穿着白大褂、端着枪的给老百姓带来恐惧的中共独裁统治。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[![](https://express.adobe.com/page/6g1m5IqWyGl4j/images/429cebe0-9416-4c8a-8398-74dadb6e1aba.jpg?asset_id=1a39abdc-e4c9-43bd-b03b-69224686de09&amp;img_etag=%22eef2356cf65f08ec28bc52cd52c779ba%22&amp;size=1024)](https://express.adobe.com/page/6g1m5IqWyGl4j/images/429cebe0-9416-4c8a-8398-74dadb6e1aba.jpg?asset_id=1a39abdc-e4c9-43bd-b03b-69224686de09&amp;img_etag=%22eef2356cf65f08ec28bc52cd52c779ba%22&amp;size=1024)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+整个大陆封多解少，各地都有百姓走极端的悲惨事件，跳楼的、上吊的、纵火的，层出不穷，每个城市都会因为各种小道消息而人心惶惶。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+人心惶惶尚可残喘，鬼心慌慌谁来陪葬?
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+多地的封城政策，导致众多的城市居民无法在清明节回乡扫墓祭祖。清明祭祖，几千年没变的习俗，终于在共产党的白色恐怖下被剥夺了。中共作到头了，天怒人怨，人神共愤，只盼明年清明时，已将共匪深深葬。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+*编辑：【英国伦敦喜庄园编辑部】*
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+*校对：仙女儿-文善 | 审核：文明明 | Page: Daoiii*
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+* * *
 
-G-TV：日本银河系农场。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
 
  
 
