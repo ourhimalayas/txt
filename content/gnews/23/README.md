@@ -2,32 +2,34 @@
 ---
 
 
-## 川普称身体健康状态有可能阻止他参加2024年总统大选
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2310669/)
+## 有声|乌克兰战争故事：医护情侣在战火中结连理
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310787/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-63.jpg)
-美国前总统川普（资料图片来自网络）
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+【联合早报4月5日报导】  安东·索科洛夫和娜斯佳·格拉切娃原本是哈尔科夫的医生和护士。乌克兰战争开始后，他们为在家避难的乌克兰人提供医疗护理。在储备药物用完后，他们改为帮助人们购买药物。哈尔科夫是遭受战争破坏最严重的城市之一。尽管俄军炮弹不停地落在哈尔科夫街头，但是，他们还是决定按原计划在4月3日共结连理。唯一无法按计划进行的是，他们只能在一片废墟中拍结婚照。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image017-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image019-1.jpg)
+战争是残酷的，废墟中的爱情更加闪亮且可贵。祝福善良的有情人终成眷属，我们愿战争早日结束，愿战争中离散的家人能重新团聚，愿世界归于和平！
 
-美国前总统川普近日在接受媒体采访时表示，健康因素可能是他决定是否参加下一届美国总统大选的因素之一。
 
-据《希望之声》4月8日报道，美国前总统川普4月7日（周四）承认，他身体的健康状态可能是阻止他参加2024年总统大选的一个考虑因素。
 
-据Epoch Times（大纪元时报）网站报道，现年75岁的川普在接受《华盛顿邮报》采访时表示，他的助手对他说，他的身体状况应该是他考虑是否再次参选总统的其中一个因素。不过川普同时表示，他的身体仍非常健康。
+[【援引连结】](https://www.zaobao.com.sg/news/world/story20220405-1259458)
 
-川普目前尚未公开宣布他是否会参加2024年总统大选。如果他2024年参选，届时将已是78岁高龄。不过，很多总统医生都认为，川普的身体到80岁仍然会非常健康，而且他仍将非常活跃。
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
 
-川普在接受采访时虽没有明确表态他是否会再次参选，但他说：“很多人会对我做出的决定而感到高兴，因为现在的情况有些太无聊了。”
-
-川普同时还表示，如果他确实参选，前副总统彭斯（Mike Pence）、德州州长德桑蒂斯（Ron DeSantis）和前国务卿蓬佩奥（Mike Pompeo ），都将无法成为他在2024年大选中共和党初选时的对手。以目前的民意调查来看，川普仍以相当大的优势领先于其潜在的共和党对手。
-
-川普今年3月份在接受《华盛顿观察家》记者采访时，谈到了他曾经的副手彭斯。川普表示，如果他再次参选，将不会再请彭斯当他的副手。他称他仍然喜欢彭斯，但他不认为人民能够接受。
-
-新闻链接：
-
-[https://m.soundofhope.org/post/610253](https://m.soundofhope.org/post/610253)
-
-* * *
 
  
 

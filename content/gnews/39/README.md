@@ -2,37 +2,32 @@
 ---
 
 
-## 国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309165/)
+## 您可以通过检举揭发帮助欧盟制裁中共
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310226/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-4.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-欧盟执委会6日提议将禁止进口俄罗斯煤炭纳入新一轮制裁清单，会议结果出炉，欧盟成员同意将煤炭进口禁令纳入对俄罗斯的新一轮制裁，制裁决议将经欧盟官方公布后生效。欧盟对俄罗斯实施煤炭进口禁运，同美国禁止进口俄能源，旨在对普京施加经济压力。
+编译：波士顿五月花—-思澈
 
-欧盟执委会宣布自**8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口**；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
+中共媒体和公司支持支援俄罗斯的行为属于违反制裁涉及到的个人，公司和第三国
 
-欧洲统计局数据显示欧盟仰赖俄罗斯能源，2020年自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气。本次煤炭进口禁令，是欧盟首次对俄罗斯能源实施制裁，预计价值高达每年40亿欧元（44亿美元）。同时，欧盟已着手制定对石油等其他能源的制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1752A305-D46D-4F57-8B7C-438D2FC68C54.jpeg)
 
-欧盟决议将对俄罗斯实施制裁如下：（由欧盟官方公布后生效）
+分享有关违反欧盟制裁的信息，有助于欧盟成员国正在进行的调查取得成功，并提高欧盟制裁的有效性。
 
-- 对俄罗斯宣传、国安、军事机构人员、侵略乌克兰有关的工业技术部门进行实体制裁
-- 冻结数家俄罗斯银行资产
-- 禁止向俄罗斯出口价值高达100亿欧元的高科技产品
-- 欧盟将对悬挂俄罗斯国籍的船只关闭港口
-- 对俄罗斯实施武器禁运
-- 禁止俄罗斯煤炭进口、禁运
-- 禁止从俄罗斯进口，价值高达55亿欧元的原料和关键原料
-- 对俄罗斯及白俄罗斯公路运输制裁
+如果你知道可能违反了任何欧盟制裁，你可以通过自愿提供信息来提请委员会注意。这些信息可以涉及，例如，**有关违反制裁的事实，其情况和涉及的个人、公司和第三国。这些可以是不为公众所知但为你所知的事实，可以涵盖过去、正在进行或计划进行的违反制裁行为，以及试图规避欧盟制裁的行为。**
+
+你可以通过两种方式报告违反制裁行为。
+
+💥直接联系我们：如果你站出来，提供你的姓名和联系方式，就能给我们带来最大的帮助，因为这将使你的陈述更加可信，使我们更有可能采取行动。
+要通过这种方式报告违反制裁的行为，你可以简单地发送一封电子邮件到 **[\[email protected\]](/cdn-cgi/l/email-protection#cfbdaaa3aab7e2bcaea1acbba6a0a1bc8faaace1aababda0bfaee1aaba)**
+💥保持匿名：如果你不想透露你的身份，你可以通过欧盟制裁举报工具向我们发送匿名信息，这是一个高度安全的在线平台。管理该工具的欧盟委员会完全致力于保护你的匿名性。
+
+要访问该工具，了解你的匿名性如何得到保护，并报告违反制裁的情况，出于安全考虑，请在浏览器中复制粘贴或手动重新输入以下网址：**[https://EUsanctions.integrityline.com](https://eusanctions.integrityline.com/)**
+
+素材来源：[https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions\_en#whistleblower](https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions_en#whistleblower)
+
+*发布：思澈*
 
 
-欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）推特表示，俄乌战争持续，俄国在金融、经济、科技方面将长期受到孤立。
-
-来源｜[euronews](https://www.euronews.com/my-europe/2022/04/07/eu-countries-agree-on-new-russia-sanctions-including-coal-embargo)、[AP](https://apnews.com/article/russia-ukraine-kyiv-business-european-union-europe-9a1062991e5e1f463c31e4cf518b2c3f)、[Présidence française du Conseil de l’UE’s twitter](https://twitter.com/Europe2022FR)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

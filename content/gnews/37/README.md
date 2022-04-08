@@ -2,30 +2,18 @@
 ---
 
 
-## 速报┃日本再次发力 宣布对俄罗斯实施额外制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309632/)
+## 速报┃俄向乌克兰火车站发射导弹，致30人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2310236/)
 
-撰稿：东京樱花团/闻雨
+撰稿：东京樱花团/haruka春香
 
-4月8日，岸田首相召开了新闻发布会，宣布对俄罗斯实施额外制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-19.jpg)[图片来源](https://www.google.com/search?q=%E6%97%A5%E6%9C%AC%E9%A2%9D%E5%A4%96%E5%88%B6%E8%A3%81&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBtUGwpP6dS0xWgA5INcPm6NZUtj0Q:1649416000638&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwin7re2qYT3AhUjolwKHfz2A7MQ_AUoAnoECAEQBA#imgrc=z1CWfz_Uuxnc4M&amp;imgdii=hahDwL97qb3RrM)
-岸田首相表示：“加大对俄罗斯的外交和经济压力，我们将与国际社会团结起来，实施强有力的制裁，以阻止局势进一步升级，尽快实现停火，结束侵略。”额外的制裁包括以下5项。
-
-(1) 禁止从俄罗斯进口煤炭。
-
-(2) 对机械、一部分木材和伏特加酒实行进口禁令。
-
-(3) 禁止在俄罗斯进行新的投资。
-
-(4) 冻结俄罗斯最大银行俄罗斯联邦储蓄银行 （Sberbank）和阿尔法银行（Alfa Bank）的资产。
-
-(5) 冻结个人和公司的资产，包括近400名俄罗斯军事人员和议员以及约20个与军事有关的团体。
-
-关于煤炭进口，岸田首相表示：“将通过尽快获得替代品和逐步消减进口来减少我们在能源领域对俄罗斯的依赖。”日本政府不再犹豫，采取了坚定的立场，和美国和欧洲等西方国家坚定地站在了一起。只有全球的民主国家联合在一起，才能彻底摧毁邪恶的独裁政权。
+俄一枚导弹击中乌克兰东部顿涅茨克州火车站,造成30多人丧生。在浓烟弥漫的同时，车站建筑物旁边也散落着大件行李。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-144.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220408-00444458-fnn-000-1-thumb.jpg?exp=10800)
+东部多涅茨克州州长表示，4月8日俄罗斯军队向克拉马托鲁西克火车站发射导弹，导致30人死亡、100人受伤。据悉，当时为了乘坐火车到其他地方躲避，该车站聚集了数千名市民。泽伦斯基总统也在自己的SNS上传影像，表示：“敌人在战场上没有对抗我们的力量和勇气，但正在冷彻地杀害平民。这是邪恶的极点。”
 
 信息来源：
 
-[【速報】岸田首相　対ロシア追加制裁を発表　石炭・ウォッカなど輸入禁止（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/61d269bc82f2846270e2a771e02d54126584d5b9)
+[【速報】鉄道駅にミサイル 30人死亡　ウクライナ東部 避難民に…（フジテレビ系（FNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/95c74029d795c44bb1642f34596e1008e0cf66ec)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

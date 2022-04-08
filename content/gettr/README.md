@@ -17,13 +17,6 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/8/2022 3:38 PM (UTC)`
-
-The NFSC (New Federal State of China) and ROL Foundation Rescue team provided humanitarian relief services for a Ukrainian mother named Olga and her two kids of US-nationality. The services also included the airfare. She bravely spoke against the absurdity of the Putin regime. When she mentioned about her husband who still stayed back in Ukraine, she broke down in tears. Speaking of being able to leave the war-torn homeland for the United States, she expressed her mixed feelings. For the help she received from the NFSC Rescue team, she generously gave it a 5-star rating."新中國聯邦和法治基金為烏克蘭媽媽Olga和她兩名美籍子女提供了人道救援服務，包括機票。她勇敢地說出普京政權的荒謬，一談到丈夫仍然要留在國家，立即淚下。對於終於能出境赴美，她的心情複雜。對於得到的救援支持，她打滿分5星
-![img](https://media.gettr.com/group11/origin/2022/04/08/15/9eb44e31-1114-3a63-027a-981234d1b90d/out.jpg)
-
----
-
 `@miles 4/8/2022 3:10 PM (UTC)`
 
  4月8号：尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组织中国共产党……你们现在一定要想办法活下去，活着等到新中国联邦……拯救你们的那一天的到来……
@@ -154,6 +147,13 @@ The Indian volunteer is very interested in the "extermination of the Communist P
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-07<br/>For English：gettr.com/post/p144ax0c526
 ![img](https://media.gettr.com/group30/origin/2022/04/07/21/8b7429e5-f33e-1706-9ff0-4db4d2627eda/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/7/2022 9:01 PM (UTC)`
+
+2022.04.07  新中国联邦 | 喜健康   情绪压力与营养吸收的关系
+![img](https://media.gettr.com/group33/origin/2022/04/07/20/9a3099fa-2439-f4c3-aabd-44ddfab5e763/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

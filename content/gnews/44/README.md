@@ -2,28 +2,31 @@
 ---
 
 
-## 获得金球奖的著名足球运动员加入乌克兰军队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307962/)
+## 国际｜日本驱逐俄罗斯八名外交人员 配合西方降低俄煤进口
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309788/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/获得金球奖的著名足球运动员加入乌克兰军队.png)（图片源自本文链接）
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-12.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+日本外交部外国新闻秘书小野光子于记者会宣布，日本政府将驱逐俄罗斯驻日本大使馆八名外交官，其中并不包含俄罗斯驻日大使加卢津。随后，森副大臣宣布八名遭驱逐人员，包含俄驻日本大使馆外交官和俄罗斯贸易代表处工作人员。撤出期限日本官方称已通知俄方，并未对外透漏。面对日本决定驱逐俄罗斯驻日人员，俄罗斯宣称将采取适当措施。
 
-4月8日东体育消息：据每日邮报报道，曾获得世界上最负盛名的足球运动员奖——金球奖的著名足球运动员，已经加入了遭受俄罗斯入侵的乌克兰军队。
+小野光子表示“俄罗斯否认杀害平民一事，不可被接受。”
 
-61岁的伊戈尔·贝拉诺夫，乌克兰战士，曾帮助基辅迪纳摩在前苏联赢得优胜者杯，被《法国足球》杂志选中，成为1986年获得金球奖的著名球员。据该报称，他已经开始行动，以挽救他的祖国乌克兰免受俄罗斯的攻击。
+欧洲多国已陆续采取驱离俄国外交官，欧盟曾于两天内驱逐超过120名，其中立陶宛、爱沙尼亚、拉脱维亚，波罗的海三国率先宣布“关闭俄罗斯总领事馆”。立陶宛4日宣布驱逐俄罗斯大使并关闭俄国总领事馆，对俄外交降级，其他两国宣布跟进。
 
-信息来源：
- [バロンドールを受賞した〝英雄〟がウクライナ軍隊に加入！最前線で銃を手にする写真も投稿（東スポWeb） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/67decebc83bf69d7bc72fe1eba4c35e507103511)
+日本本次并未驱逐俄驻日大使，仅驱逐工作人员及外交官。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+## 配合美、欧制裁 计划逐步减少俄罗斯煤炭进口
+
+美国及欧盟于8日对外公布称，禁止进口、禁运俄罗斯煤炭。日本经济产业大臣萩生田光(Koichi Hagiuda)表示，日本是世界第三大煤炭进口国，计划逐步减少俄罗斯的煤炭进口，同时在对俄罗斯实施制裁下寻找替代供应来源。俄罗斯目前是日本燃料煤第二大供应国，短时间难立即找到替代供应来源，因此日本能源制裁是在不造成产业负担下，配合西方制裁。
+
+美国能源情报署(U.S. Energy Information Administration, EIA)数据，中（共）国、印度、日本为燃料煤炭前三大进口国。
+
+來源｜[REUTERS](https://jp.reuters.com/article/japan-russia-diplomats-idJPKCN2M00P2)、[NHK](https://www3.nhk.or.jp/news/html/20220408/k10013573221000.html)、[rfi](https://www.rti.org.tw/news/view/id/2129451)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

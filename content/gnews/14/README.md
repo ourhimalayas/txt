@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310790/)
+## 日媒关注中共在教育界展开的新一轮洗脑
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2311050/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-【路透社**4**月**5**日报导】 美国财政部周二对一个著名的俄罗斯暗网市场网站（**Hydra）**和一家加密货币交易所（**Garantex）**实施制裁。财政部称该交易所主要在莫斯科和圣彼得堡运营。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image025.jpg)美国财政部大楼
-根据区块链研究人士，**2019**年俄罗斯加密货币交易所直接收到的非法比特币中约有**86%**来自**Hydra**。美国财政部将**Hydra**称为世界上**”**最大和最出名的暗网市场**”**。**
+作者：日本方舟农场 Andy5
 
-**美国财政部表示，新的制裁措施禁止美国人向**Hydra**或**Garantex**提供**”**任何捐款或资金、货物或服务**”**。**
+当地时间4月6日，日媒报道了中共在俄罗斯侵略乌克兰的事件上，不但加强了社会舆论管控，甚至在教育界展开了新一轮的洗脑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-17.jpg)
+日媒播放的视频显示，中共国的老师将俄罗斯出兵乌克兰的原因，归咎为乌克兰政治腐败、经济凋敝、政府和纳粹一起杀害俄罗斯人，以及北约东扩等俄方编造出来的理由。一份山东省政府发放给山东省内所有小学到大学的通知，要求教师准确把握中共在俄乌局势中的“原则立场”。在视频最后，更有陕西省为思政课老师准备了一堂名为“引导学生正确认识乌克兰局势”的备课会议，要求思想统一。
 
-**美国财政部还表示，这项制裁措施禁止美国与**Hydra**和**Garantex**进行交易，并寻求冻结他们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做努力的一部分。
+分析人士指出，中共一贯利用发放官方通知、新闻通稿，以及几十年的洗脑教育，使人们颠倒黑白，失去思考和逻辑判断能力，思想保持高度一致，就是为了实现愚民、役民的独裁统治，稳固政权。在俄乌战争一事上的洗脑手段，已经引发了越来越广泛的海外媒体关注和揭露。
 
-[【援引连结】](https://cn.reuters.com/article/usa-russia-darknet-market-sanctions-0405-idCNKCS2LY03K)
+参考链接：
+1. [20220406日媒報導CCP正在俄羅斯侵略烏克蘭事件上進行教育界洗腦](https://www.gettr.com/post/p13vrl0a06a)
+2. [**CCP洗脑教育20220406**](https://mega.nz/file/dIxBkb7a#-H_xnsIXBQ_47wCvn2n784hBNAKAOQXeBNUOiFv6_L0)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+总编/编辑：宁文静
+审核：Irene木木
+校正/发稿：Fei797
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
