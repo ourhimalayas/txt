@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 7:00 PM (UTC)`
+
+2022.04.08  新中国联邦 | 军情室   俄乌战事更新；北约援助乌克兰装备一览；现代战争中的杀伤链概念
+![img](https://media.gettr.com/group48/origin/2022/04/08/18/5c9cc5bf-3653-ef6a-5f2f-09c84a6cfdcd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/8/2022 6:54 PM (UTC)`
 
 Ukraine is a respectable nation that has always resisted Russia's brutal invasion with tenacity. All righteous and conscientious people stand with Ukraine. Unfortunately, the evil Chinese Communist Party has been secretly supporting Russia's invasion of Ukraine and is a root cause of disasters for the world.<br/>The NFSC, the Rule of Law Foundation and international rescue organizations have cooperated to launch a rescue operation in Ukraine. The NFSC seeks peace in the world and freedom for all. The NFSC will eliminate the Chinese Communist Party and make the world a better place.<br/>乌克兰是一个值得尊敬的民族，一直都在顽强的抵抗俄罗斯的野蛮入侵，并且所有正义、有良知的人士都跟乌克兰站在一起。可悲的是，邪恶的中共一直在暗中支持俄罗斯侵略乌克兰，是世界灾难的根源。<br/>新中国联邦、法治基金和国际救援组织合作，发起了乌克兰救援行动。新中国联邦要在世界建立和平，让所有人都享有真正的自由。新中国联邦人一定会消灭中共，让世界变得更美好。
@@ -145,13 +152,6 @@ A Danish Christian volunteer: The CCP have been killing His people for years but
 
 2022.04.07 晚  新中国联邦 | 新闻    郭文贵先生谈法治的重要性；新中国联邦乌克兰救援前线报导
 ![img](https://media.gettr.com/group3/origin/2022/04/08/00/e9dd82cf-bd0b-67c2-9f06-c4fa40980cda/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 12:23 AM (UTC)`
-
-In tragedy after tragedy in Ukraine, the ruthlessness of the Russian soldiers, their brutal methods have reached the point of heinousness, can the mothers of the Russian soldiers see this scene? Can they still sleep peacefully and stand here?  The rescue operation carried out by the New Federal State of China in Ukraine is also saving countless mothers, because both Russia and the Chinese Communist Party are hurting them!<br/>在乌克兰发生的一桩桩惨案中，俄罗斯士兵的丧心病狂，其残害手段之恶毒已经到了令人发指的地步，作为俄罗斯士兵的母亲们能看到这一幕吗？还能安心入睡立足于世界吗？一个国家的败亡往往是对女性的不公开始的，而且往往都是一些独裁国家，正如中共国的锁链女、杨改兰，作为俄罗斯的士兵的母亲们，就没想明白这个问题吗？让侵略者回家吧，这样还挽回些什么，不然他们都会死在乌克兰，而且是被唾弃的死去，因为正邪的较量是没有休止符的！新中国联邦在乌克兰开展的援救行动，也拯救着无数的母亲，因为俄罗斯和中共都在伤害她们
-![img](https://media.gettr.com/group49/origin/2022/04/08/00/1c393958-6b1a-e550-bd8c-b04728c32ec7/out.jpg)
 
 ---
 

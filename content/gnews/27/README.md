@@ -2,34 +2,42 @@
 ---
 
 
-## 台湾当局追捕中共芯片人才掠夺公司
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2311621/)
+## 布查的死亡超过300人，当地人被发现受到“残酷的折磨”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311635/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20201120122933_50234.jpg)
-近日台湾当局一名调查官员表示，台湾已经对大约100家涉嫌非法挖走芯片工程师和其他技术人才的中共公司展开调查。
+编译：七叶之芒
 
-中共虎视眈眈拿下台湾，台湾的法律禁止中共在芯片行业的某些投资，中共通过在开曼群岛等避税地注册公司来规避资金来源，进行偷盗技术或者人才。台积电芯片广泛供应全球，在全球芯片短缺和被川普政府制裁的前提下，中共更加快了非法掠夺的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-17.jpg)
 
-为抵制中共的作为，台湾在2020年12月在司法部调查局内部设了一个工作组专门来应对此问题。该官员称自去年年初以来已经有7家公司被起诉，其中包括27家已经被突击检查或者其所有者已被传唤质询。上个月开展了迄今为止最大的行动，突击检查了8家公司。据悉其中一家自称是台湾数据分析的公司，其总公司是位于中共上海的一家芯片公司的分部，这家公司偷盗台湾芯片设计蓝图发送给中共。涉及到的公司还有北京IC设计公司，通富微电等。
+布查市市长说，该市官员已经能够确认据称被俄罗斯军队杀害的163名居民，约占俄罗斯占领乌克兰城镇后发现的死亡总人数的一半。
 
-reference：
+布查市市长阿纳托利-费多鲁克在接受美国之音采访时说：“到目前为止，我们已经能够确定163名遇害者的身份。”
 
-[https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/](https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-860-edited.png)2022年3月4日，在基辅西部的布查市，这幅总图显示了被摧毁的俄罗斯装甲车。布卡市市长声称，到目前为止，官员已经能够确认163名据称在基辅地区被俄罗斯军队杀害的居民
+图片来源：新闻链接
 
-撰稿、发布：骄子
+“这些都是我们镇上的居民，他们被俄罗斯人冷酷无情地杀害，受到残忍的折磨。我们知道他们的姓、名、父名[父亲的名字]，他们住在哪里，以及他们是谁–父亲、儿子、妻子，在一个家庭或另一个家庭。”
+
+市长指出，这一数字占据称在靠近乌克兰首都基辅的该镇被俄罗斯军队杀害的人的一半。
+
+当被问及有多少人在布查被杀时，市长回答说，“320人”。
+
+克里姆林宫周一否认了与布查平民被杀有关的任何指控。
+
+费多鲁克还警告说，现在让居民返回布查“还为时过早”。
+
+他说：“相当大比例的领土仍然是危险的。” 《新闻周刊》已与俄罗斯外交部联系，要求其发表评论。
+
+来源：[https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266](https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+审核：Aries的星
+校对：小东
+发布：小东
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
