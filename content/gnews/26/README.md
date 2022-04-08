@@ -2,34 +2,44 @@
 ---
 
 
-## 中共声称若佩洛西访台，将对台湾进行毁灭性打击
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309230/)
+## 欧盟主席乘火车前往基辅
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2309399/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-08-at-17.38.36.png)
-当地时间4月7日，美国众议院长佩洛西宣布即将访问台湾，随即就被确诊中共病毒阳性。与此同时，中共喉舌警告美国，若众议院长佩洛西访问台湾，那么会对台湾进行毁灭性的打击，中共所谓打台湾的战机就是威胁。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-中共外交部发言人赵立坚还声称，中共打台湾的一切后果都应该由美方承担。中共喉舌胡锡进甚至建议在佩洛西到达台湾的当天就开战，中共解放军可以击落台湾的飞机或者对台湾的部队发射导弹进行破坏性打击。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-中共对台湾的入侵屡次三番，在过去的几个月里，中共的军用飞机多次侵犯台湾的航空区域，1月份有39架，3月中旬有13架飞机飞入。
 
-reference：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0153.jpg)
 
-[https://www.newsweek.com/china-state-media-warn-destructive-strike-taiwan-pelosi-visit-1696129](_wp_link_placeholder)
 
-撰稿、发布：骄子
+资料来源：欧盟主席推特
 
-* * *
+周五晚上，欧盟委员会主席乌尔苏拉·冯德莱恩前往基辅。 她是自布查战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
 
-欢迎订阅我们的GNews账号：
+欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔正在前往基辅进行会谈的途中。 周五早上，冯德莱恩在推特上发布了一张照片，照片显示她和博雷尔以及斯洛伐克总理爱德华·黑格在火车站出发前不久。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+
+> Looking forward to Kyiv.[@JosepBorrellF](https://twitter.com/JosepBorrellF?ref_src=twsrc%5Etfw) [@eduardheger](https://twitter.com/eduardheger?ref_src=twsrc%5Etfw) [pic.twitter.com/YFAgGr5Tlc](https://t.co/YFAgGr5Tlc)
+> — Ursula von der Leyen (@vonderleyen) [April 8, 2022](https://twitter.com/vonderleyen/status/1512303926032359428?ref_src=twsrc%5Etfw)
+
+
+
+根据冯德莱恩的说法，欧盟政界人士在基辅与乌克兰总统泽连斯基会面，希望表明欧盟“比以往任何时候都更”站在乌克兰一边。
+
+周五晚上，欧盟委员会主席乘坐火车从波兰东南部前往乌克兰首都。 这位前德国国防部长是自基辅郊区布查的战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
+
+欧洲议会主席罗伯塔·梅佐拉上周前往基辅。 作为对布哈平民屠杀事件的回应，欧盟成员国周四决定对俄罗斯实施进一步制裁。 其中包括禁止从俄罗斯进口煤炭、新的贸易限制以及对俄罗斯船只进入欧盟港口的影响深远的禁令。
+
+简评：欧盟主席乘坐火车前往战火张的乌克兰首都基辅， 准备会见乌克兰总统泽连斯基， 这是非常勇敢而且需要勇气的行动， 用行动表示对乌克兰政府和乌克兰人民的最大支持，普京你也睁开眼睛吧。
+
+🔗[https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html](https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html)
+
+责任编辑、发布： Shuizhuyu
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

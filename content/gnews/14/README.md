@@ -2,22 +2,49 @@
 ---
 
 
-## 秘翻在线：克里姆林宫承认&#8221;俄军在乌克兰将蒙受巨大损失&#8221;
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2309601/)
+## 老爷和韭菜
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2309693/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-14.jpg)图片来源：本文链接
-据韩国《朝鲜日报》4月8日报道，克里姆林宫发言人德米特里·佩斯科夫在当地时间7日承认，入侵乌克兰后，俄罗斯军队遭受了相当大的损失。
+作者：紐約香草山教育部-蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-837.png)
 
-佩斯科夫当天在接受英国天空新闻电视台采访时承认：“我们失去了相当多的兵力，这对我们来说是巨大的悲剧”。但是，对于俄军损失的具体数据，他却避而不谈，表示“因为还没有得到确认，所以不想回答”。上月末，俄罗斯国防部曾表示，入侵乌克兰后，俄罗斯军人死亡1351人，受伤3285人。
 
-对于乌克兰布查大街上发现的平民尸体，他否认说那是“伪造的照片”。佩斯科夫发言人表示：“我们生活在假新闻和谎言中”，“我们否认俄罗斯军队参与这种残暴行为的主张”。
 
-他还表示“俄罗斯军队正在竭尽全力为作战画上句号”，称乌克兰战争迟早会结束。他说：“希望在不久的将来达成目标，或者通过俄罗斯和乌克兰代表团之间的协商结束这一军事作战”。
+老爷是官，韭菜被管
+检测核酸，全民皆关
+指鹿为马，老爷发话
+你想干啥，出门就杀
+军管军管，实枪荷弹
+不听管制，小命要完
+没吃没喝，倒霉是你
+上吊跳楼，自由选择
+啥
 
-信息来源：[https://www.chosun.com/international/international\_general/2022/04/08/FNT6XLGJHNGTBL5FODO7AMUKRY/?utm\_source=naver&utm\_medium=referral&utm\_campaign=naver-news](https://www.chosun.com/international/international_general/2022/04/08/FNT6XLGJHNGTBL5FODO7AMUKRY/?utm_source=naver&amp;utm_medium=referral&amp;utm_campaign=naver-news)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/49C2C0FF-4BE8-4183-A73E-2A5B0F8AD26D.jpeg)
 
-责编：Eric Kim
+还有自由
+老爷发话, 字正腔圆
+对对对
+我们民主，自由国家
+霹雳扒喳，人落楼下
+老爷发话，人雨是花
+可怜韭菜，哭天喊地
+失去我家，失去我爸
+失去我妈，失去我娃
+老爷发话，塞他嘴巴
+高高铸墙，圈禁你丫
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
+
 
  
 
