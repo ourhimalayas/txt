@@ -2,38 +2,19 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月8日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2311655/)
+## 文贵大直播|Eglise：中共以防疫政策弱民辱民
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2311679/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/瓜子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-09_012434.png)
+上海防疫封城导致了一系列的次生灾害，并且还在持续升温，上海已成了人间地狱。上海浦东国际展览中心的方舱医院，大厅不分男女几千张床位，即使在当年的纳粹集中营也是男女分开的。与此同时中共把感染婴儿与父母隔离，把婴儿们都放在同一个大房间，没人照顾，造成相互感染，这和纳粹集中营别无两样。中共以防止病毒大传染为借口，全民疯狂核酸检测，甚至一根棉棒竟可以从多人的鼻腔、口腔取样，从而形成了大面积的传染源、病源。中共的封城防疫以及全民核酸检测事实上就是在弱民辱民。看到那些毫无表情，无任何抵触地等待着核酸检测的上海市民，真是悲哀无比。中共能用这样无人性的方法防疫，是中共长期愚民教育的结果。中共已把中国人洗脑成了利令智昏、毫无理智的奴隶。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-12.png)
+消息来源:
+[2022年4月6日《文贵大直播》](https://gettr.com/streaming/p13unl27254)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-7.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.08早 《NFSC新闻》](https://www.gettr.com/streaming/p147km614d6)
-[2022.04.08早《NFSC新闻访谈》](https://www.gettr.com/streaming/p147opz0196)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
-
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-12.png)
-
-
-
+编辑：东京樱花团/荆轲
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
