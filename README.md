@@ -15,65 +15,65 @@
 
 ---
 
-### [4月8日乌克兰救援行动（图片1-6）](/content/gnews/1/README.md)
+### [疫苗损害爆发，主流媒体猛然醒悟](/content/gnews/1/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [4月8日乌克兰救援行动（图片1-6）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [斯洛伐克宣布向乌克兰转让S-300防空系统](/content/gnews/2/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [美参议员要求联邦养老金委员会被提名人不向中共国投资](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [上海街道马路上空荡荡](/content/gnews/4/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [文贵先生盖特精要 2022/04/08](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/7/README.md)
+### [中共国利用人工智能软件提高其监控能力（一）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [联大投票决定暂停俄罗斯在人权理事会的成员资格](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [有声|新中国联邦前线救援团队传递灭共力量](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [岸田否认日本将很快恢复外国游客入境](/content/gnews/10/README.md)
+### [斯洛伐克宣布向乌克兰转让S-300防空系统](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022年04月08日文贵大直播速记](/content/gnews/11/README.md)
+### [美参议员要求联邦养老金委员会被提名人不向中共国投资](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [上海街道马路上空荡荡](/content/gnews/6/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [文贵先生盖特精要 2022/04/08](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [联大投票决定暂停俄罗斯在人权理事会的成员资格](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [有声|新中国联邦前线救援团队传递灭共力量](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [岸田否认日本将很快恢复外国游客入境](/content/gnews/12/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [2022年04月08日文贵大直播速记](/content/gnews/13/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/12/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [布林肯谈布查(Bucha)屠杀：&#8221;证据就在那里，全世界都能看到&#8221;](/content/gnews/13/README.md)
+### [布林肯谈布查(Bucha)屠杀：&#8221;证据就在那里，全世界都能看到&#8221;](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|新中国联邦乌克兰救援前线报导](/content/gnews/14/README.md)
+### [有声|新中国联邦乌克兰救援前线报导](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [基辅郊区布查大屠杀震惊了世界——但没震惊中共国](/content/gnews/15/README.md)
+### [基辅郊区布查大屠杀震惊了世界——但没震惊中共国](/content/gnews/17/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [日本宣布对俄罗斯实施额外制裁](/content/gnews/16/README.md)
+### [日本宣布对俄罗斯实施额外制裁](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [印度和中共国，这两个唯一忠于克里姆林宫理论的主要盟友](/content/gnews/17/README.md)
+### [印度和中共国，这两个唯一忠于克里姆林宫理论的主要盟友](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国将对俄罗斯执行新一轮金融制裁](/content/gnews/18/README.md)
+### [美国将对俄罗斯执行新一轮金融制裁](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [战友怎么才能避免被喝茶](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [老药新用：探索溴已新（Bromhexine）治疗冠状病毒感染](/content/gnews/20/README.md)
- ` 波士顿五月花农场`
 
 ### [上海的封锁使世界上最繁忙的港口和中国的供应链陷入困境](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
