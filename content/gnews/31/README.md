@@ -2,34 +2,42 @@
 ---
 
 
-## 速报┃日本再次发力 宣布对俄罗斯实施额外制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309632/)
+## 中国现在如何渗透到澳大利亚的政治中？
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2309665/)
 
-撰稿：东京樱花团/闻雨
+#### 【雅典娜观察】和您一起洞察世界
 
-4月8日，岸田首相召开了新闻发布会，宣布对俄罗斯实施额外制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-19.jpg)[图片来源](https://www.google.com/search?q=%E6%97%A5%E6%9C%AC%E9%A2%9D%E5%A4%96%E5%88%B6%E8%A3%81&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBtUGwpP6dS0xWgA5INcPm6NZUtj0Q:1649416000638&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwin7re2qYT3AhUjolwKHfz2A7MQ_AUoAnoECAEQBA#imgrc=z1CWfz_Uuxnc4M&amp;imgdii=hahDwL97qb3RrM)
-岸田首相表示：“加大对俄罗斯的外交和经济压力，我们将与国际社会团结起来，实施强有力的制裁，以阻止局势进一步升级，尽快实现停火，结束侵略。”额外的制裁包括以下5项。
+翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-832.png)图片来源：Twitter & 雅典娜设计组
+2018年澳洲政府已出台禁止外国政治捐款的法律，确保不会有来自中国公民的大笔资金资助选举。当初中国亿万富翁黄向墨在被澳大利亚禁止入境之前，曾向两个政党捐赠了270万澳元，并从一位著名的工党参议员那里获得了亲北京的政策承诺。
 
-(1) 禁止从俄罗斯进口煤炭。
+今年5月澳洲的选举可能没有中国资金资助，但澳大利亚政界却充斥着来自中国的现金。
 
-(2) 对机械、一部分木材和伏特加酒实行进口禁令。
+澳洲矿业巨头们，例如安德鲁·福雷斯特仅在2021年就从铁矿石中获得40亿美元的股息，吉娜·莱因哈特有30亿美元，他们无尽的现金可用作他们的事业，都得益于向中国销售铁矿石。
 
-(3) 禁止在俄罗斯进行新的投资。
+矿业大亨克莱夫·帕尔默从位于西澳的中国国有中信铁矿企业获得了数亿美元的特许权使用费。他也在为澳大利亚联合党候选人支付类似的费用。
 
-(4) 冻结俄罗斯最大银行俄罗斯联邦储蓄银行 （Sberbank）和阿尔法银行（Alfa Bank）的资产。
+随着来自中国的资金合法进入当地企业，通过税收进入国库，我们是否真的获得了两全其美的结果？来自中国的钱是否带着中国的影响力？
 
-(5) 冻结个人和公司的资产，包括近400名俄罗斯军事人员和议员以及约20个与军事有关的团体。
+没有标准答案。无论我们喜不喜欢，来自采矿业的钱只是中国影响澳洲政治生活各个方面的一种形式。
 
-关于煤炭进口，岸田首相表示：“将通过尽快获得替代品和逐步消减进口来减少我们在能源领域对俄罗斯的依赖。”日本政府不再犹豫，采取了坚定的立场，和美国和欧洲等西方国家坚定地站在了一起。只有全球的民主国家联合在一起，才能彻底摧毁邪恶的独裁政权。
+在过去的一年里，关于国家安全和国防的具有深远意义的公告几乎每周都在登陆，令人难以置信的是，大部分都通过了，几乎没有引起争议。
 
-信息来源：
+澳洲这些代价高昂的举措，需要数十年的工作和几届政府的努力，皆因中国的崛起，并且以破坏美国主导的现有秩序争取地区主导地位所推动的。
 
-[【速報】岸田首相　対ロシア追加制裁を発表　石炭・ウォッカなど輸入禁止（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/61d269bc82f2846270e2a771e02d54126584d5b9)
+澳洲将不得不为其不断增长的国家安全承诺提供资金，同时还要在社会支出、医疗方面进行类似的巨额支出。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+现在来自中共国的胁迫和竞争正在驱使澳大利亚政府越来越强大，最终演化成如何支付巨额赤字的两党争论。
+
+新闻链接：[Election 2022 – How China pervades our politics now (afr.com)](https://www.afr.com/policy/foreign-affairs/how-china-pervades-our-politics-now-20220407-p5abt4)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

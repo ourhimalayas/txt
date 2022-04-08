@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|新西兰国家党领袖克里斯托弗•卢克森将普京列为战犯
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310265/)
+## 视频|美国海军司令称密切关注中共与所罗门群岛的秘密安排
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2310643/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-【新西兰RNZ 4月5日报道】 新西兰国家党领导人克里斯托弗·卢克森将俄罗斯总统普京称为战犯。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-3.jpg)Christopher Luxon 照片：RNZ / Angus Dreaver
-昨天，总理杰辛达·阿德恩拒绝使用这些话，她称不会称普京为战犯：“这最终由国际刑事法院做出决定，但证据就在那里，新西兰支持检察官并确保俄罗斯被追究责任”。
+制作：香草山视频部
 
-卢克森今天则表示，他很欣赏在正式起诉普京之前有一个过程，“但我认为我们可以看到那里正在发生的事情，这绝对是战争罪”。”在你正式地被贴上罪犯的标签之前，你必须受到起诉和定罪，但我不得不对你说，证据非常有说服力。证据就在那里，我很乐意称他为战犯。”
+澳洲媒体4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。
 
-ACT党支持总理谨慎使用语言，领导人大卫西摩表示，阿德恩在国际刑事法院的角色上采取了正确的立场。西摩补充说，在他个人看来，普京正在犯下战争罪。
+对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
 
-绿党的联合领导人詹姆斯肖谴责普京是一个可怕的人，但是，表示阿德恩不称他为战犯是正确的。
+帕帕罗指出，“这是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。
 
-阿德恩坚持认为，罢免俄罗斯大使将意味着新西兰驻俄罗斯代表也同样会被罢免，并表示所采取的其他措施：制裁、贸易限制、对乌克兰的援助和部署 “要强大得多”。
+帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
 
-[【援引连结】](https://www.rnz.co.nz/news/political/464672/national-party-leader-christopher-luxon-labels-putin-a-war-criminal-again-urges-ambassador-s-removal)
+此外，帕帕罗认为印度洋—太平洋地区发生武装冲突的可能性越来越大，澳洲人需要对此持“现实主义”态度。他强调，“由于事件的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

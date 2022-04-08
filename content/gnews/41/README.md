@@ -2,41 +2,31 @@
 ---
 
 
-## 新南威尔士州发现首例“德尔塔克戎”病例
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2308068/)
+## 秘翻新闻｜上海进驻大批军队 恐遭军管
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2308169/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-135.jpg)图片来自网络
-《9 News》近日报道，在新南威尔士州发现了第一例新的新冠变体“德尔塔克戎”病例。
+By:**[秘翻新闻](https://gettr.com/post/p14647fe555)**
 
-新州卫生厅每周的新冠报告表示该州录得一例德尔塔克戎和一例奥米克戎和多个次变异组合病例。
+**[2022-04-08](https://gettr.com/post/p14647fe555)**
 
-德尔塔克戎是一种“重组”病毒，这意味着它是两种不同变体的混合体。
+**新闻内容:**
 
-卫生当局表示，没有证据表明这些新毒株会导致更多疾病或抵消当前新冠疫苗的影响。
+**1.**上海发布公开信动员党员全力抗疫 遭回呛
 
-今天，新的每日新冠数字的趋势也发生了变化，一些州记录的新病例有所下降。
+**2.**上海有社区食物中断 居民挨饿 出现黑市
 
-与昨天相比，新南威尔士州和维多利亚州都报告了新冠病毒病例数量的减少。
+**3.**乌境现更多俄军涉嫌杀害平民行为 吁即援重型武器
 
-新南威尔士州报告了 20396 例，而昨天记录为 22255 例。
+**4.**美众议院要求国务院提交中共助俄逃避制裁评估报告
 
-该州与新冠相关的还有八人丧生。
+**5.**北约首次考虑将中共国纳入其防御战略中
 
-有1435人在医院感染病毒，44人在重症监护室。
+🔗Gettr链接:**[https://gettr.com/post/p14647fe555](https://gettr.com/post/p14647fe555)**
 
-维多利亚州记录了 11,192 例新的新冠病例，比昨天的 12314 例减少了 1000 多例。
+发布:星星
 
-该州还有四人死于新冠。
-
-参考链接：
-
-[https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46](https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

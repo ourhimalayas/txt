@@ -2,41 +2,32 @@
 ---
 
 
-## 文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2310129/)
+## 您可以通过检举揭发帮助欧盟制裁中共
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310226/)
 
-整理：BENJ1
-编辑：Kelly
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8_KPIs.png)配图雅典娜设计组～614
-郭文贵先生2021年2月5日盖特
+编译：波士顿五月花—-思澈
 
-现在这个“疫苗经济”已经变成“疫苗灾难”了，所有人现在都知道你要想让对方去死，就让他打疫苗，是吧？所有人都知道跟着共产党走进火葬场！就连我们这么牛的摩根先生这个月底本来要去巴哈马参加婚礼，他的医生，私人医生团队也建议他打疫苗。他不打，他把我们爆料革命的视频给对方看，人家医生说：“你说的对，不要打了。”不但如此，战友们，很多国家会因为共产党提供的假疫苗而导致的死亡向共产党追责。下一步的疫苗经济将变成疫苗灾难。
+中共媒体和公司支持支援俄罗斯的行为属于违反制裁涉及到的个人，公司和第三国
 
-郭文贵先生2021年4月13日盖特
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1752A305-D46D-4F57-8B7C-438D2FC68C54.jpeg)
 
-爆料革命、新中国联邦告诉过你们：真正的灾难是疫苗经济、疫苗政治最后一定变成疫苗灾难、疫苗战争。
+分享有关违反欧盟制裁的信息，有助于欧盟成员国正在进行的调查取得成功，并提高欧盟制裁的有效性。
 
-郭文贵先生2021年8月24日直播
+如果你知道可能违反了任何欧盟制裁，你可以通过自愿提供信息来提请委员会注意。这些信息可以涉及，例如，**有关违反制裁的事实，其情况和涉及的个人、公司和第三国。这些可以是不为公众所知但为你所知的事实，可以涵盖过去、正在进行或计划进行的违反制裁行为，以及试图规避欧盟制裁的行为。**
 
-经济领域也出现了这种脑梗、舌梗还有眼梗的现象，因为整个世界经济它是一个网，当其中部分被摘掉、断掉的时候，它已经形不成网了，世界经济变成区域经济，区域经济变成区块经济，区块经济变成疫苗经济，这就是七哥在2019年说的疫苗灾难、疫苗经济，随着这个物价上涨，世界经济网的破裂，世界将完全不可预测地掉进了经济深渊。
+你可以通过两种方式报告违反制裁行为。
 
-全地球命运共同体来自于共产党的疫苗灾难、冠状病毒生化超限战。在这个问题上没有距离、没有高低、没有资本主义、社会主义之差。现在只是你有没有钱、你有没有某个平台给你支持？ 党派不会支持你，美国政府也让你打疫苗，现在还真的只有新中国联邦，所以我们G系列没有任何选择。
+💥直接联系我们：如果你站出来，提供你的姓名和联系方式，就能给我们带来最大的帮助，因为这将使你的陈述更加可信，使我们更有可能采取行动。
+要通过这种方式报告违反制裁的行为，你可以简单地发送一封电子邮件到 **[\[email protected\]](/cdn-cgi/l/email-protection#cfbdaaa3aab7e2bcaea1acbba6a0a1bc8faaace1aababda0bfaee1aaba)**
+💥保持匿名：如果你不想透露你的身份，你可以通过欧盟制裁举报工具向我们发送匿名信息，这是一个高度安全的在线平台。管理该工具的欧盟委员会完全致力于保护你的匿名性。
 
-郭文贵先生2021年8月26日直播
+要访问该工具，了解你的匿名性如何得到保护，并报告违反制裁的情况，出于安全考虑，请在浏览器中复制粘贴或手动重新输入以下网址：**[https://EUsanctions.integrityline.com](https://eusanctions.integrityline.com/)**
 
-兄弟姐妹们，我再说一遍，我们每个人的家人都有可能像杨改兰的命运，如果共产党不灭，我们每个人比杨改兰的命运更惨，你连杀孩子的机会都没有。在冠状病毒和疫苗灾难面前，真的是比杨改兰惨多了。五年前说杨改兰，你们觉得很惨，三年前说杨改兰你们觉得很惨，现在大家觉得你们还很幸福吗？
+素材来源：[https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions\_en#whistleblower](https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions_en#whistleblower)
 
-郭文贵先生2021年8月28日直播
+*发布：思澈*
 
-通过这过去几周的直播，我们做到了以下几个最重要的效果：让大家高度关注冠状病毒的真相和咱们爆料革命最早说出来的疫苗灾难、疫苗政治、疫苗经济和疫苗灾难后的整个社会（的状况）。它的严重后果是无法想象、无法言语描述的。现在疫苗带来的灾难，远远超过了冠状病毒。我们现在经过努力看到了很多好消息，最起码今天我们可以再次的说，伊维菌素绝对是救人的。
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

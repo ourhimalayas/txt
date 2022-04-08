@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 2:51 PM (UTC)`
+
+【Ukraine Rescue】 2022/3/31 Ukraine lady Olga: It is a mixed feeling that she is able to bring her two kids to the USA with the fight paid by the ROLF and the help from the NFSC, while her husband and all her friends still stay in Ukraine. The NFSC rescue team deserves five stars out of five for all the support provided.  Russian troops killed the Ukrainian and destroyed her homeland. <br/><br/>【乌克兰救援】 2022/3/31 乌克兰女士奥尔加：在法治基金支付机票和新中国联邦的帮助下，她能够将两个孩子带到美国，而她的丈夫和她所有的朋友还都留在乌克兰，这种感觉是复杂的。 新中国联邦救援队提供的帮助应获五星佳评。 俄罗斯军队屠杀乌克兰人民并摧毁了她的家园。<br/>
+![img](https://media.gettr.com/group44/getter/2022/04/08/14/243211a3-318d-0ddd-a5ea-86ac335c2842/out.jpg)
+
+---
+
 `@miles 4/8/2022 1:57 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月7日第34天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9831人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 34 - Date: April 7, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9831 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@ The Indian volunteer is very interested in the "extermination of the Communist P
 
 2022-4-7《避风港》(33) VAERS证实：疫苗是元凶
 ![img](https://media.gettr.com/group37/origin/2022/04/07/18/ff95aca7-e651-98cb-ff9a-183b310012c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 5:48 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group32/origin/2022/04/07/17/e292f91e-c2ae-76cc-2b6b-05841bcd3640/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
