@@ -2,45 +2,55 @@
 ---
 
 
-## Cosmos不能代表韩国农场,朴昌海做农场主,财务委托日本
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2308099/)
+## 中共指责美英澳三国试图建立亚太版“北约”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2308129/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%886%EF%BC%9A9%EF%BC%89Cosmos%E4%B8%8D%E8%83%BD%E4%BB%A3%E8%A1%A8%E9%9F%A9%E5%9B%BD%E5%86%9C%E5%9C%BA%2C%E6%9C%B4%E6%98%8C%E6%B5%B7%E5%81%9A%E5%86%9C%E5%9C%BA%E4%B8%BB%2C%E8%B4%A2%E5%8A%A1%E5%A7%94%E6%89%98%E6%97%A5%E6%9C%AC%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-137.jpg)图片来自网络
+《MSN News》近日报道，中共指责美国、英国和澳大利亚试图建立一个 “亚太版的北约”，因为这三个国家宣布他们将通过最近创建的AUKUS安全联盟发展高超音速武器。
 
-**郭文贵先生：**所以说兄弟姐妹们，真的是七哥的每一天我都觉得特别、特别的幸福，超级的幸福。幸福的原因就是有这一个个这样的战友，不要看着那些一个个小问题，像什么Cosmos是吧？Cosmos她不能代表整个韩国农场。韩国农场现在有朴司令朴昌海，朴昌海。
+澳大利亚总理斯科特-莫里森、美国总统乔-拜登和英国首相鲍里斯-约翰逊在就AUKUS（三国于9月发起的印度-太平洋联盟）的进展举行签到后宣布了这一计划。
 
-哈恩是不可能再让她当农场任何的（领导），这脑子实在是糊涂。好人办坏事可能比坏人办坏事还可怕，哈恩是最明显的一个好人办坏事，没办法！没办法！没办法！
+在北京，中共国外交部发言人赵立坚在每日简报会上说，这种合作将 “破坏亚太地区的和平与稳定”。
 
-所以说朴司令现在还是我们的整个韩国“大瓢把子”，但是韩司令农场由于财务专业能力不行，所有的财务项目安排不允许他碰，都可能要由日本的农场，还不知道是定的谁，其他农场代理，代理，他不能碰。什么借款、转款项目他可以联系，他不能碰，绝对不能碰。他没这个能力，但朴司令绝对是好兄弟。
+“美国、英国和澳大利亚将合作开发高超音速武器和其他先进军事技术，”赵立坚说。
 
-字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
+“他们的最终目标是建立亚太版的北约组织，并直接为美国的霸权服务。亚太国家当然是坚决反对的。”
 
-编辑整理：Jacques；
+该联盟是在美国和盟国对中国在太平洋地区日益增长的军事强硬态度日益担忧的情况下成立的。
 
-字幕档制作：知津；
+澳大利亚、英国和美国已经开始致力于深化一系列先进军事技术的合作，包括网络、人工智能、量子技术和海底机器人技术。
 
-视频制作及上传：Cindy；
+他们现在还将开发高超音速导弹和反超音速导弹，以及电子战能力和信息共享。
 
-G-News发布：海贼王M.D.LUFFY；
+中国和俄罗斯都在测试先进的高超音速导弹方面取得了长足的进步，这些导弹能够以极高的速度击中远方的目标，从而无法轻易被防御系统拦截。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+这些武器可以携带核有效载荷。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+大多数分析家说，美国目前在这项技术上落后于北京和莫斯科，尽管据报道五角大楼上个月进行了自己的成功测试。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+澳大利亚也在努力开发自己的先进导弹，其中包括高超音速导弹，这是根据联邦政府宣布的几项国防倡议之一。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+赵立坚批评AUKUS伙伴关系是 “一个盎格鲁-撒克逊集团”，遵循 “冷战和集团政治的思维方式”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+“我们敦促美国、英国和澳大利亚正视亚太国家寻求和平与发展、促进合作和实现双赢的愿望，”他说。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“我们敦促他们放弃冷战思维和零和游戏，忠实地履行其国际义务，多做有利于地区和平与稳定的事情。”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+另外，赵立坚谴责美国拟向台湾出售与爱国者防空系统有关的设备，称中国将 “采取强有力的措施，坚决捍卫其主权和安全利益”。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+根据五角大楼给国会的通知，这笔价值9500万美元的交易包括支持爱国者系统的运作，如系统的培训、实战和维护，以及相关设备。
 
-G-TV：日本银河系农场。
+借用赵立坚的语气对他说句话：“我们奉劝中国不要干涉他国内政”。 现在中共手都伸到所罗门群岛了，战舰都开到澳洲经济区乱扫激光了，还让澳洲“ 求和平、谋发展，摒弃冷战思维，多做有利于地区和平稳定的事。”是你自己先展示出军事野心的，还有啥好说的呢？
 
+参考链接：
+
+[https://www.msn.com/en-au/news/australia/china-accuses-us-uk-and-australia-of-trying-to-build-asia-pacific-nato/ar-AAVVKGN?li=AAgfLCP](https://www.msn.com/en-au/news/australia/china-accuses-us-uk-and-australia-of-trying-to-build-asia-pacific-nato/ar-AAVVKGN?li=AAgfLCP)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

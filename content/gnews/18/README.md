@@ -2,46 +2,32 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.8）&#8211;注射新冠疫苗焦虑症
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307940/)
+## 中日财经爆┃ING预估若上海封城到4月底 GDP将损失6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307989/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+路透社4月8日报导，ING银行预估，假如上海的封城措施持续到4月底，上海的GDP将损失6%，全国GDP将损失2%。
 
-整理/编辑：gardeniahu
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-10.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ING预估若上海封城到4月底-GDP将损失6.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnltimes.nl%2Fsites%2Fnltimes.nl%2Ffiles%2Fstyles%2Fnews_article_full%2Fpublic%2F2019%2F08%2Fdepositphotos_227856296_l-2015.jpg%3Fh%3D56d0ca2e%26itok%3DGt9MvEaN&amp;imgrefurl=https%3A%2F%2Fnltimes.nl%2F2020%2F05%2F08%2Fing-profits-drop-40-percent-due-cornavirus-crisis&amp;tbnid=MSBaWSCm4M-qEM&amp;vet=12ahUKEwjVlvv66oP3AhVPwoUKHb8JCygQMygWegUIARDYAQ..i&amp;docid=2zs9-mjXcv396M&amp;w=837&amp;h=462&amp;itg=1&amp;q=ING&amp;ved=2ahUKEwjVlvv66oP3AhVPwoUKHb8JCygQMygWegUIARDYAQ)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+ING银行并将中共国今年第二季的GDP按年增长预测，由原来的5%降至4%，2022年全年预测则由4.8%调低至4.6%。
 
-帖子原文：
+ING银行评论指出，假设上海市封城措施在本月大部分时间持续，月内大部分的经济活动将会消失，工厂无法正常运作。此外，因当局的防病毒扩散措施非常严格，一人感染可能会影响整家工厂的人员。码头方面，如发现一人感染，港口亦会暂停运作进行消毒。
 
-**疫情|新冠疫苗副作用    接种新冠疫苗后焦虑症**
+不过，ING银行料地方政府及中央应会出台一些纾缓及刺激措施，应可为GDP带来约1—1.5%的提振。但该行补充，措施出台的时机至关重要，因现时当局会出台什么措施尚不清楚，需要先看到实施情况，然后才能充分评估影响。
 
-焦虑？疫苗？
+消息来源:
+[倘上海封城措施只在4月持续估计GDP损失6% 全国损失则为2%–ING银行](https://cn.reuters.com/article/ing-shanghai-lockdown-impact-0408-fri-idCNKCS2M00CJ?il=0)
 
-怎么就焦虑了，很多人问我。其实我也不知道怎么回事。第一次惊恐发作是在打完第一针新冠疫苗后，亳不夸张打完针没有2分钟的时间，我开始感觉头晕，心跳过速，一针恐惧感就来了。但是卫生院的医生让我休息会几，感觉一点点就消失了。坐地铁回家（心真大），在地铁上第二次惊恐发作，当时真的感觉自己可能要完蛋了。踉跄着下了地铁打车回家，一头倒在床上· · ·
-
-毫不夸张的说随后的半个月，我几乎每天都有一次到两次惊恐发作。当时不知道什么情况，以为自己的心脏出了问题，急诊室就去了两回，跟大夫说自己要死了，会不会是心梗，结果当然不是。此后，我去了心内科，消化科（因为总是想吐）做了胃镜，神经内科…最后无奈看了心里科…成了一名焦虑症患者。后来在度洛西汀和劳拉西畔的作用下，我的症状确实缓解了，但是身体大不如前。我想说也许自己以前就有焦虑，但不知道，但是躯体化症状确实从打疫苗开始，也许是吓的。就这样在调理了半年时间后，我勇敢的打了第二针，（其实是没有金盾好难）。这次症状就只是感冒咳嗽了。现在公司在要求打第三针，我不想打了。当然疫苗对大多数人是友好的，我身边的人没有像我反应这么厉害的，我可能就是那个个例，而且我觉得这种体质遗传，我几子打完后好像也比他们班同学反映大一点，但是没有我严重。
-
-发布于2021.12.15
-
-精选评论
-
-话太少     回复：我现在吃药半年多了，但躯体症状还时不时会来，阴魂不散，身体大不如前了…
-
-院长夫人  回复：我和你一样打完疫苗一分钟就心慌胸闷、后面频繁发作，再然后就是恶心呕吐，没食欲、诊断为抑郁症焦虑症！这个疫苗打不得！平时好好的一个人，经常健身房锻炼的一个人给废掉了！
-
-沫沫    回复：我也不想打第三针了，这第二针打完一个月后心悸，左胸疼，到现在还疼，这死疫苗再也不打了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-811.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-813.png)图片来源：小红书
-参考链接：[接种新冠疫苗后焦虑症](https://www.xiaohongshu.com/discovery/item/61b9df0c0000000021036435?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649287540)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

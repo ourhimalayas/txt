@@ -2,31 +2,28 @@
 ---
 
 
-## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
+## 联合国大会紧急特别会议通过了决议暂停俄罗斯联邦在人权理事会的成员权利
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2307814/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
-盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/联合国大会紧急特别会议通过了决议暂停俄罗斯联邦在人权理事会的成员权利.png)联合国大会投票决定暂停俄罗斯在人权理事会的职务 联合国图片/曼努埃尔·埃利亚斯（Manuel Elías）
 
-**大纪元时报自述：**
+据《联合国事务》2022年4月7 新闻报道：
 
-基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
-**大纪元时报简介：**
+联合国大会周四通过了一项决议，要求暂停俄罗斯在人权理事会的成员资格。
 
-大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
+该决议在193个成员出席的大会上获得了三分之二的多数票。93个国家投赞成票，24个国家投反对票。58个国家投了弃权票。
 
-大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
+这次会议标志着关于乌克兰战争的特别紧急会议的恢复，此前有报道称俄罗斯军队犯下的违法行为。
 
-台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
+上周末，首都基辅郊区的布查市出现了令人不安的照片。在俄罗斯军队撤出该地区后，在街头和乱坟坑中发现了数百具平民尸体。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+在投票前，乌克兰大使谢尔盖·基斯利齐亚（Sergiy Kyslytsya）敦促各国支持该决议。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+布查和其他几十个乌克兰城市和村庄，成千上万的和平居民被俄罗斯军队杀害、折磨、强奸、绑架和抢劫。作为一个例子，说明俄罗斯在人权领域与它最初的声明有多大的差距。他说：“这就是为什么这个案件是独特的，今天的回应是显而易见和不言而喻的。”
+
+文章链接：[https://news.un.org/en/story/2022/04/1115782](https://news.un.org/en/story/2022/04/1115782)
+
+翻译：烟波浩淼| 校对：雨山西桥客 | 编辑&发布：文鸣
 
  
 

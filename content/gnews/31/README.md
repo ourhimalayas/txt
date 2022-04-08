@@ -2,30 +2,31 @@
 ---
 
 
-## 日本考虑限制从俄罗斯进口煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307704/)
+## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151751.jpeg)图片来源：BLOOMBERG
-根据CNA4月8日引述日本媒体报道，日本政府正在考虑限制俄罗斯煤炭的进口，作为对该国能源领域制裁的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
+盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
 
-报道援引消息人士的话说，在七国集团（G7）盟友发表声明，承诺对俄罗斯实施额外制裁，以回应其在乌克兰大规模屠杀平民的指控之后，日本将与美国和欧洲国家协调行动。
+**大纪元时报自述：**
 
-日本首相岸田文雄周四表示，在与七国集团盟友就进一步的惩罚措施进行协调后，日本最早将于周五公布对俄罗斯入侵乌克兰的进一步制裁。
+基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
+**大纪元时报简介：**
 
-在俄罗斯2月24日入侵乌克兰之后，日本加大了制裁力度–将莫斯科从国际支付网络SWIFT除名和冻结其中央银行资产。
+大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
 
-日本与G7经济体保持一致，冻结了俄罗斯官员、寡头、银行和其他机构的资产，并禁止向俄罗斯出口高科技产品。
+大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
 
-资料来源：[Japan considers restrictions on coal imports from Russia](https://www.channelnewsasia.com/asia/japan-considers-restrictions-coal-imports-russia-2615361)
+台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
 
-发布：tianzhihuan
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

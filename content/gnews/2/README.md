@@ -2,64 +2,54 @@
 ---
 
 
-## 美国给共产党准备一堆毒药,共产党毫不犹豫吃最毒的药
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2308142/)
+## 巴最高院判决本周六对伊姆兰总理不信任动议投票
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2308178/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%889%EF%BC%9A9%EF%BC%89%E7%BE%8E%E5%9B%BD%E7%BB%99%E5%85%B1%E4%BA%A7%E5%85%9A%E5%87%86%E5%A4%87%E4%B8%80%E5%A0%86%E6%AF%92%E8%8D%AF%2C%E5%85%B1%E4%BA%A7%E5%85%9A%E6%AF%AB%E4%B8%8D%E7%8A%B9%E8%B1%AB%E5%90%83%E6%9C%80%E6%AF%92%E7%9A%84%E8%8D%AF%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午3.25.09.png)图片来源：互联网
+巴基斯坦最高法院判决 4 月 3 日发生的事件，包括国会副议长的裁决和随后的议会解散没有法律效力，国民议会将于本周六（9日）就伊姆兰·罕（Imran Khan）总理不信任动议进行投票，伊姆兰可能会被免职。
 
-**郭文贵先生：**另外一个我看到这共产党是真是完蛋了，这好消息太多。据我所知，为啥我今天兴奋？从早到晚就知道，美国给共产党那块准备了一堆毒药，而且共产党都毫不犹豫地……
+据TRIBUNE报道巴基斯坦最高法院周四（4月7日）裁定搁置了国民议会副议长卡西姆苏里的裁决，即驳回对伊姆兰·罕（Imran Khan）总理的不信任决议以及随后由阿里夫阿尔维总统根据总理的建议解散议会下院。【1】
 
-(美国)在桌子上摆了一百零八种药，其中可能三分之一是毒药。共产党都是选择最毒的药去吃，你挡都挡不住，所以七哥特别高兴。
+最高法院裁定命令指出：“国民议会副议长关于根据宪法第95条对总理进行不信任投票的决议被宣布违反宪法和法律，没有法律效力，特此将其搁置。”
 
-乌克兰这边，最后大家一定记住，乌克兰可能是中国人最需要珍惜的朋友了，乌克兰和台湾。因为乌克兰，共产党真的会决绝地完蛋，会完得非常得狠！！！非常的干净！！！我们会很快地在盘古龙头相聚！
+法院还裁定阿尔维总统解散国民议会的决定也“违反宪法和法律，没有法律效力”。它指出，总理不能建议总统解散议会，因为他继续受到宪法第 58 条第 (1) 款规定的限制。
 
-——我本花一朵，被拐骗山中，从此亲人永相隔。
+法院裁决国民议会（NA）议长于周六 4 月 9 日召集议会下院会议，就不信任动议进行投票。这可能导致伊姆兰·罕总理被免职，在这种情况下，最高法院表示议会将需要任命一位新总理。
 
-我这一唱这歌，哎呀！受不了！
+法院表示，目前的命令不会影响根据《宪法》第 63 条进行的诉讼。
 
-——囚禁二十年，我受尽了折磨，这个世界不要我。
+早前4月3日，国民议会副议长卡西姆·苏瑞（Qasim Khan Suri）驳回一项针对总理伊姆兰·罕的不信任动议，称其违反了巴基斯坦宪法第5条。他是现执政党巴基斯坦正义运动（PTI）成员，经PTI提名后于2018年8月15日，他当选国民议会副议长。
 
-哇！这歌真的是一唱……
+根据第 5 条：【2】
 
-——醒来吧，别再如此冷漠。醒来吧，别再如此懦弱，只为能紧握住亲人手，要埋葬那邪恶的中共；牙齿全拔落，铁锁已斑驳，这就是我的一生。同胞快醒来，从此要站着活，我们砸碎这铁锁！！！
+- 忠于国家是每个公民的基本义务
+- 遵守宪法和法律是每个公民的*[*不可侵犯的*]*义务，无论他身在何处，以及暂时在巴基斯坦境内的每个其他人的义务
 
-哇！一唱这心里边……唉！献给前线的战友们，七哥为你们唱的。真是啊，一唱这歌劲儿全来了。懦弱的人听了这个歌会痛哭，然后会忘掉；强大的人会唤醒你的力量、良知，会让你觉醒。
 
-耶！！！工作去！灭共去！啥不说了兄弟姐妹们。
+在最高法院对国民议会副议长对不信任动议的裁决作出判决后，新闻部长法瓦德乔杜里在推特上表示，总理明天将主持其内阁和执政的 PTI 议会委员会的会议。
 
-前线的战友们防毒、照顾好身体，谢谢所有法治基金的捐款者，兄弟姐妹们，感谢你们。好吧？！共产党你完了！！！
+总理伊姆兰·汗今日（4月8日）在推特上写道：”我明天已经召集了一个内阁会议以及我们的parl party mtg；&明天晚上我将向全国发表讲话。“
 
-——只为能紧握住亲人手，要埋葬那邪恶的中共。牙齿全拔落，铁锁已斑驳，这就是我的一生。同胞快醒来，从此要站着活，我们砸碎这铁锁！！！
 
-“嘣…..”走了,工作去, 给你们挣钱去!灭共去!!!
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午3.28.24.png)图片来自伊姆兰*·*汗推特截图
+据ARY News周五援引消息人士透露，纳瓦兹·谢利夫（Nawaz Sharif）祝贺西迪基最高法院的判决，并表示最高法院的裁决是宪法的胜利，巴基斯坦穆塔希达 Qaumi 运动（MQM）在其中发挥了重要作用。他表示，未来旨在进一步加强与 MQM-P 领导层的工作关系。【3】
 
-字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
+中共外交部发言人赵立坚对伊姆兰总理的不信任行动被阻止后，在回答有关巴基斯坦当前政治局势的问题时说：”作为铁杆朋友，中方真诚希望巴基斯坦各政党团结一致，共同维护国家发展稳定。”
 
-编辑整理：Jacques；
+郭文贵先生3月30日在大直播中透露：“巴基斯坦已经晚了，马上要内乱，因为中共要推翻他们，因为不太听话。”
 
-字幕档制作：知津；
+参考链接：
 
-视频制作及上传：Cindy；
+【1】 [Constitution reigns supreme](https://tribune.com.pk/story/2351375/sc-reinstates-national-assembly-orders-voting-on-no-confidence-motion-against-pm-imran)
 
-G-News发布：海贼王M.D.LUFFY；
+【2】[NA speaker dismisses no-trust move against PM Imran, terms it contradictory to Article 5](https://www.dawn.com/news/1683067/na-speaker-dismisses-no-trust-move-against-pm-imran-terms-it-contradictory-to-article-5)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+【3】[NAWAZ SHARIF TELEPHONES KHALID MAQBOOL SIDDIQUI AFTER SC VERDICT](https://arynews.tv/nawaz-sharif-telephones-khalid-maqbool-siddiqui-after-sc-verdict/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+* * *
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+*编辑&发布：长岛开心*
 
  
 
