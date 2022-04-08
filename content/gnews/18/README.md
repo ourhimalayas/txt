@@ -2,74 +2,124 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在44.170 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2306221/)
+## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+这才是真正的中国人的悲哀
+Esto es realmente la tristeza de los verdaderos chinos
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+就是你根本不知道真假善恶之分
+Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
 
+那么海外欺民贼能到今天
+Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
 
+就是(因为)没有真假善恶之分
+Es (porque) no hay distinción entre el bien y el mal
 
-## 每日一问
+有这么多无知的中国海外同胞
+Existen tantos compatriotas chinos ignorantes en el extranjero
 
+和中国同胞真有良知的人
+Y compatriotas chinos con conciencia
 
+但是他却没有信仰
+Pero no tiene creencia
 
+真的想灭共的人
+Gente que realmente quieren destruir al PCCh
 
+他却没有任何辨别真假的能力
+Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
 
-数字货币会如何取代现有金融体系？
+被他们利用几十年
+Fueron utilizados por ellos durante décadas
 
+我再告诉大家
+Les diré de nuevo
 
+你们从来没有想过亨利小哥
+Ustedes nunca pensaron, Hengli Xiaoge
 
+在过去几十年被这些人害的人
+Personas que fueron asesinadas por estas personas en las últimas décadas
 
+你们知道有多少人吗
+Ustedes saben ¿cuántas personas hay?
 
-## 喜马拉雅交易所要闻
+谁能告诉我一个数字
+Alguien me puede decir una cifra
 
+被他们给骗回去的
+Los que fueron engañados por ellos
 
+被他们给抓起来, 被他们给伤害的
+Arrestados, heridos por ellos
 
+被他们给骗了上床的
+Engañados a la cama por ellos
 
+骗走钱的有多少个
+Y cuántos fueron estafados
 
-- 喜交所网站行情显示，喜币（HCN）价格目前在44.170 HDO，24H最高价格为44.650 HDO，24H最低价格为42.508 HDO，24H成交量约为85659.042 HCN。
+就像草根小哥
+Así como Caogen Xiaoge
 
+给路大脑袋傻捐, 捐了几百次
+Donó estúpidamente a Lude cientos de veces
 
+最后是路大脑袋说你活该
+Finalmente, Lude dijo que te lo mereces
 
+我让你捐了吗
+¿Acaso te dije que donaras?
 
+然后你再看这个王书君
+Luego ves a este Wang Shujun
 
+你们知道这个王书君这个人
+Ustedes saben que este hombre Wang Shujun
 
-## 新闻动态
+害了多少人吗?
+¿Le hizo daño a cuántas personas?
 
+他最起码接触华人几百个人的信息
+Al menos tiene acceso de información de cientos de chinos
 
+让他给传输给共产党了
+Que lo transmitía al PCCh
 
+很多华人找他所谓作政庇
+Muchos chinos lo buscaron por un supuesto asilo político
 
+多少人已经被弄回去了
+Cuantas personas han sido llevadas de regreso
 
-1. Decrypt报道，据澳大利亚竞争与消费者委员会(ACCC)报告称，加密支付现在在频率上超过了传统的银行支付。ACCC主席GinaCass-Gottlieb表示，我们看到一些与投资计划有关的骗局，现在与这些骗局相关的付款更多的是通过加密货币而不是通过银行转账。投资诈骗不仅仅是那些涉及加密货币的诈骗，在这个国家也出现了显著上升。据报道，从年初到3月20日，澳大利亚人因投资诈骗而遭受的损失增加了90%。与英国等其他司法管辖区相比，澳大利亚与加密货币的关系的惩罚性明显较低。
-2. 官方消息，4月7日，MiloInu宣布获得来自K24 Ventures、Tritium Ventures、7o Clock Capital、Catcher VC等机构的战略投资。MiloInu旨在打造基于加密市场而生的虚拟偶像IP，通过动画剧集丰富IP形象，分别延伸出NFT、实体公仔、周边产品、GameFi及电子竞技线下比赛等产业链。
-3. CoinDesk报道，Blockstream前首席战略官Samson Mow创立的JAN3以1亿美元的估值完成2100万美元融资，Alistair Milne、F2Pool联合创始人王纯以及ElZonte Capital参投。Samson Mow表示，JAN3将专注于推进比特币、Liquid和闪电网络等第二层技术，这是大规模采用和比特币循环经济的关键。该公司还将支持民族国家的比特币采用计划，并为基础设施开发项目贡献专业知识。
-4. WatcherNews报道，迪拜咖啡馆BakeNMore现在接受SHIB和其他加密货币付款。BakeNMore的支付网络将由Mixin Network提供支持，后者是一个用于数字资产转移的去中心化网络。该平台还将允许客户用比特币、以太坊、狗狗币和USDT支付。
-5. Cointelegraph报道，总部位于旧金山的电子商务初创公司Bolt正在通过收购法定加密货币和支付基础设施公司Wyre进军加密货币和NFT领域。根据周四的联合公告，Bolt已就收购Wyre达成最终协议，旨在于2022年晚些时候完成交易。据《华尔街日报》报道，此次收购花费了博尔特15亿美元。Bolt和Wyre现在正计划合作为主流创建新的商业解决方案，包括Bolt的全球商家、零售商、购物者和开发商使用加密货币。Bolt和Wyre预计在今年年底之前完全整合他们的服务，将Bolt的结账系统Checkout OS添加到加密货币生态系统中。以实现去中心化商业为最终目标，此次合作旨在让Bolt的消费者能够使用比特币(BTC)等加密货币购买商品，同时为商家提供接受加密货币的工具。此次收购还旨在允许用户通过Wyre的API通过Bolt的平台购买NFT。
-6. Cryptonews报道，单板滑雪品牌Kemper Snowboards已准备好在极限运动类别中推出NFT产品。NFT的发布将以其复古单板向80和90年代致敬。NFT系列的推出得到了SIMBA市场的支持-由SIMBA Chain构建。区块链技术平台将为客户托管Kemper的数字房间，并提供支持、销售建议、托管等。Riders Collectiv是一个独一无二的首创空间，将为粉丝和追随者提供所有类型的极限运动NFT。The Collectiv正在与该领域更多相关的合作伙伴和专业人士合作，为公司的品牌提供举办其独家NFT的机会，作为单一的快节奏、以行动为中心的数字体验。添加到Collectiv的项目将在SIMBA Market的极限运动类别中提供。
-7. Decrypt报道，股票和加密货币交易应用程序Robinhood今天在比特币2022会议上宣布，它正计划将比特币闪电网络添加到其平台中，以加快BTC交易。它还分享说，其beta加密等待名单中的合格用户现在可以通过其加密钱包功能发送和接收加密。闪电网络是建立在比特币之上的第2层网络，可实现更快、低费用的交易。通过其应用程序上的钱包功能，Robinhood加入了越来越多使用闪电网络进行比特币交易的科技和金融公司的行列。Robinhood的公告是在它分享了全面开发钱包功能的计划后六个月发布的，该功能将允许其用户存入和提取加密资产。该功能很快获得了一个很长的候补名单，超过200万人请求访问。Robinhood在1月份发布了其加密钱包测试版，允许特定用户转移比特币、以太坊和狗狗币。
-8. TheBlock报道，Luna Foundation Guard(LFG)周四宣布，它将从Avalanche基金会购买价值1亿美元的AVAX代币以增加其储备金。LFG前一天购买了2.31亿美元的比特币，还增加了其UST储备。由于AVAX的市场份额明显小于比特币，LFG现在是AVAX的重要市场买家。LFG在Twitter上写道：“欢迎$AVAX作为$UST储备金的一部分，成为仅次于$BTC的第二个主要第一层加密资产，这些资产有助于支持美元挂钩。此前报道，LFG计划购买价值30亿美元的比特币以保留其储备以支持UST，其市值约为167亿美元，是第四大稳定币。
-9. TheBlock报道，算法稳定币协议Frax Finance正在考虑购买价值数十亿美元的主要区块链原生代币（例如ETH、BTC）作为其稳定币的储备抵押品。这一想法与以Terra区块链有相似之处，Terra最近大量买入比特币作为UST的储备资产。但Frax并不像Terra那样只购买比特币，而是打算购买已发行其稳定币的所有区块链的原生资产。虽然FRAX最大的业务是以太坊链上，但它也支持其他12个区块链上的交易，包括Avalanche、BNBChain、Fantom、Harmony、Polygon、Solana、Arbitrum。此外，不同于Terra的处理方式，Frax将利用其Flaxswap平台来执行这些大额代币购买订单。
-10. Trustnodes报道，墨西哥第三大富豪Ricardo Salinas Pliego净资产为136亿美元，他在比特币2022年大会期间表示，他的流动性投资组合的60%是比特币。Salinas表示，在流动性投资组合中，我有60%的比特币和比特币股票。40%投资于硬资产类股，如石油、天然气和金矿开采。他认为债券是最糟糕的资产投资如果你投入100美元，你能拿回100美元就很幸运了。在一场关于60/40的传统投资组合配置的讨论中，有观点认为，在这200万亿美元中，有10%可能会流向比特币。这将是20万亿美元，使比特币每枚变成100万美元。在这种背景下，Salinas表示，他的投资对象是比特币和硬资产。他没有具体说明他的流动性投资组合的金额，但这一披露使他成为第一个宣布他几乎全部投资于比特币的亿万富翁。
-11. CoinDesk报道，美国财政部长珍妮特•耶伦（Janet Yellen）在美利坚大学（American University）发表演讲称，央行数字货币（CBDC）是一个“重大设计和工程挑战”。耶伦还指出，数字资产可能是个新事物，但由数字资产引发的许多问题并不新鲜。
-12. Decrypt报道，美国财政部长珍妮特耶伦对加密货币的立场有所软化，但今天上午在美国大学就数字资产发表演讲时仍有很多怀疑。耶伦制定了联邦监管机构的计划，以考虑减少对银行和信用卡公司等中央中介机构的依赖的可能性。她还重申了她对稳定币的担忧：大多数发行人说他们用安全和流动的传统资产支持他们的代币。通过这种方式，每当你想将稳定币换回美元时，公司就有钱进行兑换，然而现在，没有人能向你保证这会发生。
-13. Decrypt报道，德克萨斯州男子Deependra Bhusal因参与德克萨斯州东区的加密货币洗钱阴谋而被判处46个月的联邦监狱监禁。根据司法部(DoJ)发布的新闻稿，Bhusal参与了一项多年的洗钱阴谋，其中涉及从众多骗局中洗钱。Bhusal的具体职责是开设银行账户和邮箱，然后用于交易从诈骗受害者那里窃取的资金。Bhusal还负责进行后续交易以隐瞒非法资金的性质和来源。Bhusal通常以低于10,000美元的金额构建这些交易，以避免标记报告要求并引起执法机构和监管机构的关注。美国司法部表示，Bhusal对洗钱超过140万美元的犯罪收益负有个人责任。
-14. RT报道，俄罗斯总理米哈伊尔•米舒斯京（Mikhail Mishustin）周四表示，俄罗斯政府完全支持央行的立场，即加密货币不能被视为该国的法定货币，但可以讨论加密货币挖矿相关问题。Mikhail Mishustin表示将继续禁止使用数字货币作为结算手段。“我们反对承认加密货币是一种支付手段或货币。我们还认为，为了刺激投资，主要是固定资本投资，我们可以讨论挖矿问题，包括建立数据中心和相关基础设施。”
-15. BitcoinMagazine报道，墨西哥参议员Indira Kempis提议立法使比特币在墨西哥成为法定货币。
-16. CoinDesk报道，作为减少消费者伤害、提高标准和增加竞争的三年战略的一部分，英国金融行为监管局（FCA）表示将增加80名员工，以加强打击不符合监管标准的公司的工作。FCA表示，关闭不符合基本监管标准的公司将保护消费者免受潜在欺诈、不良待遇并创造更好的市场。英国周一宣布计划创建一个加密监管包，并将稳定币引入支付系统。FCA在其周四发布的商业计划中表示，它将为制定加密货币政策做出贡献，并将考虑其将稳定币用作支付的制度。
-17. Coingape报道，斯洛文尼亚当局宣布了一项新的统一税收计划，此举是为了让该国拥抱数字货币空间。为了简化该国数字货币交易流程，引入了新的统一税，税率定为5%。寻求引入新税率的法案于周四在斯洛文尼亚立法机构会议上获得通过。该法案与《2022年、2023年气候变化基金支出计划条例》一同被采纳。随着该法案的通过，斯洛文尼亚人现在在法律上有义务为所有形式的虚拟货币支付税款。政府在通过后发表的一份声明表示，这一领域的立法将有助于斯洛文尼亚在虚拟货币税收领域的更有竞争力的地位，鉴于虚拟货币在全球金融市场的重要性日益增强，围绕该领域的不确定性最近有所增加，这将变得更加重要。
-18. Finextra报道，比雷埃夫斯银行(Piraeus Bank)将利用“银行即服务”的数字化趋势，为希腊和欧洲其他市场的客户建立一家新的在线独立银行，即先买后付。这家希腊银行已与当地IT服务公司Natech就合资企业展开合作，该公司表示，该合资企业将提供“银行即服务、先买后付、数字入行和其他消费金融产品，完全以数字化和敏捷的方式进行。这家只提供数字服务的银行将开始专注于零售消费领域，比雷埃夫斯将把“电子友好型”客户引向新的实体。
+你能查出来吗
+¿Logras averiguarlo?
 
+**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
 
+日期：04/06/2022
+原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
 
+原视频日期：03/28/2021
+原视频网址：https://gettr.com/post/p128wet3a28
+任务编号：KC487(4114)
+视频时间段：0:00-1:30
 
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*编辑：aQ
-发布：文顾*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

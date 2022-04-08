@@ -2,47 +2,20 @@
 ---
 
 
-## 上海宝山区警察白卫兵摆拍送物资后装车全程被网上直播
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2306386/)
+## 樱花时政┃联大表决暂停俄人权理事会资格，中共投反对票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306526/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001_副本.png)
-据老皮匠Old Cowboy[@Jzzrb123](https://twitter.com/Jzzrb123)于[下午10:55 · 2022年4月7日](https://twitter.com/Jzzrb123/status/1512081585440317451)发布的推文
+撰稿：东京樱花团/皓月当空郭
 
-上海疫情黑警虚假送菜表演被当场直播出去。 [#上海疫情](https://twitter.com/hashtag/上海疫情?src=hashtag_click) [#中共疫苗病毒](https://twitter.com/hashtag/中共疫苗病毒?src=hashtag_click)
+据法国国际广播电台4月7日报道：4月7日这场表决，是继2011年针对利比亚表决之后的联合国有史以来的第二次表决，而这次针对的是联合国常任理事国俄罗斯，这一提案是由美国提出的，要求联合国大会表决暂停俄罗斯在联合国人权理事会的资格。投票结果，在联合国193个成员国中，反对暂停俄罗斯资格的共有24国，58国弃权，弃权不计。投反对票的国家有中共国、伊朗、哈萨克斯坦、古巴、俄罗斯、白俄罗斯以及叙利亚。由此，本次投票以三分之二的绝对多数通过把俄罗斯从人权理事会排除出去的决议。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1.png4_.png)图片来源于本文链接
+非常高兴看到联合国这一投票结果，也让我们看到世界大多数国家维护人权的努力，尤其是美国是提出提案，让我们看到了美国对世界人权与安全的重要性！反观中共，自普京政权入侵乌克兰一个多月以来，从未真正指责和谴责过战争入侵者俄罗斯，而且投反对票赤裸裸的和俄罗斯站在一起！我们看到这些投反对票国家，全是不民主的独裁国家，尤其向中共，本身人权问题严重，并在新疆和西藏犯下种族灭绝和反人类罪，也应当暂停其联合国人权理事会资格！暂停其联合国人权理事会资格并不是长久之计，并不能保证其不再侵犯人权，对于全球和平和人权安全，全球应该团结起来，制定更严厉的统一措施，做到真正的去清除危害人权的邪恶政权！
 
+信息来源：[多数国家支持 中国反对 联大暂停俄罗斯人权理事会资格](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220407-%E5%A4%9A%E6%95%B0%E5%9B%BD%E5%AE%B6%E6%94%AF%E6%8C%81-%E4%B8%AD%E5%9B%BD%E5%8F%8D%E5%AF%B9-%E8%81%94%E5%A4%A7%E6%9A%82%E5%81%9C%E4%BF%84%E7%BD%97%E6%96%AF%E4%BA%BA%E6%9D%83%E7%90%86%E4%BA%8B%E4%BC%9A%E8%B5%84%E6%A0%BC)
 
-
-> 上海疫情黑警虚假送菜表演被当场直播出去。[#上海疫情](https://twitter.com/hashtag/%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85?src=hash&amp;ref_src=twsrc%5Etfw) [#中共疫苗病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%96%AB%E8%8B%97%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ekRHGjTsho](https://t.co/ekRHGjTsho)
-> — 老皮匠Old Cowboy (@Jzzrb123) [April 7, 2022](https://twitter.com/Jzzrb123/status/1512081585440317451?ref_src=twsrc%5Etfw)
-
-
-
-有菜不发给民众却要辛辛苦苦在现场摆拍再拉走，那就说明这一出戏要在多地重复上演，这样的戏要以警察和警车护送，并且貌似大白也与警察同属一窝，那就足以说明这出戏是演给警察的上级部门看的，目下之上海，警察可以决定谁上路谁不上路，警察也自然可以决定哪些物资可以进，哪些物资不可以进，在获得权力之余，再以这样的戏分证明警察充分实现了物资保障职能，这样整个戏就圆满了。
-
-这出戏演得很好，但是人在做天在看，群众们都在看，不仅现场的群众们在看，我们远在千里万里之外的我们也在看，无论时下之上海还是时下之中国，高压之下的维稳和做秀的崩塌只需要一个火星引燃，这一刻会在什么时候到来？独裁者们不知道，上海人民不知道，全国人民不知道，但是这颗火星就在所有人心中，哪怕是羊逼急了也会去咬人，何况是人呢？
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
