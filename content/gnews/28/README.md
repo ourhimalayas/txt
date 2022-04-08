@@ -2,48 +2,30 @@
 ---
 
 
-## 有声|春天来了
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311347/)
+## 【秘翻时评】 韩国船只在台湾海峡失踪 派出搜救直升机也坠海
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2311562/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-春天的花儿开成片
-小蜜蜂忙的转圈圈
-每日七哥发小片段
-传来了共匪要悲催
-战友们听得要流水
-埋葬共匪送土一堆
-Medyka的战友风里吹
-坚守阵地呀不后悔
-传播正义把星旗挥
-有温暖还有咖啡杯
-失家的人们把家回
-你们英雄把敌人毁
-春天呀春天
-如期而至不更改
-邪恶的势力
-也要入轮回
-新中囯联邦人放飞
-传播真相呀勤不缀
-春天里播种秋天收
-有币无苗你冲天吼
-声音冲破那云霄九
-还有谁能比咱们牛
+By:**[秘翻时评](https://gettr.com/post/p147ujgedf2)**
 
-文字版原文：[春天来了](https://gnews.org/zh-hans/2303776/)
+**[2022‑04‑08](https://gettr.com/post/p147ujgedf2)**
 
-音频处理：Fei797
-发稿：Fei797
+**秘翻晚间新闻：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+1.食安问题再现 美赞臣婴儿奶粉香兰素超标
+2.佩洛西完全接种疫苗 仍然确诊中共病毒
+3.韩国船只在台湾海峡失踪 派出搜救直升机也坠海
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**今日评论内容：**
+
+\*大批军队进驻上海 车站、机场都是军装
+\*新中国联邦的救援行动拯救着无数的母亲
+
+Gettr链接：[**https://gettr.com/post/p147ujgedf2**](https://gettr.com/post/p147ujgedf2)
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

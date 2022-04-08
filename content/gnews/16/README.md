@@ -2,26 +2,34 @@
 ---
 
 
-## 国际制裁下俄总理表示面临30年来最困难局面
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2311591/)
+## 台湾当局追捕中共芯片人才掠夺公司
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2311621/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月日，俄罗斯总理米舒斯京表示，因遭到西方史无前例的制裁，俄罗斯正面临30年来最艰难的经济局面。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午12.03.35.png)
-米舒斯京在俄国议会下院指出，目前的制裁甚至在冷战时期都没被使用过。此前，由于西方将俄罗斯剔除了SWIFT系统，许多贸易商拒绝购买俄罗斯石油货物和其他商品，极大的加剧了普京政府的财政压力。上月，美国宣布禁止俄罗斯能源、能源产品、以及俄罗斯商品进口。欧盟执委会4月5日提议对俄罗斯实行新的制裁，包括禁止购买俄罗斯煤炭与禁止俄船只进口欧盟港口，同时表示正在致力于禁止俄罗斯石油进口。许多国际企业纷纷暂停在俄罗斯的业务，停止对俄罗斯发货，并仅可能地从俄罗斯撤资。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20201120122933_50234.jpg)
+近日台湾当局一名调查官员表示，台湾已经对大约100家涉嫌非法挖走芯片工程师和其他技术人才的中共公司展开调查。
 
-为报复西方的经济制裁，莫斯科当局宣布，若是外国投资者决定撤出俄国，他们将面临不能出售在当地的工业与金融资产。克里姆林宫甚至暗示，可能会决定将撤离的西方投资者所持有的资产予以国有化。
+中共虎视眈眈拿下台湾，台湾的法律禁止中共在芯片行业的某些投资，中共通过在开曼群岛等避税地注册公司来规避资金来源，进行偷盗技术或者人才。台积电芯片广泛供应全球，在全球芯片短缺和被川普政府制裁的前提下，中共更加快了非法掠夺的计划。
 
-参考链接：[受西方史無前例制裁 俄總理：俄國面臨30年來最艱困局面](https://www.rti.org.tw/news/view/id/2129408)
+为抵制中共的作为，台湾在2020年12月在司法部调查局内部设了一个工作组专门来应对此问题。该官员称自去年年初以来已经有7家公司被起诉，其中包括27家已经被突击检查或者其所有者已被传唤质询。上个月开展了迄今为止最大的行动，突击检查了8家公司。据悉其中一家自称是台湾数据分析的公司，其总公司是位于中共上海的一家芯片公司的分部，这家公司偷盗台湾芯片设计蓝图发送给中共。涉及到的公司还有北京IC设计公司，通富微电等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+reference：
 
-编辑：Ivy001
-总编：宁文静
-审核：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/](https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

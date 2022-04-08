@@ -2,24 +2,36 @@
 ---
 
 
-## 中日财经爆┃美国数字货币政策即将出台 比特币矿业巨头或转向中东和欧洲扩张
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311704/)
+## 战友怎么才能避免被喝茶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311771/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+撰稿：东京樱花团/非常喜欢
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国比特币矿业巨头正将目光投向斯堪的纳维亚、中东和其他地区，以扩大其能源密集型、监管宽松的行业。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-41.png)[图片来源](https://www.ccn.com/crypto-mining-giant-canaan-eyes-new-york-ipo-after-hong-kong-snub/)
-据彭博社4月8日消息，美国比特币矿业巨头正将目光投向斯堪的纳维亚、中东和其他地区，以扩大其能源密集型、监管宽松的行业。
+共产党的灭亡已经只是一个时间问题了，在这个黎明前的黑暗时刻，战友们要想方设法隐藏好自己，等待胜利的到来。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-37.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.cyclonis.com%2Fimages%2F2018%2F07%2Fsecure-personal-information-765x383.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cyclonis.com%2Fzh-hans%2Ftop-5-steps-ensure-your-information-secured%2F&amp;tbnid=AqzjI0lkyDth0M&amp;v)
+共产党的灭亡已经只是一个时间问题了，在这个黎明前的黑暗时刻，战友们要想方设法隐藏好自己，等待胜利的到来。
 
-报道称，总部位于德克萨斯州奥斯汀的矿业公司Core Scientific首席执行官Mike Levitt在迈阿密举行的2022年比特币会议上表示：“我们正在寻找中东和斯堪的纳维亚等能源资源和资本丰富的地区来扩大我们的商业。”Marathon Digital首席执行官Fred Thiel也在会议上表示，他也在关注中东，称“中东是一个非常有趣的地方，因为它们在电力和能源方面存在不对称”。
+国内的监控无处不在，国安想定位一个人，太容易了，但是对于低价值目标，他们不会调用黑客的力量，所以如何隐藏，非常重要。
 
-两家比特币矿业巨头考虑撤出转移出美国，或与正在制订的数字货币政策有关。
+第一件事，翻墙的手机必须和日用手机分开，拔卡，放家里，用WiFi。最好是用苹果手机，比较安全。
 
-当地时间3月9日，拜登总统签署一项行政命令，指示美国财政部评估数字货币可能带来的风险和好处，制定有关数字货币的政策建议，并敦促美联储考虑创建“数字美元”的可能性。
+第二件事，微信全程在国安的监控范围，不要发任何敏感信息。你在微信上发敏感信息，你方便，国安找你更方便。
 
-信息来源：[Bitcoin Mining Giants Eye Middle East, Europe for Expansion – Bloomberg](https://www.bloomberg.com/news/articles/2022-04-07/bitcoin-mining-giants-eye-middle-east-europe-for-expansion)
+第三件事，翻墙的手机把国产软件都删除。国产软件全部有监控，小心，小心，再小心。
 
-编辑：东京樱花团/知了知了
+第四件事，翻墙用的梯子，翻墙出来第一件事，查一下梯子是否和国安合作，比如蛙速云，用这个非常危险，他和国安合作。
+
+第五件事,战友之间在网上购物，留下了地址。群里都有特务，我们谈话对他们透明，所以小心。
+
+第六件事，用国内手机，邮箱注册推特骂共产党，这样等于是向国安发出邀请。推特被中共渗透了，只能用国外的邮箱和手机。
+
+第七件事，出现信息泄露，把一切资料都删除，国安来了，要机智应对，一般都是写保证书后放人，其他事情见机行事。
+
+国产软件虽然都有监控，但是其他人用的非常多，只要战友不发敏感信息，和正常人一同操作，不会纳入监控范围，战友们隐蔽得好的也有很多，喝茶之后第一时间，在群内咨询，有经验的战友会给您很多建议。
+
+总之，战友保重，再忍耐一段时间，离天亮不远了。
+
+编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****
