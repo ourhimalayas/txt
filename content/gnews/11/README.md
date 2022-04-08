@@ -2,26 +2,28 @@
 ---
 
 
-## 有声｜北约首次考虑将中共国纳入其防御战略中
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310225/)
+## 有声｜乌境现更多俄军涉嫌杀害平民行为 吁即援重型武器
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310321/)
 
-**By:秘翻新闻**
+By:**秘翻新闻**
 
 **2022-04-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-08-193316.jpg)
-据**[《福克斯新闻》](https://www.foxnews.com/world/nato-china-growing-influence-defense-strategy)**4月7日报道，北约秘书长延斯·斯托尔滕贝格周四表示，在北京拒绝谴责俄罗斯在乌克兰的战争之际，这个拥有30个成员国的联盟将首次在其防御战略中考虑中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-8.png)
+[卫报综合](https://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-newshttps://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-newshttps://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-news)消息，乌克兰总统沃洛季米尔·泽连斯基周四说，博罗迪扬卡镇的情况比附近的布查 “糟糕得多”，在那里，俄罗斯军队涉嫌杀害平民。
 
-斯托尔滕贝格在布鲁塞尔的北约总部对记者说: “我们已经看到，中共国不愿意谴责俄罗斯的侵略行为。北京已经与莫斯科一起质疑各国选择自己道路的权利。”
+泽连斯基在深夜的全国讲话中说，”拆除博罗迪昂卡残骸的工作开始了……那里的情况要糟糕得多。”
 
-他补充说：“这是第一次，我们必须考虑到中共国日益增长的影响力和胁迫性政策如何影响我们的安全。”
+官员们认为，在首都基辅西北35公里处的布查，有300多人被俄罗斯军队杀害，其中约50人被处决。
 
-斯托尔滕贝格说，这个由30个成员国组成的联盟将在6月的马德里峰会后宣布新的 “战略概念”。
+周四早些时候，乌克兰总检察长伊丽娜·维内迪克托娃说，在博罗迪扬卡镇的两座废墟建筑下发现了26具尸体，并指责俄罗斯军队对该镇进行了空袭。
 
-他还表示，北约仍然主要关注结束乌克兰的战争，北约不仅向基辅，而且还要向格鲁吉亚等其他同样受到俄罗斯侵略威胁的国家提供更多援助。
+此前，基辅呼吁西方盟友提供更多的重型武器。周四，乌克兰外交部长德米特罗·库莱巴在布鲁塞尔举行的联盟同行会议上，呼吁西方盟友在几天内即刻提供帮助，否则许多人会死去。
 
-（秘翻新闻 Grace编辑报道）
+此外，澳大利亚首批20辆布什马斯特车预计于周五送往乌克兰，这是5000万美元援助的军用车辆的一部分。
 
-发布:星星
+秘翻新闻 大树/Julia编辑报道
+
+发布 : 恩典
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)

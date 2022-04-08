@@ -2,38 +2,34 @@
 ---
 
 
-## 国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309165/)
+## 蔡英文家人染疫，蔡本人将隔离至4月中旬
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309458/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-4.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-欧盟执委会6日提议将禁止进口俄罗斯煤炭纳入新一轮制裁清单，会议结果出炉，欧盟成员同意将煤炭进口禁令纳入对俄罗斯的新一轮制裁，制裁决议将经欧盟官方公布后生效。欧盟对俄罗斯实施煤炭进口禁运，同美国禁止进口俄能源，旨在对普京施加经济压力。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1649432758_97281.jpg)
+当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人说明，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，她将从接触日4月5日开始计算隔离，为期10天，后续再进行7天自主健康管理，直至4月21日。此段时间内公开行程全部暂停。
 
-欧盟执委会宣布自**8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口**；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
+台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。蔡英文总统的相关工作将以线上或者视讯会议的方式进行。
 
-欧洲统计局数据显示欧盟仰赖俄罗斯能源，2020年自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气。本次煤炭进口禁令，是欧盟首次对俄罗斯能源实施制裁，预计价值高达每年40亿欧元（44亿美元）。同时，欧盟已着手制定对石油等其他能源的制裁措施。
+据悉美国众议员长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密接者，不得不进行隔离，停止一切公开行程，改为线上工作。
 
-欧盟决议将对俄罗斯实施制裁如下：（由欧盟官方公布后生效）
+reference：
 
-- 对俄罗斯宣传、国安、军事机构人员、侵略乌克兰有关的工业技术部门进行实体制裁
-- 冻结数家俄罗斯银行资产
-- 禁止向俄罗斯出口价值高达100亿欧元的高科技产品
-- 欧盟将对悬挂俄罗斯国籍的船只关闭港口
-- 对俄罗斯实施武器禁运
-- 禁止俄罗斯煤炭进口、禁运
-- 禁止从俄罗斯进口，价值高达55亿欧元的原料和关键原料
-- 对俄罗斯及白俄罗斯公路运输制裁
+[https://www.setn.com/News.aspx?NewsID=1097357](https://www.setn.com/News.aspx?NewsID=1097357)
 
-
-欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）推特表示，俄乌战争持续，俄国在金融、经济、科技方面将长期受到孤立。
-
-来源｜[euronews](https://www.euronews.com/my-europe/2022/04/07/eu-countries-agree-on-new-russia-sanctions-including-coal-embargo)、[AP](https://apnews.com/article/russia-ukraine-kyiv-business-european-union-europe-9a1062991e5e1f463c31e4cf518b2c3f)、[Présidence française du Conseil de l’UE’s twitter](https://twitter.com/Europe2022FR)
+撰稿、发布：骄子
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

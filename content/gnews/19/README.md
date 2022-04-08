@@ -2,34 +2,42 @@
 ---
 
 
-## 接种了三针新冠疫苗的澳州记者饱受了新冠的折磨
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2309913/)
+## 澳总理将为在阿德莱德建造AUKUS核潜艇敞开大门
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2310151/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-840.png)图片来自网络
-澳州记者特蕾西·斯派塞(Tracey Spicer)接种了三针新冠疫苗，但这位55岁的记者在一月份感染了新冠病毒。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-在卧床两周后，虽然她从一些症状中恢复了过来，如严重的咳嗽，但她仍然病得很重。三个多月后还无法正常工作。
+整理：li yan li
+编辑：李易通
 
-她感到疲劳和胸痛，担心自己的心脏出了问题。她几乎不能在外面散步，即使是做一顿饭也会感到极度疲乏。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-841.png)图片来源：雅典娜设计组
 
-这位记者的经历与一些新冠病毒感染者一样，他们长期被一些疾病或症状困扰，包括疲劳、呼吸困难、咳嗽、关节疼痛、胸痛，以及记忆力减退和失眠。
 
-澳洲政府表示，新冠病毒给人体造成的长期副作用仍不清楚。人们开始思考究竟是新冠病毒还是新冠疫苗产生的健康问题。
+据澳大利亚人报报道，斯科特·莫里森将为澳大利亚价值1000多亿的核潜艇在海外建造敞开大门，他说“最重要的目标”不是在阿德莱德建造它们，而是“确保我们能够尽快获得这种能力”。
 
-另有报道，数十名接种了辉瑞疫苗的青少年在两个月内患上了一种罕见的心脏病。与未接种辉瑞疫苗的人相比，已接种疫苗的人患心肌炎的数量高于预期。
+在去年9月与美国总统乔·拜登和英国首相鲍里斯·约翰逊联合宣布AUKUS澳英美伙伴关系时，总理宣布“我们打算在阿德莱德建造这些潜艇”。
 
-心肌炎是一种非常罕见但已知的新冠疫苗副作用。在接种第二针辉瑞疫苗后更有可能出现心肌炎。
+但他在周二拒绝保证除了核反应堆以外这些潜艇将在阿德莱德建造。根据AUKUS协议，美国和英国已承诺帮助澳大利亚建造8艘设计未定的核动力潜艇。
 
-尽管如此，澳洲政府还在鼓励民众接种加强针新冠疫苗。只有让更多的接种了新冠疫苗并出现了各种各样的健康问题的民众公开表达自己的感受，才能让人们注意到是注入到体内的新冠疫苗使身体产生了问题。
+这些潜艇将在阿德莱德建造的消息受到了南澳的欢迎，认为这是对其国防工业的重要推动。
 
-参考消息：
-1. [Tracey Spicer: Triple-vaxxed Aussie journalist crushed by long Covid](https://www.news.com.au/lifestyle/health/health-problems/tracey-spicer-triplevaxxed-aussie-journalist-crushed-by-long-covid/news-story/aa2a0e0da77fbd4d128456added5023f)
-2. [Victorian teens’ rare condition after Covid jab](https://www.heraldsun.com.au/coronavirus/victorian-teens-rare-condition-after-covid-jab/news-story/9b01931efd02d96184f4f40771c7ee5b)
+许多评论家呼吁，最初的潜艇应在海外建造，以快速提高其能力。如果所有的潜艇都在澳大利亚建造，可能无法满足国家的战略需求。
 
-*审核：喜国公民*
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+在本周的一份联合声明中，莫里森、拜登和约翰逊说，三边的AUKUS伙伴关系将会扩大，其重点包括“先进的高超音速和反高超音速能力”。
+
+David Johnston海军中将周二告诉参议院的评估委员会，中国有“一系列高超音速武器”。
+
+高超音速武器以五倍于音速的速度飞行，并发射常规或核载荷。中国和俄罗斯都成功展示过高超音速武器。克里姆林宫声称它在入侵乌克兰期间使用了这一种武器。
+
+参考链接：[总理为在海外建造AUKUS核潜艇敞开大门](https://cn.theaustralian.com.au/2022/04/07/65471/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

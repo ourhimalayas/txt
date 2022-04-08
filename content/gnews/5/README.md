@@ -2,39 +2,36 @@
 ---
 
 
-## 有声|乌克兰将效法以色列全民皆兵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2310306/)
+## 澳洲新南威尔士发现第一例Deltacron变体感染
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2310566/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月5日，据以色列媒体报道，乌克兰总统泽连斯基当天指出，在国家安全方面，遭遇了俄罗斯侵略之后的乌克兰将效法以色列，实行全民皆兵政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-16.jpg)
-泽连斯基表示，安全问题已经成为乌克兰在未来十年中必须面对的首要任务。因此，他已经同西方各国的领导人多次讨论过相关规划，且很多乌克兰的盟友都表达了参与的意愿。这其总，泽连斯基希望多国以小集团的形式分别向乌克兰提供国家安全援助。
+撰稿：Gradient Boost
 
-泽连斯基也承认，乌克兰今后肯定不会像预期的那样绝对自由和欧洲化，但其也绝对不会变成一个专制国家。相较而言，乌克兰将更偏向成为一个“大以色列”：在强敌环伺的情况下，乌克兰必须保留规模更大的武装部队，用以对抗两个邻国。为此，乌克兰的各个场所今后都会有荷枪实弹的国家武装部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/801.jpg)图片来自网络
+当地时间星期五，澳大利亚媒体报道悉尼所在的新南威尔士州发现了第一例CCP病毒 Deltacron 变体感染案例。新南威尔士州卫生局在其COVID-19 每周报告中也确认，该州记录了 1 例 Deltacron 病例和1例 Omicron 及多种子变体组合感染的病例。
 
-报道还提到，泽连斯基近日在乌克兰犹太人社团举办的年度基辅犹太论坛上发表演说称，乌克兰人和犹太人都珍视自由，且双方都致力于使国家未来成为自己喜爱的样子，而不是别人要求的样子。
+Deltacron 是一种“重组”病毒，这意味着它是两种不同CCP病毒变体（Delta及Omicron）的混合产物，分别继承了Delta和Omicron的一些特性。卫生当局表示，没有证据表明这类新毒株会导致更严重的病状，至于疫苗对该变体的防护作用，现在也没有足够数据做支撑。
 
+今天，每日新增CCP病毒感染数字也从趋势上发生了变化，一些州记录的新病例开始有所下降。与昨天相比，悉尼所在的新南威尔士州和墨尔本所在的维多利亚州都出现了新增数量的减少。
 
+新南威尔士州报告了 20,396 例新增确诊，而昨天记录为 22,255 例。该州又有8人不幸因CCP病毒感染而丧生。目前仍有1435例感染者在住院治疗，44人处于重症监护状态。
 
-文字版原文：[乌克兰将效法以色列全民皆兵](https://gnews.org/zh-hans/2305354/)
+维多利亚州记录了 11,192 例新的 COVID-19 病例，比昨天的 12,314 例减少了 1000 多例。该州另有四人不幸死于CCP病毒。目前该州有 335 人因感染CCP病毒住院，12 人必须进入重症监护室治疗。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+*编辑：Gradient Boost*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*发稿：mgjxs*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](乌克兰救援UkraineRescue官方Gettr)
+[郭文贵先生Gettr](郭文贵先生Gettr)
+[全球喜马拉雅农场联盟委员会Gettr](全球喜马拉雅农场联盟委员会Gettr)
+[喜马拉雅联盟大使馆全球客服中心Discord](喜马拉雅联盟大使馆全球客服中心Discord)
 
  
 

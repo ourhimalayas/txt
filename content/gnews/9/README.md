@@ -2,28 +2,37 @@
 ---
 
 
-## 有声｜江浙紧急为上海筹措6万间隔离房
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310227/)
+## 有声|美财政部长将就加密市场监管及政策发表演讲
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2310407/)
 
-By:**秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-2.jpeg)
+据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
 
-**2022-04-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-21.png)
-近来，失控的上海疫情占据了大众的关注焦点，在疫情管控中上演的荒唐闹剧及人间惨剧也在接连不断地发生。据郭文贵先生在近期的直播中所称，上海此轮疫情本由疫苗引起，但中共为了掩盖这一事实，采取一些极端的封管措施以掩人耳目，这表明中共已经将疫苗灾难政治化。
+对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
 
-在中共历来的政治运动中，官方的所作所为只有让民众想不到，没有他们做不到的。
 
-据[中共媒体](https://www.sogou.com/link?url=44aejrzSKwVOL8XMZK4TpgPT9lK_n5UQxP1iQSLBvFt0Z4f5iFP8zr1cTjJoVIVJRiMnWkVR4OO2wKelUak-kA..)报道，4月初，江苏、浙江两地将紧急为上海的密接隔离人员提供房源，总量为6万间。其中，江苏、浙江各3万间。目前，江苏已筹措并提供1.6万间，浙江已筹措并提供2.1万间。剩余房源将于近日筹措完成。
 
-如此兴师动众地异地隔离密接者，其对于抗疫的意义何在呢？
+文字版原文：[美财政部长将就加密市场监管及政策发表演讲](https://gnews.org/zh-hans/2305631/)
 
-秘翻新闻 Julia/菜园子编辑报道
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-发布 : 恩典
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

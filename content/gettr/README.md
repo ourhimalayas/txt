@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 1:57 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月7日第34天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9831人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 34 - Date: April 7, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9831 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group24/getter/2022/04/08/13/f23f96a9-97e9-6ff6-dad1-dc7a7d7b8fa1/7ca0655c6ce6392704aa7883e36ec64f.jpg)
+
+---
+
 `@miles 4/8/2022 12:54 PM (UTC)`
 
 2022年4月8日 文贵大直播：俄乌战争最新信息及分析；国内疫苗灾难更新及警告；佩罗西访台在即台海局势；大直播科普系列人工智能
@@ -147,13 +154,6 @@ The Indian volunteer is very interested in the "extermination of the Communist P
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group32/origin/2022/04/07/17/e292f91e-c2ae-76cc-2b6b-05841bcd3640/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 2:10 PM (UTC)`
-
-Dictatorship comes from the people, but the people can also overthrow a dictator, that is the law of history. As it was in the former Soviet Union, the Chinese Communist Party will also be overthrown or disintegrated<br/>独裁来自于人民，但人民也可以推翻独裁者，这是历史规律。前苏联如此，中共也会被推翻或者解体
-![img](https://media.gettr.com/group14/origin/2022/04/07/14/45101c14-a0fe-3315-2b7a-db675b914d54/out.jpg)
 
 ---
 
