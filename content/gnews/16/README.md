@@ -2,50 +2,29 @@
 ---
 
 
-## 老爷和韭菜
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2309693/)
+## 有声｜陕西“铁笼女”调查出炉 疑再现“指莹为梅”戏码
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2309820/)
 
-作者：紐約香草山教育部-蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-837.png)
+By:**秘翻新闻**
 
+**2022-04-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-08-200008.jpg)
+[新唐人](https://www.ntdtv.com/gb/2022/04/07/a103394424.html)北京时间4月7日消息。近日，陕西榆林官方推出有关“铁笼女”的所谓“调查结果”，否认虐待指控，其公布的“铁笼女”身份也明显与公开信息不符。其所谓“丈夫”甚至未受刑责。
 
+4月6日，陕西省榆林市官方通报此案的处理结果：两人因涉嫌拐卖妇女遭刑事拘留，当事女“小雨”的丈夫李某民因为“刑事追诉期已过”未被起诉。还有涉及外来人口管理、户籍登记及出生医学证明发放等事务的13名基层官员被处分。
 
-老爷是官，韭菜被管
-检测核酸，全民皆关
-指鹿为马，老爷发话
-你想干啥，出门就杀
-军管军管，实枪荷弹
-不听管制，小命要完
-没吃没喝，倒霉是你
-上吊跳楼，自由选择
-啥
+通报称，经过查证核实与DNA比对，认定“铁笼女”并非与其相貌极其相似的女大学生王国红，而是“陕西汉中市佛坪县失踪精神病女子陶某侠”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/49C2C0FF-4BE8-4183-A73E-2A5B0F8AD26D.jpeg)
-
-还有自由
-老爷发话, 字正腔圆
-对对对
-我们民主，自由国家
-霹雳扒喳，人落楼下
-老爷发话，人雨是花
-可怜韭菜，哭天喊地
-失去我家，失去我爸
-失去我妈，失去我娃
-老爷发话，塞他嘴巴
-高高铸墙，圈禁你丫
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
-
-**更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
-
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
+此案处理结果与徐州“铁链女”案类似，皆避重就轻、疑似替换当事人身份。与“铁链女”的所谓“丈夫”被刑拘相比，“铁笼女”的所谓“丈夫”还逃过了刑责。
 
 
+
+（秘翻新闻 二丫编辑）
+
+发布 : 文橙
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

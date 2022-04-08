@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 12:54 PM (UTC)`
+
+2022年4月8日 文贵大直播：俄乌战争最新信息及分析；国内疫苗灾难更新及警告；佩罗西访台在即台海局势；大直播科普系列人工智能
+![img](https://media.gettr.com/group13/origin/2022/04/08/12/0d1f3cda-e021-6148-1a44-ff92c5e7f826/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/8/2022 12:44 PM (UTC)`
+
+Today, a group of volunteers from Israel came to the Medyka rescue camp and came to our tent to meet and rest. The volunteer from Jerusalem told us that they heard that our NFSC&ROLF tent was the best equipped tent here, and it’s a good place to meet, rest and drink coffee. She also heard that the tent was provided by people from the New Federal State of China(NFSC). She wished for the success of the NFSC to free 1.4 billion Chinese people from the slavery of the Chinese Communist Party (CCP).<br/><br/>今天营地里刚来了几十个从以色列来的援救义工，他们刚到营地，就来我们帐篷开会、休息。 在采访中，这个来自耶路撒冷的义工告诉我们，他们一来，就听其他义工介绍说法治基金新中国联邦的大帐篷是设施条件最好的、最舒适的基地，可以休息、开会、喝现磨的咖啡。她还听说，这个帐篷是灭共的新中国联邦人建的。 这个以色列义工祝愿新中国联邦成功，将14亿中国人从中国共产党的奴役中解放。
+![img](https://media.gettr.com/group47/origin/2022/04/08/12/1c2ffaec-ae02-82f9-fc63-830786b02833/out.jpg)
+
+---
+
 `@miles 4/8/2022 12:20 PM (UTC)`
 
 A Danish Christian volunteer: The CCP have been killing His people for years but now it ends. The wave of NFSC is tipping down this giant wall that blocks Chinese people from freedom. You may feel you are tiny sometimes but this is not true. God is helping you and nothing is stronger than Him! You are NOT alone! All freedom-loving people of the world are caring and praying for you.<br/><br/>【乌克兰救援】 04/05/2022 一位丹麦基督徒志愿者：共产党一直在屠杀迫害神的子民，现在要结束了，由新中国联邦人掀起的浪潮正在推翻那堵墙。有时，你们可能感到自己很渺小，其实不是，上帝正在帮助你们，没有比上帝更强大的，你们并不孤独，全世界爱好自由的有爱的人都在祝福你们。<br/>
@@ -140,20 +154,6 @@ The Indian volunteer is very interested in the "extermination of the Communist P
 
 Dictatorship comes from the people, but the people can also overthrow a dictator, that is the law of history. As it was in the former Soviet Union, the Chinese Communist Party will also be overthrown or disintegrated<br/>独裁来自于人民，但人民也可以推翻独裁者，这是历史规律。前苏联如此，中共也会被推翻或者解体
 ![img](https://media.gettr.com/group14/origin/2022/04/07/14/45101c14-a0fe-3315-2b7a-db675b914d54/out.jpg)
-
----
-
-`@miles 4/7/2022 2:02 PM (UTC)`
-
-叶钊颖-郝海东-飞飞 《大实话·第十七场》： “爱“  2022-04-07
-![img](https://media.gettr.com/group12/origin/2022/04/07/14/de7a0f90-4ac7-7457-3ac4-ed3fc9cd33e1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 1:58 PM (UTC)`
-
-4月7号：尊敬的战友们好．骄傲的上海人．成功的上海人．确实与众不同的上海人．一夜之间成了被伤害的最严重的人，现在的上海人．人格尊严．连狗不如。这都是为什么呢？
-![img](https://media.gettr.com/group47/getter/2022/04/07/13/3b893131-0485-78c5-8677-769cf4753f1d/out.jpg)
 
 ---
 
