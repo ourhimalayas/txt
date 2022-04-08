@@ -2,65 +2,65 @@
 ---
 
 
-## 美国给共产党准备一堆毒药,共产党毫不犹豫吃最毒的药
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2308142/)
+## 澳支援乌20辆大毒蛇装甲车同时莫里森和达顿等被俄方制裁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2308148/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%889%EF%BC%9A9%EF%BC%89%E7%BE%8E%E5%9B%BD%E7%BB%99%E5%85%B1%E4%BA%A7%E5%85%9A%E5%87%86%E5%A4%87%E4%B8%80%E5%A0%86%E6%AF%92%E8%8D%AF%2C%E5%85%B1%E4%BA%A7%E5%85%9A%E6%AF%AB%E4%B8%8D%E7%8A%B9%E8%B1%AB%E5%90%83%E6%9C%80%E6%AF%92%E7%9A%84%E8%8D%AF%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-138.jpg)图片来自网络
+《SBS News》近日报道，在上周乌克兰总理泽连斯基对澳洲议会讲话后，澳洲将向乌克兰发送20辆大毒蛇装甲车，价值5000万澳元。
 
-**郭文贵先生：**另外一个我看到这共产党是真是完蛋了，这好消息太多。据我所知，为啥我今天兴奋？从早到晚就知道，美国给共产党那块准备了一堆毒药，而且共产党都毫不犹豫地……
+包括两架救护车在内的大毒蛇装甲车将于周五上午从布里斯班用C-17运输机运到欧洲。
 
-(美国)在桌子上摆了一百零八种药，其中可能三分之一是毒药。共产党都是选择最毒的药去吃，你挡都挡不住，所以七哥特别高兴。
+这些装甲车漆成绿色来适应乌克兰的环境，并将装上电台，全球定位系统和额外的螺栓固定装甲以增加保护。
 
-乌克兰这边，最后大家一定记住，乌克兰可能是中国人最需要珍惜的朋友了，乌克兰和台湾。因为乌克兰，共产党真的会决绝地完蛋，会完得非常得狠！！！非常的干净！！！我们会很快地在盘古龙头相聚！
+这些人员运输车可为地雷、火炮弹片和小型武器射击提供保护。
 
-——我本花一朵，被拐骗山中，从此亲人永相隔。
+国防部长彼得-达顿说，随着部队继续击退俄罗斯的入侵，澳大利亚将继续向乌克兰提供其所能提供的军事援助。
 
-我这一唱这歌，哎呀！受不了！
+“我们的想法是提供这种支持，以保证人民的安全，并尽快将俄罗斯人从乌克兰领土上击退，”他告诉记者。
 
-——囚禁二十年，我受尽了折磨，这个世界不要我。
+“如果有提供更多支持的要求，澳大利亚会认真考虑所有这些要求。”
 
-哇！这歌真的是一唱……
+他说，大毒蛇装甲车已经证明了其在战场条件下的耐久性。
 
-——醒来吧，别再如此冷漠。醒来吧，别再如此懦弱，只为能紧握住亲人手，要埋葬那邪恶的中共；牙齿全拔落，铁锁已斑驳，这就是我的一生。同胞快醒来，从此要站着活，我们砸碎这铁锁！！！
+“它可以把人安全的移开，特别是当我们看到俄罗斯军队埋设地雷的警报时，”他说。
 
-哇！一唱这心里边……唉！献给前线的战友们，七哥为你们唱的。真是啊，一唱这歌劲儿全来了。懦弱的人听了这个歌会痛哭，然后会忘掉；强大的人会唤醒你的力量、良知，会让你觉醒。
+“这将是保持部队安全的一个非常关键的因素。”
 
-耶！！！工作去！灭共去！啥不说了兄弟姐妹们。
+乌克兰驻澳大利亚大使瓦西里·米罗什尼琴科说他代表泽连斯基先生和乌克兰人民感谢澳大利亚。
 
-前线的战友们防毒、照顾好身体，谢谢所有法治基金的捐款者，兄弟姐妹们，感谢你们。好吧？！共产党你完了！！！
+他告诉记者：”这将是对我们在乌克兰的军事人员的巨大帮助，还有一辆救护车将是非常有帮助的，”。
 
-——只为能紧握住亲人手，要埋葬那邪恶的中共。牙齿全拔落，铁锁已斑驳，这就是我的一生。同胞快醒来，从此要站着活，我们砸碎这铁锁！！！
+“我们确实希望我们将能够迫使俄罗斯人离开这个国家，我们可以回到正常的生活和重建我们的国家。”
 
-“嘣…..”走了,工作去, 给你们挣钱去!灭共去!!!
+此前一天，外交部长玛丽斯-佩恩宣布对67名俄罗斯寡头实施进一步制裁。
 
-字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
+制裁范围扩大到副总理德米特里-格里戈连科和被称为 “马里乌波尔屠夫 “的军事官员米津采夫上校，因为他们袭击了收容平民的建筑物。
 
-编辑整理：Jacques；
+克里姆林宫连夜进行报复，对228名澳大利亚政府成员实施了入境禁令，其中包括莫里森先生和达顿先生。
 
-字幕档制作：知津；
+但达顿先生说，澳大利亚将继续与乌克兰站在一起，反对暴政和独裁者。
 
-视频制作及上传：Cindy；
+“人们为我们国家的自由而战斗和牺牲。我们需要认识到，我们不能把我们所拥有的一切视为理所当然，包括我们的民主制度和言论自由，”他说。
 
-G-News发布：海贼王M.D.LUFFY；
+“这些是普京和希特勒等独裁者将永远反对的价值观。我们需要站出来反对他们。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+与此同时，联合国投票决定暂停俄罗斯在联合国人权理事会的资格，理由是 “对正在发生的人权和人道主义危机表示严重关切”，随后克里姆林宫退出了理事会。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+莫里森先生说，这是一个重要举措，以确保俄罗斯继续为其入侵乌克兰的行为负责。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“他说：”俄罗斯必须为他们对乌克兰的所作所为付出可怕的和糟糕的代价。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+普京发动侵略战争，破坏世界和平，纵容士兵屠杀乌克兰平民，给乌克兰造成了人道灾难，是历史罪人！支持澳洲政府的行动，声援乌克兰，早日把侵略者赶出去！
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参考链接：
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[https://www.sbs.com.au/news/article/australia-to-send-20-bushmasters-to-ukraine-as-russia-hits-scott-morrison-peter-dutton-with-sanctions/0i8ssiy88](https://www.sbs.com.au/news/article/australia-to-send-20-bushmasters-to-ukraine-as-russia-hits-scott-morrison-peter-dutton-with-sanctions/0i8ssiy88)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+*编辑：金生水*
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
