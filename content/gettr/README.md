@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-08<br/>For English：gettr.com/post/p14a1ob032b
+![img](https://media.gettr.com/group22/origin/2022/04/08/21/72c5a3fd-9547-459e-41c5-d29ea04742f4/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/8/2022 8:49 PM (UTC)`
 
 2022.04.08  新中国联邦 | 喜健康   危机干预和信仰的力量
@@ -145,13 +152,6 @@ A Danish Christian volunteer: The CCP have been killing His people for years but
 
 2022.04.07  新中国联邦 | 喜财经      中共国地方债危机
 ![img](https://media.gettr.com/group44/origin/2022/04/08/01/19c9e54b-208a-e16c-6c44-d1e124b7e3ff/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/8/2022 1:04 AM (UTC)`
-
-2022.04.07 晚  新中国联邦 | 新闻访谈   枫桥经验下的灾难逻辑；盖特推特的变化；联合国的现状
-![img](https://media.gettr.com/group22/origin/2022/04/08/00/f331a841-6dc1-abd7-e893-bcd93cb1bef5/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
