@@ -2,38 +2,68 @@
 ---
 
 
-## 有声|新中国联邦前线救援团队传递灭共力量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311853/)
+## 联大投票决定暂停俄罗斯在人权理事会的成员资格
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2311868/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在4月6日的连线直播中，新中国联邦乌克兰救援前线的战友，深感本次救援对当地华人的巨大影响力。从不知道爆料革命的使命，到亲眼见证来自世界各地的新中国联邦人真诚、无私地救援乌克兰，这些华人意识到新中国联邦灭共的实力和决心，以中共领导中国为耻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-789.png)
-在前线的每一位战友都是爆料革命的播种机，将新中国联邦的灭共使命传播到世界各地。
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+我们现在开始表决程序
+决议草案A/ES-11/L.4获得通过
+谢尔盖·基斯利茨亚（乌克兰常驻联合国代表）：
+俄罗斯军队杀害、折磨、强奸、绑架和抢劫了
+数以千计的和平居民
+布恰和其他几十个乌克兰城市和村庄就是一个例子
+表明俄罗斯联邦已经大大背离了
+它最初在人权领域所做出的宣誓
+暂停俄罗斯在人权理事会的成员资格
+不是一种选项，而是一种责任
+托马斯-格林菲尔德（美国常驻联合国代表）：
+今天，国际社会朝着正确的方向迈出了集体的一步
+我们确保了一个持续的，恶劣的人权侵犯者
+不会被允许在联合国占据人权方面的领导地位
+詹姆斯·罗斯科（英国代表）：
+俄罗斯在人权理事会中没有一席之地
+今天的投票向普京传递了另一个信息：
+那些支持他或以他的名义发言的人
+必须停止杀害无辜平民，结束这场战争
+蒂鲁穆尔蒂（印度常驻联合国代表）：
+印度对大会今天通过的关于暂停俄罗斯
+在人权理事会的成员资格的决议投了弃权票
+如果印度选边站，那就是和平的一边
+而且要立即停止暴力
+根纳季·库兹明（俄罗斯常驻联合国副代表）：
+俄方认为，联大通过的关于暂停俄罗斯
+在联合国人权理事会的成员资格的决议
+是不合法的，出于政治动机的步骤
+明显是在惩罚一个奉行独立内外政策的
+联合国主权会员国
+佩德罗索·奎斯塔（古巴常驻联合国代表）：
+今天是俄罗斯，但明天可能是我们的任何一个国家
+特别是那些不向统治利益低头
+并坚定地捍卫其独立的南方国家
+张军（中国常驻联合国代表）：
+用这样的方式处理人权理事会成员资格的问题
+将创造新的危险先例
+进一步加剧人权领域的对抗
+对联合国治理体系产生更大冲击，造成严重后果
+鉴于上述，中方将对决议草案投反对票
 
-我们一起来看前方战友发回的报导。
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：蓝色天空
+字幕添加：文雅
+最终审核：文倩
+编辑/发稿：hongyeca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-文字版原文：[新中国联邦前线救援团队传递灭共力量](https://gnews.org/zh-hans/2307551/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
