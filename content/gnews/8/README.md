@@ -2,34 +2,44 @@
 ---
 
 
-## 蔡英文家人染疫，蔡本人将隔离至4月中旬
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309458/)
+## 乌克兰东火车站遭俄罗斯两枚火箭弹袭击 30多人死 100多人伤
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2309492/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1649432758_97281.jpg)
-当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人说明，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，她将从接触日4月5日开始计算隔离，为期10天，后续再进行7天自主健康管理，直至4月21日。此段时间内公开行程全部暂停。
+来自新加坡早报 /
+2022年4月8日 5:45 PM 报导
+采集：玫瑰新闻组
 
-台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。蔡英文总统的相关工作将以线上或者视讯会议的方式进行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-据悉美国众议员长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密接者，不得不进行隔离，停止一切公开行程，改为线上工作。
 
-reference：
 
-[https://www.setn.com/News.aspx?NewsID=1097357](https://www.setn.com/News.aspx?NewsID=1097357)
 
-撰稿、发布：骄子
 
-* * *
 
-欢迎订阅我们的GNews账号：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+![乌克兰东部的克拉马托尔斯克市（Kramatorsk）一个用来疏散平民的火车站周五（4月8日）遭两枚火箭弹袭击。火车站站台被炸得毁坏不堪， 伤亡者的的个人物品散落满地。（法新社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202204/20220408/ukraine-russia-conflict-091458.jpg?itok=KoS9O0QF)乌克兰东部的克拉马托尔斯克市（Kramatorsk）一个用来疏散平民的火车站周五（4月8日）遭两枚火箭弹袭击。火车站站台被炸得毁坏不堪， 伤亡者的的个人物品散落满地。（法新社）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+
+以下原文内容：
+
+（早报讯）乌克兰国家铁路公司说，乌克兰东部一个火车站周五（4月8日）遭到俄罗斯火箭弹袭击，30多人死亡，100多人受伤。据悉，当时有上千名平民准备疏散到该国较安全的地区。
+
+路透社报道，乌克兰铁路公司在一份声明中说，两枚俄罗斯火箭弹袭击了克拉马托尔斯克市（Kramatorsk）一个用来疏散平民的火车站。
+
+铁路公司补充说：“根据业务数据，克拉马托尔斯克火车站遭到火箭弹袭击时，有30多人死亡，100多人受伤。”
+
+路透社无法核实这一信息。俄罗斯也没有立即对相关袭击和伤亡人数的报道发表评论。俄军自2月24日入侵乌克兰以来，莫斯科一直否认以平民为目标。
+
+乌克兰东部顿涅茨克州州长帕夫洛∙基里连科（Pavlo Kyrylenko）说，火箭弹袭击时，有数千人在车站。
+
+他说：“这些俄罗斯法西斯非常清楚他们的目标是什么，他们想要什么。他们想要制造恐慌和恐惧，他们想要尽可能多地带走平民。”
+
+新闻链接：
+[乌东火车站遭两枚火箭弹袭击 30多人死 100多人伤](https://www.zaobao.com.sg/realtime/world/story20220408-1260813)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

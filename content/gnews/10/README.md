@@ -2,73 +2,34 @@
 ---
 
 
-## 诗歌《写作：公章与私章》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2309429/)
+## 蔡英文家人染疫，蔡本人将隔离至4月中旬
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309458/)
 
-整理：vale
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1649432758_97281.jpg)
+当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人说明，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，她将从接触日4月5日开始计算隔离，为期10天，后续再进行7天自主健康管理，直至4月21日。此段时间内公开行程全部暂停。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-16.jpg)
+台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。蔡英文总统的相关工作将以线上或者视讯会议的方式进行。
 
+据悉美国众议员长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密接者，不得不进行隔离，停止一切公开行程，改为线上工作。
 
+reference：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-142.jpg)俞风景：你还记得那个月夜吗（布面亚克力100x80cm）
+[https://www.setn.com/News.aspx?NewsID=1097357](https://www.setn.com/News.aspx?NewsID=1097357)
 
-**写作：公章与私章**
-
-作者：俞心樵
-
-深夜，我好饿，一颗星星都没有
-
-寂静中，传来万物盖私章的声音
-
-深夜，写作是徒劳的
-
-但我还在用汉语写作
-
-石头上越狱者携带大量雨水的声音
-
-情从何起？你我那水滴石穿的故事
-
-哦，人间、天堂和地狱
-
-哦，政治、经济与道德
-
-更多的人在东边配得上大灾大难
-
-更多的人在西边留不下任何印迹
-
-是的，即使我用英语写作
-
-我也只是为了让你看一看
-
-看我是如何在公章之上
-
-加盖上了我自己的私章
-
-2020.3.7.简言居
+撰稿、发布：骄子
 
 * * *
 
-审核：Aries的星
-校对：阿伯塔
-发布：五通庙
+欢迎订阅我们的GNews账号：
 
-**欢迎阅读当代艺术专栏系列文章：**
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-- [诗歌《永恒的乡愁》](https://gnews.org/zh-hans/2300628/)
-- [装置作品《受伤的和平鸽》](https://gnews.org/zh-hans/2294161/)
-- [诗歌《如你所见》](https://gnews.org/zh-hans/2290498/)
-- [诗歌《后果很严重》](https://gnews.org/zh-hans/2283517/)
-
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-11.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

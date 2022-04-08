@@ -2,20 +2,20 @@
 ---
 
 
-## 美参议院正式撤销俄罗斯贸易最惠国待遇
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309196/)
+## 中共声称若佩洛西访台，将对台湾进行毁灭性打击
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309230/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-08-at-17.32.41.png)
-当地时间4月7日上午，美参议院以100比0票，全票通过撤销了俄罗斯的贸易最惠国地位，并暂停了俄罗斯包括石油在内的能源进口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-08-at-17.38.36.png)
+当地时间4月7日，美国众议院长佩洛西宣布即将访问台湾，随即就被确诊中共病毒阳性。与此同时，中共喉舌警告美国，若众议院长佩洛西访问台湾，那么会对台湾进行毁灭性的打击，中共所谓打台湾的战机就是威胁。
 
-自俄罗斯入侵乌克兰以来，西方国家对俄罗斯采取了大量经济制裁。美国总统拜登曾在3月11日呼吁采取行动结束俄罗斯贸易最惠国地位。参议院多数党领袖表示正式撤销俄罗斯的贸易最惠国待遇将会对普京的经济造成巨大的打击。该立法还包括白俄罗斯、朝鲜、古巴等国，未来这些国家在进入全球市场方面将面临美国及盟友的经济障碍，如法案允许美国大幅提高俄罗斯和白俄罗斯的商品关税，一些钢铁产品可能从零开始跃升20%，而胶合板可能面临50%的处罚。
+中共外交部发言人赵立坚还声称，中共打台湾的一切后果都应该由美方承担。中共喉舌胡锡进甚至建议在佩洛西到达台湾的当天就开战，中共解放军可以击落台湾的飞机或者对台湾的部队发射导弹进行破坏性打击。
 
-拜登总统还表示，目前正在努力阻止俄罗斯向世界银行和世界货币基金组织借款。
+中共对台湾的入侵屡次三番，在过去的几个月里，中共的军用飞机多次侵犯台湾的航空区域，1月份有39架，3月中旬有13架飞机飞入。
 
 reference：
 
-[https://www.upi.com/Top\_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/](https://www.upi.com/Top_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/)
+[https://www.newsweek.com/china-state-media-warn-destructive-strike-taiwan-pelosi-visit-1696129](_wp_link_placeholder)
 
 撰稿、发布：骄子
 
@@ -29,9 +29,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

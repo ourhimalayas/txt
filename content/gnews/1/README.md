@@ -2,28 +2,30 @@
 ---
 
 
-## 樱花时政┃美众议院议长佩洛西确认阳性推迟访日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309541/)
+## 中日财经爆| 日本NTT考虑暂停与俄罗斯“卡巴斯基”的业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309571/)
 
-撰稿：东京樱花团/文小白
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本NTT 集团正在考虑暂停与俄罗斯信息安全公司卡巴斯基的业务，该公司是一家处理杀毒软件的信息安全公司。随着俄罗斯入侵乌克兰，西方对卡巴斯基的警惕性越来越高，似乎已经考虑到了安全和供应链风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-52.jpg)[图片来源](https://www.japantimes.co.jp/news/2022/04/08/business/corporate-business/ntt-kaspersky-software/)
+读卖新闻4月8日报导，日本NTT 集团正在考虑暂停与俄罗斯信息安全公司卡巴斯基的业务，该公司是一家处理杀毒软件的信息安全公司。随着俄罗斯入侵乌克兰，西方对卡巴斯基的警惕性越来越高，似乎已经考虑到了安全和供应链风险。
 
-据HNK4月8日消息，美国众议院议长佩洛西被证实感染了新冠病毒，因而推迟了原本定于本周末对日本的访问。
+日本电报电话公司（NTT）是全世界最大的电信公司之一，据NTT称，卡巴斯基实验室的安全相关软件部分用于集团内部系统，也用于企业业务。未来，集团公司正在考虑暂停与卡巴斯基实验室的新业务，并将其正在使用的产品转向其他公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-31.png)照片来源：本文链接
+关于卡巴斯基，美国联邦通信委员会 (FCC) 上个月将其指定为一家存在安全威胁的公司。
 
-佩洛西议长与几位国会议员定于本周末访问日本，与岸田首相和众议院议长细田会面。在俄罗斯对乌克兰的持续军事侵略中，就应对俄罗斯以及支持乌克兰等交换意见。
+消息来源:**[ＮＴＴ、露「カスペルスキー」との取引停止検討…安全保障上のリスク考慮か](https://www.yomiuri.co.jp/economy/20220408-OYT1T50175/)**
 
-然而，1月7日，佩洛西议长办公室的工作人员在推特上宣布，佩洛西推迟了对包括日本在内的亚洲的访问，原因是她的新冠病毒菌株检测呈阳性。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-佩洛西目前没有症状，但根据美国疾病控制和预防中心（CDC）的指导方针，她需要自主隔离。
-
-佩洛西议长原本考虑在访问日本后访问台湾，由于感染访台日程也同时延期。
-
-信息来源：[米下院議長 日本訪問を延期 新型コロナウイルス感染確認](https://www3.nhk.or.jp/news/html/20220408/k10013572491000.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
