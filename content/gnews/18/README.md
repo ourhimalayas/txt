@@ -2,30 +2,39 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2306672/)
+## 大直播后记：封城之下，下跪文化几时休？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2306801/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-7.png)
+整理：馨馨、红红火火
+编辑：伏而起之
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-687.png)图片来源：雅典娜设计组（614）
 
 
-校对：Stay文苑
+威廉王：我依旧相信墙内的大部分，尤其是像党内的，好人多，真的战友也很多。我绝对相信，他们都在等待着一个时刻，一举把共产党整个邪恶的体系灭掉，因为他们比我们普通人更知道这个体系的恶。所以说，枪口抬高一寸，我也非常希望，尤其是像党内，我们的党员战友，真的枪口抬高一寸。然后呢，做新中国联邦人，先默默地做，在推倒共产党之后，那绝对都是栋梁之才。
 
-编辑：Stay文苑
+青藤：请老班长。
 
-发稿：Stay文苑
+老班长：今天分享这么一个话题，其实是很沉重的。特别是刚才青藤分享的时候，那种发自内心的感觉。其实在这种文化下面没有一个人不是受害者，无论是告密者和被告密者。
 
-新闻：[https://gettr.com/post/p144lucc8a9](https://gettr.com/post/p144lucc8a9)
-访谈：[https://gettr.com/post/p144i2se9a5](https://gettr.com/post/p144i2se9a5)
+我记得我小时候，就像威廉王说的，从孩子开始，我们上幼儿园，每个小朋友都背着手，老师没叫你放下手之前，你就不要放下手。我小学的时候，每个星期六下午是班会时间，班会时间只有一件事儿，就是互相检举。哪怕最后有人说你说这不对，说我没有做这个事儿，老师马上说：住嘴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+毛主席说过，有则改之，无则加勉。就是他怎么诬陷你都行，你就不能反抗。荒唐，荒谬绝伦！像威廉王你们都没经历过这样的荒唐事情，但是这样的荒唐事情，今天有所改变吗？我想告诉大家，完全没有。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+我们从小，我们的父母最喜欢说，“听话”，“听老师的”，“听家长的”，这是一种服从文化，是一种下跪的文化。今天我们可以看到，在西安发生的事情（封城）,在上海发生的事情（封城）。我们哀求跪倒、祈求同情、祈求可怜都没用，甚至有人绝望跳楼。
+
+那么我想问，我们中华民族到底是怎么了？为什么这么邪恶的共产党，它完全视生命如草芥，你连自杀的勇气都有了，为什么不反抗？有人把你的孩子从母亲身边抱走的时候，你为什么不反对？你想着跪，你想着跳楼。你有没有想过，如果上海有2700-2800万人，加上流动人口应该到3000万人，有几个人站出来？西安有几个人站出来？全中国有几个？
+
+我觉得刚才我们谈的话题，说天才在改变世界，“商君五策”从大秦朝开始诞生，商鞅，他也是一个加引号的天才，是个邪恶的天才。他在几千年前所提出的这个“商君策”，是注入到中华民族血液里面的，是我们基因里面的最大的病毒。如果我们不去刮骨疗伤的话，我们这个民族永远都不会有希望。与此相反，大家可以看见，西方也走过很多弯路，走过这个黑暗年代，但是他们在不断地反思。
+
+资料来源：[2022年4月6日 文贵大直播](https://gettr.com/post/p13unl27254)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

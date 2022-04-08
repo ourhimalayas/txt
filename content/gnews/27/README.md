@@ -2,33 +2,36 @@
 ---
 
 
-## 澳洲情报官员拜访所罗门群岛，索加瓦雷总理依旧骑墙
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2306531/)
+## 美国计划断绝俄罗斯军队的资金和物资来源
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2306678/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：灭共文明
+编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+《路透社》华盛顿4月7日报道，周四，美国财政部副部长瓦利-阿德耶莫表示，美国正在加大对俄罗斯的制裁，阻断俄罗斯军队所需的资金和军需材料的来源，来饿死俄罗斯战争机器。**遏制资金的主要手段是限制俄罗斯能源出口，但这需要时间**。
 
-翻译：li yan li
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-779.png)图片来源：The Australia & 雅典娜设计组
-因担心所罗门群岛与中共国的交易危及地区安全，澳大利亚的两名情报主管低调拜访了索纳瓦雷总理。但他们未能看到中国和所罗门群岛之间的安全协议文本。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-1-1-e1649382997848.jpg)美国美国财政部副部长瓦利-阿德耶莫”（图片来源：网络）
 
-国家情报局局长安德鲁·希勒和秘密情报局局长保罗·西蒙周三会见了总理马纳塞·索加瓦雷。
+此前，在冻结俄罗斯资产的努力之后，**华盛顿及其盟友在本周宣布，在不给本国造成经济压力的情况下，逐步采取措施惩罚俄罗斯**。
 
-在索加瓦雷先生办公室于周三晚间发表声明说，双方这次“积极的”会晤解决了澳大利亚的“核心安全问题”，并为两国提供了一个相互了解的平台。
+周三，美国拜登总统宣布了一项新的投资禁令，**禁止美国人投资俄罗斯公司的股票、债券和投资基金，从而切断了俄罗斯国防工业和其他行业与世界上最大的投资资本来源之间的联系**。
 
-索加瓦雷先生说，所罗门群岛向澳大利亚保证，其安全重心是以国内为重点的，**澳大利亚仍然是他的国家****“****首选伙伴****”****。但他坚决表示他的国家不准备抛弃与北京的协议**。
+对拜登的这一投资禁令，阿德耶莫表示，**这意味着俄罗斯将被剥夺建设经济所需的资本，也将被剥夺投资其战争机器所需的资本**。在被问及是否会禁止已经在俄罗斯的公司进一步为这些业务提供资金时，他表示，财政部正在与私营部门进行磋商。
 
-澳大利亚和其他太平洋岛国担心该安全协议可能是北京在未来在所罗门群岛有一个军事存在的立足点。
+周三，美国白宫经济委员会主任布莱恩·迪斯(Brian Deese)表示，**拜登政府最新的制裁方案将禁止与俄罗斯国防巨头联合飞机公司和联合造船公司的交易**。联合飞机公司是苏霍伊和米格战斗机的制造商。
 
-外交和贸易部部长凯瑟琳·坎贝尔在周四的参议院预估听证会上说，“尽管进行了会晤，媒体也已经概述了那次会议的实质内容，但官员们仍然没有看到该协议的副本”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-2-1-e1649383319787.jpg)美国白宫经济委员会主任布莱恩·迪斯”（图片来源：华尔街日报）
 
-新闻链接：[Australian spy chiefs dep](https://www.news.com.au/finance/work/leaders/australian-spy-chiefs-deployed-to-solomon-islands-to-discuss-china-deal/news-story/dcbfafc0cbd480e4300975267d97f413)
+阿德耶莫说, 美国及其欧洲盟友将**以俄罗斯的军事供应链为目标，不让他们获得用于制造坦克和供应导弹的关键部件，以打击俄罗斯军队对乌克兰未来的投射力量**。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+阿德耶莫说，**俄罗斯国防部门自2014年以来设立了幌子公司，获取关键物资和材料，来建设俄罗斯的军队**。上个月，这些公司中有一些成为被制裁的目标。
+
+阿德耶莫对记者说，如果俄罗斯不停止入侵，美国及其盟友将会采取更多行动，来惩罚俄罗斯。
+
+校对与发布：夏至木木
+新闻来源链接：[How the U.S. plans to starve Russia’s ‘war machine’ -Treasury’s Adeyemo to Reuters](https://www.reuters.com/world/europe/us-treasurys-adeyemo-lays-out-plan-starve-russias-war-machine-2022-04-07/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+
 
  
 

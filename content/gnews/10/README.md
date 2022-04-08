@@ -2,37 +2,35 @@
 ---
 
 
-## 研究发现第四针疫苗第二针加强剂仅有几周保护作用
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2306746/)
+## 中共科学院间谍承认窃取商业机密后被判入狱
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2306840/)
 
-2022-04-03
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/research_security2-1068x601-1.jpg)图片来源：U.S. Embassy in Georgia
+根据CNA4月8日报道，美国司法部周四（4月7日）表示，一名中共国公民在1月份承认密谋窃取农业公司孟山都的商业机密以使中共国政府受益后，被判处29个月监禁。
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TM66ZO1018SA3DMNW9.png)**图片来源：**https://www.thegatewaypundit.com
--根据以色列的一项最新研究，涵盖超过 100 万 60 岁以上的人，第四剂辉瑞 Covid 疫苗(第二加强剂）仅提供几周对 Covid的 保护。
+44岁的向海涛于2008年至2017年受雇于孟山都及其子公司，他在密苏里州联邦法院对一项共谋经济间谍罪认罪。
 
-该研究于周二发表，仅将打了第四针的人与打了 三针的人进行了比较。
+司法部在一份声明中说，周四，向海涛被判处29个月监禁，随后三年监督释放和15万美元罚款。
 
-来自纽约每日新闻报道：
+司法部国家安全司助理检察长马修奥尔森说：“向先生密谋窃取重要商业机密，为自己和中共国谋取不公平的优势。”
 
-根据周二发表的一项大规模研究，辉瑞公司的第四针 COVID-19 疫苗仅在 4 至7 周内提高了对病毒感染的保护。
+奥尔森说：“经济间谍活动是一种严重的罪行，可能威胁到美国公司的竞争优势，国家安全部门致力于追究任何窃取商业机密以使外国政府受益的人的责任。”
 
-该研究包括以色列60 岁及以上的125 万 人，他们在 1 月至 3 月期间接受了第四剂辉瑞疫苗（ 以色列只使用辉瑞疫苗）。
+司法部表示，联邦官员在2017年6月等待登上飞往中共国的航班时，发现他持有孟山都公司开发的专有预测算法的副本。
 
-根据这项研究，与只接种三剂的人相比，接种第四剂的人在四周后检测出 COVID-19 阳性的可能性就减少一半。
+向海涛他被允许飞往中共国，在中共国科学院土壤研究所工作。司法部补充说，他于2019年11月返回美国时被捕。
 
-但研究人员发现到第八周，这些群体感染 COVID-19 的可能性几乎相同。
+资料来源：Chinese national sentenced to US prison after pleading guilty to stealing trade secrets
 
-**点评: **当前美加疫苗第4剂正在展开，在欧洲还认为为时过早。在以色列，他们疯狂的冲在第一，早在年初就施打第4剂，结果还是不管用，以色列总理最近也染病。疫苗有害，疫苗无用，越打越染病。疫苗是政治工具，发黑心财机器。第4剂的作用4周后开始减弱，8周后几乎消失；怕死的就每两个月打一针吧，看看现在发生在中共国的种种荒唐事吧，每两个月扎一针将来就可能不觉得滑稽可笑了！
+发布：tianzhihuan
 
-原文链接：[Fourth Covid Jab Extends Protection for Only a Few Weeks: Study](https://www.thegatewaypundit.com/2022/04/fourth-covid-jab-extends-protection-weeks-study/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
