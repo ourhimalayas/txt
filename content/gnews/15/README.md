@@ -2,32 +2,32 @@
 ---
 
 
-## 中日财经爆┃境外投资者继续抛售中国国债, 资金加剧向美国外流
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311667/)
+## 中日财经爆┃美国制裁将让海外资产清零 中共专家警告须提前应对
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311736/)
 
 撰稿：东京樱花团/喜马拉雅的微尘
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-由于中国国债对美国国债的收益率优势不断缩小，以及乌克兰战争带来的地缘政治不确定性，境外投资者上个月减持中国国债的数量创下历史之最。
+西方国家对俄罗斯的金融制裁严重刺激了中共的敏感神经。近期，前央行顾问余永定和中国银行前副行长王永利就西方制裁可能对中国持有的外国证券产生的影响发出了警告。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-28.png)
+西方国家对俄罗斯的金融制裁严重刺激了中共的敏感神经。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-93.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.ft.com/__origami/service/image/v2/images/raw/https%253A%252F%252Fs3-ap-northeast-1.amazonaws.com%252Fpsh-ex-ftnikkei-3937bb4%252Fimages%252F8%252F3%252F7%252F0%252F29770738-3-eng-GB%252FCropped-1601910778photo.JPG?width=700&amp;fit=cover&amp;gravity=faces&amp;dpr=2&amp;quality=medium&amp;source=nar-cms&amp;imgrefurl=https://asia.nikkei.com/Economy/China-triples-Japan-government-bond-purchases2&amp;tbnid=q_vSn3TRj-CDVM&amp;vet=12ahUKEwiy8J3szoT3AhUNTPUHHfYNC2UQxiAoA3oECAAQIw..i&amp;docid=LAJJOYq4TKGiIM&amp;w=1400&amp;h=787&amp;itg=1&amp;q=Foreign%20investors%20continue%20to%20sell%20Chinese%20government%20bonds&amp;ved=2ahUKEwiy8J3szoT3AhUNTPUHHfYNC2UQxiAoA3oECAAQIw)
+近期，前央行顾问余永定和中国银行前副行长王永利就西方制裁可能对中国持有的外国证券产生的影响发出了警告。
 
-据边际实验室4月8日消息，由于中国国债对美国国债的收益率优势不断缩小，以及乌克兰战争带来的地缘政治不确定性，境外投资者上个月减持中国国债的数量创下历史之最。
+“如果中国也遇到对俄罗斯的类似制裁，其海外资产甚至可能面临变成零的危险，”中国知名经济学家余永定上周在一篇博文中说。
 
-根据中国人民银行的数据计算，海外投资者在3月份净卖出了500亿元人民币的中国国债，创下记录，目前这些投资者持有的中国国债规模减少到2.43万亿元。
+俄乌战争在2月24日打响后，引发了美国及其盟友对俄罗斯的一连串制裁，其中包括将俄罗斯银行从国际金融信息系统Swift中移除，冻结俄罗斯中央银行的外汇储备等。
 
-由于中国国债和美国国债之间的收益率差几乎消失，促使包括PIMCO（品浩）和AllianceBernstein在内的全球基金开始卖出中国债务。
+中国自2001年加入世界贸易组织以来，一直在通过出口积累外汇。去年，中国与世界其他国家的贸易顺差比前一年增长了29%，达到6764.3亿美元——这是自1950年有记录以来的最高值。其中。很大一部分被投资于美国政府债券。
 
-虽然中国人民银行进一步宽松的希望仍然存在，但由于对美联储积极加息的预期，国债的抛售正在抹去中国的收益率优势，这是十多年来的第一次。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-58.png)
-中国10年期债券相对于类似期限美国国债的溢价目前约为10个基点，低于年初时的100多个基点。根据中国人民银行的数据，在过去两个月里，中国债券总共流出了900亿元人民币。中国债券网3月份的数据还没有公布。
+根据美国财政部的数据，今年1月，中国持有价值1.06万亿美元的美国国债，是仅次于日本的第二大持有人。
 
-根据国际金融研究所上月底的一份报告，高频数据检测到中国股票和债券出现了“前所未有”规模的资金外流。
+根据美国财政部的数据，美国政府债券约占中国整体外汇储备价值的三分之一，根据外汇监管机构国家外汇管理局的数据，1月份的外汇储备为3.22万亿美元。
 
-彭博经济的分析师David Qu表示，目前债券市场的资金外流水平不太可能引发中国人民银行的任何反应，他说：“如果我们看到更大规模的资本外逃，央行可能会关注它，但它不太可能采取任何积极的行动。”
+“中国的国家外汇储备主要是美元和欧元等发达国家的货币，而且也主要储存在美国和欧洲等发达国家。”王永利上月底发表在《财新》杂志上的一篇专栏文章中说。
 
-与此同时，高盛集团将其对中国今年的债券流入预测从高达1400亿美元下调至1000亿美元。“我们认为，鉴于地缘政治的不确定性程度，未来几个月的资金流动可能仍然疲软。”该行包括Danny Suwanapruti在内的策略师在4月3日的说明中写道。
+“这也意味着，一旦与美国和欧洲的关系破裂，中国（中共）外汇储备的安全将受到极大威胁。”
 
-信息来源：[境外投资者继续抛售中国国债, 资金加剧向美国外流](https://finance.sunnews.cc/finances/1494790.html)
+信息来源：[专家警告：美国制裁可能导致中国海外资产清零，应提前做好准备](https://www.163.com/dy/article/H4CNCO600539BX8Z.html?f=post1603_tab_news)
 
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01

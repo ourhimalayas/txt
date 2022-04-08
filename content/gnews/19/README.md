@@ -2,41 +2,31 @@
 ---
 
 
-## 布查的死亡超过300人，当地人被发现受到“残酷的折磨”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311635/)
+## 中日财经爆┃美国数字货币政策即将出台 比特币矿业巨头或转向中东和欧洲扩张
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311704/)
 
-编译：七叶之芒
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+美国比特币矿业巨头正将目光投向斯堪的纳维亚、中东和其他地区，以扩大其能源密集型、监管宽松的行业。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-41.png)[图片来源](https://www.ccn.com/crypto-mining-giant-canaan-eyes-new-york-ipo-after-hong-kong-snub/)
+据彭博社4月8日消息，美国比特币矿业巨头正将目光投向斯堪的纳维亚、中东和其他地区，以扩大其能源密集型、监管宽松的行业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-17.jpg)
+报道称，总部位于德克萨斯州奥斯汀的矿业公司Core Scientific首席执行官Mike Levitt在迈阿密举行的2022年比特币会议上表示：“我们正在寻找中东和斯堪的纳维亚等能源资源和资本丰富的地区来扩大我们的商业。”Marathon Digital首席执行官Fred Thiel也在会议上表示，他也在关注中东，称“中东是一个非常有趣的地方，因为它们在电力和能源方面存在不对称”。
 
-布查市市长说，该市官员已经能够确认据称被俄罗斯军队杀害的163名居民，约占俄罗斯占领乌克兰城镇后发现的死亡总人数的一半。
+两家比特币矿业巨头考虑撤出转移出美国，或与正在制订的数字货币政策有关。
 
-布查市市长阿纳托利-费多鲁克在接受美国之音采访时说：“到目前为止，我们已经能够确定163名遇害者的身份。”
+当地时间3月9日，拜登总统签署一项行政命令，指示美国财政部评估数字货币可能带来的风险和好处，制定有关数字货币的政策建议，并敦促美联储考虑创建“数字美元”的可能性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-860-edited.png)2022年3月4日，在基辅西部的布查市，这幅总图显示了被摧毁的俄罗斯装甲车。布卡市市长声称，到目前为止，官员已经能够确认163名据称在基辅地区被俄罗斯军队杀害的居民
-图片来源：新闻链接
+信息来源：[Bitcoin Mining Giants Eye Middle East, Europe for Expansion – Bloomberg](https://www.bloomberg.com/news/articles/2022-04-07/bitcoin-mining-giants-eye-middle-east-europe-for-expansion)
 
-“这些都是我们镇上的居民，他们被俄罗斯人冷酷无情地杀害，受到残忍的折磨。我们知道他们的姓、名、父名[父亲的名字]，他们住在哪里，以及他们是谁–父亲、儿子、妻子，在一个家庭或另一个家庭。”
-
-市长指出，这一数字占据称在靠近乌克兰首都基辅的该镇被俄罗斯军队杀害的人的一半。
-
-当被问及有多少人在布查被杀时，市长回答说，“320人”。
-
-克里姆林宫周一否认了与布查平民被杀有关的任何指控。
-
-费多鲁克还警告说，现在让居民返回布查“还为时过早”。
-
-他说：“相当大比例的领土仍然是危险的。” 《新闻周刊》已与俄罗斯外交部联系，要求其发表评论。
-
-来源：[https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266](https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,26 +2,34 @@
 ---
 
 
-## 俄乌战局最新信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2311593/)
+## 台湾当局追捕中共芯片人才掠夺公司
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2311621/)
 
-作者：文斌
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-截止当地时间4月7日，在基辅和乌克兰东北部，俄军已经撤出苏梅州，基辅北部和苏梅一线已经完全解放。俄军在过去的24小时内炮击哈尔科夫达50次，但局势仍未改变。俄罗斯第20集团军和第1近卫坦克军所部继续从伊久姆向斯拉夫扬斯克进攻，但没有取得任何重大突破。俄军巩固了对5日夺取的布拉日基夫卡的控制，并开始进攻多夫根克，但没有进展。俄军正在加大力度向伊久姆一线增派兵力，已经开始使用俄方的瓦卢伊基至乌方的库普扬斯克之间的铁路。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午12.03.46.png)
-俄军继续试图夺取波帕斯纳亚和鲁别日诺耶，均未果，只能对整个战线进行炮击。俄军试图突破新托什基夫西克附近的防御，也没有成功。乌克兰部队证实，该地区的俄军中出现有莫斯科高等军事指挥学院的学员，表明俄罗斯为弥补战斗减员几乎是竭尽所能了。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20201120122933_50234.jpg)
+近日台湾当局一名调查官员表示，台湾已经对大约100家涉嫌非法挖走芯片工程师和其他技术人才的中共公司展开调查。
 
-乌克兰方面，基辅的清理工作正在进行，昨天在该地区发现并销毁了1022枚爆炸物。马里乌波尔的战斗仍在继续，目前尚不清楚乌克兰守军还能坚持多久。乌克兰独立媒体报道说，国际红十字会的援助在6日前无法进入马里乌波尔。在南部战线，乌克兰部队继续从尼古拉耶夫和卡夫巴斯向赫尔松成功反击，并取得小幅进展，夺回了奥索科里夫卡、多布良卡等地。乌克兰部队还沿黑海岸边向赫尔松进行了反击，战局仍在进行。
+中共虎视眈眈拿下台湾，台湾的法律禁止中共在芯片行业的某些投资，中共通过在开曼群岛等避税地注册公司来规避资金来源，进行偷盗技术或者人才。台积电芯片广泛供应全球，在全球芯片短缺和被川普政府制裁的前提下，中共更加快了非法掠夺的计划。
 
-据乌克兰军情局报告说，俄罗斯为了解决军队中日益严重的士气低落问题，正在加强对其部队的审查，限制对互联网的访问。更多俄乌战争的局势，请继续关注本台的跟踪报道。
+为抵制中共的作为，台湾在2020年12月在司法部调查局内部设了一个工作组专门来应对此问题。该官员称自去年年初以来已经有7家公司被起诉，其中包括27家已经被突击检查或者其所有者已被传唤质询。上个月开展了迄今为止最大的行动，突击检查了8家公司。据悉其中一家自称是台湾数据分析的公司，其总公司是位于中共上海的一家芯片公司的分部，这家公司偷盗台湾芯片设计蓝图发送给中共。涉及到的公司还有北京IC设计公司，通富微电等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+reference：
 
-编辑：宁文静
-总编：宁文静
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/](https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
