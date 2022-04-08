@@ -2,29 +2,29 @@
 ---
 
 
-## 中共的媒体和公司等待制裁吗？
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310125/)
+## 有声｜北约首次考虑将中共国纳入其防御战略中
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310225/)
 
-编译：波士顿五月花—-思澈
+**By:秘翻新闻**
 
-欧盟理事会通过第五轮制裁以外还决定制裁其产品或技术在入侵中发挥作用的公司，系统地传播克里姆林宫关于俄罗斯入侵乌克兰报道叙述的虚假信息和信息操纵的支持者。
+**2022-04-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-08-193316.jpg)
+据**[《福克斯新闻》](https://www.foxnews.com/world/nato-china-growing-influence-defense-strategy)**4月7日报道，北约秘书长延斯·斯托尔滕贝格周四表示，在北京拒绝谴责俄罗斯在乌克兰的战争之际，这个拥有30个成员国的联盟将首次在其防御战略中考虑中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9F5895B4-CFE8-440F-A2FD-A19D8FBB581C.jpeg)
+斯托尔滕贝格在布鲁塞尔的北约总部对记者说: “我们已经看到，中共国不愿意谴责俄罗斯的侵略行为。北京已经与莫斯科一起质疑各国选择自己道路的权利。”
 
-欧盟通过第五轮制裁俄罗斯，禁止购买俄罗斯煤炭和其它固体化石燃料，禁止俄罗斯船只进入欧盟港口的通道，禁止俄罗斯和白俄罗斯的公路运输业务在欧盟境内通过公路运输货物。
+他补充说：“这是第一次，我们必须考虑到中共国日益增长的影响力和胁迫性政策如何影响我们的安全。”
 
-此外，**理事会决定制裁其产品或技术在入侵中发挥作用的公司**、关键的寡头和商人、克里姆林宫高级官员、**系统地传播克里姆林宫关于俄罗斯入侵乌克兰报道叙述的虚假信息和信息操纵的支持者，**以及已经受到制裁的个人的家庭成员，以确保欧盟的制裁不被规避。
+斯托尔滕贝格说，这个由30个成员国组成的联盟将在6月的马德里峰会后宣布新的 “战略概念”。
 
-还将对俄罗斯四大银行实施全面的交易禁令，这些银行在俄罗斯银行业中占有23%的市场份额。在解除SWIFT协议后，这些银行现在将面临资产冻结，完全切断了它们与欧盟市场的联系。
+他还表示，北约仍然主要关注结束乌克兰的战争，北约不仅向基辅，而且还要向格鲁吉亚等其他同样受到俄罗斯侵略威胁的国家提供更多援助。
 
-世界公认中共支持俄罗斯入侵乌克兰，中共媒体操控支持虚假报道俄罗斯入侵乌克兰的信息，在战场上发现了俄罗斯军人遗留下来的中共公司的通讯产品，这些都将被欧盟制裁，拭目以待！
+（秘翻新闻 Grace编辑报道）
 
-素材来源：[https://www.consilium.europa.eu/en/press/press-releases/2022/04/08/eu-adopts-fifth-round-of-sanctions-against-russia-over-its-military-aggression-against-ukraine/](https://www.consilium.europa.eu/en/press/press-releases/2022/04/08/eu-adopts-fifth-round-of-sanctions-against-russia-over-its-military-aggression-against-ukraine/)
+发布:星星
 
-*发布：思澈*
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

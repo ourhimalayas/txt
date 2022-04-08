@@ -2,27 +2,34 @@
 ---
 
 
-## 乌克兰东部火车站遇袭，至少39人死亡
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2309897/)
+## 接种了三针新冠疫苗的澳州记者饱受了新冠的折磨
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2309913/)
 
-**据乌克兰特工部门乌克兰国家安全局（SBU）称，在对乌克兰东部城市克拉马托尔斯克火车站的导弹袭击中，至少有39人死亡。**
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-840.png)图片来自网络
+澳州记者特蕾西·斯派塞(Tracey Spicer)接种了三针新冠疫苗，但这位55岁的记者在一月份感染了新冠病毒。
 
-作者：dpa/vk/原文发布于2022年4月8日13:20 (CET)
-翻译：LK
+在卧床两周后，虽然她从一些症状中恢复了过来，如严重的咳嗽，但她仍然病得很重。三个多月后还无法正常工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-1.jpg)图片：2022年4月3日的克拉马托尔斯克火车站。（Fadel Senna/AFP）
+她感到疲劳和胸痛，担心自己的心脏出了问题。她几乎不能在外面散步，即使是做一顿饭也会感到极度疲乏。
 
-乌克兰国家安全局周五（2022年4月8日，译者）宣布，受害者是35名成人和4名儿童。早些时候，曾有消息称至少有30人死亡，100人受伤。数以千计的人在克拉马托尔斯克火车站等待从被围困的地区疏散。
+这位记者的经历与一些新冠病毒感染者一样，他们长期被一些疾病或症状困扰，包括疲劳、呼吸困难、咳嗽、关节疼痛、胸痛，以及记忆力减退和失眠。
 
-乌克兰总统泽连斯基称俄罗斯应对这次袭击负责。据他说，这些炮弹是 “Tochka-U”型导弹。
+澳洲政府表示，新冠病毒给人体造成的长期副作用仍不清楚。人们开始思考究竟是新冠病毒还是新冠疫苗产生的健康问题。
 
-亲俄罗斯的分离主义分子也谈及“Tochka-U”，但声称是乌克兰军队发射的。
+另有报道，数十名接种了辉瑞疫苗的青少年在两个月内患上了一种罕见的心脏病。与未接种辉瑞疫苗的人相比，已接种疫苗的人患心肌炎的数量高于预期。
 
-克拉马托尔斯克由乌克兰军队控制，但被认为是俄罗斯攻击的目标。
+心肌炎是一种非常罕见但已知的新冠疫苗副作用。在接种第二针辉瑞疫苗后更有可能出现心肌炎。
 
-原文链接：[https://brf.be/international/1592616/](https://brf.be/international/1592616/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+尽管如此，澳洲政府还在鼓励民众接种加强针新冠疫苗。只有让更多的接种了新冠疫苗并出现了各种各样的健康问题的民众公开表达自己的感受，才能让人们注意到是注入到体内的新冠疫苗使身体产生了问题。
+
+参考消息：
+1. [Tracey Spicer: Triple-vaxxed Aussie journalist crushed by long Covid](https://www.news.com.au/lifestyle/health/health-problems/tracey-spicer-triplevaxxed-aussie-journalist-crushed-by-long-covid/news-story/aa2a0e0da77fbd4d128456added5023f)
+2. [Victorian teens’ rare condition after Covid jab](https://www.heraldsun.com.au/coronavirus/victorian-teens-rare-condition-after-covid-jab/news-story/9b01931efd02d96184f4f40771c7ee5b)
+
+*审核：喜国公民*
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,42 @@
 ---
 
 
-## 接种了三针新冠疫苗的澳州记者饱受了新冠的折磨
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2309913/)
+## 美议长周日将访问台湾中共扬言美国玩火
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2309976/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-840.png)图片来自网络
-澳州记者特蕾西·斯派塞(Tracey Spicer)接种了三针新冠疫苗，但这位55岁的记者在一月份感染了新冠病毒。
+#### 【雅典娜快讯】，紧贴时代脉搏![图像]()
 
-在卧床两周后，虽然她从一些症状中恢复了过来，如严重的咳嗽，但她仍然病得很重。三个多月后还无法正常工作。
+整理：等风来
+编辑：李易通
 
-她感到疲劳和胸痛，担心自己的心脏出了问题。她几乎不能在外面散步，即使是做一顿饭也会感到极度疲乏。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-16.png)图片来源：雅典娜设计组
 
-这位记者的经历与一些新冠病毒感染者一样，他们长期被一些疾病或症状困扰，包括疲劳、呼吸困难、咳嗽、关节疼痛、胸痛，以及记忆力减退和失眠。
 
-澳洲政府表示，新冠病毒给人体造成的长期副作用仍不清楚。人们开始思考究竟是新冠病毒还是新冠疫苗产生的健康问题。
+美国国会众议院佩洛西将在本周日（2022年4月10日）访问台湾。如果成行，她将是25年首位任内访问台湾的美国众议院议长。
 
-另有报道，数十名接种了辉瑞疫苗的青少年在两个月内患上了一种罕见的心脏病。与未接种辉瑞疫苗的人相比，已接种疫苗的人患心肌炎的数量高于预期。
+日本富士新闻网星期四（2022年4月7日）说，佩洛西将在4月8日抵达日本，与日本首相岸田文雄会晤后4月10日前往台湾，因为她对北京在俄罗斯入侵乌克兰的大背景下可能对台湾动武感到忧虑。
 
-心肌炎是一种非常罕见但已知的新冠疫苗副作用。在接种第二针辉瑞疫苗后更有可能出现心肌炎。
+台湾联合报也报道说，佩洛西率领的国会代表团计划4月10日台湾关系法立法43周年的当天抵达台湾，以展现美国国会对台湾的支持和对台湾关系法的重视。
 
-尽管如此，澳洲政府还在鼓励民众接种加强针新冠疫苗。只有让更多的接种了新冠疫苗并出现了各种各样的健康问题的民众公开表达自己的感受，才能让人们注意到是注入到体内的新冠疫苗使身体产生了问题。
+报道说，为了避免刺激北京，台湾外交和国安部门的官员都对此表示低调，未对媒体的相关查询作出证实或否认。
 
-参考消息：
-1. [Tracey Spicer: Triple-vaxxed Aussie journalist crushed by long Covid](https://www.news.com.au/lifestyle/health/health-problems/tracey-spicer-triplevaxxed-aussie-journalist-crushed-by-long-covid/news-story/aa2a0e0da77fbd4d128456added5023f)
-2. [Victorian teens’ rare condition after Covid jab](https://www.heraldsun.com.au/coronavirus/victorian-teens-rare-condition-after-covid-jab/news-story/9b01931efd02d96184f4f40771c7ee5b)
+佩洛西的办公室也以安全规则惯例为理由拒绝证实她访问台湾的消息。如果成行，佩洛西将成为多年来任内访问台湾的美国最高层官员。
 
-*审核：喜国公民*
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+中国当局称已向美方提出严正交涉。中国外交部发言人赵立坚4月7日说，美国国会是美国政府的组成部分，理应严格遵守美国奉行的一个中国政策；如果佩洛西众议长访台，将严重损害中国主权，严重冲击中美关系的政治基础，如美方一意孤行，中方必将采取坚决有力措施回应。
+
+官方的环球日报前总编胡锡进发出推文说，佩洛西在玩火，美国也在玩火，她的访问必定会带来严重后果。
+
+2020年，时任美国国务次卿克拉克(Keith Krach)访问台湾后，中共派战斗机和轰炸机一连两天飞过台湾海峡中线，以表达对美国高级官员访台的不满。
+
+参考链接：[美议长周日将访问台湾中共扬言美国玩火](https://www.voachinese.com/a/pelositaiwan-20220407/6518803.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
