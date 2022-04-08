@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ridgway 4/7/2022 5:09 PM (UTC)`
+
+原创 — 这段话发生的时期是在十八大之后，习近平访美遭到了冷遇和挫折，在内心愤愤不平之余也意识到了他的“中美新型大国关系”战略或许将无法达到他的预期，为此他调整了策略，前往莫斯科同普京讲出了上述的谈话。 - 從 GNews APP 分享 (https://gnews.org/zh-hans/2304557/) <br/><br/>https://gnews.org/zh-hans/2304557/
+
+---
+
 `@miles 4/8/2022 2:03 AM (UTC)`
 
 2022.04.07  新中国联邦 | 喜财经      中共国地方债危机
@@ -146,12 +154,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 `@miles 4/7/2022 12:06 PM (UTC)`
 
 04/07/2022 on the 4th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 15 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 , Hungary 🇭🇺 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, Germany, New Zealand, Australia, Spain, Netherlands, Sweden, Philippines, Cambodia, Mongolia, Finland, Hungary， Laos🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
-
----
-
-`@miles 4/7/2022 12:05 PM (UTC)`
-
-4月7号, 郭文贵先生两首新歌上线第四天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>15 国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜首🥇<br/>新西兰🇳🇿， 匈牙利 🇭🇺, 柬埔寨 🇰🇭 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、德国，新西兰、澳大利亚、西班牙、荷兰、匈牙利、瑞典、菲律宾、柬埔寨, 蒙古，芬兰,老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
 
 ---
 

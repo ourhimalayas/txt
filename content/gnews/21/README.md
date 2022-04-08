@@ -2,191 +2,35 @@
 ---
 
 
-## 喜币让人真正实现劳动获得的财富不受掠夺
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306412/)
+## 缅怀英烈消灭中共八九六四的血不能白流
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306493/)
 
-为什么我今天要说喜币
-Por qué hoy voy a hablar sobre la moneda de Himalaya (H-coin)
+**【国内新闻短评】**
 
-你们记住七哥这句话
-Recuerden esta frase que voy a decir
+国际在线2022年4月5日刊载：求是网评论员：缅怀英烈 崇尚英雄
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a4jhe-utkeq-3.jpg)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/04/as.jpg)
+***短评：***
 
-我再重申一遍
-Repito nuevamente
+**天地英雄气，千秋尚凛然。**
 
-如果有一天你发现七哥
-Si un día te das cuenta que yo
+又是一年清明时，“清明祭英烈”，人们纷纷以鲜花献英烈，哀思祭忠魂。在这个慎终追远的时刻，祖国和人民不会忘记，共匪的旗帜是红色的，共匪的非法红色政权践踏着无数人的生命与鲜血在960万平方公里大地上推行着暴政独裁。1989年6月4日，万千忠骨，万千热血，英雄先烈以灼热的信仰新年、炽热的家国情怀、忘我的砥砺奋斗，在华夏大地追求自由民主的奋斗征程中书写了中华民族几千年历史上最悲壮的史诗。他们是中华民族的脊梁
+、新中国联邦人心中的丰碑，历史功绩彪炳史册、光照千秋，将永远铭刻在我们心中。
 
-这事没做到的时候
-Al no lograr hacer esto
+新中国联邦人正接过八九六四中那些英雄先烈们手中的旗帜，在灭共的道路上取得了一个个里程碑式的胜利。革命先烈和英雄人物，在新中国联邦人心中战友极重的分量，尤其在这个国人被共匪压断脊梁的时代。共匪的十八大以来，共匪头子习特勒多次就崇尚假英雄、学习假英雄、关爱假英雄作出部署、提出要求，杜撰虚构假英雄故事、赞扬假英雄品格、弘扬假英雄精神。共匪烧杀抢掠、奸淫偷盗的流氓劣迹自共匪诞生以来就遍布祖国大江南北，令960万平方公里的土地满目疮痍。共匪设立假烈士纪念日、假抗日战争胜利纪念日、建立恶党流氓功勋荣誉表彰制度，制定《共匪假英雄烈士保护法》，印发《关于加强新时代假烈士褒扬工作的意见》……通过一系列重大作秀举措，在全社会树立崇尚假英雄、缅怀假英烈的邪恶风尚。共匪如此种种的恶行与拙劣表演都是对八九六四中那些真英雄们最大的侮辱，颠倒黑白地抢夺了本该属于那些真英雄们的光环与荣耀，这却让我们对真英雄的精神铭记得更加深刻，使我们灭共的决心更加坚定不移。
 
-你们永远不要记住
-Nunca recuerden
+一个有希望的民族不能没有英雄，一个有前途的国家不能没有先锋。中华民族是崇尚英雄、成就英雄、英雄辈出的民族。在共匪一百多年的独裁奴役中，一代又一代的共匪接班人“顽强拼搏、不懈奋斗”，在与人民为敌与世界为敌的道路上越走越远。共匪这个绞肉机利用强大的宣传机器给一批批所谓共产党员喂下了人尸丸，猛烈的洗脑攻势让很多人至死都没看清共匪作为邪教黑帮组织的真实嘴脸：走向绞刑架的李大钊，发出了“共产主义在中国必将得到光辉的胜利”的愚蠢口号，现实是所谓的光辉胜利是盗国恶行；方志敏被害前留下胡言乱语“敌人只能砍下我的头颅，决不能动摇我们的信仰”，实际上共匪才是最大的敌人，共产主义就是邪教信仰；所谓铁人的王进喜为了奴役人民的共匪跳进泥浆压井喷，喊出了“宁可少活二十年，拼命也要拿下大油田”的糊涂言语，现实是拼命打下的大油田成了共匪的私家财产，成了共匪用来奴役人民盘剥百姓的利器，国际油价跌大陆油价也涨，国际油价涨大陆油价更涨；焦裕禄临终表总心“活着我没有治好沙丘，死了也要看着你们把沙丘治好”，现状是共匪污染破坏了960万平方公里的河山；“新愚公”李保国，35年坚守太行山，奋战在所谓脱贫攻坚和科技创新第一线，把毕生精力投入到山区生态建设和所谓科技富民事业之中，但他没有看到共匪朝令夕改地一会退林还耕一会又退耕还林地毁林毁塘毁宅毁民生，李保国成了名副其实的愚公。只要共匪不灭，共匪的洗脑机器就不会停，无数粉红牺牲自己的无谓付出就会层出不穷，最终沦为一个个笑话，辜负了自己，也愧对了父母。共匪只想让人民付出生命，也只会让人民付出生命，让百姓的牺牲为共匪暴政独裁提供强大力量，就是不为人民服务，现在还要喂人民服毒，喂全世界服毒。
 
-我干过多了不起的事
-Las cosas increíbles que he hecho
+崇尚真英雄才会产生真英雄，争做真英雄才能英雄辈出。纪念英雄最好的方式，就是学习英雄精神，汲取力量，传承使命，创造新的历史。伟大出自平凡，平凡造就伟大。只要有坚定的理想信念、不懈的奋斗精神，消灭共匪，解放被共匪吸血奴役的14亿同胞和被危害的75亿人类，一切平凡的人就可以获得不平凡的人生，属于我们每一个人的21世纪就会成为最不平凡的一个世纪；没有共匪的时代，一切平凡的工作就可以创造更加瞩目的成就，人类就会开启全新的文明时代。今天，新中国联邦人同全球所有崇尚正道的正义人士一起，在八九六四的英雄先烈为之战斗、为之牺牲、为之长眠的神州大地上，在75亿人口生生不息的地球上，地球儿女正意气风发地走在灭共的康庄大道上。新时代是需要真英雄并一定能够产生真英雄的时代，所有的假英雄与蝇营狗苟都在新中国联邦以及病毒疫苗真相的照妖镜前真假立现无处遁形。
 
-你要把我当成狗屎一样唾弃掉
-Debes escupirme como si fuera el excremento de un perro
+共匪不仅在全世界制造释放病毒强打毒疫苗，共匪本身就是地球上最大的病毒，值此清明之际，我们不仅缅怀八九六四中的英雄先烈，同时，让我们铭记一切为传播中共病毒和毒疫苗真相作出贡献的真英雄们，高擎英雄旗帜、弘扬英雄精神，在新中国联邦人用真善狠开辟的道路上不懈奋斗、消灭共匪、替天行正道，书写无愧于这个灭共时代的壮丽篇章。
 
-否则你们就是疯子
-Sino ustedes son unos locos
+**新闻链接：**
+[https://mr.baidu.com/r/E0YvTJJBle?f=cp&u=fdc5970d2138f9ac](https://mr.baidu.com/r/E0YvTJJBle?f=cp&amp;u=fdc5970d2138f9ac)
 
-我一定会让你们看到
-De seguro los haré ver
-
-新中国联邦人和未来的中国人
-Las personas del Nuevo Estado Federal de China y los futuros chinos
-
-拥有一个币
-Obtengan una moneda
-
-是任何人不能管的
-Que no será manipulada por ninguna persona
-
-而且是合法的, 中国人只有真正的
-Además, es legal; los chinos con sólo obtener verdaderamente
-
-拥有了自己的货币
-Su propia moneda
-
-和财富的掌握的权力
-Y el poder de tener la riqueza
-
-中国人才真的不会再占人家便宜
-De esta forma, los chinos no aprovecharán de los demás
-
-去抢那些打折的货
-No pelearán por aquellas mercancías en descuento
-
-抢人家要饭人的
-Ni robarán de los mendigos
-
-人家施舍的饭
-De la comida donada por otras personas
-
-不会在中国任何当官的
-No se convertirá en ningún tipo de funcionario en China
-
-任何老百姓
-Cualquier ciudadano
-
-任何有钱人都想免费拿点东西
-O cualquier rico que quiera algo gratis
-
-没有安全感
-No siente seguridad
-
-对财富没有真正的理解
-No entienden realmente lo que es la riqueza
-
-当你真正有一天财富在你手里边
-El día en que la riqueza está realmente en tus manos
-
-你有安全感的时候
-Cuando te sientas con seguridad
-
-通过劳动
-Mediante una labor
-
-任何情况都相信财富
-Bajo cualquier situación cree en la riqueza
-
-你私人财富不可掠夺
-Tu riqueza privada no puede ser saqueada
-
-从2017年爆料我说过
-Desde el año 2017 en el Movimiento de Denunciantes dije
-
-任何一个正常国家
-Cualquier país normal
-
-权力不能私有化
-El poder no se puede privatizar
-
-现在姓习太阳一家了
-Ahora toda la familia del sol Xi
-
-俄罗斯剩普京一个人的了
-Rusia queda solamente Putin
-
-所以说发生灾难
-Por eso ocurre un desastre
-
-财富不能公有化
-La riqueza no puede ser comunalizada
-
-谁的钱就是谁的
-El dinero le pertenece a quien lo tenga
-
-人类在走向一个灾难
-La humanidad se está dirigiendo hacia una catástrofe
-
-挣了钱被剥削
-El dinero que gana es explotado
-
-百分之五十, 七十的税收
-El 50%, 70% de impuestos
-
-二, 花钱的权力也被剥夺
-Segundo, el poder de gastar dinero también es robado
-
-土豆还有全世界
-Tudou y todo el mundo
-
-今天你看到的一样
-Lo mismo que ves hoy
-
-第三, 某种范围内使用
-Tercero, el uso dentro de un cierto ámbito
-
-使用的范围被剥夺
-El ámbito de uso es robado
-
-你就死定了
-Estarás muerto
-
-那么正义属于我们的前提
-Entonces la justicia pertenece a nuestra premisa
-
-是要靠实力
-Debe dependerse de la capacidad
-
-是要靠信仰和行动的
-Creencia y acción
-
-那就是我们一定要拥有铸币权
-Quiere decir que debemos tener el poder de elaborar moneda
-
-喜币还有未来的躺平币
-El H-coin y el futuro Tangping Coin
-
-一定是全世界上最稳定, 最安全
-Seguramente serán los más estables y seguros en todo el mundo
-
-最快捷, 最低成本, 永远不可剥夺
-Los más rápidos, de bajo costo y nunca serán robados
-
-的私人财富的创造者
-Del creador de la riqueza privada
-
-**原视频网址：**[https://gettr.com/post/p12al1w4ebc](https://gettr.com/post/p12al1w4ebc)
-
-日期：04/06/2022
-原视频标题：喜币让人真正实现劳动获得的财富不受掠夺
-El H-coin permite que las personas se den cuenta verdaderamente de la riqueza obtenida por el trabajo sin ser saqueada
-
-原视频日期：03/28/2021
-原视频网址：https://gettr.com/post/p12al1w4ebc
-任务编号：KC486（4113）
-视频时间段：0:00-2:07
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

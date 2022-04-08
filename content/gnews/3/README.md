@@ -2,30 +2,32 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2306672/)
+## 乌克兰再次呼吁东部民众撤离 俄军可能发动攻势
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2306737/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-2.jpg)乌克兰再次呼吁东部民众撤离 俄军可能发动攻势 网络图片
+据法国国际广播电台4月7日报道，俄罗斯入侵乌克兰6周后，开始撤离基辅和乌克兰北部地区。乌克兰总统泽连斯基指出，俄罗斯在集结兵力准备攻击乌克兰东部。乌克兰政府正在紧急撤离当地平民。乌克兰副总理韦列舒克宣布已和俄罗斯达成协议，开设10条安全通道。
+
+北约秘书长斯托尔滕贝格表示，俄军从乌克兰北部撤走，但并未离开乌克兰，而是重新集结和调动位置，未来可能在东部顿巴斯地区发动大规模攻势。北约正安排运送更多武器到乌克兰。
+
+乌克兰外交部长库列巴在北约外长会议上表示，”我来这里的原因很简单，只为了三件事，就是’武器、武器、武器’。”库列巴呼吁北约应向基辅提供与俄罗斯作战时所需的所有武器。库列巴表示，防止俄罗斯战争蔓延到乌克兰以外的唯一方法是给予他们最大的支持，包括最高制裁及所有武器。美国国务卿布林肯表示，美国将向乌克兰提供新型武器系统。
+
+俄罗斯撤离前在基辅周边的布查镇杀害了几百名乌克兰平民。乌克兰称这是俄罗斯犯下的战争罪，西方国家也因此对莫斯科开出了新一波制裁。普京发动的这场战争给俄罗斯、也给乌克兰整个国家和人民带来了巨大的灾难，更造成了世界范围内的粮食危机。战争依然在继续，更多的死亡和灾难还在源源不断地到来。美国和北约加强对乌克兰的军事援助和对俄罗斯新一轮的制裁，以期尽快结束战争。
+
+新闻参考链接：[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220407-%E4%B9%8C%E5%85%8B%E5%85%B0%E5%86%8D%E6%AC%A1%E5%91%BC%E5%90%81%E4%B8%9C%E9%83%A8%E6%B0%91%E4%BC%97%E7%B4%A7%E6%80%A5%E6%92%A4%E7%A6%BB-%E5%8C%97%E7%BA%A6%E9%A2%84%E6%96%99%E4%BF%84%E5%86%9B%E5%8F%AF%E8%83%BD%E5%9C%A8%E9%A1%BF%E5%B7%B4%E6%96%AF%E5%8F%91%E5%8A%A8%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%94%BB%E5%8A%BF](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220407-%25E4%25B9%258C%25E5%2585%258B%25E5%2585%25B0%25E5%2586%258D%25E6%25AC%25A1%25E5%2591%25BC%25E5%2590%2581%25E4%25B8%259C%25E9%2583%25A8%25E6%25B0%2591%25E4%25BC%2597%25E7%25B4%25A7%25E6%2580%25A5%25E6%2592%25A4%25E7%25A6%25BB-%25E5%258C%2597%25E7%25BA%25A6%25E9%25A2%2584%25E6%2596%2599%25E4%25BF%2584%25E5%2586%259B%25E5%258F%25AF%25E8%2583%25BD%25E5%259C%25A8%25E9%25A1%25BF%25E5%25B7%25B4%25E6%2596%25AF%25E5%258F%2591%25E5%258A%25A8%25E5%25A4%25A7%25E8%25A7%2584%25E6%25A8%25A1%25E6%2594%25BB%25E5%258A%25BF)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-校对：Stay文苑
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-发稿：Stay文苑
 
-新闻：[https://gettr.com/post/p144lucc8a9](https://gettr.com/post/p144lucc8a9)
-访谈：[https://gettr.com/post/p144i2se9a5](https://gettr.com/post/p144i2se9a5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

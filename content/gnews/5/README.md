@@ -2,18 +2,13 @@
 ---
 
 
-## ​​世界看到了在乌克兰发生的事情,司法部看到了在乌克兰发生的事情。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2306663/)
+## 美国宣布将对俄罗斯进行新一轮的毁灭性制裁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2306717/)
 
-作者：东京樱花团小视频组
+04/06/2022 美国宣布对俄罗斯寡头进行制裁，并对俄罗斯进行新一轮的毁灭性制裁
 
-司法部长梅里克-加兰宣布，司法部将支持国际社会努力调查乌克兰的潜在战争罪行
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

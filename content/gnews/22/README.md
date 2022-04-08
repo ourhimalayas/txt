@@ -2,46 +2,53 @@
 ---
 
 
-## 上海宝山区警察白卫兵摆拍送物资后装车全程被网上直播
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2306386/)
+## 谈古论今 | 上海防疫不是防疫是对内超限战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306465/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001_副本.png)
-据老皮匠Old Cowboy[@Jzzrb123](https://twitter.com/Jzzrb123)于[下午10:55 · 2022年4月7日](https://twitter.com/Jzzrb123/status/1512081585440317451)发布的推文
+撰稿：东京樱花团/谈古论今
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海正在上演“愚人节的狂欢剧”，一幕幕疯狂的、混乱的统治者没有人性的剧情；一帧帧无奈的、绝望的、发狂的草根市民的特写镜头，让天下人目瞪口呆，让活在温柔乡里无比惬意自豪的上海小资们顿感生无所恋——如此中国特色的封城灭疫，再次刷新了见怪不怪的我们对当今圣上的判断——知道他疯癫，知道他毁了香港有多疯癫，但是他竟然调转枪口要毁掉上海的超级疯癫，恐怕没有人能想到他会如此疯癫，你能有如此无底限的想象力那你也是疯癫！
 
-上海疫情黑警虚假送菜表演被当场直播出去。 [#上海疫情](https://twitter.com/hashtag/上海疫情?src=hashtag_click) [#中共疫苗病毒](https://twitter.com/hashtag/中共疫苗病毒?src=hashtag_click)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海防疫不是防疫是对内超限战.png)
 
+不过，有条哲学定律，“存在即合理”，就是说凡是存在的、发生了的事情，绝不是无理由的、偶然的，肯定有它的合理性。佛法讲因果关系，凡事必有因，有因必有果·。天下任何事情，你第一眼看到的都是表面现象，表与里是相辅相成的，只看到表面现象看不到事物的深处、本质，那就是一般人、凡人、俗人。你能透过现象看本质，你就不是一般人，而是二般人三般人。事物看得越深刻、越能看到的本质你的层次就越高。发生在武汉、西安、上海、吉林的“愚人节狂欢剧”，表面上看是愚蠢的统治者在疯狂地灭疫，你要是这样看这样去批评统治者，提出你很聪明的建议如何改善防疫的做法，那你就是个凡夫、愚不可及的凡夫。因为，你根本就不知道统治者为什么要这么愚蠢疯狂，你以为他仅仅是智商不如你，那，你就大错特错了。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海防疫不是防疫是对内超限战2.png)
 
-> 上海疫情黑警虚假送菜表演被当场直播出去。[#上海疫情](https://twitter.com/hashtag/%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85?src=hash&amp;ref_src=twsrc%5Etfw) [#中共疫苗病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%96%AB%E8%8B%97%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ekRHGjTsho](https://t.co/ekRHGjTsho)
-> — 老皮匠Old Cowboy (@Jzzrb123) [April 7, 2022](https://twitter.com/Jzzrb123/status/1512081585440317451?ref_src=twsrc%5Etfw)
+你应该多问几个为什么？只要你能提出问题，再能用合理的逻辑解析问题，你就能透过表面现象接近真相。例如：
 
+（1）新冠病毒到底是哪里来的？为什么全世界的政府都不敢也不想澄清新冠病毒来源的真相？并且，稍有提及要溯源新冠病毒来源，中共马上就气急败坏？而且，中共一发飙，各国政府就立马噤若寒蝉？
 
+（2）退一步讲，若干种廉价有效的老药，都是临床使用了几十年，安全性得到了充分验证了的老药，本来就可以低成本地治愈新冠病毒，能高效治愈当然就会有效地遏制扑灭新冠病毒，可全世界各国的政府出奇地步调一致，坚决不让使用这些老药？
 
-有菜不发给民众却要辛辛苦苦在现场摆拍再拉走，那就说明这一出戏要在多地重复上演，这样的戏要以警察和警车护送，并且貌似大白也与警察同属一窝，那就足以说明这出戏是演给警察的上级部门看的，目下之上海，警察可以决定谁上路谁不上路，警察也自然可以决定哪些物资可以进，哪些物资不可以进，在获得权力之余，再以这样的戏分证明警察充分实现了物资保障职能，这样整个戏就圆满了。
+（3）青蒿素衍生物就是新冠病毒的最佳克星，中国对于青蒿素的药理到临床应用诸多病症的研究长达三十多年，全世界有关青蒿素药物研究的论文，数量上70%都是中国人写的（论文质量高低、是否有抄袭的嫌疑，另当别论），为什么在中国不推广使用青蒿素用于各种疾病的治疗（明明廉价又高效）？为什么至今中共死活不用青蒿素抗疫？
 
-这出戏演得很好，但是人在做天在看，群众们都在看，不仅现场的群众们在看，我们远在千里万里之外的我们也在看，无论时下之上海还是时下之中国，高压之下的维稳和做秀的崩塌只需要一个火星引燃，这一刻会在什么时候到来？独裁者们不知道，上海人民不知道，全国人民不知道，但是这颗火星就在所有人心中，哪怕是羊逼急了也会去咬人，何况是人呢？
+（4）为什么全世界的政府，尤其是中共，白不提黑不提，一意孤行逼迫全民打疫苗，而中共的统治者和他们的亲属却不打疫苗？
 
-撰稿：喜马拉雅的肉夹馍；
+（5）核酸检测明明准确率低下，并且，用检测核酸的棉签投毒的犯罪行为已经败露，却压下不提，还是没完没了的史诗级别的做全民核酸？
 
-审核：喜马拉雅的馍夹肉；
+（6）无论方舱还是大规模核酸检测都是违反防疫法的和防疫常识的，结果只有一个：为造成集中感染扩大传播！你以为统治者是脑残低智商所为吗？
 
-校对：Maarago；
+这一切，你只有起码的智商都能明白：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+（1）新冠病毒不是源于自然，是人造的生物武器。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+（2）新冠病毒的全球流行，自然传播不是主要途径，必有其他途径。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+（3）强制打疫苗、做核酸不是依据防疫科学常识，而是人为设计的故意。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+（4）发生在中国各地的疫情全民封控，规模是史诗级别的，手段是极端的——网络舆情监控、天上有智能无人机、地上有脑残大白，无所不用其极，这哪里是常规防疫所应采取的手段？明明是以防止暴民蜂起的控制镇压军事演习。不用军人少用军人也能达到军事目的也是战争，是超限战。战争，不仅仅是对外才叫战争，镇压被自己统治的臣民也是战争，而且是更重要的战争。政权更迭的原因内斗多余外斗，历来如此！多年来，中国的维稳（对内镇压）预算远高于军事预算，不就是证明吗？这种对内的高压统治手段和理念，中共创下了历史新高——古今中外盖莫有能出其右者！无论上海防疫闹剧的政治背景是否传说的习江斗，在防民甚于防敌的理念上是中共统治阶级的共识，无论统治阶级哪一派掌权都要变本加厉地实施对内超限战。智者，切勿天真！
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海防疫不是防疫是对内超限战3.png)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
