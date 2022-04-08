@@ -2,39 +2,56 @@
 ---
 
 
-## 斯洛伐克宣布向乌克兰转让S-300防空系统
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2312062/)
+## 疫苗损害爆发，主流媒体猛然醒悟
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2312359/)
 
-根据总理爱德华·赫格（Eduard Heger）的声明，斯洛伐克周五（4月8日）宣布，这个北约成员国已经向乌克兰捐赠了S-300防空系统，以 “帮助其抵御俄罗斯的侵略”，这是一个极具挑衅性的声明。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-55.jpg)newsnpr.org
-斯洛伐克在北约的官方推特账户也证实，它正在 “加强对乌克兰的支持”，将 “S-300防空系统送到乌克兰，使其能够抵御俄罗斯的持续侵略。
+**疫苗接种灾难正在发生**
 
-斯洛伐克国防部甚至公布了似乎是一个移动的S-300装置正在准备并从一个军事基地撤出的视频。到目前为止，似乎只有一个单位将被交给乌克兰部队。
+作者：Claudio Casula/原文发布于2022年4月6日
+翻译：LK /校对:   Nena
 
-总理赫格曾表示，他的国家将前苏联时期的防御系统 “捐赠 ”给乌克兰。这一消息是在他与欧盟高级官员访问乌克兰首都时宣布的，当时正值与泽连斯基总统会面。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-4.jpg)图片：Shutterstock
 
-因此，鉴于S-300正是所需的主要设备类型，北约似乎正一点一点地朝着在乌克兰上空建立潜在的 “禁飞区 ”迈进。考虑到这一最初有点象征性的第一步，俄罗斯的反应无疑将是激烈的。
+“疫苗接种无副作用”（卡尔-劳特巴赫）的神话正在我们眼前灰飞烟灭。值得一提的是，自2020年11月以来，医生和科学家一直在报告Covid“疫苗接种”的无效性和危险性，如[Dr. Gunter Frank](https://www.achgut.com/artikel/bericht_zur_coronalage_millionen_deutsche_wegen_impffolgen_beim_arzt)、 [Dr. Jochen Ziegler](https://www.achgut.com/artikel/erzeugen_die_zugelassenen_impfstoffe_einen_nettoschaden)和 [Dr. Andreas Zimmermann](https://www.achgut.com/artikel/warum_werden_corona_geimpfte_so_krank)。
 
-美联社注意到，这是对泽连斯基敦促西方对乌克兰上空的俄罗斯飞机设立禁飞区的直接回应。
+早期，他们警告说不要盲目相信政府的疫苗宣传，并呼吁广泛记录疫苗的副作用。如Ziegler博士所写（[schrieb](https://www.achgut.com/artikel/impffolgen_wieviele-wird_es_treffen)）：
 
-泽连斯基在上个月通过视频与美国立法者谈话时提到了S-300的名字，呼吁建立防御系统，让乌克兰对俄罗斯战机和导弹 “关闭天空”。
+*“如果对疫苗接种的中长期影响的担忧得到证实，我们很可能在2021年12月至2022年12月（疫苗接种运动开始后一到两年）面临人道主义危机。如果每一千名接种者有一人因接种疫苗而患重病，那么与COVID“大流行”相比—我们将面临真正的社会医疗紧急情况。*
+*对于那些出于对国家和媒体信息的信任而接种疫苗的受害者来说，还将出现对国家及其机构的根本性的信任危机。因为在正常情况下和以前有充分依据的审批标准下，这些疫苗必须立即退出市场。”*
 
-这一行动也是在北约外交部长周四在布鲁塞尔举行会议之后发生的，据报道，他们同意向乌克兰提供 “新的和更重的武器”，尽管还没有界定考虑哪些确切的武器系统。
+现在，即使是主流媒体也不能再回避这一现象。起初，只有奥地利私人广播电视公司Servus TV报道了疫苗损害的案例（例如 [hier](https://www.servustv.com/aktuelles/v/aa-27juub3a91w11/) 和 [hier](https://www.servustv.com/aktuelles/v/aa-28a3dbyxh1w11/)），而最近，德国电视一台的plusminus节目（[die Sendung plusminus im Ersten](https://www.daserste.de/information/wirtschaft-boerse/plusminus/sendung/plusminus-maerz-impfschaeden-100.html)）勇敢地进行了报告–尽管非常、非常谨慎。 这主要是关于那些感到被政治和科学背弃的受害者。
 
-俄罗斯发誓，它已经准备好将任何从外部截获的外国武器运输作为 “合法目标 ”进行攻击。S-300的转让无疑将北约和俄罗斯带到了一个更直接的碰撞轨道上，目前还不清楚其他北约盟国在多大程度上同意了这种挑衅性的交付。
+**马尔堡：每天登记200至400个病例**
+事实上，关于大量和大规模疫苗接种损害的声音正在增加。例如，马尔堡的大学医院为接种新冠疫苗后出现副作用的病人设立了一个专门的门诊，每天收到200至400封邮件。等待名单已增至约800名患者。
 
-**快评**：这是零对冲4月8日早间的一篇报道【1】，让我们看到“北约与俄罗斯被带到了一个更直接的碰撞轨道上”。
+这期间，《柏林日报》发表了对柏林医生Erich Freisleben的采访([Interview mit dem Berliner Arzt Erich Freisleben](https://www.berliner-zeitung.de/gesundheit-oekologie/eine-impfpflicht-wuerde-das-tor-zum-missbrauch-weit-oeffnen-li.219816)) ，他的诊所几乎被有疫苗接种副作用的病人“占领”。早在2021年5月，Freisleben医生就经历过，一位62岁的原本健康状况良好的病人，但在接种新疫苗后，患上了肺栓塞、肠道凝血过程，最后是窦静脉血栓。死亡。Freisleben医生特别注意到两件事：几个月内未被发觉的凝血过程，以及特殊形式的自身免疫过程。
 
-与此同时，零对冲还发表了另外两篇文章【2】、【3】，关注的是芬兰和瑞典这两个长期对北约保持中立的国家，最近因为俄乌战争的影响而迫切要加入北约，北约也表示可以通过快速通道让它们达成。
+那些抱怨头晕、皮肤症状、关节刺痛和严重疲劳，并认为与接种疫苗有关的人一致表示，医生没有重视他们反映的情况。硬说他们的这些抱怨是心理上的或想象的。他们应该“不要小题大做”。
 
-显而易见，俄乌之战正在彻底改变欧洲的政治形势。加上法国、匈牙利等都面临着大选，尘埃落定后，郭先生说，一个以乌克兰为中心的欧洲将崛起，俄罗斯将被解体。那北约呢，北约如何发展呢？我们拭目以待。
+Freisleben医生介绍说，病理学家在尸检的尸体中发现了大规模的自身免疫反应。很明显，这些刺突蛋白并不像人们假设的那样在两天内被分解，而是存留在血管里，导致免疫系统引起轻微的炎症。
 
-参考链接：
-【1】[https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine](https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine)
-【2】[https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament](https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament)
-【3】[https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast](https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast)
+**德国有一百万人受到影响？**
+据Freisleben医生说，疫苗副作用的数量远远超过了长期新冠患者的人数：“我有八个病人正在接受治疗，他们患有严重的持续的长期新冠病症。如果我减去因疫苗接种副作用而专门来找我的病人，我的常来病人中就有40名有严重疫苗接种副作用。他们无法工作，并且出现严重限制其生活的症状。” 他估计有严重的疫苗接种副作用的病例为3%。仅在德国，这将影响超过一百万人。
 
-**编译 发布：意大利罗马达芬奇农场Roma**
+*“在35年的行医生涯中，我见过的疫苗副作用可能有五到六种。对于这种新型疫苗，我现在已经数到了96种副作用。这是不相称的。”*
+
+人们必须要认识到，我们面对的是一种全新的疫苗接种技术，其研发速度太快了。必须仔细的记录副作用，并对其产生的原因进行调查。我们尚不清楚的是，mRNA疫苗会对我们的免疫系统产生什么影响。
+
+**明确反对强制接种疫苗**
+Freisleben医生解释说，不仅在德国，医学专业人员并未大声疾呼，而是坚决固执地执行接种疫苗的议程，作为摆脱大流行病的唯一途径，禁止质疑的声音，以免降低接种疫苗的意愿。这位医生明确表示反对强制接种疫苗也就不足为奇了。这是“对人体的严重侵犯”，此外，未接种疫苗的人比接种疫苗的人更危及他人，显而易见这是错误的。
+
+纳粹主义时代的经验—医生和律师在当时的纳粹计划中发挥了主导作用–禁止对自决权网开一面。偏离《基本法》就意味着，没有吸取历史的教训。
+
+此外，Freisleben医生担心，少数全球参与者的金融权力会造成灾难性影响，这些参与者大多来自制药业，而制药业为世卫组织提供了80%的资金：“强制接种将为滥用疫苗大开方便之门。”
+
+**简评：** 
+关于新冠疫苗接种和即将产生的灾难，郭文贵先生和全世界一部分有良知的医生和科学家早已对此提出警告。但从超速研发出的“新冠神疫苗”问世后，几乎所有的国家都在想方设法推行“神疫苗”的接种，把它作为解决大流行病的唯一途径，并对那些确有疗效的药物进行禁止和打压。
+即将发生的大规模新冠疫苗副作用会使社会陷入人道主义危机。对那些听了所谓的“主流媒体”的宣传，有恐政府部门所制定的一系列对未接种者的惩罚措施，而接种疫苗的受害者来说，还将出现对政府和政客们及其机构的根本信任危机。
+
+原文链接：[https://reitschuster.de/post/impfschaeden-explodieren-der-mainstream-erwacht-unsanft/](https://reitschuster.de/post/impfschaeden-explodieren-der-mainstream-erwacht-unsanft/)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+
 
  
 

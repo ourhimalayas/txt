@@ -2,23 +2,21 @@
 ---
 
 
-## 加拿大阿省首席卫生执行官被免职
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312600/)
+## 马斯克被任命为 Twitter 董事会成员
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312625/)
 
-作者：加拿大温哥华扬帆农场-薇文
+作者：加拿大温哥华扬帆农场-重生之鹰
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-873.png)图片来源：TNT
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-875.png)图片来源：TPM
 
 
-加拿大[国家电讯报]网络媒体4日报道，阿尔伯塔省医疗卫生服务系统(AHS)的首席执行官维尔纳·姚4日被解雇，原因是疫情期间对该系统管理不善。
+执行官帕拉格·阿格拉沃尔在4月5日的一则推特上宣布，“我们将任命特斯拉和SpaceX的创始人兼首席执行官埃隆•马斯克为董事会成员。通过最近几周与埃隆的对话，我们清楚地认识到，他将为我们的董事会带来巨大的价值。”
 
-阿省政府在应对大疫情期所表现的专横霸道，其中一个方面就体现在住院和ICU病床数量的种种劣迹。系统的病床数据不断被篡改，错误的数据使阿省的医疗系统显得始终处于不堪重负的崩溃边缘，而实际上政府的医疗资源却未充分利用。
+马斯克在回应阿格拉沃尔时表示，他“期待与帕拉格公司合作”。Twitter董事会将在未来几个月对Twitter做出重大改进。马斯克强调言论自由对一个运转正常的民主制度至关重要。
 
-维尔纳·姚的另一件丑闻是，她试图暂停和解雇系统内2.6万多名未接种疫苗的 “临时工”，以实现疫苗高接种率目标。媒体曝光后才有所收敛。她似乎只服务于阿省的新民主党和护士工会，使疫情看起來像是一个需要更严格封锁和限制才能解决的问题。
+此前，一份提交给美国证券交易委员会(sec)的文件显示，马斯克现在持有该公司9.2%的股份，随后他成为了Twitter的最大股东之一。据《市场观察》报道，马斯克的董事会任期将于2024年到期。
 
-阿省医疗保健系统需深入改革，用更少的管理人员和更多的独立医生来改善医疗服务。
-
-新闻链接：[Dr. Verna Yiu Has Been Removed As Alberta Health Services CEO](https://thenationaltelegraph.com/regional/breaking-dr-verna-yiu-has-been-removed-as-alberta-health-services-ceo)
+链接：[https://thepostmillennial.com/breaking-elon-musk-twitter-board](https://thepostmillennial.com/breaking-elon-musk-twitter-board)
 
 编辑发稿：硫酸羟氯喹64
 

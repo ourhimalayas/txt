@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 11:09 PM (UTC)`
+
+<br/>【Ukraine Rescue】04/05/2022 The Belgium Uighur, Xiao Su and his family fled China, but many of his relatives and friends remain in concentration camps and have lost contact. He says that man would eventually die and should live meaningfully, and that he is about to go up to the Ukrainian front to fight in the foreign legion. He heard about the NFSC from the Internet and is glad that some people finally stand up and fight for justice. He says that there are many smart people within the walls of China, but they are unwilling and afraid to stand up. He calls for standing on the side of justice.<br/><br/>【乌克兰救援】04/05/2022 比利时的维吾尔人小苏，虽然一家人逃离了中国，但很多亲人朋友仍关在集中营失去了联系。他说人终有一死，应该活得有意义，他即将作为外国军团上乌克兰前线作战。他从网络上听说了新中国联邦，感慨终于有人站出来为正义而战。他说墙内很多聪明人，只是不愿、不敢站出来，他呼吁站在正义一边。
+![img](https://media.gettr.com/group48/getter/2022/04/08/23/7c29c53b-3cae-4811-ec66-97f8636fd538/out.jpg)
+
+---
+
+`@miles 4/8/2022 11:01 PM (UTC)`
+
+2022.04.08 NFSC News   Miles on the Importance of the Rule of Law
+![img](https://media.gettr.com/group45/origin/2022/04/08/23/d6433b9e-3786-5487-dae1-29fe03856c39/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/8/2022 10:51 PM (UTC)`
 
 4/8/2022 Ukraine Rescue: Fellow fighters who contracted the virus have all turned negative in tests, and we are all grateful to our medical team for meticulously caring for the sick ones. Every aspect of the rescue camp has been significantly improved compared to what we had at the beginning. Fellow fighters are taking good care of the refugees at every moment, making everyone very grateful for the Rule of Law Foundation and the New Federal State of China. Although it is our first time to participate in the rescue operation, we keep growing and improving!<br/><br/>4/8/2022 乌克兰救援连线: 染病的战友们都已转阴，大家对医疗团队无微不至的关照充满感激！救援营地各方面都比最初有了很大改善，战友们时刻都在细心照顾难民，这让大家非常感恩法治基金和新中国联邦！我们虽是第一次参加救援，但都在不断成长和进步！<br/>
@@ -138,20 +152,6 @@ A Danish Christian volunteer: The CCP have been killing His people for years but
 
 【Ukraine Rescue】 04/05/2022 Nicole introduces to Czech radio reporter Estelle that the Chinese tent in Medyka is not from Communist China, but from the NFSC, which is committed to eradicating the CCP; in addition to this humanitarian rescue operation, we are trying to break the CCP's censorship and provide truthful information to people in China who have been severely brainwashed by the CCP's propaganda, freeing them from the fear of CCP coercion.<br/><br/>【乌克兰救援】 04/05/2022 妮可向捷克电台的记者艾斯黛介绍梅迪卡的中国帐篷并非来自共产主义中国，而是来自于致力于铲除中共的新中国联邦；除了此次人道主义救援行动外，我们还试图打破中共的审查制度，向中国境内被中共宣传严重洗脑的人们提供真实的信息，把人们从中共胁迫的恐惧中解放出来。<br/>
 ![img](https://media.gettr.com/group31/getter/2022/04/08/10/e6d069c9-12c2-0d97-7312-59d2d4a1ae17/out.jpg)
-
----
-
-`@miles 4/8/2022 4:58 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group41/origin/2022/04/08/04/25c7d660-29b5-03b2-0a15-eadff7f86101/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 3:04 AM (UTC)`
-
-2022-4-7《鸡血王喜币大作战》 第一百五十八集 嘉宾：青藤、文空
-![img](https://media.gettr.com/group32/origin/2022/04/08/02/f3e8a65e-b2bf-453d-3b30-8471ea63b82d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

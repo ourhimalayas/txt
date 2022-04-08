@@ -2,49 +2,50 @@
 ---
 
 
-## 美国法院恢复拜登政府对所有联邦雇员的疫苗强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2312066/)
+## 中共国利用人工智能软件提高其监控能力（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2312404/)
 
-作者：纽约香草山农场 – 四季
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-17.jpg)
+中共国在2015-2020年的一场被称为“天眼”的运动中用监控摄像头覆盖了城市，并正在努力在农村地区开展同样的工作。“一人一档”软件的开发和采用也是在同一时间开始的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+研究员Ohlberg说，她所看到的关于一人一档的最早提法是2016年，在新疆沙湾县的一份200页的监控可行性研究报告中，该报告旨在获取一个能够“自动识别和调查参与恐怖主义和（威胁社会）稳定的关键人物”的计算机系统。沙湾县的一位官员拒绝发表评论。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-869-edited.png)*2017年10月11日，在北京的公司办公室，识别人和车辆细节的SenseTime监控软件作为演示运行*
+图片来源：路透社
 
+2016年，中共国当时的国内安全主管孟建柱在一份国营杂志上写道，大数据是寻找犯罪模式和趋势的关键。两年后，时任国营中国科学院生物识别与安全技术研究中心主任的李子清在给行业高管的演讲中提到了该系统。李子清也是北京面部识别公司AuthenMetric的首席科学家。该研究中心和AuthenMetric都没有回应评论请求。
 
+“大数据（应用于）安全的最终核心技术是一人一档”，根据当地媒体公布的演讲稿和AuthenMetric的微信公众账号上分享的内容，李克强在2018年深圳的一个人工智能论坛上的演讲中说。
 
+孟晚舟在2016年领导的党的政法委拒绝发表评论。无法联系到孟晚舟进行评论。李克强没有对置评请求作出回应。
 
-据[网关专家](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)4月7日的报道，美国拜登总统要求所有联邦雇员接种COVID-19疫苗的规定当日得到了联邦上诉法院的支持。
+这个行业发展很快。到2021年，华为、Sensetime和其他26家中共国科技公司已经向世界知识产权组织提交了文件归档和图像聚类算法的专利申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/blob-1.jpeg)[图片来源](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)
+2021年，华为的一项“人物数据库分区方法和设备”的专利申请提到了一人一档，其中提到“随着未来智能相机的普及，一个城市中拍摄的面部图像的数量将增长到每年数万亿张”。
 
-在一项2-1的裁决中，第五巡回上诉法院的一个小组推翻了下级法院的裁决，并下令驳回了一项挑战该强制令的诉讼。这是政府在新奥尔良上诉法院的一次罕见胜利。裁决称联邦法官对该案件没有管辖权，那些挑战该要求的人可以根据公务员法寻求行政补救措施。
+路透社分析的50份投标书对如何使用该软件给出了不同程度的细节。
 
-早在去年1月，布朗法官阻止了拜登政府对联邦雇员的最后一次疫苗强制令。政府认为，宪法赋予总统作为联邦工作人员的最高领导，与私营企业的首席执行官一样，有权力要求员工接种疫苗。
+一些投标书提到，“一人一档”是监视系统所需项目清单中的一个条目。其他人则给出了详细的描述。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+其中九份标书指出，该软件将与面部识别技术一起使用，文件指出，该技术可以识别路人是否为维吾尔族人，与警方的预警系统相连接，并建立维吾尔族人面孔档案。
 
-编辑/校对/发稿：小鹿
+例如，2020年2月，负责东南部海南省某地区的党政机关发布了一份招标书，要求建立一个维吾尔族和藏族居民数据库，以方便“查找参与恐怖主义的人员信息”。
 
+海南当局没有对评论请求作出回应。
 
+有十多份投标书提到需要打击恐怖主义和“维护稳定”，人权活动人士说，这个包罗万象的术语经常被用来镇压不同意见。
 
-**更多资讯，更多关注**
+至少有四份投标书说，该软件应该能够从个人的社交媒体账户中提取信息。一半的投标书说，该软件将被用于汇编和分析个人详细资料，如亲属、社交圈、车辆记录、婚姻状况和购物习惯。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻来源：[https://nypost.com/2022/04/08/china-uses-ai-software-to-improve-its-surveillance-capabilities/](https://nypost.com/2022/04/08/china-uses-ai-software-to-improve-its-surveillance-capabilities/)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+审核：Aries的星
+校对：阿伯塔
+发布：小东
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

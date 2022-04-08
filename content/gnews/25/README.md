@@ -2,46 +2,39 @@
 ---
 
 
-## 中共国面临最严重的经济瘫痪和最高的投资风险 （二）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311869/)
+## 斯洛伐克宣布向乌克兰转让S-300防空系统
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2312062/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/14.jpeg)图片了来源：美联社
+根据总理爱德华·赫格（Eduard Heger）的声明，斯洛伐克周五（4月8日）宣布，这个北约成员国已经向乌克兰捐赠了S-300防空系统，以 “帮助其抵御俄罗斯的侵略”，这是一个极具挑衅性的声明。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-55.jpg)newsnpr.org
+斯洛伐克在北约的官方推特账户也证实，它正在 “加强对乌克兰的支持”，将 “S-300防空系统送到乌克兰，使其能够抵御俄罗斯的持续侵略。
 
-【接上篇：[中共国面临最严重的经济瘫痪和最高的投资风险 （一）](https://gnews.org/zh-hans/2311832/)】
+斯洛伐克国防部甚至公布了似乎是一个移动的S-300装置正在准备并从一个军事基地撤出的视频。到目前为止，似乎只有一个单位将被交给乌克兰部队。
 
-**原油价格，中共经济引擎的温度计**
+总理赫格曾表示，他的国家将前苏联时期的防御系统 “捐赠 ”给乌克兰。这一消息是在他与欧盟高级官员访问乌克兰首都时宣布的，当时正值与泽连斯基总统会面。
 
-根据期货市场记录的上周每桶原油接近100美元，跌幅高达8美元，这与上海的禁锢相吻合，尽管石油输出国组织暗示了生产状况，并不完全表示国际市场上原油供应的增加，用它来弥补俄罗斯原油出产的下降。
+因此，鉴于S-300正是所需的主要设备类型，北约似乎正一点一点地朝着在乌克兰上空建立潜在的 “禁飞区 ”迈进。考虑到这一最初有点象征性的第一步，俄罗斯的反应无疑将是激烈的。
 
-总部设在休斯敦的Lipow Oil Associates LLC总裁Andy Lipow说：“中共国的需求量大约是每天1500万桶，但这一数字因新冠疫情扩张而被大幅削减。”此外，3月17日至23日期间，俄罗斯的能源出口因战争而减半，促使阿拉伯联合酋长国（UAE）能源部长Suhail Al-Mazrouei警告说，卡特尔不会在5月份将产量提高到年初宣布的43万桶/日以上。
+美联社注意到，这是对泽连斯基敦促西方对乌克兰上空的俄罗斯飞机设立禁飞区的直接回应。
 
-能源市场的消息人士认为，需求的损失指向香港三角区的经济放缓，虽然香港目前没有被限制，但受到疫情的威胁，经济活动减少。同时，在沙特吉达的石油设施遭到袭击后，也门的胡塞武装又暂时停战，以及与伊朗达成核协议的前景，这将增加更多的原油供应。
+泽连斯基在上个月通过视频与美国立法者谈话时提到了S-300的名字，呼吁建立防御系统，让乌克兰对俄罗斯战机和导弹 “关闭天空”。
 
-房地产市场是投资者关注的主要焦点之一。在恒大案之后，这个由中央控制的房地产巨头的破产，在去年夏末释放的海啸之后仍有余震，虽然重组了业务，出现了新的大型信托，如MinMetals或Zhongrong，接管了房地产资产和项目，资金已超过2800亿美元，但他们远远没有能力覆盖该部门价值超过3.4万亿美元的负债，这都是恒大重组的一部分。
+这一行动也是在北约外交部长周四在布鲁塞尔举行会议之后发生的，据报道，他们同意向乌克兰提供 “新的和更重的武器”，尽管还没有界定考虑哪些确切的武器系统。
 
-在瑞银集团，他们强调了这一领域的风险，尽管砍掉项目的策略受到了银行和工业及企业集团的欢迎，避免不得不承担有毒的房地产资产，或者像过去的金融危机一样，制造坏银行。瑞银解释说，根本问题是金融系统和房地产市场没有完全恢复，而是保持着沉重的债务负担，既减少了贷款的数量和可靠性，又使沉浸在重组中的公司处于抵押贷款悬崖的边缘。这家瑞士投资银行承认，住房市场的活动已经下降。
+俄罗斯发誓，它已经准备好将任何从外部截获的外国武器运输作为 “合法目标 ”进行攻击。S-300的转让无疑将北约和俄罗斯带到了一个更直接的碰撞轨道上，目前还不清楚其他北约盟国在多大程度上同意了这种挑衅性的交付。
 
-“从中长期来看，投资策略将是相对限制性的”。即使北京政权“有助于减少经济、金融和商业压力”，这使我们想到销售和采购的“波动性”在6%和9%之间，在价格方面由于通货膨胀的振荡而更加难以量化，投资将下降超过3%。
+**快评**：这是零对冲4月8日早间的一篇报道【1】，让我们看到“北约与俄罗斯被带到了一个更直接的碰撞轨道上”。
 
-在Natixis的分析师看来，资本流向中共国的这种逆转有三个原因。首先是乌克兰战争在市场上释放的风险厌恶情绪，这种情绪主要集中在全球第二大经济体，在资本基金经理的观念中，新兴市场吸引优惠投资的能力似乎已经被淡化。“投资者不再像武装冲突爆发前那样，将中共国视为一个安全的市场”。其次，有传言称持有1400多亿美元中共国债券的俄罗斯投资者可能会出售其资产以寻求流动性。因为俄罗斯和中共国的主权收益率差已经从3月份的127个基点缩小到32个基点；最后，因为新阶段的禁锢增加了对资本市场的活力和演变的怀疑。
+与此同时，零对冲还发表了另外两篇文章【2】、【3】，关注的是芬兰和瑞典这两个长期对北约保持中立的国家，最近因为俄乌战争的影响而迫切要加入北约，北约也表示可以通过快速通道让它们达成。
 
-**参考链接：**[China combina la peor parálisis económica y el mayor riesgo inversor desde la gran pandemia](https://www.publico.es/internacional/crisis-energetica-china-combina-peor-paralisis-economica-mayor-riesgo-inversor-gran-pandemia.html)
+显而易见，俄乌之战正在彻底改变欧洲的政治形势。加上法国、匈牙利等都面临着大选，尘埃落定后，郭先生说，一个以乌克兰为中心的欧洲将崛起，俄罗斯将被解体。那北约呢，北约如何发展呢？我们拭目以待。
 
-* * *
+参考链接：
+【1】[https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine](https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine)
+【2】[https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament](https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament)
+【3】[https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast](https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast)
 
-审核：Aries的星
-校对：小东
-发布：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+**编译 发布：意大利罗马达芬奇农场Roma**
 
  
 
