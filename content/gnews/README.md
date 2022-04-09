@@ -15,47 +15,47 @@
 
 ---
 
-### [刮骨疗伤 新歌打榜（四）](/content/gnews/1/README.md)
+### [中共军事援助俄罗斯](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [台湾义工在救援前线加入德国农场（八）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [刮骨疗伤 新歌打榜（三）](/content/gnews/2/README.md)
+### [刮骨疗伤 新歌打榜（一）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [墙内奇葩：一家捡电子垃圾的高科技公司](/content/gnews/3/README.md)
+### [澳大利亚生活成本大幅上涨](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [墙内奇葩：一家捡电子垃圾的高科技公司](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [鲁比奥参议员推出《维吾尔政策法案》](/content/gnews/4/README.md)
+### [鲁比奥参议员推出《维吾尔政策法案》](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会决议：暂停俄罗斯在人权理事会的资格](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌克兰及其盟友指责俄罗斯袭击火车站造成50多人死亡](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [2022年4月9日《樱花快报》：俄罗斯火箭攻击乌克兰一座火车站 造成至少50人死亡](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国法院恢复拜登的联邦雇员COVID疫苗强制令](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌克兰重新控制博罗江卡 更多俄军暴行曝光（1/3）](/content/gnews/9/README.md)
+### [乌克兰重新控制博罗江卡，更多俄军暴行曝光（2/3）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年4月8日 大直播速记精萃](/content/gnews/10/README.md)
+### [联合国大会决议：暂停俄罗斯在人权理事会的资格](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [乌克兰及其盟友指责俄罗斯袭击火车站造成50多人死亡](/content/gnews/9/README.md)
+ ` 蓝莲花农场`
+
+### [2022年4月9日《樱花快报》：俄罗斯火箭攻击乌克兰一座火车站 造成至少50人死亡](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国法院恢复拜登的联邦雇员COVID疫苗强制令](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022年4月8日 大直播速记精萃](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [【G时新闻】蔡英文家人染疫，蔡本人将隔离至4月中旬](/content/gnews/11/README.md)
+### [【G时新闻】蔡英文家人染疫，蔡本人将隔离至4月中旬](/content/gnews/13/README.md)
  ` G-时新闻`
 
-### [4/8/2022 乌克兰救援连线：一家日本大电视台被新中国联邦乌克兰救援前线营地所吸引，主动对前线战友进行了近半小时的采访，我们的战友再次将灭共理念传向世界各国](/content/gnews/12/README.md)
+### [4/8/2022 乌克兰救援连线：一家日本大电视台被新中国联邦乌克兰救援前线营地所吸引，主动对前线战友进行了近半小时的采访，我们的战友再次将灭共理念传向世界各国](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
-
-### [美国与七国集团宣布对俄新制裁](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【G时新闻】乌克兰东部城市一火车站遭俄军火箭弹袭击，39人丧生](/content/gnews/14/README.md)
- ` G-时新闻`
 
 ### [COVID-19疫苗副作用集萃（2022.4.9）–康希诺疫苗慎打](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`

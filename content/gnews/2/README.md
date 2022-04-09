@@ -2,11 +2,11 @@
 ---
 
 
-## 刮骨疗伤 新歌打榜（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2313512/)
+## 台湾义工在救援前线加入德国农场（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2313549/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50-12-00-三--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-20-09-30-01（-八）.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**
