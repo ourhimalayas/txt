@@ -2,37 +2,42 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月8日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2311655/)
+## 中共国面临最严重的经济瘫痪和最高的投资风险 （一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311832/)
 
-作者：香草山翻译部
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/14.jpeg)图片来源：美联社
+全球GDP的引擎正显示出瓶颈的迹象。油价的下跌揭示没有表现出旺盛的需求，这部分也是由于北京严格的疫情动态清零政策引起的新的生产中断和更紧的信贷渠道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-12.png)
+在能源市场动荡的情况下，欧洲努力减少对俄罗斯的能源依赖，乌克兰战争陷入军事和战略僵局，美国每天从其战略储备中提供一百万桶以上的石油，石油输出国组织或多或少地发出隐晦的信息，表明淡化世界石油供应。因为，在这种回溯到20世纪70年代石油危机的旅程中，世界大工厂，这个地球上能源消费配额的通常温度计，已经减少了其能源需求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-7.png)
+在日本投资银行野村控股警告说：“今年5.5%的非官方增长正在受到质疑”，此前第十四个五年计划（2021-2025年）确定不设定任何具体的增长目标，中共国生产系统向内需的转变不可能达到近几十年来接近两位数的增长速度。野村更进一步的谈到，预计目前出现自2020年春季第一波新冠疫情出现以来最严重的经济放缓，提高了投资者的风险系数。专家在给投资者的一份说明中说：“股票投资组合应该更加关注中共国强烈的衰退活动”。
 
-文章仅代表作者本人观点，与Gnews无关
+中共国今年第一季度的GDP放缓已经令人担忧，而且在第二季度会更加剧烈，最大的下降“发生在3月份”，当时北京作为清零政策的一部分而颁布的限制流动性的禁锢。首先，作为技术硅谷和通往香港的桥梁——深圳，1750万居民完全禁锢，还有金融之肺上海，2500万居民不得不被隔离在家中。这两项决定将“使瘫痪蔓延到其他地区”，这将开始在“房地产行业”感受到，在商业投资中也将感受到，甚至会逐渐出现振荡的资金短缺。尽管中共中央银行自乌克兰战争爆发以来，首次下调了零点一个百分点，并且使利率保持在3.7%。
 
-视频参看：
-[2022.04.08早 《NFSC新闻》](https://www.gettr.com/streaming/p147km614d6)
-[2022.04.08早《NFSC新闻访谈》](https://www.gettr.com/streaming/p147opz0196)
+尽管在乌克兰战争爆发前消费表现良好，野村从年初的4.2%的年度预测调到2.9%，但野村冒险预测，这种放缓突然影响了服务业、建筑业和制造业等部门，这将使“到2022年实现5.5%的GDP增长目标变得困难，几乎不可能”。同样，对商业公司和工业集团的投资，将被迫应对价值链的新干扰、市场变得紧张和波动以及能源价格的飙升。近日，创下两年多来最高的传染程度。日本投资银行预计在未来两个月将再次降息，降幅为半个点，“以促进贷款的流动”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+在咨询公司Focus Economics也赞同这一观点。严格的Covid清零任务，包括股市、投资和贸易中心的香港，它已经看到东南亚港口之间的货物过境减少，从新加坡到韩国，提高了“对中共国和该地区其他国家经济”的威胁。克里姆林宫对乌克兰的军事干预引发的紧张局势，导致“海上瓶颈和价值链的瓶颈再次出现”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+物流危机和商业生产的瘫痪，以及冠状病毒的新传播，加上另一个地缘政治因素——乌克兰战争，增加了中共经济的脆弱性和风险，“可能导致中共国出现比去年夏天初更大程度的活力丧失的情况”，因为被封闭的城市“占全国GDP的30%以上，所有的这些城市的活动都有所减少，2022年经济扩张急剧放缓，在更大程度上影响商业投资，也影响私人消费，减少个人支出水平，以及失业，这将推高影子经济的比率”。
+
+【接下篇：[中共国面临最严重的经济瘫痪和最高的投资风险（二）](https://gnews.org/zh-hans/2311869/)】
+
+**参考链接：**[China combina la peor parálisis económica y el mayor riesgo inversor desde la gran pandemia](https://www.publico.es/internacional/crisis-energetica-china-combina-peor-paralisis-economica-mayor-riesgo-inversor-gran-pandemia.html)
+
+* * *
+
+审核：Aries的星
+校对：小东
+发布：信心的选择
 
 **更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-12.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
 
  
 

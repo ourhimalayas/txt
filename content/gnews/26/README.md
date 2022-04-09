@@ -2,37 +2,43 @@
 ---
 
 
-## 辉瑞数据显示新冠疫苗接种者患上亚临床心肌炎的风险很高
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2312673/)
+## 4/09/2022 银河快讯：日本外务省驱逐8名俄罗斯驻日外交人员；日本禁止从俄罗斯进口煤炭、伏特加等产品
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2312739/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-876.png)图片来源：Nature
-据《网关专家》（Gateway Pundit）和《Blaze Media》4月7日报道，根据美国食品药品监管局（FDA）应信息自由法（FOIA）要求公布的辉瑞新冠疫苗临床实验文件，FDA在批准辉瑞的实验性新冠疫苗时并没有提到该疫苗会对年轻人的心脏造成损伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/news6012150_50.jpeg)
+[图片来源](https://news.tbs.co.jp/newseye/tbs_newseye6012150.html)
 
-当公众在2021年早些时候发现心肌炎是新冠疫苗的一个副作用时，政府和媒体立即声称心肌炎的发病率极低，并公布了大量的劣质“研究”试图淡化此风险。比如《美国医学会杂志》（JAMA）去年10月刊登的一篇来自凯泽永久医疗集团(Kaiser Permanente)的论文称，每百万新冠疫苗接种者中，平均只有6.6人会患上心肌炎；另一项研究说，军队中的心肌炎发病率为五万分之一。但是，现在根据知情同意行动网络（Informed Consent Action Network）获得的辉瑞知情同意书（informed consent document），我们知道这个数字被严重低估了。辉瑞内部认为接种者患上心肌炎的概率可能高达1/1000。再细想一下，如果这只是该公司愿意承认的概率，那真正的发病率又会是多少。
+**1．日本外务省驱逐8名俄罗斯驻日外交官等人员**
 
-另外，接种者患上亚临床心肌炎（subclinical myocarditis，即无症状心肌炎）的概率又是多少呢？我们知道有许多人在接种疫苗后不久就患上心肌炎，但是那些现在仍处于亚临床心肌炎状态、可能需要数月甚至更长时间才会发现自己心脏受损的人又有多少呢？
+[据NHK 4月8日报道，就乌克兰局势，日本外交部宣布采取措施，驱逐俄罗斯驻日本大使馆的8名外交官和其他人员。8日，外务省副秘书长致电俄罗斯驻日本大使，表示“杀害如此多的平民是对国际人道主义法的严重违反，是战争罪，不可原谅，应受到严厉谴责”，并要求立即将所有俄罗斯军事部队撤出该地区。随后通知俄驻日使馆副秘书长，她将采取措施，将俄罗斯驻日本大使馆的总共8名俄罗斯外交官和俄罗斯贸易代表的官员驱逐出该国。](https://www3.nhk.or.jp/news/html/20220408/k10013573221000.html)
 
-《Blaze Media》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 4月7日发推说：“FDA曾要求辉瑞对天花疫苗接种者患上亚临床心肌炎的概率进行研究。FDA说接种者患上亚临床心肌炎的概率可能是临床心肌炎的 60 倍，辉瑞的数据显示亚临床心肌炎风险可能高达1/17。”
+**2． 日本对俄罗斯追加制裁，禁止进口煤炭、伏特加等产品**
 
+[据FNN报道，岸田首相在4月8日的新闻发布会上宣布了对俄罗斯的额外制裁。制裁措施包括：（1）禁止从俄罗斯进口煤炭；（2）对一些机械、木材和伏特加酒实行进口禁令；（3）禁止在俄罗斯进行新的投资；（4）对俄罗斯最大的银行Zberbank和Alfa Bank实行资产冻结；以及（5）对个人和公司实行资产冻结，其中400 近20个与军事有关的组织被宣布加入目标名单，其中包括近20名俄罗斯军事人员和议员。](https://news.yahoo.co.jp/articles/61d269bc82f2846270e2a771e02d54126584d5b9)
 
+**3． 东京燃气社长：萨哈林2号天然气购买打算继续**
 
-> The FDA demanded Pfizer conduct a study on sub-clinical myocarditis. They state it is potentially 60 times more common than clinical myo. According to pfizer's own numbers, that could be as low as 1 in 17! [https://t.co/nKRZvO84PA](https://t.co/nKRZvO84PA)
-> — Daniel Horowitz (@RMConservative) [April 7, 2022](https://twitter.com/RMConservative/status/1512075662109995019?ref_src=twsrc%5Etfw)
+[东京燃气公司总裁内田隆史接受读卖新闻采访时表示，来自俄罗斯远东萨哈林2号项目的液化天然气“如果进口停止，将导致城市燃气供应中断”，该公司将继续采购天然气以确保稳定供应。日本进口的液化天然气中，约有8%来自萨哈林2号。他说，根据供求关系买卖液化天然气的现货交易在数量上是短缺的，并称“试图从现货（代替俄罗斯生产）中全部购买，在物理上是不可能的”。由于液化天然气涨价，天然气价格将继续上涨。](https://news.yahoo.co.jp/articles/1a2e8e89aec87b2aac8d22e86f277df7be1bf9bd)
 
+**4．2月经常账户三个月首次出现盈余**
 
+[据NHK 4月8日报道，根据财务省发布的国际收支统计，今年2月日本的经常账户盈余为16483亿日元。这是三个月来日本首次录得盈余，但由于油价上涨和其他因素造成的进口增加，盈余比去年同月减少42.5%。显示从海外证券投资中获得的利息和红利的交换的主要收入余额为22,745亿日元，主要是由于2月份美国政府债券的利息支付，从而确保经常账户余额的盈余。](https://www3.nhk.or.jp/news/html/20220408/k10013572701000.html)
 
-2022年截至目前，在疫苗接种数量远少于去年的情况下，疫苗不良反应事件报告系统（VAERS）记录的心肌炎概率却比2021年平均增涨了245%。这是否源于新冠疫苗对接种者的长期影响开始显现，在去年患上了无症状心肌炎的接种者在今年才开始出现心肌炎症状，这是否也解释了为什么有越来越多的运动员在比赛场上突然倒下或者出现心脏不适、胸痛等健康问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-877.png)
-新冠疫苗是精心设计的大规模杀伤性武器，它的短期影响已经十分可怕，长期影响更是让人不寒而栗，不仅波及范围广，而且不会让人想到问题根源在于数个月甚至更久之前接种的疫苗。这里还只讨论了心脏，疫苗对大脑、神经系统、生殖系统以及肺、肝脏等人体重要器官的长期影响又是怎样的呢？无法想象当疫苗的长期影响开始显现时，人类会遭遇怎样的浩劫。正如郭文贵先生屡次强调的那样，现今世界没打疫苗就是最大的幸福，无苗族将拯救人类。
+**5．日清将提高商业用面粉的价格**
 
-*责编：白夜*
+[据NHK 4月8日报道，在乌克兰紧张局势和其他因素的背景下，政府出售的进口小麦价格大幅上涨，主要面粉制造商日清面粉厂已决定从今年6月起提高商业用小麦粉的价格。按每25公斤的价格计算，用于面包和其他产品的强筋面粉370日元；用于乌冬面和零食的中等强度和轻质面粉将被提高325日元。这是行业历史上第二大增幅。](https://www3.nhk.or.jp/news/html/20220408/k10013573081000.html)
 
-新闻来源：
+**6．消费者态度指数连续第三个月下降**
 
-[BREAKING REPORT… Naomi Wolf on War Room – FDA Failed to Mention Heart Damage to Teens When Approving Pfizer Vaccine (VIDEO)](https://www.thegatewaypundit.com/2022/04/breaking-report-naomi-wolf-war-room-fda-failed-mention-heart-damage-teens-approving-pfizer-vaccine-video/)
+[据NHK 4月8日报道，上个月的消费者态度指数表明消费者的购物意愿，比前一个月恶化了2.4点。内阁办公室分析了汽油和其他资源及原材料价格持续上涨的影响，以及俄罗斯入侵乌克兰导致的价格进一步上涨，这增加了未来的不确定性。因此，消费者情绪的基本基调被向下修正为“疲软的迹象”。这是连续第三个月下调主旨判断，也是自2020年4月以来的第一次。](https://www3.nhk.or.jp/news/html/20220408/k10013573131000.html)
 
-[Horowitz: What did Pfizer know and when? 3 important findings from recent document releases](https://www.theblaze.com/op-ed/horowitz-what-did-pfizer-know-and-when-3-important-findings-from-recent-document-releases)
+**【日本银河系农场-阿尔法星球】**
+
+素材：文德
+
+作者：帆間知津
+
+校对：windfish
 
  
 
