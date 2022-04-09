@@ -15,74 +15,74 @@
 
 ---
 
-### [俄罗斯失去联合国人权理事会的职务](/content/gnews/1/README.md)
+### [有声|美国法院恢复拜登政府对所有联邦雇员的疫苗强制令](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [大直播后记：大卫谈中共想续命就一定会攻打台湾](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [俄罗斯石油巨头俄罗斯天然气工业公司的网站被黑客攻击而瘫痪](/content/gnews/3/README.md)
  ` topnews`
 
-### [2022/04/08 文贵先生直播重点大纲](/content/gnews/2/README.md)
+### [美国会投票决定暂停与俄罗斯贸易关系并禁止进口其石油](/content/gnews/4/README.md)
+ ` topnews`
+
+### [俄罗斯失去联合国人权理事会的职务](/content/gnews/5/README.md)
+ ` topnews`
+
+### [2022/04/08 文贵先生直播重点大纲](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第6天登榜6国iTunes音乐榜首](/content/gnews/3/README.md)
+### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第6天登榜6国iTunes音乐榜首](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [DC大中华时事：外交部回应“俄被暂停在人权理事会席位](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [巴斯夫老板的巨大恐惧](/content/gnews/5/README.md)
+### [巴斯夫老板的巨大恐惧](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [习江斗点燃上海封控的火药桶](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
+### [清零](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
 
-### [俄方部署 &#8220;移动火葬场 &#8220;以掩盖行踪](/content/gnews/7/README.md)
- ` topnews`
-
-### [重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！](/content/gnews/8/README.md)
+### [重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [大直播后记：谈世界政治科技信仰的大变局](/content/gnews/9/README.md)
+### [大直播后记：谈世界政治科技信仰的大变局](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [上海疫情致更多全球供应链中断](/content/gnews/10/README.md)
+### [上海疫情致更多全球供应链中断](/content/gnews/12/README.md)
  ` topnews`
 
-### [大直播后记：嘉宾谈上海封城的原因](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [速报┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/12/README.md)
+### [速报┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|西方国家拟对俄罗斯实施新制裁](/content/gnews/13/README.md)
- ` MOSVIDEO`
-
-### [樱花时政┃德国强制老人接种新冠疫苗提案被否决](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12348录音:全员核酸非法&amp;疫苗致死&amp;痰液检测&amp;棉签有毒](/content/gnews/15/README.md)
+### [12348录音:全员核酸非法&amp;疫苗致死&amp;痰液检测&amp;棉签有毒](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [视频|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/16/README.md)
+### [视频|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/15/README.md)
  ` MOSVIDEO`
 
-### [视频|欧盟抵制以卢布交易俄罗斯天然气 匈牙利唱反调](/content/gnews/17/README.md)
+### [视频|欧盟抵制以卢布交易俄罗斯天然气 匈牙利唱反调](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [视频|北约同意向乌提供先进重型武器](/content/gnews/18/README.md)
+### [视频|北约同意向乌提供先进重型武器](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
-### [视频|再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处](/content/gnews/19/README.md)
+### [视频|再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处](/content/gnews/18/README.md)
  ` MOSVIDEO`
 
-### [视频|我们要把中国人从被中共胁迫的恐惧中解放出来](/content/gnews/20/README.md)
+### [视频|我们要把中国人从被中共胁迫的恐惧中解放出来](/content/gnews/19/README.md)
  ` MOSVIDEO`
 
-### [“布查大屠杀”在中共国社交网站上掀起波澜，“都到了2022年&#8230;&#8230;”](/content/gnews/21/README.md)
+### [“布查大屠杀”在中共国社交网站上掀起波澜，“都到了2022年&#8230;&#8230;”](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：乌克兰表示俄罗斯攻击避难火车站已致至少50人死亡](/content/gnews/22/README.md)
+### [秘翻在线：乌克兰表示俄罗斯攻击避难火车站已致至少50人死亡](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：乌克兰表示俄罗斯为隐瞒战死者规模拒绝接收本国军队尸体](/content/gnews/23/README.md)
+### [秘翻在线：乌克兰表示俄罗斯为隐瞒战死者规模拒绝接收本国军队尸体](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [可怕的现实：近期致命的突然死亡何其多](/content/gnews/23/README.md)
+ ` xiaobaige`
 
 ### [基金投资管理是合并还是分销更好](/content/gnews/24/README.md)
  ` 走进澳洲`

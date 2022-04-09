@@ -2,76 +2,34 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第6天登榜6国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2317277/)
+## 俄罗斯石油巨头俄罗斯天然气工业公司的网站被黑客攻击而瘫痪
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2317440/)
 
-4/9/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第6天iTunes打榜记录：
-**《灭共的雪》**
-柬埔寨热门歌曲榜第3名
-5国摇滚歌曲榜第1名
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1015.png)
 
-**《铁锁梦》**
-2国热门歌曲榜前3名
-2国流行歌曲榜第1名
+（图片来自原文）
 
-* * *
+2022年4月6日周三，俄罗斯国家天然气公司（OAO Gazprom）的石油部门Gazprom Neft的网站被黑客攻击后瘫痪。
 
-[【New-Songs】Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+这是俄罗斯入侵乌克兰后，黑客对俄罗斯政府相关网站的最新一次攻击。
 
-* * *
+一份黑客版本的声明在该公司网站上短暂显示后不久，Gazprom Neft网站就停止了运作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
+该声明显示，据称来自俄罗斯天然气工业股份公司首席执行官阿列克谢-米勒Alexie Miller（普京的密友）对俄罗斯决定向乌克兰派遣数千名军队发表了批评意见。
 
+俄罗斯天然气工业石油公司说，4月6日上午在网站上发布的声明是不真实的，不能被视为公司代表或股东的官方声明。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+上个月，米勒敦促俄罗斯天然气工业股份公司的50万名员工支持克里姆林宫，在面临紧迫的外国制裁时保持俄罗斯的重要大国地位。
 
+Gazprom Neft是俄罗斯第三大石油生产商，是俄罗斯天然气工业股份公司的子公司。俄罗斯国家天然气公司拥有Gazprom Neft 95%的股份，其余股份在证券交易所上市。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+上个月，多个乌克兰新闻网站被俄罗斯威胁者入侵，让访问者看到了 “Z “符号。乌克兰国家特别通信和信息保护局在一篇网帖中证实了这一事件，并将责任归咎于俄罗斯的国家支持者。
 
+新闻来源链接：[https://www.infosecurity-magazine.com/news/russian-oil-gazprom-neft-hack/](https://www.infosecurity-magazine.com/news/russian-oil-gazprom-neft-hack/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_54.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59-1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_72.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+本文作者：Rebecca (一切心皆不可得！) 
+上传排版：Hong
 
  
 
