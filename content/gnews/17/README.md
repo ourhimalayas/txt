@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|普京病重迷信医学偏方 洗鹿茸浴希求长生不老
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318410/)
+## 美国银行警告：经济衰退要来
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2318416/)
 
-配音：香草山商业部——文锤
+编辑：文宝
 
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间4月8日，美国主要金融机构之一美国银行发出警告称，随着美联储收紧货币政策以遏制飙升的通胀，宏观经济形势正迅速恶化，美国经济或将陷入衰退之中。
+
+据美国《财富》杂志及路透社报道，美国银行首席投资策略师迈克尔·哈奈特（Michael Hartnett）在8日发给客户的一份投资报告中称，“通胀总是先于衰退”，而为控制通胀而实施的更紧缩的货币政策很可能会引发“衰退冲击”。![美国《财富》杂志报道截图](https://n.sinaimg.cn/sinakd20220409s/409/w1779h230/20220409/6cc0-6a81c87acebc5960e4eeef01acab81e5.png)**美国《财富》杂志报道截图**
+
+“‘通胀冲击’（Inflation shock）正在恶化，‘利率冲击’（rates shock）刚刚开始，而‘衰退冲击’（recession shock）即将到来。”哈奈特还表示，在这种情况下，现金、波动性、大宗商品和加密货币可能会跑赢大盘债券和股票。
+
+美国银行（BofA）是现今美国第二大银行机构，为全美超过10%的银行存款提供业务服务。
+
+美联储6日公布了3月份货币政策会议纪要。其中显示，为缓解美国高居不下的通胀水平，美联储可能在5月初开始缩减资产负债表，规模最高可达到每月950亿美元；同时实施更加紧缩的货币政策，加息幅度和速度或远超以往，可能达到数次50个基点。![当地时间2022年3月20日，美国首都华盛顿特区，美联储大楼。图自视觉中国](https://n.sinaimg.cn/sinakd20220409s/211/w2048h1363/20220409/d858-bad8c258dfa65e0fe7c0891f2e551d85.jpg)**当地时间2022年3月20日，美国首都华盛顿特区，美联储大楼**
 
 
 
-
-
-福克斯新闻4月7日报道，《Proekt》杂志的最新调查发现，俄罗斯总统普京近期可能病得很重——至少他非常担心自己的健康，也许还忙于延缓衰老。该报告称，在最近的四年里，一名甲状腺癌专家与俄罗斯总统普京进行了35次会面，与他共度了166天。据了解，在普京神秘地离开公众视野的较长时间里，这位医生并非是唯一一位前往过普京远离克里姆林宫的静修所的人。
-
-《Proekt》杂志编辑罗曼·巴达宁告诉福克斯新闻称，一直以来，俄罗斯的宣传创造了一个100%健康、体育成瘾的总统形象。突然间，我们却发现真实的普京已经被医生包围了，“我们总共有60名医生，他们每次都同普京一起出行，例如，当他前往黑海度假时。
-
-与此同时，《Proekt》杂志还反映出年老的普京对医学偏方的迷恋。据其称，普京曾对在阿尔泰地区的鹿角血浴很感兴趣。他本人至少已尝试过一次这样血腥的沐浴。
-
-《Proekt》杂志称，自普京第二任期以来，他就试图永远活下去，永远维持独裁统治。目前，年逾70岁的他，虽比他的任何一位前任都显得年轻，却在身体和心理上都已经出现了很多严重的问题。
-
-文字版原文：[普京病重迷信医学偏方 洗鹿茸浴希求长生不老](https://gnews.org/zh-hans/2308789/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+原文链接：[https://finance.sina.com.cn/stock/usstock/c/2022-04-09/doc-imcwipii3324104.shtml?cre=tianyi&mod=pcpager\_fin&loc=20&r=0&rfunc=18&tj=cxvertical\_pc\_pager\_spt&tr=164](https://finance.sina.com.cn/stock/usstock/c/2022-04-09/doc-imcwipii3324104.shtml?cre=tianyi&amp;mod=pcpager_fin&amp;loc=20&amp;r=0&amp;rfunc=18&amp;tj=cxvertical_pc_pager_spt&amp;tr=164)
 
  
 
