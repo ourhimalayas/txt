@@ -2,34 +2,43 @@
 ---
 
 
-## 瑞典欲加入北约
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316379/)
+## 突发：上海一名防疫志愿者被现场民众殴打致死
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2316444/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者: 香草山教育部 – Noemi
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0154.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-图片来源：路透社
 
-如果邻国芬兰申请加入北约，瑞典第二大反对党的领导人将建议他的政党改变立场，支持瑞典加入北约。
 
-瑞典民主党改变立场将意味着议会多数席位转向支持长期中立的瑞典加入联盟。
 
-俄罗斯入侵乌克兰促使两国考虑加入，尽管瑞典比与俄罗斯有 1,300 公里边界的芬兰更犹豫不决。
+当地时间4月6日，有墙内网友爆料，中共上海市一名防疫志愿者在维持秩序期间，因与现场一名民众发生言语冲突而后被其殴打致死。
 
-芬兰政府已表示将在未来几周内澄清有关可能决定寻求会员资格的后续步骤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-04-2022-1.jpg)图片来源于网络
 
-民族主义瑞典民主党上个月表示，在一项民意调查显示大多数瑞典人首次支持加入北约。
+现场视频显示，多人正在对地上的一名65岁的老年男性进行抢救。当日下午，上海市静安区公安分局就此事件发布出通报称，被打老人是在维护核酸检测秩序时与现场的一名民众发生了肢体冲突，被现场群众拉开后，这位老年志愿者就已经倒在地上了，后经医院抢救无效后死亡。
 
-简评：俄罗斯入侵乌克兰的事实，以及俄罗斯在乌克兰杀戮平民的罪恶， 让北欧的芬兰和瑞典也不得不考虑自己的安全， 独自对抗俄罗斯身单力薄， 希望能够加入北约。 尤其是芬兰有1300公里和俄罗斯交界， 安全隐患让国民觉醒。 北欧国家要改变中立的立场， 对北约来说当然是好事。 北欧国家虽然是欧盟成员，当时不是北约防御盟国， 为了自己的安全该做出正确的选择了。
+据知情人士称，施暴者年仅23岁，还与这名老年志愿者存在亲属关系，因排队迟到、乱丢垃圾等问题被该名志愿者当场教育，而后两人便升级为肢体冲突，随后惨剧便发生了。
 
-🔗 [https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/](https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/)
+截止目前，这名施暴者已被中共警方采取刑事强制措施，而案件还在进一步审理当中。
 
-编辑发表： Shuizhuyu
+相关链接:
+
+[https://www.gettr.com/post/p13uzi30da4](https://www.gettr.com/post/p13uzi30da4) （视频） [http://www.dzwww.com/xinwen/guoneixinwen/202204/t20220406\_10064207.htm](http://www.dzwww.com/xinwen/guoneixinwen/202204/t20220406_10064207.htm)
+
+![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
  
 

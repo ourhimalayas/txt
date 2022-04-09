@@ -2,38 +2,42 @@
 ---
 
 
-## 标普将俄罗斯外汇评级下调至“选择性违约”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316523/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316666/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+整理：枳实
+美工：精灵蓝
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/6HSUBGJJ7NNFXMEGBD2Y4I3GLU.jpg)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
 
-图片来源：路透社
+雅典娜疫情更新（2022年 4月8日）
 
-标准普尔周六将俄罗斯的外汇评级下调至“选择性违约”，原因是莫斯科无法也不愿意履行对外债持有人的承诺的风险增加。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-989.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-990.png)
+[2022年4月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月8日改进.pdf)
 
-标准普尔在一份声明中表示，它了解到俄罗斯周一以卢布支付了以美元计价的欧洲债券的息票和本金。
+数据来源：
 
-“我们目前不认为投资者能够将这些卢布款项兑换成与最初到期金额相等的美元，或者政府将在 30 天的宽限期内将这些款项兑换成美元。”
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-该机构表示，未来几周对俄罗斯的制裁可能会进一步增加，“这会阻碍俄罗斯履行其对外债持有人义务条款和条件的意愿和技术能力。”
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-俄罗斯财政部长周四表示，该国将尽一切可能偿还债权人，但如果该国违约，俄罗斯国际债券的投资者将面临越来越不确定的收回资金的道路。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-当标普认为债务人选择性地拖欠特定问题或类别的债务，但将继续及时履行其对其他问题或类别的付款义务时，它会授予选择性违约评级。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-自 1917 年革命之后，俄罗斯没有出现外债违约，但其债券现在已成为其与西方国家经济角力的引爆点。
+[covidlive.com.au](https://covidlive.com.au/)
 
-简评：俄罗斯对乌克兰的入侵， 得到的是全世界西方国家包括经济手段在内的各种制裁， 这些制裁导致俄罗斯无力偿还到期债务， 就卡住了俄罗斯的经济命脉， 看看普京还能坚持多久。
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-链接： [https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
+发布：tianzhihuan
 
-编辑发表： Shuizhuyu
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

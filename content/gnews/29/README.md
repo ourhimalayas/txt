@@ -2,45 +2,40 @@
 ---
 
 
-## 乌克兰救援前线报道4.09.2022：新中国联邦法治基金人道救援撒下了爱的种子
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316085/)
+## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-08-13.00.16-scaled.jpg)4月8日，以色列的公益组织带领逃离乌克兰的难民到NFSC营地休息。右一的长发美女是陪同波兰驻美大使来喝NFSC咖啡的志愿者Ayala。图片来源NFSC news素材区
-新中国联邦法治基金乌克兰人道救援行动在靠近战火最近的地方播下了爱的种子，在救援团队一天天的用心浇灌下，这粒种子已经在人们心里生根、发芽……，以下是来自前线的最新消息。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
+APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
 
-**志愿者心目中的最佳营地**
+包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
 
-昨天陪同波兰驻美国大使Marek Grzegorz Magierowski (前波兰驻以色列大使）来新中国联邦法治基金大帐篷的以色列志愿者[Ayala](https://gettr.com/post/p14axckd87e)，今天带着几位逃离乌克兰的难民来到NFSC帐篷里休息，其中有两位是大屠杀的幸存者，Ayala所在的以色列NGO组织将帮助这两位老者从华沙飞往以色列与家人团聚，并援助另外几位难民从华沙飞往墨西哥。
+铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
 
-Ayala与其他国际志愿者一样，每天都穿梭在梅迪卡难民中心，为难民们提供帮助。他们早已在心目中认可NFSC营地无疑是梅迪卡的难民和志愿者们最棒的歇脚点，她非常感谢新中国联邦法治基金在这里提供这么好的帐篷和服务设施。她说，昨天波兰驻美大使很喜欢NFSC咖啡，大赞NFSC咖啡可以与世界上最好的意大利咖啡媲美。她开玩笑说，“也许大使先生还会专门再来喝咖啡……”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-24.jpg)以色列志愿者Ayala讲叙波兰驻美大使对NFSC咖啡的评价。图片来自Getrr视频截图
-**黑夜里的一盏明灯**
+伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
 
-[今晚的梅迪卡](https://gettr.com/post/p14ayig8fb1)下起了大雨，NFSC营地突然来了很多难民，国际志愿者们一直在帮助和指引难民们来到NFSC营地。NFSC营地是梅迪卡难民中心唯一24小时全天候救援的场所，它就像梅迪卡黑夜里的一盏明灯，为所有的难民和志愿者们照亮回“家”的路。志愿者们纷纷说这个帐篷太棒了，温暖舒适，设施齐全，不然今晚这样的情况，真不知道这些难民如何度过。
+根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
 
-由于难民中心的公交车辆晚点，整个营地挤满了人，直到凌晨1:30，大量的难民仍不断涌入NFSC营地，一些难民小朋友困极了，就在救援团队准备好的临时床铺区睡着了。孩子们那一张张沉睡的小脸蛋，NFSC营地的温暖和爱犹如家一般的安全感，让他们暂时忘却了战争的恐惧安静地进入梦乡。·
-![](https://assets.gnews.org/wp-content/uploads/2022/04/睡觉.jpg)4月9日的凌晨时分，外面下着大雨，难民中心的巴士晚点，NFSC营地里为疲惫的难民们准备了临时床铺。图片来源：NFSC news素材区
-**救援行动引起日本媒体的注意**
+我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
 
-今天（8日），日本[东京一家电视台](https://gettr.com/post/p147kab2080)的几名记者来到NFSC营地，随行有位会讲英语和日语的波兰籍翻译人员。看到NFSC营地有一群中国人，他们起初有所保留和谨慎，仅限于参观整个帐篷。当那位翻译人员看到波兰《团结周刊》对新中国联邦法治基金乌克兰人道救援的详细报道后便为他们翻译，再看到杂志照片上的正义小Sarah就站在面前时，他们立即请示了总部，马上在灭共幕墙边对Nicole进行采访，请她解释为什么要消灭邪恶的中国共产党……
-![](https://assets.gnews.org/wp-content/uploads/2022/04/日本.png)日本东京某电视台记者走入NFSC营地参观。图片来源：NFSC news素材区
-**救援行动撒下爱的种子**
+随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
 
-前线的吴佳战友在NFSC营地外遇到一对即将赴加拿大的[乌克兰老夫妇](https://gettr.com/post/p142xjj2e85)。老人家直接走上来一把抱住了战友手中的新中国联邦国旗爱不释手。由于语言不通，不确定两位老人的举动是出自于获得过帮助还是其他原因，但很显然的是，他们明确地在表达对新中国联邦人的感激之情。老夫妇穿上了新中国联邦的灭共马甲，高兴地合影后才互道珍重别去。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/zhongzi.png)前线的吴佳战友与穿上灭共马甲手执新中国联邦旗帜的乌克兰夫妇合影。图片来源：Gettr
-**前线战友在梅迪卡的身影**
+如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
 
-**前线战友在梅迪卡的身影**
+美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
 
-- 台湾有线电视频道TVBS新闻台3月17日的[直播](https://news.tvbs.com.tw/live/news4live/15800)画面中，出现了身着灭共马甲的前线记者Nicole等两位战友的[身影](https://gettr.com/post/p13ock86f17)。
-- 前线记者Nicole常走出NFSC营地，到距离营地3公里车程的边境与那里的一些国际志愿者交流。
-- 来自美国华盛顿DC的Diana是哥伦比亚大学乌克兰学生会主席，她代表美国数字媒体Daily Caller在乌克兰边境做实事报道。Daily Caller是美国福克斯电视台著名脱口秀主持人Tucker Carlson 创建的数字媒体。Diana看到Nicole身穿灭共马甲上醒目的标语，表示希望做一次即兴采访，Nicole向她介绍了新中国联邦法治基金乌克兰人道救援行动和新中国联邦的灭共故事。
-- 一位来自美国加州的志愿者，出生在乌克兰。他感谢新中国联邦法治基金为乌克兰难民提供这么贴心的设施和服务，他说，“你们有最好的帐篷，最好的咖啡，你们纯木的地板尤其适合小孩子在里面玩耍，让孩子们的妈妈感到高兴。”
-- 来自韩国的志愿者在梅迪卡边境，当了解到新中国联邦是灭共的新中国人后，他认为灭共会给中国人带来和平与自由，他祝愿所有中国人都能早日获得自由。
+美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-2.jpg)台湾TVBS新闻台的直播画面（左上）、Daily Caller的记者代表Diana与Nicole交谈（右上）、美国加州志愿者（左下）和韩国志愿者（右下）图片来自NFSC news素材区视频截图
+美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
 
+美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
+
+美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
+
+原文链接：
+
+[美国驻华大使馆](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
  
 
