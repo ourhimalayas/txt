@@ -2,12 +2,20 @@
 ---
 
 
-## 4月8日文贵大直播要点（图片1-10）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2312917/)
+## 美国将对俄罗斯执行新一轮金融制裁
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2312993/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6F9C8281-7A41-4D30-B167-2D55AE11BEFF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4345D479-022E-4835-A702-41BBFD916B2C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3857B130-E526-45F5-A8D7-95B244863728.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/F89BB928-0BDA-4183-ABCE-3226503EA490.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/454334FA-AD44-4C33-84F8-006CBC0051F8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/C58565B1-9A1A-4A45-9AA7-0BAAC8F6FB69.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7B560D9B-8A50-4E1D-829C-53D98FF1FEAC.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/ED4A5AFB-9185-460A-B6A0-D355F023E5DF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/258F8A15-492E-4A7A-AD87-333427C0A75D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B5DD966F-F92E-406D-BE35-8A5BA328062F.jpeg)
-发布：水涨船高
+加拿大温哥华扬帆农场    平民正道
+
+据加拿大《CTV新闻》4月6日报导，为持久惩罚俄罗斯经济，美国政府当天公布了针对俄罗斯最大两家银行，普京家人及其两个成年女儿的新一轮金融制裁措施。
+
+报导称，新措施将禁止美国的个人和机构与俄最大两家银行的资金往来，切断了普京所有亲属与美国金融系统的联系，并冻结了其在美国持有的任何资产。此外，制裁对象还包括俄总理和外交部长等众多政府高官及其亲属。美国财政部也正计划对俄罗斯国有企业实施更多制裁，并禁止美国人在俄罗斯进行新的投资。
+
+据悉，为惩罚俄军在乌克兰的暴行，欧盟各国都纷纷宣布了一系列冻结俄罗斯资产和能源进口的禁令。目前，联合制裁已重创俄罗斯经济，该国的通胀率正以每周2%的速度增长，而其年通胀率必将因此超过200%的崩溃极限。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
