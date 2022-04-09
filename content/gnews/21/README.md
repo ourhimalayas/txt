@@ -2,31 +2,35 @@
 ---
 
 
-## 巴斯夫老板的巨大恐惧
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2317263/)
+## 美参谋首长联席会议主席：俄乌战事走向不明
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317473/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【法新社华盛顿7日报道】美国参谋首长联席会议主席（CJCS）马克.密利（Mark Milley）在联邦参议院军事委员会听证会上表示，在俄罗斯入侵乌克兰6周后，整体战事走向仍然不明朗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-2.jpg)(美国参谋长联席会议主席马克·米利 资料图
+他说，只有乌克兰依然是一个自由且独立的国家，而且其公认的领土也完好无缺，才能算是乌克兰赢得这场战争。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+密利说：这会相当艰难，会是相当艰苦漫长的过程。
 
+他表示，乌克兰东南部、顿巴斯一带还有一场硬仗要打，俄罗斯打算在该地区集结部队，并继续进攻。他认为（战事）会如何结束，现在仍是悬而未决的问题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/martin-brudermueller-60-ist.jpg)
+美参谋首长联席会议主席：俄乌战事走向不明
 
-
-图片来源：FAZ
-
-马丁•布鲁德米勒只是进攻，永远向前，永远充满活力，永远要求速度速度速度。俄罗斯对乌克兰的战争已经击中了巴斯夫首席执行官的核心，因为他不再能空政整个流程。 如果普京关闭天然气或联邦政府决定抵制俄罗斯，化学工业的车轮将停滞不前。在最坏的情况下，世界上最大的化学综合体巴斯夫总部的生产将不得不在一夜之间关闭。马丁•布鲁德米勒对此无能为力。
-
-而这正处于化工行业前所未有的转型之中。布鲁德米勒很早就做出了反应，命令该集团进行气候中和转换，并对生产设施进行电气化。他在柏林和布鲁塞尔大谈特谈，紧急呼吁扩大可再生能源。他是第一位加入绿党经济顾问委员会的化学领袖。他想站在运动的最前沿。任何能够提供气候中和产品的人都具有国际竞争优势。但这一切都需要时间。如果不再有来自俄罗斯的天然气，转换就岌岌可危。
-
-不确定性对他的困扰至少与战争本身一样多。在一个经济国家，即使是在重要职位上，很多人都不了解价值链。他们不明白繁荣、工业的基础是如何运作的。他们没有意识到如果大型化工厂停工，不再提供初步产品，没有油漆，没有塑料，没有泡沫，没有化肥，甚至没有药品，会对整个行业造成巨大后果。
-
-简评： 战争带了的需要次生灾害正在慢慢的显现中， 如果不能尽早结束战争， 不能尽快消灭独裁者， 如果不能尽快恢复世界的经济秩序， 世界人民的灾难真的是刚刚开始 。 化学工业是从农业到工业到国防都太空的基础工业， 影响的层别实在是太大了。
-
-🔗 [https://www.faz.net/aktuell/wirtschaft/unternehmen/ukrainekrieg-die-grosse-angst-des-basf-chefs-brudermueller-17945760.html](https://www.faz.net/aktuell/wirtschaft/unternehmen/ukrainekrieg-die-grosse-angst-des-basf-chefs-brudermueller-17945760.html)
-
-编辑发表： Shuizhuyu
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

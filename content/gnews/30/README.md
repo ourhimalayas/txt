@@ -2,39 +2,30 @@
 ---
 
 
-## 基金投资管理是合并还是分销更好
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2316888/)
+## 可怕的现实：近期致命的突然死亡何其多
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2316919/)
 
-翻译/编辑：Rianna
+#### 编译 意大利达芬奇农场 小白鸽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649502031814.jpg)图片来源：雅典娜设计组
+今天这里讲述的是2022年四月初突然去世的四位意大利人，这一幕现在每天都在世界各地上演。这是发生在近期致命的突然死亡，这并不是虚构。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-09-alle-12.57.35.png)图片来源：eventiavversinews.it
+悲剧的第一位主人公叫利卡尔多，他突然死亡时只有39岁。他在拉丁诺地区当门房。利卡尔多昨天刚刚去世，他是在自己的公寓里突然死亡。几天前他刚从新冠病毒中痊愈。2019年他曾在骑自行车的时候遭遇了车祸，但是后来他逐渐恢复过来。他看守着14个楼层，大约250人。住户们都很信赖他，去度假时，常把家门钥匙留给他甚至包括家里的猫。
 
+罗伯特•罗西的爱好是排球和足球，他是尤文图斯的球迷。罗伯特突然去世时，只有50岁。他的脸上总是挂着笑容，他热爱生命。他是一个体育协会的成员，他在该协会的脸书上曾发了“从天上继续为你们加油”这样一张贴。“ 体育能让我们认识特殊的人，并分享友谊”。有人留言说他是一个非常好的朋友，很难找到像他这样的人。
 
-对许多人来说，经验丰富的基金管理高管，通过多样化和增长来应对具有挑战性的行业动态，欢迎来到资金管理的残酷和压力不足的世界。
+49岁男子突然死在公共汽车里
 
-Perpetual以24亿美元的现金和股票方式收购竞争对手Pendal，这是基金管理集团如何通过收购寻求规模的最新引人注目的例子。
+早上7点15分，一辆行驶在郊区的公共汽车，车上的乘客发现后排有一位乘客，毫无生命迹象。叫来司机马上拨打118， 但毫无办法。
 
-尤其是因为当地国内股票负责人Pendal的Crispin Murray和Perpetual的Paul Skamavougeras被认为是市场上最有影响力的投资者之一，仅次于超级基金，有能力开绿灯或扼杀并购、重大战略决策和关键任命。
+年轻人突然死在大街上
 
-在当地，VGI Partners和Regal Funds Management中两名澳大利亚最知名的对冲基金经理正计划合并，AMP刚刚以高达1.38亿美元的价格将其全球股票和固定收益业务出售给麦格理资产管理公司。Paradice Investment Management于12月将其一半的股份出售给Charter Hall。在此之前，去年3月，Yarra Capital收购了澳大利亚的所有Nikko资产管理公司。
+一位31岁的年轻人走在大街上，突然死亡。大概是在13点前，一位行人发现有人躺在路上，马上报警。警察到了之后，118救护车也到了。马上对他实行了急救并将这位年轻人送到医院，但是这位年轻人随后在医院死亡。司法警察正在对此案进行调查。
 
-从纸面上来说，合并都是关于协同增效的，因为合并后的集团旨在降低营销、人力资源、客户服务、基金会计或风险和合规等重复共享服务职能的成本。Perpetual表示，它每年可以从这笔交易中切出约5000万美元。TMS资本投资组合经理本·克拉克说，这个问题可以追溯到另一个问题：他不确定上市基金管理模式是否继续有效。
+参考链接：
 
-以2017年美国债券基金经理Janus和伦敦股票经理Henderson的合并为例，其中Perpetual的Adams是关键架构师之一。
+[https://www.eventiavversinews.it/cerano-una-volta-un-portiere-uno-sportivo-un-uomo-sullautobus-e-un-pedone-no-non-e-una-fiaba-sono-i-mal](https://www.eventiavversinews.it/cerano-una-volta-un-portiere-uno-sportivo-un-uomo-sullautobus-e-un-pedone-no-non-e-una-fiaba-sono-i-mal)
 
-Perpetual不会冒险合并，而是收购者（这意味着它几乎没有空间在不提高债务水平的情况下移动要约价格）。投资团队不会被解散，并将保持自主权，当存在明显冲突时，分销团队将保持分离。
-
-那么，投资经理的成功是什么？至少有三个当务之急：顶级投资者必须拥有自主权；业务必须具有运营效率，以便额外资金带来利润；最后也许是最困难的是，基金必须能够增长。
-
-新闻来源：[基金管理投资合并股份](http://www.afr.com/business/banking-and-finance/asset-managers-turn-to-mergers-to-deliver-for-shareholders-20220408-p5abzm?btis)
-
-*发布：  tianzhihuan*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+编辑、上传： Xiao baige
 
  
 
