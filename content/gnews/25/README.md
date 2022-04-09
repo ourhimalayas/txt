@@ -2,24 +2,24 @@
 ---
 
 
-## 堪萨斯州参议员致信医生 使用伊维菌素、羟氯喹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2316477/)
+## 上海野蛮清零 “方舱监狱”陆续投入使用
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2316586/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-68.jpg)
-美联社4月8日报道。堪萨斯州参议员马克-斯蒂芬（Mark Steffen）上周给医疗服务提供者发了一封信，告诉他们治疗COVID-19患者的方式已经改变，他们将免受医疗委员会的“干扰”。在信中，他援引了参议院最近通过的一项措施，该措施特别授权医生开伊维菌素和羟氯喹等药物，以治疗COVID-19。但该提案仍在与众议院的谈判僵局中。
+作者：意大利罗马达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/04/方舱医院.jpeg)网络图片
+3月28日早上5点，上海市民收到通知“封城”，而且是突然收到通知，这同之前的“武汉封城”没有任何区别，被恐慌弥漫的“大上海”，2600万人口的金融中心，从此开启“地狱模式”。
 
-堪萨斯州为医疗服务提供者颁发执照的委员会周五就这封信表示关切。堪萨斯州医疗委员会(The Kansas Board of Healing Arts )说，堪萨斯州参议员马克-斯蒂芬的”史无前例”的信没有任何法律或监管效力，但在堪萨斯州医疗界造成了“混乱和担忧”。
+七哥直播中说，上海疫情失控就是疫苗后遗症，上海野蛮封城是政治因素。可见，中共独裁体制下的领导人只会考虑自己的权利和面子，其余一切都是可以利用和牺牲的工具。
 
-医疗委员会在回应中写道，州或联邦法律都没有禁止FDA批准的药物的标签外处方。但它称，医生必须遵循护理标准，这是一个明理的医生在一定情况下会做出的决定。
+4月6日9点，经过连续9小时的彻夜奋战，上海新国际博览中心方舱医院8500平米办公区建设完成，全部投入使用 11支医疗队、可接纳1.5万名阳性感染者。
 
-身为麻醉师的斯蒂芬参议员承认开过伊维菌素的处方，他拒绝证实委员会对他的调查是否涉及这些处方。但他说这（调查）包括他的公开声明，这些声明一直支持伊维菌素和其他未经证实的COVID-19疗法。
+4月9日，国家会展中心（上海）方舱医院今晨传来消息，预计今天实现首批新冠轻症或无症状感染者收治。这是上海目前规模最大的方舱医院，床位5万张。
 
-新闻来源：
+上海野蛮清零，“方舱监狱”陆续投入使用，孙春兰亲到上海指挥，为了实现所谓的“社会面清零”，老百姓被像猪猡一样塞进“方舱监狱”，因为这里没有治疗、没有人性关怀，只有圈禁、只有自生自灭。
 
-[https://apnews.com/article/covid-health-business-hutchinson-kansas-fca6345c35166ec5a216f9a47d4c27fe](https://apnews.com/article/covid-health-business-hutchinson-kansas-fca6345c35166ec5a216f9a47d4c27fe)
+参考链接：🔗[中央企业调集力量、众志成城 全力以赴助力上海方舱医院建设](https://www.163.com/news/article/H4HC0S15000189FH.html?clickfrom=w_yw)
 
-[https://apnews.com/article/health-business-kansas-wichita-hutchinson-e68f4a8eda8b5a9ec3fb6ca95c1f4a7d](https://apnews.com/article/health-business-kansas-wichita-hutchinson-e68f4a8eda8b5a9ec3fb6ca95c1f4a7d)
+*编辑/校正/发稿：儒为*
 
  
 

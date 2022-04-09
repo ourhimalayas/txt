@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 11:37 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月8日第35天当日救援统计：<br/>Medyka救援站接待：约264人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10095人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 35 - Date: April 8, 2022 :<br/>Medyka Rescue Station Reception: about 264 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10095 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group17/getter/2022/04/09/11/8c2e8717-9a73-aee4-57e7-70b1b9834f4b/1057edd7624e68d9c7abb95b37040494.jpg)
+
+---
+
 `@miles 4/9/2022 9:28 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -150,13 +157,6 @@
 
  4月8号：所有的悲剧，都是来自于无知．和没有信仰……
 ![img](https://media.gettr.com/group41/getter/2022/04/08/23/cc55db80-28b9-41c0-528a-ef74f4cb86b0/6727d5820b120306cfa36f20ede7e4f8.jpg)
-
----
-
-`@miles 4/8/2022 11:09 PM (UTC)`
-
-<br/>【Ukraine Rescue】04/05/2022 The Belgium Uighur, Xiao Su and his family fled China, but many of his relatives and friends remain in concentration camps and have lost contact. He says that man would eventually die and should live meaningfully, and that he is about to go up to the Ukrainian front to fight in the foreign legion. He heard about the NFSC from the Internet and is glad that some people finally stand up and fight for justice. He says that there are many smart people within the walls of China, but they are unwilling and afraid to stand up. He calls for standing on the side of justice.<br/><br/>【乌克兰救援】04/05/2022 比利时的维吾尔人小苏，虽然一家人逃离了中国，但很多亲人朋友仍关在集中营失去了联系。他说人终有一死，应该活得有意义，他即将作为外国军团上乌克兰前线作战。他从网络上听说了新中国联邦，感慨终于有人站出来为正义而战。他说墙内很多聪明人，只是不愿、不敢站出来，他呼吁站在正义一边。
-![img](https://media.gettr.com/group48/getter/2022/04/08/23/7c29c53b-3cae-4811-ec66-97f8636fd538/out.jpg)
 
 ---
 

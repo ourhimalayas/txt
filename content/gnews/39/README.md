@@ -2,27 +2,41 @@
 ---
 
 
-## 樱花FM┃日本政府宣布向乌克兰提供包括排雷在内的追加援助
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2315928/)
+## 化解中共毒疫苗 美蓝和青蒿素的协同作用
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2316204/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-8-3.png)
-日本已正式决定为乌克兰及其邻国提供追加人道主义援助1亿美元。这些援助将通过国际组织和日本非政府组织（NGO）在卫生、医药和食品领域展开。
+作者：日本东京方舟农场 – Miyali7768(文玉）
 
-4月5日路透社东京消息：内阁官房长官松野博一在5日内阁会议后的新闻发布会上宣布，日本已正式决定为乌克兰及其邻国提供追加人道主义援助1亿美元。这些援助将通过国际组织和日本非政府组织（NGO）在卫生、医药和食品领域展开。该援助还将支持恢复乌克兰的农业生产，清除废墟和未爆炸地雷排雷。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
 
-3月24日，岸田文雄首相出席了在比利时举行的七国集团领导人会议，他在会上就宣布了将向乌克兰和邻国提供1亿美元的额外人道主义援助。
+在4月4日的新中国联邦|喜健康系列节目中，主讲嘉宾陪练战友介绍了另一个对付中共病毒的老药新用的例子–美蓝(Methylene blue)。
 
-松野还宣布，将向接纳乌克兰难民的摩尔多瓦派出政府调查团，以审查其援助贡献的可能性。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220127-3.jpg)
 
-与此同时，随着俄罗斯军队在乌克兰北部杀害了平民的质疑呈现，美国和欧洲国家相继表示打算对俄罗斯实施追加制裁。在回答关于日本可能对俄罗斯实施追加制裁的问题时，松野表示，日本将继续根据未来的形势采取适当的措施。
+嘉宾介绍，中共病毒流行以来，在法国一个医院内出现一个案例，其中2500名老人全都没有感染中共病毒，而他们都是每天服用美蓝的癌症患者。这引起了人们对美蓝的关注。美蓝又称亚甲基蓝、亚甲蓝，是最早用于治疗疟疾的化学合成药物，已有一百余年的历史。美蓝早已被列入世界卫生组织(WHO)的基本药物清单，毒副作用轻微，最明显的副作用可能是眼睛巩膜和尿液会变蓝，在二战时曾被美国海军士兵调侃(Even at the loo, we see, we pee, navy blue)。美蓝用于疟疾治疗的突出特点是它几乎没有抗药性。另外美蓝不仅能在体内的血液和细胞中杀毒，还可以有效地在体外杀死病毒。
 
-文字版原文：[日本政府宣布向乌克兰提供包括排雷在内的追加援助](https://gnews.org/zh-hans/2290998/)
+嘉宾列举了多个研究结果，证明美蓝不仅可以独立消灭中共病毒，还具有与青蒿素的协同作用，即由于美蓝可以把血红素中的三价铁变为二价铁，所以能够有效地发挥青蒿素中过氧桥键的威力。这种协同效应可以提高药效，降低副作用，并由此引申出一个探索方向：嘉宾呼吁医疗同行们对美蓝与青蒿素的协同作用在化解中共毒疫苗方面的效力作进一步的研究。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+参考链接：
 
+- [2022.04.04 新中国联邦 | 喜健康 探索美蓝治疗冠状病毒感染，解毒疫苗的可能性](https://gettr.com/streaming/p13ki14bfac)
+- [老药新用：美蓝不但抗冠状病毒感染，或有疫苗解毒潜力](https://gnews.org/zh-hans/2104329/)
+- [冠状病毒的刺突蛋白，类似于阮病毒，有可能造成神经系统退行性疾病](https://gnews.org/zh-hans/1918177/)
+- [Methylene Blue Inhibits the SARS-CoV-2 Spike–ACE2 Protein-Protein Interaction–a Mechanism that can Contribute to its Antiviral Activity Against COVID-19](https://www.frontiersin.org/articles/10.3389/fphar.2020.600372/full)
+
+
+![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
 
  
 

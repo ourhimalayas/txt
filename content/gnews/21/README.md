@@ -2,16 +2,14 @@
 ---
 
 
-## 俄罗斯官员被国际雪橇联合会除名
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316488/)
+## 樱花时政┃德国总统呼吁设立俄战争罪法庭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316647/)
 
-撰稿：东京樱花团/待命（文晓）
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-26.jpg)[图片来源](https://media.dwnews.net/hk01/LmSjPhrscl9LzoNPJerJhJKYzOA%3D/320*0/media/images/dw/20220317/580977626609356800413290.jpeg)
+德国总统史坦迈尔呼吁设立针对普京和拉夫罗夫的战争罪法庭。他说，“任何对这些罪行负有责任的人，都必须自己作出解释。这包括士兵，包括军事指挥官。当然还有那些负有政治责任的人。”该报道称，乌克兰指控俄罗斯犯有种族灭绝和战争罪。
 
-4月9日时事通信社消息：国际雪橇联合会在8日的在线大会上决定除名入侵乌克兰的俄罗斯的当选官员。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-5.png)（图片源自本文链接）
-但是，驱逐俄罗斯联邦的决定因没有得到三分之二的多数票而被否决。
-
-信息来源： [ロシア人役員を除名　国際リュージュ連盟（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/61e543d5869c8818b1c35b742f97f26d07b19427)
+信息来源：[德国总统呼吁设立针对普京和拉夫罗夫的战争罪法庭](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220408-%E5%BE%B7%E5%9B%BD%E6%80%BB%E7%BB%9F%E5%91%BC%E5%90%81%E8%AE%BE%E7%AB%8B%E9%92%88%E5%AF%B9%E6%99%AE%E4%BA%AC%E5%92%8C%E6%8B%89%E5%A4%AB%E7%BD%97%E5%A4%AB%E7%9A%84)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

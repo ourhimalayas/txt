@@ -2,37 +2,31 @@
 ---
 
 
-## 美国银行第一季度盈利将下降
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316732/)
+## 有声|欧盟全面禁止进口俄罗斯煤炭的禁令将被推迟到8月中旬生效
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2316881/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+【路透布鲁塞尔4月7日】  欧盟一位消息人士告诉路透，欧盟特使将于周四批准对俄罗斯煤炭的进口禁令，禁令将于8月中旬全面生效，比最初提议的时间晚了一个月。此前德国曾施压要求推迟该措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.png)
+逐步淘汰欧盟对俄罗斯煤炭的进口，是欧盟执委会本周提出的第五套对俄制裁措施中最重要的一项。一旦获得批准，这将是自2月24日俄乌战争爆发以来，欧盟首次禁止从俄罗斯进口能源。但欧盟仍未触及进口量更大的俄罗斯石油和天然气。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+[【援引连结】](https://cn.reuters.com/article/eu-russia-coal-ban-0407-idCNKCS2LZ0WQ)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/FTIOZY33LVNV5KJMIHPN2OYAJM.jpg)
-
-
-图片来源：路透社
-
-纽约，4 月 8 日（路透社）预计美国大型银行第一季度的收益将比一年前大幅下降，当时它们受益于异常强劲的交易和交易，以及为贷款损失预留的资金被释放。
-
-根据 Refinitiv I/B/E/S 的分析师估计，美国六大银行的净收入将比去年同期下降约 35%。 2 月下旬俄罗斯入侵乌克兰后，投资银行业务收入停滞不前。
-
-Keefe, Bruyette & Woods 的分析师 Christopher McGratty 表示，本季度对大型银行来说将是一个挑战。他说，投资银行业务收入预计下降 36%，交易业务收入预计下降 18%，是最大的不利因素。
-
-巴克莱的分析师杰森·戈德堡在一份报告中写道，本季度可能会被视为短期的痛苦，但有望获得长期收益。他指出，3 月 31 日的一个例子是 PNC 金融服务集团降低了第一季度的收入预测，但提高了全年的预期。
-
-由于银行受益于更高的利率，投资者预计将更多地关注银行增加其净利息收入的前景，或贷款收入与存款和其他基金支付的利息之间的差额。
-
-如果乌克兰战争继续，美联储继续加息以降温通胀，银行高管将被问及美国经济是否会继续增长的看法。在天然气和食品价格上涨后，他们可能会面临低收入借款人能否还款的压力。
-
-简评：俄罗斯入侵乌克兰的经济效应现在慢慢显现， 一个战争不但是毁掉了战争发生地人们的生活甚至生命， 远离战争的地方的经济， 供应链，生活必需品都遭到了重创，尤其乌克兰和俄罗斯是粮食大国， 全世界受到的冲击可想而知， 银行业受影响是肯定的， 解决问题的办法只有一个。 消灭共产党， 共产党才是一切罪恶的根源。
-
-🔗 [https://www.reuters.com/business/finance/us-bank-earnings-decline-first-quarter-2022-04-08/](https://www.reuters.com/business/finance/us-bank-earnings-decline-first-quarter-2022-04-08/)
-
-编辑发表： Shuizhuyu
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

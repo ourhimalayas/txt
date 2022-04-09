@@ -2,52 +2,43 @@
 ---
 
 
-## 巴基斯坦关于罢免总理可汗的投票推迟
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316480/)
+## Jason Miller先生祝贺Elon Musk加入Twitter
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2316627/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+作者: 银河系农场 — 骄子
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/5ONP6AXLWZIS7IYF5IOBTSVKUQ.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-图片来源：路透社
 
-路透社伊斯兰堡4 月 9 日报道， 巴基斯坦议会在计划投票罢免总理可汗之前突然休会，并且由于政治不确定性继续笼罩着这个拥有核武器的国家，因此未能如期在周六重新召开会议。
 
-可汗所在政党的成员周五表示，他们将尽可能推迟投票。这位板球明星转为政治家发誓要“努力”反对任何取代他的举动，这是一场危机的最新转折，威胁到这个拥有 2.2 亿人口的南亚国家的政治和经济稳定。
 
-可汗的盟友上周日阻止了类似的不信任投票，但该国最高法院裁定此举违宪，命令议会重新召开会议。
+日前，Gettr总裁Jason Miller先生在接受媒体采访时说，社交媒体Twitter尽管拥有先进的技术，是一个伟大的工具，但其目前在世界上的品牌价值已经一降再降，现在是一个充满了政治癌症的地方。Elon Musk加入Twitter是一件值得庆贺的事情，Jason说自己永远不会对Elon Musk感到惊讶，从他制造特斯拉汽车到发射卫星到外太空甚至是火星，这个人拥有无限可能，不知他能否挽救Twitter。现在的大科技歧视以及审查制度是值得努力的方向。
 
-如果可汗被赶下台，预计将成为总理的反对党领袖谢里夫在大会上发表讲话，敦促将投票作为优先事项进行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-04-2022-2.jpg)图片来源于网络
 
-现年 69 岁的可汗在 2018 年在军方的支持下上台，但最近在盟友退出联合政府时失去了议会多数席位。反对党表示，他未能重振受 COVID-19 重创的经济，也未能兑现让巴基斯坦成为在世界舞台上受到尊重的无腐败、繁荣国家的承诺。
+在提及Twitter和Gettr的竞争关系时，Jason Miller表示Elon Musk是一个直言不讳的人，自由在他身上更加显著，他想重新给用户言论自由，最大的挑战是重建这种自由文化。Twitter内部并不欢迎前总统川普重新回去，这就是对Elon的最大挑战，因为这能够将川普总统的支持者带回去，他们可以在Twitter重新拥有言论自由。无论是Gettr、Twitter、Rumble或者是川普总统的Truth Social，越多的社交媒体存在，越多的竞争存在，人们才会有更多的言论自由，避免被关掉账户，从而远离政治癌症。
 
-反对派和一些分析人士说，可汗与军方发生了争执，他和军方都否认了这一指控。军队已经统治了该国 数年， 没有一位总理完成了完整的五年任期。
 
-目前尚不清楚可汗的盟友可能会寻求推迟投票多长时间。曾在法庭上主张投票继续进行的律师萨拉赫丁·艾哈迈德说，他认为必须在午夜之前进行。
 
-可汗在上任时得到了广泛的民众支持，他周五晚些时候表示，他对法院的裁决感到失望，但接受了它。他在解散议会后召集了一次选举。
+相关链接:
 
-但他说他不会承认任何取代他的反对派政府。
+[https://gettr.com/post/p13vp3646b9](https://gettr.com/post/p13vp3646b9)
 
-“我不会接受一个进口政府，”他在深夜讲话中对全国说，暗示驱逐他的举动是外国阴谋的一部分，并呼吁周日进行和平抗议。 “我准备好战斗了。”
+![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
-可汗反对以美国为首的对阿富汗的干预，并自成为总理以来与俄罗斯发展了关系。他指责美国支持推翻他的阴谋，但没有提供证据证明他的主张，华盛顿对此予以驳回。
+编辑/校对/发稿：Petite abeille
 
-随着动荡的持续，巴基斯坦卢比周四跌至历史新低，外汇储备暴跌。央行将基准利率上调 2.5 个百分点，为 1996 年以来的最大涨幅。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-如果可汗在不信任投票中失利，反对党将提出总理候选人。
-
-三届前总理谢里夫的弟弟在法庭裁决后表示，如果可汗被赶下台，反对派已提名他接任。
-
-简评：巴基斯坦的局势动荡已经持续了2周，我们知道这个消息是从郭先生的大直播中得到的。 而且郭先生明确的指出谢利夫是推翻现政府的推手也是要取代现任总理的人。 从这篇报道上可以看出， 一切都是按照剧本在上演， 唯一不同的是， 现任总理可汗居然说幕后推动的是美国， 而郭先生明确是指出是中共不喜欢现任总理， 并和谢利夫有勾兑， 那么我们还是睁大眼睛， 继续观察吧。
-
-🔗 [https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/](https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/)
-
-编辑发表： Shuizhuyu
+![This image has an empty alt attribute; its file name is logo-5-768x103-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
  
 
