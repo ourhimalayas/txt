@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 12:33 AM (UTC)`
+
+2022.04.08 晚  新中国联邦 | 新闻    我们要把中国人从被中共胁迫的恐惧中解放出来；再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处
+![img](https://media.gettr.com/group46/origin/2022/04/09/00/712cf7f0-dabc-bb53-dc2d-cc067b007189/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/9/2022 12:32 AM (UTC)`
+
+ 4月8号下午8:30大家快来看这美妙的时刻呀……
+> `@qmay007 4/9/2022 12:01 AM (UTC)`<br/>Super-May线上直播音乐会 第三期：亚细亚的孤儿  台湾特辑（上）QMay&Superman，嘉宾：甜甜
+![img](https://media.gettr.com/group4/origin/2022/04/08/23/873d7b71-c86d-085d-9596-3e18c17501d2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/8/2022 11:48 PM (UTC)`
 
 💯
@@ -140,20 +155,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 
  4月8号：民主绝对是个好东西，人民能管好人民．人民根本不需要一个所谓的比爹娘还亲的．邪恶无比的中国共产党……
 ![img](https://media.gettr.com/group39/getter/2022/04/08/15/45b0927a-4be1-e7be-cdd1-0683d926ce9b/d08a2f8e231db228f5f63a7d2214e869.jpg)
-
----
-
-`@miles 4/8/2022 3:55 PM (UTC)`
-
- 4月8号：共产党执政中国快一百年了，骄傲的上海人．还是不如外国人的一条狗．关键是在内心的世界里自己也认为自己不如那条狗的命值钱，这都是共产党搞出来的．这就是要征服全世界给世界把脉．治病的结果．太可悲了。
-![img](https://media.gettr.com/group25/getter/2022/04/08/15/4cc7ca53-a15b-e650-784e-e3599564d598/out.jpg)
-
----
-
-`@miles 4/8/2022 3:10 PM (UTC)`
-
- 4月8号：尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组织中国共产党……你们现在一定要想办法活下去，活着等到新中国联邦……拯救你们的那一天的到来……
-![img](https://media.gettr.com/group7/getter/2022/04/08/15/3177f5db-dbb5-bbf2-895d-334b9b24ab5d/out.jpg)
 
 ---
 

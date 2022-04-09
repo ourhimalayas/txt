@@ -2,21 +2,21 @@
 ---
 
 
-## 乌总统向联合国通报俄军对平民的大屠杀
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312618/)
+## 马斯克被任命为 Twitter 董事会成员
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312625/)
 
 作者：加拿大温哥华扬帆农场-重生之鹰
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-874.png)图片来源：CTV
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-875.png)图片来源：TPM
 
 
-来自CTV NEWS 4月5日的报道称，乌克兰总统弗拉基米尔·泽伦斯基(Volodymyr zelensky)指责俄罗斯人在乌克兰犯下了令人发指的暴行，并于周二告诉联合国安理会(UN Security Council)，应立即以战争罪的罪名将肇事者送上二战后在纽伦堡设立的法庭。
+执行官帕拉格·阿格拉沃尔在4月5日的一则推特上宣布，“我们将任命特斯拉和SpaceX的创始人兼首席执行官埃隆•马斯克为董事会成员。通过最近几周与埃隆的对话，我们清楚地认识到，他将为我们的董事会带来巨大的价值。”
 
-泽伦斯基在乌克兰通过视频向联合国外交官发表讲话，他说，“平民遭受酷刑，后脑中枪，被扔到井里，在公寓里被手榴弹炸飞，在汽车里被坦克碾死。他们砍掉他们的四肢，割断他们的喉咙。妇女在她们的孩子面前被强奸和杀害，有的人们的舌头被拔掉，“泽伦斯基说，”无论是那些实施杀戮的人，还是那些下达命令的人，都必须立即以战争罪被绳之以法”，接受类似于战后德国所使用的法庭审判。“
+马斯克在回应阿格拉沃尔时表示，他“期待与帕拉格公司合作”。Twitter董事会将在未来几个月对Twitter做出重大改进。马斯克强调言论自由对一个运转正常的民主制度至关重要。
 
-俄罗斯军队在从基辅郊区撤出之前，在布查和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈抗议，他们的暴行必须得到审判！
+此前，一份提交给美国证券交易委员会(sec)的文件显示，马斯克现在持有该公司9.2%的股份，随后他成为了Twitter的最大股东之一。据《市场观察》报道，马斯克的董事会任期将于2024年到期。
 
-链接：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
+链接：[https://thepostmillennial.com/breaking-elon-musk-twitter-board](https://thepostmillennial.com/breaking-elon-musk-twitter-board)
 
 编辑发稿：硫酸羟氯喹64
 
