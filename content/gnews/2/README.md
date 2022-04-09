@@ -2,23 +2,33 @@
 ---
 
 
-## 樱花FM┃俄军屠杀布察平民，欧盟主席深感震惊
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2314563/)
+## 莫德纳在欧洲召回数千剂新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314679/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-4-1.png)
-俄罗斯军队撤离乌克兰北部基辅附近后，当地留下令人窒息的惨景，炸毁的战车，烧焦的土地，横七竖八的尸体。
+翻译/编辑：小红帽
 
-据乌官员称，在基辅西北约30公里的布察市，具不完全统计已发现280具尸体，街道上看到20至30具尸体，身穿平民服装。图片显示逝者双手反绑，被枪杀的男子歪倒在地上，基辅市长科利钦科谴责俄军犯下战争罪。他说，布察发生的事情是普京必须负责的“民族屠杀”！乌总统顾问波多利亚克发推写道，“他们不是军人，没有佩带武器，不构成危险，占领区还在发生多少这样的惨剧。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/AP22031537684170.jpg)图片来源：AP Photo/Jenny Kane
 
-欧盟理事会主席米歇尔在推特发文表示，欧盟将就俄军在布察的暴行进行调查，他对布察平民被枪杀深感”震惊”，并使用了“屠杀”一词。他写道，欧盟将协助收集罪证材料，同时将祭出对俄的进一步制裁，向乌克兰提供更多援助。
 
-文字版原文：[樱花时政┃俄军屠杀布察平民，欧盟主席深感震惊](https://gnews.org/zh-hans/2285458/)
+根据路透社4月9日报道，莫德纳公司（Moderna Inc）于周五表示，在发现一个小瓶被异物污染后，正在召回由其合同制造商Rovi生产的764,900剂新冠疫苗。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+莫德纳称，没有发现任何安全问题，这批疫苗于1月份在挪威、波兰、葡萄牙、西班牙和瑞典销售。
 
+该制药商说，仅在一个小瓶中发现了污染，出于“谨慎考虑”，正在召回整批产品。莫德纳没有透露在小瓶中发现了什么。
+
+日本当局去年暂停使用某些剂量的疫苗，后来莫德纳召回了这些疫苗，因为调查发现一些小瓶中存在不锈钢污染物。
+
+迄今为止，莫德纳的新冠疫苗已在全球接种超过9亿剂。
+
+资料来源：[Moderna recalls thousands of COVID vaccine doses in Europe](https://www.reuters.com/business/healthcare-pharmaceuticals/moderna-recalls-thousands-covid-vaccine-doses-2022-04-08/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

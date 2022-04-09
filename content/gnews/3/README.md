@@ -2,23 +2,37 @@
 ---
 
 
-## 樱花FM┃东京商品交易所将推出“液化天然气期货
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2314551/)
+## 欧盟同意冻结俄罗斯联邦储蓄银行老板和普京女儿的资产
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314663/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-3-1.png)
-液化天然气（LNG）价格受乌克兰局势的影响，价格持续飙升。液化天然气期货交易今天在东京商品交易所开始试运行。东京商品交易所总裁石崎隆先生说：“确保低成本且稳定能源的必要性再次成为焦点，我们将努力实现一个综合能源市场。”
+翻译/编辑：小红帽
 
-隶属日本交易所集团的东京商品交易所一直在进行电力、原油等商品的期货交易，该交易所从今天开始试行液化天然气的期货交易。液化天然气的交易时间可提前一年零三个月，东京商品交易所的目标是在三年内全面投入运作。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/TASS36756128.jpg)图片来源：Sergei Fadeichev / TASS
 
-在俄罗斯入侵乌克兰之后，液化天然气价格出现了很大的波动。商品期货价格不仅用于投机，而且还可以作为公司等进行购买时的指南。这是否能给未来波动较大的液化天然气带来一个稳定的采购价格值得关注。此外，由于液化天然气进口后用于发电，液化天然气期货价格的大幅波动，也可以作为未来几个月电价的判断标准。
 
-文字版原文：[中日财经爆┃东京商品交易所将推出“液化天然气期货”](https://gnews.org/zh-hans/2285346/)
+根据路透社4月9日报道，根据欧盟官方期刊周五公布的一份文件，欧盟已同意冻结俄罗斯最大银行Sberbank的老板、普京的两个女儿和更多寡头在欧盟的资产。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+自乌克兰战争开始以来，欧盟已将大约700名与克里姆林宫有关或被指控支持入侵的人列入黑名单，莫斯科称其为“特别行动”。然而，在法律障碍和有时缺乏政治意愿的情况下，并不总能迅速冻结资产。
 
+新措施将打击另外200多人，其中大部分来自卢甘斯克和顿涅茨克的分离主义地区，以及与克里姆林宫关系密切的高级商人、政治家和军事人员。
+
+另有18家实体也受到资产冻结的打击，其中包括VTB(VTBR.MM)等四家银行和军事公司，使战争开始以来受到制裁的公司数量增加了近一倍。
+
+根据该文件，Sberbank (SBER.MM)的负责人赫尔·格雷夫已被列入欧盟黑名单，此举具有象征意义。到目前为止，欧盟一直没有制裁该银行，该银行在能源支付中发挥着关键作用。
+
+文件称，普京的女儿叶卡捷琳娜·季霍诺娃和玛丽亚·沃龙佐娃现在也因从俄罗斯政府中受益而受到制裁。
+
+普京已经在早期一轮的限制性措施中受到制裁，尽管目前尚不清楚他和他的家人在欧盟拥有多少资产（如果有的话）。
+
+资料来源：[EU agrees to freeze assets of Sberbank boss, Putin’s daughters](https://www.reuters.com/world/europe/eu-agrees-freeze-assets-sberbank-boss-putins-daughters-2022-04-08/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
