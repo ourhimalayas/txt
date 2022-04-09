@@ -2,34 +2,37 @@
 ---
 
 
-## 意大利的Intesa加强对俄罗斯活动的检查并停止贷款
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317475/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317613/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【路透社4 月 8 日报导】自乌克兰战争开始以来，联合圣保罗银行(ISP.MI)已停止向俄罗斯和白俄罗斯方面提供任何融资，并且，把当地业务置于危机部门的特别监督之下。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image010-1.jpg)
-在继续进行战略审查的同时，Intesa 也停止了对俄罗斯和白俄罗斯金融工具的投资。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-发言人在一封电子邮件声明中指出：“与俄罗斯和白俄罗斯交易对手的所有商业活动——包括该集团俄罗斯子公司俄罗斯联合银行的活动——都受到了加强的监控和分析。”
 
-[【援引连结】](https://www.reuters.com/business/finance/italys-intesa-heightens-checks-russia-activities-halts-lending-2022-04-08/)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-7-768x994-1.png)
 
+
+
+
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚](https://gnews.org/zh-hans/2306672/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

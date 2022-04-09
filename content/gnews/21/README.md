@@ -2,35 +2,28 @@
 ---
 
 
-## 美参谋首长联席会议主席：俄乌战事走向不明
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317473/)
+## 克里姆林宫发言人承认俄罗斯军队在乌克兰“重大”损失
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317478/)
 
 【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【法新社华盛顿7日报道】美国参谋首长联席会议主席（CJCS）马克.密利（Mark Milley）在联邦参议院军事委员会听证会上表示，在俄罗斯入侵乌克兰6周后，整体战事走向仍然不明朗。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-2.jpg)(美国参谋长联席会议主席马克·米利 资料图
-他说，只有乌克兰依然是一个自由且独立的国家，而且其公认的领土也完好无缺，才能算是乌克兰赢得这场战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+3月25日，俄罗斯总统普京的军队承认，自2月24日对乌克兰发动攻势以来，已经失去了1,351名士兵，另有3,825名士兵受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image012-2.jpg)2022年2月18日，克里姆林宫发言人德米特里·佩斯科夫在俄罗斯莫斯科举行的新闻发布会上。人造卫星/谢尔盖·古涅耶夫/克里姆林宫通过路透社
+德米特里·佩斯科夫在接受英國私人頻道《天空新聞》採訪時說：“我們的部隊傷亡慘重，這對我們來說是一場巨大的悲劇。”但他沒有具體說明他的人數。
 
-密利说：这会相当艰难，会是相当艰苦漫长的过程。
+他補充說：“我們希望在未來幾天，在可預見的將來，這項行動將實現其目標或結束俄羅斯和烏克蘭代表團之間的談判。”
 
-他表示，乌克兰东南部、顿巴斯一带还有一场硬仗要打，俄罗斯打算在该地区集结部队，并继续进攻。他认为（战事）会如何结束，现在仍是悬而未决的问题。
+克里姆林宮發言人補充說，如果芬蘭和瑞典加入北約，俄羅斯將不得不“在確保我們的安全方面使其西側更加複雜”。
 
-美参谋首长联席会议主席：俄乌战事走向不明
+3月25日，俄羅斯總統普京的軍隊承認，自2月24日對烏克蘭發動攻勢以來，已經失去了1,351名士兵，另有3,825名士兵受傷。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+俄羅斯總統的發言人還否認了關於在烏克蘭城市布查犯下大屠殺的指控，儘管所有證據都表明克里姆林宮犯下了大屠殺。
+
+烏克蘭軍隊在開戰六周後還有能力阻止俄羅斯的軍事攻擊，這讓全世界的領導人和軍事專家感到驚訝，儘管雙方的傷亡人數都很高。北約估計俄羅斯的死亡人數可能高達15,000 人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
 **校对：小脑斧
 上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,104 +15,104 @@
 
 ---
 
-### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/1/README.md)
+### [有声|俄乌战局最新信息汇总](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/2/README.md)
+ ` 秘密翻译组金融团队`
+
+### [美国及世界疫情简报（04-09-2022）](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
+
+### [有声|卡廷惨案再现-布查大屠杀](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [欧盟认为俄罗斯应对克拉马托尔斯克的袭击负责](/content/gnews/5/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|波士顿马拉松赛禁止俄罗斯和白俄罗斯运动员参赛](/content/gnews/2/README.md)
+### [有声|波士顿马拉松赛禁止俄罗斯和白俄罗斯运动员参赛](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [权力，心满意足的笑了](/content/gnews/3/README.md)
+### [权力，心满意足的笑了](/content/gnews/8/README.md)
  ` 澳喜特战旅Gnews`
 
-### [以色列特拉维夫发生第五起恐怖袭击 造成2人死亡 15人受伤](/content/gnews/4/README.md)
+### [清零究竟清的啥，是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [以色列特拉维夫发生第五起恐怖袭击 造成2人死亡 15人受伤](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [入上海的高速口几乎全封](/content/gnews/5/README.md)
+### [入上海的高速口几乎全封](/content/gnews/11/README.md)
  ` 银河歌舞厅`
 
-### [大直播后记：几位嘉宾对小Sara前线的表现的感想](/content/gnews/6/README.md)
+### [大直播后记：几位嘉宾对小Sara前线的表现的感想](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [20220408郭文贵大直播 ：俄乌战争局势分析(PPT)](/content/gnews/7/README.md)
+### [20220408郭文贵大直播 ：俄乌战争局势分析(PPT)](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [乌克兰副总理韦列舒克表示周六将开放10条人道走廊](/content/gnews/8/README.md)
+### [乌克兰副总理韦列舒克表示周六将开放10条人道走廊](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [20220408郭文贵大直播 ：中共不灭台湾将没有未来](/content/gnews/9/README.md)
+### [20220408郭文贵大直播 ：中共不灭台湾将没有未来](/content/gnews/15/README.md)
  ` Tokyo Sakura Video Group`
 
-### [樱花时政｜上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！](/content/gnews/10/README.md)
+### [樱花时政｜上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共的信念和勇气在救援前线形成了时髦](/content/gnews/11/README.md)
+### [灭共的信念和勇气在救援前线形成了时髦](/content/gnews/17/README.md)
  ` 银河歌舞厅`
 
-### [4/8/2022 文贵盖特：郑州、上海、长春的同胞们所遭受的灾难让文贵一时语塞；有战友买的NFT被中共拿枪抢走，中共的邪恶远超劫富济贫；上海封城中最惨的是受过高等教育而且还相信共产党的人，同胞们的遭遇让我们心急如焚](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/13/README.md)
+### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/18/README.md)
  ` 银河歌舞厅`
 
-### [2022/04/08文贵先生直播精要](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚](/content/gnews/15/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/16/README.md)
+### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/20/README.md)
  ` 银河歌舞厅`
 
-### [克里姆林宫发言人承认俄罗斯军队在乌克兰“重大”损失](/content/gnews/17/README.md)
+### [克里姆林宫发言人承认俄罗斯军队在乌克兰“重大”损失](/content/gnews/21/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [因消费国计划从紧急库存中释放 2.4 亿桶石油预计油价本周将下跌约3%](/content/gnews/18/README.md)
+### [因消费国计划从紧急库存中释放 2.4 亿桶石油预计油价本周将下跌约3%](/content/gnews/22/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [意大利的Intesa加强对俄罗斯活动的检查并停止贷款](/content/gnews/19/README.md)
+### [意大利的Intesa加强对俄罗斯活动的检查并停止贷款](/content/gnews/23/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击](/content/gnews/20/README.md)
+### [诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击](/content/gnews/24/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美参谋首长联席会议主席：俄乌战事走向不明](/content/gnews/21/README.md)
+### [美参谋首长联席会议主席：俄乌战事走向不明](/content/gnews/25/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [巴斯夫老板的巨大恐惧](/content/gnews/22/README.md)
+### [巴斯夫老板的巨大恐惧](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！](/content/gnews/23/README.md)
+### [重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [上海疫情致更多全球供应链中断](/content/gnews/24/README.md)
- ` topnews`
-
-### [速报┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/25/README.md)
+### [速报┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12348录音:全员核酸非法&amp;疫苗致死&amp;痰液检测&amp;棉签有毒](/content/gnews/26/README.md)
+### [12348录音:全员核酸非法&amp;疫苗致死&amp;痰液检测&amp;棉签有毒](/content/gnews/29/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [“布查大屠杀”在中共国社交网站上掀起波澜，“都到了2022年&#8230;&#8230;”](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：乌克兰表示俄罗斯攻击避难火车站已致至少50人死亡](/content/gnews/28/README.md)
+### [秘翻在线：乌克兰表示俄罗斯攻击避难火车站已致至少50人死亡](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：乌克兰表示俄罗斯为隐瞒战死者规模拒绝接收本国军队尸体](/content/gnews/29/README.md)
+### [秘翻在线：乌克兰表示俄罗斯为隐瞒战死者规模拒绝接收本国军队尸体](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [可怕的现实：近期致命的突然死亡何其多](/content/gnews/30/README.md)
- ` xiaobaige`
-
-### [基金投资管理是合并还是分销更好](/content/gnews/31/README.md)
+### [基金投资管理是合并还是分销更好](/content/gnews/32/README.md)
  ` 走进澳洲`
 
-### [投资加密货币的简要提示](/content/gnews/32/README.md)
+### [投资加密货币的简要提示](/content/gnews/33/README.md)
  ` 走进澳洲`
-
-### [中日财经爆┃受俄乌战争影响 全球食品价格创历史新高](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/34/README.md)
  ` 關注組`

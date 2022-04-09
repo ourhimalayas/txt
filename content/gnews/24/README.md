@@ -2,39 +2,39 @@
 ---
 
 
-## 上海疫情致更多全球供应链中断
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2317224/)
+## 诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317474/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1022.png)
-（图片来自原文）
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+俄罗斯诺贝尔和平奖得主、《新报》总编德米特里·穆拉托夫说，他在火车上被含有溶剂丙酮的红色油漆袭击。这起事件发生在周四的莫斯科通往萨马拉的火车上。
 
-上海的中共病毒（Covid-19）疫情仍然 “极其严峻”，中国共产党（CCP）的持续封锁有可能破坏其经济，并 “撕裂 “已经非常紧张的全球供应链。
+袭击后果的图片发表在《新报》的电报频道上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-2.jpg)（穆拉托夫在火车上遭到袭击后，在社交媒体上发布了自己的照片。照片：提供/Novaya Gazeta）![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.jpg)(照片：提供/Novaya Gazeta)
+《新公报》自由派报纸的编辑说，该报在莫斯科就其对俄乌战争的报道发出警告后，已停止运营。
 
-4月7日，周三，上海宣布，当日有16,766个病例，创最高纪录时，中共控制的国家媒体援引该市流行病控制工作小组主任的话说，该市的疫情 “仍然处在高水平”。
+最近，一些公开反对俄罗斯入侵乌克兰的俄罗斯活动家和记者的家园遭到了不知名的亲克里姆林宫派别人物的破坏。
 
-尽管按照国际标准，这次的上海疫情是自2020年1月，中共病毒在武汉引发全球大流行以来，中共国最严重的一次爆发。
+目前，反对战争的人在俄罗斯的生活变得越来越困难。任何将俄罗斯在乌克兰的行动描述为“战争”的人都将面临巨额罚款或关押。俄政府通过了一项法律，声称对散布有关战争“虚假”信息的人判处 15 年监禁。
 
-因为中共当局顽固地坚持”清零”政策，上海2600万人口全都被强迫禁足，行动受到限制，百姓的不满情绪日益高涨。
+俄罗斯总统普京和其他政界人士将任何反对战争的行为描述成对国家的背叛。
 
-中共从各地调派至少38,000名医务人员，还有2,000名军事人员，对居住在上海的居民进行大规模测试。
+[【援引连结】](https://www.rnz.co.nz/news/world/464907/nobel-peace-prize-winning-russian-anti-war-journalist-attacked-with-paint)
 
-更糟糕的是，东北的吉林省继续爆发另一场疫情，首都北京也出现了另外9个病例，北京关闭了发现病例的购物中心。
-
-越来越多的迹象表明，由于封锁，中共国的经济正在急剧放缓。
-
-随着上海持续的封锁，开始影响未来，可能会有更糟糕的情况发生，尤其会对供应链造成重大破坏。
-
-周三亚洲股市一片红海，日经指数下跌1.5%，恒生指数下跌超过2%。欧洲市场在早盘也出现了下跌。
-
-两年来，大流行病的干扰已经使全球经济复杂的供应链脱节，导致商品、食品和消费品的价格急剧上升。
-
-乌克兰战争加剧了通货膨胀，特别是石油和谷物价格，中共国的进一步停工可能会使全球情况恶化。
-
-新闻来源链接： [https://www.theguardian.com/business/2022/apr/06/shanghais-grim-covid-outbreak-threatens-more-global-supply-chain-disruption](https://www.theguardian.com/business/2022/apr/06/shanghais-grim-covid-outbreak-threatens-more-global-supply-chain-disruption)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

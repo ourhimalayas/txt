@@ -2,38 +2,16 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317613/)
+## 20220408郭文贵大直播 ：中共不灭台湾将没有未来
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2317740/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：东京樱花团小视频组
 
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-7-768x994-1.png)
-
-
-
-
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚](https://gnews.org/zh-hans/2306672/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

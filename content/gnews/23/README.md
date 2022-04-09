@@ -2,25 +2,34 @@
 ---
 
 
-## 重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2317241/)
+## 意大利的Intesa加强对俄罗斯活动的检查并停止贷款
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317475/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-6.47.34-AM.png)监控录像显示2022年4月7日晚18:50分部队在上海虹桥站集结 来源：网友社交媒体账号
-**上海虹桥站铁路监控录像显示，4月7日晚18:50部队正从上海虹桥站1站端部南方位集结进入上海。知情网友（推测为相关政府工作人员）在社交媒体群里留言：部队来了，上海正在准备全部军管！同时曝光的信息表明，9号以后团购全部停！**
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【路透社4 月 8 日报导】自乌克兰战争开始以来，联合圣保罗银行(ISP.MI)已停止向俄罗斯和白俄罗斯方面提供任何融资，并且，把当地业务置于危机部门的特别监督之下。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image010-1.jpg)
+在继续进行战略审查的同时，Intesa 也停止了对俄罗斯和白俄罗斯金融工具的投资。
 
-知情网友与朋友的聊天信息贴出了4月7日晚18:50部队在上海虹桥站1站端部南集结的监控录像照片。根据聊天信息推测这个网友应该是相关政府工作人员。他（她）在贴出军队进入上海虹桥站的录像之后，和群里所有朋友分享了“今天保供会议的内容”，并且说：**“9号以后团购全部停”**。为保护个人隐私免于中共迫害之由，该网友的账号名称和头像进行了涂抹处理。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-7.20.39-AM.png)
-1. 上海市防疾办公室发放给每户一个大礼包（口罩，抗原检测盒，莲花清瘟）。
-2. 街道将于二三天内发放（米，菜，鸡蛋，肉或禽类）+区政府的米和面。
-3. 将开户保供采购平台（随后会设置好二维码发给大家）大家可以自行下单，政府将按定单统一采购，运输并送达到小区门口）。
-请大家慢慢耐心等待，谢谢大家的理解，配合。
+发言人在一封电子邮件声明中指出：“与俄罗斯和白俄罗斯交易对手的所有商业活动——包括该集团俄罗斯子公司俄罗斯联合银行的活动——都受到了加强的监控和分析。”
 
-这位政府工作人员网友在回答朋友问虹桥站监控显示的是“军医吗？”这个问题时，回答说是**“部队”**。
+[【援引连结】](https://www.reuters.com/business/finance/italys-intesa-heightens-checks-russia-activities-halts-lending-2022-04-08/)
 
-而且这位政府工作人员网友随后更明确而具体地说：**上海现在准备部队全部军管！每个小区门口两个武警！**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-7.21.57-AM.png)
-上面曝露的信息表明上海已经借着疫情封控很合情合理的进入军管状态了。国内局势与国际局势紧密相连、遥相呼应。国内疫情进入军管状态，中共对国际的战争谋划也在紧锣密鼓的进行。鉴于严酷的形势发展，不管上海非上海、国内国外华人都需要做好储备钱粮水日用等各种必要准备。中共谋划的最黑暗的病毒疫情灾难、经济金融灾难、战争灾难（俄乌战争、中东能源战争和攻打台湾）、粮食危机、全球各地排华等已经在我们眼睁睁的看着状态下就慢慢发生了。
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+
 
  
 
