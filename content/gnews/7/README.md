@@ -2,23 +2,85 @@
 ---
 
 
-## 樱花FM┃香港人陷入长期抗疫的罗网中
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2314622/)
+## 美国广播公司记者展示俄罗斯入侵后的小镇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2314741/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-8-1.png)
-本港确诊数字回落，个别在早期使用的检疫隔离设施或会闭馆。有工程师认为，港府应未雨绸缪，增设更多可转换做防疫用途的设备或场所，随时为下一波疫情、甚至更长远传染病防控做周全的打算，如大型场馆设计或新场馆规划加强抽风换气系统，出入口改成双重门，作为隔离前室，预设医疗及物流通道等。
+James Longman (ABC News Foreign Correspondent)
+詹姆斯·朗曼（ABC新闻驻外记者）
 
-中共病毒在香港盘踞两年阴魂不散，港府全力推进新冠疫苗的注射，宣传可预防感染及降低死亡率，在各种限制政策的配合下，香港的新冠疫苗注射率已高达九成，在市民满怀期待地等候中港通关、海外通航、经济复苏之际，第五波疫情如期而至。港府推出更严厉的防疫措施，不仅通关无望，而且连饭碗都被砸碎，还出现前所未有的高感染率和高死亡率。近日确证人数有所回落，但专家警告已有新的变种病毒出现，第六波疫情随时会到来。而港府和专家除了继续吹嘘新冠疫苗的保护力，还在各区兴建了多个大型隔离营，虽然总体入住率不足五成，但新的隔离项目仍不断推出。据悉，这些隔离营将悉数交予内地医务管理，而最近建设的隔离营已更改了基本构造，采用闭环结构，内设手术室、化验室等功能。如此足以证明即将到来的新冠疫苗次生灾害只会比现在更严重。
+We’ve made it to the town of Borodyanka, which is northwest of Bucha
+我们已经到了布查西北部的博罗江卡镇
 
-爆料革命郭文贵先生在大直播中揭露香港目前的疫情是新冠疫苗导致的次生灾害。而全球许多有良心的医学专家和科学家一致认同，新冠疫苗将导致人体自身的免疫力丧失，各种已知和未知的病症将接踵而来，中共在内地和香港如此大规模地兴建隔离营，与即将大面积爆发的新冠疫苗次生灾害不无关系。连香港的工程专家也嗅到其中的血腥味，提出利用大型公共设施应付长期抗疫的设想。香港的隔离营项目可提供的床位合计2万个，而分布在香港各区的大型的场馆，如体育馆、中小学校的礼堂可等随时改成社区隔离营，安置本区患者，但即便如此，也无法安置九成注射过新冠疫苗的市民，有理由相信在内地各大城市发生的封楼禁足将会在香港上演，而中共研制的气化尸体的设备也会大派用场，香港殡葬行业的压力将瞬间消失，昨日武汉今日香港的悲惨现实即将重演。
+And somehow I didn’t know it was possible
+而不知为何，我不知道这是有可能的
 
-文字版原文：[香港人陷入长期抗疫的罗网中](https://gnews.org/zh-hans/2285834/)
+but the devastation is even worse
+但毁坏的更严重
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+I mean, look at that
+我的意思是，看看那个
 
+That’s an apartment building, just chopped in half
+那是一栋公寓楼，已经被炸成两半
+
+the masses when this invasion began
+当入侵开始时的时候
+
+Russia actually sent its jets over this town
+俄罗斯实际上在这个城镇上空派出喷气式飞机
+
+that they bombed it from the sky
+他们从天上轰炸了它
+
+knowing full well that there were civilians here
+非常清楚这里有平民
+
+And the great fear is
+而且最大的恐惧是
+
+that as Ukraine retakes more and more land on the way up towards the Russian border
+随着乌克兰在通往俄罗斯边境的路上夺回越来越多的土地
+
+that they’ll discover more atrocities
+他们会发现更多的暴行
+
+possibly even worse than the ones we’ve already seen
+可能比我们已经看到的更糟糕
+
+because Russians were here for about much longer
+因为俄罗斯人在这里待的时间要长得多
+
+The other thing about this town
+关于这个小镇的另一件事是
+
+is that all you really hear is the sound of crows
+你真正听到的只是乌鸦的声音
+
+There are very few people because there’s nothing for them to come back to
+这里人很少，因为他们没有什么可以回来的
+
+There’s nothing really for people to have survived here
+人们在这里真的没有什么可以继续生存下去的基础了
+
+* * *
+
+Date:04/07/2022
+原视频标题: ABC reporter shows the town after Russia invasion
+美国广播公司记者展示俄罗斯入侵后的小镇
+原视频日期：2022/04/07
+原视频链接https://twitter.com/jamesaalongman/status/1511663552041525253?s=24
+任务编号：KE474（4196）
+视频时间段 : 0:00-0:54
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
