@@ -2,40 +2,39 @@
 ---
 
 
-## 有声|德国否决中共病毒疫苗强制接种法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317496/)
+## 诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317474/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月7日，德国柏林议会否决了一项自60岁起强制公民接种中共病毒疫苗的法案草案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-3.jpeg)
-该草案是由德国卫生部长劳特巴赫提出的，要求60岁以上公民强制接种疫苗，草案允许接种前咨询医生。在对该法案进行投票的683人中，378人拒绝了该法案，只有296人表示支持，其中包括德国总理肖尔茨和卫生部长劳特巴赫。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+俄罗斯诺贝尔和平奖得主、《新报》总编德米特里·穆拉托夫说，他在火车上被含有溶剂丙酮的红色油漆袭击。这起事件发生在周四的莫斯科通往萨马拉的火车上。
 
-据悉，这一结果对由中左翼的社会民主党、绿党和自由民主党组成的执政联盟是一个重大打击。此前，该部长坚持向18岁以上成年人推行严格疫苗接种计划，始终未获足够支持。经过几个月的辩论，他们甚至在政党内部都无法就这一问题达成一致。
+袭击后果的图片发表在《新报》的电报频道上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-2.jpg)（穆拉托夫在火车上遭到袭击后，在社交媒体上发布了自己的照片。照片：提供/Novaya Gazeta）![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.jpg)(照片：提供/Novaya Gazeta)
+《新公报》自由派报纸的编辑说，该报在莫斯科就其对俄乌战争的报道发出警告后，已停止运营。
 
-消息人士指出，劳特巴赫此前曾宣布自5月1日起，结束隔离政策。然而，为了推行中共病毒疫苗，现在又出尔反尔，散布秋季极有可能出现新的感染，导致医疗系统崩溃等恐慌性言论。一家德国报纸因此称他为肖尔茨领导下的 “联邦混乱部长”，其种种作为正遭到反对党的指控。
+最近，一些公开反对俄罗斯入侵乌克兰的俄罗斯活动家和记者的家园遭到了不知名的亲克里姆林宫派别人物的破坏。
 
+目前，反对战争的人在俄罗斯的生活变得越来越困难。任何将俄罗斯在乌克兰的行动描述为“战争”的人都将面临巨额罚款或关押。俄政府通过了一项法律，声称对散布有关战争“虚假”信息的人判处 15 年监禁。
 
+俄罗斯总统普京和其他政界人士将任何反对战争的行为描述成对国家的背叛。
 
-文字版原文：[德国否决中共病毒疫苗强制接种法案](https://gnews.org/zh-hans/2307149/)
+[【援引连结】](https://www.rnz.co.nz/news/world/464907/nobel-peace-prize-winning-russian-anti-war-journalist-attacked-with-paint)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

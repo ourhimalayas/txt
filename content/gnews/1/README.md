@@ -2,27 +2,30 @@
 ---
 
 
-## 有声|日媒关注中共在教育界展开的新一轮洗脑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2319114/)
+## 美国出台新一轮对俄金融制裁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2319138/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据加拿大《CTV新闻》4月6日报道，美国当天公布对俄罗斯新一轮金融制裁。其中包括针对俄罗斯最大两家银行以及对普京两个成年女儿的制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1063.png)
+据悉，新一轮制裁禁止美国人和美国机构与这两家银行有生意往来，切断了普京所有亲属与美国金融系统的联系，并冻结了他们在美国持有的任何资产。除此之外，制裁还涉及众多俄罗斯高官及其亲属。据白宫称，美国财政部正准备对俄罗斯国有企业实施更多制裁。
 
-当地时间4月6日，日媒报道了中共在俄罗斯侵略乌克兰的事件上，不但加强了社会舆论管控，甚至在教育界展开了新一轮的洗脑。
+同时，欧洲国家也纷纷跟进，宣布一系列对俄罗斯资产冻结和能源进口禁令。一轮又一轮对制裁已经重创俄罗斯经济。目前俄罗斯的通货膨胀率每周为2%，复合年通货膨胀率超过200%。俄罗斯独裁者必定要为其在乌克兰犯下的反人类暴行付出代价。
 
-日媒播放的视频显示，中共国的老师将俄罗斯出兵乌克兰的原因，归咎为乌克兰政治腐败、经济凋敝、政府和纳粹一起杀害俄罗斯人，以及北约东扩等俄方编造出来的理由。一份山东省政府发放给山东省内所有小学到大学的通知，要求教师准确把握中共在俄乌局势中的“原则立场”。在视频最后，更有陕西省为思政课老师准备了一堂名为“引导学生正确认识乌克兰局势”的备课会议，要求思想统一。
+原文链接：https://www.ctvnews.ca/world/u-s-targets-putin-s-daughters-russian-banks-in-new-sanctions-1.5850327
 
-文字版原文：[日媒关注中共在教育界展开的新一轮洗脑](https://gnews.org/zh-hans/2311050/)
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-音频处理/发稿：Daxia
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

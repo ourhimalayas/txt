@@ -2,38 +2,19 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月9日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2318359/)
+## 视频文编|疫苗、疫情管控就是中国共产党插在中国人民身上的细血管
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2318103/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-09_235807.png)
+中共的邪恶已经到了令人发指的程度。被中共独裁政权奴役愚弄的14亿中国人，完全活在一场精心策划的庞氏骗局中而不自知，几辈人省吃俭用积攒的积蓄，被大量存入房地产、银行、医疗、养老、保险等领域，想老有所依、老有所养，这些浸染了无数人汗水鲜血的血汗钱，却被一帮盗国贼、欺民贼们所侵占、蚕食。中共效仿大跃进、文化大革命等方式，利用病毒、疫苗、全民核酸、建立集中营、方舱医院、封城、网络管控等卑鄙手段，以爱之名，欺骗毒害老百姓，实施种族大灭绝，以达到他们不可告人的目的，其用心极其邪恶歹毒！中共就是毒杀人民的元凶。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
+消息来源：
+[2022年3月30日《文贵大直播》](https://gettr.com/streaming/p12oba38c9d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-8.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.09早 《NFSC新闻》](https://www.gettr.com/streaming/p14dqij67b5)
-[2022.04.09早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14dqis33be)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
-
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
-
-
-
+编辑：东京樱花团/曲别针
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

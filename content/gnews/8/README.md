@@ -2,37 +2,25 @@
 ---
 
 
-## 俄罗斯在克拉马托尔斯克火车站袭击平民造成至少 39 人死亡和 100 人受伤
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2318991/)
+## 有声｜因制裁俄罗斯3月通胀率飙升至16.7%
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2319076/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-乌克兰总统泽连斯基称普京军队的行为是“无限邪恶”。本周五，乌克兰东部城市克拉马托尔斯克的车站遭到火箭弹袭击，造成至少 39 人死亡，其中包括 4 名儿童，另有 100 人受伤，数百人正在那里等待火车离开该地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image020.jpg)俄罗斯对克拉马托尔斯克火车站的袭击造成数十人死亡（Hervé BAR / AFP）
-乌克兰铁路公司 Ukrzaliznytsia 的负责人Oleksander Kamyshin在Telegram 上说：“在车站发射火箭弹后，30 多人丧生，100 多人受伤……这是蓄意袭击。”几分钟后，救援部门报告至少有 39 人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image022.jpg)乌克兰东部城市克拉马托尔斯克车站遭到袭击后被毁的汽车（Hervé BAR / AFP）![](https://assets.gnews.org/wp-content/uploads/2022/04/image024.jpg)俄罗斯袭击火车站的遇难者遗体（Hervé BAR / AFP）
-在克拉马托尔斯克站前可以看到几辆烧焦的汽车和一枚导弹的残骸。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image028.jpg)在东部城市克拉马托尔斯克（Hervé BAR / AFP）的火车站遭到袭击后，火箭的残骸位于草地上
-这个地方到处都是废弃的手提箱、碎玻璃和碎片。由于尸体的移动，车站内部被鲜血覆盖，经被踩踏并蔓延到街道上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image030.jpg)地面车辆和人员财物损毁概况（Hervé BAR / AFP）
-乌克兰总统泽连斯基称俄罗斯对火车站的血腥袭击是“无限邪恶**”**。
+By:**秘翻新闻**
 
+**2022-04-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-67.png)
+据[纽约时报](https://www.nytimes.com/2022/04/08/business/russia-interest-rates-ruble.html)4月8日报道，俄罗斯央行周五表示，国内通胀将继续上升，但最近的数据表明物价上涨放缓，4月初，年通胀率接近17%，但周通胀率放缓至略低于1%。
 
+美国和欧洲牵头对俄罗斯实施制裁，旨在将其与全球经济隔离开来。俄罗斯央行在海外持有的外汇和黄金储备被封锁。许多西方公司和银行已经撤出该国。主要金融机构也受到制裁的影响，各国政府越来越多地瞄准俄罗斯的能源出口，这是一个重要的收入来源。上个月，俄罗斯央行行长纳比乌利娜表示，几乎所有公司的生产和供应链以及与外国对手方的交易都出现了中断。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+英国政府估计，俄罗斯正走向自苏联解体以来最严重的衰退，估计今年经济可能萎缩多达 15%。
+
+秘翻新闻 自由信仰 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

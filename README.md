@@ -15,29 +15,29 @@
 
 ---
 
-### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/1/README.md)
- ` MOSREC`
+### [美国出台新一轮对俄金融制裁](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/2/README.md)
- ` MOSREC`
+### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|前线战友真诚付出赢得波兰华人的信任](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [有声｜泽连斯基演讲时 芬兰领空和网络遭俄军攻击](/content/gnews/4/README.md)
+### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜因制裁俄罗斯3月通胀率飙升至16.7%](/content/gnews/5/README.md)
+### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|前线战友真诚付出赢得波兰华人的信任](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声｜泽连斯基演讲时 芬兰领空和网络遭俄军攻击](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [乌克兰：俄罗斯面临“种族灭绝”指控有专家敦促谨慎行事](/content/gnews/6/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声｜俄导弹袭击乌克兰火车站 至少50平民丧生](/content/gnews/7/README.md)
+### [有声｜因制裁俄罗斯3月通胀率飙升至16.7%](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [俄罗斯在克拉马托尔斯克火车站袭击平民造成至少 39 人死亡和 100 人受伤](/content/gnews/8/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [经济学人智库警告：俄乌战争使亚太地区受到大宗商品价格波动影响](/content/gnews/9/README.md)
  ` 【🌹玫瑰新闻】`
@@ -99,77 +99,77 @@
 ### [分享给打了疫苗的国内家人朋友的一封信](/content/gnews/28/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [感染中共生化武器病毒后，为什么会再次感染？](/content/gnews/29/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [【转】截至4.9 俄乌战事汇总](/content/gnews/30/README.md)
+### [【转】截至4.9 俄乌战事汇总](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/31/README.md)
+### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月9日早](/content/gnews/32/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月9日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [视频文编|疫苗、疫情管控就是中国共产党插在中国人民身上的细血管](/content/gnews/33/README.md)
+### [视频文编|疫苗、疫情管控就是中国共产党插在中国人民身上的细血管](/content/gnews/32/README.md)
  ` KarmaLabs`
 
-### [有声|俄乌战局最新信息汇总](/content/gnews/34/README.md)
+### [有声|俄乌战局最新信息汇总](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/35/README.md)
+### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
 
-### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/36/README.md)
+### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [入上海的高速口几乎全封](/content/gnews/37/README.md)
+### [入上海的高速口几乎全封](/content/gnews/36/README.md)
  ` 银河歌舞厅`
 
-### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/38/README.md)
+### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/37/README.md)
  ` 银河歌舞厅`
 
-### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/39/README.md)
+### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/38/README.md)
  ` 银河歌舞厅`
 
-### [有声|德国否决中共病毒疫苗强制接种法案](/content/gnews/40/README.md)
+### [有声|德国否决中共病毒疫苗强制接种法案](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击](/content/gnews/41/README.md)
+### [诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击](/content/gnews/40/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美参谋首长联席会议主席：俄乌战事走向不明](/content/gnews/42/README.md)
+### [美参谋首长联席会议主席：俄乌战事走向不明](/content/gnews/41/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [视频文编|飞飞有感而发：人民需要无皇有主的时代](/content/gnews/43/README.md)
+### [视频文编|飞飞有感而发：人民需要无皇有主的时代](/content/gnews/42/README.md)
  ` KarmaLabs`
 
-### [视频文编|北上广深封城 失业 还贷将引发各种人道灾难](/content/gnews/44/README.md)
+### [视频文编|北上广深封城 失业 还贷将引发各种人道灾难](/content/gnews/43/README.md)
  ` KarmaLabs`
 
-### [基金投资管理是合并还是分销更好](/content/gnews/45/README.md)
+### [基金投资管理是合并还是分销更好](/content/gnews/44/README.md)
  ` 走进澳洲`
 
-### [投资加密货币的简要提示](/content/gnews/46/README.md)
+### [投资加密货币的简要提示](/content/gnews/45/README.md)
  ` 走进澳洲`
 
-### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/47/README.md)
+### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/46/README.md)
  ` 關注組`
 
-### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/48/README.md)
+### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/49/README.md)
+### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/50/README.md)
+### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/51/README.md)
+### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](/content/gnews/52/README.md)
+### [疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](/content/gnews/51/README.md)
  ` 關注組`
+
+### [7News《全球视点》 挑逗族群矛盾是中共统治的法宝](/content/gnews/52/README.md)
+ ` 宁南`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
