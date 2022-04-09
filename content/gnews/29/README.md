@@ -2,44 +2,51 @@
 ---
 
 
-## 出去买菜被警察喝斥的上海男士获得小区居民的集体助威
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2312775/)
+## 美国法院恢复拜登的联邦雇员COVID疫苗强制令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2313136/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/005_副本.png)
-据新闻/真话[@TuCaoFakeNews](https://twitter.com/TuCaoFakeNews)于[上午5:11 · 2022年4月9日](https://twitter.com/TuCaoFakeNews/status/1512538710377922560)发布的推特
+![Reuters](https://www.usnews.com/dims4/USNEWS/65f5f46/2147483647/thumbnail/640x420/quality/85/?url=http%3A%2F%2Fmedia.beam.usnews.com%2F8f%2Fbc57224e99c6a76ddd33af27bc456c%2Ftag%3Areuters.com%2C2022%3Anewsml_LYNXNPEI361BA%3A12022-04-07T222005Z_1_LYNXNPEI361BA_RTROPTP_3_HEALTH-CORONAVIRUS-USA-FUNDING.JPG)资料图
+据美国新闻与世界报4月7日，华盛顿（路透社）报道,一个美国上诉法院小组周四恢复了拜登的行政命令，规定联邦文职雇员必须接种中共病毒COVID-19疫苗。
 
-实在太饿了，上海一男子想开车出去买菜，结果被警察拦住，他与警察争吵起来，意想不到的是，小区所有的居民其实都在盯着这场冲突，他们一起高喊给男子助威，因为他们也和男子一样饿
+第五巡回上诉法院以2比1的投票结果，解除了德克萨斯州一名地区法官1月份发布的禁令，该禁令阻止了联邦雇员疫苗任务的执行。拜登在9月说，他将要求约350万名政府工作人员在11月22日之前接种疫苗，除非有宗教或医疗原因，否则将面临纪律处分或被解雇。
+
+白宫和司法部没有立即发表评论。
+
+拜登政府辩称，联邦审判法庭无权审理这一争端。政府告诉上诉法院，雇员需要通过《公务员制度改革法》（CSRA）来提出他们的申诉。
+
+小组多数成员说，“原告试图规避CSRA的专属审查计划”，法院拒绝了这一 “请求”。
+
+政府的律师在法庭文件中说：“该禁令阻碍了减少联邦工作场所因中共病毒（COVID-19）造成的干扰的努力，从而严重损害了公共利益。”
+
+白宫表示，超过93%的联邦雇员至少接种过一次疫苗，98%的人已经接种过疫苗或正在寻求宗教或医疗豁免。
+
+1月中旬，美国最高法院阻止了拜登对大型企业的中共病毒（COVID-19）疫苗接种或检测授权，保守派法官认为这项政策对许多美国人的生命和健康造成了不当影响。法院允许对医疗机构提出单独的联邦疫苗要求。
+
+针对航空公司和制造商等联邦承包商员工的第三项主要疫苗要求在 12 月被联邦法官阻止。
+
+简评:
+
+早在病毒爆发初期，郭文贵先生就向世界警告，病毒只是手段，随之而来的疫苗灾难才是真正毁灭人类击垮一个国家的真正目的。安全有效的疫苗在过去给人类带来很多益处，但是，中共病毒（COVID-19）爆发后，在极短时间内就推出“试验性”疫苗，更重要的是在未彻查清楚病毒来源，就几近“强迫”人们接种，还让接种的人签署免责协议，不接种就会受到处罚甚至失业。在面对病毒的不断变异，疫苗不仅不会带来有效的保护，还将引发很多副作用，一些副作用对一个人来说或许是毁灭性的。
+
+中共作为疫苗背后的推手，制造了中共病毒（COVID-19），引发世界生化危机，控制世界媒体和医药巨头，疯狂向民众推广疫苗，游说各国政府政客推出相应政策配合这次生化战争。对于疫苗的副作用，各大媒体几乎完全掩盖真相。疯狂的中共独裁者就在等待一个时机，那就是接种疫苗的人群一旦大规模副作用开始显现，一个国家的供应链、经济等各个领域将会陷入混乱。此时，中共就会入侵台湾，在世界混乱中谋利，彻底打破世界的文明秩序，输出共产主义的独裁与邪恶。美国政府应该将更多的注意力放在病毒溯源，只有病毒彻底查清楚，才能采取进一步有效的措施，同时更应该严厉惩罚中共的几个家族，不遗余力的对抗中共，中共不灭，世界上没有一个人是安全的。
+
+新闻链接:
+
+[https://www.usnews.com/news/top-news/articles/2022-04-07/u-s-court-reinstates-biden-federal-employee-covid-vaccine-mandate](https://www.usnews.com/news/top-news/articles/2022-04-07/u-s-court-reinstates-biden-federal-employee-covid-vaccine-mandate)
+
+翻译/简评:親愛的瑪嘉烈
+
+PR: 感恩
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> 实在太饿了，上海一男子想开车出去买菜，结果被警察拦住，他与警察争吵起来，意想不到的是，小区所有的居民其实都在盯着这场冲突，他们一起高喊给男子助威，因为他们也和男子一样饿[pic.twitter.com/SNBcSeHOm1](https://t.co/SNBcSeHOm1)
-> — 新闻/真话 (@TuCaoFakeNews) [April 8, 2022](https://twitter.com/TuCaoFakeNews/status/1512538710377922560?ref_src=twsrc%5Etfw)
-
-
-
-上海的同胞们，为了活着，让我们站起来冲破这牢笼！
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

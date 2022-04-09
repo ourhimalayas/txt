@@ -2,36 +2,32 @@
 ---
 
 
-## 前高盛银行家在1MDB案中被判受贿和洗钱罪成立，疑犯主谋Jho Low仍在逃
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2313662/)
+## 美众议院议长佩洛西将于本周日访台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2313951/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-09-上午10.33.45.png)图片来源：互联网
-前高盛银行家Roger Ng帮助马来西亚1MDB发展基金掠夺数亿美元，周五被美国陪审团判定犯有腐败罪成立。
+作者：纽约香草山农场 – 云豹
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+据联合报4月7日消息，美国众议院议长佩洛西（Nancy Pelosi）计划于4月10日，即《台湾关系法》立法43周年纪念日，访问台湾。
 
-这些指控源于历史上最大的金融丑闻之一，检察官指控高盛集团前马来西亚最高投资银行家Ng密谋违反反腐败法并洗钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-26.jpg)
 
-他们说，他帮助他的前老板蒂姆-莱斯纳(Tim Leissner)从基金中挪用资金，对收益进行洗钱，并贿赂官员为高盛公司赢得业务。
+据悉，佩洛西一行预计将于10日抵达台湾。若此行成功，佩洛西将成为继金里奇后的、第二位到访台湾的美国议长。同时，蔡英文政府也正积极筹备，准备迎接美国国会议员访问团事宜。
 
-该基金的成立是为了在马来西亚开展发展项目。
+俄罗斯发动乌克兰侵略战争后，国际社会对中共武力犯台的担忧与日俱增，台海局势成为热点。佩洛西此次访台，将进一步展现美国对美台关系的重视。
 
-陪审团判定Roger Ng犯有两项通过贿赂和规避高盛内部会计控制而串谋违反《反海外腐败法》（FCPA）的罪名，以及一项串谋洗钱的罪名。
+参考链接：
 
-“今天的判决不仅是法治的胜利，也是马来西亚人民的胜利，”纽约东区美国检察官Breon Peace在一份声明中说。”被告和他的亲信们没有把1MDB看作是一个为马来西亚人民做好事的实体，而是看作是一个让自己发财的猪圈。”
-
-检察官说，高盛通过三次债券销售帮助1MDB筹集了65亿美元，但在2009年至2015年期间，有45亿美元通过贿赂和回扣被转给了政府官员、银行家及其同伙。
-
-Roger Ng是第一个，也可能是唯一一个因该计划而在美国面临审判的人。高盛在2020年支付了近30亿美元的罚款，其马来西亚部门同意认罪。
-
-所谓的马来西亚金融家，被怀疑是该计划主谋的Jho Low于2018年与Ng一起被起诉，目前Jho Low仍然在逃。
-
-原文链接：[Ex-Goldman banker convicted of bribery, money laundering conspiracy charges in 1MDB case](https://www.reuters.com/business/finance/hold-us-jury-reaches-verdict-ex-goldman-bankers-1mdb-corruption-trial-2022-04-08/)
-
-* * *
-
-*编辑&发布：长岛开心*
+- [日媒：美眾院議長裴洛西改行程訪台灣 表達對台支持](https://www.cna.com.tw/news/aopl/202204075003.aspx)
+- [美眾院議長波洛西亞洲行 周日率團訪台](https://udn.com/news/story/6656/6220088)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+
+总编/编辑：雪梨
+审核：雪梨
+校正/发稿：海阔天空1
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
 
  
 

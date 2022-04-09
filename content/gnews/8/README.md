@@ -2,44 +2,37 @@
 ---
 
 
-## 美国周五宣布扩大对俄罗斯和白罗斯出口限制
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2313746/)
+## 俄乌战争将世界粮食价格推至历史高位
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2314064/)
 
-来自新加坡早报 /
-2022年4月9日 10:17 AM 报导
-采集：玫瑰新闻组
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-152.jpg)图片来自网络
+《ABC News》近日报道，联合国机构周五表示，在俄罗斯入侵农业大国乌克兰后，世界粮食价格在3月份创下历史新高，这加剧了人们对世界各地饥饿风险的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+2月24日的入侵和对俄罗斯的国际制裁导致的出口流动中断，引发了对全球饥饿危机的担忧，尤其是在中东和非洲，其连锁反应已经开始显现。
 
+俄罗斯和乌克兰的广大谷物种植区是世界上主要的粮仓之一，在全球几种主要商品的出口中占有巨大份额，包括小麦、植物油和玉米。
 
+乌克兰港口已被俄罗斯封锁，由于战争在春耕季节持续进行，人们对今年的收获感到担忧。
 
+雅虎新闻的报道指出粮农组织表示，在过去三年中，俄罗斯和乌克兰分别占全球小麦和玉米出口的30%和20%。
 
+俄乌战争以来，小麦价格上涨了近20%，对美国作物状况的担忧加剧了这一问题。
 
+粮农组织的植物油价格指数飙升了23.2%，受葵花籽油报价上涨的推动，乌克兰是世界主要的葵花籽油出口国。
 
+俄乌战争影响了20%世界粮食产量，近期看不到哪里能补这20%的缺。粮食危机凸显，人口多的国家再不行动就来不及了。
 
-![美国周五（4月8日）扩大对俄罗斯和白罗斯的出口限制，包括化肥和管阀等美国物品。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220409/2022-04-07t130455z1913765716rc24ts9z0q45522647.jpg?VersionId=NntSgVAGZOp.wkSQspb6bSunqaa1MMNB&amp;itok=jXVTe4pR)美国周五（4月8日）扩大对俄罗斯和白罗斯的出口限制，包括化肥和管阀等美国物品。（路透社）
+参考链接：
 
+[https://www.abc.net.au/news/2022-04-09/ukraine-russia-war-live-kyiv-lviv-zelenskyy-putin-mariupol/100979272?utm\_campaign=abc\_news\_web&utm\_content=link&utm\_medium=content\_shared&utm\_source=abc\_news\_web#live-blog-post-1210157325](https://www.abc.net.au/news/2022-04-09/ukraine-russia-war-live-kyiv-lviv-zelenskyy-putin-mariupol/100979272?utm_campaign=abc_news_web&amp;utm_content=link&amp;utm_medium=content_shared&amp;utm_source=abc_news_web#live-blog-post-1210157325)
 
-以下原文内容：
+[https://finance.yahoo.com/news/world-food-prices-hit-record-080011863.html](https://finance.yahoo.com/news/world-food-prices-hit-record-080011863.html)
 
-（早报讯）美国周五（4月8日）扩大对俄罗斯和白罗斯的出口限制，包括化肥和管阀等美国物品。
+*编辑：金生水*
 
-路透社报道，美国拜登政府还限制由白罗斯人拥有、控制或租赁的美国制造的飞机飞往白罗斯，“这是白罗斯采取行动支持俄罗斯在乌克兰的侵略行为，美国政府采取的回应的一部分”。
-
-在俄军从基辅北部撤军，并在乌克兰布查镇发现乱葬岗后，美国表示要加大对俄罗斯和白罗斯的制裁。
-
-美国商务部表示，将开始要求俄罗斯人和白罗斯人在寻求从美国供应商取得大量特定商品时取得许可证，并承诺将拒绝这些申请；这些需要取得特别许可证的商品包括：肥料、管阀、球轴承和其他零件、材料和化学品。
-
-政府表示，使用美国工具在国外制造的物品也需要获得美国许可证，但政府同样计划拒绝有关申请。
-
-美国日前已经宣布禁止向俄罗斯和白罗斯出口广泛的商品、软件和技术，包括珠宝、服装和车辆之类的美国奢侈品。
-
-新闻链接：
-[美国扩大对俄罗斯和白罗斯出口限制](https://www.zaobao.com.sg/realtime/world/story20220409-1260991)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

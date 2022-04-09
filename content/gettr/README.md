@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 3:50 AM (UTC)`
+
+【Ukraine Rescue】 04/07/2022  A cup of morning NFSC coffee is the choice of each Israel volunteers at the Medyka rescue camp<br/><br/>【乌克兰救援】 04/07/2022 在梅迪卡救援营地，以色列志愿者们人手一杯新中国联邦的醒晨咖啡<br/>
+![img](https://media.gettr.com/group46/getter/2022/04/09/03/401cf72a-bc3c-885c-37a1-a4615859a1ae/out.jpg)
+
+---
+
+`@miles 4/9/2022 3:43 AM (UTC)`
+
+【Ukraine Rescue】 04/07/2022 “You're the real unsung heroes of this. You’re in the middle of the darkest darkness, yet you keep fighting. And it is beautiful and encouraging for the rest of us. And I want you to know you're not alone.” A Danish Christian volunteer called Miriam expressed her applaud to the Chinese inside China fighting against communism<br/><br/>【乌克兰救援】 04/07/2022 “你们是这场运动中真正的无名英雄，你们身处最黑暗的地方，但是你们还在继续战斗。 你们的美丽激励着我们这些人，我想要你们知道你们不是一个人在战斗“ 。一位叫做米里亚姆的丹麦基督徒志愿者赞美中共国内的战友们。<br/>
+![img](https://media.gettr.com/group8/getter/2022/04/09/03/c1837992-0681-71a6-a633-ee499fccff3c/out.jpg)
+
+---
+
 `@miles 4/9/2022 3:18 AM (UTC)`
 
 【Ukraine Rescue】04/05/2022 Citing Putin's crimes against Ukraine as an example, a young American volunteer says: "Cowards have died countless times before physical death, while heroes only need to taste death once." He also says, "I hope to see the day the CCP collapses as soon as possible. We must unite to spend our lives achieving this goal and bring the world back to normal.”<br/><br/> 【乌克兰救援】04/05/2022 一位年轻的美国人志愿者以普京对乌克兰犯下的罪行为例说：“懦夫在肉体死亡之前已经死了无数次，而英雄只需品尝一次死亡的滋味。“并表示“希望能尽快看到中共垮台的那一天。我们必须团结起来用一生去实现这一目标，让世界恢复正常。”<br/>
@@ -143,20 +157,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-08<br/>For English：gettr.com/post/p14a1ob032b
 ![img](https://media.gettr.com/group22/origin/2022/04/08/21/72c5a3fd-9547-459e-41c5-d29ea04742f4/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/8/2022 8:49 PM (UTC)`
-
-2022.04.08  新中国联邦 | 喜健康   危机干预和信仰的力量
-![img](https://media.gettr.com/group20/origin/2022/04/08/20/7b6aed73-ff64-1dfa-95a0-3c62e7d3f1e7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 7:00 PM (UTC)`
-
-2022.04.08  新中国联邦 | 军情室   俄乌战事更新；北约援助乌克兰装备一览；现代战争中的杀伤链概念
-![img](https://media.gettr.com/group48/origin/2022/04/08/18/5c9cc5bf-3653-ef6a-5f2f-09c84a6cfdcd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

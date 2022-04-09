@@ -2,85 +2,26 @@
 ---
 
 
-## 有声|俄乌的硝烟 世界该清醒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2313590/)
+## 台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2313801/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-经历了一战和二战
-世界进入相对和平的年代
-权力的膨胀
-利益的摩擦
-历史总是
-不断的在上演
-俄乌的硝烟
-只是独裁者普京
-狂妄自大的臆想呈现
-妈妈
-为什么
-他们要杀我们呢
-乌克兰的孩子们不会明白
-成人世界的黑暗
-他们恐惧
-他们哭泣
-他们不明白
-为什么穿着军装的叔叔
-毁灭了他们家园
-突如其来的硝烟
-毁灭了他们
-原本快乐的童年
-父母的死亡和伤残
-让他们心灵的创伤
-难以愈合或掩埋
-还有
-还有很多
-乌克兰的孩子们
-生命坠落在
-这次俄乌的硝烟
-距离第二次世界大战结束
-不到百年
-其实纳粹和独裁的细胞
-一直在世界体内繁衍
-从未消失
-俄国的旁边
-中共跃跃欲试
-攻打台湾的嘴脸
-普京习帝狼狈为奸
-都想掌握自己的绝对霸权
-中共是这个世界上
-最强势力的黑暗
-中共一日不灭
-俄乌的硝烟
-还会在世界其他国家上演
-但是
-中共
-不能为中国人代言
-中共
-是邪恶势力的根源
-中国人的清醒
-世界的清醒
-毁灭他们
-消灭他们
-湮灭他们
-不让中共
-再对世界进行破坏
-致即将死去的
-普京邪恶势力和中共
+**港台前线 zhong｜2022-4-9**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-13.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+中共解放军7日派遣多架军机袭扰台湾西南防空识别区，其中1架“运9”逾越东部空域，台湾空军依照惯例升空应对。值得关注的是，本次日本航空自卫队西南航空方面队的战机，也紧急起飞对应，并持续对中共军机进行监控。日本防卫省统合幕僚监部监控报告指出，“初次”记录到中共“运9”进入东经123-126度、北纬21-24度空域活动，并称是在对（日本）领空侵犯。
 
-文字版原文：[俄乌的硝烟 世界该清醒](https://gnews.org/zh-hans/2305809/)
+本次运9进入东经123-126度、北纬21-24度空域活动，为台北飞航情报区东北角与日本飞航情报区重叠之处，故飞经该区可能受到日本空防单位的识别要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-09-上午10.33.53.png)
+另，运-8系列在台湾西南区块定期巡弋，已对西南空防及东沙防务形成极大压力；运-9过去由东海穿越宫古水域进入太平洋，现改取道巴士海峡的作为，显见对台日防务作为将产生极严重影响。
 
-音频处理：Fei797
-发稿：Fei797
+美军参谋首长联席会议主席密利8日表示，台湾是防御性岛屿，美方要做的是协助台湾更好的自我捍卫，最好的威吓是确保中国知道，攻打台湾将是“非常、非常难以实现的目标”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+来源｜[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79741&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
