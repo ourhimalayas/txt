@@ -15,19 +15,19 @@
 
 ---
 
-### [几位战友谈中共国的连坐与告密文化（八）](/content/gnews/1/README.md)
+### [刮骨疗伤 新歌打榜（六）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [威廉王谈非常值得期待的一首原创新歌](/content/gnews/2/README.md)
+### [刮骨疗伤 新歌打榜（二）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [从上天得到的灵感是音乐共鸣的本质（一）](/content/gnews/3/README.md)
+### [刮骨疗伤 新歌打榜（八）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [几位战友谈中共国的连坐与告密文化（四）](/content/gnews/4/README.md)
+### [几位战友谈中共国的连坐与告密文化（一）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [从上天的灵感是音乐共鸣的本质（四）](/content/gnews/5/README.md)
+### [几位战友谈中共国的连坐与告密文化（五）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
 ### [卫星技术拍摄布查大屠杀铁证](/content/gnews/6/README.md)

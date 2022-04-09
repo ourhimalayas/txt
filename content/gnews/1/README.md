@@ -2,11 +2,11 @@
 ---
 
 
-## 几位战友谈中共国的连坐与告密文化（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316329/)
+## 刮骨疗伤 新歌打榜（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316349/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-41-11-50-八-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50-12-00-六--scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

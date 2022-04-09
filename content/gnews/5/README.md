@@ -2,11 +2,11 @@
 ---
 
 
-## 从上天的灵感是音乐共鸣的本质（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316310/)
+## 几位战友谈中共国的连坐与告密文化（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316339/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-20-11-30-四--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-41-11-50-五-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

@@ -2,11 +2,11 @@
 ---
 
 
-## 从上天得到的灵感是音乐共鸣的本质（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316318/)
+## 刮骨疗伤 新歌打榜（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316344/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-20-11-30-一--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50-12-00-八--scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**
