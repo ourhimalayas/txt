@@ -2,29 +2,39 @@
 ---
 
 
-## 令人发指：俄罗斯士兵在母亲面前强奸儿童
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2314937/)
+## 中共为台湾公司造船可能有助于中共海军的建设
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2315031/)
 
-**撰稿：日本东京方舟农场 北极**
+翻译/编辑：小红帽
 
-据焦点报4月8日报道，乌克兰最高议会（Verkhovna Rada Ukrayiny）人权专员柳德米拉·杰尼索娃（Lyudmila Denisova）在她的Facebook上发文指控称，在占领布查（Bucha）和伊尔平(Irpin)期间，俄罗斯军人多次性侵未成年男孩和女孩，甚至当着母亲的面强奸儿童。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/5caed0e7a3104842e4a814b6.jpeg)图片来源：China Daily
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-6.jpeg)俄罗斯在占领基辅地区期间强奸儿童和妇女。（图片来自焦点报）
 
-杰尼索娃在她的Facebook上发文指控在该地区已经记录在案的三起令人发指的性侵案件：
+根据路透社4月8日报道，美国一个智囊团周四表示，中共顶级国有造船公司与台湾主要航运公司之间的合同很可能降低了中共海军的升级成本，同时也给台湾带来了安全问题。
 
-在布查，一名11岁的未成年男孩在被绑在椅子上的母亲面前，被俄罗斯士兵强奸;另一名14岁的未成年女孩被5名俄罗斯士兵轮奸，现已怀孕;
+中国船舶工业集团公司（CSSC）是为中共迅速扩大的人民解放军海军（PLAN）生产舰艇的主要厂家，并被认为正在建造第三艘航母。
 
-在伊尔平，一名20岁的女子被三名俄罗斯士兵“强奸到所有可能的地方”。
+战略与国际研究中心(CSIS)在一份报告中说，自2018年以来，台湾的长荣海运公司已经从中共国购买了44艘船，除了两艘之外，其他都是从生产中共国军舰的造船厂订购的，包括中船集团。
 
-杰尼索娃指出，《日内瓦公约》第27条严禁战争期间的发生强奸行为。她呼吁联合国调查委员会全面调查俄罗斯入侵乌克兰期间侵犯人权的行为，并呼吁欧安组织成员国充分认识到俄罗斯侵略者在乌克兰犯下战争罪行的事实。
+这个总部设在华盛顿的智库说，包括法国等美国盟友在内的外国公司也从中船集团购买船舶，由于中船集团与中共的军事联系，美国已将其列入美国个人和公司的投资黑名单。
 
-参考链接：
-1. [https://reurl.cc/12DknY](https://reurl.cc/12DknY)
-2. [https://reurl.cc/verEne](https://reurl.cc/verEne)
+CSIS说，虽然中共国造船业的外国资本流动的透明度有限，但“现有证据表明，来自外国订单的利润可能降低了中共海军的升级成本”。这些外国合同对该地区的一些民主国家来说是“对国家安全的切实威胁”。公司应考虑将美国盟友韩国和日本作为替代的造船伙伴。
 
-总编： 老孙
-校对发布：文曦
+民主执政的台湾抱怨北京的军事压力增加，北京从未放弃使用武力将该岛置于其控制之下。
+
+CSIS的研究包括2022年2月的商业卫星图像，显示至少有三艘长荣船在上海附近的中船集团子公司–江南造船厂的最新航空母舰附近建造中。长荣船也曾停靠在中共海军巡洋舰和驱逐舰旁边。
+
+CSIS认为，这些图像“表明在中共国的主要造船厂，军事和民用业务之间存在直接的资源共享”。
+
+资料来源：[China shipbuilding for Taiwan firm likely aiding Chinese navy build-up – U.S. think tank](https://www.reuters.com/world/asia-pacific/china-shipbuilding-taiwan-firm-likely-aiding-chinese-navy-build-up-us-think-tank-2022-04-07/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

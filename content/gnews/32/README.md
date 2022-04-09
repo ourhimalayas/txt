@@ -2,41 +2,39 @@
 ---
 
 
-## 德国警方捣毁俄罗斯大型暗网Hydra
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2314970/)
+## 巴基斯坦总理汗表示他不会承认反对派政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2315044/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+翻译：li yan li
+编辑：李易通
 
-据BBC新闻网4月6日报道，德国警方经过几个月的努力，捣毁了世界上最大的暗网俄罗斯的 Hydra网站。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-99.png)
-
-该网站于 2015 年推出，以俄语编写，注册了 1700 万客户和 19,000 多个卖家账户。专门提供即日“空投”服务，毒贩将毒品藏在公共场所，然后再通知客户提货地点。以黑客手段获取文件、伪造文件和非法数字服务，网络犯罪分子还使用比特币来清洗被盗或勒索所得的数字货币。
-
-德国警方表示在接到举报后经过几个月的调查，才找到在德国托管 Hydra 的公司， “防弹主机（bullet-proof hosting）”公司，他们对俄罗斯的这家暗网感到非常震惊，没收了2300 万欧元（1670 万英镑）的比特币。该网站是网络犯罪的堡垒，靠销售毒品和非法商品交易存活了超过六年。
-
-在德国宣布采取行动后不久，美国财政部对 Hydra 实施制裁，“以协调国际努力，阻止通过俄罗斯网站提供的恶意网络服务、危险药物和其他非法产品的扩散”。
-现在，用户如果登录网站，可以在该网站主页上看到“该平台因犯罪行为已被查封”的警方公告。
-
-参考链接：
-
-- [德国警方捣毁俄罗斯大型暗网Hydra](https://www.bbc.com/zhongwen/simp/world-60911545)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-16.png)图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+4月8日，巴基斯坦总理伊姆兰·汗周五表示，如果反对派政府成功地推翻他，他将不会承认反对派政府。这将是席卷这个核武国家的政治危机的最新转折。
 
-编辑/校正/发稿：海阔天空1
+周五，一份官方通知称，该国议会将于周六召开会议，就汗的总理身份进行投票，这可能会缩短他的领导人任期。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+该国最高法院周四晚些时候裁定，汗必须面对民众对他的不信任投票。人们普遍预计他将输掉投票，这意味着他将被赶下台。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+议长办公室在一份命令文件中说，议会下院已于周六上午10:30（格林尼治标准时间5:30）召开会议。反对党领袖谢巴兹·谢里夫提出的针对汗的不信任投票是议程上的第四项内容。
+
+汗说他不会承认任何取代他的反对派政府。他暗示推翻他的行动是外国阴谋的一部分。
+
+汗作为2018年上任的前板球明星，在成为总理后与俄罗斯发展了关系。他指责美国支持了推翻他的阴谋。华盛顿方面驳斥了这一指责。
+
+三届前总理纳瓦兹·谢里夫的弟弟谢巴兹·谢里夫在法院裁决后说，如果汗被赶下台，该国议会已经提名他接任。
+
+参考链接：[巴基斯坦总理汗说他不会承认反对派政府](https://www.channelnewsasia.com/asia/pakistan-inran-kham-says-will-not-recognise-opposition-attempt-oust-2616056)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

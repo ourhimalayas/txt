@@ -2,11 +2,11 @@
 ---
 
 
-## 嘉宾分享社交媒体的商业经营模式（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316172/)
+## 几位战友谈中共国的连坐与告密文化（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316329/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-50-11-00-01-一--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-41-11-50-八-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**
