@@ -15,17 +15,17 @@
 
 ---
 
-### [中共將華人形象毀失殆盡 消滅共產黨的標語深入人心](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [朝鲜拆除象征着韩朝合作的酒店](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [有声|美前线医生称，大规模接种疫苗无效，死亡率更高](/content/gnews/2/README.md)
+### [有声|美国警告印度与俄罗斯走近的后果](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [有声|美议员提案，一旦犯台，中共将被踢出国际金融体系](/content/gnews/3/README.md)
+### [有声|美前线医生称，大规模接种疫苗无效，死亡率更高](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [自俄乌战争以来已有87225名乌克兰难民到达意大利](/content/gnews/4/README.md)
- ` xiaobaige`
+### [有声|美议员提案，一旦犯台，中共将被踢出国际金融体系](/content/gnews/4/README.md)
+ ` MOSREC`
 
 ### [有声|美众议院议长佩洛西将于本周日访台](/content/gnews/5/README.md)
  ` MOSREC`
@@ -51,86 +51,86 @@
 ### [北约称中共已构成严峻挑战](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [视频｜乌克兰无人机追逐逃跑的俄罗斯士兵](/content/gnews/13/README.md)
- ` mayflowertranslate`
-
-### [私人宇航员团队到达国际空间站](/content/gnews/14/README.md)
+### [私人宇航员团队到达国际空间站](/content/gnews/13/README.md)
  ` Shuizhuyu`
 
-### [4/9/2022 文贵盖特：中共在塞尔维亚和中东地区大量布置红旗和东风导弹系统，等于向美国和西方世界宣战；中国人民将为此付出沉痛代价，海外华人正面临着空前的排华危机](/content/gnews/15/README.md)
+### [4/9/2022 文贵盖特：中共在塞尔维亚和中东地区大量布置红旗和东风导弹系统，等于向美国和西方世界宣战；中国人民将为此付出沉痛代价，海外华人正面临着空前的排华危机](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [核谈判陷入僵局，伊朗对24名美国人实施制裁](/content/gnews/16/README.md)
+### [核谈判陷入僵局，伊朗对24名美国人实施制裁](/content/gnews/15/README.md)
  ` Shuizhuyu`
 
-### [美财政部制裁最大的俄罗斯钻石开采商](/content/gnews/17/README.md)
+### [美财政部制裁最大的俄罗斯钻石开采商](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯被踢出联合国人权理事会 中国投反对票、印度投弃权票](/content/gnews/18/README.md)
+### [分享给打了疫苗的国内家人朋友的一封信](/content/gnews/17/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [灭共者之郭氏情报站（48）2022/04/06 文贵大直播](/content/gnews/19/README.md)
- ` MOS Designer香草山设计部`
-
-### [分享给打了疫苗的国内家人朋友的一封信](/content/gnews/20/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [约翰逊出人意料地出现在乌克兰首都](/content/gnews/21/README.md)
+### [约翰逊出人意料地出现在乌克兰首都](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [感染中共生化武器病毒后，为什么会再次感染？](/content/gnews/22/README.md)
+### [感染中共生化武器病毒后，为什么会再次感染？](/content/gnews/19/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [德国总理朔尔茨将于4月下旬访问日本](/content/gnews/23/README.md)
+### [德国总理朔尔茨将于4月下旬访问日本](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【转】截至4.9 俄乌战事汇总](/content/gnews/24/README.md)
+### [【转】截至4.9 俄乌战事汇总](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普习两魔头的结盟及其给世界带来的灾难（四）](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [总理办公室表示，所罗门群岛不允许中共国军事基地](/content/gnews/26/README.md)
+### [总理办公室表示，所罗门群岛不允许中共国军事基地](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马斯克反对“长生不老”的旧观念](/content/gnews/27/README.md)
+### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G叻睇真D】郭文贵先生：中共想尽办法应对银行挤兑](/content/gnews/28/README.md)
- ` G-时新闻`
-
-### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [大直播后记：日本电视台采访前线战友](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月9日早](/content/gnews/31/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月9日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [视频文编|中东石油时代结束 俄罗斯天然气时代结束 欧洲能源被掐脖子时代结束](/content/gnews/33/README.md)
+### [视频文编|俄乌之战与东西方联盟形成](/content/gnews/25/README.md)
  ` KarmaLabs`
 
-### [有声|俄乌战局最新信息汇总](/content/gnews/34/README.md)
+### [视频文编|疫苗、疫情管控就是中国共产党插在中国人民身上的细血管](/content/gnews/26/README.md)
+ ` KarmaLabs`
+
+### [有声|俄乌战局最新信息汇总](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/35/README.md)
+### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/28/README.md)
  ` 秘密翻译组金融团队`
 
-### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/36/README.md)
+### [视频文编|中共是所有政治背后事件的元凶](/content/gnews/29/README.md)
+ ` KarmaLabs`
+
+### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [入上海的高速口几乎全封](/content/gnews/37/README.md)
+### [视频文编|独裁国家的经济就是一场骗局](/content/gnews/31/README.md)
+ ` KarmaLabs`
+
+### [视频文编|前线战友大部分身体康复，救援工作非常辛苦](/content/gnews/32/README.md)
+ ` KarmaLabs`
+
+### [入上海的高速口几乎全封](/content/gnews/33/README.md)
  ` 银河歌舞厅`
 
-### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/38/README.md)
+### [视频文编|地产债务暴雷 引发社会动荡](/content/gnews/34/README.md)
+ ` KarmaLabs`
+
+### [视频文编|金融危机一定会来，最大的受益者是新中国联邦](/content/gnews/35/README.md)
+ ` KarmaLabs`
+
+### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/36/README.md)
  ` 银河歌舞厅`
 
-### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/39/README.md)
+### [视频文编|文贵先生提醒当精力集中在俄乌战争时，别忘了中东、东北亚和南亚](/content/gnews/37/README.md)
+ ` KarmaLabs`
+
+### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/38/README.md)
  ` 银河歌舞厅`
+
+### [视频文编|乌克兰的多管火箭炮精准打击而俄罗斯的火箭炮乱轰乱炸](/content/gnews/39/README.md)
+ ` KarmaLabs`
 
 ### [有声|德国否决中共病毒疫苗强制接种法案](/content/gnews/40/README.md)
  ` MOSREC`

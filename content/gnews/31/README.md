@@ -2,38 +2,19 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月9日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2318359/)
+## 视频文编|独裁国家的经济就是一场骗局
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2317888/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-09_231944.png)
+独裁国家的经济就是一场庞氏骗局，中共国如此，俄罗斯亦然。俄罗斯作为侵略他国主权的一方，仅外资撤资单项，就造成俄罗斯老百姓失去大约200万个直接就业机会，食用糖价格上涨了40%，物价暴涨，物资匮乏，经济一触即溃。同样，中共国的经济萧条，民不聊生，老百姓苦不堪言，独裁者周而复始地实施封城，封城的最终目的是什么？封城导致的饿死人的惨剧又有谁来买单？老百姓无法看病、无法出门，甚至饿死家中无人知晓。独裁者们手握生杀大权，控制经济资源，决定老百姓的生死，封城封门，倒退回供销社经济，可能会重现三年自然灾害的惨状。国人需要改造自己的头脑，保持清醒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
+消息来源：
+[2022年3月30日《文贵大直播》](https://gettr.com/streaming/p12oba38c9d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-8.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.09早 《NFSC新闻》](https://www.gettr.com/streaming/p14dqij67b5)
-[2022.04.09早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14dqis33be)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
-
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
-
-
-
+编辑：东京樱花团/曲别针
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

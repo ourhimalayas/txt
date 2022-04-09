@@ -2,18 +2,16 @@
 ---
 
 
-## 有声|美议员提案，一旦犯台，中共将被踢出国际金融体系
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318844/)
+## 有声|美前线医生称，大规模接种疫苗无效，死亡率更高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318857/)
 
 配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月6日，为阻止中共侵犯台湾，美国众议员卢卡斯提出“排除中共法案”。该法案要求，一旦中共对台湾的社会、经济体系造成威胁，美国政府将采取行动，将中共踢出国际金融体系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-18.jpg)
-卢卡斯表示，中共对美国的国家安全、政治、经济构成极大的威胁。根据该法案，一旦中共攻打台湾，中共官员将被拒绝参加包括G20、国际清算银行（BIS）、国际金融稳定委员会（Financial Stability Board）、国际保险监理官协会（IAIS）、国际证券监察会组织（IOSCO）在内的国际金融组织的会议和活动。
+4月5日，美国前线医生Peterson Pierre博士表示，基于英国于上月公布的中共病毒感染的统计数据，超过一百万人感染中共病毒，其中91%的成年患者接种过疫苗，而且接近90%的中共病毒死亡病例曾接种疫苗。这组数据充分说明，大规模接种疫苗不能防止病毒感染，而且死亡率更高。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-21.jpg)
 
 
-
-文字版原文：[美议员提案，一旦犯台，中共将被踢出国际金融体系](https://gnews.org/zh-hans/2313949/)
+文字版原文：[美前线医生称，大规模接种疫苗无效，死亡率更高](https://gnews.org/zh-hans/2313948/)
 
 音频处理：Tom Li
 发稿：Tom Li
