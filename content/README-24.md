@@ -16,6 +16,8 @@
 ---
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/2019/08/20190827-7154322243260745813.md)
+
 [文字版：2019年8月23日文贵报平安（10分钟）](/content/2019/08/20190824-5714793768655054415.md)
 
 [文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/content/2019/08/20190822-18293374283100190.md)
@@ -63,8 +65,6 @@
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/2019/07/20190730-643602008810576333.md)
 
 [文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/2019/07/20190728-6395183003803536442.md)
-
-[文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/content/2019/07/20190726-326879781741066444.md)
 
 
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
