@@ -2,52 +2,44 @@
 ---
 
 
-## 有声|老爷和韭菜
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318411/)
+## 【商见你我他】第49期新闻简讯（三）
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2318454/)
 
-配音：香草山商业部——文锤
+编辑：波士顿五月花DM，cici
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Euro-expel-russian3-1.jpeg)
+首先，让我们关注灭共新歌打榜的情况，
 
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+4月7号, 郭文贵先生两首灭共新歌《灭共的雪 The Terminator Snow》和《铁锁梦 Chained Dream》上线第四天《灭共的雪》登榜iTunes，继续创造奇迹。
 
+新西兰热门歌曲榜首
 
+15 国摇滚歌曲榜首
 
+《铁锁梦》登榜iTunes
 
+柬埔寨 热门歌曲榜首
 
-老爷是官，韭菜被管
-检测核酸，全民皆关
-指鹿为马，老爷发话
-你想干啥，出门就杀
-军管军管，实枪荷弹
-不听管制，小命要完
-没吃没喝，倒霉是你
-上吊跳楼，自由选择
-啥
-还有自由
-老爷发话, 字正腔圆
-对对对
-我们民主，自由国家
-霹雳扒喳，人落楼下
-老爷发话，人雨是花
-可怜韭菜，哭天喊地
-失去我家，失去我爸
-失去我妈，失去我娃
-老爷发话，塞他嘴巴
-高高铸墙，圈禁你丫
+新西兰， 匈牙利, 柬埔寨 流行歌曲榜首
 
-文字版原文：[老爷和韭菜](https://gnews.org/zh-hans/2309693/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+《Fight for Hong Kong》登榜iTunes
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+老挝摇滚歌曲榜首
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+让我们关注一组新闻资讯，
 
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+1）联合国暂停俄罗斯进入人权机构
+
+外媒4月7日报道，联合国大会周四暂停俄罗斯在联合国人权理事会的席位，本次在纽约举行的193 名成员大会中获得三分之二多数投票。该决定传递了重要的政治信息，它可以授权调查，包括战争罪行。俄罗斯的伙伴中共周四反对该决议。
+
+2）美国对俄罗斯实施新制裁
+
+4月6日，美国白宫发表声明称，鉴于俄罗斯在乌克兰的暴行，美国将全面封锁俄罗斯最大的金融机构–储蓄银行，和俄罗斯最大的私人银行–阿尔法银行，冻结其在美资产。并且表示，对俄罗斯关键的国有企业进行全面制裁，禁止美国人与这些实体进行交易，并冻结资产。同时，美国还将对包括俄罗斯总统普京的成年子女、外长拉夫罗夫的家人等实施经济制裁。
+
+3）泽连斯基要求国际社会追究俄罗斯犯下的战争罪行
+
+外媒4月5日 报道，克兰总统泽连斯基周二对联合国安理会表示，俄罗斯必须对有关战争暴行的指控负责。与此同时，西方准备扩大制裁，包括禁止所有在俄罗斯的新投资。
+
+封面图片/审核/发布：DM
 
  
 
