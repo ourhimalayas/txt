@@ -2,41 +2,41 @@
 ---
 
 
-## 西方国家拟对俄罗斯实施新制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2315986/)
+## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
 
-撰稿: 华盛顿DC农场-自由信仰；纽约香草山农场教育部-马克文、百合观察；日本方舟农场-Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-35.png)
-据多家国外媒体消息，自布查事件曝光以来，西方国家不仅对俄罗斯的暴行进行了强力谴责，还在准备实施一系列新的制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-941.png)图片来自:https://www.reuters.com/
-美国总统拜登6日宣布了一项新的投资禁令，禁止美国人投资俄罗斯公司的股票、债务和投资基金，从而切断了俄罗斯国防工业和其他行业的全球最大投资资本来源。美国及其欧洲盟友还将瞄准俄罗斯的军事供应链，以防止其获得军事工业的关键部件。这些部件对于制造他们的坦克、导弹非常重要。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
+APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
 
-4月6日，英国外交大臣特拉斯表示，与俄罗斯接触的时代已经结束，要采取一种基于弹性、防御和威慑的手段，来确保欧洲的安全。
+包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
 
-日本除了在6日和7日反复强调俄罗斯的侵略犯下了战争罪，4月8日还宣布了对俄罗斯的进一步制裁措施：停止进口俄罗斯的能源；停止进口所有俄罗斯产品；和G7的其他国家一起，禁止俄罗斯投资新的项目；进一步加强对俄罗斯银行的金融制裁，冻结俄罗斯联邦储蓄银行，和最大民间银行阿尔法银行的资产；把之前对俄罗斯个人制裁的名单从150人扩大至550人，对与俄罗斯军队有关的20多个团体进行制裁；同时，日本决定驱逐8名俄罗斯驻日外交官和通商代表。
+铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
 
-参考链接：
+伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
 
-[How the U.S. plans to starve Russia’s ‘war machine’ -Treasury’s Adeyemo to Reuters](https://www.reuters.com/world/europe/us-treasurys-adeyemo-lays-out-plan-starve-russias-war-machine-2022-04-07/)
+根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
 
-[英國外相與北約外長餐敘 稱「與俄接觸的時代已結束」](https://tw.news.yahoo.com/%E8%8B%B1%E5%9C%8B%E5%A4%96%E7%9B%B8%E8%88%87%E5%8C%97%E7%B4%84%E5%A4%96%E9%95%B7%E9%A4%90%E6%95%98-%E7%A8%B1-%E8%88%87%E4%BF%84%E6%8E%A5%E8%A7%B8%E7%9A%84%E6%99%82%E4%BB%A3%E5%B7%B2%E7%B5%90%E6%9D%9F-074704095.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS5oay8&amp;guce_referrer_sig=AQAAAH52FpW1aAN7QZvIsE_P4OQqKrdbl1fs8b0UU59LLvBqvgjbDVmWKhmGAQbcNXuKVqZ_KgM94UbSPC3XL7LUJrDJG3H4J9uOZjX5Zpeu3BvNFEaP9lPuUYmtbfMHn8fqjn3kRN2cMI4IYjN-QV3AAPZKf8lFaZmS2oCFqCt8iL8n)
+我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
 
-[20220408日本宣布對俄羅斯進一步制裁](https://www.gettr.com/post/p1471fy6d9b)
+随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
 
-[松野官房長官、ロシア軍の「民間人殺害は戦争犯罪だ」…日本政府として初の明言](https://www.yomiuri.co.jp/politics/20220406-OYT1T50166/)
+如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
 
-[【速報】岸田首相「戦争犯罪ロシアの責任問う」　民間人大量殺害「断じて許されない」](https://www.fnn.jp/articles/-/343770)
+美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
 
-[松野氏「責任転嫁は不当」　ロシアの対抗措置表明に](https://www.tokyo-np.co.jp/article/170320)
+美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
 
-[松野氏「責任転嫁は不当」　ロシアの対抗措置表明に](https://www.tokyo-np.co.jp/article/170320)
+美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-59-530x720.jpg)
+美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
 
-编辑/总编/审核：飞虹
+美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
 
-校对/审核：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-35.png)
+原文链接：
+
+[美国驻华大使馆](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

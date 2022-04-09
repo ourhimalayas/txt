@@ -2,30 +2,27 @@
 ---
 
 
-## 德国警方捣毁俄罗斯大型暗网Hydra
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2314970/)
+## 美国加重对俄经济制裁 普京女儿亦在其列
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2315146/)
 
 作者：日本东京方舟农场 – Miyali7768(文玉）
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
 
-据BBC新闻网4月6日报道，德国警方经过几个月的努力，捣毁了世界上最大的暗网俄罗斯的 Hydra网站。
+德国媒体4月6日报道，美国周三表示，将对普京政权在乌克兰的暴行，包括在布查镇的暴行，立即施加更严厉的经济制裁，相关的最新措施包含冻结普京两位成年女儿的相关资产并切断她们与美国金融系统的联系。华盛顿还表示，将对俄罗斯最大的公共和私营金融机构，也就是储蓄银行和阿尔法银行实施“全面封锁”的制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-99.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-46.png)
 
-该网站于 2015 年推出，以俄语编写，注册了 1700 万客户和 19,000 多个卖家账户。专门提供即日“空投”服务，毒贩将毒品藏在公共场所，然后再通知客户提货地点。以黑客手段获取文件、伪造文件和非法数字服务，网络犯罪分子还使用比特币来清洗被盗或勒索所得的数字货币。
+这将阻止俄罗斯相关银行的资产出现在美国金融系统中，并禁止美国人与他们进行贸易。其他被盯上的俄罗斯精英还包括俄罗斯总理米修斯丁、俄罗斯外交部长拉夫罗夫的妻子和子女，以及俄罗斯安全委员会成员，包括前总统和总理梅德韦杰夫。
 
-德国警方表示在接到举报后经过几个月的调查，才找到在德国托管 Hydra 的公司， “防弹主机（bullet-proof hosting）”公司，他们对俄罗斯的这家暗网感到非常震惊，没收了2300 万欧元（1670 万英镑）的比特币。该网站是网络犯罪的堡垒，靠销售毒品和非法商品交易存活了超过六年。
-
-在德国宣布采取行动后不久，美国财政部对 Hydra 实施制裁，“以协调国际努力，阻止通过俄罗斯网站提供的恶意网络服务、危险药物和其他非法产品的扩散”。
-现在，用户如果登录网站，可以在该网站主页上看到“该平台因犯罪行为已被查封”的警方公告。
+白宫在一份声明中称：“这些人以牺牲俄罗斯人民的利益为代价来换取个人的财富。他们当中的一些人为支持普京对乌克兰发动战争提供了必要的支持。”美方表示，新的制裁是对俄罗斯军队在乌克兰所犯下的“战争罪行”的有力回应。
 
 参考链接：
 
-- [德国警方捣毁俄罗斯大型暗网Hydra](https://www.bbc.com/zhongwen/simp/world-60911545)
+- [Ukraine: US announces new sanctions, hitting Putin’s daughters, major Russian banks — as it happened](https://www.dw.com/en/ukraine-us-announces-new-sanctions-hitting-putins-daughters-major-russian-banks-as-it-happened/a-61373251)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
 编辑/校正/发稿：海阔天空1
 

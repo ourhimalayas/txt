@@ -2,55 +2,85 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.8）&#8211;注射新冠疫苗让我成了神经病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316134/)
+## 澳洲的福利：高等教育贷款计划（HELP）
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2316378/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 了解澳洲生活点滴， 带您【走进澳洲】
 
-整理/编辑：gardeniahu
+编辑/整理：小鱼儿
 
-- ![诗歌配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-982.png)图片来源：雅典娜设计组&NME
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+澳洲是一个有信仰、有福利的国家。这里和大家，简单地分享一下高等教育贷款计划（HELP）。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+据澳洲官网介绍，高等教育贷款计划 (HELP)有 4 种不同的贷款计划，为学生提供经济帮助，以支付：
 
-帖子原文：
+- 捐助学生（[HECS-HELP](https://www.studyassist.gov.au/help-loans/hecs-help)）
+- 学费（[FEE-HELP](https://www.studyassist.gov.au/help-loans/fee-help)）
+- 海外留学费用（[OS-HELP](https://www.studyassist.gov.au/help-loans/os-help-and-overseas-study)）
+- 学生服务和设施费 ( [SA-HELP](https://www.studyassist.gov.au/help-loans/sa-help) )
 
-**疫情|新冠疫苗副作用  疫苗让我成了神经病**
 
-二0二一年四月底，在国内接受了两针国药新冠疫苗的接种，两针都没有多大的疫苗负作用。
+[学生还可以通过（ VET 学生贷款](https://www.dese.gov.au/vet-student-loans)）获得职业教育和培训 (VET) 学费的经济帮助
 
-二0二一年八月二十七号在卡村完成了第三次新冠疫苗的接种（辉瑞，Pfizer-BioN Tech)
+其中，2021 年的 HELP 贷款限额为：
 
-对Dlter的恐惧，思来想去，周一还是上网预约了疫苗的接种。收到邮件确认后，发现没有疫苗的名称类别，打卫生热线，被告知，如果是第一剂，只有到了疫苗接种点才能确定是Pfier还是Moderna。这些天自己做了新冠疫苗的功课，倾向于Moderna，说是抵抗Dlter病毒的作用比Pfizer强大，但是反应会很严重，儿子打了两剂，每次都要昏昏沉沉三四天…
+- 大多数学生 108,232 澳币
+- 155,448 澳币用于学习以下课程的学生：
+    - 获得初次注册的医学、牙科和兽医科学课程
 
-做着Moderna的准备，中午十二点却接种了Pfizer，还有点小遗憾，结果到了凌晨三点浑身发疼，胃也疼，好像是心脏也痛，总之是哪哪都不舒服，想大声喊叫发泄一下，可是没有一点点力气，打针的胳膊痛得都抬不起来，喘息都费劲，差一点几就挺不过去了，到了第二天下午四点好像才活过来了。
 
-想想没本事的人还想挑战Moderna，幸亏打了Pfizer四十八小时后，除了胳膊有点疼，一切恢复正常了……
+    - 符合条件的航空课程
 
-六天后发现注射部位出现了红色肿片，头有点发重，有点发疼，半夜又感觉浑身不舒服了……早晨去见了家庭医生，测了血压，听了心跳、检查了呼吸，说是正常的疫苗反应，慢慢会好的，可能是轻型心肌炎。
 
-今天已经是接种疫苗的第四周了，我的头痛一点都没有减轻，反而更严重了，实在是太bother我了，又见了家庭医生，被诊断为神经性头痛，确确实实是疫苗后遗症。家庭医生建议，等头不再痛了，再去打第二针，现在可以服用一点tylenol。神经性头痛患者一般表现为双侧头顶部、额颞部、后脑勺部，胀痛、酸痛、钝痛，可以出现一阵一阵加重，也可能会出现要爆炸样的感觉，但是多数患者表现为紧固感和压迫感。
+[了解有关贷款限额和近期变化的更多信息](https://www.studyassist.gov.au/help-loans/combined-help-loan-limit)
 
-发布于2021.09.16
+高等教育贷款计划 (HELP)有 4 种不同的贷款计划：
 
-精选评论
+1）HECS-帮助(HELP)
 
-混油皮猪猪   回复：你是过敏体质么？希望早日康复啊！我每天看到不下5 个人有比较严重的后遗症。
+当您上大学或获得批准的高等教育机构时，您可以获得 HECS-HELP 贷款来支付您的学习费用。如果您在联邦支持的地方 (CSP) 注册，您只能获得 HECS-HELP 贷款。HECS-HELP 贷款不包括住宿、笔记本电脑或教科书等费用。
 
-vv     回复：我昨天打的，现在也是手疼的抬不起来，但是我今天上班的时候要爆了一样，很有压力感，起初我以为我高血压了，还有眼睛也有压力感。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-979.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-980.png)图片来源：小红书
-参考链接：[疫苗让我成了神经病](https://www.xiaohongshu.com/discovery/item/6142c5fb0000000001026637?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649315979)
+HECS-HELP 贷款用于支付您的“[学生供款金额](https://www.studyassist.gov.au/help-loans-commonwealth-supported-places-csps/student-contribution-amounts)”。[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_csp_factsheet.pdf?v=1640216015)查看有关 CSP 和 HECS-HELP 的情况说明书 。
+
+2）学费帮助（FEE-HELP）
+
+当您上大学或获得批准的高等教育机构时，您可以获得 FEE-HELP 贷款来支付全部或部分学费。
+
+FEE-HELP 贷款不包括住宿、笔记本电脑或教科书等费用，它用于支付您的全额学费。
+
+[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_fee_factsheet.pdf?v=1640216057)查看有关 FEE-HELP 的情况说明书 。
+
+3）OS-HELP和海外学习
+
+[OS-HELP 是为在联邦支持的地方](https://www.studyassist.gov.au/help-loans/commonwealth-supported-places-csps) (CSP) 注册并希望在海外学习一些课程的学生提供的贷款 。
+
+如果你在海外大学或高等教育机构就读或你的学历将由海外大学或高等教育机构授予，你不能获得OS-HELP。
+
+如果您获得 OS-HELP，您的提供者将直接向您支付贷款金额。您可以用它来支付机票、住宿或其他旅行费用。
+
+您可以在一生中获得两次 OS-HELP 贷款，但它们不能在同一个六个月内。
+
+[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_os_factsheet.pdf?v=1640216096)查看有关 OS-HELP 的情况说明书。
+
+4）SA-帮助（HELP)
+
+您的大学或高等教育机构每年会向您收取称为学生和便利设施费 (SSAF) 的费用。这笔费用用于支付您校园的费用，例如儿童保育、食品服务、财务建议、体育和娱乐活动或就业和职业建议。SA-HELP 是一项可供您支付全部或部分 SSAF 的贷款。
+
+2022 年，您的提供者可以向您收取的最高 SSAF 金额为 315 澳币。[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_sa_factsheet.pdf?v=1640216125)查看有关 SA-HELP 的情况说明书。
+
+（注：以上信息意为参考，更多的详细信息，请您参考官网）
+
+参考资料：[The Higher Education Loan Program (HELP)](https://www.dese.gov.au/higher-education-loan-program)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

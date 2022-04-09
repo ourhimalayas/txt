@@ -2,42 +2,100 @@
 ---
 
 
-## 中共国面临最严重的经济瘫痪和最高的投资风险 （一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311832/)
+## 拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2312692/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/14.jpeg)图片来源：美联社
-全球GDP的引擎正显示出瓶颈的迹象。油价的下跌揭示没有表现出旺盛的需求，这部分也是由于北京严格的疫情动态清零政策引起的新的生产中断和更紧的信贷渠道。
+**拜登总统**： 
+对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行，它袭击了试图撤离并寻求安全的平民
+我们将继续提供安全援助和武器交付，以帮助乌克兰保卫他们的国家。 而且，我们将与我们的盟友和合作伙伴一起支持对这次袭击进行调查的努力，因为我们记录了俄罗斯的行动并追究他们的责任。
 
-在能源市场动荡的情况下，欧洲努力减少对俄罗斯的能源依赖，乌克兰战争陷入军事和战略僵局，美国每天从其战略储备中提供一百万桶以上的石油，石油输出国组织或多或少地发出隐晦的信息，表明淡化世界石油供应。因为，在这种回溯到20世纪70年代石油危机的旅程中，世界大工厂，这个地球上能源消费配额的通常温度计，已经减少了其能源需求。
 
-在日本投资银行野村控股警告说：“今年5.5%的非官方增长正在受到质疑”，此前第十四个五年计划（2021-2025年）确定不设定任何具体的增长目标，中共国生产系统向内需的转变不可能达到近几十年来接近两位数的增长速度。野村更进一步的谈到，预计目前出现自2020年春季第一波新冠疫情出现以来最严重的经济放缓，提高了投资者的风险系数。专家在给投资者的一份说明中说：“股票投资组合应该更加关注中共国强烈的衰退活动”。
 
-中共国今年第一季度的GDP放缓已经令人担忧，而且在第二季度会更加剧烈，最大的下降“发生在3月份”，当时北京作为清零政策的一部分而颁布的限制流动性的禁锢。首先，作为技术硅谷和通往香港的桥梁——深圳，1750万居民完全禁锢，还有金融之肺上海，2500万居民不得不被隔离在家中。这两项决定将“使瘫痪蔓延到其他地区”，这将开始在“房地产行业”感受到，在商业投资中也将感受到，甚至会逐渐出现振荡的资金短缺。尽管中共中央银行自乌克兰战争爆发以来，首次下调了零点一个百分点，并且使利率保持在3.7%。
+> The attack on a Ukrainian train station is yet another horrific atrocity committed by Russia, striking civilians who were trying to evacuate and reach safety.
+> — President Biden (@POTUS) [April 8, 2022](https://twitter.com/POTUS/status/1512466184817586181?ref_src=twsrc%5Etfw)
 
-尽管在乌克兰战争爆发前消费表现良好，野村从年初的4.2%的年度预测调到2.9%，但野村冒险预测，这种放缓突然影响了服务业、建筑业和制造业等部门，这将使“到2022年实现5.5%的GDP增长目标变得困难，几乎不可能”。同样，对商业公司和工业集团的投资，将被迫应对价值链的新干扰、市场变得紧张和波动以及能源价格的飙升。近日，创下两年多来最高的传染程度。日本投资银行预计在未来两个月将再次降息，降幅为半个点，“以促进贷款的流动”。
 
-在咨询公司Focus Economics也赞同这一观点。严格的Covid清零任务，包括股市、投资和贸易中心的香港，它已经看到东南亚港口之间的货物过境减少，从新加坡到韩国，提高了“对中共国和该地区其他国家经济”的威胁。克里姆林宫对乌克兰的军事干预引发的紧张局势，导致“海上瓶颈和价值链的瓶颈再次出现”。
 
-物流危机和商业生产的瘫痪，以及冠状病毒的新传播，加上另一个地缘政治因素——乌克兰战争，增加了中共经济的脆弱性和风险，“可能导致中共国出现比去年夏天初更大程度的活力丧失的情况”，因为被封闭的城市“占全国GDP的30%以上，所有的这些城市的活动都有所减少，2022年经济扩张急剧放缓，在更大程度上影响商业投资，也影响私人消费，减少个人支出水平，以及失业，这将推高影子经济的比率”。
+**众议院外交委员会共和党**： 
+共和党领袖麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul)：“我感谢斯洛伐克向乌克兰提供 S-300防空系统。美国以及我们的盟国和合作伙伴必须给乌克兰提供保卫其天空所需的武器。时间就是生命。”
+【转斯洛伐克总统黑格尔的推文：我想确认斯洛伐克为乌克兰提供了防空系统 S-300。 乌克兰国家正在勇敢地捍卫其主权国家和我们。 我们有责任提供帮助，而不是呆在原地，对俄罗斯的侵略造成的生命损失视而不见。】
 
-【接下篇：[中共国面临最严重的经济瘫痪和最高的投资风险（二）](https://gnews.org/zh-hans/2311869/)】
 
-**参考链接：**[China combina la peor parálisis económica y el mayor riesgo inversor desde la gran pandemia](https://www.publico.es/internacional/crisis-energetica-china-combina-peor-paralisis-economica-mayor-riesgo-inversor-gran-pandemia.html)
 
-* * *
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): “I thank Slovakia for providing Ukraine the S-300. The U.S. and our allies and partners must provide the weapons Ukraine needs to defend its skies. Time is of the essence.” [https://t.co/AMO6Y6n5qT](https://t.co/AMO6Y6n5qT)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [April 8, 2022](https://twitter.com/HouseForeignGOP/status/1512503517017260041?ref_src=twsrc%5Etfw)
 
-审核：Aries的星
-校对：小东
-发布：信心的选择
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+**前国务卿迈克·蓬佩奥**： 
+即使在普京在乌克兰犯下了暴行的情况下，我们也不能忘记我们的世界所面临的其他危险：[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和伊朗的毛拉。 保持警惕就是威慑力。
+
+
+
+> Even with the atrocities being perpetrated by Putin in Ukraine, we can’t forget the other dangers facing our world: the Chinese Communist Party and the Mullahs in Iran. Vigilance is deterrence.
+> — Mike Pompeo (@mikepompeo) [April 8, 2022](https://twitter.com/mikepompeo/status/1512475508025536516?ref_src=twsrc%5Etfw)
+
+
+
+**众议员伊薇特·赫雷尔**： 
+我很感谢共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader) 任命我为众议院中国立法会议代表。为了对抗 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)，我们必须保护和开发美国惊人的自然资源，同时保卫我们的科技和学术研究部门，我为能够参与此战斗而感到自豪。
+【附众议院官网：共和党领袖麦卡锡宣布中国立法会议成员 
+[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) ([#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)) 是我国面临的最大地缘政治威胁。它垄断了供应链，引发了一场摧毁我们经济的大流行病，并继续从事工业间谍活动和盗窃我们的知识产权。在中国，它继续严重侵犯宗教少数群体的人权】
+
+
+
+> I’m thankful [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) McCarthy named me a House Conferee for China Legislation. To counter the CCP, we must protect & develop America’s amazing natural resources while defending our tech and academic research sector, & I am proud to be in the fight.[https://t.co/FxGdmGKAEU](https://t.co/FxGdmGKAEU)
+> — Rep. Yvette Herrell (@RepHerrell) [April 8, 2022](https://twitter.com/RepHerrell/status/1512445550616059907?ref_src=twsrc%5Etfw)
+
+
+
+**参议员霍利新闻办公室**： 
+“拜登政府等到俄罗斯入侵后才向乌克兰提供致命性(武器)援助。我们不能在印-太地区犯同样的错误，”霍利参议员说。 
+【附参议院官网：霍利提出《台湾武器出口法》 今天霍利议员提出了《台湾武器出口法》,该法案将通过加快国会批准和消除行政障碍来加快向台湾运送关键武器的速度
+ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 入侵台湾的威胁正在迅速增长。 遏制此类入侵的关键是确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统和其他不对称防御能力。 这项立法将有助于美国尽快将这些武器运往台湾。】
+
+
+
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
+
+
+
+**众议院外交委员会共和党**： 
+请观看共和党领袖麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul) 在本周与国务次卿谢尔曼[@DeputySecState](https://twitter.com/DeputySecState) 的委员会全体听证会上，关于美国在印-太地区促进自由的传承、以及保护 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的必要性的评论发言
+【附听证会视频】
+
+
+
+> Watch LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw)’s remarks on America’s legacy of promoting freedom in the Indo-Pacific and the need to protect Taiwan at this week’s full committee hearing with [@DeputySecState](https://twitter.com/DeputySecState?ref_src=twsrc%5Etfw) ⬇️ [pic.twitter.com/3qi53pn4d1](https://t.co/3qi53pn4d1)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [April 8, 2022](https://twitter.com/HouseForeignGOP/status/1512500997175881737?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**： 
+美国国务院反宣传部门致力于揭穿 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关于乌克兰的虚假信息。 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 的谎言显示了其对俄罗斯入侵的支持。 
+【附华盛顿时报登载的比尔·戈茨的相关文章】
+
+
+
+> State Department counter-propaganda unit working to debunk Chinese government disinformation on Ukraine. Beijing lies reveal backing for Russian invasion [https://t.co/n7xOZA0vPW](https://t.co/n7xOZA0vPW)
+> — Bill Gertz (@BillGertz) [April 8, 2022](https://twitter.com/BillGertz/status/1512479041210621957?ref_src=twsrc%5Etfw)
+
+
+
+**参议员卢比奥新闻办公室**： 
+在 [#西藏](https://twitter.com/hashtag/%E8%A5%BF%E8%97%8F?src=hashtag_click)，81 岁的扎西彭措自焚抗议 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的统治。 一个月前，25 岁​​的歌手 
+[#才旺罗布](https://twitter.com/hashtag/%E6%89%8D%E6%97%BA%E7%BD%97%E5%B8%83?src=hashtag_click) 也做了同样的事情。 这些人宁愿死去也不愿活在 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 制造的地狱里。 自由世界必须下定决心打击 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。 
+[#表达而非压迫](https://twitter.com/hashtag/%E8%A1%A8%E8%BE%BE%E8%80%8C%E9%9D%9E%E5%8E%8B%E8%BF%AB?src=hashtag_click) [#ExpressionNOToppression](https://twitter.com/hashtag/ExpressionNOToppression?src=hashtag_click)
+
+
+
+> In [#Tibet](https://twitter.com/hashtag/Tibet?src=hash&amp;ref_src=twsrc%5Etfw), 81-yr-old Tashi Phuntsok set himself on fire to protest [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) rule. A month ago, 25-yr-old singer Tsewang Norbu did the same. These men would rather die than live in the hell that Beijing creates. 
+> 
+> The free world must resolve to combat the CCP. [#ExpressionNOToppression](https://twitter.com/hashtag/ExpressionNOToppression?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hipSRaIA04](https://t.co/hipSRaIA04)
+> — Senator Rubio Press (@SenRubioPress) [April 8, 2022](https://twitter.com/SenRubioPress/status/1512495839364755463?ref_src=twsrc%5Etfw)
+
+
 
  
 

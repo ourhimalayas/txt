@@ -2,48 +2,46 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月8日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2311594/)
+## 中共国面临最严重的经济瘫痪和最高的投资风险 （二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311869/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-08-235514.jpg)
-**1、广州有银行再次启动了“接力贷”被叫停**
-![img](https://media.gettr.com/group35/origin/2022/04/08/02/c19670a3-ed14-2282-cf52-56989c7c5c6c/9dc190810998c18b4541ca3352757b6f_500x0.png)
-广州已经有银行再次启动了“接力贷”，不过随着事情持续发酵，银行已经紧急叫停该项目。据了解“接力贷”的主贷款人年龄需要在18到65岁之间。 按子女年龄最长贷30年，父母+子女流水满足月供两倍以上，首套最低5.4%，二套5.6%。有银行表示，由于接力贷名称较为敏感，所以现在更多的提法是子女作为共贷人，协助还款。
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/14.jpeg)图片了来源：美联社
 
-财经G评：被叫停原因是因为“接力贷”名字敏感，顾名思义接力贷款当房奴，一代不够、代代传承、就叫接力贷！接力贷说了实话，太赤裸裸，其实中共大可不必考虑老百姓的情绪，你们核酸、焊门、封楼有情绪的都跳楼了！
+【接上篇：[中共国面临最严重的经济瘫痪和最高的投资风险 （一）](https://gnews.org/zh-hans/2311832/)】
 
-链接 [https://finance.sina.com.cn/roll/2022-04-07/doc-imcwiwst0511755.shtml](https://finance.sina.com.cn/roll/2022-04-07/doc-imcwiwst0511755.shtml)
+**原油价格，中共经济引擎的温度计**
 
-**2、中共六大银行表示满足条件的可以延期还房贷**
-![img](https://media.gettr.com/group33/origin/2022/04/08/02/117bcee0-ba0f-f147-8239-4f888035587d/94ebaa156812183092d82cd845c4664a_500x0.png)
-工、农、中、建、交、邮储六家大型商业银行回应，受疫情影响，满足条件的客户，可申请房贷延期还款。受疫情影响较大的几类人员可以申请房贷延期还款，包括：因感染新冠肺炎住院治疗或隔离人员、疫情防控需要隔离观察人员；参加疫情防控工作人员；受疫情影响暂时失去收入来源的客户。
+根据期货市场记录的上周每桶原油接近100美元，跌幅高达8美元，这与上海的禁锢相吻合，尽管石油输出国组织暗示了生产状况，并不完全表示国际市场上原油供应的增加，用它来弥补俄罗斯原油出产的下降。
 
-链接 [https://finance.sina.com.cn/wm/2022-04-08/doc-imcwipii2961525.shtml](https://finance.sina.com.cn/wm/2022-04-08/doc-imcwipii2961525.shtml)
+总部设在休斯敦的Lipow Oil Associates LLC总裁Andy Lipow说：“中共国的需求量大约是每天1500万桶，但这一数字因新冠疫情扩张而被大幅削减。”此外，3月17日至23日期间，俄罗斯的能源出口因战争而减半，促使阿拉伯联合酋长国（UAE）能源部长Suhail Al-Mazrouei警告说，卡特尔不会在5月份将产量提高到年初宣布的43万桶/日以上。
 
-**3、中共国企北汽蓝谷两年亏117亿**
-![img](https://media.gettr.com/group45/origin/2022/04/08/02/306e8f14-4119-0465-d1da-ae5c027d4729/bdf36e7ff6fdf60a75e8e17b2d0ebbda_500x0.png)
-北汽新能源，创立于2009年。经过多年发展，2018年9月，北汽新能源通过借壳前锋股份上市，成为A股新能源汽车第一股，并将公司中文名称变更为“北汽蓝谷新能源科技股份有限公司。上市之后，北汽蓝谷的业绩表现不甚理想。Wind数据显示，2019年至2021年，该公司营业收入分别为235.89亿元、52.72亿元、86.97亿元，业绩波动较为明显；同期净利润分别为0.04亿元、-64.76亿元、-51.7亿元，归母净利润分别为0.92亿元、-64.82亿元、-52.44亿元，2020年、2021年连续两年归母净利润累计亏损额达117.26亿元。
+能源市场的消息人士认为，需求的损失指向香港三角区的经济放缓，虽然香港目前没有被限制，但受到疫情的威胁，经济活动减少。同时，在沙特吉达的石油设施遭到袭击后，也门的胡塞武装又暂时停战，以及与伊朗达成核协议的前景，这将增加更多的原油供应。
 
-财经G评：没有一家中国控制的企业是不赔钱的，贪腐和治理结构臃肿、低效率是国企的症结！
+房地产市场是投资者关注的主要焦点之一。在恒大案之后，这个由中央控制的房地产巨头的破产，在去年夏末释放的海啸之后仍有余震，虽然重组了业务，出现了新的大型信托，如MinMetals或Zhongrong，接管了房地产资产和项目，资金已超过2800亿美元，但他们远远没有能力覆盖该部门价值超过3.4万亿美元的负债，这都是恒大重组的一部分。
 
-链接 [https://finance.sina.com.cn/stock/s/2022-04-08/doc-imcwipii2997900.shtml](https://finance.sina.com.cn/stock/s/2022-04-08/doc-imcwipii2997900.shtml)
+在瑞银集团，他们强调了这一领域的风险，尽管砍掉项目的策略受到了银行和工业及企业集团的欢迎，避免不得不承担有毒的房地产资产，或者像过去的金融危机一样，制造坏银行。瑞银解释说，根本问题是金融系统和房地产市场没有完全恢复，而是保持着沉重的债务负担，既减少了贷款的数量和可靠性，又使沉浸在重组中的公司处于抵押贷款悬崖的边缘。这家瑞士投资银行承认，住房市场的活动已经下降。
 
-**4、新股还没上市就提示退市风险，股民中一签亏近8000元**
-![img](https://media.gettr.com/group16/origin/2022/04/08/03/5c73a31a-c3a8-32ce-b5ea-970ef5f40465/02db9ea1da649db1d2373044b75ba707_500x0.png)
-4月8日，新股普源精电登陆科创板。有意思的是，此前，还没上市，普源精电就在招股书中提示“上市后亦可能面临退市的风险”。不料，普源精电上市即破发，开盘大跌26.08%。截至记者发稿时，普源精电跌26.08%，报45.00元。如果按照此价格计算，股民中一签亏损7940元。上市前，通过大规模股权激励等一系列疯狂撒钱行为，普源精电硬生生将公司业绩转盈为亏。
+“从中长期来看，投资策略将是相对限制性的”。即使北京政权“有助于减少经济、金融和商业压力”，这使我们想到销售和采购的“波动性”在6%和9%之间，在价格方面由于通货膨胀的振荡而更加难以量化，投资将下降超过3%。
 
-链接　[https://finance.sina.com.cn/roll/2022-04-08/doc-imcwiwst0579269.shtml](https://finance.sina.com.cn/roll/2022-04-08/doc-imcwiwst0579269.shtml)
+在Natixis的分析师看来，资本流向中共国的这种逆转有三个原因。首先是乌克兰战争在市场上释放的风险厌恶情绪，这种情绪主要集中在全球第二大经济体，在资本基金经理的观念中，新兴市场吸引优惠投资的能力似乎已经被淡化。“投资者不再像武装冲突爆发前那样，将中共国视为一个安全的市场”。其次，有传言称持有1400多亿美元中共国债券的俄罗斯投资者可能会出售其资产以寻求流动性。因为俄罗斯和中共国的主权收益率差已经从3月份的127个基点缩小到32个基点；最后，因为新阶段的禁锢增加了对资本市场的活力和演变的怀疑。
 
-**5、国际能源署将在未来六个月释出1.2亿桶石油储备**
-![img](https://media.gettr.com/group34/origin/2022/04/08/02/66a6932b-bae1-f98b-f2aa-a219a0243c8b/f270ed6398f883d586cb3f8779e30f52_500x0.png)
-国际能源署(IEA)周四确认了成员国对第二次集体释油行动的贡献，释放石油储备是为应对俄罗斯入侵乌克兰的影响。IEA补充说，成员国提交的承诺总计达到1.2亿桶，将在六个月内释放。美国将释放6,000万桶的石油库存，日本将释放1,500万桶。其他主要贡献者包括韩国、德国、法国、意大利和英国。
+**参考链接：**[China combina la peor parálisis económica y el mayor riesgo inversor desde la gran pandemia](https://www.publico.es/internacional/crisis-energetica-china-combina-peor-paralisis-economica-mayor-riesgo-inversor-gran-pandemia.html)
 
-链接：[https://www.iea.org/news/iea-confirms-member-country-contributions-to-second-collective-action-to-release-oil-stocks-in-response-to-russia-s-invasion-of-ukraine](https://www.iea.org/news/iea-confirms-member-country-contributions-to-second-collective-action-to-release-oil-stocks-in-response-to-russia-s-invasion-of-ukraine)
+* * *
 
-海报：润玉
+审核：Aries的星
+校对：小东
+发布：信心的选择
 
-上传排版：文勇
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
 
  
 
