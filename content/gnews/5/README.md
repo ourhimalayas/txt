@@ -2,25 +2,18 @@
 ---
 
 
-## 樱花FM┃瑞典发展氢突破炼铁技术
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2314773/)
+## 文耀与老班长连线（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314917/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-1-6.png)
-HYBRIT，或称氢突破炼铁技术，是SSAB、矿业公司LKAB和瑞典国有电力公司Vattenfall于2016年成立的合资企业。HYBRIT工艺旨在用氢和可再生电力取代传统上用于矿石炼钢的炼焦煤。它从与氢气反应并还原为球形“海绵铁”的棕色铁矿石颗粒开始，由于去除氧气后留下的孔隙而得名。然后将其在电炉中熔化。如果氢气也是使用可再生能源制造的，则该过程不会产生二氧化碳。
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-30-09-40-01（-二）.jpg)
+发布：tianzhihuan
 
-“我们得到铁，然后得到水蒸气，”SSAB的首席技术官MartinPei说。“水蒸气可以在该过程中冷凝、再循环、再利用。钢是一种极好的建筑材料。也可以一次又一次地回收钢材，你可以尽可能多次地重复使用钢材。我们真正解决了炼钢过程中二氧化碳排放的根本原因，”他说。
-
-钢铁是一种可回收材料，但在推动社会转型和建造风力涡轮机、太阳能发电厂、输电线路和新型电动汽车的推动下，预计未来几年对合金的需求将会增长。小型Lulea试验工厂仍然是一个研究设施，到目前为止只生产了几百吨。计划在2026年之前建造一个更大的示范工厂并开始商业交付。
-
-可替代能源不断取得突破，得益于民主社会对人权的尊重。哈耶克说:“解放个人能力之最大的结果，也许就是产生了科学。科学之产生，乃近代西方历史上的奇葩。从意大利到英国以及别的地方，个人自由逐步扩张。由于个人自由逐步扩张，才产生了科学。”在中共国的体制里是永远不会有科学产生，因为他们不会尊重人，他们把人民踩在脚下。
-
-文字版原文：[中日财经爆┃瑞典发展氢突破炼铁技术](https://gnews.org/zh-hans/2286436/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

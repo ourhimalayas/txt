@@ -2,22 +2,29 @@
 ---
 
 
-## 视频|前线战友真诚付出赢得波兰华人的信任
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2314709/)
+## 今日盖特大V推荐 — 西蒙妮·戈尔德医生 (Dr. Simone Gold)
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2314868/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-926.png)
+盖特链接：[**https://gettr.com/user/drsimonegold**](https://gettr.com/user/drsimonegold)
 
-在4月6日的文贵大直播中，文耀战友讲述了新中国联邦在波兰救援前线播种善行、收获信任的美好见证。
+**西蒙妮·戈尔德医生自述：**
 
-战友们在救援前线分工合作，珍视生命，昼夜守护，给乌克兰难民、波兰志愿者和国际救援组织留下了深刻的印象，为中国人树立了正义、善良和友爱的新形象。战友们在工作过程中也接触到了波兰当地的一些华人。这些华人通过战友们的身体力行，了解了新中国联邦的理念与使命，从最初的怀疑，对中共有所顾虑，到后来的信任，对新中国充满希望，有了本质的改变。一些同胞还表达了加入新中国联邦的愿望。
+医生、律师、勇士
+美国前线医生创始人
+**[http://AmericasFrontlineDoctors.org](http://AmericasFrontlineDoctors.org)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-927.png)图片来自网络
+**西蒙妮·戈尔德医生简介：**
 
-文耀战友自豪地说，每一位战友都是爆料革命的播种机，将新中国联邦的影响力扩散到世界各地。详情请收看如下视频。
+西蒙妮·梅丽莎·戈尔德是美国医生、律师、作家，也是美国前线医生 (America’s Frontline Doctors) 的创始人，该组织成立于2020年，以传播有关新冠病毒和疫苗的真相而闻名。2020年7月，在美国最高法院大楼前举行的美国前线医生新闻发布会的视频在网上疯传时，她引起了人们的关注。她对新冠疫苗发表了评论：“我们医生支持疫苗，但这不是疫苗。”
 
-发稿：林礼
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

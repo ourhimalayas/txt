@@ -2,37 +2,34 @@
 ---
 
 
-## 澳洲药监局批准给12-15岁儿童打辉瑞加强针，仍需ATAGI批准
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2314146/)
+## 天空网络竞争 亚马逊签署Kuiper计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314232/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-155.jpg)图片来自网络
-《ABC News》近日报道，澳洲药物管理局已经批准给12-15岁青少年打辉瑞新冠疫苗加强针，但是还需要最后一道审批。
+作者：银河系农场 – 骄子
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
 
-和其他年龄组一样，TGA建议12-15岁的人在打了第二针的6个月后打新冠疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-13.jpg)
 
-澳洲药监局说：“以色列，英国和美国都批准了这个年龄组打加强针。”
+亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网络的卫星系统。目前SpaceX已经有2110颗卫星在轨道上运行，OneWeb第一批计划的648颗目前已经完成发射428颗。
 
-此举是继今年早些时候辉瑞公司为16岁和17岁的人批准加强针之后的又一举措。
+亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成深度默契。
 
-但是要向年轻群体提供助推器，它们必须被纳入新冠疫苗计，这是澳大利亚免疫技术小组（ATAGI）的决定。
-
-澳洲药监局（TGA）说：”ATAGI不久将就辉瑞新股冠疫苗是否应被纳入接种计划提供建议，作为两道审批过程的最后一步。
-
-在TGA和ATAGI批准了12至15岁年龄组的疫苗并在去年将其加入到疫苗推广计划中后，辉瑞和莫德纳新冠疫苗都可用于该年龄组。
-
-截至4月8日，52.3%的16岁及以上符合条件的人已经注射了加强针。
-
-辉瑞疫苗不是已经公布了一千多种不良反应吗？为什么澳洲还要不管不顾的强推呢？
+随着天空互联网公司的发展，竞争是存在的，但合作也在增多。英国的OneWeb公司因俄罗斯受制裁，被迫中止了3月本该由俄罗斯航天局承接的发射任务。最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。
 
 参考链接：
 
-[https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692](https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692)
+- [Amazon books first rocket launches for broadband satellites project](https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project)
 
-*编辑：金生水*
 
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

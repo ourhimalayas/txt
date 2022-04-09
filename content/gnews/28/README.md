@@ -2,72 +2,25 @@
 ---
 
 
-## 德国总理肖尔茨说他不会第二次推动疫苗强制政策
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2313689/)
+## 台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2313801/)
 
-编译: Mandel
+**港台前线 zhong｜2022-4-9**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-13.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+中共解放军7日派遣多架军机袭扰台湾西南防空识别区，其中1架“运9”逾越东部空域，台湾空军依照惯例升空应对。值得关注的是，本次日本航空自卫队西南航空方面队的战机，也紧急起飞对应，并持续对中共军机进行监控。日本防卫省统合幕僚监部监控报告指出，“初次”记录到中共“运9”进入东经123-126度、北纬21-24度空域活动，并称是在对（日本）领空侵犯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+本次运9进入东经123-126度、北纬21-24度空域活动，为台北飞航情报区东北角与日本飞航情报区重叠之处，故飞经该区可能受到日本空防单位的识别要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-09-上午10.33.53.png)
+另，运-8系列在台湾西南区块定期巡弋，已对西南空防及东沙防务形成极大压力；运-9过去由东海穿越宫古水域进入太平洋，现改取道巴士海峡的作为，显见对台日防务作为将产生极严重影响。
 
+美军参谋首长联席会议主席密利8日表示，台湾是防御性岛屿，美方要做的是协助台湾更好的自我捍卫，最好的威吓是确保中国知道，攻打台湾将是“非常、非常难以实现的目标”。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-95.png)图片来源：REUTERS/Lisi Niesner
-
-柏林，4月7日（路透社）- 德国总理奥拉夫·肖尔茨说，他对议会下院周四投票进行反对为60岁以上的人群强制接种新冠疫苗感到失望，但不会发起第二次尝试来推动疫苗强制。
-
-德国的疫苗接种运动步履蹒跚，大约76.6%的德国人至少接种了一剂疫苗——低于法国、意大利和西班牙等其他西欧国家超过80%的比例。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-60.png)图片来源：REUTERS/Lisi Niesner
-
-一项跨党派的提案曾设想过一项法案，要求60岁及以上的公民从10月15日起强制接种新冠疫苗，以避免在秋季出现新一波病毒爆发。
-
-德国的日常感染率处于较高水平，但在过去一周左右有所下降，周四报告了201,729个新病例。
-
-在参与投票的683名议员中，378人对该法案投了反对票，296人投了赞成票，这引发了极右翼AfD立法者的欢呼。这是一次自由的投票，意味着立法者没有被告知要遵循政党路线。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-42.png)图片来源：REUTERS/Lisi Niesner
-
-肖尔茨说：”我认为联邦议院的决定是非常明确的。” 他补充说，政府将寻求其他方式来提高该国的疫苗接种率，而不是再次推行强制性疫苗接种。
-
-肖尔茨在周四晚些时候说：”我们将尽一切努力说服这个国家的更多公民接种疫苗。”
-
-这次失败对肖尔茨来说是一个挫折，他甚至召回他的外交部长安娜莱娜·贝尔博克（Annalena Baerbock）离开在布鲁塞尔举行的北约会议，回来参加投票。
-
-肖尔茨上周被迫放弃为18岁以上的人强制接种疫苗的计划，因为他无法获得议会大多数的支持。
-
-参与发起该法案的立法者德克·维泽（Dirk Wiese）指责反对派的保守派，称他们阻挠该法案用来伤害政府。
-
-维泽在一份声明中说：”基民盟/基社盟（保守派）在肆无忌惮地回答一个良心问题。”
-
-该法案的失败反映了执政联盟具有挑战性的政策制定动态，该联盟由肖尔茨的社会民主党、绿党和自由派的自由民主党组成，他们在许多问题上意见不一。
-
-经过四个小时的激烈辩论，另外三项要求只建议人们接种疫苗或完全拒绝强制接种的议案也被否决。
-
-AfD的议案认为，将疫苗接种强加给公民违反了宪法第二条，该条保证了公民对自己身体的控制权。
-
-奥地利在上个月暂停了疫苗强制，因为担心侵犯权利，所以在开始对违规行为进行罚款的六天前暂停了疫苗强制令。
-
-德国医院联合会（DKG）表示，该法案草案的失败是所有各方的责任。
-
-DKG主席杰拉尔德·卡斯（Gerald Gass）告诉《莱茵邮报》：”最终，我们现在面对的是一个所有政党都负有责任的烂摊子。”
-
-由Riham Alkousaa于2022年4月8日报道。
-
-新闻来源:[Germany’s Scholz says he will not make second push for vaccine mandate](https://www.reuters.com/world/europe/german-parliament-rejects-mandatory-vaccines-blow-scholz-2022-04-07/)
+来源｜[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79741&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
 
 * * *
 
-审核：文乐     
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜.jpeg)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
