@@ -2,36 +2,30 @@
 ---
 
 
-## 美国银行第一季度盈利将下降
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316732/)
+## 可怕的现实：近期致命的突然死亡何其多
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2316919/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### 编译 意大利达芬奇农场 小白鸽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+今天这里讲述的是2022年四月初突然去世的四位意大利人，这一幕现在每天都在世界各地上演。这是发生在近期致命的突然死亡，这并不是虚构。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-09-alle-12.57.35.png)图片来源：eventiavversinews.it
+悲剧的第一位主人公叫利卡尔多，他突然死亡时只有39岁。他在拉丁诺地区当门房。利卡尔多昨天刚刚去世，他是在自己的公寓里突然死亡。几天前他刚从新冠病毒中痊愈。2019年他曾在骑自行车的时候遭遇了车祸，但是后来他逐渐恢复过来。他看守着14个楼层，大约250人。住户们都很信赖他，去度假时，常把家门钥匙留给他甚至包括家里的猫。
 
+罗伯特•罗西的爱好是排球和足球，他是尤文图斯的球迷。罗伯特突然去世时，只有50岁。他的脸上总是挂着笑容，他热爱生命。他是一个体育协会的成员，他在该协会的脸书上曾发了“从天上继续为你们加油”这样一张贴。“ 体育能让我们认识特殊的人，并分享友谊”。有人留言说他是一个非常好的朋友，很难找到像他这样的人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/FTIOZY33LVNV5KJMIHPN2OYAJM.jpg)
+49岁男子突然死在公共汽车里
 
+早上7点15分，一辆行驶在郊区的公共汽车，车上的乘客发现后排有一位乘客，毫无生命迹象。叫来司机马上拨打118， 但毫无办法。
 
-图片来源：路透社
+年轻人突然死在大街上
 
-纽约，4 月 8 日（路透社）预计美国大型银行第一季度的收益将比一年前大幅下降，当时它们受益于异常强劲的交易和交易，以及为贷款损失预留的资金被释放。
+一位31岁的年轻人走在大街上，突然死亡。大概是在13点前，一位行人发现有人躺在路上，马上报警。警察到了之后，118救护车也到了。马上对他实行了急救并将这位年轻人送到医院，但是这位年轻人随后在医院死亡。司法警察正在对此案进行调查。
 
-根据 Refinitiv I/B/E/S 的分析师估计，美国六大银行的净收入将比去年同期下降约 35%。 2 月下旬俄罗斯入侵乌克兰后，投资银行业务收入停滞不前。
+参考链接：
 
-Keefe, Bruyette & Woods 的分析师 Christopher McGratty 表示，本季度对大型银行来说将是一个挑战。他说，投资银行业务收入预计下降 36%，交易业务收入预计下降 18%，是最大的不利因素。
+[https://www.eventiavversinews.it/cerano-una-volta-un-portiere-uno-sportivo-un-uomo-sullautobus-e-un-pedone-no-non-e-una-fiaba-sono-i-mal](https://www.eventiavversinews.it/cerano-una-volta-un-portiere-uno-sportivo-un-uomo-sullautobus-e-un-pedone-no-non-e-una-fiaba-sono-i-mal)
 
-巴克莱的分析师杰森·戈德堡在一份报告中写道，本季度可能会被视为短期的痛苦，但有望获得长期收益。他指出，3 月 31 日的一个例子是 PNC 金融服务集团降低了第一季度的收入预测，但提高了全年的预期。
-
-由于银行受益于更高的利率，投资者预计将更多地关注银行增加其净利息收入的前景，或贷款收入与存款和其他基金支付的利息之间的差额。
-
-如果乌克兰战争继续，美联储继续加息以降温通胀，银行高管将被问及美国经济是否会继续增长的看法。在天然气和食品价格上涨后，他们可能会面临低收入借款人能否还款的压力。
-
-简评：俄罗斯入侵乌克兰的经济效应现在慢慢显现， 一个战争不但是毁掉了战争发生地人们的生活甚至生命， 远离战争的地方的经济， 供应链，生活必需品都遭到了重创，尤其乌克兰和俄罗斯是粮食大国， 全世界受到的冲击可想而知， 银行业受影响是肯定的， 解决问题的办法只有一个。 消灭共产党， 共产党才是一切罪恶的根源。
-
-🔗 [https://www.reuters.com/business/finance/us-bank-earnings-decline-first-quarter-2022-04-08/](https://www.reuters.com/business/finance/us-bank-earnings-decline-first-quarter-2022-04-08/)
-
-编辑发表： Shuizhuyu
+编辑、上传： Xiao baige
 
  
 

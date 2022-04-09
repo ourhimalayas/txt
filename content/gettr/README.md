@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 2:23 PM (UTC)`
+
+ 4月9号：尊敬的战友们好，感谢从上海，深圳，吉林，北京．广东等地战友们送来的这些绝密信息，新中国联邦……永远不会忘记．永远感恩……明天上午七哥将加入大直播。共产党在整个中国大陆制造的人类大灾难．将超出我们常人的想象，我们明天直播详谈，一切都已经开始！
+![img](https://media.gettr.com/group9/getter/2022/04/09/14/cdbf0e8e-5fde-22c5-837f-b86a6276f167/out.jpg)
+
+---
+
 `@miles 4/9/2022 2:08 PM (UTC)`
 
 04/09/2022 on the 6th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on 5 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on Cambodia 🇰🇭 Top Song Charts<br/>#3 🥉on Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Philippines, Cambodia, Brazil, Mongolia, Armenia, Fiji, Laos🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +152,6 @@
 
 2022.04.08 晚  新中国联邦 | 新闻访谈   俄罗斯完了，中共国还远吗？
 ![img](https://media.gettr.com/group19/origin/2022/04/09/01/165998e4-6df9-bb77-d2b0-0237fb1dfadf/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/9/2022 12:33 AM (UTC)`
-
-2022.04.08 晚  新中国联邦 | 新闻    我们要把中国人从被中共胁迫的恐惧中解放出来；再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处
-![img](https://media.gettr.com/group46/origin/2022/04/09/00/712cf7f0-dabc-bb53-dc2d-cc067b007189/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
