@@ -2,38 +2,22 @@
 ---
 
 
-## 有声|华府年度晚宴爆发疫情,美司法部长和商务部长等至少六位高官染疫
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2316880/)
+## 视频|北约同意向乌提供先进重型武器
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2317072/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-【路透华盛顿4月6日】 华盛顿摆脱新冠疫情束缚，游客重返国会大厦、官员们参加一个过去两年都被取消举行的高规格晚宴之际，新冠病毒再次席卷美国的权力殿堂。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image004.png)美国商务部长雷蒙多
-最近几天，包括拜登总统的内阁成员和议员在内的至少六位高官新冠病毒检测呈阳性，即使全美病例数量有所下降。
+制作：香草山视频部
 
-华府重要年度社交活动——烤架晚宴举行之后几天，美国司法部长加兰、商务部长雷蒙多以及民主党众议员Adam Schiff和Joaquin Castro陆续检出新冠阳性。
+4月8日外媒报道称，在刚刚结束的布鲁塞尔北约会议上，各成员国已经同意向乌克兰提供新型先进武器。
 
-白宫表示，美国副总统哈里斯与她的通讯主管Jamal Simmons有过密切接触，后者周三检测结果呈阳性。哈里斯将继续她的公开日程。
+乌克兰外长在布会议上要求北约提供重型军火，包括战机、导弹、装甲车辆、远程防空系统以及其他装备。会后，英国外务大臣特拉斯表示，各成员国已经批准了他们的请求，支持以新款重型兵器武装乌克兰，以使他们能对付俄罗斯的威胁，乌军队将从苏联时代的系统升级至现代化的北约制式装备。美国国务卿布林肯称，美国和其他30个国家不会让任何事情阻碍向乌克兰人提供他们需要的东西。
 
+库列巴在会后表示，对盟军援助持谨慎乐观的态度。
 
+发稿：Daxia
 
-[【援引连结】](https://cn.reuters.com/article/washington-dinner-covid19-0406-wedn-idCNKCS2LZ05M)
-
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

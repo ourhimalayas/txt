@@ -2,24 +2,42 @@
 ---
 
 
-## 上海野蛮清零 “方舱监狱”陆续投入使用
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2316586/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316666/)
 
-作者：意大利罗马达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/04/方舱医院.jpeg)网络图片
-3月28日早上5点，上海市民收到通知“封城”，而且是突然收到通知，这同之前的“武汉封城”没有任何区别，被恐慌弥漫的“大上海”，2600万人口的金融中心，从此开启“地狱模式”。
+整理：枳实
+美工：精灵蓝
 
-七哥直播中说，上海疫情失控就是疫苗后遗症，上海野蛮封城是政治因素。可见，中共独裁体制下的领导人只会考虑自己的权利和面子，其余一切都是可以利用和牺牲的工具。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-4月6日9点，经过连续9小时的彻夜奋战，上海新国际博览中心方舱医院8500平米办公区建设完成，全部投入使用 11支医疗队、可接纳1.5万名阳性感染者。
 
-4月9日，国家会展中心（上海）方舱医院今晨传来消息，预计今天实现首批新冠轻症或无症状感染者收治。这是上海目前规模最大的方舱医院，床位5万张。
+雅典娜疫情更新（2022年 4月8日）
 
-上海野蛮清零，“方舱监狱”陆续投入使用，孙春兰亲到上海指挥，为了实现所谓的“社会面清零”，老百姓被像猪猡一样塞进“方舱监狱”，因为这里没有治疗、没有人性关怀，只有圈禁、只有自生自灭。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-989.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-990.png)
+[2022年4月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月8日改进.pdf)
 
-参考链接：🔗[中央企业调集力量、众志成城 全力以赴助力上海方舱医院建设](https://www.163.com/news/article/H4HC0S15000189FH.html?clickfrom=w_yw)
+数据来源：
 
-*编辑/校正/发稿：儒为*
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

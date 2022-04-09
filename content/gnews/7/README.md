@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|欧盟全面禁止进口俄罗斯煤炭的禁令将被推迟到8月中旬生效
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2316881/)
+## 视频|欧盟抵制以卢布交易俄罗斯天然气 匈牙利唱反调
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2317079/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-【路透布鲁塞尔4月7日】  欧盟一位消息人士告诉路透，欧盟特使将于周四批准对俄罗斯煤炭的进口禁令，禁令将于8月中旬全面生效，比最初提议的时间晚了一个月。此前德国曾施压要求推迟该措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.png)
-逐步淘汰欧盟对俄罗斯煤炭的进口，是欧盟执委会本周提出的第五套对俄制裁措施中最重要的一项。一旦获得批准，这将是自2月24日俄乌战争爆发以来，欧盟首次禁止从俄罗斯进口能源。但欧盟仍未触及进口量更大的俄罗斯石油和天然气。
+制作：香草山视频部
 
-[【援引连结】](https://cn.reuters.com/article/eu-russia-coal-ban-0407-idCNKCS2LZ0WQ)
+4月6日外媒报道，匈牙利表示同意普京提出的为俄罗斯天然气支付卢布的要求，这打破了欧盟提议的反对以卢布支付的联合行动。普京入侵乌克兰遭到西方强力制裁后，曾警告欧洲以卢布支付天然气费用，否则可能会削减供应。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+随后，欧盟多个国家努力争取一起抵制俄罗斯的要求。4月4日，斯洛伐克表示将与欧盟一致行动；波兰期望年底前不改变与俄罗斯的天然气合约；拉脱维亚表示不支持以卢布支付；立陶宛直接表示将不再进口俄罗斯天然气，成为欧洲第一个抵制俄罗斯能源供应的国家。
+
+但匈牙利总理欧尔班在回答记者提问时表示，如果俄罗斯提出要求，匈牙利将以卢布支付运费。在欧盟成员国中，匈牙利也是少数几个拒绝因俄罗斯入侵暴行制裁其能源产业的国家之一。
+
+有分析人士称，郭文贵先生在大直播中曾提到，当前世界正在形成两大阵营。匈牙利亲中俄的总理欧尔班近期的连任及其对待俄罗斯侵略乌克兰的态度，似乎预示了匈牙利的走向，值得引起欧盟各国警惕。
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

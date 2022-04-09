@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 11:59 AM (UTC)`
+
+ 4月9号：尊敬的战友们好．真正的疫苗灾难即将到来……五月中下旬将全面开始……大家务必做好心理和物理准备，一切都已经开始！
+![img](https://media.gettr.com/group37/getter/2022/04/09/11/37b08779-f036-96c1-0d65-2d6eff00fe0e/f7dbb7860493f5ea9bfa019a7c86510f.jpg)
+
+---
+
 `@miles 4/9/2022 11:37 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月8日第35天当日救援统计：<br/>Medyka救援站接待：约264人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10095人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 35 - Date: April 8, 2022 :<br/>Medyka Rescue Station Reception: about 264 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10095 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -150,13 +157,6 @@
 
 4/8/2022 Miles Guo’s GETTR: The fellow fighters on the front line of the Ukraine rescue operation shocked the world with their actions, telling the world in time that the Chinese Communist Party does not represent the Chinese people, and showing that we are the extraordinary ones who are different from what the world imagines the Chinese to be. We are so blessed that we must be grateful to God and all fellow fighters who contributed!<br/><br/>4/8/2022 文贵盖特：救援前线的战友用行动震惊了全世界，及时告诉了世界中共不代表中国人，并展现出了我们和他们想像的中国人完全不一样的素质；我们太幸福了，我们要感恩上天和所有付出的战友们！<br/>
 ![img](https://media.gettr.com/group24/getter/2022/04/08/23/78136e8a-168e-b765-1e88-f46c2bc0274b/out.jpg)
-
----
-
-`@miles 4/8/2022 11:19 PM (UTC)`
-
- 4月8号：所有的悲剧，都是来自于无知．和没有信仰……
-![img](https://media.gettr.com/group41/getter/2022/04/08/23/cc55db80-28b9-41c0-528a-ef74f4cb86b0/6727d5820b120306cfa36f20ede7e4f8.jpg)
 
 ---
 
