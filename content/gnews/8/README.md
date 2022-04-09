@@ -2,67 +2,72 @@
 ---
 
 
-## 权力，心满意足的笑了
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2317880/)
+## 粗暴的笑话
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2318079/)
 
-撰稿：菜园子112～尕虎
+作者：蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1042.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-167.jpg)
-图片制作：澳喜农场©森森
 
-2018年，智者喊：手里的房子尽快脱手。
-
-你笑，房价涨的这么好，神经病。
-
-2019年，智者喊：今年是未来十年最好的一年。
-
-你笑，明天更美好，你们这群悲观主义者。
-
-2020年，智者喊：瘟疫之下，节流，少动，躺平，别贷款买房。
-
-你笑，会和萨斯一样立刻结束，你们这群谣棍。
-
-2021年，智者喊：存粮，存食物，别投资，别想发大财，活着才是硬道理。
-
-你笑，物资如此丰盛，机会如此遍地，拿出家底，大干一场。
-
-2022年，智者喊：努力活着…
-
-你已经怕的穷的饿的笑不出来了。
-
-明年？
-
-智者，估计已经气绝身亡。
-
-不喊了。
-
-你笑不笑，已经不重要了。
-
-重要的是：权力，心满意足的笑了。
-
-注：文章部分观点及内容来自中共国墙内网友
-
-*编辑：**Gradient Boost*
-
-*发布：疯狂的韭菜*
-
-新闻参考链接：
-
-[NHK JP](https://www3.nhk.or.jp/news/special/ukraine/article/0003.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+我在喊
+你也在喊
+我喊我饿了需要吃的
+你喊控制灵魂对自由的渴望
 
 
 
-更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2310566/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
-[郭文贵先生Gettr](https://gnews.org/zh-hans/2310566/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
-[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2310566/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2310566/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)+1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+我想
+我们是不是
+来自于不同星球
+不懂彼此语言
+交臂而过
+也只是交臂而过
+你假装听不懂我
+我对你无言以对
 
+你说
+控制灵魂对自由的渴望
+你告诉我
+告诉我们
+谁在控制我们的灵魂
+我们的自由
+
+我们早已经忘了
+什么是灵魂
+什么是自由
+生活处在最低要求
+可是
+如今
+也
+已经被剥夺
+
+喊吧，喊吧
+无人机在空中飞行
+那是用我们血汗
+购买的先进水平
+循环着你的声音
+控制着人们灵魂
+美好一切
+都已成了
+昨日风景
+只留下
+万人空巷
+家家牢笼
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
+
+**更多資訊，更多關注**
+[**烏克蘭救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文貴先生**Gettr](https://gettr.com/user/miles)
+[**全球喜馬拉雅農場聯盟委員會**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜馬拉雅聯盟大使館全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1047.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,58 @@
 ---
 
 
-## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
+## 美国驻华使团再发《旅行警告和授权撤离的声明》，美中彻底撕破脸皮
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316512/)
 
 撰稿：Skagen
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
-APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
+2022年4月9号是历史性的一天。从这一天起，美中彻底撕破脸皮，开启中美脱钩，共产党政权进入倒计时。
 
-包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
+这是美国第三次发出《旅行警告和授权撤离的声明》。
 
-铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
+**此前两次“授权撤离”**
 
-伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
+第一次撤离发生在中共国病毒大爆发的2020年1月底，此后，美国大使馆人员重新回到中共国，逐步恢复签证等业务的运作。
 
-根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
+第二次撤离发生在北京冬季奥运会前夕的2022年1月25日，郭文贵先生在“甜蜜蜜运动重大公告”中公布了关于美国授权撤离北京大使馆消息，该消息震惊世界。郭文贵先生透露，1月27日中共恳求美国不要撤走大使馆那么多人，并建议美国“象征性的把所谓阳性的人撤走，剩下的留在这儿，然后共同来个公告”，对外宣称“由于使馆有人感染阳性，短暂的授权撤离”。
 
-我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
+郭先生还透露，美国派了几架军事医疗专机到了北京，美国北京大使馆几个人呢，去那么多军事医疗专机干啥去啊？其答案是显然的，这是在撤离大量的重要资料和物资。当时中共党媒《环球时报》认为是美国政府特意在冬奥会前憋阴招，以此图谋所谓的“外交抵制”。
 
-随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
+但是这次的撤离仅仅“通过消息人士告诉路透社”的方式称，美国国务院正在权衡是否批准“授权撤离”。最后并没有在[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网发布正式的声明。
 
-如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
+**这次的声明是彻底的撕破脸皮**
 
-美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
+这次的声明是非常清楚的。以下是对这篇声明的解读。
 
-美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
+原文：包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
 
-美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
+解读：说明声明要传递的最高等级对象是“美国驻华使团的所有工作人员和家属，以及美国公民”，这是头等舱。有美国签证的其他国家公民未详。
 
-美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
+原文：铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
 
-美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
+解读：这句话说明了该声明的（1）原因：由于“新冠病例激增（注意激增），和应对措施”；（2）声明是在4月8号由国务院批准的；（3）上海总领事馆领区除了留下紧急人员，其他非紧急人员和家属全撤
+
+原文：伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
+
+解读：说明美国从大使，国务院到各个和中共国对接的部门都已经通知到了，撤了，全撤了，脱钩了，拜拜了！
+
+原文：根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
+
+**解读：这段话是就是对中共政府得最直接最明白最具体的谴责（Condemn)：**
+
+第一句：你中共对“当地法律的任意执行”就是践踏法律，你就是一个无法无天的非法政府！
+
+第二句：你中共非法政府借口“新冠疫情相关的限制”，把“父母与孩子分离”，这是突破了人类的底线，实际也表明全世界各国的外交官委托美国为首和中共谈判未果。
+
+第三句：点明了重点是“香港、吉林、上海”，按全世界文明国家的标准已经是人间炼狱。
+
+原文：我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
+
+解读：这句话实际是警告，虽然提到的是三个城市，但是“在中国各地的美国公民群体”都快跑路吧！因为全中国都会实施，都会变成人间地狱的。上海领馆专门成立一个团队提供紧急服务，这听起来就是“从最严重的上海开始紧急撤离，北京大使馆协助撤离”。
+
+对于美国坚定撤离所有驻华机构的行动，中共内部当前不敢面对、不愿面对，仍旧会死缠着美国，寄望于联合美国出个公告以欺骗广大的中国老百姓，以维护它们对中国的统治。不管中共是否愿意正视现实，这则声明已经彻底表明：作为中共政权合法性“定海神针”的美国大使馆的撤离，已经开启了中共灭亡的倒计时。
+
+**人都撤了，还需要讨论经济脱钩吗？美国都撤了，其他国家能不撤吗？**
 
 原文链接：
 

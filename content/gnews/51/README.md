@@ -2,35 +2,36 @@
 ---
 
 
-## 有声|美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310790/)
+## 北约将就芬兰及瑞典的加入进行讨论
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314568/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-【路透社**4**月**5**日报导】 美国财政部周二对一个著名的俄罗斯暗网市场网站（**Hydra）**和一家加密货币交易所（**Garantex）**实施制裁。财政部称该交易所主要在莫斯科和圣彼得堡运营。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image025.jpg)美国财政部大楼
-根据区块链研究人士，**2019**年俄罗斯加密货币交易所直接收到的非法比特币中约有**86%**来自**Hydra**。美国财政部将**Hydra**称为世界上**”**最大和最出名的暗网市场**”**。**
+作者：自由信仰
 
-**美国财政部表示，新的制裁措施禁止美国人向**Hydra**或**Garantex**提供**”**任何捐款或资金、货物或服务**”**。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
 
-**美国财政部还表示，这项制裁措施禁止美国与**Hydra**和**Garantex**进行交易，并寻求冻结他们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做努力的一部分。
+4月7日，据相关媒体报道，美国国务院一名高级官员当天透露，在本周于布鲁塞尔举行的北大西洋公约组织军事联盟外长会议上，公约国就芬兰和瑞典加入北约的可能性做出了讨论。
 
-[【援引连结】](https://cn.reuters.com/article/usa-russia-darknet-market-sanctions-0405-idCNKCS2LY03K)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-7.44.51-PM-1.png)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+报道提及，俄罗斯对乌克兰的入侵促使芬兰和瑞典两个北欧国家开始考虑加入以美国为首的联盟。对此，这位美国官员指出，北约的大门仍然处于开启状态，潜在的候选资格也是公约国的议题之一。
+
+芬兰近期的民意调查显示，自俄罗斯入侵战争开始以来，大多数芬兰人都表现出希望加入北约的意愿。而芬兰外交部长哈维斯托早先也承认，芬兰或将在未来几周内确定是否申请加入北约。与此同时，芬兰外交部也强调，该国会坚定地支持乌克兰捍卫自由和民主的努力。
+
+然而，俄罗斯克里姆林宫的发言人扬言称，如果芬兰和瑞典加入北约，那俄罗斯将用自己的措施“重新平衡局势”。而就在次日乌克兰总统泽兰斯基于芬兰发表演讲时，一架俄罗斯飞机侵犯了芬兰的领空。
+
+参考链接：
+
+1. [Prospect of Finland, Sweden joining NATO discussed at NATO meeting -U.S. official](https://www.reuters.com/world/prospect-finland-sweden-joining-nato-discussed-brussels-meeting-state-dept-2022-04-07/)
+2. [Finland hit by cyberattack, airspace breach](https://thehill.com/policy/international/3262439-finland-hit-by-cyber-attack-airspace-breach/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+
+编辑：飞虹
+总编：Irene木木
+审核：飞虹
+校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 3:29 PM (UTC)`
+
+【Ukraine Rescue】 04/07/2022 Nicole interviews two Chinese boys who came to Poland on spring holidays with their father to participate in the relief effort: their father does not speak English, but with the help of his two sons' translation, he drives the refugees to places. Nicole is touched and introduces our NFSC to them and tells them that we are also a group of compassionate Chinese people who love to help others.<br/><br/>【乌克兰救援】 04/07/2022 妮可采访了两位利用春假随父亲前来波兰参与救援的华人少年：他们的父亲虽不会英语，但是在两个儿子的翻译协助下开车运输难民。妮可在感动之余也向他们介绍了我们新中共联邦，并告诉他们，我们同样是一群热爱公益，喜欢去帮助别人，有爱心的中国人。
+![img](https://media.gettr.com/group9/getter/2022/04/09/15/2af86a38-9f28-e5ad-eb75-4a7027e9c91c/out.jpg)
+
+---
+
 `@miles 4/9/2022 3:22 PM (UTC)`
 
 【Ukraine Rescue】04/07/2022 One French volunteer in a talk with Nicole expressed how much he likes the NFSC hat because it shows the will of the Chinese people to overthrow the CCP. He would like to get one of our hats and wear it to show his support for us.<br/><br/>【乌克兰救援】04/07/2022 一位法国志愿者在与妮可交谈时表示，非常喜欢新中国联邦的帽子，因为它表达了中国人民推翻中共的意愿。他表示，希望能获得一顶我们的帽子，并戴着它以示对我们的支持。
@@ -145,13 +152,6 @@
 
 2022-4-8《鸡血王喜币大作战》 第一百五十九集 嘉宾：无双柳薇薇、Tex、封神榜
 ![img](https://media.gettr.com/group49/origin/2022/04/09/03/1f18d9cd-1243-575c-6a9c-4dcf3708adc3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 2:57 AM (UTC)`
-
-4/8/2022 Ukraine Rescue: A top Japanese TV station was attracted by the Ukraine rescue camp of the New Federal State of China and took the initiative to conduct a nearly 30-minute interview with our fellow fighters on the rescue frontline. Our fellow fighters are once again spreading our philosophy of taking down the Chinese Communist Party to the rest of the world.<br/><br/>4/8/2022 乌克兰救援连线：一家日本大电视台被新中国联邦乌克兰救援前线营地所吸引，主动对前线战友进行了近半小时的采访，我们的战友再次将灭共理念传向世界各国<br/>
-![img](https://media.gettr.com/group39/getter/2022/04/09/02/dd8721ac-4ff5-76de-0393-1b31cbca48ac/out.jpg)
 
 ---
 
