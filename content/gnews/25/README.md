@@ -2,42 +2,37 @@
 ---
 
 
-## 德国当局关闭&#8221;世界上最大和运行时间最长的&#8221;暗网市场，缴获2500万美元的比特币
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2312664/)
+## 辉瑞数据显示新冠疫苗接种者患上亚临床心肌炎的风险很高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2312673/)
 
-撰稿：东京樱花团/calvin
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-876.png)图片来源：Nature
+据《网关专家》（Gateway Pundit）和《Blaze Media》4月7日报道，根据美国食品药品监管局（FDA）应信息自由法（FOIA）要求公布的辉瑞新冠疫苗临床实验文件，FDA在批准辉瑞的实验性新冠疫苗时并没有提到该疫苗会对年轻人的心脏造成损伤。
 
-美国司法部4月5日宣布没收世界上规模最大、运行时间最长的暗网市场Hydra Market（Hydra，编者注：希腊神话中的堤丰与厄喀德那所生的九头蛇）。2021年，Hydra估计占所有暗网市场相关加密货币交易的80%，自2015年以来，该市场已收到约52亿美元的加密货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220409how_many_tokens_i_have.png)（图片来自文内链接）
-当天上午，德国联邦刑事警察（Bundeskriminalamt）与美国执法部门协调，在德国查获了Hydra服务器和含有价值2500万美元比特币的加密货币钱包。
+当公众在2021年早些时候发现心肌炎是新冠疫苗的一个副作用时，政府和媒体立即声称心肌炎的发病率极低，并公布了大量的劣质“研究”试图淡化此风险。比如《美国医学会杂志》（JAMA）去年10月刊登的一篇来自凯泽永久医疗集团(Kaiser Permanente)的论文称，每百万新冠疫苗接种者中，平均只有6.6人会患上心肌炎；另一项研究说，军队中的心肌炎发病率为五万分之一。但是，现在根据知情同意行动网络（Informed Consent Action Network）获得的辉瑞知情同意书（informed consent document），我们知道这个数字被严重低估了。辉瑞内部认为接种者患上心肌炎的概率可能高达1/1000。再细想一下，如果这只是该公司愿意承认的概率，那真正的发病率又会是多少。
 
-美国司法部长梅里克-加兰说：”司法部将坚持不懈地努力追究那些违反我们法律的人的责任——不管他们在哪里，也不管他们如何试图隐藏他们的罪行。与我们的德国执法伙伴一道，我们已经查封了世界上最大的暗网市场的基础设施，但我们的工作远未结束。我们将继续与我们的国际和机构间伙伴合作，瓦解和铲除暗网市场，并让那些在暗网上犯罪的人对其行为负责。”
+另外，接种者患上亚临床心肌炎（subclinical myocarditis，即无症状心肌炎）的概率又是多少呢？我们知道有许多人在接种疫苗后不久就患上心肌炎，但是那些现在仍处于亚临床心肌炎状态、可能需要数月甚至更长时间才会发现自己心脏受损的人又有多少呢？
 
-“司法部不会允许暗网市场和加密货币成为洗钱和销售黑客工具和服务的安全港，”司法部副部长Lisa O. Monaco说，”我们的信息应该是明确的：我们将继续追查暗网市场和那些利用它们的人。与我们在德国和世界各地的合作伙伴一起，我们将继续努力瓦解使这些犯罪行为人得以运作的生态系统”。
+《Blaze Media》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 4月7日发推说：“FDA曾要求辉瑞对天花疫苗接种者患上亚临床心肌炎的概率进行研究。FDA说接种者患上亚临床心肌炎的概率可能是临床心肌炎的 60 倍，辉瑞的数据显示亚临床心肌炎风险可能高达1/17。”
 
-Hydra是一个在线犯罪市场，使主要是俄语国家的用户能够在执法部门之外匿名买卖非法商品和服务，包括非法毒品、被盗金融信息、欺诈性身份文件以及洗钱和混合服务。Hydra上的交易是以加密货币进行的，Hydra的经营者对在Hydra上进行的每一笔交易收取佣金。
 
-在关闭Hydra的同时，该部门还宣布对30岁的俄罗斯居民德米特里-奥列戈维奇-帕夫洛夫（Dmitry Olegovich Pavlov）提出刑事指控，罪名是他经营和管理用于运行Hydra的服务器，密谋分销麻醉品和洗钱。
 
-加利福尼亚州北区的美国检察官Stephanie M. Hinds说：”这次协调行动向任何试图在暗网掩护下经营或支持网上犯罪企业的人发出了明确的信息。暗网不是犯罪分子可以肆无忌惮地运作或躲避美国执法部门的地方，我们将继续利用我们先进的工具和专业知识拆除和禁用暗网市场。这一行动也强调了国际执法合作的重要性。我们感谢德国当局和德国联邦刑事警察局（Bundeskriminalamt）在此案中提供的宝贵协助。”
+> The FDA demanded Pfizer conduct a study on sub-clinical myocarditis. They state it is potentially 60 times more common than clinical myo. According to pfizer's own numbers, that could be as low as 1 in 17! [https://t.co/nKRZvO84PA](https://t.co/nKRZvO84PA)
+> — Daniel Horowitz (@RMConservative) [April 7, 2022](https://twitter.com/RMConservative/status/1512075662109995019?ref_src=twsrc%5Etfw)
 
-毒品执法局（DEA）局长安妮-米勒姆（Anne Milgram）说：”暗网一直是全球范围内销售致命毒品的重要在线市场。Hydra提供的非法物质和洗钱服务的供应威胁着远近社区的安全和健康。暗网中的犯罪分子躲在匿名的假象后面，但DEA和我们在全球的合作伙伴都在关注。我们将继续调查、揭露，并对犯罪网络采取行动，无论他们在哪里运作。我赞扬缉毒局迈阿密缉毒网络调查工作队、网络支持科和特别行动处的非凡调查努力，以及联邦和国际执法伙伴的团队合作，促成了这次行动。”
 
-“Hydra暗网网站为自以为是的犯罪分子提供了一个平台，让他们在执法部门无法触及之处买卖非法毒品和服务，”国税局刑事调查处处长吉姆-李说，”我们的网络犯罪小组再次利用他们的加密货币追踪专长，帮助捣毁这个网站，并查明其背后的罪犯。拒绝犯罪分子自由运作的空间来进行他们的邪恶活动是完全阻止这类活动发生的第一步”。
 
-“联邦调查局局长克里斯托弗-雷（Christopher Wray）说：”成功查封世界上最大的暗网市场Hydra，拆除了使各种犯罪分子（包括俄罗斯网络犯罪分子、支持他们和其他人的加密货币不倒翁、洗钱者以及毒品贩子）得以生存的数字基础设施。今天的宣布证明了我们在这里和世界各地的执法伙伴关系的力量和效力，也是我们广泛针对推动和促成犯罪的整个非法生态系统的战略的另一个例子。”
+2022年截至目前，在疫苗接种数量远少于去年的情况下，疫苗不良反应事件报告系统（VAERS）记录的心肌炎概率却比2021年平均增涨了245%。这是否源于新冠疫苗对接种者的长期影响开始显现，在去年患上了无症状心肌炎的接种者在今年才开始出现心肌炎症状，这是否也解释了为什么有越来越多的运动员在比赛场上突然倒下或者出现心脏不适、胸痛等健康问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-877.png)
+新冠疫苗是精心设计的大规模杀伤性武器，它的短期影响已经十分可怕，长期影响更是让人不寒而栗，不仅波及范围广，而且不会让人想到问题根源在于数个月甚至更久之前接种的疫苗。这里还只讨论了心脏，疫苗对大脑、神经系统、生殖系统以及肺、肝脏等人体重要器官的长期影响又是怎样的呢？无法想象当疫苗的长期影响开始显现时，人类会遭遇怎样的浩劫。正如郭文贵先生屡次强调的那样，现今世界没打疫苗就是最大的幸福，无苗族将拯救人类。
 
-“美国邮政检查局致力于保护美国的邮件不被用来运输非法毒品和暗网中的非法商品，”美国邮政检查局国家总部的首席邮政督察Gary R. Barksdale说，”对犯罪市场Hydra的查封，反映了执法部门的有效合作，阻止了犯罪企业的非法活动。邮政检查局将继续与我们的联邦伙伴合作，结束这些犯罪组织，无论它们在哪里。”
+*责编：白夜*
 
-除了德国联邦刑事警察至关重要的努力之外，司法部国际事务办公室和哥伦比亚特区美国检察官办公室也提供了大量协助。司法部的国家加密货币执法小组也提供了协助。
+新闻来源：
 
-信息来源：
-[German Authorities Shut Down ‘World’s Largest And Longest-Running’ Darknet Market, Seize $25M in Bitcoin](https://breaking911.com/breaking-german-authorities-shut-down-worlds-largest-and-longest-running-darknet-market-seize-25m-in-bitcoin/)
+[BREAKING REPORT… Naomi Wolf on War Room – FDA Failed to Mention Heart Damage to Teens When Approving Pfizer Vaccine (VIDEO)](https://www.thegatewaypundit.com/2022/04/breaking-report-naomi-wolf-war-room-fda-failed-mention-heart-damage-teens-approving-pfizer-vaccine-video/)
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/曲别针
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
-
+[Horowitz: What did Pfizer know and when? 3 important findings from recent document releases](https://www.theblaze.com/op-ed/horowitz-what-did-pfizer-know-and-when-3-important-findings-from-recent-document-releases)
 
  
 
