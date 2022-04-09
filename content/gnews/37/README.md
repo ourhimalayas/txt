@@ -2,21 +2,24 @@
 ---
 
 
-## 岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316455/)
+## 堪萨斯州参议员致信医生 使用伊维菌素、羟氯喹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2316477/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-39.png)（图片源自本文链接）
-4月9日每日新闻消息：8日的新闻发布会上，日本首相岸田文雄表示：俄罗斯的军事活动在我国境周边地区也变得越来越活跃，这是一个令人担忧的问题。
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-68.jpg)
+美联社4月8日报道。堪萨斯州参议员马克-斯蒂芬（Mark Steffen）上周给医疗服务提供者发了一封信，告诉他们治疗COVID-19患者的方式已经改变，他们将免受医疗委员会的“干扰”。在信中，他援引了参议院最近通过的一项措施，该措施特别授权医生开伊维菌素和羟氯喹等药物，以治疗COVID-19。但该提案仍在与众议院的谈判僵局中。
 
-首相岸田文雄还说：必须严重关注俄罗斯军队在远东地区的行动，政府将采取一切可能的措施，收集信息并警惕地监测俄罗斯军队在我国附近的行动。
+堪萨斯州为医疗服务提供者颁发执照的委员会周五就这封信表示关切。堪萨斯州医疗委员会(The Kansas Board of Healing Arts )说，堪萨斯州参议员马克-斯蒂芬的”史无前例”的信没有任何法律或监管效力，但在堪萨斯州医疗界造成了“混乱和担忧”。
 
-信息来源： [岸田首相「ロシア軍、我が国周辺でも活動活発化」　懸念を表明（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/18140539765067cea0d4d391fc2d67713d732ebd)
+医疗委员会在回应中写道，州或联邦法律都没有禁止FDA批准的药物的标签外处方。但它称，医生必须遵循护理标准，这是一个明理的医生在一定情况下会做出的决定。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+身为麻醉师的斯蒂芬参议员承认开过伊维菌素的处方，他拒绝证实委员会对他的调查是否涉及这些处方。但他说这（调查）包括他的公开声明，这些声明一直支持伊维菌素和其他未经证实的COVID-19疗法。
 
+新闻来源：
+
+[https://apnews.com/article/covid-health-business-hutchinson-kansas-fca6345c35166ec5a216f9a47d4c27fe](https://apnews.com/article/covid-health-business-hutchinson-kansas-fca6345c35166ec5a216f9a47d4c27fe)
+
+[https://apnews.com/article/health-business-kansas-wichita-hutchinson-e68f4a8eda8b5a9ec3fb6ca95c1f4a7d](https://apnews.com/article/health-business-kansas-wichita-hutchinson-e68f4a8eda8b5a9ec3fb6ca95c1f4a7d)
 
  
 

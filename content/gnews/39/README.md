@@ -2,34 +2,26 @@
 ---
 
 
-## 瑞典欲加入北约
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316379/)
+## 马斯克推动推特内部雇员问与答会议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2316448/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-160.jpg)
+图片来源： tech.ifeng.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+零对冲网4月8日报道，马斯克向推特委员会提出召开公司雇员私下对马斯克的“绝对言论自由”和他可能对推特平台的“反对骚扰和仇恨言论”(如保守观点或任何对公司的理念相违背）的反转的影响进行评论。
 
+为了不让这些批评受到忽略，公司周五宣布马斯克同意举行一个内部雇员的问与答会议，
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0154.jpg)
+据华盛顿邮报所述，推特公司通常让雇员们先把问题递交给高管，这是长期以来硅谷的传统。但现在直接在内部委员会举行问与答会议是很少见的。
 
+而且，雇员们已经在平台上指貴马斯克“对整个公司造成伤害”。
 
-图片来源：路透社
+公司执行董事们一直在告诉雇员们马斯克不会在管理上起作用，关于这个问与答的会议将下周内部举行。
 
-如果邻国芬兰申请加入北约，瑞典第二大反对党的领导人将建议他的政党改变立场，支持瑞典加入北约。
+推特  马斯克  问与答会议
 
-瑞典民主党改变立场将意味着议会多数席位转向支持长期中立的瑞典加入联盟。
-
-俄罗斯入侵乌克兰促使两国考虑加入，尽管瑞典比与俄罗斯有 1,300 公里边界的芬兰更犹豫不决。
-
-芬兰政府已表示将在未来几周内澄清有关可能决定寻求会员资格的后续步骤。
-
-民族主义瑞典民主党上个月表示，在一项民意调查显示大多数瑞典人首次支持加入北约。
-
-简评：俄罗斯入侵乌克兰的事实，以及俄罗斯在乌克兰杀戮平民的罪恶， 让北欧的芬兰和瑞典也不得不考虑自己的安全， 独自对抗俄罗斯身单力薄， 希望能够加入北约。 尤其是芬兰有1300公里和俄罗斯交界， 安全隐患让国民觉醒。 北欧国家要改变中立的立场， 对北约来说当然是好事。 北欧国家虽然是欧盟成员，当时不是北约防御盟国， 为了自己的安全该做出正确的选择了。
-
-🔗 [https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/](https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/)
-
-编辑发表： Shuizhuyu
+#### 新闻来源： [Elon Musk To Host ‘Rare’ Internal Q&A As Twitter Employees Grumble About His Influence](https://www.zerohedge.com/technology/elon-musk-host-rare-internal-qa-twitter-employees-grumble-about-his-influence)
 
  
 

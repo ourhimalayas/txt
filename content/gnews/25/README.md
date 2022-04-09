@@ -2,26 +2,22 @@
 ---
 
 
-## 国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2316679/)
+## 中日财经爆┃受俄乌战争影响 全球食品价格创历史新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316724/)
 
-**港台前线 zhong｜2022-4-9**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-15.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国驻华大使馆和领事馆4月9日发布声明称，鉴于新冠病例激增以及**中共应对措施带来的相关限制**的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。此外，伯恩斯大使及其他官员已向中共表达对“疫情、中共管控措施”的关切。
+撰稿：东京樱花团/上善若水
 
-声明提到美国务院最新的旅游建议，称美国公民前往中共旅游，应考虑到“父母与子女被分开的风险”建议美国公民不要前往吉林、上海、香港等地。
+世界粮农组织在一份声明中说。追踪一揽子基本食品国际价格月度变化的粮农组织食品价格指数，自1990年创立以来，价格指数在今年2月破历史记录，3月份上涨12.60%，随着这项粮农组织谷物价格指数的升高，该指数“与2月份相比上涨了17.1%，主要是由于俄乌战争导致小麦和所有粗粮价格的强劲上涨”。
 
-- 相关：**[疫情｜新增持续破万 中共出动武警严管 上海市民发起团购自救](https://gnews.org/zh-hans/2296313/)**
-- 相关：[疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](https://gnews.org/zh-hans/2316486/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-27.png)图片来源于本文链接
 
+食品价格也受到植物油价格的推波助澜，葵花油价格上涨23.2%，因为世界最大的葵花籽油出口国是乌克兰。”与此同时，棕榈油、大豆油和菜籽油的价格也在大幅上涨，“由于葵花籽油供应中断导致全球恐慌，需求量大幅增加。”世界食品价格创下历史新高，谷物和植物油市场尤其受影响。
 
-来源｜[美國駐華大使館和領事館](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+信息来源：[世界粮农组织指全球食品价格创历史新高](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220408-%E4%B8%96%E7%95%8C%E7%B2%AE%E5%86%9C%E7%BB%84%E7%BB%87%E6%8C%87%E5%85%A8%E7%90%83%E9%A3%9F%E5%93%81%E4%BB%B7%E6%A0%BC%E5%88%9B%E5%8E%86%E5%8F%B2%E6%96%B0%E9%AB%98)
 
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

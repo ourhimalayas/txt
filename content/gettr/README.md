@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 12:30 PM (UTC)`
+
+2022.04.09早  新中国联邦 | 新闻             
+![img](https://media.gettr.com/group43/origin/2022/04/09/11/aaf409f3-3ca7-a4e4-591e-2a84f14ee24b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/9/2022 12:19 PM (UTC)`
 
  4月9号：准备将领导．征服全世界的中国共产党……一夜之间将世界的最伟大的国际城市，上海．变回了石器时代，上海太惨了……，我R你八辈祖宗共产党……
@@ -150,13 +157,6 @@
 
 2022.04.08《The Fringe》 Episode 165  Sweeping New Sanctions against Russia
 ![img](https://media.gettr.com/group36/origin/2022/04/08/23/32f44c48-9d1b-dc3c-c6ba-bd475ae34b2a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 11:30 PM (UTC)`
-
-4/8/2022 Ukraine Rescue: Fellow fighters at the front line of the Ukraine rescue operation have received extensive attention from various world media. Many journalists are very interested in our cause to take down the Chinese Communist Party. Fellow fighters have shown the world that we are the new Chinese dedicated to taking down the CCP. We are the extraordinary ones who are different from the CCP!<br/><br/>4/8/2022 乌克兰救援连线: 救援前线的战友受到了世界各个媒体的广泛关注，很多记者对我们灭共的事业饶有兴致；战友们向世界展示出我们是灭共的新中国人，我们和中共不一样！<br/>
-![img](https://media.gettr.com/group23/getter/2022/04/08/23/87957525-b6ec-e799-14fb-17471adb1830/out.jpg)
 
 ---
 
