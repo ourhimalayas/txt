@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group32/origin/2022/04/09/04/c7ae8063-1260-c685-c634-b4d396367811/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/9/2022 3:50 AM (UTC)`
 
 【Ukraine Rescue】 04/07/2022  A cup of morning NFSC coffee is the choice of each Israel volunteers at the Medyka rescue camp<br/><br/>【乌克兰救援】 04/07/2022 在梅迪卡救援营地，以色列志愿者们人手一杯新中国联邦的醒晨咖啡<br/>
@@ -150,13 +157,6 @@
 
 4/8/2022 Ukraine Rescue: Fellow fighters who contracted the virus have all turned negative in tests, and we are all grateful to our medical team for meticulously caring for the sick ones. Every aspect of the rescue camp has been significantly improved compared to what we had at the beginning. Fellow fighters are taking good care of the refugees at every moment, making everyone very grateful for the Rule of Law Foundation and the New Federal State of China. Although it is our first time to participate in the rescue operation, we keep growing and improving!<br/><br/>4/8/2022 乌克兰救援连线: 染病的战友们都已转阴，大家对医疗团队无微不至的关照充满感激！救援营地各方面都比最初有了很大改善，战友们时刻都在细心照顾难民，这让大家非常感恩法治基金和新中国联邦！我们虽是第一次参加救援，但都在不断成长和进步！<br/>
 ![img](https://media.gettr.com/group41/getter/2022/04/08/22/1de0259d-8c24-cecd-499e-62fd36b514e7/out.jpg)
-
----
-
-`@miles 4/8/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-08<br/>For English：gettr.com/post/p14a1ob032b
-![img](https://media.gettr.com/group22/origin/2022/04/08/21/72c5a3fd-9547-459e-41c5-d29ea04742f4/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

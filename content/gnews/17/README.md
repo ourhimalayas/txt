@@ -2,34 +2,35 @@
 ---
 
 
-## 佩洛西访台因病毒受阻 中共再发威胁 并派军机侵扰台日
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314235/)
+## 【#G时新闻】俄罗斯军队占领切尔尼吉夫后死亡和破坏的场景
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2314245/)
 
-作者：纽约磐石农场 – 在远方；纽约香草山教育部 – Naughty(文行)；银河系农场 -骄子
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-国外媒体4月7日报道，美国众议院长佩洛西刚刚宣布将在10日访问日本、与首相岸田文雄会晤后，调整行程访问台湾，随即被确诊中共病毒阳性，她率领的国会代表团的亚洲行也因此延后。
+##### 素材：加拿大温哥华扬帆农场 -【青青】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+俄罗斯军队占领切尔尼吉夫后死亡和破坏的场景。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-11.png)
+触目惊心！
 
-访台消息公布后，中共喉舌警告美国，若佩洛西访问台湾，他们会对台湾进行毁灭性打击。中共外交部发言人赵立坚还声称，中共打台湾的一切后果都应该由美方承担，胡锡进甚至建议在佩洛西到达台湾的当天就开战，称中共解放军可以击落台湾的飞机或者对台湾的部队发射导弹进行破坏性打击。
+战争受害者永远是底层百姓！
 
-与此同时，中共有4架次军机袭扰了台湾的西南空域，其中1架中共运9电子战机还飞入台湾以东的太平洋空域，侵犯了日本领空。台湾军方和日本防卫省均证实了此消息，并称各自派出军机紧急升空，进行了驱离。
+切尔尼吉夫一家儿童医院潮湿的地下室，墙上挂着画作-抹上的彩虹、伟大的乌克兰国旗……
 
-参考链接：
+盖特链接：https://gettr.com/post/p14bfsyab66
 
-- [囂張共機「運9」接連侵擾空域 台日兩國軍機升空攔截](https://news.ltn.com.tw/news/politics/breakingnews/3885944)
-- [Pelosi tests positive for coronavirus as part of D.C. wave of cases](https://www.washingtonpost.com/politics/2022/04/07/nancy-pelosi-coronavirus-positive-test/)
-- [China State Media Warn of ‘Destructive Strike’ to Taiwan If Pelosi Visits](https://www.newsweek.com/china-state-media-warn-destructive-strike-taiwan-pelosi-visit-1696129)
+原文链接：https://twitter.com/AFP/status/1511967323179327489
 
+编辑/发文 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

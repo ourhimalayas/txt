@@ -2,19 +2,12 @@
 ---
 
 
-## 疫苗灾难蔓延，储粮备药应对（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314282/)
+## “你们是这场运动中真正的无名英雄，你们身处最黑暗的地方，但是你们还在继续战斗”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2314417/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WE
+【乌克兰救援】 04/07/2022 “你们是这场运动中真正的无名英雄，你们身处最黑暗的地方，但是你们还在继续战斗。 你们的美丽激励着我们这些人，我想要你们知道你们不是一个人在战斗“ 。一位叫做米里亚姆的丹麦基督徒志愿者赞美中共国内的战友们。
 
-*发布：陶子*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
