@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 1:04 AM (UTC)`
+
+2022.04.08 晚  新中国联邦 | 新闻访谈   俄罗斯完了，中共国还远吗？
+![img](https://media.gettr.com/group19/origin/2022/04/09/01/165998e4-6df9-bb77-d2b0-0237fb1dfadf/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/9/2022 12:33 AM (UTC)`
 
 2022.04.08 晚  新中国联邦 | 新闻    我们要把中国人从被中共胁迫的恐惧中解放出来；再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处
@@ -148,13 +155,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 `@miles 4/8/2022 4:06 PM (UTC)`
 
 04/08/2022 on the 5th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 12 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on New Zealand 🇳🇿 and Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#2 🥈 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Five days Global iTunes Charts #1 🥇Ranking Records In Total: 116 times<br/><br/>https://gnews.org/2311079<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Philippines, Cambodia, Mongolia, Armenia 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 4/8/2022 3:56 PM (UTC)`
-
- 4月8号：民主绝对是个好东西，人民能管好人民．人民根本不需要一个所谓的比爹娘还亲的．邪恶无比的中国共产党……
-![img](https://media.gettr.com/group39/getter/2022/04/08/15/45b0927a-4be1-e7be-cdd1-0683d926ce9b/d08a2f8e231db228f5f63a7d2214e869.jpg)
 
 ---
 
