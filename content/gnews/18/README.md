@@ -2,72 +2,25 @@
 ---
 
 
-## 粗暴的笑话
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2318079/)
+## 有声｜美国将限制俄罗斯进口化肥和管道阀门等商品
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2318131/)
 
-作者：蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1042.png)
+By:**秘翻新闻**
 
+**2022-04-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/409-5-scaled.jpg)
+[《路透社》](https://www.reuters.com/business/biden-administration-curbs-russian-access-foreign-fertilizers-valves-2022-04-08/)华盛顿4月8日报道，周五，美国再次扩大了对俄罗斯和白俄罗斯的制裁，限制了两国从西方进口化肥和管道阀门等产品。在俄罗斯入侵乌克兰后，美国对俄罗斯和白俄罗斯的制裁正在逐步升级。
 
-我在喊
-你也在喊
-我喊我饿了需要吃的
-你喊控制灵魂对自由的渴望
+报道指出，拜登政府还限制白俄罗斯人拥有、控制或租用美国制造的飞机，以此作为美国对白俄罗斯支持俄罗斯侵略暴行的回应。
 
+美国商务部表示，将开始使用特别许可证来阻断俄罗斯和白俄罗斯人在美国供应商中的购买渠道。包括购买化肥、管道阀门、滚珠轴承和其他零部件、材料及化学品。
 
+(秘翻新闻  冰糖葫芦喵编译报道)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
+发布 : 文橙
 
-我想
-我们是不是
-来自于不同星球
-不懂彼此语言
-交臂而过
-也只是交臂而过
-你假装听不懂我
-我对你无言以对
-
-你说
-控制灵魂对自由的渴望
-你告诉我
-告诉我们
-谁在控制我们的灵魂
-我们的自由
-
-我们早已经忘了
-什么是灵魂
-什么是自由
-生活处在最低要求
-可是
-如今
-也
-已经被剥夺
-
-喊吧，喊吧
-无人机在空中飞行
-那是用我们血汗
-购买的先进水平
-循环着你的声音
-控制着人们灵魂
-美好一切
-都已成了
-昨日风景
-只留下
-万人空巷
-家家牢笼
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
-
-**更多資訊，更多關注**
-[**烏克蘭救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文貴先生**Gettr](https://gettr.com/user/miles)
-[**全球喜馬拉雅農場聯盟委員會**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜馬拉雅聯盟大使館全球客服中心**Discord](https://discord.gg/zv8j42srdN)
-
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1047.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,51 +2,31 @@
 ---
 
 
-## 民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2317914/)
+## 欧盟认为俄罗斯应对克拉马托尔斯克的袭击负责
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2317950/)
 
-#### 雅典娜情报组《民生、失业收集专栏》
+**欧盟指责俄罗斯在乌克兰克拉马托尔斯克的火车站进行了导弹袭击，造成数十人死亡，称其为战争罪。**
 
-整理/编辑：五伊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1032.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1033.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1034.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1035.png)
-**工作7年的单位突然裁员降薪**
+作者：dpa/ vk/原文发布于2022年4月9日13:45 (CET)
+翻译：LK
 
-#找工作啊找工作 #工作
+![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-3-1.jpg)图片：50多人在克拉马托尔斯克火车站的导弹袭击中丧生（Fadel Senna/AFP）。
 
-时代的一粒灰，落在个人头上就是一座山
+欧盟外交政策发言人周六(2022年4月9日，译者）在一份声明中说，欧盟对俄罗斯的袭击深感震惊。必须对这一战争罪行的负责人进行追责。发言人称，俄罗斯试图通过虚假信息和媒体操纵来掩盖对这一罪行和其他罪行的责任是不可接受的。
 
-这句话我今年才真切体会到
+美国也指责俄罗斯军队对克拉马托尔斯克火车站的致命导弹袭击。根据乌克兰方面的消息，有50多人被杀，另有100多人受伤。五角大楼发言人John Kirby周五说，俄罗斯官方对此事的否认是“没有说服力的”。
 
-经济下行，准确说房地产下行
+**冯德莱恩认为在布查的行动是战争罪**
 
-导致房地产下游企业
+欧盟委员会主席乌苏拉·冯德莱恩在访问了基辅郊区的布查后，对俄罗斯军队在那里的做为表示震惊。星期六上午，她在从基辅返回波兰的路上告诉记者：如果这不是战争罪，那什么是战争罪？
 
-例如我所在的地产广告公司效益骤减
+冯德莱恩在对乌克兰战区进行为期一天的访问后于周六安全返回波兰。下午，她计划参加在华沙举行的乌克兰捐助方会议。
 
-老板迫于压力只好裁员降薪开源节流
+上周末，在布查发现了许多被杀害的平民的尸体，其中一些人被绑在路边。冯德莱恩说，欧盟目前以一个联合小组的形式参与对乌克兰人的调查。
 
-昨晚还在为公司拼命，第二天一早就被告知“请离开”
-
-这样的人不在少数
-
-也不知道自己什么时候也会出现在辞退名单上
-
-前路迷茫……
-
-只能说：选对赛道真的很重要啊！
-
-发布于 2022-04-07 00:21
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1036.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1037.png)图片来源：小红书
-参考链接：[工作7年的单位突然裁员降薪](http://xhslink.com/utLcFg)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+原文链接：[https://brf.be/international/1592922/](https://brf.be/international/1592922/)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

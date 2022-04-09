@@ -2,20 +2,27 @@
 ---
 
 
-## 美国寻求最终剥夺俄罗斯全部能源出口收入
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2318290/)
+## 七哥说—第63期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2318300/)
 
-编辑：文宝
+制作：Inzaghi
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
 
-美国总统国家安全事务副助理戴利普·辛格（Daleep Singh）在当地时间6日表示，美国及其盟国将寻求实现这样一个目标，即最终剥夺俄罗斯从石油和天然气出口中获得的所有收入。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥说_郭文贵先生_法律_信仰.png)
 
-辛格在接受美国有线电视新闻网（CNN）采访时称，“你们是对的，石油和天然气收入是俄罗斯剩余的主要收入。我们相信，随着时间的推移，我们将能够剥夺俄罗斯作为主要能源供应国的地位。我们正在与德国合作，以便关闭‘北溪-2’天然气管道。我们在切断俄罗斯在能源领域获得必要技术的渠道。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥说_郭文贵先生_爆料革命战友_乌克兰救援前线.png)
 
-辛格指出，实施这些措施需要时间，“但是，最终，我们期望剥夺俄罗斯从石油和天然气供应中获得的任何收入”。
+发稿：信心的选择
 
-3月初，作为反俄制裁的一部分，美国总统拜登签署了一项法令，禁止美国从俄罗斯联邦进口能源，并禁止美国人对俄罗斯能源部门进行新的投资。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-原文链接：[https://www.163.com/dy/article/H4HM1JTM05504DP0.html?clickfrom=w\_yw](https://www.163.com/dy/article/H4HM1JTM05504DP0.html?clickfrom=w_yw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
 
  
 
