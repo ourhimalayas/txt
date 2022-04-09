@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 3:01 AM (UTC)`
+
+2022-4-8《鸡血王喜币大作战》 第一百五十九集 嘉宾：无双柳薇薇、Tex、封神榜
+![img](https://media.gettr.com/group49/origin/2022/04/09/03/1f18d9cd-1243-575c-6a9c-4dcf3708adc3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/9/2022 2:57 AM (UTC)`
+
+4/8/2022 Ukraine Rescue: A top Japanese TV station was attracted by the Ukraine rescue camp of the New Federal State of China and took the initiative to conduct a nearly 30-minute interview with our fellow fighters on the rescue frontline. Our fellow fighters are once again spreading our philosophy of taking down the Chinese Communist Party to the rest of the world.<br/><br/>4/8/2022 乌克兰救援连线：一家日本大电视台被新中国联邦乌克兰救援前线营地所吸引，主动对前线战友进行了近半小时的采访，我们的战友再次将灭共理念传向世界各国<br/>
+![img](https://media.gettr.com/group39/getter/2022/04/09/02/dd8721ac-4ff5-76de-0393-1b31cbca48ac/out.jpg)
+
+---
+
 `@miles 4/9/2022 2:51 AM (UTC)`
 
 4/8/2022 Miles Guo’s GETTR: The suffering of the fellow Chinese in Zhengzhou, Shanghai, and Changchun left me speechless. A fellow fighter’s NFTs were robbed by the Chinese Communist Party at gunpoint. The evil of the Chinese Communist Party goes far beyond “killing the rich to help the poor”. The most miserable people during the lockdown of Shanghai are those who are highly educated and still trust the CCP. The situation of our fellow Chinese is heartbroken. If we don’t take down the CCP, what happened in Shanghai will happen to the rest of the world, and all will be victims!<br/><br/>4/8/2022 文贵盖特：郑州、上海、长春的同胞们所遭受的灾难让文贵一时语塞；有战友买的NFT被中共拿枪抢走，中共的邪恶远超劫富济贫；上海封城中最惨的是受过高等教育而且还相信共产党的人，同胞们的遭遇让我们心急如焚；若不灭共，全世界都将变成上海，所有人都是受害者！<br/>
@@ -143,20 +157,6 @@
 
 Ukraine is a respectable nation that has always resisted Russia's brutal invasion with tenacity. All righteous and conscientious people stand with Ukraine. Unfortunately, the evil Chinese Communist Party has been secretly supporting Russia's invasion of Ukraine and is a root cause of disasters for the world.<br/>The NFSC, the Rule of Law Foundation and international rescue organizations have cooperated to launch a rescue operation in Ukraine. The NFSC seeks peace in the world and freedom for all. The NFSC will eliminate the Chinese Communist Party and make the world a better place.<br/>乌克兰是一个值得尊敬的民族，一直都在顽强的抵抗俄罗斯的野蛮入侵，并且所有正义、有良知的人士都跟乌克兰站在一起。可悲的是，邪恶的中共一直在暗中支持俄罗斯侵略乌克兰，是世界灾难的根源。<br/>新中国联邦、法治基金和国际救援组织合作，发起了乌克兰救援行动。新中国联邦要在世界建立和平，让所有人都享有真正的自由。新中国联邦人一定会消灭中共，让世界变得更美好。
 ![img](https://media.gettr.com/group28/origin/2022/04/08/18/79eda8a3-a8bb-e3f9-e69e-8b73c332401f/out.jpg)
-
----
-
-`@miles 4/8/2022 6:42 PM (UTC)`
-
-The NFSC (New Federal State of China) and ROL Foundation Rescue team provided humanitarian relief services for a Ukrainian mother named Olga and her two kids of US-nationality. The services also included the airfare. She bravely spoke against the absurdity of the Putin regime. When she mentioned about her husband who still stayed back in Ukraine, she broke down in tears. Speaking of being able to leave the war-torn homeland for the United States, she expressed her mixed feelings. For the help she received from the NFSC Rescue team, she generously gave it a 5-star rating."新中國聯邦和法治基金為烏克蘭媽媽Olga和她兩名美籍子女提供了人道救援服務，包括機票。她勇敢地說出普京政權的荒謬，一談到丈夫仍然要留在國家，立即淚下。對於終於能出境赴美，她的心情複雜。對於得到的救援支持，她打滿分5星
-![img](https://media.gettr.com/group5/origin/2022/04/08/18/05e31b4e-d745-ae3d-d3fd-1450cecf08ce/out.jpg)
-
----
-
-`@miles 4/8/2022 5:35 PM (UTC)`
-
-俄乌战争战况播报
-![img](https://media.gettr.com/group50/origin/2022/04/08/17/80e895ba-8d01-5f27-e496-11778e8b004b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
