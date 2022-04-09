@@ -2,37 +2,27 @@
 ---
 
 
-## 英国国防部预计莫斯科将把攻势的重点转移到顿巴斯地区
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2318989/)
+## 有声｜泽连斯基演讲时 芬兰领空和网络遭俄军攻击
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2319091/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-英国国防部周五表示，入侵乌克兰北部的俄罗斯军队已“完全撤退”到白俄罗斯和俄罗斯。其中至少一部分将被转移到东顿巴斯地区，并重新部署。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image017.png)
-该部在最新情报中表示，至少其中一些部队将被转移到乌克兰东部进行战斗。人们普遍预计莫斯科将把攻势的重点转移到顿巴斯地区，俄罗斯多年来一直在该地区从事军事冒险活动。
+By:**秘翻新闻**
 
-但是，因为在基辅周围和其他地方遭到坚决抵抗，俄罗斯部队耗竭，其重新部署预计不会轻易或迅速发生。
+**2022-04-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-30.png)
+据《[美国国会山报](https://thehill.com/policy/international/3262439-finland-hit-by-cyber-attack-airspace-breach/)》4月8日报道，当乌克兰总统泽连斯基在芬兰议会发表讲话时，芬兰遭到俄军的网络攻击和空域入侵。
 
-英国国防部表示：“其中许多部队在准备向东进一步部署之前需要大量补给，从北部大规模重新部署可能至少需要一周时间。”该部表示，与此同时，俄罗斯继续炮轰乌克兰东部和南部的城市。
+芬兰国防部周五早些时候在推特上发布称，该国政府网站受到攻击，将关闭，直至另行通知。几个小时后，该部门解决问题后表示，此次网络攻击是一次名为DDoS的分布式拒绝服务攻击，其目的在于使目标网络或系统资源耗尽，使服务暂时中断或停止，导致用户无法访问。
 
-俄罗斯方面否认它使用火炮攻击乌克兰城市，尽管有确凿的相反证据。
+据彭博社报道，芬兰政府称，在网络攻击之前，还有一架俄罗斯飞机侵犯了芬兰领空。而就在俄军侵犯芬兰领空，并攻击芬兰政府网站时，泽伦斯基正在就俄罗斯入侵乌克兰一案与芬兰交谈。
 
-[【援引连结】](https://www.cnbc.com/2022/04/08/russia-ukraine-live-updates.html)
+芬兰外交部在推特上表示，泽连斯基总统今天向议会发表了历史性讲话，芬兰将坚定支持乌克兰捍卫自由和民主的努力。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+秘翻新闻 自由信仰 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
