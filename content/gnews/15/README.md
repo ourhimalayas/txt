@@ -2,60 +2,58 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.9）–康希诺疫苗慎打
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2313034/)
+## 乌克兰重新控制博罗江卡，更多俄军暴行曝光（2/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2313441/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+【上接：[乌克兰重新控制博罗江卡 更多俄军暴行曝光（1/3）](https://gnews.org/zh-hans/2313109/)】
 
-整理/编辑：五伊
+翻译：噜噜咪
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-16.jpg)
 
+（乌克兰人）分享仅有的食物
+博罗江卡中学的体育馆现在成了人道主义援助中心，志愿者们在这里对食品和卫生用品进行分类工作，并将它们装进箱子。
+这些志愿者是博罗江卡和附近村庄的居民，他们首先自己寻求帮助，现在则帮助别人。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-903-edited.png)2022年4月5日，人们在基辅州的博罗江卡中学前排队等候人道主义援助。当地的中学一直充当着援助物资的分发中心。(Anna Myroniuk)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+柳博夫·帕里乌拉来自位于该镇东北部约10公里的贝里斯坦卡村。
+3月19日，在她结婚纪念日当天，一枚俄罗斯炮弹击中了她的房子。她当时不在家，但在袭击发生的那一刻，她的丈夫在家里。她说，他的丈夫很幸运地活了下来。
+尽管如此，帕里乌拉仍然认为她的家庭很幸运，在占领期间没有遭受很多痛苦。
+“来自博罗江卡的人来到这里，你会看到他们几乎撑不下去了。这样的家庭往往有四、五、六个孩子，”帕里乌拉说。
+她继续说：“他们的脸色很苍白，很明显他们是饿死的。”
 
-帖子原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-904-edited.png)在博罗江卡和附近的村子里，这所中学的建筑变成了一个帮助那些在俄罗斯占领下幸存下来的人的救济中心。(Anna Myroniuk)
 
-**康希诺疫苗慎打**
+人道主义援助在几周前才开始抵达该地区。数千人在没有电、煤气和移动网路的情况下生活了大约一个月。
+在这些人中，有来自费内维基的家庭医生捷佳娜·史克雅斯卡，该村位于博罗江卡北部30公里处。
+“我们没有库存的食物，但我们与其他人分享了我们最后的一点东西，”史克雅斯卡说。“每个人都试图相互帮助”。
 
-抵抗力不好千万别尝试一针剂了，太难抗了！！！打了的提前备好厚被子，大水壶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-905.png)2022年4月5日，来自基辅州博罗江卡以北30公里处的费内维基村的家庭医生捷佳娜·史克雅斯卡。她的家庭在俄罗斯占领期间处于饥饿的边缘。(Anna Myroniuk)
 
-7号晚上约到新冠疫苗，也没注意是什么的，跑过去发现是康希诺一针剂，本着少打一针是一针的原则，接种完观察30分钟，啥事没有
+当她的家人开始缺粮时，他们决定想办法为自己烤面包。他们没有面粉，但有小麦和一个旧的手动咖啡研磨机。
+起初，他们用它来把小麦磨成面粉。后来，他们把一个饲料切碎机重新加工成一个手工磨麦机。
+“我们没有面包，但我们非常想要它，”史克雅斯卡说。孩子们告诉我，“妈妈，我们从来没有意识到面包的味道到底是什么，现在我们知道了。”
+食物刚刚开始运到她的村庄。援助既来自大型组织，也来自乌克兰同胞。史克雅斯卡对后者的记忆最为深刻。
+她说：“我们打开这些包裹，看到孩子们用的东西，一把谷物，甚至一罐已经开始使用的果酱。这太感人了。”
+史克雅斯卡说，看到人们如何互相帮助，她的心也跟着温暖起来。早在2014年，当俄罗斯在顿巴斯地区发动战争时，她是向乌克兰东部当地人发送人道主义援助的人之一。现在，她自己也从其他乌克兰人那里得到了援助。
 
-重点来了，半夜迷迷糊糊冷醒（没开空调的情况下），手脚冰冷，然后爬起来脚上贴了两个暖宝宝，过了一会还是超级冷，爬起来开始翻冬天的被子，早上后来除了没力气觉得没啥就去了公司，然后完全扛不住了，冷，恶心反胃，头疼，浑身无力，回家就开始睡睡醒醒，裹着大棉被，一直不停的发汗，多喝水，一直到晚上终于感觉烧退了，除了头特别疼，还没什么力气，也终于想吃点东西了，希望明天可以满血复活
+【下接：乌克兰重新控制博罗江卡 更多俄军暴行曝光（3/3）】
 
-发布于 2021-06-08 19:25
+素材链接：[As Ukraine regains control of Borodyanka area, more Russians’ atrocities come to light](https://kyivindependent.com/national/as-ukraine-regains-control-of-borodyanka-area-more-russians-atrocities-come-to-light/)
 
-精选评论
+* * *
 
-MONA评论:
+审核：文乐
+校对：信心满满
+发布：花羽
 
-我是打了第一天拉肚子发烧，第二天全身痛到睡不着，今天第四天了手指有点麻
-
-喬喬喬喬喬(作者) 回复: 过去了真的感觉世界都美好了
-
-橘子的秋评论 : 我今天早上打，下午也是拉了一下午肚子，东西都不敢吃了
-
-今晚加鸡腿评论:
-
-一样，我昨天和今天都没有上班，星期天下午快四点的时候打的，回来都还好好的，半夜发高烧，昨天一整天都是发烫的，还腿疼，说不上来疼
-
-喬喬喬喬喬(作者)回复 : 是的，腿脚抽筋
-
-人间四月天 : 我也是，腿， 尤其是小腿，膝盖，说不上来的难受
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-888.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-889.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-890.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-891.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-892.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-893.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-894.png)图片来源：小红书
-参考链接：[康希诺疫苗慎打](http://xhslink.com/36DnEg)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

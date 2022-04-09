@@ -2,26 +2,27 @@
 ---
 
 
-## 中共国失败抗疫政策侵犯基本人权
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312892/)
+## 【G时新闻】蔡英文家人染疫，蔡本人将隔离至4月中旬
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2313086/)
 
-作者：加拿大温哥华扬帆农场-文莱
+##### 播  报：加拿大温哥华扬帆农场 -【gracelchan】
+视频制作：加拿大温哥华扬帆农场 -【文所未闻】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人表示，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，与总统密切接触的人员进行快速测试，也都为阴性。蔡总统已开始为期十几天应有的隔离，直到4月21日。此段时间内所有公开行程全部暂停，相关工作将以线上或者视讯会议的方式进行。据悉美国众议院议长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密切接触者，不得不进行隔离，停止一切公开行程。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-886.png)图片来源：SCMP
+盖特链接：[https://gettr.com/post/p149b9kede6](https://gettr.com/post/p149b9kede6)
 
+编辑/发文 -【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-据法新社【内幕文件】4月4日报道，中共当局正在试图抑制住自2020年初新冠爆发结束以来最严重的病毒爆发，大约2500万人仍被关押在中共国最大的金融城市，当局正在强制实施的孩童与父母隔离的政策引起公愤。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-报道称，上海市卫生官员表示，强制措施将适用于任何年龄段，即任何核酸呈阳性的人都必须与未感染的人隔离开来。对此，7岁以下的孩童必须在公共卫生中心接受治疗；对于年龄大的儿童和青少年，则需要集中隔离。社交媒体上瞬间淹没了对此政策的批评，同时上海的挫败感依旧在加剧，当局日前承诺的不封城到如今两阶段封锁解封遥遥无期。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-据悉，中共国的零新冠计划正面临着巨大压力，在上海成为中共国疫情的中心后，东北地区又爆发了一次疫情，虽然中共国一直对外宣称日新增保持在两位数，但全国病例连续第二天对外报道超过13,000例实属罕见。
-
-链接：
-
-[Shanghai defends policy of separating Covid-positive kids from parents – Insider Paper](https://insiderpaper.com/shanghai-defends-policy-of-separating-covid-positive-kids-from-parents/)
-
-采编：坐看云起时，编辑发稿：硫酸羟氯喹64
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

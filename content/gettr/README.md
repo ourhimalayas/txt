@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 2:51 AM (UTC)`
+
+4/8/2022 Miles Guo’s GETTR: The suffering of the fellow Chinese in Zhengzhou, Shanghai, and Changchun left me speechless. A fellow fighter’s NFTs were robbed by the Chinese Communist Party at gunpoint. The evil of the Chinese Communist Party goes far beyond “killing the rich to help the poor”. The most miserable people during the lockdown of Shanghai are those who are highly educated and still trust the CCP. The situation of our fellow Chinese is heartbroken. If we don’t take down the CCP, what happened in Shanghai will happen to the rest of the world, and all will be victims!<br/><br/>4/8/2022 文贵盖特：郑州、上海、长春的同胞们所遭受的灾难让文贵一时语塞；有战友买的NFT被中共拿枪抢走，中共的邪恶远超劫富济贫；上海封城中最惨的是受过高等教育而且还相信共产党的人，同胞们的遭遇让我们心急如焚；若不灭共，全世界都将变成上海，所有人都是受害者！<br/>
+![img](https://media.gettr.com/group38/getter/2022/04/09/02/dfec6d08-f05d-5bfc-edd7-7e388e6fa3b9/out.jpg)
+
+---
+
 `@miles 4/9/2022 2:02 AM (UTC)`
 
 2022.04.08  新中国联邦 | 喜财经   欧元区Q2景气 面临萎缩风险；马斯克入股推特 女股神预测：将推动管理层改革
@@ -150,12 +157,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 
 俄乌战争战况播报
 ![img](https://media.gettr.com/group50/origin/2022/04/08/17/80e895ba-8d01-5f27-e496-11778e8b004b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/8/2022 4:08 PM (UTC)`
-
-4月8号, 郭文贵先生两首新歌上线第五天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>12国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰 🇳🇿 ,蒙古🇲🇳热门歌曲第二名🥈<br/>新西兰🇳🇿 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第二名🥈<br/><br/>https://gnews.org/2310805/<br/><br/>5天全球iTunes打榜记录第一名🥇总计：116次<br/><br/>https://gnews.org/2311079<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙，菲律宾、柬埔寨, 蒙古，亚美尼亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>
 
 ---
 
