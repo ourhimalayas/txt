@@ -2,8 +2,8 @@
 ---
 
 
-## 20220406郭文贵大直播 ：大直播PPT 音乐灭共by 威廉王(1)
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2312810/)
+## 20220406郭文贵大直播 ：大直播PPT「音乐灭共」by 威廉王 2
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2312830/)
 
 作者：东京樱花团小视频组
 

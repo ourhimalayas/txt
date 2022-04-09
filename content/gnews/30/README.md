@@ -2,47 +2,38 @@
 ---
 
 
-## 欧盟同意冻结俄罗斯联邦储蓄银行行长和普京女儿的资产
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2312646/)
+## 辉瑞数据显示新冠疫苗接种者患上亚临床心肌炎的风险很高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2312673/)
 
-翻译：多伦多蓝莲花-灭共文明
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-876.png)图片来源：Nature
+据《网关专家》（Gateway Pundit）和《Blaze Media》4月7日报道，根据美国食品药品监管局（FDA）应信息自由法（FOIA）要求公布的辉瑞新冠疫苗临床实验文件，FDA在批准辉瑞的实验性新冠疫苗时并没有提到该疫苗会对年轻人的心脏造成损伤。
 
-编辑：灭共文明、冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》布鲁塞尔4月8日报道，周五，**欧盟官方刊物公布的一份文件显示，欧盟已同意冻结俄罗斯联邦储蓄银行行长、普京的两个女儿和更多俄罗斯寡头在欧盟的资产**。此前，美国已经宣布冻结俄罗斯两大银行和普京两个女儿在美国的资产。
+当公众在2021年早些时候发现心肌炎是新冠疫苗的一个副作用时，政府和媒体立即声称心肌炎的发病率极低，并公布了大量的劣质“研究”试图淡化此风险。比如《美国医学会杂志》（JAMA）去年10月刊登的一篇来自凯泽永久医疗集团(Kaiser Permanente)的论文称，每百万新冠疫苗接种者中，平均只有6.6人会患上心肌炎；另一项研究说，军队中的心肌炎发病率为五万分之一。但是，现在根据知情同意行动网络（Informed Consent Action Network）获得的辉瑞知情同意书（informed consent document），我们知道这个数字被严重低估了。辉瑞内部认为接种者患上心肌炎的概率可能高达1/1000。再细想一下，如果这只是该公司愿意承认的概率，那真正的发病率又会是多少。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/行长-e1649457245148.jpg)俄罗斯总统普京和俄罗斯储蓄银行行长赫尔曼-格列夫（图片来源：www.intellinews.com）
+另外，接种者患上亚临床心肌炎（subclinical myocarditis，即无症状心肌炎）的概率又是多少呢？我们知道有许多人在接种疫苗后不久就患上心肌炎，但是那些现在仍处于亚临床心肌炎状态、可能需要数月甚至更长时间才会发现自己心脏受损的人又有多少呢？
 
-根据这份文件，**俄罗斯联邦储蓄银行(Sberbank)行长赫尔曼•格雷夫(Herman Gref)已被列入欧盟黑名单，这一举动具有重要的象征意义。**到目前为止，欧盟一直没有对亚投行进行制裁。亚投行在能源支付方面发挥着关键作用。
+《Blaze Media》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 4月7日发推说：“FDA曾要求辉瑞对天花疫苗接种者患上亚临床心肌炎的概率进行研究。FDA说接种者患上亚临床心肌炎的概率可能是临床心肌炎的 60 倍，辉瑞的数据显示亚临床心肌炎风险可能高达1/17。”
 
-该文件称，**普京的女儿叶卡捷琳娜·吉洪诺娃(Ekaterina Tikhonova)和玛丽亚·沃龙特索娃(Maria Vorontsova)**也因从俄罗斯政府受益而**受到制裁。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/普京的女儿.jpg)普京的女儿玛丽亚-沃隆佐娃（左）和卡捷琳娜-季霍诺娃（图片来源：路透社截图）
 
-此外，**俄罗斯石油生产商苏尔古特油气公司**(Surgutneftegas)**高管**弗拉基米尔·博格达诺夫、**铝业巨头俄罗斯铝业**(Rusal)**创始人**奥列格·德里帕斯卡、**俄罗斯最大黄金矿商Polyus的大股东**赛义德·克里莫夫以及**俄罗斯电子商务平台**（Ozon）**首席执行官**亚历山大·舒金等，**都受到制裁**。
+> The FDA demanded Pfizer conduct a study on sub-clinical myocarditis. They state it is potentially 60 times more common than clinical myo. According to pfizer's own numbers, that could be as low as 1 in 17! [https://t.co/nKRZvO84PA](https://t.co/nKRZvO84PA)
+> — Daniel Horowitz (@RMConservative) [April 7, 2022](https://twitter.com/RMConservative/status/1512075662109995019?ref_src=twsrc%5Etfw)
 
-报道称，自俄罗斯入侵乌克兰以来，**欧盟已将约700名与克里姆林宫有关或被指控支持入侵的人，列入黑名单。新措施将打击另外200多人**，其中大部分**来自分离主义地区卢甘斯克州和顿涅茨克州，**还有与克里姆林宫关系密切的**高级商人、政治家和军事人员。**
 
-另外，**18个实体也受到资产冻结的打击**，其中包括4家银行，如**俄罗斯外贸银行VTB ，以及军事公司。**据统计，自战争开始以来，受到制裁的公司数量几乎增加了一倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯储蓄银行.jpg)俄罗斯莫斯科，俄罗斯联邦储蓄银行(Sberbank)的标志（图片来源：路透社）
+2022年截至目前，在疫苗接种数量远少于去年的情况下，疫苗不良反应事件报告系统（VAERS）记录的心肌炎概率却比2021年平均增涨了245%。这是否源于新冠疫苗对接种者的长期影响开始显现，在去年患上了无症状心肌炎的接种者在今年才开始出现心肌炎症状，这是否也解释了为什么有越来越多的运动员在比赛场上突然倒下或者出现心脏不适、胸痛等健康问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-877.png)
+新冠疫苗是精心设计的大规模杀伤性武器，它的短期影响已经十分可怕，长期影响更是让人不寒而栗，不仅波及范围广，而且不会让人想到问题根源在于数个月甚至更久之前接种的疫苗。这里还只讨论了心脏，疫苗对大脑、神经系统、生殖系统以及肺、肝脏等人体重要器官的长期影响又是怎样的呢？无法想象当疫苗的长期影响开始显现时，人类会遭遇怎样的浩劫。正如郭文贵先生屡次强调的那样，现今世界没打疫苗就是最大的幸福，无苗族将拯救人类。
 
-据报道，**普京已经在早期的一轮限制性措施中受到了制裁**，尽管目前还不清楚他和他的家人在欧盟有多少资产。
+*责编：白夜*
 
-与普京关系交好的**富有寡头们，通常会利用白手套、匿名的空壳公司和信托来保护他们的资产，**这使得调查人员很难查明他们的身份，尤其是在对公司受益所有人规定宽松的司法管辖区。
+新闻来源：
 
-报道指出，**这些新清单是欧盟对俄罗斯实施的第五轮制裁措施的一部分，其中还包括禁止进口煤炭，并限制俄罗斯船只和卡车进入欧盟。**
+[BREAKING REPORT… Naomi Wolf on War Room – FDA Failed to Mention Heart Damage to Teens When Approving Pfizer Vaccine (VIDEO)](https://www.thegatewaypundit.com/2022/04/breaking-report-naomi-wolf-war-room-fda-failed-mention-heart-damage-teens-approving-pfizer-vaccine-video/)
 
-新闻来源链接：
+[Horowitz: What did Pfizer know and when? 3 important findings from recent document releases](https://www.theblaze.com/op-ed/horowitz-what-did-pfizer-know-and-when-3-important-findings-from-recent-document-releases)
 
-[EU agrees to freeze assets of Sberbank boss, Putin’s daughters | Reuters](https://www.reuters.com/world/europe/eu-agrees-freeze-assets-sberbank-boss-putins-daughters-2022-04-08/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 2:02 AM (UTC)`
+
+2022.04.08  新中国联邦 | 喜财经   欧元区Q2景气 面临萎缩风险；马斯克入股推特 女股神预测：将推动管理层改革
+![img](https://media.gettr.com/group10/origin/2022/04/09/02/5fa8436b-132e-c778-2531-6af38d59164d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/9/2022 1:04 AM (UTC)`
 
 2022.04.08 晚  新中国联邦 | 新闻访谈   俄罗斯完了，中共国还远吗？
@@ -149,12 +156,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 `@miles 4/8/2022 4:08 PM (UTC)`
 
 4月8号, 郭文贵先生两首新歌上线第五天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>12国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰 🇳🇿 ,蒙古🇲🇳热门歌曲第二名🥈<br/>新西兰🇳🇿 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第二名🥈<br/><br/>https://gnews.org/2310805/<br/><br/>5天全球iTunes打榜记录第一名🥇总计：116次<br/><br/>https://gnews.org/2311079<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙，菲律宾、柬埔寨, 蒙古，亚美尼亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>
-
----
-
-`@miles 4/8/2022 4:06 PM (UTC)`
-
-04/08/2022 on the 5th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 12 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on New Zealand 🇳🇿 and Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#2 🥈 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Five days Global iTunes Charts #1 🥇Ranking Records In Total: 116 times<br/><br/>https://gnews.org/2311079<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Philippines, Cambodia, Mongolia, Armenia 🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
