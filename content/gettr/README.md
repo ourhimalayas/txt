@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 12:19 PM (UTC)`
+
+ 4月9号：准备将领导．征服全世界的中国共产党……一夜之间将世界的最伟大的国际城市，上海．变回了石器时代，上海太惨了……，我R你八辈祖宗共产党……
+![img](https://media.gettr.com/group28/getter/2022/04/09/12/8fcbd6e4-22d2-71af-f64e-d8ac25b305e2/out.jpg)
+
+---
+
 `@miles 4/9/2022 11:59 AM (UTC)`
 
  4月9号：尊敬的战友们好．真正的疫苗灾难即将到来……五月中下旬将全面开始……大家务必做好心理和物理准备，一切都已经开始！
@@ -150,13 +157,6 @@
 
 4/8/2022 Ukraine Rescue: Fellow fighters at the front line of the Ukraine rescue operation have received extensive attention from various world media. Many journalists are very interested in our cause to take down the Chinese Communist Party. Fellow fighters have shown the world that we are the new Chinese dedicated to taking down the CCP. We are the extraordinary ones who are different from the CCP!<br/><br/>4/8/2022 乌克兰救援连线: 救援前线的战友受到了世界各个媒体的广泛关注，很多记者对我们灭共的事业饶有兴致；战友们向世界展示出我们是灭共的新中国人，我们和中共不一样！<br/>
 ![img](https://media.gettr.com/group23/getter/2022/04/08/23/87957525-b6ec-e799-14fb-17471adb1830/out.jpg)
-
----
-
-`@miles 4/8/2022 11:23 PM (UTC)`
-
-4/8/2022 Miles Guo’s GETTR: The fellow fighters on the front line of the Ukraine rescue operation shocked the world with their actions, telling the world in time that the Chinese Communist Party does not represent the Chinese people, and showing that we are the extraordinary ones who are different from what the world imagines the Chinese to be. We are so blessed that we must be grateful to God and all fellow fighters who contributed!<br/><br/>4/8/2022 文贵盖特：救援前线的战友用行动震惊了全世界，及时告诉了世界中共不代表中国人，并展现出了我们和他们想像的中国人完全不一样的素质；我们太幸福了，我们要感恩上天和所有付出的战友们！<br/>
-![img](https://media.gettr.com/group24/getter/2022/04/08/23/78136e8a-168e-b765-1e88-f46c2bc0274b/out.jpg)
 
 ---
 
