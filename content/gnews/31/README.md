@@ -2,58 +2,37 @@
 ---
 
 
-## 泰德·克鲁兹盛赞马斯克购买推特并透露想买特斯拉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2314124/)
+## 欧盟同意冻结俄罗斯联邦储蓄银行老板和普京女儿的资产
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314663/)
 
-翻译: 里奇
+翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/TASS36756128.jpg)图片来源：Sergei Fadeichev / TASS
 
 
+根据路透社4月9日报道，根据欧盟官方期刊周五公布的一份文件，欧盟已同意冻结俄罗斯最大银行Sberbank的老板、普京的两个女儿和更多寡头在欧盟的资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-154.jpg)图片来源：nypost.com
+自乌克兰战争开始以来，欧盟已将大约700名与克里姆林宫有关或被指控支持入侵的人列入黑名单，莫斯科称其为“特别行动”。然而，在法律障碍和有时缺乏政治意愿的情况下，并不总能迅速冻结资产。
 
-参议员特德·克鲁兹用一种奇特的方式来表达，他对亿万富翁埃隆·马斯克推动，推特变革的支持——周四透露他喜欢特斯拉汽车中包含的放屁音效功能。
+新措施将打击另外200多人，其中大部分来自卢甘斯克和顿涅茨克的分离主义地区，以及与克里姆林宫关系密切的高级商人、政治家和军事人员。
 
-这位德克萨斯州共和党人在他的播客“The Verdict with Ted Cruz”的周四一集中，谈及马斯克购买推特一事，充满赞赏之情。
+另有18家实体也受到资产冻结的打击，其中包括VTB(VTBR.MM)等四家银行和军事公司，使战争开始以来受到制裁的公司数量增加了近一倍。
 
-经常批评大型科技公司的克鲁兹和共同主持人迈克尔·诺尔斯都力赞马斯克参与推特，是言论自由的胜利——而这位参议员则表现更甚。
+根据该文件，Sberbank (SBER.MM)的负责人赫尔·格雷夫已被列入欧盟黑名单，此举具有象征意义。到目前为止，欧盟一直没有制裁该银行，该银行在能源支付中发挥着关键作用。
 
-“我太爽了，我可能会出去买一辆该死的特斯拉” ，克鲁兹在剧集开始大约 10 分钟时说道。“顺便说一句，我的女儿们无论如何都希望我买一辆特斯拉。”
+文件称，普京的女儿叶卡捷琳娜·季霍诺娃和玛丽亚·沃龙佐娃现在也因从俄罗斯政府中受益而受到制裁。
 
-“你知道为什么女孩子喜欢特斯拉吗？因为中控台能让每个座位上都会发出放屁的声音。对于一个 11 岁和 13 岁的孩子来说，这是最酷的功能”，参议员补充说。“而且我必须承认，作为一个 51 岁的男人，这个功能太酷了，尽管我可能不应该在电视上公开承认这一点。”
+普京已经在早期一轮的限制性措施中受到制裁，尽管目前尚不清楚他和他的家人在欧盟拥有多少资产（如果有的话）。
 
-克鲁兹指的是特斯拉汽车上的一个应用程序，它允许司机在车内播放放屁的音效。用户可以在使用转向信号时播放噪音，并将其设置为来自特定座位的声音。
+资料来源：[EU agrees to freeze assets of Sberbank boss, Putin’s daughters](https://www.reuters.com/world/europe/eu-agrees-freeze-assets-sberbank-boss-putins-daughters-2022-04-08/)
 
-特斯拉还提供了一项功能，允许司机让他们的汽车喇叭听起来像放屁一样的声音，直至去年 2 月联邦政府敦促马斯克的公司发布召回通知。
+发布：tianzhihuan
 
-美国国家公路交通安全管理局警告说，该功能可能会使人们不易听到所需的“行人警告系统”声音。
-
-“搞笑的警察让我们这样做（叹气）” ，马斯克当时在推特上写道。
-
-克鲁兹是最近一位表示支持，马斯克收购推特9% 股份的公众人物。
-
-保守派经常指责社交媒体平台压制右倾观点，并以其他方式参与损害言论自由的内容审核做法。
-
-“我认为这很棒”诺尔斯谈到这项投资时说。“我认为他是一个即使不是独一无二也能干成此事的人，他确实处于非常有利的位置。他说到做到。我希望他此举能赚大钱。”
-
-“绝对没问题” ，克鲁兹补充道。
-
-新闻来源:[ted cruz reveals he loves tesla fart noise feature while touting musks twitter buy](https://nypost.com/2022/04/07/ted-cruz-reveals-he-loves-tesla-fart-noise-feature-while-touting-musks-twitter-buy/)
-
-* * *
-
-审核：文乐  
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 连线前线Medyka—营救行动对波兰当地华人的影响（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315217/)
+## 嘉宾分享连线前线战友的感想（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315600/)
 
-**PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-50-10-00-01（-一）.jpg)
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-00-10-10-01（-二）.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**
