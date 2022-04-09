@@ -2,34 +2,76 @@
 ---
 
 
-## 大直播后记：嘉宾谈上海封城的原因
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2317222/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第6天登榜6国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2317277/)
 
-整理：HYS、铁血丹心
-编辑：李易通
+4/9/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第6天iTunes打榜记录：
+**《灭共的雪》**
+柬埔寨热门歌曲榜第3名
+5国摇滚歌曲榜第1名
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-687.png)图片来源：雅典娜设计组
+**《铁锁梦》**
+2国热门歌曲榜前3名
+2国流行歌曲榜第1名
+
+* * *
+
+[【New-Songs】Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
 
 
-宁南：分享的非常的精彩，逻辑思维也是很棒，这也是顾问团一直要求我们做到的，就是循序渐进地把事情说清楚，也是非常期待您的加入。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
 
-风雨之中：谢谢大牛，今天咱俩凑了一对了啊。虽然相貌让咱俩都输了，尤其你输给巴黎和佳佳了，但是没关系，咱们在别地儿把分挣回来。我刚才看到咱们现在国内的疫情，让我想起来咱们大家都知道的马斯洛需求理论。说人有几种需求，最底下的是基本的生理需求，再往上是安全的需求，再往上是社会爱与被爱的需求，再往上是得到尊重，最上面是自我实现。你发现没发现，为什么共产主义国家永远让你是在贫困线上来回挣扎？ 这是中共需要的，它一定要把你摁在最底下，你是死还是活，你恐惧不恐惧，你永远要为生存下功夫。它不可能给你爱，不可能给你安全，不可能给你自我实现的机会，这样它才能够把你牢牢的按在脚下。
 
-上海那是全国的天花板了，江浙地区一是富庶，这个地方经济搞得好。二是管理和其它地方相比也相对人性化。在这个地方现在出现吃不上饭跳楼这种状况，上海的百姓可能想都没想到。二战日本人打进来时候都没有发生这种事儿，从日本人打进来到后来的解放战争共产党得天下，也没出现过把老百姓都给圈在自己家里边儿不让出门儿这种事。说你吃不上饭，你想吃口饭你得求我，这是第一回。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
 
-今天下午我打电话给我上海的朋友，是一个年长的长辈，我们俩正好说到这事，日本人来没这么做过，国民党当年撤出去的时候也没出现这事儿，现在2022年竟然出现这事儿了。共产党为什么要这样做？我们要思考一下，而且上海进来的都不是上海的干部，上海的干部通通被换掉，它们要干什么？ 我们知道之后中共要进行20大换届选举。在中国是山头社会，政治势力不是拿选票选出来的是靠拜大哥拜出来的，上海那是最大的江家的大本营，在中国这个地儿，如果不把这个地儿给摁住了，包括你的情报和你的军事动向，你所有的内部的政策的制定都逃不过人家的眼睛，人家随时都能给你捅篓子。你那些决策还没到政治局秘书阶段，人家已经知道了，情报比你还快。所以必须得把上海摁住，不管是为了20大还是为了之后的攻台。据说杭州现在也要封城，不知道什么时候北京封城，我个人觉得那是一个重大的信号。
 
-还有在这里边大家看没看到，运往上海的援助物资，比如鸡蛋以及整箱整箱的批发菜扔掉，整筐整筐地烂在那儿。我就是让你看到，我还不是不让你看到，我为什么要让你看到？我让你们知道现在听谁管。你现在是一个什么处境，你现在已经下降到要死要活的境地了，你给我放端正一点儿。大概是出于这种邪恶目的心理威慑，共产党的邪恶和它的宣传部门几十年积攒的对人民的洗脑和压迫经验，这些往往是超乎我们一般老百姓认知的。它给你看的必然要引导着你去得出一个结论，“我现在几斤几两，我们区的区长都给换了，我们楼上居委会大妈的二舅都给饿半死，我还是老实点。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
 
-人控制住了其它就都好办了。这就是为什么这么多军人进了上海，将近有10万人解放军吧，具体内部消息咱不知道。所以这些做法一个是为20大，一个是为攻台。这种前奏让我觉得中共箭在弦上，随时都会打台湾。 好，谢谢。
 
-资料来源：[2022年4月8日 文贵大直播](https://gettr.com/post/p147s0qfc4d)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_54.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59-1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_72.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Saturday-9-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

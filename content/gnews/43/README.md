@@ -2,40 +2,33 @@
 ---
 
 
-## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
+## 口述历史之你要吃老鼠吗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316109/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
-APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
+作者：在天为风在地为林
+编辑：伏而起之
 
-包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-978.png)
 
-铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
 
-伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
+锣鼓震天响，小小的村庄沸腾了。周边各个公社的红卫兵要在我们大队开什么串联批斗大会，从我们村大队破烂房子里拉出好几个奇奇怪怪地绑着的人，他们脖子上挂着各种木板，听老人们说是反动派，被一群像疯子一样，穿着绿色服装戴着红五角星帽子，胸前挂着毛贼像章的人高喊着“打倒”。
 
-根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
+结束后，这些人又被送回了大队的破院子住着。他们没有床，农村胶泥的硬块上面铺着麦草，没有什么叫被子的东西。他们常年穿着厚脏破烂叫作卡衣的蓝色半大衣，也有穿破烂的黄大衣，晚上那就是他们的被子。这些人满身都是虱子，郭先生讲的场景我小时候见的多了，我们家人也都有虱子，但没有那些人多。
 
-我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
+光着屁股的我老去看这些奇怪的人，七三年左右已经不太多了，听大人说，多的时候有好几十个。其中有两个戴着不是缺腿就是缺半个镜片的眼镜，听说是上海下放来的。一个下午，他们俩用火烤老鼠吃，还说老鼠內脏里心是可以吃的。其中一个白头发老人问我吃不吃，吓得我扔下给他们玉米饼子就跑回家。回家告訴妈妈，妈妈哭了，妈妈说，以后你多拿点玉米饼每天给送过去。后来我又送了几次饼，每次看到他们我就有点怕，现在回想起来那应该是绝望的眼神。
 
-随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
+这是我现在都难忘的往事。郭先生说的一点都不过分，我所看到的比他说的更残酷。这种非人性的制度和运动让多少女人失去丈夫，多少父母失去孩子，多少孩子失去爸爸妈妈？而今天的墙内又上演着几十年前的悲剧，看看今天国内各地实施的清零政策，他們不就是想把我们彻底驯化成跪着的奴隶吗？不就是用弱民、饿民来摧残我们的精神世界吗？不就是想让他和他的子孙继续奴役我们吗？
 
-如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
+哪天我专门说一下为什么七哥认识的高人说他们是地魔。我诅咒这些害人的独裁者，他们和他们喝人血的子孙下十九层地狱，永远不要再回到人间。新中国联邦的诞生，一定会让中华民族再次重生，让正义、善良、勇敢、文明、法治、诚信、自由重回中华大地。我祈祷。
 
-美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
+2022年4月6日
 
-美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
+发布：tianzhihuan
 
-美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
-
-美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
-
-美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
-
-原文链接：
-
-[美国驻华大使馆](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

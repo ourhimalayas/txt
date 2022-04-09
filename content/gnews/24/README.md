@@ -2,36 +2,39 @@
 ---
 
 
-## 美国银行第一季度盈利将下降
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316732/)
+## 基金投资管理是合并还是分销更好
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2316888/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译/编辑：Rianna
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/FTIOZY33LVNV5KJMIHPN2OYAJM.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649502031814.jpg)图片来源：雅典娜设计组
 
 
-图片来源：路透社
+对许多人来说，经验丰富的基金管理高管，通过多样化和增长来应对具有挑战性的行业动态，欢迎来到资金管理的残酷和压力不足的世界。
 
-纽约，4 月 8 日（路透社）预计美国大型银行第一季度的收益将比一年前大幅下降，当时它们受益于异常强劲的交易和交易，以及为贷款损失预留的资金被释放。
+Perpetual以24亿美元的现金和股票方式收购竞争对手Pendal，这是基金管理集团如何通过收购寻求规模的最新引人注目的例子。
 
-根据 Refinitiv I/B/E/S 的分析师估计，美国六大银行的净收入将比去年同期下降约 35%。 2 月下旬俄罗斯入侵乌克兰后，投资银行业务收入停滞不前。
+尤其是因为当地国内股票负责人Pendal的Crispin Murray和Perpetual的Paul Skamavougeras被认为是市场上最有影响力的投资者之一，仅次于超级基金，有能力开绿灯或扼杀并购、重大战略决策和关键任命。
 
-Keefe, Bruyette & Woods 的分析师 Christopher McGratty 表示，本季度对大型银行来说将是一个挑战。他说，投资银行业务收入预计下降 36%，交易业务收入预计下降 18%，是最大的不利因素。
+在当地，VGI Partners和Regal Funds Management中两名澳大利亚最知名的对冲基金经理正计划合并，AMP刚刚以高达1.38亿美元的价格将其全球股票和固定收益业务出售给麦格理资产管理公司。Paradice Investment Management于12月将其一半的股份出售给Charter Hall。在此之前，去年3月，Yarra Capital收购了澳大利亚的所有Nikko资产管理公司。
 
-巴克莱的分析师杰森·戈德堡在一份报告中写道，本季度可能会被视为短期的痛苦，但有望获得长期收益。他指出，3 月 31 日的一个例子是 PNC 金融服务集团降低了第一季度的收入预测，但提高了全年的预期。
+从纸面上来说，合并都是关于协同增效的，因为合并后的集团旨在降低营销、人力资源、客户服务、基金会计或风险和合规等重复共享服务职能的成本。Perpetual表示，它每年可以从这笔交易中切出约5000万美元。TMS资本投资组合经理本·克拉克说，这个问题可以追溯到另一个问题：他不确定上市基金管理模式是否继续有效。
 
-由于银行受益于更高的利率，投资者预计将更多地关注银行增加其净利息收入的前景，或贷款收入与存款和其他基金支付的利息之间的差额。
+以2017年美国债券基金经理Janus和伦敦股票经理Henderson的合并为例，其中Perpetual的Adams是关键架构师之一。
 
-如果乌克兰战争继续，美联储继续加息以降温通胀，银行高管将被问及美国经济是否会继续增长的看法。在天然气和食品价格上涨后，他们可能会面临低收入借款人能否还款的压力。
+Perpetual不会冒险合并，而是收购者（这意味着它几乎没有空间在不提高债务水平的情况下移动要约价格）。投资团队不会被解散，并将保持自主权，当存在明显冲突时，分销团队将保持分离。
 
-简评：俄罗斯入侵乌克兰的经济效应现在慢慢显现， 一个战争不但是毁掉了战争发生地人们的生活甚至生命， 远离战争的地方的经济， 供应链，生活必需品都遭到了重创，尤其乌克兰和俄罗斯是粮食大国， 全世界受到的冲击可想而知， 银行业受影响是肯定的， 解决问题的办法只有一个。 消灭共产党， 共产党才是一切罪恶的根源。
+那么，投资经理的成功是什么？至少有三个当务之急：顶级投资者必须拥有自主权；业务必须具有运营效率，以便额外资金带来利润；最后也许是最困难的是，基金必须能够增长。
 
-🔗 [https://www.reuters.com/business/finance/us-bank-earnings-decline-first-quarter-2022-04-08/](https://www.reuters.com/business/finance/us-bank-earnings-decline-first-quarter-2022-04-08/)
+新闻来源：[基金管理投资合并股份](http://www.afr.com/business/banking-and-finance/asset-managers-turn-to-mergers-to-deliver-for-shareholders-20220408-p5abzm?btis)
 
-编辑发表： Shuizhuyu
+*发布：  tianzhihuan*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

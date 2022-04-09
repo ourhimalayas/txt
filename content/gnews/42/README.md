@@ -2,48 +2,40 @@
 ---
 
 
-## 卫星技术拍摄布查大屠杀铁证
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2316251/)
+## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
+APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
 
-据外媒4月5日综合报道，Maxar Technologies公司的WorldView-3卫星拍摄技术清晰拍摄了布查大屠杀现场。图像显示，多具平民尸体散落在街道上，一个长约45英尺的壕沟里，可能有150-300具尸体。发现有被近距离枪击而死亡的平民。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-26.png)
-随着时间推移，卫星图像拍摄了更多铁证，其图片清晰度足以分辨人物、汽车和其他的小物体。在3月18、19、31日的卫星图像中，有四张图像显示尸体躺在街道，这和目击者的地点相吻合。
+铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
 
-另据日本媒体公布的画面中可见，俄军把乌克兰孩子们用于玩耍的营地地下室，做成一间拷问室，五具尸体衣服上有明显被殴打的痕迹，脸上特别是鼻子和嘴部附近有很多沙砾。这些表明遇难者在死前遭受了俄军的暴行。周围居民也表示，在俄罗斯占领期间，他们曾遭断水断电，同时因为俄军带来的恐惧，而不敢出门。
+伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
 
-乌克兰总统发言人表示，乌克兰平民遭受了极其惨烈的折磨与痛楚，但俄罗斯即刻否认。联合国敦促对此事进行独立调查，这些残忍的屠杀、强奸、和处决行为，严重违反了国际人道主义法和人权法，必须保存一切证据，并安抚受害者家人。 4月6日，泽连斯基称这是战争罪，呼吁世界对俄惩罚。
+根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
 
-布林肯称这些战争暴行是俄罗斯蓄意而为之。白宫表示，最新一波制裁是对布查大屠杀的回应，由美国、欧盟、G7集团等27个联盟国发起，包括对俄银行和官员以及家人的制裁，禁止在俄投资，禁止欧盟购买俄煤，禁止俄船只进入欧盟港口，禁止俄石油进口。新西兰表示，对俄进口商品征收35%的关税。美国芯片公司INTEL已暂停在俄公司运营。俄小城卡卢加的汽车制造业因外国制裁，数千名汽车工人被解雇，食品价格不断上涨。
+我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
 
-当全世界聚焦查布惨案时，只有中共所控制的国家媒体没有报道，反而以俄外长拉夫罗夫和俄驻联合国大使的胡搅蛮缠为中心，扭曲事实真相，在中共国内进行报道，误导国人。中共国营电视台虽然播放了泽连斯基总统视察现场，但避开惨烈画面与当地居民的控诉。
+随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
 
-了解中共的郭文贵先生指出，中共在面对所有选项时，往往只会选择最坏的。全世界关注布查镇种族灭绝，中共却反向力挺俄罗斯撒谎，必将引发世界对中共甚至对中国人的强烈不满和厌恶。法治基金与新中国联邦在乌克兰边境的救援，在世界面前展露出正义之举，为中国人带来希望。
+如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
 
-参考链接：
+美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
 
-- [How satellite technology uncovered evidence of a Russian massacre of civilians in Ukraine](https://www.livescience.com/bucha-massacre-captured-satellite)
-- [20220405日媒指出CCP官媒在布查鎮慘案中為俄站台](https://www.gettr.com/post/p13u0jmc5b2)
-- [布查20220405-muxed~1.mp4](https://mega.nz/file/tZ5xyJAT#lCL12vQDp8Ew0u6jpN6uSzmliKv1KmVeyFGdtYG7mO8)
-- [Russia bombards and U.S. imposes sanctions as Ukraine urges decisive help](https://www.reuters.com/world/europe/us-allies-ready-new-russia-sanctions-after-bucha-killings-2022-04-06/)
+美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
 
+美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
 
-![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
 
-编辑：静言
-校正/发稿：海阔天空1
+美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+[美国驻华大使馆](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
  
 

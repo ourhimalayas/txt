@@ -2,28 +2,27 @@
 ---
 
 
-## 俄罗斯被联合国投票“踢出”人权理事会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2310952/)
+## 美国参议院全票通过剥夺俄罗斯正常贸易地位
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314567/)
 
-作者：华盛顿DC农场 自由信仰
+作者：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
+据外媒4月7日综合报道，美国参议院当天上午以100票对0票，全数同意撤销俄罗斯的“最惠国”贸易地位。同时，联邦政府将暂停对包括石油在内的俄罗斯能源的进口。
 
-4月7日，据路透社报道，因俄军入侵乌克兰已经“严重和系统地侵犯并践踏人权”，联合国大会各成员国今天通过投票，暂停了俄罗斯在联合国人权理事会的席位。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-25.jpg)
-美国主导和推动了这项议案，并获得了 93 个赞成票，24 个国家投反对票，58 个国家弃权。根据联合国议事规则，不计弃权票，需要三分之二多数投票同意，就能将俄罗斯从47个成员国组成的日内瓦人权理事会中剔除。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-7.42.31-PM-1.png)
 
-美国驻联合国大使格林菲尔德说，联合国发出了一个明确的信息，受害者和幸存者的痛苦不会被忽视。必须确保一个恶劣的人权侵犯者，不会被允许在联合国担任人权方面的领导职务。
+报道提及，自俄罗斯入侵乌克兰以来，西方国家对莫斯科当局采取了大量的经济制裁，美国总统拜登早先也呼吁国会尽快采取行动，用以结束俄罗斯的贸易地位。而今，美国正式撤销对俄罗斯的贸易最惠国待遇将对普京政府造成巨大的经济打击。
 
-据悉，投票之前，俄罗斯曾警告各国，投赞成票或弃权将被视为“不友好的姿态”，会对双边关系产生影响。但本次决议还是成功地将俄罗斯“踢出”了联合国人权理事会。消息人士称，自俄罗斯2月24日入侵乌克兰以来，由193名成员组成的大会通过了三项决议。之前两项谴责俄罗斯侵略行为的大会决议分别以141票和140票赞成通过。俄罗斯的伙伴中共国在前两次大会表决中选择弃权之后，这一次明确地站在了俄罗斯一边。
+据悉，本次参议院通过的法案还将针对包括白俄罗斯、朝鲜和古巴在内的独裁国家：这些国家未来在进入全球市场方面将面临来自美国及其盟友的经济障碍。其中，法案将允许美国大幅度提高对俄罗斯和白俄罗斯的商品关税，部分商品甚至将面临罚款的可能。
 
-参考链接：[U.N. suspends Russia from human rights body, Moscow then quits](https://www.reuters.com/world/un-vote-suspending-russia-human-rights-council-over-ukraine-2022-04-07/)
+参考链接：[Senate votes 100-0 to strip Russia of normal trade status](https://www.upi.com/Top_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-总编：宁文静
-编辑：谐趣园
-审核：宁文静
-校正/发稿：Fei797
-
+编辑：Delilah小胖
+总编/审核：Irene木木
+校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
