@@ -2,56 +2,31 @@
 ---
 
 
-## 清零
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2317245/)
+## 巴斯夫老板的巨大恐惧
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2317263/)
 
-作者：蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1025.png)
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-
-支付宝空了
-终于清了零
-白菜堪比黄金
-土豆贵如银
-不堪重负的支付宝
-划上了句号
-永别相伴很久的人
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/A4F5D049-AD26-491B-A01D-1F6E2D6CFEC7.jpeg)
-冰箱清了零
-只剩下
-一盏小灯孤零零
-哀叹中拔下插座
-息了那个小小灯
-能否再亮起
-点燃生命之钟
-或许我
-早已不知所终
-
-何时我被清零
-病毒不是最大敌人
-暴政横行
-掠取着一个个生命
-可是
-人们
-还在睡梦中
-
-清零啊清零
-暴政在横行
-睡梦中的人
-何时清醒
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/martin-brudermueller-60-ist.jpg)
 
 
+图片来源：FAZ
 
-**更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+马丁•布鲁德米勒只是进攻，永远向前，永远充满活力，永远要求速度速度速度。俄罗斯对乌克兰的战争已经击中了巴斯夫首席执行官的核心，因为他不再能空政整个流程。 如果普京关闭天然气或联邦政府决定抵制俄罗斯，化学工业的车轮将停滞不前。在最坏的情况下，世界上最大的化学综合体巴斯夫总部的生产将不得不在一夜之间关闭。马丁•布鲁德米勒对此无能为力。
 
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
+而这正处于化工行业前所未有的转型之中。布鲁德米勒很早就做出了反应，命令该集团进行气候中和转换，并对生产设施进行电气化。他在柏林和布鲁塞尔大谈特谈，紧急呼吁扩大可再生能源。他是第一位加入绿党经济顾问委员会的化学领袖。他想站在运动的最前沿。任何能够提供气候中和产品的人都具有国际竞争优势。但这一切都需要时间。如果不再有来自俄罗斯的天然气，转换就岌岌可危。
+
+不确定性对他的困扰至少与战争本身一样多。在一个经济国家，即使是在重要职位上，很多人都不了解价值链。他们不明白繁荣、工业的基础是如何运作的。他们没有意识到如果大型化工厂停工，不再提供初步产品，没有油漆，没有塑料，没有泡沫，没有化肥，甚至没有药品，会对整个行业造成巨大后果。
+
+简评： 战争带了的需要次生灾害正在慢慢的显现中， 如果不能尽早结束战争， 不能尽快消灭独裁者， 如果不能尽快恢复世界的经济秩序， 世界人民的灾难真的是刚刚开始 。 化学工业是从农业到工业到国防都太空的基础工业， 影响的层别实在是太大了。
+
+🔗 [https://www.faz.net/aktuell/wirtschaft/unternehmen/ukrainekrieg-die-grosse-angst-des-basf-chefs-brudermueller-17945760.html](https://www.faz.net/aktuell/wirtschaft/unternehmen/ukrainekrieg-die-grosse-angst-des-basf-chefs-brudermueller-17945760.html)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

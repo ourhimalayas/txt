@@ -2,34 +2,75 @@
 ---
 
 
-## 俄罗斯石油巨头俄罗斯天然气工业公司的网站被黑客攻击而瘫痪
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2317440/)
+## 有声|旧媒体的堕落 新媒体的崛起
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317481/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1015.png)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-（图片来自原文）
 
-2022年4月6日周三，俄罗斯国家天然气公司（OAO Gazprom）的石油部门Gazprom Neft的网站被黑客攻击后瘫痪。
 
-这是俄罗斯入侵乌克兰后，黑客对俄罗斯政府相关网站的最新一次攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/c-2.jpg)
 
-一份黑客版本的声明在该公司网站上短暂显示后不久，Gazprom Neft网站就停止了运作。
+> 媒体
+> 你是现代人们
+> 接受信息的唯一
+> 媒体
+> 你是为人们
+> 呐喊不公平的利器
+> 媒体
+> 你是为人们
+> 揭露社会虚伪肮脏的武器
+> 当媒体
+> 成为邪恶势力宣传的机器
+> 谎言铺天盖地
+> 真相没有一丝痕迹
+> 人们也被慢慢
+> 腐化成空壳躯体
+> 一条条推文被删去
+> 一个个账号被封闭
+> 事情的真相
+> 永远被抹去
+> 社交媒体
+> 新闻记者
+> 社会名流
+> 知识分子
+> 你们不知廉耻帮邪恶势力
+> 宣传虚假的信息
+> 封锁真实的信息
+> 为金钱名利跪地
+> 旧媒体的堕落
+> 是这个世界
+> 悲哀的交响曲
+> 奏响了媒体需要变革
+> 呐喊的声音
+> 人们需要发声
+> 需要真相
+> 新媒体的崛起
+> 带着良知和正义
+> 致GETTR GNews G-TV
 
-该声明显示，据称来自俄罗斯天然气工业股份公司首席执行官阿列克谢-米勒Alexie Miller（普京的密友）对俄罗斯决定向乌克兰派遣数千名军队发表了批评意见。
 
-俄罗斯天然气工业石油公司说，4月6日上午在网站上发布的声明是不真实的，不能被视为公司代表或股东的官方声明。
 
-上个月，米勒敦促俄罗斯天然气工业股份公司的50万名员工支持克里姆林宫，在面临紧迫的外国制裁时保持俄罗斯的重要大国地位。
 
-Gazprom Neft是俄罗斯第三大石油生产商，是俄罗斯天然气工业股份公司的子公司。俄罗斯国家天然气公司拥有Gazprom Neft 95%的股份，其余股份在证券交易所上市。
+文字版原文：[旧媒体的堕落 新媒体的崛起](https://gnews.org/zh-hans/2312472/)
 
-上个月，多个乌克兰新闻网站被俄罗斯威胁者入侵，让访问者看到了 “Z “符号。乌克兰国家特别通信和信息保护局在一篇网帖中证实了这一事件，并将责任归咎于俄罗斯的国家支持者。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-新闻来源链接：[https://www.infosecurity-magazine.com/news/russian-oil-gazprom-neft-hack/](https://www.infosecurity-magazine.com/news/russian-oil-gazprom-neft-hack/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

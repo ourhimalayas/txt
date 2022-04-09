@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|美国法院恢复拜登政府对所有联邦雇员的疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317448/)
+## 樱花深度报道┃不要低估习近平与普京的关系（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2317579/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据[网关专家](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)4月7日的报道，美国拜登总统要求所有联邦雇员接种COVID-19疫苗的规定当日得到了联邦上诉法院的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/blob-1.jpeg)[图片来源](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)
-在一项2-1的裁决中，第五巡回上诉法院的一个小组推翻了下级法院的裁决，并下令驳回了一项挑战该强制令的诉讼。这是政府在新奥尔良上诉法院的一次罕见胜利。裁决称联邦法官对该案件没有管辖权，那些挑战该要求的人可以根据公务员法寻求行政补救措施。
+编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+【编者按】共同的安全担忧使习近平与普京关系密切，相同的历史观更把他们紧密地联系在一起，中国理论家认为，将习近平的民族主义品牌与普京的民族主义品牌相提并论是有益的。只要这种理论存在，要求习近平与俄罗斯断绝关系，站在西方一边，就像要求他与自己决裂一样，绝无可能。《经济学家》2022年4月9日发表了这篇文章，标题是“Don’t underestimate Xi Jinping’s bond with Vladimir Putin”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-60.jpg)
+这部电影很特别。它反映了对普京时代俄罗斯的一些痴迷，从庆祝战时胜利到对西方渗透的偏执。但它对集体化和计划经济的辩护甚至会让普京的拥护者们感到厌恶：他们只相信权贵资本主义，而不是马克思主义。克里姆林宫的宣传机器也没有花费精力推崇斯大林的个人崇拜，或者坚持认为很久以前的英雄确实存在。这些选择更多的是中国而不是俄罗斯。这部电影一次又一次地捍卫斯大林时代的各个方面，这些方面让人想起共产主义中国的创始人毛泽东。毛泽东引发了数千万人饿死的农村大饥荒和导致数百万人死亡的政治清洗。他的计划经济使国家破产。他命令群众学习模范公社和模范英雄的虚假或虚构的成就，往往造成灾难性的后果。与此同时，这部电影赞扬了普京的执政记录，这些记录也适用于习近平。中国领导人重写了历史教科书，并通过了禁止不尊重烈士和英雄的法律。在习近平的领导下，言论自由等价值观被称为西方颠覆的工具，其目的是通过“和平演变”推翻中共。
 
-早在去年1月，布朗法官阻止了拜登政府对联邦雇员的最后一次疫苗强制令。政府认为，宪法赋予总统作为联邦工作人员的最高领导，与私营企业的首席执行官一样，有权力要求员工接种疫苗。
+**支持俄罗斯的战争国内最大的政治**
 
+最重要的是，这部电影通过暗示赞扬高度个性化的统治来帮助习近平，在电影的某一场景，年轻的俄罗斯人亲吻了普京的形象。今年晚些时候，习近平预计将寻求第三次担任党总书记，颠覆在毛泽东长达数十年的可怕统治之后制定的规则。关于纪录片放映的报道几乎都是以惊人的相似方式呈现：官员们强调“正确”历史观的重要性，然后得出结论，最重要的是对中国共产党和习近平的忠诚。
 
+还有一个警告外国政府想知道为什么习近平不会承认普京的罪行的原因，就是中国对俄罗斯的支持的重要原因是地缘政治，普京先生被视为与美国斗争中不可替代的战友。但这也涉及到国内的政治考量，中国理论家认为，将习近平的民族主义品牌与普京的民族主义品牌相提并论是有益的。只要这种理论存在，要求习近平与俄罗斯断绝关系，站在西方一边，就像要求他与自己决裂一样，绝无可能。
 
-文字版原文：[美国法院恢复拜登政府对所有联邦雇员的疫苗强制令](https://gnews.org/zh-hans/2312066/)
+（全文完）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+《经济学家》中国专栏
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+#### 信息来源：[Don’t underestimate Xi Jinping’s bond with Vladimir Putin](https://www.economist.com/china/2022/04/09/dont-underestimate-xi-jinpings-bond-with-vladimir-putin)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

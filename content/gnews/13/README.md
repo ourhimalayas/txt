@@ -2,25 +2,38 @@
 ---
 
 
-## 速报┃美国驻华使团关于旅行警告和授权撤离的声明
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2317213/)
+## 上海疫情致更多全球供应链中断
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2317224/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。铭记这一优先事项，鉴于新冠病例激增以及中共国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-101.png)图片来源于本文链接
-伯恩斯大使以及国务院和使团的其他官员已直接向中共国官员提出了我们对疫情和中共国管控措施的关切，我们也已将自愿撤离的决定通知了他们。根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中共国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中共国的香港特别行政区、吉林省和上海市。我们正在向中共国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1022.png)
+（图片来自原文）
 
-信息来源： [美国驻华使团关于旅行警告和授权撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+上海的中共病毒（Covid-19）疫情仍然 “极其严峻”，中国共产党（CCP）的持续封锁有可能破坏其经济，并 “撕裂 “已经非常紧张的全球供应链。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+4月7日，周三，上海宣布，当日有16,766个病例，创最高纪录时，中共控制的国家媒体援引该市流行病控制工作小组主任的话说，该市的疫情 “仍然处在高水平”。
+
+尽管按照国际标准，这次的上海疫情是自2020年1月，中共病毒在武汉引发全球大流行以来，中共国最严重的一次爆发。
+
+因为中共当局顽固地坚持”清零”政策，上海2600万人口全都被强迫禁足，行动受到限制，百姓的不满情绪日益高涨。
+
+中共从各地调派至少38,000名医务人员，还有2,000名军事人员，对居住在上海的居民进行大规模测试。
+
+更糟糕的是，东北的吉林省继续爆发另一场疫情，首都北京也出现了另外9个病例，北京关闭了发现病例的购物中心。
+
+越来越多的迹象表明，由于封锁，中共国的经济正在急剧放缓。
+
+随着上海持续的封锁，开始影响未来，可能会有更糟糕的情况发生，尤其会对供应链造成重大破坏。
+
+周三亚洲股市一片红海，日经指数下跌1.5%，恒生指数下跌超过2%。欧洲市场在早盘也出现了下跌。
+
+两年来，大流行病的干扰已经使全球经济复杂的供应链脱节，导致商品、食品和消费品的价格急剧上升。
+
+乌克兰战争加剧了通货膨胀，特别是石油和谷物价格，中共国的进一步停工可能会使全球情况恶化。
+
+新闻来源链接： [https://www.theguardian.com/business/2022/apr/06/shanghais-grim-covid-outbreak-threatens-more-global-supply-chain-disruption](https://www.theguardian.com/business/2022/apr/06/shanghais-grim-covid-outbreak-threatens-more-global-supply-chain-disruption)
+
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 
