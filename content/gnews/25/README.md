@@ -2,20 +2,18 @@
 ---
 
 
-## 美国将对俄罗斯执行新一轮金融制裁
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2312993/)
+## 2022年4月9日《樱花快报》：俄罗斯火箭攻击乌克兰一座火车站 造成至少50人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2313143/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据加拿大《CTV新闻》4月6日报导，为持久惩罚俄罗斯经济，美国政府当天公布了针对俄罗斯最大两家银行，普京家人及其两个成年女儿的新一轮金融制裁措施。
-
-报导称，新措施将禁止美国的个人和机构与俄最大两家银行的资金往来，切断了普京所有亲属与美国金融系统的联系，并冻结了其在美国持有的任何资产。此外，制裁对象还包括俄总理和外交部长等众多政府高官及其亲属。美国财政部也正计划对俄罗斯国有企业实施更多制裁，并禁止美国人在俄罗斯进行新的投资。
-
-据悉，为惩罚俄军在乌克兰的暴行，欧盟各国都纷纷宣布了一系列冻结俄罗斯资产和能源进口的禁令。目前，联合制裁已重创俄罗斯经济，该国的通胀率正以每周2%的速度增长，而其年通胀率必将因此超过200%的崩溃极限。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220409快报.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

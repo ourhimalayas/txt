@@ -2,27 +2,37 @@
 ---
 
 
-## 俄乌战争｜美国会投票剥夺俄国最惠国待遇 美、欧制裁趋于同步
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2308735/)
+## 国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309165/)
 
 **港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-11.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院周四针对“取消俄罗斯及其亲密盟友白俄罗斯的永久正常贸易关系（PNTR，即永久的最惠国待遇无须年审）”，结果以100赞成：0反对通过。此外，另一项针对禁止进口俄罗斯石油的能源立法，参议院也以100赞成：0反对的结果表示支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-4.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+欧盟执委会6日提议将禁止进口俄罗斯煤炭纳入新一轮制裁清单，会议结果出炉，欧盟成员同意将煤炭进口禁令纳入对俄罗斯的新一轮制裁，制裁决议将经欧盟官方公布后生效。欧盟对俄罗斯实施煤炭进口禁运，同美国禁止进口俄能源，旨在对普京施加经济压力。
 
-取消俄罗斯及其盟友白俄的永久正常贸易关系一案，参议院决议通过后，提交给众议院以420票赞成：3票反对结果，获取压倒性支持。禁止俄石油的能源立法，也获得413票压倒性支持。两案送交拜登总统经签署后，公布生效。
+欧盟执委会宣布自**8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口**；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
 
-该能源立法，系将拜登总统先前发布关于禁止进口俄罗斯石油、天然气、煤炭的行政命令，经立法程序转为法律，旨在对普京施加经济压力；贸易立法，美国会以立法形式，取消对俄国的永久最惠国贸易地位，并允许基于俄侵略乌而对莫斯科征收更高的关税，旨在切断美国与俄罗斯的正常经济往来。
+欧洲统计局数据显示欧盟仰赖俄罗斯能源，2020年自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气。本次煤炭进口禁令，是欧盟首次对俄罗斯能源实施制裁，预计价值高达每年40亿欧元（44亿美元）。同时，欧盟已着手制定对石油等其他能源的制裁措施。
 
-欧盟委员会6日曾表示，考虑将俄罗斯煤炭纳入新一轮制裁清单，经会议讨论后欧盟执委会也批准新禁令，从8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
+欧盟决议将对俄罗斯实施制裁如下：（由欧盟官方公布后生效）
 
-欧盟成员国以德国最为仰赖俄能源，该国财政部长对此提议表态“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系…。”由此观之，可确定美、欧对俄的制裁及立场趋于同步。
+- 对俄罗斯宣传、国安、军事机构人员、侵略乌克兰有关的工业技术部门进行实体制裁
+- 冻结数家俄罗斯银行资产
+- 禁止向俄罗斯出口价值高达100亿欧元的高科技产品
+- 欧盟将对悬挂俄罗斯国籍的船只关闭港口
+- 对俄罗斯实施武器禁运
+- 禁止俄罗斯煤炭进口、禁运
+- 禁止从俄罗斯进口，价值高达55亿欧元的原料和关键原料
+- 对俄罗斯及白俄罗斯公路运输制裁
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/07/senate-votes-to-strip-russia-of-most-favored-nation-trade-status.html)、[yahoo](https://uk.news.yahoo.com/u-senate-backs-removal-most-144649257.html)
+
+欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）推特表示，俄乌战争持续，俄国在金融、经济、科技方面将长期受到孤立。
+
+来源｜[euronews](https://www.euronews.com/my-europe/2022/04/07/eu-countries-agree-on-new-russia-sanctions-including-coal-embargo)、[AP](https://apnews.com/article/russia-ukraine-kyiv-business-european-union-europe-9a1062991e5e1f463c31e4cf518b2c3f)、[Présidence française du Conseil de l’UE’s twitter](https://twitter.com/Europe2022FR)
 
 * * *
 
 ▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
