@@ -2,50 +2,21 @@
 ---
 
 
-## 民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2317914/)
+## 视频|美众议员推法案 要求评估中共是否支援了俄罗斯
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2317915/)
 
-#### 雅典娜情报组《民生、失业收集专栏》
+制作：香草山视频部
 
-整理/编辑：五伊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1032.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1033.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1034.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1035.png)
-**工作7年的单位突然裁员降薪**
+外媒报道，美国国会众议院外交事务委员会于4月5日，推出了数项关于制裁俄罗斯的法案，其中一项由共和党议员巴尔提出的法案，则直接要求评估习近平如何干预和破坏了美国对俄罗斯的制裁。
 
-#找工作啊找工作 #工作
+法案指出，拜登总统在与习近平3月18日的通话中警告说，如果在俄罗斯对乌克兰城市和平民发动残忍袭击之际，中共向俄罗斯提供物质支持，将面临严重影响和后果。而中共与俄罗斯近来多次强调要发展战略合作及双边关系，美国有合理依据相信中共正在对俄罗斯提供某种形势的支持。法案要求美国国务院在法案生效后30内向国会提交报告，说明中共是否对俄罗斯提供了援助、协助俄罗斯逃避国际制裁，并要求国务院每90天对报告进行一次更新。
 
-时代的一粒灰，落在个人头上就是一座山
+发稿：呼吸的雾霾（文小呼吸）
 
-这句话我今年才真切体会到
-
-经济下行，准确说房地产下行
-
-导致房地产下游企业
-
-例如我所在的地产广告公司效益骤减
-
-老板迫于压力只好裁员降薪开源节流
-
-昨晚还在为公司拼命，第二天一早就被告知“请离开”
-
-这样的人不在少数
-
-也不知道自己什么时候也会出现在辞退名单上
-
-前路迷茫……
-
-只能说：选对赛道真的很重要啊！
-
-发布于 2022-04-07 00:21
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1036.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1037.png)图片来源：小红书
-参考链接：[工作7年的单位突然裁员降薪](http://xhslink.com/utLcFg)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

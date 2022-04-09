@@ -2,72 +2,26 @@
 ---
 
 
-## 粗暴的笑话
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2318079/)
+## 视频|天空网络竞争 亚马逊签署Kuiper计划
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2317920/)
 
-作者：蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1042.png)
+制作：香草山视频部
 
+当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
 
-我在喊
-你也在喊
-我喊我饿了需要吃的
-你喊控制灵魂对自由的渴望
+亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网络的卫星系统。目前SpaceX已经有2110颗卫星在轨道上运行，OneWeb第一批计划的648颗目前已经完成发射428颗。
 
+亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成深度默契。
 
+随着天空互联网公司的发展，竞争是存在的，但合作也在增多。英国的OneWeb公司因俄罗斯受制裁，被迫中止了3月本该由俄罗斯航天局承接的发射任务。最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
+发稿：呼吸的雾霾（文小呼吸）
 
-我想
-我们是不是
-来自于不同星球
-不懂彼此语言
-交臂而过
-也只是交臂而过
-你假装听不懂我
-我对你无言以对
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-你说
-控制灵魂对自由的渴望
-你告诉我
-告诉我们
-谁在控制我们的灵魂
-我们的自由
-
-我们早已经忘了
-什么是灵魂
-什么是自由
-生活处在最低要求
-可是
-如今
-也
-已经被剥夺
-
-喊吧，喊吧
-无人机在空中飞行
-那是用我们血汗
-购买的先进水平
-循环着你的声音
-控制着人们灵魂
-美好一切
-都已成了
-昨日风景
-只留下
-万人空巷
-家家牢笼
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
-
-**更多資訊，更多關注**
-[**烏克蘭救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文貴先生**Gettr](https://gettr.com/user/miles)
-[**全球喜馬拉雅農場聯盟委員會**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜馬拉雅聯盟大使館全球客服中心**Discord](https://discord.gg/zv8j42srdN)
-
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1047.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

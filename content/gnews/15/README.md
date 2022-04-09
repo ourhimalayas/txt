@@ -2,32 +2,26 @@
 ---
 
 
-## 欧盟对俄实施第五套制裁措施包括217名个人和18个实体
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2318147/)
+## 美国破坏了俄罗斯控制的“沙虫”网络攻击
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2318127/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-09-下午11.12.18.png)图片来源：互联网
-欧盟对俄实施第五套限制措施，对另外217 名个人和 18 个实体实施限制性措施包括能源、金融媒体等实体、还有俄高级官员、寡头、及他们家庭成员，包括俄罗斯总统弗拉基米尔-普京的女儿玛丽亚-弗拉基米罗夫娜-沃隆佐娃和叶卡捷琳娜-弗拉基米罗夫娜-蒂霍诺娃。
+编译：波士顿五月花—-思澈
 
-欧盟周五（4月8日）决定对另外217 名个人和 18 个实体实施限制性措施，以应对俄罗斯正在进行的无理无端对乌克兰的军事侵略以及其他破坏或威胁乌克兰领土完整、主权和独立的行动。这是欧盟对俄罗斯实施的第五套限制措施的一部分。
+美国司法部宣布授权破坏了俄罗斯联邦武装部队总参谋部主要情报局（GRU）控制的僵尸网络“沙虫”的黑客攻击
 
-名单上的 217 名个人包括克里姆林宫高级官员、寡头- 摩西-康托尔（Moshe Kantor）、鲍里斯-罗滕伯格（Boris Rotenberg） 和 奥列格-德里帕斯卡（Oleg Deripaska）- 以及涉及能源、金融、媒体、国防和军火工业等关键经济领域的其他知名商人，以及虚假信息的支持者和信息操纵，系统地传播克里姆林宫对乌克兰局势的虚假叙述。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/99FCE5A0-4421-4FC2-BABE-2DF4114C5872.jpeg)
 
-名单还包括已经被制裁的个人的家庭成员，鉴于他们从该制度中受益，或为了防止规避欧盟的制裁。这些指定包括俄罗斯总统弗拉基米尔-普京的女儿玛丽亚-弗拉基米罗夫娜-沃隆佐娃和叶卡捷琳娜-弗拉基米罗夫娜-蒂霍诺娃。最后，所谓 “顿涅茨克人民共和国 “和 “卢甘斯克人民共和国 “的所谓部长和 “人民委员会 “成员也被列入黑名单。
+这次是自俄罗斯入侵乌克兰以来最新的一次美国与俄罗斯网络超限战的冲突和框架化的较量，超限战在现代战争中越来越突显。美国与乌克兰合作建立网络防御系统抵制俄罗斯的网络攻击，来自美国网络司令部的被称为’网络任务小组’的部队已经部署在东欧各地的基地里干扰俄罗斯的数字攻击和通信。
 
-18个被制裁的实体包括四大俄罗斯银行（Otkritie银行、Novikombank银行、Sovcombank银行和VTB银行）、一家活跃在运输领域并由俄罗斯联邦拥有的公司，以及其技术或产品在入侵中发挥作用的军事防务行业的公司。
+除了可能正在秘密发生的事情之外，美国还在采取公开宣布的行动，这些行动似乎旨在使俄罗斯网络操控者的更加困难，那些为俄罗斯国家工作的人和那些关系比较模糊的人。
 
-“我们再次加强制裁名单，增加更多政界、商界和宣传人员，以及更多金融、军工和交通部门的实体。我们的重点很明确——我们的目标不是普通的俄罗斯人。我们的目标是克里姆林宫，即支持普京在乌克兰发动战争的政治和经济精英。我们制裁的目的是制止俄罗斯军队的鲁莽、不人道和侵略行为，并向克里姆林宫的决策者表明，他们的非法侵略付出了沉重的代价，”欧盟外交和安全政策高级代表Josep Borrell。
+美国这次打击俄罗斯GRU 控制的“沙虫”僵尸网络不是第一次，俄罗斯控制的僵尸网络长期进行黑客攻击。为了有效制裁俄罗斯国务院宣布从其正义奖赏计划中奖励高达1000万美元，以奖励 “导致识别或找到 “被告的信息。这些努力可能无法阻止俄罗斯的国家或非国家行为者，但它们可以增加不良行为者和那些可能与他们打交道的人的风险。
 
-截至目前，欧盟限制性措施现在总共适用于1091 名个人和 80 个实体。那些被指定的人将被冻结资产，欧盟公民和公司被禁止向他们提供资金。自然人还受到旅行禁令的约束，禁止他们进入或过境欧盟领土。
+素材来源：[https://www.justsecurity.org/81027/friction-framing-department-justice-cybersecurity-related-actions-against-russia/](https://www.justsecurity.org/81027/friction-framing-department-justice-cybersecurity-related-actions-against-russia/)
 
-原文链接：
+*发布：思澈*
 
-【1】[Fifth package of sanctions in view of Russia’s military aggression against Ukraine: EU adopts restrictive measures against an additional 217 individuals and 18 entities](https://www.consilium.europa.eu/en/press/press-releases/2022/04/08/fifth-package-of-sanctions-in-view-of-russia-s-military-aggression-against-ukraine-eu-adopts-restrictive-measures-against-an-additional-218-individuals-and-18-entities/)
 
-* * *
-
-*编辑&发布：长岛开心*
 
  
 

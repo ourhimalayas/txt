@@ -15,83 +15,83 @@
 
 ---
 
-### [同比跃升34%！3月份全球食品价格续创新高](/content/gnews/1/README.md)
+### [俄罗斯3月份通胀率达到1999年1月以来的最高点](/content/gnews/1/README.md)
  ` 加拿大温哥华英里农场`
 
-### [七哥说—第63期](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国寻求最终剥夺俄罗斯全部能源出口收入](/content/gnews/3/README.md)
+### [美国农业部降低了巴西、乌克兰和俄罗斯的大豆出口预期](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中国用人民币购买的俄国能源将运抵中国](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [樱花时政┃美国“授权撤离”驻上海总领馆](/content/gnews/5/README.md)
+### [驯化教育? 中共防疫被指是服从性训练 民众需觉醒](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北约必须做好与俄罗斯开战的准备](/content/gnews/6/README.md)
+### [美国农业部再度下调乌克兰谷物出口预估](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [中国用人民币购买的俄国能源将运抵中国](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [樱花时政┃美国“授权撤离”驻上海总领馆](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [北约必须做好与俄罗斯开战的准备](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/7/README.md)
+### [中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光](/content/gnews/8/README.md)
+### [上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [2022年4月9日，全球中共病毒疫情情况汇总](/content/gnews/9/README.md)
+### [2022年4月9日，全球中共病毒疫情情况汇总](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花时政┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/10/README.md)
+### [樱花时政┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界不能对普京的最新暴行视而不见](/content/gnews/11/README.md)
+### [世界不能对普京的最新暴行视而不见](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本追加五项对俄制裁措施 驱逐8名外交官](/content/gnews/12/README.md)
+### [日本追加五项对俄制裁措施 驱逐8名外交官](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [有声｜长春封城菜价高涨 蔬果被特权阶层垄断](/content/gnews/13/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜俄罗斯将动员6万名预备役军人参与战争](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [欧盟对俄实施第五套制裁措施包括217名个人和18个实体](/content/gnews/15/README.md)
+### [欧盟对俄实施第五套制裁措施包括217名个人和18个实体](/content/gnews/14/README.md)
  ` 波士顿五月花农场金融部`
 
-### [有声｜百家中共国公司被查 涉嫌挖走台湾芯片人才](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中所签订安全合作协议 中共妄图在南太平洋牵制美国澳大利亚新西兰](/content/gnews/17/README.md)
- ` 温哥华扬帆农场`
-
-### [有声｜美国将限制俄罗斯进口化肥和管道阀门等商品](/content/gnews/18/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国破坏了俄罗斯控制的“沙虫”网络攻击](/content/gnews/19/README.md)
+### [美国破坏了俄罗斯控制的“沙虫”网络攻击](/content/gnews/15/README.md)
  ` mayflowertranslate`
 
-### [粗暴的笑话](/content/gnews/20/README.md)
- ` 纽约香草山MOS02`
-
-### [有声|俄乌战局最新信息汇总](/content/gnews/21/README.md)
+### [有声|俄乌战局最新信息汇总](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/22/README.md)
+### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/17/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|卡廷惨案再现-布查大屠杀](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [欧盟认为俄罗斯应对克拉马托尔斯克的袭击负责](/content/gnews/24/README.md)
+### [欧盟认为俄罗斯应对克拉马托尔斯克的袭击负责](/content/gnews/18/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
+### [视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/19/README.md)
+ ` MOSVIDEO`
 
-### [有声|波士顿马拉松赛禁止俄罗斯和白俄罗斯运动员参赛](/content/gnews/26/README.md)
- ` MOSREC`
+### [视频|天空网络竞争 亚马逊签署Kuiper计划](/content/gnews/20/README.md)
+ ` MOSVIDEO`
+
+### [视频|香港葬礼服务中心不堪重负](/content/gnews/21/README.md)
+ ` MOSVIDEO`
+
+### [视频|中共公布上海感染病例持续增加 赶建大型方舱医院](/content/gnews/22/README.md)
+ ` MOSVIDEO`
+
+### [视频|佩洛西访台因病毒受阻 中共再发威胁 并派军机侵扰台日](/content/gnews/23/README.md)
+ ` MOSVIDEO`
+
+### [视频|中俄联手主导中共国的网络舆论 挑战西方](/content/gnews/24/README.md)
+ ` MOSVIDEO`
+
+### [视频|美众议员推法案 要求评估中共是否支援了俄罗斯](/content/gnews/25/README.md)
+ ` MOSVIDEO`
+
+### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [清零究竟清的啥，是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
