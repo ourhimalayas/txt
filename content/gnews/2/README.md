@@ -2,11 +2,11 @@
 ---
 
 
-## 嘉宾分享社交媒体的商业经营模式（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316041/)
+## 嘉宾分享社交媒体的商业经营模式（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316164/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-50-11-00-01-六--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-50-11-00-01-五--scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

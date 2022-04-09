@@ -2,18 +2,33 @@
 ---
 
 
-## GTV的深远意义（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315990/)
+## 口述历史之你要吃老鼠吗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316109/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-40-10-50-01-二-scaled.jpg)
+作者：在天为风在地为林
+编辑：伏而起之
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-978.png)
+
+
+锣鼓震天响，小小的村庄沸腾了。周边各个公社的红卫兵要在我们大队开什么串联批斗大会，从我们村大队破烂房子里拉出好几个奇奇怪怪地绑着的人，他们脖子上挂着各种木板，听老人们说是反动派，被一群像疯子一样，穿着绿色服装戴着红五角星帽子，胸前挂着毛贼像章的人高喊着“打倒”。
+
+结束后，这些人又被送回了大队的破院子住着。他们没有床，农村胶泥的硬块上面铺着麦草，没有什么叫被子的东西。他们常年穿着厚脏破烂叫作卡衣的蓝色半大衣，也有穿破烂的黄大衣，晚上那就是他们的被子。这些人满身都是虱子，郭先生讲的场景我小时候见的多了，我们家人也都有虱子，但没有那些人多。
+
+光着屁股的我老去看这些奇怪的人，七三年左右已经不太多了，听大人说，多的时候有好几十个。其中有两个戴着不是缺腿就是缺半个镜片的眼镜，听说是上海下放来的。一个下午，他们俩用火烤老鼠吃，还说老鼠內脏里心是可以吃的。其中一个白头发老人问我吃不吃，吓得我扔下给他们玉米饼子就跑回家。回家告訴妈妈，妈妈哭了，妈妈说，以后你多拿点玉米饼每天给送过去。后来我又送了几次饼，每次看到他们我就有点怕，现在回想起来那应该是绝望的眼神。
+
+这是我现在都难忘的往事。郭先生说的一点都不过分，我所看到的比他说的更残酷。这种非人性的制度和运动让多少女人失去丈夫，多少父母失去孩子，多少孩子失去爸爸妈妈？而今天的墙内又上演着几十年前的悲剧，看看今天国内各地实施的清零政策，他們不就是想把我们彻底驯化成跪着的奴隶吗？不就是用弱民、饿民来摧残我们的精神世界吗？不就是想让他和他的子孙继续奴役我们吗？
+
+哪天我专门说一下为什么七哥认识的高人说他们是地魔。我诅咒这些害人的独裁者，他们和他们喝人血的子孙下十九层地狱，永远不要再回到人间。新中国联邦的诞生，一定会让中华民族再次重生，让正义、善良、勇敢、文明、法治、诚信、自由重回中华大地。我祈祷。
+
+2022年4月6日
+
 发布：tianzhihuan
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

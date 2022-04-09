@@ -2,39 +2,54 @@
 ---
 
 
-## Shopify因2020年Ledger数据泄露面临新的集体诉讼
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314817/)
+## 国际｜联合国报告3月粮价创新高 2008年能源粮食危机再现
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2314982/)
 
-翻译/编辑：小红帽
+**港台前线 zhong｜2022-4-9**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+联合国报导指出，俄罗斯、乌克兰是玉米、大小麦、葵花油主要出口国，过去三年两国出口约占全球小麦30%、大麦32%、玉米17%、葵花油75%。俄乌战争导致全球粮价、植物油价格暴涨，全球消费者负担加重。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/shopify-accepts-bitcoin-02-1024x655-1.png)图片来源：www.blog.shippypro.com
+影响粮价的其他因素，尚有：
+
+1. **乌克兰3成耕地沦为战场**：乌克兰约2-3成耕地未播种，无法收成。
+2. **俄乌战争堵死乌克兰海运，成本暴增**：乌克兰有85％作物、植物油商品是靠海运输出，战争导致港口关闭，后改以铁路方式输出，成本增加10％至15％。
+3. **俄国的肥料输出停摆：**已导致全球食物与肥料价格飙涨。
+4. **各国对俄罗斯石油、天然气、煤炭等能源制裁**
 
 
-根据COINGEEK4月8日报道，2020年的一次数据泄露事件中，黑客获取了超过100万Ledger用户的信息，这再次成为集体诉讼的核心。这一次，原告正在追究加拿大电子商务巨头Shopify在违规行为中所扮演的角色。
+联合国粮农组织统计数据称，2021-2022年全球谷物消费量预计达到27.89亿顿，大米消费量创下历史新高，玉米、小麦消费量预计也将增加。简言之，战争导致主粮减产、成本增加，将造成严重后果
 
-据报道，在2020年4月至6月期间，黑客能够进入Ledger的网上商店，客户可以在上面订购他们的硬件钱包。黑客设法访问并窃取了超过27万名订购了Ledger钱包的用户的个人身份信息，同时还获取了超过100万名订阅了该公司通讯的用户的信息。
+粮农组织表示，如果粮食持续短缺，全球营养不足人数可能增加 800 万至 1300 万，其中亚太地区增幅最为明显，其次是撒哈拉以南非洲以及近东和北非。 去年全球55个发生粮食危机的国家中，有36个国家小麦依赖俄乌进口。
 
-Ledger用户现在对Shopify和TaskUs（一家为Shopify提供客户支持服务的外包公司）提起了新的集体诉讼。
 
-诉讼指责这两家公司“在2020年影响Ledger的大规模数据泄露事件中，未能合理地保护和保障消费者信息”。诉讼称，数据泄露导致个人身份信息（PII）的公开发布，包括全名、电子邮件地址、邮政地址和电话号码。
 
-正如原告所观察到的，虽然区块链交易是公开可见的，但如果没有更多的信息，就无法追溯到个人。该漏洞使这些信息公之于众，使Ledger的客户很容易成为骗子的目标。自此以后，骗子就开始以他们为目标进行网络钓鱼活动。
+> Global [#foodprices](https://twitter.com/hashtag/foodprices?src=hash&amp;ref_src=twsrc%5Etfw) rise to record high in February, led by vegetable oils & dairy products.
+> 
+> The [@FAO](https://twitter.com/FAO?ref_src=twsrc%5Etfw) Food Price Index averaged 140.7 points in Feb, up 3.9% from Jan, & 3.1 points higher than in Feb 2011.
+> 
+> World wheat & maize production seen rising in 2022[https://t.co/PPgoW3NqMO](https://t.co/PPgoW3NqMO)
+> — FAO Newsroom (@FAOnews) [March 4, 2022](https://twitter.com/FAOnews/status/1499793252056195074?ref_src=twsrc%5Etfw)
 
-虽然数据泄露已经够糟糕了，但Ledger和Shopify以最糟糕的方式处理，使情况变得更糟。Ledger起初否认了这一漏洞，直到2020年12月，黑客公开发布了数据。即使在那时，Ledger声称只有不到10,000名客户受到影响，但在更多的数据被公开发表后，又收回了声明。
 
-原告要求特拉华州地区法院判处实际损害赔偿、补偿性赔偿、法定损害赔偿和法定处罚，以及其他惩罚性措施。
 
-这并不是针对Shopify和Ledger数据泄露事件的第一起集体诉讼。去年4月，第一起诉讼在加州提起，声称这两家公司“疏忽地允许、轻率地忽视，然后故意寻求掩盖”该漏洞。
+联合国粮农组织（FAO）粮食价格指数2022 年 3 月平均，较前一个月上升 12.6%，创下该指数自 1990 年设立以来的历史新高。3月肉类，月增 4.8%；乳制品，月增 2.6% 连续 7 个月上扬；植物油，月增 23.2% 创历史新高；砂糖，月增 6.7%。
 
-资料来源：[Shopify faces fresh class-action lawsuit over 2020 Ledger data breach](https://coingeek.com/shopify-faces-fresh-class-action-lawsuit-over-2020-ledger-data-breach/)
+摩根大通估计3月第2周俄国谷物出口量相较去年同期锐减6成；全球粮食政策倡议组织“农产品市场资讯系统”（AMIS）表示，小麦和玉米期货价，今年来涨幅分别达42％、27％。
 
-发布：tianzhihuan
+## 2022年的现在，意外的与历史轨迹十分吻合
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+台湾《国际经济情势双周报》第1660期 分析2008年东亚新兴经济体情势，由于国际能源及粮食价格飙涨，导致东亚新兴经济体通膨迅速上扬，核心通胀上扬引发第二轮效应，2008及2009的经济成长率都下降，并发生高于预期的通货膨胀率。
+
+举韩国为例，韩国统计局数据显示，3 月份消费者价格指数 (CPI) 年增 4.1%（10年新高），超过了路透社调查显示的 3.8% 的涨幅。食品和能源的核心通胀率也较上年同期上涨 2.9%，这表明燃料和原材料价格的飙升已经影响到商品和服务的成本。
+
+2008年由于国际能源及粮食价格飙涨，引发东亚新兴经济体通膨，如今现在正在重新上演。
+
+来源｜[UN](https://news.un.org/en/story/2022/04/1115852)、[ft](https://www.ft.com/content/5212871a-d2d3-41ef-99fe-400ed33859e8)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
