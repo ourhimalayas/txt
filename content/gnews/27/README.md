@@ -2,29 +2,33 @@
 ---
 
 
-## 美参议院一致通过两个向俄罗斯施压的法案
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2314422/)
+## 莫德纳在欧洲召回数千剂新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314679/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+翻译/编辑：小红帽
 
-4月7日，美国参议院投票一致通过两个因俄罗斯2月入侵乌克兰而向俄罗斯施压的法案。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/AP22031537684170.jpg)图片来源：AP Photo/Jenny Kane
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.jpg)图为美国国会大厦（图片来自Travelpix Ltd）
 
-据《美国之音》报道，一个议案是把美国总统签署的禁止进口俄罗斯石油和液化天然气的行政命令变成了法律。
+根据路透社4月9日报道，莫德纳公司（Moderna Inc）于周五表示，在发现一个小瓶被异物污染后，正在召回由其合同制造商Rovi生产的764,900剂新冠疫苗。
 
-据了解，美国政府3月已经禁止进口俄罗斯的标志性产品，包括石油、天然气、伏特加、海产品和工业钻石。
+莫德纳称，没有发现任何安全问题，这批疫苗于1月份在挪威、波兰、葡萄牙、西班牙和瑞典销售。
 
-另一个议案则是终止白俄罗斯和俄罗斯的“最惠国”贸易地位，允许美国对钢铁和铝等俄罗斯产品征收更高的关税。据民主党参议员的一位助理透露，胶合板也可能面临50%的征税，部份反作用式发动机的进口税率可能达到35%。
+该制药商说，仅在一个小瓶中发现了污染，出于“谨慎考虑”，正在召回整批产品。莫德纳没有透露在小瓶中发现了什么。
 
-报道称，目前这两个议案已提交众院表决，预计会被通过。
+日本当局去年暂停使用某些剂量的疫苗，后来莫德纳召回了这些疫苗，因为调查发现一些小瓶中存在不锈钢污染物。
 
-参考链接：
-1.[https://reurl.cc/oelvWg](https://reurl.cc/oelvWg)
-2.[https://reurl.cc/e6qp1L](https://reurl.cc/e6qp1L)
+迄今为止，莫德纳的新冠疫苗已在全球接种超过9亿剂。
 
-总编：老孙
-校对发布：爱放飞
+资料来源：[Moderna recalls thousands of COVID vaccine doses in Europe](https://www.reuters.com/business/healthcare-pharmaceuticals/moderna-recalls-thousands-covid-vaccine-doses-2022-04-08/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

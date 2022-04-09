@@ -2,54 +2,39 @@
 ---
 
 
-## 国际｜联合国报告3月粮价创新高 2008年能源粮食危机再现
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2314982/)
+## 巴基斯坦总理汗表示他不会承认反对派政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2315044/)
 
-**港台前线 zhong｜2022-4-9**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-联合国报导指出，俄罗斯、乌克兰是玉米、大小麦、葵花油主要出口国，过去三年两国出口约占全球小麦30%、大麦32%、玉米17%、葵花油75%。俄乌战争导致全球粮价、植物油价格暴涨，全球消费者负担加重。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-影响粮价的其他因素，尚有：
+翻译：li yan li
+编辑：李易通
 
-1. **乌克兰3成耕地沦为战场**：乌克兰约2-3成耕地未播种，无法收成。
-2. **俄乌战争堵死乌克兰海运，成本暴增**：乌克兰有85％作物、植物油商品是靠海运输出，战争导致港口关闭，后改以铁路方式输出，成本增加10％至15％。
-3. **俄国的肥料输出停摆：**已导致全球食物与肥料价格飙涨。
-4. **各国对俄罗斯石油、天然气、煤炭等能源制裁**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-16.png)图片来源：雅典娜设计组
 
 
-联合国粮农组织统计数据称，2021-2022年全球谷物消费量预计达到27.89亿顿，大米消费量创下历史新高，玉米、小麦消费量预计也将增加。简言之，战争导致主粮减产、成本增加，将造成严重后果
+4月8日，巴基斯坦总理伊姆兰·汗周五表示，如果反对派政府成功地推翻他，他将不会承认反对派政府。这将是席卷这个核武国家的政治危机的最新转折。
 
-粮农组织表示，如果粮食持续短缺，全球营养不足人数可能增加 800 万至 1300 万，其中亚太地区增幅最为明显，其次是撒哈拉以南非洲以及近东和北非。 去年全球55个发生粮食危机的国家中，有36个国家小麦依赖俄乌进口。
+周五，一份官方通知称，该国议会将于周六召开会议，就汗的总理身份进行投票，这可能会缩短他的领导人任期。
 
+该国最高法院周四晚些时候裁定，汗必须面对民众对他的不信任投票。人们普遍预计他将输掉投票，这意味着他将被赶下台。
 
+议长办公室在一份命令文件中说，议会下院已于周六上午10:30（格林尼治标准时间5:30）召开会议。反对党领袖谢巴兹·谢里夫提出的针对汗的不信任投票是议程上的第四项内容。
 
-> Global [#foodprices](https://twitter.com/hashtag/foodprices?src=hash&amp;ref_src=twsrc%5Etfw) rise to record high in February, led by vegetable oils & dairy products.
-> 
-> The [@FAO](https://twitter.com/FAO?ref_src=twsrc%5Etfw) Food Price Index averaged 140.7 points in Feb, up 3.9% from Jan, & 3.1 points higher than in Feb 2011.
-> 
-> World wheat & maize production seen rising in 2022[https://t.co/PPgoW3NqMO](https://t.co/PPgoW3NqMO)
-> — FAO Newsroom (@FAOnews) [March 4, 2022](https://twitter.com/FAOnews/status/1499793252056195074?ref_src=twsrc%5Etfw)
+汗说他不会承认任何取代他的反对派政府。他暗示推翻他的行动是外国阴谋的一部分。
 
+汗作为2018年上任的前板球明星，在成为总理后与俄罗斯发展了关系。他指责美国支持了推翻他的阴谋。华盛顿方面驳斥了这一指责。
 
+三届前总理纳瓦兹·谢里夫的弟弟谢巴兹·谢里夫在法院裁决后说，如果汗被赶下台，该国议会已经提名他接任。
 
-联合国粮农组织（FAO）粮食价格指数2022 年 3 月平均，较前一个月上升 12.6%，创下该指数自 1990 年设立以来的历史新高。3月肉类，月增 4.8%；乳制品，月增 2.6% 连续 7 个月上扬；植物油，月增 23.2% 创历史新高；砂糖，月增 6.7%。
+参考链接：[巴基斯坦总理汗说他不会承认反对派政府](https://www.channelnewsasia.com/asia/pakistan-inran-kham-says-will-not-recognise-opposition-attempt-oust-2616056)
 
-摩根大通估计3月第2周俄国谷物出口量相较去年同期锐减6成；全球粮食政策倡议组织“农产品市场资讯系统”（AMIS）表示，小麦和玉米期货价，今年来涨幅分别达42％、27％。
+发布：tianzhihuan
 
-## 2022年的现在，意外的与历史轨迹十分吻合
-
-台湾《国际经济情势双周报》第1660期 分析2008年东亚新兴经济体情势，由于国际能源及粮食价格飙涨，导致东亚新兴经济体通膨迅速上扬，核心通胀上扬引发第二轮效应，2008及2009的经济成长率都下降，并发生高于预期的通货膨胀率。
-
-举韩国为例，韩国统计局数据显示，3 月份消费者价格指数 (CPI) 年增 4.1%（10年新高），超过了路透社调查显示的 3.8% 的涨幅。食品和能源的核心通胀率也较上年同期上涨 2.9%，这表明燃料和原材料价格的飙升已经影响到商品和服务的成本。
-
-2008年由于国际能源及粮食价格飙涨，引发东亚新兴经济体通膨，如今现在正在重新上演。
-
-来源｜[UN](https://news.un.org/en/story/2022/04/1115852)、[ft](https://www.ft.com/content/5212871a-d2d3-41ef-99fe-400ed33859e8)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
