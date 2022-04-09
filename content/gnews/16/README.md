@@ -2,38 +2,40 @@
 ---
 
 
-## 大直播后记：嘉宾分享AI科技
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316052/)
+## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
 
-整理： 馨馨、红红火火
-编辑：李易通
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
+APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-687.png)图片来源：雅典娜设计组（614）
+包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
 
+铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
 
-宁南：这个非常有挑战的PPT我终于是给它解决了，因为里面有很多的专业术语，我需要跟大家解释。这就像我们在学校里汇报PPT，行业结构就这么多，但是如果不跟大家讲的话，可能会一头雾水。关于这一点，我们请嘉宾跟大家简单分析一下，也许你没有在这个专业领域有研究，但是你听完这些之后有没有觉得我们未来的生活会有巨大的改变。我们先请小王子跟佳佳。
+伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
 
-小王子：谢谢宁南，板砖一下就扔过来了。这个话题说起来的话也确实非常非常的困难，因为很多的技术都特别的先进。我想说其实AI离我们并不远，它并不像我们想象的那样在很遥远的未来。其实AI就在我们眼前，就在现在。比如说大家可以看到现在大部分的金融产品的结账体系，比如说所有的金融市场的运作，其实都是全自动化的运行，这个背后就是一个基础的AI在操作。再比如现在特斯拉的自动驾驶的汽车上，包括这个医疗产业上，其实AI已经在各行各业进入了一个运用状态了。可能我们不知道的一系列黑科技都已经存在。AI对人类的影响和对人类的改变，对科技的影响正在发生中，谢谢。
+根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
 
-佳佳：现在科技越来越进步，越来越先进。那么最重要的是什么？就是在科技发展到更高维度以前一定要把CCP给灭掉。你看AI技术，本来是一个服务于人的技术，它会让我们的生活变得更加的美好、轻松、方便。但是却被中共运用到了奴役中国人身上。它砸了那么多钱在这上面，全都放到天网技术，AI人脸识别的上面，就是为了维稳，就是为了控制墙内百姓。本来这个科技应该是服务于人类的，但是共产党却让所有这些好的科技都只用来作恶。
+我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
 
-我们知道共产党是没有办法研究出来这种科技的，它就是靠偷，但即使它拿到以后也是灾难。比如说中共打台湾或者是局势进一步的恶化的时候，西方国家出手把这些软件和芯片给断掉的时候，它花了那么多钱，它以后还怎么样去做这些系统的更新，然后还怎么去继续用这些科技实施邪恶的目的？所以中共的消灭是一个必然的趋势。我们科技的发展也是一个必然的趋势。我就想讲这些，谢谢。
+随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
 
-宁南：好的，谢谢。真的是，我们可以感受到这种科技的进步，以及当被科技制裁之后中共的那种惨状。我们以前还真的没有想过，主要都是经济脱钩以及最近想到的是粮食短缺。将来科技上的这种倒退会让中共回到石器时代，我们也真的要开始畅想一下。城市里的电力，你的公交，你的所有的保障，并不一定是说人员不行，而是你的根子——科技真的跟不上。那么这个话题，大家要踢给巴黎跟大牛了。
+如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
 
-大牛：就像量子电脑、AI科技、大数据、生物芯片等基本上就是人类进入下一个时代的几项关键的技术。我对这些不是很懂，但是我可以简单说一下。因为这几个技术里面，其中有一个非常重要的就是芯片，刚刚几位嘉宾也提到芯片问题。说到芯片，我们可以对比一下，就是两岸在这个芯片的发展上面，从196几年到198几年大概20多年的时间，两岸其实是同步在发展芯片的。你现在来看的时候，台湾现在已经发展起来了。我查了一些历史资料，中共说在路边的大妈拿一个烧窑盆也说是在制造芯片，鼓吹中国大陆可以制造多少芯片等等。但是现在事实是什么？刚刚嘉宾们提到世界跟中共国进行科技的脱钩，如果你有制造芯片的能力，你根本不需要害怕脱钩是吧？就是因为中共没有制造芯片的能力它才害怕。
+美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
 
-但是为什么台湾这么小、人口这么少却可以发展起来呢？你像台积电，像整个芯片制造的产业，那为什么中共国没办法制造出芯片呢？我觉得最重要的差异就是创造力，每一个人最珍贵的就是创造能力。刚刚风雨之中战友还提到过，作为人类需求法则的顶部，自由绝对是创造力的一个源泉。中共国在中共邪恶制度下，它是把人摁在最底层，让你只追求基本的生理需求，而且它禁锢人的创造力和思想。科技上中共就是只靠假骗偷，还有蓝金黄这些下三滥手段。
+美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
 
-就像刚刚PPT里写到的，它有哪几项科技是可以赢别人的？一项也没有。我相信它唯一一个可以赢别人的技术就是在人体器官移植上面，在这方面中共可以算是世界上首屈一指的。为什么？因为它没有人性和底线。这是一个最真实的对比，当然也是打脸共产党告诉全世界，中华民族是适合拥有民主的。你从香港、台湾就可以看得非常非常的清楚，所以这就是为什么一定要消灭中共这个体制，谢谢。
+美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
 
-资料来源：[2022年4月8日 文贵大直播](https://gettr.com/post/p147s0qfc4d)
+美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
+
+原文链接：
+
+[美国驻华大使馆](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
  
 

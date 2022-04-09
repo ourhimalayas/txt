@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 9:28 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group30/origin/2022/04/09/09/6da845d7-fe5f-e623-b6dd-8046ea3e252d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/9/2022 9:28 AM (UTC)`
+
+【Ukraine Rescue】 04/07/2022 Nicole, an NFSC volunteer interviewed by the US media "Daily Caller", conveys the message that the CCP does not represent Chinese people. She says that the CCP is the root cause of all disasters, the black hand behind the war in Ukraine, and the elimination of the CCP is the only option to ensure world security.<br/><br/>【乌克兰救援】 04/07/2022 新中国联邦志愿者Nicole接受美媒《每日来电者》采访，传达中共不代表中国人的信息。她说中共是一切灾难的根源，是乌克兰战争的幕后黑手，消灭中共是确保世界安全的唯一选择。<br/>
+![img](https://media.gettr.com/group23/getter/2022/04/09/09/41b87655-8830-01e5-32b3-5cb58d06f4a0/out.jpg)
+
+---
+
 `@miles 4/9/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -143,20 +157,6 @@
 
 <br/>【Ukraine Rescue】04/05/2022 The Belgium Uighur, Xiao Su and his family fled China, but many of his relatives and friends remain in concentration camps and have lost contact. He says that man would eventually die and should live meaningfully, and that he is about to go up to the Ukrainian front to fight in the foreign legion. He heard about the NFSC from the Internet and is glad that some people finally stand up and fight for justice. He says that there are many smart people within the walls of China, but they are unwilling and afraid to stand up. He calls for standing on the side of justice.<br/><br/>【乌克兰救援】04/05/2022 比利时的维吾尔人小苏，虽然一家人逃离了中国，但很多亲人朋友仍关在集中营失去了联系。他说人终有一死，应该活得有意义，他即将作为外国军团上乌克兰前线作战。他从网络上听说了新中国联邦，感慨终于有人站出来为正义而战。他说墙内很多聪明人，只是不愿、不敢站出来，他呼吁站在正义一边。
 ![img](https://media.gettr.com/group48/getter/2022/04/08/23/7c29c53b-3cae-4811-ec66-97f8636fd538/out.jpg)
-
----
-
-`@miles 4/8/2022 11:01 PM (UTC)`
-
-2022.04.08 NFSC News   Miles on the Importance of the Rule of Law
-![img](https://media.gettr.com/group45/origin/2022/04/08/23/d6433b9e-3786-5487-dae1-29fe03856c39/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/8/2022 10:51 PM (UTC)`
-
-4/8/2022 Ukraine Rescue: Fellow fighters who contracted the virus have all turned negative in tests, and we are all grateful to our medical team for meticulously caring for the sick ones. Every aspect of the rescue camp has been significantly improved compared to what we had at the beginning. Fellow fighters are taking good care of the refugees at every moment, making everyone very grateful for the Rule of Law Foundation and the New Federal State of China. Although it is our first time to participate in the rescue operation, we keep growing and improving!<br/><br/>4/8/2022 乌克兰救援连线: 染病的战友们都已转阴，大家对医疗团队无微不至的关照充满感激！救援营地各方面都比最初有了很大改善，战友们时刻都在细心照顾难民，这让大家非常感恩法治基金和新中国联邦！我们虽是第一次参加救援，但都在不断成长和进步！<br/>
-![img](https://media.gettr.com/group41/getter/2022/04/08/22/1de0259d-8c24-cecd-499e-62fd36b514e7/out.jpg)
 
 ---
 
