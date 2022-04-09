@@ -2,33 +2,35 @@
 ---
 
 
-## 五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2316141/)
+## 瑞典欲加入北约
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316379/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-36.png)
-4月6日周三，一名五角大楼的官员表示，乌克兰士兵正在美国接受训练，以便操作美国提供给乌克兰的弹簧刀无人机。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-944.png)图片来自：https://www.ndtv.com
-据悉，该无人机在发射时机翼的展开方式命名酷似弹簧刀，因而以此命名。它携带飞行炸弹，可直接将目标炸毁，又被称为游荡炸弹。它也可以飞到目标区域并呆在原地，待到合适的时机再摧毁目标。最初版本的弹簧刀无人机体积非常小，可以直接装在背包里，曾被派驻阿富汗的美军使用。后来美军开发了一个较大的版本。五角大楼未透露哪个版本被运往乌克兰，也可能两者皆有。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-美国防部发言人称，大约十几个乌克兰军人正在接受训练，他们学会了可以回到乌克兰继续训练其他人，以对抗俄罗斯的入侵。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-参考链接：
 
-[Pentagon Says Ukrainian Soldiers Getting Drone Training In US](https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0154.jpg)
 
-[俄军高级将领的噩梦来了](https://gettr.com/post/p141k8u5dd2)
 
-[美国援助能够精确打击的小型游荡导弹](https://gettr.com/post/p1413xpa000)
+图片来源：路透社
 
-[SWITCHBLADE® 600](https://www.avinc.com/tms/switchblade-600)
+如果邻国芬兰申请加入北约，瑞典第二大反对党的领导人将建议他的政党改变立场，支持瑞典加入北约。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-530x720-3.jpg)
+瑞典民主党改变立场将意味着议会多数席位转向支持长期中立的瑞典加入联盟。
 
-编辑/总编/审核：飞虹
+俄罗斯入侵乌克兰促使两国考虑加入，尽管瑞典比与俄罗斯有 1,300 公里边界的芬兰更犹豫不决。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-18.png)
+芬兰政府已表示将在未来几周内澄清有关可能决定寻求会员资格的后续步骤。
+
+民族主义瑞典民主党上个月表示，在一项民意调查显示大多数瑞典人首次支持加入北约。
+
+简评：俄罗斯入侵乌克兰的事实，以及俄罗斯在乌克兰杀戮平民的罪恶， 让北欧的芬兰和瑞典也不得不考虑自己的安全， 独自对抗俄罗斯身单力薄， 希望能够加入北约。 尤其是芬兰有1300公里和俄罗斯交界， 安全隐患让国民觉醒。 北欧国家要改变中立的立场， 对北约来说当然是好事。 北欧国家虽然是欧盟成员，当时不是北约防御盟国， 为了自己的安全该做出正确的选择了。
+
+🔗 [https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/](https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

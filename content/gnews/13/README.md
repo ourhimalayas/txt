@@ -2,28 +2,42 @@
 ---
 
 
-## 接种三针中共病毒疫苗的有效保护率是多少？低于零！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2316502/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316666/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-43.jpg)
-（图片来自网络）
+整理：枳实
+美工：精灵蓝
 
-英国卫生安全机构的最新疫苗报告显示，接种三针中共病毒疫苗对年轻人和老年人的有效性均低于零！并且更容易感染病毒！
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-GETTR（盖特）账号20minfocus 4月9日发布了一段英国媒体GB News 4月8日的播报视频。视频中展示了一份来自Daily Skeptic网站的图表，该图表显示的是英国卫生安全部的最新疫苗报告数据。数据显示，接种三针中共病毒疫苗对年轻人和老年人的有效性均低于零！
 
-GB News的主播在播报中表示，中共病毒疫情可谓是这个世纪最大的公共政策灾难。每天都有新研究、新发现，证实过去两年在西方世界的生活都是活在谎言中。他指出，根据英国卫生安全部的最新疫苗报告，对已接种三剂疫苗的年轻人来说，疫苗保护率低于零；而对于已接种三剂疫苗的老年人而言，疫苗保护力同样低于零！
+雅典娜疫情更新（2022年 4月8日）
 
-此外，主播还根据疫苗数据进一步指出，年满60岁的人接种三针疫苗，感染新冠（中共病毒）的机会是未接种者的五倍；而对于已年满80岁的人来说，接种3针也同样无法提供任何保护力或降低住院风险。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-989.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-990.png)
+[2022年4月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月8日改进.pdf)
 
-接种三针疫苗的保护力低于零！这一结果完全印证了新中国联邦和爆料革命奠基者郭文贵先生一早就不断地向全世界发出的警告——疫苗不仅无用，且危害巨大！
+数据来源：
 
-新闻链接：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-[https://gettr.com/post/p149wte5121](https://gettr.com/post/p149wte5121)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-* * *
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

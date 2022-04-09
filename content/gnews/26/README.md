@@ -2,34 +2,21 @@
 ---
 
 
-## 瑞典欲加入北约
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316379/)
+## 岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316455/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-39.png)（图片源自本文链接）
+4月9日每日新闻消息：8日的新闻发布会上，日本首相岸田文雄表示：俄罗斯的军事活动在我国境周边地区也变得越来越活跃，这是一个令人担忧的问题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+首相岸田文雄还说：必须严重关注俄罗斯军队在远东地区的行动，政府将采取一切可能的措施，收集信息并警惕地监测俄罗斯军队在我国附近的行动。
 
+信息来源： [岸田首相「ロシア軍、我が国周辺でも活動活発化」　懸念を表明（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/18140539765067cea0d4d391fc2d67713d732ebd)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0154.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-
-图片来源：路透社
-
-如果邻国芬兰申请加入北约，瑞典第二大反对党的领导人将建议他的政党改变立场，支持瑞典加入北约。
-
-瑞典民主党改变立场将意味着议会多数席位转向支持长期中立的瑞典加入联盟。
-
-俄罗斯入侵乌克兰促使两国考虑加入，尽管瑞典比与俄罗斯有 1,300 公里边界的芬兰更犹豫不决。
-
-芬兰政府已表示将在未来几周内澄清有关可能决定寻求会员资格的后续步骤。
-
-民族主义瑞典民主党上个月表示，在一项民意调查显示大多数瑞典人首次支持加入北约。
-
-简评：俄罗斯入侵乌克兰的事实，以及俄罗斯在乌克兰杀戮平民的罪恶， 让北欧的芬兰和瑞典也不得不考虑自己的安全， 独自对抗俄罗斯身单力薄， 希望能够加入北约。 尤其是芬兰有1300公里和俄罗斯交界， 安全隐患让国民觉醒。 北欧国家要改变中立的立场， 对北约来说当然是好事。 北欧国家虽然是欧盟成员，当时不是北约防御盟国， 为了自己的安全该做出正确的选择了。
-
-🔗 [https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/](https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/)
-
-编辑发表： Shuizhuyu
 
  
 

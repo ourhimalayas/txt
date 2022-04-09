@@ -2,42 +2,38 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316666/)
+## 大直播后记：小王子谈喜币对墙内渡过疫苗灾难的价值
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316780/)
 
-整理：枳实
-美工：精灵蓝
+整理：馨馨、红红火火
+编辑：Mttfly
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/7fb500a4be0aee7f.jpg)图片来源:雅典娜设计组
 
 
-雅典娜疫情更新（2022年 4月8日）
+宁南：关于疫苗灾难蔓延和备粮、备药这个话题非常沉重，也请我们的嘉宾先来分享一轮，先请小王子和佳佳。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-989.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-990.png)
-[2022年4月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月8日改进.pdf)
+小王子：说到这个话题真的是非常的沉重。我就顺着刚才俄乌战争的形势来谈这个话题。我们可以看到，大卫刚才讲到的经济方面。我们看到俄罗斯卢布它的整个局势，从一开始切断swift系统后卢布的暴跌，到现在几乎回到战前状态。实际上这个背后，因为我们知道俄罗斯它接入到整个人民币的整个结算体系中。这是一个人民币和美元之间的，人民币国际化和美元之间的货币金融战争。
 
-数据来源：
+比如说日本最近在大量抛售美国国债，日本它感受到了危机感。那么我们也看到乌克兰在战争前，完全合法化了所有的虚拟货币。就是说现在的整个经济形势，包括疫苗、包括战争，它造成了各国政府，把它的金融核心、金融货币，战争化、武器化。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+人民币、美元、卢布和所有的货币互相打架，那么在这个过程中，它造成了货币最根本的问题——流通性的缺失。这个情况下，现在全世界能有什么办法去解决这个问题呢？就是虚拟货币，就是喜币。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+在整个疫苗战争、经济灾难和所有的这些灾难到来的时候，战略物资、粮食这些一定是最紧俏的。在这个事情发生之后，我相信共产党到时候，他不仅仅是会控制这些，而且会让你有钱、有人民币，拿着钱你也买不到粮食。就像现在在上海我们看到的，有很多人不是没钱；相反，我有钱，我有支付宝、微信，我有人民币，但是我花不出去。为什么？货币没有流通性，他买不到他需要的粮食和药品。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+无论是我们现在的喜币，还是将来我们要开发的这个躺平币，它最终起到了就是代替货币最根本的作用就是流通性。国内的战友和同胞们，当你手里的人民币变成废纸、被武器化、不能买到任何物资的时候，你如果拥有喜币，如果你拥有这个虚拟货币，如果你拥有躺平币，你就可以通过它们买到你救命的这些药品和粮食。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+所以说喜币和我们接下来的躺平币，整个虚拟货币对于人类，对于中国同胞，对于整个接下来要承受疫苗灾难、经济灾难、战争灾难的全世界来说，它起到重要的作用。我希望战友们千万不要小觑，谢谢。
 
-[covidlive.com.au](https://covidlive.com.au/)
+资料来源：[2022年4月8日 文贵大直播：俄乌战争最新信息及分析；国内疫苗灾难更新及警告；佩罗西访台在即台海局势；大直播科普系列人工智能（EST9.40-9.50)](https://www.gettr.com/streaming/p147s0qfc4d)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+*发布：  tianzhihuan*
 
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
