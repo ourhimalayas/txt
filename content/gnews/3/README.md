@@ -2,11 +2,11 @@
 ---
 
 
-## 老班长谈lock down和封城含义不同，上海现在实际在军管状态（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315935/)
+## 嘉宾分享社交媒体的商业经营模式（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316037/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-20-10-30-03-一-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-50-11-00-01-二--scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

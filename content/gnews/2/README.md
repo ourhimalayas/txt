@@ -2,11 +2,11 @@
 ---
 
 
-## 上海清零政策 马斯克入主推特（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315947/)
+## 嘉宾分享社交媒体的商业经营模式（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316041/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-30-10-40-二--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-50-11-00-01-六--scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

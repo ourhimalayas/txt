@@ -2,18 +2,25 @@
 ---
 
 
-## 老班长谈lock down和封城含义不同，上海现在实际在军管状态（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315919/)
+## 樱花FM┃布查惨案，击穿了人类所有善良和理性的底线！
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2315985/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-20-10-30-03-四-scaled.jpg)
-发布：tianzhihuan
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-9-1.png)
+据纽约时报报道：卫星照片显示尸体在乌克兰城市Bucha中躺了数周，这反驳了俄罗斯声称该场景是在他们离开后上演的。由于俄军在乌克兰涉嫌滥杀平民的暴行罪证确凿，莫斯科星期一（4月4日）面临全球新一波的声讨和谴责，但北京对此却仍保持沉默。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+布查惨案震动了世界，欧美和北约领导人纷纷发出强烈的谴责，要求以战争罪调查，同时表示将立即增加对俄罗斯的制裁、加大对乌克兰的援助。拜登总统周一表示，他认为俄罗斯在乌克兰城市布查犯下了战争罪行，并承诺对莫斯科实施进一步制裁。拜登在抵达华盛顿特区麦克奈尔堡时对记者说：“这个人很残暴，布查发生的事情令人发指，每个人都看到了，我认为这是战争罪。我正在寻求更多的制裁。”简短的讲话代表了拜登对乌克兰首都西北部城镇布查的破坏的首次评论。
+
+乌克兰泽连斯基总统在布查视察了对乌克兰国家犯下战争罪行的现场后，他强烈指责俄罗斯的种族灭绝！呼吁国际社会就俄军涉嫌滥杀平民的暴行对莫斯科实施进一步的制裁！
+
+独裁者的无耻是没有底线的，普京竟然还说到乌克兰去抓新纳粹，简直是胡说八道、无耻至极！看看布查惨案，独裁者普京根本不是到乌克兰抓新纳粹，而是到乌克兰去当新纳粹！普京不等于俄罗斯人，普京不能继续执政，世界正义的力量正在进行强力反击，独裁者普京和邪恶的习近平终将被历史的车轮碾得粉碎！！
+
+文字版原文：[布查惨案，击穿了人类所有善良和理性的底线！](https://gnews.org/zh-hans/2291366/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
 
  
 
