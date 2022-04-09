@@ -2,49 +2,30 @@
 ---
 
 
-## 美国法院恢复拜登政府对所有联邦雇员的疫苗强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2312066/)
+## 樱花时政┃中共正在进行第二次文化大革命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2312593/)
 
-作者：纽约香草山农场 – 四季
+撰稿：东京樱花团/加一颗稻草
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+新冠疫情在中国遍地开花，清零政策越发严厉。中共的演疫所造成的次生灾难愈演愈烈，致使很多国人很不理解。一个死亡率远低于感冒的病毒，中共为什么还要如此的大动干戈呢？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1280.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F2%2F000065782_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001073745%3Ffull%3Dy&amp;tbnid=4ZFt1W9srqpMgM&amp;vet=12ahUKEwj22d3g_YT3AhUOmRoKHcOdCuMQMygdegUIARD2AQ..i&amp;docid=MvycOPEgEUxPqM&amp;w=900&amp;h=506&amp;q=%E6%96%87%E9%9D%A9&amp;ved=2ahUKEwj22d3g_YT3AhUOmRoKHcOdCuMQMygdegUIARD2AQ#imgrc=kP6FrQg2nhqCfM&amp;imgdii=QqI8pb97inJKDM)
+这要是从商鞅五术谈起，整个中国历史几千年都是这个套路，几天几夜也说不完。可以说中国历史就是人种改良史，就是杀光不听话的留下奴性强的。中共在这方面已经做的炉火纯青了，所以我们还是从比较近的文化大革命谈起吧。
 
+文化大革命的时候我还小，懂事以后那块腊肉已经在北京腌制了好几年了。很多关于文化大革命的故事都是在伤痕文学里读到的，身边的年长者都讳莫如深不愿谈及。有时候我会想那十几年人们是怎么熬过来的。
 
+在中共眼里商鞅壹民、弱民、疲民、辱民、贫民这五术已经跟不上时代潮流了。所以他们在这五术的基础上增加了紧跟时代潮流的恐吓、服从训练、挑拨离间。 先说恐吓，传统像纳粹、朝鲜、俄罗斯、中共这样的国家设立一个假想敌的方式，在信息时代已经出现不足以产生作用的情况了。新冠疫情的防控是新的契机。通过无数次的宣传，把这个病毒形容的比鼠疫、艾滋病、癌症还要可怕。让老百姓陷入恐慌当中，于是寄希望与政府，希望政府能出台更严厉的措施力挽狂澜。对老百姓来说，这无异于为自己套上枷锁。
 
+再来说服从训练，上面讲的恐吓的效果会是短期的，信息的流动会让恐吓的效果减弱。所以服从训练必须同步施行。服从前提就是剥夺，拿走你本该有的的权利。通过强制核酸检测、集中隔离、长期封城甚至军管等手段让你习惯这样的生活。然后让你回家种地或出去买一次菜你就会感恩戴德。斯德哥尔摩综合征就是这样训练出来的。
 
+最后讲讲挑拨离间，这也是最最关键的手段。这个手段是上面提到的那块腊肉发明的。“与天斗，与地斗，与人斗其乐无穷”是这个手段的精髓。大家还记得南京彭宇案吗？摧毁了整个民族的道德底线。但这还是初级的手段。更高级的就是前几天发生的因200元人民币引发的上海女性跳楼事件。“为父亲点一次外卖，快递员本不想收费，无奈给快递员冲了200元话费，由于疫情管控这趟快递送的很艰辛，事后快递员得到公司2000元奖励。本以为皆大欢喜，哪知道中共的水军在网络上一顿炒作，人肉搜索，硬生生的把这位很孝顺的女性逼跳楼了。”这些水军就是在河南暴雨中喊着“好爽”的人，也是喊着要收留乌克兰少女的人，更是文化大革命中到处张贴大字报的人。这种手段就是要打散人与人之间的社会联系，对帮助别人产生恐惧，防止人们团结起来。便于中共更好的统治。
 
-据[网关专家](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)4月7日的报道，美国拜登总统要求所有联邦雇员接种COVID-19疫苗的规定当日得到了联邦上诉法院的支持。
+我为什么说这就是第二次文化大革命的原因就是，通过疫情管控剥夺你丈夫照顾妻子，母亲抚养婴儿，儿女孝顺老人的权利，把人民的人性、智商、道德底线全部清零。让人与人互相猜忌、仇恨、斗争，再一次的系统的摧毁刚刚有所恢复的中华文明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/blob-1.jpeg)[图片来源](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)
+培根说：知识就是力量…。奥威尔反驳说：无知是更大的力量。
 
-在一项2-1的裁决中，第五巡回上诉法院的一个小组推翻了下级法院的裁决，并下令驳回了一项挑战该强制令的诉讼。这是政府在新奥尔良上诉法院的一次罕见胜利。裁决称联邦法官对该案件没有管辖权，那些挑战该要求的人可以根据公务员法寻求行政补救措施。
-
-早在去年1月，布朗法官阻止了拜登政府对联邦雇员的最后一次疫苗强制令。政府认为，宪法赋予总统作为联邦工作人员的最高领导，与私营企业的首席执行官一样，有权力要求员工接种疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

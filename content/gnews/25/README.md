@@ -2,24 +2,47 @@
 ---
 
 
-## 乌总统向联合国通报俄军对平民的大屠杀
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312618/)
+## 欧盟同意冻结俄罗斯联邦储蓄银行行长和普京女儿的资产
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2312646/)
 
-作者：加拿大温哥华扬帆农场-重生之鹰
+翻译：多伦多蓝莲花-灭共文明
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-874.png)图片来源：CTV
+编辑：灭共文明、冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》布鲁塞尔4月8日报道，周五，**欧盟官方刊物公布的一份文件显示，欧盟已同意冻结俄罗斯联邦储蓄银行行长、普京的两个女儿和更多俄罗斯寡头在欧盟的资产**。此前，美国已经宣布冻结俄罗斯两大银行和普京两个女儿在美国的资产。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/行长-e1649457245148.jpg)俄罗斯总统普京和俄罗斯储蓄银行行长赫尔曼-格列夫（图片来源：www.intellinews.com）
 
-来自CTV NEWS 4月5日的报道称，乌克兰总统弗拉基米尔·泽伦斯基(Volodymyr zelensky)指责俄罗斯人在乌克兰犯下了令人发指的暴行，并于周二告诉联合国安理会(UN Security Council)，应立即以战争罪的罪名将肇事者送上二战后在纽伦堡设立的法庭。
+根据这份文件，**俄罗斯联邦储蓄银行(Sberbank)行长赫尔曼•格雷夫(Herman Gref)已被列入欧盟黑名单，这一举动具有重要的象征意义。**到目前为止，欧盟一直没有对亚投行进行制裁。亚投行在能源支付方面发挥着关键作用。
 
-泽伦斯基在乌克兰通过视频向联合国外交官发表讲话，他说，“平民遭受酷刑，后脑中枪，被扔到井里，在公寓里被手榴弹炸飞，在汽车里被坦克碾死。他们砍掉他们的四肢，割断他们的喉咙。妇女在她们的孩子面前被强奸和杀害，有的人们的舌头被拔掉，“泽伦斯基说，”无论是那些实施杀戮的人，还是那些下达命令的人，都必须立即以战争罪被绳之以法”，接受类似于战后德国所使用的法庭审判。“
+该文件称，**普京的女儿叶卡捷琳娜·吉洪诺娃(Ekaterina Tikhonova)和玛丽亚·沃龙特索娃(Maria Vorontsova)**也因从俄罗斯政府受益而**受到制裁。**
 
-俄罗斯军队在从基辅郊区撤出之前，在布查和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈抗议，他们的暴行必须得到审判！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/普京的女儿.jpg)普京的女儿玛丽亚-沃隆佐娃（左）和卡捷琳娜-季霍诺娃（图片来源：路透社截图）
 
-链接：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
+此外，**俄罗斯石油生产商苏尔古特油气公司**(Surgutneftegas)**高管**弗拉基米尔·博格达诺夫、**铝业巨头俄罗斯铝业**(Rusal)**创始人**奥列格·德里帕斯卡、**俄罗斯最大黄金矿商Polyus的大股东**赛义德·克里莫夫以及**俄罗斯电子商务平台**（Ozon）**首席执行官**亚历山大·舒金等，**都受到制裁**。
 
-编辑发稿：硫酸羟氯喹64
+报道称，自俄罗斯入侵乌克兰以来，**欧盟已将约700名与克里姆林宫有关或被指控支持入侵的人，列入黑名单。新措施将打击另外200多人**，其中大部分**来自分离主义地区卢甘斯克州和顿涅茨克州，**还有与克里姆林宫关系密切的**高级商人、政治家和军事人员。**
 
+另外，**18个实体也受到资产冻结的打击**，其中包括4家银行，如**俄罗斯外贸银行VTB ，以及军事公司。**据统计，自战争开始以来，受到制裁的公司数量几乎增加了一倍。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯储蓄银行.jpg)俄罗斯莫斯科，俄罗斯联邦储蓄银行(Sberbank)的标志（图片来源：路透社）
+
+据报道，**普京已经在早期的一轮限制性措施中受到了制裁**，尽管目前还不清楚他和他的家人在欧盟有多少资产。
+
+与普京关系交好的**富有寡头们，通常会利用白手套、匿名的空壳公司和信托来保护他们的资产，**这使得调查人员很难查明他们的身份，尤其是在对公司受益所有人规定宽松的司法管辖区。
+
+报道指出，**这些新清单是欧盟对俄罗斯实施的第五轮制裁措施的一部分，其中还包括禁止进口煤炭，并限制俄罗斯船只和卡车进入欧盟。**
+
+新闻来源链接：
+
+[EU agrees to freeze assets of Sberbank boss, Putin’s daughters | Reuters](https://www.reuters.com/world/europe/eu-agrees-freeze-assets-sberbank-boss-putins-daughters-2022-04-08/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
