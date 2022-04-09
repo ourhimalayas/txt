@@ -2,29 +2,39 @@
 ---
 
 
-## 俄导弹袭击乌克兰火车站致50平民丧生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
+## 有声|中共核武库的惊人扩张令世界安全面临更大风险
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318896/)
 
-作者：自由信仰
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据外媒报道，美国战略司令部司令于4月6日警告美国立法者，中共目前正在进行战略核武库的“惊人扩张”。相关报告发表在美国众议院国防拨款小组委员会的网站上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-61.png)图片源自网络
+该报告显示，中共希望在2027年将目前核弹头增加一倍，达到700枚；到2030年希望是1000枚，这比正常预估增加一倍以上。中共还在投资并扩大陆、海、空运载核弹头的能力，并建设配套基础设施。在地广人稀的西部地区加大资金投入用于建立核导弹场，每个已知的核导弹场大约有120个导弹发射井。中共还有地球卫星和地面大型雷达用来监控导弹和隐形飞机。
 
-当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
+2021年7月中共首次试验新型洲际导弹，配备有DF-ZF（东风系列导弹），它可以在世界任何地方进行精确打击，也可以用来运送核武器。该试验是迄今为止地球上陆地攻击系统中的最远距离和最长飞行时间。  
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
+随着中共对其核武器的大规模投资，它可以联合俄罗斯等邪恶国家，将地区冲突升级，严重威胁到美国乃至整个世界的安全。
 
-据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
 
-另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
 
-参考链接：
-1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
-2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
+文字版原文：[中共核武库的惊人扩张令世界安全面临更大风险](https://gnews.org/zh-hans/2314006/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

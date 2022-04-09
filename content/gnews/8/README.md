@@ -2,24 +2,28 @@
 ---
 
 
-## 有声|美众议院议长佩洛西将于本周日访台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318824/)
+## 有声|尹锡悦希望美国重新部署核轰炸机，潜艇及航母
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318908/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据联合报4月7日消息，美国众议院议长佩洛西（Nancy Pelosi）计划于4月10日，即《台湾关系法》立法43周年纪念日，访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-26.jpg)
-据悉，佩洛西一行预计将于10日抵达台湾。若此行成功，佩洛西将成为继金里奇后的、第二位到访台湾的美国议长。同时，蔡英文政府也正积极筹备，准备迎接美国国会议员访问团事宜。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+候任韩国总统尹锡悦的一位顾问表示，尹锡悦的顾问在访问华盛顿期间与美方举行会谈，寻求在朝鲜半岛重新部署核轰炸机和潜艇等美国战略武器 。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-43.png)图片源自网络
+实施后，将会是韩国应用萨德反导系统后，国防力量再一次重大升级，并且会近距离震慑以中共为首的莫斯科，平壤邪恶轴心 。
 
-俄罗斯发动乌克兰侵略战争后，国际社会对中共武力犯台的担忧与日俱增，台海局势成为热点。佩洛西此次访台，将进一步展现美国对美台关系的重视。
+尹锡悦的外交政策和安全助手所组成的团队与美国国家安全顾问沙利文(Jake Sullivan)举行了会谈；尹锡悦寻求获得更持久的安全，以遏制来自朝鲜的威胁，朝鲜目前正在加紧进行武器试验。
+
+“部署战略资产是加强扩展威慑力的一个重要因素，这个问题自然而然地出现在讨论中，”率领该代表团的四届议员Park Jin告诉记者 尹定于5月10日宣誓就职，其竞选纲领中“坚决反击”北魁军挑衅威胁，即包含前进部署核潜艇，战略轰炸机与航空母舰 。
+
+外事团队亦邀请拜登下次亚洲之行时访问首尔，同时与QUAD（韩日印澳）反共联盟会谈。
 
 
 
-文字版原文：[美众议院议长佩洛西将于本周日访台](https://gnews.org/zh-hans/2313951/)
+文字版原文：[尹锡悦希望美国重新部署核轰炸机，潜艇及航母](https://gnews.org/zh-hans/2313956/)
 
 音频处理：Tom Li
 发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,7 +36,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

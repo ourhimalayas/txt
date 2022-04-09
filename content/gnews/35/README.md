@@ -2,36 +2,51 @@
 ---
 
 
-## 微软没收了俄罗斯用来攻击乌克兰的域名
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317583/)
+## 民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2317914/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/APT28-2.jpg)
-当地时间4月8日，微软成功没收了俄罗斯军情间谍运营的APT28使用的域名，这些域名是俄罗斯用来追踪乌克兰、美国、欧洲外交政府机构和各类智囊团的。
+#### 雅典娜情报组《民生、失业收集专栏》
 
-微软表示它在4月6日得到法院命令，授权对俄罗斯APT28用于网路攻击的7个域名进行控制。微软已经将这些域名重新定向到天坑，启用了受害者通知，并向乌克兰政府通报了检测活动和目前的行动。
+整理/编辑：五伊
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1032.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1033.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1034.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1035.png)
+**工作7年的单位突然裁员降薪**
 
-这一行动从2016年开始，是作为微软对俄罗斯国家支持的具有战争目的黑客进行调查的一部分。近年来微软得到几项法院裁决，用来查封APT28使用的基础设施。微软目前已经查封100多个类似的间谍域名。
+#找工作啊找工作 #工作
 
-APT28从2009年开始就很活跃，主要用于攻击各国媒体、军事、安全组织过以及政府。它与2015年的德国联邦会议、2016年的民主党全国委员会、以及美国通信商Viasat，其中对美国Viasat的这次攻击导致了中欧和东欧的卫星服务中断，影响力扩大至全球的家庭和小型企业路由器和网路设备。
+时代的一粒灰，落在个人头上就是一座山
 
-reference：
+这句话我今年才真切体会到
 
-[https://news.yahoo.com/microsoft-seizes-domains-used-russian-123748040.html](https://news.yahoo.com/microsoft-seizes-domains-used-russian-123748040.html)
+经济下行，准确说房地产下行
 
-撰稿、发布：骄子
+导致房地产下游企业
 
-* * *
+例如我所在的地产广告公司效益骤减
 
-欢迎订阅我们的GNews账号：
+老板迫于压力只好裁员降薪开源节流
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+昨晚还在为公司拼命，第二天一早就被告知“请离开”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+这样的人不在少数
+
+也不知道自己什么时候也会出现在辞退名单上
+
+前路迷茫……
+
+只能说：选对赛道真的很重要啊！
+
+发布于 2022-04-07 00:21
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1036.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1037.png)图片来源：小红书
+参考链接：[工作7年的单位突然裁员降薪](http://xhslink.com/utLcFg)
+
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

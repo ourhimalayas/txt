@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|美国警告印度与俄罗斯走近的后果
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318874/)
+## 法拉第未来因延迟递交财报再收退市警告
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2318966/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-美国总统拜登顾问表示，华盛顿已经发出警告印度不要与俄罗斯结盟。美国官员对印度关于俄罗斯入侵乌克兰的反应感到失望。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-151.jpg)图片源自网络
-据国际媒体报道，白宫国家经济委员会主任布赖恩·迪斯说，在俄乌发生战争背景下，他们对印度在某些领域的决定感到失望。 他说：美国已经警告过印度，不要与俄罗斯走的太近，否再将带来严重长期的后果。
+编辑：文宝
 
-印度外长表示，印度与俄罗斯经济贸易稳定，俄罗斯仍然是印度重要的经济伙伴。对俄乌战争态度，印度表示站在“和平”的一边。印度是俄罗斯石油的进口国，也是俄罗斯武器最大的购买者。现在，俄罗斯唯一还能吸引一些国家就是石油和天然气 。为了减少对石油能源的依赖，美国等西方国家会加速世界新的清洁能源快速进入应用市场。
+日前，贾跃亭创建的电动汽车公司FaradayFuture法拉第未来（以下简称“FF”）收到[纳斯达克](https://stock.finance.sina.com.cn/usstock/quotes/.IXIC.html)发出的通知，称其延迟提交2021年财报（10-K表格）的做法违反了纳斯达克上市规则条款，若想继续上市，交易所要求公司在4月19日之前达到合规标准。
 
+4月8日，FF相关负责人在接受《证券日报》记者采访时表示，收到警告文件在意料之中，会努力在4月19日之前提交对原计划的更新，恢复合规。同时，“纳斯达克给予FF一次例外，允许在2022年5月6日前完成10-Q表格和10-K表格的提交”。
 
+据记者了解，今年2月1日，FF向美国证券委员会（SEC）递交了一份当期报表（8-K表格）。此后，FF管理团队的某些成员和公司员工收到了SEC工作人员的保全通知和传票，遭调查的原因是FF涉嫌向投资者发布不准确信息。
 
-文字版原文：[美国警告印度与俄罗斯走近的后果](https://gnews.org/zh-hans/2314063/)
+有调查发现，公司宣称的1.4万份FF91订单中实际只有数百份订单已支付。据此，3月下旬FF发布公告称，由于公司高管涉嫌虚假陈述误导消费者，所以需要额外的时间来完成内部调查。因内部调查造成的延误，无法按时递交年度财报。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[https://finance.sina.com.cn/jjxw/2022-04-09/doc-imcwipii3173869.shtml](https://finance.sina.com.cn/jjxw/2022-04-09/doc-imcwipii3173869.shtml)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 10:01 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-09<br/>For English：gettr.com/post/p14flzr3dcf
+![img](https://media.gettr.com/group49/origin/2022/04/09/22/1f6cb724-fed5-146a-4f6e-72064b089d4f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/9/2022 8:56 PM (UTC)`
 
 2022.04.09  新中国联邦 | 喜健康   长阔高深医生专访
@@ -149,13 +156,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group30/origin/2022/04/09/09/6da845d7-fe5f-e623-b6dd-8046ea3e252d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 9:28 AM (UTC)`
-
-【Ukraine Rescue】 04/07/2022 Nicole, an NFSC volunteer interviewed by the US media "Daily Caller", conveys the message that the CCP does not represent Chinese people. She says that the CCP is the root cause of all disasters, the black hand behind the war in Ukraine, and the elimination of the CCP is the only option to ensure world security.<br/><br/>【乌克兰救援】 04/07/2022 新中国联邦志愿者Nicole接受美媒《每日来电者》采访，传达中共不代表中国人的信息。她说中共是一切灾难的根源，是乌克兰战争的幕后黑手，消灭中共是确保世界安全的唯一选择。<br/>
-![img](https://media.gettr.com/group23/getter/2022/04/09/09/41b87655-8830-01e5-32b3-5cb58d06f4a0/out.jpg)
 
 ---
 

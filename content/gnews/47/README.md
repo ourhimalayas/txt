@@ -2,18 +2,26 @@
 ---
 
 
-## 樱花时政┃德国总统呼吁设立俄战争罪法庭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316647/)
+## 国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2316679/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-26.jpg)[图片来源](https://media.dwnews.net/hk01/LmSjPhrscl9LzoNPJerJhJKYzOA%3D/320*0/media/images/dw/20220317/580977626609356800413290.jpeg)
-德国总统史坦迈尔呼吁设立针对普京和拉夫罗夫的战争罪法庭。他说，“任何对这些罪行负有责任的人，都必须自己作出解释。这包括士兵，包括军事指挥官。当然还有那些负有政治责任的人。”该报道称，乌克兰指控俄罗斯犯有种族灭绝和战争罪。
+**港台前线 zhong｜2022-4-9**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-15.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国驻华大使馆和领事馆4月9日发布声明称，鉴于新冠病例激增以及**中共应对措施带来的相关限制**的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。此外，伯恩斯大使及其他官员已向中共表达对“疫情、中共管控措施”的关切。
 
-信息来源：[德国总统呼吁设立针对普京和拉夫罗夫的战争罪法庭](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220408-%E5%BE%B7%E5%9B%BD%E6%80%BB%E7%BB%9F%E5%91%BC%E5%90%81%E8%AE%BE%E7%AB%8B%E9%92%88%E5%AF%B9%E6%99%AE%E4%BA%AC%E5%92%8C%E6%8B%89%E5%A4%AB%E7%BD%97%E5%A4%AB%E7%9A%84)
+声明提到美国务院最新的旅游建议，称美国公民前往中共旅游，应考虑到“父母与子女被分开的风险”建议美国公民不要前往吉林、上海、香港等地。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+- 相关：**[疫情｜新增持续破万 中共出动武警严管 上海市民发起团购自救](https://gnews.org/zh-hans/2296313/)**
+- 相关：[疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](https://gnews.org/zh-hans/2316486/)
+
+
+来源｜[美國駐華大使館和領事館](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

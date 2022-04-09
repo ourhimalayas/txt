@@ -2,18 +2,38 @@
 ---
 
 
-## 视频文编|地产债务暴雷 引发社会动荡
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2317791/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2318359/)
 
-撰稿：东京樱花团/旺宛宛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-09_225621.png)
-融创、阳光城、龙光集团的最新数据显示，中共国地产债务违约持续升级，已引发成立66年之久的南通六建破产。万科、保利、融创、绿地、华润和中海地产等巨型企业也因此受到重创。从2021年下半年以来，已有3家特级、4家一级资质的建企也因无法偿清到期债务，正在申请破产。房地产的爆雷停工直接导致建筑、建材、装修、家具、家电等相关行业出现债务危机、股市大跌、资金流断裂，继而引发上下游企业出现倒闭潮，相关从业人员大量失业，生活举步维艰！巨大的社会动荡已在劫难逃。
+作者：香草山翻译部
 
-[2022年3月30日《文贵大直播》](https://gettr.com/streaming/p12oba38c9d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-8.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.09早 《NFSC新闻》](https://www.gettr.com/streaming/p14dqij67b5)
+[2022.04.09早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14dqis33be)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

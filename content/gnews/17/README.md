@@ -2,34 +2,29 @@
 ---
 
 
-## 核谈判陷入僵局，伊朗对24名美国人实施制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2318733/)
+## 俄导弹袭击乌克兰火车站致50平民丧生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：自由信仰
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0155.jpg)
+据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
 
+另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
 
-图片来源：路透社
+参考链接：
+1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
+2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
 
-迪拜，4 月 9 日（路透社）——伊朗周六表示，它已对另外 24 名美国人实施制裁，其中包括前陆军参谋长乔治凯西和前总统唐纳德特朗普的律师鲁迪朱利安尼，因为恢复 2015 年核协议的谈判陷入僵局。 .
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-几乎所有被点名的人都是在特朗普政府期间任职的官员，特朗普政府对伊朗官员、政客和公司实施制裁，并让美国退出伊朗与世界大国的核协议。
-
-在当地媒体发表的一份声明中，伊朗外交部指责受制裁的美国人，其中还包括几位商界人士和政界人士。
-
-伊朗和美国在维也纳就挽救 2015 年的协议进行了 11 个月的间接谈判，双方都表示德黑兰和华盛顿需要做出政治决定来解决剩余的问题。
-
-美国前指挥官奥斯汀·斯科特·米勒将军驻阿富汗部队，前美国商务部长威尔伯·罗斯和几位前大使是伊朗新制裁的目标官员之一。
-
-在 1 月份宣布的类似举措中，伊朗对 51 名美国人实施了制裁，其中许多来自美国军方，针对的是 2020 年在伊拉克的一次无人机袭击中杀死卡西姆·苏莱曼尼将军的事件。
-
-🔗 [https://www.reuters.com/world/middle-east/iran-imposes-sanctions-15-us-officials-nuclear-talks-stall-2022-04-09/](https://www.reuters.com/world/middle-east/iran-imposes-sanctions-15-us-officials-nuclear-talks-stall-2022-04-09/)
-
-编辑发表： Shuizhuyu
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：谐趣园
 
  
 
