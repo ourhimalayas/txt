@@ -2,31 +2,20 @@
 ---
 
 
-## 秘翻新闻｜刘特佐-马基金案 高盛前雇员背锅
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2315700/)
+## 俄罗斯官员被国际雪橇联合会除名
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316488/)
 
-**By:[秘翻新闻](https://gettr.com/post/p14cn2q1507)**
+撰稿：东京樱花团/待命（文晓）
 
-**[2022-04-09](https://gettr.com/post/p14cn2q1507)**
+4月9日时事通信社消息：国际雪橇联合会在8日的在线大会上决定除名入侵乌克兰的俄罗斯的当选官员。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-5.png)（图片源自本文链接）
+但是，驱逐俄罗斯联邦的决定因没有得到三分之二的多数票而被否决。
 
-**新闻内容:**
+信息来源： [ロシア人役員を除名　国際リュージュ連盟（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/61e543d5869c8818b1c35b742f97f26d07b19427)
 
-**1. 白宫：美政府正密切关注上海封城措施**
-
-**2.百家中共国公司被查 涉嫌挖走台湾芯片人才**
-
-**3.长春封城菜价高涨 蔬果被特权阶层垄断**
-
-**4.俄导弹袭击乌克兰火车站 至少50平民丧生**
-
-**5.因制裁俄罗斯3月通胀率飙升至16.7%**
-
-**Gettr链接：[https://gettr.com/post/p14cn2q1507](https://gettr.com/post/p14cn2q1507)**
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

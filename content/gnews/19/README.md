@@ -2,24 +2,26 @@
 ---
 
 
-## 2022年4月9日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2318240/)
+## 中国用人民币购买的俄国能源将运抵中国
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318289/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+**撰稿：日本东京方舟农场 胖小哥**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0978.jpg)
+美国财经媒体彭博社周四（4月7日）报道，有消息称，几家中国公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中国。
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-170.jpg)俄罗斯Kedrovsky露天煤矿
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据悉，此消息来源于中国咨询公司汾渭能源信息服务公司，中国买家购买这批货物使用的是人民币。交易商们表示，这将是美国和欧洲把俄罗斯银行剔除出国际金融支付系统以来，俄罗斯发出的第一批用人民币支付的货物。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+由于西方的制裁，俄罗斯的国际支付功能受到严重限制，大大增加了俄罗斯债务违约的风险。周三，俄罗斯使用卢布向一家美国银行支付了一笔金额为6.5亿美元的债务。但据美联社报道，这笔付款并没有被对方接受，因为新的制裁措施禁止俄罗斯使用美国银行支付债务。
+
+去年，俄罗斯成为中国第二大煤炭供应国，填补了澳大利亚留下的缺口，中国为了报复澳大利亚在美中对抗中站队美国，中断了进口澳大利亚的煤炭等许多重要商品。
+
+参考链接：
+[https://reurl.cc/oel3zv](https://reurl.cc/oel3zv)
+
+总编：青城道姑
+校对发布：爱放飞
 
  
 

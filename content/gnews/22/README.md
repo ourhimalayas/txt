@@ -2,32 +2,33 @@
 ---
 
 
-## 日本追加五项对俄制裁措施 驱逐8名外交官
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318205/)
+## 中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318265/)
 
-**撰稿：日本东京方舟农场 胖小哥  Miyali7768(文玉)**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本和俄罗斯政府已在协调启动有关在俄罗斯河流中出生的鲑鱼和鳟鱼的渔业谈判。据悉，或将在下周举行关于在日本专属经济区（EEZ）内渔获量的谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-27.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://s3-us-west-2.amazonaws.com/staticassets.oceanoutcomes.org/hero+photos/hokkaidosuccesshero.jpg&amp;imgrefurl=https://www.oceanoutcomes.org/what-we-do/success-stories/hokkaido-chum/&amp;tbnid=l3LfIEAk4yXqUM&amp;vet=12ahUKEwj-5Z_omIf3AhXkJqYKHYZJCAwQMygEegUIARCzAQ..i&amp;docid=9TF8Lg4W0WRXbM&amp;w=1100&amp;h=590&amp;q=Japanese%20salmon%20fishing&amp;ved=2ahUKEwj-5Z_omIf3AhXkJqYKHYZJCAwQMygEegUIARCzAQ)
+据日本共同社4月8日消息，日本和俄罗斯政府已在协调启动有关在俄罗斯河流中出生的鲑鱼和鳟鱼的渔业谈判。据悉，或将在下周举行关于在日本专属经济区（EEZ）内渔获量的谈判。
 
-据万维读者网4月9日报道，日本首相岸田文雄8日在官邸举行的新闻发布会上，宣布了对俄罗斯的5项追加制裁，包括禁止进口俄罗斯煤炭和加强金融制裁。他强调说：“我们将加大对俄罗斯的外交和经济压力。”他还在答记者问时透露，日本决定驱除俄罗斯驻日本大使馆及贸易代表处的8名外交官。
+按照惯例，日俄每年春季就鲑鱼和鳟鱼的渔获量等进行谈判。日本专属经济区（EEZ）内的最佳渔期被认为是4～5月前后，正在临近期限。日本希望最快4月11日开始在线谈判，敲定捕鱼作业的条件，为北海道等国内渔业人员出海捕鱼提供支援。谈判由水产厅干部等负责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-168.jpg)日本首相岸田文雄 © (图片来自于网络)
+即便是在日本EEZ内捕鱼，由于鲑鱼和鳟鱼出生在俄方河流中，因此需要向俄方支付渔业合作费。去年谈判中，双方就日本EEZ内的鲑鱼和鳟鱼渔获量合计为2050吨达成了一致。渔业合作费则同意在2.6亿日元（约合人民币1331万元）～3亿日元多的范围内，根据渔获的实际情况来决定等。
 
-8日晚，外务省事务次官森健良在日本外务省召见俄罗斯驻日本大使加卢津，向其通报了驱逐令。森健良称俄罗斯军方的行为“严重违反国际法，是战争犯罪”。他随后宣布驱逐8人，称“俄罗斯否认杀害平民并声称这种消息是捏造的，这是完全不能接受的。”
+另一方面，俄罗斯EEZ内全面捕鱼是在6月前后。日本渔船一贯试行拖网捕鱼并支付入渔费。目前，日本EEZ内的谈判或成为焦点。
 
-而岸田首相在谈到煤炭进口禁令时表示：“我们将尽快确保替代品，并通过逐步减少进口来减少对俄罗斯的依赖。”日本对俄罗斯除煤炭禁运外，下周起还将禁止进口俄罗斯木材和伏特加，在金融领域，冻结俄罗斯最大的银行俄罗斯联邦储蓄银行（Sberbank）和阿尔法银行（Alfa Bank) 的资产，而且扩大了资产冻结对象。
+由于俄乌战争，谈判能否如期举行变得不确定。如果无法谈判或者谈判失败，那么对日本渔业人员的影响将无法避免。
 
-同时，据今天日本多家媒体报导，多名政府相关人士透露，为了与G7国家步伐一致，再加上俄罗斯已扬言将采取对抗措施，日本决定先发制人，态度也从原本的消极转为积极，计划驱逐8名俄罗斯外交官。
+信息来源：[独家：日俄拟启动有关鲑鱼和鳟鱼的渔业谈判](https://china.kyodonews.net/news/2022/04/3c4937f7eae6.html)
 
-据悉，最初日本政府内部认为对驱逐俄罗斯外交官应持谨慎态度，因为预计俄罗斯方面将采取同样的方式报复，这可能会阻碍日本驻俄大使馆对在俄罗斯的约1200名日本侨民的保护和引来俄罗斯对日本的军事威胁等，但是自入侵乌克兰开始，俄罗斯驻G7国家和其他欧美国家以及联合国的外交官陆续被驱除，据美国外交政策杂志《外交政策》（电子版）报道，这一数字至少有394人。
-
-日本外交历史上从未像今天这样大规模驱逐过外交人员，2018年俄罗斯情报人员父女在英国遭到来自俄罗斯的毒害袭击事件，日本是G7国家中唯一未对俄罗斯外交官采取驱逐制裁的国家。
-
-参考链接：
-1.[https://reurl.cc/LpYgL4](https://reurl.cc/LpYgL4)
-2.[https://news.ltn.com.tw/news/world/breakingnews/3886651](https://news.ltn.com.tw/news/world/breakingnews/3886651)
-
-编辑：海星
-总编：青城道姑
-校对发布：爱放飞
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

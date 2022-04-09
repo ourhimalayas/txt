@@ -2,28 +2,37 @@
 ---
 
 
-## 上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318257/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2318359/)
 
-**撰稿：日本东京方舟农场  胖小哥**
+作者：香草山翻译部
 
-据万维读者网4月9日报道，中国上海近期因新冠肺炎疫情变得严峻，多处实施封城封区管理，乱象也纷纷出来。有当地人指控，现在竟然出现“党员突击队”胡乱暴打无辜民众。另外上海缺粮缺物资的状况，依旧没有改善，今天一大早许多上海人涌入微博网站，纷纷谴责上海政府管理无能。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-169.jpg)上海封城大乱，孕妇遭“党员突击队”暴打影片曝光！（图片来源于微博）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-8.png)
 
-一名微博网友指控，上海有一名孕妇住在被封城的区域，但该名孕妇有拿到许可证明，得以外出就医。但没想到这名孕妇和相关人员一走到封锁线时，随即遭到一群“保安”上前围殴，甚至连劝架的工作人员都不放过。孕妇等人试图录影存证，一度还遭这群“保安”挡下镜头，随后孕妇指控，这群保安的领导，手臂上配戴“党员突击队”的臂章。
+文章仅代表作者本人观点，与Gnews无关
 
-这群“党员突击队”在现场暴打无辜民众后，其他住户也看不下去，纷纷上前大骂这群“党员突击队”，更有人对著他们喊：“不要塌了党的台了！(不要给党丢脸)。”
+视频参看：
+[2022.04.09早 《NFSC新闻》](https://www.gettr.com/streaming/p14dqij67b5)
+[2022.04.09早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14dqis33be)
 
-不少中国网友看到这段影片后，也愤愤不平地直呼：“这就是红卫兵啊！”、“党员可以这样随便打人的吗？”、“故意制造矛盾。”、“党的形象全部被你们丢尽。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-还有上海网友说，他真的有拿到政府发的蔬菜包，但是“等了好几天才一包，这是要叫人怎样过日子”。另外还有网友抱怨，就算有门路抢到网购蔬菜，结果在半路竟被“公家徵收”，让人欲哭无泪。另外也有其他地区网友说：“这是得多绝望啊，才逼成这样。”、“上海的管理层都在干嘛？”、“病毒死不了人，结果饿死人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
 
-参考链接：
-[https://news.creaders.net/china/2022/04/09/2470961.html](https://news.creaders.net/china/2022/04/09/2470961.html)
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-总编：青城道姑
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
+
+
 
  
 

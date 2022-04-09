@@ -2,39 +2,36 @@
 ---
 
 
-## 诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317474/)
+## 美国驻华大使馆发布授权撤离和旅行禁令
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317636/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-俄罗斯诺贝尔和平奖得主、《新报》总编德米特里·穆拉托夫说，他在火车上被含有溶剂丙酮的红色油漆袭击。这起事件发生在周四的莫斯科通往萨马拉的火车上。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6cdcdbd9520c4460a00fcf69f23435e4.jpg)
+当地时间4月9日，美驻华大使馆发布一则重要警示，旨在紧急撤离身在中共国的美国人以及警告美国人不要前往中共国旅行。
 
-袭击后果的图片发表在《新报》的电报频道上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-2.jpg)（穆拉托夫在火车上遭到袭击后，在社交媒体上发布了自己的照片。照片：提供/Novaya Gazeta）![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.jpg)(照片：提供/Novaya Gazeta)
-《新公报》自由派报纸的编辑说，该报在莫斯科就其对俄乌战争的报道发出警告后，已停止运营。
+该警示表明，鉴于在中共国内中共病毒的激增以及中共政府抗击疫情的诸多不人道限制，美国国务院于4月8日批准了美国政府雇员及其家属从美国驻上海领事馆自愿撤离，驻上海大使伯恩斯已经向中共国政府通知了这一撤离意愿。据悉该警示还包括，美国公民应该重新考虑前往中共国的旅行，因中共国的防疫限制，其中包括父母与孩童分离的风险，美国公民请谨慎前往中共国香港、吉林和上海市。上海领事馆目前对公众关闭，但领事馆工作仍然24小时在值，为美国公民提供紧急服务。
 
-最近，一些公开反对俄罗斯入侵乌克兰的俄罗斯活动家和记者的家园遭到了不知名的亲克里姆林宫派别人物的破坏。
+目前该讯息已经发放给美国公民，并在网路开通了美国公民撤离计划登记，以及更多的相关联系负责人来帮助美国公民撤离。
 
-目前，反对战争的人在俄罗斯的生活变得越来越困难。任何将俄罗斯在乌克兰的行动描述为“战争”的人都将面临巨额罚款或关押。俄政府通过了一项法律，声称对散布有关战争“虚假”信息的人判处 15 年监禁。
+reference：
 
-俄罗斯总统普京和其他政界人士将任何反对战争的行为描述成对国家的背叛。
+[https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
-[【援引连结】](https://www.rnz.co.nz/news/world/464907/nobel-peace-prize-winning-russian-anti-war-journalist-attacked-with-paint)
+撰稿、发布：骄子
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
