@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|普京病重迷信医学偏方 洗鹿茸浴希求长生不老
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318410/)
+## 【G叻睇真D】郭文贵先生：中共想尽办法应对银行挤兑
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2318529/)
 
-配音：香草山商业部——文锤
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【文所未闻】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+文贵先生在4月4日盖特直播披露，中共国内疫苗灾难已经开始显现，深圳死亡数字惊人，加之泯灭人性的疫情限制措施，上海和长春已经成为人间地狱，而中共却继续隐瞒真相，不予报导。
 
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共国内以融创、恒大、保利等十大地产公司为首的房地产业，欠贷不还现场已经非常普遍，与之相关的建筑和装饰公司压力之下几近疯狂，然而这一切却还没有到达中共国经济、房地产和银行的崩塌的极限。
 
+中共各大银行对当下金融形势高度紧张，加班召开紧急会议想办法应对即将到来的银行挤兑。内部要求凡是个人一次性提现超5万元人民币，企业超自己员工工资部分提现，均需报请上一级领导审核。同时各地公安、纪委派人进驻当地金融系统，监督所有款项的提取和使用。
 
+盖特链接：[https://www.gettr.com/post/p14dxp5ab61](https://www.gettr.com/post/p14dxp5ab61)
 
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-福克斯新闻4月7日报道，《Proekt》杂志的最新调查发现，俄罗斯总统普京近期可能病得很重——至少他非常担心自己的健康，也许还忙于延缓衰老。该报告称，在最近的四年里，一名甲状腺癌专家与俄罗斯总统普京进行了35次会面，与他共度了166天。据了解，在普京神秘地离开公众视野的较长时间里，这位医生并非是唯一一位前往过普京远离克里姆林宫的静修所的人。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-《Proekt》杂志编辑罗曼·巴达宁告诉福克斯新闻称，一直以来，俄罗斯的宣传创造了一个100%健康、体育成瘾的总统形象。突然间，我们却发现真实的普京已经被医生包围了，“我们总共有60名医生，他们每次都同普京一起出行，例如，当他前往黑海度假时。
-
-与此同时，《Proekt》杂志还反映出年老的普京对医学偏方的迷恋。据其称，普京曾对在阿尔泰地区的鹿角血浴很感兴趣。他本人至少已尝试过一次这样血腥的沐浴。
-
-《Proekt》杂志称，自普京第二任期以来，他就试图永远活下去，永远维持独裁统治。目前，年逾70岁的他，虽比他的任何一位前任都显得年轻，却在身体和心理上都已经出现了很多严重的问题。
-
-文字版原文：[普京病重迷信医学偏方 洗鹿茸浴希求长生不老](https://gnews.org/zh-hans/2308789/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

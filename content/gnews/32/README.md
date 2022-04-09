@@ -2,50 +2,39 @@
 ---
 
 
-## 民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2317914/)
+## 有声|俄乌战局最新信息汇总
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318023/)
 
-#### 雅典娜情报组《民生、失业收集专栏》
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+截止当地时间4月7日，在基辅和乌克兰东北部，俄军已经撤出苏梅州，基辅北部和苏梅一线已经完全解放。俄军在过去的24小时内炮击哈尔科夫达50次，但局势仍未改变。俄罗斯第20集团军和第1近卫坦克军所部继续从伊久姆向斯拉夫扬斯克进攻，但没有取得任何重大突破。俄军巩固了对5日夺取的布拉日基夫卡的控制，并开始进攻多夫根克，但没有进展。俄军正在加大力度向伊久姆一线增派兵力，已经开始使用俄方的瓦卢伊基至乌方的库普扬斯克之间的铁路。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-08-下午12.03.46-1280x714.png)
+俄军继续试图夺取波帕斯纳亚和鲁别日诺耶，均未果，只能对整个战线进行炮击。俄军试图突破新托什基夫西克附近的防御，也没有成功。乌克兰部队证实，该地区的俄军中出现有莫斯科高等军事指挥学院的学员，表明俄罗斯为弥补战斗减员几乎是竭尽所能了。
 
-整理/编辑：五伊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1032.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1033.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1034.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1035.png)
-**工作7年的单位突然裁员降薪**
+乌克兰方面，基辅的清理工作正在进行，昨天在该地区发现并销毁了1022枚爆炸物。马里乌波尔的战斗仍在继续，目前尚不清楚乌克兰守军还能坚持多久。乌克兰独立媒体报道说，国际红十字会的援助在6日前无法进入马里乌波尔。在南部战线，乌克兰部队继续从尼古拉耶夫和卡夫巴斯向赫尔松成功反击，并取得小幅进展，夺回了奥索科里夫卡、多布良卡等地。乌克兰部队还沿黑海岸边向赫尔松进行了反击，战局仍在进行。
 
-#找工作啊找工作 #工作
+据乌克兰军情局报告说，俄罗斯为了解决军队中日益严重的士气低落问题，正在加强对其部队的审查，限制对互联网的访问。更多俄乌战争的局势，请继续关注本台的跟踪报道。
 
-时代的一粒灰，落在个人头上就是一座山
 
-这句话我今年才真切体会到
 
-经济下行，准确说房地产下行
+文字版原文：[俄乌战局最新信息汇总](https://gnews.org/zh-hans/2311593/)
 
-导致房地产下游企业
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-例如我所在的地产广告公司效益骤减
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-老板迫于压力只好裁员降薪开源节流
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-昨晚还在为公司拼命，第二天一早就被告知“请离开”
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-这样的人不在少数
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-也不知道自己什么时候也会出现在辞退名单上
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-前路迷茫……
-
-只能说：选对赛道真的很重要啊！
-
-发布于 2022-04-07 00:21
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1036.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1037.png)图片来源：小红书
-参考链接：[工作7年的单位突然裁员降薪](http://xhslink.com/utLcFg)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

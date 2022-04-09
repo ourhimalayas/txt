@@ -2,52 +2,28 @@
 ---
 
 
-## 有声|老爷和韭菜
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318411/)
+## 马斯克反对“长生不老”的旧观念
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2318530/)
 
-配音：香草山商业部——文锤
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16495269111.png)Buzzfeed–马斯克与格里姆斯
+据美国商业新闻4月8日报道，埃隆·马斯克（Elon Mask) 认为，人类最终可以将大脑下载到机器人上。亚马逊的杰夫·贝佐斯（Jeff Bezos）将成为一位思维机器人（cymek）。
 
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+埃隆·马斯克曾说过看似荒诞的话；通过将人类大脑下载到机器人中，人类最终将能够永生。马斯克认为这是可能的，人们可以下载自己认为是 “独特的东西”。现在已经可以做到 “保存记忆和个性”了。
 
+马斯克说，这种技术将从今天的计算机内存形式逐渐演变而来。“我们的记忆存储在手机和电脑里，里面有图片和视频”。电脑和手机增强了沟通能力，“使我们能够做一些被认为不可思议的事情”。电脑已经放大了人脑。
 
+科幻小说描述，通过将意识下载到合成身体中来延长人类寿命。1964年的科幻小说 “沙丘” （Dune）将此类生物称为 “思维机器人（cymeks）”。今天，一些专家认为，“意识上传” 技术将可能实现。
 
+普林斯顿（Princeton）大学心理学和神经科学教授迈克尔·格拉齐亚诺（Michael S.a.Graziano）在2019年的一篇文章中写道，大脑上传需要两项技术：一项是人工大脑，另一项是对人的大脑进行扫描，可以 “精确测量其神经元之间的连接方式，以便能够在人工大脑中复制这种模式”。
 
+格拉齐亚诺指出，制造人工大脑相对简单。但要上传人脑，可能需要一台不会杀死上传对象的扫描仪，它可以扫描大约1亿倍的细节。最乐观的预测是在几十年内实现思维上传。
 
-老爷是官，韭菜被管
-检测核酸，全民皆关
-指鹿为马，老爷发话
-你想干啥，出门就杀
-军管军管，实枪荷弹
-不听管制，小命要完
-没吃没喝，倒霉是你
-上吊跳楼，自由选择
-啥
-还有自由
-老爷发话, 字正腔圆
-对对对
-我们民主，自由国家
-霹雳扒喳，人落楼下
-老爷发话，人雨是花
-可怜韭菜，哭天喊地
-失去我家，失去我爸
-失去我妈，失去我娃
-老爷发话，塞他嘴巴
-高高铸墙，圈禁你丫
+马斯克目前的一家初创企业Neuralink正致力于开发“脑机接口”。这种接口有朝一日可以让人们 “将记忆存储为备份并恢复记忆”。短期内，Neuralink 只是解决脑损伤、脊柱损伤等问题。多年来，Neuralink的产品只会对失去手臂或腿部功能或只是遭受某种创伤性脑损伤的人有所帮助。
 
-文字版原文：[老爷和韭菜](https://gnews.org/zh-hans/2309693/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+马斯克不赞同 “长生不老” 的想法，因为人的寿命太长的话会导致社会窒息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*责编：白夜*
 
  
 

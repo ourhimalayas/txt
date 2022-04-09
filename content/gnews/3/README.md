@@ -2,25 +2,28 @@
 ---
 
 
-## 北约称中共已构成严峻挑战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318763/)
+## 俄导弹袭击乌克兰火车站致50平民丧生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
 
-作者：在远方
+作者：自由信仰
 
-当地时间4月7日，北大西洋公约组织秘书长斯托尔滕贝格表示，由于中共一直不肯对俄罗斯侵略乌克兰的行为发出谴责，同时其还与俄罗斯一起反对各自国内自由选择道路的权力，这一系列举动已经对北约构成了严峻的挑战。
+当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
 
-据悉，早在中共北京冬奥会期间，习近平与普京就多次强调双方“友好无止境、无禁区”，且二者联手公开反对北约东扩。而在俄乌战争爆发后，中共又被披露早已悉知俄罗斯入侵乌克兰的计划。此外，中共政府不但拒绝谴责普京当局，更不对其做出任何制裁，甚者还在联合国投票中数次对俄罗斯表现出支持态度。
+据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
 
-对此，在当天举行的北约外长会议上，斯托尔滕贝格特别邀请了日本、韩国、澳大利亚和新西兰等国家的外长参与其中。斯托尔滕贝格指出，鉴于中共已经加入了莫斯科的行列并反复阻碍各国作出不利其自身表态的选择权，这将对全世界造成严重的影响。为此，北约和亚太地区的伙伴必须团结起来，共同保卫文明世界一直坚守的价值观。
+另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
 
-参考链接：[中國默許俄羅斯侵烏 北約：已對北大西洋聯盟構成「嚴峻挑戰」](https://www.rti.org.tw/news/view/id/2129443)
+参考链接：
+1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
+2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-总编/审核：Irene木木
+总编：Irene木木
 编辑：宁文静
+审核：Irene木木
 校正/发稿：谐趣园
 
  
