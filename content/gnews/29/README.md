@@ -2,24 +2,18 @@
 ---
 
 
-## 诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317474/)
+## 意大利的Intesa加强对俄罗斯活动的检查并停止贷款
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317475/)
 
 【玫瑰看新闻】每日快讯
 ![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-俄罗斯诺贝尔和平奖得主、《新报》总编德米特里·穆拉托夫说，他在火车上被含有溶剂丙酮的红色油漆袭击。这起事件发生在周四的莫斯科通往萨马拉的火车上。
+【路透社4 月 8 日报导】自乌克兰战争开始以来，联合圣保罗银行(ISP.MI)已停止向俄罗斯和白俄罗斯方面提供任何融资，并且，把当地业务置于危机部门的特别监督之下。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image010-1.jpg)
+在继续进行战略审查的同时，Intesa 也停止了对俄罗斯和白俄罗斯金融工具的投资。
 
-袭击后果的图片发表在《新报》的电报频道上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-2.jpg)（穆拉托夫在火车上遭到袭击后，在社交媒体上发布了自己的照片。照片：提供/Novaya Gazeta）![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.jpg)(照片：提供/Novaya Gazeta)
-《新公报》自由派报纸的编辑说，该报在莫斯科就其对俄乌战争的报道发出警告后，已停止运营。
+发言人在一封电子邮件声明中指出：“与俄罗斯和白俄罗斯交易对手的所有商业活动——包括该集团俄罗斯子公司俄罗斯联合银行的活动——都受到了加强的监控和分析。”
 
-最近，一些公开反对俄罗斯入侵乌克兰的俄罗斯活动家和记者的家园遭到了不知名的亲克里姆林宫派别人物的破坏。
-
-目前，反对战争的人在俄罗斯的生活变得越来越困难。任何将俄罗斯在乌克兰的行动描述为“战争”的人都将面临巨额罚款或关押。俄政府通过了一项法律，声称对散布有关战争“虚假”信息的人判处 15 年监禁。
-
-俄罗斯总统普京和其他政界人士将任何反对战争的行为描述成对国家的背叛。
-
-[【援引连结】](https://www.rnz.co.nz/news/world/464907/nobel-peace-prize-winning-russian-anti-war-journalist-attacked-with-paint)
+[【援引连结】](https://www.reuters.com/business/finance/italys-intesa-heightens-checks-russia-activities-halts-lending-2022-04-08/)
 
 **推出问题，敲出真相，爆料在路上！
 请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
@@ -35,6 +29,8 @@ ROSE NEWS推特账号：
 **校对：小脑斧
 上传：漂流瓶**
 ![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

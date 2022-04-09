@@ -2,35 +2,30 @@
 ---
 
 
-## 大直播后记：几位嘉宾对小Sara前线的表现的感想
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2317812/)
+## 入上海的高速口几乎全封
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317819/)
 
-整理：GHope、自新
-编辑：Mohegayer K. Simon
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GKTQJKGYFZCCTMBQ2PIVNIJGYE.jpg)
+近日中共在上海发动了大防疫运动，防疫手段是处处设置关卡，不允许随意出入。老百姓被困在家中有的已经长达一个月了。所谓的防疫运动小组都由居委会组成，不仅不给老百姓发菜，并且随意殴打不得已需要出入的百姓。在网路传出的小视频中我们看到很多老百姓没菜吃，快被饿死了。在网路一片我们没菜吃，谁来救救我们的呼喊声中，中共反而变本加厉，4月8日前后中共以疫情为由将上海本地，以及出入上海的多条高速入口和出口实施封堵。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-692.png)图片来源：墨尔本雅典娜农场设计组
+随意打开一个地图app，可以看到高速路口密密麻麻的封禁符号。平常大卡车每天都会运送物资，可以保证供应链正常运行。中共以疫情为名堵路，高速路上行驶的大卡车被困在路上，司机下到休息区就要强制隔离，连核酸都不用测。很多想要为上海运送物资的卡车会被堵在路上，运送到的物资居委会也不会发放，等着烂掉。根据京东的供应链反馈，上海大的物资集散地被封，又由于各地不同的防疫规定，办车证，卡司机，来来回回和当地政府进行消耗战，京东已经动用了合作伙伴的库存，但也还是一车一车的物资烂掉也到不了老百姓手里。
 
 
-宁南：我们先请大牛和巴黎来谈一下，跟前线战友们连完线之后一点感受。
 
-大牛：好的，今天直播一开始就听到一个最好的消息，之前感染的战友明天全部都会出关了。希望所有在前线的战友们一定要照顾好自己的身体，我们新中国联邦刚到前线救援的时候，这个帐篷的地方是一片空地，现在我们整个帐篷是前线最有温度的，是最受欢迎的。大家到营地，看到法治基金的log，大家都会问，你们是什么组织，你们是 代表什么。现在更多的人，他们直接说出来你们是Miles Guo 的爆料革命，或者是直接说出法制基金或者新中国联邦，甚至说你们跟中国共产党是不一样的，你们是消灭共产党的新中国联邦人。而这个是我们一点一滴的行动累积出来的。这个结果是非常非常重要的，让大家知道中共不等于中国人，可以防止以后的排华浪潮。
+撰稿、发布：骄子
 
-巴黎： 在前线的战友们辛苦了，战友们日夜的守候，给乌克兰难民帮助，让别人认识到新中国联邦人的伟大与无私的付出。
+* * *
 
-宁南：我们请风雨之中来谈一下。
+欢迎订阅我们的GNews账号：
 
-风雨之中：刚才小Sara在采访当中，说他们都把我当成了一个有名的人,其实我只是一个普通人家的女孩子。中国有句老话，图名当途万世名，计利应计天下利。从文贵先生到每一个没有见过、没有露过面的秘密的战友，包括每一天辛苦的做PPT，做所有的文案资料的战友，我觉得都是这样的人。我们是在参与历史，就像我们今天同框同心。留下了我们每一个人的音容笑貌，都会记在历史当中，也都会记在我们每一个人的心里。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-资料来源：[2022年4月8日 文贵大直播](https://www.gettr.com/streaming/p147s0qfc4d)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
