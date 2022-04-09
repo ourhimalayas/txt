@@ -15,58 +15,58 @@
 
 ---
 
-### [总理办公室表示，所罗门群岛不允许中共国军事基地](/content/gnews/1/README.md)
+### [欧盟已冻结295亿欧元俄资产， 涵盖游艇、房产及艺术品](/content/gnews/1/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [俄罗斯将基准利率下调至17%，卢布较最低点已经升值近一倍](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [美国的通胀已经升至40年来最高](/content/gnews/3/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [英国首相约翰逊突访基辅会晤泽连斯基，表明支持乌克兰](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [总理办公室表示，所罗门群岛不允许中共国军事基地](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马斯克反对“长生不老”的旧观念](/content/gnews/2/README.md)
+### [马斯克反对“长生不老”的旧观念](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G叻睇真D】郭文贵先生：中共想尽办法应对银行挤兑](/content/gnews/3/README.md)
+### [【G叻睇真D】郭文贵先生：中共想尽办法应对银行挤兑](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [美国驻华领事馆发布旅行警告和撤离声明](/content/gnews/4/README.md)
+### [美国驻华领事馆发布旅行警告和撤离声明](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G时新闻】乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/5/README.md)
- ` G-时新闻`
-
-### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/6/README.md)
+### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟就俄罗斯对乌克兰的军事侵略实施第五轮制裁](/content/gnews/7/README.md)
- ` 温哥华扬帆农场`
-
-### [联合国人道主义官员对布查事件表态](/content/gnews/8/README.md)
+### [联合国人道主义官员对布查事件表态](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [乌克兰在战争中得到来自美国的情报支持](/content/gnews/9/README.md)
+### [乌克兰在战争中得到来自美国的情报支持](/content/gnews/11/README.md)
  ` NFSC News`
 
-### [【G时新闻】除非美国采取强硬的实际行动，否则中共仍会与俄罗斯狼狈为奸！](/content/gnews/10/README.md)
+### [【G时新闻】除非美国采取强硬的实际行动，否则中共仍会与俄罗斯狼狈为奸！](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [【商见你我他】第49期新闻简讯（三）](/content/gnews/11/README.md)
+### [【商见你我他】第49期新闻简讯（三）](/content/gnews/13/README.md)
  ` MayflowerBiz`
 
-### [【商见你我他】第49期新闻简讯（二）](/content/gnews/12/README.md)
- ` MayflowerBiz`
-
-### [制裁本应压垮卢布，为什么它刚刚创下了两个月的新高？](/content/gnews/13/README.md)
+### [制裁本应压垮卢布，为什么它刚刚创下了两个月的新高？](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|老爷和韭菜](/content/gnews/14/README.md)
+### [美国银行警告：经济衰退要来](/content/gnews/15/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [有声|老爷和韭菜](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|普京病重迷信医学偏方 洗鹿茸浴希求长生不老](/content/gnews/15/README.md)
+### [有声|普京病重迷信医学偏方 洗鹿茸浴希求长生不老](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|美国封锁俄罗斯最大金融机构，禁止对俄新投资](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|普习两魔头结盟及其给世界带来的灾难（一）](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [有声|俄乌战局最近消息汇总](/content/gnews/18/README.md)
+### [有声|美国封锁俄罗斯最大金融机构，禁止对俄新投资](/content/gnews/18/README.md)
  ` MOSREC`
 
 ### [大直播后记：日本电视台采访前线战友](/content/gnews/19/README.md)
