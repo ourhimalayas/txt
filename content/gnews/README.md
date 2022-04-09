@@ -15,95 +15,95 @@
 
 ---
 
-### [【商见你我他】第49期新闻简讯（二）](/content/gnews/1/README.md)
+### [【商见你我他】第49期新闻简讯（三）](/content/gnews/1/README.md)
  ` MayflowerBiz`
 
-### [【商见你我他】第49期新闻简讯（一）](/content/gnews/2/README.md)
+### [【商见你我他】第49期新闻简讯（二）](/content/gnews/2/README.md)
  ` MayflowerBiz`
 
-### [联合国粮农组织：3月份世界粮食价格创历史新高](/content/gnews/3/README.md)
- ` 加拿大温哥华英里农场`
+### [【商见你我他】第49期新闻简讯（一）](/content/gnews/3/README.md)
+ ` MayflowerBiz`
 
-### [俄罗斯3月份通胀率达到1999年1月以来的最高点](/content/gnews/4/README.md)
- ` 加拿大温哥华英里农场`
-
-### [美国农业部降低了巴西、乌克兰和俄罗斯的大豆出口预期](/content/gnews/5/README.md)
- ` 加拿大温哥华英里农场`
-
-### [中国用人民币购买的俄国能源将运抵中国](/content/gnews/6/README.md)
- ` 日本东京方舟农场`
-
-### [樱花时政┃美国“授权撤离”驻上海总领馆](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [救救上海](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [北约必须做好与俄罗斯开战的准备](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
-
-### [2022年4月9日，全球中共病毒疫情情况汇总](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花时政┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [世界不能对普京的最新暴行视而不见](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日本追加五项对俄制裁措施 驱逐8名外交官](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [欧盟对俄实施第五套制裁措施包括217名个人和18个实体](/content/gnews/16/README.md)
- ` 波士顿五月花农场金融部`
-
-### [美国破坏了俄罗斯控制的“沙虫”网络攻击](/content/gnews/17/README.md)
- ` mayflowertranslate`
-
-### [有声|俄乌战局最新信息汇总](/content/gnews/18/README.md)
+### [有声|老爷和韭菜](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/19/README.md)
- ` 秘密翻译组金融团队`
+### [有声|普京病重迷信医学偏方 洗鹿茸浴希求长生不老](/content/gnews/5/README.md)
+ ` MOSREC`
 
-### [欧盟认为俄罗斯应对克拉马托尔斯克的袭击负责](/content/gnews/20/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+### [有声|美国封锁俄罗斯最大金融机构，禁止对俄新投资](/content/gnews/6/README.md)
+ ` MOSREC`
 
-### [视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/21/README.md)
- ` MOSVIDEO`
+### [有声|普习两魔头结盟及其给世界带来的灾难（一）](/content/gnews/7/README.md)
+ ` MOSREC`
 
-### [视频|天空网络竞争 亚马逊签署Kuiper计划](/content/gnews/22/README.md)
- ` MOSVIDEO`
+### [有声|俄乌战局最近消息汇总](/content/gnews/8/README.md)
+ ` MOSREC`
 
-### [视频|香港葬礼服务中心不堪重负](/content/gnews/23/README.md)
- ` MOSVIDEO`
+### [联合国粮农组织：3月份世界粮食价格创历史新高](/content/gnews/9/README.md)
+ ` 加拿大温哥华英里农场`
 
-### [视频|中共公布上海感染病例持续增加 赶建大型方舱医院](/content/gnews/24/README.md)
- ` MOSVIDEO`
+### [俄罗斯3月份通胀率达到1999年1月以来的最高点](/content/gnews/10/README.md)
+ ` 加拿大温哥华英里农场`
 
-### [视频|佩洛西访台因病毒受阻 中共再发威胁 并派军机侵扰台日](/content/gnews/25/README.md)
- ` MOSVIDEO`
+### [美国农业部降低了巴西、乌克兰和俄罗斯的大豆出口预期](/content/gnews/11/README.md)
+ ` 加拿大温哥华英里农场`
 
-### [视频|中俄联手主导中共国的网络舆论 挑战西方](/content/gnews/26/README.md)
- ` MOSVIDEO`
-
-### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/27/README.md)
+### [大直播后记：日本电视台采访前线战友](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [清零究竟清的啥，是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/28/README.md)
+### [中国用人民币购买的俄国能源将运抵中国](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [樱花时政┃美国“授权撤离”驻上海总领馆](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [入上海的高速口几乎全封](/content/gnews/29/README.md)
- ` 银河歌舞厅`
+### [救救上海](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [大直播后记：几位嘉宾对小Sara前线的表现的感想](/content/gnews/30/README.md)
- ` 雅典娜GNotes`
+### [北约必须做好与俄罗斯开战的准备](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [2022年4月9日，全球中共病毒疫情情况汇总](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花时政┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世界不能对普京的最新暴行视而不见](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本追加五项对俄制裁措施 驱逐8名外交官](/content/gnews/22/README.md)
+ ` 日本东京方舟农场`
+
+### [欧盟对俄实施第五套制裁措施包括217名个人和18个实体](/content/gnews/23/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美国破坏了俄罗斯控制的“沙虫”网络攻击](/content/gnews/24/README.md)
+ ` mayflowertranslate`
+
+### [有声|俄乌战局最新信息汇总](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/26/README.md)
+ ` 秘密翻译组金融团队`
+
+### [视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/27/README.md)
+ ` MOSVIDEO`
+
+### [民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [清零究竟清的啥，是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [入上海的高速口几乎全封](/content/gnews/30/README.md)
+ ` 银河歌舞厅`
 
 ### [20220408郭文贵大直播 ：俄乌战争局势分析(PPT)](/content/gnews/31/README.md)
  ` Tokyo Sakura Video Group`

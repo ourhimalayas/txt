@@ -2,24 +2,39 @@
 ---
 
 
-## 美国农业部降低了巴西、乌克兰和俄罗斯的大豆出口预期
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2318369/)
+## 有声|普京病重迷信医学偏方 洗鹿茸浴希求长生不老
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318410/)
 
-编辑：文宝
+配音：香草山商业部——文锤
 
-全球的大豆市场格局也在发生变化。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-美国农业部在报告中提高了美豆的出口预期，同时降低了巴西、乌克兰和俄罗斯的大豆出口预期。
 
-美国农业部将南美洲的大豆产量较去年11月的初步估计下调了3300万吨，这标志着该地区在经历了拉尼娜气候导致的强烈干旱之后，大豆产量出现了创纪录的损失。
 
-在南美产量和出口量减少的情况下，将推动市场夏季和初秋对美国大豆需求增加。
 
-美国出口预估增加，可能会使美国末季大豆库存减少8.8%，这将成为2012年4月份以来的最大降幅。
 
-全球方面，受巴西和巴拉圭大豆产量调减影响，2021/2022年全球大豆产量下调310万吨至3.51亿吨；受美国和阿根廷库存减少影响，全球期末大豆库存预期下调至8958万吨，环比上月小幅下调38万吨。
+福克斯新闻4月7日报道，《Proekt》杂志的最新调查发现，俄罗斯总统普京近期可能病得很重——至少他非常担心自己的健康，也许还忙于延缓衰老。该报告称，在最近的四年里，一名甲状腺癌专家与俄罗斯总统普京进行了35次会面，与他共度了166天。据了解，在普京神秘地离开公众视野的较长时间里，这位医生并非是唯一一位前往过普京远离克里姆林宫的静修所的人。
 
-原文链接：[https://finance.sina.com.cn/stock/usstock/c/2022-04-09/doc-imcwipii3275827.shtml?cre=tianyi&mod=pcpager\_fin&loc=2&r=0&rfunc=99&tj=cxvertical\_pc\_pager\_spt&tr=174](https://finance.sina.com.cn/stock/usstock/c/2022-04-09/doc-imcwipii3275827.shtml?cre=tianyi&amp;mod=pcpager_fin&amp;loc=2&amp;r=0&amp;rfunc=99&amp;tj=cxvertical_pc_pager_spt&amp;tr=174)
+《Proekt》杂志编辑罗曼·巴达宁告诉福克斯新闻称，一直以来，俄罗斯的宣传创造了一个100%健康、体育成瘾的总统形象。突然间，我们却发现真实的普京已经被医生包围了，“我们总共有60名医生，他们每次都同普京一起出行，例如，当他前往黑海度假时。
+
+与此同时，《Proekt》杂志还反映出年老的普京对医学偏方的迷恋。据其称，普京曾对在阿尔泰地区的鹿角血浴很感兴趣。他本人至少已尝试过一次这样血腥的沐浴。
+
+《Proekt》杂志称，自普京第二任期以来，他就试图永远活下去，永远维持独裁统治。目前，年逾70岁的他，虽比他的任何一位前任都显得年轻，却在身体和心理上都已经出现了很多严重的问题。
+
+文字版原文：[普京病重迷信医学偏方 洗鹿茸浴希求长生不老](https://gnews.org/zh-hans/2308789/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
  
 

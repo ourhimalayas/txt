@@ -2,26 +2,37 @@
 ---
 
 
-## 中国用人民币购买的俄国能源将运抵中国
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318289/)
+## 有声|美国封锁俄罗斯最大金融机构，禁止对俄新投资
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318409/)
 
-**撰稿：日本东京方舟农场 胖小哥**
+配音：香草山商业部——文锤
 
-美国财经媒体彭博社周四（4月7日）报道，有消息称，几家中国公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中国。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-170.jpg)俄罗斯Kedrovsky露天煤矿
 
-据悉，此消息来源于中国咨询公司汾渭能源信息服务公司，中国买家购买这批货物使用的是人民币。交易商们表示，这将是美国和欧洲把俄罗斯银行剔除出国际金融支付系统以来，俄罗斯发出的第一批用人民币支付的货物。
 
-由于西方的制裁，俄罗斯的国际支付功能受到严重限制，大大增加了俄罗斯债务违约的风险。周三，俄罗斯使用卢布向一家美国银行支付了一笔金额为6.5亿美元的债务。但据美联社报道，这笔付款并没有被对方接受，因为新的制裁措施禁止俄罗斯使用美国银行支付债务。
 
-去年，俄罗斯成为中国第二大煤炭供应国，填补了澳大利亚留下的缺口，中国为了报复澳大利亚在美中对抗中站队美国，中断了进口澳大利亚的煤炭等许多重要商品。
 
-参考链接：
-[https://reurl.cc/oel3zv](https://reurl.cc/oel3zv)
+4月6日，美国白宫发表声明，鉴于俄罗斯在乌克兰的暴行，美国禁止在俄罗斯的新投资，并对俄罗斯最大的金融机构和重要的国有企业，以及俄罗斯政府官员及其家庭成员实施严厉的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-791.png)
+该声明称，美国将全面封锁俄罗斯最大的金融机构–储蓄银行，和俄罗斯最大的私人银行–阿尔法银行，冻结其在美资产；并表示对俄罗斯重要的国有企业进行全面制裁，禁止美国人与这些实体进行交易，并冻结资产。此外，在600多家跨国企业决定退出俄罗斯的基础上，拜登总统将签署一项新的行政命令，禁止美国人在俄罗斯进行任何新的投资，进一步孤立俄罗斯，削弱俄罗斯的全球竞争力。
 
-总编：青城道姑
-校对发布：爱放飞
+同时，美国还将对包括俄罗斯总统普京的成年子女、外长拉夫罗夫的家人等实施经济制裁。
+
+文字版原文：[美国封锁俄罗斯最大金融机构，禁止对俄新投资](https://gnews.org/zh-hans/2307622/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
  
 
