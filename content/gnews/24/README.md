@@ -2,31 +2,33 @@
 ---
 
 
-## 香港葬礼服务中心不堪重负
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314233/)
+## 莫德纳在欧洲召回数千剂新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314679/)
 
-作者：银河系农场 – 骄子
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-根据外媒4月6日的消息，因中共病毒和疫苗导致的死亡正在香港肆虐，使这个城市的葬礼服务负担越来越重，传统木制棺材极度短缺。
+翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-17.jpg)
-
-据悉，自今年新一波疫情爆发以来，香港已经报告了8000多例死亡，每天需要的棺材大约为300个。一位37岁的殡仪馆馆长说，从未见过这么多尸体堆积在一起，他几乎一直处于全天工作的状态。整个3月份组织了大约40场葬礼，以往每个月大约为15场。停尸房已经人满为患。有位3月1日去世的死者家人一直在等待死亡文件来认领尸体，但直到现在都没拿到。
-
-目前，全天持续运行的火葬场多达6个，每天要进行300次火化。公共停尸房已经扩建到原来的大概2倍大，可容纳4600具尸体。环保棺材制造商捐赠了棺材和防腐剂，这类物质可以帮忙保存尸体不腐烂长达五天，可以为尸满为患的殡葬服务多留出一些时间。
-
-参考链接：
-
-- [‘So many bodies piled up’: Hong Kong funeral services overwhelmed by COVID](https://www.reuters.com/world/china/so-many-bodies-piled-up-hong-kong-funeral-services-overwhelmed-by-covid-2022-04-06/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/AP22031537684170.jpg)图片来源：AP Photo/Jenny Kane
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+根据路透社4月9日报道，莫德纳公司（Moderna Inc）于周五表示，在发现一个小瓶被异物污染后，正在召回由其合同制造商Rovi生产的764,900剂新冠疫苗。
 
-总编/编辑：飞虹
-审核：木木
-校正/发稿：海阔天空1
+莫德纳称，没有发现任何安全问题，这批疫苗于1月份在挪威、波兰、葡萄牙、西班牙和瑞典销售。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
+该制药商说，仅在一个小瓶中发现了污染，出于“谨慎考虑”，正在召回整批产品。莫德纳没有透露在小瓶中发现了什么。
+
+日本当局去年暂停使用某些剂量的疫苗，后来莫德纳召回了这些疫苗，因为调查发现一些小瓶中存在不锈钢污染物。
+
+迄今为止，莫德纳的新冠疫苗已在全球接种超过9亿剂。
+
+资料来源：[Moderna recalls thousands of COVID vaccine doses in Europe](https://www.reuters.com/business/healthcare-pharmaceuticals/moderna-recalls-thousands-covid-vaccine-doses-2022-04-08/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

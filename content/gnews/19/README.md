@@ -2,37 +2,41 @@
 ---
 
 
-## 欧盟同意冻结俄罗斯联邦储蓄银行老板和普京女儿的资产
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314663/)
+## 德国警方捣毁俄罗斯大型暗网Hydra
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2314970/)
 
-翻译/编辑：小红帽
+作者：日本东京方舟农场 – Miyali7768(文玉）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/TASS36756128.jpg)图片来源：Sergei Fadeichev / TASS
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+
+据BBC新闻网4月6日报道，德国警方经过几个月的努力，捣毁了世界上最大的暗网俄罗斯的 Hydra网站。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-99.png)
+
+该网站于 2015 年推出，以俄语编写，注册了 1700 万客户和 19,000 多个卖家账户。专门提供即日“空投”服务，毒贩将毒品藏在公共场所，然后再通知客户提货地点。以黑客手段获取文件、伪造文件和非法数字服务，网络犯罪分子还使用比特币来清洗被盗或勒索所得的数字货币。
+
+德国警方表示在接到举报后经过几个月的调查，才找到在德国托管 Hydra 的公司， “防弹主机（bullet-proof hosting）”公司，他们对俄罗斯的这家暗网感到非常震惊，没收了2300 万欧元（1670 万英镑）的比特币。该网站是网络犯罪的堡垒，靠销售毒品和非法商品交易存活了超过六年。
+
+在德国宣布采取行动后不久，美国财政部对 Hydra 实施制裁，“以协调国际努力，阻止通过俄罗斯网站提供的恶意网络服务、危险药物和其他非法产品的扩散”。
+现在，用户如果登录网站，可以在该网站主页上看到“该平台因犯罪行为已被查封”的警方公告。
+
+参考链接：
+
+- [德国警方捣毁俄罗斯大型暗网Hydra](https://www.bbc.com/zhongwen/simp/world-60911545)
 
 
-根据路透社4月9日报道，根据欧盟官方期刊周五公布的一份文件，欧盟已同意冻结俄罗斯最大银行Sberbank的老板、普京的两个女儿和更多寡头在欧盟的资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-自乌克兰战争开始以来，欧盟已将大约700名与克里姆林宫有关或被指控支持入侵的人列入黑名单，莫斯科称其为“特别行动”。然而，在法律障碍和有时缺乏政治意愿的情况下，并不总能迅速冻结资产。
+编辑/校正/发稿：海阔天空1
 
-新措施将打击另外200多人，其中大部分来自卢甘斯克和顿涅茨克的分离主义地区，以及与克里姆林宫关系密切的高级商人、政治家和军事人员。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-另有18家实体也受到资产冻结的打击，其中包括VTB(VTBR.MM)等四家银行和军事公司，使战争开始以来受到制裁的公司数量增加了近一倍。
-
-根据该文件，Sberbank (SBER.MM)的负责人赫尔·格雷夫已被列入欧盟黑名单，此举具有象征意义。到目前为止，欧盟一直没有制裁该银行，该银行在能源支付中发挥着关键作用。
-
-文件称，普京的女儿叶卡捷琳娜·季霍诺娃和玛丽亚·沃龙佐娃现在也因从俄罗斯政府中受益而受到制裁。
-
-普京已经在早期一轮的限制性措施中受到制裁，尽管目前尚不清楚他和他的家人在欧盟拥有多少资产（如果有的话）。
-
-资料来源：[EU agrees to freeze assets of Sberbank boss, Putin’s daughters](https://www.reuters.com/world/europe/eu-agrees-freeze-assets-sberbank-boss-putins-daughters-2022-04-08/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
 
  
 

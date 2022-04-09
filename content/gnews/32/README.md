@@ -2,36 +2,25 @@
 ---
 
 
-## 前高盛银行家在1MDB案中被判受贿和洗钱罪成立，疑犯主谋Jho Low仍在逃
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2313662/)
+## 台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2313801/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-09-上午10.33.45.png)图片来源：互联网
-前高盛银行家Roger Ng帮助马来西亚1MDB发展基金掠夺数亿美元，周五被美国陪审团判定犯有腐败罪成立。
+**港台前线 zhong｜2022-4-9**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-13.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+中共解放军7日派遣多架军机袭扰台湾西南防空识别区，其中1架“运9”逾越东部空域，台湾空军依照惯例升空应对。值得关注的是，本次日本航空自卫队西南航空方面队的战机，也紧急起飞对应，并持续对中共军机进行监控。日本防卫省统合幕僚监部监控报告指出，“初次”记录到中共“运9”进入东经123-126度、北纬21-24度空域活动，并称是在对（日本）领空侵犯。
 
-这些指控源于历史上最大的金融丑闻之一，检察官指控高盛集团前马来西亚最高投资银行家Ng密谋违反反腐败法并洗钱。
+本次运9进入东经123-126度、北纬21-24度空域活动，为台北飞航情报区东北角与日本飞航情报区重叠之处，故飞经该区可能受到日本空防单位的识别要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-09-上午10.33.53.png)
+另，运-8系列在台湾西南区块定期巡弋，已对西南空防及东沙防务形成极大压力；运-9过去由东海穿越宫古水域进入太平洋，现改取道巴士海峡的作为，显见对台日防务作为将产生极严重影响。
 
-他们说，他帮助他的前老板蒂姆-莱斯纳(Tim Leissner)从基金中挪用资金，对收益进行洗钱，并贿赂官员为高盛公司赢得业务。
+美军参谋首长联席会议主席密利8日表示，台湾是防御性岛屿，美方要做的是协助台湾更好的自我捍卫，最好的威吓是确保中国知道，攻打台湾将是“非常、非常难以实现的目标”。
 
-该基金的成立是为了在马来西亚开展发展项目。
-
-陪审团判定Roger Ng犯有两项通过贿赂和规避高盛内部会计控制而串谋违反《反海外腐败法》（FCPA）的罪名，以及一项串谋洗钱的罪名。
-
-“今天的判决不仅是法治的胜利，也是马来西亚人民的胜利，”纽约东区美国检察官Breon Peace在一份声明中说。”被告和他的亲信们没有把1MDB看作是一个为马来西亚人民做好事的实体，而是看作是一个让自己发财的猪圈。”
-
-检察官说，高盛通过三次债券销售帮助1MDB筹集了65亿美元，但在2009年至2015年期间，有45亿美元通过贿赂和回扣被转给了政府官员、银行家及其同伙。
-
-Roger Ng是第一个，也可能是唯一一个因该计划而在美国面临审判的人。高盛在2020年支付了近30亿美元的罚款，其马来西亚部门同意认罪。
-
-所谓的马来西亚金融家，被怀疑是该计划主谋的Jho Low于2018年与Ng一起被起诉，目前Jho Low仍然在逃。
-
-原文链接：[Ex-Goldman banker convicted of bribery, money laundering conspiracy charges in 1MDB case](https://www.reuters.com/business/finance/hold-us-jury-reaches-verdict-ex-goldman-bankers-1mdb-corruption-trial-2022-04-08/)
+来源｜[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79741&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
 
 * * *
 
-*编辑&发布：长岛开心*
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

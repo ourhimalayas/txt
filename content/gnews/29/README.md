@@ -2,25 +2,31 @@
 ---
 
 
-## 台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2313801/)
+## 香港葬礼服务中心不堪重负
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314233/)
 
-**港台前线 zhong｜2022-4-9**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-13.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-中共解放军7日派遣多架军机袭扰台湾西南防空识别区，其中1架“运9”逾越东部空域，台湾空军依照惯例升空应对。值得关注的是，本次日本航空自卫队西南航空方面队的战机，也紧急起飞对应，并持续对中共军机进行监控。日本防卫省统合幕僚监部监控报告指出，“初次”记录到中共“运9”进入东经123-126度、北纬21-24度空域活动，并称是在对（日本）领空侵犯。
+作者：银河系农场 – 骄子
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+根据外媒4月6日的消息，因中共病毒和疫苗导致的死亡正在香港肆虐，使这个城市的葬礼服务负担越来越重，传统木制棺材极度短缺。
 
-本次运9进入东经123-126度、北纬21-24度空域活动，为台北飞航情报区东北角与日本飞航情报区重叠之处，故飞经该区可能受到日本空防单位的识别要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-09-上午10.33.53.png)
-另，运-8系列在台湾西南区块定期巡弋，已对西南空防及东沙防务形成极大压力；运-9过去由东海穿越宫古水域进入太平洋，现改取道巴士海峡的作为，显见对台日防务作为将产生极严重影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-17.jpg)
 
-美军参谋首长联席会议主席密利8日表示，台湾是防御性岛屿，美方要做的是协助台湾更好的自我捍卫，最好的威吓是确保中国知道，攻打台湾将是“非常、非常难以实现的目标”。
+据悉，自今年新一波疫情爆发以来，香港已经报告了8000多例死亡，每天需要的棺材大约为300个。一位37岁的殡仪馆馆长说，从未见过这么多尸体堆积在一起，他几乎一直处于全天工作的状态。整个3月份组织了大约40场葬礼，以往每个月大约为15场。停尸房已经人满为患。有位3月1日去世的死者家人一直在等待死亡文件来认领尸体，但直到现在都没拿到。
 
-来源｜[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79741&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
+目前，全天持续运行的火葬场多达6个，每天要进行300次火化。公共停尸房已经扩建到原来的大概2倍大，可容纳4600具尸体。环保棺材制造商捐赠了棺材和防腐剂，这类物质可以帮忙保存尸体不腐烂长达五天，可以为尸满为患的殡葬服务多留出一些时间。
 
-* * *
+参考链接：
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+- [‘So many bodies piled up’: Hong Kong funeral services overwhelmed by COVID](https://www.reuters.com/world/china/so-many-bodies-piled-up-hong-kong-funeral-services-overwhelmed-by-covid-2022-04-06/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+
+总编/编辑：飞虹
+审核：木木
+校正/发稿：海阔天空1
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
 
  
 

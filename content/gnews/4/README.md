@@ -2,204 +2,35 @@
 ---
 
 
-## 樱花FM┃郭文贵先生爆料邪恶轴心国时间线（上）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2314980/)
+## 中共国在对俄罗斯的态度上挫伤了其与欧盟的关系
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2315093/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-7-2.png)
-早在2017年，郭先生就向美国高层警告中共有一个邪恶轴心联盟。
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-14.jpg)图片来自网络
+美国媒体最新报道，来自分析人士的观点，中共国“对俄罗斯在乌克兰战争上的容忍（态度）已经挫伤了它与欧盟的宝贵关系”。文章谈到，在今年4月所举行两年来的首次欧盟-中共国峰会上，欧盟“警告中共国不要支持俄罗斯在乌克兰的战争或干涉对莫斯科的国际制裁”。文章同时指出，在长达两个小时视频交流中，欧盟官员要求“中共国作为联合国安理会成员推动俄罗斯结束战争”。
 
-Mr. Guo warned high-level government officials of the U.S. that the CCP had an “axis of evil” alliance as early as 2017.
+报道认为，中共国在与俄罗斯“保持密切的经济和战略关系的同时，将自己塑造成一个对战争的中立国家”。文章引用相关研究人士的观点，中共此举会“加剧了欧盟对中共国支持公然违反国际法行为的集体愤怒”。
 
-2019年7月，郭先生在直播中首次曝光了五国联盟。
+报道称自从俄罗斯 2 月 24 日开始入侵乌克兰，并继续打击邻国，西方政府对莫斯科进行了谈判和经济制裁。可是由于中共在俄罗斯总统弗拉基米尔·普京所造成的乌克兰战争态度上表现，“阻碍了中共国在欧洲寻找朋友的努力。” 文章引用相关研究人员的话， “这是欧洲新的一天，对于独裁者普京和习近平来说，这是不受欢迎的一天”。
 
-In July 2019, Mr. Guo firstly exposed the Five-Nation Alliance on live tream.
+来自文章的观点认为，在去年10月中共国与欧盟高级官员会谈后，中欧关系在此后“略微改善”；与美国相比，中共国认为“欧盟是‘更容易接受’的面孔”。在当下，欧盟27国集团中的某些领导人对中共国变得“更加务实”。
 
-2019年07月21日
+综上所述，笔者认为，这是欧洲方面对于中共国在通过俄乌战争之后更加明显的一个转向和掂量中的态度调整。换句话说，中共以为可以一方面和俄罗斯在桌子底下互相支持，还在桌子面上获取欧洲贸易和技术的合作，这个算盘可能会落空。
 
-首次提醒大家重点关注被制裁的五个国家。
+如果欧洲选择和以美国为首的西方诸国保持一致，而俄乌战争分野又是极为明确，那么中共想在其中玩平衡是基本不可能的。如果中共表现出一种中立的态度，两边都不得罪，那么实际就是两边都会得罪。 西方的务实，就是中共的完结。中共的玩弄就是自己的死胡同。
 
-July 21, 2019
+这样看来，中共最终是玩不下去这场游戏的。随着俄乌战争的进行，西方各个国家都在不断调整中形成一致，形成一种正义的一致性，那么中共如果和俄罗斯站在一起，就没有任何的回旋余地。这就是这篇报道所反映的。我们也在耐心地等待着西方的调整和转向。中共走在一条死路上。中共必灭。这是毫无疑问的。
 
-The first time to remind us of focusing on five countries under sanctioned.
+参考消息：
 
-2019年08月06日
+China’s Tolerance for Russia Comes at Cost to Relations With EU
 
-五国联盟就是中共买单的草台联盟。
+[https://www.voanews.com/a/china-s-tolerance-for-russia-comes-at-cost-to-relations-with-eu/6519882.html](https://www.voanews.com/a/china-s-tolerance-for-russia-comes-at-cost-to-relations-with-eu/6519882.html)
 
-August 6, 2019
+*编辑：云彩*
 
-The Five-Nation Alliance is a grass stage alliance subsidized by the CCP.
-
-2019年09月11日
-
-五国联盟是CCP控制全世界计划的重要一环。
-
-September 11, 2019
-
-The Five-Nation Alliance is an important part of CCP’s planning to control the world.
-
-2019年11月04日
-
-五国联盟是CCP控制全世界计划的重要一环。
-
-November 4, 2019
-
-The Five-Nation Alliance is an important part of CCP’s planning to control the world.
-
-邪恶五国轴心是CCP控制全世界计划的重要一环，五国联盟在金融、军事、互联网等不同领域都统一步调，积极备战。
-
-The evil five countries axis is an important part of CCP’s planning to control the world, The Five-Nation Alliance is unified in pace and actively reparing for war in different areas such as finance, military and internet.
-
-2019年12月26日
-
-美国准备下一场战争，敌人就是五个邪恶轴心国。
-
-December 26, 2019
-
-America is preparing for the next war, and the enemy is the five “axis of evil” nations
-
-2020年1月15日
-
-中俄伊三国军演警醒美国，邪恶联盟就是部分3F方案。
-
-January 15, 2020
-
-China-Russia-Iran joint military exercise is alert for U.S. The evil alliance is part of the 3F-Scheme.
-
-2020年1月18日
-
-邪恶国家都建了互联网防火墙。
-
-January 18, 2020.
-
-The Evil countries have all built Internet firewalls.
-
-2020年1月26日
-
-CCP建立邪恶轴心的过程与二战希特勒的崛起一模一样。
-
-January 26, 2020.
-
-The process of the CCP building an evil axis is the same as the rise of Hitler during World War II.
-
-2020年4月11日
-
-为什么叫邪恶轴心国。
-
-April 11, 2020
-
-Why it’s called the “axis of evil”.
-
-2020年8月26日
-
-邪恶轴心国的军队都不打疫苗。
-
-August 26, 2020.
-
-The army of “axis of evil” are not vaccinated.
-
-纵观历史，中共的邪恶轴心同盟与二战时希特勒的轴心国联盟如出一辙，美国再次警醒。
-
-Throughout history, the CCP’s “axis of evil” alliance is the same as Hitler’s Axis alliance in World War II, and the United States is once again waking up.
-
-而在全球推广疫苗的情势下，邪恶五国却都选择军队不打疫苗，意欲何为？
-
-When the global are promoting vaccines, the evil five countries have chosen not to vaccinate their troops, what is their intention?
-
-战争的脚步越来越近了….
-
-The war footing is getting closer ….
-
-2021年8月29日
-
-邪恶轴心征服世界的进攻计划。
-
-August 29, 2021
-
-The axis of evil’s planning to attack and conquer the world.
-
-2019年9月10日
-
-CCP已经被普京绑在一起 ，邪恶轴心的背后是国际邪恶势力。
-
-September 10, 2019
-
-The CCP has been tied Putin together The international evil forces are behind the “axis of evil”.
-
-2021年10月05日
-
-五个邪恶轴心国家与二战的法西斯轴心国如出一辙。
-
-October 5, 2021
-
-Five “axis of evil” countries the same as the fascist Axis Powers of World War II.
-
-2022年1月05日
-
-邪恶轴心国灭白和侵占世界的计划。
-
-January 5, 2022
-
-The axis of evil’s plan to destroy white race and invade the world.
-
-2018年开始，郭先生在直播中警告台海必有一战，美国别无选择，必须保卫台湾。
-
-In the beginning of 2018, Mr. Guo warned on live stream that there would be a war between China and Taiwan, the United States had no choice but to defend Taiwan.
-
-郭先生断言：拿下台湾是CCP控制世界的第一步，也将是CCP灭亡的第二道大门。
-
-Mr. Guo asserted: Occupying Taiwan is the first step for CCP to control the world, and it will be the second gate for CCP’s demise.
-
-2018年8月16日
-
-台湾面对统独问题，应该选择的策略。
-
-August 16, 2018
-
-When Taiwan faces the issue of unification and independence, the strategy it should choose.
-
-2018年8月16日
-
-美国高层不愿出兵保护台湾，但道义上别无选择。
-
-August 16, 2018
-
-The Top U.S. official is reluctant to send troops to defend Taiwan.
-
-But there is no moral choice.
-
-2019年4月20日
-
-CCP拿下台湾是控制世界的第一步。
-
-April 20, 2019
-
-CCP’s occupation of Taiwan is the first step to control world.
-
-2019年6月30日
-
-台湾是CCP死亡的第二道大门。
-
-June 30, 2019
-
-Taiwan is the Second Door to CCP’s Death.
-
-继2019年在香港强推国安法后，CCP又欲将魔爪伸向台湾。
-
-After enforcing the National Security Law in Hong Kong in 2019, the CCP wants to extend its clutches to Taiwan.
-
-为了遏止CCP武力侵台，郭先生及时爆出惊天阴谋 “双龙行动”。
-
-In order to curb CCP’s forceful invasion of Taiwan, Mr. Guo promptly exposed the shocking conspiracy “Operation Double Dragon”.
-
-文字版原文：[郭文贵先生爆料邪恶轴心国时间线（上）](https://gnews.org/zh-hans/2285579/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
-
-
+*发稿：云彩*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

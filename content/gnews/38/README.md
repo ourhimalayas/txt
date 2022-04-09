@@ -2,98 +2,100 @@
 ---
 
 
-## 江苏省镇江市润州区检察院以GTV信息对两位战友定罪
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2312613/)
+## 拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2312692/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面-1.jpg)
-在推特上看到了我们的战友被起诉的消息——
-
-[文北](https://twitter.com/jSQZNeI7kBbK267)[@jSQZNeI7kBbK267](https://twitter.com/jSQZNeI7kBbK267)
-
-我们的战友
-
-[下午8:20 · 2022年4月8日](https://twitter.com/jSQZNeI7kBbK267/status/1512405009983369225)
+**拜登总统**： 
+对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行，它袭击了试图撤离并寻求安全的平民
+我们将继续提供安全援助和武器交付，以帮助乌克兰保卫他们的国家。 而且，我们将与我们的盟友和合作伙伴一起支持对这次袭击进行调查的努力，因为我们记录了俄罗斯的行动并追究他们的责任。
 
 
 
-> 我们的战友 [pic.twitter.com/hqcTWlOhJw](https://t.co/hqcTWlOhJw)
-> — 文北 (@jSQZNeI7kBbK267) [April 8, 2022](https://twitter.com/jSQZNeI7kBbK267/status/1512405009983369225?ref_src=twsrc%5Etfw)
+> The attack on a Ukrainian train station is yet another horrific atrocity committed by Russia, striking civilians who were trying to evacuate and reach safety.
+> — President Biden (@POTUS) [April 8, 2022](https://twitter.com/POTUS/status/1512466184817586181?ref_src=twsrc%5Etfw)
 
 
 
-按图索骥到12309中国检查网找到了两名战友的起诉书
+**众议院外交委员会共和党**： 
+共和党领袖麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul)：“我感谢斯洛伐克向乌克兰提供 S-300防空系统。美国以及我们的盟国和合作伙伴必须给乌克兰提供保卫其天空所需的武器。时间就是生命。”
+【转斯洛伐克总统黑格尔的推文：我想确认斯洛伐克为乌克兰提供了防空系统 S-300。 乌克兰国家正在勇敢地捍卫其主权国家和我们。 我们有责任提供帮助，而不是呆在原地，对俄罗斯的侵略造成的生命损失视而不见。】
 
-[https://www.12309.gov.cn/12309/gj/js/zjs/zjsrzq/zjxflws/202111/t20211101\_10906650.shtml](https://www.12309.gov.cn/12309/gj/js/zjs/zjsrzq/zjxflws/202111/t20211101_10906650.shtml)
 
-**江苏省镇江市润州区人民检察院**
 
-**起 诉 书**
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): “I thank Slovakia for providing Ukraine the S-300. The U.S. and our allies and partners must provide the weapons Ukraine needs to defend its skies. Time is of the essence.” [https://t.co/AMO6Y6n5qT](https://t.co/AMO6Y6n5qT)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [April 8, 2022](https://twitter.com/HouseForeignGOP/status/1512503517017260041?ref_src=twsrc%5Etfw)
 
-润检一部刑诉〔2021〕120号
 
-被告人叶某某，男，1989年\*\*月\*\*日出生，身份证号码3211111989\*\*\*\*\*\*\*\*，汉族，大专文化，上海\*\*科技股份有限公司员工，住江苏省镇江市润州区\*\*小区\*\*幢\*\*室（户籍所在地：江苏省镇江市润州区\*\*湖\*\*号\*\*室）。被告人叶某某因涉嫌资助危害国家安全犯罪活动罪，于2021年1月31日被镇江市公安局润州分局指定居所监视居住，同年3月16日被该分局取保候审，因涉嫌寻衅滋事罪，于同年5月4日被该分局刑事拘留，同年5月18日经本院批准逮捕，当日由该分局执行逮捕。
 
-被告人黄某某，男，1990年\*\*月\*\*日出生，身份证号码4409811990\*\*\*\*\*\*\*\*，汉族，大学本科，广东省茂名市\*\*镇卫生院员工，住广东省茂名市高州市\*\*镇\*\*村\*\*号（户籍所在地：广东省深圳市福田区\*\*路\*\*号\*\*大厦\*\*室）。被告人黄某某因涉嫌资助危害国家安全犯罪活动罪，于2021年3月13日被镇江市公安局润州分局指定居所监视居住，因涉嫌寻衅滋事罪，于同年5月4日被该分局刑事拘留，同年5月18日经本院批准逮捕，当日由该分局执行逮捕。
+**前国务卿迈克·蓬佩奥**： 
+即使在普京在乌克兰犯下了暴行的情况下，我们也不能忘记我们的世界所面临的其他危险：[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和伊朗的毛拉。 保持警惕就是威慑力。
 
-本案由镇江市公安局润州分局侦查终结，以被告人叶某某、黄某某涉嫌寻衅滋事罪，于2021年5月27日向本院移送起诉，本院受理后，已告知被告人有权委托辩护人，并告知其认罪认罚导致的法律后果，依法讯问了被告人，听取了被告人及辩护人、值班律师的意见，审查了全部案件材料，核实了案件事实与证据，被告人同意适用简易程序。
 
-经依法审查查明：
 
-2020年5月至2021年1月期间，被告人叶某某在一款名为“GTV”的境外软件中使用昵称为“yes羟氯喹”的账户转发有害、 不实且损害国家形象的信息9条，使用昵称为“yes小白”的账户转发有害、不实且损害国家形象的信息 67条。
+> Even with the atrocities being perpetrated by Putin in Ukraine, we can’t forget the other dangers facing our world: the Chinese Communist Party and the Mullahs in Iran. Vigilance is deterrence.
+> — Mike Pompeo (@mikepompeo) [April 8, 2022](https://twitter.com/mikepompeo/status/1512475508025536516?ref_src=twsrc%5Etfw)
 
-2020年4月至2021年3月期间，被告人黄某某在一款名为GTV”的境外软件中使用昵称为“火石儿Mudra”的账户转发有害、不实且损害国家形象的信息145条，另通过其微信向他人发送上述信息4条，通过微信朋友圈转发上述信息3条。
 
-到案后，被告人叶某某、黄某某均如实供述了上述犯罪事实。
 
-认定上述事实的证据如下：
+**众议员伊薇特·赫雷尔**： 
+我很感谢共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader) 任命我为众议院中国立法会议代表。为了对抗 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)，我们必须保护和开发美国惊人的自然资源，同时保卫我们的科技和学术研究部门，我为能够参与此战斗而感到自豪。
+【附众议院官网：共和党领袖麦卡锡宣布中国立法会议成员 
+[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) ([#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)) 是我国面临的最大地缘政治威胁。它垄断了供应链，引发了一场摧毁我们经济的大流行病，并继续从事工业间谍活动和盗窃我们的知识产权。在中国，它继续严重侵犯宗教少数群体的人权】
 
-1.户籍资料、扣押清单及决定书、悔过书等书证；2.证人谢某某、秦某某等人的证言；3.被告人叶某某、黄某某的供述和辩解；4.境外软件相关信息截图、微信聊天记录及朋友圈动态截图等电子数据；5.公安机关对涉案手机制作的勘验、检查笔录。
 
-本院认为，被告人叶某某、黄某某在互联网上传播虚假信息，属在公共场所起哄闹事，造成公共场所秩序严重混乱，其行为触犯了《中华人民共和国刑法》第二百九十三条第一款第（四）项之规定，犯罪事实清楚，证据确实、充分，应当以寻衅滋事罪追究其刑事责任。被告人叶某某、黄某某犯罪以后如实供述自己的罪行，根据《中华人民共和国刑法》第六十七条第三款的规定，可以从轻处罚。被告人叶某某、黄某某承认指控的犯罪事实，愿意接受处罚，根据《中华人民共和国刑事诉讼法》第十五条的规定，可以依法从宽处理。根据《中华人民共和国刑事诉讼法》第一百七十六条的规定，提起公诉，请依法判处。
 
-此致
+> I’m thankful [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) McCarthy named me a House Conferee for China Legislation. To counter the CCP, we must protect & develop America’s amazing natural resources while defending our tech and academic research sector, & I am proud to be in the fight.[https://t.co/FxGdmGKAEU](https://t.co/FxGdmGKAEU)
+> — Rep. Yvette Herrell (@RepHerrell) [April 8, 2022](https://twitter.com/RepHerrell/status/1512445550616059907?ref_src=twsrc%5Etfw)
 
-江苏省镇江市润州区人民法院
 
-检察员：秦彪  王维培
 
-2021年6月23日
+**参议员霍利新闻办公室**： 
+“拜登政府等到俄罗斯入侵后才向乌克兰提供致命性(武器)援助。我们不能在印-太地区犯同样的错误，”霍利参议员说。 
+【附参议院官网：霍利提出《台湾武器出口法》 今天霍利议员提出了《台湾武器出口法》,该法案将通过加快国会批准和消除行政障碍来加快向台湾运送关键武器的速度
+ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 入侵台湾的威胁正在迅速增长。 遏制此类入侵的关键是确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统和其他不对称防御能力。 这项立法将有助于美国尽快将这些武器运往台湾。】
 
-附：
 
-1．被告人叶某某、黄某某现羁押于镇江市看守所；
 
-2．案卷材料和证据4册。
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
 
-\*\*\*\*\*\*\*江苏省镇江市润州区人民检察院起诉书引用完毕\*\*\*\*\*\*\*
 
-由起诉书所列内容可见，两位战友都是因为所谓涉嫌资助危害国家安全犯罪活动，分别于2021年1月31日和2021年3月13日被镇江市公安局润州分局指定居所监视居住，并同时于2021年5月4日被镇江市公安局润州分局刑事拘留，并同时于2021年5月18日被江苏省镇江市润州区人民检察院批准逮捕，其中的叶姓战友被刑事拘留前曾于2021年3月16日被取保候审。
 
-由于起诉书中提到的涉嫌资助危害国家安全犯罪活动罪语焉不详，但应该大概率指向两位战友向法治基金、法治社会的捐款活动，中共公检法机关对于爆料革命战友和G-TV的镇压迫害由此份起诉书可见一斑，而起诉书中提出的两位战友的所谓犯罪证据则列明使用G-TV转发所谓“有害、不实且损害国家形象的信息”以及通过微信向他人发送上述信息及通过微信朋友圈转发上述信息的行为。
+**众议院外交委员会共和党**： 
+请观看共和党领袖麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul) 在本周与国务次卿谢尔曼[@DeputySecState](https://twitter.com/DeputySecState) 的委员会全体听证会上，关于美国在印-太地区促进自由的传承、以及保护 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的必要性的评论发言
+【附听证会视频】
 
-在中共治下，每位战友都是不安全的，虽然很多墙内战友碰到了体制内人士枪口抬高一寸的礼遇，但本文中的叶姓战友和黄姓战友应该不属此列，在灭共前不管是墙内战友和墙外战友都是不安全的，每一笔给法治基金、法治社会的捐款，每一条GTV以及盖特和G-News的信息同样是不安全的，但是这并不是我们不继续战斗的理由，因为如果我们不继续战斗，叶姓战友和黄姓战友的遭遇就会继续在其他战友或战友家人的身上重演；如果我们不继续战斗，我们的后代就不能脱离这样的黑暗。在此唯愿两位不知是已经身陷囹圄还是被释放的两位战友及家人一切安好。
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
+> Watch LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw)’s remarks on America’s legacy of promoting freedom in the Indo-Pacific and the need to protect Taiwan at this week’s full committee hearing with [@DeputySecState](https://twitter.com/DeputySecState?ref_src=twsrc%5Etfw) ⬇️ [pic.twitter.com/3qi53pn4d1](https://t.co/3qi53pn4d1)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [April 8, 2022](https://twitter.com/HouseForeignGOP/status/1512500997175881737?ref_src=twsrc%5Etfw)
 
-校对：Maarago；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**比尔·戈茨**： 
+美国国务院反宣传部门致力于揭穿 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关于乌克兰的虚假信息。 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 的谎言显示了其对俄罗斯入侵的支持。 
+【附华盛顿时报登载的比尔·戈茨的相关文章】
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+> State Department counter-propaganda unit working to debunk Chinese government disinformation on Ukraine. Beijing lies reveal backing for Russian invasion [https://t.co/n7xOZA0vPW](https://t.co/n7xOZA0vPW)
+> — Bill Gertz (@BillGertz) [April 8, 2022](https://twitter.com/BillGertz/status/1512479041210621957?ref_src=twsrc%5Etfw)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**参议员卢比奥新闻办公室**： 
+在 [#西藏](https://twitter.com/hashtag/%E8%A5%BF%E8%97%8F?src=hashtag_click)，81 岁的扎西彭措自焚抗议 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的统治。 一个月前，25 岁​​的歌手 
+[#才旺罗布](https://twitter.com/hashtag/%E6%89%8D%E6%97%BA%E7%BD%97%E5%B8%83?src=hashtag_click) 也做了同样的事情。 这些人宁愿死去也不愿活在 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 制造的地狱里。 自由世界必须下定决心打击 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。 
+[#表达而非压迫](https://twitter.com/hashtag/%E8%A1%A8%E8%BE%BE%E8%80%8C%E9%9D%9E%E5%8E%8B%E8%BF%AB?src=hashtag_click) [#ExpressionNOToppression](https://twitter.com/hashtag/ExpressionNOToppression?src=hashtag_click)
+
+
+
+> In [#Tibet](https://twitter.com/hashtag/Tibet?src=hash&amp;ref_src=twsrc%5Etfw), 81-yr-old Tashi Phuntsok set himself on fire to protest [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) rule. A month ago, 25-yr-old singer Tsewang Norbu did the same. These men would rather die than live in the hell that Beijing creates. 
+> 
+> The free world must resolve to combat the CCP. [#ExpressionNOToppression](https://twitter.com/hashtag/ExpressionNOToppression?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hipSRaIA04](https://t.co/hipSRaIA04)
+> — Senator Rubio Press (@SenRubioPress) [April 8, 2022](https://twitter.com/SenRubioPress/status/1512495839364755463?ref_src=twsrc%5Etfw)
+
+
 
  
 

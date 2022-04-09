@@ -2,29 +2,39 @@
 ---
 
 
-## 美参议院一致通过两个向俄罗斯施压的法案
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2314422/)
+## Shopify因2020年Ledger数据泄露面临新的集体诉讼
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314817/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+翻译/编辑：小红帽
 
-4月7日，美国参议院投票一致通过两个因俄罗斯2月入侵乌克兰而向俄罗斯施压的法案。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/shopify-accepts-bitcoin-02-1024x655-1.png)图片来源：www.blog.shippypro.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.jpg)图为美国国会大厦（图片来自Travelpix Ltd）
 
-据《美国之音》报道，一个议案是把美国总统签署的禁止进口俄罗斯石油和液化天然气的行政命令变成了法律。
+根据COINGEEK4月8日报道，2020年的一次数据泄露事件中，黑客获取了超过100万Ledger用户的信息，这再次成为集体诉讼的核心。这一次，原告正在追究加拿大电子商务巨头Shopify在违规行为中所扮演的角色。
 
-据了解，美国政府3月已经禁止进口俄罗斯的标志性产品，包括石油、天然气、伏特加、海产品和工业钻石。
+据报道，在2020年4月至6月期间，黑客能够进入Ledger的网上商店，客户可以在上面订购他们的硬件钱包。黑客设法访问并窃取了超过27万名订购了Ledger钱包的用户的个人身份信息，同时还获取了超过100万名订阅了该公司通讯的用户的信息。
 
-另一个议案则是终止白俄罗斯和俄罗斯的“最惠国”贸易地位，允许美国对钢铁和铝等俄罗斯产品征收更高的关税。据民主党参议员的一位助理透露，胶合板也可能面临50%的征税，部份反作用式发动机的进口税率可能达到35%。
+Ledger用户现在对Shopify和TaskUs（一家为Shopify提供客户支持服务的外包公司）提起了新的集体诉讼。
 
-报道称，目前这两个议案已提交众院表决，预计会被通过。
+诉讼指责这两家公司“在2020年影响Ledger的大规模数据泄露事件中，未能合理地保护和保障消费者信息”。诉讼称，数据泄露导致个人身份信息（PII）的公开发布，包括全名、电子邮件地址、邮政地址和电话号码。
 
-参考链接：
-1.[https://reurl.cc/oelvWg](https://reurl.cc/oelvWg)
-2.[https://reurl.cc/e6qp1L](https://reurl.cc/e6qp1L)
+正如原告所观察到的，虽然区块链交易是公开可见的，但如果没有更多的信息，就无法追溯到个人。该漏洞使这些信息公之于众，使Ledger的客户很容易成为骗子的目标。自此以后，骗子就开始以他们为目标进行网络钓鱼活动。
 
-总编：老孙
-校对发布：爱放飞
+虽然数据泄露已经够糟糕了，但Ledger和Shopify以最糟糕的方式处理，使情况变得更糟。Ledger起初否认了这一漏洞，直到2020年12月，黑客公开发布了数据。即使在那时，Ledger声称只有不到10,000名客户受到影响，但在更多的数据被公开发表后，又收回了声明。
+
+原告要求特拉华州地区法院判处实际损害赔偿、补偿性赔偿、法定损害赔偿和法定处罚，以及其他惩罚性措施。
+
+这并不是针对Shopify和Ledger数据泄露事件的第一起集体诉讼。去年4月，第一起诉讼在加州提起，声称这两家公司“疏忽地允许、轻率地忽视，然后故意寻求掩盖”该漏洞。
+
+资料来源：[Shopify faces fresh class-action lawsuit over 2020 Ledger data breach](https://coingeek.com/shopify-faces-fresh-class-action-lawsuit-over-2020-ledger-data-breach/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,37 +2,38 @@
 ---
 
 
-## 澳洲药监局批准给12-15岁儿童打辉瑞加强针，仍需ATAGI批准
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2314146/)
+## 欧盟同意冻结俄罗斯联邦储蓄银行老板和普京女儿的资产
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2314663/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-155.jpg)图片来自网络
-《ABC News》近日报道，澳洲药物管理局已经批准给12-15岁青少年打辉瑞新冠疫苗加强针，但是还需要最后一道审批。
+翻译/编辑：小红帽
 
-和其他年龄组一样，TGA建议12-15岁的人在打了第二针的6个月后打新冠疫苗加强针。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/TASS36756128.jpg)图片来源：Sergei Fadeichev / TASS
 
-澳洲药监局说：“以色列，英国和美国都批准了这个年龄组打加强针。”
 
-此举是继今年早些时候辉瑞公司为16岁和17岁的人批准加强针之后的又一举措。
+根据路透社4月9日报道，根据欧盟官方期刊周五公布的一份文件，欧盟已同意冻结俄罗斯最大银行Sberbank的老板、普京的两个女儿和更多寡头在欧盟的资产。
 
-但是要向年轻群体提供助推器，它们必须被纳入新冠疫苗计，这是澳大利亚免疫技术小组（ATAGI）的决定。
+自乌克兰战争开始以来，欧盟已将大约700名与克里姆林宫有关或被指控支持入侵的人列入黑名单，莫斯科称其为“特别行动”。然而，在法律障碍和有时缺乏政治意愿的情况下，并不总能迅速冻结资产。
 
-澳洲药监局（TGA）说：”ATAGI不久将就辉瑞新股冠疫苗是否应被纳入接种计划提供建议，作为两道审批过程的最后一步。
+新措施将打击另外200多人，其中大部分来自卢甘斯克和顿涅茨克的分离主义地区，以及与克里姆林宫关系密切的高级商人、政治家和军事人员。
 
-在TGA和ATAGI批准了12至15岁年龄组的疫苗并在去年将其加入到疫苗推广计划中后，辉瑞和莫德纳新冠疫苗都可用于该年龄组。
+另有18家实体也受到资产冻结的打击，其中包括VTB(VTBR.MM)等四家银行和军事公司，使战争开始以来受到制裁的公司数量增加了近一倍。
 
-截至4月8日，52.3%的16岁及以上符合条件的人已经注射了加强针。
+根据该文件，Sberbank (SBER.MM)的负责人赫尔·格雷夫已被列入欧盟黑名单，此举具有象征意义。到目前为止，欧盟一直没有制裁该银行，该银行在能源支付中发挥着关键作用。
 
-辉瑞疫苗不是已经公布了一千多种不良反应吗？为什么澳洲还要不管不顾的强推呢？
+文件称，普京的女儿叶卡捷琳娜·季霍诺娃和玛丽亚·沃龙佐娃现在也因从俄罗斯政府中受益而受到制裁。
 
-参考链接：
+普京已经在早期一轮的限制性措施中受到制裁，尽管目前尚不清楚他和他的家人在欧盟拥有多少资产（如果有的话）。
 
-[https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692](https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692)
+资料来源：[EU agrees to freeze assets of Sberbank boss, Putin’s daughters](https://www.reuters.com/world/europe/eu-agrees-freeze-assets-sberbank-boss-putins-daughters-2022-04-08/)
 
-*编辑：金生水*
+发布：tianzhihuan
 
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

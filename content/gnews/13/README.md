@@ -2,29 +2,153 @@
 ---
 
 
-## 今日盖特大V推荐 — 西蒙妮·戈尔德医生 (Dr. Simone Gold)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2314868/)
+## 樱花FM┃郭文贵先生爆料邪恶轴心国时间线（下）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2314996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-926.png)
-盖特链接：[**https://gettr.com/user/drsimonegold**](https://gettr.com/user/drsimonegold)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-7-2.png)
+2019年9月1日
 
-**西蒙妮·戈尔德医生自述：**
+第一次爆料中共的双龙计划
 
-医生、律师、勇士
-美国前线医生创始人
-**[http://AmericasFrontlineDoctors.org](http://AmericasFrontlineDoctors.org)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-927.png)图片来自网络
-**西蒙妮·戈尔德医生简介：**
+September 1, 2019
 
-西蒙妮·梅丽莎·戈尔德是美国医生、律师、作家，也是美国前线医生 (America’s Frontline Doctors) 的创始人，该组织成立于2020年，以传播有关新冠病毒和疫苗的真相而闻名。2020年7月，在美国最高法院大楼前举行的美国前线医生新闻发布会的视频在网上疯传时，她引起了人们的关注。她对新冠疫苗发表了评论：“我们医生支持疫苗，但这不是疫苗。”
+The first time to expose the CCP’s Double Dragon Plan
 
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+2021年1月25日
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+双龙计划被迫暂停，攻台是共产党统治全世界计划的一部分。
+
+January 25, 2021
+
+Double Dragon Plan is forced to suspend, attack on Taiwan as part of the CCP’s plan for world domination.
+
+2021年2月26日
+
+共产党攻台会使用各种超限手段阻止美国。
+
+February 26, 2021
+
+(If) the CCP attack Taiwan, they will use all unrestricted means to stop the U.S.
+
+2021年3月16日
+
+台湾就是西方文明最后一道防线共匪一旦攻台就是灭亡之日。
+
+March 16, 2021
+
+Taiwan is the last line of defense for Western civilization Once the CCP attack Taiwan, it will be the day of the CCP’s death.
+
+2018年4月15日
+
+双龙计划必将执行，最终目标是领导世界，搞弱搞乱美国。
+
+April 15, 2018
+
+The Double Dragon Plan Will Be Executed The ultimate goal is to lead the world and weaken and disrupt America.
+
+郭先生成功预测CCP对台行动。
+
+Mr. Guo successfully predicted CCP’s action against Taiwan.
+
+双龙计划虽被暂缓，但CCP控制全世界的脚步并未停止…
+
+The Double Dragon Plan has been put on hold, but CCP’s drive to control the world has not stopped…
+
+2019年9月17日
+
+预测CCP9月24日对台将有重要行动。
+
+September 17, 2019
+
+Forecasted CCP’s important actions to Taiwan on September 24.
+
+2019年9月24日
+
+中共第一次以立体全实战模式挂载核弹对台湾实战演习。
+
+September 24, 2019
+
+The CCP’s first three-dimensional full-scale warfare mode to mount nuclear bombs on Taiwan in a live exercise.
+
+2021年11月28日
+
+共产党对台湾和俄罗斯对乌克兰一定同时动作。
+
+November 28, 2021
+
+The CCP invasion of Taiwan and the Russian invasion of Ukraine must happen at the same time.
+
+2021年12月03日
+
+中俄密集交往，加紧筹备拿下台湾和乌克兰。
+
+December 3, 2021
+
+Intensive Russian-Chinese Engagement. Intensify Preparations to invasion Taiwan and Ukraine.
+
+2021年12月5日
+
+中俄的命运取决于普和习的健康与安全。
+
+December 5, 2021
+
+The Fate of Russia and China Depends on the Health and Security of Putin and Xi Jinping.
+
+2021年12月10日
+
+打台湾后就是地缘政治的重新分配。
+
+December 10, 2021
+
+After the invasion of Taiwan was a geopolitical redistribution.
+
+邪恶轴心终于跨出了侵占世界的第一步，中共和俄罗斯将联合行动，分头侵占乌克兰和台湾。
+
+The “axis of evil” has finally taken the first step to invade the world, and the CCP and Russia will act jointly and split up to invade Ukraine and Taiwan.
+
+这是一场不同文明、地域、信仰和意识形态之间的对抗，这是一场改变全人类的第三次世界大战。
+
+This is a confrontation between civilizations, regions, beliefs and ideologies, the World War III that will change all of humanity.
+
+而爆料革命终将获得最终胜利。
+
+And the Whistleblower Movement will eventually win the ultimate victory.
+
+2022年2月9日
+
+乌克兰将会成为普京的滑铁卢。
+
+February 9, 2022
+
+Ukraine will be Putin’s Waterloo.
+
+2022年2月9日
+
+爆料革命第一个将邪恶五国的计划暴露在世人面前。
+
+February 9, 2022
+
+Whistleblower Movement first to bring evil five countries plans
+
+exposed to the world.
+
+2022年2月20日
+
+中俄联盟的双面出兵计划，是独裁者为了个人安危的战争游戏。
+
+February 20, 2022
+
+The Russian-Chinese alliance’s two-sided plan to send troops
+
+is a war game by dictators for their personal safety.
+
+文字版原文：[郭文贵先生爆料邪恶轴心国时间线（下）](https://gnews.org/zh-hans/2285580/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
 
  
 
