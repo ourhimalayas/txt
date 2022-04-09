@@ -2,21 +2,37 @@
 ---
 
 
-## 法拉第未来因延迟递交财报再收退市警告
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2318966/)
+## 俄罗斯在克拉马托尔斯克火车站袭击平民造成至少 39 人死亡和 100 人受伤
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2318991/)
 
-编辑：文宝
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+乌克兰总统泽连斯基称普京军队的行为是“无限邪恶”。本周五，乌克兰东部城市克拉马托尔斯克的车站遭到火箭弹袭击，造成至少 39 人死亡，其中包括 4 名儿童，另有 100 人受伤，数百人正在那里等待火车离开该地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image020.jpg)俄罗斯对克拉马托尔斯克火车站的袭击造成数十人死亡（Hervé BAR / AFP）
+乌克兰铁路公司 Ukrzaliznytsia 的负责人Oleksander Kamyshin在Telegram 上说：“在车站发射火箭弹后，30 多人丧生，100 多人受伤……这是蓄意袭击。”几分钟后，救援部门报告至少有 39 人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image022.jpg)乌克兰东部城市克拉马托尔斯克车站遭到袭击后被毁的汽车（Hervé BAR / AFP）![](https://assets.gnews.org/wp-content/uploads/2022/04/image024.jpg)俄罗斯袭击火车站的遇难者遗体（Hervé BAR / AFP）
+在克拉马托尔斯克站前可以看到几辆烧焦的汽车和一枚导弹的残骸。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image028.jpg)在东部城市克拉马托尔斯克（Hervé BAR / AFP）的火车站遭到袭击后，火箭的残骸位于草地上
+这个地方到处都是废弃的手提箱、碎玻璃和碎片。由于尸体的移动，车站内部被鲜血覆盖，经被踩踏并蔓延到街道上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image030.jpg)地面车辆和人员财物损毁概况（Hervé BAR / AFP）
+乌克兰总统泽连斯基称俄罗斯对火车站的血腥袭击是“无限邪恶**”**。
 
-日前，贾跃亭创建的电动汽车公司FaradayFuture法拉第未来（以下简称“FF”）收到[纳斯达克](https://stock.finance.sina.com.cn/usstock/quotes/.IXIC.html)发出的通知，称其延迟提交2021年财报（10-K表格）的做法违反了纳斯达克上市规则条款，若想继续上市，交易所要求公司在4月19日之前达到合规标准。
 
-4月8日，FF相关负责人在接受《证券日报》记者采访时表示，收到警告文件在意料之中，会努力在4月19日之前提交对原计划的更新，恢复合规。同时，“纳斯达克给予FF一次例外，允许在2022年5月6日前完成10-Q表格和10-K表格的提交”。
 
-据记者了解，今年2月1日，FF向美国证券委员会（SEC）递交了一份当期报表（8-K表格）。此后，FF管理团队的某些成员和公司员工收到了SEC工作人员的保全通知和传票，遭调查的原因是FF涉嫌向投资者发布不准确信息。
-
-有调查发现，公司宣称的1.4万份FF91订单中实际只有数百份订单已支付。据此，3月下旬FF发布公告称，由于公司高管涉嫌虚假陈述误导消费者，所以需要额外的时间来完成内部调查。因内部调查造成的延误，无法按时递交年度财报。
-
-原文链接：[https://finance.sina.com.cn/jjxw/2022-04-09/doc-imcwipii3173869.shtml](https://finance.sina.com.cn/jjxw/2022-04-09/doc-imcwipii3173869.shtml)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

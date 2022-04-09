@@ -2,29 +2,37 @@
 ---
 
 
-## 2022/04/05 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2318797/)
+## 有声|美国警告印度与俄罗斯走近的后果
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318874/)
 
-1. 4月4日，上海松江。市民因拒做上海市政府统一要求的全员核酸检测，被警察“依法”带走。
-2. 4月4日，中共国内某地集中隔离点的内部情况。
-3. 4月4日，上海。因中共疫情封控不让病人去做透析，最终人在家中走了，病人家属哭的撕心裂肺。
-4. 3月31日，吉林松原。网传一货车司机因中共疫情管控，被困服务区20天不准下高速。疑似多天未天进食后，突发疾病死亡。
-5. 近日，江苏昆山。货车司机在拥有绿码及核酸检测阴性报告下，市场仍因上海牌照拒绝车辆进入，致17吨白菜腐烂被扔垃圾站。
-6. 4月4日，水果批发市场商户们无奈扔掉腐烂的水果。中共封控区内百姓物资奇缺吃不到，封控区外运输链断裂都扔掉。
-7. 4月4日，江苏南通， 两位老人看到很多干粮被丢弃在垃圾桶太浪费了，就找了一些好的带回家。
-8. 4月2日，安徽灵璧14岁初中生被多名高中生霸凌致死。
-9. 安徽灵璧被霸凌致死14岁初中生父母在网络上实名举报，跪求真相。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+美国总统拜登顾问表示，华盛顿已经发出警告印度不要与俄罗斯结盟。美国官员对印度关于俄罗斯入侵乌克兰的反应感到失望。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-151.jpg)图片源自网络
+据国际媒体报道，白宫国家经济委员会主任布赖恩·迪斯说，在俄乌发生战争背景下，他们对印度在某些领域的决定感到失望。 他说：美国已经警告过印度，不要与俄罗斯走的太近，否再将带来严重长期的后果。
+
+印度外长表示，印度与俄罗斯经济贸易稳定，俄罗斯仍然是印度重要的经济伙伴。对俄乌战争态度，印度表示站在“和平”的一边。印度是俄罗斯石油的进口国，也是俄罗斯武器最大的购买者。现在，俄罗斯唯一还能吸引一些国家就是石油和天然气 。为了减少对石油能源的依赖，美国等西方国家会加速世界新的清洁能源快速进入应用市场。
 
 
-* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+文字版原文：[美国警告印度与俄罗斯走近的后果](https://gnews.org/zh-hans/2314063/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

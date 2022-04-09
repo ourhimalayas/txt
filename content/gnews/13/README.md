@@ -2,22 +2,28 @@
 ---
 
 
-## 有声|美议员提案，一旦犯台，中共将被踢出国际金融体系
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318844/)
+## 有声|尹锡悦希望美国重新部署核轰炸机，潜艇及航母
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318908/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月6日，为阻止中共侵犯台湾，美国众议员卢卡斯提出“排除中共法案”。该法案要求，一旦中共对台湾的社会、经济体系造成威胁，美国政府将采取行动，将中共踢出国际金融体系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-18.jpg)
-卢卡斯表示，中共对美国的国家安全、政治、经济构成极大的威胁。根据该法案，一旦中共攻打台湾，中共官员将被拒绝参加包括G20、国际清算银行（BIS）、国际金融稳定委员会（Financial Stability Board）、国际保险监理官协会（IAIS）、国际证券监察会组织（IOSCO）在内的国际金融组织的会议和活动。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+候任韩国总统尹锡悦的一位顾问表示，尹锡悦的顾问在访问华盛顿期间与美方举行会谈，寻求在朝鲜半岛重新部署核轰炸机和潜艇等美国战略武器 。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-43.png)图片源自网络
+实施后，将会是韩国应用萨德反导系统后，国防力量再一次重大升级，并且会近距离震慑以中共为首的莫斯科，平壤邪恶轴心 。
+
+尹锡悦的外交政策和安全助手所组成的团队与美国国家安全顾问沙利文(Jake Sullivan)举行了会谈；尹锡悦寻求获得更持久的安全，以遏制来自朝鲜的威胁，朝鲜目前正在加紧进行武器试验。
+
+“部署战略资产是加强扩展威慑力的一个重要因素，这个问题自然而然地出现在讨论中，”率领该代表团的四届议员Park Jin告诉记者 尹定于5月10日宣誓就职，其竞选纲领中“坚决反击”北魁军挑衅威胁，即包含前进部署核潜艇，战略轰炸机与航空母舰 。
+
+外事团队亦邀请拜登下次亚洲之行时访问首尔，同时与QUAD（韩日印澳）反共联盟会谈。
 
 
 
-文字版原文：[美议员提案，一旦犯台，中共将被踢出国际金融体系](https://gnews.org/zh-hans/2313949/)
+文字版原文：[尹锡悦希望美国重新部署核轰炸机，潜艇及航母](https://gnews.org/zh-hans/2313956/)
 
 音频处理：Tom Li
 发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,7 +36,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
