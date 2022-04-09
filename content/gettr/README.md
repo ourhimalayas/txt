@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 3:22 PM (UTC)`
+
+【Ukraine Rescue】04/07/2022 One French volunteer in a talk with Nicole expressed how much he likes the NFSC hat because it shows the will of the Chinese people to overthrow the CCP. He would like to get one of our hats and wear it to show his support for us.<br/><br/>【乌克兰救援】04/07/2022 一位法国志愿者在与妮可交谈时表示，非常喜欢新中国联邦的帽子，因为它表达了中国人民推翻中共的意愿。他表示，希望能获得一顶我们的帽子，并戴着它以示对我们的支持。
+![img](https://media.gettr.com/group33/getter/2022/04/09/15/a6dfc11d-876a-2fd1-86f6-1d63ea3bf7b7/out.jpg)
+
+---
+
+`@miles 4/9/2022 3:20 PM (UTC)`
+
+4月9号：【上一个录的视频没有声音，我再简单录一遍，抱歉了，万分的抱歉。】尊敬的战友们好，感谢从上海，深圳，吉林，北京．广东等地战友们送来的这些绝密信息，新中国联邦……永远不会忘记．永远感恩……明天上午七哥将加入大直播。共产党在整个中国大陆制造的人类大灾难．将超出我们常人的想象，我们明天直播详谈，一切都已经开始！
+![img](https://media.gettr.com/group26/getter/2022/04/09/15/47e7a4de-b432-117a-32bf-1afe86fc1629/out.jpg)
+
+---
+
 `@miles 4/9/2022 2:37 PM (UTC)`
 
 《新中国联邦｜真人真事》 第48期   加拿大扬帆农场   卢比肯
@@ -138,20 +152,6 @@
 
 4/8/2022 Ukraine Rescue: A top Japanese TV station was attracted by the Ukraine rescue camp of the New Federal State of China and took the initiative to conduct a nearly 30-minute interview with our fellow fighters on the rescue frontline. Our fellow fighters are once again spreading our philosophy of taking down the Chinese Communist Party to the rest of the world.<br/><br/>4/8/2022 乌克兰救援连线：一家日本大电视台被新中国联邦乌克兰救援前线营地所吸引，主动对前线战友进行了近半小时的采访，我们的战友再次将灭共理念传向世界各国<br/>
 ![img](https://media.gettr.com/group39/getter/2022/04/09/02/dd8721ac-4ff5-76de-0393-1b31cbca48ac/out.jpg)
-
----
-
-`@miles 4/9/2022 2:51 AM (UTC)`
-
-4/8/2022 Miles Guo’s GETTR: The suffering of the fellow Chinese in Zhengzhou, Shanghai, and Changchun left me speechless. A fellow fighter’s NFTs were robbed by the Chinese Communist Party at gunpoint. The evil of the Chinese Communist Party goes far beyond “killing the rich to help the poor”. The most miserable people during the lockdown of Shanghai are those who are highly educated and still trust the CCP. The situation of our fellow Chinese is heartbroken. If we don’t take down the CCP, what happened in Shanghai will happen to the rest of the world, and all will be victims!<br/><br/>4/8/2022 文贵盖特：郑州、上海、长春的同胞们所遭受的灾难让文贵一时语塞；有战友买的NFT被中共拿枪抢走，中共的邪恶远超劫富济贫；上海封城中最惨的是受过高等教育而且还相信共产党的人，同胞们的遭遇让我们心急如焚；若不灭共，全世界都将变成上海，所有人都是受害者！<br/>
-![img](https://media.gettr.com/group38/getter/2022/04/09/02/dfec6d08-f05d-5bfc-edd7-7e388e6fa3b9/out.jpg)
-
----
-
-`@miles 4/9/2022 2:02 AM (UTC)`
-
-2022.04.08  新中国联邦 | 喜财经   欧元区Q2景气 面临萎缩风险；马斯克入股推特 女股神预测：将推动管理层改革
-![img](https://media.gettr.com/group10/origin/2022/04/09/02/5fa8436b-132e-c778-2531-6af38d59164d/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
