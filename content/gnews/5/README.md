@@ -2,8 +2,8 @@
 ---
 
 
-## 鬼五战友介绍救援前线的饮食很好
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314106/)
+## 美台同盟官方明确定性（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314241/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

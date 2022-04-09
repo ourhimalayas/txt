@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|国际社会将进一步制裁俄罗斯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2313648/)
+## 台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2313801/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间4月5日，据相关媒体报道，英国外交大臣利兹-特拉斯在当天访问华沙时表示，英国已经冻结了俄罗斯总统普京的“战争基金”中约三千五百亿美元的资产。此外，特拉斯也呼吁国际社会继续加强对莫斯科当局的制裁。
+**港台前线 zhong｜2022-4-9**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-13.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+中共解放军7日派遣多架军机袭扰台湾西南防空识别区，其中1架“运9”逾越东部空域，台湾空军依照惯例升空应对。值得关注的是，本次日本航空自卫队西南航空方面队的战机，也紧急起飞对应，并持续对中共军机进行监控。日本防卫省统合幕僚监部监控报告指出，“初次”记录到中共“运9”进入东经123-126度、北纬21-24度空域活动，并称是在对（日本）领空侵犯。
 
-对此，欧盟理事会当天提议追加对俄罗斯的制裁：该新措施将阻止俄罗斯约220亿美元的贸易。其中，欧盟将停止进口俄罗斯的煤炭、木材、水泥、酒精饮料和海产品，甚至包括伏特加、橡胶和化工业共计年销售额约104亿美元的产品。同时，欧盟将不再向俄罗斯出口先进半导体、量子计算机和其它电气及运输设备。另外，俄国的船只和货运卡车将不被允许进入欧盟，且俄罗斯外贸银行和另外三家银行的所有跨境交易将被停止，而所有的俄罗斯企业也不再有机会参与欧盟的公开招标。据悉，还有36个新的俄罗斯寡头和政客已经被列入至欧盟此处的制裁名单中。
+本次运9进入东经123-126度、北纬21-24度空域活动，为台北飞航情报区东北角与日本飞航情报区重叠之处，故飞经该区可能受到日本空防单位的识别要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-09-上午10.33.53.png)
+另，运-8系列在台湾西南区块定期巡弋，已对西南空防及东沙防务形成极大压力；运-9过去由东海穿越宫古水域进入太平洋，现改取道巴士海峡的作为，显见对台日防务作为将产生极严重影响。
 
-报道也提到，截止目前，国际社会采取的制裁措施已经对支持普京战争的个人或机构产生了严重影响，尤其是此次英国的制裁将导致普京政府60%以上的外汇储备无法使用。 目前，英国也在敦促北约和七国集团伙伴对那些向普京提供战争资金的行业实施限制。
+美军参谋首长联席会议主席密利8日表示，台湾是防御性岛屿，美方要做的是协助台湾更好的自我捍卫，最好的威吓是确保中国知道，攻打台湾将是“非常、非常难以实现的目标”。
 
-文字版原文：[国际社会将进一步制裁俄罗斯](https://gnews.org/zh-hans/2305209/)
+来源｜[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79741&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
 
-音频处理：Fei797
-发稿：Fei797
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

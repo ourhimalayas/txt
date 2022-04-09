@@ -2,11 +2,11 @@
 ---
 
 
-## 人工智能5
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314068/)
+## 美台同盟官方明确定性（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314215/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+视频定位：BENJ1；WE
 
 *发布：陶子*
 

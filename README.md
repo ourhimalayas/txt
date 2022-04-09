@@ -15,122 +15,122 @@
 
 ---
 
-### [救援前线的战友们每时每刻都在展现着新中国联邦人的阳光形象](/content/gnews/1/README.md)
+### [疫苗灾难蔓延，储粮备药应对（二）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2022年4月4日郭文贵先生盖特直播全文字版](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰救援Medyka营地难民最新情况](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [俄乌战争：被普京洗脑位于平行世界的俄罗斯百姓](/content/gnews/4/README.md)
+### [澳大利亚放宽旅行限制吸引国际旅客](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [鬼五战友介绍救援前线的饮食很好](/content/gnews/5/README.md)
+### [疫苗灾难蔓延，储粮备药应对（一）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [【乌克兰救援】梅迪卡的中国帐篷并非来自共产主义中国，而是来自于致力于铲除中共的新中国联邦](/content/gnews/6/README.md)
+### [美台同盟官方明确定性（三）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [美台同盟官方明确定性（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [上海封城令民众愤怒加剧](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [美台同盟官方明确定性（一）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [美国两项制裁俄-白法案只等签字，中共将陷入能源危机](/content/gnews/8/README.md)
+ ` 纽约香草山MOS02`
+
+### [【乌克兰救援】04/07/2022 比利时维吾尔人认同新中国联邦](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [人工智能5](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
+### [【乌克兰救援】新中国联邦（NFSC）的标语在Medyka吸引了大家的注意力](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄乌战争将世界粮食价格推至历史高位](/content/gnews/8/README.md)
+### [澳洲药监局批准给12-15岁儿童打辉瑞加强针，仍需ATAGI批准](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [基辅及世界的关键时间窗：武装乌克兰的时机就在眼前](/content/gnews/9/README.md)
+### [泰德·克鲁兹盛赞马斯克购买推特并透露想买特斯拉](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|台湾同胞逃离乌克兰，加入喜马拉雅农场](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [【乌克兰救援】新中国联邦救援队得到乌克兰女士奥尔加的五星佳评](/content/gnews/11/README.md)
+### [【乌克兰救援】梅迪卡的中国帐篷并非来自共产主义中国，而是来自于致力于铲除中共的新中国联邦](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|上海失去了烟火味](/content/gnews/12/README.md)
+### [有声|台湾同胞逃离乌克兰，加入喜马拉雅农场](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [美国将拒绝出席有俄罗斯在场的G20会议](/content/gnews/13/README.md)
+### [【乌克兰救援】新中国联邦救援队得到乌克兰女士奥尔加的五星佳评](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国将拒绝出席有俄罗斯在场的G20会议](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [美众议院议长佩洛西将于本周日访台](/content/gnews/14/README.md)
+### [美众议院议长佩洛西将于本周日访台](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [【#G时新闻】日本再次发力 宣布对俄罗斯实施额外制裁](/content/gnews/15/README.md)
+### [美议员提案，一旦犯台，中共将被踢出国际金融体系](/content/gnews/18/README.md)
+ ` NFSC News`
+
+### [美前线医生称，大规模接种疫苗无效，死亡率更高](/content/gnews/19/README.md)
+ ` NFSC News`
+
+### [【#G时新闻】日本再次发力 宣布对俄罗斯实施额外制裁](/content/gnews/20/README.md)
  ` G-时新闻`
 
-### [优步涨价可能不足以平息司机对油价的愤怒](/content/gnews/16/README.md)
+### [优步涨价可能不足以平息司机对油价的愤怒](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯](/content/gnews/17/README.md)
+### [台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯](/content/gnews/22/README.md)
  ` 關注組`
 
-### [COVID-19疫苗副作用集萃（2022.4.9)–一针剂腺病毒载体疫苗，身体反应大](/content/gnews/18/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.9)–一针剂腺病毒载体疫苗，身体反应大](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世界粮农组织指全球食品价格创历史新高](/content/gnews/19/README.md)
+### [世界粮农组织指全球食品价格创历史新高](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国总理肖尔茨说他不会第二次推动疫苗强制政策](/content/gnews/20/README.md)
+### [德国总理肖尔茨说他不会第二次推动疫苗强制政策](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前高盛银行家在1MDB案中被判受贿和洗钱罪成立，疑犯主谋Jho Low仍在逃](/content/gnews/21/README.md)
+### [前高盛银行家在1MDB案中被判受贿和洗钱罪成立，疑犯主谋Jho Low仍在逃](/content/gnews/26/README.md)
  ` 波士顿五月花农场金融部`
 
-### [有声|国际社会将进一步制裁俄罗斯](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [美商会官员：美国必须加强与巴西的关系](/content/gnews/23/README.md)
+### [美商会官员：美国必须加强与巴西的关系](/content/gnews/27/README.md)
  ` 波士顿五月花农场金融部`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月8日晚](/content/gnews/24/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月8日晚](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [墙内奇葩：一家捡电子垃圾的高科技公司](/content/gnews/25/README.md)
+### [墙内奇葩：一家捡电子垃圾的高科技公司](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [鲁比奥参议员推出《维吾尔政策法案》](/content/gnews/26/README.md)
+### [鲁比奥参议员推出《维吾尔政策法案》](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会决议：暂停俄罗斯在人权理事会的资格](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌克兰及其盟友指责俄罗斯袭击火车站造成50多人死亡](/content/gnews/28/README.md)
+### [乌克兰及其盟友指责俄罗斯袭击火车站造成50多人死亡](/content/gnews/31/README.md)
  ` 蓝莲花农场`
 
-### [美国法院恢复拜登的联邦雇员COVID疫苗强制令](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [世卫组织称在英国发现的新冠病毒新变种&#8221;XE&#8221;可能是迄今为止传染性最强的变种](/content/gnews/30/README.md)
+### [世卫组织称在英国发现的新冠病毒新变种&#8221;XE&#8221;可能是迄今为止传染性最强的变种](/content/gnews/32/README.md)
  ` KarmaLabs`
 
-### [出去买菜被警察喝斥的上海男士获得小区居民的集体助威](/content/gnews/31/README.md)
+### [出去买菜被警察喝斥的上海男士获得小区居民的集体助威](/content/gnews/33/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [7News《全球视点》现代信息化战争 炮灰也被精准锁定](/content/gnews/32/README.md)
+### [7News《全球视点》现代信息化战争 炮灰也被精准锁定](/content/gnews/34/README.md)
  ` 宁南`
 
-### [拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行](/content/gnews/33/README.md)
+### [拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行](/content/gnews/35/README.md)
  ` 美国政要直译推`
 
-### [辉瑞数据显示新冠疫苗接种者患上亚临床心肌炎的风险很高](/content/gnews/34/README.md)
+### [辉瑞数据显示新冠疫苗接种者患上亚临床心肌炎的风险很高](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟同意冻结俄罗斯联邦储蓄银行行长和普京女儿的资产](/content/gnews/35/README.md)
- ` 蓝莲花农场`
-
-### [江苏省镇江市润州区检察院以GTV信息对两位战友定罪](/content/gnews/36/README.md)
+### [江苏省镇江市润州区检察院以GTV信息对两位战友定罪](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/37/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/38/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [乌克兰东部城市一火车站遭俄军火箭弹袭击，39人丧生](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [新西兰财经G乐部2022年4月8日:财经新闻整理](/content/gnews/40/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

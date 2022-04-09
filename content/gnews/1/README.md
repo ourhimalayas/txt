@@ -2,8 +2,8 @@
 ---
 
 
-## 救援前线的战友们每时每刻都在展现着新中国联邦人的阳光形象
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314145/)
+## 疫苗灾难蔓延，储粮备药应对（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314273/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

@@ -2,33 +2,27 @@
 ---
 
 
-## 美众议院议长佩洛西将于本周日访台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2313951/)
+## 有声|台湾同胞逃离乌克兰，加入喜马拉雅农场
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2314009/)
 
-作者：纽约香草山农场 – 云豹
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-据联合报4月7日消息，美国众议院议长佩洛西（Nancy Pelosi）计划于4月10日，即《台湾关系法》立法43周年纪念日，访问台湾。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据前线战友4月6日连线报导，逃离乌克兰的台湾同胞王先生，因为参与新中国联邦前线救援工作，了解新中国联邦的信仰和追求，认同新中国联邦的灭共使命，并于近期正式加入喜马拉雅德国农场。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-26.jpg)
+文字版原文：[台湾同胞逃离乌克兰，加入喜马拉雅农场](https://gnews.org/zh-hans/2307577/)
 
-据悉，佩洛西一行预计将于10日抵达台湾。若此行成功，佩洛西将成为继金里奇后的、第二位到访台湾的美国议长。同时，蔡英文政府也正积极筹备，准备迎接美国国会议员访问团事宜。
+音频处理：Fei797
+发稿：Fei797
 
-俄罗斯发动乌克兰侵略战争后，国际社会对中共武力犯台的担忧与日俱增，台海局势成为热点。佩洛西此次访台，将进一步展现美国对美台关系的重视。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-参考链接：
-
-- [日媒：美眾院議長裴洛西改行程訪台灣 表達對台支持](https://www.cna.com.tw/news/aopl/202204075003.aspx)
-- [美眾院議長波洛西亞洲行 周日率團訪台](https://udn.com/news/story/6656/6220088)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
-
-总编/编辑：雪梨
-审核：雪梨
-校正/发稿：海阔天空1
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
