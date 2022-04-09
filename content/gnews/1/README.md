@@ -2,11 +2,11 @@
 ---
 
 
-## 文耀与老班长连线（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314957/)
+## 连线前线Medyka&#8212;营救行动对波兰当地华人的影响（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314995/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-30-09-40-01（-四）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-50-10-00-01（-二）.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

@@ -2,11 +2,11 @@
 ---
 
 
-## 文耀与老班长连线（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314917/)
+## 文耀与老班长连线（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314977/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-30-09-40-01（-二）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-30-09-40-01（-五）.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**

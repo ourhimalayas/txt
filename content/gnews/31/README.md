@@ -2,36 +2,72 @@
 ---
 
 
-## 前高盛银行家在1MDB案中被判受贿和洗钱罪成立，疑犯主谋Jho Low仍在逃
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2313662/)
+## 德国总理肖尔茨说他不会第二次推动疫苗强制政策
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2313689/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-09-上午10.33.45.png)图片来源：互联网
-前高盛银行家Roger Ng帮助马来西亚1MDB发展基金掠夺数亿美元，周五被美国陪审团判定犯有腐败罪成立。
+编译: Mandel
 
-这些指控源于历史上最大的金融丑闻之一，检察官指控高盛集团前马来西亚最高投资银行家Ng密谋违反反腐败法并洗钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
 
-他们说，他帮助他的前老板蒂姆-莱斯纳(Tim Leissner)从基金中挪用资金，对收益进行洗钱，并贿赂官员为高盛公司赢得业务。
 
-该基金的成立是为了在马来西亚开展发展项目。
 
-陪审团判定Roger Ng犯有两项通过贿赂和规避高盛内部会计控制而串谋违反《反海外腐败法》（FCPA）的罪名，以及一项串谋洗钱的罪名。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-95.png)图片来源：REUTERS/Lisi Niesner
 
-“今天的判决不仅是法治的胜利，也是马来西亚人民的胜利，”纽约东区美国检察官Breon Peace在一份声明中说。”被告和他的亲信们没有把1MDB看作是一个为马来西亚人民做好事的实体，而是看作是一个让自己发财的猪圈。”
+柏林，4月7日（路透社）- 德国总理奥拉夫·肖尔茨说，他对议会下院周四投票进行反对为60岁以上的人群强制接种新冠疫苗感到失望，但不会发起第二次尝试来推动疫苗强制。
 
-检察官说，高盛通过三次债券销售帮助1MDB筹集了65亿美元，但在2009年至2015年期间，有45亿美元通过贿赂和回扣被转给了政府官员、银行家及其同伙。
+德国的疫苗接种运动步履蹒跚，大约76.6%的德国人至少接种了一剂疫苗——低于法国、意大利和西班牙等其他西欧国家超过80%的比例。
 
-Roger Ng是第一个，也可能是唯一一个因该计划而在美国面临审判的人。高盛在2020年支付了近30亿美元的罚款，其马来西亚部门同意认罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-60.png)图片来源：REUTERS/Lisi Niesner
 
-所谓的马来西亚金融家，被怀疑是该计划主谋的Jho Low于2018年与Ng一起被起诉，目前Jho Low仍然在逃。
+一项跨党派的提案曾设想过一项法案，要求60岁及以上的公民从10月15日起强制接种新冠疫苗，以避免在秋季出现新一波病毒爆发。
 
-原文链接：[Ex-Goldman banker convicted of bribery, money laundering conspiracy charges in 1MDB case](https://www.reuters.com/business/finance/hold-us-jury-reaches-verdict-ex-goldman-bankers-1mdb-corruption-trial-2022-04-08/)
+德国的日常感染率处于较高水平，但在过去一周左右有所下降，周四报告了201,729个新病例。
+
+在参与投票的683名议员中，378人对该法案投了反对票，296人投了赞成票，这引发了极右翼AfD立法者的欢呼。这是一次自由的投票，意味着立法者没有被告知要遵循政党路线。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-42.png)图片来源：REUTERS/Lisi Niesner
+
+肖尔茨说：”我认为联邦议院的决定是非常明确的。” 他补充说，政府将寻求其他方式来提高该国的疫苗接种率，而不是再次推行强制性疫苗接种。
+
+肖尔茨在周四晚些时候说：”我们将尽一切努力说服这个国家的更多公民接种疫苗。”
+
+这次失败对肖尔茨来说是一个挫折，他甚至召回他的外交部长安娜莱娜·贝尔博克（Annalena Baerbock）离开在布鲁塞尔举行的北约会议，回来参加投票。
+
+肖尔茨上周被迫放弃为18岁以上的人强制接种疫苗的计划，因为他无法获得议会大多数的支持。
+
+参与发起该法案的立法者德克·维泽（Dirk Wiese）指责反对派的保守派，称他们阻挠该法案用来伤害政府。
+
+维泽在一份声明中说：”基民盟/基社盟（保守派）在肆无忌惮地回答一个良心问题。”
+
+该法案的失败反映了执政联盟具有挑战性的政策制定动态，该联盟由肖尔茨的社会民主党、绿党和自由派的自由民主党组成，他们在许多问题上意见不一。
+
+经过四个小时的激烈辩论，另外三项要求只建议人们接种疫苗或完全拒绝强制接种的议案也被否决。
+
+AfD的议案认为，将疫苗接种强加给公民违反了宪法第二条，该条保证了公民对自己身体的控制权。
+
+奥地利在上个月暂停了疫苗强制，因为担心侵犯权利，所以在开始对违规行为进行罚款的六天前暂停了疫苗强制令。
+
+德国医院联合会（DKG）表示，该法案草案的失败是所有各方的责任。
+
+DKG主席杰拉尔德·卡斯（Gerald Gass）告诉《莱茵邮报》：”最终，我们现在面对的是一个所有政党都负有责任的烂摊子。”
+
+由Riham Alkousaa于2022年4月8日报道。
+
+新闻来源:[Germany’s Scholz says he will not make second push for vaccine mandate](https://www.reuters.com/world/europe/german-parliament-rejects-mandatory-vaccines-blow-scholz-2022-04-07/)
 
 * * *
 
-*编辑&发布：长岛开心*
+审核：文乐     
+校对：信心满满
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜.jpeg)
 
  
 
