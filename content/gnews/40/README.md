@@ -2,40 +2,35 @@
 ---
 
 
-## 有声|德国否决中共病毒疫苗强制接种法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317496/)
+## 美参谋首长联席会议主席：俄乌战事走向不明
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317473/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月7日，德国柏林议会否决了一项自60岁起强制公民接种中共病毒疫苗的法案草案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-3.jpeg)
-该草案是由德国卫生部长劳特巴赫提出的，要求60岁以上公民强制接种疫苗，草案允许接种前咨询医生。在对该法案进行投票的683人中，378人拒绝了该法案，只有296人表示支持，其中包括德国总理肖尔茨和卫生部长劳特巴赫。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【法新社华盛顿7日报道】美国参谋首长联席会议主席（CJCS）马克.密利（Mark Milley）在联邦参议院军事委员会听证会上表示，在俄罗斯入侵乌克兰6周后，整体战事走向仍然不明朗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-2.jpg)(美国参谋长联席会议主席马克·米利 资料图
+他说，只有乌克兰依然是一个自由且独立的国家，而且其公认的领土也完好无缺，才能算是乌克兰赢得这场战争。
 
-据悉，这一结果对由中左翼的社会民主党、绿党和自由民主党组成的执政联盟是一个重大打击。此前，该部长坚持向18岁以上成年人推行严格疫苗接种计划，始终未获足够支持。经过几个月的辩论，他们甚至在政党内部都无法就这一问题达成一致。
+密利说：这会相当艰难，会是相当艰苦漫长的过程。
 
-消息人士指出，劳特巴赫此前曾宣布自5月1日起，结束隔离政策。然而，为了推行中共病毒疫苗，现在又出尔反尔，散布秋季极有可能出现新的感染，导致医疗系统崩溃等恐慌性言论。一家德国报纸因此称他为肖尔茨领导下的 “联邦混乱部长”，其种种作为正遭到反对党的指控。
+他表示，乌克兰东南部、顿巴斯一带还有一场硬仗要打，俄罗斯打算在该地区集结部队，并继续进攻。他认为（战事）会如何结束，现在仍是悬而未决的问题。
 
+美参谋首长联席会议主席：俄乌战事走向不明
 
-
-文字版原文：[德国否决中共病毒疫苗强制接种法案](https://gnews.org/zh-hans/2307149/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

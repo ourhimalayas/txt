@@ -2,29 +2,35 @@
 ---
 
 
-## 俄导弹袭击乌克兰火车站致50平民丧生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
+## 有声|美议员提案，一旦犯台，中共将被踢出国际金融体系
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318844/)
 
-作者：自由信仰
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月6日，为阻止中共侵犯台湾，美国众议员卢卡斯提出“排除中共法案”。该法案要求，一旦中共对台湾的社会、经济体系造成威胁，美国政府将采取行动，将中共踢出国际金融体系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-18.jpg)
+卢卡斯表示，中共对美国的国家安全、政治、经济构成极大的威胁。根据该法案，一旦中共攻打台湾，中共官员将被拒绝参加包括G20、国际清算银行（BIS）、国际金融稳定委员会（Financial Stability Board）、国际保险监理官协会（IAIS）、国际证券监察会组织（IOSCO）在内的国际金融组织的会议和活动。
 
-当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
 
-据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
+文字版原文：[美议员提案，一旦犯台，中共将被踢出国际金融体系](https://gnews.org/zh-hans/2313949/)
 
-另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：
-1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
-2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

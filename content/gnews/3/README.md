@@ -2,33 +2,30 @@
 ---
 
 
-## 有声|美前线医生称，大规模接种疫苗无效，死亡率更高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318857/)
+## 朝鲜拆除象征着韩朝合作的酒店
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2318907/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月5日，美国前线医生Peterson Pierre博士表示，基于英国于上月公布的中共病毒感染的统计数据，超过一百万人感染中共病毒，其中91%的成年患者接种过疫苗，而且接近90%的中共病毒死亡病例曾接种疫苗。这组数据充分说明，大规模接种疫苗不能防止病毒感染，而且死亡率更高。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-21.jpg)
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16495379671.png)WIONnews.com
+据ABC（美国广播公司） 4月8日报道，北朝鲜正在拆除的一家属韩国所有的酒店。它是南北朝鲜往来的标志。首尔官员称之为朝鲜 “单边破坏性行动”。
+
+朝鲜领导人金正恩早在2019年就称那些设施 “破旧”，并下令将其摧毁。此前韩国表示，因为美国所主导的制裁阻止了韩国继续与朝鲜接触，他们对此感到失望。
+
+由于疫情的爆发，推迟了北韩的拆除工作，朝韩事务发言人车德哲（Cha Deok cheo）敦促双边谈判。但朝鲜无视这一要求。
+
+这家浮式酒店坐落在朝鲜钻石山沿海度假胜地，在这里，韩国在上世纪90年代建造了数十处旅游设施。去钻石山旅游常常是朝鲜经济崩溃时的资金来源。2008年，在朝鲜警卫枪杀一名韩国游客后，韩国暂停了这项业务。
+
+2018年，朝韩进行了三次会晤，寄希望于结束制裁并重启钻石山旅游。但在2019年美朝关系破裂后，朝鲜暂停了与韩国的合作。3月24日，朝鲜进行了自2017年以来的首次洲际弹道导弹试验，旨在迫使美国接受朝鲜为核大国，并取消制裁。
+
+如果不取消制裁，韩国就无法重启钻石山和其它朝韩之间的业务。虽然联合国的制裁并没有直接禁止旅游业，但它们监控着由此可能产生的洗钱活动。
+
+ABC扭曲报道的拙劣手法比起《人民日报》毫不逊色！该文中，韩国在半岛局面中扮演着如此被动而低声下气的角色岂止是令人大跌眼镜，而且违背基本逻辑。一个各方面远远领先于对手的国家，何以那么在意一个旅游景点的开放？一切不合逻辑与常理的现象背后都掩盖着巨大的阴谋。可悲的是，号称堂堂的《美国广播公司》竟然如此公然为独裁张目，只教人对美国被CCP腐化渗透的程度扼腕叹息！
+
+*责编：白夜*
+
+[来源](https://abcnews.go.com/Travel/wireStory/north-demolishing-hotel-symbol-korean-engagement-83953254)
 
 
-文字版原文：[美前线医生称，大规模接种疫苗无效，死亡率更高](https://gnews.org/zh-hans/2313948/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

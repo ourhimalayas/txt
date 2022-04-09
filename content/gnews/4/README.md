@@ -2,22 +2,26 @@
 ---
 
 
-## 有声|美议员提案，一旦犯台，中共将被踢出国际金融体系
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318844/)
+## 有声|中共核武库的惊人扩张令世界安全面临更大风险
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318896/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月6日，为阻止中共侵犯台湾，美国众议员卢卡斯提出“排除中共法案”。该法案要求，一旦中共对台湾的社会、经济体系造成威胁，美国政府将采取行动，将中共踢出国际金融体系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-18.jpg)
-卢卡斯表示，中共对美国的国家安全、政治、经济构成极大的威胁。根据该法案，一旦中共攻打台湾，中共官员将被拒绝参加包括G20、国际清算银行（BIS）、国际金融稳定委员会（Financial Stability Board）、国际保险监理官协会（IAIS）、国际证券监察会组织（IOSCO）在内的国际金融组织的会议和活动。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据外媒报道，美国战略司令部司令于4月6日警告美国立法者，中共目前正在进行战略核武库的“惊人扩张”。相关报告发表在美国众议院国防拨款小组委员会的网站上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-61.png)图片源自网络
+该报告显示，中共希望在2027年将目前核弹头增加一倍，达到700枚；到2030年希望是1000枚，这比正常预估增加一倍以上。中共还在投资并扩大陆、海、空运载核弹头的能力，并建设配套基础设施。在地广人稀的西部地区加大资金投入用于建立核导弹场，每个已知的核导弹场大约有120个导弹发射井。中共还有地球卫星和地面大型雷达用来监控导弹和隐形飞机。
+
+2021年7月中共首次试验新型洲际导弹，配备有DF-ZF（东风系列导弹），它可以在世界任何地方进行精确打击，也可以用来运送核武器。该试验是迄今为止地球上陆地攻击系统中的最远距离和最长飞行时间。  
+
+随着中共对其核武器的大规模投资，它可以联合俄罗斯等邪恶国家，将地区冲突升级，严重威胁到美国乃至整个世界的安全。
 
 
 
-文字版原文：[美议员提案，一旦犯台，中共将被踢出国际金融体系](https://gnews.org/zh-hans/2313949/)
+文字版原文：[中共核武库的惊人扩张令世界安全面临更大风险](https://gnews.org/zh-hans/2314006/)
 
 音频处理：Tom Li
 发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,7 +34,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

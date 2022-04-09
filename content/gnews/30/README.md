@@ -2,51 +2,30 @@
 ---
 
 
-## 民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2317914/)
+## 入上海的高速口几乎全封
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317819/)
 
-#### 雅典娜情报组《民生、失业收集专栏》
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GKTQJKGYFZCCTMBQ2PIVNIJGYE.jpg)
+近日中共在上海发动了大防疫运动，防疫手段是处处设置关卡，不允许随意出入。老百姓被困在家中有的已经长达一个月了。所谓的防疫运动小组都由居委会组成，不仅不给老百姓发菜，并且随意殴打不得已需要出入的百姓。在网路传出的小视频中我们看到很多老百姓没菜吃，快被饿死了。在网路一片我们没菜吃，谁来救救我们的呼喊声中，中共反而变本加厉，4月8日前后中共以疫情为由将上海本地，以及出入上海的多条高速入口和出口实施封堵。
 
-整理/编辑：五伊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1032.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1033.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1034.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1035.png)
-**工作7年的单位突然裁员降薪**
+随意打开一个地图app，可以看到高速路口密密麻麻的封禁符号。平常大卡车每天都会运送物资，可以保证供应链正常运行。中共以疫情为名堵路，高速路上行驶的大卡车被困在路上，司机下到休息区就要强制隔离，连核酸都不用测。很多想要为上海运送物资的卡车会被堵在路上，运送到的物资居委会也不会发放，等着烂掉。根据京东的供应链反馈，上海大的物资集散地被封，又由于各地不同的防疫规定，办车证，卡司机，来来回回和当地政府进行消耗战，京东已经动用了合作伙伴的库存，但也还是一车一车的物资烂掉也到不了老百姓手里。
 
-#找工作啊找工作 #工作
 
-时代的一粒灰，落在个人头上就是一座山
 
-这句话我今年才真切体会到
+撰稿、发布：骄子
 
-经济下行，准确说房地产下行
+* * *
 
-导致房地产下游企业
+欢迎订阅我们的GNews账号：
 
-例如我所在的地产广告公司效益骤减
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-老板迫于压力只好裁员降薪开源节流
-
-昨晚还在为公司拼命，第二天一早就被告知“请离开”
-
-这样的人不在少数
-
-也不知道自己什么时候也会出现在辞退名单上
-
-前路迷茫……
-
-只能说：选对赛道真的很重要啊！
-
-发布于 2022-04-07 00:21
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1036.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1037.png)图片来源：小红书
-参考链接：[工作7年的单位突然裁员降薪](http://xhslink.com/utLcFg)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,21 @@
 ---
 
 
-## 诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317474/)
+## 视频文编|飞飞有感而发：人民需要无皇有主的时代
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2317453/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-俄罗斯诺贝尔和平奖得主、《新报》总编德米特里·穆拉托夫说，他在火车上被含有溶剂丙酮的红色油漆袭击。这起事件发生在周四的莫斯科通往萨马拉的火车上。
+撰稿：东京樱花团/瓜子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-09_220915.png)
+关于俄乌战争，飞飞有感而发，人民需要和平，人民也需要自由，人民需要一个无皇（权）有（民）主的时代，才可能获得真正长久的自由。俄罗斯入侵乌克兰，使无数的乌克兰战士、平民、孩子丧失生命，使城市变为废墟。作为独裁者的普京，决不会低下他所谓高贵的头颅，轻易撤兵。乌克兰和俄罗斯再次和平相处、达成和解不会是一件轻而易举的事情。与此同时，全世界越来越清楚中共才是俄乌战争背后的推手，俄乌战争事实上是中共与美国之战。欧美西方国家通过俄乌战争，会更加认清来自中共的威胁，会坚决支持消灭中共，还一个无皇权、有民主的中国。
 
-袭击后果的图片发表在《新报》的电报频道上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-2.jpg)（穆拉托夫在火车上遭到袭击后，在社交媒体上发布了自己的照片。照片：提供/Novaya Gazeta）![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.jpg)(照片：提供/Novaya Gazeta)
-《新公报》自由派报纸的编辑说，该报在莫斯科就其对俄乌战争的报道发出警告后，已停止运营。
+消息来源：
+[2022年3月30日《文贵大直播》](https://gettr.com/streaming/p12oba38c9d)
 
-最近，一些公开反对俄罗斯入侵乌克兰的俄罗斯活动家和记者的家园遭到了不知名的亲克里姆林宫派别人物的破坏。
+编辑：东京樱花团/曲别针
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
 
-目前，反对战争的人在俄罗斯的生活变得越来越困难。任何将俄罗斯在乌克兰的行动描述为“战争”的人都将面临巨额罚款或关押。俄政府通过了一项法律，声称对散布有关战争“虚假”信息的人判处 15 年监禁。
 
-俄罗斯总统普京和其他政界人士将任何反对战争的行为描述成对国家的背叛。
-
-[【援引连结】](https://www.rnz.co.nz/news/world/464907/nobel-peace-prize-winning-russian-anti-war-journalist-attacked-with-paint)
-
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
