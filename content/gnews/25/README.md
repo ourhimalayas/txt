@@ -2,36 +2,46 @@
 ---
 
 
-## 微软没收了俄罗斯用来攻击乌克兰的域名
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317583/)
+## 有声|波士顿马拉松赛禁止俄罗斯和白俄罗斯运动员参赛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317906/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/APT28-2.jpg)
-当地时间4月8日，微软成功没收了俄罗斯军情间谍运营的APT28使用的域名，这些域名是俄罗斯用来追踪乌克兰、美国、欧洲外交政府机构和各类智囊团的。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+波士顿体育协会在4月6日周三的一份新闻稿中宣布了一项禁令，禁止俄罗斯和白俄罗斯的运动员参加本月18日举行的波士顿马拉松比赛，理由是俄罗斯入侵乌克兰和白俄罗斯政府的援俄。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123.jpg)图片来源： www.nytimes.com
+波士顿体育协会主席兼首席执行官汤姆-格里尔克说：“与世界上许多人一样，我们对在乌克兰的报道中所看到和了解到的情况感到震惊和愤怒。我们相信，跑步是一项全球性的运动，因此，我们必须尽我们所能，向乌克兰人民表示支持。”
 
-微软表示它在4月6日得到法院命令，授权对俄罗斯APT28用于网路攻击的7个域名进行控制。微软已经将这些域名重新定向到天坑，启用了受害者通知，并向乌克兰政府通报了检测活动和目前的行动。
+官员们说，报名参加这次从马萨诸塞州霍普金顿(Hopkinton)到宾夕法尼亚州博伊尔斯顿街跑步的乌克兰运动员将被允许推迟到明年参赛，或者在无法到达起跑线时获得退款。
 
-这一行动从2016年开始，是作为微软对俄罗斯国家支持的具有战争目的黑客进行调查的一部分。近年来微软得到几项法院裁决，用来查封APT28使用的基础设施。微软目前已经查封100多个类似的间谍域名。
+据组织者称，被接受参加精英赛的俄罗斯和白俄罗斯选手将获得退款。但是，居住在其他地方的极权主义国家的公民将被允许在他们本国的旗帜下参加比赛。
 
-APT28从2009年开始就很活跃，主要用于攻击各国媒体、军事、安全组织过以及政府。它与2015年的德国联邦会议、2016年的民主党全国委员会、以及美国通信商Viasat，其中对美国Viasat的这次攻击导致了中欧和东欧的卫星服务中断，影响力扩大至全球的家庭和小型企业路由器和网路设备。
+波士顿马拉松赛的冠军可获得150,000美元的奖金。自1897年开始的年度比赛以来，没有任何俄罗斯或白俄罗斯男子获得过冠军。Lidiya Grigoryeva是2007年赢得26.2英里比赛的最后一位俄罗斯女性。
 
-reference：
+俄罗斯总统普京发动侵略乌克兰的战争，对乌克兰人进行杀戮、强暴，致使乌克兰人死伤惨重，老百姓逃离家园，流离失所。世界的舆论是偏向乌克兰的，因为乌克兰是受害国，乌克兰人是受害者。波士顿体育协会这样的民间组织宣布对俄罗斯和白俄罗斯的运动员的禁令，以声援乌克兰，无可厚非。但是自俄乌战争爆发后，世界各地的反俄的仇恨犯罪直线上升。在加州圣地亚哥，一家以俄罗斯为主题的餐厅收到了威胁和仇恨的信息，在华盛顿特区，另一家餐厅被破坏了。最近在纽约布鲁克林，一名手持支持乌克兰东部分离主义地区的亲俄顿涅茨克旗帜的男子遭到袭击，在加拿大卡尔加里，一座俄罗斯东正教教堂遭到了破坏。而比起这些，在欧洲反俄的仇恨犯罪有过之而无不及。
 
-[https://news.yahoo.com/microsoft-seizes-domains-used-russian-123748040.html](https://news.yahoo.com/microsoft-seizes-domains-used-russian-123748040.html)
+我们知道俄罗斯的普京政府尽管披着民主的外衣，但其本质仍然是专制的。俄罗斯的人民不等于俄罗斯政府，但对于大多数人来说，很难做到将两者完全区分开来。这就让我联想到由爆料革命的先驱郭文贵先生提出的“中国人不等于中国共产党”是多么的英明。这次新中国联邦人在波兰前线进行的救援乌克兰难民的活动，让全世界人明白，不应该仇华，因为我们新中国联邦人要推翻万恶的中国共产党，我们人民不应该为中共政府的腐败、专制和暴政买单。
 
-撰稿、发布：骄子
 
-* * *
 
-欢迎订阅我们的GNews账号：
+文字版原文：[波士顿马拉松赛禁止俄罗斯和白俄罗斯运动员参赛](https://gnews.org/zh-hans/2311471/)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

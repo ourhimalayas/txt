@@ -2,25 +2,25 @@
 ---
 
 
-## 有声｜美国将限制俄罗斯进口化肥和管道阀门等商品
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2318131/)
+## 2022年4月9日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2318240/)
 
-By:**秘翻新闻**
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-**2022-04-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/409-5-scaled.jpg)
-[《路透社》](https://www.reuters.com/business/biden-administration-curbs-russian-access-foreign-fertilizers-valves-2022-04-08/)华盛顿4月8日报道，周五，美国再次扩大了对俄罗斯和白俄罗斯的制裁，限制了两国从西方进口化肥和管道阀门等产品。在俄罗斯入侵乌克兰后，美国对俄罗斯和白俄罗斯的制裁正在逐步升级。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0978.jpg)
 
-报道指出，拜登政府还限制白俄罗斯人拥有、控制或租用美国制造的飞机，以此作为美国对白俄罗斯支持俄罗斯侵略暴行的回应。
+发稿：信心的选择
 
-美国商务部表示，将开始使用特别许可证来阻断俄罗斯和白俄罗斯人在美国供应商中的购买渠道。包括购买化肥、管道阀门、滚珠轴承和其他零部件、材料及化学品。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-(秘翻新闻  冰糖葫芦喵编译报道)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
 
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

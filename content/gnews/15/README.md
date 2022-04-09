@@ -2,51 +2,33 @@
 ---
 
 
-## 民生灾难，房地产失业（2022.4.9）&#8211;工作7年的单位突然裁员降薪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2317914/)
+## 有声｜百家中共国公司被查 涉嫌挖走台湾芯片人才
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2318146/)
 
-#### 雅典娜情报组《民生、失业收集专栏》
+By:**秘翻新闻**
 
-整理/编辑：五伊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1032.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1033.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1034.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1035.png)
-**工作7年的单位突然裁员降薪**
+**2022-04-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/409-6-scaled.jpg)
+[新唐人](https://www.ntdtv.com/gb/2022/04/08/a103395277.html)4月08日报道，路透社引述台湾司法部调查局一位高官的话说，台湾的间谍猎手对大约100家中共国公司展开调查，这些公司涉嫌非法挖走台湾半导体工程师和其他科技人才。
 
-#找工作啊找工作 #工作
+这位高级别官员表示，从去年初以来，7家中共国公司被起诉，27家公司被突击搜查或公司老板被调查局传讯。
 
-时代的一粒灰，落在个人头上就是一座山
+报导表示，目前全球芯片短缺，特别是美国前总统川普打响中美贸易战以后，中共公开宣称要实现先进芯片自给自足的目标，这也加剧了对工程人才的争夺。
 
-这句话我今年才真切体会到
+台湾作为芯片行业巨头台积电的故乡，拥有世界上92%最先进的半导体制造能力，并拥有中共国急缺的专业芯片技术。
 
-经济下行，准确说房地产下行
+台湾于2020年12月在司法部调查局内成立了一个特别工作组，以打击非法挖走人才的行为。司法部调查局是台湾反间谍机构，主要负责抓捕间谍组织。
 
-导致房地产下游企业
+司法部官员还告诉路透社，调查局的突击搜查和问询行动只是调查行动的冰山一角。这名官员不愿透露姓名，以免妨碍调查。
 
-例如我所在的地产广告公司效益骤减
+台湾司法部调查局肯定了这名官员的言论。
 
-老板迫于压力只好裁员降薪开源节流
+（秘翻新闻 二丫编辑）
 
-昨晚还在为公司拼命，第二天一早就被告知“请离开”
+发布 : 文橙
 
-这样的人不在少数
-
-也不知道自己什么时候也会出现在辞退名单上
-
-前路迷茫……
-
-只能说：选对赛道真的很重要啊！
-
-发布于 2022-04-07 00:21
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1036.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1037.png)图片来源：小红书
-参考链接：[工作7年的单位突然裁员降薪](http://xhslink.com/utLcFg)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

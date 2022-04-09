@@ -2,41 +2,30 @@
 ---
 
 
-## 因消费国计划从紧急库存中释放 2.4 亿桶石油预计油价本周将下跌约3%
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317476/)
+## 入上海的高速口几乎全封
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317819/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【路透社4月8日报道】油价周五上涨，但本周六将下跌约 3%，因为消费国计划从紧急库存中释放 2.4 亿桶石油，这抵消了关于俄罗斯因西方制裁而减少供应的一些担忧。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image008-2.jpg)
-布伦特原油期货走低55美分/0.6%，至每桶100.03美元，此前早间上涨超过1美元。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GKTQJKGYFZCCTMBQ2PIVNIJGYE.jpg)
+近日中共在上海发动了大防疫运动，防疫手段是处处设置关卡，不允许随意出入。老百姓被困在家中有的已经长达一个月了。所谓的防疫运动小组都由居委会组成，不仅不给老百姓发菜，并且随意殴打不得已需要出入的百姓。在网路传出的小视频中我们看到很多老百姓没菜吃，快被饿死了。在网路一片我们没菜吃，谁来救救我们的呼喊声中，中共反而变本加厉，4月8日前后中共以疫情为由将上海本地，以及出入上海的多条高速入口和出口实施封堵。
 
-美国西得克萨斯中质原油（WTI）期货下跌34美分/0.4%，至每桶95.67美元。
+随意打开一个地图app，可以看到高速路口密密麻麻的封禁符号。平常大卡车每天都会运送物资，可以保证供应链正常运行。中共以疫情为名堵路，高速路上行驶的大卡车被困在路上，司机下到休息区就要强制隔离，连核酸都不用测。很多想要为上海运送物资的卡车会被堵在路上，运送到的物资居委会也不会发放，等着烂掉。根据京东的供应链反馈，上海大的物资集散地被封，又由于各地不同的防疫规定，办车证，卡司机，来来回回和当地政府进行消耗战，京东已经动用了合作伙伴的库存，但也还是一车一车的物资烂掉也到不了老百姓手里。
 
-有分析师表示，从5月到年底，每天紧急释放约100万桶石油，可能会在短期内限制价格上涨，但是，如果更多国家因俄罗斯入侵乌克兰而对其实施制裁，则无法完全弥补损失的数量。
 
-由于中共国的疫情封锁，隶属于中共国家石油公司的智库将其对中国第二季度石油需求的预估下调到了18 万桶/日。
 
-与此同时，欧盟在计划禁运俄罗斯煤炭后考虑禁止俄罗斯石油，这将在短期内限制油价的下跌。
+撰稿、发布：骄子
 
-布伦特原油期货走低55美分/0.6%，至每桶100.03美元，此前早间上涨超过1美元。
+* * *
 
-[【援引连结】](https://www.reuters.com/business/energy/oil-headed-3-weekly-fall-emergency-stocks-release-2022-04-08/)
+欢迎订阅我们的GNews账号：
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

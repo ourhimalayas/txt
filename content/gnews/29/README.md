@@ -2,34 +2,34 @@
 ---
 
 
-## 意大利的Intesa加强对俄罗斯活动的检查并停止贷款
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317475/)
+## 大直播后记：几位嘉宾对小Sara前线的表现的感想
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2317812/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【路透社4 月 8 日报导】自乌克兰战争开始以来，联合圣保罗银行(ISP.MI)已停止向俄罗斯和白俄罗斯方面提供任何融资，并且，把当地业务置于危机部门的特别监督之下。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image010-1.jpg)
-在继续进行战略审查的同时，Intesa 也停止了对俄罗斯和白俄罗斯金融工具的投资。
+整理：GHope、自新
+编辑：Mohegayer K. Simon
 
-发言人在一封电子邮件声明中指出：“与俄罗斯和白俄罗斯交易对手的所有商业活动——包括该集团俄罗斯子公司俄罗斯联合银行的活动——都受到了加强的监控和分析。”
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-692.png)图片来源：墨尔本雅典娜农场设计组
 
-[【援引连结】](https://www.reuters.com/business/finance/italys-intesa-heightens-checks-russia-activities-halts-lending-2022-04-08/)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+宁南：我们先请大牛和巴黎来谈一下，跟前线战友们连完线之后一点感受。
 
+大牛：好的，今天直播一开始就听到一个最好的消息，之前感染的战友明天全部都会出关了。希望所有在前线的战友们一定要照顾好自己的身体，我们新中国联邦刚到前线救援的时候，这个帐篷的地方是一片空地，现在我们整个帐篷是前线最有温度的，是最受欢迎的。大家到营地，看到法治基金的log，大家都会问，你们是什么组织，你们是 代表什么。现在更多的人，他们直接说出来你们是Miles Guo 的爆料革命，或者是直接说出法制基金或者新中国联邦，甚至说你们跟中国共产党是不一样的，你们是消灭共产党的新中国联邦人。而这个是我们一点一滴的行动累积出来的。这个结果是非常非常重要的，让大家知道中共不等于中国人，可以防止以后的排华浪潮。
+
+巴黎： 在前线的战友们辛苦了，战友们日夜的守候，给乌克兰难民帮助，让别人认识到新中国联邦人的伟大与无私的付出。
+
+宁南：我们请风雨之中来谈一下。
+
+风雨之中：刚才小Sara在采访当中，说他们都把我当成了一个有名的人,其实我只是一个普通人家的女孩子。中国有句老话，图名当途万世名，计利应计天下利。从文贵先生到每一个没有见过、没有露过面的秘密的战友，包括每一天辛苦的做PPT，做所有的文案资料的战友，我觉得都是这样的人。我们是在参与历史，就像我们今天同框同心。留下了我们每一个人的音容笑貌，都会记在历史当中，也都会记在我们每一个人的心里。
+
+资料来源：[2022年4月8日 文贵大直播](https://www.gettr.com/streaming/p147s0qfc4d)
+
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

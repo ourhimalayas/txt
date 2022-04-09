@@ -2,33 +2,34 @@
 ---
 
 
-## 有声｜百家中共国公司被查 涉嫌挖走台湾芯片人才
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2318146/)
+## 中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318265/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本和俄罗斯政府已在协调启动有关在俄罗斯河流中出生的鲑鱼和鳟鱼的渔业谈判。据悉，或将在下周举行关于在日本专属经济区（EEZ）内渔获量的谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-27.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://s3-us-west-2.amazonaws.com/staticassets.oceanoutcomes.org/hero+photos/hokkaidosuccesshero.jpg&amp;imgrefurl=https://www.oceanoutcomes.org/what-we-do/success-stories/hokkaido-chum/&amp;tbnid=l3LfIEAk4yXqUM&amp;vet=12ahUKEwj-5Z_omIf3AhXkJqYKHYZJCAwQMygEegUIARCzAQ..i&amp;docid=9TF8Lg4W0WRXbM&amp;w=1100&amp;h=590&amp;q=Japanese%20salmon%20fishing&amp;ved=2ahUKEwj-5Z_omIf3AhXkJqYKHYZJCAwQMygEegUIARCzAQ)
+据日本共同社4月8日消息，日本和俄罗斯政府已在协调启动有关在俄罗斯河流中出生的鲑鱼和鳟鱼的渔业谈判。据悉，或将在下周举行关于在日本专属经济区（EEZ）内渔获量的谈判。
 
-**2022-04-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/409-6-scaled.jpg)
-[新唐人](https://www.ntdtv.com/gb/2022/04/08/a103395277.html)4月08日报道，路透社引述台湾司法部调查局一位高官的话说，台湾的间谍猎手对大约100家中共国公司展开调查，这些公司涉嫌非法挖走台湾半导体工程师和其他科技人才。
+按照惯例，日俄每年春季就鲑鱼和鳟鱼的渔获量等进行谈判。日本专属经济区（EEZ）内的最佳渔期被认为是4～5月前后，正在临近期限。日本希望最快4月11日开始在线谈判，敲定捕鱼作业的条件，为北海道等国内渔业人员出海捕鱼提供支援。谈判由水产厅干部等负责。
 
-这位高级别官员表示，从去年初以来，7家中共国公司被起诉，27家公司被突击搜查或公司老板被调查局传讯。
+即便是在日本EEZ内捕鱼，由于鲑鱼和鳟鱼出生在俄方河流中，因此需要向俄方支付渔业合作费。去年谈判中，双方就日本EEZ内的鲑鱼和鳟鱼渔获量合计为2050吨达成了一致。渔业合作费则同意在2.6亿日元（约合人民币1331万元）～3亿日元多的范围内，根据渔获的实际情况来决定等。
 
-报导表示，目前全球芯片短缺，特别是美国前总统川普打响中美贸易战以后，中共公开宣称要实现先进芯片自给自足的目标，这也加剧了对工程人才的争夺。
+另一方面，俄罗斯EEZ内全面捕鱼是在6月前后。日本渔船一贯试行拖网捕鱼并支付入渔费。目前，日本EEZ内的谈判或成为焦点。
 
-台湾作为芯片行业巨头台积电的故乡，拥有世界上92%最先进的半导体制造能力，并拥有中共国急缺的专业芯片技术。
+由于俄乌战争，谈判能否如期举行变得不确定。如果无法谈判或者谈判失败，那么对日本渔业人员的影响将无法避免。
 
-台湾于2020年12月在司法部调查局内成立了一个特别工作组，以打击非法挖走人才的行为。司法部调查局是台湾反间谍机构，主要负责抓捕间谍组织。
+信息来源：[独家：日俄拟启动有关鲑鱼和鳟鱼的渔业谈判](https://china.kyodonews.net/news/2022/04/3c4937f7eae6.html)
 
-司法部官员还告诉路透社，调查局的突击搜查和问询行动只是调查行动的冰山一角。这名官员不愿透露姓名，以免妨碍调查。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-台湾司法部调查局肯定了这名官员的言论。
-
-（秘翻新闻 二丫编辑）
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
