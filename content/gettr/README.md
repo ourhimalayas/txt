@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@adelin 4/9/2022 5:02 PM (UTC)`
+
+新中国联邦 青蒿素衍生物解疫苗及新冠病毒刺突蛋白毒的成人建议方案. 方案仍在不断改进中,请关注不定期的更新信息.一切是为了健康和灭共!
+![img](https://media.gettr.com/group26/origin/2022/04/09/17/590a7a88-6dc2-0243-26a4-8dd91a1bf0b4/c77b01ea4b057e5c56cbfdfea5e6ce68.png)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@mos_movie 4/9/2022 2:57 PM (UTC)`
 
 🌶️The Spiced有‘料’🌶️<br/><br/>中共在校园发起支持俄罗斯侵略乌克兰的舆论战<br/>The CCP launched a public opinion war on campus to support Russia's aggression against Ukraine<br/><br/>中共是人类一切灾难的根源，是俄罗斯侵略乌克兰的始作俑者与背后金主。中共在校园刻意误导学生对乌克兰危机的认识与判断是令人发指的精神强奸，只有灭共才能拯救同胞！<br/>[GETTR] The CCP is the root cause of all human disasters, and is the initiator and financial master behind Russia's aggression against Ukraine. The CCP is deliberately misleading students on campus about the crisis in Ukraine, which is a heinous form of spiritual rape. Only the elimination of the CCP can save our compatriots!<br/><br/>#学校 #School #乌克兰局势  #ThesituationinUkraine #口径 #Caliber #舆论 #Opinion #乌克兰 #Ukraine #俄罗斯  #Russia #学院  #College
@@ -147,13 +156,6 @@
 
 【Ukraine Rescue】 04/07/2022  A cup of morning NFSC coffee is the choice of each Israel volunteers at the Medyka rescue camp<br/><br/>【乌克兰救援】 04/07/2022 在梅迪卡救援营地，以色列志愿者们人手一杯新中国联邦的醒晨咖啡<br/>
 ![img](https://media.gettr.com/group46/getter/2022/04/09/03/401cf72a-bc3c-885c-37a1-a4615859a1ae/out.jpg)
-
----
-
-`@miles 4/9/2022 3:43 AM (UTC)`
-
-【Ukraine Rescue】 04/07/2022 “You're the real unsung heroes of this. You’re in the middle of the darkest darkness, yet you keep fighting. And it is beautiful and encouraging for the rest of us. And I want you to know you're not alone.” A Danish Christian volunteer called Miriam expressed her applaud to the Chinese inside China fighting against communism<br/><br/>【乌克兰救援】 04/07/2022 “你们是这场运动中真正的无名英雄，你们身处最黑暗的地方，但是你们还在继续战斗。 你们的美丽激励着我们这些人，我想要你们知道你们不是一个人在战斗“ 。一位叫做米里亚姆的丹麦基督徒志愿者赞美中共国内的战友们。<br/>
-![img](https://media.gettr.com/group8/getter/2022/04/09/03/c1837992-0681-71a6-a633-ee499fccff3c/out.jpg)
 
 ---
 
