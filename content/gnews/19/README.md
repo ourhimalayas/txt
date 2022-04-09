@@ -2,28 +2,28 @@
 ---
 
 
-## 上海疫情防控进入恶性循环
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318785/)
+## 俄导弹袭击乌克兰火车站致50平民丧生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
 
-作者：马克文，百合观察
+作者：自由信仰
 
-当地时间4月8日，据相关媒体报道，中共上海市政府正在以疫情爆发为由，强制当地两千五百万市民禁足家中或进入方舱医院隔离，从而可以响应当局所谓的“清零”政策。
+当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
 
-报道提及，上海正在实行极为严苛的封锁政策：任何居住小区中即使仅出现一例阳性患者，整个小区的居民都必须全员无限期的居家隔离；部分民众甚至在并未确诊的情况下被无故关押至方舱医院。
+据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
 
-同时，中共当局迟迟不给出明确的解封日期，这也导致上海市的供应链近期极不稳定，居民生活物资匮乏。据墙内社交媒体平台的消息显示，上海市民忍饥挨饿已经成为每天生活的常态，而抢菜则成为生存的头等大事。
+另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
 
-分析人士指出，上海的疫情防控目前已经进入了恶性循环，但这也意味着中共病毒及其疫苗所带来的灾难正在墙内拉开序幕。
-
-参考链接：[新冠疫情：封控中的上海市民生活—核酸，方艙，搶菜和憤怒](https://www.bbc.com/zhongwen/trad/chinese-news-61034679)
+参考链接：
+1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
+2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
 总编：Irene木木
-编辑：Irene木木
-审核：Ivy001
+编辑：宁文静
+审核：Irene木木
 校正/发稿：谐趣园
 
  

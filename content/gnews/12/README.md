@@ -2,51 +2,90 @@
 ---
 
 
-## 有声|美国两项制裁俄-白法案只等签字，中共将陷入能源危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318925/)
+## 比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2318968/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2022年4月7日，《暂停从俄罗斯进口能源法》(Suspending Energy Imports from Russia Act)，和《暂停与俄罗斯和白俄罗斯正常贸易关系法》(Suspending Normal Trade Relations with Russia and Belarus Act)通过国会投票，现已递交白宫，等候拜登签字生效。
-
-俄乌战争2月24日爆发后，美国参众两院从来没有停止过通过立法，制裁战争发动方的努力。
-
-3月8日，《暂停从俄罗斯进口能源法》起草完毕，并提交给了美国众议院筹款委员会，金融服务委员会、外交事务委员会、对外关系委员会、财政委员会。3月9日，法案提交给美国众议院。整个审议、讨论从上午9点开始一直持续到晚上11点。最后以414票赞成17票反对通过该决议，并提交给参议院。3月23日，美国参议院收到法案。3月24-4月7日，参议院进入阅读、审议阶段，7日，参议院以100 ： 0压倒性票数通过该法案。当天提交总统签字。
-
-3月17日，《暂停与俄罗斯和白俄罗斯正常贸易关系法》起草完毕，提交参院完成审议，最终以424：8的投票结果通过。4月7日法案在众议院以420：3的优势通过。当天提交总统签字。
-
-《暂停从俄罗斯法案进口能源法》要求，1、禁止进出口俄罗斯联邦能源产品；2、永久授权总统根据侵犯人权行为实施签证和财产封锁制裁，并修改了总统实施这些制裁的权力。3、法案一般禁止进口归类于协调关税表第 27 章的俄罗斯产品（包括矿物燃料、矿物油及其蒸馏产品、沥青物质和矿物蜡），但已经装船的产品除外。4、总统可以出于国家利益的原因放弃这一禁令，但须经国会批准。5、该法案指示美国贸易代表采取某些行动，包括考虑暂停俄罗斯参与世界贸易组织的措施。6、该法案终止必须满足俄罗斯军队撤出并停止军事敌对行动，并为乌克兰自由和独立政府所接受；不对任何北大西洋公约组织成员国构成直接的军事侵略威胁以及承认乌克兰人民有权独立和自由地选择自己的政府。
-
-而《暂停与俄罗斯和白俄罗斯正常贸易关系法》要求：1、暂停与和俄罗斯和白俄罗斯的正常贸易关系。2、永久授权总统实施基于侵犯人权的财产封锁的签证制裁。3、总统有权宣布提高适用于美国产品的关税税率，授权于 2024 年 1 月 1 日终止。4、美国贸易代表应利用美国在世贸组织的发言权和影响力，谴责最近对乌克兰的侵略，鼓励其他世贸组织成员暂停对俄罗斯联邦和白俄罗斯共和国的贸易优惠，并考虑采取进一步措施，暂停俄罗斯与白俄罗斯入世贸组织的进程。5、根据《全球马格尼茨基人权问责法》重新授权对侵犯人权和腐败行为的制裁。
-
-一些立法者曾表示，如果现在不对贸易法案采取行动，将会向盟国和俄罗斯发出错误的信息。参与《暂停从俄罗斯进口能源法》起草的参议员克莱默说，我们必须尽我们所能来挤压俄罗斯的能源收入。首先是禁止俄罗斯能源进口。我们还需要发出信号，即美国不会帮助资助弗拉基米尔·普京的侵略。我们的后院拥有取代俄罗斯肮脏产品所必需的自然资源。在俄罗斯暴力入侵乌克兰之后，这是我们必须为国家、能源和经济安全采取的步骤。
-
-对此另一位参与法案的起草者参议院曼钦说，这项跨党派法案表明我们坚定承诺支持乌克兰人民的英勇努力以及我们在欧洲的盟友为谴责普京及其持续侵略而采取的措施。我敦促舒默领袖迅速将这项两党法案付诸表决，并敦促我的同事支持它。
-
-在俄罗斯侵略乌克兰的事件上，美国两党已经保持高度的一致。未来只要俄罗斯继续在乌克兰展开军事行动，占据城镇，可以想见欧美国家还会给予他们更为严重的经济制裁与打击。这种态度，也在暗示中共希望通过钟摆效应，玩弄政治，美国内部撕裂，进而达到攻打台湾的目的，只会招来美国更为严厉的制裁甚至是军事打击。
+**比尔·戈茨**： 
+隐瞒与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关系的堪萨斯大学教授被判有罪； 窃取农业机密的中共国公民被判入狱 
+【附华盛顿时报登载的比尔·戈茨文章：陪审团定罪被指控隐瞒与中共国关系的堪萨斯教授。此为第二位中国公民因盗窃农业商业秘密被判刑】
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220301_news_swift-1.jpg)
+
+> University of Kansas professor who hid Chinese government ties convicted; Chinese national who stole agricultural secrets sentenced to prison [https://t.co/Sn3PWMNdLV](https://t.co/Sn3PWMNdLV)
+> — Bill Gertz (@BillGertz) [April 9, 2022](https://twitter.com/BillGertz/status/1512589920803573762?ref_src=twsrc%5Etfw)
 
 
-文字版原文：[美国两项制裁俄-白法案只等签字，中共将陷入能源危机](https://gnews.org/zh-hans/2314204/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+**参议员玛莎·布莱克本**：
+[#共产中国](https://www.gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 正在加速他的核武器建设。拜登政府是时候描绘一下“以实力谋和平”—— 不要再软弱的谈话。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+> Communist China is accelerating its nuclear weapons buildup. 
+> 
+> This is the time for the Biden administration to portray ‘peace through strength’ — not more weak talk.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512807847775641607?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**前国务卿迈克·蓬佩奥**： 
+我们必须恢复重视家庭和努力工作的美国梦。 我们共和党可以为此领路。 我们必须团结起来，拯救我们的美国生活方式。
+
+
+
+> We must have a restoration of the American Dream that values family and hard work. Our party can lead the way. We must unite and save our American way of life.
+> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512811327743574016?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本**： 
+乌克兰正在发生的事情令人作呕。 俄罗斯为无辜、受恐吓的乌克兰人设立了“过滤营地”——西方不能坐视不管。
+
+
+
+> What’s happening in Ukraine is sickening. Russia has set up ‘filtration camps’ for innocent, terrorized Ukrainians — the West cannot sit back silently.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512894495116955649?ref_src=twsrc%5Etfw)
+
+
+
+**众议院共和党**：
+拜登以牺牲消费者和我们的国家安全为代价，在他的反能源议程上加倍下注：
+－向独裁者和外国对手乞求石油
+－将我们的战略石油储备消耗到40年来的最低点
+－提议对国内生产征收新税
+
+
+
+> Biden is doubling down on his anti-energy agenda at the expense of consumers and our national security:
+> 
+> ❌Begging dictators & foreign adversaries for oil
+> ❌Depleting our Strategic Petroleum Reserve to the lowest point in 40 years
+> ❌Proposing new taxes on domestic production
+> — House Republicans (@HouseGOP) [April 9, 2022](https://twitter.com/HouseGOP/status/1512795466546696194?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克·蓬佩奥**： 
+信仰激发无畏； 这是引导乔治华盛顿走向胜利的原因。 我们都必须让我们的信仰引领我们。 造物主就是我们的向导。
+
+
+
+> Faith imbues fearlessness; it is what guided George Washington to victory. We must all let our faith lead us. And The Creator to be our guide. [pic.twitter.com/QRwEuG7Og5](https://t.co/QRwEuG7Og5)
+> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512837782779187200?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨新闻室**： 
+华尔兹议员与同事国会议员一道，写信敦促司法部长加兰，通过任命一名特别顾问来监督针对亨特拜登与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和其他外国政府交易的调查，以确保调查能公平客观地进行。 【附信函】
+
+
+
+> Rep. Waltz joined fellow members of Congress in a letter urging Attorney General Garland to ensure a fair & objective investigation by appointing a Special Counsel to oversee an investigation into Hunter Biden’s dealings with the Chinese Communist Party and other foreign govts. [pic.twitter.com/EJCN5j7bhL](https://t.co/EJCN5j7bhL)
+> — Congressman Waltz Press (@RepWaltzPress) [April 9, 2022](https://twitter.com/RepWaltzPress/status/1512858484580122624?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
