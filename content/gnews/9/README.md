@@ -2,30 +2,39 @@
 ---
 
 
-## 巴斯夫老板的巨大恐惧
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2317263/)
+## 有声|德国否决中共病毒疫苗强制接种法案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2317496/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月7日，德国柏林议会否决了一项自60岁起强制公民接种中共病毒疫苗的法案草案。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-3.jpeg)
+该草案是由德国卫生部长劳特巴赫提出的，要求60岁以上公民强制接种疫苗，草案允许接种前咨询医生。在对该法案进行投票的683人中，378人拒绝了该法案，只有296人表示支持，其中包括德国总理肖尔茨和卫生部长劳特巴赫。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+据悉，这一结果对由中左翼的社会民主党、绿党和自由民主党组成的执政联盟是一个重大打击。此前，该部长坚持向18岁以上成年人推行严格疫苗接种计划，始终未获足够支持。经过几个月的辩论，他们甚至在政党内部都无法就这一问题达成一致。
+
+消息人士指出，劳特巴赫此前曾宣布自5月1日起，结束隔离政策。然而，为了推行中共病毒疫苗，现在又出尔反尔，散布秋季极有可能出现新的感染，导致医疗系统崩溃等恐慌性言论。一家德国报纸因此称他为肖尔茨领导下的 “联邦混乱部长”，其种种作为正遭到反对党的指控。
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/martin-brudermueller-60-ist.jpg)
 
+文字版原文：[德国否决中共病毒疫苗强制接种法案](https://gnews.org/zh-hans/2307149/)
 
-图片来源：FAZ
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-马丁•布鲁德米勒只是进攻，永远向前，永远充满活力，永远要求速度速度速度。俄罗斯对乌克兰的战争已经击中了巴斯夫首席执行官的核心，因为他不再能空政整个流程。 如果普京关闭天然气或联邦政府决定抵制俄罗斯，化学工业的车轮将停滞不前。在最坏的情况下，世界上最大的化学综合体巴斯夫总部的生产将不得不在一夜之间关闭。马丁•布鲁德米勒对此无能为力。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-而这正处于化工行业前所未有的转型之中。布鲁德米勒很早就做出了反应，命令该集团进行气候中和转换，并对生产设施进行电气化。他在柏林和布鲁塞尔大谈特谈，紧急呼吁扩大可再生能源。他是第一位加入绿党经济顾问委员会的化学领袖。他想站在运动的最前沿。任何能够提供气候中和产品的人都具有国际竞争优势。但这一切都需要时间。如果不再有来自俄罗斯的天然气，转换就岌岌可危。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-不确定性对他的困扰至少与战争本身一样多。在一个经济国家，即使是在重要职位上，很多人都不了解价值链。他们不明白繁荣、工业的基础是如何运作的。他们没有意识到如果大型化工厂停工，不再提供初步产品，没有油漆，没有塑料，没有泡沫，没有化肥，甚至没有药品，会对整个行业造成巨大后果。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-简评： 战争带了的需要次生灾害正在慢慢的显现中， 如果不能尽早结束战争， 不能尽快消灭独裁者， 如果不能尽快恢复世界的经济秩序， 世界人民的灾难真的是刚刚开始 。 化学工业是从农业到工业到国防都太空的基础工业， 影响的层别实在是太大了。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-🔗 [https://www.faz.net/aktuell/wirtschaft/unternehmen/ukrainekrieg-die-grosse-angst-des-basf-chefs-brudermueller-17945760.html](https://www.faz.net/aktuell/wirtschaft/unternehmen/ukrainekrieg-die-grosse-angst-des-basf-chefs-brudermueller-17945760.html)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-编辑发表： Shuizhuyu
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

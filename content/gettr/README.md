@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 2:08 PM (UTC)`
+
+04/09/2022 on the 6th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on 5 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on Cambodia 🇰🇭 Top Song Charts<br/>#3 🥉on Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Philippines, Cambodia, Brazil, Mongolia, Armenia, Fiji, Laos🙏🙏🙏🙏🙏🙏🙏
+
+---
+
+`@miles 4/9/2022 2:08 PM (UTC)`
+
+4月9号, 郭文贵先生两首新歌上线第六天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲第三名🥉<br/>6国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>蒙古🇲🇳热门歌曲第三名🥉<br/>新西兰🇳🇿， 柬埔寨 🇰🇭 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第一名🥇<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>https://gnews.org/zh-hans/2317277/<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、菲律宾、柬埔寨, 蒙古，亚美尼亚，巴西，斐济，老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/>
+
+---
+
 `@miles 4/9/2022 1:06 PM (UTC)`
 
 2022.04.09早  新中国联邦 | 新闻访谈     
@@ -140,22 +152,6 @@
 
 2022.04.08 晚  新中国联邦 | 新闻    我们要把中国人从被中共胁迫的恐惧中解放出来；再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处
 ![img](https://media.gettr.com/group46/origin/2022/04/09/00/712cf7f0-dabc-bb53-dc2d-cc067b007189/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 12:32 AM (UTC)`
-
- 4月8号下午8:30大家快来看这美妙的时刻呀……
-> `@qmay007 4/9/2022 12:01 AM (UTC)`<br/>Super-May线上直播音乐会 第三期：亚细亚的孤儿  台湾特辑（上）QMay&Superman，嘉宾：甜甜
-![img](https://media.gettr.com/group4/origin/2022/04/08/23/873d7b71-c86d-085d-9596-3e18c17501d2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 11:48 PM (UTC)`
-
-💯
-> `@nagege2021 4/8/2022 11:09 PM (UTC)`<br/>🆘乌克兰人道救援行动🆘<br/><br/>来自新中国联邦波兰救援营地Leo文科战友现场实况图文报道：<br/><br/>今天晚上下大雨 ，晚上突然来了很多难民，公交车却没有来，所以整个营地所有帐篷都是挤满了人，我们的大帐篷内也睡满了人，而且还在陆续进人，同行的国际组织义工也在一起帮忙，他们说这个帐篷太棒了，里面温暖舒适，设施齐全，不然今晚这样的情况，真不知道这些难民如何度过。<br/> <br/><br/>
-![img](https://media.gettr.com/group18/getter/2022/04/08/23/5fa41cf3-34ce-6446-265e-d8f363ce9007/out.jpg)
 
 ---
 

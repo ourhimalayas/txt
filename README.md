@@ -15,125 +15,125 @@
 
 ---
 
-### [樱花深度报道┃不要低估习近平与普京的关系（下）](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [4/8/2022 文贵盖特：郑州、上海、长春的同胞们所遭受的灾难让文贵一时语塞；有战友买的NFT被中共拿枪抢走，中共的邪恶远超劫富济贫；上海封城中最惨的是受过高等教育而且还相信共产党的人，同胞们的遭遇让我们心急如焚](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [樱花深度报道┃不要低估习近平与普京的关系（上）](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [美国驻华大使馆发布授权撤离和旅行禁令](/content/gnews/2/README.md)
+ ` 银河歌舞厅`
 
-### [有声|旧媒体的堕落 新媒体的崛起](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [日本与菲律宾寻求进一步加强防务合作](/content/gnews/4/README.md)
- ` 澳喜特战旅Gnews`
-
-### [有声|美国法院恢复拜登政府对所有联邦雇员的疫苗强制令](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [大直播后记：大卫谈中共想续命就一定会攻打台湾](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [俄罗斯石油巨头俄罗斯天然气工业公司的网站被黑客攻击而瘫痪](/content/gnews/7/README.md)
- ` topnews`
-
-### [2022/04/08 文贵先生直播重点大纲](/content/gnews/8/README.md)
+### [2022/04/08文贵先生直播精要](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [巴斯夫老板的巨大恐惧](/content/gnews/9/README.md)
- ` Shuizhuyu`
+### [遮住眼睛和耳朵的一只小手](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [清零](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
+### [樱花时政┃中共不灭，洗脑不止！](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！](/content/gnews/11/README.md)
- ` 秘密翻译组-原创组`
+### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/6/README.md)
+ ` 银河歌舞厅`
 
-### [大直播后记：谈世界政治科技信仰的大变局](/content/gnews/12/README.md)
+### [樱花深度报道┃不要低估习近平与普京的关系（下）](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花深度报道┃不要低估习近平与普京的关系（上）](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|德国否决中共病毒疫苗强制接种法案](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|旧媒体的堕落 新媒体的崛起](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [日本与菲律宾寻求进一步加强防务合作](/content/gnews/11/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [有声|美国法院恢复拜登政府对所有联邦雇员的疫苗强制令](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [大直播后记：大卫谈中共想续命就一定会攻打台湾](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [上海疫情致更多全球供应链中断](/content/gnews/13/README.md)
- ` topnews`
+### [2022/04/08 文贵先生直播重点大纲](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [速报┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12348录音:全员核酸非法&amp;疫苗致死&amp;痰液检测&amp;棉签有毒](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [视频|欧盟抵制以卢布交易俄罗斯天然气 匈牙利唱反调](/content/gnews/16/README.md)
- ` MOSVIDEO`
-
-### [视频|北约同意向乌提供先进重型武器](/content/gnews/17/README.md)
- ` MOSVIDEO`
-
-### [视频|再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处](/content/gnews/18/README.md)
- ` MOSVIDEO`
-
-### [视频|我们要把中国人从被中共胁迫的恐惧中解放出来](/content/gnews/19/README.md)
- ` MOSVIDEO`
-
-### [“布查大屠杀”在中共国社交网站上掀起波澜，“都到了2022年&#8230;&#8230;”](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：乌克兰表示俄罗斯攻击避难火车站已致至少50人死亡](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：乌克兰表示俄罗斯为隐瞒战死者规模拒绝接收本国军队尸体](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [可怕的现实：近期致命的突然死亡何其多](/content/gnews/23/README.md)
- ` xiaobaige`
-
-### [基金投资管理是合并还是分销更好](/content/gnews/24/README.md)
- ` 走进澳洲`
-
-### [投资加密货币的简要提示](/content/gnews/25/README.md)
- ` 走进澳洲`
-
-### [俄罗斯百年来的首次违约现在看来已不可避免](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国银行第一季度盈利将下降](/content/gnews/27/README.md)
+### [巴斯夫老板的巨大恐惧](/content/gnews/15/README.md)
  ` Shuizhuyu`
 
-### [中日财经爆┃受俄乌战争影响 全球食品价格创历史新高](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/29/README.md)
- ` 關注組`
-
-### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国驻华使团再发《旅行警告和授权撤离的声明》，美中彻底撕破脸皮](/content/gnews/33/README.md)
+### [重磅！部队在上海虹桥站集结进入 上海现在准备部队全部军管！](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [接种三针中共病毒疫苗的有效保护率是多少？低于零！](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
+### [上海疫情致更多全球供应链中断](/content/gnews/17/README.md)
+ ` topnews`
 
-### [制裁追加 英国制裁普京的女儿 美国将俄罗斯国有造船厂列入黑名单](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/36/README.md)
+### [速报┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](/content/gnews/37/README.md)
- ` 關注組`
+### [12348录音:全员核酸非法&amp;疫苗致死&amp;痰液检测&amp;棉签有毒](/content/gnews/19/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [巴基斯坦关于罢免总理可汗的投票推迟](/content/gnews/38/README.md)
+### [视频|再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处](/content/gnews/20/README.md)
+ ` MOSVIDEO`
+
+### [视频|我们要把中国人从被中共胁迫的恐惧中解放出来](/content/gnews/21/README.md)
+ ` MOSVIDEO`
+
+### [“布查大屠杀”在中共国社交网站上掀起波澜，“都到了2022年&#8230;&#8230;”](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：乌克兰表示俄罗斯攻击避难火车站已致至少50人死亡](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：乌克兰表示俄罗斯为隐瞒战死者规模拒绝接收本国军队尸体](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [可怕的现实：近期致命的突然死亡何其多](/content/gnews/25/README.md)
+ ` xiaobaige`
+
+### [基金投资管理是合并还是分销更好](/content/gnews/26/README.md)
+ ` 走进澳洲`
+
+### [投资加密货币的简要提示](/content/gnews/27/README.md)
+ ` 走进澳洲`
+
+### [俄罗斯百年来的首次违约现在看来已不可避免](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国银行第一季度盈利将下降](/content/gnews/29/README.md)
  ` Shuizhuyu`
 
-### [堪萨斯州参议员致信医生 使用伊维菌素、羟氯喹](/content/gnews/39/README.md)
+### [中日财经爆┃受俄乌战争影响 全球食品价格创历史新高](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/31/README.md)
+ ` 關注組`
+
+### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国驻华使团再发《旅行警告和授权撤离的声明》，美中彻底撕破脸皮](/content/gnews/35/README.md)
+ ` 秘密翻译组-原创组`
+
+### [接种三针中共病毒疫苗的有效保护率是多少？低于零！](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧](/content/gnews/40/README.md)
+### [制裁追加 英国制裁普京的女儿 美国将俄罗斯国有造船厂列入黑名单](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](/content/gnews/39/README.md)
+ ` 關注組`
+
+### [巴基斯坦关于罢免总理可汗的投票推迟](/content/gnews/40/README.md)
+ ` Shuizhuyu`
 
 ### [谈古论今 ┃ 墙](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

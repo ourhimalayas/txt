@@ -2,38 +2,36 @@
 ---
 
 
-## 樱花深度报道┃不要低估习近平与普京的关系（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2317506/)
+## 美国驻华大使馆发布授权撤离和旅行禁令
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317636/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-【编者按】共同的安全担忧使习近平与普京关系密切，相同的历史观更把他们紧密地联系在一起，中国理论家认为，将习近平的民族主义品牌与普京的民族主义品牌相提并论是有益的。只要这种理论存在，要求习近平与俄罗斯断绝关系，站在西方一边，就像要求他与自己决裂一样，绝无可能。《经济学家》2022年4月9日发表了这篇文章，标题是“Don’t underestimate Xi Jinping’s bond with Vladimir Putin”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-70.jpg)
-俄罗斯在乌克兰的每一次新暴行都会引发一个关于中国的问题。当然，外国政府天真地想知道，中国领导人习近平是否必须尽快与弗拉基米尔·普京（Vladimir Putin）保持距离——哪怕只是为了避免损害他自己的国家利益？
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6cdcdbd9520c4460a00fcf69f23435e4.jpg)
+当地时间4月9日，美驻华大使馆发布一则重要警示，旨在紧急撤离身在中共国的美国人以及警告美国人不要前往中共国旅行。
 
-唉，外人告诉北京领导人如何判断中国利益的历史由来已久，而且每次都充满了失望。乌克兰冲突也不例外。造成这种情况的一个原因涉及地缘政治、中国官员和官方媒体的论点、以及大学为让学者和学生对战争“正确理解”而组织的洗脑课程。他们认为，在美国通过推动欧洲国家加入北约军事同盟来侵占俄罗斯之后，普京先生出于自卫而攻击乌克兰。但无论如何，这将都是颠覆历史的，他们无视前苏联卫星国加入北约以防御俄罗斯侵略的要求。对中国来说，北约东扩是一种敌对行为，让人想起美国在亚洲建立同盟。这使得俄罗斯成为全球对抗美国霸凌行为的宝贵合作伙伴，而中国本身无法放弃这种霸凌行为。按照这种冷酷的逻辑，乌克兰的痛苦是无关紧要的。
+该警示表明，鉴于在中共国内中共病毒的激增以及中共政府抗击疫情的诸多不人道限制，美国国务院于4月8日批准了美国政府雇员及其家属从美国驻上海领事馆自愿撤离，驻上海大使伯恩斯已经向中共国政府通知了这一撤离意愿。据悉该警示还包括，美国公民应该重新考虑前往中共国的旅行，因中共国的防疫限制，其中包括父母与孩童分离的风险，美国公民请谨慎前往中共国香港、吉林和上海市。上海领事馆目前对公众关闭，但领事馆工作仍然24小时在值，为美国公民提供紧急服务。
 
-对中国拥抱俄罗斯的第二种解释在表面是很难看到和听到的，因为它涉及共产党内部的一种灌输，就是从苏联解体的“悲剧”中吸取教训。它从习近平几次讲话中得到指令，他将苏联解体视为共产主义信仰丧失的危机。在担任领导人的第一个十年中，习近平曾多次谴责当时苏联党的领导人和官员的自私和懦弱，失去对军队的政治控制。最重要的是，习近平将苏联解体归咎于“历史虚无主义”，这是意识形态敌人沉溺于历史黑暗事件的行话。
+目前该讯息已经发放给美国公民，并在网路开通了美国公民撤离计划登记，以及更多的相关联系负责人来帮助美国公民撤离。
 
-一部101分钟的中共党内新纪录片《历史虚无主义与苏联解体——对苏联党和国家解体30年的反思》承担了这一责任。虽然没有公开宣传，但这部电影从去年年底就开始内部放映了。在中国各地，中央和省级政府机构以及大学和法院、市党委和至少一个地方林业局都有关于放映的简短报道：这是一场从高层下令开展的活动的证据。这部电影尚未在电影院或电视上上映，但可以在网上找到。
+reference：
 
-这部电影颂扬了斯大林，它将农业集体化后的饥荒归咎于富农囤积粮食，它否认了斯大林的政治清洗杀死了数百万人，尽管它承认有些过激行为。纪录片称，指责阿道夫·希特勒和斯大林共同发动了第二次世界大战是诽谤（深受两个暴君从西方和东方入侵蹂躏的波兰显然不同意这种观点）。它对那些质疑某些苏联时代的英雄和烈士是否是虚假宣传的人表示愤慨。它还指责西方几十年来一直在策划破坏苏联，将诺贝尔奖授予持不同政见的作家，邀请有改革思想的官员进行学术交流，并在 1980 年代后期支持公民社会和新闻自由。这部电影的反面角色包括斯大林的继任者尼基塔·赫鲁晓夫（Nikita Khrushchev），他对斯大林个人崇拜的谴责被称为“90%的谎言”，前苏联领导人米哈伊尔·戈尔巴乔夫（Mikhail Gorbachev）被指责为资本主义政策—电影断言—摧毁了表现优于美国的计划经济。接下来是苏联后混乱的场景，这些场景让观看官员感到震惊，包括推翻共产主义纪念碑和暴徒攻击前压迫者。然后是普京时代，骄傲的退伍军人和步履蹒跚的军队在阳光普照的红场上，伴随着俄罗斯国歌的旋律。普京因出版新的爱国历史书籍而备受赞誉。
+[https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
-（未完待续）
+撰稿、发布：骄子
 
-《经济学家》中国专栏
+* * *
 
-#### 信息来源：[Don’t underestimate Xi Jinping’s bond with Vladimir Putin](https://www.economist.com/china/2022/04/09/dont-underestimate-xi-jinpings-bond-with-vladimir-putin)
+欢迎订阅我们的GNews账号：
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
