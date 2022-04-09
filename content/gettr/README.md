@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 5:55 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group33/origin/2022/04/09/17/75301d07-57d3-96b8-756f-74082504e92c/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@adelin 4/9/2022 5:02 PM (UTC)`
@@ -149,13 +156,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group32/origin/2022/04/09/04/c7ae8063-1260-c685-c634-b4d396367811/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 3:50 AM (UTC)`
-
-【Ukraine Rescue】 04/07/2022  A cup of morning NFSC coffee is the choice of each Israel volunteers at the Medyka rescue camp<br/><br/>【乌克兰救援】 04/07/2022 在梅迪卡救援营地，以色列志愿者们人手一杯新中国联邦的醒晨咖啡<br/>
-![img](https://media.gettr.com/group46/getter/2022/04/09/03/401cf72a-bc3c-885c-37a1-a4615859a1ae/out.jpg)
 
 ---
 

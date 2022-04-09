@@ -2,26 +2,37 @@
 ---
 
 
-## 中国用人民币购买的俄国能源将运抵中国
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318289/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2318359/)
 
-**撰稿：日本东京方舟农场 胖小哥**
+作者：香草山翻译部
 
-美国财经媒体彭博社周四（4月7日）报道，有消息称，几家中国公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-170.jpg)俄罗斯Kedrovsky露天煤矿
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-8.png)
 
-据悉，此消息来源于中国咨询公司汾渭能源信息服务公司，中国买家购买这批货物使用的是人民币。交易商们表示，这将是美国和欧洲把俄罗斯银行剔除出国际金融支付系统以来，俄罗斯发出的第一批用人民币支付的货物。
+文章仅代表作者本人观点，与Gnews无关
 
-由于西方的制裁，俄罗斯的国际支付功能受到严重限制，大大增加了俄罗斯债务违约的风险。周三，俄罗斯使用卢布向一家美国银行支付了一笔金额为6.5亿美元的债务。但据美联社报道，这笔付款并没有被对方接受，因为新的制裁措施禁止俄罗斯使用美国银行支付债务。
+视频参看：
+[2022.04.09早 《NFSC新闻》](https://www.gettr.com/streaming/p14dqij67b5)
+[2022.04.09早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14dqis33be)
 
-去年，俄罗斯成为中国第二大煤炭供应国，填补了澳大利亚留下的缺口，中国为了报复澳大利亚在美中对抗中站队美国，中断了进口澳大利亚的煤炭等许多重要商品。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-参考链接：
-[https://reurl.cc/oel3zv](https://reurl.cc/oel3zv)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
 
-总编：青城道姑
-校对发布：爱放飞
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
+
+
 
  
 

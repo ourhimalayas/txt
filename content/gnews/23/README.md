@@ -2,28 +2,33 @@
 ---
 
 
-## 上海封城乱象频出：孕妇就医遭党员突击队暴打视频曝光
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318257/)
+## 中日财经爆┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318265/)
 
-**撰稿：日本东京方舟农场  胖小哥**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本和俄罗斯政府已在协调启动有关在俄罗斯河流中出生的鲑鱼和鳟鱼的渔业谈判。据悉，或将在下周举行关于在日本专属经济区（EEZ）内渔获量的谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-27.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://s3-us-west-2.amazonaws.com/staticassets.oceanoutcomes.org/hero+photos/hokkaidosuccesshero.jpg&amp;imgrefurl=https://www.oceanoutcomes.org/what-we-do/success-stories/hokkaido-chum/&amp;tbnid=l3LfIEAk4yXqUM&amp;vet=12ahUKEwj-5Z_omIf3AhXkJqYKHYZJCAwQMygEegUIARCzAQ..i&amp;docid=9TF8Lg4W0WRXbM&amp;w=1100&amp;h=590&amp;q=Japanese%20salmon%20fishing&amp;ved=2ahUKEwj-5Z_omIf3AhXkJqYKHYZJCAwQMygEegUIARCzAQ)
+据日本共同社4月8日消息，日本和俄罗斯政府已在协调启动有关在俄罗斯河流中出生的鲑鱼和鳟鱼的渔业谈判。据悉，或将在下周举行关于在日本专属经济区（EEZ）内渔获量的谈判。
 
-据万维读者网4月9日报道，中国上海近期因新冠肺炎疫情变得严峻，多处实施封城封区管理，乱象也纷纷出来。有当地人指控，现在竟然出现“党员突击队”胡乱暴打无辜民众。另外上海缺粮缺物资的状况，依旧没有改善，今天一大早许多上海人涌入微博网站，纷纷谴责上海政府管理无能。
+按照惯例，日俄每年春季就鲑鱼和鳟鱼的渔获量等进行谈判。日本专属经济区（EEZ）内的最佳渔期被认为是4～5月前后，正在临近期限。日本希望最快4月11日开始在线谈判，敲定捕鱼作业的条件，为北海道等国内渔业人员出海捕鱼提供支援。谈判由水产厅干部等负责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-169.jpg)上海封城大乱，孕妇遭“党员突击队”暴打影片曝光！（图片来源于微博）
+即便是在日本EEZ内捕鱼，由于鲑鱼和鳟鱼出生在俄方河流中，因此需要向俄方支付渔业合作费。去年谈判中，双方就日本EEZ内的鲑鱼和鳟鱼渔获量合计为2050吨达成了一致。渔业合作费则同意在2.6亿日元（约合人民币1331万元）～3亿日元多的范围内，根据渔获的实际情况来决定等。
 
-一名微博网友指控，上海有一名孕妇住在被封城的区域，但该名孕妇有拿到许可证明，得以外出就医。但没想到这名孕妇和相关人员一走到封锁线时，随即遭到一群“保安”上前围殴，甚至连劝架的工作人员都不放过。孕妇等人试图录影存证，一度还遭这群“保安”挡下镜头，随后孕妇指控，这群保安的领导，手臂上配戴“党员突击队”的臂章。
+另一方面，俄罗斯EEZ内全面捕鱼是在6月前后。日本渔船一贯试行拖网捕鱼并支付入渔费。目前，日本EEZ内的谈判或成为焦点。
 
-这群“党员突击队”在现场暴打无辜民众后，其他住户也看不下去，纷纷上前大骂这群“党员突击队”，更有人对著他们喊：“不要塌了党的台了！(不要给党丢脸)。”
+由于俄乌战争，谈判能否如期举行变得不确定。如果无法谈判或者谈判失败，那么对日本渔业人员的影响将无法避免。
 
-不少中国网友看到这段影片后，也愤愤不平地直呼：“这就是红卫兵啊！”、“党员可以这样随便打人的吗？”、“故意制造矛盾。”、“党的形象全部被你们丢尽。”
+信息来源：[独家：日俄拟启动有关鲑鱼和鳟鱼的渔业谈判](https://china.kyodonews.net/news/2022/04/3c4937f7eae6.html)
 
-还有上海网友说，他真的有拿到政府发的蔬菜包，但是“等了好几天才一包，这是要叫人怎样过日子”。另外还有网友抱怨，就算有门路抢到网购蔬菜，结果在半路竟被“公家徵收”，让人欲哭无泪。另外也有其他地区网友说：“这是得多绝望啊，才逼成这样。”、“上海的管理层都在干嘛？”、“病毒死不了人，结果饿死人。”
-
-参考链接：
-[https://news.creaders.net/china/2022/04/09/2470961.html](https://news.creaders.net/china/2022/04/09/2470961.html)
-
-总编：青城道姑
-校对发布：爱放飞
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
