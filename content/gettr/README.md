@@ -84,13 +84,6 @@
 
 ---
 
-`@miles 4/9/2022 2:23 PM (UTC)`
-
- 4月9号：尊敬的战友们好，感谢从上海，深圳，吉林，北京．广东等地战友们送来的这些绝密信息，新中国联邦……永远不会忘记．永远感恩……明天上午七哥将加入大直播。共产党在整个中国大陆制造的人类大灾难．将超出我们常人的想象，我们明天直播详谈，一切都已经开始！
-![img](https://media.gettr.com/group9/getter/2022/04/09/14/cdbf0e8e-5fde-22c5-837f-b86a6276f167/out.jpg)
-
----
-
 `@miles 4/9/2022 2:08 PM (UTC)`
 
 04/09/2022 on the 6th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on 5 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on Cambodia 🇰🇭 Top Song Charts<br/>#3 🥉on Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Philippines, Cambodia, Brazil, Mongolia, Armenia, Fiji, Laos🙏🙏🙏🙏🙏🙏🙏
@@ -156,6 +149,13 @@
 
 【Ukraine Rescue】 04/07/2022 Nicole, an NFSC volunteer interviewed by the US media "Daily Caller", conveys the message that the CCP does not represent Chinese people. She says that the CCP is the root cause of all disasters, the black hand behind the war in Ukraine, and the elimination of the CCP is the only option to ensure world security.<br/><br/>【乌克兰救援】 04/07/2022 新中国联邦志愿者Nicole接受美媒《每日来电者》采访，传达中共不代表中国人的信息。她说中共是一切灾难的根源，是乌克兰战争的幕后黑手，消灭中共是确保世界安全的唯一选择。<br/>
 ![img](https://media.gettr.com/group23/getter/2022/04/09/09/41b87655-8830-01e5-32b3-5cb58d06f4a0/out.jpg)
+
+---
+
+`@miles 4/9/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group32/origin/2022/04/09/04/c7ae8063-1260-c685-c634-b4d396367811/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

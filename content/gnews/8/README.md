@@ -2,44 +2,32 @@
 ---
 
 
-## 德国总理朔尔茨将于4月下旬访问日本
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2318591/)
+## 加拿大将禁止外国人购买投资房产
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2318703/)
 
-共同社报道，一位政府消息人士周六（4月9日）表示，德国总理奥拉夫·朔尔茨（Olaf Scholz）计划于4月下旬访问日本，与日本首相岸田文雄举行会谈，俄罗斯入侵乌克兰和如何管理中（共）国的崛起可能成为会谈的首要议题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S-2.jpg)tellerreport.com
-这位日本消息人士说，朔尔茨可能在4月28日与岸田会面。这将是他去年12月上任以来的首次访问。
+##### 作者：加拿大温哥华扬帆农场 – 活力人生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据【CTV新闻】4月6日报道，加拿大政府将在周四发表的联邦预算中公布对外国购房者的重大限制政策。非加拿大居民在未来两年内将被禁止在加拿大购买任何住宅物业，包括公寓和独立屋。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1058.png)
+据报道，该政策主要打击的是购买度假屋或投资屋的外国人。永久居民、外国工人和留学生以及购买主要住宅的外国人将不受该政策的约束。
 
-德国现在是七大主要发达国家集团的轮值主席国，并将于6月26日至6月28日在巴伐利亚阿尔卑斯山的城堡度假区艾尔莫城堡（Schloss Elmau）举办他们的年度峰会。
+此前，联邦政府已于年初开始对被认为空置或未充分利用的非加拿大居民拥有的房产征收 1% 的税。安大略省最近将其外国购房者税从 15% 提高到了 20%。新斯科舍省上个月也公布了对非居民购房者的新税收。但由于缺少数据，目前尚不清楚外国购房者对加拿大住宅市场的影响有多大。
 
-他的访问旨在为这次峰会做准备，德国希望通过这次峰会展示七国集团在促进民主和自由等共同价值观方面的团结。
+新闻链接：
 
-减少对来自俄罗斯的能源资源的依赖已成为欧洲的一个关键问题，并可能在日本和德国领导人的会议上进行讨论，他们与其他七国集团领导人强烈谴责莫斯科在乌克兰的 “暴行”。
+[https://www.ctvnews.ca/politics/federal-budget-to-include-ban-on-foreign-home-buyers-billions-for-housing-1.5850968](https://www.ctvnews.ca/politics/federal-budget-to-include-ban-on-foreign-home-buyers-billions-for-housing-1.5850968)
 
-鉴于乌克兰的战争，预计朔尔茨和岸田还将重申他们反对单方面使用武力来改变印太地区的现状，中（共）国正日益对台湾施加压力。
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-近年来，由于北京在该地区的强硬态度，德国已经与中（共）国的友好关系保持距离，这与英国和欧盟的行动一致。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-去年4月，日本和德国的外交部长和国防部长首次以虚拟形式举行了所谓的二加二会议。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-然后在12月，一艘日本海上自卫队驱逐舰与一艘德国护卫舰在日本南部的冲绳县附近进行了一次联合演习。
-
-这艘护卫舰成为该国约20年来第一艘停靠日本港口的军舰，日本计划在2023年接任七国集团主席。
-
-**快评**：七国集团（G7）指英国、加拿大、法国、德国、意大利、日本和美国。这次俄乌战争凸显了七国集团利益和价值取向一致。
-
-这篇新闻让我们得知作为今年的轮值主席德国与明年的轮值主席日本的领导人先来个碰头会，除了讨论俄乌战争对欧洲的能源影响外，重点在中共国。
-
-郭先生今天盖特爆料，习治下的中共正在国内大举封锁，要饿死一批人，让韭菜们对中共感恩戴德；另外要借饥饿激起贫富矛盾，杀掉一批富人，再共产了富人的财富。
-
-对外，习已经在塞尔维亚布置了红旗导弹系统，还在中东等地布置红旗、东风导弹，公开支持俄罗斯，这是要将中国人置于死地。
-
-中共不灭，人类都不能得拯救！
-
-参考链接：
-[https://english.kyodonews.net/news/2022/04/ffc9550c74ec-urgent-german-chancellor-scholz-eyeing-japan-visit-in-late-april-source.html](https://english.kyodonews.net/news/2022/04/ffc9550c74ec-urgent-german-chancellor-scholz-eyeing-japan-visit-in-late-april-source.html)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
