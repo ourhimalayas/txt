@@ -15,137 +15,137 @@
 
 ---
 
-### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/1/README.md)
+### [大直播后记：上海封城和军管将加速中共经济的崩溃](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：战友们分享对疫情的看法](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [前北约副司令警告：北约必须做好与俄罗斯开战的准备](/content/gnews/3/README.md)
+ ` 日本東京方舟農場`
+
+### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/4/README.md)
  ` 關注組`
 
-### [全球疫情疫苗数据更新](/content/gnews/2/README.md)
+### [全球疫情疫苗数据更新](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [诗歌《阴谋论考察报告》](/content/gnews/3/README.md)
+### [诗歌《阴谋论考察报告》](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/4/README.md)
+### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/5/README.md)
+### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [土耳其将卡舒吉案件移交沙特](/content/gnews/6/README.md)
- ` 澳喜特战旅Gnews`
+### [Jason Miller先生祝贺Elon Musk加入Twitter](/content/gnews/9/README.md)
+ ` GTV News Talk`
 
-### [标普将俄罗斯外汇评级下调至“选择性违约”](/content/gnews/7/README.md)
+### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [欧盟的冯德莱恩指责俄罗斯的行为是战争罪](/content/gnews/11/README.md)
  ` Shuizhuyu`
 
-### [中共国3月疫情让垂死的经济雪上加霜](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
+### [上海野蛮清零 “方舱监狱”陆续投入使用](/content/gnews/12/README.md)
+ ` 儒为`
 
-### [接种三针中共病毒疫苗的有效保护率是多少？低于零！](/content/gnews/9/README.md)
+### [接种三针中共病毒疫苗的有效保护率是多少？低于零！](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [制裁追加 英国制裁普京的女儿 美国将俄罗斯国有造船厂列入黑名单](/content/gnews/10/README.md)
+### [制裁追加 英国制裁普京的女儿 美国将俄罗斯国有造船厂列入黑名单](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/11/README.md)
+### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](/content/gnews/12/README.md)
+### [疫情｜中共防疫政策失当 上海涌现结构性人道灾难 官方仍无视](/content/gnews/16/README.md)
  ` 關注組`
 
-### [巴基斯坦关于罢免总理可汗的投票推迟](/content/gnews/13/README.md)
+### [巴基斯坦关于罢免总理可汗的投票推迟](/content/gnews/17/README.md)
  ` Shuizhuyu`
 
-### [参与美国白宫晚宴的53人被群体感染](/content/gnews/14/README.md)
+### [参与美国白宫晚宴的53人被群体感染](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [堪萨斯州参议员致信医生 使用伊维菌素、羟氯喹](/content/gnews/15/README.md)
+### [堪萨斯州参议员致信医生 使用伊维菌素、羟氯喹](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧](/content/gnews/16/README.md)
+### [岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马斯克推动推特内部雇员问与答会议](/content/gnews/17/README.md)
+### [马斯克推动推特内部雇员问与答会议](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国加强对数字资产的监管计划将数字资产规则现代化](/content/gnews/18/README.md)
+### [美国加强对数字资产的监管计划将数字资产规则现代化](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [突发：上海一名防疫志愿者被现场民众殴打致死](/content/gnews/19/README.md)
- ` GTV News Talk`
-
-### [大直播后记：新中国联邦前线救援，共产党背后捣乱](/content/gnews/20/README.md)
+### [大直播后记：新中国联邦前线救援，共产党背后捣乱](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [20220408郭文贵大直播 ：香港事件在上海以另一种方式重演](/content/gnews/21/README.md)
+### [20220408郭文贵大直播 ：香港事件在上海以另一种方式重演](/content/gnews/24/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220408郭文贵大直播 ：台湾的存在就是对中共彻头彻尾的否定](/content/gnews/22/README.md)
+### [20220408郭文贵大直播 ：台湾的存在就是对中共彻头彻尾的否定](/content/gnews/25/README.md)
  ` Tokyo Sakura Video Group`
 
-### [瑞典欲加入北约](/content/gnews/23/README.md)
+### [瑞典欲加入北约](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [谈古论今 ┃ 墙](/content/gnews/24/README.md)
+### [谈古论今 ┃ 墙](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：正义小Sara战友分享波兰杂志报道的经过](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [卫星技术拍摄布查大屠杀铁证](/content/gnews/26/README.md)
+### [卫星技术拍摄布查大屠杀铁证](/content/gnews/28/README.md)
  ` GTV News Talk`
 
-### [化解中共毒疫苗 美蓝和青蒿素的协同作用](/content/gnews/27/README.md)
+### [化解中共毒疫苗 美蓝和青蒿素的协同作用](/content/gnews/29/README.md)
  ` GTV News Talk`
 
-### [五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/28/README.md)
+### [五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [突发：美国驻华使团再发《旅行警告和授权撤离的声明》](/content/gnews/29/README.md)
+### [突发：美国驻华使团再发《旅行警告和授权撤离的声明》](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [口述历史之你要吃老鼠吗](/content/gnews/30/README.md)
+### [口述历史之你要吃老鼠吗](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟抵制以卢布交易俄罗斯天然气 匈牙利唱反调](/content/gnews/31/README.md)
+### [欧盟抵制以卢布交易俄罗斯天然气 匈牙利唱反调](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [乌克兰救援前线报道4.09.2022：新中国联邦法治基金人道救援撒下了爱的种子](/content/gnews/32/README.md)
+### [乌克兰救援前线报道4.09.2022：新中国联邦法治基金人道救援撒下了爱的种子](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [在上海 清零意味着零自由](/content/gnews/33/README.md)
+### [在上海 清零意味着零自由](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：嘉宾分享AI科技](/content/gnews/34/README.md)
- ` 雅典娜GNotes`
-
-### [樱花FM┃布查惨案，击穿了人类所有善良和理性的底线！](/content/gnews/35/README.md)
+### [樱花FM┃布查惨案，击穿了人类所有善良和理性的底线！](/content/gnews/36/README.md)
  ` 樱花FM`
 
-### [樱花FM┃日本政府宣布向乌克兰提供包括排雷在内的追加援助](/content/gnews/36/README.md)
+### [樱花FM┃日本政府宣布向乌克兰提供包括排雷在内的追加援助](/content/gnews/37/README.md)
  ` 樱花FM`
 
-### [樱花FM┃疫情肆虐 “代客扫墓”繁忙](/content/gnews/37/README.md)
+### [樱花FM┃疫情肆虐 “代客扫墓”繁忙](/content/gnews/38/README.md)
  ` 樱花FM`
 
-### [樱花FM┃日英就继续对俄罗斯施压达成一致](/content/gnews/38/README.md)
+### [樱花FM┃日英就继续对俄罗斯施压达成一致](/content/gnews/39/README.md)
  ` 樱花FM`
 
-### [秘翻新闻｜刘特佐-马基金案 高盛前雇员背锅](/content/gnews/39/README.md)
+### [秘翻新闻｜刘特佐-马基金案 高盛前雇员背锅](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国加重对俄经济制裁 普京女儿亦在其列](/content/gnews/40/README.md)
+### [美国加重对俄经济制裁 普京女儿亦在其列](/content/gnews/41/README.md)
  ` GTV News Talk`
 
-### [口述历史之父亲的驼背](/content/gnews/41/README.md)
+### [口述历史之父亲的驼背](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际｜联合国报告3月粮价创新高 2008年能源粮食危机再现](/content/gnews/42/README.md)
+### [国际｜联合国报告3月粮价创新高 2008年能源粮食危机再现](/content/gnews/43/README.md)
  ` 關注組`
 
-### [台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯](/content/gnews/43/README.md)
+### [台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯](/content/gnews/44/README.md)
  ` 關注組`
-
-### [拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行](/content/gnews/44/README.md)
- ` 美国政要直译推`
 
 ### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`

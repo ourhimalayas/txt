@@ -2,42 +2,38 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316666/)
+## 大直播后记：战友们分享对疫情的看法
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2316706/)
 
-整理：枳实
-美工：精灵蓝
+整理：HYS、铁血丹心
+编辑：李易通
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-687.png)图片来源：雅典娜设计组（614）
 
 
-雅典娜疫情更新（2022年 4月8日）
+宁南：果然是精彩，好的，今天为我们扳回一局。那么接下来这个沉重的话题呢，又要来到大牛和巴黎这里来接受挑战。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-989.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-990.png)
-[2022年4月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月8日改进.pdf)
+巴黎：首先我来讲一下台湾的情况好了。就是我觉得病毒肆虐，墙内的那些视频真的是惨不忍睹。台湾现在的确诊案例天天都是破百，真的很夸张，还有就是台湾现在还办什么演唱会，一些群聚活动都不控制，人群聚集不防范那就是感染。现在感染的人都是打过疫苗的，那打过疫苗感染之后，他们都觉得这很像是感冒一样，就是没有一个病毒传染的症状。我觉得台湾再这样继续下去的话，感染的人数一定会越来越多。
 
-数据来源：
+我还要讲一件事情，就是我们台湾团队向台湾的政府机构写陈情书，收到陈情书的那个政府机构单位有回信，但是回信中都说要转至疾病管制署，之后就再没有下文。所以你看台湾政府对人民的生命就这么不重视。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+大牛：刚刚讲的陈情书的内容是关于疫苗，就是我们说这个疫苗是毒疫苗，然后请政府单位去重视疫苗的问题。我这边补充一个昨天的新闻，联邦上诉法院也支持拜登总统的命令，就是说所有的联邦雇员都是必须要接种疫苗的，这是一个非常令人难过的消息。但我也相信，会因为政府在疫苗推广上面的疯狂，让接种毒疫苗的乱象提早停止。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+刚刚风雨之中还有佳佳分享的非常的精彩，对于上海的疫情，其实我个人也觉得跟这个布查大屠杀基本上是同一个状况，真的是惨不忍睹。像我昨天看到一个照片，有一个老人被好几个解放军直接用一个铁片压在下面，他们用脚踩着铁片老人动弹不得。有居民在家里没水没食物也都不敢出门。我看那些视频，满街都是拿枪的白色卫兵。消息指出东部战区的司令接管上海疫情联合防控小组的组长位置，不知道消息是否真实，那意味着上海已经进入了军管的状况，这到底是防疫还是维稳？
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+不管如何我觉得老百姓都是最惨的，是最先被牺牲的，这就是在独裁统治之下的人民。可以看一下现在俄罗斯的人民和中国老百姓，全部都是因为一个独裁者个人的行为，让全国老百姓受难受苦，甚至是牺牲生命。最后也想再提醒一下，我们一定要备好伊维菌素和青蒿素等药物，按时服用来预防中共病毒。同时也要备好粮食，做好万全的准备，应对这个疫情还有即将到来的疫苗灾难乱象，谢谢。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+宁南：好的，非常感谢，分享的真的是非常精彩。那么把这个话题交到大卫哥这里。
 
-[covidlive.com.au](https://covidlive.com.au/)
+大卫哥：好的，谢谢战友们。宁南是传球做球，然后咱们兄弟姐妹一起抓住机会来临门一脚。几位战友从各自不同的角度的分析和分享都特别好，我回应一下，稍微补充一点。刚才风雨之中兄弟提到的这次上海疫情，大家看一下上海处在长江三角洲这个地区。那么现在你看这个疫情的发展，它奔这个杭州，然后你再看东北角的常州，整个江浙苏杭是中国最重要的文化经济中心，对不对？而且上海是长江三角洲地区人口流动、物流疏散最密集的城市，尤其还是很多外国企业来华投资的桥头堡。咱就问自己一个问题，现在告诉你，纽约封锁了你可能没感觉，说伦敦封锁了你也可能没感觉，但现在告诉你纽约宵禁了，纽约进入军管，伦敦进入军管，请问大家是什么感觉？
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+资料来源：[2022年4月8日 文贵大直播](https://gettr.com/post/p147s0qfc4d)
 
 发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
