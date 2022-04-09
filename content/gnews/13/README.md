@@ -2,23 +2,27 @@
 ---
 
 
-## 我们要把中国人从被中共胁迫的恐惧中解放出来
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2315355/)
+## 再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2315569/)
 
-撰稿：纽约香草山农场-飞虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-32.png)
-4月5日，新中国联邦在波兰救援前线的战友Nicole，与捷克电台的记者艾斯黛进行了深入交流，向她解释了梅迪卡的中国帐篷并非来自共产主义中国，而是来自致力于铲除中共的新中国联邦。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-936.png)
-在被问到推翻中共的可能性时，艾斯黛谈到中共控制下的中国人很难接触到墙外的社交媒体和言论。Nicole解释说，事实上，国内很多觉醒的中国人在通过VPN等手段绕过中共的防火墙。而新中国联邦除了此次人道主义救援行动外，还在试图打破中共的审查制度，向中国境内被中共严重洗脑的人们提供真实的信息，把人们从被中共胁迫的恐惧中解放出来。
+撰稿：日本东京方舟农场-Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-33.png)
+据国外媒体4月7日报道，3月5日到4月2日，俄罗斯军队在占领切尔尼戈夫市外的Yahidne 时，将当地大约130名男人、女人和儿童关押在了当地学校一个65 平方米的地下室里。他们在那里经历了一段难以想象的悲惨时期。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-938.png)
+60 岁的米科拉就是其中之一，他只有半米的空间，睡觉时站着，为了不摔倒，就用围巾把自己绑在栏杆上。地下室的人根本不能动，大约有 40 或 50 名儿童一起被关在这里，最小的婴儿才两个月大。房间的两扇窗户被木板封住，没有通风，有些老人窒息而死。
 
-参考链接：[【乌克兰救援】 04/05/2022](https://gettr.com/post/p1472g99546)
+因为俄军不允许及时处理尸体，被关押的人就会和尸体一起生活，直到被拉走，这期间有 12 人死亡。大多数时候，人们甚至不被允许上厕所。有时士兵会把人带出去当作盾牌。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-58.jpg)
+俄罗斯的入侵毁掉了这里人们正常、和平的生活。米科拉说，普京是一名战犯。
 
-总编：飞虹
+参考链接：[Ukraine war: Sharing space with the dead – horror outside Chernihiv](https://www.bbc.com/news/world-europe-61030090)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-59.jpg)
+
+编辑/总编/审核：飞虹
 
 校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-33.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-34.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

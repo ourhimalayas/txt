@@ -15,171 +15,174 @@
 
 ---
 
-### [嘉宾分享连线前线战友的感想（二）](/content/gnews/1/README.md)
+### [上海清零政策 马斯克入主推特（三）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [樱花FM┃郭文贵先生2022年4月5日盖特视频（9分58秒）全文字版](/content/gnews/2/README.md)
+### [上海清零政策 马斯克入主推特（二）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [老班长谈lock down和封城含义不同，上海现在实际在军管状态（一）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花FM┃日本政府宣布向乌克兰提供包括排雷在内的追加援助](/content/gnews/4/README.md)
  ` 樱花FM`
 
-### [救援活动的多重意义（一）](/content/gnews/3/README.md)
+### [樱花FM┃疫情肆虐 “代客扫墓”繁忙](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [老班长谈lock down和封城含义不同，上海现在实际在军管状态（四）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：英国首相约翰逊批评亲俄的中共国](/content/gnews/4/README.md)
+### [樱花FM┃日英就继续对俄罗斯施压达成一致](/content/gnews/7/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃接种新冠病毒疫苗后 患“带状疱疹”的人激增](/content/gnews/8/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃中共党媒瞪眼替俄罗斯撒弥天大谎](/content/gnews/9/README.md)
+ ` 樱花FM`
+
+### [秘翻在线：日本和菲律宾首次2+2以加强针对中共国的安全合作](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [救援活动的多重意义（五）](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [樱花FM┃人生的每一次思考，都是对灵魂的救赎](/content/gnews/6/README.md)
+### [樱花FM┃众多国家驱逐俄罗斯外交官](/content/gnews/11/README.md)
  ` 樱花FM`
 
-### [樱花FM┃布查平民屠杀事件震惊世界 美欲将俄踢出联合国人权理事会](/content/gnews/7/README.md)
+### [北约同意向乌提供先进重型武器](/content/gnews/12/README.md)
+ ` NFSC News`
+
+### [再爆俄军暴行 乌克兰平民在切尔尼戈夫市外与死者共处](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [樱花FM┃ 业力与个人命运与国运](/content/gnews/14/README.md)
  ` 樱花FM`
 
-### [樱花FM┃在中共国，跟上面反映一下，有用吗？](/content/gnews/8/README.md)
- ` 樱花FM`
-
-### [樱花FM┃中共助纣为虐，屏蔽联合国网站乌克兰战争报道](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [樱花FM┃疫苗后遗症 带状疱疹患者急剧增加](/content/gnews/10/README.md)
- ` 樱花FM`
-
-### [樱花FM┃你付出了吗？你坚信了吗](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [美国防官员称乌东战斗将是一场非常血腥丑陋的“刀战”](/content/gnews/12/README.md)
+### [美国防官员称乌东战斗将是一场非常血腥丑陋的“刀战”](/content/gnews/15/README.md)
  ` 波士顿五月花农场金融部`
 
-### [我们要把中国人从被中共胁迫的恐惧中解放出来](/content/gnews/13/README.md)
+### [我们要把中国人从被中共胁迫的恐惧中解放出来](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [秘翻在线：微软没收俄罗斯骇客组织的网络域名](/content/gnews/14/README.md)
+### [秘翻在线：微软没收俄罗斯骇客组织的网络域名](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [串珠652:中共“一号文件”及饥荒将饿死亿万中国人](/content/gnews/15/README.md)
+### [串珠652:中共“一号文件”及饥荒将饿死亿万中国人](/content/gnews/18/README.md)
  ` 郭爆料串珠`
 
-### [COVID-19疫苗副作用集萃（2022.4.8）&#8211;注射新冠疫苗红斑狼疮复发](/content/gnews/16/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.8）&#8211;注射新冠疫苗红斑狼疮复发](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [口述历史之父亲的驼背](/content/gnews/17/README.md)
+### [口述历史之父亲的驼背](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [串珠651:数字货币时代已不可逆转摧枯拉朽地到来](/content/gnews/18/README.md)
+### [串珠651:数字货币时代已不可逆转摧枯拉朽地到来](/content/gnews/21/README.md)
  ` 郭爆料串珠`
 
-### [串珠649:清零政策会让无数中国人死无葬身之地](/content/gnews/19/README.md)
+### [串珠649:清零政策会让无数中国人死无葬身之地](/content/gnews/22/README.md)
  ` 郭爆料串珠`
 
-### [巴基斯坦总理汗表示他不会承认反对派政府](/content/gnews/20/README.md)
+### [巴基斯坦总理汗表示他不会承认反对派政府](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共为台湾公司造船可能有助于中共海军的建设](/content/gnews/21/README.md)
+### [中共为台湾公司造船可能有助于中共海军的建设](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际｜联合国报告3月粮价创新高 2008年能源粮食危机再现](/content/gnews/22/README.md)
+### [国际｜联合国报告3月粮价创新高 2008年能源粮食危机再现](/content/gnews/25/README.md)
  ` 關注組`
 
-### [中共防疫就是服从性训练 民众需要觉醒](/content/gnews/23/README.md)
+### [中共防疫就是服从性训练 民众需要觉醒](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [上海全市范围内开展抗体检测，群体免疫不攻自破](/content/gnews/24/README.md)
+### [上海全市范围内开展抗体检测，群体免疫不攻自破](/content/gnews/27/README.md)
  ` 战云长天时评`
 
-### [德国警方捣毁俄罗斯大型暗网Hydra](/content/gnews/25/README.md)
+### [德国警方捣毁俄罗斯大型暗网Hydra](/content/gnews/28/README.md)
  ` GTV News Talk`
 
-### [令人发指：俄罗斯士兵在母亲面前强奸儿童](/content/gnews/26/README.md)
+### [令人发指：俄罗斯士兵在母亲面前强奸儿童](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [全球粮价暴涨 恐爆发全球性饥饿危机](/content/gnews/27/README.md)
+### [全球粮价暴涨 恐爆发全球性饥饿危机](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [Shopify因2020年Ledger数据泄露面临新的集体诉讼](/content/gnews/28/README.md)
+### [Shopify因2020年Ledger数据泄露面临新的集体诉讼](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [请与时俱进，拥抱和学习全新诗歌](/content/gnews/29/README.md)
+### [莫德纳在欧洲召回数千剂新冠疫苗](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [莫德纳在欧洲召回数千剂新冠疫苗](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [欧盟同意冻结俄罗斯联邦储蓄银行老板和普京女儿的资产](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [泰德·克鲁兹盛赞马斯克购买推特并透露想买特斯拉](/content/gnews/32/README.md)
+### [泰德·克鲁兹盛赞马斯克购买推特并透露想买特斯拉](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [优步涨价可能不足以平息司机对油价的愤怒](/content/gnews/33/README.md)
+### [优步涨价可能不足以平息司机对油价的愤怒](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯](/content/gnews/34/README.md)
+### [台湾｜中共刻意骚扰日台空域 日防卫省：对领空的侵犯](/content/gnews/35/README.md)
  ` 關注組`
 
-### [墙内奇葩：一家捡电子垃圾的高科技公司](/content/gnews/35/README.md)
+### [墙内奇葩：一家捡电子垃圾的高科技公司](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [7News《全球视点》现代信息化战争 炮灰也被精准锁定](/content/gnews/36/README.md)
+### [7News《全球视点》现代信息化战争 炮灰也被精准锁定](/content/gnews/37/README.md)
  ` 宁南`
 
-### [拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行](/content/gnews/37/README.md)
+### [拜登总统：对乌克兰火车站的袭击是俄罗斯犯下的又一骇人听闻的暴行](/content/gnews/38/README.md)
  ` 美国政要直译推`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/38/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/39/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年4月8日:财经新闻整理](/content/gnews/40/README.md)
+### [新西兰财经G乐部2022年4月8日:财经新闻整理](/content/gnews/41/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/41/README.md)
+### [乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [俄罗斯被联合国投票“踢出”人权理事会](/content/gnews/42/README.md)
+### [俄罗斯被联合国投票“踢出”人权理事会](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [有声|美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁](/content/gnews/43/README.md)
+### [有声|美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁](/content/gnews/44/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第5天登榜12国iTunes音乐榜首](/content/gnews/44/README.md)
+### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第5天登榜12国iTunes音乐榜首](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联合国大会通过暂停俄罗斯在联合国人权理事会的成员资格](/content/gnews/45/README.md)
+### [联合国大会通过暂停俄罗斯在联合国人权理事会的成员资格](/content/gnews/46/README.md)
  ` 温哥华扬帆农场`
 
-### [视频|美前线医生称，大规模接种疫苗无效，死亡率更高](/content/gnews/46/README.md)
+### [视频|美前线医生称，大规模接种疫苗无效，死亡率更高](/content/gnews/47/README.md)
  ` MOSVIDEO`
 
-### [视频|美国将拒绝出席有俄罗斯在场的G20会议](/content/gnews/47/README.md)
+### [视频|美国将拒绝出席有俄罗斯在场的G20会议](/content/gnews/48/README.md)
  ` MOSVIDEO`
 
-### [视频|美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/48/README.md)
+### [视频|美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/49/README.md)
  ` MOSVIDEO`
 
-### [国际｜日本驱逐俄罗斯八名外交人员 配合西方降低俄煤进口](/content/gnews/49/README.md)
+### [国际｜日本驱逐俄罗斯八名外交人员 配合西方降低俄煤进口](/content/gnews/50/README.md)
  ` 關注組`
 
-### [樱花时政┃美众议院议长佩洛西确认阳性推迟访日](/content/gnews/50/README.md)
+### [樱花时政┃美众议院议长佩洛西确认阳性推迟访日](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁](/content/gnews/51/README.md)
+### [国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁](/content/gnews/52/README.md)
  ` 關注組`
 
-### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/52/README.md)
+### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/53/README.md)
+### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/54/README.md)
+### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共才是世界上黑帮的幕后大佬](/content/gnews/55/README.md)
+### [中共才是世界上黑帮的幕后大佬](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/56/README.md)
+### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

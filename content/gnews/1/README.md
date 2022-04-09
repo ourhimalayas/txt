@@ -2,11 +2,11 @@
 ---
 
 
-## 嘉宾分享连线前线战友的感想（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315600/)
+## 上海清零政策 马斯克入主推特（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2315954/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-00-10-10-01（-二）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-30-10-40-三--scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：**
