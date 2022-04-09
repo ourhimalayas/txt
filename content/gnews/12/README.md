@@ -2,12 +2,19 @@
 ---
 
 
-## 【乌克兰救援】04/07/2022 比利时维吾尔人认同新中国联邦
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2314202/)
+## 疫苗灾难蔓延，储粮备药应对（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314282/)
 
-【乌克兰救援】04/05/2022 比利时的维吾尔人小苏，虽然一家人逃离了中国，但很多亲人朋友仍关在集中营失去了联系。他说人终有一死，应该活得有意义，他即将作为外国军团上乌克兰前线作战。他从网络上听说了新中国联邦，感慨终于有人站出来为正义而战。他说墙内很多聪明人，只是不愿、不敢站出来，他呼吁站在正义一边。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WE
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：陶子*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

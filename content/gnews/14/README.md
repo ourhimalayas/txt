@@ -2,37 +2,35 @@
 ---
 
 
-## 澳洲药监局批准给12-15岁儿童打辉瑞加强针，仍需ATAGI批准
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2314146/)
+## 【#G时新闻】俄罗斯军队占领切尔尼吉夫后死亡和破坏的场景
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2314245/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-155.jpg)图片来自网络
-《ABC News》近日报道，澳洲药物管理局已经批准给12-15岁青少年打辉瑞新冠疫苗加强针，但是还需要最后一道审批。
+##### 素材：加拿大温哥华扬帆农场 -【青青】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+俄罗斯军队占领切尔尼吉夫后死亡和破坏的场景。
 
-和其他年龄组一样，TGA建议12-15岁的人在打了第二针的6个月后打新冠疫苗加强针。
+触目惊心！
 
-澳洲药监局说：“以色列，英国和美国都批准了这个年龄组打加强针。”
+战争受害者永远是底层百姓！
 
-此举是继今年早些时候辉瑞公司为16岁和17岁的人批准加强针之后的又一举措。
+切尔尼吉夫一家儿童医院潮湿的地下室，墙上挂着画作-抹上的彩虹、伟大的乌克兰国旗……
 
-但是要向年轻群体提供助推器，它们必须被纳入新冠疫苗计，这是澳大利亚免疫技术小组（ATAGI）的决定。
+盖特链接：https://gettr.com/post/p14bfsyab66
 
-澳洲药监局（TGA）说：”ATAGI不久将就辉瑞新股冠疫苗是否应被纳入接种计划提供建议，作为两道审批过程的最后一步。
+原文链接：https://twitter.com/AFP/status/1511967323179327489
 
-在TGA和ATAGI批准了12至15岁年龄组的疫苗并在去年将其加入到疫苗推广计划中后，辉瑞和莫德纳新冠疫苗都可用于该年龄组。
+编辑/发文 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-截至4月8日，52.3%的16岁及以上符合条件的人已经注射了加强针。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-辉瑞疫苗不是已经公布了一千多种不良反应吗？为什么澳洲还要不管不顾的强推呢？
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-参考链接：
-
-[https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692](https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

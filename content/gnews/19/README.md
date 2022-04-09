@@ -2,26 +2,28 @@
 ---
 
 
-## 美议员提案，一旦犯台，中共将被踢出国际金融体系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2313949/)
+## 香港葬礼服务中心不堪重负
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314233/)
 
-作者：纽约香草山农场 – 云豹
+作者：银河系农场 – 骄子
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-4月6日，为阻止中共侵犯台湾，美国众议员卢卡斯提出“排除中共法案”。该法案要求，一旦中共对台湾的社会、经济体系造成威胁，美国政府将采取行动，将中共踢出国际金融体系。
+根据外媒4月6日的消息，因中共病毒和疫苗导致的死亡正在香港肆虐，使这个城市的葬礼服务负担越来越重，传统木制棺材极度短缺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-18.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-17.jpg)
 
-卢卡斯表示，中共对美国的国家安全、政治、经济构成极大的威胁。根据该法案，一旦中共攻打台湾，中共官员将被拒绝参加包括G20、国际清算银行（BIS）、国际金融稳定委员会（Financial Stability Board）、国际保险监理官协会（IAIS）、国际证券监察会组织（IOSCO）在内的国际金融组织的会议和活动。
+据悉，自今年新一波疫情爆发以来，香港已经报告了8000多例死亡，每天需要的棺材大约为300个。一位37岁的殡仪馆馆长说，从未见过这么多尸体堆积在一起，他几乎一直处于全天工作的状态。整个3月份组织了大约40场葬礼，以往每个月大约为15场。停尸房已经人满为患。有位3月1日去世的死者家人一直在等待死亡文件来认领尸体，但直到现在都没拿到。
+
+目前，全天持续运行的火葬场多达6个，每天要进行300次火化。公共停尸房已经扩建到原来的大概2倍大，可容纳4600具尸体。环保棺材制造商捐赠了棺材和防腐剂，这类物质可以帮忙保存尸体不腐烂长达五天，可以为尸满为患的殡葬服务多留出一些时间。
 
 参考链接：
 
-- [若威脅台安全 美議員提案將中國排除國際金融體系](https://www.cna.com.tw/news/aopl/202204070011.aspx)
+- [‘So many bodies piled up’: Hong Kong funeral services overwhelmed by COVID](https://www.reuters.com/world/china/so-many-bodies-piled-up-hong-kong-funeral-services-overwhelmed-by-covid-2022-04-06/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-总编/编辑：雪梨
-审核：雪梨
+总编/编辑：飞虹
+审核：木木
 校正/发稿：海阔天空1
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)

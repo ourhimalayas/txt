@@ -2,31 +2,30 @@
 ---
 
 
-## 美国将拒绝出席有俄罗斯在场的G20会议
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2313952/)
+## 佩洛西访台因病毒受阻 中共再发威胁 并派军机侵扰台日
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314235/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约磐石农场 – 在远方；纽约香草山教育部 – Naughty(文行)；银河系农场 -骄子
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+国外媒体4月7日报道，美国众议院长佩洛西刚刚宣布将在10日访问日本、与首相岸田文雄会晤后，调整行程访问台湾，随即被确诊中共病毒阳性，她率领的国会代表团的亚洲行也因此延后。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-11.png)
 
-4月6日，美国财政部长耶伦在国会听证会上，同意拜登总统关于将俄罗斯从G20论坛除名的提议，并表示如果俄罗斯人在场，美国将不会参加G20会议。
+访台消息公布后，中共喉舌警告美国，若佩洛西访问台湾，他们会对台湾进行毁灭性打击。中共外交部发言人赵立坚还声称，中共打台湾的一切后果都应该由美方承担，胡锡进甚至建议在佩洛西到达台湾的当天就开战，称中共解放军可以击落台湾的飞机或者对台湾的部队发射导弹进行破坏性打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-27.jpg)
-
-耶伦表示，美国财政部将修补更多的制裁漏洞，使俄罗斯无法从国际金融体系获益。此外，她也向中共发出警告，如果中共侵略台湾，美国也会向中共当局实施制裁。
-
-据悉，G20财长和央行行长将在本月下旬，在国际货币基金组织和世界银行会议期间，于华盛顿举行面对面会议和视频会议。
+与此同时，中共有4架次军机袭扰了台湾的西南空域，其中1架中共运9电子战机还飞入台湾以东的太平洋空域，侵犯了日本领空。台湾军方和日本防卫省均证实了此消息，并称各自派出军机紧急升空，进行了驱离。
 
 参考链接：
 
-- [Yellen Says U.S. Would Use Sanctions If China Invaded Taiwan](https://www.bloomberg.com/news/articles/2022-04-06/yellen-says-u-s-would-use-sanctions-if-china-invaded-taiwan)
-- [US treasury secretary says Biden wants Russia out of G20](https://www.aljazeera.com/news/2022/4/6/us-treasury-secretary-says-biden-wants-russia-out-of-g20)
+- [囂張共機「運9」接連侵擾空域 台日兩國軍機升空攔截](https://news.ltn.com.tw/news/politics/breakingnews/3885944)
+- [Pelosi tests positive for coronavirus as part of D.C. wave of cases](https://www.washingtonpost.com/politics/2022/04/07/nancy-pelosi-coronavirus-positive-test/)
+- [China State Media Warn of ‘Destructive Strike’ to Taiwan If Pelosi Visits](https://www.newsweek.com/china-state-media-warn-destructive-strike-taiwan-pelosi-visit-1696129)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-总编/编辑：雪梨
-审核：雪梨
+总编/编辑：飞虹
+审核：飞虹
 校正/发稿：海阔天空1
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)

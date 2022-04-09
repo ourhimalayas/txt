@@ -2,41 +2,30 @@
 ---
 
 
-## 【#G时新闻】日本再次发力 宣布对俄罗斯实施额外制裁
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2313864/)
+## 法治基金在乌克兰的人道救援行动仍在继续
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2314231/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【Grace’l’shan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月8日，岸田首相召开了新闻发布会，宣布对俄罗斯实施额外制裁。
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-岸田首相表示：“加大对俄罗斯的外交和经济压力，我们将与国际社会团结起来，实施强有力的制裁，以阻止局势进一步升级，尽快实现停火，结束侵略。”额外的制裁包括以下5项。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/13-7.jpg)
 
-(1) 禁止从俄罗斯进口煤炭。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-(2) 对机械、一部分木材和伏特加酒实行进口禁令。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-(3) 禁止在俄罗斯进行新的投资。
+参考链接：
 
-(4) 冻结俄罗斯最大银行俄罗斯联邦储蓄银行 （Sberbank）和阿尔法银行（Alfa Bank）的资产。
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-关于煤炭进口，岸田首相表示：“将通过尽快获得替代品和逐步消减进口来减少我们在能源领域对俄罗斯的依赖。”日本政府不再犹豫，采取了坚定的立场，和美国和欧洲等西方国家坚定地站在了一起。只有全球的民主国家联合在一起，才能彻底摧毁邪恶的独裁政权。
 
-(5) 冻结个人和公司的资产，包括近400名俄罗斯军事人员和议员以及约20个与军事有关的团体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-盖特链接：https://www.gettr.com/post/p14ackvc7fd
+总编：飞虹
+校正/发稿：海阔天空1
 
-编辑/发文 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
