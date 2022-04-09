@@ -2,41 +2,26 @@
 ---
 
 
-## 樱花时政┃美国“授权撤离”驻上海总领馆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318288/)
+## 中国用人民币购买的俄国能源将运抵中国
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2318289/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-22.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://uploads.mwp.mprod.getusinfo.com/uploads/sites/23/2021/07/Consulate-Main-building-1-1140x684-1.jpg&amp;imgrefurl=https://china.usembassy-china.org.cn/embassy-consulates/shanghai/&amp;tbnid=BWBvDkZ-ljS7JM&amp;vet=12ahUKEwjc157boYf3AhVE8JQKHdazBcQQMygAegUIARCrAQ..i&amp;docid=-4Z17tFw5pC4iM&amp;w=1140&amp;h=684&amp;q=U.S.%20Consulate%20General%20in%20Shanghai&amp;hl=zh-TW&amp;ved=2ahUKEwjc157boYf3AhVE8JQKHdazBcQQMygAegUIARCrAQ)
+**撰稿：日本东京方舟农场 胖小哥**
 
-北京时间4月9日，美国驻华大使馆发布公告，称美国国务院已经授权美国驻上海总领事馆自愿撤离。据悉，这是中共病毒爆发后，美国国务院做出的第三次“授权撤离”。
+美国财经媒体彭博社周四（4月7日）报道，有消息称，几家中国公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-25.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-170.jpg)俄罗斯Kedrovsky露天煤矿
 
-4月9日，美国驻华大使馆发文称：我们再次发布旅行警告通知美国公民：由于新冠病例数量以及相关限制，美国国务院已允许美国驻上海总领事馆的非紧急美国政府雇员及家属自愿撤离。
+据悉，此消息来源于中国咨询公司汾渭能源信息服务公司，中国买家购买这批货物使用的是人民币。交易商们表示，这将是美国和欧洲把俄罗斯银行剔除出国际金融支付系统以来，俄罗斯发出的第一批用人民币支付的货物。
 
-目前上海因疫情封城，当地社会秩序已经崩溃，广大民众已经陷入绝境。
+由于西方的制裁，俄罗斯的国际支付功能受到严重限制，大大增加了俄罗斯债务违约的风险。周三，俄罗斯使用卢布向一家美国银行支付了一笔金额为6.5亿美元的债务。但据美联社报道，这笔付款并没有被对方接受，因为新的制裁措施禁止俄罗斯使用美国银行支付债务。
 
-**此前两次“授权撤离”**
+去年，俄罗斯成为中国第二大煤炭供应国，填补了澳大利亚留下的缺口，中国为了报复澳大利亚在美中对抗中站队美国，中断了进口澳大利亚的煤炭等许多重要商品。
 
-第一次撤离发生在中国中共病毒大爆发的2020年1月底，美国国务院批准美国驻北京大使馆所有非紧急情况的政府雇员及其家属离开。包括北京、成都、上海、广州和沈阳的总领事馆的所有外交人员及其家属，都有权自行选择离开。
+参考链接：
+[https://reurl.cc/oel3zv](https://reurl.cc/oel3zv)
 
-第二次撤离发生在北京冬季奥运会前夕的2022年1月25日，郭文贵先生代表新中国联邦全球首个曝出，美国国务院拟以“中国疫情状况”为由，批准其驻华使领馆“授权撤离”。
-
-据了解，“授权撤离”系美国驻外机构针对特定的紧急事件，决定将驻外人员撤离驻在国的行为，需获得美国国务院高级官员批准后方可实施。授权离境使美国大使馆的美国政府雇员可以选择离开，如果他们愿意也可以选择不离开。
-
-中美关系目前陷入僵局，受到疫情影响，美国国务院担心美国外交官及其家属在中国的生活无法得到保障，出于人道主义关怀，允许外交官自愿选择去留，更体现了自由民主制度的人性关怀。
-
-信息来源：[美国驻华使团关于旅行警告和授权撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+总编：青城道姑
+校对发布：爱放飞
 
  
 
