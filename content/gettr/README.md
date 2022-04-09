@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 3:18 AM (UTC)`
+
+【Ukraine Rescue】04/05/2022 Citing Putin's crimes against Ukraine as an example, a young American volunteer says: "Cowards have died countless times before physical death, while heroes only need to taste death once." He also says, "I hope to see the day the CCP collapses as soon as possible. We must unite to spend our lives achieving this goal and bring the world back to normal.”<br/><br/> 【乌克兰救援】04/05/2022 一位年轻的美国人志愿者以普京对乌克兰犯下的罪行为例说：“懦夫在肉体死亡之前已经死了无数次，而英雄只需品尝一次死亡的滋味。“并表示“希望能尽快看到中共垮台的那一天。我们必须团结起来用一生去实现这一目标，让世界恢复正常。”<br/>
+![img](https://media.gettr.com/group39/getter/2022/04/09/03/dbc069a9-1e04-8fb0-5cf5-40b7be7ced54/out.jpg)
+
+---
+
 `@miles 4/9/2022 3:01 AM (UTC)`
 
 2022-4-8《鸡血王喜币大作战》 第一百五十九集 嘉宾：无双柳薇薇、Tex、封神榜
@@ -150,13 +157,6 @@
 
 2022.04.08  新中国联邦 | 军情室   俄乌战事更新；北约援助乌克兰装备一览；现代战争中的杀伤链概念
 ![img](https://media.gettr.com/group48/origin/2022/04/08/18/5c9cc5bf-3653-ef6a-5f2f-09c84a6cfdcd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 6:54 PM (UTC)`
-
-Ukraine is a respectable nation that has always resisted Russia's brutal invasion with tenacity. All righteous and conscientious people stand with Ukraine. Unfortunately, the evil Chinese Communist Party has been secretly supporting Russia's invasion of Ukraine and is a root cause of disasters for the world.<br/>The NFSC, the Rule of Law Foundation and international rescue organizations have cooperated to launch a rescue operation in Ukraine. The NFSC seeks peace in the world and freedom for all. The NFSC will eliminate the Chinese Communist Party and make the world a better place.<br/>乌克兰是一个值得尊敬的民族，一直都在顽强的抵抗俄罗斯的野蛮入侵，并且所有正义、有良知的人士都跟乌克兰站在一起。可悲的是，邪恶的中共一直在暗中支持俄罗斯侵略乌克兰，是世界灾难的根源。<br/>新中国联邦、法治基金和国际救援组织合作，发起了乌克兰救援行动。新中国联邦要在世界建立和平，让所有人都享有真正的自由。新中国联邦人一定会消灭中共，让世界变得更美好。
-![img](https://media.gettr.com/group28/origin/2022/04/08/18/79eda8a3-a8bb-e3f9-e69e-8b73c332401f/out.jpg)
 
 ---
 
