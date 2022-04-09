@@ -2,8 +2,8 @@
 ---
 
 
-## 美台同盟官方明确定性（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314241/)
+## 疫苗灾难蔓延，储粮备药应对（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314282/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

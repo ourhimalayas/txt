@@ -2,30 +2,30 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月8日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2313588/)
+## 美商会官员：美国必须加强与巴西的关系
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2313624/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-8.png)
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-09-上午10.23.48.png)图片来源：互联网
+圣保罗（路透社）–美国商会国际事务部门负责人Myron Brilliant周四在圣保罗的一个新闻发布会上说，拜登政府在与巴西建立长期联盟方面做得不够，部分原因是美国的国内议程。
 
+Brilliant说，美国在整个拉丁美洲缺乏参与，这意味着 “机会没有以我们希望的方式得到发展（也没有一个）长期战略计划”。
 
-校对：Stay文苑
+“在过去十年中，我们看到的是中国在该地区的投资和参与大幅上升，”Brilliant说。”我们也看到俄罗斯的参与。我们会说，美国必须在场。”
 
-编辑：Stay文苑
+美国是巴西的第二大贸易伙伴，仅次于中国。不同的是，巴西对亚洲国家有贸易顺差，而对美国则有贸易逆差。
 
-发稿：Stay文苑
+根据巴西政府的数据，今年第一季度，巴西对美国的贸易逆差为38亿美元，对中国的顺差为47亿美元。
 
-新闻：[https://gettr.com/post/p14as5m3add](https://gettr.com/post/p14as5m3add)
-访谈：[https://gettr.com/post/p14bg8q3c1b](https://gettr.com/post/p14bg8q3c1b)
+数据显示，在此期间，美国约占巴西总体出口的11%，而中国几乎占28%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+“用赤字和顺差来定义贸易是一个错误，”Brilliant说。”对我们来说，重要的是要有一个公平的竞争环境。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接：[U.S. must do more to strengthen ties with Brazil -U.S Chamber of Commerce official](https://www.xm.com/research/markets/allNews/reuters/us-must-do-more-to-strengthen-ties-with-brazil-us-commerce-official-47552082)
+
+* * *
+
+*编辑&发布：长岛开心*
 
  
 

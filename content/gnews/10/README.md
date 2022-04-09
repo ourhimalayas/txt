@@ -2,12 +2,19 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦（NFSC）的标语在Medyka吸引了大家的注意力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2314167/)
+## 美台同盟官方明确定性（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2314241/)
 
-【乌克兰救援】04/05/2022 一位印度义工非常喜欢我们马甲上的话，大声地念出“我们是消灭邪恶中国共产党的新中国人”。他说，人类不该有共产主义，俄罗斯不该有，中国不该有，我们一起铲除共产主义。他欢迎郭文贵先生去印度，并祈祷佛祖保佑郭先生和新中国联邦人。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WE
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：陶子*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

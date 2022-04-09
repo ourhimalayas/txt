@@ -2,37 +2,43 @@
 ---
 
 
-## 澳洲药监局批准给12-15岁儿童打辉瑞加强针，仍需ATAGI批准
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2314146/)
+## 美国两项制裁俄-白法案只等签字，中共将陷入能源危机
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2314204/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-155.jpg)图片来自网络
-《ABC News》近日报道，澳洲药物管理局已经批准给12-15岁青少年打辉瑞新冠疫苗加强针，但是还需要最后一道审批。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+2022年4月7日，《暂停从俄罗斯进口能源法》(Suspending Energy Imports from Russia Act)，和《暂停与俄罗斯和白俄罗斯正常贸易关系法》(Suspending Normal Trade Relations with Russia and Belarus Act)通过国会投票，现已递交白宫，等候拜登签字生效。
 
-和其他年龄组一样，TGA建议12-15岁的人在打了第二针的6个月后打新冠疫苗加强针。
+俄乌战争2月24日爆发后，美国参众两院从来没有停止过通过立法，制裁战争发动方的努力。
 
-澳洲药监局说：“以色列，英国和美国都批准了这个年龄组打加强针。”
+3月8日，《暂停从俄罗斯进口能源法》起草完毕，并提交给了美国众议院筹款委员会，金融服务委员会、外交事务委员会、对外关系委员会、财政委员会。3月9日，法案提交给美国众议院。整个审议、讨论从上午9点开始一直持续到晚上11点。最后以414票赞成17票反对通过该决议，并提交给参议院。3月23日，美国参议院收到法案。3月24-4月7日，参议院进入阅读、审议阶段，7日，参议院以100 ： 0压倒性票数通过该法案。当天提交总统签字。
 
-此举是继今年早些时候辉瑞公司为16岁和17岁的人批准加强针之后的又一举措。
+3月17日，《暂停与俄罗斯和白俄罗斯正常贸易关系法》起草完毕，提交参院完成审议，最终以424：8的投票结果通过。4月7日法案在众议院以420：3的优势通过。当天提交总统签字。
 
-但是要向年轻群体提供助推器，它们必须被纳入新冠疫苗计，这是澳大利亚免疫技术小组（ATAGI）的决定。
+《暂停从俄罗斯法案进口能源法》要求，1、禁止进出口俄罗斯联邦能源产品；2、永久授权总统根据侵犯人权行为实施签证和财产封锁制裁，并修改了总统实施这些制裁的权力。3、法案一般禁止进口归类于协调关税表第 27 章的俄罗斯产品（包括矿物燃料、矿物油及其蒸馏产品、沥青物质和矿物蜡），但已经装船的产品除外。4、总统可以出于国家利益的原因放弃这一禁令，但须经国会批准。5、该法案指示美国贸易代表采取某些行动，包括考虑暂停俄罗斯参与世界贸易组织的措施。6、该法案终止必须满足俄罗斯军队撤出并停止军事敌对行动，并为乌克兰自由和独立政府所接受；不对任何北大西洋公约组织成员国构成直接的军事侵略威胁以及承认乌克兰人民有权独立和自由地选择自己的政府。
 
-澳洲药监局（TGA）说：”ATAGI不久将就辉瑞新股冠疫苗是否应被纳入接种计划提供建议，作为两道审批过程的最后一步。
+而《暂停与俄罗斯和白俄罗斯正常贸易关系法》要求：1、暂停与和俄罗斯和白俄罗斯的正常贸易关系。2、永久授权总统实施基于侵犯人权的财产封锁的签证制裁。3、总统有权宣布提高适用于美国产品的关税税率，授权于 2024 年 1 月 1 日终止。4、美国贸易代表应利用美国在世贸组织的发言权和影响力，谴责最近对乌克兰的侵略，鼓励其他世贸组织成员暂停对俄罗斯联邦和白俄罗斯共和国的贸易优惠，并考虑采取进一步措施，暂停俄罗斯与白俄罗斯入世贸组织的进程。5、根据《全球马格尼茨基人权问责法》重新授权对侵犯人权和腐败行为的制裁。
 
-在TGA和ATAGI批准了12至15岁年龄组的疫苗并在去年将其加入到疫苗推广计划中后，辉瑞和莫德纳新冠疫苗都可用于该年龄组。
+一些立法者曾表示，如果现在不对贸易法案采取行动，将会向盟国和俄罗斯发出错误的信息。参与《暂停从俄罗斯进口能源法》起草的参议员克莱默说，我们必须尽我们所能来挤压俄罗斯的能源收入。首先是禁止俄罗斯能源进口。我们还需要发出信号，即美国不会帮助资助弗拉基米尔·普京的侵略。我们的后院拥有取代俄罗斯肮脏产品所必需的自然资源。在俄罗斯暴力入侵乌克兰之后，这是我们必须为国家、能源和经济安全采取的步骤。
 
-截至4月8日，52.3%的16岁及以上符合条件的人已经注射了加强针。
+对此另一位参与法案的起草者参议院曼钦说，这项跨党派法案表明我们坚定承诺支持乌克兰人民的英勇努力以及我们在欧洲的盟友为谴责普京及其持续侵略而采取的措施。我敦促舒默领袖迅速将这项两党法案付诸表决，并敦促我的同事支持它。
 
-辉瑞疫苗不是已经公布了一千多种不良反应吗？为什么澳洲还要不管不顾的强推呢？
+在俄罗斯侵略乌克兰的事件上，美国两党已经保持高度的一致。未来只要俄罗斯继续在乌克兰展开军事行动，占据城镇，可以想见欧美国家还会给予他们更为严重的经济制裁与打击。这种态度，也在暗示中共希望通过钟摆效应，玩弄政治，美国内部撕裂，进而达到攻打台湾的目的，只会招来美国更为严厉的制裁甚至是军事打击。
 
-参考链接：
+[https://www.congress.gov/bill/117th-congress/house-bill/7108/all-info?r=1&s=1](https://www.congress.gov/bill/117th-congress/house-bill/7108/all-info?r=1&amp;s=1%20https://www.congress.gov/bill/117th-congress/house-bill/7108/actions?r=1%20https://www.cramer.senate.gov/news/press-releases/cramer-colleagues-introduce-legislation-to-ban-russian-energy-imports)
 
-[https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692](https://www.abc.net.au/news/2022-04-08/tga-pfizer-boosters-12-15-year-old-covid-vaccine/100978692)
+[https://www.congress.gov/bill/117th-congress/house-bill/7108/actions?r=1 https://www.cramer.senate.gov/news/press-releases/cramer-colleagues-introduce-legislation-to-ban-russian-energy-imports](https://www.congress.gov/bill/117th-congress/house-bill/7108/all-info?r=1&amp;s=1%20https://www.congress.gov/bill/117th-congress/house-bill/7108/actions?r=1%20https://www.cramer.senate.gov/news/press-releases/cramer-colleagues-introduce-legislation-to-ban-russian-energy-imports)
 
-*编辑：金生水*
+校对/发稿：菩提树
 
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
