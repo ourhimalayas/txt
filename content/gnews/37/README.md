@@ -2,37 +2,38 @@
 ---
 
 
-## 口述历史之父亲的驼背
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2315134/)
+## 美国加重对俄经济制裁 普京女儿亦在其列
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2315146/)
 
-作者：在天为风在地为林
-编辑：伏而起之
+作者：日本东京方舟农场 – Miyali7768(文玉）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/0-16.jpg)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+
+德国媒体4月6日报道，美国周三表示，将对普京政权在乌克兰的暴行，包括在布查镇的暴行，立即施加更严厉的经济制裁，相关的最新措施包含冻结普京两位成年女儿的相关资产并切断她们与美国金融系统的联系。华盛顿还表示，将对俄罗斯最大的公共和私营金融机构，也就是储蓄银行和阿尔法银行实施“全面封锁”的制裁。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-46.png)
+
+这将阻止俄罗斯相关银行的资产出现在美国金融系统中，并禁止美国人与他们进行贸易。其他被盯上的俄罗斯精英还包括俄罗斯总理米修斯丁、俄罗斯外交部长拉夫罗夫的妻子和子女，以及俄罗斯安全委员会成员，包括前总统和总理梅德韦杰夫。
+
+白宫在一份声明中称：“这些人以牺牲俄罗斯人民的利益为代价来换取个人的财富。他们当中的一些人为支持普京对乌克兰发动战争提供了必要的支持。”美方表示，新的制裁是对俄罗斯军队在乌克兰所犯下的“战争罪行”的有力回应。
+
+参考链接：
+
+- [Ukraine: US announces new sanctions, hitting Putin’s daughters, major Russian banks — as it happened](https://www.dw.com/en/ukraine-us-announces-new-sanctions-hitting-putins-daughters-major-russian-banks-as-it-happened/a-61373251)
 
 
-我出生在六十年代末的动荡时期，家乡位于西北农村，5周岁的我便开始有了和其他孩子不一样的记忆。
+![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
-大约是七三年的一个晚上，几个穿蓝衣服的人闯进我家，把我父亲捆绑着抬到院内，用一个三轮偏斗车上拉走。我们兄妹三个抱着那些人的腿大哭，让他们放了爸爸，哭得天昏地暗，没用的！他们拉走了父亲，妈妈搂着我们三个兄妹哭泣，当时她肚子里怀着我们第四个弟弟，这样的恐惧只要是人就一辈子也不会忘掉的。
+编辑/校正/发稿：海阔天空1
 
-就这样，我们那两天都没有吃什么东西，那个饥饿感让当時虚六岁的我一直记到现在。三天后的上午，突然院子里有吵闹声，我们跑出去一看，几个年轻人用门板抬着呻吟的父亲。我们才知道：在绑走父亲的那天晚上，他们路过一座小桥时三轮偏斗车翻了，由于父亲被捆绑着就掉下了桥，腰碰到桥下的水泥栏上，折了。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-他们把父亲放到公社革委会的地上，第三天才通知村里去抬人。三天没吃没喝，腰还断了，父亲受到的摧残是我今天都很难想象的。他是怎样挺过来的？也许是对家人的爱让他从死亡线上回来。后来，村里姓王的赤脚医生用粗麻和糙纸涂抹一些父亲告诉他的草药在腰上，那半个月每天深夜我都能听到父亲痛苦的呻吟。
-
-当时，我也一直发着高烧，沒有什么医疗条件，我昏昏沉沉听到赤脚医生说，这孩子怕是保不住了。妈妈不停在耳边喊我的名字，问我是不是想吃饭，我只能低声哼哼。五天后的早晨，我突然觉得好饿好饿，就想喝妈妈熬的甜米粥。我喝了一小铁锅，你们想不到那有多香。这时，瘦瘦的我才发现，躺在那不能动的爸爸满脸是泪水，不断地说，彗儿活了，慧儿活了！
-
-回想到这场景，现在已是儿孙满堂的我泪如雨下。2018年，父亲去世了，给他穿寿衣的时候，我用手摸他腰的上半部，骨头是错位长在一起的。我嚎啕大哭。
-
-这只是我们家在这个邪恶体制下受害的一小部分，我会分期把我们这几代人在邪魔恶共统治下的所有遭遇都写出来。最后说一句，清明时节想给父亲上坟，墓园管理却告诉我需要预约，真是千古奇闻。
-
-2022年4月5日
-
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
 
  
 

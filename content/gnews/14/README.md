@@ -2,34 +2,45 @@
 ---
 
 
-## 瑞典欲加入北约
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316379/)
+## 美国加强对数字资产的监管计划将数字资产规则现代化
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316445/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+翻译：等风来
+编辑：李易通
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-16.png)图片来源：雅典娜设计组
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0154.jpg)
+2022年4月8日报道，乔·拜登总统计划在未来几年监管区块链和数字货币行业。美国2023年预算有几项关于“数字资产”和“加密货币”的条款。
 
+白宫将这些计划称为其“数字资产规则现代化”的战略，他们预计到2023年将努力赚取49亿美元的收入。
 
-图片来源：路透社
+这些条款主要围绕着要求信息报告、外国数字资产账户报告，以及修订按市值计价规则以包括数字资产。
 
-如果邻国芬兰申请加入北约，瑞典第二大反对党的领导人将建议他的政党改变立场，支持瑞典加入北约。
+到2032年，白宫预计这一战略将减少109.5亿美元的预算赤字。
 
-瑞典民主党改变立场将意味着议会多数席位转向支持长期中立的瑞典加入联盟。
+除了从数字资产规则现代化中创收外，白宫表示，还将通过雇用更多代理、增强响应能力以及加强情报收集和分析能力，将5200万美元用于“应对网络威胁”。
 
-俄罗斯入侵乌克兰促使两国考虑加入，尽管瑞典比与俄罗斯有 1,300 公里边界的芬兰更犹豫不决。
+[报告全文](https://www.whitehouse.gov/wp-content/uploads/2022/03/budget_fy2023.pdf)表示：“这些投资符合政府的反勒索软件战略，该战略针对破坏性活动和打击滥用加密货币。”
 
-芬兰政府已表示将在未来几周内澄清有关可能决定寻求会员资格的后续步骤。
+数字资产规则现代化的计划符合乔·拜登总统[关于数字资产](https://coingeek.com/us-president-joe-biden-signs-executive-order-on-digital-assets/)的[行政命令](https://coingeek.com/us-president-joe-biden-signs-executive-order-on-digital-assets/)以及证券交易委员会主席加里·根斯勒关于数字资产行业的[鹰派言论](https://coingeek.com/sec-chair-gary-gensler-no-reason-to-treat-digital-asset-market-differently-under-securities-laws/?tncpw_session=74beee5364452a432aacbe2f517f7f6b2586f5ead5497149c3b20a8299d6d557)。
 
-民族主义瑞典民主党上个月表示，在一项民意调查显示大多数瑞典人首次支持加入北约。
+行政命令和加里·根斯勒都呼吁对数字资产领域进行更多的监管审查。
 
-简评：俄罗斯入侵乌克兰的事实，以及俄罗斯在乌克兰杀戮平民的罪恶， 让北欧的芬兰和瑞典也不得不考虑自己的安全， 独自对抗俄罗斯身单力薄， 希望能够加入北约。 尤其是芬兰有1300公里和俄罗斯交界， 安全隐患让国民觉醒。 北欧国家要改变中立的立场， 对北约来说当然是好事。 北欧国家虽然是欧盟成员，当时不是北约防御盟国， 为了自己的安全该做出正确的选择了。
+2023年财政预算向我们表明，两人都在谈论的立法迫在眉睫，[拜登政府](https://coingeek.com/how-will-the-biden-administration-approach-digital-currency/)已经围绕未来几年监管数字资产空间的方法制定了详细的计划。旨在结束数字资产行业成为“[狂野西部](https://coingeek.com/crypto-wild-west-will-be-tamed-sec-gary-gensler-tells-us-senate/)”的日子。
 
-🔗 [https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/](https://www.reuters.com/world/europe/sweden-democrats-leader-wants-party-change-nato-membership-if-finland-applies-2022-04-09/)
+美国总统、美国证券交易委员会、财政部长和更多的政府代表正在接触[数字货币](https://coingeek.com/bitcoin101/bitcoin-terms-defined-your-complete-bitcoin-and-blockchain-dictionary/)。尽管这些人最终支持围绕新生的数字资产行业的创新，并希望创造一个鼓励这种创新留在美国的环境，但他们知道，在实现这一目标之前，他们需要制定法律框架来挫败该行业的不良行为者、非法项目和公然诈骗。
 
-编辑发表： Shuizhuyu
+参考链接：[美国加强对数字资产的监管计划将数字资产规则现代化](https://coingeek.com/us-president-joe-biden-plans-to-modernize-digital-currency-laws/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

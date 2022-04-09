@@ -2,41 +2,60 @@
 ---
 
 
-## 突发：美国驻华使团再发《旅行警告和授权撤离的声明》
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2316133/)
+## 德国议员否决了强制60岁以上老人接种新冠疫苗的法案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2316210/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Beijing-Seal-Featured-ZH.png)
-APRIL 9, 2022—[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/) 官网刚刚发出《美国驻华使团关于旅行警告和授权撤离的声明》，全文如下：
+编译: Mandel
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-975.png)2021年3月22日（星期一），在德国慕尼黑附近的埃伯斯贝格的疫苗中心，一位老人注射了阿斯利康新冠疫苗。图片来源: 美联社
 
-包括美国驻华使团的人员和他们的家属在内的海外美国公民的安全与保障是美国最高等级的优先事项。
+大多数德国议员周四拒绝了一项要求所有60岁以上居民接种新冠疫苗的法案。
 
-铭记这一优先事项，鉴于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。
+该法案是由总理奥拉夫·肖尔茨（Olaf Scholz）和他的卫生部长卡尔·劳特巴赫（Karl Lauterbach）进行推动，被认为是一个折中的解决方案，因为来自执政联盟和反对党的立法者们对应用于该国所有成年人的强制疫苗的想法感到困惑。
 
-伯恩斯大使以及国务院和使团的其他官员已直接向中华人民共和国官员提出了我们对疫情和中华人民共和国管控措施的关切，我们也已将自愿撤离的决定通知了他们。
+然而，该法案未能获得议会大多数人的支持，反对党认为，鉴于全国各地的病例数正在下降，没有必要进行疫苗强制接种。
 
-根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中华人民共和国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中华人民共和国的香港特别行政区、吉林省和上海市。
+总共有378名议员投票反对疫苗强制，而296名议员支持疫苗强制。
 
-我们正在向中国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持.
+与一些欧洲邻国相比，德国对这个流行病的管理相当好，人均死亡人数少于意大利、法国、英国或瑞典。然而，该国仍在经历着每天的高传播率。
 
-随着情况的发展，使团已向美国公民发出多条信息。为收到这些信息，强烈建议美国公民在[https://step.state.gov/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fstep.state.gov%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DK%25252BoVE16VyJT3L1GYkqF6FQGiRK4IP%25252BdMKun2T%25252BXGTFI%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=lnCjPCV433Z4z1GGJXS3jr4p7BHOcBz9Ew2ztpI%2F6Vk%3D&amp;reserved=0)注册“智行者登记计划”。美国公民还应当访问美国国务院[中国国别信息](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Ftravel.state.gov%25252Fcontent%25252Ftravel%25252Fen%25252Finternational-travel%25252FInternational-Travel-Country-Information-Pages%25252FChina.html%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DHW3qISmBkfqIPz3VeFWqm9hmgXIhq7WmW3H%25252BjqOozHc%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DKx1vanGsh65k6xQDjNxO4hdBcRD%2B%2B6FMPQiy9dweoI%3D&amp;reserved=0)网站获取最新的旅行状况信息。
+官方数字显示，德国的新冠病毒确诊病例在最近几周有所下降，从3月中旬的约30万例下降到每日新增20万例。根据德国疾病控制机构的数据，还有328例与新冠病毒相关的新死亡病例。
 
-如遇紧急情况，请拨打+(86)(10) 8531-4000，联系所在地区大使馆或总领事馆。还可以在[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnam12.safelinks.protection.outlook.com%2F%3Furl%3Dhttps%25253A%25252F%25252Fchina.usembassy-china.org.cn%25252Fcontact%25252F%26data%3D04%25257C01%25257C%25257Cfff151fc324a4c7dd0e308da19d8d1de%25257C84df9e7fe9f640afb435aaaaaaaaaaaa%25257C1%25257C0%25257C637850716273463183%25257CUnknown%25257CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%25253D%25257C3000%26sdata%3DrXH0ZjbOzwse%25252F6aQyxhTTOJo7XW0gjkuHVIi4EoPVy0%25253D%26reserved%3D0&amp;data=04%7C01%7COkwujeIMF%40state.gov%7Cc08920ffac6249f4d5fb08da19f0d8ef%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C1%7C637850819474931092%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=c1MR%2BuvE5MtimpHECacB7%2BM%2FPMUnb%2BkYNqTYTbmRU%2Bs%3D&amp;reserved=0)网站或者发送邮件到以下邮箱获取更多信息：
+根据欧洲疾病预防和控制中心的数据，90%的60岁以上的德国人已经接种了疫苗。
 
-美国驻华大使馆：[\[email protected\]](/cdn-cgi/l/email-protection#1654737f7c7f787157554556656277627338717960)
+12月，德国国会议员通过了一项法律，要求每个在医院工作的人，以及养老院和疗养院的工作人员，都要接种新冠疫苗。当时，一项民意调查显示，68%的德国人赞成对所有成年人进行疫苗强制接种。最近的一项民意调查显示，约60%的德国人支持疫苗强制接种。
 
-美国驻广州总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#cc8bb9ada2abb6a4a3b98d8f9f8cbfb8adb8a9e2aba3ba)
+政府曾经希望由一个跨党派的立法者小组提出的折中措施，在经过几个月的反覆讨论后，能够获得议会的大多数支持。
 
-美国驻上海总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#f6a59e9798919e979fb7b5a5b68582978293d8919980)
+该法案还规定对所有成年人进行强制咨询，以帮助他们权衡接种新冠疫苗的优势和风险。
 
-美国驻沈阳总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#4b18232e25322a252c0a08180b383f2a3f2e652c243d)
+在今天的议会投票前，提出该法案的社会民主党立法者达格玛·施密特（Dagmar Schmidt）说，有必要为今年晚些时候新病例的增加和可能的新变种做准备。
 
-美国驻武汉总领事馆：[\[email protected\]](/cdn-cgi/l/email-protection#491c1a0a26273a3c25283d2c1e3c212827093a3d283d2c672e263f)
+她说：“今天（的议会投票）不是关于现在在发生些什么，而是关于秋天很可能会发生些什么。”
 
-原文链接：
+这条信息却未能在她的同事中引起共鸣。
 
-[美国驻华大使馆](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+3月下旬，德国开始缩减其强制执行的新冠病毒保护措施，将责任转移到联邦各州，在需要时再实施更严格的措施。德国还取消了在商店里必须佩戴口罩的要求。
 
+然而，周三，卫生部长劳特巴赫将“新冠病毒检测呈阳性的人进行强制隔离的措施将会结束”这项计划完全撤回。他曾宣布，从5月1日起，强制性的自我隔离将被取消，取而代之的是强烈建议隔离五天。
+
+他在柏林对记者说：“我已经撤回了这个提案，因为这会产生一个完全错误的印象，即要么大流行已经结束，要么病毒已经变得比过去假设的要无害得多。”
+
+由Kit Gillet 于2022年4月7日报道。
+
+新闻来源:[German MPs reject bill to make COVID vaccines mandatory for over 60s](https://www.euronews.com/2022/04/07/german-mps-reject-bill-to-make-covid-vaccines-mandatory-for-over-60s)
+
+* * *
+
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

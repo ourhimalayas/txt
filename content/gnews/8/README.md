@@ -2,45 +2,52 @@
 ---
 
 
-## 美国加强对数字资产的监管计划将数字资产规则现代化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316445/)
+## 巴基斯坦关于罢免总理可汗的投票推迟
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2316480/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-翻译：等风来
-编辑：李易通
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-16.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-2022年4月8日报道，乔·拜登总统计划在未来几年监管区块链和数字货币行业。美国2023年预算有几项关于“数字资产”和“加密货币”的条款。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/5ONP6AXLWZIS7IYF5IOBTSVKUQ.jpg)
 
-白宫将这些计划称为其“数字资产规则现代化”的战略，他们预计到2023年将努力赚取49亿美元的收入。
 
-这些条款主要围绕着要求信息报告、外国数字资产账户报告，以及修订按市值计价规则以包括数字资产。
+图片来源：路透社
 
-到2032年，白宫预计这一战略将减少109.5亿美元的预算赤字。
+路透社伊斯兰堡4 月 9 日报道， 巴基斯坦议会在计划投票罢免总理可汗之前突然休会，并且由于政治不确定性继续笼罩着这个拥有核武器的国家，因此未能如期在周六重新召开会议。
 
-除了从数字资产规则现代化中创收外，白宫表示，还将通过雇用更多代理、增强响应能力以及加强情报收集和分析能力，将5200万美元用于“应对网络威胁”。
+可汗所在政党的成员周五表示，他们将尽可能推迟投票。这位板球明星转为政治家发誓要“努力”反对任何取代他的举动，这是一场危机的最新转折，威胁到这个拥有 2.2 亿人口的南亚国家的政治和经济稳定。
 
-[报告全文](https://www.whitehouse.gov/wp-content/uploads/2022/03/budget_fy2023.pdf)表示：“这些投资符合政府的反勒索软件战略，该战略针对破坏性活动和打击滥用加密货币。”
+可汗的盟友上周日阻止了类似的不信任投票，但该国最高法院裁定此举违宪，命令议会重新召开会议。
 
-数字资产规则现代化的计划符合乔·拜登总统[关于数字资产](https://coingeek.com/us-president-joe-biden-signs-executive-order-on-digital-assets/)的[行政命令](https://coingeek.com/us-president-joe-biden-signs-executive-order-on-digital-assets/)以及证券交易委员会主席加里·根斯勒关于数字资产行业的[鹰派言论](https://coingeek.com/sec-chair-gary-gensler-no-reason-to-treat-digital-asset-market-differently-under-securities-laws/?tncpw_session=74beee5364452a432aacbe2f517f7f6b2586f5ead5497149c3b20a8299d6d557)。
+如果可汗被赶下台，预计将成为总理的反对党领袖谢里夫在大会上发表讲话，敦促将投票作为优先事项进行。
 
-行政命令和加里·根斯勒都呼吁对数字资产领域进行更多的监管审查。
+现年 69 岁的可汗在 2018 年在军方的支持下上台，但最近在盟友退出联合政府时失去了议会多数席位。反对党表示，他未能重振受 COVID-19 重创的经济，也未能兑现让巴基斯坦成为在世界舞台上受到尊重的无腐败、繁荣国家的承诺。
 
-2023年财政预算向我们表明，两人都在谈论的立法迫在眉睫，[拜登政府](https://coingeek.com/how-will-the-biden-administration-approach-digital-currency/)已经围绕未来几年监管数字资产空间的方法制定了详细的计划。旨在结束数字资产行业成为“[狂野西部](https://coingeek.com/crypto-wild-west-will-be-tamed-sec-gary-gensler-tells-us-senate/)”的日子。
+反对派和一些分析人士说，可汗与军方发生了争执，他和军方都否认了这一指控。军队已经统治了该国 数年， 没有一位总理完成了完整的五年任期。
 
-美国总统、美国证券交易委员会、财政部长和更多的政府代表正在接触[数字货币](https://coingeek.com/bitcoin101/bitcoin-terms-defined-your-complete-bitcoin-and-blockchain-dictionary/)。尽管这些人最终支持围绕新生的数字资产行业的创新，并希望创造一个鼓励这种创新留在美国的环境，但他们知道，在实现这一目标之前，他们需要制定法律框架来挫败该行业的不良行为者、非法项目和公然诈骗。
+目前尚不清楚可汗的盟友可能会寻求推迟投票多长时间。曾在法庭上主张投票继续进行的律师萨拉赫丁·艾哈迈德说，他认为必须在午夜之前进行。
 
-参考链接：[美国加强对数字资产的监管计划将数字资产规则现代化](https://coingeek.com/us-president-joe-biden-plans-to-modernize-digital-currency-laws/)
+可汗在上任时得到了广泛的民众支持，他周五晚些时候表示，他对法院的裁决感到失望，但接受了它。他在解散议会后召集了一次选举。
 
-发布：tianzhihuan
+但他说他不会承认任何取代他的反对派政府。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+“我不会接受一个进口政府，”他在深夜讲话中对全国说，暗示驱逐他的举动是外国阴谋的一部分，并呼吁周日进行和平抗议。 “我准备好战斗了。”
+
+可汗反对以美国为首的对阿富汗的干预，并自成为总理以来与俄罗斯发展了关系。他指责美国支持推翻他的阴谋，但没有提供证据证明他的主张，华盛顿对此予以驳回。
+
+随着动荡的持续，巴基斯坦卢比周四跌至历史新低，外汇储备暴跌。央行将基准利率上调 2.5 个百分点，为 1996 年以来的最大涨幅。
+
+如果可汗在不信任投票中失利，反对党将提出总理候选人。
+
+三届前总理谢里夫的弟弟在法庭裁决后表示，如果可汗被赶下台，反对派已提名他接任。
+
+简评：巴基斯坦的局势动荡已经持续了2周，我们知道这个消息是从郭先生的大直播中得到的。 而且郭先生明确的指出谢利夫是推翻现政府的推手也是要取代现任总理的人。 从这篇报道上可以看出， 一切都是按照剧本在上演， 唯一不同的是， 现任总理可汗居然说幕后推动的是美国， 而郭先生明确是指出是中共不喜欢现任总理， 并和谢利夫有勾兑， 那么我们还是睁大眼睛， 继续观察吧。
+
+🔗 [https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/](https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/)
+
+编辑发表： Shuizhuyu
 
  
 

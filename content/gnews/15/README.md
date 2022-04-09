@@ -2,85 +2,38 @@
 ---
 
 
-## 澳洲的福利：高等教育贷款计划（HELP）
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2316378/)
+## 外资撤离中共国已无法掩盖
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2316436/)
 
-#### 了解澳洲生活点滴， 带您【走进澳洲】
+撰稿：子喜太一
 
-编辑/整理：小鱼儿
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/901.jpg)图片来自网络
+3月份“北向通”有16天净流出，其中有3天日净流出人民币100亿元，加上“港股通”3月共流出人民币450.8亿元，3月底的外汇存底也较上月减少了258.3亿美元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-982.png)图片来源：雅典娜设计组&NME
+新中国联邦爆料革命揭露CCP的假丑恶五年来，世界发达民主国家都逐渐认清CCP的邪恶本质，近年来大型外企包括世界五百强企业都在纷纷撤离中共国，外资大量离场也在不断进行中。近两年的疫情出现，更加剧了这一进程的飞速运行。外资企业、外企的撤离已到了无法通过唱“赞歌”来掩盖的时候了！
 
+中共外汇局出来洗地，称目前境内外汇供求平衡，外资投资境内仍会增配。这种瞪眼说瞎话的言论就是骗骗国内百姓，在国际社会面前就是无耻丑恶的进一步暴露！
 
-澳洲是一个有信仰、有福利的国家。这里和大家，简单地分享一下高等教育贷款计划（HELP）。
+CCP的以假治国已经登峰造极，让全世界正义力量更加坚定都和CCP割裂，同时也唤醒一部分本身就不满中共统治的中国人。
 
-据澳洲官网介绍，高等教育贷款计划 (HELP)有 4 种不同的贷款计划，为学生提供经济帮助，以支付：
+一切政权的稳定靠的都是金钱，更确切的应该是美金外汇，如果没有了外汇，CCP就是在大失血，最终的命运只有死亡！
 
-- 捐助学生（[HECS-HELP](https://www.studyassist.gov.au/help-loans/hecs-help)）
-- 学费（[FEE-HELP](https://www.studyassist.gov.au/help-loans/fee-help)）
-- 海外留学费用（[OS-HELP](https://www.studyassist.gov.au/help-loans/os-help-and-overseas-study)）
-- 学生服务和设施费 ( [SA-HELP](https://www.studyassist.gov.au/help-loans/sa-help) )
+CCP无论如何诡辩，如何演戏，都不能阻止它灭亡的结局！
 
+*编辑：Gradient Boost*
 
-[学生还可以通过（ VET 学生贷款](https://www.dese.gov.au/vet-student-loans)）获得职业教育和培训 (VET) 学费的经济帮助
+*发稿：mgjxs*
 
-其中，2021 年的 HELP 贷款限额为：
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7333/6224141?from=udn-catebreaknews_ch2)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-- 大多数学生 108,232 澳币
-- 155,448 澳币用于学习以下课程的学生：
-    - 获得初次注册的医学、牙科和兽医科学课程
-
-
-    - 符合条件的航空课程
-
-
-[了解有关贷款限额和近期变化的更多信息](https://www.studyassist.gov.au/help-loans/combined-help-loan-limit)
-
-高等教育贷款计划 (HELP)有 4 种不同的贷款计划：
-
-1）HECS-帮助(HELP)
-
-当您上大学或获得批准的高等教育机构时，您可以获得 HECS-HELP 贷款来支付您的学习费用。如果您在联邦支持的地方 (CSP) 注册，您只能获得 HECS-HELP 贷款。HECS-HELP 贷款不包括住宿、笔记本电脑或教科书等费用。
-
-HECS-HELP 贷款用于支付您的“[学生供款金额](https://www.studyassist.gov.au/help-loans-commonwealth-supported-places-csps/student-contribution-amounts)”。[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_csp_factsheet.pdf?v=1640216015)查看有关 CSP 和 HECS-HELP 的情况说明书 。
-
-2）学费帮助（FEE-HELP）
-
-当您上大学或获得批准的高等教育机构时，您可以获得 FEE-HELP 贷款来支付全部或部分学费。
-
-FEE-HELP 贷款不包括住宿、笔记本电脑或教科书等费用，它用于支付您的全额学费。
-
-[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_fee_factsheet.pdf?v=1640216057)查看有关 FEE-HELP 的情况说明书 。
-
-3）OS-HELP和海外学习
-
-[OS-HELP 是为在联邦支持的地方](https://www.studyassist.gov.au/help-loans/commonwealth-supported-places-csps) (CSP) 注册并希望在海外学习一些课程的学生提供的贷款 。
-
-如果你在海外大学或高等教育机构就读或你的学历将由海外大学或高等教育机构授予，你不能获得OS-HELP。
-
-如果您获得 OS-HELP，您的提供者将直接向您支付贷款金额。您可以用它来支付机票、住宿或其他旅行费用。
-
-您可以在一生中获得两次 OS-HELP 贷款，但它们不能在同一个六个月内。
-
-[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_os_factsheet.pdf?v=1640216096)查看有关 OS-HELP 的情况说明书。
-
-4）SA-帮助（HELP)
-
-您的大学或高等教育机构每年会向您收取称为学生和便利设施费 (SSAF) 的费用。这笔费用用于支付您校园的费用，例如儿童保育、食品服务、财务建议、体育和娱乐活动或就业和职业建议。SA-HELP 是一项可供您支付全部或部分 SSAF 的贷款。
-
-2022 年，您的提供者可以向您收取的最高 SSAF 金额为 315 澳币。[您可以在此处](https://www.studyassist.gov.au/sites/default/files/2022_sa_factsheet.pdf?v=1640216125)查看有关 SA-HELP 的情况说明书。
-
-（注：以上信息意为参考，更多的详细信息，请您参考官网）
-
-参考资料：[The Higher Education Loan Program (HELP)](https://www.dese.gov.au/higher-education-loan-program)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,33 +2,41 @@
 ---
 
 
-## 口述历史之你要吃老鼠吗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2316109/)
+## 化解中共毒疫苗 美蓝和青蒿素的协同作用
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2316204/)
 
-作者：在天为风在地为林
-编辑：伏而起之
+作者：日本东京方舟农场 – Miyali7768(文玉）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-978.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+
+在4月4日的新中国联邦|喜健康系列节目中，主讲嘉宾陪练战友介绍了另一个对付中共病毒的老药新用的例子–美蓝(Methylene blue)。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220127-3.jpg)
+
+嘉宾介绍，中共病毒流行以来，在法国一个医院内出现一个案例，其中2500名老人全都没有感染中共病毒，而他们都是每天服用美蓝的癌症患者。这引起了人们对美蓝的关注。美蓝又称亚甲基蓝、亚甲蓝，是最早用于治疗疟疾的化学合成药物，已有一百余年的历史。美蓝早已被列入世界卫生组织(WHO)的基本药物清单，毒副作用轻微，最明显的副作用可能是眼睛巩膜和尿液会变蓝，在二战时曾被美国海军士兵调侃(Even at the loo, we see, we pee, navy blue)。美蓝用于疟疾治疗的突出特点是它几乎没有抗药性。另外美蓝不仅能在体内的血液和细胞中杀毒，还可以有效地在体外杀死病毒。
+
+嘉宾列举了多个研究结果，证明美蓝不仅可以独立消灭中共病毒，还具有与青蒿素的协同作用，即由于美蓝可以把血红素中的三价铁变为二价铁，所以能够有效地发挥青蒿素中过氧桥键的威力。这种协同效应可以提高药效，降低副作用，并由此引申出一个探索方向：嘉宾呼吁医疗同行们对美蓝与青蒿素的协同作用在化解中共毒疫苗方面的效力作进一步的研究。
+
+参考链接：
+
+- [2022.04.04 新中国联邦 | 喜健康 探索美蓝治疗冠状病毒感染，解毒疫苗的可能性](https://gettr.com/streaming/p13ki14bfac)
+- [老药新用：美蓝不但抗冠状病毒感染，或有疫苗解毒潜力](https://gnews.org/zh-hans/2104329/)
+- [冠状病毒的刺突蛋白，类似于阮病毒，有可能造成神经系统退行性疾病](https://gnews.org/zh-hans/1918177/)
+- [Methylene Blue Inhibits the SARS-CoV-2 Spike–ACE2 Protein-Protein Interaction–a Mechanism that can Contribute to its Antiviral Activity Against COVID-19](https://www.frontiersin.org/articles/10.3389/fphar.2020.600372/full)
 
 
-锣鼓震天响，小小的村庄沸腾了。周边各个公社的红卫兵要在我们大队开什么串联批斗大会，从我们村大队破烂房子里拉出好几个奇奇怪怪地绑着的人，他们脖子上挂着各种木板，听老人们说是反动派，被一群像疯子一样，穿着绿色服装戴着红五角星帽子，胸前挂着毛贼像章的人高喊着“打倒”。
+![This image has an empty alt attribute; its file name is 4-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
-结束后，这些人又被送回了大队的破院子住着。他们没有床，农村胶泥的硬块上面铺着麦草，没有什么叫被子的东西。他们常年穿着厚脏破烂叫作卡衣的蓝色半大衣，也有穿破烂的黄大衣，晚上那就是他们的被子。这些人满身都是虱子，郭先生讲的场景我小时候见的多了，我们家人也都有虱子，但没有那些人多。
+编辑/校正/发稿：海阔天空1
 
-光着屁股的我老去看这些奇怪的人，七三年左右已经不太多了，听大人说，多的时候有好几十个。其中有两个戴着不是缺腿就是缺半个镜片的眼镜，听说是上海下放来的。一个下午，他们俩用火烤老鼠吃，还说老鼠內脏里心是可以吃的。其中一个白头发老人问我吃不吃，吓得我扔下给他们玉米饼子就跑回家。回家告訴妈妈，妈妈哭了，妈妈说，以后你多拿点玉米饼每天给送过去。后来我又送了几次饼，每次看到他们我就有点怕，现在回想起来那应该是绝望的眼神。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-这是我现在都难忘的往事。郭先生说的一点都不过分，我所看到的比他说的更残酷。这种非人性的制度和运动让多少女人失去丈夫，多少父母失去孩子，多少孩子失去爸爸妈妈？而今天的墙内又上演着几十年前的悲剧，看看今天国内各地实施的清零政策，他們不就是想把我们彻底驯化成跪着的奴隶吗？不就是用弱民、饿民来摧残我们的精神世界吗？不就是想让他和他的子孙继续奴役我们吗？
-
-哪天我专门说一下为什么七哥认识的高人说他们是地魔。我诅咒这些害人的独裁者，他们和他们喝人血的子孙下十九层地狱，永远不要再回到人间。新中国联邦的诞生，一定会让中华民族再次重生，让正义、善良、勇敢、文明、法治、诚信、自由重回中华大地。我祈祷。
-
-2022年4月6日
-
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
 
  
 
