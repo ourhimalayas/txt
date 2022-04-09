@@ -2,29 +2,37 @@
 ---
 
 
-## 上海疫情防控进入恶性循环
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318785/)
+## 有声|美众议院议长佩洛西将于本周日访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318824/)
 
-作者：马克文，百合观察
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据联合报4月7日消息，美国众议院议长佩洛西（Nancy Pelosi）计划于4月10日，即《台湾关系法》立法43周年纪念日，访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-26.jpg)
+据悉，佩洛西一行预计将于10日抵达台湾。若此行成功，佩洛西将成为继金里奇后的、第二位到访台湾的美国议长。同时，蔡英文政府也正积极筹备，准备迎接美国国会议员访问团事宜。
 
-当地时间4月8日，据相关媒体报道，中共上海市政府正在以疫情爆发为由，强制当地两千五百万市民禁足家中或进入方舱医院隔离，从而可以响应当局所谓的“清零”政策。
+俄罗斯发动乌克兰侵略战争后，国际社会对中共武力犯台的担忧与日俱增，台海局势成为热点。佩洛西此次访台，将进一步展现美国对美台关系的重视。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-5.jpeg)
 
-报道提及，上海正在实行极为严苛的封锁政策：任何居住小区中即使仅出现一例阳性患者，整个小区的居民都必须全员无限期的居家隔离；部分民众甚至在并未确诊的情况下被无故关押至方舱医院。
 
-同时，中共当局迟迟不给出明确的解封日期，这也导致上海市的供应链近期极不稳定，居民生活物资匮乏。据墙内社交媒体平台的消息显示，上海市民忍饥挨饿已经成为每天生活的常态，而抢菜则成为生存的头等大事。
+文字版原文：[美众议院议长佩洛西将于本周日访台](https://gnews.org/zh-hans/2313951/)
 
-分析人士指出，上海的疫情防控目前已经进入了恶性循环，但这也意味着中共病毒及其疫苗所带来的灾难正在墙内拉开序幕。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：[新冠疫情：封控中的上海市民生活—核酸，方艙，搶菜和憤怒](https://www.bbc.com/zhongwen/trad/chinese-news-61034679)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-总编：Irene木木
-编辑：Irene木木
-审核：Ivy001
-校正/发稿：谐趣园
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,19 +2,38 @@
 ---
 
 
-## 视频文编|中东石油时代结束 俄罗斯天然气时代结束 欧洲能源被掐脖子时代结束
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2318148/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2318359/)
 
-撰稿：东京樱花团/風鈴
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-10_000941.png)
-欧洲最大的问题就是能源问题。德国默克尔在经济发展的最好的30年里没有把握好时机，使得欧洲的文明和科技发展落后了300年。未来的乌克兰将成为人才的宝库，彻底解决欧洲的能源和科技问题。当欧洲彻底清醒之后，就不会再依靠俄罗斯和中东，石油时代、天然气时代将会结束，新能源呼之欲出，欧洲不再被卡脖子，人类将走向一个伟大的光明时刻。
+作者：香草山翻译部
 
-消息来源：
-[2022年3月30日《文贵大直播》](https://gettr.com/streaming/p12oba38c9d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-8.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.09早 《NFSC新闻》](https://www.gettr.com/streaming/p14dqij67b5)
+[2022.04.09早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14dqis33be)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

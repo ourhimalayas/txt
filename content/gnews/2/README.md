@@ -2,29 +2,33 @@
 ---
 
 
-## 2022/04/05 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2318797/)
+## 有声|美前线医生称，大规模接种疫苗无效，死亡率更高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2318857/)
 
-1. 4月4日，上海松江。市民因拒做上海市政府统一要求的全员核酸检测，被警察“依法”带走。
-2. 4月4日，中共国内某地集中隔离点的内部情况。
-3. 4月4日，上海。因中共疫情封控不让病人去做透析，最终人在家中走了，病人家属哭的撕心裂肺。
-4. 3月31日，吉林松原。网传一货车司机因中共疫情管控，被困服务区20天不准下高速。疑似多天未天进食后，突发疾病死亡。
-5. 近日，江苏昆山。货车司机在拥有绿码及核酸检测阴性报告下，市场仍因上海牌照拒绝车辆进入，致17吨白菜腐烂被扔垃圾站。
-6. 4月4日，水果批发市场商户们无奈扔掉腐烂的水果。中共封控区内百姓物资奇缺吃不到，封控区外运输链断裂都扔掉。
-7. 4月4日，江苏南通， 两位老人看到很多干粮被丢弃在垃圾桶太浪费了，就找了一些好的带回家。
-8. 4月2日，安徽灵璧14岁初中生被多名高中生霸凌致死。
-9. 安徽灵璧被霸凌致死14岁初中生父母在网络上实名举报，跪求真相。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月5日，美国前线医生Peterson Pierre博士表示，基于英国于上月公布的中共病毒感染的统计数据，超过一百万人感染中共病毒，其中91%的成年患者接种过疫苗，而且接近90%的中共病毒死亡病例曾接种疫苗。这组数据充分说明，大规模接种疫苗不能防止病毒感染，而且死亡率更高。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-21.jpg)
 
 
-* * *
+文字版原文：[美前线医生称，大规模接种疫苗无效，死亡率更高](https://gnews.org/zh-hans/2313948/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
