@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 11:01 PM (UTC)`
+
+2022.04.09 NFSC News AL JAZEERA ’S ATTACK ON MILES GUO AND THE WHISTLEBLOWER MOVEMENT
+![img](https://media.gettr.com/group10/origin/2022/04/09/23/ca8be5a9-49ae-4f8b-f5bb-835a888ce619/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/9/2022 10:01 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-09<br/>For English：gettr.com/post/p14flzr3dcf
@@ -149,13 +156,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月8日第35天当日救援统计：<br/>Medyka救援站接待：约264人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10095人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 35 - Date: April 8, 2022 :<br/>Medyka Rescue Station Reception: about 264 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10095 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group17/getter/2022/04/09/11/8c2e8717-9a73-aee4-57e7-70b1b9834f4b/1057edd7624e68d9c7abb95b37040494.jpg)
-
----
-
-`@miles 4/9/2022 9:28 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group30/origin/2022/04/09/09/6da845d7-fe5f-e623-b6dd-8046ea3e252d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
