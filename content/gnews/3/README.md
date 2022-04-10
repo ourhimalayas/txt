@@ -2,30 +2,49 @@
 ---
 
 
-## 北京朝阳：疫情升级 香河等地被封
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2321032/)
+## 装置作品赏析
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2321153/)
 
-**撰稿：日本东京方舟农场  子辰**
+整理：vale
 
-4月9日，中共当局自诩“清零”防疫政策为全球提供了“有益经验”。话音刚落，继上海全面封城后，北京疫情也开始升温，当局封锁了北京外围的县市道路，导致进京人员和企业受到影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-185.jpg)（图片来自大纪元）
 
-当地官方通报了北京市的新增确诊病例，涉及朝阳区和顺义区。此外，朝阳区酒仙桥街道二街坊升级为高风险地区，当局要求封控区居民“足不出户”。并强调坚持“动态清零”总方针不动摇。
 
-4月8日，朝阳区进行全区核酸检测。其中，8个重点街乡已进行了第三轮核酸采样。9日，将对酒仙桥继续开展重点区域核酸采样。根据北京市民发布的视频显示，酒仙桥所有小区、饭馆、商店和医院被停、被封闭，小区门外由门卫或警察防守。
+作者：龚凡
+材质：装置作品
 
-据悉，目前连接河北省廊坊市、香河县、大厂县的公路已经被官方封锁，这意味着北京东南方向的进京道路被截断。
+送给那些争取公平、正义、自由，
 
-目前与北京朝阳区有密切联系的河北省香河县，尽管没有发现一例病例，却已经封城近一个月，当地不少民众不能进京上班，企业无法与北京进行业务往来。当地民众要求复工复产，但没有得到官方回应。
+在黑暗中点亮灯的人。
 
-面对停摆状态，民众生计艰难，压力倍增，老百姓纷纷表示“怎么活下去？”
+我们每个人都是掌灯人，在黑暗中点亮一盏明灯。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/9/n13707572.htm](https://www.epochtimes.com/gb/22/4/9/n13707572.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-186.jpg)
 
-总编：老孙
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-75.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-65.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-68.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-50.jpg)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：五通庙
+
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
 
  
 
