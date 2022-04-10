@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 7:03 PM (UTC)`
+
+2022-4-10 “ 放手成长” #小小尼莫音乐会，🎼第六期，#littlenemoconcert，爱的平衡点，和智慧一起成长
+![img](https://media.gettr.com/group40/origin/2022/04/10/19/34614bbb-52f9-7c1c-af9a-56d9a9ec542b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/10/2022 6:32 PM (UTC)`
 
 俄乌战争战况播报
@@ -145,13 +152,6 @@
 
 2022.04.09 NFSC News AL JAZEERA ’S ATTACK ON MILES GUO AND THE WHISTLEBLOWER MOVEMENT
 ![img](https://media.gettr.com/group10/origin/2022/04/09/23/ca8be5a9-49ae-4f8b-f5bb-835a888ce619/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 10:01 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-09<br/>For English：gettr.com/post/p14flzr3dcf
-![img](https://media.gettr.com/group49/origin/2022/04/09/22/1f6cb724-fed5-146a-4f6e-72064b089d4f/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

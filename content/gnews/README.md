@@ -90,8 +90,8 @@
 ### [2022.4.10大直播 郭文贵先生梳理习的执政规划](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [爆料革命——历史的今天1月27日](/content/gnews/26/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [视频文编|中共不灭，台湾将没有未来](/content/gnews/26/README.md)
+ ` KarmaLabs`
 
 ### [2022年04月10日文贵大直播速记（第一部分）](/content/gnews/27/README.md)
  ` Mr. Miles Guo's News Briefing`
