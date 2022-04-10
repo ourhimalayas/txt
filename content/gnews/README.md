@@ -15,46 +15,46 @@
 
 ---
 
-### [欧盟准备接纳乌克兰加入欧盟](/content/gnews/1/README.md)
+### [视频|没勇气在战场上见高低 只会杀戮手无寸铁的百姓「非脱敏](/content/gnews/1/README.md)
+ ` 爆料视频`
+
+### [欧盟准备接纳乌克兰加入欧盟](/content/gnews/2/README.md)
  ` Tokyo Sakura Video Group`
 
-### [法国大选投票前的态势](/content/gnews/2/README.md)
+### [法国大选投票前的态势](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [法国大选鹿死谁手难言](/content/gnews/3/README.md)
+### [法国大选鹿死谁手难言](/content/gnews/4/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美国迎来首位非洲裔女性大法官](/content/gnews/4/README.md)
+### [美国迎来首位非洲裔女性大法官](/content/gnews/5/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美高官透露：美军向乌方提供“近乎实时”情报](/content/gnews/5/README.md)
+### [中共‘文革式’防控病毒，民怨沸腾](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美高官透露：美军向乌方提供“近乎实时”情报](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美国累计新冠肺炎确诊病例超8039万例](/content/gnews/6/README.md)
+### [美国累计新冠肺炎确诊病例超8039万例](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [SpaceX公司当地时间周五将三名商人送入轨道，这是第一次完全由私人执行的前往国际空间站的任务。](/content/gnews/7/README.md)
+### [SpaceX公司当地时间周五将三名商人送入轨道，这是第一次完全由私人执行的前往国际空间站的任务。](/content/gnews/9/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【粤语配音】2022年4月9日：共产党在给全中国人拉仇恨](/content/gnews/8/README.md)
+### [【粤语配音】2022年4月9日：共产党在给全中国人拉仇恨](/content/gnews/10/README.md)
  ` MOS香港部`
 
-### [郭文贵先生2022年4月9日盖特视频（5分34秒）全文字版](/content/gnews/9/README.md)
+### [郭文贵先生2022年4月9日盖特视频（5分34秒）全文字版](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共秀场：从“动态清零”到财富清零和生命清零](/content/gnews/10/README.md)
+### [灭共秀场：从“动态清零”到财富清零和生命清零](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国一晚宴上已有53人确诊新冠 涉及多名部长及高官](/content/gnews/11/README.md)
+### [美国一晚宴上已有53人确诊新冠 涉及多名部长及高官](/content/gnews/13/README.md)
  ` 加拿大温哥华英里农场`
 
-### [乌总统与欧盟领导人基辅会谈](/content/gnews/12/README.md)
- ` 加拿大温哥华英里农场`
-
-### [乌克兰外长对北约的议程：很简单，就是武器、武器和武器](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共的黑客攻击印度拉达克附近的电网系统](/content/gnews/14/README.md)
+### [乌克兰外长对北约的议程：很简单，就是武器、武器和武器](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [日本宣布5项对俄追加制裁措施](/content/gnews/15/README.md)

@@ -2,10 +2,10 @@
 ---
 
 
-## 中共的黑客攻击印度拉达克附近的电网系统
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2319289/)
+## 乌克兰外长对北约的议程：很简单，就是武器、武器和武器
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2319313/)
 
-04/08/2022 印媒WION报道，中共的黑客攻击印度拉达克附近的电网系统
+04/07/2022 乌克兰外长对北约的议程：很简单，就是武器、武器和武器。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
