@@ -2,24 +2,34 @@
 ---
 
 
-## 视频|死亡线上被中共疫情抢夺挣扎的儿童「非脱敏」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2324011/)
+## 【G叻睇真D】欧盟提议禁止从俄罗斯进口煤炭
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2324021/)
 
-【撰稿人】Miyali7768(文玉） 
-【文案审核】文炬 
-【制作团队】大直播短视频组 
-【视频制作】文果
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【新闻来源】 [https://mega.nz/file/l9tg3IoS#iwsDuSB\_pzyzBoJFtv6uD4p\_VwpVYuORy2jI93qSBzI](https://mega.nz/file/l9tg3IoS#iwsDuSB_pzyzBoJFtv6uD4p_VwpVYuORy2jI93qSBzI)
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据加拿大媒体【CTV新闻】4月5日报导，欧盟行政部门提议禁止从俄罗斯进口煤炭，这将是欧盟首次针对该国利润丰厚的能源行业实施制裁。
 
-发稿：Daxia
+报导称，欧盟已经开始实施包括石油进口在内的额外制裁，煤炭进口禁令将阻止俄罗斯得到价值40亿欧元的收入。不过欧盟此次并未提到天然气，因为在欧盟最大经济体德国等依赖天然气供暖和电的成员国的反对下，制裁天然气的计画还无法执行。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据悉，欧盟的煤炭禁令将打破能源禁忌，因此这一转变将意味著欧洲的进口需求增加，全球煤炭价格上涨，对同样高度以来煤炭的新兴和发达经济体将会产生重大影响。
+
+此外，美国和英国已经表示，将切断俄罗斯的石油供应，波兰将阻止从俄罗斯进口煤炭和石油，立陶宛已坚决表示不再使用俄罗斯天然气。
+
+盖特链接：[https://www.gettr.com/post/p14ge87b49f](https://www.gettr.com/post/p14ge87b49f)
+
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

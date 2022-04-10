@@ -15,80 +15,80 @@
 
 ---
 
-### [【G时新闻】上海日增26800多例本土个案 ，副市长哽咽道歉市民不买账](/content/gnews/1/README.md)
+### [灭共段子](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [邪恶的中共政权才是万恶之源（九）](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【G时新闻】上海日增26800多例本土个案 ，副市长哽咽道歉市民不买账](/content/gnews/3/README.md)
  ` G-时新闻`
 
-### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/2/README.md)
+### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/4/README.md)
  ` 爆料视频`
 
-### [中共国汽车业按下暂停键](/content/gnews/3/README.md)
+### [中共国汽车业按下暂停键](/content/gnews/5/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中共国10多个省市高速管控封闭、3000万货车司机被困物流暂停](/content/gnews/4/README.md)
+### [中共国10多个省市高速管控封闭、3000万货车司机被困物流暂停](/content/gnews/6/README.md)
  ` mayflowertranslate`
 
-### [水能载舟，亦能覆舟](/content/gnews/5/README.md)
+### [水能载舟，亦能覆舟](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G叻睇真D】欧盟提议禁止从俄罗斯进口煤炭](/content/gnews/6/README.md)
+### [【G叻睇真D】欧盟提议禁止从俄罗斯进口煤炭](/content/gnews/8/README.md)
  ` G-时新闻`
 
-### [新中国联邦提供的新鲜咖啡获得一致好评](/content/gnews/7/README.md)
+### [新中国联邦提供的新鲜咖啡获得一致好评](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频|死亡线上被中共疫情抢夺挣扎的儿童「非脱敏」](/content/gnews/8/README.md)
+### [视频|死亡线上被中共疫情抢夺挣扎的儿童「非脱敏」](/content/gnews/10/README.md)
  ` 爆料视频`
 
-### [【G叻睇真D】加媒：加拿大养老金应从中国撤资](/content/gnews/9/README.md)
+### [【G叻睇真D】加媒：加拿大养老金应从中国撤资](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [核武器和义务兵役对澳大利亚来说曾是不可想象的](/content/gnews/10/README.md)
+### [核武器和义务兵役对澳大利亚来说曾是不可想象的](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频|法无道，道无法，人间道法要遵循自然，法道之间就是破执着](/content/gnews/11/README.md)
+### [视频|法无道，道无法，人间道法要遵循自然，法道之间就是破执着](/content/gnews/13/README.md)
  ` KarmaLabs`
 
-### [刘特佐的马仔高盛前高管黄宗华被判三项罪名成立](/content/gnews/12/README.md)
+### [刘特佐的马仔高盛前高管黄宗华被判三项罪名成立](/content/gnews/14/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [预测：勒庞和马克龙进入第二轮投票，马克龙处于领先地位](/content/gnews/13/README.md)
+### [预测：勒庞和马克龙进入第二轮投票，马克龙处于领先地位](/content/gnews/15/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [白宫限制俄罗斯获得外国肥料和阀门](/content/gnews/14/README.md)
+### [白宫限制俄罗斯获得外国肥料和阀门](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦人建立的救援帐篷非常专业](/content/gnews/15/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [【G时新闻】美参议院正式撤销俄罗斯贸易最惠国待遇](/content/gnews/16/README.md)
+### [【G时新闻】美参议院正式撤销俄罗斯贸易最惠国待遇](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [截至4.10 俄乌战事汇总](/content/gnews/17/README.md)
+### [截至4.10 俄乌战事汇总](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [高昂的房租压垮超市大卖场](/content/gnews/18/README.md)
+### [高昂的房租压垮超市大卖场](/content/gnews/19/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中共国超市大卖场的衰落](/content/gnews/19/README.md)
+### [中共国超市大卖场的衰落](/content/gnews/20/README.md)
  ` 加拿大温哥华英里农场`
 
-### [昔日亚洲最大家乐福停业](/content/gnews/20/README.md)
+### [昔日亚洲最大家乐福停业](/content/gnews/21/README.md)
  ` 加拿大温哥华英里农场`
 
-### [拜登明天将与莫迪通话：对俄罗斯采取强硬态度](/content/gnews/21/README.md)
+### [拜登明天将与莫迪通话：对俄罗斯采取强硬态度](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油](/content/gnews/22/README.md)
+### [美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯任命新的乌克兰战争指挥官](/content/gnews/23/README.md)
+### [俄罗斯任命新的乌克兰战争指挥官](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [FMC专员警告中共国对集装箱生产的垄断可能损害美国经济](/content/gnews/24/README.md)
+### [FMC专员警告中共国对集装箱生产的垄断可能损害美国经济](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [活祭](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [教皇呼吁在乌克兰实现复活节休战](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
