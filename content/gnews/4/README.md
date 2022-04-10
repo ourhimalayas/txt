@@ -2,75 +2,36 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天登榜新加坡、台湾iTunes摇滚榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2322042/)
+## 闲聊澳洲：物资断供忍饥挨饿，上海松江小区居民抗议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2322056/)
 
-4/10/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天iTunes打榜记录：
-**《灭共的雪》**
-新加坡、台湾摇滚歌曲榜第1名
+#### 作者：闲聊澳洲
+编辑：文泓
 
-**《铁锁梦》**
-柬埔寨热门歌曲榜第3名
-蒙古流行歌曲榜第1名
-
-* * *
-
-[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1129.png)图片来源： 雅典娜设计组
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+上海封城已久，众多小区居民忍饥挨饿、民怨沸腾。这两天网上热传上海松江九亭某小区发生暴动，还哄抢了超市。事实是这样吗？我在网上搜寻了众多的信息，现在还原一下事情的过程。
 
+4月8日晚，上海市松江区九亭镇康亭小区居民在小区门口聚集，因不堪忍受生活物资多日断供，要求政府发物资，并同警方发生冲突。居民在小区门前集体高喊：“康亭小区，发物资！康亭小区，发物资！”多段视频显示，抗议民众与当局人员发生了肢体冲突，并且有一名男子被“大白”带走。事后九亭镇传来信息，该小区居民收到了物资，民愤暂时得以平息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+哄抢超市的是江苏昆山世硕家园二期的超市，微博或油管都有相关视频。无论是松江九亭居民聚众抗议，还是江苏昆山超市被哄抢，这不是刁民的无理取闹，也不是所谓的正义暴动，这只是连基本温饱都难以保证的底层民众压抑已久的一声呐喊罢了。
 
+松江九亭是上海最早疫情爆发地区之一，部分小区断断续续封了一个多月，期间很多小区只收到过封城之后的一次物资，而物资的量很少，现在没有出现饿死人都是奇迹了，所以忍无可忍的居民聚集起来向政府抗议。所以不存在网上说的暴动，当然，若状况依旧得不到改善，再过十天，民怨真的要爆发了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+不过九亭这一闹，也起作用了，不只九亭开始发物资，周边地区也跟着沾光，也发物资了。同期，上海多家超市卖场恢复营业这条消息上了热搜。但网友说，因为人们都不能下楼，商超下再多的单，也要走社区团购渠道，而外卖、快递等配套服务跟上才能缓解当前广泛的需求，否则，都是白开心一场。
 
+现在上海的问题是把物流给停了，物流好比血液流动，血液不流动了，生命也就亡了。上海不仅封小区、封地铁，还要封主干道，社区团购的货运车都进不了。上海现在到处是路障，封了很多路，有警察的关卡检查通行证。物流无法顺畅的结果就是整个经济面临血管阻塞的风险。也就是老百姓所能理解的“经济脑血栓”，这个病有个特点，极少因为自然灾害而产生，几乎全是人祸。整个经济不管是生产还是消费都面临大幅下降的风险，总之就是所有的人都会受损，一切都会乱套。物流是经济的血管，是命脉！中共当然明白这个道理，但它们就是要这么做，背后有其险恶的政治目的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
 
+发布： Frank2021
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_73.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
-
-
-[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

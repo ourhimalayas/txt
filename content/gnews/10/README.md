@@ -2,51 +2,42 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.10）–打新冠疫苗后听力有问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321896/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321912/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+整理：枳实
+美工：精灵蓝
 
-整理/编辑：gardeniahu
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组(614)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+雅典娜疫情更新（2022年 4月9日）
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1114.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1115.png)
+[2022年4月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月9日改进.pdf)
 
-原文博主：rippleyao
+数据来源：
 
-帖子原文：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-**疫情|新冠疫苗副作用   新冠疫苗导致听力问题**
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-刷到新闻，辉瑞疫苗可能导致听力问题，说后续需要更多的研究支持。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-反正两针后的我很不舒服，现在医生都没有给我看明白。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-一定要注意安全啊。防护比疫苗更重要。
+[covidlive.com.au](https://covidlive.com.au/)
 
-离职的地方这周又关门了，太多新冠感染了。
-
-不戴口罩，不勤消毒洗手，老觉得不心安啊。
-
-#新西兰 #疫苗 #新冠疫苗 #辉瑞疫苗副作用 #奥密克戎
-
-发布于04.01
-
-精选评论
-
-积极面对不积极     回复:何止啊，我反正第二针都没打，第一针副反应双腿发麻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1110.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1111.png)图片来源：小红书
-参考链接：[新冠疫苗后听力有问题](https://www.xiaohongshu.com/discovery/item/62463ba00000000001025484?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649520801)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
 发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

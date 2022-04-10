@@ -2,27 +2,76 @@
 ---
 
 
-## 叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322037/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天登榜新加坡、台湾iTunes摇滚榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2322042/)
 
-撰稿: 纽约香草山农场 – 恩永存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月7日的飞飞《大实话》盖特直播中，叶钊颖、郝海东夫妇揭露中共体制下的恶——没有信仰，没有真爱，没有人性，没有底线。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1123.png)
-从小在体制下长大的叶钊颖、郝海东夫妇，亲眼看见、新耳听见过中共官场的是是非非，亲身体会过邪恶中共体制带来的伤害，也深知在体制下人们的无奈，所以痛恨这个邪恶体制。在这个邪恶的体制下，那些连鸡都不敢杀的中共高官，为了保护自己的权力，家人不敢爱，亲情不敢要，贞节要出卖，婚姻也交易，不择手段，向党内敌人痛下杀手。从毛泽东到现在的习近平，中共的官场互害杀死了许多官员，将许多中共党员送进了监狱，冤枉了许多老百姓，害死了许多无辜的人！
+4/10/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天iTunes打榜记录：
+**《灭共的雪》**
+新加坡、台湾摇滚歌曲榜第1名
 
-在中共体制下，人们没有道德底线、没有信仰、没有敬畏之心，就不可能有爱心。郝海东先生认为，人性的丧失、人伦的丧失、爱的丧失，是中共最大的可悲。我们新中国联邦人要重拾先进文明，每个人都应追求有温度的爱。
+**《铁锁梦》**
+柬埔寨热门歌曲榜第3名
+蒙古流行歌曲榜第1名
 
-新闻链接：[叶钊颖-郝海东-飞飞 《大实话·第十七场](https://gettr.com/post/p141tbb1e93)
+* * *
 
-编辑：Delilah小胖
+[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-总编：飞虹
+* * *
 
-审核：木木
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_73.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
+
+
+[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
