@@ -16,6 +16,8 @@
 ---
 ## 頁面 30/41 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [41](/content/README-41.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/content/2018/12/20181224-4525324540610359598.md)
+
 [翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密](/content/2018/12/20181220-8361136447914723605.md)
 
 [文字版：2018年12月19号和12月20号郭先生报平](/content/2018/12/20181220-3642429743012520927.md)
@@ -63,8 +65,6 @@
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/content/2018/11/20181114-7269018934518411869.md)
 
 [文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/2018/11/20181109-6875461372122339144.md)
-
-[翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”](/content/2018/11/20181108-8983368335590394256.md)
 
 
 ## 頁面 30/41 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [41](/content/README-41.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)

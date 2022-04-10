@@ -16,6 +16,8 @@
 ---
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”](/content/2018/11/20181108-8983368335590394256.md)
+
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/content/2018/11/20181108-3694443382811258849.md)
 
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/content/2018/11/20181102-7756356782375038893.md)
@@ -63,8 +65,6 @@
 [文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/content/2018/09/20180929-7242138828289666043.md)
 
 [文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/content/2018/09/20180922-1607406229433269336.md)
-
-[翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/content/2018/09/20180922-4453715019951435654.md)
 
 
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
