@@ -2,36 +2,27 @@
 ---
 
 
-## 美国驻华大使馆发布授权撤离和旅行禁令
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2317636/)
+## 北约称中共已构成严峻挑战
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318763/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6cdcdbd9520c4460a00fcf69f23435e4.jpg)
-当地时间4月9日，美驻华大使馆发布一则重要警示，旨在紧急撤离身在中共国的美国人以及警告美国人不要前往中共国旅行。
+作者：在远方
 
-该警示表明，鉴于在中共国内中共病毒的激增以及中共政府抗击疫情的诸多不人道限制，美国国务院于4月8日批准了美国政府雇员及其家属从美国驻上海领事馆自愿撤离，驻上海大使伯恩斯已经向中共国政府通知了这一撤离意愿。据悉该警示还包括，美国公民应该重新考虑前往中共国的旅行，因中共国的防疫限制，其中包括父母与孩童分离的风险，美国公民请谨慎前往中共国香港、吉林和上海市。上海领事馆目前对公众关闭，但领事馆工作仍然24小时在值，为美国公民提供紧急服务。
+当地时间4月7日，北大西洋公约组织秘书长斯托尔滕贝格表示，由于中共一直不肯对俄罗斯侵略乌克兰的行为发出谴责，同时其还与俄罗斯一起反对各自国内自由选择道路的权力，这一系列举动已经对北约构成了严峻的挑战。
 
-目前该讯息已经发放给美国公民，并在网路开通了美国公民撤离计划登记，以及更多的相关联系负责人来帮助美国公民撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-6.jpeg)
 
-reference：
+据悉，早在中共北京冬奥会期间，习近平与普京就多次强调双方“友好无止境、无禁区”，且二者联手公开反对北约东扩。而在俄乌战争爆发后，中共又被披露早已悉知俄罗斯入侵乌克兰的计划。此外，中共政府不但拒绝谴责普京当局，更不对其做出任何制裁，甚者还在联合国投票中数次对俄罗斯表现出支持态度。
 
-[https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+对此，在当天举行的北约外长会议上，斯托尔滕贝格特别邀请了日本、韩国、澳大利亚和新西兰等国家的外长参与其中。斯托尔滕贝格指出，鉴于中共已经加入了莫斯科的行列并反复阻碍各国作出不利其自身表态的选择权，这将对全世界造成严重的影响。为此，北约和亚太地区的伙伴必须团结起来，共同保卫文明世界一直坚守的价值观。
 
-撰稿、发布：骄子
+参考链接：[中國默許俄羅斯侵烏 北約：已對北大西洋聯盟構成「嚴峻挑戰」](https://www.rti.org.tw/news/view/id/2129443)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-欢迎订阅我们的GNews账号：
+总编/审核：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

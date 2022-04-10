@@ -2,88 +2,32 @@
 ---
 
 
-## 比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2318968/)
+## 法国大选投票前的态势
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2319443/)
 
-**比尔·戈茨**： 
-隐瞒与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关系的堪萨斯大学教授被判有罪； 窃取农业机密的中共国公民被判入狱 
-【附华盛顿时报登载的比尔·戈茨文章：陪审团定罪被指控隐瞒与中共国关系的堪萨斯教授。此为第二位中国公民因盗窃农业商业秘密被判刑】
+编辑：文宝
 
+在俄乌冲突和新冠疫情两大危机的阴云笼罩下，本届总统大选显得异常冷清：竞选集会被压缩到最小规模，传统的候选人辩论也被取消。而马克龙对战勒庞并获胜的预测，与2017年大选如出一辙，对选民而言没有任何吸引力。以上各种因素导致法国民众对选举更加冷漠，预计首轮投票的弃权率接近30%，或将创造第五共和国历史上的最高纪录。
 
+为提高选民参与度，保证大选结果的合法性，政府逐步放宽防疫措施，于3月中旬取消疫苗通行证，法国疫情再次出现反弹后，政府又宣布新冠检测呈阳性的选民可以临时免除隔离限制，建议戴口罩前往投票站。马克龙的竞选团队一周内花费数万欧元，在脸书（Facebook）网站上投放广告，号召无法前往投票站的选民办理委托手续，广告的主要目标人群是年轻人和65周岁以上民众。
 
-> University of Kansas professor who hid Chinese government ties convicted; Chinese national who stole agricultural secrets sentenced to prison [https://t.co/Sn3PWMNdLV](https://t.co/Sn3PWMNdLV)
-> — Bill Gertz (@BillGertz) [April 9, 2022](https://twitter.com/BillGertz/status/1512589920803573762?ref_src=twsrc%5Etfw)
+对勒庞和梅朗雄而言，想与马克龙一争高下，争取更多选民参与是关键因素。在勒庞的支持者中，年轻人和草根阶层占了很大比例，也是弃权率最集中的人群。梅朗雄所在的左翼阵营中，候选人众多却各自为政，左翼选民的积极性不断受挫，是导致弃投的重要原因。
 
+政府和各路候选人的努力并没有提升选民的投票意愿。大选将近，三分之一的选民仍未决定是否会参加投票。更有37%的受访者表示，由于多位候选人的执政纲领大同小异，对于勒庞和泽穆尔，马克龙和佩克雷斯，梅朗雄和法共候选人鲁塞尔，目前还不确定会投票给谁，可能会临时改变主意，大大增加了选举的不确定性。
 
+民主“疲惫感”与政治信任危机
 
-**参议员玛莎·布莱克本**：
-[#共产中国](https://www.gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 正在加速他的核武器建设。拜登政府是时候描绘一下“以实力谋和平”—— 不要再软弱的谈话。
+当被问及对当前法国政治和选情的态度，超过七成的法国民众选择了“厌倦”（lassitude）和“怀疑”（méfiance）这两个关键词。选民放弃投票或犹豫不决，暴露了法国民主政治的深层次问题。
 
+在法国，随着传统左右翼政党分裂和日渐失势，选民的政治派系也逐渐模糊。2017年，民众选择政治新秀马克龙，寄望“非左非右”的中间路线可以解决法国社会的沉疴。然而，马克龙上任后奉行自由主义，强推劳动法和国企改革，提高燃油税的政策触动法国民众根本利益，因此所引发的“黄背心”运动竟然获得高达七成以上的支持率，体现了公民对法国民主政治的集体性失望。
 
+民调显示，法国民众对各级政府的信任度从地方到中央逐级递减，最高的是市镇（63%），其次为省、大区，最低的是中央政府（35%）。去年6月的大区和省议会选举，曾一度被认为是总统大选的风向标。但两轮投票的弃权率均高达三分之二，是除全民公投外所有选举中投票率最低的一次，执政的共和国前进党也遭遇惨败，选民以冷漠和反对态度表达对马克龙政府的不满。
 
-> Communist China is accelerating its nuclear weapons buildup. 
-> 
-> This is the time for the Biden administration to portray ‘peace through strength’ — not more weak talk.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512807847775641607?ref_src=twsrc%5Etfw)
+同时，政治人物面临严重信任危机。很大一部分放弃履行选举权的公民认为，无论谁当选总统，自己的生活都难以得到改善。《费加罗报》公布的统计称，约80%的受访民众认为马克龙能够成功连任，但真正希望他获胜的人仅有20%。
 
+从表面上看，当前的俄乌战事吸引了媒体全部注意力，候选人没有空间展开竞选活动，导致民众对大选漠不关心。事实上，马克龙凭借俄乌危机的“聚旗效应”，民意大涨，抢先占领优势；传统左右翼政党在俄乌开战前就内部分裂严重，现在则以战争为借口掩盖其颓势；勒庞极力展示“去激进化”的形象，试图让选民不再关注她的亲俄立场……各派候选人或多或少都利用了俄乌危机，以实现各自的政治目标，对法国社会面临的通胀加剧、能源和食品涨价、欧洲安全、疫情反复、气候变暖等现实问题，却没有提出有效的解决对策，进一步打击了民众对大选的兴趣。
 
-
-**前国务卿迈克·蓬佩奥**： 
-我们必须恢复重视家庭和努力工作的美国梦。 我们共和党可以为此领路。 我们必须团结起来，拯救我们的美国生活方式。
-
-
-
-> We must have a restoration of the American Dream that values family and hard work. Our party can lead the way. We must unite and save our American way of life.
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512811327743574016?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本**： 
-乌克兰正在发生的事情令人作呕。 俄罗斯为无辜、受恐吓的乌克兰人设立了“过滤营地”——西方不能坐视不管。
-
-
-
-> What’s happening in Ukraine is sickening. Russia has set up ‘filtration camps’ for innocent, terrorized Ukrainians — the West cannot sit back silently.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512894495116955649?ref_src=twsrc%5Etfw)
-
-
-
-**众议院共和党**：
-拜登以牺牲消费者和我们的国家安全为代价，在他的反能源议程上加倍下注：
-－向独裁者和外国对手乞求石油
-－将我们的战略石油储备消耗到40年来的最低点
-－提议对国内生产征收新税
-
-
-
-> Biden is doubling down on his anti-energy agenda at the expense of consumers and our national security:
-> 
-> ❌Begging dictators & foreign adversaries for oil
-> ❌Depleting our Strategic Petroleum Reserve to the lowest point in 40 years
-> ❌Proposing new taxes on domestic production
-> — House Republicans (@HouseGOP) [April 9, 2022](https://twitter.com/HouseGOP/status/1512795466546696194?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-信仰激发无畏； 这是引导乔治华盛顿走向胜利的原因。 我们都必须让我们的信仰引领我们。 造物主就是我们的向导。
-
-
-
-> Faith imbues fearlessness; it is what guided George Washington to victory. We must all let our faith lead us. And The Creator to be our guide. [pic.twitter.com/QRwEuG7Og5](https://t.co/QRwEuG7Og5)
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512837782779187200?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·沃尔茨新闻室**： 
-华尔兹议员与同事国会议员一道，写信敦促司法部长加兰，通过任命一名特别顾问来监督针对亨特拜登与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和其他外国政府交易的调查，以确保调查能公平客观地进行。 【附信函】
-
-
-
-> Rep. Waltz joined fellow members of Congress in a letter urging Attorney General Garland to ensure a fair & objective investigation by appointing a Special Counsel to oversee an investigation into Hunter Biden’s dealings with the Chinese Communist Party and other foreign govts. [pic.twitter.com/EJCN5j7bhL](https://t.co/EJCN5j7bhL)
-> — Congressman Waltz Press (@RepWaltzPress) [April 9, 2022](https://twitter.com/RepWaltzPress/status/1512858484580122624?ref_src=twsrc%5Etfw)
-
-
+原文链接：[https://news.sina.com.cn/w/2022-04-10/doc-imcwiwst0920679.shtml?cre=tianyi&mod=pcpager\_inter&loc=32&r=0&rfunc=18&tj=cxvertical\_pc\_pager\_spt&tr=181](https://news.sina.com.cn/w/2022-04-10/doc-imcwiwst0920679.shtml?cre=tianyi&amp;mod=pcpager_inter&amp;loc=32&amp;r=0&amp;rfunc=18&amp;tj=cxvertical_pc_pager_spt&amp;tr=181)
 
 
 

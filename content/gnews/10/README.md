@@ -2,30 +2,32 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2319585/)
+## 德克萨斯州法院授予海军免受强制疫苗的认证
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2319776/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-9.png)
+**翻译：【日本东京方舟农场】乾坤一掷**
 
+美国德克萨斯州地方法院已授予等级认证和全等级初步禁令，以保护要求宗教豁免的海军人员免受强制疫苗令的影响。
 
-校对：Stay文苑
+因此，根据《联邦宗教自由恢复法》（RFRA），海军不能惩戒或解雇任何要求进行宗教豁免的人员。
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-2.jpg)（图片来源：lc.org）
 
-发稿：Stay文苑
+里德·奥康纳法官在他的命令中说：“海军通过威胁他的工作和对宗教追随者施加巨大压力以改变他的行为和违反他的信仰。指定的原告和潜在的集体成员都以基本相同的方式受到伤害。每个人都提交了她的宗教豁免请求，但如果没有宗教豁免，每个服役人员都面临着被解雇的威胁以及随之而来的后果。尽管他们的个人情况实际上可能在细微的方面有所不同，但威胁是一样的——要么接受打击，要么丢掉工作。海军已经“采取了行动，而且由于潜在的集体成员可能会从单一禁令中获得豁免，因此该索赔适用于解决根据规则 23(b)(2) 进行的集体问题。
 
-新闻：[https://gettr.com/post/p14g31mfc7b](https://gettr.com/post/p14g31mfc7b)
-访谈：[https://gettr.com/post/p14g7lv4366](https://gettr.com/post/p14g7lv4366)
+由于美国最高法院上周五批准部分中止，仅专注于在海豹突击队 1-26 诉奥斯汀案中的部署，奥康纳法官的禁令并未阻止海军做出部署和分配决定，但海军不能惩戒或解雇由于因宗教原因仍未接种疫苗的人员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+在海军海豹突击队 1 诉奥斯汀一案中，自由律师继续要求军队所有部门的成员获得等级认证。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Liberty Counsel 创始人兼主席 Mat Staver 说：“这项命令证明了受《宗教自由恢复法》和《第一修正案》保护的宗教自由运动是正确的，国防部违反了这项非法的 COVID 注射任务。这是宗教自由的伟大胜利，特别是对于这些热爱上帝、热爱美国的海军军人而言。我们赞扬德克萨斯州法院承认军方以违宪的方式对待这些光荣军人。
+
+注：本文仅代表作者观点。
+
+原文链接：
+[https://reurl.cc/k7mjrr](https://reurl.cc/k7mjrr)
+
+校对：妙喜小油鍋
+发布：文曦
 
  
 

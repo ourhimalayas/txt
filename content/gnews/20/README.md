@@ -2,74 +2,48 @@
 ---
 
 
-## 中共和俄罗斯对打倒美国领导的秩序不谋而合（视频）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2319449/)
+## COVID-19疫苗副作用集萃：经期紊乱，颜色不正常
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2319599/)
 
-采集：玫瑰新闻
-翻译：sherryok done
+##### 整理：禄森
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+**雅典娜情报组《疫苗灾难收集专栏》**
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗副作用.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+#### 打疫苗后副作用，经期紊乱，颜色不正常
 
+打完第三针加强针以后，姨妈十天就来一次。之前大姨妈的周期是33天，经期天数5-6天，每个月来的时间都很准时。2月份来第一次姨妈走后的第三天下午有一点点褐色，我没在意就去打疫苗了，结果晚上褐色越来越多，连续来了两三天就变成大姨妈了。
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1-103.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2-68.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3-61.jpg)
 
+小红书截图
+过了半个月又有褐色分泌物，我以为是排卵期，结果两天又是姨妈，而且疫苗以后来的姨妈量都超少，迷你姨妈巾就够用。现在过了十天，又是在排卵期的时候褐色，今早上起床发现又变成了少量黑红的姨妈。
 
+我这是出什么毛病了吗？还是疫苗的影响？好害怕！等姨妈干净了就去检查。
 
-Joint idea of taking down the US led order.
-他们对打倒美国领导的秩序不谋而合
+发布于 2022-04-01 14:33
 
-I mean, they’ve been absolutely clear about that in their communications.
-我的意思是，他们在交流中已经非常清楚这一点。
+#### 精选评论
 
-And, you know, being able to work together,
-而且，你知道，他们能够一起工作，
+奇宝评论：2号去打的加强针，例假干净的第二天。现在处于排卵期，怎么身体没排卵期的感觉了呢[哭惹R]！
 
-I mean, building their military relationship and having that underlying economic relationship in which China absolutely has the upper hand, and therefore a great deal of leverage over Russia,
-我的意思是，建立他们的军事关系并拥有中共国绝对占上风的潜在经济关系，从而对俄罗斯产生极大的影响力，
+04-06
 
-but they have a shared joint ideological enterprise. You know, I mean, Beijingis recycling Moscow’s propaganda.
-但他们有共同的意识形态事业。 你知道，我的意思是，北京正在附和莫斯科的宣传。
+资料来源：[打完第三针加强针以后，姨妈十天就来一次](https://www.xiaohongshu.com/discovery/item/62469ca600000000010257d5)
 
-And they’re, I think, on the same page about their idea of contesting the United States in both Europe and Asia.
-我认为，他们在欧洲和亚洲与美国竞争的想法步调一致。
+*发布：Mttfly*
 
-So, so that’s really the the deeper heart of this matter. Beijing is not going to throw that away, because they sort of need Russia in order to fulfill their broader geopolitical goals.
-所以，这才是这件事的深层核心所在。 中共不会放弃这一点，因为他们貌似需要俄罗斯来实现其更广泛的地缘政治目标。
-
-You know, so for those reasons, I mean, I think it remains a very robust partnership,
-你知道，出于这些原因，我认为它仍然是一个非常强大的伙伴关系，
-
-but they’ve obviously put themselves in the trap of having, at this point raised a lot of skepticism in Europe.
-但在这一点上，他们显然让自己陷入了在欧洲引起大量怀疑的陷阱中。
-
-And I think people are calling into question their, their economic relations, and that’s where we need to take action.
-而且我认为人们正在质疑他们的经济关系，而这正是我们需要采取行动的地方。
-
-I mean, the idea that we’re going to keep on building or deepening economic relations with China is just, you know, totally misguided at this point.
-我的意思是，我们将继续与中共国建立或深化经济关系的想法，这一点完全是误入歧途。
-
-You know, not only the genocide, the military buildup, but the support for Moscow in the first, you know, major land war in Europe and in, you know, 75 years,
-你知道，不仅因为他们的种族灭绝，军事集结，还有在75年来欧洲的第一场重大陆战中对莫斯科的支持，
-
-I mean, this should be enough for us to understand that it’s time to roll back the economic relationship.
-这应该足以让我们明白，是时候扭转经济关系了。
-
-And you can start by looking at the Chinese companies
-你可以先看看这些中共国公司，
-
-that are going to be you know, tacitly engaging with with, you know, Russia as the regime comes under further pressure, not going to be a space.
-当俄罗斯政权面临进一步压力无路可退时，这些公司正准备心照不宣地与俄罗斯默契接触
-
-I think for sanctions I think we should be bold about
-
-我认为对于制裁我们应该大胆一些
-
-**校队：阿雄
-字幕：CharlieNZ查理**
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
