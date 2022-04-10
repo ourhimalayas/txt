@@ -2,23 +2,13 @@
 ---
 
 
-## 视频|只要CCP存在，上海的今天就是世界的明天
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2319684/)
+## 【乌克兰救援】中共在背后推动了这次侵略，威胁着亚洲包括日本的和平和安全
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2319841/)
 
-【视频剪辑】 Amanda11
+【乌克兰救援】04/08/2022 妮可在接受日本东京一家电视台采访时说，我们来到前线不仅仅是为了宣传我们的理念，是想替国内无法发声的中国人告诉世界，中共在背后推动了这次侵略，威胁着亚洲包括日本的和平和安全，但它不能代表中国人，大多数中国人都爱好和平，希望推翻邪恶中共获得自由。
 
-【文案编辑】Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【制作团队】大直播短视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

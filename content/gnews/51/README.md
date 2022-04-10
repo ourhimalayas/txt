@@ -2,24 +2,40 @@
 ---
 
 
-## 樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2316628/)
+## 基金投资管理是合并还是分销更好
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2316888/)
 
-撰稿：东京樱花团/上善若水
+翻译/编辑：Rianna
 
-欧盟主席冯德莱恩一起到访基辅的欧盟高级代表何塞普‧博雷利4月8日在其官方推特账户上表示：“我强烈谴责俄军对克拉马托尔斯克火车站的野蛮袭击。袭击造成数十人死亡，还有许多人受伤。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649502031814.jpg)图片来源：雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-41.png)（图片来源于本文链接）
 
-冯德莱恩在抵达基辅后告诉媒体记者，她此行将向泽伦斯基传达一个关键讯息：乌克兰“将踏上加入欧盟之路”。冯德赖恩表示：“欧盟理事会通常需时数年才会接受加盟申请，但乌克兰在一、两周内就做到了。我要求尽快推动此事，我们的目标是在今年夏天向欧盟理事会提出乌克兰的加入申请。”冯德赖恩誓言会支持基辅成为“摆脱战争的民主国家”，且欧盟各方也将提供帮助。博雷利则表示，他们此行传达的讯息是，“泽伦斯基还掌控本国领土，仍掌管国家权力”欧盟在未来数天内再向乌克兰提供5亿欧元援助。过惯和平日子的欧盟领袖这次真正面对战争暴力的血雨腥风，也可算是任重而道远。
+对许多人来说，经验丰富的基金管理高管，通过多样化和增长来应对具有挑战性的行业动态，欢迎来到资金管理的残酷和压力不足的世界。
 
-信息来源：
+Perpetual以24亿美元的现金和股票方式收购竞争对手Pendal，这是基金管理集团如何通过收购寻求规模的最新引人注目的例子。
 
-[欧盟领袖承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E8%A6%81%E9%97%BB%E5%88%86%E6%9E%90/20220408-%E6%AC%A7%E7%9B%9F%E9%A2%86%E8%A2%96%E6%89%BF%E8%AF%BA-%E8%A1%80%E9%9B%A8%E8%85%A5%E9%A3%8E%E4%B8%AD%E7%9A%84%E4%B9%8C%E5%85%8B%E5%85%B0-%E5%B0%86%E8%B8%8F%E4%B8%8A%E5%8A%A0%E5%85%A5%E6%AC%A7%E7%9B%9F%E4%B9%8B%E8%B7%AF)
+尤其是因为当地国内股票负责人Pendal的Crispin Murray和Perpetual的Paul Skamavougeras被认为是市场上最有影响力的投资者之一，仅次于超级基金，有能力开绿灯或扼杀并购、重大战略决策和关键任命。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+在当地，VGI Partners和Regal Funds Management中两名澳大利亚最知名的对冲基金经理正计划合并，AMP刚刚以高达1.38亿美元的价格将其全球股票和固定收益业务出售给麦格理资产管理公司。Paradice Investment Management于12月将其一半的股份出售给Charter Hall。在此之前，去年3月，Yarra Capital收购了澳大利亚的所有Nikko资产管理公司。
+
+从纸面上来说，合并都是关于协同增效的，因为合并后的集团旨在降低营销、人力资源、客户服务、基金会计或风险和合规等重复共享服务职能的成本。Perpetual表示，它每年可以从这笔交易中切出约5000万美元。TMS资本投资组合经理本·克拉克说，这个问题可以追溯到另一个问题：他不确定上市基金管理模式是否继续有效。
+
+以2017年美国债券基金经理Janus和伦敦股票经理Henderson的合并为例，其中Perpetual的Adams是关键架构师之一。
+
+Perpetual不会冒险合并，而是收购者（这意味着它几乎没有空间在不提高债务水平的情况下移动要约价格）。投资团队不会被解散，并将保持自主权，当存在明显冲突时，分销团队将保持分离。
+
+那么，投资经理的成功是什么？至少有三个当务之急：顶级投资者必须拥有自主权；业务必须具有运营效率，以便额外资金带来利润；最后也许是最困难的是，基金必须能够增长。
+
+新闻来源：[基金管理投资合并股份](http://www.afr.com/business/banking-and-finance/asset-managers-turn-to-mergers-to-deliver-for-shareholders-20220408-p5abzm?btis)
+
+*发布：  tianzhihuan*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
