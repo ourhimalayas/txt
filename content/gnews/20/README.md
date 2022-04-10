@@ -2,22 +2,42 @@
 ---
 
 
-## 起来吧，中国人！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318976/)
+## 日本取消对106个国家的COVID-19非居民外国人入境禁令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2319137/)
 
-作者：东京樱花团/ ThreeColors
+**据《KYODO NEWS》 2022年4月7日报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/av52x-4bz36.jpg)
+东京-日本政府表示，作为逐步放宽 COVID-19 限制程序的一部分，日本将从周五开始取消对包括英国、印度和美国在内的 106 个国家的非居民外国人的入境禁令。
+然而，政策变化不会彻底改变日本因疫情引发的严格边境管制，因为它将继续暂停 12 月 2 日之前签发的签证的有效期，但外交官、日本国民的配偶和永久居民等除外。
 
-中共过去抗美援朝，现在抗美援俄。中共发动了文化大革命，害死了无数无辜的中国人。无论你我对政治感兴趣与否，政治都不会放过任何人。好的制度养人，像中共这种邪恶的制度只会产生灾害、奴役和死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-11.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp4.itc.cn%2Fq_70%2Fimages03%2F20210306%2Ff0a1c5d1347544108eebde1bd28baa22.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F454469290_100171032&amp;tbnid=GukqseaUcZimVM&amp;vet=12ahUKEwi3063L1Yf3AhXXw4UKHY-ZBmgQMygAegUIARC1AQ..i&amp;docid=6espEPYY3OLrAM&amp;w=1080&amp;h=712&amp;q=%E6%9D%8E%E5%B0%8F%E9%BE%99&amp;ved=2ahUKEwi3063L1Yf3AhXXw4UKHY-ZBmgQMygAegUIARC1AQ)
-上海的地方电台开始教授民众“轻减食五日”，夜间中共用无人机在居民小区里广播“不要开窗唱歌，控制渴望自由的灵魂”之类的东西，街上也出现了荷枪实弹的大白们，刻意渲染有钱人的抗议日常生活与众不同，等等。民众只不过是害怕被饿死而已！中共以“疫”待“牢”，非法拘禁民众在先，让民众闭嘴在后，难道想把民众都憋死饿死吗？
+原则上不会签发签证，除非那些寻求进入日本的人属于“特殊情况”，例如探望重病患者或参加葬礼。外国游客仍然被禁止进入日本。
 
-很明显，中共是唯一一个在金钱和物资甚至武器上支持战犯普京的邪恶组织，而对饿肚子的中国人却带搭不理，甚至暴力相向。中共此次的动态清零运动并不单纯，为什么这么说？因为出现了“母子分离”，“夫妻分离”，病人得不到救治，有钱没钱都饿肚子。不仅如此，清零大运动还导致“智商清零”和“底线清零”，是对民众服从中共的一次次大演练！为中共将来的更加残酷的统治手段做准备。
+外交部周三公布的106个调整对象中，包括柬埔寨、印度尼西亚、马来西亚、蒙古、菲律宾和泰国等亚洲国家以及法国、德国、意大利和西班牙等欧洲国家。
 
-中共的文革害死了无数的中国人，这次的病毒大革命已经带走无数无辜人的生命。起来吧，中国人！再不醒来，就真的太晚了！
+不再受入境禁令约束的国家还将包括卡塔尔、沙特阿拉伯和阿拉伯联合酋长国，以及巴西、智利、摩洛哥和突尼斯等拉丁美洲和非洲国家。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+最新举措与日本 4 月 1 日因大流行而放松对 106 个国家的旅行警告一致，不再建议日本国民不要访问这些地区。
+
+该部将其建议从四级量表中的第二高级别 3 降至 2 级，在该级别下，日本公民被要求避免所有不必要的海外旅行。
+
+日本在 11 月下旬有效地对非居民外国人实施了入境禁令，以遏制高度传播的 Omicron 变体的传播。学生、学者和商界人士批评该措施过于严格。
+
+由于最近几周感染情况有所缓解，日本一直在放松边境管制，首相岸田文雄称这是七国集团中“最严格的”。
+
+从周日开始，日本将把每日海外入境人数上限从目前的 7,000 人提高到 10,000 人左右。
+
+***文章观点仅代表作者个人，与Gnews平台无关***
+
+**文章来源**：[https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html](https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

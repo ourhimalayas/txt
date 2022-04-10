@@ -2,38 +2,75 @@
 ---
 
 
-## 郭文贵先生2022年4月9日盖特视频（5分34秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2319377/)
+## 中共和俄罗斯对打倒美国领导的秩序不谋而合（视频）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2319449/)
 
-听写整理编辑：东京樱花团/Peterwong
+采集：玫瑰新闻
+翻译：sherryok done
 
-尊敬的战友们好啊!4月9号,刚才我发了一个视频出去，可能是那个卡有问题，声音没出去,抱歉了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-10_09-02-42.png)
-尊敬的战友们好啊！白唠叨半天，但是有些事吧，你说你重新唠叨唠到那种感觉了啊，这就是唯真不破，咱们这个坚持的直播的魅力，七哥也是从来不会准备。我主要的刚才说的是什么呢，就是说咱们很多战友，在各地给七哥提供了很多的，在隔离期间、包括隔离背后的故事，包括现在整个国内的政治经济情况的一些绝对性的真实的信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-还有一个，就是这个红旗导弹系统，送到塞尔维亚、包括中东、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，这些地方，这对美国，对西方世界，等同于宣战，而且要把东风15系统，要大量的布置在那这几个地方。你去想一想，N个歼20，大量的飞机运着红旗导弹到塞尔维亚，七哥是在什么时候发声的？七哥在一个月以前给大家报的料，现在大家看，都上去了，都已经真实的发生了。
 
-但是战友们，你们知道吗？这会把中国人带入到地狱里面去，现在全世界，在非洲，在这里，我们非洲的一个战友，家人被强奸了，快强奸死了，要去报案，叫大使馆协助，大使馆说：“不要说话，为了中非友谊，你忍着吧”。还有现在，在其他地方，有着咱们同胞华侨，被人拿枪击，这种海外的排华，和在全世界，俄罗斯打仗，入侵乌克兰，让中国人买单，让中国人拉仇恨。上海，深圳、吉林、郑州，现在很多人现在饭都没得吃，你还要征服全世界。
 
-还有一个就是像国内的战友说到的，真正的中共，早就做好准备了，说上海的事情，饿死人等等等，死多少人，你们知道吗？超出你的想象。包括深圳，报到中共，中共老杂毛们一致的说：“让中国人尝一尝挨饿的苦头，挺好。中国这些年的城市化，有自来水、有空调、有超市的日子，这是党给的，不懂得感恩，让他们挨饿就知道感恩啦，会更加的团结在党的中心。”我R你八辈儿祖宗共产党，你就这么整，你这么整，让饿死人，就为了感你的恩，搞政治！
 
-而且更夸张的事情，是去年所谓的，这个2019年到2020年，2021年，所谓的桌上净啊（光盘行动），准备粮食，节省啊，共产党早就有准备干这个事儿，就是让中国人饿的，你未来，你回乡下去，还有一个叫你永远感党的恩，死了的不会说话了，你恨谁去？活着的得感谢党吧，然后共产党最关键的时候，开始释放粮食，是吧？然后找出N个活雷锋，拍很多宣传片来感谢党。
 
-然后把那些所谓的富豪，社会都知道，这些人根本就制造不公平，要把这富豪全灭了，加速啊，因为这一次的挨饿，“社会主义好啊，爹亲娘亲不如党亲”，把这些所谓的土豪，现在这富豪统统给他资产抢走，“就是他们制造了这种城市的不公平，制造这种灾难”。而且你看上海那个姓徐的女人，要到了食品，很高兴，他不知道共产党大量的让它传播，你敢骂习近平的娘，十分钟就没了，为啥这个视频全面传播呢？就是让你看到“富豪比你们有优越，富豪比你们有本事。”现在全上海中国人看到这个视频，全恨中国富豪。
 
-今日资本的徐老板简直是个愚蠢的猪，你炫耀啥？你炫耀啥？这就中国人，无论什么人，脑子里边跟狗屎一样，他不知道共产党让你放出去了，上海人、广东人、吉林人，恨的是富豪啊。你有吃的，你家那么多人，这么豪华的地板，石头切的这个大理石地板，然后你家有那么多吃的，我还饿死了。恨谁？恨富豪。社会仇恨都是富豪的事儿，愚蠢不？愚蠢不？共产党的操作。
 
-明天七哥参加大直播，9点，我9点以前不行，还要开会，我9点钟参加大直播，大概到11点钟左右，明天我详细讲这事。共产党再给全世界、给中国人民拉仇恨，共产党正在把中国人送向地狱，共产党所有现在疯狂的行动，最后都是中国人买单。虽然对灭共，对灭共有好处，但我们不希望看到这一幕，就这么简单，啥都不说了，我得马上走，snow都叫，到时间了。“snow，过来，你叫什么？snow。
+Joint idea of taking down the US led order.
+他们对打倒美国领导的秩序不谋而合
 
-咱们的两首歌，兄弟姐妹们，真的是《铁索梦》，还有《灭共的雪》，太感谢全球的战友们打榜，太感谢，太感谢，创造的神奇，第一天23个国家打第一，而且两个歌一起来，明天我们谈谈这个事儿，好吧，兄弟姐妹们，太棒了，太棒了，啥都不说了，到时间了，我马上走，明天我再详细说。
+I mean, they’ve been absolutely clear about that in their communications.
+我的意思是，他们在交流中已经非常清楚这一点。
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+And, you know, being able to work together,
+而且，你知道，他们能够一起工作，
 
-[郭文贵先生2022年4月9日盖特视频](https://gettr.com/post/p14ekwj638b)
+I mean, building their military relationship and having that underlying economic relationship in which China absolutely has the upper hand, and therefore a great deal of leverage over Russia,
+我的意思是，建立他们的军事关系并拥有中共国绝对占上风的潜在经济关系，从而对俄罗斯产生极大的影响力，
 
-*校对：东京樱花团/tdownc2p
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+but they have a shared joint ideological enterprise. You know, I mean, Beijingis recycling Moscow’s propaganda.
+但他们有共同的意识形态事业。 你知道，我的意思是，北京正在附和莫斯科的宣传。
+
+And they’re, I think, on the same page about their idea of contesting the United States in both Europe and Asia.
+我认为，他们在欧洲和亚洲与美国竞争的想法步调一致。
+
+So, so that’s really the the deeper heart of this matter. Beijing is not going to throw that away, because they sort of need Russia in order to fulfill their broader geopolitical goals.
+所以，这才是这件事的深层核心所在。 中共不会放弃这一点，因为他们貌似需要俄罗斯来实现其更广泛的地缘政治目标。
+
+You know, so for those reasons, I mean, I think it remains a very robust partnership,
+你知道，出于这些原因，我认为它仍然是一个非常强大的伙伴关系，
+
+but they’ve obviously put themselves in the trap of having, at this point raised a lot of skepticism in Europe.
+但在这一点上，他们显然让自己陷入了在欧洲引起大量怀疑的陷阱中。
+
+And I think people are calling into question their, their economic relations, and that’s where we need to take action.
+而且我认为人们正在质疑他们的经济关系，而这正是我们需要采取行动的地方。
+
+I mean, the idea that we’re going to keep on building or deepening economic relations with China is just, you know, totally misguided at this point.
+我的意思是，我们将继续与中共国建立或深化经济关系的想法，这一点完全是误入歧途。
+
+You know, not only the genocide, the military buildup, but the support for Moscow in the first, you know, major land war in Europe and in, you know, 75 years,
+你知道，不仅因为他们的种族灭绝，军事集结，还有在75年来欧洲的第一场重大陆战中对莫斯科的支持，
+
+I mean, this should be enough for us to understand that it’s time to roll back the economic relationship.
+这应该足以让我们明白，是时候扭转经济关系了。
+
+And you can start by looking at the Chinese companies
+你可以先看看这些中共国公司，
+
+that are going to be you know, tacitly engaging with with, you know, Russia as the regime comes under further pressure, not going to be a space.
+当俄罗斯政权面临进一步压力无路可退时，这些公司正准备心照不宣地与俄罗斯默契接触
+
+I think for sanctions I think we should be bold about
+
+我认为对于制裁我们应该大胆一些
+
+**校队：阿雄
+字幕：CharlieNZ查理**
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 2:11 AM (UTC)`
+
+2022.04.09  新中国联邦 | 喜财经   货币职能和概念是如何被偷换的； 货币总量等式背后的猫腻
+![img](https://media.gettr.com/group11/origin/2022/04/10/02/02f24ea4-4cc3-85b9-e8b6-67abbf7c15e7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/10/2022 1:16 AM (UTC)`
 
 4/9/2022 Miles Guo’s GETTR: The CCP is deploying the HQ and DF Missile Systems in Serbia and Middle East, which is equivalent to declaring war on the US and the western world; it is the Chinese people who will pay a dear price for the CCP’s aggressions. Overseas Chinese are facing an unprecedented anti-Chinese crisis.<br/><br/>4/9/2022 文贵盖特：中共在塞尔维亚和中东地区大量布置红旗和东风导弹系统，等于向美国和西方世界宣战；中国人民将为此付出沉痛代价，海外华人正面临着空前的排华危机
@@ -151,12 +158,6 @@
 
 《新中国联邦｜真人真事》 第48期   加拿大扬帆农场   卢比肯
 ![img](https://media.gettr.com/group34/origin/2022/04/09/14/8da9007b-84eb-94a6-4ee3-b4d1cd7931bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 2:08 PM (UTC)`
-
-04/09/2022 on the 6th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on 5 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on Cambodia 🇰🇭 Top Song Charts<br/>#3 🥉on Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Philippines, Cambodia, Brazil, Mongolia, Armenia, Fiji, Laos🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
