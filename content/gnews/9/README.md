@@ -2,18 +2,69 @@
 ---
 
 
-## 俄军更换在乌军事行动最高指挥官
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2323794/)
+## 有声|粗暴的笑话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323806/)
 
-编辑：文宝
-![](https://inews.gtimg.com/newsapp_bt/0/14726525106/1000)
-当地时间4月9日，多家外媒报道称，俄罗斯已经重组了其在乌克兰的行动指挥部，并新指派了在叙利亚有丰富作战经验的俄罗斯南部军区指挥官亚历山大·德沃尼科夫（Alexander Dvonnikov）领导俄军在乌克兰的军事行动。不过，俄罗斯尚未官方确认换将。
+粵語配音：香草山香港部-格格樹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+我在喊
+你也在喊
+我喊我饿了需要吃的
+你喊控制灵魂对自由的渴望
 
-英国广播公司（BBC）最早援引一名“西方官员”报道了此事。该官员称，俄罗斯各部队此前都是单独指挥，新任命是为了改善各部队之间的协调。“这位指挥官在俄军在叙利亚的行动中有丰富经验。因此，我们预计整体指挥和控制将得到改善。”该官员对BBC表示。
+我想
+我们是不是
+来自于不同星球
+不懂彼此语言
+交臂而过
+也只是交臂而过
+你假装听不懂我
+我对你无言以对
 
-这位官员还称，尽管俄罗斯被认为拥有一支略低于100个“营级战斗群”的“可观”部队，但其战术被人数较少的乌克兰部队以更聪明的方式和出其不意的方式挡住。他表示：“除非俄罗斯能够改变其战术，否则很难看到他们成功实现其自己重新设定的这些有限目标。”
+你说
+控制灵魂对自由的渴望
+你告诉我
+告诉我们
+谁在控制我们的灵魂
+我们的自由
 
-原文链接：[https://new.qq.com/omn/20220410/20220410A05MH600.html](https://new.qq.com/omn/20220410/20220410A05MH600.html)
+我们早已经忘了
+什么是灵魂
+什么是自由
+生活处在最低要求
+可是
+如今
+也
+已经被剥夺
+
+喊吧，喊吧
+无人机在空中飞行
+那是用我们血汗
+购买的先进水平
+循环着你的声音
+控制着人们灵魂
+美好一切
+都已成了
+昨日风景
+只留下
+万人空巷
+家家牢笼
+
+文字版原文：[粗暴的笑话](https://gnews.org/zh-hans/2318079/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

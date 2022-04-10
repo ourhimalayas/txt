@@ -15,32 +15,32 @@
 
 ---
 
-### [昔日亚洲最大家乐福停业](/content/gnews/1/README.md)
+### [截至4.10 俄乌战事汇总](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [高昂的房租压垮超市大卖场](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [文贵爆料 4.10：军援俄罗斯，习近平向美欧竖起了中指](/content/gnews/2/README.md)
+### [中共国超市大卖场的衰落](/content/gnews/3/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [昔日亚洲最大家乐福停业](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [文贵爆料 4.10：军援俄罗斯，习近平向美欧竖起了中指](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [拜登明天将与莫迪通话：对俄罗斯采取强硬态度](/content/gnews/3/README.md)
+### [拜登明天将与莫迪通话：对俄罗斯采取强硬态度](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [巴基斯坦政局之变](/content/gnews/4/README.md)
+### [巴基斯坦政局之变](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油](/content/gnews/5/README.md)
+### [美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [巴基斯坦新总理选举11日举行](/content/gnews/6/README.md)
- ` 加拿大温哥华英里农场`
-
-### [俄罗斯调整前线军事指挥权](/content/gnews/7/README.md)
- ` 加拿大温哥华英里农场`
-
-### [有声|粗暴的笑话](/content/gnews/8/README.md)
+### [有声|粗暴的笑话](/content/gnews/9/README.md)
  ` MOSREC`
-
-### [俄军更换在乌军事行动最高指挥官](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [有声|清零](/content/gnews/10/README.md)
  ` MOSREC`
@@ -132,28 +132,28 @@
 ### [美国及世界疫情简报（04-10-2022）](/content/gnews/39/README.md)
  ` 波士顿五月花农场`
 
-### [独裁者毁灭世界的心里分析](/content/gnews/40/README.md)
- ` MilesGuoLivePPT`
-
-### [约翰逊在突访基辅时承诺提供支持以使乌克兰不再被入侵](/content/gnews/41/README.md)
+### [约翰逊在突访基辅时承诺提供支持以使乌克兰不再被入侵](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲多地CCP病毒数量略有下降](/content/gnews/42/README.md)
+### [澳洲多地CCP病毒数量略有下降](/content/gnews/41/README.md)
  ` 澳喜特战旅Gnews`
 
-### [上海疫情乱象](/content/gnews/43/README.md)
+### [上海疫情乱象](/content/gnews/42/README.md)
  ` 银河勇气之星`
 
-### [台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划](/content/gnews/44/README.md)
+### [台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划](/content/gnews/43/README.md)
  ` 關注組`
 
-### [波兰救援前线战友接受《每日来电》采访](/content/gnews/45/README.md)
+### [波兰救援前线战友接受《每日来电》采访](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/46/README.md)
+### [乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [东欧前线新中国联邦营地引发共鸣](/content/gnews/47/README.md)
+### [东欧前线新中国联邦营地引发共鸣](/content/gnews/46/README.md)
+ ` NFSC News`
+
+### [俄乌战场最新更新](/content/gnews/47/README.md)
  ` NFSC News`
 
 ### [律师在法庭指证辉瑞文件承认疫苗是基因疗法](/content/gnews/48/README.md)
