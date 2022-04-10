@@ -2,39 +2,22 @@
 ---
 
 
-## 墨西哥表示不接受俄罗斯入侵乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320331/)
+## 视频|俄导弹袭击乌克兰火车站致50平民丧生
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2320338/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+制作：香草山视频部
 
-翻译/编辑：小红帽
+当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_32724.jpeg)图片来源：www.japantimes.co.jp
+据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
 
+另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
 
-根据CNA4月10日报道，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔周六（4月9日）表示，墨西哥不接受俄罗斯入侵乌克兰。该视频消息在支持乌克兰冲突受害者的全球活动中发布。
+发稿：林礼
 
-“我们不接受俄罗斯入侵乌克兰，因为我们曾经遭受过入侵，”洛佩斯·奥夫拉多尔说，他提到了西班牙、法国和美国对这个拉丁美洲国家的入侵。
-
-“我们赞成以和平方式解决冲突。”
-
-本周早期，加拿大总理贾斯汀·特鲁多曾邀请洛佩斯·奥夫拉多尔参加他与欧盟委员会主席乌尔苏拉·冯德莱恩召集的活动，为乌克兰难民和境内流离失所者筹集资金。
-
-虽然洛佩兹奥夫拉多尔周三表示他无法出席，但他曾承诺发布一段视频，以谴责俄罗斯的入侵行为。
-
-洛佩斯·奥夫拉多尔一直试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
-
-虽然他的政府支持联合国敦促俄罗斯从乌克兰撤军的投票，但墨西哥在周四联合国大会（UNGA）关于暂停俄罗斯在联合国人权机构的地位的投票中投了弃权票。
-
-资料来源：[Mexico says it does not accept Russian invasion of Ukraine](https://www.channelnewsasia.com/world/mexico-says-it-does-not-accept-russian-invasion-ukraine-2618291)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

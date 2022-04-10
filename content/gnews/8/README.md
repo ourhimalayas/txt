@@ -2,35 +2,24 @@
 ---
 
 
-## 澳大利亚总理呼吁5月21日举行大选
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2320386/)
+## 视频|乌克兰在战争中得到来自美国的情报支持
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2320393/)
 
-####  了解澳洲生活点滴， 带您走进澳洲
+制作：香草山视频部
 
-翻译/编辑：小红帽
+据相关媒体4月7日报道，美国国防部长奥斯汀当天在联邦参议院军事委员会接受问询时表示，美国正在向乌克兰提供情报信息，用以帮助乌军应对来自俄罗斯的侵略攻击。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_e0c65ed8ff3147d990d69e78c29c3560_16x9_992.jpg)图片来源：ABC News
+报道提及，奥斯汀在听证会上承认，在俄乌双方的交战中，美国向乌克兰提供了顿巴斯地区的情报资讯，而这也是美国国防官员首次承认联邦政府涉入了乌克兰的抗俄战争中。 消息人士透露，华盛顿为乌克兰战斗部队提供了有关俄罗斯近乎实时的军事情报信息，从而帮助乌克兰方进行了有力的反击作战。
 
+另据北大西洋公约组织估计，自俄乌战争开始以来，俄罗斯的六名少将、多名高级军官，以及多家媒体记者已经在战争中丧生。同时，多达四万名俄罗斯士兵在交战中受伤、死亡或被俘，俄军当前损失的部队超过其初始兵力的四分之一。
 
-根据外媒4月10日报道，澳大利亚总理斯科特·莫里森 (Scott Morrison) 要求在5月21日举行联邦选举，在经历了洪水、丛林大火和新冠大流行病的三年后，发起了一场为保持执政地位的斗争。
+对此，克里姆林宫发言人当天也承认，俄罗斯军队在与乌克兰的战争中损失惨重。
 
-莫里森的保守政府正在努力争取澳大利亚的1700万选民，尽管其领导的经济正在反弹，失业率为13年来最低的4%，但在一系列民意调查中落后于反对党工党。
+发稿：林礼
 
-“这次选举是关于你的。没有其他任何人。这关乎我们的国家，关乎它的未来，”莫里森说。
-
-“我知道澳大利亚人经历了一段非常艰难的时期。 我也知道澳大利亚在未来几年将继续面临非常严峻的挑战，”他在新闻发布会上说。
-
-政治资深人士安东尼·艾博年 (Anthony Albanese) 领导的工党将努力结束澳大利亚自由党 – 国家党在澳大利亚近十年的统治。
-
-资料来源：[Australian prime minister calls May 21 election](https://newsinfo.inquirer.net/1580956/australian-prime-minister-calls-may-21-election)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

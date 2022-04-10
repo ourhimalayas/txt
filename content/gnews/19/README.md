@@ -2,24 +2,36 @@
 ---
 
 
-## 视频|上海疫情防控进入恶性循环
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2320288/)
+## COVID-19疫苗副作用集萃（2022.04.10A）——接种疫苗后出现了关节疼痛和神经损伤
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320292/)
 
-制作：香草山视频部
+整理：禄森
+编辑：文泓
 
-当地时间4月8日，据相关媒体报道，中共上海市政府正在以疫情爆发为由，强制当地两千五百万市民禁足家中或进入方舱医院隔离，从而可以响应当局所谓的“清零”政策。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组
 
-报道提及，上海正在实行极为严苛的封锁政策：任何居住小区中即使仅出现一例阳性患者，整个小区的居民都必须全员无限期的居家隔离；部分民众甚至在并未确诊的情况下被无故关押至方舱医院。
 
-同时，中共当局迟迟不给出明确的解封日期，这也导致上海市的供应链近期极不稳定，居民生活物资匮乏。据墙内社交媒体平台的消息显示，上海市民忍饥挨饿已经成为每天生活的常态，而抢菜则成为生存的头等大事。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-分析人士指出，上海的疫情防控目前已经进入了恶性循环，但这也意味着中共病毒及其疫苗所带来的灾难正在墙内拉开序幕。
+[**副作用集萃**** ****–**** GNEWS**](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-发稿：林礼
+**新冠第三针手指僵硬疼痛，太紧张神经损伤**
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+博主：嘻嘻2017601
+
+2021年12月28日，上周打完第三针后，打了针的那个胳膊的手无名指关节疼了一周，早上起来那根手指头还呈晨僵，白天活动了一天要好点。记得当时针打了后，整个手臂就感觉麻了一下，然后无名指扯（跳）了一下，比较轻微，当时在观察室我还问了医生，他说可能打到神经了。昨晚就搭配了这两种药，早上晨僵消失了，疼也好点了，差点以为手要废了。
+
+【备注：晨僵（morning stiffness）指晨起时病变的关节在静止不动后出现较长时间僵硬，如胶粘着的感觉，在适当活动后（症状）逐渐减轻的现象。】
+
+以下是网友留言及博主回复，图片来自博主小红书。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1077.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1078.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1079.png)![](https://gnews.org/43eb6730-15b0-4b31-b65a-031e478e89ed)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1081.png)
+参考来源：[新冠第三针手指僵硬疼痛，太紧张神经损伤](https://www.xiaohongshu.com/discovery/item/61ca6368000000002103f72f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155348)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

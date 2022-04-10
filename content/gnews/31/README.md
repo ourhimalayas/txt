@@ -2,25 +2,28 @@
 ---
 
 
-## 英国公布新的对乌克兰经济和军事援助计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2320199/)
+## 蔡英文家人染疫，她本人将隔离至4月中旬
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2320202/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-72.jpg)
-英国首相鲍里斯-约翰逊周六访问了基辅，给这个被围困的国家带去一揽子新的财政和军事援助计划。
+作者：银河系农场 – 骄子
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+当地时间4月8日，台湾总统府通报，蔡英文总统曾与11名家人共度清明假期，其中一人在4月8日中午确诊中共病毒。蔡英文本人目前测试为阴性，她将从接触日4月5日开始计算隔离，共10天，后续再进行7天自主健康管理，直至4月21日。此时间段内公开行程全部暂停，相关工作将以线上或者视频会议的方式进行。
 
-新的援助将包括120辆装甲车和新的反舰导弹系统等武器，以支持乌克兰熬过当前俄罗斯非法攻击的关键阶段。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-20.jpg)
 
-一揽子计划中还包括进一步的经济支持，为世界银行向乌克兰提供的额外5亿美元贷款提供担保，这使英国的贷款担保总额达到10亿美元。
+台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。
 
-英国首相在一份发表的声明中说，英国正在“加强 ”自己的军事和经济支持，同时还召集 “一个全球联盟来结束这场悲剧，并确保乌克兰作为一个自由和主权国家生存和发展。
+参考链接：
 
-约翰逊在Twitter上表示，这证明了英国对乌克兰抗击俄罗斯野蛮入侵的承诺。
+- [有家人確診！蔡英文隔離至4月14日　公開行程全面暫停](https://www.setn.com/News.aspx?NewsID=1097357)
 
-在约翰逊访问的前一天，欧盟宣布在撤离乌克兰首都后将在基辅恢复其外交存在，并为该国成为该集团成员开启了一个快速通道。
 
-新闻来源：[https://www.upi.com/Top\_News/World-News/2022/04/09/ukraine-EU-diplomats-Kiev-fast-track-membership/6661649522831/](https://www.upi.com/Top_News/World-News/2022/04/09/ukraine-EU-diplomats-Kiev-fast-track-membership/6661649522831/)
+![此图像的alt属性为空；文件名为4-1-524x720.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
+总编/编辑：飞虹
+审核：木木
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

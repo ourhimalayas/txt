@@ -2,28 +2,32 @@
 ---
 
 
-## 台湾当局调查中共芯片人才掠夺公司
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2320206/)
+## 俄罗斯上月通胀飙升 有主权债务违约危险
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2320207/)
 
-作者：银河系农场 – 骄子
+作者：华盛顿DC农场 – 自由信仰；纽约香草山 – 柳是多水土透
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-国外媒体4月8日报道，近日台湾当局一名调查官员表示，台湾已经对大约100家涉嫌非法挖走芯片工程师和其他技术人才的中共公司展开调查。
+据外媒4月8日综合报道，俄罗斯央行表示该国通胀率继续上升，4月初年通胀率接近17%，俄罗斯履行偿债义务的能力日益成为关注的焦点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-22.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-29.jpg)
 
-台湾法律禁止中共在台湾芯片行业的某些方面进行投资，但中共通过在开曼群岛等避税地注册公司等手段来规避资金来源调查，进行技术或者人才偷盗。台湾台积电的芯片广泛供应全球，在如今全球芯片短缺和被美国政府制裁的背景下，中共更加快了非法掠夺的计划。
+自从俄罗斯入侵乌克兰以来，美国和欧洲牵头对俄实施制裁。许多西方公司和银行也已经撤出俄罗斯，俄主要金融机构也受到制裁影响。俄中央银行6400亿美元的黄金和外汇储备有将近一半被冻结，其使用全球支付系统的能力受到限制。俄罗斯的重要收入来源——能源出口，也受到巨大影响。英国政府估计，俄罗斯正走向“自苏联解体以来最严重的衰退”。另外在制裁后，美财政部对俄政府的还款实行逐案审批。
 
-为抵制中共的作为，台湾于2020年12月在司法部调查局内部设立了一个工作组专门应对此问题。前述调查官员称，自去年年初以来，已经有27家中共公司被突击检查，或者其所有者被传唤质询，其中有7家公司已被起诉。2022年3月，工作组开展了迄今为止最大的行动，突击检查了8家公司。据悉其中一家自称是台湾的数据分析公司，其总公司是位于中共上海的一家芯片公司，该公司一直偷盗台湾芯片设计蓝图发送给中共。其他涉及到的公司还有北京IC设计公司、通富微电等。
+在美国财政部阻止了俄政府使用存放于美系银行的储备来偿债之后，俄声称拟用卢布来支付主权债中的美元款项。但美元计价债券若以其它货币来偿付将造成实质违约。如果发生违约，那么在债权人得到全额偿还以及解决违约相关的法律纠纷之前，俄将无法重新进入该市场。即使制裁在未来某个时候被取消，俄在金融市场的声誉仍将受到长期和持续的损害。这将压低俄的信用评级，推高俄政府和其企业的融资成本。即使战争结束、制裁解除，外国公司和投资者恐怕也不愿意重新参与俄罗斯的投资与经济。
 
 参考链接：
 
-- [‘Tip of the iceberg’: Taiwan’s spy catchers hunt Chinese poachers of chip talent](https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/)
+- [Russia Cuts Interest Rates to 17 Percent as Ruble Recovers](https://www.nytimes.com/2022/04/08/business/russia-interest-rates-ruble.html)
+- [U.S. stops Russian bond payments, raising risk of default](https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/)
+- [Analysis: Russia debt investors in limbo as default risk increases](https://www.reuters.com/business/russia-debt-investors-limbo-default-risk-increases-2022-04-07/)
+- [Russia Coal and Oil Paid for in Yuan Starts Heading to China](https://www.bloomberg.com/news/articles/2022-04-07/russian-coal-and-oil-paid-for-in-yuan-to-start-flowing-to-china)
 
 
 ![此图像的alt属性为空；文件名为4-1-524x720.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-总编/编辑：飞虹
-审核：Ivy001
+总编：Delilah小胖
+编辑：飞虹
+审核：木木
 校正/发稿：海阔天空1
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
