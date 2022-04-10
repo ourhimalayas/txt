@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 12:12 PM (UTC)`
+
+2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣
+![img](https://media.gettr.com/group6/origin/2022/04/10/12/42bc160f-a053-7b8b-70e2-b9c524550a0f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/10/2022 6:10 AM (UTC)`
 
 【Ukraine Rescue】04/08/2022 Nicole introduces Mr. Miles Guo to an NGO volunteer from Israel that He’s the leader of Whistleblowers’ Movement and is followed by hundreds of millions of Chinese people who aim to take down the CCP. The volunteer added:”Including people around the world, we are all for taking down the CCP!”<br/><br/>【乌克兰救援】04/08/2022 妮可向一位来自以色列非政府组织的志愿者介绍说，爆料革命的创始人是郭文贵先生，数以亿计的中国人都在跟随他推翻共产党，志愿者补充道：还有来自世界各地的人们，我们都赞同干掉中国共产党。
@@ -149,13 +156,6 @@
 
 【Ukraine Rescue】 04/07/2022 Nicole interviews two Chinese boys who came to Poland on spring holidays with their father to participate in the relief effort: their father does not speak English, but with the help of his two sons' translation, he drives the refugees to places. Nicole is touched and introduces our NFSC to them and tells them that we are also a group of compassionate Chinese people who love to help others.<br/><br/>【乌克兰救援】 04/07/2022 妮可采访了两位利用春假随父亲前来波兰参与救援的华人少年：他们的父亲虽不会英语，但是在两个儿子的翻译协助下开车运输难民。妮可在感动之余也向他们介绍了我们新中共联邦，并告诉他们，我们同样是一群热爱公益，喜欢去帮助别人，有爱心的中国人。
 ![img](https://media.gettr.com/group9/getter/2022/04/09/15/2af86a38-9f28-e5ad-eb75-4a7027e9c91c/out.jpg)
-
----
-
-`@miles 4/9/2022 3:22 PM (UTC)`
-
-【Ukraine Rescue】04/07/2022 One French volunteer in a talk with Nicole expressed how much he likes the NFSC hat because it shows the will of the Chinese people to overthrow the CCP. He would like to get one of our hats and wear it to show his support for us.<br/><br/>【乌克兰救援】04/07/2022 一位法国志愿者在与妮可交谈时表示，非常喜欢新中国联邦的帽子，因为它表达了中国人民推翻中共的意愿。他表示，希望能获得一顶我们的帽子，并戴着它以示对我们的支持。
-![img](https://media.gettr.com/group33/getter/2022/04/09/15/a6dfc11d-876a-2fd1-86f6-1d63ea3bf7b7/out.jpg)
 
 ---
 

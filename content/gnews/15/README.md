@@ -2,30 +2,43 @@
 ---
 
 
-## 乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2321537/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321912/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
-上一篇：[乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（上）](https://gnews.org/zh-hans/2321423/)
+整理：枳实
+美工：精灵蓝
 
-据多家乌克兰媒体报道，其中，在基乌以西约50公里的马卡里乌发现了132名被枪杀的平民遗体。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/K10013575411_2204101417_0410141818_01_04-1.jpg)图片来源：共同社
-此外，在基乌西北的博罗扬卡，4月7日一名到此地搬运食物等物品的男性志愿者在接受NHK采访时证实：“瓦砾的清理刚刚开始，就已发现了许多人的遗体。 我认为有几十个人仍在废墟之下”。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-平民遇害人数仍在续增的情况下，英国首相约翰逊成为俄罗斯军事入侵后七国集团（G7）中首位到访基乌的国家首脑，并与泽连斯基总统面谈。
 
-会晤后，约翰逊首相通过视频声明再次谴责俄罗斯的同时，他强烈呼吁各国：“以制裁的形式对俄罗斯施压是必要的。而现如今，（是时候）该全面禁运俄罗斯能源资源了”。
+雅典娜疫情更新（2022年 4月9日）
 
-泽连斯基总统：“不希望放过任何能通过外交解决问题的机会”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/02.jpg)图片来源：NHK新闻
-乌克兰总统泽连斯基4月9日在首都基乌的总统府接受美联社的采访时回应“谁都不愿意与折磨我们人民的那些人谈判”，但也强调“我不想放过任何通过外交手段解决问题的机会”，他表态，即便有平民不断被卷入俄军的攻击，还是将继续寻求通过谈判实现停战。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1114.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1115.png)
+[2022年4月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月9日改进.pdf)
 
-参考链接：[ウクライナ 駅にミサイル52人死亡 市民の犠牲者増え続ける | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220410/k10013575411000.html)
+数据来源：
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

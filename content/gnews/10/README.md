@@ -2,43 +2,27 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321912/)
+## 叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322037/)
 
-整理：枳实
-美工：精灵蓝
+撰稿: 纽约香草山农场 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+4月7日的飞飞《大实话》盖特直播中，叶钊颖、郝海东夫妇揭露中共体制下的恶——没有信仰，没有真爱，没有人性，没有底线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1123.png)
+从小在体制下长大的叶钊颖、郝海东夫妇，亲眼看见、新耳听见过中共官场的是是非非，亲身体会过邪恶中共体制带来的伤害，也深知在体制下人们的无奈，所以痛恨这个邪恶体制。在这个邪恶的体制下，那些连鸡都不敢杀的中共高官，为了保护自己的权力，家人不敢爱，亲情不敢要，贞节要出卖，婚姻也交易，不择手段，向党内敌人痛下杀手。从毛泽东到现在的习近平，中共的官场互害杀死了许多官员，将许多中共党员送进了监狱，冤枉了许多老百姓，害死了许多无辜的人！
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+在中共体制下，人们没有道德底线、没有信仰、没有敬畏之心，就不可能有爱心。郝海东先生认为，人性的丧失、人伦的丧失、爱的丧失，是中共最大的可悲。我们新中国联邦人要重拾先进文明，每个人都应追求有温度的爱。
 
+新闻链接：[叶钊颖-郝海东-飞飞 《大实话·第十七场](https://gettr.com/post/p141tbb1e93)
 
-雅典娜疫情更新（2022年 4月9日）
+编辑：Delilah小胖
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1114.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1115.png)
-[2022年4月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月9日改进.pdf)
+总编：飞虹
 
-数据来源：
+审核：木木
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

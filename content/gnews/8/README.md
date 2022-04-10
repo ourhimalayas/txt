@@ -2,20 +2,24 @@
 ---
 
 
-## 新中国联邦人不是独自在战斗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322000/)
+## 美国进一步限制向俄罗斯和白俄罗斯出口肥料等物品
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322063/)
 
-撰稿: 纽约香草山-飞虹
+撰稿：纽约香草山教育部 Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月5日，在新中国联邦波兰救援前线，一位名叫米里亚姆的丹麦基督徒志愿者，在我们的大帐篷里表达了对新中国联邦战友们的由衷赞美。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1122.png)
-在了解了新中国联邦、爆料革命正在进行的灭共行动、想要完成的使命后，她发自内心地说：“你们是这场运动中真正的无名英雄，你们身处最黑暗的地方，但是你们还在继续战斗。 你们的美丽激励着我们这些人。”她同时表示，“我想要你们知道你们不是独自在战斗。”她脸上坚定的表情也给了战友们巨大的鼓舞。
+4月8日外媒报道，继6日美国针对俄罗斯银行和实体实施了新一轮制裁后，4月8日，美国商务部表示，将开始要求美国供应商向俄罗斯人和白俄罗斯人出口一些大宗商品时申请特殊许可证，并称会拒绝签发这些许可证。这里的大宗商品主要包括肥料、管道阀门、滚珠轴承和其他零件、材料和化学品等。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1124.png)图片来自：https://www.lawnbuddies.com
+商务部同时表示，使用美国在国外制造的物品也需要获得美国许可证，而政府部门也计划拒签此类许可。
 
-参考链接： [【乌克兰救援】 04/07/2022](https://gettr.com/post/p14bpau6d3e)
+新美国安全中心高级研究员艾米丽·基尔克里斯指出，商务部正在进一步限制俄罗斯进口其管制出口的所有物品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-62.jpg)
+参考链接：
 
-总编: 飞虹
+[U.S. curbs Russian access to foreign fertilizers and valves](https://www.reuters.com/business/biden-administration-curbs-russian-access-foreign-fertilizers-valves-2022-04-08/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-60.jpg)
+
+编辑/总编/审核：飞虹
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)

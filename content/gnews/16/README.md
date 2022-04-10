@@ -2,28 +2,52 @@
 ---
 
 
-## 【G时新闻】美国正视“封控灾难” ,正式批准驻华使团自愿撤离
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2321515/)
+## COVID-19疫苗副作用集萃（2022.4.10）–打新冠疫苗后听力有问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321896/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文雅】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-美国驻华大使馆和领事馆4月9日发布声明称，鉴于新冠病例激增以及中共应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。此外，伯恩斯大使及其他官员已向中共表达对“疫情、中共管控措施”的关切。 声明提到美国务院最新的旅游建议，称美国公民前往中共旅游，应考虑到“父母与子女被分开的风险”建议美国公民不要前往吉林、上海、香港等地。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-盖特链接：[https://www.gettr.com/post/p14fn1p585a](https://www.gettr.com/post/p14fn1p585a)
+整理/编辑：gardeniahu
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组(614)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+原文博主：rippleyao
+
+帖子原文：
+
+**疫情|新冠疫苗副作用   新冠疫苗导致听力问题**
+
+刷到新闻，辉瑞疫苗可能导致听力问题，说后续需要更多的研究支持。
+
+反正两针后的我很不舒服，现在医生都没有给我看明白。
+
+一定要注意安全啊。防护比疫苗更重要。
+
+离职的地方这周又关门了，太多新冠感染了。
+
+不戴口罩，不勤消毒洗手，老觉得不心安啊。
+
+#新西兰 #疫苗 #新冠疫苗 #辉瑞疫苗副作用 #奥密克戎
+
+发布于04.01
+
+精选评论
+
+积极面对不积极     回复:何止啊，我反正第二针都没打，第一针副反应双腿发麻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1110.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1111.png)图片来源：小红书
+参考链接：[新冠疫苗后听力有问题](https://www.xiaohongshu.com/discovery/item/62463ba00000000001025484?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649520801)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
