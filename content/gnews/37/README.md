@@ -2,43 +2,35 @@
 ---
 
 
-## 乌克兰官员说俄罗斯军队摧毁了几十年的切尔诺贝利数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320350/)
+## 普华永道：超过80%的央行曾考虑推出央行数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320343/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-翻译：li yan li
-编辑：李易通
+翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-18.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/CBDC-fed-Karen.jpg)图片来源：www.pymnts.com
 
 
-乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据。俄罗斯军队已撤出切尔诺贝利，但人们仍然担心他们受到“高剂量辐射”的影响。
+根据路透社4月9日报道，普华永道（PwC）的一份新报告显示，全球80%的央行正在考虑推出或已经推出央行数字货币（CBDC）。
 
-乌克兰国家禁区管理机构下属的公共委员会主席奥列克桑德·西罗塔周四在Facebook的一篇翻译文章中说：“这就是我们的切尔诺贝利文件和档案的所有印迹。我们几十年来一直在收集的东西就这样被扔进了垃圾桶。”
+这家四大会计师事务所在其第二份年度的普华永道全球CBDC指数报告中透露，争夺CBDC主导地位的竞争正在升温，即使更多的主要经济体扩大其数字主权货币的研究和开发，较小的经济体也取得了巨大的飞跃。
 
-该国家机构的代表发布了据称装满文件的垃圾桶的照片，以及显示监测该地区辐射水平的服务器丢失的图像。
+该报告确定了两类CBDC–零售和批发。在零售方面，尼日利亚排名第一，得分为95分（满分100分）。这个西非国家去年推出了eNaira数字货币，成为第一个迈出这一步的非洲国家。尽管其数字钱包在推出时出现了最初的故障，但eNaira已经开始运行。然而，采用率一直低于预期，甚至国际货币基金组织（IMF）声称，eNaira有可能被用来洗钱和资助恐怖主义。
 
-俄罗斯军队上周离开了切尔诺贝利，军队将从首都基辅和北部城市切尔尼戈夫周边地区撤出，该地区距离切尔诺贝利约有55英里。
+其次是巴哈马，在2020年10月推出了世界上第一个CBDC。它被称为 “沙币”，现在已经拥有了第一张与其关联的借记卡。
 
-乌克兰周四告诉国际原子能机构，它已经开始“恢复对核电站的监管控制过程”。
+中共国排名第三，牙买加、东加勒比、乌克兰、乌拉圭、泰国、瑞典和韩国分别位于前十名。
 
-国际原子能机构说，它打算在可能的情况下尽快访问1986年核灾难的现场，以评估辐射情况。
+资料来源：[PwC: More than 80% of central banks have considered launching CBDC](https://coingeek.com/pwc-more-than-80-of-central-banks-have-considered-launching-cbdc/)
 
-乌克兰官员几周来一直警告说，没有保护措施的俄罗斯军队驾驶装甲车通过一个被称为“红色森林”的地区，掀起了放射性尘埃云。
+发布： tianzhihuan
 
-据报道，最近的无人机镜头显示，整个禁区内的“污染区”被挖出了壕沟。
-
-核监督机构说，它一直无法独立核实有关俄罗斯军队接受“高剂量辐射”的报告。
-
-参考链接：[乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据](https://www.foxnews.com/world/russian-troops-destroy-chernobyl-data-ukrainian-officials)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
