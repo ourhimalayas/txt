@@ -2,35 +2,34 @@
 ---
 
 
-## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
+## 日本丢弃一大半中共病毒疫苗
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322545/)
 
-撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
-众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/604ebf9be4b0fc419535683a.jpeg)
+当地时间4月7日，据外媒报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
 
-由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
+据悉由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了中共病毒疫苗购买合同。此批疫苗于2021年年初开始交付。日本的接种人数设置在40岁以上，目前已进行了11万次接种。而在海外报道中因注射中共病毒疫苗造成了严重的血栓反应。据日本卫生部门一位官员承认，接种中共病毒疫苗对预防中共病毒毫无用处，并且这些疫苗极度不稳定。目前这批疫苗已经到达了6个月的保质期，未来将会有一半数量的疫苗会被处置不用。
 
-粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
+日本卫生部门目前亿合同保密为由，尚未透露是否为疫苗过期。
 
-美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
+reference：
 
-参考链接：
+[https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com\_apitop](https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com_apitop)
 
-[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
+撰稿、发布：骄子
 
-[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
+* * *
 
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
-
-编辑总编审核：飞虹
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
