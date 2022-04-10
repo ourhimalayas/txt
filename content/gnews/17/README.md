@@ -2,17 +2,15 @@
 ---
 
 
-## 独裁者毁灭世界的心里分析
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322801/)
+## 中共处处埋雷 第三次世界大战一触即发
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322806/)
 
 文贵大直播20220410
 
-撰稿：文复（达芬奇）麦克阿sir
+撰稿：顽童（纽伦堡正义）文仁（77功成）
 
-书法：沙漠之花（香草山）
-
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-9.png)
+美工：新宝（银河系）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片9-scaled.jpg)
 *发布：Theodosia*
 
  

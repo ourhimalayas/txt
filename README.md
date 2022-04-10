@@ -15,20 +15,20 @@
 
 ---
 
-### [中共的疫情暴政](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共疫情暴政：翰城居委不堪压力全体工作人员辞职](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【 蓝枫法律 】 家族基金的类型](/content/gnews/3/README.md)
+### [【 蓝枫法律 】 遗产与父母之间相关问题](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|美国参议院全票通过剥夺俄罗斯正常贸易地位](/content/gnews/4/README.md)
+### [有声|联合国人道主义官员对布查事件表态](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [视频|俄罗斯上月通胀飙升 有主权债务违约危险](/content/gnews/5/README.md)
- ` MOSVIDEO`
+### [中共的疫情暴政](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共疫情暴政：翰城居委不堪压力全体工作人员辞职](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【 蓝枫法律 】 家族基金的类型](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
 
 ### [视频|俄乌战争加剧全球粮食危机 食品价格再创历史新高](/content/gnews/6/README.md)
  ` MOSVIDEO`
@@ -48,68 +48,68 @@
 ### [视频|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [视频|新中国联邦人不是独自在战斗](/content/gnews/12/README.md)
+### [从文贵先生爆料看中共导弹部署对全球的军事威胁和经济威胁](/content/gnews/12/README.md)
+ ` 秘密翻译组-原创组`
+
+### [视频|新中国联邦人不是独自在战斗](/content/gnews/13/README.md)
  ` MOSVIDEO`
 
-### [一带一路把斯里兰卡搞垮了](/content/gnews/13/README.md)
+### [一带一路把斯里兰卡搞垮了](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [要起诉普京的战争罪，要保护好数字证据（二）](/content/gnews/14/README.md)
+### [要起诉普京的战争罪，要保护好数字证据（二）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国及世界疫情简报（04-10-2022）](/content/gnews/15/README.md)
+### [美国及世界疫情简报（04-10-2022）](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [中共处处埋雷 第三次世界大战一触即发](/content/gnews/16/README.md)
+### [中共处处埋雷 第三次世界大战一触即发](/content/gnews/17/README.md)
  ` MilesGuoLivePPT`
 
-### [独裁者毁灭世界的心里分析](/content/gnews/17/README.md)
+### [独裁者毁灭世界的心里分析](/content/gnews/18/README.md)
  ` MilesGuoLivePPT`
 
-### [要起诉普京的战争罪，要保护好数字证据（一）](/content/gnews/18/README.md)
+### [要起诉普京的战争罪，要保护好数字证据（一）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲多地CCP病毒数量略有下降](/content/gnews/19/README.md)
+### [澳洲多地CCP病毒数量略有下降](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [不要相信中共国对普京的乌克兰战争所说的任何内容](/content/gnews/20/README.md)
+### [不要相信中共国对普京的乌克兰战争所说的任何内容](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [闲聊澳洲：4月9日郭先生短视频概要](/content/gnews/21/README.md)
+### [闲聊澳洲：4月9日郭先生短视频概要](/content/gnews/22/README.md)
  ` 走进澳洲`
 
-### [台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划](/content/gnews/22/README.md)
+### [台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划](/content/gnews/23/README.md)
  ` 關注組`
 
-### [日本丢弃一大半中共病毒疫苗](/content/gnews/23/README.md)
+### [日本丢弃一大半中共病毒疫苗](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [日本和菲律宾签署国防协议以应对中共台海局势](/content/gnews/24/README.md)
+### [日本和菲律宾签署国防协议以应对中共台海局势](/content/gnews/25/README.md)
  ` 银河歌舞厅`
 
-### [俄乌战争加剧全球粮食危机 食品价格再创历史新高](/content/gnews/25/README.md)
+### [俄乌战争加剧全球粮食危机 食品价格再创历史新高](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [斯洛伐克赠乌防空系统拜登表示感谢](/content/gnews/26/README.md)
- ` NFSC News`
-
-### [欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助](/content/gnews/27/README.md)
+### [斯洛伐克赠乌防空系统拜登表示感谢](/content/gnews/27/README.md)
  ` NFSC News`
 
 ### [如何让普京下台结束战争？](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [美国进一步限制向俄罗斯和白俄罗斯出口肥料等物品](/content/gnews/29/README.md)
- ` NFSC News`
-
-### [乌克兰救援前线报道4.10.2022：新中国联邦人收获了难能可贵的信任和友情](/content/gnews/30/README.md)
+### [乌克兰救援前线报道4.10.2022：新中国联邦人收获了难能可贵的信任和友情](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [因中国经商环境恶化等影响，未来韩国芯片业务或逐步转向美国](/content/gnews/31/README.md)
+### [因中国经商环境恶化等影响，未来韩国芯片业务或逐步转向美国](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大午集团遭中共“侵吞”后，其旗下资产将被公开拍卖](/content/gnews/32/README.md)
+### [大午集团遭中共“侵吞”后，其旗下资产将被公开拍卖](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
+
+### [波兰救援前线战友接受《每日来电》采访](/content/gnews/32/README.md)
+ ` NFSC News`
 
 ### [乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/33/README.md)
  ` NFSC News`

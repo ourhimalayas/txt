@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 2:17 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月9日第36天当日救援统计：<br/>Medyka救援站接待：约340人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10435人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 36 - Date: April 9, 2022 :<br/>Medyka Rescue Station Reception: about 340 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10435 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group5/getter/2022/04/10/14/30249a65-509a-9309-2990-ba44a49cf5e7/5849f6219fa0ffd6d9fa8be814439da2.jpg)
+
+---
+
 `@miles 4/10/2022 1:50 PM (UTC)`
 
 04/010/2022 on the 7th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on 4 Countries Rock Song Charts<br/>#3🥉 on 4 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#3🥉on Mongolia 🇲🇳 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>https://gnews.org/2322043/<br/><br/>Global iTunes Ranking Record of Week 1:<br/><br/>https://gnews.org/2322171/<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Armenia, Fiji, Laos, Turkey 🙏🙏🙏🙏🙏🙏🙏
@@ -145,15 +152,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group33/origin/2022/04/09/17/75301d07-57d3-96b8-756f-74082504e92c/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_movie 4/9/2022 2:57 PM (UTC)`
-
-🌶️The Spiced有‘料’🌶️<br/><br/>中共在校园发起支持俄罗斯侵略乌克兰的舆论战<br/>The CCP launched a public opinion war on campus to support Russia's aggression against Ukraine<br/><br/>中共是人类一切灾难的根源，是俄罗斯侵略乌克兰的始作俑者与背后金主。中共在校园刻意误导学生对乌克兰危机的认识与判断是令人发指的精神强奸，只有灭共才能拯救同胞！<br/>[GETTR] The CCP is the root cause of all human disasters, and is the initiator and financial master behind Russia's aggression against Ukraine. The CCP is deliberately misleading students on campus about the crisis in Ukraine, which is a heinous form of spiritual rape. Only the elimination of the CCP can save our compatriots!<br/><br/>#学校 #School #乌克兰局势  #ThesituationinUkraine #口径 #Caliber #舆论 #Opinion #乌克兰 #Ukraine #俄罗斯  #Russia #学院  #College
-![img](https://media.gettr.com/group37/getter/2022/04/09/14/03736461-4e98-dde2-fd36-2522d3df1577/out.jpg)
 
 ---
 

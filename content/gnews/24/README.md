@@ -2,20 +2,20 @@
 ---
 
 
-## 日本和菲律宾签署国防协议以应对中共台海局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322488/)
+## 日本丢弃一大半中共病毒疫苗
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322545/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47.png)
-当地时间4月9日周六，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，从而促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/604ebf9be4b0fc419535683a.jpeg)
+当地时间4月7日，据外媒报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
 
-自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为同位于该海域的国家，日本和菲律宾希望共同解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约目前已经在考虑为双方的军队提供供应共享协议，该协议包括收购和交叉服务。据悉日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。
+据悉由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了中共病毒疫苗购买合同。此批疫苗于2021年年初开始交付。日本的接种人数设置在40岁以上，目前已进行了11万次接种。而在海外报道中因注射中共病毒疫苗造成了严重的血栓反应。据日本卫生部门一位官员承认，接种中共病毒疫苗对预防中共病毒毫无用处，并且这些疫苗极度不稳定。目前这批疫苗已经到达了6个月的保质期，未来将会有一半数量的疫苗会被处置不用。
 
-菲律宾是继印度尼西亚之后与日本举行二加二会议的第二个东南亚国家。
+日本卫生部门目前亿合同保密为由，尚未透露是否为疫苗过期。
 
 reference：
 
-[https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
+[https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com\_apitop](https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com_apitop)
 
 撰稿、发布：骄子
 
