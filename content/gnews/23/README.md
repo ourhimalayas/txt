@@ -2,24 +2,75 @@
 ---
 
 
-## 英国首相盛赞乌克兰军队：“这是本世纪最伟大的军事壮举” 俄罗斯军队已从基乌周围地区撤出
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2323205/)
+## 有声|粗暴的笑话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323318/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
-【读卖新闻】英国首相约翰逊于4月9日突然到访乌克兰首都基乌，与乌克兰总统泽连斯基举行了会谈，这是G7成员国中的先例。对于首都周围的俄军地面部队撤退，他盛赞乌克兰军队的持续顽强抵抗为“本世纪最伟大的军事壮举”，并承诺将继续在所有领域提供最大限度的支持。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我在喊
+你也在喊
+我喊我饿了需要吃的
+你喊控制灵魂对自由的渴望
+![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
+我想
+我们是不是
+来自于不同星球
+不懂彼此语言
+交臂而过
+也只是交臂而过
+你假装听不懂我
+我对你无言以对
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/m_20220410-567-OYT1T50090.jpg)图片来源网络
+你说
+控制灵魂对自由的渴望
+你告诉我
+告诉我们
+谁在控制我们的灵魂
+我们的自由
 
-约翰逊还传达了提供一百二十辆装甲车和最先进的反舰导弹的援助方针。据信，两人还谈及乌克兰和俄罗斯之间的停火协议，就俄罗斯要求乌克兰签署“中立化”，作为交换乌方要求其保障本国安全的新协议框架交换了意见。 关于这个框架，乌克兰方面要求它成为一个有美国、英国等国加入的国际条约，俄罗斯如何回应备受关注。
+我们早已经忘了
+什么是灵魂
+什么是自由
+生活处在最低要求
+可是
+如今
+也
+已经被剥夺
 
-参考链接：[英首相、ウクライナ軍たたえ「今世紀最大の軍事的偉業」…ロシア軍はキーウ周辺から撤退(読売新聞) – goo ニュース](https://news.goo.ne.jp/article/yomiuri/world/20220410-567-OYT1T50090.html)
+喊吧，喊吧
+无人机在空中飞行
+那是用我们血汗
+购买的先进水平
+循环着你的声音
+控制着人们灵魂
+美好一切
+都已成了
+昨日风景
+只留下
+万人空巷
+家家牢笼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
 
-* * *
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+文字版原文：[粗暴的笑话](https://gnews.org/zh-hans/2318079/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

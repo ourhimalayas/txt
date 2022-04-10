@@ -2,12 +2,18 @@
 ---
 
 
-## 约翰逊在突访基辅时承诺提供支持以使乌克兰不再被入侵
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2322792/)
+## 新中国呼之欲出 新世界曙光在前
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322802/)
 
-04/09/2022 鲍里斯·约翰逊在对基辅的突然访问中赞扬了乌克兰总统泽伦斯基的领导能力。在新闻发布会上，约翰逊表示，英国准备继续每周加强对俄罗斯的制裁，并表示 “我们将提供支持，使乌克兰永远不会再被入侵”
+文贵大直播20220410
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：三票先生（DC）
+
+美工：长颈鹿（雅典娜）
+
+书法：沙漠之花（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-13.png)
+*发布：Theodosia*
 
  
 
