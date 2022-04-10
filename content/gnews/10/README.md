@@ -2,74 +2,44 @@
 ---
 
 
-## 有声|粗暴的笑话
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323318/)
+## 灾难来临时的责任分担效应
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2323439/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-我在喊
-你也在喊
-我喊我饿了需要吃的
-你喊控制灵魂对自由的渴望
-![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
-我想
-我们是不是
-来自于不同星球
-不懂彼此语言
-交臂而过
-也只是交臂而过
-你假装听不懂我
-我对你无言以对
+作者：香草山商业部–秋末的落叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
+上海封城快一个月了，人道灾难快一个月了，共匪杀人也快一个月了。
 
-你说
-控制灵魂对自由的渴望
-你告诉我
-告诉我们
-谁在控制我们的灵魂
-我们的自由
+一个月的腥风血雨染红了上海滩，四月春意盎然时的大白幽灵，提着封条饿死着人，却没有多少反抗的声音，这是中共一直用的责任分担效应在作怪。
 
-我们早已经忘了
-什么是灵魂
-什么是自由
-生活处在最低要求
-可是
-如今
-也
-已经被剥夺
+我们有上海的战友最近封城期间夜晚释放了很多爆料革命暗号，可喜可贺的是，很多人都打开了灯，想必他们也懂那是什么意思。可是可悲的是，他们也只是开了开灯示意了一下。
 
-喊吧，喊吧
-无人机在空中飞行
-那是用我们血汗
-购买的先进水平
-循环着你的声音
-控制着人们灵魂
-美好一切
-都已成了
-昨日风景
-只留下
-万人空巷
-家家牢笼
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
+这就是责任分担效应。
 
+20世纪，在美国一个街区，一个刚下班的女人被一个歹徒袭击，结果她拼命的喊救命，而听到的人也只是打开灯看了看，歹徒受惊后选择逃跑，随后她没走两步，又遇见那个歹徒折返，而这次她依然使劲喊救命，而居民依然只是开灯看了看，歹徒受惊依然逃跑，最后在她上楼的时候，歹徒出现在了楼道里，而这次她也没有那么幸运了，只能倒在了血泊中。
 
-文字版原文：[粗暴的笑话](https://gnews.org/zh-hans/2318079/)
+是社会太冷漠吗？当警察进行调查的时候，大家发现这些知道求救者信息时，只是觉得应该有人会去做，所以无动于衷。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+而我们战友遇到的也是同样的情况，身边知道爆料革命的人其实有很多，但很多人也只是在观望，因为他们都在等着别人先动手。
+
+那么，在上海这场事件之中，也是有反抗的声音，比如律师带头拿下了居委会，自给自足。做法律上过庭的人，他们太懂责任分担效应了，所以他们才敢挑头。
+
+破解责任分担效应的关键在于去做，但是在中共教育之中，多数的教育是理论教育，写出理论得高分，提出建议交论文。所以，越来越多的人都在中共教育下，慢慢的习惯了观望，也就被责任分担效应所驾驭。
+
+教育责任之重，并不只是让中国人思想上得到自由，更重要的是让大灾来临的时候，知道自己该做什么。
+
+编辑/审核/发稿：Bronx Bombers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

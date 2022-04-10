@@ -2,35 +2,55 @@
 ---
 
 
-## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
+## 不要相信中共国对普京的乌克兰战争所说的任何内容
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2322662/)
 
-撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
-众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
+编译：七叶之芒
 
-由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
-
-粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
-
-美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
-
-参考链接：
-
-[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
-
-[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-4.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-190.jpg)图片来源：Sputnik/Ramil Sitdikov/Kremlin via REUTERS
 
-编辑总编审核：飞虹
+北京在弗拉基米尔-普京入侵乌克兰的问题上装作中立，但让人吃惊的是中共如何让完全由国家控制的媒体呼应俄罗斯的宣传。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+命令明明白白地发出去了–正如《新京报》旗下的社交媒体账户地平线新闻上一条迅速删除的信息意外地披露。“不得发布不利于俄罗斯或具有亲西方内容的帖子”。
+
+例如，上周，当世界其他地方看到被围困的乌克兰城市和俄罗斯军队留下的屠杀的真实图像–布卡的45英尺长的壕沟里堆满了平民的尸体，以及该镇的所有尸体–中共国的《人民日报》在社交媒体平台微博上分享了一段视频，“显示”俄罗斯在哈尔科夫外向乌克兰人提供人道主义援助。
+
+有300多万人观看了这段视频。
+
+从一开始，中共国网络就放大了俄罗斯的虚假信息，引用了俄罗斯官员的虚假说法，即乌克兰总统沃洛季米尔-泽伦斯基已经逃离首都，乌克兰士兵在入侵的第一天就投降了。
+
+而中共国的凤凰卫视在与俄罗斯军队一起在现已被摧毁的马里乌波尔城外发布报告，称平民应该欢迎俄罗斯军队。
+
+北京完全拒绝谴责这次入侵，而是断言美国和北约对普京的战争负有责任。习近平甚至告诉美国总统拜登，美国和北约是问题的“关键”。
+
+与此同时，乌克兰的安全部门SBU表示，中共国应该为入侵前对乌克兰军事和核设施的重大网络攻击负责，对属于基辅国防部和其他机构的600多个网站进行了数千次黑客尝试。
+
+也许这是对俄罗斯的恩惠，因为它将入侵推迟到北京奥运会结束后，据说习近平要求这样做。
+
+毕竟，普京和习近平在2月4日，即奥运会开幕当天宣布了他们邪恶的最好的友谊，在5000字的联合声明中宣布：“两国友谊没有限制，没有‘禁止’的合作领域”。
+
+至少现在，这次入侵已经让西方人清醒地认识到普京的真实本性。但世界仍然需要承认，习近平也是文明的敌人。
+
+新闻来源：[dont believe any of what china says about putins ukraine war](https://nypost.com/2022/04/09/dont-believe-any-of-what-china-says-about-putins-ukraine-war/)
+
+* * *
+
+审核：Aries的星
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

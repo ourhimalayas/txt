@@ -2,33 +2,35 @@
 ---
 
 
-## 斯洛伐克赠乌防空系统拜登表示感谢
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322208/)
+## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
 
-撰稿：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
-就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
+**港台前线 zhong｜2022-4-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
 
-据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
+霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
 
-迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
+俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
 
-参考链接：
+此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
 
-[拜登感謝斯洛伐克贈烏防空系統 控俄攻擊平民暴行](https://www.cna.com.tw/news/aopl/202204090006.aspx?)
+目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
 
-[斯洛伐克贈S-300防空系統 總理宣布已送抵烏克蘭](https://www.cna.com.tw/news/aopl/202204080398.aspx)
 
-[快新聞／自1月止美已金援烏克蘭累計12億美元！　拜登：再撥2億用於軍事防備](https://www.ftvnews.com.tw/news/detail/2022313W0006)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-65.jpg)
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
 
-编辑/总编/审核: 飞虹
 
-校对：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+
+来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
