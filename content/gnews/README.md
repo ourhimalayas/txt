@@ -15,112 +15,112 @@
 
 ---
 
-### [【G时新闻】中共国失败抗疫政策侵犯基本人权](/content/gnews/1/README.md)
- ` G-时新闻`
-
-### [樱花时政┃中共国船队在西非的非法活动被揭露](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [防疫封城背后的真相](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【G时新闻】中共核武库的惊人扩张令世界安全面临更大风险](/content/gnews/4/README.md)
- ` G-时新闻`
-
-### [有声｜普京的财政或仍能承受欧洲能源制裁](/content/gnews/5/README.md)
+### [有声｜白宫：美政府正密切关注上海封城措施](/content/gnews/1/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共“抢钱、侵占财产” 北京新发地将接手大午集团](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声｜莫德纳回收欧洲逾76万剂疫苗](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [04/09每日播报｜社媒消息: 杰森米勒 PLANMEDIC](/content/gnews/8/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [20220408郭文贵大直播 ：科技的进步必须与内心的信仰相匹配](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声｜刘特佐参与的一马基金案由高盛前雇员背锅](/content/gnews/10/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [20220408郭文贵大直播 ：共产主义就是一定要把老百姓按在脚下](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [加拿大2022年联邦预算新增支出560亿美元](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [日本设想针对俄罗斯形成包围网并不容易](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵先生盖特精要- 2022/04/09](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [卑诗省仍在解雇未接种中共病毒疫苗员工](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [疫情｜上海日增26855宗本土个案 副市长哽咽道歉 市民负评如潮瘫痪评论区](/content/gnews/16/README.md)
- ` 關注組`
-
-### [2022/04/08 英喜时事速递](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [因中共清零政策：美国让上海领馆部分人员撤离](/content/gnews/18/README.md)
- ` 日本东京方舟农场`
-
-### [零部件短缺：俄罗斯被迫停止生产和维修军舰](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [埃隆•马斯克将在Twitter的董事会上宣布社交媒体新时代的到来](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [风林往事——小小反动派](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国名校：帮助乌克兰留学生](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [灭共秀场：上海封城造人道灾难将加速中共猝亡](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [广州也推全民核酸檢測](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [乌克兰官员说俄罗斯军队摧毁了几十年的切尔诺贝利数据](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰禁止从俄罗斯进口一切货物](/content/gnews/26/README.md)
+### [“原谅我”悲伤不绝的母亲、遗体成排亲属难寻，在众多平民遇害的乌克兰布查](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普华永道：超过80%的央行曾考虑推出央行数字货币](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墨西哥表示不接受俄罗斯入侵乌克兰](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [上海再次开展抗原筛检](/content/gnews/29/README.md)
+### [北京朝阳：疫情升级 香河等地被封](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [我们如何告别往生者](/content/gnews/30/README.md)
+### [中共荒唐“清零”政策招致美驻华使馆发布授权撤离声](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [【G时新闻】中共国失败抗疫政策侵犯基本人权](/content/gnews/5/README.md)
+ ` G-时新闻`
+
+### [樱花时政┃中共国船队在西非的非法活动被揭露](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [防疫封城背后的真相](/content/gnews/7/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【G时新闻】中共核武库的惊人扩张令世界安全面临更大风险](/content/gnews/8/README.md)
+ ` G-时新闻`
+
+### [有声｜普京的财政或仍能承受欧洲能源制裁](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共“抢钱、侵占财产” 北京新发地将接手大午集团](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声｜莫德纳回收欧洲逾76万剂疫苗](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [04/09每日播报｜社媒消息: 杰森米勒 PLANMEDIC](/content/gnews/12/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220408郭文贵大直播 ：科技的进步必须与内心的信仰相匹配](/content/gnews/13/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜刘特佐参与的一马基金案由高盛前雇员背锅](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220408郭文贵大直播 ：共产主义就是一定要把老百姓按在脚下](/content/gnews/15/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [文贵先生盖特精要- 2022/04/09](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [卑诗省仍在解雇未接种中共病毒疫苗员工](/content/gnews/17/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [疫情｜上海日增26855宗本土个案 副市长哽咽道歉 市民负评如潮瘫痪评论区](/content/gnews/18/README.md)
+ ` 關注組`
+
+### [2022/04/08 英喜时事速递](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [因中共清零政策：美国让上海领馆部分人员撤离](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [《避风港Haven》直播内容精选（第三十三集）](/content/gnews/31/README.md)
+### [零部件短缺：俄罗斯被迫停止生产和维修军舰](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [埃隆•马斯克将在Twitter的董事会上宣布社交媒体新时代的到来](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [风林往事——小小反动派](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国名校：帮助乌克兰留学生](/content/gnews/24/README.md)
+ ` 日本东京方舟农场`
+
+### [灭共秀场：上海封城造人道灾难将加速中共猝亡](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [广州也推全民核酸檢測](/content/gnews/26/README.md)
+ ` 日本东京方舟农场`
+
+### [乌克兰官员说俄罗斯军队摧毁了几十年的切尔诺贝利数据](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰禁止从俄罗斯进口一切货物](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [普华永道：超过80%的央行曾考虑推出央行数字货币](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [墨西哥表示不接受俄罗斯入侵乌克兰](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海再次开展抗原筛检](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
+
+### [我们如何告别往生者](/content/gnews/32/README.md)
+ ` 日本东京方舟农场`
+
+### [《避风港Haven》直播内容精选（第三十三集）](/content/gnews/33/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [2022年4月9日郭先生盖特 — 视频2「5分34秒」](/content/gnews/32/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [電動汽車：關於五個大問題的回答](/content/gnews/33/README.md)
+### [電動汽車：關於五個大問題的回答](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [科学家首次在血液中发现微型塑料](/content/gnews/34/README.md)
+### [科学家首次在血液中发现微型塑料](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [上海封锁进一步冲击全球供应链](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [美国农业公司孟山都前中国籍雇员因间谍罪被判入狱](/content/gnews/36/README.md)
+### [上海封锁进一步冲击全球供应链](/content/gnews/36/README.md)
  ` NFSC News`
 
 ### [蔡英文家人染疫，她本人将隔离至4月中旬](/content/gnews/37/README.md)
