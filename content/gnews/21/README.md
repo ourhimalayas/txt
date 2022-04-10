@@ -2,45 +2,31 @@
 ---
 
 
-## 文革2.0：中共国再现剃“阴阳头”
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2321701/)
+## 欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322143/)
 
-撰稿：菜园子112～尕虎
+撰稿：日本方舟农场-Andy5；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+4月8日，正在乌克兰访问的欧盟议会议长冯德莱恩，在首都基辅跟乌克兰总统泽连斯基进行了会晤，并在会后的记者会中，亲手将乌克兰加入欧盟的意向书交给泽连斯基总统，邀请乌克兰在短期内加入欧盟。她同时表示，虽然通常情况下，加入欧盟需要历时数年的审核，但她愿意推动欧盟在几周内，通过乌克兰的加入申请。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1125.png)图片来自：https://media-cldnry.s-nbcnews.com
+据悉，冯德莱恩议长在访问乌克兰期间，专门去了遭受俄罗斯大屠杀的布查镇，面对堆积如山的装尸袋，议长一度哽咽，惊讶地无法发声。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+同一天，欧洲理事会主席查尔斯·米歇尔表示，欧盟最高外交官已提议通过“欧洲和平基金”向乌克兰追加 5 亿欧元军事援助，这是该基金首次在战争期间向第三国运送致命武器。
 
-近日，墙内某地一村民要出村庄，被村口卡点的疫情防疫人员按住，用电动剃刀剃了个“阴阳头”。
+此前，欧盟已同意斥资 10 亿欧元为乌克兰军队提供军事物资，这是欧盟首次打破长期以来禁止向冲突地区国家运送武器的禁忌。不过，该提案通过需要得到27个欧盟国家的批准。
 
-消失多年的“剃阴阳头”再现江湖。至于挂牌揪斗、游街示众，早就重出江湖了！2.0版本的文革，就这样悄悄地来了。一样的戏码，只是换了一个行头、换了一拨人而已！
+参考链接：
 
-墙内民众不觉醒，政治体制不改革，经济改革的成果得而复失，文化大革命死灰复燃。这个族群，两次踏进同一条历史臭水沟！
+[20220409歐盟邀請烏克蘭加入歐盟](https://www.gettr.com/post/p14ca1869eb)
 
-大到一个族群的坠落，小到一个灵魂的死亡，都是从丢失良知开始。土改如此，反右如此，文革如此，疫情亦如此！眼泪在欢笑中期盼着纷落，踩着尸体等待下一个高潮。
+[EU agrees to give €500M in arms, aid to Ukrainian military in ‘watershed’ move](https://www.politico.eu/article/eu-ukraine-russia-funding-weapons-budget-military-aid/)
 
-没有整到自己头上的时候，都感觉又好玩又有趣；整到自己头上了，要么含泪忍着，要么鬼哭狼嚎。反反复复的成为其他人看戏的主角，貌似没有换过剧本。相同的戏码，相同的桥段，来来回回的折腾，反反复复的悲剧重演。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-64-530x720.jpg)
 
-梁启超说：“凡是经过重重内乱的国家，是不可能产生纯洁国民性的。内乱，会在老百姓心目中培养起六种倾向：侥幸、残忍、彼此倾轧、虚伪、狡诈、冷漠、凉薄、苟且。”大师就是大师，目光如炬，洞若观火！你能反驳吗？！
+编辑/总编/审核：飞虹
 
-多去观察一些小人得志的嘴脸，和刚刚拥有一点点权力的底层人的做法，你就能深刻理解下面这句话的意义所在：奴性极重的人，对同类一定极其凶残！
-
-尽力做一个好人吧，因为这世界上已经不缺坏人了……
-
-注：文章部分观点来自墙内网友，中共官方将此次剃头事件定性为“恶搞”
-
-*编辑：**Gradient Boost*
-
-*发稿：**mgjxs*
-
-新闻参考链接：[环球网](https://china.huanqiu.com/article/47UjFviEJqc)（中共国党媒）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

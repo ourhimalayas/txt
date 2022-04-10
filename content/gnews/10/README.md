@@ -2,34 +2,36 @@
 ---
 
 
-## 日本和菲律宾签署国防协议以应对中共台海局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322488/)
+## 樱花时政┃中共提出全国统一市场，退回计划经济供销社时代
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2322715/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47.png)
-当地时间4月9日周六，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，从而促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月10日每日经济新闻报道，《中共中央 国务院关于加快建设全国统一大市场的意见》10日发布。强化市场基础制度规则统一、推进市场设施高标准联通、打造统一的要素和资源市场、推进商品和服务市场高水平统一、推进市场监管公平统一、进一步规范不当市场竞争和市场干预行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-191.jpg)图片来源
+1949年11月，中共成立了中央合作事业管理局，主管全国合作事业。1950年7月，中共合作事业管理局召开了中共全国合作社工作者第一届代表会议，通过了中共人民共和国合作社法，中共全国合作社联合总社章程（草案）成立了中共全国合作社联合总社，统一领导和管理全国的供销、消费、信用、生产、渔业和手工业合作社。
 
-自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为同位于该海域的国家，日本和菲律宾希望共同解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约目前已经在考虑为双方的军队提供供应共享协议，该协议包括收购和交叉服务。据悉日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。
+中共国全国供销合作总社，是中共全国供销合作社的联合组织，由中共国国务院领导。
 
-菲律宾是继印度尼西亚之后与日本举行二加二会议的第二个东南亚国家。
+中共全国供销合作总社的主要负责全国供销合作社的发展战略和发展规划供销合作社，按照政府授权对重要农业生产资料、农副产品经营进行组织、协调、管理分配，各级供销合作社指导全国供销合作社活动，城乡物资交易。
 
-reference：
+根据2018年11月该合作社官网信息显示，中共全国供销合作总社设立理事会、监事会，理事会内设机构14个，监事会内设机构1个，下辖15个直属事业单位、15家主管社团和中国供销集团，中共国供销集团管理有全资和控股子公司16家。
 
-[https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
+供销社是计划经济时代的产物。在中共起初经济相对匮乏的年代，供销社依靠集体统购统筹统销的政策，对老百姓生产生活榨取剩余价值，再分配制度，吃大锅饭、集体被中共奴役。
 
-撰稿、发布：骄子
+供销社作为中共物资分配手段一直被保留了下来。在经济发展和市场化、大部分资源都可以由市场化配置，供销社的职能已经被大大弱化，几近消亡，而在今天继续提出市场和资源被中共统一管理，统一规划，已经证明中共要继续走计划经济时代管理模式老路，国家将被中共独裁者带回到上个世纪有桥不走，摸石头过河吃大锅饭时代。
 
-* * *
+信息来源：[【《中共中央 国务院关于加快建设全国统一大市场的意见》发布】](https://mr.baidu.com/r/EfVJMwka2Y?f=cp&amp;u=16e3080399f120eb)
 
-欢迎订阅我们的GNews账号：
+编辑：东京樱花团/知了知了
+发布：东京樱花团yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
