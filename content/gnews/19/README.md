@@ -2,30 +2,31 @@
 ---
 
 
-## 卑诗省仍在解雇未接种中共病毒疫苗员工
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320756/)
+## 北京朝阳：疫情升级 香河等地被封
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2321032/)
 
-##### 加拿大温哥华扬帆农场 – 采编： 文莱                       编译： 晨熹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/worthypolitics.com_.jpg)图片来源：worthypolitics.com
-据【真北方】4月7日报道， 在世界已经对中共病毒各项限制令不再那么严苛的情况下，卑诗省却仍然执行严厉的疫苗政策，当地政府继续解雇不遵守疫苗接种规定的人。
+**撰稿：日本东京方舟农场  子辰**
 
-该省维多利亚市却宣布将于4月8日取消对市政雇员疫苗接种要求，据悉其他城市也在做同样考虑。同时法院对强制政策和不当解雇的诉讼也仍在继续，有些诉讼甚至在开始前，相关政策就已经失效。
+4月9日，中共当局自诩“清零”防疫政策为全球提供了“有益经验”。话音刚落，继上海全面封城后，北京疫情也开始升温，当局封锁了北京外围的县市道路，导致进京人员和企业受到影响。
 
-去年，该省不仅继续扩大疫苗接种范围，还解雇了因此而被迫休假的公职人员。省卫生部本周透露，它已经解雇了数千名医护人员，尽管该系统面临严重的人员短缺。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-185.jpg)（图片来自大纪元）
 
-新闻来源：[https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
+当地官方通报了北京市的新增确诊病例，涉及朝阳区和顺义区。此外，朝阳区酒仙桥街道二街坊升级为高风险地区，当局要求封控区居民“足不出户”。并强调坚持“动态清零”总方针不动摇。
 
-编辑/发稿 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+4月8日，朝阳区进行全区核酸检测。其中，8个重点街乡已进行了第三轮核酸采样。9日，将对酒仙桥继续开展重点区域核酸采样。根据北京市民发布的视频显示，酒仙桥所有小区、饭馆、商店和医院被停、被封闭，小区门外由门卫或警察防守。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+据悉，目前连接河北省廊坊市、香河县、大厂县的公路已经被官方封锁，这意味着北京东南方向的进京道路被截断。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+目前与北京朝阳区有密切联系的河北省香河县，尽管没有发现一例病例，却已经封城近一个月，当地不少民众不能进京上班，企业无法与北京进行业务往来。当地民众要求复工复产，但没有得到官方回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+面对停摆状态，民众生计艰难，压力倍增，老百姓纷纷表示“怎么活下去？”
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/9/n13707572.htm](https://www.epochtimes.com/gb/22/4/9/n13707572.htm)
+
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

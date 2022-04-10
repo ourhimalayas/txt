@@ -2,35 +2,28 @@
 ---
 
 
-## 普华永道：超过80%的央行曾考虑推出央行数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320343/)
+## 因中共清零政策：美国让上海领馆部分人员撤离
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320604/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰稿：日本东京方舟农场  子辰**
 
-翻译/编辑：小红帽
+4月9日，面对中共执意清零封锁之际，美国让其在上海领馆的部分工作人员撤离，同时警告要去中共国旅游的美国公民慎行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/CBDC-fed-Karen.jpg)图片来源：www.pymnts.com
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-178.jpg)（图片来自大纪元）
 
+自3月以来，上海的Covid-19中共病毒已有超过23,600名新增感染者，其中1,015人被记录为有症状，而22,609人则没有症状。但因中共一贯瞒疫，真实数字肯定更高。
 
-根据路透社4月9日报道，普华永道（PwC）的一份新报告显示，全球80%的央行正在考虑推出或已经推出央行数字货币（CBDC）。
+目前，上海大约2,600万居民被分阶段封锁，引发次生灾难及人道危机。鉴于此，美国大使馆发言人在一份声明中说，“由于Covid-19病例激增以及相关应对措施所带来的限制影响，美国国务院现允许非必要员工离开其在上海的领事馆。”同时警告想去中共国旅行的本国公民三思而后行。
 
-这家四大会计师事务所在其第二份年度的普华永道全球CBDC指数报告中透露，争夺CBDC主导地位的竞争正在升温，即使更多的主要经济体扩大其数字主权货币的研究和开发，较小的经济体也取得了巨大的飞跃。
+此外，还有法国和意大利驻华领事馆也纷纷警告他们在上海的公民，避免随着中共当局执行的遏制措施，发生妻离子散或骨肉分离的恐怖一幕。
 
-该报告确定了两类CBDC–零售和批发。在零售方面，尼日利亚排名第一，得分为95分（满分100分）。这个西非国家去年推出了eNaira数字货币，成为第一个迈出这一步的非洲国家。尽管其数字钱包在推出时出现了最初的故障，但eNaira已经开始运行。然而，采用率一直低于预期，甚至国际货币基金组织（IMF）声称，eNaira有可能被用来洗钱和资助恐怖主义。
+中共坚持要在全国实施清零政策，就是要向全球展示其所谓“优越性”，孰不知，这套政策做法令国际大跌眼镜外，更是进一步认清了独裁统治的本质。
 
-其次是巴哈马，在2020年10月推出了世界上第一个CBDC。它被称为 “沙币”，现在已经拥有了第一张与其关联的借记卡。
+参考链接：
+[https://www.epochtimes.com/gb/22/4/9/n13707038.htm](https://www.epochtimes.com/gb/22/4/9/n13707038.htm)
 
-中共国排名第三，牙买加、东加勒比、乌克兰、乌拉圭、泰国、瑞典和韩国分别位于前十名。
-
-资料来源：[PwC: More than 80% of central banks have considered launching CBDC](https://coingeek.com/pwc-more-than-80-of-central-banks-have-considered-launching-cbdc/)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布：爱放飞
 
  
 

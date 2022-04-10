@@ -2,32 +2,46 @@
 ---
 
 
-## 秘翻在线：疑似患有 “癌症及帕金森症”的普京总统，是否影响政治决策?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2320148/)
+## 一周疫情、疫苗信息回顾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2320201/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-13.png)图片来源：本文的链接
-在俄罗斯军队入侵乌克兰的一系列残暴和不人道行为被揭露后，西方国家不断加强对俄罗斯的制裁。随着俄罗斯债务违约成为现实，有许多深入探讨总统普京的阴暗面的报道，特别值得关注的是可能影响独裁者政治决定的“健康问题”。
+作者：DC农场 – 火来；日本东京方舟农场 – 北极
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+2022年3月31日至4月6日，除中共国外，全球新增中共病毒确诊患者848万余例，同比上周的1078万余例下降了21.3%；此外，本周新增确诊死亡病例25,227例，同比上周的33105例下降了23.8%。本周已是连续第五周全球确诊病例和死亡病例持续负增长。
 
-英国《泰晤士报》1日引用俄罗斯独立媒体《Proect》的报道称： 甲状腺癌专家于 2016 年至 20 日访问了普京在俄罗斯南部索契的别墅，共逗留了 166 天。据说，医生逗留的时间与俄罗斯官方媒体停止报道普京的动向相吻合。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-14.jpg)
 
-Proect没有透露他的病名，但提到他过去可能患有甲状腺问题并接受过背部手术。
+截至4月6日，除中共国外，全球累计接种了82.2亿剂中共病毒疫苗，同比3月31日的接种数据增长了0.611%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
 
-2月底，当俄罗斯入侵乌克兰时，普京先生的健康问题受到了美国主要政治家的质疑，他们质疑普京的精神状态。
+3月31日，名利场网站发布报告，揭露了福齐和前NIH主任科林斯在疫情爆发初期，阻碍病毒溯源等众多细节。
 
-美国参议院情报特别委员会成员马可-鲁比奥参议员在推特上说：”我真的很想告诉你更多，但我现在可以告诉你，大家都能看到，普京先生出了问题”。
+4月3日，计算生物学家杰西卡·萝丝历时九个月，分析疫苗副作用报告系统的数据，结果显示该报告系统中出现的大量健康问题很有可能与中共病毒疫苗有关。
 
-乔治·布什政府时期的国务卿康多莉扎·赖斯也说，“我见过普京很多次，但他和以前不同了。他似乎很不稳定，已经变成了另一个人”。
+4月4日，根据美国CDC的报告，美国目前72%的中共病毒新增感染病例为omicron亚变种病毒BA.2，专家预计这种BA.2将在接下来的两周成为主要病毒类型。
 
-英国《太阳报》2020年11月6日报道称，普京疑患有帕金森病。帕金森病是由大脑异常引起的，会导致四肢颤抖，有时甚至卧床不起。这在老年人中更常见，也会降低他们理解、决策和解决问题的能力。
+夏威夷两名医生因之前传播使用硫酸羟氯喹和伊维菌素等药物治疗中共病毒，被投诉传播虚假信息，但是当地主管部门已于4月5日裁决，不会对这两名医生采取法律行动。
 
-俄罗斯总统发言人德米特里佩斯科夫当时否认了《太阳报》的报道，说这是“完全胡说八道，总统身体状况良好。”
+4月5日，美国联邦政府将停止单克隆抗体治疗“中共病毒”新型变种，因为目前的单克隆抗体疗法对BA.2变种病毒无效。
 
-据称，普京预计对乌克兰的入侵将在短时间内完成。健康和精神焦虑是否与政治误判的背景有关？
+参考链接：
 
-信息来源：[https://www.zakzak.co.jp/article/20220410-HWJ3KVIZY5KGPGYF4ZM4E5PCBI/](https://www.zakzak.co.jp/article/20220410-HWJ3KVIZY5KGPGYF4ZM4E5PCBI/)
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
+- [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
+- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-23..latest&amp;country=~World+excl.+China)
+- [“This Shouldn’t Happen”: Inside the Virus-Hunting Nonprofit at the Center of the Lab-Leak Controversy](https://www.vanityfair.com/news/2022/03/the-virus-hunting-nonprofit-at-the-center-of-the-lab-leak-controversy)
+- [Numerous Health Problems More Likely Because of COVID-19 Vaccines Than Coincidence: VAERS Data Analysis](https://www.theepochtimes.com/numerous-health-problems-more-likely-due-to-covid-19-vaccines-than-coincidence-vaers-data-analysis_4380017.html?utm_source=partner&amp;utm_campaign=ZeroHedge)
+- [Doctors cleared of COVID-19 misinformation allegations](https://www.mauinews.com/news/local-news/2022/04/doctors-cleared-of-covid-19-misinformation-allegations/)
+- [More contagious omicron BA.2 on track to displace other variants in U.S. in next two weeks](https://www.cnbc.com/2022/04/04/more-contagious-omicron-bapoint2-on-track-to-displace-other-variants-in-us-in-next-two-weeks.html)
+- [Feds halt monoclonal treatment out of omicron subvariant BA.2 concerns](https://abcnews.go.com/Health/feds-halt-monoclonal-treatment-ba2-concerns/story?id=83895502)
 
-责编：待命(文晓)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+
+总编：飞虹
+编辑：文恩
+校正/发稿：海阔天空1
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
 
  
 

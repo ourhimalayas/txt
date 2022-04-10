@@ -2,39 +2,26 @@
 ---
 
 
-## 墨西哥表示不接受俄罗斯入侵乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320331/)
+## 零部件短缺：俄罗斯被迫停止生产和维修军舰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320500/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰稿：日本东京方舟农场  北极**
 
-翻译/编辑：小红帽
+据焦点报4月9日报道，乌克兰截获的情报显示，位于俄罗斯符拉迪沃斯托克的東方造船厂（Vostochnaya Verf）因零部件短缺严重，无法继续建造和维修军舰。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_32724.jpeg)图片来源：www.japantimes.co.jp
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-105.png)大型俄罗斯登陆舰。（图片来自焦点报）
 
+乌克兰国防情报局在Facebook上发文称，该机构截获俄罗斯国防部的密件显示，位于符拉迪沃斯托克的东方造船厂由于财政困难，外国部件完全短缺，无法继续建造军舰和舰载系统。由于造船厂无法继续履行合同，导致工作都已停止，人员被遣散，企业正在准备申请破产。
 
-根据CNA4月10日报道，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔周六（4月9日）表示，墨西哥不接受俄罗斯入侵乌克兰。该视频消息在支持乌克兰冲突受害者的全球活动中发布。
+该公司与俄罗斯军方签署了350亿卢布的合同，包括建造两艘海上油轮，两艘小型导弹船，两艘移动海上泊位，以及修理船和各种类型的船只。
 
-“我们不接受俄罗斯入侵乌克兰，因为我们曾经遭受过入侵，”洛佩斯·奥夫拉多尔说，他提到了西班牙、法国和美国对这个拉丁美洲国家的入侵。
+乌克兰国防情报局指出，“很明显，俄罗斯军工联合体仍然依赖进口。没有供应，俄罗斯联邦就无法继续生产现代武器。“
 
-“我们赞成以和平方式解决冲突。”
+参考链接：
+[https://reurl.cc/RjAGb9](https://reurl.cc/RjAGb9)
 
-本周早期，加拿大总理贾斯汀·特鲁多曾邀请洛佩斯·奥夫拉多尔参加他与欧盟委员会主席乌尔苏拉·冯德莱恩召集的活动，为乌克兰难民和境内流离失所者筹集资金。
-
-虽然洛佩兹奥夫拉多尔周三表示他无法出席，但他曾承诺发布一段视频，以谴责俄罗斯的入侵行为。
-
-洛佩斯·奥夫拉多尔一直试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
-
-虽然他的政府支持联合国敦促俄罗斯从乌克兰撤军的投票，但墨西哥在周四联合国大会（UNGA）关于暂停俄罗斯在联合国人权机构的地位的投票中投了弃权票。
-
-资料来源：[Mexico says it does not accept Russian invasion of Ukraine](https://www.channelnewsasia.com/world/mexico-says-it-does-not-accept-russian-invasion-ukraine-2618291)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布：爱放飞
 
  
 
