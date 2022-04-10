@@ -2,39 +2,27 @@
 ---
 
 
-## 诺贝尔和平奖得主《新报》总编俄罗斯反战记者遭油漆袭击
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2317474/)
+## 马斯克大量收购推特股份是想恢复言论自由
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2318503/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-俄罗斯诺贝尔和平奖得主、《新报》总编德米特里·穆拉托夫说，他在火车上被含有溶剂丙酮的红色油漆袭击。这起事件发生在周四的莫斯科通往萨马拉的火车上。
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16495250161.png)Newsweek.com
+据福克斯4月9日报道，著名节目主持人，比尔·马赫（Bill Maher）在节目中说说，他支持马斯克加入推特； “我们不再生活在1980年了，推特是一个公共广场”。
 
-袭击后果的图片发表在《新报》的电报频道上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-2.jpg)（穆拉托夫在火车上遭到袭击后，在社交媒体上发布了自己的照片。照片：提供/Novaya Gazeta）![](https://assets.gnews.org/wp-content/uploads/2022/04/image006.jpg)(照片：提供/Novaya Gazeta)
-《新公报》自由派报纸的编辑说，该报在莫斯科就其对俄乌战争的报道发出警告后，已停止运营。
+本周，马斯克购买了9.2%的推特股份，成为其最大股东。他加入董事会可能会对其政策产生影响，比如自由言论。纽约时报作者大卫·莱昂哈特（David Leonhardt） 说，“我们很快又要读到唐纳德·川普的推特了吗？”。
 
-最近，一些公开反对俄罗斯入侵乌克兰的俄罗斯活动家和记者的家园遭到了不知名的亲克里姆林宫派别人物的破坏。
+马赫回应，这是一个 “艰难的过程” 因为当川普被从推特上踢出去，那里的情况确实有所好转，但这对 “言论自由不利”。因为他们会带着怨恨去其它社交媒体。然后联合起来反对我们这些媒体、大科技公司和大政府——这就是车队。就像那些在 “加拿大和全世界的车队”。
 
-目前，反对战争的人在俄罗斯的生活变得越来越困难。任何将俄罗斯在乌克兰的行动描述为“战争”的人都将面临巨额罚款或关押。俄政府通过了一项法律，声称对散布有关战争“虚假”信息的人判处 15 年监禁。
+自由派作家南希·麦克莱恩（Nancy MacLean）反驳了马赫，她认为推特对川普的审查没有违反宪法，因为第一修正案只适用于压制言论自由的政府，而不适用于私营公司。
 
-俄罗斯总统普京和其他政界人士将任何反对战争的行为描述成对国家的背叛。
+马赫说，我们生活在一个不同的时代，推特如同一个 “公共广场”。否认某人的发言权，“等于是在说你没有言论自由的权利”。我们已经不是生活在1980年了，而是生活在一个由社交媒体控制的世界。所以社交媒体既不像是出版商，也不完全是私人公司，这就是为什么它如此棘手的原因”。
 
-[【援引连结】](https://www.rnz.co.nz/news/world/464907/nobel-peace-prize-winning-russian-anti-war-journalist-attacked-with-paint)
+在谈到新冠病毒时，马赫说，推特禁止谈论它是否来自实验室，就连拜登政府现在也承认了这一点。中共在武汉有一个实验室，但在推特不能讨论这个问题！“这太离谱了” 。马赫认为，这就是马斯克想在推特上解决的问题。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+*责编：白夜*
+
+[来源](https://translate.google.com/?sl=en&amp;tl=zh-CN&amp;text=Joseph%20A.Wulfsohn&amp;op=translate)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

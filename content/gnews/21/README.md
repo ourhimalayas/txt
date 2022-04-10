@@ -2,31 +2,31 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2319585/)
+## 临床病理学家Ryan Cole博士讲述他看到的个人在注射COVID19疫苗后免疫系统减弱的情况
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2319652/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-9.png)
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+我们在实验室里看到，在人们打完这些针后，我们看到了一个非常令人担忧的困局，即身体需要的重要的杀伤性T细胞的降低。疫苗几乎就是一种反向的艾滋病毒，艾滋病毒会使辅助T细胞即CD4细胞减少。而这种（疫苗）病毒在通过疫苗进入人体后，我们看到的是杀伤性T细胞即CD8细胞的下降。而CD8细胞的作用是什么呢？它是控制所有其他病毒的。我在实验室里看到了什么，我看到了疱疹类病毒的上升。我看到了疱疹，看到了带状疱疹，我看到了单核细胞，看到了宫颈活检和妇女宫颈涂片中的HPV病毒的大幅上升。除此之外，还有一种传染性很小的传染病，你知道的，孩子们得的，叫软疣。你需要什么来控制它？你需要CD8杀伤性T细胞。我看到50岁以上的人有这种小凸起和皮疹的情况增加了20倍。你知道那是无害的。但它告诉我的是这些打过针的人的免疫状态,（疫苗）实际上是在削弱这些人的免疫系统。现在最令人担忧的是,（本来）这些类型的免疫细胞在体内有一种模式，是可以控制癌症的。然而，自1月1日以来，在实验室里，我看到子宫内膜癌比以往每年看到的增加了20倍，增加了20倍，一点都不夸张。因为我看了（统计）数字，同期相比而言，哦，我的天哪，我以前从未见过这么多子宫内膜癌。我在年轻的病人中看到了侵入性黑色素瘤。通常情况下，我们会及早发现这些黑色素瘤，它们是很薄的黑色素瘤。在过去的一两个月里，我看到较厚的黑色素瘤急剧增加。我已经看到了早期的信号。而且我们正在修改免疫系统，使其处于被削弱的状态。德国的一项伟大的研究，在辉瑞公司显示这种情况被锁定后，研究了年轻人的这些资料，我们不知道多久，也许免疫系统，它会再生，这些比例会回升。但谁在研究它？长期试验又在哪里？两个月，四个月？这个资料被锁定了多长时间？我们不知道。
 
+素材提供：蓝色天空
+软件听写：蓝色天空
+听写校对：蓝天灵梦
+文稿翻译：Aima
+翻译校对：Myway
+字幕添加：杰尼龟
+最终审核：CTQ
+发布/上传: 野草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-校对：Stay文苑
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-编辑：Stay文苑
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p14g31mfc7b](https://gettr.com/post/p14g31mfc7b)
-访谈：[https://gettr.com/post/p14g7lv4366](https://gettr.com/post/p14g7lv4366)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
