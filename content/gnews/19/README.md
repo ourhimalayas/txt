@@ -2,16 +2,20 @@
 ---
 
 
-## 中共处处埋雷 第三次世界大战一触即发
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322806/)
+## 视频|新中国联邦人不是独自在战斗
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2323188/)
 
-文贵大直播20220410
+制作：香草山视频部
 
-撰稿：顽童（纽伦堡正义）文仁（77功成）
+【导语】4月5日，在新中国联邦波兰救援前线，一位叫米里亚姆的丹麦基督徒志愿者，在我们的大帐篷里表达了对新中国联邦战友们的由衷赞美。
 
-美工：新宝（银河系）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片9-scaled.jpg)
-*发布：Theodosia*
+在了解了新中国联邦、爆料革命正在进行的灭共行动、想要完成的使命后，她发自内心地说：“你们是这场运动中真正的无名英雄，你们身处最黑暗的地方，但是你们还在继续战斗。 你们的美丽激励着我们这些人。”她同时表示，“我想要你们知道你们不是独自在战斗。”她脸上坚定的表情也给了战友们巨大的鼓舞。
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,24 +2,34 @@
 ---
 
 
-## 波兰救援前线战友接受《每日来电》采访
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2321080/)
+## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
 
-作者：纽约磐石农场 在远方
+撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-当地时间4月7日，身处波兰梅迪卡救援前线的Nicole战友接受了美媒《每日来电》的采访。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-8.31.18-PM.png)
-Nicole战友表示，救援巴士不断地将遭受战火洗礼的乌克兰人民带到波兰。新中国联邦和法治基金的救援营地，已经接收了9000多名难民。Nicole在采访中表达了新中国联邦人热爱和平，愿意尽一切力量帮助乌克兰人民逃离灾难，同时谴责这场侵略战争的立场和观点。
+4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
+众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
 
-Nicole向《每日来电》强调，中共是普京幕后的黑手，在背后推动俄罗斯入侵乌克兰，中共不能代表中国人。同时，中共是全球许多灾难和问题的根源，多年以来一直试图破坏美国的自由和民主。推翻中共是确保全世界自由和安全的唯一途径。新中国联邦人以彻底消灭中国共产党为使命，并坚定地与乌克兰人民，以及所有热爱自由和平的人们站在一起。
+由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
 
-参考链接：[04/07/2022 新中国联邦志愿者Nicole接受美媒《每日来电者》采访](https://www.gettr.com/post/p14clvv89d2)
+粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
 
-编辑：宁文静
-总编/审核：Zion文恩
-校正/发稿：我不在这里
+参考链接：
+
+[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
+
+[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
+
+编辑总编审核：飞虹
+
+校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 

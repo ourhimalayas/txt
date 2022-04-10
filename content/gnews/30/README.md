@@ -2,41 +2,34 @@
 ---
 
 
-## 因中国经商环境恶化等影响，未来韩国芯片业务或逐步转向美国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321385/)
+## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**港台前线 zhong｜2022-4-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
 
-整理/编辑：围剿维尼熊
+霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/72A78A74-FC01-408D-82B1-28C053CE08B6.jpg)图片来源：中关村在线
+俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
+
+此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
+
+目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
 
 
-根据美国之音当地时间4月9日报道，多则消息称，美国寻求同韩国、日本、台湾等构建芯片供应链，以降低对中国的依赖。
 
-韩国《首尔经济》上月底援引业界和政府消息独家报道，拜登政府最近向韩国政府和主要半导体企业提议建立“Chip4”芯片供应链同盟，日本、台湾也收到了相同提议。
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
 
-报道分析称，这一提议包含了建立“半导体壁垒”、将中国排除在全球供应链之外的用意。
 
-芯片是拜登政府供应链重组计划的四大重点领域之一。上月底，美国参议院通过了为本国芯片制造业提供520亿美元补贴的法案。
 
-另外，美国在亚洲地区的伙伴日本、韩国、台湾均为重要的半导体产业基地，分别在材料、零部件及设备，存储芯片，代工领域领先。若三方与拥有芯片制造源头技术的美国建立芯片同盟，不仅可建立起几乎覆盖全产业、稳定可靠的外部供应链，还能对正以举国体制发展半导体产业的中国形成遏制。
+来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
 
-韩国国立釜庆大学中国学系教授、研究韩中经贸的徐畅培在电话采访中表示，韩国在半导体供应链上并不完全依赖中国，三星电子斥巨资在美国得州修建第二工厂；此前还拒绝了中国政府关于技术合作的提议。
+* * *
 
-事实上，对于韩国半导体行业而言，中国和美国分别代表着现在和未来，重要性不相上下。
-
-中国是韩国半导体行业当前重要的生产基地和出口对象国。不过随着近期中国经商环境的恶化、地缘政治风险等因素，未来韩国企业的业务重心或逐步转向美国。
-
-参考链接：[传韩国拒绝美国芯片同盟提议 韩学者：韩政府目前并未下结论](https://www.voachinese.com/a/south-koreas-attitude-toward-chip4-20220408/6521926.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

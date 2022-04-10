@@ -2,35 +2,37 @@
 ---
 
 
-## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
+## 澳洲多地CCP病毒数量略有下降
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2322763/)
 
-撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
-众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
+撰稿：Gradient Boost
 
-由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/103.jpg)图片来自网络
+在过去的 24 小时内，澳大利亚东部的新南威尔士州、昆士兰州和维多利亚州的 CCP病毒感染病例均呈现出略微的下降趋势。
 
-粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
+悉尼所在的新南威尔士州记录了 15,683 例新的CCP病毒感染病例，比昨天的数字减少了 1914 例。目前仍在住院治疗的患者为1492例，其中56例需要重症监护。由于与 COVID 相关的疾病，又有8人不幸失去生命。在新病例总数中，通过快速抗原检测得到的结果为 8391 例。此外，该地区的CCP病毒加强针注射率已经超过六成，不过增长速度似乎不如注射前两针那样迅速。
 
-美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
+在墨尔本所处的维多利亚州，过去24小时内共记录了 9510 例新增CCP病毒感染，这使得维多利亚州的活跃病例总数达到 65,466 例。目前维多利亚州共有 356 名 COVID-19 患者在医院接受治疗，其中 16 人被安排在重症监护室。1人在今日不幸死于与 CCP病毒感染相关的疾病。该州已有超过65%的成年居民接种了第三针CCP病毒疫苗。
 
-参考链接：
+昆士兰州今日总共记录了 7154 例 COVID-19 病例，比昨天的数字减少了 1533 例。该州在过去24小时内发生了 1 起与 COVID 相关的死亡事件，另有 500 人因感染病毒而住院，其中 15 人正在接受重症监护。该州目前拥有接近 60,000 例活跃CCP病毒感染病例，目前该州已有过半12岁及以上人口接种了第三针CCP病毒疫苗。
 
-[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
+西澳大利亚州的病例数量在过去24小时内似乎同样有所下降，该州今日记录了 5351 例新的 COVID-19 感染病例，而昨天这一数字为 6,566 例。昨日该州昨天发生三起CCP病毒感染死亡事件，创造了历史新高，而今日又有两人死于该病毒。西澳全州的住院患者总数为234人，其中10人在重症监护室。该州目前第三针CCP病毒疫苗注射率在16岁以上群体中已经超过四分之三。
 
-[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
+*编辑：Gradient Boost*
 
+*发稿：mgjxs*
 
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-update-nsw-covid19-numbers-victoria-queensland-cases/4433f69e-f0b3-4527-a47c-75f889399ef7)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
-编辑总编审核：飞虹
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

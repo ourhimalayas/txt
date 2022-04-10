@@ -2,35 +2,29 @@
 ---
 
 
-## 普华永道：超过80%的央行曾考虑推出央行数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320343/)
+## 疫情｜上海日增26855宗本土个案 副市长哽咽道歉 市民负评如潮瘫痪评论区
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2320704/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**图/文｜CP**
+**发布时间｜10/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海日增26855宗本土個案-副市長哽咽道歉-市民負評如潮癱瘓評論區.jpg)
 
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/CBDC-fed-Karen.jpg)图片来源：www.pymnts.com
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
-根据路透社4月9日报道，普华永道（PwC）的一份新报告显示，全球80%的央行正在考虑推出或已经推出央行数字货币（CBDC）。
+上海市衞健委通报，截至4月9日24时，上海单日新增26855宗新冠病毒本土个案，再创新高。当局昨日在全市范围内又展开了一次全员核酸检测，计划依检测结果按风险程度划分三区进行阶梯式管理，包括封控区、管控区和风险最低的防范区。
 
-这家四大会计师事务所在其第二份年度的普华永道全球CBDC指数报告中透露，争夺CBDC主导地位的竞争正在升温，即使更多的主要经济体扩大其数字主权货币的研究和开发，较小的经济体也取得了巨大的飞跃。
+上海市副市长宗明在疫情防控记者会上承认当局有不少工作做得不够，并语带哭腔承诺会尽全力改进，惟道歉不获民众接受，上海市民认为“讲一套、做一套”，批评当局“虚伪”、“作秀”的言论瘫痪评论区。
 
-该报告确定了两类CBDC–零售和批发。在零售方面，尼日利亚排名第一，得分为95分（满分100分）。这个西非国家去年推出了eNaira数字货币，成为第一个迈出这一步的非洲国家。尽管其数字钱包在推出时出现了最初的故障，但eNaira已经开始运行。然而，采用率一直低于预期，甚至国际货币基金组织（IMF）声称，eNaira有可能被用来洗钱和资助恐怖主义。
+另外，美国国务院日前宣布，因应上海新冠病毒疫情严峻容许驻上海总领事馆非紧急人员及家属可自愿以“授权撤离”方式离开。
 
-其次是巴哈马，在2020年10月推出了世界上第一个CBDC。它被称为 “沙币”，现在已经拥有了第一张与其关联的借记卡。
+惟有被封控的外籍人士认为，现在连门口都出不去 ，遑论回国。更斥责国际社会不仅对正于上海发生的人道危机不闻不问，对本国公民一样不予理会，如不是得到部分上海市民的帮助一起团购物资，恐怕早已饿死。
 
-中共国排名第三，牙买加、东加勒比、乌克兰、乌拉圭、泰国、瑞典和韩国分别位于前十名。
+来源｜上海发布
 
-资料来源：[PwC: More than 80% of central banks have considered launching CBDC](https://coingeek.com/pwc-more-than-80-of-central-banks-have-considered-launching-cbdc/)
+* * *
 
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 
