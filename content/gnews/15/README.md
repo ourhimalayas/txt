@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|美国参议院全票通过剥夺俄罗斯正常贸易地位
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323213/)
+## 视频|俄乌战争加剧全球粮食危机 食品价格再创历史新高
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2323207/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒4月7日综合报道，美国参议院当天上午以100票对0票，全数同意撤销俄罗斯的“最惠国”贸易地位。同时，联邦政府将暂停对包括石油在内的俄罗斯能源的进口。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-7.42.31-PM-1.png)
-报道提及，自俄罗斯入侵乌克兰以来，西方国家对莫斯科当局采取了大量的经济制裁，美国总统拜登早先也呼吁国会尽快采取行动，用以结束俄罗斯的贸易地位。而今，美国正式撤销对俄罗斯的贸易最惠国待遇将对普京政府造成巨大的经济打击。
+制作：香草山视频部
 
-据悉，本次参议院通过的法案还将针对包括白俄罗斯、朝鲜和古巴在内的独裁国家：这些国家未来在进入全球市场方面将面临来自美国及其盟友的经济障碍。其中，法案将允许美国大幅度提高对俄罗斯和白俄罗斯的商品关税，部分商品甚至将面临罚款的可能。
+4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
 
+众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
 
+由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
 
-文字版原文：[美国参议院全票通过剥夺俄罗斯正常贸易地位](https://gnews.org/zh-hans/2314567/)
+粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
+
+发稿：Daxia
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

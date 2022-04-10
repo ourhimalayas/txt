@@ -33,59 +33,59 @@
 ### [灾难来临时的责任分担效应](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [04/10/22 香港快讯 律政司引国安法向高院申请 冻结许智峰及妻母在港财产](/content/gnews/7/README.md)
- ` 英喜-粵語組`
-
-### [“卡廷惨案”和“布查屠杀”之间的联系](/content/gnews/8/README.md)
+### [“卡廷惨案”和“布查屠杀”之间的联系](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [4/10/2022国内经济财经周报：接力贷冲出江湖；刘强东被卸任CEO](/content/gnews/9/README.md)
+### [4/10/2022国内经济财经周报：接力贷冲出江湖；刘强东被卸任CEO](/content/gnews/8/README.md)
  ` 秘密翻译组金融团队`
 
-### [北约公开说北京是敌人，为接下来打击中共做铺垫](/content/gnews/10/README.md)
+### [北约公开说北京是敌人，为接下来打击中共做铺垫](/content/gnews/9/README.md)
  ` DC政经`
 
-### [有声|粗暴的笑话](/content/gnews/11/README.md)
+### [有声|粗暴的笑话](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [【 蓝枫法律 】 遗产与父母之间相关问题](/content/gnews/12/README.md)
+### [【 蓝枫法律 】 遗产与父母之间相关问题](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|联合国人道主义官员对布查事件表态](/content/gnews/13/README.md)
+### [有声|联合国人道主义官员对布查事件表态](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [【 蓝枫法律 】 家族基金的类型](/content/gnews/14/README.md)
+### [【 蓝枫法律 】 家族基金的类型](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|美国参议院全票通过剥夺俄罗斯正常贸易地位](/content/gnews/15/README.md)
+### [有声|美国参议院全票通过剥夺俄罗斯正常贸易地位](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [视频|俄乌战争加剧全球粮食危机 食品价格再创历史新高](/content/gnews/16/README.md)
+### [视频|俄乌战争加剧全球粮食危机 食品价格再创历史新高](/content/gnews/15/README.md)
  ` MOSVIDEO`
 
-### [英国首相盛赞乌克兰军队：“这是本世纪最伟大的军事壮举” 俄罗斯军队已从基乌周围地区撤出](/content/gnews/17/README.md)
+### [英国首相盛赞乌克兰军队：“这是本世纪最伟大的军事壮举” 俄罗斯军队已从基乌周围地区撤出](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助](/content/gnews/18/README.md)
+### [视频|欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
-### [视频|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](/content/gnews/19/README.md)
+### [视频|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](/content/gnews/18/README.md)
  ` MOSVIDEO`
 
-### [从文贵先生爆料看中共导弹部署对全球的军事威胁和经济威胁](/content/gnews/20/README.md)
+### [从文贵先生爆料看中共导弹部署对全球的军事威胁和经济威胁](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [视频|新中国联邦人不是独自在战斗](/content/gnews/21/README.md)
+### [视频|新中国联邦人不是独自在战斗](/content/gnews/20/README.md)
  ` MOSVIDEO`
 
-### [一带一路把斯里兰卡搞垮了](/content/gnews/22/README.md)
+### [一带一路把斯里兰卡搞垮了](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [要起诉普京的战争罪，要保护好数字证据（二）](/content/gnews/23/README.md)
+### [要起诉普京的战争罪，要保护好数字证据（二）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国及世界疫情简报（04-10-2022）](/content/gnews/24/README.md)
+### [美国及世界疫情简报（04-10-2022）](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
+
+### [中共处处埋雷 第三次世界大战一触即发](/content/gnews/24/README.md)
+ ` MilesGuoLivePPT`
 
 ### [新中国呼之欲出 新世界曙光在前](/content/gnews/25/README.md)
  ` MilesGuoLivePPT`

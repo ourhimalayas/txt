@@ -2,19 +2,75 @@
 ---
 
 
-## 北约公开说北京是敌人，为接下来打击中共做铺垫
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2323347/)
+## 有声|粗暴的笑话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323318/)
 
-【2022年4月7日北约秘书长斯托尔滕贝格在北约外长会议发言】
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我在喊
+你也在喊
+我喊我饿了需要吃的
+你喊控制灵魂对自由的渴望
+![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
+我想
+我们是不是
+来自于不同星球
+不懂彼此语言
+交臂而过
+也只是交臂而过
+你假装听不懂我
+我对你无言以对
 
-4月7日北约秘书长斯托尔滕贝格(Jens Stoltenberg)表示，中国不愿意谴责俄罗斯的侵略行为，而且北京已和莫斯科一起质疑各国选择自己道路的权利，这对北约所有成员国都构成了严重的挑战。 北约各成员国的部长们同意，NATO的下一个战略必须对我们未来与俄罗斯的关系做出回应，并且首次必须考虑到中国日益增长的影响力和胁迫性政策如何影响北约各成员国的安全。
+你说
+控制灵魂对自由的渴望
+你告诉我
+告诉我们
+谁在控制我们的灵魂
+我们的自由
 
-* * *
+我们早已经忘了
+什么是灵魂
+什么是自由
+生活处在最低要求
+可是
+如今
+也
+已经被剥夺
 
-素材：Chloe蔻依； 字幕： 湘江之水| 翻译/发布：James文棟
+喊吧，喊吧
+无人机在空中飞行
+那是用我们血汗
+购买的先进水平
+循环着你的声音
+控制着人们灵魂
+美好一切
+都已成了
+昨日风景
+只留下
+万人空巷
+家家牢笼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
+
+文字版原文：[粗暴的笑话](https://gnews.org/zh-hans/2318079/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
