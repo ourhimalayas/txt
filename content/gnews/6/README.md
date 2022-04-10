@@ -3,14 +3,18 @@
 
 
 ## 灭共段子
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324108/)
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324134/)
 
 撰稿：东京樱花团/保和
 
-上海居民活下来，共匪贷款不用还。
+家有黄金小百两，不如萝卜白菜强。
 
-灭掉共党快来到，坚持活下是王道。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-7.jpg)
+上海富翁也不少，不知蔬菜也更强。
+
+丢了国际金招牌，灭共事业早点来。
+
+这样故事还不醒，共匪演义上海城。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-5.jpg)
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
