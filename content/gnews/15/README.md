@@ -2,16 +2,13 @@
 ---
 
 
-## 20220408郭文贵大直播 ：美台同盟官方明确定性中共攻台只有死路一条
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2318987/)
+## 日本宣布5项对俄追加制裁措施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2319246/)
 
-作者：东京樱花团小视频组
-
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220410-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
