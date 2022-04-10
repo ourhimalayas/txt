@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 5:02 PM (UTC)`
+
+中共已在塞尔维亚部署红旗反导系统<br/>Title:  Communist China Has Deployed Red Flag Anti-Missile System in Serbia
+![img](https://media.gettr.com/group3/origin/2022/04/10/17/db865e91-bcbd-0d5d-dc21-24fe8c9ac071/out.jpg)
+
+---
+
 `@miles 4/10/2022 2:17 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月9日第36天当日救援统计：<br/>Medyka救援站接待：约340人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10435人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 36 - Date: April 9, 2022 :<br/>Medyka Rescue Station Reception: about 340 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10435 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -145,13 +152,6 @@
 
 2022-4-9《避风港》(34) 法国：以“投毒”和“危害人类罪”起诉施打疫苗
 ![img](https://media.gettr.com/group32/origin/2022/04/09/19/ecbc2a34-9c0b-a83f-53db-a57496e6930e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 5:55 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group33/origin/2022/04/09/17/75301d07-57d3-96b8-756f-74082504e92c/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
