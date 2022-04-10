@@ -15,68 +15,68 @@
 
 ---
 
-### [俄罗斯任命新的乌克兰战争指挥官](/content/gnews/1/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [市场预计俄罗斯今年发生违约的可能性接近90%](/content/gnews/2/README.md)
+### [俄罗斯调整前线军事指挥权](/content/gnews/1/README.md)
  ` 加拿大温哥华英里农场`
 
-### [FMC专员警告中共国对集装箱生产的垄断可能损害美国经济](/content/gnews/3/README.md)
+### [俄军更换在乌军事行动最高指挥官](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [有声|清零](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [俄罗斯任命新的乌克兰战争指挥官](/content/gnews/4/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [市场预计俄罗斯今年发生违约的可能性接近90%](/content/gnews/5/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [FMC专员警告中共国对集装箱生产的垄断可能损害美国经济](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [活祭](/content/gnews/4/README.md)
+### [活祭](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [教皇呼吁在乌克兰实现复活节休战](/content/gnews/5/README.md)
+### [教皇呼吁在乌克兰实现复活节休战](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [斯里兰卡总统戈塔将与41名退出政府的国会议员举行重要会议](/content/gnews/6/README.md)
+### [斯里兰卡总统戈塔将与41名退出政府的国会议员举行重要会议](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [2022/04/10 英喜时事速递](/content/gnews/7/README.md)
+### [2022/04/10 英喜时事速递](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯一个世纪以来首次违约难以避免？](/content/gnews/8/README.md)
+### [俄罗斯一个世纪以来首次违约难以避免？](/content/gnews/11/README.md)
  ` 加拿大温哥华英里农场`
 
-### [有声|中华民国—台湾](/content/gnews/9/README.md)
+### [有声|中华民国—台湾](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/10/README.md)
+### [欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/13/README.md)
  ` NFSC News`
 
-### [《台湾武器出口法案》将加速美对台军售](/content/gnews/11/README.md)
+### [《台湾武器出口法案》将加速美对台军售](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [有声|天空网络竞争 亚马逊签署Kuiper计划](/content/gnews/12/README.md)
+### [有声|天空网络竞争 亚马逊签署Kuiper计划](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [上海封城：20世纪60年代中共“大饥荒”灾难的重演](/content/gnews/13/README.md)
+### [上海封城：20世纪60年代中共“大饥荒”灾难的重演](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [有声|Jason Miller先生祝贺Elon Musk加入Twitter](/content/gnews/14/README.md)
+### [有声|Jason Miller先生祝贺Elon Musk加入Twitter](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [【秘翻时评】 研究显示感染中共病毒后 半年内可出现致命血栓](/content/gnews/15/README.md)
+### [【秘翻时评】 研究显示感染中共病毒后 半年内可出现致命血栓](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声|化解中共毒疫苗 美蓝和青蒿素的协同作用](/content/gnews/16/README.md)
+### [有声|化解中共毒疫苗 美蓝和青蒿素的协同作用](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|西方国家拟对俄罗斯实施新制裁](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [文贵大直播 4/10 中共在上海疯狂行动的背后真相](/content/gnews/18/README.md)
+### [文贵大直播 4/10 中共在上海疯狂行动的背后真相](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共承认6架运-20赴海外执行任务](/content/gnews/19/README.md)
- ` 加拿大温哥华英里农场`
-
-### [2022.4.10大直播 郭文贵先生梳理习的执政规划](/content/gnews/20/README.md)
+### [2022.4.10大直播 郭文贵先生梳理习的执政规划](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
-
-### [乌克兰全面禁止从俄罗斯进口商品 终止与白俄罗斯科教领域协议](/content/gnews/21/README.md)
- ` 温哥华扬帆农场`
 
 ### [爆料革命——历史的今天1月27日](/content/gnews/22/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
