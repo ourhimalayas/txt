@@ -2,91 +2,22 @@
 ---
 
 
-## 比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2318968/)
+## 起来吧，中国人！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318976/)
 
-**比尔·戈茨**： 
-隐瞒与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关系的堪萨斯大学教授被判有罪； 窃取农业机密的中共国公民被判入狱 
-【附华盛顿时报登载的比尔·戈茨文章：陪审团定罪被指控隐瞒与中共国关系的堪萨斯教授。此为第二位中国公民因盗窃农业商业秘密被判刑】
+作者：东京樱花团/ ThreeColors
 
+中共过去抗美援朝，现在抗美援俄。中共发动了文化大革命，害死了无数无辜的中国人。无论你我对政治感兴趣与否，政治都不会放过任何人。好的制度养人，像中共这种邪恶的制度只会产生灾害、奴役和死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-11.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp4.itc.cn%2Fq_70%2Fimages03%2F20210306%2Ff0a1c5d1347544108eebde1bd28baa22.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F454469290_100171032&amp;tbnid=GukqseaUcZimVM&amp;vet=12ahUKEwi3063L1Yf3AhXXw4UKHY-ZBmgQMygAegUIARC1AQ..i&amp;docid=6espEPYY3OLrAM&amp;w=1080&amp;h=712&amp;q=%E6%9D%8E%E5%B0%8F%E9%BE%99&amp;ved=2ahUKEwi3063L1Yf3AhXXw4UKHY-ZBmgQMygAegUIARC1AQ)
+上海的地方电台开始教授民众“轻减食五日”，夜间中共用无人机在居民小区里广播“不要开窗唱歌，控制渴望自由的灵魂”之类的东西，街上也出现了荷枪实弹的大白们，刻意渲染有钱人的抗议日常生活与众不同，等等。民众只不过是害怕被饿死而已！中共以“疫”待“牢”，非法拘禁民众在先，让民众闭嘴在后，难道想把民众都憋死饿死吗？
 
+很明显，中共是唯一一个在金钱和物资甚至武器上支持战犯普京的邪恶组织，而对饿肚子的中国人却带搭不理，甚至暴力相向。中共此次的动态清零运动并不单纯，为什么这么说？因为出现了“母子分离”，“夫妻分离”，病人得不到救治，有钱没钱都饿肚子。不仅如此，清零大运动还导致“智商清零”和“底线清零”，是对民众服从中共的一次次大演练！为中共将来的更加残酷的统治手段做准备。
 
-> University of Kansas professor who hid Chinese government ties convicted; Chinese national who stole agricultural secrets sentenced to prison [https://t.co/Sn3PWMNdLV](https://t.co/Sn3PWMNdLV)
-> — Bill Gertz (@BillGertz) [April 9, 2022](https://twitter.com/BillGertz/status/1512589920803573762?ref_src=twsrc%5Etfw)
+中共的文革害死了无数的中国人，这次的病毒大革命已经带走无数无辜人的生命。起来吧，中国人！再不醒来，就真的太晚了！
 
-
-
-**参议员玛莎·布莱克本**：
-[#共产中国](https://www.gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 正在加速他的核武器建设。拜登政府是时候描绘一下“以实力谋和平”—— 不要再软弱的谈话。
-
-
-
-> Communist China is accelerating its nuclear weapons buildup. 
-> 
-> This is the time for the Biden administration to portray ‘peace through strength’ — not more weak talk.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512807847775641607?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-我们必须恢复重视家庭和努力工作的美国梦。 我们共和党可以为此领路。 我们必须团结起来，拯救我们的美国生活方式。
-
-
-
-> We must have a restoration of the American Dream that values family and hard work. Our party can lead the way. We must unite and save our American way of life.
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512811327743574016?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本**： 
-乌克兰正在发生的事情令人作呕。 俄罗斯为无辜、受恐吓的乌克兰人设立了“过滤营地”——西方不能坐视不管。
-
-
-
-> What’s happening in Ukraine is sickening. Russia has set up ‘filtration camps’ for innocent, terrorized Ukrainians — the West cannot sit back silently.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512894495116955649?ref_src=twsrc%5Etfw)
-
-
-
-**众议院共和党**：
-拜登以牺牲消费者和我们的国家安全为代价，在他的反能源议程上加倍下注：
-－向独裁者和外国对手乞求石油
-－将我们的战略石油储备消耗到40年来的最低点
-－提议对国内生产征收新税
-
-
-
-> Biden is doubling down on his anti-energy agenda at the expense of consumers and our national security:
-> 
-> ❌Begging dictators & foreign adversaries for oil
-> ❌Depleting our Strategic Petroleum Reserve to the lowest point in 40 years
-> ❌Proposing new taxes on domestic production
-> — House Republicans (@HouseGOP) [April 9, 2022](https://twitter.com/HouseGOP/status/1512795466546696194?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-信仰激发无畏； 这是引导乔治华盛顿走向胜利的原因。 我们都必须让我们的信仰引领我们。 造物主就是我们的向导。
-
-
-
-> Faith imbues fearlessness; it is what guided George Washington to victory. We must all let our faith lead us. And The Creator to be our guide. [pic.twitter.com/QRwEuG7Og5](https://t.co/QRwEuG7Og5)
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512837782779187200?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·沃尔茨新闻室**： 
-华尔兹议员与同事国会议员一道，写信敦促司法部长加兰，通过任命一名特别顾问来监督针对亨特拜登与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和其他外国政府交易的调查，以确保调查能公平客观地进行。 【附信函】
-
-
-
-> Rep. Waltz joined fellow members of Congress in a letter urging Attorney General Garland to ensure a fair & objective investigation by appointing a Special Counsel to oversee an investigation into Hunter Biden’s dealings with the Chinese Communist Party and other foreign govts. [pic.twitter.com/EJCN5j7bhL](https://t.co/EJCN5j7bhL)
-> — Congressman Waltz Press (@RepWaltzPress) [April 9, 2022](https://twitter.com/RepWaltzPress/status/1512858484580122624?ref_src=twsrc%5Etfw)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

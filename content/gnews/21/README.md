@@ -2,29 +2,30 @@
 ---
 
 
-## 俄导弹袭击乌克兰火车站致50平民丧生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
+## 朝鲜拆除象征着韩朝合作的酒店
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2318907/)
 
-作者：自由信仰
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16495379671.png)WIONnews.com
+据ABC（美国广播公司） 4月8日报道，北朝鲜正在拆除的一家属韩国所有的酒店。它是南北朝鲜往来的标志。首尔官员称之为朝鲜 “单边破坏性行动”。
 
-当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
+朝鲜领导人金正恩早在2019年就称那些设施 “破旧”，并下令将其摧毁。此前韩国表示，因为美国所主导的制裁阻止了韩国继续与朝鲜接触，他们对此感到失望。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
+由于疫情的爆发，推迟了北韩的拆除工作，朝韩事务发言人车德哲（Cha Deok cheo）敦促双边谈判。但朝鲜无视这一要求。
 
-据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
+这家浮式酒店坐落在朝鲜钻石山沿海度假胜地，在这里，韩国在上世纪90年代建造了数十处旅游设施。去钻石山旅游常常是朝鲜经济崩溃时的资金来源。2008年，在朝鲜警卫枪杀一名韩国游客后，韩国暂停了这项业务。
 
-另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
+2018年，朝韩进行了三次会晤，寄希望于结束制裁并重启钻石山旅游。但在2019年美朝关系破裂后，朝鲜暂停了与韩国的合作。3月24日，朝鲜进行了自2017年以来的首次洲际弹道导弹试验，旨在迫使美国接受朝鲜为核大国，并取消制裁。
 
-参考链接：
-1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
-2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
+如果不取消制裁，韩国就无法重启钻石山和其它朝韩之间的业务。虽然联合国的制裁并没有直接禁止旅游业，但它们监控着由此可能产生的洗钱活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+ABC扭曲报道的拙劣手法比起《人民日报》毫不逊色！该文中，韩国在半岛局面中扮演着如此被动而低声下气的角色岂止是令人大跌眼镜，而且违背基本逻辑。一个各方面远远领先于对手的国家，何以那么在意一个旅游景点的开放？一切不合逻辑与常理的现象背后都掩盖着巨大的阴谋。可悲的是，号称堂堂的《美国广播公司》竟然如此公然为独裁张目，只教人对美国被CCP腐化渗透的程度扼腕叹息！
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+*责编：白夜*
+
+[来源](https://abcnews.go.com/Travel/wireStory/north-demolishing-hotel-symbol-korean-engagement-83953254)
+
+
 
  
 

@@ -2,77 +2,90 @@
 ---
 
 
-## 观察：习近平封锁两亿中国人的用意浮出水面
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2318945/)
+## 比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2318968/)
 
-#### 加拿大多伦多蓝莲花农场 丁过
+**比尔·戈茨**： 
+隐瞒与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关系的堪萨斯大学教授被判有罪； 窃取农业机密的中共国公民被判入狱 
+【附华盛顿时报登载的比尔·戈茨文章：陪审团定罪被指控隐瞒与中共国关系的堪萨斯教授。此为第二位中国公民因盗窃农业商业秘密被判刑】
 
-身处海外的华人都有在国内心心挂念的亲朋好友，但由于中共在疫情蔓延全国之际仍然在信息发布上造假与封锁，揪心不已的华人了解国内的真实疫情还得通过海外的西方媒体。
 
-![网传武警将接管封控社区上海官方齐发声｜多维新闻｜中国](https://assets.gnews.org/wp-content/uploads/2022/04/image-145.jpeg)multi dimension
 
-据路透社报道，4月9日上海市副市长宗明因疫情加剧，在发表同意美国驻上海总领事馆非必要工作人员及其家人回国的讲话时，公开承认上海的清零行动“存在缺陷”，而且感染人数越来越多，周六报告了“创纪录”的23600例新病例。
+> University of Kansas professor who hid Chinese government ties convicted; Chinese national who stole agricultural secrets sentenced to prison [https://t.co/Sn3PWMNdLV](https://t.co/Sn3PWMNdLV)
+> — Bill Gertz (@BillGertz) [April 9, 2022](https://twitter.com/BillGertz/status/1512589920803573762?ref_src=twsrc%5Etfw)
 
-鉴于中共凡事造假粉饰的一贯作风，这个数字事实上仅仅是冰山一角。也就是说，习近平亲自制定的清零“国策”已经彻底失败并已公开化。
 
-但宗明还是强调，“疫情防控现在正处于最关键的时刻，我们不能容忍丝毫的懈怠”。很明显，宗明是在“传旨”：封锁清零行动继续，而且还要加强！
 
-即使是非医学专业的人都知道，全面封锁后的上海感染人数不降反升的原因，是在全城高频核酸检测过程中交叉感染造成的，另外，疫情已经蔓延全囯，城际之间的人员往来不可能隔绝，更不可能长期封锁，这样的“清零”有意义吗？
+**参议员玛莎·布莱克本**：
+[#共产中国](https://www.gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 正在加速他的核武器建设。拜登政府是时候描绘一下“以实力谋和平”—— 不要再软弱的谈话。
 
-上海之外的其他城市情况如何，还是用事实说话：路透社报道，有约三千万常住人口的广州市市政府9日宣布，在8日接到数例感染报告后，广州将在11个城区展开全员检测，要知道广州仅有12个城区。
 
-北京疾控中心8日也宣布，北京封锁了高风险地区。而深圳等大城市则处于轮换封锁状态，是否再次全面封锁不得而知。
 
-习近平到底封锁了多少人？
+> Communist China is accelerating its nuclear weapons buildup. 
+> 
+> This is the time for the Biden administration to portray ‘peace through strength’ — not more weak talk.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512807847775641607?ref_src=twsrc%5Etfw)
 
-日本野村银行(Nomura)本周早些时候发布名为“上海封锁将对几乎一切贸易产生全球性影响”的报告显示，中共国起码有两亿人被封锁。野村首席中国经济学家陆挺作了补充说明：考虑到这是全国性的封锁，这些封锁数据是被严重低估的。
 
-那么问题来了，在明明知道清零行动对抗疫作用有限，而且对经济造成严重冲击以及可能造成社会动乱的情况下，习近平为什么还一味蛮干要把数亿人封锁起来呢？
 
-笔者一直认为对习近平的行为简单评判对灭共无益，而基于事实上的逻辑分析，可以看出习近平在清零行动上有其政治目标和现实考量：
-![专栏| 财经时时听：日本东芝、韩国三星相继关闭在华工厂，外资撤离潮一波又起— 普通话主页](https://www.rfa.org/mandarin/zhuanlan/jingmaorediansaomiao/econ-09172021170105.html/@@images/cfada4d0-a486-4d1f-8a85-1c3565dd86a5.jpeg)Radio Free Asia
-一.现实考量：
+**前国务卿迈克·蓬佩奥**： 
+我们必须恢复重视家庭和努力工作的美国梦。 我们共和党可以为此领路。 我们必须团结起来，拯救我们的美国生活方式。
 
-邓小平上台后实行了融入全球资本主义架构的“政革开放”，GDP增长率和引进外资金额，一直是几十年来中共对官员政绩考核的两个主要指标，从而造成了全国性的中低端产能重复建设和严重过剩，这就是“世界工厂”的由来。
 
-以下数据很能说明这个“世界工厂”的份量：仅在外贸出口相关产业链就业的人数就超过一亿人，而且薪资水平较高；“世界工厂”占据了全球一般商品出口份额的50%；2021年国内经济因消费低迷而一片萧条，而“世界工厂”贡献了6764亿美元的贸易顺差，成为垂死中共的输液管。
 
-但这仅仅是“世界工厂”借助疫情的回光返照，下面是其生命周期即将结束的逻辑：
+> We must have a restoration of the American Dream that values family and hard work. Our party can lead the way. We must unite and save our American way of life.
+> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512811327743574016?ref_src=twsrc%5Etfw)
 
-1.为了稳定就业和整固本国财政，所有国家都将以行政手段驱赶产业回归本国，全球产业链开始重新布局，全球化的低价竞争时代将结束，“世界工厂”被抛弃成为宿命。
 
-2.疫情叠加长期流动性泛滥、乌克兰战争等因素，世界经济周期进入万劫不复的萧条阶段，全球性经济衰退的到来将导致商品需求急剧萎缩，从而对严重依赖外需市场的“世界工厂”形成快速挤出效应。
 
-3.因为贫困人口比例过高，中共国无法形成“内循环”，“世界工厂”受外需下滑冲击后出现大量失业人口，必然引发经济崩溃的骨牌效应和激烈的社会震荡。
-习近平曾经是多个沿海经济发达地区的封疆大吏，当然对这些经济常识心知肚明。
+**参议员玛莎.布莱克本**： 
+乌克兰正在发生的事情令人作呕。 俄罗斯为无辜、受恐吓的乌克兰人设立了“过滤营地”——西方不能坐视不管。
 
-其中的一个佐证是：在全国商业系统异常发达的当下，习近平出人意料于2018年成立“中华全国供销合作总社”，下辖15个直属事业单位、15家主管社团和中国供销集团，证明他是有备而来，并且是来者不善。
-![专栏| 夜话中南海：习近平百分之百遗传了毛泽东的斗争瘾— 普通话主页](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ql1-09302019071114.html/Untitled-1.jpg/@@images/85876012-a82f-4036-9022-4741f69936e4.jpeg)Radio Free Asia
-二．习近平的政治目标：
 
-习近平在刚刚上台后的2013年，就狂妄批评苏联解体“竟无一人是男儿”，让当时期望习近平是蒋经国式开明人物的人们大失所望。
 
-2016年7月的全国国有企业改革座谈会上，习近平宣称“要理直气壮做强做优做大国有企业”。国企已被证明不仅效率低下而且贪腐盛行，习近平为了其政治目标而死保国企属性，又让期待习近平沿袭邓小平路线的人们彻底失望。
+> What’s happening in Ukraine is sickening. Russia has set up ‘filtration camps’ for innocent, terrorized Ukrainians — the West cannot sit back silently.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512894495116955649?ref_src=twsrc%5Etfw)
 
-至此，习近平要把中国带回毛式时代的图谋已经很清楚，他大搞个人崇拜，“忠诚不绝对，绝对不忠诚”堂而皇之出现在央视，包括修改宪法谋求终生连任，对内高压对外抵制西方民主等，无不指向习近平的政治目标是要当皇帝，而建立一个他羡慕的朝鲜金家王朝式极权政体，只不过是习近平实现皇帝梦的手段而已。
 
-和其皇帝梦一脉相承的是和独裁者普京结成邪恶同盟，通过侵略乌克兰和台湾，挑战世界秩序和称霸世界。
 
-习近平当然知道，此举将招致西方的全面制裁甚至战争，而中共的国际贸易顺差几乎是在美国和欧盟取得的，一旦西方启动制裁，“世界工厂”将难逃没顶之灾。
+**众议院共和党**：
+拜登以牺牲消费者和我们的国家安全为代价，在他的反能源议程上加倍下注：
+－向独裁者和外国对手乞求石油
+－将我们的战略石油储备消耗到40年来的最低点
+－提议对国内生产征收新税
 
-郭文贵先生说，所有发起战争的独裁者都没有好下场，普京在乌克兰的惨败就是习近平的惨败，但习近平还是“不忘初心”并坚持其“战略定力”来实现他的邪恶目标。
 
-显然，习近平完全知道他的邪恶目标最终会招致西方的全面制裁，中国人民将因此遭受巨大灾难。估计他认为，金三胖都能平安做皇帝，如果对外扩张失败，我至少也可以象三胖一样封闭国门做皇帝。
 
-所以，全国性的高频核酸检测、清零封锁包括军管上海，是习近平基于现实考量和政治目标的邪恶行动，是习近平在做“最坏打算”，是对即将到来的亿人失业浪潮进行暴力管控的预演。
+> Biden is doubling down on his anti-energy agenda at the expense of consumers and our national security:
+> 
+> ❌Begging dictators & foreign adversaries for oil
+> ❌Depleting our Strategic Petroleum Reserve to the lowest point in 40 years
+> ❌Proposing new taxes on domestic production
+> — House Republicans (@HouseGOP) [April 9, 2022](https://twitter.com/HouseGOP/status/1512795466546696194?ref_src=twsrc%5Etfw)
 
-可以预见，从经济崩盘、财富灰飞烟灭过渡到大饥荒、恐怖镇压、尸横遍野用不了多长时间。因此，紧紧跟上郭文贵先生的脚步灭习灭共关乎无辜中国人民的生死，是救人渡己，是替天行道！
 
-参考：
 
-[Shanghai carries out more COVID tests as food supply frustrations rise](https://www.reuters.com/world/china/shanghai-official-says-handling-covid-outbreak-below-expectations-lockdown-2022-04-09/)
+**前国务卿迈克·蓬佩奥**： 
+信仰激发无畏； 这是引导乔治华盛顿走向胜利的原因。 我们都必须让我们的信仰引领我们。 造物主就是我们的向导。
 
-[上海封锁“将对几乎一切贸易产生全球性影响”](http://www.ftchinese.com/story/001095759?full=y&amp;gift_id=c84954397a36a7b3293f438c6784520cf9bbea6a&amp;archive)
+
+
+> Faith imbues fearlessness; it is what guided George Washington to victory. We must all let our faith lead us. And The Creator to be our guide. [pic.twitter.com/QRwEuG7Og5](https://t.co/QRwEuG7Og5)
+> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512837782779187200?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨新闻室**： 
+华尔兹议员与同事国会议员一道，写信敦促司法部长加兰，通过任命一名特别顾问来监督针对亨特拜登与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和其他外国政府交易的调查，以确保调查能公平客观地进行。 【附信函】
+
+
+
+> Rep. Waltz joined fellow members of Congress in a letter urging Attorney General Garland to ensure a fair & objective investigation by appointing a Special Counsel to oversee an investigation into Hunter Biden’s dealings with the Chinese Communist Party and other foreign govts. [pic.twitter.com/EJCN5j7bhL](https://t.co/EJCN5j7bhL)
+> — Congressman Waltz Press (@RepWaltzPress) [April 9, 2022](https://twitter.com/RepWaltzPress/status/1512858484580122624?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

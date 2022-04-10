@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 1:16 AM (UTC)`
+
+4/9/2022 Miles Guo’s GETTR: The CCP is deploying the HQ and DF Missile Systems in Serbia and Middle East, which is equivalent to declaring war on the US and the western world; it is the Chinese people who will pay a dear price for the CCP’s aggressions. Overseas Chinese are facing an unprecedented anti-Chinese crisis.<br/><br/>4/9/2022 文贵盖特：中共在塞尔维亚和中东地区大量布置红旗和东风导弹系统，等于向美国和西方世界宣战；中国人民将为此付出沉痛代价，海外华人正面临着空前的排华危机
+![img](https://media.gettr.com/group44/getter/2022/04/10/01/d399015c-f4d3-b55b-7a76-c7c91981abda/out.jpg)
+
+---
+
 `@miles 4/10/2022 1:02 AM (UTC)`
 
 2022.04.09 晚  新中国联邦 | 新闻访谈     中共欧亚、中东部署导弹将给中国人带来灭顶之灾；上海变回“石器时代”；美国授权非紧急人员“自愿离开”上海；全国多地省市连夜发布封高速通知
@@ -150,12 +157,6 @@
 `@miles 4/9/2022 2:08 PM (UTC)`
 
 04/09/2022 on the 6th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on 5 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2 🥈on Cambodia 🇰🇭 Top Song Charts<br/>#3 🥉on Mongolia 🇲🇳 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau Rock Song Charts<br/><br/>https://gnews.org/2310805/<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Philippines, Cambodia, Brazil, Mongolia, Armenia, Fiji, Laos🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 4/9/2022 2:08 PM (UTC)`
-
-4月9号, 郭文贵先生两首新歌上线第六天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲第三名🥉<br/>6国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>蒙古🇲🇳热门歌曲第三名🥉<br/>新西兰🇳🇿， 柬埔寨 🇰🇭 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第一名🥇<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>https://gnews.org/zh-hans/2317277/<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、菲律宾、柬埔寨, 蒙古，亚美尼亚，巴西，斐济，老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/>
 
 ---
 
