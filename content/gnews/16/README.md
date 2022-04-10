@@ -2,8 +2,8 @@
 ---
 
 
-## 20220408郭文贵大直播 ：共产主义就是一定要把老百姓按在脚下
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2320843/)
+## 20220408郭文贵大直播 ：科技的进步必须与内心的信仰相匹配
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2320862/)
 
 作者：东京樱花团小视频组
 
