@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 12:10 AM (UTC)`
+
+4/9/2022 Miles Guo’s GETTR: The purpose for the CCP to let the video of Kathy Xu, CEO of Capital Today, go viral on the Internet is to instigate the Chinese people’s hatred against the rich. Although the CCP’s crazy actions in the world are beneficial to our cause of taking down the CCP, we don’t wish to see the CCP take these actions. I really appreciate our fellow fighters’ efforts to help “Chained Dream” and “The Terminator Snow” hit the charts! See you tomorrow at the grand live broadcast!<br/><br/>4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的；感谢战友们为《铁锁梦》和《灭共的雪》打榜！明天大直播见！<br/>
+![img](https://media.gettr.com/group29/getter/2022/04/10/00/74b9db3e-ba05-fe8c-8577-793f4d5000c0/out.jpg)
+
+---
+
 `@miles 4/10/2022 12:05 AM (UTC)`
 
 <br/>4/9/2022 Miles Guo’s GETTR: According to our fellow fighters from mainland China, the CCP has long been prepared to let the Lao Baixing suffer from starvation, with the purposes being making the Chinese people “more grateful to the CCP” and shifting the blame for social inequality and disasters to the rich people so that the CCP can rob their assets and eliminate them.<br/><br/>4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭<br/>
@@ -149,13 +156,6 @@
 
 2022.04.09早  新中国联邦 | 新闻             
 ![img](https://media.gettr.com/group43/origin/2022/04/09/11/aaf409f3-3ca7-a4e4-591e-2a84f14ee24b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 12:19 PM (UTC)`
-
- 4月9号：准备将领导．征服全世界的中国共产党……一夜之间将世界的最伟大的国际城市，上海．变回了石器时代，上海太惨了……，我R你八辈祖宗共产党……
-![img](https://media.gettr.com/group28/getter/2022/04/09/12/8fcbd6e4-22d2-71af-f64e-d8ac25b305e2/out.jpg)
 
 ---
 

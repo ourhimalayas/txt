@@ -15,86 +15,86 @@
 
 ---
 
-### [4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [日本宣布5项对俄追加制裁措施](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Facebook母公司Meta想推出“扎克币”](/content/gnews/2/README.md)
+### [约翰逊：在布查和伊尔平等地方的行为是战争罪行平民遇害永久玷污普京名声](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [英国将向乌克兰派遣装甲车并训练士兵](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加中外长通电话，但双方各执一词](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [美国出台新一轮对俄金融制裁](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/6/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [有声|前线战友真诚付出赢得波兰华人的信任](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的](/content/gnews/10/README.md)
+### [4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声｜泽连斯基演讲时 芬兰领空和网络遭俄军攻击](/content/gnews/11/README.md)
+### [Facebook母公司Meta想推出“扎克币”](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加中外长通电话，但双方各执一词](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [美国出台新一轮对俄金融制裁](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [20220408郭文贵大直播 ：美台同盟官方明确定性中共攻台只有死路一条](/content/gnews/12/README.md)
+### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [20220408郭文贵大直播 ：美台同盟官方明确定性中共攻台只有死路一条](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [起来吧，中国人！](/content/gnews/13/README.md)
+### [起来吧，中国人！](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [推翻中共的逻辑陷阱](/content/gnews/14/README.md)
+### [推翻中共的逻辑陷阱](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪](/content/gnews/15/README.md)
+### [比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪](/content/gnews/16/README.md)
  ` 美国政要直译推`
 
-### [俄乌局势｜英国向乌克兰提供重型武器](/content/gnews/16/README.md)
+### [俄乌局势｜英国向乌克兰提供重型武器](/content/gnews/17/README.md)
  ` mayflowertranslate`
 
-### [观察：习近平封锁两亿中国人的用意浮出水面](/content/gnews/17/README.md)
+### [观察：习近平封锁两亿中国人的用意浮出水面](/content/gnews/18/README.md)
  ` 蓝莲花农场`
 
-### [朝鲜拆除象征着韩朝合作的酒店](/content/gnews/18/README.md)
+### [朝鲜拆除象征着韩朝合作的酒店](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/04/05 墙内世界](/content/gnews/19/README.md)
+### [2022/04/05 墙内世界](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄导弹袭击乌克兰火车站致50平民丧生](/content/gnews/20/README.md)
+### [俄导弹袭击乌克兰火车站致50平民丧生](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [上海疫情防控进入恶性循环](/content/gnews/21/README.md)
+### [上海疫情防控进入恶性循环](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [FDA的专家居然不知道该机构又批准了另一疫苗加强针](/content/gnews/22/README.md)
+### [FDA的专家居然不知道该机构又批准了另一疫苗加强针](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄准备在乌东发动大规模攻势 乌克兰官员敦促民众抓住“最后的机会” 紧急撤离](/content/gnews/23/README.md)
+### [俄准备在乌东发动大规模攻势 乌克兰官员敦促民众抓住“最后的机会” 紧急撤离](/content/gnews/24/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [北约称中共已构成严峻挑战](/content/gnews/24/README.md)
+### [北约称中共已构成严峻挑战](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [私人宇航员团队到达国际空间站](/content/gnews/25/README.md)
+### [私人宇航员团队到达国际空间站](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [核谈判陷入僵局，伊朗对24名美国人实施制裁](/content/gnews/26/README.md)
+### [核谈判陷入僵局，伊朗对24名美国人实施制裁](/content/gnews/27/README.md)
  ` Shuizhuyu`
-
-### [美财政部制裁最大的俄罗斯钻石开采商](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [分享给打了疫苗的国内家人朋友的一封信](/content/gnews/28/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`

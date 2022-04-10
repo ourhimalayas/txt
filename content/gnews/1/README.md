@@ -2,11 +2,13 @@
 ---
 
 
-## 4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2319206/)
+## 日本宣布5项对俄追加制裁措施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2319246/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220410-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

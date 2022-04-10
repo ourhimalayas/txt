@@ -2,91 +2,34 @@
 ---
 
 
-## 比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2318968/)
+## 推翻中共的逻辑陷阱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2318975/)
 
-**比尔·戈茨**： 
-隐瞒与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关系的堪萨斯大学教授被判有罪； 窃取农业机密的中共国公民被判入狱 
-【附华盛顿时报登载的比尔·戈茨文章：陪审团定罪被指控隐瞒与中共国关系的堪萨斯教授。此为第二位中国公民因盗窃农业商业秘密被判刑】
+撰稿：东京樱花团/加一颗稻草
 
+“三世不需问，静坐尔自知，若问前生事，今日受者是，若问后世事，今日做者是。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-27.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic1.zhimg.com%2Fv2-33d04891669def9d358fbe2b109ddeb5_ipico.jpg%3Fsource%3D172ae18b&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F150101253&amp;tbnid=j0Sp0kgTLkxByM&amp;vet=12ahUKEwi9pqGp0Yf3AhXwSkEAHUR1Dl8QxiAoCXoECAAQFQ..i&amp;docid=ogHKZlfwM2QN8M&amp;w=640&amp;h=404&amp;itg=1&amp;q=%E9%80%BB%E8%BE%91%E9%99%B7%E9%98%B1&amp;ved=2ahUKEwi9pqGp0Yf3AhXwSkEAHUR1Dl8QxiAoCXoECAAQFQ)
+今天看到一则故事，讲的是：有一个老头扛着锄头出门种地，刚一出门就被邻居院墙掉下来的砖头差点拌倒，心里生气就站在街上破口大骂，邻居家的女人听见骂她就出来和这老头对着开骂，这两家也算是素有积怨，加上女人伶牙俐齿，老头不是对手，就发生肢体冲突女人险些被推倒。老头心想虽然大清早的惹了一肚子气，把这女人差点推倒，可也算给女人一个教训，也就不那么生气了，抗着锄头去田里干活了。女人等丈夫小李回来就把这事的过程讲述一遍，这小李也是不压事的主，火冒三丈的就去田里打这老头，老头看小李气势汹汹的来了心想不好。在和小李争论的时候由于害怕，在田里左躲右躲，突然心脏病发倒地不起。小李赶紧叫救护车也没能救活老头，老头家人报警勘察现场断定老头的死亡与小李有关。
 
+今天咱先不谈法律怎么处理这起纠纷，就从因果这个角度分析分析。如果两家没有积怨，老头不会在一开始就骂，如果老头不骂，女人也不会出来对骂，如果女人能劝说丈夫不去找这老头，老头也不会死。或者说没有那块砖头就没有这些事发生。在这个故事里每一个情节都有因果关系的存在，所以可以肯定事情的因和果有着必然联系。
 
-> University of Kansas professor who hid Chinese government ties convicted; Chinese national who stole agricultural secrets sentenced to prison [https://t.co/Sn3PWMNdLV](https://t.co/Sn3PWMNdLV)
-> — Bill Gertz (@BillGertz) [April 9, 2022](https://twitter.com/BillGertz/status/1512589920803573762?ref_src=twsrc%5Etfw)
+佛教有六因五果论，六因：能作因、俱有因、同类因、相应因、遍行因、异熟因。五果：异熟果、等流果、增上果、士用果、离系果。亚里士多德早在2000多年前就提出四因说，即质料因、形式因、动力因、目的因。科学上也离不开因果关系的理论。但是现在有一种说法：“在社会科学领域因果论并不能起到很好的作用。”他们的论点是基于“在一个次序良好的社会里，往往是偷奸耍滑者能获得更多的短期利益。正义很多时候不能带来好的结果，尤其是对个人。你可以认为正义能带来社会层面好的结果，也可以认为正义对个人必定会带来好的结果，但是时间尺度可能需要放到接近无限长。”他没有否定因果论，但是他却说在现实生活中因果论没用。
 
+咋一看，有道理啊。你看看全世界各国都是这样啊！如今这世道不就是“杀人放火金腰带，修桥补路无尸骸”吗。人要这世界上生存不就得八面玲珑、见风使舵必要时还得作奸犯科，才能过上好日子吗。实际上他们提出的就是谬论。谬论是逻辑学里的词汇，也叫谬误。
 
+论证的谬误可发生在三个地方：一是陈述了错误的事实（实质谬误），二是使用了不恰当的词语（言词谬误）；三是使用了不恰当的推理结构（形式）（形式谬误）。其中一与二合称非形式谬误，而二与三合称逻辑谬误。
 
-**参议员玛莎·布莱克本**：
-[#共产中国](https://www.gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 正在加速他的核武器建设。拜登政府是时候描绘一下“以实力谋和平”—— 不要再软弱的谈话。
+现在分析他的论点，“在一个次序良好的社会里”本应由法治，自由，道德(正义)构成。没有法治和自由怎么能次序良好？然后在这个论点里他又对道德(正义)的作用提出质疑。这是典型的逻辑谬误。再说道德(正义)和时间(结果)的关系，实际上这两者根本就没有关联。因为没有一个坚持正义的人会想到回报。最后说“偷奸耍滑的人会得到短期的回报”，这句是他的结论，他承认了部分事实“短期回报”,但这个回报有可能是法律的制裁或道德的谴责。所以在上述论点完备时不会出现这个结论。综上所述，这就是非形式谬误和逻辑谬误综合的谬论。
 
+而根据他的论点可以反向推导出没有正义的社会，一定不是一个次序良好的社会。自中共病毒流行到现在全球各国都面临着各种各样的社会问题，就是这个结论的证明。
 
+中共从教育体系里强行取缔了逻辑学的普及教育，这是科学发展和社会进步的基石。逻辑学可以揭穿中共的所有谎言，所以他们害怕逻辑学会使中国人聪明起来，用高于他们的智商来对抗这些愚蠢的领导人。这是商鞅五术中的愚民之术，在新时代的拓展性应用。
 
-> Communist China is accelerating its nuclear weapons buildup. 
-> 
-> This is the time for the Biden administration to portray ‘peace through strength’ — not more weak talk.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512807847775641607?ref_src=twsrc%5Etfw)
+郭文贵先生创立的新中国联邦，以正道主义思想为基石，确立了人与人的关系，人与宗教的关系，人与大自然的关系，人与万佛万神的关系。从而规划出了一个全新的人类未来发展的趋势。这是在人类面临最黑暗的时刻必须要做出的抉择。
 
-
-
-**前国务卿迈克·蓬佩奥**： 
-我们必须恢复重视家庭和努力工作的美国梦。 我们共和党可以为此领路。 我们必须团结起来，拯救我们的美国生活方式。
-
-
-
-> We must have a restoration of the American Dream that values family and hard work. Our party can lead the way. We must unite and save our American way of life.
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512811327743574016?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本**： 
-乌克兰正在发生的事情令人作呕。 俄罗斯为无辜、受恐吓的乌克兰人设立了“过滤营地”——西方不能坐视不管。
-
-
-
-> What’s happening in Ukraine is sickening. Russia has set up ‘filtration camps’ for innocent, terrorized Ukrainians — the West cannot sit back silently.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512894495116955649?ref_src=twsrc%5Etfw)
-
-
-
-**众议院共和党**：
-拜登以牺牲消费者和我们的国家安全为代价，在他的反能源议程上加倍下注：
-－向独裁者和外国对手乞求石油
-－将我们的战略石油储备消耗到40年来的最低点
-－提议对国内生产征收新税
-
-
-
-> Biden is doubling down on his anti-energy agenda at the expense of consumers and our national security:
-> 
-> ❌Begging dictators & foreign adversaries for oil
-> ❌Depleting our Strategic Petroleum Reserve to the lowest point in 40 years
-> ❌Proposing new taxes on domestic production
-> — House Republicans (@HouseGOP) [April 9, 2022](https://twitter.com/HouseGOP/status/1512795466546696194?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-信仰激发无畏； 这是引导乔治华盛顿走向胜利的原因。 我们都必须让我们的信仰引领我们。 造物主就是我们的向导。
-
-
-
-> Faith imbues fearlessness; it is what guided George Washington to victory. We must all let our faith lead us. And The Creator to be our guide. [pic.twitter.com/QRwEuG7Og5](https://t.co/QRwEuG7Og5)
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512837782779187200?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·沃尔茨新闻室**： 
-华尔兹议员与同事国会议员一道，写信敦促司法部长加兰，通过任命一名特别顾问来监督针对亨特拜登与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和其他外国政府交易的调查，以确保调查能公平客观地进行。 【附信函】
-
-
-
-> Rep. Waltz joined fellow members of Congress in a letter urging Attorney General Garland to ensure a fair & objective investigation by appointing a Special Counsel to oversee an investigation into Hunter Biden’s dealings with the Chinese Communist Party and other foreign govts. [pic.twitter.com/EJCN5j7bhL](https://t.co/EJCN5j7bhL)
-> — Congressman Waltz Press (@RepWaltzPress) [April 9, 2022](https://twitter.com/RepWaltzPress/status/1512858484580122624?ref_src=twsrc%5Etfw)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
