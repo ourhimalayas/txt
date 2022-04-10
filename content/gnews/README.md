@@ -15,80 +15,80 @@
 
 ---
 
-### [【G时新闻】美国正视“封控灾难” ,正式批准驻华使团自愿撤离](/content/gnews/1/README.md)
+### [中共国疫情一波未平一波又起](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [习近平:中国防疫应得一枚金牌！预示“上海模式”会遍地开花](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [黑夜](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【G时新闻】美国正视“封控灾难” ,正式批准驻华使团自愿撤离](/content/gnews/4/README.md)
  ` G-时新闻`
 
-### [布查镇大屠杀惨剧将成俄乌战争转折点](/content/gnews/2/README.md)
+### [布查镇大屠杀惨剧将成俄乌战争转折点](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [基辅斯拉夫福音神学院院长死于乌克兰布查屠杀](/content/gnews/3/README.md)
+### [基辅斯拉夫福音神学院院长死于乌克兰布查屠杀](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
 
-### [玫瑰余香](/content/gnews/4/README.md)
- ` 纽约香草山MOS03`
-
-### [乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（上）](/content/gnews/5/README.md)
+### [乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（上）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英首相约翰逊指责普京并决定追加对乌军事援助](/content/gnews/6/README.md)
+### [英首相约翰逊指责普京并决定追加对乌军事援助](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳媒报道：感染中共病毒的人患2型糖尿病风险增加](/content/gnews/7/README.md)
+### [澳媒报道：感染中共病毒的人患2型糖尿病风险增加](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [2022澳洲联邦预算：赢家和输家（四）](/content/gnews/8/README.md)
- ` 澳喜农场`
-
-### [COVID-19疫苗副作用集萃（2022.4.10）&#8211;注射新冠疫苗后高烧不退](/content/gnews/9/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.10）&#8211;注射新冠疫苗后高烧不退](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [因中国经商环境恶化等影响，未来韩国芯片业务或逐步转向美国](/content/gnews/10/README.md)
+### [因中国经商环境恶化等影响，未来韩国芯片业务或逐步转向美国](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [无知](/content/gnews/11/README.md)
+### [无知](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [COVID-19疫苗副作用集萃（2022.4.10）&#8211;注射新冠疫苗得了过敏性皮炎](/content/gnews/12/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.10）&#8211;注射新冠疫苗得了过敏性皮炎](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国国务院批准美国驻上海总领馆非紧急雇员以及家自愿撤离](/content/gnews/13/README.md)
+### [美国国务院批准美国驻上海总领馆非紧急雇员以及家自愿撤离](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大午集团遭中共“侵吞”后，其旗下资产将被公开拍卖](/content/gnews/14/README.md)
+### [大午集团遭中共“侵吞”后，其旗下资产将被公开拍卖](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国承诺对乌克兰提供支持并加大力度制裁俄罗斯](/content/gnews/15/README.md)
+### [英国承诺对乌克兰提供支持并加大力度制裁俄罗斯](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [导弹在拥挤的乌克兰火车站造成至少52人死亡](/content/gnews/16/README.md)
+### [导弹在拥挤的乌克兰火车站造成至少52人死亡](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [广州连夜赶建琶洲会展馆方舱医院](/content/gnews/17/README.md)
+### [广州连夜赶建琶洲会展馆方舱医院](/content/gnews/18/README.md)
  ` 波士顿五月花农场金融部`
 
-### [俄乌双方停战谈判敷衍指责，共识机会减弱](/content/gnews/18/README.md)
+### [俄乌双方停战谈判敷衍指责，共识机会减弱](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜白宫：美政府正密切关注上海封城措施](/content/gnews/19/README.md)
+### [有声｜白宫：美政府正密切关注上海封城措施](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“原谅我”悲伤不绝的母亲、遗体成排亲属难寻，在众多平民遇害的乌克兰布查](/content/gnews/20/README.md)
+### [“原谅我”悲伤不绝的母亲、遗体成排亲属难寻，在众多平民遇害的乌克兰布查](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [北京朝阳：疫情升级 香河等地被封](/content/gnews/21/README.md)
+### [北京朝阳：疫情升级 香河等地被封](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [【G时新闻】中共国失败抗疫政策侵犯基本人权](/content/gnews/22/README.md)
+### [【G时新闻】中共国失败抗疫政策侵犯基本人权](/content/gnews/23/README.md)
  ` G-时新闻`
 
-### [【G时新闻】中共核武库的惊人扩张令世界安全面临更大风险](/content/gnews/23/README.md)
+### [【G时新闻】中共核武库的惊人扩张令世界安全面临更大风险](/content/gnews/24/README.md)
  ` G-时新闻`
 
-### [有声｜普京的财政或仍能承受欧洲能源制裁](/content/gnews/24/README.md)
+### [有声｜普京的财政或仍能承受欧洲能源制裁](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [中共“抢钱、侵占财产” 北京新发地将接手大午集团](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [04/09每日播报｜社媒消息: 杰森米勒 PLANMEDIC](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`

@@ -2,33 +2,28 @@
 ---
 
 
-## 玫瑰余香
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2321445/)
+## 【G时新闻】美国正视“封控灾难” ,正式批准驻华使团自愿撤离
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2321515/)
 
-作者：香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-13.png)
+##### 播  报：加拿大温哥华扬帆农场 -【文雅】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+美国驻华大使馆和领事馆4月9日发布声明称，鉴于新冠病例激增以及中共应对措施带来的相关限制的影响，美国国务院于2022年4月8日批准了非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领事馆领区自愿撤离。此外，伯恩斯大使及其他官员已向中共表达对“疫情、中共管控措施”的关切。 声明提到美国务院最新的旅游建议，称美国公民前往中共旅游，应考虑到“父母与子女被分开的风险”建议美国公民不要前往吉林、上海、香港等地。
 
-残红作妖民遭罪
-全国核酸诸荒唐
-若是有人起抗议
-罪名成立不配合
-抓捕拘留任魔行
-地方若存丝良知
-形式进行惠民心
-赠人玫瑰留余香
-他年抬头共安好
+盖特链接：[https://www.gettr.com/post/p14fn1p585a](https://www.gettr.com/post/p14fn1p585a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-- 审核/编辑/发稿:qiutian（邱甜）
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

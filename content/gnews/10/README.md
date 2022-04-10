@@ -2,41 +2,48 @@
 ---
 
 
-## 因中国经商环境恶化等影响，未来韩国芯片业务或逐步转向美国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321385/)
+## COVID-19疫苗副作用集萃（2022.4.10）&#8211;注射新冠疫苗后高烧不退
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321392/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-整理/编辑：围剿维尼熊
+整理/编辑：gardeniahu
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/72A78A74-FC01-408D-82B1-28C053CE08B6.jpg)图片来源：中关村在线
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+原文博主：Kayla
 
-根据美国之音当地时间4月9日报道，多则消息称，美国寻求同韩国、日本、台湾等构建芯片供应链，以降低对中国的依赖。
+帖子原文：
 
-韩国《首尔经济》上月底援引业界和政府消息独家报道，拜登政府最近向韩国政府和主要半导体企业提议建立“Chip4”芯片供应链同盟，日本、台湾也收到了相同提议。
+**疫情|新冠疫苗副作用   打完新冠疫苗后高烧不退**
 
-报道分析称，这一提议包含了建立“半导体壁垒”、将中国排除在全球供应链之外的用意。
+大家打第三针疫苗了吗？来救救孩子吧555555
 
-芯片是拜登政府供应链重组计划的四大重点领域之一。上月底，美国参议院通过了为本国芯片制造业提供520亿美元补贴的法案。
+问一下大家打辉瑞的都打第三针了吗？副作用大吗？
 
-另外，美国在亚洲地区的伙伴日本、韩国、台湾均为重要的半导体产业基地，分别在材料、零部件及设备，存储芯片，代工领域领先。若三方与拥有芯片制造源头技术的美国建立芯片同盟，不仅可建立起几乎覆盖全产业、稳定可靠的外部供应链，还能对正以举国体制发展半导体产业的中国形成遏制。
+看了我老公打辉瑞booster之后几天的反应吓得我不敢打了…高烧不退在床上躺了三天直接起不来床。
 
-韩国国立釜庆大学中国学系教授、研究韩中经贸的徐畅培在电话采访中表示，韩国在半导体供应链上并不完全依赖中国，三星电子斥巨资在美国得州修建第二工厂；此前还拒绝了中国政府关于技术合作的提议。
+感觉真得了新冠可能也不过如此？有没有得过新冠的人来现身说法一下啊。
 
-事实上，对于韩国半导体行业而言，中国和美国分别代表着现在和未来，重要性不相上下。
+另外我打完第二针腋下长了一个鸡蛋大的包24小时疼一两个月才消…我真的害怕了救救孩子吧我到底要不要打第三针啊。
 
-中国是韩国半导体行业当前重要的生产基地和出口对象国。不过随着近期中国经商环境的恶化、地缘政治风险等因素，未来韩国企业的业务重心或逐步转向美国。
+－－－－分割线－－－－
 
-参考链接：[传韩国拒绝美国芯片同盟提议 韩学者：韩政府目前并未下结论](https://www.voachinese.com/a/south-koreas-attitude-toward-chip4-20220408/6521926.html)
+我真的无语了我就问一下大家打完第三针有没有副作用某些人上来就给我扣帽子”危言耸听、传播谣、不负责任、唯恐天下不乱、境外势力…”你们成语会得蛮多的真牛真厉害
 
-*发布：tianzhihuan*
+从始至终我只是说我打了辉瑞有副作用有些人为什么跳脚啊？你们有辉瑞的股份啊？
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+#疫苗#辉瑞#辉瑞booster #辉瑞第三针
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1103.png)图片来源：小红书
+参考链接：[新冠疫苗后高烧不退](https://www.xiaohongshu.com/discovery/item/6247392d00000000210377e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649520433)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
