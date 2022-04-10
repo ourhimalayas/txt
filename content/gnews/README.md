@@ -15,37 +15,37 @@
 
 ---
 
-### [Facebook母公司Meta想推出“扎克币”](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加中外长通电话，但双方各执一词](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [美国出台新一轮对俄金融制裁](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/5/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|前线战友真诚付出赢得波兰华人的信任](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的](/content/gnews/9/README.md)
+### [4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声｜泽连斯基演讲时 芬兰领空和网络遭俄军攻击](/content/gnews/10/README.md)
+### [Facebook母公司Meta想推出“扎克币”](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加中外长通电话，但双方各执一词](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [美国出台新一轮对俄金融制裁](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/6/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜因制裁俄罗斯3月通胀率飙升至16.7%](/content/gnews/11/README.md)
+### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [有声|前线战友真诚付出赢得波兰华人的信任](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声｜泽连斯基演讲时 芬兰领空和网络遭俄军攻击](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
 ### [20220408郭文贵大直播 ：美台同盟官方明确定性中共攻台只有死路一条](/content/gnews/12/README.md)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 12:05 AM (UTC)`
+
+<br/>4/9/2022 Miles Guo’s GETTR: According to our fellow fighters from mainland China, the CCP has long been prepared to let the Lao Baixing suffer from starvation, with the purposes being making the Chinese people “more grateful to the CCP” and shifting the blame for social inequality and disasters to the rich people so that the CCP can rob their assets and eliminate them.<br/><br/>4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭<br/>
+![img](https://media.gettr.com/group5/getter/2022/04/10/00/2146e85a-b368-9a95-387f-b9a25056bc2f/out.jpg)
+
+---
+
 `@miles 4/9/2022 11:30 PM (UTC)`
 
 2022.04.09 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -149,13 +156,6 @@
 
  4月9号：准备将领导．征服全世界的中国共产党……一夜之间将世界的最伟大的国际城市，上海．变回了石器时代，上海太惨了……，我R你八辈祖宗共产党……
 ![img](https://media.gettr.com/group28/getter/2022/04/09/12/8fcbd6e4-22d2-71af-f64e-d8ac25b305e2/out.jpg)
-
----
-
-`@miles 4/9/2022 11:59 AM (UTC)`
-
- 4月9号：尊敬的战友们好．真正的疫苗灾难即将到来……五月中下旬将全面开始……大家务必做好心理和物理准备，一切都已经开始！
-![img](https://media.gettr.com/group37/getter/2022/04/09/11/37b08779-f036-96c1-0d65-2d6eff00fe0e/f7dbb7860493f5ea9bfa019a7c86510f.jpg)
 
 ---
 
