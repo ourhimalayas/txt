@@ -2,32 +2,39 @@
 ---
 
 
-## 加拿大央行四月份将加息50个基点
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320792/)
+## 英国首相约翰逊访问乌克兰并会见泽伦斯基总统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2320812/)
 
-##### 加拿大温哥华扬帆农场 – 采编： 文莱               编译： 晨熹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/reuters.jpg)图片来源：reuters
-据多伦多太阳报援引路透社4月6日报道，加拿大央行将于4月13日将隔夜利率上调50个基点，此外他们还大幅上调了今年的通胀预期。
+撰稿：东京樱花团 文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+据NHK4月10日新闻消息，英国首相约翰逊于9日访问了乌克兰首都基乌，并会见了总统泽伦斯基。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-183.jpg)照片来源：本文链接
 
-此举是为了控制供应链中断以及俄乌战争引发的能源成本上涨等导致的通胀飙升。预计央行在未来几个月会以比预期更快的速度加息。
+这次访问是在没有通知媒体等的情况下进行的，约翰逊总理用英语与出来迎接的泽伦斯基总统交换了问候。
 
-据悉，这是自3月份加息25个基点后的再一次加息。五大银行还预计6月将再次加息0.5个百分点。央行副行长莎朗·科齐基上月末曾表示，央行准备采取“有力”行动，通过加息使通胀回到央行目标。
+据英国首相办公室称，在会晤期间，约翰逊告知泽连斯基，英国将向乌克兰追加提供进一步的军事援助，包括120辆装甲车和一套反舰导弹系统。
 
-加拿大央行周一发布的一项调查显示，在劳动力严重短缺和供应链困难的情况下，有创纪录数量的加拿大企业面临产能压力。
+8日，即访问乌克兰的前一天，约翰逊首相宣布了对乌克兰提供价值1亿英镑的包括反坦克导弹在内的军事援助，
 
-新闻来源：[https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+在会后发布的声明中，约翰逊总理强调，普京总统在布卡、伊尔平和其他地方的所作所为是犯下了战争罪行，并指出 “俄罗斯军队的撤出是一种战术，是试图增加对顿巴斯地区和乌克兰东部的压力”。
 
-上传/发稿 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+约翰逊总理重申，打算与其他国家合作，进一步加强对俄罗斯的经济制裁，并考虑提供军事支援。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+泽伦斯基总统感谢英国的支持，并强烈呼吁其他各国：”我们需要以制裁的形式对俄罗斯施加压力。而现在是对俄罗斯能源资源进行全面禁运的时候了”。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+约翰逊总理与泽伦斯基总统一起巡视了基乌市，呼吁市民们全力支持乌克兰人民。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+信息来源：[英 ジョンソン首相 ウクライナ訪問しゼレンスキー大統領と会談](https://www3.nhk.or.jp/news/html/20220410/k10013575271000.html)
+
+校对：东京樱花团/喜马拉雅
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

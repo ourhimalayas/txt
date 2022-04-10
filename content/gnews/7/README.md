@@ -2,39 +2,30 @@
 ---
 
 
-## 英国首相约翰逊访问乌克兰并会见泽伦斯基总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2320812/)
+## 自由党和新民主党如何推动自由车队纵火骗局
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320815/)
 
-撰稿：东京樱花团 文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-据NHK4月10日新闻消息，英国首相约翰逊于9日访问了乌克兰首都基乌，并会见了总统泽伦斯基。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-183.jpg)照片来源：本文链接
+##### 加拿大温哥华扬帆农场 – 采编:文莱/编译:晨熹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/truenorth.jpg)图片来源：truenorth
+据【真北方】4月7日报道，在渥太华警方周四发表的，2月6日公寓楼纵火案声明中表明，该案件与自由车队抗议活动无关。那么“自由车队涉嫌企图烧毁一栋满是被困居民的建筑物”这种说法从何而来？
 
-这次访问是在没有通知媒体等的情况下进行的，约翰逊总理用英语与出来迎接的泽伦斯基总统交换了问候。
+渥太华市长吉姆·沃森是首先将事件归咎于车队的人之一。其后，自由党和新民主党议员，以及传统媒体继续不断反复暗示抗议者参与了这起事件。然后政府再依据这些社交媒体的虚假报道来采取行动。
 
-据英国首相办公室称，在会晤期间，约翰逊告知泽连斯基，英国将向乌克兰追加提供进一步的军事援助，包括120辆装甲车和一套反舰导弹系统。
+这一轮抹黑行动，最终为特鲁多首次使用《紧急情况法》的正当性，提供了关键性依据。同时也可能为政府今后经常使用紧急权力来平息民众抗议活动开创了先例。
 
-8日，即访问乌克兰的前一天，约翰逊首相宣布了对乌克兰提供价值1亿英镑的包括反坦克导弹在内的军事援助，
+新闻来源：[https://tnc.news/2022/04/07/dzsurdzsa-how-the-liberals-and-ndp-pushed-the-arson-hoax-about-the-freedom-convoy/](https://tnc.news/2022/04/07/dzsurdzsa-how-the-liberals-and-ndp-pushed-the-arson-hoax-about-the-freedom-convoy/)
 
-在会后发布的声明中，约翰逊总理强调，普京总统在布卡、伊尔平和其他地方的所作所为是犯下了战争罪行，并指出 “俄罗斯军队的撤出是一种战术，是试图增加对顿巴斯地区和乌克兰东部的压力”。
+上传/发稿 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-约翰逊总理重申，打算与其他国家合作，进一步加强对俄罗斯的经济制裁，并考虑提供军事支援。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-泽伦斯基总统感谢英国的支持，并强烈呼吁其他各国：”我们需要以制裁的形式对俄罗斯施加压力。而现在是对俄罗斯能源资源进行全面禁运的时候了”。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-约翰逊总理与泽伦斯基总统一起巡视了基乌市，呼吁市民们全力支持乌克兰人民。
-
-信息来源：[英 ジョンソン首相 ウクライナ訪問しゼレンスキー大統領と会談](https://www3.nhk.or.jp/news/html/20220410/k10013575271000.html)
-
-校对：东京樱花团/喜马拉雅
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

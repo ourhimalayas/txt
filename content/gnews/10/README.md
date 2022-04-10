@@ -2,30 +2,38 @@
 ---
 
 
-## 卑诗省仍在解雇未接种中共病毒疫苗员工
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320756/)
+## 文贵先生盖特精要- 2022/04/09
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2320764/)
 
-##### 加拿大温哥华扬帆农场 – 采编： 文莱                       编译： 晨熹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/worthypolitics.com_.jpg)图片来源：worthypolitics.com
-据【真北方】4月7日报道， 在世界已经对中共病毒各项限制令不再那么严苛的情况下，卑诗省却仍然执行严厉的疫苗政策，当地政府继续解雇不遵守疫苗接种规定的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1088.png)[盖特链接](https://gettr.com/post/p14ekwj638b)
 
-该省维多利亚市却宣布将于4月8日取消对市政雇员疫苗接种要求，据悉其他城市也在做同样考虑。同时法院对强制政策和不当解雇的诉讼也仍在继续，有些诉讼甚至在开始前，相关政策就已经失效。
+- 中共将武器运往塞尔维亚，“红旗导弹”运往中东、南亚、东欧等地区（伊朗、古巴、吉布提、沙特、叙利亚、突尼斯）视为向美国和欧洲开战。忽视国内多地疫情爆发，“绑架”14亿中国人对抗世界。
+- 国内粮食危机即将到来。
+- 上海危机持续，战友们在国内“互帮互助”，国内不同领域战友冒着风险向七哥传递消息，等到时机合适再公布。七哥和新中国联邦不会忘记战友们的付出。
+- 全球排华“冒出”苗头。委内瑞拉战友家门被焊，西方国家出现对华人开枪现象，在非洲对外援助单位的家人被当地人强奸领导不予宣扬。
+- 香港、郑州、上海、长春等地死亡数字惊人。有人向中央汇报上海死人情况，中央回应–“上海死几个人是必要的，让人民忆苦思甜”。中央普遍认识–中国人保持在温饱线上，才会珍惜党的恩情。
+- 据说普京得到前线汇报–俄军所到之处全是掌声。台湾“卖台贼”向中共传递信息–台湾内部人民期待中共收复，使台湾实现经济腾飞。
+- 中国人对香港运动、郑州水灾、世界疫苗灾难的冷漠，正“迎来”报应。中国人应少点暴虐和仇恨，从中共的洗脑中醒来。
+- 明天七哥将参加《七哥大直播》。
 
-去年，该省不仅继续扩大疫苗接种范围，还解雇了因此而被迫休假的公职人员。省卫生部本周透露，它已经解雇了数千名医护人员，尽管该系统面临严重的人员短缺。
 
-新闻来源：[https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
+*听写：call me uncle*
 
-编辑/发稿 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+校对: 乐禧禧
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
