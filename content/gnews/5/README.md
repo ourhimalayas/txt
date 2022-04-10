@@ -2,30 +2,28 @@
 ---
 
 
-## 疫情｜上海日增26855宗本土个案 副市长哽咽道歉 市民负评如潮瘫痪评论区
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2320704/)
+## 加拿大宣布投资150亿美元吸引科技投资
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320788/)
 
-**图/文｜CP**
-**发布时间｜10/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海日增26855宗本土個案-副市長哽咽道歉-市民負評如潮癱瘓評論區.jpg)
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/peterwatsonivestments.com_.jpg)图片来源：peterwatsonivestments.com
+加拿大政府的一位高层消息人士在今年财政预算案公布的前一天(4月7日)表示，为吸引民间对新绿色技术的投资，加拿大将在5年内向增长基金(Growth Fund)投入150亿加元。政府将争取每1美元的公共资金吸引3美元的私人投资。特鲁多领导的自由党政府的目标是利用这笔资金来支持那些没有公众支持可能无法实现的项目。国际或国内的私人投资者将有资格使用它。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+路透社(Reuters)本周报道称，加拿大将在预算中投资一项关键的矿产战略。至少20亿美元的投资将是单独的。另外，加拿大广播公司周三援引消息人士的话称，在俄罗斯入侵乌克兰后，特鲁多政府可能在预算中增加80亿加元的国防开支，用于北美防空司令部(NORAD)的升级、为乌克兰购买武器以及武装部队的装备短缺。
 
+新闻链接：[https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
-上海市衞健委通报，截至4月9日24时，上海单日新增26855宗新冠病毒本土个案，再创新高。当局昨日在全市范围内又展开了一次全员核酸检测，计划依检测结果按风险程度划分三区进行阶梯式管理，包括封控区、管控区和风险最低的防范区。
-
-上海市副市长宗明在疫情防控记者会上承认当局有不少工作做得不够，并语带哭腔承诺会尽全力改进，惟道歉不获民众接受，上海市民认为“讲一套、做一套”，批评当局“虚伪”、“作秀”的言论瘫痪评论区。
-
-另外，美国国务院日前宣布，因应上海新冠病毒疫情严峻容许驻上海总领事馆非紧急人员及家属可自愿以“授权撤离”方式离开。
-
-惟有被封控的外籍人士认为，现在连门口都出不去 ，遑论回国。更斥责国际社会不仅对正于上海发生的人道危机不闻不问，对本国公民一样不予理会，如不是得到部分上海市民的帮助一起团购物资，恐怕早已饿死。
-
-来源｜上海发布
-
+上传/发稿 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

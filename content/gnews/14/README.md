@@ -2,32 +2,29 @@
 ---
 
 
-## 俄乌谈判中乌方改变谈判立场
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320582/)
+## 因中共清零政策：美国让上海领馆部分人员撤离
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320604/)
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/infinitysolutions.com_.jpg)图片来源：infinitysolutions.com
-网络新闻媒体【美国信仰】7日报道，俄罗斯外交部长拉夫罗夫周四称，乌克兰最新提出的建议，偏离了上周在土耳其双方协商时的轨道。他指责乌克兰破坏和平进程，拖延时间并继续采取敌对行动。他同时称美国可能参与了建议修改，美国及其盟友控制了乌克兰政权并推动泽伦斯基总统继续采取敌对行动。
+**撰稿：日本东京方舟农场  子辰**
 
-乌克兰的新建议，没有明确地将克里米亚排除在其安全协议之外，而是使用了有效控制的模糊措辞。2014年克里米亚事件后世界上大多数国家仍承认其是乌克兰领土。
+4月9日，面对中共执意清零封锁之际，美国让其在上海领馆的部分工作人员撤离，同时警告要去中共国旅游的美国公民慎行。
 
-基辅希望未来在普京和泽伦斯基的双边会议上讨论这个问题，但拉夫罗夫强调克里米亚的地位不在讨论之列。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-178.jpg)（图片来自大纪元）
 
-评：布查惨案已完全改变俄乌战争的性质。乌克兰总统表示，乌克兰不接受除胜利以外的任何结果。
+自3月以来，上海的Covid-19中共病毒已有超过23,600名新增感染者，其中1,015人被记录为有症状，而22,609人则没有症状。但因中共一贯瞒疫，真实数字肯定更高。
 
-新闻链接：[Russia Accuses Ukraine of Backpedaling in Peace Talks](https://americanfaith.com/russia-accuses-ukraine-of-backpedaling-in-peace-talks/)
+目前，上海大约2,600万居民被分阶段封锁，引发次生灾难及人道危机。鉴于此，美国大使馆发言人在一份声明中说，“由于Covid-19病例激增以及相关应对措施所带来的限制影响，美国国务院现允许非必要员工离开其在上海的领事馆。”同时警告想去中共国旅行的本国公民三思而后行。
 
-上传/发稿 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+此外，还有法国和意大利驻华领事馆也纷纷警告他们在上海的公民，避免随着中共当局执行的遏制措施，发生妻离子散或骨肉分离的恐怖一幕。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+中共坚持要在全国实施清零政策，就是要向全球展示其所谓“优越性”，孰不知，这套政策做法令国际大跌眼镜外，更是进一步认清了独裁统治的本质。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+参考链接：
+[https://www.epochtimes.com/gb/22/4/9/n13707038.htm](https://www.epochtimes.com/gb/22/4/9/n13707038.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
