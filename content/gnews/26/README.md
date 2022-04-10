@@ -2,29 +2,22 @@
 ---
 
 
-## 俄导弹袭击乌克兰火车站致50平民丧生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2318796/)
+## 俄乌局势｜英国向乌克兰提供重型武器
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2318964/)
 
-作者：自由信仰
+编辑：波士顿五月花—-思澈
 
-当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
+英国首相鲍尔斯•约翰逊在基辅与泽连斯基会面向乌克兰提供坦克，反舰导弹等予以支持
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1BC9AE34-B754-4A92-BD27-02DED0DC7C73.jpeg)
 
-据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
+根据英国首相鲍里斯-约翰逊办公室提供的信息，英国将向乌克兰赠送120辆装甲车和价值1.3亿英镑的反舰导弹、防空导弹和800枚反坦克导弹。
 
-另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
+素材来源：[https://english.alarabiya.net/News/world/2022/04/09/UK-s-PM-in-Ukraine-offers-armored-vehicles-anti-ship-missiles](https://english.alarabiya.net/News/world/2022/04/09/UK-s-PM-in-Ukraine-offers-armored-vehicles-anti-ship-missiles)
 
-参考链接：
-1. [Fleeing Ukraine women and children among the dozens dead in Russian strike on Kramatorsk train station](https://www.thetimes.co.uk/article/russian-atrocities-in-borodyanka-much-worse-than-bucha-warns-zelensky-tfmljqp9d)
-2. [U.S. believes Russia used short-range ballistic missile in railway station strike -U.S. official](https://www.reuters.com/business/aerospace-defense/us-believes-russia-used-short-range-ballistic-missile-railway-station-strike-us-2022-04-08/)
+*发布：思澈*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
 
  
 
