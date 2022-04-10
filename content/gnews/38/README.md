@@ -2,12 +2,18 @@
 ---
 
 
-## 约翰逊在突访基辅时承诺提供支持以使乌克兰不再被入侵
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2322792/)
+## 独裁者毁灭世界的心里分析
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322801/)
 
-04/09/2022 鲍里斯·约翰逊在对基辅的突然访问中赞扬了乌克兰总统泽伦斯基的领导能力。在新闻发布会上，约翰逊表示，英国准备继续每周加强对俄罗斯的制裁，并表示 “我们将提供支持，使乌克兰永远不会再被入侵”
+文贵大直播20220410
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：文复（达芬奇）麦克阿sir
+
+书法：沙漠之花（香草山）
+
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-9.png)
+*发布：Theodosia*
 
  
 

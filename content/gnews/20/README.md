@@ -2,19 +2,29 @@
 ---
 
 
-## 文贵大直播 4/10 中共在上海疯狂行动的背后真相
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2323628/)
+## 有声|Jason Miller先生祝贺Elon Musk加入Twitter
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323667/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SharedScreenshot.jpg)图片来源 GETTR
-上海所谓疫情，人道灾难频频，让世界惊愕；上海人民痛苦不堪但仍然不明就里。一个国际知名大都市已近崩溃边缘，然而无人知晓中共如此疯狂的真正原因。爆料革命发起人郭文贵先生在4月10日的文贵大直播开宗明义地告知世界，这只是中国统治世界“大棋”中的一步。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+日前，Gettr总裁Jason Miller先生在接受媒体采访时说，社交媒体Twitter尽管拥有先进的技术，是一个伟大的工具，但其目前在世界上的品牌价值已经一降再降，现在是一个充满了政治癌症的地方。Elon Musk加入Twitter是一件值得庆贺的事情，Jason说自己永远不会对Elon Musk感到惊讶，从他制造特斯拉汽车到发射卫星到外太空甚至是火星，这个人拥有无限可能，不知他能否挽救Twitter。现在的大科技歧视以及审查制度是值得努力的方向。
 
-郭先生和其大直播团队一起，从中共百年盗国史谈起，通过对邪恶中共独裁者习近平变态心理的分析，对中共在上海疯狂暴行的来龙去脉做了全面解剖。文贵先生的精准情报和数据、事实让现场嘉宾惊愕、沉重万分。
+在提及Twitter和Gettr的竞争关系时，Jason Miller表示Elon Musk是一个直言不讳的人，自由在他身上更加显著，他想重新给用户言论自由，最大的挑战是重建这种自由文化。Twitter内部并不欢迎前总统川普重新回去，这就是对Elon的最大挑战，因为这能够将川普总统的支持者带回去，他们可以在Twitter重新拥有言论自由。无论是Gettr、Twitter、Rumble或者是川普总统的Truth Social，越多的社交媒体存在，越多的竞争存在，人们才会有更多的言论自由，避免被关掉账户，从而远离政治癌症。
 
-郭先生特别爆出中共独裁政权系列行动背后三大真相：首先是至今所有事情进展包括上海所谓“疫情”，都在习政权掌控中，社会压力测试的最终恶果，一定会推给老百姓；第二是从香港到上海，包括广州、深圳、郑州等，未来还会有水、电、交通等限制和灾难，最终会在世界范围内制造能源涨价、粮食涨价。一切完全都是极限战争的标准！最后，习政权志在中共二十大连任，改宪法、变党规，打造坚固习江山。所有这些没有不稳定、矛盾丛生的社会，没有饥饿、战争，习认为是不可想象的。
+文字版原文：[Jason Miller先生祝贺Elon Musk加入Twitter](https://gnews.org/zh-hans/2316627/)
 
-真相让人惊愕，让人不敢相信；上海和无数中国百姓还在蒙蔽、怯懦中，心存侥幸，沉默忍受……郭文贵先生告诉所有中国百姓，中共对中国人民实施的一次次暴行，已经突破人类生存的底线，如果中国人不捍卫自己的生存权，无人能救。 【来源链接】https://gettr.com/streaming/p14iwpvf134
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
