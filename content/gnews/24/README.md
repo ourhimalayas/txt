@@ -2,35 +2,28 @@
 ---
 
 
-## 普华永道：超过80%的央行曾考虑推出央行数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320343/)
+## 广州也推全民核酸檢測
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320361/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-翻译/编辑：小红帽
+4月9日，继上海之后，中共国再有一线城市将普筛，广东省会广州市11个区对所有民众进行病毒核酸检测。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/CBDC-fed-Karen.jpg)图片来源：www.pymnts.com
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-13.jpg)（图片来自美联社）
 
+据《中央社》报道，8至9日之间，广州白云、越秀、荔湾、海珠、花都、从化、番禺、南沙、黄埔、天河和增城共11区都发布全员核酸检测的通告。除荔湾区部分街道昨晚即开始普筛外，其他区域多从9日早开始。
 
-根据路透社4月9日报道，普华永道（PwC）的一份新报告显示，全球80%的央行正在考虑推出或已经推出央行数字货币（CBDC）。
+此外，广州也决定9日起对部分区域展开分级分类防控，白云区的密闭和半密闭场所全部停业，学校停止实体教学。
 
-这家四大会计师事务所在其第二份年度的普华永道全球CBDC指数报告中透露，争夺CBDC主导地位的竞争正在升温，即使更多的主要经济体扩大其数字主权货币的研究和开发，较小的经济体也取得了巨大的飞跃。
+据了解，过去两天，广州通报6例本土确诊，3例本土无症状感染者。
 
-该报告确定了两类CBDC–零售和批发。在零售方面，尼日利亚排名第一，得分为95分（满分100分）。这个西非国家去年推出了eNaira数字货币，成为第一个迈出这一步的非洲国家。尽管其数字钱包在推出时出现了最初的故障，但eNaira已经开始运行。然而，采用率一直低于预期，甚至国际货币基金组织（IMF）声称，eNaira有可能被用来洗钱和资助恐怖主义。
+另外，自3月底因疫封控已进行多轮筛检的上海于当地今早宣布，拟再次普筛，并根据结果实施分区差异化防控。
 
-其次是巴哈马，在2020年10月推出了世界上第一个CBDC。它被称为 “沙币”，现在已经拥有了第一张与其关联的借记卡。
+参考链接：
+[https://www.cna.com.tw/news/acn/202204090054.aspx](https://www.cna.com.tw/news/acn/202204090054.aspx)
 
-中共国排名第三，牙买加、东加勒比、乌克兰、乌拉圭、泰国、瑞典和韩国分别位于前十名。
-
-资料来源：[PwC: More than 80% of central banks have considered launching CBDC](https://coingeek.com/pwc-more-than-80-of-central-banks-have-considered-launching-cbdc/)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布： 文曦
 
  
 

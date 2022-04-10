@@ -2,39 +2,43 @@
 ---
 
 
-## 墨西哥表示不接受俄罗斯入侵乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320331/)
+## 乌克兰官员说俄罗斯军队摧毁了几十年的切尔诺贝利数据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320350/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-翻译/编辑：小红帽
+翻译：li yan li
+编辑：李易通
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_32724.jpeg)图片来源：www.japantimes.co.jp
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-18.png)图片来源：雅典娜设计组
 
 
-根据CNA4月10日报道，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔周六（4月9日）表示，墨西哥不接受俄罗斯入侵乌克兰。该视频消息在支持乌克兰冲突受害者的全球活动中发布。
+乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据。俄罗斯军队已撤出切尔诺贝利，但人们仍然担心他们受到“高剂量辐射”的影响。
 
-“我们不接受俄罗斯入侵乌克兰，因为我们曾经遭受过入侵，”洛佩斯·奥夫拉多尔说，他提到了西班牙、法国和美国对这个拉丁美洲国家的入侵。
+乌克兰国家禁区管理机构下属的公共委员会主席奥列克桑德·西罗塔周四在Facebook的一篇翻译文章中说：“这就是我们的切尔诺贝利文件和档案的所有印迹。我们几十年来一直在收集的东西就这样被扔进了垃圾桶。”
 
-“我们赞成以和平方式解决冲突。”
+该国家机构的代表发布了据称装满文件的垃圾桶的照片，以及显示监测该地区辐射水平的服务器丢失的图像。
 
-本周早期，加拿大总理贾斯汀·特鲁多曾邀请洛佩斯·奥夫拉多尔参加他与欧盟委员会主席乌尔苏拉·冯德莱恩召集的活动，为乌克兰难民和境内流离失所者筹集资金。
+俄罗斯军队上周离开了切尔诺贝利，军队将从首都基辅和北部城市切尔尼戈夫周边地区撤出，该地区距离切尔诺贝利约有55英里。
 
-虽然洛佩兹奥夫拉多尔周三表示他无法出席，但他曾承诺发布一段视频，以谴责俄罗斯的入侵行为。
+乌克兰周四告诉国际原子能机构，它已经开始“恢复对核电站的监管控制过程”。
 
-洛佩斯·奥夫拉多尔一直试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
+国际原子能机构说，它打算在可能的情况下尽快访问1986年核灾难的现场，以评估辐射情况。
 
-虽然他的政府支持联合国敦促俄罗斯从乌克兰撤军的投票，但墨西哥在周四联合国大会（UNGA）关于暂停俄罗斯在联合国人权机构的地位的投票中投了弃权票。
+乌克兰官员几周来一直警告说，没有保护措施的俄罗斯军队驾驶装甲车通过一个被称为“红色森林”的地区，掀起了放射性尘埃云。
 
-资料来源：[Mexico says it does not accept Russian invasion of Ukraine](https://www.channelnewsasia.com/world/mexico-says-it-does-not-accept-russian-invasion-ukraine-2618291)
+据报道，最近的无人机镜头显示，整个禁区内的“污染区”被挖出了壕沟。
+
+核监督机构说，它一直无法独立核实有关俄罗斯军队接受“高剂量辐射”的报告。
+
+参考链接：[乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据](https://www.foxnews.com/world/russian-troops-destroy-chernobyl-data-ukrainian-officials)
 
 发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

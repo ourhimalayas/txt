@@ -2,94 +2,46 @@
 ---
 
 
-## 东非遭遇几十年以来最严重的饥荒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320149/)
+## 一周疫情、疫苗信息回顾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2320201/)
 
-**翻译：【日本东京方舟农场】文龍杰克**
+作者：DC农场 – 火来；日本东京方舟农场 – 北极
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+2022年3月31日至4月6日，除中共国外，全球新增中共病毒确诊患者848万余例，同比上周的1078万余例下降了21.3%；此外，本周新增确诊死亡病例25,227例，同比上周的33105例下降了23.8%。本周已是连续第五周全球确诊病例和死亡病例持续负增长。
 
-由于迟迟没能降雨，庄稼在生长季节里也表现的毫无生机，肯尼亚、埃塞俄比亚和索马里的数百万人正面临饥荒到来。救援组织发出警告：如果不马上采取行动，东非将发生大饥荒。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-4.jpg)（图片来源：dw.com；干旱导致东非的大量牛群死亡。）
-在靠近南苏丹边境，肯尼亚北部图尔卡纳县的一个偏远小村庄Kapetadie正遭受干旱的肆虐。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-14.jpg)
 
-放眼尽是一望无际的龟裂土地，四处散落着饥渴而死的牛羊和其他家畜的尸体。
+截至4月6日，除中共国外，全球累计接种了82.2亿剂中共病毒疫苗，同比3月31日的接种数据增长了0.611%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-2-2.jpg)（图片来源：dw.com；肯尼亚图尔卡纳县是受灾最严重的地区之一。）
+3月31日，名利场网站发布报告，揭露了福齐和前NIH主任科林斯在疫情爆发初期，阻碍病毒溯源等众多细节。
 
-病房管理员Elijah Musekidor叹息： “我们的山羊，牛，骆驼和驴都死了”
+4月3日，计算生物学家杰西卡·萝丝历时九个月，分析疫苗副作用报告系统的数据，结果显示该报告系统中出现的大量健康问题很有可能与中共病毒疫苗有关。
 
-他说，村里唯一的水源也被污染了。村民和家畜都冒着染病和死亡的危险在此取水。
+4月4日，根据美国CDC的报告，美国目前72%的中共病毒新增感染病例为omicron亚变种病毒BA.2，专家预计这种BA.2将在接下来的两周成为主要病毒类型。
 
-在2021年的后半年，图尔卡纳的降雨量只有预期的10% 。
+夏威夷两名医生因之前传播使用硫酸羟氯喹和伊维菌素等药物治疗中共病毒，被投诉传播虚假信息，但是当地主管部门已于4月5日裁决，不会对这两名医生采取法律行动。
 
-草木枯萎，当地牧民已没有地方可以放牧。
+4月5日，美国联邦政府将停止单克隆抗体治疗“中共病毒”新型变种，因为目前的单克隆抗体疗法对BA.2变种病毒无效。
 
-地表水也几乎蒸发完了 – 根据联合国人道主义机构人道协调厅OCHA的数据显示，图尔卡纳80%的水源已干涸。
+参考链接：
 
-由于大量家畜营养不良导致死亡，市场上已停止了家畜交易。由于缺少降雨，当地的庄稼收成远低于肯尼亚其他地区的正常水平，食品价格正在飞涨。
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
+- [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
+- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-23..latest&amp;country=~World+excl.+China)
+- [“This Shouldn’t Happen”: Inside the Virus-Hunting Nonprofit at the Center of the Lab-Leak Controversy](https://www.vanityfair.com/news/2022/03/the-virus-hunting-nonprofit-at-the-center-of-the-lab-leak-controversy)
+- [Numerous Health Problems More Likely Because of COVID-19 Vaccines Than Coincidence: VAERS Data Analysis](https://www.theepochtimes.com/numerous-health-problems-more-likely-due-to-covid-19-vaccines-than-coincidence-vaers-data-analysis_4380017.html?utm_source=partner&amp;utm_campaign=ZeroHedge)
+- [Doctors cleared of COVID-19 misinformation allegations](https://www.mauinews.com/news/local-news/2022/04/doctors-cleared-of-covid-19-misinformation-allegations/)
+- [More contagious omicron BA.2 on track to displace other variants in U.S. in next two weeks](https://www.cnbc.com/2022/04/04/more-contagious-omicron-bapoint2-on-track-to-displace-other-variants-in-us-in-next-two-weeks.html)
+- [Feds halt monoclonal treatment out of omicron subvariant BA.2 concerns](https://abcnews.go.com/Health/feds-halt-monoclonal-treatment-ba2-concerns/story?id=83895502)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-4.jpg)（图片来源：dw.com）
 
-因此，肯尼亚抗灾部表示，图尔卡纳邦的90万人口中约有2/3的人口正面临饥荒。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-图尔卡纳水利局局长Vincent Palor说：由于多年的旱灾导致原本干旱的地区变得更加干旱。
+总编：飞虹
+编辑：文恩
+校正/发稿：海阔天空1
 
-他告诉德国之声：”我们这过去几年中都没有下雨，导致目前的现状变得更加严酷。”
-
-根据最近的一项调查表明，更糟糕的是，由于缺少零件无法对现有打井钻机进行日常的维护，该县的40%打井钻机已无法正常工作。
-
-**数百万人将面临大饥荒的威胁**
-
-许多东非的社区都面临着类似的命运，农民和牧民受到的打击最大，而且应对灾难的能力最低。
-
-由于持续的干旱，联合国预计在肯尼亚，埃塞俄比亚，厄立特里亚和索马里有1300万人正遭受饥荒，因为上述地区遭受了自1981年记录以来最严重的旱灾。
-
-救援组织担心，如果不能马上开展大规模的紧急援助，东非的局势将会进一步恶化。
-
-国际救援援助组织-乐施会警告说，如果援助不能到达最危机的地区，那么本次饥荒可能将很快上升为一场”人道大灾难”。
-
-乐施会国际执行董事Gabriela Bucher告诉美联社。”目前最残酷的现实是东非地区并不在全球救援的议程上”
-
-她说，今年东非将会有数十万人死于本次饥荒。
-
-**饥荒迫使索马里人逃离当地**
-
-在索马里，旱情加剧，从2021年12月到今天，受灾人数从320万人增涨到450多万人。
-
-饱受旱灾蹂躏的农村地区，很多家庭正逃往大城市去寻找食物和水源。
-
-在首都摩加迪沙郊区的Al-Hidaya灾民营地，哈利莫·阿里试图安慰她四岁的儿子。
-
-她全家从索马里南部到达营地，目前该营地已聚集了800多个家庭。
-
-阿里告诉德国之声”因为干旱严重，我们的奶牛和山羊都没了，”因为找不到水源，没办法我们只能决定离开。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-4.jpg)（图片来源：dw.com；哈利莫·阿里说，索马里南部的大干旱让她不得不逃离家乡。）
-
-**儿童们都营养不良**
-
-许多抵达营地的人都营养不良和身患疾病。
-
-营地主席兼社区领导纳迪福侯赛因说”这些从干旱地区过来的人都缺少食物，孩子们也患有贫血，麻疹和骨质酥松。
-
-他说越来越多的人从旱灾地区过来，再从营地中转去首都，很快营地也帮助不了越来越多的新灾民了。
-
-他告诉德国之声，“我们需要有拯救生命的方案措施”。
-
-索马里儿童救助会人道主义顾问亚丁·法拉赫说，由于干旱，该国约有671，000人正流离失所。
-
-2011年索马里大饥荒时，大约有25万人死亡，其中一半是儿童。
-
-在本次大旱灾中，超过约500万索马里人已面临严重的食物短缺。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-5-3.jpg)（图片来源：dw.com；遭受旱灾的索马里家庭正逃往希达亚境内的救助营。）
-
-注：凯特·海尔辛编辑，肯尼亚的Thelma Mwadzaya和索马里的Mohamed Odowa为本文做出了贡献。
-
-原文链接：
-[https://www.dw.com/en/east-africa-faces-worst-hunger-crisis-in-decades/a-61320250](https://www.dw.com/en/east-africa-faces-worst-hunger-crisis-in-decades/a-61320250)
-
-校对：妙喜小油鍋
-发布：文曦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
 
  
 

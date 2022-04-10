@@ -2,29 +2,30 @@
 ---
 
 
-## 因中共清零政策：美国让上海领馆部分人员撤离
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320604/)
+## 卑诗省仍在解雇未接种中共病毒疫苗员工
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320756/)
 
-**撰稿：日本东京方舟农场  子辰**
+##### 加拿大温哥华扬帆农场 – 采编： 文莱                       编译： 晨熹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/worthypolitics.com_.jpg)图片来源：worthypolitics.com
+据【真北方】4月7日报道， 在世界已经对中共病毒各项限制令不再那么严苛的情况下，卑诗省却仍然执行严厉的疫苗政策，当地政府继续解雇不遵守疫苗接种规定的人。
 
-4月9日，面对中共执意清零封锁之际，美国让其在上海领馆的部分工作人员撤离，同时警告要去中共国旅游的美国公民慎行。
+该省维多利亚市却宣布将于4月8日取消对市政雇员疫苗接种要求，据悉其他城市也在做同样考虑。同时法院对强制政策和不当解雇的诉讼也仍在继续，有些诉讼甚至在开始前，相关政策就已经失效。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-178.jpg)（图片来自大纪元）
+去年，该省不仅继续扩大疫苗接种范围，还解雇了因此而被迫休假的公职人员。省卫生部本周透露，它已经解雇了数千名医护人员，尽管该系统面临严重的人员短缺。
 
-自3月以来，上海的Covid-19中共病毒已有超过23,600名新增感染者，其中1,015人被记录为有症状，而22,609人则没有症状。但因中共一贯瞒疫，真实数字肯定更高。
+新闻来源：[https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
 
-目前，上海大约2,600万居民被分阶段封锁，引发次生灾难及人道危机。鉴于此，美国大使馆发言人在一份声明中说，“由于Covid-19病例激增以及相关应对措施所带来的限制影响，美国国务院现允许非必要员工离开其在上海的领事馆。”同时警告想去中共国旅行的本国公民三思而后行。
+编辑/发稿 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-此外，还有法国和意大利驻华领事馆也纷纷警告他们在上海的公民，避免随着中共当局执行的遏制措施，发生妻离子散或骨肉分离的恐怖一幕。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-中共坚持要在全国实施清零政策，就是要向全球展示其所谓“优越性”，孰不知，这套政策做法令国际大跌眼镜外，更是进一步认清了独裁统治的本质。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/9/n13707038.htm](https://www.epochtimes.com/gb/22/4/9/n13707038.htm)
-
-总编：老孙
-校对发布：爱放飞
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

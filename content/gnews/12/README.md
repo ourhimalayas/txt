@@ -2,30 +2,30 @@
 ---
 
 
-## 疫情｜上海日增26855宗本土个案 副市长哽咽道歉 市民负评如潮瘫痪评论区
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2320704/)
+## 加拿大2022年联邦预算新增支出560亿美元
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320830/)
 
-**图/文｜CP**
-**发布时间｜10/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海日增26855宗本土個案-副市長哽咽道歉-市民負評如潮癱瘓評論區.jpg)
+##### 加拿大温哥华扬帆农场 – 采编:文莱/编译:晨熹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/truenorth1.jpg)图片来源：truenorth
+据【真北方】4月7日报道， 特鲁多政府将继续扩大支出规模，2022年联邦预算新增560亿美元。自由党副总理兼财政部长克里斯蒂亚弗里兰周四向下议院提交了该预算文件。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+新增支出包括80亿美元国防开支，100亿美元经济适用房计划，以及对金融机构的进一步税收，其中国防开支新增资金将用于升级北美航空航天防御并购买更多武器支持乌克兰。自由党还将收入超过10亿美元的附加税提高了1.5%。
 
+联邦赤字预计在2021至2022年将达1138亿美元，尽管自由党声称明年他们能将赤字削减一半以上。加拿大的债务已超过1.11万亿美元，新增预算对全体加拿大人来说，将意味着更多的税收。
 
-上海市衞健委通报，截至4月9日24时，上海单日新增26855宗新冠病毒本土个案，再创新高。当局昨日在全市范围内又展开了一次全员核酸检测，计划依检测结果按风险程度划分三区进行阶梯式管理，包括封控区、管控区和风险最低的防范区。
+新闻来源：[https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/](https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/)
 
-上海市副市长宗明在疫情防控记者会上承认当局有不少工作做得不够，并语带哭腔承诺会尽全力改进，惟道歉不获民众接受，上海市民认为“讲一套、做一套”，批评当局“虚伪”、“作秀”的言论瘫痪评论区。
-
-另外，美国国务院日前宣布，因应上海新冠病毒疫情严峻容许驻上海总领事馆非紧急人员及家属可自愿以“授权撤离”方式离开。
-
-惟有被封控的外籍人士认为，现在连门口都出不去 ，遑论回国。更斥责国际社会不仅对正于上海发生的人道危机不闻不问，对本国公民一样不予理会，如不是得到部分上海市民的帮助一起团购物资，恐怕早已饿死。
-
-来源｜上海发布
-
+上传/发稿 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
