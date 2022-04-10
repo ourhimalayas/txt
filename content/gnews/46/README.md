@@ -2,39 +2,26 @@
 ---
 
 
-## 基金投资管理是合并还是分销更好
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2316888/)
+## 马斯克大量收购推特股份是想恢复言论自由
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2318503/)
 
-翻译/编辑：Rianna
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16495250161.png)Newsweek.com
+据福克斯4月9日报道，著名节目主持人，比尔·马赫（Bill Maher）在节目中说说，他支持马斯克加入推特； “我们不再生活在1980年了，推特是一个公共广场”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649502031814.jpg)图片来源：雅典娜设计组
+本周，马斯克购买了9.2%的推特股份，成为其最大股东。他加入董事会可能会对其政策产生影响，比如自由言论。纽约时报作者大卫·莱昂哈特（David Leonhardt） 说，“我们很快又要读到唐纳德·川普的推特了吗？”。
 
+马赫回应，这是一个 “艰难的过程” 因为当川普被从推特上踢出去，那里的情况确实有所好转，但这对 “言论自由不利”。因为他们会带着怨恨去其它社交媒体。然后联合起来反对我们这些媒体、大科技公司和大政府——这就是车队。就像那些在 “加拿大和全世界的车队”。
 
-对许多人来说，经验丰富的基金管理高管，通过多样化和增长来应对具有挑战性的行业动态，欢迎来到资金管理的残酷和压力不足的世界。
+自由派作家南希·麦克莱恩（Nancy MacLean）反驳了马赫，她认为推特对川普的审查没有违反宪法，因为第一修正案只适用于压制言论自由的政府，而不适用于私营公司。
 
-Perpetual以24亿美元的现金和股票方式收购竞争对手Pendal，这是基金管理集团如何通过收购寻求规模的最新引人注目的例子。
+马赫说，我们生活在一个不同的时代，推特如同一个 “公共广场”。否认某人的发言权，“等于是在说你没有言论自由的权利”。我们已经不是生活在1980年了，而是生活在一个由社交媒体控制的世界。所以社交媒体既不像是出版商，也不完全是私人公司，这就是为什么它如此棘手的原因”。
 
-尤其是因为当地国内股票负责人Pendal的Crispin Murray和Perpetual的Paul Skamavougeras被认为是市场上最有影响力的投资者之一，仅次于超级基金，有能力开绿灯或扼杀并购、重大战略决策和关键任命。
+在谈到新冠病毒时，马赫说，推特禁止谈论它是否来自实验室，就连拜登政府现在也承认了这一点。中共在武汉有一个实验室，但在推特不能讨论这个问题！“这太离谱了” 。马赫认为，这就是马斯克想在推特上解决的问题。
 
-在当地，VGI Partners和Regal Funds Management中两名澳大利亚最知名的对冲基金经理正计划合并，AMP刚刚以高达1.38亿美元的价格将其全球股票和固定收益业务出售给麦格理资产管理公司。Paradice Investment Management于12月将其一半的股份出售给Charter Hall。在此之前，去年3月，Yarra Capital收购了澳大利亚的所有Nikko资产管理公司。
+*责编：白夜*
 
-从纸面上来说，合并都是关于协同增效的，因为合并后的集团旨在降低营销、人力资源、客户服务、基金会计或风险和合规等重复共享服务职能的成本。Perpetual表示，它每年可以从这笔交易中切出约5000万美元。TMS资本投资组合经理本·克拉克说，这个问题可以追溯到另一个问题：他不确定上市基金管理模式是否继续有效。
-
-以2017年美国债券基金经理Janus和伦敦股票经理Henderson的合并为例，其中Perpetual的Adams是关键架构师之一。
-
-Perpetual不会冒险合并，而是收购者（这意味着它几乎没有空间在不提高债务水平的情况下移动要约价格）。投资团队不会被解散，并将保持自主权，当存在明显冲突时，分销团队将保持分离。
-
-那么，投资经理的成功是什么？至少有三个当务之急：顶级投资者必须拥有自主权；业务必须具有运营效率，以便额外资金带来利润；最后也许是最困难的是，基金必须能够增长。
-
-新闻来源：[基金管理投资合并股份](http://www.afr.com/business/banking-and-finance/asset-managers-turn-to-mergers-to-deliver-for-shareholders-20220408-p5abzm?btis)
-
-*发布：  tianzhihuan*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[来源](https://translate.google.com/?sl=en&amp;tl=zh-CN&amp;text=Joseph%20A.Wulfsohn&amp;op=translate)
 
  
 

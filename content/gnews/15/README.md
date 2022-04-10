@@ -2,51 +2,32 @@
 ---
 
 
-## 百年前兴起于上海的中共红魔百年后因上海饥民风雨飘摇
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2319741/)
+## 大直播后记：新中国联邦的国旗飘扬在麦迪卡的上空
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2319786/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城_副本.jpg)
-因疫苗灾难在中共国多产生了众多表观无症状感染者，地方政府在习太阳的动态清零之下制造了难以计数的人道灾难——求医无门、求食无门、求助无门，在目前物资供应还算充裕的情况下，粮食危机却已经提前在被封闭的各个城市和社区中预演，而最显著的莫过于时下之上海了。
+整理：文晋、Miles Sun
+编辑：Sadhu
 
-自中共这个舶来的红魔在中华大地扎根百年来，它控制思想、掠夺控制财富、毁灭传统，公民的基本权利被剥夺殆尽，中共建政七十余年来，这片土地上生生死死几十亿人一点一点地在不知不觉中退缩和忍让——
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-692.png)图片来源：雅典娜设计组
 
-雾霾，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
 
-地沟油，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+文葛：全球战友们，大家好！
 
-毒食品，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+大卫：声音非常好，我们可以看到，这个我们两位兄弟站在这个画面前，后面是我们的这个乌克兰前线麦迪卡的这个帐篷外，新中国联邦的国旗已经飘扬在麦迪卡的上空了。那么咱们这样，先让文葛兄弟介绍一下，就是咱们最近战友们还是牵挂的咱们兄弟姐妹在前线的这个身体状况，还有呢，最近天气状况和这个难民的流动情况。先说说我们战友们的身体和饮食情况，给大家先简单介绍一下，文葛兄弟，谢谢！
 
-毒疫苗，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+文葛：尊敬的全球的战友们，兄弟姐妹们。 大卫兄弟，这个台湾巴黎大牛，还有我们这个小王子，佳佳。 风雨之中，还有我们的宁南，所有的兄弟姐妹们大家好！我是文葛七雄，我们前线所有的战友们在上次染过这个中共病毒以后，到今天为止全部在这个医生团队的照料下已经恢复了健康，陆续的都返回到前线。这首先是关于这个中共病毒这件事情，这个另外一个就是前线所有的这个团队，我们兄弟姐妹们，所有的战友们都是像大卫兄弟已经知道的，您毕竟在我们这里是了解这个情况。兄弟姐妹们呢，就是互帮互助，气氛融洽。大家就是无论从这个营地的安保，还有这个难民服务，方方面面吧，都是做得井然有序，在这个联盟委员会老班长，长岛哥的带领下，前线总指挥部的领导下我们所有的这个战友，包括我们前线的这个文柯、文耀、还有我本人，我们所有的这些领队卢比肯，还包括我们所有人，大家的共同努力下，我们井然有序的在这个运作的这个救援活动。最近这几天难民的人数有所稍微有所回升。 就是有出来的，还有这个返回的，这两种情况都有，一切都在有序的进行当中。总而言之就是我们一切都在有序的进行当中啊，谢谢大家！
 
-没有选票，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+大卫：谢谢文葛！那个咱们在文葛兄弟旁边，是这个鬼武兄弟啊。我当时在前线的时候也看到过，咱们几位兄弟值班，然后呢换岗，我每天给这个发电机换油，所以大家真的是这个非常辛苦，在前线。随着战友们的身体啊，有的战友感染以后呢，也牵动着咱们全球咱们战友的这个牵挂，那么，让鬼武兄弟也介绍一下，就是说最近大家的饮食睡眠，还有呢，我们的这种轮岗的这个保障情况。 大家现在最近身体怎么样？吃得怎么样，也可以介绍一下。 好，这个鬼武兄弟，给大家介绍一下。
 
-在疫苗灾难和动态清零双管齐下的上海的人道灾难，虽然被中共的防火墙屏蔽掉大部分声音，但是在信息自由流动的当下，十四亿中国人民和全世界依然能够窥得一二，因疫苗灾难和动态清零而采取封城的当下上海，正在发生的其实也正是粮食危机的预演，雾霾、地沟油、毒食品、毒疫苗、没有选票通通都可以忍受，因为毕竟死的似乎是别人，被毒害的似乎也不是那么直接，在粮食危机面前这一切都变了。
+鬼武：大卫好，全球的战友们好，很高兴今天能在这里跟大家汇报一下前线。这个上来的将近70个战友吧，一部分已经染了病，然后一个个都已经痊愈，明天最后3位战友全部转阴，都回归队了。非常感恩我们的医疗团队，他们无微不至地一直在照顾大家。染病了以后，大家有些有些人就是憋得说要上前线了，抢着要上要上，因为自己能做点实事的话，就心里面就感到无限高兴，明天的话都出来了，全部都会出来了。饮食的话，就是我们在这吃的很好，住的很好，呃，就是每天的话都有很多吃的就是。呃。瞅着哎呀又来了，哎呀怎么又吃不了了，就是这种感觉！七哥说的吃好喝好住好我们确确实实应该是做到了！
 
-因为没吃饱饭或者没有饭吃的人在封城之下是绝大多数，当所有人都退无可退之下，要么选择被饿死，要么选择跳楼或以其他方式自杀，但是这些绝对不会再是大多数人的选择，那些饿红了眼的老百姓们正在形成洪流，在这股洪流面前，中共的居委会、军警特勤、维稳人员顶得住吗？
+资料来源：[2022年4月8日 文贵大直播](https://gettr.com/post/p147s0qfc4d)
 
-中共红魔百年前兴于上海，百年后中共红魔以这种大规模人道危机的方式再度唤醒两千多万上海居民，这或许就是宿命，中共红魔肆虐的百年来这片土地上曾经闪现无数对抗红魔的仁人志士，但是这片土地上的绝大多数人并没有被唤醒，在今天居然是因为饥饿而让这个世界听到了上海人的怒吼，这也是宿命，也许这也正是百年来中华民族被中共红魔洗脑奴役的代价。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

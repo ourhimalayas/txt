@@ -15,157 +15,157 @@
 
 ---
 
-### [什么时候吃很重要：饮食节律如何影响着你的心理健康](/content/gnews/1/README.md)
+### [诸多证据显示，中共和俄罗斯正在寻求改变全球秩序](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花深度报道┃出口军用无人机，中共破坏世界稳定（上）](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花深度报道┃出口军用无人机，中共破坏世界稳定（下）](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃全球极权主义崛起、民主倒退，战乱风险增加 中共是罪魁祸首](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [什么时候吃很重要：饮食节律如何影响着你的心理健康](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [特鲁多靠征税实现繁荣的希图终将落空](/content/gnews/2/README.md)
+### [《共产党统治中国的150个家族》之“朱镕基”篇（二）](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [特鲁多靠征税实现繁荣的希图终将落空](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共拉仇恨百姓遭殃](/content/gnews/3/README.md)
+### [中共拉仇恨百姓遭殃](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [昔日繁华的上海大都市一夜之间回到争食的地步](/content/gnews/4/README.md)
+### [昔日繁华的上海大都市一夜之间回到争食的地步](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【 蓝枫法律 】 信托及控股公司进行合理避税时的风险](/content/gnews/5/README.md)
+### [【 蓝枫法律 】 信托及控股公司进行合理避税时的风险](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [在上海生活工作的外地人在物资分配上被区别对待](/content/gnews/6/README.md)
+### [在上海生活工作的外地人在物资分配上被区别对待](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【乌克兰救援】中共在背后推动了这次侵略，威胁着亚洲包括日本的和平和安全](/content/gnews/7/README.md)
+### [【乌克兰救援】中共在背后推动了这次侵略，威胁着亚洲包括日本的和平和安全](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FDA紧急授权使用疫苗时肯定知道青少年有罹患心肌炎的风险](/content/gnews/8/README.md)
+### [FDA紧急授权使用疫苗时肯定知道青少年有罹患心肌炎的风险](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【 蓝枫法律 】 家族基金的目的及家族信托控股公司结构](/content/gnews/9/README.md)
+### [【 蓝枫法律 】 家族基金的目的及家族信托控股公司结构](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [大直播后记：新中国联邦的国旗飘扬在麦迪卡的上空](/content/gnews/10/README.md)
+### [大直播后记：新中国联邦的国旗飘扬在麦迪卡的上空](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [视频|国内疫情](/content/gnews/11/README.md)
+### [视频|国内疫情](/content/gnews/16/README.md)
  ` 爆料视频`
 
-### [【乌克兰救援】 妮可采访了两位随父亲前来波兰参与救援的华人少年](/content/gnews/12/README.md)
+### [【乌克兰救援】 妮可采访了两位随父亲前来波兰参与救援的华人少年](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [德克萨斯州法院授予海军免受强制疫苗的认证](/content/gnews/13/README.md)
+### [德克萨斯州法院授予海军免受强制疫苗的认证](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [共产党用虚拟货币打倒美元､用病毒干掉白人 非常巧妙地､成功地发动了一场灭白的世界种族大战](/content/gnews/14/README.md)
+### [共产党用虚拟货币打倒美元､用病毒干掉白人 非常巧妙地､成功地发动了一场灭白的世界种族大战](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [百年前兴起于上海的中共红魔百年后因上海饥民风雨飘摇](/content/gnews/15/README.md)
+### [百年前兴起于上海的中共红魔百年后因上海饥民风雨飘摇](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【 蓝枫法律 】 遗嘱与生前信托相关问题解答](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [告 全 国 同 胞 书](/content/gnews/17/README.md)
+### [告 全 国 同 胞 书](/content/gnews/21/README.md)
  ` 银河勇气之星`
 
-### [视频|只要CCP存在，上海的今天就是世界的明天](/content/gnews/18/README.md)
+### [视频|只要CCP存在，上海的今天就是世界的明天](/content/gnews/22/README.md)
  ` 爆料视频`
 
-### [【乌克兰救援】一位法国志愿者“我会戴着它来支持你们”](/content/gnews/19/README.md)
+### [【乌克兰救援】一位法国志愿者“我会戴着它来支持你们”](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/10/2022 银河快讯：日本和菲律宾初次2+2会议，着眼于中共国军事活动；日本企业进一步“脱俄”](/content/gnews/20/README.md)
+### [4/10/2022 银河快讯：日本和菲律宾初次2+2会议，着眼于中共国军事活动；日本企业进一步“脱俄”](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [临床病理学家Ryan Cole博士讲述他看到的个人在注射COVID19疫苗后免疫系统减弱的情况](/content/gnews/21/README.md)
+### [临床病理学家Ryan Cole博士讲述他看到的个人在注射COVID19疫苗后免疫系统减弱的情况](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共防疫政策造成人道灾难](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [COVID-19疫苗副作用集萃：经期紊乱，颜色不正常](/content/gnews/23/README.md)
+### [COVID-19疫苗副作用集萃：经期紊乱，颜色不正常](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚](/content/gnews/24/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [我们怎样解决像普京一样的问题？听听5位在俄罗斯问题上有建树作者的说法](/content/gnews/25/README.md)
+### [我们怎样解决像普京一样的问题？听听5位在俄罗斯问题上有建树作者的说法](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [【G时新闻】美国警告印度与俄罗斯走近的后果](/content/gnews/26/README.md)
+### [【G时新闻】美国警告印度与俄罗斯走近的后果](/content/gnews/29/README.md)
  ` G-时新闻`
 
-### [高价汽油的实际原因](/content/gnews/27/README.md)
+### [高价汽油的实际原因](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [法国大选投票前的态势](/content/gnews/28/README.md)
+### [法国大选投票前的态势](/content/gnews/31/README.md)
  ` 加拿大温哥华英里农场`
 
-### [法国大选鹿死谁手难言](/content/gnews/29/README.md)
+### [法国大选鹿死谁手难言](/content/gnews/32/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美国迎来首位非洲裔女性大法官](/content/gnews/30/README.md)
+### [美高官透露：美军向乌方提供“近乎实时”情报](/content/gnews/33/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美高官透露：美军向乌方提供“近乎实时”情报](/content/gnews/31/README.md)
- ` 加拿大温哥华英里农场`
-
-### [郭文贵先生2022年4月9日盖特视频（5分34秒）全文字版](/content/gnews/32/README.md)
+### [郭文贵先生2022年4月9日盖特视频（5分34秒）全文字版](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加速入欧盟！乌克兰官方：预计6月获候选国资格](/content/gnews/33/README.md)
+### [加速入欧盟！乌克兰官方：预计6月获候选国资格](/content/gnews/35/README.md)
  ` 蓝莲花农场`
 
-### [约翰逊：在布查和伊尔平等地方的行为是战争罪行平民遇害永久玷污普京名声](/content/gnews/34/README.md)
+### [约翰逊：在布查和伊尔平等地方的行为是战争罪行平民遇害永久玷污普京名声](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [英国将向乌克兰派遣装甲车并训练士兵](/content/gnews/35/README.md)
+### [英国将向乌克兰派遣装甲车并训练士兵](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Facebook母公司Meta想推出“扎克币”](/content/gnews/36/README.md)
+### [Facebook母公司Meta想推出“扎克币”](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/37/README.md)
+### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧盟委员会主席抵达乌克兰基辅](/content/gnews/38/README.md)
+### [欧盟委员会主席抵达乌克兰基辅](/content/gnews/40/README.md)
  ` 加拿大温哥华英里农场`
 
-### [俄导弹袭击乌克兰火车站致50平民丧生](/content/gnews/39/README.md)
+### [俄导弹袭击乌克兰火车站致50平民丧生](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [上海疫情防控进入恶性循环](/content/gnews/40/README.md)
+### [上海疫情防控进入恶性循环](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [俄准备在乌东发动大规模攻势 乌克兰官员敦促民众抓住“最后的机会” 紧急撤离](/content/gnews/41/README.md)
+### [俄准备在乌东发动大规模攻势 乌克兰官员敦促民众抓住“最后的机会” 紧急撤离](/content/gnews/43/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [北约称中共已构成严峻挑战](/content/gnews/42/README.md)
+### [北约称中共已构成严峻挑战](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [【转】截至4.9 俄乌战事汇总](/content/gnews/43/README.md)
+### [【转】截至4.9 俄乌战事汇总](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/44/README.md)
+### [马斯克大量收购推特股份是想恢复言论自由](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/45/README.md)
+### [4/9/2022国际财经快讯：美国银行警告“衰退冲击”即将到来；前高盛银行家在1MDB案中被判受贿和洗钱罪](/content/gnews/47/README.md)
  ` 秘密翻译组金融团队`
 
-### [基金投资管理是合并还是分销更好](/content/gnews/46/README.md)
+### [基金投资管理是合并还是分销更好](/content/gnews/48/README.md)
  ` 走进澳洲`
 
-### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/47/README.md)
+### [国际｜美国正视“封控灾难” 正式批准驻华使团自愿撤离](/content/gnews/49/README.md)
  ` 關注組`
 
-### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/48/README.md)
+### [樱花时政┃德国总统呼吁设立俄战争罪法庭](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政|法国外长：俄军犯下了“反人类罪”](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯官员被国际雪橇联合会除名](/content/gnews/51/README.md)
+### [樱花时政┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [7News《全球视点》 挑逗族群矛盾是中共统治的法宝](/content/gnews/52/README.md)

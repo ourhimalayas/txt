@@ -2,30 +2,43 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2319585/)
+## 4/10/2022 银河快讯：日本和菲律宾初次2+2会议，着眼于中共国军事活动；日本企业进一步“脱俄”
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2319656/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-9.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AAW1Hyz.jpeg)
+[图片来源](https://www.msn.com/ja-jp/video/autos/%E6%97%A5%E3%83%BB%E3%83%95%E3%82%A3%E3%83%AA%E3%83%94%E3%83%B3%E5%88%9D%E3%81%AE2%EF%BC%8B2-%E4%B8%AD%E5%9B%BD%E5%BF%B5%E9%A0%AD%E3%81%AB%E5%AE%89%E4%BF%9D%E5%8D%94%E5%8A%9B%E5%BC%B7%E5%8C%96%E3%81%B8/vi-AAW1HyD)
 
+**1．日本和菲律宾初次2+2会议，着眼于中共国军事活动**
 
-校对：Stay文苑
+[据朝日新闻报道，日本和菲律宾之间的第一次外交和国防部长会议，即所谓的 “2+2″，于4月9日在东京举行。双方确认加强防务合作，着眼于中共国日益增长的海上扩张。为了遏制中共国在南海等地不断增加的军事活动，日本与美国一起主张实现 “自由开放的印度洋-太平洋”。这一次，作为希望促进与作为美国盟友的菲律宾，日本将与其进行安全合作，并加强应对与中共国的关系。](https://news.yahoo.co.jp/articles/b8e8c1347aef60b4fbb06c45aac6b36829ef5b26)
 
-编辑：Stay文苑
+**2．日本企业进一步“脱俄”**
 
-发稿：Stay文苑
+[据读卖新闻4月9日报道，日本的非寿险公司已经完全停止在俄罗斯的保险业务，不再接受包括续保在内的任何保单。这是因为俄罗斯政府为了应对经济制裁，禁止本国保险公司与日本、美国和欧洲等“不友好国家”的保险公司开展业务。在风险管理方面，继续在俄罗斯做生意已经变得很困难，日本公司将可能进一步“脱俄”。](https://news.yahoo.co.jp/articles/36d3394fff4f5c00886dc311f109ea93118e0c35)
 
-新闻：[https://gettr.com/post/p14g31mfc7b](https://gettr.com/post/p14g31mfc7b)
-访谈：[https://gettr.com/post/p14g7lv4366](https://gettr.com/post/p14g7lv4366)
+**3．日本首次使用商业航班接受乌克兰撤侨者**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+[据共同社4月9日报道，日本周六首次接受了使用政府保障的波兰直飞商业航班座位的乌克兰疏散人员。据日本移民局称，有六名年龄在6至55岁之间的撤离人员（其中五名是女性），从华沙抵达东京附近的成田机场。截至周三，以严格的移民和难民政策著称的日本，已经允许437名来自乌克兰的人入境。](https://english.kyodonews.net/news/2022/04/65fd0307dcbc-japan-accepts-ukrainian-evacuees-using-commercial-flight-for-1st-time.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**4．三月食品价格指数同比增长12.6%**
+
+[据NHK报道，联合国粮农组织4月8日宣布，由于俄罗斯对乌克兰的军事侵略，根据国际交易的谷物和其他商品价格编制的3月份食品价格指数比2月份上升12.6%，达到159.3点，是1990年开始记录以来的最高值。按商品分类，“谷物”比上个月上涨了17%，植物油也上升了23.2%。](https://www3.nhk.or.jp/news/html/20220409/k10013574201000.html)
+
+**5．永旺两年来首次盈利**
+
+[据NHK报道，永旺4月8日宣布，其截至今年2月的整体集团业绩显示，营业收入为87159亿日元，比前一年增长1.3%，增幅创下历史新高。最终利润为65亿日元，与前一年亏损超过700亿日元的情况相比，实现了扭亏为盈，也是两年来该集团首次实现盈利。然而，由于疫情影响，最终的盈余金额没有达到最初预期的疫情前的200亿至300亿日元的水平。](https://www3.nhk.or.jp/news/html/20220408/k10013574001000.html)
+
+**6．G7财政部长将于4月20日在华盛顿举行会议**
+
+[共同社4月9日报道中引述消息人士称，七国集团的财政部长和中央银行行长将于4月20日在华盛顿举行会议，讨论如何就俄罗斯入侵乌克兰一事加大对其的压力。美国总统拜登表示，俄罗斯应该被排除在G20之外，该集团由包括中共国和印度在内的发达国家和发展中国家组成，这些国家没有谴责莫斯科对其邻国的攻击和杀害平民的行为。G7财政部长在华盛顿开会时，还可能讨论如何处理因俄罗斯侵略后对其实施的一系列制裁而导致的价格上涨问题。](https://english.kyodonews.net/news/2022/04/5c1cf59708d1-urgent-g-7-finance-chiefs-to-meet-in-washington-on-april-20-sources.html)
+
+**【日本银河系农场-阿尔法星球】**
+
+素材：文德
+
+作者：帆間知津
+
+校对：windfish
 
  
 
