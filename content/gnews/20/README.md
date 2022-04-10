@@ -2,33 +2,34 @@
 ---
 
 
-## 斯洛伐克赠乌防空系统拜登表示感谢
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322208/)
+## 日本和菲律宾签署国防协议以应对中共台海局势
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322488/)
 
-撰稿：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
-就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47.png)
+当地时间4月9日周六，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，从而促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
 
-据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
+自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为同位于该海域的国家，日本和菲律宾希望共同解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约目前已经在考虑为双方的军队提供供应共享协议，该协议包括收购和交叉服务。据悉日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。
 
-迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
+菲律宾是继印度尼西亚之后与日本举行二加二会议的第二个东南亚国家。
 
-参考链接：
+reference：
 
-[拜登感謝斯洛伐克贈烏防空系統 控俄攻擊平民暴行](https://www.cna.com.tw/news/aopl/202204090006.aspx?)
+[https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
 
-[斯洛伐克贈S-300防空系統 總理宣布已送抵烏克蘭](https://www.cna.com.tw/news/aopl/202204080398.aspx)
+撰稿、发布：骄子
 
-[快新聞／自1月止美已金援烏克蘭累計12億美元！　拜登：再撥2億用於軍事防備](https://www.ftvnews.com.tw/news/detail/2022313W0006)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-65.jpg)
+欢迎订阅我们的GNews账号：
 
-编辑/总编/审核: 飞虹
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-校对：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

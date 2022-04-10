@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 1:50 PM (UTC)`
+
+04/010/2022 on the 7th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on 4 Countries Rock Song Charts<br/>#3🥉 on 4 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#3🥉on Mongolia 🇲🇳 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>https://gnews.org/2322043/<br/><br/>Global iTunes Ranking Record of Week 1:<br/><br/>https://gnews.org/2322171/<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Armenia, Fiji, Laos, Turkey 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
+`@miles 4/10/2022 1:45 PM (UTC)`
+
+4月10号, 郭文贵先生两首新歌上线第七天<br/>《灭共的雪》登榜iTunes<br/>台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>香港🇭🇰， 新西兰🇳🇿，澳大利亚 🇦🇺，柬埔寨🇰🇭摇滚榜第二名🥈<br/>蒙古🇲🇳，土耳其🇹🇷，亚美尼亚🇦🇲，斐济🇫🇯摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第三名🥉<br/>蒙古 🇲🇳流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第一名🥇<br/>老挝🇱🇦摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>https://gnews.org/zh-hans/2322042/<br/><br/>第一周全球打榜全记录：<br/><br/>https://gnews.org/zh-hans/2322170/<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，亚美尼亚，斐济，老挝，土耳其的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/>
+
+---
+
 `@miles 4/10/2022 12:12 PM (UTC)`
 
 2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣
@@ -142,20 +154,6 @@
 
 🌶️The Spiced有‘料’🌶️<br/><br/>中共在校园发起支持俄罗斯侵略乌克兰的舆论战<br/>The CCP launched a public opinion war on campus to support Russia's aggression against Ukraine<br/><br/>中共是人类一切灾难的根源，是俄罗斯侵略乌克兰的始作俑者与背后金主。中共在校园刻意误导学生对乌克兰危机的认识与判断是令人发指的精神强奸，只有灭共才能拯救同胞！<br/>[GETTR] The CCP is the root cause of all human disasters, and is the initiator and financial master behind Russia's aggression against Ukraine. The CCP is deliberately misleading students on campus about the crisis in Ukraine, which is a heinous form of spiritual rape. Only the elimination of the CCP can save our compatriots!<br/><br/>#学校 #School #乌克兰局势  #ThesituationinUkraine #口径 #Caliber #舆论 #Opinion #乌克兰 #Ukraine #俄罗斯  #Russia #学院  #College
 ![img](https://media.gettr.com/group37/getter/2022/04/09/14/03736461-4e98-dde2-fd36-2522d3df1577/out.jpg)
-
----
-
-`@miles 4/9/2022 4:40 PM (UTC)`
-
-04/09/2022 The German volunteer said that the extermination of the Chinese Communist Party (CCP) is the best for the Chinese, for China, and for the future of the Chinese people. The CCP has done many bad things, just like the North Korean dictator, Gaddafi, and the Russian oligarchs. Speaking about the big tent of the New Federal State of China sponsored by the Rule of Law Foundation, as a person with international rescue experience, he said this tent requires a high level of expertise and facilities, which he admires<br/>4月9日，这位德国志愿者说灭共对中国人，对中国，对中国人的未来是最好的，中共干了很多坏事，就像北韩独裁者、卡扎菲、俄罗斯寡头一样。说到法治基金赞助的新中国联邦的大帐篷，作为一个有国际救援经验的人，他说这个帐篷需要很高的专业技术和设施，他很佩服
-![img](https://media.gettr.com/group10/origin/2022/04/09/16/1bdfb84e-0bca-5a19-80dc-409144aa0578/out.jpg)
-
----
-
-`@miles 4/9/2022 3:29 PM (UTC)`
-
-【Ukraine Rescue】 04/07/2022 Nicole interviews two Chinese boys who came to Poland on spring holidays with their father to participate in the relief effort: their father does not speak English, but with the help of his two sons' translation, he drives the refugees to places. Nicole is touched and introduces our NFSC to them and tells them that we are also a group of compassionate Chinese people who love to help others.<br/><br/>【乌克兰救援】 04/07/2022 妮可采访了两位利用春假随父亲前来波兰参与救援的华人少年：他们的父亲虽不会英语，但是在两个儿子的翻译协助下开车运输难民。妮可在感动之余也向他们介绍了我们新中共联邦，并告诉他们，我们同样是一群热爱公益，喜欢去帮助别人，有爱心的中国人。
-![img](https://media.gettr.com/group9/getter/2022/04/09/15/2af86a38-9f28-e5ad-eb75-4a7027e9c91c/out.jpg)
 
 ---
 

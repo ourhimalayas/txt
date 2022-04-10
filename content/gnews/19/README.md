@@ -2,24 +2,20 @@
 ---
 
 
-## 中共盗走美国小投资者数十亿美元
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322391/)
+## 日本丢弃一大半中共病毒疫苗
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322545/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S1-FR285_TECHNI_M_20200410160203.jpg)
-当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，数额高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国賊等与此有关联，中共利用美国市场的规则漏洞来洗劫美国投资者的资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/604ebf9be4b0fc419535683a.jpeg)
+当地时间4月7日，据外媒报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
 
-中共2016年到2021年在美国交易所上市的公司在降价前抛售自己的股票，从事内幕交易以防止损失，资金达到100亿美元。1990年以来，为了吸引外国公司在美国上市，美国法律规定股东必须要及时在公开文件中披露其具体交易。但对中共国的要求并未如此严格，中共只需要用邮寄纸质披露即可，而这需要三个月的时间。对于瞬息万变的市场来说，这无疑是巨大的漏洞。随着中共在西方的蓝金黄，越来越多的西方投资了中共，变相地骗走没有内部消息的美国投资者的资金。
+据悉由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了中共病毒疫苗购买合同。此批疫苗于2021年年初开始交付。日本的接种人数设置在40岁以上，目前已进行了11万次接种。而在海外报道中因注射中共病毒疫苗造成了严重的血栓反应。据日本卫生部门一位官员承认，接种中共病毒疫苗对预防中共病毒毫无用处，并且这些疫苗极度不稳定。目前这批疫苗已经到达了6个月的保质期，未来将会有一半数量的疫苗会被处置不用。
 
-研究人士认为即使美国关闭了所有利于中共的漏洞，也无法阻止这种行为。因在中共国但凡可以操控股市的手超出了美国以及任何其他民主国家的法律，世界有必要采取措施了。
+日本卫生部门目前亿合同保密为由，尚未透露是否为疫苗过期。
 
 reference：
 
-
-
-
-> [China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
-
+[https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com\_apitop](https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com_apitop)
 
 撰稿、发布：骄子
 
@@ -33,9 +29,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

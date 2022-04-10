@@ -2,35 +2,18 @@
 ---
 
 
-## 樱花时政┃中共提出全国统一市场，退回计划经济供销社时代
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2322715/)
+## 独裁者毁灭世界的心里分析
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322801/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月10日每日经济新闻报道，《中共中央 国务院关于加快建设全国统一大市场的意见》10日发布。强化市场基础制度规则统一、推进市场设施高标准联通、打造统一的要素和资源市场、推进商品和服务市场高水平统一、推进市场监管公平统一、进一步规范不当市场竞争和市场干预行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-191.jpg)图片来源
-1949年11月，中共成立了中央合作事业管理局，主管全国合作事业。1950年7月，中共合作事业管理局召开了中共全国合作社工作者第一届代表会议，通过了中共人民共和国合作社法，中共全国合作社联合总社章程（草案）成立了中共全国合作社联合总社，统一领导和管理全国的供销、消费、信用、生产、渔业和手工业合作社。
+文贵大直播20220410
 
-中共国全国供销合作总社，是中共全国供销合作社的联合组织，由中共国国务院领导。
+撰稿：文复（达芬奇）麦克阿sir
 
-中共全国供销合作总社的主要负责全国供销合作社的发展战略和发展规划供销合作社，按照政府授权对重要农业生产资料、农副产品经营进行组织、协调、管理分配，各级供销合作社指导全国供销合作社活动，城乡物资交易。
+书法：沙漠之花（香草山）
 
-根据2018年11月该合作社官网信息显示，中共全国供销合作总社设立理事会、监事会，理事会内设机构14个，监事会内设机构1个，下辖15个直属事业单位、15家主管社团和中国供销集团，中共国供销集团管理有全资和控股子公司16家。
-
-供销社是计划经济时代的产物。在中共起初经济相对匮乏的年代，供销社依靠集体统购统筹统销的政策，对老百姓生产生活榨取剩余价值，再分配制度，吃大锅饭、集体被中共奴役。
-
-供销社作为中共物资分配手段一直被保留了下来。在经济发展和市场化、大部分资源都可以由市场化配置，供销社的职能已经被大大弱化，几近消亡，而在今天继续提出市场和资源被中共统一管理，统一规划，已经证明中共要继续走计划经济时代管理模式老路，国家将被中共独裁者带回到上个世纪有桥不走，摸石头过河吃大锅饭时代。
-
-信息来源：[【《中共中央 国务院关于加快建设全国统一大市场的意见》发布】](https://mr.baidu.com/r/EfVJMwka2Y?f=cp&amp;u=16e3080399f120eb)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-9.png)
+*发布：Theodosia*
 
  
 

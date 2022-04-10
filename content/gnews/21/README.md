@@ -2,28 +2,32 @@
 ---
 
 
-## 欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322143/)
+## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
 
-撰稿：日本方舟农场-Andy5；纽约香草山教育部-Naughty(文行)
+撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月8日，正在乌克兰访问的欧盟议会议长冯德莱恩，在首都基辅跟乌克兰总统泽连斯基进行了会晤，并在会后的记者会中，亲手将乌克兰加入欧盟的意向书交给泽连斯基总统，邀请乌克兰在短期内加入欧盟。她同时表示，虽然通常情况下，加入欧盟需要历时数年的审核，但她愿意推动欧盟在几周内，通过乌克兰的加入申请。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1125.png)图片来自：https://media-cldnry.s-nbcnews.com
-据悉，冯德莱恩议长在访问乌克兰期间，专门去了遭受俄罗斯大屠杀的布查镇，面对堆积如山的装尸袋，议长一度哽咽，惊讶地无法发声。
+4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
+众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
 
-同一天，欧洲理事会主席查尔斯·米歇尔表示，欧盟最高外交官已提议通过“欧洲和平基金”向乌克兰追加 5 亿欧元军事援助，这是该基金首次在战争期间向第三国运送致命武器。
+由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
 
-此前，欧盟已同意斥资 10 亿欧元为乌克兰军队提供军事物资，这是欧盟首次打破长期以来禁止向冲突地区国家运送武器的禁忌。不过，该提案通过需要得到27个欧盟国家的批准。
+粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
+
+美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
 
 参考链接：
 
-[20220409歐盟邀請烏克蘭加入歐盟](https://www.gettr.com/post/p14ca1869eb)
+[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
 
-[EU agrees to give €500M in arms, aid to Ukrainian military in ‘watershed’ move](https://www.politico.eu/article/eu-ukraine-russia-funding-weapons-budget-military-aid/)
+[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-64-530x720.jpg)
 
-编辑/总编/审核：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
+
+编辑总编审核：飞虹
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
