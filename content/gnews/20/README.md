@@ -2,16 +2,20 @@
 ---
 
 
-## 有声|Jason Miller先生祝贺Elon Musk加入Twitter
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323667/)
+## 有声|天空网络竞争 亚马逊签署Kuiper计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323680/)
 
 配音：香草山教育部 – 子兵
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-日前，Gettr总裁Jason Miller先生在接受媒体采访时说，社交媒体Twitter尽管拥有先进的技术，是一个伟大的工具，但其目前在世界上的品牌价值已经一降再降，现在是一个充满了政治癌症的地方。Elon Musk加入Twitter是一件值得庆贺的事情，Jason说自己永远不会对Elon Musk感到惊讶，从他制造特斯拉汽车到发射卫星到外太空甚至是火星，这个人拥有无限可能，不知他能否挽救Twitter。现在的大科技歧视以及审查制度是值得努力的方向。
+当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
 
-在提及Twitter和Gettr的竞争关系时，Jason Miller表示Elon Musk是一个直言不讳的人，自由在他身上更加显著，他想重新给用户言论自由，最大的挑战是重建这种自由文化。Twitter内部并不欢迎前总统川普重新回去，这就是对Elon的最大挑战，因为这能够将川普总统的支持者带回去，他们可以在Twitter重新拥有言论自由。无论是Gettr、Twitter、Rumble或者是川普总统的Truth Social，越多的社交媒体存在，越多的竞争存在，人们才会有更多的言论自由，避免被关掉账户，从而远离政治癌症。
+亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网络的卫星系统。目前SpaceX已经有2110颗卫星在轨道上运行，OneWeb第一批计划的648颗目前已经完成发射428颗。
 
-文字版原文：[Jason Miller先生祝贺Elon Musk加入Twitter](https://gnews.org/zh-hans/2316627/)
+亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成深度默契。
+
+随着天空互联网公司的发展，竞争是存在的，但合作也在增多。英国的OneWeb公司因俄罗斯受制裁，被迫中止了3月本该由俄罗斯航天局承接的发射任务。最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。
+
+文字版原文：[天空网络竞争 亚马逊签署Kuiper计划](https://gnews.org/zh-hans/2314232/)
 
 音频处理：Fei797
 发稿：Fei797

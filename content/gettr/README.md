@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 6:32 PM (UTC)`
+
+俄乌战争战况播报
+![img](https://media.gettr.com/group6/origin/2022/04/10/18/9f8e268c-c1f8-9dd1-bce7-f41d51ae22ee/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/10/2022 6:31 PM (UTC)`
+
+ 4月10号：这位先生穿上G FASHION 独创的佛系列．他有5千一百万M的粉丝，实在是太棒了👏👏👏
+![img](https://media.gettr.com/group23/getter/2022/04/10/18/8f6aee45-8d03-69a0-22d0-6f5b5f3cea36/4d89bf054a9e51d4e62ad248d2bb12a2.jpg)
+
+---
+
 `@miles 4/10/2022 5:02 PM (UTC)`
 
 中共已在塞尔维亚部署红旗反导系统<br/>Title:  Communist China Has Deployed Red Flag Anti-Missile System in Serbia
@@ -138,20 +152,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-09<br/>For English：gettr.com/post/p14flzr3dcf
 ![img](https://media.gettr.com/group49/origin/2022/04/09/22/1f6cb724-fed5-146a-4f6e-72064b089d4f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/9/2022 8:56 PM (UTC)`
-
-2022.04.09  新中国联邦 | 喜健康   长阔高深医生专访
-![img](https://media.gettr.com/group13/origin/2022/04/09/20/2d54ea9f-7bd6-3481-5ec2-1c064ebb1b4e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 7:01 PM (UTC)`
-
-2022-4-9《避风港》(34) 法国：以“投毒”和“危害人类罪”起诉施打疫苗
-![img](https://media.gettr.com/group32/origin/2022/04/09/19/ecbc2a34-9c0b-a83f-53db-a57496e6930e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
