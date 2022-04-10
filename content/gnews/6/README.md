@@ -2,27 +2,19 @@
 ---
 
 
-## 波兰义工大赞《新中国联邦宣言》
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2324155/)
+## 对所有中国人都带有愤恨恼怒的变态习二
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324443/)
 
-作者：纽约香草山农场 文真
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WE
 
-波兰当地时间4月9日，法治基金-新中国联邦乌克兰救援前线队员妮可发布一则采访视频。视频中，她采访了一位来自波兰的义工。这位波兰义工表达了他对《新中国联邦宣言》的赞许，以及对新中国联邦灭共的强烈支持。
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-4.jpeg)
-
-这位来自波兰的年轻义工，在新中国联邦帐篷中休息的时候，通过翻译器阅读了《新中国联邦宣言》。采访中表示，作为一名波兰人，他非常理解新中国人灭共的行动，波兰当初也经历了推翻共产政权的过程。他甚至赞同推翻中国共产党比当年的波兰共产政权更加艰难。
-
-这位年轻人意犹未尽地谈到，造成今天世界灾难的除了中国共产党本身，还有跟中共同流合污的所谓建制派“精英”，比如，达沃斯党。他们勾结在一起奴役世界人民。全世界人民应该联合起来，推翻中国共产党和与之勾结的一切专制政权与独裁者。
-
-参考链接：[来自乌克兰救援前线Nicole报道](https://gettr.com/post/p14eqk19a66)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：Zion文恩
-编辑：静言
-审核：Zion文恩
-校正/发稿：谐趣园
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
