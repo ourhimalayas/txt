@@ -2,41 +2,37 @@
 ---
 
 
-## 2022澳洲联邦预算：赢家和输家（四）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2321408/)
+## 基辅斯拉夫福音神学院院长死于乌克兰布查屠杀
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2321491/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-2.jpg)图片来自网络
-输家：工资增长
+撰稿：纽约香草山教育部-浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
+基辅斯拉夫福音神学院（Kiev Slavic Evangelical Seminary）2022年4月4日在脸书公布院长维塔利·维诺格拉多夫（Vitaliy Vinogradov）遇难消息，称他为亲爱的兄弟、基督教领袖、雇员和了不起的人。
+基辅斯拉夫福音神学院院长维诺格拉多夫遇难。
 
-由于通胀高于预期，预计实际工资的增长要到年底才出现。财政部预测通胀率为 2.75%，但实际是 4.25%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_1-42.png)
 
-预算中，预测未来几年工资只略高于通胀。这意味着生活成本压力将持续存在。尽管目前通胀明显，但预测通胀将逐渐减弱。5年后，工资将增长更快。
+俄罗斯军队从乌克兰首都基辅的郊区布查（Bucha）撤退后，2022年4月1日星期五，乌克兰军队发现了屠杀的证据——在该镇及其他城镇的街道上发现410多具平民尸体，以及一个万人坑。维诺格拉多夫毕业于基辅圣经学院和福音神学院，人们在布查的一条街道上发现了他的遗体。
+基辅斯拉夫福音神学院专注为乌克兰教会培训圣经教师，并与大阪神学院（日本）结连。据浸信会新闻（Baptist News）报导，维诺格拉多夫毕业于基辅圣经学院和福音神学院。
+自从俄罗斯入侵乌克兰以来，教会的大多数老牧师都留在了城市里。 教堂开放了地下室，为居住在多层建筑中的邻居们提供庇护，使其免遭轰炸。
+在基辅郊外的乌克兰福音神学院（UETS的院长发出了《诗篇》27篇的信息：“耶和华是我的亮光，是我的救恩。我还怕谁呢？”
+基辅西北18英里处的伊尔平圣经教会（Irpin Bible Church）的牧师、KTS青年事工的教授瓦西尔·奥斯特里伊（Vasyl Ostryi）写道：“当这一切结束时，基辅的公民会记得在他们有需求的时候，基督徒是如何回应的。 我们将为弱者提供庇护，为受苦的人服务，并修补那破碎的。 当我们这样做时，我们提供是基督和他的福音所带来的不可动摇的希望。”
+自从开战以来，之前新印刷的圣经出现供不应求的现象，人们纷纷来教会寻求情感支持和希望。
+作为俄罗斯福音派的联盟秘书长维塔利·弗拉森科（Vitaly Vlasenko）在3月12日的公开信中表示，“我为我的国家最近对另一个主权国家乌克兰的军事入侵感到悲哀，”。 “即使在最糟糕的情形下，我也无法想象现在的所见所闻。”
+他用语非常谨慎。因为早在3月4日，俄罗斯议会就修改了刑法，对传播 “诋毁”军队 的“假新闻”的人，处以最高15年的监禁。
+可见俄罗斯与中共之下的中国一样，对言论自由的侵犯和迫害充分地体现了独裁国家的特点。
+参考链接：[https://www.tgcchinese.org/article/civilians-massacred-bucha http://www.gospelherald.com.hk/news/min-4493/%E7%83%8F%E5%85%8B%E8%98%AD%E7%A5%9E%E5%AD%B8%E9%99%A2%E9%99%A2%E9%95%B7%E5%B8%83%E6%9F%A5%E9%8E%AE%E9%81%87%E5%AE%B3 https://www.christianitytoday.com/news/2022/march/russia-ukraine-invasion-christians-apology-zh-hans.html](https://www.tgcchinese.org/article/civilians-massacred-bucha%20http://www.gospelherald.com.hk/news/min-4493/%E7%83%8F%E5%85%8B%E8%98%AD%E7%A5%9E%E5%AD%B8%E9%99%A2%E9%99%A2%E9%95%B7%E5%B8%83%E6%9F%A5%E9%8E%AE%E9%81%87%E5%AE%B3%20https://www.christianitytoday.com/news/2022/march/russia-ukraine-invasion-christians-apology-zh-hans.html)
 
-赢家：难民
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
 
-政府将人道主义计划的上限保持在 13,750 人，与前两年相同。同时，政府宣布为阿富汗难民提供更多名额。
-
-该预算包括在未来四年内阿富汗难民增加 16,500 个名额，费用约 6.659 亿澳元。 一月份，移民部长亚历克斯霍克宣布，政府将在四年内为阿富汗难民分配 15,000 个签证，其中 10,000 个属于人道主义项目，5,000 个属于家庭类别。
-
-这意味着澳大利亚将在未来四年内向阿富汗提供超过 30,000 个难民签证。
-
-至于乌克兰难民，政府允许持有临时人道主义签证的人在澳大利亚逗留长达三年。
-
-这意味着大约 5,000 名已获得其他签证（包括学生、旅游、技术移民和家庭团聚签证）来澳大利亚的乌克兰人将有更多的权利，包括工作、学习和获得医疗保险。
-
-政府“没有设定限制”或上限，它会给多少乌克兰人发放签证。政府还计划投入 920 万澳元将现有的青年支持服务延长一年，并在五年内投入 100 万澳元到人权倡导计划。
-
-参考资料：
-
-[2022年联邦预算：赢家和输家](https://www.abc.net.au/news/2022-03-29/federal-budget-2022-winners-and-losers/100914858)
-
-*审核：云彩*
-
-*编辑：云彩*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

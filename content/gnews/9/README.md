@@ -2,28 +2,41 @@
 ---
 
 
-## 追求公平是人的天性
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2321361/)
+## 无知
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2321379/)
 
-作者：香草山医疗组击穿ccp-文华
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-教育的方法是唤醒，教育的前提是安全，教育的基础是公平。这是人的天性，不可改变，反观ccp给了我们什么？
-举一个例子：两位受试者参与，一位角色是提议者，另一位是响应者，任务是商量如何分10美元，前提是如果响应者不同意提议两人一分也分不到。实验要求受试者躺在核磁共振仪里进行一个经济学家称为“讨价还价”博弈，通过实验观察公平与不公平对大脑核磁共振影响的改变。
+作者：蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1102.png)
 
-提议者提议自己获得9美元，响应者分得1美元，如果响应者不同意两人一分不得。通过实验响应者通常都会拒绝高度不公平的提议，宁愿什么也得不到。如果提议者按照每人5元的方式分配，显然响应者觉得有利可图关键是觉得公平，如果我们改变分配总金额，响应者不仅可以看到从10美元分得5美元的情况，也可以看到从25美元中分得5美元的提议，从金额上来看两种分配金额是一样的，但在响应者知道后面的总金额是25的时候会立即拒绝提议。
 
-通过这种方法可以观察到因为公平与否而导致神经层面的差异，说明追求公平是人的天性，不同的结果会导致大脑蛋白质的沉积改变。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
-
+你不知道消息你不知道的祸
+你不知道你的健康离你远去
+你不知道的疫苗和核酸检测
+![](https://assets.gnews.org/wp-content/uploads/2022/04/00E574B1-D011-426F-ADB8-42E56BC7F050.jpeg)
+你不知道正掏空钱包和身体
+你不知道封锁他们斗来斗去
+吃亏上当买单的都是你你你
+电视里放的假消息铺天盖地
+我强国墙国因为伟大习主席
+抓了你喝茶入牢因你不满意
+微信里说话要考略了又考略
+共产党胡诌八扯必须要支持
+还要看你的态度是否是坚决
+打到你痛苦因为跪姿不正确
+奴才嘴脸必须演的淋漓尽致
+韭菜啊割了一茬那新茬又起
+割来割去爱上镰刀割斧头劈
+高官厚禄离着你十万八千里
+斯德哥尔摩综合症只要有口吃
 
 **更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
