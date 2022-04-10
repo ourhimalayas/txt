@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 11:01 PM (UTC)`
+
+2022.04.10 NFSC news  Update on NFSC’s Frontline Humanitarian Rescue Operation
+![img](https://media.gettr.com/group49/origin/2022/04/10/23/24eae070-5f51-743d-9e7f-fb673ec7bdfb/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/10/2022 10:48 PM (UTC)`
 
 ------0410  #文贵大直播  #Youtube脱敏精选视频 汇总------<br/><br/>【精选1】从社会心理学分析习近平王岐山在上海的疯狂行为体现出的报复心理<br/>https://youtu.be/RK-1uheWweA<br/><br/>【精选2】习近平的批示，透露其扭曲且抱着报复心态虐待「北、上、广、深」的人民，并对这些城市做压力测试<br/>https://youtu.be/bhA-yf_TDjM<br/><br/>【精选3】习近平最想就是毁掉台湾，消灭美元<br/>https://youtu.be/Co3M348XWhM<br/><br/>【精选4】国内所有的全民验核酸，所有运往塞尔维亚的武器都是为了打台湾准备<br/>https://youtu.be/bUhTfeyIX_U<br/><br/>【精选5】全人类有一个基本的人权原则，任何人为了保护自己的生命安全，可以采取一切的防卫方式<br/>https://youtu.be/bYb6B1_hKIM<br/><br/>【精选6】新中国呼之欲出 新世界曙光在前；新中国联邦人应发自内心的珍惜战友，爱战友<br/>https://youtu.be/lF3Fkgx7CfU<br/><br/>【精选7】乌人民的唯真不破得到了世人100%的信任和支持；乌和欧洲对抗俄罗斯，英国全面支持，武器会倾巢而出;中共已经准备好了GDP降一半，各项开支降一半，3-5亿人死亡<br/>https://youtu.be/NmBEMeXaP0Q<br/><br/>【精选8】灭共进程一半押在习身体上，另一半靠咱新中国联邦战友上；《灭共的雪》和《铁锁梦》两首歌在全球多国iTune榜挤身榜首几名；七哥人生中最快乐的时光是表现勇敢的时候<br/>https://youtu.be/urY_KeC2YMc<br/><br/>【精选9】G系列的G是神(GOD)的意思，而不是郭(GUO)，是尊重上天，万佛万神的系列；中共威胁美台，如佩罗西到台湾就必会攻打台湾，所以双方都以染疫为由取消会面<br/>
@@ -144,13 +151,6 @@
 
 2022.04.09 晚  新中国联邦 | 新闻	新中国联邦人不是独自在战斗；叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
 ![img](https://media.gettr.com/group48/origin/2022/04/10/00/c6fbe12d-ffdb-d3bc-0ea6-8a3fa725ca8b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/10/2022 12:10 AM (UTC)`
-
-4/9/2022 Miles Guo’s GETTR: The purpose for the CCP to let the video of Kathy Xu, CEO of Capital Today, go viral on the Internet is to instigate the Chinese people’s hatred against the rich. Although the CCP’s crazy actions in the world are beneficial to our cause of taking down the CCP, we don’t wish to see the CCP take these actions. I really appreciate our fellow fighters’ efforts to help “Chained Dream” and “The Terminator Snow” hit the charts! See you tomorrow at the grand live broadcast!<br/><br/>4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的；感谢战友们为《铁锁梦》和《灭共的雪》打榜！明天大直播见！<br/>
-![img](https://media.gettr.com/group29/getter/2022/04/10/00/74b9db3e-ba05-fe8c-8577-793f4d5000c0/out.jpg)
 
 ---
 

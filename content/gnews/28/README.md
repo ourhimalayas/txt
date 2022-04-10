@@ -2,92 +2,58 @@
 ---
 
 
-## 斯里兰卡总统戈塔将与41名退出政府的国会议员举行重要会议
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2323737/)
+## FMC专员警告中共国对集装箱生产的垄断可能损害美国经济
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2323759/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+据《News Target》记者：Kevin Hughes，2022年4月7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1143-e1649610706514.png)图片来源：零对冲
+联邦海事委员会（FMC）专员卡尔-本策尔呼吁就美国“完全依赖”中共国集装箱制造的长期影响进行政策辩论。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
+“中共国集装箱制造业显然在大流行之前采取了共同措施来抑制市场。这些努力在一定程度上导致了拥堵问题和集装箱价格上涨，并放大了由拥堵造成的问题。所以他们利用他们的市场力量来控制市场。问题是，他们能否在其他领域因控制产生不利影响？” 本策尔告诉《FreightWaves》。
 
-4月10日，斯里兰卡前总统兼SLFP党领导人迈特里帕拉·西里塞纳（Maithripala Siriserna）说，SLFP和总统戈塔巴亚·拉贾帕克萨（Gotabaya Rajapakse）定于当晚7点举行决定性而重要的会议，以寻求解决当前影响该国的经济、政治和社会混乱的办法。
+3月30日，本策尔发布了一份报告，显示了对中共国对海运集装箱生产的垄断调查长达一年的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-11_00-36-20.png)
+本策尔在去年5月由北美多式联运协会主办的虚拟商务会议上向与会者宣布，他正在研究集装箱、多式联运底盘和铁路设备的可用性，以及美国是否已经变得依赖拥有和管理的此类设备的中共国。
 
-Siriserna今天早上在SLFP党的办公室向媒体发表讲话说，会议的主要目的是迫使拉贾帕克萨总统在没有全党内阁一个拉贾帕克萨家庭下组建一个临时政府，并拥有最少的投资组合。
+中共国企业主导全球集装箱制造市场
 
-他补充说：“在临时政府成立之前，必须重新引入宪法第19条修正案，增加权力以限制总统执行的行政权力。”
+报告描述了集装箱制造市场的现状，三大中共国国有企业和少数几家规模较小的企业控制着全球市场的绝大部分。
 
-西里塞纳说，整个国家都要求将拉贾帕克萨家族和总统拉贾帕克萨从斯里兰卡的政治中除名。只要现任政府和总统戈塔巴亚·拉贾帕克萨继续执政，针对总统和人民党政府的抗议和鼓动似乎就不会消退。但这是一个漫长的过程，需要时间。人们需要立即解决他们目前的不满，例如停电、基本商品价格暴涨、粮食短缺、不断升级的生活成本等等。如果我们要立即解决这些紧迫问题，首先必须采取行动组建一个稳定的政府。
+报告称：“中华人民共和国（中华人民共和国）控制着一个在全球范围内几乎事实上垄断集装箱生产的行业，这一事实应该令人深感担忧。”
 
-西里塞纳强调，SLFP认为，一个没有拉贾帕克萨人参与的全党临时政府将赢得公众的信任，因为随着第19条修正案的宪法条款的重新引入，行政部门不会发出不必要的指令或命令。为此，SLFP希望得到议会中所有政党的支持和祝福。
+调查发现，中共国三大制造商控制着全球86%以上的多式联运底盘供应，这些公司制造了全球95%以上的集装箱，包括美国国内的火车和卡车多式联运集装箱。
 
-另据美联社报道，4月10日，斯里兰卡抗议者连续第二天占领总统办公室的入口，要求戈塔巴亚·拉贾帕克萨因这个负债累累的国家历史上最严重的经济危机而辞职。
+报告称，当对海运集装箱的需求增加时，中共国的多式联运设备制造商提高产量的速度明显放缓——这引发了一个问题，即这是否是故意操纵价格策略的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/800-2.jpeg)
+商务部已确定，中共国集装箱和底盘制造商是国有控股的，是政府巨额补贴的接受者。
 
-数百名示威者冒着大雨，穿着雨衣打着雨伞，高呼反政府口号，一些人呼吁解散整个议会，为更年轻的领导人让路。
+报告还提到，中共国集装箱制造商在2021年大幅增加产量，但指出“集装箱价格表明持续稀缺，部分原因是2019-20年生产放缓，部分原因是交通拥堵。 ” （相关： 中共国港口的大规模拥堵表明全球供应链中断将继续。）
 
-32岁的退伍军人桑吉瓦·普什帕库马拉(Sanjeewa Pushpakumara)谈到拉贾帕克萨、他有影响力的家人和所有立法者时说：“我们会留下来，只有在我们把他们赶出去时才会离开。”
+最新的集装箱价格现在为每成本当量单位 (CEU)3,500美元，与2020年初的1,800美元/CEU和2020年末的2,500美元/CEU相比要高得多。根据报告，价格“基本保持稳定”在过去三个月3,500美元。CEU是集装箱价值的衡量标准，是20英尺干货单元的倍数。
 
-普什帕库马拉说，他在斯里兰卡内战的最后阶段与泰米尔族叛军（ethnic Tamil rebels）作战，政府军在2009 年赢得了这场战争。作为强大的国防官僚的拉贾帕克萨和他的哥哥马欣达（当时的总统和现任总理）都获得了胜利。
+通过1988年通过成为法律的《外国航运惯例法》(FSPA)，FMC 拥有广泛的权力，可以对外国政府、外国承运人和外国海运服务提供商的限制性贸易行为采取行动，这些行为会对美国承运人造成不利影响。外贸。但本策尔不想轻率行事。
 
-普什帕库马拉说，“我们会把他们送回家，拿回人民的钱，然后把他们送进监狱，这些人正在摧毁我们拯救的国家，看到军队和警察保护他们，我感到难过。”
+“该报告没有就FMC是否应该根据FSPA进行评估提出建议，因为我现在感觉不舒服。除了一位FMC专员发布的报告之外，还必须有政治意愿。但我们确实提出了潜在市场操纵的威胁。”本策尔说。
 
-支持者向抗议者分发食物、水和雨衣。
+本策尔的报告还提到了美国不断增长的集装箱和多式联运底盘制造，引用了Global Secure Shipping等公司努力推销一种新的智能集装箱，该集装箱采用复合运输材料生产，采用缅因大学和佐治亚理工学院的研究技术。
 
-斯里兰卡这个印度洋岛国正处于破产边缘，背负着250亿美元的外债——仅今年就有近70亿美元到期——而且外汇储备也在不断减少。预计本月晚些时候将与国际货币基金组织进行会谈，拉贾帕克萨政府已向中共国和印度寻求紧急贷款以购买食品和燃料。
+观看下面有关中共国“特洛伊木马”集装箱的视频。[https://www.brighteon.com/e78f4ffa-8b35-42e4-a7f0-7ca95c3fc62a](https://www.brighteon.com/e78f4ffa-8b35-42e4-a7f0-7ca95c3fc62a)
 
-几个月来，斯里兰卡人排长队购买其中大部分来自国外的燃料、燃气、食品和药品，这些生活必须品斯里兰卡人都必须以硬通货支付。燃料短缺导致每天持续数小时的滚动停电。
+文章来源：[https://newstarget.com/2022-04-07-fmc-commissioner-china-monopoly-container-production-dangerous.html](https://newstarget.com/2022-04-07-fmc-commissioner-china-monopoly-container-production-dangerous.html)
 
-数周不断增长的抗议活动所表达的大部分愤怒都指向了拉贾帕克萨家族，该家族在过去二十年的大部分时间里都掌权。
+翻译：洛杉矶盘古农场 – Raul
 
-批评者指责拉贾帕克萨兄弟大量借贷以资助不赚钱的项目，例如用中共国贷款建造的港口设施。
+校对：洛杉矶盘古农场 – Mike Li
 
-36岁的商人SD·普拉吉思·马杜什（SD Prageeth Madush）在抗议现场过夜。马杜什说，“当人们要求你滚蛋时，你应该尊从民意体面地离开，任何人都可以看到人们不再喜欢他（总统），但他不喜欢放弃权力。因此，我会留下来。如果我们要为我们的孩子创造更美好的未来，我们就必须忍受困难”。
+编辑：洛杉矶盘古农场 – WenXiong
 
-危机和抗议引发了内阁上周日的集体辞职。有四位部长宣誓就任临时留守，但许多关键职位都空缺。
+发布：洛杉矶盘古农场 – 子萍
 
-拉贾帕克萨提议建立一个统一政府，但主要反对党拒绝了这个想法。在近40名执政联盟议员表示将不再根据联盟指示投票后，议会未能就如何应对危机达成共识，大大削弱了政府的实力。
 
-随着反对党的分裂，他们也无法获得多数席位并控制议会。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-中共媒体一再宣称，“一带一路”建设给斯里兰卡带来的新变化，“繁荣与辉煌”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-10_21-22-44.png)
-
-中共利用 “债务陷阱”来扩大在斯里兰卡的影响力，投资了数亿十美元用于汉班托塔港、科伦坡港项目，除了拉贾帕克萨家族的贪腐，建造这些基础设施项目根本不赚钱。由于无法偿还债务，该国不得不将港口70%的股权和99年的经营权转让给中共。有传言称，拉贾帕克萨家族拥有超过180亿美元的资产。
-
-拉贾帕克萨家族很多人，包括拉贾帕克萨总统本人都是美国绿卡持有者，不仅贪腐巨额财富，更重要的是出卖了斯里兰卡的国家利益。
-
-从地理位置上来看，科伦坡港、汉班托塔港均处于印度洋国际航运线的黄金位置，拥有着得天独厚的地理优势和明显的竞争优势。
-
-从太平洋往南穿过马六甲海峡，一路向西横跨印度洋，就可以到达中东、欧洲、非洲……这是全球最繁忙的一条贸易航线。而汉班托塔港作为这条海上航线的中点又连接着中东石油区，每天大约有三百多艘船只途经汉班托塔港口的附近海域，驶向全世界各地，世界能源通道之一的角色也不言而喻。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Hambantota.jpg)
-
-随着斯里兰卡人民食不果腹，走上街头，等待拉贾帕克萨家族的应该是归还斯里兰卡人民的财富，走上断头台。
-
-参考数据：
-
-[President to hold crucial meeting with 41 MPs who quit govt.](https://www.dailymirror.lk/top_story/President-to-hold-crucial-meeting-with-41-MPs-who-quit-govt/155-234897)
-
-[Sri Lankans occupy president’s office entrance for 2nd day](https://apnews.com/article/business-sri-lanka-4e23ec5eafe789c1dca9737e764ee94a)
-
-[Thousands in Sri Lanka insist Rajapaksa family quit politics：Protesters angry over worsening economic crisis take aim at Sri Lanka’s all-powerful Rajapaksa family.](https://www.aljazeera.com/news/2022/4/10/thousands-in-sri-lanka-insist-rajapaksa-family-quit-politics)
-
-[Why are people protesting in Sri Lanka?](https://www.theguardian.com/world/2022/apr/06/why-are-people-protesting-in-sri-lanka)
-
-[‘We’re finished’: Sri Lankans pushed to the brink by financial crisis：Thousands take to the streets to call for the resignation of president Gotabaya Rajapaksa](https://www.theguardian.com/world/2022/apr/09/sri-lanka-financial-crisis-protesters-call-for-gotabaya-rajapaksa-resignation-please)
-
-[Sri Lanka’s newly appointed Finance Minister on Saturday said that the country would need about $3 billion in external assistance within the next six months to help stave off a severe economic crisis.](https://www.indiatoday.in/world/story/sri-lanka-3-billion-assistance-economic-crisis-external-aid-president-gotabaya-rajapaksa-colombo-1935508-2022-04-09)
-
-[\[今日环球\]“一带一路”新画卷·斯里兰卡](https://tv.cctv.com/2021/11/29/VIDEyTeIEPeyljhMG7TsgpF8211129.shtml)
-
-[斯里兰卡：中国租借了99年的港口，却遭到全世界的非议](https://dyfocus.com/news-world/4cd9da.html)
-
-[被一带一路搞垮了！斯里兰卡向中国求饶](https://ec.ltn.com.tw/article/breakingnews/3795593)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
