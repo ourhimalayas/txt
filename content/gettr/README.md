@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 10:48 PM (UTC)`
+
+------0410  #文贵大直播  #Youtube脱敏精选视频 汇总------<br/><br/>【精选1】从社会心理学分析习近平王岐山在上海的疯狂行为体现出的报复心理<br/>https://youtu.be/RK-1uheWweA<br/><br/>【精选2】习近平的批示，透露其扭曲且抱着报复心态虐待「北、上、广、深」的人民，并对这些城市做压力测试<br/>https://youtu.be/bhA-yf_TDjM<br/><br/>【精选3】习近平最想就是毁掉台湾，消灭美元<br/>https://youtu.be/Co3M348XWhM<br/><br/>【精选4】国内所有的全民验核酸，所有运往塞尔维亚的武器都是为了打台湾准备<br/>https://youtu.be/bUhTfeyIX_U<br/><br/>【精选5】全人类有一个基本的人权原则，任何人为了保护自己的生命安全，可以采取一切的防卫方式<br/>https://youtu.be/bYb6B1_hKIM<br/><br/>【精选6】新中国呼之欲出 新世界曙光在前；新中国联邦人应发自内心的珍惜战友，爱战友<br/>https://youtu.be/lF3Fkgx7CfU<br/><br/>【精选7】乌人民的唯真不破得到了世人100%的信任和支持；乌和欧洲对抗俄罗斯，英国全面支持，武器会倾巢而出;中共已经准备好了GDP降一半，各项开支降一半，3-5亿人死亡<br/>https://youtu.be/NmBEMeXaP0Q<br/><br/>【精选8】灭共进程一半押在习身体上，另一半靠咱新中国联邦战友上；《灭共的雪》和《铁锁梦》两首歌在全球多国iTune榜挤身榜首几名；七哥人生中最快乐的时光是表现勇敢的时候<br/>https://youtu.be/urY_KeC2YMc<br/><br/>【精选9】G系列的G是神(GOD)的意思，而不是郭(GUO)，是尊重上天，万佛万神的系列；中共威胁美台，如佩罗西到台湾就必会攻打台湾，所以双方都以染疫为由取消会面<br/>
+
+---
+
 `@miles 4/10/2022 9:59 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-10<br/>For English：gettr.com/post/p14l4yz1317
@@ -145,13 +151,6 @@
 
 4/9/2022 Miles Guo’s GETTR: The purpose for the CCP to let the video of Kathy Xu, CEO of Capital Today, go viral on the Internet is to instigate the Chinese people’s hatred against the rich. Although the CCP’s crazy actions in the world are beneficial to our cause of taking down the CCP, we don’t wish to see the CCP take these actions. I really appreciate our fellow fighters’ efforts to help “Chained Dream” and “The Terminator Snow” hit the charts! See you tomorrow at the grand live broadcast!<br/><br/>4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的；感谢战友们为《铁锁梦》和《灭共的雪》打榜！明天大直播见！<br/>
 ![img](https://media.gettr.com/group29/getter/2022/04/10/00/74b9db3e-ba05-fe8c-8577-793f4d5000c0/out.jpg)
-
----
-
-`@miles 4/10/2022 12:05 AM (UTC)`
-
-<br/>4/9/2022 Miles Guo’s GETTR: According to our fellow fighters from mainland China, the CCP has long been prepared to let the Lao Baixing suffer from starvation, with the purposes being making the Chinese people “more grateful to the CCP” and shifting the blame for social inequality and disasters to the rich people so that the CCP can rob their assets and eliminate them.<br/><br/>4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭<br/>
-![img](https://media.gettr.com/group5/getter/2022/04/10/00/2146e85a-b368-9a95-387f-b9a25056bc2f/out.jpg)
 
 ---
 

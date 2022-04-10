@@ -2,19 +2,41 @@
 ---
 
 
-## 视频文编|一个不会反思的民族永远都不会站起来
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2323224/)
+## 有声|乌克兰与盟国称俄军袭击乌东火车站造成大量死伤,俄罗斯否认
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2323301/)
 
-撰稿：东京樱花团/風鈴
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-10_224826.png)
-我们不刮骨疗伤，我们这个民族永远都不会有希望。 与此相反，西方也走过很多弯路，走过了黑暗年代，但是他们在不断的反思中前进，每每在历史的最关键时期，就有天才的人物诞生，引导他们向真理向科学向真相探索，纠正过去的错误。 很遗憾的是中华民族这几千年来从没有过真正的反思，共产党占领中国之后，一切都开始大倒退。现在我们反思，发现这一支毒剂，它的危害性比病毒、比疫苗带来的灾害还要严重，而且这需要几代人才能治好。 如果我们自己不能清除掉思想上的毒素，我们这个民族永远都不可能有希望。 所以，我们真正需要的是一次大反省，大反思，需要一场从精神、文化、思想上彻底的文艺复兴式的变革，带领这场大变革的就是我们新中国联邦人。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【路透基辅4月8日】  乌克兰及其盟友指责俄罗斯对乌东一处火车站实施导弹袭击，造成至少52人死亡，当时火车站里挤满了欲逃离俄罗斯攻击威胁的妇女、儿童与老人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image002.jpg)
+顿涅茨克州州长（Pavlo Kyrylenko）表示，该火车站被一枚含有集束弹药的Tochka U短程弹道导弹击中，集束弹药在半空中爆炸，将致命的小型炸弹喷洒在更大的区域。
 
-消息来源：
-[2022年4月6日《文贵大直播》](https://www.gettr.com/streaming/p13unl27254)
+泽连斯基表示发生在顿涅茨克地区的克拉马托尔斯克(Kramatorsk)火车站的袭击是对平民的蓄意攻击。该镇镇长估计当时约有4,000人聚集在那里。
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+2008年的一项公约禁止集束弹药的使用。俄罗斯没有签署这项公约，不过此前一直否认在乌克兰使用这种武器。
+
+在地区当局忙着继续疏散弱势群体之际，欧盟领导人造访基辅，对总统泽连斯基表达支持，并加快乌克兰加入欧盟的步伐。
+
+
+
+[【援引连结】](https://cn.reuters.com/article/ukraine-russia-crisis-wrapup-0408-fri-idCNKCS2M105G)
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
