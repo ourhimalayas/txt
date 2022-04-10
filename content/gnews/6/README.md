@@ -2,24 +2,27 @@
 ---
 
 
-## 太靠近中共国成问题
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2324154/)
+## 波兰义工大赞《新中国联邦宣言》
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2324155/)
 
-编译：波士顿五月花—-思澈
+作者：纽约香草山农场 文真
 
-德国财政部长克里斯蒂安•林德纳对德国与中共国的关系不满意，寻找与德国有共同价值观的贸易伙伴很重要。
+波兰当地时间4月9日，法治基金-新中国联邦乌克兰救援前线队员妮可发布一则采访视频。视频中，她采访了一位来自波兰的义工。这位波兰义工表达了他对《新中国联邦宣言》的赞许，以及对新中国联邦灭共的强烈支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5F7FDFF9-DB8C-4DEA-A4B4-C1CB5D59FCAC.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-4.jpeg)
 
-德国新任财政部长克里斯蒂安•林德纳是德国自民党主席，林德纳认为德国经济过于依赖中共国的市场，中共国是德国的重要贸易伙伴之一，但是中共对待反对派和少数民族的行为受到谴责。他说：“德国也应该在出口方面使国际关系多样化。现在也许已经到了我们应该优先与那些不仅是贸易伙伴，而且还想成为价值观伙伴的人做生意的时候了。”
+这位来自波兰的年轻义工，在新中国联邦帐篷中休息的时候，通过翻译器阅读了《新中国联邦宣言》。采访中表示，作为一名波兰人，他非常理解新中国人灭共的行动，波兰当初也经历了推翻共产政权的过程。他甚至赞同推翻中国共产党比当年的波兰共产政权更加艰难。
 
-简评：思想固化的德国人也开始转变思维模式了
+这位年轻人意犹未尽地谈到，造成今天世界灾难的除了中国共产党本身，还有跟中共同流合污的所谓建制派“精英”，比如，达沃斯党。他们勾结在一起奴役世界人民。全世界人民应该联合起来，推翻中国共产党和与之勾结的一切专制政权与独裁者。
 
-素材来源：[https://www.neopresse.com/wirtschaft/finanzminister-geht-auf-distanz-zu-china/](https://www.neopresse.com/wirtschaft/finanzminister-geht-auf-distanz-zu-china/)
+参考链接：[来自乌克兰救援前线Nicole报道](https://gettr.com/post/p14eqk19a66)
 
-*发布：思澈*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-
+总编：Zion文恩
+编辑：静言
+审核：Zion文恩
+校正/发稿：谐趣园
 
  
 
