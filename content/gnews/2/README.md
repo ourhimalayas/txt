@@ -2,34 +2,41 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.10A）——接种疫苗后出现了关节疼痛和神经损伤
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320292/)
+## 乌克兰官员说俄罗斯军队摧毁了几十年的切尔诺贝利数据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320350/)
 
-整理：禄森
-编辑：文泓
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组
+翻译：li yan li
+编辑：李易通
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-18.png)图片来源：雅典娜设计组
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据。俄罗斯军队已撤出切尔诺贝利，但人们仍然担心他们受到“高剂量辐射”的影响。
 
-[**副作用集萃**** ****–**** GNEWS**](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+乌克兰国家禁区管理机构下属的公共委员会主席奥列克桑德·西罗塔周四在Facebook的一篇翻译文章中说：“这就是我们的切尔诺贝利文件和档案的所有印迹。我们几十年来一直在收集的东西就这样被扔进了垃圾桶。”
 
-**新冠第三针手指僵硬疼痛，太紧张神经损伤**
+该国家机构的代表发布了据称装满文件的垃圾桶的照片，以及显示监测该地区辐射水平的服务器丢失的图像。
 
-博主：嘻嘻2017601
+俄罗斯军队上周离开了切尔诺贝利，军队将从首都基辅和北部城市切尔尼戈夫周边地区撤出，该地区距离切尔诺贝利约有55英里。
 
-2021年12月28日，上周打完第三针后，打了针的那个胳膊的手无名指关节疼了一周，早上起来那根手指头还呈晨僵，白天活动了一天要好点。记得当时针打了后，整个手臂就感觉麻了一下，然后无名指扯（跳）了一下，比较轻微，当时在观察室我还问了医生，他说可能打到神经了。昨晚就搭配了这两种药，早上晨僵消失了，疼也好点了，差点以为手要废了。
+乌克兰周四告诉国际原子能机构，它已经开始“恢复对核电站的监管控制过程”。
 
-【备注：晨僵（morning stiffness）指晨起时病变的关节在静止不动后出现较长时间僵硬，如胶粘着的感觉，在适当活动后（症状）逐渐减轻的现象。】
+国际原子能机构说，它打算在可能的情况下尽快访问1986年核灾难的现场，以评估辐射情况。
 
-以下是网友留言及博主回复，图片来自博主小红书。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1077.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1078.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1079.png)![](https://gnews.org/43eb6730-15b0-4b31-b65a-031e478e89ed)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1081.png)
-参考来源：[新冠第三针手指僵硬疼痛，太紧张神经损伤](https://www.xiaohongshu.com/discovery/item/61ca6368000000002103f72f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155348)
+乌克兰官员几周来一直警告说，没有保护措施的俄罗斯军队驾驶装甲车通过一个被称为“红色森林”的地区，掀起了放射性尘埃云。
+
+据报道，最近的无人机镜头显示，整个禁区内的“污染区”被挖出了壕沟。
+
+核监督机构说，它一直无法独立核实有关俄罗斯军队接受“高剂量辐射”的报告。
+
+参考链接：[乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据](https://www.foxnews.com/world/russian-troops-destroy-chernobyl-data-ukrainian-officials)
 
 发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 

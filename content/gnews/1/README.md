@@ -2,39 +2,28 @@
 ---
 
 
-## 墨西哥表示不接受俄罗斯入侵乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320331/)
+## 广州也推全民核酸檢測
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320361/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-翻译/编辑：小红帽
+4月9日，继上海之后，中共国再有一线城市将普筛，广东省会广州市11个区对所有民众进行病毒核酸检测。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_32724.jpeg)图片来源：www.japantimes.co.jp
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-13.jpg)（图片来自美联社）
 
+据《中央社》报道，8至9日之间，广州白云、越秀、荔湾、海珠、花都、从化、番禺、南沙、黄埔、天河和增城共11区都发布全员核酸检测的通告。除荔湾区部分街道昨晚即开始普筛外，其他区域多从9日早开始。
 
-根据CNA4月10日报道，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔周六（4月9日）表示，墨西哥不接受俄罗斯入侵乌克兰。该视频消息在支持乌克兰冲突受害者的全球活动中发布。
+此外，广州也决定9日起对部分区域展开分级分类防控，白云区的密闭和半密闭场所全部停业，学校停止实体教学。
 
-“我们不接受俄罗斯入侵乌克兰，因为我们曾经遭受过入侵，”洛佩斯·奥夫拉多尔说，他提到了西班牙、法国和美国对这个拉丁美洲国家的入侵。
+据了解，过去两天，广州通报6例本土确诊，3例本土无症状感染者。
 
-“我们赞成以和平方式解决冲突。”
+另外，自3月底因疫封控已进行多轮筛检的上海于当地今早宣布，拟再次普筛，并根据结果实施分区差异化防控。
 
-本周早期，加拿大总理贾斯汀·特鲁多曾邀请洛佩斯·奥夫拉多尔参加他与欧盟委员会主席乌尔苏拉·冯德莱恩召集的活动，为乌克兰难民和境内流离失所者筹集资金。
+参考链接：
+[https://www.cna.com.tw/news/acn/202204090054.aspx](https://www.cna.com.tw/news/acn/202204090054.aspx)
 
-虽然洛佩兹奥夫拉多尔周三表示他无法出席，但他曾承诺发布一段视频，以谴责俄罗斯的入侵行为。
-
-洛佩斯·奥夫拉多尔一直试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
-
-虽然他的政府支持联合国敦促俄罗斯从乌克兰撤军的投票，但墨西哥在周四联合国大会（UNGA）关于暂停俄罗斯在联合国人权机构的地位的投票中投了弃权票。
-
-资料来源：[Mexico says it does not accept Russian invasion of Ukraine](https://www.channelnewsasia.com/world/mexico-says-it-does-not-accept-russian-invasion-ukraine-2618291)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布： 文曦
 
  
 

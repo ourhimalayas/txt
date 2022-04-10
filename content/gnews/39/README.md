@@ -2,31 +2,52 @@
 ---
 
 
-## 临床病理学家Ryan Cole博士讲述他看到的个人在注射COVID19疫苗后免疫系统减弱的情况
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2319652/)
+## 百年前兴起于上海的中共红魔百年后因上海饥民风雨飘摇
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2319741/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-我们在实验室里看到，在人们打完这些针后，我们看到了一个非常令人担忧的困局，即身体需要的重要的杀伤性T细胞的降低。疫苗几乎就是一种反向的艾滋病毒，艾滋病毒会使辅助T细胞即CD4细胞减少。而这种（疫苗）病毒在通过疫苗进入人体后，我们看到的是杀伤性T细胞即CD8细胞的下降。而CD8细胞的作用是什么呢？它是控制所有其他病毒的。我在实验室里看到了什么，我看到了疱疹类病毒的上升。我看到了疱疹，看到了带状疱疹，我看到了单核细胞，看到了宫颈活检和妇女宫颈涂片中的HPV病毒的大幅上升。除此之外，还有一种传染性很小的传染病，你知道的，孩子们得的，叫软疣。你需要什么来控制它？你需要CD8杀伤性T细胞。我看到50岁以上的人有这种小凸起和皮疹的情况增加了20倍。你知道那是无害的。但它告诉我的是这些打过针的人的免疫状态,（疫苗）实际上是在削弱这些人的免疫系统。现在最令人担忧的是,（本来）这些类型的免疫细胞在体内有一种模式，是可以控制癌症的。然而，自1月1日以来，在实验室里，我看到子宫内膜癌比以往每年看到的增加了20倍，增加了20倍，一点都不夸张。因为我看了（统计）数字，同期相比而言，哦，我的天哪，我以前从未见过这么多子宫内膜癌。我在年轻的病人中看到了侵入性黑色素瘤。通常情况下，我们会及早发现这些黑色素瘤，它们是很薄的黑色素瘤。在过去的一两个月里，我看到较厚的黑色素瘤急剧增加。我已经看到了早期的信号。而且我们正在修改免疫系统，使其处于被削弱的状态。德国的一项伟大的研究，在辉瑞公司显示这种情况被锁定后，研究了年轻人的这些资料，我们不知道多久，也许免疫系统，它会再生，这些比例会回升。但谁在研究它？长期试验又在哪里？两个月，四个月？这个资料被锁定了多长时间？我们不知道。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城_副本.jpg)
+因疫苗灾难在中共国多产生了众多表观无症状感染者，地方政府在习太阳的动态清零之下制造了难以计数的人道灾难——求医无门、求食无门、求助无门，在目前物资供应还算充裕的情况下，粮食危机却已经提前在被封闭的各个城市和社区中预演，而最显著的莫过于时下之上海了。
 
-素材提供：蓝色天空
-软件听写：蓝色天空
-听写校对：蓝天灵梦
-文稿翻译：Aima
-翻译校对：Myway
-字幕添加：杰尼龟
-最终审核：CTQ
-发布/上传: 野草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
+自中共这个舶来的红魔在中华大地扎根百年来，它控制思想、掠夺控制财富、毁灭传统，公民的基本权利被剥夺殆尽，中共建政七十余年来，这片土地上生生死死几十亿人一点一点地在不知不觉中退缩和忍让——
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+雾霾，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+地沟油，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-2.png)
+毒食品，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+
+毒疫苗，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+
+没有选票，不忍让的要么被消声，要么被肉体消失或圈禁，绝大多数人忍了；
+
+在疫苗灾难和动态清零双管齐下的上海的人道灾难，虽然被中共的防火墙屏蔽掉大部分声音，但是在信息自由流动的当下，十四亿中国人民和全世界依然能够窥得一二，因疫苗灾难和动态清零而采取封城的当下上海，正在发生的其实也正是粮食危机的预演，雾霾、地沟油、毒食品、毒疫苗、没有选票通通都可以忍受，因为毕竟死的似乎是别人，被毒害的似乎也不是那么直接，在粮食危机面前这一切都变了。
+
+因为没吃饱饭或者没有饭吃的人在封城之下是绝大多数，当所有人都退无可退之下，要么选择被饿死，要么选择跳楼或以其他方式自杀，但是这些绝对不会再是大多数人的选择，那些饿红了眼的老百姓们正在形成洪流，在这股洪流面前，中共的居委会、军警特勤、维稳人员顶得住吗？
+
+中共红魔百年前兴于上海，百年后中共红魔以这种大规模人道危机的方式再度唤醒两千多万上海居民，这或许就是宿命，中共红魔肆虐的百年来这片土地上曾经闪现无数对抗红魔的仁人志士，但是这片土地上的绝大多数人并没有被唤醒，在今天居然是因为饥饿而让这个世界听到了上海人的怒吼，这也是宿命，也许这也正是百年来中华民族被中共红魔洗脑奴役的代价。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
