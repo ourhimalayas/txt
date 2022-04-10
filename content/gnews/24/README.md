@@ -2,34 +2,38 @@
 ---
 
 
-## 日本丢弃一大半中共病毒疫苗
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322545/)
+## 闲聊澳洲：4月9日郭先生短视频概要
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2322624/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/604ebf9be4b0fc419535683a.jpeg)
-当地时间4月7日，据外媒报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
+整理：闲聊澳洲
+编辑：文泓
 
-据悉由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了中共病毒疫苗购买合同。此批疫苗于2021年年初开始交付。日本的接种人数设置在40岁以上，目前已进行了11万次接种。而在海外报道中因注射中共病毒疫苗造成了严重的血栓反应。据日本卫生部门一位官员承认，接种中共病毒疫苗对预防中共病毒毫无用处，并且这些疫苗极度不稳定。目前这批疫苗已经到达了6个月的保质期，未来将会有一半数量的疫苗会被处置不用。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1132.png)
 
-日本卫生部门目前亿合同保密为由，尚未透露是否为疫苗过期。
 
-reference：
+在美东时间4月9日，郭先生发了个盖特小视频，视频中郭先生主要讲了这么几条：
 
-[https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com\_apitop](https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com_apitop)
+1）中共将红旗导弹系统运送到塞尔维亚，中共还要把东风15导弹系统大量部署到中东的沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，这对美国和整个西方世界等同于宣战。现在六架运20运输机将红旗导弹系统送到塞尔维亚，相关信息已见诸报端，中共的恶将会把中国人带到地狱里边去。
 
-撰稿、发布：骄子
+在非洲的一个战友家人快被强奸死了，去（警方）报案，需要大使馆协助。大使馆却说，为了中非友谊，你就忍着吧。现在俄罗斯打仗让中国人买单，中共给中国人在全世界拉仇恨。
 
-* * *
+2）现在封城的上海、深圳、吉林和郑州，很多人饭都没得吃，习还要征服全世界。国内的战友说，中共早就做好准备了。中南坑老杂毛说，让中国人尝一尝挨饿的苦头挺好；中国这些年的城市化，有自来水、有空调、有超市，这一切都是党给的，民众不懂的感恩，让他们挨挨饿，就懂得感恩了，会更加紧密地团结在党的周围。
 
-欢迎订阅我们的GNews账号：
+3）更夸张的事情，从2019年到2021年中共国所谓的准备粮食、节省粮食，其实共产党早就蓄谋已久，就是让中国人挨饿，让你未来回乡下去，还叫你永远感党的恩；关键时刻党释放粮食，再拍很多宣传片，让你感谢党；然后把那些富豪全灭了，资产全抢走。借口这些富豪就是制造不公平（源头）。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+4）今日资本的徐新要到了食品很高兴，共产党让她的短视频大量传播。为啥徐新弄到食品的这个事会全面传播呢？中共就是让老百姓看到，富豪比你们优越，富豪比你们有本事（占有很多资源），让人人都去恨富豪。你家那么有钱，还能在这种情况下弄到那么多吃的，我们都快饿死了，所以最后老百姓会恨富豪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+所以说接下来在上海还有其他城市中共都会这么做，就是让老百姓尝尝挨饿的滋味，然后更感谢党给他们提供的丰富的物资；再制造社会矛盾，借机灭掉富豪。
+
+资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

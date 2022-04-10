@@ -2,34 +2,54 @@
 ---
 
 
-## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
+## 不要相信中共国对普京的乌克兰战争所说的任何内容
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2322662/)
 
-**港台前线 zhong｜2022-4-10**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
+编译：七叶之芒
 
-霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
-
-俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
-
-此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
-
-目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-4.jpg)
 
 
 
-> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-190.jpg)图片来源：Sputnik/Ramil Sitdikov/Kremlin via REUTERS
 
+北京在弗拉基米尔-普京入侵乌克兰的问题上装作中立，但让人吃惊的是中共如何让完全由国家控制的媒体呼应俄罗斯的宣传。
 
+命令明明白白地发出去了–正如《新京报》旗下的社交媒体账户地平线新闻上一条迅速删除的信息意外地披露。“不得发布不利于俄罗斯或具有亲西方内容的帖子”。
 
-来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
+例如，上周，当世界其他地方看到被围困的乌克兰城市和俄罗斯军队留下的屠杀的真实图像–布卡的45英尺长的壕沟里堆满了平民的尸体，以及该镇的所有尸体–中共国的《人民日报》在社交媒体平台微博上分享了一段视频，“显示”俄罗斯在哈尔科夫外向乌克兰人提供人道主义援助。
+
+有300多万人观看了这段视频。
+
+从一开始，中共国网络就放大了俄罗斯的虚假信息，引用了俄罗斯官员的虚假说法，即乌克兰总统沃洛季米尔-泽伦斯基已经逃离首都，乌克兰士兵在入侵的第一天就投降了。
+
+而中共国的凤凰卫视在与俄罗斯军队一起在现已被摧毁的马里乌波尔城外发布报告，称平民应该欢迎俄罗斯军队。
+
+北京完全拒绝谴责这次入侵，而是断言美国和北约对普京的战争负有责任。习近平甚至告诉美国总统拜登，美国和北约是问题的“关键”。
+
+与此同时，乌克兰的安全部门SBU表示，中共国应该为入侵前对乌克兰军事和核设施的重大网络攻击负责，对属于基辅国防部和其他机构的600多个网站进行了数千次黑客尝试。
+
+也许这是对俄罗斯的恩惠，因为它将入侵推迟到北京奥运会结束后，据说习近平要求这样做。
+
+毕竟，普京和习近平在2月4日，即奥运会开幕当天宣布了他们邪恶的最好的友谊，在5000字的联合声明中宣布：“两国友谊没有限制，没有‘禁止’的合作领域”。
+
+至少现在，这次入侵已经让西方人清醒地认识到普京的真实本性。但世界仍然需要承认，习近平也是文明的敌人。
+
+新闻来源：[dont believe any of what china says about putins ukraine war](https://nypost.com/2022/04/09/dont-believe-any-of-what-china-says-about-putins-ukraine-war/)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+审核：Aries的星
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
 
  
 

@@ -2,34 +2,35 @@
 ---
 
 
-## 日本和菲律宾签署国防协议以应对中共台海局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322488/)
+## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47.png)
-当地时间4月9日周六，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，从而促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+**港台前线 zhong｜2022-4-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
 
-自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为同位于该海域的国家，日本和菲律宾希望共同解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约目前已经在考虑为双方的军队提供供应共享协议，该协议包括收购和交叉服务。据悉日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。
+霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
 
-菲律宾是继印度尼西亚之后与日本举行二加二会议的第二个东南亚国家。
+俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
 
-reference：
+此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
 
-[https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
+目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
 
-撰稿、发布：骄子
+
+
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
+
+
+
+来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
 
 * * *
 
-欢迎订阅我们的GNews账号：
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
