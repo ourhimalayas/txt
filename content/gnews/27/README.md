@@ -2,33 +2,25 @@
 ---
 
 
-## 斯洛伐克赠乌防空系统拜登表示感谢
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322208/)
+## 如何让普京下台结束战争？
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2322119/)
 
-撰稿：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
-就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
+编译：波士顿五月花—-思澈
 
-据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
+“最可能发生的情况”：普京的反对派认为普京只有在内部冲突后下台。
 
-迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6FA54336-1913-4EFC-B16F-D72AD1C897DE.jpeg)
 
-参考链接：
+普京的反对派阿列克谢•纳瓦利内的幕僚长**列昂尼德·沃尔科夫**说“最有可能发生的事情是，由于普京的内部核心圈子发生了冲突，希望莫斯科发生政变。在莫斯科的政治和经济精英圈子里发生了巨大的震荡，普京的军事行动已被证明是不切实际的，但同时，俄罗斯正在遭受经济制裁的真正损害。这两个因素加起来对普京的压力，迟早会让他下台，我非常有信心。”
 
-[拜登感謝斯洛伐克贈烏防空系統 控俄攻擊平民暴行](https://www.cna.com.tw/news/aopl/202204090006.aspx?)
+俄罗斯的街头游行示威抗议让普京加强了对民众的刑罚，增加了民众被监禁和失业的风险，越来越多的俄罗斯人正在寻求真相。
 
-[斯洛伐克贈S-300防空系統 總理宣布已送抵烏克蘭](https://www.cna.com.tw/news/aopl/202204080398.aspx)
+素材来源：[https://www.rnd.de/politik/wladimir-putin-wie-kann-russlands-praesident-gestuerzt-werden-OW2COLKINRBBPOXD3OJLR5BHHA.html](https://www.rnd.de/politik/wladimir-putin-wie-kann-russlands-praesident-gestuerzt-werden-OW2COLKINRBBPOXD3OJLR5BHHA.html)
 
-[快新聞／自1月止美已金援烏克蘭累計12億美元！　拜登：再撥2億用於軍事防備](https://www.ftvnews.com.tw/news/detail/2022313W0006)
+*发布：思澈*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-65.jpg)
 
-编辑/总编/审核: 飞虹
 
-校对：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
