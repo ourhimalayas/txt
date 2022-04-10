@@ -2,31 +2,40 @@
 ---
 
 
-## 欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322143/)
+## 中共盗走美国小投资者数十亿美元
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322391/)
 
-撰稿：日本方舟农场-Andy5；纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月8日，正在乌克兰访问的欧盟议会议长冯德莱恩，在首都基辅跟乌克兰总统泽连斯基进行了会晤，并在会后的记者会中，亲手将乌克兰加入欧盟的意向书交给泽连斯基总统，邀请乌克兰在短期内加入欧盟。她同时表示，虽然通常情况下，加入欧盟需要历时数年的审核，但她愿意推动欧盟在几周内，通过乌克兰的加入申请。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1125.png)图片来自：https://media-cldnry.s-nbcnews.com
-据悉，冯德莱恩议长在访问乌克兰期间，专门去了遭受俄罗斯大屠杀的布查镇，面对堆积如山的装尸袋，议长一度哽咽，惊讶地无法发声。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S1-FR285_TECHNI_M_20200410160203.jpg)
+当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，数额高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国賊等与此有关联，中共利用美国市场的规则漏洞来洗劫美国投资者的资金。
 
-同一天，欧洲理事会主席查尔斯·米歇尔表示，欧盟最高外交官已提议通过“欧洲和平基金”向乌克兰追加 5 亿欧元军事援助，这是该基金首次在战争期间向第三国运送致命武器。
+中共2016年到2021年在美国交易所上市的公司在降价前抛售自己的股票，从事内幕交易以防止损失，资金达到100亿美元。1990年以来，为了吸引外国公司在美国上市，美国法律规定股东必须要及时在公开文件中披露其具体交易。但对中共国的要求并未如此严格，中共只需要用邮寄纸质披露即可，而这需要三个月的时间。对于瞬息万变的市场来说，这无疑是巨大的漏洞。随着中共在西方的蓝金黄，越来越多的西方投资了中共，变相地骗走没有内部消息的美国投资者的资金。
 
-此前，欧盟已同意斥资 10 亿欧元为乌克兰军队提供军事物资，这是欧盟首次打破长期以来禁止向冲突地区国家运送武器的禁忌。不过，该提案通过需要得到27个欧盟国家的批准。
+研究人士认为即使美国关闭了所有利于中共的漏洞，也无法阻止这种行为。因在中共国但凡可以操控股市的手超出了美国以及任何其他民主国家的法律，世界有必要采取措施了。
 
-参考链接：
+reference：
 
-[20220409歐盟邀請烏克蘭加入歐盟](https://www.gettr.com/post/p14ca1869eb)
 
-[EU agrees to give €500M in arms, aid to Ukrainian military in ‘watershed’ move](https://www.politico.eu/article/eu-ukraine-russia-funding-weapons-budget-military-aid/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-64-530x720.jpg)
 
-编辑/总编/审核：飞虹
+> [China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

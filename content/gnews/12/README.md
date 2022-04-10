@@ -2,69 +2,75 @@
 ---
 
 
-## 昨晚六架中共国Y-20运输机突然出现在欧洲上空
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2322007/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天登榜新加坡、台湾iTunes摇滚榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2322042/)
 
-作者：斯特森·佩恩和泰勒·罗戈韦
-（STETSON PAYNE AND TYLER ROGOWAY）
-发布日期：2022年4月9日
-新闻来源：The DRIVE
-翻译评论：文虓Bobby
+4/10/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天iTunes打榜记录：
+**《灭共的雪》**
+新加坡、台湾摇滚歌曲榜第1名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+**《铁锁梦》**
+柬埔寨热门歌曲榜第3名
+蒙古流行歌曲榜第1名
+
+* * *
+
+[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1127.png)
 
-据报道，运-20运输机向塞尔维亚运送了武器，但也显示了中共国日益增长的全球影响力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
 
-上周五晚间，飞行跟踪人员发现了一个有趣的意外，六架中国人民解放军空军运-20运输机出现在土耳其领空，向西飞向塞尔维亚。
 
-开源代码的飞机跟踪公司常青英特尔（Evergreen Intel）告诉战区的跟踪公司同事@amelia airheart首先在土耳其伊斯坦布尔北部发现了这些航班。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
 
-“这是我打开航班雷达24软件（Flightradar24）和我的广播式自动相关监视软件（ADS-B exchange）的提示，其中包括Y-20A/U已知的十六进制代码，”常青英特尔告诉战区栏目组。“可以肯定的是，不同的应用程序显示了沿着同一航线的其他Y-20，相隔约100公里，从伊斯坦布尔一直延伸到几乎格鲁吉亚边境。”
 
-“这非常独特，因为在早期，这么多Y-20在一起，都使用了多点定位（MLAT：multilateration)。考虑到这是一次预定的武器交付，这是有道理的。北约向波兰或乌克兰交付的类似军用运输机以前也使用过MLAT。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
 
-至于多点定位（MLAT）与广播式自动相关监视（ADS-B）的使用，常青英特尔告诉我们:“至于北约或特许运营的包机公司使用MLAT与ADS-B广播的交付航班比率，我知道MLAT航班一直在飞往波兰，(战前)航班使用ADS-B广播……对我来说，从你的飞机上发射ADS-B信号可以告诉所有人你在哪里。这对导航、记录、安全等都很有用，但对所有方面来说，这架飞机就在这里，我们有时间戳、高度、飞行参数，都只有几米，这对飞行意图和万一出现问题都很有用。这对于一架处于潜在敌对环境的交付飞机来说非常重要，就像战前的乌克兰一样。除此之外，对于那些不一定介意看不到整个航线的国家来说，MLAT是一个可靠的选择。”
 
-中共国货运飞机降落在首都贝尔格莱德的尼古拉特斯拉国际机场，飞机观察人员在最后的降落和停机坪上捕捉到它们的中共国标记。观察人士指出，至少有一些飞机去掉了箔条和照明弹对抗系统的覆盖物。看起来他们很可能已经装备了实时对抗措施，这可以预见到某种潜在的威胁。这种威胁是什么还不清楚。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
 
-后来有报道称，这些飞机向塞尔维亚军方交付了红旗HQ-22地对空导弹系统。《华盛顿邮报》报道了美国政府2020年就向贝尔格莱德的购买交易发出了警告。据报道，塞尔维亚出人意料地选择了红旗反导系统HQ-22，而不是俄罗斯的S-300。不过，这些系统的成本可能是一个主要因素。
 
-运-20的出现令人惊讶，因为它们是一起飞行，而不是一系列的单机飞行。任何数量的运-20运输机在欧洲的出现都是崭新的动态。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
 
-这些货机在中国空军的库存中相对较新，2016年才开始服役。
 
-早在2020年初，作为应对2019冠状病毒病(COVID-19)在武汉最初暴发的一部分，我们就曾写过它们在危机中首次使用的情况。从那以后，他们一直在扩展他们的业务足迹，包括飞往欧洲，但没有像这次行动那样大规模。考虑到北约正在努力向乌克兰运送物资和援助，中共国空军很有可能将此次运输作为其自身空中运载能力的一种炫耀。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
 
-在基本设计和作用上与美国空军的C-17“全球霸王”III大致相似，未来生产的Y-20飞机将使用国产WS-20涡风扇发动机，而不是俄罗斯的Oloviev D-30喷气发动机。使用这种高旁通涡轮风扇也应该提高Y-20的整体性能。
 
-该机型和一款著名的空中加油机型于2021年在南中国海和台湾防空识别区(ADIZ)的马来西亚领空出现。据报道，运- 20U加油机在11月28日通过台湾防空识别区的飞行中，支持了20多架中共国空军飞机。你可以在这里阅读我们对那次入侵的报道。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
 
-据常青英特尔公司称，他们已经追踪到43架已知的Y-20A/U机身，包括至少7架测试机身。这只是使用开放源码观察到的，实际的舰队规模可能要大得多。2019年底，我们统计了仅在西安就生产了20架运-20飞机。
 
-不管这是否方便地展示了它的全球影响力，这次任务都不是例行公事。这次向贝尔格莱德运送军事装备的大规模行动，再次证实了中共国人民解放军空军通过其迅速发展的Y-20机队获得的战略空运能力，以及如何将其投入使用的不断扩大的作战能力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_73.jpg)
 
-除了运-20在欧洲的影响力扩大之外，中共国将在欧洲部署更高端的防空系统，这可能是另一个让塞尔维亚邻国懊恼的问题。
 
-评论：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
 
-俄罗斯对乌克兰的入侵，让全世界正义的国家和力量都非常愤慨，并坚定地和乌克兰人民站在了一起！新中国联邦不仅和乌克兰人民站在一起，还在实施乌克兰紧急救援行动，每天救助饱受战火伤害的乌克兰难民。邪恶的中国共产党却和独裁专制的俄罗斯为伍，支持俄罗斯的入侵乌克兰行为，已经让全世界和欧美民主国家极为反感。在关键时刻，中共又运输红旗反导系统给塞尔维亚支持俄罗斯，并威胁到乌克兰、北约和欧洲的安全，这对美国，对西方世界等同于宣战！而且据文贵先生爆料，还要把东风-15系统要大量的布置在中东的沙特、伊拉克、伊朗、也门、叙利亚、突尼斯等这几个地方。但是战友们你们知道吗？这会把中国人带入到地狱里面去！这是绑架全世界的华人上了战车，置海外华人于极其危险的境地。由此造成的未来世界的排华浪潮不可阻挡，邪恶的中共就是死也要让世界华人一起陪葬。
 
-不消灭中国共产党，所有人都不会安全，必须消灭共产党！消灭共产党是人类安全的需要！
+[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-***原文链接：***
-
-[https://www.thedrive.com/the-war-zone/45158/half-a-dozen-chinese-y-20-cargo-jets-popped-up-over-europe-last-night](https://www.thedrive.com/the-war-zone/45158/half-a-dozen-chinese-y-20-cargo-jets-popped-up-over-europe-last-night)
-
-**审核校对：玫瑰天空
-上传排版：V在途中**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

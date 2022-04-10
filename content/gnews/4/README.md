@@ -2,40 +2,17 @@
 ---
 
 
-## 中共盗走美国小投资者数十亿美元
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322391/)
+## 미국, 러시아 최대 금융기관 봉쇄, 러시아에 대한 신규 투자 금지
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2322484/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S1-FR285_TECHNI_M_20200410160203.jpg)
-当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，数额高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国賊等与此有关联，中共利用美国市场的规则漏洞来洗劫美国投资者的资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-2-17.jpg)
 
-中共2016年到2021年在美国交易所上市的公司在降价前抛售自己的股票，从事内幕交易以防止损失，资金达到100亿美元。1990年以来，为了吸引外国公司在美国上市，美国法律规定股东必须要及时在公开文件中披露其具体交易。但对中共国的要求并未如此严格，中共只需要用邮寄纸质披露即可，而这需要三个月的时间。对于瞬息万变的市场来说，这无疑是巨大的漏洞。随着中共在西方的蓝金黄，越来越多的西方投资了中共，变相地骗走没有内部消息的美国投资者的资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2668.jpg)
 
-研究人士认为即使美国关闭了所有利于中共的漏洞，也无法阻止这种行为。因在中共国但凡可以操控股市的手超出了美国以及任何其他民主国家的法律，世界有必要采取措施了。
+4월 6일 미국 백악관은 러시아의 우크라이나 폭행을 감안해 러시아에 대한 신규 투자를 금지하고 러시아 최대 금융 기관과 중요 공기업, 러시아 정부 관리들 및 가족에 대한 강력한 금융 제재를 가했다고 성명을 발표했다.
 
-reference：
+성명은 미국이 러시아 최대 금융기관—스베르방크와 러시아 최대 개인은행—알파뱅크를 전면 봉쇄하고 미국 내 자산을 동결할 것이라고 밝혔다. 또 러시아의 중요 공기업에 대한 전면 제재, 미국인의 이들 실체와의 거래 금지, 자산 동결 등을 지시했다. 또한 바이든(Biden) 대통령은 600개 이상의 다국적 기업이 러시아에서 철수하기로 결정한 것을 토대로 미국인들이 러시아에 신규 투자를 금지하고 러시아를 더욱 고립시켜 러시아의 글로벌 경쟁력을 약화시키는 행정명령에 서명할 예정이다. 동시에 미국은 블라디미르 푸틴 (Putin)러시아 대통령의 성년 자녀를 비롯해 세르게이 라브로프(Lavrov) 외무장관의 가족 등에 대한 경제 제재도 병행한다.
 
-
-
-
-> [China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
-
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

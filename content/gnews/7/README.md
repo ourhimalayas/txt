@@ -2,34 +2,33 @@
 ---
 
 
-## 樱花时政┃法国总统选举正式开始 上海法国公民无法投票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2322115/)
+## 斯洛伐克赠乌防空系统拜登表示感谢
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322208/)
 
-撰稿人：东京樱花团/山顶闲人
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-据香港电台4月10日报道,4月10日2022年法国总统选举开始第一轮投票。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-189.jpg)图片来源于本文链接
-票意向调查，争取连任总统的马克龙以26%支持度排第一，领先排第二支持度为24%的右国民联盟领袖玛丽娜勒庞。极左的不屈法兰西候选人梅朗雄以17%排第三。今届法国总统选举共有12名候选人。在第一轮投票，若没人取得过半选票，得票最多的两名候选人，将参与4月24日举行的第二轮投票，即最后一轮投票。
+撰稿：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
+就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
 
-由于时差原因，一些海外省已经从周六开始提前投票。同样，一些居住在国外的法国选民也提前进行投票，但受到中共在上海正在实施的疫情封禁措施影响，据法国使馆此前宣布，在上海的五千多名法国选民将无法前往使馆参加此次大选的第一轮投票。
+据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
 
-在欧洲也出现了右派势力崛起的势头。对于正在进行法国要总统大选，右派领导人玛丽娜勒庞女士将再次冲击总统宝座。
+迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
 
-原文链接：
+参考链接：
 
-[法國總統選舉開始第一輪投票](https://news.rthk.hk/rthk/ch/component/k2/1643310-20220410.htm)
+[拜登感謝斯洛伐克贈烏防空系統 控俄攻擊平民暴行](https://www.cna.com.tw/news/aopl/202204090006.aspx?)
 
-[法国4870万选民开始总统选举第一轮投票](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220410-%E6%B3%95%E5%9B%BD4870%E4%B8%87%E9%80%89%E6%B0%91%E5%BC%80%E5%A7%8B%E6%80%BB%E7%BB%9F%E9%80%89%E4%B8%BE%E7%AC%AC%E4%B8%80%E8%BD%AE%E6%8A%95%E7%A5%A8)
+[斯洛伐克贈S-300防空系統 總理宣布已送抵烏克蘭](https://www.cna.com.tw/news/aopl/202204080398.aspx)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[快新聞／自1月止美已金援烏克蘭累計12億美元！　拜登：再撥2億用於軍事防備](https://www.ftvnews.com.tw/news/detail/2022313W0006)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-65.jpg)
+
+编辑/总编/审核: 飞虹
+
+校对：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
