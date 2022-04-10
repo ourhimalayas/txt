@@ -2,34 +2,35 @@
 ---
 
 
-## 日本丢弃一大半中共病毒疫苗
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322545/)
+## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/604ebf9be4b0fc419535683a.jpeg)
-当地时间4月7日，据外媒报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
+**港台前线 zhong｜2022-4-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
 
-据悉由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了中共病毒疫苗购买合同。此批疫苗于2021年年初开始交付。日本的接种人数设置在40岁以上，目前已进行了11万次接种。而在海外报道中因注射中共病毒疫苗造成了严重的血栓反应。据日本卫生部门一位官员承认，接种中共病毒疫苗对预防中共病毒毫无用处，并且这些疫苗极度不稳定。目前这批疫苗已经到达了6个月的保质期，未来将会有一半数量的疫苗会被处置不用。
+霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
 
-日本卫生部门目前亿合同保密为由，尚未透露是否为疫苗过期。
+俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
 
-reference：
+此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
 
-[https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com\_apitop](https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com_apitop)
+目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
 
-撰稿、发布：骄子
+
+
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
+
+
+
+来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
 
 * * *
 
-欢迎订阅我们的GNews账号：
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

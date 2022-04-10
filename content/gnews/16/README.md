@@ -2,24 +2,34 @@
 ---
 
 
-## 新加坡对俄罗斯的原则立场
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2323442/)
+## 乌克兰全面禁止从俄罗斯进口商品 终止与白俄罗斯科教领域协议
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2323578/)
 
-**编译：逍遥小哥**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/22-4.jpg)
-前新加坡驻联合国大使，许通美（Tommy Koh) 表达了他对“如此多”新加坡人表现出接受俄中对乌克兰战争的叙述感到担忧。
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-在 4 月 8 日发布的脸书(Facebook) 帖子中，许通美指出这些新加坡人中的许多人将战争归咎于北大西洋公约组织 (NATO)，并补充说这是“毫无根据”的叙述。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-许通美写道：“事实是，乌克兰自 1991 年以来一直是一个独立的国家。俄罗斯承认乌克兰的独立，并支持其加入联合国的申请。”
+4月10日，乌克兰内阁通过决议，全面禁止从俄罗斯进口商品。从现在起，任何俄罗斯产品都不能进口到乌克兰。
 
-许通美的观点在同一天发表在《海峡时报》的一篇专栏文章中。他在信中还阐述了俄罗斯和中共国将战争归咎于北约的说法是 “没有事实的”，因为没有任何法律或原则禁止俄罗斯的邻国加入北约，而且他们是自由和主权国家，可以制定自己的国家计划。
+乌克兰第一副总理兼经济部长尤利娅·斯维里登科（Yulia Svyrydenko）说，乌克兰如此决定性的一步可以为我们的西方伙伴树立榜样，并将刺激他们加强对俄罗斯的制裁。包括实行能源禁运和隔离所有俄罗斯银行。这些行动将是我们对收缩俄罗斯经济的贡献，因此将有助于我们的胜利。
 
-此外，俄罗斯还于1999年签署了一份名为《欧洲安全与合作组织伊斯坦布尔文件》的文件，承认乌克兰有权决定自己的国家安全安排。因此，俄罗斯无权干涉其邻国的决定，北约不应受到指责。
+据乌克兰经济部称，对俄罗斯进口的禁令将使俄罗斯每年的外汇收入减少60亿美元，侵略国的预算不会收到这些资金，因此将减少其潜在的战争资金。
 
-许通美在脸书上写道：“他们曾经被俄罗斯统治的事实并不意味着他们将永远生活在俄罗斯的统治下。问题在于俄罗斯尚未接受失去其苏联帝国的位置。”
+4月9日，乌克兰内阁决定终止与白俄罗斯在教育和科学领域的国际协议，有关决议是在一次政府会议上通过的。
 
-此外，新加坡外交部发言人在4月9日的发布会重申新加坡全力支持乌克兰的主权、政治独立和领土完整。发言人说：“新加坡在这方面的立场从冲突一开始就明确和一贯。我们对这一特定决议的弃权符合我们对基于规则的多边体系及其机制的适当应用的长期和坚定支持。”
+特别是关于相互承认和同等教育及学术头衔证件的政府间协定、在科学和科学教育人员认证领域的合作，以及乌克兰政府和白俄罗斯政府之间关于科学技术合作的协定都不再被承认。
+
+这些协议是乌克兰与白俄罗斯在20多年前缔结的，但由于白俄罗斯共和国支持俄罗斯联邦对乌克兰发动前所未有的、公开的、大规模的武装战争，这些文件的延续是不可能的。
+
+在与俄罗斯在教育和科学领域的合作完全停止之后，与支持侵略者的国家的所有协议的中止是乌克兰内阁一致的步骤。
+
+参考数据：
+
+[Government denounces agreements in the field of education and science with belarus](https://www.kmu.gov.ua/en/news/uryad-denonsuvav-ugodi-v-galuzi-osviti-ta-nauki-z-respublikoyu-bilorus)
+
+[Government endorses a decision to ban all imports from Russia](https://www.kmu.gov.ua/en/news/uryad-uhvaliv-rishennya-pro-povne-embargo-na-import-tovariv-z-rosiyi)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

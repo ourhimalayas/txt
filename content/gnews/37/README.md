@@ -2,54 +2,36 @@
 ---
 
 
-## 不要相信中共国对普京的乌克兰战争所说的任何内容
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2322662/)
+## 澳洲多地CCP病毒数量略有下降
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2322763/)
 
-编译：七叶之芒
+撰稿：Gradient Boost
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/103.jpg)图片来自网络
+在过去的 24 小时内，澳大利亚东部的新南威尔士州、昆士兰州和维多利亚州的 CCP病毒感染病例均呈现出略微的下降趋势。
 
+悉尼所在的新南威尔士州记录了 15,683 例新的CCP病毒感染病例，比昨天的数字减少了 1914 例。目前仍在住院治疗的患者为1492例，其中56例需要重症监护。由于与 COVID 相关的疾病，又有8人不幸失去生命。在新病例总数中，通过快速抗原检测得到的结果为 8391 例。此外，该地区的CCP病毒加强针注射率已经超过六成，不过增长速度似乎不如注射前两针那样迅速。
 
+在墨尔本所处的维多利亚州，过去24小时内共记录了 9510 例新增CCP病毒感染，这使得维多利亚州的活跃病例总数达到 65,466 例。目前维多利亚州共有 356 名 COVID-19 患者在医院接受治疗，其中 16 人被安排在重症监护室。1人在今日不幸死于与 CCP病毒感染相关的疾病。该州已有超过65%的成年居民接种了第三针CCP病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-190.jpg)图片来源：Sputnik/Ramil Sitdikov/Kremlin via REUTERS
+昆士兰州今日总共记录了 7154 例 COVID-19 病例，比昨天的数字减少了 1533 例。该州在过去24小时内发生了 1 起与 COVID 相关的死亡事件，另有 500 人因感染病毒而住院，其中 15 人正在接受重症监护。该州目前拥有接近 60,000 例活跃CCP病毒感染病例，目前该州已有过半12岁及以上人口接种了第三针CCP病毒疫苗。
 
-北京在弗拉基米尔-普京入侵乌克兰的问题上装作中立，但让人吃惊的是中共如何让完全由国家控制的媒体呼应俄罗斯的宣传。
+西澳大利亚州的病例数量在过去24小时内似乎同样有所下降，该州今日记录了 5351 例新的 COVID-19 感染病例，而昨天这一数字为 6,566 例。昨日该州昨天发生三起CCP病毒感染死亡事件，创造了历史新高，而今日又有两人死于该病毒。西澳全州的住院患者总数为234人，其中10人在重症监护室。该州目前第三针CCP病毒疫苗注射率在16岁以上群体中已经超过四分之三。
 
-命令明明白白地发出去了–正如《新京报》旗下的社交媒体账户地平线新闻上一条迅速删除的信息意外地披露。“不得发布不利于俄罗斯或具有亲西方内容的帖子”。
+*编辑：Gradient Boost*
 
-例如，上周，当世界其他地方看到被围困的乌克兰城市和俄罗斯军队留下的屠杀的真实图像–布卡的45英尺长的壕沟里堆满了平民的尸体，以及该镇的所有尸体–中共国的《人民日报》在社交媒体平台微博上分享了一段视频，“显示”俄罗斯在哈尔科夫外向乌克兰人提供人道主义援助。
+*发稿：mgjxs*
 
-有300多万人观看了这段视频。
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-update-nsw-covid19-numbers-victoria-queensland-cases/4433f69e-f0b3-4527-a47c-75f889399ef7)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-从一开始，中共国网络就放大了俄罗斯的虚假信息，引用了俄罗斯官员的虚假说法，即乌克兰总统沃洛季米尔-泽伦斯基已经逃离首都，乌克兰士兵在入侵的第一天就投降了。
-
-而中共国的凤凰卫视在与俄罗斯军队一起在现已被摧毁的马里乌波尔城外发布报告，称平民应该欢迎俄罗斯军队。
-
-北京完全拒绝谴责这次入侵，而是断言美国和北约对普京的战争负有责任。习近平甚至告诉美国总统拜登，美国和北约是问题的“关键”。
-
-与此同时，乌克兰的安全部门SBU表示，中共国应该为入侵前对乌克兰军事和核设施的重大网络攻击负责，对属于基辅国防部和其他机构的600多个网站进行了数千次黑客尝试。
-
-也许这是对俄罗斯的恩惠，因为它将入侵推迟到北京奥运会结束后，据说习近平要求这样做。
-
-毕竟，普京和习近平在2月4日，即奥运会开幕当天宣布了他们邪恶的最好的友谊，在5000字的联合声明中宣布：“两国友谊没有限制，没有‘禁止’的合作领域”。
-
-至少现在，这次入侵已经让西方人清醒地认识到普京的真实本性。但世界仍然需要承认，习近平也是文明的敌人。
-
-新闻来源：[dont believe any of what china says about putins ukraine war](https://nypost.com/2022/04/09/dont-believe-any-of-what-china-says-about-putins-ukraine-war/)
-
-* * *
-
-审核：Aries的星
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
  
 

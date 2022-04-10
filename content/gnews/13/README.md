@@ -2,34 +2,18 @@
 ---
 
 
-## 乌克兰全面禁止从俄罗斯进口商品 终止与白俄罗斯科教领域协议
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2323578/)
+## 文贵大直播 4/10 中共在上海疯狂行动的背后真相
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2323628/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/SharedScreenshot.jpg)图片来源 GETTR
+上海所谓疫情，人道灾难频频，让世界惊愕；上海人民痛苦不堪但仍然不明就里。一个国际知名大都市已近崩溃边缘，然而无人知晓中共如此疯狂的真正原因。爆料革命发起人郭文贵先生在4月10日的文贵大直播开宗明义地告知世界，这只是中国统治世界“大棋”中的一步。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
+郭先生和其大直播团队一起，从中共百年盗国史谈起，通过对邪恶中共独裁者习近平变态心理的分析，对中共在上海疯狂暴行的来龙去脉做了全面解剖。文贵先生的精准情报和数据、事实让现场嘉宾惊愕、沉重万分。
 
-4月10日，乌克兰内阁通过决议，全面禁止从俄罗斯进口商品。从现在起，任何俄罗斯产品都不能进口到乌克兰。
+郭先生特别爆出中共独裁政权系列行动背后三大真相：首先是至今所有事情进展包括上海所谓“疫情”，都在习政权掌控中，社会压力测试的最终恶果，一定会推给老百姓；第二是从香港到上海，包括广州、深圳、郑州等，未来还会有水、电、交通等限制和灾难，最终会在世界范围内制造能源涨价、粮食涨价。一切完全都是极限战争的标准！最后，习政权志在中共二十大连任，改宪法、变党规，打造坚固习江山。所有这些没有不稳定、矛盾丛生的社会，没有饥饿、战争，习认为是不可想象的。
 
-乌克兰第一副总理兼经济部长尤利娅·斯维里登科（Yulia Svyrydenko）说，乌克兰如此决定性的一步可以为我们的西方伙伴树立榜样，并将刺激他们加强对俄罗斯的制裁。包括实行能源禁运和隔离所有俄罗斯银行。这些行动将是我们对收缩俄罗斯经济的贡献，因此将有助于我们的胜利。
-
-据乌克兰经济部称，对俄罗斯进口的禁令将使俄罗斯每年的外汇收入减少60亿美元，侵略国的预算不会收到这些资金，因此将减少其潜在的战争资金。
-
-4月9日，乌克兰内阁决定终止与白俄罗斯在教育和科学领域的国际协议，有关决议是在一次政府会议上通过的。
-
-特别是关于相互承认和同等教育及学术头衔证件的政府间协定、在科学和科学教育人员认证领域的合作，以及乌克兰政府和白俄罗斯政府之间关于科学技术合作的协定都不再被承认。
-
-这些协议是乌克兰与白俄罗斯在20多年前缔结的，但由于白俄罗斯共和国支持俄罗斯联邦对乌克兰发动前所未有的、公开的、大规模的武装战争，这些文件的延续是不可能的。
-
-在与俄罗斯在教育和科学领域的合作完全停止之后，与支持侵略者的国家的所有协议的中止是乌克兰内阁一致的步骤。
-
-参考数据：
-
-[Government denounces agreements in the field of education and science with belarus](https://www.kmu.gov.ua/en/news/uryad-denonsuvav-ugodi-v-galuzi-osviti-ta-nauki-z-respublikoyu-bilorus)
-
-[Government endorses a decision to ban all imports from Russia](https://www.kmu.gov.ua/en/news/uryad-uhvaliv-rishennya-pro-povne-embargo-na-import-tovariv-z-rosiyi)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+真相让人惊愕，让人不敢相信；上海和无数中国百姓还在蒙蔽、怯懦中，心存侥幸，沉默忍受……郭文贵先生告诉所有中国百姓，中共对中国人民实施的一次次暴行，已经突破人类生存的底线，如果中国人不捍卫自己的生存权，无人能救。 【来源链接】https://gettr.com/streaming/p14iwpvf134
 
  
 
