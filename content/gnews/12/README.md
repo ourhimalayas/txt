@@ -2,76 +2,35 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天登榜新加坡、台湾iTunes摇滚榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2322042/)
+## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
 
-4/10/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第7天iTunes打榜记录：
-**《灭共的雪》**
-新加坡、台湾摇滚歌曲榜第1名
+撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
+众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
 
-**《铁锁梦》**
-柬埔寨热门歌曲榜第3名
-蒙古流行歌曲榜第1名
+由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
 
-* * *
+粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
 
-[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
 
-* * *
+参考链接：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+编辑总编审核：飞虹
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_73.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
-
-
-[【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-10-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

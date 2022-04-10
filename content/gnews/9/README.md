@@ -2,31 +2,34 @@
 ---
 
 
-## 欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322143/)
+## 日本丢弃一大半中共病毒疫苗
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322545/)
 
-撰稿：日本方舟农场-Andy5；纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-4月8日，正在乌克兰访问的欧盟议会议长冯德莱恩，在首都基辅跟乌克兰总统泽连斯基进行了会晤，并在会后的记者会中，亲手将乌克兰加入欧盟的意向书交给泽连斯基总统，邀请乌克兰在短期内加入欧盟。她同时表示，虽然通常情况下，加入欧盟需要历时数年的审核，但她愿意推动欧盟在几周内，通过乌克兰的加入申请。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1125.png)图片来自：https://media-cldnry.s-nbcnews.com
-据悉，冯德莱恩议长在访问乌克兰期间，专门去了遭受俄罗斯大屠杀的布查镇，面对堆积如山的装尸袋，议长一度哽咽，惊讶地无法发声。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/604ebf9be4b0fc419535683a.jpeg)
+当地时间4月7日，据外媒报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
 
-同一天，欧洲理事会主席查尔斯·米歇尔表示，欧盟最高外交官已提议通过“欧洲和平基金”向乌克兰追加 5 亿欧元军事援助，这是该基金首次在战争期间向第三国运送致命武器。
+据悉由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了中共病毒疫苗购买合同。此批疫苗于2021年年初开始交付。日本的接种人数设置在40岁以上，目前已进行了11万次接种。而在海外报道中因注射中共病毒疫苗造成了严重的血栓反应。据日本卫生部门一位官员承认，接种中共病毒疫苗对预防中共病毒毫无用处，并且这些疫苗极度不稳定。目前这批疫苗已经到达了6个月的保质期，未来将会有一半数量的疫苗会被处置不用。
 
-此前，欧盟已同意斥资 10 亿欧元为乌克兰军队提供军事物资，这是欧盟首次打破长期以来禁止向冲突地区国家运送武器的禁忌。不过，该提案通过需要得到27个欧盟国家的批准。
+日本卫生部门目前亿合同保密为由，尚未透露是否为疫苗过期。
 
-参考链接：
+reference：
 
-[20220409歐盟邀請烏克蘭加入歐盟](https://www.gettr.com/post/p14ca1869eb)
+[https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com\_apitop](https://www.asahi.com/articles/ASQ475RGWQ45UTFL01T.html?iref=com_apitop)
 
-[EU agrees to give €500M in arms, aid to Ukrainian military in ‘watershed’ move](https://www.politico.eu/article/eu-ukraine-russia-funding-weapons-budget-military-aid/)
+撰稿、发布：骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-64-530x720.jpg)
+* * *
 
-编辑/总编/审核：飞虹
+欢迎订阅我们的GNews账号：
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

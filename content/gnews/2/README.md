@@ -2,34 +2,35 @@
 ---
 
 
-## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
+## 樱花时政┃中共提出全国统一市场，退回计划经济供销社时代
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2322715/)
 
-**港台前线 zhong｜2022-4-10**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月10日每日经济新闻报道，《中共中央 国务院关于加快建设全国统一大市场的意见》10日发布。强化市场基础制度规则统一、推进市场设施高标准联通、打造统一的要素和资源市场、推进商品和服务市场高水平统一、推进市场监管公平统一、进一步规范不当市场竞争和市场干预行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-191.jpg)图片来源
+1949年11月，中共成立了中央合作事业管理局，主管全国合作事业。1950年7月，中共合作事业管理局召开了中共全国合作社工作者第一届代表会议，通过了中共人民共和国合作社法，中共全国合作社联合总社章程（草案）成立了中共全国合作社联合总社，统一领导和管理全国的供销、消费、信用、生产、渔业和手工业合作社。
 
-霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
+中共国全国供销合作总社，是中共全国供销合作社的联合组织，由中共国国务院领导。
 
-俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
+中共全国供销合作总社的主要负责全国供销合作社的发展战略和发展规划供销合作社，按照政府授权对重要农业生产资料、农副产品经营进行组织、协调、管理分配，各级供销合作社指导全国供销合作社活动，城乡物资交易。
 
-此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
+根据2018年11月该合作社官网信息显示，中共全国供销合作总社设立理事会、监事会，理事会内设机构14个，监事会内设机构1个，下辖15个直属事业单位、15家主管社团和中国供销集团，中共国供销集团管理有全资和控股子公司16家。
 
-目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
+供销社是计划经济时代的产物。在中共起初经济相对匮乏的年代，供销社依靠集体统购统筹统销的政策，对老百姓生产生活榨取剩余价值，再分配制度，吃大锅饭、集体被中共奴役。
 
+供销社作为中共物资分配手段一直被保留了下来。在经济发展和市场化、大部分资源都可以由市场化配置，供销社的职能已经被大大弱化，几近消亡，而在今天继续提出市场和资源被中共统一管理，统一规划，已经证明中共要继续走计划经济时代管理模式老路，国家将被中共独裁者带回到上个世纪有桥不走，摸石头过河吃大锅饭时代。
 
+信息来源：[【《中共中央 国务院关于加快建设全国统一大市场的意见》发布】](https://mr.baidu.com/r/EfVJMwka2Y?f=cp&amp;u=16e3080399f120eb)
 
-> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
-
-
-
-来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+编辑：东京樱花团/知了知了
+发布：东京樱花团yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,34 +2,31 @@
 ---
 
 
-## 日本和菲律宾签署国防协议以应对中共台海局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322488/)
+## 신 중국 연방 국기풍선은 우크라이나 어린이들에게 깊은 사랑을 받았다.
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2322690/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47.png)
-当地时间4月9日周六，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，从而促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+한국정도농장
 
-自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为同位于该海域的国家，日本和菲律宾希望共同解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约目前已经在考虑为双方的军队提供供应共享协议，该协议包括收购和交叉服务。据悉日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。
+번역자:(star love)gold hand
 
-菲律宾是继印度尼西亚之后与日本举行二加二会议的第二个东南亚国家。
+편집:QiMing
 
-reference：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-2-18.jpg)
 
-[https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2670.jpg)
 
-撰稿、发布：骄子
+현지시간 4월 6일 구조 전선에서 회신한 정보에 따르면 메티카 난민센터 구조버스 정류장과 신 중국 연방 구조텐트에서 전선 전우들이 우크라이나 어린이를 위한 신 중국 연방 풍선 선물을 대량 준비했다.
 
-* * *
+소식에 따르면, 이태리 다빈치 농장에서 제작한 파란 풍선에는 노란색의 “신 중국 연방”이라는 중영문자 단어와 신앙의 별 문양이 프린트되어 있어 이 풍선은 구조 센터에서 우크라이나 어린이들에게도 깊은 사랑을 받고 있다.
 
-欢迎订阅我们的GNews账号：
+원커(Wenke)전우는 신 중국 연방 풍선을 이 아이들이 우크라이나로 가져가거나 폴란드와 유럽의 각지로 데려갈 것이라고 말했다.원커(Wenke)전우는 전쟁에서 고통받는 모든 어린이들이 신 중국 연방의 풍선을 보면 미소를 짓는다고 언급했다.이 순간 그들은 전쟁에 대한 두려움을 잊고 그들의 마음이라도 조금이나마 치유된 이 광경은 난민을 진심으로 도우려는 최전선의 모든 전우들을 고무시켰다.
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+이에 대해 폭로혁명의 배후에 있던 전우는 신 중국 연방과 법치기금은 우크라이나의 구출작전에서 시종일관 세부적인 차원에서 출발했다고 논평했다.메티카 캠프에서 명성을 얻고 있는 신 중국 연방 커피나 난민 어린이들을 위해 준비한 간식, 장난감, 풍선 등은 신 중국 연방 국민들의 친절하고 전문적이며 세심한 구조 태도를 보여준다.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+작은 풍선이지만 그 따뜻한 마음이 우크라이나 아이들을 통해 퍼져 나가고 있다.
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

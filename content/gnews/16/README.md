@@ -2,43 +2,31 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321912/)
+## 欧盟邀请乌克兰加入 并准备再提供5亿欧元军事援助
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322143/)
 
-整理：枳实
-美工：精灵蓝
+撰稿：日本方舟农场-Andy5；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+4月8日，正在乌克兰访问的欧盟议会议长冯德莱恩，在首都基辅跟乌克兰总统泽连斯基进行了会晤，并在会后的记者会中，亲手将乌克兰加入欧盟的意向书交给泽连斯基总统，邀请乌克兰在短期内加入欧盟。她同时表示，虽然通常情况下，加入欧盟需要历时数年的审核，但她愿意推动欧盟在几周内，通过乌克兰的加入申请。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1125.png)图片来自：https://media-cldnry.s-nbcnews.com
+据悉，冯德莱恩议长在访问乌克兰期间，专门去了遭受俄罗斯大屠杀的布查镇，面对堆积如山的装尸袋，议长一度哽咽，惊讶地无法发声。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+同一天，欧洲理事会主席查尔斯·米歇尔表示，欧盟最高外交官已提议通过“欧洲和平基金”向乌克兰追加 5 亿欧元军事援助，这是该基金首次在战争期间向第三国运送致命武器。
 
+此前，欧盟已同意斥资 10 亿欧元为乌克兰军队提供军事物资，这是欧盟首次打破长期以来禁止向冲突地区国家运送武器的禁忌。不过，该提案通过需要得到27个欧盟国家的批准。
 
-雅典娜疫情更新（2022年 4月9日）
+参考链接：
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1114.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1115.png)
-[2022年4月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月9日改进.pdf)
+[20220409歐盟邀請烏克蘭加入歐盟](https://www.gettr.com/post/p14ca1869eb)
 
-数据来源：
+[EU agrees to give €500M in arms, aid to Ukrainian military in ‘watershed’ move](https://www.politico.eu/article/eu-ukraine-russia-funding-weapons-budget-military-aid/)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-64-530x720.jpg)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+编辑/总编/审核：飞虹
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
