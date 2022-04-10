@@ -2,54 +2,42 @@
 ---
 
 
-## 习近平:中国防疫应得一枚金牌！预示“上海模式”会遍地开花
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2321558/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321912/)
 
-撰稿：何处是我家
+整理：枳实
+美工：精灵蓝
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
 
+雅典娜疫情更新（2022年 4月9日）
 
-![](https://lh5.googleusercontent.com/-SbmRZpzbcGgDiulqSE7P2UKcFVkeWTw3QKCP7pkVB0hWXYchef1fsMhy2SnOD3o1XRcIXY93G0u1-waBD1NXbWGbX9mDJs8whU9FYNAbrpx4s4y9KZIahlTGTx4hsc5SmUbWiX6)
-![](https://lh4.googleusercontent.com/cwBxMNK-vP_vaQA3dlzS_9V-uHpMMQ1iH1FfziuhYc6iJsvUFPLMzz7Sdyjndk_DsxadXOggZu232miu0CXnjXTjMTkfXV5nPn8DJyUWjO5vLHq0UNzhqm1FwyVZKQ)
-网络图片
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1114.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1115.png)
+[2022年4月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月9日改进.pdf)
 
-现今的上海每时每刻都在上演着恐怖片，惊悚片，荒诞片，悲剧片，灾难片，好莱坞顶级导演们也歆慕不已这此情此景的难得性，真实性和宏大性。场景之宽阔，参演人数之庞大，动用的各种器械和工具之繁多举世罕见，震烁寰宇。中共又一次在世界夺得顶级奖项，将马列主义中国分部的名字推到了荒唐之巅，刷新人类的悲难的历史记录！
+数据来源：
 
-导演兼主演由国家特级演员，国家元首习近平担任，主要参演演员由其他国家一级演员的六大常委，二十五个常委委员，各军委委员，还有国家二级演员的国家卫健委，上海市委五大班子，国家三级演员（地方一级演员）上海市各政府职能部门出任。群众演员由上海市2500多万人出演，由于人数众多，能在镜头中出现概率是万分之一。鉴于机会难得，稍纵即逝，因此，各个角色争先恐后涌向镜头，踩踏现象时有发生。场面几度混乱不堪，维持秩序军警宪迅速到位。大戏高潮迭起，莫测纵深。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-”生死由命本无常，莫怨佛祖莫怨仙；马列共匪性邪恶，杀人放火虐人间；悲剧早已百余载，到死方知罪滔天；江南塞北皆无辜，扬子江畔不是边。“
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-总导演反复无常，变化莫测的性格注定这场戏会不同寻常，幻玄幻妙。场地选择上海或许有些缘由，或许什么都不是。一切随机，一切随着事态的发展和成长。上海的特殊性，世界知名度，集金融，物流，交通，文化和政治于一身的无它性。再适合不过充当大戏的场地，戏里的平民角色啊！你怎知？剧情高潮之刹，会要了万许生命。这一切，是否能提醒其他地区的民众，早做打算，一旦被意外选中进入剧情，惨剧就成必然！
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-更多的高人出谋划策，欲救民与水火之中，欲解上海2500万人的被困之实。可，谁能和导演促膝长谈，谁又能和COVID-19（中共病毒）谈情说爱，化敌为友。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-习主席在4月8日《北京冬奥会，残奥会总结表彰大会》上的讲话：*疫情防控精准有效，确保了冬奥安全顺利。·······中国的防疫政策再次经受住了考验，为全球抗疫和举办国际重大活动提供了有益经验。有的外国运动员表示：“如果疫情应对也有金牌，中国应该得到一枚。”这枚金牌属于全体办奥人员！*这一段话已经定性中国的防疫政策和手段。同时，这枚沉甸甸的奖牌，定会赋予上海2500万人和十四亿中国人命运之长短。剧本项目盖印铅封，已无人能更改。华夏的地盘共匪已主宰，角色的悲喜消亡早已写好。
+[covidlive.com.au](https://covidlive.com.au/)
 
-此外，总导演代表着十四亿人像全世界“庄严承诺”，不就是说，中国特色的抗击疫情的方式会继续发扬光大，直至最后的胜利。中共国每次的胜利都是以付出无数民众的生命和财产为代价。这昂贵和凝结血的支出才成就共产党血色江山。因此，上海的“疫情管控” “动态清零” “精准防控”“坚持核酸测试不动摇”，无不说明——中国抗疫还在路上。
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-人民的挣扎和反抗，是否激起中共匪性的高涨呢？人们在剧情中的意外表演会否增加大戏的趣味性呢？些许的冲动过激的言论，会否幻化成统治者的更大的欲望呢？本人无意中伤仁人志士的豪言壮举，可，几十年下来，难道我们还不了解中共是何许人也吗？
+发布：tianzhihuan
 
-看看众生相吧：上海市副市长、市疫情防控工作领导小组副组长宗明哽咽发言。这不算是好演员，想当年，著名演员温家宝以国家相位的身份，在汶川地震现场不也泪水涟涟吗？
-
-接下来的留言就是剧情的自然流淌：哭有用的话，我也想哭，物资在哪里，解封之日在哪里；另一个演员接着说：你只是饿死而已，人家副市长可是哭了啊；很老套的句子再次的出现：谁发现问题就解决谁；更有人写到：上海人民的真实生存现状，在这里向大家求救。
-
-总导演再难抑制自己的兴奋和开心，群众演员的积极踊跃带来了意想不到的效果和收获。这抑或是中共统治华人近百年的道理和逻辑，在这片土地你想不成功都不可能。
-
-土匪之所以猖獗，是因为人们的哭喊！强奸犯之所以快乐，来自女人的轻微反抗！统治者的权力，源自普罗大众的唧唧歪歪！
-
-今天的乌克兰为何会打败强大之敌——俄罗斯。是因为行动才是取胜的法宝，实力才是保全自己的武器。和豺狼辩什么是非！和流氓讲什么道理！和土匪论什么家长里短！
-
-至于上海何日解封，何时歌舞升平，何时南京路上人头涌动，东方明珠下游人熙熙攘攘。总导演的一个代言人钟南山给出答案：*所以目前来看，在中国完全开放是不适用的，对中国来说，还是应该坚持动态清零，逐步开放*。
-
-最终，COVID-19（中共病毒）定会逐步蔓延，顺着长江逆流而上入巴蜀，会乘着东风和香港，深圳的病病相接，会沿着运河北上京，津和长春吉林的病毒合一处。华夏大地无一幸免。
-
-中共从不在乎上海困境会殃及财政收入，也不在乎上海的封锁会影响世界的货物供应，更不在乎饿死多少人和在楼上飘下的“人风筝”。总导演的喜好才是剧情的需要。
-
-*编辑：yin*
-
-*发布:  yin*
-
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

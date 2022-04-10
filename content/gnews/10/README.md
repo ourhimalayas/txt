@@ -2,30 +2,52 @@
 ---
 
 
-## 乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2321537/)
+## COVID-19疫苗副作用集萃（2022.4.10）–打新冠疫苗后听力有问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321896/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
-上一篇：[乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（上）](https://gnews.org/zh-hans/2321423/)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-据多家乌克兰媒体报道，其中，在基乌以西约50公里的马卡里乌发现了132名被枪杀的平民遗体。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/K10013575411_2204101417_0410141818_01_04-1.jpg)图片来源：共同社
-此外，在基乌西北的博罗扬卡，4月7日一名到此地搬运食物等物品的男性志愿者在接受NHK采访时证实：“瓦砾的清理刚刚开始，就已发现了许多人的遗体。 我认为有几十个人仍在废墟之下”。
+整理/编辑：gardeniahu
 
-平民遇害人数仍在续增的情况下，英国首相约翰逊成为俄罗斯军事入侵后七国集团（G7）中首位到访基乌的国家首脑，并与泽连斯基总统面谈。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组(614)
 
-会晤后，约翰逊首相通过视频声明再次谴责俄罗斯的同时，他强烈呼吁各国：“以制裁的形式对俄罗斯施压是必要的。而现如今，（是时候）该全面禁运俄罗斯能源资源了”。
 
-泽连斯基总统：“不希望放过任何能通过外交解决问题的机会”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/02.jpg)图片来源：NHK新闻
-乌克兰总统泽连斯基4月9日在首都基乌的总统府接受美联社的采访时回应“谁都不愿意与折磨我们人民的那些人谈判”，但也强调“我不想放过任何通过外交手段解决问题的机会”，他表态，即便有平民不断被卷入俄军的攻击，还是将继续寻求通过谈判实现停战。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-参考链接：[ウクライナ 駅にミサイル52人死亡 市民の犠牲者増え続ける | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220410/k10013575411000.html)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+原文博主：rippleyao
+
+帖子原文：
+
+**疫情|新冠疫苗副作用   新冠疫苗导致听力问题**
+
+刷到新闻，辉瑞疫苗可能导致听力问题，说后续需要更多的研究支持。
+
+反正两针后的我很不舒服，现在医生都没有给我看明白。
+
+一定要注意安全啊。防护比疫苗更重要。
+
+离职的地方这周又关门了，太多新冠感染了。
+
+不戴口罩，不勤消毒洗手，老觉得不心安啊。
+
+#新西兰 #疫苗 #新冠疫苗 #辉瑞疫苗副作用 #奥密克戎
+
+发布于04.01
+
+精选评论
+
+积极面对不积极     回复:何止啊，我反正第二针都没打，第一针副反应双腿发麻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1110.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1111.png)图片来源：小红书
+参考链接：[新冠疫苗后听力有问题](https://www.xiaohongshu.com/discovery/item/62463ba00000000001025484?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649520801)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

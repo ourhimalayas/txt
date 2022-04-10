@@ -2,39 +2,31 @@
 ---
 
 
-## 英国承诺对乌克兰提供支持并加大力度制裁俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321341/)
+## 英首相约翰逊指责普京并决定追加对乌军事援助
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321419/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-整理/编辑：围剿维尼熊
+整理：li yan li
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7c6f7f84bb587ceb.jpg)4月9日泽连斯基陪同约翰逊在乌克兰首都基辅的街道上照片：乌克兰总统办公室
+据美国之音报道，英国首相约翰逊4月9日突访基辅时表示，乌克兰城镇发现的平民尸体让俄罗斯总统普京的名誉受到“永久污染”，英国决定追加对乌克兰的军事援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3394.jpg)图片来源：中新网
+约翰逊说：“普京在布查和伊尔平（Irpin）等地所干的是战争罪行，这让他的名誉和他政府的名誉受到永久污染。”约翰逊并称赞乌克兰人民勇敢击退俄罗斯对基辅发动的攻势。
 
+约翰逊会晤泽连斯基后誓言英国将为乌克兰提供装甲车和反舰导弹。英国首相官邸的一份声明说，约翰逊将追加向乌克兰提供120辆装甲车和新型反舰导弹系统，“在俄罗斯继续发动非法攻击的关键阶段支持乌克兰。”
 
-根据美国之音4月10日报道，乌克兰总统泽连斯基表示，俄罗斯的侵略绝不仅限于乌克兰，整个欧洲都是目标。他敦促西方国家对俄罗斯能源产品实施全面禁运，并且向乌克兰提供更多的武器。
+此前，英国政府4月8日已经宣布向乌克兰提供更多的“星光”（Starstreak）防空导弹、另外800枚反坦克导弹以及用于“精确攻击”的“游荡”无人机。约翰逊同时承诺通过世界银行向乌克兰再提供5亿美元。
 
-泽连斯基在星期六的讲话中表示，“俄罗斯动用武力是一场灾难，将不可避免地打击到所有人。”
+参考链接：[约翰逊：普京的名誉受到“永久污染](https://www.voachinese.com/a/putin-reputation-permanently-polluted-20220409/6522403.html)”
 
-乌克兰表示，已经准备好与集结在东部的俄罗斯军队展开一场艰苦的战斗。
+发布：tianzhihuan
 
-自2月24日入侵开始以来，俄罗斯没有占领乌克兰的一个主要城市，并从首都基辅附近撤退，而是在东部集结兵力。
-
-乌克兰谈判代表米哈伊洛·波多里亚克说，在俄罗斯在东部被击败之前，泽连斯基和俄罗斯总统普京不会会面。
-
-英国首相约翰逊星期六在基辅会见了泽连斯基，承诺提供装甲车和反舰导弹系统，并向世界银行提供额外贷款支持。英国还将加大对俄罗斯的制裁力度，不再使用俄罗斯的碳氢化合物。
-
-约翰逊表示，对乌克兰的支持旨在确保其“再也不会被欺负，再也不会被勒索，再也不会将再次受到同样的威胁”。
-
-参考链接：[乌克兰呼吁更多制裁和武器 以阻止俄罗斯的“灾难”](https://www.voachinese.com/a/ukraine-calls-for-more-sanctions-weapons-to-stop-russia-s-catastrophe-20220410/6522764.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

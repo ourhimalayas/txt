@@ -2,42 +2,33 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321912/)
+## 樱花时政┃法国总统选举正式开始 上海法国公民无法投票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2322115/)
 
-整理：枳实
-美工：精灵蓝
+撰稿人：东京樱花团/山顶闲人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+据香港电台4月10日报道,4月10日2022年法国总统选举开始第一轮投票。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-189.jpg)图片来源于本文链接
+票意向调查，争取连任总统的马克龙以26%支持度排第一，领先排第二支持度为24%的右国民联盟领袖玛丽娜勒庞。极左的不屈法兰西候选人梅朗雄以17%排第三。今届法国总统选举共有12名候选人。在第一轮投票，若没人取得过半选票，得票最多的两名候选人，将参与4月24日举行的第二轮投票，即最后一轮投票。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+由于时差原因，一些海外省已经从周六开始提前投票。同样，一些居住在国外的法国选民也提前进行投票，但受到中共在上海正在实施的疫情封禁措施影响，据法国使馆此前宣布，在上海的五千多名法国选民将无法前往使馆参加此次大选的第一轮投票。
 
+在欧洲也出现了右派势力崛起的势头。对于正在进行法国要总统大选，右派领导人玛丽娜勒庞女士将再次冲击总统宝座。
 
-雅典娜疫情更新（2022年 4月9日）
+原文链接：
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1114.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1115.png)
-[2022年4月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月9日改进.pdf)
+[法國總統選舉開始第一輪投票](https://news.rthk.hk/rthk/ch/component/k2/1643310-20220410.htm)
 
-数据来源：
+[法国4870万选民开始总统选举第一轮投票](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220410-%E6%B3%95%E5%9B%BD4870%E4%B8%87%E9%80%89%E6%B0%91%E5%BC%80%E5%A7%8B%E6%80%BB%E7%BB%9F%E9%80%89%E4%B8%BE%E7%AC%AC%E4%B8%80%E8%BD%AE%E6%8A%95%E7%A5%A8)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑：东京樱花团/知了知了
+发布：东京樱花团yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

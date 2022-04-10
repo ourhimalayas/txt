@@ -2,46 +2,90 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2320201/)
+## 電動汽車：關於五個大問題的回答
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320270/)
 
-作者：DC农场 – 火来；日本东京方舟农场 – 北极
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-2022年3月31日至4月6日，除中共国外，全球新增中共病毒确诊患者848万余例，同比上周的1078万余例下降了21.3%；此外，本周新增确诊死亡病例25,227例，同比上周的33105例下降了23.8%。本周已是连续第五周全球确诊病例和死亡病例持续负增长。
+**翻譯：【日本東京方舟農場】流浪的螻蟻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-14.jpg)
+在不到八年的時間裏，政府計劃禁止銷售所有新的汽油和柴油汽車和貨車，並承諾將公共充電站網絡擴大到 300,000 個。
 
-截至4月6日，除中共国外，全球累计接种了82.2亿剂中共病毒疫苗，同比3月31日的接种数据增长了0.611%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
+這意味着，爲了幫助英國實現其 2050 年零排放目標，電動汽車 (EV) 將很快成爲任何想要購買全新汽車的人的最常見選擇。
 
-3月31日，名利场网站发布报告，揭露了福齐和前NIH主任科林斯在疫情爆发初期，阻碍病毒溯源等众多细节。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.png)（圖片來源：bbc.com）
 
-4月3日，计算生物学家杰西卡·萝丝历时九个月，分析疫苗副作用报告系统的数据，结果显示该报告系统中出现的大量健康问题很有可能与中共病毒疫苗有关。
+直到 2020 年，在英國道路上行駛的 3500 萬輛汽車中，只有 1.3% 是電動汽車，但這個數字已開始攀升。根據汽車製造和貿易商協會（SMMT）的數據，上個月離開經銷商的新車中，電池電動和混合動力汽車佔了近三分之一。
 
-4月4日，根据美国CDC的报告，美国目前72%的中共病毒新增感染病例为omicron亚变种病毒BA.2，专家预计这种BA.2将在接下来的两周成为主要病毒类型。
+但潛在買家仍有很多保留意見。
 
-夏威夷两名医生因之前传播使用硫酸羟氯喹和伊维菌素等药物治疗中共病毒，被投诉传播虚假信息，但是当地主管部门已于4月5日裁决，不会对这两名医生采取法律行动。
+BBC Radio 5 的The Big Green Money Show 邀請聽衆提出他們的問題，以下是他們的前五名：
 
-4月5日，美国联邦政府将停止单克隆抗体治疗“中共病毒”新型变种，因为目前的单克隆抗体疗法对BA.2变种病毒无效。
+爲什麼電動車那麼貴？
 
-参考链接：
+電動汽車的價格通常比汽油或柴油汽車高出數千英鎊。這是因爲電動汽車電池的製造成本很高，並且需要大量投資來改造現有的工廠生產線以匹配新技術。
 
-- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
-- [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
-- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-23..latest&amp;country=~World+excl.+China)
-- [“This Shouldn’t Happen”: Inside the Virus-Hunting Nonprofit at the Center of the Lab-Leak Controversy](https://www.vanityfair.com/news/2022/03/the-virus-hunting-nonprofit-at-the-center-of-the-lab-leak-controversy)
-- [Numerous Health Problems More Likely Because of COVID-19 Vaccines Than Coincidence: VAERS Data Analysis](https://www.theepochtimes.com/numerous-health-problems-more-likely-due-to-covid-19-vaccines-than-coincidence-vaers-data-analysis_4380017.html?utm_source=partner&amp;utm_campaign=ZeroHedge)
-- [Doctors cleared of COVID-19 misinformation allegations](https://www.mauinews.com/news/local-news/2022/04/doctors-cleared-of-covid-19-misinformation-allegations/)
-- [More contagious omicron BA.2 on track to displace other variants in U.S. in next two weeks](https://www.cnbc.com/2022/04/04/more-contagious-omicron-bapoint2-on-track-to-displace-other-variants-in-us-in-next-two-weeks.html)
-- [Feds halt monoclonal treatment out of omicron subvariant BA.2 concerns](https://abcnews.go.com/Health/feds-halt-monoclonal-treatment-ba2-concerns/story?id=83895502)
+然而，成本預計在不久的將來會下降：SMMT 預測，“到2030年之前”，電動和內燃機汽車的成本應該大致相同。
 
+同時，專家表示，您還應該考慮汽車生命週期內的總支出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+用於爲您的電動汽車供電的電力成本最近急劇上升，並且會根據您的家庭電價而有所不同，但它仍然比每英里消耗的汽油或柴油燃料便宜。
 
-总编：飞虹
-编辑：文恩
-校正/发稿：海阔天空1
+Melanie Shufflebotham 是 Zap Map 的聯合創始人，該地圖繪製了英國的充電地點。她說，如果在家中爲電動汽車充電，“人們支付的平均價格約爲每英里 5 便士”。她說，相比之下，汽油或柴油汽車每英里的成本在 15 至 25 便士之間。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-31.png)
+還有其他潛在的節省。車輛稅基於汽車排放的污染量，因此像電動汽車這樣的零排放車輛是免稅的。與此同時，Melanie Shufflebotham 說，電動汽車的維護成本通常較低，因爲“通常，汽油或柴油汽車有數百個活動部件，而電動汽車則沒有。”
+
+例如，電動汽車不需要更換機油，而且由於它的活動部件較少，因此可能會受到較少的磨損。更換電池的成本很高，但許多製造商提供至少八年的保證。
+
+是否有足夠的公共充電器供所有需要它們的電動汽車司機使用？
+
+根據 Zap Map 的數據，目前英國有大約 30,000 個公共充電站，其中三分之二是“快速”充電器。政府週五宣佈，計劃到 2030 年將這數字擴大 10 倍，達到 300,000 個公共充電站。
+
+去年 7 月，競爭和市場管理局表明了對路邊收費站的推出“緩慢且不完整”的擔憂，並呼籲政府制定一項國家策略，在 2030 年最後期限之前改善基礎設施。
+
+沃克斯豪爾英國董事總經理保羅威爾科克斯說，目前的公共充電樁數量“遠遠不夠”。
+
+但他認爲，到 2030 年，隨着電動汽車變得越來越普遍，這種情況將大大改善，因爲隨着需求的增加，安裝的充電器數量將會增加。“我絕對有信心……因爲一旦你爭取到汽車的數量，你就會爭取得到充電的商業化。”
+
+只有快速和超快速充電器適合希望在長途旅行中充電的司機。根據 Zap Map，目前大約有 5,500 個。其中 – 超過 800 個是特斯拉增壓器，只能由特斯拉司機使用。
+
+那麼“里程焦慮”呢——充滿電的電動汽車能行駛多遠呢？
+
+一次充電後汽車可以行駛的距離稱爲續航里程，並且因車型而異。
+
+正在諾森伯蘭郡建設電動汽車電池工廠的 Britishvolt 執行主席彼得羅爾頓表示，增加續航里程的技術正在改進。
+
+“一輛掀背車 [汽車] 目前的續航里程約爲 200-250 英里。” 他說，到大約2030年末，更好的電池將把這個距離增加很多英里。
+
+電動汽車由鋰離子電池供電，並且正在進行研究以提高其續航里程。改變遊戲規則的將是“固態電池”。製造商是否以及何時可以將該技術的下一階段商業化。這些電池將比鋰離子電池更輕，充電速度更快。
+
+法拉第研究所項目管理負責人 James Gaade 表示，“許多汽車製造商的目標是在未來十年內引入固態電池”。他說，這些“可能預示着電動汽車續航里程的進步。”
+
+簡而言之，這些汽車有望在未來一次充電即可行駛更遠。
+
+如果我無法在家充電怎麼辦？
+
+英國的大多數家庭，大約 1800 萬 (65%)，擁有或可以提供至少一輛車的街邊停車位。根據來自 RAC 的數據。然而，根據競爭和市場管理局的數據，超過 800 萬戶家庭無法使用家庭充電，其中包括一些住在公寓裏的人。
+
+Zap Map 的 Melanie Shufflebotham 說，還有其他選擇。“地方當局開始安裝路邊充電器……除此之外，還要在當地超市或當地充電中心尋找充電器，這樣你就可以像使用汽油或柴油汽車一樣定期充電。 “
+
+然而，依賴公共充電器的人爲電動汽車供電的成本高於那些能夠在家充電的人，價格因充電點的公司而異。公共收費點也導致更高的增值稅率；20%，而國內用戶在家充電時只支付的5%。
+
+未來我們都會擁有汽車嗎？
+
+也許不會吧。沃克斯豪爾的保羅威爾科克斯說“巨大的局勢變化即將發生”。他預計會看到“訂閱模式等方面的巨大增長”，客戶按月支付使用汽車的費用，其中包括保險和維護等其他費用。
+
+另一個有望增長的領域是所謂的“部分所有權”或汽車共享俱樂部。Melanie Shufflebotham 表示，汽車共享可能會越來越受歡迎，直到無人駕駛汽車最終成爲現實。
+
+“想象一下，就像你現在打電話給優步一樣，你將有一個應用程序來叫一輛自動駕駛汽車帶你去你想去的地方。在近期內，我認爲汽車共享是一個非常重要的解決方案。”
+
+下載並訂閱BBC Sounds 上與 Deborah Meaden 合作的 The Big Green Money Show，或在週五收聽 BBC Radio 5 Live 的較短版本。
+
+注：本文僅代表作者觀點。
+
+原文鏈接：
+[https://www.bbc.com/news/business-60838192](https://www.bbc.com/news/business-60838192)
+
+校對：妙喜小油鍋
+發佈：文曦
 
  
 
