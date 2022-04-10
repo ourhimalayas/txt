@@ -2,49 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.10）&#8211;注射新冠疫苗后高烧不退
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2321392/)
+## 乌克兰：车站遭导弹，52人丧生，平民遇难者可能续增（上）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2321423/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
+据NHK新闻报道，乌克兰东部一个众多准备逃难的平民聚集的火车站遭到导弹袭击，包括5名儿童在内的52人丧生，平民遇难人数仍在持续增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/03-1.jpg)图片来源：共同社
+英国国防部分析，因俄军持续攻击有很高风险卷入平民的基础设施，还在路边预埋简易爆炸物，对俄罗斯遭到的谴责更为强烈。
 
-整理/编辑：gardeniahu
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+4月8日，乌东部顿涅茨克州克拉马托尔斯克的火车站遭导弹袭击，迄今已有包括5名儿童在内的52人丧生。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+俄方声称“是乌军袭击的”，但越来越多的批判声认为，俄军的瞄准的可能就是在众多平民聚集准备撤离的时间节点（袭击该车站）。
 
-原文博主：Kayla
+4月9日，英国国防部披露了最新战况分析，如俄军攻击东部位于卢甘斯克州对人体有毒的硝酸储存罐等设施、持续攻击有很高风险卷入平民的基础设施目标，以及在路边使用被称为IED（Improvised Explosive Device) 的简易爆炸装置等。
 
-帖子原文：
+在俄军已经撤退的乌克兰首都基乌近郊，许多平民的遇害情况也随之接连被曝光。
 
-**疫情|新冠疫苗副作用   打完新冠疫苗后高烧不退**
+参考链接：[ウクライナ 駅にミサイル52人死亡 市民の犠牲者増え続ける | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220410/k10013575411000.html)
 
-大家打第三针疫苗了吗？来救救孩子吧555555
+* * *
 
-问一下大家打辉瑞的都打第三针了吗？副作用大吗？
-
-看了我老公打辉瑞booster之后几天的反应吓得我不敢打了…高烧不退在床上躺了三天直接起不来床。
-
-感觉真得了新冠可能也不过如此？有没有得过新冠的人来现身说法一下啊。
-
-另外我打完第二针腋下长了一个鸡蛋大的包24小时疼一两个月才消…我真的害怕了救救孩子吧我到底要不要打第三针啊。
-
-－－－－分割线－－－－
-
-我真的无语了我就问一下大家打完第三针有没有副作用某些人上来就给我扣帽子”危言耸听、传播谣、不负责任、唯恐天下不乱、境外势力…”你们成语会得蛮多的真牛真厉害
-
-从始至终我只是说我打了辉瑞有副作用有些人为什么跳脚啊？你们有辉瑞的股份啊？
-
-#疫苗#辉瑞#辉瑞booster #辉瑞第三针
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1103.png)图片来源：小红书
-参考链接：[新冠疫苗后高烧不退](https://www.xiaohongshu.com/discovery/item/6247392d00000000210377e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649520433)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
