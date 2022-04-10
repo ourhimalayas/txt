@@ -2,22 +2,10 @@
 ---
 
 
-## 俄乌局势｜英国向乌克兰提供重型武器
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2318964/)
+## 4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2319206/)
 
-编辑：波士顿五月花—-思澈
-
-英国首相鲍尔斯•约翰逊在基辅与泽连斯基会面向乌克兰提供坦克，反舰导弹等予以支持
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1BC9AE34-B754-4A92-BD27-02DED0DC7C73.jpeg)
-
-根据英国首相鲍里斯-约翰逊办公室提供的信息，英国将向乌克兰赠送120辆装甲车和价值1.3亿英镑的反舰导弹、防空导弹和800枚反坦克导弹。
-
-素材来源：[https://english.alarabiya.net/News/world/2022/04/09/UK-s-PM-in-Ukraine-offers-armored-vehicles-anti-ship-missiles](https://english.alarabiya.net/News/world/2022/04/09/UK-s-PM-in-Ukraine-offers-armored-vehicles-anti-ship-missiles)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

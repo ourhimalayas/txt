@@ -2,74 +2,42 @@
 ---
 
 
-## 中共和俄罗斯对打倒美国领导的秩序不谋而合（视频）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2319449/)
+## 大直播后记：台湾最大的问题是卖台贼和共产党
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2319554/)
 
-采集：玫瑰新闻
-翻译：sherryok done
+整理：HYS、铁血丹心
+编辑：李易通
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
-
-
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-687.png)图片来源：雅典娜设计组（614）
 
 
+宁南：欢迎回来。关于这个问题，我们还是先请台湾的大牛和巴黎来谈谈。刚才真的是讲了很多，我们以前可能真的没有想过居然历史可以讲出这么多，那么我们先请你们来跟大家谈一下感受。
 
+大牛： 嗯，好的，非常感谢您。刚刚PPT上面都有讲，其实从去年4月开始，美国的现任及前任官员陆续访台。到目前为止，在拜登任内至少已经有六个团访台了，当然也包括上个月底访台的蓬佩奥先生。原本佩洛西要在4月10号访台，这个意义确实是不一样，如果这一次顺利访台的话，将是时隔25年来最高级别的美国官员访台。上一次的众议院的议长访台是在1997年，当时是在李登辉前总统的任内。那一年其实也很特别，因为1997年是在1996年台湾总统直选以及飞弹危机后的一年，同时1997年的7月1号也是香港的主权正式交还给中共的日子。同年台湾向美国购买的爱国者飞弹还有F16也正式抵达台湾，其实跟现在的模式是非常像的，包括这些军事化援助还有众议院的议长访台。
 
+刚刚从历史可以看到，1979年美国跟中共国建交并与中华民国断交，从1971年的联合国的代表权的更换到美中建交将近十年时间，一直到今天其实都是以台湾关系法在联结台湾和美国的关系。4月10号原本是佩洛西到访台湾的一天，其实也是台湾关系法建立43周年的日子。刚刚大家看到了因为病毒的原因可能延后访问。今天台湾有一个新闻关于蔡英文总统，她因为家人确诊需要隔离4天。所以说看来这些行程都会延后，包括原本4月12日瑞典的国会议员将要访台的安排。但不管如何，其实都可以看到全世界的民主阵线的这些国家都是越来越多的用行动来支持民主，支持台湾来打击中共。
 
-Joint idea of taking down the US led order.
-他们对打倒美国领导的秩序不谋而合
+当然提到佩洛西访台，很多人说她是为了中期选举，为了个人利益。不管如何，其实这就是民主跟专制最大的一个差别。在民主体制当中，你要想执政，你必须要靠人民的选票。之前有一位战友，他对民主跟专制的阐释我觉得特别形象。他说民主就是人民把当官的分成几拨来斗，最后人民得利；专制就是当官的把人民分成几拨来斗，最终当官的得利。
 
-I mean, they’ve been absolutely clear about that in their communications.
-我的意思是，他们在交流中已经非常清楚这一点。
+最后我们也看一下卖台贼还有部分台湾民众对于佩洛西或者之前蓬佩奥访台的反应。大概可以分成两个部分，第一个部分就是，这些民众觉得台湾现在是最乱的时刻，但恰恰也是最安全的时候。怎么这么说呢？俄乌战争开打之后，很多台湾民众已经看到战争的可能性，他们面对这个事实。但是现在俄乌战争的结果，还有很多国际上挺台的事件不断的发生，加上台海战争已经喊了将近70年，所以这些台湾的部分民众更加相信台海之间绝对不会有战争。
 
-And, you know, being able to work together,
-而且，你知道，他们能够一起工作，
+第二个部分，像这一次佩洛西要来访问台湾，很多网友在网络上留言说什么？因为刚好提到军售案，说“美国又要来收钱了，这一次俄乌战争的背后主谋就是美国，美国把台海的局势搞得这么紧张，它还要从中牟利。”这个其实就是之前我们不断提到的卖台贼，这是台湾目前最大的问题和危机。它的这些媒体散播不实的讯息，混淆民众颠倒是非。目前全世界真的大概只剩下北韩、俄罗斯等邪恶国还有这些卖台贼亲共而已。
 
-I mean, building their military relationship and having that underlying economic relationship in which China absolutely has the upper hand, and therefore a great deal of leverage over Russia,
-我的意思是，建立他们的军事关系并拥有中共国绝对占上风的潜在经济关系，从而对俄罗斯产生极大的影响力，
+当然有一部分民众也是相信会有战争，但是是少之又少。所以其实可以说台湾的问题真的不再是蓝绿阵营的纷争，当然卖台贼是蓝的居多，不要再把所有的问题陷入蓝绿，陷入内斗，这样就中了共产党的圈套。我们台湾的问题其实就是共产党，所以不灭共产党，台湾就没有未来！这也是为什么台湾会这么需要爆料革命的原因。
 
-but they have a shared joint ideological enterprise. You know, I mean, Beijingis recycling Moscow’s propaganda.
-但他们有共同的意识形态事业。 你知道，我的意思是，北京正在附和莫斯科的宣传。
+巴黎：全世界为什么这么需要爆料革命？因为只有跟随爆料革命和新中国联邦消灭共产党，才能把问题的根源解决，谢谢。
 
-And they’re, I think, on the same page about their idea of contesting the United States in both Europe and Asia.
-我认为，他们在欧洲和亚洲与美国竞争的想法步调一致。
+宁南：谢谢，我们真的是要多听到台湾人民这样的声音，如果台湾人都是这样子的血性，或者说这样的看待事情，我们何愁不会保卫好台湾。那么关于这个话题，我们也请小王子跟佳佳分享一下。
 
-So, so that’s really the the deeper heart of this matter. Beijing is not going to throw that away, because they sort of need Russia in order to fulfill their broader geopolitical goals.
-所以，这才是这件事的深层核心所在。 中共不会放弃这一点，因为他们貌似需要俄罗斯来实现其更广泛的地缘政治目标。
+小王子：好的，谢谢主持人，也谢谢刚才大牛精彩的分享。刚才我在听大牛分享的时候，我就真的是感觉大牛说的太好了。就是说台湾现在真正的问题并不在于它的整个的军事防御能力，它最大的问题是来自中共在媒体和政治上的分裂。就像大家刚才说的这一部分卖台贼，他们对台湾人的威胁和产生的危害其实是和共产党不相上下的。
 
-You know, so for those reasons, I mean, I think it remains a very robust partnership,
-你知道，出于这些原因，我认为它仍然是一个非常强大的伙伴关系，
+资料来源：[2022年4月8日 文贵大直播](https://gettr.com/post/p147s0qfc4d)
 
-but they’ve obviously put themselves in the trap of having, at this point raised a lot of skepticism in Europe.
-但在这一点上，他们显然让自己陷入了在欧洲引起大量怀疑的陷阱中。
-
-And I think people are calling into question their, their economic relations, and that’s where we need to take action.
-而且我认为人们正在质疑他们的经济关系，而这正是我们需要采取行动的地方。
-
-I mean, the idea that we’re going to keep on building or deepening economic relations with China is just, you know, totally misguided at this point.
-我的意思是，我们将继续与中共国建立或深化经济关系的想法，这一点完全是误入歧途。
-
-You know, not only the genocide, the military buildup, but the support for Moscow in the first, you know, major land war in Europe and in, you know, 75 years,
-你知道，不仅因为他们的种族灭绝，军事集结，还有在75年来欧洲的第一场重大陆战中对莫斯科的支持，
-
-I mean, this should be enough for us to understand that it’s time to roll back the economic relationship.
-这应该足以让我们明白，是时候扭转经济关系了。
-
-And you can start by looking at the Chinese companies
-你可以先看看这些中共国公司，
-
-that are going to be you know, tacitly engaging with with, you know, Russia as the regime comes under further pressure, not going to be a space.
-当俄罗斯政权面临进一步压力无路可退时，这些公司正准备心照不宣地与俄罗斯默契接触
-
-I think for sanctions I think we should be bold about
-
-我认为对于制裁我们应该大胆一些
-
-**校队：阿雄
-字幕：CharlieNZ查理**
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,90 +2,18 @@
 ---
 
 
-## 比尔·戈茨：隐瞒与中共关系的堪萨斯大学教授被判有罪
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2318968/)
+## 美国一晚宴上已有53人确诊新冠 涉及多名部长及高官
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2319373/)
 
-**比尔·戈茨**： 
-隐瞒与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府关系的堪萨斯大学教授被判有罪； 窃取农业机密的中共国公民被判入狱 
-【附华盛顿时报登载的比尔·戈茨文章：陪审团定罪被指控隐瞒与中共国关系的堪萨斯教授。此为第二位中国公民因盗窃农业商业秘密被判刑】
+编辑：文宝
 
+当地时间4月9日，美国农业部长汤姆·维尔萨克称其新冠病毒检测结果呈阳性，成为又一名确诊新冠的美国部长。维尔萨克曾出席的一场晚宴上已有53人确诊，包括司法部长、商务部长等高官及议员。
 
+据美国《国会山报》等美媒9日报道，维尔萨克曾参加了2日在美国首都华盛顿举行的一场“烤架俱乐部”年度晚宴。该俱乐部主席证实，截至8日，参加晚宴的人中至少有53人的新冠病毒检测结果呈阳性。
 
-> University of Kansas professor who hid Chinese government ties convicted; Chinese national who stole agricultural secrets sentenced to prison [https://t.co/Sn3PWMNdLV](https://t.co/Sn3PWMNdLV)
-> — Bill Gertz (@BillGertz) [April 9, 2022](https://twitter.com/BillGertz/status/1512589920803573762?ref_src=twsrc%5Etfw)
+确诊新冠的除了维尔萨克，还包括美国司法部长梅里克·加兰、商务部长吉娜·雷蒙多、副总统哈里斯的通讯主管贾马尔·西蒙斯、众议员亚当·希夫和华金·卡斯特罗等。此外，出席晚宴的还包括美国国家过敏症和传染病研究所所长福奇、美总统特使约翰·克里、美国疾病控制与预防中心瓦伦斯基、美联储主席鲍威尔等。
 
-
-
-**参议员玛莎·布莱克本**：
-[#共产中国](https://www.gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 正在加速他的核武器建设。拜登政府是时候描绘一下“以实力谋和平”—— 不要再软弱的谈话。
-
-
-
-> Communist China is accelerating its nuclear weapons buildup. 
-> 
-> This is the time for the Biden administration to portray ‘peace through strength’ — not more weak talk.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512807847775641607?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-我们必须恢复重视家庭和努力工作的美国梦。 我们共和党可以为此领路。 我们必须团结起来，拯救我们的美国生活方式。
-
-
-
-> We must have a restoration of the American Dream that values family and hard work. Our party can lead the way. We must unite and save our American way of life.
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512811327743574016?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本**： 
-乌克兰正在发生的事情令人作呕。 俄罗斯为无辜、受恐吓的乌克兰人设立了“过滤营地”——西方不能坐视不管。
-
-
-
-> What’s happening in Ukraine is sickening. Russia has set up ‘filtration camps’ for innocent, terrorized Ukrainians — the West cannot sit back silently.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2022](https://twitter.com/MarshaBlackburn/status/1512894495116955649?ref_src=twsrc%5Etfw)
-
-
-
-**众议院共和党**：
-拜登以牺牲消费者和我们的国家安全为代价，在他的反能源议程上加倍下注：
-－向独裁者和外国对手乞求石油
-－将我们的战略石油储备消耗到40年来的最低点
-－提议对国内生产征收新税
-
-
-
-> Biden is doubling down on his anti-energy agenda at the expense of consumers and our national security:
-> 
-> ❌Begging dictators & foreign adversaries for oil
-> ❌Depleting our Strategic Petroleum Reserve to the lowest point in 40 years
-> ❌Proposing new taxes on domestic production
-> — House Republicans (@HouseGOP) [April 9, 2022](https://twitter.com/HouseGOP/status/1512795466546696194?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-信仰激发无畏； 这是引导乔治华盛顿走向胜利的原因。 我们都必须让我们的信仰引领我们。 造物主就是我们的向导。
-
-
-
-> Faith imbues fearlessness; it is what guided George Washington to victory. We must all let our faith lead us. And The Creator to be our guide. [pic.twitter.com/QRwEuG7Og5](https://t.co/QRwEuG7Og5)
-> — Mike Pompeo (@mikepompeo) [April 9, 2022](https://twitter.com/mikepompeo/status/1512837782779187200?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·沃尔茨新闻室**： 
-华尔兹议员与同事国会议员一道，写信敦促司法部长加兰，通过任命一名特别顾问来监督针对亨特拜登与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和其他外国政府交易的调查，以确保调查能公平客观地进行。 【附信函】
-
-
-
-> Rep. Waltz joined fellow members of Congress in a letter urging Attorney General Garland to ensure a fair & objective investigation by appointing a Special Counsel to oversee an investigation into Hunter Biden’s dealings with the Chinese Communist Party and other foreign govts. [pic.twitter.com/EJCN5j7bhL](https://t.co/EJCN5j7bhL)
-> — Congressman Waltz Press (@RepWaltzPress) [April 9, 2022](https://twitter.com/RepWaltzPress/status/1512858484580122624?ref_src=twsrc%5Etfw)
-
-
-
-
+原文链接：[https://news.sina.com.cn/w/2022-04-10/doc-imcwiwst0932137.shtml?cre=tianyi&mod=pcpager\_inter&loc=33&r=0&rfunc=18&tj=cxvertical\_pc\_pager\_spt&tr=164](https://news.sina.com.cn/w/2022-04-10/doc-imcwiwst0932137.shtml?cre=tianyi&amp;mod=pcpager_inter&amp;loc=33&amp;r=0&amp;rfunc=18&amp;tj=cxvertical_pc_pager_spt&amp;tr=164)
 
  
 

@@ -2,27 +2,31 @@
 ---
 
 
-## 视频|遭遇疫情封城
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2319509/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2319585/)
 
-【视频剪辑】 青梅煮酒
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-9.png)
 
-【撰稿人】 Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-台湾演员李立群因疫情被封在上海家里享受社会主义的“盛宴”。
 
-【文案审核】 爱米粒
+校对：Stay文苑
 
-【制作团队】大直播短视频组
+编辑：Stay文苑
 
-发稿：qiutian（邱甜）
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p14g31mfc7b](https://gettr.com/post/p14g31mfc7b)
+访谈：[https://gettr.com/post/p14g7lv4366](https://gettr.com/post/p14g7lv4366)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
