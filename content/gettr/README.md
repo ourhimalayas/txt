@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 9:59 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-10<br/>For English：gettr.com/post/p14l4yz1317
+![img](https://media.gettr.com/group48/origin/2022/04/10/21/d5adf8cf-84b2-a796-6e25-d4332b8f37ac/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/10/2022 8:30 PM (UTC)`
 
 2022.04.10  新中国联邦 | 喜健康   没有硝烟的战争 — 伊维菌素
@@ -145,13 +152,6 @@
 
 <br/>4/9/2022 Miles Guo’s GETTR: According to our fellow fighters from mainland China, the CCP has long been prepared to let the Lao Baixing suffer from starvation, with the purposes being making the Chinese people “more grateful to the CCP” and shifting the blame for social inequality and disasters to the rich people so that the CCP can rob their assets and eliminate them.<br/><br/>4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭<br/>
 ![img](https://media.gettr.com/group5/getter/2022/04/10/00/2146e85a-b368-9a95-387f-b9a25056bc2f/out.jpg)
-
----
-
-`@miles 4/9/2022 11:30 PM (UTC)`
-
-2022.04.09 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-![img](https://media.gettr.com/group43/origin/2022/04/09/23/c1e1b7e4-0c03-f8af-866d-210996d54efa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
