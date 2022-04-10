@@ -2,26 +2,39 @@
 ---
 
 
-## 上海再次开展抗原筛检
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2320330/)
+## 墨西哥表示不接受俄罗斯入侵乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320331/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-据《中央社》4月9日报道，根据通报，上海8日新增本土COVID-19（中共病毒）确诊病例1015例和无症状感染者2万2609例，总计达2万3624例，再次进行新一轮抗原筛检。
+翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-5.jpg)（图片来自中央社）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_32724.jpeg)图片来源：www.japantimes.co.jp
 
-据报道，上海市卫健委今日通报，8日总计新增本土确诊病例1015例、无症状感染者2万2609例。总计病例数达2万3624例。
 
-据上海市新冠肺炎（中共病毒）疫情防控工作领导小组办公室发布，9日在全市范围内以居住社区为单位，再次展开新一轮抗原检测。全市继续实行分区管控，除因病就医等外，严格落实“足不出户”。
+根据CNA4月10日报道，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔周六（4月9日）表示，墨西哥不接受俄罗斯入侵乌克兰。该视频消息在支持乌克兰冲突受害者的全球活动中发布。
 
-另外，由于疫情不止，本土病例数字居高不下，上海医疗及隔离设施面临庞大压力，至今已有1.2万名密接及次密接者需转到浙江省隔离。
+“我们不接受俄罗斯入侵乌克兰，因为我们曾经遭受过入侵，”洛佩斯·奥夫拉多尔说，他提到了西班牙、法国和美国对这个拉丁美洲国家的入侵。
 
-参考链接：
-[https://www.cna.com.tw/news/acn/202204090028.aspx](https://www.cna.com.tw/news/acn/202204090028.aspx)
+“我们赞成以和平方式解决冲突。”
 
-总编：老孙
-校对发布： 文曦
+本周早期，加拿大总理贾斯汀·特鲁多曾邀请洛佩斯·奥夫拉多尔参加他与欧盟委员会主席乌尔苏拉·冯德莱恩召集的活动，为乌克兰难民和境内流离失所者筹集资金。
+
+虽然洛佩兹奥夫拉多尔周三表示他无法出席，但他曾承诺发布一段视频，以谴责俄罗斯的入侵行为。
+
+洛佩斯·奥夫拉多尔一直试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
+
+虽然他的政府支持联合国敦促俄罗斯从乌克兰撤军的投票，但墨西哥在周四联合国大会（UNGA）关于暂停俄罗斯在联合国人权机构的地位的投票中投了弃权票。
+
+资料来源：[Mexico says it does not accept Russian invasion of Ukraine](https://www.channelnewsasia.com/world/mexico-says-it-does-not-accept-russian-invasion-ukraine-2618291)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

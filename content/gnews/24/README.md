@@ -2,33 +2,29 @@
 ---
 
 
-## 墨西哥表示不接受俄罗斯入侵乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320331/)
+## 普华永道：超过80%的央行曾考虑推出央行数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320343/)
 
 #### 【雅典娜快讯】，紧贴时事脉搏
 
 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_32724.jpeg)图片来源：www.japantimes.co.jp
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/CBDC-fed-Karen.jpg)图片来源：www.pymnts.com
 
 
-根据CNA4月10日报道，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔周六（4月9日）表示，墨西哥不接受俄罗斯入侵乌克兰。该视频消息在支持乌克兰冲突受害者的全球活动中发布。
+根据路透社4月9日报道，普华永道（PwC）的一份新报告显示，全球80%的央行正在考虑推出或已经推出央行数字货币（CBDC）。
 
-“我们不接受俄罗斯入侵乌克兰，因为我们曾经遭受过入侵，”洛佩斯·奥夫拉多尔说，他提到了西班牙、法国和美国对这个拉丁美洲国家的入侵。
+这家四大会计师事务所在其第二份年度的普华永道全球CBDC指数报告中透露，争夺CBDC主导地位的竞争正在升温，即使更多的主要经济体扩大其数字主权货币的研究和开发，较小的经济体也取得了巨大的飞跃。
 
-“我们赞成以和平方式解决冲突。”
+该报告确定了两类CBDC–零售和批发。在零售方面，尼日利亚排名第一，得分为95分（满分100分）。这个西非国家去年推出了eNaira数字货币，成为第一个迈出这一步的非洲国家。尽管其数字钱包在推出时出现了最初的故障，但eNaira已经开始运行。然而，采用率一直低于预期，甚至国际货币基金组织（IMF）声称，eNaira有可能被用来洗钱和资助恐怖主义。
 
-本周早期，加拿大总理贾斯汀·特鲁多曾邀请洛佩斯·奥夫拉多尔参加他与欧盟委员会主席乌尔苏拉·冯德莱恩召集的活动，为乌克兰难民和境内流离失所者筹集资金。
+其次是巴哈马，在2020年10月推出了世界上第一个CBDC。它被称为 “沙币”，现在已经拥有了第一张与其关联的借记卡。
 
-虽然洛佩兹奥夫拉多尔周三表示他无法出席，但他曾承诺发布一段视频，以谴责俄罗斯的入侵行为。
+中共国排名第三，牙买加、东加勒比、乌克兰、乌拉圭、泰国、瑞典和韩国分别位于前十名。
 
-洛佩斯·奥夫拉多尔一直试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
+资料来源：[PwC: More than 80% of central banks have considered launching CBDC](https://coingeek.com/pwc-more-than-80-of-central-banks-have-considered-launching-cbdc/)
 
-虽然他的政府支持联合国敦促俄罗斯从乌克兰撤军的投票，但墨西哥在周四联合国大会（UNGA）关于暂停俄罗斯在联合国人权机构的地位的投票中投了弃权票。
-
-资料来源：[Mexico says it does not accept Russian invasion of Ukraine](https://www.channelnewsasia.com/world/mexico-says-it-does-not-accept-russian-invasion-ukraine-2618291)
-
-发布：tianzhihuan
+发布： tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

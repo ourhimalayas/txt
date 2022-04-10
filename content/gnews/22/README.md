@@ -2,51 +2,43 @@
 ---
 
 
-## 乌克兰禁止从俄罗斯进口一切货物
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2320349/)
+## 乌克兰官员说俄罗斯军队摧毁了几十年的切尔诺贝利数据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320350/)
 
-翻译：文乐
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
+翻译：li yan li
+编辑：李易通
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-18.png)图片来源：雅典娜设计组
 
 
+乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据。俄罗斯军队已撤出切尔诺贝利，但人们仍然担心他们受到“高剂量辐射”的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-175.jpg)2016 年 11 月 4 日，货船停靠在乌克兰敖德萨的黑海港口。路透社/Valentyn Ogirenko/
+乌克兰国家禁区管理机构下属的公共委员会主席奥列克桑德·西罗塔周四在Facebook的一篇翻译文章中说：“这就是我们的切尔诺贝利文件和档案的所有印迹。我们几十年来一直在收集的东西就这样被扔进了垃圾桶。”
 
-路透墨尔本4月10日 – 乌克兰已禁止从俄罗斯进口所有商品，俄罗斯是其战前的主要贸易伙伴之一，每年进口价值约60亿美元，乌方还呼吁其他国家效仿，对莫斯科实施更严厉的经济制裁。
+该国家机构的代表发布了据称装满文件的垃圾桶的照片，以及显示监测该地区辐射水平的服务器丢失的图像。
 
-“今天我们正式宣布完全终止与侵略国的货物贸易，”经济部长尤利娅·斯维里登科(Yulia Svyrydenko)周六在她的Facebook页面上写道。
+俄罗斯军队上周离开了切尔诺贝利，军队将从首都基辅和北部城市切尔尼戈夫周边地区撤出，该地区距离切尔诺贝利约有55英里。
 
-“从现在开始，俄罗斯联邦的任何产品都不能进口到我们国家的领土上。”
+乌克兰周四告诉国际原子能机构，它已经开始“恢复对核电站的监管控制过程”。
 
-自俄罗斯于 2 月 24 日开始入侵乌克兰以来，这两个邻国之间的商品和服务交换几乎不复存在，但周六的举动使终止进口成为了法律。
+国际原子能机构说，它打算在可能的情况下尽快访问1986年核灾难的现场，以评估辐射情况。
 
-“敌人的预算不会收到这些资金，这将降低其资助战争的潜力，”斯维里登科说。
+乌克兰官员几周来一直警告说，没有保护措施的俄罗斯军队驾驶装甲车通过一个被称为“红色森林”的地区，掀起了放射性尘埃云。
 
-“乌克兰的这一举措可以作为我们西方伙伴的榜样，并刺激他们加强对俄罗斯的制裁，包括实施能源禁运和孤立所有俄罗斯银行。”
+据报道，最近的无人机镜头显示，整个禁区内的“污染区”被挖出了壕沟。
 
-乌克兰总统泽连斯基一再呼吁西方抵制俄罗斯的石油和其他出口产品，并停止对俄出口。
+核监督机构说，它一直无法独立核实有关俄罗斯军队接受“高剂量辐射”的报告。
 
-西方对俄罗斯实施了许多措施，如此庞大的经济体的这些措施已将莫斯科置于从未经历之境地，周六英国首相鲍里斯·约翰逊表示将实施更多制裁。
+参考链接：[乌克兰官员说，俄罗斯军队摧毁了几十年的切尔诺贝利数据](https://www.foxnews.com/world/russian-troops-destroy-chernobyl-data-ukrainian-officials)
 
-莉迪雅·凯莉报道和撰写；迈克尔·佩里编辑
+发布：tianzhihuan
 
-新闻来源：[Ukraine bans all imports from Russia](https://www.reuters.com/world/europe/ukraine-bans-all-imports-russia-2022-04-10/)
-
-* * *
-
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
