@@ -2,17 +2,26 @@
 ---
 
 
-## 新中国联邦提供的新鲜咖啡获得一致好评
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2324012/)
+## 视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2324054/)
 
-4月8日，以色列的志愿者感谢新中国联邦和法治基金赞助的人道救援大帐篷，分享了前波兰驻以色列的大使对“新中国联邦咖啡”的赞美。特别让人感动的是：他们从乌克兰营救了两名纳粹大屠杀的幸存者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【视频制作】 @Dawns
 
+【视频长度】1分08秒
 
+【制作团队】大直播短视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻链接】[https://mega.nz/file/nI53QJib#okILswKbDyLeupK\_jpHUnnF32GS18O2pLTmzmuucVeU](https://mega.nz/file/nI53QJib#okILswKbDyLeupK_jpHUnnF32GS18O2pLTmzmuucVeU)
 
-* * *
+发稿：Daxia
 
-视频/ 编辑：意大利罗马达芬奇农场- 阿娜
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
