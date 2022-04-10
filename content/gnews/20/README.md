@@ -2,25 +2,29 @@
 ---
 
 
-## 视频文编|中共不灭，台湾将没有未来
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2323495/)
+## 有声|Jason Miller先生祝贺Elon Musk加入Twitter
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323667/)
 
-撰稿：东京樱花团/風鈴
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-10_234833.png)
-民主是人民把当官的分成几拨来斗，最后人民得利；
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+日前，Gettr总裁Jason Miller先生在接受媒体采访时说，社交媒体Twitter尽管拥有先进的技术，是一个伟大的工具，但其目前在世界上的品牌价值已经一降再降，现在是一个充满了政治癌症的地方。Elon Musk加入Twitter是一件值得庆贺的事情，Jason说自己永远不会对Elon Musk感到惊讶，从他制造特斯拉汽车到发射卫星到外太空甚至是火星，这个人拥有无限可能，不知他能否挽救Twitter。现在的大科技歧视以及审查制度是值得努力的方向。
 
-专制是当官的把人民分成几拨来斗，最终当官得利。
+在提及Twitter和Gettr的竞争关系时，Jason Miller表示Elon Musk是一个直言不讳的人，自由在他身上更加显著，他想重新给用户言论自由，最大的挑战是重建这种自由文化。Twitter内部并不欢迎前总统川普重新回去，这就是对Elon的最大挑战，因为这能够将川普总统的支持者带回去，他们可以在Twitter重新拥有言论自由。无论是Gettr、Twitter、Rumble或者是川普总统的Truth Social，越多的社交媒体存在，越多的竞争存在，人们才会有更多的言论自由，避免被关掉账户，从而远离政治癌症。
 
-从去年4月开始美国官员陆续访台，到佩洛西4月即将访台，《台湾关系法》决定着台湾的地位，可以看出，全世界越来越多的民主国家都在用行动来支持台湾、打击中共。台湾有部分人认为台海危机喊了70年，虽然台湾现在是最乱的时刻，但恰恰也是最安全的时刻，台海之间绝不会开战；另一种人则认为佩洛西访台，是美国又要来收钱了，就像俄乌之战背后的主谋就是美国一样，美国把台海局势搞得这么紧张目的是要从中牟利。
+文字版原文：[Jason Miller先生祝贺Elon Musk加入Twitter](https://gnews.org/zh-hans/2316627/)
 
-由此可见，台湾目前最大的问题，是卖台贼和亲共媒体肆意发布不实消息，混淆视听迷惑群众，台湾存在的问题不是什么蓝绿内斗，是挑起事端的共产党不灭，台湾就没有未来，这就是台湾非常需要爆料革命的原因。
+音频处理：Fei797
+发稿：Fei797
 
-消息来源：
-[2022年4月8日《文贵大直播》](https://www.gettr.com/streaming/p147s0qfc4d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

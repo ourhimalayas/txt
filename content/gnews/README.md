@@ -15,80 +15,80 @@
 
 ---
 
-### [文贵爆料 4.10：军援俄罗斯，习近平向美欧竖起了中指](/content/gnews/1/README.md)
- ` 秘密翻译组-原创组`
-
-### [拜登明天将与莫迪通话：对俄罗斯采取强硬态度](/content/gnews/2/README.md)
+### [新中国联邦人建立的救援帐篷非常专业](/content/gnews/1/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|粗暴的笑话](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [有声|清零](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [俄罗斯任命新的乌克兰战争指挥官](/content/gnews/6/README.md)
+### [我们和乌克兰人民站在一起](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [FMC专员警告中共国对集装箱生产的垄断可能损害美国经济](/content/gnews/7/README.md)
+### [DC每日热点0410](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [昔日亚洲最大家乐福停业](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [拜登明天将与莫迪通话：对俄罗斯采取强硬态度](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [活祭](/content/gnews/8/README.md)
+### [有声|粗暴的笑话](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|清零](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [俄罗斯任命新的乌克兰战争指挥官](/content/gnews/9/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [FMC专员警告中共国对集装箱生产的垄断可能损害美国经济](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [活祭](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [教皇呼吁在乌克兰实现复活节休战](/content/gnews/9/README.md)
+### [教皇呼吁在乌克兰实现复活节休战](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [斯里兰卡总统戈塔将与41名退出政府的国会议员举行重要会议](/content/gnews/10/README.md)
+### [斯里兰卡总统戈塔将与41名退出政府的国会议员举行重要会议](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [2022/04/10 英喜时事速递](/content/gnews/11/README.md)
+### [2022/04/10 英喜时事速递](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|中华民国—台湾](/content/gnews/12/README.md)
+### [有声|中华民国—台湾](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/13/README.md)
+### [欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [《台湾武器出口法案》将加速美对台军售](/content/gnews/14/README.md)
+### [《台湾武器出口法案》将加速美对台军售](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [有声|天空网络竞争 亚马逊签署Kuiper计划](/content/gnews/15/README.md)
+### [有声|天空网络竞争 亚马逊签署Kuiper计划](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [上海封城：20世纪60年代中共“大饥荒”灾难的重演](/content/gnews/16/README.md)
+### [上海封城：20世纪60年代中共“大饥荒”灾难的重演](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [有声|Jason Miller先生祝贺Elon Musk加入Twitter](/content/gnews/17/README.md)
+### [有声|Jason Miller先生祝贺Elon Musk加入Twitter](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [【秘翻时评】 研究显示感染中共病毒后 半年内可出现致命血栓](/content/gnews/18/README.md)
+### [【秘翻时评】 研究显示感染中共病毒后 半年内可出现致命血栓](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022.4.10大直播 郭文贵先生梳理习的执政规划](/content/gnews/19/README.md)
+### [文贵大直播要点（2022年4月10日）](/content/gnews/22/README.md)
+ ` 波士顿五月花农场`
+
+### [2022.4.10大直播 郭文贵先生梳理习的执政规划](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [视频文编|中共不灭，台湾将没有未来](/content/gnews/20/README.md)
- ` KarmaLabs`
-
-### [视频文编|共产党每两三个月就找有点影响力的人出来砸郭](/content/gnews/21/README.md)
- ` KarmaLabs`
-
-### [视频文编|《商君书》连坐与告密(PPT)](/content/gnews/22/README.md)
- ` KarmaLabs`
-
-### [“卡廷惨案”和“布查屠杀”之间的联系](/content/gnews/23/README.md)
+### [“卡廷惨案”和“布查屠杀”之间的联系](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [4/10/2022国内经济财经周报：接力贷冲出江湖；刘强东被卸任CEO](/content/gnews/24/README.md)
+### [4/10/2022国内经济财经周报：接力贷冲出江湖；刘强东被卸任CEO](/content/gnews/25/README.md)
  ` 秘密翻译组金融团队`
-
-### [视频文编|大直播PPT「《商君书》和中共极权统治」5分半](/content/gnews/25/README.md)
- ` KarmaLabs`
 
 ### [北约公开说北京是敌人，为接下来打击中共做铺垫](/content/gnews/26/README.md)
  ` DC政经`
@@ -138,11 +138,11 @@
 ### [约翰逊在突访基辅时承诺提供支持以使乌克兰不再被入侵](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海疫情乱象](/content/gnews/42/README.md)
- ` 银河勇气之星`
-
-### [台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划](/content/gnews/43/README.md)
+### [台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划](/content/gnews/42/README.md)
  ` 關注組`
+
+### [俄乌战争加剧全球粮食危机 食品价格再创历史新高](/content/gnews/43/README.md)
+ ` NFSC News`
 
 ### [波兰救援前线战友接受《每日来电》采访](/content/gnews/44/README.md)
  ` NFSC News`
