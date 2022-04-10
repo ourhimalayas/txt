@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 8:30 PM (UTC)`
+
+2022.04.10  新中国联邦 | 喜健康   没有硝烟的战争 — 伊维菌素
+![img](https://media.gettr.com/group24/origin/2022/04/10/20/528e0add-4d62-642a-2c89-f07a0395d365/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/10/2022 7:03 PM (UTC)`
 
 2022-4-10 “ 放手成长” #小小尼莫音乐会，🎼第六期，#littlenemoconcert，爱的平衡点，和智慧一起成长
@@ -145,13 +152,6 @@
 
 2022.04.09 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 ![img](https://media.gettr.com/group43/origin/2022/04/09/23/c1e1b7e4-0c03-f8af-866d-210996d54efa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/9/2022 11:01 PM (UTC)`
-
-2022.04.09 NFSC News AL JAZEERA ’S ATTACK ON MILES GUO AND THE WHISTLEBLOWER MOVEMENT
-![img](https://media.gettr.com/group10/origin/2022/04/09/23/ca8be5a9-49ae-4f8b-f5bb-835a888ce619/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
