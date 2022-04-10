@@ -2,44 +2,34 @@
 ---
 
 
-## 灾难来临时的责任分担效应
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2323439/)
+## 乌克兰全面禁止从俄罗斯进口商品 终止与白俄罗斯科教领域协议
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2323578/)
 
-作者：香草山商业部–秋末的落叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-上海封城快一个月了，人道灾难快一个月了，共匪杀人也快一个月了。
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-一个月的腥风血雨染红了上海滩，四月春意盎然时的大白幽灵，提着封条饿死着人，却没有多少反抗的声音，这是中共一直用的责任分担效应在作怪。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-我们有上海的战友最近封城期间夜晚释放了很多爆料革命暗号，可喜可贺的是，很多人都打开了灯，想必他们也懂那是什么意思。可是可悲的是，他们也只是开了开灯示意了一下。
+4月10日，乌克兰内阁通过决议，全面禁止从俄罗斯进口商品。从现在起，任何俄罗斯产品都不能进口到乌克兰。
 
-这就是责任分担效应。
+乌克兰第一副总理兼经济部长尤利娅·斯维里登科（Yulia Svyrydenko）说，乌克兰如此决定性的一步可以为我们的西方伙伴树立榜样，并将刺激他们加强对俄罗斯的制裁。包括实行能源禁运和隔离所有俄罗斯银行。这些行动将是我们对收缩俄罗斯经济的贡献，因此将有助于我们的胜利。
 
-20世纪，在美国一个街区，一个刚下班的女人被一个歹徒袭击，结果她拼命的喊救命，而听到的人也只是打开灯看了看，歹徒受惊后选择逃跑，随后她没走两步，又遇见那个歹徒折返，而这次她依然使劲喊救命，而居民依然只是开灯看了看，歹徒受惊依然逃跑，最后在她上楼的时候，歹徒出现在了楼道里，而这次她也没有那么幸运了，只能倒在了血泊中。
+据乌克兰经济部称，对俄罗斯进口的禁令将使俄罗斯每年的外汇收入减少60亿美元，侵略国的预算不会收到这些资金，因此将减少其潜在的战争资金。
 
-是社会太冷漠吗？当警察进行调查的时候，大家发现这些知道求救者信息时，只是觉得应该有人会去做，所以无动于衷。
+4月9日，乌克兰内阁决定终止与白俄罗斯在教育和科学领域的国际协议，有关决议是在一次政府会议上通过的。
 
-而我们战友遇到的也是同样的情况，身边知道爆料革命的人其实有很多，但很多人也只是在观望，因为他们都在等着别人先动手。
+特别是关于相互承认和同等教育及学术头衔证件的政府间协定、在科学和科学教育人员认证领域的合作，以及乌克兰政府和白俄罗斯政府之间关于科学技术合作的协定都不再被承认。
 
-那么，在上海这场事件之中，也是有反抗的声音，比如律师带头拿下了居委会，自给自足。做法律上过庭的人，他们太懂责任分担效应了，所以他们才敢挑头。
+这些协议是乌克兰与白俄罗斯在20多年前缔结的，但由于白俄罗斯共和国支持俄罗斯联邦对乌克兰发动前所未有的、公开的、大规模的武装战争，这些文件的延续是不可能的。
 
-破解责任分担效应的关键在于去做，但是在中共教育之中，多数的教育是理论教育，写出理论得高分，提出建议交论文。所以，越来越多的人都在中共教育下，慢慢的习惯了观望，也就被责任分担效应所驾驭。
+在与俄罗斯在教育和科学领域的合作完全停止之后，与支持侵略者的国家的所有协议的中止是乌克兰内阁一致的步骤。
 
-教育责任之重，并不只是让中国人思想上得到自由，更重要的是让大灾来临的时候，知道自己该做什么。
+参考数据：
 
-编辑/审核/发稿：Bronx Bombers
+[Government denounces agreements in the field of education and science with belarus](https://www.kmu.gov.ua/en/news/uryad-denonsuvav-ugodi-v-galuzi-osviti-ta-nauki-z-respublikoyu-bilorus)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+[Government endorses a decision to ban all imports from Russia](https://www.kmu.gov.ua/en/news/uryad-uhvaliv-rishennya-pro-povne-embargo-na-import-tovariv-z-rosiyi)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

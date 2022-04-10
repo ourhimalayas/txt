@@ -2,31 +2,32 @@
 ---
 
 
-## 有声|化解中共毒疫苗 美蓝和青蒿素的协同作用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323654/)
+## 《台湾武器出口法案》将加速美对台军售
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2323687/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在4月4日的新中国联邦|喜健康系列节目中，主讲嘉宾陪练战友介绍了另一个对付中共病毒的老药新用的例子–美蓝(Methylene blue)。
+作者：纽约香草山 医疗部 云豹
 
-嘉宾介绍，中共病毒流行以来，在法国一个医院内出现一个案例，其中2500名老人全都没有感染中共病毒，而他们都是每天服用美蓝的癌症患者。这引起了人们对美蓝的关注。美蓝又称亚甲基蓝、亚甲蓝，是最早用于治疗疟疾的化学合成药物，已有一百余年的历史。美蓝早已被列入世界卫生组织(WHO)的基本药物清单，毒副作用轻微，最明显的副作用可能是眼睛巩膜和尿液会变蓝，在二战时曾被美国海军士兵调侃(Even at the loo, we see, we pee, navy blue)。美蓝用于疟疾治疗的突出特点是它几乎没有抗药性。另外美蓝不仅能在体内的血液和细胞中杀毒，还可以有效地在体外杀死病毒。
+当地时间4月7日，美国参议员霍利提出《台湾武器出口法案》（Taiwan Weapons Exports Act）。该法案旨在加速美国对台军售的审查流程，减少行政障碍，以应对随时发生的台海军事危机。
 
-嘉宾列举了多个研究结果，证明美蓝不仅可以独立消灭中共病毒，还具有与青蒿素的协同作用，即由于美蓝可以把血红素中的三价铁变为二价铁，所以能够有效地发挥青蒿素中过氧桥键的威力。这种协同效应可以提高药效，降低副作用，并由此引申出一个探索方向：嘉宾呼吁医疗同行们对美蓝与青蒿素的协同作用在化解中共毒疫苗方面的效力作进一步的研究。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpeg)
 
-文字版原文：[化解中共毒疫苗 美蓝和青蒿素的协同作用](https://gnews.org/zh-hans/2316204/)
+据悉，现阶段，美国对外出口武器分为两个类别。台湾目前归属在一般国家的第二类中。此类别军售受制于较严格的金额限制，审核所需时间较长。一旦中共攻台，台湾无法及时获取必要的军事援助。
 
-音频处理：Fei797
-发稿：Fei797
+《台湾武器出口法案》建议，将台湾归属到主要盟国的第一类中，与北约各成员国，以及日、澳、韩等美国重要盟友位列同一等级，以便台湾享有优先的武器出口审核。在紧急状态下，行政审核流程可减少35天至55天。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+分析人士指出，该法案如能通过，将有助于台湾在紧急战时，快速取得先进的武器装备与战术指导。此外，该法案也能让台美军售法制化、常态化。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+1. [美參議員提台灣武器出口法 加速對台軍售](https://www.cna.com.tw/news/aipl/202204080262.aspx)
+2. [專家：台灣武器出口法案若過 美對台軍售加快且穩定](https://www.cna.com.tw/news/aipl/202204090166.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：Zion文恩
+编辑：文真
+审核：Zion文恩
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

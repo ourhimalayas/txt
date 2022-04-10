@@ -2,26 +2,74 @@
 ---
 
 
-## 视频|俄乌战争加剧全球粮食危机 食品价格再创历史新高
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2323207/)
+## 有声|粗暴的笑话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323318/)
 
-制作：香草山视频部
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我在喊
+你也在喊
+我喊我饿了需要吃的
+你喊控制灵魂对自由的渴望
+![](https://assets.gnews.org/wp-content/uploads/2022/04/68528145-C2E2-44AC-83E8-8DCB6FF31027.jpeg)
+我想
+我们是不是
+来自于不同星球
+不懂彼此语言
+交臂而过
+也只是交臂而过
+你假装听不懂我
+我对你无言以对
 
-4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
+你说
+控制灵魂对自由的渴望
+你告诉我
+告诉我们
+谁在控制我们的灵魂
+我们的自由
 
-众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
+我们早已经忘了
+什么是灵魂
+什么是自由
+生活处在最低要求
+可是
+如今
+也
+已经被剥夺
 
-由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
+喊吧，喊吧
+无人机在空中飞行
+那是用我们血汗
+购买的先进水平
+循环着你的声音
+控制着人们灵魂
+美好一切
+都已成了
+昨日风景
+只留下
+万人空巷
+家家牢笼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3BFB1AC8-FE43-4703-9097-534DBF762C8C-scaled.jpeg)
 
-粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
 
-美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
+文字版原文：[粗暴的笑话](https://gnews.org/zh-hans/2318079/)
 
-发稿：Daxia
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
 **更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
