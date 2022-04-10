@@ -2,35 +2,31 @@
 ---
 
 
-## 乌克兰全面禁止从俄罗斯进口商品 终止与白俄罗斯科教领域协议
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2323578/)
+## 有声|化解中共毒疫苗 美蓝和青蒿素的协同作用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2323654/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在4月4日的新中国联邦|喜健康系列节目中，主讲嘉宾陪练战友介绍了另一个对付中共病毒的老药新用的例子–美蓝(Methylene blue)。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
+嘉宾介绍，中共病毒流行以来，在法国一个医院内出现一个案例，其中2500名老人全都没有感染中共病毒，而他们都是每天服用美蓝的癌症患者。这引起了人们对美蓝的关注。美蓝又称亚甲基蓝、亚甲蓝，是最早用于治疗疟疾的化学合成药物，已有一百余年的历史。美蓝早已被列入世界卫生组织(WHO)的基本药物清单，毒副作用轻微，最明显的副作用可能是眼睛巩膜和尿液会变蓝，在二战时曾被美国海军士兵调侃(Even at the loo, we see, we pee, navy blue)。美蓝用于疟疾治疗的突出特点是它几乎没有抗药性。另外美蓝不仅能在体内的血液和细胞中杀毒，还可以有效地在体外杀死病毒。
 
-4月10日，乌克兰内阁通过决议，全面禁止从俄罗斯进口商品。从现在起，任何俄罗斯产品都不能进口到乌克兰。
+嘉宾列举了多个研究结果，证明美蓝不仅可以独立消灭中共病毒，还具有与青蒿素的协同作用，即由于美蓝可以把血红素中的三价铁变为二价铁，所以能够有效地发挥青蒿素中过氧桥键的威力。这种协同效应可以提高药效，降低副作用，并由此引申出一个探索方向：嘉宾呼吁医疗同行们对美蓝与青蒿素的协同作用在化解中共毒疫苗方面的效力作进一步的研究。
 
-乌克兰第一副总理兼经济部长尤利娅·斯维里登科（Yulia Svyrydenko）说，乌克兰如此决定性的一步可以为我们的西方伙伴树立榜样，并将刺激他们加强对俄罗斯的制裁。包括实行能源禁运和隔离所有俄罗斯银行。这些行动将是我们对收缩俄罗斯经济的贡献，因此将有助于我们的胜利。
+文字版原文：[化解中共毒疫苗 美蓝和青蒿素的协同作用](https://gnews.org/zh-hans/2316204/)
 
-据乌克兰经济部称，对俄罗斯进口的禁令将使俄罗斯每年的外汇收入减少60亿美元，侵略国的预算不会收到这些资金，因此将减少其潜在的战争资金。
+音频处理：Fei797
+发稿：Fei797
 
-4月9日，乌克兰内阁决定终止与白俄罗斯在教育和科学领域的国际协议，有关决议是在一次政府会议上通过的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-特别是关于相互承认和同等教育及学术头衔证件的政府间协定、在科学和科学教育人员认证领域的合作，以及乌克兰政府和白俄罗斯政府之间关于科学技术合作的协定都不再被承认。
-
-这些协议是乌克兰与白俄罗斯在20多年前缔结的，但由于白俄罗斯共和国支持俄罗斯联邦对乌克兰发动前所未有的、公开的、大规模的武装战争，这些文件的延续是不可能的。
-
-在与俄罗斯在教育和科学领域的合作完全停止之后，与支持侵略者的国家的所有协议的中止是乌克兰内阁一致的步骤。
-
-参考数据：
-
-[Government denounces agreements in the field of education and science with belarus](https://www.kmu.gov.ua/en/news/uryad-denonsuvav-ugodi-v-galuzi-osviti-ta-nauki-z-respublikoyu-bilorus)
-
-[Government endorses a decision to ban all imports from Russia](https://www.kmu.gov.ua/en/news/uryad-uhvaliv-rishennya-pro-povne-embargo-na-import-tovariv-z-rosiyi)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
