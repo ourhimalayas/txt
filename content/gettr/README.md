@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/10/2022 4:59 AM (UTC)`
+
+2022/04/10  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group30/origin/2022/04/10/04/9e7f3130-13b2-1f35-66d9-01c45b85f500/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/10/2022 3:02 AM (UTC)`
 
 2022-4-9《鸡血王喜币大作战》 第一百六十集 嘉宾：卡丽熙、Eric
@@ -151,13 +158,6 @@
 
 【Ukraine Rescue】04/07/2022 One French volunteer in a talk with Nicole expressed how much he likes the NFSC hat because it shows the will of the Chinese people to overthrow the CCP. He would like to get one of our hats and wear it to show his support for us.<br/><br/>【乌克兰救援】04/07/2022 一位法国志愿者在与妮可交谈时表示，非常喜欢新中国联邦的帽子，因为它表达了中国人民推翻中共的意愿。他表示，希望能获得一顶我们的帽子，并戴着它以示对我们的支持。
 ![img](https://media.gettr.com/group33/getter/2022/04/09/15/a6dfc11d-876a-2fd1-86f6-1d63ea3bf7b7/out.jpg)
-
----
-
-`@miles 4/9/2022 3:20 PM (UTC)`
-
-4月9号：【上一个录的视频没有声音，我再简单录一遍，抱歉了，万分的抱歉。】尊敬的战友们好，感谢从上海，深圳，吉林，北京．广东等地战友们送来的这些绝密信息，新中国联邦……永远不会忘记．永远感恩……明天上午七哥将加入大直播。共产党在整个中国大陆制造的人类大灾难．将超出我们常人的想象，我们明天直播详谈，一切都已经开始！
-![img](https://media.gettr.com/group26/getter/2022/04/09/15/47e7a4de-b432-117a-32bf-1afe86fc1629/out.jpg)
 
 ---
 
