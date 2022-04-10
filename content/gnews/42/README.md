@@ -2,35 +2,35 @@
 ---
 
 
-## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
+## 俄乌战争加剧全球粮食危机 食品价格再创历史新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2322402/)
 
-**港台前线 zhong｜2022-4-10**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
+撰稿：纽约香草山-文希；纽约香草山-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+4月8日，联合国粮农组织表示，由于俄罗斯入侵乌克兰给主粮和植物油市场带来“冲击”，世界食品价格在 3 月创下历史新高，谷物和植物油市场受影响最大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1128.png)图片来自：https://cdn.downtoearth.org.in
+众所周知，俄罗斯和乌克兰是世界主要的粮仓之一，它们在小麦、植物油和玉米等几种主要商品的全球出口中占有很大份额。
 
-霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
+由于俄罗斯出口被制裁，货出不去，而乌克兰农业停摆，港口半闭，专家分析这些会造成2000万吨的粮食缺口，没有任何一个国家可以补给。俄乌战争一天不解决，粮食价格还会继续往上涨，会有更多的人因买不到粮食而饿死。
 
-俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
+粮农组织的食品价格指数是衡量一篮子食品国际价格月度变化的指标，该指标在 2 月份已创下历史新高，3月又飙升了12.6%，达到历史最高值159.3 点。
 
-此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
+美国指责俄罗斯总统普京制造了这场全球粮食危机。法国也警告说，俄乌战争增加了世界各地发生饥荒的风险。
 
-目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
+参考链接：
 
+[粮食危机加剧 全球食品价格3月创历史新高](https://www.epochtimes.com/gb/22/4/8/n13705418.htm)
 
-
-> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
-
+[World food prices hit record high over Ukraine war: FAO](https://www.france24.com/en/live-news/20220408-world-food-prices-hit-record-high-over-ukraine-war-fao)
 
 
-来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-61-530x720.jpg)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+编辑总编审核：飞虹
 
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

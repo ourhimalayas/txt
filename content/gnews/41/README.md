@@ -2,36 +2,34 @@
 ---
 
 
-## 澳洲多地CCP病毒数量略有下降
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2322763/)
+## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
 
-撰稿：Gradient Boost
+**港台前线 zhong｜2022-4-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/103.jpg)图片来自网络
-在过去的 24 小时内，澳大利亚东部的新南威尔士州、昆士兰州和维多利亚州的 CCP病毒感染病例均呈现出略微的下降趋势。
+霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
 
-悉尼所在的新南威尔士州记录了 15,683 例新的CCP病毒感染病例，比昨天的数字减少了 1914 例。目前仍在住院治疗的患者为1492例，其中56例需要重症监护。由于与 COVID 相关的疾病，又有8人不幸失去生命。在新病例总数中，通过快速抗原检测得到的结果为 8391 例。此外，该地区的CCP病毒加强针注射率已经超过六成，不过增长速度似乎不如注射前两针那样迅速。
+俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
 
-在墨尔本所处的维多利亚州，过去24小时内共记录了 9510 例新增CCP病毒感染，这使得维多利亚州的活跃病例总数达到 65,466 例。目前维多利亚州共有 356 名 COVID-19 患者在医院接受治疗，其中 16 人被安排在重症监护室。1人在今日不幸死于与 CCP病毒感染相关的疾病。该州已有超过65%的成年居民接种了第三针CCP病毒疫苗。
+此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
 
-昆士兰州今日总共记录了 7154 例 COVID-19 病例，比昨天的数字减少了 1533 例。该州在过去24小时内发生了 1 起与 COVID 相关的死亡事件，另有 500 人因感染病毒而住院，其中 15 人正在接受重症监护。该州目前拥有接近 60,000 例活跃CCP病毒感染病例，目前该州已有过半12岁及以上人口接种了第三针CCP病毒疫苗。
+目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
 
-西澳大利亚州的病例数量在过去24小时内似乎同样有所下降，该州今日记录了 5351 例新的 COVID-19 感染病例，而昨天这一数字为 6,566 例。昨日该州昨天发生三起CCP病毒感染死亡事件，创造了历史新高，而今日又有两人死于该病毒。西澳全州的住院患者总数为234人，其中10人在重症监护室。该州目前第三针CCP病毒疫苗注射率在16岁以上群体中已经超过四分之三。
 
-*编辑：Gradient Boost*
 
-*发稿：mgjxs*
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
 
-新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-update-nsw-covid19-numbers-victoria-queensland-cases/4433f69e-f0b3-4527-a47c-75f889399ef7)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+
+来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
