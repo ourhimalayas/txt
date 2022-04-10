@@ -131,15 +131,6 @@
 
 **:arrows_clockwise: miles 已轉發**
 
-`@adelin 4/9/2022 5:02 PM (UTC)`
-
-新中国联邦 青蒿素衍生物解疫苗及新冠病毒刺突蛋白毒的成人建议方案. 方案仍在不断改进中,请关注不定期的更新信息.一切是为了健康和灭共!
-![img](https://media.gettr.com/group26/origin/2022/04/09/17/590a7a88-6dc2-0243-26a4-8dd91a1bf0b4/c77b01ea4b057e5c56cbfdfea5e6ce68.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
 `@mos_movie 4/9/2022 2:57 PM (UTC)`
 
 🌶️The Spiced有‘料’🌶️<br/><br/>中共在校园发起支持俄罗斯侵略乌克兰的舆论战<br/>The CCP launched a public opinion war on campus to support Russia's aggression against Ukraine<br/><br/>中共是人类一切灾难的根源，是俄罗斯侵略乌克兰的始作俑者与背后金主。中共在校园刻意误导学生对乌克兰危机的认识与判断是令人发指的精神强奸，只有灭共才能拯救同胞！<br/>[GETTR] The CCP is the root cause of all human disasters, and is the initiator and financial master behind Russia's aggression against Ukraine. The CCP is deliberately misleading students on campus about the crisis in Ukraine, which is a heinous form of spiritual rape. Only the elimination of the CCP can save our compatriots!<br/><br/>#学校 #School #乌克兰局势  #ThesituationinUkraine #口径 #Caliber #舆论 #Opinion #乌克兰 #Ukraine #俄罗斯  #Russia #学院  #College
@@ -158,6 +149,13 @@
 
 【Ukraine Rescue】 04/07/2022 Nicole interviews two Chinese boys who came to Poland on spring holidays with their father to participate in the relief effort: their father does not speak English, but with the help of his two sons' translation, he drives the refugees to places. Nicole is touched and introduces our NFSC to them and tells them that we are also a group of compassionate Chinese people who love to help others.<br/><br/>【乌克兰救援】 04/07/2022 妮可采访了两位利用春假随父亲前来波兰参与救援的华人少年：他们的父亲虽不会英语，但是在两个儿子的翻译协助下开车运输难民。妮可在感动之余也向他们介绍了我们新中共联邦，并告诉他们，我们同样是一群热爱公益，喜欢去帮助别人，有爱心的中国人。
 ![img](https://media.gettr.com/group9/getter/2022/04/09/15/2af86a38-9f28-e5ad-eb75-4a7027e9c91c/out.jpg)
+
+---
+
+`@miles 4/9/2022 3:22 PM (UTC)`
+
+【Ukraine Rescue】04/07/2022 One French volunteer in a talk with Nicole expressed how much he likes the NFSC hat because it shows the will of the Chinese people to overthrow the CCP. He would like to get one of our hats and wear it to show his support for us.<br/><br/>【乌克兰救援】04/07/2022 一位法国志愿者在与妮可交谈时表示，非常喜欢新中国联邦的帽子，因为它表达了中国人民推翻中共的意愿。他表示，希望能获得一顶我们的帽子，并戴着它以示对我们的支持。
+![img](https://media.gettr.com/group33/getter/2022/04/09/15/a6dfc11d-876a-2fd1-86f6-1d63ea3bf7b7/out.jpg)
 
 ---
 
