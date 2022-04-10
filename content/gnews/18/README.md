@@ -2,32 +2,37 @@
 ---
 
 
-## 死灰复燃，安省每天10万至12万个新病例
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320150/)
+## COVID-19疫苗副作用集萃（2022.04.10A）——接种疫苗后出现了关节疼痛和神经损伤
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320292/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：青青、撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-加拿大CTV新闻4月6日报道，安省科学顾问小组主任说，CCP病毒正在安省死灰复燃，每天可能出现超过10万个新病例，住院的人数正在以每周40%的速度递增。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1074.png)
-废水分析表明，疫情目前刚刚达到1月初峰值，而当时每天有10万到12万个新病例，这意味着，现在安省约有5%的人口处于活跃感染状态。
+整理：禄森
+编辑：文泓
 
-导致这波疫情回升的主要因素，除了奥密克戎亚变体BA.2的传播性更强，政府取消公共场所佩戴口罩的规定也在推波助澜。流行病学家警告说，病毒传播的速度越来越快，可能使脆弱的个体处于危险状态并最终导致本可避免的死亡。虽然政府称可以增加资源，但如果没有足够的工作人员，医院增加床位毫无意义。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组
 
-UHN传染病专家Abdu博士说，应该恢复安省的口罩规定，实际上取消口罩一开始就是一个错误，我们还没有度过本次大流行，疫情高峰尚未到来！
 
-原文链接：[https://toronto.ctvnews.ca/ontario-likely-seeing-100k-to-120k-new-covid-19-cases-each-day-head-of-science-table-says-1.5851187](https://toronto.ctvnews.ca/ontario-likely-seeing-100k-to-120k-new-covid-19-cases-each-day-head-of-science-table-says-1.5851187)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-上传/发稿 – 文永
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+[**副作用集萃**** ****–**** GNEWS**](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+**新冠第三针手指僵硬疼痛，太紧张神经损伤**
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+博主：嘻嘻2017601
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+2021年12月28日，上周打完第三针后，打了针的那个胳膊的手无名指关节疼了一周，早上起来那根手指头还呈晨僵，白天活动了一天要好点。记得当时针打了后，整个手臂就感觉麻了一下，然后无名指扯（跳）了一下，比较轻微，当时在观察室我还问了医生，他说可能打到神经了。昨晚就搭配了这两种药，早上晨僵消失了，疼也好点了，差点以为手要废了。
+
+【备注：晨僵（morning stiffness）指晨起时病变的关节在静止不动后出现较长时间僵硬，如胶粘着的感觉，在适当活动后（症状）逐渐减轻的现象。】
+
+以下是网友留言及博主回复，图片来自博主小红书。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1077.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1078.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1079.png)![](https://gnews.org/43eb6730-15b0-4b31-b65a-031e478e89ed)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1081.png)
+参考来源：[新冠第三针手指僵硬疼痛，太紧张神经损伤](https://www.xiaohongshu.com/discovery/item/61ca6368000000002103f72f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155348)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

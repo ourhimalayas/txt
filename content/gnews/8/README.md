@@ -2,36 +2,35 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.10A）——接种疫苗后出现了关节疼痛和神经损伤
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2320292/)
+## 澳大利亚总理呼吁5月21日举行大选
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2320386/)
 
-整理：禄森
-编辑：文泓
+####  了解澳洲生活点滴， 带您走进澳洲
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-887.png)图片来源：雅典娜设计组
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_e0c65ed8ff3147d990d69e78c29c3560_16x9_992.jpg)图片来源：ABC News
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+根据外媒4月10日报道，澳大利亚总理斯科特·莫里森 (Scott Morrison) 要求在5月21日举行联邦选举，在经历了洪水、丛林大火和新冠大流行病的三年后，发起了一场为保持执政地位的斗争。
 
-[**副作用集萃**** ****–**** GNEWS**](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+莫里森的保守政府正在努力争取澳大利亚的1700万选民，尽管其领导的经济正在反弹，失业率为13年来最低的4%，但在一系列民意调查中落后于反对党工党。
 
-**新冠第三针手指僵硬疼痛，太紧张神经损伤**
+“这次选举是关于你的。没有其他任何人。这关乎我们的国家，关乎它的未来，”莫里森说。
 
-博主：嘻嘻2017601
+“我知道澳大利亚人经历了一段非常艰难的时期。 我也知道澳大利亚在未来几年将继续面临非常严峻的挑战，”他在新闻发布会上说。
 
-2021年12月28日，上周打完第三针后，打了针的那个胳膊的手无名指关节疼了一周，早上起来那根手指头还呈晨僵，白天活动了一天要好点。记得当时针打了后，整个手臂就感觉麻了一下，然后无名指扯（跳）了一下，比较轻微，当时在观察室我还问了医生，他说可能打到神经了。昨晚就搭配了这两种药，早上晨僵消失了，疼也好点了，差点以为手要废了。
+政治资深人士安东尼·艾博年 (Anthony Albanese) 领导的工党将努力结束澳大利亚自由党 – 国家党在澳大利亚近十年的统治。
 
-【备注：晨僵（morning stiffness）指晨起时病变的关节在静止不动后出现较长时间僵硬，如胶粘着的感觉，在适当活动后（症状）逐渐减轻的现象。】
+资料来源：[Australian prime minister calls May 21 election](https://newsinfo.inquirer.net/1580956/australian-prime-minister-calls-may-21-election)
 
-以下是网友留言及博主回复，图片来自博主小红书。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1077.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1078.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1079.png)![](https://gnews.org/43eb6730-15b0-4b31-b65a-031e478e89ed)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1081.png)
-参考来源：[新冠第三针手指僵硬疼痛，太紧张神经损伤](https://www.xiaohongshu.com/discovery/item/61ca6368000000002103f72f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155348)
+发布： tianzhihuan
 
-发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

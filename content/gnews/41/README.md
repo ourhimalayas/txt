@@ -2,23 +2,13 @@
 ---
 
 
-## 视频|只要CCP存在，上海的今天就是世界的明天
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2319684/)
+## 诸多证据显示，中共和俄罗斯正在寻求改变全球秩序
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2319995/)
 
-【视频剪辑】 Amanda11
+04/08/2022 澳洲助理国防部长安德鲁·哈斯蒂：中共投票反对联合国将俄罗斯驱逐出人权理事会的决议，为俄罗斯打掩护，这清楚地表明中共和俄罗斯正在寻求改变全球秩序
 
-【文案编辑】Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【制作团队】大直播短视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
