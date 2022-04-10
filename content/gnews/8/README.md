@@ -2,30 +2,32 @@
 ---
 
 
-## 疫情｜上海日增26855宗本土个案 副市长哽咽道歉 市民负评如潮瘫痪评论区
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2320704/)
+## 加拿大央行四月份将加息50个基点
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320792/)
 
-**图/文｜CP**
-**发布时间｜10/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海日增26855宗本土個案-副市長哽咽道歉-市民負評如潮癱瘓評論區.jpg)
+##### 加拿大温哥华扬帆农场 – 采编： 文莱               编译： 晨熹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/reuters.jpg)图片来源：reuters
+据多伦多太阳报援引路透社4月6日报道，加拿大央行将于4月13日将隔夜利率上调50个基点，此外他们还大幅上调了今年的通胀预期。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+此举是为了控制供应链中断以及俄乌战争引发的能源成本上涨等导致的通胀飙升。预计央行在未来几个月会以比预期更快的速度加息。
 
+据悉，这是自3月份加息25个基点后的再一次加息。五大银行还预计6月将再次加息0.5个百分点。央行副行长莎朗·科齐基上月末曾表示，央行准备采取“有力”行动，通过加息使通胀回到央行目标。
 
-上海市衞健委通报，截至4月9日24时，上海单日新增26855宗新冠病毒本土个案，再创新高。当局昨日在全市范围内又展开了一次全员核酸检测，计划依检测结果按风险程度划分三区进行阶梯式管理，包括封控区、管控区和风险最低的防范区。
+加拿大央行周一发布的一项调查显示，在劳动力严重短缺和供应链困难的情况下，有创纪录数量的加拿大企业面临产能压力。
 
-上海市副市长宗明在疫情防控记者会上承认当局有不少工作做得不够，并语带哭腔承诺会尽全力改进，惟道歉不获民众接受，上海市民认为“讲一套、做一套”，批评当局“虚伪”、“作秀”的言论瘫痪评论区。
+新闻来源：[https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
-另外，美国国务院日前宣布，因应上海新冠病毒疫情严峻容许驻上海总领事馆非紧急人员及家属可自愿以“授权撤离”方式离开。
-
-惟有被封控的外籍人士认为，现在连门口都出不去 ，遑论回国。更斥责国际社会不仅对正于上海发生的人道危机不闻不问，对本国公民一样不予理会，如不是得到部分上海市民的帮助一起团购物资，恐怕早已饿死。
-
-来源｜上海发布
-
+上传/发稿 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

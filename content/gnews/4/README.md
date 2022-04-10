@@ -2,20 +2,18 @@
 ---
 
 
-## 加拿大央行四月份将加息50个基点
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320792/)
+## 加拿大2022年联邦预算新增支出560亿美元
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320830/)
 
-##### 加拿大温哥华扬帆农场 – 采编： 文莱               编译： 晨熹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/reuters.jpg)图片来源：reuters
-据多伦多太阳报援引路透社4月6日报道，加拿大央行将于4月13日将隔夜利率上调50个基点，此外他们还大幅上调了今年的通胀预期。
+##### 加拿大温哥华扬帆农场 – 采编:文莱/编译:晨熹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/truenorth1.jpg)图片来源：truenorth
+据【真北方】4月7日报道， 特鲁多政府将继续扩大支出规模，2022年联邦预算新增560亿美元。自由党副总理兼财政部长克里斯蒂亚弗里兰周四向下议院提交了该预算文件。
 
-此举是为了控制供应链中断以及俄乌战争引发的能源成本上涨等导致的通胀飙升。预计央行在未来几个月会以比预期更快的速度加息。
+新增支出包括80亿美元国防开支，100亿美元经济适用房计划，以及对金融机构的进一步税收，其中国防开支新增资金将用于升级北美航空航天防御并购买更多武器支持乌克兰。自由党还将收入超过10亿美元的附加税提高了1.5%。
 
-据悉，这是自3月份加息25个基点后的再一次加息。五大银行还预计6月将再次加息0.5个百分点。央行副行长莎朗·科齐基上月末曾表示，央行准备采取“有力”行动，通过加息使通胀回到央行目标。
+联邦赤字预计在2021至2022年将达1138亿美元，尽管自由党声称明年他们能将赤字削减一半以上。加拿大的债务已超过1.11万亿美元，新增预算对全体加拿大人来说，将意味着更多的税收。
 
-加拿大央行周一发布的一项调查显示，在劳动力严重短缺和供应链困难的情况下，有创纪录数量的加拿大企业面临产能压力。
-
-新闻来源：[https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+新闻来源：[https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/](https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/)
 
 上传/发稿 – 云起时
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)

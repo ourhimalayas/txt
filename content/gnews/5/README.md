@@ -2,28 +2,37 @@
 ---
 
 
-## 加拿大宣布投资150亿美元吸引科技投资
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320788/)
+## 日本设想针对俄罗斯形成包围网并不容易
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2320828/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/peterwatsonivestments.com_.jpg)图片来源：peterwatsonivestments.com
-加拿大政府的一位高层消息人士在今年财政预算案公布的前一天(4月7日)表示，为吸引民间对新绿色技术的投资，加拿大将在5年内向增长基金(Growth Fund)投入150亿加元。政府将争取每1美元的公共资金吸引3美元的私人投资。特鲁多领导的自由党政府的目标是利用这笔资金来支持那些没有公众支持可能无法实现的项目。国际或国内的私人投资者将有资格使用它。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/日本设想针对俄罗斯形成包围网并不容易.png)（图片源自本文链接）
+4月10日时事通信社消息：日本与西方同步，对俄罗斯在乌克兰的持续侵略进行严厉制裁，同时希望也要求东南亚国家做出类似的回应。
 
-路透社(Reuters)本周报道称，加拿大将在预算中投资一项关键的矿产战略。至少20亿美元的投资将是单独的。另外，加拿大广播公司周三援引消息人士的话称，在俄罗斯入侵乌克兰后，特鲁多政府可能在预算中增加80亿加元的国防开支，用于北美防空司令部(NORAD)的升级、为乌克兰购买武器以及武装部队的装备短缺。
+其目的是弥补制裁中的 “漏洞”，使制裁措施更加有效。然而，一些国家传统上与俄罗斯关系密切，行动迟缓，所以要建立日本设想的针对俄罗斯的包围网并不容易。
 
-新闻链接：[https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
+东南亚的一些国家与俄罗斯有着紧密的联系。在东南亚国家联盟（东盟，10个国家）中，社会主义国家越南和老挝因与俄罗斯关系密切而闻名，在7日的联合国大会紧急特别会议上，通过了一项决议，暂停俄罗斯在人权理事会的成员资格，越南和老挝对此表示反对。
 
-上传/发稿 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+东盟作为一个整体也明显表现出冷淡的态度：东盟国家的外交部长在3月3日的声明中呼吁停火，但避免直接提及俄罗斯。此后，只有新加坡这一个国家采取了对俄罗斯进行经济制裁的措施。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+岸田文雄首相3月在柬埔寨与洪森首相会晤后发表的联合声明也呼吁 “立即暂停使用武力并从乌克兰领土撤军”，但没有点名俄罗斯。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+一位外交部官员说：”东南亚国家并不强大。在联合国安全理事会没有发布决议的情况下，单方面实施制裁存在阻力”。外交部一位高级官员评论说：”每个国家都有自己的情况。 我们不能用武力迫使他们这样做”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+在自民党内部，外交事务小组委员会主席佐藤正久说，亚洲应该感到汗颜，能确保自己不会成为制裁俄罗斯的漏洞吗?。岸田首相在1日对国会的答复中表示，他将继续敦促亚洲国家这样做，但此后没有重大进展。政府将面临如何应对执政党的反击这一难题。
+
+信息来源：
+ [日本政府、対ロ包囲網の拡大難しく　東南アジア、制裁には慎重（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ed8a61f379cf994f55d4f342bbcd4e0a81c8af2c)
+
+校对：东京樱花团/喜马拉雅
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

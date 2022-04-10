@@ -2,30 +2,27 @@
 ---
 
 
-## 自由党和新民主党如何推动自由车队纵火骗局
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2320815/)
+## 有声｜刘特佐参与的一马基金案由高盛前雇员背锅
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2320848/)
 
-##### 加拿大温哥华扬帆农场 – 采编:文莱/编译:晨熹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/truenorth.jpg)图片来源：truenorth
-据【真北方】4月7日报道，在渥太华警方周四发表的，2月6日公寓楼纵火案声明中表明，该案件与自由车队抗议活动无关。那么“自由车队涉嫌企图烧毁一栋满是被困居民的建筑物”这种说法从何而来？
+**By:秘翻新闻**
 
-渥太华市长吉姆·沃森是首先将事件归咎于车队的人之一。其后，自由党和新民主党议员，以及传统媒体继续不断反复暗示抗议者参与了这起事件。然后政府再依据这些社交媒体的虚假报道来采取行动。
+**2022-04-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-10-150606.jpg)
+综合媒体4月9日报道，本周五，前高盛集团银行高管黄宗华被美国陪审团判定贿赂和欺诈罪名成立。他被控参与了45亿美元的骗局，洗劫马来西亚的国家投资基金，即称为1MDB的一马发展公司基金。
 
-这一轮抹黑行动，最终为特鲁多首次使用《紧急情况法》的正当性，提供了关键性依据。同时也可能为政府今后经常使用紧急权力来平息民众抗议活动开创了先例。
+一马基金丑闻是美国最大的海外腐败案件之一，政府高层和银行官员都被卷入其中，包括前马来西亚总理纳吉布-拉扎克。
 
-新闻来源：[https://tnc.news/2022/04/07/dzsurdzsa-how-the-liberals-and-ndp-pushed-the-arson-hoax-about-the-freedom-convoy/](https://tnc.news/2022/04/07/dzsurdzsa-how-the-liberals-and-ndp-pushed-the-arson-hoax-about-the-freedom-convoy/)
+黄宗华的辩护律师称一马基金也许是世界史上最大的抢劫。但是他还表示，美国检察官把黄宗华当成了替罪羊，这些罪行的主谋还包括德国银行家蒂姆·莱斯纳和在逃马来西亚富商刘特佐。郭文贵先生此前爆料称刘特佐为孟建柱私生子。
 
-上传/发稿 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+然而，黄宗华可能是唯一一个在美国法庭上面临判决的人。他被指控接受了3500万美元的非法资金，并因共谋洗钱和违反反腐败法律的三项罪名面临最高30年的监禁。
+
+（秘密新闻 大树、文洋联合报道）
+
+发布:星星
+
 * * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
