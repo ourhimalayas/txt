@@ -15,38 +15,38 @@
 
 ---
 
-### [日本宣布5项对俄追加制裁措施](/content/gnews/1/README.md)
+### [乌克兰外长对北约的议程：很简单，就是武器、武器和武器](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共的黑客攻击印度拉达克附近的电网系统](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加速入欧盟！乌克兰官方：预计6月获候选国资格](/content/gnews/3/README.md)
+ ` 蓝莲花农场`
+
+### [日本宣布5项对俄追加制裁措施](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [约翰逊：在布查和伊尔平等地方的行为是战争罪行平民遇害永久玷污普京名声](/content/gnews/2/README.md)
+### [约翰逊：在布查和伊尔平等地方的行为是战争罪行平民遇害永久玷污普京名声](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [英国将向乌克兰派遣装甲车并训练士兵](/content/gnews/3/README.md)
+### [英国将向乌克兰派遣装甲车并训练士兵](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭](/content/gnews/4/README.md)
+### [4/9/2022 文贵盖特：国内战友说中共早有准备要让老百姓尝尝挨饿的苦头，目的是为了让中国人更“感恩中共”以及将社会的不公平和灾难甩锅给富人，从而抢走富豪们的资产并将其消灭](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [Facebook母公司Meta想推出“扎克币”](/content/gnews/5/README.md)
+### [Facebook母公司Meta想推出“扎克币”](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加中外长通电话，但双方各执一词](/content/gnews/6/README.md)
+### [加中外长通电话，但双方各执一词](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美国出台新一轮对俄金融制裁](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/8/README.md)
+### [日本取消对106个国家的COVID-19非居民外国人入境禁令](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/9/README.md)
+### [有声｜欧盟表示驻基辅的外交机构将重新开放](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [有声|日媒关注中共在教育界展开的新一轮洗脑](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [有声|乌克兰副总理呼吁乌东居民立即撤离家园](/content/gnews/11/README.md)
- ` MOSREC`
 
 ### [4/9/2022 文贵盖特：中共让今日资本CEO徐新的视频在网上疯传是为了煽动中国人仇富；中共在世界上的疯狂举动虽对灭共有利，但这并非我们希望看到的](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
