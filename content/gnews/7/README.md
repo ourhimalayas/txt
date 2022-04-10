@@ -2,33 +2,21 @@
 ---
 
 
-## 根据新法律，澳大利亚的国际学生不能改变课程
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2320394/)
+## 视频|美国参议院全票通过剥夺俄罗斯正常贸易地位
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2320607/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+制作：香草山视频部
 
-翻译/编辑：小红帽
+据外媒4月7日综合报道，美国参议院当天上午以100票对0票，全数同意撤销俄罗斯的“最惠国”贸易地位。同时，联邦政府将暂停对包括石油在内的俄罗斯能源的进口。
+报道提及，自俄罗斯入侵乌克兰以来，西方国家对莫斯科当局采取了大量的经济制裁，美国总统拜登早先也呼吁国会尽快采取行动，用以结束俄罗斯的贸易地位。而今，美国正式撤销对俄罗斯的贸易最惠国待遇将对普京政府造成巨大的经济打击。  
+据悉，本次参议院通过的法案还将针对包括白俄罗斯、朝鲜和古巴在内的独裁国家：这些国家未来在进入全球市场方面将面临来自美国及其盟友的经济障碍。其中，法案将允许美国大幅度提高对俄罗斯和白俄罗斯的商品关税，部分商品甚至将面临罚款的可能。
+目前，拜登政府正在努力阻止俄罗斯从世界银行和国际货币基金组织借款。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/What-is-the-Processing-Time-for-the-Student-Visa-Subclass-500.jpg)图片来源：https://aspiresquare.com/
+发稿：qiutian（邱甜）
 
-
-根据《经济时报》4月10日报道，根据新的澳大利亚签证规定，在未获得部长批准的情况下，在澳大利亚大学就读的国际学生将不能改变他们的学习课程、论文或研究课题。
-
-澳大利亚内政部网站称：“只有在部长获得澳大利亚主管当局的评估，认为你不会直接或间接对澳大利亚国家安全构成风险之后，才能给予批准。”
-
-500子类学生签证是获得在该国学习长达5年的临时签证。学生可以参加符合条件的学习课程，进出该国，并在任何部门不限时间地工作。
-
-此前，国际学生可以在获得教育机构批准的情况下，更改他们已经学习了六个月或更长时间的课程。
-
-资料来源：[International students in Australia cannot change courses under new law](https://economictimes.indiatimes.com/nri/study/international-students-in-australia-cannot-change-courses-under-new-law/articleshow/90740491.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
