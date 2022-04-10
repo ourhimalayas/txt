@@ -2,34 +2,55 @@
 ---
 
 
-## 日本和菲律宾签署国防协议以应对中共台海局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322488/)
+## 不要相信中共国对普京的乌克兰战争所说的任何内容
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2322662/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47.png)
-当地时间4月9日周六，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，从而促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+编译：七叶之芒
 
-自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为同位于该海域的国家，日本和菲律宾希望共同解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约目前已经在考虑为双方的军队提供供应共享协议，该协议包括收购和交叉服务。据悉日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-4.jpg)
 
-菲律宾是继印度尼西亚之后与日本举行二加二会议的第二个东南亚国家。
 
-reference：
 
-[https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-190.jpg)图片来源：Sputnik/Ramil Sitdikov/Kremlin via REUTERS
 
-撰稿、发布：骄子
+北京在弗拉基米尔-普京入侵乌克兰的问题上装作中立，但让人吃惊的是中共如何让完全由国家控制的媒体呼应俄罗斯的宣传。
+
+命令明明白白地发出去了–正如《新京报》旗下的社交媒体账户地平线新闻上一条迅速删除的信息意外地披露。“不得发布不利于俄罗斯或具有亲西方内容的帖子”。
+
+例如，上周，当世界其他地方看到被围困的乌克兰城市和俄罗斯军队留下的屠杀的真实图像–布卡的45英尺长的壕沟里堆满了平民的尸体，以及该镇的所有尸体–中共国的《人民日报》在社交媒体平台微博上分享了一段视频，“显示”俄罗斯在哈尔科夫外向乌克兰人提供人道主义援助。
+
+有300多万人观看了这段视频。
+
+从一开始，中共国网络就放大了俄罗斯的虚假信息，引用了俄罗斯官员的虚假说法，即乌克兰总统沃洛季米尔-泽伦斯基已经逃离首都，乌克兰士兵在入侵的第一天就投降了。
+
+而中共国的凤凰卫视在与俄罗斯军队一起在现已被摧毁的马里乌波尔城外发布报告，称平民应该欢迎俄罗斯军队。
+
+北京完全拒绝谴责这次入侵，而是断言美国和北约对普京的战争负有责任。习近平甚至告诉美国总统拜登，美国和北约是问题的“关键”。
+
+与此同时，乌克兰的安全部门SBU表示，中共国应该为入侵前对乌克兰军事和核设施的重大网络攻击负责，对属于基辅国防部和其他机构的600多个网站进行了数千次黑客尝试。
+
+也许这是对俄罗斯的恩惠，因为它将入侵推迟到北京奥运会结束后，据说习近平要求这样做。
+
+毕竟，普京和习近平在2月4日，即奥运会开幕当天宣布了他们邪恶的最好的友谊，在5000字的联合声明中宣布：“两国友谊没有限制，没有‘禁止’的合作领域”。
+
+至少现在，这次入侵已经让西方人清醒地认识到普京的真实本性。但世界仍然需要承认，习近平也是文明的敌人。
+
+新闻来源：[dont believe any of what china says about putins ukraine war](https://nypost.com/2022/04/09/dont-believe-any-of-what-china-says-about-putins-ukraine-war/)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+审核：Aries的星
+校对：五通庙
+发布：五通庙
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

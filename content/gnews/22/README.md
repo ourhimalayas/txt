@@ -2,40 +2,35 @@
 ---
 
 
-## 中共盗走美国小投资者数十亿美元
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2322391/)
+## 台湾｜美议员提出“台湾武器出口法” 欲建立新对台安全援助计划
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2322584/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S1-FR285_TECHNI_M_20200410160203.jpg)
-当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，数额高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国賊等与此有关联，中共利用美国市场的规则漏洞来洗劫美国投资者的资金。
+**港台前线 zhong｜2022-4-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院军事委员会成员霍利参议员（Josh Hawley）七日提出“台湾武器出口法”（Taiwan Weapons Exports Act），希望创建新的对台安全援助计划，该法案旨在加快国会批准向台湾运送关键武器，并减少行政程序造成的障碍。与美国近日通过援乌“租借法案”有相似之处。
 
-中共2016年到2021年在美国交易所上市的公司在降价前抛售自己的股票，从事内幕交易以防止损失，资金达到100亿美元。1990年以来，为了吸引外国公司在美国上市，美国法律规定股东必须要及时在公开文件中披露其具体交易。但对中共国的要求并未如此严格，中共只需要用邮寄纸质披露即可，而这需要三个月的时间。对于瞬息万变的市场来说，这无疑是巨大的漏洞。随着中共在西方的蓝金黄，越来越多的西方投资了中共，变相地骗走没有内部消息的美国投资者的资金。
+霍利表示，俄乌战争为前车之鉴，拜登总统待俄罗斯入侵乌克兰后方提供援助，这错误不应在印太地区重演。中共侵台威胁与日具增，美国有办法快速部署武器到台湾对台湾十分重要，台湾调动亦需要时间。此外，他认为水雷、反坦克导弹、便携式防空系统等非对称防御武器视台湾自我防卫的关键，该法案将有助美国将武器快速运往台湾。
 
-研究人士认为即使美国关闭了所有利于中共的漏洞，也无法阻止这种行为。因在中共国但凡可以操控股市的手超出了美国以及任何其他民主国家的法律，世界有必要采取措施了。
+俄乌战争中，乌克兰使用反坦克导弹、便携式防空系统等武器为重挫俄罗斯，美国若可迅速提供台湾此类行武器，将有助于台湾抵御中共入侵。霍利提出的“台湾武器出口法案”将可以缩短对台军售近一半的时长，并消除对台军售的行政障碍，达到加快批准的效果。
 
-reference：
+此外，霍利参议员还提出另外两项与台湾有关的重要立法，其一为“台湾防御法”（Taiwan Defense Act），其二为“台湾预先通关法”（Taiwan Preclearance Act）。台湾预先通关法，希望在台湾建立美国海关及边境保卫局的预先通关措施，增加美台商业、文化、旅游交流可能。
 
-
-
-
-> [China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
+目前，这些法案仍需要经过国会决议通过，美国总统签署生效。
 
 
-撰稿、发布：骄子
+
+> “The Biden administration waited for Russia to invade before surging lethal aid to Ukraine. We can’t afford to the make same mistake in the Indo-Pacific,” said Senator Hawley. [https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 8, 2022](https://twitter.com/SenHawleyPress/status/1512517199059165188?ref_src=twsrc%5Etfw)
+
+
+
+来源｜*[Josh Hawley](https://www.hawley.senate.gov/hawley-introduces-taiwan-weapons-exports-act)*
 
 * * *
 
-欢迎订阅我们的GNews账号：
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

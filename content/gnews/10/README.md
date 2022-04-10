@@ -2,18 +2,22 @@
 ---
 
 
-## 独裁者毁灭世界的心里分析
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2322801/)
+## 视频|美国进一步限制向俄罗斯和白俄罗斯出口肥料等物品
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2323200/)
 
-文贵大直播20220410
+制作：香草山视频部
 
-撰稿：文复（达芬奇）麦克阿sir
+4月8日外媒报道，继6日美国针对俄罗斯银行和实体实施了新一轮制裁后，4月8日，美国商务部表示，将开始要求美国供应商向俄罗斯人和白俄罗斯人出口一些大宗商品时申请特殊许可证，并称会拒绝签发这些许可证。这里的大宗商品主要包括肥料、管道阀门、滚珠轴承和其他零件、材料和化学品等。
 
-书法：沙漠之花（香草山）
+商务部同时表示，使用美国在国外制造的物品也需要获得美国许可证，而政府部门也计划拒签此类许可。
 
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-9.png)
-*发布：Theodosia*
+新美国安全中心高级研究员艾米丽·基尔克里斯指出，商务部正在进一步限制俄罗斯进口其管制出口的所有物品。
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
