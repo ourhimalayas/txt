@@ -2,19 +2,12 @@
 ---
 
 
-## 死人不会说话，等老百姓明白不是病毒而是疫苗造成的灾难时人就已经死了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325241/)
+## 克拉马托尔斯克火车站的致命导弹袭击造成50多平民死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2325315/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WE
+04/09/2022 法国24英文台：克拉马托尔斯克火车站的致命导弹袭击造成50多平民死亡，他们当时正要逃离该地区。
 
-*发布：陶子*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

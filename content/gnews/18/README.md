@@ -2,27 +2,31 @@
 ---
 
 
-## 比利时前首相居伊•弗霍夫施塔特：乌克兰人要死了！” 呼吁欧盟制裁普京身边的6000人
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2324929/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2324974/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-**环保部和比利时前首相居伊·弗霍夫施塔特批评欧盟对俄罗斯的制裁，称它们在独裁国家行不通。在欧洲议会的讲台上，他呼吁制裁俄罗斯独裁者弗拉基米尔·普京的亲信人员****6000 ****人。**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-10.png)
 
-**居伊·弗霍夫施塔特（Verhofstadt ）代表 211 位欧洲议会议员发言，并向欧盟外交和安全政策高级代表 Josep Borrell 递交了一封签名信。居伊·弗霍夫施塔特（Verhofstadt ）表示，之前的四项制裁方案均无效，并预计第五项制裁方案将无效。在评论已经在制定的第六套方案时，他说布查和马里乌波尔的乌克兰人不能再等待在战争中丧生的乌克兰人。**
 
-[【援引连结】](https://news.liga.net/ua/politics/news/pri-avtokratii-ne-srabotaet-deputat-evroparlamenta-nazval-smeshnymi-sanktsii-protiv-rf)
+校对：Stay文苑
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p14lrab6a7a](https://gettr.com/post/p14lrab6a7a)
+访谈：[https://gettr.com/post/p14m4oy50cc](https://gettr.com/post/p14m4oy50cc)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-8.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

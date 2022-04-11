@@ -2,10 +2,19 @@
 ---
 
 
-## 4/10/2022 文贵直播：习妄图通过拿下港台和中东原油制造世界经济灾难，从而让中共国跟西方玩谁能挨饿的游戏；病毒、疫苗灾难和核酸检测及其造成的死亡都在习的计划之中
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2325167/)
+## 习二把阳间变阴间
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325274/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WE
+
+*发布：陶子*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

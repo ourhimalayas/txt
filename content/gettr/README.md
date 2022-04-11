@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 4:06 AM (UTC)`
+
+4/10/2022 Miles Guo: Xi seeks to create economic disasters in the world by taking over Hong Kong, Taiwan, and the oil in the Middle East such that Xi can pit Communist China against the West in the competition of fasting to see which party can outlast the other. The deaths caused by the virus, the COVID vaccine disaster, and the Nucleic Acid tests are all under Xi’s control according to his plan. Xi is going to blame the Chinese people for all the disasters, and Xi is running the “social stress test” to increase the Lao Baixing’s capabilities to withstand adversities so that the CCP can confront the US.<br/><br/>4/10/2022 文贵直播：习妄图通过拿下港台和中东原油制造世界经济灾难，从而让中共国跟西方玩谁能挨饿的游戏；病毒、疫苗灾难和核酸检测及其造成的死亡都在习的计划之中，习要把所有的灾难都甩锅给中国人，并通过“社会压力测试”增加老百姓的承受能力进而对抗美国<br/>
+![img](https://media.gettr.com/group48/getter/2022/04/11/04/c50e1469-0561-3213-8a0c-43681d452132/out.jpg)
+
+---
+
 `@miles 4/11/2022 2:59 AM (UTC)`
 
 4/10/2022 Miles Guo: After taking power in 2012, Xi has got rid of his political opponents, oligarchs, and influential people in society via anti-corruption campaigns. He has become a dictator by establishing the National Security Commission in place of the Politburo Standing Committee. He has allied with various dictatorial regimes worldwide to create an axis alliance of totalitarianism, and meanwhile Xi has taken control of the energy countries in the Middle East and is helping Putin expand westward by invading Ukraine.<br/><br/>4/10/2022 文贵直播：习在2012年上台后用反腐除掉政敌、寡头和社会有影响力的人士，废常委立国安委当独裁者，在国际上拉拢各个独裁政权以打造极权轴心同盟，同时拿下中东能源国家，协助普京打乌克兰向西扩张<br/>
@@ -144,13 +151,6 @@
 `@miles 4/10/2022 1:45 PM (UTC)`
 
 4月10号, 郭文贵先生两首新歌上线第七天<br/>《灭共的雪》登榜iTunes<br/>台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>香港🇭🇰， 新西兰🇳🇿，澳大利亚 🇦🇺，柬埔寨🇰🇭摇滚榜第二名🥈<br/>蒙古🇲🇳，土耳其🇹🇷，亚美尼亚🇦🇲，斐济🇫🇯摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第三名🥉<br/>蒙古 🇲🇳流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第一名🥇<br/>老挝🇱🇦摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>https://gnews.org/zh-hans/2322042/<br/><br/>第一周全球打榜全记录：<br/><br/>https://gnews.org/zh-hans/2322170/<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，亚美尼亚，斐济，老挝，土耳其的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/>
-
----
-
-`@miles 4/10/2022 12:12 PM (UTC)`
-
-2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣
-![img](https://media.gettr.com/group6/origin/2022/04/10/12/42bc160f-a053-7b8b-70e2-b9c524550a0f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

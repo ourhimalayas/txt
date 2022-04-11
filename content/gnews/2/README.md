@@ -2,19 +2,12 @@
 ---
 
 
-## 国内战友在拿命送药
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325257/)
+## 上海一市民怒斥防疫措施 称现在还不如文革时期
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2325338/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WE
+04/05/2022 上海一市民怒斥防疫措施，称现在还不如文革时期。
 
-*发布：陶子*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

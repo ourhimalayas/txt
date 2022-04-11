@@ -2,10 +2,19 @@
 ---
 
 
-## 4/10/2022 文贵直播：中共要求上海、广州、深圳、郑州和长春为死掉5000之一或2500分之一的人作准备；外省为上海送食品的官员很快被抓，21个城市的官员若违反中共政治规定会被就地免职
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2325240/)
+## 除非中共打台湾不然美国不会开战
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325310/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WE
+
+*发布：陶子*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
