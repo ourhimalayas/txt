@@ -2,35 +2,71 @@
 ---
 
 
-## 中共秘密向塞尔维亚运送地对空导弹系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2324781/)
+## 参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2325316/)
 
-**撰稿：日本东京方舟农场  子辰**
+**参议员卢比奥媒体办公室： **
+在40多年后，#台湾关系法 和六项保证（Six Assurances）继续定义着美国和我们的民主盟友 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的关系。当我们在一起抗击 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 通过威胁和恐吓来获取权力的企图时，我们对台北的支持必须比以前强大。
 
-4月10日，中共向俄罗斯盟友塞尔维亚运送了地对空导弹系统。此前美国警告塞尔维亚不要购买中共防空系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-196.jpg)（图片来自大纪元）
 
-据美联社报导，媒体和军事专家表示，六架中共空军运-20运输机（Y-20）周六降落在塞尔维亚贝尔格莱德（Belgrade）民用机场。据报，这些运输机为塞尔维亚军队运送了中共的红旗-22（HQ-22）地对空导弹系统。
+> After more than 40 decades, the [#TaiwanRelationsAct](https://twitter.com/hashtag/TaiwanRelationsAct?src=hash&amp;ref_src=twsrc%5Etfw) & the Six Assurances continue to define 🇺🇸 relations w [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), our democratic ally. Our support for Taipei must be stronger than ever as we work together to combat the CCP's efforts to gain power through threats & intimidation.
+> — Senator Rubio Press (@SenRubioPress) [April 10, 2022](https://twitter.com/SenRubioPress/status/1513139736109494279?ref_src=twsrc%5Etfw)
 
-据悉，这些运输机飞越了至少两个北约成员国，即土耳其和保加利亚领空运送了武器，而且此次运-20它们是集体飞行，不是单机飞行。
 
-塞尔维亚总统亚历山大‧武契奇（Aleksandar Vucic）确认了2019年商定的这款中程地对空导弹系统的交付。塞尔维亚将成为欧洲第一个使用这些中共导弹的国家。
 
-塞尔维亚曾在1990年代与其邻国交战。该国目前正在正式寻求获得欧盟成员资格。塞尔维亚使用俄罗斯和中共的武器，包括战机、作战坦克和其它装备。
+**众议院共和党领袖凯文·麦卡锡 ： **
+全世界都在关注和支持乌克兰。 我很自豪能够率领一个两党代表团前往该地区，以感谢我们的美军，表达我们对我们的战略伙伴波兰的支持，并直接从乌克兰人那里听取关于普京无端袭击的情况。 【附共和党领袖官网链接：波兰华沙——众议院共和党领袖凯文·麦卡锡本周末率领两党议员代表团前往波兰，与美国武装部队和该地区的盟国伙伴会面。 在华沙，该代表团会见了波兰总理、波兰国防部长和美国驻波兰大使。 在波兰东北部的其他地方，他们会见了乌克兰官员和民间社会、乌克兰难民和美军士兵。】
 
-西方担心中俄对塞尔维亚的武装可能会鼓励这个巴尔干国家发动另一场战争，特别是针对在2008年宣布独立的前科索沃省（Kosovo）。塞尔维亚、俄罗斯和中共不承认科索沃的国家地位，而美国和大多数西方国家都承认。
 
-近年来，国际上越来越多的人清楚认识到，塞尔维亚就是中共在欧洲扩张和投资政策的重点攻坚国家。
 
-此外，这一消息早在4月9号，就被新中国联邦创始人郭文贵先生曝出，郭先生说，中共给塞尔维亚运送了红旗导弹系统，将是为了帮助俄罗斯侵略乌克兰进行大屠杀前的准备，这也是对欧盟及美国带来灾难的武器。郭先生同时预警，未来的两周，中共将在南亚和中东，布置新的东风15导弹系统。
+> The world is watching and rooting for Ukraine. I'm proud to lead a bipartisan delegation to the region to thank our U.S. troops, to show our support for our strategic partner, Poland, and to hear directly from Ukrainians about Putin's unprovoked attacks. [https://t.co/QmH2j8Jl5j](https://t.co/QmH2j8Jl5j) [pic.twitter.com/jPclQeNx1t](https://t.co/jPclQeNx1t)
+> — Kevin McCarthy (@GOPLeader) [April 10, 2022](https://twitter.com/GOPLeader/status/1513104883536343042?ref_src=twsrc%5Etfw)
 
-参考链接：
-1.[https://www.epochtimes.com/gb/22/4/10/n13708472.htm](https://www.epochtimes.com/gb/22/4/10/n13708472.htm)
-2.[https://gettr.com/post/p14dgst16f4](https://gettr.com/post/p14dgst16f4)
 
-总编：老孙
-校对发布：爱放飞
+
+**众议员迈克·沃尔茨：** 
+老板在行动。 [#团结](https://twitter.com/hashtag/%E5%9B%A2%E7%BB%93?src=hashtag_click) [#领导力](https://twitter.com/hashtag/%E9%A2%86%E5%AF%BC%E5%8A%9B?src=hashtag_click) 
+【转战地记者推文：这是互联网上见过的最棒的视频之一。（附视频，英国首相约翰逊突访基辅……画面显示约翰逊在泽连斯基陪同下行走于街头，参观战争死难者悼念点，与偶遇乌克兰人交谈……】
+
+
+
+> Boss move. [#Solidarity](https://twitter.com/hashtag/Solidarity?src=hash&amp;ref_src=twsrc%5Etfw) [#Leadership](https://twitter.com/hashtag/Leadership?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/NRL8UfVbyQ](https://t.co/NRL8UfVbyQ)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 10, 2022](https://twitter.com/michaelgwaltz/status/1513201722629533703?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本： **
+如果福奇拒绝谴责 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对全球大流行病的反应，我们将面临严重的问题。
+
+
+
+> We have a serious problem if Fauci refuses to condemn Communist China’s response to a global pandemic.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2022](https://twitter.com/MarshaBlackburn/status/1513216833607852036?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克·蓬佩奥：** 
+今天是圣周的开始，在此期间，世界各地的基督徒将敬拜耶稣的受难(钉十字架)、死亡和复活。 我妻子苏珊和我与你们一起，我们为那些不顾迫害而庆祝的人祈祷。
+
+
+
+> Today is the beginning of Holy week, during which Christians around the world will be worshipping the crucifixion, death and resurrection of Jesus. My wife Susan and I join with you, and we are praying for those who celebrate despite fear of persecution.
+> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513245450152943619?ref_src=twsrc%5Etfw)
+
+
+
+**美前国务卿迈克·蓬佩奥：**
+乌克兰没有要求美国提供一名士兵或海军陆战队员——他们只是要求提供他们需要的工具来帮助他们捍卫自己的主权。 美国拥有这些工具，拜登政府应该尽快提供这些工具。
+
+
+
+> Ukraine hasn't asked America for a single soldier or Marine – they've simply asked for the tools they need to help them defend their sovereignty. The United States has these tools, and the Biden Administration should make them available – quickly. [https://t.co/pDNEky9Q5N](https://t.co/pDNEky9Q5N)
+> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513303315022585863?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

@@ -2,49 +2,36 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.11）–新冠疫苗第三针的反应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326059/)
+## 俄罗斯外汇评级降至“选择性违约”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326195/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
-
-整理/编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-16.png)图片来源：雅典娜设计组(614)
+作者：香草山农场 – 柳是多水土透
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-帖子原文：Quella伊
 
-**疫情|新冠疫苗副作用   新冠疫苗第三针的反应**
 
-想知道大家是不是和我一样的反应。
+4月9日美国媒体报导，标准普尔当天将俄罗斯的外汇评级下调到了“选择性违约”的级别，原因是，他们认为，俄罗斯政府无法，也不愿履行对外国债券持有人承诺的风险在加大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-5.jpg)
+由于入侵乌克兰而受到的一系列制裁，俄罗斯可能面临一个多世纪以来的首次主权外部违约。标准普尔表示，未来几周，对俄罗斯的制裁可能会进一步加强，这会阻碍俄罗斯对外国债权人履行义务的意愿和能力。
 
-当天晚上，巨困，巨冷，冷到发寒颤。在二十几度的福州，我拿出来了暖水袋。靠着一点点移动暖水袋，才把身体暖起来。浑身疼，像是被人抡了大几十拳，后面身子好不容易暖起来了，到下半夜，浑身发烫，但是不发烧，单纯热，烧，浑身发烫，口干舌燥，像是一只离开水的鱼。
+本周，俄罗斯安排以卢布偿还一笔本应以美元偿还的国际债券，对此，标普表示，他们不预期投资者能够将这些卢布付款转换成与最初到期金额等值的美元，也不期望政府在30天的宽限期内会转换这些付款。而当他们认为债务人选择性地拖欠了特定类型的义务，但将继续及时履行其他义务时，就会给予选择性违约评级。
 
-能不能告诉我，我不是一个人这样
+参考链接：
+[S&P cuts Russia’s foreign currency rating to ‘selective default’](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
 
-#疫苗 #新冠疫苗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-发布于04.04
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
 
-精选评论
 
-晔CHEEYI      回复:连续高烧了四个晚上才好
 
-并肩成王子     回复：第三针后大姨妈前面开始出现褐色分泌物三天。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1214.png)图片来源：小红书
-参考链接：[新冠疫苗第三针的反应](https://www.xiaohongshu.com/discovery/item/624a31e0000000000102408e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521225)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

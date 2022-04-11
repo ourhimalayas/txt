@@ -2,37 +2,29 @@
 ---
 
 
-## 标准普尔将俄罗斯外汇评级下降至“选择性违约”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2326135/)
+## 中日财经爆|中共国通胀加剧 3月份CPI涨幅创三个月高位
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326288/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-202.jpg)图片来自网络
-《路透社》近日报道，标普周六将俄罗斯的外币评级下调至 “选择性违约”，原因是莫斯科没有能力和意愿履行对外国债务人的承诺，而且风险增加。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中共国通胀加剧-3月份CPI涨幅创三个月高位.png)[图片来源](http://www.news.cn/politics/2022-04/11/c_1128548807.htm)
 
-俄罗斯因入侵乌克兰而面临一波又一波的制裁，在本周安排以卢布偿还国际债券后，俄罗斯可能面临一个多世纪以来的首次主权债务违约，尽管该笔款项是以美元支付的。
+中共国国家统计局4月11日公布，3月居民消费价格指数(CPI)同比上涨1.5%，创三个月高位。其中，食品价格同比下降1.5%，非食品价格上涨2.2%；消费品价格上涨1.7%，服务价格上涨1.1%。
 
-标普在一份声明中表示，据其了解，俄罗斯在周一以卢布支付了以美元计价的欧洲债券的票面和本金。
+3月工业生产者出厂价格指数(PPI)同比上涨8.3%，依然维持在11个月最低水平，环比则上升1.1%，为五个月最高涨幅。
 
-” 我们不期待当投资者把这笔用卢布支付的款项换成美元后还能能达到预期的金额， 或者政府将会在30天限期内把这笔钱换成美元。”
+消息来源:
+[中国3月CPI同比上涨1.5%创三个月高位 PPI超预期上涨8.3%–统计局](https://cn.reuters.com/article/china-march-cpi-ppi-0411-idCNKCS2M303T?il=0)
 
-该机构说，对俄罗斯的制裁在未来几周可能会进一步加强，”妨碍俄罗斯履行对外国债务人的义务条款和条件的意愿和技术能力。”
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-俄罗斯财政部长周四表示，该国将尽一切可能支付其债权人，但如果该国违约，那么俄罗斯的国际债券投资者可能将要面临越来越多拿不回本金的不确定性。
-
-当标普认为债务人有选择地对某一期或某一类债务违约，但会继续及时履行对其他一期或一类债务的支付义务时，标普会给予“选择性违约”评级。
-
-自1917年革命之后，俄罗斯就没有发生过外债违约，但其债券现在已经成为其与西方国家经济角力中的一个热点。
-
-直到最近，俄罗斯在2月24日入侵乌克兰之前被评为投资级，莫斯科称这是一次 “特殊的军事行动”，因此违约是难以想象的。
-
-参考链接：
-
-[https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

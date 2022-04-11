@@ -2,30 +2,20 @@
 ---
 
 
-## 日本和俄罗斯开始鲑鱼和鳟鱼的捕捞谈判
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326074/)
+## 秘翻在线：俄军从乌克兰切尔诺贝利窃取放射性物质
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2326257/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/日本和俄罗斯开始鲑鱼和鳟鱼的捕捞谈判.png)（图片源自本文链接）
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-206.jpg)图片来源：本文的链接
+法新社基辅4月10日报道，负责乌克兰切尔诺贝利核电站周边禁区的管理部门在脸书上透露，占领核电站一个多月的俄罗斯军队从禁区的实验室里偷走了133个高浓度的放射性物质。
 
-4月11日共同通信社消息：11日，渔业局宣布，日俄关于在俄罗斯河的鲑鱼和鳟鱼捕捞谈判将于当日以网络会议的形式开始。会议将讨论日本渔船在日本专属区（EEZ）内的捕捞数量。
+管制人员指出，”这些物质如果由外行人员处理，即使是少量也会导致死亡”。
 
-已经进入捕鱼季节的北海道的渔民们决定，必须在开始捕鱼之前完成谈判。即使在俄罗斯对乌克兰的侵略实施经济制裁的情况下，也应该通过谈判来保证日本的利益。正值俄罗斯反对制裁的当下，谈判可能会很困难。
+关于切尔诺贝利核电站，视察过禁区的乌克兰能源部长哈尔西琴科4月8日在脸书上发布信息称，”俄罗斯士兵在被放射性物质污染的地面上挖掘，收集土壤制作土囊袋，吸入灰尘。像这样被核辐射一个月后，他们的寿命最多只有一年，俄罗斯士兵的无知让人震惊”。
 
-日俄两国政府每年春天都会就鲑鱼和鳟鱼的捕获量进行谈判得出结论。这一次，日本水域将首先启动，而俄罗斯水域的启动时间仍在调整中。
+信息来源： [https://news.yahoo.co.jp/articles/5d16e805d9f3d4a1529b3b0288267a36b7d46a94/images/000](https://news.yahoo.co.jp/articles/5d16e805d9f3d4a1529b3b0288267a36b7d46a94/images/000)
 
-信息来源：
-[日ロ、サケマス交渉開始　北海道周辺の漁獲量協議（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/f190f68d161709b2fdddbeb89c971b21c552f3c1)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+责编：Eric Kim
 
  
 

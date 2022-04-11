@@ -2,39 +2,37 @@
 ---
 
 
-## 上海疫情封控期间的“额外死亡”率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2325992/)
+## 新南威尔士州巴士司机罢工24小时
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326009/)
 
-整理/编辑：文泓
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1211.png)图片来源：新浪 & 推特
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/og.jpg)图片来源：https://caportal.com.au/tfnsw/tiip
 
 
-2021年2月，英国医学杂志BMJ发表一篇来自中国疾控中心周脉耕团队的研究，分析了中共病毒疫情暴发的3个月内武汉及中国其他地区的“额外死亡率”。
+根据澳洲媒体4月11日报道，由于公交车司机开始了24小时罢工，澳大利亚新南威尔士州的通勤者早上的通勤时间有所延误。
 
-**额外死亡的定义是指，新冠大流行的某时间段内，非新冠病毒病直接死亡的人数与同期（新冠病毒未流行期间）死亡人数对比后，新增死亡率或死亡人数。**有几个重要的数据：因**慢性非传染性疾病死亡率**增加21%，糖尿病死亡率增加83%（46/10万vs25/10万），自杀死亡率增加66%。
+运输工人工会，铁路，电车和公共汽车工会的司机从周一午夜后开始24 小时罢工，要求获得公平的报酬和更好的工作条件。
 
-以糖尿病为例推演一下，本轮疫情发生后，上海医疗资源挤兑现象相当严重。如果按2500万常住人口计算，以下估算一个多月里因患糖尿病死亡额外增加的总人数。
+虽然悉尼将首当其冲，但悉尼以外的地区也将受到影响，包括 Hunter Region、Lake Macquarie、Blue Mountains、Central Coast 和 Queanbeyan。
 
-据报道，上海市35岁及以上年龄者，糖尿病的患病率为21.6%，35岁及以上人口数粗估为1400万，按照武汉给出的25/10万死亡率计算，上海市在一个月内糖尿病死亡人数可能是14000000×25/100000÷3=1170（人），**因新冠疫情全面封控后额外增加死亡人数可能是：****1170×83%+1170=2141****（人）。**
+澳大利亚工会委员会秘书Sally McManus表示，工人们感到沮丧，因为工资跟不上生活成本。“你所看到的采取罢工行动的人都是一线工人，无论护士、教师还是运输工人，今天也是如此。”
 
-这些额外糖尿病死亡者，因为医疗资源的挤兑，或看不上医生，或吃不到药，或不能正确监测，或不能正确用药，结果血糖控制不好，导致各种急慢性严重并发症而不治。
+“由于通货膨胀和工资没有上涨，人们现在不得不真的削减开支。人们只有在不得已的情况下，才采取罢工行动。不幸的是，这就是现在的情况。”
 
-以上描述的不过是一种慢性非传染性疾病糖尿病在一个月内可能额外增加的死亡人数，而所有慢性非传染性疾病额外死亡率为21%，绝对数字尚无法计算。
+McManus说，随着这个问题在八年来不断升级，很多家庭发现生活“艰难”。新南威尔士州政府应该做出回应，确保一线工人的生活不会倒退。
 
-各种急性病，比如脑卒中、急性心肌梗死、致命性心律失常、心脏呼吸骤停、急性心衰、高血压危象……这些急症在短期内得不到抢救，就一定会在短期内出现生命危险，如果没有得到及时救治，病死率很高。
-
-还有自杀问题。该研究报告因自杀导致的额外死亡率增加66%，隔离人员的精神健康问题亟待得到关注。
-
-参考链接：[疫情“额外死亡”率：糖尿病增 83%，自杀增 66%](https://c.m.163.com/news/a/H4JUHUQB05533F8G.html)
+资料来源：[NSW commuters facing chaos as bus drivers strike for 24 hours](https://www.news.com.au/national/nsw-act/news/nsw-commuters-facing-chaos-as-bus-drivers-strike-for-24-hours/news-story/8fdd283f1fd46ca203e5690cd4622ffb)
 
 发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

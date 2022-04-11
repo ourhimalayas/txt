@@ -2,30 +2,22 @@
 ---
 
 
-## 推特首席执行官说马斯克拒绝加入推特董事会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326131/)
+## 虚伪的世界舞台
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2326283/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/推特首席执行官说马斯克拒绝加入推特董事会.png)（图片源自本文链接）
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-25.jpg)
+星期六(4月9日)晚上，巴勒斯坦暴徒破坏了犹太教最神圣的场所之一 ——约瑟夫墓，放火焚烧并砸碎墓碑。
 
-日本雅虎网站4月11日消息：据彭博社报道，推特的首席执行官（CEO）帕拉格-阿格拉瓦尔（Parag Agrawal）宣布，特斯拉首席执行官马斯克决定不加入推特董事会。
+在特拉维夫一家酒吧发生的巴勒斯坦恐怖袭击中被杀害的年轻以色列人的名字已经公布。Tomer Morad和Eytam Megini，都是27岁，是终身的童年朋友。他们过早地被一个邪恶的恐怖分子夺去了生命，而且是如此残酷。
 
-阿格拉瓦尔发推说：马斯克先生与公司董事会进行了讨论，结果是他拒绝成为董事。
+奥斯特罗夫斯基对布莱特巴特说：”以色列所做的一切都是为了允许穆斯林的礼拜自由和对圣地的保护，而巴勒斯坦领导人却背弃并允许这种玷污行为，这也公然违反了国际法和巴勒斯坦权力机构的承诺，这是令人费解和气愤的。”
 
-他在推特上披露的一份内部文件中，对马斯克先生的决定的评论是：这是最好的选择！
+世界主流媒体并没有大肆的抨击巴勒斯坦人的行为来克制巴勒斯坦权力机构。人命在中东地区权力中心是如此般的卑贱，不管你是站在哪一边，好比春秋和战国时代。
 
-信息来源：
-[マスク氏がツイッター取締役就任を辞退－アグラワルＣＥＯ（Bloomberg） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ebbd5862585084c95edefab9dc4fc8e71cecf5ac)
+七哥说过中东地区会成为善与恶决战的一个地区。排华已经悄悄地开始了，希望海外所有的华人一点要注意安全和周遭的环境变化。最好是做好准备，转移到自己有能力生存并相对安全的国家。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**新闻来源：** [https://www.timesofisrael.com/palestinians-vandalize-west-bank-shrine-drawing-israeli-condemnations/](https://www.timesofisrael.com/palestinians-vandalize-west-bank-shrine-drawing-israeli-condemnations/)
 
  
 
