@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 2:22 AM (UTC)`
+
+4/10/2022 Miles Guo: Xi's purpose of leaving the Chinese people without electricity, water, fridges, and food is to test how the people would react in an extreme war scenario, and the CCP would even go so far as to reduce its $15 trillion GDP to $5 trillion. Finally, the CCP is going to create economic catastrophes to take out the US dollar!<br/><br/>4/10/2022 文贵直播：习让中国人没电、没水、没冰箱、没食品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿；中共最终要制造经济灾难从而干掉美元！
+![img](https://media.gettr.com/group37/getter/2022/04/11/02/b7a9047a-6159-d2f8-ec0a-1355f65c92c9/out.jpg)
+
+---
+
 `@miles 4/11/2022 2:06 AM (UTC)`
 
 2022.04.10 农场联盟工作汇报
@@ -144,13 +151,6 @@
 
 【Ukraine Rescue】04/08/2022 Nicole introduces Mr. Miles Guo to an NGO volunteer from Israel that He’s the leader of Whistleblowers’ Movement and is followed by hundreds of millions of Chinese people who aim to take down the CCP. The volunteer added:”Including people around the world, we are all for taking down the CCP!”<br/><br/>【乌克兰救援】04/08/2022 妮可向一位来自以色列非政府组织的志愿者介绍说，爆料革命的创始人是郭文贵先生，数以亿计的中国人都在跟随他推翻共产党，志愿者补充道：还有来自世界各地的人们，我们都赞同干掉中国共产党。
 ![img](https://media.gettr.com/group48/getter/2022/04/10/06/2bbe72cf-b831-5f94-9b94-6a43e9482da8/out.jpg)
-
----
-
-`@miles 4/10/2022 4:59 AM (UTC)`
-
-2022/04/10  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group30/origin/2022/04/10/04/9e7f3130-13b2-1f35-66d9-01c45b85f500/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
