@@ -2,8 +2,8 @@
 ---
 
 
-## 习的第三个目标：20大连任后改党规党制改宪法，未来的江山就是习近平路线，习就是上帝
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324707/)
+## 中共除了导弹也俄塞送无人机
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324778/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

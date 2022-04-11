@@ -2,39 +2,40 @@
 ---
 
 
-## 英国首相约翰逊突访基辅会见泽伦斯基
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2324267/)
+## 泽伦斯基赞扬了德国对乌克兰立场的巨大转变
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2324495/)
 
-翻译：冰糖葫芦喵
-
-编辑：冰糖葫芦喵
+翻译与编辑：多伦多蓝莲花–冰糖葫芦喵、灭共文明
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《布莱巴特新闻网》4月9日报道，**英国首相鲍里斯·约翰逊突然访问基辅，与乌克兰总统弗拉基米尔·泽伦斯基，就俄罗斯军队最近在乌克兰实施的暴行进行了会谈。**
-4月9日，约翰逊与泽伦斯基穿过基辅市中心，与基辅人民交谈，见证了人民之间和国家之间的友谊。（视频来源：乌克兰国防部）
-乌克兰驻英国大使馆在社交媒体上发布了这一消息，**显示英国和乌克兰领导人一起坐在一张两边插着英国和乌克兰国旗的会议桌上。**
+《路透社》4月10日报道，**周日，乌克兰总统泽伦斯基表示，他在与德国总理肖尔茨的通话中，讨论了对俄罗斯实施更多制裁的问题，并称赞德国对基辅的立场发生了巨大的改变。**
 
-泽伦斯基总统的助手安德烈·西比哈(Andriy Sybiha)称赞，**英国是“支持乌克兰国防的领导者”，而约翰逊首相则是“反战联盟的领导者”。积极制裁俄罗斯侵略者的领导人。”**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/泽伦斯基-e1649635926578.jpg)2022年4月8日，乌克兰首都基辅，泽伦斯基出席新闻发布会，指控俄罗斯入侵乌克兰。（图片来源：路透社）
 
-报道称，在当地时间4月8日，**欧盟委员会主席冯德莱恩抵达乌克兰首都基辅，亲自向乌克兰总统泽连斯基传递了一份加入欧盟相关的文件。**她还走访了布恰市一个埋有数百具尸体的乱葬岗。她**对俄军对乌克兰人民实施的暴行，表示十分震惊，并表示，我们的人性被粉碎了。**
-4月8日，在乌克兰首都基辅，泽伦斯基与冯德莱恩会面。（视频来源：[UkraineWorld](https://twitter.com/ukraine_world)）
-据报道，在此次访问之前，英国政府已经宣布，**将向乌克兰增派数百套反坦克导弹系统、额外的防空导弹系统和尖端武器，以及其他援助**，以帮助打击俄罗斯军队占领乌克兰其他城市，杀害平民，实施暴行。
+泽伦斯基在夜间视频讲话中说，**我今天与德国总理肖尔茨讨论了，如何将所有犯下战争罪行的人绳之以法。**关于如何加强对俄罗斯的制裁，以及如何说服俄罗斯寻求和平。
 
-据英国《每日电讯报》报道，英国首相官邸唐宁街10号的一名发言人证实，首相约翰逊已经亲自前往乌克兰会见泽伦斯基总统，以表示与乌克兰人民团结一致。
+他还说，我很高兴地注意到，**最近德国的立场正在向有利于乌克兰的方向转变**。我认为这绝对符合逻辑，因为大多数德国人支持这一政策。我很感激他们。我**希望我们达成的所有协议都能得到实施。这非常重要。**
 
-4月9日，约翰逊在推特中说，今天我遇到了我的朋友乌克兰总统泽伦斯基，以显示我们对乌克兰人民坚定不移的支持。**我们正在制定新的一揽子财政和军事援助计划，这是我们对他的国家对抗俄罗斯野蛮行径的承诺的证明。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1200x675_cmsv2_d641553f-2655-5676-8f16-3e76f1fcfca8-6471106-e1649635064993.jpg)乌克兰总统弗拉基米尔·泽伦斯基欢迎德国总理奥拉夫·肖尔（图片来源：www.euronews.com）
 
+报道指出，在俄罗斯入侵乌克兰的早期阶段，德国不愿向乌克兰提供武器，但现在已同意向乌克兰提供反坦克武器和导弹。
 
+泽伦斯基在发表讲话时也表示，**在俄乌战争之初，德国未能提供具体帮助，但现在，他对柏林方面的举措表示赞赏。**
 
-> Today I met my friend President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) in Kyiv as a show of our unwavering support for the people of Ukraine.
-> 
-> We're setting out a new package of financial & military aid which is a testament of our commitment to his country's struggle against Russia’s barbaric campaign. [pic.twitter.com/KNY0Nm6NQ3](https://t.co/KNY0Nm6NQ3)
-> — Boris Johnson (@BorisJohnson) [April 9, 2022](https://twitter.com/BorisJohnson/status/1512818337415372802?ref_src=twsrc%5Etfw)
+周五，**德国总理肖尔茨表示，德国今年可能停止从俄罗斯进口石油**，但停止进口天然气将更加困难，因为德国需要建设基础设施。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/fe69966f8c68ff579462c54991dda51f.jpg)俄罗斯总统普京与德国总理肖尔茨（图片来源：网络）
 
+据报道，**俄罗斯石油占德国进口的25%**，比2月24日入侵前的35%有所下降。**德国从俄罗斯进口的天然气从55%降至40%，硬煤进口从50%降至25%。**
+
+肖尔茨的办公室表示，**默克尔在电话中谴责了俄罗斯军队在布查市和乌克兰其他地区犯下的战争罪行，**德国政府将确保查明肇事者，并**将其送上国内和国际法庭。**
+
+周六，**欧盟委员会主席冯·德莱恩表示，俄罗斯军队犯下了针对乌克兰平民的战争罪，而这件事需要由律师进行调查。**
+
+此外，泽伦斯基的办公室在一份声明中表示，**欧盟主席冯德莱恩已经与乌克兰官员举行电话会议，讨论了基辅提出针对俄罗斯的欧盟第六套制裁方案。**
 
 新闻来源链接：
 
-[Boris Johnson Makes Surprise Visit to Kyiv for Meeting with Zelensky (breitbart.com)](https://www.breitbart.com/europe/2022/04/09/boris-johnson-makes-surprise-visit-to-kyiv-for-meeting-with-zelensky/)
+[Zelenskiy praises Germany’s position towards Ukraine after call with Scholz | Reuters](https://www.reuters.com/world/europe/zelenskiy-says-discussed-additional-russia-sanctions-with-germanys-scholz-2022-04-10/)
 
 **更多资讯，更多关注
 [乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)

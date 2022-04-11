@@ -15,116 +15,116 @@
 
 ---
 
-### [中共血战即将到来](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [全球肥料短缺意味着2022年世界粮食种植将大幅缩减](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [马斯克在披露购买推特股份几天之后就提议重组订阅服务](/content/gnews/3/README.md)
+### [美高官前往所罗门群岛讨论中共国安全协议问题](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：中共国的灾难从未停过](/content/gnews/4/README.md)
+### [中共在玩生死游戏](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [谢里夫将接替伊姆兰·汗成为下一任巴基斯坦总理](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记：中共有计划的在上海和一线大城市制造死亡](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [下届总理热门人选 谢里夫被视为“能干的”管理者](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大直播后记：极限测试完之后对台湾瞬间开战](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [中共秘密向塞尔维亚运送地对空导弹系统](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [中共除了导弹也俄塞送无人机](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [中共的二炮部队](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [中共在中东布置东风导弹](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试](/content/gnews/13/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥掌握中共军机情报](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [美国理解不了习的阴谋](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [习二的眼中已经没有上海帮](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [COVID-19疫苗副作用集萃（2022.4.11)–三针疫苗，浑身酸痛，发烧，腋下淋巴肿大](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习的第三个目标：20大连任后改党规党制改宪法，未来的江山就是习近平路线，习就是上帝](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [瑞典国会访团抵达台湾](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [约翰逊首相秘访基辅，国际社会强化制裁俄罗斯](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [7News《全球视点》 新中国联邦灭共使命 得道多助](/content/gnews/21/README.md)
- ` 宁南`
-
-### [2022年4月11日《樱花快报》：广州继上海之后也将以疫情为由全面停学](/content/gnews/22/README.md)
+### [樱花时政┃德沃尔尼科夫的上任或将重演无差别攻击的惨剧](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生直播大纲2022/04/10](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌克兰宣布完全终止与俄罗斯贸易](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [有声|蔡英文家人染疫，她本人将隔离至4月中旬](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [浦东警察不理市民阴性报告及复核需求胁迫强制隔离录音](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [巴基斯坦伊姆兰汗政府倒台](/content/gnews/27/README.md)
- ` 日本东京方舟农场`
-
-### [《喜健康·医学视角》: 新变种病毒BA.2对前线战友的影响](/content/gnews/28/README.md)
- ` 香草山醫療部`
-
-### [中共病毒奥密克戎BA.2亚型变种下月或在日本超90%](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共6架Y-20货机在欧洲出现](/content/gnews/30/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [泽伦斯基赞扬了德国对乌克兰立场的巨大转变](/content/gnews/31/README.md)
- ` 蓝莲花农场`
-
-### [英国首相约翰逊突访基辅会见泽伦斯基](/content/gnews/32/README.md)
- ` 蓝莲花农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月10日早](/content/gnews/33/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [投资女王求购面包 上海粮荒人人自危](/content/gnews/34/README.md)
+### [中共血战即将到来](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰市长：布查的尸体数量超过300具、一些遇难者受到残酷折磨](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国国务院全球参与中心反击中共关于乌克兰的虚假宣传](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马斯克在披露购买推特股份几天之后就提议重组订阅服务](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [大直播后记：中共国的灾难从未停过](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [谢里夫将接替伊姆兰·汗成为下一任巴基斯坦总理](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [大直播后记：中共有计划的在上海和一线大城市制造死亡](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [警员认定阳性 持阴性报告夫妇被强行带至方舱](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [下届总理热门人选 谢里夫被视为“能干的”管理者](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [任人宰割的羔羊](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共秘密向塞尔维亚运送地对空导弹系统](/content/gnews/17/README.md)
+ ` 日本东京方舟农场`
+
+### [中共除了导弹也俄塞送无人机](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [中共的二炮部队](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [中共在中东布置东风导弹](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [COVID-19疫苗副作用集萃（2022.4.11)–三针疫苗，浑身酸痛，发烧，腋下淋巴肿大](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [瑞典国会访团抵达台湾](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [7News《全球视点》 新中国联邦灭共使命 得道多助](/content/gnews/24/README.md)
+ ` 宁南`
+
+### [2022年4月11日《樱花快报》：广州继上海之后也将以疫情为由全面停学](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰宣布完全终止与俄罗斯贸易](/content/gnews/26/README.md)
+ ` 日本东京方舟农场`
+
+### [马斯克买推特 一大堆欺民贼将被抓被遣返](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [浦东警察不理市民阴性报告及复核需求胁迫强制隔离录音](/content/gnews/28/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [巴基斯坦伊姆兰汗政府倒台](/content/gnews/29/README.md)
+ ` 日本东京方舟农场`
+
+### [《喜健康·医学视角》: 新变种病毒BA.2对前线战友的影响](/content/gnews/30/README.md)
+ ` 香草山醫療部`
+
+### [中共6架Y-20货机在欧洲出现](/content/gnews/31/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [泽伦斯基赞扬了德国对乌克兰立场的巨大转变](/content/gnews/32/README.md)
+ ` 蓝莲花农场`
+
+### [英国首相约翰逊突访基辅会见泽伦斯基](/content/gnews/33/README.md)
+ ` 蓝莲花农场`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月10日早](/content/gnews/34/README.md)
+ ` 纽约香草山MOS01`
+
+### [投资女王求购面包 上海粮荒人人自危](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [上海地区高速路出入口被封](/content/gnews/35/README.md)
+### [上海地区高速路出入口被封](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [中共病毒“动态清零”就是网格化杀人](/content/gnews/36/README.md)
+### [中共病毒“动态清零”就是网格化杀人](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [太靠近中共国成问题](/content/gnews/37/README.md)
- ` mayflowertranslate`
 
 ### [樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
