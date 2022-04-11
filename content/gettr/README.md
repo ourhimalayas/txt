@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 11:04 PM (UTC)`
+
+2022.04.11 NFSC news  The CCP's Crazy Actions May Cost The Chinese People In Blood
+![img](https://media.gettr.com/group3/origin/2022/04/11/23/3da8493f-38fc-7429-b664-3e5385059cd7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/11/2022 10:56 PM (UTC)`
+
+4/11/2022 Miles Guo’s GETTR: Large-scale nucleic acid testing will be implemented in Beijing, and the CCP will invade Taiwan before this May. A major battle between Russia and Ukraine is imminent. The new commander of the Russian troops is ruthless and will strike Kyiv by pretending to attack eastern Ukraine, with Zelenskyy being the target. The global supply chain is now in a crisis as many basic goods are not being produced. Let’s pray for the fellow fighters at the front line of the rescue operation who are safeguarding the security and interests of the overseas Chinese and the image of the citizens of the New Federal State of China.<br/><br/>4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的；全球供应链现严重危机，很多基本商品无人生产；为维护海外华人安全、利益和新中国联邦人形象的救援前线战友祈福<br/>
+![img](https://media.gettr.com/group22/getter/2022/04/11/22/0ac0d873-a252-12e6-4ff5-a503c5aaee63/out.jpg)
+
+---
+
 `@miles 4/11/2022 10:44 PM (UTC)`
 
 【Ukraine Rescue】04/08/2022 After a volunteer from Busan, South Korea learns that we are the new Chinese who are taking down the CCP at the Medyka border, he says that the Whistleblowers’s Movement is a peaceful movement and will bring peace and freedom to the Chinese people. He wishes all Chinese people to be free soon.<br/><br/>【乌克兰救援】04/08/2022 来自韩国釜山的义工在梅迪卡边境了解到我们是灭共的新中国人后，说爆料革命是一场和平运动，会给中国人带来和平与自由， 他祝愿所有中国人都能早日获得自由。<br/>
@@ -141,20 +155,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 4月11号：尊敬的战友们好……中国已经进入人道大灾难的时刻……
 ![img](https://media.gettr.com/group49/getter/2022/04/11/14/a7498c7e-5a49-e7c6-17c0-ced20bfa3e3b/out.jpg)
-
----
-
-`@miles 4/11/2022 2:27 PM (UTC)`
-
-4/10/2022 Miles Guo: The CCP knows that COVID vaccines kill people but still pushes the toxic COVID vaccines, and the nucleic acid test is 100% phony. Shanghai's lockdown is not a political struggle between Xi and the Shanghai gang, which has long been finished. Xi is executing a well-thought-out murderous scheme to implement a planned economy in Communist China, take over Hong Kong and Taiwan, place super mines at the waters around Japan, and control the Straits of Malacca and Hormuz. The US, however, cannot understand Xi's plan.<br/><br/>4/10/2022 文贵直播：中共明知疫苗杀人却仍推毒疫苗，核酸检测100%是假的；上海封城不是习和上海帮的政治斗争，上海帮早已完蛋；习在执行周密的杀人计划，对内实施计划经济，拿下港台，在日本周围将布置超级水雷并控制马六甲海峡和霍尔木兹海峡，而美国却无法理解习的计划
-![img](https://media.gettr.com/group45/getter/2022/04/11/14/649d914b-2c57-449f-2f0b-08a0b7934d07/out.jpg)
-
----
-
-`@miles 4/11/2022 2:15 PM (UTC)`
-
-4/10/2022 Miles Guo: Xi's ultimate goal is to stay in power after the 20th Party Congress and establish a regime that will always belong to Xi himself! Xi is even willing to put the Chinese in endless wars, starvation, and contradictions and conflicts just to achieve this goal! Only the Whistleblowers’ Movement has revealed this truth to the world!<br/><br/>4/10/2022 文贵直播：习的终极目标是确保20大连任并建立起永远属于习的江山！习为了实现这一目标，不惜将中国人置于永不停歇的战争、饥饿、以及矛盾和冲突之中！只有爆料革命向世界揭露了这一真相！<br/>
-![img](https://media.gettr.com/group5/getter/2022/04/11/14/5aa6a1fd-e46b-d7fd-5bac-57d052dc044a/out.jpg)
 
 ---
 
