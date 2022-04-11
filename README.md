@@ -39,46 +39,46 @@
 ### [截获的音频揭示了俄军杀害、强奸乌克兰平民](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [沙赫巴兹﹒谢里夫当选 中共官媒称更适合中巴关系](/content/gnews/11/README.md)
- ` 温哥华扬帆农场`
-
-### [文贵先生盖特精要- 2022/04/11](/content/gnews/12/README.md)
+### [文贵先生直播精要 2022/04/10](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声｜泽连斯基赞扬德国转变对乌克兰的立场](/content/gnews/13/README.md)
+### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [沙赫巴兹﹒谢里夫当选 中共官媒称更适合中巴关系](/content/gnews/12/README.md)
+ ` 温哥华扬帆农场`
+
+### [文贵先生盖特精要- 2022/04/11](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声｜泽连斯基赞扬德国转变对乌克兰的立场](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜ 河北法院贱卖大午集团 传北京新发地将接手](/content/gnews/14/README.md)
+### [有声｜ 河北法院贱卖大午集团 传北京新发地将接手](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟委员会主席乌尔苏拉·冯德莱恩访问乌克兰](/content/gnews/15/README.md)
+### [欧盟委员会主席乌尔苏拉·冯德莱恩访问乌克兰](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国籍乌克兰人感谢法治基金为他的人民提供的帮助](/content/gnews/16/README.md)
+### [美国籍乌克兰人感谢法治基金为他的人民提供的帮助](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新冠病毒疫苗对免疫系统“无法弥补的损害”和世卫组织是“一个笑话”](/content/gnews/17/README.md)
+### [新冠病毒疫苗对免疫系统“无法弥补的损害”和世卫组织是“一个笑话”](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [泽连斯基要求韩国向乌克兰提供军事硬件支持](/content/gnews/18/README.md)
+### [泽连斯基要求韩国向乌克兰提供军事硬件支持](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/19/README.md)
+### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/20/README.md)
+### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [G系列永远属于战友属于新中国联邦](/content/gnews/22/README.md)
+### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [卑诗省政府雇员仍被疫苗护照所困](/content/gnews/23/README.md)
