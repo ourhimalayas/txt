@@ -2,25 +2,23 @@
 ---
 
 
-## 中日财经爆|世行预计乌克兰经济增长率下降45% 创历史新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326058/)
+## 推特首席执行官说马斯克拒绝加入推特董事会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326131/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/待命（文晓）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/世行预计乌克兰经济增长率下降45-创历史新低.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstatic.rti.org.tw%2Fassets%2Fthumbnails%2F2020%2F03%2F31%2F82055c81a66e235f2db664fef7ed3367.jpg&amp;imgrefurl=https%3A%2F%2Fwww.rti.org.tw%2Fnews%2Fview%2Fid%2F2111826&amp;tbnid=qL-extBL454ErM&amp;vet=12ahUKEwjepN_)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/推特首席执行官说马斯克拒绝加入推特董事会.png)（图片源自本文链接）
 
-4月10日，世界银行公布，乌克兰因遭到俄罗斯军入侵影响， 2022年经济增长率预计将下降45.1%，创历史新低。世行强调，俄罗斯的军事袭击严重破坏了乌克兰的基础设施（社会基础设施）。
+日本雅虎网站4月11日消息：据彭博社报道，推特的首席执行官（CEO）帕拉格-阿格拉瓦尔（Parag Agrawal）宣布，特斯拉首席执行官马斯克决定不加入推特董事会。
 
-另一方面，作为侵略者的俄罗斯也受日本、美国和欧洲“史无前例的经济制裁”的影响，预测经济增长率将下降11.2%。
+阿格拉瓦尔发推说：马斯克先生与公司董事会进行了讨论，结果是他拒绝成为董事。
 
-世界银行对俄罗斯入侵乌克兰表示强烈担忧，称其“正在加速世界经济放缓、通货膨胀（物价上涨）和债务急剧上升”。
+他在推特上披露的一份内部文件中，对马斯克先生的决定的评论是：这是最好的选择！
 
-国际货币基金组织（IMF）3月份也表示，乌克兰2010年的增长率可能下降25-35%。
+信息来源：
+[マスク氏がツイッター取締役就任を辞退－アグラワルＣＥＯ（Bloomberg） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ebbd5862585084c95edefab9dc4fc8e71cecf5ac)
 
-消息来源:
-[ウクライナ経済成長率、４５％減の記録的落ち込み見通し…制裁受けるロシアは１１％減](https://www.yomiuri.co.jp/economy/20220411-OYT1T50013/)
-
-*编辑：东京樱花团/喜马拉雅的微尘
+*校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**

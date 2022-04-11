@@ -2,77 +2,37 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.11)–疫苗副作用导致月经紊乱
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2325966/)
+## 新南威尔士州巴士司机罢工24小时
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326009/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-#### 整理：禄森
-编辑：禄森
+翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-15.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-博主:  付豆豆tomato
-
-是新冠疫苗让我姨妈推迟了吗？
-
-已经迟了12天了 救命
-
-精选评论
-
-可乐评论:
-
-我是打了疫苗以后大姨妈出走两个月，然后来了半个月没走[哭惹R]，今天做了检查下周才出报告呢，做女生好难
-
-小红薯5F511D36评论:
-
-我打完第一针的时候大姨妈一直不完 打完第二针也是大姨妈就乱了 打完第三针倒好直接不来大姨妈了 推迟十天了
-
-花椒评论:
-
-我去年8月份打完第二针后，9月份正常，10月份就是50天才来，11月份是40多天才来，1月份来了就不走了，吃断血流才止住，结果好了10来天3月份又来一整个月，然后又吃断血流，这两天才回去了，但是白带颜色还是不太正常，现在在吃地屈孕酮片➕断血流，看看过两天再吃妇炎康片，因为疫情被封在家也没法出去，只能自医了，我还以为我怎么了，原来这么多姐妹打完疫苗姨妈不正常的
-
-愿祖国繁荣昌盛评论:
-
-我当然打完2个月没来，吓的我以为怀孕了，压根没往疫苗那想去，好傢伙，这两个月又一次来十多天，真的要搞疯了…
-
-喜馆评论:
-
-我打完大姨妈三个月不来，一来就一个多月，止不住，做了诊刮病理报告显示内膜厚，诊刮后的第二个月又来了不走，真的后悔死了
-
-优佳妈评论:
-
-我打了第二针后半年没来了，中间几个月三天两头肚子坠痛像大姨妈要来的那种，但是都没来，上个月底开始肚子不坠痛了
-
-作者发布于2022-3-17
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-22.png)
-
-图片来源：小红书
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/og.jpg)图片来源：https://caportal.com.au/tfnsw/tiip
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-5.png)图片来源：小红书
+根据澳洲媒体4月11日报道，由于公交车司机开始了24小时罢工，澳大利亚新南威尔士州的通勤者早上的通勤时间有所延误。
 
+运输工人工会，铁路，电车和公共汽车工会的司机从周一午夜后开始24 小时罢工，要求获得公平的报酬和更好的工作条件。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345.png)图片来源：小红书
+虽然悉尼将首当其冲，但悉尼以外的地区也将受到影响，包括 Hunter Region、Lake Macquarie、Blue Mountains、Central Coast 和 Queanbeyan。
 
+澳大利亚工会委员会秘书Sally McManus表示，工人们感到沮丧，因为工资跟不上生活成本。“你所看到的采取罢工行动的人都是一线工人，无论护士、教师还是运输工人，今天也是如此。”
 
-参考链接：[月经紊乱](https://www.xiaohongshu.com/discovery/item/6232bd900000000001026770?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521095)
+“由于通货膨胀和工资没有上涨，人们现在不得不真的削减开支。人们只有在不得已的情况下，才采取罢工行动。不幸的是，这就是现在的情况。”
 
-发布：*wenly*
+McManus说，随着这个问题在八年来不断升级，很多家庭发现生活“艰难”。新南威尔士州政府应该做出回应，确保一线工人的生活不会倒退。
+
+资料来源：[NSW commuters facing chaos as bus drivers strike for 24 hours](https://www.news.com.au/national/nsw-act/news/nsw-commuters-facing-chaos-as-bus-drivers-strike-for-24-hours/news-story/8fdd283f1fd46ca203e5690cd4622ffb)
+
+发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
