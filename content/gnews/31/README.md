@@ -2,26 +2,46 @@
 ---
 
 
-## 秘翻在线：各大车企陷入停工潮 中共国欧盟商会都坐不住了
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2327016/)
+## 新西兰财经G乐部2022年4月11日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2327181/)
 
-**撰稿：葛大饼**
-
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-11-164148.jpg)
-根据2022年4月10日钛媒体一篇文章报道， 蔚来、特斯拉等多家车企陷入随时停产和供应链锻炼的危机中。
-
-新闻称江浙沪汽车供应链几近瘫痪，对于中共国汽车产业来讲，江浙沪在整个供应链中的地位极为重要，加上杭州和广州的疫情也出现反复，蔚来、特斯拉、南北大众、一汽丰田，吉利，广汽本田、广汽丰田、埃安、传祺、东风日产……每一个车企都面临着被全面停产的局面。
-
-持续的芯片短缺和因中共病毒疫情加剧导致的供应链中断，对产品生产和销售造成了持续的影响。面对疫情的反复，车企复工无期，2022年中国汽车市场全年销量大幅下滑已成定局。一位车企负责人接受采访时所说：“要做好过苦日子的准备了。”
-
-另外网上传出中共国欧盟商会主席4月8日给胡春华副总理写信，代表1800多家欧洲在华企业要求中共政府停止目前的防疫“老方法”，建议借鉴新加坡的成功模式。目前受访企业近一半的供应链完全中断，企业损失惨重。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image0.jpeg)
-中共病毒和疫苗的打击下，全球经济面临崩溃，人们要保证最基础的生活下才会去考虑生存之外的开支，多余的房子和车子在社会动荡中就是累赘。未来的汽车都得打折销售。不仅仅是车企要准备过苦日子的准备，在共产党没灭之前，所有人，所有行业都是如此！
-
-**[新闻来源](https://finance.sina.cn/2022-04-10/detail-imcwipii3428141.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-11-190907.jpg)
 
 
+**1、中共国商业银行网点去年关停2805个**
+![img](https://media.gettr.com/group41/origin/2022/04/11/03/2bbef471-2f7a-13ad-f39d-059be9e36595/f6e7826469db38028e933c4006a2238e_500x0.png)
+中共国商业银行网点收缩仍在继续。银保监会金融许可证信息平台发布的数据统计后发现，在2021年商业银行机构退出列表中，合计有2805个银行网点终止营业，比上一年减少889个。近年来，银行网点数量呈现持续缩减态势。截至2021年末，五家国有银行披露的网点数量比2020年末合计减少566个。其中，建行网点减少数量最多，减少231个。
+
+链接 [https://finance.sina.com.cn/money/bank/bank\_hydt/2022-04-11/doc-imcwiwst1090455.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-04-11/doc-imcwiwst1090455.shtml)
+
+**2、多家理财公司，缩水超1万亿**
+![img](https://media.gettr.com/group14/origin/2022/04/11/03/33a5b050-3310-82c3-59ff-a2f5e265132d/15f5a3880ec1f239d48a39c810803de7_500x0.png)
+数据显示：四家大行的理财公司，截至一季度末的时点管理规模，均较年初高峰时点余额下降。缩水的规模，三家在两千多亿，一家超3500亿元。从投资性质划分，被赎回的主力是占据存量产品绝对比重的固定收益类产品。据悉：仅固收类产品，就有两家位于北京的大行理财公司合计规模减少约3800亿元。
+
+链接 [https://www.stcn.com/xw/sd/202204/t20220411\_4340830.html](https://www.stcn.com/xw/sd/202204/t20220411_4340830.html)
+
+**3、二手房限售由5年改为3年**
+![img](https://media.gettr.com/group48/origin/2022/04/11/03/4bb3fc97-b5c2-bf19-df55-f9b9f1717630/31ec2ed1990b26e468f96daa11c86833_500x0.png)
+苏州市房地产市场和交易管理中心确认，从今日起苏州市开始调整限售政策，二手房限售由5年改为3年。据不完全统计，今年以来，全国已经有超过60个城市发布楼市松绑政策，既有郑州、兰州、哈尔滨等省会城市，也有青岛、秦皇岛、衢州等二三线城市。面对房地产市场的低迷态势，各地持续从公积金贷款、商业贷款、购房补贴等方面释放利好。
+
+链接 [https://finance.eastmoney.com/a/202204112338042522.html](https://finance.eastmoney.com/a/202204112338042522.html)
+
+**4、欧盟祭出全面新制裁 俄罗斯进口品总额至少将大减10%**
+![img](https://media.gettr.com/group34/origin/2022/04/11/03/412648d5-f43c-4e64-999c-6092d0578e63/f0a0baf2c231d8af87e74015a497e9db_500x0.png)
+欧盟周五正式通过对俄罗斯新的全面制裁，包括禁止进口煤炭、木材、化学品和其他产品，预计从俄罗斯的进口品总额将至少大减10%。这些措施还阻止了许多俄罗斯船只和卡车进入欧盟，进一步削弱贸易，并将禁止与VTB在内的四家俄罗斯银行的所有交易。
+
+链接  [https://cn.reuters.com/article/eu-ru-new-sanctions-0411-idCNKCS2M303K?il=0](https://cn.reuters.com/article/eu-ru-new-sanctions-0411-idCNKCS2M303K?il=0)
+
+**5、纽约参议院授权 NYDFS “评估”加密公司**
+![img](https://media.gettr.com/group27/origin/2022/04/11/03/81b4a545-73dc-fca7-ea8c-444559045ad2/7b6f4c2e86b27d6f1ed9d6c47d5f000a_500x0.png)
+纽约州参议院正在推动该州金融服务部 (NYDFS) 监督加密货币行业的工作。参议院周六早些时候通过了其 2023 财年预算，其中包括一项规定，要求 NYDFS 为其监管的加密货币公司制定一项新的“评估”或收费，以使其对虚拟货币的监管任务与监管机构监管更多传统银行的方式保持一致和金融服务公司。
+
+链接：[https://www.coindesk.com/policy/2022/04/09/new-york-senate-authorizes-nydfs-to-assess-crypto-companies/](https://www.coindesk.com/policy/2022/04/09/new-york-senate-authorizes-nydfs-to-assess-crypto-companies/)
+
+海报：润玉
+
+排版上传：文勇
 
  
 
