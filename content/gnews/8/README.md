@@ -2,31 +2,49 @@
 ---
 
 
-## 有声|欧盟将对俄实施新一轮更严厉经济制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2328352/)
+## 币安中东扩张，阿布扎比“原则上”批准
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2328480/)
 
-录音：香草山文艺部 – maggie 喵
+编译：七叶之芒
 
-当地时间4月8日，欧盟在对俄罗斯的第五套制裁方案中，加入针对加密货币钱包、银行、货币和信托的措施，以弥补从俄罗斯将资金转移到国外的潜在漏洞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-此前，总部设在欧盟的加密货币交易所，已经禁止了来自俄罗斯的个人交易。为堵住潜在流出资金的漏洞，欧盟将禁令扩大到加密货币钱包的存款。
+加密货币交易所币安获得了阿布扎比监管机构的临时绿灯，深化了其在中东地区的扩张。
 
-欧盟还表示，将禁止向俄罗斯和白俄罗斯出售，以欧盟成员国的任何官方货币计价的纸币，和可转让证券，如股票。并确认对包括VTB在内的四家俄罗斯银行的全面交易禁令。这些银行占俄罗斯银行业23%的市场份额。这些银行已经被切断了与SWIFT的联系，现在正被冻结资产，以完全切断它们与欧盟市场的联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1304.png)币安首席执行官赵长鹏表示，该公司 “在其他地方并不避讳”，而且 “还将有更多的事情发生”。
+Wei Leng Tay | Bloomberg | Getty Images
 
-原文链接：[欧盟将对俄实施新一轮更严厉经济制裁](https://gnews.org/zh-hans/2323703/)
+该公司周日表示，阿布扎比全球市场金融服务监管局“原则上”批准其作为数字资产的经纪交易商运营。该公司表示，此举是朝着成为该城市“完全受监管的虚拟资产服务提供商”迈出的第一步。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+这是币安获得批准的第二个城市–该公司上个月在迪拜获得了加密货币许可证。此举也是在币安在巴林获得该国央行授权后发生的。
 
-音频处理/发稿：Daxia
+在其他地方受到冷遇后，币安一直在向中东市场推进。
+
+在英国，监管机构对该公司进行了限制，禁止其开展任何受监管的活动。在新加坡，在该国中央银行警告说它可能违反了当地的支付法律之后，它限制了其服务。
+
+在回应CNBC的一条推文时，币安首席执行官赵长鹏表示，该公司“没有在其他地方被避开”，而且“还有更多的事情要做”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1307.png)
+
+此前，币安因其独立于当地法规运作的倾向而臭名昭著。该公司的负责人直到最近还为没有官方总部而感到自豪。然而，为了应对来自全球监管机构的压力，币安已经改变了策略，表示它希望成为一个受监管的企业。该公司目前正在评估在哪里建立其主要办公室。
+
+包括Crypto.com和FTX在内的几家加密货币公司正在寻找像阿联酋这样的海湾国家作为设立商店的目的地。但该地区在一个尴尬的时刻向监管松散的加密货币世界敞开大门–阿联酋最近被全球洗钱监督机构金融行动特别工作组列入“灰色名单”。
+
+来源：[We’re sorry, the page you were looking for cannot be found](https://www.cnbc.com/2022/04/11/%E5%B8%81%E5%AE%89-deepens-middle-east-expansion-with-abu-dhabi-approval.html).
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：花羽
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-4.jpeg)
 
  
 
