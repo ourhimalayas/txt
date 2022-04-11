@@ -52,13 +52,6 @@
 
 ---
 
-`@miles 4/11/2022 2:05 AM (UTC)`
-
-2022.04.10  新中国联邦 | 喜财经   传统银行与数字银行对比
-![img](https://media.gettr.com/group6/origin/2022/04/11/02/1355a04b-0807-2767-5b7d-925e71745439/9548d67018b19975dcafea4c4484666a.png)
-
----
-
 `@miles 4/11/2022 1:48 AM (UTC)`
 
 4月10号：共产党将纯粹的人间．已经变成了阴阳共存的形式，相信共产党走进火葬场，如果你不反党你的家很可能成为火葬场。“【我接到上级通知，说你已经S亡，现在拉你去火化，请您配合，你可以保留投诉的证据……”】
@@ -152,6 +145,12 @@
 `@miles 4/10/2022 1:50 PM (UTC)`
 
 04/010/2022 on the 7th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on 4 Countries Rock Song Charts<br/>#3🥉 on 4 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#3🥉on Mongolia 🇲🇳 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>https://gnews.org/2322043/<br/><br/>Global iTunes Ranking Record of Week 1:<br/><br/>https://gnews.org/2322171/<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Armenia, Fiji, Laos, Turkey 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
+`@miles 4/10/2022 1:45 PM (UTC)`
+
+4月10号, 郭文贵先生两首新歌上线第七天<br/>《灭共的雪》登榜iTunes<br/>台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>香港🇭🇰， 新西兰🇳🇿，澳大利亚 🇦🇺，柬埔寨🇰🇭摇滚榜第二名🥈<br/>蒙古🇲🇳，土耳其🇹🇷，亚美尼亚🇦🇲，斐济🇫🇯摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第三名🥉<br/>蒙古 🇲🇳流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第一名🥇<br/>老挝🇱🇦摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>https://gnews.org/zh-hans/2322042/<br/><br/>第一周全球打榜全记录：<br/><br/>https://gnews.org/zh-hans/2322170/<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，亚美尼亚，斐济，老挝，土耳其的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/>
 
 ---
 
