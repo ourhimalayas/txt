@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 12:32 PM (UTC)`
+
+2022.04.11 早  新中国联邦 | 新闻    中共不灭 灾难不止；习近平排除异己 为独裁铺路
+![img](https://media.gettr.com/group20/origin/2022/04/11/12/7d9c5f39-9fcb-7f10-2eae-46847e497268/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/11/2022 10:58 AM (UTC)`
 
 2022.04.11  新中国联邦 | 军情室  俄乌战争局势 杀伤链的概念 从杀伤链的角度分析俄罗斯的战力
@@ -146,13 +153,6 @@
 
  4月10号：这位先生穿上G FASHION 独创的佛系列．他有5千一百万M的粉丝，实在是太棒了👏👏👏
 ![img](https://media.gettr.com/group23/getter/2022/04/10/18/8f6aee45-8d03-69a0-22d0-6f5b5f3cea36/4d89bf054a9e51d4e62ad248d2bb12a2.jpg)
-
----
-
-`@miles 4/10/2022 5:02 PM (UTC)`
-
-中共已在塞尔维亚部署红旗反导系统<br/>Title:  Communist China Has Deployed Red Flag Anti-Missile System in Serbia
-![img](https://media.gettr.com/group3/origin/2022/04/10/17/db865e91-bcbd-0d5d-dc21-24fe8c9ac071/out.jpg)
 
 ---
 

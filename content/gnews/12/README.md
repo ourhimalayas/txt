@@ -2,24 +2,25 @@
 ---
 
 
-## 视频|英首相约翰逊突访乌克兰
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2328153/)
+## 加拿大投巨资以推动绿色科技产业
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2328248/)
 
-制作：香草山视频部
+采编/撰稿：加拿大温哥华扬帆农场 – 重生之鹰
 
-4月9日，英国首相约翰逊突访基辅，会见了乌克兰总统泽连斯基。
+据[多伦多太阳报]4月6日报道，为吸引国内外私有企业对新型绿色技术产业的投资，联邦政府将在5年内向[加拿大增长基金]投入150亿加元。
 
-约翰逊此次乌克兰之行严格保密，事前英国政府与英国媒体只字未提，直到英国驻乌克兰大使馆在网络上发布照片后，消息才随之被曝光。泽连斯基也在脸书上晒出两人的会面照，并表示：欢迎来到基辅，我的朋友！约翰逊与泽连斯基还在基辅街头一起高调现身，进行了步行巡视。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1299.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
-英国首相官邸发言人指出，约翰逊亲自会见泽连斯基，展现出两国人民团结一心的坚定立场，并透露英国将对乌克兰进行新的金融与军事援助。乌克兰总统办公室副主任西比哈表示，约翰逊与泽连斯基进行了一对一单独会面。
 
-泽连斯基对约翰逊进行了高度赞扬，称约翰逊是反对俄罗斯入侵乌克兰最有原则的领导人之一，是对俄罗斯实施制裁以及支持乌克兰国防的领导人。
+据悉，特鲁多试图通过该计划来达到每1加元的公共资金吸引3加元的私企投资，以支持该国发展绿色产业项目，并使投资者们能最终使用这些新型科技。
 
-发稿：Daxia
+对此，今年的政府预算案将涉及一项总金额为20亿加元的关键矿产投资项目。而在俄罗斯入侵乌克兰后，加拿大将额外增加80亿加元的国防开支，用于本国军备的补充和升级。
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
  
 
