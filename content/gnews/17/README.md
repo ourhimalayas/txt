@@ -2,36 +2,46 @@
 ---
 
 
-## 【G时新闻】上海日增26800多例本土个案 ，副市长哽咽道歉市民不买账
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2324064/)
+## 英国首相约翰逊突访基辅会见泽伦斯基
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2324267/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是上海日增26800多例本土个案 ，副市长哽咽道歉市民不买账！
+翻译：冰糖葫芦喵
 
-据上海市衞健委通报，截至4月9日24时，上海单日新增26855宗新冠病毒本土个案，再创新高。当局昨日在全市范围内又展开了一次全员核酸检测，计划依检测结果按风险程度划分三区进行阶梯式管理，包括封控区、管控区和风险最低的防范区。
+编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《布莱巴特新闻网》4月9日报道，**英国首相鲍里斯·约翰逊突然访问基辅，与乌克兰总统弗拉基米尔·泽伦斯基，就俄罗斯军队最近在乌克兰实施的暴行进行了会谈。**
+4月9日，约翰逊与泽伦斯基穿过基辅市中心，与基辅人民交谈，见证了人民之间和国家之间的友谊。（视频来源：乌克兰国防部）
+乌克兰驻英国大使馆在社交媒体上发布了这一消息，**显示英国和乌克兰领导人一起坐在一张两边插着英国和乌克兰国旗的会议桌上。**
 
-上海市副市长宗明在疫情防控记者会上承认当局有不少工作做得不够，并语带哭腔承诺会尽全力改进，但次般道歉并没得到民众接受，上海市民认为“讲一套、做一套”，批评当局“虚伪”、“作秀”的言论瘫痪了评论区。
+泽伦斯基总统的助手安德烈·西比哈(Andriy Sybiha)称赞，**英国是“支持乌克兰国防的领导者”，而约翰逊首相则是“反战联盟的领导者”。积极制裁俄罗斯侵略者的领导人。”**
 
-另外，美国国务院日前宣布，因应上海新冠病毒疫情严峻容许驻上海总领事馆非紧急人员及家属可自愿以“授权撤离”方式离开。 惟有被封控的外籍人士认为，现在连门口都出不去 ，更何谈回国。并斥责国际社会不仅对正于上海发生的人道危机不闻不问，对本国公民一样不予理会，如不是得到部分上海市民的帮助一起团购物资，恐怕早已饿死。
+报道称，在当地时间4月8日，**欧盟委员会主席冯德莱恩抵达乌克兰首都基辅，亲自向乌克兰总统泽连斯基传递了一份加入欧盟相关的文件。**她还走访了布恰市一个埋有数百具尸体的乱葬岗。她**对俄军对乌克兰人民实施的暴行，表示十分震惊，并表示，我们的人性被粉碎了。**
+4月8日，在乌克兰首都基辅，泽伦斯基与冯德莱恩会面。（视频来源：[UkraineWorld](https://twitter.com/ukraine_world)）
+据报道，在此次访问之前，英国政府已经宣布，**将向乌克兰增派数百套反坦克导弹系统、额外的防空导弹系统和尖端武器，以及其他援助**，以帮助打击俄罗斯军队占领乌克兰其他城市，杀害平民，实施暴行。
 
-绝大多数的上海市民是被邪恶的中共统治蒙蔽欺骗无从获知真相，即便知道真相的人们也依旧生活在恐惧之中，唯有彻底推翻中共的统治所有国人才能从真相中站起来，获得原本属于人的自由和尊严！我们相信郭先生引领的新中国联邦全球“灭共”“无苗族”会力挽狂澜，会让这一天尽早到来！
+据英国《每日电讯报》报道，英国首相官邸唐宁街10号的一名发言人证实，首相约翰逊已经亲自前往乌克兰会见泽伦斯基总统，以表示与乌克兰人民团结一致。
 
-盖特链接：[https://gettr.com/post/p14hzsp9c6d](https://gettr.com/post/p14hzsp9c6d)
+4月9日，约翰逊在推特中说，今天我遇到了我的朋友乌克兰总统泽伦斯基，以显示我们对乌克兰人民坚定不移的支持。**我们正在制定新的一揽子财政和军事援助计划，这是我们对他的国家对抗俄罗斯野蛮行径的承诺的证明。**
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+> Today I met my friend President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) in Kyiv as a show of our unwavering support for the people of Ukraine.
+> 
+> We're setting out a new package of financial & military aid which is a testament of our commitment to his country's struggle against Russia’s barbaric campaign. [pic.twitter.com/KNY0Nm6NQ3](https://t.co/KNY0Nm6NQ3)
+> — Boris Johnson (@BorisJohnson) [April 9, 2022](https://twitter.com/BorisJohnson/status/1512818337415372802?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+
+
+新闻来源链接：
+
+[Boris Johnson Makes Surprise Visit to Kyiv for Meeting with Zelensky (breitbart.com)](https://www.breitbart.com/europe/2022/04/09/boris-johnson-makes-surprise-visit-to-kyiv-for-meeting-with-zelensky/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

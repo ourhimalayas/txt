@@ -2,38 +2,29 @@
 ---
 
 
-## 白宫限制俄罗斯获得外国肥料和阀门
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2323918/)
+## 樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324138/)
 
-***评论：**2022年4月6日，美国、七国集团和欧盟针对普京政权在乌克兰（包括在布查，Bucha）的残暴行径继续施加重大且即刻经济代价；8日，美国总统拜登正式签署了终止与俄罗斯和白俄罗斯正常贸易关系的法案，以及一项禁止进口俄罗斯石油的法案；9日，美国商务部发布了一项扩大对俄罗斯和白俄罗斯出口限制的规则，高度限制俄罗斯和白俄罗斯获取美国原产或一些盟友国家生产的可用于军事和航空航天等领域的两用技术、软件和商品。美商务部称，这些限制措施将降低俄罗斯和白俄罗斯战略部门的军事能力。我们看到，制裁在一步步加大力度，希望接下来很快看到对中共国的进一步制裁出炉。*
+撰稿：东京樱花团/加一颗稻草
 
-据《NewsMax》 2022年4月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture-12-e1649620193185.jpg)图片来源：nesmax.com
-拜登政府周五扩大了对俄罗斯和白俄罗斯的出口限制，限制了化肥和管道阀门等物品的进口，以寻求加大对莫斯科和明斯克的压力。
+据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
 
-美国商务部(Commerce Department) 上周五在《联邦纪事》(federal register)上发文称，俄罗斯和白俄罗斯人若要向美国供应商采购肥料、管阀、滚珠轴承及其他零件、材料和化学产品，须先申请特别许可证；但是，商务部承诺将拒绝核发上述许可证。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-5.jpg)图片来源于本文链接
 
-政府还表示，那些使用美国工具在国外制造的物品也需要获得特别许可证，而同样，政府也计划拒绝予以核发。
+自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
 
-文章观点仅代表作者个人，与Gnews平台无关。
+Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
 
-文章来源：[https://www.newsmax.com/newsfront/fertilizer/2022/04/08/id/1064978/](https://www.newsmax.com/newsfront/fertilizer/2022/04/08/id/1064978/)
+最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
 
-翻译：洛杉矶盘古农场 – Raul
+消息来源：
 
-校对：洛杉矶盘古农场 – 钢蛋儿
+[Canadian pastor who was jailed for 51 days after speaking to trucker convoy alleges mistreatment in prison](https://www.foxnews.com/world/canadian-pastor-jailed-for-51-days-after-speaking-to-trucker-convoy-alleges-mistreatment-in-prison)
 
-评论：洛杉矶盘古农场 – 钢蛋儿
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 –子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

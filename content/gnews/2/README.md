@@ -2,8 +2,8 @@
 ---
 
 
-## 从习二放毒那天起，一切都没有脱离习二的控制
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324488/)
+## 习二的第二个目标：老百姓在极限战争压力下只想活着，迅速拿下台湾，毁掉美元
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324524/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

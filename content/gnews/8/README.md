@@ -2,8 +2,8 @@
 ---
 
 
-## 习亲自对七哥说要让全中国人尝试挨饿的滋味
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324470/)
+## 习二砸烂香港拿下中东石油拿下台湾科技击败美元后与美国人玩挨饿的游戏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324484/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

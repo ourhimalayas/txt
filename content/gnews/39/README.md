@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|俄罗斯快扛不住了,中共还扛吗？
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2323308/)
+## 《台湾武器出口法案》将加速美对台军售
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2323687/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【大纪元4月9日讯】 俄罗斯军队撤离了基辅地区，但并未停止入侵，并被指控犯下残害平民的暴行，西方的制裁再度加码。北约正在大力支援乌克兰应对一场持久战，而俄罗斯则要避免陷入泥潭，似乎更积极地想要和谈。俄罗斯快扛不住了，中共还扛吗？
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image006-1.jpg)4月6日至7日，北约各国外长在布鲁塞尔举行会议，同意进一步加强对乌克兰的支持；并一致认为，北约的下一个战略构想，必须考虑中共对盟国安全日益增长的影响。（NATO官网）
-4月6日至7日，北约各国外长在布鲁塞尔举行会议，同意进一步加强对乌克兰的支持。因为中共支持俄罗斯，北约与亚太盟友将更紧密地合作，以应对中俄显而易见的安全挑战。
+作者：纽约香草山 医疗部 云豹
 
-美国总统拜登和关键内阁成员一再警告中共，若援助俄罗斯，将要承担“后果”。4月1日的中欧峰会，欧盟领导人也对中共发出了警告。中共即将被列为北约的敌人。
+当地时间4月7日，美国参议员霍利提出《台湾武器出口法案》（Taiwan Weapons Exports Act）。该法案旨在加速美国对台军售的审查流程，减少行政障碍，以应对随时发生的台海军事危机。
 
-比起俄罗斯，中共对世界造成的伤害更加可怕。一场瘟疫的巨大伤害，让世界足够清醒；一场俄乌战争，更是雪上加霜。世界大多数国家应该拿出对待俄罗斯入侵乌克事件一样的勇气，令中共再也扛不下去。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpeg)
 
-[【援引连结】](https://www.epochtimes.com/gb/22/4/9/n13705953.htm)
+据悉，现阶段，美国对外出口武器分为两个类别。台湾目前归属在一般国家的第二类中。此类别军售受制于较严格的金额限制，审核所需时间较长。一旦中共攻台，台湾无法及时获取必要的军事援助。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+《台湾武器出口法案》建议，将台湾归属到主要盟国的第一类中，与北约各成员国，以及日、澳、韩等美国重要盟友位列同一等级，以便台湾享有优先的武器出口审核。在紧急状态下，行政审核流程可减少35天至55天。
+
+分析人士指出，该法案如能通过，将有助于台湾在紧急战时，快速取得先进的武器装备与战术指导。此外，该法案也能让台美军售法制化、常态化。
+
+参考链接：
+1. [美參議員提台灣武器出口法 加速對台軍售](https://www.cna.com.tw/news/aipl/202204080262.aspx)
+2. [專家：台灣武器出口法案若過 美對台軍售加快且穩定](https://www.cna.com.tw/news/aipl/202204090166.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：Zion文恩
+编辑：文真
+审核：Zion文恩
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

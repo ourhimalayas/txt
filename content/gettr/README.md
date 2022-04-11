@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 12:29 AM (UTC)`
+
+2022.04.10 晚  新中国联邦 | 新闻    中共的疯狂举动 恐将让中国人付出血的代价; 台湾旅乌男士在新中国联邦救援基地任义工
+![img](https://media.gettr.com/group25/origin/2022/04/11/00/fee3b58c-44b8-17ff-c674-e5d1ce7ae36a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/10/2022 11:01 PM (UTC)`
 
 2022.04.10 NFSC news  Update on NFSC’s Frontline Humanitarian Rescue Operation
@@ -144,13 +151,6 @@
 
 【Ukraine Rescue】04/08/2022 Nicole said in her interview with a TV station in Tokyo, Japan that we came to join this rescue not only to advertise our ideas but also to tell the world on behalf the Chinese people inside China who don’t have a voice that CCP is behind the Russian invasion of Ukraine.They're threatening Asia's peace and security, including Japan. They don't represent the Chinese people. Most Chinese people are peace-loving. They want to take down the evil Chinese Communist Party to be free.<br/><br/>【乌克兰救援】04/08/2022 妮可在接受日本东京一家电视台采访时说，我们来到前线不仅仅是为了宣传我们的理念，是想替国内无法发声的中国人告诉世界，中共在背后推动了这次侵略，威胁着亚洲包括日本的和平和安全，但它不能代表中国人，大多数中国人都爱好和平，希望推翻邪恶中共获得自由。<br/>
 ![img](https://media.gettr.com/group32/getter/2022/04/10/00/8fc7681d-b928-350f-88db-4b78bc6554dc/out.jpg)
-
----
-
-`@miles 4/10/2022 12:30 AM (UTC)`
-
-2022.04.09 晚  新中国联邦 | 新闻	新中国联邦人不是独自在战斗；叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
-![img](https://media.gettr.com/group48/origin/2022/04/10/00/c6fbe12d-ffdb-d3bc-0ea6-8a3fa725ca8b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

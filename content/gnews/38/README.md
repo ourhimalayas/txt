@@ -2,19 +2,30 @@
 ---
 
 
-## 北约公开说北京是敌人，为接下来打击中共做铺垫
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2323347/)
+## 欧盟将对俄实施新一轮更严厉经济制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2323703/)
 
-【2022年4月7日北约秘书长斯托尔滕贝格在北约外长会议发言】
+作者：纽约香草山农场 文真
 
-4月7日北约秘书长斯托尔滕贝格(Jens Stoltenberg)表示，中国不愿意谴责俄罗斯的侵略行为，而且北京已和莫斯科一起质疑各国选择自己道路的权利，这对北约所有成员国都构成了严重的挑战。 北约各成员国的部长们同意，NATO的下一个战略必须对我们未来与俄罗斯的关系做出回应，并且首次必须考虑到中国日益增长的影响力和胁迫性政策如何影响北约各成员国的安全。
+当地时间4月8日，欧盟在对俄罗斯的第五套制裁方案中，加入针对加密货币钱包、银行、货币和信托的措施，以弥补从俄罗斯将资金转移到国外的潜在漏洞。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide13.jpeg)
 
-素材：Chloe蔻依； 字幕： 湘江之水| 翻译/发布：James文棟
+此前，总部设在欧盟的加密货币交易所，已经禁止了来自俄罗斯的个人交易。为堵住潜在流出资金的漏洞，欧盟将禁令扩大到加密货币钱包的存款。
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
+欧盟还表示，将禁止向俄罗斯和白俄罗斯出售，以欧盟成员国的任何官方货币计价的纸币，和可转让证券，如股票。并确认对包括VTB在内的四家俄罗斯银行的全面交易禁令。这些银行占俄罗斯银行业23%的市场份额。这些银行已经被切断了与SWIFT的联系，现在正被冻结资产，以完全切断它们与欧盟市场的联系。
+
+此外，欧盟还禁止为富有的俄罗斯人提供信托咨询，使他们更难在欧盟储存财富。
+
+参考链接：[EU targets crypto wallets in latest round of Russia sanctions](https://www.reuters.com/business/finance/eu-targets-crypto-wallets-latest-round-russia-sanctions-2022-04-08/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：Zion文恩
+编辑：静言
+审核：Zion文恩
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
