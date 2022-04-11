@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 3:50 PM (UTC)`
+
+Wenyao had an interview with American Public Service Media. She said that the Chinese Communist Party (CCP) doesn’t represent the Chinese people and the Chinese people don’t agree with this war. She introduced Mr. Miles Guo and his arduous effort to tell the world about the truth of what evil things the CCP has done to the world. When asked about her experience with helping refugees, she told the story of two old ladies who reached the rescue base by walking 60 kilometers from Ukraine, and emphasized that taking down the CCP is the only way to end this disaster.<br/>文耀接受美国公共服务媒体采访。她说中国共产党不代表中国人，中国人不同意这场战争。她介绍了郭文贵先生以及他竭尽全力告诉世界中共对世界所做的邪恶事情的真相。当问到她关于营救难民的经历，她讲述了两位老奶奶从乌克兰步行60公里到达救援基地的事，并强调只有灭共才是结束这场灾难的唯一方式。
+![img](https://media.gettr.com/group8/origin/2022/04/11/15/d2671f21-be3e-33bd-365b-9232869d404d/out.jpg)
+
+---
+
 `@miles 4/11/2022 3:31 PM (UTC)`
 
 2022.04.11 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -147,13 +154,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 4/10/2022 Miles Guo: Xi's purpose of leaving the Chinese people without electricity, water, fridges, and food is to test how the people would react in an extreme war scenario, and the CCP would even go so far as to reduce its $15 trillion GDP to $5 trillion. Finally, the CCP is going to create economic catastrophes to take out the US dollar!<br/><br/>4/10/2022 文贵直播：习让中国人没电、没水、没冰箱、没食品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿；中共最终要制造经济灾难从而干掉美元！
 ![img](https://media.gettr.com/group37/getter/2022/04/11/02/b7a9047a-6159-d2f8-ec0a-1355f65c92c9/out.jpg)
-
----
-
-`@miles 4/11/2022 2:06 AM (UTC)`
-
-2022.04.10 农场联盟工作汇报
-![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

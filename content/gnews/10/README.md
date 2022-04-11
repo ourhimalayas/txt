@@ -2,29 +2,39 @@
 ---
 
 
-## 中日财经爆┃中共国3月份汽车产销同比下滑11.7%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329088/)
+## 有声|中共拉仇恨百姓遭殃
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329237/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月11日每日经济新闻报道，中汽协发布的最新数据显示，今年3月，汽车产销数据分别为224.1万辆和223.4万辆，同比下滑9.1%和11.7%；环比增长23.4%和28.4%。1—3月，汽车产销累计648.4万辆和650.9万辆。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-58.jpg)图片来源
-中共一汽集团计划于3月13日起停产其在长春的五大整车工厂，初步计划停产至3月16日，具体看疫情防控情况而定。但直到4月11日，一汽-大众长春工厂仍处于暂时停产状态。受此次疫情影响，根据乘联会数据，3月，一汽-大众广义乘用车批发销量为12.2万辆，同比下滑43.1%。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据郭文贵先生盖特信息，中共在塞尔维亚 及中东部分地区部署了红旗导弹系统，这等同于对西方世界宣战，相当于把中国人置地狱般的危险境地，全球性的排华事件难以避免，针对华人的枪击已时有发生。有战友家人在非洲遭遇强奸危及生命，求助大使馆，中共竟以”顾全中非友谊”的借口不作为。中共帮俄罗斯打仗，在全世界拉仇恨，遭殃的是中国人民。
 
-中共国内众多城市爆发出现中共病毒（新冠病毒Covid-19）及毒疫苗后遗症，加之国际地缘政治不稳定因素显著增加，同时芯片短缺没有明显好转，特别是动力电池原材料价格快速上涨，推动了企业生产成本上涨，多数企业因此纷纷上调旗下产品销售价格，影响终端市场的销售。
+国内粮食已经短缺，这次上海 、深圳封城光饿死的人就超乎想象。而中南坑老杂毛们对此毫不在乎，甚至变态地认为饿死人有利于党的领导，死去的已不会说话，活着的给他一口饭吃，他就会感恩党。同时把矛盾转嫁给富人，让穷人仇富，认为吃不上饭、被饿死都是因为富人。这时”杀富济私”就容易了。国内风投女王”徐新网上抢菜、炫菜的视频能迅速传播，就是中共有意为之，目的是让民众觉得自己吃不上饭是因为穷，资源都被富人抢走了。
 
-另外，中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费 ，高房价，零福利，高支出，房子和汽车成为高负债品，已无从过多消费支出，断供潮也是必至。
+新中国联邦 战友每天每时每刻在乌克兰拯救着乌克兰人震惊了世界。世界级的很多大佬都称赞这行为太伟大了。新中国联邦人展示了完全不一样的中国人，及时告诉了全世界中共不能代表中国，中国人不等同于中共。
 
-信息来源：【[快讯丨3月国内汽车销售223.4万辆 同比下滑11.7%】](https://me.mbd.baidu.com/r/Ej9R3Cj4UU?f=cp&amp;rs=3299755133&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b5369d800b4840a7&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+中国共产党在国内和世界犯下的滔天罪行必将受到正义的审判。希望国内的同胞们能尽快醒来，一定要想办法活下去，活着等到新中国联邦拯救你们的那一天，一起推翻邪恶的中共!
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
+文字版原文：[中共拉仇恨百姓遭殃](https://gnews.org/zh-hans/2319885/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

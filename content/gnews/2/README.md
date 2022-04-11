@@ -2,45 +2,33 @@
 ---
 
 
-## 有声|一周疫情、疫苗信息回顾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329286/)
+## 樱花时政┃清零政策一盘棋 郎咸平母亲施救不及离世
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329485/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2022年3月31日至4月6日，除中共国外，全球新增中共病毒确诊患者848万余例，同比上周的1078万余例下降了21.3%；此外，本周新增确诊死亡病例25,227例，同比上周的33105例下降了23.8%。本周已是连续第五周全球确诊病例和死亡病例持续负增长。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-14.jpg)
-截至4月6日，除中共国外，全球累计接种了82.2亿剂中共病毒疫苗，同比3月31日的接种数据增长了0.611%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+出生于台湾，活跃于中共国的财经媒体界经济学者郎咸平今日（4月11日）发文证实，他98岁的母亲因为等不到核酸检测报告，在上海医院急诊室门口苦等4小时后过世。郎咸平悲痛表示：“因社区封闭，所以我也没有见到我妈妈最后一面。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-113.png) [图片来源](https://www.ntdtv.com/gb/2022/04/11/a103397371.html)
+郎咸平和母亲住在上海，他下午在其微博账号中证实，网传有关其母亲过世的消息是真的。他表示，他和哥哥目前都很悲痛，悲剧本身可以避免的，他的母亲高龄98岁，肾脏本来就有点衰竭，按照过去的诊断，只要打一针就好了。
 
-3月31日，名利场网站发布报告，揭露了福齐和前NIH主任科林斯在疫情爆发初期，阻碍病毒溯源等众多细节。
+郎咸平进一步称：“只是因为上海严格规定必须要做核酸后才能就医，我妈妈在三甲医院当场做的核酸竟然4个小时都没出结果，我深感震惊。我妈妈在医院急诊室门口等待了四个小时候，永远离我而去了。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1321.png)
+此前，4月4日，郎咸平在微博还大肆赞扬清零政策，全民核酸，全国一盘棋。
 
-4月3日，计算生物学家杰西卡·萝丝历时九个月，分析疫苗副作用报告系统的数据，结果显示该报告系统中出现的大量健康问题很有可能与中共病毒疫苗有关。
+时代，压在别人身上就是彩虹，压在自己身上就是暴雨。
 
-4月4日，根据美国CDC的报告，美国目前72%的中共病毒新增感染病例为omicron亚变种病毒BA.2，专家预计这种BA.2将在接下来的两周成为主要病毒类型。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1322.png)
 
-夏威夷两名医生因之前传播使用硫酸羟氯喹和伊维菌素等药物治疗中共病毒，被投诉传播虚假信息，但是当地主管部门已于4月5日裁决，不会对这两名医生采取法律行动。
+信息来源：[经济学家郎咸平母亲急诊室门口等核酸拖4小时过世！他哀痛证实](https://www.ettoday.net/news/20220411/2227317.htm)
 
-4月5日，美国联邦政府将停止单克隆抗体治疗“中共病毒”新型变种，因为目前的单克隆抗体疗法对BA.2变种病毒无效。
-
-
-
-文字版原文：[一周疫情、疫苗信息回顾](https://gnews.org/zh-hans/2320201/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

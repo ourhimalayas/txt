@@ -2,40 +2,32 @@
 ---
 
 
-## 有声|斯洛伐克赠乌防空系统拜登表示感谢
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329086/)
+## 有声|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329178/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
-就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
+配音：香草山商业部——文锤
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+4月7日的飞飞《大实话》盖特直播中，叶钊颖、郝海东夫妇揭露中共体制下的恶——没有信仰，没有真爱，没有人性，没有底线。
 
-据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
+从小在体制下长大的叶钊颖、郝海东夫妇，亲眼看见、新耳听见过中共官场的是是非非，亲身体会过邪恶中共体制带来的伤害，也深知在体制下人们的无奈，所以痛恨这个邪恶体制。在这个邪恶的体制下，那些连鸡都不敢杀的中共高官，为了保护自己的权力，家人不敢爱，亲情不敢要，贞节要出卖，婚姻也交易，不择手段，向党内敌人痛下杀手。从毛泽东到现在的习近平，中共的官场互害杀死了许多官员，将许多中共党员送进了监狱，冤枉了许多老百姓，害死了许多无辜的人！
 
-迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
+在中共体制下，人们没有道德底线、没有信仰、没有敬畏之心，就不可能有爱心。郝海东先生认为，人性的丧失、人伦的丧失、爱的丧失，是中共最大的可悲。我们新中国联邦人要重拾先进文明，每个人都应追求有温度的爱。
 
 
 
-文字版原文：[斯洛伐克赠乌防空系统拜登表示感谢](https://gnews.org/zh-hans/2322208/)
+文字版原文：[叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](https://gnews.org/zh-hans/2322037/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

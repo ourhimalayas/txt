@@ -2,26 +2,29 @@
 ---
 
 
-## 加拿大投巨资以推动绿色科技产业
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2328248/)
+## 有声｜中共国各地封路防疫 大批货车司机被困路上
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2328808/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 重生之鹰
+**By:秘翻新闻**
 
-据[多伦多太阳报]4月6日报道，为吸引国内外私有企业对新型绿色技术产业的投资，联邦政府将在5年内向[加拿大增长基金]投入150亿加元。
+**2022-04-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/411-8-scaled.jpg)
+[新唐人](https://www.ntdtv.com/gb/2022/04/10/a103396867.html)北京时间4月10日消息。近期，新一波中共病毒疫情在中共国各地爆发，许多省市封闭了其境内高速公路入口，导致全国难以计数的货车司机被困在路上，处境艰难。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1299.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
+目前全国76%的物流货运受阻，几乎陷入瘫痪。
 
+据陆媒报导，近期，中共国华东地区浙江、江苏、上海、山东、安徽、河北、辽宁、陕西等多省的地方政府升级了对货运车辆的管控，不仅货车司机受到苛刻的盘查而通行受阻，更有不少地方直接将自己辖区内的高速公路入口处关闭，导致全国沿海省份大片地区物流陷入瘫痪，上千万的驾驶司机受困。
 
-据悉，特鲁多试图通过该计划来达到每1加元的公共资金吸引3加元的私企投资，以支持该国发展绿色产业项目，并使投资者们能最终使用这些新型科技。
+据一线货运人员介绍，一些高速公路出入口虽然仍然开放，但对货车司机设置了重重限制，大量司机因行程码带星或是外地车牌而无法下高速。
 
-对此，今年的政府预算案将涉及一项总金额为20亿加元的关键矿产投资项目。而在俄罗斯入侵乌克兰后，加拿大将额外增加80亿加元的国防开支，用于本国军备的补充和升级。
+众多省市高速交通受阻也导致各地的养殖业者两头受困，一边原料进不来，一边自己的货也出不去。
 
-校对编辑：硫酸羟氯喹64
+（秘翻新闻 二丫编辑）
 
-发稿：青青
+发布:文橙
 
-原文链接： [https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

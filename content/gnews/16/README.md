@@ -2,25 +2,29 @@
 ---
 
 
-## “为乌克兰挺身而出” 筹款超百亿欧元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329042/)
+## 中日财经爆┃中共国3月份汽车产销同比下滑11.7%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329088/)
 
-作者：纽约香草山教育部 Naughty(文行)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月11日每日经济新闻报道，中汽协发布的最新数据显示，今年3月，汽车产销数据分别为224.1万辆和223.4万辆，同比下滑9.1%和11.7%；环比增长23.4%和28.4%。1—3月，汽车产销累计648.4万辆和650.9万辆。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-58.jpg)图片来源
+中共一汽集团计划于3月13日起停产其在长春的五大整车工厂，初步计划停产至3月16日，具体看疫情防控情况而定。但直到4月11日，一汽-大众长春工厂仍处于暂时停产状态。受此次疫情影响，根据乘联会数据，3月，一汽-大众广义乘用车批发销量为12.2万辆，同比下滑43.1%。
 
-当地时间4月9日，欧盟委员会主席乌苏拉·冯德莱恩在华沙表示，一项名为“为乌克兰挺身而出”的乌克兰难民全球认捐活动，已筹集到 101 亿欧元。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-57.jpg)
-组织者说，该活动由欧盟和加拿大总理特鲁多召集，旨在为乌克兰的国内流离失所者和饱受战争蹂躏的国家的难民筹集资金。该活动由与贫困作斗争的全球公民（Global Citizen）运动合作，包括周五的社交媒体集会和周六的认捐会议。
+中共国内众多城市爆发出现中共病毒（新冠病毒Covid-19）及毒疫苗后遗症，加之国际地缘政治不稳定因素显著增加，同时芯片短缺没有明显好转，特别是动力电池原材料价格快速上涨，推动了企业生产成本上涨，多数企业因此纷纷上调旗下产品销售价格，影响终端市场的销售。
 
-冯德莱恩补充说，一旦炸弹停止下落，将帮助乌克兰人民重建他们的国家，继续为乌克兰挺身而出。他还呼吁，西方对俄罗斯银行实施更多制裁，并停止购买俄罗斯石油。
+另外，中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费 ，高房价，零福利，高支出，房子和汽车成为高负债品，已无从过多消费支出，断供潮也是必至。
 
-参考链接：[Global pledging event raises 10.1 bn euros for Ukraine](https://www.france24.com/en/live-news/20220409-global-pledging-event-raises-10-1-bn-euros-for-ukraine)
+信息来源：【[快讯丨3月国内汽车销售223.4万辆 同比下滑11.7%】](https://me.mbd.baidu.com/r/Ej9R3Cj4UU?f=cp&amp;rs=3299755133&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b5369d800b4840a7&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：文真
-编辑：Jack Li文阳   
-审核：文真
-校正/发稿：Fei797
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,32 +2,45 @@
 ---
 
 
-## 如何面对中共人为制造的大饥荒
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329041/)
+## COVID-19疫苗副作用集萃（2022.4.11）：打完康希诺发烧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2329081/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/bb3b9ed52b8545abae73ea7027ff754d.jpg)
-4月10日大直播中，郭先生与战友分享中共以疫情为名，把老百姓隔离在家饿死，若是我们碰上这种情况应该如何面对。
+##### 整理|编辑：gardeniahu
 
-郭先生提到，一切的问题究其根本都是自己的原因。在俄乌战争中，乌克兰没有任何优势，但他们与俄罗斯殊死搏斗，有的一家人把孕妇送到边境，然后全家返回参与战争。这种勇气让全人类明白人之所以为人的意义。但是对于中共国的一些老百姓，有的人可以看着妻女卖淫，只为了一口饭吃。也有的人宁愿跳楼死去也不愿做出任何反抗，现在每天上海跳楼的超过上千人。一些曾经有地位有金钱的人现在在捡垃圾吃。郭先生提出了自己的解决方法，他说自己绝对不会在家等着饿死，一定要用尽全力对共产党造成灭顶打击。因为这是全人类的基本准则，当人的生命安全受到损害的时候可以采取一切方法进行正当防卫。上海广州等地目前具备甚至超过了正当防卫的一切条件。
+**雅典娜情报组《疫苗灾难收集专栏》**
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗副作用.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-有人大喊我们要吃饭，但没人敢喊我们要自由。假设有200万人上街游行，中共也无法将这些人全部杀光。香港的反抗让全世界看到中国人是可以拥有自由民主和一人一票的选举制度。那些活活等着饿死被共产党洗脑的人，一点不可怜甚至非常可恨。生而为人，自动放弃做人的一切尊严，甚至动物的求生本能。这种人死了，是老天开眼了。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+原文作者：就是我呀
 
+**疫情|新冠疫苗副作用     打完康希诺后发烧**
 
-撰稿、发布：骄子
+康希诺我真的会谢～你大爷
 
-* * *
+4号上午10：00打的第三针加强针，我问可不可以自己选，回复不行只能打康希诺，然后注意事项的啥的一概不说，到下午还生龙活虎的，结果晚上7：00左右感觉很冷，温度计量是37.5，夜里直接烧到39，全身哪哪都疼，简直要了老命了今天一天都保持在37.8度也不知道啥时候能退烧啊奉劝各位远离康希诺
 
-欢迎订阅我们的GNews账号：
+#康希诺
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+发布于04·05
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+精选评论
+
+\_阿粥i  回复:前天打的康希诺加强针，昨天发烧了一天，今天退烧了但是心悸呼吸困难，感觉人快没了
+
+猫苍       回复：我昨天打的，去的时候人家有问打哪个我还没接上话她说了一句年轻人应该打加强的。感谢我现在已经爬不起来了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗.png)图片来源：小红书
+参考链接：[打完康希诺发烧](https://www.xiaohongshu.com/discovery/item/624c1c35000000000102f607?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521304)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
