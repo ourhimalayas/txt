@@ -2,36 +2,27 @@
 ---
 
 
-## 中共秘密向塞尔维亚运送地对空导弹系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2324781/)
+## 比利时前首相居伊•弗霍夫施塔特：乌克兰人要死了！” 呼吁欧盟制裁普京身边的6000人
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2324929/)
 
-**撰稿：日本东京方舟农场  子辰**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+**环保部和比利时前首相居伊·弗霍夫施塔特批评欧盟对俄罗斯的制裁，称它们在独裁国家行不通。在欧洲议会的讲台上，他呼吁制裁俄罗斯独裁者弗拉基米尔·普京的亲信人员****6000 ****人。**
 
-4月10日，中共向俄罗斯盟友塞尔维亚运送了地对空导弹系统。此前美国警告塞尔维亚不要购买中共防空系统。
+**居伊·弗霍夫施塔特（Verhofstadt ）代表 211 位欧洲议会议员发言，并向欧盟外交和安全政策高级代表 Josep Borrell 递交了一封签名信。居伊·弗霍夫施塔特（Verhofstadt ）表示，之前的四项制裁方案均无效，并预计第五项制裁方案将无效。在评论已经在制定的第六套方案时，他说布查和马里乌波尔的乌克兰人不能再等待在战争中丧生的乌克兰人。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-196.jpg)（图片来自大纪元）
+[【援引连结】](https://news.liga.net/ua/politics/news/pri-avtokratii-ne-srabotaet-deputat-evroparlamenta-nazval-smeshnymi-sanktsii-protiv-rf)
 
-据美联社报导，媒体和军事专家表示，六架中共空军运-20运输机（Y-20）周六降落在塞尔维亚贝尔格莱德（Belgrade）民用机场。据报，这些运输机为塞尔维亚军队运送了中共的红旗-22（HQ-22）地对空导弹系统。
-
-据悉，这些运输机飞越了至少两个北约成员国，即土耳其和保加利亚领空运送了武器，而且此次运-20它们是集体飞行，不是单机飞行。
-
-塞尔维亚总统亚历山大‧武契奇（Aleksandar Vucic）确认了2019年商定的这款中程地对空导弹系统的交付。塞尔维亚将成为欧洲第一个使用这些中共导弹的国家。
-
-塞尔维亚曾在1990年代与其邻国交战。该国目前正在正式寻求获得欧盟成员资格。塞尔维亚使用俄罗斯和中共的武器，包括战机、作战坦克和其它装备。
-
-西方担心中俄对塞尔维亚的武装可能会鼓励这个巴尔干国家发动另一场战争，特别是针对在2008年宣布独立的前科索沃省（Kosovo）。塞尔维亚、俄罗斯和中共不承认科索沃的国家地位，而美国和大多数西方国家都承认。
-
-近年来，国际上越来越多的人清楚认识到，塞尔维亚就是中共在欧洲扩张和投资政策的重点攻坚国家。
-
-此外，这一消息早在4月9号，就被新中国联邦创始人郭文贵先生曝出，郭先生说，中共给塞尔维亚运送了红旗导弹系统，将是为了帮助俄罗斯侵略乌克兰进行大屠杀前的准备，这也是对欧盟及美国带来灾难的武器。郭先生同时预警，未来的两周，中共将在南亚和中东，布置新的东风15导弹系统。
-
-参考链接：
-1.[https://www.epochtimes.com/gb/22/4/10/n13708472.htm](https://www.epochtimes.com/gb/22/4/10/n13708472.htm)
-2.[https://gettr.com/post/p14dgst16f4](https://gettr.com/post/p14dgst16f4)
-
-总编：老孙
-校对发布：爱放飞
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

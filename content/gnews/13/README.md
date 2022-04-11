@@ -2,54 +2,53 @@
 ---
 
 
-## 马斯克在披露购买推特股份几天之后就提议重组订阅服务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2324918/)
+## 封城的上海居民对来访的副总理大喊“我们饿死了”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2325099/)
 
-翻译： Jenny Ball
+![Chinese vice premier Sun Chunlan visited Shanghai in early April 2022 when the city was in COVID-19 lockdown. (Screenshot by The Epoch Times)](https://img.theepochtimes.com/assets/uploads/2022/04/09/sun-chunlan-shanghai-april2022.jpeg)中国副总理孙春兰于 2022 年 4 月上旬访问了上海，当时该市处于 COVID-19 封锁状态。 （大纪元）
+据《大纪元时报》4月9日报道，中共国副总理孙春兰本周早些时候访问了上海，那里目前有数千万人因中共病毒而被封城，居民们从他们住宅的窗户中大喊：“没有食物了！”和“我们已经快饿死了！”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
+陪同孙一起的还有一群地方官员、摄影师、几辆黑色窗户的面包车和警车。然而，街道上空无一人。居民只能在自己的房间里看到她。有些人勇敢地从窗户或阳台上大声叫喊道：“能不能安排送一些蔬菜？”
 
+然而，从这个嘉定区居民发出的视频中可以看出，官员们没有任何反应，就好像什么也没听到一样。
 
+孙春兰是原统战部部长，于2018年被任命为副总理。在四位副总理中，她是唯的一位女性，也是年龄最大的一位。自中共病毒大流行以来，她一直在高调地到受灾城市访问，因而这并不是她第一次听到这样的叫喊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-109.png)埃隆·马斯克于 2022 年 3 月 22 日在德国格伦海德出席新的特斯拉电动汽车超级工厂的开幕式。帕特里克·普勒尔/通过路透社/文件照片
+在此次大规模检测和严厉的封锁中，孙春兰带着北京“坚定不移地坚持新冠清零政策，尽快打赢疫情防控阻击战！”的严厉信息前往上海。
 
-4 月 9 日（路透社） – Twitter的最大股东埃隆·马斯克周六建议，对这家社交媒体巨头的 Twitter Blue 高级订阅服务进行大量更改，包括削减其价格、禁止广告和提供加密货币狗狗币支付选项。
+自2020年中共病毒大流行以来，孙担任了“新冠使者”的非官方头衔，将北京的指令传达到各地的城市。3月下旬，她去了东北吉林省。在吉林市，公寓楼内的居民对她大喊“我们没有蔬菜！”。
 
-几天前，马斯克披露其购买了 Twitter 9.2% 的股份，他获得了董事会席位，此举让一些 Twitter 员工对其未来内容审核能力感到恐慌。
+2021年12月中旬，孙春兰访问了处于封锁状态的、有1200万人口的西安市。孙敦促市政府“迅速实现零病例”。在西安高新区，居民们对孙大声呼喊：“我要吃饭！”
 
-Twitter 表示，Twitter Blue 于 2021 年 6 月推出，是 Twitter 的首个订阅服务，按月订阅提供“对高级功能的独家访问”。它在美国、加拿大、澳大利亚和新西兰有售。
+早在2020年3月，当中共病毒在武汉爆发时，孙就去了武汉。在她访问期间居民大声喊道：“假的，假的，全是假的！”。随后，该居民小区就遭受了报复。整个街区都处于完全封锁状态，任何人都不得进出。
 
-在 Twitter 帖子中，电动汽车制造商特斯拉公司的负责人建议，注册 Twitter Blue 的用户应该比目前每月 2.99 美元支付的费用要低得多，并且应该获得一个认证复选标记，以及一个选择以当地货币支付方法。
+上海自4月1日起一直处于封锁状态。4月4日，孙春兰下令市政府“尽快实现全社会（隔离医院除外）的清零”。根据近日网上发布的消息，市政府发布通知称，封城将至少持续到5月1日。至于5月1日之后的情况，通知说，将在5月1日决定是开放还是继续封城。
 
-“价格可能应该是每月 2 美元左右，但提前 12 个月支付，并且，帐户在 60 天内没有得到复选标记（注意信用卡拒付），如果用于诈骗/垃圾邮件，则被暂停且不予退款”，马斯克在一篇文章中说。
+上海的许多街区都处于混乱状态。有些人无法得到治疗、食物严重不足、一些老人在没有家人陪伴的情况下死于老年机构、婴儿则因与父母的新冠病毒检测结果不同而被强行从父母身边带走。
 
-“而且没有广告”，马斯克建议道。 “如果 Twitter 依靠广告钱生存，大企业控制制定政策的权力就会大大增强。”
+还有视频显示，整卡车的供应食品被困在郊区，无法送到城中需要的人手中。人行道上还有腐烂的蔬菜和其他食物。此外，在临时隔离点，人们可以看到垃圾堆里堆满了一箱箱食物。
 
-马斯克还提出了用狗狗币支付的选项，并征求了 Twitter 用户的意见。
+简评：
 
-Twitter拒绝就马斯克的建议置评。
+自2020年初中共病毒爆发开始封城以来，中华大地各处人民已经经历了多次大规模的封城。每一次的封城都会看到相同的野蛮手法、看到人民遭受相同的苦难、还会看到相同的孙春兰去慰问（维稳）、最终也会听到人们在自家的监牢中发出的相同的“没有饭吃的”的呐喊。
 
-该公司已经允许人们使用比特币给他们最喜欢的内容创作者小费。Twitter 去年曾表示，它计划支持不可替代的代币( NFT )的身份验证，这些令牌是存在于区块链上的数字资产，例如图像或视频。
+同样的悲剧这两年在不同的城市，不同的时间反复地循环上演：一个城市的人一边为另一个受灾封城的人呐喊助威，一边庆幸自己的幸运，一边还为灾难的制造者中共歌功颂德的。但下一个被中共摧残的城市可能就是你的城市；下一个被焊死大门的可能就是你家；下一个无法得到医治的老人可能就是你的父母，下一个被强行带走的幼童可能就是你的孩子，下一个被打死的宠物可能就是你心爱的猫猫狗狗，下一个被强行关进方舱集中营的也许就是你和你的亲人，下一个被活活饿死送进中共早已准备好的火化炉的可能就是你、我、她，是每一个被中共绑架的中国人。国人需要醒来，国人需要抛弃自私，国人需要勇敢地站起来消灭邪恶的中共！
 
-马斯克还在他的推特账户上发起了一项民意调查——马斯克账户拥有超过 8100 万粉丝——询问该公司的旧金山总部是否应该被改造成无家可归者收容所，因为“没有人出现（在那里工作）”。该民意调查在一小时内获得了超过 300,000 张选票，其中 90% 的人回答“是”。
+新闻链接：[https://www.theepochtimes.com/we-are-starving-to-death-shanghai-residents-under-lockdown-shout-at-visiting-vice-premier\_4393493.html](https://www.theepochtimes.com/we-are-starving-to-death-shanghai-residents-under-lockdown-shout-at-visiting-vice-premier_4393493.html)
 
-注释：推特蓝（Twitter Blue）是每月订阅，提供对高级功能的独家访问，因此，您可以自定义您的 Twitter 体验。您需要使用有效的 Twitter Blue 订阅登录到您购买订阅的 Twitter 帐户，才能访问下面列出的功能和设置。
+翻译/简评：新街口
 
-新闻来源：[Musk proposes Twitter Blue subscription shake-up days after disclosing 9.2% Twitter stake](https://www.reuters.com/technology/musk-proposes-twitter-blue-subscription-shake-up-days-after-disclosing-92-2022-04-10/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+PR：Harvey（叶知秋）
 
 * * *
 
-审核：文乐
-校对：花羽
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

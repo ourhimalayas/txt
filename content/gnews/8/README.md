@@ -2,30 +2,29 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2324974/)
+## 今日盖特大V推荐 — 莫妮卡·克劳利（Monica Crowley）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2325191/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/fip09-z76ts-2.jpg)
+**盖特链接**：[https://gettr.com/user/monicacrowley](https://gettr.com/user/monicacrowley)
 
+**莫妮卡·克劳利自述：**
 
-校对：Stay文苑
+永远是一个快乐的战士。很荣幸曾担任财政部助理部长。🇺🇸以赛亚书55:8-9。Instagram: @monicacrowley\_
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ae444-z68fx-3.jpg)图片来源：网络
+**莫妮卡·克劳利简介：**
 
-编辑：Stay文苑
+莫妮卡·克劳利全名莫妮卡·伊丽莎白·克劳利（生于 1968 年 9 月 19 日）是美国财政部公共事务助理部长，政治评论员。
 
-发稿：Stay文苑
+莫妮卡·克劳利是前《福克斯新闻》的撰稿人（1996年～2017年），《华盛顿时报》的前在线评论编辑和外交关系委员会成员。
 
-新闻：[https://gettr.com/post/p14lrab6a7a](https://gettr.com/post/p14lrab6a7a)
-访谈：[https://gettr.com/post/p14m4oy50cc](https://gettr.com/post/p14m4oy50cc)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-8.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
