@@ -2,21 +2,24 @@
 ---
 
 
-## “别再找借口了”：德国外长发言支持增加对乌克兰的军事援助
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2329487/)
+## “Hey Hey Rise Up” 平克·弗洛伊德的新单曲荣登25个国家排行榜冠军
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2329534/)
 
 **撰稿：日本东京方舟农场 北极**
 
-据乌克兰市政厅报4月11日报道，德国外交部长安娜莱娜·贝尔博克（Annalena Berbok）在欧盟理事会会议前的新闻发布会上发言表示，“乌克兰需要更多的军事装备，尤其是重型武器。别再找借口了，现在是干实事的时候了。”
+据焦点报4月11日报道，英国摇滚乐队平克·弗洛伊德（Pink Floyd）和乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）合作的新单曲“Hey Hey Rise Up” 短短几天内荣登25个国家排行榜冠军。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1_ccexpress.png)德国外交部长安娜莱娜·贝尔博克（Annalena Berbok）。（图片来自市政厅报）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1_ccexpress-1.png)乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）在圣索菲亚大教堂前。（图片来自焦点报）
 
-贝尔博克表示，乌克兰需要更多的军事支持来抵抗俄罗斯的侵略，德国将与欧洲合作伙伴一起协同处理这个问题。
+上周五该单曲首发于Youtube，为了表达对乌克兰英勇抵抗俄罗斯军队入侵的行为致敬。短短几天来，荣登美国，英国，法国，德国，荷兰，比利时，澳大利亚，加拿兰，捷克共和国，芬兰，希腊，意大利，立陶宛，卢森堡，马耳他，巴拉圭，葡萄牙，新西兰，挪威，罗马尼亚，斯洛伐克，南非，瑞典等iTunes 排行榜第一名。
+
+这首歌是平克·弗洛伊德乐队时隔28年以来发布的第一支单曲。
 
 参考链接：
-[https://reurl.cc/k7GO9q](https://reurl.cc/k7GO9q)
+1.[https://reurl.cc/X4vRXa](https://reurl.cc/X4vRXa)
+2.[https://reurl.cc/nEWvV8](https://reurl.cc/nEWvV8)
 
-总编： 青城道姑
+总编：青城道姑
 发布：晓辉
 
  

@@ -2,24 +2,43 @@
 ---
 
 
-## 守卫切尔诺贝利的乌克兰士兵被失踪
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2330035/)
+## 美CDC在考虑延长运输网络口罩强制令
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2330175/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16496996671.png)[俄罗斯撤军后切尔诺贝利核电站“疯狂”的景象让乌克兰人震惊](https://www.youtube.com/watch?v=s5DJJADTwps)
-据美国商业内幕4月11日报道，守卫切尔诺贝利核电站的169名乌克兰国民警卫队士兵，被关在地下掩体中30天。现在乌克兰政府不知道这些士兵的下落。不知是否在俄罗斯军队撤离时，把他们带到了俄罗斯。
+白宫疫情防控的一位高级顾问周一（4月11日）表示，美国疾病控制和预防中心（CDC）正在考虑延长交通运输网络的口罩强制令。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/B-2.jpg)inkl.com
+阿什·贾（Ashish Jha）医生在参加NBC的 “今天 ”节目时，被问及将于4月19日到期的口罩强制令。
 
-乌克兰内政部长丹尼斯·莫纳斯基（Denys Monastyrskyy）说，自俄罗斯军队接管核电站以来，已有多份报道称俄罗斯士兵对核电站采取不负责任的态度。他们在森林里有毒的土壤中挖掘扎营。在俄罗斯士兵出现中毒症状后，撤离了核电站。
+贾医生说：“这是CDC的决定，我认为延长期限绝对是有可能的。”
 
-俄罗斯士兵还洗劫了该设施和乌克兰工作人员的私人财物。他们从所有乌克兰人所有的衣服和物品中寻找钱、贵重物品和电脑笔记本。“这里发生过抢劫”。俄罗斯军队偷走了实施的电脑和设备。
+美国的TSA口罩强制令（The Transportation Security Administration’s mask mandate ）要求在飞机、机场、公共汽车和铁路系统上旅行者强制戴口罩。其生效后，到期时间为2021年5月，之后被多次延长，目前的期限是到4月18日。
 
-乌克兰士兵被关在那里30天，没有足够的照明和食物，他们不被允许外出。 在俄罗斯占领军驻扎的最后一天，169名军人被从核电站带走。他们可能被作为战俘通过白俄罗斯带到俄罗斯。
+随着一个新的变种BA.2现在在包括美国在内的至少68个国家占主导地位，贾医生说CDC主任罗谢尔·瓦伦斯基（Rochelle Walensky）将根据该机构正在制定的科学框架，决定是否延长运输网络的口罩强制令。
 
-*责编：白夜*
+贾医生告诉NBC，尽管在上周有几个高调的COVID-19病例，但他 “现在并不过度关注 ”新变种BA.2。
 
-[原文链接](https://www.businessinsider.com/ukrainian-national-guardsmen-at-chernobyl-were-locked-in-bunker-2022-4?nr_email_referer=1&amp;utm_source=Sailthru&amp;utm_medium=email&amp;utm_content=Business_Insider_select&amp;pt=385758&amp;ct=Sailthru_BI_Newsletters&amp;mt=8&amp;utm_campaign=Insider%20Select%202022-04-11&amp;utm_term=INSIDER%20SELECT%20-%20ENGAGED%2C%20ACTIVE%2C%20PASSIVE%2C%20DISENGAGED%2C%20NEW)
+“我们必须非常仔细地观察这个问题。”他在NBC说，“显然，我从来不喜欢看到感染率上升。我认为我们必须小心，但我不认为这是一个我们必须过度关注的时刻。”
 
+世界卫生组织周一表示，它正在跟踪几十个冠状病毒高度传播的奥米克戎毒株的两个新亚型BA.4和BA.5的病例，以评估它们是否更具感染性或危险性。
 
+拜登总统上个月宣布，贾医生将成为新的白宫冠状病毒应对协调员。布朗大学公共卫生学院院长、执业内科医生的他接替杰弗里·赞茨（Jeffrey Zients）。
+
+**快评**：一边是各种实行了2年多的疫情限制与封锁的政策在逐步取消，一边是继续以新变种病毒等理由催打疫苗加强针，这是西方各国目前的普遍做法。
+
+相比中共国上海、长春，还有接下来的北京大规模核酸测试加封锁隔离导致民不聊生的做法，生活在西方国家的人们应该感到庆幸，但面对疫苗灾难，这不过是五十步与百步的关系。
+
+郭先生一再警告，不要看着限制取消就以为病毒没了，病毒依然存在。再强调，病毒是生物武器，疫苗就是病毒。少出门，出门还要做好防护。
+
+我们反对强制令，各种疫苗强制令在取消的过程中，政策有反复也可能，但最终都会取消。
+
+至于CCP病毒何时能消失？郭先生说灭共后。2025年会灭共。灭共才能拯救人类。
+
+在人类最黑暗的时刻，能健康地活下来，等到灭共的那一天是最重要的。
+
+参考链接：
+[https://www.newsmax.com/newsfront/tsa-mask-mandate-extension-possible/2022/04/11/id/1065221/](https://www.newsmax.com/newsfront/tsa-mask-mandate-extension-possible/2022/04/11/id/1065221/)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
