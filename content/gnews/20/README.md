@@ -2,71 +2,76 @@
 ---
 
 
-## 参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2325316/)
+## COVID-19疫苗副作用集萃（2022.4.11）–新冠疫苗副作用综合征
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2325386/)
 
-**参议员卢比奥媒体办公室： **
-在40多年后，#台湾关系法 和六项保证（Six Assurances）继续定义着美国和我们的民主盟友 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的关系。当我们在一起抗击 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 通过威胁和恐吓来获取权力的企图时，我们对台北的支持必须比以前强大。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
+#### 整理：gardeniahu
+编辑：gardeniahu
 
-
-> After more than 40 decades, the [#TaiwanRelationsAct](https://twitter.com/hashtag/TaiwanRelationsAct?src=hash&amp;ref_src=twsrc%5Etfw) & the Six Assurances continue to define 🇺🇸 relations w [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), our democratic ally. Our support for Taipei must be stronger than ever as we work together to combat the CCP's efforts to gain power through threats & intimidation.
-> — Senator Rubio Press (@SenRubioPress) [April 10, 2022](https://twitter.com/SenRubioPress/status/1513139736109494279?ref_src=twsrc%5Etfw)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-3.png)图片来源：雅典娜设计组(614)
 
 
-**众议院共和党领袖凯文·麦卡锡 ： **
-全世界都在关注和支持乌克兰。 我很自豪能够率领一个两党代表团前往该地区，以感谢我们的美军，表达我们对我们的战略伙伴波兰的支持，并直接从乌克兰人那里听取关于普京无端袭击的情况。 【附共和党领袖官网链接：波兰华沙——众议院共和党领袖凯文·麦卡锡本周末率领两党议员代表团前往波兰，与美国武装部队和该地区的盟国伙伴会面。 在华沙，该代表团会见了波兰总理、波兰国防部长和美国驻波兰大使。 在波兰东北部的其他地方，他们会见了乌克兰官员和民间社会、乌克兰难民和美军士兵。】
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+原文博主：我就瞅瞅
+
+帖子原文：
+
+**疫情|新冠疫苗副作用   新冠疫苗副作用综合征**
+
+科兴+辉瑞疫苗混打经历分享
+
+2021年十月在国内打了两针的辉瑞
+
+2022年三月在加拿大打了第一针辉瑞瑞
+
+－－打针咯－－
+
+特意选在周五下午去shoppers drug mart打疫苗，工作人员让我去consultant窗口咨询能否打辉瑞以及打几针。
+
+咨询后告知不能打booster，需要打两针辉瑞，两针间隔八个礼拜。
+
+填表，打针，留观十五分钟，回家。
+
+打针时医生说放松肌肉可以减轻之后的疼痛，打完疫苗72小时内有发烧的症状是正常的，但如果发现心脏或胸口不舒服就打811，救护车会接你去医院（数据显示99.98％的情况下都不会发生，年轻人更是不必担心）。
+
+－－修养中－－
+
+打完针当晚没啥感觉，第二天醒来上臂基本处于废掉的状态，肌肉全崩，一动就疼。
+
+打完针当晚没啥感觉，第二天醒来上臂基本处于废掉的状态，肌肉全崩，一动就疼。
+
+下午发困，意识模糊，体温从36.0升至37.2摄氏度，吃了一颗泰诺，睡了一下午。
+
+晚上畏寒，一夜都睡不好，做梦，梦里全是正在写的论文，一时分不清是论文让我睡不好还是疫苗。
+
+第三天，一切正常，手臂轻微疼痛。
+
+#辉瑞#辉瑞疫苗#辉瑞P和zer新冠疫苗#加拿大# 留学#留學#留学那些事#留学生
+
+#留学#留学生 #辉瑞疫苗 #留学 #辉瑞  #加拿大
+
+发布于03一28
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-20.png)图片来源：小红书
 
 
-
-> The world is watching and rooting for Ukraine. I'm proud to lead a bipartisan delegation to the region to thank our U.S. troops, to show our support for our strategic partner, Poland, and to hear directly from Ukrainians about Putin's unprovoked attacks. [https://t.co/QmH2j8Jl5j](https://t.co/QmH2j8Jl5j) [pic.twitter.com/jPclQeNx1t](https://t.co/jPclQeNx1t)
-> — Kevin McCarthy (@GOPLeader) [April 10, 2022](https://twitter.com/GOPLeader/status/1513104883536343042?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-3.png)图片来源：小红书
 
 
+参考链接：[新冠疫苗副作用综合征](https://www.xiaohongshu.com/discovery/item/6240d7900000000021038de4?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521017)
 
-**众议员迈克·沃尔茨：** 
-老板在行动。 [#团结](https://twitter.com/hashtag/%E5%9B%A2%E7%BB%93?src=hashtag_click) [#领导力](https://twitter.com/hashtag/%E9%A2%86%E5%AF%BC%E5%8A%9B?src=hashtag_click) 
-【转战地记者推文：这是互联网上见过的最棒的视频之一。（附视频，英国首相约翰逊突访基辅……画面显示约翰逊在泽连斯基陪同下行走于街头，参观战争死难者悼念点，与偶遇乌克兰人交谈……】
+*发布：wenly*
 
-
-
-> Boss move. [#Solidarity](https://twitter.com/hashtag/Solidarity?src=hash&amp;ref_src=twsrc%5Etfw) [#Leadership](https://twitter.com/hashtag/Leadership?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/NRL8UfVbyQ](https://t.co/NRL8UfVbyQ)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 10, 2022](https://twitter.com/michaelgwaltz/status/1513201722629533703?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本： **
-如果福奇拒绝谴责 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对全球大流行病的反应，我们将面临严重的问题。
-
-
-
-> We have a serious problem if Fauci refuses to condemn Communist China’s response to a global pandemic.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2022](https://twitter.com/MarshaBlackburn/status/1513216833607852036?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥：** 
-今天是圣周的开始，在此期间，世界各地的基督徒将敬拜耶稣的受难(钉十字架)、死亡和复活。 我妻子苏珊和我与你们一起，我们为那些不顾迫害而庆祝的人祈祷。
-
-
-
-> Today is the beginning of Holy week, during which Christians around the world will be worshipping the crucifixion, death and resurrection of Jesus. My wife Susan and I join with you, and we are praying for those who celebrate despite fear of persecution.
-> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513245450152943619?ref_src=twsrc%5Etfw)
-
-
-
-**美前国务卿迈克·蓬佩奥：**
-乌克兰没有要求美国提供一名士兵或海军陆战队员——他们只是要求提供他们需要的工具来帮助他们捍卫自己的主权。 美国拥有这些工具，拜登政府应该尽快提供这些工具。
-
-
-
-> Ukraine hasn't asked America for a single soldier or Marine – they've simply asked for the tools they need to help them defend their sovereignty. The United States has these tools, and the Biden Administration should make them available – quickly. [https://t.co/pDNEky9Q5N](https://t.co/pDNEky9Q5N)
-> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513303315022585863?ref_src=twsrc%5Etfw)
-
-
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

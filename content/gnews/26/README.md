@@ -2,35 +2,30 @@
 ---
 
 
-## 中共秘密向塞尔维亚运送地对空导弹系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2324781/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2324974/)
 
-**撰稿：日本东京方舟农场  子辰**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-10.png)
 
-4月10日，中共向俄罗斯盟友塞尔维亚运送了地对空导弹系统。此前美国警告塞尔维亚不要购买中共防空系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-196.jpg)（图片来自大纪元）
+校对：Stay文苑
 
-据美联社报导，媒体和军事专家表示，六架中共空军运-20运输机（Y-20）周六降落在塞尔维亚贝尔格莱德（Belgrade）民用机场。据报，这些运输机为塞尔维亚军队运送了中共的红旗-22（HQ-22）地对空导弹系统。
+编辑：Stay文苑
 
-据悉，这些运输机飞越了至少两个北约成员国，即土耳其和保加利亚领空运送了武器，而且此次运-20它们是集体飞行，不是单机飞行。
+发稿：Stay文苑
 
-塞尔维亚总统亚历山大‧武契奇（Aleksandar Vucic）确认了2019年商定的这款中程地对空导弹系统的交付。塞尔维亚将成为欧洲第一个使用这些中共导弹的国家。
+新闻：[https://gettr.com/post/p14lrab6a7a](https://gettr.com/post/p14lrab6a7a)
+访谈：[https://gettr.com/post/p14m4oy50cc](https://gettr.com/post/p14m4oy50cc)
 
-塞尔维亚曾在1990年代与其邻国交战。该国目前正在正式寻求获得欧盟成员资格。塞尔维亚使用俄罗斯和中共的武器，包括战机、作战坦克和其它装备。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-8.jpeg)
 
-西方担心中俄对塞尔维亚的武装可能会鼓励这个巴尔干国家发动另一场战争，特别是针对在2008年宣布独立的前科索沃省（Kosovo）。塞尔维亚、俄罗斯和中共不承认科索沃的国家地位，而美国和大多数西方国家都承认。
-
-近年来，国际上越来越多的人清楚认识到，塞尔维亚就是中共在欧洲扩张和投资政策的重点攻坚国家。
-
-此外，这一消息早在4月9号，就被新中国联邦创始人郭文贵先生曝出，郭先生说，中共给塞尔维亚运送了红旗导弹系统，将是为了帮助俄罗斯侵略乌克兰进行大屠杀前的准备，这也是对欧盟及美国带来灾难的武器。郭先生同时预警，未来的两周，中共将在南亚和中东，布置新的东风15导弹系统。
-
-参考链接：
-1.[https://www.epochtimes.com/gb/22/4/10/n13708472.htm](https://www.epochtimes.com/gb/22/4/10/n13708472.htm)
-2.[https://gettr.com/post/p14dgst16f4](https://gettr.com/post/p14dgst16f4)
-
-总编：老孙
-校对发布：爱放飞
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

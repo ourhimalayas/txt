@@ -2,18 +2,30 @@
 ---
 
 
-## 视频|参与方舱医院建设的建筑工人被强制与阳性患者共同隔离
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2325795/)
+## 中日财经爆┃伊隆•马斯克拒绝进入推特董事会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2325881/)
 
-制作：香草山视频部
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/伊隆•马斯克拒绝进入推特董事会.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fa57.foxnews.com%2Fstatic.foxbusiness.com%2Ffoxbusiness.com%2Fcontent%2Fuploads%2F2022%2F04%2F931%2F523%2FElon-Musk-Twitter-shareholders.jpg%3Fve%3D1%26tl%3D1&amp;imgrefurl=https%3A%2F%2Fwww.foxbusiness.com%)
 
-据中共墙内的自媒体视频揭露，在吉林长春，有一批建造方舱医院的建筑工人，被当地疫情防控部门强制安排与病毒阳性患者一起隔离。约有三、四十人被弃置在一个被封闭的空间内，隔离点有极高的交叉感染风险。目前，多人被确诊病毒阳性。当下，中共各地政府无力应对广泛爆发的疫苗灾难。在中共治下，中国整体社会人性的崩塌，正在使中国大陆变成人间炼狱。
+4月10日，成为推特公司最大股东的美国特斯拉公司首席执行官伊隆•马斯克宣布，他决定不加入推特董事会。
 
-发稿：qiutian（邱甜）
+马斯克先生收购了Twitter的9.2%股份后，推特公司于4月5日宣布将提名他进入董事会，并将于4月9日正式任命。
 
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+然而，推特公司首席执行官阿格拉瓦尔先生发布的一份内部文件称，马斯克先生在当天上午通知他不打算加入董事会。
+
+信息来源： 
+[マスク氏、ツイッター取締役就任を取りやめ（ロイター） – Yahoo!ニュース](マスク氏、ツイッター取締役就任を取りやめ)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
