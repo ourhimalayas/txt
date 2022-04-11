@@ -2,12 +2,16 @@
 ---
 
 
-## 截获的音频揭示了俄军杀害、强奸乌克兰平民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2330116/)
+## 五月花简报（04/11/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2330192/)
 
-04/09/2022 截获的俄军间的谈话音频揭示了俄军杀害、强奸乌克兰平民
+编辑：波士顿五月花—-思澈
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/E4F0FBC7-650E-42A7-8FAB-CA137AFB2450.jpeg)
+
+*发布：思澈*
+
+
 
  
 

@@ -2,26 +2,27 @@
 ---
 
 
-## 俄军中将叫嚣将对乌克兰发动全面攻势
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2329638/)
+## 卑诗省政府雇员仍被疫苗护照所困
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2329681/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16496941361.png)图片来源：路透社
-根据《华盛顿观察家报》4月11日的报道，周日，车臣统治者拉姆赞·卡德罗夫（Ramzan Kadyrov）表示，即将到来的俄罗斯军事攻势不仅将“解放”乌克兰顿巴斯（Donbas）地区的城市，还将解放乌克兰首都基辅和“所有其他城市”。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-这位俄罗斯车臣共和国领导人的评论是在社交媒体平台电报群（Telegram）上发布的视频中发表的，在视频中，俄罗斯总统普京的顶级强人之一卡德罗夫在他的办公室里讲话，他的桌子上摆放着地图和卫星图像。
+编译： 加拿大温哥华扬帆农场 – 晨熹
 
-视频中，卡德罗夫叫嚣：“将有一场猛攻…… 不仅对马里乌波尔，而且对其他地方、城市和村庄（发动攻势）。我们将首先全面解放卢甘斯克（Luhansk）和顿涅茨克（Donetsk），然后拿下基辅和所有其他城市”。
+据【真北方】4月7日报道， 在加拿大各省都已逐渐取消各项疫情限制的同时，卑诗省政府却仍然对其雇员执行严厉的疫苗接种政策。
 
-针对五角大楼上周的看法，认为基辅和切尔尼戈夫（Chernihiv）周围的俄罗斯部队已经“完成了从该地区的撤退”，进入了白俄罗斯“进行改装和补给”。 卡德罗夫对此表示，“我向你们保证：不会后退一步。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1326.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
 
-报道说，卡德罗夫上个月被普京提拔为俄罗斯军队中将，自俄罗斯2月入侵以来，他至少两次前往乌克兰。3月份，这位45岁的车臣领导人前往被围困的乌克兰东部城市马里乌波尔，提高俄罗斯作战部队的士气。这位车臣领导人声称，他与他的共和国的一个小型代表团一起旅行，向部队提供新制服和人道主义援助，并“熟悉俄罗斯部队在该市的详细行动计划”。
 
-*责编：白夜*
+报道称，卑诗省不仅计划扩大疫苗接种范围，还解雇了那些因未接种疫苗而被迫休假的政府雇员。尽管目前医疗系统面临严重的人员短缺，但该省卫生部仍然辞退了数千名未接种的医护人员。
 
-**新闻来源**
+然而与省政府政策相悖的是，维多利亚市于4月8日取消了对市政雇员疫苗强制接种的要求，据悉其他市政府也计划效仿。同时法院对强制接种和不当解雇的诉讼也仍在继续。
 
-[‘There will be an offensive’: Ramzan Kadyrov says Russian forces will take Kyiv](https://www.washingtonexaminer.com/news/there-will-be-an-offensive-ramzan-kadyrov-says-russian-forces-will-take-kyiv)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
 
  
 
