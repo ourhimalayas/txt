@@ -2,29 +2,27 @@
 ---
 
 
-## 樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324138/)
+## 波兰义工大赞《新中国联邦宣言》
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2324155/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：纽约香草山农场 文真
 
-据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
+波兰当地时间4月9日，法治基金-新中国联邦乌克兰救援前线队员妮可发布一则采访视频。视频中，她采访了一位来自波兰的义工。这位波兰义工表达了他对《新中国联邦宣言》的赞许，以及对新中国联邦灭共的强烈支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-5.jpg)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-4.jpeg)
 
-自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
+这位来自波兰的年轻义工，在新中国联邦帐篷中休息的时候，通过翻译器阅读了《新中国联邦宣言》。采访中表示，作为一名波兰人，他非常理解新中国人灭共的行动，波兰当初也经历了推翻共产政权的过程。他甚至赞同推翻中国共产党比当年的波兰共产政权更加艰难。
 
-Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
+这位年轻人意犹未尽地谈到，造成今天世界灾难的除了中国共产党本身，还有跟中共同流合污的所谓建制派“精英”，比如，达沃斯党。他们勾结在一起奴役世界人民。全世界人民应该联合起来，推翻中国共产党和与之勾结的一切专制政权与独裁者。
 
-最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
+参考链接：[来自乌克兰救援前线Nicole报道](https://gettr.com/post/p14eqk19a66)
 
-消息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-[Canadian pastor who was jailed for 51 days after speaking to trucker convoy alleges mistreatment in prison](https://www.foxnews.com/world/canadian-pastor-jailed-for-51-days-after-speaking-to-trucker-convoy-alleges-mistreatment-in-prison)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+总编：Zion文恩
+编辑：静言
+审核：Zion文恩
+校正/发稿：谐趣园
 
  
 

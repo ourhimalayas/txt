@@ -2,22 +2,29 @@
 ---
 
 
-## 中共国10多个省市高速管控封闭、3000万货车司机被困物流暂停
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2324026/)
+## 樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324138/)
 
-编辑：波士顿五月花—-思澈
+撰稿：东京樱花团/加一颗稻草
 
-中共国受疫情影响10多个省市高速公路收费站出入口暂时关闭，部分服务区也宣布关闭，部分网点暂停收派件。
+据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CADE095B-F0F1-4BEE-BADF-7F0B25644B9F.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-5.jpg)图片来源于本文链接
 
-目前上海，北京，广东，江苏，浙江，山东，陕西，湖北，河北，四川，河南，新疆，港澳台的高速公路暂时关闭管控，物流停滞。物流司机则表示，疫情封控区、管控区、防范区层层设卡，要绕行势必提高运输成本，再加上近期油价飙升，最近一周运输成本上涨了30%，跑一趟货要赔上千元。
+自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
 
-疫情的蔓延也给农资行业带来了严重影响，众多塑料、化工企业表示，他们已经进入“慢生活”状态，无论是生产、生活还是出行都进入了“动弹不得”的状态。
+Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
 
-素材来源：[https://finance.sina.com.cn/china/2022-04-10/doc-imcwipii3415431.shtml](https://finance.sina.com.cn/china/2022-04-10/doc-imcwipii3415431.shtml)
+最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
 
-发布：思澈
+消息来源：
+
+[Canadian pastor who was jailed for 51 days after speaking to trucker convoy alleges mistreatment in prison](https://www.foxnews.com/world/canadian-pastor-jailed-for-51-days-after-speaking-to-trucker-convoy-alleges-mistreatment-in-prison)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
 
  
 
