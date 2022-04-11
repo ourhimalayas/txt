@@ -15,68 +15,68 @@
 
 ---
 
-### [全球肥料短缺意味着2022年世界粮食种植将大幅缩减](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [4/10/2022 文贵直播：习让中国人没电、没水、没冰箱、没食品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [美高官前往所罗门群岛讨论中共国安全协议问题](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [巴基斯坦政局动荡的验证及爆料中共输出红旗导弹系统给塞尔维亚](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [中共在玩生死游戏](/content/gnews/3/README.md)
+### [大直播后记：中国人重回为了食物任人强奸的时代](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [樱花时政┃德沃尔尼科夫的上任或将重演无差别攻击的惨剧](/content/gnews/4/README.md)
+### [全球肥料短缺意味着2022年世界粮食种植将大幅缩减](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美高官前往所罗门群岛讨论中共国安全协议问题](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共在玩生死游戏](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花时政┃德沃尔尼科夫的上任或将重演无差别攻击的惨剧](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚](/content/gnews/5/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [中共血战即将到来](/content/gnews/6/README.md)
+### [中共血战即将到来](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [乌克兰市长：布查的尸体数量超过300具、一些遇难者受到残酷折磨](/content/gnews/7/README.md)
+### [乌克兰市长：布查的尸体数量超过300具、一些遇难者受到残酷折磨](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国国务院全球参与中心反击中共关于乌克兰的虚假宣传](/content/gnews/8/README.md)
+### [美国国务院全球参与中心反击中共关于乌克兰的虚假宣传](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用](/content/gnews/9/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马斯克在披露购买推特股份几天之后就提议重组订阅服务](/content/gnews/10/README.md)
+### [马斯克在披露购买推特股份几天之后就提议重组订阅服务](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：中共国的灾难从未停过](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [谢里夫将接替伊姆兰·汗成为下一任巴基斯坦总理](/content/gnews/12/README.md)
+### [谢里夫将接替伊姆兰·汗成为下一任巴基斯坦总理](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大直播后记：中共有计划的在上海和一线大城市制造死亡](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [警员认定阳性 持阴性报告夫妇被强行带至方舱](/content/gnews/14/README.md)
+### [警员认定阳性 持阴性报告夫妇被强行带至方舱](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [下届总理热门人选 谢里夫被视为“能干的”管理者](/content/gnews/15/README.md)
+### [下届总理热门人选 谢里夫被视为“能干的”管理者](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [任人宰割的羔羊](/content/gnews/16/README.md)
+### [任人宰割的羔羊](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [中共秘密向塞尔维亚运送地对空导弹系统](/content/gnews/17/README.md)
+### [中共秘密向塞尔维亚运送地对空导弹系统](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [中共除了导弹也俄塞送无人机](/content/gnews/18/README.md)
+### [中共除了导弹也俄塞送无人机](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [中共的二炮部队](/content/gnews/19/README.md)
+### [中共的二炮部队](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [中共在中东布置东风导弹](/content/gnews/20/README.md)
+### [中共在中东布置东风导弹](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
-
-### [4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
 
 ### [COVID-19疫苗副作用集萃（2022.4.11)–三针疫苗，浑身酸痛，发烧，腋下淋巴肿大](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`

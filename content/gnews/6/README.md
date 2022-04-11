@@ -2,8 +2,8 @@
 ---
 
 
-## 中共血战即将到来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324962/)
+## 中共在玩生死游戏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325006/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

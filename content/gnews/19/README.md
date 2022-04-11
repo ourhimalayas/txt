@@ -2,8 +2,8 @@
 ---
 
 
-## 中共的二炮部队
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324759/)
+## 中共除了导弹也俄塞送无人机
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324778/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

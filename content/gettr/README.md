@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 2:59 AM (UTC)`
+
+4/10/2022 Miles Guo: After taking power in 2012, Xi has got rid of his political opponents, oligarchs, and influential people in society via anti-corruption campaigns. He has become a dictator by establishing the National Security Commission in place of the Politburo Standing Committee. He has allied with various dictatorial regimes worldwide to create an axis alliance of totalitarianism, and meanwhile Xi has taken control of the energy countries in the Middle East and is helping Putin expand westward by invading Ukraine.<br/><br/>4/10/2022 文贵直播：习在2012年上台后用反腐除掉政敌、寡头和社会有影响力的人士，废常委立国安委当独裁者，在国际上拉拢各个独裁政权以打造极权轴心同盟，同时拿下中东能源国家，协助普京打乌克兰向西扩张<br/>
+![img](https://media.gettr.com/group35/getter/2022/04/11/02/f05d0121-bcb0-1531-8e2c-a6ff736a0b45/out.jpg)
+
+---
+
 `@miles 4/11/2022 2:22 AM (UTC)`
 
 4/10/2022 Miles Guo: Xi's purpose of leaving the Chinese people without electricity, water, fridges, and food is to test how the people would react in an extreme war scenario, and the CCP would even go so far as to reduce its $15 trillion GDP to $5 trillion. Finally, the CCP is going to create economic catastrophes to take out the US dollar!<br/><br/>4/10/2022 文贵直播：习让中国人没电、没水、没冰箱、没食品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿；中共最终要制造经济灾难从而干掉美元！
@@ -144,13 +151,6 @@
 
 2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣
 ![img](https://media.gettr.com/group6/origin/2022/04/10/12/42bc160f-a053-7b8b-70e2-b9c524550a0f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/10/2022 6:10 AM (UTC)`
-
-【Ukraine Rescue】04/08/2022 Nicole introduces Mr. Miles Guo to an NGO volunteer from Israel that He’s the leader of Whistleblowers’ Movement and is followed by hundreds of millions of Chinese people who aim to take down the CCP. The volunteer added:”Including people around the world, we are all for taking down the CCP!”<br/><br/>【乌克兰救援】04/08/2022 妮可向一位来自以色列非政府组织的志愿者介绍说，爆料革命的创始人是郭文贵先生，数以亿计的中国人都在跟随他推翻共产党，志愿者补充道：还有来自世界各地的人们，我们都赞同干掉中国共产党。
-![img](https://media.gettr.com/group48/getter/2022/04/10/06/2bbe72cf-b831-5f94-9b94-6a43e9482da8/out.jpg)
 
 ---
 
