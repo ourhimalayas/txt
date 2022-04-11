@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 10:17 AM (UTC)`
+
+【Ukraine Rescue】04/08/2022  A Ukrainian from California came to Medyka to help refugees. He thanked the ROLF and the NFSC for the facilities and services provided to his people. He said, "You guys have the best tent, the best coffee, and hardwood floors for little kids to play with. I love this place." He sent blessings to the new Chinese in Ukrainian.<br/><br/>【乌克兰救援】04/08/2022 一位来自美国加州的乌克兰人来到梅迪卡帮助难民。他感谢法治基金、新中国联邦为他的人民提供的设施和服务。他说“你们有最好的帐篷，最好的咖啡，还有硬木地板让小孩子玩耍。我爱这个地方。”他用乌克兰语给新中国人送上祝福。
+![img](https://media.gettr.com/group22/getter/2022/04/11/10/ea466dad-430e-24d9-d473-358e32fd3f19/out.jpg)
+
+---
+
 `@miles 4/11/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -146,12 +153,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月9日第36天当日救援统计：<br/>Medyka救援站接待：约340人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10435人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 36 - Date: April 9, 2022 :<br/>Medyka Rescue Station Reception: about 340 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10435 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group5/getter/2022/04/10/14/30249a65-509a-9309-2990-ba44a49cf5e7/5849f6219fa0ffd6d9fa8be814439da2.jpg)
-
----
-
-`@miles 4/10/2022 1:50 PM (UTC)`
-
-04/010/2022 on the 7th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on 4 Countries Rock Song Charts<br/>#3🥉 on 4 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#3🥉on Mongolia 🇲🇳 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>https://gnews.org/2322043/<br/><br/>Global iTunes Ranking Record of Week 1:<br/><br/>https://gnews.org/2322171/<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Armenia, Fiji, Laos, Turkey 🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
