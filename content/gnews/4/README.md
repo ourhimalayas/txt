@@ -2,8 +2,8 @@
 ---
 
 
-## 老杂毛会议明确说疫苗灾难要选对时间选对地点
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324461/)
+## 习要拉上流氓国家和西方文明全面对抗（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324483/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

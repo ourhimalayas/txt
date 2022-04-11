@@ -2,8 +2,8 @@
 ---
 
 
-## 习二怕吃茄子，不刷牙不洗澡模仿毛腊肉
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324402/)
+## 共产党什么时候计划这一切
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324474/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE
