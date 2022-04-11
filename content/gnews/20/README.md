@@ -2,32 +2,36 @@
 ---
 
 
-## 福奇表示美国人民要“各自”应对新冠病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326163/)
+## 美国会议员认为 全球大饥荒即将到来
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326200/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/福奇表示美国人民要各自应对新冠病毒.png)[图片来源](https://news.cctv.com/2021/12/31/ARTICnCCSPgkhblFndzOuwek211231.shtml)
+作者：纽约香草山 – 侠肝义胆
 
-美国传染病研究所(NIAID)的安东尼·福奇所长强调,尽管美国东部新冠感染病例再次增加,但“今后每个人都应该应对新冠感染”。
 
-福奇4月10日(当地时间)在美国ABC广播节目中说“新冠病毒不会完全消失,我们也不能完全消灭它”,“今后,美国人应该各自判断并应对这种危险”。
 
-美国彭博通讯社表示,“福奇所长的这种发言与2年前新冠肺炎疫情严重化时所说的表现完全不同,这与美国政府乔·拜登对新型冠状病毒的应对方针不同。” 这可能是因为奥密克隆株病毒的毒性比以前弱了,再加上大众对防疫措施的疲劳感越来越大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-美国政府目前认为“疫苗接种率和免疫达成率、治疗条件等考虑,新冠肺炎的情况并不严重”,因此解除了防疫措施。
 
-信息来源：
-[米ファウチ氏「新型コロナへの対応、今後は “各自”で」](https://news.yahoo.co.jp/articles/208ec51bd9319ccd77af32c1fc6d8894e516d71f)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+外媒4月8日报道，美国会参议员乔尼·恩斯特日前告诉媒体，全球正面临即将到来的粮食大饥荒。
+
+乔尼·恩斯特认为，由于俄乌战争和进入粮食种植季节后化肥、种子等供应短缺，今年乌克兰的粮食产量将减少40%～45%。而乌克兰和俄罗斯均是世界小麦和玉米的主要出口国。其中乌克兰的粮食出口关系全球至少4亿人的食品供应保障。俄乌战争带来的粮食供应危机，将引发全球粮食极剧短缺。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-7.jpg)
+随着俄乌战争的持续，越来越多的人开始关注战争可能引发的粮食危机问题。美国总统乔·拜登最近承认，美国粮食短缺也将成为现实。美国参议员科里·布克则警告说，粮食危机将导致全球数以千万的人饿死。世界粮食计划署的官员也表示，世界粮食供应正变得捉襟见肘、左支右绌，估计目前全球至少有2.85亿人处于饥饿之中。
+
+参考链接：
+[Newstarget 04月08日报道【国会议员现在使用“饥荒”和“饥饿”等词来描述即将发生的事情】](https://gettr.com/post/p14gatl510e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

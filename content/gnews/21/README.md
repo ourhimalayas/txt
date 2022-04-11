@@ -2,47 +2,37 @@
 ---
 
 
-## 伊丽莎白女王透露感染新冠让她“筋疲力尽”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2326148/)
+## 俄罗斯外汇评级降至“选择性违约”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326195/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-203.jpg)图片来自网络
-《SBS News》近日报道，英国女王伊丽莎白二世将在6月年满96岁，尽管她的助手淡化了疾病对她的影响，但她在2月感染了新冠后感到了严重的疲劳感。
+作者：香草山农场 – 柳是多水土透
 
-当时，白金汉宫说，接种新冠疫苗的女王有 “轻微的、类似感冒的症状”。
 
-但是她在纪念破纪录被的登基70周年之初被迫取消了一系列和外国外交官的会面。
 
-伊丽莎白女王在周三通过视频连接与工作人员和病人交谈时回忆了她的经历，以纪念在伦敦东部以她的名字命名的一个医院单位的开幕式。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-女王在与一位需要通风的前新冠患者交谈时，谈到了这种病毒。”它确实让人非常疲惫和精疲力竭，不是吗？
 
-“这个可怕的大流行，这不是一个好的结果。”
 
-伦敦皇家医院的病房在创纪录的时间内建成，以应对新冠患者的大量涌入。
+4月9日美国媒体报导，标准普尔当天将俄罗斯的外汇评级下调到了“选择性违约”的级别，原因是，他们认为，俄罗斯政府无法，也不愿履行对外国债券持有人承诺的风险在加大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-5.jpg)
+由于入侵乌克兰而受到的一系列制裁，俄罗斯可能面临一个多世纪以来的首次主权外部违约。标准普尔表示，未来几周，对俄罗斯的制裁可能会进一步加强，这会阻碍俄罗斯对外国债权人履行义务的意愿和能力。
 
-建筑团队赞扬了激励他们的 “敦刻尔克精神”，指的是第二次世界大战中英国和盟军在面对纳粹的进攻时从法国北部撤退。
-
-“谢天谢地，它仍然存在，”女王回答。
-
-“这很有趣，不是吗，当有一些非常重要的事情时，每个人如何一起工作并齐心协力，这太棒了，不是吗？”
-
-自从去年10月女王意外地在医院过夜后，对她健康的担忧一直挥之不去，后来宫里才透露。
-
-此后，她的公开露面变得越来越少，而且她还抱怨行动不便，因为她的96岁生日即将在4月21日到来。
-
-她将缺席本周圣餐节的宗教仪式，她的长子和继承人查尔斯王子将代表她出席。
-
-该仪式标志着复活节周末的开始，通常是她日程表上的一个固定项目。
+本周，俄罗斯安排以卢布偿还一笔本应以美元偿还的国际债券，对此，标普表示，他们不预期投资者能够将这些卢布付款转换成与最初到期金额等值的美元，也不期望政府在30天的宽限期内会转换这些付款。而当他们认为债务人选择性地拖欠了特定类型的义务，但将继续及时履行其他义务时，就会给予选择性违约评级。
 
 参考链接：
+[S&P cuts Russia’s foreign currency rating to ‘selective default’](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
 
-[https://www.sbs.com.au/news/article/queen-elizabeth-reveals-covid-19-left-her-exhausted/tud7ji31e](https://www.sbs.com.au/news/article/queen-elizabeth-reveals-covid-19-left-her-exhausted/tud7ji31e)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-*编辑：金生水*
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
 
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

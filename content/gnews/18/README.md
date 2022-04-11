@@ -2,36 +2,53 @@
 ---
 
 
-## 美国会议员认为 全球大饥荒即将到来
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326200/)
+## COVID-19疫苗副作用集萃（2022.4.11）–辉瑞疫苗第三针的反应
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326210/)
 
-作者：纽约香草山 – 侠肝义胆
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
+整理/编辑：gardeniahu
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-外媒4月8日报道，美国会参议员乔尼·恩斯特日前告诉媒体，全球正面临即将到来的粮食大饥荒。
-
-乔尼·恩斯特认为，由于俄乌战争和进入粮食种植季节后化肥、种子等供应短缺，今年乌克兰的粮食产量将减少40%～45%。而乌克兰和俄罗斯均是世界小麦和玉米的主要出口国。其中乌克兰的粮食出口关系全球至少4亿人的食品供应保障。俄乌战争带来的粮食供应危机，将引发全球粮食极剧短缺。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-7.jpg)
-随着俄乌战争的持续，越来越多的人开始关注战争可能引发的粮食危机问题。美国总统乔·拜登最近承认，美国粮食短缺也将成为现实。美国参议员科里·布克则警告说，粮食危机将导致全球数以千万的人饿死。世界粮食计划署的官员也表示，世界粮食供应正变得捉襟见肘、左支右绌，估计目前全球至少有2.85亿人处于饥饿之中。
-
-参考链接：
-[Newstarget 04月08日报道【国会议员现在使用“饥荒”和“饥饿”等词来描述即将发生的事情】](https://gettr.com/post/p14gatl510e)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-15.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+原文作者：缪莎爱
 
+**疫情|新冠疫苗副作用   辉瑞第三针的反应**
+
+#辉瑞第三针 发烧比以往来的更快一些。
+
+15点接种，晚上10点多就发烧了。前两针都是第二天中午之后才发烧。而且新的副作用有想吐，拉稀，乳腺疼（听同学说也有可能是腋下淋巴疼）目前37.8。只吃了日常的安眠药，没有吃退烧药，只贴着退热贴。
+
+希望可以睡个觉迎接明天更加难受的一天（是的，疫苗引起的发热并不会像普通感冒流感一样睡一觉就好。）我就是那个辉瑞三针，每次都发烧的人。
+
+我男朋友和我今天同时打的，目前没有什么不适“他三针都没有发烧。真是体会到了体质的差别。
+
+#辉瑞第三针
+
+#日本
+
+#发烧
+
+发布于04.01
+
+精选评论
+
+小黄鸡叽叽     回复:我礼拜三上午打的，晚上的时候手已经痛得抬不起来了第二天手疼和头疼/涨，低烧(37.2~37.6)，吃了一天扑热息痛。今天起来没事了，手碰到会痛，乳腺有点痛（揉了揉感觉好了点）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1217.png)图片来源：小红书
+参考链接：[辉瑞第三针的反应](https://www.xiaohongshu.com/discovery/item/6245dbdc000000000102df6d?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521243)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
