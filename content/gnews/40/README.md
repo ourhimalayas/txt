@@ -2,29 +2,25 @@
 ---
 
 
-## 中共不灭 灾难不止
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2325330/)
+## 加拿大央行上调银行同业拆借利率
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
 
-作者：纽约香草山农场 晓仙女
+采编：加拿大温哥华扬帆农场 – 文莱
 
-在4月10日大直播中，郭文贵先生用事实详细说明，导致中国百年灾难的罪魁祸首就是中国共产党。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-11-at-9.29.46-AM.png)
+据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
 
-中共制造的灾难一直存在，从来没有结束过。中国共产党前30年，从1949到1979年，毛泽东报复整个中国，“没有矛盾制造矛盾”，“用人民斗人民”。文化大革命让许多人一生痛苦。改革开放后30年，从1980到2010年，以朱镕基为首的中共盗国贼家族侵占国有资产，遣散国有企业员工，让下岗工人自生自灭。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
-当下中国正在发生的灾难，是共产党制毒放毒、制造并推广毒疫苗造成的后果。中共用核酸检测统治民众，封城封楼，实行网格化管控。
 
-郭先生说，上海、吉林、深圳的灾难，才刚刚开始。中国将进入更大的灾难。只有消灭邪恶共产党，灾难才能停下来。
+报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
 
-参考链接：[2022年4月10日 文贵大直播](https://gettr.com/post/p14iwpvf134)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+发稿：青青
 
-总编：文真
-编辑：Ivy001
-审核：文真
-校正/发稿：谐趣园
+原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
  
 

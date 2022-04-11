@@ -2,40 +2,25 @@
 ---
 
 
-## 欧盟与欧佩克会面呼吁增加石油产量
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2328034/)
+## “为乌克兰挺身而出” 筹款超百亿欧元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329042/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山教育部 Naughty(文行)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+当地时间4月9日，欧盟委员会主席乌苏拉·冯德莱恩在华沙表示，一项名为“为乌克兰挺身而出”的乌克兰难民全球认捐活动，已筹集到 101 亿欧元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-57.jpg)
+组织者说，该活动由欧盟和加拿大总理特鲁多召集，旨在为乌克兰的国内流离失所者和饱受战争蹂躏的国家的难民筹集资金。该活动由与贫困作斗争的全球公民（Global Citizen）运动合作，包括周五的社交媒体集会和周六的认捐会议。
 
+冯德莱恩补充说，一旦炸弹停止下落，将帮助乌克兰人民重建他们的国家，继续为乌克兰挺身而出。他还呼吁，西方对俄罗斯银行实施更多制裁，并停止购买俄罗斯石油。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3B54FLLC7JORZGOGSDW4SSWJGA.jpg)
+参考链接：[Global pledging event raises 10.1 bn euros for Ukraine](https://www.france24.com/en/live-news/20220409-global-pledging-event-raises-10-1-bn-euros-for-ukraine)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-资料来源：路透社
-
-布鲁塞尔，4 月 11 日（路透社）——欧盟官员将于周一在维也纳与欧佩克代表举行会谈，呼吁生产国集团增加产量，同时欧盟考虑对俄罗斯石油实施潜在制裁。
-
-在华盛顿和布鲁塞尔对莫斯科实施制裁后，欧佩克拒绝了美国和国际能源署增加原油产量以降低价格的呼吁，该价格在上个月达到了 14 年高点。
-
-由石油输出国组织和包括俄罗斯在内的其他产油国组成的欧佩克+将在 5 月份将产量提高约 432,000 桶/日。
-
-周一下午的欧盟-欧佩克会议是双方于 2005 年发起的最新一次对话。
-
-迄今为止，俄罗斯石油已被排除在欧盟制裁之外。但在 27 个国家的集团上周同意制裁俄罗斯煤炭供应之后，一些欧盟高级官员表示，石油可能是下一个目标。
-
-爱尔兰、立陶宛和荷兰外长周一在抵达卢森堡与欧盟外长会晤时表示，欧盟委员会正在起草对俄罗斯实施石油禁运的提案。
-
-与欧洲相比，对俄罗斯供应的依赖程度较低的澳大利亚、加拿大和美国已经禁止购买俄罗斯的石油。
-
-鉴于欧盟国家更高的依赖性以及此举可能推高欧洲已经很高的能源价格，欧盟国家在是否效仿的问题上存在分歧。
-
-欧盟预计，根据其应对气候变化的计划政策，到 2030 年，其石油使用量将比 2015 年减少 30%——尽管在短期内，禁运将引发用替代供应替代俄罗斯石油的冲刺。
-
-🔗 [https://www.reuters.com/business/energy/eu-meets-opec-amid-calls-oil-output-increase-2022-04-11/](https://www.reuters.com/business/energy/eu-meets-opec-amid-calls-oil-output-increase-2022-04-11/)
-
-责任编辑、发布： Shuizhuyu
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：Fei797
 
  
 

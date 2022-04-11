@@ -2,28 +2,34 @@
 ---
 
 
-## 佩洛西染疫和蔡英文密接的背后原因
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329282/)
+## 樱花时政┃清零政策一盘棋 郎咸平母亲施救不及离世
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329485/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-455.jpg)
-4月10日大直播中，郭先生与战友分享美国众议员长佩洛西突然中共病毒阳性，以及台湾总统蔡英文也几乎在同时成为中共病毒密接者的背后原因。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+出生于台湾，活跃于中共国的财经媒体界经济学者郎咸平今日（4月11日）发文证实，他98岁的母亲因为等不到核酸检测报告，在上海医院急诊室门口苦等4小时后过世。郎咸平悲痛表示：“因社区封闭，所以我也没有见到我妈妈最后一面。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-113.png) [图片来源](https://www.ntdtv.com/gb/2022/04/11/a103397371.html)
+郎咸平和母亲住在上海，他下午在其微博账号中证实，网传有关其母亲过世的消息是真的。他表示，他和哥哥目前都很悲痛，悲剧本身可以避免的，他的母亲高龄98岁，肾脏本来就有点衰竭，按照过去的诊断，只要打一针就好了。
 
-据郭先生了解，佩洛西刚刚宣布要访问台湾，中共随即发送了死亡威胁，若佩洛西敢去台湾，那中共就会马上打台湾。紧接着佩洛西和蔡英文俩人，一个阳性，一个成为密接，其背后的原因是，美国根本没有准备好挑起这场战争，中共把美国推到了罪魁祸首的境地，中共赵立坚声称，美国要为这场战争付出一切代价。郭先生提到西方政治的原因，会考虑后果，美国已经相信中共真的不是在说大话，若真要因为此次访台而把台湾打烂了，后果不堪设想。但中共并不会考虑什么后果，郭先生说可能随着下一波乌克兰被猛烈无人机袭击，同时国内完成了对上海广州等地的压力测试，该转出的资金都转出后，对台湾的入侵也就在那个时间点全面开始。
+郎咸平进一步称：“只是因为上海严格规定必须要做核酸后才能就医，我妈妈在三甲医院当场做的核酸竟然4个小时都没出结果，我深感震惊。我妈妈在医院急诊室门口等待了四个小时候，永远离我而去了。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1321.png)
+此前，4月4日，郎咸平在微博还大肆赞扬清零政策，全民核酸，全国一盘棋。
 
-撰稿、发布：骄子
+时代，压在别人身上就是彩虹，压在自己身上就是暴雨。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1322.png)
 
-欢迎订阅我们的GNews账号：
+信息来源：[经济学家郎咸平母亲急诊室门口等核酸拖4小时过世！他哀痛证实](https://www.ettoday.net/news/20220411/2227317.htm)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

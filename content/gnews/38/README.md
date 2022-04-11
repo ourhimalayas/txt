@@ -2,27 +2,25 @@
 ---
 
 
-## “上海帮” 名存实亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2325393/)
+## 加拿大投巨资以推动绿色科技产业
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2328248/)
 
-作者：纽约香草山教育部 Naughty(文行)
+采编/撰稿：加拿大温哥华扬帆农场 – 重生之鹰
 
-郭文贵先生在4月10日大直播中提到，现在还在谈论“上海帮”的人太无知，习近平现在眼里根本就没有上海帮。
+据[多伦多太阳报]4月6日报道，为吸引国内外私有企业对新型绿色技术产业的投资，联邦政府将在5年内向[加拿大增长基金]投入150亿加元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-11-at-9.32.02-AM-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1299.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
-郭先生爆料称，从2019年11月份起，江泽民、朱镕基、曾庆宏的所有警卫，从过去的固定制改为每月制或随时调整制。他们的保镖他们自己都不认识。这些警卫全部由习近平的大秘朱少军亲自管理，全部都是山西人和河南人。
 
-郭先生指出，所谓上海帮的朱镕基是个大流氓，大政治骗子，他甚至都不是上海人。江泽民太老了，儿孙又不成器，只有曾庆宏是个大人物，但他已经完全被习控制，全家人也都被严密监控。上海现在从上到下都是习的人。上海帮已经不复存在。
+据悉，特鲁多试图通过该计划来达到每1加元的公共资金吸引3加元的私企投资，以支持该国发展绿色产业项目，并使投资者们能最终使用这些新型科技。
 
-参考链接：[2022年4月10日 文贵大直播](https://gettr.com/streaming/p14iwpvf134)
+对此，今年的政府预算案将涉及一项总金额为20亿加元的关键矿产投资项目。而在俄罗斯入侵乌克兰后，加拿大将额外增加80亿加元的国防开支，用于本国军备的补充和升级。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+校对编辑：硫酸羟氯喹64
 
-总编：文真
-编辑：玫瑰圓  
-审核：文真
-校正/发稿：谐趣园
+发稿：青青
+
+原文链接： [https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
  
 

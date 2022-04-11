@@ -2,29 +2,29 @@
 ---
 
 
-## 樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324138/)
+## 中共不灭 灾难不止
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2325330/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：纽约香草山农场 晓仙女
 
-据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
+在4月10日大直播中，郭文贵先生用事实详细说明，导致中国百年灾难的罪魁祸首就是中国共产党。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-5.jpg)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-11-at-9.29.46-AM.png)
 
-自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
+中共制造的灾难一直存在，从来没有结束过。中国共产党前30年，从1949到1979年，毛泽东报复整个中国，“没有矛盾制造矛盾”，“用人民斗人民”。文化大革命让许多人一生痛苦。改革开放后30年，从1980到2010年，以朱镕基为首的中共盗国贼家族侵占国有资产，遣散国有企业员工，让下岗工人自生自灭。
 
-Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
+当下中国正在发生的灾难，是共产党制毒放毒、制造并推广毒疫苗造成的后果。中共用核酸检测统治民众，封城封楼，实行网格化管控。
 
-最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
+郭先生说，上海、吉林、深圳的灾难，才刚刚开始。中国将进入更大的灾难。只有消灭邪恶共产党，灾难才能停下来。
 
-消息来源：
+参考链接：[2022年4月10日 文贵大直播](https://gettr.com/post/p14iwpvf134)
 
-[Canadian pastor who was jailed for 51 days after speaking to trucker convoy alleges mistreatment in prison](https://www.foxnews.com/world/canadian-pastor-jailed-for-51-days-after-speaking-to-trucker-convoy-alleges-mistreatment-in-prison)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+总编：文真
+编辑：Ivy001
+审核：文真
+校正/发稿：谐趣园
 
  
 

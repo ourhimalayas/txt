@@ -2,38 +2,26 @@
 ---
 
 
-## 有声|俄导弹袭击乌克兰火车站致50平民丧生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329151/)
+## 日本和菲律宾签署国防协议应对中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329421/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
-据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
+作者：银河系农场 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月9日，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47-1.png)GNEWS
+自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为位于同海域的国家，日本和菲律宾希望共同协商解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约，考虑互相提供对方军队的供应共享协议，该协议还包括收购和交叉服务。
 
-另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
+据悉，日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。菲律宾是继印度尼西亚之后，与日本举行二加二会议的第二个东南亚国家。
 
+参考链接：[Japan, Philippines to aim for new defense cooperation pact](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-文字版原文：[俄导弹袭击乌克兰火车站致50平民丧生](https://gnews.org/zh-hans/2318796/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：Ivy001
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

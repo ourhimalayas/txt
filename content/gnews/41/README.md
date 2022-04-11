@@ -2,71 +2,46 @@
 ---
 
 
-## 参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2325316/)
+## 中共非法器官移植,医护人员充当侩子手
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2327567/)
 
-**参议员卢比奥媒体办公室： **
-在40多年后，#台湾关系法 和六项保证（Six Assurances）继续定义着美国和我们的民主盟友 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的关系。当我们在一起抗击 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 通过威胁和恐吓来获取权力的企图时，我们对台北的支持必须比以前强大。
+#### 【雅典娜观察】和您一起洞察世界
 
+整理：等风来
+编辑：文泓
 
-
-> After more than 40 decades, the [#TaiwanRelationsAct](https://twitter.com/hashtag/TaiwanRelationsAct?src=hash&amp;ref_src=twsrc%5Etfw) & the Six Assurances continue to define 🇺🇸 relations w [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), our democratic ally. Our support for Taipei must be stronger than ever as we work together to combat the CCP's efforts to gain power through threats & intimidation.
-> — Senator Rubio Press (@SenRubioPress) [April 10, 2022](https://twitter.com/SenRubioPress/status/1513139736109494279?ref_src=twsrc%5Etfw)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1261.png)图片来源：ANU & 雅典娜设计组
 
 
-**众议院共和党领袖凯文·麦卡锡 ： **
-全世界都在关注和支持乌克兰。 我很自豪能够率领一个两党代表团前往该地区，以感谢我们的美军，表达我们对我们的战略伙伴波兰的支持，并直接从乌克兰人那里听取关于普京无端袭击的情况。 【附共和党领袖官网链接：波兰华沙——众议院共和党领袖凯文·麦卡锡本周末率领两党议员代表团前往波兰，与美国武装部队和该地区的盟国伙伴会面。 在华沙，该代表团会见了波兰总理、波兰国防部长和美国驻波兰大使。 在波兰东北部的其他地方，他们会见了乌克兰官员和民间社会、乌克兰难民和美军士兵。】
+据美国新闻网站Axios星期一报道，2005年，以色列心脏移植科主任雅各布·拉维的一名病人，按照两周前就已获知的确切日期，前往中国接受了心脏移植手术。这意味着有人必须在那个确切的日子里死去。
 
+4月4日，拉维跟澳大利亚国立大学学者马修·罗伯逊合作，在美国医学期刊《美国移植杂志》发表了一篇经同行审议的有关中国医护人员在未遵守医学标准程序的情形下进行器官移植的研究报告。
 
+研究报告说，死亡捐赠者规则（简称DDR）是移植伦理的基础。**该规则规定，在捐赠者死亡并被正式宣布死亡之前，不得开始器官摘取，同样，器官摘取不得导致捐赠者死亡。**
 
-> The world is watching and rooting for Ukraine. I'm proud to lead a bipartisan delegation to the region to thank our U.S. troops, to show our support for our strategic partner, Poland, and to hear directly from Ukrainians about Putin's unprovoked attacks. [https://t.co/QmH2j8Jl5j](https://t.co/QmH2j8Jl5j) [pic.twitter.com/jPclQeNx1t](https://t.co/jPclQeNx1t)
-> — Kevin McCarthy (@GOPLeader) [April 10, 2022](https://twitter.com/GOPLeader/status/1513104883536343042?ref_src=twsrc%5Etfw)
+两位研究者对发表在中国科学期刊上的2838篇与中国移植相关的医学论文进行取证，**最后从****71****篇中找到了证据，证明被摘取心脏或肺的供体未被正确宣布已经脑死亡**。
 
+**拉维医生说，为移植而进行的器官采购只能在确定脑死亡后才能开始，否则器官获取手术本身就成为行刑的一部分。**
 
+一位不具名的美国医生解释，**要确认一名患者脑死亡，不仅要看到脑电波已经走平，而且需要三名神经内科医生的签名。**
 
-**众议员迈克·沃尔茨：** 
-老板在行动。 [#团结](https://twitter.com/hashtag/%E5%9B%A2%E7%BB%93?src=hashtag_click) [#领导力](https://twitter.com/hashtag/%E9%A2%86%E5%AF%BC%E5%8A%9B?src=hashtag_click) 
-【转战地记者推文：这是互联网上见过的最棒的视频之一。（附视频，英国首相约翰逊突访基辅……画面显示约翰逊在泽连斯基陪同下行走于街头，参观战争死难者悼念点，与偶遇乌克兰人交谈……】
+拉维说，**在研究报告发现的****71****个案例中，供体大脑受损的原因不明，脑死亡的测试并没有在他们摘取器官的手术之前进行**。从71篇中国医学论文中截取的论文片段没有对脑死亡确认的任何描述，有的只是为了确保器官能有效移植而采取的供氧紧急措施的经验介绍。
 
+**罗伯逊指出，采购器官就是死亡的原因。并推测，是医护人员在执行死刑。**而中共官方声明，这些都是囚犯。
 
+这篇论文中检视的71份报告都是在1980年到2015年间发表的，共涉及中国56家医院，其中12家是军队或准军事医院，遍及中国15个省、33个城市。2015年之后查不到有同类报告。
 
-> Boss move. [#Solidarity](https://twitter.com/hashtag/Solidarity?src=hash&amp;ref_src=twsrc%5Etfw) [#Leadership](https://twitter.com/hashtag/Leadership?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/NRL8UfVbyQ](https://t.co/NRL8UfVbyQ)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 10, 2022](https://twitter.com/michaelgwaltz/status/1513201722629533703?ref_src=twsrc%5Etfw)
+拉维和罗伯逊的研究报告说，中国被认为是世界第二大移植国家，仅次于美国。**但是人权研究人员认为，中国的移植数量甚至超过美国。**
 
+**报告说，中国的医院继续宣传移植等待时间为几周，而美国的等待时间以月和年为单位。**
 
+参考链接：[研究报告：中国医生曾参与违反医学准则的囚犯器官摘取](https://www.voachinese.com/a/organ-procurement-in-china-describe-procuring-an-organ-from-a-donor-without-first-performing-a-test-/6521581.html)
 
-**参议员玛莎.布莱克本： **
-如果福奇拒绝谴责 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对全球大流行病的反应，我们将面临严重的问题。
-
-
-
-> We have a serious problem if Fauci refuses to condemn Communist China’s response to a global pandemic.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2022](https://twitter.com/MarshaBlackburn/status/1513216833607852036?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥：** 
-今天是圣周的开始，在此期间，世界各地的基督徒将敬拜耶稣的受难(钉十字架)、死亡和复活。 我妻子苏珊和我与你们一起，我们为那些不顾迫害而庆祝的人祈祷。
-
-
-
-> Today is the beginning of Holy week, during which Christians around the world will be worshipping the crucifixion, death and resurrection of Jesus. My wife Susan and I join with you, and we are praying for those who celebrate despite fear of persecution.
-> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513245450152943619?ref_src=twsrc%5Etfw)
-
-
-
-**美前国务卿迈克·蓬佩奥：**
-乌克兰没有要求美国提供一名士兵或海军陆战队员——他们只是要求提供他们需要的工具来帮助他们捍卫自己的主权。 美国拥有这些工具，拜登政府应该尽快提供这些工具。
-
-
-
-> Ukraine hasn't asked America for a single soldier or Marine – they've simply asked for the tools they need to help them defend their sovereignty. The United States has these tools, and the Biden Administration should make them available – quickly. [https://t.co/pDNEky9Q5N](https://t.co/pDNEky9Q5N)
-> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513303315022585863?ref_src=twsrc%5Etfw)
-
-
-
-
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
