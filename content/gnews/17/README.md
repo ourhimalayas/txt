@@ -2,36 +2,22 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/04/11
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2329983/)
+## 守卫切尔诺贝利的乌克兰士兵被失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2330035/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1329.png)
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16496996671.png)[俄罗斯撤军后切尔诺贝利核电站“疯狂”的景象让乌克兰人震惊](https://www.youtube.com/watch?v=s5DJJADTwps)
+据美国商业内幕4月11日报道，守卫切尔诺贝利核电站的169名乌克兰国民警卫队士兵，被关在地下掩体中30天。现在乌克兰政府不知道这些士兵的下落。不知是否在俄罗斯军队撤离时，把他们带到了俄罗斯。
 
-- 上海所谓大白和居委会人员以送“菜”名义要求陪睡。北方支援上海抗疫人员出征前的口号：睡上海姑娘去咯！
-- 长春有战友去管委会，目睹领导把手放女孩屁股上。
-- 人的基本生存权: 吃饭、睡觉、说话。任何人侵犯就应站起来反抗。东北和上海的男人应该勇战站出来, 捍卫老婆女儿。
-- 习近平曾说过“中国竟无一人是男儿”。他们可以随意践踏中国女性。
-- 俄罗斯准备对乌克兰下狠手，俄军柴可基夫可能考虑生物武器、导弹、地面攻击等，并运用“指东打西”战术，可能打基辅，直奔泽连斯基。中共送去武器，未来中东和欧洲可能都会变成火海。
-- 接下来将是北京的测试。
-- 攻台时间可能在五月以前。
-- 大宗贸易突然逆转，全球商品供应链情况糟糕。
-- 作为新中国联邦人感到幸福，七哥继续为战友“挣钱”，乌克兰前线救援战友每时每刻在捍卫中国人形象，保卫中国人的安全和利益。
+乌克兰内政部长丹尼斯·莫纳斯基（Denys Monastyrskyy）说，自俄罗斯军队接管核电站以来，已有多份报道称俄罗斯士兵对核电站采取不负责任的态度。他们在森林里有毒的土壤中挖掘扎营。在俄罗斯士兵出现中毒症状后，撤离了核电站。
 
+俄罗斯士兵还洗劫了该设施和乌克兰工作人员的私人财物。他们从所有乌克兰人所有的衣服和物品中寻找钱、贵重物品和电脑笔记本。“这里发生过抢劫”。俄罗斯军队偷走了实施的电脑和设备。
 
-*听写：call me uncle*
+乌克兰士兵被关在那里30天，没有足够的照明和食物，他们不被允许外出。 在俄罗斯占领军驻扎的最后一天，169名军人被从核电站带走。他们可能被作为战俘通过白俄罗斯带到俄罗斯。
 
-*校对: 乐禧禧*
+*责编：白夜*
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+[原文链接](https://www.businessinsider.com/ukrainian-national-guardsmen-at-chernobyl-were-locked-in-bunker-2022-4?nr_email_referer=1&amp;utm_source=Sailthru&amp;utm_medium=email&amp;utm_content=Business_Insider_select&amp;pt=385758&amp;ct=Sailthru_BI_Newsletters&amp;mt=8&amp;utm_campaign=Insider%20Select%202022-04-11&amp;utm_term=INSIDER%20SELECT%20-%20ENGAGED%2C%20ACTIVE%2C%20PASSIVE%2C%20DISENGAGED%2C%20NEW)
 
 
 

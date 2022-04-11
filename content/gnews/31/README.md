@@ -2,27 +2,22 @@
 ---
 
 
-## 中共内应在台湾妈祖绕境活动中故意滋事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329420/)
+## 日本和菲律宾签署国防协议应对中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329421/)
 
-作者：纽约香草山农场医疗部 云豹
+作者：银河系农场 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月9日晚上，台湾统促党总裁张安乐，在台湾妈祖绕境活动中，故意聚众制造事端，与警方发生冲突。当场有现行犯6人被警方逮捕。警方在10日传唤在场领导指挥的张安乐。
+当地时间4月9日，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47-1.png)GNEWS
+自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为位于同海域的国家，日本和菲律宾希望共同协商解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约，考虑互相提供对方军队的供应共享协议，该协议还包括收购和交叉服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20_025119753586.jpeg)林明佑翻攝
+据悉，日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。菲律宾是继印度尼西亚之后，与日本举行二加二会议的第二个东南亚国家。
 
-张安乐是台湾主要帮派竹联帮的创始人之一。近年，张等人接受中共的收买。张安乐在2019年底，曾自称是 “中共同路人” 。在2021年1月，他叫嚣将成立“红色队伍”在台湾起义，毫不掩饰其中共内应的身份。
-
-针对目前法律的漏洞，4月5日，民进党立委邱志伟、赖瑞隆分别就《反渗透法》与《组织犯罪防制条例》提案修法。建议对与境外敌对势力合作，影响国家选举的政党，终止其政党运作，直接交由宪法法庭审理，严惩触犯者。确保国家宪政秩序不受干预，避免危及国家安定。
-
-参考链接：
-1.[張安樂率人接大甲媽鑾轎爆衝突 警方將傳喚說明](https://www.cna.com.tw/news/asoc/202204100004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2.[遏止統促黨亂象 立委拚修法補漏](https://news.ltn.com.tw/news/politics/paper/1509871)
-3.[張安樂談組「紅色隊伍」挨告國安法 今開庭前大談「被洗腦的中國人」](https://news.ltn.com.tw/news/politics/breakingnews/3483270)
+参考链接：[Japan, Philippines to aim for new defense cooperation pact](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-编辑：Jack Li文阳
+编辑：Ivy001
 总编：文真
 审核：文真
 校正/发稿：呼吸的雾霾（文小呼吸）
