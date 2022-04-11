@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥与嘉宾互动谈俄乌战争对中国以及欧盟的实际影响（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327887/)
+## 七哥谈押共产党灭亡的50%是在习的身体50%在新中国联邦（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328020/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：50-12：00-002.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：00-12：10-001.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

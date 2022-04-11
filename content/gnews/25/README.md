@@ -2,8 +2,8 @@
 ---
 
 
-## 视频|日本媒体报道中国老百姓对俄乌战争的态度
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2326908/)
+## 视频|中共盗走美国小投资者数十亿美元
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2326910/)
 
 制作：香草山视频部
 
