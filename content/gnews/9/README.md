@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|《台湾武器出口法案》将加速美对台军售
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2331135/)
+## BC省取消疫苗卡规定
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331316/)
 
-配音：香草山农场 – 信念7
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月7日，美国参议员霍利提出《台湾武器出口法案》（Taiwan Weapons Exports Act）。该法案旨在加速美国对台军售的审查流程，减少行政障碍，以应对随时发生的台海军事危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpeg)
-据悉，现阶段，美国对外出口武器分为两个类别。台湾目前归属在一般国家的第二类中。此类别军售受制于较严格的金额限制，审核所需时间较长。一旦中共攻台，台湾无法及时获取必要的军事援助。
+##### 作者：加拿大温哥华扬帆农场 – 文莱（采编）、自由法兰西（编译撰稿）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-8.jpg)
 
-《台湾武器出口法案》建议，将台湾归属到主要盟国的第一类中，与北约各成员国，以及日、澳、韩等美国重要盟友位列同一等级，以便台湾享有优先的武器出口审核。在紧急状态下，行政审核流程可减少35天至55天。
+加拿大《CTV新闻》4月8日报道，由于BC省取消了疫苗卡规定，在出入餐厅、剧院和室内活动场所时不再需要出示疫苗接种证明。
 
-分析人士指出，该法案如能通过，将有助于台湾在紧急战时，快速取得先进的武器装备与战术指导。此外，该法案也能让台美军售法制化、常态化。
+4月8日中午开始，自去年9月份开始推行的BC疫苗卡制度被废除，除非个别企业选择继续使用。探访需长期护理和辅助生活设施中的人仍需提供接种证明；并且，受联邦监管的旅行，如乘坐飞机，也仍需出示接种证明。
 
+其他省份比BC省更早结束了他们的疫苗卡制度，如安省在3月初取消，阿尔伯塔省在2月份取消；魁省的疫苗卡政策比BC省更为严格，出入商店和酒铺都需出示疫苗证明，不过从3月中旬起已逐步取消。
 
+同时，传染病专家强调，中共病毒疫情还远未结束。根据对低陆平原地区的废水测试追踪，近期中共病毒病例有回升迹象。据悉，计有90%以上符合条件的BC省人都接种了疫苗。
 
-文字版原文：[《台湾武器出口法案》将加速美对台军售](https://gnews.org/zh-hans/2323687/)
+[原文链接](https://bc.ctvnews.ca/proof-of-vaccination-no-longer-required-to-access-b-c-restaurants-theatres-events-1.5853803)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

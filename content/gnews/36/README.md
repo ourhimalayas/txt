@@ -2,30 +2,31 @@
 ---
 
 
-## 欧洲根本不是能源危机，是共产主义极权危机
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329078/)
+## 中共内应在台湾妈祖绕境活动中故意滋事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329420/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/eca86bd9ddc714fddffc1d-2.jpg)
-4月10日大直播中，郭先生提到，在俄乌战争中，欧洲要面临的根本不是能源问题，是这些年来亲共亲俄的立场让整个社会系统趋于极权统治。
+作者：纽约香草山农场医疗部 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月9日晚上，台湾统促党总裁张安乐，在台湾妈祖绕境活动中，故意聚众制造事端，与警方发生冲突。当场有现行犯6人被警方逮捕。警方在10日传唤在场领导指挥的张安乐。
 
-自2008年以来，德国默克尔和法国萨科齐这样的流氓政客，甘愿给共产党做走狗。显而易见的就是2008年奥运会德法在背后支持共产党。在普京极权的威胁之下，德法、俄和中共国的经济全部挂钩，极大怂恿了习普两人今天对乌克兰和台湾发动的侵略战。默克尔曾经被称为政治大家，他的老师说默克尔是德国的英雄，未来会被列为先知。而萨科齐曾在盘古大放厥词，竟然赞扬共产党对表达不同意见群众的恶意捕杀行为。萨科齐还出卖了乌克兰和香港以及非洲的很多国家。俄乌战争的始作俑者就是这两个共产党的走狗，默克尔和萨科齐都应该是战犯级的罪人。今天因俄乌战争带来的欧洲油气问题，其背后是共产主义极权的游魂。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20_025119753586.jpeg)林明佑翻攝
 
-索性德国和法国在对待乌克兰的问题上已经全面转身，德国已经决定和美国合作，并已经对默克尔立案调查，邀请郭先生作证。郭先生非常乐意，愿意将所有情况悉数告知。
+张安乐是台湾主要帮派竹联帮的创始人之一。近年，张等人接受中共的收买。张安乐在2019年底，曾自称是 “中共同路人” 。在2021年1月，他叫嚣将成立“红色队伍”在台湾起义，毫不掩饰其中共内应的身份。
 
-撰稿、发布：骄子
+针对目前法律的漏洞，4月5日，民进党立委邱志伟、赖瑞隆分别就《反渗透法》与《组织犯罪防制条例》提案修法。建议对与境外敌对势力合作，影响国家选举的政党，终止其政党运作，直接交由宪法法庭审理，严惩触犯者。确保国家宪政秩序不受干预，避免危及国家安定。
 
-* * *
+参考链接：
+1.[張安樂率人接大甲媽鑾轎爆衝突 警方將傳喚說明](https://www.cna.com.tw/news/asoc/202204100004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2.[遏止統促黨亂象 立委拚修法補漏](https://news.ltn.com.tw/news/politics/paper/1509871)
+3.[張安樂談組「紅色隊伍」挨告國安法 今開庭前大談「被洗腦的中國人」](https://news.ltn.com.tw/news/politics/breakingnews/3483270)
 
-欢迎订阅我们的GNews账号：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+编辑：Jack Li文阳
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

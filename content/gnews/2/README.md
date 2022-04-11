@@ -2,20 +2,20 @@
 ---
 
 
-## 加拿大保守党政策将利好加密货币
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331284/)
+## 自由党新法案束缚独立媒体却赋予CBC更多特权
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331396/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱
+##### 作者：加拿大温哥华扬帆农场 – 优酷 （采编）、晨熹（晨熹）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-6.png)
 
-据加拿大自媒体【后千禧一代】4月9日报道，加拿大保守党总理候选人皮埃尔·波伊利耶夫在多次表示将推行加密货币后再次宣布，保守党将取消对慈善加密捐款的任何税收。
+据【反叛新闻】4月7日报道， 特鲁多领导的自由党本周提交了一项法案《在线新闻法案C18》，旨在规范数字新闻机构及其在线共享的内容。新立法将在严格监管独立媒体的同时，赋予加拿大广播公司(CBC)特权。目前该法案已在下议院通过一读。
 
-报道称，如果成功当选，皮埃尔政府将实施私人成员法案，以确保加密货币被视为股票和债券。因此当加密货币持有者向注册的加拿大慈善机构捐款时，可不受资本利得税的约束。此举将激励持有虚拟货币的公民进行慈善捐赠，同时加速加拿大成为区块链之都的愿景。
+新立法将赋予加拿大广播电视公司(CRTC)对数字新闻组织及其内容进行监管并网络分享内容的权力，同时禁止在线新闻机构批评联合广播公司。
 
-据悉，保守党坚持加拿大人应该自由使用其他类型的金融产品。而这将使人们更好地控制个人财务，并大量释放加拿大人的慷慨本性。
+根据新立法，公司可以向委员会提出投诉。政府将授权委员会在评议会上负责对该法案做出解释，而评议会将由自由党推荐并任命的总督玛丽西蒙负责。
 
-[原文链接](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
+[原文链接](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
 
 上传/发稿 – 熙攘
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)

@@ -2,26 +2,23 @@
 ---
 
 
-## 加拿大央行上调银行同业拆借利率
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
+## 有声｜欧盟主席：将采取特别措施让乌克兰快速加入欧盟
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2328888/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+**By:秘翻新闻**
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+**2022-04-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-11-213614.jpg)
+据**[《雅虎新闻》](https://news.yahoo.com/eu-chief-fast-tracks-ukraine-175244231.html)**4月10日报道，欧盟委员会主席乌尔苏拉·冯德莱恩最近向乌克兰提供了加入欧盟的快速通道。她在4月10日接受CNN采访时表示，为确保冒着生命危险的乌克兰士兵的子女有朝一日能生活在没有俄罗斯统治的乌克兰，欧盟已经迈出了重要一步。
 
-据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
+冯德莱恩说：“乌克兰加入欧盟不会像往常一样需要几年时间，而是只需几周时间来完成这一步。对乌克兰来说，最重要的事情是由他们自己决定未来想做什么，以及他们想如何塑造自己的国家。而他们想要加入欧盟。昨天有人告诉我，当我们的士兵正在死去的时候，我希望他们知道他们的孩子将是自由的，而且是欧盟的一部分。乌克兰属于我们的欧洲大家庭，他们处于一种非同寻常的情况下，我们必须采取非同寻常的措施。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+（秘翻新闻 巴拉克 编译报导）
 
+发布:星星
 
-报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

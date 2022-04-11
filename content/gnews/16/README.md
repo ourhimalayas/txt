@@ -2,25 +2,34 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2330732/)
+## 俄乌战争“没想到”系列之五：
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331173/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV-2.jpg)
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚](https://gnews.org/zh-hans/2319585/)
+**视频制作：多伦多蓝莲花视频组**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
 
-音频处理：Fei797
-发稿：Fei797
+俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+**第五个没想到：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**没想到俄罗斯国内反战情绪如此高涨。这点怕是普京大帝根本没有想到的。**
+
+**独裁者的自负都决定了他们想不到内部会有人反自己，从身边寡头的分崩离析，到俄罗斯全国性的反战示威活动，到俄罗斯前线士兵爆料的被骗上战场。**
+
+**由此可以看出，这场战争连俄罗斯人自己都反对，俄罗斯内部的不团结是普京政权始料未及的。**
+
+**这也告诉世界，独裁者不能代表人民，中共也不能代表中国人，独裁的政权与人民是势不两立的。**
+
+视频文案：wood(文斌）
+编辑与校对：冰糖葫芦喵
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

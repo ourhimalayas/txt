@@ -2,44 +2,32 @@
 ---
 
 
-## 有声|东欧前线新中国联邦营地引发共鸣
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2331050/)
+## 加拿大保守党政策将利好加密货币
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331284/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-近日，新中国联邦在波兰前线梅迪卡对乌克兰战争难民的救援引起了国际社会的广泛关注。这是脱离中共奴役的中国人首次大规模参与西方世界的救援行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/PPT-0410AM-%E5%A4%87%E4%BB%BD1-14_-JSDL.003.jpeg)
-新中国联邦在梅迪卡前线搭起的大帐篷以及里面的NFSC现磨咖啡，儿童玩耍区等，引起周围来往人群的喜爱。前线除了难民，各国的媒体工作者也都前来采访和报道。我们印有灭共标识的马甲、气球等物品，得到了拥有相同理念的人们的普遍认同。新中国联邦人异于中共治下的中国人的表现，令他们耳目一新。
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-7.jpg)
 
-日本的一家电视台最初采访前线战友时，是心存芥蒂的。在了解了我们是灭共的新中国联邦人时，才放下戒心并对战友进行深入采访。
+据加拿大自媒体【后千禧一代】4月9日报道，加拿大保守党总理候选人皮埃尔·波伊利耶夫在多次表示将推行加密货币后再次宣布，保守党将取消对慈善加密捐款的任何税收。
 
-另有来自德国的志愿者，主动向前线战友表达了善意和支持，他认为，中共的恶行导致其必然被消灭，灭共有利于中国人的未来发展。
+报道称，如果成功当选，皮埃尔政府将实施私人成员法案，以确保加密货币被视为股票和债券。因此当加密货币持有者向注册的加拿大慈善机构捐款时，可不受资本利得税的约束。此举将激励持有虚拟货币的公民进行慈善捐赠，同时加速加拿大成为区块链之都的愿景。
 
-一位来自波兰的志愿者，看到我们的新中国联邦宣言，他用翻译器来阅读，他说波兰也经历过推翻共产主义的过程，只是现在中国共产党联合那些达沃斯精英一起来危害世界，他支持全世界联合起来推翻共产党以及这些邪恶组织。
+据悉，保守党坚持加拿大人应该自由使用其他类型的金融产品。而这将使人们更好地控制个人财务，并大量释放加拿大人的慷慨本性。
 
-新中国联邦在梅迪卡的营地，每天除了妥善安置到访的难民外，更承扮演着新中国联邦与国际世界广泛交流的平台。东欧人民曾饱经共产主义的迫害，新中国联邦所倡导的灭共宗旨在当地引发了广泛共鸣。
+[原文链接](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
 
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-文字版原文：[东欧前线新中国联邦营地引发共鸣](https://gnews.org/zh-hans/2321078/)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

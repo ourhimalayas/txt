@@ -2,31 +2,26 @@
 ---
 
 
-## 秘翻新闻｜中共借疫大隔离 备战极限战争
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2326618/)
+## 加拿大央行上调银行同业拆借利率
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
 
-**By:[秘翻新闻](https://gettr.com/post/p14o6i46f46)**
+采编：加拿大温哥华扬帆农场 – 文莱
 
-**[2022-04-11](https://gettr.com/post/p14o6i46f46)**
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-**新闻内容:**
+据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
 
-
-```
-1.中共国各地封路防疫 大批货车司机被困路上
- 2.北京疫情升级 酒仙桥地区全部被封
- 3.中共向塞尔维亚半公开运送导弹
- 4.乌克兰预测俄军将在东部发动猛烈进攻
- 5.欧盟主席：将采取特别措施让乌克兰快速加入欧盟
-```
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
 
-🔗**Gettr链接：**[**https://gettr.com/post/p14o6i46f46**](https://gettr.com/post/p14o6i46f46)
+报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
 
-发布:星星
+校对编辑：硫酸羟氯喹64
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+发稿：青青
+
+原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
