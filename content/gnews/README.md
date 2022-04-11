@@ -15,89 +15,89 @@
 
 ---
 
-### [没有人性的社会不会有平等（七）](/content/gnews/1/README.md)
+### [新中国联邦的金山银山、钻石山、未来山（三）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [黄之锋周庭被撤销司法复核　背负数万诉讼费](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [没有人性的社会不会有平等（六）](/content/gnews/3/README.md)
+### [新中国联邦的金山银山、钻石山、未来山（二）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [没有人性的社会不会有平等（五）](/content/gnews/4/README.md)
+### [新中国联邦的金山银山、钻石山、未来山（一）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [自俄军入侵乌克兰 全球粮价升至历史新高](/content/gnews/5/README.md)
- ` topnews`
+### [喜币像大西洋公约一样改写世界版图（三）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [20220410郭文贵大直播 ：乌克兰人的信仰和勇气赢得了欧盟100%的信任 是我们的榜样](/content/gnews/6/README.md)
+### [北约公开说北京是敌人，为接下来打击中共做铺垫](/content/gnews/5/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220410郭文贵大直播 ：中国人只要站起来反抗，外国人就会出自本能给予帮助](/content/gnews/7/README.md)
+### [中国人为什么饿死也不会造反](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [20220410郭文贵大直播 ：乌克兰人的信仰和勇气赢得了欧盟100%的信任 是我们的榜样](/content/gnews/7/README.md)
  ` Tokyo Sakura Video Group`
 
-### [视频|欧盟主席表示乌克兰将拥有“欧洲的未来”](/content/gnews/8/README.md)
+### [视频|微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/8/README.md)
  ` MOSVIDEO`
 
-### [视频|普京任命“叙利亚屠夫” 转战乌东](/content/gnews/9/README.md)
+### [20220410郭文贵大直播 ：中国人只要站起来反抗，外国人就会出自本能给予帮助](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [视频|欧盟主席表示乌克兰将拥有“欧洲的未来”](/content/gnews/10/README.md)
  ` MOSVIDEO`
 
-### [视频|台湾旅乌男士在新中国联邦救援基地任义工](/content/gnews/10/README.md)
+### [视频|普京任命“叙利亚屠夫” 转战乌东](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [视频|中共的疯狂举动 恐将让中国人付出血的代价](/content/gnews/11/README.md)
+### [视频|英首相约翰逊突访乌克兰](/content/gnews/12/README.md)
  ` MOSVIDEO`
 
-### [加拿大央行上调银行同业拆借利率](/content/gnews/12/README.md)
+### [中共将上海打成“魔都”，解封只是城市压力测试心里预演](/content/gnews/13/README.md)
+ ` 战云长天时评`
+
+### [欧盟与欧佩克会面呼吁增加石油产量](/content/gnews/14/README.md)
+ ` Shuizhuyu`
+
+### [加拿大央行上调银行同业拆借利率](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [在俄罗斯入侵乌克兰期间，Meta如何摸索宣传节制](/content/gnews/13/README.md)
+### [在俄罗斯入侵乌克兰期间，Meta如何摸索宣传节制](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：习集权独裁统治的本质](/content/gnews/14/README.md)
+### [大直播后记：习集权独裁统治的本质](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [外媒警示：未来人们不得不面对中共病毒长期症状](/content/gnews/15/README.md)
+### [外媒警示：未来人们不得不面对中共病毒长期症状](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [大直播后记：喜币像大西洋宪章一样改写人类版图](/content/gnews/16/README.md)
+### [大直播后记：喜币像大西洋宪章一样改写人类版图](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：七哥谈疫苗接种和新歌打榜](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [2022年4月11日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
+### [2022年4月11日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [芬兰和瑞典最早将在夏天加入北约](/content/gnews/19/README.md)
+### [芬兰和瑞典最早将在夏天加入北约](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [西媒头条 — 第204期](/content/gnews/20/README.md)
+### [西媒头条 — 第204期](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共非法器官移植,医护人员充当侩子手](/content/gnews/21/README.md)
+### [中共非法器官移植,医护人员充当侩子手](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海的疯癫“解封告知书”：按规定足不出户](/content/gnews/22/README.md)
+### [上海的疯癫“解封告知书”：按规定足不出户](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/04/11 英喜时事速递](/content/gnews/23/README.md)
+### [2022/04/11 英喜时事速递](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [推特称马斯克不会加入董事会](/content/gnews/24/README.md)
+### [推特称马斯克不会加入董事会](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [警惕疫苗！日政府取消1/3中共病毒疫苗购买计划](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [六架中共国Y-20货机昨晚出现在欧洲](/content/gnews/26/README.md)
+### [六架中共国Y-20货机昨晚出现在欧洲](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年4月11日:财经新闻整理](/content/gnews/27/README.md)
+### [新西兰财经G乐部2022年4月11日:财经新闻整理](/content/gnews/28/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [波兰边防军统计了266万名乌克兰难民](/content/gnews/28/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [秘翻在线：各大车企陷入停工潮 中共国欧盟商会都坐不住了](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`

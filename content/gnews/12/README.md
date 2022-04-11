@@ -2,25 +2,24 @@
 ---
 
 
-## 加拿大央行上调银行同业拆借利率
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
+## 视频|英首相约翰逊突访乌克兰
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2328153/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+制作：香草山视频部
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+4月9日，英国首相约翰逊突访基辅，会见了乌克兰总统泽连斯基。
 
-据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
+约翰逊此次乌克兰之行严格保密，事前英国政府与英国媒体只字未提，直到英国驻乌克兰大使馆在网络上发布照片后，消息才随之被曝光。泽连斯基也在脸书上晒出两人的会面照，并表示：欢迎来到基辅，我的朋友！约翰逊与泽连斯基还在基辅街头一起高调现身，进行了步行巡视。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+英国首相官邸发言人指出，约翰逊亲自会见泽连斯基，展现出两国人民团结一心的坚定立场，并透露英国将对乌克兰进行新的金融与军事援助。乌克兰总统办公室副主任西比哈表示，约翰逊与泽连斯基进行了一对一单独会面。
 
+泽连斯基对约翰逊进行了高度赞扬，称约翰逊是反对俄罗斯入侵乌克兰最有原则的领导人之一，是对俄罗斯实施制裁以及支持乌克兰国防的领导人。
 
-报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
+发稿：Daxia
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

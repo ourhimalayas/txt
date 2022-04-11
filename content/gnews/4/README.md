@@ -2,11 +2,11 @@
 ---
 
 
-## 没有人性的社会不会有平等（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328230/)
+## 喜币像大西洋公约一样改写世界版图（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328286/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12：40-12：50-005.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/13：00-13：05-003.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

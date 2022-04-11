@@ -2,11 +2,11 @@
 ---
 
 
-## 没有人性的社会不会有平等（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328240/)
+## 新中国联邦的金山银山、钻石山、未来山（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328293/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12：40-12：50-006.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/13：00-13：05-004.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

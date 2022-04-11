@@ -2,14 +2,14 @@
 ---
 
 
-## 西媒头条 — 第204期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2327584/)
+## 2022年4月11日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2327807/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220411.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1014.jpg)
 
 发稿：信心的选择
 

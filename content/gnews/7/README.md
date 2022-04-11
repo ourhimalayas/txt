@@ -2,8 +2,8 @@
 ---
 
 
-## 20220410郭文贵大直播 ：中国人只要站起来反抗，外国人就会出自本能给予帮助
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2328195/)
+## 20220410郭文贵大直播 ：乌克兰人的信仰和勇气赢得了欧盟100%的信任 是我们的榜样
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2328223/)
 
 作者：东京樱花团小视频组
 
