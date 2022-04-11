@@ -2,57 +2,44 @@
 ---
 
 
-## 视频|核酸了，姐疯了，又疯了
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2329735/)
+## 新冠病毒疫苗对免疫系统“无法弥补的损害”和世卫组织是“一个笑话”
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2329873/)
 
-中共居民区的宣传喇叭(嫉妒夸张的语气)：“去17号楼后面做核酸吧，姐妹们，还在等什么？赶快下楼做核酸吧！”
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+0:00 从我们开始接种疫苗到现在还不到18个月，但感觉就像过了18年。而关于这种不会降解的mRNA，在体内造成的灾难性后果的科学研究仍在进行中。我们也知道体内的蛋白质会被吸收到身体各个器官中，包括刺突蛋白，而这就是导致多器官系统衰竭的原因，我们知道刺突蛋白能被整合到DNA里。
+而且当它融入你（细胞）的DNA后，它会破坏细胞。当这个异常细胞开始复制时，它就成了癌细胞。正常情况下，我们的身体有备用的修复机制，（也就是）酶系统，会介入并破坏这个细胞，把发育不正常的细胞，也就是癌细胞消灭，让它降解消失。或者酶系统会去（尝试）修复损伤。但是如果刺突蛋白进入 DNA 并堵住了门，不让修复酶进来启动修复过程。所以这就是为什么我们在接种疫苗以后会看到癌症的大爆发。
 
-The propaganda loudspeaker in the CCP neighborhood (in a jealous exaggerated tone): “Go to the back of building 17 to make your NAAT, sisters, what are you waiting for? Hurry downstairs and make your NAAT now!”
+1:20 有些是一直处于癌症缓解期的人，现在一下子打开了抑制癌症的阀门，癌症在几周到几个月内爆发，癌症从缓解期变成了对任何药物都没有反应的第四阶段转移癌症。 另外我们还看到各种新型罕见的血癌，或生殖系统癌症，如子宫内膜癌，以及睾丸癌的大爆发，都是因为刺突蛋白的作用。 刺突蛋白让 B （淋巴）细胞和树突状细胞变得更加敏感，也就是说你的免疫系统现在总是容易受到刺突蛋白的刺激。 最糟糕的是，这些细胞破坏你的 Toll样受体，拼写为TOLL-LIKE，Toll样受体。 Toll样受体3， 7，和8号，是上天给我们的天然免疫系统。
 
-这个视频将给你展示 中共国 核酸检测运动 是多么的可笑、荒谬、丑陋！ 视频中是中共国核酸检测人员在跳舞，他们看上去可能已经疯了！
+2:15 而德国的数据显示，这些toll样受体已经被彻底地被消灭，也不会再生了。 这就是为什么我们一直听到有人因为接种疫苗而感染艾滋病的报道。 当然在人工合成的病毒的蛋白质中含有 HIV 片断。 而另一方面也是因为，刺突蛋白也不可逆地破坏了先天免疫系统，而且消灭了CD8细胞。 在正常情况下，如果您想检测是否感染艾滋病，医生会要求您进行血液检查，看 CD8 与 CD4 细胞的数量。 CD8是保护你免受感染的细胞，如果你的 CD8 细胞数非常非常低，医生会认为你是得了艾滋病。
 
-This video will show you just how ridiculous, absurd and ugly the CCP’s NAAT movement is! The video shows the Communist China’s NAAT testers dancing around and they look like they might have gone crazy!
+这就是人们所说的接种疫苗会感染艾滋病，因为疫苗会破坏并关闭免疫系统，关闭CD8细胞的toll样受体。 从德国的数据来看，这会造成似乎是无法修复的，无法再生的损害。 我认为这会进一步揭露全球一体化政府欺诈、贪婪而邪恶的计划。 全球一体化政府现在想要推动联合国宪章的通过，想要让联合国大会的所有成员国签署宪章。他们第一阶段目标已经成功了。 而且各国都同意会继续执行下去。 而且当各国都在封锁阶段时，只要有一例感染，那就算是有疫情。而且这一定会发生，原因你懂的，而且他们也是这么说的。到时他们会让世界上所有签了字的国家，联合国有 194 个国家，他们想让每个国家都签署这个条约。
 
-很多地区每人每天必须做核酸检测，视频中是中共国奇葩的宣传方式 下面字幕： （嫉妒夸张的语气）赶快下楼做核算，如果不做别想出门，也不能回家！做完核算你就达到人生巅峰！
+到时候这个国际条约会取代所有这些签署国的国家法律和宪法，这相当于在联合国下设立一个世界政府，而负责这个政府的就是世界卫生组织。另外，我不知道你是否在节目中采访过Paul Alexander，但是Paul Alexander医生绝对是个英雄。我在自己节目上采访过他，我的节目叫 The Tenpenny Files ，这期节目是付费会员专享节目。我采访他的那天，正是这些人就这项条约投票的那天。所以我给他读了几行条约的内容，（我讲到）这个条约是打着联合国的名义，而负责这个机构的，就是世界卫生组织。他听了直摇头，说你一定是在开玩笑吧。他说，这个（世卫）组织应该被彻底解散，如果世卫组织是一栋房子，那你应该把它拆到只剩几根柱子然后再彻底重建。因为世卫组织就是个名利场，在那的人没一个因为做过的贡献或者科学能力而坐在那个位子上的。
 
-NAAT is mandatory for everyone in many areas on a daily basis, the video is a weirdo propaganda approach by the Communist China. Caption below: (jealous exaggerated tone) Hurry up and get downstairs and do the NAAT, otherwise you can’ t go out or back home! Do the test and you’ll be at the top of your life!
+他还说，他年轻的时候，到后来上大学并攻读博士学位，做为一名流行病学家，都认为职业生涯的顶峰就是能在世界卫生组织工作。Paul Alexander医生说，他在世界卫生组织工作过，从各方面来看，这份工作都是个笑话。 他说那里的人对科学完全不懂，在那也根本没人研究科学。想想如果让世卫组织来管理和控制世界，他说，我想不出比这更悲剧的了。 而且现在的形势正在朝这个方向发展，这件事儿很大，主持人，很大。 我们正在走向世界秩序的统一，世界政府的统一，世界宗教的统一，你知道，现在的发展形势说明这些都要实现了。
 
-中共国新发明：核算检测机器人，这像什么？？
-
-New invention of the Communist China: the NAAT robot, what does this look like?
-
-除了人他们还给各种动物检测，无论是猫、狗、螃蟹、鱼不放过一个！
-
-In addition to people, they also test all kinds of animals, be it cats, dogs, crabs, fish, no one is left out!
-
-这些 “大白” 就是中共国核算检测的 “丑陋机器”，这些奇怪的舞蹈和动作都是他们自己用来美化核酸运动进行的表演… 你是不是无法理解？
-
-These “Da Bai” are the “ugly machines” of the Communist China’s NAAT, and these strange dances and movements are all performances they themselves use to glorify the NAAT movement… Are you unable to understand?
-
-有些人跪着检测？
-
-Some people kneel down for the test?
-
-还有些人集体下跪检测？？ 地球上中共国独有！
-
-And some people kneeling down collectively for testing? Unique to the Communist China on Earth!
-
-这就是一场披着核酸检测外衣的政治运动！和利益集团牟利的工具！ 很多中共国的利益集团就此牟利，几十亿！ 核酸检测已经成为一个产业链
-
-This is a political movement in the guise of NAAT! And a tool for profit by interest groups! Many Communist China interest groups are profiting from this, billions! NAAT has become an industrial chain.
-
-这就共产党制下的中共国！
-
-This is the Communist China under Communist rule!
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：文永
+翻译校对：文倩
+字幕添加：文雅
+最终审核：CTQ
+编辑/发稿：hongyeca
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-剪辑：happyFriday#2651
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-翻译：香草山翻译部——文岄679
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-发布：奇门遁甲
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

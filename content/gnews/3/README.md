@@ -2,10 +2,10 @@
 ---
 
 
-## 欧盟委员会主席乌尔苏拉·冯德莱恩访问乌克兰
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2329934/)
+## 截获的音频揭示了俄军杀害、强奸乌克兰平民
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2330116/)
 
-04/09/2022 欧盟委员会主席乌尔苏拉·冯德莱恩访问乌克兰，并承诺加快乌克兰加入欧盟的进程
+04/09/2022 截获的俄军间的谈话音频揭示了俄军杀害、强奸乌克兰平民
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
