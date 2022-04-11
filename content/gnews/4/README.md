@@ -2,11 +2,11 @@
 ---
 
 
-## G系列是战友的不是任何个人的；SEC退款不解决农场主自己付（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327838/)
+## 乌克兰唯真不破赢得世界信任（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327882/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：30-11：40-003.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：40-11：50-005.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
