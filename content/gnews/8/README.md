@@ -2,8 +2,8 @@
 ---
 
 
-## 20220410郭文贵大直播 ：一定要消除中国人心上的共产党病毒
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327044/)
+## 20220410郭文贵大直播 ：习近平早已决定要让老百姓尝尝挨饿的滋味，才会更听话
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327110/)
 
 作者：东京樱花团小视频组
 

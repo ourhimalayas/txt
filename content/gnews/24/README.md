@@ -2,41 +2,27 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（4月4日-4月10日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326296/)
+## 习近平利用中共病毒及疫苗灾难控制着中国人民
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2326427/)
 
-作者：纽约香草山金融部 – ILOVE战神
+撰稿：追着曙光跑
 
+4月10日，郭先生在大直播中指出，从病毒开始那天起到现在，已经两年多，习近平一直控制着从释放病毒，到强制疫苗，再到疫苗灾难，最后到核酸检测这一邪恶计划，并揭露了习近平实施这个计划的三个目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-11-at-6.17.21-PM.jpeg)图片来源：网络
+第一，把疫苗灾难致人死亡的责任，推卸到地方老百姓头上。未来在广州、上海发生的各种疫苗灾难死亡事件，中共将不会负责任。目前中共实施的清零政策，是向外界显示中共是对疫苗灾难负责任的，但是这些地方的老百姓不配合核酸检测、以及不认真执行隔离政策、局部人还造反，将来发生的疫苗灾难只能由地方老百姓承担。
 
+第二，不让中国人享受现代科技带来的便利生活，让中国人回到文化大革命前的时代。从让疫苗死老人和残疾人，到断电断水等让没有生存能力的人死亡，最后达到优胜略汰。另外，在香港、广州、深圳、上海和郑州等城市，开始进行的断供、断电、断交通、断石油、断医院等测试，是完全按照极限战争进行的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+第三、习近平在20大不但连任，而且他连任之后，将修改宪法、党规党制。中共党内已经讨论习近平的治国之策，中共国以后的发展，是设计成习近平路线。中共以后选拔人才，由中共的国家安全委员会、国家军委和所谓的指定的人民代表委员会决定，20大以后将推行永远的习近平的江山。要是20大不连任，他和他的家人将受到灭门。
 
+但是，在社会稳定、经济发达、没有战争的情况下，习近平是没有办法实现以上的目的。所以习近平非常清楚，要达到以上目的，只有让中国永远处于战争、不稳定、饥饿和矛盾之中；然后告诉中国人民他们的生活之所以出现这样的巨变，是美国的错；最后还要把人民的矛盾无限化，要中国人民头上的三座大山变成300座大山甚至更多，让中国人永远为了生存而奔波。
 
+目前，在深圳、广州、上海，提前人为地上演疫苗灾难，以及疫苗灾难带来的死亡和对整个社会系统的改变，完全在习近平的计划控制之中。
 
-过去一周喜马拉雅币价格大幅回升至44美元左右，涨幅约21%，平均日交易量约16万枚喜币。喜币上市以来总交易量约3445万枚 ，占今年总发行量的仅约3.45%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12-2.jpg)
-本周喜联储官方推特转发了英国政府认可稳定币作为合法支付手段的消息，英国政府正计划把英国打造成全球加密资产技术和投资的一大中心，这对喜联储的发展将是重大利好。最近美国财政部、美国国会以及各国政府都相继承认数字货币的合法性，而喜币中心化的管理模式、严格的KYC和充分的稳定币准备金在各项监管挑战面前都已经做好了准备。
+*上传：追着曙光跑*
 
-喜币和接下来的躺平币，由于具备实体商业流通的支付系统HPay，在接下来世界疫苗灾难、经济灾难、战争灾难中将起到重要作用。郭先生在大直播中表示，只有喜币的系统，才能像大西洋宪章一样，在战争后重新建立人类的政治版图和金钱规则。郭先生说，合理的财富分配制度、安全的财富拥有方式是一个国家实现民主法治的关键。新中国联邦一定要有一个人们能够自己决定自己的财富，自动创造财富，可衡量，并且不被权力所控制的金融模式。任何一个为爆料革命、灭共事业付出的人，都会拥有喜币和躺平币。
-
-郭先生最近还透露，有三个主权国家正在规划把数字货币储备列入国家主权安全的一部分，并将HCN列入数字货币储备名单中。郭先生还表示，为了应对各国的监管，喜币用户要避免场外交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4-2.png)
-参考链接：
-1. [Is the UK going to be a global hub for #cryptocurrency? New crypto-related plan updated from the UK government, let’s see the update below](https://twitter.com/himalayaxchange/status/1511339851345506305?s=20&amp;t=_LNN9CDQ-eLHKxpOjPk8ow)
-2. [Government sets out plan to make UK a global cryptoasset technology hub](https://www.gov.uk/government/news/government-sets-out-plan-to-make-uk-a-global-cryptoasset-technology-hub#:~:text=The%20government%20has%20today%20announced,for%20cryptoasset%20technology%20and)
-3. [2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
+信息来源：[2022年4月10日文贵大直播](https://gettr.com/streaming/p14iwpvf134)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

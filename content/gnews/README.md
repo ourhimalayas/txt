@@ -15,113 +15,113 @@
 
 ---
 
-### [大直播后记：乌克兰人民坚持唯真不破赢得世界信任和支持](/content/gnews/1/README.md)
+### [解析习近平热炕头习惯（一）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [20220410郭文贵大直播 ：习近平早已决定要让老百姓尝尝挨饿的滋味，才会更听话](/content/gnews/2/README.md)
+### [解析习近平热炕头习惯（三）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [解析习近平热炕头习惯（二）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国的灾难从一开始就没停过（一）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [波兰边防军统计了266万名乌克兰难民](/content/gnews/5/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [上海某社区因疫情接近崩溃](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [大直播后记：乌克兰人民坚持唯真不破赢得世界信任和支持](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [20220410郭文贵大直播 ：习近平早已决定要让老百姓尝尝挨饿的滋味，才会更听话](/content/gnews/8/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220410郭文贵大直播 ：新中国联邦的金山 银山 钻石山](/content/gnews/3/README.md)
+### [20220410郭文贵大直播 ：新中国联邦的金山 银山 钻石山](/content/gnews/9/README.md)
  ` Tokyo Sakura Video Group`
 
-### [过去一年比赛中769名运动员倒下 平均年龄 23 岁](/content/gnews/4/README.md)
+### [过去一年比赛中769名运动员倒下 平均年龄 23 岁](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [20220410郭文贵大直播 ：习近平从头到尾宣传中美必有一战](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
-
-### [樱花时政┃欧盟驻乌大使重回基辅办公](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [20220410郭文贵大直播 ：自己面对不能改变的人或事时，学会“接受”](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220410郭文贵大直播 ：一定要消除中国人心上的共产党病毒](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [家庭防疫——一人感染，其它成员怎么办？](/content/gnews/9/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [20220410郭文贵大直播 ：可悲的中国境内人的生死竟由一身印着共产党突击队员的白衣服决定](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [秘翻在线：各大车企陷入停工潮 中共国欧盟商会都坐不住了](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20220410郭文贵大直播 ：共产党利用群众的意见制造矛盾](/content/gnews/12/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220410郭文贵大直播 ：中国人的灾难自共产党到来就从未结束](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [COVID-19疫苗副作用集萃（2022.4.11）–三次疫苗，三次闭经](/content/gnews/14/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.11）–三次疫苗，三次闭经](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [谢里夫将接替伊姆兰•汗成为下一任巴基斯坦总理](/content/gnews/15/README.md)
+### [谢里夫将接替伊姆兰•汗成为下一任巴基斯坦总理](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20220410郭文贵大直播 ：不服从中共中央统一安排，私自调配物资违反政治规矩的领导都会被免职](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
+### [视频|中共盗走美国小投资者数十亿美元](/content/gnews/14/README.md)
+ ` MOSVIDEO`
 
-### [正义之光](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
+### [视频|喜马拉雅币一周分析与总结（4月4日-4月10日）](/content/gnews/15/README.md)
+ ` MOSVIDEO`
 
-### [马龙博士：纽时如不更正对他的“诽谤”文章将起诉](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [视频|日本媒体报道中国老百姓对俄乌战争的态度](/content/gnews/16/README.md)
+ ` MOSVIDEO`
 
-### [秘翻在线：中共称坚持“动态清零”防疫政策是为了保护弱势群体](/content/gnews/19/README.md)
+### [视频|美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/17/README.md)
+ ` MOSVIDEO`
+
+### [视频|美国会议员认为 全球大饥荒即将到来](/content/gnews/18/README.md)
+ ` MOSVIDEO`
+
+### [视频|俄罗斯外汇评级被降至“选择性违约”](/content/gnews/19/README.md)
+ ` MOSVIDEO`
+
+### [秘翻在线：中共称坚持“动态清零”防疫政策是为了保护弱势群体](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本媒体报道中国老百姓对俄乌战争的态度](/content/gnews/20/README.md)
+### [日本媒体报道中国老百姓对俄乌战争的态度](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [秘翻新闻｜中共借疫大隔离 备战极限战争](/content/gnews/21/README.md)
+### [秘翻新闻｜中共借疫大隔离 备战极限战争](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [足不出户的解封](/content/gnews/22/README.md)
+### [足不出户的解封](/content/gnews/23/README.md)
  ` 银河勇气之星`
 
-### [上海官方强制要求检测结果“阴性”居民进方舱隔离](/content/gnews/23/README.md)
+### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/24/README.md)
+ ` thedawn`
+
+### [上海官方强制要求检测结果“阴性”居民进方舱隔离](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜马拉雅币一周分析与总结（4月4日-4月10日）](/content/gnews/24/README.md)
+### [喜马拉雅币一周分析与总结（4月4日-4月10日）](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [中共盗走美国小投资者数十亿美元](/content/gnews/25/README.md)
+### [中共盗走美国小投资者数十亿美元](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/26/README.md)
+### [美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [美国会议员认为 全球大饥荒即将到来](/content/gnews/27/README.md)
+### [美国会议员认为 全球大饥荒即将到来](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [俄罗斯外汇评级降至“选择性违约”](/content/gnews/28/README.md)
- ` NFSC News`
-
-### [壳牌退出俄国将让该公司资产减记达50亿美元](/content/gnews/29/README.md)
+### [壳牌退出俄国将让该公司资产减记达50亿美元](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美专家：应拒绝在北美为中共特务提供身份申请](/content/gnews/30/README.md)
+### [美专家：应拒绝在北美为中共特务提供身份申请](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [焦点：中共军援俄罗斯打开了潘多拉魔盒](/content/gnews/31/README.md)
+### [焦点：中共军援俄罗斯打开了潘多拉魔盒](/content/gnews/32/README.md)
  ` 蓝莲花农场`
 
-### [莫德纳召回 764,900 剂被发现污染的新冠疫苗](/content/gnews/32/README.md)
+### [莫德纳召回 764,900 剂被发现污染的新冠疫苗](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共对南海岛礁的军事化促其成为全球和平的最大威胁](/content/gnews/33/README.md)
+### [中共对南海岛礁的军事化促其成为全球和平的最大威胁](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [法国大选4月24举行 马克龙和勒庞的对决走向悬念](/content/gnews/34/README.md)
+### [法国大选4月24举行 马克龙和勒庞的对决走向悬念](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大锅饭2.0｜中共国务院：加快建设全国统一大市场](/content/gnews/35/README.md)
+### [大锅饭2.0｜中共国务院：加快建设全国统一大市场](/content/gnews/36/README.md)
  ` 關注組`
-
-### [4/11/2022 银河快讯：岸田首相解释为乌克兰难民提供3亿美元财政援助；日本每天入境人数将提高至10,000](/content/gnews/36/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系](/content/gnews/37/README.md)
  ` 美国政要直译推`

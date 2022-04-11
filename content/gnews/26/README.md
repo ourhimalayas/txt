@@ -2,10 +2,10 @@
 ---
 
 
-## 美国驻华大使馆发布授权撤离和旅行警告声明
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326201/)
+## 喜马拉雅币一周分析与总结（4月4日-4月10日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326296/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
@@ -13,24 +13,22 @@
 
 
 
-当地时间4月9日，美国驻华大使馆官网发布了一则重要通告，告知美国驻上海总领馆非紧急美国政府雇员和所有家属均可以自愿撤离中共国。
+过去一周喜马拉雅币价格大幅回升至44美元左右，涨幅约21%，平均日交易量约16万枚喜币。喜币上市以来总交易量约3445万枚 ，占今年总发行量的仅约3.45%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12-2.jpg)
+本周喜联储官方推特转发了英国政府认可稳定币作为合法支付手段的消息，英国政府正计划把英国打造成全球加密资产技术和投资的一大中心，这对喜联储的发展将是重大利好。最近美国财政部、美国国会以及各国政府都相继承认数字货币的合法性，而喜币中心化的管理模式、严格的KYC和充分的稳定币准备金在各项监管挑战面前都已经做好了准备。
 
-通告称，美国驻华大使伯恩斯以及美国国务院和使团的其他官员，已直接向中共官员提出了美国政府对当地疫情和管控措施的关切，也已将使团人员自愿撤离的决定通知了他们。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-5.jpg)
-根据美国国务院2022年4月8日的旅行警告，由于中共国当地法律的任意执行以及中共病毒疫情相关的限制，美国公民被要求重新考虑前往中共国内的旅行。此外，由于中共对疫情的相关限制，其中包括父母与孩子分离的风险，美国公民不应前往中共国的香港特别行政区、吉林省和上海市。
+喜币和接下来的躺平币，由于具备实体商业流通的支付系统HPay，在接下来世界疫苗灾难、经济灾难、战争灾难中将起到重要作用。郭先生在大直播中表示，只有喜币的系统，才能像大西洋宪章一样，在战争后重新建立人类的政治版图和金钱规则。郭先生说，合理的财富分配制度、安全的财富拥有方式是一个国家实现民主法治的关键。新中国联邦一定要有一个人们能够自己决定自己的财富，自动创造财富，可衡量，并且不被权力所控制的金融模式。任何一个为爆料革命、灭共事业付出的人，都会拥有喜币和躺平币。
 
-美国驻上海总领馆目前对公众关闭，仅向美国公民提供24小时紧急服务。随着情况的发展，美领馆已向美国公民发出多条信息，“授权撤离”工作已有序展开。
-
-据新中国联邦爆料革命以前的消息，美国国务院已于2022年1月底，开始授权撤离美国驻华使馆的部分员工。有分析人士指出，此次美国驻华使团关于旅行警告和授权撤离的声明，体现了美国逐步撤离中共国的政策一致性。
-
+郭先生最近还透露，有三个主权国家正在规划把数字货币储备列入国家主权安全的一部分，并将HCN列入数字货币储备名单中。郭先生还表示，为了应对各国的监管，喜币用户要避免场外交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4-2.png)
 参考链接：
-[美国驻华使团关于旅行警告和授权撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+1. [Is the UK going to be a global hub for #cryptocurrency? New crypto-related plan updated from the UK government, let’s see the update below](https://twitter.com/himalayaxchange/status/1511339851345506305?s=20&amp;t=_LNN9CDQ-eLHKxpOjPk8ow)
+2. [Government sets out plan to make UK a global cryptoasset technology hub](https://www.gov.uk/government/news/government-sets-out-plan-to-make-uk-a-global-cryptoasset-technology-hub#:~:text=The%20government%20has%20today%20announced,for%20cryptoasset%20technology%20and)
+3. [2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-编辑：Delilah小胖
-总编：飞虹
-审核：文恩
+编辑/总编：飞虹
 校对/发稿：为真不破20
 
 
