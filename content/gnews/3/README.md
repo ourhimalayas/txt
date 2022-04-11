@@ -2,32 +2,36 @@
 ---
 
 
-## 中共在全世界疯狂部署红旗导弹系统
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331488/)
+## 世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2331640/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-7.png)
+**翻译： 文舞两道**
 
-据文贵先生4月9日盖特直播报道，中共红旗导弹系统已经送至塞尔维亚、中东，整个南亚和中国北部，到达整个东欧地区，特别是俄乌战场，这等同于直接向美国开战。
+世界银行4月10日公布，在欧洲和中亚新兴国家的经济展望中，2022年乌克兰的实际国内生产总值（GDP）预计将比上年下降45.1%。这是因为俄罗斯的入侵导致经济活动停滞不前，根据战争局势的发展，GDP有可能进一步下降。
+![](https://gnews.org/aaff1ae6-9a6e-4673-856e-7def3d77bbe5)
+乌克兰的GDP预计将从2021年的+3.4%戏剧性的大幅下降，除了因战争使乌克兰境内的很多地区暂停了企业活动之外，受战争影响，战事激烈的黑海沿岸进行的农产品的贸易变得越来越困难。由于乌克兰国境内的基础设施遭到很大破坏，乌克兰呼吁国际社会加强支援的呼声也越来越多。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6ED787A8-B44C-4EEE-8E7F-D73140FFDBC5.png)世界银行总部   图片来源：https://www.sankei.com/article/
+与此同时，世界银行预测俄罗斯2022年的GDP为-11.2%。由于美国和欧洲的经济和金融制裁，出口将急剧下降，导致经济严重的衰退，2021年，俄罗斯的GDP增长了4.7%。
 
-中共红旗导弹系统将部署在吉布提、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，其中包括装在货轮上的移动式导弹，以及可能部署在古巴、巴哈马等美临国的导弹系统。即便在美关键命脉——迈阿密西侧，中共也胆敢这么做。
+作为世界主要金融机构成员的国际金融协会（IIF）表示，预计2022年俄罗斯的GDP将减少到-15%。
 
-14亿中国人已经毫不知情的情况下，被中共流氓团伙绑上战车，送往地狱，未来要为他们所有的疯狂行为付出惨重代价。
+俄罗斯的原油和天然气出口正在萎缩，国际能源价格正在上涨。俄罗斯和乌克兰农业发达，占世界出口的比列很大，是非常重要的产粮基地。乌克兰素有欧洲粮仓之称，俄乌战争导致食品价格上涨，世界银行分析称，俄乌战争“将加剧世界通胀”。
 
-[原文链接](https://gettr.com/post/p14ekwj638b)
+此外，支持俄罗斯入侵的白俄罗斯也受到了国际社会的制裁，经济一路下滑，GDP预计将从 2021年的+2.3% 下降为2022 年的-6.5%。
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+**信息来源：**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+[ウクライナＧＤＰ４５％減　２２年世銀見通し　ロシアもマイナス１１％](https://www.sankei.com/article/20220411-2RUQFRGF6FJXHIENOLRRP5K5KE/)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**编辑：LILY**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+**发布：歪桑**
+
+20220411
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

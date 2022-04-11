@@ -15,95 +15,95 @@
 
 ---
 
-### [樱花FM┃美国宣布制裁普京女儿和俄罗斯联邦储蓄银行](/content/gnews/1/README.md)
- ` 樱花FM`
+### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [樱花FM┃郭文贵先生2022年4月6日盖特视频（4分57秒）全文字版](/content/gnews/2/README.md)
- ` 樱花FM`
-
-### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [澳媒报道：澳洲人呼吁固定在家工作减免税收的政策](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [自由党新法案束缚独立媒体却赋予CBC更多特权](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [乌克兰东部——堪比“二战”的最大冲突恐将到来？](/content/gnews/6/README.md)
+### [奥密克戎病毒带来的二次感染在上升](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中国人的勇气在哪里](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/4/README.md)
+ ` 樱花FM`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/5/README.md)
+ ` 樱花FM`
 
-### [巴基斯坦政局的新变化](/content/gnews/10/README.md)
+### [樱花FM┃俄罗斯巨富 俄乌谈判人 阿布是谁？](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃“不是中共是否入侵台湾，而是什么时候入侵”](/content/gnews/7/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃警惕和看清中共以谈判名义行邪恶之事](/content/gnews/8/README.md)
+ ` 樱花FM`
+
+### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/9/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/11/README.md)
- ` G-时新闻`
+### [樱花FM┃乌军人在美受训使用弹簧刀无人攻击机](/content/gnews/10/README.md)
+ ` 樱花FM`
 
-### [BC省取消疫苗卡规定](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [樱花FM┃为响应对俄制裁 荷兰冻结俄船东14艘游艇](/content/gnews/11/README.md)
+ ` 樱花FM`
 
-### [中共媒体最近高调炒作希音公司有何意图呢？](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [加拿大保守党政策将利好加密货币](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/16/README.md)
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2021年769名运动员倒下，平均年龄23岁](/content/gnews/17/README.md)
+### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/18/README.md)
- ` MOSREC`
+### [中国人的勇气在哪里](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌战争“没想到”系列之五：](/content/gnews/19/README.md)
+### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/17/README.md)
+ ` G-时新闻`
+
+### [BC省取消疫苗卡规定](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大保守党政策将利好加密货币](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄乌战争“没想到”系列之五：](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [有声|《台湾武器出口法案》将加速美对台军售](/content/gnews/20/README.md)
- ` MOSREC`
+### [美授权外交人员撤离上海 中国坚称防疫科学有效](/content/gnews/23/README.md)
+ ` GTV News Talk`
 
-### [有声|乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/21/README.md)
- ` MOSREC`
+### [巴基斯坦总理不信任投票后被免](/content/gnews/24/README.md)
+ ` GTV News Talk`
 
-### [中共正在国内谋划一场新的大饥荒](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/23/README.md)
+### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/24/README.md)
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/26/README.md)
  ` 蓝莲花农场`
 
-### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/25/README.md)
+### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/27/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共利用民众仇富心理，激化矛盾抢劫财富](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [1MDB案高盛银行家被定罪](/content/gnews/28/README.md)
+ ` GTV News Talk`
 
-### [五月花简报（04/11/2022）](/content/gnews/27/README.md)
+### [五月花简报（04/11/2022）](/content/gnews/29/README.md)
  ` mayflowertranslate`
 
-### [美CDC在考虑延长运输网络口罩强制令](/content/gnews/28/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [截至4.11 俄乌战事汇总](/content/gnews/29/README.md)
+### [截至4.11 俄乌战事汇总](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 10:44 PM (UTC)`
+
+【Ukraine Rescue】04/08/2022 After a volunteer from Busan, South Korea learns that we are the new Chinese who are taking down the CCP at the Medyka border, he says that the Whistleblowers’s Movement is a peaceful movement and will bring peace and freedom to the Chinese people. He wishes all Chinese people to be free soon.<br/><br/>【乌克兰救援】04/08/2022 来自韩国釜山的义工在梅迪卡边境了解到我们是灭共的新中国人后，说爆料革命是一场和平运动，会给中国人带来和平与自由， 他祝愿所有中国人都能早日获得自由。<br/>
+![img](https://media.gettr.com/group18/getter/2022/04/11/22/042fd9d1-bdad-e656-775f-529cb24b5693/out.jpg)
+
+---
+
 `@miles 4/11/2022 10:22 PM (UTC)`
 
  4月11号：尊敬的战友们好……现在的中国人连这只鸟都不如……
@@ -148,13 +155,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 4/10/2022 Miles Guo: Xi's ultimate goal is to stay in power after the 20th Party Congress and establish a regime that will always belong to Xi himself! Xi is even willing to put the Chinese in endless wars, starvation, and contradictions and conflicts just to achieve this goal! Only the Whistleblowers’ Movement has revealed this truth to the world!<br/><br/>4/10/2022 文贵直播：习的终极目标是确保20大连任并建立起永远属于习的江山！习为了实现这一目标，不惜将中国人置于永不停歇的战争、饥饿、以及矛盾和冲突之中！只有爆料革命向世界揭露了这一真相！<br/>
 ![img](https://media.gettr.com/group5/getter/2022/04/11/14/5aa6a1fd-e46b-d7fd-5bac-57d052dc044a/out.jpg)
-
----
-
-`@miles 4/11/2022 1:43 PM (UTC)`
-
- 4月11号：比爹娘还亲的中国共产党生气了，后果很严重！
-![img](https://media.gettr.com/group6/getter/2022/04/11/13/748d1341-cb47-2986-f867-a5419925fc77/out.jpg)
 
 ---
 
