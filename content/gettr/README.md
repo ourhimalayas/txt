@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@torontofarmcn 4/11/2022 8:56 PM (UTC)`
+
+【 #乌克兰大救援】梅迪卡前线视频报道：这一位台湾义工来到 #法治基金、 #新中国联邦 大帐篷喝咖啡。他早就听说过新中国联邦，久仰郭先生大名。当他听说，如果中共发动对台武力攻击，郭先生已表示新中国联邦将对台提供人道援助，他很惊讶。他说郭先生在台湾很有名，亲共的台湾人是少数😃<br/><br/>#俄乌战争 #国际人道救援  #StandWithUkrainian<br/>#UkraineRescue #ROLFRescue #NFSCRescue
+![img](https://media.gettr.com/group50/origin/2022/04/11/20/38488e2e-c1e0-4b4d-60ed-250a7cc3e88d/out.jpg)
+
+---
+
 `@miles 4/11/2022 11:04 PM (UTC)`
 
 2022.04.11 NFSC news  The CCP's Crazy Actions May Cost The Chinese People In Blood
@@ -148,13 +157,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 【Ukraine Rescue】04/09/2022  Nicole explained to the Scotland volunteer that 1.4 billion Chinese lived in Communism, without freedom ,without freedom of speech, without freedom of thought, without freedom of press. This is a humanitarian crisis. That is why the NFSC needs to take down the CCP. <br/><br/>【乌克兰救援】04/09/2022  妮可向来自苏格兰的义工解释，14亿中国人生活在共产主义之下，没有自由，没有言论自由，没有思想自由，没有新闻自由。这是一场人道危机。这就是新中国联邦要推翻中共的原因。
 ![img](https://media.gettr.com/group13/getter/2022/04/11/14/13ad9daf-5e79-7f7c-4ad5-0c3a10d70666/out.jpg)
-
----
-
-`@miles 4/11/2022 2:32 PM (UTC)`
-
-4月11号：尊敬的战友们好……中国已经进入人道大灾难的时刻……
-![img](https://media.gettr.com/group49/getter/2022/04/11/14/a7498c7e-5a49-e7c6-17c0-ced20bfa3e3b/out.jpg)
 
 ---
 

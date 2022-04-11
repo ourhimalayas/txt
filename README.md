@@ -15,41 +15,41 @@
 
 ---
 
-### [加國保守黨將力推加密貨幣](/content/gnews/1/README.md)
+### [七哥直播要点之一](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [加國保守黨將力推加密貨幣](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/2/README.md)
+### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大保守党将力推加密货币](/content/gnews/3/README.md)
+### [加拿大保守党将力推加密货币](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [奥密克戎病毒带来的二次感染在上升](/content/gnews/4/README.md)
+### [奥密克戎病毒带来的二次感染在上升](/content/gnews/5/README.md)
  ` 加拿大温哥华英里农场`
 
-### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/5/README.md)
+### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/6/README.md)
+### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/7/README.md)
  ` 樱花FM`
 
-### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/7/README.md)
+### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [樱花FM┃俄罗斯巨富 俄乌谈判人 阿布是谁？](/content/gnews/8/README.md)
+### [樱花FM┃俄罗斯巨富 俄乌谈判人 阿布是谁？](/content/gnews/9/README.md)
  ` 樱花FM`
 
-### [樱花FM┃“不是中共是否入侵台湾，而是什么时候入侵”](/content/gnews/9/README.md)
+### [樱花FM┃“不是中共是否入侵台湾，而是什么时候入侵”](/content/gnews/10/README.md)
  ` 樱花FM`
 
-### [樱花FM┃警惕和看清中共以谈判名义行邪恶之事](/content/gnews/10/README.md)
+### [樱花FM┃警惕和看清中共以谈判名义行邪恶之事](/content/gnews/11/README.md)
  ` 樱花FM`
 
-### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/11/README.md)
+### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/12/README.md)
  ` 加拿大温哥华英里农场`
-
-### [樱花FM┃乌军人在美受训使用弹簧刀无人攻击机](/content/gnews/12/README.md)
- ` 樱花FM`
 
 ### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
