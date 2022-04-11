@@ -2,32 +2,28 @@
 ---
 
 
-## 中共在全世界疯狂部署红旗导弹系统
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331488/)
+## 《在线新闻法》将加强监控独立媒体言论内容
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331517/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-7.png)
+采编：加拿大温哥华扬帆农场 – UCool 优酷
 
-据文贵先生4月9日盖特直播报道，中共红旗导弹系统已经送至塞尔维亚、中东，整个南亚和中国北部，到达整个东欧地区，特别是俄乌战场，这等同于直接向美国开战。
+加拿大温哥华扬帆农场 – 编译： 晨熹
 
-中共红旗导弹系统将部署在吉布提、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，其中包括装在货轮上的移动式导弹，以及可能部署在古巴、巴哈马等美临国的导弹系统。即便在美关键命脉——迈阿密西侧，中共也胆敢这么做。
+据【反叛新闻】4月7日报道， 为规范加拿大数字新闻机构及其在线共享内容，严格监管独立媒体的言论传播，特鲁多自由党最近向议会提交了《在线新闻法案》。
 
-14亿中国人已经毫不知情的情况下，被中共流氓团伙绑上战车，送往地狱，未来要为他们所有的疯狂行为付出惨重代价。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1344.png)图片来源：[https://www.rebelnews.com](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
 
-[原文链接](https://gettr.com/post/p14ekwj638b)
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+据悉，该法案还将同时赋予[加拿大广播电视公司]对数字媒体平台及其信息内容进行监管和分享的权力，以禁止其他在线新闻机构能自由地对该公司进行合法的批评。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+此外，[加拿大广播公司]还可以向特鲁多政府的相关委员会提出投诉。当局则将授权此前由自由党内阁推荐并任命的总督玛丽西蒙，负责在评议会上向该委员会对该法案做出最终解释。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+发稿：青青
+
+原文链接： [https://www.rebelnews.com/new\_bill\_will\_grant\_cbc\_special\_privileges\_while\_regulating\_independent\_media](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

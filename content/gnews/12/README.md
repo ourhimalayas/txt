@@ -2,28 +2,22 @@
 ---
 
 
-## 《在线新闻法》将加强监控独立媒体言论内容
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331517/)
+## 樱花FM┃乌军人在美受训使用弹簧刀无人攻击机
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2331550/)
 
-采编：加拿大温哥华扬帆农场 – UCool 优酷
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1346.png)
+美国五角大楼4月6日表示，一批乌军人正在美国训练如何使用“弹簧刀”无人攻击机，这种无人机外号“神风特攻”，被视为坦克死敌。专家分析，“弹簧刀”是一种介于巡航导弹和无人攻击飞行器之间的智能武器，这种导弹可在目标区游荡一段时间以搜索目标，并在定位目标后收起双翼，变成一枚小型巡航导弹，与袭击目标同归于尽，被形容为“神风特攻”。
 
-加拿大温哥华扬帆农场 – 编译： 晨熹
+一批乌军人早在2021年秋已进入美国，美军对他们进行培训，如何发射弹簧刀无人机。国防部匿名高官表示，这批乌克军人有十二人左右，很快重返乌克兰。美国防长奥斯汀出席国会听证会时表示，美国在乌境外帮助培训乌军人，旨在熟练掌握美国提供的武器。“他们中的一些人正在美国培训，”他证实说。
 
-据【反叛新闻】4月7日报道， 为规范加拿大数字新闻机构及其在线共享内容，严格监管独立媒体的言论传播，特鲁多自由党最近向议会提交了《在线新闻法案》。
+华盛顿还在周二宣布，将以标枪反坦克系统的形式向乌克兰提供多达1亿美元的额外军事援助，这些标枪已成为乌克兰士兵对抗俄罗斯军队的首选武器。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1344.png)图片来源：[https://www.rebelnews.com](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+文字版原文：[樱花时政┃乌军人在美受训使用弹簧刀无人攻击机](https://gnews.org/zh-hans/2302082/)
 
-
-据悉，该法案还将同时赋予[加拿大广播电视公司]对数字媒体平台及其信息内容进行监管和分享的权力，以禁止其他在线新闻机构能自由地对该公司进行合法的批评。
-
-此外，[加拿大广播公司]还可以向特鲁多政府的相关委员会提出投诉。当局则将授权此前由自由党内阁推荐并任命的总督玛丽西蒙，负责在评议会上向该委员会对该法案做出最终解释。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://www.rebelnews.com/new\_bill\_will\_grant\_cbc\_special\_privileges\_while\_regulating\_independent\_media](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
-
+*编辑：东京樱花团/曲别针
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

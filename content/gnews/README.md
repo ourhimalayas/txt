@@ -15,92 +15,92 @@
 
 ---
 
-### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/1/README.md)
+### [加國保守黨將力推加密貨幣](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [奥密克戎病毒带来的二次感染在上升](/content/gnews/2/README.md)
+### [加拿大保守党将力推加密货币](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [奥密克戎病毒带来的二次感染在上升](/content/gnews/4/README.md)
  ` 加拿大温哥华英里农场`
 
-### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/3/README.md)
+### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/4/README.md)
+### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/6/README.md)
  ` 樱花FM`
 
-### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/5/README.md)
+### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/7/README.md)
  ` 樱花FM`
 
-### [樱花FM┃俄罗斯巨富 俄乌谈判人 阿布是谁？](/content/gnews/6/README.md)
+### [樱花FM┃俄罗斯巨富 俄乌谈判人 阿布是谁？](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [樱花FM┃“不是中共是否入侵台湾，而是什么时候入侵”](/content/gnews/7/README.md)
+### [樱花FM┃“不是中共是否入侵台湾，而是什么时候入侵”](/content/gnews/9/README.md)
  ` 樱花FM`
 
-### [樱花FM┃警惕和看清中共以谈判名义行邪恶之事](/content/gnews/8/README.md)
+### [樱花FM┃警惕和看清中共以谈判名义行邪恶之事](/content/gnews/10/README.md)
  ` 樱花FM`
 
-### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/9/README.md)
+### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/11/README.md)
  ` 加拿大温哥华英里农场`
 
-### [樱花FM┃乌军人在美受训使用弹簧刀无人攻击机](/content/gnews/10/README.md)
+### [樱花FM┃乌军人在美受训使用弹簧刀无人攻击机](/content/gnews/12/README.md)
  ` 樱花FM`
 
-### [樱花FM┃为响应对俄制裁 荷兰冻结俄船东14艘游艇](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/12/README.md)
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/13/README.md)
+### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中国人的勇气在哪里](/content/gnews/14/README.md)
+### [中国人的勇气在哪里](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/15/README.md)
+### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/16/README.md)
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/17/README.md)
+### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [BC省取消疫苗卡规定](/content/gnews/18/README.md)
+### [BC省取消疫苗卡规定](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大保守党政策将利好加密货币](/content/gnews/19/README.md)
+### [加拿大保守党政策将利好加密货币](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/20/README.md)
+### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/21/README.md)
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄乌战争“没想到”系列之五：](/content/gnews/22/README.md)
+### [俄罗斯敦促金砖国家整合支付系统和卡](/content/gnews/23/README.md)
+ ` GTV News Talk`
+
+### [俄乌战争“没想到”系列之五：](/content/gnews/24/README.md)
  ` 蓝莲花农场`
 
-### [美授权外交人员撤离上海 中国坚称防疫科学有效](/content/gnews/23/README.md)
+### [美授权外交人员撤离上海 中国坚称防疫科学有效](/content/gnews/25/README.md)
  ` GTV News Talk`
 
-### [巴基斯坦总理不信任投票后被免](/content/gnews/24/README.md)
+### [巴基斯坦总理不信任投票后被免](/content/gnews/26/README.md)
  ` GTV News Talk`
 
-### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/25/README.md)
+### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/27/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/26/README.md)
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/27/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [1MDB案高盛银行家被定罪](/content/gnews/28/README.md)
+### [1MDB案高盛银行家被定罪](/content/gnews/29/README.md)
  ` GTV News Talk`
-
-### [五月花简报（04/11/2022）](/content/gnews/29/README.md)
- ` mayflowertranslate`
 
 ### [截至4.11 俄乌战事汇总](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
