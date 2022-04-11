@@ -2,34 +2,35 @@
 ---
 
 
-## 在德国，支持乌克兰的游行远胜亲俄派游行
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2329478/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2329522/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16496916221.png)图片来源：路透社
-根据4月10日《新闻极限》引述路透社的文章，亲俄派的支持者在法兰克福和汉诺威市举行了示威活动，但数量远远不及支持乌克兰的人数。
+作者：香草山翻译部
 
-根据警方的说法，周日，约有600名亲俄示威者乘坐有400辆悬挂俄罗斯国旗的汽车组成的车队驶过德国北部的汉诺威，而有约3500名乌克兰支持者在该市中心聚集。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
 
-为了将亲俄示威者与对方的示威活动分开，警方竖起了围栏，虽然气氛有时很激烈，但两场抗议活动总体上是和平的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-10.png)
 
-根据德国政府2020年底的统计数据，约有23.5万俄罗斯公民居住在德国。在俄罗斯入侵乌克兰之前，约有13.5万乌克兰人居住在德国，但自入侵以来，又有约30万人来到德国。
+文章仅代表作者本人观点，与Gnews无关
 
-在法兰克福，大约800名亲俄抗议者在当地政府拒绝允许车队进入后，聚集在市中心游行，其中一些人高呼“俄罗斯”，并举着写有“真相和多样性，不要宣传”的横幅。
+视频参看：
+[2022.04.11早 《NFSC新闻》](https://www.gettr.com/streaming/p14owulf8cb)
+[2022.04.11早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14oou55b13)
 
-而在法兰克福另外两个地方，大约共有2500名亲乌克兰的示威者集会游行，他们举着“停止战争”的横幅，脸上画着乌克兰国旗。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-根据当地媒体报道，在周日的集会之前，德国当局曾表示，虽然抗议者有权利集会，但不会容忍俄罗斯的战争宣传或对俄罗斯进行侵略的认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-11.jpeg)
 
-文章指，由于一些抗议者高呼“顿巴斯属于俄罗斯”，警方在法兰克福对他们进行了训斥。
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-*责编：白夜*
-
-**新闻来源**
-
-[Ukraine Supporters Outnumber Pro-Russians in German Protests](https://www.newsmax.com/newsfront/demonstrations-germany-ukraine-pro-russia/2022/04/10/id/1065108/)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
 
  
 

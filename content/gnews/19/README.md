@@ -2,25 +2,26 @@
 ---
 
 
-## “Hey Hey Rise Up” 平克·弗洛伊德的新单曲荣登25个国家排行榜冠军
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2329534/)
+## 俄军中将叫嚣将对乌克兰发动全面攻势
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2329638/)
 
-**撰稿：日本东京方舟农场 北极**
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16496941361.png)图片来源：路透社
+根据《华盛顿观察家报》4月11日的报道，周日，车臣统治者拉姆赞·卡德罗夫（Ramzan Kadyrov）表示，即将到来的俄罗斯军事攻势不仅将“解放”乌克兰顿巴斯（Donbas）地区的城市，还将解放乌克兰首都基辅和“所有其他城市”。
 
-据焦点报4月11日报道，英国摇滚乐队平克·弗洛伊德（Pink Floyd）和乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）合作的新单曲“Hey Hey Rise Up” 短短几天内荣登25个国家排行榜冠军。
+这位俄罗斯车臣共和国领导人的评论是在社交媒体平台电报群（Telegram）上发布的视频中发表的，在视频中，俄罗斯总统普京的顶级强人之一卡德罗夫在他的办公室里讲话，他的桌子上摆放着地图和卫星图像。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1_ccexpress-1.png)乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）在圣索菲亚大教堂前。（图片来自焦点报）
+视频中，卡德罗夫叫嚣：“将有一场猛攻…… 不仅对马里乌波尔，而且对其他地方、城市和村庄（发动攻势）。我们将首先全面解放卢甘斯克（Luhansk）和顿涅茨克（Donetsk），然后拿下基辅和所有其他城市”。
 
-上周五该单曲首发于Youtube，为了表达对乌克兰英勇抵抗俄罗斯军队入侵的行为致敬。短短几天来，荣登美国，英国，法国，德国，荷兰，比利时，澳大利亚，加拿兰，捷克共和国，芬兰，希腊，意大利，立陶宛，卢森堡，马耳他，巴拉圭，葡萄牙，新西兰，挪威，罗马尼亚，斯洛伐克，南非，瑞典等iTunes 排行榜第一名。
+针对五角大楼上周的看法，认为基辅和切尔尼戈夫（Chernihiv）周围的俄罗斯部队已经“完成了从该地区的撤退”，进入了白俄罗斯“进行改装和补给”。 卡德罗夫对此表示，“我向你们保证：不会后退一步。”
 
-这首歌是平克·弗洛伊德乐队时隔28年以来发布的第一支单曲。
+报道说，卡德罗夫上个月被普京提拔为俄罗斯军队中将，自俄罗斯2月入侵以来，他至少两次前往乌克兰。3月份，这位45岁的车臣领导人前往被围困的乌克兰东部城市马里乌波尔，提高俄罗斯作战部队的士气。这位车臣领导人声称，他与他的共和国的一个小型代表团一起旅行，向部队提供新制服和人道主义援助，并“熟悉俄罗斯部队在该市的详细行动计划”。
 
-参考链接：
-1.[https://reurl.cc/X4vRXa](https://reurl.cc/X4vRXa)
-2.[https://reurl.cc/nEWvV8](https://reurl.cc/nEWvV8)
+*责编：白夜*
 
-总编：青城道姑
-发布：晓辉
+**新闻来源**
+
+[‘There will be an offensive’: Ramzan Kadyrov says Russian forces will take Kyiv](https://www.washingtonexaminer.com/news/there-will-be-an-offensive-ramzan-kadyrov-says-russian-forces-will-take-kyiv)
 
  
 

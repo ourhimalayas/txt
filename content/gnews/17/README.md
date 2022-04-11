@@ -2,26 +2,35 @@
 ---
 
 
-## 俄军中将叫嚣将对乌克兰发动全面攻势
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2329638/)
+## 日本首次确认“XE毒株” 感染者停留过美国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329664/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16496941361.png)图片来源：路透社
-根据《华盛顿观察家报》4月11日的报道，周日，车臣统治者拉姆赞·卡德罗夫（Ramzan Kadyrov）表示，即将到来的俄罗斯军事攻势不仅将“解放”乌克兰顿巴斯（Donbas）地区的城市，还将解放乌克兰首都基辅和“所有其他城市”。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+国内机场检疫中首次确诊感染新型Corona Omicron毒株“XE”的人员
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-20.jpg)
+据厚生劳动省称，一名有留美史的30多岁女性被证实感染了一种名为“XE毒株”的新型变异株。
 
-这位俄罗斯车臣共和国领导人的评论是在社交媒体平台电报群（Telegram）上发布的视频中发表的，在视频中，俄罗斯总统普京的顶级强人之一卡德罗夫在他的办公室里讲话，他的桌子上摆放着地图和卫星图像。
+该女子于上月26日抵达成田机场，无症状，但新冠隔离检测呈阳性，随后的详细检测证实感染了“XE”。
 
-视频中，卡德罗夫叫嚣：“将有一场猛攻…… 不仅对马里乌波尔，而且对其他地方、城市和村庄（发动攻势）。我们将首先全面解放卢甘斯克（Luhansk）和顿涅茨克（Donetsk），然后拿下基辅和所有其他城市”。
+“XE”是多种Omicron菌株的组合，在日本首次得到确认。
 
-针对五角大楼上周的看法，认为基辅和切尔尼戈夫（Chernihiv）周围的俄罗斯部队已经“完成了从该地区的撤退”，进入了白俄罗斯“进行改装和补给”。 卡德罗夫对此表示，“我向你们保证：不会后退一步。”
+根据美国国家传染病研究所的数据，感染人数的增长速度比“BA.2”快12.6%。
 
-报道说，卡德罗夫上个月被普京提拔为俄罗斯军队中将，自俄罗斯2月入侵以来，他至少两次前往乌克兰。3月份，这位45岁的车臣领导人前往被围困的乌克兰东部城市马里乌波尔，提高俄罗斯作战部队的士气。这位车臣领导人声称，他与他的共和国的一个小型代表团一起旅行，向部队提供新制服和人道主义援助，并“熟悉俄罗斯部队在该市的详细行动计划”。
+目前尚不清楚检测到的“XE”是否和英国流行的同一样毒株。
 
-*责编：白夜*
+在检疫中，还发现了另外两个被认为是重组Omicron毒株的标本，但与目前分类的毒株不对应，传染病研究所表示无法做出判断。
 
-**新闻来源**
+#### 信息来源：[「XE系統」を国内で初確認　米滞在の30代女性](https://news.yahoo.co.jp/articles/ac60416b0d41cc78ce5df9ad7c9941a8f0e54e69)
 
-[‘There will be an offensive’: Ramzan Kadyrov says Russian forces will take Kyiv](https://www.washingtonexaminer.com/news/there-will-be-an-offensive-ramzan-kadyrov-says-russian-forces-will-take-kyiv)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

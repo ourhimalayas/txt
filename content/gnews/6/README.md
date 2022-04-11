@@ -2,56 +2,33 @@
 ---
 
 
-## 视频|核酸了，姐疯了，又疯了
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2329735/)
+## 泽连斯基要求韩国向乌克兰提供军事硬件支持
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2329856/)
 
-中共居民区的宣传喇叭(嫉妒夸张的语气)：“去17号楼后面做核酸吧，姐妹们，还在等什么？赶快下楼做核酸吧！”
+乌克兰总统泽连斯基周一（4月11日）在向韩国立法者发表虚拟讲话时，要求提供军事硬件，以帮助乌克兰在正在进行的战争中更好地与俄罗斯作战。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S-3.jpg)ctpost.com
+泽连斯基在对韩国国民议会的虚拟讲话中说：“乌克兰需要各种军事技术，包括飞机和坦克，而韩国可以帮助乌克兰。韩国拥有可以帮助我们对抗俄罗斯的军事硬件”。
 
-The propaganda loudspeaker in the CCP neighborhood (in a jealous exaggerated tone): “Go to the back of building 17 to make your NAAT, sisters, what are you waiting for? Hurry downstairs and make your NAAT now!”
+乌克兰战时总统补充说，韩国的帮助将备受赞赏，因为它不仅能拯救普通人的生命，还能拯救整个乌克兰，如果受到俄罗斯的攻击，这也可能导致拯救其他国家。
 
-这个视频将给你展示 中共国 核酸检测运动 是多么的可笑、荒谬、丑陋！ 视频中是中共国核酸检测人员在跳舞，他们看上去可能已经疯了！
+迄今为止，韩国向乌克兰提供的主要是人道主义援助，采取的立场是很难用致命武器支持这个东欧国家。它已经发送了防弹头盔等物品。
 
-This video will show you just how ridiculous, absurd and ugly the CCP’s NAAT movement is! The video shows the Communist China’s NAAT testers dancing around and they look like they might have gone crazy!
+泽连斯基还提到了1950-1953年的朝鲜战争，说韩国在国际社会的帮助下能够克服敌人的攻击。
 
-很多地区每人每天必须做核酸检测，视频中是中共国奇葩的宣传方式 下面字幕： （嫉妒夸张的语气）赶快下楼做核算，如果不做别想出门，也不能回家！做完核算你就达到人生巅峰！
+“每个国家都有独立的权利，每个城市都有和平生活的权利，每个人都有不因战争而死亡的权利。而我们正在为这个（权利）而战。”他说。
 
-NAAT is mandatory for everyone in many areas on a daily basis, the video is a weirdo propaganda approach by the Communist China. Caption below: (jealous exaggerated tone) Hurry up and get downstairs and do the NAAT, otherwise you can’ t go out or back home! Do the test and you’ll be at the top of your life!
+自2月24日俄罗斯入侵以来，总统实际上已在一些国家的立法机构发表讲话，包括德国、日本和美国，以争取对乌克兰的支持。
 
-中共国新发明：核算检测机器人，这像什么？？
+**快评**：乌克兰战时总统泽连斯基的日常就是与各国立法者或政府开虚拟会议，呼吁国际支持。现在他又将会议开到了韩国。
 
-New invention of the Communist China: the NAAT robot, what does this look like?
+韩国除了人道主义援助，就是发送防弹头盔。韩国忌惮的是隔壁的朝鲜。属于邪恶轴心国的朝鲜一直用导弹威胁南边的邻居，韩国新总统昨天表态允许美国在韩国部署核潜艇，但韩国不敢向乌克兰提供“军事硬件”。
 
-除了人他们还给各种动物检测，无论是猫、狗、螃蟹、鱼不放过一个！
+昨天郭先生爆料，金家会被灭。相信到时候韩国能得重生。
 
-In addition to people, they also test all kinds of animals, be it cats, dogs, crabs, fish, no one is left out!
+参考链接：
+[https://english.kyodonews.net/news/2022/04/fcb99ce4e93b-zelenskyy-asks-s-korea-to-support-ukraine-with-military-hardware.html](https://english.kyodonews.net/news/2022/04/fcb99ce4e93b-zelenskyy-asks-s-korea-to-support-ukraine-with-military-hardware.html)
 
-这些 “大白” 就是中共国核算检测的 “丑陋机器”，这些奇怪的舞蹈和动作都是他们自己用来美化核酸运动进行的表演… 你是不是无法理解？
-
-These “Da Bai” are the “ugly machines” of the Communist China’s NAAT, and these strange dances and movements are all performances they themselves use to glorify the NAAT movement… Are you unable to understand?
-
-有些人跪着检测？
-
-Some people kneel down for the test?
-
-还有些人集体下跪检测？？ 地球上中共国独有！
-
-And some people kneeling down collectively for testing? Unique to the Communist China on Earth!
-
-这就是一场披着核酸检测外衣的政治运动！和利益集团牟利的工具！ 很多中共国的利益集团就此牟利，几十亿！ 核酸检测已经成为一个产业链
-
-This is a political movement in the guise of NAAT! And a tool for profit by interest groups! Many Communist China interest groups are profiting from this, billions! NAAT has become an industrial chain.
-
-这就共产党制下的中共国！
-
-This is the Communist China under Communist rule!
-
-
-
-剪辑：happyFriday#2651
-
-翻译：香草山翻译部——文岄679
-
-发布：奇门遁甲
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
