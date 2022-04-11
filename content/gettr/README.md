@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 1:48 AM (UTC)`
+
+4月10号：共产党将纯粹的人间．已经变成了阴阳共存的形式，相信共产党走进火葬场，如果你不反党你的家很可能成为火葬场。“【我接到上级通知，说你已经S亡，现在拉你去火化，请您配合，你可以保留投诉的证据……”】
+![img](https://media.gettr.com/group14/getter/2022/04/11/01/73a34483-0f13-703a-9720-c1a0d7a704bc/out.jpg)
+
+---
+
 `@miles 4/11/2022 1:32 AM (UTC)`
 
 4/10/2022 Miles Guo: The CCP old kleptocrats believe that it is necessary to starve the people in Shanghai. By starving the Lao Baixing in Shanghai, Beijing, Guangzhou, and Shenzhen, Xi wants to make them feel grateful for the CCP and to test how much stress the Chinese people can withstand. Before the COVID vaccine disaster starts, the CCP will keep implementing the zero-COVID policy as well as the mandatory PCR testing and demands to pick the right timing, location, and how it ends.<br/><br/>4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试；中共在疫苗灾难开始前会继续实施清零和核酸检测政策并要求选对时间、地点和结束方式<br/>
@@ -144,13 +151,6 @@
 
 2022.04.09  新中国联邦 | 喜财经   货币职能和概念是如何被偷换的； 货币总量等式背后的猫腻
 ![img](https://media.gettr.com/group11/origin/2022/04/10/02/02f24ea4-4cc3-85b9-e8b6-67abbf7c15e7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/10/2022 1:16 AM (UTC)`
-
-4/9/2022 Miles Guo’s GETTR: The CCP is deploying the HQ and DF Missile Systems in Serbia and Middle East, which is equivalent to declaring war on the US and the western world; it is the Chinese people who will pay a dear price for the CCP’s aggressions. Overseas Chinese are facing an unprecedented anti-Chinese crisis.<br/><br/>4/9/2022 文贵盖特：中共在塞尔维亚和中东地区大量布置红旗和东风导弹系统，等于向美国和西方世界宣战；中国人民将为此付出沉痛代价，海外华人正面临着空前的排华危机
-![img](https://media.gettr.com/group44/getter/2022/04/10/01/d399015c-f4d3-b55b-7a76-c7c91981abda/out.jpg)
 
 ---
 

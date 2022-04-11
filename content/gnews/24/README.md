@@ -2,69 +2,27 @@
 ---
 
 
-## 2022年4月10日文贵大直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2324317/)
+## 大直播后记：习近平的阴险谋略
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324534/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220410_副本.png)
-视频连接：[2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/streaming/p14iwpvf134)
+整理：清水冷香，请你喝可乐
+编辑：Mohegayer K. Simon
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-692.png)图片来源：墨尔本雅典娜农场设计组
+习这个人做事情我给大家说过，他是有计划的，他定下的事他是要干的。你看他从2012年上来他干的最多是什么？先搞反腐，利用王岐山反腐把敌人基本都抓完了，像郭伯雄、徐才厚、周永康、薄熙来，你都数不完了。他基本上抓三波人，第一波用过去的习近平没参与的江胡的矛盾，把对方干掉，就把胡的人全干掉。然后再用江和邓之间的怨气，又把邓家干掉，结果江胡邓的势力全灭完，这是第一波，除掉自己的所有的政敌。第二波，就是搞中国的所有的富豪寡头，一个个寡头被抓被杀，腐败就是寡头腐败，把寡头企业全收拾一遍，到最后马云、马化腾、马明哲全完蛋，全部限制出境，这两拨完了。第三波，还把名人叫社会有影响力人士，习近平定位叫做看不见的风险，这些人本来就可能给我惹事儿，所以早就说过，中国只有一个人能发声，有这么多人发声干嘛？都拿掉。
 
-1、共产党前30年没有矛盾制造矛盾，后30年国营企业职工“下岗”、寡头企业；
+他在上任第一天就废掉了常委，建立了国家安全委员会，国家安全委会就是当年斯大林的那个模式。杀将军杀政治势力、抓所有的寡头、干了所有的名人，剩下一个国家真正的独裁。
 
-2、中国的灾难从来就没有结束过，上海吉林深圳的灾难不会结束；
+他在国际上要有一波人，就像过去亚非拉一样，现在也是亚非拉，最后还找了一个普京。中东、非洲、东欧的独裁国家，巴基斯坦、白俄罗斯、阿塞拜疆，这些人跟他在一起。在一起的目的是什么？他认为世界民主社会必将溃败，这个世界还需要集权制。打造一个集权制的同盟，特别是伊朗、北朝鲜，对他很管用。这时候习近平又完成了访问北朝鲜，把伊朗的整个关系全部搞定，包括伊朗的死敌沙特、伊拉克、UAE这些国家都联系在一起。
 
-3、中央明确表示：上海深圳广州长春郑州，2500-5000人死一个人可接受；
+资料来源：[2022年4月10日文贵大直播](https://www.gettr.com/streaming/p14iwpvf134)
 
-4、习中央知道毒疫苗一定起反应，反应的发生要选对时间、选对地点，而且结束的时候要考虑国家的安全和政治问题！
+发布：tianzhihuan
 
-5、未来城市解封后的疫苗灾难推卸给上海人民；
-
-6、习近平计划干掉三拨人：第一，江胡矛盾干掉胡，江邓矛盾干掉邓，除掉政敌；第二，富豪；第三，名人（看不见的风险）有影响力的人士；
-
-7、东北上海封城，习近平正在按照极限战争对城市进行压力测试，断电断水断油断粮断交通，回到文革之前；
-
-8、习近平砸烂香港，拿下台湾，控制中东，就控制了80%芯片生产能力和石油能源，俄乌战争控制1/4粮仓和化肥农业。摧毁美元和西方…跟西方玩“挨饿的游戏”；
-
-9、习近平20大连任后要改党规，宪法；
-
-10、早就没有上海帮了；
-
-11、中共把东风15布置在中东，伊拉克，伊朗和沙特，突尼斯已经有了东风FK3；
-
-12、中共准备了100枚红旗导弹和60架无人机给塞尔维亚；
-
-13、习近平马上要给俄罗斯送100倍于塞尔维亚的导弹系统；
-
-14、上海还有人在和大白睡觉换吃的，曾经的武警，明星乞讨要吃的。上海每天自杀人数过千；
-
-15、习近平把人民吃饭喝水的权力，变成武器；
-
-16、新中国联邦乌克兰前线的救援，让欧洲多国元首说出要求联合国承认新中国联邦，日本政府官员说救援坚持到最后，新中国联邦一定被世界承认和接受；
-
-17、2022年朝鲜 伊朗 沙特有很大变数；
-
-**注：大直播音频——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

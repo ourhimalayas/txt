@@ -2,47 +2,38 @@
 ---
 
 
-## 泽伦斯基赞扬了德国对乌克兰立场的巨大转变
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2324495/)
+## 有声|美国农业公司孟山都前中国籍雇员因间谍罪被判入狱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2324578/)
 
-翻译与编辑：多伦多蓝莲花–冰糖葫芦喵、灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》4月10日报道，**周日，乌克兰总统泽伦斯基表示，他在与德国总理肖尔茨的通话中，讨论了对俄罗斯实施更多制裁的问题，并称赞德国对基辅的立场发生了巨大的改变。**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体4月8日报道援，美国司法部7日发布的一份声明显示，美国农业公司孟山都的一名中国籍员工向海涛，于1月承认窃取了此公司的商业机密，提供给中共政府，被判处29个月监禁，然后会是三年的监视居住和15万美元的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-24.jpg)
+据悉，44岁的向海涛在2008年至2017年期间受雇于孟山都公司。2017年6月，联邦官员发现向海涛在等待登机前往中国时，拥有孟山都公司开发的一种专有预测算法的副本。后来，他飞往中国，在中国科学院土壤研究所工作，于2019年11月返回美国时被捕。他在密苏里联邦法院对经济间谍罪名供认不讳。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/泽伦斯基-e1649635926578.jpg)2022年4月8日，乌克兰首都基辅，泽伦斯基出席新闻发布会，指控俄罗斯入侵乌克兰。（图片来源：路透社）
+美国司法部国家安全部门助理检察长马修·奥尔森表示，经济间谍活动是一种严重的犯罪行为，向海涛密谋窃取重要的商业机密，为自己和中共获得非法利益，已经威胁到美国公司的竞争优势，危害到美国安全，国家安全局会追究任何窃取商业机密以造福外国政府与个人的行为。
 
-泽伦斯基在夜间视频讲话中说，**我今天与德国总理肖尔茨讨论了，如何将所有犯下战争罪行的人绳之以法。**关于如何加强对俄罗斯的制裁，以及如何说服俄罗斯寻求和平。
 
-他还说，我很高兴地注意到，**最近德国的立场正在向有利于乌克兰的方向转变**。我认为这绝对符合逻辑，因为大多数德国人支持这一政策。我很感激他们。我**希望我们达成的所有协议都能得到实施。这非常重要。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1200x675_cmsv2_d641553f-2655-5676-8f16-3e76f1fcfca8-6471106-e1649635064993.jpg)乌克兰总统弗拉基米尔·泽伦斯基欢迎德国总理奥拉夫·肖尔（图片来源：www.euronews.com）
+文字版原文：[美国农业公司孟山都前中国籍雇员因间谍罪被判入狱](https://gnews.org/zh-hans/2320203/)
 
-报道指出，在俄罗斯入侵乌克兰的早期阶段，德国不愿向乌克兰提供武器，但现在已同意向乌克兰提供反坦克武器和导弹。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-泽伦斯基在发表讲话时也表示，**在俄乌战争之初，德国未能提供具体帮助，但现在，他对柏林方面的举措表示赞赏。**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-周五，**德国总理肖尔茨表示，德国今年可能停止从俄罗斯进口石油**，但停止进口天然气将更加困难，因为德国需要建设基础设施。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/fe69966f8c68ff579462c54991dda51f.jpg)俄罗斯总统普京与德国总理肖尔茨（图片来源：网络）
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据报道，**俄罗斯石油占德国进口的25%**，比2月24日入侵前的35%有所下降。**德国从俄罗斯进口的天然气从55%降至40%，硬煤进口从50%降至25%。**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-肖尔茨的办公室表示，**默克尔在电话中谴责了俄罗斯军队在布查市和乌克兰其他地区犯下的战争罪行，**德国政府将确保查明肇事者，并**将其送上国内和国际法庭。**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-周六，**欧盟委员会主席冯·德莱恩表示，俄罗斯军队犯下了针对乌克兰平民的战争罪，而这件事需要由律师进行调查。**
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-此外，泽伦斯基的办公室在一份声明中表示，**欧盟主席冯德莱恩已经与乌克兰官员举行电话会议，讨论了基辅提出针对俄罗斯的欧盟第六套制裁方案。**
-
-新闻来源链接：
-
-[Zelenskiy praises Germany’s position towards Ukraine after call with Scholz | Reuters](https://www.reuters.com/world/europe/zelenskiy-says-discussed-additional-russia-sanctions-with-germanys-scholz-2022-04-10/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
