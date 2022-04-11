@@ -2,8 +2,8 @@
 ---
 
 
-## 老杂毛会议明确要弄中国大城市，觉得脱离共产党的封建统治
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324450/)
+## 除掉所有政敌、除掉所有寡头、除掉名人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324478/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

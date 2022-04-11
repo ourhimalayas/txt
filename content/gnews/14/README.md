@@ -2,8 +2,8 @@
 ---
 
 
-## 上海及广深马上会死巨量的人，都是老杂毛的计划
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324465/)
+## 习要拉上流氓国家和西方文明全面对抗
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324482/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

@@ -2,8 +2,8 @@
 ---
 
 
-## 习要拉上流氓国家和西方文明全面对抗（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324483/)
+## 习二社会压力测试：清零政策就是闭关锁国，把一切疫苗灾难推给老百姓
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324499/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE
