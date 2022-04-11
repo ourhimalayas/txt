@@ -2,38 +2,26 @@
 ---
 
 
-## 日本媒体报道中国老百姓对俄乌战争的态度
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326655/)
+## 樱花时政┃欧盟驻乌大使重回基辅办公
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2327062/)
 
-作者：日本方舟农场 – Andy5
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/欧盟驻乌大使重回基辅办公.png)（图片来源于本文链接）
 
+欧盟主席冯德莱恩和外交安全代表博雷利4月8日到访基辅，并与泽连斯基举行会谈。欧盟对外行动署当天宣布，欧盟驻乌大使马西卡斯等外交工作人员将回到基辅继续办公。博雷利表示：“通过这次访问，欧盟又回到了基辅。马西卡斯将继续留在基辅工作，重开驻地，并评估工作条件。”博雷利强调：“在基辅期间，我们亲眼目睹了乌政府在非常困难的情况下，仍有能力确保政府机构有效全面运作。欧盟代表团返回基辅将确保与政府进行更好的互动，并为乌人民提供更多支持。”
 
+信息来源： 
+[欧盟驻乌克兰大使重回基辅办公 意大利等国外交使团跟随效仿](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220409-%E6%AC%A7%E7%9B%9F%E9%A9%BB%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E4%BD%BF%E9%87%8D%E5%9B%9E%E5%9F%BA%E8%BE%85%E5%8A%9E%E5%85%AC-%E6%84%8F%E5%A4%A7%E5%88%A9%E7%AD%89%E5%9B%BD%E5%A4%96%E4%BA%A4%E4%BD%BF%E5%9B%A2%E8%B7%9F%E9%9A%8F%E6%95%88%E4%BB%BF)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-当地时间4月8～9日，有日本媒体密集盘点了目前中共防火墙内的老百姓对俄罗斯侵略乌克兰的看法。
-
-不幸的是，在北京街头接受采访的大部分人，都按照中共洗脑的说辞，称乌克兰负主要责任，甚至有人称是美国挑起的战争。在采访中，日媒记者多次从乌克兰的弱势地位，以及乌克兰人道危机等角度，希望能引起被采访者的共鸣，但最终无功而返。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-6.jpg)
-分析人士指出，正如郭文贵先生一直强调的，即使中国共产党被消灭了，要清除中国人身上被中共埋下的毒，也需要相当长的时间。中国人需要知善恶、辨真假、有信仰，这就是爆料革命坚持唯真不破，以实际行动唤醒墙内同胞的原因所在。
-
-参考链接：
-1.[20220409日媒報導牆內百姓為烏克蘭發聲](https://www.gettr.com/post/p14doyr9bb1)
-2. [ロシア×ウクライナ　中国市民の本音は？【深層中国】#5（2022年4月8日）](https://www.youtube.com/watch?v=XEfTXmk-E_A)
-3. [「ウクライナ侵攻どう思いますか?」中国・北京市民に聞いてみた](https://www.youtube.com/watch?v=8A_DDq063gE)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,32 +2,42 @@
 ---
 
 
-## 福奇表示美国人民要“各自”应对新冠病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326163/)
+## 美国驻华大使馆发布授权撤离和旅行警告声明
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326201/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/福奇表示美国人民要各自应对新冠病毒.png)[图片来源](https://news.cctv.com/2021/12/31/ARTICnCCSPgkhblFndzOuwek211231.shtml)
+作者：银河系农场 – 骄子
 
-美国传染病研究所(NIAID)的安东尼·福奇所长强调,尽管美国东部新冠感染病例再次增加,但“今后每个人都应该应对新冠感染”。
 
-福奇4月10日(当地时间)在美国ABC广播节目中说“新冠病毒不会完全消失,我们也不能完全消灭它”,“今后,美国人应该各自判断并应对这种危险”。
 
-美国彭博通讯社表示,“福奇所长的这种发言与2年前新冠肺炎疫情严重化时所说的表现完全不同,这与美国政府乔·拜登对新型冠状病毒的应对方针不同。” 这可能是因为奥密克隆株病毒的毒性比以前弱了,再加上大众对防疫措施的疲劳感越来越大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-美国政府目前认为“疫苗接种率和免疫达成率、治疗条件等考虑,新冠肺炎的情况并不严重”,因此解除了防疫措施。
 
-信息来源：
-[米ファウチ氏「新型コロナへの対応、今後は “各自”で」](https://news.yahoo.co.jp/articles/208ec51bd9319ccd77af32c1fc6d8894e516d71f)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+当地时间4月9日，美国驻华大使馆官网发布了一则重要通告，告知美国驻上海总领馆非紧急美国政府雇员和所有家属均可以自愿撤离中共国。
+
+通告称，美国驻华大使伯恩斯以及美国国务院和使团的其他官员，已直接向中共官员提出了美国政府对当地疫情和管控措施的关切，也已将使团人员自愿撤离的决定通知了他们。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-5.jpg)
+根据美国国务院2022年4月8日的旅行警告，由于中共国当地法律的任意执行以及中共病毒疫情相关的限制，美国公民被要求重新考虑前往中共国内的旅行。此外，由于中共对疫情的相关限制，其中包括父母与孩子分离的风险，美国公民不应前往中共国的香港特别行政区、吉林省和上海市。
+
+美国驻上海总领馆目前对公众关闭，仅向美国公民提供24小时紧急服务。随着情况的发展，美领馆已向美国公民发出多条信息，“授权撤离”工作已有序展开。
+
+据新中国联邦爆料革命以前的消息，美国国务院已于2022年1月底，开始授权撤离美国驻华使馆的部分员工。有分析人士指出，此次美国驻华使团关于旅行警告和授权撤离的声明，体现了美国逐步撤离中共国的政策一致性。
+
+参考链接：
+[美国驻华使团关于旅行警告和授权撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑：Delilah小胖
+总编：飞虹
+审核：文恩
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

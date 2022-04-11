@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯外汇评级降至“选择性违约”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326195/)
+## 中共盗走美国小投资者数十亿美元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326260/)
 
-作者：香草山农场 – 柳是多水土透
+作者：银河系农场 – 骄子
 
 
 
@@ -13,14 +13,14 @@
 
 
 
-4月9日美国媒体报导，标准普尔当天将俄罗斯的外汇评级下调到了“选择性违约”的级别，原因是，他们认为，俄罗斯政府无法，也不愿履行对外国债券持有人承诺的风险在加大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-5.jpg)
-由于入侵乌克兰而受到的一系列制裁，俄罗斯可能面临一个多世纪以来的首次主权外部违约。标准普尔表示，未来几周，对俄罗斯的制裁可能会进一步加强，这会阻碍俄罗斯对外国债权人履行义务的意愿和能力。
+当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国贼等与此有关联，中共在利用美国市场的规则漏洞来洗劫美国投资者的资金。
 
-本周，俄罗斯安排以卢布偿还一笔本应以美元偿还的国际债券，对此，标普表示，他们不预期投资者能够将这些卢布付款转换成与最初到期金额等值的美元，也不期望政府在30天的宽限期内会转换这些付款。而当他们认为债务人选择性地拖欠了特定类型的义务，但将继续及时履行其他义务时，就会给予选择性违约评级。
+2016～2021年，一些在美国交易所上市的中共公司通过在降价前抛售自己的股票，从事内幕交易，防止损失，资金至少达100亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-5.jpg)
+1990年以来，为了吸引外国公司在美国上市，美国法律原本关于股东必须及时在公开文件中披露其具体交易的规定，对中共国并未严格执行，他们提交相关文件的时间被大大延长。对于瞬息万变的市场来说，这无疑是巨大的漏洞。而在中共的各种蓝金黄手段下，大量的西方投资者将资金投向了中共，其中一大部分被中共变相骗走。
 
 参考链接：
-[S&P cuts Russia’s foreign currency rating to ‘selective default’](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
+[China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 

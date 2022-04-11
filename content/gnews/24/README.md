@@ -2,39 +2,36 @@
 ---
 
 
-## 美专家：应拒绝在北美为中共特务提供身份申请
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326050/)
+## 俄罗斯外汇评级降至“选择性违约”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326195/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理/编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3419.jpg)图片来源：搜狐
+作者：香草山农场 – 柳是多水土透
 
 
-根据大纪元4月11日讯，近日美国华裔间谍案频发，专家认为，应该拒绝在北美为中共利益服务的特务提供身份申请，不允许这些人居留在北美。
 
-美国堪萨斯大学华裔研究员陶丰被控“为中共当局担任科技间谍”，7日陪审团裁定，三项电汇欺诈罪和一项虚假陈述罪成立。但联邦地区法官罗宾逊（Julie Robinson）将继续权衡辩方提出的动议，已要求律师以书面形式提交各自论点，她将再就此权衡判刑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-同日，美国司法部发布新闻稿说，美国农业种子公司中国籍前员工孟山都（Monsanto Co.）因合谋从事经济间谍活动，被判处29个月监禁。
 
-3月16日，美国司法部宣布，起诉5名代表中共秘密警察的人，因为他们监视、骚扰和抹黑批评中共的在美华人，甚至破坏目标人物竞选美国国会议员。
 
-经济学教授、中国问题专家安东尼奥‧格雷斯福（Antonio Graceffo）
+4月9日美国媒体报导，标准普尔当天将俄罗斯的外汇评级下调到了“选择性违约”的级别，原因是，他们认为，俄罗斯政府无法，也不愿履行对外国债券持有人承诺的风险在加大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-5.jpg)
+由于入侵乌克兰而受到的一系列制裁，俄罗斯可能面临一个多世纪以来的首次主权外部违约。标准普尔表示，未来几周，对俄罗斯的制裁可能会进一步加强，这会阻碍俄罗斯对外国债权人履行义务的意愿和能力。
 
-说，美国法律要求外国代理人进行注册。而中共的《国家情报法》、《国家网络安全法》和《国家安全法》有效地要求所有中国公民和公司通过将所有数据移交给中共，来协助收集情报。这强迫使所有中国公民成为代理人。因此，如果中国签证申请人与中共或国家支持的实体有任何联系的迹象，则不应签发签证。
+本周，俄罗斯安排以卢布偿还一笔本应以美元偿还的国际债券，对此，标普表示，他们不预期投资者能够将这些卢布付款转换成与最初到期金额等值的美元，也不期望政府在30天的宽限期内会转换这些付款。而当他们认为债务人选择性地拖欠了特定类型的义务，但将继续及时履行其他义务时，就会给予选择性违约评级。
 
-格雷斯福认为，需要关注的另一个地方是大学。中共派国家支持的人员、代理人到美国学习。他们控制或影响校园内的言论自由，同时监视中国、西藏和台湾学生。
+参考链接：
+[S&P cuts Russia’s foreign currency rating to ‘selective default’](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
 
-参考链接：[间谍案频发 美专家：凸显美国移民筛查弱点](https://www.epochtimes.com/gb/22/4/10/n13708474.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-*发布：tianzhihuan*
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

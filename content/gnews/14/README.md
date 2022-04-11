@@ -2,35 +2,38 @@
 ---
 
 
-## 疫情之下上海面临检测压力，居民生活补给受冲击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326344/)
+## 日本媒体报道中国老百姓对俄乌战争的态度
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326655/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理/编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/016EAF1B-CD47-4272-B281-6DEEC991445E.jpg)图片来源：头条新闻
+作者：日本方舟农场 – Andy5
 
 
-根据大纪元4月10日讯，在政府官员承认COVID-19防疫不力后，上海周六（4月9日）进行了另一轮大规模检测。在食物短缺问题加剧之际，该市居民所面临的检测压力也在升级。
 
-路透社报导，虽然与全球其它国家相比，上海所报告的病例数量并不多，但上海市已经成为中共清零政策试验田。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-在中共中央的干预下，上海上周分阶段进入封锁状态。结果引发食物短缺问题，满腹怨言的民众与政府官员大吵的视频在网上热传。
 
-由于许多超市被迫关门，数以千计的送货员不得出行，上海大约2600万居民所需要的生活补给受到严重冲击，医疗服务也面临同样问题。
 
-于是，上海周六要求居民自行进行抗原测试，有时甚至是两次。
+当地时间4月8～9日，有日本媒体密集盘点了目前中共防火墙内的老百姓对俄罗斯侵略乌克兰的看法。
 
-参考链接：[食物短缺加剧之际 上海加紧检测](https://www.epochtimes.com/gb/22/4/10/n13708311.htm)
+不幸的是，在北京街头接受采访的大部分人，都按照中共洗脑的说辞，称乌克兰负主要责任，甚至有人称是美国挑起的战争。在采访中，日媒记者多次从乌克兰的弱势地位，以及乌克兰人道危机等角度，希望能引起被采访者的共鸣，但最终无功而返。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-6.jpg)
+分析人士指出，正如郭文贵先生一直强调的，即使中国共产党被消灭了，要清除中国人身上被中共埋下的毒，也需要相当长的时间。中国人需要知善恶、辨真假、有信仰，这就是爆料革命坚持唯真不破，以实际行动唤醒墙内同胞的原因所在。
 
-*发布：tianzhihuan*
+参考链接：
+1.[20220409日媒報導牆內百姓為烏克蘭發聲](https://www.gettr.com/post/p14doyr9bb1)
+2. [ロシア×ウクライナ　中国市民の本音は？【深層中国】#5（2022年4月8日）](https://www.youtube.com/watch?v=XEfTXmk-E_A)
+3. [「ウクライナ侵攻どう思いますか?」中国・北京市民に聞いてみた](https://www.youtube.com/watch?v=8A_DDq063gE)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

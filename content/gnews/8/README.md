@@ -2,32 +2,53 @@
 ---
 
 
-## 樱花FM┃中共死挺俄罗斯 中欧峰会如“聋人对话”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2326371/)
+## COVID-19疫苗副作用集萃（2022.4.11）–三次疫苗，三次闭经
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326958/)
 
-音频：东京樱花团/战友520
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中共死挺俄罗斯-中欧峰会如聋人对话.png)
+整理/编辑：gardeniahu
 
-欧盟外交安全政策高级代表波瑞尔在本次中欧峰会上发言表示，中共很清楚俄乌战争的侵略者是谁，但却装聋作哑。会后，波瑞尔以与“聋人对话”形容这场峰会。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-16.png)图片来源：雅典娜设计组(614)
 
-据德国之声报道，欧盟外交安全政策高级代表波瑞尔在本次中欧峰会上发言表示，虽然因为政治因素无法直接点名，但中共很清楚侵略者是谁。中共不能假装是一个大国，但当涉及到一个明显让它不舒服的冲突时，却闭上眼睛捂上耳朵。
 
-波瑞尔还说到，中方重申希望看到和平，称自己是和平的民族，不侵略别人，要求缓和局势，但并没有具体承诺或对俄罗斯有任何形式的谴责。双方虽然有歧见，但至少在避免使用生化武器和大规模毁灭性武器的“红线”上应该要有共识。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-会后波瑞尔以与“聋人对话”形容这场峰会。中共不想谈乌克兰，也不愿讨论人权议题，只想讨论所谓的“正面”话题，双方没有达成任何共识。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-文字版原文：
-[樱花时政┃中共死挺俄罗斯 中欧峰会如“聋人对话”](https://gnews.org/zh-hans/2299776/)
+原文作者：柄汐
 
-*编辑：东京樱花团/曲别针
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**疫情|新冠疫苗副作用     三次疫苗，三次闭经**
+
+第一次疫苗，潮热盗汗，闭经，中药调好。
+
+第二次疫苗，一夜回到解放前，所有症状全复发，闭经，接着吃中药，调好。
+
+第三次疫苗，又不行了，中药只控制住潮热盗汗，但闭经没好。
+
+无奈去查了激素六项，医生告诉我彻底绝经了，死马当活马医开了坤泰胶囊和芬吗通，刚开始吃第一天，现在整个人崩溃状态，不知道该怎么办了。。。有没有复过来的姐妹给我点信心和希望啊
+
+ps：38岁，明明没到绝经的年龄啊！
+
+发布于04.04
+
+精选评论
+
+达令达令哒      回复:真是不要命
+
+是ou呀    回复：都经历前两次了，咋还这么勇，第三针还敢打啊。
+
+小鱼儿     回复：我也是疫苗后一直不来了，突然就绝经了，也是潮热盗汗睡眠不好，喝了很多中药，就是月经不来，还不敢说是疫苗的问题，单位天天催我打。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1225.png)图片来源：小红书
+参考链接：[三次疫苗，三次闭经](https://www.xiaohongshu.com/discovery/item/624a7ad00000000021037e76?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521269)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
