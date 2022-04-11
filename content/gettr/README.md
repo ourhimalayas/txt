@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 2:37 PM (UTC)`
+
+【Ukraine Rescue】04/09/2022  Nicole explained to the Scotland volunteer that 1.4 billion Chinese lived in Communism, without freedom ,without freedom of speech, without freedom of thought, without freedom of press. This is a humanitarian crisis. That is why the NFSC needs to take down the CCP. <br/><br/>【乌克兰救援】04/09/2022  妮可向来自苏格兰的义工解释，14亿中国人生活在共产主义之下，没有自由，没有言论自由，没有思想自由，没有新闻自由。这是一场人道危机。这就是新中国联邦要推翻中共的原因。
+![img](https://media.gettr.com/group13/getter/2022/04/11/14/13ad9daf-5e79-7f7c-4ad5-0c3a10d70666/out.jpg)
+
+---
+
+`@miles 4/11/2022 2:32 PM (UTC)`
+
+4月11号：尊敬的战友们好……中国已经进入人道大灾难的时刻……
+![img](https://media.gettr.com/group49/getter/2022/04/11/14/a7498c7e-5a49-e7c6-17c0-ced20bfa3e3b/out.jpg)
+
+---
+
+`@miles 4/11/2022 2:27 PM (UTC)`
+
+4/10/2022 Miles Guo: The CCP knows that COVID vaccines kill people but still pushes the toxic COVID vaccines, and the nucleic acid test is 100% phony. Shanghai's lockdown is not a political struggle between Xi and the Shanghai gang, which has long been finished. Xi is executing a well-thought-out murderous scheme to implement a planned economy in Communist China, take over Hong Kong and Taiwan, place super mines at the waters around Japan, and control the Straits of Malacca and Hormuz. The US, however, cannot understand Xi's plan.<br/><br/>4/10/2022 文贵直播：中共明知疫苗杀人却仍推毒疫苗，核酸检测100%是假的；上海封城不是习和上海帮的政治斗争，上海帮早已完蛋；习在执行周密的杀人计划，对内实施计划经济，拿下港台，在日本周围将布置超级水雷并控制马六甲海峡和霍尔木兹海峡，而美国却无法理解习的计划
+![img](https://media.gettr.com/group45/getter/2022/04/11/14/649d914b-2c57-449f-2f0b-08a0b7934d07/out.jpg)
+
+---
+
 `@miles 4/11/2022 2:15 PM (UTC)`
 
 4/10/2022 Miles Guo: Xi's ultimate goal is to stay in power after the 20th Party Congress and establish a regime that will always belong to Xi himself! Xi is even willing to put the Chinese in endless wars, starvation, and contradictions and conflicts just to achieve this goal! Only the Whistleblowers’ Movement has revealed this truth to the world!<br/><br/>4/10/2022 文贵直播：习的终极目标是确保20大连任并建立起永远属于习的江山！习为了实现这一目标，不惜将中国人置于永不停歇的战争、饥饿、以及矛盾和冲突之中！只有爆料革命向世界揭露了这一真相！<br/>
@@ -133,27 +154,6 @@
 
 4/10/2022 Miles Guo: The CCP old kleptocrats believe that it is necessary to starve the people in Shanghai. By starving the Lao Baixing in Shanghai, Beijing, Guangzhou, and Shenzhen, Xi wants to make them feel grateful for the CCP and to test how much stress the Chinese people can withstand. Before the COVID vaccine disaster starts, the CCP will keep implementing the zero-COVID policy as well as the mandatory PCR testing and demands to pick the right timing, location, and how it ends.<br/><br/>4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试；中共在疫苗灾难开始前会继续实施清零和核酸检测政策并要求选对时间、地点和结束方式<br/>
 ![img](https://media.gettr.com/group34/getter/2022/04/11/01/5a0bae88-6917-23ae-9a21-39a6a3291741/out.jpg)
-
----
-
-`@miles 4/11/2022 1:04 AM (UTC)`
-
-2022.04.10 晚  新中国联邦 | 新闻访谈   上海封城无期，饥渴难耐，百姓尊严与命皆难保; 救援前线，国际友人谈信仰，与爆料革命坚持正道主义信仰不谋而合
-![img](https://media.gettr.com/group15/origin/2022/04/11/00/7b0239b9-65a6-512a-e7e2-10a0f7ec1b67/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/11/2022 12:29 AM (UTC)`
-
-2022.04.10 晚  新中国联邦 | 新闻    中共的疯狂举动 恐将让中国人付出血的代价; 台湾旅乌男士在新中国联邦救援基地任义工
-![img](https://media.gettr.com/group25/origin/2022/04/11/00/fee3b58c-44b8-17ff-c674-e5d1ce7ae36a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/10/2022 11:01 PM (UTC)`
-
-2022.04.10 NFSC news  Update on NFSC’s Frontline Humanitarian Rescue Operation
-![img](https://media.gettr.com/group49/origin/2022/04/10/23/24eae070-5f51-743d-9e7f-fb673ec7bdfb/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

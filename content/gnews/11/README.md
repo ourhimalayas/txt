@@ -2,29 +2,28 @@
 ---
 
 
-## 有声｜乌克兰预测俄军将在东部发动猛烈进攻
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2328764/)
+## 樱花时政┃北约将进入亚太地区对抗中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2328907/)
 
-**By:秘翻新闻**
+翻译：东京樱花团/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-75.jpg)(图片来源：Unsplash)
+来自零对冲消息，北大西洋公约组织（NATO）宣布，鉴于北京政权日益增长的影响力和胁迫力以及不愿意谴责俄罗斯对乌克兰的入侵，该组织将开始在实际和政治上参与亚太地区。
 
-**2022-04-11**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/411-6-scaled.jpg)
-[英国泰姆士报](https://www.thetimes.co.uk/article/ukraine-braces-itself-for-russian-assault-on-the-east-twhrb9qm6)4月10日报道，乌克兰总统泽连斯基警告称，普京的野心是整个欧洲，乌克兰正准备迎接俄军在东部地区的新一轮进攻。
+北约秘书长延斯·斯托尔滕贝格表示中共不愿意谴责俄罗斯的侵略行为，并且已经与莫斯科站在一起。这对北约各国来说是一个严重的挑战。
 
-泽连斯基称，“必须避免一场可能影响所有人的灾难，因为普京的侵略并不仅限于乌克兰，他的目标将是整个欧洲。”
+为应对这种情况，北约及其亚太伙伴——澳大利亚、日本、新西兰和大韩民国在布鲁塞尔举行会议，讨论对乌克兰的国际支持。斯托尔滕贝格说，“北约和我们的亚太伙伴现在已经同意加强我们在几个领域的实际和政治合作，包括网络、新技术和打击虚假信息。”
 
-卫星图像显示，俄罗斯已经动员了6万名预备役人员，数百辆军用车辆穿过东部城镇韦利基布尔卢克，前往伊齐乌姆市。卫星图像还显示，俄军已完全撤离基辅和切尔尼戈夫地区，根据美国五角大楼的说法，这些部队正准备部署到东部地区。
+新闻来源：[NATO To Engage In Asia-Pacifc To Counter China](https://www.zerohedge.com/geopolitical/nato-engage-asia-pacifc-counter-china)
 
-军事观察家预计，俄军将试图从哈尔科夫地区向南推进，从顿涅茨克市向北推进，以包围顿巴斯地区的乌克兰军队。这样的攻击可以发挥出俄军的坦克和装甲车数量优势。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-美国参谋长联席会议主席马克米利将军上周告诉国会，东南方的战斗与北方不同，它的地形更加开放，适合双方的装甲机械化进攻行动。
-
-（秘翻新闻 自由信仰 编译报道）
-
-发布:文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,26 @@
 ---
 
 
-## 加拿大投巨资以推动绿色科技产业
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2328248/)
+## 秘翻在线：世界银行（WB）：今年乌克兰GDP减半，俄罗斯逆势增长11%
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2328740/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 重生之鹰
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-21.jpg)图片来源：本文链接
+据韩国《亚洲经济》4月11日报道，世界银行(WB)预测，由于俄罗斯入侵乌克兰，今年乌克兰的国内生产总值(GDP)将只达到去年的一半水平。特别是铁路、桥梁、港湾、道路等当地基础设施大部分被破坏，对经济活动的制约很大。
 
-据[多伦多太阳报]4月6日报道，为吸引国内外私有企业对新型绿色技术产业的投资，联邦政府将在5年内向[加拿大增长基金]投入150亿加元。
+10日（当地时间），据法新社等媒体报道，WB预测今年乌克兰的GDP将比前一年减少45.1%。WB解释说：“乌克兰经济会下降到什么程度完全取决于战争持续的时间和强度。”WB认为，由于此次战争，乌克兰的生产基础设施遭到破坏，在当地大部分地区很难进行经济活动，且占乌克兰经济相当部分的农业生产也会受到影响，最终影响到世界经济。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1299.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
+据此，乌克兰每天收入不足5.5美元（约6760韩元）的贫困阶层比率将从战争前的1.8%猛增到今年的19.8%。
 
+挑起战争的俄罗斯经济也因西方经济制裁等影响出现了逆势增长。WB预测今年俄罗斯经济增长率为-11.2%，还可能会出现工作岗位、收入恶化和贫困率及物价暴涨等。
 
-据悉，特鲁多试图通过该计划来达到每1加元的公共资金吸引3加元的私企投资，以支持该国发展绿色产业项目，并使投资者们能最终使用这些新型科技。
+同时，WB认为，欧洲和中亚新兴发展中国家的经济也将出现4.1%的负增长。特别是白俄罗斯、吉尔吉斯斯坦、摩尔多瓦、塔吉克斯坦等与俄罗斯和乌克兰经济密切相关的国家将受到打击。
 
-对此，今年的政府预算案将涉及一项总金额为20亿加元的关键矿产投资项目。而在俄罗斯入侵乌克兰后，加拿大将额外增加80亿加元的国防开支，用于本国军备的补充和升级。
+根据世界银行的这种预测，接下来的一段时间对很多国家来说，其经济发展都将面临一场严峻的考验。
 
-校对编辑：硫酸羟氯喹64
+信息来源：[https://view.asiae.co.kr/article/2022041108062150840](https://view.asiae.co.kr/article/2022041108062150840)
 
-发稿：青青
-
-原文链接： [https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
+责编：Eric Kim
 
  
 

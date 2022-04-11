@@ -2,31 +2,28 @@
 ---
 
 
-## 上海的疯癫“解封告知书”：按规定足不出户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2327508/)
+## 芬兰和瑞典最早将在夏天加入北约
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2327612/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-53.jpg)
-封城下的上海某处（图片来自《路透社》）
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-中共在上海所实施的防疫封控暴政已是闹得天怒人怨。近日传出上海部分地区将开始逐步解封，然而在一份所谓的“解封告知书”上却赫然写着：“按规定足不出户”。
-
-推特账号“银河系勇气之星”4月11日发布了一张上海“解封告知书”的图片。根据图片显示，这份“解封告知书”是上海市闵行区梅陇镇中梅苑第一居民委员会发出的。该解封书告知辖区居民，自2022年4月10日12时起，上中西路711号楼正式迎来解封，即将回归正常。
-
-然而在这份解封书所列提示中的第一条就写明：“上述点位在解封后，原地转为封闭式管理，**按规定足不出户。**继续配合做好大规模核酸采样……”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-33.jpg)
-看完这份“解封告知书”后笔者惊呆了，认真反省了一下自己是不是语文没学好，或是理解力有问题。“足不出户”代表“解封”？那是解的什么封？要论玩文字游戏，中共可谓天下第一。中共就是这样玩弄了老百姓70年，而中共国国民竟也能一直容忍到今天。
-
-新闻链接：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-
-> 这就是上海新的解封告知书，口头上解，按规定足不出户，还是不能出门！ [pic.twitter.com/UqjJdrE9eD](https://t.co/UqjJdrE9eD)
-> — 银河系勇气之星🌟🌟🌟🚀🚀🚀 (@COURAGESTARnew) [April 11, 2022](https://twitter.com/COURAGESTARnew/status/1513323925480288256?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0159.jpg)
 
 
+资料来源：路透社
 
-* * *
+路透4月10日 – 据《泰晤士报》周一援引官员的话报道，俄罗斯犯了一个“重大战略错误”，因为芬兰和瑞典看起来早在夏天就准备加入北约。
+
+报告补充说，在上周由瑞典和芬兰出席的北约外长会谈期间，美国官员表示，两个北欧国家的北约成员资格是“一个对话和多次会议的话题”。
+
+简评：经过了俄罗斯入侵乌克兰的这个严酷的现实， 一直保持中立的两个北欧国家， 瑞典和芬兰都提出了申请加入北约的要求， 而且，北约也表示，最早他们在今年夏天就可以加入。现在让欧洲人更加的团结， 一致对付侵略者， 共同防御可能发生的任何军事威胁。
+
+🔗 [https://www.reuters.com/world/europe/finland-sweden-set-join-nato-soon-summer-times-2022-04-10/](https://www.reuters.com/world/europe/finland-sweden-set-join-nato-soon-summer-times-2022-04-10/)
+
+责任编辑、发布： Shuizhuyu
 
  
 
