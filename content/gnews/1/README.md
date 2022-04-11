@@ -2,30 +2,32 @@
 ---
 
 
-## 中日财经爆┃中共国3月份汽车产销同比下滑11.7%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329088/)
+## 有声|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329178/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月11日每日经济新闻报道，中汽协发布的最新数据显示，今年3月，汽车产销数据分别为224.1万辆和223.4万辆，同比下滑9.1%和11.7%；环比增长23.4%和28.4%。1—3月，汽车产销累计648.4万辆和650.9万辆。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-58.jpg)图片来源
-中共一汽集团计划于3月13日起停产其在长春的五大整车工厂，初步计划停产至3月16日，具体看疫情防控情况而定。但直到4月11日，一汽-大众长春工厂仍处于暂时停产状态。受此次疫情影响，根据乘联会数据，3月，一汽-大众广义乘用车批发销量为12.2万辆，同比下滑43.1%。
+配音：香草山商业部——文锤
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+4月7日的飞飞《大实话》盖特直播中，叶钊颖、郝海东夫妇揭露中共体制下的恶——没有信仰，没有真爱，没有人性，没有底线。
 
-中共国内众多城市爆发出现中共病毒（新冠病毒Covid-19）及毒疫苗后遗症，加之国际地缘政治不稳定因素显著增加，同时芯片短缺没有明显好转，特别是动力电池原材料价格快速上涨，推动了企业生产成本上涨，多数企业因此纷纷上调旗下产品销售价格，影响终端市场的销售。
+从小在体制下长大的叶钊颖、郝海东夫妇，亲眼看见、新耳听见过中共官场的是是非非，亲身体会过邪恶中共体制带来的伤害，也深知在体制下人们的无奈，所以痛恨这个邪恶体制。在这个邪恶的体制下，那些连鸡都不敢杀的中共高官，为了保护自己的权力，家人不敢爱，亲情不敢要，贞节要出卖，婚姻也交易，不择手段，向党内敌人痛下杀手。从毛泽东到现在的习近平，中共的官场互害杀死了许多官员，将许多中共党员送进了监狱，冤枉了许多老百姓，害死了许多无辜的人！
 
-另外，中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费 ，高房价，零福利，高支出，房子和汽车成为高负债品，已无从过多消费支出，断供潮也是必至。
+在中共体制下，人们没有道德底线、没有信仰、没有敬畏之心，就不可能有爱心。郝海东先生认为，人性的丧失、人伦的丧失、爱的丧失，是中共最大的可悲。我们新中国联邦人要重拾先进文明，每个人都应追求有温度的爱。
 
-信息来源：【[快讯丨3月国内汽车销售223.4万辆 同比下滑11.7%】](https://me.mbd.baidu.com/r/Ej9R3Cj4UU?f=cp&amp;rs=3299755133&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b5369d800b4840a7&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
+文字版原文：[叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](https://gnews.org/zh-hans/2322037/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
