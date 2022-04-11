@@ -15,62 +15,62 @@
 
 ---
 
-### [大直播后记：面对当前灾难的应对方法](/content/gnews/1/README.md)
+### [大直播后记：新中国联邦一定会被别的国家承认](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [风林往事——悲鸣的孤雁](/content/gnews/2/README.md)
+### [樱花FM┃港警入驻口岸隔离营接手管理](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃政要传话 「疫情下1人参选较合适」](/content/gnews/3/README.md)
+ ` 樱花FM`
+
+### [乌克兰救援行动中新中国联邦人的标志：七星大帐篷、灭共黄马甲、现磨咖啡展示给世界看](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：学会放下](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰前线救援行动是对新中国联邦人的考验](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰将继续以牙还牙进行彻底的抵抗](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中国人既不可怜，还非常可恨](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [【视频】中共针对郭文贵的遣返（一）阿布扎比路线](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场 文永`
+
+### [众议员麦卡锡带领两党议员去波兰讨论乌克兰问题](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大直播后记：七哥细数中共执政前30年和后30年所作的恶](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：面对当前灾难的应对方法](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [风林往事——悲鸣的孤雁](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.11）–新冠疫苗副作用综合征](/content/gnews/3/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.11）–新冠疫苗副作用综合征](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/11/2022 银河快讯：岸田首相解释为乌克兰难民提供3亿美元财政援助；日本每天入境人数将提高至10,000](/content/gnews/4/README.md)
+### [4/11/2022 银河快讯：岸田首相解释为乌克兰难民提供3亿美元财政援助；日本每天入境人数将提高至10,000](/content/gnews/15/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [大陆民众：不信官媒积极囤粮](/content/gnews/5/README.md)
+### [大陆民众：不信官媒积极囤粮](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [上海一市民怒斥防疫措施 称现在还不如文革时期](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [所有的问题都是自己的问题](/content/gnews/7/README.md)
+### [中国人连起码的尊严都没有](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系](/content/gnews/8/README.md)
+### [参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系](/content/gnews/18/README.md)
  ` 美国政要直译推`
 
-### [克拉马托尔斯克火车站的致命导弹袭击造成50多平民死亡](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [除非中共打台湾不然美国不会开战](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [接受就是放下（二）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [接受就是放下（一）](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [战斗室持续关注上海2500万人遭封城](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习二把阳间变阴间](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [国内战友在拿命送药](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [美国和波兰军队在乌克兰边境附近进行联合实弹演习](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [今日盖特大V推荐 — 莫妮卡·克劳利（Monica Crowley）](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [外国投资者恐慌性抛售中共国债券](/content/gnews/18/README.md)
+### [外国投资者恐慌性抛售中共国债券](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022年4月10日大直播速记精萃](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
 
 ### [美高官前往所罗门群岛讨论中共国安全协议问题](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
