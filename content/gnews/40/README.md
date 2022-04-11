@@ -2,40 +2,25 @@
 ---
 
 
-## 欧盟与欧佩克会面呼吁增加石油产量
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2328034/)
+## 加拿大投巨资以推动绿色科技产业
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2328248/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+采编/撰稿：加拿大温哥华扬帆农场 – 重生之鹰
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+据[多伦多太阳报]4月6日报道，为吸引国内外私有企业对新型绿色技术产业的投资，联邦政府将在5年内向[加拿大增长基金]投入150亿加元。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1299.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3B54FLLC7JORZGOGSDW4SSWJGA.jpg)
+据悉，特鲁多试图通过该计划来达到每1加元的公共资金吸引3加元的私企投资，以支持该国发展绿色产业项目，并使投资者们能最终使用这些新型科技。
 
+对此，今年的政府预算案将涉及一项总金额为20亿加元的关键矿产投资项目。而在俄罗斯入侵乌克兰后，加拿大将额外增加80亿加元的国防开支，用于本国军备的补充和升级。
 
-资料来源：路透社
+校对编辑：硫酸羟氯喹64
 
-布鲁塞尔，4 月 11 日（路透社）——欧盟官员将于周一在维也纳与欧佩克代表举行会谈，呼吁生产国集团增加产量，同时欧盟考虑对俄罗斯石油实施潜在制裁。
+发稿：青青
 
-在华盛顿和布鲁塞尔对莫斯科实施制裁后，欧佩克拒绝了美国和国际能源署增加原油产量以降低价格的呼吁，该价格在上个月达到了 14 年高点。
-
-由石油输出国组织和包括俄罗斯在内的其他产油国组成的欧佩克+将在 5 月份将产量提高约 432,000 桶/日。
-
-周一下午的欧盟-欧佩克会议是双方于 2005 年发起的最新一次对话。
-
-迄今为止，俄罗斯石油已被排除在欧盟制裁之外。但在 27 个国家的集团上周同意制裁俄罗斯煤炭供应之后，一些欧盟高级官员表示，石油可能是下一个目标。
-
-爱尔兰、立陶宛和荷兰外长周一在抵达卢森堡与欧盟外长会晤时表示，欧盟委员会正在起草对俄罗斯实施石油禁运的提案。
-
-与欧洲相比，对俄罗斯供应的依赖程度较低的澳大利亚、加拿大和美国已经禁止购买俄罗斯的石油。
-
-鉴于欧盟国家更高的依赖性以及此举可能推高欧洲已经很高的能源价格，欧盟国家在是否效仿的问题上存在分歧。
-
-欧盟预计，根据其应对气候变化的计划政策，到 2030 年，其石油使用量将比 2015 年减少 30%——尽管在短期内，禁运将引发用替代供应替代俄罗斯石油的冲刺。
-
-🔗 [https://www.reuters.com/business/energy/eu-meets-opec-amid-calls-oil-output-increase-2022-04-11/](https://www.reuters.com/business/energy/eu-meets-opec-amid-calls-oil-output-increase-2022-04-11/)
-
-责任编辑、发布： Shuizhuyu
+原文链接： [https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
  
 

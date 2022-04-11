@@ -2,20 +2,18 @@
 ---
 
 
-## 樱花时政┃波兰将追究卡廷惨案责任
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329599/)
+## 樱花时政┃美国将派遣外交官前往所罗门群岛
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329640/)
 
-撰稿：东京樱花团/haruka春香
+撰稿：东京樱花团/加一颗稻草
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-波兰总统杜达10日表示，将针对1940年前苏联秘密警察杀害2.2万多名波兰俘虏的“卡廷森林大屠杀(Katyn Massacre)”通过国际法庭追究责任。总统表示：“集体杀害没有时效。希望这个案子在国际法庭上得到审判。将在近期内提出适当的动议。”表示要向法院提出起诉，但没有表示要起诉谁。
+美国总统乔·拜登将派遣国家安全委员会印度-太平洋地区协调员库尔特·坎贝尔前往所罗门群岛。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-27.jpg)图片来源于本文链接
+此举是由于人们越来越担心所罗门群岛与中共之间即将签署的一项安全协议。根据该协议，北京可能将在所罗门群岛建立军事基地，使中共军队驻扎在当地，以换取对该国更多的援助。也为中共在这些岛屿上部署军队和警察铺平了道路。协议称，中共有权力部署安全人员，守卫停靠在所罗门群岛的任何中共海军舰艇。将使中共的军事力量，大规模地深入太平洋地区，威胁到澳大利亚、新西兰和夏威夷的安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-35.jpg) [图片来源](http://book.sina.com.cn/excerpt/rwws/2016-10-21/1135/doc-ifxwztrt0010235.shtml)
+这是一项范围相当广泛的协议，为未来在所罗门群岛部署中共国的安全和军事力量敞开了大门。中共的军事力量，可能以不透明、不协作的方式，单方面地引入该地区从而使其能够快速的打击上述地区。
 
-苏联于1939年9月根据德苏互不侵犯条约入侵波兰东部。苏联方面在现俄罗斯西部的卡廷森林和梅德诺伊（Mednoie）、现乌克兰北部哈克乌（Kharkiv）等地击毙了当时俘虏的2.2万多名波兰军官。苏联长期主张屠杀的是纳粹德国(Nazi)，但1990年4月时任总统戈尔巴乔夫(Mikhail Gorbachev)承认了自己的责任。10日，波兰举行了卡廷斯森林大屠杀后第82年的追悼仪式。2010年，波兰政府专机飞往斯摩棱斯克(Smolensk)参加追悼仪式时坠毁，当时总统卡廷斯基（Lech Kaczynski）等95名遇难者遇难，当天也成了追悼日。
-
-杜达表示：“战争犯罪和对人道的犯罪被遗忘，逃避处罚，因此产生了即使犯罪也不会受到惩罚的意识。这对于新犯罪者来说是亮起了绿灯。”他说：“这件事情以俄罗斯对独立、民主的乌克兰的残暴侵略形式浮出水面。”杜达还表示，为了审判俄罗斯在乌克兰犯下的罪行，将提供法律、外交方面的支援。
-
-信息来源：[「カチンの森事件」、国際法廷で責任追及へ ポーランド（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/53c32ae9d1713f054677db4db6da98fa55653862)
+消息来源：[President Joe Biden to send diplomat to the Solomon Islands following security agreement negotiations with China](https://www.skynews.com.au/world-news/global-affairs/president-joe-biden-to-send-diplomat-to-the-solomon-islands-following-security-agreement-negotiations-with-china/news-story/a518a31092282e6d98fa38c943d066f7)
 
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01

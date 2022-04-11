@@ -2,56 +2,26 @@
 ---
 
 
-## 视频|核酸了，姐疯了，又疯了
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2329735/)
+## 夏巴兹·谢里夫成为新一任巴基斯坦总理
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2329788/)
 
-中共居民区的宣传喇叭(嫉妒夸张的语气)：“去17号楼后面做核酸吧，姐妹们，还在等什么？赶快下楼做核酸吧！”
+编辑：文宝
 
-The propaganda loudspeaker in the CCP neighborhood (in a jealous exaggerated tone): “Go to the back of building 17 to make your NAAT, sisters, what are you waiting for? Hurry downstairs and make your NAAT now!”
+当地时间4月11日，巴基斯坦国民议会召开会议举行新总理选举，新总理人选将在2名候选人中诞生。其中一位是由执政联盟提名的巴基斯坦前外长库雷希，另一位则是由反对党联盟提名的巴基斯坦前总理纳瓦兹·谢里夫的弟弟夏巴兹·谢里夫。
 
-这个视频将给你展示 中共国 核酸检测运动 是多么的可笑、荒谬、丑陋！ 视频中是中共国核酸检测人员在跳舞，他们看上去可能已经疯了！
+当天晚些时候，库雷希宣布退出选举，这也意味着，夏巴兹·谢里夫不需投票，将成为新一任巴基斯坦总理。
+![](https://inews.gtimg.com/newsapp_bt/0/14733112577/1000)
+另一边，当地时间4月10日晚，上万人涌上巴基斯坦多个城市的街头，拿着手电筒，挥舞国旗并齐声唱歌，表达他们对刚刚被罢免的总理伊姆兰·汗的支持。
 
-This video will show you just how ridiculous, absurd and ugly the CCP’s NAAT movement is! The video shows the Communist China’s NAAT testers dancing around and they look like they might have gone crazy!
+4月9日上午，巴基斯坦国民议会召开会议，准备就反对党联盟针对伊姆兰·汗的不信任动议进行投票。10日凌晨1时，在国民议会342名议员中，不信任动议获得174票赞成，超过法定要求的半数以上（172票）。这也意味着，执政3年零7个月的巴基斯坦总理伊姆兰·汗的任期戛然而止，他也因此成为巴基斯坦历史上首位遭国民议会罢免的政府首脑。
 
-很多地区每人每天必须做核酸检测，视频中是中共国奇葩的宣传方式 下面字幕： （嫉妒夸张的语气）赶快下楼做核算，如果不做别想出门，也不能回家！做完核算你就达到人生巅峰！
-
-NAAT is mandatory for everyone in many areas on a daily basis, the video is a weirdo propaganda approach by the Communist China. Caption below: (jealous exaggerated tone) Hurry up and get downstairs and do the NAAT, otherwise you can’ t go out or back home! Do the test and you’ll be at the top of your life!
-
-中共国新发明：核算检测机器人，这像什么？？
-
-New invention of the Communist China: the NAAT robot, what does this look like?
-
-除了人他们还给各种动物检测，无论是猫、狗、螃蟹、鱼不放过一个！
-
-In addition to people, they also test all kinds of animals, be it cats, dogs, crabs, fish, no one is left out!
-
-这些 “大白” 就是中共国核算检测的 “丑陋机器”，这些奇怪的舞蹈和动作都是他们自己用来美化核酸运动进行的表演… 你是不是无法理解？
-
-These “Da Bai” are the “ugly machines” of the Communist China’s NAAT, and these strange dances and movements are all performances they themselves use to glorify the NAAT movement… Are you unable to understand?
-
-有些人跪着检测？
-
-Some people kneel down for the test?
-
-还有些人集体下跪检测？？ 地球上中共国独有！
-
-And some people kneeling down collectively for testing? Unique to the Communist China on Earth!
-
-这就是一场披着核酸检测外衣的政治运动！和利益集团牟利的工具！ 很多中共国的利益集团就此牟利，几十亿！ 核酸检测已经成为一个产业链
-
-This is a political movement in the guise of NAAT! And a tool for profit by interest groups! Many Communist China interest groups are profiting from this, billions! NAAT has become an industrial chain.
-
-这就共产党制下的中共国！
-
-This is the Communist China under Communist rule!
+当地时间11日凌晨，伊姆兰·汗在社交媒体分享了支持自己的抗议活动视频，并指责这次罢免投票是外国支持的“政权更迭行动”，他表示，必须要反对“由骗子领导的进口政府”。
+![](https://inews.gtimg.com/newsapp_bt/0/14733017459/1000)
 
 
+原文链接：[https://new.qq.com/omn/20220411/20220411A0BVTY00.html](https://new.qq.com/omn/20220411/20220411A0BVTY00.html)
 
-剪辑：happyFriday#2651
 
-翻译：香草山翻译部——文岄679
-
-发布：奇门遁甲
 
  
 

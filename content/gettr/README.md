@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 5:14 PM (UTC)`
+
+ 4月11号：AhAh 无处不在的天才的战友，这才是人类最重要的财富，这首歌，唱得太棒了👏
+![img](https://media.gettr.com/group24/getter/2022/04/11/17/fb3820b7-40a2-4544-6e62-5b2107fc2772/out.jpg)
+
+---
+
 `@miles 4/11/2022 4:50 PM (UTC)`
 
 4月11号：天赐新中国联邦【封锁时间：21天<br/>资产阶层：亿级<br/>教育程度：硕士-博士<br/>行业：金融、房地产<br/>城市：上海<br/>政治意识：大多数声音还是觉得要和美国干🤦‍♀️，认为习的方法太蠢，有更聪明的办法,  应该有两种声音。他们乐见全球供应链崩塌，美元崩塌😡<br/><br/>对“清零政策”看法：这帮人都比老百姓预先储备了更多的粮食，也有特殊渠道买到东西，他们还没有挨饿的感受，只是生活不自由，原来享受的物质生活有打折，公司收入下降。<br/><br/>恐惧指数：3级，害怕邻居感染，影响自己，或者被邻居举报，意识到以往的学历财富不能保护自己了。<br/><br/>希望指数：9级，认为习的清零政策证明无效而且愚蠢，没达到大量消灭人口的目的，还聚集了怨气，肯定很快放弃，马上就会解封了<br/><br/>灭共第七人真的只能靠习加速师🌞吗？七哥您就牵着牛鼻子🐮继续吧。】
@@ -145,13 +152,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 【Ukraine Rescue】04/08/2022  A Ukrainian from California came to Medyka to help refugees. He thanked the ROLF and the NFSC for the facilities and services provided to his people. He said, "You guys have the best tent, the best coffee, and hardwood floors for little kids to play with. I love this place." He sent blessings to the new Chinese in Ukrainian.<br/><br/>【乌克兰救援】04/08/2022 一位来自美国加州的乌克兰人来到梅迪卡帮助难民。他感谢法治基金、新中国联邦为他的人民提供的设施和服务。他说“你们有最好的帐篷，最好的咖啡，还有硬木地板让小孩子玩耍。我爱这个地方。”他用乌克兰语给新中国人送上祝福。
 ![img](https://media.gettr.com/group22/getter/2022/04/11/10/ea466dad-430e-24d9-d473-358e32fd3f19/out.jpg)
-
----
-
-`@miles 4/11/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group5/origin/2022/04/11/04/f219a053-013a-3e39-51b7-7fc0e57d871f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
