@@ -2,11 +2,11 @@
 ---
 
 
-## 习助普京东扩（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327321/)
+## 七哥与嘉宾谈接受与放下以及面对当前灾难的应对方法（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327425/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-30-09-40-01（一）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：30-10：40-007.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

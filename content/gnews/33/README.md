@@ -2,59 +2,39 @@
 ---
 
 
-## 莫德纳召回 764,900 剂被发现污染的新冠疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2325846/)
+## 美专家：应拒绝在北美为中共特务提供身份申请
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326050/)
 
-翻译： Jenny Bal
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
+整理/编辑：围剿维尼熊
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3419.jpg)图片来源：搜狐
 
 
+根据大纪元4月11日讯，近日美国华裔间谍案频发，专家认为，应该拒绝在北美为中共利益服务的特务提供身份申请，不允许这些人居留在北美。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-112.png)图片来源于网络
+美国堪萨斯大学华裔研究员陶丰被控“为中共当局担任科技间谍”，7日陪审团裁定，三项电汇欺诈罪和一项虚假陈述罪成立。但联邦地区法官罗宾逊（Julie Robinson）将继续权衡辩方提出的动议，已要求律师以书面形式提交各自论点，她将再就此权衡判刑。
 
-美国制药和生物技术公司莫德纳（Moderna）周五在欧洲召回了 764,900 剂 COVID-19 刺突疫苗（Spikevax），此前在一剂小瓶中发现了污染物。
+同日，美国司法部发布新闻稿说，美国农业种子公司中国籍前员工孟山都（Monsanto Co.）因合谋从事经济间谍活动，被判处29个月监禁。
 
-莫德纳和西班牙 ROVI 制药工业服务公司在一份联合声明中表示：“由于在公司的合同生产基地 ROVI 生产的批次中的一个小瓶中发现了异物，该批次正在被召回。”
+3月16日，美国司法部宣布，起诉5名代表中共秘密警察的人，因为他们监视、骚扰和抹黑批评中共的在美华人，甚至破坏目标人物竞选美国国会议员。
 
-该制药商没有具体说明发现了哪种异物，出于“非常谨慎”而召回了整个批次。
+经济学教授、中国问题专家安东尼奥‧格雷斯福（Antonio Graceffo）
 
-仅在批次中的一个小瓶中发现了污染，调查人员认为该污染不会对该批次中的其他小瓶构成风险。
+说，美国法律要求外国代理人进行注册。而中共的《国家情报法》、《国家网络安全法》和《国家安全法》有效地要求所有中国公民和公司通过将所有数据移交给中共，来协助收集情报。这强迫使所有中国公民成为代理人。因此，如果中国签证申请人与中共或国家支持的实体有任何联系的迹象，则不应签发签证。
 
-“莫德纳对其全球安全数据库进行了累积搜索，从该批次中接种莫德纳 COVID-19 疫苗的个人没有报告安全问题。迄今为止，尚未发现任何安全性或有效性问题，”声明称。
+格雷斯福认为，需要关注的另一个地方是大学。中共派国家支持的人员、代理人到美国学习。他们控制或影响校园内的言论自由，同时监视中国、西藏和台湾学生。
 
-这个批次于 1 月 13 日至 1 月 14 日在挪威、波兰、葡萄牙、西班牙和瑞典分发。迄今为止，全球已接种超过 9 亿剂莫德纳 COVID-19 疫苗。
+参考链接：[间谍案频发 美专家：凸显美国移民筛查弱点](https://www.epochtimes.com/gb/22/4/10/n13708474.htm)
 
-去年，在一项调查发现一些小瓶中有不锈钢污染物后，莫德纳的几批 COVID-19 疫苗被日本当局召回。召回的批次由同一家西班牙公司 ROVI 生产。
+*发布：tianzhihuan*
 
-日本最大的制药商武田制药在一份声明中表示，污染可追溯到 ROVI 的生产。调查结果是由两家公司而非日本厚生劳动省进行的一项调查发现的。
-
-2021 年 8 月，日本三名男子在接种第二剂现已召回的 COVID-19 疫苗后病重，不久后死亡，年龄分别为 30 岁和 38 岁。他们都在接受第二剂受污染疫苗的两天后死亡。
-
-据路透社报道，武田当时在一份声明中表示，没有证据表明它们与疫苗有关。
-
-“不锈钢通常用于心脏瓣膜、关节置换以及金属缝合线和钉书钉。因此，预计在日本注射这些批次中发现的颗粒不会导致医疗风险增加，”该公司表示。
-
-卫生部说，第三例是一名 49 岁的男子，他在接受第二剂后也病倒了，并于第二天死亡，并指出他唯一已知的健康问题是荞麦过敏。
-
-评论：大药企将疫苗导致的死亡和重伤千方百计归咎于其他原因以逃避其刺突蛋白杀害生命的真相。
-
-新闻来源：[moderna recalls 764900 covid 19 vaccine doses after contamination found](https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found_4394113.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-04-10&amp;utm_medium=email&amp;est=iXXjgkUZTt1rrV%2F07x50aWeszPacZf4LsQ4vfFAotqugkn%2BcCpzzC%2BLI6hic0A2siTfS3g%3D%3D)
-
-* * *
-
-评论： Jenny Ball
-审核：文乐  
-校对：花羽
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
