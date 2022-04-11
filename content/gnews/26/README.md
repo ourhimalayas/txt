@@ -2,10 +2,10 @@
 ---
 
 
-## 巴基斯坦总理不信任投票后被免
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2330774/)
+## 美授权外交人员撤离上海 中国坚称防疫科学有效
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2330952/)
 
-作者：MOS-柳是多水土透
+作者：纽约香草山-文希
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
@@ -13,26 +13,19 @@
 
 
 
-周日Imran Khan在议会不信任投票中落败遭罢免，其执政联盟要求Khan对经济衰退和未能兑现竞选承诺负责。
+据中央社的报导，美国驻华大使馆4月9日发表声明，鉴于中共新冠病毒激增以及中共国应对措施带来相关限制的影响，美国务院批准于4月8日起对非紧急美国政府雇员以及紧急和非紧急美国政府雇员的家属从美国驻上海总领馆区自愿撤离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-11-161346.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr_09_2022_18_37_47_https___web_popo8_com_202204_09_16_042d7e1166type_png_size_691_171_end_jpg.png)
 
-现年69岁的Khan履职3年半，在13小时的议会程序后被正式免职，周一议会将继续选出新一任总理
+美国驻华大使勃恩斯（Nicholas Burns）以及国务院和使团的其他官员已直接向中方提出了他们对疫情和中共管控措施的关切，并已将自愿撤离的决定通知对方。
+9日晚间，中共外交部发言人赵立坚针对此事在「答记者问」上说，「中方防疫政策科学有效」，对上海等地战胜新一轮疫情充满信心。对于外国驻中国外交领事人员涉疫问题，中方已在政策允许范围内尽可能提供协助和便利。对于美方在其声明中无端指责中国防疫政策表示强烈不满、坚决反对，已向美方提出严正交涉。
 
-不信任动议投票遭多次延迟，最终反对派在342议席中得到了174票，由下院议长Ayaz Sadiq宣布不信任表决通过。
-
-两个信息源称，本次投票是在陆军首长Qamar Javed Bajwa将军与Khan会面后才得以进行，上周Khan的同盟阻止了不信任动议并解散议会下院，此后高法介入宣布解散令违宪，国会得以就不信任动议继续辩论。
-
-Khan在职任期间与美国不和，他欢迎塔利班统治阿富汗并要求国际社会与塔利班合作。南亚问题顾问Reema Omar写道：“3.5年的政治生涯以无能，极端言论审查，攻击独立司法，政治迫害，和苦涩分裂为人所知，最后，以无耻的颠覆宪法企图而告终。”
-
-有望当选下任首相的候选者有Shehbaz Sharif，来自政治世家Sharif家族，是三次当选首相Nawaz Sharif的弟弟，有着高效管理者的声誉。“新的一天开始了… 我们的联盟将会重建巴基斯坦。”他在国会发言中说到。
-
-新闻链接：
-[https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/](https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/)
+新闻链接：[https://www.fmprc.gov.cn/fyrbt\_673021/202204/t20220409\_10666171.shtml](https://www.fmprc.gov.cn/fyrbt_673021/202204/t20220409_10666171.shtml)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
-编辑/校对/发稿：遍地开花
+编辑：飞虹
+校对/发稿：遍地开花
 
 **更多资讯，更多关注**
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
@@ -40,72 +33,6 @@ Khan在职任期间与美国不和，他欢迎塔利班统治阿富汗并要求�
 [**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 

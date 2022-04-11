@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 11:41 PM (UTC)`
+
+2022.04.11《The Fringe》 Episode 166<br/>中文同传：https://gettr.com/streaming/p14rtxg9cba
+![img](https://media.gettr.com/group50/origin/2022/04/11/23/0c45f8fa-fb1f-a43f-df77-814ae08142a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@torontofarmcn 4/11/2022 8:56 PM (UTC)`
@@ -150,13 +157,6 @@ Wenyao had an interview with American Public Service Media. She said that the Ch
 
 MILES GUO's livestream 2022-04-1165t 试试直播 
 ![img](https://media.gettr.com/group29/origin/2022/04/11/14/589731ed-4083-5ef8-0ca1-9078663e73a1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 2:37 PM (UTC)`
-
-【Ukraine Rescue】04/09/2022  Nicole explained to the Scotland volunteer that 1.4 billion Chinese lived in Communism, without freedom ,without freedom of speech, without freedom of thought, without freedom of press. This is a humanitarian crisis. That is why the NFSC needs to take down the CCP. <br/><br/>【乌克兰救援】04/09/2022  妮可向来自苏格兰的义工解释，14亿中国人生活在共产主义之下，没有自由，没有言论自由，没有思想自由，没有新闻自由。这是一场人道危机。这就是新中国联邦要推翻中共的原因。
-![img](https://media.gettr.com/group13/getter/2022/04/11/14/13ad9daf-5e79-7f7c-4ad5-0c3a10d70666/out.jpg)
 
 ---
 

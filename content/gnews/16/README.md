@@ -2,22 +2,32 @@
 ---
 
 
-## 樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2331359/)
+## 中共在全世界疯狂部署红旗导弹系统
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331488/)
 
-撰稿：东京樱花团/百花李香
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-7.png)
 
-良品计划已决定向在日本国内获得政府认证的乌克兰难民提供援助。具体支援内容是给在日本的乌克兰难民提供衣服、被褥、家具、家庭用品和其它日常用品。此外，无印良品将在无印良品商店和相关设施中提供就业机会，并在公司宿舍中提供临时住房。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-8.jpg)[图片来源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
-除上述之外，良品计划还向波兰举办的《儿童地球基金》捐赠了100套绘画材料，有彩色铅笔、涂鸦板和折纸，为逃难的儿童提供心理关怀。并从3月15日开始接受捐款，捐款用以帮助和保护乌克兰以及在邻国的难民。
+据文贵先生4月9日盖特直播报道，中共红旗导弹系统已经送至塞尔维亚、中东，整个南亚和中国北部，到达整个东欧地区，特别是俄乌战场，这等同于直接向美国开战。
 
-良品计划表示，希望这种情况能尽快和平解决，还将继续考虑其它支持措施。
+中共红旗导弹系统将部署在吉布提、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，其中包括装在货轮上的移动式导弹，以及可能部署在古巴、巴哈马等美临国的导弹系统。即便在美关键命脉——迈阿密西侧，中共也胆敢这么做。
 
-[信息源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
+14亿中国人已经毫不知情的情况下，被中共流氓团伙绑上战车，送往地狱，未来要为他们所有的疯狂行为付出惨重代价。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[原文链接](https://gettr.com/post/p14ekwj638b)
+
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

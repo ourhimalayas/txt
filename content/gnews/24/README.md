@@ -2,34 +2,43 @@
 ---
 
 
-## 俄乌战争“没想到”系列之五：
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331173/)
+## 俄罗斯敦促金砖国家整合支付系统和卡
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2331265/)
 
-**视频制作：多伦多蓝莲花视频组**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+作者：纽约香草山-文希
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-**第五个没想到：**
 
-**没想到俄罗斯国内反战情绪如此高涨。这点怕是普京大帝根本没有想到的。**
 
-**独裁者的自负都决定了他们想不到内部会有人反自己，从身边寡头的分崩离析，到俄罗斯全国性的反战示威活动，到俄罗斯前线士兵爆料的被骗上战场。**
 
-**由此可以看出，这场战争连俄罗斯人自己都反对，俄罗斯内部的不团结是普京政权始料未及的。**
 
-**这也告诉世界，独裁者不能代表人民，中共也不能代表中国人，独裁的政权与人民是势不两立的。**
+4月9日，根据俄罗斯财政部长安东·西卢阿诺夫周五在与金砖国家举行的部长级会议上表示，由于入侵乌克兰受到了前所未有的西方制裁的打击，制裁将会与全球金融体系以及其近一半的黄金和外汇储备（约为 6065 亿美元）隔断，同时俄罗斯的信用卡支付系统Visa和MasterCard在3月份时已经全部暂停业务，SWIFT全球银行信息系统也无法访问，这促使我们需要加快使用本国建立的银行信息系统SPFS替代 SWIFT ，自己的卡支付系统 MIR 。用本国货币进行进出口业务、以及建立独立的金砖国家评级机构和金融信息系统。
 
-视频文案：wood(文斌）
-编辑与校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-11-171633.png)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+2019年，普京曾在G20峰会期间的金砖国家领导人会议上表示，整合五国支付系统并建立独立信息交换渠道可提高金砖国家金融业务的安全性，加强银行系统对外部影响的抵御能力，支付系统的整合以及各国银行间建立独立的信息交换渠道将有助于五国银行系统稳定。
+
+新闻链接：
+[https://www.aljazeera.com/news/2022/4/9/russia-urges-brics-nations-to-integrate-payment-systems-and-cards](https://www.aljazeera.com/news/2022/4/9/russia-urges-brics-nations-to-integrate-payment-systems-and-cards)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
