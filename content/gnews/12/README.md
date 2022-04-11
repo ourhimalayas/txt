@@ -2,16 +2,12 @@
 ---
 
 
-## 五月花简报（04/11/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2330192/)
+## 德国义工称赞灭共的新中国联邦人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2330193/)
 
-编辑：波士顿五月花—-思澈
+【乌克兰救援】04/09/2022  来自德国巴伐利亚的义工来新中国联邦帐篷喝咖啡。他们称赞了写有“新中国联邦人灭共”的海报，说中共北韩、卡扎菲、俄罗斯这样的寡头独裁统治必须被消灭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E4F0FBC7-650E-42A7-8FAB-CA137AFB2450.jpeg)
-
-*发布：思澈*
-
-
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

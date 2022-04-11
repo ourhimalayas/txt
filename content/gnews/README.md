@@ -42,50 +42,50 @@
 ### [塔克·卡尔森以嘲讽的方式质疑疫苗的有效性](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [妮可解释帮助14亿中国人获得自由是伟大的人道救援行动](/content/gnews/10/README.md)
+### [中共利用民众仇富心理，激化矛盾抢劫财富](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [妮可解释帮助14亿中国人获得自由是伟大的人道救援行动](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [德国义工称赞灭共的新中国联邦人](/content/gnews/11/README.md)
+### [德国义工称赞灭共的新中国联邦人](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [五月花简报（04/11/2022）](/content/gnews/12/README.md)
+### [五月花简报（04/11/2022）](/content/gnews/13/README.md)
  ` mayflowertranslate`
 
-### [美CDC在考虑延长运输网络口罩强制令](/content/gnews/13/README.md)
+### [美CDC在考虑延长运输网络口罩强制令](/content/gnews/14/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [截至4.11 俄乌战事汇总](/content/gnews/14/README.md)
+### [截至4.11 俄乌战事汇总](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵先生直播精要 2022/04/10](/content/gnews/15/README.md)
+### [文贵先生直播精要 2022/04/10](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/16/README.md)
+### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/17/README.md)
+### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵先生盖特精要- 2022/04/11](/content/gnews/18/README.md)
+### [文贵先生盖特精要- 2022/04/11](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西医在中国的发展（六）-兴建医院.上海仁济医院](/content/gnews/19/README.md)
+### [西医在中国的发展（六）-兴建医院.上海仁济医院](/content/gnews/20/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [新冠病毒疫苗对免疫系统“无法弥补的损害”和世卫组织是“一个笑话”](/content/gnews/20/README.md)
+### [新冠病毒疫苗对免疫系统“无法弥补的损害”和世卫组织是“一个笑话”](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [泽连斯基要求韩国向乌克兰提供军事硬件支持](/content/gnews/21/README.md)
+### [泽连斯基要求韩国向乌克兰提供军事硬件支持](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/22/README.md)
+### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/23/README.md)
+### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [卑诗省政府雇员仍被疫苗护照所困](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
