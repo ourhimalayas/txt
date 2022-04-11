@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|《台湾武器出口法案》将加速美对台军售
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2331135/)
+## 2021年769名运动员倒下，平均年龄23岁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331188/)
 
-配音：香草山农场 – 信念7
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月7日，美国参议员霍利提出《台湾武器出口法案》（Taiwan Weapons Exports Act）。该法案旨在加速美国对台军售的审查流程，减少行政障碍，以应对随时发生的台海军事危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpeg)
-据悉，现阶段，美国对外出口武器分为两个类别。台湾目前归属在一般国家的第二类中。此类别军售受制于较严格的金额限制，审核所需时间较长。一旦中共攻台，台湾无法及时获取必要的军事援助。
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-6.jpg)
 
-《台湾武器出口法案》建议，将台湾归属到主要盟国的第一类中，与北约各成员国，以及日、澳、韩等美国重要盟友位列同一等级，以便台湾享有优先的武器出口审核。在紧急状态下，行政审核流程可减少35天至55天。
+美国网媒《True Defender》近日报道，在过去一年里，世界各地不断有运动员在赛场上倒下。即使没去世，他们也遭遇了心绞痛、心脏病等痛苦。如此众多健康年轻的运动员集中出现心脏问题，前所未有，而这与中共病毒疫苗在全世界开始推广注射的时间线完全吻合。
 
-分析人士指出，该法案如能通过，将有助于台湾在紧急战时，快速取得先进的武器装备与战术指导。此外，该法案也能让台美军售法制化、常态化。
+据悉，从2021年3月到今年3月的一年间，超过769名运动员在比赛中倒下，而遭受心脏骤停的球员平均年龄只有23岁。在这之前，有多少23岁的运动员甚至年轻人会因心脏问题倒下？！这还是已知的，未被报告的还有多少？！仅欧盟去年因心脏问题而死亡的足球运动员人数就比前一年上升了500%。
 
+这一切绝非偶然，许多球队医生已直接将疫苗列为这些运动员受伤和死亡的根本原因。而医学专家更曾在美国食品和药物管理局推出实验性疫苗之前发出过警告：它会给我们的器官带来损伤！
 
+中共不灭，中共病毒及疫苗灾难不会停止！
 
-文字版原文：[《台湾武器出口法案》将加速美对台军售](https://gnews.org/zh-hans/2323687/)
+[原文链接](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

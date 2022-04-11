@@ -2,22 +2,32 @@
 ---
 
 
-## 樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2331359/)
+## 自由党新法案束缚独立媒体却赋予CBC更多特权
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331396/)
 
-撰稿：东京樱花团/百花李香
+##### 作者：加拿大温哥华扬帆农场 – 优酷 （采编）、晨熹（晨熹）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-6.png)
 
-良品计划已决定向在日本国内获得政府认证的乌克兰难民提供援助。具体支援内容是给在日本的乌克兰难民提供衣服、被褥、家具、家庭用品和其它日常用品。此外，无印良品将在无印良品商店和相关设施中提供就业机会，并在公司宿舍中提供临时住房。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-8.jpg)[图片来源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
-除上述之外，良品计划还向波兰举办的《儿童地球基金》捐赠了100套绘画材料，有彩色铅笔、涂鸦板和折纸，为逃难的儿童提供心理关怀。并从3月15日开始接受捐款，捐款用以帮助和保护乌克兰以及在邻国的难民。
+据【反叛新闻】4月7日报道， 特鲁多领导的自由党本周提交了一项法案《在线新闻法案C18》，旨在规范数字新闻机构及其在线共享的内容。新立法将在严格监管独立媒体的同时，赋予加拿大广播公司(CBC)特权。目前该法案已在下议院通过一读。
 
-良品计划表示，希望这种情况能尽快和平解决，还将继续考虑其它支持措施。
+新立法将赋予加拿大广播电视公司(CRTC)对数字新闻组织及其内容进行监管并网络分享内容的权力，同时禁止在线新闻机构批评联合广播公司。
 
-[信息源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
+根据新立法，公司可以向委员会提出投诉。政府将授权委员会在评议会上负责对该法案做出解释，而评议会将由自由党推荐并任命的总督玛丽西蒙负责。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[原文链接](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

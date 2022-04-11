@@ -2,32 +2,34 @@
 ---
 
 
-## 中共正在国内谋划一场新的大饥荒
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331031/)
+## 俄乌战争“没想到”系列之五：
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331173/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-5.png)
+**视频制作：多伦多蓝莲花视频组**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
 
-据文贵先生4月9日盖特直播报道，中共领导人正在国内谋划一场新的大饥荒，以期达到让民众对中共感恩、跪舔的目的。
+俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
 
-文贵先生透漏，中共从2019至2020年间提倡“桌上净”节粮运动起，就已有预谋的准备好让中国人尝尝挨饿的苦头，认为中国人舒适的都市化生活过久了，不知道感恩中共。
+**第五个没想到：**
 
-近来，上海、深圳、吉林、郑州等地居民因中共严苛的疫情封锁，饿死在家中的悲剧频发。事后中共开仓放粮，大搞政治宣传，广泛营造“爹亲，娘亲，不如党亲”的舆论氛围。人为导演并制造大量人间悲剧，达到让群众对其知恩感恩，加倍顺从的目的。
+**没想到俄罗斯国内反战情绪如此高涨。这点怕是普京大帝根本没有想到的。**
 
-[原文链接](https://gettr.com/post/p14ekwj638b)
+**独裁者的自负都决定了他们想不到内部会有人反自己，从身边寡头的分崩离析，到俄罗斯全国性的反战示威活动，到俄罗斯前线士兵爆料的被骗上战场。**
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+**由此可以看出，这场战争连俄罗斯人自己都反对，俄罗斯内部的不团结是普京政权始料未及的。**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+**这也告诉世界，独裁者不能代表人民，中共也不能代表中国人，独裁的政权与人民是势不两立的。**
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+视频文案：wood(文斌）
+编辑与校对：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

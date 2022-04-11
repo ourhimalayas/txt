@@ -15,77 +15,77 @@
 
 ---
 
-### [澳媒报道：澳洲人呼吁固定在家工作减免税收的政策](/content/gnews/1/README.md)
- ` 澳喜农场`
+### [樱花FM┃美国宣布制裁普京女儿和俄罗斯联邦储蓄银行](/content/gnews/1/README.md)
+ ` 樱花FM`
 
-### [自由党新法案束缚独立媒体却赋予CBC更多特权](/content/gnews/2/README.md)
+### [樱花FM┃郭文贵先生2022年4月6日盖特视频（4分57秒）全文字版](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [乌克兰东部——堪比“二战”的最大冲突恐将到来？](/content/gnews/3/README.md)
+### [澳媒报道：澳洲人呼吁固定在家工作减免税收的政策](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [自由党新法案束缚独立媒体却赋予CBC更多特权](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [乌克兰东部——堪比“二战”的最大冲突恐将到来？](/content/gnews/6/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中国人的勇气在哪里](/content/gnews/4/README.md)
+### [中国人的勇气在哪里](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/5/README.md)
+### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/6/README.md)
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [巴基斯坦政局的新变化](/content/gnews/7/README.md)
+### [巴基斯坦政局的新变化](/content/gnews/10/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/8/README.md)
+### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [BC省取消疫苗卡规定](/content/gnews/9/README.md)
+### [BC省取消疫苗卡规定](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共媒体最近高调炒作希音公司有何意图呢？](/content/gnews/10/README.md)
+### [中共媒体最近高调炒作希音公司有何意图呢？](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [加拿大保守党政策将利好加密货币](/content/gnews/11/README.md)
+### [加拿大保守党政策将利好加密货币](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/12/README.md)
+### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/13/README.md)
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2021年769名运动员倒下，平均年龄23岁](/content/gnews/14/README.md)
+### [2021年769名运动员倒下，平均年龄23岁](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/15/README.md)
+### [有声|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [俄乌战争“没想到”系列之五：](/content/gnews/16/README.md)
+### [俄乌战争“没想到”系列之五：](/content/gnews/19/README.md)
  ` 蓝莲花农场`
 
-### [有声|《台湾武器出口法案》将加速美对台军售](/content/gnews/17/README.md)
+### [有声|《台湾武器出口法案》将加速美对台军售](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/18/README.md)
+### [有声|乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [中共正在国内谋划一场新的大饥荒](/content/gnews/19/README.md)
+### [中共正在国内谋划一场新的大饥荒](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|俄乌战场最新更新](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/21/README.md)
+### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/23/README.md)
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/24/README.md)
  ` 蓝莲花农场`
-
-### [史诗般的&#8211;彼得-多希博士冲击FDA会议，递交了他们（FDA）想要忽视的举报人的新闻报道](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/25/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
