@@ -2,36 +2,37 @@
 ---
 
 
-## 俄罗斯外汇评级降至“选择性违约”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326195/)
+## 樱花FM┃布查平民屠杀引公愤 罗马尼亚男子开车撞俄大使馆
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2326345/)
 
-作者：香草山农场 – 柳是多水土透
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/布查平民屠杀引公愤-罗马尼亚男子开车撞俄大使馆.png)
 
+因近日俄罗斯在乌克兰布查镇屠杀平民事件，激起国际社会公愤，俄国驻罗马尼亚大使馆被一男子驾车冲撞，驾驶员当场死亡。
 
+因近日俄罗斯在乌克兰布查镇屠杀平民事件，激起国际社会公愤，因此不少国家将俄外交人员驱逐出境，而各地民众也前往俄国大使馆抗议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+据《路透社》报道，当地时间4月6日，在俄国驻罗马尼亚大使馆门口发生一起死亡车祸，有人开车冲撞大使馆铁门，驾驶员当场死亡。
 
+罗马尼亚首都布加勒斯特的警方表示，暂时无法判定是否蓄意冲撞，也没有公布司机的身份，因为最近几周，欧洲多个国家的俄国使馆都成为反对侵略者的示威目标。
 
+自俄罗斯入侵乌克兰以来，已有近63万4860名乌克兰人逃往罗马尼亚，其中大部分难民转往其他国家，还有大约8万人仍在罗马尼亚境内。
 
-4月9日美国媒体报导，标准普尔当天将俄罗斯的外汇评级下调到了“选择性违约”的级别，原因是，他们认为，俄罗斯政府无法，也不愿履行对外国债券持有人承诺的风险在加大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-5.jpg)
-由于入侵乌克兰而受到的一系列制裁，俄罗斯可能面临一个多世纪以来的首次主权外部违约。标准普尔表示，未来几周，对俄罗斯的制裁可能会进一步加强，这会阻碍俄罗斯对外国债权人履行义务的意愿和能力。
+此外，对于俄军在乌克兰布查镇屠杀平民一事，罗马尼亚在5日也宣布，将驱逐10名俄罗斯驻罗马尼亚的外交人员。
 
-本周，俄罗斯安排以卢布偿还一笔本应以美元偿还的国际债券，对此，标普表示，他们不预期投资者能够将这些卢布付款转换成与最初到期金额等值的美元，也不期望政府在30天的宽限期内会转换这些付款。而当他们认为债务人选择性地拖欠了特定类型的义务，但将继续及时履行其他义务时，就会给予选择性违约评级。
+文字版原文：
 
-参考链接：
-[S&P cuts Russia’s foreign currency rating to ‘selective default’](https://www.reuters.com/business/sp-cuts-russias-foreign-currency-rating-selective-default-2022-04-09/)
+[樱花时政┃布查平民屠杀引公愤 罗马尼亚男子开车撞俄大使馆](https://gnews.org/zh-hans/2299730/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+*编辑：东京樱花团/曲别针
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

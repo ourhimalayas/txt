@@ -2,53 +2,46 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.11）–辉瑞疫苗第三针的反应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326210/)
+## 新西兰：卫生部总干事Ashley Bloomfield宣布辞职
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2326349/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿人：Lois
+翻译：一根筷子
 
-整理/编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-15.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-原文作者：缪莎爱
 
-**疫情|新冠疫苗副作用   辉瑞第三针的反应**
 
-#辉瑞第三针 发烧比以往来的更快一些。
 
-15点接种，晚上10点多就发烧了。前两针都是第二天中午之后才发烧。而且新的副作用有想吐，拉稀，乳腺疼（听同学说也有可能是腋下淋巴疼）目前37.8。只吃了日常的安眠药，没有吃退烧药，只贴着退热贴。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1220.png)新西兰卫生总干事Ashley Bloomfield.照片：Mark Mitchell
 
-希望可以睡个觉迎接明天更加难受的一天（是的，疫苗引起的发热并不会像普通感冒流感一样睡一觉就好。）我就是那个辉瑞三针，每次都发烧的人。
+新西兰卫生总干事Dr.Ashley Bloomfield将会在七月29日离开该岗位。
 
-我男朋友和我今天同时打的，目前没有什么不适“他三针都没有发烧。真是体会到了体质的差别。
+公共服务专员Peter Hughes在周三宣布了Bloomfield先生的决定。
 
-#辉瑞第三针
+根据Hughes先生，Bloomfield先生去年就已经在他的任期2023年6月11日期满之前就已经计划辞职了。
 
-#日本
+“我们感谢Dr. Bloomfield对于他对公众所做出的贡献，他对社区所付出的服务精神，以及他对新西兰应对COVID-19所作出的杰出贡献。我知道许多许多的新西兰人也将会他所做出的工作表示感谢“Hughes先生表示。
 
-#发烧
+“当我们聊到他决定的时候，他谈及到他现在只想和他的家人们共度一段轻松的时光，我觉得这是最起码我们欠他的“新西兰总理杰辛达说到。
 
-发布于04.01
+政府将会选择一位代理卫生总干事接替Dr.Bloomfield，在他离职之前。
 
-精选评论
+“新西兰因为应对COVID-19非常有效，所以是在一个非常扎实的基础上的，并且有一个非常高的疫苗接种率。Dr. Bloomfield在这些方面都起到了关键的作用，是新西兰的抗疫工作非常成功。在现阶段，政府对COVID-19 的应对，以及在政府对健康和残疾部门将做出巨大调整的起始阶段，Dr. Bloomfield觉得七月是一个最适当的时候离开并好好修养一段事件“公众服务协会新闻稿发布了Bloomfield的辞职信。
 
-小黄鸡叽叽     回复:我礼拜三上午打的，晚上的时候手已经痛得抬不起来了第二天手疼和头疼/涨，低烧(37.2~37.6)，吃了一天扑热息痛。今天起来没事了，手碰到会痛，乳腺有点痛（揉了揉感觉好了点）。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1217.png)图片来源：小红书
-参考链接：[辉瑞第三针的反应](https://www.xiaohongshu.com/discovery/item/6245dbdc000000000102df6d?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521243)
+在辞职之前的这段时间内，Mr Bloomfield 将会持续鼓励新西兰人们接种疫苗和加强疫苗。
 
-发布：tianzhihuan
+“请接种第三针疫苗或者加强疫苗，如果你还没有的话。”他说到。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+新西兰卫生部的数据表明，那些接种了COVID-19加强针的人群，和那些感染了COVID-19但并没有接种疫苗的人群相比，住院率更高。
+
+**审核校对：玫瑰天空
+上传排版：V在途中**
+
+
 
  
 

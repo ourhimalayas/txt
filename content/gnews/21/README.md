@@ -2,38 +2,47 @@
 ---
 
 
-## 新南威尔士州巴士司机罢工24小时
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326009/)
+## 伊丽莎白女王透露感染新冠让她“筋疲力尽”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2326148/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-203.jpg)图片来自网络
+《SBS News》近日报道，英国女王伊丽莎白二世将在6月年满96岁，尽管她的助手淡化了疾病对她的影响，但她在2月感染了新冠后感到了严重的疲劳感。
 
-翻译/编辑：小红帽
+当时，白金汉宫说，接种新冠疫苗的女王有 “轻微的、类似感冒的症状”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/og.jpg)图片来源：https://caportal.com.au/tfnsw/tiip
+但是她在纪念破纪录被的登基70周年之初被迫取消了一系列和外国外交官的会面。
 
+伊丽莎白女王在周三通过视频连接与工作人员和病人交谈时回忆了她的经历，以纪念在伦敦东部以她的名字命名的一个医院单位的开幕式。
 
-根据澳洲媒体4月11日报道，由于公交车司机开始了24小时罢工，澳大利亚新南威尔士州的通勤者早上的通勤时间有所延误。
+女王在与一位需要通风的前新冠患者交谈时，谈到了这种病毒。”它确实让人非常疲惫和精疲力竭，不是吗？
 
-运输工人工会，铁路，电车和公共汽车工会的司机从周一午夜后开始24 小时罢工，要求获得公平的报酬和更好的工作条件。
+“这个可怕的大流行，这不是一个好的结果。”
 
-虽然悉尼将首当其冲，但悉尼以外的地区也将受到影响，包括 Hunter Region、Lake Macquarie、Blue Mountains、Central Coast 和 Queanbeyan。
+伦敦皇家医院的病房在创纪录的时间内建成，以应对新冠患者的大量涌入。
 
-澳大利亚工会委员会秘书Sally McManus表示，工人们感到沮丧，因为工资跟不上生活成本。“你所看到的采取罢工行动的人都是一线工人，无论护士、教师还是运输工人，今天也是如此。”
+建筑团队赞扬了激励他们的 “敦刻尔克精神”，指的是第二次世界大战中英国和盟军在面对纳粹的进攻时从法国北部撤退。
 
-“由于通货膨胀和工资没有上涨，人们现在不得不真的削减开支。人们只有在不得已的情况下，才采取罢工行动。不幸的是，这就是现在的情况。”
+“谢天谢地，它仍然存在，”女王回答。
 
-McManus说，随着这个问题在八年来不断升级，很多家庭发现生活“艰难”。新南威尔士州政府应该做出回应，确保一线工人的生活不会倒退。
+“这很有趣，不是吗，当有一些非常重要的事情时，每个人如何一起工作并齐心协力，这太棒了，不是吗？”
 
-资料来源：[NSW commuters facing chaos as bus drivers strike for 24 hours](https://www.news.com.au/national/nsw-act/news/nsw-commuters-facing-chaos-as-bus-drivers-strike-for-24-hours/news-story/8fdd283f1fd46ca203e5690cd4622ffb)
+自从去年10月女王意外地在医院过夜后，对她健康的担忧一直挥之不去，后来宫里才透露。
 
-发布：tianzhihuan
+此后，她的公开露面变得越来越少，而且她还抱怨行动不便，因为她的96岁生日即将在4月21日到来。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+她将缺席本周圣餐节的宗教仪式，她的长子和继承人查尔斯王子将代表她出席。
 
+该仪式标志着复活节周末的开始，通常是她日程表上的一个固定项目。
+
+参考链接：
+
+[https://www.sbs.com.au/news/article/queen-elizabeth-reveals-covid-19-left-her-exhausted/tud7ji31e](https://www.sbs.com.au/news/article/queen-elizabeth-reveals-covid-19-left-her-exhausted/tud7ji31e)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
