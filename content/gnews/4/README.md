@@ -2,10 +2,19 @@
 ---
 
 
-## 4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2324744/)
+## 中共的二炮部队
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324759/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WE
+
+*发布：陶子*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：Himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

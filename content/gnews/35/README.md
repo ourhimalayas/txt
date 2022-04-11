@@ -2,28 +2,23 @@
 ---
 
 
-## 樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324138/)
+## 太靠近中共国成问题
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2324154/)
 
-撰稿：东京樱花团/加一颗稻草
+编译：波士顿五月花—-思澈
 
-据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
+德国财政部长克里斯蒂安•林德纳对德国与中共国的关系不满意，寻找与德国有共同价值观的贸易伙伴很重要。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-5.jpg)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5F7FDFF9-DB8C-4DEA-A4B4-C1CB5D59FCAC.jpeg)
 
-自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
+德国新任财政部长克里斯蒂安•林德纳是德国自民党主席，林德纳认为德国经济过于依赖中共国的市场，中共国是德国的重要贸易伙伴之一，但是中共对待反对派和少数民族的行为受到谴责。他说：“德国也应该在出口方面使国际关系多样化。现在也许已经到了我们应该优先与那些不仅是贸易伙伴，而且还想成为价值观伙伴的人做生意的时候了。”
 
-Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
+简评：思想固化的德国人也开始转变思维模式了
 
-最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
+素材来源：[https://www.neopresse.com/wirtschaft/finanzminister-geht-auf-distanz-zu-china/](https://www.neopresse.com/wirtschaft/finanzminister-geht-auf-distanz-zu-china/)
 
-消息来源：
+*发布：思澈*
 
-[Canadian pastor who was jailed for 51 days after speaking to trucker convoy alleges mistreatment in prison](https://www.foxnews.com/world/canadian-pastor-jailed-for-51-days-after-speaking-to-trucker-convoy-alleges-mistreatment-in-prison)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
 
  

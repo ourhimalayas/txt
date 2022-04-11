@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 2:06 AM (UTC)`
+
+2022.04.10 农场联盟工作汇报
+![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/11/2022 2:05 AM (UTC)`
+
+2022.04.10  新中国联邦 | 喜财经   传统银行与数字银行对比
+![img](https://media.gettr.com/group6/origin/2022/04/11/02/1355a04b-0807-2767-5b7d-925e71745439/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/11/2022 1:48 AM (UTC)`
 
 4月10号：共产党将纯粹的人间．已经变成了阴阳共存的形式，相信共产党走进火葬场，如果你不反党你的家很可能成为火葬场。“【我接到上级通知，说你已经S亡，现在拉你去火化，请您配合，你可以保留投诉的证据……”】
@@ -137,20 +151,6 @@
 
 2022/04/10  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group30/origin/2022/04/10/04/9e7f3130-13b2-1f35-66d9-01c45b85f500/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/10/2022 3:02 AM (UTC)`
-
-2022-4-9《鸡血王喜币大作战》 第一百六十集 嘉宾：卡丽熙、Eric
-![img](https://media.gettr.com/group50/origin/2022/04/10/02/1b337cc6-35b8-9f08-ae6d-69e0175c7077/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/10/2022 2:11 AM (UTC)`
-
-2022.04.09  新中国联邦 | 喜财经   货币职能和概念是如何被偷换的； 货币总量等式背后的猫腻
-![img](https://media.gettr.com/group11/origin/2022/04/10/02/02f24ea4-4cc3-85b9-e8b6-67abbf7c15e7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

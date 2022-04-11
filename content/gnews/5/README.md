@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥掌握中共军机情报
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324734/)
+## 中共在中东布置东风导弹
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324748/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE
