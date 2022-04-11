@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 10:02 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-11<br/>For English：gettr.com/post/p14r6ek95b9
+![img](https://media.gettr.com/group34/origin/2022/04/11/22/ceba306b-0328-4f5e-878b-f4d61d589c59/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/10/2022 10:56 AM (UTC)`
+
+Italian freelance media journalist interviewed with King and Steve from NFSC意大利自由媒体记者在Medyka采访精糧和三人行
+![img](https://media.gettr.com/group3/origin/2022/04/10/10/2cb43596-f86b-cbfc-a4f0-00c5ae19e5ec/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/11/2022 8:44 PM (UTC)`
 
 2022.04.11  新中国联邦 | 喜健康   探讨美兰降解氧化石墨烯
@@ -139,20 +155,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
  4月11日：尊敬的战友们好，在长春上海发生了这些全世界人民都无法相信的卑鄙的食品换炮的．以权性交．以饭性交．以水性交……故事，几年前爆料革命到现在，我们将过去的文化大革命……和现在的中国人民的现实中的女性地位．和共产党剥夺中国普通老百姓的性生活的权利……以及用各种权力强迫性交易的事实，说了几年了．欺民贼不信．说我们撒谎．共产党体制内的人说这一幕永远不可能再发生了．等等。……现在却在骄傲的漂亮的上海人．有钱的广州人．厉害的长春人．身上发生了！中国14亿人的悲剧，悲哀呀！我R你八辈祖宗，中国共产党✊✊✊
 ![img](https://media.gettr.com/group43/getter/2022/04/11/13/ada3eb56-7496-07b6-0473-c5d3789058c1/1bdd570dae697f66bf3b105cd1f254ab.jpg)
-
----
-
-`@miles 4/11/2022 1:39 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月10日第37天当日救援统计：<br/>Medyka救援站接待：约218人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10653人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 37 - Date: April 10, 2022 :<br/>Medyka Rescue Station Reception: about 218 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10653 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group33/getter/2022/04/11/13/0f1b9e5b-f78b-b94f-aeb0-9d75ac8efc33/f5d77a422ed0c11e84403bbaa116b0fe.jpg)
-
----
-
-`@miles 4/11/2022 1:06 PM (UTC)`
-
-2022.04.11 早  新中国联邦 | 新闻访谈	 美确认俄罗斯任命了新的乌克兰战争指挥官；俄罗斯入侵乌克兰，乌东成交战关键地
-![img](https://media.gettr.com/group47/origin/2022/04/11/13/7e94549c-2996-850f-37c0-900816f6f78c/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
