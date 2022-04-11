@@ -2,8 +2,8 @@
 ---
 
 
-## 20220410郭文贵大直播 ：一定要消除中国人心上的共产党病毒
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327044/)
+## 20220410郭文贵大直播 ：新中国联邦的金山 银山 钻石山
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327093/)
 
 作者：东京樱花团小视频组
 

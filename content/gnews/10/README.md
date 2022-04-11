@@ -2,8 +2,8 @@
 ---
 
 
-## 20220410郭文贵大直播 ：不服从中共中央统一安排，私自调配物资违反政治规矩的领导都会被免职
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2326941/)
+## 20220410郭文贵大直播 ：可悲的中国境内人的生死竟由一身印着共产党突击队员的白衣服决定
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327017/)
 
 作者：东京樱花团小视频组
 

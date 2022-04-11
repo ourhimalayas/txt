@@ -2,8 +2,8 @@
 ---
 
 
-## 20220410郭文贵大直播 ：可悲的中国境内人的生死竟由一身印着共产党突击队员的白衣服决定
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327017/)
+## 20220410郭文贵大直播 ：习近平从头到尾宣传中美必有一战
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327075/)
 
 作者：东京樱花团小视频组
 

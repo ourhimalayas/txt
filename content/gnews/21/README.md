@@ -2,37 +2,31 @@
 ---
 
 
-## 中共盗走美国小投资者数十亿美元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326260/)
+## 秘翻新闻｜中共借疫大隔离 备战极限战争
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2326618/)
 
-作者：银河系农场 – 骄子
+**By:[秘翻新闻](https://gettr.com/post/p14o6i46f46)**
 
+**[2022-04-11](https://gettr.com/post/p14o6i46f46)**
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国贼等与此有关联，中共在利用美国市场的规则漏洞来洗劫美国投资者的资金。
-
-2016～2021年，一些在美国交易所上市的中共公司通过在降价前抛售自己的股票，从事内幕交易，防止损失，资金至少达100亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-5.jpg)
-1990年以来，为了吸引外国公司在美国上市，美国法律原本关于股东必须及时在公开文件中披露其具体交易的规定，对中共国并未严格执行，他们提交相关文件的时间被大大延长。对于瞬息万变的市场来说，这无疑是巨大的漏洞。而在中共的各种蓝金黄手段下，大量的西方投资者将资金投向了中共，其中一大部分被中共变相骗走。
-
-参考链接：
-[China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
+**新闻内容:**
 
 
+```
+1.中共国各地封路防疫 大批货车司机被困路上
+ 2.北京疫情升级 酒仙桥地区全部被封
+ 3.中共向塞尔维亚半公开运送导弹
+ 4.乌克兰预测俄军将在东部发动猛烈进攻
+ 5.欧盟主席：将采取特别措施让乌克兰快速加入欧盟
+```
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
+🔗**Gettr链接：**[**https://gettr.com/post/p14o6i46f46**](https://gettr.com/post/p14o6i46f46)
 
+发布:星星
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

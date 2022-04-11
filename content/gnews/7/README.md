@@ -2,8 +2,8 @@
 ---
 
 
-## 20220410郭文贵大直播 ：中国人的灾难自共产党到来就从未结束
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2326962/)
+## 20220410郭文贵大直播 ：自己面对不能改变的人或事时，学会“接受”
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2327058/)
 
 作者：东京樱花团小视频组
 

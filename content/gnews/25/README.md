@@ -2,32 +2,36 @@
 ---
 
 
-## 福奇表示美国人民要“各自”应对新冠病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2326163/)
+## 中共盗走美国小投资者数十亿美元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326260/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/福奇表示美国人民要各自应对新冠病毒.png)[图片来源](https://news.cctv.com/2021/12/31/ARTICnCCSPgkhblFndzOuwek211231.shtml)
+作者：银河系农场 – 骄子
 
-美国传染病研究所(NIAID)的安东尼·福奇所长强调,尽管美国东部新冠感染病例再次增加,但“今后每个人都应该应对新冠感染”。
 
-福奇4月10日(当地时间)在美国ABC广播节目中说“新冠病毒不会完全消失,我们也不能完全消灭它”,“今后,美国人应该各自判断并应对这种危险”。
 
-美国彭博通讯社表示,“福奇所长的这种发言与2年前新冠肺炎疫情严重化时所说的表现完全不同,这与美国政府乔·拜登对新型冠状病毒的应对方针不同。” 这可能是因为奥密克隆株病毒的毒性比以前弱了,再加上大众对防疫措施的疲劳感越来越大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-美国政府目前认为“疫苗接种率和免疫达成率、治疗条件等考虑,新冠肺炎的情况并不严重”,因此解除了防疫措施。
 
-信息来源：
-[米ファウチ氏「新型コロナへの対応、今後は “各自”で」](https://news.yahoo.co.jp/articles/208ec51bd9319ccd77af32c1fc6d8894e516d71f)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+当地时间4月9日，外媒文章披露，中共国通过内部消息欺骗美国小投资者的资金，高达数十亿美元。美国SEC、大银行、华尔街、中共证监会以及中共盗国贼等与此有关联，中共在利用美国市场的规则漏洞来洗劫美国投资者的资金。
+
+2016～2021年，一些在美国交易所上市的中共公司通过在降价前抛售自己的股票，从事内幕交易，防止损失，资金至少达100亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-5.jpg)
+1990年以来，为了吸引外国公司在美国上市，美国法律原本关于股东必须及时在公开文件中披露其具体交易的规定，对中共国并未严格执行，他们提交相关文件的时间被大大延长。对于瞬息万变的市场来说，这无疑是巨大的漏洞。而在中共的各种蓝金黄手段下，大量的西方投资者将资金投向了中共，其中一大部分被中共变相骗走。
+
+参考链接：
+[China just stole billions of dollars from small American investors](https://tfiglobalnews.com/2022/04/09/china-just-stole-billions-of-dollars-from-small-american-investors/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

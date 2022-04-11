@@ -2,38 +2,53 @@
 ---
 
 
-## 日本媒体报道中国老百姓对俄乌战争的态度
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2326655/)
+## COVID-19疫苗副作用集萃（2022.4.11）–三次疫苗，三次闭经
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326958/)
 
-作者：日本方舟农场 – Andy5
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
+整理/编辑：gardeniahu
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-当地时间4月8～9日，有日本媒体密集盘点了目前中共防火墙内的老百姓对俄罗斯侵略乌克兰的看法。
-
-不幸的是，在北京街头接受采访的大部分人，都按照中共洗脑的说辞，称乌克兰负主要责任，甚至有人称是美国挑起的战争。在采访中，日媒记者多次从乌克兰的弱势地位，以及乌克兰人道危机等角度，希望能引起被采访者的共鸣，但最终无功而返。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-6.jpg)
-分析人士指出，正如郭文贵先生一直强调的，即使中国共产党被消灭了，要清除中国人身上被中共埋下的毒，也需要相当长的时间。中国人需要知善恶、辨真假、有信仰，这就是爆料革命坚持唯真不破，以实际行动唤醒墙内同胞的原因所在。
-
-参考链接：
-1.[20220409日媒報導牆內百姓為烏克蘭發聲](https://www.gettr.com/post/p14doyr9bb1)
-2. [ロシア×ウクライナ　中国市民の本音は？【深層中国】#5（2022年4月8日）](https://www.youtube.com/watch?v=XEfTXmk-E_A)
-3. [「ウクライナ侵攻どう思いますか?」中国・北京市民に聞いてみた](https://www.youtube.com/watch?v=8A_DDq063gE)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-16.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+原文作者：柄汐
 
+**疫情|新冠疫苗副作用     三次疫苗，三次闭经**
+
+第一次疫苗，潮热盗汗，闭经，中药调好。
+
+第二次疫苗，一夜回到解放前，所有症状全复发，闭经，接着吃中药，调好。
+
+第三次疫苗，又不行了，中药只控制住潮热盗汗，但闭经没好。
+
+无奈去查了激素六项，医生告诉我彻底绝经了，死马当活马医开了坤泰胶囊和芬吗通，刚开始吃第一天，现在整个人崩溃状态，不知道该怎么办了。。。有没有复过来的姐妹给我点信心和希望啊
+
+ps：38岁，明明没到绝经的年龄啊！
+
+发布于04.04
+
+精选评论
+
+达令达令哒      回复:真是不要命
+
+是ou呀    回复：都经历前两次了，咋还这么勇，第三针还敢打啊。
+
+小鱼儿     回复：我也是疫苗后一直不来了，突然就绝经了，也是潮热盗汗睡眠不好，喝了很多中药，就是月经不来，还不敢说是疫苗的问题，单位天天催我打。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1225.png)图片来源：小红书
+参考链接：[三次疫苗，三次闭经](https://www.xiaohongshu.com/discovery/item/624a7ad00000000021037e76?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521269)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
