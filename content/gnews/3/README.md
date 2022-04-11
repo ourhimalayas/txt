@@ -2,11 +2,11 @@
 ---
 
 
-## 解析习近平热炕头习惯（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327210/)
+## 习助普京东扩（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327317/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-01-09-10-01（二）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-30-09-40-01（二）.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

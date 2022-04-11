@@ -2,11 +2,11 @@
 ---
 
 
-## 解析习近平热炕头习惯（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327273/)
+## 塞尔维亚对俄罗斯很崇拜，中共赠与它红旗FK-3导弹系统（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2327322/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-01-09-10-01（一）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-50-10-00-01（二）-1.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
