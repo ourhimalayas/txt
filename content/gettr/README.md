@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 3:31 PM (UTC)`
+
+2022.04.11 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group23/origin/2022/04/11/14/49925cad-5f32-5dab-c33e-729aebb5b9f9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/11/2022 2:52 PM (UTC)`
 
 MILES GUO's livestream 2022-04-1165t 试试直播 
@@ -147,13 +154,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 2022.04.10 农场联盟工作汇报
 ![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 1:48 AM (UTC)`
-
-4月10号：共产党将纯粹的人间．已经变成了阴阳共存的形式，相信共产党走进火葬场，如果你不反党你的家很可能成为火葬场。“【我接到上级通知，说你已经S亡，现在拉你去火化，请您配合，你可以保留投诉的证据……”】
-![img](https://media.gettr.com/group14/getter/2022/04/11/01/73a34483-0f13-703a-9720-c1a0d7a704bc/out.jpg)
 
 ---
 

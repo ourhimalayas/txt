@@ -2,30 +2,40 @@
 ---
 
 
-## 欧洲根本不是能源危机，是共产主义极权危机
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329078/)
+## 有声|斯洛伐克赠乌防空系统拜登表示感谢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329086/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/eca86bd9ddc714fddffc1d-2.jpg)
-4月10日大直播中，郭先生提到，在俄乌战争中，欧洲要面临的根本不是能源问题，是这些年来亲共亲俄的立场让整个社会系统趋于极权统治。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
+就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
 
-自2008年以来，德国默克尔和法国萨科齐这样的流氓政客，甘愿给共产党做走狗。显而易见的就是2008年奥运会德法在背后支持共产党。在普京极权的威胁之下，德法、俄和中共国的经济全部挂钩，极大怂恿了习普两人今天对乌克兰和台湾发动的侵略战。默克尔曾经被称为政治大家，他的老师说默克尔是德国的英雄，未来会被列为先知。而萨科齐曾在盘古大放厥词，竟然赞扬共产党对表达不同意见群众的恶意捕杀行为。萨科齐还出卖了乌克兰和香港以及非洲的很多国家。俄乌战争的始作俑者就是这两个共产党的走狗，默克尔和萨科齐都应该是战犯级的罪人。今天因俄乌战争带来的欧洲油气问题，其背后是共产主义极权的游魂。
+据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
 
-索性德国和法国在对待乌克兰的问题上已经全面转身，德国已经决定和美国合作，并已经对默克尔立案调查，邀请郭先生作证。郭先生非常乐意，愿意将所有情况悉数告知。
+迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
 
-撰稿、发布：骄子
 
-* * *
 
-欢迎订阅我们的GNews账号：
+文字版原文：[斯洛伐克赠乌防空系统拜登表示感谢](https://gnews.org/zh-hans/2322208/)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

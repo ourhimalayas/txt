@@ -2,26 +2,26 @@
 ---
 
 
-## 有声|斯洛伐克赠乌防空系统拜登表示感谢
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329086/)
+## 有声|上海疫情防控进入恶性循环
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329109/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
-就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间4月8日，据相关媒体报道，中共上海市政府正在以疫情爆发为由，强制当地两千五百万市民禁足家中或进入方舱医院隔离，从而可以响应当局所谓的“清零”政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-5.jpeg)
+报道提及，上海正在实行极为严苛的封锁政策：任何居住小区中即使仅出现一例阳性患者，整个小区的居民都必须全员无限期的居家隔离；部分民众甚至在并未确诊的情况下被无故关押至方舱医院。
 
-据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
+同时，中共当局迟迟不给出明确的解封日期，这也导致上海市的供应链近期极不稳定，居民生活物资匮乏。据墙内社交媒体平台的消息显示，上海市民忍饥挨饿已经成为每天生活的常态，而抢菜则成为生存的头等大事。
 
-迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
+分析人士指出，上海的疫情防控目前已经进入了恶性循环，但这也意味着中共病毒及其疫苗所带来的灾难正在墙内拉开序幕。
 
 
 
-文字版原文：[斯洛伐克赠乌防空系统拜登表示感谢](https://gnews.org/zh-hans/2322208/)
+文字版原文：[上海疫情防控进入恶性循环](https://gnews.org/zh-hans/2318785/)
 
 音频处理：Tom Li
 发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,7 +34,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

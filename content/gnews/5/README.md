@@ -2,29 +2,32 @@
 ---
 
 
-## 广州疫情迅速升级 面临封城
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329146/)
+## 有声|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329178/)
 
-作者：纽约香草山农场 侠肝义胆
+配音：香草山商业部——文锤
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+4月7日的飞飞《大实话》盖特直播中，叶钊颖、郝海东夫妇揭露中共体制下的恶——没有信仰，没有真爱，没有人性，没有底线。
 
-中共国媒体4月9日报道，周五广州发现新的中共病毒确诊病例后，广州官方宣布，对全市所有居民进行病毒核酸检测。这次检测范围包括广州十一个区大约一千八百万人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-37.jpg)
-4月9日，中共广州疾控中心官员表示，现有的封控区域内，已经发生社区传播，并有向市内其他区域传播的风险性。广州目前面临的防疫形势比去年更加严竣。据悉，从4月9日起，白云区相关客运站关闭，恢复时间未定；并要求乘客遵守交通防疫管控措施。
+从小在体制下长大的叶钊颖、郝海东夫妇，亲眼看见、新耳听见过中共官场的是是非非，亲身体会过邪恶中共体制带来的伤害，也深知在体制下人们的无奈，所以痛恨这个邪恶体制。在这个邪恶的体制下，那些连鸡都不敢杀的中共高官，为了保护自己的权力，家人不敢爱，亲情不敢要，贞节要出卖，婚姻也交易，不择手段，向党内敌人痛下杀手。从毛泽东到现在的习近平，中共的官场互害杀死了许多官员，将许多中共党员送进了监狱，冤枉了许多老百姓，害死了许多无辜的人！
 
-目前，中共国多地封城，官方所谓的疫情实际上是疫苗导致的病毒传播。中共借封锁和清零政策，为的是闭关锁国，把灾难推给老百姓。
+在中共体制下，人们没有道德底线、没有信仰、没有敬畏之心，就不可能有爱心。郝海东先生认为，人性的丧失、人伦的丧失、爱的丧失，是中共最大的可悲。我们新中国联邦人要重拾先进文明，每个人都应追求有温度的爱。
 
-参考链接：
-1. [Caixin Global 04月09日报道【中国广州宣布在全市范围内进行大规模新冠病毒检测】](https://gettr.com/post/p14gpdue8bf)
-2. [央视新闻4月9日报道【广州市疾控中心：封控区域内可能已经发生社区传播，防控形势严峻】](https://gettr.com/post/p14gsx1f57b)
-3. [央视新闻4月9日报道【即日起广州白云区内客运站暂时停运】](https://gettr.com/post/p14gddb14cb)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编：文真
-编辑：Jack Li文阳   
-审核：文真
-校正/发稿：Fei797
+文字版原文：[叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](https://gnews.org/zh-hans/2322037/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

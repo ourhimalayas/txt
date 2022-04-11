@@ -2,44 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.11）：打完康希诺发烧
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2329081/)
+## 中日财经爆┃中共国3月份汽车产销同比下滑11.7%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329088/)
 
-##### 整理|编辑：gardeniahu
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月11日每日经济新闻报道，中汽协发布的最新数据显示，今年3月，汽车产销数据分别为224.1万辆和223.4万辆，同比下滑9.1%和11.7%；环比增长23.4%和28.4%。1—3月，汽车产销累计648.4万辆和650.9万辆。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-58.jpg)图片来源
+中共一汽集团计划于3月13日起停产其在长春的五大整车工厂，初步计划停产至3月16日，具体看疫情防控情况而定。但直到4月11日，一汽-大众长春工厂仍处于暂时停产状态。受此次疫情影响，根据乘联会数据，3月，一汽-大众广义乘用车批发销量为12.2万辆，同比下滑43.1%。
 
-**雅典娜情报组《疫苗灾难收集专栏》**
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗副作用.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+中共国内众多城市爆发出现中共病毒（新冠病毒Covid-19）及毒疫苗后遗症，加之国际地缘政治不稳定因素显著增加，同时芯片短缺没有明显好转，特别是动力电池原材料价格快速上涨，推动了企业生产成本上涨，多数企业因此纷纷上调旗下产品销售价格，影响终端市场的销售。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+另外，中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费 ，高房价，零福利，高支出，房子和汽车成为高负债品，已无从过多消费支出，断供潮也是必至。
 
-原文作者：就是我呀
+信息来源：【[快讯丨3月国内汽车销售223.4万辆 同比下滑11.7%】](https://me.mbd.baidu.com/r/Ej9R3Cj4UU?f=cp&amp;rs=3299755133&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b5369d800b4840a7&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-**疫情|新冠疫苗副作用     打完康希诺后发烧**
-
-康希诺我真的会谢～你大爷
-
-4号上午10：00打的第三针加强针，我问可不可以自己选，回复不行只能打康希诺，然后注意事项的啥的一概不说，到下午还生龙活虎的，结果晚上7：00左右感觉很冷，温度计量是37.5，夜里直接烧到39，全身哪哪都疼，简直要了老命了今天一天都保持在37.8度也不知道啥时候能退烧啊奉劝各位远离康希诺
-
-#康希诺
-
-发布于04·05
-
-精选评论
-
-\_阿粥i  回复:前天打的康希诺加强针，昨天发烧了一天，今天退烧了但是心悸呼吸困难，感觉人快没了
-
-猫苍       回复：我昨天打的，去的时候人家有问打哪个我还没接上话她说了一句年轻人应该打加强的。感谢我现在已经爬不起来了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗.png)图片来源：小红书
-参考链接：[打完康希诺发烧](https://www.xiaohongshu.com/discovery/item/624c1c35000000000102f607?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521304)
-
-*发布：Mttfly*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
