@@ -2,28 +2,25 @@
 ---
 
 
-## 芬兰和瑞典最早将在夏天加入北约
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2327612/)
+## 加拿大央行上调银行同业拆借利率
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+采编：加拿大温哥华扬帆农场 – 文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+编译：加拿大温哥华扬帆农场 – 晨熹
+
+据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0159.jpg)
+报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
 
+校对编辑：硫酸羟氯喹64
 
-资料来源：路透社
+发稿：青青
 
-路透4月10日 – 据《泰晤士报》周一援引官员的话报道，俄罗斯犯了一个“重大战略错误”，因为芬兰和瑞典看起来早在夏天就准备加入北约。
-
-报告补充说，在上周由瑞典和芬兰出席的北约外长会谈期间，美国官员表示，两个北欧国家的北约成员资格是“一个对话和多次会议的话题”。
-
-简评：经过了俄罗斯入侵乌克兰的这个严酷的现实， 一直保持中立的两个北欧国家， 瑞典和芬兰都提出了申请加入北约的要求， 而且，北约也表示，最早他们在今年夏天就可以加入。现在让欧洲人更加的团结， 一致对付侵略者， 共同防御可能发生的任何军事威胁。
-
-🔗 [https://www.reuters.com/world/europe/finland-sweden-set-join-nato-soon-summer-times-2022-04-10/](https://www.reuters.com/world/europe/finland-sweden-set-join-nato-soon-summer-times-2022-04-10/)
-
-责任编辑、发布： Shuizhuyu
+原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
  
 

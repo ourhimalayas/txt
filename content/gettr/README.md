@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 2:52 PM (UTC)`
+
+MILES GUO's livestream 2022-04-1165t 试试直播 
+![img](https://media.gettr.com/group29/origin/2022/04/11/14/589731ed-4083-5ef8-0ca1-9078663e73a1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/11/2022 2:37 PM (UTC)`
 
 【Ukraine Rescue】04/09/2022  Nicole explained to the Scotland volunteer that 1.4 billion Chinese lived in Communism, without freedom ,without freedom of speech, without freedom of thought, without freedom of press. This is a humanitarian crisis. That is why the NFSC needs to take down the CCP. <br/><br/>【乌克兰救援】04/09/2022  妮可向来自苏格兰的义工解释，14亿中国人生活在共产主义之下，没有自由，没有言论自由，没有思想自由，没有新闻自由。这是一场人道危机。这就是新中国联邦要推翻中共的原因。
@@ -147,13 +154,6 @@
 
 4月10号：共产党将纯粹的人间．已经变成了阴阳共存的形式，相信共产党走进火葬场，如果你不反党你的家很可能成为火葬场。“【我接到上级通知，说你已经S亡，现在拉你去火化，请您配合，你可以保留投诉的证据……”】
 ![img](https://media.gettr.com/group14/getter/2022/04/11/01/73a34483-0f13-703a-9720-c1a0d7a704bc/out.jpg)
-
----
-
-`@miles 4/11/2022 1:32 AM (UTC)`
-
-4/10/2022 Miles Guo: The CCP old kleptocrats believe that it is necessary to starve the people in Shanghai. By starving the Lao Baixing in Shanghai, Beijing, Guangzhou, and Shenzhen, Xi wants to make them feel grateful for the CCP and to test how much stress the Chinese people can withstand. Before the COVID vaccine disaster starts, the CCP will keep implementing the zero-COVID policy as well as the mandatory PCR testing and demands to pick the right timing, location, and how it ends.<br/><br/>4/10/2022 文贵直播：中共老杂毛认为上海需要挨饿！习要让北上广深的老百姓通过挨饿感恩中共并进行压力测试；中共在疫苗灾难开始前会继续实施清零和核酸检测政策并要求选对时间、地点和结束方式<br/>
-![img](https://media.gettr.com/group34/getter/2022/04/11/01/5a0bae88-6917-23ae-9a21-39a6a3291741/out.jpg)
 
 ---
 

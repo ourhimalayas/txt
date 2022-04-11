@@ -2,31 +2,38 @@
 ---
 
 
-## 樱花时政┃上海恶劣的隔离设施受民众质疑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2328702/)
+## 4月10日俄乌战场最新进展
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2328797/)
 
-翻译：东京樱花团/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-3月以来，上海遭受了两年来最大的疫情袭击，大量民众被隔离。然而隔离场所和设施条件却“令人惊叹”。
+作者：蓝莲花农场 文斌
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-87.jpg)[图片来源](https://www.google.com/search?q=%E4%B8%8A%E6%B5%B7%E6%96%B9%E8%88%B1+%E4%B8%B4%E6%97%B6&amp;tbm=isch&amp;ved=2ahUKEwi157O4lIz3AhW2gM4BHajRDYMQ2-cCegQIABAA&amp;oq=%E4%B8%8A%E6%B5%B7%E6%96%B9%E4%BB%93+%E4%B8%B4%E6%97%B6&amp;gs_lcp=CgNpbWcQA1AAWABgAGgAcAB4AIABAIgBAJIBAJgBAKoBC2d3cy13aXotaW1n&amp;sclient=img&amp;ei=_TJUYvX0H7aBur4PqKO3mAg&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=GQ7-6mi_zdtDgM)
+一、在基辅和乌克兰东北部，过去24小时内，该区域没有重大活动的报告。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-75.jpg)
+二、在哈尔科夫和伊久姆，俄军继续在哈尔科夫周围集结，可能是为了从伊久姆向斯拉夫扬斯克的进攻做准备。
 
-路透社采访了一位在上海东海老年护理医院长期居住的卢女士（99岁）的亲属。该名亲属表示，卢女士测试呈阳性，尽管没有症状但仍被转移到一个隔离设施。但不幸的是在隔离七天后去世，死因是因医疗条件而没有得到较好的照顾。
+乌克兰总参谋部4月9日报告说，两个俄罗斯营级战术群于4月8日，从别尔哥罗德部署到哈尔科夫附近，俄军试图用电子战措施破坏移动通信服务，掩盖他们的行动。俄军于4月8日，在伊久姆附近进行了一次有限的攻击，但进展甚微。
 
-事实上，从网上流传出的多个视频显示，上海的隔离点的恶劣状况。有的仓促改建的隔离场所，包括一个放置了许多露营床的破旧空置工厂，一个用集装箱制成的场所，以及一个贴着海报说没有毛毯和热水的学校。在一个名为南汇临时医院的地方，病人正在争夺物资。
+三、在顿涅茨克州和卢甘斯克州，在过去24小时内，俄军主要攻击目标是鲁别日诺耶、波帕斯纳亚和北顿涅斯克，但是没有取得显著进展。
 
-路透社表示无法独立核实更多的视频，但无法否认，这些隔离场的管理一直是个问题。
+据报道，在北顿涅斯克附近观察到，有第423摩步团和第13坦克团所部，这两个团都属于西部军区第1近卫坦克军第4近卫坦克师。
 
-新闻来源：[Shanghai residents question human cost of China’s COVID quarantines](https://www.reuters.com/world/china/shanghai-residents-question-human-cost-chinas-covid-quarantines-2022-04-10/)
+四、在马里乌波尔，过去24小时内，俄罗斯军队继续开展进攻行动，以完成对马里乌波尔的夺取，但似乎没有取得什么进展。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+五、在南部战线，过去24小时内，乌军继续威胁着赫尔松。俄军在试图夺取赫尔松地区的奥列克桑德利夫卡时，损失了多达一个连的兵力。乌军在扎波罗热地区马利尼夫卡附近，摧毁一辆T-72坦克和一辆MTO-80 维修车。
+
+六、俄军显然在试图解决前线总指挥官的问题，他们可能意识到缺乏一个单一的总指挥官，妨碍了不同战线的俄军之间进行协调。
+
+俄军入侵之初，可能有两至三位将军分别指挥不同的战线。南部军区司令亚历山大-德沃尔尼科夫将军，负责指挥南部和东部。西部军区司令亚历山大-朱拉夫廖夫将军指挥北部。东部军区司令员亚历山大-柴科上将，可能指挥了从他的军区抽调的部队在基辅西北方向的进攻。
+
+现在俄军任命南部军区司令亚历山大-德沃尔尼科夫将军为乌克兰行动的唯一总指挥官。鉴于俄军现在的主战场几乎都在他的战区，任命他为总指挥官有一定的道理。但是，俄军指挥结构的简化可能无法解决俄军所有的指挥方面的问题，因为，来到顿巴斯地区的大部分增援部队都来自其他军区。俄军从伊久姆向东南方的攻势，依赖于哈尔科夫周围的能集结的俄军，而哈尔科夫又依赖于俄罗斯的后勤中心别尔哥罗德。这两个地区名义上都是西部军区的地盘。
+
+因此，在可预见的未来，俄军不得不继续努力建立连贯而有效的指挥体系。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+总编/编辑：文真
+审核：木木
+校正/发稿：Fei797
 
  
 

@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大央行上调银行同业拆借利率
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
+## 加拿大投巨资以推动绿色科技产业
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2328248/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+采编/撰稿：加拿大温哥华扬帆农场 – 重生之鹰
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+据[多伦多太阳报]4月6日报道，为吸引国内外私有企业对新型绿色技术产业的投资，联邦政府将在5年内向[加拿大增长基金]投入150亿加元。
 
-据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1299.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
 
-报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
+据悉，特鲁多试图通过该计划来达到每1加元的公共资金吸引3加元的私企投资，以支持该国发展绿色产业项目，并使投资者们能最终使用这些新型科技。
+
+对此，今年的政府预算案将涉及一项总金额为20亿加元的关键矿产投资项目。而在俄罗斯入侵乌克兰后，加拿大将额外增加80亿加元的国防开支，用于本国军备的补充和升级。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+原文链接： [https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source](https://torontosun.com/news/national/canada-to-announce-15-billion-fund-to-attract-investment-in-tech-source)
 
  
 

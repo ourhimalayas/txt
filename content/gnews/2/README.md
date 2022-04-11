@@ -2,32 +2,40 @@
 ---
 
 
-## 如何面对中共人为制造的大饥荒
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329041/)
+## 有声|斯洛伐克赠乌防空系统拜登表示感谢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329086/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/bb3b9ed52b8545abae73ea7027ff754d.jpg)
-4月10日大直播中，郭先生与战友分享中共以疫情为名，把老百姓隔离在家饿死，若是我们碰上这种情况应该如何面对。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
+就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
 
-郭先生提到，一切的问题究其根本都是自己的原因。在俄乌战争中，乌克兰没有任何优势，但他们与俄罗斯殊死搏斗，有的一家人把孕妇送到边境，然后全家返回参与战争。这种勇气让全人类明白人之所以为人的意义。但是对于中共国的一些老百姓，有的人可以看着妻女卖淫，只为了一口饭吃。也有的人宁愿跳楼死去也不愿做出任何反抗，现在每天上海跳楼的超过上千人。一些曾经有地位有金钱的人现在在捡垃圾吃。郭先生提出了自己的解决方法，他说自己绝对不会在家等着饿死，一定要用尽全力对共产党造成灭顶打击。因为这是全人类的基本准则，当人的生命安全受到损害的时候可以采取一切方法进行正当防卫。上海广州等地目前具备甚至超过了正当防卫的一切条件。
+据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
 
-有人大喊我们要吃饭，但没人敢喊我们要自由。假设有200万人上街游行，中共也无法将这些人全部杀光。香港的反抗让全世界看到中国人是可以拥有自由民主和一人一票的选举制度。那些活活等着饿死被共产党洗脑的人，一点不可怜甚至非常可恨。生而为人，自动放弃做人的一切尊严，甚至动物的求生本能。这种人死了，是老天开眼了。
+迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
 
 
 
-撰稿、发布：骄子
+文字版原文：[斯洛伐克赠乌防空系统拜登表示感谢](https://gnews.org/zh-hans/2322208/)
 
-* * *
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-欢迎订阅我们的GNews账号：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

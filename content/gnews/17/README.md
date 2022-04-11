@@ -2,26 +2,27 @@
 ---
 
 
-## 德拉吉：给乌克兰拨款六亿一千万欧元
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2328856/)
+## 樱花时政┃北约将进入亚太地区对抗中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2328907/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+翻译：东京樱花团/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-75.jpg)(图片来源：Unsplash)
+来自零对冲消息，北大西洋公约组织（NATO）宣布，鉴于北京政权日益增长的影响力和胁迫力以及不愿意谴责俄罗斯对乌克兰的入侵，该组织将开始在实际和政治上参与亚太地区。
 
-意大利总理德拉吉在“为乌克兰挺身而出”的华沙国际筹款活动的最后一场视频演讲中表示：“我们不会置之不理。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-11-alle-15.52.57.png)
-最近几周，政府拨出新资金帮助乌克兰难民支付日常开支。从食品、药品到学校开支。总的来说我们已经拨款5亿欧元帮助抵达意大利的乌克兰难民。并向乌克兰政府提供1.1亿欧元的财政援助。”
+北约秘书长延斯·斯托尔滕贝格表示中共不愿意谴责俄罗斯的侵略行为，并且已经与莫斯科站在一起。这对北约各国来说是一个严重的挑战。
 
-“ 意大利张开双臂欢迎来自乌克兰的难民。感谢德拉吉总理和意大利重新分配新资金帮助他们满足日常需求。这是欧洲团结的最好方式。”
+为应对这种情况，北约及其亚太伙伴——澳大利亚、日本、新西兰和大韩民国在布鲁塞尔举行会议，讨论对乌克兰的国际支持。斯托尔滕贝格说，“北约和我们的亚太伙伴现在已经同意加强我们在几个领域的实际和政治合作，包括网络、新技术和打击虚假信息。”
 
+新闻来源：[NATO To Engage In Asia-Pacifc To Counter China](https://www.zerohedge.com/geopolitical/nato-engage-asia-pacifc-counter-china)
 
-
-参考链接：
-
-[https://www.imolaoggi.it/2022/04/09/draghi-stanziati-610-milioni-per-lucraina/](https://www.imolaoggi.it/2022/04/09/draghi-stanziati-610-milioni-per-lucraina/)
-
-
-
-编辑、上传：Xiao baige
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
