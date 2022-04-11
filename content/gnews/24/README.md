@@ -2,27 +2,35 @@
 ---
 
 
-## 波兰义工大赞《新中国联邦宣言》
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2324155/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月10日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2324256/)
 
-作者：纽约香草山农场 文真
+作者：香草山翻译部
 
-波兰当地时间4月9日，法治基金-新中国联邦乌克兰救援前线队员妮可发布一则采访视频。视频中，她采访了一位来自波兰的义工。这位波兰义工表达了他对《新中国联邦宣言》的赞许，以及对新中国联邦灭共的强烈支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-9.png)
 
-这位来自波兰的年轻义工，在新中国联邦帐篷中休息的时候，通过翻译器阅读了《新中国联邦宣言》。采访中表示，作为一名波兰人，他非常理解新中国人灭共的行动，波兰当初也经历了推翻共产政权的过程。他甚至赞同推翻中国共产党比当年的波兰共产政权更加艰难。
+文章仅代表作者本人观点，与Gnews无关
 
-这位年轻人意犹未尽地谈到，造成今天世界灾难的除了中国共产党本身，还有跟中共同流合污的所谓建制派“精英”，比如，达沃斯党。他们勾结在一起奴役世界人民。全世界人民应该联合起来，推翻中国共产党和与之勾结的一切专制政权与独裁者。
+视频参看：
+[2022.04.10早 《NFSC新闻》](https://gettr.com/streaming/p14jhwze38c)
+[2022.04.10早《NFSC新闻访谈》](https://gettr.com/streaming/p14j6zj402e)
 
-参考链接：[来自乌克兰救援前线Nicole报道](https://gettr.com/post/p14eqk19a66)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-8.jpeg)
 
-总编：Zion文恩
-编辑：静言
-审核：Zion文恩
-校正/发稿：谐趣园
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
 
  
 

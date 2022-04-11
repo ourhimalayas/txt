@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 1:04 AM (UTC)`
+
+2022.04.10 晚  新中国联邦 | 新闻访谈   上海封城无期，饥渴难耐，百姓尊严与命皆难保; 救援前线，国际友人谈信仰，与爆料革命坚持正道主义信仰不谋而合
+![img](https://media.gettr.com/group15/origin/2022/04/11/00/7b0239b9-65a6-512a-e7e2-10a0f7ec1b67/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/11/2022 12:29 AM (UTC)`
 
 2022.04.10 晚  新中国联邦 | 新闻    中共的疯狂举动 恐将让中国人付出血的代价; 台湾旅乌男士在新中国联邦救援基地任义工
@@ -144,13 +151,6 @@
 
 2022.04.09 晚  新中国联邦 | 新闻访谈     中共欧亚、中东部署导弹将给中国人带来灭顶之灾；上海变回“石器时代”；美国授权非紧急人员“自愿离开”上海；全国多地省市连夜发布封高速通知
 ![img](https://media.gettr.com/group28/origin/2022/04/10/01/b1c1b8aa-84e0-0e3d-5b89-fac1a6367b06/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/10/2022 12:53 AM (UTC)`
-
-【Ukraine Rescue】04/08/2022 Nicole said in her interview with a TV station in Tokyo, Japan that we came to join this rescue not only to advertise our ideas but also to tell the world on behalf the Chinese people inside China who don’t have a voice that CCP is behind the Russian invasion of Ukraine.They're threatening Asia's peace and security, including Japan. They don't represent the Chinese people. Most Chinese people are peace-loving. They want to take down the evil Chinese Communist Party to be free.<br/><br/>【乌克兰救援】04/08/2022 妮可在接受日本东京一家电视台采访时说，我们来到前线不仅仅是为了宣传我们的理念，是想替国内无法发声的中国人告诉世界，中共在背后推动了这次侵略，威胁着亚洲包括日本的和平和安全，但它不能代表中国人，大多数中国人都爱好和平，希望推翻邪恶中共获得自由。<br/>
-![img](https://media.gettr.com/group32/getter/2022/04/10/00/8fc7681d-b928-350f-88db-4b78bc6554dc/out.jpg)
 
 ---
 

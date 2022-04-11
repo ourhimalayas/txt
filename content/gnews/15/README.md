@@ -2,8 +2,8 @@
 ---
 
 
-## 除掉所有政敌、除掉所有寡头、除掉名人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324478/)
+## 习二社会压力测试：清零政策就是闭关锁国，把一切疫苗灾难推给老百姓
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2324499/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

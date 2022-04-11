@@ -2,29 +2,45 @@
 ---
 
 
-## 欧盟将对俄实施新一轮更严厉经济制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2323703/)
+## 美国取消俄罗斯“最惠国”贸易地位，并禁止进口其石油
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2323822/)
 
-作者：纽约香草山农场 文真
+据《路透社》记者：Patricia Zengerle，2022年4月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1144-e1649612800266.png)2022年3月17日，美国华盛顿国会大厦。
+图片来源：Emily Elconin/路透社
+华盛顿，4月7日（路透社）——美国国会周四投票通过对俄罗斯入侵乌克兰实施进一步的经济制裁，取消俄罗斯“最惠国”贸易地位，并通过另一项法案禁止其石油进口。
 
-当地时间4月8日，欧盟在对俄罗斯的第五套制裁方案中，加入针对加密货币钱包、银行、货币和信托的措施，以弥补从俄罗斯将资金转移到国外的潜在漏洞。
+参议院以100票对0票赞成取消俄罗斯及其亲密盟友白俄罗斯永久正常贸易关系（PNTR）地位。不久之后，参议院以100-0的投票通过能源制裁法案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide13.jpeg)
+参议院批准将该立法提交给众议院，众议院迅速以420票对3票通过了贸易制裁法案，并以413票对9票通过了能源制裁法案。
 
-此前，总部设在欧盟的加密货币交易所，已经禁止了来自俄罗斯的个人交易。为堵住潜在流出资金的漏洞，欧盟将禁令扩大到加密货币钱包的存款。
+白宫新闻秘书简·普萨基告诉记者，总统乔·拜登支持这些法案并将签署成为法律。
 
-欧盟还表示，将禁止向俄罗斯和白俄罗斯出售，以欧盟成员国的任何官方货币计价的纸币，和可转让证券，如股票。并确认对包括VTB在内的四家俄罗斯银行的全面交易禁令。这些银行占俄罗斯银行业23%的市场份额。这些银行已经被切断了与SWIFT的联系，现在正被冻结资产，以完全切断它们与欧盟市场的联系。
+该贸易法案为拜登政府提高从俄罗斯和白俄罗斯进口的关税扫清了道路。 能源制裁法案将拜登此前禁止进口俄罗斯石油、天然气和煤炭的行政命令付诸法律。
 
-此外，欧盟还禁止为富有的俄罗斯人提供信托咨询，使他们更难在欧盟储存财富。
+参议院财政委员会主席、参议员罗恩·怀登在一份声明中说：“这一系列法案旨在为（俄罗斯总统）弗拉基米尔·普京及其寡头亲信施加各种经济压力工具。普京的俄罗斯不应该成为二战结束以来存在的经济秩序的一部分。”
 
-参考链接：[EU targets crypto wallets in latest round of Russia sanctions](https://www.reuters.com/business/finance/eu-targets-crypto-wallets-latest-round-russia-sanctions-2022-04-08/)
+众议院今年早些时候通过了这两项法案，但由于共和党人和民主党人就何时对能源法案进行投票以及贸易法案中重新授权《马格尼茨基法案》的条款措辞进行辩论，这些法案在参议院陷入僵局，该法案允许对侵犯人权行为进行制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+根据周三晚些时候达成的妥协，参议员们同意同时考虑贸易措施和能源法案。 由于参议院进行了技术变更，众议院不得不批准对这两项措施的修正。
 
-总编：Zion文恩
-编辑：静言
-审核：Zion文恩
-校正/发稿：谐趣园
+俄罗斯称对乌克兰的侵略是“特殊军事行动”。
+
+文章来源：[https://www.reuters.com/world/us/us-senate-backs-removal-most-favored-trade-status-russia-2022-04-07/?taid=624fd66da609c1000196f568&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/us/us-senate-backs-removal-most-favored-trade-status-russia-2022-04-07/?taid=624fd66da609c1000196f568&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+翻译：洛杉矶盘古农场 – WH
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

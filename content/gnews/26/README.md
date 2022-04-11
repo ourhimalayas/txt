@@ -2,29 +2,32 @@
 ---
 
 
-## 樱花时政┃加拿大牧师Pawlowski在监狱里受到虐待
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2324138/)
+## 上海地区高速路出入口被封
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2324165/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：银河系农场 骄子
 
-据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
+4月8日前后，中共以疫情为由将上海本地、以及出入上海的多条高速入口和出口实施封堵。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-5.jpg)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-5.jpeg)
 
-自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
+近日，中共在上海发动了大防疫运动，处处设置关卡，禁止随意出入。老百姓被困在家中已经长达一个月。从网络上传出的小视频中，很多老百姓家中没粮，快被饿死。所谓的防疫运动小组大都由居委会组成，不仅不解决食物供给，并且随意殴打需要出入的百姓。
 
-Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
+笔者随意打开一个地图应用程序，可以看到上海地区周围高速路口密密麻麻的封禁符号。平常大卡车每天都会运送物资，可以保证物资供应正常运行。中共以疫情为名堵路，高速路上行驶的大卡车被困在路上，司机下到休息区就要强制隔离。很多想要为上海运送物资的卡车会被堵在路上，运送到的物资居委会也不会发放，等着烂掉。
 
-最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
+据某供应商反馈，上海大的物资集散地被封，又由于各地不同的防疫规定，办车证，做核酸、卡司机，来来回回和当地政府进行消耗战，一车一车的物资烂掉也到不了老百姓手里。
 
-消息来源：
+参考链接：
+1. [浙江杭州部分高速公路收费站出口将暂时关闭](https://news.sina.com.cn/c/2022-04-08/doc-imcwiwst0517047.shtml)
+2. [全国高速很多都封了，是要开干了吗？](https://gettr.com/post/p149eie4620)
+3. [https://www.gaosulukuang.com/p2/fenglu.html https://m.weibo.cn/2217035934/4756342307291392](https://www.gaosulukuang.com/p2/fenglu.html%20https://m.weibo.cn/2217035934/4756342307291392)
 
-[Canadian pastor who was jailed for 51 days after speaking to trucker convoy alleges mistreatment in prison](https://www.foxnews.com/world/canadian-pastor-jailed-for-51-days-after-speaking-to-trucker-convoy-alleges-mistreatment-in-prison)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+总编：Zion文恩
+编辑：文真
+审核：Zion文恩
+校正/发稿：谐趣园
 
  
 
