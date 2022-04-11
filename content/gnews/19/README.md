@@ -2,72 +2,34 @@
 ---
 
 
-## 参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2325316/)
+## 人神共愤！俄士兵性侵1岁女婴　自拍变态影片跟同袍分享
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2325337/)
 
-**参议员卢比奥媒体办公室： **
-在40多年后，#台湾关系法 和六项保证（Six Assurances）继续定义着美国和我们的民主盟友 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的关系。当我们在一起抗击 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 通过威胁和恐吓来获取权力的企图时，我们对台北的支持必须比以前强大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+俄罗斯自2月24日宣布对乌克兰展开「特别军事行动」至今已快要50天，无数的惨剧在乌克兰发生，真相只能被暂时的掩埋，但终究是纸包不住火的。
 
+随着俄军在乌克兰当地的各种暴行逐渐被公诸于世，不仅有性侵妇女、屠杀平民，甚至连1岁大的婴儿也不放过，竟然有俄罗斯士兵还把性侵女婴的暴行自拍成影片传给同袍分享，这样的事情引起了世界各国人民的愤怒。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/photo-output.jpg)图片来源：SETN
 
-> After more than 40 decades, the [#TaiwanRelationsAct](https://twitter.com/hashtag/TaiwanRelationsAct?src=hash&amp;ref_src=twsrc%5Etfw) & the Six Assurances continue to define 🇺🇸 relations w [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), our democratic ally. Our support for Taipei must be stronger than ever as we work together to combat the CCP's efforts to gain power through threats & intimidation.
-> — Senator Rubio Press (@SenRubioPress) [April 10, 2022](https://twitter.com/SenRubioPress/status/1513139736109494279?ref_src=twsrc%5Etfw)
+综合外媒报导，来自俄罗斯高加索地区斯塔夫罗波（Stavropol）的25岁士兵毕曲考夫（Aleksey Bychkov），在俄罗斯普斯科夫（Pskov）服役。由于当地军队都前往乌克兰参与战事，因此他也成为派往前线的一员。俄军在乌克兰的暴行令人痛恨，但如今传出他性侵1岁女婴，将各种物体放入女婴身体中这种人神共愤的事情时，虽然暂时无法确定发生的时间和地点，但毕曲考夫的变态行为仍引起的世界各国人民的愤怒与讨伐。
 
+毕曲考夫拍摄影片后，透过加密通讯软体Telegram和同袍分享，毫无罪恶感还对着镜头比出胜利手势，俄国媒体指出消息曝光后，他已遭到逮捕。网友见了毕曲考夫的恶形纷纷痛批：希望他下地狱！毕曲考夫应该被吊起来24小时全天候痛打！
 
+独裁下的洗脑与仇恨教育本就压制人的善念，当遇到战争时可以把人性的恶念发挥到极致，性侵女婴还拍片炫耀，这不仅仅是人性扭曲的变态，更是作为侵略者的一种狂欢，一种默认的狂欢，一种征服的狂喜，一种践踏的快感！
 
-**众议院共和党领袖凯文·麦卡锡 ： **
-全世界都在关注和支持乌克兰。 我很自豪能够率领一个两党代表团前往该地区，以感谢我们的美军，表达我们对我们的战略伙伴波兰的支持，并直接从乌克兰人那里听取关于普京无端袭击的情况。 【附共和党领袖官网链接：波兰华沙——众议院共和党领袖凯文·麦卡锡本周末率领两党议员代表团前往波兰，与美国武装部队和该地区的盟国伙伴会面。 在华沙，该代表团会见了波兰总理、波兰国防部长和美国驻波兰大使。 在波兰东北部的其他地方，他们会见了乌克兰官员和民间社会、乌克兰难民和美军士兵。】
+毕曲考夫虽迫于舆论遭逮捕，但背后不知还有多少类似的惨象发生，仇恨的种子已经种下，只有止战才能避免悲剧！俄军们，醒醒吧！不要再为普京卖命了，普京在把你们拉向地狱！
 
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1098255&amp;utm_source=setn.com&amp;utm_medium=viewall&amp;utm_campaign=viewallnews)
 
+撰稿/发布：一叶知秋
 
-> The world is watching and rooting for Ukraine. I'm proud to lead a bipartisan delegation to the region to thank our U.S. troops, to show our support for our strategic partner, Poland, and to hear directly from Ukrainians about Putin's unprovoked attacks. [https://t.co/QmH2j8Jl5j](https://t.co/QmH2j8Jl5j) [pic.twitter.com/jPclQeNx1t](https://t.co/jPclQeNx1t)
-> — Kevin McCarthy (@GOPLeader) [April 10, 2022](https://twitter.com/GOPLeader/status/1513104883536343042?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·沃尔茨：** 
-老板在行动。 [#团结](https://twitter.com/hashtag/%E5%9B%A2%E7%BB%93?src=hashtag_click) [#领导力](https://twitter.com/hashtag/%E9%A2%86%E5%AF%BC%E5%8A%9B?src=hashtag_click) 
-【转战地记者推文：这是互联网上见过的最棒的视频之一。（附视频，英国首相约翰逊突访基辅……画面显示约翰逊在泽连斯基陪同下行走于街头，参观战争死难者悼念点，与偶遇乌克兰人交谈……】
-
-
-
-> Boss move. [#Solidarity](https://twitter.com/hashtag/Solidarity?src=hash&amp;ref_src=twsrc%5Etfw) [#Leadership](https://twitter.com/hashtag/Leadership?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/NRL8UfVbyQ](https://t.co/NRL8UfVbyQ)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 10, 2022](https://twitter.com/michaelgwaltz/status/1513201722629533703?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本： **
-如果福奇拒绝谴责 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对全球大流行病的反应，我们将面临严重的问题。
-
-
-
-> We have a serious problem if Fauci refuses to condemn Communist China’s response to a global pandemic.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2022](https://twitter.com/MarshaBlackburn/status/1513216833607852036?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥：** 
-今天是圣周的开始，在此期间，世界各地的基督徒将敬拜耶稣的受难(钉十字架)、死亡和复活。 我妻子苏珊和我与你们一起，我们为那些不顾迫害而庆祝的人祈祷。
-
-
-
-> Today is the beginning of Holy week, during which Christians around the world will be worshipping the crucifixion, death and resurrection of Jesus. My wife Susan and I join with you, and we are praying for those who celebrate despite fear of persecution.
-> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513245450152943619?ref_src=twsrc%5Etfw)
-
-
-
-**美前国务卿迈克·蓬佩奥：**
-乌克兰没有要求美国提供一名士兵或海军陆战队员——他们只是要求提供他们需要的工具来帮助他们捍卫自己的主权。 美国拥有这些工具，拜登政府应该尽快提供这些工具。
-
-
-
-> Ukraine hasn't asked America for a single soldier or Marine – they've simply asked for the tools they need to help them defend their sovereignty. The United States has these tools, and the Biden Administration should make them available – quickly. [https://t.co/pDNEky9Q5N](https://t.co/pDNEky9Q5N)
-> — Mike Pompeo (@mikepompeo) [April 10, 2022](https://twitter.com/mikepompeo/status/1513303315022585863?ref_src=twsrc%5Etfw)
-
-
-
-
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
