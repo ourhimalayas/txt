@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 10:58 AM (UTC)`
+
+2022.04.11  新中国联邦 | 军情室  俄乌战争局势 杀伤链的概念 从杀伤链的角度分析俄罗斯的战力
+![img](https://media.gettr.com/group50/origin/2022/04/11/10/a3fb7103-4c73-2f87-b4b0-d4607a3ee52b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/11/2022 10:17 AM (UTC)`
 
 【Ukraine Rescue】04/08/2022  A Ukrainian from California came to Medyka to help refugees. He thanked the ROLF and the NFSC for the facilities and services provided to his people. He said, "You guys have the best tent, the best coffee, and hardwood floors for little kids to play with. I love this place." He sent blessings to the new Chinese in Ukrainian.<br/><br/>【乌克兰救援】04/08/2022 一位来自美国加州的乌克兰人来到梅迪卡帮助难民。他感谢法治基金、新中国联邦为他的人民提供的设施和服务。他说“你们有最好的帐篷，最好的咖啡，还有硬木地板让小孩子玩耍。我爱这个地方。”他用乌克兰语给新中国人送上祝福。
@@ -146,13 +153,6 @@
 
 中共已在塞尔维亚部署红旗反导系统<br/>Title:  Communist China Has Deployed Red Flag Anti-Missile System in Serbia
 ![img](https://media.gettr.com/group3/origin/2022/04/10/17/db865e91-bcbd-0d5d-dc21-24fe8c9ac071/out.jpg)
-
----
-
-`@miles 4/10/2022 2:17 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月9日第36天当日救援统计：<br/>Medyka救援站接待：约340人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10435人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 36 - Date: April 9, 2022 :<br/>Medyka Rescue Station Reception: about 340 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10435 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group5/getter/2022/04/10/14/30249a65-509a-9309-2990-ba44a49cf5e7/5849f6219fa0ffd6d9fa8be814439da2.jpg)
 
 ---
 
