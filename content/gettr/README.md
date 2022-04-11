@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 2:15 PM (UTC)`
+
+4/10/2022 Miles Guo: Xi's ultimate goal is to stay in power after the 20th Party Congress and establish a regime that will always belong to Xi himself! Xi is even willing to put the Chinese in endless wars, starvation, and contradictions and conflicts just to achieve this goal! Only the Whistleblowers’ Movement has revealed this truth to the world!<br/><br/>4/10/2022 文贵直播：习的终极目标是确保20大连任并建立起永远属于习的江山！习为了实现这一目标，不惜将中国人置于永不停歇的战争、饥饿、以及矛盾和冲突之中！只有爆料革命向世界揭露了这一真相！<br/>
+![img](https://media.gettr.com/group5/getter/2022/04/11/14/5aa6a1fd-e46b-d7fd-5bac-57d052dc044a/out.jpg)
+
+---
+
 `@miles 4/11/2022 1:43 PM (UTC)`
 
  4月11号：比爹娘还亲的中国共产党生气了，后果很严重！
@@ -147,12 +154,6 @@
 
 2022.04.10 NFSC news  Update on NFSC’s Frontline Humanitarian Rescue Operation
 ![img](https://media.gettr.com/group49/origin/2022/04/10/23/24eae070-5f51-743d-9e7f-fb673ec7bdfb/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/10/2022 10:48 PM (UTC)`
-
-------0410  #文贵大直播  #Youtube脱敏精选视频 汇总------<br/><br/>【精选1】从社会心理学分析习近平王岐山在上海的疯狂行为体现出的报复心理<br/>https://youtu.be/RK-1uheWweA<br/><br/>【精选2】习近平的批示，透露其扭曲且抱着报复心态虐待「北、上、广、深」的人民，并对这些城市做压力测试<br/>https://youtu.be/bhA-yf_TDjM<br/><br/>【精选3】习近平最想就是毁掉台湾，消灭美元<br/>https://youtu.be/Co3M348XWhM<br/><br/>【精选4】国内所有的全民验核酸，所有运往塞尔维亚的武器都是为了打台湾准备<br/>https://youtu.be/bUhTfeyIX_U<br/><br/>【精选5】全人类有一个基本的人权原则，任何人为了保护自己的生命安全，可以采取一切的防卫方式<br/>https://youtu.be/bYb6B1_hKIM<br/><br/>【精选6】新中国呼之欲出 新世界曙光在前；新中国联邦人应发自内心的珍惜战友，爱战友<br/>https://youtu.be/lF3Fkgx7CfU<br/><br/>【精选7】乌人民的唯真不破得到了世人100%的信任和支持；乌和欧洲对抗俄罗斯，英国全面支持，武器会倾巢而出;中共已经准备好了GDP降一半，各项开支降一半，3-5亿人死亡<br/>https://youtu.be/NmBEMeXaP0Q<br/><br/>【精选8】灭共进程一半押在习身体上，另一半靠咱新中国联邦战友上；《灭共的雪》和《铁锁梦》两首歌在全球多国iTune榜挤身榜首几名；七哥人生中最快乐的时光是表现勇敢的时候<br/>https://youtu.be/urY_KeC2YMc<br/><br/>【精选9】G系列的G是神(GOD)的意思，而不是郭(GUO)，是尊重上天，万佛万神的系列；中共威胁美台，如佩罗西到台湾就必会攻打台湾，所以双方都以染疫为由取消会面<br/>
 
 ---
 
