@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 1:43 PM (UTC)`
+
+ 4月11号：比爹娘还亲的中国共产党生气了，后果很严重！
+![img](https://media.gettr.com/group6/getter/2022/04/11/13/748d1341-cb47-2986-f867-a5419925fc77/out.jpg)
+
+---
+
+`@miles 4/11/2022 1:41 PM (UTC)`
+
+ 4月11日：尊敬的战友们好，在长春上海发生了这些全世界人民都无法相信的卑鄙的食品换炮的．以权性交．以饭性交．以水性交……故事，几年前爆料革命到现在，我们将过去的文化大革命……和现在的中国人民的现实中的女性地位．和共产党剥夺中国普通老百姓的性生活的权利……以及用各种权力强迫性交易的事实，说了几年了．欺民贼不信．说我们撒谎．共产党体制内的人说这一幕永远不可能再发生了．等等。……现在却在骄傲的漂亮的上海人．有钱的广州人．厉害的长春人．身上发生了！中国14亿人的悲剧，悲哀呀！我R你八辈祖宗，中国共产党✊✊✊
+![img](https://media.gettr.com/group43/getter/2022/04/11/13/ada3eb56-7496-07b6-0473-c5d3789058c1/1bdd570dae697f66bf3b105cd1f254ab.jpg)
+
+---
+
 `@miles 4/11/2022 1:39 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月10日第37天当日救援统计：<br/>Medyka救援站接待：约218人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10653人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 37 - Date: April 10, 2022 :<br/>Medyka Rescue Station Reception: about 218 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10653 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -139,20 +153,6 @@
 `@miles 4/10/2022 10:48 PM (UTC)`
 
 ------0410  #文贵大直播  #Youtube脱敏精选视频 汇总------<br/><br/>【精选1】从社会心理学分析习近平王岐山在上海的疯狂行为体现出的报复心理<br/>https://youtu.be/RK-1uheWweA<br/><br/>【精选2】习近平的批示，透露其扭曲且抱着报复心态虐待「北、上、广、深」的人民，并对这些城市做压力测试<br/>https://youtu.be/bhA-yf_TDjM<br/><br/>【精选3】习近平最想就是毁掉台湾，消灭美元<br/>https://youtu.be/Co3M348XWhM<br/><br/>【精选4】国内所有的全民验核酸，所有运往塞尔维亚的武器都是为了打台湾准备<br/>https://youtu.be/bUhTfeyIX_U<br/><br/>【精选5】全人类有一个基本的人权原则，任何人为了保护自己的生命安全，可以采取一切的防卫方式<br/>https://youtu.be/bYb6B1_hKIM<br/><br/>【精选6】新中国呼之欲出 新世界曙光在前；新中国联邦人应发自内心的珍惜战友，爱战友<br/>https://youtu.be/lF3Fkgx7CfU<br/><br/>【精选7】乌人民的唯真不破得到了世人100%的信任和支持；乌和欧洲对抗俄罗斯，英国全面支持，武器会倾巢而出;中共已经准备好了GDP降一半，各项开支降一半，3-5亿人死亡<br/>https://youtu.be/NmBEMeXaP0Q<br/><br/>【精选8】灭共进程一半押在习身体上，另一半靠咱新中国联邦战友上；《灭共的雪》和《铁锁梦》两首歌在全球多国iTune榜挤身榜首几名；七哥人生中最快乐的时光是表现勇敢的时候<br/>https://youtu.be/urY_KeC2YMc<br/><br/>【精选9】G系列的G是神(GOD)的意思，而不是郭(GUO)，是尊重上天，万佛万神的系列；中共威胁美台，如佩罗西到台湾就必会攻打台湾，所以双方都以染疫为由取消会面<br/>
-
----
-
-`@miles 4/10/2022 9:59 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-10<br/>For English：gettr.com/post/p14l4yz1317
-![img](https://media.gettr.com/group48/origin/2022/04/10/21/d5adf8cf-84b2-a796-6e25-d4332b8f37ac/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/10/2022 8:30 PM (UTC)`
-
-2022.04.10  新中国联邦 | 喜健康   没有硝烟的战争 — 伊维菌素
-![img](https://media.gettr.com/group24/origin/2022/04/10/20/528e0add-4d62-642a-2c89-f07a0395d365/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,28 +2,60 @@
 ---
 
 
-## 【G时新闻】自由党和新民主党如何推动自由车队纵火骗局
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2328526/)
+## COVID-19疫苗副作用集萃（2022.4.11)–疫苗副作用超大，差点把我送走
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2328677/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据【真北方】4月7日报道，在渥太华警方周四发表的，2月6日公寓楼纵火案声明中表明，该案件与自由车队抗议活动无关。那么“自由车队涉嫌企图烧毁一栋满是被困居民的建筑物”这种说法从何而来？ 渥太华市长吉姆·沃森是首先将事件归咎于车队的人之一。其后，自由党和新民主党议员，以及传统媒体继续不断反复暗示抗议者参与了这起事件。然后政府再依据这些社交媒体的虚假报道来采取行动。这一轮抹黑行动，最终为特鲁多首次使用《紧急情况法》的正当性，提供了关键性依据。同时也可能为政府今后经常使用紧急权力来平息民众抗议活动开创了先例。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-盖特链接：[https://www.gettr.com/post/p14lj0qbe32](https://www.gettr.com/post/p14lj0qbe32)
+整理/编辑：禄森
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-16.png)图片来源：雅典娜设计组(614)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+**博主:  雪糕雪糕呀**
+
+**新西兰辉瑞第三针加强booster疫苗**
+
+辉瑞第三针加强booster疫苗，反应超大，体验感超级差，副作用很大
+
+去年打的第一针和第二针，就感觉手臂酸痛，抬不起来，人好累，睡了2天基本就没啥事了。
+
+没想到第三针反应这么猛，感觉差点把我送走了
+
+上周一中午去打的第三针，当天反应并没有很大，就觉得打针手臂酸痛，人比较累。
+
+第二天，整个人都不好了，全身酸痛，打针手臂直接抬不起来。下午开始发烧，头痛，怕冷，开始38.3°，后来烧到39°。吃了panodol, 晚上退烧。
+
+第三天，还是全身酸痛，头，腰和脖子特别痛，腋下淋巴肿了，下午继续发烧，37.9°，吃了panodol, 到了晚上退烧。
+
+第四天，同样情况，还发烧，不过是低烧了，就37.6°左右。
+
+这几天一直狂喝水和吃panodol, 感觉作用都不大真的贼难受，感觉差点被送走了。。。
+
+到了第五第六天终于慢慢好起来，体验感真的太差，
+
+总之，大家去打第三针之前做好心理准备！
+
+**#****辉瑞第三针 #辉瑞疫苗 #Booster #奥克兰**
+
+**作者发布于2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1312.png)图片来源：小红书
+参考链接：
+
+[全身酸痛，发烧，头痛，怕冷，高烧，腋下淋巴肿大](https://www.xiaohongshu.com/discovery/item/624ccd1d000000002103a6d5?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521452)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

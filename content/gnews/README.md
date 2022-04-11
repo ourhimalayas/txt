@@ -15,59 +15,59 @@
 
 ---
 
-### [秘翻在线：世界银行（WB）：今年乌克兰GDP减半，俄罗斯逆势增长11%](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [现货价格暴跌和中共国封锁将影响全球供应链](/content/gnews/2/README.md)
+### [7天内俄罗斯至少有151名外交官被从各国驱逐出境](/content/gnews/1/README.md)
  ` topnews`
 
-### [秘翻在线：46个国家表示反对俄罗斯今年举办世界遗产委员会](/content/gnews/3/README.md)
+### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/3/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [布查惨案曝光，中共是大屠杀幕后凶手](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [有声｜乌克兰预测俄军将在东部发动猛烈进攻](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜ 美官员质疑俄新任对乌最高指挥官能否结束困境](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [视频|俄乌战争7日-9日新闻「非脱敏」](/content/gnews/7/README.md)
+ ` 爆料视频`
+
+### [秘翻在线：世界银行（WB）：今年乌克兰GDP减半，俄罗斯逆势增长11%](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [04/11/22 香港快讯 资深传媒人区家麟 涉嫌串谋发布煽动刊物被捕 与立场新闻案有关](/content/gnews/4/README.md)
+### [大直播后记：七哥聊邪恶国家](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [现货价格暴跌和中共国封锁将影响全球供应链](/content/gnews/10/README.md)
+ ` topnews`
+
+### [秘翻在线：46个国家表示反对俄罗斯今年举办世界遗产委员会](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [04/11/22 香港快讯 资深传媒人区家麟 涉嫌串谋发布煽动刊物被捕 与立场新闻案有关](/content/gnews/12/README.md)
  ` 英喜-粵語組`
 
-### [COVID-19疫苗副作用集萃（2022.4.11)–疫苗副作用超大，差点把我送走](/content/gnews/5/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.11)–疫苗副作用超大，差点把我送走](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20220408郭文贵大直播 ：中共最大的原罪就是把AI技术用在了反人类上](/content/gnews/6/README.md)
+### [20220408郭文贵大直播 ：中共最大的原罪就是把AI技术用在了反人类上](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [大直播后记：没有人性的社会不会有平等](/content/gnews/7/README.md)
+### [大直播后记：没有人性的社会不会有平等](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [中国共产党的海外借贷违约风险增加-2](/content/gnews/8/README.md)
- ` topnews`
-
-### [大直播后记：粮食危机](/content/gnews/9/README.md)
+### [大直播后记：粮食危机](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [乌克兰官员称俄火箭弹摧毁第聂伯罗机场](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大直播后记：中共在中东的布局](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：G系列代表上帝的财富](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [【G时新闻】自由党和新民主党如何推动自由车队纵火骗局](/content/gnews/13/README.md)
- ` G-时新闻`
-
-### [【G时新闻】辉瑞与美食药局知情并掩盖疫苗引发抗体依赖性增强事实](/content/gnews/14/README.md)
- ` G-时新闻`
-
-### [中共上海封城是三年大饥荒封村再现](/content/gnews/15/README.md)
+### [张爱玲为何逃离上海去香港](/content/gnews/17/README.md)
  ` 历史组`
 
-### [律师Riner Fuellmich：&#8221;这些人真的想杀了我们。从未发生过covid大流行&#8221;。](/content/gnews/16/README.md)
+### [律师Riner Fuellmich：&#8221;这些人真的想杀了我们。从未发生过covid大流行&#8221;。](/content/gnews/18/README.md)
  ` Tokyo Sakura Video Group`
-
-### [有声|欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月10日早](/content/gnews/18/README.md)
- ` MOSREC`
 
 ### [加拿大投巨资以推动绿色科技产业](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
@@ -81,8 +81,8 @@
 ### [在俄罗斯入侵乌克兰期间，Meta如何摸索宣传节制](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [到底是怎么回事？又一位自行车运动员退出比赛](/content/gnews/23/README.md)
- ` xiaobaige`
+### [7·24系列——运20（Y-20）飞往塞尔维亚的具体信息](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [芬兰和瑞典最早将在夏天加入北约](/content/gnews/24/README.md)
  ` Shuizhuyu`
