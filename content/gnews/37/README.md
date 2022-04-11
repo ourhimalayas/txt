@@ -2,22 +2,24 @@
 ---
 
 
-## 中共国10多个省市高速管控封闭、3000万货车司机被困物流暂停
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2324026/)
+## 太靠近中共国成问题
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2324154/)
 
-编辑：波士顿五月花—-思澈
+编译：波士顿五月花—-思澈
 
-中共国受疫情影响10多个省市高速公路收费站出入口暂时关闭，部分服务区也宣布关闭，部分网点暂停收派件。
+德国财政部长克里斯蒂安•林德纳对德国与中共国的关系不满意，寻找与德国有共同价值观的贸易伙伴很重要。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CADE095B-F0F1-4BEE-BADF-7F0B25644B9F.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5F7FDFF9-DB8C-4DEA-A4B4-C1CB5D59FCAC.jpeg)
 
-目前上海，北京，广东，江苏，浙江，山东，陕西，湖北，河北，四川，河南，新疆，港澳台的高速公路暂时关闭管控，物流停滞。物流司机则表示，疫情封控区、管控区、防范区层层设卡，要绕行势必提高运输成本，再加上近期油价飙升，最近一周运输成本上涨了30%，跑一趟货要赔上千元。
+德国新任财政部长克里斯蒂安•林德纳是德国自民党主席，林德纳认为德国经济过于依赖中共国的市场，中共国是德国的重要贸易伙伴之一，但是中共对待反对派和少数民族的行为受到谴责。他说：“德国也应该在出口方面使国际关系多样化。现在也许已经到了我们应该优先与那些不仅是贸易伙伴，而且还想成为价值观伙伴的人做生意的时候了。”
 
-疫情的蔓延也给农资行业带来了严重影响，众多塑料、化工企业表示，他们已经进入“慢生活”状态，无论是生产、生活还是出行都进入了“动弹不得”的状态。
+简评：思想固化的德国人也开始转变思维模式了
 
-素材来源：[https://finance.sina.com.cn/china/2022-04-10/doc-imcwipii3415431.shtml](https://finance.sina.com.cn/china/2022-04-10/doc-imcwipii3415431.shtml)
+素材来源：[https://www.neopresse.com/wirtschaft/finanzminister-geht-auf-distanz-zu-china/](https://www.neopresse.com/wirtschaft/finanzminister-geht-auf-distanz-zu-china/)
 
-发布：思澈
+*发布：思澈*
+
+
 
  
 
