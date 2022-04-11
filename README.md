@@ -15,115 +15,115 @@
 
 ---
 
-### [COVID-19疫苗副作用集萃（2022.4.11)–疫苗副作用超大，差点把我送走](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线：世界银行（WB）：今年乌克兰GDP减半，俄罗斯逆势增长11%](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [20220408郭文贵大直播 ：中共最大的原罪就是把AI技术用在了反人类上](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
-
-### [大直播后记：没有人性的社会不会有平等](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [中国共产党的海外借贷违约风险增加-2](/content/gnews/4/README.md)
+### [现货价格暴跌和中共国封锁将影响全球供应链](/content/gnews/2/README.md)
  ` topnews`
 
-### [大直播后记：粮食危机](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
+### [秘翻在线：46个国家表示反对俄罗斯今年举办世界遗产委员会](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [乌克兰官员称俄火箭弹摧毁第聂伯罗机场](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [04/11/22 香港快讯 资深传媒人区家麟 涉嫌串谋发布煽动刊物被捕 与立场新闻案有关](/content/gnews/4/README.md)
+ ` 英喜-粵語組`
 
-### [大直播后记：中共在中东的布局](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：G系列代表上帝的财富](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [【G时新闻】自由党和新民主党如何推动自由车队纵火骗局](/content/gnews/9/README.md)
- ` G-时新闻`
-
-### [【G时新闻】辉瑞与美食药局知情并掩盖疫苗引发抗体依赖性增强事实](/content/gnews/10/README.md)
- ` G-时新闻`
-
-### [币安中东扩张，阿布扎比“原则上”批准](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共上海封城是三年大饥荒封村再现](/content/gnews/12/README.md)
- ` 历史组`
-
-### [律师Riner Fuellmich：&#8221;这些人真的想杀了我们。从未发生过covid大流行&#8221;。](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月10日早](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [加拿大投巨资以推动绿色科技产业](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共将上海打成“魔都”，解封只是城市压力测试心里预演](/content/gnews/17/README.md)
- ` 战云长天时评`
-
-### [欧盟与欧佩克会面呼吁增加石油产量](/content/gnews/18/README.md)
- ` Shuizhuyu`
-
-### [加拿大央行上调银行同业拆借利率](/content/gnews/19/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [在俄罗斯入侵乌克兰期间，Meta如何摸索宣传节制](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [到底是怎么回事？又一位自行车运动员退出比赛](/content/gnews/21/README.md)
- ` xiaobaige`
-
-### [芬兰和瑞典最早将在夏天加入北约](/content/gnews/22/README.md)
- ` Shuizhuyu`
-
-### [西媒头条 — 第204期](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共非法器官移植,医护人员充当侩子手](/content/gnews/24/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.11)–疫苗副作用超大，差点把我送走](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海的疯癫“解封告知书”：按规定足不出户](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
+### [20220408郭文贵大直播 ：中共最大的原罪就是把AI技术用在了反人类上](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [2022/04/11 英喜时事速递](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [大直播后记：没有人性的社会不会有平等](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
 
-### [推特称马斯克不会加入董事会](/content/gnews/27/README.md)
+### [中国共产党的海外借贷违约风险增加-2](/content/gnews/8/README.md)
+ ` topnews`
+
+### [大直播后记：粮食危机](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰官员称俄火箭弹摧毁第聂伯罗机场](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [大直播后记：中共在中东的布局](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：G系列代表上帝的财富](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [【G时新闻】自由党和新民主党如何推动自由车队纵火骗局](/content/gnews/13/README.md)
+ ` G-时新闻`
+
+### [【G时新闻】辉瑞与美食药局知情并掩盖疫苗引发抗体依赖性增强事实](/content/gnews/14/README.md)
+ ` G-时新闻`
+
+### [中共上海封城是三年大饥荒封村再现](/content/gnews/15/README.md)
+ ` 历史组`
+
+### [律师Riner Fuellmich：&#8221;这些人真的想杀了我们。从未发生过covid大流行&#8221;。](/content/gnews/16/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|欧盟将对俄实施新一轮更严厉经济制裁](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月10日早](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [加拿大投巨资以推动绿色科技产业](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [欧盟与欧佩克会面呼吁增加石油产量](/content/gnews/20/README.md)
  ` Shuizhuyu`
 
-### [新西兰财经G乐部2022年4月11日:财经新闻整理](/content/gnews/28/README.md)
+### [加拿大央行上调银行同业拆借利率](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [在俄罗斯入侵乌克兰期间，Meta如何摸索宣传节制](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [到底是怎么回事？又一位自行车运动员退出比赛](/content/gnews/23/README.md)
+ ` xiaobaige`
+
+### [芬兰和瑞典最早将在夏天加入北约](/content/gnews/24/README.md)
+ ` Shuizhuyu`
+
+### [西媒头条 — 第204期](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共非法器官移植,医护人员充当侩子手](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海的疯癫“解封告知书”：按规定足不出户](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/04/11 英喜时事速递](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [推特称马斯克不会加入董事会](/content/gnews/29/README.md)
+ ` Shuizhuyu`
+
+### [新西兰财经G乐部2022年4月11日:财经新闻整理](/content/gnews/30/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [秘翻在线：各大车企陷入停工潮 中共国欧盟商会都坐不住了](/content/gnews/29/README.md)
+### [秘翻在线：各大车企陷入停工潮 中共国欧盟商会都坐不住了](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共称坚持“动态清零”防疫政策是为了保护弱势群体](/content/gnews/30/README.md)
+### [秘翻在线：中共称坚持“动态清零”防疫政策是为了保护弱势群体](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本媒体报道中国老百姓对俄乌战争的态度](/content/gnews/31/README.md)
+### [日本媒体报道中国老百姓对俄乌战争的态度](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [秘翻新闻｜中共借疫大隔离 备战极限战争](/content/gnews/32/README.md)
+### [秘翻新闻｜中共借疫大隔离 备战极限战争](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/33/README.md)
+### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/35/README.md)
  ` thedawn`
 
-### [喜马拉雅币一周分析与总结（4月4日-4月10日）](/content/gnews/34/README.md)
+### [喜马拉雅币一周分析与总结（4月4日-4月10日）](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [中共盗走美国小投资者数十亿美元](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [美国会议员认为 全球大饥荒即将到来](/content/gnews/37/README.md)
+### [中共盗走美国小投资者数十亿美元](/content/gnews/37/README.md)
  ` NFSC News`
 
 ### [中共对南海岛礁的军事化促其成为全球和平的最大威胁](/content/gnews/38/README.md)

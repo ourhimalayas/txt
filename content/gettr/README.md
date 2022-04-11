@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 1:39 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月10日第37天当日救援统计：<br/>Medyka救援站接待：约218人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10653人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 37 - Date: April 10, 2022 :<br/>Medyka Rescue Station Reception: about 218 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10653 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group33/getter/2022/04/11/13/0f1b9e5b-f78b-b94f-aeb0-9d75ac8efc33/f5d77a422ed0c11e84403bbaa116b0fe.jpg)
+
+---
+
 `@miles 4/11/2022 1:06 PM (UTC)`
 
 2022.04.11 早  新中国联邦 | 新闻访谈	 美确认俄罗斯任命了新的乌克兰战争指挥官；俄罗斯入侵乌克兰，乌东成交战关键地
@@ -146,13 +153,6 @@
 
 2022.04.10  新中国联邦 | 喜健康   没有硝烟的战争 — 伊维菌素
 ![img](https://media.gettr.com/group24/origin/2022/04/10/20/528e0add-4d62-642a-2c89-f07a0395d365/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/10/2022 7:03 PM (UTC)`
-
-2022-4-10 “ 放手成长” #小小尼莫音乐会，🎼第六期，#littlenemoconcert，爱的平衡点，和智慧一起成长
-![img](https://media.gettr.com/group40/origin/2022/04/10/19/34614bbb-52f9-7c1c-af9a-56d9a9ec542b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

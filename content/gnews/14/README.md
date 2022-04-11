@@ -2,32 +2,28 @@
 ---
 
 
-## 有声|欧盟将对俄实施新一轮更严厉经济制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2328352/)
+## 【G时新闻】辉瑞与美食药局知情并掩盖疫苗引发抗体依赖性增强事实
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2328491/)
 
-录音：香草山文艺部 – maggie 喵
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据【新闻目标】网4月6日报道，一份被弃的辉瑞公司内部文件显示，辉瑞和美国食药局（FDA）在对中共病毒疫苗会导致抗体依赖性增强均知情的情况下，向公众隐瞒真相并推出。 抗体依赖性增强是免疫系统在被疫苗人为过度刺激后，对疾病的过度反应。这对某些人来说是致命的，其自身免疫系统会用细胞因子风暴杀死他本人。 文件揭示辉瑞和FDA在此问题上对公众撒谎，谎称没有安全问题。上市后也没有公开报道过此类问题，他们知情却掩盖真相，使公众健康面临严重风险。 这使得注射中共病毒疫苗的目的变成了不是帮助人，而是害人。
 
-当地时间4月8日，欧盟在对俄罗斯的第五套制裁方案中，加入针对加密货币钱包、银行、货币和信托的措施，以弥补从俄罗斯将资金转移到国外的潜在漏洞。
+盖特链接：[https://www.gettr.com/post/p14lb647786](https://www.gettr.com/post/p14lb647786)
 
-此前，总部设在欧盟的加密货币交易所，已经禁止了来自俄罗斯的个人交易。为堵住潜在流出资金的漏洞，欧盟将禁令扩大到加密货币钱包的存款。
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-欧盟还表示，将禁止向俄罗斯和白俄罗斯出售，以欧盟成员国的任何官方货币计价的纸币，和可转让证券，如股票。并确认对包括VTB在内的四家俄罗斯银行的全面交易禁令。这些银行占俄罗斯银行业23%的市场份额。这些银行已经被切断了与SWIFT的联系，现在正被冻结资产，以完全切断它们与欧盟市场的联系。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-原文链接：[欧盟将对俄实施新一轮更严厉经济制裁](https://gnews.org/zh-hans/2323703/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-音频处理/发稿：Daxia
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

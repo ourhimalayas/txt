@@ -2,28 +2,25 @@
 ---
 
 
-## 到底是怎么回事？又一位自行车运动员退出比赛
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2327958/)
+## 加拿大央行上调银行同业拆借利率
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+采编：加拿大温哥华扬帆农场 – 文莱
 
-上个星期意大利《报刊》发出警报：太多的自行车选手生病，太多的流感症状、气管炎导致他们退出比赛。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-11-alle-11.49.00.png)图片来源：il giornale.it
-彼得·萨甘( Peter Sagan)长期感到疲劳。他曾是三次世界冠军获得者。萨甘说：“我觉得不舒服，我总是感到疲倦，现在我想知道什么原因。”这位捷克选手上星期退出了La Sarthe赛段的第二赛程。现阶段对于这位捷克选手是十分困难的一个时期，截止本赛季他还没赢过一次。2020年3月中旬因为得了新冠病毒，他不得不中断活动。目前他只是第勒尼奥-亚得里亚赛段的第四名。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-彼得·萨甘还谈到伴随他的疲惫感即使在日常生活中，也一直没离开过他。
+据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
 
-Kazako Astana队的健康经理艾米丽欧•马尼(Emilio Magni)博士承认，目前对相关情况还所知甚少，他们正在收集数据。 他们担心的是这些年轻的运动员很容易生病，最重要的是他们很难康复。每个世界巡回赛车队(世界最顶级自行车赛是列)都在收集他们的数据，他与同事之间保持着持续不断的反馈。目前他们正去都灵做三次磁共振，看能不能排除心肌炎的可能性。他还告诉我们这是一个非常微妙的状况，值得慎重和关注。
-
-这么多年轻健康的运动员感觉不适，退出比赛的现象使人不由得想起著名的泽连科医生和一些有良知的医生曾警告过：反复注射新冠疫苗会导致自身免疫力的逐渐丧失。但是他们的呼声不被主流媒体报道，相反却受到打击。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
 
+报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
 
-参考链接：
+校对编辑：硫酸羟氯喹64
 
-[https://www.eventiavversinews.it/cosa-sta-succedendo-ai-ciclisti-un-altro-campione-fuori-gioco-peter-sagan-si-ritira/](https://www.eventiavversinews.it/cosa-sta-succedendo-ai-ciclisti-un-altro-campione-fuori-gioco-peter-sagan-si-ritira/)
+发稿：青青
 
-编辑、上传：Xiao baige
+原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
 
  
 
