@@ -2,36 +2,37 @@
 ---
 
 
-## 标普降级，俄罗斯或面临历史性违约
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2325904/)
+## 新南威尔士州巴士司机罢工24小时
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326009/)
 
-撰稿：Gradient Boost
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/105.jpg)图片来自网络
-信用评级机构标准普尔下调了对俄罗斯偿还外债能力的评估，预示莫斯科将很快可能出现一个多世纪以来首次的外部贷款违约。
+翻译/编辑：小红帽
 
-标准普尔全球评级在周五晚些时候将俄罗斯下调至“选择性违约”，此前俄罗斯安排在周一以美元支付外国债券时以卢布支付。它表示，预计俄罗斯无法在规定的 30 天宽限期内将卢布兑换成美元。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/og.jpg)图片来源：https://caportal.com.au/tfnsw/tiip
 
-标准普尔在一份声明中表示，其决定部分是由于机构认为针对俄罗斯入侵乌克兰的制裁“可能会在未来几周内进一步增加”，从而“阻碍俄罗斯履行其义务条款的技术能力以及意愿”。标准普尔的一位发言人表示，“选择性违约”评级是指贷方在特定付款上违约，但在其他方面仍能按时付款。
 
-尽管俄罗斯已表示仍愿意偿还债务，但克里姆林宫也警告，如果其海外外币账户仍被冻结，它将以卢布偿还债务。由于俄罗斯在军事占领布查期间杀害平民，本周针对俄罗斯的制裁持续加强，目前俄罗斯已被禁止使用美国银行持有的任何外汇储备偿还债务。
+根据澳洲媒体4月11日报道，由于公交车司机开始了24小时罢工，澳大利亚新南威尔士州的通勤者早上的通勤时间有所延误。
 
-俄罗斯财政部周三表示，它试图向一家美国银行支付 6.49 亿美元的两笔债券，但由于收紧的制裁措施无法接受这笔款项，因此它以卢布支付。西方制裁严重挤压了俄罗斯的经济，标准普尔和其他评级机构已经将其债务评级下调至“垃圾”级别，认为违约的可能性很大。自 1917 年苏联出现布尔什维克革命以来，该国还没有出现国外债违约。即使在 1990 年代后期，苏联解体后，俄罗斯也能够在国际援助的帮助下继续偿还外债。
+运输工人工会，铁路，电车和公共汽车工会的司机从周一午夜后开始24 小时罢工，要求获得公平的报酬和更好的工作条件。
 
-*编辑：Gradient Boost*
+虽然悉尼将首当其冲，但悉尼以外的地区也将受到影响，包括 Hunter Region、Lake Macquarie、Blue Mountains、Central Coast 和 Queanbeyan。
 
-*发稿：mgjxs*
+澳大利亚工会委员会秘书Sally McManus表示，工人们感到沮丧，因为工资跟不上生活成本。“你所看到的采取罢工行动的人都是一线工人，无论护士、教师还是运输工人，今天也是如此。”
 
-新闻参考链接：[AP News](https://apnews.com/article/russia-ukraine-business-europe-economy-foreign-debt-572b9a32691739fb6322fba4c301d9f1)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+“由于通货膨胀和工资没有上涨，人们现在不得不真的削减开支。人们只有在不得已的情况下，才采取罢工行动。不幸的是，这就是现在的情况。”
 
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+McManus说，随着这个问题在八年来不断升级，很多家庭发现生活“艰难”。新南威尔士州政府应该做出回应，确保一线工人的生活不会倒退。
+
+资料来源：[NSW commuters facing chaos as bus drivers strike for 24 hours](https://www.news.com.au/national/nsw-act/news/nsw-commuters-facing-chaos-as-bus-drivers-strike-for-24-hours/news-story/8fdd283f1fd46ca203e5690cd4622ffb)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

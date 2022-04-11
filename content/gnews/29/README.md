@@ -2,28 +2,30 @@
 ---
 
 
-## 乌克兰宣布完全终止与俄罗斯贸易
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2324625/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2324974/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-10.png)
 
-4月9日，乌克兰宣布完全终止与俄罗斯贸易，禁止从俄罗斯进口所有产品，并呼吁其他国家跟进，对俄罗斯实施更严厉制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-193.jpg)2009年12月28日星期一，一艘油轮停泊在远东港口科济米诺(Kozmino)的新石油出口码头。（图片来自美联社）
+校对：Stay文苑
 
-据《中央广播电台》报道，乌克兰经济部长希薇里典蔻 (Yulia Svyrydenko) 9日在脸书上写道：“今天我们正式宣布完全终止与侵略国的货物贸易，从现在开始，俄罗斯联邦的任何产品都不能进口到我们国家的领土上”。据悉，在战争爆发前，俄罗斯是乌克兰的主要贸易伙伴之一，每年进口总值约60亿美元。
+编辑：Stay文苑
 
-希薇里典蔻表示，敌人（俄罗斯）的预算中不会收到这些资金，这将降低其资助战争的潜力。她说，乌克兰的这个举动可以作为西方伙伴的榜样，鼓励他们加强对俄罗斯的制裁，包括实施能源禁运和孤立所有俄罗斯银行。
+发稿：Stay文苑
 
-自2月24日俄罗斯入侵乌克兰以来，两国的货品和服务交流事实上已不存在，但9日的行动则是宣示两国停止贸易成为正式法律。
+新闻：[https://gettr.com/post/p14lrab6a7a](https://gettr.com/post/p14lrab6a7a)
+访谈：[https://gettr.com/post/p14m4oy50cc](https://gettr.com/post/p14m4oy50cc)
 
-另外，乌克兰总统泽伦斯基(Volodymyr Zelenskiy)一再呼吁西方国家，抵制俄罗斯的石油和其它出口，并停止对俄罗斯的一切出口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-8.jpeg)
 
-参考链接：
-[https://www.rti.org.tw/news/view/id/2129594](https://www.rti.org.tw/news/view/id/2129594)
-
-总编：青城道姑
-校对发布：爱放飞
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
