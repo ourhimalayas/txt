@@ -2,56 +2,32 @@
 ---
 
 
-## 视频|核酸了，姐疯了，又疯了
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2329735/)
+## 俄罗斯在酝酿“叙利亚式”的大规模行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2329771/)
 
-中共居民区的宣传喇叭(嫉妒夸张的语气)：“去17号楼后面做核酸吧，姐妹们，还在等什么？赶快下楼做核酸吧！”
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16496965531.png)CNN.com
+俄罗斯在挫败后，进行了重整。被普京新任命的指挥官，亚历山大 · 德沃尔尼科夫（Alexander Dvornikov）将军是在叙利亚战争中声名鹊起的。但美国官员认为，一个人不可能扭转战争的局面。
 
-The propaganda loudspeaker in the CCP neighborhood (in a jealous exaggerated tone): “Go to the back of building 17 to make your NAAT, sisters, what are you waiting for? Hurry downstairs and make your NAAT now!”
+60岁的德沃尼科夫将军，在指挥长达10多年的叙利亚战争中，造成了35万多人死亡。而巴沙尔·阿萨德（Bashar al-Assad）总统的政权得以巩固。2016年，俄罗斯总统普京，授予德沃尼科夫最高俄罗斯英雄勋章。
 
-这个视频将给你展示 中共国 核酸检测运动 是多么的可笑、荒谬、丑陋！ 视频中是中共国核酸检测人员在跳舞，他们看上去可能已经疯了！
+据美国官员说，德沃尼科曾在叙利亚和其他战区对平民施暴。白宫国家安全顾问杰克·沙利文 （Jake Sullivan）表示，任何将军的任命都 “改变不了“ 俄罗斯已经在乌克兰面临战略失败的事实。美国将尽所能支持乌克兰人抵抗他指挥的军队。
 
-This video will show you just how ridiculous, absurd and ugly the CCP’s NAAT movement is! The video shows the Communist China’s NAAT testers dancing around and they look like they might have gone crazy!
+叙利亚军队叛逃者法雷斯·巴约什（ al-Bayoush）中校周日表示，俄罗斯军队在叙利亚打击的是叛乱团体，而在乌克兰是与专业军队作战。他认为任命德沃尼科夫为乌克兰战争指挥官的目的，是同时在多个地方进行“速战速决”的策略。“他在这项政策方面有很好的经验”。他是一名战争罪犯。
 
-很多地区每人每天必须做核酸检测，视频中是中共国奇葩的宣传方式 下面字幕： （嫉妒夸张的语气）赶快下楼做核算，如果不做别想出门，也不能回家！做完核算你就达到人生巅峰！
+在叙利亚，阿萨德的军队在濒临崩溃后，俄罗斯进行了几个月的大规模攻势。在俄罗斯空军进行了数千次空袭后，帮助叙利亚军队夺回了该国大部分地区。直到2020年3月达成停火协议。
 
-NAAT is mandatory for everyone in many areas on a daily basis, the video is a weirdo propaganda approach by the Communist China. Caption below: (jealous exaggerated tone) Hurry up and get downstairs and do the NAAT, otherwise you can’ t go out or back home! Do the test and you’ll be at the top of your life!
+俄罗斯在试图征服首都基辅的战役中失败。重整后，俄罗斯在准备一场对乌克兰更集中的大规模行动。
 
-中共国新发明：核算检测机器人，这像什么？？
+沙利文周日表示，在乌克兰“我们可以期待更多同样的情况”。美国在支持乌克兰及其总统沃洛蒂米尔·泽伦斯基方面的战略是持续不变的。美国将需要不断地向他们提供 “军事支持”，和对俄罗斯强有力的 “经济制裁”。以改善他们在谈判桌上的地位和姿态。
 
-New invention of the Communist China: the NAAT robot, what does this look like?
+国防部长劳埃德·奥斯汀（Lloyd Austin）星期天对返回本国的驻美乌克兰军队发表了讲话。该组织自去年一直在美国接受军事教育训练，包括新型无人机和巡逻艇操作的培训。奥斯汀感谢乌克兰军人的勇气和服务，并承诺美国将继续提供支持和安全援助。
 
-除了人他们还给各种动物检测，无论是猫、狗、螃蟹、鱼不放过一个！
+周六，泽伦斯基表示，尽管他希望和平，但他必须对迅速应对前景中的 “现实”。他再次呼吁提供更多武器。
 
-In addition to people, they also test all kinds of animals, be it cats, dogs, crabs, fish, no one is left out!
+*责编：白夜*
 
-这些 “大白” 就是中共国核算检测的 “丑陋机器”，这些奇怪的舞蹈和动作都是他们自己用来美化核酸运动进行的表演… 你是不是无法理解？
-
-These “Da Bai” are the “ugly machines” of the Communist China’s NAAT, and these strange dances and movements are all performances they themselves use to glorify the NAAT movement… Are you unable to understand?
-
-有些人跪着检测？
-
-Some people kneel down for the test?
-
-还有些人集体下跪检测？？ 地球上中共国独有！
-
-And some people kneeling down collectively for testing? Unique to the Communist China on Earth!
-
-这就是一场披着核酸检测外衣的政治运动！和利益集团牟利的工具！ 很多中共国的利益集团就此牟利，几十亿！ 核酸检测已经成为一个产业链
-
-This is a political movement in the guise of NAAT! And a tool for profit by interest groups! Many Communist China interest groups are profiting from this, billions! NAAT has become an industrial chain.
-
-这就共产党制下的中共国！
-
-This is the Communist China under Communist rule!
-
-
-
-剪辑：happyFriday#2651
-
-翻译：香草山翻译部——文岄679
-
-发布：奇门遁甲
+[原文链接](https://www.cnbc.com/2022/04/11/us-doubts-new-russian-war-chief-can-end-moscows-floundering.html)
 
  
 

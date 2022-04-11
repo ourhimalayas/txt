@@ -2,20 +2,28 @@
 ---
 
 
-## 樱花时政┃美国将派遣外交官前往所罗门群岛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329640/)
+## 日本首次确认“XE毒株” 感染者停留过美国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329664/)
 
-撰稿：东京樱花团/加一颗稻草
+撰稿：东京樱花团/向海
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国总统乔·拜登将派遣国家安全委员会印度-太平洋地区协调员库尔特·坎贝尔前往所罗门群岛。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-27.jpg)图片来源于本文链接
-此举是由于人们越来越担心所罗门群岛与中共之间即将签署的一项安全协议。根据该协议，北京可能将在所罗门群岛建立军事基地，使中共军队驻扎在当地，以换取对该国更多的援助。也为中共在这些岛屿上部署军队和警察铺平了道路。协议称，中共有权力部署安全人员，守卫停靠在所罗门群岛的任何中共海军舰艇。将使中共的军事力量，大规模地深入太平洋地区，威胁到澳大利亚、新西兰和夏威夷的安全。
+国内机场检疫中首次确诊感染新型Corona Omicron毒株“XE”的人员
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-20.jpg)
+据厚生劳动省称，一名有留美史的30多岁女性被证实感染了一种名为“XE毒株”的新型变异株。
 
-这是一项范围相当广泛的协议，为未来在所罗门群岛部署中共国的安全和军事力量敞开了大门。中共的军事力量，可能以不透明、不协作的方式，单方面地引入该地区从而使其能够快速的打击上述地区。
+该女子于上月26日抵达成田机场，无症状，但新冠隔离检测呈阳性，随后的详细检测证实感染了“XE”。
 
-消息来源：[President Joe Biden to send diplomat to the Solomon Islands following security agreement negotiations with China](https://www.skynews.com.au/world-news/global-affairs/president-joe-biden-to-send-diplomat-to-the-solomon-islands-following-security-agreement-negotiations-with-china/news-story/a518a31092282e6d98fa38c943d066f7)
+“XE”是多种Omicron菌株的组合，在日本首次得到确认。
 
-编辑：东京樱花团/知了知了
+根据美国国家传染病研究所的数据，感染人数的增长速度比“BA.2”快12.6%。
+
+目前尚不清楚检测到的“XE”是否和英国流行的同一样毒株。
+
+在检疫中，还发现了另外两个被认为是重组Omicron毒株的标本，但与目前分类的毒株不对应，传染病研究所表示无法做出判断。
+
+#### 信息来源：[「XE系統」を国内で初確認　米滞在の30代女性](https://news.yahoo.co.jp/articles/ac60416b0d41cc78ce5df9ad7c9941a8f0e54e69)
+
+校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****

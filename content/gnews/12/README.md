@@ -2,35 +2,27 @@
 ---
 
 
-## 日本首次确认“XE毒株” 感染者停留过美国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2329664/)
+## 卑诗省政府雇员仍被疫苗护照所困
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2329681/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-国内机场检疫中首次确诊感染新型Corona Omicron毒株“XE”的人员
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-20.jpg)
-据厚生劳动省称，一名有留美史的30多岁女性被证实感染了一种名为“XE毒株”的新型变异株。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-该女子于上月26日抵达成田机场，无症状，但新冠隔离检测呈阳性，随后的详细检测证实感染了“XE”。
+编译： 加拿大温哥华扬帆农场 – 晨熹
 
-“XE”是多种Omicron菌株的组合，在日本首次得到确认。
+据【真北方】4月7日报道， 在加拿大各省都已逐渐取消各项疫情限制的同时，卑诗省政府却仍然对其雇员执行严厉的疫苗接种政策。
 
-根据美国国家传染病研究所的数据，感染人数的增长速度比“BA.2”快12.6%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1326.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
 
-目前尚不清楚检测到的“XE”是否和英国流行的同一样毒株。
 
-在检疫中，还发现了另外两个被认为是重组Omicron毒株的标本，但与目前分类的毒株不对应，传染病研究所表示无法做出判断。
+报道称，卑诗省不仅计划扩大疫苗接种范围，还解雇了那些因未接种疫苗而被迫休假的政府雇员。尽管目前医疗系统面临严重的人员短缺，但该省卫生部仍然辞退了数千名未接种的医护人员。
 
-#### 信息来源：[「XE系統」を国内で初確認　米滞在の30代女性](https://news.yahoo.co.jp/articles/ac60416b0d41cc78ce5df9ad7c9941a8f0e54e69)
+然而与省政府政策相悖的是，维多利亚市于4月8日取消了对市政雇员疫苗强制接种的要求，据悉其他市政府也计划效仿。同时法院对强制接种和不当解雇的诉讼也仍在继续。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/](https://tnc.news/2022/04/07/people-in-bc-are-still-being-fired-over-covid-vaccines-ft-harley-sims/)
 
  
 

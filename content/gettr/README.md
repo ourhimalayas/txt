@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 5:37 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group10/origin/2022/04/11/17/f74de7b3-d021-d741-3099-088e97b3f1ee/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/11/2022 5:37 PM (UTC)`
+
+【Ukraine Rescue】 04/09/22 Seeing a young volunteer from Poland carefully reading the NFSC Declaration, Nicole introduces our mission to him, as well as Gettr: because we think by democratizing freedom of information will help to liberate people’s mind.<br/><br/>【乌克兰救援】 04/09/22 大帐篷外狂风暴雨，一位来自波兰的年轻志愿者正在温暖的帐篷内认真地阅读着《新中国联邦宣言》，妮可向他介绍了我们的使命，以及盖特：因为我们认为通过信息自由的民主化将有助于解放人们的思想。
+![img](https://media.gettr.com/group12/getter/2022/04/11/17/310cdcfe-8df4-a949-f1ac-c90748d2abb4/out.jpg)
+
+---
+
 `@miles 4/11/2022 5:14 PM (UTC)`
 
  4月11号：AhAh 无处不在的天才的战友，这才是人类最重要的财富，这首歌，唱得太棒了👏
@@ -138,20 +152,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 2022.04.11 早  新中国联邦 | 新闻    中共不灭 灾难不止；习近平排除异己 为独裁铺路
 ![img](https://media.gettr.com/group20/origin/2022/04/11/12/7d9c5f39-9fcb-7f10-2eae-46847e497268/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 10:58 AM (UTC)`
-
-2022.04.11  新中国联邦 | 军情室  俄乌战争局势 杀伤链的概念 从杀伤链的角度分析俄罗斯的战力
-![img](https://media.gettr.com/group50/origin/2022/04/11/10/a3fb7103-4c73-2f87-b4b0-d4607a3ee52b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 10:17 AM (UTC)`
-
-【Ukraine Rescue】04/08/2022  A Ukrainian from California came to Medyka to help refugees. He thanked the ROLF and the NFSC for the facilities and services provided to his people. He said, "You guys have the best tent, the best coffee, and hardwood floors for little kids to play with. I love this place." He sent blessings to the new Chinese in Ukrainian.<br/><br/>【乌克兰救援】04/08/2022 一位来自美国加州的乌克兰人来到梅迪卡帮助难民。他感谢法治基金、新中国联邦为他的人民提供的设施和服务。他说“你们有最好的帐篷，最好的咖啡，还有硬木地板让小孩子玩耍。我爱这个地方。”他用乌克兰语给新中国人送上祝福。
-![img](https://media.gettr.com/group22/getter/2022/04/11/10/ea466dad-430e-24d9-d473-358e32fd3f19/out.jpg)
 
 ---
 
