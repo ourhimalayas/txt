@@ -2,30 +2,38 @@
 ---
 
 
-## 欧洲根本不是能源危机，是共产主义极权危机
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329078/)
+## 有声|俄导弹袭击乌克兰火车站致50平民丧生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329151/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/eca86bd9ddc714fddffc1d-2.jpg)
-4月10日大直播中，郭先生提到，在俄乌战争中，欧洲要面临的根本不是能源问题，是这些年来亲共亲俄的立场让整个社会系统趋于极权统治。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间4月8日，据乌克兰官员透露的消息显示，俄罗斯军队当天导弹袭击了乌克兰顿涅茨克地区的克拉马托尔斯克火车站。当时，该火车站内挤满了试图逃离的乌克兰东部平民，至少50人在袭击中身亡，其中包括5 名儿童。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-3.jpeg)
+据了解，在俄军行动之前，当地官员已经发出预警，要求民众尽快撤离克拉马托尔斯克，但数千名乌克兰人仍然没有来得及在袭击前搭乘火车。
 
-自2008年以来，德国默克尔和法国萨科齐这样的流氓政客，甘愿给共产党做走狗。显而易见的就是2008年奥运会德法在背后支持共产党。在普京极权的威胁之下，德法、俄和中共国的经济全部挂钩，极大怂恿了习普两人今天对乌克兰和台湾发动的侵略战。默克尔曾经被称为政治大家，他的老师说默克尔是德国的英雄，未来会被列为先知。而萨科齐曾在盘古大放厥词，竟然赞扬共产党对表达不同意见群众的恶意捕杀行为。萨科齐还出卖了乌克兰和香港以及非洲的很多国家。俄乌战争的始作俑者就是这两个共产党的走狗，默克尔和萨科齐都应该是战犯级的罪人。今天因俄乌战争带来的欧洲油气问题，其背后是共产主义极权的游魂。
+另据一位美国国防官员披露，五角大楼认为俄罗斯军队在此次对乌克兰平民的袭击中使用了SS-21圣甲虫导弹，该导弹具有全球定位、雷达和光学终端跟踪系统，属大规模杀伤性武器。
 
-索性德国和法国在对待乌克兰的问题上已经全面转身，德国已经决定和美国合作，并已经对默克尔立案调查，邀请郭先生作证。郭先生非常乐意，愿意将所有情况悉数告知。
 
-撰稿、发布：骄子
 
-* * *
+文字版原文：[俄导弹袭击乌克兰火车站致50平民丧生](https://gnews.org/zh-hans/2318796/)
 
-欢迎订阅我们的GNews账号：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

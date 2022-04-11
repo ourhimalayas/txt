@@ -2,32 +2,26 @@
 ---
 
 
-## 有声|叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329178/)
+## 日本进一步放松边境防疫措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329419/)
 
-配音：香草山商业部——文锤
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-4月7日的飞飞《大实话》盖特直播中，叶钊颖、郝海东夫妇揭露中共体制下的恶——没有信仰，没有真爱，没有人性，没有底线。
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月10日起，日本政府进一步放松边境防疫管控措施，将每天入境限制的人数从7千人提高到1万人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-11-上午11.36.42.png)路透社
+日本政府还表示，今后还会逐步放宽限制，考虑到近期疫情有所回升，将谨慎考虑放宽限制的时间和规模。
 
-从小在体制下长大的叶钊颖、郝海东夫妇，亲眼看见、新耳听见过中共官场的是是非非，亲身体会过邪恶中共体制带来的伤害，也深知在体制下人们的无奈，所以痛恨这个邪恶体制。在这个邪恶的体制下，那些连鸡都不敢杀的中共高官，为了保护自己的权力，家人不敢爱，亲情不敢要，贞节要出卖，婚姻也交易，不择手段，向党内敌人痛下杀手。从毛泽东到现在的习近平，中共的官场互害杀死了许多官员，将许多中共党员送进了监狱，冤枉了许多老百姓，害死了许多无辜的人！
+目前，日本已经重新放开了除观光以外的外国人入境申请，来自外国的求学和商务旅客会有所增加。日媒报道称这将有助于将来观光旅客入境申请的重启，有利于日本经济活动的早日恢复。
 
-在中共体制下，人们没有道德底线、没有信仰、没有敬畏之心，就不可能有爱心。郝海东先生认为，人性的丧失、人伦的丧失、爱的丧失，是中共最大的可悲。我们新中国联邦人要重拾先进文明，每个人都应追求有温度的爱。
+参考链接：[日本邊境防疫鬆綁 每天入境人數上限升至1萬人](https://www.cna.com.tw/news/aopl/202204100020.aspx)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-
-文字版原文：[叶钊颖、郝海东夫妇痛斥中共体制下没信仰无真爱](https://gnews.org/zh-hans/2322037/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+编辑：Ivy001 / 静言
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

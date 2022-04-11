@@ -2,35 +2,68 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2329522/)
+## 视频|援助&#8221;锁链女&#8221;事件的义士们陆续遭中共打压
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2329637/)
 
-作者：香草山翻译部
+3月23日晚，因声援“锁链女”而被当局两次抓捕的网民乌衣，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
+其代理律师黄思敏到达徐州办案后立即被两三台车一路尾随跟踪，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-10.png)
+而于25日不得不离开徐州，跟踪的人在她进入高铁站准备离开徐州后随即消失了。
 
-文章仅代表作者本人观点，与Gnews无关
+2月24日，持续关注“锁链女”的人权律师卢廷阁向江苏省政府申请调查信息公开；3月21至22日，
 
-视频参看：
-[2022.04.11早 《NFSC新闻》](https://www.gettr.com/streaming/p14owulf8cb)
-[2022.04.11早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14oou55b13)
+当地司法和公安人员先后私下劝他撤回申请；
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+3月25申请到期日仍没收到任何书面答复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-11.jpeg)
+卢廷阁认为江苏当局的五次通报漏洞百出、自相矛盾，
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+并表示如果这么典型的冤情都得不到救助，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
+甚至当局还要故意掩盖，
+
+则法制环境就形同虚设了，
+
+“锁链女”事件与每人的生存环境密切相关，
+
+关注“锁链女”就是关注我们自己。
+
+3月27日，曾因揭露“锁链女就是李莹”而引发外界广泛关注、
+
+出身徐州丰县本地的中国网《名家访谈》栏目制片人兼导演王圣强在微博连续发帖20多条，
+
+为“铁链女”发声而被警方当天深夜上门训诫，随后其微博及博客均被封，
+
+电话被监控，当局陆续对其老家的家人和亲人、工作单位、领导进行政治绑架，
+
+让他们施压王圣强让其闭嘴。王圣强还质疑江苏省调查组为何不敢公布涉案名单？
+
+王圣强当天发的微博内容包括：不怕被凭空消失，相信天理；
+
+人家叔叔申请多次，怎么不做个DNA？怎么不让他们见个面？
+
+相信你们都有孩子，假如你们的孩子12岁就被拐卖了，
+
+你忍心让她一生都见不到父母吗？咱们都是人，不是畜生！
+
+将心比心，假如我是调查组成员，我乌纱帽都不要了，
+
+我只想做个人；连人都不是了，要那官帽有个屁用，只会祸害人！
+
+【盖文】拐卖妇女儿童现象在中共国普遍存在且历史悠久，这是中共当局一贯刻意纵容、亲自参与甚至主导的惨绝人寰、令人发指的反人类、反社会的滔天罪行。中共是中国人恐惧与灾难的源泉，只有消灭中共才能拯救同胞！
+
+
+
+【撰稿】6zero4
+
+【审稿】呼吸的雾霾（文小呼吸）
+
+【剪辑】windlady
+
+【链接】https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/kw-03282022102643.html
+
+【发布】奇门遁甲
 
  
 

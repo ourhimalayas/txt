@@ -2,26 +2,36 @@
 ---
 
 
-## 日本进一步放松边境防疫措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329419/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2329522/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月10日起，日本政府进一步放松边境防疫管控措施，将每天入境限制的人数从7千人提高到1万人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-11-上午11.36.42.png)路透社
-日本政府还表示，今后还会逐步放宽限制，考虑到近期疫情有所回升，将谨慎考虑放宽限制的时间和规模。
+作者：香草山翻译部
 
-目前，日本已经重新放开了除观光以外的外国人入境申请，来自外国的求学和商务旅客会有所增加。日媒报道称这将有助于将来观光旅客入境申请的重启，有利于日本经济活动的早日恢复。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
 
-参考链接：[日本邊境防疫鬆綁 每天入境人數上限升至1萬人](https://www.cna.com.tw/news/aopl/202204100020.aspx)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-10.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+文章仅代表作者本人观点，与Gnews无关
 
-编辑：Ivy001 / 静言
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+视频参看：
+[2022.04.11早 《NFSC新闻》](https://www.gettr.com/streaming/p14owulf8cb)
+[2022.04.11早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14oou55b13)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-11.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-18.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

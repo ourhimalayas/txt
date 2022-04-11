@@ -2,26 +2,26 @@
 ---
 
 
-## 日本和菲律宾签署国防协议应对中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329421/)
+## “Hey Hey Rise Up” 平克·弗洛伊德的新单曲荣登25个国家排行榜冠军
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2329534/)
 
-作者：银河系农场 骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月9日，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47-1.png)GNEWS
-自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为位于同海域的国家，日本和菲律宾希望共同协商解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约，考虑互相提供对方军队的供应共享协议，该协议还包括收购和交叉服务。
+**撰稿：日本东京方舟农场 北极**
 
-据悉，日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。菲律宾是继印度尼西亚之后，与日本举行二加二会议的第二个东南亚国家。
+据焦点报4月11日报道，英国摇滚乐队平克·弗洛伊德（Pink Floyd）和乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）合作的新单曲“Hey Hey Rise Up” 短短几天内荣登25个国家排行榜冠军。
 
-参考链接：[Japan, Philippines to aim for new defense cooperation pact](https://english.kyodonews.net/news/2022/04/5925ea8ad19e-japan-philippines-hold-first-2-plus-2-security-talks.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1_ccexpress-1.png)乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）在圣索菲亚大教堂前。（图片来自焦点报）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+上周五该单曲首发于Youtube，为了表达对乌克兰英勇抵抗俄罗斯军队入侵的行为致敬。短短几天来，荣登美国，英国，法国，德国，荷兰，比利时，澳大利亚，加拿兰，捷克共和国，芬兰，希腊，意大利，立陶宛，卢森堡，马耳他，巴拉圭，葡萄牙，新西兰，挪威，罗马尼亚，斯洛伐克，南非，瑞典等iTunes 排行榜第一名。
 
-编辑：Ivy001
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+这首歌是平克·弗洛伊德乐队时隔28年以来发布的第一支单曲。
+
+参考链接：
+1.[https://reurl.cc/X4vRXa](https://reurl.cc/X4vRXa)
+2.[https://reurl.cc/nEWvV8](https://reurl.cc/nEWvV8)
+
+总编：青城道姑
+发布：晓辉
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
