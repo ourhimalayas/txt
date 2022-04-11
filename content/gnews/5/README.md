@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|斯洛伐克赠乌防空系统拜登表示感谢
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329086/)
+## 广州疫情迅速升级 面临封城
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329146/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月8日，斯洛伐克总理赫格表示，已经将俄制S-300防空系统送抵乌克兰，帮助乌克兰防御俄罗斯飞弹的攻击。美国拜登总统特别针对此事，对斯洛伐克的行动表示感谢，并称将给斯洛伐克提供美制的爱国者飞弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1126.png)图片来自：https://m.smedata.sk/api-media
-就在4月8日当天，俄罗斯以飞弹攻击了乌克兰东部的克拉莫托斯克火车站，造成至少50位平民死亡。拜登称这是“可怕的暴行”。
+作者：纽约香草山农场 侠肝义胆
 
-据悉，S-300防空系统虽然不是目前技术上最先进的，但乌克兰在苏联解体前曾经拥有并能够熟练操作，因此这套防空系统将能够有效增强乌克兰的空中防御力量。
+中共国媒体4月9日报道，周五广州发现新的中共病毒确诊病例后，广州官方宣布，对全市所有居民进行病毒核酸检测。这次检测范围包括广州十一个区大约一千八百万人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-37.jpg)
+4月9日，中共广州疾控中心官员表示，现有的封控区域内，已经发生社区传播，并有向市内其他区域传播的风险性。广州目前面临的防疫形势比去年更加严竣。据悉，从4月9日起，白云区相关客运站关闭，恢复时间未定；并要求乘客遵守交通防疫管控措施。
 
-迄今为止，美国已向乌克兰提供了十多亿美元的军备支援，德国、波兰、捷克、英国也都分别支援了各种武器，协助乌克兰对抗俄罗斯。
+目前，中共国多地封城，官方所谓的疫情实际上是疫苗导致的病毒传播。中共借封锁和清零政策，为的是闭关锁国，把灾难推给老百姓。
 
+参考链接：
+1. [Caixin Global 04月09日报道【中国广州宣布在全市范围内进行大规模新冠病毒检测】](https://gettr.com/post/p14gpdue8bf)
+2. [央视新闻4月9日报道【广州市疾控中心：封控区域内可能已经发生社区传播，防控形势严峻】](https://gettr.com/post/p14gsx1f57b)
+3. [央视新闻4月9日报道【即日起广州白云区内客运站暂时停运】](https://gettr.com/post/p14gddb14cb)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-文字版原文：[斯洛伐克赠乌防空系统拜登表示感谢](https://gnews.org/zh-hans/2322208/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：Fei797
 
  
 

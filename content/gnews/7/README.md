@@ -2,30 +2,40 @@
 ---
 
 
-## 欧洲根本不是能源危机，是共产主义极权危机
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2329078/)
+## 有声|上海疫情防控进入恶性循环
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2329109/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/eca86bd9ddc714fddffc1d-2.jpg)
-4月10日大直播中，郭先生提到，在俄乌战争中，欧洲要面临的根本不是能源问题，是这些年来亲共亲俄的立场让整个社会系统趋于极权统治。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间4月8日，据相关媒体报道，中共上海市政府正在以疫情爆发为由，强制当地两千五百万市民禁足家中或进入方舱医院隔离，从而可以响应当局所谓的“清零”政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-5.jpeg)
+报道提及，上海正在实行极为严苛的封锁政策：任何居住小区中即使仅出现一例阳性患者，整个小区的居民都必须全员无限期的居家隔离；部分民众甚至在并未确诊的情况下被无故关押至方舱医院。
 
-自2008年以来，德国默克尔和法国萨科齐这样的流氓政客，甘愿给共产党做走狗。显而易见的就是2008年奥运会德法在背后支持共产党。在普京极权的威胁之下，德法、俄和中共国的经济全部挂钩，极大怂恿了习普两人今天对乌克兰和台湾发动的侵略战。默克尔曾经被称为政治大家，他的老师说默克尔是德国的英雄，未来会被列为先知。而萨科齐曾在盘古大放厥词，竟然赞扬共产党对表达不同意见群众的恶意捕杀行为。萨科齐还出卖了乌克兰和香港以及非洲的很多国家。俄乌战争的始作俑者就是这两个共产党的走狗，默克尔和萨科齐都应该是战犯级的罪人。今天因俄乌战争带来的欧洲油气问题，其背后是共产主义极权的游魂。
+同时，中共当局迟迟不给出明确的解封日期，这也导致上海市的供应链近期极不稳定，居民生活物资匮乏。据墙内社交媒体平台的消息显示，上海市民忍饥挨饿已经成为每天生活的常态，而抢菜则成为生存的头等大事。
 
-索性德国和法国在对待乌克兰的问题上已经全面转身，德国已经决定和美国合作，并已经对默克尔立案调查，邀请郭先生作证。郭先生非常乐意，愿意将所有情况悉数告知。
+分析人士指出，上海的疫情防控目前已经进入了恶性循环，但这也意味着中共病毒及其疫苗所带来的灾难正在墙内拉开序幕。
 
-撰稿、发布：骄子
 
-* * *
 
-欢迎订阅我们的GNews账号：
+文字版原文：[上海疫情防控进入恶性循环](https://gnews.org/zh-hans/2318785/)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
