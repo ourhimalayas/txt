@@ -2,35 +2,54 @@
 ---
 
 
-## 中共秘密向塞尔维亚运送地对空导弹系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2324781/)
+## 马斯克在披露购买推特股份几天之后就提议重组订阅服务
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2324918/)
 
-**撰稿：日本东京方舟农场  子辰**
+翻译： Jenny Ball
 
-4月10日，中共向俄罗斯盟友塞尔维亚运送了地对空导弹系统。此前美国警告塞尔维亚不要购买中共防空系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-196.jpg)（图片来自大纪元）
 
-据美联社报导，媒体和军事专家表示，六架中共空军运-20运输机（Y-20）周六降落在塞尔维亚贝尔格莱德（Belgrade）民用机场。据报，这些运输机为塞尔维亚军队运送了中共的红旗-22（HQ-22）地对空导弹系统。
 
-据悉，这些运输机飞越了至少两个北约成员国，即土耳其和保加利亚领空运送了武器，而且此次运-20它们是集体飞行，不是单机飞行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-109.png)埃隆·马斯克于 2022 年 3 月 22 日在德国格伦海德出席新的特斯拉电动汽车超级工厂的开幕式。帕特里克·普勒尔/通过路透社/文件照片
 
-塞尔维亚总统亚历山大‧武契奇（Aleksandar Vucic）确认了2019年商定的这款中程地对空导弹系统的交付。塞尔维亚将成为欧洲第一个使用这些中共导弹的国家。
+4 月 9 日（路透社） – Twitter的最大股东埃隆·马斯克周六建议，对这家社交媒体巨头的 Twitter Blue 高级订阅服务进行大量更改，包括削减其价格、禁止广告和提供加密货币狗狗币支付选项。
 
-塞尔维亚曾在1990年代与其邻国交战。该国目前正在正式寻求获得欧盟成员资格。塞尔维亚使用俄罗斯和中共的武器，包括战机、作战坦克和其它装备。
+几天前，马斯克披露其购买了 Twitter 9.2% 的股份，他获得了董事会席位，此举让一些 Twitter 员工对其未来内容审核能力感到恐慌。
 
-西方担心中俄对塞尔维亚的武装可能会鼓励这个巴尔干国家发动另一场战争，特别是针对在2008年宣布独立的前科索沃省（Kosovo）。塞尔维亚、俄罗斯和中共不承认科索沃的国家地位，而美国和大多数西方国家都承认。
+Twitter 表示，Twitter Blue 于 2021 年 6 月推出，是 Twitter 的首个订阅服务，按月订阅提供“对高级功能的独家访问”。它在美国、加拿大、澳大利亚和新西兰有售。
 
-近年来，国际上越来越多的人清楚认识到，塞尔维亚就是中共在欧洲扩张和投资政策的重点攻坚国家。
+在 Twitter 帖子中，电动汽车制造商特斯拉公司的负责人建议，注册 Twitter Blue 的用户应该比目前每月 2.99 美元支付的费用要低得多，并且应该获得一个认证复选标记，以及一个选择以当地货币支付方法。
 
-此外，这一消息早在4月9号，就被新中国联邦创始人郭文贵先生曝出，郭先生说，中共给塞尔维亚运送了红旗导弹系统，将是为了帮助俄罗斯侵略乌克兰进行大屠杀前的准备，这也是对欧盟及美国带来灾难的武器。郭先生同时预警，未来的两周，中共将在南亚和中东，布置新的东风15导弹系统。
+“价格可能应该是每月 2 美元左右，但提前 12 个月支付，并且，帐户在 60 天内没有得到复选标记（注意信用卡拒付），如果用于诈骗/垃圾邮件，则被暂停且不予退款”，马斯克在一篇文章中说。
 
-参考链接：
-1.[https://www.epochtimes.com/gb/22/4/10/n13708472.htm](https://www.epochtimes.com/gb/22/4/10/n13708472.htm)
-2.[https://gettr.com/post/p14dgst16f4](https://gettr.com/post/p14dgst16f4)
+“而且没有广告”，马斯克建议道。 “如果 Twitter 依靠广告钱生存，大企业控制制定政策的权力就会大大增强。”
 
-总编：老孙
-校对发布：爱放飞
+马斯克还提出了用狗狗币支付的选项，并征求了 Twitter 用户的意见。
+
+Twitter拒绝就马斯克的建议置评。
+
+该公司已经允许人们使用比特币给他们最喜欢的内容创作者小费。Twitter 去年曾表示，它计划支持不可替代的代币( NFT )的身份验证，这些令牌是存在于区块链上的数字资产，例如图像或视频。
+
+马斯克还在他的推特账户上发起了一项民意调查——马斯克账户拥有超过 8100 万粉丝——询问该公司的旧金山总部是否应该被改造成无家可归者收容所，因为“没有人出现（在那里工作）”。该民意调查在一小时内获得了超过 300,000 张选票，其中 90% 的人回答“是”。
+
+注释：推特蓝（Twitter Blue）是每月订阅，提供对高级功能的独家访问，因此，您可以自定义您的 Twitter 体验。您需要使用有效的 Twitter Blue 订阅登录到您购买订阅的 Twitter 帐户，才能访问下面列出的功能和设置。
+
+新闻来源：[Musk proposes Twitter Blue subscription shake-up days after disclosing 9.2% Twitter stake](https://www.reuters.com/technology/musk-proposes-twitter-blue-subscription-shake-up-days-after-disclosing-92-2022-04-10/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
 
  
 

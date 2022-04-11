@@ -2,54 +2,71 @@
 ---
 
 
-## 马斯克在披露购买推特股份几天之后就提议重组订阅服务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2324918/)
+## COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2324934/)
 
-翻译： Jenny Ball
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-19.jpg)
+整理/编辑：禄森
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-1104.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-109.png)埃隆·马斯克于 2022 年 3 月 22 日在德国格伦海德出席新的特斯拉电动汽车超级工厂的开幕式。帕特里克·普勒尔/通过路透社/文件照片
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-4 月 9 日（路透社） – Twitter的最大股东埃隆·马斯克周六建议，对这家社交媒体巨头的 Twitter Blue 高级订阅服务进行大量更改，包括削减其价格、禁止广告和提供加密货币狗狗币支付选项。
+**帖子原文**：
 
-几天前，马斯克披露其购买了 Twitter 9.2% 的股份，他获得了董事会席位，此举让一些 Twitter 员工对其未来内容审核能力感到恐慌。
+**博主:沙沙沙沙沙沙莎**
 
-Twitter 表示，Twitter Blue 于 2021 年 6 月推出，是 Twitter 的首个订阅服务，按月订阅提供“对高级功能的独家访问”。它在美国、加拿大、澳大利亚和新西兰有售。
+**新冠疫苗后有鼻炎了？！**
 
-在 Twitter 帖子中，电动汽车制造商特斯拉公司的负责人建议，注册 Twitter Blue 的用户应该比目前每月 2.99 美元支付的费用要低得多，并且应该获得一个认证复选标记，以及一个选择以当地货币支付方法。
+今天27周岁 从小到大都没有鼻炎，身体一直也还好。去年夏天开始突然爆发闭口，脸上屏障受损严重，无论我怎么忌口怎么听话都没有效果，大概一个多月，自己就好转了。然后我记得是九月份开始，小腿莫名其妙开始痒，从小到大皮肤病没有得过！！看了医生说我湿疹，开了过敏药吃了也是一时一时的，痒的时候可以半夜痒醒来，坐在床上边哭边抓皮炎平用了有六只，氯雷他定吃了好几盒。那段时间好痛苦，腿上抓了之后还有出痧淤点，皮肤科医生又让我去查血液科，结果确实是凝血功能出了一点问题。
 
-“价格可能应该是每月 2 美元左右，但提前 12 个月支付，并且，帐户在 60 天内没有得到复选标记（注意信用卡拒付），如果用于诈骗/垃圾邮件，则被暂停且不予退款”，马斯克在一篇文章中说。
+后来入冬了天气冷了，就自然而然不痒了。真是作孽 与之而来的就是，鼻炎！！我居然有鼻炎了！！那是某天下午在公司我连续打了十几个喷嚏，突然就开始了漫长的鼻炎，一个冬天都不知道怎么过来的，每天晚上鼻子不通，靠嘴巴呼吸，然后喉咙就会发炎会痛，眼睛也难受也痛，耳朵也痒。 床头柜放纸，半夜鼻子不通被憋醒。
 
-“而且没有广告”，马斯克建议道。 “如果 Twitter 依靠广告钱生存，大企业控制制定政策的权力就会大大增强。”
+我好难过，我想不通已经为什么突然就免疫力这么差了，我才27呀，我还没有结婚生孩子啊
 
-马斯克还提出了用狗狗币支付的选项，并征求了 Twitter 用户的意见。
+然后！！今天跟一个朋友无意间聊起，她见我鼻炎犯了，说她同事是打完新冠疫苗也开始有鼻炎！！我就一下子想起来了，我好像就是从打疫苗开始有了所有症状，皮肤过敏，湿疹和鼻炎都是！！！到底怎么办啊，现在在洗手间洗鼻子洗的难受的哭了起来，太难受了，春天这几天尤其难受，眼睛天天胀胀的红红的，又痒。过敏药吃了也没啥作用，每天晚上都睡不好！！！
 
-Twitter拒绝就马斯克的建议置评。
+到底怎样啊，都抑郁了，每天在办公室抱着纸巾，鼻子周边也快擦破了疼疼的。在外面吃饭擤鼻涕别人还害怕的躲开（疫情期间害怕吧可能）查询了一下说是可以做手术，有朋友做过手术吗，手术难吗？上班族需要请假多久？之后就能彻底好吗？？
 
-该公司已经允许人们使用比特币给他们最喜欢的内容创作者小费。Twitter 去年曾表示，它计划支持不可替代的代币( NFT )的身份验证，这些令牌是存在于区块链上的数字资产，例如图像或视频。
+放过我吧
 
-马斯克还在他的推特账户上发起了一项民意调查——马斯克账户拥有超过 8100 万粉丝——询问该公司的旧金山总部是否应该被改造成无家可归者收容所，因为“没有人出现（在那里工作）”。该民意调查在一小时内获得了超过 300,000 张选票，其中 90% 的人回答“是”。
+#鼻炎 #疫苗 #疫情
 
-注释：推特蓝（Twitter Blue）是每月订阅，提供对高级功能的独家访问，因此，您可以自定义您的 Twitter 体验。您需要使用有效的 Twitter Blue 订阅登录到您购买订阅的 Twitter 帐户，才能访问下面列出的功能和设置。
+**作者发布于2022-4-9**
 
-新闻来源：[Musk proposes Twitter Blue subscription shake-up days after disclosing 9.2% Twitter stake](https://www.reuters.com/technology/musk-proposes-twitter-blue-subscription-shake-up-days-after-disclosing-92-2022-04-10/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+**精选评论**
 
-* * *
+想和你一起吃泡面评论:
 
-审核：文乐
-校对：花羽
-发布：五通庙
+我也是，打完疫苗之后过敏严重了，湿疹也严重了，鼻炎也是。没吃打完疫苗几个小时后就皮肤痒，脸也肿
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+小红薯5D84025B评论:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-13.jpeg)
+我也是打疫苗之后鼻炎鼻涕倒流半年好了然后一感冒又来
+
+坠入深海评论:
+
+我有个同事，打完疫苗之后突然有只耳朵听不见了，去看医生医生就直接问她有没有打新冠疫苗，就说打疫苗的话可能会有这种副作用
+
+再gang拔你牙评论 :
+
+我打完疫苗突聋了一段时间 去医院打吊瓶一周才好的 但是第四针还是得打没有办法
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1191.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1192.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1193.png)图片来源：小红书
+参考链接：
+
+[鼻炎，脸部爆发闭口，皮肤过敏奇痒，湿疹，喉咙痛，眼睛痛，耳朵痒](https://www.xiaohongshu.com/discovery/item/6251a278000000000c032448?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649520956)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
