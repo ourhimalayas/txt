@@ -15,40 +15,40 @@
 
 ---
 
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/1/README.md)
+### [有声|基辅斯拉夫福音神学院院长死于乌克兰布查屠杀](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/2/README.md)
  ` 蓝莲花农场`
 
-### [有声|遭遇封控的恐慌](/content/gnews/2/README.md)
+### [有声|遭遇封控的恐慌](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [DC每日热点0411](/content/gnews/3/README.md)
+### [DC每日热点0411](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|追求公平是人的天性](/content/gnews/4/README.md)
+### [有声|追求公平是人的天性](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [新书介绍：关于大脑和学习的最新科学认知（四）](/content/gnews/5/README.md)
+### [新书介绍：关于大脑和学习的最新科学认知（四）](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [史诗般的&#8211;彼得-多希博士冲击FDA会议，递交了他们（FDA）想要忽视的举报人的新闻报道](/content/gnews/6/README.md)
+### [史诗般的&#8211;彼得-多希博士冲击FDA会议，递交了他们（FDA）想要忽视的举报人的新闻报道](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/7/README.md)
+### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/8/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [GETTR首席执行官杰森-米勒在华盛顿讨论马斯克成为推特最大股东事宜](/content/gnews/8/README.md)
+### [GETTR首席执行官杰森-米勒在华盛顿讨论马斯克成为推特最大股东事宜](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [塔克·卡尔森以嘲讽的方式质疑疫苗的有效性](/content/gnews/9/README.md)
+### [塔克·卡尔森以嘲讽的方式质疑疫苗的有效性](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共利用民众仇富心理，激化矛盾抢劫财富](/content/gnews/10/README.md)
+### [中共利用民众仇富心理，激化矛盾抢劫财富](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [妮可解释帮助14亿中国人获得自由是伟大的人道救援行动](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [德国义工称赞灭共的新中国联邦人](/content/gnews/12/README.md)
+### [妮可解释帮助14亿中国人获得自由是伟大的人道救援行动](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [五月花简报（04/11/2022）](/content/gnews/13/README.md)
