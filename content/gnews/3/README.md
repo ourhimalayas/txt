@@ -2,11 +2,11 @@
 ---
 
 
-## 小福利写给郭先生的“情书”（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328019/)
+## 没有人性的社会不会有平等（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2328240/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-10-11-20-01（一）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：40-12：50-006.jpg)
 发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

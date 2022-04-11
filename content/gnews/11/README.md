@@ -2,24 +2,24 @@
 ---
 
 
-## 2022年4月11日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2327807/)
+## 视频|中共的疯狂举动 恐将让中国人付出血的代价
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2328160/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1014.jpg)
+4月9日，郭文贵先生发布盖特，对最近中共给塞尔维亚送去红旗导弹系统、帮助俄罗斯对乌克兰进行大屠杀做准备表达了巨大的担忧。
 
-发稿：信心的选择
+在4月3日的大直播中，郭先生就曾发出预警，中共要在塞尔维亚、中东以及中东周边的小国家布置红旗导弹系统和反导弹系统，这个系统基本上相当于美国肩扛式毒刺导弹的连发武器，抄袭的是美国技术，会对美欧在乌克兰的空中支援构成巨大威胁。美国则一定会将红旗系统使用的中共“北斗导航系统”彻底消灭掉。
+
+如今，大量的歼-20飞机正在将红旗系统运往塞尔维亚。在未来两周，中共还将在南亚和中东布置新的东风15导弹系统。中共的这些所做作为，将会震撼世界，不仅威胁世界的安全，而且也将成为将来世界仇视中国人的证据。
+
+郭先生最后指出，被中共这个疯狂的小流氓集团绑架，是14亿中国人的悲哀，中国人恐怕也将为此付出血的沉重代价。
+
+发稿：Daxia
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-4.jpeg)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

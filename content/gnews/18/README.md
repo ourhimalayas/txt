@@ -2,24 +2,25 @@
 ---
 
 
-## 警惕疫苗！日政府取消1/3中共病毒疫苗购买计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2327420/)
+## 2022年4月11日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2327807/)
 
-撰稿：东京樱花团/风翼
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-据FNN媒体报道：日本政府表示，对于阿斯利康公司生产的中共病毒（新冠病毒COVID-19）疫苗，已取消了4000万剂即三分之一的采购合同。卫生部佐原健康局长解释说“我们与阿斯利康公司签订了购买合同（第一、二回疫苗总量）的1.2亿剂量。虽然有可能因取消而得不到供应，但已经取消了4000万剂。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1014.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1260.png)图片来源于网络
+发稿：信心的选择
 
-对于剩下8000万剂，政府表示约20万剂会提供地方当局供国内使用，6000万剂将作为国际捐助提供给国外。而关于取消费用的具体内容的问题时，政府表示因有签约“保密协议”，现阶段不方便公布。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-从预约的1.2亿到取消购买4000万剂，并将其6000万剂作为国际捐助提供给国外，不难看出对注射中共病毒疫苗后，各种副作用引起的后遗症已经有了明显的了解，和更多的医疗界专业人士的反疫苗的发声、注射后仍旧无法阻止感染的扩大等因素，使日本民众对注射疫苗本身产生了警惕，这不得不说是一个好的现象。而对于因注射疫苗产生的各种后遗症，将是今后每个国家面临的巨大挑战。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-4.jpeg)
 
-信息来源：[アストラゼネカ製新型コロナワクチン　政府 4,000万回分をキャンセル](https://www.fnn.jp/articles/-/345228)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
