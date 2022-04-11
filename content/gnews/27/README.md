@@ -2,33 +2,24 @@
 ---
 
 
-## 泽连斯基要求韩国向乌克兰提供军事硬件支持
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2329856/)
+## 守卫切尔诺贝利的乌克兰士兵被失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2330035/)
 
-乌克兰总统泽连斯基周一（4月11日）在向韩国立法者发表虚拟讲话时，要求提供军事硬件，以帮助乌克兰在正在进行的战争中更好地与俄罗斯作战。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S-3.jpg)ctpost.com
-泽连斯基在对韩国国民议会的虚拟讲话中说：“乌克兰需要各种军事技术，包括飞机和坦克，而韩国可以帮助乌克兰。韩国拥有可以帮助我们对抗俄罗斯的军事硬件”。
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16496996671.png)[俄罗斯撤军后切尔诺贝利核电站“疯狂”的景象让乌克兰人震惊](https://www.youtube.com/watch?v=s5DJJADTwps)
+据美国商业内幕4月11日报道，守卫切尔诺贝利核电站的169名乌克兰国民警卫队士兵，被关在地下掩体中30天。现在乌克兰政府不知道这些士兵的下落。不知是否在俄罗斯军队撤离时，把他们带到了俄罗斯。
 
-乌克兰战时总统补充说，韩国的帮助将备受赞赏，因为它不仅能拯救普通人的生命，还能拯救整个乌克兰，如果受到俄罗斯的攻击，这也可能导致拯救其他国家。
+乌克兰内政部长丹尼斯·莫纳斯基（Denys Monastyrskyy）说，自俄罗斯军队接管核电站以来，已有多份报道称俄罗斯士兵对核电站采取不负责任的态度。他们在森林里有毒的土壤中挖掘扎营。在俄罗斯士兵出现中毒症状后，撤离了核电站。
 
-迄今为止，韩国向乌克兰提供的主要是人道主义援助，采取的立场是很难用致命武器支持这个东欧国家。它已经发送了防弹头盔等物品。
+俄罗斯士兵还洗劫了该设施和乌克兰工作人员的私人财物。他们从所有乌克兰人所有的衣服和物品中寻找钱、贵重物品和电脑笔记本。“这里发生过抢劫”。俄罗斯军队偷走了实施的电脑和设备。
 
-泽连斯基还提到了1950-1953年的朝鲜战争，说韩国在国际社会的帮助下能够克服敌人的攻击。
+乌克兰士兵被关在那里30天，没有足够的照明和食物，他们不被允许外出。 在俄罗斯占领军驻扎的最后一天，169名军人被从核电站带走。他们可能被作为战俘通过白俄罗斯带到俄罗斯。
 
-“每个国家都有独立的权利，每个城市都有和平生活的权利，每个人都有不因战争而死亡的权利。而我们正在为这个（权利）而战。”他说。
+*责编：白夜*
 
-自2月24日俄罗斯入侵以来，总统实际上已在一些国家的立法机构发表讲话，包括德国、日本和美国，以争取对乌克兰的支持。
+[原文链接](https://www.businessinsider.com/ukrainian-national-guardsmen-at-chernobyl-were-locked-in-bunker-2022-4?nr_email_referer=1&amp;utm_source=Sailthru&amp;utm_medium=email&amp;utm_content=Business_Insider_select&amp;pt=385758&amp;ct=Sailthru_BI_Newsletters&amp;mt=8&amp;utm_campaign=Insider%20Select%202022-04-11&amp;utm_term=INSIDER%20SELECT%20-%20ENGAGED%2C%20ACTIVE%2C%20PASSIVE%2C%20DISENGAGED%2C%20NEW)
 
-**快评**：乌克兰战时总统泽连斯基的日常就是与各国立法者或政府开虚拟会议，呼吁国际支持。现在他又将会议开到了韩国。
 
-韩国除了人道主义援助，就是发送防弹头盔。韩国忌惮的是隔壁的朝鲜。属于邪恶轴心国的朝鲜一直用导弹威胁南边的邻居，韩国新总统昨天表态允许美国在韩国部署核潜艇，但韩国不敢向乌克兰提供“军事硬件”。
-
-昨天郭先生爆料，金家会被灭。相信到时候韩国能得重生。
-
-参考链接：
-[https://english.kyodonews.net/news/2022/04/fcb99ce4e93b-zelenskyy-asks-s-korea-to-support-ukraine-with-military-hardware.html](https://english.kyodonews.net/news/2022/04/fcb99ce4e93b-zelenskyy-asks-s-korea-to-support-ukraine-with-military-hardware.html)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

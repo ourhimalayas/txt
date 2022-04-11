@@ -2,32 +2,27 @@
 ---
 
 
-## 中共利用民众仇富心理，激化矛盾抢劫财富
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2330213/)
+## 内哈默：与普京的会谈是公开而艰难的
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2330549/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-4.png)
+**周一下午早些时候，俄罗斯总统普京在莫斯科–在新奥加廖沃的总统官邸接见了奥地利总理内哈默。会谈持续了大约一个小时。**
 
-据文贵先生4月9日盖特直播报道，近日上海、深圳、长春、郑州多地因中共严苛的疫情封锁，导致普通民众粮食紧缺，药品断供，物资严重不足，甚至饿死家中。
+作者：dpa/est/原文发布于2022年4月11日19:00(CET)
+翻译：LK
 
-但此时中共国内，网上却热传一段今日资本创始人徐新家中大晒物资的视频，当事人还戏称可以开“派对”了。视频引发民众潮水般的怒火，认为普通民众困死家中也得不到救助，而富豪家中却堆满物资是多么不公平。随后徐新迫于舆论压力删除视频并公开辟谣。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-8.jpg)图片：俄罗斯总统弗拉基米尔·普京和奥地利总理卡尔·内哈默(Mikhail Klimentyev/Stefanie Loos/Pool/Sputnik/AFP)
 
-文贵先生披露，这是中共背后操作的一场新“土改”运动。同样是利用普通人仇富心理，激化矛盾冲突，煽动仇恨暴力，最后达到自己平复民怨，抢劫富豪财富的目的。
+奥地利总理传递的最重要的信息是：这场战争必须停止，因为双方都只会是失败者。
 
-[原文链接](https://gettr.com/post/p14ekwj638b)
+“与普京总统的对话是非常直接、公开和艰难的，”内哈默说。他提到了在基辅附近布查和其他地方发生的战争罪行，并强调必须追究所犯下这些罪行的人的责任。对普京的反应目前一无所知。
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+尽管奥地利加入了欧盟，但没加入北约。内哈默解释说：“这不是一次友好的访问”。他希望 “不遗余力 ”地结束战斗，或至少为乌克兰受苦的平民取得人道主义进展。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+原文链接：[https://brf.be/international/159](https://brf.be/international/1593609/)*[3609/](https://brf.be/international/1593609/)*
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

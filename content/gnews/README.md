@@ -15,86 +15,86 @@
 
 ---
 
-### [加拿大保守党政策将利好加密货币](/content/gnews/1/README.md)
+### [BC省取消疫苗卡规定](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/2/README.md)
+### [加拿大保守党政策将利好加密货币](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [澳媒报道：两种澳大利亚制造的中共病毒疫苗进入试验阶段](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [法治基金—新中国联邦乌克兰救援](/content/gnews/3/README.md)
+### [法治基金—新中国联邦乌克兰救援](/content/gnews/4/README.md)
  ` 纽约香草山MOS03`
 
-### [灭共者之郭氏情报站（49）2022/04/10 文贵大直播](/content/gnews/4/README.md)
+### [灭共者之郭氏情报站（49）2022/04/10 文贵大直播](/content/gnews/5/README.md)
  ` MOS Designer香草山设计部`
 
-### [2021年769名运动员倒下，平均年龄23岁](/content/gnews/5/README.md)
+### [2021年769名运动员倒下，平均年龄23岁](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/6/README.md)
+### [有声|五角大楼：乌克兰士兵正在接受“弹簧刀无人机”培训](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [俄乌战争“没想到”系列之五：](/content/gnews/7/README.md)
+### [俄乌战争“没想到”系列之五：](/content/gnews/8/README.md)
  ` 蓝莲花农场`
 
-### [有声|《台湾武器出口法案》将加速美对台军售](/content/gnews/8/README.md)
+### [有声|《台湾武器出口法案》将加速美对台军售](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/9/README.md)
+### [有声|乌克兰小镇发现上百具惨遭俄军屠戮的平民遗体](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|东欧前线新中国联邦营地引发共鸣](/content/gnews/10/README.md)
+### [有声|东欧前线新中国联邦营地引发共鸣](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [中共正在国内谋划一场新的大饥荒](/content/gnews/11/README.md)
+### [中共正在国内谋划一场新的大饥荒](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|俄乌战场最新更新](/content/gnews/12/README.md)
+### [有声|俄乌战场最新更新](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|基辅斯拉夫福音神学院院长死于乌克兰布查屠杀](/content/gnews/13/README.md)
+### [有声|基辅斯拉夫福音神学院院长死于乌克兰布查屠杀](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/14/README.md)
+### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/15/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚](/content/gnews/15/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月9日晚](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/16/README.md)
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/17/README.md)
  ` 蓝莲花农场`
 
-### [有声|遭遇封控的恐慌](/content/gnews/17/README.md)
+### [有声|遭遇封控的恐慌](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [DC每日热点0411](/content/gnews/18/README.md)
+### [DC每日热点0411](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [史诗般的&#8211;彼得-多希博士冲击FDA会议，递交了他们（FDA）想要忽视的举报人的新闻报道](/content/gnews/19/README.md)
+### [史诗般的&#8211;彼得-多希博士冲击FDA会议，递交了他们（FDA）想要忽视的举报人的新闻报道](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/20/README.md)
+### [内哈默：与普京的会谈是公开而艰难的](/content/gnews/21/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共利用民众仇富心理，激化矛盾抢劫财富](/content/gnews/21/README.md)
+### [中共利用民众仇富心理，激化矛盾抢劫财富](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [五月花简报（04/11/2022）](/content/gnews/22/README.md)
+### [五月花简报（04/11/2022）](/content/gnews/23/README.md)
  ` mayflowertranslate`
 
-### [美CDC在考虑延长运输网络口罩强制令](/content/gnews/23/README.md)
+### [美CDC在考虑延长运输网络口罩强制令](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [截至4.11 俄乌战事汇总](/content/gnews/24/README.md)
+### [截至4.11 俄乌战事汇总](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/25/README.md)
+### [美国警告旅行者中共借COVID-19措施“任意”执法](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/26/README.md)
+### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [泽连斯基要求韩国向乌克兰提供军事硬件支持](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
