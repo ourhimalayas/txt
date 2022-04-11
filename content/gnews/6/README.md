@@ -2,21 +2,30 @@
 ---
 
 
-## 视频|欧盟将对俄实施新一轮更严厉经济制裁
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2325823/)
+## 中日财经爆┃伊隆•马斯克拒绝进入推特董事会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2325881/)
 
-制作：香草山视频部
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/伊隆•马斯克拒绝进入推特董事会.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fa57.foxnews.com%2Fstatic.foxbusiness.com%2Ffoxbusiness.com%2Fcontent%2Fuploads%2F2022%2F04%2F931%2F523%2FElon-Musk-Twitter-shareholders.jpg%3Fve%3D1%26tl%3D1&amp;imgrefurl=https%3A%2F%2Fwww.foxbusiness.com%)
 
-当地时间4月8日，欧盟在对俄罗斯的第五套制裁方案中，加入针对加密货币钱包、银行、货币和信托的措施，以弥补从俄罗斯将资金转移到国外的潜在漏洞。
-此前，总部设在欧盟的加密货币交易所，已经禁止了来自俄罗斯的个人交易。为堵住潜在流出资金的漏洞，欧盟将禁令扩大到加密货币钱包的存款。
-欧盟还表示，将禁止向俄罗斯和白俄罗斯出售，以欧盟成员国的任何官方货币计价的纸币，和可转让证券，如股票。并确认对包括VTB在内的四家俄罗斯银行的全面交易禁令。这些银行占俄罗斯银行业23%的市场份额。这些银行已经被切断了与SWIFT的联系，现在正被冻结资产，以完全切断它们与欧盟市场的联系。
-此外，欧盟还禁止为富有的俄罗斯人提供信托咨询，使他们更难在欧盟储存财富。
+4月10日，成为推特公司最大股东的美国特斯拉公司首席执行官伊隆•马斯克宣布，他决定不加入推特董事会。
 
-发稿：qiutian（邱甜）
+马斯克先生收购了Twitter的9.2%股份后，推特公司于4月5日宣布将提名他进入董事会，并将于4月9日正式任命。
 
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+然而，推特公司首席执行官阿格拉瓦尔先生发布的一份内部文件称，马斯克先生在当天上午通知他不打算加入董事会。
+
+信息来源： 
+[マスク氏、ツイッター取締役就任を取りやめ（ロイター） – Yahoo!ニュース](マスク氏、ツイッター取締役就任を取りやめ)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

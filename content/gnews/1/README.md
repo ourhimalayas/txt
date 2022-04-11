@@ -2,30 +2,37 @@
 ---
 
 
-## 中日财经爆┃伊隆•马斯克拒绝进入推特董事会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2325881/)
+## 鲍里斯-约翰逊前往乌克兰会见泽伦斯基
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2325991/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/伊隆•马斯克拒绝进入推特董事会.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fa57.foxnews.com%2Fstatic.foxbusiness.com%2Ffoxbusiness.com%2Fcontent%2Fuploads%2F2022%2F04%2F931%2F523%2FElon-Musk-Twitter-shareholders.jpg%3Fve%3D1%26tl%3D1&amp;imgrefurl=https%3A%2F%2Fwww.foxbusiness.com%)
+据《零对冲》作者：TYLER DURDEN，2022年4月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1210.png)图片来源：CNN
+英国首相鲍里斯-约翰逊周六出现在乌克兰首都，在政府门户发布的照片中首次公开这次大胆的突然访问，照片显示他与总统沃洛迪米尔-泽伦斯基的面对面会谈。
 
-4月10日，成为推特公司最大股东的美国特斯拉公司首席执行官伊隆•马斯克宣布，他决定不加入推特董事会。
+泽伦斯基的办公室在Facebook上证实他和约翰逊会面。一份声明表示：“现在鲍里斯-约翰逊对基辅的访问以与泽伦斯基总统的四人会谈开始。英国是国防支持乌克兰的领导者。反战联盟中的领导者。对俄罗斯侵略者进行制裁的领导者。”
 
-马斯克先生收购了Twitter的9.2%股份后，推特公司于4月5日宣布将提名他进入董事会，并将于4月9日正式任命。
+泽伦斯基在自己的社交媒体上发帖披露了这次会面，称约翰逊是“反对俄罗斯入侵的最有原则的人之一”，是“制裁压力的领导者”。
 
-然而，推特公司首席执行官阿格拉瓦尔先生发布的一份内部文件称，马斯克先生在当天上午通知他不打算加入董事会。
+而英国驻乌克兰大使馆发布了一张两位领导人在一个小房间里进行讨论的图片，上面写着“惊喜”二字。
 
-信息来源： 
-[マスク氏、ツイッター取締役就任を取りやめ（ロイター） – Yahoo!ニュース](マスク氏、ツイッター取締役就任を取りやめ)
+英国首相办公室说，约翰逊亲自前往那里，即使是在发生重大战争的时候，也是为了表示“对乌克兰人民的声援”。声明进一步透露：“他们将讨论英国对乌克兰的长期支持，首相将提出新的财政和军事援助方案。”
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+此前一天，欧盟委员会主席乌苏拉-冯德莱恩和欧盟委员会副主席何塞普-博雷尔-丰特列斯在乌克兰境内与泽伦斯基会面，甚至还进行了某种程度的战场参观。
+
+周四，在布鲁塞尔北约总部举行的联盟外长会议上，美国和英国带头达成了一项新的协议，向乌克兰提供“新的和更重的”武器，此时，捷克提供的数量有限的苏联设计的T-72M坦克已经被转移到基辅——据说得到了华盛顿的悄悄援助。
+
+英国外交大臣利兹-特拉斯在一次新闻发布会上说：“有人支持各国向乌克兰提供新的和更重的装备，以便他们能够应对来自俄罗斯的这些新威胁。”看来约翰逊的会议很可能与泽伦斯基准确地讨论了英国准备转让哪些额外的武器。
+
+原文连接：[**https://www.zerohedge.com/geopolitical/boris-johnson-makes-surprise-trip-war-torn-ukraine-zelensky-meeting**](https://www.zerohedge.com/geopolitical/boris-johnson-makes-surprise-trip-war-torn-ukraine-zelensky-meeting)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
