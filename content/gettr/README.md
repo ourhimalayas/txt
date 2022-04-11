@@ -17,6 +17,32 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 4:50 PM (UTC)`
+
+4月11号：天赐新中国联邦【封锁时间：21天<br/>资产阶层：亿级<br/>教育程度：硕士-博士<br/>行业：金融、房地产<br/>城市：上海<br/>政治意识：大多数声音还是觉得要和美国干🤦‍♀️，认为习的方法太蠢，有更聪明的办法,  应该有两种声音。他们乐见全球供应链崩塌，美元崩塌😡<br/><br/>对“清零政策”看法：这帮人都比老百姓预先储备了更多的粮食，也有特殊渠道买到东西，他们还没有挨饿的感受，只是生活不自由，原来享受的物质生活有打折，公司收入下降。<br/><br/>恐惧指数：3级，害怕邻居感染，影响自己，或者被邻居举报，意识到以往的学历财富不能保护自己了。<br/><br/>希望指数：9级，认为习的清零政策证明无效而且愚蠢，没达到大量消灭人口的目的，还聚集了怨气，肯定很快放弃，马上就会解封了<br/><br/>灭共第七人真的只能靠习加速师🌞吗？七哥您就牵着牛鼻子🐮继续吧。】
+![img](https://media.gettr.com/group3/getter/2022/04/11/16/38d90704-ebcc-8ae3-08de-23c81e9e360d/1c7fff4d91567e26c5d6400ba3f5e0f5.jpg)
+
+---
+
+`@miles 4/11/2022 4:47 PM (UTC)`
+
+04/11/2022 on the 8th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on New Zealand 🇳🇿, Singapore 🇸🇬, Cambodia 🇰🇭, Malta 🇲🇹 Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Mongolia 🇲🇳, Fiji 🇫🇯 , Spain 🇪🇸, Germany 🇩🇪 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 , Malta 🇲🇹 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts and Rock Song Charts<br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Fiji, Laos, Spain, Malta, Germany 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2329340/<br/>
+
+---
+
+`@miles 4/11/2022 4:42 PM (UTC)`
+
+4月11号, 郭文贵先生两首新歌上线第八天<br/>《灭共的雪》登榜iTunes<br/>新西兰🇳🇿，新加坡🇸🇬，柬埔寨 🇰🇭， 马耳他 🇲🇹 热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/>澳大利亚 🇦🇺， 蒙古🇲🇳，斐济🇫🇯， 西班牙 🇪🇸， 德国 🇩🇪 摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭， 马耳他 🇲🇹热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/>新西兰 🇳🇿， 新加坡 🇸🇬 流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/>西班牙 🇪🇸摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，斐济，老挝，马耳他， 西班牙， 德国的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2329339/<br/>
+
+---
+
+`@miles 4/11/2022 4:41 PM (UTC)`
+
+ 4月11号：一切都在行动中，
+![img](https://media.gettr.com/group37/getter/2022/04/11/16/63a189c1-d9b5-7db5-4266-a836e27cfc17/out.jpg)
+
+---
+
 `@miles 4/11/2022 3:50 PM (UTC)`
 
 Wenyao had an interview with American Public Service Media. She said that the Chinese Communist Party (CCP) doesn’t represent the Chinese people and the Chinese people don’t agree with this war. She introduced Mr. Miles Guo and his arduous effort to tell the world about the truth of what evil things the CCP has done to the world. When asked about her experience with helping refugees, she told the story of two old ladies who reached the rescue base by walking 60 kilometers from Ukraine, and emphasized that taking down the CCP is the only way to end this disaster.<br/>文耀接受美国公共服务媒体采访。她说中国共产党不代表中国人，中国人不同意这场战争。她介绍了郭文贵先生以及他竭尽全力告诉世界中共对世界所做的邪恶事情的真相。当问到她关于营救难民的经历，她讲述了两位老奶奶从乌克兰步行60公里到达救援基地的事，并强调只有灭共才是结束这场灾难的唯一方式。
@@ -126,34 +152,6 @@ MILES GUO's livestream 2022-04-1165t 试试直播
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group5/origin/2022/04/11/04/f219a053-013a-3e39-51b7-7fc0e57d871f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 4:13 AM (UTC)`
-
-4/10/2022 Miles Guo: The CCP is ordering Shanghai, Guangzhou, Shenzhen, Zhengzhou, and Changchun to be prepared for the death of 1 in 5,000 people or 1 in 2,500 people. Officials from other provinces delivering food to Shanghai were soon arrested, and the officials in 21 cities will be removed from their offices right away if they violate the CCP's political rules. Xi seeks to starve the Chinese, and people in Hong Kong, Shanghai, Guangzhou, Shenzhen, and Beijing will be miserable!<br/><br/><br/>4/10/2022 文贵直播：中共要求上海、广州、深圳、郑州和长春为死掉5000分之一或2500分之一的人做准备；外省为上海送食品的官员很快被抓，21个城市的官员若违反中共政治规定会被就地免职；习要让中国人挨饿，香港、上海、广州、深圳和北京会很惨！<br/>
-![img](https://media.gettr.com/group28/getter/2022/04/11/04/f995d279-cbea-2aab-0f5b-e5cd2d443811/out.jpg)
-
----
-
-`@miles 4/11/2022 4:06 AM (UTC)`
-
-4/10/2022 Miles Guo: Xi seeks to create economic disasters in the world by taking over Hong Kong, Taiwan, and the oil in the Middle East such that Xi can pit Communist China against the West in the competition of fasting to see which party can outlast the other. The deaths caused by the virus, the COVID vaccine disaster, and the Nucleic Acid tests are all under Xi’s control according to his plan. Xi is going to blame the Chinese people for all the disasters, and Xi is running the “social stress test” to increase the Lao Baixing’s capabilities to withstand adversities so that the CCP can confront the US.<br/><br/>4/10/2022 文贵直播：习妄图通过拿下港台和中东原油制造世界经济灾难，从而让中共国跟西方玩谁能挨饿的游戏；病毒、疫苗灾难和核酸检测及其造成的死亡都在习的计划之中，习要把所有的灾难都甩锅给中国人，并通过“社会压力测试”增加老百姓的承受能力进而对抗美国<br/>
-![img](https://media.gettr.com/group48/getter/2022/04/11/04/c50e1469-0561-3213-8a0c-43681d452132/out.jpg)
-
----
-
-`@miles 4/11/2022 2:59 AM (UTC)`
-
-4/10/2022 Miles Guo: After taking power in 2012, Xi has got rid of his political opponents, oligarchs, and influential people in society via anti-corruption campaigns. He has become a dictator by establishing the National Security Commission in place of the Politburo Standing Committee. He has allied with various dictatorial regimes worldwide to create an axis alliance of totalitarianism, and meanwhile Xi has taken control of the energy countries in the Middle East and is helping Putin expand westward by invading Ukraine.<br/><br/>4/10/2022 文贵直播：习在2012年上台后用反腐除掉政敌、寡头和社会有影响力的人士，废常委立国安委当独裁者，在国际上拉拢各个独裁政权以打造极权轴心同盟，同时拿下中东能源国家，协助普京打乌克兰向西扩张<br/>
-![img](https://media.gettr.com/group35/getter/2022/04/11/02/f05d0121-bcb0-1531-8e2c-a6ff736a0b45/out.jpg)
-
----
-
-`@miles 4/11/2022 2:22 AM (UTC)`
-
-4/10/2022 Miles Guo: Xi's purpose of leaving the Chinese people without electricity, water, fridges, and food is to test how the people would react in an extreme war scenario, and the CCP would even go so far as to reduce its $15 trillion GDP to $5 trillion. Finally, the CCP is going to create economic catastrophes to take out the US dollar!<br/><br/>4/10/2022 文贵直播：习让中国人没电、没水、没冰箱、没食品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿；中共最终要制造经济灾难从而干掉美元！
-![img](https://media.gettr.com/group37/getter/2022/04/11/02/b7a9047a-6159-d2f8-ec0a-1355f65c92c9/out.jpg)
 
 ---
 
