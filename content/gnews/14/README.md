@@ -2,36 +2,35 @@
 ---
 
 
-## 标普降级，俄罗斯或面临历史性违约
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2325904/)
+## 悉尼仓库查获加密货币ATM机、非法毒品和大量美元现金
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326019/)
 
-撰稿：Gradient Boost
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/105.jpg)图片来自网络
-信用评级机构标准普尔下调了对俄罗斯偿还外债能力的评估，预示莫斯科将很快可能出现一个多世纪以来首次的外部贷款违约。
+翻译/编辑：小红帽
 
-标准普尔全球评级在周五晚些时候将俄罗斯下调至“选择性违约”，此前俄罗斯安排在周一以美元支付外国债券时以卢布支付。它表示，预计俄罗斯无法在规定的 30 天宽限期内将卢布兑换成美元。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/5b0e90c70ea7fd0ef516b114744cabd6454803f6.jpg)图片来源：www.geraldtonguardian.com.au
 
-标准普尔在一份声明中表示，其决定部分是由于机构认为针对俄罗斯入侵乌克兰的制裁“可能会在未来几周内进一步增加”，从而“阻碍俄罗斯履行其义务条款的技术能力以及意愿”。标准普尔的一位发言人表示，“选择性违约”评级是指贷方在特定付款上违约，但在其他方面仍能按时付款。
 
-尽管俄罗斯已表示仍愿意偿还债务，但克里姆林宫也警告，如果其海外外币账户仍被冻结，它将以卢布偿还债务。由于俄罗斯在军事占领布查期间杀害平民，本周针对俄罗斯的制裁持续加强，目前俄罗斯已被禁止使用美国银行持有的任何外汇储备偿还债务。
+根据9新闻4月10日报道，澳大利亚警察对悉尼的一次洗钱行动进行了重大的打击，在该市内南部查获了大约470万美元的现金、非法毒品和一些加密货币自动提款机。
 
-俄罗斯财政部周三表示，它试图向一家美国银行支付 6.49 亿美元的两笔债券，但由于收紧的制裁措施无法接受这笔款项，因此它以卢布支付。西方制裁严重挤压了俄罗斯的经济，标准普尔和其他评级机构已经将其债务评级下调至“垃圾”级别，认为违约的可能性很大。自 1917 年苏联出现布尔什维克革命以来，该国还没有出现国外债违约。即使在 1990 年代后期，苏联解体后，俄罗斯也能够在国际援助的帮助下继续偿还外债。
+三名男子于周五被捕，在此之前，警方搜查了Mascot市Gardeners路的两个单元和Kingsgrove的一个存储单元，找到了这些现金以及点钞机、手机、笔记本电脑和三台加密货币自动取款机。
 
-*编辑：Gradient Boost*
+另外，警方还查获了5公斤违禁毒品，包括海洛因、甲基苯丙胺和可卡因。
 
-*发稿：mgjxs*
+两名男子的年龄分别为34岁和39岁，被发现身上有价值超过150,000美元的现金，其中一名男子携带了13个信封的毒品。
 
-新闻参考链接：[AP News](https://apnews.com/article/russia-ukraine-business-europe-economy-foreign-debt-572b9a32691739fb6322fba4c301d9f1)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+这三名男子随后被带到马斯科特警察局，被指控犯有多项刑事和洗钱罪。
 
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+资料来源：[Crypto ATMs, illicit drugs and $4.7 million cash seized in Sydney warehouse](https://www.9news.com.au/national/sydney-drug-and-crypto-bust-millions-seized-in-money-laundering/64a52da9-e412-43d3-af56-a9ca905750a3)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

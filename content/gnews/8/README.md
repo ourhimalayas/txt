@@ -2,37 +2,63 @@
 ---
 
 
-## 鲍里斯-约翰逊前往乌克兰会见泽伦斯基
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2325991/)
+## COVID-19疫苗副作用集萃（2022.4.11）–新冠疫苗副作用综合征
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2326038/)
 
-据《零对冲》作者：TYLER DURDEN，2022年4月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1210.png)图片来源：CNN
-英国首相鲍里斯-约翰逊周六出现在乌克兰首都，在政府门户发布的照片中首次公开这次大胆的突然访问，照片显示他与总统沃洛迪米尔-泽伦斯基的面对面会谈。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-泽伦斯基的办公室在Facebook上证实他和约翰逊会面。一份声明表示：“现在鲍里斯-约翰逊对基辅的访问以与泽伦斯基总统的四人会谈开始。英国是国防支持乌克兰的领导者。反战联盟中的领导者。对俄罗斯侵略者进行制裁的领导者。”
+整理/编辑：gardeniahu
 
-泽伦斯基在自己的社交媒体上发帖披露了这次会面，称约翰逊是“反对俄罗斯入侵的最有原则的人之一”，是“制裁压力的领导者”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-16.png)图片来源：雅典娜设计组(614)
 
-而英国驻乌克兰大使馆发布了一张两位领导人在一个小房间里进行讨论的图片，上面写着“惊喜”二字。
 
-英国首相办公室说，约翰逊亲自前往那里，即使是在发生重大战争的时候，也是为了表示“对乌克兰人民的声援”。声明进一步透露：“他们将讨论英国对乌克兰的长期支持，首相将提出新的财政和军事援助方案。”
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-此前一天，欧盟委员会主席乌苏拉-冯德莱恩和欧盟委员会副主席何塞普-博雷尔-丰特列斯在乌克兰境内与泽伦斯基会面，甚至还进行了某种程度的战场参观。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-周四，在布鲁塞尔北约总部举行的联盟外长会议上，美国和英国带头达成了一项新的协议，向乌克兰提供“新的和更重的”武器，此时，捷克提供的数量有限的苏联设计的T-72M坦克已经被转移到基辅——据说得到了华盛顿的悄悄援助。
+原文博主：王贝果和张多娜
 
-英国外交大臣利兹-特拉斯在一次新闻发布会上说：“有人支持各国向乌克兰提供新的和更重的装备，以便他们能够应对来自俄罗斯的这些新威胁。”看来约翰逊的会议很可能与泽伦斯基准确地讨论了英国准备转让哪些额外的武器。
+帖子原文：
 
-原文连接：[**https://www.zerohedge.com/geopolitical/boris-johnson-makes-surprise-trip-war-torn-ukraine-zelensky-meeting**](https://www.zerohedge.com/geopolitical/boris-johnson-makes-surprise-trip-war-torn-ukraine-zelensky-meeting)
+**疫情|新冠疫苗副作用   新冠疫苗副作用综合征**
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+辉瑞第三针副作用
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+周五一下班就跑去了打booster。
+
+打针的时候护士小姐姐还问我前两针打完怎么样我还说没有反应。
+
+事实证明这种话不能乱说。
+
+Day1 6：30pm打完，打的时候能feel到药水注射进我的肌肉，是三次里最痛的一次后来一切都正常，晚上回家烤和牛补补，可能也因为是第三次了没太在意了，没有大量喝水和吃维生素；凌晨3点嗓子干痛到醒来，像刀割一样痛。
+
+Day2 早上起来嗓子还是很疼，鼻子酸，整条手臂很酸，头一点点晕，因为嗓子疼不是common side effect,更像是covid,所以做了个rapid test是 negative;然后开始发烧，怕冷，吃了颗panadol退烧就出门了，感觉都还好；晚上再吃颗panadol出门吃晚饭，就感觉panadol已经不好使了，头很晕，耳朵像感冒那样蒙了层东西，听别人说话很吃力，怕晚上回到家洗热水澡后打喷嚏，开始了重感冒。
+
+Day3（今天）基本不发烧了，嗓子也不疼了，但是打针那边手臂的腋下肿了，而且特别酸痛，整个人头很重，乏力，有鼻音，耳朵比昨天还严重，还是怕冷，完全变成了重感冒的样子，今天基本睡了一天，坐起来头就难受。
+
+虽然病成这样，但是食欲特别好，怎么吃都吃不饱，一个广东人今晚干了一大盆东北酸菜。
+
+明天请了病假，继续睡觉一天。
+
+#辉瑞第三针 #辉瑞疫苗副作用 #墨尔本留学
+
+发布于03.20
+
+精选评论
+
+王贝果和张多娜 回复:好像是可以的，现在没什么人打
+
+饼饼    回复：我症状和你一模一样哎。感觉有些人得了新冠也未必这样大症状。你几天了。好了没？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1212.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1213.png)图片来源：小红书
+参考链接：[辉瑞第三针副作用](https://www.xiaohongshu.com/discovery/item/6236f74f000000000102b91f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649521201)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

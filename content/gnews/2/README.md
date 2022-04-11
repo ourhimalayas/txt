@@ -2,35 +2,24 @@
 ---
 
 
-## 悉尼仓库查获加密货币ATM机、非法毒品和大量美元现金
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326019/)
+## 视频|投资女王求购面包 上海粮荒人人自危
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2326063/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+制作：香草山视频部
 
-翻译/编辑：小红帽
+当地时间4月7日，”今日资本”创始人徐新的微信截图在中共国内社交网络上流传。被称为风投女王的徐新，住在浦东价值数千万元的豪宅里，却在社区微信群里求购面包和牛奶。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/5b0e90c70ea7fd0ef516b114744cabd6454803f6.jpg)图片来源：www.geraldtonguardian.com.au
+据悉，徐新所创立的”今日资本”投资过京东、美团、携程、知乎、网易、永辉超市、叮咚买菜等多个知名项目。截图传出仅一小时，徐新本人发布了朋友圈，证实了之前求助信息的真实性，并宣布事情已经得以圆满解决。
 
+随着中共病毒在上海的持续蔓延，上海市民无分高低贫富，均遭受了物资短缺的困扰。中共上海政府对紧急事态的管理过于简单粗暴，封城期限一再延长，使得大多数的上海人面临物资匮乏，一日三餐等基本的生活条件，都无法得到保障。次生灾难和人道主义危机正在上海这座国际化大都市悄然发生。
 
-根据9新闻4月10日报道，澳大利亚警察对悉尼的一次洗钱行动进行了重大的打击，在该市内南部查获了大约470万美元的现金、非法毒品和一些加密货币自动提款机。
+据郭文贵先生4月9日的盖特视频揭露，中共刻意纵容富豪徐新获得生活补给的视频在中共网络大肆传播，旨在进一步制造富豪与平民阶层的仇恨，宣扬富豪阶层的特权，进一步为习近平独裁核心大搞“均贫富”、掠夺民间资本的行为制造舆情基础。
 
-三名男子于周五被捕，在此之前，警方搜查了Mascot市Gardeners路的两个单元和Kingsgrove的一个存储单元，找到了这些现金以及点钞机、手机、笔记本电脑和三台加密货币自动取款机。
+发稿：林礼
 
-另外，警方还查获了5公斤违禁毒品，包括海洛因、甲基苯丙胺和可卡因。
-
-两名男子的年龄分别为34岁和39岁，被发现身上有价值超过150,000美元的现金，其中一名男子携带了13个信封的毒品。
-
-这三名男子随后被带到马斯科特警察局，被指控犯有多项刑事和洗钱罪。
-
-资料来源：[Crypto ATMs, illicit drugs and $4.7 million cash seized in Sydney warehouse](https://www.9news.com.au/national/sydney-drug-and-crypto-bust-millions-seized-in-money-laundering/64a52da9-e412-43d3-af56-a9ca905750a3)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,79 +2,28 @@
 ---
 
 
-## 雅培州长谈 GIGA德克萨斯的盛大开幕
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2325914/)
+## 视频|东欧前线新中国联邦营地引发共鸣
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2326023/)
 
-Greg Abbott (Governor of Texas)
-格雷格·雅培（德克萨斯州州长）
+制作：香草山视频部
 
-Well listen, this adds to what we’ve been working on for years now
-好吧，听着，这多亏了我们多年来的工作
+近日，新中国联邦在波兰前线梅迪卡对乌克兰战争难民的救援引起了国际社会的广泛关注。这是脱离中共奴役的中国人首次大规模参与西方世界的救援行动。
 
-And it makes Texas the home of innovation
-它（特斯拉）使德克萨斯州成为创新之乡
+新中国联邦在梅迪卡前线搭起的大帐篷以及里面的NFSC现磨咖啡，儿童玩耍区等，引起周围来往人群的喜爱。前线除了难民，各国的媒体工作者也都前来采访和报道。我们印有灭共标识的马甲、气球等物品，得到了拥有相同理念的人们的普遍认同。新中国联邦人异于中共治下的中国人的表现，令他们耳目一新。
 
-But I want to give you an explanation of why this happened
-但我想解释一下为什么这个会发生
+日本的一家电视台最初采访前线战友时，是心存芥蒂的。在了解了我们是灭共的新中国联邦人时，才放下戒心并对战友进行深入采访。
 
-It was two years ago this month
-那是两年前的这个月
+另有来自德国的志愿者，主动向前线战友表达了善意和支持，他认为，中共的恶行导致其必然被消灭，灭共有利于中国人的未来发展。
 
-Elon and I began talking about all this project
-伊隆和我开始谈论这个项目
+一位来自波兰的志愿者，看到我们的新中国联邦宣言，他用翻译器来阅读，他说波兰也经历过推翻共产主义的过程，只是现在中国共产党联合那些达沃斯精英一起来危害世界，他支持全世界联合起来推翻共产党以及这些邪恶组织。
 
-and they kind of finalized what they wanted to do
-并且他们最终确定了他们想做的事情
+新中国联邦在梅迪卡的营地，每天除了妥善安置到访的难民外，更承扮演着新中国联邦与国际世界广泛交流的平台。东欧人民曾饱经共产主义的迫害，新中国联邦所倡导的灭共宗旨在当地引发了广泛共鸣。
 
-in around June, less than two years ago
-大约在不到两年前的6月份左右
+发稿：林礼
 
-and a need that Elon had was speed
-而且埃隆的需求是速度
-
-He does everything fast
-他做如何事情都很快
-
-and this would have taken five maybe 10 years to accomplish in California
-而这种事情在加利福尼亚需要5到10年才能完成
-
-I’ll tell them that Texas moves at the speed of business
-我会告诉他们德克萨斯州的发展是与商业发展的同样快
-
-He was able to complete a mile long Gigafactory in a year and a half
-他能够在一年半内完成一英里长的超级工厂
-
-That is unheard of, probably not replicable in any other state
-那是闻所未闻的, 可能无法在任何其他州复制
-
-We accelerate the permitting process
-我们加快了许可的程序
-
-so that projects like this can break ground can be finished
-这样使这个项目破土动工，并迅速完成
-
-faster than any other state in the United States
-比美国任何其他州都快的多
-
-* * *
-
-Date:04/09/2022
-原视频标题: Governor Abbott On GIGA Texas’ Grand Opening
-雅培州长谈 GIGA德克萨斯的盛大开幕
-原视频日期：2022/04/09
-原视频链接**[https://twitter.com/gregabbott\_tx/status/1512172183359004679?s=24](https://twitter.com/gregabbott_tx/status/1512172183359004679?s=24)**
-任务编号：KE475（4214）
-视频时间段 : 0:00-0:51
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

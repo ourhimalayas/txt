@@ -2,37 +2,24 @@
 ---
 
 
-## 新南威尔士州巴士司机罢工24小时
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2326009/)
+## 视频|上海地区高速路出入口被封
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2326055/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+制作：香草山视频部
 
-翻译/编辑：小红帽
+4月8日前后，中共以疫情为由将上海本地、以及出入上海的多条高速入口和出口实施封堵。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/og.jpg)图片来源：https://caportal.com.au/tfnsw/tiip
+近日，中共在上海发动了大防疫运动，处处设置关卡，禁止随意出入。老百姓被困在家中已经长达一个月。从网络上传出的小视频中，很多老百姓家中没粮，快被饿死。所谓的防疫运动小组大都由居委会组成，不仅不解决食物供给，并且随意殴打需要出入的百姓。
 
+笔者随意打开一个地图应用程序，可以看到上海地区周围高速路口密密麻麻的封禁符号。平常大卡车每天都会运送物资，可以保证物资供应正常运行。中共以疫情为名堵路，高速路上行驶的大卡车被困在路上，司机下到休息区就要强制隔离。很多想要为上海运送物资的卡车会被堵在路上，运送到的物资居委会也不会发放，等着烂掉。
 
-根据澳洲媒体4月11日报道，由于公交车司机开始了24小时罢工，澳大利亚新南威尔士州的通勤者早上的通勤时间有所延误。
+据某供应商反馈，上海大的物资集散地被封，又由于各地不同的防疫规定，办车证，做核酸、卡司机，来来回回和当地政府进行消耗战，一车一车的物资烂掉也到不了老百姓手里。
 
-运输工人工会，铁路，电车和公共汽车工会的司机从周一午夜后开始24 小时罢工，要求获得公平的报酬和更好的工作条件。
+发稿：林礼
 
-虽然悉尼将首当其冲，但悉尼以外的地区也将受到影响，包括 Hunter Region、Lake Macquarie、Blue Mountains、Central Coast 和 Queanbeyan。
-
-澳大利亚工会委员会秘书Sally McManus表示，工人们感到沮丧，因为工资跟不上生活成本。“你所看到的采取罢工行动的人都是一线工人，无论护士、教师还是运输工人，今天也是如此。”
-
-“由于通货膨胀和工资没有上涨，人们现在不得不真的削减开支。人们只有在不得已的情况下，才采取罢工行动。不幸的是，这就是现在的情况。”
-
-McManus说，随着这个问题在八年来不断升级，很多家庭发现生活“艰难”。新南威尔士州政府应该做出回应，确保一线工人的生活不会倒退。
-
-资料来源：[NSW commuters facing chaos as bus drivers strike for 24 hours](https://www.news.com.au/national/nsw-act/news/nsw-commuters-facing-chaos-as-bus-drivers-strike-for-24-hours/news-story/8fdd283f1fd46ca203e5690cd4622ffb)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
