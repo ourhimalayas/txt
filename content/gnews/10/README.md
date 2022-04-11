@@ -2,8 +2,8 @@
 ---
 
 
-## 习二把阳间变阴间
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325274/)
+## 除非中共打台湾不然美国不会开战
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2325310/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WE

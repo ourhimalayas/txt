@@ -2,30 +2,47 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2324974/)
+## 外国投资者恐慌性抛售中共国债券
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2325183/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1198.png) (图源：ANI亚洲新闻国际)
+亚洲新闻国际(ANI)2022年4月9日北京报道，三月份外国投资者减持中共国债券超过150亿美元，创历史新高，也是单月撤离中国的最大规模。 这是外国投资者连续第二个月抛售中共国债券。据《华尔街日报》周五报道，根据市场研究收集的数据，从中共国大规模撤资的情况在四月份将会继续。
+
+根据该报道，分析师认为投资者抛售的可能因素包括对投资中共国的地缘政治风险的担忧，更广泛的经济不确定性，以及中国市场相对于美国债券的收益率优势正在减弱。 三月份，国际投资者还通过香港市场从中国在岸股票中撤资超过 70 亿美元。
+
+在西方国家对俄罗斯实施严厉经济制裁后，一些国际基金经理对持有中共国资产感到担忧。此外，随着俄罗斯在美国、日本和欧洲的资产被有效冻结，俄罗斯中央银行可能会减持中共国债券以筹集现金和偿还外债。
+
+这次出逃值得注意，因为在之前的市场压力事件中，包括中共病毒疫情，以及与美国的贸易战中，中共当局都避免了重大的资金外流。
+
+此外，由于美国和中共央行的货币政策走向相反的方向，使中共国基准债券和美国国债之间的收益率差距几乎消失，全球的基金已开始减少购买中共国债券。
+
+金融数据机构FactSet的数据显示，截至周四，中共国主权债券相对于美国同类债券的额外收益率已降至 0.12 个百分点。 2021年，中国主权债券比美国同类债券多出2个百分点。
+
+“中国中央国债登记结算有限责任公司”(CCDC)周五公布的数据显示，三月份境外机构投资者连续第二个月减持中国银行间债券，规模达到62亿美元；持有中共国政府债券的规模为81亿美元，创历史最高月度流出。
+
+中国是全球第二大债券市场，外国投资者持有中国债券约5610亿美元，总体而言，三月份的撤资规模较小。但随着俄乌战争导致的全球经济衰退的恶化，中国投资的逃离还将继续。
+
+简评：由于中美利差收窄、中美货币政策背道而驰以及俄乌战争等原因，国际债券投资者已经开始转向更为避险的立场，偏爱美国国债等已开发市场的债券。相比中共国国债，中共国的企业债更加令人失望。在过去一年中，尤其是去年夏天中国恒大陷入财务困境之后，中共国房地产开发商的美元债违约事件一直在持续发生，投资者已经无法信任这些公司会信守承诺，对其披露资讯的透明度和真实性，全都表示怀疑。对中共来说，持续大力吸引外资非常重要，但目前的负面消息实在是太多了。种种迹象显示，在外国投资者屡遭重创而信心大失的情况下，中共今年要实现“稳外资”的目标，难度非常之大。就像很多分析所说的，信任的建立需要时间，但是破坏只需要一步，一旦这种信任被打破，就几乎不可能修复。中共政权的垮塌将随着外国投资者信心的丧失和中共经济的崩溃很快到来。
+
+新闻链接：
+
+[https://www.aninews.in/news/world/asia/panic-selling-of-chinese-bonds-by-foreign-investors20220409192153/](https://www.aninews.in/news/world/asia/panic-selling-of-chinese-bonds-by-foreign-investors20220409192153/)
+
+翻译/简评：xiaofeimao
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-校对：Stay文苑
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-发稿：Stay文苑
 
-新闻：[https://gettr.com/post/p14lrab6a7a](https://gettr.com/post/p14lrab6a7a)
-访谈：[https://gettr.com/post/p14m4oy50cc](https://gettr.com/post/p14m4oy50cc)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-8.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

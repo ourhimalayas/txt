@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/11/2022 4:13 AM (UTC)`
+
+4/10/2022 Miles Guo: The CCP is ordering Shanghai, Guangzhou, Shenzhen, Zhengzhou, and Changchun to be prepared for the death of 1 in 5,000 people or 1 in 2,500 people. Officials from other provinces delivering food to Shanghai were soon arrested, and the officials in 21 cities will be removed from their offices right away if they violate the CCP's political rules. Xi seeks to starve the Chinese, and people in Hong Kong, Shanghai, Guangzhou, Shenzhen, and Beijing will be miserable!<br/><br/><br/>4/10/2022 文贵直播：中共要求上海、广州、深圳、郑州和长春为死掉5000分之一或2500分之一的人做准备；外省为上海送食品的官员很快被抓，21个城市的官员若违反中共政治规定会被就地免职；习要让中国人挨饿，香港、上海、广州、深圳和北京会很惨！<br/>
+![img](https://media.gettr.com/group28/getter/2022/04/11/04/f995d279-cbea-2aab-0f5b-e5cd2d443811/out.jpg)
+
+---
+
 `@miles 4/11/2022 4:06 AM (UTC)`
 
 4/10/2022 Miles Guo: Xi seeks to create economic disasters in the world by taking over Hong Kong, Taiwan, and the oil in the Middle East such that Xi can pit Communist China against the West in the competition of fasting to see which party can outlast the other. The deaths caused by the virus, the COVID vaccine disaster, and the Nucleic Acid tests are all under Xi’s control according to his plan. Xi is going to blame the Chinese people for all the disasters, and Xi is running the “social stress test” to increase the Lao Baixing’s capabilities to withstand adversities so that the CCP can confront the US.<br/><br/>4/10/2022 文贵直播：习妄图通过拿下港台和中东原油制造世界经济灾难，从而让中共国跟西方玩谁能挨饿的游戏；病毒、疫苗灾难和核酸检测及其造成的死亡都在习的计划之中，习要把所有的灾难都甩锅给中国人，并通过“社会压力测试”增加老百姓的承受能力进而对抗美国<br/>
@@ -145,12 +152,6 @@
 `@miles 4/10/2022 1:50 PM (UTC)`
 
 04/010/2022 on the 7th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on 4 Countries Rock Song Charts<br/>#3🥉 on 4 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Top Song Charts<br/>#3🥉on Mongolia 🇲🇳 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Rock Song Charts<br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>https://gnews.org/2322043/<br/><br/>Global iTunes Ranking Record of Week 1:<br/><br/>https://gnews.org/2322171/<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Armenia, Fiji, Laos, Turkey 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 4/10/2022 1:45 PM (UTC)`
-
-4月10号, 郭文贵先生两首新歌上线第七天<br/>《灭共的雪》登榜iTunes<br/>台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>香港🇭🇰， 新西兰🇳🇿，澳大利亚 🇦🇺，柬埔寨🇰🇭摇滚榜第二名🥈<br/>蒙古🇲🇳，土耳其🇹🇷，亚美尼亚🇦🇲，斐济🇫🇯摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第三名🥉<br/>蒙古 🇲🇳流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第一名🥇<br/>老挝🇱🇦摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>https://gnews.org/zh-hans/2322042/<br/><br/>第一周全球打榜全记录：<br/><br/>https://gnews.org/zh-hans/2322170/<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，亚美尼亚，斐济，老挝，土耳其的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/>
 
 ---
 

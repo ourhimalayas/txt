@@ -15,80 +15,80 @@
 
 ---
 
-### [大陆民众：不信官媒积极囤粮](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
-
-### [上海一市民怒斥防疫措施 称现在还不如文革时期](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [所有的问题都是自己的问题](/content/gnews/3/README.md)
+### [大直播后记：面对当前灾难的应对方法](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系](/content/gnews/4/README.md)
+### [风林往事——悲鸣的孤雁](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [COVID-19疫苗副作用集萃（2022.4.11）–新冠疫苗副作用综合征](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [4/11/2022 银河快讯：岸田首相解释为乌克兰难民提供3亿美元财政援助；日本每天入境人数将提高至10,000](/content/gnews/4/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [大陆民众：不信官媒积极囤粮](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [上海一市民怒斥防疫措施 称现在还不如文革时期](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [所有的问题都是自己的问题](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [参议员卢比奥：台湾关系法和六项保证继续定义着美国和我们的民主盟友台湾的关系](/content/gnews/8/README.md)
  ` 美国政要直译推`
 
-### [克拉马托尔斯克火车站的致命导弹袭击造成50多平民死亡](/content/gnews/5/README.md)
+### [克拉马托尔斯克火车站的致命导弹袭击造成50多平民死亡](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [除非中共打台湾不然美国不会开战](/content/gnews/6/README.md)
+### [除非中共打台湾不然美国不会开战](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [接受就是放下（二）](/content/gnews/7/README.md)
+### [接受就是放下（二）](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [接受就是放下（一）](/content/gnews/8/README.md)
+### [接受就是放下（一）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [战斗室持续关注上海2500万人遭封城](/content/gnews/9/README.md)
+### [战斗室持续关注上海2500万人遭封城](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习二把阳间变阴间](/content/gnews/10/README.md)
+### [习二把阳间变阴间](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [国内战友在拿命送药](/content/gnews/11/README.md)
+### [国内战友在拿命送药](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [习二把食品和水都变成了武器](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [美国和波兰军队在乌克兰边境附近进行联合实弹演习](/content/gnews/13/README.md)
+### [美国和波兰军队在乌克兰边境附近进行联合实弹演习](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/10/2022 文贵直播：中共要求上海、广州、深圳、郑州和长春为死掉5000之一或2500分之一的人作准备；外省为上海送食品的官员很快被抓，21个城市的官员若违反中共政治规定会被就地免职](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [今日盖特大V推荐 — 莫妮卡·克劳利（Monica Crowley）](/content/gnews/15/README.md)
+### [今日盖特大V推荐 — 莫妮卡·克劳利（Monica Crowley）](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年4月10日大直播速记精萃](/content/gnews/16/README.md)
+### [外国投资者恐慌性抛售中共国债券](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022年4月10日大直播速记精萃](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [美高官前往所罗门群岛讨论中共国安全协议问题](/content/gnews/17/README.md)
+### [美高官前往所罗门群岛讨论中共国安全协议问题](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚](/content/gnews/18/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月10日晚](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [美国国务院全球参与中心反击中共关于乌克兰的虚假宣传](/content/gnews/19/README.md)
+### [美国国务院全球参与中心反击中共关于乌克兰的虚假宣传](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用](/content/gnews/20/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.11)–打完新冠疫苗免疫力变差，全身出现副作用](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马斯克在披露购买推特股份几天之后就提议重组订阅服务](/content/gnews/21/README.md)
+### [马斯克在披露购买推特股份几天之后就提议重组订阅服务](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [谢里夫将接替伊姆兰·汗成为下一任巴基斯坦总理](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [下届总理热门人选 谢里夫被视为“能干的”管理者](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共秘密向塞尔维亚运送地对空导弹系统](/content/gnews/24/README.md)
+### [中共秘密向塞尔维亚运送地对空导弹系统](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
-
-### [COVID-19疫苗副作用集萃（2022.4.11)–三针疫苗，浑身酸痛，发烧，腋下淋巴肿大](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [7News《全球视点》 新中国联邦灭共使命 得道多助](/content/gnews/26/README.md)
  ` 宁南`
