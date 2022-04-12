@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 11:41 PM (UTC)`
+
+2022.04.12《The Fringe》 Episode 167  CHINA TEM TOLERANCIA ZERO AO VIRUS
+![img](https://media.gettr.com/group20/origin/2022/04/12/23/b3ef66f6-980c-773a-6cab-52fcde8db399/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/12/2022 11:20 PM (UTC)`
 
 中共走狗郑介甫近日被澳洲驱逐出境<br/><br/>CCP's Running Dog Zheng Jiefu Expelled From Australia<br/><br/>
@@ -146,12 +153,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 `@miles 4/12/2022 4:06 PM (UTC)`
 
 04/12/2022 on the 9th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Fiji 🇫🇯  Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia,Fiji, Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2334531/
-
----
-
-`@miles 4/12/2022 4:04 PM (UTC)`
-
-4月12号, 郭文贵先生两首新歌上线第九天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/>澳大利亚 🇦🇺，斐济🇫🇯 摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/><br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 斐济，老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2334530/
 
 ---
 
