@@ -2,45 +2,29 @@
 ---
 
 
-## 欧盟正起草对俄罗斯实施石油禁运提案
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331729/)
+## 台湾旅乌男士在新中国联邦救援基地任义工
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332334/)
 
-翻译：多伦多蓝莲花- 冰糖葫芦喵
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+当地时间4月9日台湾媒体报导，一位来自台湾的旅乌男士王楠颖，在波兰梅迪卡新中国联邦的救援帐篷中担任义工，为来自乌克兰的难民从事翻译工作。在媒体的照片中，我们可以看到王先生穿着新中国联邦义工的马甲，背景中还出现了写有“新中国联邦、法治基金、乌克兰人道救援”字样的横幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-20.jpg)
+据悉，王先生是从台湾去乌克兰读书及工作的，已经旅居乌克兰8 年。他本人也是这次战争中的难民，在3月2日台湾政府的撤侨行动中顺利离开了乌克兰第二大城哈尔科夫。但是他对乌克兰第二故乡的感情让他选择留下来，以他能说中、英、日、乌、俄语的语言能力，及同样来自战争灾区的同理心，在难民营中为难民做翻译服务，帮忙他们解决各种沟通上及情绪上的问题。另外，王先生也报名了乌克兰的国际志愿军团，并被录取。接下来他将继续以他的语言能力发挥更大的作用。
 
-编辑：灭共文明、冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》卢森堡4月11日报道，**周一，爱尔兰、立陶宛和荷兰外长表示，欧盟执委正在起草欧盟对俄罗斯实施石油禁运的提案，这可能是下一个欧盟制裁方案的一部分，但尚未就禁止俄罗斯原油出口达成协议。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/欧盟俄禁运-1-e1649720838864.jpg)在比利时布鲁塞尔的欧盟委员会总部外，一面欧盟旗帜飘扬。（图片来源：路透社）
-据报道，**欧盟最高外交官约瑟普•博雷尔**(Josep Borrell)表示，在卢森堡举行的会议上，**许多部长都表示支持对俄罗斯石油进口实施制裁，但他表示，对其他人来说，这样的禁令将构成“不对称冲击”。**
+一位战友表示，尽管媒体的报导中并未突出新中国联邦的内容，但任何形式的传播都包含着媒体本身对我们的认同。新中国联邦的理念、精神一定会以各种形式在不知不觉中被散布到世界的每一个角落。
 
-博雷尔说:“**没有什么是不可能的，包括对石油和天然气的制裁。**”他此前曾表示，实施禁运是迟早的事情。欧洲议会上周投票支持石油禁运。他还补充说，欧盟国家也在独立工作，以减少对俄罗斯石油和天然气的依赖。
+参考链接：
+1. [台僑王楠穎返烏克蘭參軍 以台灣之名為第二故鄉奮戰](https://www.cna.com.tw/news/aipl/202204090016.aspx)
+2. [A Volunteer From Taiwan, a Ukraine Refugee Himself, Join Our NFSC Ukraine Rescue Operation Site in Medyka, Poland](https://gnews.org/2275724/)
+3. [**柳人不悔**](https://zh-tw.facebook.com/reo7seven?__cft__[0]=AZU9NMl15zxTcYqEetkTKZjrqYB0zN1X-bSL6d_HPNgi-vfagUcVwvFAbwoaBc71TzRw-dGFc8qAcyPOOmFsk5oAeE862NUAi5gq9GlCnCFcCpIWvjGWn0uicJqKMgXoKev2aoJPAyk8om2VKekllSRHpXvLNX7UDvJ6ajZoBGI7jQ&amp;__tn__=-UC%2CP-R)
 
-**爱尔兰外交部长西蒙·考文尼(Simon Coveney)在谈到欧盟委员会时表示，他们正在努力确保石油成为下一轮制裁计划的一部分**。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/爱尔兰外交部长.jpeg)爱尔兰外交部长西蒙·考文尼（图片来源：路透社）
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-报道称，**自俄罗斯军队入侵以来对乌克兰平民进行了毫无人道的杀戮，受此刺激，欧盟上周批准了对俄罗斯的第五轮制裁，**其中包括停止从俄罗斯进口煤炭。
-
-4月5日，**欧盟委员会主席乌尔苏拉·冯·德莱恩就表示，她正在考虑额外的制裁措施，其中包括对石油进口的制裁**，这部分是基于欧盟各国政府的提议。这些想法包括对俄罗斯石油征收关税，或禁止一些石油产品。
-
-任何石油禁运都取决于这一举措的范围和逐步实施时间的技术细节，以及欧盟27个成员国的支持。**欧盟各国对能源的依赖程度各不相同，保加利亚等国几乎完全依赖俄罗斯的石油。匈牙利表示不会支持石油禁运。**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/欧盟俄禁运2.jpg)科隆的莱茵兰炼油厂前，金融交易征税和公民行动协会的活动人士身着变形服抗议壳牌、阿拉尔和埃索等石油公司在俄罗斯入侵乌克兰期间进口俄罗斯能源。（图片来源：路透社）
-
-**作为欧盟最大的经济体，德国的立场将是至关重要的。**在向乌克兰提供更多武器的同时，**德国外交部长安娜莱娜-贝尔博克呼吁，制定一项 “协调计划“，彻底淘汰来自俄罗斯的化石燃料。**
-
-**美国和英国已经禁止了俄罗斯的石油，希望切断莫斯科的一个重要收入来源**。由于欧洲对能源的依赖，这一决定对欧洲经济来说更加困难，并可能推高本已高昂的能源价格。
-
-新闻来源链接：
-
-[Russian oil embargo could be part of next EU sanctions package, ministers say | Reuters](https://www.reuters.com/business/energy/russian-oil-embargo-could-be-part-next-eu-sanctions-package-ministers-say-2022-04-11/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

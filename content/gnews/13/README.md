@@ -2,44 +2,24 @@
 ---
 
 
-## 中共国向塞尔维亚半公开运送导弹
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2332501/)
+## 拒绝董事会席位后，马斯克取消与Twitter员工会面
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2332819/)
 
-作者：波士顿五月花 – 文雀
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
+编辑：文宝
 
 
-据4月10日《华盛顿邮报》报导，俄罗斯的盟友塞尔维亚在一次隐蔽的行动中接收了中共国先进的防空系统，使西方担忧在乌克兰战争期间巴尔干地区的军备集结进一步威胁到脆弱的和平。而这一隐蔽行动早在3月中已由新中国联邦领袖郭文贵先生披露爆料。
+![](https://n.sinaimg.cn/tech/transform/117/w550h367/20220412/e8ff-27e61ffff7168f8f46bf0a40fdb8ea35.jpg)
+4月11日消息，在埃隆·马斯克（Elon Musk）决定不加入Twitter董事会后，他取消了本周与Twitter员工的会面。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-11-222001.jpg)图片来源：华盛顿邮报
+在上周，Twitter宣布马斯克已收购超过9%的股份并将加入董事会后，这位世界首富原计划与Twitter CEO帕拉格·阿格拉沃尔(Parag Agrawal)一起，举行与Twitter员工的“问我任何问题”会议，以打消员工们的顾虑。
 
-被揭露的各方似乎也无意再隐藏。周六早些时候，六架中共空军 Y-20 运输机降落在贝尔格莱德的民用机场，据报导是中共为塞尔维亚军方运送 HQ-22 地对空导弹系统。
+实际上，Twitter的员工对与马斯克一起参加会议的感受很复杂。一些员工主要担心，马斯克可能改变Twitter的企业文化。
 
-位于贝尔格莱德的尼古拉特斯拉机场被拍摄到带有军标的中共货运军机，但塞尔维亚国防部没有立即回应质询。
+过去一周，马斯克对Twitter的想法也五花八门，从为Twitter的订阅服务做醒目的广告，到将其总部的一部分改造成无家可归者的收容所。有分析人士认为，对于所参与的任何一家公司，马斯克都以“颠覆性的存在”而著称，这可能给Twitter带来额外的挑战。
 
-能够在至少两个北约成员国土耳其和保加利亚的领土上空运送武器，证明了中共的影响力不断对全球扩张。
+通过邀请马斯克加入董事会并与员工交谈，阿格拉沃尔想表现出，他们之间的关系将是友好的。但马斯克突然拒绝董事会席位也引发了人们对其意图的新一轮猜测。由于没有加入董事会，马斯克不再受制于一项将其持股比例限制在14.9%的停滞协议。
 
-塞尔维亚将成为欧洲第一个使用中共导弹的国家。而早在2020年，它接收了中共翼龙一号无人机，能够用炸弹和导弹打击目标，并可用于侦察任务。
-
-新闻来源：
-
-[https://www.washingtonpost.com/world/china-makes-semi-secret-delivery-of-missiles-to-serbia/2022/04/10/94e92ad2-b8d3-11ec-a92d-c763de818c21\_story.html](https://www.washingtonpost.com/world/china-makes-semi-secret-delivery-of-missiles-to-serbia/2022/04/10/94e92ad2-b8d3-11ec-a92d-c763de818c21_story.html)
-
-编辑/校对/发稿：H.B
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
-
-
+原文链接：[https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&mod=pctech&loc=15&r=0&rfunc=15&tj=cxvertical\_pc\_tech&tr=12](https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&amp;mod=pctech&amp;loc=15&amp;r=0&amp;rfunc=15&amp;tj=cxvertical_pc_tech&amp;tr=12)
 
  
 

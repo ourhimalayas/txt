@@ -80,15 +80,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@torontofarmcn 4/11/2022 8:56 PM (UTC)`
-
-【 #乌克兰大救援】梅迪卡前线视频报道：这一位台湾义工来到 #法治基金、 #新中国联邦 大帐篷喝咖啡。他早就听说过新中国联邦，久仰郭先生大名。当他听说，如果中共发动对台武力攻击，郭先生已表示新中国联邦将对台提供人道援助，他很惊讶。他说郭先生在台湾很有名，亲共的台湾人是少数😃<br/><br/>#俄乌战争 #国际人道救援  #StandWithUkrainian<br/>#UkraineRescue #ROLFRescue #NFSCRescue
-![img](https://media.gettr.com/group50/origin/2022/04/11/20/38488e2e-c1e0-4b4d-60ed-250a7cc3e88d/out.jpg)
-
----
-
 `@miles 4/11/2022 11:04 PM (UTC)`
 
 2022.04.11 NFSC news  The CCP's Crazy Actions May Cost The Chinese People In Blood
@@ -159,6 +150,13 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 
 【Ukraine Rescue】 04/09/22 Seeing a young volunteer from Poland carefully reading the NFSC Declaration, Nicole introduces our mission to him, as well as Gettr: because we think by democratizing freedom of information will help to liberate people’s mind.<br/><br/>【乌克兰救援】 04/09/22 大帐篷外狂风暴雨，一位来自波兰的年轻志愿者正在温暖的帐篷内认真地阅读着《新中国联邦宣言》，妮可向他介绍了我们的使命，以及盖特：因为我们认为通过信息自由的民主化将有助于解放人们的思想。
 ![img](https://media.gettr.com/group12/getter/2022/04/11/17/310cdcfe-8df4-a949-f1ac-c90748d2abb4/out.jpg)
+
+---
+
+`@miles 4/11/2022 5:14 PM (UTC)`
+
+ 4月11号：AhAh 无处不在的天才的战友，这才是人类最重要的财富，这首歌，唱得太棒了👏
+![img](https://media.gettr.com/group24/getter/2022/04/11/17/fb3820b7-40a2-4544-6e62-5b2107fc2772/out.jpg)
 
 ---
 

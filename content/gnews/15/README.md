@@ -2,16 +2,287 @@
 ---
 
 
-## 20220410文贵大直播：英国和欧盟争抢乌克兰
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2332465/)
+## 每日快报： 巴基斯坦反对党领袖沙赫巴兹谢里夫被任命为新总理
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2332811/)
 
-作者：东京樱花团小视频组
+*作者：*文鸣
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+# ***今日摘要***
+
+1. **[巴基斯坦反对党领袖沙赫巴兹谢里夫被任命为新总理](https://www.zerohedge.com/geopolitical/pakistan-opposition-leader-shahbaz-sharif-named-new-prime-minister-amid-angry-pro-khan)**
+2. **[北约计划在俄罗斯边境进行大规模军事集结，理由是重大“重置”](https://www.zerohedge.com/geopolitical/nato-plans-massive-military-buildup-russias-border-citing-major-reset)**
+3. **[芬兰将在夏季加入北约](https://www.zerohedge.com/geopolitical/finland-set-nato-membership-soon-summer-russian-official-warns-destruction-their)**
+4. **[乌克兰的农作物收成可能减半](https://www.zerohedge.com/commodities/shocking-estimates-show-ukraines-crop-harvest-could-be-halved)**
+5. **[俄罗斯敦促金砖国家建立自己的“SWIFT”系统](https://www.zerohedge.com/geopolitical/russia-urges-brics-nations-create-own-swift-system-warns-sanctions-are-destroying)**
+
+
+# 重要事件
+
+- **[04.11 zerohedge：巴基斯坦反对党领袖沙赫巴兹谢里夫被任命为新总理](https://www.zerohedge.com/geopolitical/pakistan-opposition-leader-shahbaz-sharif-named-new-prime-minister-amid-angry-pro-khan)**
+
+
+巴基斯坦总理伊姆兰汗在周末发生戏剧性的“不信任”投票下台，他和他的支持者称这是一场由美国秘密领导的外国支持的政变，该国立法者周一召开会议选择新总理。他们选择了反对派议员 沙赫巴兹谢里夫来取代汗——后者的支持者周日晚上在全国各个城市走上街头，称他的下台和替代是非法的。“70 岁的 Shahbaz 先生是三届总理纳瓦兹谢里夫的弟弟，并领导反对党提出罢免汗先生，”天空新闻指出。
+
+汗周日拒绝了议会午夜的不信任投票，以将他从前一天晚上赶下台。他在推特上写道：“巴基斯坦于 1947 年成为一个独立国家；但自由斗争今天再次开始，反对外国政权更迭的阴谋。” 他称正在发生的事情是“进口政府”的权力攫取。周日至周一早些时候，数千人走上街头，包括在卡拉奇、拉合尔和白沙瓦——一些地方的道路被封锁——甚至在迪拜和伦敦也出现了亲可汗的示威活动。数百人也聚集在纳瓦兹谢里夫的伦敦住宅前抗议，谢里夫的支持者与亲可汗集会发生冲突。
+
+自1990年在1990年后逃离该国，自1999年的军事政变，自1999年逃离该国，新的PM Shahbaz Sharif已经成为一个着名的反对派立法者。周一，当立法者任命谢里夫为新总理时，汗发表声明，感谢他的支持者走上街头“反对美国支持的政权更迭”。然而，鉴于他将经过验证的 Twitter 简历更改为以下内容，他似乎承认了这一点： 巴基斯坦主席 Tehreek-e-Insaf 和巴基斯坦伊斯兰共和国前总理。他指定的“前”总理被广泛认为意味着他承认失败，或者至少不愿意冒内乱的风险过度反对他的下台（或者也许他得到了丰厚的回报？）。
+
+人们认为，在通货膨胀飙升和卢比暴跌的情况下，他与该国强大的军队（长期以来一直是伊斯兰堡“深层政府”的核心）的关系恶化，政治反对派和公众普遍愤怒被指控严重经济管理不善。特别是，据说他与巴基斯坦陆军参谋长以及外交部发生了冲突。汗 于 2 月 24 日在莫斯科会见了俄罗斯的弗拉基米尔·普京（Vladimir Putin）——就在俄罗斯坦克越过边境进入乌克兰的几个小时前。尽管 2 月 23 日至 24 日的访问计划很长，主要目的是促进两国之间的能源和贸易关系，但糟糕的时机凸显了访问的争议和巴俄关系升温。
+
+- **[04.11 zerohedge：北约计划在俄罗斯边境进行大规模军事集结，理由是重大“重置”](https://www.zerohedge.com/geopolitical/nato-plans-massive-military-buildup-russias-border-citing-major-reset)**
+
+
+北大西洋公约组织正处于“根本性转变”之中，并计划在俄罗斯边境进行大规模军事集结。 《每日电讯 报》报道称，“北约秘书长透露，北约正在制定计划，在其边境部署一支永久性的全面军事力量，以对抗俄罗斯入侵乌克兰后未来的侵略。”秘书长延斯·斯托尔滕贝格表示，北约将进行重大“重置”，并计划在与俄罗斯接壤的国家部署足够的部队以击退入侵。该联盟目前在东部成员国拥有40,000名士兵。
+
+北约认为其在东欧的部队是对俄罗斯的威慑，但不足以真正阻止即将到来的部队。“绊线”政策认为莫斯科不愿杀死美国士兵并挑起更大的战争。斯托尔滕贝格没有说明拉脱维亚和爱沙尼亚等国需要多少军队才能抵御俄罗斯的入侵。该联盟最近宣布建立 四个新的战斗群 ，每个战斗群约有 1,500 人，部署到东欧国家。北约将有一个从波罗的海延伸到黑海的战斗群：战斗群通常由 1,000-1,500 名士兵组成。跨大西洋联盟目前在爱沙尼亚、拉脱维亚、立陶宛和波兰也有类似的部署。
+
+斯托尔滕贝格在 3 月描述了东欧新的安全局势，“加上我们在波罗的海国家和波兰的现有部队，这意味着我们将在从波罗的海到黑海的东翼拥有八个多国北约战斗群。” 该联盟还拥有140艘海上军舰和130架处于高度戒备状态的飞机。斯托尔滕贝格说，政策的改变是对入侵乌克兰的回应，并声称这种集结是防御性的。莫斯科不太可能同意这种解释。俄罗斯在 12 月的安全提案中要求北约部队从东欧撤出。自 1990 年代以来，北约已经扩大并调动部队进入前苏联国家。莫斯科一直表示，该联盟的东扩是一种威胁，也是普京总统选择在乌克兰发动“特别军事行动”的部分原因。
+
+- **[04.11 zerohedge：芬兰将在夏季加入北约](https://www.zerohedge.com/geopolitical/finland-set-nato-membership-soon-summer-russian-official-warns-destruction-their)**
+
+
+克里姆林宫发言人德米特里佩斯科夫周一对芬兰和瑞典寻求加入北约发出了新的警告，此前《星期日泰晤士报》报道称“芬兰预计将在 6 月申请加入北约，瑞典预计将紧随其后”。佩斯科夫说， “该联盟仍然是一种旨在对抗的工具” ——但据说华盛顿支持这一举动，西方官员援引西方官员的话说，俄罗斯入侵乌克兰被证明是一个“巨大的战略错误”。
+
+上周首次披露，芬兰尤其改变了其在北约问题上的历史中立的想法；然而，在提出任何申请之前，将有一段时间的国内政治辩论，而且瑞典预计将独立决定其路线。在几天前首次出现这些报道后，俄罗斯议会上院议员、联邦委员会的弗拉基米尔·扎巴罗夫（Vladimir Dzhabarov）在莫斯科官员中发出了最可怕的警告，威胁说，像赫尔辛基向北约请愿这样的“战略错误”意味着芬兰“将成为目标。”
+
+“我认为这对整个芬兰人民来说[将是]一场可怕的悲剧，”扎巴罗夫说。他还强烈暗示这将导致“他们国家的毁灭”。他表示希望“芬兰人自己不会签署一张毁灭他们国家的卡片”——正如 RIA Novosti 最初引用的那样。芬兰外交部随后表示，当被要求做出回应时，它“不对个别议员的言论发表评论”。
+
+根据最近的 Axios 报告，“根据 上个月进行的一项调查，现在有 60% 的芬兰人支持加入北约——比去年秋天增加了 34 个百分点，是自 1998 年开始对该问题进行民意调查以来的最高水平。”本月初，芬兰总理桑娜·马林（Sanna Marin） 暗示政策方向完全逆转 ，称俄罗斯入侵乌克兰带来的欧洲“新安全环境”意味着该国必须重新考虑其对北约集团的长期中立政策. “俄罗斯不是我们想象中的邻居，” 她 谈到 莫斯科对乌克兰的持续攻击，称其为“公然侵犯”。“在这种新形势和变化的安全环境下，我们将不得不评估一切手段来保证芬兰和芬兰人的安全，”马林说。“我们必须认真考虑我们自己的立场和军事结盟方法。 在今年春天的过程中，我们必须谨慎、迅速、有效地做到这一点。”
+
+- **[04.10 zerohedge：乌克兰的农作物收成可能减半](https://www.zerohedge.com/commodities/shocking-estimates-show-ukraines-crop-harvest-could-be-halved)**
+
+
+乌克兰是世界上最大的玉米、葵花籽油和小麦出口国之一。据彭博社报道，俄罗斯入侵乌克兰造成的干扰引发了人们对这个饱受战争蹂躏的国家今年的农作物产量可能下降 50% 的担忧 。
+
+农业专家 UkrAgroConsult 的预测数据显示，乌克兰的玉米产量可能低至 1900 万吨，约为去年 4100 万吨的一半。UkrAgroConsult 的悲观前景伴随着巨大的生产不确定性，因为农民面临柴油和化肥短缺以及基础设施被炸毁的问题。另外两家农业公司的前景并不那么悲观。黑海研究公司 SovEcon 预计 乌克兰 2022 年玉米产量为 2770 万吨，Barva Invest 的前景为 2950 万吨。两者都远低于 2021 年的总数。
+
+Maxigrain 分析师 Elena Neroba 警告说，如果农民没有柴油，他们“就无法种植大片土地”。“一些农民仍然无法获得种子和化肥。即使他们已经支付了费用，交付供应链也无法正常运作，”Neroba 说。无论冲突对产出的影响有多大，全球粮食价格 从未如此快速上涨， 而且在全球粮食短缺的预期中也从未如此高昂。3 月，全球食品价格环比上涨了惊人的 12.64%——几乎是之前创纪录的月度涨幅的两倍……
+
+价格已经超过了仅在 2010/11 年通货膨胀暴动期间出现的水平，即所谓的阿拉伯之春。从出口数据来看，乌克兰生产了全球 49.6% 的葵花籽油、全球 15.3% 的玉米、全球 12.6% 的大麦和约 10% 的小麦。
+
+我们已经指出 ，食品通胀暴动 正在发生，并可能继续蔓延到整个新兴市场经济体。坏消息是，世界饥饿问题并没有消失，而且可能只会恶化。对乌克兰农作物从全球粮食供应中蒸发的预期将加剧即将到来的粮食危机。明年粮食供应可能会大幅下降，因为收成将导致产量下降，这可能会迫使食品价格进一步上涨。世界可能正处于多年粮食危机的风口浪尖。现在是开始种植自己的花园的最佳时机 。
+
+- **[04.10 zerohedge：俄罗斯敦促金砖国家建立自己的“SWIFT”系统](https://www.zerohedge.com/geopolitical/russia-urges-brics-nations-create-own-swift-system-warns-sanctions-are-destroying)**
+
+
+美元储备体系正面临迄今为止最大的威胁。俄罗斯财政部长阿纳托利·西卢阿诺夫周六表示，金砖五国——巴西、俄罗斯、印度、中国和南非——可以通过共同努力并在各自国家使用一系列金融工具来缓解西方制裁俄罗斯对其经济的反弹。处理。“当前的危机是人为的，金砖国家拥有所有必要的工具来减轻其对国家和全球经济的影响，”俄罗斯财政部援引西卢阿诺夫的话说。
+
+这位部长将经济制裁归咎于俄罗斯“破坏了以美元为基础的现有国际货币和金融体系的基础”，并敦促金砖国家在对外贸易中更多地依赖本国货币，整合支付系统并创建 SWIFT 的替代方案支付信息平台。西卢阿诺夫周五在与金砖国家举行的部长级会议上表示，由于制裁，全球经济形势已大幅恶化，他的部门周五发表声明称。“这促使我们需要加快在以下领域的工作：使用本国货币进行进出口业务、支付系统和卡的整合、我们自己的金融信息系统以及建立独立的金砖国家评级机构， ”西卢阿诺夫说。
+
+该部表示，正如《政治家》报道的那样， 金砖国家的中央银行已经同意对银行机制进行第五次测试，该机制将允许它们共同汇集“替代货币”储备，以保护其经济免受外部冲击。Siluanov 的评论与 Dmitry Medvedev 对Telegram的评论相呼应。
+
+俄罗斯安全委员会副主席警告西方制裁和美元储备系统武器化的地缘政治后果：“他们的结果将是破坏国际秩序，给世界经济和个别国家的生活带来极其困难的后果，”他补充说：“每个人都会清楚，所谓的制裁效果是绝对的谎言。”
+
+或许更为不祥的是，梅德韦杰夫认为，反俄制裁可以被视为一种侵略行为：梅德韦杰夫写道：“法律和政治环境的整体结合表明，当前局势下的制裁可以被定性为对俄罗斯的侵略行为和一种混合战争形式， ”并补充说：“首先，当他们的目的是破坏经济独立，进而破坏国家主权时，这会危及国家的生存。事实上，正如我们的反对者所说，这是一场经济战争的宣言。 “
+
+如果这一切听起来像是在俄罗斯宣传部门控制下的一个有偏见的政客的咆哮，那也许是这样……但许多人也很清楚，美元（支付系统）的“武器化”很可能会产生严重的意外后果。例如，国际货币基金组织 ( IMF ) 第一副总裁吉塔·戈皮纳特 (Gita Gopinath) 告诉英国《金融时报》，最近因俄罗斯入侵乌克兰而对俄罗斯实施的金融制裁有可能削弱美国石油美元作为世界货币的主导地位，
+
+自美国于 2014 年为报复其吞并克里米亚而实施制裁以来，俄罗斯多年来一直在计划减少对石油美元的依赖。乌克兰目前的危机只是加速了这些计划……现在看来，随着布雷顿森林三世开始形成，整个金砖国家集团可能已经准备好跨越鸿沟。不用说，其影响是惊人的（而且，更糟糕的是，虽然 ZoltanPoszar 没有明确说明，但他清楚地相信世界大战即将来临）：
+
+帝国兴衰。货币下跌和上涨。战争有赢家和输家。当威灵顿击败拿破仑时，交易是购买后备母猪。我不是地缘政治专家，但我是利率策略师，我认为通胀和利率水平以及美联储资产负债表的规模将取决于这场冲突结束后出现的稳定状态。三是一个神奇的数字：四种货币价格通过巴塞尔协议 III 和中央银行作为 DoLR 进行管理。商品交易的四大支柱是由战争塑造的，希望不是二战。新的世界秩序将带来新的货币体系——布雷顿森林体系 III。
+
+基于金砖国家的支付系统将是对当今基于美元霸权的系统的终极挑战。即使这只是空谈，也凸显了美元处于摇摇欲坠的事实。美国决策者明智地考虑未来的美元武器化。
+
+# 每日文宣
+
+![](http://himalayawashingtondc.org/wp-content/uploads/2022/04/44270f2d9b34094d2bf33f0760b37693-1024x576.jpeg)
+
+# 更多要闻链接
+
+1. **[大型制药公司的政治影响力剖析](https://www.zerohedge.com/medical/anatomy-big-pharmas-political-reach)**
+2. **[100多架俄罗斯喷气式飞机在飞往迪拜以逃避制裁后滞留在迪拜](https://www.zerohedge.com/geopolitical/more-100-russian-jets-stranded-dubai-after-being-flown-there-escape-sanctions)**
+3. **[“真实”通货膨胀率为 13.2%——基于区块链的抗审查价格追踪器](https://www.zerohedge.com/crypto/true-inflation-rate-132-censorship-resistant-price-tracker-built-blockchain)**
+4. **[北约参与亚太地区对抗中国](https://www.zerohedge.com/geopolitical/nato-engage-asia-pacifc-counter-china)**
+5. **[中国“令人叹为观止”的核扩张得到证实](https://www.zerohedge.com/geopolitical/chinas-nuclear-expansion-confirmed-beijing-officials-cite-fear-us-led-regime-change)**
+6. **[中国削弱对俄罗斯的制裁：“后果”在哪里？](https://www.zerohedge.com/geopolitical/china-undercuts-sanctions-russia-where-are-consequences)**
+7. **[俄罗斯石油继续流向印度和中国](https://www.zerohedge.com/energy/russian-oil-continues-flow-india-and-china)**
+8. **[俄罗斯高级外交官称乌克兰战争旨在阻止美国统治世界](https://www.zerohedge.com/geopolitical/ukraine-invasion-meant-stop-us-world-domination-russias-top-diplomat-says)**
+9. **[“比特币是自由”](https://www.zerohedge.com/crypto/bitcoin-freedom)**
+10. **[随着上海封锁的拖延，人民币交易枯竭](https://www.zerohedge.com/markets/yuan-trading-dries-shanghai-lockdown-drags)**
+11. **[罗伯特·马龙说他将起诉纽约时报，除非它纠正“诽谤”文章](https://www.zerohedge.com/covid-19/robert-malone-says-he-will-sue-new-york-times-unless-it-corrects-defamatory-article)**
+12. **[加拿大将很快为精神病患者提供医生协助死亡](https://www.zerohedge.com/markets/canada-will-soon-be-offering-doctor-assisted-death-people-who-are-mentally-ill)**
+
+
+# 每日推特文摘
+
+
+
+一箭多雕是CCP做坏事的基本原则！
+如何利用上海一箭五雕
+
+
+
+
+
+> ♦️上海惨剧的深层解析♦️
+> WinWin对于共产党而言不是双赢，而是赢两次。
+> 一箭多雕是CCP做坏事的基本原则！
+> 如何利用上海一箭五雕⁉️
+> 
+> 昨天的大直播信息量密度太大了！光要点写满了2张纸，今天逐个给大家解析，加关注，不掉队 [pic.twitter.com/UDtI9AcZ4J](https://t.co/UDtI9AcZ4J)
+> — 就差我一个 (@jiuchawoyige03) [April 11, 2022](https://twitter.com/jiuchawoyige03/status/1513346511668609024?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+上海今天遭受的这一切，并不是正常自然发生的，而是有意为之的 ! 上海人之前的优越感 瞧不起外地人，都被人记下了。羡慕 嫉妒 恨在上海扩张蔓延 !
+
+
+
+
+
+> 2022-04-10 文贵先生大直播
+> 上海今天遭受的这一切，并不是正常自然发生的，而是有意为之的 ! 上海人之前的优越感 瞧不起外地人，都被人记下了。羡慕 嫉妒 恨在上海扩张蔓延 ! [pic.twitter.com/na3BRy1Rtg](https://t.co/na3BRy1Rtg)
+> — 🌻Qpatty(澳喜特战旅) (@Pancho66196600) [April 11, 2022](https://twitter.com/Pancho66196600/status/1513306187055345667?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+习共吞噬世界的计划书（路线图）
+总策划：王岐山，王沪宁，许其亮
+解读：Miles Guo
+
+
+
+
+
+> 习共吞噬世界的计划书（路线图）
+> 总策划：王岐山，王沪宁，许其亮
+> 解读：Miles Guo [pic.twitter.com/E0SZYDeKvx](https://t.co/E0SZYDeKvx)
+> — 就差我一个 (@jiuchawoyige03) [April 11, 2022](https://twitter.com/jiuchawoyige03/status/1513448074726633474?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+没有任何笑话和段子，可以承受这份饥饿的重量
+
+
+
+
+
+> 没有任何笑话和段子，可以承受这份饥饿的重量。。。 [pic.twitter.com/sjTh295sjG](https://t.co/sjTh295sjG)
+> — 文俊（日本银河系） (@wenjun7011) [April 11, 2022](https://twitter.com/wenjun7011/status/1513309807004073986?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+《高等数学》教材编写者没饭吃了
+
+
+
+
+
+> 你们学的《高等数学》教材编写者没饭吃了 [pic.twitter.com/zF5a3CJ2VI](https://t.co/zF5a3CJ2VI)
+> — 文俊（日本银河系） (@wenjun7011) [April 11, 2022](https://twitter.com/wenjun7011/status/1513435605778460674?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+从基辅逃到罗马尼亚
+从罗马尼亚逃回大连
+从大连逃回上海
+世界上最愚蠢的逆行者，你喊第二，没人敢喊第一
+
+
+
+
+
+> 从基辅逃到罗马尼亚
+> 从罗马尼亚逃回大连
+> 从大连逃回上海
+> 世界上最愚蠢的逆行者，你喊第二，没人敢喊第一👍 [pic.twitter.com/iKO0nI5LaA](https://t.co/iKO0nI5LaA)
+> — 就差我一个 (@jiuchawoyige03) [April 11, 2022](https://twitter.com/jiuchawoyige03/status/1513411548915462144?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+母亲被清零政策折磨死，郎咸平只是“深感震惊”，而不敢愤怒
+
+
+
+
+
+> 母亲被清零政策折磨死，郎咸平只是“深感震惊”，而不敢愤怒，，，，， [pic.twitter.com/ueCQhutGgR](https://t.co/ueCQhutGgR)
+> — 新闻/真话 (@TuCaoFakeNews) [April 11, 2022](https://twitter.com/TuCaoFakeNews/status/1513428998092570629?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+郎咸平母亲，在上海因为疫情防控没有得到及时救治而去世。
+
+
+
+
+
+> 郎咸平母亲，在上海因为疫情防控没有得到及时救治而去世。 [pic.twitter.com/Pxp5rQiaJT](https://t.co/Pxp5rQiaJT)
+> — iPaul🇨🇦🇺🇦 (@iPaulCanada) [April 11, 2022](https://twitter.com/iPaulCanada/status/1513322018913284097?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+上海志愿者，以一袋蔬菜和一箱水果，让一位缺食物的独居女士陪他上床，现在在网上炫耀……
+不用到农村的生产队，当年知青上山下乡荒诞的一幕已经在中国曾经最繁华的城市上海上演了
+
+
+
+
+
+> 上海志愿者，以一袋蔬菜和一箱水果，让一位缺食物的独居女士陪他上床，现在在网上炫耀……
+> 不用到农村的生产队，当年知青上山下乡荒诞的一幕已经在中国曾经最繁华的城市上海上演了 [pic.twitter.com/Q3soIta8NZ](https://t.co/Q3soIta8NZ)
+> — 新闻调查 (@xinwendiaocha) [April 11, 2022](https://twitter.com/xinwendiaocha/status/1513380715844423680?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+文贵先生 的SNOW第一次和战友们见面
+
+
+
+
+
+> 暗恋文贵先生 的SNOW第一次和战友们见面🥰 [pic.twitter.com/P1W9ZrPYgN](https://t.co/P1W9ZrPYgN)
+> — 文喆 🌟🌟🌟银河系 (@ccpdown64wz) [April 11, 2022](https://twitter.com/ccpdown64wz/status/1513309427851481097?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：文鸣
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
