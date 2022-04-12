@@ -2,28 +2,45 @@
 ---
 
 
-## 美国将派高级别官员访问所罗门群岛
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2335803/)
+## 斯洛伐克向乌克兰赠送S-300导弹系统，俄罗斯警告说其将成为攻击目标
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2335876/)
 
-作者：香草山农场 文希
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月9日，据美国媒体报导，拜登总统将在本月派遣白宫印太事务协调员库尔特·坎贝尓访问所罗门群岛，预计他将与国务院负责亚洲事务的助理国务卿康达一起出访。这次罕见的访问，突显了美国高层对这个太平洋国家可能与中共发展密切关系的关注。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-12-下午1.16.41.png)
-上个月，澳大利亚一位高级国防人士曾透露，中共与所罗门群岛协商签署了一份安全协议，根据该协议，中共将以保护基础设施投资的名义，被允许在岛上驻扎海军舰艇和防务人员。中共还有权力部署安全人员，守卫停靠在所罗门群岛的任何中共海军舰艇。这将使中共的军事力量，大规模地深入太平洋地区。澳方认为，协议一旦签署，中共海军在这里所处的优越战略位置将对澳大利亚、新西兰和夏威夷的安全构成威胁。
+***评论：**北约成员国德国和荷兰在3月份向斯洛伐克部署了三套“爱国者”防空系统，美国也答应在斯洛伐克继续部署上述系统。随后，斯洛伐克向乌克兰捐赠了其S-300防空系统。希望此系统能切实发挥作用，因为文贵先生在直播中提到，俄乌正在准备一场大战，在世人都以为俄罗斯将重点转移到东部地区时，普特勒很有可能声东击西，再次攻入基辅，然后导弹会像雪雨一样直奔泽连斯基本人…*
 
-美国太平洋舰队司令萨缪尔·帕帕罗上将也批评了这项安全协议，称其为“密谋行为“，令美国及其伙伴感到担忧。
+据《每日邮报》记者[JACK NEWMAN](https://www.dailymail.co.uk/home/search.html?s=&amp;authornamef=Jack+Newman+For+Mailonline)， 2022年4月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1442-e1649785007258.png)斯洛伐克向乌克兰捐赠了S-300防空导弹防御系统，就在几天前，俄罗斯警告说，该系统将是一个合法的攻击目标（图为S-300防御系统正在前往乌克兰的路上）。图片来源：Dailymail
+斯洛伐克向乌克兰捐赠了S-300防空导弹防御系统，就在几天前，俄罗斯警告，该系统将是一个合法的攻击目标。
 
-即将上任的美国驻澳大利亚大使卡罗琳·肯尼迪则呼吁，美国必须开展更多外交活动，以对抗中共日益增长的影响力，确保中共不能利用安全协议逐步将一些国家军事化。
+弗拉基米尔·泽伦斯基(Volodymyr Zelensky)本周曾绝望地呼吁“武器、武器、武器”，以帮助击退俄罗斯的军事进攻。
 
-参考链接：[Top US official Kurt Campbell reportedly heading to Solomon Islands to discuss Chinese security pact concerns](https://www.abc.net.au/news/2022-04-09/us-official-reportedly-heading-to-solomon-islands-china-security/100979898)
+上个月，乌克兰总统在对美国立法者发表讲话时，提到了S-300的名字，他恳求在乌建立防御系统，使乌克兰能够对克里姆林宫的战机和导弹“关闭天空”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+斯洛伐克总理爱德华-黑格尔（Eduard Heger）今天说“我可以确认，斯洛伐克向乌克兰捐赠了S-300防空系统，由于俄罗斯联邦的武装侵略，基于乌克兰的请求，斯洛伐克将帮助乌克兰进行自卫。”
 
-编辑：飞虹
-总编：文恩
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+此次交付之际，俄罗斯今天又发动了一次野蛮的攻击，在乌克兰东部的一个火车站杀害了至少39名正在撤离的平民，其中包括4名儿童。
+
+俄罗斯军队目前已从乌克兰中部的主要城市撤出，并将其重点重新放在顿巴斯地区。
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.dailymail.co.uk/news/article-10699689/Slovakia-sends-Ukraine-S-300-missile-Russia-warned-legitimate-targets.html](https://www.dailymail.co.uk/news/article-10699689/Slovakia-sends-Ukraine-S-300-missile-Russia-warned-legitimate-targets.html)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 钢蛋儿
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

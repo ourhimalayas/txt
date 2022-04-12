@@ -2,29 +2,28 @@
 ---
 
 
-## 拜登政府派美国航母到日本海，牵制北朝鲜核试验？“也警告中共国援俄及俄拟使用核武器”（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2335787/)
+## 美国将派高级别官员访问所罗门群岛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2335803/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
-上一篇：[拜登政府派美国航母到日本海，牵制北朝鲜核试验？“也警告中共国援俄及俄拟使用核武器”（上）](https://gnews.org/zh-hans/2335758/)
+作者：香草山农场 文希
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月9日，据美国媒体报导，拜登总统将在本月派遣白宫印太事务协调员库尔特·坎贝尓访问所罗门群岛，预计他将与国务院负责亚洲事务的助理国务卿康达一起出访。这次罕见的访问，突显了美国高层对这个太平洋国家可能与中共发展密切关系的关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-12-下午1.16.41.png)
+上个月，澳大利亚一位高级国防人士曾透露，中共与所罗门群岛协商签署了一份安全协议，根据该协议，中共将以保护基础设施投资的名义，被允许在岛上驻扎海军舰艇和防务人员。中共还有权力部署安全人员，守卫停靠在所罗门群岛的任何中共海军舰艇。这将使中共的军事力量，大规模地深入太平洋地区。澳方认为，协议一旦签署，中共海军在这里所处的优越战略位置将对澳大利亚、新西兰和夏威夷的安全构成威胁。
 
-当欧美等国忙于应对俄罗斯入侵乌克兰之时，朝鲜乘机多次进行弹道等导弹的发射。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/m_fuji-_society_foreign_FSBHELISAFM2BOG55OKJFNOPEA.jpg)图片来源网络
-4月4日，北朝鲜劳动党总书记金正恩在与其妹、党副部长金与正的谈话中威胁说，“如果韩国加紧军事对抗，（北朝鲜）将在战争初期使用核武器”。
+美国太平洋舰队司令萨缪尔·帕帕罗上将也批评了这项安全协议，称其为“密谋行为“，令美国及其伙伴感到担忧。
 
-拜登政府对北朝鲜不断升级的挑衅行为逐渐增强警觉，而此次派遣航母的意图如何？
+即将上任的美国驻澳大利亚大使卡罗琳·肯尼迪则呼吁，美国必须开展更多外交活动，以对抗中共日益增长的影响力，确保中共不能利用安全协议逐步将一些国家军事化。
 
-熟知国际政治的拓殖大学国际事务研究所川上高司教授说：“拜登政府正试图彻底削弱俄罗斯、中国和朝鲜。除了阻止北朝鲜的肆意妄为外，还在警告中国，‘对俄罗斯的军事和经济支援是不可容忍的’。也可能有阻止因入侵乌克兰而走投无路的俄罗斯通过使用战术核武器来打破战争僵局的目的”。
+参考链接：[Top US official Kurt Campbell reportedly heading to Solomon Islands to discuss Chinese security pact concerns](https://www.abc.net.au/news/2022-04-09/us-official-reportedly-heading-to-solomon-islands-china-security/100979898)
 
-参考链接：[バイデン政権、米空母を日本海に派遣　北朝鮮の核実験を牽制か　「中国の露支援、露の核使用への警告も」識者(夕刊フジ) – goo ニュース](https://news.goo.ne.jp/article/fuji/world/fuji-_society_foreign_FSBHELISAFM2BOG55OKJFNOPEA.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-* * *
-
-审核：Bryan
-校对：天天
-发稿：宫米叶
-
+编辑：飞虹
+总编：文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

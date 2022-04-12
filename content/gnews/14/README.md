@@ -2,10 +2,29 @@
 ---
 
 
-## 4/10/2022 文贵直播：乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2335791/)
+## 七哥说—第63期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2335826/)
 
-秘密翻译组-北美组
+制作：Inzaghi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-12_9.20.10.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-10_4.11.43.png)
+
+发稿：信心满满
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
+
+
 
  
 
