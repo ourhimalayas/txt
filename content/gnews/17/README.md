@@ -2,27 +2,29 @@
 ---
 
 
-## 中日财经爆┃加密货币基金创1月以来最大流出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332178/)
+## 郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332223/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃加密货币基金创1月以来最大流出.png)
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版.png)
+Snow……snow……这烧着你咋办？嗯……嗯……snow，打球吧，咱打篮球，snow……，看这花都开了，snow,嗯,红花，金花。
 
-上周 ，是加密货币基金自1 月以来最大的净流出量。
+啊，真是，这天真好，蓝天白云，你看这蓝天，啊，这是春暖花开呀，特别特别的棒。
 
-根据 CoinShares（硬币股）4月11日发布的一份报告，截至4月8日的一周内，加密货币基金已从比特币（BTC）和以太坊（ETH）基金中撤出。这是连续二周出现净流入后的今年第二大净流出，达1.34 亿美元。
+啊东南西北中啊，现在南方、东方在行动，就剩下西方和北方了。
 
-大部分净流出为比特币基金，净流出1.318亿美元。同时，投资比特币下跌的短期投资产品净流入最大，达到200万美元。
+一切都在行动中啊。
 
-报告称“我们认为上周价格上涨可能帮助投资者获利了结”。以太坊基金也有1530万美元的净流出。
+花已经开了，春天已经来了，该我们享受春天的时候了，对吧？
 
-投资于多种加密资产的多资产基金保持恢复状态，净流入500万美元。此外，Solana（SOL）基金净流入370万美元，Cardano（ADA）基金净流入100万美元，Litecoin（LTC）基金净流入60万美元。
+啥都不说了，嗯。
 
-信息来源：
-[暗号資産ファンド、1月以来最大の流出に──2週連続の流入から一転（CoinDesk Japan） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/52a95fd6069b40ba6ba1b5bed90a91c2684e2def)
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-*编辑：东京樱花团/知了知了
+郭文贵先生2022年4月11日盖特视频链接：
+[https://gettr.com/post/p14pc50e5b3](https://gettr.com/post/p14pc50e5b3)
+
+*校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**

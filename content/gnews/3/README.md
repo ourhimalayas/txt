@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|习近平排除异己 为独裁铺路
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2332337/)
+## 职业运动员成为疫苗灾难的主要受害者
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2332451/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月10日，郭文贵先生在大直播中指出，习近平自2012年上台以来，为巩固独裁政权，有计划地排除异己。利用手中的权力，除掉了政治对手、中国富豪以及社会名人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-11-at-9.31.24-AM-1.png)
-首先，为了除掉自己的政治敌人，习近平通过所谓的“反腐”，利用王岐山把郭伯雄、徐才厚、周永康、薄熙来等政治对手清除完毕。再利用“江胡”两家的矛盾，把胡锦涛派系的人全干掉。接着，利用江家和邓家之间的怨气，把邓家派系除掉。
+采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-第二，习近平盯上了中国的所有富豪和寡头，把富豪的财富为自己的家族掌控，把寡头的企业收归国家所有。这些富豪和寡头要么被抓被杀，要么失去人身自由，被限制出境。
+据美国&lt;True Defender&gt;近日报道，自新冠病毒疫苗在全球推广接种以来，已有大量职业运动员因出现心绞痛、心梗塞等严重疾病而被迫停止其职业生涯甚至是死亡。
 
-最后，习近平开始打压社会有影响力的名人，视他们为潜在风险。由于名人的效应，会给社会带来不稳定的因素，只有把这些名人打压下去，才有利于习近平对中国的独裁统治。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1385.png)
 
-此外，习近平在他上任之初，废掉了常委，建立了国家安全委员会，完全听命于他。他利用“斯大林模式”建立起来的体系，通过杀将军、排政治势力、干掉社会名人、抓寡头，最后就剩下他自己，达到独裁统治中国的目的。
+图片来源：[https://thetruedefender.com](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
+最新数据显示，美国至少有769名已接种的职业运动员在比赛中因突发心脏疾病而倒下，其中出现心脏骤停的运动员之平均年龄只有23岁。在欧盟，2021年因突发心脏病而死亡的足球运动员人数比前一年上升了5倍。
 
+报道称，以上不正常现象绝非偶然，许多球队医生已直接将疫苗列为导致运动员病亡的根本原因。此外，众多医学专家此前都曾在当局推出实验性疫苗之前发出过警告：称接种该疫苗会给人体器官带来致命性伤害！
 
+校对编辑：硫酸羟氯喹64
 
-文字版原文：[习近平排除异己 为独裁铺路](https://gnews.org/zh-hans/2325360/)
+发稿：青青
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
 
  
 
