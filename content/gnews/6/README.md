@@ -2,43 +2,22 @@
 ---
 
 
-## 欧佩克因战争下调2022年世界石油需求预测
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2336485/)
+## 樱花时政┃传四名维吾尔人将被遣返，联合国不作为
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336534/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/上善若水
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+近日传出4名维吾尔人在沙特利雅得遭逮捕，并将被遣返中共国，据悉，维族女性阿布拉与她的女儿，3月31日在沙特麦加遭警察逮捕。除了这对母女，将一同被遣返中共国的还有另外两名维吾尔男子，他们2020年在麦加遭警方逮捕后被关押至今。针对两人可能遭沙特遣返回中共国，联合国人权专家4月1日曾发表联合声明，呼吁沙特开放信息，并确定他们的下落。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.hrw.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fopengraph%2Fpublic%2Fmedia_2020%2F11%2F202010MENA_Saudi_G20.jpg%3Fh%3Dc673cd1c%26itok%3D26Bj027m&amp;imgrefurl=https%3A%2F%2Fwww.hrw.org%2Fzh-hans%2Fnews%2F2020%2F11%2F23%2F377113&amp;tbnid=eWLXlOfrkQTZGM&amp;vet=12ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ..i&amp;docid=Q04u4UEkDzoisM&amp;w=1200&amp;h=630&amp;q=%E6%B2%99%E7%89%B9%E9%81%A3%E8%BF%94%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA&amp;ved=2ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/GMPDTCLH75K5PPA5X6LR5CDHSE.jpg)
+海外维吾尔人遭受自由甚至生命风险的同时，联合国人权高管的立场也饱受质疑。联合国人权专员巴切莱特曾传出将于5月访问中共国，并称她可能进入新疆视察人权状况。在此之前，巴舍莱尝试申请视察新疆多年，但中共政府始终未批准申请。
 
+信息来源：[传四名维吾尔人将被遣返中国 联合国遭质疑立场消极](https://www.dw.com/zh/%E5%82%B3%E5%9B%9B%E5%90%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E4%BA%BA%E5%B0%87%E8%A2%AB%E9%81%A3%E8%BF%94%E4%B8%AD%E5%9C%8B-%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E8%B3%AA%E7%96%91%E7%AB%8B%E5%A0%B4%E6%B6%88%E6%A5%B5/a-61443793)
 
-图片来源：路透社
-
-伦敦，4 月 12 日（路透社）——欧佩克周二下调了对 2022 年世界石油需求增长的预测，理由是受俄罗斯入侵乌克兰、原油价格飙升导致通胀上升以及 Omicron 冠状病毒变种在中共国复燃的影响。
-
-石油输出国组织 (OPEC) 在月度报告中表示，到 2022 年，全球需求将增加 367 万桶/日，比之前的预测下降 48 万桶/日。
-
-2 月份的入侵导致油价飙升至每桶 139 美元以上，为 2008 年以来的最高水平，加剧了通胀压力。此后，随着美国和其他国家宣布计划利用战略石油库存以增加供应，原油价格下跌，但仍保持在 100 美元以上。
-
-“虽然预计俄罗斯和乌克兰都将在 2022 年面临衰退，但全球其他经济体也将受到彻底影响，”欧佩克在报告中表示。
-
-“大宗商品价格的强劲上涨，加上中共国和其他地方持续存在的供应链瓶颈和与 COVID-19 相关的物流僵局，都在助长全球通胀。”
-
-即便如此，正如欧佩克预测的那样，第三季度世界石油消费量预计将超过 1 亿桶/日。根据欧佩克的数据，世界上一次使用超过 1 亿桶/日的石油是在 2019 年。
-
-欧佩克表示，通胀是影响世界经济的主要因素，并将今年的经济增长预期从4.2%下调至3.9%，并表示有进一步下调的机会。
-
-欧佩克及其包括俄罗斯在内的盟友组成的一个名为 OPEC+ 的组织正在解除 2020 年实施的创纪录减产措施，并回绝了西方加快增产的压力。
-
-欧佩克预计，2022 年美国致密油供应量将从上个月的 67 万桶/日增加 88 万桶/日，并表示尽管大多数美国石油公司仍在关注资本纪律，但仍有进一步扩张的潜力。
-
-简评：能源国下调了全球的经济增长指数， 这个不用专业人士， 用一般常事就可以判断。 世界在经过2年的病毒大流行大封锁之后， 再加上现在的战争， 情况可能比预测的还要更坏。
-
-🔗 [https://www.reuters.com/business/energy/opec-cuts-2022-world-oil-demand-forecast-due-ukraine-conflict-2022-04-12/](https://www.reuters.com/business/energy/opec-cuts-2022-world-oil-demand-forecast-due-ukraine-conflict-2022-04-12/)
-
-编辑发表： Shuizhuyu
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

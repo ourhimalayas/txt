@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 10:02 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-12<br/>For English：gettr.com/streaming/p14zrmza878
+![img](https://media.gettr.com/group33/origin/2022/04/12/22/c62bc561-fe89-759d-2ae4-a3982bcf3b3f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/12/2022 9:59 PM (UTC)`
+
+【Ukraine Rescue】04/12/22 Introducing the interview with the Belgian Prime Minister, Nicole says: Mr. Prime Minister seemed to know who we are and why we are here. He was very receptive to the message of exterminating the Communist Party clearly conveyed on our hat and vest, and was not surprised at all, as if he was very familiar with us, which means that the NFSC has long gained the attention and acquiescence of the international community.<br/><br/>【乌克兰救援】04/12/22 妮可介绍采访比利时首相的经过：首相先生好像知道我们是谁，以及我们为什么在这里，他对我们的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，感觉好像对我们非常熟悉一样。说明新中国联邦早就获得了国际社会的关注与默认。
+![img](https://media.gettr.com/group47/getter/2022/04/12/21/2956a347-9f24-8236-1e8f-573c7890cef8/out.jpg)
+
+---
+
 `@miles 4/12/2022 9:29 PM (UTC)`
 
 Little Sarah introduces the mission of the New Federal State of China and the Rule of Law Foundation is to take down the Chinese Communist Party (CCP). She says the CCP is the root cause of all the disasters, including this war in Ukraine, because Xi Jinping is collaborating with Putin, economically and militarily. She also says the new Chinese are standing up, standing out, sending their voice to the world, waking up sleeping people, and fighting back the CCP.<br/><br/>正义小Sarah向路人介绍新中国联邦和法治基金的使命是推翻中国共产党。她说中共是所有灾难的根源，包括这场乌克兰战争，因为习近平正在与普京在经济上和军事上合作。新中国人正在站起来，站出来，向世界发声，唤醒沉睡的人们，并向中共反击。
@@ -139,20 +153,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 2022.04.12早  新中国联邦 | 新闻  
 ![img](https://media.gettr.com/group50/origin/2022/04/12/11/c5dcac74-3879-fc77-52cf-2e35abb5211a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 12:14 PM (UTC)`
-
-【Ukraine Rescue】04/11/2022 Volunteer Nicole interviews with a PBS show to introduce the mission of the NFSC to destroy the CCP and its rescue operation, making it clear that the CCP does not represent the Chinese people. Nicole takes the reporter on a tour of the tents of the NFSC. The reporter praises the coffee there and says that if China could get past the CCP's gaming and idiocy leadership, it would be a beautiful new place.<br/><br/>【乌克兰救援】04/11/2022 义工Nicole接受了PBS一档节目的采访，介绍了新中国联邦人灭共的使命和在前线对难民的救助，表明中共不代表中国人。Nicole带记者参观了新中国联邦的帐篷。记者赞叹那里的咖啡，并表示如果中国能摆脱掉中共的纷争和愚蠢的领导，它将是一个美丽的新地方。
-![img](https://media.gettr.com/group22/getter/2022/04/12/12/83be07c8-babb-bc36-d5b8-49de00b22bf3/out.jpg)
-
----
-
-`@miles 4/12/2022 9:40 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group31/origin/2022/04/12/08/0ce7a89b-74b6-8495-f547-28cd17d58f8a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,35 +2,37 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月12日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2336155/)
+## DC每日热点0412
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2336216/)
 
-作者：香草山翻译部
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/04/41B5772C-64E2-4FD5-98AE-FADE2B8A9E52-scaled.jpeg)
+道琼斯指数 34477.70 ▲0.49%
+纳斯达克指数 13563.03 ▲1.13%
+WTI纽约原油CFD 100.537 ▲6.63%
+布伦特原油CFD 104.802▲6.42%
+标普50指数 2,332.11▼52.46%
+美元兑人民币 1USD=6.367 RMB
+美元兑港币 1USD=7.836HKD
+国际黄金 1971.81美元/盎司
+全球CCP病毒感染人数500,300,711例
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-11.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.12早 《NFSC新闻》](https://www.gettr.com/streaming/p14x8oue165)
-[2022.04.12早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14ws418336)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
+1、战争风险增加，台湾军方向民众传授实战生存之道
+2、朝鲜半岛局势紧张之时美国航母作战群抵达附近外海
+3、美国宣布撤离驻沪领馆非紧急工作人员 指责中共防疫官员任意执法
+4、俄罗斯宣称摧毁多个乌克兰防空系统， 泽连斯基警告乌东大战在即 呼吁西方加大军援
+5、中共国欧盟商会敦促中国改变防疫政策
+6、拜登与莫迪举行视频会谈 乌克兰为重点议题，敦促印度不要购买俄产品
+7、香港民间组织及大专生快闪声援乌克兰 呼吁港人支持国际反战运动
+8、法国前总统萨科齐表白 第二轮投票支持现任总统马克龙
+9、美国总统拜登初定5月24日左右访问日本
+10、中共国与所罗门群岛安全协议：澳大利亚部长赴所罗门群岛再谈
+11、普京前顾问：西方国家停止购买俄能源，战争将结束
+12、德外长敦促对乌提供重型武器 德企：若政府同意准备好提供多达50辆豹1坦克
+13、法国驱逐六名俄罗斯间谍
+14、中华民国副总统赖清德接见瑞典访团 盼欧盟台湾签投资协定
+15、加拿大针对俄国防工业实施新一轮制裁，对象为俄国国防部门的33个实体
+16、12年来首见，中美10年期国债利差2010年以来首次出现倒挂现倒挂
 
  
 
