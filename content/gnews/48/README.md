@@ -2,34 +2,36 @@
 ---
 
 
-## 上海外地人 挨饿看病难
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2333349/)
+## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
 
-**撰稿：日本东京方舟农场  子辰**
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
 
-近期，上海疫情肆虐，中共采取极端封控措施，致使在沪外地人生活艰辛。很多到上海看病或打工的外地人因为封城处境悲惨，有人已经挨饿两天，没饭吃。
+本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-15.jpg)（图片来自大纪元）
 
-辛女士在3月1日陪伴先生从外地到上海看病，原定3月29日动手术。她一直在宾馆等，想做陪护。很不幸的是，她在医院测出阳性后被赶出来，没人管，现在流落上海街头。
 
-辛女士说，“自己在外面流浪了两三天，都没吃饭，又没睡觉，白天太阳晒，晚上风大，冷得要死。我求助了，推来推去，要我等。我要求把我送到方舱，就是不肯。”
+> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
+> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
 
-辛女士说，她一点症状都没有，后来被送到宾馆隔离，因为没钱，和另一个同为外地来的合住一个房间，一天178元。在宾馆检测核酸是阴性的，但没有吃的。
 
-姚先生3月底到上海找工作，他说，“已经找到了，做了两三天，就突然被隔离，从1号开始隔离的，当时就点不了餐了，现在到处都找不到吃的，我已经两天没吃饭了。网上买东西，9号订购的，现在都要到14号才能收到。”
 
-另一名患有癫痫病的外地人胡先生告诉记者，他需要吃一种名为“拉考沙胺”的药，因为疫情，买不到药，曾求助12345等单位，都没有结果。
+未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
 
-胡先生说：“现在需要这个药，因为这是一种相对比较新的药，大部分医院和药店都没有，我来上海以后，找到了一个药房可以买，现在因为封城，那个药房也没有药，而且不发货了。网上有这个药，但是网上的药都不往上海发了，我现在手边药也不多了。”
+外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
 
-此外，有网友发微博说，外地人捐的物质，不发给外地人。他们当地的转手将这些物资再高价卖给当地上海人。此前有视频曝出，在沪外地人在上海领不到配发物资，因为你是外地人。
+此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/11/n13709485.htm](https://www.epochtimes.com/gb/22/4/11/n13709485.htm)
+本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
 
-总编：老孙
-校对发布：文曦
+來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

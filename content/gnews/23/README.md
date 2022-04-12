@@ -2,49 +2,28 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336051/)
+## 乌克兰妇女性侵报告增加 当地团体：“侵略者把性侵妇女当作武器”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336157/)
 
-翻译：土饭团
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-43.jpg)
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+联合国安全理事会4月11日举行关于俄罗斯军队继续军事入侵的乌克兰局势的会议，讨论战时对妇女和儿童的影响。联合国妇女组织秘书长西马·巴霍斯出席了会议，并表明乌克兰暴力侵害妇女和性暴力的报告正在增加。
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/m_20220412-567-OYT1T50072.jpg)图片来源网络
 
-**1.[美国国务院命令工作人员离开上海，警告对COVID-19的限制“任意执法”](https://www.foxnews.com/world/chinas-zero-covid-strategy-failing-covid-shanghai-u-s-warns-against-travel)**
+巴霍斯女士没有提及案件数等更具体的信息，但强调“需要进行独立的调查”。
 
-福克斯新闻4月11日电，国务院周一下令所有非紧急领事人员及其家属离开上海，该命令发布前几天，国务院警告美国人不要到中共国部分地区旅行，因为“当地法律的任意执行和与COVID-19有关的限制”，甚至是“父母和孩子被分开的风险”。前疾控中心主任Robert Redfield博士表示，在中共国发生的事情实际上可能“被严重低估”。
+在线参加的当地市民团体代表解释说，有9起俄军士兵暴力性侵妇女的举报，12名妇女和少女遇害。在此基础上，他们还指出“(通报的案件)只是冰山一角。来自俄罗斯的侵略者将对妇女的暴行作为战争武器“。
 
-**2.[Biden表示美国和印度在管理俄罗斯对乌克兰战争的“不稳定”影响方面进行了“密切磋商”](https://www.foxnews.com/politics/biden-us-india-close-consultation-managing-destabilizing-effects-russia-war-ukraine)**
+俄罗斯驻联合国第一次席大使否认了俄军的参与，称“（他们）试图将俄军士兵塑造成施暴犯”。他说，有消息称，围绕乌克兰的性暴力不仅涉及俄军，也涉及乌克兰军队和民兵，联合国正在就此进行确认。
 
-福克斯新闻4月11日电，美国总统Biden周一与印度总理Narendra Modi举行了虚拟会议，美国和印度在管理俄罗斯对乌克兰的战争所造成的“不稳定”影响方面正在进行“密切磋商”，并表示美国和印度“拥有强大和不断发展的主要防务伙伴关系”。白宫表示，Biden和Modi“致力于通过清洁能源、技术和军事合作以及扩大经济和民间联系来加强美印关系。”
-
-**3.[Naomi Wolf: COVID-19是法西斯暴政的幌子](https://www.foxnews.com/media/naomi-wolf-covid-19-cover-fascistic-tyranny)**
-
-福克斯新闻4月11日电，作家Naomi Wolf周一在“Tucker Carlson Tonight”节目中讨论了发生在中共国上海的“动态清零”封锁事件的全球影响。现在，有了这个剧本，没有什么可以防止这种镇压封锁在美国城市再次发生，鉴于极权主义的历史，没有理由相信中期选举会在没有紧急情况的情况下被允许展开，而中期选举会给Biden政府带来巨大的失败。
-
-**4.[美国国防部长和Rajnath Singh在五角大楼讨论中共国和俄罗斯问题](https://www.aninews.in/news/world/us/us-defense-secy-rajnath-singh-discuss-china-russia-at-pentagon20220412054227/)**
-
-ANI 4月12日电，美国国防部长Lloyd Austin周一在五角大楼接待了印度国防部长Rajnath Singh，就两国之间发展防务伙伴关系进行了会谈。五角大楼在一份新闻稿中说，讨论的主题将包括中共国和俄罗斯在该地区和世界各地造成的问题。稍后，他们将前往国务院，与国务卿Antony-J-Blinken和印度外交部长S-Jaishankar一起进行所谓的“二加二”会谈。
-
-**5.[人权活动家敦促美国停止进口在中共国强迫劳动制造的产品](https://www.aninews.in/news/world/asia/human-rights-activists-urge-us-to-stop-imports-of-products-made-with-forced-labour-in-china20220410035019/)**
-
-ANI 4月10日电，人权活动家、劳工领袖和其他人士敦促美国阻止进口在中共国新疆地区强迫劳动制造的产品，这些团体周五敦促Biden政府，称奴役和胁迫贯穿该地区和中共国广泛的公司供应链。Biden总统12月曾签署一项法律，即《防止强迫维吾尔人劳动法》，该法律将于6月生效。对该法律的广泛解释可能会使美国从中共国进口的许多产品受到审查，而中共国的制造业占全球四分之一以上。
+参考链接：[ウクライナで性暴力の報告増加、地元団体「侵略者は婦女暴行を戦争の武器に」(読売新聞) – goo ニュース](https://news.goo.ne.jp/article/yomiuri/world/20220412-567-OYT1T50072.html)
 
 * * *
 
-审核：阿伯塔
-校对：信心满满
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+审核：Bryan
+发稿：宫米叶
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

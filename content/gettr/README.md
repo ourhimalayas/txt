@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 9:29 PM (UTC)`
+
+Little Sarah introduces the mission of the New Federal State of China and the Rule of Law Foundation is to take down the Chinese Communist Party (CCP). She says the CCP is the root cause of all the disasters, including this war in Ukraine, because Xi Jinping is collaborating with Putin, economically and militarily. She also says the new Chinese are standing up, standing out, sending their voice to the world, waking up sleeping people, and fighting back the CCP.<br/><br/>正义小Sarah向路人介绍新中国联邦和法治基金的使命是推翻中国共产党。她说中共是所有灾难的根源，包括这场乌克兰战争，因为习近平正在与普京在经济上和军事上合作。新中国人正在站起来，站出来，向世界发声，唤醒沉睡的人们，并向中共反击。
+![img](https://media.gettr.com/group13/origin/2022/04/12/21/d955e117-d660-4c8d-4fbd-c490d21f4f71/out.jpg)
+
+---
+
 `@miles 4/12/2022 8:44 PM (UTC)`
 
 2022.04.12  新中国联邦 | 喜健康     瘟疫已到，饥荒还远吗？
@@ -146,13 +153,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group31/origin/2022/04/12/08/0ce7a89b-74b6-8495-f547-28cd17d58f8a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 7:55 AM (UTC)`
-
- <br/>新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group8/origin/2022/04/12/05/a71bc482-15d0-7129-3b07-751247de679f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
