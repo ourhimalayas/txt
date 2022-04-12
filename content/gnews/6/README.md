@@ -2,41 +2,31 @@
 ---
 
 
-## 欧盟商会致信敦促中共国修改防疫政策
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2333934/)
+## 中共国向塞尔维亚派出大型军机
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2333953/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-231.jpg)
-图片来自网络
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-《路透社》近日报道，中国欧盟商会周一表示，它已致函中国国务院，详细说明其防疫控制措施如何扰乱了欧洲公司，并敦促其修改政策，例如允许对一些新冠患者居家隔离。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-在4月8日写给中国国务院和胡春华副总理的信（路透社看到了该信的副本，并得到了商会的确认）中，商会说，”大规模测试和隔离的老办法 “无法克服奥米克戎变体带来的挑战。
 
-由商会主席乔格-伍特克签署的这封信说：”目前为试图控制最近在中国爆发的新冠疫情而采取的措施正在造成重大干扰，从物流和生产一直延伸到中国境内的供应链。这封信没有公开发表。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Serbia-Chinese-Missiles.jpg)
 
-它补充说，中国德国商会在前一周进行的一项快速调查显示，51%的德国公司的物流和仓储以及46%的德国公司的供应链 “完全被中国当前的防疫政策所扰乱或严重影响”。
 
-该商会建议修订中共国的防疫措施，包括允许无症状或症状轻微的阳性病例在家中隔离，并让中国民众获得mRNA新冠疫苗。
+资料来源：美联社  六架中共国运20军用运输机已降落在塞尔维亚
 
-中国国务院没有立刻回复路透社的询问。
+据说现代防空导弹已在机上——它们将是欧洲第一批中共国人。 这些飞行引起了军事界的关注。 似乎北京想在乌克兰战争期间武装巴尔干半岛。
 
-“欧盟商会发言人说：”欧盟商会正在与有关当局保持联系，并期待着尽早跟进信件的内容。
+六架巨大的中共国运 20 军用运输机最初在两次任务中向塞尔维亚运送了未公开的货物。 军事专家一致认为，这是北京现代 HQ-22 防空系统的出口版本，命名为 FK-3。 随着防空系统的投入使用，中共国大型火箭技术将首次进驻欧洲。 这在地缘政治上很棘手。
 
-中国对新冠采取“动态清零“战略，寻求对所有阳性病例进行检测、追踪和集中检疫，并在上海和东北的吉林省实行封锁，试图杜绝最近的爆发。
+简评：早在几个星期前， 郭先生就已经警告过， 中共运送了红旗导弹系统到塞尔维亚， 今天欧洲人都在关注六架运20运输机已经降落在了塞尔维亚。 而且上面有红旗22防空系统。 塞尔维亚不是北约成员国， 而位置在欧洲的腹地， 对于欧洲和北约来说都是巨大的威胁， 中共已经明确的表示支持俄罗斯的侵略行动，希望欧洲人能够引起足够的重视。
 
-封锁措施迫使工厂要么停止运营，要么通过 “闭环 “运作，即选定的员工留在现场，以保持生产线的运行，同时限制外部运输。然而，即使是一些闭环操作也受到了影响，因为很多供应商被迫关闭了生产线。
+红旗系统是使用北斗系统， 那么想破坏红旗的运行应该不是很困难的事情。 让红旗系统没有眼睛，相信欧洲是可以做到的。
 
-外国人还是低估了中共的邪恶，更不会理解习近平会用自毁长城的方式来做极限压力测试，准备攻台的同时利用供应链打散全球经济，中共不灭，世界永无宁日。
+🔗[https://www.welt.de/wirtschaft/plus238133399/Flugabwehrsystem-HQ-22-Chinas-Raketen-Lieferung-fuer-Serbien-wirft-Fragen-auf.html](https://www.welt.de/wirtschaft/plus238133399/Flugabwehrsystem-HQ-22-Chinas-Raketen-Lieferung-fuer-Serbien-wirft-Fragen-auf.html)
 
-参考链接：
+责任编辑、发布： Shuizhuyu
 
-[https://www.reuters.com/world/china/european-business-chamber-writes-chinas-state-council-challenges-covid-policy-2022-04-11/](https://www.reuters.com/world/china/european-business-chamber-writes-chinas-state-council-challenges-covid-policy-2022-04-11/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

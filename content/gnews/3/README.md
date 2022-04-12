@@ -2,55 +2,38 @@
 ---
 
 
-## 维州的小学生在第二学期将不再需要在教室里戴口罩
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2333962/)
+## 台湾首次向民众发布战争生存指南
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-232.jpg)图片来自网络
-《卫报》近日报道，如果新冠病例继续稳定，维多利亚州小学适龄学生的口罩要求预计将在第二学期取消，因为州政府重新考虑了该州的所有限制。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
+当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
 
-该州周二记录了12例死亡和10293个新病例，比周一的9597个感染病例略有增加–同时有376人因该病毒住院，包括19人接受重症监护。
+据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
 
-卫生部长马丁-弗里在宣布放宽对游轮乘客和选民的限制时说，当该州在本月晚些时候达到奥米克戎BA.2的高峰，病例数开始趋于平稳时，他将 “重新考虑所有卫生命令”。
+尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
 
-如果流行病状况如预测的那样，政府预计在4月26日开始的第二学期，3至6年级的学生将不再被要求在教室里戴口罩。
+reference：
 
-弗里说：”我们目前实施的限制措施是自新冠大流行病开始以来最少的，而且在病例高峰期之后，可以对已实施的合理设置进行审查。
+[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-自第一学期开始以来，整个政府学校有73097名学生和8275名教职员工报告说，他们的新冠检测呈阳性。
+民防手册下载地址
 
-维多利亚州政府学校的出勤率约为89%，而新南威尔士州的出勤率为80%，2月和3月，奥米克戎的亚变体BA.2在学校中激增。
+[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
 
-周二早些时候，该州总理丹尼尔-安德鲁斯表示，一旦最新的疫情达到顶峰，接种疫苗的经济、二维码和对新冠病例密切接触者的隔离要求可能会被取消。
+撰稿、发布：骄子
 
-他说：”一旦我们过了高峰期，一旦我们开始看到这些数字下降，我们就会有现在没有的选择，”。
+* * *
 
-“在病例数上升的时候减少规则，这可能不是一件明智的事情。但是一旦它们开始减少，我们认为这将是相当快的，我们将有可用的选择。”
+欢迎订阅我们的GNews账号：
 
-根据维多利亚州、新南威尔士州和昆士兰州一致的新游轮协议，所有12岁及以上的乘客都需要接种两剂新冠疫苗才能旅行，而船员则需要接种三剂。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-乘客需要在登船前进行阴性测试，而船员将每14天或在有症状时进行测试，并要求在任何时候都戴口罩，但在房间里时除外。
-
-乘客在上船和下船时，或在室内不能有社交距离时，也需要戴上口罩。
-
-维多利亚州政府还确认，新冠疫苗接种要求将不适用于即将举行的联邦选举中作为投票站的任何场所。
-
-这些变化在周二晚上11点59分生效，在澳大利亚的游轮禁令本月晚些时候结束和5月21日联邦选举之前。
-
-政府还将澄清，密切接触豁免适用于与旅客旅行有关的航空运输服务人员，如飞行员、机组人员、机场保安和行李处理人员，这意味着没有症状且快速抗原测试结果为阴性的工作人员可以参加工作。
-
-工作人员将需要进行为期五天的快速测试，并且在不工作时必须继续遵守隔离规则。
-
-这是在工作人员短缺导致墨尔本机场排长队之后发生的。
-
-参考链接：
-
-[https://www.theguardian.com/australia-news/2022/apr/12/primary-school-children-in-victoria-set-to-no-longer-have-to-wear-masks-in-the-classroom-in-term-2](https://www.theguardian.com/australia-news/2022/apr/12/primary-school-children-in-victoria-set-to-no-longer-have-to-wear-masks-in-the-classroom-in-term-2)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
