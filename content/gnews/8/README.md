@@ -2,33 +2,38 @@
 ---
 
 
-## 谈古论今 | 指鹿为马和上海封城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2333321/)
+## 加拿大对俄罗斯国防工业实施新一轮制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333377/)
 
-撰稿：东京樱花团/谈古论今
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-78.jpg)[图片来源](https://asia.nikkei.com/Spotlight/Asia-Insight/Shanghai-s-extended-COVID-lockdown-highlights-China-s-hazy-exit-path)
+#### 【雅典娜快讯】紧贴时代脉搏
 
-指鹿为马的成语故事尽人皆知，宦官赵高先是将胡亥推上了秦二世皇位，接着又设计害死了李斯做了丞相。下一步打算篡位自己当皇帝，担心文武百官不服，于是就做“心理压力测试”和“忠诚度测试”。在大庭广众之下指鹿为马，大臣们明知是鹿但为了活命只能曲意逢迎说是马，刚直不阿说实话的大臣都被杀了头——群臣就这样“被和谐”了，“换届选举丞相”就再无悬念了。
+#### 整理：等风来
+编辑：朝花夕拾
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-31.png)图片来源：雅典娜设计组
 
-历史随着时间的推移应该是进步的，历史进步的标志是文明开化的程度，所谓文明开化应该是人性的解放、对人性的尊重。人性的具体标志就是生命，所以，生命财产能有安全保证、人的生活和思想可以自由不受他人压迫控制就是文明。从公元前221年秦始皇称帝开始，到1916年袁世凯称帝为止，两千一百多年里更替了83个王朝，在位过的皇帝有422人。其实应该再加上中共朝毛大帝和习大帝。那么，中国的文明进步了吗？没有。不但没有前进甚至是在倒退！
 
-中共元年之前，中共长春围城饿毙几十万平民。中共元年之后，三年饿饭又活活饿死几千万人。如此视人命如草芥，达到了历史之最，谈何文明？亩产万斤粮以及全民大炼钢铁等等闹剧丑剧荒诞剧，明知是劳民伤财祸害百姓的荒诞谎言，可中共从上到下人人都睁着眼睛说瞎话，和今天上海封城防疫还在上演着的无数大大小小的的“指鹿为马”，一而再再而三重演了短命秦朝的“指鹿为马”——明知没完没了的全民核酸荒诞无稽，明知封城封路是自杀自残，可中共的高层到基层，从高官到屁民大白们，一个比一个残忍，一个比一个荒诞。那么，中共如此荒唐的意图到底是什么呢？
+2022年04月11日报道，为[制裁俄罗斯](https://www.epochtimes.com/gb/tag/%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF.html)入侵邻国乌克兰，[加拿大](https://www.epochtimes.com/gb/tag/%E5%8A%A0%E6%8B%BF%E5%A4%A7.html)又针对俄罗斯国防工业施加了限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-60.jpg)
+[加拿大](https://www.epochtimes.com/gb/tag/%E5%8A%A0%E6%8B%BF%E5%A4%A7.html)外交部长赵美兰（Mélanie Joly）表示，加拿大对俄罗斯的最新一轮制裁针对的是俄国国防部门的33个实体。
 
-中共高层是在做高压管控韭菜的心里压力测试、对内超限战镇压的实战演练，目的是让老百姓习惯和服从彻底的独裁统治，习大帝则在做“群臣忠诚度测试”。羊不可能读懂狼的心理，可怜的、无知的、愚蠢的社会基层小酷吏和底层的草民之间则开启了疯狂的互害模式、单方向施害模式、相互仇害模式。这，就是中国的现状。
+赵美兰说，这些组织直接或间接地向俄罗斯军方提供了支持，它们是在乌克兰发动无理战争的普京的同谋，共同制造了痛苦和苦难。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+这些制裁包括，冻结莫斯科物理技术研究所、Integral SPB和Shipyard Vympel JSC等实体的资产，并实施禁令。
+
+自俄罗斯于2月24日发动对乌克兰的战争以来，加拿大已对俄罗斯、乌克兰和白俄罗斯的七百多名个人和实体实施制裁。
+
+赵美兰说，加拿大一直并将永远支持乌克兰，今天的措施是坚定支持乌克兰及其人民的最新例证。并表示要追究那些应该对暴行负责的人的责任。
+
+参考链接：[加拿大对俄罗斯国防工业实施新一轮制裁](https://www.epochtimes.com/gb/22/4/11/n13708784.htm)
+
+发布：*wenly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

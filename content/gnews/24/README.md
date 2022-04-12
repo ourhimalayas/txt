@@ -2,27 +2,27 @@
 ---
 
 
-## 台湾｜无预警联翔操演 国防部“测试”防空接战能力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333163/)
+## 俄乌战争｜车臣“战争狂人”称俄军将攻陷基辅
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333171/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-台北12日清晨5点，禁航战机的台北市上空有战机飞越并盘旋，后经军方回应，证实为国军例行的“联翔操演”，无预警派遣F-16、IDF、AH-64E等型机扮假想敌演练，强化对重要目标防护战力。“联翔操演”，旨在空军对各空军基地反应接战与制敌空袭进行测试。本次演习采实兵不实弹的演练，防守方在假想敌军机接近驻地时，须拟真完成应敌程序。
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜車臣「戰爭狂人」稱俄軍將攻陷基輔.jpg)
 
-网友于脸书社团发文表示“一大早怎么有战机开过来啊？俄罗斯战机开过来了吗？”“有清楚听到但没有看到”、“有听到…很大声在北边松机方向”。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-国防部发言人孙立方表示，上午这项演习民众相当关切，国防部为检测国军联合舰队、基地要港、野战防空应对能力及接战程序，并检视防空作战指挥及兵力运用，在清晨执行“整体防空作战计划演练”，操演状况均正常。
 
-演練主要由花蓮、嘉義F-16戰機扮演假想敵，模仿共軍在戰時對台可能空襲航線飛行，以無預警方式測驗防空部隊反應，為了避免影響民航，因此該演習都在清晨5點半到8時前進行。
+俄罗斯车臣共和国总统卡德罗夫（Ramzan Kadyrov）周一（11日）表示，俄罗斯军队在夺取乌东顿巴斯地区（Donbas）以后，还将对基辅及其他乌克兰城市发起进攻。
 
-又同日，国防部疑似受到俄乌局势影响，改变过去“避免触及民间战备”的态度，发布“全民国防手册”(范本)，为提供民众面临军事危机及可能发生之灾难时相关紧急应变资讯，并开始向民间释放应居安思危的讯号。（[详细](https://gnews.org/zh-hant/2332680/)）
+卡德罗夫指出，俄军未来除了乌克兰南部重镇马里乌波尔（Mariupol），亦会向其他城市和村庄发动攻势。这位被外界称为“战争狂人”的卡德罗夫强调，“我可以保证，普京一步都不会退让，拿下基辅是毫无疑问的。”。
 
-来源｜[今日新聞](https://www.nownews.com/news/5772583)、台湾国防部消息
+车臣自俄乌开战初期就已派遣部队协助俄军，其后被揭露损伤惨重，就连车臣军队第二号人物图沙耶夫（Magomed Tushayev）亦被传阵亡。
+
+來源｜[路透社](https://www.reuters.com/world/europe/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-2022-04-11/)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
