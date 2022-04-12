@@ -2,25 +2,36 @@
 ---
 
 
-## 重型武器供应缺乏：泽伦斯基称无法解除对马里乌波尔的封锁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2333571/)
+## 泽连斯基呼吁南韩提供军事武器援助乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333719/)
 
-**撰稿：日本东京方舟农场 北极**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据焦点报4月12日报道，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）当天发表讲话，敦促西方增加对乌克兰的重型武器供应，以解除对马里乌波尔（Mariupol）的封锁。
+#### 整理：等风来
+编辑：JH
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-8.jpeg)重型坦克图片。（图片来自焦点报）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片38-3.png)图片来源：三立新闻网
 
-泽伦斯基表示，如果重型武器供应充足，那么就可以进行解除马里乌波尔封锁的行动。“西方不要再推迟武器供应了。如果火炮，装甲车和飞机足够，我们的士兵将轻而易举地击溃敌人。” 泽伦斯基强调说。
 
-欧洲最大的冶金工厂之一——亚速斯塔尔钢铁厂（Azovstal）就位于马里乌波尔境内。该企业同时向全球半导体企业尤其是芯片生产厂提供重要的原料——氖气。
+2022年4月11日韩联社报道，乌克兰总统泽连斯基向南韩国会发表视频演说，他要求韩国提供军事武器支援，以协助乌克兰抵御俄国的侵略。
 
-参考链接：
-1. [https://reurl.cc/mGe5ol](https://reurl.cc/mGe5ol)
-2. [https://reurl.cc/DdWQXE](https://reurl.cc/DdWQXE)
+泽连斯基表示，韩国可以帮助乌克兰，韩国拥有可以阻止俄国船舰和导弹的军事武器。
 
-总编： 老孙
-校对发布：文曦
+据悉，乌克兰3月初曾向包括韩国在内的各国请求提供军事及人道主义援助。除了非武器物资外，乌方请求援助的物资还包括步枪、反坦克炮等杀伤性武器。
+
+路透社报道，泽连斯基在演说中还提到，俄国威胁到全欧洲，不仅只有乌克兰。俄国也正在集结数以万计的军队发动下一次攻击。
+
+他更说，乌克兰东南部港市马立波（Mariupol）可能有数以万计的人们遭杀害，除非俄国被迫停止，否则他们不会罢手，如果乌克兰要在这场战争中存活下来，会需要更多帮助。
+
+参考链接：[泽连斯基呼吁南韩提供军事武器援助乌克兰](https://www.setn.com/news.aspx?newsid=1098623)
+
+发布：*wenly*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
