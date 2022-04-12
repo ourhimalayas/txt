@@ -2,27 +2,25 @@
 ---
 
 
-## 《在线新闻法》将加强监控独立媒体言论内容
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331517/)
+## 加拿大保守党将力推加密货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331654/)
 
-采编：加拿大温哥华扬帆农场 – UCool 优酷
+采编撰稿：   加拿大温哥华扬帆农场 – 文莱
 
-加拿大温哥华扬帆农场 – 编译： 晨熹
+据自媒体【后千禧年】4月9日报道，加拿大保守党总理候选人波利耶夫在多次表示将推行加密货币后，当天再次宣布，保守党在执政后将取消对数字货币慈善捐款的所有税收。
 
-据【反叛新闻】4月7日报道， 为规范加拿大数字新闻机构及其在线共享内容，严格监管独立媒体的言论传播，特鲁多自由党最近向议会提交了《在线新闻法案》。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1344.png)图片来源：[https://www.rebelnews.com](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1352.png)图片来源：https://cryptocurrencynews.com/
 
 
-据悉，该法案还将同时赋予[加拿大广播电视公司]对数字媒体平台及其信息内容进行监管和分享的权力，以禁止其他在线新闻机构能自由地对该公司进行合法的批评。
+对此，保守党政府将实施私人成员法案，以确保加密货币被视为股票和债券。因此当数字货币持有者向注册的加拿大慈善机构捐款时，可不受资本所得税的约束。此举将激励持有数字货币的公民进行慈善捐赠，同时加速加拿大成为区块链之都的前景。
 
-此外，[加拿大广播公司]还可以向特鲁多政府的相关委员会提出投诉。当局则将授权此前由自由党内阁推荐并任命的总督玛丽西蒙，负责在评议会上向该委员会对该法案做出最终解释。
+报道称，保守党坚持加拿大人应该自由使用其他类型的金融产品，特别是发展数字货币交易市场，并认为这将使人们更好地控制个人财务，并大量释放加拿大人的消费积极性。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://www.rebelnews.com/new\_bill\_will\_grant\_cbc\_special\_privileges\_while\_regulating\_independent\_media](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+新闻来源： [BREAKING: Poilievre vows to remove taxes on charitable crypto donations if elected | The Post Millennial](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
 
  
 

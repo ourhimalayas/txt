@@ -15,143 +15,143 @@
 
 ---
 
-### [樱花时政┃拜登总统期待下月访日，实现首次亚洲之行](/content/gnews/1/README.md)
+### [2022年4月12日《樱花快报》：俄罗斯入侵以来 超450万难民逃离乌克兰](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/2/README.md)
+### [2022年4月12日《樱花简报》：日本首相表明对乌提供人道援助与资金合作](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生2022年4月11日盖特视频（9分10秒）全文字版](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃加密货币基金创1月以来最大流出](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃拜登总统期待下月访日，实现首次亚洲之行](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大白们，大五毛都被抛弃了&#8230;&#8230;](/content/gnews/6/README.md)
+ ` 银河勇气之星`
+
+### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–莫德纳疫苗要了我半条命](/content/gnews/3/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.12)–莫德纳疫苗要了我半条命](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G系列永远属于战友属于新中国联邦](/content/gnews/4/README.md)
+### [G系列永远属于战友属于新中国联邦](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大](/content/gnews/5/README.md)
+### [4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯抱怨土耳其销售无人机](/content/gnews/6/README.md)
+### [俄罗斯抱怨土耳其销售无人机](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系](/content/gnews/7/README.md)
+### [4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共加速建造导弹发射井，储备打击美国本土的远程导弹](/content/gnews/8/README.md)
+### [中共加速建造导弹发射井，储备打击美国本土的远程导弹](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大BC省取消疫苗护照政策](/content/gnews/9/README.md)
+### [加拿大BC省取消疫苗护照政策](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大保守党将力推加密货币](/content/gnews/10/README.md)
+### [加拿大保守党将力推加密货币](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [“群体免疫”的瑞典做得如何？](/content/gnews/11/README.md)
+### [“群体免疫”的瑞典做得如何？](/content/gnews/16/README.md)
  ` 加拿大温哥华英里农场`
 
-### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/12/README.md)
+### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–二针辉瑞疫苗，严重皮肤问题](/content/gnews/13/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.12)–二针辉瑞疫苗，严重皮肤问题](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–第三针疫苗直接打趴下](/content/gnews/14/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.12)–第三针疫苗直接打趴下](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/15/README.md)
+### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠病毒感染率飙升，“长期新冠”威胁经济](/content/gnews/16/README.md)
+### [新冠病毒感染率飙升，“长期新冠”威胁经济](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [大直播后记：七哥谈新中国联邦人要团结，不能以农场来划分](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/18/README.md)
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/22/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/19/README.md)
- ` 扬帆枫叶快讯`
-
-### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/20/README.md)
+### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [大直播后记：七哥聊文明及信仰](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [右手墨迹｜沪上尽血泪——防疫为了谁](/content/gnews/22/README.md)
+### [右手墨迹｜沪上尽血泪——防疫为了谁](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [加拿大BC省取消疫苗护照政策](/content/gnews/23/README.md)
+### [加拿大BC省取消疫苗护照政策](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀](/content/gnews/24/README.md)
+### [乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀](/content/gnews/26/README.md)
  ` 蓝莲花农场`
 
-### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/25/README.md)
+### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [援乌营地善良细心的Mia姐](/content/gnews/26/README.md)
+### [援乌营地善良细心的Mia姐](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大保守党将力推加密货币](/content/gnews/27/README.md)
+### [加拿大保守党将力推加密货币](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/28/README.md)
+### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/29/README.md)
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中国人的勇气在哪里](/content/gnews/30/README.md)
+### [中国人的勇气在哪里](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/31/README.md)
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄乌战争“没想到”系列之五：](/content/gnews/33/README.md)
+### [俄乌战争“没想到”系列之五：](/content/gnews/34/README.md)
  ` 蓝莲花农场`
 
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/34/README.md)
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/35/README.md)
  ` 蓝莲花农场`
 
-### [截至4.11 俄乌战事汇总](/content/gnews/35/README.md)
+### [截至4.11 俄乌战事汇总](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/36/README.md)
+### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/37/README.md)
+### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/38/README.md)
+### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/39/README.md)
+### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共内应在台湾妈祖绕境活动中故意滋事](/content/gnews/40/README.md)
+### [中共内应在台湾妈祖绕境活动中故意滋事](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [德国国防部长：军火库存告罄 下一步军援乌克兰细节保密](/content/gnews/41/README.md)
+### [德国国防部长：军火库存告罄 下一步军援乌克兰细节保密](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [广州疫情迅速升级 面临封城](/content/gnews/42/README.md)
+### [广州疫情迅速升级 面临封城](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/43/README.md)
+### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/44/README.md)
+### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/45/README.md)
+### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [加拿大央行上调银行同业拆借利率](/content/gnews/46/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [大锅饭2.0｜中共国务院：加快建设全国统一大市场](/content/gnews/47/README.md)
  ` 關注組`

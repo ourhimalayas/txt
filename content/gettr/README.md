@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 2:03 AM (UTC)`
+
+2022.04.11  新中国联邦 | 喜财经  美国漂亮就业数据下的隐忧；脱钩还脱吗？关门加快
+![img](https://media.gettr.com/group6/origin/2022/04/11/02/1355a04b-0807-2767-5b7d-925e71745439/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/12/2022 1:48 AM (UTC)`
 
 4/10/2022 Miles Guo: Merkel and Sarkozy are the CCP's running dogs and the war-criminal politicians! They coupled the German and French economies with that of Communist China and Russia, and they are the culprits who put Ukraine, Taiwan, and Hong Kong in danger. A case will be filed against Merkel in Germany. Sarkozy took money from the CCP and sold out both Ukraine and Hong Kong. It was France and Germany that backed the CCP to host the 2008 Summer Olympics.<br/><br/>4/10/2022 文贵直播：默克尔和萨科齐是中共走狗和战犯级的政客！他们将德法的经济跟中俄挂钩，且把乌克兰、台湾和香港置于危险境地的罪魁祸首；德国要对默克尔立案调查；萨科齐收了中共的钱，出卖了乌克兰和香港；法德曾在背后力挺中共办08年奥运会<br/>
@@ -152,12 +159,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 
 4月11号：天赐新中国联邦【封锁时间：21天<br/>资产阶层：亿级<br/>教育程度：硕士-博士<br/>行业：金融、房地产<br/>城市：上海<br/>政治意识：大多数声音还是觉得要和美国干🤦‍♀️，认为习的方法太蠢，有更聪明的办法,  应该有两种声音。他们乐见全球供应链崩塌，美元崩塌😡<br/><br/>对“清零政策”看法：这帮人都比老百姓预先储备了更多的粮食，也有特殊渠道买到东西，他们还没有挨饿的感受，只是生活不自由，原来享受的物质生活有打折，公司收入下降。<br/><br/>恐惧指数：3级，害怕邻居感染，影响自己，或者被邻居举报，意识到以往的学历财富不能保护自己了。<br/><br/>希望指数：9级，认为习的清零政策证明无效而且愚蠢，没达到大量消灭人口的目的，还聚集了怨气，肯定很快放弃，马上就会解封了<br/><br/>灭共第七人真的只能靠习加速师🌞吗？七哥您就牵着牛鼻子🐮继续吧。】
 ![img](https://media.gettr.com/group3/getter/2022/04/11/16/38d90704-ebcc-8ae3-08de-23c81e9e360d/1c7fff4d91567e26c5d6400ba3f5e0f5.jpg)
-
----
-
-`@miles 4/11/2022 4:47 PM (UTC)`
-
-04/11/2022 on the 8th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on New Zealand 🇳🇿, Singapore 🇸🇬, Cambodia 🇰🇭, Malta 🇲🇹 Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Mongolia 🇲🇳, Fiji 🇫🇯 , Spain 🇪🇸, Germany 🇩🇪 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 , Malta 🇲🇹 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts and Rock Song Charts<br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Fiji, Laos, Spain, Malta, Germany 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2329340/<br/>
 
 ---
 
