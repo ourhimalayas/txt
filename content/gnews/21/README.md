@@ -2,23 +2,23 @@
 ---
 
 
-## 俄乌战争｜车臣“战争狂人”称俄军将攻陷基辅
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333171/)
+## 俄乌战争｜俄罗斯外长：对乌克兰军事行动不会停止
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333180/)
 
 **图/文｜CP**
 **发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜車臣「戰爭狂人」稱俄軍將攻陷基輔.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜俄羅斯外長：對烏克蘭軍事行動不會停止.jpg)
 
 [点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-俄罗斯车臣共和国总统卡德罗夫（Ramzan Kadyrov）周一（11日）表示，俄罗斯军队在夺取乌东顿巴斯地区（Donbas）以后，还将对基辅及其他乌克兰城市发起进攻。
+俄罗斯外长拉夫罗夫（Sergei Lavrov）4月11日接受俄媒访问时表示，俄罗斯向乌克兰发动的军事行动，旨在终结美国在国际舞台上的完全主导地位和鲁莽扩张，而俄罗斯是不服从华盛顿意愿的国家之一。
 
-卡德罗夫指出，俄军未来除了乌克兰南部重镇马里乌波尔（Mariupol），亦会向其他城市和村庄发动攻势。这位被外界称为“战争狂人”的卡德罗夫强调，“我可以保证，普京一步都不会退让，拿下基辅是毫无疑问的。”。
+他又指责欧盟外交与安全政策高级代表博雷利（Josep Borrell）呼吁欧盟成员国继续向乌克兰提供军援的言论令人发指，认为这是鼓励俄军在乌克兰进行更多战斗。
 
-车臣自俄乌开战初期就已派遣部队协助俄军，其后被揭露损伤惨重，就连车臣军队第二号人物图沙耶夫（Magomed Tushayev）亦被传阵亡。
+至于俄乌谈判，拉夫罗夫指出，俄乌双方2月底展开首轮谈判时，总统普京（Vladimir Putin）曾下令暂停军事行动，但如今立场已变，因发现乌克兰人并不打算采取对等做法。他强调，除非达成最终协议，否则俄罗斯的军事行动不会停止。
 
-來源｜[路透社](https://www.reuters.com/world/europe/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-2022-04-11/)
+來源｜[FirstPost](https://www.firstpost.com/world/russia-wont-pause-hostilities-amid-talks-with-ukraine-says-sergei-lavrov-10545181.html)
 
 * * *
 

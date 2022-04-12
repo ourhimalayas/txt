@@ -2,29 +2,27 @@
 ---
 
 
-## 俄乌战争｜乌克兰证实俄军在马里乌波尔地区使用化学武器
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333162/)
+## 台湾｜无预警联翔操演 国防部“测试”防空接战能力
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333163/)
 
-**图/文｜CP**
-**发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜烏克蘭證實俄軍在馬里烏波爾地區使用化學武器.jpg)
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+台北12日清晨5点，禁航战机的台北市上空有战机飞越并盘旋，后经军方回应，证实为国军例行的“联翔操演”，无预警派遣F-16、IDF、AH-64E等型机扮假想敌演练，强化对重要目标防护战力。“联翔操演”，旨在空军对各空军基地反应接战与制敌空袭进行测试。本次演习采实兵不实弹的演练，防守方在假想敌军机接近驻地时，须拟真完成应敌程序。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+网友于脸书社团发文表示“一大早怎么有战机开过来啊？俄罗斯战机开过来了吗？”“有清楚听到但没有看到”、“有听到…很大声在北边松机方向”。
 
+国防部发言人孙立方表示，上午这项演习民众相当关切，国防部为检测国军联合舰队、基地要港、野战防空应对能力及接战程序，并检视防空作战指挥及兵力运用，在清晨执行“整体防空作战计划演练”，操演状况均正常。
 
-乌克兰媒体12日引述守军发出的报告指出，俄军使用无人机对被包围在钢铁厂范围内的亚速营（Azov）部队投放有毒物质，伤者出现呼吸困难及神经系统失常症状，怀疑是化学武器。
+演練主要由花蓮、嘉義F-16戰機扮演假想敵，模仿共軍在戰時對台可能空襲航線飛行，以無預警方式測驗防空部隊反應，為了避免影響民航，因此該演習都在清晨5點半到8時前進行。
 
-美国国防部新闻秘书约翰·科比表示，五角大楼正在密切关注此事，如经证实，这将是俄军首度对乌克兰动用化学武器，代表俄乌冲突的重大升级，并对北约的行动构成直接挑战。
+又同日，国防部疑似受到俄乌局势影响，改变过去“避免触及民间战备”的态度，发布“全民国防手册”(范本)，为提供民众面临军事危机及可能发生之灾难时相关紧急应变资讯，并开始向民间释放应居安思危的讯号。（[详细](https://gnews.org/zh-hant/2332680/)）
 
-乌克兰总统泽连斯基（Volodymyr Zelensky）11日深夜发表讲话，证实俄军威胁将在马里乌波尔（Mariupol）地区使用化学武器。马里乌波尔内的亚速营（Azov）部队被包围在城内的钢铁厂，情况危在旦夕，惟守军重申不会投降将死守至最后。
-
-美国官员过去几天一直对外警告，俄军极有可能会继续他们的“暴行”，加倍袭击乌克兰东部地区，并作出类似叙利亚内战期间使用化学武器的野蛮行为。周一，普京任命在叙利亚立下战功，外号“叙利亚屠夫”的冷血战将德沃尔尼科夫全权指挥对乌克兰的侵略行动，对此，新中国联邦发起人郭文贵先生担心，乌克兰恐怕会迎来一场毁灭性攻击。
-
-來源｜[CNBC](https://www.cnbc.com/2022/04/11/pentagon-monitoring-reports-of-possible-russian-chemical-weapons-attack-in-mariupol.html)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3455161-russias-chemical-attack-on-mariupol-three-persons-affected.html)
+来源｜[今日新聞](https://www.nownews.com/news/5772583)、台湾国防部消息
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
