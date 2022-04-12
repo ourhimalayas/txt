@@ -2,27 +2,34 @@
 ---
 
 
-## 加拿大BC省取消疫苗护照政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331755/)
+## 驻中共国欧盟商会敦促中共当局改变防疫政策
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2332027/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09310000-0a00-0242-88f5-08da1bde89c2_w650_r1_s.jpg)2022年4月11日，在实行“清零”政策的中共国上海，一名身穿防护服的人正在查看封闭区域周围的路障。路透社图片
+编辑摘要：
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+据美国之音4月12日报道，针对中共国严厉的封城措施，驻中共国欧盟商会11日表示，已经致函中共国国务院和副总理胡春华，详细说明中共国防疫措施严重干扰了欧洲企业从物流和生产一直延伸到中共国的供应链。对德国商会的一项调查显示，51%的德国企业的物流和仓储以及46%的德国企业的供应链受到严重冲击。同时，商会敦促中共国政府修改政策，比如允许一些新冠患者在自己家中隔离。
 
-据加拿大[CTV新闻]4月8日报道，BC省于当天取消了在公共场所使用疫苗接种证明的规定。即日起，在出入餐厅、影剧院和室内活动场所时将不再需要出示疫苗护照。
+鉴于上海目前的的形势以及当局采取的严控措施，美国驻华大使馆允许上海总领馆的非必要雇员及其家属以及必要雇员的家属选择自行离开上海。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1356.png)图片来源
+中共当局残酷无情、没有人性的清零政策严重影响了人们正常的生产生活和商业活动。就算第二次世界大战、日本侵华时期，上海都没有采取过如此严厉的封城措施，让人活活饿死、病死在家中，把感染者强行带到卫生和生活条件极其恶劣的环境中，名义上集中隔离，实际上通过管控生活物资达到控制的目的。中共的邪恶通过一次次大规模屠杀显露无疑，中国人民要么反抗，要么再一次被清洗。
+
+[新闻参考链接](https://www.voachinese.com/a/eu-chamber-of-commerce-china-covid-19-20220411/6525003.html)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-据悉，从4月8日开始，自去年9月份以来推行的疫苗接种证明制度在BC省被正式废除。但受联邦政府监管的旅行，如乘坐飞机，火车等仍需出示疫苗护照。
+编辑：【英国伦敦喜庄园编辑部】
 
-相比加拿大其他省份，BC省取消疫苗护照政策的时间最迟。阿尔伯塔省在2月份，安省和魁省已在3月初，都相继取消了该政策。目前在BC省，已有超过90%的人口都已完全接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-校对编辑：硫酸羟氯喹64
 
-发稿:青青
-
-新闻来源： [https://bc.ctvnews.ca/proof-of-vaccination-no-longer-required-to-access-b-c-restaurants-theatres-events-1.5853803](https://bc.ctvnews.ca/proof-of-vaccination-no-longer-required-to-access-b-c-restaurants-theatres-events-1.5853803)
 
  
 

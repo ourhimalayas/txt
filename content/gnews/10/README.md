@@ -2,34 +2,61 @@
 ---
 
 
-## 中日财经爆┃加密货币基金创1月以来最大流出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332178/)
+## COVID-19疫苗副作用集萃（2022.4.12)–月经紊乱
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2332240/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃加密货币基金创1月以来最大流出.png)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-上周 ，是加密货币基金自1 月以来最大的净流出量。
+整理/编辑：禄森
 
-根据 CoinShares（硬币股）4月11日发布的一份报告，截至4月8日的一周内，加密货币基金已从比特币（BTC）和以太坊（ETH）基金中撤出。这是连续二周出现净流入后的今年第二大净流出，达1.34 亿美元。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-18.png)图片来源：雅典娜设计组(614)
 
-大部分净流出为比特币基金，净流出1.318亿美元。同时，投资比特币下跌的短期投资产品净流入最大，达到200万美元。
 
-报告称“我们认为上周价格上涨可能帮助投资者获利了结”。以太坊基金也有1530万美元的净流出。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-投资于多种加密资产的多资产基金保持恢复状态，净流入500万美元。此外，Solana（SOL）基金净流入370万美元，Cardano（ADA）基金净流入100万美元，Litecoin（LTC）基金净流入60万美元。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-信息来源：
-[暗号資産ファンド、1月以来最大の流出に──2週連続の流入から一転（CoinDesk Japan） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/52a95fd6069b40ba6ba1b5bed90a91c2684e2def)
+**帖子原文**：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**博主: 感谢经历**
+
+**新冠疫苗后续**
+
+打完新冠疫苗姨妈推迟六十多天，上个月来了姨妈量恰到好处，肚子不疼没有不适感，明天附近就该来第二次姨妈了，不晓得能不能顺利
+
+我感觉明天后天如果来了以后就能正常了，如果不来又要操心了祝我好运哇啊啊啊
+
+**作者发布于2022-4-4**
+
+**精选评论**
+
+鸽子评论:
+
+我没有，不过我打第一针得荨麻疹了，从那之后再也没好过
+
+香菇菜菜子评论:
+
+我前两针啥事没有，第三针姨妈推了一个月左右
+
+妤妳 :评论:
+
+第一针不知道怀孕打了然后胎停了，第二针大姨妈推迟一个月我真倒霉
+
+摘星 :评论:
+
+打疫苗的这一两年别怀孕，对小孩不好，要避孕，要是备孕就别打疫苗，我就没打，一针也没有
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1380.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1381.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1382.png)图片来源：小红书
+参考链接：
+
+[经期推迟六十多天](https://www.xiaohongshu.com/discovery/item/624a3869000000000102aabb?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649658084)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

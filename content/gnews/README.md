@@ -15,98 +15,98 @@
 
 ---
 
-### [【粤语配音】2022年4月11日：中国已经进入人道大灾难时刻](/content/gnews/1/README.md)
+### [雅典娜快讯：泽连斯基向韩寻求军援抵御俄罗斯](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [4/10/2022 文贵直播：默克尔和萨科齐是中共走狗和战犯级的政客！他们将德法的经济跟中俄挂钩，且把乌克兰、台湾和香港置于危险境地的罪魁祸首](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|习近平排除异己 为独裁铺路](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [担忧安全协议草案影响地区安全，美国白宫高官出访所罗门群岛](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [DC大中华时事：夏巴兹·谢里夫成为巴基斯坦新任总理](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【粤语配音】2022年4月11日：中国已经进入人道大灾难时刻](/content/gnews/6/README.md)
  ` MOS香港部`
 
-### [有声|上海某社区因疫情接近崩溃](/content/gnews/2/README.md)
+### [有声|张爱玲为何逃离上海去香港](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–月经紊乱](/content/gnews/3/README.md)
+### [有声|上海某社区因疫情接近崩溃](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月11日晚](/content/gnews/9/README.md)
+ ` 纽约香草山MOS01`
+
+### [COVID-19疫苗副作用集萃（2022.4.12)–月经紊乱](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [眼泪是清理心霾的净水](/content/gnews/4/README.md)
+### [眼泪是清理心霾的净水](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版](/content/gnews/5/README.md)
+### [郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/6/README.md)
+### [有声|美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [2022年4月12日《樱花快报》：俄罗斯入侵以来 超450万难民逃离乌克兰](/content/gnews/7/README.md)
+### [2022年4月12日《樱花快报》：俄罗斯入侵以来 超450万难民逃离乌克兰](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年4月12日《樱花简报》：日本首相表明对乌提供人道援助与资金合作](/content/gnews/8/README.md)
+### [2022年4月12日《樱花简报》：日本首相表明对乌提供人道援助与资金合作](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年4月11日盖特视频（9分10秒）全文字版](/content/gnews/9/README.md)
+### [郭文贵先生2022年4月11日盖特视频（9分10秒）全文字版](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃加密货币基金创1月以来最大流出](/content/gnews/10/README.md)
+### [中日财经爆┃加密货币基金创1月以来最大流出](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃拜登总统期待下月访日，实现首次亚洲之行](/content/gnews/11/README.md)
+### [樱花时政┃拜登总统期待下月访日，实现首次亚洲之行](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大白们，大五毛都被抛弃了&#8230;&#8230;](/content/gnews/12/README.md)
+### [大白们，大五毛都被抛弃了&#8230;&#8230;](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/13/README.md)
+### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [购物遭俄军轮流性侵 女子崩溃：我不想活了](/content/gnews/14/README.md)
+### [购物遭俄军轮流性侵 女子崩溃：我不想活了](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–莫德纳疫苗要了我半条命](/content/gnews/15/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.12)–莫德纳疫苗要了我半条命](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G系列永远属于战友属于新中国联邦](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共加速建造导弹发射井，储备打击美国本土的远程导弹](/content/gnews/19/README.md)
+### [中共加速建造导弹发射井，储备打击美国本土的远程导弹](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大BC省取消疫苗护照政策](/content/gnews/20/README.md)
- ` 扬帆枫叶快讯`
-
-### [“群体免疫”的瑞典做得如何？](/content/gnews/21/README.md)
+### [“群体免疫”的瑞典做得如何？](/content/gnews/24/README.md)
  ` 加拿大温哥华英里农场`
 
-### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/22/README.md)
+### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/23/README.md)
+### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/24/README.md)
+### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加拿大BC省取消疫苗护照政策](/content/gnews/25/README.md)
+### [加拿大BC省取消疫苗护照政策](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀](/content/gnews/26/README.md)
+### [乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀](/content/gnews/29/README.md)
  ` 蓝莲花农场`
 
-### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/27/README.md)
+### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/30/README.md)
  ` 蓝莲花农场`
 
-### [援乌营地善良细心的Mia姐](/content/gnews/28/README.md)
+### [援乌营地善良细心的Mia姐](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
-
-### [加拿大保守党将力推加密货币](/content/gnews/29/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/30/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [中国人的勇气在哪里](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
