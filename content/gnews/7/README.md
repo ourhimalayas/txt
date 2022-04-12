@@ -2,24 +2,41 @@
 ---
 
 
-## 樱花FM┃中共违反国际对俄制裁，用人民币购买俄国能源
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2333053/)
+## 普京任命“叙利亚屠夫”统领入侵行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333063/)
 
-音频：东京樱花团/战友520
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/041219.png)
+翻译/编辑：文泓
 
-在国际社会针对俄罗斯入侵乌克兰展开严厉制裁之际，用人民币支付的俄罗斯的煤炭和石油开始源源不断地运往中共国。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/32cbc904a34a3aba.jpg)图片来源：New York Post & 雅典娜设计组
 
-几家中共公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中共国。这些交易过去一直都是通过美元进行的。美欧把俄罗斯银行剔除出SWIFT银行间信息系统之后，中共同意俄罗斯采用人民币进行采购活动。据消息来源，中共咨询公司汾渭能源信息服务公司说，中共国炼钢企业和发电厂使用的煤炭都是用人民币采购的。
 
-评论：中共唆使俄罗斯入侵乌克兰并提供支持，致使乌克兰饱受战争摧残。这种违反国际社会对俄罗斯制裁的行为应等同于战争罪，必将遭到国际社会的严厉制裁。中共挑战美元主导的全球贸易的地位，是预谋已久的计划。西方国家为惩罚俄罗斯入侵乌克兰而采取的制裁措施，正在加快中共的人民币国际化的进程。与此同时沙特阿拉伯正在与北京磋商是否可以用人民币给部分沙特原油产品定价。 中共在全世界投放病毒及强制疫苗摧毁世界经济，然后利用在自己世界工厂的影响力打败美元，是这个计划的目的，然而这只是中共所有计划中的一部分。中共伺机攻打台湾的邪恶目的已经引起国际社会重视。早在2017年郭文贵先生就警告世界，中共将要把世界拖入黑暗。
+4月12日，据报道，俄军在乌克兰遭遇重挫，总统普京已任命了一位冷酷的俄罗斯将军来统领在乌克兰的入侵行动，目标将是整个欧洲领域。
 
-文字版原文：[樱花时政┃中共违反国际对俄制裁，用人民币购买俄国能源](https://gnews.org/zh-hans/2306028/)
+这位被称为“叙利亚屠夫”的亚历山大·德沃尔尼科夫上将，曾帮助叙利亚总统阿萨德总统在内战中消灭了他的敌人。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+华盛顿的国家安全顾问杰克·沙利文警告说，德沃尔尼科夫的晋升将导致更多暴行发生。
+
+2015年德沃尔尼科夫被派往叙利亚，以支持阿萨德士气低落的政府军。他在叙利亚制定的毁灭性、破坏性和无情的策略获得成功，被评为俄罗斯联邦英雄，目前是俄罗斯[南部军区的指挥官。](https://tickernews.co/first-ukrainian-city-to-be-taken-over-by-russian-military/)
+
+“阿萨德并不是唯一一个要为在叙利亚杀害平民负责的人，这位俄罗斯将军也应该负责，”总部设在英国的战争监测机构叙利亚人权观察站负责人表示。
+
+在周六对乌克兰人的深夜讲话中，乌克兰总统泽伦斯基说，俄罗斯的侵略“并不打算只限于乌克兰，整个欧洲都是俄罗斯的目标”。
+
+“这就是为什么支持乌克兰的和平愿望不仅是所有民主国家、所有欧洲力量的道德责任，这也是每一个文明国家的防御战略。”
+
+参考链接：
+1、[Russian invasion: Putin could target ‘entire Europe project’, Ukraine warns | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/vladimir-putin-turning-attention-to-entire-europe-project-ukraine-warns/news-story/a4b08c4dce7f19115a1da9961d484390)
+2、[Russia sends ruthless Syrian general to take charge of Ukrainian invasion (tickernews.co)](https://tickernews.co/russia-sends-ruthless-syrian-general-to-take-charge-of-ukrainian-invasion/)
+
+*发布**：**文武全才*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

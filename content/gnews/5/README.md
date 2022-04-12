@@ -2,40 +2,16 @@
 ---
 
 
-## 普京任命“叙利亚屠夫”统领入侵行动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333063/)
+## 秘翻在线：日本政府向感染人数日渐增多的冲绳县派遣 &#8220;联络官&#8221;
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333106/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-16.png)（图片源自本文链接）
+据４月12日每日新闻记者村尾哲报道：在12日上午的新闻发布会上，内阁官房长官松野博一宣布，将在当天派遣一个联络小组前往中共病毒(新冠病毒)病例数量不断上升的冲绳县。负责在县政府和各部委之间进行联络，并计划在15日前派出由一名内阁议员领导的四人小组。
 
-翻译/编辑：文泓
+冲绳县是全国每10万人中新感染病例最多的地区，并有增加的趋势。松野先生表示，我们将紧密合作，以便能够作出灵活的反应。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/32cbc904a34a3aba.jpg)图片来源：New York Post & 雅典娜设计组
-
-
-4月12日，据报道，俄军在乌克兰遭遇重挫，总统普京已任命了一位冷酷的俄罗斯将军来统领在乌克兰的入侵行动，目标将是整个欧洲领域。
-
-这位被称为“叙利亚屠夫”的亚历山大·德沃尔尼科夫上将，曾帮助叙利亚总统阿萨德总统在内战中消灭了他的敌人。
-
-华盛顿的国家安全顾问杰克·沙利文警告说，德沃尔尼科夫的晋升将导致更多暴行发生。
-
-2015年德沃尔尼科夫被派往叙利亚，以支持阿萨德士气低落的政府军。他在叙利亚制定的毁灭性、破坏性和无情的策略获得成功，被评为俄罗斯联邦英雄，目前是俄罗斯[南部军区的指挥官。](https://tickernews.co/first-ukrainian-city-to-be-taken-over-by-russian-military/)
-
-“阿萨德并不是唯一一个要为在叙利亚杀害平民负责的人，这位俄罗斯将军也应该负责，”总部设在英国的战争监测机构叙利亚人权观察站负责人表示。
-
-在周六对乌克兰人的深夜讲话中，乌克兰总统泽伦斯基说，俄罗斯的侵略“并不打算只限于乌克兰，整个欧洲都是俄罗斯的目标”。
-
-“这就是为什么支持乌克兰的和平愿望不仅是所有民主国家、所有欧洲力量的道德责任，这也是每一个文明国家的防御战略。”
-
-参考链接：
-1、[Russian invasion: Putin could target ‘entire Europe project’, Ukraine warns | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/vladimir-putin-turning-attention-to-entire-europe-project-ukraine-warns/news-story/a4b08c4dce7f19115a1da9961d484390)
-2、[Russia sends ruthless Syrian general to take charge of Ukrainian invasion (tickernews.co)](https://tickernews.co/russia-sends-ruthless-syrian-general-to-take-charge-of-ukrainian-invasion/)
-
-*发布**：**文武全才*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+信息源：[コロナ感染者増の沖縄に「連絡員」派遣 県と各省の調整役に (msn.com)](https://www.msn.com/ja-jp/news/national/%E3%82%B3%E3%83%AD%E3%83%8A%E6%84%9F%E6%9F%93%E8%80%85%E5%A2%97%E3%81%AE%E6%B2%96%E7%B8%84%E3%81%AB-%E9%80%A3%E7%B5%A1%E5%93%A1-%E6%B4%BE%E9%81%A3-%E7%9C%8C%E3%81%A8%E5%90%84%E7%9C%81%E3%81%AE%E8%AA%BF%E6%95%B4%E5%BD%B9%E3%81%AB/ar-AAW75SE?ocid=msedgntp&amp;cvid=df2b5a7981004bba88fdb8ed2a146fe0)
 
  
 

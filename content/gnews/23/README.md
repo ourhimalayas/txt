@@ -2,25 +2,24 @@
 ---
 
 
-## 台湾｜国防部编纂“全民国防手册” 应军事、其他灾难危机之变
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2332818/)
+## 拒绝董事会席位后，马斯克取消与Twitter员工会面
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2332819/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-19.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-台湾国防部4月12日发布“全民国防手册”(范本)，并解释到该手册为蔡英文总统之指示，为提供民众面临军事危机及可能发生之灾难时相关紧急应变资讯，提升居安思危意识，做好安全准备及生存自助。
+编辑：文宝
 
-台湾国防部先前极力避免触及“民间战备”领域，惟俄乌局势引起各界关切台海局势，相关国防单位似乎转变态度，并开始向民间释放应居安思危的讯号。
 
-该手册范本为参考瑞典、日本等国，内容涉及空袭警报与防空避难、建物倒塌失火应处、停电应处、停水应处、医疗急救、民生必需品短缺应处、防灾(战备)物资及救护准备、生存基础知识、紧急状况报案专线，以及后备军人动员等资讯。
+![](https://n.sinaimg.cn/tech/transform/117/w550h367/20220412/e8ff-27e61ffff7168f8f46bf0a40fdb8ea35.jpg)
+4月11日消息，在埃隆·马斯克（Elon Musk）决定不加入Twitter董事会后，他取消了本周与Twitter员工的会面。
 
-此外，后续将协请各县市依辖区“防空避难设施”、“急救责任医院”及“民生必需品配售站”资讯调修手册，供居民应用。
+在上周，Twitter宣布马斯克已收购超过9%的股份并将加入董事会后，这位世界首富原计划与Twitter CEO帕拉格·阿格拉沃尔(Parag Agrawal)一起，举行与Twitter员工的“问我任何问题”会议，以打消员工们的顾虑。
 
-来源｜[台灣國防部](https://www.mnd.gov.tw/Publish.aspx?p=79750&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)
+实际上，Twitter的员工对与马斯克一起参加会议的感受很复杂。一些员工主要担心，马斯克可能改变Twitter的企业文化。
 
-* * *
+过去一周，马斯克对Twitter的想法也五花八门，从为Twitter的订阅服务做醒目的广告，到将其总部的一部分改造成无家可归者的收容所。有分析人士认为，对于所参与的任何一家公司，马斯克都以“颠覆性的存在”而著称，这可能给Twitter带来额外的挑战。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+通过邀请马斯克加入董事会并与员工交谈，阿格拉沃尔想表现出，他们之间的关系将是友好的。但马斯克突然拒绝董事会席位也引发了人们对其意图的新一轮猜测。由于没有加入董事会，马斯克不再受制于一项将其持股比例限制在14.9%的停滞协议。
+
+原文链接：[https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&mod=pctech&loc=15&r=0&rfunc=15&tj=cxvertical\_pc\_tech&tr=12](https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&amp;mod=pctech&amp;loc=15&amp;r=0&amp;rfunc=15&amp;tj=cxvertical_pc_tech&amp;tr=12)
 
  
 

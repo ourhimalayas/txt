@@ -15,128 +15,128 @@
 
 ---
 
-### [Coinbase暂停印度UPI支付方式，合规性遭质疑](/content/gnews/1/README.md)
+### [澳大利亚外长抨击俄罗斯使用化学武器](/content/gnews/1/README.md)
+ ` 走进澳洲`
+
+### [COVID-19疫苗副作用集萃（2022.4.12）打完康希诺后副作用](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [奥地利领导人在俄罗斯与普京进行“公开而强硬”的会谈](/content/gnews/2/README.md)
+### [Coinbase暂停印度UPI支付方式，合规性遭质疑](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：日本政府向感染人数日渐增多的冲绳县派遣 &#8220;联络官&#8221;](/content/gnews/3/README.md)
+### [奥地利领导人在俄罗斯与普京进行“公开而强硬”的会谈](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：日本政府向感染人数日渐增多的冲绳县派遣 &#8220;联络官&#8221;](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：坚持动态清零 上海落实分类差异化防控举措](/content/gnews/4/README.md)
+### [DC大中华时事：坚持动态清零 上海落实分类差异化防控举措](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普京任命“叙利亚屠夫”统领入侵行动](/content/gnews/5/README.md)
+### [普京任命“叙利亚屠夫”统领入侵行动](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花FM┃上海防疫不是防疫是对内超限战](/content/gnews/6/README.md)
+### [樱花FM┃上海防疫不是防疫是对内超限战](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [樱花FM┃中共违反国际对俄制裁，用人民币购买俄国能源](/content/gnews/7/README.md)
+### [樱花FM┃中共违反国际对俄制裁，用人民币购买俄国能源](/content/gnews/9/README.md)
  ` 樱花FM`
 
-### [樱花FM┃中共疫情极端管控吓坏上海非裔](/content/gnews/8/README.md)
+### [樱花FM┃中共疫情极端管控吓坏上海非裔](/content/gnews/10/README.md)
  ` 樱花FM`
 
-### [樱花FM┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/9/README.md)
+### [樱花FM┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/11/README.md)
  ` 樱花FM`
 
-### [国际｜芬兰、瑞典讨论加入北约 俄罗斯“挑衅、不会带来稳定”](/content/gnews/10/README.md)
+### [国际｜芬兰、瑞典讨论加入北约 俄罗斯“挑衅、不会带来稳定”](/content/gnews/12/README.md)
  ` 關注組`
 
-### [中共“全国统一大市场”，意味着闭关锁国的开始](/content/gnews/11/README.md)
+### [中共“全国统一大市场”，意味着闭关锁国的开始](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [樱花FM┃山东“咽拭子采样机器人”亮相 42秒采样](/content/gnews/12/README.md)
+### [樱花FM┃山东“咽拭子采样机器人”亮相 42秒采样](/content/gnews/14/README.md)
  ` 樱花FM`
 
-### [樱花FM┃乌克兰的唐凤 情报战完胜俄罗斯](/content/gnews/13/README.md)
+### [樱花FM┃乌克兰的唐凤 情报战完胜俄罗斯](/content/gnews/15/README.md)
  ` 樱花FM`
 
-### [中日财经爆┃日本追加对俄制裁：冻结普京女儿资产 首次实行进口禁令](/content/gnews/14/README.md)
+### [中日财经爆┃日本追加对俄制裁：冻结普京女儿资产 首次实行进口禁令](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃中国第一季度的经济：信心减弱 流动性停滞（下）](/content/gnews/15/README.md)
+### [樱花深度报道┃中国第一季度的经济：信心减弱 流动性停滞（下）](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃中国第一季度的经济：信心减弱 流动性停滞（上）](/content/gnews/16/README.md)
+### [樱花深度报道┃中国第一季度的经济：信心减弱 流动性停滞（上）](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国卫生安全局：新冠疫苗导致儿童肝炎大幅增长](/content/gnews/17/README.md)
+### [英国卫生安全局：新冠疫苗导致儿童肝炎大幅增长](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：拜登说期待在计划的5月24日左右访日时能与印度总理见面](/content/gnews/18/README.md)
+### [秘翻在线：拜登说期待在计划的5月24日左右访日时能与印度总理见面](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本发现首例奥密克戎新变异毒株](/content/gnews/19/README.md)
+### [霸道警察“说你阳性你就是” 上海夫妇遭强行拉方舱](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [霸道警察“说你阳性你就是” 上海夫妇遭强行拉方舱](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [参议员汤姆·科顿：全世界都应该看看，中共政府是如何打着“公共卫生”的幌子残酷对待自己的人民的](/content/gnews/21/README.md)
+### [参议员汤姆·科顿：全世界都应该看看，中共政府是如何打着“公共卫生”的幌子残酷对待自己的人民的](/content/gnews/22/README.md)
  ` 美国政要直译推`
 
-### [拒绝董事会席位后，马斯克取消与Twitter员工会面](/content/gnews/22/README.md)
+### [拒绝董事会席位后，马斯克取消与Twitter员工会面](/content/gnews/23/README.md)
  ` 加拿大温哥华英里农场`
 
-### [台湾｜国防部编纂“全民国防手册” 应军事、其他灾难危机之变](/content/gnews/23/README.md)
+### [台湾｜国防部编纂“全民国防手册” 应军事、其他灾难危机之变](/content/gnews/24/README.md)
  ` 關注組`
 
-### [樱花时政┃因举报华大核酸检测不准确 基因专家被打成十级伤残](/content/gnews/24/README.md)
+### [樱花时政┃因举报华大核酸检测不准确 基因专家被打成十级伤残](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃波兰执政党主席：前总统的空难事件是俄罗斯攻击所为！](/content/gnews/25/README.md)
+### [樱花时政┃波兰执政党主席：前总统的空难事件是俄罗斯攻击所为！](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年4月11日郭先生盖特 — 视频1「9分10秒」](/content/gnews/26/README.md)
+### [2022年4月11日郭先生盖特 — 视频1「9分10秒」](/content/gnews/27/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [4/12/2022 银河快讯：一美元兑换125日元，是六年零十个月以来日元的最低水平；日本确认首例高度传染性的 Omicron&#8221;XE &#8220;毒株](/content/gnews/27/README.md)
+### [4/12/2022 银河快讯：一美元兑换125日元，是六年零十个月以来日元的最低水平；日本确认首例高度传染性的 Omicron&#8221;XE &#8220;毒株](/content/gnews/28/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [疫情｜日本惊现Omicron亚种混合毒株“XE” 未确定是否蔓延](/content/gnews/28/README.md)
+### [疫情｜日本惊现Omicron亚种混合毒株“XE” 未确定是否蔓延](/content/gnews/29/README.md)
  ` 關注組`
 
-### [辉瑞公司新增大量雇员处理疫苗伤害案件](/content/gnews/29/README.md)
+### [辉瑞公司新增大量雇员处理疫苗伤害案件](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [國際｜美國務院調升旅遊風險 商務部下令撤離上海領事館成員](/content/gnews/30/README.md)
+### [國際｜美國務院調升旅遊風險 商務部下令撤離上海領事館成員](/content/gnews/31/README.md)
  ` 關注組`
 
-### [20220410文贵大直播：英国和欧盟争抢乌克兰](/content/gnews/31/README.md)
+### [20220410文贵大直播：英国和欧盟争抢乌克兰](/content/gnews/32/README.md)
  ` Tokyo Sakura Video Group`
 
-### [职业运动员成为疫苗灾难的主要受害者](/content/gnews/32/README.md)
+### [职业运动员成为疫苗灾难的主要受害者](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [雅典娜快讯：泽连斯基向韩寻求军援抵御俄罗斯](/content/gnews/33/README.md)
+### [雅典娜快讯：泽连斯基向韩寻求军援抵御俄罗斯](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/10/2022 文贵直播：默克尔和萨科齐是中共走狗和战犯级的政客！他们将德法的经济跟中俄挂钩，且把乌克兰、台湾和香港置于危险境地的罪魁祸首](/content/gnews/34/README.md)
+### [4/10/2022 文贵直播：默克尔和萨科齐是中共走狗和战犯级的政客！他们将德法的经济跟中俄挂钩，且把乌克兰、台湾和香港置于危险境地的罪魁祸首](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/35/README.md)
+### [微软没收了俄罗斯用来攻击乌克兰的域名](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [英首相约翰逊突访乌克兰](/content/gnews/36/README.md)
+### [英首相约翰逊突访乌克兰](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [欧盟主席表示乌克兰将拥有“欧洲的未来”](/content/gnews/37/README.md)
+### [欧盟主席表示乌克兰将拥有“欧洲的未来”](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [普京任命“叙利亚屠夫” 转战乌东](/content/gnews/38/README.md)
+### [普京任命“叙利亚屠夫” 转战乌东](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [台湾旅乌男士在新中国联邦救援基地任义工](/content/gnews/39/README.md)
+### [台湾旅乌男士在新中国联邦救援基地任义工](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [中共的疯狂举动 恐将让中国人付出血的代价](/content/gnews/40/README.md)
+### [中共的疯狂举动 恐将让中国人付出血的代价](/content/gnews/41/README.md)
  ` NFSC News`
-
-### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月11日晚](/content/gnews/41/README.md)
- ` 纽约香草山MOS01`
 
 ### [中日财经爆┃加密货币基金创1月以来最大流出](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

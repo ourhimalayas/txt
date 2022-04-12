@@ -2,24 +2,25 @@
 ---
 
 
-## 普京任命“叙利亚屠夫” 转战乌东
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332335/)
+## 欧盟主席表示乌克兰将拥有“欧洲的未来”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332336/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本东京方舟农场—Miyali7768(文玉）
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据外媒4月9日报道，因为在乌克兰遭遇了一系列军事挫折，俄罗斯总统普京指派了被称为“叙利亚屠夫”的德沃尼科夫将军担任指挥官，希望能重振俄军的攻势，征服乌克兰东部的顿巴斯地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-21.jpg)
-在任命 60 岁的德沃尼科夫之前，俄罗斯依靠独立的指挥系统指导其入侵行动，大多数重大决定都直接来自克里姆林宫，没有一个指挥官能掌握全局。现在，由于无法占领首都，莫斯科已将军事重点转移到对俄军更有利的东部顿巴斯地区，其中包括顿涅茨克和卢甘斯克。
+4月8日，欧盟委员会主席乌尔苏拉·冯德莱恩在访问基辅时表示，因为来自西方的制裁越来越严厉，俄罗斯正面临“衰退”，而乌克兰将拥有“欧洲的未来” 。
 
-据悉，德沃尼科夫将军因在叙利亚的野蛮行动而声名狼藉。
+在与乌克兰总统泽连斯基举行的新闻发布会上，冯·德莱恩谴责了基辅附近的布查镇发生的平民屠杀事件，表示对当天早些时候，乌克兰东部克拉马托尔斯克的一个火车站遭到火箭袭击，造成数十人死亡的事件感到“震惊”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-22.jpg)
+她表示，乌克兰的战斗也是欧盟的战斗，他这次对基辅的访问，就是要发出一个非常强烈的信息，即欧盟和乌克兰站在一起。她强调，欧盟正在动员各种可能的经济力量，会让普京付出非常、非常沉重的代价。
 
-西方官员预测，克里姆林宫的目标是在庆祝二战胜利周年纪念日，即5月9日之前取得某种形式的胜利。而到目前为止，好战的俄罗斯人还没有取得任何胜利。
+冯德莱恩同时明确，她相信此次访问会成为乌克兰通往欧洲和欧盟之路的起点。
 
-参考链接：[Putin taps ‘Butcher of Syria’ for escalation in Donbas](https://www.washingtonexaminer.com/news/putin-taps-butcher-of-syria-for-escalation-in-donbas)
+参考链接：[Russia faces ‘decay’, Ukraine has ‘European future’: EU chief](https://insiderpaper.com/russia-faces-decay-ukraine-has-european-future-eu-chief/)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：飞虹
+总编/审核：飞虹
+编辑：玫瑰圓
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

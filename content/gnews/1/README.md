@@ -2,25 +2,33 @@
 ---
 
 
-## Coinbase暂停印度UPI支付方式，合规性遭质疑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333115/)
+## 澳大利亚外长抨击俄罗斯使用化学武器
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2333140/)
+
+#### 了解澳洲生活点滴， 带您走进澳洲
 
 #### 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Coinbase_india_launch_radhika_large_1649666367927.jpg)图片来源：Digit News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/9665970-3x2-940x627-1.jpg)图片来源：ABC
 
 
-根据COINGEEK4月11日报道，“我们不知道有任何使用UPI的加密交换。”印度国家支付公司（NPCI）就Coinbase在印度推出全方位交易业务数小时后发表了这一声明。NPCI是管理印度统一支付接口（UPI）的实体。
+根据澳洲媒体4月12日报道，澳大利亚外交部长玛丽斯-佩恩将有关俄罗斯化学武器袭击乌克兰的报道描述为“对国际法的全面违反”。
 
-Coinbase在过去六个月里一直在印度大量招兵买马，尽管印度政府在2022年3月29日宣布了“严格的”数字货币税收规定。综合来看，这并没有为印度的数字货币投资者描绘出美好的前景。
+一夜之间，乌克兰军队声称俄罗斯使用了一种“未知”的有毒物质，导致受害者呼吸衰竭。
 
-“我们看到了它的到来，”BSV 区块链协会的Kapil Jain告诉 CoinGeek。“在过去的六个月里，Coinbase一直在大量招聘人员。合规性将是印度的一大亮点。Coinbase将无法逃避。数字货币主要用于绕过法律限制或替代洗钱网络。最近由于反洗钱规则，许多非营利组织的资金被切断。 WazirX，币安 (Binance) 已经受到税收突击和审查。”
+虽然这些报道尚未得到证实，但英国国防部已经在顿涅茨克地区使用过磷弹。
 
-Coinbase首席执行官兼联合创始人Brian Armstrong最近宣布，已经向印度初创企业投资了1.5亿美元，并将于2022年在印度雇用1000名员工。Coinbase已经是印度两家领先数字货币交易所（CoinSwitch Kuber和CoinDCX）的主要投资者。据称，Coinbase几周前就开始测试UPI支付，并于4月7日在印度举行的首次活动中宣布正式推出。
+“（之前化学武器的使用）提高了未来在马里乌波尔被使用的可能性，因为争夺该城市的战斗正在加剧。”佩恩说。
 
-周日，这家总部位于美国的交易所宣布，在印度推出交易服务不到四天后，已经暂时禁止通过UPI购买数字货币。根据Coinbase的声明，“暂时无法使用该支付方式进行购买”，尽管该平台继续允许通过即时支付服务出售代币。
+佩恩在悉尼对记者说，如果事情得到证实，这将是对俄罗斯不重视法治的进一步确认。“那将代表俄罗斯全面了违反国际法。”
 
-资料来源：[Coinbase suspends support for UPI payments in India amid regulatory heat](http://NBASEcoingeek.com/coinbase-suspends-support-for-upi-payments-in-india-amid-regulatory-heat/)
+英国国防部警告俄罗斯军队可能在被围困的港口城市马里乌波尔使用磷弹药，并警告说俄罗斯军队已经在顿涅茨克地区使用了化学武器。
+
+佩恩参议员表示，澳大利亚将与英国国防部同行合作，以确认报告的真实性。
+
+当被问及俄罗斯对澳大利亚政客的制裁时，斯科特莫里森称其为“荣誉徽章”。
+
+资料来源：[Foreign Minister blasts Russia for reported use of chemical weapons](https://www.news.com.au/finance/work/leaders/foreign-minister-blasts-russia-for-reported-use-of-chemical-weapons/news-story/71aa1e97a25e78396623f9eec2587480)
 
 发布：*wenly*
 

@@ -2,35 +2,50 @@
 ---
 
 
-## 奥地利领导人在俄罗斯与普京进行“公开而强硬”的会谈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333108/)
+## COVID-19疫苗副作用集萃（2022.4.12）打完康希诺后副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333125/)
 
-#### 翻译/编辑：小红帽
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_370afdafa71345fa8742d9a7a2585500_16x9_992.jpg)图片来源：ABC NEWS
+#### 整理：gardeniahu
+编辑：gardeniahu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-19.png)图片来源：雅典娜设计组(614)
 
 
-根据路透社4月12日报道，奥地利总理卡尔·内哈默周一在莫斯科附近与俄罗斯总统弗拉基米尔·普京举行了“非常直接、公开和强硬”的会谈，这是普京自入侵乌克兰以来与欧盟领导人的首次会晤。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-中立的奥地利从俄罗斯获得 80% 的天然气，通常与莫斯科的联系通常比欧盟大部分国家更密切，但最近情况并非如此。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-内哈默表达了对乌克兰的声援，并谴责了俄罗斯明显的战争罪行。而他的政府也与其他欧盟国家一起驱逐了俄罗斯外交官，尽管这只是俄罗斯驻乌克兰外交人员的一小部分。
+原文作者：许予
 
-“这不是一次友好的访问，”普京在莫斯科郊外的新奥加廖沃官邸会晤后不久，他的办公室发表的一份声明中援引内哈默的话说。内哈默尔的一位发言人说，会议持续了75分钟，以普京的标准来说，这相对较短。
+**疫情|新冠疫苗副作用     打完康希诺后副作用**
 
-内哈默重申了之前的评论，他希望帮助结束冲突或改善乌克兰陷入困境的平民，例如人道主义走廊。他几乎没有透露普京的回应。
+#新冠疫苗 #康希诺疫苗 我真的会谢，家人们。打完疫苗第二天，头疼疼了一天，轻微发烧，下午耳朵疼，之后累的不行，睡了半小时之后，好了点。第三天大姨妈直接提前了，而且脸上长了一片点点而且还痒。无语了，我能确定不是我用的护肤品的问题。我的那套水乳都用了2，3套了。脸上一点问题都没有。打个疫苗给我整成这样。
 
-“与普京总统的对话非常直接、公开和强硬，”内哈默在声明中说。“我向普京传达的最重要信息是，这场战争必须最终结束，因为在一场战争中，双方都只有输家。”
+发布于04.10
 
-资料来源：[Austrian leader has ‘open and tough’ talks with Putin in Russia](https://www.reuters.com/world/europe/austrian-leader-holds-open-tough-talks-with-putin-moscow-2022-04-11/)
+精选评论
 
-发布： *wenly*
+你与时光皆薄凉回复：我也谢了，8号打的第三针，当天没啥事，就是胳膊疼，9号半夜开始身上局部痒，10号一天全身痒，一晚上没睡好，半夜头痛，眼睛疼……我感觉我快要死了。
+
+初遇回复：我们新冠kx疫苗后确诊急性髓系白血病。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-26.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-7.png)图片来源：小红书
+
+
+参考链接：[打完康希诺后副作用](https://www.xiaohongshu.com/discovery/item/625286f5000000000c03157c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649658227)
+
+发布*：wenly*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
