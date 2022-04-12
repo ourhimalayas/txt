@@ -2,42 +2,51 @@
 ---
 
 
-## 乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331754/)
+## 俄罗斯放松部分资本管制之时卢布大幅下跌
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2332016/)
 
-翻译：多伦多蓝莲花-灭共文明
+翻译: 里奇
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》基辅4月11日报道，**乌克兰周一表示，在俄罗斯对东南部城市马里乌波尔的攻击中，可能有数万人被杀，同时乌克兰权利监察员指责俄罗斯军队在该地区实施酷刑和处决。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download2-e1649721920438.jpg)2022年4月8日，在乌克兰基辅地区的Borodyanka，77岁的Mariya哭了，她的女儿和女婿死在被俄罗斯炮击摧毁的建筑物的废墟下。（图片来源：路透社）
-路透社已证实马里乌波尔遭到广泛破坏，该城市位于俄罗斯吞并的克里米亚和由俄罗斯支持的分离主义分子控制的乌克兰东部地区之间。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
 
-**如果数字得到证实，这将是迄今为止乌克兰一个地方报告的最高死亡人数，**那里的城市、城镇和村庄都受到了无情的轰炸，包括平民在内的尸体在街上随处可见。
+路透4月11日 – 俄罗斯央行决定放松旨在限制卢布贬值的临时资本管制措施之后，俄罗斯卢布周一在紧张的交易中大幅走软，逆转了前一周的部分涨幅。
 
-**乌克兰总统泽伦斯基在向韩国议员发表视频讲话时表示，马里乌波尔已被摧毁，数万人死亡，但即便如此，俄罗斯也没有停止进攻。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download1.jpg)2022年4月9日，在乌克兰切尔尼戈夫，62岁的蒂托娃走在被俄罗斯炮击摧毁的房子（图片来源：路透社）
-**马里乌波尔市市长的助手彼得罗-安德里申科**（Petro Andryushchenko）周一在Telegram上说，**俄罗斯军队放慢了出发前的检查**。他说，大约有1万人在等待俄罗斯军队的检查。**俄罗斯不允许军事人员与平民疏散人员一起离开。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1373-edited.png)reuters.com
 
-乌克兰人权监察员柳德米拉·杰尼索娃援引马里乌波尔市政府的数据称，**马里乌波尔有3.3万居民被驱逐到俄罗斯或乌克兰东部由俄罗斯支持的分裂分子控制的地区。**
+周五晚些时候，央行表示将从 4 月 11 日起取消通过券商购买外汇的 12% 佣金，并从 4 月 18 日起取消向个人出售外汇现金的临时禁令。
 
-杰尼索娃在Telegram上发帖说，有目击者报告称，**俄罗斯国民警卫队和卡德罗夫车臣部队正在进行非法逮捕，对被拘留者实施酷刑，并以亲乌克兰的立场为理由而将他们处决。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SJYJ6MSHBFNSRDKSH4HKXYZS7Q.jpg)2022年4月7日，乌克兰马里乌波尔，亲俄军队士兵在乌克兰-俄罗斯冲突中检查街道。（图片来源：路透社）
-**乌克兰副总理伊琳娜·韦列舒克（**Iryna Vereshchuk）告诉路透社，**俄罗斯军队设置的马里乌波尔至扎波罗热之间的走廊上的检查站数量，**从3个增加到15个，**使得撤离变慢。**
+卢布兑美元汇率在莫斯科开盘时跌至 82.09，而上周五触及 11 月 11 日以来最高的 71 卢布。
 
-韦列舒克在Telegram上说，马里乌波尔是周一与俄罗斯商定的九条**人道主义走廊**之一，用于从被围困的东部地区疏散人员，但其走廊**只对私家车开放，不允许巴士离开。**
+格林威治标准时间 7点27分 ，卢布兑美元汇率下跌近 5%，至 79.90，兑欧元汇率下跌 4.3%，至 86.35。
 
-**乌克兰政府表示，俄罗斯军队正在集结，准备对包括马里乌波尔在内的东部地区发动新的攻势，**那里的人们已经连续数周没有水、食物和能源供应。
+亚罗券商(Alor Brokerage) 表示，取消 12% 外汇业务佣金的决定意味着投机者将能够再次进行交易，市场参与者倾向于锁定即使很微薄的利润。
 
-新闻来源链接：
-[Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses | Reuters](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
+尽管中央银行上周出人意料地将其关键利率从 20% 下调至 17%，但以出口为重点的公司将 80% 的外汇收入强制转换以及高利率对卢布提供了支持。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+易提资本(ITI Capital) 分析师表示，俄罗斯每天的出口收入约为 14 亿美元，鉴于俄罗斯的资本管制和进口萎缩，卢布可能会进一步走强。
+
+央行的降息支持了俄罗斯 OFZ 政府债券。财政部周末表示，今年不会在本地或外债市场借款。
+
+财政部长安东·西卢阿诺夫还表示，如果西方试图迫使其拖欠主权债务，俄罗斯将采取法律行动。
+
+与价格成反比的 10 年期 OFZ 收益率周一跌至 10.62%。这是自 2 月 22 日以来的最低点，两天后，俄罗斯在乌克兰开始所谓的“特别军事行动”，引发了西方对俄罗斯前所未有的制裁。
+
+股市方面，以美元计价的 RTS 指数下跌 4.5% 至 1,031.4，但基于卢布的俄罗斯 MOEX 指数在卢布下跌的支持下上涨 0.8% 至 2,614.0 点。
+
+新闻来源: [路透社 Rouble falls as Russia relaxes capital controls; Rosbank shares jump 40%](https://www.reuters.com/business/rouble-falls-sharply-russia-relaxes-some-capital-controls-2022-04-11/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

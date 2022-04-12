@@ -2,27 +2,31 @@
 ---
 
 
-## 台湾旅乌男士在新中国联邦救援基地任义工
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332334/)
+## 英首相约翰逊突访乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332338/)
 
-作者：纽约香草山医疗部-云豹
+作者：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-当地时间4月9日台湾媒体报导，一位来自台湾的旅乌男士王楠颖，在波兰梅迪卡新中国联邦的救援帐篷中担任义工，为来自乌克兰的难民从事翻译工作。在媒体的照片中，我们可以看到王先生穿着新中国联邦义工的马甲，背景中还出现了写有“新中国联邦、法治基金、乌克兰人道救援”字样的横幅。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-20.jpg)
-据悉，王先生是从台湾去乌克兰读书及工作的，已经旅居乌克兰8 年。他本人也是这次战争中的难民，在3月2日台湾政府的撤侨行动中顺利离开了乌克兰第二大城哈尔科夫。但是他对乌克兰第二故乡的感情让他选择留下来，以他能说中、英、日、乌、俄语的语言能力，及同样来自战争灾区的同理心，在难民营中为难民做翻译服务，帮忙他们解决各种沟通上及情绪上的问题。另外，王先生也报名了乌克兰的国际志愿军团，并被录取。接下来他将继续以他的语言能力发挥更大的作用。
+4月9日，英国首相约翰逊突访基辅，会见了乌克兰总统泽连斯基。
 
-一位战友表示，尽管媒体的报导中并未突出新中国联邦的内容，但任何形式的传播都包含着媒体本身对我们的认同。新中国联邦的理念、精神一定会以各种形式在不知不觉中被散布到世界的每一个角落。
+约翰逊此次乌克兰之行严格保密，事前英国政府与英国媒体只字未提，直到英国驻乌克兰大使馆在网络上发布照片后，消息才随之被曝光。泽连斯基也在脸书上晒出两人的会面照，并表示：欢迎来到基辅，我的朋友！约翰逊与泽连斯基还在基辅街头一起高调现身，进行了步行巡视。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-23.jpg)
+英国首相官邸发言人指出，约翰逊亲自会见泽连斯基，展现出两国人民团结一心的坚定立场，并透露英国将对乌克兰进行新的金融与军事援助。乌克兰总统办公室副主任西比哈表示，约翰逊与泽连斯基进行了一对一单独会面。
+
+泽连斯基对约翰逊进行了高度赞扬，称约翰逊是反对俄罗斯入侵乌克兰最有原则的领导人之一，是对俄罗斯实施制裁以及支持乌克兰国防的领导人。
 
 参考链接：
-1. [台僑王楠穎返烏克蘭參軍 以台灣之名為第二故鄉奮戰](https://www.cna.com.tw/news/aipl/202204090016.aspx)
-2. [A Volunteer From Taiwan, a Ukraine Refugee Himself, Join Our NFSC Ukraine Rescue Operation Site in Medyka, Poland](https://gnews.org/2275724/)
-3. [**柳人不悔**](https://zh-tw.facebook.com/reo7seven?__cft__[0]=AZU9NMl15zxTcYqEetkTKZjrqYB0zN1X-bSL6d_HPNgi-vfagUcVwvFAbwoaBc71TzRw-dGFc8qAcyPOOmFsk5oAeE862NUAi5gq9GlCnCFcCpIWvjGWn0uicJqKMgXoKev2aoJPAyk8om2VKekllSRHpXvLNX7UDvJ6ajZoBGI7jQ&amp;__tn__=-UC%2CP-R)
+1. [超保密！ 英相強森突訪基輔 澤倫斯基秀照片高喊：我的朋友](https://news.ltn.com.tw/news/world/breakingnews/3888113)
+2. [英国首相鲍里斯.约翰逊来到基辅，支持乌克兰人民。这次英国表现明显好于德法](https://twitter.com/Bob20227/status/1512905794143940608)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：飞虹
+总编/审核：飞虹
+编辑：翼族
 校对/发稿：Hetangyuese
+
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  

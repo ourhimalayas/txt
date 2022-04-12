@@ -2,32 +2,35 @@
 ---
 
 
-## 英首相约翰逊突访乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332338/)
+## 雅典娜快讯：泽连斯基向韩寻求军援抵御俄罗斯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2332422/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月9日，英国首相约翰逊突访基辅，会见了乌克兰总统泽连斯基。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-约翰逊此次乌克兰之行严格保密，事前英国政府与英国媒体只字未提，直到英国驻乌克兰大使馆在网络上发布照片后，消息才随之被曝光。泽连斯基也在脸书上晒出两人的会面照，并表示：欢迎来到基辅，我的朋友！约翰逊与泽连斯基还在基辅街头一起高调现身，进行了步行巡视。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-23.jpg)
-英国首相官邸发言人指出，约翰逊亲自会见泽连斯基，展现出两国人民团结一心的坚定立场，并透露英国将对乌克兰进行新的金融与军事援助。乌克兰总统办公室副主任西比哈表示，约翰逊与泽连斯基进行了一对一单独会面。
+#### 整理：等风来
+编辑：伏而起之
 
-泽连斯基对约翰逊进行了高度赞扬，称约翰逊是反对俄罗斯入侵乌克兰最有原则的领导人之一，是对俄罗斯实施制裁以及支持乌克兰国防的领导人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片38.png)图片来源：泽连斯基官方IG
 
-参考链接：
-1. [超保密！ 英相強森突訪基輔 澤倫斯基秀照片高喊：我的朋友](https://news.ltn.com.tw/news/world/breakingnews/3888113)
-2. [英国首相鲍里斯.约翰逊来到基辅，支持乌克兰人民。这次英国表现明显好于德法](https://twitter.com/Bob20227/status/1512905794143940608)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+2022年4月11日韩联社报道，乌克兰总统泽连斯基向南韩国会发表视讯演说，他要求南韩提供军事武器支援，以协助乌克兰抵御俄国的侵略。
 
-总编/审核：飞虹
-编辑：翼族
-校对/发稿：Hetangyuese
+泽连斯基表示，大韩民国可以帮助乌克兰，南韩拥有可以阻止俄国船舰和飞弹的军事武器。
 
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+据悉，乌克兰3月初曾向包括南韩在内的各国请求提供军事及人道主义援助。除了非武器物资外，乌方请求援助的物资还包括步枪、反坦克炮等杀伤性武器。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+路透社报导，泽连斯基在演说中还提到，俄国威胁到全欧洲，不仅只有乌克兰。俄国也正在集结数以万计的军队发动下一次攻击。
+
+他更说，乌克兰东南部港市马立波（Mariupol）可能有数以万计的人们遭杀害，除非俄国被迫停止，否则他们不会罢手，如果乌克兰要在这场战争中存活下来，会需要更多帮助。
+
+参考链接：[泽连斯基向韩寻求军援抵御俄罗斯](https://www.setn.com/news.aspx?newsid=1098623)
+
+*发布：wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
