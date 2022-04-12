@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 4:29 PM (UTC)`
+
+4/10/2022: Miles Guo: UK and European union are competing to form an alliance with Ukraine. Meanwhile the CCP is deploying HQ and DF series Missile Systems in the Balkans and the Middle East. This has set the stage for a war between Europe and Russia/China. Xi Jinping will take this chance to invade Taiwan; the Chinese will be the biggest victims of the war. What is going on in Shanghai will happen to the entire mainland China. The CCP is prepared for the death of 100 million Lao Baixing.<br/><br/>4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾；这场战争的最大受害者将是中国老百姓，现在的上海就是未来中国的缩影，共产党已做好中国死上一亿人的准备。<br/>
+![img](https://media.gettr.com/group33/getter/2022/04/12/16/26a70e0b-5ce5-4649-ca5b-75e36aa40514/out.jpg)
+
+---
+
 `@miles 4/12/2022 4:06 PM (UTC)`
 
 04/12/2022 on the 9th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Fiji 🇫🇯  Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia,Fiji, Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2334531/
@@ -146,13 +153,6 @@
 
 4/10/2022 Miles Guo: The Taiwanese and Japanese media that did not dare to report on the NFSC & ROLF Ukraine rescue operation has proved that the citizens of the New Federal State of China have become a mirror of courage and justice for the whole world. No one is more noble than the fellow fighters who left their family and career behind, risking their life to participate in the Ukraine rescue operation. Everything about the NFSC & ROLF Ukraine rescue operation is a voluntary act of our fellow fighters. I am grateful for all your efforts made at each and every moment.<br/><br/>4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大！新中国联邦救援行动的一切都是战友们自发的，文贵感恩你们每分每秒的付出！<br/>
 ![img](https://media.gettr.com/group30/getter/2022/04/12/01/1e63b4a4-c560-12e6-ae07-e99149129e5c/out.jpg)
-
----
-
-`@miles 4/12/2022 1:06 AM (UTC)`
-
-4/10/2022 Miles Guo: The Japanese government and the leaders of some European countries appreciated the New Federal State of China for rescuing refugees on the front line of the Russian-Ukrainian war; many dignitaries from different countries have secretly contacted Mr. Guo about the recognition of the NFSC as a legitimate state; the Jews, who are in deep collusion with the Chinese Communist Party, are also grateful for the NFSC rescuing their people<br/><br/>4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系；与中共勾兑极深的犹太人也感激新中国联邦人的救助<br/>
-![img](https://media.gettr.com/group12/getter/2022/04/12/01/de4edaba-8caf-93bf-632f-ed73572eeb2c/out.jpg)
 
 ---
 

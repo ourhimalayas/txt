@@ -2,39 +2,29 @@
 ---
 
 
-## 有声|欧盟主席表示乌克兰将拥有“欧洲的未来”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2335438/)
+## 封城之下 上海特斯拉可能“至少”停工到5月中旬
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2335463/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月8日，欧盟委员会主席乌尔苏拉·冯德莱恩在访问基辅时表示，因为来自西方的制裁越来越严厉，俄罗斯正面临“衰退”，而乌克兰将拥有“欧洲的未来” 。
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-239.jpg)
+2022 年 4 月 12 日
+由于新一轮凶猛而不明真相的因病毒封城，使上海发生了巨大的混乱，但人们几乎没有注意因封城而导致的特斯拉工厂的关闭对公司的经营业绩可能产生的影响。
 
-在与乌克兰总统泽连斯基举行的新闻发布会上，冯·德莱恩谴责了基辅附近的布查镇发生的平民屠杀事件，表示对当天早些时候，乌克兰东部克拉马托尔斯克的一个火车站遭到火箭袭击，造成数十人死亡的事件感到“震惊”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-22.jpg)
-她表示，乌克兰的战斗也是欧盟的战斗，他这次对基辅的访问，就是要发出一个非常强烈的信息，即欧盟和乌克兰站在一起。她强调，欧盟正在动员各种可能的经济力量，会让普京付出非常、非常沉重的代价。
+但 GLJ Research 的分析师 戈登.约翰逊（Gordon Johnson ）将这个问题推到了聚光灯下，他在周一给客户的一份报告中写道，当地的联系人告诉他的公司，上海可能会长时间关闭。
 
-冯德莱恩同时明确，她相信此次访问会成为乌克兰通往欧洲和欧盟之路的起点。
+“昨晚在同我们在中国本地的一位联系人的讨论中，我们被告知，特斯拉的上海工厂将‘至少’停产到五月中旬（并且要等到‘第三季度末’才能全面开工——是的， 你没听错），”约翰逊写道。
+
+”更具体地说，我们的上海联系人说，由于特斯拉的工厂是：（a）一家非关键工厂（即不是食品、药品和军事），以及（b）混合来自多个地区的人，这是严格禁止的，因为那里每个地区都必须继续封锁，与其他更关键的工厂相比，它不会被优先考虑。”
+
+约翰逊告诉客户，他不认为这个统计已将公司的股票或车型计入在內：“，除此之外，在我们今晚的交谈中，我们的联系人及特斯拉的供应商表示他们认为工厂每关闭一天都需要2到3天来重新启动，因此，简而言之，随着街道版的特斯拉的销售额/每股收益从2022年第一季度的 178 亿美元/2.72 美元增长到2022 年第二季度的 195.97 亿美元/2.50 美元，我们相信这个消息并没有被计入成本（我们的联系人认为，特斯拉可能会在今年第二季度亏损，而目前的共识估计他们将提供 2.50 美元 的每股收益 [或 28.73 亿美元的净收入]）。
+
+当被问及工厂关闭时间是否会超过 4 月底时，GLJ 在中国的联系人表示：“是的，它将关闭至少4到6周，并且很可能至少到6月1日动态清零政策的仍未取消。”我还预计工厂每一天的关闭都需要两到三天来重新启动，所以关闭到 5 月份，上海要到第三季度末才能恢复全面生产。我对第一季度产量的最佳估计是 19万。这是基于5月中旬的开盘价。我完全相信该季度将在16万左右出现亏损。”
+
+约翰逊表示，他认为特斯拉上海工厂的利润超过了公司利润的 100%，如果这一点变得显而易见，那么围绕特斯拉其他工厂效率的观点可能会受到压力。
+
+原文链接：[https://www.zerohedge.com/markets/gordon-johnson-teslas-shanghai-factory-could-be-down-until-least-mid-may](https://www.zerohedge.com/markets/gordon-johnson-teslas-shanghai-factory-could-be-down-until-least-mid-may)
 
 
-
-文字版原文：[欧盟主席表示乌克兰将拥有“欧洲的未来”](https://gnews.org/zh-hans/2332336/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

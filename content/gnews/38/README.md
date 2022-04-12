@@ -2,38 +2,35 @@
 ---
 
 
-## 莫里森回击普京的入境禁令，声称制裁是“荣誉勋章”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2334524/)
+## 2022/04/07 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2334739/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+1. 4月5日， 江西南昌一居民小区围墙上，架设着通常只会出现在监狱围墙上的刀片刺绳隔离网。
+2. 4月5日，吉林长春。狗狗主人确诊阳性被转移至方舱后，社区工作人员以安置狗狗为由将其活活打死。拥有共产主义的每个角落人性总是会泯灭。 #中国人≠中国共产党
+3. 4月5日，山东菏泽。一男子欲突破封锁区域外出，被当地防控志愿者用推子剃头侮辱。人斗人现象，早在中共文革时期就存在过！
+4. 3月31日，河北唐山。一名婴儿在核酸检测现场发生窒息意外的画面在社交媒体传播。民间称其是做核酸时被志愿者捅死，中共官方称婴儿为棉被捂盖导致窒息，并逮捕了传播民间说法的人。
+5. 近日，上海。一位山东大姐因上海的疫情防控政策被迫流落街头，睡在大马路上。自诉因其是外地户口感染病毒三天了也没人管。
+6. 4月4日，上海。中共防疫政策规定一人不做核酸，全小区视为无效。某小区居民因不配合做核酸，被工作人员和其他户主催促。
+7. 4月3日，疫情下上海世博园方舱医院的集中隔离生活。毫无意义的集中隔离，我们应该质疑它的动机。
+8. 4月4日，上海。上海市公安局副局长在其官方新闻发布会上要求，公众传播疫情信息一定要以所谓官方部门发布信息为准，随意传播疫情信息将可能会面临被抓捕。意欲进一步加强言论审查和控制。
+9. 4月5日，辽宁卫视电视台女主持朱霞 ，因其直播时向公众预警警惕疫情防控风险，被中共官方以制造疫情话题引群众恐慌的理由而停职！
 
-翻译：li yan li
-编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1432.png)图片来源：Republic World & 雅典娜设计组
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon*
+- *2，听写：Filon*
+- *3，翻译： 大头猫*
+- *4，PR：Seven-Star Ant*
 
 
-4月11日，据澳大利亚新闻报道，总理斯科特·莫里森对莫斯科禁止他和227名澳大利亚领导人进入俄罗斯的入境禁令的制裁作出回应，称制裁是一种“荣誉勋章”。
+* * *
 
-莫里森先生是俄罗斯外交部周四发布的禁止入境名单上的228名澳大利亚领导人之一，这是对莫里森先生最近对俄罗斯实施制裁的直接回应。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-周二，莫里森先生在新闻发布会上谈到了制裁问题。
 
-他说：“制裁是澳大利亚为自由而站起来的荣誉勋章，我很高兴把这作为为澳大利亚人站出来的荣誉勋章。”
+编辑：【英国伦敦喜庄园编辑部】
 
-同日，媒体爆出俄罗斯在入侵乌克兰的过程中进行了化学战。
-
-外交部长玛丽斯·佩恩说，俄罗斯的这种行为是对国际法的进一步全面违反，进一步表明普京和俄罗斯绝对违反了每一项价值观。
-
-新闻链接：[Prime Minister Scott Morrison hits back at Vladimir Putin’s entry ban claiming sanction is a ‘badge of honour’ | Sky News Australia](https://www.skynews.com.au/australia-news/prime-minister-scott-morrison-hits-back-at-vladimir-putins-entry-ban-claiming-sanction-is-a-badge-of-honour/news-story/31022fbf25c32f82f2d7180d5b0d46dd)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

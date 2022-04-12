@@ -2,28 +2,39 @@
 ---
 
 
-## 中共借防疫在香港测试暴政强度
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2335264/)
+## 有声|普京任命“叙利亚屠夫” 转战乌东
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2335373/)
 
-作者：东京樱花团︱阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中共借防疫在香港测试暴政强度.jpg)图片来自本文链接
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒4月9日报道，因为在乌克兰遭遇了一系列军事挫折，俄罗斯总统普京指派了被称为“叙利亚屠夫”的德沃尼科夫将军担任指挥官，希望能重振俄军的攻势，征服乌克兰东部的顿巴斯地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-21.jpg)
+在任命 60 岁的德沃尼科夫之前，俄罗斯依靠独立的指挥系统指导其入侵行动，大多数重大决定都直接来自克里姆林宫，没有一个指挥官能掌握全局。现在，由于无法占领首都，莫斯科已将军事重点转移到对俄军更有利的东部顿巴斯地区，其中包括顿涅茨克和卢甘斯克。
 
-小学最早可于4月19日起分阶段恢复半天面授课堂，中学则由5月3日开始复课，届时全校师生被要求每日回校前需做快速检测。港府只会派发1000万个快速检测包予有经济困难家庭，但每日检测对家庭产生不小经济压力，教育局副局长蔡若莲却指不会对一般家庭经济负担成较大问题，所以不会向全港学生派发快速检测包。
+据悉，德沃尼科夫将军因在叙利亚的野蛮行动而声名狼藉。
 
-港府成为中共政权的傀儡政府，在香港推行两年的强制防疫政策，不断进行强度测试，已经成功扼制港人生存的权力。从口罩令到闭关锁港，从限聚令到隔离营，停业失业、复工减薪、停业结业失业的恶行循环；围封强检禁足不断，港人为盼解封积极配合；中共一声令下切断物资供应，港人立即因没有生鲜食品而崩溃；港府不断收防疫政策逼港人注射新冠疫苗，港人为求能获得行动自由而放弃自己的身体；所有阳性院舍人士被移入隔离营生死由命，大量长者和体弱人士死去，港府官员哀悼一声了事。面对中共围封北上广等城市造成的人道灾害，香港人还有三餐自主的能力，还有基本的出行自由，港府还有抗疫津贴发放，中共对香港人的恩典是“何其浩大”，难怪港府高官公开表示不会向全港学生提供检测包，并且认为一般家庭有能力应付检测包的支出。随着林郑月娥政府的出局，香港正式进入军官状态，各种强硬的政策将陆续出台，各区的隔离营已经准备就绪，听党话的有活命的机会，不顺服的讲条件的全部以阳性患者的名义隔离，一切阻碍中共霸权世界的都会被其清除。深受中共病毒和新冠毒疫苗之害的数百万港人，是否能重现当年“如同一人”的凝聚力，与其全家被中共虐死，不如团结起来奋起反抗，因为这次的抗争是殊死一搏。
+西方官员预测，克里姆林宫的目标是在庆祝二战胜利周年纪念日，即5月9日之前取得某种形式的胜利。而到目前为止，好战的俄罗斯人还没有取得任何胜利。
 
-资料来源：
-[復課｜沒計劃向全港學生派快測包　蔡若蓮：一般家庭負擔唔係好大](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/758015/%E5%BE%A9%E8%AA%B2-%E6%B2%92%E8%A8%88%E5%8A%83%E5%90%91%E5%85%A8%E6%B8%AF%E5%AD%B8%E7%94%9F%E6%B4%BE%E5%BF%AB%E6%B8%AC%E5%8C%85-%E8%94%A1%E8%8B%A5%E8%93%AE-%E4%B8%80%E8%88%AC%E5%AE%B6%E5%BA%AD%E8%B2%A0%E6%93%94%E5%94%94%E4%BF%82%E5%A5%BD%E5%A4%A7)
 
-*校对：东京樱花团/阿恩
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+
+文字版原文：[普京任命“叙利亚屠夫” 转战乌东](https://gnews.org/zh-hans/2332335/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
