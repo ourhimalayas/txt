@@ -2,17 +2,29 @@
 ---
 
 
-## 秘翻在线：日本政府向感染人数日渐增多的冲绳县派遣 &#8220;联络官&#8221;
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333106/)
+## 上海放松封城政策 沪京高铁票抢售一空
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2333152/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-16.png)（图片源自本文链接）
-据４月12日每日新闻记者村尾哲报道：在12日上午的新闻发布会上，内阁官房长官松野博一宣布，将在当天派遣一个联络小组前往中共病毒(新冠病毒)病例数量不断上升的冲绳县。负责在县政府和各部委之间进行联络，并计划在15日前派出由一名内阁议员领导的四人小组。
+作者：香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
+综合媒体4月12日报道，中共上海市日前终于放松了对当地部分居民的管控措施，部分居民在两周多以来首次走出家门。同时，据中共铁路官方网站12306显示，本周上海直达北京、杭州、南京等多地的高铁票目前已经售罄。
 
-冲绳县是全国每10万人中新感染病例最多的地区，并有增加的趋势。松野先生表示，我们将紧密合作，以便能够作出灵活的反应。
+据了解，上海市近日来已被中共病毒攻陷，日单增阳性感染者已连续保持在2万人以上，疫情形势严峻程度已超过2020年的武汉封城时期。然而，上海当局却在本周一发布消息称，当地的7000多个住宅单位在14天内没有报告新感染病例后被归类为低风险地区，部分市民于周二被允许离开他们的住所。消息发出当日，上海到达包括北京在内的多个城市的火车票随即被销售一空，上海疫情溢出风险亦随之飙升。
 
-信息源：[コロナ感染者増の沖縄に「連絡員」派遣 県と各省の調整役に (msn.com)](https://www.msn.com/ja-jp/news/national/%E3%82%B3%E3%83%AD%E3%83%8A%E6%84%9F%E6%9F%93%E8%80%85%E5%A2%97%E3%81%AE%E6%B2%96%E7%B8%84%E3%81%AB-%E9%80%A3%E7%B5%A1%E5%93%A1-%E6%B4%BE%E9%81%A3-%E7%9C%8C%E3%81%A8%E5%90%84%E7%9C%81%E3%81%AE%E8%AA%BF%E6%95%B4%E5%BD%B9%E3%81%AB/ar-AAW75SE?ocid=msedgntp&amp;cvid=df2b5a7981004bba88fdb8ed2a146fe0)
+此前，郭文贵先生曾在盖特中警告称，继上海之后，北京将成为下一个因疫情被封锁的重点城市。中共当局将借助疫情对北京、大连、福建等多座城市继续进行封城、断粮的压力测试，使中共国民众在未来长期挣扎在维生的红线上，无暇顾及国内的疫苗灾难和经济危机。中共将借防疫之手来实现自己对中共国民的绝对统治和缩减人口的邪恶目的。
 
+参考链接：[https://www.reuters.com/world/asia-pacific/shanghai-lets-some-residents-leave-home-cautiously-eases-covid-curbs-2022-04-12/ http://travel.china.com.cn/txt/2022-04/07/content\_78152007.html](https://www.reuters.com/world/asia-pacific/shanghai-lets-some-residents-leave-home-cautiously-eases-covid-curbs-2022-04-12/%20%20http://travel.china.com.cn/txt/2022-04/07/content_78152007.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

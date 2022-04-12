@@ -2,25 +2,25 @@
 ---
 
 
-## 职业运动员成为疫苗灾难的主要受害者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2332451/)
+## 辉瑞公司新增大量雇员处理疫苗伤害案件
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2332519/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+采编/撰稿：   加拿大温哥华扬帆农场 – 薇文
 
-据美国&lt;True Defender&gt;近日报道，自新冠病毒疫苗在全球推广接种以来，已有大量职业运动员因出现心绞痛、心梗塞等严重疾病而被迫停止其职业生涯甚至是死亡。
+英国[新闻调查]4月9日报道，[美国食品和药物管理局]最近公布的文件证实：为处理因新冠病毒疫苗接种而出现的健康伤害案例，辉瑞公司专门增加了大量新雇员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1385.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1386.png)图片来源：TECHAPP
 
-图片来源：[https://thetruedefender.com](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
-最新数据显示，美国至少有769名已接种的职业运动员在比赛中因突发心脏疾病而倒下，其中出现心脏骤停的运动员之平均年龄只有23岁。在欧盟，2021年因突发心脏病而死亡的足球运动员人数比前一年上升了5倍。
 
-报道称，以上不正常现象绝非偶然，许多球队医生已直接将疫苗列为导致运动员病亡的根本原因。此外，众多医学专家此前都曾在当局推出实验性疫苗之前发出过警告：称接种该疫苗会给人体器官带来致命性伤害！
+据悉，自2021年6月，辉瑞至少新增了1800名雇员以专门协助处理因接种该公司生产的mRNA疫苗而出现的大量副作用案例报告。但这些新雇员是否能足够应对不断激增的疫苗伤害病例，目前还尚不得知。
+
+截止今年3月底，仅英国医药监管机构就收到近17万份的疫苗伤害报告。但[美国食品和药物管理局]对此却避而不提，或许这是该局计划在75年之后才公布辉瑞疫苗成分及其伤害数据的主要原因。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
+原文链接： [Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
 
  
 

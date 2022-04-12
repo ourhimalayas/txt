@@ -2,35 +2,29 @@
 ---
 
 
-## 奥地利领导人在俄罗斯与普京进行“公开而强硬”的会谈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333108/)
+## 俄乌战争｜乌克兰证实俄军在马里乌波尔地区使用化学武器
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333162/)
 
-#### 翻译/编辑：小红帽
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜烏克蘭證實俄軍在馬里烏波爾地區使用化學武器.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_370afdafa71345fa8742d9a7a2585500_16x9_992.jpg)图片来源：ABC NEWS
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-根据路透社4月12日报道，奥地利总理卡尔·内哈默周一在莫斯科附近与俄罗斯总统弗拉基米尔·普京举行了“非常直接、公开和强硬”的会谈，这是普京自入侵乌克兰以来与欧盟领导人的首次会晤。
+乌克兰媒体12日引述守军发出的报告指出，俄军使用无人机对被包围在钢铁厂范围内的亚速营（Azov）部队投放有毒物质，伤者出现呼吸困难及神经系统失常症状，怀疑是化学武器。
 
-中立的奥地利从俄罗斯获得 80% 的天然气，通常与莫斯科的联系通常比欧盟大部分国家更密切，但最近情况并非如此。
+美国国防部新闻秘书约翰·科比表示，五角大楼正在密切关注此事，如经证实，这将是俄军首度对乌克兰动用化学武器，代表俄乌冲突的重大升级，并对北约的行动构成直接挑战。
 
-内哈默表达了对乌克兰的声援，并谴责了俄罗斯明显的战争罪行。而他的政府也与其他欧盟国家一起驱逐了俄罗斯外交官，尽管这只是俄罗斯驻乌克兰外交人员的一小部分。
+乌克兰总统泽连斯基（Volodymyr Zelensky）11日深夜发表讲话，证实俄军威胁将在马里乌波尔（Mariupol）地区使用化学武器。马里乌波尔内的亚速营（Azov）部队被包围在城内的钢铁厂，情况危在旦夕，惟守军重申不会投降将死守至最后。
 
-“这不是一次友好的访问，”普京在莫斯科郊外的新奥加廖沃官邸会晤后不久，他的办公室发表的一份声明中援引内哈默的话说。内哈默尔的一位发言人说，会议持续了75分钟，以普京的标准来说，这相对较短。
+美国官员过去几天一直对外警告，俄军极有可能会继续他们的“暴行”，加倍袭击乌克兰东部地区，并作出类似叙利亚内战期间使用化学武器的野蛮行为。周一，普京任命在叙利亚立下战功，外号“叙利亚屠夫”的冷血战将德沃尔尼科夫全权指挥对乌克兰的侵略行动，对此，新中国联邦发起人郭文贵先生担心，乌克兰恐怕会迎来一场毁灭性攻击。
 
-内哈默重申了之前的评论，他希望帮助结束冲突或改善乌克兰陷入困境的平民，例如人道主义走廊。他几乎没有透露普京的回应。
+來源｜[CNBC](https://www.cnbc.com/2022/04/11/pentagon-monitoring-reports-of-possible-russian-chemical-weapons-attack-in-mariupol.html)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3455161-russias-chemical-attack-on-mariupol-three-persons-affected.html)
 
-“与普京总统的对话非常直接、公开和强硬，”内哈默在声明中说。“我向普京传达的最重要信息是，这场战争必须最终结束，因为在一场战争中，双方都只有输家。”
+* * *
 
-资料来源：[Austrian leader has ‘open and tough’ talks with Putin in Russia](https://www.reuters.com/world/europe/austrian-leader-holds-open-tough-talks-with-putin-moscow-2022-04-11/)
-
-发布： *wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

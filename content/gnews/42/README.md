@@ -2,34 +2,28 @@
 ---
 
 
-## 中日财经爆┃加密货币基金创1月以来最大流出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332178/)
+## 台湾旅乌男士在新中国联邦救援基地任义工
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332334/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃加密货币基金创1月以来最大流出.png)
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+当地时间4月9日台湾媒体报导，一位来自台湾的旅乌男士王楠颖，在波兰梅迪卡新中国联邦的救援帐篷中担任义工，为来自乌克兰的难民从事翻译工作。在媒体的照片中，我们可以看到王先生穿着新中国联邦义工的马甲，背景中还出现了写有“新中国联邦、法治基金、乌克兰人道救援”字样的横幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-20.jpg)
+据悉，王先生是从台湾去乌克兰读书及工作的，已经旅居乌克兰8 年。他本人也是这次战争中的难民，在3月2日台湾政府的撤侨行动中顺利离开了乌克兰第二大城哈尔科夫。但是他对乌克兰第二故乡的感情让他选择留下来，以他能说中、英、日、乌、俄语的语言能力，及同样来自战争灾区的同理心，在难民营中为难民做翻译服务，帮忙他们解决各种沟通上及情绪上的问题。另外，王先生也报名了乌克兰的国际志愿军团，并被录取。接下来他将继续以他的语言能力发挥更大的作用。
 
-上周 ，是加密货币基金自1 月以来最大的净流出量。
+一位战友表示，尽管媒体的报导中并未突出新中国联邦的内容，但任何形式的传播都包含着媒体本身对我们的认同。新中国联邦的理念、精神一定会以各种形式在不知不觉中被散布到世界的每一个角落。
 
-根据 CoinShares（硬币股）4月11日发布的一份报告，截至4月8日的一周内，加密货币基金已从比特币（BTC）和以太坊（ETH）基金中撤出。这是连续二周出现净流入后的今年第二大净流出，达1.34 亿美元。
+参考链接：
+1. [台僑王楠穎返烏克蘭參軍 以台灣之名為第二故鄉奮戰](https://www.cna.com.tw/news/aipl/202204090016.aspx)
+2. [A Volunteer From Taiwan, a Ukraine Refugee Himself, Join Our NFSC Ukraine Rescue Operation Site in Medyka, Poland](https://gnews.org/2275724/)
+3. [**柳人不悔**](https://zh-tw.facebook.com/reo7seven?__cft__[0]=AZU9NMl15zxTcYqEetkTKZjrqYB0zN1X-bSL6d_HPNgi-vfagUcVwvFAbwoaBc71TzRw-dGFc8qAcyPOOmFsk5oAeE862NUAi5gq9GlCnCFcCpIWvjGWn0uicJqKMgXoKev2aoJPAyk8om2VKekllSRHpXvLNX7UDvJ6ajZoBGI7jQ&amp;__tn__=-UC%2CP-R)
 
-大部分净流出为比特币基金，净流出1.318亿美元。同时，投资比特币下跌的短期投资产品净流入最大，达到200万美元。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-报告称“我们认为上周价格上涨可能帮助投资者获利了结”。以太坊基金也有1530万美元的净流出。
-
-投资于多种加密资产的多资产基金保持恢复状态，净流入500万美元。此外，Solana（SOL）基金净流入370万美元，Cardano（ADA）基金净流入100万美元，Litecoin（LTC）基金净流入60万美元。
-
-信息来源：
-[暗号資産ファンド、1月以来最大の流出に──2週連続の流入から一転（CoinDesk Japan） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/52a95fd6069b40ba6ba1b5bed90a91c2684e2def)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

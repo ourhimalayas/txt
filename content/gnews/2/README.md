@@ -2,50 +2,27 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.12）打完康希诺后副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333125/)
+## 俄乌战争｜车臣“战争狂人”称俄军将攻陷基辅
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333171/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜車臣「戰爭狂人」稱俄軍將攻陷基輔.jpg)
 
-#### 整理：gardeniahu
-编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-19.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-原文作者：许予
-
-**疫情|新冠疫苗副作用     打完康希诺后副作用**
-
-#新冠疫苗 #康希诺疫苗 我真的会谢，家人们。打完疫苗第二天，头疼疼了一天，轻微发烧，下午耳朵疼，之后累的不行，睡了半小时之后，好了点。第三天大姨妈直接提前了，而且脸上长了一片点点而且还痒。无语了，我能确定不是我用的护肤品的问题。我的那套水乳都用了2，3套了。脸上一点问题都没有。打个疫苗给我整成这样。
-
-发布于04.10
-
-精选评论
-
-你与时光皆薄凉回复：我也谢了，8号打的第三针，当天没啥事，就是胳膊疼，9号半夜开始身上局部痒，10号一天全身痒，一晚上没睡好，半夜头痛，眼睛疼……我感觉我快要死了。
-
-初遇回复：我们新冠kx疫苗后确诊急性髓系白血病。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-26.png)图片来源：小红书
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-7.png)图片来源：小红书
+俄罗斯车臣共和国总统卡德罗夫（Ramzan Kadyrov）周一（11日）表示，俄罗斯军队在夺取乌东顿巴斯地区（Donbas）以后，还将对基辅及其他乌克兰城市发起进攻。
 
+卡德罗夫指出，俄军未来除了乌克兰南部重镇马里乌波尔（Mariupol），亦会向其他城市和村庄发动攻势。这位被外界称为“战争狂人”的卡德罗夫强调，“我可以保证，普京一步都不会退让，拿下基辅是毫无疑问的。”。
 
-参考链接：[打完康希诺后副作用](https://www.xiaohongshu.com/discovery/item/625286f5000000000c03157c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649658227)
+车臣自俄乌开战初期就已派遣部队协助俄军，其后被揭露损伤惨重，就连车臣军队第二号人物图沙耶夫（Magomed Tushayev）亦被传阵亡。
 
-发布*：wenly*
+來源｜[路透社](https://www.reuters.com/world/europe/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-2022-04-11/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

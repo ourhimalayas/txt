@@ -2,40 +2,50 @@
 ---
 
 
-## 普京任命“叙利亚屠夫”统领入侵行动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333063/)
+## COVID-19疫苗副作用集萃（2022.4.12）打完康希诺后副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333125/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-翻译/编辑：文泓
+#### 整理：gardeniahu
+编辑：gardeniahu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/32cbc904a34a3aba.jpg)图片来源：New York Post & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-19.png)图片来源：雅典娜设计组(614)
 
 
-4月12日，据报道，俄军在乌克兰遭遇重挫，总统普京已任命了一位冷酷的俄罗斯将军来统领在乌克兰的入侵行动，目标将是整个欧洲领域。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-这位被称为“叙利亚屠夫”的亚历山大·德沃尔尼科夫上将，曾帮助叙利亚总统阿萨德总统在内战中消灭了他的敌人。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-华盛顿的国家安全顾问杰克·沙利文警告说，德沃尔尼科夫的晋升将导致更多暴行发生。
+原文作者：许予
 
-2015年德沃尔尼科夫被派往叙利亚，以支持阿萨德士气低落的政府军。他在叙利亚制定的毁灭性、破坏性和无情的策略获得成功，被评为俄罗斯联邦英雄，目前是俄罗斯[南部军区的指挥官。](https://tickernews.co/first-ukrainian-city-to-be-taken-over-by-russian-military/)
+**疫情|新冠疫苗副作用     打完康希诺后副作用**
 
-“阿萨德并不是唯一一个要为在叙利亚杀害平民负责的人，这位俄罗斯将军也应该负责，”总部设在英国的战争监测机构叙利亚人权观察站负责人表示。
+#新冠疫苗 #康希诺疫苗 我真的会谢，家人们。打完疫苗第二天，头疼疼了一天，轻微发烧，下午耳朵疼，之后累的不行，睡了半小时之后，好了点。第三天大姨妈直接提前了，而且脸上长了一片点点而且还痒。无语了，我能确定不是我用的护肤品的问题。我的那套水乳都用了2，3套了。脸上一点问题都没有。打个疫苗给我整成这样。
 
-在周六对乌克兰人的深夜讲话中，乌克兰总统泽伦斯基说，俄罗斯的侵略“并不打算只限于乌克兰，整个欧洲都是俄罗斯的目标”。
+发布于04.10
 
-“这就是为什么支持乌克兰的和平愿望不仅是所有民主国家、所有欧洲力量的道德责任，这也是每一个文明国家的防御战略。”
+精选评论
 
-参考链接：
-1、[Russian invasion: Putin could target ‘entire Europe project’, Ukraine warns | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/vladimir-putin-turning-attention-to-entire-europe-project-ukraine-warns/news-story/a4b08c4dce7f19115a1da9961d484390)
-2、[Russia sends ruthless Syrian general to take charge of Ukrainian invasion (tickernews.co)](https://tickernews.co/russia-sends-ruthless-syrian-general-to-take-charge-of-ukrainian-invasion/)
+你与时光皆薄凉回复：我也谢了，8号打的第三针，当天没啥事，就是胳膊疼，9号半夜开始身上局部痒，10号一天全身痒，一晚上没睡好，半夜头痛，眼睛疼……我感觉我快要死了。
 
-*发布**：**文武全才*
+初遇回复：我们新冠kx疫苗后确诊急性髓系白血病。
 
-**更多资讯，请关注：**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-26.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-7.png)图片来源：小红书
+
+
+参考链接：[打完康希诺后副作用](https://www.xiaohongshu.com/discovery/item/625286f5000000000c03157c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649658227)
+
+发布*：wenly*
+
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

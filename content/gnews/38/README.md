@@ -2,25 +2,24 @@
 ---
 
 
-## 欧盟主席表示乌克兰将拥有“欧洲的未来”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332336/)
+## 微软没收了俄罗斯用来攻击乌克兰的域名
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332339/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月8日，欧盟委员会主席乌尔苏拉·冯德莱恩在访问基辅时表示，因为来自西方的制裁越来越严厉，俄罗斯正面临“衰退”，而乌克兰将拥有“欧洲的未来” 。
+当地时间4月8日，微软成功没收了俄罗斯军情间谍运营的APT28使用的域名。这些域名是俄罗斯用来追踪乌克兰、美国、欧洲外交政府机构和各类智囊团的。
 
-在与乌克兰总统泽连斯基举行的新闻发布会上，冯·德莱恩谴责了基辅附近的布查镇发生的平民屠杀事件，表示对当天早些时候，乌克兰东部克拉马托尔斯克的一个火车站遭到火箭袭击，造成数十人死亡的事件感到“震惊”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-22.jpg)
-她表示，乌克兰的战斗也是欧盟的战斗，他这次对基辅的访问，就是要发出一个非常强烈的信息，即欧盟和乌克兰站在一起。她强调，欧盟正在动员各种可能的经济力量，会让普京付出非常、非常沉重的代价。
+微软表示，它在4月6日得到法院命令，授权其对俄罗斯APT28用于网路攻击的7个域名进行控制。微软已经将这些域名重新定向到天坑，启用了受害者通知，并向乌克兰政府通报了检测活动和目前的行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-24.jpg)
+这一行动从2016年就开始了，是微软对俄罗斯国家支持的具有战争目的的黑客进行调查的一部分。近年来微软得到了几项法院裁决，用来查封APT28使用的基础设施，它目前已经查封了100多个类似的间谍域名。
 
-冯德莱恩同时明确，她相信此次访问会成为乌克兰通往欧洲和欧盟之路的起点。
+APT28从2009年开始就很活跃，主要用于攻击各国的媒体、军事、安全组织以及政府，包括2015年对德国联邦会议的攻击、2016年对美国民主党全国委员会的攻击，以及对美国通信商Viasat的攻击。其中对美国Viasat的攻击导致了中欧和东欧的卫星服务中断，影响力扩大至全球的家庭和小型企业路由器与网络设备。
 
-参考链接：[Russia faces ‘decay’, Ukraine has ‘European future’: EU chief](https://insiderpaper.com/russia-faces-decay-ukraine-has-european-future-eu-chief/)
+参考链接：[Microsoft seizes domains used by Russian spies to target Ukraine](https://news.yahoo.com/microsoft-seizes-domains-used-russian-123748040.html)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/审核：飞虹
-编辑：玫瑰圓
+总编/编辑/审核：飞虹
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

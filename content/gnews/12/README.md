@@ -2,25 +2,40 @@
 ---
 
 
-## 国际｜芬兰、瑞典讨论加入北约 俄罗斯“挑衅、不会带来稳定”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333035/)
+## 普京任命“叙利亚屠夫”统领入侵行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333063/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-外媒报导称，俄罗斯入侵乌克兰致瑞典、芬兰两中立国重新思考自身安全问题，瑞典执政党目前正在讨论是否应加入北约（NATO），而芬兰则将在未来数周内充分讨论并在6月底作出决定。 俄罗斯则将此视为挑衅行为，并警示“加入北约不会为欧洲带来稳定”。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-瑞典、芬兰两国并未具正式军事同盟关系，惟多项民调结果显示，自俄侵略乌之后，瑞典约5成民意支持瑞典加入北约、芬兰则为6成支持。
+翻译/编辑：文泓
 
-瑞典社会民主党周一声明表示“当俄罗斯入侵乌克兰时，瑞典的安全发生了本质的变化”。该党秘书长拜厄斯·鲍丁（Tobias Baudin）称，瑞典加入北约的安全审查将在“夏天前”完成。据外媒报导，瑞典政坛对于加入北约一事具高度共识，或持开放态度；芬兰部分，外媒称200名国会议员仅6名反对加入北约。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/32cbc904a34a3aba.jpg)图片来源：New York Post & 雅典娜设计组
 
-北约秘书长延斯·斯托尔滕贝格公开表示，欢迎瑞典、芬兰两国申请加入，并将得到美、英、德、法、土耳其在内成员国的支持。对于两国申请加入北约，克里姆林宫视为挑衅，发言人德米特里佩斯科夫（Dmitry Peskov）本周一表示，两国可能加入北约一事，不会为欧洲带来稳定。
 
-来源｜[衛報](https://www.theguardian.com/world/2022/apr/11/sweden-and-finland-make-moves-to-join-nato)
+4月12日，据报道，俄军在乌克兰遭遇重挫，总统普京已任命了一位冷酷的俄罗斯将军来统领在乌克兰的入侵行动，目标将是整个欧洲领域。
 
-* * *
+这位被称为“叙利亚屠夫”的亚历山大·德沃尔尼科夫上将，曾帮助叙利亚总统阿萨德总统在内战中消灭了他的敌人。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+华盛顿的国家安全顾问杰克·沙利文警告说，德沃尔尼科夫的晋升将导致更多暴行发生。
+
+2015年德沃尔尼科夫被派往叙利亚，以支持阿萨德士气低落的政府军。他在叙利亚制定的毁灭性、破坏性和无情的策略获得成功，被评为俄罗斯联邦英雄，目前是俄罗斯[南部军区的指挥官。](https://tickernews.co/first-ukrainian-city-to-be-taken-over-by-russian-military/)
+
+“阿萨德并不是唯一一个要为在叙利亚杀害平民负责的人，这位俄罗斯将军也应该负责，”总部设在英国的战争监测机构叙利亚人权观察站负责人表示。
+
+在周六对乌克兰人的深夜讲话中，乌克兰总统泽伦斯基说，俄罗斯的侵略“并不打算只限于乌克兰，整个欧洲都是俄罗斯的目标”。
+
+“这就是为什么支持乌克兰的和平愿望不仅是所有民主国家、所有欧洲力量的道德责任，这也是每一个文明国家的防御战略。”
+
+参考链接：
+1、[Russian invasion: Putin could target ‘entire Europe project’, Ukraine warns | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/vladimir-putin-turning-attention-to-entire-europe-project-ukraine-warns/news-story/a4b08c4dce7f19115a1da9961d484390)
+2、[Russia sends ruthless Syrian general to take charge of Ukrainian invasion (tickernews.co)](https://tickernews.co/russia-sends-ruthless-syrian-general-to-take-charge-of-ukrainian-invasion/)
+
+*发布**：**文武全才*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 

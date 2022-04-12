@@ -2,24 +2,51 @@
 ---
 
 
-## 守卫切尔诺贝利的乌克兰士兵被失踪
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2330035/)
+## 耶伦呼吁对加密货币加强监管以降低风险和减少欺诈
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2331979/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16496996671.png)[俄罗斯撤军后切尔诺贝利核电站“疯狂”的景象让乌克兰人震惊](https://www.youtube.com/watch?v=s5DJJADTwps)
-据美国商业内幕4月11日报道，守卫切尔诺贝利核电站的169名乌克兰国民警卫队士兵，被关在地下掩体中30天。现在乌克兰政府不知道这些士兵的下落。不知是否在俄罗斯军队撤离时，把他们带到了俄罗斯。
+**据《ABCnews》作者：FATIMA HUSSEIN，2022年4月7日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/agwh1-mtmxl.jpg)图片来源：美联社
+华盛顿——财政部长珍妮特-耶伦(Janet Yellen)表示，需要更多政府监管来控制加密货币扩散，并防止欺诈或非法交易。
 
-乌克兰内政部长丹尼斯·莫纳斯基（Denys Monastyrskyy）说，自俄罗斯军队接管核电站以来，已有多份报道称俄罗斯士兵对核电站采取不负责任的态度。他们在森林里有毒的土壤中挖掘扎营。在俄罗斯士兵出现中毒症状后，撤离了核电站。
+一个潜在的好处是，用户将获得他们的加密货币交易文件，以便在报税时使用。
 
-俄罗斯士兵还洗劫了该设施和乌克兰工作人员的私人财物。他们从所有乌克兰人所有的衣服和物品中寻找钱、贵重物品和电脑笔记本。“这里发生过抢劫”。俄罗斯军队偷走了实施的电脑和设备。
+耶伦周四在美国大学的讲话中认为：“纳税人应该得到与股票和债券交易相同类型的数字资产交易的纳税报告，这样他们就有了向国税局报告收入所需的信息。”
 
-乌克兰士兵被关在那里30天，没有足够的照明和食物，他们不被允许外出。 在俄罗斯占领军驻扎的最后一天，169名军人被从核电站带走。他们可能被作为战俘通过白俄罗斯带到俄罗斯。
+这是自总统拜登(Joe Biden)3月份签署关于数字资产的行政命令以来，耶伦首次发表关于加密货币的讲话。
 
-*责编：白夜*
+在政府的行动之前，今年有几个引人注目的涉嫌加密货币洗钱和欺诈的例子。
 
-[原文链接](https://www.businessinsider.com/ukrainian-national-guardsmen-at-chernobyl-were-locked-in-bunker-2022-4?nr_email_referer=1&amp;utm_source=Sailthru&amp;utm_medium=email&amp;utm_content=Business_Insider_select&amp;pt=385758&amp;ct=Sailthru_BI_Newsletters&amp;mt=8&amp;utm_campaign=Insider%20Select%202022-04-11&amp;utm_term=INSIDER%20SELECT%20-%20ENGAGED%2C%20ACTIVE%2C%20PASSIVE%2C%20DISENGAGED%2C%20NEW)
+2月，司法部宣布其有史以来最大的金融扣押案——超过36亿美元——并逮捕了一对夫妇，他们被指控密谋清洗2016年虚拟货币交易所被盗的数十亿美元的加密货币。
 
+今年3月，联邦监管机构指控两兄妹在涉及一种数字代币的未注册证券发行中诈骗数千名投资者，骗取1.24亿美元。
 
+“我们将提出政策建议，包括评估潜在的监管行动和立法变革。”耶伦说。
+
+她的讲话集中在减少数字货币对金融系统风险的重要性，同时保持美元的国际地位。
+
+她说：“我们对确保创新不会导致国际支付架构的分裂有着强烈的兴趣。”她补充说，“在未来六个月，财政部将与白宫和其他机构合作，制定关于数字货币的报告和建议。”
+
+拜登的加密货币行政命令敦促美联储探讨中央银行是否应该创建自己的数字货币，并指示联邦机构，包括财政部，研究加密货币对金融稳定和国家安全的影响。
+
+耶伦认为，随着银行和其他传统金融公司更多地参与数字资产市场，监管将需要“适当地反映这些新活动的风险”。
+
+耶伦说：“我们的监管框架应旨在支持负责任的创新，同时管理风险——特别是那些可能扰乱金融系统和经济的风险。”
+
+立法者和政府官员也表示担心，俄罗斯可能正在利用加密货币来避免过去几周因入侵乌克兰而对银行、寡头和能源行业实施的雪崩式制裁的影响。
+
+但财政部官员和加密货币专家表示，加密货币不是制裁的变通办法。
+
+**文章来源**:[https://abcnews.go.com/Business/wireStory/yellen-calls-crypto-regulation-reduce-risks-fraud-83929112](https://abcnews.go.com/Business/wireStory/yellen-calls-crypto-regulation-reduce-risks-fraud-83929112)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
