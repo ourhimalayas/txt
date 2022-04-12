@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 1:48 AM (UTC)`
+
+4/10/2022 Miles Guo: Merkel and Sarkozy are the CCP's running dogs and the war-criminal politicians! They coupled the German and French economies with that of Communist China and Russia, and they are the culprits who put Ukraine, Taiwan, and Hong Kong in danger. A case will be filed against Merkel in Germany. Sarkozy took money from the CCP and sold out both Ukraine and Hong Kong. It was France and Germany that backed the CCP to host the 2008 Summer Olympics.<br/><br/>4/10/2022 文贵直播：默克尔和萨科齐是中共走狗和战犯级的政客！他们将德法的经济跟中俄挂钩，且把乌克兰、台湾和香港置于危险境地的罪魁祸首；德国要对默克尔立案调查；萨科齐收了中共的钱，出卖了乌克兰和香港；法德曾在背后力挺中共办08年奥运会<br/>
+![img](https://media.gettr.com/group31/getter/2022/04/12/01/b0e4b2bf-edd1-b6b4-cf38-ff5c6e6f2bef/out.jpg)
+
+---
+
 `@miles 4/12/2022 1:12 AM (UTC)`
 
 4/10/2022 Miles Guo: The Taiwanese and Japanese media that did not dare to report on the NFSC & ROLF Ukraine rescue operation has proved that the citizens of the New Federal State of China have become a mirror of courage and justice for the whole world. No one is more noble than the fellow fighters who left their family and career behind, risking their life to participate in the Ukraine rescue operation. Everything about the NFSC & ROLF Ukraine rescue operation is a voluntary act of our fellow fighters. I am grateful for all your efforts made at each and every moment.<br/><br/>4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大！新中国联邦救援行动的一切都是战友们自发的，文贵感恩你们每分每秒的付出！<br/>
@@ -151,12 +158,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 `@miles 4/11/2022 4:47 PM (UTC)`
 
 04/11/2022 on the 8th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on New Zealand 🇳🇿, Singapore 🇸🇬, Cambodia 🇰🇭, Malta 🇲🇹 Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Mongolia 🇲🇳, Fiji 🇫🇯 , Spain 🇪🇸, Germany 🇩🇪 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 , Malta 🇲🇹 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts and Rock Song Charts<br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia, Mongolia, Fiji, Laos, Spain, Malta, Germany 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2329340/<br/>
-
----
-
-`@miles 4/11/2022 4:42 PM (UTC)`
-
-4月11号, 郭文贵先生两首新歌上线第八天<br/>《灭共的雪》登榜iTunes<br/>新西兰🇳🇿，新加坡🇸🇬，柬埔寨 🇰🇭， 马耳他 🇲🇹 热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/>澳大利亚 🇦🇺， 蒙古🇲🇳，斐济🇫🇯， 西班牙 🇪🇸， 德国 🇩🇪 摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭， 马耳他 🇲🇹热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/>新西兰 🇳🇿， 新加坡 🇸🇬 流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/>西班牙 🇪🇸摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，斐济，老挝，马耳他， 西班牙， 德国的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2329339/<br/>
 
 ---
 

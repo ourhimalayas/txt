@@ -2,31 +2,25 @@
 ---
 
 
-## 中共内应在台湾妈祖绕境活动中故意滋事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329420/)
+## 守卫切尔诺贝利的乌克兰士兵被失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2330035/)
 
-作者：纽约香草山农场医疗部 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月9日晚上，台湾统促党总裁张安乐，在台湾妈祖绕境活动中，故意聚众制造事端，与警方发生冲突。当场有现行犯6人被警方逮捕。警方在10日传唤在场领导指挥的张安乐。
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16496996671.png)[俄罗斯撤军后切尔诺贝利核电站“疯狂”的景象让乌克兰人震惊](https://www.youtube.com/watch?v=s5DJJADTwps)
+据美国商业内幕4月11日报道，守卫切尔诺贝利核电站的169名乌克兰国民警卫队士兵，被关在地下掩体中30天。现在乌克兰政府不知道这些士兵的下落。不知是否在俄罗斯军队撤离时，把他们带到了俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20_025119753586.jpeg)林明佑翻攝
+乌克兰内政部长丹尼斯·莫纳斯基（Denys Monastyrskyy）说，自俄罗斯军队接管核电站以来，已有多份报道称俄罗斯士兵对核电站采取不负责任的态度。他们在森林里有毒的土壤中挖掘扎营。在俄罗斯士兵出现中毒症状后，撤离了核电站。
 
-张安乐是台湾主要帮派竹联帮的创始人之一。近年，张等人接受中共的收买。张安乐在2019年底，曾自称是 “中共同路人” 。在2021年1月，他叫嚣将成立“红色队伍”在台湾起义，毫不掩饰其中共内应的身份。
+俄罗斯士兵还洗劫了该设施和乌克兰工作人员的私人财物。他们从所有乌克兰人所有的衣服和物品中寻找钱、贵重物品和电脑笔记本。“这里发生过抢劫”。俄罗斯军队偷走了实施的电脑和设备。
 
-针对目前法律的漏洞，4月5日，民进党立委邱志伟、赖瑞隆分别就《反渗透法》与《组织犯罪防制条例》提案修法。建议对与境外敌对势力合作，影响国家选举的政党，终止其政党运作，直接交由宪法法庭审理，严惩触犯者。确保国家宪政秩序不受干预，避免危及国家安定。
+乌克兰士兵被关在那里30天，没有足够的照明和食物，他们不被允许外出。 在俄罗斯占领军驻扎的最后一天，169名军人被从核电站带走。他们可能被作为战俘通过白俄罗斯带到俄罗斯。
 
-参考链接：
-1.[張安樂率人接大甲媽鑾轎爆衝突 警方將傳喚說明](https://www.cna.com.tw/news/asoc/202204100004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2.[遏止統促黨亂象 立委拚修法補漏](https://news.ltn.com.tw/news/politics/paper/1509871)
-3.[張安樂談組「紅色隊伍」挨告國安法 今開庭前大談「被洗腦的中國人」](https://news.ltn.com.tw/news/politics/breakingnews/3483270)
+*责编：白夜*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+[原文链接](https://www.businessinsider.com/ukrainian-national-guardsmen-at-chernobyl-were-locked-in-bunker-2022-4?nr_email_referer=1&amp;utm_source=Sailthru&amp;utm_medium=email&amp;utm_content=Business_Insider_select&amp;pt=385758&amp;ct=Sailthru_BI_Newsletters&amp;mt=8&amp;utm_campaign=Insider%20Select%202022-04-11&amp;utm_term=INSIDER%20SELECT%20-%20ENGAGED%2C%20ACTIVE%2C%20PASSIVE%2C%20DISENGAGED%2C%20NEW)
 
-编辑：Jack Li文阳
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

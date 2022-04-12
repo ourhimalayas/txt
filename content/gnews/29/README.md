@@ -2,29 +2,27 @@
 ---
 
 
-## 特鲁多政府将继续扩大联邦预算支出
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331269/)
+## 《在线新闻法》将加强监控独立媒体言论内容
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331517/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+采编：加拿大温哥华扬帆农场 – UCool 优酷
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+加拿大温哥华扬帆农场 – 编译： 晨熹
 
-据【真北方】4月7日报道，2022年联邦政府将继续扩大支出规模并因此新增560亿加元额外支出。自由党财政部长弗里兰当天向下议院提交了该预算案文件。
+据【反叛新闻】4月7日报道， 为规范加拿大数字新闻机构及其在线共享内容，严格监管独立媒体的言论传播，特鲁多自由党最近向议会提交了《在线新闻法案》。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1336.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1344.png)图片来源：[https://www.rebelnews.com](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
 
 
-据悉，新增支出包括80亿加元国防开支，100亿加元经济适用房计划以及对金融机构的进一步税收等。其中新增国防开支将用于升级加拿大航空航天防御系统并购买更多武器装备。同时，自由党政府还将企业的收入附加税提高了1.5%，达到16.5%。
+据悉，该法案还将同时赋予[加拿大广播电视公司]对数字媒体平台及其信息内容进行监管和分享的权力，以禁止其他在线新闻机构能自由地对该公司进行合法的批评。
 
-尽管特鲁多声称明年将债务削减一半以上，但联邦政府赤字预计在2021至2022年将高达1138亿加元。目前，加拿大的债务已超过1.11万亿加元，而以上新增预算对全体加拿大人来说，将意味着更高的税赋
+此外，[加拿大广播公司]还可以向特鲁多政府的相关委员会提出投诉。当局则将授权此前由自由党内阁推荐并任命的总督玛丽西蒙，负责在评议会上向该委员会对该法案做出最终解释。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-新闻来源： [https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/](https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/)
-
-
+原文链接： [https://www.rebelnews.com/new\_bill\_will\_grant\_cbc\_special\_privileges\_while\_regulating\_independent\_media](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
 
  
 
