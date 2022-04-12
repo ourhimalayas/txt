@@ -2,59 +2,43 @@
 ---
 
 
-## 泽连斯基呼吁加码对俄制裁因其使用化学武器
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2333983/)
+## Elon Musk决定不加入推特董事会
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-234.jpg)图片来自网络
-《ABC News》近日报道，乌克兰总统沃洛基米尔-泽连斯基警告说，俄罗斯可能在乌克兰使用化学武器，并敦促西方国家实施更有力的制裁，以防止使用这些武器。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
+当地时间4月11日，Elon Musk决定不加入推特董事会。
 
-有未经证实的报告显示，在被围困的乌克兰南部港口马里乌波尔，有人使用了化学武器。
+据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
 
-泽连斯基先生在其夜间视频讲话中说：”我们以最严肃的态度对待此事。
+此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
 
-他没有说已经使用了化学武器。
+据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
 
-他说：”我想提醒世界上的领导人，俄罗斯军队可能使用化学武器的问题已经讨论过了。
+撰稿、发布：骄子
 
-“而且当时已经意味着有必要对俄罗斯的侵略作出更严厉和更快的反应。”
+reference
 
-马里乌波尔市市长的助手彼得罗-安德里申科在其Telegram频道上写道，关于化学袭击的报道尚未得到证实。他说，他预计以后会提供细节和澄清。
 
-五角大楼新闻秘书约翰-柯比说，美国知道这些报道，但没有核实这些说法。
 
-他说：”我们目前无法确认，并将继续密切监测局势”。
 
-“这些报道，如果是真的，令人深感关切，反映了我们对俄罗斯可能在乌克兰使用各种防暴剂，包括混合化学剂的催泪瓦斯的担忧。”
+> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
+> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
 
-澳大利亚外交部长玛丽斯-佩恩说，她的国家将与其他国家合作，核实这些报告。
 
-佩恩女士说：”如果它们被证实，这将是对国际法的进一步全面违反。
+* * *
 
-“进一步表明普京总统和俄罗斯绝对违反了基于规则的全球秩序的每一个价值和每一个方面。”
 
-上个月，美国总统乔-拜登警告俄罗斯不要在乌克兰使用化学武器，称该国这样做将面临 “严重后果”。
 
-俄罗斯的入侵已经造成数千人死亡，数百万人流离失所，已经从乌克兰首都基辅转移到乌克兰东部，预计该地区将出现大规模攻势。
+欢迎订阅我们的GNews账号：
 
-美国表示，它认为俄罗斯正在加强顿巴斯地区东部的数万名军队，因为俄罗斯将其攻势集中在乌克兰的南部和东部。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-欧盟表示，对俄罗斯实施更多制裁是一种选择。
-
-泽连斯基先生说：”现在是时候以这样的方式制定这套方案了，我们甚至不会从俄罗斯方面听到关于大规模毁灭性武器的字眼。
-
-“对俄罗斯实行石油禁运是必须的。任何不影响石油的对俄制裁新方案在莫斯科都会被微笑着接受。”
-
-俄罗斯核武器都想用，更不用说化学武器了。西方国家需要对此认真对待并做出行动，进一步加码对俄制裁，早日结束这场非正义的战争。
-
-参考链接：
-
-[https://www.abc.net.au/news/2022-04-12/zelenskyy-russia-chemical-weapons-calls-for-more-sanctions/100984526](https://www.abc.net.au/news/2022-04-12/zelenskyy-russia-chemical-weapons-calls-for-more-sanctions/100984526)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

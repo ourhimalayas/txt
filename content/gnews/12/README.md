@@ -2,31 +2,52 @@
 ---
 
 
-## 澳大利亚部长为中共国新安全协议紧急访问所罗门群岛
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2333862/)
+## 最高警报：美国驻华使团关于美国驻上海总领事馆命令撤离的声明
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2333911/)
 
-#### 翻译/编辑：Rianna
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/China-seal-Chi.jpg)
+2022年4月12号，中国时间18：30分，美国驻华使团发出《关于美国驻上海总领事馆命令撤离的声明》，全文如下：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/bfff5619045ef142.png)图片来源：雅典娜设计组
+美国的首要任务莫过于海外美国公民的安全与保障，其包括驻华使团人员和他们的家属。
+
+2022年4月11日，国务院下令非紧急美国政府雇员和其家属自上海总领事馆撤离。从“授权”到“命令”撤离的改变意味着，我们现在强制某些雇员撤离上海，而不是任其自行决定。我们的态势改变反映出我们所做的评估，为了因应当地不断变化的情势，减少人数和缩小运作规模，对我们的员工和家属而言，是最好的决定。雇员和家属将搭乘商业航班离境。因为新冠疫情目前爆发的情势，国务院下达撤离命令。
+
+伯恩斯大使和其他国务院和使馆的官员，持续向中华人民共和国官员提出我们对美国公民安全和福祉的关切。我们已告知中国政府命令撤离的决定。
+
+美国使团的人员将全天候向在中国的美国公民提供紧急服务。使团内部已调整人员配置，来因应激增的紧急公民服务需求，包括由美国驻北京大使馆的一支团队来增援上海总领事馆。在条件允许的地方，照常向公众提供一般的美国公民和签证服务，美国驻上海总领事馆则将尽快恢复向公众开放。
+
+美国驻上海总领事馆的命令撤离将每30天审视一次。我们对人员调整的细节虽不加以详述，但会持续调整人员配置态势，以因应需求和情况。
+
+在上海的美国公民如果希望离开中国，商业航班仍有机位但数量有限。我们现在正着手处理持有确认机票的美国公民前往机场之事宜。
+
+随着情况的变化，使团已向美国公民发送多个信息，包括4月6日和4月9日的对外声明。如果您是美国公民，我们建议注意或考虑下列几点：
+
+- 您可在[https://step.state.gov/](https://step.state.gov/)注册“智行者登记计划”。
+- 有关在当地健康防疫措施下，如何前往搭乘确认航班的问题—发送电邮至[\[email protected\]](/cdn-cgi/l/email-protection#590a3138373e313830181a0a192a2d382d3c773e362f)或拨打+86 10 8531-4000（按“0”接通总机）。
+- 有关如何在上海取得食物、饮用水、医药、供应物资或其他紧急协助需求–发送电邮至[\[email protected\]](/cdn-cgi/l/email-protection#2e7d464f4049464f476f6d7d6e5d5a4f5a4b00494158)或拨打+86 10 8531-4000（按“0”接通总机）。
+- 联系您当地的居民委员会或雇主，要求协助食物递送或大量订购。食物递送可能所有延迟，某些物资的供应可能有限。
+- 关于中国其他地区的问题—利用下列联系信息，与大使馆或您所在地区内的总领事馆取得联系。
+- 检查个人准备情况，确保如果突然受到限制或隔离，您的家人有足够的金钱、医药、食物和其他必需品。
+- 确保可取得包括旅行和身份在内的所有必要文件，且内容信息正确。
+- 立即联系您的亲友，并定期告知最新情况。他们会担心您的安危，因此尽可能通过电话、短信、社交媒体等等和他们取得联系，让他们知道您平安无事。当无法接通语音服务时，可能仍可使用短信和数据服务。
+- 关注驻华使馆主要社交媒体渠道：推特([@USAmbChina](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Ftwitter.com%2FUSAmbChina&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=W%2FFvNXYcRQXkMciGWKTLid7uplekPpLS3DeoeelDZ6Y%3D&amp;reserved=0) 和[@USA\_China\_Talk](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Ftwitter.com%2FUSA_China_Talk&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=nkaTFSSZKZImef0xbMKiWDoYmBIquhoB0EKUyCmReg8%3D&amp;reserved=0)), 微博 ([@美国驻华大使馆](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fweibo.com%2Fusembassy&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=WiHzhANoiQ1WDTuHWmagKr2eMflm7m27CkA9y2MkTOc%3D&amp;reserved=0)), 和微信 ([@美国驻华大使馆](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fgpa-mprod-mwp.s3.amazonaws.com%2Fuploads%2Fsites%2F23%2F2021%2F07%2Fwechat_QR_Code_750x450.jpg&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=wMiIZxsWzVzyBvlV0eGjD6qxCSEzzohVh3hImKv1V8s%3D&amp;reserved=0)).
 
 
-澳大利亚太平洋事务部长将在竞选期间紧急访问所罗门群岛，以最后游说推动反对该国与中共国达成的新安全协议。 在太平洋国家政府提出一项允许中共国海军舰艇驻扎在那里的协议之后，参议员泽德·塞塞利亚将于周二启程访问霍尼亚拉。
+如遇紧急情况，请拨打+(86)(10) 8531-4000。如欲获得更多信息，请见[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchina.usembassy-china.org.cn%2Fcontact%2F&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=s1fMPgPWFInEApzwafJYd3Hd32qNRTKF6CGNDp14vgs%3D&amp;reserved=0)或发电邮至：
 
-塞塞利亚在澳大利亚政府处于看守模式时的出访反映了堪培拉、华盛顿和惠灵顿对该协议的深切焦虑，当霍尼亚拉上个月宣布该协议时，这让以上三个国家政府都感到意外。工党也签署了这次旅行——提高了塞塞利亚对协议提出抵制的能力。该协议已由官员草签，但尚未由外交部长王毅和杰里米·马内莱完全签署。
+- 驻北京大使馆:  [\[email protected\]](/cdn-cgi/l/email-protection#b7f5d2deddded9d0f6f4e4f7c4c3d6c3d299d0d8c1)
+- 驻广州总领事馆:  [\[email protected\]](/cdn-cgi/l/email-protection#145361757a736e7c7b615557475467607560713a737b62)
+- 驻上海总领事馆:  [\[email protected\]](/cdn-cgi/l/email-protection#aaf9c2cbc4cdc2cbc3ebe9f9ead9decbdecf84cdc5dc)
+- 驻沈阳总领事: [\[email protected\]](/cdn-cgi/l/email-protection#5d0e353833243c333a1c1e0e1d2e293c2938733a322b)
+- 驻武汉总领事馆:  [\[email protected\]](/cdn-cgi/l/email-protection#ffa88a979e91bebcacbf8c8b9e8b9ad1989089)
 
-中共国指责澳大利亚在协议草案中散布恐惧，其中包含模糊的语言，允许中共国船只要求在距离澳大利亚海岸不到 2000 公里的所罗门群岛停靠、重新装载和加油。所罗门群岛总理马纳西·索加瓦雷支持的关键条款将允许中共国军队保护在该国的投资。索加瓦雷在议会中辩称，他们有必要使其经济摆脱贫困。
 
-ABC 周二首次报道的泄露文件显示，中共国大使馆在过去一年中一直在不断升级，以增加其在霍尼亚拉的安全存在。在霍尼亚拉发生暴力抗议和对中共国企业的袭击之后，中共国大使馆未能成功进口两挺机枪、手枪和一支狙击步枪。大使馆还要求允许一支 10 人的安全部队进入所罗门群岛，以保护中共国外交官。所罗门斯拒绝了这些请求，但协议草案将扩大中共国官员和企业通过武力保护其资产的能力，以及中共国警察巡逻和培训当地官员的能力。
+原文链接：
 
-新闻来源：[澳洲部长紧急访问所罗门群岛](http://go.newsfusion.com/aussies-news/item/7755827)
+[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/)
 
-发布：*wenly*
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
