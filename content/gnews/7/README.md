@@ -2,101 +2,26 @@
 ---
 
 
-## 视频|新中国联邦咖啡 New Federal State of China coffee
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2335617/)
+## 日本宣布向流离失所的乌克兰公民支付每天2400日元的生活费和其他福利
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2335672/)
 
-作者|紐約香草山农场- 杰西卡爱月亮
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/d6d7c140-5e3b-41e1-85b3-41f7f8d4335d.jpg)
+翻译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+关于对在日本没有亲属的乌克兰逃难者的援助，日本入境管理局宣布，将向12岁以上的人提供每天2400日元的生活费。
+视频来源：TBS新闻
+抵达日本的难民问题已成为一项挑战，因为4月5日乘政府飞机抵达的20人中，有些人在日本没有亲属。
 
+入国管理局最近宣布，对于那些需要生活支持的难民（包括那些没有亲属的人），在他们搬到当地政府提供的住房后，将向每人每天提供2400日元作为生活费。 当他们居住在日本政府提供的旅馆时，对于11岁以下的儿童提供的金额会比较少。
 
-> 乌克兰土地上的炮声
-> 
-> The bombing from Ukraine
-> 
-> 打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
-> 
-> Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
-> 
-> 一个个匆忙的黄马甲，汇集成一束光，是力量
-> 
-> The busy yellow vests, gathering into a beam of light, it is strength
-> 
-> 一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
-> 
-> Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
-> 
-> 咖啡不苦 Coffee is not bitter
-> 
-> 苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
-> 
-> 咖啡不苦 Coffee is not bitter
-> 
-> 苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
-> 
-> 咖啡不苦
-> 
-> Coffee is not bitter
-> 
-> 苦的是即使炮声和苦难也不能扭转很多人 的愚昧
-> 
-> The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
-> 
-> 咖啡不苦
-> 
-> coffee is not bitter
-> 
-> 苦的是人们在邪恶势力面前的懦弱与可怜
-> 
-> The bitter is the cowardice and pitifulness of people in the face of evil forces
-> 
-> 端起咖啡杯
-> 
-> Holding up the coffee cup
-> 
-> 品尝战火的苦难，愤怒 悲痛 无奈
-> 
-> To taste the suffering of war, anger, grief, helplessness
-> 
-> 品尝新中国联邦咖啡，香浓 温暖 回味
-> 
-> To taste New Federal State of China coffee, fragrant, warm and aftertaste
-> 
-> 每天一杯新中国联邦咖啡
-> 
-> A cup of New China Federation coffee every day
-> 
-> 品味邪恶与正义较量的滋味
-> 
-> Tasting the taste of the battle between evil and justice
-> 
-> 品味志愿者们传播的力量与温暖
-> 
-> Tasting the power and warmth spread by volunteers
-> 
-> 等正义打败邪恶
-> 
-> Waiting for justice to defeat evil
-> 
-> 再来一杯新中国联邦咖啡
-> 
-> Another cup of New China Federal Coffee
-> 
-> 品尝苦尽甘来的滋味
-> 
-> Tasting the taste of aftering suffering comes happiness.
+这些生活费用已经开始在搭乘专机来日本的难民中发放。
 
+参考链接：[ウクライナ避難民へ1日2400円の生活費など支給発表 入管庁（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/380026a98ca29f555036fefcfc3846052f9c7a07)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+* * *
 
-编辑/校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
