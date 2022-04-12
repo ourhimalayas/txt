@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 9:40 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group31/origin/2022/04/12/08/0ce7a89b-74b6-8495-f547-28cd17d58f8a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/12/2022 7:55 AM (UTC)`
 
  <br/>新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -150,13 +157,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group10/origin/2022/04/11/17/f74de7b3-d021-d741-3099-088e97b3f1ee/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/11/2022 5:37 PM (UTC)`
-
-【Ukraine Rescue】 04/09/22 Seeing a young volunteer from Poland carefully reading the NFSC Declaration, Nicole introduces our mission to him, as well as Gettr: because we think by democratizing freedom of information will help to liberate people’s mind.<br/><br/>【乌克兰救援】 04/09/22 大帐篷外狂风暴雨，一位来自波兰的年轻志愿者正在温暖的帐篷内认真地阅读着《新中国联邦宣言》，妮可向他介绍了我们的使命，以及盖特：因为我们认为通过信息自由的民主化将有助于解放人们的思想。
-![img](https://media.gettr.com/group12/getter/2022/04/11/17/310cdcfe-8df4-a949-f1ac-c90748d2abb4/out.jpg)
 
 ---
 

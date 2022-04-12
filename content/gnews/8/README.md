@@ -2,34 +2,22 @@
 ---
 
 
-## 触动欧洲神经，中国向塞尔维亚运送导弹
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2333510/)
+## 中共印发“新时代”古籍篡改工作通知书
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2333559/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+作者：意大利罗马达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新时代古籍.jpeg)网络图片
+新华社北京4月11日报道，近日，中共中央办公厅、国务院办公厅印发了《关于推进新时代古籍工作的意见》，并发出通知，要求各地区各部门结合实际认真贯彻落实。
 
-周末中国空军的六架Y-20军用运输机在绝对秘密或几乎秘密的情况下降落在贝尔格莱德尼古拉特斯拉机场。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-11-alle-19.36.43-1.png)图片来源：ilriformista.it
-这六架中国飞机是武契奇(*Vučić)* 2019年购买的武器，一直以来武契奇(*Vučić )*并不隐藏他与北京和莫斯科的友谊。
+七哥在直播中阐述邪教有六大特征，教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会，七哥在后续的直播只又着重增加了一条邪教特征就是“篡改历史”。
 
-在内部，塞尔维亚于2019年为其军队订购了先进的HQ-22地对空导弹系统，这是欧洲第一个从中国获得此类武器的系统，出口版本称为FK-3, 它是一个与美国爱国者或俄罗斯S-300非常相似的系统，尽管射程比后者短。
+针对邪教这七大特征，中共没有一条不符合的，而且更多更严重。我们这些从中共国长大的人，从小接受的历史教育，尤其是中共的历史，完全都是被篡改和扭曲的。
 
-令人担心的局势
+如今，习大帝要对已被中共篡改的面目全非的中外历史和中共历史再一次进行篡改，要重新编纂自己的“新时代历史”古籍，毛泽东和邓小平已完全被碾压，希特勒、斯大林……包括如今的普大帝，离了自己都玩不转的。
 
-由于巴尔干半岛在欧洲的重要战略地位，今天国际局势的焦点正投向塞尔维亚。欧洲人知道塞尔维亚在意识形态上亲普京，而且塞尔维亚从未严厉谴责过俄罗斯对乌克兰的侵略行径。
+参考链接：🔗[中共中央办公厅 国务院办公厅印发《关于推进新时代古籍工作的意见》](http://www.news.cn/politics/zywj/2022-04/11/c_1128550650.htm)
 
-文贵先生在4月10日的大直播也提前告诉我们中共将红旗导弹布置在塞尔维亚，这个红旗系统很多人以为是卖给塞尔维亚的，但文贵先生告诉我们这就是白送给他们的。俄罗斯和乌克兰的血腥战争将升级为俄乌中欧的全面战争，战争风云笼罩着欧洲。
-
-参考链接：
-
-[https://www.ilparagone.it/esteri/missili-terra-aria-alle-porte-di-casa-la-cina-consegna-le-armi-che-mandano-in-tilt-leuropa/](https://www.ilparagone.it/esteri/missili-terra-aria-alle-porte-di-casa-la-cina-consegna-le-armi-che-mandano-in-tilt-leuropa/)
-
-[https://www.huffingtonpost.it/esteri/2022/04/11/news/la\_cina\_ha\_inviato\_missili\_alla\_serbia\_bruxelles\_sempre\_piu\_nervosa-9155307/](https://www.huffingtonpost.it/esteri/2022/04/11/news/la_cina_ha_inviato_missili_alla_serbia_bruxelles_sempre_piu_nervosa-9155307/)
-
-
-
-
-
-编辑、上传：Xiao baige
+*编辑/校正/发稿：儒为*
 
  
 

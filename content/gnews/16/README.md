@@ -2,34 +2,37 @@
 ---
 
 
-## 俄军监禁乌国14至24岁女孩25天 至少9人遭轮奸怀孕
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2333405/)
+## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-俄罗斯入侵乌克兰一月有余，俄军在战争期间犯下许多暴行，越来越多的证据显示，俄军在乌克兰犯下了包括强奸、滥杀、劫掠等暴行，许多无辜的妇女与平民遭到了残忍的对待。
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
 
-综合外媒报导，乌克兰人权监察员丹尼索娃（Lyudmyla Denisova）受访时表示，布查镇（Bucha）某处的地下室发现一群年纪14至24岁的女孩被俄军监禁25天，监禁期间俄军每天都会轮奸她们，并声称「强奸是为了防止你们想跟其他男人们发生性关係，这样以后就不会生下乌克兰小孩了。」这群少女被发现时已经有9位怀孕了。
+本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_5546.jpg)图片来源：Emine Dzheppar
 
-66岁的退休水电师傅舍皮科表示在俄军撤离后，他重返布查的住所发现房子被洗劫一空，地窖还有披着大衣全身赤裸的女性尸体，她的头部有2颗弹孔附近的地上有用过的保险套与弹壳。
 
-乌克兰人权组织「La Strada-Ukraine」主席切芮帕卡11日透过视讯向联合国安理会控诉，俄军在乌克兰境内已经把强奸当成一种武器，俄罗斯驻联合国第一副常驻代表纪柏梁（Dmitry Polyanskiy）则反驳，强调俄罗斯已不只说过一次，俄罗斯不会让战争波及平民，并指责乌克兰及其盟国把俄军描绘成强奸犯及虐待狂。
+> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
+> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
 
-在赤裸裸的证据面前，任凭俄罗斯官方如何的为俄军洗地也无法掩盖俄军在乌克兰犯下的罪孽，那些受伤害的平民，被强奸的女性都是俄军残忍暴行的铁证。在事实面前，任何巧言令色的辩解都是徒劳，真相就是真相，俄军连敢作敢当的勇气都没有，作为侵略者的丑恶被无尽的彰显。
 
-俄军强奸乌克兰女性是为了防止她们想跟其他男人们发生性关系，这样以后就不会生下乌克兰小孩了，种族主义教条下的俄军竟然有如此卑鄙不堪的思想，真是令人发指。一个民族的强大靠的是文明，博爱与包容，而不是用卑鄙的手段来延续自身的血统。如此狭隘丑陋的观念，必遭当下文明世界所唾弃，暴力野蛮只能带来毁灭，永远无法征服人心！
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3890512](https://news.ltn.com.tw/news/world/breakingnews/3890512)
+未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
 
-撰稿/发布：一叶知秋
+外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
+
+本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
+
+來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
