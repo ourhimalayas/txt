@@ -15,86 +15,86 @@
 
 ---
 
-### [五角大楼称俄罗斯在加紧干扰乌克兰GPS信号](/content/gnews/1/README.md)
+### [中共国在复活节继续镇压天主教徒](/content/gnews/1/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [斯洛伐克向乌克兰赠送S-300导弹系统，俄罗斯警告说其将成为攻击目标](/content/gnews/2/README.md)
+### [设立“准难民”制度 日本政府今秋再提出入境管理法修正案（下）](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [滴滴出行离开南非，美国援助稳定局势](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄乌战争加剧化肥紧缺，危及粮食供应](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [设立“准难民”制度 日本政府今秋再提出入境管理法修正案（上）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [五角大楼称俄罗斯在加紧干扰乌克兰GPS信号](/content/gnews/6/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [斯洛伐克向乌克兰赠送S-300导弹系统，俄罗斯警告说其将成为攻击目标](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共向塞尔维亚输出导弹系统&#8230;&#8230;巴尔干半岛现科索沃问题新火种](/content/gnews/3/README.md)
+### [中共向塞尔维亚输出导弹系统&#8230;&#8230;巴尔干半岛现科索沃问题新火种](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第63期](/content/gnews/4/README.md)
+### [七哥说—第63期](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [逃离中共统治，创作《赤地之恋》的张爱玲](/content/gnews/5/README.md)
+### [逃离中共统治，创作《赤地之恋》的张爱玲](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [日本首现奥米克戎XE变异株病例](/content/gnews/6/README.md)
+### [日本首现奥米克戎XE变异株病例](/content/gnews/11/README.md)
  ` NFSC News`
 
-### [美国将派高级别官员访问所罗门群岛](/content/gnews/7/README.md)
+### [美国将派高级别官员访问所罗门群岛](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [2022年4月12日，全球中共病毒疫情情况汇总](/content/gnews/8/README.md)
+### [2022年4月12日，全球中共病毒疫情情况汇总](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/10/2022 文贵直播：乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择](/content/gnews/9/README.md)
+### [4/10/2022 文贵直播：乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [解读上海的一则通知再次将上海人拖进灾难的“深渊”](/content/gnews/10/README.md)
+### [解读上海的一则通知再次将上海人拖进灾难的“深渊”](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争对价值1200亿美元的全球谷物贸易造成严重破坏](/content/gnews/11/README.md)
+### [俄乌战争对价值1200亿美元的全球谷物贸易造成严重破坏](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登政府派美国航母到日本海，牵制北朝鲜核试验？“也警告中共国援俄及俄拟使用核武器”（下）](/content/gnews/12/README.md)
+### [拜登政府派美国航母到日本海，牵制北朝鲜核试验？“也警告中共国援俄及俄拟使用核武器”（下）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登政府派美国航母到日本海，牵制北朝鲜核试验？“也警告中共国援俄及俄拟使用核武器”（上）](/content/gnews/13/README.md)
+### [拜登政府派美国航母到日本海，牵制北朝鲜核试验？“也警告中共国援俄及俄拟使用核武器”（上）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄军掠夺放射性物质，基乌发现1200多具遗体，奥地利总理和普京将会晤（下）](/content/gnews/14/README.md)
+### [俄军掠夺放射性物质，基乌发现1200多具遗体，奥地利总理和普京将会晤（下）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾](/content/gnews/15/README.md)
+### [4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄军掠夺放射性物质，基乌发现1200多具遗体，奥地利总理和普京将会晤（上）](/content/gnews/16/README.md)
+### [俄军掠夺放射性物质，基乌发现1200多具遗体，奥地利总理和普京将会晤（上）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [联合国也加入新冠疫苗推销员行列了](/content/gnews/17/README.md)
+### [联合国也加入新冠疫苗推销员行列了](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国通胀率飙升至8.5% 创40年来新高](/content/gnews/18/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [一位乌克兰妇女自述被俄罗斯士兵强奸，丈夫被杀](/content/gnews/19/README.md)
+### [一位乌克兰妇女自述被俄罗斯士兵强奸，丈夫被杀](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本宣布向流离失所的乌克兰公民支付每天2400日元的生活费和其他福利](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【乌克兰救援】三名来自意大利的志愿者冲着响彻全球的新中国联邦咖啡慕名而来](/content/gnews/21/README.md)
+### [【乌克兰救援】三名来自意大利的志愿者冲着响彻全球的新中国联邦咖啡慕名而来](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [普京总统任命侵略乌克兰指挥官](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Go Dharmic慈善组织的志愿者说：如果没有见到你们，我会觉得中国人都很冷漠，而你们正在展示中国人光明的一面！](/content/gnews/23/README.md)
+### [Go Dharmic慈善组织的志愿者说：如果没有见到你们，我会觉得中国人都很冷漠，而你们正在展示中国人光明的一面！](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频|新中国联邦咖啡 New Federal State of China coffee](/content/gnews/24/README.md)
- ` 纽约香草山MOS03`
-
-### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/25/README.md)
+### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [【乌克兰救援】波兰当地时间4月12日上午10点，比利时总理亚历山大·德克罗出现在了梅迪卡救援中心](/content/gnews/26/README.md)
+### [【乌克兰救援】波兰当地时间4月12日上午10点，比利时总理亚历山大·德克罗出现在了梅迪卡救援中心](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄乌战争对中共汽车产业的影响](/content/gnews/27/README.md)
- ` 经济小组`
 
 ### [放下和接受是人生必修课](/content/gnews/28/README.md)
  ` NFSC News`
