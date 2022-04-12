@@ -2,29 +2,12 @@
 ---
 
 
-## 战争使乌克兰2022年经济锐减
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2335516/)
+## 【乌克兰救援】波兰当地时间4月12日上午10点，比利时总理亚历山大·德克罗出现在了梅迪卡救援中心
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2335585/)
 
-作者：香草山  Naughty(文行)
+【乌克兰救援】04/12/2022 波兰当地时间4月12日上午10点，比利时总理亚历山大·德克罗出现在了梅迪卡救援中心。新中国联邦的记者妮可向他介绍了我们的救援工作，并赢得了赞许：作为人类，我们需要互相帮助，这是最重要的事情，非常高兴听到你们对难民施以援手
 
-据4月10日外媒报道，世界银行在当天发布的“地区战争”经济更新报告中指出，由于俄罗斯的入侵导致乌克兰大部分地区的企业关闭、出口锐减，经济活动无法开展，乌克兰今年的经济产出可能会收缩 45.1%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-12-at-9.42.36-AM.png)
-
-同时，由于美国及其西方盟国对俄罗斯银行、国有企业和其他机构实施的惩罚性金融制裁，俄罗斯 2022年的GDP产出将下降11.2%。
-
-总体来看，由于战争和贸易中断的冲击，包括乌克兰、白俄罗斯和摩尔多瓦在内的东欧地区今年的 GDP 预计将收缩30.7%。包括保加利亚、克罗地亚、匈牙利、波兰和罗马尼亚在内的中欧地区2022年增长率将下调至3.5%。
-
-世界银行官员表示，尽管乌克兰税收收入大幅减少，但国际援助帮助乌克兰支付了工人的基本工资，并支付了养老金和主权债务。
-
-参考链接：[War to slash Ukraine’s GDP output by over 45%, World Bank forecasts](https://www.reuters.com/world/us/war-slash-ukraines-gdp-output-by-over-45-world-bank-forecasts-2022-04-10/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：Zion文恩
-编辑：飞虹
-审核：飞虹
-校正/发稿：谐趣园
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

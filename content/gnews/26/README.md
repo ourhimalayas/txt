@@ -2,30 +2,34 @@
 ---
 
 
-## 封城之下 上海特斯拉可能“至少”停工到5月中旬
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2335463/)
+## 中共面对美国命令上海大使馆撤离发表战狼言论
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2335565/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-239.jpg)
-2022 年 4 月 12 日
-由于新一轮凶猛而不明真相的因病毒封城，使上海发生了巨大的混乱，但人们几乎没有注意因封城而导致的特斯拉工厂的关闭对公司的经营业绩可能产生的影响。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5ffc5ea8b0c61.jpg)
+当地时间4月12日，美国命令驻上海大使馆非紧急雇员和所有家属撤离中共国。
 
-但 GLJ Research 的分析师 戈登.约翰逊（Gordon Johnson ）将这个问题推到了聚光灯下，他在周一给客户的一份报告中写道，当地的联系人告诉他的公司，上海可能会长时间关闭。
+美国表示鉴于中共上海的暴力防疫政策，从自愿撤离到命令撤离，美国这一举措引来中共外交部赵立坚的战狼回应。赵立坚声称中共防疫政策是全世界最好的防疫政策，并且一直在按照国际公约做事，中共并没有什么错，最后反而赖美国把人员撤离问题政治化、工具化，目前已经在和美国交涉此事。
 
-“昨晚在同我们在中国本地的一位联系人的讨论中，我们被告知，特斯拉的上海工厂将‘至少’停产到五月中旬（并且要等到‘第三季度末’才能全面开工——是的， 你没听错），”约翰逊写道。
+北京冬奥会开幕式之前，美国授权撤离，郭先生在直播中向世界告知了此事。随后中共喉舌媒体连夜发文否认此事，并声称中共防疫做得最好，还说美国是在制造恐慌。尽管表面上尽显战狼本色，但背地里中共国为了挽留美国，无所不用其极，使出浑身解术不让美国撤离，花费千亿美金都在所不惜。冬奥会的授权撤离没有发布任何声明就把中共ko到半死，这次美国接连发布两次撤离，措辞还学习了中共的文字话术，尽管中共喉舌还在尽力叫嚣强撑面子，但大势已去，苟延残喘而已。
 
-”更具体地说，我们的上海联系人说，由于特斯拉的工厂是：（a）一家非关键工厂（即不是食品、药品和军事），以及（b）混合来自多个地区的人，这是严格禁止的，因为那里每个地区都必须继续封锁，与其他更关键的工厂相比，它不会被优先考虑。”
+reference：
 
-约翰逊告诉客户，他不认为这个统计已将公司的股票或车型计入在內：“，除此之外，在我们今晚的交谈中，我们的联系人及特斯拉的供应商表示他们认为工厂每关闭一天都需要2到3天来重新启动，因此，简而言之，随着街道版的特斯拉的销售额/每股收益从2022年第一季度的 178 亿美元/2.72 美元增长到2022 年第二季度的 195.97 亿美元/2.50 美元，我们相信这个消息并没有被计入成本（我们的联系人认为，特斯拉可能会在今年第二季度亏损，而目前的共识估计他们将提供 2.50 美元 的每股收益 [或 28.73 亿美元的净收入]）。
+[https://world.huanqiu.com/article/47Znq21Y1Gwhttps://world.huanqiu.com/article/46YF9AQJeYc](https://world.huanqiu.com/article/47Znq21Y1Gwhttps://world.huanqiu.com/article/46YF9AQJeYc)
 
-当被问及工厂关闭时间是否会超过 4 月底时，GLJ 在中国的联系人表示：“是的，它将关闭至少4到6周，并且很可能至少到6月1日动态清零政策的仍未取消。”我还预计工厂每一天的关闭都需要两到三天来重新启动，所以关闭到 5 月份，上海要到第三季度末才能恢复全面生产。我对第一季度产量的最佳估计是 19万。这是基于5月中旬的开盘价。我完全相信该季度将在16万左右出现亏损。”
+撰稿、发布：骄子
 
-约翰逊表示，他认为特斯拉上海工厂的利润超过了公司利润的 100%，如果这一点变得显而易见，那么围绕特斯拉其他工厂效率的观点可能会受到压力。
+* * *
 
-原文链接：[https://www.zerohedge.com/markets/gordon-johnson-teslas-shanghai-factory-could-be-down-until-least-mid-may](https://www.zerohedge.com/markets/gordon-johnson-teslas-shanghai-factory-could-be-down-until-least-mid-may)
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
