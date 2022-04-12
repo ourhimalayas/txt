@@ -2,35 +2,52 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月12日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2336155/)
+## 塞尔维亚，普京在欧洲腹地的盟友 (一)2
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336208/)
 
-作者：香草山翻译部
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-22.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/putin-belgrado-kkvF-620x349@abc-edited.jpg)图片来源：https://www.abc.es/
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
+莫斯科当代历史博物馆的一个展览本周开幕，展示了北约成立73年来的“罪行”，其中1999年春季对贝尔格莱德的轰炸在错误行为的展示中占有突出地位。克里姆林宫正在尽其所能加强几个世纪以来俄罗斯与塞尔维亚之间的脐带关系，而作为回报，贝尔格莱德仍然是欧盟在其影响范围内的主要问题来源。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-11.png)
+如果没有乌克兰战争在塞尔维亚选举活动中造成的沸腾和高度分化的气氛，民族民粹主义者亚历山大-武契奇在上周周日选举中的明显胜利也是不可理解的。
 
-文章仅代表作者本人观点，与Gnews无关
+俄罗斯和塞尔维亚之间的这种亲密关系已经干扰了欧洲的政治格局，武契奇的胜利对软化这个问题毫无帮助。正如欧洲对外关系委员会（ECFR）的专家恩格鲁什-莫里纳（Engjellushe Morina）所写的那样，“在战争造成的新的地缘政治现实中，不清楚贝尔格莱德是否会完全转向欧洲和西方，或者是否会继续站在俄罗斯一边，使其成为欧洲项目和北约的负担”。目前，尽管与欧盟的联系条约规定其有义务使其外交政策与欧盟保持一致，但塞尔维亚仍将莫斯科视为其基本盟友，并拒绝就乌克兰战争实施制裁。
 
-视频参看：
-[2022.04.12早 《NFSC新闻》](https://www.gettr.com/streaming/p14x8oue165)
-[2022.04.12早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14ws418336)
+在过去的十年里，普京和塞尔维亚总统已经会面了大约15次，当俄罗斯人访问贝尔格莱德时，他在诸如塞尔维亚教会创始人圣萨瓦大教堂的广场上受到了塞尔维亚人的欢迎。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+可以说，在某种程度上，西班牙的哈维尔-索拉纳在担任北约秘书长时,领导的北约对巴尔干地区的干预，带有现在发生的事情的种子。当盟军的炸弹落在贝尔格莱德时，普京是接替旧的克格勃的机构FSB（联邦安全局）成员，以及俄罗斯安全委员会秘书，但紧接着，就在几天之内，他被任命为叶利钦政府的第一副总理。因此，他开始了真正的政治生涯，其标志是俄罗斯在面对大西洋联盟的攻击时，未能帮助塞尔维亚盟友的情绪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
+“莫斯科将塞尔维亚视为逃避经济制裁的大门和在巴尔干地区开辟新战线的关键”。
+
+二十多年后，在他下达开始轰炸乌克兰的命令前不久，在与德国总理奥拉夫-肖尔夫的会面中，一名记者问他欧洲是否会发生战争，普京回答说：“总理刚才说，他这一代人（我也是他这一代人）很难想象欧洲会发生任何形式的战争……”。但是，你和我都见证了欧洲的一场战争，对南斯拉夫的战争，巧合的是，这场战争是由北约组织发动的。这是一次大规模的军事行动，包括对欧洲的一个首都贝尔格莱德进行空袭。这发生了，不是吗？
+
+科索沃的独立
+
+许多人还认为，随后北约主要成员国承认科索沃的独立，这对塞尔维亚来说是一个感情上和物质上的打击，被普京视为一个先例，使他开始隔离其他前苏联共和国的不同领土，直到并包括吞并克里米亚的过程。尽管莫斯科公然反对，但科索沃的独立在2008年2月得到了美国和几乎所有北约盟国的承认，同年8月，俄罗斯承认了格鲁吉亚的阿布哈兹和南奥塞梯领土的独立。
+
+武契奇的选举胜利对克里姆林宫来说是对其巴尔干政策取得成果的确认。事实上，普京在几个小时内就给他发了一封电报，祝贺他取得了“令人信服的”结果，并告诉他，他希望“你作为国家元首的工作将继续有助于加强我们国家之间存在的战略伙伴关系，这当然符合俄罗斯和塞尔维亚兄弟人民的利益。”
+
+塞尔维亚进步党的领导人武契奇实际上是一个民粹主义者，他把自己包裹在塞尔维亚民族主义的旗帜下，过去在整个巴尔干地区种下了许多祸根，他被指控走上了垄断国家政治制衡的道路，尤其是在严格控制媒体方面。
+
+【接下篇：塞尔维亚，普京在欧洲腹地的盟友 (二)】
+
+来源：[Serbia, el aliado de Putin en el corazón de Europa](https://www.abc.es/internacional/abci-serbia-aliado-putin-europa-enf-202204120036_noticia.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
 
 **更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-16.jpeg)
 
  
 

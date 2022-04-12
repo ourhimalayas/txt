@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 8:08 PM (UTC)`
+
+At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de Croix, accompanied by his entourage, came to the Medica port to inspect the refugee rescue work. . The Belgian Prime Minister took a group photo with Nicole, a comrade-in-arms of the New Commonwealth of China.<br/>At the moment, NFSC comrade Nicole is wearing her overalls with the words Take down the ccp!4月12日上午10时许，比利时现任总理亚历山大·德克罗在随行人员的陪同下，来到梅迪卡口岸，视察难民营救工作。。比利时首相与新中国联邦的战友妮可合影留念。<br/>此刻，NFSC战友Nicole正穿着她的工作服，上面写着Take down the ccp！<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
+![img](https://media.gettr.com/group37/origin/2022/04/12/20/223013b2-0d18-1a8d-def7-619161c7d045/out.jpg)
+
+---
+
 `@miles 4/12/2022 7:00 PM (UTC)`
 
 2022-4-12《避风港》(35)  疫苗，儿童心脏的杀手
@@ -146,13 +153,6 @@
 
 4/11/2022 Miles Guo’s GETTR: The evil CCP hit a new low once again! Numerous "Big White" (those in the white protection suits) and members of the Neighborhood Committee have been asking people to sleep with them by offering food, resulting in countless wives and daughters being raped in exchange for meals, water, and noodles. However, no one dares to step forward to fight back against these atrocities. The CCP can enjoy everything you have by turning your home into your own prison via lockdown.<br/><br/>4/11/2022 文贵盖特：邪恶中共再次刷新下限！上海和长春无数大白和居委会的人用食物逼迫女孩陪睡，无数人的妻女遭饭奸、水奸、面奸，却无人敢站出来反抗；通过用封锁把家变成监狱，中共得以享受你的一切<br/>
 ![img](https://media.gettr.com/group23/getter/2022/04/12/03/61cea6db-0fae-9a20-5afa-1f0dbb1e92bb/out.jpg)
-
----
-
-`@miles 4/12/2022 3:04 AM (UTC)`
-
-2022-4-11《鸡血王喜币大作战》 第一百六十二集 嘉宾：青藤、Nick
-![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
