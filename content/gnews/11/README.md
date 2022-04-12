@@ -2,38 +2,29 @@
 ---
 
 
-## 台湾首次向民众发布战争生存指南
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
+## 人才流失是俄罗斯最重要的资产流失
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2334029/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
-当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
+编译：波士顿五月花—-思澈
 
-据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
+自俄罗斯入侵乌克兰以来大量受过高等教育的俄罗斯人纷纷逃离家园对俄罗斯的经济产生破坏性的后果，克里姆林宫发出紧急措施对IT从业人员暂停征兵。
 
-尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/54DC348E-18F2-40C4-A2D7-D42B8FE55A0D.jpeg)
 
-reference：
+自普京对乌克兰发动侵略战争以来，大量俄罗斯人逃离家园，他们中有很多是受过高等教育年轻富有的金融从业人员、记者，IT专家和技术人员，这些逃离的俄罗斯人具有独立思考能力和创新精神不被普京的政治宣传所左右。
 
-[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+从长远来看，受过高等教育的俄罗斯人的大量出逃可能对该国经济造成严重后果。因为他们不仅随身携带金钱，而且最重要的是他们的技能，人力资本是俄罗斯经济增长的最重要因素之一——它推动创新和创造力。
 
-民防手册下载地址
+经济学家认为，克里姆林宫采取的救助措施对IT行业的从业人员暂停征兵不会挽留住人才的，因为普京的侵略战争和政策不会让人才流失停止。
 
-[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
+简评：人才就是财富！
 
-撰稿、发布：骄子
+素材来源：[https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html](https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html)
 
-* * *
+*发布：思澈*
 
-欢迎订阅我们的GNews账号：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

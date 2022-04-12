@@ -2,45 +2,43 @@
 ---
 
 
-## 中国3月贸易可能因病毒蔓延和乌克兰战争而放缓
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2334060/)
+## Elon Musk决定不加入推特董事会
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-236.jpg)图片来自网络
-《路透社》近日报道，路透社周二的一项调查显示，由于乌克兰战争抑制了全球需求，中国3月份的出口增长可能放缓，而进口可能有所缓解，因为有迹象表明广泛的封锁政策削弱了国内消费。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
+当地时间4月11日，Elon Musk决定不加入推特董事会。
 
-根据路透社对19位经济学家的预测中位数，3月份出口可能比上年同期增长13%，而1-2月份的出口同比增长16.3%。
+据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
 
-调查显示，3月份的进口额估计比上年同期增长8%，比今年前两个月的15.5%增长有所放缓。分析师说，增长放缓的部分原因是国内需求低迷和生产中断，两者都是由持续的新冠疫情引起的。
+此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
 
-中国1月和2月的经济数据通常是合并的，以消除因农历新年假期的时间变化而造成的数据失真。
+据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
 
-参与调查的经济学家预计，3月份的贸易顺差为224亿美元，上年同期为138亿美元。
+撰稿、发布：骄子
 
-贸易数据将于周三公布。
+reference
 
-分析师说，虽然江苏、广东和上海等主要制造地爆发的新冠疫情和由此产生的限制可能减缓了出口增长，但乌克兰战争正在削弱全球经济复苏并扰乱物流。
 
-关注沿海地区小型制造企业的财新制造业采购经理人指数在3月份出现萎缩，新出口订单的分项指数降至22个月的低点。
 
-国内港口协会的数据显示，3月份中国8个主要港口的集装箱吞吐量同比增长1.8%，比2月份的2.8%增长要慢。
 
-中共国为遏制两年来最大的新冠疫情而做出的努力限制了几个城市的活动，并在3月份迫使从苹果供应商富士康到汽车制造商丰田和大众的公司暂停一些业务。
+> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
+> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
 
-野村证券在一份说明中说，中国作为世界上最大的制造商，自3月中旬以来一直面临着经济衰退的风险上升。它补充说，截至周一，45个城市已经实施了全面或部分封锁，覆盖了中国26.4%的人口和40.3%的GDP。
 
-在供应受限的情况下，3月份工厂门的通胀率上升得比预期快，这让一些分析家对央行能够在多大程度上实行宽松的货币政策产生了疑问。
+* * *
 
-一些分析师注意到大流行病带来的经济阻力，仍然预期政策会进一步放松。但澳新银行研究部的分析师在周二的一份说明中说，提振经济的唯一可行办法是给房地产行业持续松绑。
 
-参考链接：
 
-[https://www.reuters.com/world/china/chinas-march-trade-growth-likely-slowed-due-virus-curbs-ukraine-war-2022-04-12/](https://www.reuters.com/world/china/chinas-march-trade-growth-likely-slowed-due-virus-curbs-ukraine-war-2022-04-12/)
+欢迎订阅我们的GNews账号：
 
-*编辑：金生水*
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

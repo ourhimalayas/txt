@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 12:30 PM (UTC)`
+
+2022.04.12早  新中国联邦 | 新闻  
+![img](https://media.gettr.com/group50/origin/2022/04/12/11/c5dcac74-3879-fc77-52cf-2e35abb5211a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/12/2022 12:14 PM (UTC)`
 
 【Ukraine Rescue】04/11/2022 Volunteer Nicole interviews with a PBS show to introduce the mission of the NFSC to destroy the CCP and its rescue operation, making it clear that the CCP does not represent the Chinese people. Nicole takes the reporter on a tour of the tents of the NFSC. The reporter praises the coffee there and says that if China could get past the CCP's gaming and idiocy leadership, it would be a beautiful new place.<br/><br/>【乌克兰救援】04/11/2022 义工Nicole接受了PBS一档节目的采访，介绍了新中国联邦人灭共的使命和在前线对难民的救助，表明中共不代表中国人。Nicole带记者参观了新中国联邦的帐篷。记者赞叹那里的咖啡，并表示如果中国能摆脱掉中共的纷争和愚蠢的领导，它将是一个美丽的新地方。
@@ -149,14 +156,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 
 2022.04.11  新中国联邦 | 喜健康   探讨美兰降解氧化石墨烯
 ![img](https://media.gettr.com/group44/origin/2022/04/11/20/1927694c-b34a-424f-4462-d064db9cf54f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 6:17 PM (UTC)`
-
-以下是青蒿素的使用建议，仅为参考而非医嘱。服药请根据实际情况，并遵循医嘱。切记青蒿素与酒不能同服！！！
-> `@adelin 4/9/2022 5:02 PM (UTC)`<br/>新中国联邦 青蒿素衍生物解疫苗及新冠病毒刺突蛋白毒的成人建议方案. 方案仍在不断改进中,请关注不定期的更新信息.一切是为了健康和灭共!
-![img](https://media.gettr.com/group26/origin/2022/04/09/17/590a7a88-6dc2-0243-26a4-8dd91a1bf0b4/c77b01ea4b057e5c56cbfdfea5e6ce68.png)
 
 ---
 

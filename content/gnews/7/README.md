@@ -2,46 +2,25 @@
 ---
 
 
-## 人们担忧俄罗斯在乌克兰使用化学武器
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2334036/)
+## 加拿大增强向乌克兰提供人道救援力度
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334086/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+据加拿大[CTV新闻]4月9日报道，特鲁多当天在华沙举行的视频会议中宣布，将向乌克兰再提供1亿加元的人道主义援助，并承诺为前来加拿大的乌克兰难民提供更多帮助。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1419.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/NIQPW7GZIJJXND2WQDYF7JFWH4.jpg)
+据悉，目前加拿大政府对乌克兰的援助总金额已达2.45亿加元。在当天的会议中，共筹集了124亿美元针对乌克兰难民的人道主义捐款。欧盟主席对此表示，对乌克兰的援助将持续到战争之后，并帮助乌克兰人民重建家园。
 
+此外，尽管特鲁多还宣布将为来加拿大的乌克兰难民提供包机服务，短期补助和长达两周的酒店住宿等援助计划，但却对此前向乌克兰提供军事支援和武器装备的承诺避而不谈。
 
-资料来源：美联社
+校对编辑：硫酸羟氯喹64
 
-乌克兰利沃夫，4 月 12 日（路透社）- 周二，在俄罗斯预计发动进攻之前，平民正在逃离乌克兰东部地区，而基辅表示正在检查有关俄罗斯军队在被围困的港口城市马里乌波尔使用化学武器的报道。
+发稿：青青
 
-马里乌波尔的战斗，地方长官说可能有数万人丧生，似乎进入了决定性阶段，乌克兰海军陆战队躲藏在亚速斯塔尔工业区。
-
-如果俄罗斯人占领亚速斯塔尔，他们将完全控制马里乌波尔，这是俄罗斯控制的西部和东部地区之间的关键。这座城市已经被俄罗斯数周的轰炸夷为平地。
-
-国防部副部长汉娜·马利亚尔说，政府正在检查未经证实的信息，即俄罗斯可能在围攻马里乌波尔时使用了化学武器。
-
-“有一种理论认为这些可能是含磷弹药，” 马利亚尔在电视评论中说。
-
-总统泽连斯基周一晚间曾表示，俄罗斯在东顿巴斯地区集结军队对马里乌波尔发起新的攻击时，可能会诉诸化学武器。他没有说它们是否真的被使用过。
-
-美国和英国表示，他们正试图核实这些报道。
-
-顿涅茨克东部地区州长帕夫洛·基里连科（Pavlo Kyrylenko）表示，他曾看到有关马里乌波尔可能使用化学武器的事件报告，但无法证实。
-
-“我们知道，昨晚午夜时分，一架无人机投下了一些迄今为止未知的爆炸装置，马里乌波尔金属厂及其周围有 3 人开始感到不适，”他告诉 CNN。他们被送往医院，没有生命危险。
-
-1997 年《化学武器公约》（CWC）禁止化学武器的生产、使用和储存。尽管受到人权组织的谴责，但《化学武器公约》并未禁止白磷。
-
-俄罗斯国防部没有回应路透社的置评请求。据国际文传电讯社报道，俄罗斯支持的东部分裂势力否认在马里乌波尔使用化学武器。
-
-泽连斯基总统连夜恳求西方提供更多武器，以帮助其结束对马里乌波尔的围攻并抵御预期的东方攻势。
-
-🔗 [https://www.reuters.com/world/europe/ukraine-braces-new-russian-offensive-moscow-dismisses-rape-allegations-2022-04-12/](https://www.reuters.com/world/europe/ukraine-braces-new-russian-offensive-moscow-dismisses-rape-allegations-2022-04-12/)
-
-责任编辑、发布： Shuizhuyu
+新闻来源：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
 
  
 

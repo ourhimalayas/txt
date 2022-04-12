@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大增强向乌克兰提供人道救援力度
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334086/)
+## 加拿大机构投资者增加持有数字货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+编译撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-据加拿大[CTV新闻]4月9日报道，特鲁多当天在华沙举行的视频会议中宣布，将向乌克兰再提供1亿加元的人道主义援助，并承诺为前来加拿大的乌克兰难民提供更多帮助。
+据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1419.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
 
-据悉，目前加拿大政府对乌克兰的援助总金额已达2.45亿加元。在当天的会议中，共筹集了124亿美元针对乌克兰难民的人道主义捐款。欧盟主席对此表示，对乌克兰的援助将持续到战争之后，并帮助乌克兰人民重建家园。
+毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
 
-此外，尽管特鲁多还宣布将为来加拿大的乌克兰难民提供包机服务，短期补助和长达两周的酒店住宿等援助计划，但却对此前向乌克兰提供军事支援和武器装备的承诺避而不谈。
+报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-新闻来源：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
  
 
