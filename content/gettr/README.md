@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 3:40 PM (UTC)`
+
+2022.04.12 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group50/origin/2022/04/12/15/193e4654-e2c0-1808-3721-40175f8e5360/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/12/2022 3:30 PM (UTC)`
 
 【Ukraine Rescue】04/11/22 Three volunteers from Italy come here for the renowned NFSC coffee. Because of the size of our tent and the complete facilities, they thought at first that it was set up by the government of the Chinese Communist Party. They are surprised to learn that we are the NFSC to exterminate the CCP: they thought the CCP is powerful, but a new NFSC without fear of the CCP is rising.<br/><br/>【乌克兰救援】04/11/22 三名来自意大利的志愿者冲着响彻全球的新中国联邦咖啡慕名而来。因为我们的帐篷规模可观，设施完备，他们一开始以为是中共政府搭建的。后来了解到我们是灭共的新中国联邦，他们非常惊讶：他们以为中共很强大，但是一个无惧中共的新中国联邦正在崛起。<br/>
@@ -148,13 +155,6 @@
 
 2022.04.11《The Fringe》 Episode 166<br/>中文同传：https://gettr.com/streaming/p14rtxg9cba
 ![img](https://media.gettr.com/group50/origin/2022/04/11/23/0c45f8fa-fb1f-a43f-df77-814ae08142a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 11:04 PM (UTC)`
-
-2022.04.11 NFSC news  The CCP's Crazy Actions May Cost The Chinese People In Blood
-![img](https://media.gettr.com/group3/origin/2022/04/11/23/3da8493f-38fc-7429-b664-3e5385059cd7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
