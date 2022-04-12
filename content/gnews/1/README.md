@@ -2,24 +2,61 @@
 ---
 
 
-## 中共病毒新药不推荐给孕妇，动物实验胎儿异常
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336624/)
+## 诗歌《在乌克兰我们重新学习爱情》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336690/)
 
-撰稿：东京樱花团/haruka春香
+整理：vale
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1461.png)俞风景：再生之地（布面亚克力60x50cm）
 
-4月12日，据有关人士透露，盐野义制药公司对以实用化为目标的中共病毒（新冠病毒Covid-19）服用药，在动物实验中发现胎儿引起骨骼形态异常的“致畸性”。盐野义公司不提倡孕妇使用的方向做出研讨。该药的特点是，没有明显的副作用，与其他服药相比，服用限制较少，但是，确立如何防止孕妇服用的安全管理方法成为一大课题。
+## **在乌克兰我们重新学习爱情**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-60.png)[图片来源](https://new.qq.com/omn/20220206/20220206A0A5FI00.html)
+作者：俞心樵
 
-盐野义虽然请求适用，迅速进行审查的“有条件的早期认可制度”，但是也有可能影响判断。盐野义在2月25日向厚生劳动省申请了制造销售许可。现在正在进行审查中。
+火光冲天带来巨大的暗示
+表面上是技术，本质上是诗
 
-信息来源：
+明星多半不靠谱
+走调者
+与恶魔唱起同一首歌，
+哦光明
 
-[コロナ新薬、妊婦には推奨せず　塩野義、動物実験で胎児異常（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5c6e6f65bc2dd52f09ed9837e3a8d2fc349fd617)
+光明早已经是光明的反义词
+在乌克兰我们重新学习爱情
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+三月大雪将桃花源变成废墟
+三十年前我的诗又有人传说
+
+是的呀，传说中我们也在俄罗斯学习过
+学不会的爱情。如今天下大乱就是新秩序
+
+我就要转移到一个更安全的地方去爱你
+当深渊显示诸神的贫困与恶棍们的富裕
+
+以往我总是像花草那样委婉：我的天呐！
+如今我要像枪炮那样直接：我讨厌你！
+
+讨厌你！讨厌你！！这也是我的瓦蕾魏耳的声音
+总有一天，我要与她重返乌克兰去学习爱情
+
+2022.3.21.杭州
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-17.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

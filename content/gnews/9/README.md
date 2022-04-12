@@ -2,22 +2,36 @@
 ---
 
 
-## 樱花时政┃传四名维吾尔人将被遣返，联合国不作为
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336534/)
+## 辉瑞公司雇用大量人员处理疫苗不良事件
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336587/)
 
-撰稿：东京樱花团/上善若水
+##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译/薇文】
 
-近日传出4名维吾尔人在沙特利雅得遭逮捕，并将被遣返中共国，据悉，维族女性阿布拉与她的女儿，3月31日在沙特麦加遭警察逮捕。除了这对母女，将一同被遣返中共国的还有另外两名维吾尔男子，他们2020年在麦加遭警方逮捕后被关押至今。针对两人可能遭沙特遣返回中共国，联合国人权专家4月1日曾发表联合声明，呼吁沙特开放信息，并确定他们的下落。
+英国[新闻调查]9日报道，4月1日FDA被勒令强制公布的最新辉瑞公司的文件证实，截止2021年6月，他们至少新增了1800人，专门协助处理涉及mRNA 病毒疫苗大量的不良事件报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.hrw.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fopengraph%2Fpublic%2Fmedia_2020%2F11%2F202010MENA_Saudi_G20.jpg%3Fh%3Dc673cd1c%26itok%3D26Bj027m&amp;imgrefurl=https%3A%2F%2Fwww.hrw.org%2Fzh-hans%2Fnews%2F2020%2F11%2F23%2F377113&amp;tbnid=eWLXlOfrkQTZGM&amp;vet=12ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ..i&amp;docid=Q04u4UEkDzoisM&amp;w=1200&amp;h=630&amp;q=%E6%B2%99%E7%89%B9%E9%81%A3%E8%BF%94%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA&amp;ved=2ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1460.png)
 
-海外维吾尔人遭受自由甚至生命风险的同时，联合国人权高管的立场也饱受质疑。联合国人权专员巴切莱特曾传出将于5月访问中共国，并称她可能进入新疆视察人权状况。在此之前，巴舍莱尝试申请视察新疆多年，但中共政府始终未批准申请。
 
-信息来源：[传四名维吾尔人将被遣返中国 联合国遭质疑立场消极](https://www.dw.com/zh/%E5%82%B3%E5%9B%9B%E5%90%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E4%BA%BA%E5%B0%87%E8%A2%AB%E9%81%A3%E8%BF%94%E4%B8%AD%E5%9C%8B-%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E8%B3%AA%E7%96%91%E7%AB%8B%E5%A0%B4%E6%B6%88%E6%A5%B5/a-61443793)
+文件显示，辉瑞公司就采取行动缓解疫苗不良事件激增一事，在2021年4月已向FDA报告。措施包括增加人手进行数据输入和病例处理，预计2021年6月底增加人员将超过1800名。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+截止3月底，仅英国医药监管机构就收到近17万份的不良事件报告，这1800人能否覆盖所有不良事件非常值得怀疑。文件披露的各类癫痫上千起；各类瘫痪500多起；各类中风700多起。对此，FDA却不以为奇， 或许这也是他们拼命想拖延75年公布这些秘密的原因之一。
+
+疫苗安全、有如果这样定义，难以想象什么才算危险。
+
+原文链接：[Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
+
+上传/发稿 – 【青青】
+撰稿/翻译/ -【薇文】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

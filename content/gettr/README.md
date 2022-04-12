@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 10:33 PM (UTC)`
+
+4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexandra De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
+![img](https://media.gettr.com/group32/getter/2022/04/12/22/7e57029f-b862-34b0-b459-fdbba4813d5f/out.jpg)
+
+---
+
+`@miles 4/12/2022 10:28 PM (UTC)`
+
+【Ukraine Rescue】04/12/22 On the historic moment when the Belgian Prime Minister was the first head of state to be interviewed by the NFSC, Nicole says: "This is just the beginning and many countries will follow suit; it will send a very strong and encouraging message to the 1.4 billion Chinese people who are still inside the belly of the Communist Party beast.<br/><br/>【乌克兰救援】04/12/22 对于比利时首相作为首位国家元首接受了新中国联邦采访这一深具历史意义的时刻，妮可表示：这仅仅是个开始，很多国家都会效仿；这将给仍身处水深火热之中的14亿中国人民传达出一个非常强烈且鼓舞人心的信息。
+![img](https://media.gettr.com/group27/getter/2022/04/12/22/dd858029-f679-bd37-0705-7497da8de35d/out.jpg)
+
+---
+
 `@miles 4/12/2022 10:02 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-12<br/>For English：gettr.com/streaming/p14zrmza878
@@ -139,20 +153,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 ♥️
 > `@himalayavang 4/12/2022 1:26 PM (UTC)`<br/>2022年4月12日 #乌克兰救援 前线：比利时首相亚历山大·德克罗，听妮可战友介绍新中国联邦救援信息及消灭共产党等目标后，对新中国联邦的付出表示感谢并主动提出要与战友合影。<br/><br/>比利时是欧盟的首府，在全球政治上具有非常重要的意义，德克罗总理是首位来Medyka的外国元首。<br/>#乌克兰 #乌克兰战争<br/>#我们爱好和平<br/>#我们和乌克兰人民站在一起<br/>#法治基金和法治社会 
 ![img](https://media.gettr.com/group42/getter/2022/04/12/13/6a82888b-3fa3-4670-d878-45ad26e1580d/13a0a455c57e805f24fc8522a2dafb3f.jpg)
-
----
-
-`@miles 4/12/2022 1:01 PM (UTC)`
-
-2022.04.12 早  新中国联邦 | 新闻访谈	 战争拯救政客政治生涯；白宫警告Putin Hike导致美通胀数据将异常升高；封城清零是城市压力测试
-![img](https://media.gettr.com/group20/origin/2022/04/12/12/a6c7f887-e13c-6e36-3280-f2d79a8313d0/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/12/2022 12:30 PM (UTC)`
-
-2022.04.12早  新中国联邦 | 新闻  
-![img](https://media.gettr.com/group50/origin/2022/04/12/11/c5dcac74-3879-fc77-52cf-2e35abb5211a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
