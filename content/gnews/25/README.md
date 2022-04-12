@@ -2,27 +2,31 @@
 ---
 
 
-## 俄乌战争｜俄罗斯外长：对乌克兰军事行动不会停止
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333180/)
+## 日本年轻人疫苗第3次接种率为20%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2333237/)
 
-**图/文｜CP**
-**发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜俄羅斯外長：對烏克蘭軍事行動不會停止.jpg)
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+近日，日本政府首次公布全国新冠疫苗第3次接种率情况，在按年龄统计,70多岁超过80%,而20多岁和30多岁只占20%,越年轻接种率越低。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-91.jpg)图片来源
 
+根据政府11日公布的最新疫苗接种记录系统数据,国内第3次接种者为5754万7225人,占总人口的45.4%。
 
-俄罗斯外长拉夫罗夫（Sergei Lavrov）4月11日接受俄媒访问时表示，俄罗斯向乌克兰发动的军事行动，旨在终结美国在国际舞台上的完全主导地位和鲁莽扩张，而俄罗斯是不服从华盛顿意愿的国家之一。
+各个年代的全国接种率也首次公布, 最高的是80岁以上的88.4% 70～79岁是86% 65～69岁是77.8%,老年人相对较高。 60～64岁是66.7%, 50～59岁的51.3%, 40～49岁的33.8%。 30～39岁的25.9%, 20～29岁是24%, 12～19岁是5.4%,凸显了年轻一代的低接种率。
 
-他又指责欧盟外交与安全政策高级代表博雷利（Josep Borrell）呼吁欧盟成员国继续向乌克兰提供军援的言论令人发指，认为这是鼓励俄军在乌克兰进行更多战斗。
+根据厚生劳动省的说法,截至本月5日为止1周的全国新感染者中,20多岁占最多的18%,国家决定在自治体的接种会场承担大学生接种的费用等,促进年轻人接种。
 
-至于俄乌谈判，拉夫罗夫指出，俄乌双方2月底展开首轮谈判时，总统普京（Vladimir Putin）曾下令暂停军事行动，但如今立场已变，因发现乌克兰人并不打算采取对等做法。他强调，除非达成最终协议，否则俄罗斯的军事行动不会停止。
+信息来源：[ワクチン3回目接種率 20代と30代は20％台](https://www3.nhk.or.jp/news/html/20220411/k10013577711000.html)
 
-來源｜[FirstPost](https://www.firstpost.com/world/russia-wont-pause-hostilities-amid-talks-with-ukraine-says-sergei-lavrov-10545181.html)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,47 +2,36 @@
 ---
 
 
-## 联合国证实乌克兰妇女儿童正遭受暴力，并呼吁追究俄罗斯责任
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333369/)
+## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
 
-#### 整理/编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/4656968E-A0A0-4C67-A979-5E08F2F89AC0.jpg)图片来源：搜狐
+本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
 
 
-根据美国之音4月12日报道，联合国星期一（4月11日）说，乌克兰妇女和儿童遭受性暴力、强奸和贩卖的风险越来越高，这类侵犯行为的报告越来越多。
 
-联合国妇女事务执行主任巴胡斯(Sima Bahous)说，随着人们越来越迫切地想要逃离乌克兰的战争，人口贩卖的风险也在增加。
+> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
+> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
 
-乌克兰公民社会组织乌克兰-道路(La Strada-Ukraine)的主席卡捷琳娜·彻热帕卡(Kateryna Cherepakha)向安理会通报了情况。她说，俄罗斯士兵正在使用暴力和强奸作为战争武器，她的组织得到了在俄罗斯占领地区被强奸的大约12名妇女和女孩的可信证词。
 
-卡捷琳娜·彻热帕卡说，幸存者受到了极大的精神创伤，担心自己的生命安全，而且难以谈论她们遭到的性侵。
 
-自俄罗斯入侵乌克兰以来，已有450多万人逃离乌克兰，他们中的近90%是妇女和儿童。另有710万人在国内流离失所。
+未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
 
-联合国儿童基金会（UNICEF）说，有700多万学龄青少年失学，其中包括570万学龄儿童和150万名接受高等教育的学生。
+外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
 
-联合国还证实有142名儿童被杀，另有229名儿童受伤。
+此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
 
-乌克兰常驻联合国代表谢尔盖·基斯利茨亚(Sergiy Kyslytsya)说，在乌克兰妇女和儿童身上正在发生的事情可怕得令人无法理解，如果不能阻止克里姆林宫，越来越多的儿童将成为孤儿。他同时指责俄罗斯从乌克兰带走12.1万名儿童。
+本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
 
-谢尔盖·基斯利茨亚说，据报道，俄罗斯已经起草了一项法案，以简化和加快收养被绑架的乌克兰儿童的程序，这些儿童包括孤儿和有父母和其他亲属的儿童，这些孩子中的大部分是他们从马里乌波尔绑架到顿涅茨克和俄罗斯的塔甘罗格市的。
+來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
 
-联合国儿童基金会代表方丹说，该机构听到了有关绑架的报道，没有证据，但愿意调查这个问题。
+* * *
 
-几个安理会成员国说，必须对针对妇女和儿童的罪行追究责任。
-
-参考链接：[联合国：乌克兰战争中性暴力和人口贩卖在增加](https://www.voachinese.com/a/un-Russia-ukraine-20220411/6525648.html)
-
-发布：*wenly*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

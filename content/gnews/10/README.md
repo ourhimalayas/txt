@@ -2,25 +2,27 @@
 ---
 
 
-## 制裁俄罗斯：欧洲刑警组织支持调查
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2333399/)
+## 保卫Azovstal 钢铁厂的武装部队遭受俄罗斯军队化学武器攻击
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2333507/)
 
-**警察机构欧洲刑警组织希望支持欧盟国家执行对俄罗斯个人和公司的制裁。**
+**撰稿：日本东京方舟农场 北极**
 
-作者：dpa/sh/原文发布于2022年4月12日06:55(CET)
-翻译：LK
+据焦点报4月12日报道，亚速营前指挥官安德烈·别列茨基（Andrei Beletsky）指控称，俄罗斯军队对保卫亚速斯塔尔钢铁厂（Azovstal）的乌克兰武装部队使用化学武器进行袭击，造成三人受伤，其行为严重违反国际公约。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-9.jpg)图片：Nicolas Maeterlinck/Belga
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-18.jpeg)安德烈·别列茨基（Andrei Beletsky）。（图片来自焦点报）
 
-为此目的，位于海牙的该机构宣布启动“奥斯卡”行动。该行动旨在帮助进行资产财务调查。
+别列茨基指出，俄罗斯武装部队因无法攻占Azovstal 钢铁厂，才发动了化学武器袭击。“怯懦就写在俄罗斯人的脸上！所有国际公约都禁止化学武器，俄罗斯武装部队之所以使用它们，是因为他们的所有其他作战方法都是无用的。” 别列茨基抑制不住自己的愤怒说道。
 
-同时，该机构还希望在欧盟贸易和经济制裁被规避时，支持欧盟国家进行刑事调查。
+Azovstal 钢铁厂不仅是欧洲最大的冶金工厂之一，也为全球半导体企业尤其是芯片生产厂提供重要的原料—氖气。该工厂占地面积约11平方公里，拥有有13个大型生产车间。
 
-在俄罗斯入侵乌克兰后，欧盟对俄罗斯个人和公司实施了一系列制裁。作为针对俄罗斯的第五套制裁方案的一部分，欧盟最近决定从8月起，欧盟禁止进口俄罗斯煤炭。
+参考链接：
+1. [https://reurl.cc/jkbjGp](https://reurl.cc/jkbjGp)
+2. [https://reurl.cc/mGejZ9](https://reurl.cc/mGejZ9)
+3. [https://reurl.cc/DdWQXE](https://reurl.cc/DdWQXE)
 
-原文链接：*[https://brf.be/international/1593655/](https://brf.be/international/1593655/)*
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+总编： 老孙
+校对发布：文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

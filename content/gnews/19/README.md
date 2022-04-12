@@ -2,34 +2,39 @@
 ---
 
 
-## 驻上海美领馆从授权到命令美国公民撤离上海
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333256/)
+## 加拿大对俄罗斯国防工业实施新一轮制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333377/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Consulate-Main-building-1-1-1140x684-1.jpg)
-当地时间4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，4月11日，美国政府将措辞从授权撤离改为命令撤离。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-除了撤离在上海美领馆的美国公民，美国政府还要求旅行者慎重考虑前往中共国旅行。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。在4月11日美国领事馆的官网页面详细历数前往中共国旅行即将面临的严重灾难，中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查，威胁家人、甚至在大外宣上指责美国公民挑起骚乱从而煽动网暴。美领馆严重提示旅行者，若要前往中共国以及香港，注意事项长达15条，尤其警告美国公民不能随意利用言论自由，小心附近的警察、周围的环境，保持低调等等。
+#### 整理：等风来
+编辑：朝花夕拾
 
-这些注意事项的潜在含义可能是，请禁止前往中共国旅行。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-31.png)图片来源：雅典娜设计组
 
-reference：
 
-[https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html)
+2022年04月11日报道，为[制裁俄罗斯](https://www.epochtimes.com/gb/tag/%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF.html)入侵邻国乌克兰，[加拿大](https://www.epochtimes.com/gb/tag/%E5%8A%A0%E6%8B%BF%E5%A4%A7.html)又针对俄罗斯国防工业施加了限制。
 
-撰稿、发布：骄子
+[加拿大](https://www.epochtimes.com/gb/tag/%E5%8A%A0%E6%8B%BF%E5%A4%A7.html)外交部长赵美兰（Mélanie Joly）表示，加拿大对俄罗斯的最新一轮制裁针对的是俄国国防部门的33个实体。
 
-* * *
+赵美兰说，这些组织直接或间接地向俄罗斯军方提供了支持，它们是在乌克兰发动无理战争的普京的同谋，共同制造了痛苦和苦难。
 
-欢迎订阅我们的GNews账号：
+这些制裁包括，冻结莫斯科物理技术研究所、Integral SPB和Shipyard Vympel JSC等实体的资产，并实施禁令。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+自俄罗斯于2月24日发动对乌克兰的战争以来，加拿大已对俄罗斯、乌克兰和白俄罗斯的七百多名个人和实体实施制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+赵美兰说，加拿大一直并将永远支持乌克兰，今天的措施是坚定支持乌克兰及其人民的最新例证。并表示要追究那些应该对暴行负责的人的责任。
+
+参考链接：[加拿大对俄罗斯国防工业实施新一轮制裁](https://www.epochtimes.com/gb/22/4/11/n13708784.htm)
+
+发布：*wenly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
