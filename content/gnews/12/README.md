@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|习近平排除异己 为独裁铺路
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2332337/)
+## 辉瑞公司新增大量雇员处理疫苗伤害案件
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2332519/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月10日，郭文贵先生在大直播中指出，习近平自2012年上台以来，为巩固独裁政权，有计划地排除异己。利用手中的权力，除掉了政治对手、中国富豪以及社会名人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-11-at-9.31.24-AM-1.png)
-首先，为了除掉自己的政治敌人，习近平通过所谓的“反腐”，利用王岐山把郭伯雄、徐才厚、周永康、薄熙来等政治对手清除完毕。再利用“江胡”两家的矛盾，把胡锦涛派系的人全干掉。接着，利用江家和邓家之间的怨气，把邓家派系除掉。
+采编/撰稿：   加拿大温哥华扬帆农场 – 薇文
 
-第二，习近平盯上了中国的所有富豪和寡头，把富豪的财富为自己的家族掌控，把寡头的企业收归国家所有。这些富豪和寡头要么被抓被杀，要么失去人身自由，被限制出境。
+英国[新闻调查]4月9日报道，[美国食品和药物管理局]最近公布的文件证实：为处理因新冠病毒疫苗接种而出现的健康伤害案例，辉瑞公司专门增加了大量新雇员。
 
-最后，习近平开始打压社会有影响力的名人，视他们为潜在风险。由于名人的效应，会给社会带来不稳定的因素，只有把这些名人打压下去，才有利于习近平对中国的独裁统治。
-
-此外，习近平在他上任之初，废掉了常委，建立了国家安全委员会，完全听命于他。他利用“斯大林模式”建立起来的体系，通过杀将军、排政治势力、干掉社会名人、抓寡头，最后就剩下他自己，达到独裁统治中国的目的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1386.png)图片来源：TECHAPP
 
 
+据悉，自2021年6月，辉瑞至少新增了1800名雇员以专门协助处理因接种该公司生产的mRNA疫苗而出现的大量副作用案例报告。但这些新雇员是否能足够应对不断激增的疫苗伤害病例，目前还尚不得知。
 
-文字版原文：[习近平排除异己 为独裁铺路](https://gnews.org/zh-hans/2325360/)
+截止今年3月底，仅英国医药监管机构就收到近17万份的疫苗伤害报告。但[美国食品和药物管理局]对此却避而不提，或许这是该局计划在75年之后才公布辉瑞疫苗成分及其伤害数据的主要原因。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发稿：青青
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
 
  
 
