@@ -2,28 +2,27 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月11日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2332251/)
+## 中共的疯狂举动 恐将让中国人付出血的代价
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332333/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-53.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-12.png)
+作者：澳喜—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+4月9日，郭文贵先生发布盖特，对最近中共给塞尔维亚送去红旗导弹系统、帮助俄罗斯对乌克兰进行大屠杀做准备表达了巨大的担忧。
 
+在4月3日的大直播中，郭先生就曾发出预警，中共要在塞尔维亚、中东以及中东周边的小国家布置红旗导弹系统和反导弹系统，这个系统基本上相当于美国肩扛式毒刺导弹的连发武器，抄袭的是美国技术，会对美欧在乌克兰的空中支援构成巨大威胁。美国则一定会将红旗系统使用的中共“北斗导航系统”彻底消灭掉。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-19.jpg)
+如今，大量的运-20飞机正在将红旗系统运往塞尔维亚。在未来两周，中共还将在南亚和中东布置新的东风15导弹系统。中共的这些所做作为，将会震撼世界，不仅威胁世界的安全，而且将成为将来世界仇视中国人的证据。
 
-校对：Stay文苑
+郭先生最后指出，被中共这个疯狂的小流氓集团绑架，是14亿中国人的悲哀，中国人恐怕也将为此付出血的沉重代价。
 
-编辑：Stay文苑
+参考链接：[中国共产党给塞尔维亚送取了红旗导弹系统](https://gettr.com/post/p14dgst16f4)
 
-发稿：Stay文苑
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-新闻：[https://gettr.com/post/p14sb6lf86b](https://gettr.com/post/p14sb6lf86b)
-访谈：[https://gettr.com/post/p14rsicf8c5](https://gettr.com/post/p14rsicf8c5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-11.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

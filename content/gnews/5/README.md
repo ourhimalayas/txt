@@ -2,26 +2,41 @@
 ---
 
 
-## 樱花FM┃国际霸权竞争核心 日本产量子计算机年内首登场
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2333051/)
+## 普京任命“叙利亚屠夫”统领入侵行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333063/)
 
-音频：东京樱花团/战友520
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/041217.png)
+翻译/编辑：文泓
 
-岸田内阁4月6日公布了以招牌政策“新资本主义”作为增长战略核心的有关量子技术新国家战略原案。内容包括，今年内出台“国产量子计算机”第一号机组，并在东北大学等国内4所大学认定量子技术研究、支援据点。他还提出了到2030年量子技术使用者达到1000万人的数值目标。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/32cbc904a34a3aba.jpg)图片来源：New York Post & 雅典娜设计组
 
-多名政府相关人士透露了此事。预定于本月内召开“综合创新战略推进会议”（议长松野官房长官）量子技术是利用极其微小的世界物理法则（量子力学）进行通信、计算、测定等的技术，有望应用于与现有超级计算机具有数位差计算能力的“量子计算机”和不会被窃听的密码通信。在新的战略“量子未来社会展望”（暂称）中，将量子技术规定为“未来国家间霸权竞争的核心技术”。他强调了经济安保的重要性，呼吁说：“要在本国拥有先进的量子技术，持续培养和确保稳定的人才。”
 
-具体来讲，除了在东北大学建立培养产业人才的据点外，还将在冲绳科学技术大学院大学、产业技术综合研究所、量子科学技术研究开发机构设立研究及支援据点。利用政府基金，创出新产业和培养新兴企业。到2030年，国内将有1000万人利用量子技术，把量子技术的生产额提高到50万亿日元。未来将在金融、医疗、运输、航空等整个社会经济体系中引进量子技术，以提高生产效率和安全性为目标。
+4月12日，据报道，俄军在乌克兰遭遇重挫，总统普京已任命了一位冷酷的俄罗斯将军来统领在乌克兰的入侵行动，目标将是整个欧洲领域。
 
-政府还制定了有关人工智能（AI）的国家战略原案。该报告书明确指出，将在虚拟空间构筑再现现实世界、可以进行多种假设实验的“数码双子座”，并利用在假设首都正下方地震、南海特拉夫地震、新型冠状病毒等的受害预测上。其中还包含了期待在武力攻击事态等非常时期用于保护国民的内容。
+这位被称为“叙利亚屠夫”的亚历山大·德沃尔尼科夫上将，曾帮助叙利亚总统阿萨德总统在内战中消灭了他的敌人。
 
-文字版原文：[樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](https://gnews.org/zh-hans/2304671/)
+华盛顿的国家安全顾问杰克·沙利文警告说，德沃尔尼科夫的晋升将导致更多暴行发生。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+2015年德沃尔尼科夫被派往叙利亚，以支持阿萨德士气低落的政府军。他在叙利亚制定的毁灭性、破坏性和无情的策略获得成功，被评为俄罗斯联邦英雄，目前是俄罗斯[南部军区的指挥官。](https://tickernews.co/first-ukrainian-city-to-be-taken-over-by-russian-military/)
+
+“阿萨德并不是唯一一个要为在叙利亚杀害平民负责的人，这位俄罗斯将军也应该负责，”总部设在英国的战争监测机构叙利亚人权观察站负责人表示。
+
+在周六对乌克兰人的深夜讲话中，乌克兰总统泽伦斯基说，俄罗斯的侵略“并不打算只限于乌克兰，整个欧洲都是俄罗斯的目标”。
+
+“这就是为什么支持乌克兰的和平愿望不仅是所有民主国家、所有欧洲力量的道德责任，这也是每一个文明国家的防御战略。”
+
+参考链接：
+1、[Russian invasion: Putin could target ‘entire Europe project’, Ukraine warns | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/vladimir-putin-turning-attention-to-entire-europe-project-ukraine-warns/news-story/a4b08c4dce7f19115a1da9961d484390)
+2、[Russia sends ruthless Syrian general to take charge of Ukrainian invasion (tickernews.co)](https://tickernews.co/russia-sends-ruthless-syrian-general-to-take-charge-of-ukrainian-invasion/)
+
+*发布**：**文武全才*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
