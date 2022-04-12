@@ -2,30 +2,26 @@
 ---
 
 
-## 郭先生即将推出两首新歌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334116/)
+## 加拿大机构投资者增加持有数字货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/23-3.jpg)
-4月10日的大直播中，郭先生透露，有两首新歌正在创作当中。
+编译撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-其中一首歌是战友创作，该战友是在中共国内深受大众喜爱的歌手。郭先生初次试唱该歌曲就让战友惊讶了，毕竟一个不专业的歌手能够有如此表现，如郭先生所言，自己都觉得不可思议。歌曲尚在录制中，战友尽情期待。
+据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
 
-另外一首歌是好莱坞一位有名的作词人，他愿意为新中国联邦创作一首歌曲。歌曲的名字叫做《one hundred percent》，这是一首和以往完全不同的歌曲。歌词来源于郭先生以往的爆料，比如有些句子是这样的“中共病毒来了吗？one hundred percent；香港沦陷了吗，one hundred percent；普京打乌克兰了吗，one hundred percent“，足见该首歌曲体现的是爆料革命唯真不破的内核。该作词人提出要与郭先生单方面联系，排练的时候占用郭先生两个小时，在现场与一千人的队伍去排练，伴唱人员目前都是好莱坞最火的明星。该作词人还透露未来会与战友合作。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
-撰稿、发布：骄子
 
-* * *
+毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
 
-欢迎订阅我们的GNews账号：
+报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+发稿：青青
+
+原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

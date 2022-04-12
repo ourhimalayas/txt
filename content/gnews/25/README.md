@@ -2,42 +2,35 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
+## 2022/04/07 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2334739/)
 
-整理：枳实
-美工：精灵蓝
+1. 4月5日， 江西南昌一居民小区围墙上，架设着通常只会出现在监狱围墙上的刀片刺绳隔离网。
+2. 4月5日，吉林长春。狗狗主人确诊阳性被转移至方舱后，社区工作人员以安置狗狗为由将其活活打死。拥有共产主义的每个角落人性总是会泯灭。 #中国人≠中国共产党
+3. 4月5日，山东菏泽。一男子欲突破封锁区域外出，被当地防控志愿者用推子剃头侮辱。人斗人现象，早在中共文革时期就存在过！
+4. 3月31日，河北唐山。一名婴儿在核酸检测现场发生窒息意外的画面在社交媒体传播。民间称其是做核酸时被志愿者捅死，中共官方称婴儿为棉被捂盖导致窒息，并逮捕了传播民间说法的人。
+5. 近日，上海。一位山东大姐因上海的疫情防控政策被迫流落街头，睡在大马路上。自诉因其是外地户口感染病毒三天了也没人管。
+6. 4月4日，上海。中共防疫政策规定一人不做核酸，全小区视为无效。某小区居民因不配合做核酸，被工作人员和其他户主催促。
+7. 4月3日，疫情下上海世博园方舱医院的集中隔离生活。毫无意义的集中隔离，我们应该质疑它的动机。
+8. 4月4日，上海。上海市公安局副局长在其官方新闻发布会上要求，公众传播疫情信息一定要以所谓官方部门发布信息为准，随意传播疫情信息将可能会面临被抓捕。意欲进一步加强言论审查和控制。
+9. 4月5日，辽宁卫视电视台女主持朱霞 ，因其直播时向公众预警警惕疫情防控风险，被中共官方以制造疫情话题引群众恐慌的理由而停职！
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon*
+- *2，听写：Filon*
+- *3，翻译： 大头猫*
+- *4，PR：Seven-Star Ant*
 
 
-雅典娜疫情更新（2022年 4月11日）
+* * *
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
-[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-数据来源：
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+编辑：【英国伦敦喜庄园编辑部】
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

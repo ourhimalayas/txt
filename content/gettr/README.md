@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 3:21 PM (UTC)`
+
+【Ukraine Rescue】04/11/22 Two volunteers from the Go Dharmic charity organization expressed their concern about the epidemic containment disaster in Shanghai and said to Nicole: Without meeting you (the volunteers of the NFSC), I would assume like nobody cares in China, and you guys are showing the bright side of Chinese people!<br/><br/>【乌克兰救援】04/11/22 两位来自Go Dharmic慈善组织的志愿者在同妮可交谈的时候对上海的疫情封控灾难表示关切并说：如果没有见到你们（新中国联邦的志愿者），我会觉得中国人都很冷漠，而你们正在展示中国人光明的一面！<br/>
+![img](https://media.gettr.com/group12/getter/2022/04/12/15/29e37f4b-1dc8-5a3d-73dd-3c544ba40449/out.jpg)
+
+---
+
 `@miles 4/12/2022 2:37 PM (UTC)`
 
  4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！
@@ -148,13 +155,6 @@
 
 4/11/2022 Miles Guo’s GETTR: Large-scale nucleic acid testing will be implemented in Beijing, and the CCP will invade Taiwan before this May. A major battle between Russia and Ukraine is imminent. The new commander of the Russian troops is ruthless and will strike Kyiv by pretending to attack eastern Ukraine, with Zelenskyy being the target. The global supply chain is now in a crisis as many basic goods are not being produced. Let’s pray for the fellow fighters at the front line of the rescue operation who are safeguarding the security and interests of the overseas Chinese and the image of the citizens of the New Federal State of China.<br/><br/>4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的；全球供应链现严重危机，很多基本商品无人生产；为维护海外华人安全、利益和新中国联邦人形象的救援前线战友祈福<br/>
 ![img](https://media.gettr.com/group22/getter/2022/04/11/22/0ac0d873-a252-12e6-4ff5-a503c5aaee63/out.jpg)
-
----
-
-`@miles 4/11/2022 10:44 PM (UTC)`
-
-【Ukraine Rescue】04/08/2022 After a volunteer from Busan, South Korea learns that we are the new Chinese who are taking down the CCP at the Medyka border, he says that the Whistleblowers’s Movement is a peaceful movement and will bring peace and freedom to the Chinese people. He wishes all Chinese people to be free soon.<br/><br/>【乌克兰救援】04/08/2022 来自韩国釜山的义工在梅迪卡边境了解到我们是灭共的新中国人后，说爆料革命是一场和平运动，会给中国人带来和平与自由， 他祝愿所有中国人都能早日获得自由。<br/>
-![img](https://media.gettr.com/group18/getter/2022/04/11/22/042fd9d1-bdad-e656-775f-529cb24b5693/out.jpg)
 
 ---
 
