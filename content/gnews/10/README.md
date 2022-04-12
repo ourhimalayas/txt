@@ -2,18 +2,16 @@
 ---
 
 
-## 樱花时政┃形势危急，美国命令驻上海总领馆工作人员撤离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336579/)
+## 樱花时政┃北欧两国可能与今夏加入NATO
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336598/)
 
-撰稿：东京樱花团/闻雨
+撰稿：东京樱花团/haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-33.jpg)[图片来源](https://yvpub-pctr.c.yimg.jp/dk/yvpub-bucket001-west/contents/yvpub-content-dc54d4678e62010da03e468039cfe826/images/yvpubthum6878024-ce36bc8920058c1e762ae304ec87a2df.JPG)
+以俄罗斯入侵乌克兰为契机，北欧芬兰和瑞典加入北约（NATO）的气势日益高涨。专家指出，如果两国申请加入的话，很有可能会在短期内加入北约。而俄罗斯则将此视为安全上的威胁，有可能做出各种阻碍。
 
-4月12日，美国驻中国大使馆宣布，美国国务院已下令撤离驻上海总领事馆的所有家属和不参与紧急行动的工作人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-3.jpg)图片来源于本文链接
-这是因为对中共病毒（新冠病毒Covid-19）在上海的迅速蔓延感到担忧，以及对中共政府继续采取严格的宵禁等限制的不满。尼古拉斯·伯恩斯大使已向中共政府“多次表达”对美国公民在中国的安全感到担忧。
+信息来源：
 
-在4月12日的例行记者会上，中共外交部赵立坚表示强烈不满，批评美国“将人员撤离问题政治化”。但大家都很清楚，美国与中共的政治脱钩已是大趋势谁也挡不住。
-
-信息来源：[米国務省、上海総領事館員の家族らに退避命令…コロナ感染拡大で](https://www.yomiuri.co.jp/world/20220412-OYT1T50167/)
+[解説：北欧2カ国のＮＡＴＯ加盟、今夏にも実現か　ロシアはどう出る？ – ロイター映像ニュース | Yahoo! JAPAN](https://video.yahoo.co.jp/c/19762/14cec6aa11eeecd83e31579ec9219d26330b95de)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

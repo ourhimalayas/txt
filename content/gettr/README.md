@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 11:10 PM (UTC)`
+
+4/10/2022 Miles Guo: Lao Baixing rushed to take the COVID vaccines because of their ignorance and fear of death; dictators such as Xi Jinping and Putin are aware that only when Lao Baixing live in wars, fear and starvation, will the dictators themselves stay safe.<br/><br/>4/10/2022 文贵直播：老百姓抢着打疫苗是因为无知和对死亡的恐惧；独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全。<br/><br/>
+![img](https://media.gettr.com/group30/getter/2022/04/12/23/6a2edba2-7952-1a54-6608-38f845f9b195/out.jpg)
+
+---
+
+`@miles 4/12/2022 11:03 PM (UTC)`
+
+4/10/2022 Miles Guo: What is going on in the major cities of Commmunist China is indeed a stress test, which is exactly what Hitler and the Japanese did before launching WWII; Xi Jinping and other current CCP kleptocrats grew up during the Cultural Revolution. To them, Lao Baixing are only a tool. They believe only when Lao Baixing strive for food and mere survival, will they forget about their basic human rights or voting rights. Only then will the CCP be able to survive.<br/><br/>4/10/2022 文贵直播: 如今习在中共国几个城市所做的压力测试，就是当年希特勒和日本在发动战争前所做的事情！在习代表的文化大革命一代高官的眼里，老百姓只是工具。他们希望借老百姓被压榨到只关心食物和生存，无暇顾及权利和选票之际，为中共政权赢得苟延残喘的机会！<br/>
+![img](https://media.gettr.com/group4/getter/2022/04/12/23/179051dd-669a-9371-465a-8ca8ba183b85/out.jpg)
+
+---
+
+`@miles 4/12/2022 11:01 PM (UTC)`
+
+2022.04.12 NFSC news  Russian Soldiers Sexual Violence Toward Infants Stirs Outrage
+![img](https://media.gettr.com/group34/origin/2022/04/12/23/0e087eb5-47e7-94c0-3297-c8d6b86a63e1/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/12/2022 10:55 PM (UTC)`
+
+4/12/2022 Miles Guo’s GETTR: What happened in the past 24 hours? The European Union and the United States will decouple from Hong Kong’s financial system and impose strict sanctions upon Hong Kong government officials; the Chinese Communist Party will be severed from all diplomatic ties, and will only be able to play internal politics; the New Federal State of China is the future of all Chinese.<br/><br/>4/12/2022 文贵盖特：过去24小时发生了什么？欧盟和美国要对香港金融脱钩、对香港官员进行严厉制裁；中共未来不会再有外交了，只有内交；新中国联邦才是所有华人的未来<br/>
+![img](https://media.gettr.com/group14/getter/2022/04/12/22/0d6bd49a-7e01-8098-e533-795173ecb5ec/out.jpg)
+
+---
+
 `@miles 4/12/2022 10:49 PM (UTC)`
 
 4/12/2022 Miles Guo’s GETTR: Nancy Pelosi could visit Taiwan at any time. Will the tragedy of exchanging sex for food in Shanghai and Changchun repeat itself in Beijing? The CCP is finished. Some South American countries are standing with the New Federal State of China. Soon we will see the Himalaya Coin become the earliest and the most popular digital currency to be recognized as a legal tender, while the Renminbi will become the equivalent of the currency used for committing crimes!<br/><br/>4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！<br/>
@@ -124,34 +152,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月11日第38天当日救援统计：<br/>Medyka救援站接待：约224人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10877人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 38 - Date: April 11, 2022 :<br/>Medyka Rescue Station Reception: about 224 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10877 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group13/getter/2022/04/12/15/48f95a0c-1423-3d2f-ec51-36b4709f5b88/9a22d86c8be56ac0f22488827750e1bf.jpg)
-
----
-
-`@miles 4/12/2022 3:40 PM (UTC)`
-
-2022.04.12 NFSC and ROLF Ukraine Humanitarian Rescue Mission
-![img](https://media.gettr.com/group50/origin/2022/04/12/15/193e4654-e2c0-1808-3721-40175f8e5360/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 3:30 PM (UTC)`
-
-【Ukraine Rescue】04/11/22 Three volunteers from Italy come here for the renowned NFSC coffee. Because of the size of our tent and the complete facilities, they thought at first that it was set up by the government of the Chinese Communist Party. They are surprised to learn that we are the NFSC to exterminate the CCP: they thought the CCP is powerful, but a new NFSC without fear of the CCP is rising.<br/><br/>【乌克兰救援】04/11/22 三名来自意大利的志愿者冲着响彻全球的新中国联邦咖啡慕名而来。因为我们的帐篷规模可观，设施完备，他们一开始以为是中共政府搭建的。后来了解到我们是灭共的新中国联邦，他们非常惊讶：他们以为中共很强大，但是一个无惧中共的新中国联邦正在崛起。<br/>
-![img](https://media.gettr.com/group10/getter/2022/04/12/15/7e1b3d54-ca27-0cc6-c3c2-30c15a21447b/out.jpg)
-
----
-
-`@miles 4/12/2022 3:21 PM (UTC)`
-
-【Ukraine Rescue】04/11/22 Two volunteers from the Go Dharmic charity organization expressed their concern about the epidemic containment disaster in Shanghai and said to Nicole: Without meeting you (the volunteers of the NFSC), I would assume like nobody cares in China, and you guys are showing the bright side of Chinese people!<br/><br/>【乌克兰救援】04/11/22 两位来自Go Dharmic慈善组织的志愿者在同妮可交谈的时候对上海的疫情封控灾难表示关切并说：如果没有见到你们（新中国联邦的志愿者），我会觉得中国人都很冷漠，而你们正在展示中国人光明的一面！<br/>
-![img](https://media.gettr.com/group12/getter/2022/04/12/15/29e37f4b-1dc8-5a3d-73dd-3c544ba40449/out.jpg)
-
----
-
-`@miles 4/12/2022 2:37 PM (UTC)`
-
- 4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！
-![img](https://media.gettr.com/group16/getter/2022/04/12/14/048ed0ad-9965-024a-c3de-92a87a639f26/out.jpg)
 
 ---
 

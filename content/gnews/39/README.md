@@ -2,25 +2,25 @@
 ---
 
 
-## 视频文编|俄乌战争局势分析（PPT）
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2335222/)
+## 2022年4月12日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2335792/)
 
-撰稿：东京樱花团/菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-12_233606.png)
-在这场俄乌战争中，双方和谈各执一词。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-北约秘书长称，俄乌战争可能变成持久战，持续数月甚至数年，双方都遭受重大损失，乌克兰至少有1611名平民死亡，2227人受伤，超过12万居民被困，超过400万难民逃离乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1046.jpg)
 
-在布查镇发现的大量平民遗体，被俄罗斯方面否定并声称是乌克兰自导自演、栽赃嫁祸。对于布查屠杀，8个欧洲国家司法机构将启动调查，俄方将为其暴行付出惨重代价。
+发稿：信心的选择
 
-4月7日，联合国大会投票通过，暂停俄罗斯人权理事会资格，美国、英国、瑞士等国已经对俄罗斯实行制裁，独裁者发动战争，对全世界人类带来的是巨大的战争创伤和人道灾难，而我们新中国联邦的正道主义将开创世界千年和平。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-消息来源：
-[2022年4月8日《文贵大直播》](https://www.gettr.com/streaming/p147s0qfc4d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
