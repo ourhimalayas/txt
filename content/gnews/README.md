@@ -15,80 +15,80 @@
 
 ---
 
-### [七哥聊文明及信仰](/content/gnews/1/README.md)
+### [洛杉矶上周日举行了反对强制令集会，人们高呼“我们人民不会屈服”](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [统购统销升级版](/content/gnews/2/README.md)
+ ` 银河勇气之星`
+
+### [七哥聊文明及信仰](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [上海封锁后，港口船只堆积无法进关](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈孟建柱（三十九）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共严厉“清零”管控下，上海家用氧气瓶即将断供](/content/gnews/3/README.md)
+### [上海封锁后，港口船只堆积无法进关](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫情｜上海确诊人数首度下降 当局分区管理愚弄民众 解封区仍维持禁足](/content/gnews/4/README.md)
+### [中共严厉“清零”管控下，上海家用氧气瓶即将断供](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫情｜上海确诊人数首度下降 当局分区管理愚弄民众 解封区仍维持禁足](/content/gnews/7/README.md)
  ` 關注組`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–辉瑞疫苗后遗症](/content/gnews/5/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.12)–辉瑞疫苗后遗症](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [重型武器供应缺乏：泽伦斯基称无法解除对马里乌波尔的封锁](/content/gnews/6/README.md)
+### [重型武器供应缺乏：泽伦斯基称无法解除对马里乌波尔的封锁](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [乌克兰救援前线报道4.12.2022：前线大救援行动对灭共的战略意义](/content/gnews/7/README.md)
+### [乌克兰救援前线报道4.12.2022：前线大救援行动对灭共的战略意义](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共印发“新时代”古籍篡改工作通知书](/content/gnews/8/README.md)
+### [中共印发“新时代”古籍篡改工作通知书](/content/gnews/11/README.md)
  ` 儒为`
 
-### [中日财经爆┃间隔仅3天，李克强又召开第二次经济形势分析会！老百姓的苦日子还没真正开始！](/content/gnews/9/README.md)
+### [中日财经爆┃间隔仅3天，李克强又召开第二次经济形势分析会！老百姓的苦日子还没真正开始！](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：信奉科学共产主义的郎咸平 其母成为“科学”防疫政策的受害者](/content/gnews/10/README.md)
+### [秘翻在线：信奉科学共产主义的郎咸平 其母成为“科学”防疫政策的受害者](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [埃隆马斯克称特斯拉可能不得不进入锂业务，因为成本太“疯狂”](/content/gnews/11/README.md)
+### [埃隆马斯克称特斯拉可能不得不进入锂业务，因为成本太“疯狂”](/content/gnews/14/README.md)
  ` 波士顿五月花农场金融部`
 
-### [触动欧洲神经，中国向塞尔维亚运送导弹](/content/gnews/12/README.md)
+### [触动欧洲神经，中国向塞尔维亚运送导弹](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [风雨之中评上海封城](/content/gnews/13/README.md)
+### [风雨之中评上海封城](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [保卫Azovstal 钢铁厂的武装部队遭受俄罗斯军队化学武器攻击](/content/gnews/14/README.md)
+### [保卫Azovstal 钢铁厂的武装部队遭受俄罗斯军队化学武器攻击](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [《共产党统治中国的150个家族》之“李岚清”篇（一）](/content/gnews/15/README.md)
+### [《共产党统治中国的150个家族》之“李岚清”篇（一）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排](/content/gnews/16/README.md)
+### [国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排](/content/gnews/19/README.md)
  ` 關注組`
 
-### [台湾在中共国威胁下发布第一本战争生存手册](/content/gnews/17/README.md)
+### [台湾在中共国威胁下发布第一本战争生存手册](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄军监禁乌国14至24岁女孩25天 至少9人遭轮奸怀孕](/content/gnews/18/README.md)
- ` 蓝莲花农场`
-
-### [制裁俄罗斯：欧洲刑警组织支持调查](/content/gnews/19/README.md)
+### [制裁俄罗斯：欧洲刑警组织支持调查](/content/gnews/21/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [俄乌战争：第三次世界大战的前兆-波兰版的“卢沟桥事变”](/content/gnews/20/README.md)
- ` 战云长天时评`
-
-### [秘翻在线：拜登总统5月访日，四方峰会牵制中共](/content/gnews/21/README.md)
+### [秘翻在线：拜登总统5月访日，四方峰会牵制中共](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [上海外地人 挨饿看病难](/content/gnews/22/README.md)
+### [上海外地人 挨饿看病难](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [20220410郭文贵大直播 ：一个合理的财富分配制度和安全的财富拥有方式是一个国家民主法治最关键的组成部分](/content/gnews/23/README.md)
+### [20220410郭文贵大直播 ：一个合理的财富分配制度和安全的财富拥有方式是一个国家民主法治最关键的组成部分](/content/gnews/24/README.md)
  ` Tokyo Sakura Video Group`
 
-### [上海市委书记视察小区被市民呛声](/content/gnews/24/README.md)
+### [上海市委书记视察小区被市民呛声](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
-
-### [日本年轻人疫苗第3次接种率为20%](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [俄乌战争｜奥地利总理对化解冲突感悲观 称普京已进入“战争逻辑”](/content/gnews/26/README.md)
  ` 關注組`
