@@ -2,20 +2,39 @@
 ---
 
 
-## 樱花时政┃北欧两国可能与今夏加入NATO
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336598/)
+## 新中国联邦梅迪卡救援帐篷内接待了一家六口
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336756/)
 
-撰稿：东京樱花团/haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-33.jpg)[图片来源](https://yvpub-pctr.c.yimg.jp/dk/yvpub-bucket001-west/contents/yvpub-content-dc54d4678e62010da03e468039cfe826/images/yvpubthum6878024-ce36bc8920058c1e762ae304ec87a2df.JPG)
-以俄罗斯入侵乌克兰为契机，北欧芬兰和瑞典加入北约（NATO）的气势日益高涨。专家指出，如果两国申请加入的话，很有可能会在短期内加入北约。而俄罗斯则将此视为安全上的威胁，有可能做出各种阻碍。
+作者：小小酥
 
-信息来源：
+编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/小小酥-e1649803632199.jpg)2022年4月12日，波兰梅迪卡难民营，新中国联邦乌克兰救援前线一家六口大帐篷内休息。
 
-[解説：北欧2カ国のＮＡＴＯ加盟、今夏にも実現か　ロシアはどう出る？ – ロイター映像ニュース | Yahoo! JAPAN](https://video.yahoo.co.jp/c/19762/14cec6aa11eeecd83e31579ec9219d26330b95de)
+**仓皇逃命路 **，
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**偶遇歇脚处， **
+
+**一家人六口 **，
+
+**梦乡大通铺。 **
+
+**俄人杀我亲 **，
+
+**烧我庄稼地 **，
+
+**夫君保家乡，**
+
+**妇幼异乡流**。
+
+波兰当地时间4月12日，新中国联邦乌克兰救援前线，波兰梅迪卡救援中心，一家六口经历了颠沛流离，终于逃离了战区，来到了新中国联邦搭建的避难大帐篷，帐篷内设施齐全，食物供应充足，温暖而又温馨。在这里他们充分感受到来自新中国联邦人的关怀与温暖。
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

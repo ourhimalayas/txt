@@ -2,35 +2,23 @@
 ---
 
 
-## 俄乌战争“没想到”系列之六：
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336304/)
+## 2022/04/12 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2336464/)
 
-视频制作：多伦多蓝莲花视频制作组laocai
+[![](https://express.adobe.com/page/wJ8qnFslHAGhU/images/2931c682-46cd-4459-8746-bf9975f1ad04.png?asset_id=ba2503b5-0fc9-4a82-961b-4aa885a38ba9&amp;img_etag=%22b59f7f99494a7a75221e97ea93896b4b%22&amp;size=2560)](https://express.adobe.com/page/wJ8qnFslHAGhU/images/2931c682-46cd-4459-8746-bf9975f1ad04.png?asset_id=ba2503b5-0fc9-4a82-961b-4aa885a38ba9&amp;img_etag=%22b59f7f99494a7a75221e97ea93896b4b%22&amp;size=1024)
+[**GETTR直播链接**](https://gettr.com/post/p14y3tsd6bc)
 
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+• 过去24小时对新中国联邦至关重要。欧盟和美国考虑对香港金融地位重新定义（剔除国际系统）。美国命令撤离上海大使馆人员历史上第一次，一些国家将开展类似行动，中共国走向北朝鲜化（经济、贸易、外交、文化脱钩)。
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**第六个没想到：**
 
-没想到中共这个政权在全世界面前戏也不演了，公然支持俄罗斯侵略者。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-中共外交部无所作为却公然欺骗中国人他们在救人，这次中共虚伪的嘴脸在全世界面前被撕破。
-
-全世界都看到俄的背后有中共的影子，全世界在关注俄乌战争的时候也盯紧中共各种言行。中共对外故作姿态，含糊其辞，想充当和事佬，背后为俄罗斯提供大量物资和资金的支持。
-
-对内洗脑中国老百姓，用虚假宣传欺骗海外留学生和华人。宣扬中共在救人，实际上中共战狼非但没有救人还阻挠新中国联邦救援。
-
-煽动中国老百姓支持普京，帮助侵略者鼓吹战争是正义的。宣扬独裁理念，妄图在舆论上为日后台海战争埋下伏笔。
-
-诋毁乌克兰人的保卫自己家园的正义行为，所有这些罪行都被全世界看的清清楚楚，中共藏不住也不藏了。
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+*听写：* *call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+[![](https://express.adobe.com/page/wJ8qnFslHAGhU/images/3a940585-5ee3-40ca-aa9e-22a971f30c26.jpg?asset_id=f4054333-cebf-45a4-bd3c-75938b9be05e&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/wJ8qnFslHAGhU/images/3a940585-5ee3-40ca-aa9e-22a971f30c26.jpg?asset_id=f4054333-cebf-45a4-bd3c-75938b9be05e&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,27 @@
 ---
 
 
-## 2022/04/12 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2336464/)
+## 樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十四）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336539/)
 
-[![](https://express.adobe.com/page/wJ8qnFslHAGhU/images/2931c682-46cd-4459-8746-bf9975f1ad04.png?asset_id=ba2503b5-0fc9-4a82-961b-4aa885a38ba9&amp;img_etag=%22b59f7f99494a7a75221e97ea93896b4b%22&amp;size=2560)](https://express.adobe.com/page/wJ8qnFslHAGhU/images/2931c682-46cd-4459-8746-bf9975f1ad04.png?asset_id=ba2503b5-0fc9-4a82-961b-4aa885a38ba9&amp;img_etag=%22b59f7f99494a7a75221e97ea93896b4b%22&amp;size=1024)
-[**GETTR直播链接**](https://gettr.com/post/p14y3tsd6bc)
+撰稿：东京樱花团/深藏不露
 
-• 过去24小时对新中国联邦至关重要。欧盟和美国考虑对香港金融地位重新定义（剔除国际系统）。美国命令撤离上海大使馆人员历史上第一次，一些国家将开展类似行动，中共国走向北朝鲜化（经济、贸易、外交、文化脱钩)。
+2022年4月11日郭先生盖特爆料说：俄罗斯正准备对乌克兰进行一场大战，俄罗斯这把要来狠的，德沃尼科夫这个孙子可是一个冷面的，这货从叙利亚回来，是个冷酷无情的人，生化武器、围歼战、导弹，地面攻击会全上，现在他的策略一定是指东打西，说是打整个乌东，可能会打基辅！然后，导弹会像雨一样打过去，斩首泽连斯基！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-5.png)
+习近平已经给俄军送去了武器，他不仅祸害中国人，还要祸害全世界人！未来的中东、东欧、欧洲都将变成火海。接下来就是习近平对北京进行压力测试，这种情况下，攻台时间应该在五月份以前！
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+上个月，俄罗斯军队撤回了他们在基辅以外的阵地，俄罗斯发表正式声明，确认“特别行动”现在将专注于解放东部的顿巴斯地区。狡黠的普京假装对乌克兰进行和平谈判，来麻痹乌克兰，并且谈判条件只要乌东两个已收入囊中的地区！据五角大楼官员透露现在俄罗斯车队发出巨大的攻击信号，准备占领顿巴斯。在商业卫星图像中暴露的车队，绵延达八英里。它包含指挥和供应步兵部队的车辆，还有直升机！据卫星图像显示车队向南驶向伊久姆，而伊久姆位于俄罗斯进军顿巴斯的最前线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-6.jpg)[图片来源](https://assets.zerohedge.com/s3fs-public/styles/16_9_max_700/public/2022-04/donbsconvoy.jpg?itok=vmWas70N)
+俄罗斯新任指挥官德沃尼科夫此人极其凶残，毫无底线曾在叙利亚毫无人性的使用生化武器！据个人判断狡黠的普京利用谈判时间进行军队的大重整，补充各种军事物资，等调整准备完毕后，俄军再声东击西，用中共提供的导弹，直击首都基辅斩首乌克兰总统泽林斯基！同时，认为时机成熟、无所顾忌的习近平一定会同时出手对台作战，拿下台湾！俄军现在已经获得了习近平的大量武器支援，乌克兰必将会有一场硬仗要打，我相信乌克兰军民同仇敌忾、加上各国志愿军一道将俄军彻底击败！而习近平进击台海，必将被全球联军彻底消灭……
 
+消息来源：
 
-*编辑：【英国伦敦喜庄园编辑部】*
+1、[4月11号：尊敬的战友们好……中国已经进入人道大灾难的时刻……](https://gettr.com/post/p14p9pd7e23) 
+2、[8-Mile Long Russian Convoy Signals Huge Assault Readied To Take Donbas: Pentagon](https://www.zerohedge.com/military/8-mile-long-convoy-signals-huge-russian-assault-readied-take-donbas-pentagon)
 
-*听写：* *call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-[![](https://express.adobe.com/page/wJ8qnFslHAGhU/images/3a940585-5ee3-40ca-aa9e-22a971f30c26.jpg?asset_id=f4054333-cebf-45a4-bd3c-75938b9be05e&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/wJ8qnFslHAGhU/images/3a940585-5ee3-40ca-aa9e-22a971f30c26.jpg?asset_id=f4054333-cebf-45a4-bd3c-75938b9be05e&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

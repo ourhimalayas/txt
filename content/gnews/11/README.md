@@ -2,24 +2,39 @@
 ---
 
 
-## 中共政府无法无天 美国令驻沪领馆非紧急人员撤离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336669/)
+## 上海等城市的封锁加剧对经济的威胁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336817/)
 
-撰稿/配图：东京樱花团/Ob
+##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译 重生之鹰 】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据CTV NEWS 4月8日报道：目前，中国坚定不移地坚持“清零政策”，通过封锁上海等大城市来遏制新冠肺炎疫情，这可能对其庞大的经济构成严重冲击，给全球供应链带来更大压力，并进一步加剧通货膨胀。
 
-看中国2022年4月12日讯，上海中共病毒（新冠病毒COVID-19）疫情恶化，加之中共国采取“动态清零”封控，导致次生灾难不断，身处上海的外国使团也岌岌可危。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-11.jpg)
-4月11日，美国政府下令美国驻上海总领事馆中所有非紧急雇员及其所有雇员的家属撤离上海，并指出“中国政府未经正当法律程序任意执法”。据美国之音12日报导，美国星期一（4月11日）下令驻上海领事馆的所有非紧急工作人员和所有家庭成员离开上海，原因是当地新冠疫情案例迅速攀升，以及中共政府为应对疫情采取的严厉限制措施。美国国务院公布的前往中共国旅行警示中作出了这项宣布，并宣布取代上星期五（4月8日）才更新的旅行警示。旅行警示还说，中共国政府未经正当法律程序任意执法，包括任意扣押美国公民并限制他们离境，并阻止美国使领馆人员向他们提供领事服务。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1464.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
 
-据联合早报10日报导，中共强烈不满美国务院声明指责中共防疫政策。4月9日中共外交部发言人赵立坚说：“我们对美方在其声明中无端指责中国防疫政策表示强烈不满、坚决反对，已向美方提出严正交涉。”
 
-中共的任性随意，为命是从，机械死板的任务执行已经带给全国乃至全世界人民一种极端的不信任感。中共混不吝的行政行为已经对世人的生命造成极端的危害，对世人的生存造成极大威胁。蔑视世人的基本生存权，已是冒天下之大不韪，公然违背事理常情，任何人任何国家都可以理所当然地拥有紧急处置权。这是天然就有的不可剥夺的基本权利，中共的无法无天已达到混不吝的至高境界!
+上海是中国主要的金融中心，它的一些最大的港口和机场已经被封锁了12天，而且没有结束的迹象。小企业受到重创，商店和餐馆被迫关闭。特斯拉以及许多中国和台湾制造商都不清楚何时能重启工厂。与此同时，港口延误情况越来越严重，航空货运价格飙升，给全球贸易带来了更大的压力。
 
-消息来源：[美国令驻沪领馆非紧急人员撤离 指责防疫“任意执法”(图)](https://m.secretchina.com/news/gb/2022/04/12/1003302.html)
+其它23个城市自上月以来也实施了全面或部分封锁。这些城市约有1.93亿居民，占中国人口总数的13.6%，贡献了23万亿元(3.6万亿美元)的GDP，占中国经济的22%。“由于封锁，在这些地区流动性已经被明显限制，对经济造成的损害正在加大，并不可避免的对其它国家和地区产生溢出效应。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+为此，世界银行(World Bank)周二下调了对中国2022年经济增长的预测，预计这个全球第二大经济体今年的经济增速将达到5%，远低于去年的8.1%。这也低于中国5.5%左右的官方目标。
+
+原文链接：
+
+[https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+
+上传/发稿 – 【青青】
+撰稿/翻译 -【重生之鹰】
+素材/采编 -【重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
