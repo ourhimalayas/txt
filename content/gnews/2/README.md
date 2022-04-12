@@ -2,57 +2,38 @@
 ---
 
 
-## 南澳取消口罩强制令和扫码要求
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2333804/)
+## 台湾首次向民众发布战争生存指南
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-228.jpg)图片来自网络
-《ABC News》近日报道，从复活节开始，南澳大利亚人将不必在大多数公共室内空间戴口罩，而该州的二维码登记制度将被 “停用”。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
+当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
 
-在医院、老年护理或残疾人住宅设施等高风险环境中，在公共交通工具和共享汽车上，仍将需要戴口罩。
+据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
 
-在即将到来的学校假期结束之前，将在几周内决定是否在学校保留口罩。
+尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
 
-南澳州的长期口罩制度一直是该国最严格的制度之一，自2021年中期开始实施，大约是在7月封锁的时候。
+reference：
 
-该州今天又记录了6名感染新冠的人死亡和4401个新病例。死亡的人中有三名男性和三名女性，年龄从50多岁到90多岁。
+[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-州长彼得-马利奥斯卡斯说：”虽然我们仍然看到大量的病例，但它们基本上符合或远远低于三周前的最初预期，这确实带来了一些好消息。
+民防手册下载地址
 
-他说，对口罩和二维码规则的修改代表着向恢复新冠之前的常态迈出的又一重要步骤，使南澳大利亚州与其他大多数州一致。
+[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
 
-马利奥斯卡斯先生说：”到了复活节，我们将看到南澳大利亚州对佩戴口罩的要求有了实质性的放松。
+撰稿、发布：骄子
 
-“我认为这对人们来说是一个很大的利好，特别是那些作为要求而不是选择而戴口罩的人。”
+* * *
 
-二维码签到已经在一些领域被放弃了，包括商店、出租车、共享汽车和房屋检查。
+欢迎订阅我们的GNews账号：
 
-马利奥斯卡斯先生说，他们将被 “封存”，但留下了未来推翻这一决定的可能性。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-“他说：”我选择’停用’一词，以区别于’废除’二维码制度，因为很可能在未来的某个时间点，这可能需要再次启动。
-
-二维码和口罩一样，现在只在少数高风险设施中需要。
-
-就口罩而言，这些设施包括公立和私立医院、老年护理、残疾人住宅和教养服务场所，以及公共交通。
-
-“我们认为非常重要的是，我们继续在公共交通工具、出租车和其他搭车服务中强制要求戴口罩。在机场和航班上也将继续这样做，”首席公共卫生官尼古拉-斯普雷尔说。
-
-总理说，戴口罩仍然是一种选择，选择继续戴口罩的人应该对他们的选择感到放心。
-
-“他说：”如果你觉得戴口罩可以为你或你的家人或亲人提供更多的保护，选择戴口罩并没有错。
-
-如果企业愿意，他们仍然可以自由地施加戴口罩的要求，而学校可以保留目前的口罩要求，如果这样的步骤被认为是 “势在必行”。
-
-马利奥斯卡斯先生说：”当我们接近复课时，我们将评估在学校戴口罩的要求，复课还有三个星期。
-
-参考链接：
-
-[https://www.abc.net.au/news/2022-04-12/sa-drops-mask-wearing-mandate-and-mothballs-qr-codes/100984492](https://www.abc.net.au/news/2022-04-12/sa-drops-mask-wearing-mandate-and-mothballs-qr-codes/100984492)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

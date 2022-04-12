@@ -2,22 +2,26 @@
 ---
 
 
-## 樱花FM┃中共疫情极端管控吓坏上海非裔
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2333052/)
+## 俄乌战争｜奥地利总理对化解冲突感悲观 称普京已进入“战争逻辑”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333194/)
 
-音频：东京樱花团/战友520
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜奧地利總理對化解衝突感悲觀-稱普京已進入「戰爭邏輯」.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/041218.png)
+[點擊關注官方蓋特](https://www.gettr.com/user/hktwfrontline)
 
-中共的邪恶历来令人心惊胆战，多少人心中埋藏着恐惧的阴影。三反五反，文化大革命，三年自然大灾害，哪一场运动不是别有用心的杀人。而如今，一场靠“疫核团”驱动的社会防疫运动正在上海如火如荼地进行着。
 
-三年大自然灾害易子互食的悲剧仍然历历在目。移居上海的非裔，独处异国他乡，听说中国共产党最擅长依靠和发动邪恶的社会运动推动杀人之后，深感忧虑，向社会发出了恐惧的哀求，“我是一个好黑人，请不要吃我，上海。”
+奥地利总理内哈默（Karl Nehammer）11日与俄罗斯总统普京（Vladimir Putin）进行会谈后坦言，普京的“战争逻辑”令人感到悲观，并形容与普京的会谈过程非常艰难。他说，“我们不应该抱有任何幻想，普京已经进入到自己的战争逻辑中，他正在采取相应行动，他希望透过迅速的军事行动成功拿下乌克兰”。
 
-文字版原文：[中共疫情极端管控吓坏上海非裔](https://gnews.org/zh-hans/2306027/)
+内哈默是俄乌战事爆发以来，首位与普京面对面会晤的欧盟国家领袖。奥地利并非北约成员国，数十年来与俄罗斯保持着相当友好的外交关系，故一贯将自己设定成俄罗斯与欧洲利益分歧的调解人。内哈默透露，他觉得俄罗斯方面对与乌克兰总统泽连斯基进行直接会晤的提议几乎没有兴趣。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+來源｜[卫报](https://www.theguardian.com/world/2022/apr/11/austrian-chancellor-to-tell-putin-he-has-lost-the-war-morally)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

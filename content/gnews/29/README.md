@@ -2,26 +2,24 @@
 ---
 
 
-## 俄乌战争｜奥地利总理对化解冲突感悲观 称普京已进入“战争逻辑”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333194/)
+## 日本东京樱花团 中文新闻播报第48期
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2333359/)
 
-**图/文｜CP**
-**发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜奧地利總理對化解衝突感悲觀-稱普京已進入「戰爭邏輯」.jpg)
+新闻内容摘要：
 
-[點擊關注官方蓋特](https://www.gettr.com/user/hktwfrontline)
+- 1.新中国联邦・法治基金乌克兰救援行动报告
+- 2.上海封城：20世纪60年代中共“大饥荒”灾难的重演
+- 3.上海封锁进一步冲击全球供应链
+- 4.正在乌克兰访问的欧盟议会议长冯德莱恩，亲手将乌克兰加入欧盟的意向书交给泽连斯基总统
+- 5.入侵乌克兰的俄罗斯军队继续攻击东部城市地区
+- 6.美国参议员霍利提出《台湾武器出口法案》（Taiwan Weapons Exports Act）
+- 7.岸田首相在支持乌克兰難民的国际会议上发表了视频讲话
 
 
-奥地利总理内哈默（Karl Nehammer）11日与俄罗斯总统普京（Vladimir Putin）进行会谈后坦言，普京的“战争逻辑”令人感到悲观，并形容与普京的会谈过程非常艰难。他说，“我们不应该抱有任何幻想，普京已经进入到自己的战争逻辑中，他正在采取相应行动，他希望透过迅速的军事行动成功拿下乌克兰”。
+**播报：东京樱花团-优妃**
 
-内哈默是俄乌战事爆发以来，首位与普京面对面会晤的欧盟国家领袖。奥地利并非北约成员国，数十年来与俄罗斯保持着相当友好的外交关系，故一贯将自己设定成俄罗斯与欧洲利益分歧的调解人。内哈默透露，他觉得俄罗斯方面对与乌克兰总统泽连斯基进行直接会晤的提议几乎没有兴趣。
-
-來源｜[卫报](https://www.theguardian.com/world/2022/apr/11/austrian-chancellor-to-tell-putin-he-has-lost-the-war-morally)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+**发布： 东京樱花团-eiei**
+![此图像的alt属性为空；文件名为erweima.png](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

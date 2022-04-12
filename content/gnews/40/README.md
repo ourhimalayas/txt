@@ -2,31 +2,26 @@
 ---
 
 
-## 英首相约翰逊突访乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332338/)
+## 微软没收了俄罗斯用来攻击乌克兰的域名
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332339/)
 
-作者：纽约磐石农场—在远方
+作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月9日，英国首相约翰逊突访基辅，会见了乌克兰总统泽连斯基。
+当地时间4月8日，微软成功没收了俄罗斯军情间谍运营的APT28使用的域名。这些域名是俄罗斯用来追踪乌克兰、美国、欧洲外交政府机构和各类智囊团的。
 
-约翰逊此次乌克兰之行严格保密，事前英国政府与英国媒体只字未提，直到英国驻乌克兰大使馆在网络上发布照片后，消息才随之被曝光。泽连斯基也在脸书上晒出两人的会面照，并表示：欢迎来到基辅，我的朋友！约翰逊与泽连斯基还在基辅街头一起高调现身，进行了步行巡视。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-23.jpg)
-英国首相官邸发言人指出，约翰逊亲自会见泽连斯基，展现出两国人民团结一心的坚定立场，并透露英国将对乌克兰进行新的金融与军事援助。乌克兰总统办公室副主任西比哈表示，约翰逊与泽连斯基进行了一对一单独会面。
+微软表示，它在4月6日得到法院命令，授权其对俄罗斯APT28用于网路攻击的7个域名进行控制。微软已经将这些域名重新定向到天坑，启用了受害者通知，并向乌克兰政府通报了检测活动和目前的行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-24.jpg)
+这一行动从2016年就开始了，是微软对俄罗斯国家支持的具有战争目的的黑客进行调查的一部分。近年来微软得到了几项法院裁决，用来查封APT28使用的基础设施，它目前已经查封了100多个类似的间谍域名。
 
-泽连斯基对约翰逊进行了高度赞扬，称约翰逊是反对俄罗斯入侵乌克兰最有原则的领导人之一，是对俄罗斯实施制裁以及支持乌克兰国防的领导人。
+APT28从2009年开始就很活跃，主要用于攻击各国的媒体、军事、安全组织以及政府，包括2015年对德国联邦会议的攻击、2016年对美国民主党全国委员会的攻击，以及对美国通信商Viasat的攻击。其中对美国Viasat的攻击导致了中欧和东欧的卫星服务中断，影响力扩大至全球的家庭和小型企业路由器与网络设备。
 
-参考链接：
-1. [超保密！ 英相強森突訪基輔 澤倫斯基秀照片高喊：我的朋友](https://news.ltn.com.tw/news/world/breakingnews/3888113)
-2. [英国首相鲍里斯.约翰逊来到基辅，支持乌克兰人民。这次英国表现明显好于德法](https://twitter.com/Bob20227/status/1512905794143940608)
+参考链接：[Microsoft seizes domains used by Russian spies to target Ukraine](https://news.yahoo.com/microsoft-seizes-domains-used-russian-123748040.html)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/审核：飞虹
-编辑：翼族
+总编/编辑/审核：飞虹
 校对/发稿：Hetangyuese
-
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  

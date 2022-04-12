@@ -2,83 +2,53 @@
 ---
 
 
-## 美国防部长称美国为乌克兰在顿巴斯的行动提供情报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2333760/)
+## 最高警报：美国驻华使团关于美国驻上海总领事馆命令撤离的声明
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2333911/)
 
-素材编译: Mandel
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/China-seal-Chi.jpg)
+2022年4月12号，中国时间18：30分，美国驻华使团发出《关于美国驻上海总领事馆命令撤离的声明》，全文如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+美国的首要任务莫过于海外美国公民的安全与保障，其包括驻华使团人员和他们的家属。
 
-CNN – 国防部长劳埃德·奥斯汀（Lloyd J. Austin）周四首次公开表示，美国正在向乌克兰部队提供情报，以便在顿巴斯地区开展行动。
+2022年4月11日，国务院下令非紧急美国政府雇员和其家属自上海总领事馆撤离。从“授权”到“命令”撤离的改变意味着，我们现在强制某些雇员撤离上海，而不是任其自行决定。我们的态势改变反映出我们所做的评估，为了因应当地不断变化的情势，减少人数和缩小运作规模，对我们的员工和家属而言，是最好的决定。雇员和家属将搭乘商业航班离境。因为新冠疫情目前爆发的情势，国务院下达撤离命令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1408.png)2021年9月29日，在华盛顿特区，美国国防部长劳埃德·奥斯汀（Lloyd J. Austin）在国会山雷本众议院办公大楼举行的众议院军事委员会关于结束在阿富汗军事行动的听证会上作证。图片来源: 美联社
+伯恩斯大使和其他国务院和使馆的官员，持续向中华人民共和国官员提出我们对美国公民安全和福祉的关切。我们已告知中国政府命令撤离的决定。
 
-在参议院军事委员会作证时，奥斯汀被问及美国是否在提供情报，帮助乌克兰对分离主义分子控制的顿巴斯地区或克里米亚的俄罗斯军队进行攻击。
+美国使团的人员将全天候向在中国的美国公民提供紧急服务。使团内部已调整人员配置，来因应激增的紧急公民服务需求，包括由美国驻北京大使馆的一支团队来增援上海总领事馆。在条件允许的地方，照常向公众提供一般的美国公民和签证服务，美国驻上海总领事馆则将尽快恢复向公众开放。
 
-“我们正在向他们提供情报，以便在顿巴斯地区开展行动，确有其事。” 奥斯汀在回答阿肯色州共和党参议员汤姆·科顿（Tom Cotton）的问题时说。
+美国驻上海总领事馆的命令撤离将每30天审视一次。我们对人员调整的细节虽不加以详述，但会持续调整人员配置态势，以因应需求和情况。
 
-奥斯汀在回答中没有提到克里米亚。他还表示，美国并不阻止乌克兰对这些地区的俄罗斯军队发动攻击。
+在上海的美国公民如果希望离开中国，商业航班仍有机位但数量有限。我们现在正着手处理持有确认机票的美国公民前往机场之事宜。
 
-奥斯汀的评论是美国官员首次公开承认美国在乌克兰有争议地区的行动中的作用，因为战斗已经从首都基辅转移到乌克兰东南部。
+随着情况的变化，使团已向美国公民发送多个信息，包括4月6日和4月9日的对外声明。如果您是美国公民，我们建议注意或考虑下列几点：
 
-一位高级国防官员告诉CNN，提供给乌克兰的一些情报是“接近实时的”。
+- 您可在[https://step.state.gov/](https://step.state.gov/)注册“智行者登记计划”。
+- 有关在当地健康防疫措施下，如何前往搭乘确认航班的问题—发送电邮至[\[email protected\]](/cdn-cgi/l/email-protection#590a3138373e313830181a0a192a2d382d3c773e362f)或拨打+86 10 8531-4000（按“0”接通总机）。
+- 有关如何在上海取得食物、饮用水、医药、供应物资或其他紧急协助需求–发送电邮至[\[email protected\]](/cdn-cgi/l/email-protection#2e7d464f4049464f476f6d7d6e5d5a4f5a4b00494158)或拨打+86 10 8531-4000（按“0”接通总机）。
+- 联系您当地的居民委员会或雇主，要求协助食物递送或大量订购。食物递送可能所有延迟，某些物资的供应可能有限。
+- 关于中国其他地区的问题—利用下列联系信息，与大使馆或您所在地区内的总领事馆取得联系。
+- 检查个人准备情况，确保如果突然受到限制或隔离，您的家人有足够的金钱、医药、食物和其他必需品。
+- 确保可取得包括旅行和身份在内的所有必要文件，且内容信息正确。
+- 立即联系您的亲友，并定期告知最新情况。他们会担心您的安危，因此尽可能通过电话、短信、社交媒体等等和他们取得联系，让他们知道您平安无事。当无法接通语音服务时，可能仍可使用短信和数据服务。
+- 关注驻华使馆主要社交媒体渠道：推特([@USAmbChina](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Ftwitter.com%2FUSAmbChina&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=W%2FFvNXYcRQXkMciGWKTLid7uplekPpLS3DeoeelDZ6Y%3D&amp;reserved=0) 和[@USA\_China\_Talk](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Ftwitter.com%2FUSA_China_Talk&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=nkaTFSSZKZImef0xbMKiWDoYmBIquhoB0EKUyCmReg8%3D&amp;reserved=0)), 微博 ([@美国驻华大使馆](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fweibo.com%2Fusembassy&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=WiHzhANoiQ1WDTuHWmagKr2eMflm7m27CkA9y2MkTOc%3D&amp;reserved=0)), 和微信 ([@美国驻华大使馆](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fgpa-mprod-mwp.s3.amazonaws.com%2Fuploads%2Fsites%2F23%2F2021%2F07%2Fwechat_QR_Code_750x450.jpg&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=wMiIZxsWzVzyBvlV0eGjD6qxCSEzzohVh3hImKv1V8s%3D&amp;reserved=0)).
 
-“我们继续为乌克兰武装部队的战斗提供有用的信息和情报。”这位国防官员在奥斯汀的讲话后说。”随着这场战斗更多地转移到顿巴斯地区，我们将根据需要调整我们的信息内容和流量。”
 
-参谋长联席会议主席马克·米利将军（Mark Milley）本周早些时候作证说，“重大国际冲突”的风险正在增加，他周四说，随着乌克兰保卫其领土，俄罗斯与乌克兰的战争可能会成为一场“漫长的苦战”。
+如遇紧急情况，请拨打+(86)(10) 8531-4000。如欲获得更多信息，请见[https://china.usembassy-china.org.cn/contact/](https://gcc02.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchina.usembassy-china.org.cn%2Fcontact%2F&amp;data=04%7C01%7CHuangRH%40state.gov%7Cd02c6714327a45b4056008da1c22c2ad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637853232863087498%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=s1fMPgPWFInEApzwafJYd3Hd32qNRTKF6CGNDp14vgs%3D&amp;reserved=0)或发电邮至：
 
-米利说：“他们已经设法击败了俄罗斯对基辅的进攻，但在东南部，在顿巴斯顿涅茨克地区周围，还有一场重大的战斗，俄罗斯人打算在那里大规模集结部队并继续他们的攻击。”
+- 驻北京大使馆:  [\[email protected\]](/cdn-cgi/l/email-protection#b7f5d2deddded9d0f6f4e4f7c4c3d6c3d299d0d8c1)
+- 驻广州总领事馆:  [\[email protected\]](/cdn-cgi/l/email-protection#145361757a736e7c7b615557475467607560713a737b62)
+- 驻上海总领事馆:  [\[email protected\]](/cdn-cgi/l/email-protection#aaf9c2cbc4cdc2cbc3ebe9f9ead9decbdecf84cdc5dc)
+- 驻沈阳总领事: [\[email protected\]](/cdn-cgi/l/email-protection#5d0e353833243c333a1c1e0e1d2e293c2938733a322b)
+- 驻武汉总领事馆:  [\[email protected\]](/cdn-cgi/l/email-protection#ffa88a979e91bebcacbf8c8b9e8b9ad1989089)
 
-同时，奥斯汀和米利都告诉参议员们，五角大楼正在采取一切可能的措施，帮助乌克兰打击俄罗斯。奥斯汀周四告诉委员会，美国的安全援助正在涌入乌克兰，“比大多数人认为可以想象的还要快” ——他说，有时在收到授权之后几天内就能到达乌克兰。
 
-奥斯汀在关于国防部预算请求的听证会上说：“从提供授权开始，四或五天后我们看到真正的军事力量开始显现。”
+原文链接：
 
-让武器持续流入乌克兰
+[美国驻华大使馆和领事馆](https://china.usembassy-china.org.cn/zh/)
 
-密西西比州共和党参议员罗杰·威克（Roger Wicker）向奥斯汀追问，为什么国会授权美国向乌克兰提供的30亿美元武器还没有全部到位。
 
-“我们只用了其中的9亿美元——不到授权金额的三分之一。为什么政府没有提供全部的30亿美元？”
 
-奥斯汀告诉威克，美国已经向乌克兰提供了“那些在这场战斗中相关和有效的军事力量”。
-
-他说：“你已经看到我们提供了大量的反装甲能力，防空能力，还有通信能力，以及无人机。我们也在寻求以其他一些方式帮助他们。”
-
-米利作证说，美国和北约国家已经向乌克兰提供了大约6万件反坦克武器和2.5万件防空武器。他说，随着战争的持续，美国正在研究如何向乌克兰提供更多的装甲和大炮，但他说，关键是要找到乌克兰部队不需要接受培训的系统，并指出许多美国武器系统需要几个月的培训。
-
-“俄罗斯空军甚至今天还没有建立空中优势，更不用说空中霸权了，这就是他们在地面上遇到巨大困难的原因之一。”米利说。
-
-“所以（俄罗斯的）空中优势的任务还没有实现，这是为什么呢？这是因为防空系统的存在，包括我们一直提供的MANPADS（便携式防空系统），和来自其他北约国家的毒刺便携式防空导弹和其他相似的东西，加上已经提供的和他们已经拥有的更远距离的SAM（地对空导弹）。”
-
-关于情报共享的最新指南
-
-在科顿的询问下，奥斯汀告诉委员会，五角大楼将在周四发送有关情报共享的“最新指南”，但他没有明确表示该指南将包含哪些内容。
-
-科顿问，当前的指南是否不向乌克兰提供此类情报。
-
-“当然，当前的指南在这方面并不明确，所以我们确保它将是明确的。”奥斯汀回答。
-
-这位国防部官员说，对参与国防部控制的情报收集的指挥官和人员的更新是为了确保正在提供的关于敌方在顿巴斯地区行动的“信息数量、内容和类型”有正确的指导。
-
-上个月，白宫承认，美国已经向乌克兰发送了关于俄罗斯计划和行动的“大量详细、及时的情报”。
-
-“我们已经这样做了几个月。”白宫新闻秘书珍·普萨基（Jen Psaki）当时说。”这些信息可以帮助他们对俄罗斯的入侵制定相关军事对策，这就是现在发生的事情——或已经发生的事情。”
-
-由CNN 记者Oren Liebermann, Barbara Starr, Jeremy Herb和Katie Bo Lillis 于2022年4月7日报道。
-
-文章信息来源: [US giving intel to Ukraine for operations in Donbas, Defense Secretary says](https://edition.cnn.com/2022/04/07/politics/us-intel-ukraine-donbas-operations/index.html)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
