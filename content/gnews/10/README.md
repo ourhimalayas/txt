@@ -2,24 +2,42 @@
 ---
 
 
-## Any Ignorance from Our Fellow Fighters Will Not Be Worthy of Our Brother and Sisters
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2333195/)
+## 解封延期，上海疯魔为哪般？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2333199/)
 
-I truly appreciate all of you, no words can express my appreciation. Anybody who ignore our fellow fighters at the frontline, anybody who ignore our fellow fighters, who are facing such danger, the danger of the virus, are not our brothers and sisters.
+撰稿人：心是莲花
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-21.jpg)图片来自网络
+按照上海封城通知内容，4月5日应是解封日，然而上海市政府会议消息称，已经确定上海全市封到5月1日，之后要不要继续封，1号再决定。同时所有生活物资政府全面管控，个人网购完全停止。政府正在统筹安排如何给市民发放生活物资，据称5月18日全市大面积解封。
 
-**【Miles Guo’s Broadcast Highlights】2022.4.3 Any Ignorance from Our Fellow Fighters Will Not Be Worthy of Our Brother and Sisters**
+与此同时，上海的朋友发来信息说，已经在家封了一个月了，以前屯的物资就要耗尽，非常焦虑，感觉上海进入“三年自然灾害”时期。快递全部停止，大家每天通过抢菜软件团购抢菜，但是抢不上，感觉就像乞丐到处要饭。
 
-**Miles:**
+中共国1959年-1960年大饥荒时期（中共官方叫“三年自然灾害”），河南信阳为防止饥民外逃走漏饿死人的消息，在各路口关卡安插民兵，拦截、毒打、拘捕外逃者。如今步入新时代，信阳变上海，民兵变“大白”，一个“防疫”的理由，就将所有上海人堵在家中，连要饭也与时俱进，不必沿街乞讨，一个抢菜软件乞讨遍上海滩。
 
-Those big shots of the world，one tycoon from Wall Street. A guy you read about everyday on the newspaper said, Miles, give me a few of your vests. My grandson wanted your vests. I asked why? He said that is great, he used to support the CCP, treat the CCP like his daddy, next to the bridge water. He is the second person who mostly invested in China, an investor of HNA, one of the earliest investors. Now he supports our whistleblower movement. He has been watching our support with Ukraine, he asked why you guys support Ukraine? I said, a promise to God, no specific purpose or interests, this is to let people know that we cannot be represented by the CCP. We are the Chinese people who are going to take down the CCP. We are preventing anti-Chinese activities, simple like that and nothing else.
+走到这一步，你还会认为上海封城，真的是为了防疫吗？
 
-Nobody is like me who worries about our brothers and sisters everyday. Those who are at the frontline of this war. That’s right, facing the danger of the virus can potentially get infected at any given moment, we must also endure criticism. I said we only have one goal here, to promote the NFSC and ROLF, to show that we are different from the CCP, simple like that. This guy was so touched, you know why he decided to change now, did you know? His son attended school in the UK, he needed to go to the UK for the graduation ceremony, must be vaccinated, just one shot, half paralyzed at home. You all know this guy, how many schools in Manhattan, how many hospitals he made donations to? Now, he was saved. Once he got to the hospital, after some assessments, a nurse said, this is the side effects of the vaccine. He was admitted in the hospital, getting a full blood clean up, stayed in the ICU for a few days, almost lost his life. This is the virus, the vaccine symptoms. They are all watching our broadcast about Ukraine, watching our work at the frontline.
+正如郭文贵先生所说，疫苗隔离措施里面有政治因素。笔者认为上海封城体现的事中共极权控制和内斗，主要有以下几个目的：
 
-I wanted to tell you guys, my brothers and sisters, just like what I said. No matter how handsome Eric is, how beautiful his voice is, he cannot tell you such story. This is my experience, this is the story, this is what you guys have done at the frontline. Our tent is like a book written by Jia Pingao, about a lamp in the darkness of Xin Jiang, in a shabby house. A house that was built by digging a hole, with a lamp in the room. I read this novel, I think you guys are the lamp. People of the Northwest still have hope. Eventually, the reporters located the lamp, heard people were having sex.
+应对即将爆发的疫苗灾难。郭文贵先生多次说，国内疫情实际是疫苗副作用爆发，疫苗即病毒，疫苗反应和病毒症状是一样的，且上海、长春已经有5000多个气化炉，一天可气化500万人。中共为了掩盖疫苗带来的灾难性后果，将老百姓封在家中，死在家里，悄悄运走，直接气化，人不知鬼不觉。
 
-So, people still have hope, in this darkness, in this shabby house with sex noises. At such time hearing such noise, bring warmth to people, this is reproduction. Hope is in the reproduction, reproduction from a disaster. Also it creates hope, the only thing you cannot do is having sex out there, but your image of bringing hope to the world. Especially bringing hope to the Chinese people. I truly appreciate all of you, no words can express my appreciation. Anybody who ignore our fellow fighters at the frontline, anybody who ignore our fellow fighters, who are facing such danger, the danger of the virus, are not our brothers and sisters. If you guys needed something, I am willing to fulfill that request. Unless you guys don’t need it, not so much for the gentlemen, ladies are welcome.
+应对即将到来的粮食危机。郭文贵先生多次在直播中提醒，中共最大的危机是粮食危机。2021年中共国水灾，排名前十的产粮大省中，颗粒无收的重灾区就有六个。今年的封城，让很多地方错过春耕，粮食危机板上钉钉。但是通过“疫情封城”、取消所有快递、只能团购不允许个人网购、政府配送，限制老百姓消费。尤其是“蔬菜盲盒”的出现，将老百姓的餐桌变成牲口的食槽，给什么吃什么，给多少吃多少。以前通过粮票限制中国人消费，现在粮票改“配送”，连印刷的纸都省了。
 
-Video Clip: Wenzhi|Subtitle: Yushanxiqiaoke| Translator:Arthur| Proofread:TonyJ| Video/Script: lxymsg| Editor: Quentin| Publish:Little Bee
+心理崩溃，失去判断，对政府言听计从。去年西方国家Lockdown时期，泽连科医生多次指出，长期封锁、将人们与他们所爱的人隔离开，人们就会出现恐惧焦虑症。在这种心理状态下，非常容易被欺骗、操纵，任何能减轻恐惧、带来希望，融入原来生活的事都会被轻易接受。在西方国家长时间Lockdown之后，接着就是大面积疫苗接种，结果大家都看到了，截止到4月6日，全球完整接种人数达到58.8%。4月6日，国务院联防联控机制召开新闻发布会，要求“积极推动疫苗接种”，其中“广大的老年朋友”和“有基础病的高风险人群”是重点。更有来自微信“”网格员王双林”的信息：“利用全员核酸这个机会，把未接种疫苗的全部找出来，建立台账，不管是第一针没接种的还是第二、第三针没接种的。”新一轮大屠杀开始了。
+
+打土豪分田地，实现财富掠夺。郭文贵先生在今年1月12日大直播中说，西安封城，列出30个企业，120家所谓管制企业，通过整治、停业、抓捕，将这些企业主的财富全部没收。接下来是天津，大概200家进入共享财富第一阶段，然后到江浙去。三个月前郭先生的“预言”如今都成为现实。以“隔离”的名义将人送到方舱，以病毒死亡的名义将人弄死，放进气化炉里，然后财富洗劫一空，死无对证。
+
+军管背后是中共权力斗争白热化。4月3日中国军网发出一条消息《军队派出卫勤力量支援上海市疫情防控工作》，随后众多市民拍下解放军进上海的视频，尽管中共官方一再辟谣，不过只要中共辟谣，那一定是正在或者即将发生的事。军队入驻，当然不会用装甲车轰病毒，轰老百姓吗？说实话，上海人暂时还没有上街抗议的血性。况且想让军队杀人，换上防护服，装成大白就行，这一勾当，在香港已经实施过。所以军队进驻，是内斗需要。众所周知，上海是江派老巢，习江斗拿下上海，就相当于国共内战拿下锦州，未来还有什么城市拿不下？深圳也封了，广州也通报查出六个阳性，为封城做铺垫，阳性的都是江王地盘。
+
+开篇提到的上海预计5月18日全面解封，恐怕未必是病毒清零的时间，而是习近平政敌清零的时间。
+
+经济、权力、财富集一体的上海，不幸凑齐了所有因素，成为斗争首发地。它不疯魔，不成戏。
+
+*编辑：云彩*
+
+*发稿：云彩*
+
+
+
+
 
  
 

@@ -2,29 +2,30 @@
 ---
 
 
-## 上海放松封城政策 沪京高铁票抢售一空
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2333152/)
+## 俄乌战争｜乌克兰证实俄军在马里乌波尔地区使用化学武器
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333162/)
 
-作者：香草山教育部-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-综合媒体4月12日报道，中共上海市日前终于放松了对当地部分居民的管控措施，部分居民在两周多以来首次走出家门。同时，据中共铁路官方网站12306显示，本周上海直达北京、杭州、南京等多地的高铁票目前已经售罄。
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜烏克蘭證實俄軍在馬里烏波爾地區使用化學武器.jpg)
 
-据了解，上海市近日来已被中共病毒攻陷，日单增阳性感染者已连续保持在2万人以上，疫情形势严峻程度已超过2020年的武汉封城时期。然而，上海当局却在本周一发布消息称，当地的7000多个住宅单位在14天内没有报告新感染病例后被归类为低风险地区，部分市民于周二被允许离开他们的住所。消息发出当日，上海到达包括北京在内的多个城市的火车票随即被销售一空，上海疫情溢出风险亦随之飙升。
-
-此前，郭文贵先生曾在盖特中警告称，继上海之后，北京将成为下一个因疫情被封锁的重点城市。中共当局将借助疫情对北京、大连、福建等多座城市继续进行封城、断粮的压力测试，使中共国民众在未来长期挣扎在维生的红线上，无暇顾及国内的疫苗灾难和经济危机。中共将借防疫之手来实现自己对中共国民的绝对统治和缩减人口的邪恶目的。
-
-参考链接：[https://www.reuters.com/world/asia-pacific/shanghai-lets-some-residents-leave-home-cautiously-eases-covid-curbs-2022-04-12/ http://travel.china.com.cn/txt/2022-04/07/content\_78152007.html](https://www.reuters.com/world/asia-pacific/shanghai-lets-some-residents-leave-home-cautiously-eases-covid-curbs-2022-04-12/%20%20http://travel.china.com.cn/txt/2022-04/07/content_78152007.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+乌克兰媒体12日引述守军发出的报告指出，俄军使用无人机对被包围在钢铁厂范围内的亚速营（Azov）部队投放有毒物质，伤者出现呼吸困难及神经系统失常症状，怀疑是化学武器。
+
+美国国防部新闻秘书约翰·科比表示，五角大楼正在密切关注此事，如经证实，这将是俄军首度对乌克兰动用化学武器，代表俄乌冲突的重大升级，并对北约的行动构成直接挑战。
+
+乌克兰总统泽连斯基（Volodymyr Zelensky）11日深夜发表讲话，证实俄军威胁将在马里乌波尔（Mariupol）地区使用化学武器。马里乌波尔内的亚速营（Azov）部队被包围在城内的钢铁厂，情况危在旦夕，惟守军重申不会投降将死守至最后。
+
+美国官员过去几天一直对外警告，俄军极有可能会继续他们的“暴行”，加倍袭击乌克兰东部地区，并作出类似叙利亚内战期间使用化学武器的野蛮行为。周一，普京任命在叙利亚立下战功，外号“叙利亚屠夫”的冷血战将德沃尔尼科夫全权指挥对乌克兰的侵略行动，对此，新中国联邦发起人郭文贵先生担心，乌克兰恐怕会迎来一场毁灭性攻击。
+
+來源｜[CNBC](https://www.cnbc.com/2022/04/11/pentagon-monitoring-reports-of-possible-russian-chemical-weapons-attack-in-mariupol.html)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3455161-russias-chemical-attack-on-mariupol-three-persons-affected.html)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

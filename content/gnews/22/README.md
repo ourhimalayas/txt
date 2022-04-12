@@ -2,33 +2,50 @@
 ---
 
 
-## Coinbase暂停印度UPI支付方式，合规性遭质疑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333115/)
+## COVID-19疫苗副作用集萃（2022.4.12）打完康希诺后副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333125/)
 
-#### 翻译/编辑：小红帽
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Coinbase_india_launch_radhika_large_1649666367927.jpg)图片来源：Digit News
+#### 整理：gardeniahu
+编辑：gardeniahu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-19.png)图片来源：雅典娜设计组(614)
 
 
-根据COINGEEK4月11日报道，“我们不知道有任何使用UPI的加密交换。”印度国家支付公司（NPCI）就Coinbase在印度推出全方位交易业务数小时后发表了这一声明。NPCI是管理印度统一支付接口（UPI）的实体。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-Coinbase在过去六个月里一直在印度大量招兵买马，尽管印度政府在2022年3月29日宣布了“严格的”数字货币税收规定。综合来看，这并没有为印度的数字货币投资者描绘出美好的前景。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-“我们看到了它的到来，”BSV 区块链协会的Kapil Jain告诉 CoinGeek。“在过去的六个月里，Coinbase一直在大量招聘人员。合规性将是印度的一大亮点。Coinbase将无法逃避。数字货币主要用于绕过法律限制或替代洗钱网络。最近由于反洗钱规则，许多非营利组织的资金被切断。 WazirX，币安 (Binance) 已经受到税收突击和审查。”
+原文作者：许予
 
-Coinbase首席执行官兼联合创始人Brian Armstrong最近宣布，已经向印度初创企业投资了1.5亿美元，并将于2022年在印度雇用1000名员工。Coinbase已经是印度两家领先数字货币交易所（CoinSwitch Kuber和CoinDCX）的主要投资者。据称，Coinbase几周前就开始测试UPI支付，并于4月7日在印度举行的首次活动中宣布正式推出。
+**疫情|新冠疫苗副作用     打完康希诺后副作用**
 
-周日，这家总部位于美国的交易所宣布，在印度推出交易服务不到四天后，已经暂时禁止通过UPI购买数字货币。根据Coinbase的声明，“暂时无法使用该支付方式进行购买”，尽管该平台继续允许通过即时支付服务出售代币。
+#新冠疫苗 #康希诺疫苗 我真的会谢，家人们。打完疫苗第二天，头疼疼了一天，轻微发烧，下午耳朵疼，之后累的不行，睡了半小时之后，好了点。第三天大姨妈直接提前了，而且脸上长了一片点点而且还痒。无语了，我能确定不是我用的护肤品的问题。我的那套水乳都用了2，3套了。脸上一点问题都没有。打个疫苗给我整成这样。
 
-资料来源：[Coinbase suspends support for UPI payments in India amid regulatory heat](http://NBASEcoingeek.com/coinbase-suspends-support-for-upi-payments-in-india-amid-regulatory-heat/)
+发布于04.10
 
-发布：*wenly*
+精选评论
+
+你与时光皆薄凉回复：我也谢了，8号打的第三针，当天没啥事，就是胳膊疼，9号半夜开始身上局部痒，10号一天全身痒，一晚上没睡好，半夜头痛，眼睛疼……我感觉我快要死了。
+
+初遇回复：我们新冠kx疫苗后确诊急性髓系白血病。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-26.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-7.png)图片来源：小红书
+
+
+参考链接：[打完康希诺后副作用](https://www.xiaohongshu.com/discovery/item/625286f5000000000c03157c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649658227)
+
+发布*：wenly*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

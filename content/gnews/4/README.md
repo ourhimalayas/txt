@@ -2,32 +2,34 @@
 ---
 
 
-## 日本年轻人疫苗第3次接种率为20%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2333237/)
+## 驻上海美领馆从授权到命令美国公民撤离上海
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333256/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-近日，日本政府首次公布全国新冠疫苗第3次接种率情况，在按年龄统计,70多岁超过80%,而20多岁和30多岁只占20%,越年轻接种率越低。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Consulate-Main-building-1-1-1140x684-1.jpg)
+当地时间4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，4月11日，美国政府将措辞从授权撤离改为命令撤离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-91.jpg)图片来源
+除了撤离在上海美领馆的美国公民，美国政府还要求旅行者慎重考虑前往中共国旅行。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。在4月11日美国领事馆的官网页面详细历数前往中共国旅行即将面临的严重灾难，中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查，威胁家人、甚至在大外宣上指责美国公民挑起骚乱从而煽动网暴。美领馆严重提示旅行者，若要前往中共国以及香港，注意事项长达15条，尤其警告美国公民不能随意利用言论自由，小心附近的警察、周围的环境，保持低调等等。
 
-根据政府11日公布的最新疫苗接种记录系统数据,国内第3次接种者为5754万7225人,占总人口的45.4%。
+这些注意事项的潜在含义可能是，请禁止前往中共国旅行。
 
-各个年代的全国接种率也首次公布, 最高的是80岁以上的88.4% 70～79岁是86% 65～69岁是77.8%,老年人相对较高。 60～64岁是66.7%, 50～59岁的51.3%, 40～49岁的33.8%。 30～39岁的25.9%, 20～29岁是24%, 12～19岁是5.4%,凸显了年轻一代的低接种率。
+reference：
 
-根据厚生劳动省的说法,截至本月5日为止1周的全国新感染者中,20多岁占最多的18%,国家决定在自治体的接种会场承担大学生接种的费用等,促进年轻人接种。
+[https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html)
 
-信息来源：[ワクチン3回目接種率 20代と30代は20％台](https://www3.nhk.or.jp/news/html/20220411/k10013577711000.html)
+撰稿、发布：骄子
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+* * *
 
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
