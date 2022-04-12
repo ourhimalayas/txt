@@ -2,60 +2,28 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第9天登榜4国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2334530/)
+## 中共造新词“解封但不能出门” 网友骂声一片
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2334850/)
 
-4/12/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第9天iTunes打榜记录：
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-* * *
+4月10日，中共上海某社区发布解封告知书声称，疫情趋缓，即日解封，但要求居民足不出户，自相矛盾，引来网友骂声一片。
 
-[【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-5.jpg)（图片来源：网络）
 
-* * *
+据《阿波罗新闻网》报导，上海梅陇镇某社区于10日向居民发布了一封解封告知书，声称疫情趋缓，即日正式解封，然而告知书中却要求居民按规定足不出户，继续配合做大规模的核酸检测，自相矛盾，让人看不懂究竟是可不可以外出。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+报导称，该告知书一公布便引起网友激烈讨论，纷纷留言吐槽，“看懂啦，上半身解封了，下半身还没解封，足不出户，只要把腿砍掉就能爬出去了”、“足（脚）不能出，难道要用飞的？”。甚至有网友直接点名中共，“共产党又造词了，足不出户的解封”，“希望上海政府能用人话解释一下，这是什么意思！”
 
+中共上海自3月28日变相封城以来，至今已有16天，并规定在此期间所有居民不能走出家门，但却不解决民生问题，造成食品药品极度短缺，民怨四起。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+参考链接：
+1. [https://www.aboluowang.com/2022/0411/1733593.html](https://www.aboluowang.com/2022/0411/1733593.html) 
+2. [https://gnews.org/zh-hans/2304753/](https://gnews.org/zh-hans/2304753/)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-
-
-[【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑：海星
+总编：老孙
+校对发布：文曦
 
  
 

@@ -2,39 +2,31 @@
 ---
 
 
-## 莫里森回击普京的入境禁令，声称制裁是“荣誉勋章”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2334524/)
+## 有声｜欧盟正在起草禁运俄罗斯石油的制裁方案
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2334845/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-翻译：li yan li
-编辑：文泓
+**2022-04-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/412-1-scaled.jpg)
+[路透社](https://www.reuters.com/business/energy/russian-oil-embargo-could-be-part-next-eu-sanctions-package-ministers-say-2022-04-11/)4月11日报道，周一，爱尔兰、立陶宛和荷兰的外交部长表示，欧盟正在起草对俄罗斯实施石油禁运的提案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1432.png)图片来源：Republic World & 雅典娜设计组
+欧盟最高外交官何塞普·博雷尔表示，在卢森堡举行的许多部长级会议都支持对俄罗斯石油进口实施制裁。
 
+爱尔兰外交部长西蒙·科文尼在谈到欧盟委员会时说：现在正在努力确保石油成为下一个制裁方案的一部分。以此向俄罗斯施压，要求其停止炮击乌克兰城市。
 
-4月11日，据澳大利亚新闻报道，总理斯科特·莫里森对莫斯科禁止他和227名澳大利亚领导人进入俄罗斯的入境禁令的制裁作出回应，称制裁是一种“荣誉勋章”。
+由于自入侵以来俄罗斯军队杀害平民，欧盟上周批准了对俄罗斯的第五轮制裁，其中包括停止进口俄罗斯煤炭。
 
-莫里森先生是俄罗斯外交部周四发布的禁止入境名单上的228名澳大利亚领导人之一，这是对莫里森先生最近对俄罗斯实施制裁的直接回应。
+欧盟委员会主席乌尔苏拉·冯德莱恩 4 月 5 日表示，正在考虑额外的对俄制裁措施，包括对俄罗斯石油征收关税，或禁止进口某些石油产品。
 
-周二，莫里森先生在新闻发布会上谈到了制裁问题。
+美国和英国已经禁止俄罗斯石油，希望以此切断莫斯科的重要收入来源。
 
-他说：“制裁是澳大利亚为自由而站起来的荣誉勋章，我很高兴把这作为为澳大利亚人站出来的荣誉勋章。”
+（秘翻新闻 清风先生 编译报道）
 
-同日，媒体爆出俄罗斯在入侵乌克兰的过程中进行了化学战。
+发布 : 文橙
 
-外交部长玛丽斯·佩恩说，俄罗斯的这种行为是对国际法的进一步全面违反，进一步表明普京和俄罗斯绝对违反了每一项价值观。
-
-新闻链接：[Prime Minister Scott Morrison hits back at Vladimir Putin’s entry ban claiming sanction is a ‘badge of honour’ | Sky News Australia](https://www.skynews.com.au/australia-news/prime-minister-scott-morrison-hits-back-at-vladimir-putins-entry-ban-claiming-sanction-is-a-badge-of-honour/news-story/31022fbf25c32f82f2d7180d5b0d46dd)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

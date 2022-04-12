@@ -2,31 +2,42 @@
 ---
 
 
-## 中共内应在台湾妈祖绕境活动中故意滋事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2329420/)
+## 乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331754/)
 
-作者：纽约香草山农场医疗部 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月9日晚上，台湾统促党总裁张安乐，在台湾妈祖绕境活动中，故意聚众制造事端，与警方发生冲突。当场有现行犯6人被警方逮捕。警方在10日传唤在场领导指挥的张安乐。
+翻译：多伦多蓝莲花-灭共文明
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20_025119753586.jpeg)林明佑翻攝
+编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》基辅4月11日报道，**乌克兰周一表示，在俄罗斯对东南部城市马里乌波尔的攻击中，可能有数万人被杀，同时乌克兰权利监察员指责俄罗斯军队在该地区实施酷刑和处决。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/download2-e1649721920438.jpg)2022年4月8日，在乌克兰基辅地区的Borodyanka，77岁的Mariya哭了，她的女儿和女婿死在被俄罗斯炮击摧毁的建筑物的废墟下。（图片来源：路透社）
+路透社已证实马里乌波尔遭到广泛破坏，该城市位于俄罗斯吞并的克里米亚和由俄罗斯支持的分离主义分子控制的乌克兰东部地区之间。
 
-张安乐是台湾主要帮派竹联帮的创始人之一。近年，张等人接受中共的收买。张安乐在2019年底，曾自称是 “中共同路人” 。在2021年1月，他叫嚣将成立“红色队伍”在台湾起义，毫不掩饰其中共内应的身份。
+**如果数字得到证实，这将是迄今为止乌克兰一个地方报告的最高死亡人数，**那里的城市、城镇和村庄都受到了无情的轰炸，包括平民在内的尸体在街上随处可见。
 
-针对目前法律的漏洞，4月5日，民进党立委邱志伟、赖瑞隆分别就《反渗透法》与《组织犯罪防制条例》提案修法。建议对与境外敌对势力合作，影响国家选举的政党，终止其政党运作，直接交由宪法法庭审理，严惩触犯者。确保国家宪政秩序不受干预，避免危及国家安定。
+**乌克兰总统泽伦斯基在向韩国议员发表视频讲话时表示，马里乌波尔已被摧毁，数万人死亡，但即便如此，俄罗斯也没有停止进攻。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/download1.jpg)2022年4月9日，在乌克兰切尔尼戈夫，62岁的蒂托娃走在被俄罗斯炮击摧毁的房子（图片来源：路透社）
+**马里乌波尔市市长的助手彼得罗-安德里申科**（Petro Andryushchenko）周一在Telegram上说，**俄罗斯军队放慢了出发前的检查**。他说，大约有1万人在等待俄罗斯军队的检查。**俄罗斯不允许军事人员与平民疏散人员一起离开。**
 
-参考链接：
-1.[張安樂率人接大甲媽鑾轎爆衝突 警方將傳喚說明](https://www.cna.com.tw/news/asoc/202204100004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2.[遏止統促黨亂象 立委拚修法補漏](https://news.ltn.com.tw/news/politics/paper/1509871)
-3.[張安樂談組「紅色隊伍」挨告國安法 今開庭前大談「被洗腦的中國人」](https://news.ltn.com.tw/news/politics/breakingnews/3483270)
+乌克兰人权监察员柳德米拉·杰尼索娃援引马里乌波尔市政府的数据称，**马里乌波尔有3.3万居民被驱逐到俄罗斯或乌克兰东部由俄罗斯支持的分裂分子控制的地区。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+杰尼索娃在Telegram上发帖说，有目击者报告称，**俄罗斯国民警卫队和卡德罗夫车臣部队正在进行非法逮捕，对被拘留者实施酷刑，并以亲乌克兰的立场为理由而将他们处决。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/SJYJ6MSHBFNSRDKSH4HKXYZS7Q.jpg)2022年4月7日，乌克兰马里乌波尔，亲俄军队士兵在乌克兰-俄罗斯冲突中检查街道。（图片来源：路透社）
+**乌克兰副总理伊琳娜·韦列舒克（**Iryna Vereshchuk）告诉路透社，**俄罗斯军队设置的马里乌波尔至扎波罗热之间的走廊上的检查站数量，**从3个增加到15个，**使得撤离变慢。**
 
-编辑：Jack Li文阳
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+韦列舒克在Telegram上说，马里乌波尔是周一与俄罗斯商定的九条**人道主义走廊**之一，用于从被围困的东部地区疏散人员，但其走廊**只对私家车开放，不允许巴士离开。**
+
+**乌克兰政府表示，俄罗斯军队正在集结，准备对包括马里乌波尔在内的东部地区发动新的攻势，**那里的人们已经连续数周没有水、食物和能源供应。
+
+新闻来源链接：
+[Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses | Reuters](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

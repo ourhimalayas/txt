@@ -2,38 +2,36 @@
 ---
 
 
-## 上海市委书记视察小区被市民呛声
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2333295/)
+## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
 
-**撰稿：日本东京方舟农场  子辰**
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
 
-近期，上海的封控措施，令民众怨声载道，上海市委书记李强视察小区时，市民纷纷反应物资供应问题，更被现场市民愤怒指责。
+本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-17.jpeg)（图片来自大纪元）
 
-据中共党媒《人民日报》海外网“海科新闻”官微报导，李强视察小区主要是检查基本物资供应保障和封闭小区管理情况等。
 
-据悉，李强是在预先安排的小区开始视察，有群众演员配合。现场群众演员在聊天时披露，“我被派去演戏，给他表演居民的美好生活。等他来了我要下去拿个快递。表现居民在小区内什么自由。”安排好的小区顺利视察快结束时，李强来了句，“对面小区怎么样？我们去看看”，本来没打算去对面小区，结果被打脸。
+> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
+> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
 
-李强来到对面小区后，网传视频显示，李强隔着小区大门的围栏，与一名坐轮椅的白发老妇及另外两名妇女交谈，坐轮椅的老人疑似大声指责。有市民隔空向李强喊话：“民生问题怎么办？”
 
-还有牵狗的女士冲向李强，门口的保安试图拦住，但其身后的小区的民众纷纷表示，“讲两句话有什么不可以？”“让阿姨讲，让阿姨讲。”保安没办法，只能让这名女士走到李强跟前，李强身边的陪同人员，也伸出手试图阻拦。但该女士最终还是跟李强反映了一些情况。
 
-据现场目击者在微信群披露，那位坐轮椅的白发老妇跟李强投诉，“两百来户人没有拿到物资，就给了两根胡萝卜、2个土豆及2个洋葱。”那个牵狗女士是直接开骂指责。
+未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
 
-此前，孙春兰视察上海小区时，也遭到市民喊楼，“我们没有菜，我们要被饿死了”。
+外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
 
-目前，上海封城老百姓怨声载道，生活物资严重匮乏。据浦西当地居民向媒体表示，“现在的所谓防疫封控，只是象征性走走流程，不讲实际，大家都在瞎弄。”
+此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
 
-这位居民还表示，所谓的国家给封控的民众提供的物资，都被地方官员出售了。他说，“前段时间那么多蔬菜为何浪费，就是不让你进来，就是他们要垄断自己销售渠道。里面还有提成，百分之十至百分之十五。”
+本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
 
-他还表示，浦东的外地官员多，有些跟领导有关系的去浦东当干部，做老大，但下面这一帮也不买账。浦东疫情瞒报，使得整个疫情的判断出现问题。据悉目前上海三天时间里，已连续通报处理了6名基层官员。
+來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
 
-参考链接： 
-[https://www.epochtimes.com/gb/22/4/11/n13709408.htm](https://www.epochtimes.com/gb/22/4/11/n13709408.htm)
+* * *
 
-总编：老孙
-校对发布：文曦
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

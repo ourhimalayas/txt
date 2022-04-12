@@ -2,29 +2,30 @@
 ---
 
 
-## 人才流失是俄罗斯最重要的资产流失
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2334029/)
+## 郭先生即将推出两首新歌
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334116/)
 
-编译：波士顿五月花—-思澈
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/23-3.jpg)
+4月10日的大直播中，郭先生透露，有两首新歌正在创作当中。
 
-自俄罗斯入侵乌克兰以来大量受过高等教育的俄罗斯人纷纷逃离家园对俄罗斯的经济产生破坏性的后果，克里姆林宫发出紧急措施对IT从业人员暂停征兵。
+其中一首歌是战友创作，该战友是在中共国内深受大众喜爱的歌手。郭先生初次试唱该歌曲就让战友惊讶了，毕竟一个不专业的歌手能够有如此表现，如郭先生所言，自己都觉得不可思议。歌曲尚在录制中，战友尽情期待。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/54DC348E-18F2-40C4-A2D7-D42B8FE55A0D.jpeg)
+另外一首歌是好莱坞一位有名的作词人，他愿意为新中国联邦创作一首歌曲。歌曲的名字叫做《one hundred percent》，这是一首和以往完全不同的歌曲。歌词来源于郭先生以往的爆料，比如有些句子是这样的“中共病毒来了吗？one hundred percent；香港沦陷了吗，one hundred percent；普京打乌克兰了吗，one hundred percent“，足见该首歌曲体现的是爆料革命唯真不破的内核。该作词人提出要与郭先生单方面联系，排练的时候占用郭先生两个小时，在现场与一千人的队伍去排练，伴唱人员目前都是好莱坞最火的明星。该作词人还透露未来会与战友合作。
 
-自普京对乌克兰发动侵略战争以来，大量俄罗斯人逃离家园，他们中有很多是受过高等教育年轻富有的金融从业人员、记者，IT专家和技术人员，这些逃离的俄罗斯人具有独立思考能力和创新精神不被普京的政治宣传所左右。
+撰稿、发布：骄子
 
-从长远来看，受过高等教育的俄罗斯人的大量出逃可能对该国经济造成严重后果。因为他们不仅随身携带金钱，而且最重要的是他们的技能，人力资本是俄罗斯经济增长的最重要因素之一——它推动创新和创造力。
+* * *
 
-经济学家认为，克里姆林宫采取的救助措施对IT行业的从业人员暂停征兵不会挽留住人才的，因为普京的侵略战争和政策不会让人才流失停止。
+欢迎订阅我们的GNews账号：
 
-简评：人才就是财富！
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-素材来源：[https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html](https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html)
-
-*发布：思澈*
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

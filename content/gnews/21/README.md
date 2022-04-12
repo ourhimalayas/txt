@@ -2,29 +2,25 @@
 ---
 
 
-## 莫德纳发现污染后召回764,900支新冠疫苗针剂
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2334374/)
+## 日本宣布对俄罗斯进行新一轮经济制裁
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2334459/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-12-205148.jpg)
-美国制药和生物技术公司Moderna Inc.周五（4月9日）在欧洲发布了一项涉及76.49万剂COVID-19疫苗 “Spikevax “的召回计划，因为在一个小瓶中发现了污染物。
+撰稿：追着曙光跑
 
-2021年9月1日，日本武田药业公司和莫德纳公司都报告了小瓶中的微粒后，暂停了三个批次的Spikevax疫苗，包含163000个小瓶，相当于163万剂。罗维（ROVI）是疫苗有效成分的生产企业，他们发现这些颗粒是不锈钢的，”与生产线上安装的两块金属之间的摩擦有关，因为在生产线的转换过程中，设置不正确”。
+据日本雅虎新闻4月12日的报道，日本政府12日宣布，冻结包括普京的两个女儿在内的398个人和28个团体的资产，作为对俄罗斯的新一轮经济制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-12-at-10.30.18-PM.jpeg)图片来源：网络
+由此，岸田首相与已宣布采取同样措施的七国集团（G7）统一步调。
 
-莫德纳疫苗在2°C和8°C（36°F和46°F）之间储存，最长可达30天。
+此外，从4月19日起，禁止进口包括伏特加等酒精饮料、木材、机械类等。这是针对俄罗斯的一系列制裁措施首次实施进口禁令。
 
-本人认为疫苗在高温度时会显现这些污染物，因为很多专家拿了没用完的疫苗瓶子放在显微镜下发现了污染物。这也验证了疫苗不是单纯的普通疫苗。
+普京的长女玛丽亚和次女卡捷琳娜，以及外长拉夫罗夫的妻子也包括在制裁对象里。通过将制裁扩展到政府核心的家庭来防止“漏洞”。
 
-远离毒疫苗，尽量少出门接触人群，囤粮囤食物囤药，准备好疫苗的次生灾害。
+日本政府还决定冻结两家银行，分别是俄罗斯最大的银行俄联邦储蓄银行和最大的私人商业银行阿尔法银行。 从5月12日起，禁止新的对俄新投资。
 
-**新闻来源**：[https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found\_4394113.html](https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found_4394113.html)
+上传：追着曙光跑
 
-
-
-> [Japan: 1.6 million Moderna vaccine doses recalled; Novavax replacement deal signed](https://www.pharmaceutical-technology.com/comment/moderna-vaccine-recalled-novovax-replacement/)
-
-
-
+信息来源：[プーチン氏娘の資産凍結　ロシア産ウオッカ、19日から禁輸　政府](https://news.yahoo.co.jp/articles/42bb928128b0ac5b5fcf37b457c40dea5787771f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

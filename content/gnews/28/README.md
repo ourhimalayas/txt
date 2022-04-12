@@ -2,24 +2,28 @@
 ---
 
 
-## 视频|郭先生谈战友在乌克兰前线救援的巨大意义
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2334273/)
+## 莫德纳发现污染后召回764,900支新冠疫苗针剂
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2334374/)
 
-制作：香草山视频部
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-12-205148.jpg)
+美国制药和生物技术公司Moderna Inc.周五（4月9日）在欧洲发布了一项涉及76.49万剂COVID-19疫苗 “Spikevax “的召回计划，因为在一个小瓶中发现了污染物。
 
-在4月10日的大直播中,郭先生揭示了新中国联邦在梅迪卡进行的人道救援，所带来的巨大意义。
+2021年9月1日，日本武田药业公司和莫德纳公司都报告了小瓶中的微粒后，暂停了三个批次的Spikevax疫苗，包含163000个小瓶，相当于163万剂。罗维（ROVI）是疫苗有效成分的生产企业，他们发现这些颗粒是不锈钢的，”与生产线上安装的两块金属之间的摩擦有关，因为在生产线的转换过程中，设置不正确”。
 
-郭先生说，在日本政府会议上，有官员播放了战友参与救援的视频，并表示只要战友们坚持到乌克兰危机结束，一定会有许多国家承认新中国联邦的地位。甚至，有欧洲、以色列国家政府表示，将敦促联合国承认新中国联邦的地位，或者这些国家会独立承认。
+莫德纳疫苗在2°C和8°C（36°F和46°F）之间储存，最长可达30天。
 
-郭先生引述某国官员的话称，这件事的意义不亚于乌克兰反抗俄罗斯侵略的意义。这让很多国家开始思考，为什么有中国人敢于站出来，说中国共产党不能代表中国人；以及告诉世界，我们反对共产党背后参与支持俄罗斯这场对乌克兰的非正义战争之中。同时，前线救援的种种事迹，让各国理解到了将中共与中国人分开的重大意义。
+本人认为疫苗在高温度时会显现这些污染物，因为很多专家拿了没用完的疫苗瓶子放在显微镜下发现了污染物。这也验证了疫苗不是单纯的普通疫苗。
 
-郭先生最后说，前线的每一条报道、视频、每一个故事，都是射向中共的导弹，让中共惶惶不可终日。新中国联邦在前线所做的事，都是为了14亿墙内同胞和海外华人的安全。并且，还让这些国家明白，只需消灭操纵14亿中国人中的坏人就足以解决问题。
+远离毒疫苗，尽量少出门接触人群，囤粮囤食物囤药，准备好疫苗的次生灾害。
 
-发稿：Daxia
+**新闻来源**：[https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found\_4394113.html](https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found_4394113.html)
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+
+> [Japan: 1.6 million Moderna vaccine doses recalled; Novavax replacement deal signed](https://www.pharmaceutical-technology.com/comment/moderna-vaccine-recalled-novovax-replacement/)
+
+
 
  
 

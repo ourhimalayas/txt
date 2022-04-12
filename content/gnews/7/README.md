@@ -2,31 +2,37 @@
 ---
 
 
-## 堪培拉女士奥康纳获得澳洲第一位生物识别摩托车手资格
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2334632/)
+## 有声|日本媒体报道中国老百姓对俄乌战争的态度
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2334891/)
 
-翻译/编辑：Rianna
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月8～9日，有日本媒体密集盘点了目前中共防火墙内的老百姓对俄罗斯侵略乌克兰的看法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649769393253.jpg)图片来源：www.abc.net.au
+不幸的是，在北京街头接受采访的大部分人，都按照中共洗脑的说辞，称乌克兰负主要责任，甚至有人称是美国挑起的战争。在采访中，日媒记者多次从乌克兰的弱势地位，以及乌克兰人道危机等角度，希望能引起被采访者的共鸣，但最终无功而返。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-6.jpg)
+分析人士指出，正如郭文贵先生一直强调的，即使中国共产党被消灭了，要清除中国人身上被中共埋下的毒，也需要相当长的时间。中国人需要知善恶、辨真假、有信仰，这就是爆料革命坚持唯真不破，以实际行动唤醒墙内同胞的原因所在。
 
 
-贝琳达·奥康纳 (Belinda O’Connor) 一直想骑摩托车，自从她父亲在她5岁生日时送给她一辆 BMX 自行车后，她的父亲想鼓励她突破自己的界限并体验世界，而不是让视力障碍拖慢她的脚步。奥康纳女士患有一种叫做色盲症的罕见疾病，它会导致色盲以及对光线和眩光敏感。
 
-小时候奥康纳女士开始骑马，当她进入职场时，她开始骑电动自行车上下班，戴着红色太阳镜来帮助减少眩光。但当她发现澳大利亚允许进行生物识别许可驾驶时，她变得“痴迷并决心”成为一名候选人。在2016 年她获得了驾驶执照，并很快实现她骑摩托车的梦想。 “我做了一些调查，令人惊讶的是，我在美国发现了很多其他的生物识别许可摩托车手，”她说。 “我发送电子邮件并询问他们如何调整生物光学以适合他们的头盔，他们如何调整他们的摩托车以及他们使用什么样的技术自学，并将其整合到我的学习中。” 她多年的研究和规划得到了回报，2020 年，奥康纳女士成为澳大利亚第一位获得执照的生物识别许可摩托车手。
+文字版原文：[日本媒体报道中国老百姓对俄乌战争的态度](https://gnews.org/zh-hans/2326655/)
 
-为了骑摩托车，奥康纳女士使用了一种叫做双光望远镜的装置，它有助于颜色校正和改善远距离视力，除了生物识别检测，她还戴着红色眼镜。虽然奥康纳女士克服了许多障碍成为一名摩托车手，但她说一个挑战仍然存在——其他人的偏见认为视力受损的骑手是路上的风险。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-此后，奥康纳女士成为澳大利亚其他视力受损驾驶员的先驱，最近在南澳大利亚，另一位驾驶员通过了他们的生物识别授权摩托车测试。 虽然不是每个中心视力丧失的人都适合进行生物识别授权，但奥康纳女士鼓励那些有资格的人尝试。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻来源：[奥康纳女士是澳大利亚第一位生物识别许可摩托车手](https://www.abc.net.au/news/2022-04-12/canberra-woman-australias-first-bioptic-motorcyclist/100982954)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-发布：tianzhihuan
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

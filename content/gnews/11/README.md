@@ -2,42 +2,37 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
+## 有声|“为乌克兰挺身而出” 筹款超百亿欧元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2334844/)
 
-整理：枳实
-美工：精灵蓝
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月9日，欧盟委员会主席乌苏拉·冯德莱恩在华沙表示，一项名为“为乌克兰挺身而出”的乌克兰难民全球认捐活动，已筹集到 101 亿欧元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-57.jpg)
+组织者说，该活动由欧盟和加拿大总理特鲁多召集，旨在为乌克兰的国内流离失所者和饱受战争蹂躏的国家的难民筹集资金。该活动由与贫困作斗争的全球公民（Global Citizen）运动合作，包括周五的社交媒体集会和周六的认捐会议。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+冯德莱恩补充说，一旦炸弹停止下落，将帮助乌克兰人民重建他们的国家，继续为乌克兰挺身而出。他还呼吁，西方对俄罗斯银行实施更多制裁，并停止购买俄罗斯石油。
 
 
-雅典娜疫情更新（2022年 4月11日）
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
-[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
+文字版原文：[“为乌克兰挺身而出” 筹款超百亿欧元](https://gnews.org/zh-hans/2329042/)
 
-数据来源：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[covidlive.com.au](https://covidlive.com.au/)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

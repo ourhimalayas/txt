@@ -2,34 +2,25 @@
 ---
 
 
-## 中日财经爆┃加密货币基金创1月以来最大流出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332178/)
+## 俄乌战争｜奥地利总理对化解冲突感悲观 称普京已进入“战争逻辑”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333194/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃加密货币基金创1月以来最大流出.png)
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜奧地利總理對化解衝突感悲觀-稱普京已進入「戰爭邏輯」.jpg)
 
-上周 ，是加密货币基金自1 月以来最大的净流出量。
+[點擊關注官方蓋特](https://www.gettr.com/user/hktwfrontline)
 
-根据 CoinShares（硬币股）4月11日发布的一份报告，截至4月8日的一周内，加密货币基金已从比特币（BTC）和以太坊（ETH）基金中撤出。这是连续二周出现净流入后的今年第二大净流出，达1.34 亿美元。
 
-大部分净流出为比特币基金，净流出1.318亿美元。同时，投资比特币下跌的短期投资产品净流入最大，达到200万美元。
+奥地利总理内哈默（Karl Nehammer）11日与俄罗斯总统普京（Vladimir Putin）进行会谈后坦言，普京的“战争逻辑”令人感到悲观，并形容与普京的会谈过程非常艰难。他说，“我们不应该抱有任何幻想，普京已经进入到自己的战争逻辑中，他正在采取相应行动，他希望透过迅速的军事行动成功拿下乌克兰”。
 
-报告称“我们认为上周价格上涨可能帮助投资者获利了结”。以太坊基金也有1530万美元的净流出。
+内哈默是俄乌战事爆发以来，首位与普京面对面会晤的欧盟国家领袖。奥地利并非北约成员国，数十年来与俄罗斯保持着相当友好的外交关系，故一贯将自己设定成俄罗斯与欧洲利益分歧的调解人。内哈默透露，他觉得俄罗斯方面对与乌克兰总统泽连斯基进行直接会晤的提议几乎没有兴趣。
 
-投资于多种加密资产的多资产基金保持恢复状态，净流入500万美元。此外，Solana（SOL）基金净流入370万美元，Cardano（ADA）基金净流入100万美元，Litecoin（LTC）基金净流入60万美元。
+來源｜[卫报](https://www.theguardian.com/world/2022/apr/11/austrian-chancellor-to-tell-putin-he-has-lost-the-war-morally)
 
-信息来源：
-[暗号資産ファンド、1月以来最大の流出に──2週連続の流入から一転（CoinDesk Japan） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/52a95fd6069b40ba6ba1b5bed90a91c2684e2def)
+* * *
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
