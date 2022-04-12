@@ -2,25 +2,38 @@
 ---
 
 
-## 洛杉矶上周日举行了反对强制令集会，人们高呼“我们人民不会屈服”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333672/)
+## 台湾首次向民众发布战争生存指南
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
 
-#### 翻译/撰稿：zzballack
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
+当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2-1.jpg)图片来源：福克斯新闻
-据《网关专家》（Gateway Pundit）4月10日报道，上周日（4月10日），来自全美各地的卡车司机、消防员、执法人员、联邦雇员、劳工、学校教师、医生、护士、名人、音乐家以及数万名加州居民聚集在加州洛杉矶的大公园（Grand Park），举行了长达6个小时的“反对强制令（Defeat The Mandates）”集会活动，人们在会上高呼“我们人民不会屈服（We the People Will Not Comply）”！
+据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
 
-此次集会的目的是终结所有与新冠有关的强制令：反对疫苗强制令；反对疫苗护照；反对强行给儿童接种新冠疫苗；反对审查制度；遵守知情同意原则；承认自然免疫；让医生和病人不受干扰地做出决定。
+尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
 
-尽管加州大多数学校已经取消了口罩强制令，但洛杉矶联合学区仍继续在校园内执行口罩令，而且没有结束日期，这让洛杉矶居民和家长的失望情绪达到了沸点。这种挫折感和失望情绪也遍及了整个美国，因为在过去一年半的时间里，人们持续受到新冠限制令和疫苗强制令的困扰。
+reference：
 
-公民反对政治迫害（Citizens Against Political Persecution）组织的蒂娜·瑞安（Tina Ryan）说：“事情还远没有结束。我们不要被官员愚弄了。这些官员意识到他们把选民惹恼了，以至于可能会失去工作，所以正在撤回这些可怕的强制令。但任何稍有街头智慧的人都知道，一旦他们在11月的选举中重新获得职务，就会试图恢复这些强制令和封锁。我们必须把他们选出去，永远不要忘记他们所做的一切，我们不会忘记。”
+[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-加州州长加文·纽瑟姆（Gavin Newsom）极不受选民的欢迎，这迫使他暂时放松了口罩令。但是加州的民主党议员正在州议会推动八项极具争议性的严厉法案。这些拟议提案包括：要求所有的0至17岁儿童接种新冠疫苗，并取消任何个人或宗教豁免；允许12至17岁孩子在没有父母同意的情况下接种新冠疫苗；强迫执法官员执行公共卫生命令；把医生和外科医生分享新冠“错误信息”重新归类为不专业的行为，并予以纪律处分；加州所有雇主要求在该州工作的人必须接种新冠疫苗，包括独立承包商，不执行的公司将受到重罚。瑞安说：“这就是当你只有一个党在管理政府的四个分支部门时会发生的事情，第四部门是假新闻媒体。这等同于完全彻底的暴政和反人类罪。”
+民防手册下载地址
 
-新闻来源：[“We the People Will Not Comply!” – Thousands Join “Defeat The Mandates” Rally Against Covid-19 Mandates in LA on Sunday](https://www.thegatewaypundit.com/2022/04/__trashed-12/)
+[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
 
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

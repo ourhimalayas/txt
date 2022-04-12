@@ -2,43 +2,28 @@
 ---
 
 
-## Elon Musk决定不加入推特董事会
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
+## 【G时新闻】卑诗省政府雇员仍被疫苗护照所困
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2334296/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
-当地时间4月11日，Elon Musk决定不加入推特董事会。
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据【真北方】4月7日报道， 在加拿大各省都已逐渐取消各项疫情限制的同时，卑诗省政府却仍然对其雇员执行严厉的疫苗接种政策。 报道称，卑诗省不仅计划扩大疫苗接种范围，还解雇了那些因未接种疫苗而被迫休假的政府雇员。尽管目前医疗系统面临严重的人员短缺，但该省卫生部仍然辞退了数千名未接种的医护人员。 然而与省政府政策相悖的是，维多利亚市于4月8日取消了对市政雇员疫苗强制接种的要求，据悉其他市政府也计划效仿。同时法院对强制接种和不当解雇的诉讼也仍在继续。
 
-据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
+盖特链接：[https://www.gettr.com/post/p14r53m4192](https://www.gettr.com/post/p14r53m4192)
 
-此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
-
-据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
-
-撰稿、发布：骄子
-
-reference
-
-
-
-
-> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
-> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
-
-
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

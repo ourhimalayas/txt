@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 1:01 PM (UTC)`
+
+2022.04.12 早  新中国联邦 | 新闻访谈	 战争拯救政客政治生涯；白宫警告Putin Hike导致美通胀数据将异常升高；封城清零是城市压力测试
+![img](https://media.gettr.com/group20/origin/2022/04/12/12/a6c7f887-e13c-6e36-3280-f2d79a8313d0/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/12/2022 12:30 PM (UTC)`
 
 2022.04.12早  新中国联邦 | 新闻  
@@ -149,13 +156,6 @@
 
 Italian freelance media journalist interviewed with King and Steve from NFSC意大利自由媒体记者在Medyka采访精糧和三人行
 ![img](https://media.gettr.com/group3/origin/2022/04/10/10/2cb43596-f86b-cbfc-a4f0-00c5ae19e5ec/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/11/2022 8:44 PM (UTC)`
-
-2022.04.11  新中国联邦 | 喜健康   探讨美兰降解氧化石墨烯
-![img](https://media.gettr.com/group44/origin/2022/04/11/20/1927694c-b34a-424f-4462-d064db9cf54f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

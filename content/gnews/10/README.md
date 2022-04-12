@@ -2,24 +2,28 @@
 ---
 
 
-## 视频|北朝鲜金家会很快土崩瓦解
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2334260/)
+## 莫德纳发现污染后召回764,900支新冠疫苗针剂
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2334374/)
 
-制作：香草山视频部
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-12-205148.jpg)
+美国制药和生物技术公司Moderna Inc.周五（4月9日）在欧洲发布了一项涉及76.49万剂COVID-19疫苗 “Spikevax “的召回计划，因为在一个小瓶中发现了污染物。
 
-在4月10日的大直播中，郭先生透露，自从乌克兰勇敢地反抗了俄罗斯侵略，并且得到了西方巨大支持后，世界上所有独裁政权，包括北朝鲜的金家都感到了不可抑制的惶恐。
+2021年9月1日，日本武田药业公司和莫德纳公司都报告了小瓶中的微粒后，暂停了三个批次的Spikevax疫苗，包含163000个小瓶，相当于163万剂。罗维（ROVI）是疫苗有效成分的生产企业，他们发现这些颗粒是不锈钢的，”与生产线上安装的两块金属之间的摩擦有关，因为在生产线的转换过程中，设置不正确”。
 
-郭先生指出，金家政权就是一个建立在巨大谎言上的家族王国。并通过奴役整个北朝鲜，让全体人民挨饿受冻，养出了整个国家唯一一个肥胖的人。但在乌克兰英勇的反抗后，金正恩心里很明白，它根本无法跟美国抗衡，曾经引以为豪的核威胁，甚至在马斯克面前也只是无法使用的哑炮。
+莫德纳疫苗在2°C和8°C（36°F和46°F）之间储存，最长可达30天。
 
-特别的是北朝鲜将面临粮食危机，并且金家也和中共一样没有足够的外汇进口粮食，根本无法支撑其军队的运转。再加上星链技术和韩国新研发的通讯技术，很容易能把海外信息传播至北朝鲜境内，当饱受饥饿的老百姓知道真相时，就是金家土崩瓦解之日。
+本人认为疫苗在高温度时会显现这些污染物，因为很多专家拿了没用完的疫苗瓶子放在显微镜下发现了污染物。这也验证了疫苗不是单纯的普通疫苗。
 
-郭先生认为，今年很大的变数是北朝鲜，之后是伊朗、叙利亚、沙特，然后这个连锁反应最终将促进俄罗斯和中共的瓦解。
+远离毒疫苗，尽量少出门接触人群，囤粮囤食物囤药，准备好疫苗的次生灾害。
 
-发稿：Daxia
+**新闻来源**：[https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found\_4394113.html](https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found_4394113.html)
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+
+> [Japan: 1.6 million Moderna vaccine doses recalled; Novavax replacement deal signed](https://www.pharmaceutical-technology.com/comment/moderna-vaccine-recalled-novovax-replacement/)
+
+
 
  
 

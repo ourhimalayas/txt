@@ -2,18 +2,42 @@
 ---
 
 
-## 【粤语配音】2022年4月10日：新中国联邦不会忘记每一个付出贡献的战友
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2334357/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
 
-紐約香草山-香港部
+整理：枳实
+美工：精灵蓝
 
-当习近平和在上海和广州、吉林、郑州，开始核糖核酸进行隔离，特别当我看到他把东风导弹FK3送到塞尔维亚，更重要的事情，对美国的插屁眼儿，核糖核酸，叫美国授权撤离，再次的拒绝，这种情况下，咱们的战略就要变了。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-我很多话不能说，我再次在这里向所有的国内的战友们说一下，近期内上海、长春、广州，包括共产党的军事行动，这些机密的信息，都是你们以生命为代价给七哥的，七哥不会忘，新中国联邦不会忘，天知地知，七哥会知道，就像我跟你们每个人说的话一样，你交给七哥的信息，七哥会尽最大可能的发挥到灭共的事业上，我尽可能的分享到美国和欧洲，以及日本这些国家的政府身上，让他们提前预知共产党的这些行动，减少伤亡和伤害。
 
-你们每个人的名字，七哥都不会忘掉，也不会不告诉这些国家政府，还是那句话，任何一个为爆料革命、灭共事业付出的人，你都会有喜币，有躺平币，只要你能够离开中共国，新中国联邦只要有饭吃，你都是最优先吃的，从国内体制内和给提供过情报的战友们，你们永远排第一位，法治基金排第二位，然后才是我们GTV的老椅子，G-Club，永远不会改，即使所有G系列创造的财富，我们向上帝保证，God，还是佛祖保证，这些财富都将会属于新中国联邦的，最终都要归于新中国联邦，而且你们是永远的决定使用者和决定使用委员会的人。
+雅典娜疫情更新（2022年 4月11日）
 
-就像我们头两天的一位战友，在亚洲某国家交给我们的中共军事的，所谓在福建地区的情报，这对我们台湾和保护台湾的人太重要了，我们永远都不会忘记的，而且我们现在已经看到共产党，不是完了，共产党真的是已经彻彻底底完蛋了，我给他的时间不会超过2025年，在这之前，我们都不要犯天真的毛病，我们尽可能的减少中国少死一些无辜的同胞，共产党灭亡前，少带走一个人，和在海外不要让共产党拉仇恨，毁了我们很多海外的华人的形象，和影响海外华人的安全，更不能让世界上仇华裔，排华的事情发生。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
+[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

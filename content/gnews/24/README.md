@@ -2,38 +2,43 @@
 ---
 
 
-## 台湾首次向民众发布战争生存指南
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
+## 在与朝鲜的紧张局势中，美国航空母舰在朝鲜半岛附近部署
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2334137/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
-当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
 
-reference：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/NIQPW7GZIJJXND2WQDYF7JFWH4.jpg)
 
-[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-民防手册下载地址
+资料来源：路透社
 
-[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
+首尔，4 月 12 日（路透社）——美国海军周二表示，由于朝鲜导弹发射的紧张局势以及对其可能很快恢复核武器试验的担忧，美国海军周二表示，亚伯拉罕·林肯号航空母舰打击群正在朝鲜半岛附近海域开展行动。
 
-撰稿、发布：骄子
+“亚伯拉罕·林肯航母打击群正在与日本海上自卫队在日本海开展双边行动，”驻日本的美国第七舰队发言人海莉·西姆斯指挥官在一份声明中说。
 
-* * *
+这是自 2017 年以来，航母编队首次部署到韩国和日本之间的水域，与此同时，美国官员越来越担心朝鲜可能在未来几天内进行地下核试验。
 
-欢迎订阅我们的GNews账号：
+西姆斯说，这艘航母正在开展“例行双边行动”，以向我们的盟友和合作伙伴保证美国致力于维护自由和开放的印太地区。我们的培训通过展示我们双边伙伴关系的力量，提高了常规威慑的可信度。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+3 月 15 日，亚伯拉罕·林肯号航空母舰在黄海领导军事演习，发射了 F-35 隐形战斗机和其他喷气式飞机，美国军方称这是对朝鲜弹道导弹发射速度和规模增加的回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+上个月，朝鲜自 2017 年以来首次对洲际弹道导弹 (ICBM) 进行了全面测试。
+
+在 2017 年最后一次大规模洲际弹道导弹和核试验期间，罗纳德·里根、西奥多·罗斯福和尼米兹号航空母舰及其多舰打击群部署到日本海，在韩国也被称为东海，以展示力量。
+
+韩国候任总统的顾问在上周访问华盛顿期间举行的会谈中寻求将航空母舰、核轰炸机和潜艇等美国战略资产重新部署到朝鲜半岛。阅读更多
+
+韩国国防部表示，它知道航母编队在国际水域，但拒绝进一步置评。
+
+朝鲜此前曾批评美国的军事演习是战争的预演，并称这加剧了紧张局势。
+
+🔗 [https://www.reuters.com/world/asia-pacific/us-aircraft-carrier-deploys-off-korean-peninsula-amid-tensions-with-north-2022-04-12/](https://www.reuters.com/world/asia-pacific/us-aircraft-carrier-deploys-off-korean-peninsula-amid-tensions-with-north-2022-04-12/)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

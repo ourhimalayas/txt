@@ -2,25 +2,38 @@
 ---
 
 
-## 加拿大机构投资者增加持有数字货币
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
+## 俄军士兵性侵乌克兰婴儿引发外界震怒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2334332/)
 
-编译撰稿：加拿大温哥华扬帆农场 – 活力人生
-
-据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+作者：纽约磐石农场 – 在远方
 
 
-毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
 
-报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
 
-原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+外媒4月11日报道，近日一名25岁俄罗斯士兵，竟然做出了性侵乌克兰婴儿的兽行，并自拍影片分享给其他人观看。消息曝光后引发外界震怒，俄罗斯当局在强大的舆论压力下不得不逮捕了该士兵。
+
+据悉，这名来自俄罗斯北高加索地区的士兵名叫比奇科夫，在俄入侵乌克兰后，他所隶属的第64044部队被派往最前线作战。报道指出，比奇科夫把性侵小婴儿的过程录制下来，然后使用社交媒体传给其他人观看。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture2.jpg)
+影片中，他使用各种物体放入受害者肛门内，并有舌舔和抚摸等行为，甚至还对着镜头做出胜利手势。影片曝光后随即引发外界高度关注，俄罗斯当局在巨大的舆论压力下，不得不于4月9日逮捕了比奇科夫。
+
+该事件迅速引发网络舆论海啸，网友纷纷表示这种行为根本无法被原谅。有网友称不敢观看影片，因为光看字面叙述就让人感到心碎，更有网友表示，比奇科夫应该在地狱里被烈火烧死。
+
+参考链接：
+[俄軍士兵性侵嬰兒！自拍變態行徑分享給同袍引發外界震怒](https://news.ltn.com.tw/news/world/breakingnews/3888981)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

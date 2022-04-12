@@ -2,25 +2,23 @@
 ---
 
 
-## 加拿大增强向乌克兰提供人道救援力度
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334086/)
+## 视频|佩洛西染疫和蔡英文密接的背后
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2334275/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+制作：香草山视频部
 
-据加拿大[CTV新闻]4月9日报道，特鲁多当天在华沙举行的视频会议中宣布，将向乌克兰再提供1亿加元的人道主义援助，并承诺为前来加拿大的乌克兰难民提供更多帮助。
+4月10日大直播中，郭先生透露了美国众议院议长佩洛西突然中共疫苗病毒呈阳性，以及台湾总统蔡英文也成为密接者的背后原因。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1419.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+据郭先生了解，佩洛西刚宣布要访问台湾，中共随即发出威胁信息，若佩洛西敢去中共则肯定开打台湾。紧接着俩人有了很好的借口，一个阳性，一个成为密接者。
+其背后的原因，是美国还没准备好挑起这场战争，郭先生提到西方政治会考虑后果，美国若真是因此次访问而把台湾打烂了，后果不堪设想。但是，中共已经把美国推到了罪魁祸首的境地，中共赵立坚早前声称，美国要为这场战争付出一切代价。
 
+随着下一波乌克兰被无人机猛烈袭击，国内也完成了对上海广州等地的压力测试，以及该转出的资金都转出后，郭先生认为对台湾的入侵可能在那个时间点全面开始。
 
-据悉，目前加拿大政府对乌克兰的援助总金额已达2.45亿加元。在当天的会议中，共筹集了124亿美元针对乌克兰难民的人道主义捐款。欧盟主席对此表示，对乌克兰的援助将持续到战争之后，并帮助乌克兰人民重建家园。
+发稿：Daxia
 
-此外，尽管特鲁多还宣布将为来加拿大的乌克兰难民提供包机服务，短期补助和长达两周的酒店住宿等援助计划，但却对此前向乌克兰提供军事支援和武器装备的承诺避而不谈。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
