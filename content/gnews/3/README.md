@@ -2,25 +2,32 @@
 ---
 
 
-## 职业运动员成为疫苗灾难的主要受害者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2332451/)
+## 樱花时政┃泽连斯基：战争走向取决于美国军援
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332526/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/泽连斯基：战争走向取决于美国军援.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fforeignpolicy.com%2Fwp-content%2Fuploads%2F2022%2F01%2FAFGHANISTAN-US-GettyImages-71267098.png%3Fw%3D1500&amp;imgrefurl=https%3A%2F%2Fforeignpolicy.com%2F2022%2F01%2F13%2Fus-military-helicopter-parent-afgha)
 
-据美国&lt;True Defender&gt;近日报道，自新冠病毒疫苗在全球推广接种以来，已有大量职业运动员因出现心绞痛、心梗塞等严重疾病而被迫停止其职业生涯甚至是死亡。
+乌克兰总统泽连斯基表示，正在该国进行的战争的下一步发展取决于美国的军事援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1385.png)
+他在接受采访时说，鉴于战事向该国南部和东部转移，乌克兰的命运将取决于美国是否支持该国应对俄军预计在上述地区增加的军事行动。
 
-图片来源：[https://thetruedefender.com](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
-最新数据显示，美国至少有769名已接种的职业运动员在比赛中因突发心脏疾病而倒下，其中出现心脏骤停的运动员之平均年龄只有23岁。在欧盟，2021年因突发心脏病而死亡的足球运动员人数比前一年上升了5倍。
+“我百分之百信任我们的人民和军队。但我并不确信我们能得到所需要的一切（援助）”，泽连斯基说。
 
-报道称，以上不正常现象绝非偶然，许多球队医生已直接将疫苗列为导致运动员病亡的根本原因。此外，众多医学专家此前都曾在当局推出实验性疫苗之前发出过警告：称接种该疫苗会给人体器官带来致命性伤害！
+他感谢了拜登迄今为止提供的卓有成效的军事援助，但补充说，他在“很久以前”曾向美方递交了一份乌克兰亟须物资的特殊清单。他说，历史将对拜登的回答做出评判，“那张单子在他手里”。
 
-校对编辑：硫酸羟氯喹64
+信息来源：
+[泽连斯基：战争走向取决于美国军援](https://www.dw.com/zh/%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA%E6%88%98%E4%BA%89%E8%B5%B0%E5%90%91%E5%8F%96%E5%86%B3%E4%BA%8E%E7%BE%8E%E5%9B%BD%E5%86%9B%E6%8F%B4/a-61432309)
 
-发稿：青青
-
-原文链接： [https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/](https://thetruedefender.com/shocking-769-athletes-collapsed-in-2021-their-average-age-is-23-watch/)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

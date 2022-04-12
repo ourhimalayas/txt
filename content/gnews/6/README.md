@@ -2,44 +2,33 @@
 ---
 
 
-## 盖特新版搜索引擎开放测试
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2332391/)
+## 國際｜美國務院調升旅遊風險 商務部下令撤離上海領事館成員
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2332493/)
 
-作者：澳喜农场 – Leo M
+**港台前線 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-17.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美國務院4月11日發佈對中（共）國的最新旅遊建議， 建議美國公民有意前往旅行者，應重新考慮。主要理由為「中共恣意執行法律、新冠疫情防控措施所引發的相關限制」。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+此外，美國商務部11日下令非緊急政府僱員及其家屬「撤離」上海領事館。4月9日美國國務院宣布批准授權相關人士自願撤離，本次則是商務部下令非緊急人員「撤離」上海領事館。
 
+旅遊建議中，提到中共可能恣意執行法律，在未經正當法律程序的情形，任意、非法拘留，或對美國及其他國家公民施以出境禁令來實現「強迫個人參與中共政府的調查、通過施壓要求其家屬從海外返回境內、中共會任意拘留美國公民，以此製造在民事糾紛中有利於中共的情況、**獲得對外國政府談判的籌碼**」。
 
-据新中国联邦词典编辑组的战友透露，使用新算法的盖特搜索推荐引擎Gettr Trends近日已经上线。用户可以更方便地搜索到自己想找的盖特帖子，并且可以看到每日最活跃的帖子。
+旅遊禁令部分，由於中共法治下欠缺正當法律程序、行政程序，美國公民僅在離開時才知道受到出境禁令的處分，惟當地法律及行政程序並未賦予受到出境限制的美國公民司法救濟途徑，美國公民可能面對長期審訊、拘留。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-11-214640.jpg)图片来源：网络
+在中共當局下，因涉嫌違反中共國家安全法而受到非法拘留、審訊的外籍人士，包含但不限於商業人士、曾任外國政府相關職位人員、西方記者。在該旅行建議中，提到涉嫌違反國安法而受到非法對待的族群，意思是指在該國生活、求職的美國公民，亦有可能同樣的對待。
 
-在新的搜索引擎中，用户可以通过关键词进行搜索，也可以同时输入重点关注的关键词，以明确优先搜索的范围，突出重点。用户还可以只搜索某种语言的帖子。为了减少重复性的或其他不想要的帖子，可以使用黑名单功能，忽略特定的账号或推广账号，过滤掉这些账号发出的帖子。
+中共當局的安保人員可能審視美國公民的私人電子訊息，若包含批判中共政府的資訊，可能受到拘留或驅逐出境。中共政府不承認雙重國籍，符合條件的美國公民可能受到當局的騷擾，亦可能阻止美國大使館對其提供相關服務。
 
-搜索结果可以依据多种指标进行排序，例如得分、综合排名、点赞数、转发数、留言数、发帖时间等。用户还可以看到每个帖子的被观看次数。 目前搜索引擎的数据更新频率是每24小时更新一次，搜索引擎的地址是[https://ge.inpw.cc/](https://ge.inpw.cc/)。
+在該旅行建議中，提及中共當局將要求旅客接受14天隔離期間「不允許離開房間」，若檢測呈現陽性將被移轉至政府指定的醫療、隔離設施，中共當局所定的檢測、護理、隔離、治療標準與美國有很大的差異。此外，可能面臨強制檢測、隔離期加長等。
 
-此外，新中国联邦词典还在近期上线了G-news搜索与推荐引擎G-news Search，地址是[https://gs.inpw.cc/](https://gs.inpw.cc/)。
+此外，新疆維吾爾自治區、西藏自治區，中共可能增加額外的安檢措施，如增派警力、額外的安全檢查程序，亦可能在短時間內實施宵禁、旅遊限制。
 
-新闻来源：[https://www.nfscdict.com/Gettrdata](https://www.nfscdict.com/Gettrdata)
+來源｜[美國國務院](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+* * *
 
-编辑/校对/发稿：H.B
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
-
-
-
-
+▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎關注疫情真相、光亮黑暗時刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

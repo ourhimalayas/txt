@@ -2,36 +2,28 @@
 ---
 
 
-## 郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332223/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月11日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2332251/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版.png)
-Snow……snow……这烧着你咋办？嗯……嗯……snow，打球吧，咱打篮球，snow……，看这花都开了，snow,嗯,红花，金花。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-53.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-12.png)
 
-啊，真是，这天真好，蓝天白云，你看这蓝天，啊，这是春暖花开呀，特别特别的棒。
 
-啊东南西北中啊，现在南方、东方在行动，就剩下西方和北方了。
+校对：Stay文苑
 
-一切都在行动中啊。
+编辑：Stay文苑
 
-花已经开了，春天已经来了，该我们享受春天的时候了，对吧？
+发稿：Stay文苑
 
-啥都不说了，嗯。
+新闻：[https://gettr.com/post/p14sb6lf86b](https://gettr.com/post/p14sb6lf86b)
+访谈：[https://gettr.com/post/p14rsicf8c5](https://gettr.com/post/p14rsicf8c5)
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-11.jpeg)
 
-郭文贵先生2022年4月11日盖特视频链接：
-[https://gettr.com/post/p14pc50e5b3](https://gettr.com/post/p14pc50e5b3)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

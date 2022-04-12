@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 3:51 AM (UTC)`
+
+4/11/2022 Miles Guo’s GETTR: The evil CCP hit a new low once again! Numerous "Big White" (those in the white protection suits) and members of the Neighborhood Committee have been asking people to sleep with them by offering food, resulting in countless wives and daughters being raped in exchange for meals, water, and noodles. However, no one dares to step forward to fight back against these atrocities. The CCP can enjoy everything you have by turning your home into your own prison via lockdown.<br/><br/>4/11/2022 文贵盖特：邪恶中共再次刷新下限！上海和长春无数大白和居委会的人用食物逼迫女孩陪睡，无数人的妻女遭饭奸、水奸、面奸，却无人敢站出来反抗；通过用封锁把家变成监狱，中共得以享受你的一切<br/>
+![img](https://media.gettr.com/group23/getter/2022/04/12/03/61cea6db-0fae-9a20-5afa-1f0dbb1e92bb/out.jpg)
+
+---
+
 `@miles 4/12/2022 3:04 AM (UTC)`
 
 2022-4-11《鸡血王喜币大作战》 第一百六十二集 嘉宾：青藤、Nick
@@ -152,13 +159,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 
 【Ukraine Rescue】 04/09/22 Seeing a young volunteer from Poland carefully reading the NFSC Declaration, Nicole introduces our mission to him, as well as Gettr: because we think by democratizing freedom of information will help to liberate people’s mind.<br/><br/>【乌克兰救援】 04/09/22 大帐篷外狂风暴雨，一位来自波兰的年轻志愿者正在温暖的帐篷内认真地阅读着《新中国联邦宣言》，妮可向他介绍了我们的使命，以及盖特：因为我们认为通过信息自由的民主化将有助于解放人们的思想。
 ![img](https://media.gettr.com/group12/getter/2022/04/11/17/310cdcfe-8df4-a949-f1ac-c90748d2abb4/out.jpg)
-
----
-
-`@miles 4/11/2022 5:14 PM (UTC)`
-
- 4月11号：AhAh 无处不在的天才的战友，这才是人类最重要的财富，这首歌，唱得太棒了👏
-![img](https://media.gettr.com/group24/getter/2022/04/11/17/fb3820b7-40a2-4544-6e62-5b2107fc2772/out.jpg)
 
 ---
 
