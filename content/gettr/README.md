@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 4:47 PM (UTC)`
+
+4/10/2022 Miles Guo: Russia will eventually be disintegrated by the contagious power of courage displayed by the Ukrainians; the Ukainians' brave counterattack awakened the instinctive conscience and sense of justice in the Europeans and Americans, and that is exactly why they have gained extensive support and aid; Chinese people should follow the Ukrainians' example, and fighting back against the CCP is their only option.<br/><br/>4/10/2022 文贵直播：乌克兰民族勇气的感染力量一定把俄罗斯解体！乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择！<br/>
+![img](https://media.gettr.com/group4/getter/2022/04/12/16/dda236d3-11fd-9503-3e41-e29df0fa56b4/out.jpg)
+
+---
+
 `@miles 4/12/2022 4:29 PM (UTC)`
 
 4/10/2022: Miles Guo: UK and European union are competing to form an alliance with Ukraine. Meanwhile the CCP is deploying HQ and DF series Missile Systems in the Balkans and the Middle East. This has set the stage for a war between Europe and Russia/China. Xi Jinping will take this chance to invade Taiwan; the Chinese will be the biggest victims of the war. What is going on in Shanghai will happen to the entire mainland China. The CCP is prepared for the death of 100 million Lao Baixing.<br/><br/>4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾；这场战争的最大受害者将是中国老百姓，现在的上海就是未来中国的缩影，共产党已做好中国死上一亿人的准备。<br/>
@@ -146,13 +153,6 @@
 
 4/10/2022 Miles Guo: Merkel and Sarkozy are the CCP's running dogs and the war-criminal politicians! They coupled the German and French economies with that of Communist China and Russia, and they are the culprits who put Ukraine, Taiwan, and Hong Kong in danger. A case will be filed against Merkel in Germany. Sarkozy took money from the CCP and sold out both Ukraine and Hong Kong. It was France and Germany that backed the CCP to host the 2008 Summer Olympics.<br/><br/>4/10/2022 文贵直播：默克尔和萨科齐是中共走狗和战犯级的政客！他们将德法的经济跟中俄挂钩，且把乌克兰、台湾和香港置于危险境地的罪魁祸首；德国要对默克尔立案调查；萨科齐收了中共的钱，出卖了乌克兰和香港；法德曾在背后力挺中共办08年奥运会<br/>
 ![img](https://media.gettr.com/group31/getter/2022/04/12/01/b0e4b2bf-edd1-b6b4-cf38-ff5c6e6f2bef/out.jpg)
-
----
-
-`@miles 4/12/2022 1:12 AM (UTC)`
-
-4/10/2022 Miles Guo: The Taiwanese and Japanese media that did not dare to report on the NFSC & ROLF Ukraine rescue operation has proved that the citizens of the New Federal State of China have become a mirror of courage and justice for the whole world. No one is more noble than the fellow fighters who left their family and career behind, risking their life to participate in the Ukraine rescue operation. Everything about the NFSC & ROLF Ukraine rescue operation is a voluntary act of our fellow fighters. I am grateful for all your efforts made at each and every moment.<br/><br/>4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大！新中国联邦救援行动的一切都是战友们自发的，文贵感恩你们每分每秒的付出！<br/>
-![img](https://media.gettr.com/group30/getter/2022/04/12/01/1e63b4a4-c560-12e6-ae07-e99149129e5c/out.jpg)
 
 ---
 
