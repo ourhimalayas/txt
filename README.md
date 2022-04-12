@@ -15,86 +15,86 @@
 
 ---
 
-### [20220410郭文贵大直播 ：习近平玩的一剑四雕够狠，粮食成了统治最有力的武器！](/content/gnews/1/README.md)
- ` Tokyo Sakura Video Group`
+### [4月11日乌克兰救援行动（图片1-9）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
 
-### [20220408郭文贵大直播 ：疫苗灾难蔓延 储粮备药应对PPT](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
-
-### [加拿大BC省取消疫苗护照政策](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共加速建造100多个可威慑美国的核导弹发射井（1/2）](/content/gnews/4/README.md)
+### [中共加速建造100多个可威慑美国的核导弹发射井（2/2）](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥直播要点之一](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
+### [20220410郭文贵大直播 ：上海帮名存实亡 江后继无人 曾被严加看管](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [加國保守黨將力推加密貨幣](/content/gnews/6/README.md)
+### [20220410郭文贵大直播 ：习近平玩的一剑四雕够狠，粮食成了统治最有力的武器！](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220408郭文贵大直播 ：疫苗灾难蔓延 储粮备药应对PPT](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [加拿大BC省取消疫苗护照政策](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
+### [中共加速建造100多个可威慑美国的核导弹发射井（1/2）](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大保守党将力推加密货币](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [奥密克戎病毒带来的二次感染在上升](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
-
-### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/10/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/12/README.md)
- ` 樱花FM`
-
-### [樱花FM┃警惕和看清中共以谈判名义行邪恶之事](/content/gnews/13/README.md)
- ` 樱花FM`
-
-### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/14/README.md)
- ` 加拿大温哥华英里农场`
-
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [中国人的勇气在哪里](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/20/README.md)
- ` G-时新闻`
-
-### [BC省取消疫苗卡规定](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [加拿大保守党政策将利好加密货币](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [俄罗斯敦促金砖国家整合支付系统和卡](/content/gnews/24/README.md)
- ` GTV News Talk`
-
-### [俄乌战争“没想到”系列之五：](/content/gnews/25/README.md)
+### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/8/README.md)
  ` 蓝莲花农场`
 
-### [美授权外交人员撤离上海 中国坚称防疫科学有效](/content/gnews/26/README.md)
- ` GTV News Talk`
+### [七哥直播要点之一](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
 
-### [巴基斯坦总理不信任投票后被免](/content/gnews/27/README.md)
- ` GTV News Talk`
+### [加國保守黨將力推加密貨幣](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大保守党将力推加密货币](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [奥密克戎病毒带来的二次感染在上升](/content/gnews/13/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/14/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [樱花FM┃疫苗专业人士与丹东卫健委谈话揭示:打疫苗是无症状感染者爆增的重要原因](/content/gnews/15/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃默克尔为其拒绝乌加入北约承担责任](/content/gnews/16/README.md)
+ ` 樱花FM`
+
+### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/17/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [中国人的勇气在哪里](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/23/README.md)
+ ` G-时新闻`
+
+### [BC省取消疫苗卡规定](/content/gnews/24/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大保守党政策将利好加密货币](/content/gnews/25/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄乌战争“没想到”系列之五：](/content/gnews/27/README.md)
+ ` 蓝莲花农场`
 
 ### [2022年4月10日 《文贵大直播》全文字版](/content/gnews/28/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
@@ -114,38 +114,38 @@
 ### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄军中将叫嚣将对乌克兰发动全面攻势](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/35/README.md)
+### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共内应在台湾妈祖绕境活动中故意滋事](/content/gnews/36/README.md)
+### [中共内应在台湾妈祖绕境活动中故意滋事](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [德国国防部长：军火库存告罄 下一步军援乌克兰细节保密](/content/gnews/37/README.md)
+### [德国国防部长：军火库存告罄 下一步军援乌克兰细节保密](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [广州疫情迅速升级 面临封城](/content/gnews/38/README.md)
+### [广州疫情迅速升级 面临封城](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [欧洲根本不是能源危机，是共产主义极权危机](/content/gnews/39/README.md)
+### [欧洲根本不是能源危机，是共产主义极权危机](/content/gnews/38/README.md)
  ` 银河歌舞厅`
 
-### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/40/README.md)
+### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声｜欧盟主席：将采取特别措施让乌克兰快速加入欧盟](/content/gnews/41/README.md)
+### [有声｜欧盟主席：将采取特别措施让乌克兰快速加入欧盟](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/42/README.md)
+### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/43/README.md)
+### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [加拿大央行上调银行同业拆借利率](/content/gnews/44/README.md)
+### [加拿大央行上调银行同业拆借利率](/content/gnews/43/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [请坚持住最后“20秒”](/content/gnews/44/README.md)
+ ` 澳喜农场`
 
 ### [中共非法器官移植,医护人员充当侩子手](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`

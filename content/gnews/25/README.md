@@ -2,34 +2,32 @@
 ---
 
 
-## 俄乌战争“没想到”系列之五：
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331173/)
+## 加拿大保守党政策将利好加密货币
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331284/)
 
-**视频制作：多伦多蓝莲花视频组**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-7.jpg)
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+据加拿大自媒体【后千禧一代】4月9日报道，加拿大保守党总理候选人皮埃尔·波伊利耶夫在多次表示将推行加密货币后再次宣布，保守党将取消对慈善加密捐款的任何税收。
 
-**第五个没想到：**
+报道称，如果成功当选，皮埃尔政府将实施私人成员法案，以确保加密货币被视为股票和债券。因此当加密货币持有者向注册的加拿大慈善机构捐款时，可不受资本利得税的约束。此举将激励持有虚拟货币的公民进行慈善捐赠，同时加速加拿大成为区块链之都的愿景。
 
-**没想到俄罗斯国内反战情绪如此高涨。这点怕是普京大帝根本没有想到的。**
+据悉，保守党坚持加拿大人应该自由使用其他类型的金融产品。而这将使人们更好地控制个人财务，并大量释放加拿大人的慷慨本性。
 
-**独裁者的自负都决定了他们想不到内部会有人反自己，从身边寡头的分崩离析，到俄罗斯全国性的反战示威活动，到俄罗斯前线士兵爆料的被骗上战场。**
+[原文链接](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
 
-**由此可以看出，这场战争连俄罗斯人自己都反对，俄罗斯内部的不团结是普京政权始料未及的。**
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-**这也告诉世界，独裁者不能代表人民，中共也不能代表中国人，独裁的政权与人民是势不两立的。**
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-视频文案：wood(文斌）
-编辑与校对：冰糖葫芦喵
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,117 +2,34 @@
 ---
 
 
-## 巴基斯坦总理不信任投票后被免
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2330774/)
+## 俄乌战争“没想到”系列之五：
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331173/)
 
-作者：MOS-柳是多水土透
+**视频制作：多伦多蓝莲花视频组**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
 
+**第五个没想到：**
 
+**没想到俄罗斯国内反战情绪如此高涨。这点怕是普京大帝根本没有想到的。**
 
+**独裁者的自负都决定了他们想不到内部会有人反自己，从身边寡头的分崩离析，到俄罗斯全国性的反战示威活动，到俄罗斯前线士兵爆料的被骗上战场。**
 
+**由此可以看出，这场战争连俄罗斯人自己都反对，俄罗斯内部的不团结是普京政权始料未及的。**
 
-周日Imran Khan在议会不信任投票中落败遭罢免，其执政联盟要求Khan对经济衰退和未能兑现竞选承诺负责。
+**这也告诉世界，独裁者不能代表人民，中共也不能代表中国人，独裁的政权与人民是势不两立的。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-11-161346.png)
+视频文案：wood(文斌）
+编辑与校对：冰糖葫芦喵
 
-现年69岁的Khan履职3年半，在13小时的议会程序后被正式免职，周一议会将继续选出新一任总理
-
-不信任动议投票遭多次延迟，最终反对派在342议席中得到了174票，由下院议长Ayaz Sadiq宣布不信任表决通过。
-
-两个信息源称，本次投票是在陆军首长Qamar Javed Bajwa将军与Khan会面后才得以进行，上周Khan的同盟阻止了不信任动议并解散议会下院，此后高法介入宣布解散令违宪，国会得以就不信任动议继续辩论。
-
-Khan在职任期间与美国不和，他欢迎塔利班统治阿富汗并要求国际社会与塔利班合作。南亚问题顾问Reema Omar写道：“3.5年的政治生涯以无能，极端言论审查，攻击独立司法，政治迫害，和苦涩分裂为人所知，最后，以无耻的颠覆宪法企图而告终。”
-
-有望当选下任首相的候选者有Shehbaz Sharif，来自政治世家Sharif家族，是三次当选首相Nawaz Sharif的弟弟，有着高效管理者的声誉。“新的一天开始了… 我们的联盟将会重建巴基斯坦。”他在国会发言中说到。
-
-新闻链接：
-[https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/](https://www.reuters.com/world/asia-pacific/pakistan-parliament-try-again-vote-oust-pm-khan-2022-04-09/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：遍地开花
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

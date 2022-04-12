@@ -2,25 +2,27 @@
 ---
 
 
-## 加國保守黨將力推加密貨幣
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331697/)
+## 加拿大BC省取消疫苗护照政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331755/)
 
-采編撰稿：   加拿大溫哥華揚帆農場 – 文萊
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-據自媒體【後千禧年】4月9日報道，加拿大保守黨總理候選人波利耶夫在多次表示將推行加密貨幣後，當天再次宣布，保守黨在執政後將取消對數字貨幣慈善捐款的所有稅收。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1352.png)圖片來源：https://cryptocurrencynews.com/
+据加拿大[CTV新闻]4月8日报道，BC省于当天取消了在公共场所使用疫苗接种证明的规定。即日起，在出入餐厅、影剧院和室内活动场所时将不再需要出示疫苗护照。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1356.png)图片来源
 
 
-對此，保守黨政府將實施私人成員法案，以確保加密貨幣被視為股票和債券。因此當數字貨幣持有者向註冊的加拿大慈善機構捐款時，可不受資本所得稅的約束。此舉將激勵持有數字貨幣的公民進行慈善捐贈，同時加速加拿大成為區塊鏈之都的前景。
+据悉，从4月8日开始，自去年9月份以来推行的疫苗接种证明制度在BC省被正式废除。但受联邦政府监管的旅行，如乘坐飞机，火车等仍需出示疫苗护照。
 
-報道稱，保守黨堅持加拿大人應該自由使用其他類型的金融產品，特別是發展數字貨幣交易市場，並認為這將使人們更好地控製個人財務，並大量釋放加拿大人的消費積極性。
+相比加拿大其他省份，BC省取消疫苗护照政策的时间最迟。阿尔伯塔省在2月份，安省和魁省已在3月初，都相继取消了该政策。目前在BC省，已有超过90%的人口都已完全接种了疫苗。
 
-校對編輯：硫酸羥氯喹64
+校对编辑：硫酸羟氯喹64
 
-發稿：青青
+发稿:青青
 
-新聞來源： [BREAKING: Poilievre vows to remove taxes on charitable crypto donations if elected | The Post Millennial](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
+新闻来源： [https://bc.ctvnews.ca/proof-of-vaccination-no-longer-required-to-access-b-c-restaurants-theatres-events-1.5853803](https://bc.ctvnews.ca/proof-of-vaccination-no-longer-required-to-access-b-c-restaurants-theatres-events-1.5853803)
 
  
 

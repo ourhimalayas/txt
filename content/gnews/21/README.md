@@ -2,34 +2,22 @@
 ---
 
 
-## BC省取消疫苗卡规定
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2331316/)
+## 樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2331359/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱（采编）、自由法兰西（编译撰稿）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-8.jpg)
+撰稿：东京樱花团/百花李香
 
-加拿大《CTV新闻》4月8日报道，由于BC省取消了疫苗卡规定，在出入餐厅、剧院和室内活动场所时不再需要出示疫苗接种证明。
+良品计划已决定向在日本国内获得政府认证的乌克兰难民提供援助。具体支援内容是给在日本的乌克兰难民提供衣服、被褥、家具、家庭用品和其它日常用品。此外，无印良品将在无印良品商店和相关设施中提供就业机会，并在公司宿舍中提供临时住房。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-8.jpg)[图片来源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
+除上述之外，良品计划还向波兰举办的《儿童地球基金》捐赠了100套绘画材料，有彩色铅笔、涂鸦板和折纸，为逃难的儿童提供心理关怀。并从3月15日开始接受捐款，捐款用以帮助和保护乌克兰以及在邻国的难民。
 
-4月8日中午开始，自去年9月份开始推行的BC疫苗卡制度被废除，除非个别企业选择继续使用。探访需长期护理和辅助生活设施中的人仍需提供接种证明；并且，受联邦监管的旅行，如乘坐飞机，也仍需出示接种证明。
+良品计划表示，希望这种情况能尽快和平解决，还将继续考虑其它支持措施。
 
-其他省份比BC省更早结束了他们的疫苗卡制度，如安省在3月初取消，阿尔伯塔省在2月份取消；魁省的疫苗卡政策比BC省更为严格，出入商店和酒铺都需出示疫苗证明，不过从3月中旬起已逐步取消。
+[信息源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
 
-同时，传染病专家强调，中共病毒疫情还远未结束。根据对低陆平原地区的废水测试追踪，近期中共病毒病例有回升迹象。据悉，计有90%以上符合条件的BC省人都接种了疫苗。
-
-[原文链接](https://bc.ctvnews.ca/proof-of-vaccination-no-longer-required-to-access-b-c-restaurants-theatres-events-1.5853803)
-
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
