@@ -2,43 +2,26 @@
 ---
 
 
-## Elon Musk决定不加入推特董事会
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
+## 加拿大机构投资者增加持有数字货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
-当地时间4月11日，Elon Musk决定不加入推特董事会。
+编译撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
+据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
 
-此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
-
-据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
-
-撰稿、发布：骄子
-
-reference
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
 
+毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
 
+报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
 
-> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
-> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
+校对编辑：硫酸羟氯喹64
 
+发稿：青青
 
-* * *
+原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
-
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

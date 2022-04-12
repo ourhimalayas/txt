@@ -2,38 +2,59 @@
 ---
 
 
-## 台湾首次向民众发布战争生存指南
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
+## 泽连斯基呼吁加码对俄制裁因其使用化学武器
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2333983/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
-当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-234.jpg)图片来自网络
+《ABC News》近日报道，乌克兰总统沃洛基米尔-泽连斯基警告说，俄罗斯可能在乌克兰使用化学武器，并敦促西方国家实施更有力的制裁，以防止使用这些武器。
 
-据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
+有未经证实的报告显示，在被围困的乌克兰南部港口马里乌波尔，有人使用了化学武器。
 
-尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
+泽连斯基先生在其夜间视频讲话中说：”我们以最严肃的态度对待此事。
 
-reference：
+他没有说已经使用了化学武器。
 
-[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+他说：”我想提醒世界上的领导人，俄罗斯军队可能使用化学武器的问题已经讨论过了。
 
-民防手册下载地址
+“而且当时已经意味着有必要对俄罗斯的侵略作出更严厉和更快的反应。”
 
-[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
+马里乌波尔市市长的助手彼得罗-安德里申科在其Telegram频道上写道，关于化学袭击的报道尚未得到证实。他说，他预计以后会提供细节和澄清。
 
-撰稿、发布：骄子
+五角大楼新闻秘书约翰-柯比说，美国知道这些报道，但没有核实这些说法。
 
-* * *
+他说：”我们目前无法确认，并将继续密切监测局势”。
 
-欢迎订阅我们的GNews账号：
+“这些报道，如果是真的，令人深感关切，反映了我们对俄罗斯可能在乌克兰使用各种防暴剂，包括混合化学剂的催泪瓦斯的担忧。”
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+澳大利亚外交部长玛丽斯-佩恩说，她的国家将与其他国家合作，核实这些报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+佩恩女士说：”如果它们被证实，这将是对国际法的进一步全面违反。
+
+“进一步表明普京总统和俄罗斯绝对违反了基于规则的全球秩序的每一个价值和每一个方面。”
+
+上个月，美国总统乔-拜登警告俄罗斯不要在乌克兰使用化学武器，称该国这样做将面临 “严重后果”。
+
+俄罗斯的入侵已经造成数千人死亡，数百万人流离失所，已经从乌克兰首都基辅转移到乌克兰东部，预计该地区将出现大规模攻势。
+
+美国表示，它认为俄罗斯正在加强顿巴斯地区东部的数万名军队，因为俄罗斯将其攻势集中在乌克兰的南部和东部。
+
+欧盟表示，对俄罗斯实施更多制裁是一种选择。
+
+泽连斯基先生说：”现在是时候以这样的方式制定这套方案了，我们甚至不会从俄罗斯方面听到关于大规模毁灭性武器的字眼。
+
+“对俄罗斯实行石油禁运是必须的。任何不影响石油的对俄制裁新方案在莫斯科都会被微笑着接受。”
+
+俄罗斯核武器都想用，更不用说化学武器了。西方国家需要对此认真对待并做出行动，进一步加码对俄制裁，早日结束这场非正义的战争。
+
+参考链接：
+
+[https://www.abc.net.au/news/2022-04-12/zelenskyy-russia-chemical-weapons-calls-for-more-sanctions/100984526](https://www.abc.net.au/news/2022-04-12/zelenskyy-russia-chemical-weapons-calls-for-more-sanctions/100984526)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

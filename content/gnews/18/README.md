@@ -2,148 +2,99 @@
 ---
 
 
-## 2022/04/12英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2333797/)
+## 俄罗斯石油继续流向印度和中共国
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2333830/)
 
-### 环球时报：中央巡视组已进驻！
-[![](https://express.adobe.com/page/t2nklJettylGW/images/D711B67B-84E0-4294-B9AD-0A55FB49F248.jpg?asset_id=879C15CD-C173-42D5-8D5F-88DAC9E108F6&amp;size=1024)](https://express.adobe.com/page/t2nklJettylGW/images/D711B67B-84E0-4294-B9AD-0A55FB49F248.jpg?asset_id=879C15CD-C173-42D5-8D5F-88DAC9E108F6&amp;size=1024)*3月23日，全国巡视工作会议暨十九届中央第九轮巡视动员部署会在京召开。如今，各个巡视组已开始进驻，据官方披露，巡视组巡视的时间在2个月左右（图片来源：新闻联播截图）*
-**评论：**在这个时间点上以巡视的名义对中央各部委加强监控，连中央办公厅和中央保密局都赫然在列，习总加速师果然满朝皆敌。
+编译：sherryok（酷翻组）
+采集：玫瑰新闻组
 
-### 环球时报：社评：疫情越复杂，越要全面准确坚持“动态清零”
-[![](https://express.adobe.com/page/t2nklJettylGW/images/1A763F82-B630-4D1E-86DF-0D14657F6DEC.jpg?asset_id=73E3B2FB-6009-48A6-B5A6-92DAC2F27C40&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/1A763F82-B630-4D1E-86DF-0D14657F6DEC.jpg?asset_id=73E3B2FB-6009-48A6-B5A6-92DAC2F27C40&amp;size=750)*2022年4月7日，在上海杨浦区五角场街道某封控小区，物业人员投身社区各项防疫工作（图片来源：澎湃影像）*
-**评论：**文中声称“从目前国外数据来看，奥密克戎毒株流行期间的死亡率要比德尔塔高。”连它们自己都不好意思说国内数据是这样，那这个国外的数据是哪里来的呢？
-
-### 央视新闻：时政微周刊丨总书记的一周（4月4日—4月10日）
-[![](https://express.adobe.com/page/t2nklJettylGW/images/AAB32E34-3009-48C2-B11B-AEE4528206F1.png?asset_id=7601E393-97E2-4BEC-A0B9-53AAF9964523&amp;size=1024)](https://express.adobe.com/page/t2nklJettylGW/images/AAB32E34-3009-48C2-B11B-AEE4528206F1.png?asset_id=7601E393-97E2-4BEC-A0B9-53AAF9964523&amp;size=1024)*（图片来源：视频截图）*
-**评论：**这是一篇媚态十足的今上起居注，墙国这些本来就毫无节操所谓的新闻媒体在习总加速师登基后越发堕落了，简直不能直视
-
-### 人民网: 民航局回应“3·21”事故谣言：涉嫌违法 将追究造谣者法律责任
-[![](https://express.adobe.com/page/t2nklJettylGW/images/25E4B5BB-241D-4D0F-8F56-836330AD3D9E.png?asset_id=DE0A4207-D8D0-4554-AA11-F7E8700A227F&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/25E4B5BB-241D-4D0F-8F56-836330AD3D9E.png?asset_id=DE0A4207-D8D0-4554-AA11-F7E8700A227F&amp;size=626)*民航局航空安全办公室副主任吴世杰（图片来源：民航局）*
-**评论：**辟谣又来了，为何有事屡屡辟谣，只因为已经失信，没人再相信了!但还要拿法律为谎言撑腰!
-
-### 人民网: 数字人民币试点范围再次扩大
-[![](https://express.adobe.com/page/t2nklJettylGW/images/31CDABFF-7D48-440E-B141-08030FE20C62.png?asset_id=6376F72B-4765-4A41-AF2D-315B768D7777&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/31CDABFF-7D48-440E-B141-08030FE20C62.png?asset_id=6376F72B-4765-4A41-AF2D-315B768D7777&amp;size=630)*（图片来源：网络）*
-**评论：**教练直播小细节，从上海跑出来被抓的都是因为信用卡被抓的，知道把手机卡扣出来，可一用信用卡就被抓了，由此可见数字人民币，恐怖至极
-
-### 环球网: 四川银保监局原党委委员、副局长李国荣被“双开”
-[![](https://express.adobe.com/page/t2nklJettylGW/images/8712BB85-649E-49AC-BDAE-FDADD159A1B0.png?asset_id=6132B831-386D-46D3-91C5-77A459E038F4&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/8712BB85-649E-49AC-BDAE-FDADD159A1B0.png?asset_id=6132B831-386D-46D3-91C5-77A459E038F4&amp;size=480)*（图片来源：网络）*
-**评论：**银行出事已经是屡见不鲜了，而今连管银行的都出事儿！
-
-### 环球网: 英媒放风“芬兰瑞典最早今夏加入北约”，克宫发出警告！
-[![](https://express.adobe.com/page/t2nklJettylGW/images/157363D1-A33C-46A7-A5CF-6784647C6E6C.jpg?asset_id=46A48FA9-BAC7-4373-A9B4-4E214EB9E519&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/157363D1-A33C-46A7-A5CF-6784647C6E6C.jpg?asset_id=46A48FA9-BAC7-4373-A9B4-4E214EB9E519&amp;size=600)*（图片来源：留园）*
-**评论：**接下来还有波兰！其特殊的地理位置和历史背景，让波兰不可缺席！
-
-### 中国军网：4部门联合下发通知，组织驻京部队官兵积极参加首都地区文明城区创建工作
-[![](https://express.adobe.com/page/t2nklJettylGW/images/9B369488-0050-43B5-BB60-6EB396091E65.jpg?asset_id=B4FD361A-E6AF-4C89-8A39-3CA09209EFEC&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/9B369488-0050-43B5-BB60-6EB396091E65.jpg?asset_id=B4FD361A-E6AF-4C89-8A39-3CA09209EFEC&amp;size=316)*（图片来源：解放军报截图）*
-**评论：**创建文明城区也需要军队介入，说明军队也将插手城市管理，文中说“民军队历来是社会主义精神文明建设的重要力量。”所以这是军管前奏？
-
-### 新华社微博：习近平：只有攥紧中国种子，才能端稳中国饭碗
-[![](https://express.adobe.com/page/t2nklJettylGW/images/A167A7BC-152E-4C71-89F5-61B31397A22F.png?asset_id=32977644-610C-407F-9B0F-343BA707739D&amp;size=1024)](https://express.adobe.com/page/t2nklJettylGW/images/A167A7BC-152E-4C71-89F5-61B31397A22F.png?asset_id=32977644-610C-407F-9B0F-343BA707739D&amp;size=900)*（图片来源：新华社）*
-**评论：**中国的粮食缺口应该是今后国内稳定的最大因素，习大已知道进口的难处，所以才指望“中国种子”，但这也是杯水车薪。饥饿已无法避免了。
-
-### 网易新闻号财联社：中共中央 国务院关于加快建设全国统一大市场的意见发布
-[![](https://express.adobe.com/page/t2nklJettylGW/images/2A2CC807-6541-40BE-A0BA-6BF7F66A8FE4.jpg?asset_id=F0006289-D398-4976-AD9E-B1E7FAF48432&amp;size=2881)](https://express.adobe.com/page/t2nklJettylGW/images/2A2CC807-6541-40BE-A0BA-6BF7F66A8FE4.jpg?asset_id=F0006289-D398-4976-AD9E-B1E7FAF48432&amp;size=843)*（图片来源：视频截图）*
-**评论：**中共这种做法其实就是要把现时的经济体系转换为闭关锁国状态下的战时经济，为攻打台湾对抗文明世界做准备。
-
-### 新浪: 杭州市委原书记周江勇被提起公诉
-[![](https://express.adobe.com/page/t2nklJettylGW/images/654077E3-6DF2-4899-90F7-7A1042C7546F.png?asset_id=C4A5A8F2-0B3E-461C-A397-2FD0564D457C&amp;size=2560)](https://express.adobe.com/page/t2nklJettylGW/images/654077E3-6DF2-4899-90F7-7A1042C7546F.png?asset_id=C4A5A8F2-0B3E-461C-A397-2FD0564D457C&amp;size=750)*（图片来源：《零容忍》截图）*
-**评论：**这是先要在上海周边做拔官的试点吗？！
-
-### 新浪: 美FDA前局长：拜登是佩洛西的密接者 CDC指南有问题
-[![](https://express.adobe.com/page/t2nklJettylGW/images/351DE906-DD06-4CB2-90A9-9DBA5BED7BE4.jpg?asset_id=9F58AB74-08E0-4AED-92AD-DCB1E13DD4B2&amp;size=750)](https://express.adobe.com/page/t2nklJettylGW/images/351DE906-DD06-4CB2-90A9-9DBA5BED7BE4.jpg?asset_id=9F58AB74-08E0-4AED-92AD-DCB1E13DD4B2&amp;size=750)*戈特利布在哥伦比亚广播公司的节目“面向全国”中发言 （图片来源：《国会山》视频截图）*
-**评论：**教练爆过料了，美国没有准备好，佩洛西的阳性是政治需要！
-
-### 新浪: 美遇麻烦！俄军猛烈进攻同时，亚洲又一国遭遇空袭！
-[![](https://express.adobe.com/page/t2nklJettylGW/images/4B62DD96-36E6-46D1-B925-3143B687E193.jpg?asset_id=8F7C68C9-1910-47AF-AD1B-8DB1C3E7B5B5&amp;size=750)](https://express.adobe.com/page/t2nklJettylGW/images/4B62DD96-36E6-46D1-B925-3143B687E193.jpg?asset_id=8F7C68C9-1910-47AF-AD1B-8DB1C3E7B5B5&amp;size=750)*（图片来源：国际旅游岛商报）*
-**评论：**美国保证同时打赢两场战争，乌俄战事，加上未知的中东战事，如应对突发的第三场台海战事，是美国无法保证取胜的，所以说美国还没有准备好。
-
-### 新浪: 被郑州楼市拖累的郑州银行，去年房地产业贷款不良率飙升
-[![](https://express.adobe.com/page/t2nklJettylGW/images/D2850B32-1358-44CF-BDB2-F363D8EBC277.png?asset_id=6DB19759-EF4B-43F0-BB7C-F97D97BBDD48&amp;size=522)](https://express.adobe.com/page/t2nklJettylGW/images/D2850B32-1358-44CF-BDB2-F363D8EBC277.png?asset_id=6DB19759-EF4B-43F0-BB7C-F97D97BBDD48&amp;size=522)*（图片来源：网络）*
-**评论：**这现象可以说是普遍现象，也是未来银行暴雷的标准模式！
-
-### 搜狐新闻：国内多地开建方舱，无疫情城市也开始筹建，专家：未雨绸缪利于防疫
-[![](https://express.adobe.com/page/t2nklJettylGW/images/C107ABF5-E400-4269-8E10-22DDBF7590D4.jpg?asset_id=8663EEC1-BD72-48BB-8CDB-7476CBE7F231&amp;size=1024)](https://express.adobe.com/page/t2nklJettylGW/images/C107ABF5-E400-4269-8E10-22DDBF7590D4.jpg?asset_id=8663EEC1-BD72-48BB-8CDB-7476CBE7F231&amp;size=1024)*海口（图片来源：央视新闻客户端）*
-**评论：**利于防疫，还是利于控制，中共心中自有一盘棋，只可惜了棋子注定是要被牺牲的。
-
-### 生物学霸：研究生举牌反对「防疫封校」遭开除，高校和学生缘何反目成仇？2022-04-11
-[![](https://express.adobe.com/page/t2nklJettylGW/images/00D4F910-BAA8-41D3-87C6-84BAD0213C84.png?asset_id=3445D46C-E818-430E-95E6-E810E6ECCC1D&amp;size=690)](https://express.adobe.com/page/t2nklJettylGW/images/00D4F910-BAA8-41D3-87C6-84BAD0213C84.png?asset_id=3445D46C-E818-430E-95E6-E810E6ECCC1D&amp;size=690)*（图片来源：网络）*
-**评论：**习共对付民众的高压政策正走向极端的极端，不允许有任何的反对声音，打压一切民众的正当诉求。
-
-### 郎咸平回应母亲急诊室门口等待核酸结果中去世：望悲剧不再发生 顶端新闻 2022-04-11
-[![](https://express.adobe.com/page/t2nklJettylGW/images/8841380D-F6AD-46A9-9F6D-9C004FECCF2B.png?asset_id=4F437467-D504-426B-BCDD-D9468952A069&amp;size=757)](https://express.adobe.com/page/t2nklJettylGW/images/8841380D-F6AD-46A9-9F6D-9C004FECCF2B.png?asset_id=4F437467-D504-426B-BCDD-D9468952A069&amp;size=757)*（图片来源：微博截图）*
-**评论：**不管你怎么为中共唱赞歌，如何勾兑，你不是赵家人，都是中共的牺牲品。愿老人安息。
-
-### 重磅！最高规格发布“统一大市场”，影响超级深远？ 杨国英观察 2022-04-11
-[![](https://express.adobe.com/page/t2nklJettylGW/images/9B23DDF6-88E3-40A3-9993-81E704EBD7A7.png?asset_id=14A0B035-83A4-4E0F-B7EB-7EB637C62BEB&amp;size=690)](https://express.adobe.com/page/t2nklJettylGW/images/9B23DDF6-88E3-40A3-9993-81E704EBD7A7.png?asset_id=14A0B035-83A4-4E0F-B7EB-7EB637C62BEB&amp;size=690)*（图片来源：中共政府网）*
-**评论：**俄罗斯侵略行径的挫败，中共已知道到大难临头，习普二神必作最后一搏，抵抗正义联盟的制裁打击。闭关锁国进入倒计时。
-
-### 12架运20抵塞尔维亚 美媒：“中国人进行了武力展示” 观察者网 2022-04-11
-[![](https://express.adobe.com/page/t2nklJettylGW/images/EA43C546-213D-4573-9BF3-201B025FCC57.png?asset_id=6E3893E9-514B-4CCA-98FA-4BE9329A4DE0&amp;size=690)](https://express.adobe.com/page/t2nklJettylGW/images/EA43C546-213D-4573-9BF3-201B025FCC57.png?asset_id=6E3893E9-514B-4CCA-98FA-4BE9329A4DE0&amp;size=690)*4月10日抵达塞尔维亚的运-20和飞行路线图（图片来源：网络）*
-**评论：**中共已不遮遮掩掩，而是明目张胆，招摇过市的炫耀武力进入欧洲，联合俄罗斯，摆出要与你欧美决战一场的架势。习近平死期将近，已无退路。
-
-### 联合早报:解放军六架运20海外执行任务 中国专家：战略投送能力提升
-[![](https://express.adobe.com/page/t2nklJettylGW/images/381DDD3A-F58F-447E-9D29-D9CDC8E55DAD.jpg?asset_id=657E7D3E-7357-4682-942F-5C264B8FA776&amp;size=800)](https://express.adobe.com/page/t2nklJettylGW/images/381DDD3A-F58F-447E-9D29-D9CDC8E55DAD.jpg?asset_id=657E7D3E-7357-4682-942F-5C264B8FA776&amp;size=800)*（图片来源：ParsToday）*
-**评论：**中共不再掩饰其推动恐怖主义的本质，世界格局成了正义对决邪恶轴心国的关键节点。
-
-### 华尔街日报:中国加速扩建核武库，以应对与美国的潜在冲突
-[![](https://express.adobe.com/page/t2nklJettylGW/images/DF8CE750-9C7A-4534-8912-5266EAF097FA.jpg?asset_id=464D86CA-CF91-41DD-8A2C-BD1157C14E0F&amp;size=1024)](https://express.adobe.com/page/t2nklJettylGW/images/DF8CE750-9C7A-4534-8912-5266EAF097FA.jpg?asset_id=464D86CA-CF91-41DD-8A2C-BD1157C14E0F&amp;size=1024)*图为2019年北京阅兵。中国领导人将更强大的核武库视为阻止美国直接卷入台湾潜在冲突的一种方式（图片来源：MARK SCHIEFELBEIN/ASSOCIATED PRESS）*
-**评论：**中共扩建核武库，意在推动全球战争，还要把矛盾转移给美国，可见中共灭亡已经临近。
-
-### 联合早报:广州宣布今起市民非必要不离市
-[![](https://express.adobe.com/page/t2nklJettylGW/images/9667D5CB-4452-434F-B88D-D30198BD8243.jpg?asset_id=638D7AE8-08FA-4F1D-BB53-2D6BB5E66F86&amp;size=374)](https://express.adobe.com/page/t2nklJettylGW/images/9667D5CB-4452-434F-B88D-D30198BD8243.jpg?asset_id=638D7AE8-08FA-4F1D-BB53-2D6BB5E66F86&amp;size=374)*广州当局宣布今（11日）起市民非必要不离开广州（图片来源：美洲台湾日报）*
-**评论：**中共在对上海封锁，造成巨大的人道灾难之后，广州的灾难才刚刚开始！
-
-### 联合早报:针对华盛顿批准撤离驻沪领馆人员 反驳美“任意”论中国称防疫科学有效
-[![](https://express.adobe.com/page/t2nklJettylGW/images/F22E8173-8E84-49E0-B1EB-384BDB876E9D.jpg?asset_id=99460259-17A7-41D7-A232-2EFC9C196D9A&amp;size=800)](https://express.adobe.com/page/t2nklJettylGW/images/F22E8173-8E84-49E0-B1EB-384BDB876E9D.jpg?asset_id=99460259-17A7-41D7-A232-2EFC9C196D9A&amp;size=800)*上海卫生健康委一级巡视员吴乾渝指出，截至前天已有1万1000名康复者出院。图为上海跨国采购会展中心方舱医院工作人员，本月9日对首批四名康复者和行李物品等进行消毒（图片来源：中新社）*
-**评论：**中共用洗地的方式，隐瞒上海封锁造成的人道灾难。还要让天下人闭嘴，而且往自己脸上贴金。事实证明，中共存在地球，从未停止杀戮，是人类最大的威胁。
-
-### 联合新闻网: 无核酸报告上海医院拒收 学者郎咸平悲痛证实母亲过世
-[![](https://express.adobe.com/page/t2nklJettylGW/images/7324B703-1896-48C2-A113-FAF318208F6C.jpg?asset_id=B0200820-C9CA-4BE3-ADB4-BCCC0E1A8C4A&amp;size=799)](https://express.adobe.com/page/t2nklJettylGW/images/7324B703-1896-48C2-A113-FAF318208F6C.jpg?asset_id=B0200820-C9CA-4BE3-ADB4-BCCC0E1A8C4A&amp;size=799)*活跃于中国大陆的财经学者郎咸平（图片来源：郎咸平微博）*
-**评论：**郎咸平本人表态，注意重点，老人家原本可以活下去！
-
-### 联合新闻网: 救经济 李克强再开座谈会：要增强紧迫感
-[![](https://express.adobe.com/page/t2nklJettylGW/images/2FC2B904-0010-4868-845C-A589D638A77F.png?asset_id=6AD3C344-7996-4CE7-B81D-85280C8B95F8&amp;size=550)](https://express.adobe.com/page/t2nklJettylGW/images/2FC2B904-0010-4868-845C-A589D638A77F.png?asset_id=6AD3C344-7996-4CE7-B81D-85280C8B95F8&amp;size=550)*李克强主持召开经济形势部分地方政府主要负责人座谈会（图片来源：央视）*
-**评论：**人民银行：一季度社会融资规模增量累计12.06万亿元。人民银行：3月末社会融资规模存量325.64万亿元 同比增长10.6%。一季度金融统计数据出炉 M2余额同比增长9.7%。克强总理，今日人民网的数据说的是平行宇宙吗？！
-
-### 联合新闻网: 上海方舱医院真足够？ 网传数十名感染者被踢皮球
-[![](https://express.adobe.com/page/t2nklJettylGW/images/2E7BB510-AD6F-465F-8486-EC0D831777C9.jpg?asset_id=B2C80CB0-D5C3-4F40-AA2B-6FB0629CC9D3&amp;size=798)](https://express.adobe.com/page/t2nklJettylGW/images/2E7BB510-AD6F-465F-8486-EC0D831777C9.jpg?asset_id=B2C80CB0-D5C3-4F40-AA2B-6FB0629CC9D3&amp;size=798)*国家会展中心隔离救治场所，是上海规模最大的方舱医院（图片来源：新华社）*
-**评论：**说保障物资供应，又说方舱床位足够，可实际情况呢？小区封闭饿死人，方舱踢皮球！谁再相信纳粹党真的是没法救了！
-
-### 联合新闻网: 上海抗疫遭质疑 赵立坚：没有一场疫情不会过去
-[![](https://express.adobe.com/page/t2nklJettylGW/images/93533A67-F2DA-4A12-81DC-CC55011F2E0A.jpg?asset_id=65E993D2-8E4F-4E4C-9D1D-35DE21A8BA82&amp;size=690)](https://express.adobe.com/page/t2nklJettylGW/images/93533A67-F2DA-4A12-81DC-CC55011F2E0A.jpg?asset_id=65E993D2-8E4F-4E4C-9D1D-35DE21A8BA82&amp;size=690)*赵立坚（图片来源：澎湃新闻）*
-**评论：**真不要脸！明明是封城人祸，非得往天灾上靠！死的人能活过来吗？那些枉死的冤魂会过去吗！
-
-### 联合新闻网: 上海防疫情外溢 传用生命探测仪查车抓外逃民众
-[![](https://express.adobe.com/page/t2nklJettylGW/images/58CBB042-A6C9-4702-AA39-51ADDC16CA80.jpg?asset_id=EE47F657-3143-4641-804A-B4D6C57D966F&amp;size=799)](https://express.adobe.com/page/t2nklJettylGW/images/58CBB042-A6C9-4702-AA39-51ADDC16CA80.jpg?asset_id=EE47F657-3143-4641-804A-B4D6C57D966F&amp;size=799)*一名防疫人员手持生命探测仪（图片来源：微博）*
-**评论：**9日微博流传影片，两名身穿防疫人员的男子，带生命探测仪站在高速公路旁，一辆卡车停在防疫人员前；其中一名防疫人员拿生命探测仪在卡车前站定，另一人则拿着显示器确认卡车内是否有民众躲藏。 生命探测仪本是用來救人可在納粹手裡用來抓人！
-
-### 联合新闻网: 泽伦斯基：马立波恐数万人遇害 乌克兰300家医院被毁
-[![](https://express.adobe.com/page/t2nklJettylGW/images/19D509A0-3622-445E-8750-C7D78285A2EB.jpg?asset_id=80998C57-9D93-4B32-94D5-3C2A04A6ABBE&amp;size=799)](https://express.adobe.com/page/t2nklJettylGW/images/19D509A0-3622-445E-8750-C7D78285A2EB.jpg?asset_id=80998C57-9D93-4B32-94D5-3C2A04A6ABBE&amp;size=799)*乌克兰总统泽伦斯基11日对南韩国会发表视讯演说（图片来源：AP）*
-**评论：**泽林斯基表示，马立波已经被摧毁，有数万人死亡，俄国已摧毁乌克兰数百个重要基础设施，包括至少300家医院；数万俄军正在集结，准备发动下一场攻势。评:决定俄罗斯生死的大战在即!教练爆料一定很惨烈！
-
-### 联合新闻网: 中国大陆6架Y-20运输机载「红旗22」飞弹给塞尔维亚
-[![](https://express.adobe.com/page/t2nklJettylGW/images/6F8F6834-20C8-41F2-AE85-BF4F8C88C38E.png?asset_id=0FC4BC0B-C653-4D7F-9F41-5888BE221170&amp;size=798)](https://express.adobe.com/page/t2nklJettylGW/images/6F8F6834-20C8-41F2-AE85-BF4F8C88C38E.png?asset_id=0FC4BC0B-C653-4D7F-9F41-5888BE221170&amp;size=798)*图为早前降落在广州白云机场的运-20飞机资料照（图片来源：AFP）*
-**评论：**看看教练上次爆料说的什么！咋弄哩，又验证了!这就是公然宣战了！
-
-### 华尔街日报：奥地利总理成为俄乌战争以来首位访俄会见普京的西方领导人
-[![](https://express.adobe.com/page/t2nklJettylGW/images/88DDD025-7FDF-4978-9D76-E28F91EC0202.jpg?asset_id=E60EFFA2-41A1-4448-A072-F826F671824D&amp;size=860)](https://express.adobe.com/page/t2nklJettylGW/images/88DDD025-7FDF-4978-9D76-E28F91EC0202.jpg?asset_id=E60EFFA2-41A1-4448-A072-F826F671824D&amp;size=860)*一张照片显示，奥地利总理Karl Nehammer在莫斯科与俄罗斯总统普京会面后离开（图片来源：DRAGAN TATIC/AUSTRIAN CHANCELLOR/SHUTTERSTOCK）*
-**评论：**奥地利在为和平解决俄乌问题做最后的努力，也是为普京传达乌方的议和条件，但以普大帝的性格应该不会接受，战争不会轻易结束，但是欧洲是为和平努力过了，而拒绝的是俄方，那后果就自负了。
-
-### 美国之音：香港警方国安处拘捕知名媒体人区家麟
-[![](https://express.adobe.com/page/t2nklJettylGW/images/ADEE3EB4-B2E9-4378-A0C0-B567F7F6F36D.jpg?asset_id=EC328981-F01D-4833-9550-DA0EC552AA5F&amp;size=408)](https://express.adobe.com/page/t2nklJettylGW/images/ADEE3EB4-B2E9-4378-A0C0-B567F7F6F36D.jpg?asset_id=EC328981-F01D-4833-9550-DA0EC552AA5F&amp;size=408)*香港中文大学传媒学顾问区家麟在该校出版社主办的活动中介绍自己的新书（图片来源：中文大学出版社2020年7月21日视频截图）*
-**评论：**中共对香港媒体及媒体人的迫害，是对新闻自由的亵渎，特首候选人李家超称，香港人在法律框架下有充分的自由空间，这个法律框架就是国安法吧，它是香港法治的耻辱，所谓的国家安全是谁的安全，媒体和新闻的作用何在？
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*收集：加油干吧总加速师，redsparrow，yueshangliushao，公平五十六，安公子偷窥文明 | 校对：Daniel | PAGE：彼岸花*
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![此图像的alt属性为空；文件名为G%E6%96%B0%E9%97%BB-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
 
-（世界协调时）部分信息收集于网络世界的各方，请自行甄别
-[![](https://express.adobe.com/page/t2nklJettylGW/images/911715BB-FF01-4763-8832-B49086BAFA3D.jpg?asset_id=209C40BE-726F-43A0-8E7F-720F67969D88&amp;size=1024)](https://express.adobe.com/page/t2nklJettylGW/images/911715BB-FF01-4763-8832-B49086BAFA3D.jpg?asset_id=209C40BE-726F-43A0-8E7F-720F67969D88&amp;size=1024)
+
+
+
+
+
+![2020年9月10日，俄罗斯外长谢尔盖·拉夫罗夫、中国外长王毅和印度外交部长苏布拉马尼亚姆·贾尚卡尔在俄罗斯莫斯科举行的上海合作组织外长理事会会议上合影留念。](https://image.cnbcfm.com/api/v1/image/106698266-1599791503112-GettyImages-1228436708.jpg?v=1648452055&amp;w=929&amp;h=523&amp;ffmt=webp)
+
+据油价（oil price）网站4月9日报道：自俄罗斯入侵乌克兰以来已经整整六周了，这次人类现代最大的生存危机之一还没有结束。为了应对俄罗斯无端和无理的战争，美国和西方对这个流氓国家实施了诸多制裁，[几天前宣布的最新](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.whitehouse.gov/briefing-room/statements-releases/2022/04/06/fact-sheet-united-states-g7-and-eu-impose-severe-and-immediate-costs-on-russia/)制裁主要针对俄罗斯的金融部门。
+
+但到目前为止，俄罗斯的关键能源部门在很大程度上幸免于难。除了立陶宛和波兰以及炼油商和银行家的自我制裁之外，还没有任何国家宣布禁止俄罗斯的能源产品。
+
+到目前为止，俄罗斯对欧盟的石油和天然气出口基本保持不变，因为只有[波罗的海国家](https://oilprice-com.translate.goog/Latest-Energy-News/World-News/The-Baltic-States-Stop-Importing-Russian-Gas.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)宣布 100% 禁止俄罗斯能源进口。波兰是俄罗斯能源供应的主要通道，在采取措施[阻止俄罗斯煤炭进口](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://apnews.com/article/russia-ukraine-business-poland-europe-moscow-4eed1f29b858e56c9719b4c0271bb75f)和[宣布停止俄罗斯石油进口](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.usnews.com/news/business/articles/2022-03-30/germany-triggers-warning-over-gas-amid-russian-ruble-demand)后，波兰也比大多数国家更加积极主动。
+
+到年底。波兰 – 约 1.3mb/d 的 Druzhba 管道将俄罗斯原油输送到波兰、德国和捷克共和国的多个地点 -2020 年 直接消耗约 330kb/d 的俄罗斯原油和进口约 9.4 公吨的俄罗斯动力煤，约占俄罗斯出口的 5%。欧盟目前约 40% 的天然气来自俄罗斯，俄罗斯为从家庭供暖到工厂生产的一切提供动力，约占欧盟总能源消耗的 25%。
+
+但这可能很快就会改变。
+
+[基辅市长表示，必须停止流向俄罗斯](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://newslink.reuters.com/click/27259631.378565/aHR0cHM6Ly93d3cucmV1dGVycy5jb20vd29ybGQvZXVyb3BlL3VzLWV1cm9wZS1wbGFuLXJ1c3NpYS1zYW5jdGlvbnMtdWtyYWluZS13YXJucy1tb3JlLWNpdmlsaWFuLWRlYXRocy0yMDIyLTA0LTA1Lz91dG1fc291cmNlPVNhaWx0aHJ1JnV0bV9tZWRpdW09bmV3c2xldHRlciZ1dG1fY2FtcGFpZ249ZGFpbHktYnJpZWZpbmc/62187dbc8b0a2147c3616ac4Bd63d9333)的“血腥资金”，因为在从俄罗斯入侵者手中夺取的乌克兰城镇的街道上发现死去的平民后，西方准备对莫斯科实施新的制裁。由于俄罗斯军队从乌克兰北部撤出，转而向南部和东部发起进攻，基辅附近布查[镇的残酷画面](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://newslink.reuters.com/click/27259631.378565/aHR0cHM6Ly93d3cucmV1dGVycy5jb20vbmV3cy9waWN0dXJlL2luLXBpY3R1cmVzLWJvZGllcy1hbmQtdGFua3MtbWFyay1wYXRoLWEtaWRVU1JUUzZTVDE2P3V0bV9zb3VyY2U9U2FpbHRocnUmdXRtX21lZGl1bT1uZXdzbGV0dGVyJnV0bV9jYW1wYWlnbj1kYWlseS1icmllZmluZw/62187dbc8b0a2147c3616ac4Ba320fe12)，包括万人坑和近距离射击的捆绑尸体，引发了国际公愤。
+
+专家们现在表示，俄罗斯军队从基辅北部和东部地区撤出所暴露的对乌克兰平民的暴行，使得欧盟国家很可能在未来几个月内对俄罗斯石油实施制裁。在美国，财政部长珍妮特耶伦警告说，乌克兰战争将产生“*巨大的经济影响*”。
+
+目前价值百万美元的问题是，全面禁止俄罗斯能源商品对俄罗斯经济的破坏性有多大。
+
+不幸的是，美国和欧盟对俄罗斯石油和天然气的禁令可能不会像西方所希望的那样对俄罗斯造成伤害，因为大打折扣的乌拉尔石油对一些人来说太不可抗拒了。
+
+**印度从俄罗斯进口激增**
+
+尽管其 80% 的需求需要进口，但印度从来都不是俄罗斯原油的大买家。在特别的年份，印度仅从俄罗斯进口 2-5% 的原油，与美国宣布 100% 禁止俄罗斯能源商品之前的进口比例大致相同。事实上，印度在 2021 年仅进口了 1200 万桶俄罗斯原油，其中大部分石油来自伊拉克、沙特阿拉伯、阿拉伯联合酋长国和尼日利亚。
+
+但现在有报道称，俄罗斯运往印度的石油“大幅增加”。
+
+Kpler 首席石油分析师马特史密斯[告诉 CNBC](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.cnbc.com/2022/03/28/russia-india-india-buys-cheap-russian-oil-china-could-be-next.html)，自 3 月初以来，已经装载了五批俄罗斯石油，约 600 万桶，运往印度。换句话说，印度在一个月内从俄罗斯进口的原油量是一年内进口量的一半。
+
+而且，这可能都是关于钱的。
+
+据国际能源署（IEA）称，来自俄罗斯的乌拉尔原油正以创纪录的折扣价出售。
+
+Transversal Consulting 总裁艾伦·沃尔德 (Ellen Wald) 告诉 CNBC，两周前，嘉能可和维多 (Vitol) 等几家大宗商品贸易公司分别为乌拉尔混合原油提供每桶 30 美元和 25 美元的折扣。乌拉尔原油是俄罗斯出口的主要混合物。
+
+专家们说，简单的经济学是白宫限制从俄罗斯购买原油的压力在德里被置若罔闻的原因。
+
+*“**今天，印度政府的动机是经济的，而不是政治的。印度总是会在他们的石油进口战略中寻求达成协议。当你进口**80-85%**的石油时，很难不考虑**20%**的原油折扣，尤其是在病毒大流行和全球增长放缓之后，*” 政府关系咨询公司 Vogel Group 的贸易主管 Samir N. Kapadia 通过电子邮件告诉 CNBC。
+
+尽管如此，许多读者不会忘记，多年来印度与俄罗斯保持着友好的关系，俄罗斯向这个亚洲国家提供了多达 60% 的军事和国防相关设备。在印度与中共国和巴基斯坦围绕克什米尔领土的争端等关键问题上，俄罗斯也是关键盟友。
+
+**中共国来救场？**
+
+但印度可能不是唯一帮助资助普京非法战争的贱民。
+
+鉴于中共国在逃避制裁方面的经验，你会认为它会成为第一批排队购买这些廉价乌拉尔桶油的国家之一。毕竟，自 2011 年受到制裁以来，中共一直在使用各种秘密手段（即“伪装”）进口廉价的伊朗石油，这是一个严重保密的秘密。中共国已经是俄罗斯最大的石油客户，平均进口量为 1.72 mb/ d 2021 年。
+
+然而，路透社报道称，今年前两个月中共国从俄罗斯的原油进口量[实际上下降了 9.1%](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.reuters.com/business/energy/saudi-arabia-is-chinas-top-crude-supplier-again-russian-oil-falls-9-2022-03-20/)至 1.57 mb/d。
+
+但这与中共国突然表现出道貌岸然或道德内疚无关。相反，显著下降是由于中共对小型独立炼油厂（又称茶壶）的打压造成的。
+
+早在 6 月，就发生了戏剧性的命运逆转，中共宣布[大幅削减](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.reuters.com/business/energy/china-cuts-2nd-batch-crude-oil-import-quotas-private-refiners-document-sources-2021-06-21/)该国私营炼油厂的进口配额。据路透社报道，今年第二批配额中，中共国独立炼油企业共[获得](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.bloomberg.com/news/terminal/QV1MLGDWX2PV)原油进口配额3524万吨，较上年同期的5388万吨减少35%。
+
+大幅削减是[政府打击](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.bloomberg.com/news/articles/2021-06-17/china-intensifies-oil-refining-probe-that-could-upend-industry)被称为茶壶的中共国私营炼油厂的一部分，在过去五年中，这种茶壶已变得越来越占主导地位。此举旨在让中共更精确地监管外国石油的流动，因为它加倍打击逃税、燃料走私以及独立炼油厂违反环境和排放规则等不当行为。
+
+中国的茶壶一直在稳步从**中国石油和化工集团公司**（纽约证券交易所代码：SNP）（也称为中**石化**） 和**中国石油天然气股份有限公司等老牌国有企业手中夺取市场份额。**（纽约证券交易所代码：PTR）自北京于 2015 年部分放开其石油行业以来。茶壶目前控制着中国近 30% 的原油炼油量，高于 2013 年的约 10%。
+
+但请不要误会：中共国从来都不是让一场好的危机白白浪费掉的国家，人们普遍预计中国会利用当前的混乱局面。
+
+“*中国仍在进口俄罗斯石油，但如果能以人民币支付并以折扣价支付，可能会增加购买量。基本上，俄罗斯受到压力，因为它难以出售石油。中共国真的更喜欢便宜得多的石油**……**价格太高了即使在**90**美元的范围内，这对中国来说也太高了，**”**她补充说。如果他们能以折扣价购买俄罗斯石油，其中一些折扣相当大**——**比基准低**30**美元，那么我真的看不出有什么会阻止中国购买大量俄罗斯石油，**”*沃尔德告诉 CNBC在一封电子邮件中。
+
+另一个重要原因：中共国炼油商喜欢 ESPO 原油。
+
+[ESPO（东西伯利亚太平洋）输油管道](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.hydrocarbons-technology.com/projects/espopipeline/)是俄罗斯原油的几个出口之一。这条管道全长4188公里，年输送能力5800万吨，比亚马尔-欧洲管道还要长，将俄罗斯的原油出口到日本、中共国和韩国的亚太市场。
+
+如果通过亚马尔和德鲁日巴管道的流量停止，ESPO 可以为俄罗斯提供生命线。亚马尔将俄罗斯位于亚马尔半岛和西西伯利亚的天然气田通过白俄罗斯与波兰和德国连接起来，而德鲁日巴管道将俄罗斯的原油通过白俄罗斯、匈牙利、斯洛伐克和捷克共和国经由乌克兰输送到波兰和德国。
+
+幸运的是，IEA 表示，到目前为止，对大幅打折的俄罗斯原油的吸收仍然有限，亚洲石油进口商大部分仍坚持中东、拉丁美洲和非洲的传统供应商。此外，俄罗斯可能难以填补西方禁止进口造成的缺口，IEA 估计，从 4 月开始，俄罗斯每天将关闭多达 300 万桶石油供应，而大宗商品分析师在渣打银行表示，俄罗斯庞大的能源帝国可能需要数年时间才能完全恢复，如果有这个可能的话。
+
+简评，俄罗斯对乌克兰展开军事行动之后，美国牵头在联合国投票，要求俄罗斯撤军， 3月2日联合国大会召开第11次紧急特别会议，对俄罗斯“对乌克兰的侵略”决议草案进行投票。该决议草案要求俄罗斯立即停止对乌克兰动武并将其所有军事力量从乌克兰领土撤出。中国和印度都投了弃权票。
+
+4月7日，联合国大会就是否暂停俄罗斯的联合国人权理事会成员资格展开了提案，中共国投反对票，印度投弃权票。
+
+在这场正与邪泾渭分明的站队中，中共越来越显现出中俄联手的本质，而印度则表面上不站队，实质是远离西方正义联盟。本文分析的俄罗斯石油正是中印背离文明社会的巨大动力之一。只要有便宜的石油，哪管乌克兰人民被迫逃离家园，就算全世界都在制裁俄国，中印依然一副“正义能当饭吃？”的嘴脸。
+
+跟着钱走，你能看清很多事情，大到一个国家政策的走向，小到一个人的日常选择。正因为这样唯利是图，见利忘义的思维，导致了西方世界对俄罗斯， 对中共长期的绥靖政策，养虎为患，培养出今日魔爪伸向全世界的邪恶轴心国。可见一个人， 一个国家有信仰多么重要，未来的新中国联邦，就是要帮助全世界的人们建立起正道主义的信仰，不让历史的悲剧一次次的重演。
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

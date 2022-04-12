@@ -2,26 +2,30 @@
 ---
 
 
-## 加拿大增强向乌克兰提供人道救援力度
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334086/)
+## 郭先生即将推出两首新歌
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334116/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/23-3.jpg)
+4月10日的大直播中，郭先生透露，有两首新歌正在创作当中。
 
-据加拿大[CTV新闻]4月9日报道，特鲁多当天在华沙举行的视频会议中宣布，将向乌克兰再提供1亿加元的人道主义援助，并承诺为前来加拿大的乌克兰难民提供更多帮助。
+其中一首歌是战友创作，该战友是在中共国内深受大众喜爱的歌手。郭先生初次试唱该歌曲就让战友惊讶了，毕竟一个不专业的歌手能够有如此表现，如郭先生所言，自己都觉得不可思议。歌曲尚在录制中，战友尽情期待。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1419.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+另外一首歌是好莱坞一位有名的作词人，他愿意为新中国联邦创作一首歌曲。歌曲的名字叫做《one hundred percent》，这是一首和以往完全不同的歌曲。歌词来源于郭先生以往的爆料，比如有些句子是这样的“中共病毒来了吗？one hundred percent；香港沦陷了吗，one hundred percent；普京打乌克兰了吗，one hundred percent“，足见该首歌曲体现的是爆料革命唯真不破的内核。该作词人提出要与郭先生单方面联系，排练的时候占用郭先生两个小时，在现场与一千人的队伍去排练，伴唱人员目前都是好莱坞最火的明星。该作词人还透露未来会与战友合作。
 
+撰稿、发布：骄子
 
-据悉，目前加拿大政府对乌克兰的援助总金额已达2.45亿加元。在当天的会议中，共筹集了124亿美元针对乌克兰难民的人道主义捐款。欧盟主席对此表示，对乌克兰的援助将持续到战争之后，并帮助乌克兰人民重建家园。
+* * *
 
-此外，尽管特鲁多还宣布将为来加拿大的乌克兰难民提供包机服务，短期补助和长达两周的酒店住宿等援助计划，但却对此前向乌克兰提供军事支援和武器装备的承诺避而不谈。
+欢迎订阅我们的GNews账号：
 
-校对编辑：硫酸羟氯喹64
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-发稿：青青
-
-新闻来源：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
