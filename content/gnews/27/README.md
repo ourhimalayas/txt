@@ -2,34 +2,30 @@
 ---
 
 
-## 俄乌战争“没想到”系列之五：
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331173/)
+## 特鲁多政府将继续扩大联邦预算支出
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331269/)
 
-**视频制作：多伦多蓝莲花视频组**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-**第五个没想到：**
+据【真北方】4月7日报道，2022年联邦政府将继续扩大支出规模并因此新增560亿加元额外支出。自由党财政部长弗里兰当天向下议院提交了该预算案文件。
 
-**没想到俄罗斯国内反战情绪如此高涨。这点怕是普京大帝根本没有想到的。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1336.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/)
 
-**独裁者的自负都决定了他们想不到内部会有人反自己，从身边寡头的分崩离析，到俄罗斯全国性的反战示威活动，到俄罗斯前线士兵爆料的被骗上战场。**
 
-**由此可以看出，这场战争连俄罗斯人自己都反对，俄罗斯内部的不团结是普京政权始料未及的。**
+据悉，新增支出包括80亿加元国防开支，100亿加元经济适用房计划以及对金融机构的进一步税收等。其中新增国防开支将用于升级加拿大航空航天防御系统并购买更多武器装备。同时，自由党政府还将企业的收入附加税提高了1.5%，达到16.5%。
 
-**这也告诉世界，独裁者不能代表人民，中共也不能代表中国人，独裁的政权与人民是势不两立的。**
+尽管特鲁多声称明年将债务削减一半以上，但联邦政府赤字预计在2021至2022年将高达1138亿加元。目前，加拿大的债务已超过1.11万亿加元，而以上新增预算对全体加拿大人来说，将意味着更高的税赋
 
-视频文案：wood(文斌）
-编辑与校对：冰糖葫芦喵
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+发稿：青青
+
+新闻来源： [https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/](https://tnc.news/2022/04/07/freeland-announces-56-billion-in-new-spending-in-2022-budget/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,20 @@
 ---
 
 
-## 4月11日乌克兰救援行动（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2331851/)
+## 卑诗省政府雇员仍被疫苗护照所困
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2331973/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E36B40A8-06C0-426A-A0AD-0AB34C337F94.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/047CD1E0-5F72-4F95-9095-4FAABFF93E99.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A81D7B44-7BD1-4801-855A-E81DAC8C1415.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7334FF64-F9A4-4B06-846C-0915A11925BF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/34B42F5D-2AA6-486A-ABFB-2AA09A6A3C37.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/834F66C2-5295-4101-B74A-7BBF0474DF95.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5A89628B-489B-4216-898F-950118C316D0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/62686AAE-AFF5-4C17-83B2-D0F857F19908.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D970A0C7-E3EA-4008-A204-37BFD07FDF91.png)
-发布：水涨船高
+加拿大温哥华扬帆农场    平民正道
+
+据【真北方】4月7日报道， 在加拿大各省都已逐渐取消各项疫情限制的同时，卑诗省政府却仍然对其雇员执行严厉的疫苗接种政策。
+
+报道称，卑诗省不仅计划扩大疫苗接种范围，还解雇了那些因未接种疫苗而被迫休假的政府雇员。尽管目前医疗系统面临严重的人员短缺，但该省卫生部仍然辞退了数千名未接种的医护人员。
+
+然而与省政府政策相悖的是，维多利亚市于4月8日取消了对市政雇员疫苗强制接种的要求，据悉其他市政府也计划效仿。同时法院对强制接种和不当解雇的诉讼也仍在继续。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

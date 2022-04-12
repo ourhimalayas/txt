@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 12:34 AM (UTC)`
+
+2022.04.11 晚  新中国联邦 | 新闻  郭先生谈战友在乌克兰前线救援的巨大意义；中共进行极限压力测试 并制造经济灾难、毁掉美元
+![img](https://media.gettr.com/group28/origin/2022/04/12/00/1c4706bf-3c13-0304-8c3c-af2e47d5045f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/11/2022 11:41 PM (UTC)`
 
 2022.04.11《The Fringe》 Episode 166<br/>中文同传：https://gettr.com/streaming/p14rtxg9cba
@@ -150,13 +157,6 @@ Wenyao had an interview with American Public Service Media. She said that the Ch
 
 2022.04.11 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 ![img](https://media.gettr.com/group23/origin/2022/04/11/14/49925cad-5f32-5dab-c33e-729aebb5b9f9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 2:52 PM (UTC)`
-
-MILES GUO's livestream 2022-04-1165t 试试直播 
-![img](https://media.gettr.com/group29/origin/2022/04/11/14/589731ed-4083-5ef8-0ca1-9078663e73a1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
