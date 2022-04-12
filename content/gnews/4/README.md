@@ -2,25 +2,23 @@
 ---
 
 
-## 俄乌战争｜乌克兰证实俄军在马里乌波尔地区使用化学武器
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333162/)
+## 俄乌战争｜车臣“战争狂人”称俄军将攻陷基辅
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333171/)
 
 **图/文｜CP**
 **发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜烏克蘭證實俄軍在馬里烏波爾地區使用化學武器.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜車臣「戰爭狂人」稱俄軍將攻陷基輔.jpg)
 
 [点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-乌克兰媒体12日引述守军发出的报告指出，俄军使用无人机对被包围在钢铁厂范围内的亚速营（Azov）部队投放有毒物质，伤者出现呼吸困难及神经系统失常症状，怀疑是化学武器。
+俄罗斯车臣共和国总统卡德罗夫（Ramzan Kadyrov）周一（11日）表示，俄罗斯军队在夺取乌东顿巴斯地区（Donbas）以后，还将对基辅及其他乌克兰城市发起进攻。
 
-美国国防部新闻秘书约翰·科比表示，五角大楼正在密切关注此事，如经证实，这将是俄军首度对乌克兰动用化学武器，代表俄乌冲突的重大升级，并对北约的行动构成直接挑战。
+卡德罗夫指出，俄军未来除了乌克兰南部重镇马里乌波尔（Mariupol），亦会向其他城市和村庄发动攻势。这位被外界称为“战争狂人”的卡德罗夫强调，“我可以保证，普京一步都不会退让，拿下基辅是毫无疑问的。”。
 
-乌克兰总统泽连斯基（Volodymyr Zelensky）11日深夜发表讲话，证实俄军威胁将在马里乌波尔（Mariupol）地区使用化学武器。马里乌波尔内的亚速营（Azov）部队被包围在城内的钢铁厂，情况危在旦夕，惟守军重申不会投降将死守至最后。
+车臣自俄乌开战初期就已派遣部队协助俄军，其后被揭露损伤惨重，就连车臣军队第二号人物图沙耶夫（Magomed Tushayev）亦被传阵亡。
 
-美国官员过去几天一直对外警告，俄军极有可能会继续他们的“暴行”，加倍袭击乌克兰东部地区，并作出类似叙利亚内战期间使用化学武器的野蛮行为。周一，普京任命在叙利亚立下战功，外号“叙利亚屠夫”的冷血战将德沃尔尼科夫全权指挥对乌克兰的侵略行动，对此，新中国联邦发起人郭文贵先生担心，乌克兰恐怕会迎来一场毁灭性攻击。
-
-來源｜[CNBC](https://www.cnbc.com/2022/04/11/pentagon-monitoring-reports-of-possible-russian-chemical-weapons-attack-in-mariupol.html)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3455161-russias-chemical-attack-on-mariupol-three-persons-affected.html)
+來源｜[路透社](https://www.reuters.com/world/europe/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-2022-04-11/)
 
 * * *
 

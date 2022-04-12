@@ -2,50 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.12）打完康希诺后副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333125/)
+## 俄乌战争｜乌克兰证实俄军在马里乌波尔地区使用化学武器
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333162/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜烏克蘭證實俄軍在馬里烏波爾地區使用化學武器.jpg)
 
-#### 整理：gardeniahu
-编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-19.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-原文作者：许予
-
-**疫情|新冠疫苗副作用     打完康希诺后副作用**
-
-#新冠疫苗 #康希诺疫苗 我真的会谢，家人们。打完疫苗第二天，头疼疼了一天，轻微发烧，下午耳朵疼，之后累的不行，睡了半小时之后，好了点。第三天大姨妈直接提前了，而且脸上长了一片点点而且还痒。无语了，我能确定不是我用的护肤品的问题。我的那套水乳都用了2，3套了。脸上一点问题都没有。打个疫苗给我整成这样。
-
-发布于04.10
-
-精选评论
-
-你与时光皆薄凉回复：我也谢了，8号打的第三针，当天没啥事，就是胳膊疼，9号半夜开始身上局部痒，10号一天全身痒，一晚上没睡好，半夜头痛，眼睛疼……我感觉我快要死了。
-
-初遇回复：我们新冠kx疫苗后确诊急性髓系白血病。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-26.png)图片来源：小红书
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-7.png)图片来源：小红书
+乌克兰媒体12日引述守军发出的报告指出，俄军使用无人机对被包围在钢铁厂范围内的亚速营（Azov）部队投放有毒物质，伤者出现呼吸困难及神经系统失常症状，怀疑是化学武器。
 
+美国国防部新闻秘书约翰·科比表示，五角大楼正在密切关注此事，如经证实，这将是俄军首度对乌克兰动用化学武器，代表俄乌冲突的重大升级，并对北约的行动构成直接挑战。
 
-参考链接：[打完康希诺后副作用](https://www.xiaohongshu.com/discovery/item/625286f5000000000c03157c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649658227)
+乌克兰总统泽连斯基（Volodymyr Zelensky）11日深夜发表讲话，证实俄军威胁将在马里乌波尔（Mariupol）地区使用化学武器。马里乌波尔内的亚速营（Azov）部队被包围在城内的钢铁厂，情况危在旦夕，惟守军重申不会投降将死守至最后。
 
-发布*：wenly*
+美国官员过去几天一直对外警告，俄军极有可能会继续他们的“暴行”，加倍袭击乌克兰东部地区，并作出类似叙利亚内战期间使用化学武器的野蛮行为。周一，普京任命在叙利亚立下战功，外号“叙利亚屠夫”的冷血战将德沃尔尼科夫全权指挥对乌克兰的侵略行动，对此，新中国联邦发起人郭文贵先生担心，乌克兰恐怕会迎来一场毁灭性攻击。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+來源｜[CNBC](https://www.cnbc.com/2022/04/11/pentagon-monitoring-reports-of-possible-russian-chemical-weapons-attack-in-mariupol.html)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3455161-russias-chemical-attack-on-mariupol-three-persons-affected.html)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

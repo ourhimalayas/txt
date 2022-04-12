@@ -2,23 +2,21 @@
 ---
 
 
-## 俄乌战争｜俄罗斯外长：对乌克兰军事行动不会停止
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333180/)
+## 俄乌战争｜奥地利总理对化解冲突感悲观 称普京已进入“战争逻辑”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333194/)
 
 **图/文｜CP**
 **发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜俄羅斯外長：對烏克蘭軍事行動不會停止.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜奧地利總理對化解衝突感悲觀-稱普京已進入「戰爭邏輯」.jpg)
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+[點擊關注官方蓋特](https://www.gettr.com/user/hktwfrontline)
 
 
-俄罗斯外长拉夫罗夫（Sergei Lavrov）4月11日接受俄媒访问时表示，俄罗斯向乌克兰发动的军事行动，旨在终结美国在国际舞台上的完全主导地位和鲁莽扩张，而俄罗斯是不服从华盛顿意愿的国家之一。
+奥地利总理内哈默（Karl Nehammer）11日与俄罗斯总统普京（Vladimir Putin）进行会谈后坦言，普京的“战争逻辑”令人感到悲观，并形容与普京的会谈过程非常艰难。他说，“我们不应该抱有任何幻想，普京已经进入到自己的战争逻辑中，他正在采取相应行动，他希望透过迅速的军事行动成功拿下乌克兰”。
 
-他又指责欧盟外交与安全政策高级代表博雷利（Josep Borrell）呼吁欧盟成员国继续向乌克兰提供军援的言论令人发指，认为这是鼓励俄军在乌克兰进行更多战斗。
+内哈默是俄乌战事爆发以来，首位与普京面对面会晤的欧盟国家领袖。奥地利并非北约成员国，数十年来与俄罗斯保持着相当友好的外交关系，故一贯将自己设定成俄罗斯与欧洲利益分歧的调解人。内哈默透露，他觉得俄罗斯方面对与乌克兰总统泽连斯基进行直接会晤的提议几乎没有兴趣。
 
-至于俄乌谈判，拉夫罗夫指出，俄乌双方2月底展开首轮谈判时，总统普京（Vladimir Putin）曾下令暂停军事行动，但如今立场已变，因发现乌克兰人并不打算采取对等做法。他强调，除非达成最终协议，否则俄罗斯的军事行动不会停止。
-
-來源｜[FirstPost](https://www.firstpost.com/world/russia-wont-pause-hostilities-amid-talks-with-ukraine-says-sergei-lavrov-10545181.html)
+來源｜[卫报](https://www.theguardian.com/world/2022/apr/11/austrian-chancellor-to-tell-putin-he-has-lost-the-war-morally)
 
 * * *
 
