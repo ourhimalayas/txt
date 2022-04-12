@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 11:20 PM (UTC)`
+
+中共走狗郑介甫近日被澳洲驱逐出境<br/><br/>CCP's Running Dog Zheng Jiefu Expelled From Australia<br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/04/12/23/ad965ed1-cbd5-cc07-db59-6a9d5de78489/out.jpg)
+
+---
+
 `@miles 4/12/2022 11:10 PM (UTC)`
 
 4/10/2022 Miles Guo: Lao Baixing rushed to take the COVID vaccines because of their ignorance and fear of death; dictators such as Xi Jinping and Putin are aware that only when Lao Baixing live in wars, fear and starvation, will the dictators themselves stay safe.<br/><br/>4/10/2022 文贵直播：老百姓抢着打疫苗是因为无知和对死亡的恐惧；独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全。<br/><br/>
@@ -145,13 +152,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 `@miles 4/12/2022 4:04 PM (UTC)`
 
 4月12号, 郭文贵先生两首新歌上线第九天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/>澳大利亚 🇦🇺，斐济🇫🇯 摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/><br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 斐济，老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2334530/
-
----
-
-`@miles 4/12/2022 3:57 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月11日第38天当日救援统计：<br/>Medyka救援站接待：约224人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10877人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 38 - Date: April 11, 2022 :<br/>Medyka Rescue Station Reception: about 224 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10877 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group13/getter/2022/04/12/15/48f95a0c-1423-3d2f-ec51-36b4709f5b88/9a22d86c8be56ac0f22488827750e1bf.jpg)
 
 ---
 

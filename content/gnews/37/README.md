@@ -2,28 +2,28 @@
 ---
 
 
-## 日本首现奥米克戎XE变异株病例
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2335804/)
+## 马里乌波尔市民呼吸衰竭 俄军用无人机投下化学武器
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336047/)
 
-作者：香草山— Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月11日，据日本厚生劳动省通告，日本已在一名女性抵达东京附近的成田机场后确认了首例中共病毒奥米克戎XE变异株。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/da57cbc9af18449b9b29d2fe913e409c.png)sohu
-厚生劳动省表示，这名 30 多岁的女子一直留在美国，没有出现任何症状，她于 3 月 26 日抵达机场，这名妇女已经接种了两针辉瑞公司开发的疫苗，但她在抵达时检测出病毒呈阳性。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+当地政府证实，在俄罗斯军队持续进攻的乌克兰东南部马里乌波尔，俄罗斯军队使用了某种有毒物质，导致当地市民陷入呼吸衰竭。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1450-edited.png)图片来源：ABEMR TIMES
+据马里乌波利市议会11日描述，俄军对乌克兰军队和市民们使用了某种有毒物质，导致市民们陷入呼吸衰竭。
 
-据报道，这是日本境内首次发现感染奥米克戎XE变异株的病例。
+乌克兰驻土耳其大使馆发布有毒物质是由无人机投下的。很可能是俄罗斯军队使用了化学武器。
 
-据悉，该毒株是奥米克戎变异株中 BA.1 和 BA.2 亚型的组合。其感染率比 BA.2 高12.6%，然而截止发稿时，该毒株详细的病理生理特征尚未完全清晰。
+此外，马里乌波尔的市长在接受美联社采访时痛诉惨状：“街道上遗体铺得像地毯一样”，整体死亡人数可能超过2万人。
 
-参考链接：[Japan confirms 1st case of Omicron XE variant in airport arrival](https://japantoday.com/category/national/japan-confirms-1st-case-of-omicron-xe-variant-in-airport-arrival)
+译者评：在俄罗斯侵略乌克兰的这场战争中，乌克兰平民死伤无数，俄军从炮火无差别打击，再到直接以平民为目标的火车站袭击、布查屠杀，如今甚至对平民使用化学武器，行径越发惨无人道，在没有信仰、完全以独裁者的命令为行动准则的军队中，人性、良知早已烟飘云散。族秦者，秦也，非天下也，普京的所作所为都将成为他走向处刑台的一步步台阶，世上所有的独裁者，皆是如此
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+参考链接：[市民らが呼吸不全に陥る ロシア軍がドローンから有毒物質を投下か（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7391f2d48c46d41fe7273731e91a6b8241168c8e)
 
-编辑：文恩
-总编：文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+* * *
+
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

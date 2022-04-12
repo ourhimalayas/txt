@@ -2,25 +2,22 @@
 ---
 
 
-## 秘翻在线: 中共政权如惊弓之鸟处处设防
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2336458/)
+## 樱花时政┃传四名维吾尔人将被遣返，联合国不作为
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336534/)
 
-撰稿：西枫westca
+撰稿：东京樱花团/上善若水
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-2.jpg)图片来源：Reuters
-据京报网4月10日报道，中共国中央第九轮巡视组已进入15个被巡视单位，开始工作。
+近日传出4名维吾尔人在沙特利雅得遭逮捕，并将被遣返中共国，据悉，维族女性阿布拉与她的女儿，3月31日在沙特麦加遭警察逮捕。除了这对母女，将一同被遣返中共国的还有另外两名维吾尔男子，他们2020年在麦加遭警方逮捕后被关押至今。针对两人可能遭沙特遣返回中共国，联合国人权专家4月1日曾发表联合声明，呼吁沙特开放信息，并确定他们的下落。
 
-巡视工作将持续两个月，并会设立专门值班电话和邮政信箱，主要受理反映被巡视党组织领导班子及其成员、下一级党组织领导班子主要负责人和重要岗位领导干部问题的来信来电来访，重点是关于违反政治纪律、组织纪律、廉洁纪律、群众纪律、工作纪律和生活纪律等方面的举报和反映。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.hrw.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fopengraph%2Fpublic%2Fmedia_2020%2F11%2F202010MENA_Saudi_G20.jpg%3Fh%3Dc673cd1c%26itok%3D26Bj027m&amp;imgrefurl=https%3A%2F%2Fwww.hrw.org%2Fzh-hans%2Fnews%2F2020%2F11%2F23%2F377113&amp;tbnid=eWLXlOfrkQTZGM&amp;vet=12ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ..i&amp;docid=Q04u4UEkDzoisM&amp;w=1200&amp;h=630&amp;q=%E6%B2%99%E7%89%B9%E9%81%A3%E8%BF%94%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA&amp;ved=2ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ)
 
-上榜的被巡视单位居然包括了国务院办公厅、中央办公厅、中央国家安全委员会办公室、国家安全部、中央保密办、国家发改委、国务院研究室、国务院港澳事务办公室、中央组织部、中央纪委国家监委机关、国家税务总局、国家铁路局、中国民用航空局等中共国最高级行政机构。
+海外维吾尔人遭受自由甚至生命风险的同时，联合国人权高管的立场也饱受质疑。联合国人权专员巴切莱特曾传出将于5月访问中共国，并称她可能进入新疆视察人权状况。在此之前，巴舍莱尝试申请视察新疆多年，但中共政府始终未批准申请。
 
-在境内外形式极为紧张之时，习总加速师如此动作，预示满朝皆为敌、这是预防内部动乱吗？
+信息来源：[传四名维吾尔人将被遣返中国 联合国遭质疑立场消极](https://www.dw.com/zh/%E5%82%B3%E5%9B%9B%E5%90%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E4%BA%BA%E5%B0%87%E8%A2%AB%E9%81%A3%E8%BF%94%E4%B8%AD%E5%9C%8B-%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E8%B3%AA%E7%96%91%E7%AB%8B%E5%A0%B4%E6%B6%88%E6%A5%B5/a-61443793)
 
-**新闻来源：**[十九届中央第七轮巡视完成反馈\_京报网 (bjd.com.cn)](https://news.bjd.com.cn/2021/09/05/167300.shtml)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
