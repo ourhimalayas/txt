@@ -17,6 +17,25 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 4:06 PM (UTC)`
+
+04/12/2022 on the 9th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Fiji 🇫🇯  Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia,Fiji, Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2334531/
+
+---
+
+`@miles 4/12/2022 4:04 PM (UTC)`
+
+4月12号, 郭文贵先生两首新歌上线第九天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/>澳大利亚 🇦🇺，斐济🇫🇯 摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/><br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 斐济，老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2334530/
+
+---
+
+`@miles 4/12/2022 3:57 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月11日第38天当日救援统计：<br/>Medyka救援站接待：约224人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约10877人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 38 - Date: April 11, 2022 :<br/>Medyka Rescue Station Reception: about 224 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 10877 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group13/getter/2022/04/12/15/48f95a0c-1423-3d2f-ec51-36b4709f5b88/9a22d86c8be56ac0f22488827750e1bf.jpg)
+
+---
+
 `@miles 4/12/2022 3:40 PM (UTC)`
 
 2022.04.12 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -134,27 +153,6 @@
 
 4/10/2022 Miles Guo: The Japanese government and the leaders of some European countries appreciated the New Federal State of China for rescuing refugees on the front line of the Russian-Ukrainian war; many dignitaries from different countries have secretly contacted Mr. Guo about the recognition of the NFSC as a legitimate state; the Jews, who are in deep collusion with the Chinese Communist Party, are also grateful for the NFSC rescuing their people<br/><br/>4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系；与中共勾兑极深的犹太人也感激新中国联邦人的救助<br/>
 ![img](https://media.gettr.com/group12/getter/2022/04/12/01/de4edaba-8caf-93bf-632f-ed73572eeb2c/out.jpg)
-
----
-
-`@miles 4/12/2022 1:05 AM (UTC)`
-
-2022.04.11 晚  新中国联邦 | 新闻访谈   上海封城灾难持续，百姓苦不堪言；国内的病毒用药建议；全球水-粮食-能源危机即将到来，人类与我们的G系列未来会怎样？
-![img](https://media.gettr.com/group5/origin/2022/04/12/01/f31c1223-6013-8151-ac5e-7e896788975f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/12/2022 12:34 AM (UTC)`
-
-2022.04.11 晚  新中国联邦 | 新闻  郭先生谈战友在乌克兰前线救援的巨大意义；中共进行极限压力测试 并制造经济灾难、毁掉美元
-![img](https://media.gettr.com/group28/origin/2022/04/12/00/1c4706bf-3c13-0304-8c3c-af2e47d5045f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/11/2022 11:41 PM (UTC)`
-
-2022.04.11《The Fringe》 Episode 166<br/>中文同传：https://gettr.com/streaming/p14rtxg9cba
-![img](https://media.gettr.com/group50/origin/2022/04/11/23/0c45f8fa-fb1f-a43f-df77-814ae08142a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
