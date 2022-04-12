@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 10:49 PM (UTC)`
+
+4/12/2022 Miles Guo’s GETTR: Nancy Pelosi could visit Taiwan at any time. Will the tragedy of exchanging sex for food in Shanghai and Changchun repeat itself in Beijing? The CCP is finished. Some South American countries are standing with the New Federal State of China. Soon we will see the Himalaya Coin become the earliest and the most popular digital currency to be recognized as a legal tender, while the Renminbi will become the equivalent of the currency used for committing crimes!<br/><br/>4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！<br/>
+![img](https://media.gettr.com/group24/getter/2022/04/12/22/5996fcf5-6f87-2159-6768-1341988a7f8d/out.jpg)
+
+---
+
+`@miles 4/12/2022 10:44 PM (UTC)`
+
+4/12/2022 Miles Guo’s GETTR: Belgian Prime Minister Alexander De Croo took the initiative to walk over to the tent of the New Federal State of China. He asked Nicole, who was wearing the yellow vest with the slogan of taking down the Chinese Communist Party, to take a photo with him, and he was interviewed by our fellow fighters. Merkel and Sarkozy are political war criminals, who have deceived the world, colluded with the CCP, and cultivated Xi Jinping and Putin, causing countless humanitarian disasters to happen in Communist China and Ukraine.<br/><br/>4/12/2022 文贵盖特：比利时首相亚历山大·德克罗主动走到新中国联邦帐篷前，要求和穿着灭共马甲的Nicole合影，并接受了战友们采访；默克尔和萨科齐是政治战犯，他们欺骗了世界并跟共匪勾兑，是他们培养了习和普京，造成无数人道灾难发生在中共国和乌克兰<br/>
+![img](https://media.gettr.com/group42/getter/2022/04/12/22/5dc5e7c8-598b-ac3b-17ba-7ac6a2b40d39/out.jpg)
+
+---
+
 `@miles 4/12/2022 10:33 PM (UTC)`
 
 4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexandra De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
@@ -138,21 +152,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
  4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！
 ![img](https://media.gettr.com/group16/getter/2022/04/12/14/048ed0ad-9965-024a-c3de-92a87a639f26/out.jpg)
-
----
-
-`@miles 4/12/2022 2:32 PM (UTC)`
-
-【乌克兰救援】04/12/22 波兰当地时间4月12日上午10点，比利时总理亚历山大·德克罗出现在了梅迪卡救援中心。新中国联邦的记者妮可向他介绍了我们的救援工作，并赢得了赞许：作为人类，我们需要互相帮助，这是最重要的事情，非常高兴听到你们对难民施以援手。<br/><br/>【Ukraine Rescue】04/12/22 On April 12, Poland, 10 am local time, Belgian Prime Minister Alexander De Croo appeared at the Medyka Rescue Center. Nicole, the correspondent of the NFSC, introduced him to our rescue work and won praise: as humans we need to help each other, and that is the most important thing... and happy to hear that you are helping them.
-![img](https://media.gettr.com/group7/getter/2022/04/12/14/f38d8e25-85df-062e-92b6-b79fe6be6858/out.jpg)
-
----
-
-`@miles 4/12/2022 1:36 PM (UTC)`
-
-♥️
-> `@himalayavang 4/12/2022 1:26 PM (UTC)`<br/>2022年4月12日 #乌克兰救援 前线：比利时首相亚历山大·德克罗，听妮可战友介绍新中国联邦救援信息及消灭共产党等目标后，对新中国联邦的付出表示感谢并主动提出要与战友合影。<br/><br/>比利时是欧盟的首府，在全球政治上具有非常重要的意义，德克罗总理是首位来Medyka的外国元首。<br/>#乌克兰 #乌克兰战争<br/>#我们爱好和平<br/>#我们和乌克兰人民站在一起<br/>#法治基金和法治社会 
-![img](https://media.gettr.com/group42/getter/2022/04/12/13/6a82888b-3fa3-4670-d878-45ad26e1580d/13a0a455c57e805f24fc8522a2dafb3f.jpg)
 
 ---
 
