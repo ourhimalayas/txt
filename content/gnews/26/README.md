@@ -2,25 +2,25 @@
 ---
 
 
-## 辉瑞公司新增大量雇员处理疫苗伤害案件
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2332519/)
+## 疫情｜日本惊现Omicron亚种混合毒株“XE” 未确定是否蔓延
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2332650/)
 
-采编/撰稿：   加拿大温哥华扬帆农场 – 薇文
+**疫情关注组 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-7.png)▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+日本厚生劳动省11日宣布，3月26日自成田机场发现一例Omicron亚种混合毒株“XE”的病例，为日本首例XE确诊（境外移入）。该确诊者曾滞留美国，入境日本经检测成阳性，本身为无症状感染，经隔离、治疗后已痊愈出院。日本国立传染病研究所表示，目前无法证实XE是否在境内扩散，并引述英国资料称在英国的XE传染力较日本目前主流的BA.2高出12.6%。
 
-英国[新闻调查]4月9日报道，[美国食品和药物管理局]最近公布的文件证实：为处理因新冠病毒疫苗接种而出现的健康伤害案例，辉瑞公司专门增加了大量新雇员。
+英国于今年1月19日发现这款混合体；台湾于3月18日发现第一例境外移入个案；日本于3月26日发现第一例境外移入个案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1386.png)图片来源：TECHAPP
+厚生劳动省谘询机构6日表示，新冠病毒在日本的感染情形，在所有年龄段都有增加，特别是10-20多岁的年龄层，怀疑疫情再起仍是日本主流Omicron BA.2。厚生劳动省数据显示，截至上周周五的一周，日本新增感染人数较前一周增加了1.08倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-12-上午11.28.04.png)
+日本国家传染病研究所评估，为应对未来的疫情冲击，有必要加强对老年人口的医疗系统，建议受感染的老年人口根据自身健康状况和意愿决定在家或疗养机构就医，并强调长期住院恐导致身心功能退化。传染病研究所所长呼吁“全民与企业携手，降低感染风险”。
 
+来源｜[YAHOO](https://news.yahoo.co.jp/articles/9616743bda697b7d271dec947746973ea9b459d4)、[讀賣新聞](https://news.yahoo.co.jp/articles/2e040ed66f77fa2e80cbc822fb312a53c5eee84b)
 
-据悉，自2021年6月，辉瑞至少新增了1800名雇员以专门协助处理因接种该公司生产的mRNA疫苗而出现的大量副作用案例报告。但这些新雇员是否能足够应对不断激增的疫苗伤害病例，目前还尚不得知。
+* * *
 
-截止今年3月底，仅英国医药监管机构就收到近17万份的疫苗伤害报告。但[美国食品和药物管理局]对此却避而不提，或许这是该局计划在75年之后才公布辉瑞疫苗成分及其伤害数据的主要原因。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,42 +2,52 @@
 ---
 
 
-## 乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331754/)
+## 耶伦呼吁对加密货币加强监管以降低风险和减少欺诈
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2331979/)
 
-翻译：多伦多蓝莲花-灭共文明
+**据《ABCnews》作者：FATIMA HUSSEIN，2022年4月7日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/agwh1-mtmxl.jpg)图片来源：美联社
+华盛顿——财政部长珍妮特-耶伦(Janet Yellen)表示，需要更多政府监管来控制加密货币扩散，并防止欺诈或非法交易。
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》基辅4月11日报道，**乌克兰周一表示，在俄罗斯对东南部城市马里乌波尔的攻击中，可能有数万人被杀，同时乌克兰权利监察员指责俄罗斯军队在该地区实施酷刑和处决。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download2-e1649721920438.jpg)2022年4月8日，在乌克兰基辅地区的Borodyanka，77岁的Mariya哭了，她的女儿和女婿死在被俄罗斯炮击摧毁的建筑物的废墟下。（图片来源：路透社）
-路透社已证实马里乌波尔遭到广泛破坏，该城市位于俄罗斯吞并的克里米亚和由俄罗斯支持的分离主义分子控制的乌克兰东部地区之间。
+一个潜在的好处是，用户将获得他们的加密货币交易文件，以便在报税时使用。
 
-**如果数字得到证实，这将是迄今为止乌克兰一个地方报告的最高死亡人数，**那里的城市、城镇和村庄都受到了无情的轰炸，包括平民在内的尸体在街上随处可见。
+耶伦周四在美国大学的讲话中认为：“纳税人应该得到与股票和债券交易相同类型的数字资产交易的纳税报告，这样他们就有了向国税局报告收入所需的信息。”
 
-**乌克兰总统泽伦斯基在向韩国议员发表视频讲话时表示，马里乌波尔已被摧毁，数万人死亡，但即便如此，俄罗斯也没有停止进攻。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download1.jpg)2022年4月9日，在乌克兰切尔尼戈夫，62岁的蒂托娃走在被俄罗斯炮击摧毁的房子（图片来源：路透社）
-**马里乌波尔市市长的助手彼得罗-安德里申科**（Petro Andryushchenko）周一在Telegram上说，**俄罗斯军队放慢了出发前的检查**。他说，大约有1万人在等待俄罗斯军队的检查。**俄罗斯不允许军事人员与平民疏散人员一起离开。**
+这是自总统拜登(Joe Biden)3月份签署关于数字资产的行政命令以来，耶伦首次发表关于加密货币的讲话。
 
-乌克兰人权监察员柳德米拉·杰尼索娃援引马里乌波尔市政府的数据称，**马里乌波尔有3.3万居民被驱逐到俄罗斯或乌克兰东部由俄罗斯支持的分裂分子控制的地区。**
+在政府的行动之前，今年有几个引人注目的涉嫌加密货币洗钱和欺诈的例子。
 
-杰尼索娃在Telegram上发帖说，有目击者报告称，**俄罗斯国民警卫队和卡德罗夫车臣部队正在进行非法逮捕，对被拘留者实施酷刑，并以亲乌克兰的立场为理由而将他们处决。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SJYJ6MSHBFNSRDKSH4HKXYZS7Q.jpg)2022年4月7日，乌克兰马里乌波尔，亲俄军队士兵在乌克兰-俄罗斯冲突中检查街道。（图片来源：路透社）
-**乌克兰副总理伊琳娜·韦列舒克（**Iryna Vereshchuk）告诉路透社，**俄罗斯军队设置的马里乌波尔至扎波罗热之间的走廊上的检查站数量，**从3个增加到15个，**使得撤离变慢。**
+2月，司法部宣布其有史以来最大的金融扣押案——超过36亿美元——并逮捕了一对夫妇，他们被指控密谋清洗2016年虚拟货币交易所被盗的数十亿美元的加密货币。
 
-韦列舒克在Telegram上说，马里乌波尔是周一与俄罗斯商定的九条**人道主义走廊**之一，用于从被围困的东部地区疏散人员，但其走廊**只对私家车开放，不允许巴士离开。**
+今年3月，联邦监管机构指控两兄妹在涉及一种数字代币的未注册证券发行中诈骗数千名投资者，骗取1.24亿美元。
 
-**乌克兰政府表示，俄罗斯军队正在集结，准备对包括马里乌波尔在内的东部地区发动新的攻势，**那里的人们已经连续数周没有水、食物和能源供应。
+“我们将提出政策建议，包括评估潜在的监管行动和立法变革。”耶伦说。
 
-新闻来源链接：
-[Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses | Reuters](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
+她的讲话集中在减少数字货币对金融系统风险的重要性，同时保持美元的国际地位。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+她说：“我们对确保创新不会导致国际支付架构的分裂有着强烈的兴趣。”她补充说，“在未来六个月，财政部将与白宫和其他机构合作，制定关于数字货币的报告和建议。”
+
+拜登的加密货币行政命令敦促美联储探讨中央银行是否应该创建自己的数字货币，并指示联邦机构，包括财政部，研究加密货币对金融稳定和国家安全的影响。
+
+耶伦认为，随着银行和其他传统金融公司更多地参与数字资产市场，监管将需要“适当地反映这些新活动的风险”。
+
+耶伦说：“我们的监管框架应旨在支持负责任的创新，同时管理风险——特别是那些可能扰乱金融系统和经济的风险。”
+
+立法者和政府官员也表示担心，俄罗斯可能正在利用加密货币来避免过去几周因入侵乌克兰而对银行、寡头和能源行业实施的雪崩式制裁的影响。
+
+但财政部官员和加密货币专家表示，加密货币不是制裁的变通办法。
+
+**文章来源**:[https://abcnews.go.com/Business/wireStory/yellen-calls-crypto-regulation-reduce-risks-fraud-83929112](https://abcnews.go.com/Business/wireStory/yellen-calls-crypto-regulation-reduce-risks-fraud-83929112)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
