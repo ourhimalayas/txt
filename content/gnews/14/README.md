@@ -2,29 +2,28 @@
 ---
 
 
-## 上海放松封城政策 沪京高铁票抢售一空
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2333152/)
+## 俄乌战争｜车臣“战争狂人”称俄军将攻陷基辅
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333171/)
 
-作者：香草山教育部-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-综合媒体4月12日报道，中共上海市日前终于放松了对当地部分居民的管控措施，部分居民在两周多以来首次走出家门。同时，据中共铁路官方网站12306显示，本周上海直达北京、杭州、南京等多地的高铁票目前已经售罄。
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜車臣「戰爭狂人」稱俄軍將攻陷基輔.jpg)
 
-据了解，上海市近日来已被中共病毒攻陷，日单增阳性感染者已连续保持在2万人以上，疫情形势严峻程度已超过2020年的武汉封城时期。然而，上海当局却在本周一发布消息称，当地的7000多个住宅单位在14天内没有报告新感染病例后被归类为低风险地区，部分市民于周二被允许离开他们的住所。消息发出当日，上海到达包括北京在内的多个城市的火车票随即被销售一空，上海疫情溢出风险亦随之飙升。
-
-此前，郭文贵先生曾在盖特中警告称，继上海之后，北京将成为下一个因疫情被封锁的重点城市。中共当局将借助疫情对北京、大连、福建等多座城市继续进行封城、断粮的压力测试，使中共国民众在未来长期挣扎在维生的红线上，无暇顾及国内的疫苗灾难和经济危机。中共将借防疫之手来实现自己对中共国民的绝对统治和缩减人口的邪恶目的。
-
-参考链接：[https://www.reuters.com/world/asia-pacific/shanghai-lets-some-residents-leave-home-cautiously-eases-covid-curbs-2022-04-12/ http://travel.china.com.cn/txt/2022-04/07/content\_78152007.html](https://www.reuters.com/world/asia-pacific/shanghai-lets-some-residents-leave-home-cautiously-eases-covid-curbs-2022-04-12/%20%20http://travel.china.com.cn/txt/2022-04/07/content_78152007.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+俄罗斯车臣共和国总统卡德罗夫（Ramzan Kadyrov）周一（11日）表示，俄罗斯军队在夺取乌东顿巴斯地区（Donbas）以后，还将对基辅及其他乌克兰城市发起进攻。
+
+卡德罗夫指出，俄军未来除了乌克兰南部重镇马里乌波尔（Mariupol），亦会向其他城市和村庄发动攻势。这位被外界称为“战争狂人”的卡德罗夫强调，“我可以保证，普京一步都不会退让，拿下基辅是毫无疑问的。”。
+
+车臣自俄乌开战初期就已派遣部队协助俄军，其后被揭露损伤惨重，就连车臣军队第二号人物图沙耶夫（Magomed Tushayev）亦被传阵亡。
+
+來源｜[路透社](https://www.reuters.com/world/europe/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-2022-04-11/)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,41 @@
 ---
 
 
-## Any Ignorance from Our Fellow Fighters Will Not Be Worthy of Our Brother and Sisters
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2333195/)
+## 泽连斯基就俄军动用化学武器发出警告，西方考虑对俄实施新制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333225/)
 
-I truly appreciate all of you, no words can express my appreciation. Anybody who ignore our fellow fighters at the frontline, anybody who ignore our fellow fighters, who are facing such danger, the danger of the virus, are not our brothers and sisters.
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**【Miles Guo’s Broadcast Highlights】2022.4.3 Any Ignorance from Our Fellow Fighters Will Not Be Worthy of Our Brother and Sisters**
+#### 整理/编辑：围剿维尼熊
 
-**Miles:**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/DEDDCABE-5581-4547-AB42-B8538F57F6DE.jpg)图片来源：微博
 
-Those big shots of the world，one tycoon from Wall Street. A guy you read about everyday on the newspaper said, Miles, give me a few of your vests. My grandson wanted your vests. I asked why? He said that is great, he used to support the CCP, treat the CCP like his daddy, next to the bridge water. He is the second person who mostly invested in China, an investor of HNA, one of the earliest investors. Now he supports our whistleblower movement. He has been watching our support with Ukraine, he asked why you guys support Ukraine? I said, a promise to God, no specific purpose or interests, this is to let people know that we cannot be represented by the CCP. We are the Chinese people who are going to take down the CCP. We are preventing anti-Chinese activities, simple like that and nothing else.
 
-Nobody is like me who worries about our brothers and sisters everyday. Those who are at the frontline of this war. That’s right, facing the danger of the virus can potentially get infected at any given moment, we must also endure criticism. I said we only have one goal here, to promote the NFSC and ROLF, to show that we are different from the CCP, simple like that. This guy was so touched, you know why he decided to change now, did you know? His son attended school in the UK, he needed to go to the UK for the graduation ceremony, must be vaccinated, just one shot, half paralyzed at home. You all know this guy, how many schools in Manhattan, how many hospitals he made donations to? Now, he was saved. Once he got to the hospital, after some assessments, a nurse said, this is the side effects of the vaccine. He was admitted in the hospital, getting a full blood clean up, stayed in the ICU for a few days, almost lost his life. This is the virus, the vaccine symptoms. They are all watching our broadcast about Ukraine, watching our work at the frontline.
+根据美国之音4月12日报道，乌克兰总统泽连斯基因为担心俄罗斯有可能在乌克兰使用化学武器，他敦促西方对俄罗斯实施更多的严厉制裁。
 
-I wanted to tell you guys, my brothers and sisters, just like what I said. No matter how handsome Eric is, how beautiful his voice is, he cannot tell you such story. This is my experience, this is the story, this is what you guys have done at the frontline. Our tent is like a book written by Jia Pingao, about a lamp in the darkness of Xin Jiang, in a shabby house. A house that was built by digging a hole, with a lamp in the room. I read this novel, I think you guys are the lamp. People of the Northwest still have hope. Eventually, the reporters located the lamp, heard people were having sex.
+泽连斯基在星期一(4月11日)的每晚视频讲话中说，目前，有未经证实的消息说，俄军在被围攻的南部港城马里乌波尔已经使用了化学武器。
 
-So, people still have hope, in this darkness, in this shabby house with sex noises. At such time hearing such noise, bring warmth to people, this is reproduction. Hope is in the reproduction, reproduction from a disaster. Also it creates hope, the only thing you cannot do is having sex out there, but your image of bringing hope to the world. Especially bringing hope to the Chinese people. I truly appreciate all of you, no words can express my appreciation. Anybody who ignore our fellow fighters at the frontline, anybody who ignore our fellow fighters, who are facing such danger, the danger of the virus, are not our brothers and sisters. If you guys needed something, I am willing to fulfill that request. Unless you guys don’t need it, not so much for the gentlemen, ladies are welcome.
+英国外交大臣丽兹·特拉斯说，英国已经听到有关报道。
 
-Video Clip: Wenzhi|Subtitle: Yushanxiqiaoke| Translator:Arthur| Proofread:TonyJ| Video/Script: lxymsg| Editor: Quentin| Publish:Little Bee
+五角大楼新闻秘书约翰·科比说，美国此刻无法证实使用化武的报道，如果属实，这些事件“令人深感关切”。
+
+星期一早些时候，俄罗斯宣称周末摧毁了乌克兰的几个防空系统。乌克兰总统泽连斯基警告说，俄罗斯有可能开始对乌克兰东部地区重新发动攻势。
+
+俄罗斯的说法无法得到独立证实，但是俄罗斯国防部发言人伊戈尔·科纳申科夫少将说，俄军星期日发射了巡航导弹，以摧毁乌克兰中部城市第聂伯罗南郊的四个防空导弹发射装置，还击中了尼古拉耶夫和哈尔科夫地区的防空系统。
+
+欧盟外长星期一开会讨论对俄罗斯实施新一轮制裁。与此同时，奥地利总理卡尔·内哈默在莫斯科会晤了俄罗斯总统弗拉基米尔·普京。
+
+内哈默在会晤之后发表的声明中说，他给普京的最重要讯息是，在乌克兰的战争必须停止，因为在一场战争中，双方都只会是输家。
+
+参考链接：[泽连斯基就俄军动用化武发出警告，俄军宣称摧毁多个乌军防空系统，乌东大战在即 乌克兰呼吁西方加大军援](https://www.voachinese.com/a/russia-claims-it-destroyed-ukrainian-air-defense-systems-20220411/6525121.html)
+
+发布：*wenly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

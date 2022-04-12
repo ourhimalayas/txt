@@ -2,24 +2,26 @@
 ---
 
 
-## 中日财经爆┃日本追加对俄制裁：冻结普京女儿资产 首次实行进口禁令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332959/)
+## 国际｜芬兰、瑞典讨论加入北约 俄罗斯“挑衅、不会带来稳定”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333035/)
 
-撰稿：东京樱花团/百花李香
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+外媒报导称，俄罗斯入侵乌克兰致瑞典、芬兰两中立国重新思考自身安全问题，瑞典执政党目前正在讨论是否应加入北约（NATO），而芬兰则将在未来数周内充分讨论并在6月底作出决定。 俄罗斯则将此视为挑衅行为，并警示“加入北约不会为欧洲带来稳定”。
 
-4月12日，作为对俄罗斯的追加制裁，政府决定冻结398名个人和28个组织的资产，其中包括普京的两个女儿。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-10.jpg)[图片来源](https://complyadvantage.com/wp-content/uploads/2021/10/romeo-a-Z8jc-XNTrGg-unsplash-1536x1024.jpg)
-除此之外，政府还决定采取措施，从4月19日起禁止从俄罗斯进口伏特加和其它酒精饮料、木材及机械。这是对俄罗斯的一系列制裁中首次包含了禁止进口措施。然而，现有的合同将被豁免三个月的时间。
+瑞典、芬兰两国并未具正式军事同盟关系，惟多项民调结果显示，自俄侵略乌之后，瑞典约5成民意支持瑞典加入北约、芬兰则为6成支持。
 
-为防止出现漏洞，本次将制裁范围扩大到了执政者的家人，制裁除普京的两个女儿之外，俄罗斯外长拉夫罗夫的妻子和其他人也被列入了名单。
+瑞典社会民主党周一声明表示“当俄罗斯入侵乌克兰时，瑞典的安全发生了本质的变化”。该党秘书长拜厄斯·鲍丁（Tobias Baudin）称，瑞典加入北约的安全审查将在“夏天前”完成。据外媒报导，瑞典政坛对于加入北约一事具高度共识，或持开放态度；芬兰部分，外媒称200名国会议员仅6名反对加入北约。
 
-另外，政府还决定冻结俄罗斯储蓄银行和阿尔法银行这两家最大银行的资产。并采取措施禁止5月12日之后在俄罗斯的新投资。
+北约秘书长延斯·斯托尔滕贝格公开表示，欢迎瑞典、芬兰两国申请加入，并将得到美、英、德、法、土耳其在内成员国的支持。对于两国申请加入北约，克里姆林宫视为挑衅，发言人德米特里佩斯科夫（Dmitry Peskov）本周一表示，两国可能加入北约一事，不会为欧洲带来稳定。
 
-信息来源：[プーチン氏娘の資産凍結　ロシア産ウオッカ、19日から禁輸　政府E](https://news.yahoo.co.jp/articles/42bb928128b0ac5b5fcf37b457c40dea5787771f#:~:text=%E3%83%97%E)
+来源｜[衛報](https://www.theguardian.com/world/2022/apr/11/sweden-and-finland-make-moves-to-join-nato)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,31 @@
 ---
 
 
-## 俄乌战争｜奥地利总理对化解冲突感悲观 称普京已进入“战争逻辑”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333194/)
+## 中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2333217/)
 
-**图/文｜CP**
-**发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜奧地利總理對化解衝突感悲觀-稱普京已進入「戰爭邏輯」.jpg)
+作者：撰稿人：纽约香草山教育部 子兵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
+中共國上海的武漢肺炎（新型冠狀病毒病，COVID-19）疫情升溫，美國國務院11日表示，考慮到中國「任意執法」的案例，命令美國駐上海總領事館的部分員工撤離，並建議公民重新考慮前往中國。
+美國國務院8日批准，美國駐上海總領館非緊急人員與家屬可自願撤離中國。而國務院11日再度發布通告，命令非緊急人員與家屬強制撤離，目前還不知道強制撤離的原因
 
-[點擊關注官方蓋特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_1-47.png)
+
+國務院11日聲明指出，由於中國的任意執法和與武漢肺炎相關的限制，建議重新考慮前往中國的旅行，此外因為疫情相關的限制，其中包括父母與孩子分離的風險，美國公民不應前往香港、吉林和上海。國務院還下令，強制要求非緊急美國政府僱員和所有家庭成員離開上海總領事館領區。
+上海目前面臨自武漢肺炎2019年12月首度在湖北省武漢市現蹤以來，最嚴重的一波疫情。上海政府12日通報，11日新增本土確診病例994例及無症狀感染2萬2348例。
+
+鏈接：[https://news.ltn.com.tw/news/world/breakingnews/3890273](https://news.ltn.com.tw/news/world/breakingnews/3890273)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-奥地利总理内哈默（Karl Nehammer）11日与俄罗斯总统普京（Vladimir Putin）进行会谈后坦言，普京的“战争逻辑”令人感到悲观，并形容与普京的会谈过程非常艰难。他说，“我们不应该抱有任何幻想，普京已经进入到自己的战争逻辑中，他正在采取相应行动，他希望透过迅速的军事行动成功拿下乌克兰”。
-
-内哈默是俄乌战事爆发以来，首位与普京面对面会晤的欧盟国家领袖。奥地利并非北约成员国，数十年来与俄罗斯保持着相当友好的外交关系，故一贯将自己设定成俄罗斯与欧洲利益分歧的调解人。内哈默透露，他觉得俄罗斯方面对与乌克兰总统泽连斯基进行直接会晤的提议几乎没有兴趣。
-
-來源｜[卫报](https://www.theguardian.com/world/2022/apr/11/austrian-chancellor-to-tell-putin-he-has-lost-the-war-morally)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

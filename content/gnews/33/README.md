@@ -2,118 +2,64 @@
 ---
 
 
-## 参议员汤姆·科顿：全世界都应该看看，中共政府是如何打着“公共卫生”的幌子残酷对待自己的人民的
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2332826/)
+## 樱花深度报道┃中国第一季度的经济：信心减弱 流动性停滞（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332928/)
 
-**参议员汤姆·科顿： **
-我的心与在 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 野蛮残暴治下遭受苦难和饥饿的中国人民同在。全世界都应该看看， [#中共政府](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E6%94%BF%E5%BA%9C) 是如何打着“公共卫生”的幌子 (残酷) 对待自己的人民的。
+编译：东京樱花团/Hopkins
 
-
-
-> My thoughts are with the Chinese people who are suffering and facing starvation under the brutal cruelty of the Chinese Communist Party.
-> — Tom Cotton (@TomCottonAR) [April 11, 2022](https://twitter.com/TomCottonAR/status/1513531221904658440?ref_src=twsrc%5Etfw)
+【摘要】今年，北京设定了几十年来最低的GDP增长目标：5.5%。第一季度结束时的经济指标表明，由于俄罗斯－乌克兰战争和最近COVID-19疫情病例激增﹐导致上海和深圳等主要商业中心极端封城，中国甚至不能实现这一温和的增长。随着中国经济陷入困境，以及习的第三个任期即将到来，习是否可能冒着招致美国“二次制裁”的风险来帮助俄罗斯？他是否会一意孤行入侵台湾？将直接影响中国经济的今后走向。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-32.jpg)
 
 
+（图片说明）2021年11月23日，中国北京，行人在中央商务区的建筑物前穿过马路。今年下半年中国经济明显放缓，考验着央行的政策魄力，对于是否需要采取更积极的行动以避免经济进一步下滑，经济学家们意见不一。(Qilai Shen/Bloomberg via Getty Images)
 
-**国会中国执行委员会： **
-国会中国执行委员会委员默克利参议员、众议员麦克格文、马林洛夫斯基，要求世界银行行长停止资助在新疆维吾尔自治区从事侵犯人权的公司。 （附信件全文）
+今年，北京设定了几十年来最低的GDP增长目标：5.5%。
 
+第一季度结束时的经济指标表明，由于俄罗斯－乌克兰战争和最近COVID-19疫情病例激增﹐导致上海和深圳等主要商业中心极端封城，中国甚至不能实现这一温和的增长。
 
+今年2月，中国城镇失业率为5.5%，高于去年12月的5.1%。就业前景恶化的趋势已经很明显；现在，随着战争和封城，失业人数预计会增加。
 
-> CECC Commissioners [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw), [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw) and [@RepMalinowski](https://twitter.com/RepMalinowski?ref_src=twsrc%5Etfw) ask [@WorldBank](https://twitter.com/WorldBank?ref_src=twsrc%5Etfw) President [@DavidMalpassWBG](https://twitter.com/DavidMalpassWBG?ref_src=twsrc%5Etfw) to stop funding companies engaged in human rights abuses in the [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) Uyghur Autonomous Region. Read full letter at [https://t.co/VP2zr2OcNE](https://t.co/VP2zr2OcNE). [https://t.co/0oDtIvTIR6](https://t.co/0oDtIvTIR6) [pic.twitter.com/eQq9eFdkeW](https://t.co/eQq9eFdkeW)
-> — China Commission (@CECCgov) [April 11, 2022](https://twitter.com/CECCgov/status/1513532790649856004?ref_src=twsrc%5Etfw)
+今年前两个月，私营企业的利润下降了1.7%，而国有企业的利润增长了16.7%。正是私营企业的发展使中国最初摆脱了贫困﹐现在，私营企业受到政府政策的打击最大。
 
+经济放缓正在改变人口的地理分布。在2020年严格的COVID防疫限制措施结束后，许多农民工未返回大城市，这一趋势将导致未来工业产量下降。随着人们迁往二、三线城市以削减生活成本，一线城市的人口正在下降或停滞。
 
+据《南华早报》报导，去年北京的人口减少了4000人，而二线城市成都的人口增加了24.5万人。去年4月，中国官方媒体《环球时报》预测，北京的人口将在2022年再次下降。
 
-**众议员迈克·罗杰斯： **
-谢谢我的好朋友乔丹议员，邀请我参加首届东北印第安纳国防峰会。 我们的国家面临着来自中（共）国和俄罗斯的前所未有的威胁。至关重要的是，我们的军队要有足够的资金来对抗这些威胁，保证我们国家的安全。
+投资者从中国撤出资金的数量创下历史新高。自俄罗斯入侵乌克兰以来，中国股市一度出现每天高达近5亿美元的资金外流。外国投资者因[中国经济](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E.html)放缓﹐以及对北京与莫斯科的密切关系而懮心，中俄关系可能导致拜登政府对中国实施“二级制裁”。
 
+分析人士预计，在可预见的未来，以人民币计价的资产将大幅波动。今年2月，外国投资者将他们持有的中国政府债券减持至前所未有的水平，减持了55亿美元的中国主权债务。除了对[中国经济](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E.html)未来的不确定性外，此次抛售还因市场猜测俄罗斯将变现其人民币资产以规避制裁。
 
+去年中国经济增长放缓，已经导致中国的股指下跌﹐今年以来，这些指数一直受到重创。
 
-> Thank you to my good friend [@repjimbanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) for inviting me to the inaugural Northeast Indiana Defense Summit. 
-> 
-> Our nation faces unprecedented threats from China and Russia. It’s critical that our military have the funding they need to combat these threats and keep our nation safe. [pic.twitter.com/ktlEwBrttk](https://t.co/ktlEwBrttk)
-> — Mike Rogers (@RepMikeRogersAL) [April 11, 2022](https://twitter.com/RepMikeRogersAL/status/1513569202950582276?ref_src=twsrc%5Etfw)
+上证综合指数自去年12月16日3677点以来﹐一直呈稳步下降趋势。在3月11日至3月15日期间，指数再次下跌246点，跌至3064点。
 
+恒生指数（HIS）年初报23,397点，但在3月15日暴跌至18,415点。恒生科技指数从去年12月最后一天的5670点，跌至3月15日的3472点。
 
+沪深300指数（CSI300）在12月31日达到4940点，但在3月15日跌至3983点。
 
-**参议员霍利新闻办公室： **
-参议员霍利“提出了《台湾武器出口法案》，通过加快国会批准和消除行政障碍，加快向台湾运送关键武器的速度。” （附相关新闻链接）
+经济放缓——再加上俄乌战争、政府打压和持续封城造成的普遍不确定性——增加了中国投资者的避险情绪。1月份，新成立的私人投资基金能够吸引的资金数额比上个月减少了44%。
 
+包括股票和债券在内的基金投资减少了49%，私募股权投资减少了25%，风险投资减少了17%。
 
+共同基金遭受重创，1月份的新增投资较前月减少61%，比上年同期减少76%。
 
-> Senator Hawley “introduced the Taiwan Weapons Exports Act, which would speed up the delivery of critical weapons to Taiwan by expediting Congressional approval and eliminating administrative roadblocks."[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 11, 2022](https://twitter.com/SenHawleyPress/status/1513559281064464387?ref_src=twsrc%5Etfw)
+金融公司取消了部分新基金的发行，而其它基金的认购期也被延长。此外，由于上海封城，至少有16宗公开募股（IPO）被推迟。
 
+投资基金的这种下降趋势表明，人们可能不再拥有一年前的可投资现金。人们似乎对普遍黯淡的经济前景感到恐惧，并把钱攥在手里，而不是用于投资﹐也可能意味着人们对金融系统失去信心。无论哪种情况，结果都是企业很难找到通过扩张、或创办新企业来创造就业机会所需的资金。
 
+（未完待续）
 
-**众议员迈克·沃尔茨： **
-拜登政府的目标是帮助乌克兰到谈判桌上，不是打赢战争。现在别谈什么和平对话了，如果我们让普京把这场战争带入僵局，他会重建他的军队，将来卷土重来。我们必须帮助乌克兰继续进攻。
+*作者简介：*
 
+*安东尼奥**‧**格雷斯福（Antonio Graceffo）博士在亚洲工作、生活了二十多年。他毕业于上海体育学院，获得上海交通大学工商管理硕士学位。安东尼奥是一名经济学教授和中国经济分析师，为各种国际媒体撰稿。他的一些中国著作包括《超越‘一带一路’：中国的全球经济扩张》（Beyond the Belt and Road: China’s Global Economic Expansion）和《中国经济简明教程》（A Short Course on the Chinese Economy）。*
 
+信息来源：
 
-> The Biden Admin’s goal is to help Ukraine get to the negotiating table, not win.
-> 
-> The hell with peace talks right now. If we allow Putin to settle this war into a stalemate, he will rebuild his military and come back for more in the future. We must help Ukraine go on the offense. [pic.twitter.com/Tl4gTmRcQo](https://t.co/Tl4gTmRcQo)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 11, 2022](https://twitter.com/michaelgwaltz/status/1513529715214241802?ref_src=twsrc%5Etfw)
+[China’s First Quarter Economy: Less Confidence, Less Liquidity](https://www.theepochtimes.com/chinas-first-quarter-economy-less-confidence-less-liquidity_4371776.html)
 
-
-
-**参议员汤姆·科顿： **
-拜登总统的伊朗协议不仅对伊朗恐怖分子有利 —— 它还将有助于资助普京的战争机器。 【转华盛顿自由灯塔报：曝光：俄罗斯公司将从新的伊朗核协议中获得数十亿美元 根据华盛顿自由灯塔报审查的美国政府撰写的文件称，作为与伊朗达成的一项新核协议的一部分，俄罗斯几家国家控制的顶级核公司将获得数十亿美元的收入，该协议将免除对这些公司的制裁，从而它们能够建立德黑兰的核基础设施。】
-
-
-
-> President Biden's Iran deal won't just benefit Iranian terrorists—it will help fund Putin's war machine. [https://t.co/Jps9twD9rv](https://t.co/Jps9twD9rv)
-> — Tom Cotton (@TomCottonAR) [April 11, 2022](https://twitter.com/TomCottonAR/status/1513538322689372163?ref_src=twsrc%5Etfw)
-
-
-
-**众议员吉姆·乔丹： **
-亨特·拜登： 
--从一家与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 有关联的公司获得480万美元。
--与乔·拜登一起会见了外国商业伙伴。 
--与乔·拜登共用银行账户。 
--用他挣来的钱支付乔·拜登的一些生活费用。 
-别看了，没啥重要的哈！
-
-
-
-> Hunter Biden:
-> 
-> -Made 4.8 million from a company tied to the Chinese Communist Party. 
-> 
-> -Met foreign business partners with Joe Biden. 
-> 
-> -Shared bank accounts with Joe Biden.
-> 
-> -Covered some of Joe Biden’s living expenses with money he earned. 
-> 
-> Nothing to see here!
-> — Rep. Jim Jordan (@Jim\_Jordan) [April 11, 2022](https://twitter.com/Jim_Jordan/status/1513639452991709187?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯·古登： **
-我觉得很讽刺的是，乔·拜登的儿子连现有的枪支法都不能遵守时，乔·拜登却宣布了新的枪支限制。
-
-
-
-> I find it ironic that Joe Biden announced new gun restrictions when his own son failed to abide by existing gun laws.
-> — Lance Gooden (@Lancegooden) [April 12, 2022](https://twitter.com/Lancegooden/status/1513695071098581001?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院： **
-[@SecBlinken](https://twitter.com/SecBlinken)国务卿安东尼·布林肯：美国将继续加大对乌克兰政府和人民的支持，并呼吁其他国家也这样做，正如我们呼吁所有国家谴责莫斯科日益残暴的行径一样。
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): The United States will continue to increase our support to the government and people of Ukraine and call on other nations to do the same just as we call on all nations to condemn Moscow's increasingly brutal actions. [pic.twitter.com/V1R0nPdVpX](https://t.co/V1R0nPdVpX)
-> — Department of State (@StateDept) [April 12, 2022](https://twitter.com/StateDept/status/1513705966088470535?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
