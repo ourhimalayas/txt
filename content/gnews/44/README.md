@@ -2,28 +2,24 @@
 ---
 
 
-## 欧盟主席表示乌克兰将拥有“欧洲的未来”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332336/)
+## 拒绝董事会席位后，马斯克取消与Twitter员工会面
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2332819/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月8日，欧盟委员会主席乌尔苏拉·冯德莱恩在访问基辅时表示，因为来自西方的制裁越来越严厉，俄罗斯正面临“衰退”，而乌克兰将拥有“欧洲的未来” 。
+编辑：文宝
 
-在与乌克兰总统泽连斯基举行的新闻发布会上，冯·德莱恩谴责了基辅附近的布查镇发生的平民屠杀事件，表示对当天早些时候，乌克兰东部克拉马托尔斯克的一个火车站遭到火箭袭击，造成数十人死亡的事件感到“震惊”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-22.jpg)
-她表示，乌克兰的战斗也是欧盟的战斗，他这次对基辅的访问，就是要发出一个非常强烈的信息，即欧盟和乌克兰站在一起。她强调，欧盟正在动员各种可能的经济力量，会让普京付出非常、非常沉重的代价。
 
-冯德莱恩同时明确，她相信此次访问会成为乌克兰通往欧洲和欧盟之路的起点。
+![](https://n.sinaimg.cn/tech/transform/117/w550h367/20220412/e8ff-27e61ffff7168f8f46bf0a40fdb8ea35.jpg)
+4月11日消息，在埃隆·马斯克（Elon Musk）决定不加入Twitter董事会后，他取消了本周与Twitter员工的会面。
 
-参考链接：[Russia faces ‘decay’, Ukraine has ‘European future’: EU chief](https://insiderpaper.com/russia-faces-decay-ukraine-has-european-future-eu-chief/)
+在上周，Twitter宣布马斯克已收购超过9%的股份并将加入董事会后，这位世界首富原计划与Twitter CEO帕拉格·阿格拉沃尔(Parag Agrawal)一起，举行与Twitter员工的“问我任何问题”会议，以打消员工们的顾虑。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+实际上，Twitter的员工对与马斯克一起参加会议的感受很复杂。一些员工主要担心，马斯克可能改变Twitter的企业文化。
 
-总编/审核：飞虹
-编辑：玫瑰圓
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+过去一周，马斯克对Twitter的想法也五花八门，从为Twitter的订阅服务做醒目的广告，到将其总部的一部分改造成无家可归者的收容所。有分析人士认为，对于所参与的任何一家公司，马斯克都以“颠覆性的存在”而著称，这可能给Twitter带来额外的挑战。
+
+通过邀请马斯克加入董事会并与员工交谈，阿格拉沃尔想表现出，他们之间的关系将是友好的。但马斯克突然拒绝董事会席位也引发了人们对其意图的新一轮猜测。由于没有加入董事会，马斯克不再受制于一项将其持股比例限制在14.9%的停滞协议。
+
+原文链接：[https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&mod=pctech&loc=15&r=0&rfunc=15&tj=cxvertical\_pc\_tech&tr=12](https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&amp;mod=pctech&amp;loc=15&amp;r=0&amp;rfunc=15&amp;tj=cxvertical_pc_tech&amp;tr=12)
 
  
 

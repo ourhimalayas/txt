@@ -2,63 +2,38 @@
 ---
 
 
-## 04/12每日播报｜社媒消息:娜塔莉温特斯 罗伯特马龙博士
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2333730/)
+## 台湾首次向民众发布战争生存指南
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
 
-**By:[秘翻新闻](https://gettr.com/post/p14v74i6dd5)**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
+当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
 
-***[2022-04-12](https://gettr.com/post/p14v74i6dd5)***
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-227.jpg)
-**一、[娜塔莉温特斯4月12日在盖特发文：](https://gettr.com/post/p14qqps6d03)**
+据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
 
-**一位公开否认新冠病毒来自实验室泄露的科学家曾在私下里告诉同事，实验室泄露这种情况有可能发生。 **
+尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
 
-【盖文转《国家脉动》报道，2020年2月，《柳叶刀》杂志刊登了一封联署信。这封信认为新冠病毒来自自然，并驳斥实验室泄露理论是阴谋论。全球近30位科学家在这封信上签署了自己的名字，其中一位是科罗拉多州立大学 (Colorado State University) 的微生物学教授查尔斯·卡利舍（Charles Calisher）。
+reference：
 
-但是根据非营利组织美国有权知道（U.S. Right to Know）通过《信息自由法》申请获得的电子邮件，查尔斯·卡利舍在2020年4月19日私下里给多位科学家同事发了一封电邮，看起来是为了回应武毒所实验室主任袁志明的病毒不可能来自该实验室的声明。他在邮件中写道：“我看不出有谁可以绝对地说，新冠病毒不可能来自武汉实验室。实验室的一名工作人员因一个偶然或意外的错误感染了病毒，随后无症状的该员工散播了病毒，这种情况是有可能发生的。我并不是说它确实发生了，只是说它是有可能的。”】
+[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**秘翻新闻 巴拉克 编译报导**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-96.jpg)
-**二、[罗伯特马龙博士4月12日转发《大纪元》文章：](https://gettr.com/post/p14pfus67ba)**
+民防手册下载地址
 
-**上周日（4月10日），数千人聚集在美国加州洛杉矶市中心的大公园，声援反对新冠疫苗强制令的卡车司机、医生、护士、消防员和教育工作者。有数十位知名人士在“反强制令集会”上发言，其中包括人民车队（The People’s Convoy）的卡车司机布莱恩·布莱斯（Brian Brase）和麦克·兰迪斯（Mike Landis）。**
+[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
 
-兰迪斯说：“车队计划在萨克拉门托停留一两个星期，让立法者知道我们不喜欢他们的做法。卡车司机已经与医生联合起来，抗议加州与新冠相关的立法和提案。车队支持自由、宪法权利、人权，以及上帝赋予人民的选择是否接种疫苗的权利。”布莱斯说，疫苗强制令是对人权的侵犯。“我要求全世界的每个人，不仅仅是这个国家的人站出来反抗。现在是时候提醒我们的政府和世界各国的政府，他们是为我们工作的。” 美国前线医生协会的医生代表也参加了抗议集会。马龙博士说：“反对疫苗强制令的斗争已经成为一场全球战争。不仅仅是在美国这里，同样的事情正在全球各地发生–在拉丁美洲、非洲、整个亚洲、欧洲，以及北美。罗马天主教会的医生圣奥古斯丁 (St. Augustine) 有句名言，事实就像狮子，您不需要捍卫它。让她自由，她会捍卫自己。”
-
-**秘翻新闻 巴拉克 编译报导**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-80.jpg)
-**三、[Arnie1974 4月11日在盖特发文：](https://gettr.com/post/p14kuw267ad)**
-
-**澳大利亚《星期日足球节目》（The Sunday Footy Show）的主持人在直播时承认，**新冠疫苗加强针正导致多名球员遭受严重的心脏问题和贝尔氏麻痹症。“病房里也挤满了遭受同样问题的人。”有关疫苗的一些真相终于开始浮出水面。
-
-**秘翻新闻 巴拉克 编译报导**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-81.jpg)
-**四、**[**《网关专家》4月11日在盖特发文：**](https://gettr.com/post/p14n1wxb19a)
-
-**华盛顿特区的精英们遭到新冠病毒袭击：72位知名人士在参加了上周末举行的烤架俱乐部（Gridiron Club）年度晚宴后新冠检测呈阳性。 **
-
-【盖文转报道，纽约市市长艾瑞克·亚当斯 (Eric Adams)在新冠检测呈阳性后不得不取消本周的所有活动。已完全接种并接种了加强针的美国农业部长汤姆·维尔萨克 (Tom Vilsack)检测呈阳性，并出现了轻微症状。拜登政府的总检察长梅里克·加兰 (Merrick Garland)和商务部长吉娜·雷蒙多 (Gina Raimondo)也位列其中。众议院情报委员会主席亚当·希夫 (Adam Schiff)、参议员苏珊·柯林斯 (Susan Collins)等多位参加了这起超级传播事件的国会议员也感染了新冠，检测呈阳性。受影响的其他人士还包括副总统哈里斯的通讯主管贾马尔·西蒙斯 (Jamal Simmons)、第一夫人吉尔·拜登 (Jill Biden) 的新闻秘书迈克尔·拉罗萨 (Michael LaRosa)以及拜登总统的妹妹瓦莱丽·拜登 (Valerie Biden)。】
-
-**秘翻新闻 巴拉克 编译报导**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-61.jpg)
-**五、[真正美国之声4月12日在盖特发文：](https://gettr.com/post/p14pnn8e4a1)**
-
-**美国总统拜登本周一与印度总理莫迪进行了视频通话，拜登继续鼓励其他各国领导人对俄罗斯正在持续进行的入侵乌克兰的行为采取强硬立场。 **
-
-【盖文转报道，白宫说，莫迪在与拜登的通话中表示，他和他的国家对俄罗斯的杀戮行为表示谴责。考虑到莫迪和印度并没有向大多数西方盟友一样谴责俄军袭击乌克兰平民的行为，这样的声明似乎是一大进步。上周，印度在联合国的是否暂停俄罗斯人权理事会成员资格的投票中投了弃权票，俄罗斯外交部长谢尔盖·拉夫罗夫最近也称赞了印度的对俄立场。但在本周一，莫迪表示，印度对俄军在乌克兰布查市犯下的战争罪行非常担忧，“我们谴责这些杀戮行为，并呼吁进行独立调查，乌克兰平民的安全十分重要，希望能够不受阻碍地向他们提供人道主义援助。”但是印度仍在继续购买俄罗斯的石油和天然气，尽管西方盟友施加压力要求它考虑其他选择。上个月，印度的国营石油公司以低于基准价格20%的折扣从俄罗斯购买了300万桶原油。】
-
-**秘翻新闻 巴拉克 编译报导**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-42.jpg)
-**六、**[**郭文贵先生在4月11日的盖特视频中说：**](https://gettr.com/user/miles)
-
-北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的；全球供应链现严重危机，很多基本商品无人生产；为维护海外华人安全、利益和新中国联邦人形象的救援前线战友祈福。
-
-**秘翻新闻 巴拉克 编辑报道**
-
-发布：陸柒陸捌
+撰稿、发布：骄子
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

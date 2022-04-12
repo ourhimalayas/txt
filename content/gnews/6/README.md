@@ -2,43 +2,37 @@
 ---
 
 
-## Elon Musk决定不加入推特董事会
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
+## 普京警告西方：不能孤立俄罗斯
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2334320/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
-当地时间4月11日，Elon Musk决定不加入推特董事会。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
+资料来源：美联社
 
-此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
-
-据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
-
-撰稿、发布：骄子
-
-reference
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1159.jpg)
 
 
-> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
-> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
+路透社 4 月 12 日消息，俄罗斯总统普京周二警告西方，孤立莫斯科的努力将失败，他以苏联太空计划的成功为证据，证明俄罗斯可以在艰难的条件下实现惊人的飞跃。
 
+俄罗斯表示，在美国及其盟国对其实施严厉制裁以惩罚普京 2 月 24 日在乌克兰实施他所谓的“特殊军事行动”的命令后，俄罗斯将不再依赖西方。
 
-* * *
+自从苏联的尤里·加加林 (Yuri Gagarin) 成为第一个进入太空的人而载入史册以来的 61 年，普京前往位于莫斯科以东 3,450 英里（5550 公里）的俄罗斯远东的东方航天发射场。
 
+据俄罗斯国家电视台报道，普京说：“制裁是全面的，孤立是完全的，但苏联仍然是太空第一。”
 
+乌克兰军队进行了顽强抵抗，西方对俄罗斯实施了全面制裁，以迫使其撤军。
 
-欢迎订阅我们的GNews账号：
+俄罗斯前财政部长阿列克谢·库德林周二表示，俄罗斯经济有望在 2022 年收缩 10% 以上，这是自 1991 年苏联解体后几年以来国内生产总值的最大降幅。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+简评： 普京这个魔鬼， 还要警告全世界， 警告维护普世价值的西方国家， 还想让西方世界支持他的侵略， 世界是不会允许的。 普京已经没有退路，也没有了未来， 必须得到应得的报应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+🔗[https://www.reuters.com/world/europe/putin-flies-into-russian-far-east-ukraine-talks-with-belarusian-leader-2022-04-12/](https://www.reuters.com/world/europe/putin-flies-into-russian-far-east-ukraine-talks-with-belarusian-leader-2022-04-12/)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

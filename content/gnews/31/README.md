@@ -2,36 +2,24 @@
 ---
 
 
-## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
+## 洛杉矶上周日举行了反对强制令集会，人们高呼“我们人民不会屈服”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333672/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
+#### 翻译/撰稿：zzballack
 
-本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2-1.jpg)图片来源：福克斯新闻
+据《网关专家》（Gateway Pundit）4月10日报道，上周日（4月10日），来自全美各地的卡车司机、消防员、执法人员、联邦雇员、劳工、学校教师、医生、护士、名人、音乐家以及数万名加州居民聚集在加州洛杉矶的大公园（Grand Park），举行了长达6个小时的“反对强制令（Defeat The Mandates）”集会活动，人们在会上高呼“我们人民不会屈服（We the People Will Not Comply）”！
 
+此次集会的目的是终结所有与新冠有关的强制令：反对疫苗强制令；反对疫苗护照；反对强行给儿童接种新冠疫苗；反对审查制度；遵守知情同意原则；承认自然免疫；让医生和病人不受干扰地做出决定。
 
+尽管加州大多数学校已经取消了口罩强制令，但洛杉矶联合学区仍继续在校园内执行口罩令，而且没有结束日期，这让洛杉矶居民和家长的失望情绪达到了沸点。这种挫折感和失望情绪也遍及了整个美国，因为在过去一年半的时间里，人们持续受到新冠限制令和疫苗强制令的困扰。
 
-> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
-> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
+公民反对政治迫害（Citizens Against Political Persecution）组织的蒂娜·瑞安（Tina Ryan）说：“事情还远没有结束。我们不要被官员愚弄了。这些官员意识到他们把选民惹恼了，以至于可能会失去工作，所以正在撤回这些可怕的强制令。但任何稍有街头智慧的人都知道，一旦他们在11月的选举中重新获得职务，就会试图恢复这些强制令和封锁。我们必须把他们选出去，永远不要忘记他们所做的一切，我们不会忘记。”
 
+加州州长加文·纽瑟姆（Gavin Newsom）极不受选民的欢迎，这迫使他暂时放松了口罩令。但是加州的民主党议员正在州议会推动八项极具争议性的严厉法案。这些拟议提案包括：要求所有的0至17岁儿童接种新冠疫苗，并取消任何个人或宗教豁免；允许12至17岁孩子在没有父母同意的情况下接种新冠疫苗；强迫执法官员执行公共卫生命令；把医生和外科医生分享新冠“错误信息”重新归类为不专业的行为，并予以纪律处分；加州所有雇主要求在该州工作的人必须接种新冠疫苗，包括独立承包商，不执行的公司将受到重罚。瑞安说：“这就是当你只有一个党在管理政府的四个分支部门时会发生的事情，第四部门是假新闻媒体。这等同于完全彻底的暴政和反人类罪。”
 
-
-未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
-
-外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
-
-此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
-
-本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
-
-來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+新闻来源：[“We the People Will Not Comply!” – Thousands Join “Defeat The Mandates” Rally Against Covid-19 Mandates in LA on Sunday](https://www.thegatewaypundit.com/2022/04/__trashed-12/)
 
  
 

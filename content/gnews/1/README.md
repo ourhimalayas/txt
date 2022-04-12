@@ -2,29 +2,18 @@
 ---
 
 
-## 加拿大税务局计划在数字货币交易中牟利
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334202/)
+## 【粤语配音】2022年4月10日：新中国联邦不会忘记每一个付出贡献的战友
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2334357/)
 
-采编：加拿大温哥华扬帆农场 – Ucool优酷
+紐約香草山-香港部
 
-撰稿：加拿大温哥华扬帆农场 – 硫酸羟氯喹64
+当习近平和在上海和广州、吉林、郑州，开始核糖核酸进行隔离，特别当我看到他把东风导弹FK3送到塞尔维亚，更重要的事情，对美国的插屁眼儿，核糖核酸，叫美国授权撤离，再次的拒绝，这种情况下，咱们的战略就要变了。
 
-据加拿大[CTV新闻]4月11日报道，目前数字货币交易正席卷全球，包括比特币和以太坊及其他数字货币市场都在迅速增长，而加拿大税务局则正在对该市场的迅猛发展制定相应税收政策。
+我很多话不能说，我再次在这里向所有的国内的战友们说一下，近期内上海、长春、广州，包括共产党的军事行动，这些机密的信息，都是你们以生命为代价给七哥的，七哥不会忘，新中国联邦不会忘，天知地知，七哥会知道，就像我跟你们每个人说的话一样，你交给七哥的信息，七哥会尽最大可能的发挥到灭共的事业上，我尽可能的分享到美国和欧洲，以及日本这些国家的政府身上，让他们提前预知共产党的这些行动，减少伤亡和伤害。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1425.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/business/pattie-lovett-reid-trading-in-cryptocurrencies-beware-the-cra-is-watching-1.5851950?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=62540dc0a609c100019786bf&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+你们每个人的名字，七哥都不会忘掉，也不会不告诉这些国家政府，还是那句话，任何一个为爆料革命、灭共事业付出的人，你都会有喜币，有躺平币，只要你能够离开中共国，新中国联邦只要有饭吃，你都是最优先吃的，从国内体制内和给提供过情报的战友们，你们永远排第一位，法治基金排第二位，然后才是我们GTV的老椅子，G-Club，永远不会改，即使所有G系列创造的财富，我们向上帝保证，God，还是佛祖保证，这些财富都将会属于新中国联邦的，最终都要归于新中国联邦，而且你们是永远的决定使用者和决定使用委员会的人。
 
-
-报道称，加拿大税务局不仅密切关注着该国的数字货币交易，甚至已计划在其税收中获得该市场的最大份额，并惩罚那些违规的未申报者。因为在加拿大，通过交易数字货币获利将被视为纳税人的业务收益。
-
-而对于因交易数字货币获利而少报或未报该收入的纳税人，加拿大税务局除了要求其偿还税款之外，还将处以至少100加元或少报税款50%的罚款，并以较高者为准。
-
-据悉，[加拿大税务局]在2021年赢得了一场从加密货币交易平台 [Coinsquare ]获取客户数据的官司，包括所有活跃和非活跃交易者的账户名称和详细信息。此外，该局现在还以监管者身份协调某些数字货币交易所，以跟踪数字资产的流通。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://www.ctvnews.ca/business/pattie-lovett-reid-trading-in-cryptocurrencies-beware-the-cra-is-watching-1.5851950?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&taid=62540dc0a609c100019786bf&utm\_campaign=trueAnthem%3A+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.ctvnews.ca/business/pattie-lovett-reid-trading-in-cryptocurrencies-beware-the-cra-is-watching-1.5851950?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=62540dc0a609c100019786bf&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+就像我们头两天的一位战友，在亚洲某国家交给我们的中共军事的，所谓在福建地区的情报，这对我们台湾和保护台湾的人太重要了，我们永远都不会忘记的，而且我们现在已经看到共产党，不是完了，共产党真的是已经彻彻底底完蛋了，我给他的时间不会超过2025年，在这之前，我们都不要犯天真的毛病，我们尽可能的减少中国少死一些无辜的同胞，共产党灭亡前，少带走一个人，和在海外不要让共产党拉仇恨，毁了我们很多海外的华人的形象，和影响海外华人的安全，更不能让世界上仇华裔，排华的事情发生。
 
  
 
