@@ -2,21 +2,20 @@
 ---
 
 
-## 台湾旅乌男士在新中国联邦救援基地任义工
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332334/)
+## 普京任命“叙利亚屠夫” 转战乌东
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2332335/)
 
-作者：纽约香草山医疗部-云豹
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-当地时间4月9日台湾媒体报导，一位来自台湾的旅乌男士王楠颖，在波兰梅迪卡新中国联邦的救援帐篷中担任义工，为来自乌克兰的难民从事翻译工作。在媒体的照片中，我们可以看到王先生穿着新中国联邦义工的马甲，背景中还出现了写有“新中国联邦、法治基金、乌克兰人道救援”字样的横幅。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-20.jpg)
-据悉，王先生是从台湾去乌克兰读书及工作的，已经旅居乌克兰8 年。他本人也是这次战争中的难民，在3月2日台湾政府的撤侨行动中顺利离开了乌克兰第二大城哈尔科夫。但是他对乌克兰第二故乡的感情让他选择留下来，以他能说中、英、日、乌、俄语的语言能力，及同样来自战争灾区的同理心，在难民营中为难民做翻译服务，帮忙他们解决各种沟通上及情绪上的问题。另外，王先生也报名了乌克兰的国际志愿军团，并被录取。接下来他将继续以他的语言能力发挥更大的作用。
+据外媒4月9日报道，因为在乌克兰遭遇了一系列军事挫折，俄罗斯总统普京指派了被称为“叙利亚屠夫”的德沃尼科夫将军担任指挥官，希望能重振俄军的攻势，征服乌克兰东部的顿巴斯地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-21.jpg)
+在任命 60 岁的德沃尼科夫之前，俄罗斯依靠独立的指挥系统指导其入侵行动，大多数重大决定都直接来自克里姆林宫，没有一个指挥官能掌握全局。现在，由于无法占领首都，莫斯科已将军事重点转移到对俄军更有利的东部顿巴斯地区，其中包括顿涅茨克和卢甘斯克。
 
-一位战友表示，尽管媒体的报导中并未突出新中国联邦的内容，但任何形式的传播都包含着媒体本身对我们的认同。新中国联邦的理念、精神一定会以各种形式在不知不觉中被散布到世界的每一个角落。
+据悉，德沃尼科夫将军因在叙利亚的野蛮行动而声名狼藉。
 
-参考链接：
-1. [台僑王楠穎返烏克蘭參軍 以台灣之名為第二故鄉奮戰](https://www.cna.com.tw/news/aipl/202204090016.aspx)
-2. [A Volunteer From Taiwan, a Ukraine Refugee Himself, Join Our NFSC Ukraine Rescue Operation Site in Medyka, Poland](https://gnews.org/2275724/)
-3. [**柳人不悔**](https://zh-tw.facebook.com/reo7seven?__cft__[0]=AZU9NMl15zxTcYqEetkTKZjrqYB0zN1X-bSL6d_HPNgi-vfagUcVwvFAbwoaBc71TzRw-dGFc8qAcyPOOmFsk5oAeE862NUAi5gq9GlCnCFcCpIWvjGWn0uicJqKMgXoKev2aoJPAyk8om2VKekllSRHpXvLNX7UDvJ6ajZoBGI7jQ&amp;__tn__=-UC%2CP-R)
+西方官员预测，克里姆林宫的目标是在庆祝二战胜利周年纪念日，即5月9日之前取得某种形式的胜利。而到目前为止，好战的俄罗斯人还没有取得任何胜利。
+
+参考链接：[Putin taps ‘Butcher of Syria’ for escalation in Donbas](https://www.washingtonexaminer.com/news/putin-taps-butcher-of-syria-for-escalation-in-donbas)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

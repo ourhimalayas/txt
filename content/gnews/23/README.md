@@ -2,33 +2,27 @@
 ---
 
 
-## Coinbase暂停印度UPI支付方式，合规性遭质疑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333115/)
+## 台湾｜无预警联翔操演 国防部“测试”防空接战能力
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333163/)
 
-#### 翻译/编辑：小红帽
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+台北12日清晨5点，禁航战机的台北市上空有战机飞越并盘旋，后经军方回应，证实为国军例行的“联翔操演”，无预警派遣F-16、IDF、AH-64E等型机扮假想敌演练，强化对重要目标防护战力。“联翔操演”，旨在空军对各空军基地反应接战与制敌空袭进行测试。本次演习采实兵不实弹的演练，防守方在假想敌军机接近驻地时，须拟真完成应敌程序。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Coinbase_india_launch_radhika_large_1649666367927.jpg)图片来源：Digit News
+网友于脸书社团发文表示“一大早怎么有战机开过来啊？俄罗斯战机开过来了吗？”“有清楚听到但没有看到”、“有听到…很大声在北边松机方向”。
 
+国防部发言人孙立方表示，上午这项演习民众相当关切，国防部为检测国军联合舰队、基地要港、野战防空应对能力及接战程序，并检视防空作战指挥及兵力运用，在清晨执行“整体防空作战计划演练”，操演状况均正常。
 
-根据COINGEEK4月11日报道，“我们不知道有任何使用UPI的加密交换。”印度国家支付公司（NPCI）就Coinbase在印度推出全方位交易业务数小时后发表了这一声明。NPCI是管理印度统一支付接口（UPI）的实体。
+演練主要由花蓮、嘉義F-16戰機扮演假想敵，模仿共軍在戰時對台可能空襲航線飛行，以無預警方式測驗防空部隊反應，為了避免影響民航，因此該演習都在清晨5點半到8時前進行。
 
-Coinbase在过去六个月里一直在印度大量招兵买马，尽管印度政府在2022年3月29日宣布了“严格的”数字货币税收规定。综合来看，这并没有为印度的数字货币投资者描绘出美好的前景。
+又同日，国防部疑似受到俄乌局势影响，改变过去“避免触及民间战备”的态度，发布“全民国防手册”(范本)，为提供民众面临军事危机及可能发生之灾难时相关紧急应变资讯，并开始向民间释放应居安思危的讯号。（[详细](https://gnews.org/zh-hant/2332680/)）
 
-“我们看到了它的到来，”BSV 区块链协会的Kapil Jain告诉 CoinGeek。“在过去的六个月里，Coinbase一直在大量招聘人员。合规性将是印度的一大亮点。Coinbase将无法逃避。数字货币主要用于绕过法律限制或替代洗钱网络。最近由于反洗钱规则，许多非营利组织的资金被切断。 WazirX，币安 (Binance) 已经受到税收突击和审查。”
+来源｜[今日新聞](https://www.nownews.com/news/5772583)、台湾国防部消息
 
-Coinbase首席执行官兼联合创始人Brian Armstrong最近宣布，已经向印度初创企业投资了1.5亿美元，并将于2022年在印度雇用1000名员工。Coinbase已经是印度两家领先数字货币交易所（CoinSwitch Kuber和CoinDCX）的主要投资者。据称，Coinbase几周前就开始测试UPI支付，并于4月7日在印度举行的首次活动中宣布正式推出。
+* * *
 
-周日，这家总部位于美国的交易所宣布，在印度推出交易服务不到四天后，已经暂时禁止通过UPI购买数字货币。根据Coinbase的声明，“暂时无法使用该支付方式进行购买”，尽管该平台继续允许通过即时支付服务出售代币。
-
-资料来源：[Coinbase suspends support for UPI payments in India amid regulatory heat](http://NBASEcoingeek.com/coinbase-suspends-support-for-upi-payments-in-india-amid-regulatory-heat/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
