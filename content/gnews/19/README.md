@@ -2,42 +2,34 @@
 ---
 
 
-## 泽连斯基就俄军动用化学武器发出警告，西方考虑对俄实施新制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333225/)
+## 驻上海美领馆从授权到命令美国公民撤离上海
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333256/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Consulate-Main-building-1-1-1140x684-1.jpg)
+当地时间4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，4月11日，美国政府将措辞从授权撤离改为命令撤离。
 
-#### 整理/编辑：围剿维尼熊
+除了撤离在上海美领馆的美国公民，美国政府还要求旅行者慎重考虑前往中共国旅行。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。在4月11日美国领事馆的官网页面详细历数前往中共国旅行即将面临的严重灾难，中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查，威胁家人、甚至在大外宣上指责美国公民挑起骚乱从而煽动网暴。美领馆严重提示旅行者，若要前往中共国以及香港，注意事项长达15条，尤其警告美国公民不能随意利用言论自由，小心附近的警察、周围的环境，保持低调等等。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/DEDDCABE-5581-4547-AB42-B8538F57F6DE.jpg)图片来源：微博
+这些注意事项的潜在含义可能是，请禁止前往中共国旅行。
 
+reference：
 
-根据美国之音4月12日报道，乌克兰总统泽连斯基因为担心俄罗斯有可能在乌克兰使用化学武器，他敦促西方对俄罗斯实施更多的严厉制裁。
+[https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/china-travel-advisory.html)
 
-泽连斯基在星期一(4月11日)的每晚视频讲话中说，目前，有未经证实的消息说，俄军在被围攻的南部港城马里乌波尔已经使用了化学武器。
+撰稿、发布：骄子
 
-英国外交大臣丽兹·特拉斯说，英国已经听到有关报道。
+* * *
 
-五角大楼新闻秘书约翰·科比说，美国此刻无法证实使用化武的报道，如果属实，这些事件“令人深感关切”。
+欢迎订阅我们的GNews账号：
 
-星期一早些时候，俄罗斯宣称周末摧毁了乌克兰的几个防空系统。乌克兰总统泽连斯基警告说，俄罗斯有可能开始对乌克兰东部地区重新发动攻势。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-俄罗斯的说法无法得到独立证实，但是俄罗斯国防部发言人伊戈尔·科纳申科夫少将说，俄军星期日发射了巡航导弹，以摧毁乌克兰中部城市第聂伯罗南郊的四个防空导弹发射装置，还击中了尼古拉耶夫和哈尔科夫地区的防空系统。
-
-欧盟外长星期一开会讨论对俄罗斯实施新一轮制裁。与此同时，奥地利总理卡尔·内哈默在莫斯科会晤了俄罗斯总统弗拉基米尔·普京。
-
-内哈默在会晤之后发表的声明中说，他给普京的最重要讯息是，在乌克兰的战争必须停止，因为在一场战争中，双方都只会是输家。
-
-参考链接：[泽连斯基就俄军动用化武发出警告，俄军宣称摧毁多个乌军防空系统，乌东大战在即 乌克兰呼吁西方加大军援](https://www.voachinese.com/a/russia-claims-it-destroyed-ukrainian-air-defense-systems-20220411/6525121.html)
-
-发布：*wenly*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

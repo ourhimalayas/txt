@@ -2,38 +2,55 @@
 ---
 
 
-## 加拿大对俄罗斯国防工业实施新一轮制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333377/)
+## 台湾在中共国威胁下发布第一本战争生存手册
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2333413/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+翻译：文乐
 
-#### 整理：等风来
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-31.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
 
 
-2022年04月11日报道，为[制裁俄罗斯](https://www.epochtimes.com/gb/tag/%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF.html)入侵邻国乌克兰，[加拿大](https://www.epochtimes.com/gb/tag/%E5%8A%A0%E6%8B%BF%E5%A4%A7.html)又针对俄罗斯国防工业施加了限制。
 
-[加拿大](https://www.epochtimes.com/gb/tag/%E5%8A%A0%E6%8B%BF%E5%A4%A7.html)外交部长赵美兰（Mélanie Joly）表示，加拿大对俄罗斯的最新一轮制裁针对的是俄国国防部门的33个实体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-226.jpg)2021 年 10 月 10 日，在台湾台北举行的国庆庆典期间，一面台湾国旗被拍到。路透社/王安
 
-赵美兰说，这些组织直接或间接地向俄罗斯军方提供了支持，它们是在乌克兰发动无理战争的普京的同谋，共同制造了痛苦和苦难。
+台北，4月12日（路透社）- 台湾军方周二首次发布民防手册，在俄罗斯入侵乌克兰之际，在战争场景中为公民提供生存指导，重点关注该岛应如何应对中共国的压力。
 
-这些制裁包括，冻结莫斯科物理技术研究所、Integral SPB和Shipyard Vympel JSC等实体的资产，并实施禁令。
+中共国从未放弃使用武力控制台湾，近两年更是在附近加强军事活动，逼迫其接受主权诉求。
 
-自俄罗斯于2月24日发动对乌克兰的战争以来，加拿大已对俄罗斯、乌克兰和白俄罗斯的七百多名个人和实体实施制裁。
+台湾手册详细介绍了如何通过智能手机应用程序找到防空洞、水和食物供应，以及准备紧急急救箱的技巧。
 
-赵美兰说，加拿大一直并将永远支持乌克兰，今天的措施是坚定支持乌克兰及其人民的最新例证。并表示要追究那些应该对暴行负责的人的责任。
+该手册的规划早于俄罗斯对其邻国的袭击，这引发了关于其对台湾的影响以及加强准备工作方法的辩论，例如对预备役人员的培训进行改革。
 
-参考链接：[加拿大对俄罗斯国防工业实施新一轮制裁](https://www.epochtimes.com/gb/22/4/11/n13708784.htm)
+“（我们）正在提供有关公民应如何应对军事危机和可能发生的灾难的信息”，国防部全面国防动员部队官员刘泰义在一次在线新闻发布会上说。
 
-发布：*wenly*
+他补充说，这将有助于做好安全准备并帮助人们生存。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+他说，该手册借鉴了瑞典和日本发布的类似指南，将进一步更新当地信息，例如避难所、医院和商店的地点，以满足日常需求。
+
+该手册使用连环画和图片以及如何在军事袭击中幸存下来的技巧，例如如何区分空袭警报和躲避导弹的方法。
+
+台湾没有报告任何中共国即将入侵的迹象，但自乌克兰战争开始以来已提高警戒级别，莫斯科称之为“特殊军事行动”。
+
+蔡英文总统一再发誓要保卫该岛，并正在监督一项广泛的现代化计划，以使其部队更具机动性，更难攻击。
+
+除了去年公布的改革预备役部队训练计划外，政府还希望将义务兵役期延长至四个月以上。
+
+新闻来源：[Taiwan issues first war survival handbook amid China threat](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/)
+
+* * *
+
+素材：Orpheus
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
 
  
 

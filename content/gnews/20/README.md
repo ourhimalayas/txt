@@ -2,31 +2,32 @@
 ---
 
 
-## 中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2333217/)
+## 日本年轻人疫苗第3次接种率为20%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2333237/)
 
-作者：撰稿人：纽约香草山教育部 子兵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-中共國上海的武漢肺炎（新型冠狀病毒病，COVID-19）疫情升溫，美國國務院11日表示，考慮到中國「任意執法」的案例，命令美國駐上海總領事館的部分員工撤離，並建議公民重新考慮前往中國。
-美國國務院8日批准，美國駐上海總領館非緊急人員與家屬可自願撤離中國。而國務院11日再度發布通告，命令非緊急人員與家屬強制撤離，目前還不知道強制撤離的原因
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+近日，日本政府首次公布全国新冠疫苗第3次接种率情况，在按年龄统计,70多岁超过80%,而20多岁和30多岁只占20%,越年轻接种率越低。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_1-47.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-91.jpg)图片来源
 
-國務院11日聲明指出，由於中國的任意執法和與武漢肺炎相關的限制，建議重新考慮前往中國的旅行，此外因為疫情相關的限制，其中包括父母與孩子分離的風險，美國公民不應前往香港、吉林和上海。國務院還下令，強制要求非緊急美國政府僱員和所有家庭成員離開上海總領事館領區。
-上海目前面臨自武漢肺炎2019年12月首度在湖北省武漢市現蹤以來，最嚴重的一波疫情。上海政府12日通報，11日新增本土確診病例994例及無症狀感染2萬2348例。
+根据政府11日公布的最新疫苗接种记录系统数据,国内第3次接种者为5754万7225人,占总人口的45.4%。
 
-鏈接：[https://news.ltn.com.tw/news/world/breakingnews/3890273](https://news.ltn.com.tw/news/world/breakingnews/3890273)
+各个年代的全国接种率也首次公布, 最高的是80岁以上的88.4% 70～79岁是86% 65～69岁是77.8%,老年人相对较高。 60～64岁是66.7%, 50～59岁的51.3%, 40～49岁的33.8%。 30～39岁的25.9%, 20～29岁是24%, 12～19岁是5.4%,凸显了年轻一代的低接种率。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+根据厚生劳动省的说法,截至本月5日为止1周的全国新感染者中,20多岁占最多的18%,国家决定在自治体的接种会场承担大学生接种的费用等,促进年轻人接种。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+信息来源：[ワクチン3回目接種率 20代と30代は20％台](https://www3.nhk.or.jp/news/html/20220411/k10013577711000.html)
 
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

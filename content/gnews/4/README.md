@@ -2,55 +2,36 @@
 ---
 
 
-## 台湾在中共国威胁下发布第一本战争生存手册
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2333413/)
+## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
 
-翻译：文乐
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-226.jpg)2021 年 10 月 10 日，在台湾台北举行的国庆庆典期间，一面台湾国旗被拍到。路透社/王安
+> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
+> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
 
-台北，4月12日（路透社）- 台湾军方周二首次发布民防手册，在俄罗斯入侵乌克兰之际，在战争场景中为公民提供生存指导，重点关注该岛应如何应对中共国的压力。
 
-中共国从未放弃使用武力控制台湾，近两年更是在附近加强军事活动，逼迫其接受主权诉求。
 
-台湾手册详细介绍了如何通过智能手机应用程序找到防空洞、水和食物供应，以及准备紧急急救箱的技巧。
+未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
 
-该手册的规划早于俄罗斯对其邻国的袭击，这引发了关于其对台湾的影响以及加强准备工作方法的辩论，例如对预备役人员的培训进行改革。
+外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
 
-“（我们）正在提供有关公民应如何应对军事危机和可能发生的灾难的信息”，国防部全面国防动员部队官员刘泰义在一次在线新闻发布会上说。
+此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
 
-他补充说，这将有助于做好安全准备并帮助人们生存。
+本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
 
-他说，该手册借鉴了瑞典和日本发布的类似指南，将进一步更新当地信息，例如避难所、医院和商店的地点，以满足日常需求。
-
-该手册使用连环画和图片以及如何在军事袭击中幸存下来的技巧，例如如何区分空袭警报和躲避导弹的方法。
-
-台湾没有报告任何中共国即将入侵的迹象，但自乌克兰战争开始以来已提高警戒级别，莫斯科称之为“特殊军事行动”。
-
-蔡英文总统一再发誓要保卫该岛，并正在监督一项广泛的现代化计划，以使其部队更具机动性，更难攻击。
-
-除了去年公布的改革预备役部队训练计划外，政府还希望将义务兵役期延长至四个月以上。
-
-新闻来源：[Taiwan issues first war survival handbook amid China threat](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/)
+來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
 
 * * *
 
-素材：Orpheus
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
