@@ -75,11 +75,11 @@
 ### [加拿大BC省取消疫苗护照政策](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/21/README.md)
+### [乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [加國保守黨將力推加密貨幣](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/22/README.md)
+ ` 蓝莲花农场`
 
 ### [加拿大保守党将力推加密货币](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
@@ -99,22 +99,22 @@
 ### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌战争“没想到”系列之五：](/content/gnews/29/README.md)
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄乌战争“没想到”系列之五：](/content/gnews/30/README.md)
  ` 蓝莲花农场`
 
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/30/README.md)
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/31/README.md)
  ` 蓝莲花农场`
 
-### [截至4.11 俄乌战事汇总](/content/gnews/31/README.md)
+### [截至4.11 俄乌战事汇总](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/32/README.md)
+### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/34/README.md)
+### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/35/README.md)
@@ -135,20 +135,20 @@
 ### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声｜欧盟主席：将采取特别措施让乌克兰快速加入欧盟](/content/gnews/41/README.md)
+### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/42/README.md)
+### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/43/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [加拿大央行上调银行同业拆借利率](/content/gnews/44/README.md)
+### [加拿大央行上调银行同业拆借利率](/content/gnews/43/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共非法器官移植,医护人员充当侩子手](/content/gnews/45/README.md)
+### [中共非法器官移植,医护人员充当侩子手](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
+
+### [中共对南海岛礁的军事化促其成为全球和平的最大威胁](/content/gnews/45/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [大锅饭2.0｜中共国务院：加快建设全国统一大市场](/content/gnews/46/README.md)
  ` 關注組`

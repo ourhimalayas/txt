@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 1:12 AM (UTC)`
+
+4/10/2022 Miles Guo: The Taiwanese and Japanese media that did not dare to report on the NFSC & ROLF Ukraine rescue operation has proved that the citizens of the New Federal State of China have become a mirror of courage and justice for the whole world. No one is more noble than the fellow fighters who left their family and career behind, risking their life to participate in the Ukraine rescue operation. Everything about the NFSC & ROLF Ukraine rescue operation is a voluntary act of our fellow fighters. I am grateful for all your efforts made at each and every moment.<br/><br/>4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大！新中国联邦救援行动的一切都是战友们自发的，文贵感恩你们每分每秒的付出！<br/>
+![img](https://media.gettr.com/group30/getter/2022/04/12/01/1e63b4a4-c560-12e6-ae07-e99149129e5c/out.jpg)
+
+---
+
 `@miles 4/12/2022 1:06 AM (UTC)`
 
 4/10/2022 Miles Guo: The Japanese government and the leaders of some European countries appreciated the New Federal State of China for rescuing refugees on the front line of the Russian-Ukrainian war; many dignitaries from different countries have secretly contacted Mr. Guo about the recognition of the NFSC as a legitimate state; the Jews, who are in deep collusion with the Chinese Communist Party, are also grateful for the NFSC rescuing their people<br/><br/>4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系；与中共勾兑极深的犹太人也感激新中国联邦人的救助<br/>
@@ -150,13 +157,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 `@miles 4/11/2022 4:42 PM (UTC)`
 
 4月11号, 郭文贵先生两首新歌上线第八天<br/>《灭共的雪》登榜iTunes<br/>新西兰🇳🇿，新加坡🇸🇬，柬埔寨 🇰🇭， 马耳他 🇲🇹 热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/>澳大利亚 🇦🇺， 蒙古🇲🇳，斐济🇫🇯， 西班牙 🇪🇸， 德国 🇩🇪 摇滚榜第三名🥉<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭， 马耳他 🇲🇹热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/>新西兰 🇳🇿， 新加坡 🇸🇬 流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/>西班牙 🇪🇸摇滚歌曲榜第二名🥈<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、澳大利亚、柬埔寨, 蒙古，斐济，老挝，马耳他， 西班牙， 德国的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2329339/<br/>
-
----
-
-`@miles 4/11/2022 4:41 PM (UTC)`
-
- 4月11号：一切都在行动中，
-![img](https://media.gettr.com/group37/getter/2022/04/11/16/63a189c1-d9b5-7db5-4266-a836e27cfc17/out.jpg)
 
 ---
 
