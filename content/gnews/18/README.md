@@ -2,26 +2,34 @@
 ---
 
 
-## 樱花FM┃国际霸权竞争核心 日本产量子计算机年内首登场
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2333051/)
+## Coinbase暂停印度UPI支付方式，合规性遭质疑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333115/)
 
-音频：东京樱花团/战友520
+#### 翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/041217.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Coinbase_india_launch_radhika_large_1649666367927.jpg)图片来源：Digit News
 
-岸田内阁4月6日公布了以招牌政策“新资本主义”作为增长战略核心的有关量子技术新国家战略原案。内容包括，今年内出台“国产量子计算机”第一号机组，并在东北大学等国内4所大学认定量子技术研究、支援据点。他还提出了到2030年量子技术使用者达到1000万人的数值目标。
 
-多名政府相关人士透露了此事。预定于本月内召开“综合创新战略推进会议”（议长松野官房长官）量子技术是利用极其微小的世界物理法则（量子力学）进行通信、计算、测定等的技术，有望应用于与现有超级计算机具有数位差计算能力的“量子计算机”和不会被窃听的密码通信。在新的战略“量子未来社会展望”（暂称）中，将量子技术规定为“未来国家间霸权竞争的核心技术”。他强调了经济安保的重要性，呼吁说：“要在本国拥有先进的量子技术，持续培养和确保稳定的人才。”
+根据COINGEEK4月11日报道，“我们不知道有任何使用UPI的加密交换。”印度国家支付公司（NPCI）就Coinbase在印度推出全方位交易业务数小时后发表了这一声明。NPCI是管理印度统一支付接口（UPI）的实体。
 
-具体来讲，除了在东北大学建立培养产业人才的据点外，还将在冲绳科学技术大学院大学、产业技术综合研究所、量子科学技术研究开发机构设立研究及支援据点。利用政府基金，创出新产业和培养新兴企业。到2030年，国内将有1000万人利用量子技术，把量子技术的生产额提高到50万亿日元。未来将在金融、医疗、运输、航空等整个社会经济体系中引进量子技术，以提高生产效率和安全性为目标。
+Coinbase在过去六个月里一直在印度大量招兵买马，尽管印度政府在2022年3月29日宣布了“严格的”数字货币税收规定。综合来看，这并没有为印度的数字货币投资者描绘出美好的前景。
 
-政府还制定了有关人工智能（AI）的国家战略原案。该报告书明确指出，将在虚拟空间构筑再现现实世界、可以进行多种假设实验的“数码双子座”，并利用在假设首都正下方地震、南海特拉夫地震、新型冠状病毒等的受害预测上。其中还包含了期待在武力攻击事态等非常时期用于保护国民的内容。
+“我们看到了它的到来，”BSV 区块链协会的Kapil Jain告诉 CoinGeek。“在过去的六个月里，Coinbase一直在大量招聘人员。合规性将是印度的一大亮点。Coinbase将无法逃避。数字货币主要用于绕过法律限制或替代洗钱网络。最近由于反洗钱规则，许多非营利组织的资金被切断。 WazirX，币安 (Binance) 已经受到税收突击和审查。”
 
-文字版原文：[樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](https://gnews.org/zh-hans/2304671/)
+Coinbase首席执行官兼联合创始人Brian Armstrong最近宣布，已经向印度初创企业投资了1.5亿美元，并将于2022年在印度雇用1000名员工。Coinbase已经是印度两家领先数字货币交易所（CoinSwitch Kuber和CoinDCX）的主要投资者。据称，Coinbase几周前就开始测试UPI支付，并于4月7日在印度举行的首次活动中宣布正式推出。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+周日，这家总部位于美国的交易所宣布，在印度推出交易服务不到四天后，已经暂时禁止通过UPI购买数字货币。根据Coinbase的声明，“暂时无法使用该支付方式进行购买”，尽管该平台继续允许通过即时支付服务出售代币。
+
+资料来源：[Coinbase suspends support for UPI payments in India amid regulatory heat](http://NBASEcoingeek.com/coinbase-suspends-support-for-upi-payments-in-india-amid-regulatory-heat/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

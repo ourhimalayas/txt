@@ -2,35 +2,27 @@
 ---
 
 
-## 奥地利领导人在俄罗斯与普京进行“公开而强硬”的会谈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333108/)
+## 台湾｜无预警联翔操演 国防部“测试”防空接战能力
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333163/)
 
-#### 翻译/编辑：小红帽
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+台北12日清晨5点，禁航战机的台北市上空有战机飞越并盘旋，后经军方回应，证实为国军例行的“联翔操演”，无预警派遣F-16、IDF、AH-64E等型机扮假想敌演练，强化对重要目标防护战力。“联翔操演”，旨在空军对各空军基地反应接战与制敌空袭进行测试。本次演习采实兵不实弹的演练，防守方在假想敌军机接近驻地时，须拟真完成应敌程序。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_370afdafa71345fa8742d9a7a2585500_16x9_992.jpg)图片来源：ABC NEWS
+网友于脸书社团发文表示“一大早怎么有战机开过来啊？俄罗斯战机开过来了吗？”“有清楚听到但没有看到”、“有听到…很大声在北边松机方向”。
 
+国防部发言人孙立方表示，上午这项演习民众相当关切，国防部为检测国军联合舰队、基地要港、野战防空应对能力及接战程序，并检视防空作战指挥及兵力运用，在清晨执行“整体防空作战计划演练”，操演状况均正常。
 
-根据路透社4月12日报道，奥地利总理卡尔·内哈默周一在莫斯科附近与俄罗斯总统弗拉基米尔·普京举行了“非常直接、公开和强硬”的会谈，这是普京自入侵乌克兰以来与欧盟领导人的首次会晤。
+演練主要由花蓮、嘉義F-16戰機扮演假想敵，模仿共軍在戰時對台可能空襲航線飛行，以無預警方式測驗防空部隊反應，為了避免影響民航，因此該演習都在清晨5點半到8時前進行。
 
-中立的奥地利从俄罗斯获得 80% 的天然气，通常与莫斯科的联系通常比欧盟大部分国家更密切，但最近情况并非如此。
+又同日，国防部疑似受到俄乌局势影响，改变过去“避免触及民间战备”的态度，发布“全民国防手册”(范本)，为提供民众面临军事危机及可能发生之灾难时相关紧急应变资讯，并开始向民间释放应居安思危的讯号。（[详细](https://gnews.org/zh-hant/2332680/)）
 
-内哈默表达了对乌克兰的声援，并谴责了俄罗斯明显的战争罪行。而他的政府也与其他欧盟国家一起驱逐了俄罗斯外交官，尽管这只是俄罗斯驻乌克兰外交人员的一小部分。
+来源｜[今日新聞](https://www.nownews.com/news/5772583)、台湾国防部消息
 
-“这不是一次友好的访问，”普京在莫斯科郊外的新奥加廖沃官邸会晤后不久，他的办公室发表的一份声明中援引内哈默的话说。内哈默尔的一位发言人说，会议持续了75分钟，以普京的标准来说，这相对较短。
+* * *
 
-内哈默重申了之前的评论，他希望帮助结束冲突或改善乌克兰陷入困境的平民，例如人道主义走廊。他几乎没有透露普京的回应。
-
-“与普京总统的对话非常直接、公开和强硬，”内哈默在声明中说。“我向普京传达的最重要信息是，这场战争必须最终结束，因为在一场战争中，双方都只有输家。”
-
-资料来源：[Austrian leader has ‘open and tough’ talks with Putin in Russia](https://www.reuters.com/world/europe/austrian-leader-holds-open-tough-talks-with-putin-moscow-2022-04-11/)
-
-发布： *wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

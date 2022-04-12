@@ -2,27 +2,24 @@
 ---
 
 
-## 台湾｜无预警联翔操演 国防部“测试”防空接战能力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333163/)
+## Any Ignorance from Our Fellow Fighters Will Not Be Worthy of Our Brother and Sisters
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2333195/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-台北12日清晨5点，禁航战机的台北市上空有战机飞越并盘旋，后经军方回应，证实为国军例行的“联翔操演”，无预警派遣F-16、IDF、AH-64E等型机扮假想敌演练，强化对重要目标防护战力。“联翔操演”，旨在空军对各空军基地反应接战与制敌空袭进行测试。本次演习采实兵不实弹的演练，防守方在假想敌军机接近驻地时，须拟真完成应敌程序。
+I truly appreciate all of you, no words can express my appreciation. Anybody who ignore our fellow fighters at the frontline, anybody who ignore our fellow fighters, who are facing such danger, the danger of the virus, are not our brothers and sisters.
 
-网友于脸书社团发文表示“一大早怎么有战机开过来啊？俄罗斯战机开过来了吗？”“有清楚听到但没有看到”、“有听到…很大声在北边松机方向”。
+**【Miles Guo’s Broadcast Highlights】2022.4.3 Any Ignorance from Our Fellow Fighters Will Not Be Worthy of Our Brother and Sisters**
 
-国防部发言人孙立方表示，上午这项演习民众相当关切，国防部为检测国军联合舰队、基地要港、野战防空应对能力及接战程序，并检视防空作战指挥及兵力运用，在清晨执行“整体防空作战计划演练”，操演状况均正常。
+**Miles:**
 
-演練主要由花蓮、嘉義F-16戰機扮演假想敵，模仿共軍在戰時對台可能空襲航線飛行，以無預警方式測驗防空部隊反應，為了避免影響民航，因此該演習都在清晨5點半到8時前進行。
+Those big shots of the world，one tycoon from Wall Street. A guy you read about everyday on the newspaper said, Miles, give me a few of your vests. My grandson wanted your vests. I asked why? He said that is great, he used to support the CCP, treat the CCP like his daddy, next to the bridge water. He is the second person who mostly invested in China, an investor of HNA, one of the earliest investors. Now he supports our whistleblower movement. He has been watching our support with Ukraine, he asked why you guys support Ukraine? I said, a promise to God, no specific purpose or interests, this is to let people know that we cannot be represented by the CCP. We are the Chinese people who are going to take down the CCP. We are preventing anti-Chinese activities, simple like that and nothing else.
 
-又同日，国防部疑似受到俄乌局势影响，改变过去“避免触及民间战备”的态度，发布“全民国防手册”(范本)，为提供民众面临军事危机及可能发生之灾难时相关紧急应变资讯，并开始向民间释放应居安思危的讯号。（[详细](https://gnews.org/zh-hant/2332680/)）
+Nobody is like me who worries about our brothers and sisters everyday. Those who are at the frontline of this war. That’s right, facing the danger of the virus can potentially get infected at any given moment, we must also endure criticism. I said we only have one goal here, to promote the NFSC and ROLF, to show that we are different from the CCP, simple like that. This guy was so touched, you know why he decided to change now, did you know? His son attended school in the UK, he needed to go to the UK for the graduation ceremony, must be vaccinated, just one shot, half paralyzed at home. You all know this guy, how many schools in Manhattan, how many hospitals he made donations to? Now, he was saved. Once he got to the hospital, after some assessments, a nurse said, this is the side effects of the vaccine. He was admitted in the hospital, getting a full blood clean up, stayed in the ICU for a few days, almost lost his life. This is the virus, the vaccine symptoms. They are all watching our broadcast about Ukraine, watching our work at the frontline.
 
-来源｜[今日新聞](https://www.nownews.com/news/5772583)、台湾国防部消息
+I wanted to tell you guys, my brothers and sisters, just like what I said. No matter how handsome Eric is, how beautiful his voice is, he cannot tell you such story. This is my experience, this is the story, this is what you guys have done at the frontline. Our tent is like a book written by Jia Pingao, about a lamp in the darkness of Xin Jiang, in a shabby house. A house that was built by digging a hole, with a lamp in the room. I read this novel, I think you guys are the lamp. People of the Northwest still have hope. Eventually, the reporters located the lamp, heard people were having sex.
 
-* * *
+So, people still have hope, in this darkness, in this shabby house with sex noises. At such time hearing such noise, bring warmth to people, this is reproduction. Hope is in the reproduction, reproduction from a disaster. Also it creates hope, the only thing you cannot do is having sex out there, but your image of bringing hope to the world. Especially bringing hope to the Chinese people. I truly appreciate all of you, no words can express my appreciation. Anybody who ignore our fellow fighters at the frontline, anybody who ignore our fellow fighters, who are facing such danger, the danger of the virus, are not our brothers and sisters. If you guys needed something, I am willing to fulfill that request. Unless you guys don’t need it, not so much for the gentlemen, ladies are welcome.
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+Video Clip: Wenzhi|Subtitle: Yushanxiqiaoke| Translator:Arthur| Proofread:TonyJ| Video/Script: lxymsg| Editor: Quentin| Publish:Little Bee
 
  
 

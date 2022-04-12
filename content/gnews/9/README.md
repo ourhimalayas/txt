@@ -2,41 +2,27 @@
 ---
 
 
-## 澳大利亚外长抨击俄罗斯使用化学武器
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2333140/)
+## 俄乌战争｜俄罗斯外长：对乌克兰军事行动不会停止
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333180/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜俄羅斯外長：對烏克蘭軍事行動不會停止.jpg)
 
-#### 翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/9665970-3x2-940x627-1.jpg)图片来源：ABC
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-根据澳洲媒体4月12日报道，澳大利亚外交部长玛丽斯-佩恩将有关俄罗斯化学武器袭击乌克兰的报道描述为“对国际法的全面违反”。
+俄罗斯外长拉夫罗夫（Sergei Lavrov）4月11日接受俄媒访问时表示，俄罗斯向乌克兰发动的军事行动，旨在终结美国在国际舞台上的完全主导地位和鲁莽扩张，而俄罗斯是不服从华盛顿意愿的国家之一。
 
-一夜之间，乌克兰军队声称俄罗斯使用了一种“未知”的有毒物质，导致受害者呼吸衰竭。
+他又指责欧盟外交与安全政策高级代表博雷利（Josep Borrell）呼吁欧盟成员国继续向乌克兰提供军援的言论令人发指，认为这是鼓励俄军在乌克兰进行更多战斗。
 
-虽然这些报道尚未得到证实，但英国国防部已经在顿涅茨克地区使用过磷弹。
+至于俄乌谈判，拉夫罗夫指出，俄乌双方2月底展开首轮谈判时，总统普京（Vladimir Putin）曾下令暂停军事行动，但如今立场已变，因发现乌克兰人并不打算采取对等做法。他强调，除非达成最终协议，否则俄罗斯的军事行动不会停止。
 
-“（之前化学武器的使用）提高了未来在马里乌波尔被使用的可能性，因为争夺该城市的战斗正在加剧。”佩恩说。
+來源｜[FirstPost](https://www.firstpost.com/world/russia-wont-pause-hostilities-amid-talks-with-ukraine-says-sergei-lavrov-10545181.html)
 
-佩恩在悉尼对记者说，如果事情得到证实，这将是对俄罗斯不重视法治的进一步确认。“那将代表俄罗斯全面了违反国际法。”
+* * *
 
-英国国防部警告俄罗斯军队可能在被围困的港口城市马里乌波尔使用磷弹药，并警告说俄罗斯军队已经在顿涅茨克地区使用了化学武器。
-
-佩恩参议员表示，澳大利亚将与英国国防部同行合作，以确认报告的真实性。
-
-当被问及俄罗斯对澳大利亚政客的制裁时，斯科特莫里森称其为“荣誉徽章”。
-
-资料来源：[Foreign Minister blasts Russia for reported use of chemical weapons](https://www.news.com.au/finance/work/leaders/foreign-minister-blasts-russia-for-reported-use-of-chemical-weapons/news-story/71aa1e97a25e78396623f9eec2587480)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

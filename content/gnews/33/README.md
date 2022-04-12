@@ -2,43 +2,117 @@
 ---
 
 
-## 4/12/2022 银河快讯：一美元兑换125日元，是六年零十个月以来日元的最低水平；日本确认首例高度传染性的 Omicron&#8221;XE &#8220;毒株
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2332663/)
+## 参议员汤姆·科顿：全世界都应该看看，中共政府是如何打着“公共卫生”的幌子残酷对待自己的人民的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2332826/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/e6f92fc711c84bf5e50684379ffd3137dc12f61349b42c3844f6972eda308181.jpeg)
-[图片资源](https://news.yahoo.co.jp/pickup/6423507)
+**参议员汤姆·科顿： **
+我的心与在 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 野蛮残暴治下遭受苦难和饥饿的中国人民同在。全世界都应该看看， [#中共政府](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E6%94%BF%E5%BA%9C) 是如何打着“公共卫生”的幌子 (残酷) 对待自己的人民的。
 
-**1.一美元兑换125日元，是六年零十个月以来日元的最低水平**
 
-[据TBS 新闻4月11号报道，今天东京外汇市场上，日元兑美元汇率暂时达到125.40日元，是2015年6月以来六年零十个月的最低水平。越来越多的观点认为美国中央银行美联储将加速收紧货币政策，这加速了日元的抛售和美元的买入。](https://news.yahoo.co.jp/articles/cd6648f2041fd5effcebd7a87433d772488e571b)
 
-**2. 日本确认首例高度传染性的 Omicron”XE “毒株**
+> My thoughts are with the Chinese people who are suffering and facing starvation under the brutal cruelty of the Chinese Communist Party.
+> — Tom Cotton (@TomCottonAR) [April 11, 2022](https://twitter.com/TomCottonAR/status/1513531221904658440?ref_src=twsrc%5Etfw)
 
-[据TBS 4月11号报道，据厚生劳动省称，上个月26号从美国抵达成田机场的一名30多岁的妇女被证实感染了 Omicron”XE “菌株。这名妇女在机场的检疫测试中被发现感染了中共病毒（冠状病毒COVID-19），随后的基因分析证实她感染了 “XE “菌株。’XE’菌株是来自Omicron菌株的多种类型的基因的组合，可能比在日本已经扩散的’BA.2’菌株更具感染性。](https://news.yahoo.co.jp/articles/5f4fecac2b5950c95c9c94126913ff082e021073)
 
-**3. 由于俄罗斯的煤炭禁运政策，相关企业正在更换供应商**
 
-[据NHK4月11号报道,为了应对俄罗斯的军事侵略，日本和西方国家加强了经济制裁，政府表示，对俄罗斯的额外制裁将包括逐步减少和最终禁止煤炭进口。在这种背景下，企业正越来越多地将煤炭采购转向俄罗斯以外的国家。其中，太平洋水泥公司是水泥行业最大的企业，其生产过程中使用的煤炭有大约60%是从俄罗斯进口的，但为了应对乌克兰的局势，它增加了从澳大利亚和美国的采购。为了响应政府的政策，该公司打算进一步减少从俄罗斯的进口。](https://www3.nhk.or.jp/news/html/20220411/k10013577321000.html)
+**国会中国执行委员会： **
+国会中国执行委员会委员默克利参议员、众议员麦克格文、马林洛夫斯基，要求世界银行行长停止资助在新疆维吾尔自治区从事侵犯人权的公司。 （附信件全文）
 
-**4. 国内主要金融公司加快应对脱碳政策，不资助煤炭开采**
 
-[据NHK4月11号报道，三菱UFJ金融集团将在2040财政年度之前将其对燃煤电厂的贷款额度（目前为5000亿日元）减少到零，以实现一个非碳化的社会。还决定不向煤炭开采企业发放新贷款，并将鼓励这些客户利用可再生能源。三菱日联金融集团可持续发展规划办公室主任渡边洋说：”能源问题因地区和行业而异，因此我们希望在与商业伙伴的对话中努力实现去碳化。”](https://www3.nhk.or.jp/news/html/20220411/k10013576211000.html)
 
-**5. 电子产品零售商EDION的77,000多份客户资料可能已被泄露**
+> CECC Commissioners [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw), [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw) and [@RepMalinowski](https://twitter.com/RepMalinowski?ref_src=twsrc%5Etfw) ask [@WorldBank](https://twitter.com/WorldBank?ref_src=twsrc%5Etfw) President [@DavidMalpassWBG](https://twitter.com/DavidMalpassWBG?ref_src=twsrc%5Etfw) to stop funding companies engaged in human rights abuses in the [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) Uyghur Autonomous Region. Read full letter at [https://t.co/VP2zr2OcNE](https://t.co/VP2zr2OcNE). [https://t.co/0oDtIvTIR6](https://t.co/0oDtIvTIR6) [pic.twitter.com/eQq9eFdkeW](https://t.co/eQq9eFdkeW)
+> — China Commission (@CECCgov) [April 11, 2022](https://twitter.com/CECCgov/status/1513532790649856004?ref_src=twsrc%5Etfw)
 
-[据NHK4月11号报道，据该公司称，本月8号，由这家集团公司运营交付管理系统的服务器被非法访问，并确认一些个人数据被删除。被删除的个人数据包括购买空调、冰箱和其他产品的客户在要求送货或安装时登记的77000多条信息，包括姓名、地址、电话号码和其他信息，以及客户收到包裹时的签名等图像。另一方面，它表示不包括信用卡或其他支付信息。该公司已经报警。](https://www3.nhk.or.jp/news/html/20220411/k10013577831000.html)
 
-**6. 两家主要面粉厂从6月起提高商业用面粉的价格**
 
-[据NHK4月11号报道，日本消费的大部分小麦来自海外，由政府大量进口，但是由于主要的小麦种植区北美的歉收，以及对乌克兰紧张局势导致的供应短缺的担忧，国际小麦价格进一步上涨，政府出售给面粉加工公司的进口小麦价格自本月以来已经上涨了17%。](https://www3.nhk.or.jp/news/html/20220411/k10013576931000.html)
+**众议员迈克·罗杰斯： **
+谢谢我的好朋友乔丹议员，邀请我参加首届东北印第安纳国防峰会。 我们的国家面临着来自中（共）国和俄罗斯的前所未有的威胁。至关重要的是，我们的军队要有足够的资金来对抗这些威胁，保证我们国家的安全。
 
-**【日本银河系农场-阿尔法星球】**
 
-素材：文德
 
-中文文案：返朴归真
+> Thank you to my good friend [@repjimbanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) for inviting me to the inaugural Northeast Indiana Defense Summit. 
+> 
+> Our nation faces unprecedented threats from China and Russia. It’s critical that our military have the funding they need to combat these threats and keep our nation safe. [pic.twitter.com/ktlEwBrttk](https://t.co/ktlEwBrttk)
+> — Mike Rogers (@RepMikeRogersAL) [April 11, 2022](https://twitter.com/RepMikeRogersAL/status/1513569202950582276?ref_src=twsrc%5Etfw)
 
-校对：Tagomi
+
+
+**参议员霍利新闻办公室： **
+参议员霍利“提出了《台湾武器出口法案》，通过加快国会批准和消除行政障碍，加快向台湾运送关键武器的速度。” （附相关新闻链接）
+
+
+
+> Senator Hawley “introduced the Taiwan Weapons Exports Act, which would speed up the delivery of critical weapons to Taiwan by expediting Congressional approval and eliminating administrative roadblocks."[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 11, 2022](https://twitter.com/SenHawleyPress/status/1513559281064464387?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨： **
+拜登政府的目标是帮助乌克兰到谈判桌上，不是打赢战争。现在别谈什么和平对话了，如果我们让普京把这场战争带入僵局，他会重建他的军队，将来卷土重来。我们必须帮助乌克兰继续进攻。
+
+
+
+> The Biden Admin’s goal is to help Ukraine get to the negotiating table, not win.
+> 
+> The hell with peace talks right now. If we allow Putin to settle this war into a stalemate, he will rebuild his military and come back for more in the future. We must help Ukraine go on the offense. [pic.twitter.com/Tl4gTmRcQo](https://t.co/Tl4gTmRcQo)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 11, 2022](https://twitter.com/michaelgwaltz/status/1513529715214241802?ref_src=twsrc%5Etfw)
+
+
+
+**参议员汤姆·科顿： **
+拜登总统的伊朗协议不仅对伊朗恐怖分子有利 —— 它还将有助于资助普京的战争机器。 【转华盛顿自由灯塔报：曝光：俄罗斯公司将从新的伊朗核协议中获得数十亿美元 根据华盛顿自由灯塔报审查的美国政府撰写的文件称，作为与伊朗达成的一项新核协议的一部分，俄罗斯几家国家控制的顶级核公司将获得数十亿美元的收入，该协议将免除对这些公司的制裁，从而它们能够建立德黑兰的核基础设施。】
+
+
+
+> President Biden's Iran deal won't just benefit Iranian terrorists—it will help fund Putin's war machine. [https://t.co/Jps9twD9rv](https://t.co/Jps9twD9rv)
+> — Tom Cotton (@TomCottonAR) [April 11, 2022](https://twitter.com/TomCottonAR/status/1513538322689372163?ref_src=twsrc%5Etfw)
+
+
+
+**众议员吉姆·乔丹： **
+亨特·拜登： 
+-从一家与 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 有关联的公司获得480万美元。
+-与乔·拜登一起会见了外国商业伙伴。 
+-与乔·拜登共用银行账户。 
+-用他挣来的钱支付乔·拜登的一些生活费用。 
+别看了，没啥重要的哈！
+
+
+
+> Hunter Biden:
+> 
+> -Made 4.8 million from a company tied to the Chinese Communist Party. 
+> 
+> -Met foreign business partners with Joe Biden. 
+> 
+> -Shared bank accounts with Joe Biden.
+> 
+> -Covered some of Joe Biden’s living expenses with money he earned. 
+> 
+> Nothing to see here!
+> — Rep. Jim Jordan (@Jim\_Jordan) [April 11, 2022](https://twitter.com/Jim_Jordan/status/1513639452991709187?ref_src=twsrc%5Etfw)
+
+
+
+**众议员兰斯·古登： **
+我觉得很讽刺的是，乔·拜登的儿子连现有的枪支法都不能遵守时，乔·拜登却宣布了新的枪支限制。
+
+
+
+> I find it ironic that Joe Biden announced new gun restrictions when his own son failed to abide by existing gun laws.
+> — Lance Gooden (@Lancegooden) [April 12, 2022](https://twitter.com/Lancegooden/status/1513695071098581001?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院： **
+[@SecBlinken](https://twitter.com/SecBlinken)国务卿安东尼·布林肯：美国将继续加大对乌克兰政府和人民的支持，并呼吁其他国家也这样做，正如我们呼吁所有国家谴责莫斯科日益残暴的行径一样。
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): The United States will continue to increase our support to the government and people of Ukraine and call on other nations to do the same just as we call on all nations to condemn Moscow's increasingly brutal actions. [pic.twitter.com/V1R0nPdVpX](https://t.co/V1R0nPdVpX)
+> — Department of State (@StateDept) [April 12, 2022](https://twitter.com/StateDept/status/1513705966088470535?ref_src=twsrc%5Etfw)
+
+
 
  
 

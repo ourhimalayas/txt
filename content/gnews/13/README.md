@@ -2,16 +2,29 @@
 ---
 
 
-## 秘翻在线：日本政府向感染人数日渐增多的冲绳县派遣 &#8220;联络官&#8221;
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333106/)
+## 俄乌战争｜乌克兰证实俄军在马里乌波尔地区使用化学武器
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333162/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-16.png)（图片源自本文链接）
-据４月12日每日新闻记者村尾哲报道：在12日上午的新闻发布会上，内阁官房长官松野博一宣布，将在当天派遣一个联络小组前往中共病毒(新冠病毒)病例数量不断上升的冲绳县。负责在县政府和各部委之间进行联络，并计划在15日前派出由一名内阁议员领导的四人小组。
+**图/文｜CP**
+**发布时间｜12/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜烏克蘭證實俄軍在馬里烏波爾地區使用化學武器.jpg)
 
-冲绳县是全国每10万人中新感染病例最多的地区，并有增加的趋势。松野先生表示，我们将紧密合作，以便能够作出灵活的反应。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-信息源：[コロナ感染者増の沖縄に「連絡員」派遣 県と各省の調整役に (msn.com)](https://www.msn.com/ja-jp/news/national/%E3%82%B3%E3%83%AD%E3%83%8A%E6%84%9F%E6%9F%93%E8%80%85%E5%A2%97%E3%81%AE%E6%B2%96%E7%B8%84%E3%81%AB-%E9%80%A3%E7%B5%A1%E5%93%A1-%E6%B4%BE%E9%81%A3-%E7%9C%8C%E3%81%A8%E5%90%84%E7%9C%81%E3%81%AE%E8%AA%BF%E6%95%B4%E5%BD%B9%E3%81%AB/ar-AAW75SE?ocid=msedgntp&amp;cvid=df2b5a7981004bba88fdb8ed2a146fe0)
+
+乌克兰媒体12日引述守军发出的报告指出，俄军使用无人机对被包围在钢铁厂范围内的亚速营（Azov）部队投放有毒物质，伤者出现呼吸困难及神经系统失常症状，怀疑是化学武器。
+
+美国国防部新闻秘书约翰·科比表示，五角大楼正在密切关注此事，如经证实，这将是俄军首度对乌克兰动用化学武器，代表俄乌冲突的重大升级，并对北约的行动构成直接挑战。
+
+乌克兰总统泽连斯基（Volodymyr Zelensky）11日深夜发表讲话，证实俄军威胁将在马里乌波尔（Mariupol）地区使用化学武器。马里乌波尔内的亚速营（Azov）部队被包围在城内的钢铁厂，情况危在旦夕，惟守军重申不会投降将死守至最后。
+
+美国官员过去几天一直对外警告，俄军极有可能会继续他们的“暴行”，加倍袭击乌克兰东部地区，并作出类似叙利亚内战期间使用化学武器的野蛮行为。周一，普京任命在叙利亚立下战功，外号“叙利亚屠夫”的冷血战将德沃尔尼科夫全权指挥对乌克兰的侵略行动，对此，新中国联邦发起人郭文贵先生担心，乌克兰恐怕会迎来一场毁灭性攻击。
+
+來源｜[CNBC](https://www.cnbc.com/2022/04/11/pentagon-monitoring-reports-of-possible-russian-chemical-weapons-attack-in-mariupol.html)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3455161-russias-chemical-attack-on-mariupol-three-persons-affected.html)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

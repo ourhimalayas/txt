@@ -2,25 +2,35 @@
 ---
 
 
-## 国际｜芬兰、瑞典讨论加入北约 俄罗斯“挑衅、不会带来稳定”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333035/)
+## 奥地利领导人在俄罗斯与普京进行“公开而强硬”的会谈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2333108/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-外媒报导称，俄罗斯入侵乌克兰致瑞典、芬兰两中立国重新思考自身安全问题，瑞典执政党目前正在讨论是否应加入北约（NATO），而芬兰则将在未来数周内充分讨论并在6月底作出决定。 俄罗斯则将此视为挑衅行为，并警示“加入北约不会为欧洲带来稳定”。
+#### 翻译/编辑：小红帽
 
-瑞典、芬兰两国并未具正式军事同盟关系，惟多项民调结果显示，自俄侵略乌之后，瑞典约5成民意支持瑞典加入北约、芬兰则为6成支持。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_370afdafa71345fa8742d9a7a2585500_16x9_992.jpg)图片来源：ABC NEWS
 
-瑞典社会民主党周一声明表示“当俄罗斯入侵乌克兰时，瑞典的安全发生了本质的变化”。该党秘书长拜厄斯·鲍丁（Tobias Baudin）称，瑞典加入北约的安全审查将在“夏天前”完成。据外媒报导，瑞典政坛对于加入北约一事具高度共识，或持开放态度；芬兰部分，外媒称200名国会议员仅6名反对加入北约。
 
-北约秘书长延斯·斯托尔滕贝格公开表示，欢迎瑞典、芬兰两国申请加入，并将得到美、英、德、法、土耳其在内成员国的支持。对于两国申请加入北约，克里姆林宫视为挑衅，发言人德米特里佩斯科夫（Dmitry Peskov）本周一表示，两国可能加入北约一事，不会为欧洲带来稳定。
+根据路透社4月12日报道，奥地利总理卡尔·内哈默周一在莫斯科附近与俄罗斯总统弗拉基米尔·普京举行了“非常直接、公开和强硬”的会谈，这是普京自入侵乌克兰以来与欧盟领导人的首次会晤。
 
-来源｜[衛報](https://www.theguardian.com/world/2022/apr/11/sweden-and-finland-make-moves-to-join-nato)
+中立的奥地利从俄罗斯获得 80% 的天然气，通常与莫斯科的联系通常比欧盟大部分国家更密切，但最近情况并非如此。
 
-* * *
+内哈默表达了对乌克兰的声援，并谴责了俄罗斯明显的战争罪行。而他的政府也与其他欧盟国家一起驱逐了俄罗斯外交官，尽管这只是俄罗斯驻乌克兰外交人员的一小部分。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+“这不是一次友好的访问，”普京在莫斯科郊外的新奥加廖沃官邸会晤后不久，他的办公室发表的一份声明中援引内哈默的话说。内哈默尔的一位发言人说，会议持续了75分钟，以普京的标准来说，这相对较短。
+
+内哈默重申了之前的评论，他希望帮助结束冲突或改善乌克兰陷入困境的平民，例如人道主义走廊。他几乎没有透露普京的回应。
+
+“与普京总统的对话非常直接、公开和强硬，”内哈默在声明中说。“我向普京传达的最重要信息是，这场战争必须最终结束，因为在一场战争中，双方都只有输家。”
+
+资料来源：[Austrian leader has ‘open and tough’ talks with Putin in Russia](https://www.reuters.com/world/europe/austrian-leader-holds-open-tough-talks-with-putin-moscow-2022-04-11/)
+
+发布： *wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
