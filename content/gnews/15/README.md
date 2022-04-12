@@ -2,31 +2,35 @@
 ---
 
 
-## 设立“准难民”制度 日本政府今秋再提出入境管理法修正案（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336019/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2336155/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
-上一篇：[设立“准难民”制度 日本政府今秋再提出入境管理法修正案（上）](https://gnews.org/zh-hans/2335978/)
+作者：香草山翻译部
 
-另一方面，修正案为避免非法居留的外国人的收容长期化，在难民认定程序中停止遣返的规定中设置了例外，申请第三次以后允许强制遣返。立宪民主党等人主张删除这一问题。此外，还要求查明收容在入管设施中的斯里兰卡女性死亡的案件的真相，将修正案逼至废案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1447.png)图片来源：雅虎新闻
-日本政府和执政党在1月时就执政党和在野党对决类型的修正案，巩固了夏季参议院选举后推迟的判断。然而，鉴于乌克兰局势，政府内部“必须设法成立”(司法部干部)的呼声迅速增强。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
 
-日本官房长官松野博一在5日的新闻发布会上就修正案表示：“我们正在考虑重新提交修正案。我们将努力建立必要的制度，以适当地保护真正需要庇护(Hido)的人“。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-11.png)
 
-对此，立民坚持要求修改修正案的态度。国家对委员长马渊澄夫在6日的新闻发布会上指出：“(围绕收容斯里兰卡女性)应对入管等问题存在非常大的疑义。”
+文章仅代表作者本人观点，与Gnews无关
 
-不过，在野党内部也有意见对修正案表示理解。日本维新会干事长藤田文武在记者会上表示：“法律制度应该好好完善。”
+视频参看：
+[2022.04.12早 《NFSC新闻》](https://www.gettr.com/streaming/p14x8oue165)
+[2022.04.12早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14ws418336)
 
-参考链接：[「準難民」制度の創設目指す　入管法改正案、今秋にも再提出　政府（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/fbcaf37ce586e880741bd29d8928797f06c4059e)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
 
  
 

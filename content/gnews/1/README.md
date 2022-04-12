@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（04/12/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2336386/)
+## 4/10/2022 文贵直播：独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2336481/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/85535303-9A91-40ED-9945-256388CD764F.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

@@ -15,104 +15,104 @@
 
 ---
 
-### [五月花简报（04/12/2022）](/content/gnews/1/README.md)
+### [4/10/2022 文贵直播：独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022/04/12 文贵先生盖特精要](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线: 中共政权如惊弓之鸟处处设防](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [由于美国关系紧张，沙特阿拉伯领导欧佩克决定放弃 国际能源署数据](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [4/12/2022 文贵盖特：过去24小时发生了什么？欧盟和美国要对香港金融脱钩、对香港官员进行严厉制裁；中共未来不会再有外交了，只有内交](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [五月花简报（04/12/2022）](/content/gnews/6/README.md)
  ` mayflowertranslate`
 
-### [4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？](/content/gnews/2/README.md)
+### [4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [截至4.12 俄乌战事汇总](/content/gnews/3/README.md)
+### [截至4.12 俄乌战事汇总](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [塞尔维亚，普京在欧洲腹地的盟友 (二)](/content/gnews/4/README.md)
+### [塞尔维亚，普京在欧洲腹地的盟友 (二)](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [塞尔维亚，普京在欧洲腹地的盟友 (二)](/content/gnews/5/README.md)
+### [塞尔维亚，普京在欧洲腹地的盟友 (二)](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《历史的今天》2022.04.12](/content/gnews/6/README.md)
+### [《历史的今天》2022.04.12](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC每日热点0412](/content/gnews/7/README.md)
+### [DC每日热点0412](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [塞尔维亚，普京在欧洲腹地的盟友 (一)2](/content/gnews/8/README.md)
+### [塞尔维亚，普京在欧洲腹地的盟友 (一)2](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰妇女性侵报告增加 当地团体：“侵略者把性侵妇女当作武器”](/content/gnews/9/README.md)
+### [乌克兰妇女性侵报告增加 当地团体：“侵略者把性侵妇女当作武器”](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月12日早](/content/gnews/10/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月12日早](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [喜币有望成为最早、最流行的数字法币，战争、政治较量的本质在于资本](/content/gnews/11/README.md)
+### [喜币有望成为最早、最流行的数字法币，战争、政治较量的本质在于资本](/content/gnews/16/README.md)
  ` YALUN 亚伦`
 
-### [俄罗斯在乌克兰的战争意味着欧洲的经济将无法恢复正常](/content/gnews/12/README.md)
+### [俄罗斯在乌克兰的战争意味着欧洲的经济将无法恢复正常](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/13/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马里乌波尔市民呼吸衰竭 俄军用无人机投下化学武器](/content/gnews/14/README.md)
+### [马里乌波尔市民呼吸衰竭 俄军用无人机投下化学武器](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [设立“准难民”制度 日本政府今秋再提出入境管理法修正案（下）](/content/gnews/15/README.md)
+### [设立“准难民”制度 日本政府今秋再提出入境管理法修正案（下）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争加剧化肥紧缺，危及粮食供应](/content/gnews/16/README.md)
+### [俄乌战争加剧化肥紧缺，危及粮食供应](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [设立“准难民”制度 日本政府今秋再提出入境管理法修正案（上）](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥说—第63期](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [逃离中共统治，创作《赤地之恋》的张爱玲](/content/gnews/19/README.md)
+### [逃离中共统治，创作《赤地之恋》的张爱玲](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [日本首现奥米克戎XE变异株病例](/content/gnews/20/README.md)
+### [日本首现奥米克戎XE变异株病例](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [美国将派高级别官员访问所罗门群岛](/content/gnews/21/README.md)
+### [美国将派高级别官员访问所罗门群岛](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [2022年4月12日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+### [2022年4月12日，全球中共病毒疫情情况汇总](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/10/2022 文贵直播：乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择](/content/gnews/23/README.md)
+### [4/10/2022 文贵直播：乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [解读上海的一则通知再次将上海人拖进灾难的“深渊”](/content/gnews/24/README.md)
+### [解读上海的一则通知再次将上海人拖进灾难的“深渊”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾](/content/gnews/25/README.md)
+### [4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [联合国也加入新冠疫苗推销员行列了](/content/gnews/26/README.md)
+### [联合国也加入新冠疫苗推销员行列了](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一位乌克兰妇女自述被俄罗斯士兵强奸，丈夫被杀](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【乌克兰救援】三名来自意大利的志愿者冲着响彻全球的新中国联邦咖啡慕名而来](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/29/README.md)
+### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/30/README.md)
  ` NFSC News`
-
-### [郭先生盖特：比利时外交默认新中国联邦消灭中国共产党](/content/gnews/30/README.md)
- ` 波士顿五月花农场金融部`
 
 ### [新西兰财经G乐部2022年4月12日:财经新闻整理](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声｜上海方舱爆满 患者被困车上没吃没喝](/content/gnews/32/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [视频文编|俄乌战争局势分析（PPT）](/content/gnews/32/README.md)
+ ` KarmaLabs`
 
-### [4/11/2022 文贵盖特：上海和长春无数大白和居委会的人用食物逼迫女孩陪睡，无数人的妻女遭饭奸、水奸、面奸，却无人敢站出来反抗；通过用封锁把家变成监狱，中共得以享受你的一切](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
+### [有声｜上海方舱爆满 患者被困车上没吃没喝](/content/gnews/33/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
 ### [有声｜没排练好？上海书记视察小区遭愤怒指责](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -120,20 +120,20 @@
 ### [有声｜马里乌波尔数万人被俄处刑 乌克兰指其滥杀](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜白宫将挑选新的北约最高指挥官](/content/gnews/36/README.md)
+### [视频文编|美台同盟官方明确定性，中共攻台只有死路一条](/content/gnews/36/README.md)
+ ` KarmaLabs`
+
+### [有声｜白宫将挑选新的北约最高指挥官](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022/04/07 墙内世界](/content/gnews/37/README.md)
+### [2022/04/07 墙内世界](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登和莫迪视频通话 拜登敦促印度不要购买俄产品](/content/gnews/38/README.md)
+### [拜登和莫迪视频通话 拜登敦促印度不要购买俄产品](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [美国国务院将中共国的旅行限制调整为3级 命令某些雇员撤离上海](/content/gnews/39/README.md)
+### [美国国务院将中共国的旅行限制调整为3级 命令某些雇员撤离上海](/content/gnews/40/README.md)
  ` 温哥华扬帆农场`
-
-### [视频｜邪恶中共从没有停止对中国女性的凌辱](/content/gnews/40/README.md)
- ` mayflowertranslate`
 
 ### [日本政府高官指出日本该关注中共的渗透](/content/gnews/41/README.md)
  ` NFSC News`
