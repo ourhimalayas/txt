@@ -15,137 +15,137 @@
 
 ---
 
-### [卑诗省政府雇员仍被疫苗护照所困](/content/gnews/1/README.md)
+### [加拿大BC省取消疫苗护照政策](/content/gnews/1/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大投巨资以推动绿色科技产业](/content/gnews/2/README.md)
+### [加拿大保守党将力推加密货币](/content/gnews/2/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大央行上调银行同业拆借利率](/content/gnews/3/README.md)
- ` 扬帆枫叶快讯`
-
-### [泽连斯基在60分钟采访中重申武器和禁飞区的要求](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [4月11日乌克兰救援行动（图片1-9）](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [中共加速建造100多个可威慑美国的核导弹发射井（2/2）](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [20220410郭文贵大直播 ：上海帮名存实亡 江后继无人 曾被严加看管](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220410郭文贵大直播 ：习近平玩的一剑四雕够狠，粮食成了统治最有力的武器！](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220408郭文贵大直播 ：疫苗灾难蔓延 储粮备药应对PPT](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [加拿大BC省取消疫苗护照政策](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共加速建造100多个可威慑美国的核导弹发射井（1/2）](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/12/README.md)
- ` 蓝莲花农场`
-
-### [加國保守黨將力推加密貨幣](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [加拿大保守党将力推加密货币](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [奥密克戎病毒带来的二次感染在上升](/content/gnews/16/README.md)
+### [“群体免疫”的瑞典做得如何？](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/17/README.md)
+### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [COVID-19疫苗副作用集萃（2022.4.12)–二针辉瑞疫苗，严重皮肤问题](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [COVID-19疫苗副作用集萃（2022.4.12)–第三针疫苗直接打趴下](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新冠病毒感染率飙升，“长期新冠”威胁经济](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [低估了奥密克戎的“致命性”，欧美国家“躺平”政策面临反复](/content/gnews/18/README.md)
- ` 加拿大温哥华英里农场`
+### [大直播后记：七哥谈新中国联邦人要团结，不能以农场来划分](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/19/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/10/README.md)
+ ` 扬帆枫叶快讯`
 
-### [中共在全世界疯狂部署红旗导弹系统](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/11/README.md)
+ ` 扬帆枫叶快讯`
 
-### [中国人的勇气在哪里](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [大直播后记：七哥聊文明及信仰](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [卑诗省政府雇员仍被疫苗护照所困](/content/gnews/14/README.md)
+ ` 扬帆枫叶快讯`
 
-### [【G时新闻】习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/24/README.md)
- ` G-时新闻`
+### [加拿大投巨资以推动绿色科技产业](/content/gnews/15/README.md)
+ ` 扬帆枫叶快讯`
 
-### [BC省取消疫苗卡规定](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [加拿大保守党政策将利好加密货币](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [俄乌战争“没想到”系列之五：](/content/gnews/28/README.md)
- ` 蓝莲花农场`
-
-### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/29/README.md)
- ` 蓝莲花农场`
-
-### [截至4.11 俄乌战事汇总](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/34/README.md)
+### [泽连斯基在60分钟采访中重申武器和禁飞区的要求](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共内应在台湾妈祖绕境活动中故意滋事](/content/gnews/35/README.md)
- ` NFSC News`
+### [右手墨迹｜沪上尽血泪——防疫为了谁](/content/gnews/17/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [德国国防部长：军火库存告罄 下一步军援乌克兰细节保密](/content/gnews/36/README.md)
- ` 日本东京方舟农场`
+### [20220410郭文贵大直播 ：上海帮名存实亡 江后继无人 曾被严加看管](/content/gnews/18/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [广州疫情迅速升级 面临封城](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [欧洲根本不是能源危机，是共产主义极权危机](/content/gnews/38/README.md)
- ` 银河歌舞厅`
-
-### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
-
-### [有声｜欧盟主席：将采取特别措施让乌克兰快速加入欧盟](/content/gnews/40/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/41/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/42/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [加拿大央行上调银行同业拆借利率](/content/gnews/43/README.md)
+### [加拿大BC省取消疫苗护照政策](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [请坚持住最后“20秒”](/content/gnews/44/README.md)
- ` 澳喜农场`
+### [欧盟正起草对俄罗斯实施石油禁运提案](/content/gnews/20/README.md)
+ ` 蓝莲花农场`
+
+### [加國保守黨將力推加密貨幣](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大保守党将力推加密货币](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%](/content/gnews/23/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/24/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中国人的勇气在哪里](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [特鲁多政府将继续扩大联邦预算支出](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄乌战争“没想到”系列之五：](/content/gnews/29/README.md)
+ ` 蓝莲花农场`
+
+### [聚焦：刚刚“普京的嗜血猎犬”扬言要攻克乌克兰非戏言也！](/content/gnews/30/README.md)
+ ` 蓝莲花农场`
+
+### [截至4.11 俄乌战事汇总](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [守卫切尔诺贝利的乌克兰士兵被失踪](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [不出爆料革命情报所料，巴基斯坦总理被中共赶下台](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄罗斯在酝酿“叙利亚式”的大规模行动](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [数据显示中国生产者通胀率飙升，中国股市跌幅超3%](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共内应在台湾妈祖绕境活动中故意滋事](/content/gnews/36/README.md)
+ ` NFSC News`
+
+### [德国国防部长：军火库存告罄 下一步军援乌克兰细节保密](/content/gnews/37/README.md)
+ ` 日本东京方舟农场`
+
+### [广州疫情迅速升级 面临封城](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [欧洲根本不是能源危机，是共产主义极权危机](/content/gnews/39/README.md)
+ ` 银河歌舞厅`
+
+### [4/11/2022国际财经快讯：Twitter称马斯克不会加入董事会；信用衍生品委员会称“俄罗斯债务首次归类为违约”](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [有声｜欧盟主席：将采取特别措施让乌克兰快速加入欧盟](/content/gnews/41/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜中共国各地封路防疫 大批货车司机被困路上](/content/gnews/42/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜北京疫情升级 酒仙桥地区全部被封](/content/gnews/43/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [加拿大央行上调银行同业拆借利率](/content/gnews/44/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [中共非法器官移植,医护人员充当侩子手](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`

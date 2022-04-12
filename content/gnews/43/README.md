@@ -2,26 +2,31 @@
 ---
 
 
-## 加拿大央行上调银行同业拆借利率
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2327977/)
+## 有声｜北京疫情升级 酒仙桥地区全部被封
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2328796/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+**By:秘翻新闻**
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+**2022-04-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/411-7-scaled.jpg)
+[新唐人](https://www.ntdtv.com/gb/2022/04/10/a103396934.html)北京时间4月11日消息。上海疫情还未平息，北京的疫情也在升级，虽然官方公布的新增病例只有个位数，但防疫却风声鹤唳。
 
-据[多伦多太阳报]4月6日报道，加拿大央行将于4月13日上调银行同业拆借利率50个基点，同时还将大幅上调今年的预期通胀率。
+4月9号，北京朝阳区酒仙桥街道二街坊升级为高风险地区，居民被要求“足不出户”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1295.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+当地居民上传的视频显示，当天上午，大批武警在当地集结，准备封城。据说十多万人将受影响。
 
+下午，当地的小区、商店和医院等全被封。有的小区门外还有警察防守。
 
-报道称，加拿大央行最新数据显示，在该国劳动力严重短缺和供应链断裂的情况下，大部分企业都面临有史以来最严重的产能压力。因此，为控制因供应链中断以及俄乌战争所引发的能源成本上涨及通胀率飙升，央行将在未来几个月内会内快速加息。 据悉，这是加拿大央行自3月份加息25个基点后的再次加息。此外，该国五大银行还预计于6月再次将利率提高0.5%，试图以此重新控制加拿大失控的通货膨胀。
+据当地居民说，卖菜的自由市场也都封起来了，菜也抢光了。
 
-校对编辑：硫酸羟氯喹64
+同时，当局还封锁了外围的县市道路，连接河北省廊坊市、香河县、大厂县的公路都被封，北京东南方向的进京道路被截断。在北京上班的人不能进京上班，企业也无法与北京进行业务往来。
 
-发稿：青青
+（秘翻新闻 二丫编辑）
 
-原文链接： [https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april](https://torontosun.com/news/national/bank-of-canada-to-hike-rates-by-50-basis-points-in-april)
+发布:文橙
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

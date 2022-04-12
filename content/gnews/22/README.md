@@ -2,22 +2,26 @@
 ---
 
 
-## 樱花时政┃良品计划决定为在日乌克兰难民提供生活必需品和就业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2331359/)
+## 加拿大保守党将力推加密货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331654/)
 
-撰稿：东京樱花团/百花李香
+采编撰稿：   加拿大温哥华扬帆农场 – 文莱
 
-良品计划已决定向在日本国内获得政府认证的乌克兰难民提供援助。具体支援内容是给在日本的乌克兰难民提供衣服、被褥、家具、家庭用品和其它日常用品。此外，无印良品将在无印良品商店和相关设施中提供就业机会，并在公司宿舍中提供临时住房。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-8.jpg)[图片来源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
-除上述之外，良品计划还向波兰举办的《儿童地球基金》捐赠了100套绘画材料，有彩色铅笔、涂鸦板和折纸，为逃难的儿童提供心理关怀。并从3月15日开始接受捐款，捐款用以帮助和保护乌克兰以及在邻国的难民。
+据自媒体【后千禧年】4月9日报道，加拿大保守党总理候选人波利耶夫在多次表示将推行加密货币后，当天再次宣布，保守党在执政后将取消对数字货币慈善捐款的所有税收。
 
-良品计划表示，希望这种情况能尽快和平解决，还将继续考虑其它支持措施。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1352.png)图片来源：https://cryptocurrencynews.com/
 
-[信息源](https://news.yahoo.co.jp/articles/e04f746bdafd6c85840409b5217f87064ebd9b2b#:~:text=%E3%83%88%E3%)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+对此，保守党政府将实施私人成员法案，以确保加密货币被视为股票和债券。因此当数字货币持有者向注册的加拿大慈善机构捐款时，可不受资本所得税的约束。此举将激励持有数字货币的公民进行慈善捐赠，同时加速加拿大成为区块链之都的前景。
+
+报道称，保守党坚持加拿大人应该自由使用其他类型的金融产品，特别是发展数字货币交易市场，并认为这将使人们更好地控制个人财务，并大量释放加拿大人的消费积极性。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [BREAKING: Poilievre vows to remove taxes on charitable crypto donations if elected | The Post Millennial](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
