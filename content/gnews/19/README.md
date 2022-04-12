@@ -2,42 +2,24 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
+## 种族矛盾白人化是共产党统治世界最大的阴谋
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2334786/)
 
-整理：枳实
-美工：精灵蓝
+**【郭先生直播摘要】2021.2.15 种族矛盾白人化是共产党统治世界最大的阴谋**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+**郭先生：**
 
+从印度这个电影[白虎]，你看到共产党对世界的渗透，因为我本人参与了。当时中共制定的政策  13579计划，其中一个，就是一定要通过经济和蓝金黄和政治家族和操纵，影响印度的各次总统大选、总理大选。把这些家族拉到中国去让蓝金黄他，然后的手段要制造什么？今天我说的核心，战友们，你知道那个电影的核心是什么矛盾吗？大家知道吗？白人不行啦！今天的主题七哥啥时候说过？
 
-雅典娜疫情更新（2022年 4月11日）
+给大家从2017年到现在共产党在世界发动的本质是一个什么？利用黄皮肤人、黑皮肤人、咖啡色皮肤人，就是棕色皮肤人占了全世界将近75%-80%，干掉白种人！印度是棕色人种，在美国，今天所有在美国挑起的，就是对付白人的。把白人变成少数的。在欧洲就是对付白人的，就是所有的大移民、大迁移。在南美对付的就是白人的，在非洲就是对付白人的，在亚洲就是对付白人的。共产党是有计划、有步骤的把那些官僚的人个个拿下，洗脑。一再说、多次说、多年说，说印度所有的问题就是白人给你们带来的。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
-[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
+印度所有的问题就是白人在你们身上栽下的。跟巴基斯坦的问题，这个哈密尔（克什米尔）整个高原的事情这都是英国人给你搞下来的，然后你今天的问题都是美国人搞下来的你和中东的关系是美国人搞下来的。所有的问题都是白人搞出来的。这个电影一开始说去美国，美国完蛋了、美国不行了。白人现在怼肛门、吸毒，男的玩男的、女的玩女的，完啦！百分之百的中共的宣传，白人完蛋了，这是棕色人、中国人的世纪。
 
-数据来源：
+看一看共产党走到全世界去，我亲自、亲耳、亲眼见多次在非洲、在多国、非洲驻中国和外国(驻中国)，中共的领导人(打)交道永远是一样的话。白人是这个世纪的真正的灾难，你们的麻烦全都是白人搞来的，白人的世界的殖民文化，我们现在是一伙的，我们是受害者。这是中国共产党在全人类干得最巧妙的，对美国最大伤害的事情。悲哀的事情，连美国人他一点都没觉醒。看了温家宝，整个以自述的方式给温家宝写信，歌颂你社会主义。最后穷人杀富人有道理。你这什么人也不能杀富人，我们也是穷人，你不能杀人啊！杀人还成功了。共产党在印度的输出社会主义，把所有的社会矛盾归咎于白人。把所有的贫穷悬殊归于你的制度——资本主义。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+那你要想赢怎么办？跟随我共产党社会主义，跟这毛泽东一样，干掉地主，睡地主的老婆和女儿。这不是跟这电影一模一样吗？阶级仇恨、种族的绝对的白人仇恨，不要说种族仇恨，这是不对的。种族仇恨有内有外、各种种族，这是完全种族矛盾白人化，应该这么说才是正确的。这是共产党在全世界统治世界最大的一个阴谋。没有人敢谈、没有人敢说，这真是一个大问题啊！
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+视频剪辑，听写：小蜜蜂| 翻译：Arthur | 校对：Polaris | 视频制作+字幕：文顾|编辑：Quentin|发布：小蜜蜂
 
  
 

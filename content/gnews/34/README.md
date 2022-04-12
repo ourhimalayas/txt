@@ -2,30 +2,39 @@
 ---
 
 
-## 郭先生即将推出两首新歌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334116/)
+## 京都大学教授认为政府该追踪所有接种者状况
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2334356/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/23-3.jpg)
-4月10日的大直播中，郭先生透露，有两首新歌正在创作当中。
+作者：日本方舟农场 – Andy5
 
-其中一首歌是战友创作，该战友是在中共国内深受大众喜爱的歌手。郭先生初次试唱该歌曲就让战友惊讶了，毕竟一个不专业的歌手能够有如此表现，如郭先生所言，自己都觉得不可思议。歌曲尚在录制中，战友尽情期待。
 
-另外一首歌是好莱坞一位有名的作词人，他愿意为新中国联邦创作一首歌曲。歌曲的名字叫做《one hundred percent》，这是一首和以往完全不同的歌曲。歌词来源于郭先生以往的爆料，比如有些句子是这样的“中共病毒来了吗？one hundred percent；香港沦陷了吗，one hundred percent；普京打乌克兰了吗，one hundred percent“，足见该首歌曲体现的是爆料革命唯真不破的内核。该作词人提出要与郭先生单方面联系，排练的时候占用郭先生两个小时，在现场与一千人的队伍去排练，伴唱人员目前都是好莱坞最火的明星。该作词人还透露未来会与战友合作。
 
-撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-* * *
 
-欢迎订阅我们的GNews账号：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+当地时间4月8日，日本京都大学名誉教授福岛雅典医生，在接受日媒采访时表示，日本政府应该对所有接种中共病毒疫苗人员，进行彻底调查，以查清因接种造成的健康受损和死亡案例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+福岛医生依据厚生劳动省提供的数据，整理出在接种后的第二天，死亡人数徒然上升。然而，厚劳省仅给出“无法定论”作为结论，没有深究死亡跟接种疫苗的关联性。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-82.jpg)
+对此，福岛医生认为，既然无法认定因果关系，那么就应该对所有接种者进行跟踪调查。而草草地以“无法定论”作为结论，这是极其不诚实的行为，厚劳省目前的做法是对科学的怠慢。
+
+福岛医生还表示，服用药物后出现异于往常的症状，就该怀疑是药物带来的副作用，这才是防范药物危害时本来该有的态度。
+
+参考链接：
+[20220408大石解說](https://www.gettr.com/post/p14nopxccd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

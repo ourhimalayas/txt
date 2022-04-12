@@ -2,42 +2,25 @@
 ---
 
 
-## 乌克兰指控俄军屠杀平民 马里乌波尔有数万人被杀
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2331754/)
+## 拒绝董事会席位后，马斯克取消与Twitter员工会面
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2332819/)
 
-翻译：多伦多蓝莲花-灭共文明
+编辑：文宝
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》基辅4月11日报道，**乌克兰周一表示，在俄罗斯对东南部城市马里乌波尔的攻击中，可能有数万人被杀，同时乌克兰权利监察员指责俄罗斯军队在该地区实施酷刑和处决。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download2-e1649721920438.jpg)2022年4月8日，在乌克兰基辅地区的Borodyanka，77岁的Mariya哭了，她的女儿和女婿死在被俄罗斯炮击摧毁的建筑物的废墟下。（图片来源：路透社）
-路透社已证实马里乌波尔遭到广泛破坏，该城市位于俄罗斯吞并的克里米亚和由俄罗斯支持的分离主义分子控制的乌克兰东部地区之间。
 
-**如果数字得到证实，这将是迄今为止乌克兰一个地方报告的最高死亡人数，**那里的城市、城镇和村庄都受到了无情的轰炸，包括平民在内的尸体在街上随处可见。
+![](https://n.sinaimg.cn/tech/transform/117/w550h367/20220412/e8ff-27e61ffff7168f8f46bf0a40fdb8ea35.jpg)
+4月11日消息，在埃隆·马斯克（Elon Musk）决定不加入Twitter董事会后，他取消了本周与Twitter员工的会面。
 
-**乌克兰总统泽伦斯基在向韩国议员发表视频讲话时表示，马里乌波尔已被摧毁，数万人死亡，但即便如此，俄罗斯也没有停止进攻。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download1.jpg)2022年4月9日，在乌克兰切尔尼戈夫，62岁的蒂托娃走在被俄罗斯炮击摧毁的房子（图片来源：路透社）
-**马里乌波尔市市长的助手彼得罗-安德里申科**（Petro Andryushchenko）周一在Telegram上说，**俄罗斯军队放慢了出发前的检查**。他说，大约有1万人在等待俄罗斯军队的检查。**俄罗斯不允许军事人员与平民疏散人员一起离开。**
+在上周，Twitter宣布马斯克已收购超过9%的股份并将加入董事会后，这位世界首富原计划与Twitter CEO帕拉格·阿格拉沃尔(Parag Agrawal)一起，举行与Twitter员工的“问我任何问题”会议，以打消员工们的顾虑。
 
-乌克兰人权监察员柳德米拉·杰尼索娃援引马里乌波尔市政府的数据称，**马里乌波尔有3.3万居民被驱逐到俄罗斯或乌克兰东部由俄罗斯支持的分裂分子控制的地区。**
+实际上，Twitter的员工对与马斯克一起参加会议的感受很复杂。一些员工主要担心，马斯克可能改变Twitter的企业文化。
 
-杰尼索娃在Telegram上发帖说，有目击者报告称，**俄罗斯国民警卫队和卡德罗夫车臣部队正在进行非法逮捕，对被拘留者实施酷刑，并以亲乌克兰的立场为理由而将他们处决。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SJYJ6MSHBFNSRDKSH4HKXYZS7Q.jpg)2022年4月7日，乌克兰马里乌波尔，亲俄军队士兵在乌克兰-俄罗斯冲突中检查街道。（图片来源：路透社）
-**乌克兰副总理伊琳娜·韦列舒克（**Iryna Vereshchuk）告诉路透社，**俄罗斯军队设置的马里乌波尔至扎波罗热之间的走廊上的检查站数量，**从3个增加到15个，**使得撤离变慢。**
+过去一周，马斯克对Twitter的想法也五花八门，从为Twitter的订阅服务做醒目的广告，到将其总部的一部分改造成无家可归者的收容所。有分析人士认为，对于所参与的任何一家公司，马斯克都以“颠覆性的存在”而著称，这可能给Twitter带来额外的挑战。
 
-韦列舒克在Telegram上说，马里乌波尔是周一与俄罗斯商定的九条**人道主义走廊**之一，用于从被围困的东部地区疏散人员，但其走廊**只对私家车开放，不允许巴士离开。**
+通过邀请马斯克加入董事会并与员工交谈，阿格拉沃尔想表现出，他们之间的关系将是友好的。但马斯克突然拒绝董事会席位也引发了人们对其意图的新一轮猜测。由于没有加入董事会，马斯克不再受制于一项将其持股比例限制在14.9%的停滞协议。
 
-**乌克兰政府表示，俄罗斯军队正在集结，准备对包括马里乌波尔在内的东部地区发动新的攻势，**那里的人们已经连续数周没有水、食物和能源供应。
+原文链接：[https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&mod=pctech&loc=15&r=0&rfunc=15&tj=cxvertical\_pc\_tech&tr=12](https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&amp;mod=pctech&amp;loc=15&amp;r=0&amp;rfunc=15&amp;tj=cxvertical_pc_tech&amp;tr=12)
 
-新闻来源链接：
-[Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses | Reuters](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

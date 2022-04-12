@@ -2,23 +2,25 @@
 ---
 
 
-## 疫情｜上海确诊人数首度下降 当局分区管理愚弄民众 解封区仍维持禁足
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333623/)
+## 加拿大机构投资者增加持有数字货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
 
-**图/文｜CP**
-**发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海確診人數首度下降-當局分區管理愚弄民眾-解封區仍維持禁足.jpg)
-上海周一新增23342宗本土确诊病例，较前一日减少2800多宗，是疫情升温以来首次出现的下降趋势。当局宣布，全市实施“三区”管理制度，以小区为单位，按7～14日内有否阳性个案为标准，划分防范区、管控区及封控区，差异化防控疫情。
+编译撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-其中，被列为风险最低的防范区，也就是14日内无阳性个案的小区居民，可以走出小区门，在所属街镇范围内，分时段、分批次的进行适当活动。但是，上海市衞健委强调，防范区不是“放飞区”，仍然要坚持做好居家防疫，尽量“足不出户”，并继续确保所属楼层、小区等公共区域的消杀工作。
+据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
 
-有防范区的民众反应，本以为解封就可以获得出行自由，尤其是可以为自己和亲友购买物资，不料，由于跨省货运仍然收紧，加上获批开放的商店、超市数量极其有限，物资短缺的问题并未得到根本改善。民众感叹，防范区和其他区在本质上其实没有区别，共产党说的好听，其实就是做做样子，愚弄老百姓而已。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
-來源｜[人民网](http://sh.people.com.cn/n2/2022/0411/c134768-35217094.html)
 
-* * *
+毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
  
 

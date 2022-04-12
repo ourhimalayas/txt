@@ -2,26 +2,36 @@
 ---
 
 
-## 人才流失是俄罗斯最重要的资产流失
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2334029/)
+## 俄军士兵性侵乌克兰婴儿引发外界震怒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2334332/)
 
-编译：波士顿五月花—-思澈
+作者：纽约磐石农场 – 在远方
 
-自俄罗斯入侵乌克兰以来大量受过高等教育的俄罗斯人纷纷逃离家园对俄罗斯的经济产生破坏性的后果，克里姆林宫发出紧急措施对IT从业人员暂停征兵。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/54DC348E-18F2-40C4-A2D7-D42B8FE55A0D.jpeg)
 
-自普京对乌克兰发动侵略战争以来，大量俄罗斯人逃离家园，他们中有很多是受过高等教育年轻富有的金融从业人员、记者，IT专家和技术人员，这些逃离的俄罗斯人具有独立思考能力和创新精神不被普京的政治宣传所左右。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-从长远来看，受过高等教育的俄罗斯人的大量出逃可能对该国经济造成严重后果。因为他们不仅随身携带金钱，而且最重要的是他们的技能，人力资本是俄罗斯经济增长的最重要因素之一——它推动创新和创造力。
 
-经济学家认为，克里姆林宫采取的救助措施对IT行业的从业人员暂停征兵不会挽留住人才的，因为普京的侵略战争和政策不会让人才流失停止。
 
-简评：人才就是财富！
+外媒4月11日报道，近日一名25岁俄罗斯士兵，竟然做出了性侵乌克兰婴儿的兽行，并自拍影片分享给其他人观看。消息曝光后引发外界震怒，俄罗斯当局在强大的舆论压力下不得不逮捕了该士兵。
 
-素材来源：[https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html](https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html)
+据悉，这名来自俄罗斯北高加索地区的士兵名叫比奇科夫，在俄入侵乌克兰后，他所隶属的第64044部队被派往最前线作战。报道指出，比奇科夫把性侵小婴儿的过程录制下来，然后使用社交媒体传给其他人观看。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture2.jpg)
+影片中，他使用各种物体放入受害者肛门内，并有舌舔和抚摸等行为，甚至还对着镜头做出胜利手势。影片曝光后随即引发外界高度关注，俄罗斯当局在巨大的舆论压力下，不得不于4月9日逮捕了比奇科夫。
 
-*发布：思澈*
+该事件迅速引发网络舆论海啸，网友纷纷表示这种行为根本无法被原谅。有网友称不敢观看影片，因为光看字面叙述就让人感到心碎，更有网友表示，比奇科夫应该在地狱里被烈火烧死。
+
+参考链接：
+[俄軍士兵性侵嬰兒！自拍變態行徑分享給同袍引發外界震怒](https://news.ltn.com.tw/news/world/breakingnews/3888981)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
 
 

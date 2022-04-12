@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 2:37 PM (UTC)`
+
+ 4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！
+![img](https://media.gettr.com/group16/getter/2022/04/12/14/048ed0ad-9965-024a-c3de-92a87a639f26/out.jpg)
+
+---
+
+`@miles 4/12/2022 2:32 PM (UTC)`
+
+【乌克兰救援】04/12/22 波兰当地时间4月12日上午10点，比利时总理亚历山大·德克罗出现在了梅迪卡救援中心。新中国联邦的记者妮可向他介绍了我们的救援工作，并赢得了赞许：作为人类，我们需要互相帮助，这是最重要的事情，非常高兴听到你们对难民施以援手。<br/><br/>【Ukraine Rescue】04/12/22 On April 12, Poland, 10 am local time, Belgian Prime Minister Alexander De Croo appeared at the Medyka Rescue Center. Nicole, the correspondent of the NFSC, introduced him to our rescue work and won praise: as humans we need to help each other, and that is the most important thing... and happy to hear that you are helping them.
+![img](https://media.gettr.com/group7/getter/2022/04/12/14/f38d8e25-85df-062e-92b6-b79fe6be6858/out.jpg)
+
+---
+
 `@miles 4/12/2022 1:36 PM (UTC)`
 
 ♥️
@@ -141,20 +155,6 @@
 
 【Ukraine Rescue】04/08/2022 After a volunteer from Busan, South Korea learns that we are the new Chinese who are taking down the CCP at the Medyka border, he says that the Whistleblowers’s Movement is a peaceful movement and will bring peace and freedom to the Chinese people. He wishes all Chinese people to be free soon.<br/><br/>【乌克兰救援】04/08/2022 来自韩国釜山的义工在梅迪卡边境了解到我们是灭共的新中国人后，说爆料革命是一场和平运动，会给中国人带来和平与自由， 他祝愿所有中国人都能早日获得自由。<br/>
 ![img](https://media.gettr.com/group18/getter/2022/04/11/22/042fd9d1-bdad-e656-775f-529cb24b5693/out.jpg)
-
----
-
-`@miles 4/11/2022 10:22 PM (UTC)`
-
- 4月11号：尊敬的战友们好……现在的中国人连这只鸟都不如……
-![img](https://media.gettr.com/group15/getter/2022/04/11/22/00634e2c-f97d-a9b2-a125-5a84fcd51773/55f35897f7bf6a02decfbfb4a3feabaf.jpg)
-
----
-
-`@miles 4/11/2022 10:02 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-11<br/>For English：gettr.com/post/p14r6ek95b9
-![img](https://media.gettr.com/group34/origin/2022/04/11/22/ceba306b-0328-4f5e-878b-f4d61d589c59/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

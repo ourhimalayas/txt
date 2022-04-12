@@ -2,36 +2,38 @@
 ---
 
 
-## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
+## 美国警告俄军将对乌克兰平民犯下更多暴行
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2334088/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
-
-本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
+作者：纽约磐石农场—在远方
 
 
 
-> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
-> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
 
 
-未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
+美国国家安全顾问苏利文4月10日警告说，负责俄军行动的将领德沃尔尼科夫，在叙利亚期间已经存在对平民施暴的记录，因此美国研判他在接下来的行动中，将会继续策划针对乌克兰平民的犯罪，可能更加残暴。
 
-外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
+苏利文在接受媒体采访时表示，俄军准备在乌东发动新的攻势，并预期在这个战区会发生更多针对平民施暴的情况，而普京政府必须为锁定和攻击平民承担完全责任。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture-27.jpg)
+苏利文重申，美国将致力于向乌克兰提供所需的武器和后勤支援，以阻止俄军占领更多的地区。截至目前，美国已向乌克兰提供了17亿美元的军事援助，包括毒刺导弹、标枪反坦克导弹、以及大量弹药和防弹衣等军备。
 
-此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
+白宫新闻秘书沙琪表示，可以预期德沃尔尼科夫将会延续目前已经被曝光的暴行。据悉，德沃尔尼科夫是俄军南部军区指挥官，2015年至2016年负责俄军在叙利亚的行动，绰号“叙利亚屠夫”。
 
-本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
+参考链接：
+[俄軍新軍頭前科累累 蘇利文：在烏克蘭對平民暴行恐更多](https://news.ltn.com.tw/news/world/breakingnews/3888917)
 
-來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-* * *
+编辑/总编/审核：DM
+校对/发稿：为真不破20
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

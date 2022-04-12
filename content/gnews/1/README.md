@@ -2,27 +2,38 @@
 ---
 
 
-## 有声｜上海封控致物流停摆 恐影响国际供应链
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2334951/)
+## 有声|日本和菲律宾签署国防协议应对中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2335200/)
 
-By:**秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月9日，日本和菲律宾在东京召开二加二会议，并签署了一项国防条约，促进双方部队的联合演习和对等访问，以应对中共在东海和南海制造的危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-20.04.47-1.png)GNEWS
+自俄罗斯入侵乌克兰以来，战争的影响已经远远超出了欧洲。鉴于中共对台湾不断地宣誓主权，该海域安全日益严峻。作为位于同海域的国家，日本和菲律宾希望共同协商解决国防和外交事务，双方官员发誓要实现自由开放的印太地区，反对非法的海上主权、军事和胁迫活动以及在南海使用武力。双方签署的条约，考虑互相提供对方军队的供应共享协议，该协议还包括收购和交叉服务。
 
-**2022-04-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/412-4-scaled.jpg)
-[大纪元](https://www.epochtimes.com/gb/22/4/11/n13709443.htm)4月12日报道，中共国疫情全面爆发及中共当局严格的封控措施，令上海及周边发达地区的物流近乎停摆，这可能会影响对西方出口的圣诞节商品的生产和出口交货。
+据悉，日本此前与澳大利亚签署了类似协议，协议内容对联合培训、救援武器和物资运输的限制大大降低。菲律宾是继印度尼西亚之后，与日本举行二加二会议的第二个东南亚国家。
 
-自3月28日至4月11日上海实行严格封控以来，这座2,500多万人口的城市的运作基本处于停摆状态，令本来就紧张的供应链更加不畅。
 
-全球最繁忙的港口之一-上海港，进出港物流都因受到严格封控限制而大幅下降。据中共国欧盟商会沈阳分会主席孔海德表示，由于海运和公路运输全面受阻，上海的货运量已经下降了40%，恐令国际供应链受到影响。
 
-美中贸易委员会的发言人道格‧巴里表示，目前许多与中共国有往来的公司都经历了业务中断，这可能会导致圣诞节的贸易订单延误，使得在年终假期之前，许多商品难以抵达货架。
+文字版原文：[日本和菲律宾签署国防协议应对中共](https://gnews.org/zh-hans/2329421/)
 
-（秘翻新闻 二丫编辑）
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-发布 : 文橙
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

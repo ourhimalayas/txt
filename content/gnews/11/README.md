@@ -2,37 +2,28 @@
 ---
 
 
-## 有声|“为乌克兰挺身而出” 筹款超百亿欧元
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2334844/)
+## 又见馒头诱奸
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2334986/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月9日，欧盟委员会主席乌苏拉·冯德莱恩在华沙表示，一项名为“为乌克兰挺身而出”的乌克兰难民全球认捐活动，已筹集到 101 亿欧元。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-57.jpg)
-组织者说，该活动由欧盟和加拿大总理特鲁多召集，旨在为乌克兰的国内流离失所者和饱受战争蹂躏的国家的难民筹集资金。该活动由与贫困作斗争的全球公民（Global Citizen）运动合作，包括周五的社交媒体集会和周六的认捐会议。
+韩国正道农场
 
-冯德莱恩补充说，一旦炸弹停止下落，将帮助乌克兰人民重建他们的国家，继续为乌克兰挺身而出。他还呼吁，西方对俄罗斯银行实施更多制裁，并停止购买俄罗斯石油。
+作者：如是我闻
+
+校对：祁明
 
 
 
-文字版原文：[“为乌克兰挺身而出” 筹款超百亿欧元](https://gnews.org/zh-hans/2329042/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-2-21.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2677.jpg)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+4月11日文贵先生在直播中说：在上海、在长春那些掌握食物分配权力的人，用手中的一点食物，一点方便面，一点水就可以诱奸女性！那些所谓支援上海的人欢呼着：去睡上海姑娘喽！饭奸、面奸、水奸事件层出不穷！
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+中华大地似乎受到某种诅咒，悲惨的历史总是重复上演，1960年代毛腊肉一手制造的人祸大饥荒，由于中共隐瞒事实，具体死亡人数无法统计。普遍认为造成至少三千六百万人饿死（杨继绳《墓碑》里统计），有学者统计是四千五百万（荷兰历史专家冯克（Frank Dikotter）《毛的大饥荒》）。所谓中国人民的大救星毛泽东，把中国人民送入了地狱的深渊，当时稍微有点权势的男人，比如村长、厨师、仓库保管，手上有点食物分配的权力，就常常以食物为钓饵诱奸女性，而这钓饵，通常只是一个馒头而已，关于这种事情的记载比比皆是，不可足一而举。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+这一次，历史又一次照进现实。习猪头借疫情之机，为文革还魂，中共再次把食物变成统治人民的手段，上海、长春发生的事情不是第一次，也不会是最后一次，只要中共不亡，这种事情随时会发生在中共国任何地方、任何人的身上。即便如郎咸平、六六这种为中共暴政鼓与呼的吹鼓手，这几天就被中共铁锤锤得已丧考妣，在自媒体上呼天抢地，只引得网友一片冷嘲热讽。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+随着爆料革命揭露越来越多的真相，越来越多的中国人民看清中共的邪恶面目，只有消灭中共中国人民才有太平的一天，世界人民才有平安的一天。
 
  
 

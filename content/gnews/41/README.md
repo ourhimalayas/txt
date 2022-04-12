@@ -2,21 +2,43 @@
 ---
 
 
-## 秘翻在线：信奉科学共产主义的郎咸平 其母成为“科学”防疫政策的受害者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333531/)
+## Elon Musk决定不加入推特董事会
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
 
-**撰稿：葛大饼**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
+当地时间4月11日，Elon Musk决定不加入推特董事会。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-12-170743.jpg)
-根据2022年4月11日朗咸平个人微博透露， 他98岁的母亲，因为上海严格规定必须要做核酸后才能就医，虽然老人家在三甲医院当场做的核酸，但是4个小时未出结果，以至于老人错过治疗时间而离世。朗咸平先生虽想去见母亲最后一面，但由于小区封闭，花了相当多的时间和有关部门沟通才允许他去医院，可是站在马路上，因为上海封控叫不到滴滴，最终朗咸平先生也没有见到母亲最后一面。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/33-3.jpg)
-首先愿老人安息。朗咸平，中共国名人，这个信奉马克思的“科学共产主义”和“资本主义经济危机不可避免理论”，相信大政府比小政府更能为社会带来公正和福利的新左派人物，也尝到了社会主义的铁拳，还有多少蝼蚁般的普通老百姓在中共无人性的封控下失去家人呢？2500万人口的上海，就被那么一小撮邪恶的人玩弄，有多少人连发声的机会都没有就变成一缕青烟了？在这场终极之战中，无贵贱之分，每个人都是受害者，但是当你选择相信和坚持正义的时候，你会活得更坦然，也有更多机会救自己和家人。
+据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
 
-**[新闻来源](https://weibo.com/langxianpinghk)**
+此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
 
-#  
+据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
 
+撰稿、发布：骄子
+
+reference
+
+
+
+
+> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
+> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
+
+
+* * *
+
+
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,42 @@
 ---
 
 
-## 日本政府高官指出日本该关注中共的渗透
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2334389/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
 
-作者：日本方舟农场 – Andy5
+整理：枳实
+美工：精灵蓝
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
 
-当地时间4月5日，日本自民党安全保障调查会会长小野寺先生，在一档节目中呼吁，日本应关注中共对全世界的渗透行为。
+雅典娜疫情更新（2022年 4月11日）
 
-小野寺指出，虽然从俄乌战争中看到俄罗斯并没有宣传中的那么强大，但值得注意的是，中共国在这场侵略战争中的存在感。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-43.jpg)
-他表示，无论是3月底日、美发起的东南亚国家联盟外长会，还是在印尼举行的各国议长会，尽管日本呼吁各国对俄罗斯的暴行进行指责和制裁，但只得到了为数不多国家的响应，而这背后就是中共近期外交施压的结果。在最后，小野寺感慨道：竟然被中共国渗透得如此之深，日本该继续关注这一点。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
+[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
 
-而小野寺会长的此番言论，正是回应了郭先生从2017年开始不断发出的警告：中共对全世界进行蓝金黄，黑暗已经降临。
+数据来源：
 
-参考链接：
-[20220405日本高官感嘆中共的滲透](https://www.gettr.com/post/p14niyk94b1)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-编辑/总编/审核：DM
-校对/发稿：为真不破20
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
+[covidlive.com.au](https://covidlive.com.au/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
+发布：tianzhihuan
 
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
