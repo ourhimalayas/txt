@@ -2,12 +2,44 @@
 ---
 
 
-## 4月11日乌克兰救援行动（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2336070/)
+## 中共国向欧洲发出的强硬信息
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336130/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9836A3A0-E4E7-4337-8FDD-F0A58207049F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6FD3C603-0854-4E09-9D3C-707FBC83B445.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1C8315D1-B27C-424A-B83E-7E0DD8D3578D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DF9EBA0D-44E8-4459-B20A-34B75CC45DFA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/783CB298-83A5-4472-8A8A-789B2671365A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/B0C5E77E-8417-4651-8A12-895AD59E3B21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4C87EB28-A38C-4E82-A242-3796E94D6F7A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/597B7F2D-AB9B-446D-A894-D639A575AD49.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7EBB0ED4-2801-4212-90EF-946C97DBAD2A.png)
-发布：水涨船高
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1649401342_108760_1649401528_noticia_normal_recorte1.jpg)图片来源：路透社
+
+北京认为，在向一个国家输送武器的同时，“不能”支持和平。到目前为止，中共国还没有谴责俄罗斯入侵乌克兰的行为。
+
+中共外交部长王毅在与法国总统马克龙的首席外交顾问Emmanuel Bonne的电话交谈中说，“不能在支持乌克兰和谈的同时向该国输送武器”。“中共国寻求尽快实现停火，恢复和平，我们正以自己的方式为实现这一目标而不懈努力。与此同时，我们认为有关各方必须为促进和谈创造必要条件，而不是火上浇油”，中共外交部在昨晚的一份声明中说。
+
+“你不能一边呼吁停火以停止战争，一边不断输送更多更先进的武器装备，这只会使战争进一步升级；你也不能一边支持对话，一边实施单边制裁，这只会鼓励冲突恶化”。
+
+**中共国保持“中立”立场**
+
+到目前为止，中共国还没有谴责俄罗斯对乌克兰的入侵。事实上，它拒绝将此举称为“入侵”，并采取了中立的立场，倾向于俄罗斯。在联合国大会上，北京曾两次避免谴责俄罗斯的行动。几天前，中共外交发言人宣布“俄罗斯和中共国之间的合作没有限制”，因为两国外交部长在中国黄山举行会议，并承诺建立一个新的“多极、公正和民主”的世界秩序。
+
+虽然中国声称自己是中立的，但其立场正在向莫斯科靠拢。周四，联合国（UN）决定就是否将俄罗斯从人权理事会驱逐出去进行投票。结果，93票赞成，24票反对，58票弃权，使该提案圆满结束，俄罗斯已不再是人权理事会成员。而中共国是投的反对票。
+
+关于布查大屠杀，中共国在星期三说，“任何指控都必须以事实为依据，关于布查平民死亡的报告和图像非常令人不安，但必须查明真相”。外交部发言人赵立坚说：“人道主义问题不应该被政治化，任何指责都应该以事实为依据。通常的游戏：乌克兰指责俄罗斯在布查市毫无顾忌地杀害平民，而莫斯科则否认所有事实，尽管《纽约时报》公布的卫星图像显示，“在俄罗斯军队离开该市之前，尸体就在街头”。
+
+德国情报部门截获的俄罗斯军事通讯显示，布查大屠杀是由克里姆林宫的部队实施的。据该杂志称，联邦外国情报局的官员向议员们介绍了截获的对话，这些录音与莫斯科的说法相矛盾，即在布查发现的装扮成平民的尸体是在俄罗斯军队离开该地后被安放的，而中共喉舌再次采取了俄罗斯的宣传版本。
+
+**参考链接：**[Duro mensaje de China a Europa](https://as.com/diarioas/2022/04/08/actualidad/1649401342_108760.html)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
 
  
 
