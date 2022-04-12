@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 3:30 PM (UTC)`
+
+【Ukraine Rescue】04/11/22 Three volunteers from Italy come here for the renowned NFSC coffee. Because of the size of our tent and the complete facilities, they thought at first that it was set up by the government of the Chinese Communist Party. They are surprised to learn that we are the NFSC to exterminate the CCP: they thought the CCP is powerful, but a new NFSC without fear of the CCP is rising.<br/><br/>【乌克兰救援】04/11/22 三名来自意大利的志愿者冲着响彻全球的新中国联邦咖啡慕名而来。因为我们的帐篷规模可观，设施完备，他们一开始以为是中共政府搭建的。后来了解到我们是灭共的新中国联邦，他们非常惊讶：他们以为中共很强大，但是一个无惧中共的新中国联邦正在崛起。<br/>
+![img](https://media.gettr.com/group10/getter/2022/04/12/15/7e1b3d54-ca27-0cc6-c3c2-30c15a21447b/out.jpg)
+
+---
+
 `@miles 4/12/2022 3:21 PM (UTC)`
 
 【Ukraine Rescue】04/11/22 Two volunteers from the Go Dharmic charity organization expressed their concern about the epidemic containment disaster in Shanghai and said to Nicole: Without meeting you (the volunteers of the NFSC), I would assume like nobody cares in China, and you guys are showing the bright side of Chinese people!<br/><br/>【乌克兰救援】04/11/22 两位来自Go Dharmic慈善组织的志愿者在同妮可交谈的时候对上海的疫情封控灾难表示关切并说：如果没有见到你们（新中国联邦的志愿者），我会觉得中国人都很冷漠，而你们正在展示中国人光明的一面！<br/>
@@ -148,13 +155,6 @@
 
 2022.04.11 NFSC news  The CCP's Crazy Actions May Cost The Chinese People In Blood
 ![img](https://media.gettr.com/group3/origin/2022/04/11/23/3da8493f-38fc-7429-b664-3e5385059cd7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/11/2022 10:56 PM (UTC)`
-
-4/11/2022 Miles Guo’s GETTR: Large-scale nucleic acid testing will be implemented in Beijing, and the CCP will invade Taiwan before this May. A major battle between Russia and Ukraine is imminent. The new commander of the Russian troops is ruthless and will strike Kyiv by pretending to attack eastern Ukraine, with Zelenskyy being the target. The global supply chain is now in a crisis as many basic goods are not being produced. Let’s pray for the fellow fighters at the front line of the rescue operation who are safeguarding the security and interests of the overseas Chinese and the image of the citizens of the New Federal State of China.<br/><br/>4/11/2022 文贵盖特：北京将开始大规模核酸检测，中共会在五月前攻台；俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的；全球供应链现严重危机，很多基本商品无人生产；为维护海外华人安全、利益和新中国联邦人形象的救援前线战友祈福<br/>
-![img](https://media.gettr.com/group22/getter/2022/04/11/22/0ac0d873-a252-12e6-4ff5-a503c5aaee63/out.jpg)
 
 ---
 

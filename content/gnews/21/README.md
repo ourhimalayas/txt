@@ -2,29 +2,38 @@
 ---
 
 
-## 有声｜白宫将挑选新的北约最高指挥官
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2334890/)
+## 有声|广州疫情迅速升级 面临封城
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2335153/)
 
-**By:秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国媒体4月9日报道，周五广州发现新的中共病毒确诊病例后，广州官方宣布，对全市所有居民进行病毒核酸检测。这次检测范围包括广州十一个区大约一千八百万人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-37.jpg)
+4月9日，中共广州疾控中心官员表示，现有的封控区域内，已经发生社区传播，并有向市内其他区域传播的风险性。广州目前面临的防疫形势比去年更加严竣。据悉，从4月9日起，白云区相关客运站关闭，恢复时间未定；并要求乘客遵守交通防疫管控措施。
 
-**2022-04-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-12-215800.jpg)
-据**[《华尔街日报》](https://www.wsj.com/articles/white-house-expected-to-name-new-commander-to-lead-allied-forces-in-europe-11649694813?mod=hp_lead_pos11)**4月11日报道，美国白宫将任命一名驻欧洲的美国高级指挥官，领导该地区所有美国及盟军部队。这标志着自俄乌战争以来，北约军事领导层的最大变化。
+目前，中共国多地封城，官方所谓的疫情实际上是疫苗导致的病毒传播。中共借封锁和清零政策，为的是闭关锁国，把灾难推给老百姓。
 
-现任美国陆军欧洲司令克里斯托弗-卡沃利将军预计将被任命为美国驻欧洲司令部的指挥官，此岗位还担任欧洲盟军最高指挥官，负责领导北大西洋公约组织。
 
-此次换将后，美国军队打击重点将转向，从过去20年主抓伊拉克和阿富汗的叛乱活动，转为应对中共国和俄罗斯等国的军事威胁。
 
-预计陆军中将布莱恩·芬顿将领导位于佛罗里达州坦帕市的美国特种作战司令部，该司令部负责监督世界各地的特种作战。
+文字版原文：[广州疫情迅速升级 面临封城](https://gnews.org/zh-hans/2329146/)
 
-现任北卡罗来纳州布拉格堡联合特种作战司令部司令的芬顿将接替即将退休的陆军上将理查德·克拉克。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-（秘翻新闻  大树  编译报道）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发布:星星
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

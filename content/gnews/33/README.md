@@ -2,24 +2,38 @@
 ---
 
 
-## 秘翻在线：乌克兰重建费用预计最高可达5千亿欧元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2334384/)
+## 莫里森回击普京的入境禁令，声称制裁是“荣誉勋章”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2334524/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-22.jpg)图片来源：本文链接
-据韩联社4月12日报道，根据英国媒体《经济学家》11日（当地时间）的消息，欧洲智库经济政策研究所（CEPR）推算出乌克兰重建需要2千亿~5千亿欧元（约269万~672万5千亿韩元）。这与乌克兰政府的预测值相似。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-经济学家评价说，在战后重建过程中，清除地雷等爆炸物、解决粮食及居住问题、恢复基础设施及产业设施等是主要课题。
+翻译：li yan li
+编辑：文泓
 
-据乌克兰基辅经济大学（KSE）统计，截至目前，被破坏的住宅约为290亿美元（约35.8万亿韩元），如果加上发电站、工厂、道路和桥梁等被破坏的所有设施价值，其破坏金额超过500亿美元（约61.8万亿韩元）。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1432.png)图片来源：Republic World & 雅典娜设计组
 
-但由于战争，乌克兰每月却无法获得相当于20亿美元（约2万4千亿韩元）的税收收入，而且债务偿还能力也不足，需要免除西欧的债务或补助金等。
 
-乌克兰经此次战乱，多数重镇和地区遭到破坏，不管在经济还是社会方面都需要一个很长久的回复过程。
+4月11日，据澳大利亚新闻报道，总理斯科特·莫里森对莫斯科禁止他和227名澳大利亚领导人进入俄罗斯的入境禁令的制裁作出回应，称制裁是一种“荣誉勋章”。
 
-信息来源：[https://www.yna.co.kr/view/AKR20220412145600534?input=1195m](https://www.yna.co.kr/view/AKR20220412145600534?input=1195m)
+莫里森先生是俄罗斯外交部周四发布的禁止入境名单上的228名澳大利亚领导人之一，这是对莫里森先生最近对俄罗斯实施制裁的直接回应。
 
-责编：Eric Kim
+周二，莫里森先生在新闻发布会上谈到了制裁问题。
+
+他说：“制裁是澳大利亚为自由而站起来的荣誉勋章，我很高兴把这作为为澳大利亚人站出来的荣誉勋章。”
+
+同日，媒体爆出俄罗斯在入侵乌克兰的过程中进行了化学战。
+
+外交部长玛丽斯·佩恩说，俄罗斯的这种行为是对国际法的进一步全面违反，进一步表明普京和俄罗斯绝对违反了每一项价值观。
+
+新闻链接：[Prime Minister Scott Morrison hits back at Vladimir Putin’s entry ban claiming sanction is a ‘badge of honour’ | Sky News Australia](https://www.skynews.com.au/australia-news/prime-minister-scott-morrison-hits-back-at-vladimir-putins-entry-ban-claiming-sanction-is-a-badge-of-honour/news-story/31022fbf25c32f82f2d7180d5b0d46dd)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

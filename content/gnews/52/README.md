@@ -2,34 +2,24 @@
 ---
 
 
-## 中日财经爆┃加密货币基金创1月以来最大流出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2332178/)
+## 拒绝董事会席位后，马斯克取消与Twitter员工会面
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2332819/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃加密货币基金创1月以来最大流出.png)
+编辑：文宝
 
-上周 ，是加密货币基金自1 月以来最大的净流出量。
 
-根据 CoinShares（硬币股）4月11日发布的一份报告，截至4月8日的一周内，加密货币基金已从比特币（BTC）和以太坊（ETH）基金中撤出。这是连续二周出现净流入后的今年第二大净流出，达1.34 亿美元。
+![](https://n.sinaimg.cn/tech/transform/117/w550h367/20220412/e8ff-27e61ffff7168f8f46bf0a40fdb8ea35.jpg)
+4月11日消息，在埃隆·马斯克（Elon Musk）决定不加入Twitter董事会后，他取消了本周与Twitter员工的会面。
 
-大部分净流出为比特币基金，净流出1.318亿美元。同时，投资比特币下跌的短期投资产品净流入最大，达到200万美元。
+在上周，Twitter宣布马斯克已收购超过9%的股份并将加入董事会后，这位世界首富原计划与Twitter CEO帕拉格·阿格拉沃尔(Parag Agrawal)一起，举行与Twitter员工的“问我任何问题”会议，以打消员工们的顾虑。
 
-报告称“我们认为上周价格上涨可能帮助投资者获利了结”。以太坊基金也有1530万美元的净流出。
+实际上，Twitter的员工对与马斯克一起参加会议的感受很复杂。一些员工主要担心，马斯克可能改变Twitter的企业文化。
 
-投资于多种加密资产的多资产基金保持恢复状态，净流入500万美元。此外，Solana（SOL）基金净流入370万美元，Cardano（ADA）基金净流入100万美元，Litecoin（LTC）基金净流入60万美元。
+过去一周，马斯克对Twitter的想法也五花八门，从为Twitter的订阅服务做醒目的广告，到将其总部的一部分改造成无家可归者的收容所。有分析人士认为，对于所参与的任何一家公司，马斯克都以“颠覆性的存在”而著称，这可能给Twitter带来额外的挑战。
 
-信息来源：
-[暗号資産ファンド、1月以来最大の流出に──2週連続の流入から一転（CoinDesk Japan） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/52a95fd6069b40ba6ba1b5bed90a91c2684e2def)
+通过邀请马斯克加入董事会并与员工交谈，阿格拉沃尔想表现出，他们之间的关系将是友好的。但马斯克突然拒绝董事会席位也引发了人们对其意图的新一轮猜测。由于没有加入董事会，马斯克不再受制于一项将其持股比例限制在14.9%的停滞协议。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+原文链接：[https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&mod=pctech&loc=15&r=0&rfunc=15&tj=cxvertical\_pc\_tech&tr=12](https://finance.sina.com.cn/tech/2022-04-12/doc-imcwiwst1324077.shtml?cre=tianyi&amp;mod=pctech&amp;loc=15&amp;r=0&amp;rfunc=15&amp;tj=cxvertical_pc_tech&amp;tr=12)
 
  
 

@@ -2,27 +2,40 @@
 ---
 
 
-## 有声｜上海方舱爆满 患者被困车上没吃没喝
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2335199/)
+## 有声|普京任命“叙利亚屠夫” 转战乌东
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2335373/)
 
-**By:秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒4月9日报道，因为在乌克兰遭遇了一系列军事挫折，俄罗斯总统普京指派了被称为“叙利亚屠夫”的德沃尼科夫将军担任指挥官，希望能重振俄军的攻势，征服乌克兰东部的顿巴斯地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-21.jpg)
+在任命 60 岁的德沃尼科夫之前，俄罗斯依靠独立的指挥系统指导其入侵行动，大多数重大决定都直接来自克里姆林宫，没有一个指挥官能掌握全局。现在，由于无法占领首都，莫斯科已将军事重点转移到对俄军更有利的东部顿巴斯地区，其中包括顿涅茨克和卢甘斯克。
 
-**2022-04-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-12-215803.jpg)
-[新唐人](https://www.ntdtv.com/gb/2022/04/11/a103397686.html)4月12日报导，上海当局要求阳性感染者必须转运，但是方舱医院的床位不足，部分隔离者被长时间困在车上。此外，还有民众爆光，具备出院条件的人，不被允许离开方舱，同样是求助无门。
+据悉，德沃尼科夫将军因在叙利亚的野蛮行动而声名狼藉。
 
-4月11日下午，金杨街道的阳性患者被告知送去周浦方舱医院，从周日晚上离家前往隔离点，直到转天早上十点才等到车。然而七辆大巴车载满患者，在路上干等，没有送往方舱。直到下午5点多，才被送到金海路经济适用房隔离点。
+西方官员预测，克里姆林宫的目标是在庆祝二战胜利周年纪念日，即5月9日之前取得某种形式的胜利。而到目前为止，好战的俄罗斯人还没有取得任何胜利。
 
-在车里等待期间，车子不开空调。老弱病残从早到晚没有吃过任何东西，没地方上厕所，都是野外解决。
 
-此外，上海世博园方舱被爆出管理混乱，其中已具备出院条件的人出不去，找不到上诉的渠道。甚至有人精神崩溃，哭求让她回家。
 
-（秘翻新闻 二丫编辑）
+文字版原文：[普京任命“叙利亚屠夫” 转战乌东](https://gnews.org/zh-hans/2332335/)
 
-发布:星星
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

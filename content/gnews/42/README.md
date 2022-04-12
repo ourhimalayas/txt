@@ -2,43 +2,43 @@
 ---
 
 
-## Elon Musk决定不加入推特董事会
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
+## 在与朝鲜的紧张局势中，美国航空母舰在朝鲜半岛附近部署
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2334137/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
-当地时间4月11日，Elon Musk决定不加入推特董事会。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
-
-此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
-
-据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
-
-撰稿、发布：骄子
-
-reference
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/NIQPW7GZIJJXND2WQDYF7JFWH4.jpg)
 
 
-> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
-> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
+资料来源：路透社
 
+首尔，4 月 12 日（路透社）——美国海军周二表示，由于朝鲜导弹发射的紧张局势以及对其可能很快恢复核武器试验的担忧，美国海军周二表示，亚伯拉罕·林肯号航空母舰打击群正在朝鲜半岛附近海域开展行动。
 
-* * *
+“亚伯拉罕·林肯航母打击群正在与日本海上自卫队在日本海开展双边行动，”驻日本的美国第七舰队发言人海莉·西姆斯指挥官在一份声明中说。
 
+这是自 2017 年以来，航母编队首次部署到韩国和日本之间的水域，与此同时，美国官员越来越担心朝鲜可能在未来几天内进行地下核试验。
 
+西姆斯说，这艘航母正在开展“例行双边行动”，以向我们的盟友和合作伙伴保证美国致力于维护自由和开放的印太地区。我们的培训通过展示我们双边伙伴关系的力量，提高了常规威慑的可信度。
 
-欢迎订阅我们的GNews账号：
+3 月 15 日，亚伯拉罕·林肯号航空母舰在黄海领导军事演习，发射了 F-35 隐形战斗机和其他喷气式飞机，美国军方称这是对朝鲜弹道导弹发射速度和规模增加的回应。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+上个月，朝鲜自 2017 年以来首次对洲际弹道导弹 (ICBM) 进行了全面测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+在 2017 年最后一次大规模洲际弹道导弹和核试验期间，罗纳德·里根、西奥多·罗斯福和尼米兹号航空母舰及其多舰打击群部署到日本海，在韩国也被称为东海，以展示力量。
+
+韩国候任总统的顾问在上周访问华盛顿期间举行的会谈中寻求将航空母舰、核轰炸机和潜艇等美国战略资产重新部署到朝鲜半岛。阅读更多
+
+韩国国防部表示，它知道航母编队在国际水域，但拒绝进一步置评。
+
+朝鲜此前曾批评美国的军事演习是战争的预演，并称这加剧了紧张局势。
+
+🔗 [https://www.reuters.com/world/asia-pacific/us-aircraft-carrier-deploys-off-korean-peninsula-amid-tensions-with-north-2022-04-12/](https://www.reuters.com/world/asia-pacific/us-aircraft-carrier-deploys-off-korean-peninsula-amid-tensions-with-north-2022-04-12/)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
