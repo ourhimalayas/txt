@@ -2,45 +2,28 @@
 ---
 
 
-## 斯洛伐克向乌克兰赠送S-300导弹系统，俄罗斯警告说其将成为攻击目标
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2335876/)
+## 设立“准难民”制度 日本政府今秋再提出入境管理法修正案（上）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2335978/)
 
-***评论：**北约成员国德国和荷兰在3月份向斯洛伐克部署了三套“爱国者”防空系统，美国也答应在斯洛伐克继续部署上述系统。随后，斯洛伐克向乌克兰捐赠了其S-300防空系统。希望此系统能切实发挥作用，因为文贵先生在直播中提到，俄乌正在准备一场大战，在世人都以为俄罗斯将重点转移到东部地区时，普特勒很有可能声东击西，再次攻入基辅，然后导弹会像雪雨一样直奔泽连斯基本人…*
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+政府根据俄罗斯对乌克兰的入侵，紧急创设了将侠义上不符合难民条约中“难民”定义的战争避难者们作为“准难民”进行保护的方案。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1447.png)图片来源：雅虎新闻
+该方案已被列入去年废止的入管难民法修正案，预计在夏季上议院选举后的临时国会重新提交。
 
-据《每日邮报》记者[JACK NEWMAN](https://www.dailymail.co.uk/home/search.html?s=&amp;authornamef=Jack+Newman+For+Mailonline)， 2022年4月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1442-e1649785007258.png)斯洛伐克向乌克兰捐赠了S-300防空导弹防御系统，就在几天前，俄罗斯警告说，该系统将是一个合法的攻击目标（图为S-300防御系统正在前往乌克兰的路上）。图片来源：Dailymail
-斯洛伐克向乌克兰捐赠了S-300防空导弹防御系统，就在几天前，俄罗斯警告，该系统将是一个合法的攻击目标。
+该条约对难民的定义是由于 “种族、宗教、国籍、特定社会群体的成员和政治意见”可能遭受“迫害”的外国人。日本政府就此采取的立场是，逃离国家间争端的人，不符合条约上的“难民”定义，这次情况下也以“避难民”表示。
 
-弗拉基米尔·泽伦斯基(Volodymyr Zelensky)本周曾绝望地呼吁“武器、武器、武器”，以帮助击退俄罗斯的军事进攻。
+修正案以战争避难者为“补充保护”的对象，创立允许以难民标准待遇对待避难者的制度是支柱之一。欧洲各国也有同样的机制，如果被认定，可以获得定居资格等丰厚的保护条件。
 
-上个月，乌克兰总统在对美国立法者发表讲话时，提到了S-300的名字，他恳求在乌建立防御系统，使乌克兰能够对克里姆林宫的战机和导弹“关闭天空”。
+下一篇：[设立“准难民”制度 日本政府今秋再提出入境管理法修正案（下）](https://gnews.org/zh-hans/2336019/)
 
-斯洛伐克总理爱德华-黑格尔（Eduard Heger）今天说“我可以确认，斯洛伐克向乌克兰捐赠了S-300防空系统，由于俄罗斯联邦的武装侵略，基于乌克兰的请求，斯洛伐克将帮助乌克兰进行自卫。”
+参考链接：[「準難民」制度の創設目指す　入管法改正案、今秋にも再提出　政府（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/fbcaf37ce586e880741bd29d8928797f06c4059e)
 
-此次交付之际，俄罗斯今天又发动了一次野蛮的攻击，在乌克兰东部的一个火车站杀害了至少39名正在撤离的平民，其中包括4名儿童。
+* * *
 
-俄罗斯军队目前已从乌克兰中部的主要城市撤出，并将其重点重新放在顿巴斯地区。
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源: [https://www.dailymail.co.uk/news/article-10699689/Slovakia-sends-Ukraine-S-300-missile-Russia-warned-legitimate-targets.html](https://www.dailymail.co.uk/news/article-10699689/Slovakia-sends-Ukraine-S-300-missile-Russia-warned-legitimate-targets.html)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – 钢蛋儿
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

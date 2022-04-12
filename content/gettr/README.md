@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 7:00 PM (UTC)`
+
+2022-4-12《避风港》(35)  疫苗，儿童心脏的杀手
+![img](https://media.gettr.com/group43/origin/2022/04/12/19/8ca1cce9-adad-c29b-b325-b29c042d10c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/12/2022 5:43 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -146,13 +153,6 @@
 
 2022-4-11《鸡血王喜币大作战》 第一百六十二集 嘉宾：青藤、Nick
 ![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 2:03 AM (UTC)`
-
-2022.04.11  新中国联邦 | 喜财经  美国漂亮就业数据下的隐忧；脱钩还脱吗？关门加快
-![img](https://media.gettr.com/group6/origin/2022/04/11/02/1355a04b-0807-2767-5b7d-925e71745439/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

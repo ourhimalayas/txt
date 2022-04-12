@@ -2,29 +2,28 @@
 ---
 
 
-## 滴滴出行离开南非，美国援助稳定局势
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2336015/)
+## 马里乌波尔市民呼吸衰竭 俄军用无人机投下化学武器
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336047/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-2022年4月，中国网约车公司滴滴出行关闭了位于南非的业务部，并宣布永久性离开南非。这距离他进入南非市场仅仅一年。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+当地政府证实，在俄罗斯军队持续进攻的乌克兰东南部马里乌波尔，俄罗斯军队使用了某种有毒物质，导致当地市民陷入呼吸衰竭。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1450-edited.png)图片来源：ABEMR TIMES
+据马里乌波利市议会11日描述，俄军对乌克兰军队和市民们使用了某种有毒物质，导致市民们陷入呼吸衰竭。
 
-根据网络媒体TechCrunch报道，他们采访了南非的滴滴出行的工作员工，证实了关闭消息的真实性。但该工作人员并没有透露关闭的具体原因。作为仅次于Uber的全球第二大网约车公司，滴滴出行于2021年4 月中共病毒最严重的时候在南非东开普省的 Gqeberha 开展了试点项目，并在当地设立了办事处。几周后，它在开普敦设立了办事处，随后开设了豪登省业务。
+乌克兰驻土耳其大使馆发布有毒物质是由无人机投下的。很可能是俄罗斯军队使用了化学武器。
 
-南非电子邮件运营商秘书长，Melithemba Mnguni 分析称，滴滴投资了超过 1000 万美元（1.4 亿兰特）来建立其本地业务，其中很大一部分用于承担为司机和乘客提供促销和折扣的费用。尽管，滴滴出行仅向出租车司机收取13%的佣金，只是竞争对手Bolt 和Uber的一半，但是过高的单价和无法降低的运营成本，使得他们无法在竞争中获得优势地位。 当补贴结束之时，也就意味着滴滴出行彻底失去了竞争力。虽然表面上看，滴滴出行离开南非系经营不善所致，但是实际上，作为具有中共背景的公司，账面上盈利与政治利益输送与拉拢当地官员相比，都显得不太重要。
+此外，马里乌波尔的市长在接受美联社采访时痛诉惨状：“街道上遗体铺得像地毯一样”，整体死亡人数可能超过2万人。
 
-也就是在4月8日，滴滴出行宣布离开南非的前一天，南非总统拉马福萨与美国总统拜登进行了友好的通话。此次通话，不仅表现出，美方对于南非在“终止俄罗斯联合国人权理事会身份”问题上投出弃权票的理解，同时也表现出南非现任政府决心一改之前摸棱两可的政治态度，明确在即将到来的全球金融危机和灭共狂潮的阵营中，将会全面与美方合作，担任好稳定非洲经济、政治安定的角色。相对因的美方则会在应对气候变化，贸易、卫生安全和中共病毒，非洲供应链、商品价格、粮食安全等关键问题上给予南非必要的援助。[https://techcrunch.com/2022/04/08/didi-cancels-its-trip-in-south-africa/amp/ https://www.whitehouse.gov/briefing-room/statements-releases/2022/04/08/readout-of-president-bidens-call-with-president-cyril-ramaphosa-of-south-africa/](https://techcrunch.com/2022/04/08/didi-cancels-its-trip-in-south-africa/amp/%20https://www.whitehouse.gov/briefing-room/statements-releases/2022/04/08/readout-of-president-bidens-call-with-president-cyril-ramaphosa-of-south-africa/)
+译者评：在俄罗斯侵略乌克兰的这场战争中，乌克兰平民死伤无数，俄军从炮火无差别打击，再到直接以平民为目标的火车站袭击、布查屠杀，如今甚至对平民使用化学武器，行径越发惨无人道，在没有信仰、完全以独裁者的命令为行动准则的军队中，人性、良知早已烟飘云散。族秦者，秦也，非天下也，普京的所作所为都将成为他走向处刑台的一步步台阶，世上所有的独裁者，皆是如此
 
-校对/发稿：菩提树
+参考链接：[市民らが呼吸不全に陥る ロシア軍がドローンから有毒物質を投下か（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7391f2d48c46d41fe7273731e91a6b8241168c8e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-1.png)
+* * *
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
-
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
