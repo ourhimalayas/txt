@@ -16,6 +16,12 @@
 ---
 ## 頁面 8/41 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [41](/content/README-41.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[2021年8月28日郭文贵先生做健腹轮健身盖特全文字版](/content/2021/08/20210828-1566845.md)
+
+[2021年8月27日郭文贵先生做健腹轮健身盖特全文字版](/content/2021/08/20210827-1567894.md)
+
+[全文字版2021年8月26日郭文贵先生G-TV直播](/content/2021/08/20210826-1494569.md)
+
 [全文字版2021年8月26日摇滚歌神郭文贵先生现场签名直播](/content/2021/08/20210826-1507643.md)
 
 [全文字版2021年8月25日郭文贵先生以毒灭共时间线](/content/2021/08/20210825-1490238.md)
@@ -59,12 +65,6 @@
 [全文字版2021年8月13日郭文贵先生G-TV直播](/content/2021/08/20210813-1469006.md)
 
 [2021年8月12日郭文贵先生健腹轮健身盖特全文字版](/content/2021/08/20210812-1569762.md)
-
-[全文字版2021年8月11日郭文贵先生G-TV直播](/content/2021/08/20210811-1462815.md)
-
-[全文字版2021年8月9日郭文贵先生G-TV直播](/content/2021/08/20210809-1460214.md)
-
-[全文字版2021年8月7日郭文贵先生G-TV直播](/content/2021/08/20210807-1452928.md)
 
 
 ## 頁面 8/41 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [41](/content/README-41.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

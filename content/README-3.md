@@ -16,6 +16,12 @@
 ---
 ## 頁面 3/41 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [41](/content/README-41.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[郭文贵先生2022年2月1日盖特视频（9分47秒）全文字版](/content/2022/02/20220201-1944517.md)
+
+[郭文贵先生2022年1月28日盖特视频（4分05秒）全文字版](/content/2022/01/20220128-1927201.md)
+
+[2022年1月27日 文贵大直播 全文字版](/content/2022/01/20220127-1924957.md)
+
 [郭文贵先生2022年1月26日盖特视频第二段（7分29秒）全文字版](/content/2022/01/20220126-1916167.md)
 
 [2022年1月25日郭文贵先生紧急直播全文字版](/content/2022/01/20220125-1912226.md)
@@ -59,12 +65,6 @@
 [郭文贵先生2021年12月27日盖特视频（9分37秒）全文字版](/content/2021/12/20211227-1797114.md)
 
 [2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）](/content/2021/12/20211225-1793669.md)
-
-[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](/content/2021/12/20211225-1794181.md)
-
-[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](/content/2021/12/20211225-1794348.md)
-
-[2021年12月24日 郭文贵先生直播 全文字版](/content/2021/12/20211224-1790583.md)
 
 
 ## 頁面 3/41 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [41](/content/README-41.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

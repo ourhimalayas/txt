@@ -16,6 +16,12 @@
 ---
 ## 頁面 22/41 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [41](/content/README-41.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/content/2019/11/20191105-5144727764458030814.md)
+
+[文字版：2019年11月3日文贵进山前报平安](/content/2019/11/20191104-2786002853804232017.md)
+
+[文字版：2019年11月2日郭文贵先生在中央公园直播](/content/2019/11/20191104-8519209542622441736.md)
+
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
 
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
@@ -59,12 +65,6 @@
 [文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/content/2019/10/20191011-8102906543007438735.md)
 
 [文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/2019/10/20191010-834338873791119399.md)
-
-[文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/2019/10/20191009-2888489214062371964.md)
-
-[文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/content/2019/10/20191007-4819247370019373728.md)
-
-[文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/content/2019/10/20191007-4743874505375198179.md)
 
 
 ## 頁面 22/41 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [41](/content/README-41.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,12 @@
 ---
 ## 頁面 23/41 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [41](/content/README-41.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/2019/10/20191009-2888489214062371964.md)
+
+[文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/content/2019/10/20191007-4819247370019373728.md)
+
+[文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/content/2019/10/20191007-4743874505375198179.md)
+
 [文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例](/content/2019/10/20191007-5253787192699836521.md)
 
 [文字版：2019年9月30日开篇演讲](/content/2019/10/20191001-5934250796818600450.md)
@@ -59,12 +65,6 @@
 [文字版：2019年9月3日郭先生第一次直播](/content/2019/09/20190904-8691813112681761342.md)
 
 [文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/2019/09/20190904-5593137024471595991.md)
-
-[文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/2019/09/20190904-6068893514694750692.md)
-
-[文字版：2019年9月1日文贵与班农先生直播](/content/2019/09/20190903-5392054395112197573.md)
-
-[文字版：2019-08-28郭文貴直播军车进入香港](/content/2019/08/20190829-4985715477870205378.md)
 
 
 ## 頁面 23/41 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [41](/content/README-41.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

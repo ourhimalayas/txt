@@ -16,6 +16,12 @@
 ---
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/2020/04/20200406-4712830590535337259.md)
+
+[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/content/2020/04/20200406-3461892408125397096.md)
+
+[文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/content/2020/04/20200404-7348500743663555332.md)
+
 [文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
 
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
@@ -59,12 +65,6 @@
 [文字版:2020年2月27日文贵谈王岐山站着出来握手](/content/2020/02/20200229-501572706956306869.md)
 
 [文字版:2020年2月21日郭先生参加班农战斗室访谈](/content/2020/02/20200227-1553172568054337472.md)
-
-[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/content/2020/02/20200224-7577071556955663808.md)
-
-[文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/2020/02/20200223-7052827819661082462.md)
-
-[文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/content/2020/02/20200223-478006354833064962.md)
 
 
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
