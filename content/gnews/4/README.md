@@ -2,45 +2,101 @@
 ---
 
 
-## 郭先生盖特：比利时外交默认新中国联邦消灭中国共产党
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2335541/)
+## 视频|新中国联邦咖啡 New Federal State of China coffee
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2335617/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-12-下午11.43.53.png)图片来源：盖特
-昨天和今天，过去24小时，对新中国联邦人来都至关重要；
+作者|紐約香草山农场- 杰西卡爱月亮
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/d6d7c140-5e3b-41e1-85b3-41f7f8d4335d.jpg)
 
-欧盟、美国正在对香港所有贸易地位 经济地位重新定位，将香港金融市场踢出国际所有的金融系统之外；
 
-率先对香港政府人员进行大规模的类似俄罗斯的制裁；
+> 乌克兰土地上的炮声
+> 
+> The bombing from Ukraine
+> 
+> 打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
+> 
+> Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
+> 
+> 一个个匆忙的黄马甲，汇集成一束光，是力量
+> 
+> The busy yellow vests, gathering into a beam of light, it is strength
+> 
+> 一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
+> 
+> Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
+> 
+> 咖啡不苦 Coffee is not bitter
+> 
+> 苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
+> 
+> 咖啡不苦 Coffee is not bitter
+> 
+> 苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
+> 
+> 咖啡不苦
+> 
+> Coffee is not bitter
+> 
+> 苦的是即使炮声和苦难也不能扭转很多人 的愚昧
+> 
+> The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
+> 
+> 咖啡不苦
+> 
+> coffee is not bitter
+> 
+> 苦的是人们在邪恶势力面前的懦弱与可怜
+> 
+> The bitter is the cowardice and pitifulness of people in the face of evil forces
+> 
+> 端起咖啡杯
+> 
+> Holding up the coffee cup
+> 
+> 品尝战火的苦难，愤怒 悲痛 无奈
+> 
+> To taste the suffering of war, anger, grief, helplessness
+> 
+> 品尝新中国联邦咖啡，香浓 温暖 回味
+> 
+> To taste New Federal State of China coffee, fragrant, warm and aftertaste
+> 
+> 每天一杯新中国联邦咖啡
+> 
+> A cup of New China Federation coffee every day
+> 
+> 品味邪恶与正义较量的滋味
+> 
+> Tasting the taste of the battle between evil and justice
+> 
+> 品味志愿者们传播的力量与温暖
+> 
+> Tasting the power and warmth spread by volunteers
+> 
+> 等正义打败邪恶
+> 
+> Waiting for justice to defeat evil
+> 
+> 再来一杯新中国联邦咖啡
+> 
+> Another cup of New China Federal Coffee
+> 
+> 品尝苦尽甘来的滋味
+> 
+> Tasting the taste of aftering suffering comes happiness.
 
-包括在上海从过去的授权撤离到命令撤离是中美历史上第一次，接下来还有多少国家做，走走看。比北朝鲜还惨，未来中共国没有外交；
 
-经济、外交、贸易、文化脱钩；
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-南海、东海、东欧、军事对抗，东西欧联合对抗中共习近平，习太阳和普大帝；
+编辑/校对/发稿：Daxia
 
-中共国人在海外钱和私生子女受制裁；
+**更多资讯，更多关注**
 
-新中国联邦建国以来，在任的比利时首相亚历山大·德克罗，全权，WTO所在地，主动来到新中国联邦帐篷所在地与穿着”TAKE DOWN THE CCP“标语的救援服Nicole战友等合影，并接受采访；比利时外交默认，外交默认你消灭中国共产党。对新中国联邦人意义太大了；
-
-默克尔、萨科齐、培养中共习太阳，俄普大帝两个魔鬼，是政治战犯；
-
-未来波兰和乌克兰是两个强大的国家；
-
-习近平外交内交外困，美国南希佩罗西准备继续访问台湾计划，天意谁也挡不住；
-
-南美有实力国家将与新中国联邦站一起；
-
-喜币成为最流行的国家数字法币，人民币成为犯罪币。
-
-参考链接：
-
-【1】[郭文贵显示4月12日盖特](https://gettr.com/post/p14y3tsd6bc)
-
-* * *
-
-*编辑&发布：长岛开心*
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

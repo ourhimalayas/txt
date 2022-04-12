@@ -2,38 +2,36 @@
 ---
 
 
-## 莫里森回击普京的入境禁令，声称制裁是“荣誉勋章”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2334524/)
+## 拜登和莫迪视频通话 拜登敦促印度不要购买俄产品
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2334730/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰稿：日本东京方舟农场  子辰**
 
-翻译：li yan li
-编辑：文泓
+4月11日，美国总统拜登和印度总理莫迪进行视频通话，拜登明确告诉印度不要购买俄罗斯的产品。因为这不符合印度的利益。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1432.png)图片来源：Republic World & 雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-8.jpg)（图片来自大纪元）
 
+历时一小时的会谈结束后 ，白宫发布声明说，拜登总统与印度总理莫迪共同承诺，将在清洁能源、技术和军事方面加强合作，使美印关系得到进一步提升。
 
-4月11日，据澳大利亚新闻报道，总理斯科特·莫里森对莫斯科禁止他和227名澳大利亚领导人进入俄罗斯的入境禁令的制裁作出回应，称制裁是一种“荣誉勋章”。
+白宫表示，两位领导人还承诺，将继续在结束中共病毒大流行、加强全球卫生安全、推进全球粮食安全以及确保自由和开放的印太方面进行双边和多边合作。双方强调，作为世界上最大的民主国家的领导人，他们共同承诺尊重印太及其它地区所有国家的主权和领土完整。
 
-莫里森先生是俄罗斯外交部周四发布的禁止入境名单上的228名澳大利亚领导人之一，这是对莫里森先生最近对俄罗斯实施制裁的直接回应。
+会谈当中 ，两国领导人特别谈到， 俄罗斯对乌克兰的战争所带来的不稳定影响，并对全球粮食供应问题 做出关注。
 
-周二，莫里森先生在新闻发布会上谈到了制裁问题。
+据悉 ，西方对俄罗斯实施制裁后 ，作为“四方同盟”成员国的印度并没有对俄罗斯实行制裁 。印度方面反而受到大幅折扣的诱惑 ，自2月底以来，至少购买了1300万桶俄罗斯原油。
 
-他说：“制裁是澳大利亚为自由而站起来的荣誉勋章，我很高兴把这作为为澳大利亚人站出来的荣誉勋章。”
+白宫发言人珍‧普萨基（Jen Psaki）说：“拜登明确表示，他认为加速或增加俄罗斯能源或其它商品的进口不符合印度的利益。”美国要求印度不要购买俄罗斯的产品。
 
-同日，媒体爆出俄罗斯在入侵乌克兰的过程中进行了化学战。
+普萨基没有透露印度是否在能源进口方面做出了任何承诺，但表示华盛顿随时准备帮助印度实现能源来源多样化。
 
-外交部长玛丽斯·佩恩说，俄罗斯的这种行为是对国际法的进一步全面违反，进一步表明普京和俄罗斯绝对违反了每一项价值观。
+印度总理莫迪在会谈中说 ，“我们得知乌克兰布恰市无辜平民被杀的消息后，立即谴责了这一事件，并要求进行独立调查。”莫迪还告诉拜登，他敦促并建议俄乌两国举行直接会谈。
 
-新闻链接：[Prime Minister Scott Morrison hits back at Vladimir Putin’s entry ban claiming sanction is a ‘badge of honour’ | Sky News Australia](https://www.skynews.com.au/australia-news/prime-minister-scott-morrison-hits-back-at-vladimir-putins-entry-ban-claiming-sanction-is-a-badge-of-honour/news-story/31022fbf25c32f82f2d7180d5b0d46dd)
+此外，在拜登莫迪会谈之后，美国国务卿安东尼‧布林肯（Antony Blinken）、美国国防部长劳埃德‧奥斯汀（Lloyd Austin）、印度外交部长苏杰生（Subrahmanyam Jaishankar）和印度国防部长拉杰纳特‧辛格（Rajnath Singh）将举行2+2会谈。
 
-发布：tianzhihuan
+参考链接：
+[https://www.epochtimes.com/gb/22/4/11/n13709380.htm](https://www.epochtimes.com/gb/22/4/11/n13709380.htm)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布：文曦
 
  
 
