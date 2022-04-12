@@ -2,36 +2,20 @@
 ---
 
 
-## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
+## 秘翻在线：信奉科学共产主义的郎咸平 其母成为“科学”防疫政策的受害者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2333531/)
 
-**港台前线 zhong｜2022-4-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
+**撰稿：葛大饼**
 
-本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-12-170743.jpg)
+根据2022年4月11日朗咸平个人微博透露， 他98岁的母亲，因为上海严格规定必须要做核酸后才能就医，虽然老人家在三甲医院当场做的核酸，但是4个小时未出结果，以至于老人错过治疗时间而离世。朗咸平先生虽想去见母亲最后一面，但由于小区封闭，花了相当多的时间和有关部门沟通才允许他去医院，可是站在马路上，因为上海封控叫不到滴滴，最终朗咸平先生也没有见到母亲最后一面。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/33-3.jpg)
+首先愿老人安息。朗咸平，中共国名人，这个信奉马克思的“科学共产主义”和“资本主义经济危机不可避免理论”，相信大政府比小政府更能为社会带来公正和福利的新左派人物，也尝到了社会主义的铁拳，还有多少蝼蚁般的普通老百姓在中共无人性的封控下失去家人呢？2500万人口的上海，就被那么一小撮邪恶的人玩弄，有多少人连发声的机会都没有就变成一缕青烟了？在这场终极之战中，无贵贱之分，每个人都是受害者，但是当你选择相信和坚持正义的时候，你会活得更坦然，也有更多机会救自己和家人。
 
+**[新闻来源](https://weibo.com/langxianpinghk)**
 
-
-> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
-> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
-
-
-
-未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
-
-外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
-
-此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
-
-本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
-
-來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+#  
 
  
 

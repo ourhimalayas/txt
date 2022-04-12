@@ -2,60 +2,22 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第9天登榜4国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2334530/)
+## 【粤语配音】2022年4月10日：习近平妄想统治世界的三步大棋（上）
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2334622/)
 
-4/12/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第9天iTunes打榜记录：
+紐約香草山-香港部
 
-* * *
+习这个人做事情，我给大家曾经说过他是有计划的，他定下来的事情他是要干的，包括从2012年上来的时候，他干的最多的是什么？第一件事先搞反腐，反腐就把敌人基本都抓完了，利用王岐山，你说中国的将军，还有郭伯雄、徐才厚、周永康、薄熙来，你数不完啦。
 
-[【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+他基本上抓了三波人，第一波用过去的习近平，没参与的江、胡的矛盾，然后把对方干掉，他就把胡的人全干掉了，然后再用江和邓之间的怨气，王岐山把邓家干掉了，三波过去老江湖全灭完，这第一个叫除掉自己所有的政敌，这个完了以后开始第二波 在干什么？就是搞中国所有的富豪、寡头，一个个的寡头被抓、被杀 全完
+到最后马云、马化腾、马明哲，全完蛋，全部限制出境，民生、史玉柱，全完。
 
-* * *
+这两波完了还把名人，就是社会有影响力的人士，习近平定为叫做看不见的风险，这些人蹦出来就会为我惹事儿，这早就说过，中国只有一个人能发声，哪有那么多人发声，拿掉，他在第一天就废掉了所谓的常委，建立了国家安全委员会，国家安全委员会就是，即当年斯大林的模式建的，杀将军、排挤政治势力，抓所有的寡头、干了所有的名人，剩下一个国家真正的独裁就是他了，这时候他要完成什么？
+在国际上要有一波人，就像过去的亚非拉一样，结果找了一个普京，巴基斯坦、中东、非洲、东欧独裁国家、白俄罗斯、阿塞拜疆，就是这些人跟他在一起，打造一个他认为的世界民主社会必将溃败，这个世界还是需要一个集权制的同盟，特别是伊朗特别是北朝鲜，对他很管用，这时候习近平又完成了访问北朝鲜，把伊朗的整个关系全部搞定，包括伊朗的死敌沙特、伊拉克，像UAE这样都联系在一起，还有在沙特大量开发矿的权利，都要给中共，沙特用人民币做石油，他完成了能源板块和所谓的轴心国板块的积累，然后最后和普京干一票，你去乌克兰，你往西扩，不是普京将一个自己领土0.4还不到的一个国土的面积，视为威胁，说你影响了我的安全，我要阻止欧盟东扩，实际上是俄罗斯西扩，他助俄罗斯西扩是拿下欧洲。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+那么习要是哪扩呢？习很简单，中东是我的，亚洲已经是我的了，那么我干这事儿和你干的事儿，最大挑战是什么呀？美元制裁，不是跟你们开玩笑的，共产党准备的可比普京准备得好，可没那么幻想，说我要先拿下香港，拿下香港唯一的办法，就是把香港砸烂，只有砸烂了，才能是属于我的，第二，我要拿下台湾，拿下台湾，我才能真正的影响西方的经济命脉，中东我要拿下，油，我掐住了油，我拿住了台湾，我拿住了芯片，我拿住了美国80%的西方世界离不了的芯片生产能力，而且俄罗斯控制的世界上所谓拿下的乌克兰四分之一的粮仓，包括化肥和农业，还有很多矿产，这时候整个中东由于油一断，大家知道达到什么目的？看到了吗？这个世界上是科技无法生产，经济无法运行，能源一下会暴涨，这个时候就拼谁呀？习近平最爱玩的招儿，说小的时候挨饿，说看谁能饿的时间长，我告诉大家，从病毒开始那天起，这个计划没有脱离习的控制，毒完就叫什么？疫苗，疫苗完就是疫苗灾难，疫苗灾难之后就是核糖核酸。
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-
-
-[【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+我告诉大家第一个答案，所有的计划都在习近平控制之中，核糖核酸和病毒整个在西方世界未来的疫苗灾难是绝对的一场大戏，第一条，习在上海广州做的，就是疫苗灾难带来的死亡和社会整个系统的改变，完全在计划控制之中。
 
  
 

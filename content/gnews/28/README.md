@@ -2,29 +2,24 @@
 ---
 
 
-## 加拿大税务局计划在数字货币交易中牟利
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334202/)
+## 视频|郭先生谈战友在乌克兰前线救援的巨大意义
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2334273/)
 
-采编：加拿大温哥华扬帆农场 – Ucool优酷
+制作：香草山视频部
 
-撰稿：加拿大温哥华扬帆农场 – 硫酸羟氯喹64
+在4月10日的大直播中,郭先生揭示了新中国联邦在梅迪卡进行的人道救援，所带来的巨大意义。
 
-据加拿大[CTV新闻]4月11日报道，目前数字货币交易正席卷全球，包括比特币和以太坊及其他数字货币市场都在迅速增长，而加拿大税务局则正在对该市场的迅猛发展制定相应税收政策。
+郭先生说，在日本政府会议上，有官员播放了战友参与救援的视频，并表示只要战友们坚持到乌克兰危机结束，一定会有许多国家承认新中国联邦的地位。甚至，有欧洲、以色列国家政府表示，将敦促联合国承认新中国联邦的地位，或者这些国家会独立承认。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1425.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/business/pattie-lovett-reid-trading-in-cryptocurrencies-beware-the-cra-is-watching-1.5851950?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=62540dc0a609c100019786bf&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+郭先生引述某国官员的话称，这件事的意义不亚于乌克兰反抗俄罗斯侵略的意义。这让很多国家开始思考，为什么有中国人敢于站出来，说中国共产党不能代表中国人；以及告诉世界，我们反对共产党背后参与支持俄罗斯这场对乌克兰的非正义战争之中。同时，前线救援的种种事迹，让各国理解到了将中共与中国人分开的重大意义。
 
+郭先生最后说，前线的每一条报道、视频、每一个故事，都是射向中共的导弹，让中共惶惶不可终日。新中国联邦在前线所做的事，都是为了14亿墙内同胞和海外华人的安全。并且，还让这些国家明白，只需消灭操纵14亿中国人中的坏人就足以解决问题。
 
-报道称，加拿大税务局不仅密切关注着该国的数字货币交易，甚至已计划在其税收中获得该市场的最大份额，并惩罚那些违规的未申报者。因为在加拿大，通过交易数字货币获利将被视为纳税人的业务收益。
+发稿：Daxia
 
-而对于因交易数字货币获利而少报或未报该收入的纳税人，加拿大税务局除了要求其偿还税款之外，还将处以至少100加元或少报税款50%的罚款，并以较高者为准。
-
-据悉，[加拿大税务局]在2021年赢得了一场从加密货币交易平台 [Coinsquare ]获取客户数据的官司，包括所有活跃和非活跃交易者的账户名称和详细信息。此外，该局现在还以监管者身份协调某些数字货币交易所，以跟踪数字资产的流通。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://www.ctvnews.ca/business/pattie-lovett-reid-trading-in-cryptocurrencies-beware-the-cra-is-watching-1.5851950?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&taid=62540dc0a609c100019786bf&utm\_campaign=trueAnthem%3A+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.ctvnews.ca/business/pattie-lovett-reid-trading-in-cryptocurrencies-beware-the-cra-is-watching-1.5851950?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=62540dc0a609c100019786bf&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

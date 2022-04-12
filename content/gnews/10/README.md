@@ -2,42 +2,38 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
+## 莫里森回击普京的入境禁令，声称制裁是“荣誉勋章”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2334524/)
 
-整理：枳实
-美工：精灵蓝
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+翻译：li yan li
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1432.png)图片来源：Republic World & 雅典娜设计组
 
 
-雅典娜疫情更新（2022年 4月11日）
+4月11日，据澳大利亚新闻报道，总理斯科特·莫里森对莫斯科禁止他和227名澳大利亚领导人进入俄罗斯的入境禁令的制裁作出回应，称制裁是一种“荣誉勋章”。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
-[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
+莫里森先生是俄罗斯外交部周四发布的禁止入境名单上的228名澳大利亚领导人之一，这是对莫里森先生最近对俄罗斯实施制裁的直接回应。
 
-数据来源：
+周二，莫里森先生在新闻发布会上谈到了制裁问题。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+他说：“制裁是澳大利亚为自由而站起来的荣誉勋章，我很高兴把这作为为澳大利亚人站出来的荣誉勋章。”
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+同日，媒体爆出俄罗斯在入侵乌克兰的过程中进行了化学战。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+外交部长玛丽斯·佩恩说，俄罗斯的这种行为是对国际法的进一步全面违反，进一步表明普京和俄罗斯绝对违反了每一项价值观。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+新闻链接：[Prime Minister Scott Morrison hits back at Vladimir Putin’s entry ban claiming sanction is a ‘badge of honour’ | Sky News Australia](https://www.skynews.com.au/australia-news/prime-minister-scott-morrison-hits-back-at-vladimir-putins-entry-ban-claiming-sanction-is-a-badge-of-honour/news-story/31022fbf25c32f82f2d7180d5b0d46dd)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
