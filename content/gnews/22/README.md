@@ -2,101 +2,34 @@
 ---
 
 
-## 视频|新中国联邦咖啡 New Federal State of China coffee
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2335617/)
+## 普京总统任命侵略乌克兰指挥官
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2335631/)
 
-作者|紐約香草山农场- 杰西卡爱月亮
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/d6d7c140-5e3b-41e1-85b3-41f7f8d4335d.jpg)
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-21.jpg)
+美国和欧洲官员告诉CNN，俄罗斯总统普京任命联邦军南部军区司令亚历山大・杜波尼科夫将军（60岁）于4月10日前就任乌克兰全战区的总司令。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Putin-appoints-new-commander.jpg)图片来源：CNN新闻
 
-> 乌克兰土地上的炮声
-> 
-> The bombing from Ukraine
-> 
-> 打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
-> 
-> Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
-> 
-> 一个个匆忙的黄马甲，汇集成一束光，是力量
-> 
-> The busy yellow vests, gathering into a beam of light, it is strength
-> 
-> 一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
-> 
-> Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
-> 
-> 咖啡不苦 Coffee is not bitter
-> 
-> 苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
-> 
-> 咖啡不苦 Coffee is not bitter
-> 
-> 苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
-> 
-> 咖啡不苦
-> 
-> Coffee is not bitter
-> 
-> 苦的是即使炮声和苦难也不能扭转很多人 的愚昧
-> 
-> The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
-> 
-> 咖啡不苦
-> 
-> coffee is not bitter
-> 
-> 苦的是人们在邪恶势力面前的懦弱与可怜
-> 
-> The bitter is the cowardice and pitifulness of people in the face of evil forces
-> 
-> 端起咖啡杯
-> 
-> Holding up the coffee cup
-> 
-> 品尝战火的苦难，愤怒 悲痛 无奈
-> 
-> To taste the suffering of war, anger, grief, helplessness
-> 
-> 品尝新中国联邦咖啡，香浓 温暖 回味
-> 
-> To taste New Federal State of China coffee, fragrant, warm and aftertaste
-> 
-> 每天一杯新中国联邦咖啡
-> 
-> A cup of New China Federation coffee every day
-> 
-> 品味邪恶与正义较量的滋味
-> 
-> Tasting the taste of the battle between evil and justice
-> 
-> 品味志愿者们传播的力量与温暖
-> 
-> Tasting the power and warmth spread by volunteers
-> 
-> 等正义打败邪恶
-> 
-> Waiting for justice to defeat evil
-> 
-> 再来一杯新中国联邦咖啡
-> 
-> Another cup of New China Federal Coffee
-> 
-> 品尝苦尽甘来的滋味
-> 
-> Tasting the taste of aftering suffering comes happiness.
+据该欧洲官员的说法，俄罗斯已承认（乌克兰的）局势极为困难，可能被迫改变其战略。
 
+杜波尼科夫在2015年9月至2016年6月俄罗斯对叙利亚内战的军事干预期间负责作战指挥。俄军当时支持阿萨德政权，对北部阿勒颇反对派控制区的人口密集区进行轰炸，造成大量人员丧生。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+俄军在乌克兰重复了当年的同样行为，袭击主要城市的民用设施，并摧毁南部港口城市马里乌波尔市区。 该官员指出，俄军的基本思想与战术较之过去毫无变化。
 
-编辑/校对/发稿：Daxia
+据熟悉情况的专家和美国官员称，据信俄军将官们现在的目标是在下月9日即将到来的二战战胜德国纪念日前向普京总统展示什么样的战果。
 
-**更多资讯，更多关注**
+4月9日，英国前驻俄大使罗德里克・莱恩（RoderickLine）在接受英国天空新闻（Skynews）采访时指出，俄罗斯任命了“在叙利亚有野蛮历史”的新指挥官。其目的至少是在乌东部的顿涅茨克夺取领土，让普京可以炫耀。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+美国有线电视新闻网(CNN)就此早有报道，由于没有总揽作战全局的指挥官，俄军侵乌被认为无法统一指挥。关于总司令的人选，美国官员曾表示，预计将任命取得了一定战果的乌南部的作战负责人。
+
+参考链接：[CNN.co.jp : プーチン大統領、ウクライナ侵攻の指揮官を任命](https://www.cnn.co.jp/world/35186098.html)
+
+* * *
+
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
