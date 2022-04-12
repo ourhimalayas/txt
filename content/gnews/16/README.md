@@ -2,30 +2,35 @@
 ---
 
 
-## 喜币有望成为最早、最流行的数字法币，战争、政治较量的本质在于资本
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2336133/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2336155/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：香草山翻译部
 
-4月10日，郭文贵先生于Gettr大直播中透露，当今能真正称作数字货币的只有比特币、以太坊、HCN（喜币），HCN（喜币）巧妙地结合了优点，并表示，所有战争、政治、科技较量的本质在于资本。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/202109042127-main.cropped_1630773087.jpg)图片来源voi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-11.png)
 
-以太坊作为目前世界最有价值的数字货币，核心原因是发展了NFT（非同质化代币），如同HCN、HDO生态圈中的GFASHION，NFT与艺术品拍卖、电子艺术，未来和元宇宙连在一起。
+文章仅代表作者本人观点，与Gnews无关
 
-把以太坊变成NFT、把token合法化的是摩根家族的摩根斯坦利、摩根大通，而摩根家族、包括洛克菲勒家族都是罗斯柴尔德家族的。继比特币问世之后摩根大通研发出第二代数字货币以太坊，以以太坊为平台衍生出很多ERC（以太坊代币协议）代币。
+视频参看：
+[2022.04.12早 《NFSC新闻》](https://www.gettr.com/streaming/p14x8oue165)
+[2022.04.12早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14ws418336)
 
-当今能真正称作数字货币的，只有比特币、以太坊、HCN（喜币）。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-比特币是开启世界走向网络虚拟时代、革命传统法币途中与法币共存时期的数字化货币设计；第二代数字货币以太坊，集合各种优越性、增强加密性、配合NFT，完成线上、线下支付。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/59559f9036527a88b26c8eaac826315c-1.jpg)图片来源Gettr
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
 
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-只有新中国联邦的HCN（喜币）巧妙地结合以上两点，有中心化负责、有稳定币HDO、最严格合法的KYC开户制度、有线上、线下实体交易模式，配合HPay（喜支付）无成本即时传输流通，让HCN（喜币）有望成为全世界最早、最流行的**数字法币**。在随后上线的第三代完全去中心化币，将重写人类的政治版图，因为所有战争、政治和科技的较量，本质就是资本的较量。
-
-等到俄罗斯普京和中共习近平建立的邪恶轴心再度发动末日疯狂式血腥杀掠，罗斯查尔德家族以及背后的“沼泽地”家族控制的资源才会参与，表现为以色列、日本、澳大利亚、加拿大、巴西加入，才能形成真正的“《新北大西洋公约》”。
-
-正如“沼泽地”要控制巴西、加拿大的农业，控制澳大利亚的综合资源，吸引美国聚集的世界尖端人才，新中国联邦未来也要控制三座“大山”，1. 食物和水；2. 生物科技和新能源科技；3. 智慧和数据。而新中国联邦的人才、智慧和GEDU是一切的基石。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
 
  
 
