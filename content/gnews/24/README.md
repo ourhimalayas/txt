@@ -2,28 +2,36 @@
 ---
 
 
-## 《在线新闻法》将加强监控独立媒体言论内容
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331517/)
+## 世银预计今年乌克兰GDP下降45%，俄罗斯下降&nbsp;11%
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2331640/)
 
-采编：加拿大温哥华扬帆农场 – UCool 优酷
+**翻译： 文舞两道**
 
-加拿大温哥华扬帆农场 – 编译： 晨熹
+世界银行4月10日公布，在欧洲和中亚新兴国家的经济展望中，2022年乌克兰的实际国内生产总值（GDP）预计将比上年下降45.1%。这是因为俄罗斯的入侵导致经济活动停滞不前，根据战争局势的发展，GDP有可能进一步下降。
+![](https://gnews.org/aaff1ae6-9a6e-4673-856e-7def3d77bbe5)
+乌克兰的GDP预计将从2021年的+3.4%戏剧性的大幅下降，除了因战争使乌克兰境内的很多地区暂停了企业活动之外，受战争影响，战事激烈的黑海沿岸进行的农产品的贸易变得越来越困难。由于乌克兰国境内的基础设施遭到很大破坏，乌克兰呼吁国际社会加强支援的呼声也越来越多。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6ED787A8-B44C-4EEE-8E7F-D73140FFDBC5.png)世界银行总部   图片来源：https://www.sankei.com/article/
+与此同时，世界银行预测俄罗斯2022年的GDP为-11.2%。由于美国和欧洲的经济和金融制裁，出口将急剧下降，导致经济严重的衰退，2021年，俄罗斯的GDP增长了4.7%。
 
-据【反叛新闻】4月7日报道， 为规范加拿大数字新闻机构及其在线共享内容，严格监管独立媒体的言论传播，特鲁多自由党最近向议会提交了《在线新闻法案》。
+作为世界主要金融机构成员的国际金融协会（IIF）表示，预计2022年俄罗斯的GDP将减少到-15%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1344.png)图片来源：[https://www.rebelnews.com](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+俄罗斯的原油和天然气出口正在萎缩，国际能源价格正在上涨。俄罗斯和乌克兰农业发达，占世界出口的比列很大，是非常重要的产粮基地。乌克兰素有欧洲粮仓之称，俄乌战争导致食品价格上涨，世界银行分析称，俄乌战争“将加剧世界通胀”。
 
+此外，支持俄罗斯入侵的白俄罗斯也受到了国际社会的制裁，经济一路下滑，GDP预计将从 2021年的+2.3% 下降为2022 年的-6.5%。
 
-据悉，该法案还将同时赋予[加拿大广播电视公司]对数字媒体平台及其信息内容进行监管和分享的权力，以禁止其他在线新闻机构能自由地对该公司进行合法的批评。
+**信息来源：**
 
-此外，[加拿大广播公司]还可以向特鲁多政府的相关委员会提出投诉。当局则将授权此前由自由党内阁推荐并任命的总督玛丽西蒙，负责在评议会上向该委员会对该法案做出最终解释。
+[ウクライナＧＤＰ４５％減　２２年世銀見通し　ロシアもマイナス１１％](https://www.sankei.com/article/20220411-2RUQFRGF6FJXHIENOLRRP5K5KE/)
 
-校对编辑：硫酸羟氯喹64
+**编辑：LILY**
 
-发稿：青青
+**发布：歪桑**
 
-原文链接： [https://www.rebelnews.com/new\_bill\_will\_grant\_cbc\_special\_privileges\_while\_regulating\_independent\_media](https://www.rebelnews.com/new_bill_will_grant_cbc_special_privileges_while_regulating_independent_media)
+20220411
 
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

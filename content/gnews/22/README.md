@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大保守党将力推加密货币
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331654/)
+## 加國保守黨將力推加密貨幣
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2331697/)
 
-采编撰稿：   加拿大温哥华扬帆农场 – 文莱
+采編撰稿：   加拿大溫哥華揚帆農場 – 文萊
 
-据自媒体【后千禧年】4月9日报道，加拿大保守党总理候选人波利耶夫在多次表示将推行加密货币后，当天再次宣布，保守党在执政后将取消对数字货币慈善捐款的所有税收。
+據自媒體【後千禧年】4月9日報道，加拿大保守黨總理候選人波利耶夫在多次表示將推行加密貨幣後，當天再次宣布，保守黨在執政後將取消對數字貨幣慈善捐款的所有稅收。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1352.png)图片来源：https://cryptocurrencynews.com/
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1352.png)圖片來源：https://cryptocurrencynews.com/
 
 
-对此，保守党政府将实施私人成员法案，以确保加密货币被视为股票和债券。因此当数字货币持有者向注册的加拿大慈善机构捐款时，可不受资本所得税的约束。此举将激励持有数字货币的公民进行慈善捐赠，同时加速加拿大成为区块链之都的前景。
+對此，保守黨政府將實施私人成員法案，以確保加密貨幣被視為股票和債券。因此當數字貨幣持有者向註冊的加拿大慈善機構捐款時，可不受資本所得稅的約束。此舉將激勵持有數字貨幣的公民進行慈善捐贈，同時加速加拿大成為區塊鏈之都的前景。
 
-报道称，保守党坚持加拿大人应该自由使用其他类型的金融产品，特别是发展数字货币交易市场，并认为这将使人们更好地控制个人财务，并大量释放加拿大人的消费积极性。
+報道稱，保守黨堅持加拿大人應該自由使用其他類型的金融產品，特別是發展數字貨幣交易市場，並認為這將使人們更好地控製個人財務，並大量釋放加拿大人的消費積極性。
 
-校对编辑：硫酸羟氯喹64
+校對編輯：硫酸羥氯喹64
 
-发稿：青青
+發稿：青青
 
-新闻来源： [BREAKING: Poilievre vows to remove taxes on charitable crypto donations if elected | The Post Millennial](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
+新聞來源： [BREAKING: Poilievre vows to remove taxes on charitable crypto donations if elected | The Post Millennial](https://thepostmillennial.com/poilievre-vows-to-remove-taxes-charitable-crypto-donations)
 
  
 

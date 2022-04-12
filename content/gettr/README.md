@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 1:06 AM (UTC)`
+
+4/10/2022 Miles Guo: The Japanese government and the leaders of some European countries appreciated the New Federal State of China for rescuing refugees on the front line of the Russian-Ukrainian war; many dignitaries from different countries have secretly contacted Mr. Guo about the recognition of the NFSC as a legitimate state; the Jews, who are in deep collusion with the Chinese Communist Party, are also grateful for the NFSC rescuing their people<br/><br/>4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系；与中共勾兑极深的犹太人也感激新中国联邦人的救助<br/>
+![img](https://media.gettr.com/group12/getter/2022/04/12/01/de4edaba-8caf-93bf-632f-ed73572eeb2c/out.jpg)
+
+---
+
+`@miles 4/12/2022 1:05 AM (UTC)`
+
+2022.04.11 晚  新中国联邦 | 新闻访谈   上海封城灾难持续，百姓苦不堪言；国内的病毒用药建议；全球水-粮食-能源危机即将到来，人类与我们的G系列未来会怎样？
+![img](https://media.gettr.com/group5/origin/2022/04/12/01/f31c1223-6013-8151-ac5e-7e896788975f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/12/2022 12:34 AM (UTC)`
 
 2022.04.11 晚  新中国联邦 | 新闻  郭先生谈战友在乌克兰前线救援的巨大意义；中共进行极限压力测试 并制造经济灾难、毁掉美元
@@ -143,20 +157,6 @@ Italian freelance media journalist interviewed with King and Steve from NFSC意�
 
  4月11号：一切都在行动中，
 ![img](https://media.gettr.com/group37/getter/2022/04/11/16/63a189c1-d9b5-7db5-4266-a836e27cfc17/out.jpg)
-
----
-
-`@miles 4/11/2022 3:50 PM (UTC)`
-
-Wenyao had an interview with American Public Service Media. She said that the Chinese Communist Party (CCP) doesn’t represent the Chinese people and the Chinese people don’t agree with this war. She introduced Mr. Miles Guo and his arduous effort to tell the world about the truth of what evil things the CCP has done to the world. When asked about her experience with helping refugees, she told the story of two old ladies who reached the rescue base by walking 60 kilometers from Ukraine, and emphasized that taking down the CCP is the only way to end this disaster.<br/>文耀接受美国公共服务媒体采访。她说中国共产党不代表中国人，中国人不同意这场战争。她介绍了郭文贵先生以及他竭尽全力告诉世界中共对世界所做的邪恶事情的真相。当问到她关于营救难民的经历，她讲述了两位老奶奶从乌克兰步行60公里到达救援基地的事，并强调只有灭共才是结束这场灾难的唯一方式。
-![img](https://media.gettr.com/group8/origin/2022/04/11/15/d2671f21-be3e-33bd-365b-9232869d404d/out.jpg)
-
----
-
-`@miles 4/11/2022 3:31 PM (UTC)`
-
-2022.04.11 NFSC and ROLF Ukraine Humanitarian Rescue Mission
-![img](https://media.gettr.com/group23/origin/2022/04/11/14/49925cad-5f32-5dab-c33e-729aebb5b9f9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
