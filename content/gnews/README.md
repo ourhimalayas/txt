@@ -15,74 +15,74 @@
 
 ---
 
-### [2022/04/12英喜时事速递](/content/gnews/1/README.md)
+### [中共欲向所罗门群岛派秘密保安团队并配备进口武器](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [南澳取消口罩强制令和扫码要求](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [2022/04/12英喜时事速递](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈孟建柱（四十）](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈孟建柱（四十）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【每日聚焦】俄乌战事4月12日简要](/content/gnews/3/README.md)
+### [【每日聚焦】俄乌战事4月12日简要](/content/gnews/5/README.md)
  ` 蓝莲花农场`
 
-### [文耀：把中国人和中共分开，中共不代表中国人](/content/gnews/4/README.md)
+### [文耀：把中国人和中共分开，中共不代表中国人](/content/gnews/6/README.md)
  ` 波士顿五月花农场`
 
-### [美国防部长称美国为乌克兰在顿巴斯的行动提供情报](/content/gnews/5/README.md)
+### [美国防部长称美国为乌克兰在顿巴斯的行动提供情报](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花时政┃法国驱逐六名俄罗斯间谍](/content/gnews/6/README.md)
+### [樱花时政┃法国驱逐六名俄罗斯间谍](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃奥地利总理：普京的“战争逻辑”令人“悲观”](/content/gnews/7/README.md)
+### [樱花时政┃奥地利总理：普京的“战争逻辑”令人“悲观”](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球食品价格受俄乌战争影响而飙升至历史最高水平](/content/gnews/8/README.md)
+### [全球食品价格受俄乌战争影响而飙升至历史最高水平](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【G时新闻】美专家：应拒绝在北美为中共特务提供身份申请](/content/gnews/9/README.md)
+### [【G时新闻】美专家：应拒绝在北美为中共特务提供身份申请](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [泽连斯基呼吁南韩提供军事武器援助乌克兰](/content/gnews/10/README.md)
+### [泽连斯基呼吁南韩提供军事武器援助乌克兰](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《面对邪恶，中共清零》](/content/gnews/11/README.md)
+### [《面对邪恶，中共清零》](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [洛杉矶上周日举行了反对强制令集会，人们高呼“我们人民不会屈服”](/content/gnews/12/README.md)
+### [洛杉矶上周日举行了反对强制令集会，人们高呼“我们人民不会屈服”](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [统购统销升级版](/content/gnews/13/README.md)
+### [统购统销升级版](/content/gnews/15/README.md)
  ` 银河勇气之星`
 
-### [七哥聊文明及信仰](/content/gnews/14/README.md)
+### [七哥聊文明及信仰](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [文·贵天成——文贵先生谈孟建柱（三十九）](/content/gnews/15/README.md)
+### [文·贵天成——文贵先生谈孟建柱（三十九）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海封锁后，港口船只堆积无法进关](/content/gnews/16/README.md)
+### [上海封锁后，港口船只堆积无法进关](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共严厉“清零”管控下，上海家用氧气瓶即将断供](/content/gnews/17/README.md)
+### [中共严厉“清零”管控下，上海家用氧气瓶即将断供](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫情｜上海确诊人数首度下降 当局分区管理愚弄民众 解封区仍维持禁足](/content/gnews/18/README.md)
+### [疫情｜上海确诊人数首度下降 当局分区管理愚弄民众 解封区仍维持禁足](/content/gnews/20/README.md)
  ` 關注組`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–辉瑞疫苗后遗症](/content/gnews/19/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.12)–辉瑞疫苗后遗症](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [重型武器供应缺乏：泽伦斯基称无法解除对马里乌波尔的封锁](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [乌克兰救援前线报道4.12.2022：前线大救援行动对灭共的战略意义](/content/gnews/21/README.md)
+### [乌克兰救援前线报道4.12.2022：前线大救援行动对灭共的战略意义](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线：信奉科学共产主义的郎咸平 其母成为“科学”防疫政策的受害者](/content/gnews/22/README.md)
+### [秘翻在线：信奉科学共产主义的郎咸平 其母成为“科学”防疫政策的受害者](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [风雨之中评上海封城](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排](/content/gnews/24/README.md)
  ` 關注組`
