@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/12/2022 1:36 PM (UTC)`
+
+♥️
+> `@himalayavang 4/12/2022 1:26 PM (UTC)`<br/>2022年4月12日 #乌克兰救援 前线：比利时首相亚历山大·德克罗，听妮可战友介绍新中国联邦救援信息及消灭共产党等目标后，对新中国联邦的付出表示感谢并主动提出要与战友合影。<br/><br/>比利时是欧盟的首府，在全球政治上具有非常重要的意义，德克罗总理是首位来Medyka的外国元首。<br/>#乌克兰 #乌克兰战争<br/>#我们爱好和平<br/>#我们和乌克兰人民站在一起<br/>#法治基金和法治社会 
+![img](https://media.gettr.com/group42/getter/2022/04/12/13/6a82888b-3fa3-4670-d878-45ad26e1580d/13a0a455c57e805f24fc8522a2dafb3f.jpg)
+
+---
+
 `@miles 4/12/2022 1:01 PM (UTC)`
 
 2022.04.12 早  新中国联邦 | 新闻访谈	 战争拯救政客政治生涯；白宫警告Putin Hike导致美通胀数据将异常升高；封城清零是城市压力测试
@@ -147,15 +155,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-11<br/>For English：gettr.com/post/p14r6ek95b9
 ![img](https://media.gettr.com/group34/origin/2022/04/11/22/ceba306b-0328-4f5e-878b-f4d61d589c59/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/10/2022 10:56 AM (UTC)`
-
-Italian freelance media journalist interviewed with King and Steve from NFSC意大利自由媒体记者在Medyka采访精糧和三人行
-![img](https://media.gettr.com/group3/origin/2022/04/10/10/2cb43596-f86b-cbfc-a4f0-00c5ae19e5ec/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

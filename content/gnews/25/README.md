@@ -2,25 +2,22 @@
 ---
 
 
-## 加拿大机构投资者增加持有数字货币
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
+## 视频|欧洲根本不是能源问题 是共产主义极权危机
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2334277/)
 
-编译撰稿：加拿大温哥华扬帆农场 – 活力人生
+制作：香草山视频部
 
-据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
+4月10日大直播中，郭先生提到，在俄乌战争中，欧洲要面临的问题根本不是能源危机，而是这些年来亲共亲俄的立场，让国家整个社会系统趋向极权统治。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+自2008年以来，德国默克尔和法国萨科齐这样的流氓政客，甘愿给共产党做走狗，显而易见的就是2008年奥运会德法在背后支持共产党。在普京威胁之下，德法、俄和中共国的经济全部挂钩，也极大怂恿了习普两人今天对乌克兰和台湾发动的侵略战。此外，萨科齐还出卖了乌克兰和香港以及非洲多国。因此，郭先生表示，俄乌战争的始作俑者默克尔和萨科齐都应该是战犯级的罪人。
 
+目前，因俄乌战争带来的欧洲油气问题，其背后是共产主义极权的游魂。所幸德国和法国在对待乌克兰的问题上已经全面转身，德国已经决定和美国合作，并已经对默克尔立案调查，邀请郭先生作证。郭先生非常乐意，愿意将所有情况悉数告知。
 
-毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
+发稿：Daxia
 
-报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

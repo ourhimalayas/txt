@@ -2,43 +2,25 @@
 ---
 
 
-## Elon Musk决定不加入推特董事会
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334089/)
+## 视频|郭先生谈战友在乌克兰前线救援的巨大意义
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2334273/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1239416791.0.jpg)
-当地时间4月11日，Elon Musk决定不加入推特董事会。
+制作：香草山视频部
 
-据推特CEO的声明书中写道，推特董事会对马斯克加入进行过多次讨论，商议若马斯克加入，那么他必须和其他董事一样，致力于公司的最佳利益。推特公司曾宣布4月9日为马斯克的正式加入日，但在同一天上午，马斯克本人表示不加入推特董事会。
+在4月10日的大直播中,郭先生揭示了新中国联邦在梅迪卡进行的人道救援，所带来的巨大意义。
 
-此前郭先生在直播中提到马斯克加入推特董事是很好的事情，这有助于自由言论的发展。马斯克也发推称，拥有大量跟随者的用户，一年的活跃量只有一条推文。推特的政治言论审查迫使平台活跃度过低，而就算作为推特董事，马斯克也必须遵守推特的言论审查。
+郭先生说，在日本政府会议上，有官员播放了战友参与救援的视频，并表示只要战友们坚持到乌克兰危机结束，一定会有许多国家承认新中国联邦的地位。甚至，有欧洲、以色列国家政府表示，将敦促联合国承认新中国联邦的地位，或者这些国家会独立承认。
 
-据悉，在马斯克公开在推特持有9%的股份时，推特股票经历了自首次公开募股以来最好的一天，在推特宣布马斯克即将加入董事会的第二天，股票又上涨了2%。
+郭先生引述某国官员的话称，这件事的意义不亚于乌克兰反抗俄罗斯侵略的意义。这让很多国家开始思考，为什么有中国人敢于站出来，说中国共产党不能代表中国人；以及告诉世界，我们反对共产党背后参与支持俄罗斯这场对乌克兰的非正义战争之中。同时，前线救援的种种事迹，让各国理解到了将中共与中国人分开的重大意义。
 
-撰稿、发布：骄子
+郭先生最后说，前线的每一条报道、视频、每一个故事，都是射向中共的导弹，让中共惶惶不可终日。新中国联邦在前线所做的事，都是为了14亿墙内同胞和海外华人的安全。并且，还让这些国家明白，只需消灭操纵14亿中国人中的坏人就足以解决问题。
 
-reference
+发稿：Daxia
 
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-
-
-> Elon has decided not to join our board. I sent a brief note to the company, sharing with you all here. [pic.twitter.com/lfrXACavvk](https://t.co/lfrXACavvk)
-> — Parag Agrawal (@paraga) [April 11, 2022](https://twitter.com/paraga/status/1513354622466867201?ref_src=twsrc%5Etfw)
-
-
-* * *
-
-
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

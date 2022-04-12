@@ -2,24 +2,16 @@
 ---
 
 
-## 台湾首次向民众发布战争生存指南
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2333967/)
+## 郭先生即将推出两首新歌
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2334116/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-233.jpg)
-当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/23-3.jpg)
+4月10日的大直播中，郭先生透露，有两首新歌正在创作当中。
 
-据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备，还包含如何在军事攻击中幸存下来的技巧，如区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
+其中一首歌是战友创作，该战友是在中共国内深受大众喜爱的歌手。郭先生初次试唱该歌曲就让战友惊讶了，毕竟一个不专业的歌手能够有如此表现，如郭先生所言，自己都觉得不可思议。歌曲尚在录制中，战友尽情期待。
 
-尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
-
-reference：
-
-[https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-民防手册下载地址
-
-[https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
+另外一首歌是好莱坞一位有名的作词人，他愿意为新中国联邦创作一首歌曲。歌曲的名字叫做《one hundred percent》，这是一首和以往完全不同的歌曲。歌词来源于郭先生以往的爆料，比如有些句子是这样的“中共病毒来了吗？one hundred percent；香港沦陷了吗，one hundred percent；普京打乌克兰了吗，one hundred percent“，足见该首歌曲体现的是爆料革命唯真不破的内核。该作词人提出要与郭先生单方面联系，排练的时候占用郭先生两个小时，在现场与一千人的队伍去排练，伴唱人员目前都是好莱坞最火的明星。该作词人还透露未来会与战友合作。
 
 撰稿、发布：骄子
 
@@ -33,7 +25,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

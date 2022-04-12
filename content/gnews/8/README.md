@@ -2,31 +2,61 @@
 ---
 
 
-## 时代终将惩罚那些伤害天道人心者
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2334383/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第9天登榜4国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2334530/)
 
-BY：银河系农场|天雷滚滚
-![此图像的alt属性为空；文件名为%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-16.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/screenshot-baike.baidu_.com-2022.04.12-20_42_53.png)
-大五毛六六的母亲因为阳性，天天被居委会恐吓，要带她去方舱医院隔离，把她母亲被吓得血压升高。她在微信朋友圈扬言，老人要有事，她就拿刀捅人去。
+4/12/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第9天iTunes打榜记录：
 
-这消息一出，网络顿时炸屏了。当初方方在疫情期间写《武汉日记》时，她就指责方方的文章满满的负能量，是给西方递刀子。为了给方方，也给所有负能量的人做个榜样，一个新加坡籍的作家不远万里跑到武汉，为中国抗疫采集正能量题材，一时风生水起，让名不见经传的国际共产主义战士顿时蜚声国内。不想风水轮流转，两年后，她的母亲却因同样的原因要被送去方舱医院，她却要跟人家动刀动枪的，咋标准如此不同呢？难不成，你是大五毛，你母亲也有特权，可以不被隔离，可以不去方舱医院？
+* * *
 
-经不起网上许多网友在她的微博之下的冷嘲热讽，六六大作家把自己的微博清空了。真是不作不死，当初批斗武汉方方，对她上纲上线时，可曾想过自己也有这样的一天。讲实话，她被网友网暴，也是活该。这些网友的留言，充其量也是希望他们能悬崖勒马，至少不会给她戴上汉奸敌特的帽子。而方方，那时多少人替她捏了一把汗，就像现在有多少人替张文宏捏了一把汗。当然，这并不代表我赞成方方对武汉抗疫轻描淡写的叙述，也不代表我赞同张文宏要求全民接种中共病毒疫苗。
+[【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-是的，在中共国，除了赵家人，其他的人，无论是大五毛还是军警宪特，都是共匪的手纸，用过了就扔，连他们家的一条狗都不如。看看李莹的父亲，在西藏服役十五年又能怎样，她的女儿还不是被拐骗到山中，即使被找到了，共产党还不是指鹿为马李代桃僵，硬是认定李莹就是小花梅吗？还有网上有人在呼救的那些住在医院里的八九十岁的老人，经历过抗美援朝又怎样？当年没在朝鲜冻成冰雕，没有美军的枪炮下成为炮灰，那就让你在二十一世纪的大上海成为饿死鬼，否则，都不能体现社会主义制度的优越性，不能体现你的党妈是如何的伟大光荣正确。
+* * *
 
-更不能体现伟大领袖习太阳的文韬武略。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
 
-两年前最流行一句话：时代的一粒灰落到你的头上，就成了一座山。六六们认为这粒灰不会飞到他们头上，他们永远是站在山顶，喝着小酒、嗑着瓜子欣赏风景的人。没想到，这风暴来得太猛太突然，突然得他们还没明白怎么回事时，在天空中飞扬的灰就击中了他们，因此，她们家成了这个时代的素材，她成了二年前被她网暴的方方。
 
-这写这篇文章，不是对六六们的遭遇幸灾乐祸，我只是想告诉正琢磨着要睡遍上海“花姑娘”的大白们，我们都是一条绳上的蚂蚱，我们不要互相伤害，你今天想着利用手中的权力去睡遍上海的“花姑娘”，明天，别人就会来睡你的妻子和女儿。六七十年前的轮回如果说太远的话，六六们才两年的报应你可知晓？李莹父亲的报应你可知晓？头顶三尺有神明，苍天可曾饶过谁？时代终将惩罚那些伤害天道人心者。不要以为现在习太阳害死了这么多中国人，而他依然可以称王称帝就怀疑因果轮回，有些人的存在是有使命的，有些人的存在是为了等待审判的。就像习太阳为灭掉共匪而生，而江泽民则是为了末日审判而活。望你们多为自己的子孙后代，为自己不遭报应，多积德，别做丧尽天良之事，那真是善莫大焉。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
 
-作者：天雷滚滚
 
-发布：天雷滚滚
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
 
-日本[银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![此图像的alt属性为空；文件名为Untitled_Project3.gif](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled_Project3.gif)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+
+
+[【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-12-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

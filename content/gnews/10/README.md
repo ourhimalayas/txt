@@ -2,28 +2,42 @@
 ---
 
 
-## 莫德纳发现污染后召回764,900支新冠疫苗针剂
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2334374/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-12-205148.jpg)
-美国制药和生物技术公司Moderna Inc.周五（4月9日）在欧洲发布了一项涉及76.49万剂COVID-19疫苗 “Spikevax “的召回计划，因为在一个小瓶中发现了污染物。
+整理：枳实
+美工：精灵蓝
 
-2021年9月1日，日本武田药业公司和莫德纳公司都报告了小瓶中的微粒后，暂停了三个批次的Spikevax疫苗，包含163000个小瓶，相当于163万剂。罗维（ROVI）是疫苗有效成分的生产企业，他们发现这些颗粒是不锈钢的，”与生产线上安装的两块金属之间的摩擦有关，因为在生产线的转换过程中，设置不正确”。
-
-莫德纳疫苗在2°C和8°C（36°F和46°F）之间储存，最长可达30天。
-
-本人认为疫苗在高温度时会显现这些污染物，因为很多专家拿了没用完的疫苗瓶子放在显微镜下发现了污染物。这也验证了疫苗不是单纯的普通疫苗。
-
-远离毒疫苗，尽量少出门接触人群，囤粮囤食物囤药，准备好疫苗的次生灾害。
-
-**新闻来源**：[https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found\_4394113.html](https://www.theepochtimes.com/moderna-recalls-764900-covid-19-vaccine-doses-after-contamination-found_4394113.html)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
 
+雅典娜疫情更新（2022年 4月11日）
 
-> [Japan: 1.6 million Moderna vaccine doses recalled; Novavax replacement deal signed](https://www.pharmaceutical-technology.com/comment/moderna-vaccine-recalled-novovax-replacement/)
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
+[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
 
+数据来源：
 
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

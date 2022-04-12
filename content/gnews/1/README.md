@@ -2,42 +2,24 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2334495/)
+## 共产党用病毒干掉白人非常巧妙地成功地发动了一场灭白的世界大战
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2334731/)
 
-整理：枳实
-美工：精灵蓝
+**【郭先生直播摘要】2021.2.15 共产党用病毒干掉白人非常巧妙地成功地发动了一场灭白的世界大战**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+**郭先生：**
 
+兄弟姐妹们，共产党的这个病毒和共产党在世界输出的种姓制度和阶级制度远超过所有人的想象。今天的美国这个怂样，就是完全傲慢、金钱、贪婪和失去信仰以后的这种灾难性的结果。使共产党把全世界的矛盾都对准了少量的白人，是它在挑起一个以白人为靶心的一个世界种族大战。在中东、在非洲、在亚洲  美国人绝对没意识到，共产党花了多大的力气、多大的精力来做这个事情。
 
-雅典娜疫情更新（2022年 4月11日）
+今天你在看到这个电影的时候，我想让战友们从另外一个角度看一看，从美国的大选，到印度的一个寄希望于(的)杀人犯，都寄希望于共产主义和社会主义，寄希望于中国温家宝。把全人类所有的问题都是变成白人化，白人式负责化，包括所有人类的经济和强大的希望，都认为是中国共产党，他说的中国绝对不是说中国人。我可以告诉你，他说的就是中国共产党。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1429.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1430.png)
-[2022年4月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月11日改进.pdf)
+他崇拜的是温家宝，绝对不是崇拜的是郭文贵，也不是崇拜的是什么 ，这里面的咱们哪个…哪个战友，不可能的，他看不起你的。在印度你能看出来那个奴才味是到处是，就像那个每天晚上冒出的炊炊的袅烟一样无处不在。他们是看不起中国老百姓的，他们只看得起共产党当官的。然后你再看看非洲，你再看看亚洲的任何国家，共产党的种姓制度、阶级主义和在潜移默化的把全世界的责任白人化以后，正在发动的人类上的真正的一场世界大战。真正的叫全人类少其他色种要和白人的一场大战，这叫做灭白战。没有人去想这个事，没有人敢说这个词，我说出来的。
 
-数据来源：
+共产党已经多年来，这就是要干掉美国的3F方案。13579方案的核心的核心——灭白计划！就是要灭掉美国和西方，在世界上存在的少比例的白人，这才是共产党最阴险的。2025、一带一路，全世界制造中国化，2035中(共)国GDP超越美国，世界当老大。2025中美共同治理世界，2035中(共)国治理世界，2049美国玩球蛋，滚蛋，滚蛋的前提就是灭白计划。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+那我请问战友？灭白计划已经运行了那么多年，在精神上、思想上、利益上、阶级上、历史上筹划了白人已经成功，你说它的杀手锏是什么？灭白计划？13579计划。我告诉你们大家，记住啦！  潘多拉的盒子，虚拟货币打倒美元，病毒干掉白人。就这两条，其他都不用谈了。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+视频剪辑，听写：小蜜蜂 |翻译：Arthur |校对：Polaris |视频制作+字幕：芥末|编辑：Quentin|发布：小蜜蜂
 
  
 

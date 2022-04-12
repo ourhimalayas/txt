@@ -2,28 +2,25 @@
 ---
 
 
-## 人才流失是俄罗斯最重要的资产流失
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2334029/)
+## 加拿大机构投资者增加持有数字货币
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2334121/)
 
-编译：波士顿五月花—-思澈
+编译撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-自俄罗斯入侵乌克兰以来大量受过高等教育的俄罗斯人纷纷逃离家园对俄罗斯的经济产生破坏性的后果，克里姆林宫发出紧急措施对IT从业人员暂停征兵。
+据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/54DC348E-18F2-40C4-A2D7-D42B8FE55A0D.jpeg)
-
-自普京对乌克兰发动侵略战争以来，大量俄罗斯人逃离家园，他们中有很多是受过高等教育年轻富有的金融从业人员、记者，IT专家和技术人员，这些逃离的俄罗斯人具有独立思考能力和创新精神不被普京的政治宣传所左右。
-
-从长远来看，受过高等教育的俄罗斯人的大量出逃可能对该国经济造成严重后果。因为他们不仅随身携带金钱，而且最重要的是他们的技能，人力资本是俄罗斯经济增长的最重要因素之一——它推动创新和创造力。
-
-经济学家认为，克里姆林宫采取的救助措施对IT行业的从业人员暂停征兵不会挽留住人才的，因为普京的侵略战争和政策不会让人才流失停止。
-
-简评：人才就是财富！
-
-素材来源：[https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html](https://www.n-tv.de/wirtschaft/Russland-verliert-sein-wichtigstes-Kapital-article23247739.html)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1420.png)图片来源：[https://www.benefitscanada.com](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
 
+毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
+
+报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
  
 
