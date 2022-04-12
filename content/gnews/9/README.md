@@ -2,48 +2,30 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2336051/)
+## 喜币有望成为最早、最流行的数字法币，战争、政治较量的本质在于资本
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2336133/)
 
-翻译：土饭团
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-43.jpg)
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-您若想了解全文报导内容，请点击标题链接
+4月10日，郭文贵先生于Gettr大直播中透露，当今能真正称作数字货币的只有比特币、以太坊、HCN（喜币），HCN（喜币）巧妙地结合了优点，并表示，所有战争、政治、科技较量的本质在于资本。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/202109042127-main.cropped_1630773087.jpg)图片来源voi
 
-**1.[美国国务院命令工作人员离开上海，警告对COVID-19的限制“任意执法”](https://www.foxnews.com/world/chinas-zero-covid-strategy-failing-covid-shanghai-u-s-warns-against-travel)**
 
-福克斯新闻4月11日电，国务院周一下令所有非紧急领事人员及其家属离开上海，该命令发布前几天，国务院警告美国人不要到中共国部分地区旅行，因为“当地法律的任意执行和与COVID-19有关的限制”，甚至是“父母和孩子被分开的风险”。前疾控中心主任Robert Redfield博士表示，在中共国发生的事情实际上可能“被严重低估”。
+以太坊作为目前世界最有价值的数字货币，核心原因是发展了NFT（非同质化代币），如同HCN、HDO生态圈中的GFASHION，NFT与艺术品拍卖、电子艺术，未来和元宇宙连在一起。
 
-**2.[Biden表示美国和印度在管理俄罗斯对乌克兰战争的“不稳定”影响方面进行了“密切磋商”](https://www.foxnews.com/politics/biden-us-india-close-consultation-managing-destabilizing-effects-russia-war-ukraine)**
+把以太坊变成NFT、把token合法化的是摩根家族的摩根斯坦利、摩根大通，而摩根家族、包括洛克菲勒家族都是罗斯柴尔德家族的。继比特币问世之后摩根大通研发出第二代数字货币以太坊，以以太坊为平台衍生出很多ERC（以太坊代币协议）代币。
 
-福克斯新闻4月11日电，美国总统Biden周一与印度总理Narendra Modi举行了虚拟会议，美国和印度在管理俄罗斯对乌克兰的战争所造成的“不稳定”影响方面正在进行“密切磋商”，并表示美国和印度“拥有强大和不断发展的主要防务伙伴关系”。白宫表示，Biden和Modi“致力于通过清洁能源、技术和军事合作以及扩大经济和民间联系来加强美印关系。”
+当今能真正称作数字货币的，只有比特币、以太坊、HCN（喜币）。
 
-**3.[Naomi Wolf: COVID-19是法西斯暴政的幌子](https://www.foxnews.com/media/naomi-wolf-covid-19-cover-fascistic-tyranny)**
+比特币是开启世界走向网络虚拟时代、革命传统法币途中与法币共存时期的数字化货币设计；第二代数字货币以太坊，集合各种优越性、增强加密性、配合NFT，完成线上、线下支付。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/59559f9036527a88b26c8eaac826315c-1.jpg)图片来源Gettr
 
-福克斯新闻4月11日电，作家Naomi Wolf周一在“Tucker Carlson Tonight”节目中讨论了发生在中共国上海的“动态清零”封锁事件的全球影响。现在，有了这个剧本，没有什么可以防止这种镇压封锁在美国城市再次发生，鉴于极权主义的历史，没有理由相信中期选举会在没有紧急情况的情况下被允许展开，而中期选举会给Biden政府带来巨大的失败。
 
-**4.[美国国防部长和Rajnath Singh在五角大楼讨论中共国和俄罗斯问题](https://www.aninews.in/news/world/us/us-defense-secy-rajnath-singh-discuss-china-russia-at-pentagon20220412054227/)**
+只有新中国联邦的HCN（喜币）巧妙地结合以上两点，有中心化负责、有稳定币HDO、最严格合法的KYC开户制度、有线上、线下实体交易模式，配合HPay（喜支付）无成本即时传输流通，让HCN（喜币）有望成为全世界最早、最流行的**数字法币**。在随后上线的第三代完全去中心化币，将重写人类的政治版图，因为所有战争、政治和科技的较量，本质就是资本的较量。
 
-ANI 4月12日电，美国国防部长Lloyd Austin周一在五角大楼接待了印度国防部长Rajnath Singh，就两国之间发展防务伙伴关系进行了会谈。五角大楼在一份新闻稿中说，讨论的主题将包括中共国和俄罗斯在该地区和世界各地造成的问题。稍后，他们将前往国务院，与国务卿Antony-J-Blinken和印度外交部长S-Jaishankar一起进行所谓的“二加二”会谈。
+等到俄罗斯普京和中共习近平建立的邪恶轴心再度发动末日疯狂式血腥杀掠，罗斯查尔德家族以及背后的“沼泽地”家族控制的资源才会参与，表现为以色列、日本、澳大利亚、加拿大、巴西加入，才能形成真正的“《新北大西洋公约》”。
 
-**5.[人权活动家敦促美国停止进口在中共国强迫劳动制造的产品](https://www.aninews.in/news/world/asia/human-rights-activists-urge-us-to-stop-imports-of-products-made-with-forced-labour-in-china20220410035019/)**
-
-ANI 4月10日电，人权活动家、劳工领袖和其他人士敦促美国阻止进口在中共国新疆地区强迫劳动制造的产品，这些团体周五敦促Biden政府，称奴役和胁迫贯穿该地区和中共国广泛的公司供应链。Biden总统12月曾签署一项法律，即《防止强迫维吾尔人劳动法》，该法律将于6月生效。对该法律的广泛解释可能会使美国从中共国进口的许多产品受到审查，而中共国的制造业占全球四分之一以上。
-
-* * *
-
-审核：阿伯塔
-校对：信心满满
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-15.jpeg)
+正如“沼泽地”要控制巴西、加拿大的农业，控制澳大利亚的综合资源，吸引美国聚集的世界尖端人才，新中国联邦未来也要控制三座“大山”，1. 食物和水；2. 生物科技和新能源科技；3. 智慧和数据。而新中国联邦的人才、智慧和GEDU是一切的基石。
 
  
 

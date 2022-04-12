@@ -2,23 +2,36 @@
 ---
 
 
-## 疫情｜上海确诊人数首度下降 当局分区管理愚弄民众 解封区仍维持禁足
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333623/)
+## 国际｜裴洛西出访前确诊 证实将解除隔离 未透漏出访行程后续安排
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2333468/)
 
-**图/文｜CP**
-**发布时间｜12/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海確診人數首度下降-當局分區管理愚弄民眾-解封區仍維持禁足.jpg)
-上海周一新增23342宗本土确诊病例，较前一日减少2800多宗，是疫情升温以来首次出现的下降趋势。当局宣布，全市实施“三区”管理制度，以小区为单位，按7～14日内有否阳性个案为标准，划分防范区、管控区及封控区，差异化防控疫情。
+**港台前线 zhong｜2022-4-12**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-21.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+4月7日媒体爆出，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本、韩国，针对俄侵略乌克兰寻求美日韩三方合作。又有消息人士称她可能取消韩国形成，改访台湾，惟本消息一直未得到美台官方的证实。
 
-其中，被列为风险最低的防范区，也就是14日内无阳性个案的小区居民，可以走出小区门，在所属街镇范围内，分时段、分批次的进行适当活动。但是，上海市衞健委强调，防范区不是“放飞区”，仍然要坚持做好居家防疫，尽量“足不出户”，并继续确保所属楼层、小区等公共区域的消杀工作。
+本未经证实的消息经曝光后，紧接着裴洛西便爆出感染新冠病毒，原定出访日韩行程无法如期出行。4月12日她于个人推特发文宣布检测已呈现阴性，将于当地时间周二解除隔离。此外，她并未透漏更多关于原定4月10日出访日韩行程的后续安排。
 
-有防范区的民众反应，本以为解封就可以获得出行自由，尤其是可以为自己和亲友购买物资，不料，由于跨省货运仍然收紧，加上获批开放的商店、超市数量极其有限，物资短缺的问题并未得到根本改善。民众感叹，防范区和其他区在本质上其实没有区别，共产党说的好听，其实就是做做样子，愚弄老百姓而已。
 
-來源｜[人民网](http://sh.people.com.cn/n2/2022/0411/c134768-35217094.html)
+
+> Today, happily I tested negative for COVID. Tomorrow, I will be exiting isolation at the direction of the Capitol’s Attending Physician and consistent with CDC guidelines for asymptomatic individuals. Many thanks to everyone for their good wishes, chocolates and chicken soup.
+> — Nancy Pelosi (@SpeakerPelosi) [April 11, 2022](https://twitter.com/SpeakerPelosi/status/1513574513178558471?ref_src=twsrc%5Etfw)
+
+
+
+未经证实消息传裴洛西4月10日将访台，惟确诊新冠而取消行程。4月10日，瑞典国会议员及瑞典籍欧洲议会议员访团首度抵台访问，据媒体报导，瑞典议员团访台前遭到中共驻瑞典大使馆施压，要求瑞典重申“一个中国原则”，惟这让他们更加决心访台。 另，台湾总统蔡英文因被匡列为确诊者的密切接触者，故12日利用视讯会议方式与瑞典外交访问团会晤。
+
+外交部8日也透过脸书表示，共同率团的欧洲议会议员魏莫斯（Charlie Weimers）与“台湾－瑞典国会议员协会”主席欧柏莉 （Boriana Åberg）都是长期坚定支持台湾的友人。去年欧洲议会高票通过的“台欧盟政治关系暨合作”报告的起草人与报告人，就是团长魏莫斯，这份报告以580票赞成、26票反对、66票弃权高票通过。
+
+此外，台湾外交部建议欧盟和会员国应该与台湾也发展“没有止境、没有禁区、没有上限”的友好关系。
+
+本次瑞典访问团名单：瑞典国会副议长吕谢婷（Kerstin Lundgren）、瑞典国会议员谢必扬（Björn Söder）、艾勒斯（Lars Adaktusson）、魏马可（Markus Wiechel）、艾索菲（Ann-Sofie Alm）、普拉斯（Lars Püss）、柯艾森（Alexander Christiansson）以及欧洲议会相关党团政策顾问等共11人。
+
+來源｜[THE HILL](https://thehill.com/news/house/3264279-pelosi-tests-negative-for-covid-set-to-exit-isolation/.)、[CNA](https://www.cna.com.tw/news/aipl/202204100246.aspx)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
