@@ -2,10 +2,16 @@
 ---
 
 
-## 4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2336351/)
+## 五月花简报（04/12/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2336386/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/85535303-9A91-40ED-9945-256388CD764F.jpeg)
+
+*发布：思澈*
+
+
 
  
 

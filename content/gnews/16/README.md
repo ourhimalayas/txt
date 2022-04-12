@@ -2,35 +2,24 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月12日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2336155/)
+## 《历史的今天》2022.04.12
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2336290/)
 
-作者：香草山翻译部
+作者：映兰轩
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15A430F2-6C96-4FD2-9AA9-1DE23A4CB163.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-11.png)
+1. 1861年:南卡罗来纳州的萨姆特要塞遭到南方联盟的攻击，美国内战开始
+2. 1919年:英国议会通过了每周48小时工作制和最低工资的规定
+3. 1951年:以色列议会正式指定4月13日为大屠杀日
+4. 1955年:小儿麻痹症疫苗被宣布为 “安全和有效”，并得到美国FDA的全面批准
+5. 1961年:苏联宇航员加加林乘坐东方一号宇宙飞船进入太空并环绕地球一圈，成为世界上第一位太空人
+6. 1981年:世界首架，美国哥伦比亚号航天飞机在肯尼迪航天中心升空，执行代号为“STS-1”的太空任务
+7. 1988年:哈佛大学为转基因小鼠申请专利（动物生命的第一次）
+8. 1990年:东德民选议会召开第一次会议，承认对大屠杀负有责任并请求宽恕
+9. 1999年:美国总统比尔-克林顿因在一起性骚扰诉讼中 “故意作出虚假陈述 “而被传唤藐视法庭
+10. 2016年:突破性的星光大道：科学家和互联网企业家，包括尤里-米尔纳、斯蒂芬-霍金，宣布了将机器人飞船送往半人马座阿尔法星的星际项目
 
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.12早 《NFSC新闻》](https://www.gettr.com/streaming/p14x8oue165)
-[2022.04.12早《NFSC新闻访谈》](https://www.gettr.com/streaming/p14ws418336)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-25.png)
 
  
 

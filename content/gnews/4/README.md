@@ -2,25 +2,23 @@
 ---
 
 
-## 秘翻在线: 中共政权如惊弓之鸟处处设防
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2336458/)
+## 2022/04/12 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2336464/)
 
-撰稿：西枫westca
+[![](https://express.adobe.com/page/wJ8qnFslHAGhU/images/2931c682-46cd-4459-8746-bf9975f1ad04.png?asset_id=ba2503b5-0fc9-4a82-961b-4aa885a38ba9&amp;img_etag=%22b59f7f99494a7a75221e97ea93896b4b%22&amp;size=2560)](https://express.adobe.com/page/wJ8qnFslHAGhU/images/2931c682-46cd-4459-8746-bf9975f1ad04.png?asset_id=ba2503b5-0fc9-4a82-961b-4aa885a38ba9&amp;img_etag=%22b59f7f99494a7a75221e97ea93896b4b%22&amp;size=1024)
+[**GETTR直播链接**](https://gettr.com/post/p14y3tsd6bc)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-2.jpg)图片来源：Reuters
-据京报网4月10日报道，中共国中央第九轮巡视组已进入15个被巡视单位，开始工作。
+• 过去24小时对新中国联邦至关重要。欧盟和美国考虑对香港金融地位重新定义（剔除国际系统）。美国命令撤离上海大使馆人员历史上第一次，一些国家将开展类似行动，中共国走向北朝鲜化（经济、贸易、外交、文化脱钩)。
 
-巡视工作将持续两个月，并会设立专门值班电话和邮政信箱，主要受理反映被巡视党组织领导班子及其成员、下一级党组织领导班子主要负责人和重要岗位领导干部问题的来信来电来访，重点是关于违反政治纪律、组织纪律、廉洁纪律、群众纪律、工作纪律和生活纪律等方面的举报和反映。
-
-上榜的被巡视单位居然包括了国务院办公厅、中央办公厅、中央国家安全委员会办公室、国家安全部、中央保密办、国家发改委、国务院研究室、国务院港澳事务办公室、中央组织部、中央纪委国家监委机关、国家税务总局、国家铁路局、中国民用航空局等中共国最高级行政机构。
-
-在境内外形式极为紧张之时，习总加速师如此动作，预示满朝皆为敌、这是预防内部动乱吗？
-
-**新闻来源：**[十九届中央第七轮巡视完成反馈\_京报网 (bjd.com.cn)](https://news.bjd.com.cn/2021/09/05/167300.shtml)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+*编辑：【英国伦敦喜庄园编辑部】*
 
+*听写：* *call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+[![](https://express.adobe.com/page/wJ8qnFslHAGhU/images/3a940585-5ee3-40ca-aa9e-22a971f30c26.jpg?asset_id=f4054333-cebf-45a4-bd3c-75938b9be05e&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/wJ8qnFslHAGhU/images/3a940585-5ee3-40ca-aa9e-22a971f30c26.jpg?asset_id=f4054333-cebf-45a4-bd3c-75938b9be05e&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
