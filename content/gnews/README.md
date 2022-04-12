@@ -15,77 +15,77 @@
 
 ---
 
-### [2022年4月12日《樱花快报》：俄罗斯入侵以来 超450万难民逃离乌克兰](/content/gnews/1/README.md)
+### [【粤语配音】2022年4月11日：中国已经进入人道大灾难时刻](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [有声|上海某社区因疫情接近崩溃](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [COVID-19疫苗副作用集萃（2022.4.12)–月经紊乱](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [眼泪是清理心霾的净水](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [郭文贵先生2022年4月11日第二条盖特视频（2分04秒）全文字版](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年4月12日《樱花简报》：日本首相表明对乌提供人道援助与资金合作](/content/gnews/2/README.md)
+### [有声|美国驻华大使馆发布授权撤离和旅行警告声明](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [2022年4月12日《樱花快报》：俄罗斯入侵以来 超450万难民逃离乌克兰](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年4月11日盖特视频（9分10秒）全文字版](/content/gnews/3/README.md)
+### [2022年4月12日《樱花简报》：日本首相表明对乌提供人道援助与资金合作](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃加密货币基金创1月以来最大流出](/content/gnews/4/README.md)
+### [郭文贵先生2022年4月11日盖特视频（9分10秒）全文字版](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃拜登总统期待下月访日，实现首次亚洲之行](/content/gnews/5/README.md)
+### [中日财经爆┃加密货币基金创1月以来最大流出](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大白们，大五毛都被抛弃了&#8230;&#8230;](/content/gnews/6/README.md)
+### [樱花时政┃拜登总统期待下月访日，实现首次亚洲之行](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大白们，大五毛都被抛弃了&#8230;&#8230;](/content/gnews/12/README.md)
  ` 银河勇气之星`
 
-### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/7/README.md)
+### [大直播后记：俄乌战争将升级为俄乌中欧的全面战争](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–莫德纳疫苗要了我半条命](/content/gnews/8/README.md)
+### [购物遭俄军轮流性侵 女子崩溃：我不想活了](/content/gnews/14/README.md)
+ ` 蓝莲花农场`
+
+### [COVID-19疫苗副作用集萃（2022.4.12)–莫德纳疫苗要了我半条命](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G系列永远属于战友属于新中国联邦](/content/gnews/9/README.md)
+### [G系列永远属于战友属于新中国联邦](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大](/content/gnews/10/README.md)
+### [4/10/2022 文贵直播：不敢报道新中国联邦救援的台湾和日本媒体证明了新中国联邦人成了世界上勇敢与正义的一面镜子；没有人比抛家舍业、冒着生命危险去参与乌克兰救援的战友们更伟大](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯抱怨土耳其销售无人机](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系](/content/gnews/12/README.md)
+### [4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；多国政要已就承认新中国联邦国际地位一事与郭先生秘密联系](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共加速建造导弹发射井，储备打击美国本土的远程导弹](/content/gnews/13/README.md)
+### [中共加速建造导弹发射井，储备打击美国本土的远程导弹](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大BC省取消疫苗护照政策](/content/gnews/14/README.md)
+### [加拿大BC省取消疫苗护照政策](/content/gnews/20/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大保守党将力推加密货币](/content/gnews/15/README.md)
- ` 扬帆枫叶快讯`
-
-### [“群体免疫”的瑞典做得如何？](/content/gnews/16/README.md)
+### [“群体免疫”的瑞典做得如何？](/content/gnews/21/README.md)
  ` 加拿大温哥华英里农场`
 
-### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/17/README.md)
+### [驻中共国欧盟商会敦促中共当局改变防疫政策](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19疫苗副作用集萃（2022.4.12)–二针辉瑞疫苗，严重皮肤问题](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [COVID-19疫苗副作用集萃（2022.4.12)–第三针疫苗直接打趴下](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/20/README.md)
+### [俄罗斯放松部分资本管制之时卢布大幅下跌](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠病毒感染率飙升，“长期新冠”威胁经济](/content/gnews/21/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [《在线新闻法》将加强监控独立媒体言论内容](/content/gnews/22/README.md)
- ` 扬帆枫叶快讯`
-
-### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/23/README.md)
+### [耶伦呼吁对加密货币加强监管以降低风险和减少欺诈](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [右手墨迹｜沪上尽血泪——防疫为了谁](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [加拿大BC省取消疫苗护照政策](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
