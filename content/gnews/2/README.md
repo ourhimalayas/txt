@@ -2,33 +2,47 @@
 ---
 
 
-## 中日财经爆|被社会主义铁拳锤醒 众多日商撤出中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338435/)
+## COVID-19疫苗副作用集萃（2022.4.13）新冠疫苗第三针不良反应
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338542/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月12日，日本《产经新闻》台北支局长矢板明夫在社交媒体上表示，最近很多在中共国经商的日本人正在计划离开中共国，其中好几个是他的朋友，这次上海疫情封城，让日商认识到了社会主义的铁拳的厉害。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-30.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2020%2F06%2Fnp_file_16887-870x489.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2020%2F12%2F30%2Fbusiness%2Fjapan-tech-firms-china%2F&amp;tbnid=qFMSY)
-4月12日，日本《产经新闻》台北支局长矢板明夫在社交媒体上表示，最近很多在中共国经商的日本人正在计划离开中共国，其中好几个是他的朋友，这次上海疫情封城，让日商认识到了社会主义的铁拳的厉害。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-矢板明夫也以自身在北京做10年记者经验，揭露投资中共国或者在中共国讨生活的政治风险，并感叹“可惜听进去的人并不是很多。”
+整理/编辑：gardeniahu
 
-在中共国讨生活的政治风险，不管你有多高的社会地位、你的生意做得有多大，哪怕你住在上海市中心的豪宅、家里有三四个佣人，但只要最高领导人的心情不好，你随时可能成为最卑微的韭菜，你可能饿肚子，可能有病不能看，还可能出门被人拳脚相加。当你有困难、或者受了委屈，没有民意代表为你做选民服务、没有媒体替你伸张正义、你在网上发文求救，可能被删号甚至有牢狱之灾。
-
-中共国在改革开放之初，为了从国外招商引资，开出了很多优惠的政策，又加上后来的高度经济发展，最早进中共国的很多企业，确实赚到了不少钱。大概在20年前，日本的经济界把中共国看成了企业腾飞的希望之地。甚至有人说“21世纪是中共国的世纪”现在不去中共国的话，将被时代淘汰。
-
-但矢板明夫点出，中共国吸引外资的目的是为了巩固共产党政权。在中共脑海中只有政治逻辑、没有商业逻辑，中共随时可能翻脸，一个新政策，就会让外商的投资血本无归。这次上海封城，不仅仅是日本的商人，也吓坏了很多的在中共国淘金的外国人。
-
-消息来源:[怕了！日媒揭上海封城日商撤出中國](https://tw.news.yahoo.com/%E6%80%95%E4%BA%86-%E6%97%A5%E5%AA%92%E6%8F%AD%E4%B8%8A%E6%B5%B7%E5%B0%81%E5%9F%8E%E6%97%A5%E5%95%86%E6%92%A4%E5%87%BA%E4%B8%AD%E5%9C%8B-041509852.html)编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+原文作者：郭大欣儿
+
+**疫情|新冠疫苗副作用     新冠疫苗第三针不良反应**
+
+刚打完，不怎么疼，还没第二针疼。但是观察完回来开始开始头晕恶心。多久可以恢复好了。
+
+#新冠疫苗第三针
+
+发布于04.11
+
+精选评论
+
+踢足球的瑜伽爱好者回复：我昨天打完，昨凌晨开始发烧，今早闷汗退了以为好了，结果，又烧了，怎么办咧。
+
+菁菁回复：自从我打了第三针一直感冒。
+
+存在你的村寨回复：第二天发烧到39度，浑身疼。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1512.png)图片来源：小红书
+参考链接：[新冠疫苗第三针不良反应](https://www.xiaohongshu.com/discovery/item/6253e4460000000021038564?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729233)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,35 +2,43 @@
 ---
 
 
-## 中日财经爆|中共国今年前3个月与俄贸易同比大增27.8%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338417/)
+## 与中国铝业大亨有关的六家公司因逃税遭美国罚款18亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338494/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月13日，中共国海关总署发言人李魁文在记者会上表示，中共国今年第一季度与俄罗斯之间的整体贸易增加至2,430.3亿人民币(约381.8亿美元)，比去年同期成长27.8%。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-31.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi2.wp.com%2Fwww.russia-briefing.com%2Fnews%2Fwp-content%2Fuploads%2F2020%2F09%2FChina-Russia-Container-.jpg%3Ffit%3D900%252C506%26ssl%3D1&amp;imgrefurl=https%3A%2F%2Fwww.russia-briefing.com%2Fnews%2Fchina-r)
-4月13日，中共国海关总署发言人李魁文在记者会上表示，中共国今年第一季度与俄罗斯之间的整体贸易增加至2,430.3亿人民币(约381.8亿美元)，比去年同期成长27.8%。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-俄罗斯在2月24日入侵乌克兰，中共拒绝称俄罗斯的行动为入侵，并且一再批评西方惩罚莫斯科的制裁是非法的。
+**整理：围剿维尼熊
+编辑：围剿维尼熊**
 
-在入侵乌克兰的数周前，中共国与俄罗斯宣布一项“ 无上限的”战略伙伴关系。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/0F3D23DC-4F5D-4AF1-847B-4537543808D6.jpg)图片来源：腾讯
 
-李魁文说，中共国与其他国家，包含俄罗斯与乌克兰在内的经济和贸易合作保持正常，并强调到与这两国的贸易呈现上升趋势。
 
-根据过去的海关数据，中国2021年1月至3月与俄罗斯的整体贸易为1,901.2亿人民币，而中国与乌克兰在同期的贸易为267.7亿人民币。
+根据美国之音4月13日报道，美国法官裁定，与中国亿万富豪刘忠田有关联的六家南加州的公司需要支付18.3亿美元的罚金，因为这些公司将进口的铝伪装成铝成品来逃避关税。
 
-俄罗斯前财政部长古德林(Alexei Kudrin)12日表示，受到通货膨胀与资本外流的打击，俄罗斯2022年经济正走向萎缩超过10%。
+美国联邦地区法官克劳斯纳（R. Gary Klausner）周一判处Perfectus铝业公司及其一个子公司，以及四家仓储公司五年缓刑，并命令他们支付18.3亿美元的罚金。
 
-消息来源:**[中國首季與俄羅斯、烏克蘭貿易皆比去年成長](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E9%A6%96%E5%AD%A3%E8%88%87%E4%BF%84%E7%BE%85%E6%96%AF-%E7%83%8F%E5%85%8B%E8%98%AD%E8%B2%BF%E6%98%93%E7%9A%86%E6%AF%94%E5%8E%BB%E5%B9%B4%E6%88%90%E9%95%B7-042057968.html)**
+根据司法部的声明，这六家公司与亚洲最大的铝型材制造商中国忠旺控股有限公司合谋，将铝型材焊接在一起作为托盘出口，以规避美国的关税。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+美国从2011年开始对从中国进口的某种类型铝材征收最高400%的反倾销和反补贴关税，而托盘等铝成品则不受影响。
+
+声明表示，中国忠旺控股向投资者谎称美国对铝制托盘需求旺盛。但事实上，这些托盘主要被储存在南加州附近的四个仓库里，而这一虚构销售行为旨在抬高在香港上市的忠旺控股的业绩。
+
+声明称，由于对托盘没有实际需求，刘忠田和中国忠旺安排建造和收购铝熔化设施，将作为托盘进口的铝重新铸造成具有商业价值的形式。
+
+被告通过空壳公司向刘忠田控制的铝业公司洗钱数亿美元，以此来推动他们的骗局。这些资金随后作为铝材付款转入刘忠田以及其它的空壳公司。
+
+克劳斯纳法官在3月24日下令没收扣押的铝材，目前估值约为7000万美元。
+
+参考链接：[逃避美国关税 中国铝业大亨有关的六家公司被罚18亿美元](https://www.voachinese.com/a/china-aluminum-tax-justice-zhongwang-20220412/6526332.html)
+
+*发布：*文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
+
 
  
 
