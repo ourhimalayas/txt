@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 1:03 AM (UTC)`
+
+2022.04.12 晚  新中国联邦 | 新闻访谈   新中国联播在国际舞台上大放异彩，为即将到来的全球排华做好防范和准备
+![img](https://media.gettr.com/group4/origin/2022/04/13/01/83265451-fad7-194e-1d35-c0bf35a6add8/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/13/2022 12:32 AM (UTC)`
 
 2022.04.12 晚  新中国联邦 | 新闻     上海确诊人数首度下降，当局分区管理愚弄民众，解封区仍维持禁足；俄罗斯外长表示对乌克兰军事行动不会停止
@@ -147,13 +154,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 4/10/2022 Miles Guo: Russia will eventually be disintegrated by the contagious power of courage displayed by the Ukrainians; the Ukainians' brave counterattack awakened the instinctive conscience and sense of justice in the Europeans and Americans, and that is exactly why they have gained extensive support and aid; Chinese people should follow the Ukrainians' example, and fighting back against the CCP is their only option.<br/><br/>4/10/2022 文贵直播：乌克兰民族勇气的感染力量一定把俄罗斯解体！乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择！<br/>
 ![img](https://media.gettr.com/group4/getter/2022/04/12/16/dda236d3-11fd-9503-3e41-e29df0fa56b4/out.jpg)
-
----
-
-`@miles 4/12/2022 4:29 PM (UTC)`
-
-4/10/2022: Miles Guo: UK and European union are competing to form an alliance with Ukraine. Meanwhile the CCP is deploying HQ and DF series Missile Systems in the Balkans and the Middle East. This has set the stage for a war between Europe and Russia/China. Xi Jinping will take this chance to invade Taiwan; the Chinese will be the biggest victims of the war. What is going on in Shanghai will happen to the entire mainland China. The CCP is prepared for the death of 100 million Lao Baixing.<br/><br/>4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾；这场战争的最大受害者将是中国老百姓，现在的上海就是未来中国的缩影，共产党已做好中国死上一亿人的准备。<br/>
-![img](https://media.gettr.com/group33/getter/2022/04/12/16/26a70e0b-5ce5-4649-ca5b-75e36aa40514/out.jpg)
 
 ---
 

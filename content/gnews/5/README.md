@@ -2,39 +2,27 @@
 ---
 
 
-## 英首相约翰逊会见乌克兰总统泽连斯基
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336995/)
+## 有声|上海放松封城政策 沪京高铁票抢售一空
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2337083/)
 
-##### 作者：加拿大温哥华扬帆农场 -【采编/风云小哥 撰稿/翻译:晨熹】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【政客】4月9日报道， 英国首相鲍里斯·约翰逊周六在基辅会见了乌克兰总统泽连斯基，承诺将提供更多军事和财政援助。
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
+综合媒体4月12日报道，中共上海市日前终于放松了对当地部分居民的管控措施，部分居民在两周多以来首次走出家门。同时，据中共铁路官方网站12306显示，本周上海直达北京、杭州、南京等多地的高铁票目前已经售罄。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1469.png)图片来源：[https://www.politico.eu/](https://www.politico.eu/article/uk-prime-minister-boris-johnson-ukraine-president-volodymyr-zelenskyy-kyiv-war-russia/)
+据了解，上海市近日来已被中共病毒攻陷，日单增阳性感染者已连续保持在2万人以上，疫情形势严峻程度已超过2020年的武汉封城时期。然而，上海当局却在本周一发布消息称，当地的7000多个住宅单位在14天内没有报告新感染病例后被归类为低风险地区，部分市民于周二被允许离开他们的住所。消息发出当日，上海到达包括北京在内的多个城市的火车票随即被销售一空，上海疫情溢出风险亦随之飙升。
 
+文字版原文：[上海放松封城政策 沪京高铁票抢售一空](https://gnews.org/zh-hans/2333152/)
 
-英政府在周五宣布提供1亿英镑军事装备，包括更多的星光防空导弹、头盔、夜视仪和防弹衣后，周六宣布将向乌克兰提供120辆装甲车和新反舰导弹系统。如议会同意，英国将向世界银行额外提供5亿美元贷款担保，为乌克兰人民提供关键性帮助。英国还将进一步放宽乌克兰商品的进口关税。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-约翰逊重申，英国将长期坚定不移地与乌克兰站在一起，竭力支持乌克兰勇敢抗击俄罗斯入侵，确保其长期的安全和繁荣。
+音频处理/发稿：Daxia
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【晨熹】
-素材/采编 -【风云小哥】
+**更多资讯，更多关注**
 
-原文链接：
-
-[https://www.politico.eu/article/uk-prime-minister-boris-johnson-ukraine-president-volodymyr-zelenskyy-kyiv-war-russia/](https://www.politico.eu/article/uk-prime-minister-boris-johnson-ukraine-president-volodymyr-zelenskyy-kyiv-war-russia/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-* * *
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,38 @@
 ---
 
 
-## 樱花FM┃偷梁换柱 以市民的利益建高污染企业
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2336938/)
+## 英首相约翰逊会见乌克兰总统泽连斯基
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336995/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/偷梁换柱-以市民的利益建高污染企业.png)
+##### 作者：加拿大温哥华扬帆农场 -【采编/风云小哥 撰稿/翻译:晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据【政客】4月9日报道， 英国首相鲍里斯·约翰逊周六在基辅会见了乌克兰总统泽连斯基，承诺将提供更多军事和财政援助。
 
-近年港府拟把中国混凝土有限公司位于油塘的混凝土厂搬迁至将军澳第137区，被当区居民反对。惟最新城规会资料，发展局已就将军澳第137区用地，向该会申请兴建临时混凝土配料厂，为期7年。该地皮占地52,745平方呎，该厂房设有2条生产线，工厂最大设计生产能力为每天2,880方立米。发展局指未来十年港府需要兴建约43万间公屋，意味九龙市区、九龙东、将军澳及港岛北岸等地区，对混凝土有强烈需求。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1469.png)图片来源：[https://www.politico.eu/](https://www.politico.eu/article/uk-prime-minister-boris-johnson-ukraine-president-volodymyr-zelenskyy-kyiv-war-russia/)
 
-香港的地产业成为支柱产业，混凝土的需求促生香港本土供应链，香港各区都有混凝土厂，大部分工厂设在海边的工业区，如今香港的大型混凝土厂都是中资或者中资参股的形式，大型地产商也有自己的混凝土厂。港府每年都有大量的的公共设施建设，包括基建、新市镇、机场、开发区等大型项目，这些项目的工程全部都交由中资承建商分包，而混凝土这块肥肉自然落入中资混凝土厂的腰包。这些工厂因为生意太好，经常日夜赶工生产，对附近居民区造成空气和噪音污染，尤其是油塘工业区的中国混凝土厂，因为港府工厂区改居民区的政策，导致居民楼建在工厂区中的乱象，最终令居民深受其害，港府借机不发牌给中混，看似有勇气与邪恶中共抗争，但其实已暗地为中混在将军澳预备了更大的土地。今日媒体曝光城规委资料显示，发展局已为中混提交了用地申请，并且以未来十年港府有大量公营房屋的建设需求为借口，证明中混存在于此的必要性。
 
-中共独裁了香港的管制，从上层建筑的行政立法司法，到底层的民生项目，从土地到财富，都被中共以各种形式掌控，这就是中共向国际吹嘘的有特色的一国两制。
+英政府在周五宣布提供1亿英镑军事装备，包括更多的星光防空导弹、头盔、夜视仪和防弹衣后，周六宣布将向乌克兰提供120辆装甲车和新反舰导弹系统。如议会同意，英国将向世界银行额外提供5亿美元贷款担保，为乌克兰人民提供关键性帮助。英国还将进一步放宽乌克兰商品的进口关税。
 
-文字版原文：
-[偷梁换柱 以市民的利益建高污染企业](https://gnews.org/zh-hans/2309519/)
+约翰逊重申，英国将长期坚定不移地与乌克兰站在一起，竭力支持乌克兰勇敢抗击俄罗斯入侵，确保其长期的安全和繁荣。
 
-*编辑：东京樱花团/曲别针
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【晨熹】
+素材/采编 -【风云小哥】
+
+原文链接：
+
+[https://www.politico.eu/article/uk-prime-minister-boris-johnson-ukraine-president-volodymyr-zelenskyy-kyiv-war-russia/](https://www.politico.eu/article/uk-prime-minister-boris-johnson-ukraine-president-volodymyr-zelenskyy-kyiv-war-russia/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+* * *
 
  
 

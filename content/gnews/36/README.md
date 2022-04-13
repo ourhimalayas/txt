@@ -2,39 +2,49 @@
 ---
 
 
-## 美国宣布撤离驻上海领事馆非紧急政府工作人员
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336514/)
+## 突发：乌克兰特勤局逮捕了亲俄反对党领袖梅德韦丘克
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336516/)
 
-翻译：冰糖葫芦喵
-编辑：冰糖葫芦喵
+翻译：多伦多蓝莲花- 灭共文明
+
+编辑与校对：灭共文明
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《美联社》北京4月12日报道，**美国周一晚间宣布上海领事馆的所有非紧急政府工作人员和所有家庭成员离开上海**。目前上海中共病毒疫情爆发，处于严密封锁状态。
+《路透社》4月12日报道，**乌克兰安全部门周二表示，他们已经逮捕了亲俄政治人物维克多·梅德韦丘克。梅德韦德丘克是普京总统在乌克兰最亲密、最具影响力的盟友。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海-3-e1649806152140.jpg)2022年4月11日，周一，中共国上海，穿着防护服的快递员在一个小区门口提着食品袋。（图片来源：美联社）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/梅德韦丘克.jpg)2021年5月13日，乌克兰基辅，反对党“生命纲领”党领袖维克托·梅德韦德丘克出席法庭听证会(图片来源：路透社）
 
-美国国务院表示，**周一宣布的命令比上个星期宣布的“经授权”的撤离建议有所升级**。上个星期，国务院的撤离建议是自愿的。**而该命令涵盖驻上海领事馆的非紧急美国政府雇员及其家属**。领事官员将继续在领事馆执勤。
+早些时候，乌克兰总统泽伦斯基发布了一张梅德韦丘克的照片，照片上他满脸疲惫，戴着手铐，**他说普京是他女儿的教父。**
 
-在这份声明中，美国国务院还警告，美国人重新考虑前往中共国的旅行，因为中共政府不执行法律程序，当地防控人员任意执法，包括**任意扣押美国公民并限制他们离境，并阻止美国使领馆人员向他们提供领事服务**。
+**今年2月**，基辅表示，“反对派平台-为了生活“党领袖**梅德韦丘克从软禁中逃脱。去年，乌克兰当局对梅德韦丘克提起叛国罪指控，**但他否认有任何不当行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-2-4.jpg)美国国务院标识（图片来源：美国官网）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/梅德韦丘克1.jpg)维克多-梅德韦楚克在被安全部队拘留后（左），以及2021年5月（右）（图片来源：路透社）
 
-美国国务院还向在上海的美国人发出了一系列警告，包括**确保他们有足够的资金、药品、食物和其它必需品**，以备万一突然出现限制或隔离。
+乌克兰安全部门在一个在线帖子中写道，**你可以是一个亲俄政客，为这个侵略国家工作多年。你最近可能一直在逃避正义。你甚至可以穿一件乌克兰军服来伪装。但它能帮你逃脱惩罚吗? 一点也不！镣铐在等着你，像你这样的乌克兰叛徒也会受到同样的惩罚。**
 
-美国国务院还强调，特别是在**香港、吉林省和上海**，**有父母和孩子被分开的风险**。
+该帖子援引特勤局局长伊万·巴卡诺夫(Ivan Bakanov)的话，他表示，他手下的**特工“进行了闪电般快速、危险的多层次特别行动”，以逮捕梅德韦丘克，**但没有透露细节。
 
-自3月份以来，由于中共政府坚持通过严格隔离和大规模检测来应对疫情的“清零“政策，**这座拥有2600万人口大城市的许多居民被限制在家中长达三周的时间**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-3-2-e1649809614935.jpg)上海南汇方舱医院肮脏不堪（图片来源：大纪元）
 
-据报道，生活在严厉封锁措施下的人们越来越绝望，**他们的家人无法离开家，也无法获得食物和日常必需品**，而中共病毒检测呈阳性的人**被迫进入大规模隔离中心**。
+> ⚡️BREAKING: Pro-Kremlin lawmaker, Putin's crony Medvedchuk captured.
+> 
+> Zelensky announced that Viktor Medvedchuk, a lawmaker with the pro-Kremlin party Opposition Platform was captured by the Security Service. Medvedchuk is accused of treason. He escaped house arrest in February. [pic.twitter.com/M3SIi65uht](https://t.co/M3SIi65uht)
+> — The Kyiv Independent (@KyivIndependent) [April 12, 2022](https://twitter.com/KyivIndependent/status/1513945381842956294?ref_src=twsrc%5Etfw)
 
-日前，**在隔离中心的隔离者怒斥上海方舱医院条件恶劣、管理混乱，没吃没喝，不消毒，不给治疗，不做核酸检测，甚至厕所马桶都没有通水，粪便流的到处都是**。
 
-效对与发布：冰糖葫芦喵 夏至木木
+梅德韦楚克在乌克兰SBU特工部门开展的一次特别行动中被拘留。
+上个月，泽伦斯基表示，乌克兰最大的反对派运动“生命的反对派平台”和其他几个与俄罗斯有联系的较小政党已经被暂停。
+
+**在俄乌战争爆发以前，乌克兰是允许亲俄势力的存在**，**而且亲俄势力在乌克兰的势力是很强悍的，**包括在联邦和州一级层面的政府都有亲俄势力，**甚至能够成为当局政府首脑。**
+
+但是，**自俄罗斯入侵乌克兰以来，特别是，俄罗斯军队惨无人道的虐杀乌克兰平民以后，乌克兰人再也不会允许亲俄势力做大**，也许连存在都非常困难，**乌克兰人民对俄罗斯人有着血海深仇。**
+
+**自此，乌克兰亲俄势力在乌克兰应该彻底成为历史。**
 
 新闻来源链接：
 
-[US pulls non-emergency staff from Shanghai amid COVID surge | AP News](https://apnews.com/article/covid-business-health-china-shanghai-55d6a352e9d97fdd2a1cbd83d87f6685)
+[Ukraine secret service says it has arrested top Putin ally | Reuters](https://www.reuters.com/world/europe/ukraines-president-publishes-photo-pro-russian-politician-handcuffs-2022-04-12/)
+
+[Ukraine Secret Service just captured Putin’s best friend | indy100](https://www.indy100.com/news/ukraine-capture-viktor-medvedchuk?utm_content=Echobox&amp;utm_medium=Social&amp;utm_campaign=Main&amp;utm_source=Twitter#Echobox=1649793730)
 
 **更多资讯，更多关注
 [乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
@@ -42,16 +52,6 @@
 [全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
 [喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-
-
-
-
-
-
-
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

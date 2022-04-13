@@ -2,57 +2,37 @@
 ---
 
 
-## 文•贵天成——文贵先生谈孟建柱（三十八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2336821/)
+## 从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2336958/)
 
-整理：小儿
-编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情-1.png)
+据[**粽呀么粽**](https://weibo.com/haeni0404)[2022年4月12日 22:08](https://weibo.com/1950920381/Lo9dBCK5g?from=page_1005051950920381_profile&amp;wvr=6&amp;mod=weibotime) 来自 [抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片39-3.png)图片来源：雅典娜农场设计组
+[抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9) [@鋼筆様子](https://weibo.com/n/%E9%8B%BC%E7%AD%86%E6%A7%98%E5%AD%90?from=feed&amp;loc=at) 邻居为杨浦区殷行街道城市名园居民，原本身体健康，4月12日白天突发疾病瘫痪在床，下午打120急救电话一直到晚上都还在排队（从600号到200号），并且120要求家属自行先和医院联系好接收事宜，到了傍晚老人话都没法说了，跟她对话也没什么意识，居委加急开了证明，楼里其他邻居帮忙开车送出去了，但病人辗转杨浦四家医院（长海，杨中心，安图，新华）都被拒收，阳楼对口的安图医院回复需要排队2天等120接，自行送的不收治，目前病人就只能躺在家里等着！寻求转发寻求帮助！病人家属联系电话13482169051 [L粽呀么粽的微博视频](http://t.cn/A66m9chd)
 
+这只是个案，打开新浪微博的[抗疫求助](https://weibo.com/p/10080889902a1e60cd81187b008223d86da809/super_index)超话，我们可以看到一条一条的求助信息，每条求助信息背后都是一条鲜活的生命，每条求助信息背后都是无助者心碎的等待，当一个本应提供最基本的公民救助公共服务的政府以各种理由对急需救助者设置障碍的时候，这个政府就失去了存在的根本意义，这个政府在杀人，这里的人民在沉默，让我们共同面对，让我们一起要么在沉默中死去，要么在沉默中暴发一起站出来推翻这个杀人的政府。
 
-郭文贵2017年8月18日明镜专访第五期（续）
+撰稿：喜马拉雅的肉夹馍；
 
-郭：因为这个人刚刚让我办了个事，就是在我家后海旁边，有一个叫九华寺庙。庙的前面原来是一个海军的招待所，挡住了这个庙。这个九华寺的人天天闹，他说这个过去是个放生池，一直想拆，拆不了。后来就突然间一天给拆了，拆平了。拆平以后说是谁的家呢说是给周永康盖房子。这是2011年拆的，哎哟这个和尚们都去闹。就这位正部级的部长咱们政法界的，找我了解那些情况的时候，我帮他拍了照片给他看，他说这个就是周永康的家，后来呢，周永康还特别感谢，说我给他提供了信息，谁闹拉横幅这事。这个人呢，跟他找周永康帮我办公，我跟周永康本人并不熟。就那天我是第一次最近地接触，他和周永康关系真好。然后周永康说那个话，后来这个人就告诉我，说他跟孟建柱也很熟，说孟建柱说过，整谁整谁整谁整谁，然后跟我说的这人，现在基本上都抓完了，基本人都抓完了。就这个人头两天给我说了一句话，他说老孟是不希望你来爆他和孙力军但是老傅、王岐山，你随便爆。所以呀，这里边很复杂，很复杂！
+审核：喜马拉雅的馍夹肉；
 
-你重点是你不能再过一年就剪一次老百姓的羊毛过一年你就把这些企业老板抓一批，过几年你就黑一批。那你这还了得！拿着个布袋到一年就来装钱了。今年抓马云，抓马化腾，后年抓马明哲，后天抓王健林，你抓完这钱都成你家的了。石油帮的钱是你家的了，金融帮的钱是你家的了。然后政法界孟建柱书记和傅政华所有的海外的赌球那一天都一两千个亿都是你们家的了。然后海外的黑帮也是你们家的了。那赌球的，一赌一天就是一两千个亿呀是不是啊？那你这，你们各把一边让老百姓怎么活呀？一年十几万亿！这个，十万亿美元的GDP，中国十几亿人，一平均也没多少钱哪，结果都被你们全给嘎吱走了！
+校对：Maarago；
 
-郭：我说给孟建柱听的，我说给孙力军先生听的，我说给傅政华听的。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-郭：这个钱等到啊一我现在爆的是王岐山，我下一步就不爆了不爆王岐山了。再往下，可能就过一段时间，把海航说得差不多，我就全力以赴只爆两个人，孟建柱、傅政华。有可能也加上孙力军，我就爆他们，我就爆他们！他现在因为孟建柱书记有检察院、法院、公安，就是抓你他说了算，起诉你他说了算，判你他说了算，把你家被肝癌死他说了算，是不是啊？我就做好了准备啦，我必须这么做啊。我一定要给大家看看，过去的这五年，政法委书记孟建柱书记都干了啥。缅甸的赌球，缅甸的黑道，老挝的这个厂，湄公河周围的生意，整个菲律宾所谓的100%的控制，马来西亚100%的控制，这个赌球一天数以千亿地出，谁来控制着这个？所有的往海外转钱，大家都知道洗钱，这是个巨大的生意。洗钱，要公安部不让你洗，一毛钱你都洗不出去，这连个猪都懂的道理。我公安部要让你不洗钱，你一毛钱都洗不出去！为什么查而不软、查而不少？那不选择性地查嘛！那不给自己放水吗！就这过去，大家都知道一万多亿美元出来，这怎么出来的？那不太容易了吗，这里边有大猫腻。几个大地产集团到马来西亚，一拿一个城地洗钱，老板是谁呀？绿城老板是谁呀？金木棉老板是谁呀？老挝的赌场是谁呀？香港那么多赌球的资金，不洗黑钱？没人查。谁控制着香港的律政司啊？谁控制着香港的警察呀？谁在控制着香港的股票的上下呀？香港的股票已经完全被盗国贼控制了，想洗你香港钱，就多少钱！
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-陈：对呀，你第一次，1月26号，你介绍我第一次采访的时候，你说中国就坏在那么三五个盗国贼手上。从现在来看你点了傅政华点了王岐山点了孟建柱，后来你又说到盗国贼是六个，你准备什么时候点这另外三个人？
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-郭：其中一个坏蛋叫陈小平先生，哈哈哈！没有，跟你开玩笑啊。这个，咱们推友们看时间长了，也疲劳了必须开玩笑。我觉得应该是孟建柱书记开始吧！
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-陈：孟建柱我已经给你点过了
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-郭：就听说今天要录直播，他要来给你搞这一套，所以说，你看盗国贼们，我求求所有的中国同胞们，你们要半点相信中国共产党和政府的话，那你就是世界上最愚蠢的人。你看他这个丑陋的伎俩，这都是孟建柱书记手下的所有的公检法一贯的作为。我都不相信习近平主席他知道不知道！他能这么样的手段对付所有他的国民和任何人，他就不会对付你吗？他就从来不拿这个手段对付你吗？他就从来不来这个手段对付我们人民吗？就这种卑劣的手段，我对待我的敌人我都不能这么去做去！打官司、假官司、假抗议，让流氓上，然后绑架家人，然后制造这种谎言的谎言的谎言，假视频、假音讯、假组合，然后呢又在这事上，你昨晩给我说完我气得我呀！
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-资料来源：郭先生GTV、盖特直播
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-往期回顾：
-
-[文•贵天成——文贵先生谈孟建柱（三十二）](https://gnews.org/zh-hans/2213838/)
-
-[文•贵天成——文贵先生谈孟建柱（三十三）](https://gnews.org/zh-hans/2214511/)
-
-[文•贵天成——文贵先生谈孟建柱（三十四）](https://gnews.org/zh-hans/2268105/)
-
-[文·贵天成——文贵先生谈孟建柱（三十五）](https://gnews.org/zh-hans/2268619/)
-
-[文•贵天成——文贵先生谈孟建柱（三十六）](https://gnews.org/zh-hans/2267742/)
-
-[文·贵天成——文贵先生谈孟建柱（三十七）](https://gnews.org/zh-hant/2267921/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
