@@ -2,28 +2,39 @@
 ---
 
 
-## 樱花时政┃中共防疫惨无人道，美政府决定撤离驻沪使馆非紧急人员
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336701/)
+## 新中国联邦梅迪卡救援帐篷内接待了一家六口
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336756/)
 
-撰稿：东京樱花团/法治小哥
+作者：小小酥
 
-美国政府周一下令驻上海领事馆的非工作人员和所有家庭成员离开上海，原因是当地中共病毒(新冠病毒Covid-19)疫情案例迅速攀升，以及中共为应对疫情采取的任意执法和无视人权的限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-35.jpg)[图片来源](https://ichef.bbci.co.uk/news/640/cpsprodpb/12BC5/production/_124114767_1234124.png)
-与此同时，美国国务院还在当天公布的前往中共国旅行警示中做出了这项宣布，并宣布取代上周五才更新的旅行警示。
+编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/小小酥-e1649803632199.jpg)2022年4月12日，波兰梅迪卡难民营，新中国联邦乌克兰救援前线一家六口大帐篷内休息。
 
-最新的旅行警示中除了提醒美国公民重新考虑前往中共国旅行之外，还将香港、吉林省和上海市列为不要前往旅行的地区。
+**仓皇逃命路 **，
 
-警示中尤其列举了中共在实施病毒零容忍政策中采取的多项非人道的限制措施，包括将一些检测结果呈阳性的儿童与他们的父母分开。
+**偶遇歇脚处， **
 
-美国国务院星期一公布的这项中共国旅行警示中还说，中共未经正当法律任意执法，包括任意扣押美国公民并限制他们离境，并阻止美国使馆人员向他们提供领事服务。
+**一家人六口 **，
 
-本次中共病毒疫情，已经让美国政府彻底看清了中共当局对中国人民任意执法，践踏人权的卑劣行为。
+**梦乡大通铺。 **
 
-信息来源：[美国宣布撤离驻沪领馆非紧急工作人员 职责中共防疫官员任意执法](https://www.voachinese.com/a/us-orders-shanghai-consulate-staff-departure-20220412/6525728.html)
+**俄人杀我亲 **，
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**烧我庄稼地 **，
+
+**夫君保家乡，**
+
+**妇幼异乡流**。
+
+波兰当地时间4月12日，新中国联邦乌克兰救援前线，波兰梅迪卡救援中心，一家六口经历了颠沛流离，终于逃离了战区，来到了新中国联邦搭建的避难大帐篷，帐篷内设施齐全，食物供应充足，温暖而又温馨。在这里他们充分感受到来自新中国联邦人的关怀与温暖。
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

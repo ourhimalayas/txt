@@ -2,32 +2,99 @@
 ---
 
 
-## 比利时首相接受新中国联邦记者采访并主动要求合影
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2337120/)
+## 新中国联邦咖啡 New Federal State of China coffee
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2337190/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者|紐約香草山农场- 杰西卡爱月亮
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/d6d7c140-5e3b-41e1-85b3-41f7f8d4335d.jpg)
 
-4月12日，比利时首相亚历山大·德克罗在波兰梅迪卡难民救援中心接受了新中国联邦记者Nicole的采访并主动要求合影留念。对此，郭先生表示，这是外交默认。
+> 乌克兰土地上的炮声
+> 
+> The bombing from Ukraine
+> 
+> 打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
+> 
+> Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
+> 
+> 一个个匆忙的黄马甲，汇集成一束光，是力量
+> 
+> The busy yellow vests, gathering into a beam of light, it is strength
+> 
+> 一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
+> 
+> Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
+> 
+> 咖啡不苦 Coffee is not bitter
+> 
+> 苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
+> 
+> 咖啡不苦 Coffee is not bitter
+> 
+> 苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
+> 
+> 咖啡不苦
+> 
+> Coffee is not bitter
+> 
+> 苦的是即使炮声和苦难也不能扭转很多人 的愚昧
+> 
+> The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
+> 
+> 咖啡不苦
+> 
+> coffee is not bitter
+> 
+> 苦的是人们在邪恶势力面前的懦弱与可怜
+> 
+> The bitter is the cowardice and pitifulness of people in the face of evil forces
+> 
+> 端起咖啡杯
+> 
+> Holding up the coffee cup
+> 
+> 品尝战火的苦难，愤怒 悲痛 无奈
+> 
+> To taste the suffering of war, anger, grief, helplessness
+> 
+> 品尝新中国联邦咖啡，香浓 温暖 回味
+> 
+> To taste New Federal State of China coffee, fragrant, warm and aftertaste
+> 
+> 每天一杯新中国联邦咖啡
+> 
+> A cup of New China Federation coffee every day
+> 
+> 品味邪恶与正义较量的滋味
+> 
+> Tasting the taste of the battle between evil and justice
+> 
+> 品味志愿者们传播的力量与温暖
+> 
+> Tasting the power and warmth spread by volunteers
+> 
+> 等正义打败邪恶
+> 
+> Waiting for justice to defeat evil
+> 
+> 再来一杯新中国联邦咖啡
+> 
+> Another cup of New China Federal Coffee
+> 
+> 品尝苦尽甘来的滋味
+> 
+> Tasting the taste of aftering suffering comes happiness.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-241.jpg)（图片来自GETTR）
 
-波兰当地时间今日上午10点，比利时首相亚历山大·德克罗（Alexander De Croo）在访问波兰梅迪卡难民救援中心时接受了新中国联邦记者Nicole的采访。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-在采访过程中，记者Nicole向首相亚历山大·德克罗介绍了新中国联邦消灭邪恶中国共产党的目标以及有关救援乌克兰难民的情况。
+编辑/校对/发稿：Daxia
 
-亚历山大·德克罗首相回应道，人们需要互相帮助，非常高兴新中国联邦对乌克兰难民施予援手。
+**更多资讯，更多关注**
 
-采访最后，首相亚历山大·德克罗还主动要求和穿戴标有“Take down the Chinese Communist Party（消灭中国共产党）”标识的黄色马甲及帽子的Nicole合影留念。
-
-对此，新中国联邦创始人郭文贵先生郑重表示，这叫外交默认，这是首位在任首相，在外交上默认新中国联邦的国际地位，这一历史性时刻对新中国联邦的意义非常重大。
-
-参考链接：
-1.[https://www.gettr.com/post/p14xohiaaac](https://www.gettr.com/post/p14xohiaaac)
-2.[https://www.gettr.com/post/p14y3tsd6bc](https://www.gettr.com/post/p14y3tsd6bc)
-
-总编：老孙
-校对发布：爱放飞
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
