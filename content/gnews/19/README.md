@@ -2,22 +2,28 @@
 ---
 
 
-## 职业运动员成为疫苗灾难的主要受害者
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2337138/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月12日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2337317/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据美国&lt;True Defender&gt;近日报道，自新冠病毒疫苗在全球推广接种以来，已有大量职业运动员因出现心绞痛、心梗塞等严重疾病而被迫停止其职业生涯甚至是死亡。
-
-最新数据显示，美国至少有769名已接种的职业运动员在比赛中因突发心脏疾病而倒下，其中出现心脏骤停的运动员之平均年龄只有23岁。在欧盟，2021年因突发心脏病而死亡的足球运动员人数比前一年上升了5倍。
-
-报道称，以上不正常现象绝非偶然，许多球队医生已直接将疫苗列为导致运动员病亡的根本原因。此外，众多医学专家此前都曾在当局推出实验性疫苗之前发出过警告：称接种该疫苗会给人体器官带来致命性伤害！
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-59.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-13.png)
 
 
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p15016scca9](https://gettr.com/post/p15016scca9)
+访谈：[https://gettr.com/post/p150s4pd0b1](https://gettr.com/post/p150s4pd0b1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

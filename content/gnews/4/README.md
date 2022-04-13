@@ -2,50 +2,40 @@
 ---
 
 
-## 善恶因果
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2337506/)
+## 拜登指责普京的部队在乌克兰犯下种族灭绝罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337608/)
 
-作者：香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-16.png)
+#### 【雅典娜快讯】紧贴时代脉搏
 
-六六，李子阳、郎咸平，
-因为亲人的遭遇而哀嚎了，
-这些正能量杠杆的大白，
-没想到也有这么不正能量的今天，
-六六作为官方报道武汉疫情的作家，
-赞歌唱的很用心，
-还怼了记录普通人真实生活的方方，
-李子阳不是要写一篇为计划经济正名的大文章吗，
-你的亲人已经亲身经历了，
-你还要写吗？
-郎咸平你罪孽深重，
-你不只是小骂大帮忙，
-你几乎以一己之力阻断了国企改革，
-影响了中国的市场化进程，
-你们的亲人都代你们受罪，
-你们反思了吗，
-钱，谁都喜欢，
-但是有一种叫做光荣的收益，
-还有一种叫狗粮，
-价格合适良心可以出卖，
-但是你卖的时候搭不只是自己的那张脸，
-还有你亲人的命运，
-以为自己煽动起来的尘埃，
-不会落到自己的头上，
-但是抱歉，尘埃只知道因果报应，没你那么懂事。
-——闫小坏儿！
+#### 翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ABC_NEWS.jpg)图片来源：ABC NEWS
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+根据CNA4月13日报道，美国总统拜登周二（4月12日）指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，这是拜登政府首次使用这一术语。
+
+“是的，我称之为种族灭绝，”拜登告诉在爱荷华州与他同行的记者，当被问及他在当天的一次演讲中使用该词时。
+
+拜登表示，最终将由法院来决定俄罗斯在其前苏联邻国的行动是否构成种族灭绝。
+
+在全球的愤怒中，拜登将普京描述为“战争罪犯”，并呼吁他为所谓的暴行接受审判。但是，由于“种族灭绝”一词的严格法律定义和这一指责所带来的沉重影响，美国一直没有按照长期协议使用该词。
+
+根据国际法，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。
+
+根据联合国公约，这包括通过杀戮；严重的身体或精神伤害；施加致命的条件和措施阻止生育，以及其他手段。
+
+种族灭绝被认为是最严重的国际罪行，最早是用来描述纳粹大屠杀的。它于1948年在联合国的一项公约中被确定为国际法下的一项罪行。
+
+资料来源：[Biden accuses Putin’s forces of ‘genocide’ in Ukraine](https://www.channelnewsasia.com/world/biden-accuses-putins-forces-genocide-ukraine-2622651)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

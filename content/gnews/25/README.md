@@ -2,35 +2,31 @@
 ---
 
 
-## 中共国粗鄙的新冠政治宣传
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337051/)
+## 比利时首相接受新中国联邦记者采访并主动要求合影
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2337120/)
 
-##### 作者：加拿大温哥华扬帆农场 -【风云小哥-文莱】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【大纪元时报】4月10日报道，中共国副总理孙春兰日前访问上海时，由于数千万人仍处于新冠大爆发封锁状态，因此有居民在其房内对着孙春兰一行人大呼：没有食物了，人们要饿死了！
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1473.png)图片来源：[theepochtimes.com](https://www.theepochtimes.com/we-are-starving-to-death-shanghai-residents-under-lockdown-shout-at-visiting-vice-premier_4393493.html)
+4月12日，比利时首相亚历山大·德克罗在波兰梅迪卡难民救援中心接受了新中国联邦记者Nicole的采访并主动要求合影留念。对此，郭先生表示，这是外交默认。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-241.jpg)（图片来自GETTR）
 
-报道称，孙春兰自2020年新冠大流行开始以来，一直承担着新冠病毒信使的非官方角色，以向中共国各地的城市传递北京的命令。自今年大流行以来，她一直在新冠爆发的城市进行高调的访问，并且这不是第一次有居民在其封闭的房间里对她大声诉求。此前，她于3月下旬在吉林市内遭到居民要食物的诉求，但却始终没有得到满足。
+波兰当地时间今日上午10点，比利时首相亚历山大·德克罗（Alexander De Croo）在访问波兰梅迪卡难民救援中心时接受了新中国联邦记者Nicole的采访。
 
-据悉，有渠道称上海封锁将至少持续到5月1日，但至于是否将开放城市仍然处于待定状态。上海许多街区都处于混乱状态，有些人无法得到及时的治疗，食物严重匮乏，甚至一些老年人在没有家人看护的家中死亡。总而言之，孙春兰作为信使出行完全是为了央视新闻的维稳宣传。
+在采访过程中，记者Nicole向首相亚历山大·德克罗介绍了新中国联邦消灭邪恶中国共产党的目标以及有关救援乌克兰难民的情况。
 
-上传/发稿 – 【青青】
-撰稿 -【文莱】素材/采编 -【风云小哥】
+亚历山大·德克罗首相回应道，人们需要互相帮助，非常高兴新中国联邦对乌克兰难民施予援手。
 
-原文链接：[‘We’re Starving to Death’: Shanghai Residents Under Lockdown Shout at Visiting Vice Premier (theepochtimes.com)](https://www.theepochtimes.com/we-are-starving-to-death-shanghai-residents-under-lockdown-shout-at-visiting-vice-premier_4393493.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+采访最后，首相亚历山大·德克罗还主动要求和穿戴标有“Take down the Chinese Communist Party（消灭中国共产党）”标识的黄色马甲及帽子的Nicole合影留念。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+对此，新中国联邦创始人郭文贵先生郑重表示，这叫外交默认，这是首位在任首相，在外交上默认新中国联邦的国际地位，这一历史性时刻对新中国联邦的意义非常重大。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+参考链接：
+1.[https://www.gettr.com/post/p14xohiaaac](https://www.gettr.com/post/p14xohiaaac)
+2.[https://www.gettr.com/post/p14y3tsd6bc](https://www.gettr.com/post/p14y3tsd6bc)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-* * *
+总编：老孙
+校对发布：爱放飞
 
  
 

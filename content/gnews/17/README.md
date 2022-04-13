@@ -2,18 +2,12 @@
 ---
 
 
-## 2022年4月13日《樱花快报》：全球感染中共病毒人数时隔2个月再增1亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2337197/)
+## 美国国务院发表声明下令所有非必要上海领馆员工离开
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2337396/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220413快报.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+04/11/2022 新唐人亚太台：美国国务院发表声明下令所有非必要上海领馆员工离开。另外，旅游警示也指出，呼吁要前往中国的美国公民三思而后行。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

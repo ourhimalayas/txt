@@ -2,55 +2,54 @@
 ---
 
 
-## 乌指控俄军对马里乌波尔的军队和平民使用化学武器
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2337177/)
+## 美高管：中共的经济政策将给美国制造商带来重大挑战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2337360/)
 
-翻译：多伦多蓝莲花- 冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16324445831.png)资料图
+美国威斯康星州当地媒体《密尔沃基哨兵报》4月11日报道，俄罗斯和乌克兰之间的战争给威斯康星州的农民和制造商带来了成本增加和供应链问题，但密尔沃基市的商界周一被警告说，中共国可能带来更大的问题。
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《美国新闻网》（(OANN)4月12日报道，**乌克兰指控俄罗斯军队对马里乌波尔的军队和平民使用化学武器**。乌克兰国民警卫队的一支部队周一声称，这些化学品是**通过无人驾驶飞行器投放到该市的平民身上，导致受害者出现了呼吸衰竭**。 **如果这些报道准确的话，将标志着俄罗斯自2月24日开始入侵乌克兰以来的行动升级。**
+威斯康星大学密尔沃基分校政治科学系教授夏尔·霍洛维茨(Shale Horowitz)告诉大密尔沃基委员会，中共国正在发生的事情与俄罗斯正被看到的事情相似，但规模更大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/化学武器1-e1649815052835.jpg)马里乌波尔，一位伤心欲绝的老奶奶颓废的坐在自家的废墟上。（图片来源：推特）
+霍洛维茨说：“中共国的经济规模巨大，相当于美国的规模，而俄罗斯的经济规模大约相当于佛罗里达州的规模。在过去的30年里，中共国已经成为世界工厂，世界各地的供应链都开始依赖中共国。”
 
-五角大楼发言人约翰-柯比表示，国防部无法证实这些报道。柯比在一份声明中说，美国国防部将继续密切监测情况。**美国高度怀疑俄罗斯在乌克兰使用各种武器，包括催泪瓦斯与化学药剂混合物。**
+霍洛维茨解释了“脱钩”，即中共政府正在遵循的一项减少对外国技术依赖的长期战略，最终将不会与西方国家做生意的打算。
 
-此前，美国拜登总统就表示，**如果使用化学武器，可能会引发美国的 “激烈反应”**。
+霍洛维茨说：“他们的目标不是要与美国这样的国家占据平等地位，他们想要占据主导地位。这类目标一直在影响其他国家，现在他们是冲着我们来的，冲着我们的盟友来的，我们必须弄清楚如何调整。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/化学武器3.jpg)马里乌波尔当局表示，一家妇产医院遭遇袭击，造成17人受伤。（图片来源：德国之声）
+赫斯可国际公司(Husco International)是一家为汽车和非高速公路应用提供液压和机电零部件的全球工程设计和制造的公司，该公司的首席执行官奥斯汀·拉米雷斯(Austin Ramirez)说，自从疫情重新开始以来，该公司在上海周边的大型工厂在过去10天里一直关闭。这迫使赫斯可公司对供应链问题进行调整。
 
-**乌克兰总检察长韦内迪克托娃**（Iryna Venediktova）说，她的办公室正在**调查俄罗斯犯下的战争罪指控**。她指出，**俄罗斯入侵乌克兰后的战争至少造成183名儿童死亡，检察长说实际数字可能会更高。**
+拉米雷斯说：“计划很难万无一失，你永远无法预测下一个全球紧急情况。两年前，没有人能够得到口罩，所以本能反应(膝跳反应)就是将供应链本地化。我可以向你保证，下一个紧急情况不会是口罩。”
 
-还宣布，正在**调查超过500名俄罗斯士兵和政治家的犯罪嫌疑人，包括被指控犯有战争罪甚至是反人类罪。**
+霍洛维茨说，乌克兰冲突导致包括石油、天然气、金属和谷物在内的原材料出口突然中断，首先是因为政治上实施的制裁，然后是私营公司的回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/化学武器2.jpg)马里乌波尔，一名俄罗斯士兵走在被摧毁的公寓里。（图片来源：加拿大环球邮报）
+由于中共病毒引发的贸易中断，以及现在的乌克兰战争，各种各样的制成品都出现了短缺。威斯康星州的公司已经从担心没有足够的工人变成了如何处理破裂的供应链。
 
-**乌克兰内政部长顾问安东·格拉什琴科**(Anton Gerashchenko)在Twitter上写道，注意！**化学武器被用来对付马里乌波尔的乌克兰保卫者**。**俄罗斯公然越过所有人类的界限**，而此时乌克兰仍在要求重型武器。
+根据威斯康星州经济发展公司(WEDC)的数据，2021年对俄罗斯的出口额为1.091亿，俄罗斯是威斯康星州第35大出口目的地，位于埃及和哥斯达黎加之间。威斯康星州对乌克兰的出口在2017年达到峰值6050万美元，此后一直呈下降趋势，2021年总额仅为2060万美元。
+
+自2月底俄罗斯入侵乌克兰以来，一些威斯康星州的公司已经停止了在俄罗斯的业务，包括庄臣(SC Johnson)、哈雷戴维森公司(Harley-Davidson)、江森自控(Johnson Controls)和洛克威尔自动化(Rockwell Automation)。
+
+简评：
+
+中共制造并释放新冠病毒，联合邪恶势力在全球推行戕害人生命的毒新冠疫苗，借疫情搞弱美国等西方诸国，中断全球供应链，并唆使俄罗斯进攻乌克兰，最后借助疫苗灾难、供应链危机、能源危机、以及由战争引发的人道灾难推世界进入人类有史以来最黑暗的时刻，而它则借此坐收渔翁之利，推行以其独裁统治为框架的新世界秩序，消灭美元，毁灭西方民主文明制度，这一切都是中共蓄谋已久的计划。
+
+中共声称在寻求多极化的世界秩序，但是，看看中共国内老百姓的生活，就可以判断，中共所谓的寻求多极化世界秩序只是它们的幌子，它独裁统治的本质决定了它要掌控一切、决定一切，当它的多极化梦想得到实现的时候，就是它继续发展其极权制度控制世界的时候。中共国作为全球供应链的核心，它的影响力远大于俄罗斯，而中共视人民生命为草芥的邪恶本质决定了，只要有机会实现它们控制世界的目的，中共政权是不怕被世界孤立的，而美国等西方国家立国之本为尊重人权、尊重法治，面对中共的流氓行径，西方民主国家很难与之直接对抗。这种状况决定了，美国等西方诸国必须尽早考虑与中共脱钩的问题，未雨绸缪，在危机到来之前，做好应对危机的准备。
+
+新闻链接: [https://eu.jsonline.com/story/money/business/2022/04/11/executives-warned-china-could-create-larger-problems-than-russia/7274049001/](https://eu.jsonline.com/story/money/business/2022/04/11/executives-warned-china-could-create-larger-problems-than-russia/7274049001/)
+
+翻译/简评: kkoto(芬兰大灰狼)
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> ATTENTION
-> Chemical weapons are used against Ukrainian defenders in [#Mariupol](https://twitter.com/hashtag/Mariupol?src=hash&amp;ref_src=twsrc%5Etfw)! russia openly crosses all boundaries of humanity and openly declares it, while Ukraine is still asking for heavy weapon [#UkraineUnderAttack](https://twitter.com/hashtag/UkraineUnderAttack?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Anton Gerashchenko (@Gerashchenko\_en) [April 11, 2022](https://twitter.com/Gerashchenko_en/status/1513605496615411715?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-
-乌克兰内政部长顾问安东·格拉什琴科的推特。
-乌克兰周二表示，正在调查一项有关俄罗斯军队投下一种有毒物质的说法。目前尚不清楚这种物质可能是什么。
-
-西方官员警告称，**俄罗斯使用任何化学武器都将使这场已经具有毁灭性的战争严重升级。**
-
-新闻来源链接：
-
-[https://www.oann.com/ukraine-accuses-russia-of-using-chemical-weapons-against-military-civilians-in-mariupol/](https://www.oann.com/ukraine-accuses-russia-of-using-chemical-weapons-against-military-civilians-in-mariupol/)
-
-校对和发布：飞花逐月
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

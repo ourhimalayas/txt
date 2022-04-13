@@ -2,43 +2,30 @@
 ---
 
 
-## 小小尼莫音乐会（七）旅行 &#8211;前期制作花絮-问答
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2337415/)
+## 重返前线后（2）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/2337503/)
 
-**littlenemoconcert**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1724.jpg)
-**1)Which place do you think your friends should visit and why ?  如果让你介绍，你推荐小朋友最应该去的是哪个地方？为什么？**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-13_05-54-58.jpg)
+战事的发展，（暂时）造成了更多的乌克兰回流人员。再次司职路边小帐篷岗位，明显感到送补难民救援物资的组织和个人少多了。
 
-**2)What has been your biggest adventure during the trip so far?   目前为止，你旅行过程中最冒险的经历是什么？**
+领取救援物品的人员也发生了变化，经过观察和验证，断定存在一些专门“敛货”的人，他们大都是中年以上的妇女，也有个别老男人。他们背挎大兜，四处游逛，看到摊位摆出新物品时，会及时赶到，拒绝常用品，专挑“值高”物。这些人相对我染毒前碰到领取救援物品的人简直是天壤之别，那时的人只拿急需的，多给也不要。印象最深的是一个刚会走路的小孩，在我给她一块巧克力后，看到另一侧有块她更喜欢的糖，过去取，然后挪动到我的跟前，向我示意，我可不可以再拿一块……我的眼泪瞬间涌出（我说过，我的泪点低），试图多塞几块给孩子，被旁边泪湿衣襟、看似在焦虑等人的母亲拒绝了……
 
-**3)What is the funniest thing that ever happened to you during your trip?曾经的旅行中，发生在你身上的最有趣的事情是什么？**
+在对那些“敛货”人限量发货的同时，认为有必要向队里反应一下。恰逢Leo文科巡视到小帐篷。开始Leo文科并没理解啥叫“敛货”，在目睹“敛货”现象后，发现那帮人又溜进了大帐篷。我再次看到了Leo文科当机立断、勇于担当的一面，立即吩咐保安，将这些人“请”出了帐篷。是的，若是货源充足，我们也许不会显得“抠门”，当动用法制基金的资金用于应急物品采购时，我们得对法制基金捐款者有更好的交代。
 
-**4)Would you rather discover the jungle on an African Safari or visit tropical island, or the sea on a cruise? why?   如果让你选择，你是想在非洲大草原上探索丛林，还是在探索热带岛屿，或者做邮轮？为什么？**
+在笔者撰写此文时，听到了长岛哥在乌克兰救援行动全体会议上，针对与以色列某个救援组织发生“小隔阂”的劝告和决定。我是在群里知道了点相关事件的大致过程。的确，用大号保温杯无节制地让我们的“咖啡机王”超负荷地运转，任何一个有责任心的当家人都会在第一时间作出本能的反应。对这类事情的处理有不同意见也很正常，大家通过陈述利害、权衡利弊、各抒己见、达成一致是决策过程最佳的程序。是的，实施人道救援的同时，树立新中国联邦人的国际形象尤为重要，我们的宽容与大度恰恰是“形象工程”的一部分。
 
-**5)How does travel and seeing the world inspire you? can you share a short story or a moment?****旅行看世界，从中你受到怎么样的启发？可以和我们分享简短故事或（让你受到启发）的瞬间吗**？
+“敛货”帮与那个以色列救援组织是不同的，后者是在做救援工作，前者是明显的自私自利。在收到上封明确的指示之前，本人，并建议该岗位工作的战友继续对这些人“限量发物”，将有限的救援物品分配给那些真正需要的难民。
 
-**6)Would you rather explore the deepest part of the ocean or outer space? why?如果让你选择，你更愿意探索海底世界还是外星空？为什么（或想寻求什么答案）？**
+相对初来乍到前线时的“紧张工作”状态（3种人属于极限运行），隔日单班白天的工作强度减少了许多，空闲时间也比较充足，有机会与一同从多伦多过来的文聊战友接触了几番。
 
-**7)If you can choose one famous person in the world , whom you want to visit ? why you choose him/her? which question you wanna to ask?如果让你自由选择一位名人（或你心目中的榜样），你选择谁？你为什么选择他/她？你想问什么问题？**
+重返前线后，发现咖啡机区域物品的摆放、整洁度提升了一个档次，Mia当班是这样，文聊当班更是“须眉不让巾帼”，地面清洁几乎覆盖了整个大帐篷，我严重怀疑文聊曾经有过7星级家政服务高管的经历。我们交流了参加“人生能有几回搏”的此次救援行动，文聊也表示了坚持到底的决心。我们探讨了作为新中国联邦人的行为习惯，人们（包括我自己）或多或少残留了中共体制熏陶出来的不良习俗，如何尽早、尽快地加以清除，文贵先生主张的“教育理念”真乃先知的决策。
 
-**8)Would you rather swim with dolphins or go shark cage diving?如果让你选择，你是愿意和海豚一起游泳还是鲨鱼cage 潜水？**
+是的，良好的行为习惯从我做起，从身边做起，从一点一滴做起，从多看别人的优点开始。对不利于“齐心协力”的言行，不作“助推器”、“传话筒”，尽量充当“淡化机”、“灭火器”的角色，把精力放在如何将事情做得更好上。
 
-**9)What is your favorite part about travel? and how do you feel on your return home?旅行中你最喜欢哪一部分？旅行完毕在回家的路上你的感受是什么？**
+培养良好的行为习惯，小到身边的待人接物，大到灭共方略的实施，部门之间的协同作战，战友间的包容与互助等等，新中国联邦人任重而道远。
 
-**10)What’s a funny or strange travel story of yours?  你的旅行经历里，最有趣或最奇怪的故事是什么？**
-
-**11)If you could choose one place to visit anywhere in the world after pandemic , where would you most like to visit? Why?**
-**如果疫情后，你可以自由选择去世界上任何一个国家任何一个地方玩，你最愿意去哪里？为什么**?
-
-**12）Which movie or book has inspired you to travel?  哪一部电影或者哪一本书，激发你想去旅行（比如想去电影或书里描绘的地方去看一看）**
-
-
-
-撰稿编辑发布 简单生活
-
-审核 kardia
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1cc16db2-b89e-4dd1-b991-5a6c5792138f-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3856.jpg)
-** **
+华盛顿DC农场 望七星
+编辑发布 银河
 
  
 
