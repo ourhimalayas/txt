@@ -2,31 +2,20 @@
 ---
 
 
-## 中日财经爆┃中共工商银行通知，暂停个人外汇业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2340416/)
+## 秘翻在线：普京称乌克兰的和平谈判已经走投无路
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340472/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月13日中新经纬报道，工商银行官方发布《关于个人外汇买卖及外币兑换业务相关安排的通告》指出，自北京时间6月12日0时起，工商银行暂停个人外汇买卖业务新客户签约及全部交易品种的开仓交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-260.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg2.jiemian.com%2F101%2Foriginal%2F20211012%2F163404571857724300_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6692885.html&amp;tbnid=NYO20UVmUBqXLM&amp;vet=12ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg..i&amp;docid=f6Jtn8CiFwzEkM&amp;w=640&amp;h=364&amp;q=%E5%B7%A5%E5%95%86%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg)
-早在2021年，多个银行包括工行在内的多家银行宣布暂停或调整个人外汇买卖业务，当时，工商银行发布了《关于调整账户外汇业务的通告》表示，将于8月15日对账户外汇业务规则和交易系统进行调整。自2021年8月15日起，风险承受能力评估结果为进取型(C5)的客户可继续在我行办理账户外汇业务，并对交易起点、持仓限额、业务停办等新增要求。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-25.jpg)图片来源：网络截图
+据韩媒《Edaily》4月13日的消息，据彭博社12日（当地时间）报道，普京总统当天在纪念‘宇宙日’访问远东阿穆尔州沃斯托奇尼宇宙基地时表示：“和平谈判已经走投无路，除了军事作战之外别无选择”。
 
-2021年7月27日，招商银行公告称，“自8月23日起，我行将根据新版协议文本，暂停个人双向外汇买卖业务的新开仓交易功能，客户将无法新发起开仓交易，原有交易平仓不受影响。”还指出个人外汇期权业务即日起停止发售新产品。
+他表示，在实现保护顿巴斯的目标之前，不会停止军事作战。还就俄罗斯军队在乌克兰次要地区屠杀平民一事表示：“正如美国入侵伊拉克的名分是存在大规模杀伤性武器的’假新闻’一样，关于次要问题也是一样的”。这重复了俄罗斯政府的立场，即屠杀平民是乌克兰和西方自导自演。
 
-2021年8月30日，华夏银行发布公告称，将于12月1日起，暂停个人外汇买卖业务，恢复时间另行通知。8月31日，华夏银行又对上述公告进行了澄清声明，声明称，为升级优化技术系统，自12月1日起，华夏银行将暂停办理个人外汇买卖(外汇兑外汇)业务，业务恢复时间将另行通知。
+普京总统对战争会持续到什么时候的问题，说这取决于战斗强度，战斗强度不管用什么方式都与损失有关，而接下来的课题是尽量减少损失，实现目标。
 
-此次工行亦强调，本次该行仅调整个人外汇买卖业务，不涉及个人结售汇业务，个人结售汇业务可正常办理。也就是强调了，外汇不能出汇款出国，只能在本国境内操作，但是实景情况是，持有外币在中共国没是不认可与大流通的货币，仅限于银行和个人之间兑换，既然是外币，兑换后不能汇出境外，又不能在国内流通，这样的政策，也彻底封锁了转移资金的道路，也是中共闭关锁国的开始。
+从普京总统的此次发言可以看出，俄罗斯对战争持续的必然决心，对取得顿巴斯的目的坚定不移。
 
-信息来源：[【工行通告将关闭个人外汇这项业务！】](https://ml.mbd.baidu.com/r/EpSVZpUW2I?f=cp&amp;rs=1651382903&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b31aea2723857e27&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+信息来源：https://www.khan.co.kr/world/world-general/article/202204121555001 责编：Eric Kim
 
  
 
