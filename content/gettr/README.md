@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 3:30 PM (UTC)`
+
+【Ukraine Rescue】04/12/22 Introducing the interview with the Belgian Prime Minister, Nicole says: Mr. Prime Minister seemed to know who we are and why we are here. He was very receptive to the message of exterminating the Communist Party clearly conveyed on our hat and vest, and was not surprised at all, as if he was very familiar with us, which means that the NFSC has long gained the attention and acquiescence of the international community.<br/><br/>【乌克兰救援】04/12/22 妮可介绍采访比利时首相的经过：首相先生好像知道我们是谁，以及我们为什么在这里，他对我们的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，感觉好像对我们非常熟悉一样。说明新中国联邦早就获得了国际社会的关注与默认。
+![img](https://media.gettr.com/group7/getter/2022/04/13/15/1733b6c1-e90e-cb04-158d-c76998b680c8/out.jpg)
+
+---
+
+`@miles 4/13/2022 3:28 PM (UTC)`
+
+【Ukraine Rescue】04/12/22 On the historic moment when the Belgian Prime Minister was the first head of state to be interviewed by the NFSC, Nicole says: "This is just the beginning and many countries will follow suit; it will send a very strong and encouraging message to the 1.4 billion Chinese people who are still inside the belly of the Communist Party beast.<br/><br/>【乌克兰救援】04/12/22 对于比利时首相作为首位国家元首接受了新中国联邦采访这一深具历史意义的时刻，妮可表示：这仅仅是个开始，很多国家都会效仿；这将给仍身处水深火热之中的14亿中国人民传达出一个非常强烈且鼓舞人心的信息。<br/>
+![img](https://media.gettr.com/group44/getter/2022/04/13/15/3f8a69af-422d-f1ba-a5dc-a85b5fbe3f5a/out.jpg)
+
+---
+
 `@miles 4/13/2022 2:56 PM (UTC)`
 
 04.13.2022新中国联邦法治基金乌克兰人道救援行动-波兰Medyka基地突发新闻
@@ -140,22 +154,6 @@
 
 Tuesday, April 12. At 10:30 a.m. local time in Poland, a volunteer from Belgium arrived at the tent of the New Federal State of China and the Rule of Law Foundation to donate relief supplies. The volunteer arrived at the Medica camp at the same time as the Belgian Prime Minister, with whom he also had a conversation. He was interviewed by the New Federal State of China.4月12日，星期二。波兰当地时间上午10:30，一名来自比利时的志愿者来到中国新联邦州和法治基金会的帐篷，捐赠救济物资。这位志愿者到达梅迪卡营地时，恰好与比利时首相同时到达，他还与比利时首相进行了交谈。他接受了中国新联邦州的采访。<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
 ![img](https://media.gettr.com/group45/origin/2022/04/13/04/781aff51-1f9a-01bc-a729-32c8747f00a6/out.jpg)
-
----
-
-`@miles 4/13/2022 3:02 AM (UTC)`
-
-2022-4-12《鸡血王喜币大作战》 第一百六十三集 嘉宾：无双柳薇薇、文空
-![img](https://media.gettr.com/group50/origin/2022/04/10/02/1b337cc6-35b8-9f08-ae6d-69e0175c7077/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/13/2022 1:59 AM (UTC)`
-
-🆘🇺🇦🆘来自乌克兰救援前线Nicole报道:<br/><br/>这个来自以色列的义工用手机拍摄法治基金新中国联邦大帐篷里面的poster、横幅， 说” Very impressive” (印象深刻） 他知道我们是灭共的新中国人， 让我们介绍新中国联邦灭共的使命，用手机录下来，他说会把这段视频带到以色列去传播📣 让更多以色列人知道新 #中国联邦人 在灭共。 最后他用希伯来语表达了他的心声，“爱与和平”！<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
-![img](https://media.gettr.com/group41/origin/2022/04/13/01/963be792-15cd-40c7-b87f-90f9fb1f70df/out.jpg)
 
 ---
 
