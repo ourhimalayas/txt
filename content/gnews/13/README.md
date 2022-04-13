@@ -2,59 +2,37 @@
 ---
 
 
-## 令人不安的视频 中共国因中共病毒而消灭猫狗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2337985/)
+## YouTube在故障中断服务后重新上线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337998/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-61.png)图片来自推特
-据《门户专家网》作者吉姆·霍夫特（Jim Hoft） 2022 年 4 月 9 日报道：
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-中共国正在从猫主人那里将猫带走进行灭绝。这些猫被收集在袋子里并被拖走杀死。
+翻译/编辑：小红帽
 
-这段视频在社交媒体上疯传。目前尚不清楚是什么时候拍摄的，但有许多关于中共国屠杀宠物的报道，其中一些因中共病毒而被遗弃。
-
-[https://twitter.com/gummibear737/status/1512929396264472578?s=20](https://twitter.com/gummibear737/status/1512929396264472578?s=20)
-
-*小熊软糖@gummibear737*
-
-*大多数人对中共国荒谬的中共病毒清零政策对普通民众的影响并不同情*
-
-*但是猫呢？*
-
-*2022年4月9日*
-
-还有狗
-
-[https://twitter.com/gummibear737/status/1512944744321671171?s=20](https://twitter.com/gummibear737/status/1512944744321671171?s=20)
-
-*小熊软糖@gummibear737*
-
-*猫是中共病毒的动物宿主，因此这些猫很可能是从它们的主人那里被带走而被杀掉的*
-
-*中国共产党通过清零得利，所以……*
-
-*2022**年4月9日*
-
-2021年就有报道称中共国因中共病毒杀死宠物猫狗。现在，2022 年，当局再次开始猎杀宠物。
-
-更多视频。
-
-[https://twitter.com/wangjunkaigege/status/1512465399899570181?s=20](https://twitter.com/wangjunkaigege/status/1512465399899570181?s=20)
-
-*王俊凯哥哥**@wangjunkaigege*
-
-*中共政府因为中共病毒杀死了许多狗和猫。大多数是宠物。不管主人是否同意。*
-
-*2022年4月8日*
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2022/04/disturbing-video-china-taking-cats-extermination-due-covid-dogs/](https://www.thegatewaypundit.com/2022/04/disturbing-video-china-taking-cats-extermination-due-covid-dogs/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/YouTube_.jpg)图片来源：The Verge
 
 
+根据CNA4月13日报道，Alphabet公司旗下的YouTube周二（4 月 13 日）表示，已经修复了在线视频共享和社交媒体平台上数千名用户的某些功能中断的问题。
 
+“所有问题都已修复。你现在应该能够登录、在账户之间切换，并在所有服务（YouTube、YouTube TV、YouTube Music、YouTube Studio）和设备上使用账户菜单和导航栏。”YouTube发推文说。
 
+近1万名用户在Downdetector上报告了该服务的问题。该网站通过整理来自多个来源的状态报告来跟踪中断，包括用户在其平台上提交的错误。
 
-翻译：Nick｜校对：JS709｜审核： 编辑发布：闪电训练
+YouTube在中断时发推文表示：“登录、切换帐户和使用导航栏是用户面临的问题之一。”
+
+据故障追踪网站称，用户还报告了访问直播电视平台YouTube TV的问题。
+
+目前影响该平台的问题尚未明确。
+
+资料来源：[YouTube back online after outage disrupts services](https://www.channelnewsasia.com/business/youtube-back-online-after-outage-disrupts-services-2622596)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

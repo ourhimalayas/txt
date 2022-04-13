@@ -2,37 +2,26 @@
 ---
 
 
-## 前驻美大使霍基：澳洲需继续对抗中共霸凌
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2338107/)
+## 中日财经爆|美国SEC再将搜狐等12家中概股列入“预退市”清单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338125/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+撰稿：东京樱花团/peterwong
 
-整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04133.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1505.png)
+美国证劵交易委员会（SEC）4月12日，再将搜狐等12家中概股公司加入“预退市”清单，这是自3月以来第四批被纳入名单的中概股公司。
 
+具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-4月12日，据大纪元报道，澳洲前财长、前驻美国大使乔·霍基抨击中共国是一个恶霸，专注于“维护共产党的权力而不是做正确的事情”。
+SEC声称，上述12家公司提交申辩的截止时间为当地时间5月3日。
 
-霍基在接受澳洲天空新闻的一次专访中透露，在他担任财长期间，澳中关系已陷入紧张，中共国一直试图对澳洲进行经济胁迫。
+根据SEC公布的《外国公司问责法》，被列入「确定摘牌名单」的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。如果「确定摘牌名单」中的公司没有提交或提交的文件不符合SEC要求，理论上将会在披露2023年年报后（2024年初）面临立即退市。
 
-霍基曾在2013年9月至2015年9月期间担任财长，并于2016年1月29日至2020年1月30日期间担任澳洲驻美大使。
+消息来源：[美國SEC再將12家中概股列入「預摘牌名單」　包括搜狐及新濠影匯](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/758516/%E7%BE%8E%E5%9C%8Bsec%E5%86%8D%E5%B0%8712%E5%AE%B6%E4%B8%AD%E6%A6%82%E8%82%A1%E5%88%97%E5%85%A5-%E9%A0%90%E6%91%98%E7%89%8C%E5%90%8D%E5%96%AE-%E5%8C%85%E6%8B%AC%E6%90%9C%E7%8B%90%E5%8F%8A%E6%)
 
-霍基说：“我从14岁起就去了中国，看到了这个人类历史上有着最多人口的国家在生活上的转变……现在问题是，北京已经偏离了轨道。它更专注于维护共产党的权力，而不是为中国的未来做正确的事情。”
-
-“中共国已成为现代的恶霸！”这位前大使强调了与中共国打交道时实力的重要性，指出澳洲需要继续前进，“专注于对抗恶霸”。
-2020年4月，在总理莫里森推动国际社会对在武汉中共病毒大流行展开溯源调查后，中共对澳洲的红酒、大麦、海鲜、木材等产品实施了一系列贸易报复行为。
-霍基多次呼吁澳洲的主要政党必须团结一致，“我们不会屈服于霸凌，因为如果你屈服，中共国将永远不会尊重你”。
-
-新闻链接:[澳洲前财长前驻美大使：中共是现代恶霸](https://www.epochtimes.com/gb/22/4/12/n13709514.htm)
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
