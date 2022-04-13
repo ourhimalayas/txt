@@ -2,36 +2,26 @@
 ---
 
 
-## 美命令非紧急雇员撤离上海
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341219/)
+## 乌克兰拘留亲俄党领导人梅德韦楚克&#8230;与普京关系密切
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341249/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-33.png)
-加拿大CTV新闻4月12日报道，美国务院11日命令非紧急政府雇员及其家属撤离上海。因中共”清零”政策，这个拥有2600万人口大都市的许多居民被强制在家封锁已长达三周以上。
+翻译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-26.jpg)
+乌克兰总统沃洛迪米尔-泽连斯基4月12日通过其社交网站宣布，该国亲俄罗斯的政党——最高会议（议会）第二党的领导人维克多-梅德韦楚克已被拘留。梅德韦楚克因与俄罗斯总统弗拉基米尔-普京关系密切而闻名。 泽连斯基还表示愿意将梅德韦楚克交给俄罗斯，同时换回被俘虏的乌克兰士兵作为交换俘虏的一部分。
 
-被困在家的人们感到日益绝望，不能出门，又无法获得充足的食物，而一旦病毒检测呈阳性，就会被送入脏乱差的大规模隔离中心。目前上海总感染人数已超过20万。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1606-edited.png)图片来源：读卖新闻
 
-美国务院表示，周一“命令”撤离是对上周”授权“撤离的升级，即强制撤离上海，而不是任其自行决定。该态势变化反映了美国政府对当前形势的评估。
+泽连斯基还公布了一张梅德韦楚克穿着迷彩服、戴着手铐的照片。 梅德韦楚克在去年5月被指控犯有叛国罪和其他罪行，并被软禁，但在俄罗斯发动对乌克兰的入侵后，他已在混乱中逃离。
 
-国务院建议美国人重新考虑去中国旅行，鉴于当地法律和防疫措施的滥用，特别是”父母和孩子被分离 “的风险。北京对上周的自愿离境则做出了愤怒的回应。
+泽连斯基先生赞扬了情报和安全当局的工作，说他们开展了一次特别行动。 但他没有详细说明拘捕的情况。
 
-虽然中共拒绝将强硬防疫政策同政治挂钩，但习近平要求社会稳定高于一切。据悉，他将在今年党代会上开展第三任任期。
+参考链接：[ウクライナ、親ロシア派党首メドベドチュク氏を拘束…プーチン氏と親密な関係：写真 : 読売新聞オンライン (yomiuri.co.jp)](https://www.yomiuri.co.jp/pluralphoto/20220413-OYT1I50105/)
 
-原文链接：[https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244](https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244)
-
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 自由法兰西🇫🇷
-素材/采编 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-21.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
