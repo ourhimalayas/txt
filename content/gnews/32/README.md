@@ -2,37 +2,25 @@
 ---
 
 
-## 从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2336958/)
+## 【粤语配音】2022年4月12日：今天是新中国联邦开天辟地重要的一天
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2337092/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情-1.png)
-据[**粽呀么粽**](https://weibo.com/haeni0404)[2022年4月12日 22:08](https://weibo.com/1950920381/Lo9dBCK5g?from=page_1005051950920381_profile&amp;wvr=6&amp;mod=weibotime) 来自 [抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9)
+紐約香草山-香港部
 
-[抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9) [@鋼筆様子](https://weibo.com/n/%E9%8B%BC%E7%AD%86%E6%A7%98%E5%AD%90?from=feed&amp;loc=at) 邻居为杨浦区殷行街道城市名园居民，原本身体健康，4月12日白天突发疾病瘫痪在床，下午打120急救电话一直到晚上都还在排队（从600号到200号），并且120要求家属自行先和医院联系好接收事宜，到了傍晚老人话都没法说了，跟她对话也没什么意识，居委加急开了证明，楼里其他邻居帮忙开车送出去了，但病人辗转杨浦四家医院（长海，杨中心，安图，新华）都被拒收，阳楼对口的安图医院回复需要排队2天等120接，自行送的不收治，目前病人就只能躺在家里等着！寻求转发寻求帮助！病人家属联系电话13482169051 [L粽呀么粽的微博视频](http://t.cn/A66m9chd)
+4月12号，昨天和今天，从任何角度，在过去的这24小时，对我们新中国联邦人来讲都是至关重要，无论欧盟和美国正在进行的，对香港所有的贸易地位经济地位重新定义，将香港的金融市场，踢出国际所有的金融系统之外，率先要对香港政府人员进行大规模的类似于俄罗斯的制裁，包括在上海，从过去的授权撤离到命令撤离，这是中美历史上第一次。
 
-这只是个案，打开新浪微博的[抗疫求助](https://weibo.com/p/10080889902a1e60cd81187b008223d86da809/super_index)超话，我们可以看到一条一条的求助信息，每条求助信息背后都是一条鲜活的生命，每条求助信息背后都是无助者心碎的等待，当一个本应提供最基本的公民救助公共服务的政府以各种理由对急需救助者设置障碍的时候，这个政府就失去了存在的根本意义，这个政府在杀人，这里的人民在沉默，让我们共同面对，让我们一起要么在沉默中死去，要么在沉默中暴发一起站出来推翻这个杀人的政府。
+我们新中国联邦人，最早告诉中国人、世界人民、美国政府的授权撤离和命令撤离，接下来还有多少国家做你们知道吗？走着看，一定会让它比北朝鲜还惨，北朝鲜一直还有个国家外交呢，特别中国大使馆，是吧，未来中国没有外交，只有内交，自己和自己交，中南坑东门和西门交，叫中内坑自交。
 
-撰稿：喜马拉雅的肉夹馍；
+经济脱钩、外交脱钩、贸易脱钩，文化当然脱钩，接下来是什么？兄弟姐妹们想想，军事上的对抗、南海、东海，特别是现在又多了一个东欧，东欧西欧最后联合起来对抗中国共产党的习近平、习太阳、普大帝，中国人在海外你的钱、你的私生子女，就这么好好的过吗？可以吗？能吗？相信了爆料革命和文贵，没有打疫苗，你得什么好处了你知道，没打的，你受什么害你知道，加入新中国联邦又意味着什么？
+世界上第一個在任的比利時的總理
 
-审核：喜马拉雅的馍夹肉；
+今天在乌克兰前线是新中国联邦建国以来，第一次，世界上第一个在任的比利时的总理，就相当于总统，比利时的总理是全权，而且是很多联合国、WTO的所在地，主动走到乌克兰，新中国联邦的帐篷前面，指着Nicole,穿着Take Down the Chinese Communist Party，就是消灭中国共产党的，过来跟我照相，接受采访，主动过去，带着保镖，带着整个自己的护卫部队，这意味着什么？
 
-校对：Maarago；
+比利时现任总理权力有多大？今天早上走过去我们的现场，这就是为什么前线要有帐蓬、最大的帐蓬，为什么要有咖啡？为什么要维护新中国联邦人形象？为什么都要讲英文？为什么我一再说人要住在前线，结果今天一喊，马上人就过去了，人家总理过来了，人家采访，你戴着那个Take Down Chinese Communist Party ，过来跟我照相，这叫什么？这叫外交默认，这叫外交上的默认！就是我外交上默认你消灭中国共产党，我承认！来，跟我照相，这对新中国联邦人的意义太大了！
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+而就在今天，习近平内焦外困，继威胁了南希·佩洛西不去台湾，现在南希·佩洛西可能随时去，绿帽子王你不是说，只要美国任何一个美国军人踏上台湾，任何一个军舰，就会销毁台湾吗？把老美打死吗？美国那么多外交官员、外交飞机去台湾，你也不敢吱声了，绿帽子王，南希佩洛西去你敢动吗？香港经济要崩塌，你还能活下去吗？上海现在一个馍打一次炮的事情，已经全国人民都知道了，长春一碗方便面，睡一家三口的事情，全中国人民、全世界都知道了，现在到北京了，是吗？北京市怎么办呢？一根火腿肠睡全家？还是一箱火腿肠睡全家？共产党你完了！天意！天意！谁也挡不住！
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+当有一天喜币成为全世界最早的数字法币的时候，人民币在国外成为恐怖分子的钱，谁动用、使用人民币和共产党交易，就成为犯罪币的时候，你就知道新中国联邦的厉害了，你就懂了。
 
  
 

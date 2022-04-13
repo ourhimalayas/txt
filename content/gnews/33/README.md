@@ -2,29 +2,24 @@
 ---
 
 
-## 上海等城市的封锁加剧对经济的威胁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336817/)
+## 中共国粗鄙的新冠政治宣传
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337051/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译 重生之鹰 】
+##### 作者：加拿大温哥华扬帆农场 -【风云小哥-文莱】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据CTV NEWS 4月8日报道：目前，中国坚定不移地坚持“清零政策”，通过封锁上海等大城市来遏制新冠肺炎疫情，这可能对其庞大的经济构成严重冲击，给全球供应链带来更大压力，并进一步加剧通货膨胀。
+据【大纪元时报】4月10日报道，中共国副总理孙春兰日前访问上海时，由于数千万人仍处于新冠大爆发封锁状态，因此有居民在其房内对着孙春兰一行人大呼：没有食物了，人们要饿死了！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1464.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1473.png)图片来源：[theepochtimes.com](https://www.theepochtimes.com/we-are-starving-to-death-shanghai-residents-under-lockdown-shout-at-visiting-vice-premier_4393493.html)
 
 
-上海是中国主要的金融中心，它的一些最大的港口和机场已经被封锁了12天，而且没有结束的迹象。小企业受到重创，商店和餐馆被迫关闭。特斯拉以及许多中国和台湾制造商都不清楚何时能重启工厂。与此同时，港口延误情况越来越严重，航空货运价格飙升，给全球贸易带来了更大的压力。
+报道称，孙春兰自2020年新冠大流行开始以来，一直承担着新冠病毒信使的非官方角色，以向中共国各地的城市传递北京的命令。自今年大流行以来，她一直在新冠爆发的城市进行高调的访问，并且这不是第一次有居民在其封闭的房间里对她大声诉求。此前，她于3月下旬在吉林市内遭到居民要食物的诉求，但却始终没有得到满足。
 
-其它23个城市自上月以来也实施了全面或部分封锁。这些城市约有1.93亿居民，占中国人口总数的13.6%，贡献了23万亿元(3.6万亿美元)的GDP，占中国经济的22%。“由于封锁，在这些地区流动性已经被明显限制，对经济造成的损害正在加大，并不可避免的对其它国家和地区产生溢出效应。
-
-为此，世界银行(World Bank)周二下调了对中国2022年经济增长的预测，预计这个全球第二大经济体今年的经济增速将达到5%，远低于去年的8.1%。这也低于中国5.5%左右的官方目标。
-
-原文链接：
-
-[https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+据悉，有渠道称上海封锁将至少持续到5月1日，但至于是否将开放城市仍然处于待定状态。上海许多街区都处于混乱状态，有些人无法得到及时的治疗，食物严重匮乏，甚至一些老年人在没有家人看护的家中死亡。总而言之，孙春兰作为信使出行完全是为了央视新闻的维稳宣传。
 
 上传/发稿 – 【青青】
-撰稿/翻译 -【重生之鹰】
-素材/采编 -【重生之鹰】
+撰稿 -【文莱】素材/采编 -【风云小哥】
+
+原文链接：[‘We’re Starving to Death’: Shanghai Residents Under Lockdown Shout at Visiting Vice Premier (theepochtimes.com)](https://www.theepochtimes.com/we-are-starving-to-death-shanghai-residents-under-lockdown-shout-at-visiting-vice-premier_4393493.html)
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
@@ -35,6 +30,8 @@
 - [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+* * *
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

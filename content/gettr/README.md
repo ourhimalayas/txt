@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 4:29 AM (UTC)`
+
+Tuesday, April 12. At 10:30 a.m. local time in Poland, a volunteer from Belgium arrived at the tent of the New Federal State of China and the Rule of Law Foundation to donate relief supplies. The volunteer arrived at the Medica camp at the same time as the Belgian Prime Minister, with whom he also had a conversation. He was interviewed by the New Federal State of China.4月12日，星期二。波兰当地时间上午10:30，一名来自比利时的志愿者来到中国新联邦州和法治基金会的帐篷，捐赠救济物资。这位志愿者到达梅迪卡营地时，恰好与比利时首相同时到达，他还与比利时首相进行了交谈。他接受了中国新联邦州的采访。<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
+![img](https://media.gettr.com/group45/origin/2022/04/13/04/781aff51-1f9a-01bc-a729-32c8747f00a6/out.jpg)
+
+---
+
 `@miles 4/13/2022 3:02 AM (UTC)`
 
 2022-4-12《鸡血王喜币大作战》 第一百六十三集 嘉宾：无双柳薇薇、文空
@@ -163,13 +170,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 4/12/2022 Miles Guo’s GETTR: What happened in the past 24 hours? The European Union and the United States will decouple from Hong Kong’s financial system and impose strict sanctions upon Hong Kong government officials; the Chinese Communist Party will be severed from all diplomatic ties, and will only be able to play internal politics; the New Federal State of China is the future of all Chinese.<br/><br/>4/12/2022 文贵盖特：过去24小时发生了什么？欧盟和美国要对香港金融脱钩、对香港官员进行严厉制裁；中共未来不会再有外交了，只有内交；新中国联邦才是所有华人的未来<br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/12/22/0d6bd49a-7e01-8098-e533-795173ecb5ec/out.jpg)
-
----
-
-`@miles 4/12/2022 10:49 PM (UTC)`
-
-4/12/2022 Miles Guo’s GETTR: Nancy Pelosi could visit Taiwan at any time. Will the tragedy of exchanging sex for food in Shanghai and Changchun repeat itself in Beijing? The CCP is finished. Some South American countries are standing with the New Federal State of China. Soon we will see the Himalaya Coin become the earliest and the most popular digital currency to be recognized as a legal tender, while the Renminbi will become the equivalent of the currency used for committing crimes!<br/><br/>4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！<br/>
-![img](https://media.gettr.com/group24/getter/2022/04/12/22/5996fcf5-6f87-2159-6768-1341988a7f8d/out.jpg)
 
 ---
 

@@ -2,29 +2,39 @@
 ---
 
 
-## 逃避美国关税 中共国铝业大亨被罚18亿美元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2337474/)
+## 拜登指责普京的部队在乌克兰犯下种族灭绝罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337608/)
 
-![坐落于美国华盛顿特区的美国司法部总部（2022年2约5日）。](https://gdb.voanews.com/858927d8-665a-41d0-aa86-69f96fdec52f_w1023_r1_s.jpg)座落于美国华盛顿特区的美国司法部总部（2022年2月5日）。
-据美国之音4月13日报道，美国联邦法官克劳斯纳裁定与中共国亿万富豪刘忠田有关联的Perfectus铝业公司及其一个子公司，以及四家仓储公司五年缓刑，并支付18.3亿美元的罚金。这些公司将铝型材焊接在一起作为托盘出口，以规避美国的关税。去年一个联邦陪审团认定这六家公司犯有共谋、欺诈和其他罪行。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-美国从2011年开始对从中共国进口的某种类型铝材征收最高400%的反倾销和反补贴关税，而托盘等铝成品不受影响。从2011年到2014年，刘忠田控制的公司从中共国进口220万个铝制托盘储存在南加州，旨在抬高忠旺港股的业绩。被告通过空壳公司向刘忠田铝业公司洗钱数亿美元。克劳斯纳法官在3月24日没收扣押的铝材估值约为7000万美元。此外，2019年陪审团起诉的其余案件，刘忠田也牵涉其中。
+#### 翻译/编辑：小红帽
 
-中共以假骗偷治国，上行下效，中共国商人也把这一套用到了全世界。如果正常纳税，中共国没有商人可以生存，但美国是法治社会，人人需要依法纳税。中共国商人在美国可以假骗偷一时，不可能假骗偷一世。当美国开始追究的时候，就是骗子们接受制裁、赔偿损失并最终被赶出美国的时候。
-
-新闻参考链接：[https://www.voachinese.com/a/china-aluminum-tax-justice-zhongwang-20220412/6526332.html](https://www.voachinese.com/a/china-aluminum-tax-justice-zhongwang-20220412/6526332.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ABC_NEWS.jpg)图片来源：ABC NEWS
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据CNA4月13日报道，美国总统拜登周二（4月12日）指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，这是拜登政府首次使用这一术语。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+“是的，我称之为种族灭绝，”拜登告诉在爱荷华州与他同行的记者，当被问及他在当天的一次演讲中使用该词时。
+
+拜登表示，最终将由法院来决定俄罗斯在其前苏联邻国的行动是否构成种族灭绝。
+
+在全球的愤怒中，拜登将普京描述为“战争罪犯”，并呼吁他为所谓的暴行接受审判。但是，由于“种族灭绝”一词的严格法律定义和这一指责所带来的沉重影响，美国一直没有按照长期协议使用该词。
+
+根据国际法，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。
+
+根据联合国公约，这包括通过杀戮；严重的身体或精神伤害；施加致命的条件和措施阻止生育，以及其他手段。
+
+种族灭绝被认为是最严重的国际罪行，最早是用来描述纳粹大屠杀的。它于1948年在联合国的一项公约中被确定为国际法下的一项罪行。
+
+资料来源：[Biden accuses Putin’s forces of ‘genocide’ in Ukraine](https://www.channelnewsasia.com/world/biden-accuses-putins-forces-genocide-ukraine-2622651)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,78 +2,33 @@
 ---
 
 
-## 英国首相鲍里斯·约翰逊表示，英国和德国对普京的入侵感到震惊
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337632/)
+## 2022澳洲联邦预算：赢家和输家（五）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2337875/)
 
-Boris Johnson (Prime Minister of the UK)
-鲍里斯·约翰逊（英国首相）
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-2.jpg)图片来自网络
+赢家：福利领取者
 
-it’s pleasure to welcome you Olaf to Downing Street
-很高兴欢迎奥拉夫来到唐宁街
+养老金领取者、护理人员、退伍军人、求职者和其他符合条件的优惠卡持有人，以及退休人员，将一次性获得 250 澳元现金。该现金用于支付生活费用，在未来几周会惠及约 600 万人。
 
-The friendship between our two countries, between Britain and Germany
-自从普京对乌克兰发起野蛮侵略以来
+领取 JobSeeker 补助的人每周收到的金额没有变化。不过，去年年初，政府已经把每周支付金额提高了 25 澳元，预估四年内将花费 90 亿澳元。
 
-has become even more vital since Putin launched his barbaric onslaught against Ukraine
-我们两国英国和德国之间的友谊，这一点变得更加重要
+不赢不输：环境
 
-bringing war into our continent
-因为俄罗斯将战争带到了欧洲
+除了大堡礁项目巨额支出外，预算中还有其他一些与环境相关的政策。
 
-I know that Britain and Germany share exactly the same sense of horror
-我知道英国和德国有着完全相同的恐惧感
+其中包括在三年内投入 1 亿澳元，用于支持社区的环境保护项目。在未来三年内花费 2030 万澳元种植树木以纪念女王登基70周年。
 
-and revulsion at the brutality being unleashed
-以及对施行的暴行的反感
+另外的政策包括五年内计划 5300 万澳元用于考拉保护和保护，  2680 万澳元用于管理和保护英联邦国家公园。
 
-including the unconscionable bombing of refugees fleeing their homes this mornin
-包括今天早上对逃离家园的难民进行非人道的轰炸
+参考资料：
 
-Germany and the UK also share exactly the same conviction that Putin must fall in Ukraine
-德国和英国也有着完全相同的信念，即普京必须在乌克兰上失败
+[2022年联邦预算：赢家和输家](https://www.abc.net.au/news/2022-03-29/federal-budget-2022-winners-and-losers/100914858)
 
-which is why we are working together in the G7 to toughen our sanctions
-这就是我们在G7中共同努力加强实施制裁的原因
+*审核：云彩*
 
-and target every pillar of the Russian economy
-并瞄准俄罗斯经济的每一个支柱
-
-in order to cut off funds from his war machine
-以切断他的战争机器的资金
-
-We face the new reality created by Putin’s invasion
-我们面对普京入侵造成的新现实
-
-I know that British and Germany will meet this challenge together
-我知道英国和德国将作为民主和自由的
-
-as passionate advocates of democracy and freedom
-热情倡导者和乌克兰的忠实朋友
-
-and both committed friends of Ukraine
-共同迎接这一挑战
-
-原视频链接: [https://twitter.com/borisjohnson/status/1512695924723789828?s=24](https://twitter.com/borisjohnson/status/1512695924723789828?s=24)
-
-Date:04/10/2022
-原视频标题: UK Prime Minister Boris Johnson said that Britain and Germany are horrified by Putin’s invasion and have agreed that our two countries must go fur-ther to help Ukraine
-英国首相鲍里斯·约翰逊表示，英国和德国对普京的入侵感到震惊，并对两国必须进一步帮助乌克兰而达成一致
-原视频日期：2022/04/10
-原视频链接https://twitter.com/borisjohnson/status/1512695924723789828?s=24
-任务编号：KE476（4220）
-视频时间段 : 0:00-1:24
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：云彩*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
