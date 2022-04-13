@@ -16,6 +16,8 @@
 ---
 ## 頁面 37/41 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
 
+[郭文贵先生01/31/18郭媒体讲话](/content/2018/04/20180418-5498166230846343860.md)
+
 [郭先生01/30/18郭媒体的3段讲话](/content/2018/04/20180418-6787859769038780160.md)
 
 [翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
@@ -63,8 +65,6 @@
 [文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/2018/04/20180418-662686657760766543.md)
 
 [文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/content/2018/04/20180418-8844190551130915159.md)
-
-[2017.11.23文贵感恩节报平安视频](/content/2018/04/20180418-3850717849203274795.md)
 
 
 ## 頁面 37/41 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)

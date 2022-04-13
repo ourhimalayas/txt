@@ -16,6 +16,8 @@
 ---
 ## 頁面 19/41 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [41](/content/README-41.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/content/2020/01/20200128-4895858785511453067.md)
+
 [文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/2020/01/20200127-3403056014280027444.md)
 
 [文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/2020/01/20200127-1065691289737851203.md)
@@ -63,8 +65,6 @@
 [文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/content/2020/01/20200104-4925314405005648052.md)
 
 [文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/content/2020/01/20200102-5236405611062477381.md)
-
-[文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/2020/01/20200102-3330652484007682662.md)
 
 
 ## 頁面 19/41 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [41](/content/README-41.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

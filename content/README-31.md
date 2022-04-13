@@ -16,6 +16,8 @@
 ---
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/content/2018/11/20181116-2341303954846594943.md)
+
 [文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/content/2018/11/20181115-2654226496006898669.md)
 
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/content/2018/11/20181114-7269018934518411869.md)
@@ -63,8 +65,6 @@
 [2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/content/2018/10/20181010-3706069488897098623.md)
 
 [文字版：20181004 郭先生报平安直播 希望成功快点到来](/content/2018/10/20181005-2805451400972075742.md)
-
-[美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/content/2018/10/20181004-6010597625419921233.md)
 
 
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)

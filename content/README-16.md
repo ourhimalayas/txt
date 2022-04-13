@@ -16,6 +16,8 @@
 ---
 ## 頁面 16/41 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [41](/content/README-41.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版:郭先生5月9日GTV直播连线魔女Peace](/content/2020/05/20200514-7037618968169156768.md)
+
 [文字版：5月8日郭先生GTV直播连线挺郭小妹](/content/2020/05/20200512-5842185723258318346.md)
 
 [文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
@@ -63,8 +65,6 @@
 [文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/2020/04/20200410-8094198208001085988.md)
 
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/2020/04/20200410-1671828290392113200.md)
-
-[文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/2020/04/20200408-8436401289033941417.md)
 
 
 ## 頁面 16/41 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [41](/content/README-41.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,8 @@
 ---
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/2019/09/20190904-5593137024471595991.md)
+
 [文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/2019/09/20190904-6068893514694750692.md)
 
 [文字版：2019年9月1日文贵与班农先生直播](/content/2019/09/20190903-5392054395112197573.md)
@@ -63,8 +65,6 @@
 [文字版：2019年8月3日关注香港即将发生的大事](/content/2019/08/20190805-62375152236056349.md)
 
 [文字版：郭先生2019年8月1日緊急直播](/content/2019/08/20190805-195928358226764282.md)
-
-[文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/2019/08/20190804-3048854052865103791.md)
 
 
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)

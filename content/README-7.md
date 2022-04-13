@@ -16,6 +16,8 @@
 ---
 ## 頁面 7/41 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [41](/content/README-41.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
 
+[2021年9月18日郭文贵先生试驾摩托车盖特全文字版](/content/2021/09/20210918-1560856.md)
+
 [2021年9月17日郭文贵先生直播全文字版](/content/2021/09/20210917-1540953.md)
 
 [2021年9月16日郭文贵先生看亡腚缸住过的房子盖特全文字版](/content/2021/09/20210916-1561620.md)
@@ -63,8 +65,6 @@
 [全文字版2021年8月29日郭文贵先生G-TV直播](/content/2021/08/20210829-1499593.md)
 
 [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/content/2021/08/20210829-1566866.md)
-
-[全文字版2021年8月28日郭文贵先生G-TV直播](/content/2021/08/20210828-1497755.md)
 
 
 ## 頁面 7/41 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [41](/content/README-41.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)

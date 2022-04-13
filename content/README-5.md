@@ -16,6 +16,8 @@
 ---
 ## 頁面 5/41 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [41](/content/README-41.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[2021年11月28日郭文贵先生直播全文字版](/content/2021/11/20211128-1704760.md)
+
 [郭文贵先生2021年11月27日盖特视频（1分28秒）全文字版](/content/2021/11/20211127-1701687.md)
 
 [2021年11月26日郭文贵先生直播全文字版](/content/2021/11/20211126-1701017.md)
@@ -63,8 +65,6 @@
 [2021年10月26日郭文贵先生车上直播全文字版](/content/2021/10/20211026-1620416.md)
 
 [郭文贵先生2021年10月26日盖特视频（9分14秒）全文字版](/content/2021/10/20211026-1620104.md)
-
-[2021年10月24日郭文贵先生直播全文字版](/content/2021/10/20211024-1617154.md)
 
 
 ## 頁面 5/41 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [41](/content/README-41.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
