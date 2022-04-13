@@ -2,59 +2,24 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.13)–辉瑞疫苗对身体的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339472/)
+## 美国奶粉供不应求
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2339529/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 编译 意大利达芬奇农场 小白鸽
 
-整理/编辑：禄森
+据来自纽约的报道，美国的奶粉正在供不应求，超市货架上将近短缺30%的婴儿奶粉。据美国媒体报道，一些零售商已经开始限制数量以满足需求。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-13-alle-12.26.59.png)图片来源：Imolaoggi.it
+关于奶粉“危机”，脱了生产和分销链中的问题外，负责食品和药品鉴管的联邦机构FDA最近的呼吁也称，一些品牌由于细菌感染甚至导致两名婴儿死亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
+据负责公共卫生事务的联邦机构疾病控制和预防中心CDC统计，2017年只有25%的孩子是由母乳喂养。
 
+与此同时，美国正准备宣布再向乌克兰提供数亿美元的军事援助。美国有线电视新闻网援引一些消息人士的话说，这个数字将在7亿美元左右，拜登自上任以来分配给该国的资金将增加到30亿美元。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-**博主: Everdene**
-
-**辉瑞第三针副作用**
-
-辉瑞第三针booster
-
-昨天中午打完第三针，从4点睡到6点。然后又从8点睡到第二天早上10点
-
-今天吃完午饭试图写作业，但是脑子昏昏沉沉，心慌的很，现在躺在床上，又控制不住想睡过去…..然后感觉有点心慌
-
-除了胳膊痛，其他没有症状，这样正常吗？
-
-**#****辉瑞第三针 #辉瑞疫苗副作用**
-
-**作者发布于2022-4-7**
-
-**精选评论**
-
-Zhouhong评论:
-
-有发烧了吗？打第二针时高烧了一天，所以现在第三针有点犹豫了
-
-一颗肉丸评论:
-
-我也是犯困胳膊疼
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1548.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1549.png)图片来源：小红书
 参考链接：
 
-[奢睡，头昏，心慌，胳膊痛](https://www.xiaohongshu.com/discovery/item/624eedec000000002103a9b9?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729553)
+[https://www.imolaoggi.it/2022/04/13/usa-scarseggia-il-latte-in-polvere/](https://www.imolaoggi.it/2022/04/13/usa-scarseggia-il-latte-in-polvere/)
 
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑、上传：Xiao baige
 
  
 

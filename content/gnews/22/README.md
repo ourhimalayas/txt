@@ -2,31 +2,31 @@
 ---
 
 
-## 【秘翻北美时评】备战备灾 台湾军方发布第一本战争生存手册
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2339233/)
+## 今日盖特大V推荐 — 路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339279/)
 
-**By:[秘翻北美时评](https://gettr.com/post/p150dwu76f4)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1529.png)
+盖特链接：[** https://gettr.com/user/luislacombereal**](https://gettr.com/user/luislacombereal)
 
-***[2022-04-13](https://gettr.com/post/p150dwu76f4)***
+**路易斯·埃内斯托·拉科姆自述：**
 
-**今日主题：**
+记者、主持人和作家。 建议访问我的网站并了解我的社区
+**[\[email protected\]](/cdn-cgi/l/email-protection#2945484a46444b4c694b5b485a4045444c4d404841465c5a4c074a4644)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1530.png)图片来源：网络
+**路易斯·埃内斯托·拉科姆简介：**
 
-**1.秘翻组4月12日盖文“比利时总理现身新中国联邦救援中心 并接受采访” **
+路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe Heilborn，生于1966年8月2日）是巴西记者、主持人、作家和YouTuber。
 
-**2. 备战备灾 台湾军方发布第一本战争生存手册 **
+路易斯·埃内斯托·拉科姆先后主持了“夜晚·曼切特河、环球新闻、早安巴西、空中观点”等节目；著有三部“十四行诗集”和一部小说。
 
-**3. 马里乌波尔市长称 该地区超过一万名平民死亡 **
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**4. 斯里兰卡正式宣布无法偿债外债 **
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-**5.肇源县农贸商户因防疫隔离损失惨重 **
-
-🔗**链接：**[https://gettr.com/post/p150dwu76f4](https://gettr.com/post/p150dwu76f4)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

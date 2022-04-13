@@ -2,30 +2,31 @@
 ---
 
 
-## 今日盖特大V推荐 — 巴比伦蜜蜂（The Babylon Bee）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339201/)
+## 【秘翻北美时评】备战备灾 台湾军方发布第一本战争生存手册
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2339233/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1527.png)
-盖特链接： [**https://gettr.com/user/thebabylonbee**](https://gettr.com/user/thebabylonbee)
+**By:[秘翻北美时评](https://gettr.com/post/p150dwu76f4)**
 
-巴比伦蜜蜂自述：
+***[2022-04-13](https://gettr.com/post/p150dwu76f4)***
 
-您可以信任的假新闻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1528.png)图片来源：网络
-**巴比伦蜜蜂简介：**
+**今日主题：**
 
-《巴比伦蜜蜂》（Babylon Bee）是一个保守的基督教新闻讽刺网站，发布有关宗教、政治、时事和公众人物等主题的讽刺文章。
+**1.秘翻组4月12日盖文“比利时总理现身新中国联邦救援中心 并接受采访” **
 
-2021年1月，《华盛顿时报》称，《巴比伦蜜蜂》每月的页面浏览量超过2000万，拥有超过20,000名付费订阅者，并拥有一个856,000名关注者的Twitter帐户。2022年1月，《经济学人》称《巴比伦蜜蜂》“在鼎盛时期每月吸引多达2500万读者”。并且，该网站所有者兼首席执行官塞思·狄龙已经将《巴比伦蜜蜂》变成了“继《福克斯新闻》之后最受欢迎的保守网站之一”。
+**2. 备战备灾 台湾军方发布第一本战争生存手册 **
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**3. 马里乌波尔市长称 该地区超过一万名平民死亡 **
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**4. 斯里兰卡正式宣布无法偿债外债 **
 
+**5.肇源县农贸商户因防疫隔离损失惨重 **
+
+🔗**链接：**[https://gettr.com/post/p150dwu76f4](https://gettr.com/post/p150dwu76f4)
+
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
