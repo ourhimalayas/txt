@@ -2,39 +2,35 @@
 ---
 
 
-## 上海等城市的封锁加剧对经济的威胁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336817/)
+## 樱花FM┃日本政府将削减俄罗斯煤炭进口 以抗议俄军大规模残杀乌克兰平民
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2336825/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译 重生之鹰 】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据CTV NEWS 4月8日报道：目前，中国坚定不移地坚持“清零政策”，通过封锁上海等大城市来遏制新冠肺炎疫情，这可能对其庞大的经济构成严重冲击，给全球供应链带来更大压力，并进一步加剧通货膨胀。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日本政府将削减俄罗斯煤炭进口-以抗议俄军大规模残杀乌克兰平民-1.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1464.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+日本政府已决定对俄罗斯实施新的制裁措施。不但会逐步减少从俄罗斯的进口煤炭，并正在考虑驱逐部分俄罗斯外交官。
 
+在七国集团领导人7日发表声明，包括禁止从俄罗斯进口煤炭后，日本政府也决定将分阶段减少从俄罗斯的进口煤炭。
 
-上海是中国主要的金融中心，它的一些最大的港口和机场已经被封锁了12天，而且没有结束的迹象。小企业受到重创，商店和餐馆被迫关闭。特斯拉以及许多中国和台湾制造商都不清楚何时能重启工厂。与此同时，港口延误情况越来越严重，航空货运价格飙升，给全球贸易带来了更大的压力。
+经济产业大臣萩生田表示，“我们希望减少从俄罗斯的进口煤炭，最终的目标是实现不进口。并表示政府打算通过寻找替代俄罗斯的煤炭进口国等来减缓对日常生活和工业带来的影响。除此之外，政府正在考虑驱逐部分俄罗斯外交官。
 
-其它23个城市自上月以来也实施了全面或部分封锁。这些城市约有1.93亿居民，占中国人口总数的13.6%，贡献了23万亿元(3.6万亿美元)的GDP，占中国经济的22%。“由于封锁，在这些地区流动性已经被明显限制，对经济造成的损害正在加大，并不可避免的对其它国家和地区产生溢出效应。
+尽管日本最初对驱逐外交官持谨慎态度，但政府内部越来越多的人认为，大规模屠杀平民的事件，已不能再维持现状。
 
-为此，世界银行(World Bank)周二下调了对中国2022年经济增长的预测，预计这个全球第二大经济体今年的经济增速将达到5%，远低于去年的8.1%。这也低于中国5.5%左右的官方目标。
+岸田首相将于4月8日晚举行新闻发布会，并亲自解释这些制裁政策。
 
-原文链接：
+文字版原文：
+[中日财经爆┃日本政府将削减俄罗斯煤炭进口 以抗议俄军大规模残杀乌克兰平民](https://gnews.org/zh-hans/2308485/)
 
-[https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+*编辑：东京樱花团/曲别针
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-上传/发稿 – 【青青】
-撰稿/翻译 -【重生之鹰】
-素材/采编 -【重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

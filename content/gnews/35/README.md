@@ -2,43 +2,56 @@
 ---
 
 
-## 欧佩克因战争下调2022年世界石油需求预测
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2336485/)
+## 突发：乌克兰特勤局逮捕了亲俄反对党领袖梅德韦丘克
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336516/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：多伦多蓝莲花- 灭共文明
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+编辑与校对：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》4月12日报道，**乌克兰安全部门周二表示，他们已经逮捕了亲俄政治人物维克多·梅德韦丘克。梅德韦德丘克是普京总统在乌克兰最亲密、最具影响力的盟友。**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/梅德韦丘克.jpg)2021年5月13日，乌克兰基辅，反对党“生命纲领”党领袖维克托·梅德韦德丘克出席法庭听证会(图片来源：路透社）
+
+早些时候，乌克兰总统泽伦斯基发布了一张梅德韦丘克的照片，照片上他满脸疲惫，戴着手铐，**他说普京是他女儿的教父。**
+
+**今年2月**，基辅表示，“反对派平台-为了生活“党领袖**梅德韦丘克从软禁中逃脱。去年，乌克兰当局对梅德韦丘克提起叛国罪指控，**但他否认有任何不当行为。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/梅德韦丘克1.jpg)维克多-梅德韦楚克在被安全部队拘留后（左），以及2021年5月（右）（图片来源：路透社）
+
+乌克兰安全部门在一个在线帖子中写道，**你可以是一个亲俄政客，为这个侵略国家工作多年。你最近可能一直在逃避正义。你甚至可以穿一件乌克兰军服来伪装。但它能帮你逃脱惩罚吗? 一点也不！镣铐在等着你，像你这样的乌克兰叛徒也会受到同样的惩罚。**
+
+该帖子援引特勤局局长伊万·巴卡诺夫(Ivan Bakanov)的话，他表示，他手下的**特工“进行了闪电般快速、危险的多层次特别行动”，以逮捕梅德韦丘克，**但没有透露细节。
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/GMPDTCLH75K5PPA5X6LR5CDHSE.jpg)
+
+> ⚡️BREAKING: Pro-Kremlin lawmaker, Putin's crony Medvedchuk captured.
+> 
+> Zelensky announced that Viktor Medvedchuk, a lawmaker with the pro-Kremlin party Opposition Platform was captured by the Security Service. Medvedchuk is accused of treason. He escaped house arrest in February. [pic.twitter.com/M3SIi65uht](https://t.co/M3SIi65uht)
+> — The Kyiv Independent (@KyivIndependent) [April 12, 2022](https://twitter.com/KyivIndependent/status/1513945381842956294?ref_src=twsrc%5Etfw)
 
 
-图片来源：路透社
+梅德韦楚克在乌克兰SBU特工部门开展的一次特别行动中被拘留。
+上个月，泽伦斯基表示，乌克兰最大的反对派运动“生命的反对派平台”和其他几个与俄罗斯有联系的较小政党已经被暂停。
 
-伦敦，4 月 12 日（路透社）——欧佩克周二下调了对 2022 年世界石油需求增长的预测，理由是受俄罗斯入侵乌克兰、原油价格飙升导致通胀上升以及 Omicron 冠状病毒变种在中共国复燃的影响。
+**在俄乌战争爆发以前，乌克兰是允许亲俄势力的存在**，**而且亲俄势力在乌克兰的势力是很强悍的，**包括在联邦和州一级层面的政府都有亲俄势力，**甚至能够成为当局政府首脑。**
 
-石油输出国组织 (OPEC) 在月度报告中表示，到 2022 年，全球需求将增加 367 万桶/日，比之前的预测下降 48 万桶/日。
+但是，**自俄罗斯入侵乌克兰以来，特别是，俄罗斯军队惨无人道的虐杀乌克兰平民以后，乌克兰人再也不会允许亲俄势力做大**，也许连存在都非常困难，**乌克兰人民对俄罗斯人有着血海深仇。**
 
-2 月份的入侵导致油价飙升至每桶 139 美元以上，为 2008 年以来的最高水平，加剧了通胀压力。此后，随着美国和其他国家宣布计划利用战略石油库存以增加供应，原油价格下跌，但仍保持在 100 美元以上。
+**自此，乌克兰亲俄势力在乌克兰应该彻底成为历史。**
 
-“虽然预计俄罗斯和乌克兰都将在 2022 年面临衰退，但全球其他经济体也将受到彻底影响，”欧佩克在报告中表示。
+新闻来源链接：
 
-“大宗商品价格的强劲上涨，加上中共国和其他地方持续存在的供应链瓶颈和与 COVID-19 相关的物流僵局，都在助长全球通胀。”
+[Ukraine secret service says it has arrested top Putin ally | Reuters](https://www.reuters.com/world/europe/ukraines-president-publishes-photo-pro-russian-politician-handcuffs-2022-04-12/)
 
-即便如此，正如欧佩克预测的那样，第三季度世界石油消费量预计将超过 1 亿桶/日。根据欧佩克的数据，世界上一次使用超过 1 亿桶/日的石油是在 2019 年。
+[Ukraine Secret Service just captured Putin’s best friend | indy100](https://www.indy100.com/news/ukraine-capture-viktor-medvedchuk?utm_content=Echobox&amp;utm_medium=Social&amp;utm_campaign=Main&amp;utm_source=Twitter#Echobox=1649793730)
 
-欧佩克表示，通胀是影响世界经济的主要因素，并将今年的经济增长预期从4.2%下调至3.9%，并表示有进一步下调的机会。
-
-欧佩克及其包括俄罗斯在内的盟友组成的一个名为 OPEC+ 的组织正在解除 2020 年实施的创纪录减产措施，并回绝了西方加快增产的压力。
-
-欧佩克预计，2022 年美国致密油供应量将从上个月的 67 万桶/日增加 88 万桶/日，并表示尽管大多数美国石油公司仍在关注资本纪律，但仍有进一步扩张的潜力。
-
-简评：能源国下调了全球的经济增长指数， 这个不用专业人士， 用一般常事就可以判断。 世界在经过2年的病毒大流行大封锁之后， 再加上现在的战争， 情况可能比预测的还要更坏。
-
-🔗 [https://www.reuters.com/business/energy/opec-cuts-2022-world-oil-demand-forecast-due-ukraine-conflict-2022-04-12/](https://www.reuters.com/business/energy/opec-cuts-2022-world-oil-demand-forecast-due-ukraine-conflict-2022-04-12/)
-
-编辑发表： Shuizhuyu
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
