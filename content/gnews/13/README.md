@@ -2,38 +2,38 @@
 ---
 
 
-## 美国务院发布人权报告 布林肯点名中国、俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337618/)
+## 斯洛伐克国防部长：可能向乌克兰出售榴弹炮
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337763/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+***评论：**就在此报道的前几天，2022年4月8日，斯洛伐克总理赫格（Eduard Heger）表示，为协助乌克兰抵御俄罗斯侵略，现已捐赠S-300防空系统。斯洛伐克是自2月24日俄罗斯对乌克兰采取军事行动以来，已知的第一个向乌克兰提供大型防空系统的国家。当然，前提是，今年3月，北约成员国德国和荷兰向斯洛伐克部署了三套“爱国者”防空系统，而美国也下令将其在欧洲的其中一个爱国者防空系统部署在斯洛伐克。不管如何，斯洛伐克和乌克兰都加强了自身的防空系统，美国、欧盟与邪恶的俄罗斯和中共的大战即将开打。*
 
-#### **整理：** li yan li
-**编辑**：新世纪
+据《路透社》记者Robert Muller，2022年4月10日报道:
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1477-e1649823293619.png)2022年3月17日，斯洛伐克国防部长雅罗斯拉夫·纳德（Jaroslav Nad）与美国国防部长劳埃德·奥斯汀（Lloyd Austin）在斯洛伐克共和国布拉迪斯拉发（Bratislava）举行的新闻发布会上讲话。图片来源：REUTERS/Radovan Stoklasa
+路透布拉格4月10日电—斯洛伐克国防部长雅罗斯拉夫·纳德(Jaroslav Nad)周日表示，斯洛伐克可能向乌克兰出售部分Zuzana自行榴弹炮。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-35.png)图片来源：雅典娜设计组
+纳德在电视辩论中表示:“我可以确认我们正在 (就出售)进行谈判” 。此外，他没有透露更多细节。
+
+Zuzana 2榴弹炮是一种旧型号的现代化改进版本，使用155毫米弹药，根据弹药类型的不同，有效射程从40公里到50公里(30英里)以上。
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源：[https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/](https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/)
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场 – HotPixel
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-4月12日，华盛顿，美国国务卿布林肯发布美国国务院《2021年国际人权报告》，强调俄罗斯在入侵乌克兰中犯下的人权暴行，也点名批评了中国等多个专制国家的人权状况。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-布林肯说：世界许多地区的民主、法治、尊重人权，出现了令人震惊的衰退。俄罗斯对乌克兰发动的残酷战争，更凸显了这种人权衰退。
-
-布林肯在强调2021年一些“令人震惊”的人权侵犯事件时，点名批评了伊朗、叙利亚、白俄罗斯、古巴、俄罗斯、贝宁、埃及、中国、阿富汗、埃塞俄比亚。
-
-布林肯在发布会上，点名中国时指出：“中国政府在新疆对穆斯林维吾尔人，以及其他少数民族，实施种族灭绝和危害人类罪；侵蚀香港的基本自由和自治，并在西藏进行有系统的镇压。”
-
-该《报告》有关[中国](https://www.state.gov/reports/2021-country-reports-on-human-rights-practices/china/)的部分长达90页，并指出：任意剥夺生命或以非法政治动机杀人、强迫失踪、酷刑和其它残酷有辱人格的待遇；任意处罚、羁押和拘留、拒绝公正公开的审判；任意非法干涉隐私、家庭或通信；任意剥夺言论自由、和平集会和结社自由、宗教自由、行动自由，以及离开国家的权利；任意剥夺劳工结社自由，以及集体谈判权，并强迫劳动，使用童工，就业和职业歧视等违反人权行为。
-
-《报告》称，中国政府官员和安全部门，经常犯下侵犯人权的行为而不受惩罚。
-
-新闻链接：[美国务院发布人权报告 布林肯点名中国、俄罗斯](https://www.voachinese.com/a/bulinken-human-rights-report-russia-china-20220412/6526813.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

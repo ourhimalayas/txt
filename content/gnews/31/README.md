@@ -2,31 +2,25 @@
 ---
 
 
-## 比利时首相接受新中国联邦记者采访并主动要求合影
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2337120/)
+## 中共进行极限压力测试 并制造经济灾难、毁掉美元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337333/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：纽约香草山-飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+在4月10日的文贵大直播中，郭先生揭示了中共在国内利用疫情封控民众、在国际上支持俄罗斯对抗美国的背后真相。
 
-4月12日，比利时首相亚历山大·德克罗在波兰梅迪卡难民救援中心接受了新中国联邦记者Nicole的采访并主动要求合影留念。对此，郭先生表示，这是外交默认。
+郭先生谈到，习近平在上海、广州、长春等地利用疫情，让民众出行受限，进而缺少物资供应，让国人没电、没水、没冰箱、没食品，目的就是测试老百姓在极限战争情况下的反应，让老百姓在一无所有的情况下被完全掌握在中共的手中。为此，中共不惜让社会停摆，将其15万亿的美元GDP降至5万亿，人为制造经济灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-29.jpg)
+同时，中共用其大量资源结交俄罗斯作为同盟，控制中东、非洲等能源国家，试图限制欧洲、美国的油、气供应，加上疫情、战争导致的供应链受阻、粮食危机，打击美元的信用，最终让全世界都抛弃美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-241.jpg)（图片来自GETTR）
+参考链接：[中共最终要制造经济灾难从而干掉美元！](https://gettr.com/post/p14mnt6dfdd)
 
-波兰当地时间今日上午10点，比利时首相亚历山大·德克罗（Alexander De Croo）在访问波兰梅迪卡难民救援中心时接受了新中国联邦记者Nicole的采访。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-在采访过程中，记者Nicole向首相亚历山大·德克罗介绍了新中国联邦消灭邪恶中国共产党的目标以及有关救援乌克兰难民的情况。
-
-亚历山大·德克罗首相回应道，人们需要互相帮助，非常高兴新中国联邦对乌克兰难民施予援手。
-
-采访最后，首相亚历山大·德克罗还主动要求和穿戴标有“Take down the Chinese Communist Party（消灭中国共产党）”标识的黄色马甲及帽子的Nicole合影留念。
-
-对此，新中国联邦创始人郭文贵先生郑重表示，这叫外交默认，这是首位在任首相，在外交上默认新中国联邦的国际地位，这一历史性时刻对新中国联邦的意义非常重大。
-
-参考链接：
-1.[https://www.gettr.com/post/p14xohiaaac](https://www.gettr.com/post/p14xohiaaac)
-2.[https://www.gettr.com/post/p14y3tsd6bc](https://www.gettr.com/post/p14y3tsd6bc)
-
-总编：老孙
-校对发布：爱放飞
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

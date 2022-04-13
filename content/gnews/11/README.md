@@ -2,33 +2,43 @@
 ---
 
 
-## 越来越多加拿大机构投资者持有数字资产
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337636/)
+## 【网传段子，权当笑话】普京被他的贪官忽悠了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2337796/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【加拿大福利杂志】4月11日报道，由毕马威和加拿大替代策略资产协会联合进行的一项调查显示，大约 57% 的加拿大机构投资者在 2020 年至 2021 年期间持有了数字货币类资产。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1475.png)
-其中大多数机构持有的数字资产规模较小，有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+#### 采集：瑞 H
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16498235101.png)
+普京清洗了FSB第五处上下150人，第五处的负责人谢尔盖·贝塞达和他的副手阿纳托利·博柳赫被关进监狱。Sergey Beseda谢尔盖·贝塞达相当于美帝的四星将军，Anatoly Bolyukh博柳赫相当于三星将军。都是顶尖大特务。
 
-毕马威加拿大资产管理合伙人兼国家金融服务咨询负责人克里斯·法卡斯表示：“鉴于政府债券作为投资组合减震器抗波动的能力降低，机构投资者越来越多地增加持有数字资产，以进一步多样化投资组合。虽然这对于机构投资者来说是一个更新且具有潜在前景的领域，但他们显然采取了谨慎的态度。”
+他们的罪名其实不是原来大家以为的提供了错误情报，逮捕的罪名是贪污公款。整个FSB 第五处正在接受刑事调查，许多人被捕。
 
-原文鏈接：
+2014年以来，普京一直在第五处的预算中投入数十亿美元，用于对乌克兰军方、特勤局、内部安全官员和政界人士行贿。
 
-[https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+但是Beseda和Anatoly Bolyukh贪污了行贿预算的每一分钱，数十亿美元。两位第五处老大哥很大方，利益均沾，第五处的每个人都分到钱了。间谍行贿是用现金支付的，而且没有对证。
 
-上传/发稿 – 【青青】
-撰稿/翻译/-【活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+这两哥们敢这么做的原因就是他们认为普京肯定不会疯到入侵乌克兰。
 
-更多加拿大溫哥華揚帆農場的頻道，請關註：
+所以看来他们的计划是完美的，钱到自己兜里，普京会拿到一份名单，上面详细列着谁谁收到多少万美元，会和俄罗斯合作等等。实际这些人一分钱没拿到，
 
-- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)[場](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+但这有什么问题呐，反正亲爱的弗拉基米尔不是疯子，他怎么会疯到去入侵乌克兰呐？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH-5.png)
+这美事一直到在2021年10月至11月的某天，普京召集了包括贝塞达和博柳赫在内的少数人会面，并告诉他们俄罗斯将入侵乌克兰。
+
+普京从14年以来，一直指望着这几十亿美元已经收买了整个乌克兰军队，情报机构和政客。
+
+会议中，普京说不用理会乌克兰的任何抵抗，说他所要做的就是踢门，整个国家就会在两天内倒下，因为多年来FSB第五处一直做了很好的对乌克兰人的行贿工作。
+
+俄罗斯军方得知乌军已经全被收买后，同意入侵乌克兰，而且作战计划中第一波攻击中就派遣俄罗斯警察去控制基辅交通，维持基辅治安。因为根据第五处的说法，不会有任何抵抗。
+
+第五处两哥们听了后立刻蒙圈，大帝怎么这样？
+
+为了保住他们的金钱和性命，他们唯一的办法就是要把这次入侵计划搅黄，而搅黄的唯一办法就是让美帝知道这个计划，利用美帝的压力迫使普京改变主意。
+
+他们的如意算盘就是如果美帝知道了，在美帝压力下，大帝会取消入侵计划。 而贝塞达原来在FSB就做过和CIA的联络工作，这样轻车熟路，就和CIA接上了头。所以全世界特工其实是一家。
+
+剩下的事情，我们就知道了。
+
+（来自网络）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
