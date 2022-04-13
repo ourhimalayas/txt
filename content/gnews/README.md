@@ -15,137 +15,137 @@
 
 ---
 
-### [拜登指责普京在乌克兰策划“种族灭绝”](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
+### [美朝紧张局势之时美航母部署在朝鲜半岛附近](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [给乌克兰提供武器比制裁俄罗斯更重要](/content/gnews/2/README.md)
- ` 澳喜特战旅Gnews`
-
-### [俄将对乌发起猛攻](/content/gnews/3/README.md)
+### [美命令非紧急雇员撤离上海](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [乌克兰冶金专家：被摧毁的敌方装备回收价值近五千万美元](/content/gnews/4/README.md)
+### [《柳叶刀》信件签署人之一本人就相信新冠病毒起源于武汉实验室](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登指责普京在乌克兰策划“种族灭绝”](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [因七年前的不当言论，川航一飞行员遭停职](/content/gnews/5/README.md)
+### [给乌克兰提供武器比制裁俄罗斯更重要](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [永康街道的电话](/content/gnews/6/README.md)
+### [俄将对乌发起猛攻](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [乌克兰冶金专家：被摧毁的敌方装备回收价值近五千万美元](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [因七年前的不当言论，川航一飞行员遭停职](/content/gnews/8/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [永康街道的电话](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [马克龙和勒庞：一场艰难的决斗](/content/gnews/7/README.md)
- ` 澳喜特战旅Gnews`
-
-### [2022年04月13日文贵先生盖特](/content/gnews/8/README.md)
+### [2022年04月13日文贵先生盖特](/content/gnews/10/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美欧对中共国的一系列脱钩与制裁即将展开](/content/gnews/9/README.md)
+### [美欧对中共国的一系列脱钩与制裁即将展开](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [拜登总统谴责&#8221;种族灭绝&#8221; &#8220;我看就是如此&#8221;](/content/gnews/10/README.md)
+### [拜登总统谴责&#8221;种族灭绝&#8221; &#8220;我看就是如此&#8221;](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共白送塞尔维亚红旗导弹系统 一条在美国西部边境海域的船只 载有导弹](/content/gnews/11/README.md)
+### [中共白送塞尔维亚红旗导弹系统 一条在美国西部边境海域的船只 载有导弹](/content/gnews/13/README.md)
  ` 焦點20分`
 
-### [乌克兰：令人痛心的儿童死亡人数暴露了战争的真正恐怖](/content/gnews/12/README.md)
+### [乌克兰：令人痛心的儿童死亡人数暴露了战争的真正恐怖](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播要点–主讲：如水（2022年4月13日）](/content/gnews/13/README.md)
+### [文贵大直播要点–主讲：如水（2022年4月13日）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [对内消灭不定因素 对外展开全球布局 习近平意图打垮美元 实现强国梦](/content/gnews/14/README.md)
+### [对内消灭不定因素 对外展开全球布局 习近平意图打垮美元 实现强国梦](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [德国天主教著名救援组织Malteser请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助](/content/gnews/15/README.md)
+### [德国天主教著名救援组织Malteser请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国的封锁可能引发物流堵塞](/content/gnews/16/README.md)
+### [中共国的封锁可能引发物流堵塞](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰预计今年5月中下旬可能入欧 英国将全面支持乌克兰迎战](/content/gnews/17/README.md)
+### [乌克兰预计今年5月中下旬可能入欧 英国将全面支持乌克兰迎战](/content/gnews/19/README.md)
  ` 焦點20分`
 
-### [新中国联邦志愿者妮可向两位来自欧盟派往乌克兰的工作代表团成员介绍了新中国联邦的救援工作及设施](/content/gnews/18/README.md)
+### [新中国联邦志愿者妮可向两位来自欧盟派往乌克兰的工作代表团成员介绍了新中国联邦的救援工作及设施](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不要慰问，请帮我们发声](/content/gnews/19/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [驭民五术之做核酸](/content/gnews/20/README.md)
+### [驭民五术之做核酸](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登将于5月底赴日参加四方会谈，并期望与莫迪会面](/content/gnews/21/README.md)
+### [拜登将于5月底赴日参加四方会谈，并期望与莫迪会面](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [以疫代牢——中共正在进行一场大规模服从性训练](/content/gnews/22/README.md)
+### [以疫代牢——中共正在进行一场大规模服从性训练](/content/gnews/23/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [又有12家中概股公司被列入SEC预摘牌名单](/content/gnews/23/README.md)
+### [又有12家中概股公司被列入SEC预摘牌名单](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [郭先生即将推出两首新歌](/content/gnews/24/README.md)
+### [郭先生即将推出两首新歌](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [4/13/2022 国际财经快讯：中共国扩大的中共病毒抑制措施威胁到全球供应链的瘫痪；油价走高，市场关注供应下降](/content/gnews/25/README.md)
+### [4/13/2022 国际财经快讯：中共国扩大的中共病毒抑制措施威胁到全球供应链的瘫痪；油价走高，市场关注供应下降](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|俄罗斯寡头的超级游艇驶向斐济](/content/gnews/26/README.md)
+### [有声|俄罗斯寡头的超级游艇驶向斐济](/content/gnews/27/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共要求上海为死亡一万人做准备](/content/gnews/27/README.md)
+### [中共要求上海为死亡一万人做准备](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [郭先生解读比利时首相接受战友采访的意义](/content/gnews/28/README.md)
+### [郭先生解读比利时首相接受战友采访的意义](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [有声|美国务院命令非紧急人员及家眷紧急撤离上海](/content/gnews/29/README.md)
+### [有声|美国务院命令非紧急人员及家眷紧急撤离上海](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [俄罗斯洗劫切尔诺贝利核电站从实验室带走放射性材料](/content/gnews/30/README.md)
+### [俄罗斯洗劫切尔诺贝利核电站从实验室带走放射性材料](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [比利时首相救援前线接受新中国联邦战友采访](/content/gnews/31/README.md)
+### [比利时首相救援前线接受新中国联邦战友采访](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [樱花时政┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？](/content/gnews/32/README.md)
+### [樱花时政┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认](/content/gnews/33/README.md)
+### [中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：普京称乌克兰的和平谈判已经走投无路](/content/gnews/34/README.md)
+### [秘翻在线：普京称乌克兰的和平谈判已经走投无路](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国将向乌克兰追加支援7.5亿美元的武器](/content/gnews/35/README.md)
+### [秘翻在线：美国将向乌克兰追加支援7.5亿美元的武器](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|乌克兰做足战备 盟国增加军援](/content/gnews/36/README.md)
+### [有声|乌克兰做足战备 盟国增加军援](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [中日财经爆┃中共工商银行通知，暂停个人外汇业务](/content/gnews/37/README.md)
+### [中日财经爆┃中共工商银行通知，暂停个人外汇业务](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [了解一下俄军对乌战争新任最高指挥官](/content/gnews/38/README.md)
+### [了解一下俄军对乌战争新任最高指挥官](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：上海东方卫视举办抗疫主题晚会引公愤](/content/gnews/39/README.md)
+### [秘翻在线：上海东方卫视举办抗疫主题晚会引公愤](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：高价运费也吸引不了卡车司机开往上海](/content/gnews/40/README.md)
+### [秘翻在线：高价运费也吸引不了卡车司机开往上海](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰救援前线报道4.13.2022：新中国联邦法治基金再次完成一项跨国际的人道救援行动](/content/gnews/41/README.md)
+### [乌克兰救援前线报道4.13.2022：新中国联邦法治基金再次完成一项跨国际的人道救援行动](/content/gnews/42/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大再向乌克兰提供1亿加币人道救援](/content/gnews/42/README.md)
+### [加拿大再向乌克兰提供1亿加币人道救援](/content/gnews/43/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [多家银行下调个人账户线上交易限额](/content/gnews/43/README.md)
+### [多家银行下调个人账户线上交易限额](/content/gnews/44/README.md)
  ` 纽约香草山MOS02`
-
-### [中日财经爆┃美国通胀创40年新高，加息50个基点势在必然](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [有声｜货车司机不跑上海宁波 塞港问题严重](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`

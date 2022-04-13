@@ -2,27 +2,27 @@
 ---
 
 
-## 中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2340512/)
+## 樱花时政┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2340518/)
 
-来源：N12News 
-发布时间：20220412
-编译：GM
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-13-21.08.11.png)
-中国驻以色列大使馆作为逾越节礼物赠送给一些部长的保温杯，在例行安全检查中发现其中有可疑物品，杯子里这个像镜子的部件让人怀疑它可能是窃听设备。
+撰稿：东京樱花团/haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌克兰当局指出，俄罗斯强制性地将乌克兰人移往俄罗斯境内的边境地区。据俄罗斯《国际先驱论坛报》称，计划向这样的地区派遣近10万名乌克兰人。据英国《泰晤士报》报道说，俄罗斯计划将近10万名乌克兰人派往西伯利亚和北极圈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-88.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220413-00000005-binsider-000-1-view.jpg?exp=10800)
+乌克兰总统杰伦斯基 ，对被逮捕的人移送“特别筛选设施”的此事，鸣起警钟。 Thei引用俄罗斯总统府文件显示，俄罗斯在3月份下达了强制将9万5739名乌克兰人转移到俄罗斯内边防地区的紧急命令。该文件表明，乌克兰人不会将他们送往莫斯科或圣彼得堡等主要城市，而是会派遣到距离乌克兰数千公里的偏僻地区。根据Thei的介绍，具体是西伯利亚的马加丹和北极圈的摩尔曼斯克、车臣共和国、英格西共和国、达格斯坦共和国的高加索地区等。据《国际先驱报》报道，其中还有被送往日本北部的库页岛市的乌克兰人。
 
-对中国驻以色列大使馆移交给一些政府部门的礼物进行的例行安全检查引发了人们对这一事件的怀疑，该事件很容易成为一系列紧张局势和间谍活动的一部分。
+这些地区每月都要向政府报告新到达当地的人数。乌克兰当局谴责说，俄罗斯从马里乌波尔——遭受猛烈轰炸的乌克兰东南部港口城市将数千名乌克兰人转移到边境的所谓“筛选设施”，然后强制移居到俄罗斯境内的边远地区。
 
-事发后，政府机关立即收回其他保温杯作进一步检查。任何来自外国使团的礼物都需要经过安全许可。由于“害怕有监听设备或摄像头”一些部门被告知要重点关注来自中国的礼物。
+信息来源：[ロシア、避難させたウクライナ人10万人近くをシベリアや北極圏などに強制移住か（BUSINESS INSIDER JAPAN） – Ya…](https://news.yahoo.co.jp/articles/484a866061f8db7519941e27c80e4ab6a452a506)
 
-在中国大使馆否认之后，GSS宣布：“检查该组件的技术专家确认它是一个杯子的组件，旨在保持杯壁的真空并保持温度，这份礼物是为了表达中以之间的友谊，我们要求发布它的媒体撤出报道。”
-
-参考链接：[https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&s=08](https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&amp;s=08)
-
-[https://mobile.mako.co.il/news-military/2022\_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&pId=173113802&Partner=interlink&s=08](https://mobile.mako.co.il/news-military/2022_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&amp;pId=173113802&amp;Partner=interlink&amp;s=08)
-
-审核校对：Barry Jack
-上传排版：F
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

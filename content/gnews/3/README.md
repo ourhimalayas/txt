@@ -2,32 +2,33 @@
 ---
 
 
-## 俄将对乌发起猛攻
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341182/)
+## 《柳叶刀》信件签署人之一本人就相信新冠病毒起源于武汉实验室
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341218/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-8.jpg)
-据加拿大媒体【CTV新闻】4月11日报道，车臣共和国领导人拉姆赞·卡德罗夫日前表示，俄罗斯军队将对被围困的马里乌波尔港、基辅和其他的乌克兰城市发动攻击。
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1600.png)图片来源：The Coloradoan
+2020年2月，《柳叶刀》（Lancet）杂志发表了多名科学家签名的一封信，否定了中共病毒（COVID-19）起源于武汉病毒研究所（WIV）的说法。但是，4月11日，《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表了调查文章，指其中一位签名科学家内部邮件私下表示认为病毒可能来源于实验室。
 
-报道称，卡德罗夫认为自己是普京的步兵，虽然他一再被美国和欧盟指控侵犯人权，但每位独裁者都会否认国际对他们个人的指控。1991年苏联解体后，莫斯科在俄罗斯南部以穆斯林为主的地区车臣进行了两场战争，此后俄罗斯投入大量资金重建并给予卡德洛夫极大程度的自治权。
+文章指，虽然《柳叶刀》的该声明被政治家、科学家和企业媒体用来压制关于中共病毒（COVID-19）起源的进一步讨论，但是，世界各地的情报官员提供的大量证据和陈述表明，该病毒实际上源自中国共产党管理的实验室。
 
-结合郭先生日前大直播爆料，中共从幕后支持俄罗斯走到了台前，不可避免的战争将会愈演愈烈，但乌克兰人民的英勇抗争精神一定会唤醒欧盟与美国的加速合作。
+报道披露，查尔斯·卡里舍（Charles Calisher）是科罗拉多州立大学的微生物学教授，也是27名签署《柳叶刀》信件人中的佼佼者，就在该信件声明发表的几周后，他于2020年4月19日给其他几位科学家发了电子邮件。
 
-原文链接：[Ukraine: Chechen chief Ramzan Kadyrov says Russia will take Kyiv | CTV News](https://www.ctvnews.ca/world/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-1.5856829?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=625414bd2c26f7000194524a&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+邮件中，似乎是对有关“顶级安全的武汉实验室的主任否认其为冠状病毒的来源地”新闻更新的反应，卡里舍在电子邮件中显露出了对“实验室泄露”理论有效性的私人情绪。
 
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 文莱
-素材/采编 – UCool优酷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+邮件中他这样说：“我看不出有谁能够明确说，病毒不可能来自于该实验室……”
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+报道说，这些邮件的被公布，是非营利组织“美国知情权（USRTK）”根据《信息自由法》（FOIA）请求公布的，并且，公布的信息显示，武汉病毒研究所的科学家还被邀请来修改为国会简报准备的文件。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+同时，披露的信息还显示，中国共产党亲自挑选了合作者彼得·达萨克（Peter Daszak）来领导世界卫生组织（WHO）对该病毒起源的调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+太极慢慢打。
+
+*责编：白夜*
+
+**新闻来源**
+
+[REVEALED: Lab Leak Denier Was Privately Telling Colleagues ‘It’s Possible’](https://thenationalpulse.com/2022/04/11/lancet-signatory-private-emails-dont-discredit-lab-leak-theory/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

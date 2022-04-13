@@ -2,28 +2,34 @@
 ---
 
 
-## 郭先生即将推出两首新歌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340786/)
+## 又有12家中概股公司被列入SEC预摘牌名单
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2340825/)
 
-作者：骄子
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/mfile_1622552_1_20211203080239-1-scaled.jpg)
+当地时间4月12日，美国证券交易委员会将中共国12家公司添加到观察名单中。根据SEC的要求，这12家公司需要在截止日5月3日前提供证据表明仍然符合上市的条件。这12家公司分别为Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-4月10日，郭文贵先生在大直播中提及，他本人有两首新的歌曲正在准备当中。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-69.jpg)
-据悉，一首歌是由墙内一位知名歌手制作，而这位歌手也是爆料革命的战友。目前，这首新歌已经进入了录制阶段。
+据悉这是自3月以来SEC发布的第四批中概股公司名单，根据规定，若这些公司不能在规定时间内提交SEC要求的文件或者文件不符合要求，他们将面临被披露后立即除名的后果。中概股涉及到的公司不乏中共国的互联网巨头公司，如微博、百度、爱奇艺、搜狐等。
 
-至于另一首歌，则是由一位好莱坞著名作词人为新中国联邦创作的，其名为《One Hundred Percent》。郭先生补充道， 这首歌将完全不同于以往已经推出的歌曲，但其核心仍然是突出爆料革命“唯真不破”的内核。当前，这位作词人正在与郭先生沟通时间，以期能让郭先生在现场与超过一千名音乐人共同录制该曲。
+郭先生此前提到，美国会先制裁一批中共国的喉舌大外宣公司。微博是中共国的社交媒体巨头，而百度、搜狐、爱奇艺是搜索、新闻和视频平台的巨头，这些平台都具有严格的言论审查，并且是中共假宣传洗脑的主要公共平台。
 
-郭先生最后强调，音乐让国际社会直观地感受到中国人真正的生活，其力量超越国界、超乎想象。
+reference：
 
-参考链接：[**2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣**](https://gettr.com/streaming/p14iwpvf134)
+[https://www.stcn.com/xw/sd/202204/t20220413\_4352889.html](https://www.stcn.com/xw/sd/202204/t20220413_4352889.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+撰稿、发布：骄子
 
-总编：Irene木木
-编辑：玫瑰圓 
-审核：Irene木木
-校正/发稿：Fei797
+* * *
 
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

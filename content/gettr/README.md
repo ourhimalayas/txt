@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 3:56 PM (UTC)`
+
+【Ukraine Rescue】04/03/2022 <br/>Japanese freelance media reporter Hiroki, who had been in the NFSC Medyka huge tent and was interviewed by NFSC volunteer Nicole, reports in his YouTube Channel: The NFSC provides a huge and well-equipped tent as a resting place for the refugees and the media personalities and volunteers.  The NFSC rescue volunteers provide freshly ground coffee, free Wi-Fi internet access in the tent.  The NFSC opposes the Chinese Communist Party.<br/><br/>【乌克兰救援】04/03/2022 曾到过Medyca新中国联邦大帐篷，被新中国联邦志愿者妮可采访过的日本自由人Hiroki在他的Youtube频道报道： 新中国联邦提供了一个巨大且设备齐全的帐篷，作为难民、媒体人士和志愿者的休息场所。 新中国联邦救援志愿者在帐篷内提供现磨咖啡、免费无线网络连接。新中国联邦反对中国共产党。<br/>
+![img](https://media.gettr.com/group3/getter/2022/04/13/15/a3f413d0-b3c0-11db-7606-0a37802a709a/out.jpg)
+
+---
+
 `@miles 4/13/2022 3:30 PM (UTC)`
 
 【Ukraine Rescue】04/12/22 Introducing the interview with the Belgian Prime Minister, Nicole says: Mr. Prime Minister seemed to know who we are and why we are here. He was very receptive to the message of exterminating the Communist Party clearly conveyed on our hat and vest, and was not surprised at all, as if he was very familiar with us, which means that the NFSC has long gained the attention and acquiescence of the international community.<br/><br/>【乌克兰救援】04/12/22 妮可介绍采访比利时首相的经过：首相先生好像知道我们是谁，以及我们为什么在这里，他对我们的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，感觉好像对我们非常熟悉一样。说明新中国联邦早就获得了国际社会的关注与默认。
@@ -147,13 +154,6 @@
 
 2022/04/13  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 ![img](https://media.gettr.com/group32/origin/2022/04/13/05/fb89c697-01c4-1e5f-5ce6-b31a883e717b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 4:29 AM (UTC)`
-
-Tuesday, April 12. At 10:30 a.m. local time in Poland, a volunteer from Belgium arrived at the tent of the New Federal State of China and the Rule of Law Foundation to donate relief supplies. The volunteer arrived at the Medica camp at the same time as the Belgian Prime Minister, with whom he also had a conversation. He was interviewed by the New Federal State of China.4月12日，星期二。波兰当地时间上午10:30，一名来自比利时的志愿者来到中国新联邦州和法治基金会的帐篷，捐赠救济物资。这位志愿者到达梅迪卡营地时，恰好与比利时首相同时到达，他还与比利时首相进行了交谈。他接受了中国新联邦州的采访。<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
-![img](https://media.gettr.com/group45/origin/2022/04/13/04/781aff51-1f9a-01bc-a729-32c8747f00a6/out.jpg)
 
 ---
 

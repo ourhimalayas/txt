@@ -2,33 +2,32 @@
 ---
 
 
-## 永康街道的电话
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2341165/)
+## 俄将对乌发起猛攻
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341182/)
 
-作者：香草山商业部–文不破
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-杀宠物时，人命重要；杀少数人时，多数人重要；杀一城人时，一国人重要。
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-8.jpg)
+据加拿大媒体【CTV新闻】4月11日报道，车臣共和国领导人拉姆赞·卡德罗夫日前表示，俄罗斯军队将对被围困的马里乌波尔港、基辅和其他的乌克兰城市发动攻击。
 
-你以为，一国人真的重要。其实，这不过是没有轮到你的圈套，你跟重要都不沾边， 还谈什么重要不重要。只要开始比较，一切早晚都不重要。
+报道称，卡德罗夫认为自己是普京的步兵，虽然他一再被美国和欧盟指控侵犯人权，但每位独裁者都会否认国际对他们个人的指控。1991年苏联解体后，莫斯科在俄罗斯南部以穆斯林为主的地区车臣进行了两场战争，此后俄罗斯投入大量资金重建并给予卡德洛夫极大程度的自治权。
 
-欧美通过全社会发力来控制疫情，目的是结束疫情；而中共利用疫情来控制社会，永远宣传是取得了一次又一次的胜利，疫情防控阻击战永远在赢。（上海孩子水深火热的时候，庆功演出就开始整起了。）
+结合郭先生日前大直播爆料，中共从幕后支持俄罗斯走到了台前，不可避免的战争将会愈演愈烈，但乌克兰人民的英勇抗争精神一定会唤醒欧盟与美国的加速合作。
 
-然而封城永远在路上，人一直在死，疫情永远结束不了…….
+原文链接：[Ukraine: Chechen chief Ramzan Kadyrov says Russia will take Kyiv | CTV News](https://www.ctvnews.ca/world/chechen-chief-kadyrov-says-russian-forces-will-take-kyiv-1.5856829?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=625414bd2c26f7000194524a&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-编辑/审核/发稿：Bronx Bombers
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 文莱
+素材/采编 – UCool优酷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

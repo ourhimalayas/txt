@@ -2,31 +2,39 @@
 ---
 
 
-## 中日财经爆┃中共工商银行通知，暂停个人外汇业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2340416/)
+## 有声|乌克兰做足战备 盟国增加军援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340432/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月13日中新经纬报道，工商银行官方发布《关于个人外汇买卖及外币兑换业务相关安排的通告》指出，自北京时间6月12日0时起，工商银行暂停个人外汇买卖业务新客户签约及全部交易品种的开仓交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-260.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg2.jiemian.com%2F101%2Foriginal%2F20211012%2F163404571857724300_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6692885.html&amp;tbnid=NYO20UVmUBqXLM&amp;vet=12ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg..i&amp;docid=f6Jtn8CiFwzEkM&amp;w=640&amp;h=364&amp;q=%E5%B7%A5%E5%95%86%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg)
-早在2021年，多个银行包括工行在内的多家银行宣布暂停或调整个人外汇买卖业务，当时，工商银行发布了《关于调整账户外汇业务的通告》表示，将于8月15日对账户外汇业务规则和交易系统进行调整。自2021年8月15日起，风险承受能力评估结果为进取型(C5)的客户可继续在我行办理账户外汇业务，并对交易起点、持仓限额、业务停办等新增要求。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+根据4月10外媒消息，乌克兰总统顾问公开表示，乌已做足战备，与俄罗斯进行大规模战斗。乌克兰将在俄方控制的两个分离地区——顿涅茨克和卢甘斯克击退俄军，以便在俄乌总统会晤前获得更多的主动权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-12-at-9.41.56-AM.png)
+此外，美国、德国等盟国表示会继续向乌克兰提供武器援助。
 
-2021年7月27日，招商银行公告称，“自8月23日起，我行将根据新版协议文本，暂停个人双向外汇买卖业务的新开仓交易功能，客户将无法新发起开仓交易，原有交易平仓不受影响。”还指出个人外汇期权业务即日起停止发售新产品。
+美国国家安全顾问杰克·沙利文10日表示，美国正致力于向乌克兰提供它需要的武器来抵御俄罗斯，阻止他们占领更多的城镇。而根据其他信息，自俄罗斯发动入侵以来，美国已向乌克兰提供了 17 亿美元的军事援助。
 
-2021年8月30日，华夏银行发布公告称，将于12月1日起，暂停个人外汇买卖业务，恢复时间另行通知。8月31日，华夏银行又对上述公告进行了澄清声明，声明称，为升级优化技术系统，自12月1日起，华夏银行将暂停办理个人外汇买卖(外汇兑外汇)业务，业务恢复时间将另行通知。
+德国国防部长兰布雷希特9日受访表示，自战争开始，德国已经援助了军盔、反战车、防空和地对空飞弹以及机枪和弹药等军事装备，目前，德军已经无法从库存中直接拿出武器提供给乌克兰，但这并不意味着德国不能为乌克兰做更多的事情，未来德国对乌克兰的军援将更多地直接透过军火工业进行。
 
-此次工行亦强调，本次该行仅调整个人外汇买卖业务，不涉及个人结售汇业务，个人结售汇业务可正常办理。也就是强调了，外汇不能出汇款出国，只能在本国境内操作，但是实景情况是，持有外币在中共国没是不认可与大流通的货币，仅限于银行和个人之间兑换，既然是外币，兑换后不能汇出境外，又不能在国内流通，这样的政策，也彻底封锁了转移资金的道路，也是中共闭关锁国的开始。
 
-信息来源：[【工行通告将关闭个人外汇这项业务！】](https://ml.mbd.baidu.com/r/EpSVZpUW2I?f=cp&amp;rs=1651382903&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b31aea2723857e27&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+文字版原文：[乌克兰做足战备 盟国增加军援](https://gnews.org/zh-hans/2335450/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
