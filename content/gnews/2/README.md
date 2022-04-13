@@ -2,44 +2,26 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.13）&#8211;下午打完第三针疫苗，现在头疼。
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338011/)
+## 中日财经爆|美国SEC再将搜狐等12家中概股列入“预退市”清单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338125/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/peterwong
 
-整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04133.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-19.png)图片来源：雅典娜设计组(614)
+美国证劵交易委员会（SEC）4月12日，再将搜狐等12家中概股公司加入“预退市”清单，这是自3月以来第四批被纳入名单的中概股公司。
 
+具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+SEC声称，上述12家公司提交申辩的截止时间为当地时间5月3日。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+根据SEC公布的《外国公司问责法》，被列入「确定摘牌名单」的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。如果「确定摘牌名单」中的公司没有提交或提交的文件不符合SEC要求，理论上将会在披露2023年年报后（2024年初）面临立即退市。
 
-帖子原文：
+消息来源：[美國SEC再將12家中概股列入「預摘牌名單」　包括搜狐及新濠影匯](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/758516/%E7%BE%8E%E5%9C%8Bsec%E5%86%8D%E5%B0%8712%E5%AE%B6%E4%B8%AD%E6%A6%82%E8%82%A1%E5%88%97%E5%85%A5-%E9%A0%90%E6%91%98%E7%89%8C%E5%90%8D%E5%96%AE-%E5%8C%85%E6%8B%AC%E6%90%9C%E7%8B%90%E5%8F%8A%E6%)
 
-下午打完第三针疫苗，现在头疼。
-
-感觉头要炸了，怎么会这么痛，心口也闷闷的，一直冒虚汗，不知道是正常的还是不良反应，是不是该去医院。
-
-评论选集：
-
-[开心的朵儿](https://www.xiaohongshu.com/user/profile/5a206f3a4eacab654501eb50) 回复：
-
-我特别后悔前几天打的加强针，头疼一天，胸口疼了两天，呼吸说话都疼，刺激到我的卵巢囊肿长大，要手术了
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1483.png)图片来源：小红书
-参考链接:
-
-[下午打完第三针疫苗现在头疼](http://xhslink.com/x19MGg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,59 +2,33 @@
 ---
 
 
-## 令人不安的视频 中共国因中共病毒而消灭猫狗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2337985/)
+## 挪威考虑援助乌克兰现代化防空系统
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338063/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-61.png)图片来自推特
-据《门户专家网》作者吉姆·霍夫特（Jim Hoft） 2022 年 4 月 9 日报道：
+**撰稿：日本东京方舟农场 北极**
 
-中共国正在从猫主人那里将猫带走进行灭绝。这些猫被收集在袋子里并被拖走杀死。
+据焦点报4月12日报道，挪威议会代表奥拉·埃尔维斯图恩（Ola Elvestven）提议援助乌克兰现代化防空武器，以帮助其扭转战争局势。
 
-这段视频在社交媒体上疯传。目前尚不清楚是什么时候拍摄的，但有许多关于中共国屠杀宠物的报道，其中一些因中共病毒而被遗弃。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-19.jpeg)挪威防空导弹系统。（图片来自大纪元）
 
-[https://twitter.com/gummibear737/status/1512929396264472578?s=20](https://twitter.com/gummibear737/status/1512929396264472578?s=20)
+这位政治家指出，西方，特别是北约国家，应该对乌克兰提供更多的现代化武器。他本人向议会提议向乌克兰援助挪威先进地对空导弹系统（Norwegian Advanced Surface to Air Missile System，简称NASAMS）和海军打击导弹（Naval Strike Missile，简称NSM）。
 
-*小熊软糖@gummibear737*
+NASAMS防空系统是由挪威康斯伯格（Kongsberg）武器工厂和美国雷神公司（Raytheon Company）在90年代开发的。该系统配备了AIM-120导弹（先进中程空对空导弹），具有强大的推力和远距离飞行的优点。NASAMS能够拦截机动弹道目标，这意味着NASAMS能够对抗俄罗斯的导弹系统“伊斯坎德尔”。
 
-*大多数人对中共国荒谬的中共病毒清零政策对普通民众的影响并不同情*
+伊斯坎德尔导弹(北约代号 SS-X-2)是俄罗斯发展的一种中短程弹道导弹，具有突破反导拦截系统的能力，俄军方号称世界上没有能拦截伊斯坎德尔的系统。
 
-*但是猫呢？*
+挪威的另一种先进海防武器NSM能够通过GPS，和地形参考系统进行导航，以海掠模式飞行，隐身能力强，可识别海上或沿海目标。
 
-*2022年4月9日*
+此前，挪威首相乔纳斯·加尔·斯特雷（Jonas Gar Stehre）表示，尽管挪威对军事武器装备的出口政策非常严格，但乌克兰人民面临着“非常情况”，需要军事援助。
 
-还有狗
+参考链接：
+1. [https://reurl.cc/DdNv6e](https://reurl.cc/DdNv6e)
+2. [https://reurl.cc/Qj177p](https://reurl.cc/Qj177p)
+3. [https://reurl.cc/DdNvv5](https://reurl.cc/DdNvv5)
+4. [https://reurl.cc/akp594](https://reurl.cc/akp594)
 
-[https://twitter.com/gummibear737/status/1512944744321671171?s=20](https://twitter.com/gummibear737/status/1512944744321671171?s=20)
-
-*小熊软糖@gummibear737*
-
-*猫是中共病毒的动物宿主，因此这些猫很可能是从它们的主人那里被带走而被杀掉的*
-
-*中国共产党通过清零得利，所以……*
-
-*2022**年4月9日*
-
-2021年就有报道称中共国因中共病毒杀死宠物猫狗。现在，2022 年，当局再次开始猎杀宠物。
-
-更多视频。
-
-[https://twitter.com/wangjunkaigege/status/1512465399899570181?s=20](https://twitter.com/wangjunkaigege/status/1512465399899570181?s=20)
-
-*王俊凯哥哥**@wangjunkaigege*
-
-*中共政府因为中共病毒杀死了许多狗和猫。大多数是宠物。不管主人是否同意。*
-
-*2022年4月8日*
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2022/04/disturbing-video-china-taking-cats-extermination-due-covid-dogs/](https://www.thegatewaypundit.com/2022/04/disturbing-video-china-taking-cats-extermination-due-covid-dogs/)
-
-
-
-
-
-翻译：Nick｜校对：JS709｜审核： 编辑发布：闪电训练
+总编： 老孙
+校对发布：文曦
 
  
 

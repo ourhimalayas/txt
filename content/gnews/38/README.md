@@ -2,39 +2,32 @@
 ---
 
 
-## 上海等城市的封锁加剧对经济的威胁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336817/)
+## 挺乌抗俄！美国再增7.5亿美元军援
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2337091/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译 重生之鹰 】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据CTV NEWS 4月8日报道：目前，中国坚定不移地坚持“清零政策”，通过封锁上海等大城市来遏制新冠肺炎疫情，这可能对其庞大的经济构成严重冲击，给全球供应链带来更大压力，并进一步加剧通货膨胀。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+乌俄战事持续，各国对于乌克兰的军援仍持续涌入，继拜登总统指控普京是战争犯对乌克兰人种族灭绝后，美国官员透露，拜登政府最快将于13日向乌克兰提供7.5亿美元的额外军事援助，用于抵抗俄军入侵。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1464.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/phpI98Nud.jpg)图片来源：路透
 
+综合外媒报导，美国官员表示，目前关于这笔7.5亿美元军事援助的具体内容为何，政府仍在讨论中。这笔款项预计将由拜登授权从美国股票中转移，无需国会批准。
 
-上海是中国主要的金融中心，它的一些最大的港口和机场已经被封锁了12天，而且没有结束的迹象。小企业受到重创，商店和餐馆被迫关闭。特斯拉以及许多中国和台湾制造商都不清楚何时能重启工厂。与此同时，港口延误情况越来越严重，航空货运价格飙升，给全球贸易带来了更大的压力。
+一名国会高级助理透露，拜登政府即将公布的军援中，可能包括重型地面火炮系统，例如榴弹炮等装备。这笔款项公布后，拜登政府对乌克兰的援助总额将超过30亿美元，其中有25亿美元是在俄罗斯入侵乌克兰后拨出。
 
-其它23个城市自上月以来也实施了全面或部分封锁。这些城市约有1.93亿居民，占中国人口总数的13.6%，贡献了23万亿元(3.6万亿美元)的GDP，占中国经济的22%。“由于封锁，在这些地区流动性已经被明显限制，对经济造成的损害正在加大，并不可避免的对其它国家和地区产生溢出效应。
+拜登早前在公开场合成普京为战争犯，并让律师们以国际标准决定是否符合种族灭绝标准。对此克里姆林宫强烈批评拜登的言论令人无法接受且不可饶恕，普京对此毫无放松对乌克兰的攻势，并忽视国际各国的指责。
 
-为此，世界银行(World Bank)周二下调了对中国2022年经济增长的预测，预计这个全球第二大经济体今年的经济增速将达到5%，远低于去年的8.1%。这也低于中国5.5%左右的官方目标。
+美国再次军援乌克兰，给乌克兰吃定心丸的同时也表达了拜登政府坚决抗俄的决心。在这场东西方阵营的大较量中，美国作为民主社会的灯塔国，绝不允许民主世界受到独裁侵略者的蚕食。乌克兰不单单是欧洲的屏障，如今更是民主世界的脸面，屏障不可丢，脸面更不能丢。普京已经戴上了种族灭绝战争犯的帽子，全力打一场必输的战争，离审判不远了！
 
-原文链接：
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3891312](https://news.ltn.com.tw/news/world/breakingnews/3891312)
 
-[https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+撰稿/发布：一叶知秋
 
-上传/发稿 – 【青青】
-撰稿/翻译 -【重生之鹰】
-素材/采编 -【重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
