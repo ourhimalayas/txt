@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 9:05 AM (UTC)`
+
+2022-04-013 | 新中国联邦法制基金乌克兰人道救援行动–波兰救援基地前线报道
+![img](https://media.gettr.com/group21/origin/2022/04/13/09/21c30c0c-1061-d31e-cb1c-f739a976cdc5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/13/2022 6:08 AM (UTC)`
 
 2022.04.10  新中国联邦 | 喜财经   传统银行与数字银行对比
@@ -163,13 +170,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 中共走狗郑介甫近日被澳洲驱逐出境<br/><br/>CCP's Running Dog Zheng Jiefu Expelled From Australia<br/><br/>
 ![img](https://media.gettr.com/group39/getter/2022/04/12/23/ad965ed1-cbd5-cc07-db59-6a9d5de78489/out.jpg)
-
----
-
-`@miles 4/12/2022 11:10 PM (UTC)`
-
-4/10/2022 Miles Guo: Lao Baixing rushed to take the COVID vaccines because of their ignorance and fear of death; dictators such as Xi Jinping and Putin are aware that only when Lao Baixing live in wars, fear and starvation, will the dictators themselves stay safe.<br/><br/>4/10/2022 文贵直播：老百姓抢着打疫苗是因为无知和对死亡的恐惧；独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全。<br/><br/>
-![img](https://media.gettr.com/group30/getter/2022/04/12/23/6a2edba2-7952-1a54-6608-38f845f9b195/out.jpg)
 
 ---
 
