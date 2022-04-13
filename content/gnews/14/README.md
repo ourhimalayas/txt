@@ -2,26 +2,49 @@
 ---
 
 
-## 比利时首相到访新中国联邦波兰救援中心
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2341600/)
+## 加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341618/)
 
-编译撰稿：加拿大温哥华扬帆农场 –晨熹
+2022-04-13
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16498723221.png)图片来源：Gettr
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0T0AIMF3R7M3RVM9LG3.png)屏幕截图：[Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+#### 加拿大正处于 COVID-19 的第六波浪潮中，谭咏诗医生说
+
+瑞秋·吉尔摩Rachel Gilmore  全球新闻Global News
+
+发布 四月 12， 2022 11：56 上午
+
+更新时间 四月 12， 2022 12：17 下午
+
+#### 已经证处于第六波COVID-19中
+
+加拿大顶级医生已经证实加拿大正处于第六波COVID-19中。
+
+全国最新上升的病例属于Omicron的BA.2亚变种，首席公共卫生官谭咏诗Theresa Tam医生周二表示。
+
+“这取决于加拿大不同的地区，但是总体上看来，可以说我们在加拿大正在经历第六波浪潮”，谭对记者说。
+
+“加拿大各地区的COVID-19病例都在增加”。
+
+#### 评论：
+
+还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。
+
+祝新中国联邦的无苗的，有币的 ， 灭共的战友们以及全世界人民顺利度过 5月份。
+
+#### 参考资料
+
+1. [Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
 
 
-据4月12日文贵先生盖特消息，欧美即将把香港剔除出国际金融及贸易体系，并率先将对港共政府高官及其海外亲属进行与对俄罗斯相同的严厉制裁。同时，美国政府将史无前例地从其驻上海领事馆开始，由之前的授权撤离改为战时状况下才出现的命令撤离。
+编辑：LILY
 
-消息指出，比利时首相亚历山大·德克罗当天到访了新中国联邦在波兰靠近乌克兰边境的梅迪卡救援中心，在接受了现场采访后，还主动与新中国联邦成员合影。文贵先生对此表示，比利时首相的到访开启了新中国联邦建国以来国际外交的新纪元，不仅意义重大，还充分体现出西方民主国家对铲除中共的新中国联邦的绝对认可和支持。
+发布：肥鯮
 
-此外，由于此前曾对美国参议院议长南希计划访问台湾所发出的战争恫吓，习近平政权目前已内乱外困。随着欧美与中共的经济，贸易，外交，金融以及文化的彻底脱钩，香港经济的即将崩塌，国内疫情灾难下的民怨沸腾以及美国政府对台湾的公开支持等，都预示着中共政权即将不可逆转的覆灭。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-原文链接： [https://gettr.com/post/p14y3tsd6bc](https://gettr.com/post/p14y3tsd6bc)
-
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
