@@ -2,29 +2,24 @@
 ---
 
 
-## 俄乌战争｜波兰等多国元首相继出访基辅 惟德国总统被拒诸门外
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338985/)
+## 前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337878/)
 
-**图/文｜CP **
-**发布时间｜13/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/波蘭等多國元首相繼出訪基輔-惟德國總統被拒諸門外.jpg)
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+美国前国务卿蓬佩奥在4月10日播出的一档节目中，呼吁拜登政府加大对台湾的扶持力度。 蓬佩奥指出，首先应当承认台湾是一个独立的主权国家，这不仅是一个正确的选择，也是一个符合美国国家利益的策略。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-32.jpg)
+美国对台湾的立场，不能像对待乌克兰一样重蹈覆辙，等到乌克兰面临巨大危险时，才想起援助武器并提供支持。蓬佩奥强调，习近平和普京一样，他们不会满足于浅尝辄止的扩张，他们对外侵略的野心欲壑难填。如果美国对乌克兰的态度不够坚决，势必会让习近平相信，拿下台湾甚至侵占东南亚，都并非不可能完成的任务。
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+参考链接：[20220410蓬佩奧國務卿談論台海危機](https://www.gettr.com/post/p14w2boe856)
 
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-波兰及波罗的海三国（立陶宛、拉脱维亚及爱沙尼亚）的总统，正前往乌克兰首都基辅，准备会晤乌克兰总统泽连斯基（Volodymyr Zelensky），这是俄罗斯入侵乌克兰之后，波罗的海三国总统首次到访基辅。不过，原定一同出访的德国总统施泰因迈尔（Frank-Walter Steinmeier），则因立场亲俄而不获乌克兰欢迎，最终未能成行。
-
-德国媒体周二（13日）报道，称总统施泰因迈尔承认，计划出访基辅的行程，因遭到泽连斯基的拒绝而作罢。施泰因迈尔表示，“显然，我必须承认，这（我的出访）不是基辅想要的”。
-
-施泰因迈尔不止一次在公开场合表态，希望西方国家恢复与俄罗斯接触，并一直支持兴建“北溪2号”天然气管，希望将俄罗斯天然气直送入德国。可惜，俄乌战争爆发后，“北溪2号”项目不得不宣布中止。
-
-虽然开战后，施泰因迈尔已作出让步，承认支持“北溪2号”是错误决定，还开口谴责俄罗斯总统普京，但由于德国总统是虚位元首，实际的政治领袖，即德国总理的立场摇摆，加上柏林与基辅之间向来关系紧张，因此，泽连斯基选择对德国继续持谨慎态度亦属常理。
-
-來源｜[Politico](https://www.politico.eu/article/ukraine-rejects-visit-by-german-president-frank-walter-steinmeier/)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+总编/编辑：天滅中共
+审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

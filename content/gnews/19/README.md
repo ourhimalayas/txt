@@ -2,32 +2,32 @@
 ---
 
 
-## 对内消灭不定因素 对外展开全球布局 习近平意图打垮美元 实现强国梦
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340952/)
+## 美欧对中共国的一系列脱钩与制裁即将展开
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341140/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-习近平自2012年上台，废除常委，建立国家安全委员会，通过反腐灭敌：第一拨，利用中共内部党派斗争，除掉政敌；第二拨，消灭富豪、寡头；第三拨，剔除具影响力的名人。
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-32.png)
+据文贵先生4月12日盖特直播报道，美国和欧盟目前正对香港贸易和经济地位进行重新定义，并将把香港金融市场踢出国际金融系统。此外，还将率先对香港政府官员进行大规模严厉制裁，制裁级别将与制裁俄罗斯相似。
 
-对外在国际上宣扬集权制，完成轴心板块和能源板块的积累。和普京结盟，助普京通过战争进行西扩，同时习近平拿下中东和巩固亚洲势力。他们最大的挑战是美元制裁。中共对此有所准备，拿下香港，目标台湾，希望通过控制80%的芯片生产，影响西方经济命脉。
+美国从过去的授权撤离上海总领馆人员到现在的命令撤离，这在中美历史上还是首次，接下来将会有很多国家陆续跟进撤离。未来中共国将成为零外交，外交关系将不如北韩。随后与中共在经济、外交、贸易、文化等领域的脱钩都将陆续到来。
 
-当世界的经济，科技生产，能源，矿产、原材料和粮食供应都被扰乱的时候，习认为这是中国老百姓和西方世界“拼谁能饿的久”的游戏。
+美欧与中共在军事上的对抗也即将展开。南海、东海，特别是东欧。整个欧洲将联合对抗中共国和俄罗斯。中共官员在海外藏匿的钱财和私生子女毫无疑问也将在制裁之列。
 
-自病毒开始，所有的计划就在习的控制之下，病毒疫苗灾难是大戏开演。
+原文链接：[https://gettr.com/post/p14y3tsd6bc](https://gettr.com/post/p14y3tsd6bc)
 
-**视频来源****: 20220410—****郭先生大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光**
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 晨熹
+素材/采编 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-**更多资讯，更多关注**
-[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
-[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

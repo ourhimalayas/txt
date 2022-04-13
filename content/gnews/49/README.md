@@ -2,31 +2,26 @@
 ---
 
 
-## 五角大楼：中俄正开发可打击美国卫星的武器
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2338418/)
+## 国际货币基金组织為乌克兰設立捐助专用账户
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337876/)
 
-**撰稿：日本东京方舟农场  子辰**
+作者：华盛顿DC农场 – 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+外媒11日报道，为了便于外界向乌克兰提供资金援助，国际货币基金组织执行董事会上周五批准设立了一个特别的专用账户，交由国际货币基金组织直接管理。 该建议最早由加拿大政府提出，并一次性援助了10亿加元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-30.jpg)
+报导指出，该账户将允许捐助者提供赠款和贷款，帮助乌克兰政府稳定经济，满足国际收支和预算方面的需求，同时，还可以拥有更多可调配资金以应对俄军入侵。
 
-4月12日，据五角大楼情报机构的消息，中共和俄罗斯在继续增加各自太空飞行器舰队的同时，仍在研发和部署能够攻击美国卫星的武器。
+乌克兰财政部长马尔琴科上周表示，目前，乌克兰需要大约 43.7 亿美元的外汇融资，以填补可能发生的预算短缺。 国际货币基金组织上个月还对乌克兰批准了一项 14 亿美元的拨款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1507.png)图片来自大纪元
+参考链接：[IMF sets up administered account to allow donors to fund Ukraine](https://www.reuters.com/world/imf-sets-up-administered-account-allow-donors-fund-ukraine-2022-04-11/)
 
-援引据彭博新闻社（Bloomberg）报导，美国国防情报局（Defense Intelligence Agency）发布的最新报告，基于中共和俄罗斯官员的声明和相关新闻报导，中共拥有多种不同功率水平的地基激光武器，可用于扰乱、削弱或损坏卫星，其中包括目前能力仍然有限的、只能破坏卫星传感器的激光系统。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-报告称，截至今年1月，中共的监视和侦查卫星群已包括了250多个系统，数量仅次于美国。报告称，中共解放军“拥有并操纵着世界上大约一半的ISR系统，其中大部分可以监视、跟踪和瞄准全球范围内的美国及其盟军的部队，尤其是在整个印太地区。这些卫星还使中共解放军能够监测潜在的地区热点，包括朝鲜半岛、台湾、印度洋和南中国海在内。
-
-与此同时，美国国防部说，俄罗斯方面认为美国对太空的依赖是美国的“阿喀琉斯之踵”。因此，它正在“寻求反太空系统以期抵消或阻绝美国的天基力量”，并且“可能会在21世纪20年代中后期部署更有能力破坏卫星的激光武器。”
-
-国防情报局表示，俄罗斯已经“拥有一些能够使卫星传感器失灵的地面激光武器”。
-
-此外，美国防情报局还表示，由于太空发射的数量不断在增加，使得近地轨道变得越来越拥挤。使近地轨道上发生与大型废弃物体碰撞的可能性也大幅增加。
-
-参考链接：
-
-[https://www.epochtimes.com/gb/22/4/12/n13710191.htm](https://www.epochtimes.com/gb/22/4/12/n13710191.htm)
-
-总编：老孙
-校对发布：wenxia16
+总编/编辑：天滅中共
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

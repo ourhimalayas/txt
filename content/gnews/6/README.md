@@ -2,36 +2,38 @@
 ---
 
 
-## 美命令非紧急雇员撤离上海
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341219/)
+## 俄乌战争对中共汽车产业的影响
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2341338/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-33.png)
-加拿大CTV新闻4月12日报道，美国务院11日命令非紧急政府雇员及其家属撤离上海。因中共”清零”政策，这个拥有2600万人口大都市的许多居民被强制在家封锁已长达三周以上。
+作者：文哲
 
-被困在家的人们感到日益绝望，不能出门，又无法获得充足的食物，而一旦病毒检测呈阳性，就会被送入脏乱差的大规模隔离中心。目前上海总感染人数已超过20万。
+截止目前，俄罗斯入侵乌克兰已有一个多月。然而，由于俄乌双方同为能源出口大国，两国交战所造成的全球能源恐慌正在助推油价突破100美元，并持续维持高位运行。
 
-美国务院表示，周一“命令”撤离是对上周”授权“撤离的升级，即强制撤离上海，而不是任其自行决定。该态势变化反映了美国政府对当前形势的评估。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-11.31.11-AM.png)
 
-国务院建议美国人重新考虑去中国旅行，鉴于当地法律和防疫措施的滥用，特别是”父母和孩子被分离 “的风险。北京对上周的自愿离境则做出了愤怒的回应。
+在中共国内，高油价直接增加了墙内民众的生活成本：92号汽油已经进入了8元时代，95号汽油也超过了9元。目前，车主加满一箱油相较先前需要多花费几十元人民币。同时，高油价也降低了老百姓的购车热情。
 
-虽然中共拒绝将强硬防疫政策同政治挂钩，但习近平要求社会稳定高于一切。据悉，他将在今年党代会上开展第三任任期。
+另一方面，俄罗斯还是金属镍的主要生产国。自战争开始后，伦敦期镍的价格从每吨两万九千多美元暴涨至每吨10万美元，创下历史新高。而作为新能源汽车的电池原材料，镍价格的大幅上涨也带动了电动汽车价格的全面上涨。据了解，特斯拉曾在一周内三次涨价，涨幅达到三万元人民币；而比亚迪和小鹏汽车等中共品牌也跟进涨价，涨幅大约在一万元人民币左右。
 
-原文链接：[https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244](https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244)
+当前，在主机厂调价以及油价居高不下的双重因素影响下，中共国内商用车在2月的销售量同比下滑了16%；3月的乘用车销量下滑了13%；重型卡车在3月的销量也同比下滑了67%，创下了该车型自2017年以来最差的三月销售成绩。
 
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 自由法兰西🇫🇷
-素材/采编 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+进入4月后，由于中共病毒疫情的反扑，中共国内长春和上海两大汽车城封城停产，这也势必将导致第二季度中共汽车市场雪上加霜。如果未来数月内中共病毒疫苗危机大爆发或台海再生战事，其将对中共消费市场造成更加严重的负面影响。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+为此，2022年必将是中共汽车产业及整个中共经济的崩溃之年。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+参考链接：
+1. [突发！一汽集团五大整车厂停产](https://chejiahao.autohome.com.cn/info/10347725)
+2. [紧跟新能源涨价潮！奔驰全系最高涨12.1万元](https://m.sohu.com/a/535083851_290112/?pvid=000115_3w_a)
+3. [2021年3月17日上海油价调整最新消息(附价格表)](http://m.sh.bendibao.com/news/238251.html)
+4. [http://gu.sina.cn/ft/hq/hf.php?symbol=NID&autocallup=no&isfromsina=no](http://gu.sina.cn/ft/hq/hf.php?symbol=NID&amp;autocallup=no&amp;isfromsina=no)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：Irene木木
+编辑：飞虹
+审核：飞虹
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

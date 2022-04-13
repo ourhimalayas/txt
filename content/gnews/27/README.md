@@ -2,34 +2,19 @@
 ---
 
 
-## 又有12家中概股公司被列入SEC预摘牌名单
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2340825/)
+## 视频文编|上海帮名存实亡 江后继无人 曾被严加看管
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2340904/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/mfile_1622552_1_20211203080239-1-scaled.jpg)
-当地时间4月12日，美国证券交易委员会将中共国12家公司添加到观察名单中。根据SEC的要求，这12家公司需要在截止日5月3日前提供证据表明仍然符合上市的条件。这12家公司分别为Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
+撰稿：东京樱花团/旺宛宛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-13_233226.png)
+在习近平眼里上海帮早就瓦解不存在了。从2019年11月起，江泽民、朱镕基、曾庆红等人所有的警卫，从原来的固定制改为每月制和随时调整制。警卫人员的调配，全是听从习近平的大秘书朱少军的亲自安排。说明江、朱、曾早已被监管着，没有自由。上海的书记、政法委书记、公安局正副局长、武警部队政委等等全都是习近平的亲信，上海帮早已名存实亡。
 
-据悉这是自3月以来SEC发布的第四批中概股公司名单，根据规定，若这些公司不能在规定时间内提交SEC要求的文件或者文件不符合要求，他们将面临被披露后立即除名的后果。中概股涉及到的公司不乏中共国的互联网巨头公司，如微博、百度、爱奇艺、搜狐等。
+消息来源：
+[2022年4月10日《文贵大直播》](https://gettr.com/streaming/p14iwpvf134)
 
-郭先生此前提到，美国会先制裁一批中共国的喉舌大外宣公司。微博是中共国的社交媒体巨头，而百度、搜狐、爱奇艺是搜索、新闻和视频平台的巨头，这些平台都具有严格的言论审查，并且是中共假宣传洗脑的主要公共平台。
-
-reference：
-
-[https://www.stcn.com/xw/sd/202204/t20220413\_4352889.html](https://www.stcn.com/xw/sd/202204/t20220413_4352889.html)
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+编辑：东京樱花团/荆轲
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
