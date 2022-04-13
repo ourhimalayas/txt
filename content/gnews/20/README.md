@@ -2,51 +2,39 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.13)–辉瑞疫苗对身体的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339472/)
+## COVID-19疫苗副作用集萃（2022.4.13）–混打新冠疫苗，智飞第三针加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339743/)
 
 #### 雅典娜情报组《疫苗灾难收集专栏》
 
-整理/编辑：禄森
+整理/编辑：红红火火
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
 
 
 【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
 [副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**帖子原文**：
+**博主:蔡司影像**
 
-**博主: Everdene**
+**帖子原文：**
 
-**辉瑞第三针副作用**
+**原来我不是一个人第三针**
 
-辉瑞第三针booster
+314打的刚结束三月份的姨妈就去打了， 打的安徽智飞算是序贯免疫前两针都是北京科兴，没有任何不舒服甚至反应还没前两针大，正当我洋洋得意时！！
 
-昨天中午打完第三针，从4点睡到6点。然后又从8点睡到第二天早上10点
-
-今天吃完午饭试图写作业，但是脑子昏昏沉沉，心慌的很，现在躺在床上，又控制不住想睡过去…..然后感觉有点心慌
-
-除了胳膊痛，其他没有症状，这样正常吗？
-
-**#****辉瑞第三针 #辉瑞疫苗副作用**
-
-**作者发布于2022-4-7**
-
+一向姨妈每个月要提前至少三天且量多又痛得要死的我，居然推迟了五天才来，而且量少的可怜褐色而且肚子毫无感觉，我真服了，不知道下个月会怎么样 后遗症也忒可怕了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1559.png)
 **精选评论**
 
-Zhouhong评论:
+库里里里里里家废柴少女评论:
 
-有发烧了吗？打第二针时高烧了一天，所以现在第三针有点犹豫了
-
-一颗肉丸评论:
-
-我也是犯困胳膊疼
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1548.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1549.png)图片来源：小红书
+我第三针打了安徽智飞，然后来了一次月经后隔了十天又来了，然后现在第八九天都是可怜的褐色，但是周围的人都叫我别太焦虑，因为旁边也有人和我情况一样
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1560.png)图片来源: 小红书
 参考链接：
 
-[奢睡，头昏，心慌，胳膊痛](https://www.xiaohongshu.com/discovery/item/624eedec000000002103a9b9?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729553)
+[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
 发布：tianzhihuan
 

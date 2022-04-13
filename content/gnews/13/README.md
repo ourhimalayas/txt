@@ -2,48 +2,27 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.13）–混打新冠疫苗，智飞第三针加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339743/)
+## 有声｜俄媒承认：制裁导致1994年以来最大衰退
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2339820/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+By:**秘翻新闻**
 
-整理/编辑：红红火火
+**2022-04-13**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/413-4.png)
+[路透社](https://www.reuters.com/world/europe/russia-revises-forecasts-gdp-fall-more-than-10-2022-ria-cites-official-2022-04-12/)4月12日报道，俄罗斯前财政部长库德林周二表示，俄罗斯经济有望在2022年萎缩10%以上，这将是自1994年以来国内生产总值的最大降幅。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
+在西方实施严厉制裁以惩罚俄罗斯入侵乌克兰后，俄罗斯正面临着通胀飙升和资本外逃的问题，同时还要应对可能发生的债务违约。
 
+俄罗斯通讯社援引曾在2000年至2011年担任普京财政部长，现任该部审计负责人的库德林的描述，称俄罗斯经济和财政部目前正在制定新的预测，官方预测将收缩超过10%左右。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+根据世界银行和国际货币基金组织的数据，10%的收缩将是自1994年以来国内生产总值的最大降幅。世界银行本月预测，俄罗斯今年的GDP产出将下降11.2%。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+（秘翻新闻 自由信仰 编译报道）
 
-**博主:蔡司影像**
+发布 : 文橙
 
-**帖子原文：**
-
-**原来我不是一个人第三针**
-
-314打的刚结束三月份的姨妈就去打了， 打的安徽智飞算是序贯免疫前两针都是北京科兴，没有任何不舒服甚至反应还没前两针大，正当我洋洋得意时！！
-
-一向姨妈每个月要提前至少三天且量多又痛得要死的我，居然推迟了五天才来，而且量少的可怜褐色而且肚子毫无感觉，我真服了，不知道下个月会怎么样 后遗症也忒可怕了
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1559.png)
-**精选评论**
-
-库里里里里里家废柴少女评论:
-
-我第三针打了安徽智飞，然后来了一次月经后隔了十天又来了，然后现在第八九天都是可怜的褐色，但是周围的人都叫我别太焦虑，因为旁边也有人和我情况一样
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1560.png)图片来源: 小红书
-参考链接：
-
-[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

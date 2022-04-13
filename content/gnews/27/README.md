@@ -2,31 +2,31 @@
 ---
 
 
-## 樱花灭共诗——武斗（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
+## 台湾｜瑞典及欧洲议会议员访台之际 外长吴钊燮专访谈台欧关系、中共对台威胁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2339338/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
+**港台前线 zhong｜2022-4-13**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-23.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+瑞典国会及欧洲议会议员首次联合组团访台，10日抵达台湾，12日与总统蔡英文视讯会晤。对于本次访台行程，台湾外交部发新闻稿称“近年台欧关系蓬勃发展、双方友好合作关系迈向新里程碑”。
 
-沪上纷纭军管至，四围浦江战车鸣。
+## 具体行动展现对台湾的支持
 
-不习十载文革乱，莫尽一尊武斗形。
+欧洲议会上去年通过史上第一份“台欧盟政治关系暨合作”报告，法国、爱尔兰、丹麦、义大利等国议会也纷纷通过友台决议案，欧洲议会及法国、波海三国、瑞典等会员国陆续筹组议员团访台。
 
-市委夺官民怨解，社区圈禁党旗兴。
+## TaiwanPlus专访谈“台欧关系、中国对台威胁、俄乌战事的启示”
 
-摇旗赚取笼中鸟，交口感恩白卫兵。
+外长吴钊燮表示，欧盟与台湾加强关系，是基于台湾与欧盟及会员国共享自由、民主及人权普世价值。此外，中共战狼外交也警醒欧盟成员国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
+2021年中共有近千架次军机侵扰台湾防空识别区，也不断对台湾发动假讯息、混合战及网路攻击等，美国拜登政府持续对台军售，展现对台湾国防的高度重视。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+俄乌战争中，乌克兰能坚持抵御是全国人民强大自卫决心，并运用不对称战力，台湾将借镜，并继续与理念相近国家共同抵御威权侵略。
+
+来源｜外交部
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

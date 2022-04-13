@@ -2,31 +2,33 @@
 ---
 
 
-## 今日盖特大V推荐 — 路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339279/)
+## 有声｜上海阳性病人被拉到方舱工地 自搭床铺 千人一厕未通水
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2339462/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1529.png)
-盖特链接：[** https://gettr.com/user/luislacombereal**](https://gettr.com/user/luislacombereal)
+By:**秘翻新闻**
 
-**路易斯·埃内斯托·拉科姆自述：**
+**2022-04-13**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-17.png)
+[新唐人](https://www.ntdtv.com/gb/2022/04/12/a103398727.html)北京时间4月13日消息，上海野蛮清零，但隔离场所严重不足，造成一片混乱。网传视频显示，大量阳性病人被拉到温家荡工地，自己动手建方舱，条件恶劣到令人目不忍睹。
 
-记者、主持人和作家。 建议访问我的网站并了解我的社区
-**[\[email protected\]](/cdn-cgi/l/email-protection#2945484a46444b4c694b5b485a4045444c4d404841465c5a4c074a4644)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1530.png)图片来源：网络
-**路易斯·埃内斯托·拉科姆简介：**
+据网友爆料，该网友4月7日前后被大巴车送到上海浦东的温家荡隔离点，半夜12点左右抵达大门外，直到凌晨5点，该隔离点才打开大门让大巴进入。
 
-路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe Heilborn，生于1966年8月2日）是巴西记者、主持人、作家和YouTuber。
+但众人进入隔离点后看到的不是整齐的隔离房，而是还未完工的工棚，里面一片狼藉，遍地是建筑材料和建筑垃圾。
 
-路易斯·埃内斯托·拉科姆先后主持了“夜晚·曼切特河、环球新闻、早安巴西、空中观点”等节目；著有三部“十四行诗集”和一部小说。
+有的隔离间已经上了隔板，但是没有门，隔离间内除了几个简易床，什么都没有。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+由于无人安置病人，大家开始抢物资，有的还需要自己动手，打扫卫生，搭建床铺，或就地打地铺。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+该网友称，一个上千人的方舱，只有一个厕所，一个马桶。而且由于没有完工，马桶没有通水，无法冲洗。
 
+据称，该隔离点工作人员表示，病人们到这里“是来观察的，不是来诊疗的”，所以也没有药品提供给需要的病人。
+
+秘翻新闻 二丫/Julia编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
