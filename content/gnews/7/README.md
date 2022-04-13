@@ -2,28 +2,24 @@
 ---
 
 
-## 樱花时政┃石破惊天，一学校禁止言论
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338855/)
+## 樱花灭共诗——武斗（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-66.jpg)[图片来源](https://keithkrach.com/news/the-u-s-will-overthrow-the-ccp-firewall/)
-一则学校发给学生的消息在网上流出
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1518.png)
+沪上纷纭军管至，四围浦江战车鸣。
 
-简单概括一下：
+不习十载文革乱，莫尽一尊武斗形。
 
-1.微信抖音等各种软件，头像最简单化；
+市委夺官民怨解，社区圈禁党旗兴。
 
-2.不允许在任何媒体发表任何言论，包括朋友圈，不得评价任何信息；
+摇旗赚取笼中鸟，交口感恩白卫兵。
 
-3.解散所有小群，2.3个人的也不行；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
 
-大数据时代，中共天眼无处不在，公安随时介入！
-
-文革2.0就在身边，绿色军装变成简单头像，开口闭口毛语录变成网上正能量话术，红卫兵变成白大褂，人与人之间噤若寒蝉变成网络禁言，不久的将来，会愈演愈烈，华夏土地又一场灾难已经降临！
-
-编辑：东京樱花团/喜马拉雅的微尘
+校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****

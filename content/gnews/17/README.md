@@ -2,12 +2,12 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.13）新冠疫苗第三针不良反应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338542/)
+## COVID-19疫苗副作用集萃(2022.4.13)–康希诺疫苗对身体副作用危害
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338641/)
 
 #### 雅典娜情报组《疫苗灾难收集专栏》
 
-整理/编辑：gardeniahu
+整理/编辑：禄森
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
 
@@ -16,25 +16,39 @@
 
 [副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-原文作者：郭大欣儿
+**帖子原文**：
 
-**疫情|新冠疫苗副作用     新冠疫苗第三针不良反应**
+**博主: GG李**
 
-刚打完，不怎么疼，还没第二针疼。但是观察完回来开始开始头晕恶心。多久可以恢复好了。
+**打完康希诺的第五天**
 
-#新冠疫苗第三针
+我终于活过来啦，昨晚睡前退烧了，到今早也正常36多，求求别再反复了！现在针眼那一块还是不能碰，抬手也会疼，再就是之前发烧那么多天，人很虚，容易出汗，看来得补一补。
 
-发布于04.11
+**#****康希诺疫苗 #序贯免疫**
 
-精选评论
+**作者发布于2022-3-30**
 
-踢足球的瑜伽爱好者回复：我昨天打完，昨凌晨开始发烧，今早闷汗退了以为好了，结果，又烧了，怎么办咧。
+**精选评论**
 
-菁菁回复：自从我打了第三针一直感冒。
+Z1985评论:
 
-存在你的村寨回复：第二天发烧到39度，浑身疼。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1512.png)图片来源：小红书
-参考链接：[新冠疫苗第三针不良反应](https://www.xiaohongshu.com/discovery/item/6253e4460000000021038564?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729233)
+我昨天打的这个，晚上开始发烧，持续一天一夜了，一直都是37.8 9不超过38，但是真难受，浑身酸痛，忍不住吃了布洛芬
+
+小U菜的健康生活评论:
+
+我打了2针康希诺，第一张时手臂疼了几天，第二针有经验了，因为国外打辉瑞和莫纳德反应严重，但是国外医生建议大量补充VC，所以我康希诺第二针前也大量VC，所以这次一点感觉都没有。所以你也可以服用VC
+
+呀呀呀评论:
+
+我烧了整整两天了，康希诺
+
+啵啵小霸评论:
+
+康希诺真的是猛男针，我当天打当天烧到38°，浑身疼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1513.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1514.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1515.png)图片来源：小红书
+参考链接：
+
+[高烧，手臂痛，出虚汗](https://www.xiaohongshu.com/discovery/item/6243ae5a000000000102fedc?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729264)
 
 *发布：tianzhihuan*
 

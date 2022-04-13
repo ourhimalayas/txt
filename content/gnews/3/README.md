@@ -2,178 +2,44 @@
 ---
 
 
-## 超越比特币的加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2338964/)
+## 乌克兰的战争蔓延到俄罗斯、塞尔维亚和斯洛伐克的领土（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2339094/)
 
-Charles Payne (Fox Business)
-查尔斯·佩恩（福克斯商业频道）
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-23.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-13-110428.jpg)图片来源:infobae.com
 
-Let’s talk about this defy revolution, right?
-让我们谈谈这场去中心化金融革命，对吧？
+与基辅北部和周边地区不同的是，普京的部队在遭受重大伤亡和严重的供应短缺后被迫撤出，现在战役发生的地形对俄罗斯部队、重型车辆和坦克的移动更为有利。他们也更接近进入俄罗斯境内的补给线和更紧凑的战斗空间。最重要的是，占领军可以在俄罗斯境内有一个非常紧密的后方，也可以从那里攻击乌克兰人。美国参谋长联席会议主席马克-米利将军星期四在华盛顿告诉参议院军事委员会，“现在的地形更加开放，适合双方的进攻性机械化装甲行动”。乌克兰外交部长德米特罗-库莱巴告诉北约成员，“顿巴斯之战将使你们想起第二次世界大战”。
 
-Because it’s supposed to get to your point just now
-因为它现在应该达到你的目的
+然而，应该指出的是，不仅俄罗斯和乌克兰的部队都被严重削弱，而且他们需要更适合这一阶段战争需要的新武器。这就是为什么过去几小时的武器流动是至关重要的，可能会扭转冲突的趋势。在运送这些武器的过程中，任何错误、事故或误判都可能点燃其他战争场景的导火索。
 
-have the universal benefits
-有普遍的好处
+在贝尔格莱德的尼古拉-特斯拉机场拍到了带有军事标志的中共国货机。而塞尔维亚国防部并没有报告为什么在这个时候接收这些武器装备。运送过程中，中共国货机至少飞越了两个北约成员国，即土耳其和保加利亚的领土。《战争地带》写道：“Y-20战斗机的出现更加引人注目，因为它们是集体飞行，而不是一系列的单机飞行。Y-20飞机以任何数量出现在欧洲也是一个史无前例的事件。” 而塞尔维亚军事分析家亚历山大-拉迪奇认为，中共国展示了他们的武力，似乎在说“我们在这里，不要忘记我们”。
 
-And yet there’s a piece in The Atlantic says is going to recreate the 2008 financial crisis
-然而《大西洋月刊》有一篇文章称将重现 2008 年的金融危机
+布拉迪斯拉发政府移交S-300导弹的做法更容易预测，但仍是一种潜在的危险行为。斯洛伐克总理在脸书上澄清，捐赠该系统并不意味着斯洛伐克这个北约国家已经成为乌克兰武装冲突的一方。泽伦斯基总统在通过视频会议向美国国会发表讲话时，特别要求提供这种武器装备用于防卫。泽连斯基说：“俄罗斯将乌克兰的天空变成了成千上万人的死亡之源。你知道我们需要什么样的防御系统，S-300和其他类似系统。”
 
-Listen, when I read these things, I’m just saying
-听着，当我读到这些东西时，我只是在说
+北约迄今一直拒绝干预战争，但在显示俄罗斯士兵暴行的视频发布后，30个成员国就可以放手进行任何单独的武器交付。西方军事防御组织秘书长延斯-斯托尔滕贝格说，一些成员国愿意增加对乌克兰的武器供应。有可能会像波兰和波罗的海共和国等国家在战争开始时承诺的那样，加紧进行武器交换。美国总统拜登周五表示，美国支持斯洛伐克向乌克兰发送S-300导弹的决定，作为回报，美国正在向这个东欧国家转让一套爱国者导弹防御系统作为替代。拜登在指责俄罗斯军队犯下“可怕的残暴行为”后说：“现在不是自满的时候”。
 
-you know who even who’s the one who’s pushing these sorts of articles?
-你知道是谁在推荐这类文章吗？
+这种导弹系统的交换是权力平衡的一个重要转变。布查、伊尔平和其他许多被俄国人占领的城镇的屠杀，使那些直到现在还声称支持乌克兰，但不能直接提供武器装备的领导人的心软了，以免挑起“第三次世界大战”。他们提出了新的问题：中共国人是否向塞尔维亚运送最先进的导弹系统，以便转让给俄罗斯人？ 这些系统能否从俄罗斯使用而不进入乌克兰领土？ 俄罗斯是否会认为斯洛伐克向乌克兰运送武器援助是一种侵略行为，并攻击布拉迪斯拉发？北约是否会认为北京运送导弹是一种敌意行为？
 
-Michael Saylor (American entrepreneur)
-迈克尔·塞勒 (美国企业家)
+答案将与当地的战斗联系在一起。本周，俄罗斯坦克和导弹炮台将在整个顿巴斯地带进行大规模和不分青红皂白的攻击。
 
-You know, if you look at the millennials
-你知道，如果你看看千禧一代
+【完结】
 
-if you’re below the age of 40, you’re looking at the world saying
-如果你不到40岁，你就在看着这个世界说
+新闻来源：[La guerra de Ucrania se extiende al territorio ruso, a Serbia y a Eslovaquia: tres posibles escenarios para el futuro](https://www.infobae.com/america/mundo/2022/04/11/la-guerra-de-ucrania-se-extiende-al-territorio-ruso-serbia-y-eslovaquia-tres-posibles-escenarios-para-el-futuro/)
 
-This is hopeless. I got no savings account
-这是没有希望的, 我没有储蓄账户
-
-I’ve got no chance of catching up with inflation
-我没有机会赶上通货膨胀
-
-I’ll never be able to buy a house
-我永远买不起房子
-
-Everything’s broken and they see a solution
-一切都不好了，而他们看到了解决方案
-
-and the new crypto economy, so they’re enthusiastic
-和新的加密经济，所以他们对此很狂热
-
-Of course, the critics and skeptics and intellectuals will over intellectualize this
-当然，批评者、怀疑者和知识分子会过度理智化这一点
-
-and worry about every way that it can break
-并担心它可能破坏的每一种方式
-
-And I guess that’s their role, and the regulator’s worry as well
-我想这是他们的角色，也是监管机构的担忧
-
-Ultimately, I think that will work out all of those issues
-最终，我认为这将解决所有这些问题
-
-And people need a solution to their problem of how do they save their money
-人们需要解决他们如何存钱的问题
-
-and how do they move their money?
-他们如何转移资金？
-
-And that’s why there’s such incredible enthusiasm for Bitcoin and all of these crypto technologies
-这就是为什么人们对比特币和所有这些加密技术如此狂热的原因
-
-Charles Payne
-查尔斯·佩恩
-
-So when you get the kind of scathing critique from Charlie Munger, or Warren Buffett
-所以当你从查理·芒格或沃伦·巴菲特那里得到那种严厉的批评时
-
-can we just chalk it up to that they’re old
-我们可以把它归结为他们老了吗
-
-Michael Saylor
-迈克尔·塞勒
-
-I think eventually everybody is going to adopt this
-我想最终每个人都会接受这个（加密技术）
-
-Every single day another big bank adopts Bitcoin
-每天都有另一家大银行采用比特币
-
-The big investors just got the green light from the president United States
-大投资者刚刚得到美国总统的批准
-
-A couple of weeks ago with that executive order
-几周前的有的行政命令
-
-JP Morgan’s come around
-摩根大通要来了
-
-Bank of America is coming around
-美国银行要来了
-
-Goldman Sachs is coming around
-高盛要来了
-
-Black Rock is coming around
-黑石要来了
-
-It is just a matter of time
-只是时间上的问题
-
-Charles Payne
-查尔斯·佩恩
-
-Michael last, Bitcoin has moved in perfect symmetry with the pace of the money supply
-迈克尔最后，比特币与货币供应的步伐完美对称
-
-So the Feds removing the Punchbowl
-所以美联储取消了庞氏骗局
-
-is that going to hold back the price a little bit?
-这会稍微抑制通胀吗？
-
-Michael Saylor
-迈克尔·塞勒
-
-You know, my view is this is a great opportunity for the holder some in Bitcoin
-你知道，我的观点是，对于比特币中的一些持有者来说，这是一个很好的机会
-
-looks a lot like rescue today than it was two years ago
-与两年前相比，今天看起来更像救援
-
-So if your dollar cost averaging, you should be grateful for this opportunity
-因此，如果您的美元成本正在平均，您应该感谢这个机会
-
-I do think all the assets have taken a pause
-我确实认为所有资产都暂停了
-
-and there’s look, there’s a bit of tension between the Fast Money traders
-你看，在那些并不真正了解比特币的快钱交易员
-
-that don’t really understand Bitcoin and the informed holders
-和那些为未来十年或更长时间持有比特币
-
-that are holding it for the next decade or longer to get to their grandkid
-的知情者之间存在着一些矛盾
-And I think over time what we’re going to find is
-我认为随着时间的推移我们会发现的是
-
-the fast the fast Money traders are going to get informed
-快速的货币交易者会得到信息
-
-and the holder is going to get the money
-而持有者会拿到价值
+【[接上篇：乌克兰的战争蔓延到俄罗斯、塞尔维亚和斯洛伐克的领土（一）](https://gnews.org/zh-hans/2339043/)】
 
 * * *
 
-Date:04/112022
-原视频标题: Crypto to watch beyond Bitcoin
-超越比特币的加密货币
-原视频日期：2022/04/11
-原视频链接**[https://twitter.com/saylor/status/1513595652474875907?s=21](https://twitter.com/saylor/status/1513595652474875907?s=21)**
-任务编号：KE477（4232）
-视频时间段 : 2:31-4:55
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+审核：Aries的星
+校对：花羽
+发布：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-17.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
