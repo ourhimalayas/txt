@@ -2,12 +2,12 @@
 ---
 
 
-## 【乌克兰救援】爱沙尼亚志愿者认为新中国联邦给中国和世界人民带来希望
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2337508/)
+## 4月13日乌克兰救援行动（图片1-7）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2337544/)
 
-【乌克兰救援】04/11/2022 妮可战友在梅迪卡营地采访了一名苏联解体前出生于爱沙尼亚的志愿者，他知道专制独裁对人民的洗脑和毒害，所以他非常理解中国人为什么必须摆脱共产党的统治。他认为新中国联邦不仅给中国人民带来希望，也给世界其他反对中共的人们带来希望。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/74ADEB19-75A6-4F62-9351-0DF18B271B5F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/15A02085-A6CB-4907-9C98-4DF83E19D7B8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/AAEA7102-F8A9-4AFB-B795-3DDA24E23B73.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/45AE382D-1137-462C-B67A-F61A65910085.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/561DCB90-1725-47ED-8701-BF5DAA64B353.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/EB417B17-D01F-41FC-88B8-F81A8A4C14A9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/575E982C-E80B-4D4D-8BC6-C01BCCA08ECE.png)
+发布：科存
 
  
 

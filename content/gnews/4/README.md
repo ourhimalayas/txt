@@ -2,39 +2,77 @@
 ---
 
 
-## 拜登指责普京的部队在乌克兰犯下种族灭绝罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337608/)
+## 英国首相鲍里斯·约翰逊表示，英国和德国对普京的入侵感到震惊
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337632/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+Boris Johnson (Prime Minister of the UK)
+鲍里斯·约翰逊（英国首相）
 
-#### 翻译/编辑：小红帽
+it’s pleasure to welcome you Olaf to Downing Street
+很高兴欢迎奥拉夫来到唐宁街
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ABC_NEWS.jpg)图片来源：ABC NEWS
+The friendship between our two countries, between Britain and Germany
+自从普京对乌克兰发起野蛮侵略以来
 
+has become even more vital since Putin launched his barbaric onslaught against Ukraine
+我们两国英国和德国之间的友谊，这一点变得更加重要
 
-根据CNA4月13日报道，美国总统拜登周二（4月12日）指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，这是拜登政府首次使用这一术语。
+bringing war into our continent
+因为俄罗斯将战争带到了欧洲
 
-“是的，我称之为种族灭绝，”拜登告诉在爱荷华州与他同行的记者，当被问及他在当天的一次演讲中使用该词时。
+I know that Britain and Germany share exactly the same sense of horror
+我知道英国和德国有着完全相同的恐惧感
 
-拜登表示，最终将由法院来决定俄罗斯在其前苏联邻国的行动是否构成种族灭绝。
+and revulsion at the brutality being unleashed
+以及对施行的暴行的反感
 
-在全球的愤怒中，拜登将普京描述为“战争罪犯”，并呼吁他为所谓的暴行接受审判。但是，由于“种族灭绝”一词的严格法律定义和这一指责所带来的沉重影响，美国一直没有按照长期协议使用该词。
+including the unconscionable bombing of refugees fleeing their homes this mornin
+包括今天早上对逃离家园的难民进行非人道的轰炸
 
-根据国际法，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。
+Germany and the UK also share exactly the same conviction that Putin must fall in Ukraine
+德国和英国也有着完全相同的信念，即普京必须在乌克兰上失败
 
-根据联合国公约，这包括通过杀戮；严重的身体或精神伤害；施加致命的条件和措施阻止生育，以及其他手段。
+which is why we are working together in the G7 to toughen our sanctions
+这就是我们在G7中共同努力加强实施制裁的原因
 
-种族灭绝被认为是最严重的国际罪行，最早是用来描述纳粹大屠杀的。它于1948年在联合国的一项公约中被确定为国际法下的一项罪行。
+and target every pillar of the Russian economy
+并瞄准俄罗斯经济的每一个支柱
 
-资料来源：[Biden accuses Putin’s forces of ‘genocide’ in Ukraine](https://www.channelnewsasia.com/world/biden-accuses-putins-forces-genocide-ukraine-2622651)
+in order to cut off funds from his war machine
+以切断他的战争机器的资金
 
-发布：*wenly*
+We face the new reality created by Putin’s invasion
+我们面对普京入侵造成的新现实
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+I know that British and Germany will meet this challenge together
+我知道英国和德国将作为民主和自由的
+
+as passionate advocates of democracy and freedom
+热情倡导者和乌克兰的忠实朋友
+
+and both committed friends of Ukraine
+共同迎接这一挑战
+
+原视频链接: [https://twitter.com/borisjohnson/status/1512695924723789828?s=24](https://twitter.com/borisjohnson/status/1512695924723789828?s=24)
+
+Date:04/10/2022
+原视频标题: UK Prime Minister Boris Johnson said that Britain and Germany are horrified by Putin’s invasion and have agreed that our two countries must go fur-ther to help Ukraine
+英国首相鲍里斯·约翰逊表示，英国和德国对普京的入侵感到震惊，并对两国必须进一步帮助乌克兰而达成一致
+原视频日期：2022/04/10
+原视频链接https://twitter.com/borisjohnson/status/1512695924723789828?s=24
+任务编号：KE476（4220）
+视频时间段 : 0:00-1:24
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
