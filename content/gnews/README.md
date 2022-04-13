@@ -15,68 +15,68 @@
 
 ---
 
-### [美国国家安全顾问沙利文称正在加快加大对乌克兰的武器援助](/content/gnews/1/README.md)
- ` 加拿大温哥华英里农场`
-
-### [俄乌战争可能进一步升级 ，普京终将失败](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [乌克兰拒绝接受德国总统访问](/content/gnews/3/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [普京儿时的精神创伤与大俄罗斯帝国梦和下场](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [【秘翻时评】 台湾鹰式飞弹罕见现身市区操演](/content/gnews/6/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [比利时首相到访新中国联邦波兰救援中心](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [乌克兰难民妇女被迫卖淫谋生](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [在其滥用世贸组织20年后，美国应追究中共国的贸易责任](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [由于德国过去宣传亲俄政策，乌克兰拒绝其总统的访问](/content/gnews/11/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国政府命令其外交人员迅速撤离上海](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [美国需要直接制裁普京本人](/content/gnews/2/README.md)
+ ` GTV News Talk`
 
-### [【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机](/content/gnews/13/README.md)
- ` G-时新闻`
-
-### [美国航母和日本防卫队在日本海联合演习](/content/gnews/14/README.md)
+### [美CDC将旅行口罩强制令再延长15天](/content/gnews/3/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [广州机场以疫情为由关闭入境通道](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [美国国家安全顾问沙利文称正在加快加大对乌克兰的武器援助](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
 
-### [4/10/2022 文贵直播: 中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
+### [俄乌战争可能进一步升级 ，普京终将失败](/content/gnews/5/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [文贵先生盖特精要- 2022/04/13](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [居民怒怼上海市领导、习近平的心腹：&#8221;没有食物&#8221;&#8221;知耻吗&#8221;](/content/gnews/20/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G时新闻】保卫Azovstal 钢铁厂的武装部队遭受俄罗斯军队化学武器攻击](/content/gnews/21/README.md)
+### [乌克兰拒绝接受德国总统访问](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【秘翻时评】 台湾鹰式飞弹罕见现身市区操演](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [比利时首相到访新中国联邦波兰救援中心](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰难民妇女被迫卖淫谋生](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [在其滥用世贸组织20年后，美国应追究中共国的贸易责任](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [由于德国过去宣传亲俄政策，乌克兰拒绝其总统的访问](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国政府命令其外交人员迅速撤离上海](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机](/content/gnews/16/README.md)
  ` G-时新闻`
+
+### [美国航母和日本防卫队在日本海联合演习](/content/gnews/17/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [4/10/2022 文贵直播: 中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [文贵先生盖特精要- 2022/04/13](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`

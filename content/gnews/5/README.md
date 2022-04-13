@@ -2,48 +2,53 @@
 ---
 
 
-## 普京儿时的精神创伤与大俄罗斯帝国梦和下场
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341635/)
+## 俄乌战争可能进一步升级 ，普京终将失败
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341649/)
 
 2022-04-13
 
-作者：卢卡斯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4@JNXNDVZY8FGWRVM@Z77.png)图源：[普京沙俄帝国梦复辟 自由与专制对决就在乌克兰](https://www.rfa.org/cantonese/commentaries/dcwatcher/dcwatcher-03022022083916.html)
-普京儿时的精神创伤
+作者：卢卡斯，沉默老歌，16626，88JJ
+![](https://assets.gnews.org/wp-content/uploads/2022/04/QW1U7O16NFYQWG@NA.png)屏幕截图：[https://www.journaldemontreal.com/2022/04/10/lextra-dygreck](https://www.journaldemontreal.com/2022/04/10/lextra-dygreck)
+俄乌战争可能进一步升级
 
-心理学分析表明：一个人在儿童时期的所遭受的精神创伤是刻骨铭心的，将影响其成年后的思维和行为方式。俄国总统普京童年的苦难对他内心造成的精神创伤，正投射在当前的俄国入侵乌克兰的战争上。普京儿时的黑暗历史是我们一个了解他的思想和行为逻辑的一个窗口，我们从中可以找到答案[1]。
+2022年 4月10号和11号，郭先生在他的盖特直播中指出（[https://gettr.com/streaming/p14iwpvf134](https://gettr.com/streaming/p14iwpvf134) ，[https://gnews.org/zh-hans/2325152/](https://gnews.org/zh-hans/2325152/)， [https://gnews.org/zh-hans/2324634/](https://gnews.org/zh-hans/2324634/) ，[https://gettr.com/post/p14p9pd7e23](https://gettr.com/post/p14p9pd7e23)    ），
 
-普京1952年出生在列宁格勒（今圣彼得堡），这个城市在二战中被纳粹德军围困长达三年，这里发生过世界上最具破坏性的种族大屠杀（三百万人口中的大多数死于战火中，饿死人数达到1百万）；普京的父亲在战争中严重受伤，其母亲几乎饿死。普京一家与另外两家生活在一座老鼠横行的公寓中，没有暖气、热水、浴盆，只有一个破旧的马桶。普京的父亲在工厂做工，母亲打零工；他们的头两个孩子死于战火中，普京是他们的第三个孩子，父母挣扎着生活在死亡线上，无法照顾他的生活，以致他只能自己照顾自己，并饱受邻近儿童的霸凌。普京从父母那里继承了纳粹带给他们的战争创伤：生存威胁，城市被毁灭，亲朋受屠戮。除父母外，普京没有任何亲人，他的生活缺少关爱。尽管后来普京从儿时的街头混混成长为苏联克格勃情报人员，但是他童年所受的创伤已经永久性地刻在他的内心，表面上看他非常有男子汉气概，然而却是一个不受信任的、不可琢磨的人，他会不惜任何代价达到其目的。缺少关爱的童年，会导致一个人成年后滥用暴力对他人造成损害。
+1. 欧洲已经开启了和中共国、俄罗斯直接对干的形式，谁都无法避免，乌克兰的血腥战争将升级为俄、中、欧的全面战争。
+2. 真实的情况是，普京很恐惧，普京知道，基本大势已去。但是普京知道，要想活下去，唯一的（就是）叫战争继续下去，让死亡继续下去，让宣传继续加足马力的宣传。
+3. 最后就是俄罗斯经济走向极端的崩塌，普京的身体撑不住，这是完全在预料之中，也最大可能。
+4. 我觉得乌克兰的战争残酷性，马上要开始。
+5. 俄罗斯和乌克兰正在准备一场大战，俄罗斯要来狠的。
 
-历史上的大独裁者，希特勒，斯大林和毛泽东，全都是童年时代受到残酷无情鞭打和被暴力对待的人，在他们长大成人后成为冷血残暴的暴君，造成千百万人死亡。这些独裁者在夺权过程中变得越来越冷血残暴，喜欢冷血杀戮，因为他们生存的政治环境是典型的达尔文式环境，最后产生的都是冷血、狡诈、反复无常、不可捉摸的独裁者。
 
-普京军事入侵乌克兰前曾发布声明称“纳粹化的乌克兰对俄国的安全构成威胁”，他把自己当作被乌克兰威胁的受害者，因而不得不自卫，他是个具有攻击性人格的人，但是内心却把自己当作一个自卫型的受害者。他的这些感受正是他童年时遭受的苦难和精神创伤的反应，这些苦难埋藏在他心中如此之深，以致他自己都感知不到它们，如今他正在把这些苦难施加给乌克兰人。心理学家认为，除非人们治愈了他们儿童时期受到的心灵创伤，否则他们注定会重演儿时的场景。今天普京正在无意识中把儿时自己经历的苦难带给乌克兰，这是专制独裁的普京对民主人权的乌克兰的进攻，西方民主国家已经意识到如果不制止普京的疯狂战争行为，欧洲国家将受到严重威胁，甚至沦陷为俄国独裁者普京的受害者。
+仅在布查（Bucha）俄军就杀死了至少300个平民百姓
 
-普京的大俄罗斯帝国梦
+普京为实现其沙皇帝国的幻梦，不仅强奸民意，暗杀政敌，与梅德韦杰夫玩二人转，修改《宪法》，更是多次悍然发动战争入侵周边的小国家，活脱脱一个强盗流氓。普京这次入侵乌克兰，屠杀无辜百姓 ，仅在布查（Bucha）俄军就杀死了至少300个平民百姓([https://www.axios.com/zelensky-bucha-hundreds-ukrainians-killed-90973560-094b-48ab-8f1c-303e6a451d4c.html](https://www.axios.com/zelensky-bucha-hundreds-ukrainians-killed-90973560-094b-48ab-8f1c-303e6a451d4c.html) ，[https://inews.co.uk/news/russia-ukraine-war-more-than-300-killed-and-tortured-in-bucha-but-deaths-even-higher-elsewhere-zelensky-says-1557057](https://inews.co.uk/news/russia-ukraine-war-more-than-300-killed-and-tortured-in-bucha-but-deaths-even-higher-elsewhere-zelensky-says-1557057))，这是一种反人类的战争犯罪行为，普京犯下了战争罪和种族大屠杀罪。
 
-在前苏联出生、成长的普京内心有一个超级强国梦，苏联的垮台对他来说是一个巨大的地缘政治大灾难，对他来说这意味着旧俄罗斯的死亡，他一直怀揣野心，等待机会改变俄罗斯，让全世界匍匐在大俄罗斯帝国的脚下[2]。占领乌克兰是普京恢复大俄罗斯帝国过去的辉煌的一个步骤，入侵乌克兰让普京相信俄国与NATO有了一个缓冲区，这符合俄国的安全利益和他追求的大俄罗斯的梦想，即兼并那些在1991年脱离前苏联导致苏联解体的国家。
+俄军改变策略，准备与乌军主力决战
 
-普京2月24日发动侵乌战争的最初计划是用闪电战拿下其首都基辅，然后扶持一个傀儡政权控制乌克兰，没料到遭到了乌克兰军民的顽强抵抗以致陷入战争泥潭；乌克兰的顽强不屈获得西方民主国家的同情和大量金钱、高科技武器的支援；俄军随即改变策略，从基辅等地后撤部队，休整后再部署到乌东地区准备与乌军主力决战，该地区的战略要地马里乌波尔是俄军重点攻击目标之一，战争一开始即被占优势的俄军团团包围，俄军曾连续多个星期持续对该市实施无差别的轰炸，俄军滥杀平民和强暴妇女的指控层出不穷，甚至有报告称俄军了使用化学武器，一旦证实这将意味着双方战争的升级。
+普京发动侵乌战争的最初计划是用闪电战拿下其首都基辅，扶持一个傀儡政权，没料到遭到了乌克兰军民的顽强抵抗而陷入战争泥潭；俄军随即改变策略，从基辅等地后撤部队，休整后再部署到乌东地区准备与乌军主力决战。
 
-不久前俄军撤离基辅周边的布查镇时，针对手无寸铁的平民的血腥残忍杀戮震惊了世界，俄军被指控实施了大规模的滥杀平民和强暴妇女，但遭到俄方的坚决否认；普京声称俄军没有选择，这样干是正确的，并声称不惧制裁，也不怕被世界孤立[3]。4月11日，联合国安理会举行听证会，乌克兰代表Sergiy Kyslytsya指控俄方自血腥入侵乌国之日起已经绑架总数超过12万多名乌克兰儿童，这种令人发指的行为违反了《国际法》和《国际公约》；另外Kyslytsya还指控俄军从一些地区撤军时对乌克兰妇女和儿童进行了杀戮，酷刑折磨，包括强奸等性暴力，这些恶行听起来令人震惊 [4]。
+使用化学武器，一旦证实这将意味着双方战争的升级
 
-普京将作为战犯受审
+该地区的战略要地马里乌波尔是俄军重点攻击目标之一，战争一开始即被占优势的俄军团团包围，俄军曾连续多个星期持续对该市实施无差别的轰炸，俄军滥杀平民和强暴妇女的指控层出不穷，甚至有报告称俄军了使用化学武器[7]，一旦证实这将意味着双方战争的升级。
 
-俄军自侵入乌克兰以来，俄军遭受损兵折将，同时国内外反战呼声高涨；普京本人也被美国等西方民主国家称为战犯，俄军在乌克兰的战争犯罪正在被国际有关组织调查取证[5]。美国总统拜登已经呼吁对普京在布查的大规模屠杀平民的战争犯罪行为进行审判。二战结束后国际海牙犯罪法庭根据《日内瓦公约》定义战争犯罪为种族清洗，规定战时遵循人道主义法，攻击军事目标导致平民伤亡也冒犯了这个公约。俄军在布查杀戮平民乃是战争罪行为，犯罪调查人员已经开始寻找目击者和收集媒体报道的证据，以及采访被乌军俘虏的俄军士兵提取证据。针对俄军士兵的战争罪指控很容易追诉到俄军指挥官和俄国领导人普京；控罪法官可能会拿出证据指控普京直接下命令攻击或知道战争犯罪在进行但是没有成功制止，而犯下了战争罪。 普京沿用过去苏联大兵团重装甲部队作战的战法，与乌克兰运用现代高科技武器装备、网络信息和媒体联合作战对战，损失惨重，被严厉制裁的俄国经济将难以支撑俄军继续这场战争。俄罗斯入侵乌克兰引发了欧洲二战以来最严重的难民危机，俄国因之遭到了西方民主国家的严厉制裁；然而普京并没有放弃军事行动，反而继续采取更残酷更冷血的针对乌克兰平民的攻击。普京也意识到败局已定，但是他没有别的选择，只能继续发动更猛烈的战争，但是清醒过来的美国和西方国家，必然会及时出手，面对强大的西方高科技、金融和经济实力，普京根本没有任何胜算，最终必然失败，他被押上战犯审判台的日子不远了。
+败局已定
 
-【正文】
+普京也意识到败局已定，但是他没有别的选择[8]，只能继续发动更猛烈的战争。然而清醒过来的美国和西方国家，必然会及时出手。面对西方强大的高科技、金融和经济实力，普京根本没有任何胜算，最终必然失败。
 
-参考链接：
+参考资料
 
-#### [1] [How Vladimir Putin’s childhood is affecting us all](https://acestoohigh.com/2022/03/02/how-vladimir-putins-childhood-is-affecting-us-all/)
+1. [https://www.journaldemontreal.com/2022/04/10/lextra-dygreck](https://www.journaldemontreal.com/2022/04/10/lextra-dygreck)
+2. [https://gettr.com/streaming/p14iwpvf134](https://gettr.com/streaming/p14iwpvf134)
+3. [https://gnews.org/zh-hans/2325152/](https://gnews.org/zh-hans/2325152/)
+4. [https://gnews.org/zh-hans/2324634/](https://gnews.org/zh-hans/2324634/)
+5. [https://gettr.com/post/p14p9pd7e23](https://gettr.com/post/p14p9pd7e23)
+6. [https://www.journaldemontreal.com/2022/04/10/notre-lachete-occidentale](https://www.journaldemontreal.com/2022/04/10/notre-lachete-occidentale)
+7. [Explainer-How could Russia’s Putin be prosecuted for war crimes in Ukraine?](https://www.saltwire.com/nova-scotia/news/explainer-how-could-russias-putin-be-prosecuted-for-war-crimes-in-ukraine-100714463/)
+8. [基辅和盟友查证俄军使用化武报告，滥杀平民和强暴妇女的指控层出不穷，马里乌波尔保卫战到了最后关头，普京称不怕国际社会制裁](https://www.voachinese.com/a/ukraine-allies-checking-reports-of-russian-use-of-chemical-weapons-20220412/6526069.html)
+9. [https://www.axios.com/zelensky-bucha-hundreds-ukrainians-killed-90973560-094b-48ab-8f1c-303e6a451d4c.html](https://www.axios.com/zelensky-bucha-hundreds-ukrainians-killed-90973560-094b-48ab-8f1c-303e6a451d4c.html)
+10. [https://inews.co.uk/news/russia-ukraine-war-more-than-300-killed-and-tortured-in-bucha-but-deaths-even-higher-elsewhere-zelensky-says-1557057](https://inews.co.uk/news/russia-ukraine-war-more-than-300-killed-and-tortured-in-bucha-but-deaths-even-higher-elsewhere-zelensky-says-1557057)
 
-#### [2] [Putin’s rough childhood and its shadow over Ukraine and other wars](https://www.indiatoday.in/news-analysis/story/russia-ukraine-war-vladimir-putin-childhood-1925663-2022-03-15)
-
-#### [3] [基辅和盟友查证俄军使用化武报告，滥杀平民和强暴妇女的指控层出不穷，马里乌波尔保卫战到了最后关头，普京称不怕国际社会制裁](https://www.voachinese.com/a/ukraine-allies-checking-reports-of-russian-use-of-chemical-weapons-20220412/6526069.html)
-
-#### [4] [UN Security Council hears of Russian atrocities against Ukraine’s women and girls: rapes, mass abductions](https://www.foxnews.com/world/un-security-council-hears-russian-atrocities-against-women-girls-ukraine-claims-russia-abducted)
-
-#### [5] [Explainer-How could Russia’s Putin be prosecuted for war crimes in Ukraine?](https://www.saltwire.com/nova-scotia/news/explainer-how-could-russias-putin-be-prosecuted-for-war-crimes-in-ukraine-100714463/)
 
 编辑：LILY
 发布：肥鯮
