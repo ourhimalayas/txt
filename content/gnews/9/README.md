@@ -2,29 +2,28 @@
 ---
 
 
-## 秘翻在线：美国将向乌克兰追加支援7.5亿美元的武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340433/)
+## 研究表明：多数加拿大人担心疫情永不会结束
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340622/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-24.jpg)图片来源：网络截图
-据韩媒《YTN》4月13日的消息，路透社当地时间12日报道说，美国拜登政府计划向乌克兰追加支援7.5亿美元、相当于9240亿韩元的武器。
+##### Author: Canada Vancouver Sailing Farm – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-28.png)
+据【真北方】4月11日报道，卫生部研究表明，即使在全国范围内取消疫苗护照和口罩要求，但多数加拿大人仍认为疫情永不会结束。
 
-路透社援引精通该案件的2名美国官员的话进行了上述报道，并称美国政府最快将于13日公布相关内容。
+这是卫生部为考量公众“与中共病毒有关的看法、知识和行为”而开展的一项对加拿大人观点跟踪调查的研究。研究表明，许多加拿大人无法克服与病毒和公共卫生限制相关的恐惧。加拿大甚至比伊朗、俄罗斯和中国等国所受限制更大。不仅是政府严格的公共卫生措施，加拿大传统媒体扩大对中共病毒恐惧的宣传也是影响公众心理的重要因素。对此艾伯塔省省长杰森肯尼认为，是时候让媒体停止宣传对中共病毒的恐惧了。
 
-此次追加的支援是通过总统应对紧急情况，未经议会批准，可以批准美国防卫品转移的“总统使用权限”实行的。
+Editing/Posting 上传/发稿 – 大废墙
+Author/Translator/Dictation 撰稿/翻译/听写 – 晨熹
+Material 素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-据美国政府消息人士的消息，对于具体支援何种武器，还没有做出最终决定。但此次支援的武器中可能包括榴弹炮等重型武器。另外，预计还将包括斯汀格地对空导弹、反坦克杰布林导弹、弹药和防弹衣等。
+More Canada Vancouver Sailing Farm channels：
 
-俄罗斯入侵乌克兰后，到目前为止，美国向乌克兰提供的援助规模已达17亿美元。
+- [Gettr: Canada Vancouver Sailing Farm](https://gettr.com/user/torontofarmcn)
+- [Gettr: Toronto Blue Maple Law Channel (Chinese)](https://gettr.com/user/lanfengfalv)
+- [Gettr: G on-time news Channel (Chinese)](https://gettr.com/user/torontofarmnews)
 
-路透社报道说,美国国防部为了应对战争持续数年的情况，将与美国武器制造企业前8位讨论能满足乌克兰武器需求的业界生产能力等问题。
-
-美国的此次对武器的追加支援，无疑会对俄乌两国的战争增加砝码，使乌克兰有更多的保障和底气。
-
-信息来源：[https://www.khan.co.kr/world/world-general/article/202204121555001](https://www.khan.co.kr/world/world-general/article/202204121555001)
-
-责编：Eric Kim
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_EN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

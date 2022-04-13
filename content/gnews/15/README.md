@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|京都大学教授认为政府该追踪所有接种者状况
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340336/)
+## 秘翻在线：美国将向乌克兰追加支援7.5亿美元的武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340433/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间4月8日，日本京都大学名誉教授福岛雅典医生，在接受日媒采访时表示，日本政府应该对所有接种中共病毒疫苗人员，进行彻底调查，以查清因接种造成的健康受损和死亡案例。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-24.jpg)图片来源：网络截图
+据韩媒《YTN》4月13日的消息，路透社当地时间12日报道说，美国拜登政府计划向乌克兰追加支援7.5亿美元、相当于9240亿韩元的武器。
 
-福岛医生依据厚生劳动省提供的数据，整理出在接种后的第二天，死亡人数徒然上升。然而，厚劳省仅给出“无法定论”作为结论，没有深究死亡跟接种疫苗的关联性。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-82.jpg)
-对此，福岛医生认为，既然无法认定因果关系，那么就应该对所有接种者进行跟踪调查。而草草地以“无法定论”作为结论，这是极其不诚实的行为，厚劳省目前的做法是对科学的怠慢。
+路透社援引精通该案件的2名美国官员的话进行了上述报道，并称美国政府最快将于13日公布相关内容。
 
-福岛医生还表示，服用药物后出现异于往常的症状，就该怀疑是药物带来的副作用，这才是防范药物危害时本来该有的态度。
+此次追加的支援是通过总统应对紧急情况，未经议会批准，可以批准美国防卫品转移的“总统使用权限”实行的。
 
+据美国政府消息人士的消息，对于具体支援何种武器，还没有做出最终决定。但此次支援的武器中可能包括榴弹炮等重型武器。另外，预计还将包括斯汀格地对空导弹、反坦克杰布林导弹、弹药和防弹衣等。
 
+俄罗斯入侵乌克兰后，到目前为止，美国向乌克兰提供的援助规模已达17亿美元。
 
-文字版原文：[京都大学教授认为政府该追踪所有接种者状况](https://gnews.org/zh-hans/2334356/)
+路透社报道说,美国国防部为了应对战争持续数年的情况，将与美国武器制造企业前8位讨论能满足乌克兰武器需求的业界生产能力等问题。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+美国的此次对武器的追加支援，无疑会对俄乌两国的战争增加砝码，使乌克兰有更多的保障和底气。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源：[https://www.khan.co.kr/world/world-general/article/202204121555001](https://www.khan.co.kr/world/world-general/article/202204121555001)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+责编：Eric Kim
 
  
 

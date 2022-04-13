@@ -2,39 +2,39 @@
 ---
 
 
-## 乌克兰-俄罗斯将进行二战以来欧洲最大规模的坦克大战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2340308/)
+## 有声|乌克兰做足战备 盟国增加军援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340432/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+根据4月10外媒消息，乌克兰总统顾问公开表示，乌已做足战备，与俄罗斯进行大规模战斗。乌克兰将在俄方控制的两个分离地区——顿涅茨克和卢甘斯克击退俄军，以便在俄乌总统会晤前获得更多的主动权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-12-at-9.41.56-AM.png)
+此外，美国、德国等盟国表示会继续向乌克兰提供武器援助。
 
-翻译：li yan li
-编辑：李易通
+美国国家安全顾问杰克·沙利文10日表示，美国正致力于向乌克兰提供它需要的武器来抵御俄罗斯，阻止他们占领更多的城镇。而根据其他信息，自俄罗斯发动入侵以来，美国已向乌克兰提供了 17 亿美元的军事援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-36.png)图片来源：雅典娜设计组
+德国国防部长兰布雷希特9日受访表示，自战争开始，德国已经援助了军盔、反战车、防空和地对空飞弹以及机枪和弹药等军事装备，目前，德军已经无法从库存中直接拿出武器提供给乌克兰，但这并不意味着德国不能为乌克兰做更多的事情，未来德国对乌克兰的军援将更多地直接透过军火工业进行。
 
 
-据彭博社报道，波兰总理莫拉维茨基在周一与比利时首相亚历山大·德克罗举行的新闻发布会上发表讲话，称乌克兰的坦克战“迫在眉睫”。
 
-莫拉维茨基随后呼吁欧盟成员国向基辅提供更多的军事支持，因为国际观察员预计俄罗斯很快将在东部地区的顿巴斯发动攻击。
+文字版原文：[乌克兰做足战备 盟国增加军援](https://gnews.org/zh-hans/2335450/)
 
-彭博社援引波兰总理周一的话说：“最具决定性的战斗即将开始，这将是二战以来世界上在这一地区最大的坦克战。”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-正如莫拉维茨基所预测的那样，乌克兰和俄罗斯未来在顿巴斯的冲突与1943年7月德军和苏军之间的库尔斯克战役的恐怖情景很相似。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-乌克兰外交部长德米特罗·库莱巴上周在与北约部长会晤后说：“顿巴斯之战的大型行动和演习，成千上万的坦克、装甲车、飞机和大炮的参与将让你想起第二次世界大战。”
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-俄罗斯外交部长谢尔盖·拉夫罗夫周一在接受俄罗斯国家电视台采访时宣布，俄罗斯已经确认，将不会暂停在乌克兰的战斗。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据说莫斯科已经任命了一位新的将军——亚历山大·德沃尔尼科夫在战争的新阶段领导俄罗斯军队。德沃尔尼科夫最近被部署在叙利亚，他的部队支持叙利亚总统巴沙尔·阿萨德。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-参考链接：[乌克兰-俄罗斯将进行二战以来欧洲最大规模的坦克大战](https://www.newsweek.com/ukraine-russia-set-fight-largest-tank-battle-since-world-war-2-poland-1697196)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

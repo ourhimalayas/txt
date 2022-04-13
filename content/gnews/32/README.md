@@ -2,24 +2,40 @@
 ---
 
 
-## 中日财经爆┃美国通胀创40年新高，加息50个基点势在必然
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339558/)
+## 中共在上海等大城市动态清零政策的险恶目的
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2339757/)
 
-撰稿：东京樱花团/深藏不露
+##### 作者：加拿大温哥华扬帆农场 -【晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据4月10日文贵先生盖特直播披露， 中共通过在上海等大城市实行动态清零政策，来达到三个险恶目的：
 
-2022年4月12日美国劳工部公布3月消费者物价指数（CPI）数据，美国3月未季调CPI按年上涨8.5%，续创40年来新高，预期为8.4%，前值为7.9%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1561.png)图片来源：gettr
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/041310.png)
 
-美国3月季调后CPI按月升1.2%，创2005年10月以来新高。美国3月核心CPI月率录得0.3％，续创2021年9月以来新低。
+一是，国内整个经济将实行闭关锁国，切断供应链，饿死美国。
 
-美国CPI数据公布后后，美元指数DXY短线下挫近20点，现报100.10。此前市场预计美国3月CPI恐突破8%，刷新40年高位，随着美国的通货膨胀不断的恶化，美联储下月的美联储会议上加息50个基点势在必然，美联储3月已经公开向金融资本鸣枪示警了！美联储加息可是认真的、不是闹着玩的，聪明的美元资本应该知道该回什么地方了，否则必将损失惨重……
+二是，将所有疫苗灾难导致的人员大量死亡，责任推给国内百姓。
 
-消息来源： [8.5%！美国3月通胀爆表 续创40年新高！](https://wallstreetcn.com/articles/3656729)
+三是，通过实行军管状态下的严厉封锁措施，来增加社会承受力，特别是在极限战争状态下的压力测试，为接下来即将发生的战争做好充分准备。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
+一切目的就是为拿下台湾，毁掉美元。这是习近平宏大计划中的重要一环。他认为，中国人最终要和世界玩挨饿游戏，看谁更耐饿。未来粮食、能源暴涨，一旦突破美国人的极限承受力，社会就将大乱，美元也会大幅贬值，最终击败美元。
+
+新闻来源：[https://gettr.com/streaming/p14iwpvf134](https://gettr.com/streaming/p14iwpvf134)
+
+上传/发稿 – 【青青】
+撰稿 -【晨熹】
+素材/采编 -【晨熹】
+校对/编辑 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

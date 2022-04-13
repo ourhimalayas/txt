@@ -17,10 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/13/2022 1:45 PM (UTC)`
+`@miles 4/13/2022 2:09 PM (UTC)`
 
-【Ukraine Rescue】 04/13/22 Malteser, a well-known German Catholic rescue organization, contacted NFSC volunteer Wen Yao and asked NFSC to provide help for seven Ukrainian refugees and a pet dog. We not only provided them with free accommodation and food for 3 days and arranged a bus to Germany, but also thoughtfully prepared the food and masks they would need for the journey.<br/><br/>【乌克兰救援】 04/13/22 德国天主教著名救援组织Malteser联系到新中国联邦志愿者文耀，请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助。我们不仅为他们提供了3天的免费食宿，安排了去往德国的大巴，还细心地为他们准备好了路上所需的食物和口罩。<br/>
-![img](https://media.gettr.com/group32/getter/2022/04/13/13/be69c8e0-69a5-dfd1-2889-369eed6d8b70/out.jpg)
+4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexander De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
+![img](https://media.gettr.com/group34/getter/2022/04/13/14/b506c16f-6680-214a-0227-49b5d5823cff/out.jpg)
+
+---
+
+`@miles 4/13/2022 2:00 PM (UTC)`
+
+【Ukraine Rescue】 04/13/22 Malteser, a well-known German Catholic rescue organization, contacts NFSC volunteer Wen Yao and asks NFSC to provide help for seven Ukrainian refugees and a pet dog. We not only provide them with free accommodation and food for 3 days and arrange a bus to Germany, but also thoughtfully prepare the food and masks they need for the journey.<br/><br/>【乌克兰救援】 04/13/22 德国天主教著名救援组织Malteser联系到新中国联邦志愿者文耀，请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助。我们不仅为他们提供了3天的免费食宿，安排了去往德国的大巴，还细心地为他们准备好了路上所需的食物和口罩。
+![img](https://media.gettr.com/group14/getter/2022/04/13/14/9d54b1dc-0285-a301-8bcd-6c9b5763d4d1/out.jpg)
+
+---
+
+`@miles 4/13/2022 1:55 PM (UTC)`
+
+【Ukraine Rescue】 04/13/22 NFSC volunteer Nicole telling the two members of the EU Ukraine Mission about the relief work and facilities of the NFSC, and mentioning in particular the cooperation with several international organizations that had rescued 96 Ukrainian orphans, they visit NFSC and ROL Foundation tent and praise the good work of the NFSC.<br/><br/>【乌克兰救援】 04/13/22 新中国联邦志愿者妮可向两位来自欧盟派往乌克兰的工作代表团成员介绍了新中国联邦的救援工作及设施，特别提到曾与多个国际组织合作，救助了96名乌克兰孤儿，他们参观了新中国联邦和法治基金大帐篷，新中国联邦的善举获得了他们的赞许。<br/>
+![img](https://media.gettr.com/group14/getter/2022/04/13/13/42f86a76-ce55-9e85-b4a3-2504715fd212/out.jpg)
 
 ---
 
@@ -150,24 +164,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 🆘🇺🇦🆘来自乌克兰救援前线Nicole报道：<br/>   ❣️Nicole采访来自苏格兰的义工（建房哥)❣️<br/>来自苏格兰的义工是一个专业的建房哥（builder) 称赞:👍法治基金新中国联邦的大帐篷建得非常好<br/>👍NFSC咖啡也是最好喝的！ <br/>👍新中国联邦的灭共运动非常棒（wonderful)。<br/>他一开始觉得灭共是政治运动，后来他明白了，帮助14亿中国人摆脱邪恶的共产党的奴役是一个伟大的人道救援行动，他祝福新中国联邦完成这个历史使命。<br/>------<br/>前线的咱们战友们争分夺秒传播新中国联邦和灭共大业令人敬佩！行动，行动，再行动！✊✊✊<br/> #新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
 ![img](https://media.gettr.com/group36/origin/2022/04/11/15/8d00efa5-a036-e609-baf4-ce194dbbd357/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/12/2022 1:43 AM (UTC)`
-
-🆘🇺🇦🆘Nicole is interviewing international medical aid volunteers from Bavaria, Germany：<br/> 💙 The volunteers heard about the good NFSC coffee from the Israeli volunteers and came to our big tent. They admire us so much! <br/>💙 When they saw the sticker "NFSC destroy the CCP", they took pictures and believe in "Destroy the Communist Party so that the Chinese people can have a good future! " <br/>💙 They think the CCP has done a lot of bad things, just like the North Korean dictator, Gaddafi, and so on.<br/>💙 When introduced to the big tent,  they commented, as someone with international relief experience, this big tent requires a high level of expertise and quality facilities!<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees
-![img](https://media.gettr.com/group31/origin/2022/04/12/01/ca60e158-f58c-1902-cb0c-b67731a17939/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/12/2022 1:43 PM (UTC)`
-
-❤️Report from #NFSC's #UkraineRescue #Nicole interviewed with Matt，an American volunteer who speaks Chinese<br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole采访 一位会说中文的美国志愿者Matt<br/><br/>About New Federal State of China #NFSC <br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
-![img](https://media.gettr.com/group5/origin/2022/04/12/13/4293c5a9-31ac-3f75-90c3-b14e8d95dde9/out.jpg)
 
 ---
 

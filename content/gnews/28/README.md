@@ -2,36 +2,31 @@
 ---
 
 
-## 加拿大再向乌克兰提供1亿加币人道救援
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340032/)
+## 秘翻在线：高价运费也吸引不了卡车司机开往上海
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340102/)
 
-##### 作者：加拿大温哥华扬帆农场 -【自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-加拿大CTV新闻4月9日报道，总理特鲁多周六宣布为乌克兰提供1亿加币人道主义援助，及为来加乌克兰难民提供更多帮助。
+**撰稿：葛大饼**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1565.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-30.jpg)图片来源：6park
+根据2022年4月13日源自《一财网》的报道，目前发往上海的卡车运费报价高达每车三万人民币，但是依然没有司机愿意跑上海，导致物资无法发运上海。
+
+卡车司机们的担忧主要是： 1，如果将货物送到上海后，由于是疫区，卡车司机行程码带星，回程在一些地方将无法下高速；2，即便下高速，也会在当地被要求集中隔离，那个隔离的半个月将没有任何收入。
+
+某家大型粮油公司高管建议应充分挖掘铁路运力，开辟抗疫物资供应保障绿色通道，保障上海的粮油物资供应，另外还可以在一些与上海交界的还没有发生疫情的周边地区，设立物资中转基地，帮助外地司机解决后顾之忧。
+
+今天只是去上海的司机躺平，以后随着封锁的区域越来越多，更多的公路运输供应链将会中断，卡车司机将成为稀缺工种，更不要说未来即将发生的疫苗灾难可能带来的各种车祸，局面不堪设想。
+
+平常被人遗忘和忽视的卡车司机们在疫情中扮演重要的角色，冒着风险奔波各个城市之间保证人们生活物资的供给，还随时面临被中共交通部门乱收费的困境，甚至被卡在公路上哪里都去不了而饿死的情况出现。国外的卡车司机们已经联合起来因为反对中共新冠疫苗强制走上街头，在这场地球终极之战中看到了许多平凡又闪亮的背影，民主是每个人努力争取得来的！
+
+**[新闻来源](https://news.sina.cn/2022-04-13/detail-imcwiwst1547971.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
 
-特鲁多是在代表加拿大政府视频参加在华沙由全球公民组织举行的集会上作出这一承诺的。至此，加政府对乌人道主义援助达到2.45亿加币。
 
-这笔钱将帮助在乌克兰以及难民涌入的邻国提供紧急医疗服务、食物、水和住所。星期六的会议共筹集了124亿元。乌克兰总统泽连斯基在推文中对加拿大的援助致以谢意。欧盟委员会主席冯德莱恩说，欧洲对乌克兰的支持将持续到战争之后，包括战后帮助乌克兰人民重建家园。
+#  
 
-渥太华也在周六宣布会为来加乌克兰难民提供包括从乌克兰到加拿大的定向包机，短期收入支持和长达两周的酒店住宿。渥太华还承诺对乌克兰政府提供财政上的支持。加拿大正在利用一切机会孤立俄罗斯。
+#  
 
-原文链接：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
-
-上传/发稿 – 【青青】
-撰稿 -【自由法兰西】校对/审核 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
