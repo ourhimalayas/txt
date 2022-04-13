@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 2:00 AM (UTC)`
+
+2022.04.12  新中国联邦 | 喜财经  今天是新中国联邦历史性的一天，比利时总理外交默认的一小步，世界外交默认的一大步
+![img](https://media.gettr.com/group24/origin/2022/04/13/02/a8dad45f-3ac7-c0ef-87f1-1c455d4ce2d7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/13/2022 1:03 AM (UTC)`
 
 2022.04.12 晚  新中国联邦 | 新闻访谈   新中国联播在国际舞台上大放异彩，为即将到来的全球排华做好防范和准备
@@ -147,13 +154,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group32/origin/2022/04/12/17/70ad174b-414c-f3bb-d73b-8d1828a42e8b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/12/2022 4:47 PM (UTC)`
-
-4/10/2022 Miles Guo: Russia will eventually be disintegrated by the contagious power of courage displayed by the Ukrainians; the Ukainians' brave counterattack awakened the instinctive conscience and sense of justice in the Europeans and Americans, and that is exactly why they have gained extensive support and aid; Chinese people should follow the Ukrainians' example, and fighting back against the CCP is their only option.<br/><br/>4/10/2022 文贵直播：乌克兰民族勇气的感染力量一定把俄罗斯解体！乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择！<br/>
-![img](https://media.gettr.com/group4/getter/2022/04/12/16/dda236d3-11fd-9503-3e41-e29df0fa56b4/out.jpg)
 
 ---
 
