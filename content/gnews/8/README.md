@@ -2,20 +2,18 @@
 ---
 
 
-## 加拿大继续向乌克兰提供人道救援
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2337136/)
+## 2022年4月13日《樱花快报》：全球感染中共病毒人数时隔2个月再增1亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2337197/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据加拿大[CTV新闻]4月9日报道，特鲁多当天在华沙举行的视频会议中宣布，将向乌克兰再提供1亿加元的人道主义援助，并承诺为前来加拿大的乌克兰难民提供更多帮助。
-
-据悉，目前加拿大政府对乌克兰的援助总金额已达2.45亿加元。在当天的会议中，共筹集了124亿美元针对乌克兰难民的人道主义捐款。欧盟主席对此表示，对乌克兰的援助将持续到战争之后，并帮助乌克兰人民重建家园。
-
-此外，尽管特鲁多还宣布将为来加拿大的乌克兰难民提供包机服务，短期补助和长达两周的酒店住宿等援助计划，但却对此前向乌克兰提供军事支援和武器装备的承诺避而不谈。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220413快报.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
