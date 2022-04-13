@@ -2,25 +2,10 @@
 ---
 
 
-## 特鲁多移民政策加剧了加拿大住房危机
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2341496/)
+## 4/10/2022 文贵直播: 中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2341552/)
 
-编译撰稿：加拿大温哥华扬帆农场 –硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16498703541.png)图片来源：后千禧一代
-
-
-据自媒体[后千禧年]4月11日报道，总理特鲁多当天声称，由于加拿大住房供应量没有与该国人口增长速度相匹配，因此其政府此前的移民政策是导致目前住房危机的关键因素。
-
-据悉，尽管受疫情影响，加拿大去年却创下了 40.1万名新永久居民的记录。而且自由党政府的移民目标不会减少，并计划在今年继续引入至少40万新移民。
-
-特鲁多对此表示：疫情所导致边境被长时间的关闭对加拿大本就短缺的劳动力市场带来了更多的挑战。为此，移民部已制定了有史以来最庞大的移民人数目标。因此，需要建造更多的房屋，以解决该国人口增长速度超过住房供应量的危机。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-原文链接： [https://thepostmillennial.com/breaking-trudeau-says-his-immigration-policies-have-inflamed-housing-crisis-woes](https://thepostmillennial.com/breaking-trudeau-says-his-immigration-policies-have-inflamed-housing-crisis-woes)
+秘密翻译组-北美组
 
  
 
