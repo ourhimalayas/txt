@@ -2,47 +2,43 @@
 ---
 
 
-## 樱花深度报道┃谎言连篇的中共宣传机器（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338443/)
+## 与中国铝业大亨有关的六家公司因逃税遭美国罚款18亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338494/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-【摘要】在接受记者提问谈及中共如何看待俄罗斯入侵乌克兰问题时，中共国防部发表了一份言辞犀利的声明，充斥着诸多[谎言](https://www.epochtimes.com/gb/tag/%E8%B0%8E%E8%A8%80.html)。本文将基于事实逐一驳斥，以正视听，以防止妖言惑众。由于中共宣传机器谎话连篇，要逐条打击中共的所有对外宣传似乎并不总是有效，也不现实。然而虚假的信息一旦多次重复宣传而得不到纠正，就有可能逐渐成为一个公认的“事实”。这正是中共对外宣传机器的初衷和野心。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-250.jpg)（图片说明）2022年3月10日，一众高官在人民大会堂参加中国人民政治协商会议（CPPCC）的闭幕会。(Kevin Frayer/Getty Images)
-2022年3月10日，中国北京，一众高官在人民大会堂参加中国人民政治协商会议（CPPCC）的闭幕会。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-在接受记者提问谈及中共如何看待俄罗斯入侵乌克兰问题时，中共国防部发表了一份言辞犀利的声明，充斥着诸多[谎言](https://www.epochtimes.com/gb/tag/%E8%B0%8E%E8%A8%80.html)。本文将基于事实逐一驳斥，以正视听，以防止妖言惑众。
+**整理：围剿维尼熊
+编辑：围剿维尼熊**
 
-一直以来，中共非常善于操控话语权，满口[谎言](https://www.epochtimes.com/gb/tag/%E8%B0%8E%E8%A8%80.html)，从而诱使西方世界产生负罪感。最新的案例便是3月24日中共国防部新闻发言人吴谦大校发布的声明，该声明篇幅不长，但包含谎言之多，令人咋舌。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/0F3D23DC-4F5D-4AF1-847B-4537543808D6.jpg)图片来源：腾讯
 
-在新闻发布会现场，西方媒体记者提问，中共如何看待俄罗斯入侵乌克兰一事。记者提问如下：
 
-“首先，如果中国以俄罗斯为榜样，对其邻国发动战争，国际社会将陷入更严重的危机。其次，如果在亚太地区发生侵略行为，该地区的各个国家将团结起来进行抵抗。第三，由于地形因素，中国将很难对其邻国发动战争。对此，请问阁下如何评论？”
+根据美国之音4月13日报道，美国法官裁定，与中国亿万富豪刘忠田有关联的六家南加州的公司需要支付18.3亿美元的罚金，因为这些公司将进口的铝伪装成铝成品来逃避关税。
 
-国防部发言人随后的回答因其谎话连篇和逻辑混乱而引起外界一片哗然。他的回答如下：
+美国联邦地区法官克劳斯纳（R. Gary Klausner）周一判处Perfectus铝业公司及其一个子公司，以及四家仓储公司五年缓刑，并命令他们支付18.3亿美元的罚金。
 
-“众所周知，中国一直奉行防御性国防政策和积极防御的军事战略，坚持友好、真诚、互利、包容的外交理念，致力于建设一个与邻国共享未来的命运共同体。新中国成立以来，我们没有侵略过其它国家，没有参与过代理人战争，没有谋求过势力范围，也没有参与过军事集团对抗。
+根据司法部的声明，这六家公司与亚洲最大的铝型材制造商中国忠旺控股有限公司合谋，将铝型材焊接在一起作为托盘出口，以规避美国的关税。
 
-“在和平与安全问题上，美国自身早已是劣迹斑斑。自建国以来，美国经常在海外挑起战争，在全球范围内输出动乱，并造成严重的人道主义灾难。”
+美国从2011年开始对从中国进口的某种类型铝材征收最高400%的反倾销和反补贴关税，而托盘等铝成品则不受影响。
 
-套用电影《星球大战》主角卢克‧天行者（Luke Skywalker）的经典台词，“这句话彻头彻尾是一句谎言。”个中原因剖析如下。
+声明表示，中国忠旺控股向投资者谎称美国对铝制托盘需求旺盛。但事实上，这些托盘主要被储存在南加州附近的四个仓库里，而这一虚构销售行为旨在抬高在香港上市的忠旺控股的业绩。
 
-（未完待续）
+声明称，由于对托盘没有实际需求，刘忠田和中国忠旺安排建造和收购铝熔化设施，将作为托盘进口的铝重新铸造成具有商业价值的形式。
 
-作者简介：
+被告通过空壳公司向刘忠田控制的铝业公司洗钱数亿美元，以此来推动他们的骗局。这些资金随后作为铝材付款转入刘忠田以及其它的空壳公司。
 
-摩根‧迪恩（Morgan Deane）是前美国海军陆战队员、军事历史学家、自由撰稿人。他曾在英国伦敦国王学院（Kings College London）和美国诺维奇大学（Norwich University）学习军事历史。摩根目前是美国公立大学（American Public University）的军事历史学教授。他也是一位多产的作家，出版著作包括《中国历史上的决战》（Decisive Battles in Chinese History）、《龙爪泥足：中国现代战略入门》（Dragon’s Claws with Feet of Clay: a Primer on Modern Chinese Strategy）等，以及即将出版的《超越孙子兵法：中国关于战争与政府的经典辩论》（Beyond Sunzi: Classical Chinese Debates on War and Government）。他的众多军事见解“真正的防御”（Real Clear Defense）和“战略之桥”（Strategy Bridge）等军事网站上。
+克劳斯纳法官在3月24日下令没收扣押的铝材，目前估值约为7000万美元。
 
-信息来源：[So Many Lies From the CCP](https://www.theepochtimes.com/so-many-lies-from-the-ccp_4370172.html)
+参考链接：[逃避美国关税 中国铝业大亨有关的六家公司被罚18亿美元](https://www.voachinese.com/a/china-aluminum-tax-justice-zhongwang-20220412/6526332.html)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+*发布：*文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
+
 
  
 

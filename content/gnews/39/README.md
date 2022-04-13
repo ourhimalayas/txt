@@ -2,33 +2,37 @@
 ---
 
 
-## 郭先生揭露习近平执政以来推行的三大恶事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337648/)
+## YouTube在故障中断服务后重新上线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337998/)
 
-作者：纽约香草山农场 -恩永存
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+翻译/编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-郭文贵先生在4月10日的大直播中揭露，习近平自执政以来，有计划的做了三大恶事，为中国人带来了前所未有的灾难。首先，习近平以反腐之名，利用王岐山铲除政敌。然后利用派系间的矛盾，除掉江泽民、胡锦涛等人的势力。其次是收拾中国富豪寡头，在他的授意下，马云、马明哲、马化腾、史玉柱等等，一个接一个的入狱、死亡。 而习近平的最后一步，就是除掉名人。习认为，名人是看不见的风险，会到处惹事。泱泱大国，唯有他习近平一个人可以自由发声，任何其他的声音都不能容忍。习近平已经成为了真正的独裁者。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-7.jpg)
-参考链接：
-[2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：飞虹，天滅中共
-审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/YouTube_.jpg)图片来源：The Verge
 
 
+根据CNA4月13日报道，Alphabet公司旗下的YouTube周二（4 月 13 日）表示，已经修复了在线视频共享和社交媒体平台上数千名用户的某些功能中断的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+“所有问题都已修复。你现在应该能够登录、在账户之间切换，并在所有服务（YouTube、YouTube TV、YouTube Music、YouTube Studio）和设备上使用账户菜单和导航栏。”YouTube发推文说。
 
+近1万名用户在Downdetector上报告了该服务的问题。该网站通过整理来自多个来源的状态报告来跟踪中断，包括用户在其平台上提交的错误。
 
+YouTube在中断时发推文表示：“登录、切换帐户和使用导航栏是用户面临的问题之一。”
+
+据故障追踪网站称，用户还报告了访问直播电视平台YouTube TV的问题。
+
+目前影响该平台的问题尚未明确。
+
+资料来源：[YouTube back online after outage disrupts services](https://www.channelnewsasia.com/business/youtube-back-online-after-outage-disrupts-services-2622596)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

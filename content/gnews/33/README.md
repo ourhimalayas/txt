@@ -2,33 +2,37 @@
 ---
 
 
-## 挪威考虑援助乌克兰现代化防空系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338063/)
+## 波兰和比利时总理均表示，对俄罗斯的制裁必须更加严厉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338142/)
 
-**撰稿：日本东京方舟农场 北极**
+#### 【雅典娜快讯】紧贴时代脉搏
 
-据焦点报4月12日报道，挪威议会代表奥拉·埃尔维斯图恩（Ola Elvestven）提议援助乌克兰现代化防空武器，以帮助其扭转战争局势。
+#### 翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-19.jpeg)挪威防空导弹系统。（图片来自大纪元）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Polish_Belgian_PM_-1.jpg)图片来源：Alamy
 
-这位政治家指出，西方，特别是北约国家，应该对乌克兰提供更多的现代化武器。他本人向议会提议向乌克兰援助挪威先进地对空导弹系统（Norwegian Advanced Surface to Air Missile System，简称NASAMS）和海军打击导弹（Naval Strike Missile，简称NSM）。
 
-NASAMS防空系统是由挪威康斯伯格（Kongsberg）武器工厂和美国雷神公司（Raytheon Company）在90年代开发的。该系统配备了AIM-120导弹（先进中程空对空导弹），具有强大的推力和远距离飞行的优点。NASAMS能够拦截机动弹道目标，这意味着NASAMS能够对抗俄罗斯的导弹系统“伊斯坎德尔”。
+根据外媒4月11日报道，波兰总理马特乌什·莫拉维茨基和比利时总理亚历山大·德克鲁分别同意，如果要对克里姆林宫产生影响，对俄罗斯的制裁必须更加严厉。
 
-伊斯坎德尔导弹(北约代号 SS-X-2)是俄罗斯发展的一种中短程弹道导弹，具有突破反导拦截系统的能力，俄军方号称世界上没有能拦截伊斯坎德尔的系统。
+周一，波兰和比利时总理在华沙会面后，莫拉维茨基表示，对乌克兰局势需要迅速采取行动，制裁问题需要国际安排。
 
-挪威的另一种先进海防武器NSM能够通过GPS，和地形参考系统进行导航，以海掠模式飞行，隐身能力强，可识别海上或沿海目标。
+“保持团结很重要。下一轮制裁应该让克里姆林宫相信我们在争取普世价值方面非常坚定，例如生命权、禁止酷刑、自由、正义和团结。”莫拉维茨基补充说，迄今为止对俄罗斯实施的制裁“还不够努力”。
 
-此前，挪威首相乔纳斯·加尔·斯特雷（Jonas Gar Stehre）表示，尽管挪威对军事武器装备的出口政策非常严格，但乌克兰人民面临着“非常情况”，需要军事援助。
+德克鲁同意莫拉维茨基的意见，即制裁应该极其严厉。
 
-参考链接：
-1. [https://reurl.cc/DdNv6e](https://reurl.cc/DdNv6e)
-2. [https://reurl.cc/Qj177p](https://reurl.cc/Qj177p)
-3. [https://reurl.cc/DdNvv5](https://reurl.cc/DdNvv5)
-4. [https://reurl.cc/akp594](https://reurl.cc/akp594)
+比利时政府已采取措施阻止俄罗斯获得该国的金融资源。欧盟迄今已采取五项制裁措施，但其承认有必要推出进一步的制裁措施。
 
-总编： 老孙
-校对发布：文曦
+“我们应该让俄罗斯更加难以进入金融市场，以阻止俄罗斯的金融机构。”德克鲁宣布比利时准备在这方面采取进一步措施并指出能源转型和摆脱俄罗斯化石燃料的需要。
+
+资料来源：[Polish, Belgian PM say sanctions on Russia must have maximum impact](https://www.thefirstnews.com/article/polish-belgian-pm-say-sanctions-on-russia-must-have-maximum-impact-29610)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

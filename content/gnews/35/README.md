@@ -2,42 +2,26 @@
 ---
 
 
-## 伊隆•马斯克被推特前股东起诉其延迟披露在公司的股份
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338024/)
+## 中日财经爆|美国SEC再将搜狐等12家中概股列入“预退市”清单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338125/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/peterwong
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04133.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123295542_hi073181766.jpg)图片来源：BBC
+美国证劵交易委员会（SEC）4月12日，再将搜狐等12家中概股公司加入“预退市”清单，这是自3月以来第四批被纳入名单的中概股公司。
 
+具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-根据ABC新闻4月13日报道，埃隆·马斯克被推特的前股东起诉，股东们声称他们错过了推特最近的股价上涨，因为马斯克等了太长时间才披露他在该公司的股份。
+SEC声称，上述12家公司提交申辩的截止时间为当地时间5月3日。
 
-在提交给曼哈顿联邦法院的拟议集体诉讼中，推特的股东们表示，马斯克先生没有按照联邦法律的要求，在3月24日之前披露他在推特的投资，从而做出了“重大的虚假和误导性陈述和遗漏”。
+根据SEC公布的《外国公司问责法》，被列入「确定摘牌名单」的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。如果「确定摘牌名单」中的公司没有提交或提交的文件不符合SEC要求，理论上将会在披露2023年年报后（2024年初）面临立即退市。
 
-马斯克也是SpaceX和特斯拉的首席执行官，他在3月14日购买了推特的9.2%的股份。此次收购使他成为该公司的最大股东。
+消息来源：[美國SEC再將12家中概股列入「預摘牌名單」　包括搜狐及新濠影匯](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/758516/%E7%BE%8E%E5%9C%8Bsec%E5%86%8D%E5%B0%8712%E5%AE%B6%E4%B8%AD%E6%A6%82%E8%82%A1%E5%88%97%E5%85%A5-%E9%A0%90%E6%91%98%E7%89%8C%E5%90%8D%E5%96%AE-%E5%8C%85%E6%8B%AC%E6%90%9C%E7%8B%90%E5%8F%8A%E6%)
 
-在马斯克于4月4日披露其持股后，推特的股价上涨了27%，至49.97美元（67.13美元）。投资者将此视为世界首富的信任投票。
-
-美国证券法规定，投资者在获得一家公司5%的股份时，必须在10天内披露，而马斯克的情况是3月24日。
-
-以马克·拉塞拉为首的前股东表示，延迟披露让马斯克以较低的价格买入更多的推特股票，同时欺骗他们以“人为压低 ”的价格出售。
-
-该诉讼寻求未指明的补偿性和惩罚性赔偿。
-
-马斯克先生的律师没有立即发表评论。
-
-资料来源：[https://www.abc.net.au/news/2022-04-13/elon-musk-sued-former-twitter-shareholders-delayed-disclosure/100987586](https://www.abc.net.au/news/2022-04-13/elon-musk-sued-former-twitter-shareholders-delayed-disclosure/100987586)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

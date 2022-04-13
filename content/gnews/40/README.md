@@ -2,27 +2,34 @@
 ---
 
 
-## 北朝鲜金家会很快土崩瓦解
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337336/)
+## 多国领导人预期，新中国联邦一定会得到国际社会的认可
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337966/)
 
-作者：日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-在4月10日的大直播中，郭先生透露，自从乌克兰勇敢地反抗了俄罗斯侵略，并且得到了西方巨大支持后，世界上所有独裁政权，包括北朝鲜的金家都感到了不可抑制的惶恐。
+作者：纽约香草山 -飞虹
 
-郭先生指出，金家政权就是一个建立在巨大谎言上的家族王国。并通过奴役整个北朝鲜，让全体人民挨饿受冻，养出了整个国家唯一一个肥胖的人。但在乌克兰英勇的反抗后，金正恩心里很明白，它根本无法跟美国抗衡，曾经引以为豪的核威胁，甚至在马斯克面前也只是无法使用的哑炮。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-27.jpg)
-特别的是北朝鲜将面临粮食危机，并且金家也和中共一样没有足够的外汇进口粮食，根本无法支撑其军队的运转。再加上星链技术和韩国新研发的通讯技术，很容易能把海外信息传播至北朝鲜境内，当饱受饥饿的老百姓知道真相时，就是金家土崩瓦解之日。
 
-郭先生认为，今年很大的变数是北朝鲜，之后是伊朗、叙利亚、沙特，然后这个连锁反应最终将促进俄罗斯和中共的瓦解。
 
-参考链接：[北朝鲜金家会很快土崩瓦解](https://www.gettr.com/streaming/p14iwpvf134)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+在4月10日的文贵大直播中，郭先生与救援前线的战友互动时，透露了几个与新中国联邦未来有关的重要信息。
+
+郭先生指出，日本政府专门对救援战友在前线的行动进行了分析，并称如果我们能坚持到战后，新中国联邦一定得到多个国家的承认。不仅如此，欧洲多个一直与郭先生有往来的领导人，也对新中国联邦在俄乌战争前线营救难民的行动给予了高度赞赏，他们认为如果联合国不主动承认新中国联邦的国际地位，一定会有其他国家推动这件事。这件事对于西方国家深刻理解中国人不等于中共，意义深远。另外，郭先生还说，就连一些与中共勾兑极深的犹太人，也因为新中国联邦人对犹太人的救助，对我们表达了由衷的感谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-7.jpg)
+参考链接：
+[4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；](https://gettr.com/post/p14rxiif895)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：天滅中共
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 
