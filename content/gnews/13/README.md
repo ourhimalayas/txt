@@ -2,42 +2,57 @@
 ---
 
 
-## 新中国联邦里程碑：比利时外交默认新中国联邦
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2341947/)
+## 2022年4月13日文贵大直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2342011/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-6.jpg)
-4月12日，比利时首相亚历山大`·德克洛访问了Medyka的人道主义救援中心，这里是接收乌克兰难民的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220413_副本.png)
+视频连接：[2022年4月13日 文贵大直播：新中国联邦喷薄而出；中共独裁者内外交困；习全面回归计划经济；喜币会成为数字法币](https://gettr.com/streaming/p153u568840)
 
-德克洛首相与他的安全团队到达Medyka，并接受了国际媒体的采访，其中包括我们NFSC的记者Nicole。Nicole向首相解释说，新中国联邦的使命是推翻中国共产党。新中国联邦人已经帮助了超过10000多位难民。 当听到Nicole提到郭文贵先生这个名字是新中国联邦的创始人时，德克洛首相回应说：最重要的是，作为人类，我们要帮助别人，我很高兴听到你们在帮助他们。
+1、新中国联邦获得外交默认：比利时总理亚历山大·德克罗先生看到Nicole穿的灭共马甲和戴的NFSC帽子要求和Nicole合影并接受了Nicole的采访；
 
-德克洛总理邀请Nicole与他合影，Nicole背心上的 “推翻中国共产党 “的标语非常醒目。他对Nicole的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，好像对这一切都非常熟悉。说明新中国联邦早就获得了国际社会的关注与默认。
+2、台湾主权将得到确认，中共独裁已被边缘化：美众议长佩洛西已康复，将随时访台；
 
-Nicole邀请首相在我们的救援帐篷里喝杯咖啡，我们有Medyka最大的帐篷、最好的咖啡。首相回答说：”我们正朝着这个方向前进”。 他是第一位访问新中国联邦救援帐篷的在任国家元首。
+3、美命令撤离驻上海总领事馆：美开始全面脱钩，中共陷入外交孤岛；
 
-郭先生在4月12日的直播中回应了这次首相的访问。他说：
+4、喜币将成为最早，最流行的数字法币，而人民币离等同于犯罪币的那天只有一步之遥；
 
-—-这对中国新联邦国家来说意义重大! 这叫外交默认。这是一个默认的外交声明！这意味着我们（国家）认可你们灭掉中国共产党。我们（比利时）认可（NFSC）!
+5、中共国封锁运动持续升温，吉林式清零措施正在推广：一级城市北，上，广，深，全部沦陷；
 
-郭先生对比利时首相亚历山大德克洛和他的家族将改变欧洲充满信心。他给予首相和他的家人极高的赞赏：他是一个很勇敢，有强烈的正义感，接受过正规的高等教育，而且他的家人素质特别高。
+6、封锁之中处处地狱，饥饿的中国一夜回到大饥荒：上海和长春女人用身体换取食物，主人杀自家宠物为食，被封在高速公路上的司机挖野菜求生；
 
-在国际媒体面前，亚历山大·德克洛首相指责俄罗斯在乌克兰造成了一场人道主义灾难。他说：
+7、吹捧中共防疫政策的太平洋证劵高层因救护不及脑溢血过世；
 
-—我看到人性在这场不可思议的战争中被击的粉碎，俄罗斯军队所做的事情离人性是如此遥远。
+8、中共不灭，灾难不止：疫苗灾难和封锁将会更加迅速地蔓延到更多城市，尤其北京；
 
-有媒体问首相有什么针对俄罗斯的措施，包括军事方面的。
+9、中共将统一全国大市场，集中管控粮食和药品等基本物资；
 
-首相回答的非常直截了当：
+10、中共将武统台湾，粮食和药品必将优先供应军警和公务人员，大陆民众必须做好长期备粮备药准备；
 
-—-在欧洲方面，我们做了很多事情，其中之一是制裁， 经济制裁相当严厉，真正触及了俄罗斯经济的核心，限制了其掌控战争的能力。
+11、上海市民都在考虑，疫情解封后，半价出售房产；
 
-第二个方面是孤立俄罗斯与国际社会。我们也在通过武器和人道主义援助向乌克兰人们提供防御手段。
+12、计划经济，一直存在：习近平上台后，恢复供销社早有准备，在过去的70年里，供销社系统从未消失；
 
-最后一个方面是关于战争罪。战争罪是存在的，事实是存在的。有人需要承担责任，经收集、分析，并最终将被起诉。
+**注：大直播音频——**
 
-来源：
+编辑整理：文俊；
 
-[https://gettr.com/post/p14ygi79dc4](https://gettr.com/post/p14ygi79dc4)
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

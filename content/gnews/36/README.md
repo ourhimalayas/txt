@@ -2,36 +2,28 @@
 ---
 
 
-## 美命令非紧急雇员撤离上海
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341219/)
+## 日本考虑派自卫队飞机支援乌克兰难民
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2341355/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-33.png)
-加拿大CTV新闻4月12日报道，美国务院11日命令非紧急政府雇员及其家属撤离上海。因中共”清零”政策，这个拥有2600万人口大都市的许多居民被强制在家封锁已长达三周以上。
+共同社4月13日东京报道，一位政府消息人士周三说，日本正在考虑向波兰等接收乌克兰难民的国家派遣自卫队飞机，以运送救济物品。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/J-3.jpg)buzzfeed.liteyt.com
+该消息人士说，自卫队飞机可能会运送来自联合国难民事务高级专员办事处以及日本国际协力机构的援助物资。
 
-被困在家的人们感到日益绝望，不能出门，又无法获得充足的食物，而一旦病毒检测呈阳性，就会被送入脏乱差的大规模隔离中心。目前上海总感染人数已超过20万。
+3月，日本派遣自卫队飞机向乌克兰运送了防弹衣和头盔。
 
-美国务院表示，周一“命令”撤离是对上周”授权“撤离的升级，即强制撤离上海，而不是任其自行决定。该态势变化反映了美国政府对当前形势的评估。
+**特评：**日本一个以移民和接收难民一直以来条件非常苛刻的国家，这次却从政策上向乌克兰难民打开大门，还嫌不够，前有用公务机接乌克兰逃到波兰的人，后又有自卫队飞机派遣。一层层加码，都做的是政治上的表态，要和乌克兰人站在一起。
 
-国务院建议美国人重新考虑去中国旅行，鉴于当地法律和防疫措施的滥用，特别是”父母和孩子被分离 “的风险。北京对上周的自愿离境则做出了愤怒的回应。
+4月12日，我们新中国联邦的波兰前线救援中心迎来了比利时总理访问并合影。这是一个外交上重要的姿态，正式对新中国联邦的承认近在眼前。今天郭先生盖特上又透露，多少国家的政客都在联系他要我们救援前线的联络方式，准备到访。
 
-虽然中共拒绝将强硬防疫政策同政治挂钩，但习近平要求社会稳定高于一切。据悉，他将在今年党代会上开展第三任任期。
+政治姿态已经表明，跟乌克兰人站在一起，和我们新中国联邦人站在一起，就是和正义站在一起。
 
-原文链接：[https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244](https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244)
+郭先生说，欧洲战后会成为以乌克兰和波兰为中心的欧洲，将一扫共产主义、马克思主义阴霾，灭了中国共产党同时更重要的是要灭了共产主义，让它们永远不能再存在在地球上才更重要更有意义。
 
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 自由法兰西🇫🇷
-素材/采编 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+参考链接：
+[https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html](https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,36 @@
 ---
 
 
-## 中共国将面临最严峻的粮食危机 习近平认为战争和动乱有利于维护政权
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2341143/)
+## 美命令非紧急雇员撤离上海
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341219/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-共产党所谓的23亿吨储备粮，这应该是虚假的数据。即便中共有粮食，也不代表普通老百姓就能吃饱或不被饿死。粮食现在是统治阶层最有力的武器。
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-33.png)
+加拿大CTV新闻4月12日报道，美国务院11日命令非紧急政府雇员及其家属撤离上海。因中共”清零”政策，这个拥有2600万人口大都市的许多居民被强制在家封锁已长达三周以上。
 
-中共根本不在乎老百姓死活，他们认为只有病毒疫苗、战争、死亡能阻止因房地产泡沫，金融崩盘，银行破产带来的社会动乱和危机。
+被困在家的人们感到日益绝望，不能出门，又无法获得充足的食物，而一旦病毒检测呈阳性，就会被送入脏乱差的大规模隔离中心。目前上海总感染人数已超过20万。
 
-习近平一箭四雕：1.解决社会问题；2. 进行 压力测试；3. 增加20大连任的机会，同时拿下台湾，4. 让天下人没饭吃，同时干掉美元。未来中共国内人只要有饭吃，就是赢家。
+美国务院表示，周一“命令”撤离是对上周”授权“撤离的升级，即强制撤离上海，而不是任其自行决定。该态势变化反映了美国政府对当前形势的评估。
 
-**视频来源****: 20220410—****郭先生大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光**
+国务院建议美国人重新考虑去中国旅行，鉴于当地法律和防疫措施的滥用，特别是”父母和孩子被分离 “的风险。北京对上周的自愿离境则做出了愤怒的回应。
 
-**更多资讯，更多关注**
-[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
-[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+虽然中共拒绝将强硬防疫政策同政治挂钩，但习近平要求社会稳定高于一切。据悉，他将在今年党代会上开展第三任任期。
+
+原文链接：[https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244](https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244)
+
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

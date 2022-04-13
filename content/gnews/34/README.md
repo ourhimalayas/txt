@@ -2,27 +2,29 @@
 ---
 
 
-## 日本考虑派自卫队飞机支援乌克兰难民
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2341355/)
+## 乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2341416/)
 
-共同社4月13日东京报道，一位政府消息人士周三说，日本正在考虑向波兰等接收乌克兰难民的国家派遣自卫队飞机，以运送救济物品。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/J-3.jpg)buzzfeed.liteyt.com
-该消息人士说，自卫队飞机可能会运送来自联合国难民事务高级专员办事处以及日本国际协力机构的援助物资。
+作者：在远方，Naughty(文行)
 
-3月，日本派遣自卫队飞机向乌克兰运送了防弹衣和头盔。
+当地时间4月11日，据相关媒体报道，乌克兰马里乌波尔市的市长波成柯在接受采访时表示，该市目前已有超过一万名平民死于俄罗斯侵略军的战火之中，民众遗体遍布大街小巷。 此外，波成柯还严正谴责俄军故意阻止人道主义救援车队进入该市，并试图对外隐瞒在该市市区发生的大屠杀。
 
-**特评：**日本一个以移民和接收难民一直以来条件非常苛刻的国家，这次却从政策上向乌克兰难民打开大门，还嫌不够，前有用公务机接乌克兰逃到波兰的人，后又有自卫队飞机派遣。一层层加码，都做的是政治上的表态，要和乌克兰人站在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-11.41.00-AM.png)
 
-4月12日，我们新中国联邦的波兰前线救援中心迎来了比利时总理访问并合影。这是一个外交上重要的姿态，正式对新中国联邦的承认近在眼前。今天郭先生盖特上又透露，多少国家的政客都在联系他要我们救援前线的联络方式，准备到访。
+据波成柯证实，俄军早先运来了大量的移动焚尸炉用于处理遇难者的遗体：他们将许多平民的尸体集中运到某个具有大型冷冻设施的购物中心，随后用卡车运载的移动焚尸炉将这些尸体焚化，试图掩盖其令人发指的反人类罪行。
 
-政治姿态已经表明，跟乌克兰人站在一起，和我们新中国联邦人站在一起，就是和正义站在一起。
-
-郭先生说，欧洲战后会成为以乌克兰和波兰为中心的欧洲，将一扫共产主义、马克思主义阴霾，灭了中国共产党同时更重要的是要灭了共产主义，让它们永远不能再存在在地球上才更重要更有意义。
+另一方面，波成柯也补充道，马里乌波尔市当前大约有12万人迫切需要食物、饮用水、暖气和对外通信设备。然而，只有经过俄军“过滤”的民众才能逃离当地，其他没有通过检查的居民则被押送至临时拘留所。据悉，当地至少有3.3万人被强迫遣送至俄罗斯或乌克兰分离主义地区。对此，乌克兰人权监察员透露，俄罗斯军队在这些地区对乌克兰平民实施了酷刑和处决，且俄军还在继续非法逮捕、折磨并处死任何有亲乌克兰立场的民众。
 
 参考链接：
-[https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html](https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html)
+1. [馬立波市長：城內已超過1萬平民死亡 俄軍計畫性焚燒百姓遺體](https://news.ltn.com.tw/news/world/breakingnews/3890226)
+2. [Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：谐趣园
 
  
 
