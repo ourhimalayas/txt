@@ -2,31 +2,39 @@
 ---
 
 
-## 日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（4/4）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341716/)
+## 加拿大国家储备的大量COVID疫苗开始过期
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2341889/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
-上一篇：[日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（3/4）](https://gnews.org/zh-hans/2341696/)
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/04/f8dbf425-gettyimages-1231560447-scaled-1.jpg)图片来源： Mail & Guardian
+加拿大媒体《CTV》 4月13日报道，加拿大卫生部表示，自1月份以来，由于注射量减缓，全国库存的近150万剂COVID-19疫苗已经过期。
 
-对俄罗斯外交部的反驳“全部归因于乌克兰侵略”
-关于俄罗斯外交部新闻发言人批评日本一事，他说：“这次事态都是由于俄罗斯侵略乌克兰而发生的。试图将责任推卸给日方的回应极为不当，无法接受，“他反驳道。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1620-edited.png)图片来源：日经新闻
-向中国发出“负责任的行动呼吁”
-他解释说，作为对俄罗斯制裁漏洞的对策，他已向本届国会提交了对外汇法律的修正案。他呼吁与俄罗斯关系紧密的中国采取“负责任的行动”。
+其中包括超过42万剂的Moderna疫苗，这些疫苗已于周二过期。
 
-乌克兰以外的难民接受和谨慎。
-他对接纳来自乌克兰以外的难民表示了谨慎的想法。“关于是否普遍展开讨论将是对日本难民的基本想法的讨论。我不会考虑立即改变这一部分。“。
+这150万剂过期疫苗在2020年12月以来交付给加拿大的1.18亿剂疫苗中占不到2%的份额。
 
-“无论是政府还是国会的讨论，都是必须应对的课题。我们认识到，我们也应该根据国际形势来思考。“
+目前，加拿大的国家库存有1800多万剂，其中绝大部分将在未来四个月内过期。
 
-参考链接：[対ロシア制裁、石炭禁輸や最大手銀の資産凍結　首相表明: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOUA088B90Y2A400C2000000/?n_cid=BMSR2P001_202204081814&amp;unlock=1)
+加拿大卫生部表示，一直到去年年底前，疫苗的需求与供应基本一致，因此很少有剂量在使用前过期。
 
-* * *
+过期的剂量不会被立即扔掉，因为加拿大卫生部正在等待制造商关于是否可以延长有效期的消息。
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+人们逐渐意识到COVID疫苗不能阻止感染和传播COVID病毒，反而有长期副作用，政府很难继续推进施打疫苗。加拿大政府用百姓的纳税钱购买的大量的疫苗将过期，害民伤财。
+
+
+
+原文链接：
+
+[https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
+
+
+
+
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

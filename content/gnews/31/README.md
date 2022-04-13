@@ -2,23 +2,49 @@
 ---
 
 
-## 欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341495/)
+## 加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341618/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16498704471.png)   图片来源：欧洲新闻台
-据《布雷特巴特新闻网》（Breitbart News）4月12日报道，欧盟的外交事务主管何塞·博雷利 (Josep Borrell）近日表示，当世界正面临着严重的粮食危机时，俄罗斯军队却一直在积极地攻击和破坏全球最大之一的粮食生产国—乌克兰的小麦库存。
+2022-04-13
 
-根据《欧洲新闻台》（Euronews）的报道，博雷利说，俄军不仅封锁了乌克兰在黑海的港口，导致该国的粮食出口中断（乌克兰向全球供应了大量的小麦），而且还在积极地攻击和破坏乌克兰的急需资源（much-needed resource）储备。“俄军正在轰炸乌克兰的城市，并通过阻止小麦出口和破坏乌克兰的小麦库存，在全世界制造饥荒。”博雷利强调，许多欧洲人正面临的粮食短缺问题不是因为欧盟对莫斯科的制裁，而是俄罗斯通过封锁和军事打击破坏供应链所直接导致的结果。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0T0AIMF3R7M3RVM9LG3.png)屏幕截图：[Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+#### 加拿大正处于 COVID-19 的第六波浪潮中，谭咏诗医生说
 
-一家粮食贸易公司的负责人Jörg-Simon Immerz说：“目前乌克兰的港口没有出口任何粮食，任何东西都无法离开该国。另外，全球小麦市场的另一个主要参与者—俄罗斯供应的小麦也显著下降。”不久前，俄罗斯的一位高官甚至威胁说，将只向所谓的“友好”国家供应粮食和农产品。
+瑞秋·吉尔摩Rachel Gilmore  全球新闻Global News
 
-欧盟官员以及前南卡罗来纳州州长、现世界粮食计划署主任大卫·比斯利 (David Beasley)上个月警告说，如果今年不能额外提供数十亿美元的粮食援助，那么全球将出现饥荒、不稳定和大规模移民等危机。
+发布 四月 12， 2022 11：56 上午
 
-*责编：白夜*
+更新时间 四月 12， 2022 12：17 下午
 
-新闻来源：[Global Food Crisis: Russian Forces Actively ‘Bombing and Destroying’ Wheat Stocks in Ukraine As Crisis Mounts](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+#### 已经证处于第六波COVID-19中
 
+加拿大顶级医生已经证实加拿大正处于第六波COVID-19中。
+
+全国最新上升的病例属于Omicron的BA.2亚变种，首席公共卫生官谭咏诗Theresa Tam医生周二表示。
+
+“这取决于加拿大不同的地区，但是总体上看来，可以说我们在加拿大正在经历第六波浪潮”，谭对记者说。
+
+“加拿大各地区的COVID-19病例都在增加”。
+
+#### 评论：
+
+还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。
+
+祝新中国联邦的无苗的，有币的 ， 灭共的战友们以及全世界人民顺利度过 5月份。
+
+#### 参考资料
+
+1. [Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+
+
+编辑：LILY
+
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

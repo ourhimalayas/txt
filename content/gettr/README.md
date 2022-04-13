@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 11:06 PM (UTC)`
+
+2022.04.13 NFSC news  World Leaders Indicate Recognition of NFSC Coming Soon
+![img](https://media.gettr.com/group38/origin/2022/04/13/23/a70a8c31-b83f-0fd1-8d2b-8965a8e377b0/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/13/2022 10:33 PM (UTC)`
 
 4/13/2022  Miles Guo’s GETTR: The persistence of the fellow fighters of New Federal State of China on the rescue frontline in Ukraine has won the recognition of more countries and international organizations; Mr. Guo is always thinking about the safety of the frontline fellow fighters; the NFSC has been taking actions to make the world realize that the Chinese Communist Party is the biggest threat to humanity<br/><br/>4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可；郭先生无时不刻不挂念着前线战友的安危；新中国联邦人用实际行动让世界认识到中共就是人类最大的威胁<br/>
@@ -131,13 +138,6 @@
 
 4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexander De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
 ![img](https://media.gettr.com/group34/getter/2022/04/13/14/b506c16f-6680-214a-0227-49b5d5823cff/out.jpg)
-
----
-
-`@miles 4/13/2022 2:00 PM (UTC)`
-
-【Ukraine Rescue】 04/13/22 Malteser, a well-known German Catholic rescue organization, contacts NFSC volunteer Wen Yao and asks NFSC to provide help for seven Ukrainian refugees and a pet dog. We not only provide them with free accommodation and food for 3 days and arrange a bus to Germany, but also thoughtfully prepare the food and masks they need for the journey.<br/><br/>【乌克兰救援】 04/13/22 德国天主教著名救援组织Malteser联系到新中国联邦志愿者文耀，请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助。我们不仅为他们提供了3天的免费食宿，安排了去往德国的大巴，还细心地为他们准备好了路上所需的食物和口罩。
-![img](https://media.gettr.com/group14/getter/2022/04/13/14/9d54b1dc-0285-a301-8bcd-6c9b5763d4d1/out.jpg)
 
 ---
 

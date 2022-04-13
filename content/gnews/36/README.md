@@ -2,37 +2,29 @@
 ---
 
 
-## 拜登指责普京在乌克兰实施“种族灭绝”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2341369/)
+## 乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2341416/)
 
-整理/编辑：围剿维尼熊
+作者：在远方，Naughty(文行)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+当地时间4月11日，据相关媒体报道，乌克兰马里乌波尔市的市长波成柯在接受采访时表示，该市目前已有超过一万名平民死于俄罗斯侵略军的战火之中，民众遗体遍布大街小巷。 此外，波成柯还严正谴责俄军故意阻止人道主义救援车队进入该市，并试图对外隐瞒在该市市区发生的大屠杀。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/675CB453-24C0-4665-B908-9BE3F04688CB.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-11.41.00-AM.png)
 
+据波成柯证实，俄军早先运来了大量的移动焚尸炉用于处理遇难者的遗体：他们将许多平民的尸体集中运到某个具有大型冷冻设施的购物中心，随后用卡车运载的移动焚尸炉将这些尸体焚化，试图掩盖其令人发指的反人类罪行。
 
-根据德国之声4月13日报道，美国总统拜登在俄乌战争爆发后，首次指控俄罗斯总统普京对乌克兰实施“种族灭绝”。
+另一方面，波成柯也补充道，马里乌波尔市当前大约有12万人迫切需要食物、饮用水、暖气和对外通信设备。然而，只有经过俄军“过滤”的民众才能逃离当地，其他没有通过检查的居民则被押送至临时拘留所。据悉，当地至少有3.3万人被强迫遣送至俄罗斯或乌克兰分离主义地区。对此，乌克兰人权监察员透露，俄罗斯军队在这些地区对乌克兰平民实施了酷刑和处决，且俄军还在继续非法逮捕、折磨并处死任何有亲乌克兰立场的民众。
 
-拜登说，普京正试图抹灭能做乌克兰人的想法。在被记者追问他为何选择使用“种族灭绝”这个词时，拜登说，将由律师来确定俄罗斯在乌克兰的行动是否符合“种族灭绝”的条件。
+参考链接：
+1. [馬立波市長：城內已超過1萬平民死亡 俄軍計畫性焚燒百姓遺體](https://news.ltn.com.tw/news/world/breakingnews/3890226)
+2. [Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
 
-另外，两名美国官员告诉路透社，美政府预计将宣布再向乌克兰提供7.5亿美元的军事援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-这些装备将透过美国总统资金动用权力（Presidential Drawdown Authority）来取得所需的资金。该权力允许美国总统从美国库存中转移物品和服务，无需国会批准。
-
-同一时间，美方仍持续核实俄军可能在乌克兰东南部的马里乌波尔市使用化学武器的消息。
-
-俄罗斯总统普京12日在与白俄罗斯总统卢卡申科举行的联合新闻发布会上说，俄罗斯和乌克兰之间的和平谈判陷入了僵局，强调俄罗斯将在乌克兰实现目标。
-
-参考链接：[拜登首称俄犯“种族灭绝” 乌东化武调查遇阻](https://www.dw.com/zh/%25E6%258B%259C%25E7%2599%25BB%25E9%25A6%2596%25E7%25A8%25B1%25E4%25BF%2584%25E7%258A%25AF%25E7%25A8%25AE%25E6%2597%258F%25E6%25BB%2585%25E7%25B5%2595-%25E7%2583%258F%25E6%259D%25B1%25E5%258C%2596%25E6%25AD%25A6%25E8%25AA%25BF%25E6%259F%25A5%25E9%2581%2587%25E9%2598%25BB/a-61457688)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：谐趣园
 
  
 
