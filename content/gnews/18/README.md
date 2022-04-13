@@ -2,34 +2,39 @@
 ---
 
 
-## 【G时新闻】美国务院命令非紧急人员及家眷紧急撤离上海
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2341478/)
+## 文贵先生盖特精要- 2022/04/13
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2341517/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-当地时间4月11日，美国国务院正式下达撤离驻上海美领馆非必要工作人员的政令。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1619.png)[盖特链接](https://gettr.com/post/p153hbz15f5)
 
-两天前的4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，并提醒旅行者慎重考虑前往中共国。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。
+- 七哥今天开会，星期五《文贵大直播》不能参加。争取周末参加大直播。
+- 乌克兰救援前线人员工作辛苦，多国和某国际组织联系新中国联邦“讨论”前线救援。
+- 纽约春天景色美丽。
+- 世界所有问题根源就是中国共产党。新中国联邦区分开中国人和中共，得到国际高度关注和认可。
+- 乌克兰每天都有人被强奸和杀害。
+- 上海、长春屡发生“以食物”强奸人，老人在街上被打，中国人该醒来了。
+- 世界都在醒来，消灭共产党 是解决问题的唯一办法。
+- 习近平和普京再回不到两个月以前的国际形势。
+- 欧洲开始以乌克兰和波兰为中心重整，放弃默克尔和萨科齐曾经主导以共产主义为中心的路线。
 
-时隔仅两日，美国务院正式下达撤离政令和三级旅行禁令。政令内容措辞严厉，历数前往中共国旅行即将面临的严重灾难，着重提到了中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查、威胁家人等、在网络散步针对美国的网暴等行为。
 
-美领馆更新了前往中国大陆及香港旅行的15条注意事项。尤其警告美国公民，在中共时不能随意利用言论自由，小心身边的秘密警察、周围的环境，保持低调等等。
+*听写：call me uncle*
 
-盖特链接：[https://gettr.com/post/p14z80ib0f2](https://gettr.com/post/p14z80ib0f2)
+*校对: 乐禧禧*
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,49 @@
 ---
 
 
-## 美国航母和日本防卫队在日本海联合演习
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2341581/)
+## 加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341618/)
 
-美国第七舰队周三（4月13日）说，在朝鲜日益增长的核和导弹威胁下，美国和日本一直在日本海进行由美国航母和日本海上自卫队船只参加的联合海军演习。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/C-3.jpg)tellerreport.com
-据美国第七舰队称，核动力航母林肯号的打击群于上周五开始参与联合演习。据韩国韩联社报道，这是自2017年11月以来美国航母首次部署到朝鲜半岛附近海域。
+2022-04-13
 
-人们越来越多地猜测平壤可能进行核试验或在4月15日金日成诞辰110周年之际，在日本上空向太平洋发射洲际弹道导弹。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0T0AIMF3R7M3RVM9LG3.png)屏幕截图：[Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+#### 加拿大正处于 COVID-19 的第六波浪潮中，谭咏诗医生说
 
-据自卫队称，从日本出发，装备有宙斯盾防空系统的驱逐舰孔古（Kongou）号和另一艘驱逐舰伊奈兹玛（Inazuma）号参加了周二举行的训练。自卫队在推特上说，这次训练是 “保卫我们的国家，从和平时期开始确保这一地区和平与稳定 ”的努力的一部分。
+瑞秋·吉尔摩Rachel Gilmore  全球新闻Global News
 
-航空自卫队说，其四架F-2战斗机被派往周二的演习。
+发布 四月 12， 2022 11：56 上午
 
-在今年年初以来进行了一连串的弹道导弹发射后，朝鲜于3月24日进行了自2017年11月以来的首次洲际弹道导弹发射，标志着其自2018年4月以来自我暂停的洲际弹道导弹试验的结束。
+更新时间 四月 12， 2022 12：17 下午
 
-据日本防卫省称，最新的导弹被评估为能够飞行超过15000公里，如果按照正常弹道，能够到达整个美国本土。
+#### 已经证处于第六波COVID-19中
 
-平壤在1月份暗示，它可能会恢复核试验和洲际弹道导弹试验。它上次进行核试验是在2017年9月。
+加拿大顶级医生已经证实加拿大正处于第六波COVID-19中。
 
-**快评**：美国和日本都在亚太海域部署，这篇新闻看上去是为了应对朝鲜的核和导弹发射，实际上大家都明白威慑的是朝鲜背后的中共。
+全国最新上升的病例属于Omicron的BA.2亚变种，首席公共卫生官谭咏诗Theresa Tam医生周二表示。
 
-中共打台湾已经箭在弦上，为了这一时刻，郭先生爆料称习太阳已经准备了10年。
+“这取决于加拿大不同的地区，但是总体上看来，可以说我们在加拿大正在经历第六波浪潮”，谭对记者说。
 
-中共在穷途末路上狂奔。郭先生在3天前的文贵大直播中说过，朝鲜金家已经知道中共与俄罗斯都完了，他自己肯定无法和美国对抗。接下来金家会被灭。
+“加拿大各地区的COVID-19病例都在增加”。
 
-参考链接：[https://english.kyodonews.net/news/2022/04/3e46807c786b-us-carrier-japan-msdf-vessels-conduct-drills-in-sea-of-japan.html](https://english.kyodonews.net/news/2022/04/3e46807c786b-us-carrier-japan-msdf-vessels-conduct-drills-in-sea-of-japan.html)
+#### 评论：
 
-编译 发布：意大利罗马达芬奇农场Roma
+还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。
 
+祝新中国联邦的无苗的，有币的 ， 灭共的战友们以及全世界人民顺利度过 5月份。
+
+#### 参考资料
+
+1. [Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+
+
+编辑：LILY
+
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
