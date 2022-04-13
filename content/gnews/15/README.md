@@ -2,28 +2,24 @@
 ---
 
 
-## 郭先生即将推出两首新歌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340786/)
+## 乌克兰预计今年5月中下旬可能入欧 英国将全面支持乌克兰迎战
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340916/)
 
-作者：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+这回欧盟和英国重要官员访问乌克兰，代表着欧洲和英国都在争抢乌克兰，并且乌克兰加入欧盟的进程很快会完成，预计今年5月中下旬，乌克兰就有可能 入欧。英国将对俄罗斯进行更残酷的经济制裁，同时提供雇佣军和更多更先进的武器（含反舰反导）帮助乌克兰迎战。之后俄乌战争就会全面升级为欧洲联合对抗俄罗斯和中共国。
 
-4月10日，郭文贵先生在大直播中提及，他本人有两首新的歌曲正在准备当中。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-69.jpg)
-据悉，一首歌是由墙内一位知名歌手制作，而这位歌手也是爆料革命的战友。目前，这首新歌已经进入了录制阶段。
+**视频来源****: 20220410—****郭先生大直播**
+**视频制作****: ****文星光**
+**文案****:****文星光**
 
-至于另一首歌，则是由一位好莱坞著名作词人为新中国联邦创作的，其名为《One Hundred Percent》。郭先生补充道， 这首歌将完全不同于以往已经推出的歌曲，但其核心仍然是突出爆料革命“唯真不破”的内核。当前，这位作词人正在与郭先生沟通时间，以期能让郭先生在现场与超过一千名音乐人共同录制该曲。
-
-郭先生最后强调，音乐让国际社会直观地感受到中国人真正的生活，其力量超越国界、超乎想象。
-
-参考链接：[**2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣**](https://gettr.com/streaming/p14iwpvf134)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：Irene木木
-编辑：玫瑰圓 
-审核：Irene木木
-校正/发稿：Fei797
-
+**更多资讯，更多关注**
+[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
+[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

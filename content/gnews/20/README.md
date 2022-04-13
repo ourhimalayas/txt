@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|俄罗斯寡头的超级游艇驶向斐济
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340729/)
+## 又有12家中概股公司被列入SEC预摘牌名单
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2340825/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-据报道，一艘受制裁的俄罗斯寡头的超级游艇“Amadea”本周将在斐济加油，然后返回其母港，这里的当局预计这是最接近新西兰的一艘超级游艇。船主不太可能在船上。他是黄金生产商和涉嫌洗钱者苏莱曼克里莫夫，他在美国、英国和欧盟的制裁名单上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-4.jpg)‘阿玛达’。照片：国际船舶![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.jpg)超级游艇经纪人Duthie Lidgard 照片：RNZ/Dan Cook
-新西兰外交和贸易部（MFAT）表示，目前不知道有任何俄罗斯拥有的船只在新西兰水域受到制裁，并且表示如果“受制裁的船只试图进入新西兰，将被采取行动”。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/mfile_1622552_1_20211203080239-1-scaled.jpg)
+当地时间4月12日，美国证券交易委员会将中共国12家公司添加到观察名单中。根据SEC的要求，这12家公司需要在截止日5月3日前提供证据表明仍然符合上市的条件。这12家公司分别为Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-禁止所有俄罗斯军用或政府拥有的船只，或受制裁个人或实体的船只进入新西兰。与此同时，新西兰卫生部表示，俄罗斯的“Amadea”没有要求在新西兰加油。
+据悉这是自3月以来SEC发布的第四批中概股公司名单，根据规定，若这些公司不能在规定时间内提交SEC要求的文件或者文件不符合要求，他们将面临被披露后立即除名的后果。中概股涉及到的公司不乏中共国的互联网巨头公司，如微博、百度、爱奇艺、搜狐等。
 
-[【援引连结】](https://www.rnz.co.nz/news/national/465191/russian-oligarch-s-superyacht-sailing-towards-fiji)
+郭先生此前提到，美国会先制裁一批中共国的喉舌大外宣公司。微博是中共国的社交媒体巨头，而百度、搜狐、爱奇艺是搜索、新闻和视频平台的巨头，这些平台都具有严格的言论审查，并且是中共假宣传洗脑的主要公共平台。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流**瓶
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+reference：
+
+[https://www.stcn.com/xw/sd/202204/t20220413\_4352889.html](https://www.stcn.com/xw/sd/202204/t20220413_4352889.html)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
