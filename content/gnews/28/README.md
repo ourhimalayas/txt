@@ -2,39 +2,38 @@
 ---
 
 
-## 上海等城市的封锁加剧对经济的威胁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336817/)
+## 从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2336958/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译 重生之鹰 】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据CTV NEWS 4月8日报道：目前，中国坚定不移地坚持“清零政策”，通过封锁上海等大城市来遏制新冠肺炎疫情，这可能对其庞大的经济构成严重冲击，给全球供应链带来更大压力，并进一步加剧通货膨胀。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情-1.png)
+据[**粽呀么粽**](https://weibo.com/haeni0404)[2022年4月12日 22:08](https://weibo.com/1950920381/Lo9dBCK5g?from=page_1005051950920381_profile&amp;wvr=6&amp;mod=weibotime) 来自 [抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1464.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+[抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9) [@鋼筆様子](https://weibo.com/n/%E9%8B%BC%E7%AD%86%E6%A7%98%E5%AD%90?from=feed&amp;loc=at) 邻居为杨浦区殷行街道城市名园居民，原本身体健康，4月12日白天突发疾病瘫痪在床，下午打120急救电话一直到晚上都还在排队（从600号到200号），并且120要求家属自行先和医院联系好接收事宜，到了傍晚老人话都没法说了，跟她对话也没什么意识，居委加急开了证明，楼里其他邻居帮忙开车送出去了，但病人辗转杨浦四家医院（长海，杨中心，安图，新华）都被拒收，阳楼对口的安图医院回复需要排队2天等120接，自行送的不收治，目前病人就只能躺在家里等着！寻求转发寻求帮助！病人家属联系电话13482169051 [L粽呀么粽的微博视频](http://t.cn/A66m9chd)
 
+这只是个案，打开新浪微博的[抗疫求助](https://weibo.com/p/10080889902a1e60cd81187b008223d86da809/super_index)超话，我们可以看到一条一条的求助信息，每条求助信息背后都是一条鲜活的生命，每条求助信息背后都是无助者心碎的等待，当一个本应提供最基本的公民救助公共服务的政府以各种理由对急需救助者设置障碍的时候，这个政府就失去了存在的根本意义，这个政府在杀人，这里的人民在沉默，让我们共同面对，让我们一起要么在沉默中死去，要么在沉默中暴发一起站出来推翻这个杀人的政府。
 
-上海是中国主要的金融中心，它的一些最大的港口和机场已经被封锁了12天，而且没有结束的迹象。小企业受到重创，商店和餐馆被迫关闭。特斯拉以及许多中国和台湾制造商都不清楚何时能重启工厂。与此同时，港口延误情况越来越严重，航空货运价格飙升，给全球贸易带来了更大的压力。
+撰稿：喜马拉雅的肉夹馍；
 
-其它23个城市自上月以来也实施了全面或部分封锁。这些城市约有1.93亿居民，占中国人口总数的13.6%，贡献了23万亿元(3.6万亿美元)的GDP，占中国经济的22%。“由于封锁，在这些地区流动性已经被明显限制，对经济造成的损害正在加大，并不可避免的对其它国家和地区产生溢出效应。
+审核：喜马拉雅的馍夹肉；
 
-为此，世界银行(World Bank)周二下调了对中国2022年经济增长的预测，预计这个全球第二大经济体今年的经济增速将达到5%，远低于去年的8.1%。这也低于中国5.5%左右的官方目标。
+校对：Maarago；
 
-原文链接：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742](https://www.ctvnews.ca/health/coronavirus/lockdowns-in-shanghai-and-other-chinese-cities-pose-a-growing-threat-to-the-economy-1.5853742)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-上传/发稿 – 【青青】
-撰稿/翻译 -【重生之鹰】
-素材/采编 -【重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
