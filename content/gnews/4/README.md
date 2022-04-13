@@ -2,30 +2,16 @@
 ---
 
 
-## 今日盖特大V推荐 — 路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339279/)
+## 视频|前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2339375/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1529.png)
-盖特链接：[** https://gettr.com/user/luislacombereal**](https://gettr.com/user/luislacombereal)
+制作：香草山视频部
 
-**路易斯·埃内斯托·拉科姆自述：**
+美国前国务卿蓬佩奥在4月10日播出的一档节目中，呼吁拜登政府加大对台湾的扶持力度。 蓬佩奥指出，首先应当承认台湾是一个独立的主权国家，这不仅是一个正确的选择，也是一个符合美国国家利益的策略。
 
-记者、主持人和作家。 建议访问我的网站并了解我的社区
-**[\[email protected\]](/cdn-cgi/l/email-protection#2945484a46444b4c694b5b485a4045444c4d404841465c5a4c074a4644)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1530.png)图片来源：网络
-**路易斯·埃内斯托·拉科姆简介：**
+美国对台湾的立场，不能像对待乌克兰一样重蹈覆辙，等到乌克兰面临巨大危险时，才想起援助武器并提供支持。蓬佩奥强调，习近平和普京一样，他们不会满足于浅尝辄止的扩张，他们对外侵略的野心欲壑难填。如果美国对乌克兰的态度不够坚决，势必会让习近平相信，拿下台湾甚至侵占东南亚，都并非不可能完成的任务。
 
-路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe Heilborn，生于1966年8月2日）是巴西记者、主持人、作家和YouTuber。
-
-路易斯·埃内斯托·拉科姆先后主持了“夜晚·曼切特河、环球新闻、早安巴西、空中观点”等节目；著有三部“十四行诗集”和一部小说。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发稿：木香
 
  
 

@@ -2,31 +2,30 @@
 ---
 
 
-## 秘翻新闻｜拜登指俄对乌犯有种族灭绝罪
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2338906/)
+## 今日盖特大V推荐 — 巴比伦蜜蜂（The Babylon Bee）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339201/)
 
-**By:[秘翻新闻](https://gettr.com/post/p152cav5ceb)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1527.png)
+盖特链接： [**https://gettr.com/user/thebabylonbee**](https://gettr.com/user/thebabylonbee)
 
-**[2022-04-13](https://gettr.com/post/p152cav5ceb)**
+巴比伦蜜蜂自述：
 
-**新闻内容:**
+您可以信任的假新闻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1528.png)图片来源：网络
+**巴比伦蜜蜂简介：**
 
-1. 广州连夜建方舱 学校停课 民众抢购物资
+《巴比伦蜜蜂》（Babylon Bee）是一个保守的基督教新闻讽刺网站，发布有关宗教、政治、时事和公众人物等主题的讽刺文章。
 
-2. 货车司机不跑上海宁波 塞港问题严重
+2021年1月，《华盛顿时报》称，《巴比伦蜜蜂》每月的页面浏览量超过2000万，拥有超过20,000名付费订阅者，并拥有一个856,000名关注者的Twitter帐户。2022年1月，《经济学人》称《巴比伦蜜蜂》“在鼎盛时期每月吸引多达2500万读者”。并且，该网站所有者兼首席执行官塞思·狄龙已经将《巴比伦蜜蜂》变成了“继《福克斯新闻》之后最受欢迎的保守网站之一”。
 
-3. 中美金融战 又有12家中企被美SEC列入准除牌名单
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-4. 俄罗斯在乌克兰南部控制区建立新政府
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-5. 乌克兰特勤局称他们逮捕了普京的最高盟友
-
-**Gettr链接：[https://gettr.com/post/p152cav5ceb](https://gettr.com/post/p152cav5ceb)**
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

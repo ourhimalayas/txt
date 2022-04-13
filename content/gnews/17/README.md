@@ -2,21 +2,31 @@
 ---
 
 
-## 俄乌战争｜拜登总统公开表示 俄乌战争是种族灭绝
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338768/)
+## 樱花灭共诗——武斗（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
 
-**港台前线 zhong｜2022-4-13**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-22.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-外媒报导，拜登总统12日于爱荷华州公开谈论油价上涨时表示“你（美国公民）的家庭预算、加满油的能力，不应该取决于一个独裁者在另一半球发起战争实施种族灭绝”。据了解，拜登总统过去评价俄乌战争多使用“战争罪”，惟本次爱荷华州演讲首次使用“种族灭绝”一词。此外，拜登更明白指出“现在愈来愈明显，普京就连乌克兰人的身分认同也想抹灭”。
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
 
-事后，拜登总统向媒体确认普京对乌克兰发起战争“他称之为种族灭绝”。
+沪上纷纭军管至，四围浦江战车鸣。
 
-来源｜[AP](https://apnews.com/article/russia-ukraine-putin-biden-iowa-europe-97b3a02b61df3012cc5520d4d3b5e806)
+不习十载文革乱，莫尽一尊武斗形。
 
-* * *
+市委夺官民怨解，社区圈禁党旗兴。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+摇旗赚取笼中鸟，交口感恩白卫兵。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
