@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 6:08 AM (UTC)`
+
+2022.04.10  新中国联邦 | 喜财经   传统银行与数字银行对比
+![img](https://media.gettr.com/group35/origin/2022/04/13/06/b142b076-9044-c02d-6f74-949d77bac220/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/13/2022 5:50 AM (UTC)`
 
 4/10/2022 Miles Guo: I place 50% probability of CCP’s downfall on Xi' s health, the other 50% depends on the efforts of us, citizens of the New Federal State of China. The CCP's kleptocrats are a group of timid self-seekers, only when Xi's health broke down, would they dare to seize power.<br/><br/>4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权<br/>
@@ -163,13 +170,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 4/10/2022 Miles Guo: Lao Baixing rushed to take the COVID vaccines because of their ignorance and fear of death; dictators such as Xi Jinping and Putin are aware that only when Lao Baixing live in wars, fear and starvation, will the dictators themselves stay safe.<br/><br/>4/10/2022 文贵直播：老百姓抢着打疫苗是因为无知和对死亡的恐惧；独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全。<br/><br/>
 ![img](https://media.gettr.com/group30/getter/2022/04/12/23/6a2edba2-7952-1a54-6608-38f845f9b195/out.jpg)
-
----
-
-`@miles 4/12/2022 11:03 PM (UTC)`
-
-4/10/2022 Miles Guo: What is going on in the major cities of Commmunist China is indeed a stress test, which is exactly what Hitler and the Japanese did before launching WWII; Xi Jinping and other current CCP kleptocrats grew up during the Cultural Revolution. To them, Lao Baixing are only a tool. They believe only when Lao Baixing strive for food and mere survival, will they forget about their basic human rights or voting rights. Only then will the CCP be able to survive.<br/><br/>4/10/2022 文贵直播: 如今习在中共国几个城市所做的压力测试，就是当年希特勒和日本在发动战争前所做的事情！在习代表的文化大革命一代高官的眼里，老百姓只是工具。他们希望借老百姓被压榨到只关心食物和生存，无暇顾及权利和选票之际，为中共政权赢得苟延残喘的机会！<br/>
-![img](https://media.gettr.com/group4/getter/2022/04/12/23/179051dd-669a-9371-465a-8ca8ba183b85/out.jpg)
 
 ---
 
