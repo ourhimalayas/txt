@@ -2,34 +2,31 @@
 ---
 
 
-## 乌克兰：逮捕了逃亡亲俄政治家并用其交换战俘
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338764/)
+## 樱花灭共诗——武斗（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
 
-4月12日，乌克兰表示，已逮捕逃亡的亲俄政治家维克托·梅德韦丘克（Viktor Medvedchuk），他被视为俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰最亲密的盟友。
+沪上纷纭军管至，四围浦江战车鸣。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-251.jpg)（图片来自大纪元）
+不习十载文革乱，莫尽一尊武斗形。
 
-据悉，梅德韦丘克是在乌克兰安全部门SBU的一次特别行动中被捕的。乌克兰安全部门在一份声明中说，梅德韦丘克成为亲俄罗斯的政治家，为侵略国工作多年。为躲避正义身穿乌克兰军装进行伪装。
+市委夺官民怨解，社区圈禁党旗兴。
 
-乌克兰总统泽连斯基在周二向全国发表的视频讲话中，提出用梅德韦丘克交换被俄罗斯囚禁的乌克兰战俘。
+摇旗赚取笼中鸟，交口感恩白卫兵。
 
-67岁的梅德韦丘克是一名富有的商人，他领导着乌克兰亲俄反对党终身党。普京是他女儿的教父。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
 
-梅德韦丘克因参与将石油和天然气许可证从克里米亚转移到俄罗斯的计划，于2021年5月因叛国罪被软禁。他还被指控泄露乌克兰军事机密。
-
-自2月24日俄罗斯入侵乌克兰后不久，梅德韦丘克从软禁地点逃脱。他本人一直否认有不当行为，并声称对他的指控是政治镇压。
-
-俄方普京的发言人德米特里·佩斯科夫（Dmitry Peskov）说，正在查验有关梅德韦丘克被捕的消息，因为虽然看到了梅德维丘克被捕的照片，但是并不确定照片的真实性。
-
-此外，据俄国国营广播公司RT报导，梅德韦丘克认为乌克兰转向西方不利于乌克兰利益。俄罗斯总统将梅德韦丘克描述为“乌克兰民族主义者”。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/12/n13710227.htm](https://www.epochtimes.com/gb/22/4/12/n13710227.htm)
-
-总编：老孙
-校对发布：爱放飞
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
