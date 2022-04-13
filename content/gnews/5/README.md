@@ -2,39 +2,46 @@
 ---
 
 
-## 日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341692/)
+## 中共面对美国命令上海大使馆撤离发表战狼言论
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2341709/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
-上一篇：[日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）](https://gnews.org/zh-hans/2341647/)
+作者：银河系农场—骄子
 
-将资产冻结对象扩大到550人、40个团体。
-俄罗斯个人和团体资产冻结的对象也将拓宽。他说：“将包括近400名俄罗斯军方官员、议员和国有企业在内的20个军事相关团体重新加入制裁对象。”据说总共有550人，增加到40个团体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1620.png)图片来源：日经新闻
 
-降低俄罗斯对石油和能源的依赖。
-当被问及原油和天然气等进口时，他回答说：“我们将迈向降低包括石油在内的能源整体对俄罗斯的依赖程度。”他解释说，将与美英等国按照7日总结的七个主要国家(G7)首脑声明作出回应。具体内容避免了提及。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-为了应对能源和食品价格的高涨，在4月中提出了总结紧急对策。
-来了。
 
-“对日本人的保护万无一失”
-当被问及决定将部分驻日本的俄罗斯外交官驱逐出境的理由时，他说：“综合判断。这是根据目前乌克兰局势采取的措施。我不会透露细节。“。
 
-他回应说，俄方表示将采取对抗措施，“我们不会在具体措施不明确的阶段提出任何建议”。他强调，为了保护俄罗斯侨民和日本企业的活动，“希望作为政府万无一失”。
 
-下一篇：[日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（3/4）](https://gnews.org/zh-hans/2341696/)
 
-参考链接：[対ロシア制裁、石炭禁輸や最大手銀の資産凍結　首相表明: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOUA088B90Y2A400C2000000/?n_cid=BMSR2P001_202204081814&amp;unlock=1)
+当地时间4月12日，美国命令驻上海大使馆非紧急雇员和所有家属撤离中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-109.jpg)图源网络
+美国表示鉴于中共上海的暴力防疫政策，从自愿撤离到命令撤离，美国这一举措引来中共外交部赵立坚的战狼回应。赵立坚声称中共防疫政策是全世界最好的防疫政策，并且一直在按照国际公约做事，中共并没有什么错，最后反而赖美国把人员撤离问题政治化、工具化，目前已经在和美国交涉此事。
 
-* * *
+北京冬奥会开幕式之前，美国授权撤离，郭先生在直播中向世界告知了此事。随后中共喉舌媒体连夜发文否认此事，并声称中共防疫做得最好，还说美国是在制造恐慌。尽管表面上尽显战狼本色，但背地里中共国为了挽留美国，无所不用其极，使出浑身解术不让美国撤离，花费千亿美金都在所不惜。冬奥会的这次授权撤离没有发布任何声明就把中共ko到半死，这次美国接连发布两次撤离，措辞还学习了中共的文字话术，尽管中共喉舌还在尽力叫嚣强撑面子，但大势已去，苟延残喘而已。
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+新闻来源：https://world.huanqiu.com/article/47Znq21Y1Gw
 
+https://world.huanqiu.com/article/46YF9AQJeYc
+
+[https://gettr.com/streaming/puvpmn3ce1](https://gettr.com/streaming/puvpmn3ce1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
