@@ -15,56 +15,56 @@
 
 ---
 
-### [樱花FM┃境外投资者继续抛售中国国债, 资金加剧向美国外流](/content/gnews/1/README.md)
+### [郭文贵先生2022年4月12日盖特视频（9分34秒）全文字版](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花FM┃美国数字货币政策即将出台 比特币矿业巨头或转向中东和欧洲扩张](/content/gnews/2/README.md)
  ` 樱花FM`
 
-### [樱花FM┃黑警李家超被中共“钦定”为香港特首](/content/gnews/2/README.md)
+### [樱花FM┃境外投资者继续抛售中国国债, 资金加剧向美国外流](/content/gnews/3/README.md)
  ` 樱花FM`
 
-### [樱花FM┃日本返俄美术品被芬兰海关扣押](/content/gnews/3/README.md)
+### [樱花FM┃黑警李家超被中共“钦定”为香港特首](/content/gnews/4/README.md)
  ` 樱花FM`
 
-### [樱花FM┃日本首个智能城市！清洁能源 AI覆盖](/content/gnews/4/README.md)
- ` 樱花FM`
-
-### [樱花FM┃中共的警察为什么这么强硬](/content/gnews/5/README.md)
- ` 樱花FM`
-
-### [从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花FM┃美众议院议长佩洛西确认阳性推迟访日](/content/gnews/7/README.md)
- ` 樱花FM`
-
-### [樱花FM┃内地专家再赴港 香港政商两界恐遭中共动态清零](/content/gnews/8/README.md)
- ` 樱花FM`
-
-### [樱花FM┃偷梁换柱 以市民的利益建高污染企业](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [樱花FM┃邪恶的习近平以疫情防控，制造矛盾坐收渔利](/content/gnews/10/README.md)
- ` 樱花FM`
-
-### [樱花FM┃冯德莱恩访问基辅 欧盟禁止俄煤炭进口](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [樱花FM┃上海封城：投资女王找面包 中金一哥寻鸡](/content/gnews/12/README.md)
- ` 樱花FM`
-
-### [文•贵天成——文贵先生谈孟建柱（三十八）](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [上海等城市的封锁加剧对经济的威胁](/content/gnews/14/README.md)
+### [英首相约翰逊会见乌克兰总统泽连斯基](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [文·贵天成——文贵先生谈孟建柱（四十二）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
+### [樱花FM┃日本返俄美术品被芬兰海关扣押](/content/gnews/6/README.md)
+ ` 樱花FM`
 
-### [上海发布&amp;疾控中心以连坐和永远红码政策强制转运方舱](/content/gnews/16/README.md)
+### [樱花FM┃日本首个智能城市！清洁能源 AI覆盖](/content/gnews/7/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃中共的警察为什么这么强硬](/content/gnews/8/README.md)
+ ` 樱花FM`
+
+### [从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [4/12/2022 文贵盖特：比利时首相亚历山大·德克罗主动走到新中国联邦帐篷前，要求和穿着灭共马甲的Nicole合影，并接受了战友们采访](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
+### [樱花FM┃美众议院议长佩洛西确认阳性推迟访日](/content/gnews/10/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃内地专家再赴港 香港政商两界恐遭中共动态清零](/content/gnews/11/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃偷梁换柱 以市民的利益建高污染企业](/content/gnews/12/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃邪恶的习近平以疫情防控，制造矛盾坐收渔利](/content/gnews/13/README.md)
+ ` 樱花FM`
+
+### [文•贵天成——文贵先生谈孟建柱（三十八）](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海等城市的封锁加剧对经济的威胁](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [文·贵天成——文贵先生谈孟建柱（四十二）](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海发布&amp;疾控中心以连坐和永远红码政策强制转运方舱](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [邪恶的清零政策 真正的官僚杀人](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -120,40 +120,40 @@
 ### [突发：乌克兰特勤局逮捕了亲俄反对党领袖梅德韦丘克](/content/gnews/35/README.md)
  ` 蓝莲花农场`
 
-### [欧佩克因战争下调2022年世界石油需求预测](/content/gnews/36/README.md)
- ` Shuizhuyu`
-
-### [台湾在中共国威胁下发布第一本战争生存手册](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [截至4.12 俄乌战事汇总](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄乌战争“没想到”系列之七：](/content/gnews/39/README.md)
+### [美国宣布撤离驻上海领事馆非紧急政府工作人员](/content/gnews/36/README.md)
  ` 蓝莲花农场`
 
-### [马里乌波尔市民呼吸衰竭 俄军用无人机投下化学武器](/content/gnews/40/README.md)
+### [欧佩克因战争下调2022年世界石油需求预测](/content/gnews/37/README.md)
+ ` Shuizhuyu`
+
+### [台湾在中共国威胁下发布第一本战争生存手册](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国在复活节继续镇压天主教徒](/content/gnews/41/README.md)
+### [截至4.12 俄乌战事汇总](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄乌战争“没想到”系列之七：](/content/gnews/40/README.md)
+ ` 蓝莲花农场`
+
+### [马里乌波尔市民呼吸衰竭 俄军用无人机投下化学武器](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国在复活节继续镇压天主教徒](/content/gnews/42/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [逃离中共统治，创作《赤地之恋》的张爱玲](/content/gnews/42/README.md)
+### [逃离中共统治，创作《赤地之恋》的张爱玲](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [日本首现奥米克戎XE变异株病例](/content/gnews/43/README.md)
+### [日本首现奥米克戎XE变异株病例](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [美国将派高级别官员访问所罗门群岛](/content/gnews/44/README.md)
+### [美国将派高级别官员访问所罗门群岛](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [解读上海的一则通知再次将上海人拖进灾难的“深渊”](/content/gnews/45/README.md)
+### [解读上海的一则通知再次将上海人拖进灾难的“深渊”](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/46/README.md)
- ` NFSC News`
-
-### [放下和接受是人生必修课](/content/gnews/47/README.md)
+### [习近平利用中共病毒及疫苗灾难控制着中国人民](/content/gnews/47/README.md)
  ` NFSC News`
 
 ### [樱花时政┃新西兰宣布赴欧援助乌，并通过英国提供武器支援](/content/gnews/48/README.md)

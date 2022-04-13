@@ -2,37 +2,30 @@
 ---
 
 
-## 从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2336958/)
+## 樱花FM┃日本返俄美术品被芬兰海关扣押
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2336981/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情-1.png)
-据[**粽呀么粽**](https://weibo.com/haeni0404)[2022年4月12日 22:08](https://weibo.com/1950920381/Lo9dBCK5g?from=page_1005051950920381_profile&amp;wvr=6&amp;mod=weibotime) 来自 [抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日本返俄美术品被芬兰海关扣押.png)
 
-[抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9) [@鋼筆様子](https://weibo.com/n/%E9%8B%BC%E7%AD%86%E6%A7%98%E5%AD%90?from=feed&amp;loc=at) 邻居为杨浦区殷行街道城市名园居民，原本身体健康，4月12日白天突发疾病瘫痪在床，下午打120急救电话一直到晚上都还在排队（从600号到200号），并且120要求家属自行先和医院联系好接收事宜，到了傍晚老人话都没法说了，跟她对话也没什么意识，居委加急开了证明，楼里其他邻居帮忙开车送出去了，但病人辗转杨浦四家医院（长海，杨中心，安图，新华）都被拒收，阳楼对口的安图医院回复需要排队2天等120接，自行送的不收治，目前病人就只能躺在家里等着！寻求转发寻求帮助！病人家属联系电话13482169051 [L粽呀么粽的微博视频](http://t.cn/A66m9chd)
+在俄罗斯对乌克兰的军事侵略持续的情况下，欧盟（EU）对俄罗斯和白俄罗斯采取了大规模制裁举措。因此次的制裁，美术馆收藏的作品（普希金收藏品在其中）被没收。
 
-这只是个案，打开新浪微博的[抗疫求助](https://weibo.com/p/10080889902a1e60cd81187b008223d86da809/super_index)超话，我们可以看到一条一条的求助信息，每条求助信息背后都是一条鲜活的生命，每条求助信息背后都是无助者心碎的等待，当一个本应提供最基本的公民救助公共服务的政府以各种理由对急需救助者设置障碍的时候，这个政府就失去了存在的根本意义，这个政府在杀人，这里的人民在沉默，让我们共同面对，让我们一起要么在沉默中死去，要么在沉默中暴发一起站出来推翻这个杀人的政府。
+芬兰海关曾表示，4月1日至2日期间，在芬兰和俄罗斯边境检查站瓦利默（varimer）阻止了3艘船舶运送美术品，其中1艘被扣押。据artnetnews报道，其保险金额超过4200万欧元。该货物中包括绘画和雕塑，芬兰海关执行部长萨米·拉克西特 解释说，调查对象货物是“作为通常管制业务的一环被发现的货物”。作品是从意大利和日本经由芬兰运往俄罗斯的途中，是在展览会上返还的作品。
 
-撰稿：喜马拉雅的肉夹馍；
+据（俄塔斯社）透露，这些没收作品包括意大利返还的埃尔米塔兹美术馆和国立特列查科夫美术馆的收藏品，日本返还的收藏品包括俄罗斯国立东洋美术馆和普希金美术馆的收藏品，据悉，这些被没收的作品已经做好了返还的准备。但欧盟为制裁俄罗斯，禁止销售、供应、转让、出口包括美术品在内的高级品。《纽约时报》报道说，到目前为止，已有10人涉嫌违反该制裁，运送美术作品。
 
-审核：喜马拉雅的馍夹肉；
+文字版原文：
+[樱花时政┃日本返俄美术品被芬兰海关扣押](https://gnews.org/zh-hans/2310224/)
 
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑：东京樱花团/曲别针
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 12:32 AM (UTC)`
+
+2022.04.12 晚  新中国联邦 | 新闻     上海确诊人数首度下降，当局分区管理愚弄民众，解封区仍维持禁足；俄罗斯外长表示对乌克兰军事行动不会停止
+![img](https://media.gettr.com/group49/origin/2022/04/13/00/c327ddcb-5160-cc77-702d-a3617fb95dca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/12/2022 11:41 PM (UTC)`
 
 2022.04.12《The Fringe》 Episode 167  CHINA TEM TOLERANCIA ZERO AO VIRUS
@@ -147,12 +154,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 4/10/2022: Miles Guo: UK and European union are competing to form an alliance with Ukraine. Meanwhile the CCP is deploying HQ and DF series Missile Systems in the Balkans and the Middle East. This has set the stage for a war between Europe and Russia/China. Xi Jinping will take this chance to invade Taiwan; the Chinese will be the biggest victims of the war. What is going on in Shanghai will happen to the entire mainland China. The CCP is prepared for the death of 100 million Lao Baixing.<br/><br/>4/10/2022：文贵直播：英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开，习近平会进攻台湾；这场战争的最大受害者将是中国老百姓，现在的上海就是未来中国的缩影，共产党已做好中国死上一亿人的准备。<br/>
 ![img](https://media.gettr.com/group33/getter/2022/04/12/16/26a70e0b-5ce5-4649-ca5b-75e36aa40514/out.jpg)
-
----
-
-`@miles 4/12/2022 4:06 PM (UTC)`
-
-04/12/2022 on the 9th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/>#3🥉 on Australia 🇦🇺, Fiji 🇫🇯  Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Australia, Cambodia,Fiji, Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2334531/
 
 ---
 
