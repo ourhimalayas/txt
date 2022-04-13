@@ -2,31 +2,27 @@
 ---
 
 
-## 中日财经爆┃中共工商银行通知，暂停个人外汇业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2340416/)
+## 中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2340512/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月13日中新经纬报道，工商银行官方发布《关于个人外汇买卖及外币兑换业务相关安排的通告》指出，自北京时间6月12日0时起，工商银行暂停个人外汇买卖业务新客户签约及全部交易品种的开仓交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-260.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg2.jiemian.com%2F101%2Foriginal%2F20211012%2F163404571857724300_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6692885.html&amp;tbnid=NYO20UVmUBqXLM&amp;vet=12ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg..i&amp;docid=f6Jtn8CiFwzEkM&amp;w=640&amp;h=364&amp;q=%E5%B7%A5%E5%95%86%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg)
-早在2021年，多个银行包括工行在内的多家银行宣布暂停或调整个人外汇买卖业务，当时，工商银行发布了《关于调整账户外汇业务的通告》表示，将于8月15日对账户外汇业务规则和交易系统进行调整。自2021年8月15日起，风险承受能力评估结果为进取型(C5)的客户可继续在我行办理账户外汇业务，并对交易起点、持仓限额、业务停办等新增要求。
+来源：N12News 
+发布时间：20220412
+编译：GM
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-13-21.08.11.png)
+中国驻以色列大使馆作为逾越节礼物赠送给一些部长的保温杯，在例行安全检查中发现其中有可疑物品，杯子里这个像镜子的部件让人怀疑它可能是窃听设备。
 
-2021年7月27日，招商银行公告称，“自8月23日起，我行将根据新版协议文本，暂停个人双向外汇买卖业务的新开仓交易功能，客户将无法新发起开仓交易，原有交易平仓不受影响。”还指出个人外汇期权业务即日起停止发售新产品。
+对中国驻以色列大使馆移交给一些政府部门的礼物进行的例行安全检查引发了人们对这一事件的怀疑，该事件很容易成为一系列紧张局势和间谍活动的一部分。
 
-2021年8月30日，华夏银行发布公告称，将于12月1日起，暂停个人外汇买卖业务，恢复时间另行通知。8月31日，华夏银行又对上述公告进行了澄清声明，声明称，为升级优化技术系统，自12月1日起，华夏银行将暂停办理个人外汇买卖(外汇兑外汇)业务，业务恢复时间将另行通知。
+事发后，政府机关立即收回其他保温杯作进一步检查。任何来自外国使团的礼物都需要经过安全许可。由于“害怕有监听设备或摄像头”一些部门被告知要重点关注来自中国的礼物。
 
-此次工行亦强调，本次该行仅调整个人外汇买卖业务，不涉及个人结售汇业务，个人结售汇业务可正常办理。也就是强调了，外汇不能出汇款出国，只能在本国境内操作，但是实景情况是，持有外币在中共国没是不认可与大流通的货币，仅限于银行和个人之间兑换，既然是外币，兑换后不能汇出境外，又不能在国内流通，这样的政策，也彻底封锁了转移资金的道路，也是中共闭关锁国的开始。
+在中国大使馆否认之后，GSS宣布：“检查该组件的技术专家确认它是一个杯子的组件，旨在保持杯壁的真空并保持温度，这份礼物是为了表达中以之间的友谊，我们要求发布它的媒体撤出报道。”
 
-信息来源：[【工行通告将关闭个人外汇这项业务！】](https://ml.mbd.baidu.com/r/EpSVZpUW2I?f=cp&amp;rs=1651382903&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b31aea2723857e27&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+参考链接：[https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&s=08](https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&amp;s=08)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[https://mobile.mako.co.il/news-military/2022\_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&pId=173113802&Partner=interlink&s=08](https://mobile.mako.co.il/news-military/2022_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&amp;pId=173113802&amp;Partner=interlink&amp;s=08)
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

@@ -2,44 +2,24 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第10天登榜4国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2340138/)
+## 秘翻在线：上海东方卫视举办抗疫主题晚会引公愤
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340286/)
 
-4/13/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第10天iTunes打榜记录：
+**撰稿：Ping**
 
-* * *
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-13-204358.jpg)
+4月13日凌晨一点，上海东方卫视官方账号发布声明，称感谢大家对上海东方卫视频道的关心，原定于在4月13日晚上的公益晚会《众志成城，同心守沪——东方卫视抗疫特别节目》将暂缓播出。
 
-[【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+早在晚会消息公布，表演节目和演员清单曝光网上的时候，就引起上海网友骂声一片。就在上海封锁超过三周的当下，各种人道灾难频出，老人自杀，透析病人得不到医治而死亡，癌症病人无法继续治疗而失去生命，年轻人因为生存压力而自杀，年轻女孩为了家人糊口而被无耻的“大白”奸污，人们为了生存出门寻找食物而被大白殴打……上海东方卫视还想利用电视传媒向党表忠心大唱赞歌吗? 但凡还有点良知和正常思维的百姓，怎么能不感到气愤？
 
-* * *
+有网友谴责，东方卫视为什么不拍上海防疫的记录片，跟踪一下救援物资的发放和价格，以及孤寡危重人群的生活，还有方舱医院的现状等等。当人们的生存都很难维持，生命都受到威胁的时候，谁还有心情看与民生相悖的歌颂抗疫伟大的文艺晚会吗？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+如果此公益晚会播出，更会加剧社会仇富的心理。这些参加晚会的演员，都是身价不菲的明星大腕。他们在舞台上搔首弄姿，歌颂党的抗疫的伟大成绩。而现实中的老百姓却连吃口饭都成为奢侈，肚子饿了二十多天了，他们需要的是如何填饱肚子，如何走出封锁的牢笼，如何让老人儿女正常生活。而与明星大腕的生活相比天上地下，这样会不会增加老百姓的仇富心理，会产生什么样的后果呢？
 
+也许办这场晚会可能就是想把矛盾转移到群众斗群众上来，让老百姓忘记真应该痛恨和推翻的是谁！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-
-
-[【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-13-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**[新闻来源](https://www.sohu.com/a/537543533_131976)**
 
  
 

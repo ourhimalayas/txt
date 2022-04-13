@@ -2,36 +2,56 @@
 ---
 
 
-## 加拿大再向乌克兰提供1亿加币人道救援
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340032/)
+## 文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2340056/)
 
-##### 作者：加拿大温哥华扬帆农场 -【自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-加拿大CTV新闻4月9日报道，总理特鲁多周六宣布为乌克兰提供1亿加币人道主义援助，及为来加乌克兰难民提供更多帮助。
+整理： BENJ1
+编辑：李易通
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1565.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1533.png)图片来源：雅典娜设计组（614）
 
 
-特鲁多是在代表加拿大政府视频参加在华沙由全球公民组织举行的集会上作出这一承诺的。至此，加政府对乌人道主义援助达到2.45亿加币。
+郭文贵先生2021年10月29日直播
 
-这笔钱将帮助在乌克兰以及难民涌入的邻国提供紧急医疗服务、食物、水和住所。星期六的会议共筹集了124亿元。乌克兰总统泽连斯基在推文中对加拿大的援助致以谢意。欧盟委员会主席冯德莱恩说，欧洲对乌克兰的支持将持续到战争之后，包括战后帮助乌克兰人民重建家园。
+当疫苗灾难到来的时候，所有今天看得出来的房地产危机、金融危机、粮食危机等都会无限放大。只有我们新中国联邦告诉了世界这些。这个世界让你生存下来的真不是粮食，也真不是黄金，而是你提前预知灾难的能力和你应对灾难的准备，这才是爆料革命的核心价值。
 
-渥太华也在周六宣布会为来加乌克兰难民提供包括从乌克兰到加拿大的定向包机，短期收入支持和长达两周的酒店住宿。渥太华还承诺对乌克兰政府提供财政上的支持。加拿大正在利用一切机会孤立俄罗斯。
+郭文贵先生2021年11月3日直播
 
-原文链接：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+明年五月份疫苗灾难的开始，会导致世界经济的整个大调整，一定是下行或者是崩塌。咱在地球上挖了一个最深的漏钱的漏斗，就像那个水一样，在喜马拉雅山下面最低处的水是最多的，咱就挖了个最深的斗，只要它泄洪，水都得跑到咱这里来，世界的财富没有别的选择。水不是往高处走，水往低处流，我们就挖了个漏斗在这等着，喜币价格现在还早着呢，咱正在挖这个坑的过程当中。
 
-上传/发稿 – 【青青】
-撰稿 -【自由法兰西】校对/审核 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+郭文贵先生2021年11月5日直播
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+你们现在记住，过了明年5月份你们就知道世界会变成什么样，完全和你们想象的不一样，这一切就是因为疫苗灾难。疫苗灾难有多坏，反华排华状况就会有多坏。它唯一的好处就是对咱灭共是大大的帮助，但是我们绝不希望以反华为代价来达到灭共。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+郭文贵先生2021年11月12日直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+战友们拥有着一个前所未有的大时机，就是共产党制造了生化病毒、疫苗灾难。人类要死好多人作为代价才创造了一个新的国际大秩序，包括信仰重建、政治重建、国际社会重建。你觉得联合国现在还有用吗?还有谁在乎联合国呀?当整个一切都将重组的时候，我们走在了全世界的最前面。冠状病毒的本质和来源我们说对了，疫苗灾难我们提前说了，解药我们提前讲了，我们又没打疫苗，这简直是神话中的神话，你们就珍惜吧。
+
+郭文贵先生2021年12月1日直播
+
+兄弟姐妹们千万待在家里，千万准备好药。更重要的是疫苗灾难不会因为这些停止，我不相信这个世界上所有打了疫苗的人都知道吃青蒿素。疫苗灾难我觉得会减缓，但灾难程度不会受到任何影响。我们真正的恶梦还没来呢，人类要经历一次巨大的考验才能分出这个世界的阴阳两极，才能分出好人和坏人，最后才能知道谁从灾难中活下来。千万不要有任何侥幸的心理，更不要有幻想。
+
+资料来源：郭先生GTV、盖特直播
+
+往期回顾：
+
+[文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（一）](https://gnews.org/zh-hans/2310129/)
+
+[文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（二）](https://gnews.org/zh-hans/2315019/)
+
+[文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（三）](https://gnews.org/zh-hans/2339348/)
+
+[文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（四）](https://gnews.org/zh-hans/2339625/)
+
+[文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（五）](https://gnews.org/zh-hans/2340046/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

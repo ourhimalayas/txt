@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月11日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340103/)
+## 视频|奥地利总理对化解俄乌冲突持悲观态度普京已进入战争逻辑
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2340285/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+制作：香草山视频部
 
+奥地利总理内哈默（Karl Nehammer）11日与俄罗斯总统普京进行会谈后坦言，普京的“战争逻辑”令人感到悲观，他形容与普京的会谈过程非常艰难。内哈默表示，“我们不应该抱有任何幻想，普京已经进入到自己的战争逻辑中，他正在采取相应的军事行动，成功拿下乌克兰”。
 
+内哈默是俄乌战事爆发以来，首位与普京面对面会晤的欧盟国家领袖。奥地利并非北约成员国，数十年来与俄罗斯保持着相当友好的外交关系，因此，奥地利过去一直是俄罗斯与欧洲利益分歧的调解人。内哈默透露，他觉得俄罗斯方面对与乌克兰总统泽连斯基进行直接会晤的提议几乎没有兴趣。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-12-1187x1536-1.png)
+发稿：Daxia
 
-
-
-
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月11日晚](https://gnews.org/zh-hans/2332251/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 1:15 PM (UTC)`
+
+ 4月13号：尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！
+![img](https://media.gettr.com/group21/getter/2022/04/13/13/8e5f2922-af17-552a-7b2f-63a531336427/out.jpg)
+
+---
+
 `@miles 4/13/2022 12:52 PM (UTC)`
 
 2022年4月13日 文贵大直播：新中国联邦喷薄而出；中共独裁者内外交困；习全面回归计划经济；喜币会成为数字法币
@@ -165,13 +172,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 【Ukraine Rescue】04/11/22 Fellow fighter Nicole interviews a volunteer who was born in Estonia before the collapse of the Soviet Union at the Medyka camp. He knows the brainwashing and suppressing of the people by totalitarian dictatorships, so he understands very well why the Chinese must take down the rule of the Chinese Communist Party. He believes that the New Federal State of China brings hope not only to the Chinese people, but also to other people in the world who are against the CCP.<br/><br/>【乌克兰救援】04/11/22 妮可战友在梅迪卡营地采访了一名苏联解体前出生于爱沙尼亚的志愿者，他知道专制独裁对人民的洗脑和毒害，所以他非常理解中国人为什么必须摆脱共产党的统治。他认为新中国联邦不仅给中国人民带来希望，也给世界其他反对中共的人们带来希望。<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/13/02/69f30517-91e2-eff5-beae-80d598b89db9/out.jpg)
-
----
-
-`@miles 4/13/2022 2:00 AM (UTC)`
-
-2022.04.12  新中国联邦 | 喜财经  今天是新中国联邦历史性的一天，比利时总理外交默认的一小步，世界外交默认的一大步
-![img](https://media.gettr.com/group24/origin/2022/04/13/02/a8dad45f-3ac7-c0ef-87f1-1c455d4ce2d7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
