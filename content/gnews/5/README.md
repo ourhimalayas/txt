@@ -2,28 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月12日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2337317/)
+## 【乌克兰救援】比利时首相作为首位国家元首接受新中国联邦采访仅仅是个开始，很多国家都会效仿
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2337444/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-59.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-13.png)
+【乌克兰救援】04/12/2022 对于比利时首相作为首位国家元首接受了新中国联邦采访这一深巨历史意义的时刻，妮可表示：这仅仅是个开始，很多国家都会效仿；这将给仍身处水深火热之中的14亿中国人民传达出一个非常强烈且鼓舞人心的信息。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p15016scca9](https://gettr.com/post/p15016scca9)
-访谈：[https://gettr.com/post/p150s4pd0b1](https://gettr.com/post/p150s4pd0b1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-12.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

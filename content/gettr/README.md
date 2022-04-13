@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 3:02 AM (UTC)`
+
+2022-4-12《鸡血王喜币大作战》 第一百六十三集 嘉宾：无双柳薇薇、文空
+![img](https://media.gettr.com/group50/origin/2022/04/10/02/1b337cc6-35b8-9f08-ae6d-69e0175c7077/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/13/2022 1:59 AM (UTC)`
+
+🆘🇺🇦🆘来自乌克兰救援前线Nicole报道:<br/><br/>这个来自以色列的义工用手机拍摄法治基金新中国联邦大帐篷里面的poster、横幅， 说” Very impressive” (印象深刻） 他知道我们是灭共的新中国人， 让我们介绍新中国联邦灭共的使命，用手机录下来，他说会把这段视频带到以色列去传播📣 让更多以色列人知道新 #中国联邦人 在灭共。 最后他用希伯来语表达了他的心声，“爱与和平”！<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
+![img](https://media.gettr.com/group41/origin/2022/04/13/01/963be792-15cd-40c7-b87f-90f9fb1f70df/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 4/12/2022 4:53 PM (UTC)`
@@ -154,20 +170,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 4/12/2022 Miles Guo’s GETTR: Nancy Pelosi could visit Taiwan at any time. Will the tragedy of exchanging sex for food in Shanghai and Changchun repeat itself in Beijing? The CCP is finished. Some South American countries are standing with the New Federal State of China. Soon we will see the Himalaya Coin become the earliest and the most popular digital currency to be recognized as a legal tender, while the Renminbi will become the equivalent of the currency used for committing crimes!<br/><br/>4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！<br/>
 ![img](https://media.gettr.com/group24/getter/2022/04/12/22/5996fcf5-6f87-2159-6768-1341988a7f8d/out.jpg)
-
----
-
-`@miles 4/12/2022 10:44 PM (UTC)`
-
-4/12/2022 Miles Guo’s GETTR: Belgian Prime Minister Alexander De Croo took the initiative to walk over to the tent of the New Federal State of China. He asked Nicole, who was wearing the yellow vest with the slogan of taking down the Chinese Communist Party, to take a photo with him, and he was interviewed by our fellow fighters. Merkel and Sarkozy are political war criminals, who have deceived the world, colluded with the CCP, and cultivated Xi Jinping and Putin, causing countless humanitarian disasters to happen in Communist China and Ukraine.<br/><br/>4/12/2022 文贵盖特：比利时首相亚历山大·德克罗主动走到新中国联邦帐篷前，要求和穿着灭共马甲的Nicole合影，并接受了战友们采访；默克尔和萨科齐是政治战犯，他们欺骗了世界并跟共匪勾兑，是他们培养了习和普京，造成无数人道灾难发生在中共国和乌克兰<br/>
-![img](https://media.gettr.com/group42/getter/2022/04/12/22/5dc5e7c8-598b-ac3b-17ba-7ac6a2b40d39/out.jpg)
-
----
-
-`@miles 4/12/2022 10:33 PM (UTC)`
-
-4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexandra De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
-![img](https://media.gettr.com/group32/getter/2022/04/12/22/7e57029f-b862-34b0-b459-fdbba4813d5f/out.jpg)
 
 ---
 

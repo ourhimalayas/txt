@@ -2,32 +2,38 @@
 ---
 
 
-## 【G叻睇真D】加拿大机构投资者增加持有数字货币
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2336699/)
+## 从居民突发疾病瘫痪无法就医到新浪微博数不胜数的求助
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2336958/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据加拿大【福利杂志】4月11日报道，由著名会计师事务所[毕马威]和[加拿大资产协会]联合进行的一项调查显示，接近60% 的加拿大机构投资者在 2020 至 2021 年期间购持了数字货币类资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情-1.png)
+据[**粽呀么粽**](https://weibo.com/haeni0404)[2022年4月12日 22:08](https://weibo.com/1950920381/Lo9dBCK5g?from=page_1005051950920381_profile&amp;wvr=6&amp;mod=weibotime) 来自 [抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9)
 
-毕马威加拿大资产管理负责人对此表示：“鉴于政府债券作为投资组合减震器的抗波动能力因剧烈的通货膨胀而大幅降低，机构投资者越来越多地增加持有数字货币资产，以进一步丰富其投资组合结构。
+[抗疫求助超话](https://huati.weibo.com/k/%E6%8A%97%E7%96%AB%E6%B1%82%E5%8A%A9) [@鋼筆様子](https://weibo.com/n/%E9%8B%BC%E7%AD%86%E6%A7%98%E5%AD%90?from=feed&amp;loc=at) 邻居为杨浦区殷行街道城市名园居民，原本身体健康，4月12日白天突发疾病瘫痪在床，下午打120急救电话一直到晚上都还在排队（从600号到200号），并且120要求家属自行先和医院联系好接收事宜，到了傍晚老人话都没法说了，跟她对话也没什么意识，居委加急开了证明，楼里其他邻居帮忙开车送出去了，但病人辗转杨浦四家医院（长海，杨中心，安图，新华）都被拒收，阳楼对口的安图医院回复需要排队2天等120接，自行送的不收治，目前病人就只能躺在家里等着！寻求转发寻求帮助！病人家属联系电话13482169051 [L粽呀么粽的微博视频](http://t.cn/A66m9chd)
 
-报道称，尽管数字货币市场是一个更具发展潜力的新兴金融领域，但机构投资者显然都采取了较为谨慎的态度，大多数企业目前所增购的数字资产规模较小，其中有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+这只是个案，打开新浪微博的[抗疫求助](https://weibo.com/p/10080889902a1e60cd81187b008223d86da809/super_index)超话，我们可以看到一条一条的求助信息，每条求助信息背后都是一条鲜活的生命，每条求助信息背后都是无助者心碎的等待，当一个本应提供最基本的公民救助公共服务的政府以各种理由对急需救助者设置障碍的时候，这个政府就失去了存在的根本意义，这个政府在杀人，这里的人民在沉默，让我们共同面对，让我们一起要么在沉默中死去，要么在沉默中暴发一起站出来推翻这个杀人的政府。
 
-盖特链接：[https://gettr.com/post/p14ywfs64c0](https://gettr.com/post/p14ywfs64c0)
+撰稿：喜马拉雅的肉夹馍；
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+审核：喜马拉雅的馍夹肉；
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+校对：Maarago；
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
