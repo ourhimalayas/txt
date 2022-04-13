@@ -2,49 +2,32 @@
 ---
 
 
-## 加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341618/)
+## 日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341647/)
 
-2022-04-13
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+岸田文雄首相8日在首相官邸召开新闻发布会。关于围绕入侵乌克兰对俄罗斯实施的新制裁，他表示将禁止从俄罗斯进口煤炭。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1620.png)图片来源：日经新闻
+分阶段减少进口，确保备选办法。
+他说：“尽快确保替代办法逐步削减进口以降低对俄罗斯在能源领域的依赖。”
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0T0AIMF3R7M3RVM9LG3.png)屏幕截图：[Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
-#### 加拿大正处于 COVID-19 的第六波浪潮中，谭咏诗医生说
+为了避免煤炭禁运的影响导致电力供求紧张，主张“最大限度地利用可再生能源和原子能等能源安全保障、脱碳效果高的电源”。
 
-瑞秋·吉尔摩Rachel Gilmore  全球新闻Global News
+关于以怎样的速度推进禁运措施，他说：“根据电力、水泥、钢铁等各个领域的状况，考虑到代替对策的确认等，考虑适当的时机。”
 
-发布 四月 12， 2022 11：56 上午
+机械类和伏特加也禁运，禁止新投资。
+还宣布将引入禁止机械类和部分木材、伏特加等进口和对俄罗斯进行新投资的措施。作为进一步强化金融制裁，俄罗斯最大银行兹伯勒银行等两行新提出冻结资产。
 
-更新时间 四月 12， 2022 12：17 下午
+下一篇：[日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）](https://gnews.org/zh-hans/2341692/)
 
-#### 已经证处于第六波COVID-19中
+参考链接：[対ロシア制裁、石炭禁輸や最大手銀の資産凍結　首相表明: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOUA088B90Y2A400C2000000/?n_cid=BMSR2P001_202204081814&amp;unlock=1)
 
-加拿大顶级医生已经证实加拿大正处于第六波COVID-19中。
+* * *
 
-全国最新上升的病例属于Omicron的BA.2亚变种，首席公共卫生官谭咏诗Theresa Tam医生周二表示。
-
-“这取决于加拿大不同的地区，但是总体上看来，可以说我们在加拿大正在经历第六波浪潮”，谭对记者说。
-
-“加拿大各地区的COVID-19病例都在增加”。
-
-#### 评论：
-
-还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。
-
-祝新中国联邦的无苗的，有币的 ， 灭共的战友们以及全世界人民顺利度过 5月份。
-
-#### 参考资料
-
-1. [Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
-
-
-编辑：LILY
-
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

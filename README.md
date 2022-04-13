@@ -15,98 +15,98 @@
 
 ---
 
-### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）](/content/gnews/1/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（4/4）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国需要直接制裁普京本人](/content/gnews/2/README.md)
+### [中共面对美国命令上海大使馆撤离发表战狼言论](/content/gnews/2/README.md)
  ` GTV News Talk`
 
-### [美CDC将旅行口罩强制令再延长15天](/content/gnews/3/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [直面邪恶，清零中共](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [美国国家安全顾问沙利文称正在加快加大对乌克兰的武器援助](/content/gnews/4/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（3/4）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国需要直接制裁普京本人](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [美航母时隔4年多再次进入朝鲜半岛东部海域](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [俄乌战争可能进一步升级 ，普京终将失败](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [美CDC将旅行口罩强制令再延长15天](/content/gnews/8/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）](/content/gnews/6/README.md)
+### [美国国家安全顾问沙利文称正在加快加大对乌克兰的武器援助](/content/gnews/9/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰拒绝接受德国总统访问](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/8/README.md)
+### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻时评】 台湾鹰式飞弹罕见现身市区操演](/content/gnews/9/README.md)
+### [【秘翻时评】 台湾鹰式飞弹罕见现身市区操演](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/10/README.md)
+### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [比利时首相到访新中国联邦波兰救援中心](/content/gnews/11/README.md)
+### [比利时首相到访新中国联邦波兰救援中心](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [乌克兰难民妇女被迫卖淫谋生](/content/gnews/12/README.md)
+### [乌克兰难民妇女被迫卖淫谋生](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [在其滥用世贸组织20年后，美国应追究中共国的贸易责任](/content/gnews/13/README.md)
+### [在其滥用世贸组织20年后，美国应追究中共国的贸易责任](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [由于德国过去宣传亲俄政策，乌克兰拒绝其总统的访问](/content/gnews/14/README.md)
+### [由于德国过去宣传亲俄政策，乌克兰拒绝其总统的访问](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国政府命令其外交人员迅速撤离上海](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机](/content/gnews/16/README.md)
+### [【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [美国航母和日本防卫队在日本海联合演习](/content/gnews/17/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [4/10/2022 文贵直播: 中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争](/content/gnews/18/README.md)
+### [4/10/2022 文贵直播: 中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/19/README.md)
+### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [文贵先生盖特精要- 2022/04/13](/content/gnews/20/README.md)
+### [文贵先生盖特精要- 2022/04/13](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权](/content/gnews/21/README.md)
+### [4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/22/README.md)
+### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G时新闻】美国务院命令非紧急人员及家眷紧急撤离上海](/content/gnews/23/README.md)
+### [【G时新闻】美国务院命令非紧急人员及家眷紧急撤离上海](/content/gnews/24/README.md)
  ` G-时新闻`
 
-### [截至4.13 俄乌战事汇总](/content/gnews/24/README.md)
+### [截至4.13 俄乌战事汇总](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/25/README.md)
+### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战局最近消息汇总](/content/gnews/26/README.md)
+### [俄乌战局最近消息汇总](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/27/README.md)
+### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/28/README.md)
+### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/29/README.md)
+### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G叻睇真D】中共封锁上海等大城市测试民生极限压力](/content/gnews/30/README.md)
+### [【G叻睇真D】中共封锁上海等大城市测试民生极限压力](/content/gnews/31/README.md)
  ` G-时新闻`
-
-### [珍惜我们平常和平生活中的每一刻、每一分、每一秒&#8211;带视频文字](/content/gnews/31/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/32/README.md)
  ` KarmaLabs`
