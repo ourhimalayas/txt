@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 2:33 PM (UTC)`
+
+04/13/2022 on the 10th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/>#3🥉 on Laos 🇱🇦 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>🎉🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Cambodia,Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2340139/
+
+---
+
+`@miles 4/13/2022 2:30 PM (UTC)`
+
+4月13号, 郭文贵先生两首新歌上线第十天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、柬埔寨, 老挝 的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2340138/
+
+---
+
 `@miles 4/13/2022 2:09 PM (UTC)`
 
 4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexander De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
@@ -146,24 +158,6 @@ Tuesday, April 12. At 10:30 a.m. local time in Poland, a volunteer from Belgium 
 
 ❤️Report from #NFSC's #UkraineRescue #Nicole <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>波兰时间4月12日早上10点在梅迪卡营地，比利时总理Alexander De Croo 接受 #新中国联邦 记者Nicole采访<br/>nicole在阐述自己是来自 #新中国联邦，我们所做的人道救援和提供的帐篷等工作，也介绍了郭先生和我们的目标愿景......<br/>比利时首相微笑着回答，人们需要互相帮助，非常高兴你们 #新中国联邦 在这里帮助这些人。nicole说，我们有很好的咖啡,请来我们帐篷，欢迎品尝，<br/><br/>首相说，是的，我们就是在去的路上💖😀<br/><br/>今天是个好日子！👏👏👏
 ![img](https://media.gettr.com/group12/origin/2022/04/12/16/1c829f7b-2299-c24e-319c-8c93f274f36f/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/12/2022 11:42 PM (UTC)`
-
-Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣️感悟异国人对新中国联邦灭共的理解❣️<br/> ❤️心喜：波兰年轻人对中共邪恶特别门清，对必须灭共特别认同，对新中国联邦特别兴趣。<br/>😰心酸：对比一位异国人士对中共之了解 ，那些被中共套上枷锁圈养在监狱里的五毛爱国贼们，居然还在享受施虐者的淫威不能自拔。<br/>✊心悟：灭共同道之人越聚越多，灭共已大势所趋，灭共是正义的需要，灭共是人心所向，灭共是天意！<br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
-![img](https://media.gettr.com/group3/origin/2022/04/12/23/bce7b836-3834-93af-1952-4b15a95a8419/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/11/2022 3:20 PM (UTC)`
-
-🆘🇺🇦🆘来自乌克兰救援前线Nicole报道：<br/>   ❣️Nicole采访来自苏格兰的义工（建房哥)❣️<br/>来自苏格兰的义工是一个专业的建房哥（builder) 称赞:👍法治基金新中国联邦的大帐篷建得非常好<br/>👍NFSC咖啡也是最好喝的！ <br/>👍新中国联邦的灭共运动非常棒（wonderful)。<br/>他一开始觉得灭共是政治运动，后来他明白了，帮助14亿中国人摆脱邪恶的共产党的奴役是一个伟大的人道救援行动，他祝福新中国联邦完成这个历史使命。<br/>------<br/>前线的咱们战友们争分夺秒传播新中国联邦和灭共大业令人敬佩！行动，行动，再行动！✊✊✊<br/> #新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
-![img](https://media.gettr.com/group36/origin/2022/04/11/15/8d00efa5-a036-e609-baf4-ce194dbbd357/out.jpg)
 
 ---
 
