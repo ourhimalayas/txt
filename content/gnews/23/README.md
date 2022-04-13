@@ -2,22 +2,38 @@
 ---
 
 
-## 欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341495/)
+## 文贵先生盖特精要- 2022/04/13
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2341517/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16498704471.png)   图片来源：欧洲新闻台
-据《布雷特巴特新闻网》（Breitbart News）4月12日报道，欧盟的外交事务主管何塞·博雷利 (Josep Borrell）近日表示，当世界正面临着严重的粮食危机时，俄罗斯军队却一直在积极地攻击和破坏全球最大之一的粮食生产国—乌克兰的小麦库存。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1619.png)[盖特链接](https://gettr.com/post/p153hbz15f5)
 
-根据《欧洲新闻台》（Euronews）的报道，博雷利说，俄军不仅封锁了乌克兰在黑海的港口，导致该国的粮食出口中断（乌克兰向全球供应了大量的小麦），而且还在积极地攻击和破坏乌克兰的急需资源（much-needed resource）储备。“俄军正在轰炸乌克兰的城市，并通过阻止小麦出口和破坏乌克兰的小麦库存，在全世界制造饥荒。”博雷利强调，许多欧洲人正面临的粮食短缺问题不是因为欧盟对莫斯科的制裁，而是俄罗斯通过封锁和军事打击破坏供应链所直接导致的结果。
+- 七哥今天开会，星期五《文贵大直播》不能参加。争取周末参加大直播。
+- 乌克兰救援前线人员工作辛苦，多国和某国际组织联系新中国联邦“讨论”前线救援。
+- 纽约春天景色美丽。
+- 世界所有问题根源就是中国共产党。新中国联邦区分开中国人和中共，得到国际高度关注和认可。
+- 乌克兰每天都有人被强奸和杀害。
+- 上海、长春屡发生“以食物”强奸人，老人在街上被打，中国人该醒来了。
+- 世界都在醒来，消灭共产党 是解决问题的唯一办法。
+- 习近平和普京再回不到两个月以前的国际形势。
+- 欧洲开始以乌克兰和波兰为中心重整，放弃默克尔和萨科齐曾经主导以共产主义为中心的路线。
 
-一家粮食贸易公司的负责人Jörg-Simon Immerz说：“目前乌克兰的港口没有出口任何粮食，任何东西都无法离开该国。另外，全球小麦市场的另一个主要参与者—俄罗斯供应的小麦也显著下降。”不久前，俄罗斯的一位高官甚至威胁说，将只向所谓的“友好”国家供应粮食和农产品。
 
-欧盟官员以及前南卡罗来纳州州长、现世界粮食计划署主任大卫·比斯利 (David Beasley)上个月警告说，如果今年不能额外提供数十亿美元的粮食援助，那么全球将出现饥荒、不稳定和大规模移民等危机。
+*听写：call me uncle*
 
-*责编：白夜*
+*校对: 乐禧禧*
 
-新闻来源：[Global Food Crisis: Russian Forces Actively ‘Bombing and Destroying’ Wheat Stocks in Ukraine As Crisis Mounts](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
 
  
 
