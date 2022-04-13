@@ -2,28 +2,43 @@
 ---
 
 
-## 乌克兰多个城市拆除普希金雕像
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2337968/)
+## COVID-19疫苗副作用集萃（2022.4.13）&#8211;下午打完第三针疫苗，现在头疼。
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338011/)
 
-编辑：文宝
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-受地名去俄罗斯化运动的影响，乌克兰穆卡切沃市此前拆除了该市的普希金半身像，该市一家以普希金名字命名的学校的纪念碑也被移走。穆卡切沃市市议会称，他们“正在摆脱俄罗斯帝国的过去。”
+整理/编辑：BENJ1
 
-乌克兰捷尔诺波尔市也拆除了普希金的雕像，该市市长还扬言称，“有关俄罗斯的一切都要拆除，包括俄罗斯作家的纪念碑。”俄罗斯常驻联合国教科文组织代表团对此表示，这座雕像由联合国教科文组织授权建立，并在推特上@联合国教科文组织，询问其是否将对此做出反应。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-19.png)图片来源：雅典娜设计组(614)
 
-俄罗斯卫星通讯社报道称，社交平台有不少画面显示，各地的普希金雕像遭到不同程度的破坏。有人故意将普希金雕像涂上乌克兰国旗的颜色，有人将雕像基座上普希金的名字改为法国歌手“乔·达辛”，还有的则被直接拆除。
 
-![乌克兰切尔卡瑟市的一座普希金雕像被喷上油漆](https://n.sinaimg.cn/sinakd20220412s/298/w640h458/20220412/bc45-4b566fee94cbe61456260a24b20c5250.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-**乌克兰切尔卡瑟市的一座普希金雕像被喷上油漆**
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-当地时间4月6日，乌克兰最高拉达（议会）开始审议关于禁止在乌克兰使用与俄罗斯、俄罗斯历史和俄罗斯著名人物相关的地理名称的法案。
+帖子原文：
 
-此项提案由50多名议员提出，其中包括乌克兰总统泽连斯基所领导的人民公仆党的议员。议员称，这一法案的通过将减少俄罗斯对乌克兰内部政治及乌克兰民众世界观的影响，并加速“国家的去苏联化和去俄罗斯化”，有助于“乌克兰民族”的壮大。
+下午打完第三针疫苗，现在头疼。
 
-俄罗斯外长拉夫罗夫曾表示，乌克兰政府多年来采取具有挑衅性的“去俄罗斯化”的措施。他表示，俄罗斯希望看到乌克兰是一个友好的、不禁止俄罗斯文化和俄语的国家。
+感觉头要炸了，怎么会这么痛，心口也闷闷的，一直冒虚汗，不知道是正常的还是不良反应，是不是该去医院。
 
-原文链接：[https://finance.sina.com.cn/world/2022-04-12/doc-imcwipii3786409.shtml?cre=tianyi&mod=pcpager\_inter&loc=3&r=0&rfunc=99&tj=cxvertical\_pc\_pager\_spt&tr=174](https://finance.sina.com.cn/world/2022-04-12/doc-imcwipii3786409.shtml?cre=tianyi&amp;mod=pcpager_inter&amp;loc=3&amp;r=0&amp;rfunc=99&amp;tj=cxvertical_pc_pager_spt&amp;tr=174)
+评论选集：
+
+[开心的朵儿](https://www.xiaohongshu.com/user/profile/5a206f3a4eacab654501eb50) 回复：
+
+我特别后悔前几天打的加强针，头疼一天，胸口疼了两天，呼吸说话都疼，刺激到我的卵巢囊肿长大，要手术了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1483.png)图片来源：小红书
+参考链接:
+
+[下午打完第三针疫苗现在头疼](http://xhslink.com/x19MGg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

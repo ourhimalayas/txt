@@ -2,78 +2,33 @@
 ---
 
 
-## 英国首相鲍里斯·约翰逊表示，英国和德国对普京的入侵感到震惊
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337632/)
+## 越来越多加拿大机构投资者持有数字资产
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337636/)
 
-Boris Johnson (Prime Minister of the UK)
-鲍里斯·约翰逊（英国首相）
+##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译活力人生】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据【加拿大福利杂志】4月11日报道，由毕马威和加拿大替代策略资产协会联合进行的一项调查显示，大约 57% 的加拿大机构投资者在 2020 年至 2021 年期间持有了数字货币类资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1475.png)
+其中大多数机构持有的数字资产规模较小，有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
 
-it’s pleasure to welcome you Olaf to Downing Street
-很高兴欢迎奥拉夫来到唐宁街
+毕马威加拿大资产管理合伙人兼国家金融服务咨询负责人克里斯·法卡斯表示：“鉴于政府债券作为投资组合减震器抗波动的能力降低，机构投资者越来越多地增加持有数字资产，以进一步多样化投资组合。虽然这对于机构投资者来说是一个更新且具有潜在前景的领域，但他们显然采取了谨慎的态度。”
 
-The friendship between our two countries, between Britain and Germany
-自从普京对乌克兰发起野蛮侵略以来
+原文鏈接：
 
-has become even more vital since Putin launched his barbaric onslaught against Ukraine
-我们两国英国和德国之间的友谊，这一点变得更加重要
+[https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
-bringing war into our continent
-因为俄罗斯将战争带到了欧洲
+上传/发稿 – 【青青】
+撰稿/翻译/-【活力人生】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-I know that Britain and Germany share exactly the same sense of horror
-我知道英国和德国有着完全相同的恐惧感
+更多加拿大溫哥華揚帆農場的頻道，請關註：
 
-and revulsion at the brutality being unleashed
-以及对施行的暴行的反感
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)[場](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
 
-including the unconscionable bombing of refugees fleeing their homes this mornin
-包括今天早上对逃离家园的难民进行非人道的轰炸
-
-Germany and the UK also share exactly the same conviction that Putin must fall in Ukraine
-德国和英国也有着完全相同的信念，即普京必须在乌克兰上失败
-
-which is why we are working together in the G7 to toughen our sanctions
-这就是我们在G7中共同努力加强实施制裁的原因
-
-and target every pillar of the Russian economy
-并瞄准俄罗斯经济的每一个支柱
-
-in order to cut off funds from his war machine
-以切断他的战争机器的资金
-
-We face the new reality created by Putin’s invasion
-我们面对普京入侵造成的新现实
-
-I know that British and Germany will meet this challenge together
-我知道英国和德国将作为民主和自由的
-
-as passionate advocates of democracy and freedom
-热情倡导者和乌克兰的忠实朋友
-
-and both committed friends of Ukraine
-共同迎接这一挑战
-
-原视频链接: [https://twitter.com/borisjohnson/status/1512695924723789828?s=24](https://twitter.com/borisjohnson/status/1512695924723789828?s=24)
-
-Date:04/10/2022
-原视频标题: UK Prime Minister Boris Johnson said that Britain and Germany are horrified by Putin’s invasion and have agreed that our two countries must go fur-ther to help Ukraine
-英国首相鲍里斯·约翰逊表示，英国和德国对普京的入侵感到震惊，并对两国必须进一步帮助乌克兰而达成一致
-原视频日期：2022/04/10
-原视频链接https://twitter.com/borisjohnson/status/1512695924723789828?s=24
-任务编号：KE476（4220）
-视频时间段 : 0:00-1:24
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

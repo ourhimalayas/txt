@@ -2,33 +2,31 @@
 ---
 
 
-## 郭先生揭露习近平执政以来推行的三大恶事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337648/)
+## 今日盖特大V推荐 — 亚历克斯·琼斯（Alex Jones）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337671/)
 
-作者：纽约香草山农场 -恩永存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/agwh1-mtmxl-3.jpg)
+**盖特链接**：[https://gettr.com/user/alexjones](https://gettr.com/user/alexjones)
 
+***亚历克斯·琼斯自述：***
 
+世界上最被禁止的人！🔥探索：[https://flow.page/alexjone](https://flow.page/alexjone)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/zx.png)图片来源：网络
+**亚历克斯·琼斯简介：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+亚历克斯·琼斯全名亚历山大·埃默里克·琼斯（Alexander Emerick Jones，生于1974年2月11日）是一位美国电台主播、电影制片人和作家。
 
+亚历克斯·琼斯目前在得克萨斯州奥斯汀主持自己的《亚历克斯·琼斯秀》（The Alex Jones Show）节目，通过创世纪通讯广播网（英语：Genesis Communications Network）、WWCR和互联网向美国播出。
 
+亚历克斯·琼斯还主办了名为《信息战》（InfoWars.com）的新闻网站，每月接收大约1000万次访问，其覆盖范围比《经济学人》和《新闻周刊》等主流新闻网站更广泛。2020年3月，由于亚历克斯·琼斯发布与COVID-19大流行相关信息，《信息战》（InfoWars）应用被从Google Play商店下架。
 
-郭文贵先生在4月10日的大直播中揭露，习近平自执政以来，有计划的做了三大恶事，为中国人带来了前所未有的灾难。首先，习近平以反腐之名，利用王岐山铲除政敌。然后利用派系间的矛盾，除掉江泽民、胡锦涛等人的势力。其次是收拾中国富豪寡头，在他的授意下，马云、马明哲、马化腾、史玉柱等等，一个接一个的入狱、死亡。 而习近平的最后一步，就是除掉名人。习认为，名人是看不见的风险，会到处惹事。泱泱大国，唯有他习近平一个人可以自由发声，任何其他的声音都不能容忍。习近平已经成为了真正的独裁者。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-7.jpg)
-参考链接：
-[2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：飞虹，天滅中共
-审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

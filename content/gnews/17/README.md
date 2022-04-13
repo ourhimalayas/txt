@@ -2,33 +2,34 @@
 ---
 
 
-## 越来越多加拿大机构投资者持有数字资产
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337636/)
+## 郭先生揭露习近平执政以来推行的三大恶事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337648/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【加拿大福利杂志】4月11日报道，由毕马威和加拿大替代策略资产协会联合进行的一项调查显示，大约 57% 的加拿大机构投资者在 2020 年至 2021 年期间持有了数字货币类资产。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1475.png)
-其中大多数机构持有的数字资产规模较小，有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+作者：纽约香草山农场 -恩永存
 
-毕马威加拿大资产管理合伙人兼国家金融服务咨询负责人克里斯·法卡斯表示：“鉴于政府债券作为投资组合减震器抗波动的能力降低，机构投资者越来越多地增加持有数字资产，以进一步多样化投资组合。虽然这对于机构投资者来说是一个更新且具有潜在前景的领域，但他们显然采取了谨慎的态度。”
 
-原文鏈接：
 
-[https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-上传/发稿 – 【青青】
-撰稿/翻译/-【活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
 
-更多加拿大溫哥華揚帆農場的頻道，請關註：
 
-- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)[場](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+郭文贵先生在4月10日的大直播中揭露，习近平自执政以来，有计划的做了三大恶事，为中国人带来了前所未有的灾难。首先，习近平以反腐之名，利用王岐山铲除政敌。然后利用派系间的矛盾，除掉江泽民、胡锦涛等人的势力。其次是收拾中国富豪寡头，在他的授意下，马云、马明哲、马化腾、史玉柱等等，一个接一个的入狱、死亡。 而习近平的最后一步，就是除掉名人。习认为，名人是看不见的风险，会到处惹事。泱泱大国，唯有他习近平一个人可以自由发声，任何其他的声音都不能容忍。习近平已经成为了真正的独裁者。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-7.jpg)
+参考链接：
+[2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编：飞虹，天滅中共
+审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
