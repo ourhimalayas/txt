@@ -2,25 +2,39 @@
 ---
 
 
-## 比利时首相救援前线接受新中国联邦战友采访
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340544/)
+## 有声|美国务院命令非紧急人员及家眷紧急撤离上海
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340643/)
 
-作者：初七
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月11日，美国国务院正式下达撤离驻上海美领馆非必要工作人员的政令。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-1-1.jpg)
+两天前的4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，并提醒旅行者慎重考虑前往中共国。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。
 
-当地时间4月12日早晨10点左右，比利时现任首相亚历山大-德克罗在随行人员的陪同下前往波兰梅地卡难民救援中心进行视察。当中，德克罗首相不但接受了新中国联邦记者的采访，他还主动提出与前线战友合影的要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-107.jpg)
-此外，身穿带有“灭共”标志救援马甲的前线记者Nicole战友先是向德克罗首相介绍了新中国联邦的救援巴士，以及前线救援帐篷已经接待了1万乌克兰过境难民的救援进展，同时，她还向首相传递了新中国联邦一贯坚持的理念，即“我们是消灭共产党的新中国联邦人”，“中国共产党是俄乌战争背后的罪魁祸首”，以及“我们与全世界爱好和平与自由的人战在一起”。采访结束后，德克罗首相真诚感谢了新中国联邦团队在乌克兰救援前线的付出。
+时隔仅两日，美国务院正式下达撤离政令和三级旅行禁令。政令内容措辞严厉，历数前往中共国旅行即将面临的严重灾难，着重提到了中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查、威胁家人等、在网络散步针对美国的网暴等行为。
 
-据悉，比利时德克罗首相是迄今为止视察波兰梅迪卡救援营地的最高级别外国国家元首。
+美领馆更新了前往中国大陆及香港旅行的15条注意事项。尤其警告美国公民，在中共时不能随意利用言论自由，小心身边的秘密警察、周围的环境，保持低调等等。
 
-参考链接：[“比利时是欧盟的首府，在全球政治上具有及其重要的意义，这位总理是首位来Medyka的外国元首”](https://twitter.com/jiuchawoyige03/status/1513823280515362816?t=ckBb7piIkEKjLo3FzaItGA&amp;s=19)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编：Irene木木
-编辑：Delilah小胖
-审核：Ivy001
-校正/发稿：Fei797
+文字版原文：[美国务院命令非紧急人员及家眷紧急撤离上海](https://gnews.org/zh-hans/2335462/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

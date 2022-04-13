@@ -2,32 +2,39 @@
 ---
 
 
-## 乌克兰战争即将演变为欧中俄大战
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340828/)
+## 中共威胁之下,台湾首次向民众发布战争生存指南
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2340940/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-30.png)
-据文贵先生4月10日盖特直播报道，近日英国首相鲍里斯·约翰逊与欧盟主席乌尔苏拉·冯德莱恩争相访问基辅，与乌克兰总统泽连斯基见面，先后表达对于乌克兰的最大限度支持。
+作者: 银河系农场—骄子
 
-会面的结果是乌克兰将于几周后加入欧盟。英国会坚决和乌克兰站在一起。英国军事装备将倾囊而出，其中特别是反舰、反潜水艇、反导导等先进装备。同时将派遣6000到8000雇佣兵加入乌克兰战场，指挥使用这些大杀器，也会再度加大对俄的严厉制裁。
 
-此时，中共已经把红旗FK3地对空导弹、东风15弹道导弹大量部署在欧洲。未来的俄乌战场必将演变为欧中俄全面战争。欧洲已经全面开启了对抗中国和俄罗斯的战争新形势，局面已经任谁都无法改变。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-22.45.47.png)图片来源: 网络
+据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备。还包含如何在军事攻击中幸存下来的技巧，如何区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
 
-原文链接：[https://gettr.com/streaming/p14iwpvf134](https://gettr.com/streaming/p14iwpvf134)
+尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
 
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 晨熹
-素材/采编 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+新闻来源: [https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/taiwan-issues-first-war-survival-handbook-amid-china-threat-2022-04-12/?taid=625547c72c26f70001948964&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+手册下载: [https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A(%E7%AF%84%E6%9C%AC)\_534797.pdf](https://www.mnd.gov.tw/NewUpload/202204/%E5%85%A8%E6%B0%91%E5%9C%8B%E9%98%B2%E6%89%8B%E5%86%8A%28%E7%AF%84%E6%9C%AC%29_534797.pdf)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 2:56 PM (UTC)`
+
+04.13.2022新中国联邦法治基金乌克兰人道救援行动-波兰Medyka基地突发新闻
+![img](https://media.gettr.com/group10/origin/2022/04/13/14/2864313f-3b19-bafc-07d0-2fc93e2a6890/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/13/2022 2:33 PM (UTC)`
 
 04/13/2022 on the 10th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/>#3🥉 on Laos 🇱🇦 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>🎉🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Cambodia,Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2340139/
@@ -149,15 +156,6 @@ Tuesday, April 12. At 10:30 a.m. local time in Poland, a volunteer from Belgium 
 
 🆘🇺🇦🆘来自乌克兰救援前线Nicole报道:<br/><br/>这个来自以色列的义工用手机拍摄法治基金新中国联邦大帐篷里面的poster、横幅， 说” Very impressive” (印象深刻） 他知道我们是灭共的新中国人， 让我们介绍新中国联邦灭共的使命，用手机录下来，他说会把这段视频带到以色列去传播📣 让更多以色列人知道新 #中国联邦人 在灭共。 最后他用希伯来语表达了他的心声，“爱与和平”！<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
 ![img](https://media.gettr.com/group41/origin/2022/04/13/01/963be792-15cd-40c7-b87f-90f9fb1f70df/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/12/2022 4:53 PM (UTC)`
-
-❤️Report from #NFSC's #UkraineRescue #Nicole <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>波兰时间4月12日早上10点在梅迪卡营地，比利时总理Alexander De Croo 接受 #新中国联邦 记者Nicole采访<br/>nicole在阐述自己是来自 #新中国联邦，我们所做的人道救援和提供的帐篷等工作，也介绍了郭先生和我们的目标愿景......<br/>比利时首相微笑着回答，人们需要互相帮助，非常高兴你们 #新中国联邦 在这里帮助这些人。nicole说，我们有很好的咖啡,请来我们帐篷，欢迎品尝，<br/><br/>首相说，是的，我们就是在去的路上💖😀<br/><br/>今天是个好日子！👏👏👏
-![img](https://media.gettr.com/group12/origin/2022/04/12/16/1c829f7b-2299-c24e-319c-8c93f274f36f/out.jpg)
 
 ---
 

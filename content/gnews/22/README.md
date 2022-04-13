@@ -2,38 +2,23 @@
 ---
 
 
-## 共产党自诞生起就是中国人的灾难 前后30年中国人的苦难从没有停过
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340625/)
+## 郭先生解读比利时首相接受战友采访的意义
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340686/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+作者：恩永存
 
+对此，郭文贵先生也在当天的盖特视频中指出，比利时首相德克罗在波兰边境与新中国联邦记者的合影代表着其在外交上对新中国联邦的默认。 同时，这一举动也表明了德克罗首相接受新中国联邦灭共的理念与行动，并且愿意与我们站在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-88.jpg)
+另一方面，郭先生也称赞德克罗首相具有极高的素养，且正义、勇敢的德克罗一直与波兰和乌克兰人民站在一起，其必将改变整个欧洲。
 
+参考链接：[4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](https://gettr.com/post/p14y3tsd6bc)
 
-共产党自诞生起就是中国人的灾难！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-共产党的前30年：制造、激化群众内部矛盾。独裁者毛泽东变态的报复行为，大搞上山下乡，毁了多少人的一辈子。文化大革命又让多少人妻离子散，家破人亡。
-
-共产党的后30年：邓小平的摸着石头过河，中共家族率先发财致富，但一寸土地没真正给过老百姓。朱镕基时期所谓的国有企业改革下岗，就是让被下放的底层劳动人民自生自灭。江泽民的闷声发大财，金融寡头遍地开花，老百姓继续当被割的韭菜。一直到现在习近平的文革2.0等等。 中国人的苦难远远没有结束。
-
-**视频来源: 20220410—郭先生大直播**
-**视频制作: 文星光**
-**文案:文星光**
-
-**更多资讯，更多关注**
-[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
-[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
-
-
+总编：Irene木木
+编辑：Delilah小胖 
+审核：Ivy001
+校正/发稿：Fei797
 
  
 

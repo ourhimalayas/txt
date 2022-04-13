@@ -2,37 +2,28 @@
 ---
 
 
-## 有声|中索安全协议引忧虑， 澳洲部长出访索罗门群岛
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340441/)
+## 中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2340512/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【法新社4月12日报道】 澳洲太平洋事务部长赛索嘉当天出访索罗门群岛，原因是西方盟国担心一项有争议的中共国与索罗门安全协议允许中共国在南太平洋建立军事据点。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中索安全协议引忧虑澳洲部长出访索罗门群岛.jpg)
-澳洲太平洋事务部证实，部长赛索嘉（Zed Seselja）将出访索罗门首都荷尼阿拉（Honiara）。
+来源：N12News 
+发布时间：20220412
+编译：GM
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-13-21.08.11.png)
+中国驻以色列大使馆作为逾越节礼物赠送给一些部长的保温杯，在例行安全检查中发现其中有可疑物品，杯子里这个像镜子的部件让人怀疑它可能是窃听设备。
 
-赛索嘉透过声明宣布：“双方讨论的议题将包括拟议中的索罗门群岛-中国安全协议。”
+对中国驻以色列大使馆移交给一些政府部门的礼物进行的例行安全检查引发了人们对这一事件的怀疑，该事件很容易成为一系列紧张局势和间谍活动的一部分。
 
-澳洲情报首长上周也曾在荷尼阿拉与索罗门官员就中索安全条约进行磋商。
+事发后，政府机关立即收回其他保温杯作进一步检查。任何来自外国使团的礼物都需要经过安全许可。由于“害怕有监听设备或摄像头”一些部门被告知要重点关注来自中国的礼物。
 
-苏嘉瓦瑞先前澄清，他的政府“并无任何意图要求中国在索罗门群岛建立军事基地。”
+在中国大使馆否认之后，GSS宣布：“检查该组件的技术专家确认它是一个杯子的组件，旨在保持杯壁的真空并保持温度，这份礼物是为了表达中以之间的友谊，我们要求发布它的媒体撤出报道。”
 
-[【援引连结】](https://www.swissinfo.ch/chi/afp/%E4%B8%AD%E7%B4%A2%E5%AE%89%E5%85%A8%E5%8D%8F%E8%AE%AE%E5%BC%95%E5%BF%A7%E8%99%91--%E6%BE%B3%E6%B4%B2%E9%83%A8%E9%95%BF%E5%87%BA%E8%AE%BF%E7%B4%A2%E7%BD%97%E9%97%A8%E7%BE%A4%E5%B2%9B/47513062)
+参考链接：[https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&s=08](https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&amp;s=08)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流**瓶
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+[https://mobile.mako.co.il/news-military/2022\_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&pId=173113802&Partner=interlink&s=08](https://mobile.mako.co.il/news-military/2022_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&amp;pId=173113802&amp;Partner=interlink&amp;s=08)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
