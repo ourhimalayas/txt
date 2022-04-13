@@ -2,22 +2,62 @@
 ---
 
 
-## 乌克兰妇女的被强奸
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2341975/)
+## 有声|善恶因果
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2341979/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Immagine.jpg)图片来自ansa.it
-现在在乌克兰也有战争强奸，乌克兰妇女的身体遭到严重侵犯，身体变成了战场。普京的俄罗斯军队入侵乌克兰并不足以践踏乌克兰人的自由，世界各地的媒体一致见证了这场针对平民的凶猛战争及其所有暴行，然而这还不够。新的暴行出现了，那就是对妇女的强奸。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在战争强奸的残酷背后，不仅是男人对女人的支配和占有欲，还有更多的就是有消灭妇女和整个社区的意愿。女性在灵魂和肉体受到暴力侵犯，并不是因为她们代表了战争中的偶然危险，而是因为她们被用作物品、战利品，她们的强奸是征服领土的象征。通过强奸和折磨她们，目标是打击女性，在她们的灵魂深处消灭她们，亵渎她们的身体。所传达的信息是对社区的绝对统治。
 
-我们的心为乌克兰妇女遭受的无数巨大痛苦而哭泣。我们必须在为时已晚之前用我们所有的力量打败它。最重要的是，尽可能多地注意逃离的妇女，她们有很多很多，就像在所有战争中一样，她们和孩子一样，可能成为贩运的受害者。
 
-多年来，即使在纽伦堡法庭和东京法庭，强奸在战争罪中都被忽视了。直到 1990 年代波斯尼亚暴行之后，情况才发生了变化。随着国际法院的建立，一个特定的法律承认强奸是战争罪。我们坚决支持乌克兰，尽快结束这场战争。我们站在乌克兰男人和女人一边。我们捍卫他们远离这些恐怖的和平与自由生活的神圣权利。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-16.png)
+六六，李子阳、郎咸平，
+因为亲人的遭遇而哀嚎了，
+这些正能量杠杆的大白，
+没想到也有这么不正能量的今天，
+六六作为官方报道武汉疫情的作家，
+赞歌唱的很用心，
+还怼了记录普通人真实生活的方方，
+李子阳不是要写一篇为计划经济正名的大文章吗，
+你的亲人已经亲身经历了，
+你还要写吗？
+郎咸平你罪孽深重，
+你不只是小骂大帮忙，
+你几乎以一己之力阻断了国企改革，
+影响了中国的市场化进程，
+你们的亲人都代你们受罪，
+你们反思了吗，
+钱，谁都喜欢，
+但是有一种叫做光荣的收益，
+还有一种叫狗粮，
+价格合适良心可以出卖，
+但是你卖的时候搭不只是自己的那张脸，
+还有你亲人的命运，
+以为自己煽动起来的尘埃，
+不会落到自己的头上，
+但是抱歉，尘埃只知道因果报应，没你那么懂事。
+——闫小坏儿！
 
-原文链接: [https://www.repubblica.it/commenti/2022/04/13/news/donne\_ucraine\_lo\_stupro\_della\_dignita-345261113/?ref=RHTP-BC-I279994148-P8-S4-T1](https://www.repubblica.it/commenti/2022/04/13/news/donne_ucraine_lo_stupro_della_dignita-345261113/?ref=RHTP-BC-I279994148-P8-S4-T1)
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+
+文字版原文：[善恶因果](https://gnews.org/zh-hans/2337506/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

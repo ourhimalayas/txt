@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 10:06 PM (UTC)`
+
+新中国联邦 法治基金 飞飞秀救援快报 2022-04-13<br/>For English：gettr.com/streaming/p156azt1f19
+![img](https://media.gettr.com/group39/origin/2022/04/13/21/37ae536a-69dc-5326-01f9-a7c83841589c/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/13/2022 10:00 PM (UTC)`
+
+4/10/2022 Miles Guo: Now you see the only thing that Xi Jinping is obsessed with is to bring down the dominance of the US dollar. That's the only concern of the CCP. Xi enjoys watching the Chinese people go hungry because of his experience of starvation.<br/><br/>4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元！<br/>
+![img](https://media.gettr.com/group33/getter/2022/04/13/22/c86c8a5e-c90d-ee5f-708c-860a87821ac6/out.jpg)
+
+---
+
+`@miles 4/13/2022 9:56 PM (UTC)`
+
+4/13/2022 Miles Guo’s GETTR: Whether it's the civilians who were raped and killed because Russia invaded Ukraine, or someone in Changchun who used a bag of instant noodles to trade sex with a family, the only way to solve the world's problems is to take down the CCP! After we take down the CCP, communism will no longer exist in the world.<br/><br/>4/13/2022 文贵盖特：不论是俄乌战争被强奸被杀害的平民，还是发生在长春用一袋方便面睡一家子人的荒唐事件，只有灭共才是解决世界问题的唯一办法！中共被我们灭了之后，世界不可能再有共产主义！<br/>
+![img](https://media.gettr.com/group22/getter/2022/04/13/21/1393f428-0d3c-ef9e-61a8-9ff7b5b126da/out.jpg)
+
+---
+
 `@miles 4/13/2022 9:53 PM (UTC)`
 
 4/13/2022 Miles Guo Live: Our frontline fellow fighter gives details about the Belgium Prime Minister’s visiting the New Federal State of China (NFSC)’s rescue tent in Medyka. The Prime Minister told our fellow fighter Nicole that he was indeed on his way to our NFSC’s tent, and invited Nicole, who was wearing our signature yellow vest, to take a picture with him. Immediately after the Prime Minister’s departure, a NGO from Belgium delivered to our tent many rescue supplies that are in urgent need. Is this a coincidence or a tacit collaboration?<br/><br/>4/13/2022：文贵直播：前线战友讲述昨天比利时总理参观新中国联邦救援帐篷的详细经过. 总理明确告诉Nicole战友他正在去新中国联邦帐篷的路上，并主动邀请穿着黄马甲的Nicole与他一起合影，随即比利时的NGO组织便送来了我们急需的救援物资，这是偶然还是默契？<br/>
@@ -117,43 +138,6 @@
 
 【Ukraine Rescue】4/12/2022 A reporter from the Finnish Broadcasting Company is particularly grateful for the large tent provided by the New Federal State of China and the Rule of Law Foundation. He slept in our tent last night and also read the Declaration of New Federal State of China on our desk, which he will bring back to Finland. He also inquires in detail about the mission of the NFSC to take down the CCP, and our humanitarian aid activity in Ukraine sponsored by the ROLF. (Part1-2)<br/><br/>【乌克兰救援】4/12/2022 芬兰国家广播电视公司记者特别感谢法治基金新中国联邦提供的大帐篷，他昨晚在我们的帐篷里睡了一觉，还读了桌子上的《新中国联邦宣言》 ，他将带一本回芬兰。 他还详细询问了新中国联邦灭共的使命以及法治基金赞助这次乌克兰人道救援的活动。（上）<br/>
 ![img](https://media.gettr.com/group41/getter/2022/04/13/13/3823a6ef-ddef-7487-fbef-a92c2e5cd155/out.jpg)
-
----
-
-`@miles 4/13/2022 1:15 PM (UTC)`
-
- 4月13号：尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！
-![img](https://media.gettr.com/group21/getter/2022/04/13/13/8e5f2922-af17-552a-7b2f-63a531336427/out.jpg)
-
----
-
-`@miles 4/13/2022 12:52 PM (UTC)`
-
-2022年4月13日 文贵大直播：新中国联邦喷薄而出；中共独裁者内外交困；习全面回归计划经济；喜币会成为数字法币
-![img](https://media.gettr.com/group4/origin/2022/04/13/12/1d2988dc-11de-d845-ce20-e501730851c6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 10:58 AM (UTC)`
-
-2022.04.13  新中国联邦 | 军情室  解析中共向塞尔维亚输送红旗导弹
-![img](https://media.gettr.com/group10/origin/2022/04/13/10/f3d23af5-a184-54d8-24eb-03fc7fab8121/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 9:57 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月12日第39天当日救援统计：<br/>Medyka救援站接待：约301人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11178人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 39 - Date: April 12, 2022 :<br/>Medyka Rescue Station Reception: about 301 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11178 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group7/getter/2022/04/13/09/c0b5dcdd-7b48-9a28-c2cb-3c274f64567e/9991005f122df5b2ab4d07f726903252.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 4/13/2022 9:12 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.04.13 ET
-![img](https://media.gettr.com/group4/origin/2022/04/13/09/267f20a9-fe53-3b38-f2bb-c02406576e48/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

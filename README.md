@@ -15,50 +15,50 @@
 
 ---
 
-### [4/13/2022 文贵直播: 一个国家机器操纵民意的时候，绝大多数老百姓都是相信的，所以战前普京在内部的支持度不降反升；普京知道基本大势已去，要想侥幸得到一线生机，唯有让战争和死亡继续](/content/gnews/1/README.md)
+### [4/13/2022：文贵直播：前线战友讲述昨天比利时总理参观新中国联邦救援帐篷的详细经过](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/2/README.md)
+### [4/13/2022 文贵直播: 一个国家机器操纵民意的时候，绝大多数老百姓都是相信的，所以战前普京在内部的支持度不降反升；普京知道基本大势已去，要想侥幸得到一线生机，唯有让战争和死亡继续](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有法治的社会才能减少“仇恨”](/content/gnews/3/README.md)
+### [有法治的社会才能减少“仇恨”](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年4月13日盖特视频（6分03秒）全文字版](/content/gnews/4/README.md)
+### [郭文贵先生2022年4月13日盖特视频（6分03秒）全文字版](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年4月13日文贵大直播摘要及音频—银河系农场](/content/gnews/5/README.md)
+### [2022年4月13日文贵大直播摘要及音频—银河系农场](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|媒体失去的感情](/content/gnews/6/README.md)
+### [有声|媒体失去的感情](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [恐慌](/content/gnews/7/README.md)
+### [恐慌](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|封得了肉身控不了思想](/content/gnews/8/README.md)
+### [有声|封得了肉身控不了思想](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|善恶因果](/content/gnews/9/README.md)
+### [有声|善恶因果](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [乌克兰妇女的被强奸](/content/gnews/10/README.md)
+### [乌克兰妇女的被强奸](/content/gnews/11/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [卫星图像显示俄罗斯准备进攻顿涅茨克](/content/gnews/11/README.md)
+### [卫星图像显示俄罗斯准备进攻顿涅茨克](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/12/README.md)
+### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/13/README.md)
+### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大国家储备的大量COVID疫苗开始过期](/content/gnews/14/README.md)
+### [加拿大国家储备的大量COVID疫苗开始过期](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
-
-### [有声新闻-新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/15/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
 
 ### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/16/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
