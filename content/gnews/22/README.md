@@ -2,32 +2,31 @@
 ---
 
 
-## 樱花灭共诗——武斗（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
+## 【秘翻北美时评】备战备灾 台湾军方发布第一本战争生存手册
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2339233/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
+**By:[秘翻北美时评](https://gettr.com/post/p150dwu76f4)**
 
-沪上纷纭军管至，四围浦江战车鸣。
+***[2022-04-13](https://gettr.com/post/p150dwu76f4)***
 
-不习十载文革乱，莫尽一尊武斗形。
+**今日主题：**
 
-市委夺官民怨解，社区圈禁党旗兴。
+**1.秘翻组4月12日盖文“比利时总理现身新中国联邦救援中心 并接受采访” **
 
-摇旗赚取笼中鸟，交口感恩白卫兵。
+**2. 备战备灾 台湾军方发布第一本战争生存手册 **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
+**3. 马里乌波尔市长称 该地区超过一万名平民死亡 **
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**4. 斯里兰卡正式宣布无法偿债外债 **
 
+**5.肇源县农贸商户因防疫隔离损失惨重 **
+
+🔗**链接：**[https://gettr.com/post/p150dwu76f4](https://gettr.com/post/p150dwu76f4)
+
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

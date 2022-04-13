@@ -2,37 +2,39 @@
 ---
 
 
-## 中日财经爆| 中共国富豪刘忠田涉嫌逃税 被美国罚款18亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338455/)
+## 普京誓言继续攻打乌克兰，直至完成目标
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338460/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-102.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fxqimg.imedao.com%2F17c93b864328783fee8e370d.png!800.jpg&amp;imgrefurl=http%3A%2F%2Fwww.21cbr.com%2Fmobile%2Farticle%2F85601.html&amp;tbnid=hMfsUf7p4dV2qM&amp;vet=12ahUKEwiJz-e7v5D3AhWfz4sBHcf9DXAQxiAoB3oECAAQEw..i&amp;)
-4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-刘忠田在南加州拥有六家铝业公司，据联邦检察官办公室，违法公司在从中共国进口铝制品时，有意将这些铝型材伪装成货物托盘，逃避2011年实施征收的反倾销税限制。
+整理/编辑：围剿维尼熊
 
-联邦地区法官R. Gary Klausner裁定Perfectus Aluminum Inc.及相关的五家实体公司，须向联邦海关与边境保护局缴纳巨额赔偿。
-
-该案在2021年8月为期九天审结，洛杉矶一个联邦陪审团裁定被告公司犯有一项共谋罪、九项电汇欺诈罪，以及七项向海关递交虚假和欺诈性文件罪。同时被告的Perfectus Aluminum公司还犯有七项国际洗钱罪。
-
-联邦检察官在一件备忘录中指出，所诉公司及仓储被告都是这一阴谋的参与者，而之所以设立这些公司，就是一个目的，实现逃避海关关税的阴谋。绝大多数铝型材托盘都是通过洛杉矶港及长堤港进口。
-
-获判涉罪的中共国富豪刘忠田，58岁，曾是南加州橙县托斯汀市（Tustin）居民，他是中共国忠旺控股有限公司（亚洲最大铝型材生产商）的创办人，前总裁兼前董事长，面临在美国的刑事指控，尚未到庭。
-
-消息来源:**[南加中國富豪涉逃避關稅 判罰18.3億](https://tw.news.yahoo.com/%E5%8D%97%E5%8A%A0%E4%B8%AD%E5%9C%8B%E5%AF%8C%E8%B1%AA%E6%B6%89%E9%80%83%E9%81%BF%E9%97%9C%E7%A8%85-%E5%88%A4%E7%BD%B018-3%E5%84%84-062017658.html)**
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3461.jpg)图片来源：人民资讯
 
 
+根据美国之音4月13日报道，俄罗斯总统普京星期二(4月12日)誓言俄罗斯将继续猛攻乌克兰，直到莫斯科完成他没有具体说明的“崇高”目标为止。他还声称，西方实施的经济制裁将反噬美国及其盟友。
+
+虽然俄罗斯已承认部队有“重大损失”，但是普京说，莫斯科对乌克兰的攻势正在按计划进行。
+
+在普京发表这番评论之际，美国总统拜登和英国首相约翰逊就约翰逊上周末的乌克兰之行通了话。
+
+白宫说，两位领导人“重申面对俄罗斯的持续暴行，他们致力于向乌克兰提供安全和人道援助”，并“欢迎与盟友的持续合作”，因“其无端和无理的战争”而对俄罗斯实施制裁。
+
+俄军对乌克兰城市进行了大规模攻击，破坏了医院和民居，但是乌克兰挫败了莫斯科推翻乌克兰政府的企图。如今，俄罗斯正在把用兵重点放在攻打乌克兰东部地区。
+
+一些西方国家已呼吁对普京进行战争罪调查。乌克兰总统泽连斯基敦促欧洲联盟制裁所有俄罗斯银行并禁止进口俄罗斯石油。
+
+不过一些欧洲领导人表示，他们担心停止进口俄罗斯油气会对本国经济造成影响。
+
+参考链接：[普京扬言继续猛攻乌克兰 不达目的绝不罢手](https://www.voachinese.com/a/putin-vows-continued-onslaught-in-ukraine-20220412/6526605.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

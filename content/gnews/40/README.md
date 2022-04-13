@@ -2,26 +2,38 @@
 ---
 
 
-## 中日财经爆|美国SEC再将搜狐等12家中概股列入“预退市”清单
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338125/)
+## 波兰和比利时总理均表示，对俄罗斯的制裁必须更加严厉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338142/)
 
-撰稿：东京樱花团/peterwong
+#### 【雅典娜快讯】紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04133.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
+#### 翻译/编辑：小红帽
 
-美国证劵交易委员会（SEC）4月12日，再将搜狐等12家中概股公司加入“预退市”清单，这是自3月以来第四批被纳入名单的中概股公司。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Polish_Belgian_PM_-1.jpg)图片来源：Alamy
 
-具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-SEC声称，上述12家公司提交申辩的截止时间为当地时间5月3日。
+根据外媒4月11日报道，波兰总理马特乌什·莫拉维茨基和比利时总理亚历山大·德克鲁分别同意，如果要对克里姆林宫产生影响，对俄罗斯的制裁必须更加严厉。
 
-根据SEC公布的《外国公司问责法》，被列入「确定摘牌名单」的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。如果「确定摘牌名单」中的公司没有提交或提交的文件不符合SEC要求，理论上将会在披露2023年年报后（2024年初）面临立即退市。
+周一，波兰和比利时总理在华沙会面后，莫拉维茨基表示，对乌克兰局势需要迅速采取行动，制裁问题需要国际安排。
 
-消息来源：[美國SEC再將12家中概股列入「預摘牌名單」　包括搜狐及新濠影匯](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/758516/%E7%BE%8E%E5%9C%8Bsec%E5%86%8D%E5%B0%8712%E5%AE%B6%E4%B8%AD%E6%A6%82%E8%82%A1%E5%88%97%E5%85%A5-%E9%A0%90%E6%91%98%E7%89%8C%E5%90%8D%E5%96%AE-%E5%8C%85%E6%8B%AC%E6%90%9C%E7%8B%90%E5%8F%8A%E6%)
+“保持团结很重要。下一轮制裁应该让克里姆林宫相信我们在争取普世价值方面非常坚定，例如生命权、禁止酷刑、自由、正义和团结。”莫拉维茨基补充说，迄今为止对俄罗斯实施的制裁“还不够努力”。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+德克鲁同意莫拉维茨基的意见，即制裁应该极其严厉。
+
+比利时政府已采取措施阻止俄罗斯获得该国的金融资源。欧盟迄今已采取五项制裁措施，但其承认有必要推出进一步的制裁措施。
+
+“我们应该让俄罗斯更加难以进入金融市场，以阻止俄罗斯的金融机构。”德克鲁宣布比利时准备在这方面采取进一步措施并指出能源转型和摆脱俄罗斯化石燃料的需要。
+
+资料来源：[Polish, Belgian PM say sanctions on Russia must have maximum impact](https://www.thefirstnews.com/article/polish-belgian-pm-say-sanctions-on-russia-must-have-maximum-impact-29610)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

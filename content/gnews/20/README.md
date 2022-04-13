@@ -2,21 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 巴比伦蜜蜂（The Babylon Bee）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339201/)
+## 今日盖特大V推荐 — 路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339279/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1527.png)
-盖特链接： [**https://gettr.com/user/thebabylonbee**](https://gettr.com/user/thebabylonbee)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1529.png)
+盖特链接：[** https://gettr.com/user/luislacombereal**](https://gettr.com/user/luislacombereal)
 
-巴比伦蜜蜂自述：
+**路易斯·埃内斯托·拉科姆自述：**
 
-您可以信任的假新闻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1528.png)图片来源：网络
-**巴比伦蜜蜂简介：**
+记者、主持人和作家。 建议访问我的网站并了解我的社区
+**[\[email protected\]](/cdn-cgi/l/email-protection#2945484a46444b4c694b5b485a4045444c4d404841465c5a4c074a4644)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1530.png)图片来源：网络
+**路易斯·埃内斯托·拉科姆简介：**
 
-《巴比伦蜜蜂》（Babylon Bee）是一个保守的基督教新闻讽刺网站，发布有关宗教、政治、时事和公众人物等主题的讽刺文章。
+路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe Heilborn，生于1966年8月2日）是巴西记者、主持人、作家和YouTuber。
 
-2021年1月，《华盛顿时报》称，《巴比伦蜜蜂》每月的页面浏览量超过2000万，拥有超过20,000名付费订阅者，并拥有一个856,000名关注者的Twitter帐户。2022年1月，《经济学人》称《巴比伦蜜蜂》“在鼎盛时期每月吸引多达2500万读者”。并且，该网站所有者兼首席执行官塞思·狄龙已经将《巴比伦蜜蜂》变成了“继《福克斯新闻》之后最受欢迎的保守网站之一”。
+路易斯·埃内斯托·拉科姆先后主持了“夜晚·曼切特河、环球新闻、早安巴西、空中观点”等节目；著有三部“十四行诗集”和一部小说。
 
 编撰：洛杉矶盘古农场 — 心照
 校审：洛杉矶盘古农场 — 郭友(文苏)

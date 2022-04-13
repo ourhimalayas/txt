@@ -2,35 +2,33 @@
 ---
 
 
-## 瑞典国会、欧洲议会等11人抵台访问
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2338060/)
+## 挪威考虑援助乌克兰现代化防空系统
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338063/)
 
-作者：纽约香草山 – 文希
+**撰稿：日本东京方舟农场 北极**
 
+据焦点报4月12日报道，挪威议会代表奥拉·埃尔维斯图恩（Ola Elvestven）提议援助乌克兰现代化防空武器，以帮助其扭转战争局势。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-19.jpeg)挪威防空导弹系统。（图片来自大纪元）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+这位政治家指出，西方，特别是北约国家，应该对乌克兰提供更多的现代化武器。他本人向议会提议向乌克兰援助挪威先进地对空导弹系统（Norwegian Advanced Surface to Air Missile System，简称NASAMS）和海军打击导弹（Naval Strike Missile，简称NSM）。
 
+NASAMS防空系统是由挪威康斯伯格（Kongsberg）武器工厂和美国雷神公司（Raytheon Company）在90年代开发的。该系统配备了AIM-120导弹（先进中程空对空导弹），具有强大的推力和远距离飞行的优点。NASAMS能够拦截机动弹道目标，这意味着NASAMS能够对抗俄罗斯的导弹系统“伊斯坎德尔”。
 
+伊斯坎德尔导弹(北约代号 SS-X-2)是俄罗斯发展的一种中短程弹道导弹，具有突破反导拦截系统的能力，俄军方号称世界上没有能拦截伊斯坎德尔的系统。
 
-台媒4月10日报道，瑞典国会议员协会暨欧洲议会议员联合访团于当地时间下午5时23分登机，启程前往台湾桃园机场，开启4月10～14日对台湾的访问。 访问团启程前，曾遭中共驻瑞典大使馆的施压。
+挪威的另一种先进海防武器NSM能够通过GPS，和地形参考系统进行导航，以海掠模式飞行，隐身能力强，可识别海上或沿海目标。
 
-大使馆向访问团成员发信重申了中共的所谓“一中”原则，称他们若访问台湾，将严重违反瑞典的对外政策，违背对中共国的政治承诺，强烈要求该团议员不得访问台湾。 但这种施压反而加强了11位团员访台的决心。针对最近中俄两国发展合作关系，访问团团长魏莫斯建议欧盟及其会员国与台湾积极发展友好关系。瑞典外交部则相信联合访问团此行一定可以深化台湾与瑞典，以及台湾与欧盟之间的友好关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-6.jpg)
+此前，挪威首相乔纳斯·加尔·斯特雷（Jonas Gar Stehre）表示，尽管挪威对军事武器装备的出口政策非常严格，但乌克兰人民面临着“非常情况”，需要军事援助。
+
 参考链接：
-[瑞典国会、欧洲议会11人 抵台访问](https://www.worldjournal.com/wj/story/121475/6229189?from=wj_msg&amp;zh-cn)
+1. [https://reurl.cc/DdNv6e](https://reurl.cc/DdNv6e)
+2. [https://reurl.cc/Qj177p](https://reurl.cc/Qj177p)
+3. [https://reurl.cc/DdNvv5](https://reurl.cc/DdNvv5)
+4. [https://reurl.cc/akp594](https://reurl.cc/akp594)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/审核：飞虹
-总编：天滅中共
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+总编： 老孙
+校对发布：文曦
 
  
 

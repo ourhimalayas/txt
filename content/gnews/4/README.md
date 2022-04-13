@@ -2,65 +2,48 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.13)–康希诺疫苗对身体的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339444/)
+## 俄乌战争加剧化肥紧张，危及粮食供应
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2339531/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：Gradient Boost
 
-整理/编辑：禄森
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-254.jpg)
+网络图片
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
+Monica Kariuki 即将放弃农耕工作，驱使她离开内罗毕郊外 10 英亩土地的不是恶劣天气、害虫或枯萎病这些传统的农业诅咒，而是化肥——它的成本太高了。
+
+尽管她与乌克兰的战场相距数千英里，但 Kariuki 和她的卷心菜、玉米和菠菜农场是俄罗斯总统弗拉基米尔·普京入侵乌克兰的间接受害者。战争推高了化肥关键成分天然气的价格，并导致了对主要化肥出口国俄罗斯的严厉制裁。
+
+Kariuki 过去常常花费 20,000 肯尼亚先令（约合 175 美元）来施肥她的整个农场。现在，她需要花五倍的钱。她说，继续耕种土地只会继续造成损失：“我不能继续从事农业工作，我要放弃农业去尝试别的东西。”
+
+更高的化肥价格正在使世界粮食供应变得更加昂贵且不丰富，因为农民在作物营养方面的投入不足，产量降低。虽然富裕国家的杂货店购物者会感受到涟漪，但食品供应的紧缩将对较贫穷国家的家庭造成最严重的影响。情况再糟糕不过了：联合国粮食及农业组织上周表示，其 3 月份的世界食品价格指数达到了自 1990 年开始以来的最高水平。
+
+化肥紧缩可能会进一步限制全球粮食供应，而这已经受到乌克兰和俄罗斯粮食运输中断的限制。这些小麦、大麦和其他谷物的供应损失增加了中东、非洲和一些亚洲国家粮食短缺和政治不稳定的前景，这些国家数百万人依赖补贴面包和廉价面条。
+
+尼日利亚大学的农业专家 Uche Anyanwu 说：“食品价格会飞涨，因为农民必须赚钱，那么消费者会怎样呢？”援助组织 Action Aid 同样发出警告，非洲部分地区的家庭已经被“逼到了生存的边缘”。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[AP New](https://apnews.com/article/russia-ukraine-putin-business-health-europe-c6a2d11380d3cb0c48d4c22703d1954e)
+
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7333/6234379?from=udn-catebreaknews_ch2)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2339064/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
+[郭文贵先生Gettr](https://gnews.org/zh-hans/2339064/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
+[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2339064/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2339064/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
 
-**帖子原文**：
-
-**博主: 芋圆圆啵唧**
-
-**康希诺加强针威力有多大**
-
-第一针打了康希诺烧到四十度以后，万万没想到加强针又是康希诺，打的时候反复问小姐姐会不会发烧，她说应该不会吧，发烧也是正常反应，十点多打完一直活蹦乱跳到下午五点，因为在外面耍的热了脱了外套，过了一会儿好冷，赶紧穿上衣服回家就发现意外的开始发烧了，暂时还是低烧，头有点晕，应该没上次猛烈了吧，期待一下他这次的表现
-
-#疫苗加强针
-
-**作者发布于2022-3-26**
-
-**精选评论**
-
-大聪明与二傻子评论:
-
-前天下午打的加强，一直烧到现在。38.4，流鼻涕，头疼，呕吐，拉肚子，我的天
-
-Anwar评论:
-
-退了吗 我昨天打的 现在39度
-
-Adaro评论:
-
-我第三针康希诺，这会正烧着呢，太难受了
-
-夜寒缥缈心评论:
-
-发烧一天，剩下几天胳膊肿疼
-
-子子凯珠宝设计师:
-
-刚打完第二针，打第一针的时候贼可怕！全身发麻
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1543.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1544.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1545.png)图片来源：小红书
-参考链接：
-
-[高烧加低烧](https://www.xiaohongshu.com/discovery/item/623eea380000000001025b28?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729519)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 
