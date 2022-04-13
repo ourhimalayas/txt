@@ -2,32 +2,32 @@
 ---
 
 
-## 挺乌抗俄！美国再增7.5亿美元军援
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2337091/)
+## 比利时首相接受新中国联邦记者采访并主动要求合影
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2337120/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-乌俄战事持续，各国对于乌克兰的军援仍持续涌入，继拜登总统指控普京是战争犯对乌克兰人种族灭绝后，美国官员透露，拜登政府最快将于13日向乌克兰提供7.5亿美元的额外军事援助，用于抵抗俄军入侵。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpI98Nud.jpg)图片来源：路透
+4月12日，比利时首相亚历山大·德克罗在波兰梅迪卡难民救援中心接受了新中国联邦记者Nicole的采访并主动要求合影留念。对此，郭先生表示，这是外交默认。
 
-综合外媒报导，美国官员表示，目前关于这笔7.5亿美元军事援助的具体内容为何，政府仍在讨论中。这笔款项预计将由拜登授权从美国股票中转移，无需国会批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-241.jpg)（图片来自GETTR）
 
-一名国会高级助理透露，拜登政府即将公布的军援中，可能包括重型地面火炮系统，例如榴弹炮等装备。这笔款项公布后，拜登政府对乌克兰的援助总额将超过30亿美元，其中有25亿美元是在俄罗斯入侵乌克兰后拨出。
+波兰当地时间今日上午10点，比利时首相亚历山大·德克罗（Alexander De Croo）在访问波兰梅迪卡难民救援中心时接受了新中国联邦记者Nicole的采访。
 
-拜登早前在公开场合成普京为战争犯，并让律师们以国际标准决定是否符合种族灭绝标准。对此克里姆林宫强烈批评拜登的言论令人无法接受且不可饶恕，普京对此毫无放松对乌克兰的攻势，并忽视国际各国的指责。
+在采访过程中，记者Nicole向首相亚历山大·德克罗介绍了新中国联邦消灭邪恶中国共产党的目标以及有关救援乌克兰难民的情况。
 
-美国再次军援乌克兰，给乌克兰吃定心丸的同时也表达了拜登政府坚决抗俄的决心。在这场东西方阵营的大较量中，美国作为民主社会的灯塔国，绝不允许民主世界受到独裁侵略者的蚕食。乌克兰不单单是欧洲的屏障，如今更是民主世界的脸面，屏障不可丢，脸面更不能丢。普京已经戴上了种族灭绝战争犯的帽子，全力打一场必输的战争，离审判不远了！
+亚历山大·德克罗首相回应道，人们需要互相帮助，非常高兴新中国联邦对乌克兰难民施予援手。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3891312](https://news.ltn.com.tw/news/world/breakingnews/3891312)
+采访最后，首相亚历山大·德克罗还主动要求和穿戴标有“Take down the Chinese Communist Party（消灭中国共产党）”标识的黄色马甲及帽子的Nicole合影留念。
 
-撰稿/发布：一叶知秋
+对此，新中国联邦创始人郭文贵先生郑重表示，这叫外交默认，这是首位在任首相，在外交上默认新中国联邦的国际地位，这一历史性时刻对新中国联邦的意义非常重大。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+参考链接：
+1.[https://www.gettr.com/post/p14xohiaaac](https://www.gettr.com/post/p14xohiaaac)
+2.[https://www.gettr.com/post/p14y3tsd6bc](https://www.gettr.com/post/p14y3tsd6bc)
+
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

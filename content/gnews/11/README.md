@@ -2,24 +2,31 @@
 ---
 
 
-## 视频|乌克兰做足战备 盟国增加军援
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2338165/)
+## 全球中共病毒感染人数累计超5亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338268/)
 
-制作：香草山视频部
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+截止4月12日，全球中共病毒（新冠病毒）感染人数已累计超过5亿人。2月上旬超过4亿人后,约2个月内又增加了1亿人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-85.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdnuploads.aa.com.tr%2Fuploads%2FContents%2F2020%2F05%2F25%2Fthumbs_b_c_0a6e840e801f751e3debecd9ade31830.jpg%3Fv%3D194153&amp;imgrefurl=https%3A%2F%2Fwww.aa.com.tr%2Fen%2Fasia-pacific%2Fcovid-19-11-new-case)
+美国约翰斯·霍普金斯大学统计，截止4月12日，全球中共病毒（新冠病毒）感染人数已累计超过5亿人。2月上旬超过4亿人后,约2个月内又增加了1亿人。虽然增加的步伐稍有下降,但世界仍没有看到停止的趋势。
 
-根据4月10外媒消息，乌克兰总统顾问公开表示，乌已做足战备，与俄罗斯进行大规模战斗。乌克兰将在俄方控制的两个分离地区——顿涅茨克和卢甘斯克击退俄军，以便在俄乌总统会晤前获得更多的主动权。
+据统计,各国累计感染人数美国最多约8050万人,印度约4300万人,巴西约3020万人,法国约2740万人,德国约2280万人。日本约有710万人。世界累计死亡人数约为620万人。
 
-此外，美国、德国等盟国表示会继续向乌克兰提供武器援助。
+疫情开始近一年的去年1月,感染者超过1亿人,去年8月达到2亿人。去年11月，传染性强的变异株“奥密克戎”被确认以后,感染扩大加速,今年1月突破3亿人。
 
-美国国家安全顾问杰克·沙利文10日表示，美国正致力于向乌克兰提供它需要的武器来抵御俄罗斯，阻止他们占领更多的城镇。而根据其他信息，自俄罗斯发动入侵以来，美国已向乌克兰提供了 17 亿美元的军事援助。
+信息来源：[ロックダウン続く上海、感染者２万４９４３人に…９６％が無症状者](https://www.yomiuri.co.jp/world/20220410-OYT1T50157/)
 
-德国国防部长兰布雷希特9日受访表示，自战争开始，德国已经援助了军盔、反战车、防空和地对空飞弹以及机枪和弹药等军事装备，目前，德军已经无法从库存中直接拿出武器提供给乌克兰，但这并不意味着德国不能为乌克兰做更多的事情，未来德国对乌克兰的军援将更多地直接透过军火工业进行。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-发稿：林礼
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

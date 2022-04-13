@@ -2,27 +2,33 @@
 ---
 
 
-## 北朝鲜金家会很快土崩瓦解
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337336/)
+## 郭先生揭露习近平执政以来推行的三大恶事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337648/)
 
-作者：日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-在4月10日的大直播中，郭先生透露，自从乌克兰勇敢地反抗了俄罗斯侵略，并且得到了西方巨大支持后，世界上所有独裁政权，包括北朝鲜的金家都感到了不可抑制的惶恐。
+作者：纽约香草山农场 -恩永存
 
-郭先生指出，金家政权就是一个建立在巨大谎言上的家族王国。并通过奴役整个北朝鲜，让全体人民挨饿受冻，养出了整个国家唯一一个肥胖的人。但在乌克兰英勇的反抗后，金正恩心里很明白，它根本无法跟美国抗衡，曾经引以为豪的核威胁，甚至在马斯克面前也只是无法使用的哑炮。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-27.jpg)
-特别的是北朝鲜将面临粮食危机，并且金家也和中共一样没有足够的外汇进口粮食，根本无法支撑其军队的运转。再加上星链技术和韩国新研发的通讯技术，很容易能把海外信息传播至北朝鲜境内，当饱受饥饿的老百姓知道真相时，就是金家土崩瓦解之日。
 
-郭先生认为，今年很大的变数是北朝鲜，之后是伊朗、叙利亚、沙特，然后这个连锁反应最终将促进俄罗斯和中共的瓦解。
 
-参考链接：[北朝鲜金家会很快土崩瓦解](https://www.gettr.com/streaming/p14iwpvf134)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+郭文贵先生在4月10日的大直播中揭露，习近平自执政以来，有计划的做了三大恶事，为中国人带来了前所未有的灾难。首先，习近平以反腐之名，利用王岐山铲除政敌。然后利用派系间的矛盾，除掉江泽民、胡锦涛等人的势力。其次是收拾中国富豪寡头，在他的授意下，马云、马明哲、马化腾、史玉柱等等，一个接一个的入狱、死亡。 而习近平的最后一步，就是除掉名人。习认为，名人是看不见的风险，会到处惹事。泱泱大国，唯有他习近平一个人可以自由发声，任何其他的声音都不能容忍。习近平已经成为了真正的独裁者。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-7.jpg)
+参考链接：
+[2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编：飞虹，天滅中共
+审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

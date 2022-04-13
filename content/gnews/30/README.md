@@ -2,33 +2,38 @@
 ---
 
 
-## 郭先生揭露习近平执政以来推行的三大恶事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337648/)
+## 斯洛伐克国防部长：可能向乌克兰出售榴弹炮
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337763/)
 
-作者：纽约香草山农场 -恩永存
+***评论：**就在此报道的前几天，2022年4月8日，斯洛伐克总理赫格（Eduard Heger）表示，为协助乌克兰抵御俄罗斯侵略，现已捐赠S-300防空系统。斯洛伐克是自2月24日俄罗斯对乌克兰采取军事行动以来，已知的第一个向乌克兰提供大型防空系统的国家。当然，前提是，今年3月，北约成员国德国和荷兰向斯洛伐克部署了三套“爱国者”防空系统，而美国也下令将其在欧洲的其中一个爱国者防空系统部署在斯洛伐克。不管如何，斯洛伐克和乌克兰都加强了自身的防空系统，美国、欧盟与邪恶的俄罗斯和中共的大战即将开打。*
+
+据《路透社》记者Robert Muller，2022年4月10日报道:
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1477-e1649823293619.png)2022年3月17日，斯洛伐克国防部长雅罗斯拉夫·纳德（Jaroslav Nad）与美国国防部长劳埃德·奥斯汀（Lloyd Austin）在斯洛伐克共和国布拉迪斯拉发（Bratislava）举行的新闻发布会上讲话。图片来源：REUTERS/Radovan Stoklasa
+路透布拉格4月10日电—斯洛伐克国防部长雅罗斯拉夫·纳德(Jaroslav Nad)周日表示，斯洛伐克可能向乌克兰出售部分Zuzana自行榴弹炮。
+
+纳德在电视辩论中表示:“我可以确认我们正在 (就出售)进行谈判” 。此外，他没有透露更多细节。
+
+Zuzana 2榴弹炮是一种旧型号的现代化改进版本，使用155毫米弹药，根据弹药类型的不同，有效射程从40公里到50公里(30英里)以上。
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源：[https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/](https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/)
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场 – HotPixel
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-郭文贵先生在4月10日的大直播中揭露，习近平自执政以来，有计划的做了三大恶事，为中国人带来了前所未有的灾难。首先，习近平以反腐之名，利用王岐山铲除政敌。然后利用派系间的矛盾，除掉江泽民、胡锦涛等人的势力。其次是收拾中国富豪寡头，在他的授意下，马云、马明哲、马化腾、史玉柱等等，一个接一个的入狱、死亡。 而习近平的最后一步，就是除掉名人。习认为，名人是看不见的风险，会到处惹事。泱泱大国，唯有他习近平一个人可以自由发声，任何其他的声音都不能容忍。习近平已经成为了真正的独裁者。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-7.jpg)
-参考链接：
-[2022年4月10日 文贵大直播：习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣](https://gettr.com/post/p14iwpvf134)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：飞虹，天滅中共
-审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

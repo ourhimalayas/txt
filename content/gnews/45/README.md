@@ -2,30 +2,36 @@
 ---
 
 
-## 樱花时政┃美国驻华使团关于美国驻上海总领事馆命令撤离的声明
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336540/)
+## 辉瑞公司雇用大量人员处理疫苗不良事件
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336587/)
 
-撰稿：东京樱花团/上善若水
+##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译/薇文】
 
-美国的首要任务莫过于海外美国公民的安全与保障，其包括驻华使团人员和他们的家属。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-8.png)[图片来源](https://china.usembassy-china.org.cn/zh/)
-2022年4月11日，国务院下令非紧急美国政府雇员和其家属自上海总领事馆撤离。从“授权”到“命令”撤离的改变意味着，我们现在强制某些雇员撤离上海，而不是任其自行决定。我们的态势改变反映出我们所做的评估，为了因应当地不断变化的情势，减少人数和缩小运作规模，对我们的员工和家属而言，是最好的决定。雇员和家属将搭乘商业航班离境。因为新冠疫情目前爆发的情势，国务院下达撤离命令。
+英国[新闻调查]9日报道，4月1日FDA被勒令强制公布的最新辉瑞公司的文件证实，截止2021年6月，他们至少新增了1800人，专门协助处理涉及mRNA 病毒疫苗大量的不良事件报告。
 
-伯恩斯大使和其他国务院和使馆的官员，持续向中共国官员提出我们对美国公民安全和福祉的关切。我们已告知中共政府命令撤离的决定。
-
-美国使团的人员将全天候向在中共国的美国公民提供紧急服务。使团内部已调整人员配置，来因应激增的紧急公民服务需求，包括由美国驻北京大使馆的一支团队来增援上海总领事馆。在条件允许的地方，照常向公众提供一般的美国公民和签证服务，美国驻上海总领事馆则将尽快恢复向公众开放。
-
-美国驻上海总领事馆的命令撤离将每30天审视一次。我们对人员调整的细节虽不加以详述，但会持续调整人员配置态势，以因应需求和情况。
-
-在上海的美国公民如果希望离开中共国，商业航班仍有机位但数量有限。我们现在正着手处理持有确认机票的美国公民前往机场之事宜。
-
-信息来源：[美国驻华使团关于美国驻上海总领事馆命令撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-chinas-statement-on-the-ordered-departure-for-u-s-consulate-general-shanghai/)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1460.png)
 
 
+文件显示，辉瑞公司就采取行动缓解疫苗不良事件激增一事，在2021年4月已向FDA报告。措施包括增加人手进行数据输入和病例处理，预计2021年6月底增加人员将超过1800名。
+
+截止3月底，仅英国医药监管机构就收到近17万份的不良事件报告，这1800人能否覆盖所有不良事件非常值得怀疑。文件披露的各类癫痫上千起；各类瘫痪500多起；各类中风700多起。对此，FDA却不以为奇， 或许这也是他们拼命想拖延75年公布这些秘密的原因之一。
+
+疫苗安全、有如果这样定义，难以想象什么才算危险。
+
+原文链接：[Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
+
+上传/发稿 – 【青青】
+撰稿/翻译/ -【薇文】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

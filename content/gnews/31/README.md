@@ -2,33 +2,39 @@
 ---
 
 
-## 越来越多加拿大机构投资者持有数字资产
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337636/)
+## 美国五角大楼：中共和俄罗斯正持续部署可打击美卫星的武器
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2337727/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【加拿大福利杂志】4月11日报道，由毕马威和加拿大替代策略资产协会联合进行的一项调查显示，大约 57% 的加拿大机构投资者在 2020 年至 2021 年期间持有了数字货币类资产。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1475.png)
-其中大多数机构持有的数字资产规模较小，有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+来自新加坡早报 /
+2022年4月13日 10:09 AM 报导
+采集：玫瑰新闻组
 
-毕马威加拿大资产管理合伙人兼国家金融服务咨询负责人克里斯·法卡斯表示：“鉴于政府债券作为投资组合减震器抗波动的能力降低，机构投资者越来越多地增加持有数字资产，以进一步多样化投资组合。虽然这对于机构投资者来说是一个更新且具有潜在前景的领域，但他们显然采取了谨慎的态度。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-原文鏈接：
 
-[https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
-上传/发稿 – 【青青】
-撰稿/翻译/-【活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
 
-更多加拿大溫哥華揚帆農場的頻道，請關註：
 
-- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)[場](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH-5.png)
+
+![美军新卫星打造分身术防范反卫星武器攻击(图)_新浪军事_新浪网](https://assets.gnews.org/wp-content/uploads/2022/04/image-198.jpeg)
+
+美国五角大楼的情报机构称，中共国和俄罗斯正持续部署开发能攻击美国卫星的武器，尽管两国都已强化了其太空监视和侦察力量。
+
+据彭博社报道，美国国防情报局周二（4月12日）发布的报告称，中共国拥有多种不同功率级别的地基激光武器，用于干扰、削弱或破坏卫星。目前中共国也有一定能力使用激光系统破坏卫星传感器；到了2020年代中后期，中共国可能部署更高功率的系统，甚至会威胁非光学卫星的结构。
+
+与此同时，俄罗斯认为美国在太空领域上对俄罗斯的依赖是美国的致命弱点，因此俄罗斯正在寻求反太空武器来中和或抗拒美国的天基服务，并且可能将在2020年代中后期投入开发更具破坏力的激光武器。
+
+报告称，中共国正在部署更具破坏力的武器，且目前中共国自己的情报、监视和侦察卫星数量不断增加。截至1月份，中共国拥有超过250颗卫星，数量仅次于美国。中共国人民解放军拥有并运营着全球大约一半的情监侦系统，其中大多可以监视、跟踪和瞄准全球范围内的美军和盟军，尤其是在整个印太地区。这些卫星还使解放军能够监控潜在的地区闪爆点，包括朝鲜半岛、台湾、印度洋和南中国海。
+
+美国国防情报局周二发布的最新报告主要是基于新闻报道以及中共国和俄罗斯官员的声明，但它仍是一份有用的威胁总结，推动美国国防部2023财年拟议国防预算中的重大投资项目，尤其是对太空部队和太空司令部的拨款。
+
+新闻链接：
+[美五角大楼：中俄正开发部署可打击美卫星武器](https://www.zaobao.com.sg/realtime/china/story20220413-1262261)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

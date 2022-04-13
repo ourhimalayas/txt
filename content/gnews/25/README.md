@@ -2,41 +2,34 @@
 ---
 
 
-## 澳洲部长紧急赶赴所罗门群岛讨论中共的安全协议
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2337906/)
+## 多国领导人预期，新中国联邦一定会得到国际社会的认可
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337966/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
-
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Australian_minister_.jpg)图片来源：www.ft.com
+作者：纽约香草山 -飞虹
 
 
-根据澳洲媒体4月12日报道，澳大利亚太平洋事务部长于当日紧急赶往所罗门群岛，讨论该国可能与中共达成的安全协议。
 
-国际发展和太平洋部长泽德·塞塞利亚的这次访问是在所罗门群岛政府提出允许中共国海军舰艇驻扎在那里的协议几周后进行的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-“我的讨论将包括拟议中的所罗门群岛-中共国安全协议。此次访问是在最近所罗门群岛政府和澳大利亚官员之间的对话和访问之后进行的，”塞塞利亚先生在一份声明中说。
 
-“直接接触一直在进行，包括外长佩恩和所罗门群岛外长马内莱之间的讨论，以及我本人在布里斯班与太平洋家庭伙伴在帕劳举行的海洋会议之前的周末讨论。
 
-塞塞利亚在声明中强调了所罗门群岛在满足太平洋“安全需求”方面的作用，包括澳大利亚的地缘政治安全。
+在4月10日的文贵大直播中，郭先生与救援前线的战友互动时，透露了几个与新中国联邦未来有关的重要信息。
 
-与此同时，澳大利亚的最高政治领导人就中共在所罗门群岛建立海军基地的可能性展开了正面交锋。
+郭先生指出，日本政府专门对救援战友在前线的行动进行了分析，并称如果我们能坚持到战后，新中国联邦一定得到多个国家的承认。不仅如此，欧洲多个一直与郭先生有往来的领导人，也对新中国联邦在俄乌战争前线营救难民的行动给予了高度赞赏，他们认为如果联合国不主动承认新中国联邦的国际地位，一定会有其他国家推动这件事。这件事对于西方国家深刻理解中国人不等于中共，意义深远。另外，郭先生还说，就连一些与中共勾兑极深的犹太人，也因为新中国联邦人对犹太人的救助，对我们表达了由衷的感谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-7.jpg)
+参考链接：
+[4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；](https://gettr.com/post/p14rxiif895)
 
-澳大利亚总理莫里森淡化了对国际权力游戏的担忧，而反对党领袖安东尼·艾博年则质疑为什么澳大利亚没有采取更多措施来阻止这笔交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-国防部长彼得·达顿此前曾表示，在两国签署安全协议的消息传出后，所罗门群岛总理马纳西·索加瓦雷已经明确表示，中共不会被允许在这个太平洋国家建立军事基地。
+编辑/总编/审核：天滅中共
+校对/发稿：为真不破20
 
-资料来源：[Australian minister makes urgent dash to Solomon Islands to discuss China security deal](https://www.9news.com.au/national/china-solomon-islands-pm-scott-morrison-says-beijing-military-base-in-pacific-nation-unlikely/2f3c3938-d8d6-4315-85e1-4de8c54ab886)
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 
