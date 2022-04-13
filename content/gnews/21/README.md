@@ -2,39 +2,20 @@
 ---
 
 
-## 有声|盖特新版搜索引擎开放测试
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340233/)
+## 新中国联邦旭日初升 中共独裁者日薄西山
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2340275/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据新中国联邦词典编辑组的战友透露，使用新算法的盖特搜索推荐引擎Gettr Trends近日已经上线。用户可以更方便地搜索到自己想找的盖特帖子，并且可以看到每日最活跃的帖子。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-11-214640.jpg)图片来源：网络
-在新的搜索引擎中，用户可以通过关键词进行搜索，也可以同时输入重点关注的关键词，以明确优先搜索的范围，突出重点。用户还可以只搜索某种语言的帖子。为了减少重复性的或其他不想要的帖子，可以使用黑名单功能，忽略特定的账号或推广账号，过滤掉这些账号发出的帖子。
+文贵大直播20220413
 
-搜索结果可以依据多种指标进行排序，例如得分、综合排名、点赞数、转发数、留言数、发帖时间等。用户还可以看到每个帖子的被观看次数。 目前搜索引擎的数据更新频率是每24小时更新一次，搜索引擎的地址是[https://ge.inpw.cc/](https://ge.inpw.cc/)。
+主笔：顽童（纽伦堡正义）
 
-此外，新中国联邦词典还在近期上线了G-news搜索与推荐引擎G-news Search，地址是[https://gs.inpw.cc/](https://gs.inpw.cc/)。
+撰稿：文仁（77功成）文复（达芬奇）
 
+书法：沙漠之花（香草山）
 
-
-文字版原文：[盖特新版搜索引擎开放测试](https://gnews.org/zh-hans/2332391/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-17.png)
+*发布：Theodosia*
 
  
 

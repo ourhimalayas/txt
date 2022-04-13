@@ -2,22 +2,56 @@
 ---
 
 
-## 樱花时政┃传四名维吾尔人将被遣返，联合国不作为
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336534/)
+## 突发：乌克兰特勤局逮捕了亲俄反对党领袖梅德韦丘克
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2336516/)
 
-撰稿：东京樱花团/上善若水
+翻译：多伦多蓝莲花- 灭共文明
 
-近日传出4名维吾尔人在沙特利雅得遭逮捕，并将被遣返中共国，据悉，维族女性阿布拉与她的女儿，3月31日在沙特麦加遭警察逮捕。除了这对母女，将一同被遣返中共国的还有另外两名维吾尔男子，他们2020年在麦加遭警方逮捕后被关押至今。针对两人可能遭沙特遣返回中共国，联合国人权专家4月1日曾发表联合声明，呼吁沙特开放信息，并确定他们的下落。
+编辑与校对：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》4月12日报道，**乌克兰安全部门周二表示，他们已经逮捕了亲俄政治人物维克多·梅德韦丘克。梅德韦德丘克是普京总统在乌克兰最亲密、最具影响力的盟友。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.hrw.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fopengraph%2Fpublic%2Fmedia_2020%2F11%2F202010MENA_Saudi_G20.jpg%3Fh%3Dc673cd1c%26itok%3D26Bj027m&amp;imgrefurl=https%3A%2F%2Fwww.hrw.org%2Fzh-hans%2Fnews%2F2020%2F11%2F23%2F377113&amp;tbnid=eWLXlOfrkQTZGM&amp;vet=12ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ..i&amp;docid=Q04u4UEkDzoisM&amp;w=1200&amp;h=630&amp;q=%E6%B2%99%E7%89%B9%E9%81%A3%E8%BF%94%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA&amp;ved=2ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/梅德韦丘克.jpg)2021年5月13日，乌克兰基辅，反对党“生命纲领”党领袖维克托·梅德韦德丘克出席法庭听证会(图片来源：路透社）
 
-海外维吾尔人遭受自由甚至生命风险的同时，联合国人权高管的立场也饱受质疑。联合国人权专员巴切莱特曾传出将于5月访问中共国，并称她可能进入新疆视察人权状况。在此之前，巴舍莱尝试申请视察新疆多年，但中共政府始终未批准申请。
+早些时候，乌克兰总统泽伦斯基发布了一张梅德韦丘克的照片，照片上他满脸疲惫，戴着手铐，**他说普京是他女儿的教父。**
 
-信息来源：[传四名维吾尔人将被遣返中国 联合国遭质疑立场消极](https://www.dw.com/zh/%E5%82%B3%E5%9B%9B%E5%90%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E4%BA%BA%E5%B0%87%E8%A2%AB%E9%81%A3%E8%BF%94%E4%B8%AD%E5%9C%8B-%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E8%B3%AA%E7%96%91%E7%AB%8B%E5%A0%B4%E6%B6%88%E6%A5%B5/a-61443793)
+**今年2月**，基辅表示，“反对派平台-为了生活“党领袖**梅德韦丘克从软禁中逃脱。去年，乌克兰当局对梅德韦丘克提起叛国罪指控，**但他否认有任何不当行为。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/梅德韦丘克1.jpg)维克多-梅德韦楚克在被安全部队拘留后（左），以及2021年5月（右）（图片来源：路透社）
+
+乌克兰安全部门在一个在线帖子中写道，**你可以是一个亲俄政客，为这个侵略国家工作多年。你最近可能一直在逃避正义。你甚至可以穿一件乌克兰军服来伪装。但它能帮你逃脱惩罚吗? 一点也不！镣铐在等着你，像你这样的乌克兰叛徒也会受到同样的惩罚。**
+
+该帖子援引特勤局局长伊万·巴卡诺夫(Ivan Bakanov)的话，他表示，他手下的**特工“进行了闪电般快速、危险的多层次特别行动”，以逮捕梅德韦丘克，**但没有透露细节。
+
+
+
+> ⚡️BREAKING: Pro-Kremlin lawmaker, Putin's crony Medvedchuk captured.
+> 
+> Zelensky announced that Viktor Medvedchuk, a lawmaker with the pro-Kremlin party Opposition Platform was captured by the Security Service. Medvedchuk is accused of treason. He escaped house arrest in February. [pic.twitter.com/M3SIi65uht](https://t.co/M3SIi65uht)
+> — The Kyiv Independent (@KyivIndependent) [April 12, 2022](https://twitter.com/KyivIndependent/status/1513945381842956294?ref_src=twsrc%5Etfw)
+
+
+梅德韦楚克在乌克兰SBU特工部门开展的一次特别行动中被拘留。
+上个月，泽伦斯基表示，乌克兰最大的反对派运动“生命的反对派平台”和其他几个与俄罗斯有联系的较小政党已经被暂停。
+
+**在俄乌战争爆发以前，乌克兰是允许亲俄势力的存在**，**而且亲俄势力在乌克兰的势力是很强悍的，**包括在联邦和州一级层面的政府都有亲俄势力，**甚至能够成为当局政府首脑。**
+
+但是，**自俄罗斯入侵乌克兰以来，特别是，俄罗斯军队惨无人道的虐杀乌克兰平民以后，乌克兰人再也不会允许亲俄势力做大**，也许连存在都非常困难，**乌克兰人民对俄罗斯人有着血海深仇。**
+
+**自此，乌克兰亲俄势力在乌克兰应该彻底成为历史。**
+
+新闻来源链接：
+
+[Ukraine secret service says it has arrested top Putin ally | Reuters](https://www.reuters.com/world/europe/ukraines-president-publishes-photo-pro-russian-politician-handcuffs-2022-04-12/)
+
+[Ukraine Secret Service just captured Putin’s best friend | indy100](https://www.indy100.com/news/ukraine-capture-viktor-medvedchuk?utm_content=Echobox&amp;utm_medium=Social&amp;utm_campaign=Main&amp;utm_source=Twitter#Echobox=1649793730)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

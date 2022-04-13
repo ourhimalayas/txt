@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 1:45 PM (UTC)`
+
+【Ukraine Rescue】 04/13/22 Malteser, a well-known German Catholic rescue organization, contacted NFSC volunteer Wen Yao and asked NFSC to provide help for seven Ukrainian refugees and a pet dog. We not only provided them with free accommodation and food for 3 days and arranged a bus to Germany, but also thoughtfully prepared the food and masks they would need for the journey.<br/><br/>【乌克兰救援】 04/13/22 德国天主教著名救援组织Malteser联系到新中国联邦志愿者文耀，请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助。我们不仅为他们提供了3天的免费食宿，安排了去往德国的大巴，还细心地为他们准备好了路上所需的食物和口罩。<br/>
+![img](https://media.gettr.com/group32/getter/2022/04/13/13/be69c8e0-69a5-dfd1-2889-369eed6d8b70/out.jpg)
+
+---
+
 `@miles 4/13/2022 1:37 PM (UTC)`
 
 【Ukraine Rescue】4/12/2022 A reporter from the Finnish Broadcasting Company is particularly grateful for the large tent provided by the New Federal State of China and the Rule of Law Foundation. He slept in our tent last night and also read the Declaration of New Federal State of China on our desk, which he will bring back to Finland. He also inquires in detail about the mission of the NFSC to take down the CCP, and our humanitarian aid activity in Ukraine sponsored by the ROLF. (Part2-2)<br/><br/>【乌克兰救援】4/12/2022 芬兰国家广播电视公司记者特别感谢法治基金新中国联邦提供的大帐篷，他昨晚在我们的帐篷里睡了一觉，还读了桌子上的《新中国联邦宣言》 ，他将带一本回芬兰。 他还详细询问了新中国联邦灭共的使命以及法治基金赞助这次乌克兰人道救援的活动。（下）
@@ -161,15 +168,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 ❤️Report from #NFSC's #UkraineRescue #Nicole interviewed with Matt，an American volunteer who speaks Chinese<br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole采访 一位会说中文的美国志愿者Matt<br/><br/>About New Federal State of China #NFSC <br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
 ![img](https://media.gettr.com/group5/origin/2022/04/12/13/4293c5a9-31ac-3f75-90c3-b14e8d95dde9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/12/2022 11:32 AM (UTC)`
-
-❤️Report from #NFSC's #UkraineRescue #Nicole : <br/>The man with funny toy is one Ukrainian Volunteer from California US, his daughter baked cookies by her own to support Ukraine. Finally he expressed his gratitude to all doners of Rule of Law Foundation in Ukrainian. <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>手持搞笑玩偶的男人是一位来自美国加州-的乌克兰裔志愿者，他女儿亲自做了曲奇饼干表达对乌克兰的支持。最后他用乌克兰语表达了对 #法治基金 捐赠者的感恩！<br/><br/>#ukraine #ukrainecrisis #乌克兰战争 #乌克兰危机 🇺🇦
-![img](https://media.gettr.com/group19/origin/2022/04/12/11/76a4d578-ee55-f935-d55f-5b949babe732/out.jpg)
 
 ---
 

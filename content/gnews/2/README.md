@@ -2,28 +2,28 @@
 ---
 
 
-## 中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2340512/)
+## 研究表明：多数加拿大人担心疫情永不会结束
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340622/)
 
-来源：N12News 
-发布时间：20220412
-编译：GM
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-13-21.08.11.png)
-中国驻以色列大使馆作为逾越节礼物赠送给一些部长的保温杯，在例行安全检查中发现其中有可疑物品，杯子里这个像镜子的部件让人怀疑它可能是窃听设备。
+##### Author: Canada Vancouver Sailing Farm – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-28.png)
+据【真北方】4月11日报道，卫生部研究表明，即使在全国范围内取消疫苗护照和口罩要求，但多数加拿大人仍认为疫情永不会结束。
 
-对中国驻以色列大使馆移交给一些政府部门的礼物进行的例行安全检查引发了人们对这一事件的怀疑，该事件很容易成为一系列紧张局势和间谍活动的一部分。
+这是卫生部为考量公众“与中共病毒有关的看法、知识和行为”而开展的一项对加拿大人观点跟踪调查的研究。研究表明，许多加拿大人无法克服与病毒和公共卫生限制相关的恐惧。加拿大甚至比伊朗、俄罗斯和中国等国所受限制更大。不仅是政府严格的公共卫生措施，加拿大传统媒体扩大对中共病毒恐惧的宣传也是影响公众心理的重要因素。对此艾伯塔省省长杰森肯尼认为，是时候让媒体停止宣传对中共病毒的恐惧了。
 
-事发后，政府机关立即收回其他保温杯作进一步检查。任何来自外国使团的礼物都需要经过安全许可。由于“害怕有监听设备或摄像头”一些部门被告知要重点关注来自中国的礼物。
+Editing/Posting 上传/发稿 – 大废墙
+Author/Translator/Dictation 撰稿/翻译/听写 – 晨熹
+Material 素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-在中国大使馆否认之后，GSS宣布：“检查该组件的技术专家确认它是一个杯子的组件，旨在保持杯壁的真空并保持温度，这份礼物是为了表达中以之间的友谊，我们要求发布它的媒体撤出报道。”
+More Canada Vancouver Sailing Farm channels：
 
-参考链接：[https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&s=08](https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&amp;s=08)
+- [Gettr: Canada Vancouver Sailing Farm](https://gettr.com/user/torontofarmcn)
+- [Gettr: Toronto Blue Maple Law Channel (Chinese)](https://gettr.com/user/lanfengfalv)
+- [Gettr: G on-time news Channel (Chinese)](https://gettr.com/user/torontofarmnews)
 
-[https://mobile.mako.co.il/news-military/2022\_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&pId=173113802&Partner=interlink&s=08](https://mobile.mako.co.il/news-military/2022_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&amp;pId=173113802&amp;Partner=interlink&amp;s=08)
-
-审核校对：Barry Jack
-上传排版：F
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_EN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
