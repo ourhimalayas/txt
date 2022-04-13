@@ -2,22 +2,18 @@
 ---
 
 
-## 加拿大税务局计划在数字货币交易中牟利
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2337130/)
+## 2022年4月13日《樱花快报》：全球感染中共病毒人数时隔2个月再增1亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2337197/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据加拿大[CTV新闻]4月11日报道，目前数字货币交易正席卷全球，包括比特币和以太坊及其他数字货币市场都在迅速增长，而加拿大税务局则正在对该市场的迅猛发展制定相应税收政策。
-
-报道称，加拿大税务局不仅密切关注着该国的数字货币交易，甚至已计划在其税收中获得该市场的最大份额，并惩罚那些违规的未申报者。因为在加拿大，通过交易数字货币获利将被视为纳税人的业务收益。
-
-而对于因交易数字货币获利而少报或未报该收入的纳税人，加拿大税务局除了要求其偿还税款之外，还将处以至少100加元或少报税款50%的罚款，并以较高者为准。
-
-据悉，[加拿大税务局]在2021年赢得了一场从加密货币交易平台 [Coinsquare ]获取客户数据的官司，包括所有活跃和非活跃交易者的账户名称和详细信息。此外，该局现在还以监管者身份协调某些数字货币交易所，以跟踪数字资产的流通。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220413快报.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

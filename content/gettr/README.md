@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 2:33 AM (UTC)`
+
+【Ukraine Rescue】04/11/22 Fellow fighter Nicole interviews a volunteer who was born in Estonia before the collapse of the Soviet Union at the Medyka camp. He knows the brainwashing and suppressing of the people by totalitarian dictatorships, so he understands very well why the Chinese must take down the rule of the Chinese Communist Party. He believes that the New Federal State of China brings hope not only to the Chinese people, but also to other people in the world who are against the CCP.<br/><br/>【乌克兰救援】04/11/22 妮可战友在梅迪卡营地采访了一名苏联解体前出生于爱沙尼亚的志愿者，他知道专制独裁对人民的洗脑和毒害，所以他非常理解中国人为什么必须摆脱共产党的统治。他认为新中国联邦不仅给中国人民带来希望，也给世界其他反对中共的人们带来希望。<br/>
+![img](https://media.gettr.com/group17/getter/2022/04/13/02/69f30517-91e2-eff5-beae-80d598b89db9/out.jpg)
+
+---
+
 `@miles 4/13/2022 2:00 AM (UTC)`
 
 2022.04.12  新中国联邦 | 喜财经  今天是新中国联邦历史性的一天，比利时总理外交默认的一小步，世界外交默认的一大步
@@ -147,13 +154,6 @@ At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de 
 
 2022-4-12《避风港》(35)  疫苗，儿童心脏的杀手
 ![img](https://media.gettr.com/group43/origin/2022/04/12/19/8ca1cce9-adad-c29b-b325-b29c042d10c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 5:43 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group32/origin/2022/04/12/17/70ad174b-414c-f3bb-d73b-8d1828a42e8b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

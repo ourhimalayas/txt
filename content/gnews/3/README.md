@@ -2,16 +2,13 @@
 ---
 
 
-## 美国&#8211;Fauci来了，警告说要重新实行口罩规定。同时，NHS要求恢复Covid限制，包括口罩。 如果我们拒绝遵守，那就完了。这取决于我们。正如它一直以来所做的那样。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2337316/)
+## 标准普尔表示俄罗斯的外债出现了违约
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2337368/)
 
-作者：东京樱花团小视频组
+04/11/2022 信用评级机构标准普尔表示，俄罗斯的外债违约，因为它向债券持有人支付的是卢布而不是美元。欧盟正在考虑对俄罗斯实施第六轮制裁。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
