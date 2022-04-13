@@ -17,6 +17,69 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/12/2022 4:53 PM (UTC)`
+
+❤️Report from #NFSC's #UkraineRescue #Nicole <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>波兰时间4月12日早上10点在梅迪卡营地，比利时总理Alexander De Croo 接受 #新中国联邦 记者Nicole采访<br/>nicole在阐述自己是来自 #新中国联邦，我们所做的人道救援和提供的帐篷等工作，也介绍了郭先生和我们的目标愿景......<br/>比利时首相微笑着回答，人们需要互相帮助，非常高兴你们 #新中国联邦 在这里帮助这些人。nicole说，我们有很好的咖啡,请来我们帐篷，欢迎品尝，<br/><br/>首相说，是的，我们就是在去的路上💖😀<br/><br/>今天是个好日子！👏👏👏
+![img](https://media.gettr.com/group12/origin/2022/04/12/16/1c829f7b-2299-c24e-319c-8c93f274f36f/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/12/2022 11:42 PM (UTC)`
+
+Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣️感悟异国人对新中国联邦灭共的理解❣️<br/> ❤️心喜：波兰年轻人对中共邪恶特别门清，对必须灭共特别认同，对新中国联邦特别兴趣。<br/>😰心酸：对比一位异国人士对中共之了解 ，那些被中共套上枷锁圈养在监狱里的五毛爱国贼们，居然还在享受施虐者的淫威不能自拔。<br/>✊心悟：灭共同道之人越聚越多，灭共已大势所趋，灭共是正义的需要，灭共是人心所向，灭共是天意！<br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
+![img](https://media.gettr.com/group3/origin/2022/04/12/23/bce7b836-3834-93af-1952-4b15a95a8419/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/11/2022 3:20 PM (UTC)`
+
+🆘🇺🇦🆘来自乌克兰救援前线Nicole报道：<br/>   ❣️Nicole采访来自苏格兰的义工（建房哥)❣️<br/>来自苏格兰的义工是一个专业的建房哥（builder) 称赞:👍法治基金新中国联邦的大帐篷建得非常好<br/>👍NFSC咖啡也是最好喝的！ <br/>👍新中国联邦的灭共运动非常棒（wonderful)。<br/>他一开始觉得灭共是政治运动，后来他明白了，帮助14亿中国人摆脱邪恶的共产党的奴役是一个伟大的人道救援行动，他祝福新中国联邦完成这个历史使命。<br/>------<br/>前线的咱们战友们争分夺秒传播新中国联邦和灭共大业令人敬佩！行动，行动，再行动！✊✊✊<br/> #新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
+![img](https://media.gettr.com/group36/origin/2022/04/11/15/8d00efa5-a036-e609-baf4-ce194dbbd357/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/12/2022 1:43 AM (UTC)`
+
+🆘🇺🇦🆘Nicole is interviewing international medical aid volunteers from Bavaria, Germany：<br/> 💙 The volunteers heard about the good NFSC coffee from the Israeli volunteers and came to our big tent. They admire us so much! <br/>💙 When they saw the sticker "NFSC destroy the CCP", they took pictures and believe in "Destroy the Communist Party so that the Chinese people can have a good future! " <br/>💙 They think the CCP has done a lot of bad things, just like the North Korean dictator, Gaddafi, and so on.<br/>💙 When introduced to the big tent,  they commented, as someone with international relief experience, this big tent requires a high level of expertise and quality facilities!<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees
+![img](https://media.gettr.com/group31/origin/2022/04/12/01/ca60e158-f58c-1902-cb0c-b67731a17939/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/12/2022 1:43 PM (UTC)`
+
+❤️Report from #NFSC's #UkraineRescue #Nicole interviewed with Matt，an American volunteer who speaks Chinese<br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole采访 一位会说中文的美国志愿者Matt<br/><br/>About New Federal State of China #NFSC <br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
+![img](https://media.gettr.com/group5/origin/2022/04/12/13/4293c5a9-31ac-3f75-90c3-b14e8d95dde9/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/12/2022 11:32 AM (UTC)`
+
+❤️Report from #NFSC's #UkraineRescue #Nicole : <br/>The man with funny toy is one Ukrainian Volunteer from California US, his daughter baked cookies by her own to support Ukraine. Finally he expressed his gratitude to all doners of Rule of Law Foundation in Ukrainian. <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>手持搞笑玩偶的男人是一位来自美国加州-的乌克兰裔志愿者，他女儿亲自做了曲奇饼干表达对乌克兰的支持。最后他用乌克兰语表达了对 #法治基金 捐赠者的感恩！<br/><br/>#ukraine #ukrainecrisis #乌克兰战争 #乌克兰危机 🇺🇦
+![img](https://media.gettr.com/group19/origin/2022/04/12/11/76a4d578-ee55-f935-d55f-5b949babe732/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/12/2022 12:15 AM (UTC)`
+
+中国共产党，给世界带来了病毒、战争、灾难和杀戮，改变了我们的生活，让我们失去了太多幸福，家人，美好的生活，都因为这个恶魔！......<br/>只有消灭共产党，让世界的春天回来，让人们重新绽放开心的微笑！
+![img](https://media.gettr.com/group4/origin/2022/04/12/00/696beda7-78ff-7907-5ec8-8a817bc71b99/out.jpg)
+
+---
+
 `@miles 4/13/2022 2:33 AM (UTC)`
 
 【Ukraine Rescue】04/11/22 Fellow fighter Nicole interviews a volunteer who was born in Estonia before the collapse of the Soviet Union at the Medyka camp. He knows the brainwashing and suppressing of the people by totalitarian dictatorships, so he understands very well why the Chinese must take down the rule of the Chinese Communist Party. He believes that the New Federal State of China brings hope not only to the Chinese people, but also to other people in the world who are against the CCP.<br/><br/>【乌克兰救援】04/11/22 妮可战友在梅迪卡营地采访了一名苏联解体前出生于爱沙尼亚的志愿者，他知道专制独裁对人民的洗脑和毒害，所以他非常理解中国人为什么必须摆脱共产党的统治。他认为新中国联邦不仅给中国人民带来希望，也给世界其他反对中共的人们带来希望。<br/>
@@ -105,55 +168,6 @@
 
 4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexandra De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
 ![img](https://media.gettr.com/group32/getter/2022/04/12/22/7e57029f-b862-34b0-b459-fdbba4813d5f/out.jpg)
-
----
-
-`@miles 4/12/2022 10:28 PM (UTC)`
-
-【Ukraine Rescue】04/12/22 On the historic moment when the Belgian Prime Minister was the first head of state to be interviewed by the NFSC, Nicole says: "This is just the beginning and many countries will follow suit; it will send a very strong and encouraging message to the 1.4 billion Chinese people who are still inside the belly of the Communist Party beast.<br/><br/>【乌克兰救援】04/12/22 对于比利时首相作为首位国家元首接受了新中国联邦采访这一深具历史意义的时刻，妮可表示：这仅仅是个开始，很多国家都会效仿；这将给仍身处水深火热之中的14亿中国人民传达出一个非常强烈且鼓舞人心的信息。
-![img](https://media.gettr.com/group27/getter/2022/04/12/22/dd858029-f679-bd37-0705-7497da8de35d/out.jpg)
-
----
-
-`@miles 4/12/2022 10:02 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-12<br/>For English：gettr.com/streaming/p14zrmza878
-![img](https://media.gettr.com/group33/origin/2022/04/12/22/c62bc561-fe89-759d-2ae4-a3982bcf3b3f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/12/2022 9:59 PM (UTC)`
-
-【Ukraine Rescue】04/12/22 Introducing the interview with the Belgian Prime Minister, Nicole says: Mr. Prime Minister seemed to know who we are and why we are here. He was very receptive to the message of exterminating the Communist Party clearly conveyed on our hat and vest, and was not surprised at all, as if he was very familiar with us, which means that the NFSC has long gained the attention and acquiescence of the international community.<br/><br/>【乌克兰救援】04/12/22 妮可介绍采访比利时首相的经过：首相先生好像知道我们是谁，以及我们为什么在这里，他对我们的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，感觉好像对我们非常熟悉一样。说明新中国联邦早就获得了国际社会的关注与默认。
-![img](https://media.gettr.com/group47/getter/2022/04/12/21/2956a347-9f24-8236-1e8f-573c7890cef8/out.jpg)
-
----
-
-`@miles 4/12/2022 9:29 PM (UTC)`
-
-Little Sarah introduces the mission of the New Federal State of China and the Rule of Law Foundation is to take down the Chinese Communist Party (CCP). She says the CCP is the root cause of all the disasters, including this war in Ukraine, because Xi Jinping is collaborating with Putin, economically and militarily. She also says the new Chinese are standing up, standing out, sending their voice to the world, waking up sleeping people, and fighting back the CCP.<br/><br/>正义小Sarah向路人介绍新中国联邦和法治基金的使命是推翻中国共产党。她说中共是所有灾难的根源，包括这场乌克兰战争，因为习近平正在与普京在经济上和军事上合作。新中国人正在站起来，站出来，向世界发声，唤醒沉睡的人们，并向中共反击。
-![img](https://media.gettr.com/group13/origin/2022/04/12/21/d955e117-d660-4c8d-4fbd-c490d21f4f71/out.jpg)
-
----
-
-`@miles 4/12/2022 8:44 PM (UTC)`
-
-2022.04.12  新中国联邦 | 喜健康     瘟疫已到，饥荒还远吗？
-![img](https://media.gettr.com/group44/origin/2022/04/12/20/4f84b041-d89c-b312-97e7-2777ca879efc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 8:08 PM (UTC)`
-
-At about 10 am on April 12, the current Prime Minister of Belgium, Alexandre de Croix, accompanied by his entourage, came to the Medica port to inspect the refugee rescue work. . The Belgian Prime Minister took a group photo with Nicole, a comrade-in-arms of the New Commonwealth of China.<br/>At the moment, NFSC comrade Nicole is wearing her overalls with the words Take down the ccp!4月12日上午10时许，比利时现任总理亚历山大·德克罗在随行人员的陪同下，来到梅迪卡口岸，视察难民营救工作。。比利时首相与新中国联邦的战友妮可合影留念。<br/>此刻，NFSC战友Nicole正穿着她的工作服，上面写着Take down the ccp！<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
-![img](https://media.gettr.com/group37/origin/2022/04/12/20/223013b2-0d18-1a8d-def7-619161c7d045/out.jpg)
-
----
-
-`@miles 4/12/2022 7:00 PM (UTC)`
-
-2022-4-12《避风港》(35)  疫苗，儿童心脏的杀手
-![img](https://media.gettr.com/group43/origin/2022/04/12/19/8ca1cce9-adad-c29b-b325-b29c042d10c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
