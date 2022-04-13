@@ -2,27 +2,22 @@
 ---
 
 
-## 多数加拿大人认为疫情将永不会结束
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2341395/)
+## 法制基金救援德国Malteser Hilfsdienst e.V 难民实纪 &#8211; 2022年4月13日
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341457/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-23.jpg)
+发布：信心的选择
 
-编译撰稿：加拿大温哥华扬帆农场 – 晨熹
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16498676601.png)图片来源：True North
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
 
-据【真北方】4月11日报道，加拿大卫生部数据显示，即使在全国范围内取消疫苗护照和配戴口罩规定，多数加拿大人仍认为疫情将永不会结束。
-
-报道称，卫生部的这项名为“对新冠病毒的看法、知识和行为”的调查报告表明：多数加拿大人至今都无法克服由病毒危害和公共卫生限制所造成的恐惧。并表示该国甚至比伊朗、俄罗斯和中共等国所受限制更大。
-
-此外，加拿大传统媒体持续扩大对疫情灾难的宣传也是影响公众心理的重要因素。对此，艾伯塔省长肯尼认为：应让媒体停止过分宣传对疫情的恐惧。
-
-校对编辑：硫酸羟氯喹64
-
-发稿: 文莱
-
-新闻来源：[https://tnc.news/2022/04/11/government-research-shows-majority-of-canadians-worry-pandemic-will-never-end/](https://tnc.news/2022/04/11/government-research-shows-majority-of-canadians-worry-pandemic-will-never-end/)
 
  
 

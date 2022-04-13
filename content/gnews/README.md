@@ -15,157 +15,157 @@
 
 ---
 
-### [美国针对俄罗斯和中共国的侵犯人权行为进行调查](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄乌战局最近消息汇总](/content/gnews/3/README.md)
- ` NFSC News`
-
-### [俄罗斯将导弹移至芬兰边境，在东西同時进行威慑（下）](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/5/README.md)
- ` NFSC News`
-
-### [多数加拿大人认为疫情将永不会结束](/content/gnews/6/README.md)
+### [特鲁多移民政策加剧了加拿大住房危机](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/8/README.md)
+### [日元兑美元跌至20年来的最低点](/content/gnews/3/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022年4月13日大直播速记精萃](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
+### [中共无视国际社会一再警告 不断向俄爹输血](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
 
-### [俄罗斯将导弹移至芬兰边境，在东西同時进行威慑（上）](/content/gnews/10/README.md)
+### [截至4.13 俄乌战事汇总](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法制基金救援德国Malteser Hilfsdienst e.V 难民实纪 &#8211; 2022年4月13日](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争对中共汽车产业的影响](/content/gnews/11/README.md)
+### [美国针对俄罗斯和中共国的侵犯人权行为进行调查](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄乌战局最近消息汇总](/content/gnews/9/README.md)
  ` NFSC News`
 
-### [COVID-19疫苗副作用集萃（2022.4.13）&#8211;日本辉瑞第三针](/content/gnews/12/README.md)
+### [俄罗斯将导弹移至芬兰边境，在东西同時进行威慑（下）](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/11/README.md)
+ ` NFSC News`
+
+### [多数加拿大人认为疫情将永不会结束](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京发誓要继续入侵乌克兰，直到俄罗斯的目标得到实现（二）](/content/gnews/13/README.md)
+### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/14/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [俄罗斯将导弹移至芬兰边境，在东西同時进行威慑（上）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [布鲁克林地铁枪击案至少29人受伤 发现未引爆装置](/content/gnews/14/README.md)
+### [俄乌战争对中共汽车产业的影响](/content/gnews/16/README.md)
+ ` NFSC News`
+
+### [COVID-19疫苗副作用集萃（2022.4.13）&#8211;日本辉瑞第三针](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [布鲁克林地铁枪击案至少29人受伤 发现未引爆装置](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [辉瑞一年前已雇用600名全职员工处理激增的疫苗不良反应报告](/content/gnews/15/README.md)
+### [辉瑞一年前已雇用600名全职员工处理激增的疫苗不良反应报告](/content/gnews/19/README.md)
  ` Little c`
 
-### [郭先生谈人生、性情与人类的未来](/content/gnews/16/README.md)
+### [郭先生谈人生、性情与人类的未来](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [乌克兰拘留亲俄党领导人梅德韦楚克&#8230;与普京关系密切](/content/gnews/17/README.md)
+### [乌克兰拘留亲俄党领导人梅德韦楚克&#8230;与普京关系密切](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/18/README.md)
+### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/22/README.md)
  ` KarmaLabs`
 
-### [美命令非紧急雇员撤离上海](/content/gnews/19/README.md)
+### [美命令非紧急雇员撤离上海](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [《柳叶刀》信件签署人之一本人就相信新冠病毒起源于武汉实验室](/content/gnews/20/README.md)
+### [《柳叶刀》信件签署人之一本人就相信新冠病毒起源于武汉实验室](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰冶金专家：被摧毁的敌方装备回收价值近五千万美元](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [美欧对中共国的一系列脱钩与制裁即将展开](/content/gnews/22/README.md)
+### [美欧对中共国的一系列脱钩与制裁即将展开](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [拜登总统谴责&#8221;种族灭绝&#8221; &#8220;我看就是如此&#8221;](/content/gnews/23/README.md)
+### [拜登总统谴责&#8221;种族灭绝&#8221; &#8220;我看就是如此&#8221;](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频文编|习近平玩的一箭四雕够狠，粮食成了统治最有力的武器！](/content/gnews/24/README.md)
+### [视频文编|习近平玩的一箭四雕够狠，粮食成了统治最有力的武器！](/content/gnews/27/README.md)
  ` KarmaLabs`
 
-### [中共白送塞尔维亚红旗导弹系统 一条在美国西部边境海域的船只 载有导弹](/content/gnews/25/README.md)
+### [中共白送塞尔维亚红旗导弹系统 一条在美国西部边境海域的船只 载有导弹](/content/gnews/28/README.md)
  ` 焦點20分`
 
-### [乌克兰：令人痛心的儿童死亡人数暴露了战争的真正恐怖](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [对内消灭不定因素 对外展开全球布局 习近平意图打垮美元 实现强国梦](/content/gnews/27/README.md)
+### [对内消灭不定因素 对外展开全球布局 习近平意图打垮美元 实现强国梦](/content/gnews/29/README.md)
  ` 焦點20分`
 
-### [德国天主教著名救援组织Malteser请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助](/content/gnews/28/README.md)
+### [德国天主教著名救援组织Malteser请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰预计今年5月中下旬可能入欧 英国将全面支持乌克兰迎战](/content/gnews/29/README.md)
+### [乌克兰预计今年5月中下旬可能入欧 英国将全面支持乌克兰迎战](/content/gnews/31/README.md)
  ` 焦點20分`
 
-### [新中国联邦志愿者妮可向两位来自欧盟派往乌克兰的工作代表团成员介绍了新中国联邦的救援工作及设施](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [驭民五术之做核酸](/content/gnews/31/README.md)
+### [驭民五术之做核酸](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/13/2022 国际财经快讯：中共国扩大的中共病毒抑制措施威胁到全球供应链的瘫痪；油价走高，市场关注供应下降](/content/gnews/32/README.md)
+### [4/13/2022 国际财经快讯：中共国扩大的中共病毒抑制措施威胁到全球供应链的瘫痪；油价走高，市场关注供应下降](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|俄罗斯寡头的超级游艇驶向斐济](/content/gnews/33/README.md)
+### [有声|俄罗斯寡头的超级游艇驶向斐济](/content/gnews/34/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共要求上海为死亡一万人做准备](/content/gnews/34/README.md)
+### [中共要求上海为死亡一万人做准备](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [视频文编|中共最大的原罪就是把AI技术用在了反人类罪上](/content/gnews/35/README.md)
+### [视频文编|中共最大的原罪就是把AI技术用在了反人类罪上](/content/gnews/36/README.md)
  ` KarmaLabs`
 
-### [俄罗斯洗劫切尔诺贝利核电站从实验室带走放射性材料](/content/gnews/36/README.md)
+### [俄罗斯洗劫切尔诺贝利核电站从实验室带走放射性材料](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？](/content/gnews/37/README.md)
+### [樱花时政┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共工商银行通知，暂停个人外汇业务](/content/gnews/38/README.md)
+### [中日财经爆┃中共工商银行通知，暂停个人外汇业务](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：上海东方卫视举办抗疫主题晚会引公愤](/content/gnews/39/README.md)
+### [秘翻在线：上海东方卫视举办抗疫主题晚会引公愤](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：高价运费也吸引不了卡车司机开往上海](/content/gnews/40/README.md)
+### [秘翻在线：高价运费也吸引不了卡车司机开往上海](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多家银行下调个人账户线上交易限额](/content/gnews/41/README.md)
+### [多家银行下调个人账户线上交易限额](/content/gnews/42/README.md)
  ` 纽约香草山MOS02`
 
-### [有声｜货车司机不跑上海宁波 塞港问题严重](/content/gnews/42/README.md)
+### [有声｜货车司机不跑上海宁波 塞港问题严重](/content/gnews/43/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾｜瑞典及欧洲议会议员访台之际 外长吴钊燮专访谈台欧关系、中共对台威胁](/content/gnews/43/README.md)
+### [台湾｜瑞典及欧洲议会议员访台之际 外长吴钊燮专访谈台欧关系、中共对台威胁](/content/gnews/44/README.md)
  ` 關注組`
 
-### [国际｜安倍晋三：借镜乌克兰 美国应表明防卫台湾决心](/content/gnews/44/README.md)
+### [国际｜安倍晋三：借镜乌克兰 美国应表明防卫台湾决心](/content/gnews/45/README.md)
  ` 關注組`
 
-### [俄乌战争｜波兰等多国元首相继出访基辅 惟德国总统被拒诸门外](/content/gnews/45/README.md)
+### [俄乌战争｜波兰等多国元首相继出访基辅 惟德国总统被拒诸门外](/content/gnews/46/README.md)
  ` 關注組`
 
-### [俄乌战争｜拜登总统公开表示 俄乌战争是种族灭绝](/content/gnews/46/README.md)
+### [俄乌战争｜拜登总统公开表示 俄乌战争是种族灭绝](/content/gnews/47/README.md)
  ` 關注組`
 
-### [五角大楼：中俄正开发可打击美国卫星的武器](/content/gnews/47/README.md)
+### [五角大楼：中俄正开发可打击美国卫星的武器](/content/gnews/48/README.md)
  ` 日本東京方舟農場`
 
-### [上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停](/content/gnews/48/README.md)
+### [上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停](/content/gnews/49/README.md)
  ` 關注組`
 
-### [前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾](/content/gnews/49/README.md)
+### [前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾](/content/gnews/50/README.md)
  ` NFSC News`
 
-### [爱立信无限期暂停俄罗斯业务](/content/gnews/50/README.md)
- ` NFSC News`
-
-### [国际货币基金组织為乌克兰設立捐助专用账户](/content/gnews/51/README.md)
+### [爱立信无限期暂停俄罗斯业务](/content/gnews/51/README.md)
  ` NFSC News`
 
 ### [视频文编|台湾的存在就是对中共彻头彻尾的否定](/content/gnews/52/README.md)

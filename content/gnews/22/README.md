@@ -2,32 +2,19 @@
 ---
 
 
-## 美欧对中共国的一系列脱钩与制裁即将展开
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341140/)
+## 视频文编|疫苗灾难蔓延 储粮备药应对
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2341230/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-32.png)
-据文贵先生4月12日盖特直播报道，美国和欧盟目前正对香港贸易和经济地位进行重新定义，并将把香港金融市场踢出国际金融系统。此外，还将率先对香港政府官员进行大规模严厉制裁，制裁级别将与制裁俄罗斯相似。
+撰稿：东京樱花团/菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-14_012421.png)
+中共国疫情正在蔓延升温，中共官网公布封锁的中高风险区共有321个，各地大举兴建方舱医院，上海累计感染人数已超过10万人，形势复杂严峻，大批军人现身上海，野蛮封城，导致食物严重短缺，急诊、癌症重症病人等无法得到救治，各地多起自杀视频震惊世界，管控手段残忍粗暴，民生灾难频现，处处人祸，断粮成了最大的恐惧，目前的疫情，实为疫苗灾难，将迅速蔓延到全国各地，导致各种形式的封锁，粮食危机随时可能发生，中共极权政权全面控制粮食药品供应，民众应尽早做准备，储粮、储药，同时做好病毒防护。
 
-美国从过去的授权撤离上海总领馆人员到现在的命令撤离，这在中美历史上还是首次，接下来将会有很多国家陆续跟进撤离。未来中共国将成为零外交，外交关系将不如北韩。随后与中共在经济、外交、贸易、文化等领域的脱钩都将陆续到来。
+消息来源：
+[2022年4月8日《文贵大直播》](https://www.gettr.com/streaming/p147s0qfc4d)
 
-美欧与中共在军事上的对抗也即将展开。南海、东海，特别是东欧。整个欧洲将联合对抗中共国和俄罗斯。中共官员在海外藏匿的钱财和私生子女毫无疑问也将在制裁之列。
-
-原文链接：[https://gettr.com/post/p14y3tsd6bc](https://gettr.com/post/p14y3tsd6bc)
-
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 晨熹
-素材/采编 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：东京樱花团/荆轲
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
