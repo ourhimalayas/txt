@@ -2,61 +2,61 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.13)–康希诺疫苗对身体副作用危害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338641/)
+## 澳大利亚部长要求所罗门群岛不要签署中国安全协议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2338677/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：文乐
 
-整理/编辑：禄森
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-23.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-123.png)中国驻所罗门群岛大使馆资料图
 
-**帖子原文**：
+悉尼，4 月 13 日（路透社）——澳大利亚一名部长周三会见了所罗门群岛领导人，要求他不要签署澳大利亚反对的太平洋岛国与中共国之间的拟议安全协议。
 
-**博主: GG李**
+尽管一场全国性的竞选活动使澳大利亚政府处于“看守”模式，当部长们传统上避免与国际政府进行外交接触时，国际发展和太平洋部长泽德·萨撒加（Zed Seselja）在澳大利亚主要反对党工党的支持下访问了霍尼亚拉。
 
-**打完康希诺的第五天**
+“我们已恭敬地要求所罗门群岛考虑不签署该协议，并本着地区开放和透明的精神，与我们地区的安全框架保持一致，与太平洋大家庭协商”，萨撒加在与总理马纳西·索加瓦雷和其他部长会晤后发表声明说。
 
-我终于活过来啦，昨晚睡前退烧了，到今早也正常36多，求求别再反复了！现在针眼那一块还是不能碰，抬手也会疼，再就是之前发烧那么多天，人很虚，容易出汗，看来得补一补。
+中共国和所罗门群岛的官员已经草签但尚未签署一项安全协议，澳大利亚、新西兰、美国和一些太平洋岛屿邻国批评该协议破坏了地区稳定。
 
-**#****康希诺疫苗 #序贯免疫**
+萨撒加补充说，澳大利亚是所罗门群岛最大的发展伙伴，今年将拨出 1.6 亿澳元（1.19 亿美元）的支持。
 
-**作者发布于2022-3-30**
+他说：“我们欢迎索加瓦雷总理最近发表的声明，即澳大利亚仍然是所罗门群岛的首选安全伙伴，以及他承诺所罗门群岛永远不会被用作外国势力的军事基地或其他军事机构。”
 
-**精选评论**
+周二，一份泄露的备忘录在社交媒体上浮出水面，显示中共国政府去年 12 月告诉所罗门群岛，它希望派遣一支由 10 名中共国警察组成的安全小组，配备包括狙击步枪、机枪和电子窃听设备在内的武器，以保护驻所罗门群岛的大使馆工作人员。11 月霍尼亚拉骚乱之后。
 
-Z1985评论:
+所罗门群岛政府周三在一份声明中表示，除了一批中共国警察训练人员使用的仿制武器外，没有中国枪支进入该国。
 
-我昨天打的这个，晚上开始发烧，持续一天一夜了，一直都是37.8 9不超过38，但是真难受，浑身酸痛，忍不住吃了布洛芬
+索加瓦雷办公室的声明说，中共国大使馆 12 月的请求被“搁置”，因为政府在 11 月的骚乱导致建筑物被烧毁后继续监视安全局势。
 
-小U菜的健康生活评论:
+“这是所罗门群岛历史上的黑暗篇章，当地警察部队在骚乱期间不堪重负，作为一个国家，我们无法保证常驻外交人员的安全，特别是中华人民共和国外交官的安全。”
 
-我打了2针康希诺，第一张时手臂疼了几天，第二针有经验了，因为国外打辉瑞和莫纳德反应严重，但是国外医生建议大量补充VC，所以我康希诺第二针前也大量VC，所以这次一点感觉都没有。所以你也可以服用VC
+骚乱发生后，澳大利亚警察被派往所罗门群岛，萨撒加表示，他们在所罗门群岛皇家警察部队的指导下成功恢复了平静。
 
-呀呀呀评论:
+上个月另一份泄露的与中共国的安全协议草案显示，它将允许中共国警察和军官保护公司和基础设施，并允许海军舰艇在霍尼亚拉进行补给。
 
-我烧了整整两天了，康希诺
+堪培拉担心这份未公开的安全协议可能是中共国向距离澳大利亚不到 2,000 公里（1,200 英里）的军事存在迈出的一步。
 
-啵啵小霸评论:
+（1 美元 = 1.3446 澳元）
 
-康希诺真的是猛男针，我当天打当天烧到38°，浑身疼
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1513.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1514.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1515.png)图片来源：小红书
-参考链接：
+新闻来源：[Australia minister asks Solomon Islands not to sign China security pact](https://www.reuters.com/world/asia-pacific/australia-minister-arrives-solomon-islands-discuss-china-security-pact-2022-04-12/)
 
-[高烧，手臂痛，出虚汗](https://www.xiaohongshu.com/discovery/item/6243ae5a000000000102fedc?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729264)
+* * *
 
-*发布：tianzhihuan*
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-17.jpeg)
 
  
 
