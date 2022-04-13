@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 5:32 PM (UTC)`
+
+04.13.2022  俄乌战争战况播报
+![img](https://media.gettr.com/group28/origin/2022/04/13/17/53565401-9015-9429-8e6b-d19d49bca29d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/13/2022 4:35 PM (UTC)`
 
 4/10/2022 Miles Guo: The time has come for the Chinese Communist Party to begin to “purify” the Chinese. Chinese fellows should be prepared for the worst. The CCP will never hesitate to sacrifice Chinese lives and has prepared in advance for sanctions from Europe and the U.S. The bloody war in Ukraine will escalate into an all-out war between Russia, China and Europe.<br/><br/>4/10/2022 文贵直播: 共产党开始净化中国人的时代已降临！中国同胞要做好最坏的打算。中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争。<br/>
@@ -147,13 +154,6 @@
 
 2022.04.10  新中国联邦 | 喜财经   传统银行与数字银行对比
 ![img](https://media.gettr.com/group35/origin/2022/04/13/06/b142b076-9044-c02d-6f74-949d77bac220/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/13/2022 5:50 AM (UTC)`
-
-4/10/2022 Miles Guo: I place 50% probability of CCP’s downfall on Xi' s health, the other 50% depends on the efforts of us, citizens of the New Federal State of China. The CCP's kleptocrats are a group of timid self-seekers, only when Xi's health broke down, would they dare to seize power.<br/><br/>4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权<br/>
-![img](https://media.gettr.com/group14/getter/2022/04/13/05/32e15ac6-a833-db0d-5bfb-7e3ebb3a4fae/out.jpg)
 
 ---
 
