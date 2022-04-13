@@ -2,33 +2,42 @@
 ---
 
 
-## 越来越多加拿大机构投资者持有数字资产
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2337636/)
+## 澳洲部长紧急赶赴所罗门群岛讨论中共的安全协议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2337906/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【加拿大福利杂志】4月11日报道，由毕马威和加拿大替代策略资产协会联合进行的一项调查显示，大约 57% 的加拿大机构投资者在 2020 年至 2021 年期间持有了数字货币类资产。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1475.png)
-其中大多数机构持有的数字资产规模较小，有 71% 的机构投资者所持有的数字资产不到其总投资组合的 2% 。
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-毕马威加拿大资产管理合伙人兼国家金融服务咨询负责人克里斯·法卡斯表示：“鉴于政府债券作为投资组合减震器抗波动的能力降低，机构投资者越来越多地增加持有数字资产，以进一步多样化投资组合。虽然这对于机构投资者来说是一个更新且具有潜在前景的领域，但他们显然采取了谨慎的态度。”
+翻译/编辑：小红帽
 
-原文鏈接：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Australian_minister_.jpg)图片来源：www.ft.com
 
-[https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/](https://www.benefitscanada.com/canadian-investment-review/strategies/canadian-institutional-investors-increasing-exposure-to-crypto-assets-survey/)
 
-上传/发稿 – 【青青】
-撰稿/翻译/-【活力人生】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+根据澳洲媒体4月12日报道，澳大利亚太平洋事务部长于当日紧急赶往所罗门群岛，讨论该国可能与中共达成的安全协议。
 
-更多加拿大溫哥華揚帆農場的頻道，請關註：
+国际发展和太平洋部长泽德·塞塞利亚的这次访问是在所罗门群岛政府提出允许中共国海军舰艇驻扎在那里的协议几周后进行的。
 
-- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)[場](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+“我的讨论将包括拟议中的所罗门群岛-中共国安全协议。此次访问是在最近所罗门群岛政府和澳大利亚官员之间的对话和访问之后进行的，”塞塞利亚先生在一份声明中说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH-5.png)
+“直接接触一直在进行，包括外长佩恩和所罗门群岛外长马内莱之间的讨论，以及我本人在布里斯班与太平洋家庭伙伴在帕劳举行的海洋会议之前的周末讨论。
+
+塞塞利亚在声明中强调了所罗门群岛在满足太平洋“安全需求”方面的作用，包括澳大利亚的地缘政治安全。
+
+与此同时，澳大利亚的最高政治领导人就中共在所罗门群岛建立海军基地的可能性展开了正面交锋。
+
+澳大利亚总理莫里森淡化了对国际权力游戏的担忧，而反对党领袖安东尼·艾博年则质疑为什么澳大利亚没有采取更多措施来阻止这笔交易。
+
+国防部长彼得·达顿此前曾表示，在两国签署安全协议的消息传出后，所罗门群岛总理马纳西·索加瓦雷已经明确表示，中共不会被允许在这个太平洋国家建立军事基地。
+
+资料来源：[Australian minister makes urgent dash to Solomon Islands to discuss China security deal](https://www.9news.com.au/national/china-solomon-islands-pm-scott-morrison-says-beijing-military-base-in-pacific-nation-unlikely/2f3c3938-d8d6-4315-85e1-4de8c54ab886)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

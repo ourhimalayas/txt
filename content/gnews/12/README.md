@@ -2,48 +2,58 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.13）&#8211;新冠疫苗第三针真的要人命啊
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338017/)
+## COVID-19疫苗副作用集萃(2022.4.13)–打完加强针身体有反应
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338155/)
 
 #### 雅典娜情报组《疫苗灾难收集专栏》
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-19.png)
+#### 整理/编辑：禄森
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-24.png)图片来源：雅典娜设计组(614)
+
+
 【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
 [副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-帖子原文：
+**帖子原文**：
 
-新冠疫苗第三针真的要人命啊！
+博主: 玉别饲养员
 
-22号中午去医院打的第三针，当天晚上9点左右，打针的位置开始冰冷，紧接着蔓延开来到全身，暖气开到25度都感觉在冰窖似的，痛苦难熬。今天凌晨五点直接烧到39度，硬撑起来吃了医院配的止痛片，半个小时以后疼痛缓解，稍微睡了两个小时
+打完加强针之后头痛咋办
 
-今天因为公司有重要的工作，揣着止痛片工作到下午两点，靠着止痛片的药效好不容易回到家，完全没有胃口！
+单位安排了加强针上门，上午打完，中午萎靡虚弱，下午打完工回家更加萎靡虚弱，这个点开始头痛了还肠胃不舒服
 
-现在药劲过去了，又开始全身酸痛发冷！可是止痛片一天最多吃三回，我得省着晚上睡觉的时候再吃
+请问有经验的朋友如何处理的呢？过了多久好的呢
 
-这真的是太要人命了
+#新冠疫苗  #疫苗加强针  #偏头痛
 
-#在日本的生活 #新冠疫苗 #辉瑞Pfizer新冠疫苗 #新冠疫苗第三针
+作者发布于2022-4-12
 
-评论选集：
+**精选评论**
 
-[是朕](https://www.xiaohongshu.com/user/profile/5bfcdde48ea35d00010e2c4a) 回复：
+小夏同学评论:
 
-#### 啊，一天只能吃三回吗？我四分钟前吃了第三颗，38.5，烧了13个小时了谁来救救孩子，浑身没有一处不疼的……
+当晚就胸闷气短，呼吸困难，头晕，失眠，看了医生，吃了药才缓解了一些
 
-[余低调](https://www.xiaohongshu.com/user/profile/5b2905e6e8ac2b089d19c609) 回复：
+阿童木评论:
 
-我打完第1，2针几个月后去体检，还是正常的，然后打完第3针，隔月就开始喉咙发炎，在隔月就增加了脖子淋巴结，肿大，在隔月血常规异常，喉咙依然痛，淋巴结肿大增加腹沟跟腋下。第3针很猛的会破坏你的免疫系统，如果你是体质跟免疫力都比较普通的人，真的想打之后那几个月你一定要早睡早起，多吃一点水果蔬菜，增强抵抗力。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1484.png)图片来源：小红书
-参考链接:
+我也我打完疫苗就头疼小困，有可能是被风吹的，我和你状态差不多吧我还是过敏体质
 
-[新冠疫苗第三针真的要人命啊](http://xhslink.com/ACbNGg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-29.png)图片来源：小红书
 
-*发布：tianzhihuan*
 
-**更多资讯，请关注：**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-10.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345-2.png)
+
+
+参考链接：[偏头痛，身体虚弱](https://www.xiaohongshu.com/discovery/item/62545c08000000002103fd56?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649728860)
+
+发布：*wenly*
+
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

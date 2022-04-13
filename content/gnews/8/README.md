@@ -2,35 +2,31 @@
 ---
 
 
-## 瑞典国会、欧洲议会等11人抵台访问
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2338060/)
+## 日本盐野义新冠药物动物实验出现胎儿骨骼异常！不建议孕妇使用！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338232/)
 
-作者：纽约香草山 – 文希
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月12日,盐野义制药厂研发的新冠病毒药物,在动物实验中出现了引起胎儿骨骼形态异常的“催畸形性”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-101.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3-ap-northeast-1.amazonaws.com%2Fpsh-ex-ftnikkei-3937bb4%2Fimages%2F0%2F9%2F8%2F0%2F28340890-1-eng-GB%2F%25E5%25A1%25A9%25E9%2587%258E%25E7%25BE%25A9.jpg&amp;imgrefurl=https%3A%2F%2Fasia.nikkei.com%2FBusin)
+4月12日,盐野义制药厂以实用化为目标的治疗新型冠状病毒的药物,在动物实验中确认了引起胎儿骨骼形态异常的“催畸形性”。盐野义正在朝着不推荐孕妇使用的方向进行研究。虽然这种药没有报告出显著的副作用,其特征是与其他服用药物相比使用限制较少,但要建立安全的用药方法，防止对孕妇用药。
 
+盐野义药厂虽然希望迅速地进行审查得到“有条件的早期批准制度”,但因此可能会受到影响。
 
+盐野义对共同通信的采访表示“数据显示出催畸形性,认为不建议孕妇使用”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+盐野义在2月25日向厚生劳动省申请制造销售。现在正在进行审查。如果得到批准的话,这是国内制药企业首次开发的面向轻症患者的药,备受瞩目。 据相关人员透露,在给怀孕的兔子使用比人类临床试验中浓度更高的药物时,胎儿的骨骼形态发生了异常。
 
+信息来源：[コロナの新飲み薬、動物実験で胎児に異常　塩野義「妊婦への使用は推奨されない」](https://www.tokyo-np.co.jp/article/171259)
 
-
-台媒4月10日报道，瑞典国会议员协会暨欧洲议会议员联合访团于当地时间下午5时23分登机，启程前往台湾桃园机场，开启4月10～14日对台湾的访问。 访问团启程前，曾遭中共驻瑞典大使馆的施压。
-
-大使馆向访问团成员发信重申了中共的所谓“一中”原则，称他们若访问台湾，将严重违反瑞典的对外政策，违背对中共国的政治承诺，强烈要求该团议员不得访问台湾。 但这种施压反而加强了11位团员访台的决心。针对最近中俄两国发展合作关系，访问团团长魏莫斯建议欧盟及其会员国与台湾积极发展友好关系。瑞典外交部则相信联合访问团此行一定可以深化台湾与瑞典，以及台湾与欧盟之间的友好关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-6.jpg)
-参考链接：
-[瑞典国会、欧洲议会11人 抵台访问](https://www.worldjournal.com/wj/story/121475/6229189?from=wj_msg&amp;zh-cn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/审核：飞虹
-总编：天滅中共
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

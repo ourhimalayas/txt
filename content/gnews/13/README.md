@@ -2,31 +2,31 @@
 ---
 
 
-## YouTube在故障中断服务后重新上线
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337998/)
+## 波兰和比利时总理均表示，对俄罗斯的制裁必须更加严厉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338142/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯】紧贴时代脉搏
 
-翻译/编辑：小红帽
+#### 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/YouTube_.jpg)图片来源：The Verge
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Polish_Belgian_PM_-1.jpg)图片来源：Alamy
 
 
-根据CNA4月13日报道，Alphabet公司旗下的YouTube周二（4 月 13 日）表示，已经修复了在线视频共享和社交媒体平台上数千名用户的某些功能中断的问题。
+根据外媒4月11日报道，波兰总理马特乌什·莫拉维茨基和比利时总理亚历山大·德克鲁分别同意，如果要对克里姆林宫产生影响，对俄罗斯的制裁必须更加严厉。
 
-“所有问题都已修复。你现在应该能够登录、在账户之间切换，并在所有服务（YouTube、YouTube TV、YouTube Music、YouTube Studio）和设备上使用账户菜单和导航栏。”YouTube发推文说。
+周一，波兰和比利时总理在华沙会面后，莫拉维茨基表示，对乌克兰局势需要迅速采取行动，制裁问题需要国际安排。
 
-近1万名用户在Downdetector上报告了该服务的问题。该网站通过整理来自多个来源的状态报告来跟踪中断，包括用户在其平台上提交的错误。
+“保持团结很重要。下一轮制裁应该让克里姆林宫相信我们在争取普世价值方面非常坚定，例如生命权、禁止酷刑、自由、正义和团结。”莫拉维茨基补充说，迄今为止对俄罗斯实施的制裁“还不够努力”。
 
-YouTube在中断时发推文表示：“登录、切换帐户和使用导航栏是用户面临的问题之一。”
+德克鲁同意莫拉维茨基的意见，即制裁应该极其严厉。
 
-据故障追踪网站称，用户还报告了访问直播电视平台YouTube TV的问题。
+比利时政府已采取措施阻止俄罗斯获得该国的金融资源。欧盟迄今已采取五项制裁措施，但其承认有必要推出进一步的制裁措施。
 
-目前影响该平台的问题尚未明确。
+“我们应该让俄罗斯更加难以进入金融市场，以阻止俄罗斯的金融机构。”德克鲁宣布比利时准备在这方面采取进一步措施并指出能源转型和摆脱俄罗斯化石燃料的需要。
 
-资料来源：[YouTube back online after outage disrupts services](https://www.channelnewsasia.com/business/youtube-back-online-after-outage-disrupts-services-2622596)
+资料来源：[Polish, Belgian PM say sanctions on Russia must have maximum impact](https://www.thefirstnews.com/article/polish-belgian-pm-say-sanctions-on-russia-must-have-maximum-impact-29610)
 
-发布：tianzhihuan
+发布：*wenly*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

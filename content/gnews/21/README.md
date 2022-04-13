@@ -2,38 +2,41 @@
 ---
 
 
-## 斯洛伐克国防部长：可能向乌克兰出售榴弹炮
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337763/)
+## 伊隆•马斯克被推特前股东起诉其延迟披露在公司的股份
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338024/)
 
-***评论：**就在此报道的前几天，2022年4月8日，斯洛伐克总理赫格（Eduard Heger）表示，为协助乌克兰抵御俄罗斯侵略，现已捐赠S-300防空系统。斯洛伐克是自2月24日俄罗斯对乌克兰采取军事行动以来，已知的第一个向乌克兰提供大型防空系统的国家。当然，前提是，今年3月，北约成员国德国和荷兰向斯洛伐克部署了三套“爱国者”防空系统，而美国也下令将其在欧洲的其中一个爱国者防空系统部署在斯洛伐克。不管如何，斯洛伐克和乌克兰都加强了自身的防空系统，美国、欧盟与邪恶的俄罗斯和中共的大战即将开打。*
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据《路透社》记者Robert Muller，2022年4月10日报道:
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1477-e1649823293619.png)2022年3月17日，斯洛伐克国防部长雅罗斯拉夫·纳德（Jaroslav Nad）与美国国防部长劳埃德·奥斯汀（Lloyd Austin）在斯洛伐克共和国布拉迪斯拉发（Bratislava）举行的新闻发布会上讲话。图片来源：REUTERS/Radovan Stoklasa
-路透布拉格4月10日电—斯洛伐克国防部长雅罗斯拉夫·纳德(Jaroslav Nad)周日表示，斯洛伐克可能向乌克兰出售部分Zuzana自行榴弹炮。
+翻译/编辑：小红帽
 
-纳德在电视辩论中表示:“我可以确认我们正在 (就出售)进行谈判” 。此外，他没有透露更多细节。
-
-Zuzana 2榴弹炮是一种旧型号的现代化改进版本，使用155毫米弹药，根据弹药类型的不同，有效射程从40公里到50公里(30英里)以上。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源：[https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/](https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/)
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-
-校对：洛杉矶盘古农场 – HotPixel
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123295542_hi073181766.jpg)图片来源：BBC
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+根据ABC新闻4月13日报道，埃隆·马斯克被推特的前股东起诉，股东们声称他们错过了推特最近的股价上涨，因为马斯克等了太长时间才披露他在该公司的股份。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+在提交给曼哈顿联邦法院的拟议集体诉讼中，推特的股东们表示，马斯克先生没有按照联邦法律的要求，在3月24日之前披露他在推特的投资，从而做出了“重大的虚假和误导性陈述和遗漏”。
+
+马斯克也是SpaceX和特斯拉的首席执行官，他在3月14日购买了推特的9.2%的股份。此次收购使他成为该公司的最大股东。
+
+在马斯克于4月4日披露其持股后，推特的股价上涨了27%，至49.97美元（67.13美元）。投资者将此视为世界首富的信任投票。
+
+美国证券法规定，投资者在获得一家公司5%的股份时，必须在10天内披露，而马斯克的情况是3月24日。
+
+以马克·拉塞拉为首的前股东表示，延迟披露让马斯克以较低的价格买入更多的推特股票，同时欺骗他们以“人为压低 ”的价格出售。
+
+该诉讼寻求未指明的补偿性和惩罚性赔偿。
+
+马斯克先生的律师没有立即发表评论。
+
+资料来源：[https://www.abc.net.au/news/2022-04-13/elon-musk-sued-former-twitter-shareholders-delayed-disclosure/100987586](https://www.abc.net.au/news/2022-04-13/elon-musk-sued-former-twitter-shareholders-delayed-disclosure/100987586)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,38 +2,37 @@
 ---
 
 
-## 美国五角大楼：中共和俄罗斯正持续部署可打击美卫星的武器
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2337727/)
+## YouTube在故障中断服务后重新上线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337998/)
 
-来自新加坡早报 /
-2022年4月13日 10:09 AM 报导
-采集：玫瑰新闻组
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+翻译/编辑：小红帽
 
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/YouTube_.jpg)图片来源：The Verge
 
 
+根据CNA4月13日报道，Alphabet公司旗下的YouTube周二（4 月 13 日）表示，已经修复了在线视频共享和社交媒体平台上数千名用户的某些功能中断的问题。
 
+“所有问题都已修复。你现在应该能够登录、在账户之间切换，并在所有服务（YouTube、YouTube TV、YouTube Music、YouTube Studio）和设备上使用账户菜单和导航栏。”YouTube发推文说。
 
+近1万名用户在Downdetector上报告了该服务的问题。该网站通过整理来自多个来源的状态报告来跟踪中断，包括用户在其平台上提交的错误。
 
-![美军新卫星打造分身术防范反卫星武器攻击(图)_新浪军事_新浪网](https://assets.gnews.org/wp-content/uploads/2022/04/image-198.jpeg)
+YouTube在中断时发推文表示：“登录、切换帐户和使用导航栏是用户面临的问题之一。”
 
-美国五角大楼的情报机构称，中共国和俄罗斯正持续部署开发能攻击美国卫星的武器，尽管两国都已强化了其太空监视和侦察力量。
+据故障追踪网站称，用户还报告了访问直播电视平台YouTube TV的问题。
 
-据彭博社报道，美国国防情报局周二（4月12日）发布的报告称，中共国拥有多种不同功率级别的地基激光武器，用于干扰、削弱或破坏卫星。目前中共国也有一定能力使用激光系统破坏卫星传感器；到了2020年代中后期，中共国可能部署更高功率的系统，甚至会威胁非光学卫星的结构。
+目前影响该平台的问题尚未明确。
 
-与此同时，俄罗斯认为美国在太空领域上对俄罗斯的依赖是美国的致命弱点，因此俄罗斯正在寻求反太空武器来中和或抗拒美国的天基服务，并且可能将在2020年代中后期投入开发更具破坏力的激光武器。
+资料来源：[YouTube back online after outage disrupts services](https://www.channelnewsasia.com/business/youtube-back-online-after-outage-disrupts-services-2622596)
 
-报告称，中共国正在部署更具破坏力的武器，且目前中共国自己的情报、监视和侦察卫星数量不断增加。截至1月份，中共国拥有超过250颗卫星，数量仅次于美国。中共国人民解放军拥有并运营着全球大约一半的情监侦系统，其中大多可以监视、跟踪和瞄准全球范围内的美军和盟军，尤其是在整个印太地区。这些卫星还使解放军能够监控潜在的地区闪爆点，包括朝鲜半岛、台湾、印度洋和南中国海。
+发布：tianzhihuan
 
-美国国防情报局周二发布的最新报告主要是基于新闻报道以及中共国和俄罗斯官员的声明，但它仍是一份有用的威胁总结，推动美国国防部2023财年拟议国防预算中的重大投资项目，尤其是对太空部队和太空司令部的拨款。
-
-新闻链接：
-[美五角大楼：中俄正开发部署可打击美卫星武器](https://www.zaobao.com.sg/realtime/china/story20220413-1262261)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
