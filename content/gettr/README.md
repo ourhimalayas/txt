@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 4:35 PM (UTC)`
+
+4/10/2022 Miles Guo: The time has come for the Chinese Communist Party to begin to “purify” the Chinese. Chinese fellows should be prepared for the worst. The CCP will never hesitate to sacrifice Chinese lives and has prepared in advance for sanctions from Europe and the U.S. The bloody war in Ukraine will escalate into an all-out war between Russia, China and Europe.<br/><br/>4/10/2022 文贵直播: 共产党开始净化中国人的时代已降临！中国同胞要做好最坏的打算。中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争。<br/>
+![img](https://media.gettr.com/group6/getter/2022/04/13/16/2cb07e67-81d4-1c03-0266-05b1a83bb184/out.jpg)
+
+---
+
 `@miles 4/13/2022 3:56 PM (UTC)`
 
 【Ukraine Rescue】04/03/2022 <br/>Japanese freelance media reporter Hiroki, who had been in the NFSC Medyka huge tent and was interviewed by NFSC volunteer Nicole, reports in his YouTube Channel: The NFSC provides a huge and well-equipped tent as a resting place for the refugees and the media personalities and volunteers.  The NFSC rescue volunteers provide freshly ground coffee, free Wi-Fi internet access in the tent.  The NFSC opposes the Chinese Communist Party.<br/><br/>【乌克兰救援】04/03/2022 曾到过Medyca新中国联邦大帐篷，被新中国联邦志愿者妮可采访过的日本自由人Hiroki在他的Youtube频道报道： 新中国联邦提供了一个巨大且设备齐全的帐篷，作为难民、媒体人士和志愿者的休息场所。 新中国联邦救援志愿者在帐篷内提供现磨咖啡、免费无线网络连接。新中国联邦反对中国共产党。<br/>
@@ -147,13 +154,6 @@
 
 4/10/2022 Miles Guo: I place 50% probability of CCP’s downfall on Xi' s health, the other 50% depends on the efforts of us, citizens of the New Federal State of China. The CCP's kleptocrats are a group of timid self-seekers, only when Xi's health broke down, would they dare to seize power.<br/><br/>4/10/2022 文贵直播：中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦；共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权<br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/13/05/32e15ac6-a833-db0d-5bfb-7e3ebb3a4fae/out.jpg)
-
----
-
-`@miles 4/13/2022 5:10 AM (UTC)`
-
-2022/04/13  新中国联邦法治基金乌克兰人道救援行动-最新战况播报
-![img](https://media.gettr.com/group32/origin/2022/04/13/05/fb89c697-01c4-1e5f-5ce6-b31a883e717b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
