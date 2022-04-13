@@ -2,55 +2,34 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.13)–莫德纳疫苗对身体的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339595/)
+## 所罗门群岛因中共安全协议而打破邻国的信任
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2339833/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1563.png)
 
-整理/编辑：禄森
+（图片来自原文）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
+尽管所罗门群岛总理马纳塞-索加瓦雷(Manasseh Sogavare)知道几乎所有的西方朋友都极力反对，但所罗门群岛政府现在还是与中国共产党（CCP）签署了安全协议。
 
+总理索加瓦雷在向议会就所罗门群岛与中共之间的安全协议草案发表的声明中，坚决但虚伪地否认参与任何地缘政治的权力斗争。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+密克罗尼西亚联邦总统大卫-帕努埃洛(David Panuelo)在给索加瓦雷的三页信中，非常清楚地阐述了索罗门群岛与中共的安全关系将使该地区陷入更广泛的地缘政治权力斗争的原因。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+帕努埃洛认为，虽然索罗门群岛作为一个独立国家享有追求其国家利益的权力，但它对其人民、对该地区甚至对全球安全都有义务谨慎地使用其权力。索加瓦雷有义务认识到，他的决定会对整个周边地区产生影响。
 
-**帖子原文**：
+这封信特别重要，因为这是从与美国有自由联系的三个密克罗尼西亚实体中唯一承认中华人民共和国的实体的角度写的。(另外两个是马绍尔群岛和帕劳）。
 
-**博主: Everdene**
+该协议草案允许中共使用军队 “保护中共国人员（劳工）和重大项目的安全”，不仅限于所罗门群岛的内乱，其中隐含的优先治外法权， 在区域内产生了不祥的预感。
 
-**莫德纳第三针副反应/作用记录贴**
+该协定草案还提到了军事人员、武装部队和船舶访问，并有停留和过渡安排，即中共军事物资的预先部署合法化。换句话说，在保护中共利益的借口下，建立其安全的海军区的前奏，这引起了人们有合理的担忧。
 
-先上结论，剂量较前两针相比减半，反应没有第二针那么大。
+协定草案的语言和实质内容暴露了它源于中共，中共全球军事扩张的野心表露无疑。
 
-2022.3.18中午12:30接种完成
+新闻来源链接：[https://maritime-executive.com/editorials/solomon-islands-breaks-neighbors-trust-with-chinese-security-deal](https://maritime-executive.com/editorials/solomon-islands-breaks-neighbors-trust-with-chinese-security-deal)
 
-下午15点左右开始犯困，16点左右开始接种部位肿痛，无法大幅度运动。
-
-凌晨3点左右开始发低烧
-
-现在3.19日上午七点烧还没退，伴有浑身关节疼痛。
-
-（补充：我第二针的反应是打完当天晚上开始高烧，断断续续烧了两天，胳膊疼嗜睡一样没少
-
-**#****莫德纳第三针**
-
-**#****莫德纳新冠疫苗**
-
-**作者发布于2022-3-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1551.png)图片来源：小红书
-参考链接：
-
-[低烧，环节疼痛，无法大幅运动](https://www.xiaohongshu.com/discovery/item/623503a2000000000102c2af?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729600)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

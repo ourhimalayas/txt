@@ -2,8 +2,8 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.13)–辉瑞疫苗对身体的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339472/)
+## COVID-19疫苗副作用集萃(2022.4.13)–莫德纳疫苗对身体的副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339595/)
 
 #### 雅典娜情报组《疫苗灾难收集专栏》
 
@@ -20,33 +20,29 @@
 
 **博主: Everdene**
 
-**辉瑞第三针副作用**
+**莫德纳第三针副反应/作用记录贴**
 
-辉瑞第三针booster
+先上结论，剂量较前两针相比减半，反应没有第二针那么大。
 
-昨天中午打完第三针，从4点睡到6点。然后又从8点睡到第二天早上10点
+2022.3.18中午12:30接种完成
 
-今天吃完午饭试图写作业，但是脑子昏昏沉沉，心慌的很，现在躺在床上，又控制不住想睡过去…..然后感觉有点心慌
+下午15点左右开始犯困，16点左右开始接种部位肿痛，无法大幅度运动。
 
-除了胳膊痛，其他没有症状，这样正常吗？
+凌晨3点左右开始发低烧
 
-**#****辉瑞第三针 #辉瑞疫苗副作用**
+现在3.19日上午七点烧还没退，伴有浑身关节疼痛。
 
-**作者发布于2022-4-7**
+（补充：我第二针的反应是打完当天晚上开始高烧，断断续续烧了两天，胳膊疼嗜睡一样没少
 
-**精选评论**
+**#****莫德纳第三针**
 
-Zhouhong评论:
+**#****莫德纳新冠疫苗**
 
-有发烧了吗？打第二针时高烧了一天，所以现在第三针有点犹豫了
-
-一颗肉丸评论:
-
-我也是犯困胳膊疼
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1548.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1549.png)图片来源：小红书
+**作者发布于2022-3-19**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1551.png)图片来源：小红书
 参考链接：
 
-[奢睡，头昏，心慌，胳膊痛](https://www.xiaohongshu.com/discovery/item/624eedec000000002103a9b9?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729553)
+[低烧，环节疼痛，无法大幅运动](https://www.xiaohongshu.com/discovery/item/623503a2000000000102c2af?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729600)
 
 发布：tianzhihuan
 
