@@ -2,32 +2,30 @@
 ---
 
 
-## 【G时新闻】保卫Azovstal 钢铁厂的武装部队遭受俄罗斯军队化学武器攻击
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2341497/)
+## 美国政府命令其外交人员迅速撤离上海
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2341590/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据焦点报4月12日报道，亚速营前指挥官安德烈·别列茨基（Andrei Beletsky）指控称，俄罗斯军队对保卫亚速斯塔尔钢铁厂（Azovstal）的乌克兰武装部队使用化学武器进行袭击，造成三人受伤，其行为严重违反国际公约。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-别列茨基指出，俄罗斯武装部队因无法攻占Azovstal 钢铁厂，才发动了化学武器袭击。“怯懦就写在俄罗斯人的脸上！所有国际公约都禁止化学武器，俄罗斯武装部队之所以使用它们，是因为他们的所有其他作战方法都是无用的。” 别列茨基抑制不住自己的愤怒说道。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-Azovstal 钢铁厂不仅是欧洲最大的冶金工厂之一，也为全球半导体企业尤其是芯片生产厂提供重要的原料—氖气。该工厂占地面积约11平方公里，拥有有13个大型生产车间。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16498718641.png)图片来源：CTV News
 
-盖特链接：[https://www.gettr.com/post/p14zl0g328b](https://www.gettr.com/post/p14zl0g328b)
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+据加拿大[CTV新闻]4月12日报道，由于中共当局近期以防疫为由在上海实施了惨无人道的封城措施，美国务院日前已命令所有非必要外交人员及其家属迅速撤离上海。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+美国国务院日前表示，对大部分外交人员的“命令”撤离是对上周”授权“撤离的升级，即强制撤离上海，而不是任其自行决定。该剧烈变化反映了美国政府对当前中共国危机形势的重新评估。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+此外，鉴于中共国当地法律和防疫政策的被严重滥用，特别是”父母和孩子将因感染病毒而被分离 “的风险，国务院还建议美国人取消去中共国旅行的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+对此，即将在今年党代会上第三次连任的习近平当局对美国政府以上的行动做出了愤怒的回应。
+
+校对编辑：硫酸羟氯喹64
+
+发稿: 文莱
+
+新闻来源：[https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244](https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

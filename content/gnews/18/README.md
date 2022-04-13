@@ -2,30 +2,34 @@
 ---
 
 
-## 乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2341416/)
+## 【G时新闻】美国务院命令非紧急人员及家眷紧急撤离上海
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2341478/)
 
-作者：在远方，Naughty(文行)
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+当地时间4月11日，美国国务院正式下达撤离驻上海美领馆非必要工作人员的政令。
 
-当地时间4月11日，据相关媒体报道，乌克兰马里乌波尔市的市长波成柯在接受采访时表示，该市目前已有超过一万名平民死于俄罗斯侵略军的战火之中，民众遗体遍布大街小巷。 此外，波成柯还严正谴责俄军故意阻止人道主义救援车队进入该市，并试图对外隐瞒在该市市区发生的大屠杀。
+两天前的4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，并提醒旅行者慎重考虑前往中共国。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-11.41.00-AM.png)
+时隔仅两日，美国务院正式下达撤离政令和三级旅行禁令。政令内容措辞严厉，历数前往中共国旅行即将面临的严重灾难，着重提到了中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查、威胁家人等、在网络散步针对美国的网暴等行为。
 
-据波成柯证实，俄军早先运来了大量的移动焚尸炉用于处理遇难者的遗体：他们将许多平民的尸体集中运到某个具有大型冷冻设施的购物中心，随后用卡车运载的移动焚尸炉将这些尸体焚化，试图掩盖其令人发指的反人类罪行。
+美领馆更新了前往中国大陆及香港旅行的15条注意事项。尤其警告美国公民，在中共时不能随意利用言论自由，小心身边的秘密警察、周围的环境，保持低调等等。
 
-另一方面，波成柯也补充道，马里乌波尔市当前大约有12万人迫切需要食物、饮用水、暖气和对外通信设备。然而，只有经过俄军“过滤”的民众才能逃离当地，其他没有通过检查的居民则被押送至临时拘留所。据悉，当地至少有3.3万人被强迫遣送至俄罗斯或乌克兰分离主义地区。对此，乌克兰人权监察员透露，俄罗斯军队在这些地区对乌克兰平民实施了酷刑和处决，且俄军还在继续非法逮捕、折磨并处死任何有亲乌克兰立场的民众。
+盖特链接：[https://gettr.com/post/p14z80ib0f2](https://gettr.com/post/p14z80ib0f2)
 
-参考链接：
-1. [馬立波市長：城內已超過1萬平民死亡 俄軍計畫性焚燒百姓遺體](https://news.ltn.com.tw/news/world/breakingnews/3890226)
-2. [Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

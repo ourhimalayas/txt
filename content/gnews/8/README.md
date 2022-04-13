@@ -2,22 +2,27 @@
 ---
 
 
-## 欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341495/)
+## 广州机场以疫情为由关闭入境通道
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2341572/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16498704471.png)   图片来源：欧洲新闻台
-据《布雷特巴特新闻网》（Breitbart News）4月12日报道，欧盟的外交事务主管何塞·博雷利 (Josep Borrell）近日表示，当世界正面临着严重的粮食危机时，俄罗斯军队却一直在积极地攻击和破坏全球最大之一的粮食生产国—乌克兰的小麦库存。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-根据《欧洲新闻台》（Euronews）的报道，博雷利说，俄军不仅封锁了乌克兰在黑海的港口，导致该国的粮食出口中断（乌克兰向全球供应了大量的小麦），而且还在积极地攻击和破坏乌克兰的急需资源（much-needed resource）储备。“俄军正在轰炸乌克兰的城市，并通过阻止小麦出口和破坏乌克兰的小麦库存，在全世界制造饥荒。”博雷利强调，许多欧洲人正面临的粮食短缺问题不是因为欧盟对莫斯科的制裁，而是俄罗斯通过封锁和军事打击破坏供应链所直接导致的结果。
+编译撰稿：加拿大温哥华扬帆农场 – 晨熹
 
-一家粮食贸易公司的负责人Jörg-Simon Immerz说：“目前乌克兰的港口没有出口任何粮食，任何东西都无法离开该国。另外，全球小麦市场的另一个主要参与者—俄罗斯供应的小麦也显著下降。”不久前，俄罗斯的一位高官甚至威胁说，将只向所谓的“友好”国家供应粮食和农产品。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16498713481.png)图片来源：CTV News
 
-欧盟官员以及前南卡罗来纳州州长、现世界粮食计划署主任大卫·比斯利 (David Beasley)上个月警告说，如果今年不能额外提供数十亿美元的粮食援助，那么全球将出现饥荒、不稳定和大规模移民等危机。
 
-*责编：白夜*
+据加拿大【CTV 新闻】4月11日报道，随着中共国内疫情失控，繁忙的广州机场从即日起将拒绝大多数入境者。
 
-新闻来源：[Global Food Crisis: Russian Forces Actively ‘Bombing and Destroying’ Wheat Stocks in Ukraine As Crisis Mounts](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+报道称，广州政府以疫情扩散为由，在全市开展大规模核酸检测，该市中小学现已转为在线学习，大量方舱医院也在仓促建设之中。同时还严格规定：只有“特殊需要”且48小时内病毒检测呈阴性的市民才能离开广州。
+
+此外，中共最大城市上海已采取了严密的戒严措施，尽管无数居民都挣扎在食品和医疗短缺的绝境之中，但中共当局仍残酷施行囚禁式的隔离锁户以及全员核酸检测的“零病毒”战略。
+
+校对编辑：硫酸羟氯喹64
+
+发稿: 文莱
+
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/guangzhou-closes-to-most-arrivals-as-china-s-covid-19-outbreak-grows-1.5856741](https://www.ctvnews.ca/health/coronavirus/guangzhou-closes-to-most-arrivals-as-china-s-covid-19-outbreak-grows-1.5856741)
 
  
 

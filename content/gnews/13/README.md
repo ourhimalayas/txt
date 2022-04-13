@@ -2,21 +2,26 @@
 ---
 
 
-## 法制基金救援德国Malteser Hilfsdienst e.V 难民实纪 &#8211; 2022年4月13日
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341457/)
+## 居民怒怼上海市领导、习近平的心腹：&#8221;没有食物&#8221;&#8221;知耻吗&#8221;
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341498/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-23.jpg)
-发布：信心的选择
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+【读卖新闻 广州 吉冈美雪】4月13日，据香港报纸《信报》等报道，中共国上海市委书记李强在视察一个居民区时，被居民怒怼“没有食物”“知耻吗”。 据悉，（居民们）是因为政府在准备不足的情况下强行封锁（城市封锁）而发泄对市政府的不满。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/T1T50213.jpg)图片来源网络
 
+网上热传着一段有关情况的视频。 据报道，一位坐在轮椅上的妇女向李强书记抱怨说，她“只得到了一个胡萝卜、一个土豆和两个洋葱”。 据说，另一名妇女则怒怼：“你们这帮人把国家搞成这样是有罪的”，一名随员制止了她。
+
+李强（在居民区）视察物资供给情况、慰问医务工作者等相关人员。 他被认为是习近平主席的心腹，也是下一任总理的候选人之一，但很有可能因允许感染扩散而被问责。
+
+参考链接：[「食べ物がない」「恥を知れ」上海市トップに住民ら罵声…習近平主席の腹心 = 国際 – 写真 – goo ニュース](https://news.goo.ne.jp/picture/world/20220413-567-OYT1T50213.html)
+
+* * *
+
+审核：Bryan
+校对/发稿：宫米叶
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
-
 
 
  

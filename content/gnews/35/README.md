@@ -2,33 +2,42 @@
 ---
 
 
-## 有声|俄罗斯寡头的超级游艇驶向斐济
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340729/)
+## 中共白送塞尔维亚红旗导弹系统 一条在美国西部边境海域的船只 载有导弹
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2341034/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-据报道，一艘受制裁的俄罗斯寡头的超级游艇“Amadea”本周将在斐济加油，然后返回其母港，这里的当局预计这是最接近新西兰的一艘超级游艇。船主不太可能在船上。他是黄金生产商和涉嫌洗钱者苏莱曼克里莫夫，他在美国、英国和欧盟的制裁名单上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-4.jpg)‘阿玛达’。照片：国际船舶![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.jpg)超级游艇经纪人Duthie Lidgard 照片：RNZ/Dan Cook
-新西兰外交和贸易部（MFAT）表示，目前不知道有任何俄罗斯拥有的船只在新西兰水域受到制裁，并且表示如果“受制裁的船只试图进入新西兰，将被采取行动”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+\*目前在塞尔维亚最牛的是中国核钢，微信，阿里巴巴，共有约47家中国企业
 
-禁止所有俄罗斯军用或政府拥有的船只，或受制裁个人或实体的船只进入新西兰。与此同时，新西兰卫生部表示，俄罗斯的“Amadea”没有要求在新西兰加油。
+\*塞尔维亚部署的红旗导弹系统是中共白送的，同时还帮助赛建立的通信
 
-[【援引连结】](https://www.rnz.co.nz/news/national/465191/russian-oligarch-s-superyacht-sailing-towards-fiji)
+和铁路系统。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流**瓶
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+\*中共有两大厉害的杀器，东5丙和东风E、东风EN。
+
+\*共产党已经把东风15部署到了中东，如伊拉克，伊朗，沙特；红旗系统，给了伊拉克，沙特，叙利亚和伊朗，突尼斯也有了红旗FK3。
+
+\*Fk3针对欧洲的军用飞机，已经覆盖了波兰及周边国家的空域。
+
+\*中共马上会为俄罗斯提供多达1600枚红旗导弹，接下去会用于俄乌战争。并且也很快会再给塞尔维亚提供60架无人机，俄罗斯800架，1600架与也门，叙利亚，沙特，伊拉克，伊朗，这些飞机部分拥有高达120公里自动跟踪的针刺导弹系统。
+
+\*目前中共已有50万枚红旗FK3，现在准备全部用于备战。空海军联合作战部，特别是地下作战部就安排了30万枚，将有20万对准台湾，还将加紧生产150万，对台湾很可能瞬间就开战了。
+
+\*爆料：一条在美国西部边境海域的船，就载有导弹。
+
+\*现在国企，包括北车，都在全天候给俄罗斯生产武器导弹，最大的武器加工厂就在黑龙江。
+
+\*俄近期在军事部署大调整，下一波攻击导弹飞机为主。一场大战即将开始**。**
+
+**更多资讯，更多关注**
+[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
+[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
