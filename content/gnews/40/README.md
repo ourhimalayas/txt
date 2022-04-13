@@ -2,30 +2,40 @@
 ---
 
 
-## 俄乌战争｜波兰等多国元首相继出访基辅 惟德国总统被拒诸门外
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338985/)
+## 中共在上海等大城市动态清零政策的险恶目的
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2339757/)
 
-**图/文｜CP **
-**发布时间｜13/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/波蘭等多國元首相繼出訪基輔-惟德國總統被拒諸門外.jpg)
+##### 作者：加拿大温哥华扬帆农场 -【晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据4月10日文贵先生盖特直播披露， 中共通过在上海等大城市实行动态清零政策，来达到三个险恶目的：
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1561.png)图片来源：gettr
 
 
-波兰及波罗的海三国（立陶宛、拉脱维亚及爱沙尼亚）的总统，正前往乌克兰首都基辅，准备会晤乌克兰总统泽连斯基（Volodymyr Zelensky），这是俄罗斯入侵乌克兰之后，波罗的海三国总统首次到访基辅。不过，原定一同出访的德国总统施泰因迈尔（Frank-Walter Steinmeier），则因立场亲俄而不获乌克兰欢迎，最终未能成行。
+一是，国内整个经济将实行闭关锁国，切断供应链，饿死美国。
 
-德国媒体周二（13日）报道，称总统施泰因迈尔承认，计划出访基辅的行程，因遭到泽连斯基的拒绝而作罢。施泰因迈尔表示，“显然，我必须承认，这（我的出访）不是基辅想要的”。
+二是，将所有疫苗灾难导致的人员大量死亡，责任推给国内百姓。
 
-施泰因迈尔不止一次在公开场合表态，希望西方国家恢复与俄罗斯接触，并一直支持兴建“北溪2号”天然气管，希望将俄罗斯天然气直送入德国。可惜，俄乌战争爆发后，“北溪2号”项目不得不宣布中止。
+三是，通过实行军管状态下的严厉封锁措施，来增加社会承受力，特别是在极限战争状态下的压力测试，为接下来即将发生的战争做好充分准备。
 
-虽然开战后，施泰因迈尔已作出让步，承认支持“北溪2号”是错误决定，还开口谴责俄罗斯总统普京，但由于德国总统是虚位元首，实际的政治领袖，即德国总理的立场摇摆，加上柏林与基辅之间向来关系紧张，因此，泽连斯基选择对德国继续持谨慎态度亦属常理。
+一切目的就是为拿下台湾，毁掉美元。这是习近平宏大计划中的重要一环。他认为，中国人最终要和世界玩挨饿游戏，看谁更耐饿。未来粮食、能源暴涨，一旦突破美国人的极限承受力，社会就将大乱，美元也会大幅贬值，最终击败美元。
 
-來源｜[Politico](https://www.politico.eu/article/ukraine-rejects-visit-by-german-president-frank-walter-steinmeier/)
+新闻来源：[https://gettr.com/streaming/p14iwpvf134](https://gettr.com/streaming/p14iwpvf134)
 
+上传/发稿 – 【青青】
+撰稿 -【晨熹】
+素材/采编 -【晨熹】
+校对/编辑 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,37 @@
 ---
 
 
-## 拜登政府在2021年进行了两次亚临界核试验
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2340367/)
+## 有声|中索安全协议引忧虑， 澳洲部长出访索罗门群岛
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340441/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Zelensky_040422_AP2.jpg)装有AGM-86B空射巡航导弹的第416轰炸机联队的一架B-52G Stratofortress飞机的空对空正面图（图片来源：美国空军/Getty/Kyodo）
-据共同社4月13日东京报道，美国国家核安全管理局（NNSA）称，美国去年进行了两次亚临界核试验，这是在乔·拜登总统政府领导下的首次此类试验。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【法新社4月12日报道】 澳洲太平洋事务部长赛索嘉当天出访索罗门群岛，原因是西方盟国担心一项有争议的中共国与索罗门安全协议允许中共国在南太平洋建立军事据点。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中索安全协议引忧虑澳洲部长出访索罗门群岛.jpg)
+澳洲太平洋事务部证实，部长赛索嘉（Zed Seselja）将出访索罗门首都荷尼阿拉（Honiara）。
 
-NNSA的一位发言人最近告诉共同社，这些实验于6月22日和9月16日在内华达州进行，并补充说来自测试的数据旨在确保核储备的可靠性，而无需重新进行核试验。
+赛索嘉透过声明宣布：“双方讨论的议题将包括拟议中的索罗门群岛-中国安全协议。”
 
-亚临界核试验被认为是美国计划对其洲际弹道导弹搭载的核弹头进行现代化改造以及开发一种被称为新型空射远程巡航导弹(LRSO)所必不可少的实验。上一次在一年内进行了两轮这种不涉及导致核爆炸的连锁反应的试验是在2010年，当时是在奥巴马总统当政期间。
+澳洲情报首长上周也曾在荷尼阿拉与索罗门官员就中索安全条约进行磋商。
 
-美国于1992年暂停地下核试验，五年后开始亚临界核试验。它认为，《全面禁止核试验条约》不包括亚临界试验，因为它们不会造成核爆炸。进行这些实验之际，在美国与其他主要核武器国家中共国和俄罗斯的竞争中，核裁军谈判仍然停滞不前。
+苏嘉瓦瑞先前澄清，他的政府“并无任何意图要求中国在索罗门群岛建立军事基地。”
 
-推动核裁军的国家越来越担心核大国的能力建设，他们渴望6月在维也纳举行联合国禁止核武器条约缔约国第一次会议时可以取得进展。“长期计划与上届川普政府相比并没有显著变化。”日本西南部长崎大学副教授冨塚明(Akira Tomizuka)说。
+[【援引连结】](https://www.swissinfo.ch/chi/afp/%E4%B8%AD%E7%B4%A2%E5%AE%89%E5%85%A8%E5%8D%8F%E8%AE%AE%E5%BC%95%E5%BF%A7%E8%99%91--%E6%BE%B3%E6%B4%B2%E9%83%A8%E9%95%BF%E5%87%BA%E8%AE%BF%E7%B4%A2%E7%BD%97%E9%97%A8%E7%BE%A4%E5%B2%9B/47513062)
 
-美国在川普政府领导下进行了三轮亚临界核试验，在奥巴马政府领导下进行了四轮。去年6月和9月的亚临界核试验是连续三次核试验的一部分，第一次是在2020年11月川普政府执政期间进行的。
-
-**简评：**
-
-美国NNSA近日披露了拜登上台后进行的首次亚临界核实验。但实际上这些实验却是早在去年6月22日和9月16日就进行了。在这个时刻把这件事情报道出来有着非同寻常的意义。
-
-首先，说明了美国在核武器研发和更新一直在进行。虽然美国每隔四年就要进行一次总统选举，但美国的军事发展并不像总统变更一样，而且有着持续性。如文中川崎大学教授所言“长期计划与上届川普政府相比没有显著变化，”。
-
-其次，美国在10个月内，跨越了2界政府，持续进行了3轮实验。这么高的密度说明实验的紧迫性，也证明了美国军方从川普政府期间就开始抓紧升级核武器，为可能发生的世界核战做准备了。
-
-最后，美国是唯一使用过核武的国家，此次以“拜登政府进行首次核试验”的标题报道出来也向世界展示出本届的美国政府会在必要的情况下有决心再次使用核武器。
-
-在这个世界安全正在被以独裁者习近平为首的中共和普京的俄罗斯严重威胁的时候，美国作为唯一一个有能力维护世界安全的超级大国，保持先进的武器和压倒性的震慑作用也是保障世界安全的必须。
-
-新闻链接：[U.S. conducted subcritical nuclear tests in 1st under Biden gov’t](https://english.kyodonews.net/news/2022/04/87da4fef4929-us-conducted-subcritical-nuclear-tests-in-1st-under-biden-govt.html)
-
-翻译/简评：新街口 / PR：Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流**瓶
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

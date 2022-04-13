@@ -2,45 +2,40 @@
 ---
 
 
-## 有声|上海封城乱象:员工睡公司、病患家属上网求助
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340348/)
+## 有声|乌克兰做足战备 盟国增加军援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340432/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-中共国上海市封城后，引发民情沸腾。许多白领阶级被迫住在公司，以免金融活动中断；还有民众因封城导致就医困难，只能在网路上“众包”医疗援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城.jpg)
-3月下旬，在上海封城前不久，金融工作者罗密欧（Romeo，化名）因为担心受到封控措施影响，决定搬到位于浦东的办公室。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+根据4月10外媒消息，乌克兰总统顾问公开表示，乌已做足战备，与俄罗斯进行大规模战斗。乌克兰将在俄方控制的两个分离地区——顿涅茨克和卢甘斯克击退俄军，以便在俄乌总统会晤前获得更多的主动权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-12-at-9.41.56-AM.png)
+此外，美国、德国等盟国表示会继续向乌克兰提供武器援助。
 
-一些上海企业努力持续经营，有员工只能被迫过着有家归不得的生活。
+美国国家安全顾问杰克·沙利文10日表示，美国正致力于向乌克兰提供它需要的武器来抵御俄罗斯，阻止他们占领更多的城镇。而根据其他信息，自俄罗斯发动入侵以来，美国已向乌克兰提供了 17 亿美元的军事援助。
 
-不愿透露真实中文姓名的罗密欧表示，员工有些人睡在公司1楼和2楼，每个人都会去自己的办公室睡觉。
-
-对于上海工人来说，个人隐私早就成了奢侈品。社群媒体影片显示，为确保生产不致中断，在封闭工厂里，许多工人只能睡在简陋铺位上。
-
-家住浦西的蔡先生（Frank Tsai）也说，封城10多天后，他的粮食配给开始“不断缩水”。蔡先生透露，这段期间，他对餐点和食物摄取的担忧是他这辈子从未有过的。
-
-随着封城时间逐渐拉长，部分居民只能以物易物，或是出高价购买食物。一名居住在上海的马姓女子说，她花了400元人民币只买到一箱泡面和一瓶汽水。
-
-与此同时，受到封城影响，上海许多患有非中共病毒疾病的居民，因为无法出门就医，只能在网路互助平台与社群媒体聊天群组张贴求助讯息。
+德国国防部长兰布雷希特9日受访表示，自战争开始，德国已经援助了军盔、反战车、防空和地对空飞弹以及机枪和弹药等军事装备，目前，德军已经无法从库存中直接拿出武器提供给乌克兰，但这并不意味着德国不能为乌克兰做更多的事情，未来德国对乌克兰的军援将更多地直接透过军火工业进行。
 
 
 
-【援引连结】
+文字版原文：[乌克兰做足战备 盟国增加军援](https://gnews.org/zh-hans/2335450/)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

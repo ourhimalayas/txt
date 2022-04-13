@@ -2,37 +2,39 @@
 ---
 
 
-## 有声|中索安全协议引忧虑， 澳洲部长出访索罗门群岛
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340441/)
+## 共产党自诞生起就是中国人的灾难 前后30年中国人的苦难从没有停过
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340625/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-【法新社4月12日报道】 澳洲太平洋事务部长赛索嘉当天出访索罗门群岛，原因是西方盟国担心一项有争议的中共国与索罗门安全协议允许中共国在南太平洋建立军事据点。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中索安全协议引忧虑澳洲部长出访索罗门群岛.jpg)
-澳洲太平洋事务部证实，部长赛索嘉（Zed Seselja）将出访索罗门首都荷尼阿拉（Honiara）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-赛索嘉透过声明宣布：“双方讨论的议题将包括拟议中的索罗门群岛-中国安全协议。”
 
-澳洲情报首长上周也曾在荷尼阿拉与索罗门官员就中索安全条约进行磋商。
 
-苏嘉瓦瑞先前澄清，他的政府“并无任何意图要求中国在索罗门群岛建立军事基地。”
+共产党自诞生起就是中国人的灾难！
 
-[【援引连结】](https://www.swissinfo.ch/chi/afp/%E4%B8%AD%E7%B4%A2%E5%AE%89%E5%85%A8%E5%8D%8F%E8%AE%AE%E5%BC%95%E5%BF%A7%E8%99%91--%E6%BE%B3%E6%B4%B2%E9%83%A8%E9%95%BF%E5%87%BA%E8%AE%BF%E7%B4%A2%E7%BD%97%E9%97%A8%E7%BE%A4%E5%B2%9B/47513062)
+共产党的前30年：制造、激化群众内部矛盾。独裁者毛泽东变态的报复行为，大搞上山下乡，毁了多少人的一辈子。文化大革命又让多少人妻离子散，家破人亡。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流**瓶
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+共产党的后30年：邓小平的摸着石头过河，中共家族率先发财致富，但一寸土地没真正给过老百姓。朱镕基时期所谓的国有企业改革下岗，就是让被下放的底层劳动人民自生自灭。江泽民的闷声发大财，金融寡头遍地开花，老百姓继续当被割的韭菜。一直到现在习近平的文革2.0等等。 中国人的苦难远远没有结束。
+
+**视频来源: 20220410—郭先生大直播**
+**视频制作: 文星光**
+**文案:文星光**
+
+**更多资讯，更多关注**
+[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
+[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
