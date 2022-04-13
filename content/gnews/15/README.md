@@ -2,33 +2,60 @@
 ---
 
 
-## 有声｜上海阳性病人被拉到方舱工地 自搭床铺 千人一厕未通水
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2339462/)
+## COVID-19疫苗副作用集萃(2022.4.13)–辉瑞疫苗对身体的副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2339472/)
 
-By:**秘翻新闻**
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-**2022-04-13**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-17.png)
-[新唐人](https://www.ntdtv.com/gb/2022/04/12/a103398727.html)北京时间4月13日消息，上海野蛮清零，但隔离场所严重不足，造成一片混乱。网传视频显示，大量阳性病人被拉到温家荡工地，自己动手建方舱，条件恶劣到令人目不忍睹。
+整理/编辑：禄森
 
-据网友爆料，该网友4月7日前后被大巴车送到上海浦东的温家荡隔离点，半夜12点左右抵达大门外，直到凌晨5点，该隔离点才打开大门让大巴进入。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
 
-但众人进入隔离点后看到的不是整齐的隔离房，而是还未完工的工棚，里面一片狼藉，遍地是建筑材料和建筑垃圾。
 
-有的隔离间已经上了隔板，但是没有门，隔离间内除了几个简易床，什么都没有。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-由于无人安置病人，大家开始抢物资，有的还需要自己动手，打扫卫生，搭建床铺，或就地打地铺。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-该网友称，一个上千人的方舱，只有一个厕所，一个马桶。而且由于没有完工，马桶没有通水，无法冲洗。
+**帖子原文**：
 
-据称，该隔离点工作人员表示，病人们到这里“是来观察的，不是来诊疗的”，所以也没有药品提供给需要的病人。
+**博主: Everdene**
 
-秘翻新闻 二丫/Julia编辑报道
+**辉瑞第三针副作用**
 
-发布 : 恩典
+辉瑞第三针booster
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
+昨天中午打完第三针，从4点睡到6点。然后又从8点睡到第二天早上10点
+
+今天吃完午饭试图写作业，但是脑子昏昏沉沉，心慌的很，现在躺在床上，又控制不住想睡过去…..然后感觉有点心慌
+
+除了胳膊痛，其他没有症状，这样正常吗？
+
+**#****辉瑞第三针 #辉瑞疫苗副作用**
+
+**作者发布于2022-4-7**
+
+**精选评论**
+
+Zhouhong评论:
+
+有发烧了吗？打第二针时高烧了一天，所以现在第三针有点犹豫了
+
+一颗肉丸评论:
+
+我也是犯困胳膊疼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1548.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1549.png)图片来源：小红书
+参考链接：
+
+[奢睡，头昏，心慌，胳膊痛](https://www.xiaohongshu.com/discovery/item/624eedec000000002103a9b9?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729553)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

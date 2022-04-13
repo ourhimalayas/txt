@@ -2,24 +2,25 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第49期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2339528/)
+## 美国奶粉供不应求
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2339529/)
 
-新闻内容摘要：
+#### 编译 意大利达芬奇农场 小白鸽
 
-- 1.新中国联邦・法治基金乌克兰救援行动报告
-- 2.乌克兰救援活动花絮（1）
-- 3.乌克兰救援活動花絮（2）
-- 4.中共让百姓陷入深渊
-- 5.真正的目的就是對抗美國
-- 6.「XE」病毒日本国内初次确认
-- 7.美國同意在上海領事館的職員離開
+据来自纽约的报道，美国的奶粉正在供不应求，超市货架上将近短缺30%的婴儿奶粉。据美国媒体报道，一些零售商已经开始限制数量以满足需求。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-13-alle-12.26.59.png)图片来源：Imolaoggi.it
+关于奶粉“危机”，脱了生产和分销链中的问题外，负责食品和药品鉴管的联邦机构FDA最近的呼吁也称，一些品牌由于细菌感染甚至导致两名婴儿死亡。
 
+据负责公共卫生事务的联邦机构疾病控制和预防中心CDC统计，2017年只有25%的孩子是由母乳喂养。
 
-**播报：东京樱花团-NAN的曙光**
+与此同时，美国正准备宣布再向乌克兰提供数亿美元的军事援助。美国有线电视新闻网援引一些消息人士的话说，这个数字将在7亿美元左右，拜登自上任以来分配给该国的资金将增加到30亿美元。
 
-**发布： 东京樱花团-eiei**
-![此图像的alt属性为空；文件名为erweima.png](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+参考链接：
+
+[https://www.imolaoggi.it/2022/04/13/usa-scarseggia-il-latte-in-polvere/](https://www.imolaoggi.it/2022/04/13/usa-scarseggia-il-latte-in-polvere/)
+
+编辑、上传：Xiao baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
