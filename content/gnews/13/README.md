@@ -2,27 +2,37 @@
 ---
 
 
-## 中国驻以色列大使馆赠送部长保温杯涉嫌植入窃听器 遭中国大使馆否认
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2340512/)
+## 有声|日本丢弃一大半中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340682/)
 
-来源：N12News 
-发布时间：20220412
-编译：GM
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-13-21.08.11.png)
-中国驻以色列大使馆作为逾越节礼物赠送给一些部长的保温杯，在例行安全检查中发现其中有可疑物品，杯子里这个像镜子的部件让人怀疑它可能是窃听设备。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本媒体4月7日报道，日本政府从英国采购的1.2亿剂阿斯利康中共病毒疫苗中有一半即6000万剂被弃用。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-62.jpg)
+报道称，由于2020年8月中共病毒大流行，日本政府与阿斯利康公司于当年12月份签署了1.2亿剂的中共病毒疫苗购买合同。这批疫苗于2021年年初开始交付。
 
-对中国驻以色列大使馆移交给一些政府部门的礼物进行的例行安全检查引发了人们对这一事件的怀疑，该事件很容易成为一系列紧张局势和间谍活动的一部分。
+日本将接种人群原则上设置为40岁以上，但开始接种后，不断有报道披露注射疫苗造成了严重的血栓反应。到目前为止，这批疫苗只发放了4300万剂。政府决定，对剩余的一半疫苗因逐渐到达6个月的保质期，将被弃用。
 
-事发后，政府机关立即收回其他保温杯作进一步检查。任何来自外国使团的礼物都需要经过安全许可。由于“害怕有监听设备或摄像头”一些部门被告知要重点关注来自中国的礼物。
 
-在中国大使馆否认之后，GSS宣布：“检查该组件的技术专家确认它是一个杯子的组件，旨在保持杯壁的真空并保持温度，这份礼物是为了表达中以之间的友谊，我们要求发布它的媒体撤出报道。”
 
-参考链接：[https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&s=08](https://twitter.com/N12News/status/1513844683444793349?t=1UJ0b5dXIrJJIWyTKDtHnw&amp;s=08)
+文字版原文：[日本丢弃一大半中共病毒疫苗](https://gnews.org/zh-hans/2334381/)
 
-[https://mobile.mako.co.il/news-military/2022\_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&pId=173113802&Partner=interlink&s=08](https://mobile.mako.co.il/news-military/2022_q1/Article-a9dcd14715c1081026.htm?sCh=31750a2610f26110&amp;pId=173113802&amp;Partner=interlink&amp;s=08)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-审核校对：Barry Jack
-上传排版：F
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

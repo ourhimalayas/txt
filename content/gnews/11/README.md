@@ -2,25 +2,36 @@
 ---
 
 
-## 比利时首相救援前线接受新中国联邦战友采访
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340544/)
+## 共产党认为每2500-5000人中死一个 仍可接受 21个城市的官员将面临就地免职的处罚
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340690/)
 
-作者：初七
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-当地时间4月12日早晨10点左右，比利时现任首相亚历山大-德克罗在随行人员的陪同下前往波兰梅地卡难民救援中心进行视察。当中，德克罗首相不但接受了新中国联邦记者的采访，他还主动提出与前线战友合影的要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-107.jpg)
-此外，身穿带有“灭共”标志救援马甲的前线记者Nicole战友先是向德克罗首相介绍了新中国联邦的救援巴士，以及前线救援帐篷已经接待了1万乌克兰过境难民的救援进展，同时，她还向首相传递了新中国联邦一贯坚持的理念，即“我们是消灭共产党的新中国联邦人”，“中国共产党是俄乌战争背后的罪魁祸首”，以及“我们与全世界爱好和平与自由的人战在一起”。采访结束后，德克罗首相真诚感谢了新中国联邦团队在乌克兰救援前线的付出。
 
-据悉，比利时德克罗首相是迄今为止视察波兰梅迪卡救援营地的最高级别外国国家元首。
 
-参考链接：[“比利时是欧盟的首府，在全球政治上具有及其重要的意义，这位总理是首位来Medyka的外国元首”](https://twitter.com/jiuchawoyige03/status/1513823280515362816?t=ckBb7piIkEKjLo3FzaItGA&amp;s=19)
+习近平批示：北上广深过度过快的城市化被视作威胁，并且需要人民再次认识到要感谢共产党。严酷的封城清零政策，是对城市压力的测试，要选对时间和地点进行，同时要以考虑国家安全和政治因素的方式结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+党内预估：如果再封锁3-4周，很可能3万份之一的人将死亡。但是共产党认为这依然在2500-5000死一个人 的可接受范围之内。
 
-总编：Irene木木
-编辑：Delilah小胖
-审核：Ivy001
-校正/发稿：Fei797
+中央决定：京深广上，长春，郑州，大连，约21个城市，就地免职所有违反所谓政治规定的官员！
+
+**视频来源: 20220410—郭先生大直播**
+**视频制作: 文星光**
+**文案:文星光**
+
+**更多资讯，更多关注**
+[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
+[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+
+
 
  
 

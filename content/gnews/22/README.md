@@ -2,40 +2,37 @@
 ---
 
 
-## 乌克兰-俄罗斯将进行二战以来欧洲最大规模的坦克大战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2340308/)
+## 有声|中索安全协议引忧虑， 澳洲部长出访索罗门群岛
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340441/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【法新社4月12日报道】 澳洲太平洋事务部长赛索嘉当天出访索罗门群岛，原因是西方盟国担心一项有争议的中共国与索罗门安全协议允许中共国在南太平洋建立军事据点。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中索安全协议引忧虑澳洲部长出访索罗门群岛.jpg)
+澳洲太平洋事务部证实，部长赛索嘉（Zed Seselja）将出访索罗门首都荷尼阿拉（Honiara）。
 
-翻译：li yan li
-编辑：李易通
+赛索嘉透过声明宣布：“双方讨论的议题将包括拟议中的索罗门群岛-中国安全协议。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-36.png)图片来源：雅典娜设计组
+澳洲情报首长上周也曾在荷尼阿拉与索罗门官员就中索安全条约进行磋商。
 
+苏嘉瓦瑞先前澄清，他的政府“并无任何意图要求中国在索罗门群岛建立军事基地。”
 
-据彭博社报道，波兰总理莫拉维茨基在周一与比利时首相亚历山大·德克罗举行的新闻发布会上发表讲话，称乌克兰的坦克战“迫在眉睫”。
+[【援引连结】](https://www.swissinfo.ch/chi/afp/%E4%B8%AD%E7%B4%A2%E5%AE%89%E5%85%A8%E5%8D%8F%E8%AE%AE%E5%BC%95%E5%BF%A7%E8%99%91--%E6%BE%B3%E6%B4%B2%E9%83%A8%E9%95%BF%E5%87%BA%E8%AE%BF%E7%B4%A2%E7%BD%97%E9%97%A8%E7%BE%A4%E5%B2%9B/47513062)
 
-莫拉维茨基随后呼吁欧盟成员国向基辅提供更多的军事支持，因为国际观察员预计俄罗斯很快将在东部地区的顿巴斯发动攻击。
-
-彭博社援引波兰总理周一的话说：“最具决定性的战斗即将开始，这将是二战以来世界上在这一地区最大的坦克战。”
-
-正如莫拉维茨基所预测的那样，乌克兰和俄罗斯未来在顿巴斯的冲突与1943年7月德军和苏军之间的库尔斯克战役的恐怖情景很相似。
-
-乌克兰外交部长德米特罗·库莱巴上周在与北约部长会晤后说：“顿巴斯之战的大型行动和演习，成千上万的坦克、装甲车、飞机和大炮的参与将让你想起第二次世界大战。”
-
-俄罗斯外交部长谢尔盖·拉夫罗夫周一在接受俄罗斯国家电视台采访时宣布，俄罗斯已经确认，将不会暂停在乌克兰的战斗。
-
-据说莫斯科已经任命了一位新的将军——亚历山大·德沃尔尼科夫在战争的新阶段领导俄罗斯军队。德沃尔尼科夫最近被部署在叙利亚，他的部队支持叙利亚总统巴沙尔·阿萨德。
-
-参考链接：[乌克兰-俄罗斯将进行二战以来欧洲最大规模的坦克大战](https://www.newsweek.com/ukraine-russia-set-fight-largest-tank-battle-since-world-war-2-poland-1697196)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流**瓶
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

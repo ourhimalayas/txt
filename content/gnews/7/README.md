@@ -2,39 +2,30 @@
 ---
 
 
-## 共产党自诞生起就是中国人的灾难 前后30年中国人的苦难从没有停过
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340625/)
+## 随着疫情加剧广州拒绝大多数人入境
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340747/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-29.png)
+据【CTV NEWS】4月11日报道，随着中共国内疫情加剧，周一起广州将对大多数入境者关闭。尽管该市拥有很多顶级公司和中国最繁忙的机场，而且也只有为数很少的病例。
 
+但在上周发现最初23例本土感染后，该市中小学已转为在线学习，当局也曾表示全市正在开展大规模检测，方舱医院也在建设中。该市发言人陈斌在社交媒体公告中说，只有“明确需要”且48小时内病毒检测呈阴性的市民才能离开广州。据报道，中共另一个大城市上海已经采取了严密的封锁措施，尽管无数人抱怨食品和医疗短缺，但中共仍坚持严格隔离和大规模检测的“零中共病毒”战略。
 
+原文链接：[https://www.ctvnews.ca/health/coronavirus/guangzhou-closes-to-most-arrivals-as-china-s-covid-19-outbreak-grows-1.5856741](https://www.ctvnews.ca/health/coronavirus/guangzhou-closes-to-most-arrivals-as-china-s-covid-19-outbreak-grows-1.5856741)
 
-共产党自诞生起就是中国人的灾难！
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 晨熹
+素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-共产党的前30年：制造、激化群众内部矛盾。独裁者毛泽东变态的报复行为，大搞上山下乡，毁了多少人的一辈子。文化大革命又让多少人妻离子散，家破人亡。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-共产党的后30年：邓小平的摸着石头过河，中共家族率先发财致富，但一寸土地没真正给过老百姓。朱镕基时期所谓的国有企业改革下岗，就是让被下放的底层劳动人民自生自灭。江泽民的闷声发大财，金融寡头遍地开花，老百姓继续当被割的韭菜。一直到现在习近平的文革2.0等等。 中国人的苦难远远没有结束。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**视频来源: 20220410—郭先生大直播**
-**视频制作: 文星光**
-**文案:文星光**
-
-**更多资讯，更多关注**
-[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
-[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

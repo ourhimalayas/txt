@@ -2,29 +2,37 @@
 ---
 
 
-## 上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338280/)
+## 中日财经爆| 中共国富豪刘忠田涉嫌逃税 被美国罚款18亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338455/)
 
-**图/文｜CP**
-**发布时间｜13/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/喪事喜辦觸礁-東方衛視「抗疫特別節目」被上海市民罵停.jpg)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-102.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fxqimg.imedao.com%2F17c93b864328783fee8e370d.png!800.jpg&amp;imgrefurl=http%3A%2F%2Fwww.21cbr.com%2Fmobile%2Farticle%2F85601.html&amp;tbnid=hMfsUf7p4dV2qM&amp;vet=12ahUKEwiJz-e7v5D3AhWfz4sBHcf9DXAQxiAoB3oECAAQEw..i&amp;)
+4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+刘忠田在南加州拥有六家铝业公司，据联邦检察官办公室，违法公司在从中共国进口铝制品时，有意将这些铝型材伪装成货物托盘，逃避2011年实施征收的反倾销税限制。
+
+联邦地区法官R. Gary Klausner裁定Perfectus Aluminum Inc.及相关的五家实体公司，须向联邦海关与边境保护局缴纳巨额赔偿。
+
+该案在2021年8月为期九天审结，洛杉矶一个联邦陪审团裁定被告公司犯有一项共谋罪、九项电汇欺诈罪，以及七项向海关递交虚假和欺诈性文件罪。同时被告的Perfectus Aluminum公司还犯有七项国际洗钱罪。
+
+联邦检察官在一件备忘录中指出，所诉公司及仓储被告都是这一阴谋的参与者，而之所以设立这些公司，就是一个目的，实现逃避海关关税的阴谋。绝大多数铝型材托盘都是通过洛杉矶港及长堤港进口。
+
+获判涉罪的中共国富豪刘忠田，58岁，曾是南加州橙县托斯汀市（Tustin）居民，他是中共国忠旺控股有限公司（亚洲最大铝型材生产商）的创办人，前总裁兼前董事长，面临在美国的刑事指控，尚未到庭。
+
+消息来源:**[南加中國富豪涉逃避關稅 判罰18.3億](https://tw.news.yahoo.com/%E5%8D%97%E5%8A%A0%E4%B8%AD%E5%9C%8B%E5%AF%8C%E8%B1%AA%E6%B6%89%E9%80%83%E9%81%BF%E9%97%9C%E7%A8%85-%E5%88%A4%E7%BD%B018-3%E5%84%84-062017658.html)**
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
 
-上海疫情持续严峻，继昨日短暂下降后，周二再次上升，新增26330宗确诊个案，被封控在家的上海民众，在解封遥遥无期和物资严重短缺的双重压力之下濒临崩溃。不料，中共党媒《东方卫视》竟然在昨晚（12日）发布了一则节目表，邀请包括易烊千玺、迪丽热巴、张艺兴等一线明星助阵，上演抗疫特别节目，为上海市民打气，结果在微博上遭遇了如潮水般的指骂。
-
-有民众留言质问，“物资问题解决了吗？看病问题解决了吗？就这么急着丧事喜办吗？”亦有人揶揄，“让被关在家中上海人看这样的节目，是打气还是讽刺？”巨大的舆论压力之下，东方卫视只得紧急宣布，节目暂缓播出。
-
-据了解，东方卫视在昨晚刊出《众志成城 同心守沪——东方卫视抗疫特别节目》节目表，出演的明星除了萧敬腾、张信哲、曾志伟等港台艺人之外，上海籍演员胡歌、马伊琍亦参与其中。
-
-消息一出，许多民众纷纷到微博上留言，认为东方卫视的特别节目完全脱离现实，老百姓正居家受难，官方就迫不及待的“歌舞升平”。有民众建议，“如果真的要拍，不如走入上海人的家中，进行24小时的实况直播，看看现实中的老百姓到底过着什么日子。”
-
-來源｜[Yahoo](https://tw.news.yahoo.com/%E6%B0%91%E6%80%A8%E9%AB%98%E6%BC%B2-%E4%B8%8A%E6%B5%B7%E6%9D%B1%E6%96%B9%E8%A1%9B%E8%A6%96%E6%8A%97%E7%96%AB%E7%AF%80%E7%9B%AE%E6%80%A5%E5%96%8A%E5%8D%A1-031246982.html)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

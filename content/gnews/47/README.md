@@ -2,36 +2,32 @@
 ---
 
 
-## 辉瑞公司雇用大量人员处理疫苗不良事件
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336587/)
+## 挺乌抗俄！美国再增7.5亿美元军援
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2337091/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译/薇文】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+乌俄战事持续，各国对于乌克兰的军援仍持续涌入，继拜登总统指控普京是战争犯对乌克兰人种族灭绝后，美国官员透露，拜登政府最快将于13日向乌克兰提供7.5亿美元的额外军事援助，用于抵抗俄军入侵。
 
-英国[新闻调查]9日报道，4月1日FDA被勒令强制公布的最新辉瑞公司的文件证实，截止2021年6月，他们至少新增了1800人，专门协助处理涉及mRNA 病毒疫苗大量的不良事件报告。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/phpI98Nud.jpg)图片来源：路透
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1460.png)
+综合外媒报导，美国官员表示，目前关于这笔7.5亿美元军事援助的具体内容为何，政府仍在讨论中。这笔款项预计将由拜登授权从美国股票中转移，无需国会批准。
 
+一名国会高级助理透露，拜登政府即将公布的军援中，可能包括重型地面火炮系统，例如榴弹炮等装备。这笔款项公布后，拜登政府对乌克兰的援助总额将超过30亿美元，其中有25亿美元是在俄罗斯入侵乌克兰后拨出。
 
-文件显示，辉瑞公司就采取行动缓解疫苗不良事件激增一事，在2021年4月已向FDA报告。措施包括增加人手进行数据输入和病例处理，预计2021年6月底增加人员将超过1800名。
+拜登早前在公开场合成普京为战争犯，并让律师们以国际标准决定是否符合种族灭绝标准。对此克里姆林宫强烈批评拜登的言论令人无法接受且不可饶恕，普京对此毫无放松对乌克兰的攻势，并忽视国际各国的指责。
 
-截止3月底，仅英国医药监管机构就收到近17万份的不良事件报告，这1800人能否覆盖所有不良事件非常值得怀疑。文件披露的各类癫痫上千起；各类瘫痪500多起；各类中风700多起。对此，FDA却不以为奇， 或许这也是他们拼命想拖延75年公布这些秘密的原因之一。
+美国再次军援乌克兰，给乌克兰吃定心丸的同时也表达了拜登政府坚决抗俄的决心。在这场东西方阵营的大较量中，美国作为民主社会的灯塔国，绝不允许民主世界受到独裁侵略者的蚕食。乌克兰不单单是欧洲的屏障，如今更是民主世界的脸面，屏障不可丢，脸面更不能丢。普京已经戴上了种族灭绝战争犯的帽子，全力打一场必输的战争，离审判不远了！
 
-疫苗安全、有如果这样定义，难以想象什么才算危险。
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3891312](https://news.ltn.com.tw/news/world/breakingnews/3891312)
 
-原文链接：[Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
+撰稿/发布：一叶知秋
 
-上传/发稿 – 【青青】
-撰稿/翻译/ -【薇文】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

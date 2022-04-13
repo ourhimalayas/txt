@@ -2,22 +2,70 @@
 ---
 
 
-## 人民的权益
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2340634/)
+## 拜登明确普京和俄罗斯侵略军在乌克兰犯下种族灭绝罪行
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2340769/)
 
-**撰稿：银河精灵**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/22-8.jpg)
-俄罗斯作家索尔洛尼琴曾说过：“世界正在被厚颜无耻的信念淹没，那信念就是：正义一无所成，权利无所不能。”
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-这句话套用在现今的国家局势是非常贴切的。俄乌战争，普京一个人的号令可动用俄罗斯千军万马，侵占乌克兰领土，百姓被迫流离失所，儿童妇女遭受侵害，百姓成为志愿军，拿起武器保卫家园。已经一个多月过去了，基辅，哈尔科夫，敖德萨的平民区很多地方炸为平地，家园被毁，现在战争还在延续。再到中共墙内，疫情3年，共产党持续封城制度，施令只要发现病例，封城、封锁小区、封死家门，像抓耗子一样抓病人。是否我们的纵容使权力横行放纵？我们的正义感已经消失？
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-看到很多墙内网友封城期间因物资缺乏，抢不到菜和共产党机构争执无果，大声呐喊却无人理会，第一次觉得我们中国人终于肯为自己发声了。人们要呐喊是因为这关系到个人的生存，可一旦解封呢？大家还会溯源政府的拖沓，不把人民放在眼里的态度吗？一旦解封，可能大家也无暇顾及之前解封时期发生的，还是继续开启“岁月静好”模式。一切恢复正常。
+4月12日，美国白宫官方网站发布了《[拜登总统在空军一号出发前的讲话](https://www.whitehouse.gov/briefing-room/speeches-remarks/2022/04/12/remarks-by-president-biden-before-air-force-one-departure-13/)》（Remarks by President Biden Before Air Force One Departure），明确普京和入侵乌克兰的俄罗斯军队在乌克兰犯下“种族灭绝”罪行。
 
-如果一个国家一党独大，一人掌天下的霸权，你还会相信法律典章制度的完善和可靠性吗？而在共产党领导下的法律制度就是人民一切权益由党决定。就是20只癞蛤蟆的命都比一位妇女的命值钱。我们的侥幸心理作祟，认为都轮不到自己。可在封城的中共国，躲的了初一，躲不过十五。每个人都会面临被胁迫的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Remarks-by-President-Biden-Before-Air-Force-One-Departure-_-The-White-House-scaled.jpg)
 
-而舆论导向也是帮凶，媒体加大宣传导致大众的看法更加扭曲，何况中共的舆论向来都是以党的宣传为基准。一位台湾的国小老师用史密斯在奥斯卡颁奖典礼打主持人为例。老师说言语暴力不可轻视，但打人的行为暴力是要付法律责任更严重时，支持史密斯的学生从9成降到4成。但当老师又说史密斯是家庭暴力受害者，解释史密斯为保护家人不甘家人受委屈出手时，学生们的支持又升到8成。可见我们对事情的解读，是几乎可以被另一个人的言论思维控制。而中国共产党就是用同样的方式来混淆中国老百姓对国际社会的解读。
+有记者问，“总统先生，是什么让您今天使用‘种族灭绝’这个词？”和“总统先生，您是否看到了足够的证据来宣布乌克兰发生种族灭绝，先生？”
 
-郭文贵先生说我们对罪恶的自我认知不够深刻，而这个灾难在现今中共国已经无法避免，如果我们继续秉持事不关己高高挂起的作风，迟早每一个人最终都会成为受害者。作为中国人，我们需要开放，听到不同的声音，才能真正认识自己，知道自己的权益，不会成为被玩弄的愚民和被中共割宰的韭菜。力所能及的去做一些事情，众人拾柴火焰高，相信力量很快会聚集足够大，一起推翻毒害我们的根源“共产党”，当人民有一人一票的选择权，中国人可以重新建立价值观，捍卫属于我们人民本应该有的权益。
+拜登总统回答，“是的，我称之为种族灭绝。越来越清楚的是，普京正在想抹杀即使是能够成为乌克兰人的想法，而且数量——证据越来越多，这与上周不同。从表面上看，俄罗斯人在乌克兰所做的可怕事情正在产生更多证据。我们只会越来越多地了解这场破坏。我们会让律师在国际上决定它是否符合条件，但在我看来确实是这样。谢谢你。”（Yes, I called it genocide.  It has become clearer and clearer that Putin is just trying to wipe out the idea of even being — being able to be Ukrainian. And the amount — the evidence is mounting.  It’s different than it was last week.  The — more evidence is coming out of the — literally, the horrible things that the Russians have done in Ukraine.  And we’re going to only learn more and more about the devastation.And we’ll let the lawyers decide internationally whether or not it qualifies, but it sure seems that way to me. Thank you.）
+
+上述讲话是在拜登总统参加完爱荷华州门洛（Menlo, Iowa）举行的一次活动后，在登上空军一号返回华盛顿前不久，在回答记者提问时说的。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1000.jpeg)
+
+在早些时候在参加爱荷华州门洛举行的一次活动中，拜登总统在谈到战争导致的能源价格飙升时暗示，他认为普京正在对乌克兰进行种族灭绝，但没有提供任何细节。
+
+在拜登总统的上述讲话公开后不久，乌克兰总统在推特上发文“真正领导者的真话@POTUS。直言不讳是很重要的。我们感谢美国已经提供的帮助，我们迫切需要更多的重型武器来防止俄罗斯进一步的暴行。”（Справжні слова справжнього лідера @POTUS. Називати речі своїми іменами важливо, щоб протистояти злу. Ми вдячні за допомогу, яку США вже надали, і терміново потребуємо більше важкого озброєння, щоб запобігти подальшим звірствам Росії.）。感谢拜登总统做出公正的判断和评价。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-13_22-01-33.png)
+
+美国加入的一项联合国条约将种族灭绝定义为“意图全部或部分摧毁一个民族、种族、种族或宗教团体”（intent to destroy, in whole or in part, a national, ethnical, racial or religious group.）而采取的行动。宣布种族灭绝，意味着签署国在种族灭绝被正式确定后进行干预的义务。
+
+过去的美国领导人经常回避正式宣布俄罗斯在乌克兰的血腥运动为种族灭绝，犹豫是否触发根据国际公约要求签署国在种族灭绝被正式确定后进行干预的义务。例如，这一义务被视为是阻止克林顿宣布卢旺达胡图人（Rwandan Hutus）在1994年杀害80万图西族人（ethnic Tutsis）为种族灭绝。
+
+拜登表示，将由律师来决定俄罗斯的行为是否符合国际种族灭绝标准，正如乌克兰官员所声称的那样，但他说“在我看来确实如此，越来越多的证据表明俄罗斯人在乌克兰所做的可怕事情，我们只会越来越多地了解这场破坏，并让律师在国际上决定它是否符合条件”。
+
+美国国务院也登出国务卿安东尼﹒布林肯（ANTONYJ.BLINKEN）的承诺：“当我们警告大规模、前所未有的后果时，普京总统可能认为美国和我们的盟友是在虚张声势。但是——正如拜登总统喜欢说的——大国不能虚张声势，美国不虚张声势。普京总统严重失算。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Holding-Russia-and-Belarus-Accountable-United-States-Department-of-State-1-scaled.jpg)
+
+美国与其盟国和伙伴一道努力确保俄罗斯联邦和白俄罗斯的卢卡申科政权为无端侵略乌克兰付出沉重的经济和外交代价。
+
+迄今为止，美国及其盟友和合作伙伴一起，已经采取了一系列行动，这些行动让俄罗斯和白俄罗斯承担责任，我们已经看到了这些行动的影响，俄罗斯和白俄罗斯经济陷入困境，支持无端战争的个人或实体无处可藏。这些措施包括：
+
+- 对俄罗斯最大的金融机构及其主权财富基金实施了强有力的制裁。
+- 使俄罗斯难以为其境外战争找到资金。
+- 切断了俄罗斯对关键技术的进口。
+- 针对俄罗斯和白俄罗斯精英的金融网络和资产，包括普京总统及其安全理事会成员家族的制裁。
+
+
+目前，美国政府还与包括乌克兰当局和国际机构在内的合作伙伴合作，为在乌克兰犯下的战争罪和其他暴行伸张正义并追究责任，美国国务院称，将使用所有可用的工具来促进对这些行为的问责，包括刑事起诉。
+
+在4月12日美国国务卿布林肯发布美国国务院《2021年国别人权报告》关于中共国的部分，明确提到中共国国家安全部、公安部、武警部队、人民解放军等安全部队成员犯下了严重而普遍的侵权行为，年内，新疆发生了针对以穆斯林为主的维吾尔人以及其他少数民族和宗教少数群体的种族灭绝和危害人类罪。
+
+中共对针对新疆穆斯林为主的维吾尔人以及其他少数民族和宗教少数群体犯下种族灭绝和危害人类罪，通过《中华人民共和国香港特别行政区维护国家安全法》，对香港人民进行残酷镇压，利用中共病毒（COVID-19），对全世界发动生化武器战争，对全人类犯下种族灭绝和战争罪。
+
+我们期待，美国政府及其它各国际组织，继续落实国际公约，在中共犯下战争罪、种族灭绝和危害人类罪被正式确定后，履行进行干预的义务，使用所有可用的工具来促进对这些行为的问责，包括刑事起诉。
+
+参考数据：
+
+[Remarks by President Biden Before Air Force One Departure](https://www.whitehouse.gov/briefing-room/speeches-remarks/2022/04/12/remarks-by-president-biden-before-air-force-one-departure-13/)
+
+[How the United States is Holding Russia and Belarus Accountable](https://www.state.gov/holding-russia-and-belarus-accountable/)
+
+[Володимир Зеленський：Справжні слова справжнього лідера @POTUS. Називати речі своїми іменами важливо, щоб протистояти злу. Ми вдячні за допомогу, яку США вже надали, і терміново потребуємо більше важкого озброєння, щоб запобігти подальшим звірствам Росії.](https://twitter.com/ZelenskyyUa/status/1514010150193008652)
+
+[Biden: Russia war a ‘genocide,’ trying to ‘wipe out’ Ukraine](https://apnews.com/article/russia-ukraine-putin-zelenskyy-biden-genocides-c933e9effd7bb2e30d42be11e0384fcd)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

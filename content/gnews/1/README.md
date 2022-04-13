@@ -2,24 +2,34 @@
 ---
 
 
-## 郭先生解读比利时首相接受战友采访的意义
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340686/)
+## 又有12家中概股公司被列入SEC预摘牌名单
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2340825/)
 
-作者：恩永存
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/mfile_1622552_1_20211203080239-1-scaled.jpg)
+当地时间4月12日，美国证券交易委员会将中共国12家公司添加到观察名单中。根据SEC的要求，这12家公司需要在截止日5月3日前提供证据表明仍然符合上市的条件。这12家公司分别为Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-对此，郭文贵先生也在当天的盖特视频中指出，比利时首相德克罗在波兰边境与新中国联邦记者的合影代表着其在外交上对新中国联邦的默认。 同时，这一举动也表明了德克罗首相接受新中国联邦灭共的理念与行动，并且愿意与我们站在一起。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-88.jpg)
-另一方面，郭先生也称赞德克罗首相具有极高的素养，且正义、勇敢的德克罗一直与波兰和乌克兰人民站在一起，其必将改变整个欧洲。
+据悉这是自3月以来SEC发布的第四批中概股公司名单，根据规定，若这些公司不能在规定时间内提交SEC要求的文件或者文件不符合要求，他们将面临被披露后立即除名的后果。中概股涉及到的公司不乏中共国的互联网巨头公司，如微博、百度、爱奇艺、搜狐等。
 
-参考链接：[4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](https://gettr.com/post/p14y3tsd6bc)
+郭先生此前提到，美国会先制裁一批中共国的喉舌大外宣公司。微博是中共国的社交媒体巨头，而百度、搜狐、爱奇艺是搜索、新闻和视频平台的巨头，这些平台都具有严格的言论审查，并且是中共假宣传洗脑的主要公共平台。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+reference：
 
-总编：Irene木木
-编辑：Delilah小胖 
-审核：Ivy001
-校正/发稿：Fei797
+[https://www.stcn.com/xw/sd/202204/t20220413\_4352889.html](https://www.stcn.com/xw/sd/202204/t20220413_4352889.html)
 
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

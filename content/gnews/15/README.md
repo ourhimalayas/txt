@@ -2,28 +2,39 @@
 ---
 
 
-## 秘翻在线：美国将向乌克兰追加支援7.5亿美元的武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340433/)
+## 有声|美国务院命令非紧急人员及家眷紧急撤离上海
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2340643/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-24.jpg)图片来源：网络截图
-据韩媒《YTN》4月13日的消息，路透社当地时间12日报道说，美国拜登政府计划向乌克兰追加支援7.5亿美元、相当于9240亿韩元的武器。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月11日，美国国务院正式下达撤离驻上海美领馆非必要工作人员的政令。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-1-1.jpg)
+两天前的4月9日，美国驻上海领事馆发布授权撤离非紧急美国政府雇员和所有家属的通知，并提醒旅行者慎重考虑前往中共国。在中共的美国领事馆网路页面只是简略谈及旅行者可能面临的风险，如中共国的不人道防疫政策，将父母和孩子分开等。
 
-路透社援引精通该案件的2名美国官员的话进行了上述报道，并称美国政府最快将于13日公布相关内容。
+时隔仅两日，美国务院正式下达撤离政令和三级旅行禁令。政令内容措辞严厉，历数前往中共国旅行即将面临的严重灾难，着重提到了中共的国家安全部门可以随意行使各种权力，如非法监禁、长期审讯与拘留、非法调查、威胁家人等、在网络散步针对美国的网暴等行为。
 
-此次追加的支援是通过总统应对紧急情况，未经议会批准，可以批准美国防卫品转移的“总统使用权限”实行的。
+美领馆更新了前往中国大陆及香港旅行的15条注意事项。尤其警告美国公民，在中共时不能随意利用言论自由，小心身边的秘密警察、周围的环境，保持低调等等。
 
-据美国政府消息人士的消息，对于具体支援何种武器，还没有做出最终决定。但此次支援的武器中可能包括榴弹炮等重型武器。另外，预计还将包括斯汀格地对空导弹、反坦克杰布林导弹、弹药和防弹衣等。
 
-俄罗斯入侵乌克兰后，到目前为止，美国向乌克兰提供的援助规模已达17亿美元。
 
-路透社报道说,美国国防部为了应对战争持续数年的情况，将与美国武器制造企业前8位讨论能满足乌克兰武器需求的业界生产能力等问题。
+文字版原文：[美国务院命令非紧急人员及家眷紧急撤离上海](https://gnews.org/zh-hans/2335462/)
 
-美国的此次对武器的追加支援，无疑会对俄乌两国的战争增加砝码，使乌克兰有更多的保障和底气。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：[https://www.khan.co.kr/world/world-general/article/202204121555001](https://www.khan.co.kr/world/world-general/article/202204121555001)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-责编：Eric Kim
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

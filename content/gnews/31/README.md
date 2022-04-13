@@ -2,36 +2,25 @@
 ---
 
 
-## 加拿大再向乌克兰提供1亿加币人道救援
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2340032/)
+## 秘翻在线：上海东方卫视举办抗疫主题晚会引公愤
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340286/)
 
-##### 作者：加拿大温哥华扬帆农场 -【自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-加拿大CTV新闻4月9日报道，总理特鲁多周六宣布为乌克兰提供1亿加币人道主义援助，及为来加乌克兰难民提供更多帮助。
+**撰稿：Ping**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1565.png)图片来源：[https://www.theglobeandmail.com](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-13-204358.jpg)
+4月13日凌晨一点，上海东方卫视官方账号发布声明，称感谢大家对上海东方卫视频道的关心，原定于在4月13日晚上的公益晚会《众志成城，同心守沪——东方卫视抗疫特别节目》将暂缓播出。
 
+早在晚会消息公布，表演节目和演员清单曝光网上的时候，就引起上海网友骂声一片。就在上海封锁超过三周的当下，各种人道灾难频出，老人自杀，透析病人得不到医治而死亡，癌症病人无法继续治疗而失去生命，年轻人因为生存压力而自杀，年轻女孩为了家人糊口而被无耻的“大白”奸污，人们为了生存出门寻找食物而被大白殴打……上海东方卫视还想利用电视传媒向党表忠心大唱赞歌吗? 但凡还有点良知和正常思维的百姓，怎么能不感到气愤？
 
-特鲁多是在代表加拿大政府视频参加在华沙由全球公民组织举行的集会上作出这一承诺的。至此，加政府对乌人道主义援助达到2.45亿加币。
+有网友谴责，东方卫视为什么不拍上海防疫的记录片，跟踪一下救援物资的发放和价格，以及孤寡危重人群的生活，还有方舱医院的现状等等。当人们的生存都很难维持，生命都受到威胁的时候，谁还有心情看与民生相悖的歌颂抗疫伟大的文艺晚会吗？
 
-这笔钱将帮助在乌克兰以及难民涌入的邻国提供紧急医疗服务、食物、水和住所。星期六的会议共筹集了124亿元。乌克兰总统泽连斯基在推文中对加拿大的援助致以谢意。欧盟委员会主席冯德莱恩说，欧洲对乌克兰的支持将持续到战争之后，包括战后帮助乌克兰人民重建家园。
+如果此公益晚会播出，更会加剧社会仇富的心理。这些参加晚会的演员，都是身价不菲的明星大腕。他们在舞台上搔首弄姿，歌颂党的抗疫的伟大成绩。而现实中的老百姓却连吃口饭都成为奢侈，肚子饿了二十多天了，他们需要的是如何填饱肚子，如何走出封锁的牢笼，如何让老人儿女正常生活。而与明星大腕的生活相比天上地下，这样会不会增加老百姓的仇富心理，会产生什么样的后果呢？
 
-渥太华也在周六宣布会为来加乌克兰难民提供包括从乌克兰到加拿大的定向包机，短期收入支持和长达两周的酒店住宿。渥太华还承诺对乌克兰政府提供财政上的支持。加拿大正在利用一切机会孤立俄罗斯。
+也许办这场晚会可能就是想把矛盾转移到群众斗群众上来，让老百姓忘记真应该痛恨和推翻的是谁！
 
-原文链接：[https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/](https://www.theglobeandmail.com/canada/article-canada-commits-another-100-million-in-humanitarian-assistance-for/)
+**[新闻来源](https://www.sohu.com/a/537543533_131976)**
 
-上传/发稿 – 【青青】
-撰稿 -【自由法兰西】校对/审核 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
