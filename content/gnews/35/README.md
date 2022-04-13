@@ -2,18 +2,27 @@
 ---
 
 
-## 视频| 比利时首相和新中国联邦战友妮可合影
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2337269/)
+## 北朝鲜金家会很快土崩瓦解
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337336/)
 
-制作：香草山视频部
+作者：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+在4月10日的大直播中，郭先生透露，自从乌克兰勇敢地反抗了俄罗斯侵略，并且得到了西方巨大支持后，世界上所有独裁政权，包括北朝鲜的金家都感到了不可抑制的惶恐。
 
-自NFSC营地在梅迪卡搭建以来，已接受过很多国际媒体的采访，包括接待高级外交官员和采访国家级的外国领导人。身处前线的救援团队每时每刻都在用行动向全世界发出最强音：中共不能代表中国人，新中国联邦人与全世界爱好和平的人站在一起，要消灭中国共产党。
+郭先生指出，金家政权就是一个建立在巨大谎言上的家族王国。并通过奴役整个北朝鲜，让全体人民挨饿受冻，养出了整个国家唯一一个肥胖的人。但在乌克兰英勇的反抗后，金正恩心里很明白，它根本无法跟美国抗衡，曾经引以为豪的核威胁，甚至在马斯克面前也只是无法使用的哑炮。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-27.jpg)
+特别的是北朝鲜将面临粮食危机，并且金家也和中共一样没有足够的外汇进口粮食，根本无法支撑其军队的运转。再加上星链技术和韩国新研发的通讯技术，很容易能把海外信息传播至北朝鲜境内，当饱受饥饿的老百姓知道真相时，就是金家土崩瓦解之日。
 
-4月12日上午10点左右，比利时现任总理亚历山大-德克罗（Alexander De Croo）在随行人员的陪同下，来到梅迪卡边境口岸视察难民的救援工作，身着灭共帽子和马甲的前线记者Nicole得到保安的允许，对总理先生做了现场采访，当得知Nicole来自郭文贵先生领导的消灭中国共产党的新中国联邦时，总理不停地微笑着点头，他称赞新中国联邦在梅迪卡所作出的努力。新中国联邦的记者妮可向他介绍了我们的救援工作，并赢得了赞许：作为人类，我们需要互相帮助，这是最重要的事情，非常高兴听到你们对难民施以援手。采访后，总理先生主动招手示意与Nicole一起合影。比利时首相和新中国联邦战友妮可合影。
+郭先生认为，今年很大的变数是北朝鲜，之后是伊朗、叙利亚、沙特，然后这个连锁反应最终将促进俄罗斯和中共的瓦解。
 
-此时的新中国联邦战友妮可正穿着印有Take down the ccp字样的工作服
+参考链接：[北朝鲜金家会很快土崩瓦解](https://www.gettr.com/streaming/p14iwpvf134)
 
-发稿：雪梨
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

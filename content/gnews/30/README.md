@@ -2,38 +2,41 @@
 ---
 
 
-## 斯洛伐克国防部长：可能向乌克兰出售榴弹炮
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337763/)
+## 澳洲部长紧急赶赴所罗门群岛讨论中共的安全协议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2337906/)
 
-***评论：**就在此报道的前几天，2022年4月8日，斯洛伐克总理赫格（Eduard Heger）表示，为协助乌克兰抵御俄罗斯侵略，现已捐赠S-300防空系统。斯洛伐克是自2月24日俄罗斯对乌克兰采取军事行动以来，已知的第一个向乌克兰提供大型防空系统的国家。当然，前提是，今年3月，北约成员国德国和荷兰向斯洛伐克部署了三套“爱国者”防空系统，而美国也下令将其在欧洲的其中一个爱国者防空系统部署在斯洛伐克。不管如何，斯洛伐克和乌克兰都加强了自身的防空系统，美国、欧盟与邪恶的俄罗斯和中共的大战即将开打。*
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-据《路透社》记者Robert Muller，2022年4月10日报道:
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1477-e1649823293619.png)2022年3月17日，斯洛伐克国防部长雅罗斯拉夫·纳德（Jaroslav Nad）与美国国防部长劳埃德·奥斯汀（Lloyd Austin）在斯洛伐克共和国布拉迪斯拉发（Bratislava）举行的新闻发布会上讲话。图片来源：REUTERS/Radovan Stoklasa
-路透布拉格4月10日电—斯洛伐克国防部长雅罗斯拉夫·纳德(Jaroslav Nad)周日表示，斯洛伐克可能向乌克兰出售部分Zuzana自行榴弹炮。
+翻译/编辑：小红帽
 
-纳德在电视辩论中表示:“我可以确认我们正在 (就出售)进行谈判” 。此外，他没有透露更多细节。
-
-Zuzana 2榴弹炮是一种旧型号的现代化改进版本，使用155毫米弹药，根据弹药类型的不同，有效射程从40公里到50公里(30英里)以上。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源：[https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/](https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/)
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-
-校对：洛杉矶盘古农场 – HotPixel
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Australian_minister_.jpg)图片来源：www.ft.com
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+根据澳洲媒体4月12日报道，澳大利亚太平洋事务部长于当日紧急赶往所罗门群岛，讨论该国可能与中共达成的安全协议。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+国际发展和太平洋部长泽德·塞塞利亚的这次访问是在所罗门群岛政府提出允许中共国海军舰艇驻扎在那里的协议几周后进行的。
+
+“我的讨论将包括拟议中的所罗门群岛-中共国安全协议。此次访问是在最近所罗门群岛政府和澳大利亚官员之间的对话和访问之后进行的，”塞塞利亚先生在一份声明中说。
+
+“直接接触一直在进行，包括外长佩恩和所罗门群岛外长马内莱之间的讨论，以及我本人在布里斯班与太平洋家庭伙伴在帕劳举行的海洋会议之前的周末讨论。
+
+塞塞利亚在声明中强调了所罗门群岛在满足太平洋“安全需求”方面的作用，包括澳大利亚的地缘政治安全。
+
+与此同时，澳大利亚的最高政治领导人就中共在所罗门群岛建立海军基地的可能性展开了正面交锋。
+
+澳大利亚总理莫里森淡化了对国际权力游戏的担忧，而反对党领袖安东尼·艾博年则质疑为什么澳大利亚没有采取更多措施来阻止这笔交易。
+
+国防部长彼得·达顿此前曾表示，在两国签署安全协议的消息传出后，所罗门群岛总理马纳西·索加瓦雷已经明确表示，中共不会被允许在这个太平洋国家建立军事基地。
+
+资料来源：[Australian minister makes urgent dash to Solomon Islands to discuss China security deal](https://www.9news.com.au/national/china-solomon-islands-pm-scott-morrison-says-beijing-military-base-in-pacific-nation-unlikely/2f3c3938-d8d6-4315-85e1-4de8c54ab886)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

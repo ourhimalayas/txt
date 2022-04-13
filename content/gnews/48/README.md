@@ -2,18 +2,23 @@
 ---
 
 
-## 樱花时政┃传四名维吾尔人将被遣返，联合国不作为
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336534/)
+## 樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十四）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336539/)
 
-撰稿：东京樱花团/上善若水
+撰稿：东京樱花团/深藏不露
 
-近日传出4名维吾尔人在沙特利雅得遭逮捕，并将被遣返中共国，据悉，维族女性阿布拉与她的女儿，3月31日在沙特麦加遭警察逮捕。除了这对母女，将一同被遣返中共国的还有另外两名维吾尔男子，他们2020年在麦加遭警方逮捕后被关押至今。针对两人可能遭沙特遣返回中共国，联合国人权专家4月1日曾发表联合声明，呼吁沙特开放信息，并确定他们的下落。
+2022年4月11日郭先生盖特爆料说：俄罗斯正准备对乌克兰进行一场大战，俄罗斯这把要来狠的，德沃尼科夫这个孙子可是一个冷面的，这货从叙利亚回来，是个冷酷无情的人，生化武器、围歼战、导弹，地面攻击会全上，现在他的策略一定是指东打西，说是打整个乌东，可能会打基辅！然后，导弹会像雨一样打过去，斩首泽连斯基！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-5.png)
+习近平已经给俄军送去了武器，他不仅祸害中国人，还要祸害全世界人！未来的中东、东欧、欧洲都将变成火海。接下来就是习近平对北京进行压力测试，这种情况下，攻台时间应该在五月份以前！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.hrw.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fopengraph%2Fpublic%2Fmedia_2020%2F11%2F202010MENA_Saudi_G20.jpg%3Fh%3Dc673cd1c%26itok%3D26Bj027m&amp;imgrefurl=https%3A%2F%2Fwww.hrw.org%2Fzh-hans%2Fnews%2F2020%2F11%2F23%2F377113&amp;tbnid=eWLXlOfrkQTZGM&amp;vet=12ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ..i&amp;docid=Q04u4UEkDzoisM&amp;w=1200&amp;h=630&amp;q=%E6%B2%99%E7%89%B9%E9%81%A3%E8%BF%94%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA&amp;ved=2ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ)
+上个月，俄罗斯军队撤回了他们在基辅以外的阵地，俄罗斯发表正式声明，确认“特别行动”现在将专注于解放东部的顿巴斯地区。狡黠的普京假装对乌克兰进行和平谈判，来麻痹乌克兰，并且谈判条件只要乌东两个已收入囊中的地区！据五角大楼官员透露现在俄罗斯车队发出巨大的攻击信号，准备占领顿巴斯。在商业卫星图像中暴露的车队，绵延达八英里。它包含指挥和供应步兵部队的车辆，还有直升机！据卫星图像显示车队向南驶向伊久姆，而伊久姆位于俄罗斯进军顿巴斯的最前线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-6.jpg)[图片来源](https://assets.zerohedge.com/s3fs-public/styles/16_9_max_700/public/2022-04/donbsconvoy.jpg?itok=vmWas70N)
+俄罗斯新任指挥官德沃尼科夫此人极其凶残，毫无底线曾在叙利亚毫无人性的使用生化武器！据个人判断狡黠的普京利用谈判时间进行军队的大重整，补充各种军事物资，等调整准备完毕后，俄军再声东击西，用中共提供的导弹，直击首都基辅斩首乌克兰总统泽林斯基！同时，认为时机成熟、无所顾忌的习近平一定会同时出手对台作战，拿下台湾！俄军现在已经获得了习近平的大量武器支援，乌克兰必将会有一场硬仗要打，我相信乌克兰军民同仇敌忾、加上各国志愿军一道将俄军彻底击败！而习近平进击台海，必将被全球联军彻底消灭……
 
-海外维吾尔人遭受自由甚至生命风险的同时，联合国人权高管的立场也饱受质疑。联合国人权专员巴切莱特曾传出将于5月访问中共国，并称她可能进入新疆视察人权状况。在此之前，巴舍莱尝试申请视察新疆多年，但中共政府始终未批准申请。
+消息来源：
 
-信息来源：[传四名维吾尔人将被遣返中国 联合国遭质疑立场消极](https://www.dw.com/zh/%E5%82%B3%E5%9B%9B%E5%90%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E4%BA%BA%E5%B0%87%E8%A2%AB%E9%81%A3%E8%BF%94%E4%B8%AD%E5%9C%8B-%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E8%B3%AA%E7%96%91%E7%AB%8B%E5%A0%B4%E6%B6%88%E6%A5%B5/a-61443793)
+1、[4月11号：尊敬的战友们好……中国已经进入人道大灾难的时刻……](https://gettr.com/post/p14p9pd7e23) 
+2、[8-Mile Long Russian Convoy Signals Huge Assault Readied To Take Donbas: Pentagon](https://www.zerohedge.com/military/8-mile-long-convoy-signals-huge-russian-assault-readied-take-donbas-pentagon)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

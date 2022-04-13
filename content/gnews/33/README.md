@@ -2,27 +2,38 @@
 ---
 
 
-## 北朝鲜金家会很快土崩瓦解
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337336/)
+## 斯洛伐克国防部长：可能向乌克兰出售榴弹炮
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2337763/)
 
-作者：日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-在4月10日的大直播中，郭先生透露，自从乌克兰勇敢地反抗了俄罗斯侵略，并且得到了西方巨大支持后，世界上所有独裁政权，包括北朝鲜的金家都感到了不可抑制的惶恐。
+***评论：**就在此报道的前几天，2022年4月8日，斯洛伐克总理赫格（Eduard Heger）表示，为协助乌克兰抵御俄罗斯侵略，现已捐赠S-300防空系统。斯洛伐克是自2月24日俄罗斯对乌克兰采取军事行动以来，已知的第一个向乌克兰提供大型防空系统的国家。当然，前提是，今年3月，北约成员国德国和荷兰向斯洛伐克部署了三套“爱国者”防空系统，而美国也下令将其在欧洲的其中一个爱国者防空系统部署在斯洛伐克。不管如何，斯洛伐克和乌克兰都加强了自身的防空系统，美国、欧盟与邪恶的俄罗斯和中共的大战即将开打。*
 
-郭先生指出，金家政权就是一个建立在巨大谎言上的家族王国。并通过奴役整个北朝鲜，让全体人民挨饿受冻，养出了整个国家唯一一个肥胖的人。但在乌克兰英勇的反抗后，金正恩心里很明白，它根本无法跟美国抗衡，曾经引以为豪的核威胁，甚至在马斯克面前也只是无法使用的哑炮。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-27.jpg)
-特别的是北朝鲜将面临粮食危机，并且金家也和中共一样没有足够的外汇进口粮食，根本无法支撑其军队的运转。再加上星链技术和韩国新研发的通讯技术，很容易能把海外信息传播至北朝鲜境内，当饱受饥饿的老百姓知道真相时，就是金家土崩瓦解之日。
+据《路透社》记者Robert Muller，2022年4月10日报道:
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1477-e1649823293619.png)2022年3月17日，斯洛伐克国防部长雅罗斯拉夫·纳德（Jaroslav Nad）与美国国防部长劳埃德·奥斯汀（Lloyd Austin）在斯洛伐克共和国布拉迪斯拉发（Bratislava）举行的新闻发布会上讲话。图片来源：REUTERS/Radovan Stoklasa
+路透布拉格4月10日电—斯洛伐克国防部长雅罗斯拉夫·纳德(Jaroslav Nad)周日表示，斯洛伐克可能向乌克兰出售部分Zuzana自行榴弹炮。
 
-郭先生认为，今年很大的变数是北朝鲜，之后是伊朗、叙利亚、沙特，然后这个连锁反应最终将促进俄罗斯和中共的瓦解。
+纳德在电视辩论中表示:“我可以确认我们正在 (就出售)进行谈判” 。此外，他没有透露更多细节。
 
-参考链接：[北朝鲜金家会很快土崩瓦解](https://www.gettr.com/streaming/p14iwpvf134)
+Zuzana 2榴弹炮是一种旧型号的现代化改进版本，使用155毫米弹药，根据弹药类型的不同，有效射程从40公里到50公里(30英里)以上。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+文章观点仅代表作者个人，与Gnews平台无关
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+文章来源：[https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/](https://www.reuters.com/world/europe/slovakia-could-sell-howitzers-ukraine-defence-minister-2022-04-10/)
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场 – HotPixel
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

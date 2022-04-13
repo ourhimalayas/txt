@@ -2,27 +2,29 @@
 ---
 
 
-## 上海持续封锁 96%的感染者无症状
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338241/)
+## 上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338280/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-由于新冠病毒疫情扩大,持续封锁的上海市,9日新增确诊病例2万4943人。其中约有96%的2万3937人为无症状。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-84.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn.dmcl.biz%2Fmedia%2Fimage%2F237123%2Fo%2Fshanghai%2Bcovid.jpg&amp;imgrefurl=https%3A%2F%2Fwww.insidethegames.biz%2Farticles%2F1121623%2Fshanghai-covid19-lockdown-china-events&amp;tbnid=fODcg6JsNnU1eM&amp;vet=12a)
-中国卫生当局于4月10日宣布,由于新冠病毒疫情扩大,持续封锁的上海市,9日新增确诊病例2万4943人。其中约有96%的2万3937人为无症状。上海市每日新增确诊病例从7日开始连续三天超过2万人,创历史最多。
+**图/文｜CP**
+**发布时间｜13/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/喪事喜辦觸礁-東方衛視「抗疫特別節目」被上海市民罵停.jpg)
 
-中国全国9日确诊病例2万6355人,其中2万5037人为无症状。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-信息来源：[ロックダウン続く上海、感染者２万４９４３人に…９６％が無症状者](https://www.yomiuri.co.jp/world/20220410-OYT1T50157/)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+上海疫情持续严峻，继昨日短暂下降后，周二再次上升，新增26330宗确诊个案，被封控在家的上海民众，在解封遥遥无期和物资严重短缺的双重压力之下濒临崩溃。不料，中共党媒《东方卫视》竟然在昨晚（12日）发布了一则节目表，邀请包括易烊千玺、迪丽热巴、张艺兴等一线明星助阵，上演抗疫特别节目，为上海市民打气，结果在微博上遭遇了如潮水般的指骂。
+
+有民众留言质问，“物资问题解决了吗？看病问题解决了吗？就这么急着丧事喜办吗？”亦有人揶揄，“让被关在家中上海人看这样的节目，是打气还是讽刺？”巨大的舆论压力之下，东方卫视只得紧急宣布，节目暂缓播出。
+
+据了解，东方卫视在昨晚刊出《众志成城 同心守沪——东方卫视抗疫特别节目》节目表，出演的明星除了萧敬腾、张信哲、曾志伟等港台艺人之外，上海籍演员胡歌、马伊琍亦参与其中。
+
+消息一出，许多民众纷纷到微博上留言，认为东方卫视的特别节目完全脱离现实，老百姓正居家受难，官方就迫不及待的“歌舞升平”。有民众建议，“如果真的要拍，不如走入上海人的家中，进行24小时的实况直播，看看现实中的老百姓到底过着什么日子。”
+
+來源｜[Yahoo](https://tw.news.yahoo.com/%E6%B0%91%E6%80%A8%E9%AB%98%E6%BC%B2-%E4%B8%8A%E6%B5%B7%E6%9D%B1%E6%96%B9%E8%A1%9B%E8%A6%96%E6%8A%97%E7%96%AB%E7%AF%80%E7%9B%AE%E6%80%A5%E5%96%8A%E5%8D%A1-031246982.html)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

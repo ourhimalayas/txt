@@ -2,27 +2,20 @@
 ---
 
 
-## 日本首相岸田文雄：暂不使用刺激手段来推动疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338285/)
+## 视频|请关注并转发俄乌战争前线的新中国联邦救援公告
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2338315/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-日本原计划以体育和演唱会等门票打折来提高年轻人中共病毒疫苗（新冠疫苗）接种率的措施，“不考虑立即开始”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-65.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F04%2Fnp_file_151641.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F04%2F07%2Fnational%2Fvirus-rebound-japan-omicron-subvariant%2F&amp;tb)
-4月14日，日本首相岸田文雄在参议院的全体会议上明确表示,原计划以体育和演唱会等门票打折来提高年轻人中共病毒疫苗（新冠疫苗）接种率的措施，“不考虑立即开始”。
+制作：香草山视频部
 
-另外,关于新型冠状病毒的感染情况,“整体呈上升趋势,但病床使用率等处于低水平”等,表明目前并非需要实施防止蔓延等重点措施。
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-信息来源：[岸田総理、イベントワクワク割「直ちに始めることは考えていない」“まん延防止”適用にも否定的](%20%20)
+发稿：qiutian（邱甜）
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
