@@ -2,99 +2,19 @@
 ---
 
 
-## 新中国联邦咖啡 New Federal State of China coffee
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2337190/)
+## 视频| 比利时首相和新中国联邦战友妮可合影
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2337269/)
 
-作者|紐約香草山农场- 杰西卡爱月亮
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/d6d7c140-5e3b-41e1-85b3-41f7f8d4335d.jpg)
+制作：香草山视频部
 
-> 乌克兰土地上的炮声
-> 
-> The bombing from Ukraine
-> 
-> 打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
-> 
-> Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
-> 
-> 一个个匆忙的黄马甲，汇集成一束光，是力量
-> 
-> The busy yellow vests, gathering into a beam of light, it is strength
-> 
-> 一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
-> 
-> Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
-> 
-> 咖啡不苦 Coffee is not bitter
-> 
-> 苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
-> 
-> 咖啡不苦 Coffee is not bitter
-> 
-> 苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
-> 
-> 咖啡不苦
-> 
-> Coffee is not bitter
-> 
-> 苦的是即使炮声和苦难也不能扭转很多人 的愚昧
-> 
-> The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
-> 
-> 咖啡不苦
-> 
-> coffee is not bitter
-> 
-> 苦的是人们在邪恶势力面前的懦弱与可怜
-> 
-> The bitter is the cowardice and pitifulness of people in the face of evil forces
-> 
-> 端起咖啡杯
-> 
-> Holding up the coffee cup
-> 
-> 品尝战火的苦难，愤怒 悲痛 无奈
-> 
-> To taste the suffering of war, anger, grief, helplessness
-> 
-> 品尝新中国联邦咖啡，香浓 温暖 回味
-> 
-> To taste New Federal State of China coffee, fragrant, warm and aftertaste
-> 
-> 每天一杯新中国联邦咖啡
-> 
-> A cup of New China Federation coffee every day
-> 
-> 品味邪恶与正义较量的滋味
-> 
-> Tasting the taste of the battle between evil and justice
-> 
-> 品味志愿者们传播的力量与温暖
-> 
-> Tasting the power and warmth spread by volunteers
-> 
-> 等正义打败邪恶
-> 
-> Waiting for justice to defeat evil
-> 
-> 再来一杯新中国联邦咖啡
-> 
-> Another cup of New China Federal Coffee
-> 
-> 品尝苦尽甘来的滋味
-> 
-> Tasting the taste of aftering suffering comes happiness.
+自NFSC营地在梅迪卡搭建以来，已接受过很多国际媒体的采访，包括接待高级外交官员和采访国家级的外国领导人。身处前线的救援团队每时每刻都在用行动向全世界发出最强音：中共不能代表中国人，新中国联邦人与全世界爱好和平的人站在一起，要消灭中国共产党。
 
+4月12日上午10点左右，比利时现任总理亚历山大-德克罗（Alexander De Croo）在随行人员的陪同下，来到梅迪卡边境口岸视察难民的救援工作，身着灭共帽子和马甲的前线记者Nicole得到保安的允许，对总理先生做了现场采访，当得知Nicole来自郭文贵先生领导的消灭中国共产党的新中国联邦时，总理不停地微笑着点头，他称赞新中国联邦在梅迪卡所作出的努力。新中国联邦的记者妮可向他介绍了我们的救援工作，并赢得了赞许：作为人类，我们需要互相帮助，这是最重要的事情，非常高兴听到你们对难民施以援手。采访后，总理先生主动招手示意与Nicole一起合影。比利时首相和新中国联邦战友妮可合影。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+此时的新中国联邦战友妮可正穿着印有Take down the ccp字样的工作服
 
-编辑/校对/发稿：Daxia
+发稿：雪梨
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

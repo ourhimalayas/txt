@@ -2,20 +2,18 @@
 ---
 
 
-## 樱花时政 ┃ 中共狼子野心，台出版民防手册以防突袭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336533/)
+## 樱花时政┃传四名维吾尔人将被遣返，联合国不作为
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2336534/)
 
-撰稿：东京樱花团/风翼
+撰稿：东京樱花团/上善若水
 
-据台北路透社4月12日报道：在俄罗斯入侵乌克兰之后，人们的注意力开始集中在台湾应该如何应对中共视台湾为其领土一部分的主张压力和中共加强其在附近的军事活动对以施压的情况下台湾的军队如何反应时，台湾军队就关于台湾公民在紧急情况下如何保护自己的民防指南于12日首次出版。
+近日传出4名维吾尔人在沙特利雅得遭逮捕，并将被遣返中共国，据悉，维族女性阿布拉与她的女儿，3月31日在沙特麦加遭警察逮捕。除了这对母女，将一同被遣返中共国的还有另外两名维吾尔男子，他们2020年在麦加遭警方逮捕后被关押至今。针对两人可能遭沙特遣返回中共国，联合国人权专家4月1日曾发表联合声明，呼吁沙特开放信息，并确定他们的下落。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-59.png)图片来源于网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.hrw.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fopengraph%2Fpublic%2Fmedia_2020%2F11%2F202010MENA_Saudi_G20.jpg%3Fh%3Dc673cd1c%26itok%3D26Bj027m&amp;imgrefurl=https%3A%2F%2Fwww.hrw.org%2Fzh-hans%2Fnews%2F2020%2F11%2F23%2F377113&amp;tbnid=eWLXlOfrkQTZGM&amp;vet=12ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ..i&amp;docid=Q04u4UEkDzoisM&amp;w=1200&amp;h=630&amp;q=%E6%B2%99%E7%89%B9%E9%81%A3%E8%BF%94%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA&amp;ved=2ahUKEwiB-daiso_3AhUSNxoKHe6pDA0QMygEegUIARCkAQ)
 
-国防部全体民防动员办公室的官员在网上新闻发布会上表示说，该手册于俄罗斯入侵乌克兰之前就已计划好编写，手册里详细介绍了如何使用智能手机应用程序找到防空洞，如何补充水和食物，以及如何在紧急情况下准备急救箱的提示。表示发行的目的是应对军事危机和未来可能发生的灾难的信息。并会随着变化将进一步更新相关信息，会放在避难所、医院和商店等民众日常活动频繁的地带以方便拿取。
+海外维吾尔人遭受自由甚至生命风险的同时，联合国人权高管的立场也饱受质疑。联合国人权专员巴切莱特曾传出将于5月访问中共国，并称她可能进入新疆视察人权状况。在此之前，巴舍莱尝试申请视察新疆多年，但中共政府始终未批准申请。
 
-战争对于独裁者来说是维持私欲的手段，但毁于一旦的家园和生命对老百姓来说是无法弥补的伤痛。但是如果不抵抗会怎样？香港已经向台湾展示里失去民主、法治和自由的结局，但乌克兰正在向台湾示范着捍卫民主与自由的决心！愿台湾不畏强权、坚定信念守护家园，我们为你们加油！
-
-信息来源：[台湾、民間防衛ハンドブックを初めて発行　中国の脅威念頭](https://jp.reuters.com/article/taiwan-defence-idJPKCN2M40AY)
+信息来源：[传四名维吾尔人将被遣返中国 联合国遭质疑立场消极](https://www.dw.com/zh/%E5%82%B3%E5%9B%9B%E5%90%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E4%BA%BA%E5%B0%87%E8%A2%AB%E9%81%A3%E8%BF%94%E4%B8%AD%E5%9C%8B-%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E8%B3%AA%E7%96%91%E7%AB%8B%E5%A0%B4%E6%B6%88%E6%A5%B5/a-61443793)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

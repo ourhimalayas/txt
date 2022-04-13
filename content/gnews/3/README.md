@@ -2,10 +2,13 @@
 ---
 
 
-## 2022年4月13日《樱花简报》：日本为接收乌克兰避难民众敲定具体援助方案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2337163/)
+## 2022年4月13日《樱花快报》：全球感染中共病毒人数时隔2个月再增1亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2337197/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220413简报-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220413快报.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
