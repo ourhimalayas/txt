@@ -2,37 +2,29 @@
 ---
 
 
-## 波兰和比利时总理均表示，对俄罗斯的制裁必须更加严厉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338142/)
+## 上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338280/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+**图/文｜CP**
+**发布时间｜13/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/喪事喜辦觸礁-東方衛視「抗疫特別節目」被上海市民罵停.jpg)
 
-#### 翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Polish_Belgian_PM_-1.jpg)图片来源：Alamy
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
-根据外媒4月11日报道，波兰总理马特乌什·莫拉维茨基和比利时总理亚历山大·德克鲁分别同意，如果要对克里姆林宫产生影响，对俄罗斯的制裁必须更加严厉。
+上海疫情持续严峻，继昨日短暂下降后，周二再次上升，新增26330宗确诊个案，被封控在家的上海民众，在解封遥遥无期和物资严重短缺的双重压力之下濒临崩溃。不料，中共党媒《东方卫视》竟然在昨晚（12日）发布了一则节目表，邀请包括易烊千玺、迪丽热巴、张艺兴等一线明星助阵，上演抗疫特别节目，为上海市民打气，结果在微博上遭遇了如潮水般的指骂。
 
-周一，波兰和比利时总理在华沙会面后，莫拉维茨基表示，对乌克兰局势需要迅速采取行动，制裁问题需要国际安排。
+有民众留言质问，“物资问题解决了吗？看病问题解决了吗？就这么急着丧事喜办吗？”亦有人揶揄，“让被关在家中上海人看这样的节目，是打气还是讽刺？”巨大的舆论压力之下，东方卫视只得紧急宣布，节目暂缓播出。
 
-“保持团结很重要。下一轮制裁应该让克里姆林宫相信我们在争取普世价值方面非常坚定，例如生命权、禁止酷刑、自由、正义和团结。”莫拉维茨基补充说，迄今为止对俄罗斯实施的制裁“还不够努力”。
+据了解，东方卫视在昨晚刊出《众志成城 同心守沪——东方卫视抗疫特别节目》节目表，出演的明星除了萧敬腾、张信哲、曾志伟等港台艺人之外，上海籍演员胡歌、马伊琍亦参与其中。
 
-德克鲁同意莫拉维茨基的意见，即制裁应该极其严厉。
+消息一出，许多民众纷纷到微博上留言，认为东方卫视的特别节目完全脱离现实，老百姓正居家受难，官方就迫不及待的“歌舞升平”。有民众建议，“如果真的要拍，不如走入上海人的家中，进行24小时的实况直播，看看现实中的老百姓到底过着什么日子。”
 
-比利时政府已采取措施阻止俄罗斯获得该国的金融资源。欧盟迄今已采取五项制裁措施，但其承认有必要推出进一步的制裁措施。
+來源｜[Yahoo](https://tw.news.yahoo.com/%E6%B0%91%E6%80%A8%E9%AB%98%E6%BC%B2-%E4%B8%8A%E6%B5%B7%E6%9D%B1%E6%96%B9%E8%A1%9B%E8%A6%96%E6%8A%97%E7%96%AB%E7%AF%80%E7%9B%AE%E6%80%A5%E5%96%8A%E5%8D%A1-031246982.html)
 
-“我们应该让俄罗斯更加难以进入金融市场，以阻止俄罗斯的金融机构。”德克鲁宣布比利时准备在这方面采取进一步措施并指出能源转型和摆脱俄罗斯化石燃料的需要。
+* * *
 
-资料来源：[Polish, Belgian PM say sanctions on Russia must have maximum impact](https://www.thefirstnews.com/article/polish-belgian-pm-say-sanctions-on-russia-must-have-maximum-impact-29610)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

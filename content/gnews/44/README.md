@@ -2,34 +2,37 @@
 ---
 
 
-## 多国领导人预期，新中国联邦一定会得到国际社会的认可
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337966/)
+## YouTube在故障中断服务后重新上线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2337998/)
 
-作者：纽约香草山 -飞虹
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+翻译/编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-在4月10日的文贵大直播中，郭先生与救援前线的战友互动时，透露了几个与新中国联邦未来有关的重要信息。
-
-郭先生指出，日本政府专门对救援战友在前线的行动进行了分析，并称如果我们能坚持到战后，新中国联邦一定得到多个国家的承认。不仅如此，欧洲多个一直与郭先生有往来的领导人，也对新中国联邦在俄乌战争前线营救难民的行动给予了高度赞赏，他们认为如果联合国不主动承认新中国联邦的国际地位，一定会有其他国家推动这件事。这件事对于西方国家深刻理解中国人不等于中共，意义深远。另外，郭先生还说，就连一些与中共勾兑极深的犹太人，也因为新中国联邦人对犹太人的救助，对我们表达了由衷的感谢。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-7.jpg)
-参考链接：
-[4/10/2022 文贵直播：日本政府和欧洲一些国家的领导人对新中国联邦在俄乌战争前线营救难民的行动都十分赞赏；](https://gettr.com/post/p14rxiif895)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：天滅中共
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/YouTube_.jpg)图片来源：The Verge
 
 
+根据CNA4月13日报道，Alphabet公司旗下的YouTube周二（4 月 13 日）表示，已经修复了在线视频共享和社交媒体平台上数千名用户的某些功能中断的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+“所有问题都已修复。你现在应该能够登录、在账户之间切换，并在所有服务（YouTube、YouTube TV、YouTube Music、YouTube Studio）和设备上使用账户菜单和导航栏。”YouTube发推文说。
 
+近1万名用户在Downdetector上报告了该服务的问题。该网站通过整理来自多个来源的状态报告来跟踪中断，包括用户在其平台上提交的错误。
 
+YouTube在中断时发推文表示：“登录、切换帐户和使用导航栏是用户面临的问题之一。”
+
+据故障追踪网站称，用户还报告了访问直播电视平台YouTube TV的问题。
+
+目前影响该平台的问题尚未明确。
+
+资料来源：[YouTube back online after outage disrupts services](https://www.channelnewsasia.com/business/youtube-back-online-after-outage-disrupts-services-2622596)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

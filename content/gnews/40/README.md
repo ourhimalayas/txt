@@ -2,34 +2,26 @@
 ---
 
 
-## 挪威考虑援助乌克兰现代化防空系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338063/)
+## 中日财经爆|美国SEC再将搜狐等12家中概股列入“预退市”清单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338125/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/peterwong
 
-据焦点报4月12日报道，挪威议会代表奥拉·埃尔维斯图恩（Ola Elvestven）提议援助乌克兰现代化防空武器，以帮助其扭转战争局势。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04133.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-19.jpeg)挪威防空导弹系统。（图片来自大纪元）
+美国证劵交易委员会（SEC）4月12日，再将搜狐等12家中概股公司加入“预退市”清单，这是自3月以来第四批被纳入名单的中概股公司。
 
-这位政治家指出，西方，特别是北约国家，应该对乌克兰提供更多的现代化武器。他本人向议会提议向乌克兰援助挪威先进地对空导弹系统（Norwegian Advanced Surface to Air Missile System，简称NASAMS）和海军打击导弹（Naval Strike Missile，简称NSM）。
+具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
 
-NASAMS防空系统是由挪威康斯伯格（Kongsberg）武器工厂和美国雷神公司（Raytheon Company）在90年代开发的。该系统配备了AIM-120导弹（先进中程空对空导弹），具有强大的推力和远距离飞行的优点。NASAMS能够拦截机动弹道目标，这意味着NASAMS能够对抗俄罗斯的导弹系统“伊斯坎德尔”。
+SEC声称，上述12家公司提交申辩的截止时间为当地时间5月3日。
 
-伊斯坎德尔导弹(北约代号 SS-X-2)是俄罗斯发展的一种中短程弹道导弹，具有突破反导拦截系统的能力，俄军方号称世界上没有能拦截伊斯坎德尔的系统。
+根据SEC公布的《外国公司问责法》，被列入「确定摘牌名单」的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。如果「确定摘牌名单」中的公司没有提交或提交的文件不符合SEC要求，理论上将会在披露2023年年报后（2024年初）面临立即退市。
 
-挪威的另一种先进海防武器NSM能够通过GPS，和地形参考系统进行导航，以海掠模式飞行，隐身能力强，可识别海上或沿海目标。
+消息来源：[美國SEC再將12家中概股列入「預摘牌名單」　包括搜狐及新濠影匯](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/758516/%E7%BE%8E%E5%9C%8Bsec%E5%86%8D%E5%B0%8712%E5%AE%B6%E4%B8%AD%E6%A6%82%E8%82%A1%E5%88%97%E5%85%A5-%E9%A0%90%E6%91%98%E7%89%8C%E5%90%8D%E5%96%AE-%E5%8C%85%E6%8B%AC%E6%90%9C%E7%8B%90%E5%8F%8A%E6%)
 
-此前，挪威首相乔纳斯·加尔·斯特雷（Jonas Gar Stehre）表示，尽管挪威对军事武器装备的出口政策非常严格，但乌克兰人民面临着“非常情况”，需要军事援助。
-
-参考链接：
-1. [https://reurl.cc/DdNv6e](https://reurl.cc/DdNv6e)
-2. [https://reurl.cc/Qj177p](https://reurl.cc/Qj177p)
-3. [https://reurl.cc/DdNvv5](https://reurl.cc/DdNvv5)
-4. [https://reurl.cc/akp594](https://reurl.cc/akp594)
-
-总编： 老孙
-校对发布：文曦
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

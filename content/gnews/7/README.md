@@ -2,31 +2,22 @@
 ---
 
 
-## 樱花灭共诗——武斗（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
+## 中共邪恶社保“第六险”长期护理保险加速铺开
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2339172/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
+作者：意大利罗马达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/04/第六险.jpeg)网络图片
+经济参考报2022年4月13日报道，作为社保“第六险”的长期护理保险正加速铺开。北京市确定今年全面推行长期护理保险，将试点从石景山区推向全市。重庆市、徐州市等多地也明确今年起将长期护理保险试点扩大到全市。
 
-沪上纷纭军管至，四围浦江战车鸣。
+“中共病毒”后遗症，“中共病毒疫苗”后遗症，典型症状就是各种梗、白血病、癌症等免疫性疾病，不敢想象。这真是老百姓死了，中共卖给你骨灰盒、卖给你墓地，买不起的就鼓励你海葬、花葬……没死的瘫了的卖你“第六险”……
 
-不习十载文革乱，莫尽一尊武斗形。
+中共国长期护理保险试点5年前开始，并于今年在全国要加速铺开。中共媒体宣传引导，各级政府和保险公司配合，什么都不知道的老百姓只能把钱主动的交到中共收割韭菜的大筐里，最后肯定还要感谢“伟大的党”。
 
-市委夺官民怨解，社区圈禁党旗兴。
+作为新中国联邦新中国人的我们都清楚，今年5月份疫苗灾难开始，3-10年癌症高发，各种奇葩的疾病层出不穷，而这个社保“第六险”长期护理保险，就是后疫苗时代，中共给老百姓挖好的又一个大坑，让你死、让你瘫……最后再掏光你的口袋。
 
-摇旗赚取笼中鸟，交口感恩白卫兵。
+参考链接：🔗[多地试点扩面 社保“第六险”或加速铺开](http://www.news.cn/politics/2022-04/13/c_1128554503.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+*编辑/校正/发稿：儒为*
 
  
 

@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 4/13/2022 9:12 AM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.04.13 ET
+![img](https://media.gettr.com/group4/origin/2022/04/13/09/267f20a9-fe53-3b38-f2bb-c02406576e48/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/13/2022 9:05 AM (UTC)`
 
 2022-04-013 | 新中国联邦法制基金乌克兰人道救援行动–波兰救援基地前线报道
@@ -163,13 +172,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 2022.04.12《The Fringe》 Episode 167  CHINA TEM TOLERANCIA ZERO AO VIRUS
 ![img](https://media.gettr.com/group20/origin/2022/04/12/23/b3ef66f6-980c-773a-6cab-52fcde8db399/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/12/2022 11:20 PM (UTC)`
-
-中共走狗郑介甫近日被澳洲驱逐出境<br/><br/>CCP's Running Dog Zheng Jiefu Expelled From Australia<br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/04/12/23/ad965ed1-cbd5-cc07-db59-6a9d5de78489/out.jpg)
 
 ---
 

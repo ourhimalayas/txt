@@ -2,37 +2,61 @@
 ---
 
 
-## 中日财经爆| 中共国富豪刘忠田涉嫌逃税 被美国罚款18亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338455/)
+## COVID-19疫苗副作用集萃(2022.4.13)–康希诺疫苗对身体副作用危害
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338641/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-102.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fxqimg.imedao.com%2F17c93b864328783fee8e370d.png!800.jpg&amp;imgrefurl=http%3A%2F%2Fwww.21cbr.com%2Fmobile%2Farticle%2F85601.html&amp;tbnid=hMfsUf7p4dV2qM&amp;vet=12ahUKEwiJz-e7v5D3AhWfz4sBHcf9DXAQxiAoB3oECAAQEw..i&amp;)
-4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-刘忠田在南加州拥有六家铝业公司，据联邦检察官办公室，违法公司在从中共国进口铝制品时，有意将这些铝型材伪装成货物托盘，逃避2011年实施征收的反倾销税限制。
+整理/编辑：禄森
 
-联邦地区法官R. Gary Klausner裁定Perfectus Aluminum Inc.及相关的五家实体公司，须向联邦海关与边境保护局缴纳巨额赔偿。
-
-该案在2021年8月为期九天审结，洛杉矶一个联邦陪审团裁定被告公司犯有一项共谋罪、九项电汇欺诈罪，以及七项向海关递交虚假和欺诈性文件罪。同时被告的Perfectus Aluminum公司还犯有七项国际洗钱罪。
-
-联邦检察官在一件备忘录中指出，所诉公司及仓储被告都是这一阴谋的参与者，而之所以设立这些公司，就是一个目的，实现逃避海关关税的阴谋。绝大多数铝型材托盘都是通过洛杉矶港及长堤港进口。
-
-获判涉罪的中共国富豪刘忠田，58岁，曾是南加州橙县托斯汀市（Tustin）居民，他是中共国忠旺控股有限公司（亚洲最大铝型材生产商）的创办人，前总裁兼前董事长，面临在美国的刑事指控，尚未到庭。
-
-消息来源:**[南加中國富豪涉逃避關稅 判罰18.3億](https://tw.news.yahoo.com/%E5%8D%97%E5%8A%A0%E4%B8%AD%E5%9C%8B%E5%AF%8C%E8%B1%AA%E6%B6%89%E9%80%83%E9%81%BF%E9%97%9C%E7%A8%85-%E5%88%A4%E7%BD%B018-3%E5%84%84-062017658.html)**
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+**博主: GG李**
+
+**打完康希诺的第五天**
+
+我终于活过来啦，昨晚睡前退烧了，到今早也正常36多，求求别再反复了！现在针眼那一块还是不能碰，抬手也会疼，再就是之前发烧那么多天，人很虚，容易出汗，看来得补一补。
+
+**#****康希诺疫苗 #序贯免疫**
+
+**作者发布于2022-3-30**
+
+**精选评论**
+
+Z1985评论:
+
+我昨天打的这个，晚上开始发烧，持续一天一夜了，一直都是37.8 9不超过38，但是真难受，浑身酸痛，忍不住吃了布洛芬
+
+小U菜的健康生活评论:
+
+我打了2针康希诺，第一张时手臂疼了几天，第二针有经验了，因为国外打辉瑞和莫纳德反应严重，但是国外医生建议大量补充VC，所以我康希诺第二针前也大量VC，所以这次一点感觉都没有。所以你也可以服用VC
+
+呀呀呀评论:
+
+我烧了整整两天了，康希诺
+
+啵啵小霸评论:
+
+康希诺真的是猛男针，我当天打当天烧到38°，浑身疼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1513.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1514.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1515.png)图片来源：小红书
+参考链接：
+
+[高烧，手臂痛，出虚汗](https://www.xiaohongshu.com/discovery/item/6243ae5a000000000102fedc?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729264)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
