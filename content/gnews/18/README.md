@@ -2,38 +2,78 @@
 ---
 
 
-## 加拿大国家储备的大量COVID疫苗开始过期
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2341889/)
+## 恐慌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2342001/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/04/f8dbf425-gettyimages-1231560447-scaled-1.jpg)图片来源： Mail & Guardian
-加拿大媒体《CTV》 4月13日报道，加拿大卫生部表示，自1月份以来，由于注射量减缓，全国库存的近150万剂COVID-19疫苗已经过期。
+作者：香草山健身部 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-253.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/发声.jpg)
 
-其中包括超过42万剂的Moderna疫苗，这些疫苗已于周二过期。
+公而告知又出一例
+不出意外的依然是因为有个毒王，
+从上午到下午，
+从那天到昨天，
+脚不停步的异常活跃，涉及面广。
+朋友圈炸的人仰马翻。
+明明都知道病死率很低
+明明都知道封控断经济
+还是再次滑出封控区
+扩大了防空区，
+刚刚松动的后门又增加了保安，
+人们又恐慌的叹着哎哟哎哟，
+我趁还能去菜场，
+出去透透气。
+卖菜的阿姐偷偷告诉我，
+下午开始封控的路口要加高了，
+不让你们的东西送进送出了
+而且菜场也要关闭。
+隔壁包子店的老板说，
+没有包子了只有奶包，
+等明天你要什么包都没有了
+这下不恐慌的我也恐慌了
+这是要割断物质了
+一旦各区分割彼此中断
+那就真的惨了，
+就是说你望得见田里绿油油的蔬菜，
+近的走几步都可以摘到
+出门你就是违法，
+进来你就是犯法，
+只能饿着肚子望菜兴叹，干着急，
+这是得有多讽刺，
+什么样的恶魔会造成这千古第一的荒诞事，
+看来封控的区域只会越来越多了，
+我只好跟风抢购。
+到处是恐慌的人心恐慌的情绪，
+文明、礼仪、人性往谷底沉陷。
+我趴着窗户傻傻看着绿化带的嫩绿花红，
+叹息千娇百媚的季节，
+被一个疯子的封令
+过成了监狱生活。
+就怕这还只是开始，
+我叫姐妹、同学多备物资，
+好像也没有得到重视，
+因为善良不了解邪恶。
+活在这高墙内
+活在这指鹿为马的今天，
+发达的信息时代，
+反成了中共一手遮天的愚民手段，
+有话说不透，
+有理论不明，
+真相无人信。
+人云亦云的社会，
+只能保持一个人独醒！
 
-这150万剂过期疫苗在2020年12月以来交付给加拿大的1.18亿剂疫苗中占不到2%的份额。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-目前，加拿大的国家库存有1800多万剂，其中绝大部分将在未来四个月内过期。
+编辑/校对/发稿：Fei797
 
-加拿大卫生部表示，一直到去年年底前，疫苗的需求与供应基本一致，因此很少有剂量在使用前过期。
+**更多资讯，更多关注**
 
-过期的剂量不会被立即扔掉，因为加拿大卫生部正在等待制造商关于是否可以延长有效期的消息。
-
-人们逐渐意识到COVID疫苗不能阻止感染和传播COVID病毒，反而有长期副作用，政府很难继续推进施打疫苗。加拿大政府用百姓的纳税钱购买的大量的疫苗将过期，害民伤财。
-
-
-
-原文链接：
-
-[https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
-
-
-
-
-
-编辑，发稿 Spirit
-
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
++2
 
  
 

@@ -45,6 +45,13 @@
 
 ---
 
+`@miles 4/13/2022 9:58 PM (UTC)`
+
+4/10/2022 Miles Guo: Now you see the only thing that Xi Jinping is obsessed with is to bring down the dominance of the US dollar. That's the only concern of the CCP. Xi enjoys watching the Chinese people go hungry because of his experience of starvation.<br/><br/>4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元！<br/>
+![img](https://media.gettr.com/group43/getter/2022/04/13/21/f470e9e1-821d-04bf-404a-d2194760a19a/out.jpg)
+
+---
+
 `@miles 4/13/2022 9:56 PM (UTC)`
 
 4/13/2022 Miles Guo’s GETTR: Whether it's the civilians who were raped and killed because Russia invaded Ukraine, or someone in Changchun who used a bag of instant noodles to trade sex with a family, the only way to solve the world's problems is to take down the CCP! After we take down the CCP, communism will no longer exist in the world.<br/><br/>4/13/2022 文贵盖特：不论是俄乌战争被强奸被杀害的平民，还是发生在长春用一袋方便面睡一家子人的荒唐事件，只有灭共才是解决世界问题的唯一办法！中共被我们灭了之后，世界不可能再有共产主义！<br/>
@@ -131,13 +138,6 @@
 
 【Ukraine Rescue】 04/13/22 Malteser, a well-known German Catholic rescue organization, contacts NFSC volunteer Wen Yao and asks NFSC to provide help for seven Ukrainian refugees and a pet dog. We not only provide them with free accommodation and food for 3 days and arrange a bus to Germany, but also thoughtfully prepare the food and masks they need for the journey.<br/><br/>【乌克兰救援】 04/13/22 德国天主教著名救援组织Malteser联系到新中国联邦志愿者文耀，请新中国联邦为7名乌克兰难民以及一只宠物狗提供帮助。我们不仅为他们提供了3天的免费食宿，安排了去往德国的大巴，还细心地为他们准备好了路上所需的食物和口罩。
 ![img](https://media.gettr.com/group14/getter/2022/04/13/14/9d54b1dc-0285-a301-8bcd-6c9b5763d4d1/out.jpg)
-
----
-
-`@miles 4/13/2022 1:55 PM (UTC)`
-
-【Ukraine Rescue】 04/13/22 NFSC volunteer Nicole telling the two members of the EU Ukraine Mission about the relief work and facilities of the NFSC, and mentioning in particular the cooperation with several international organizations that had rescued 96 Ukrainian orphans, they visit NFSC and ROL Foundation tent and praise the good work of the NFSC.<br/><br/>【乌克兰救援】 04/13/22 新中国联邦志愿者妮可向两位来自欧盟派往乌克兰的工作代表团成员介绍了新中国联邦的救援工作及设施，特别提到曾与多个国际组织合作，救助了96名乌克兰孤儿，他们参观了新中国联邦和法治基金大帐篷，新中国联邦的善举获得了他们的赞许。<br/>
-![img](https://media.gettr.com/group14/getter/2022/04/13/13/42f86a76-ce55-9e85-b4a3-2504715fd212/out.jpg)
 
 ---
 
