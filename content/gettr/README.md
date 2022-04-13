@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 11:43 PM (UTC)`
+
+2022.04.13《The Fringe》 Episode 168<br/>中文同傳：https://gettr.com/streaming/p1573cze34a
+![img](https://media.gettr.com/group39/origin/2022/04/13/23/860241e2-fe85-cfa5-3208-e86d7cfb3aa5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/13/2022 11:06 PM (UTC)`
 
 2022.04.13 NFSC news  World Leaders Indicate Recognition of NFSC Coming Soon
@@ -131,13 +138,6 @@
 `@miles 4/13/2022 2:30 PM (UTC)`
 
 4月13号, 郭文贵先生两首新歌上线第十天<br/>《灭共的雪》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜第三名🥉<br/>香港 🇭🇰，台湾 🇹🇼，新加坡 🇸🇬摇滚歌曲榜首🥇<br/>新西兰🇳🇿，柬埔寨🇰🇭， 老挝 🇱🇦 摇滚榜第二名🥈<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨🇰🇭热门歌曲第二名🥈<br/>柬埔寨 🇰🇭 流行歌曲第一名🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、柬埔寨, 老挝 的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2340138/
-
----
-
-`@miles 4/13/2022 2:09 PM (UTC)`
-
-4/12/2022 Miles Guo’s GETTR: Belgium Prime Minister Alexander De Croo is the first incumbent head of state visiting the New Federal State of China’s rescue tent at Medyka. He invited our fellow fighter Nicole, who was wearing the yellow vest with the slogan “Take Down the Chinese Communist Party” on it,  to take a picture with him. What is the significance of this?<br/><br/>4/12/2022 文贵盖特：比利时总理作为第一位现职国家元首到访新中国联邦梅迪卡救援营地，邀请Nicole战友穿着灭共黄马甲拍照，这意味着什么？<br/>
-![img](https://media.gettr.com/group34/getter/2022/04/13/14/b506c16f-6680-214a-0227-49b5d5823cff/out.jpg)
 
 ---
 

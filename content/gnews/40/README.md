@@ -2,19 +2,36 @@
 ---
 
 
-## 视频文编|疫苗灾难蔓延 储粮备药应对
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2341230/)
+## 美命令非紧急雇员撤离上海
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341219/)
 
-撰稿：东京樱花团/菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-14_012421.png)
-中共国疫情正在蔓延升温，中共官网公布封锁的中高风险区共有321个，各地大举兴建方舱医院，上海累计感染人数已超过10万人，形势复杂严峻，大批军人现身上海，野蛮封城，导致食物严重短缺，急诊、癌症重症病人等无法得到救治，各地多起自杀视频震惊世界，管控手段残忍粗暴，民生灾难频现，处处人祸，断粮成了最大的恐惧，目前的疫情，实为疫苗灾难，将迅速蔓延到全国各地，导致各种形式的封锁，粮食危机随时可能发生，中共极权政权全面控制粮食药品供应，民众应尽早做准备，储粮、储药，同时做好病毒防护。
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-33.png)
+加拿大CTV新闻4月12日报道，美国务院11日命令非紧急政府雇员及其家属撤离上海。因中共”清零”政策，这个拥有2600万人口大都市的许多居民被强制在家封锁已长达三周以上。
 
-消息来源：
-[2022年4月8日《文贵大直播》](https://www.gettr.com/streaming/p147s0qfc4d)
+被困在家的人们感到日益绝望，不能出门，又无法获得充足的食物，而一旦病毒检测呈阳性，就会被送入脏乱差的大规模隔离中心。目前上海总感染人数已超过20万。
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+美国务院表示，周一“命令”撤离是对上周”授权“撤离的升级，即强制撤离上海，而不是任其自行决定。该态势变化反映了美国政府对当前形势的评估。
+
+国务院建议美国人重新考虑去中国旅行，鉴于当地法律和防疫措施的滥用，特别是”父母和孩子被分离 “的风险。北京对上周的自愿离境则做出了愤怒的回应。
+
+虽然中共拒绝将强硬防疫政策同政治挂钩，但习近平要求社会稳定高于一切。据悉，他将在今年党代会上开展第三任任期。
+
+原文链接：[https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244](https://www.ctvnews.ca/world/u-s-pulls-non-emergency-staff-from-shanghai-amid-covid-19-surge-1.5858244)
+
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

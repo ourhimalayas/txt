@@ -2,8 +2,8 @@
 ---
 
 
-## 比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342338/)
+## 灭共是中国人的唯一活路（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342341/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

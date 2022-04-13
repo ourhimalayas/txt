@@ -2,51 +2,152 @@
 ---
 
 
-## 日本同意冻结普京女儿及其他396名俄罗斯人的资产
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342212/)
+## 杰克·波索比克:“他们非常害怕, 证明他们的疫苗无效，这就是他们进行所有这些封锁的原因”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2342282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/040806.jpg)2022 年 4 月 12 日，日本经济、贸易和工业大臣萩生田光一(Koichi Hagiuda)出席在东京举行的新闻发布会，日本政府因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁，包括冻结总统弗拉基米尔·普京两个女儿的资产。(图源：共同社)
+Jack Posobiec
+杰克·波索别克
 
+Well, there I mean, they’re basically admitting that their vaccine doesn’t work
+好吧，我的意思是，他们（中国）基本上承认他们的疫苗不起作用
 
-《日本共同社》2022年4月12日发布，日本内阁周二批准对俄罗斯实施额外制裁，冻结了包括俄罗斯总统普京的两个女儿和包括外交部长谢尔盖·拉夫罗夫的妻子在内的398名俄罗斯人的个人资产，并禁止进口伏特加酒和其他商品。
+And that’s something that even even mainstream publications of people have point-ed out for years
+这就是即使是人们在主流出版物也已经指出多年的事情
 
-为配合美国和欧洲国家采取的惩罚措施，日本将冻结另外28个俄罗斯组织的资产，如与军事业务有关的组织，以及另外两家贷款机构——俄罗斯联邦储蓄银行(Sberbank)和阿尔法银行(Alfa Bank)。针对银行的措施将于 5 月 12 日实施。
+That sign of vaxx does not have the efficacy behind it
+这个标志着疫苗并没有功效
 
-政府还将禁止日本个人和公司在俄罗斯进行任何新的投资，因为俄罗斯自 2 月下旬以来一直在入侵乌克兰。
+that they jumped that they dummied up all the trials for this thing
+他们仓促开始，他们为这件事取消了所有的试验
 
-随着普京的女儿——玛丽亚·沃隆佐娃(Maria Vorontsova)和卡捷琳娜·季霍诺娃(Katerina Tikhonova)——被列入制裁名单，被日本当局冻结资产的俄罗斯个人，包括军事人员和议员的总数达到了499人。
+they dummied up to test
+他们假装去测试
 
-“为防止危机进一步升级，尽快实现停火，阻止俄罗斯入侵乌克兰，我国必须在与国际社会合作的同时，对莫斯科实施严厉制裁。”日本内阁官房长官松野博一(Hirokazu Matsuno)在例行新闻发布会上表示。
+the same way they were lying about what they were doing in Wuhan in the first place
+就像他们一开始就在武汉所做的事情上撒谎一样
 
-同一天，日本经济、贸易和工业大臣萩生田光一(Koichi Hagiuda)表示，作为对莫斯科实施额外制裁的一部分，该国将从下周二开始对酒精饮料、部分木材产品和机器实施进口禁令。共有38种商品受到禁令的限制。这些进口商品价值约160亿日元（1.28亿美元），约占该国从俄罗斯进口的1.1%。
+But they push the thing out
+但他们把事情推了出去
 
-萩田在新闻发布会上重申，日本将根据七国集团上周做出的加快结束对俄罗斯能源依赖计划的承诺，加快摆脱俄罗斯能源供应的进程。
+and they said, rah, rah, hey, roll good to go
+他们说，啊，啊，嘿，好了可以了
 
-关于逐步淘汰俄罗斯煤炭的计划，萩生田光一表示：“首先，我们将仔细评估夏季和冬季的电力需求以及对工业的影响。”但没有详细说明停止进口的具体时间表。俄罗斯煤炭占日本发电用煤的13%和用于钢铁制造以及其他工业生产的炼焦煤的8%。
+We’ll now Omicron had and it may very well come in through the Olympics
+我们现在有奥米克戎，它很可能已经从通过奥运会进入
 
-该部长确保日本将通过使能源来源和供应商多样化以及鼓励除俄罗斯以外的能源生产国增加产量来弥补削减的损失。一位贸易部官员解释说，被禁止进口的商品之所以被选中是因为其他供应商可以提供这些商品，而且对日本经济的影响不会很大。
+and some of the other opening up that they’ve done
+和从他们已经完成的其他一些开放进入的
 
-**简评：**
-作为七国集团（G7）成员之一，日本跟随美国的步伐与其他成员国一起对俄罗斯权势人物、金融网络、国防企业以及俄罗斯的石油和天然气精炼行业进行制裁。显然，如果中共国继续支持俄罗斯，同样的事情也会发生在中共国身上。日本等国的制裁行动清楚表明，那些支持俄罗斯公然对乌克兰发动战争的个人和实体将无处躲藏。接下来的台海战争，因为地缘政治等原因，日本将发挥更大更直接的作用。
+But now it’s hitting and because they’re so terrified of it
+但现在它来袭了，因为他们太害怕新冠病毒了
 
-新闻链接：[Japan OKs asset freezes on Putin’s daughters, 396 other Russians](https://english.kyodonews.net/news/2022/04/c3def6cb040f-urgent-japan-oks-asset-freezes-on-398-russians-incl-putins-daughters.html)
+proving that their vaccine didn’t work
+证明他们的疫苗无效
 
-*翻译/简评：xiaofeimao*
+That’s why they’re getting really locked
+这就是为什么他们真的被封锁了
 
-*校对：Harvey（叶知秋）*
+Steve Bannon
+史蒂夫·班农
 
-* * *
+That’s where you lose the mandate of heaven made everybody get
+那就是你失去了让每个人都强制疫苗的立场，
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Jack Posobiec
+杰克·波索别克
 
+Because again there, it’s not
+因为又在那里，它不是
 
-编辑：【英国伦敦喜庄园编辑部】
+It’s not about your health, right？because we all know
+这与您的健康无关，是吧？因为我们都知道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+by the way that Omicron has been the least significant of all the variants, right?
+顺便说一句，奥米克戎是所有变体中最不严重的，对吧？
 
+Delta was much harsher than than Omicron
+德尔塔比奥米克戎要厉害得多
 
+Omicron is the one that’s
+奥米克戎就是那个
+
+Steve Bannon
+史蒂夫·班农
+
+as far as death
+特别是死亡率
+
+Jack Posobiec
+杰克·波索别克
+
+as far as death
+特别是死亡率
+
+So people were saying it, it’s almost like you almost want to get Omicron
+所以人们说，这几乎就像你几乎想要得过奥米克戎
+
+because then at least you can get the antibodies
+因为那样至少你可以得到抗体
+
+They’re trying to shut this thing down because they want zero COVID
+他们正试图关闭这件事，因为他们想要新冠病毒清零
+
+This is the authoritarianism
+这就是威权主义
+
+This is by the way, this is the world Klaus Schwab want, right?
+顺便说一句，这就是克劳斯·施瓦布想要的世界，对吧？
+
+when he sits down with the other world economic forum leaders at Davos
+当他在达沃斯与其他世界经济论坛领导人坐下来时
+
+and they’re going to Dubai this summer
+今年夏天他们要去迪拜
+
+Dubai in summer does not sound like a fun picnic by the way
+顺便说一句，夏天的迪拜听起来不像是一次有趣的野餐
+
+This is exactly what they’re trying to import to the west
+这正是他们试图向西方输入的东西
+
+is what you saw Macron do with all the crackdowns on the yellow vests
+这就是你看到马克龙对黄背心的所有镇压所做的
+
+as we saw with the great truckers of Canada later
+正如我们在加拿大伟大的卡车司机身上看到的那样
+
+on the way that they were destroyed the way that they completely dismantled that movement
+他们被摧毁的方式就像他们彻底摧毁了那个运动
+
+and all those great freedom fighters
+和所有那些伟大的自由战士
+
+This is the authoritarianism they want to put down
+这就是他们想要放施威权主义的
+
+but they’re doing it in China to their own people of 193 victims of the CCP
+但他们是在中共国对自己的1.93亿名中共受害者做的
+
+原视频链接: [https://gettr.com/post/p14y3brf223](https://gettr.com/post/p14y3brf223)
+
+Date:04/122022
+原视频标题: “They’re so terrified of it proving that their vaccine didn’t work, that’s why they’re conducting all these lockdowns.” -Jack Posobiec
+杰克·波索比克:“他们非常害怕, 证明他们的疫苗无效，这就是他们进行所有这些封锁的原因”
+原视频日期：2022/04/12
+原视频链接https://gettr.com/post/p14y3brf223
+任务编号：KE478(4240)
+视频时间段 :0:00-1:38
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
