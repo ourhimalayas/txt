@@ -2,32 +2,40 @@
 ---
 
 
-## 台湾｜瑞典及欧洲议会议员访台之际 外长吴钊燮专访谈台欧关系、中共对台威胁
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2339338/)
+## 中共在上海等大城市动态清零政策的险恶目的
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2339757/)
 
-**港台前线 zhong｜2022-4-13**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-23.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-瑞典国会及欧洲议会议员首次联合组团访台，10日抵达台湾，12日与总统蔡英文视讯会晤。对于本次访台行程，台湾外交部发新闻稿称“近年台欧关系蓬勃发展、双方友好合作关系迈向新里程碑”。
+##### 作者：加拿大温哥华扬帆农场 -【晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据4月10日文贵先生盖特直播披露， 中共通过在上海等大城市实行动态清零政策，来达到三个险恶目的：
 
-## 具体行动展现对台湾的支持
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1561.png)图片来源：gettr
 
-欧洲议会上去年通过史上第一份“台欧盟政治关系暨合作”报告，法国、爱尔兰、丹麦、义大利等国议会也纷纷通过友台决议案，欧洲议会及法国、波海三国、瑞典等会员国陆续筹组议员团访台。
 
-## TaiwanPlus专访谈“台欧关系、中国对台威胁、俄乌战事的启示”
+一是，国内整个经济将实行闭关锁国，切断供应链，饿死美国。
 
-外长吴钊燮表示，欧盟与台湾加强关系，是基于台湾与欧盟及会员国共享自由、民主及人权普世价值。此外，中共战狼外交也警醒欧盟成员国。
+二是，将所有疫苗灾难导致的人员大量死亡，责任推给国内百姓。
 
-2021年中共有近千架次军机侵扰台湾防空识别区，也不断对台湾发动假讯息、混合战及网路攻击等，美国拜登政府持续对台军售，展现对台湾国防的高度重视。
+三是，通过实行军管状态下的严厉封锁措施，来增加社会承受力，特别是在极限战争状态下的压力测试，为接下来即将发生的战争做好充分准备。
 
-俄乌战争中，乌克兰能坚持抵御是全国人民强大自卫决心，并运用不对称战力，台湾将借镜，并继续与理念相近国家共同抵御威权侵略。
+一切目的就是为拿下台湾，毁掉美元。这是习近平宏大计划中的重要一环。他认为，中国人最终要和世界玩挨饿游戏，看谁更耐饿。未来粮食、能源暴涨，一旦突破美国人的极限承受力，社会就将大乱，美元也会大幅贬值，最终击败美元。
 
-来源｜外交部
+新闻来源：[https://gettr.com/streaming/p14iwpvf134](https://gettr.com/streaming/p14iwpvf134)
 
+上传/发稿 – 【青青】
+撰稿 -【晨熹】
+素材/采编 -【晨熹】
+校对/编辑 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

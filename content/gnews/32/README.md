@@ -2,32 +2,24 @@
 ---
 
 
-## 樱花灭共诗——武斗（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
+## 中日财经爆┃美国通胀创40年新高，加息50个基点势在必然
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339558/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
+撰稿：东京樱花团/深藏不露
 
-沪上纷纭军管至，四围浦江战车鸣。
+2022年4月12日美国劳工部公布3月消费者物价指数（CPI）数据，美国3月未季调CPI按年上涨8.5%，续创40年来新高，预期为8.4%，前值为7.9%。
 
-不习十载文革乱，莫尽一尊武斗形。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/041310.png)
 
-市委夺官民怨解，社区圈禁党旗兴。
+美国3月季调后CPI按月升1.2%，创2005年10月以来新高。美国3月核心CPI月率录得0.3％，续创2021年9月以来新低。
 
-摇旗赚取笼中鸟，交口感恩白卫兵。
+美国CPI数据公布后后，美元指数DXY短线下挫近20点，现报100.10。此前市场预计美国3月CPI恐突破8%，刷新40年高位，随着美国的通货膨胀不断的恶化，美联储下月的美联储会议上加息50个基点势在必然，美联储3月已经公开向金融资本鸣枪示警了！美联储加息可是认真的、不是闹着玩的，聪明的美元资本应该知道该回什么地方了，否则必将损失惨重……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
+消息来源： [8.5%！美国3月通胀爆表 续创40年新高！](https://wallstreetcn.com/articles/3656729)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

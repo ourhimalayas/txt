@@ -2,37 +2,34 @@
 ---
 
 
-## 中日财经爆| 中共国富豪刘忠田涉嫌逃税 被美国罚款18亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338455/)
+## 乌克兰：逮捕了逃亡亲俄政治家并用其交换战俘
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338764/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-102.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fxqimg.imedao.com%2F17c93b864328783fee8e370d.png!800.jpg&amp;imgrefurl=http%3A%2F%2Fwww.21cbr.com%2Fmobile%2Farticle%2F85601.html&amp;tbnid=hMfsUf7p4dV2qM&amp;vet=12ahUKEwiJz-e7v5D3AhWfz4sBHcf9DXAQxiAoB3oECAAQEw..i&amp;)
-4月11日，因涉嫌逃避自中共国进口到美国铝制品关税，目前在逃的中共国忠旺控股有限公司创办人刘忠田，被联邦法院11日判缴18.3亿元赔偿金。
+**撰稿：日本东京方舟农场  子辰**
 
-刘忠田在南加州拥有六家铝业公司，据联邦检察官办公室，违法公司在从中共国进口铝制品时，有意将这些铝型材伪装成货物托盘，逃避2011年实施征收的反倾销税限制。
+4月12日，乌克兰表示，已逮捕逃亡的亲俄政治家维克托·梅德韦丘克（Viktor Medvedchuk），他被视为俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰最亲密的盟友。
 
-联邦地区法官R. Gary Klausner裁定Perfectus Aluminum Inc.及相关的五家实体公司，须向联邦海关与边境保护局缴纳巨额赔偿。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-251.jpg)（图片来自大纪元）
 
-该案在2021年8月为期九天审结，洛杉矶一个联邦陪审团裁定被告公司犯有一项共谋罪、九项电汇欺诈罪，以及七项向海关递交虚假和欺诈性文件罪。同时被告的Perfectus Aluminum公司还犯有七项国际洗钱罪。
+据悉，梅德韦丘克是在乌克兰安全部门SBU的一次特别行动中被捕的。乌克兰安全部门在一份声明中说，梅德韦丘克成为亲俄罗斯的政治家，为侵略国工作多年。为躲避正义身穿乌克兰军装进行伪装。
 
-联邦检察官在一件备忘录中指出，所诉公司及仓储被告都是这一阴谋的参与者，而之所以设立这些公司，就是一个目的，实现逃避海关关税的阴谋。绝大多数铝型材托盘都是通过洛杉矶港及长堤港进口。
+乌克兰总统泽连斯基在周二向全国发表的视频讲话中，提出用梅德韦丘克交换被俄罗斯囚禁的乌克兰战俘。
 
-获判涉罪的中共国富豪刘忠田，58岁，曾是南加州橙县托斯汀市（Tustin）居民，他是中共国忠旺控股有限公司（亚洲最大铝型材生产商）的创办人，前总裁兼前董事长，面临在美国的刑事指控，尚未到庭。
+67岁的梅德韦丘克是一名富有的商人，他领导着乌克兰亲俄反对党终身党。普京是他女儿的教父。
 
-消息来源:**[南加中國富豪涉逃避關稅 判罰18.3億](https://tw.news.yahoo.com/%E5%8D%97%E5%8A%A0%E4%B8%AD%E5%9C%8B%E5%AF%8C%E8%B1%AA%E6%B6%89%E9%80%83%E9%81%BF%E9%97%9C%E7%A8%85-%E5%88%A4%E7%BD%B018-3%E5%84%84-062017658.html)**
+梅德韦丘克因参与将石油和天然气许可证从克里米亚转移到俄罗斯的计划，于2021年5月因叛国罪被软禁。他还被指控泄露乌克兰军事机密。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+自2月24日俄罗斯入侵乌克兰后不久，梅德韦丘克从软禁地点逃脱。他本人一直否认有不当行为，并声称对他的指控是政治镇压。
 
+俄方普京的发言人德米特里·佩斯科夫（Dmitry Peskov）说，正在查验有关梅德韦丘克被捕的消息，因为虽然看到了梅德维丘克被捕的照片，但是并不确定照片的真实性。
 
+此外，据俄国国营广播公司RT报导，梅德韦丘克认为乌克兰转向西方不利于乌克兰利益。俄罗斯总统将梅德韦丘克描述为“乌克兰民族主义者”。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/12/n13710227.htm](https://www.epochtimes.com/gb/22/4/12/n13710227.htm)
+
+总编：老孙
+校对发布：爱放飞
 
  
 
