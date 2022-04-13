@@ -2,24 +2,31 @@
 ---
 
 
-## 前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337878/)
+## 五角大楼：中俄正开发可打击美国卫星的武器
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2338418/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-美国前国务卿蓬佩奥在4月10日播出的一档节目中，呼吁拜登政府加大对台湾的扶持力度。 蓬佩奥指出，首先应当承认台湾是一个独立的主权国家，这不仅是一个正确的选择，也是一个符合美国国家利益的策略。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-32.jpg)
-美国对台湾的立场，不能像对待乌克兰一样重蹈覆辙，等到乌克兰面临巨大危险时，才想起援助武器并提供支持。蓬佩奥强调，习近平和普京一样，他们不会满足于浅尝辄止的扩张，他们对外侵略的野心欲壑难填。如果美国对乌克兰的态度不够坚决，势必会让习近平相信，拿下台湾甚至侵占东南亚，都并非不可能完成的任务。
+**撰稿：日本东京方舟农场  子辰**
 
-参考链接：[20220410蓬佩奧國務卿談論台海危機](https://www.gettr.com/post/p14w2boe856)
+4月12日，据五角大楼情报机构的消息，中共和俄罗斯在继续增加各自太空飞行器舰队的同时，仍在研发和部署能够攻击美国卫星的武器。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1507.png)图片来自大纪元
 
-总编/编辑：天滅中共
-审核：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+援引据彭博新闻社（Bloomberg）报导，美国国防情报局（Defense Intelligence Agency）发布的最新报告，基于中共和俄罗斯官员的声明和相关新闻报导，中共拥有多种不同功率水平的地基激光武器，可用于扰乱、削弱或损坏卫星，其中包括目前能力仍然有限的、只能破坏卫星传感器的激光系统。
+
+报告称，截至今年1月，中共的监视和侦查卫星群已包括了250多个系统，数量仅次于美国。报告称，中共解放军“拥有并操纵着世界上大约一半的ISR系统，其中大部分可以监视、跟踪和瞄准全球范围内的美国及其盟军的部队，尤其是在整个印太地区。这些卫星还使中共解放军能够监测潜在的地区热点，包括朝鲜半岛、台湾、印度洋和南中国海在内。
+
+与此同时，美国国防部说，俄罗斯方面认为美国对太空的依赖是美国的“阿喀琉斯之踵”。因此，它正在“寻求反太空系统以期抵消或阻绝美国的天基力量”，并且“可能会在21世纪20年代中后期部署更有能力破坏卫星的激光武器。”
+
+国防情报局表示，俄罗斯已经“拥有一些能够使卫星传感器失灵的地面激光武器”。
+
+此外，美国防情报局还表示，由于太空发射的数量不断在增加，使得近地轨道变得越来越拥挤。使近地轨道上发生与大型废弃物体碰撞的可能性也大幅增加。
+
+参考链接：
+
+[https://www.epochtimes.com/gb/22/4/12/n13710191.htm](https://www.epochtimes.com/gb/22/4/12/n13710191.htm)
+
+总编：老孙
+校对发布：wenxia16
 
  
 

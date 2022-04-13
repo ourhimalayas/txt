@@ -2,29 +2,21 @@
 ---
 
 
-## 上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338280/)
+## 俄乌战争｜拜登总统公开表示 俄乌战争是种族灭绝
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338768/)
 
-**图/文｜CP**
-**发布时间｜13/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/喪事喜辦觸礁-東方衛視「抗疫特別節目」被上海市民罵停.jpg)
+**港台前线 zhong｜2022-4-13**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-22.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+外媒报导，拜登总统12日于爱荷华州公开谈论油价上涨时表示“你（美国公民）的家庭预算、加满油的能力，不应该取决于一个独裁者在另一半球发起战争实施种族灭绝”。据了解，拜登总统过去评价俄乌战争多使用“战争罪”，惟本次爱荷华州演讲首次使用“种族灭绝”一词。此外，拜登更明白指出“现在愈来愈明显，普京就连乌克兰人的身分认同也想抹灭”。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+事后，拜登总统向媒体确认普京对乌克兰发起战争“他称之为种族灭绝”。
 
-
-上海疫情持续严峻，继昨日短暂下降后，周二再次上升，新增26330宗确诊个案，被封控在家的上海民众，在解封遥遥无期和物资严重短缺的双重压力之下濒临崩溃。不料，中共党媒《东方卫视》竟然在昨晚（12日）发布了一则节目表，邀请包括易烊千玺、迪丽热巴、张艺兴等一线明星助阵，上演抗疫特别节目，为上海市民打气，结果在微博上遭遇了如潮水般的指骂。
-
-有民众留言质问，“物资问题解决了吗？看病问题解决了吗？就这么急着丧事喜办吗？”亦有人揶揄，“让被关在家中上海人看这样的节目，是打气还是讽刺？”巨大的舆论压力之下，东方卫视只得紧急宣布，节目暂缓播出。
-
-据了解，东方卫视在昨晚刊出《众志成城 同心守沪——东方卫视抗疫特别节目》节目表，出演的明星除了萧敬腾、张信哲、曾志伟等港台艺人之外，上海籍演员胡歌、马伊琍亦参与其中。
-
-消息一出，许多民众纷纷到微博上留言，认为东方卫视的特别节目完全脱离现实，老百姓正居家受难，官方就迫不及待的“歌舞升平”。有民众建议，“如果真的要拍，不如走入上海人的家中，进行24小时的实况直播，看看现实中的老百姓到底过着什么日子。”
-
-來源｜[Yahoo](https://tw.news.yahoo.com/%E6%B0%91%E6%80%A8%E9%AB%98%E6%BC%B2-%E4%B8%8A%E6%B5%B7%E6%9D%B1%E6%96%B9%E8%A1%9B%E8%A6%96%E6%8A%97%E7%96%AB%E7%AF%80%E7%9B%AE%E6%80%A5%E5%96%8A%E5%8D%A1-031246982.html)
+来源｜[AP](https://apnews.com/article/russia-ukraine-putin-biden-iowa-europe-97b3a02b61df3012cc5520d4d3b5e806)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

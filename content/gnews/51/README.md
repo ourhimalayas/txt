@@ -2,36 +2,27 @@
 ---
 
 
-## 辉瑞公司雇用大量人员处理疫苗不良事件
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2336587/)
+## 国际货币基金组织為乌克兰設立捐助专用账户
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337876/)
 
-##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译/薇文】
+作者：华盛顿DC农场 – 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+外媒11日报道，为了便于外界向乌克兰提供资金援助，国际货币基金组织执行董事会上周五批准设立了一个特别的专用账户，交由国际货币基金组织直接管理。 该建议最早由加拿大政府提出，并一次性援助了10亿加元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-30.jpg)
+报导指出，该账户将允许捐助者提供赠款和贷款，帮助乌克兰政府稳定经济，满足国际收支和预算方面的需求，同时，还可以拥有更多可调配资金以应对俄军入侵。
 
-英国[新闻调查]9日报道，4月1日FDA被勒令强制公布的最新辉瑞公司的文件证实，截止2021年6月，他们至少新增了1800人，专门协助处理涉及mRNA 病毒疫苗大量的不良事件报告。
+乌克兰财政部长马尔琴科上周表示，目前，乌克兰需要大约 43.7 亿美元的外汇融资，以填补可能发生的预算短缺。 国际货币基金组织上个月还对乌克兰批准了一项 14 亿美元的拨款。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1460.png)
+参考链接：[IMF sets up administered account to allow donors to fund Ukraine](https://www.reuters.com/world/imf-sets-up-administered-account-allow-donors-fund-ukraine-2022-04-11/)
 
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-文件显示，辉瑞公司就采取行动缓解疫苗不良事件激增一事，在2021年4月已向FDA报告。措施包括增加人手进行数据输入和病例处理，预计2021年6月底增加人员将超过1800名。
+总编/编辑：天滅中共
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-截止3月底，仅英国医药监管机构就收到近17万份的不良事件报告，这1800人能否覆盖所有不良事件非常值得怀疑。文件披露的各类癫痫上千起；各类瘫痪500多起；各类中风700多起。对此，FDA却不以为奇， 或许这也是他们拼命想拖延75年公布这些秘密的原因之一。
-
-疫苗安全、有如果这样定义，难以想象什么才算危险。
-
-原文链接：[Pfizer hired at least 1,800 people to process overwhelming number of Adverse Event Reports to its Covid-19 Vaccine](https://dailyexpose.uk/2022/04/09/pfizer-hired-1800-people-to-process-adverse-event-reports-covid-vaccine/)
-
-上传/发稿 – 【青青】
-撰稿/翻译/ -【薇文】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

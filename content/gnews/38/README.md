@@ -2,30 +2,31 @@
 ---
 
 
-## 秘翻在线：高价运费也吸引不了卡车司机开往上海
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2340102/)
+## 中日财经爆┃中共工商银行通知，暂停个人外汇业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2340416/)
 
-**撰稿：葛大饼**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月13日中新经纬报道，工商银行官方发布《关于个人外汇买卖及外币兑换业务相关安排的通告》指出，自北京时间6月12日0时起，工商银行暂停个人外汇买卖业务新客户签约及全部交易品种的开仓交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-260.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg2.jiemian.com%2F101%2Foriginal%2F20211012%2F163404571857724300_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6692885.html&amp;tbnid=NYO20UVmUBqXLM&amp;vet=12ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg..i&amp;docid=f6Jtn8CiFwzEkM&amp;w=640&amp;h=364&amp;q=%E5%B7%A5%E5%95%86%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwjBxb7oiJH3AhUSNxoKHe6pDA0QMygiegUIARCBAg)
+早在2021年，多个银行包括工行在内的多家银行宣布暂停或调整个人外汇买卖业务，当时，工商银行发布了《关于调整账户外汇业务的通告》表示，将于8月15日对账户外汇业务规则和交易系统进行调整。自2021年8月15日起，风险承受能力评估结果为进取型(C5)的客户可继续在我行办理账户外汇业务，并对交易起点、持仓限额、业务停办等新增要求。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-30.jpg)图片来源：6park
-根据2022年4月13日源自《一财网》的报道，目前发往上海的卡车运费报价高达每车三万人民币，但是依然没有司机愿意跑上海，导致物资无法发运上海。
+2021年7月27日，招商银行公告称，“自8月23日起，我行将根据新版协议文本，暂停个人双向外汇买卖业务的新开仓交易功能，客户将无法新发起开仓交易，原有交易平仓不受影响。”还指出个人外汇期权业务即日起停止发售新产品。
 
-卡车司机们的担忧主要是： 1，如果将货物送到上海后，由于是疫区，卡车司机行程码带星，回程在一些地方将无法下高速；2，即便下高速，也会在当地被要求集中隔离，那个隔离的半个月将没有任何收入。
+2021年8月30日，华夏银行发布公告称，将于12月1日起，暂停个人外汇买卖业务，恢复时间另行通知。8月31日，华夏银行又对上述公告进行了澄清声明，声明称，为升级优化技术系统，自12月1日起，华夏银行将暂停办理个人外汇买卖(外汇兑外汇)业务，业务恢复时间将另行通知。
 
-某家大型粮油公司高管建议应充分挖掘铁路运力，开辟抗疫物资供应保障绿色通道，保障上海的粮油物资供应，另外还可以在一些与上海交界的还没有发生疫情的周边地区，设立物资中转基地，帮助外地司机解决后顾之忧。
+此次工行亦强调，本次该行仅调整个人外汇买卖业务，不涉及个人结售汇业务，个人结售汇业务可正常办理。也就是强调了，外汇不能出汇款出国，只能在本国境内操作，但是实景情况是，持有外币在中共国没是不认可与大流通的货币，仅限于银行和个人之间兑换，既然是外币，兑换后不能汇出境外，又不能在国内流通，这样的政策，也彻底封锁了转移资金的道路，也是中共闭关锁国的开始。
 
-今天只是去上海的司机躺平，以后随着封锁的区域越来越多，更多的公路运输供应链将会中断，卡车司机将成为稀缺工种，更不要说未来即将发生的疫苗灾难可能带来的各种车祸，局面不堪设想。
+信息来源：[【工行通告将关闭个人外汇这项业务！】](https://ml.mbd.baidu.com/r/EpSVZpUW2I?f=cp&amp;rs=1651382903&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b31aea2723857e27&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-平常被人遗忘和忽视的卡车司机们在疫情中扮演重要的角色，冒着风险奔波各个城市之间保证人们生活物资的供给，还随时面临被中共交通部门乱收费的困境，甚至被卡在公路上哪里都去不了而饿死的情况出现。国外的卡车司机们已经联合起来因为反对中共新冠疫苗强制走上街头，在这场地球终极之战中看到了许多平凡又闪亮的背影，民主是每个人努力争取得来的！
-
-**[新闻来源](https://news.sina.cn/2022-04-13/detail-imcwiwst1547971.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
-
-
-
-#  
-
-#  
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

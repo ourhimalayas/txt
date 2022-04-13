@@ -2,19 +2,24 @@
 ---
 
 
-## 视频文编|科技的进步必须与内心的信仰相匹配
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2340826/)
+## 乌克兰预计今年5月中下旬可能入欧 英国将全面支持乌克兰迎战
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2340916/)
 
-撰稿：东京樱花团/旺宛宛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-13_232214.png)
-回顾人类历史，每当出现一个大的生产力变化时，一定影响到生产关系、社会制度、军事、甚至人的信仰。科技的高速发展进步，必须与内心的信仰相匹配，才能做到两脚爬山步步高，否则会摔得很惨。科技能带来方便，也能带来灾难，这取决于它是被好人还是坏人利用。所以说人类如果没有美好的信仰，AI、量子等科技越发达，未来就会越恐怖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+这回欧盟和英国重要官员访问乌克兰，代表着欧洲和英国都在争抢乌克兰，并且乌克兰加入欧盟的进程很快会完成，预计今年5月中下旬，乌克兰就有可能 入欧。英国将对俄罗斯进行更残酷的经济制裁，同时提供雇佣军和更多更先进的武器（含反舰反导）帮助乌克兰迎战。之后俄乌战争就会全面升级为欧洲联合对抗俄罗斯和中共国。
 
-消息来源：
-[2022年4月8日《文贵大直播》](https://www.gettr.com/streaming/p147s0qfc4d)
+**视频来源****: 20220410—****郭先生大直播**
+**视频制作****: ****文星光**
+**文案****:****文星光**
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+**更多资讯，更多关注**
+[**焦点20分GETTR**](https://gettr.com/user/20minfocus)
+[**焦点20分TWITTER**](https://twitter.com/20minfocus)**
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

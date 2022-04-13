@@ -2,33 +2,57 @@
 ---
 
 
-## 有声|俄罗斯寡头的超级游艇驶向斐济
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340729/)
+## 驭民五术之做核酸
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2340892/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-据报道，一艘受制裁的俄罗斯寡头的超级游艇“Amadea”本周将在斐济加油，然后返回其母港，这里的当局预计这是最接近新西兰的一艘超级游艇。船主不太可能在船上。他是黄金生产商和涉嫌洗钱者苏莱曼克里莫夫，他在美国、英国和欧盟的制裁名单上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-4.jpg)‘阿玛达’。照片：国际船舶![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.jpg)超级游艇经纪人Duthie Lidgard 照片：RNZ/Dan Cook
-新西兰外交和贸易部（MFAT）表示，目前不知道有任何俄罗斯拥有的船只在新西兰水域受到制裁，并且表示如果“受制裁的船只试图进入新西兰，将被采取行动”。
+##### 改词：微风细雨
+说唱：天已亮、monica、雷鸣、鹿克斯
+音频：天已亮
+视频：0-0
+编导：天已亮、平民主义
+编辑：Mttfly
 
-禁止所有俄罗斯军用或政府拥有的船只，或受制裁个人或实体的船只进入新西兰。与此同时，新西兰卫生部表示，俄罗斯的“Amadea”没有要求在新西兰加油。
+姑苏城外寒山寺，夜半钟声做核酸。
+桃花屋里桃花庵，桃花庵里做核酸。
+酒醒只在花间坐，酒醉还在做核酸。
+众里寻他千百度，那人却在做核酸。
+洛阳亲友如相问，就说我在做核酸。
+我命由我不由天，天天都在做核酸。
+昨夜星辰昨夜风，画楼西畔做核酸。
+小楼一夜听春雨，听完春雨做核酸。
+莫愁前路无知己，知己都在做核酸。
 
-[【援引连结】](https://www.rnz.co.nz/news/national/465191/russian-oligarch-s-superyacht-sailing-towards-fiji)
+姑苏城外寒山寺，夜半钟声做核酸。
+桃花潭水深千尺，不及汪伦做核酸。
+天生我材必有用，千金散尽做核酸。
+正是江南好风景，落花时节做核酸。
+二十四桥明月夜，玉人何处做核酸？
+忽如一夜春风来，千人万人做核酸。
+路漫漫其修远兮，吴江坚持做核酸。
+李白乘舟将欲行，忽闻岸上做核酸。
+千呼万唤使出来，抱着琵琶做核酸。
+天涯何处无芳草，芳草全在做核酸。
+莫愁前路无知己，天下谁不做核酸。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流**瓶
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+清明时节雨纷纷，路上行人做核酸。
+借问酒家何处有，牧童遥指做核酸。
+相见时难别也难，难得一起做核酸
+人生自古谁无死，留取丹心做核酸。
+春风满园关不住，一支红杏做核酸。
+忽如一夜春风来，千人万人做核酸。
+莫愁前路无知己，知己都在做核酸。
+小楼一夜听春雨，深巷明朝做核酸。
+春风杨柳万千条，14亿神州做核酸。
+众里寻他千百度，蓦然回首，那人却在核酸处。
+
+*发布：Mttfly*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,25 @@
 ---
 
 
-## 挺乌抗俄！美国再增7.5亿美元军援
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2337091/)
+## 爱立信无限期暂停俄罗斯业务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337877/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-乌俄战事持续，各国对于乌克兰的军援仍持续涌入，继拜登总统指控普京是战争犯对乌克兰人种族灭绝后，美国官员透露，拜登政府最快将于13日向乌克兰提供7.5亿美元的额外军事援助，用于抵抗俄军入侵。
+作者：纽约磐石农场—在远方/纽约香草山-文希
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-31.jpg)
+据外媒报道，4月11日，瑞典电信设备制造商爱立信发表声明称，鉴于近期发生的事件和欧盟的制裁，公司从当日起，将无限期暂停与俄罗斯客户有关的业务。同时，爱立信在俄罗斯的员工将获得带薪休假。 据悉，爱立信公司在2月下旬战争初期，就停止了向俄罗斯供货。该公司发言人表示，爱立信在俄罗斯有大约600名员工，是俄罗斯最大和第四大电信公司的主要供应商。该公司在俄罗斯与乌克兰的收入，占其总收入的不到2%。 自俄罗斯入侵乌克兰以来，已有包括宜家家居、可口可乐、高盛和麦当劳在内的数百家西方公司，停止了在俄罗斯的业务。爱立信在芬兰的竞争对手诺基亚也曾在2月底表示，他们已经暂停向俄罗斯供货。爱立信和诺基亚的首席执行官分别宣布，两家公司将支持受战争影响的乌克兰的人道主义援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpI98Nud.jpg)图片来源：路透
+参考链接：
+1. [愛立信無限期暫停俄羅斯業務](https://www.rti.org.tw/news/view/id/2129709)
+2. [俄乌局势｜爱立信全面停止在俄运作 600员工放有薪假](https://dushi.singtao.ca/toronto/%E6%96%B0%E9%97%BB/%E5%8D%B3%E6%97%B6%E5%9B%BD%E9%99%85/%E4%BF%84%E4%B9%8C%E5%B1%80%E5%8A%BF%EF%BD%9C%E7%88%B1%E7%AB%8B%E4%BF%A1%E5%85%A8%E9%9D%A2%E5%81%9C%E6%AD%A2%E5%9C%A8%E4%BF%84%E8%BF%90%E4%BD%9C-600%E5%91%98%E5%B7%A5%E6%94%BE%E6%9C%89%E8%96%AA/)
 
-综合外媒报导，美国官员表示，目前关于这笔7.5亿美元军事援助的具体内容为何，政府仍在讨论中。这笔款项预计将由拜登授权从美国股票中转移，无需国会批准。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-一名国会高级助理透露，拜登政府即将公布的军援中，可能包括重型地面火炮系统，例如榴弹炮等装备。这笔款项公布后，拜登政府对乌克兰的援助总额将超过30亿美元，其中有25亿美元是在俄罗斯入侵乌克兰后拨出。
+总编：天滅中共
+编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-拜登早前在公开场合成普京为战争犯，并让律师们以国际标准决定是否符合种族灭绝标准。对此克里姆林宫强烈批评拜登的言论令人无法接受且不可饶恕，普京对此毫无放松对乌克兰的攻势，并忽视国际各国的指责。
-
-美国再次军援乌克兰，给乌克兰吃定心丸的同时也表达了拜登政府坚决抗俄的决心。在这场东西方阵营的大较量中，美国作为民主社会的灯塔国，绝不允许民主世界受到独裁侵略者的蚕食。乌克兰不单单是欧洲的屏障，如今更是民主世界的脸面，屏障不可丢，脸面更不能丢。普京已经戴上了种族灭绝战争犯的帽子，全力打一场必输的战争，离审判不远了！
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3891312](https://news.ltn.com.tw/news/world/breakingnews/3891312)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

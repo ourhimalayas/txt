@@ -2,23 +2,33 @@
 ---
 
 
-## 视频文编|中共最大的原罪就是把AI技术用在了反人类罪上
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2340636/)
+## 有声|俄罗斯寡头的超级游艇驶向斐济
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340729/)
 
-撰稿：东京樱花团/旺宛宛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-13_230143.png)
-每个国家都有军事、国防和科技，但如何使用这些权力和资源，却是一个至关重要的问题。中共在新疆、香港、武汉、上海等全国各地，把AI等高科技完全用在对人民监视镇压的邪恶统治上，用在制造病毒和毒疫苗上……，犯下了种种反人类反人性的滔天罪行。他们冷酷无情、残暴无赖的行径，已让全世界追求和平正义的人们逐渐看清了一切走到一起，同样会用更高的科技手段去制裁、反击、消灭和审判中共。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+据报道，一艘受制裁的俄罗斯寡头的超级游艇“Amadea”本周将在斐济加油，然后返回其母港，这里的当局预计这是最接近新西兰的一艘超级游艇。船主不太可能在船上。他是黄金生产商和涉嫌洗钱者苏莱曼克里莫夫，他在美国、英国和欧盟的制裁名单上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-4.jpg)‘阿玛达’。照片：国际船舶![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.jpg)超级游艇经纪人Duthie Lidgard 照片：RNZ/Dan Cook
+新西兰外交和贸易部（MFAT）表示，目前不知道有任何俄罗斯拥有的船只在新西兰水域受到制裁，并且表示如果“受制裁的船只试图进入新西兰，将被采取行动”。
 
-消息来源：
-[2022年4月8日《文贵大直播》](https://www.gettr.com/streaming/p147s0qfc4d)
+禁止所有俄罗斯军用或政府拥有的船只，或受制裁个人或实体的船只进入新西兰。与此同时，新西兰卫生部表示，俄罗斯的“Amadea”没有要求在新西兰加油。
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+[【援引连结】](https://www.rnz.co.nz/news/national/465191/russian-oligarch-s-superyacht-sailing-towards-fiji)
 
-
-
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流**瓶
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
