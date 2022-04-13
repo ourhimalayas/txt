@@ -2,33 +2,24 @@
 ---
 
 
-## 樱花时政┃德国总统的访乌计划遭拒绝
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338295/)
+## 今天：四位欧盟国家总统将同时访问基辅
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2338317/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月12日，德国总统施泰因迈尔提议和欧盟（EU）其他成员国的领导人访问乌克兰，但遭到了乌方的拒绝。
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-46.jpg)[图片来源](https://www.aa.com.tr/en/africa/germany-president-in-sudan-after-30-years-/1749319)
+据乌克兰联合通讯社4月13日报道，四位欧盟国家领导人当天将同时访问基辅，对乌克兰总统弗拉基米尔·泽伦斯基（Volodymyr Zelensky）表达政治支持和军事援助。
 
-4月12日，德国总统弗兰克-瓦尔特·施泰因迈尔提议他和欧盟（EU）其他成员国的领导人访问乌克兰，但遭到了乌方的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-20.jpeg)四位欧洲领导人前往基辅。（图片来自联合新闻报）
 
-施泰因迈尔是前外交部长，过去曾因其对俄罗斯的友好立场而在国内外受到批评。他最近承认，他对俄罗斯总统普京表示友好是一个错误。
+波兰总统安杰伊·杜达（Andrzej Duda）办公室表示，波罗的海三国领导人，立陶宛总统吉塔纳斯·瑙塞达（Gitanas Nauseda），拉脱维亚总统埃吉尔斯·列维特（Egils Levits）和爱沙尼亚总统阿拉尔·卡里斯（Alar Karis）将和他一起共同前往基辅与泽伦斯基举行会晤。
 
-在访问波兰首都华沙期间，他在新闻发布会上说，他原计划本周与波兰、爱沙尼亚、拉脱维亚和立陶宛的总统一起访问乌克兰首都基辅，以便促进欧洲的团结，向乌克兰表示声援。但基辅表示不欢迎。因为大家都知道施泰因迈尔先生与俄罗斯关系密切。施泰因迈尔属于社会民主党(SPD)，这是他第二次担任总统。他还曾两次在前总理默克尔的政府中担任外交部长。他以对俄罗斯的长期友好立场而闻名，并推动了建造北溪2号管道的计划，该管道将向德国输送俄罗斯天然气。该项目在俄罗斯入侵乌克兰后被停止了。
+自俄乌战争爆发以来，乌克兰首都多次接待外国领导人和政治家访问，许多大使馆已经恢复了在基辅的工作。外国领导人和政治家包括，英国首相鲍里斯·约翰逊（Boris Johnson），奥地利总理卡尔·内哈默（Karl Nehammer）和欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）等。
 
-在欧洲领导人中，英国首相鲍里斯-约翰逊和欧盟委员会主席冯德莱恩上周和本周相继访问了乌克兰。
+参考链接：
+[https://reurl.cc/nEQEev](https://reurl.cc/nEQEev)
 
-信息来源：[ウクライナ、独大統領の訪問拒否 過去に親ロ政策を推進](https://news.yahoo.co.jp/pickup/6423650%20)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+总编：青城道姑
+发布：文曦
 
  
 
