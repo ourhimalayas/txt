@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 10:33 PM (UTC)`
+
+4/13/2022  Miles Guo’s GETTR: The persistence of the fellow fighters of New Federal State of China on the rescue frontline in Ukraine has won the recognition of more countries and international organizations; Mr. Guo is always thinking about the safety of the frontline fellow fighters; the NFSC has been taking actions to make the world realize that the Chinese Communist Party is the biggest threat to humanity<br/><br/>4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可；郭先生无时不刻不挂念着前线战友的安危；新中国联邦人用实际行动让世界认识到中共就是人类最大的威胁<br/>
+![img](https://media.gettr.com/group21/getter/2022/04/13/22/dfb0f549-958e-fd91-b9aa-5fa19884088f/out.jpg)
+
+---
+
 `@miles 4/13/2022 10:10 PM (UTC)`
 
 4/10/2022 Miles Guo: In a totalitarian regime, public opinions are easily manipulated by the state propagandas and most people believe what the government tells them. That's why Putin’s internal support rate went up rather than down before the invasion of Ukraine; Now Putin knows that he is losing, and the only way for him to survive is to keep the war going and let more people die.<br/><br/>4/10/2022 文贵直播: 一个国家机器操纵民意的时候，绝大多数老百姓都是相信的，所以战前普京在内部的支持度不降反升；普京知道基本大势已去，要想侥幸得到一线生机，唯有让战争和死亡继续<br/>
@@ -131,13 +138,6 @@
 
 【Ukraine Rescue】 04/13/22 NFSC volunteer Nicole telling the two members of the EU Ukraine Mission about the relief work and facilities of the NFSC, and mentioning in particular the cooperation with several international organizations that had rescued 96 Ukrainian orphans, they visit NFSC and ROL Foundation tent and praise the good work of the NFSC.<br/><br/>【乌克兰救援】 04/13/22 新中国联邦志愿者妮可向两位来自欧盟派往乌克兰的工作代表团成员介绍了新中国联邦的救援工作及设施，特别提到曾与多个国际组织合作，救助了96名乌克兰孤儿，他们参观了新中国联邦和法治基金大帐篷，新中国联邦的善举获得了他们的赞许。<br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/13/13/42f86a76-ce55-9e85-b4a3-2504715fd212/out.jpg)
-
----
-
-`@miles 4/13/2022 1:37 PM (UTC)`
-
-【Ukraine Rescue】4/12/2022 A reporter from the Finnish Broadcasting Company is particularly grateful for the large tent provided by the New Federal State of China and the Rule of Law Foundation. He slept in our tent last night and also read the Declaration of New Federal State of China on our desk, which he will bring back to Finland. He also inquires in detail about the mission of the NFSC to take down the CCP, and our humanitarian aid activity in Ukraine sponsored by the ROLF. (Part2-2)<br/><br/>【乌克兰救援】4/12/2022 芬兰国家广播电视公司记者特别感谢法治基金新中国联邦提供的大帐篷，他昨晚在我们的帐篷里睡了一觉，还读了桌子上的《新中国联邦宣言》 ，他将带一本回芬兰。 他还详细询问了新中国联邦灭共的使命以及法治基金赞助这次乌克兰人道救援的活动。（下）
-![img](https://media.gettr.com/group40/getter/2022/04/13/13/d33b828c-78e7-8792-5a9c-98a46c4a53be/out.jpg)
 
 ---
 
