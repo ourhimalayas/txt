@@ -2,29 +2,24 @@
 ---
 
 
-## 上海疫情｜丧事喜办触礁 东方卫视“抗疫特别节目”被上海市民骂停
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2338280/)
+## 前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2337878/)
 
-**图/文｜CP**
-**发布时间｜13/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/喪事喜辦觸礁-東方衛視「抗疫特別節目」被上海市民罵停.jpg)
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+美国前国务卿蓬佩奥在4月10日播出的一档节目中，呼吁拜登政府加大对台湾的扶持力度。 蓬佩奥指出，首先应当承认台湾是一个独立的主权国家，这不仅是一个正确的选择，也是一个符合美国国家利益的策略。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-32.jpg)
+美国对台湾的立场，不能像对待乌克兰一样重蹈覆辙，等到乌克兰面临巨大危险时，才想起援助武器并提供支持。蓬佩奥强调，习近平和普京一样，他们不会满足于浅尝辄止的扩张，他们对外侵略的野心欲壑难填。如果美国对乌克兰的态度不够坚决，势必会让习近平相信，拿下台湾甚至侵占东南亚，都并非不可能完成的任务。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+参考链接：[20220410蓬佩奧國務卿談論台海危機](https://www.gettr.com/post/p14w2boe856)
 
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-上海疫情持续严峻，继昨日短暂下降后，周二再次上升，新增26330宗确诊个案，被封控在家的上海民众，在解封遥遥无期和物资严重短缺的双重压力之下濒临崩溃。不料，中共党媒《东方卫视》竟然在昨晚（12日）发布了一则节目表，邀请包括易烊千玺、迪丽热巴、张艺兴等一线明星助阵，上演抗疫特别节目，为上海市民打气，结果在微博上遭遇了如潮水般的指骂。
-
-有民众留言质问，“物资问题解决了吗？看病问题解决了吗？就这么急着丧事喜办吗？”亦有人揶揄，“让被关在家中上海人看这样的节目，是打气还是讽刺？”巨大的舆论压力之下，东方卫视只得紧急宣布，节目暂缓播出。
-
-据了解，东方卫视在昨晚刊出《众志成城 同心守沪——东方卫视抗疫特别节目》节目表，出演的明星除了萧敬腾、张信哲、曾志伟等港台艺人之外，上海籍演员胡歌、马伊琍亦参与其中。
-
-消息一出，许多民众纷纷到微博上留言，认为东方卫视的特别节目完全脱离现实，老百姓正居家受难，官方就迫不及待的“歌舞升平”。有民众建议，“如果真的要拍，不如走入上海人的家中，进行24小时的实况直播，看看现实中的老百姓到底过着什么日子。”
-
-來源｜[Yahoo](https://tw.news.yahoo.com/%E6%B0%91%E6%80%A8%E9%AB%98%E6%BC%B2-%E4%B8%8A%E6%B5%B7%E6%9D%B1%E6%96%B9%E8%A1%9B%E8%A6%96%E6%8A%97%E7%96%AB%E7%AF%80%E7%9B%AE%E6%80%A5%E5%96%8A%E5%8D%A1-031246982.html)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+总编/编辑：天滅中共
+审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

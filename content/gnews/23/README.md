@@ -2,49 +2,43 @@
 ---
 
 
-## 加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341618/)
+## 美CDC将旅行口罩强制令再延长15天
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2341663/)
 
-2022-04-13
+FOXNEWS 4月13日报道，尽管有航空公司的抗议，美疾病控制和预防中心（CDC）还是将其旅行口罩强制令再延长15天。【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/M-4.jpg)cbs58.com
+拜登政府此前曾在3月初将联邦口罩强制令延长至4月18日。航空公司的CEO们在3月24日联合呼吁拜登结束这项任务，但没有成功。
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0T0AIMF3R7M3RVM9LG3.png)屏幕截图：[Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
-#### 加拿大正处于 COVID-19 的第六波浪潮中，谭咏诗医生说
+拜登的CDC之所以做出延长，是因为最近美国的COVID-19病例有所增加。
 
-瑞秋·吉尔摩Rachel Gilmore  全球新闻Global News
+“CDC继续监测奥米克戎的变体的传播，特别是BA.2亚变体，现在占美国病例的85%以上。”CDC发言人克里斯汀·诺德伦（Kristen Nordlund）说，“自4月初以来，美国的7天移动平均病例一直在增加。为了评估病例的增加对严重疾病（包括住院和死亡）和卫生保健系统能力的潜在影响，CDC的口罩强制令目前将继续有效。运输安全管理局（TSA）已决定将安全指令和紧急修正案延长15天，至2022年5月3日。”
 
-发布 四月 12， 2022 11：56 上午
+航空公司的反对信中说：“人们仍然被要求在飞机上戴口罩，却被允许在拥挤的餐馆、学校和体育赛事中聚集而不戴口罩，尽管这些场所都没有飞机那样的保护性空气过滤系统，这毫无意义。”
 
-更新时间 四月 12， 2022 12：17 下午
+“现在是政府废除联邦交通旅行限制的时候了，包括国际出发前测试要求和联邦口罩强制令，这些限制已不再符合当前流行病学环境的实际情况。”
 
-#### 已经证处于第六波COVID-19中
+阿拉斯加航空、阿特拉斯航空、美国航空、达美航空、联邦快递、夏威夷航空、捷蓝航空、西南航空、联合航空、UPS航空和美国航空的首席执行官们在信上签名。
 
-加拿大顶级医生已经证实加拿大正处于第六波COVID-19中。
+首席执行官们继续争辩称，执行口罩强制规定对他们的员工造成了损失，由于与口罩有关的冲突，他们遇到了更多不守规矩的顾客。
 
-全国最新上升的病例属于Omicron的BA.2亚变种，首席公共卫生官谭咏诗Theresa Tam医生周二表示。
+即使所有50个州都宣布了结束口罩强制令的计划，联邦旅行口罩规定仍在实施。
 
-“这取决于加拿大不同的地区，但是总体上看来，可以说我们在加拿大正在经历第六波浪潮”，谭对记者说。
+**快评**：FOXNEWS报道中指出的是各航空公司在抗议联邦的旅行交通中的口罩强制令【1】，NEWSMAX发的则是佛罗里达州共和党州长罗恩·德桑蒂斯（Ron DeSantis）周三难掩对拜登政府的失望，抨击白宫决定延长联邦对公共交通的口罩强制政策。【2】
 
-“加拿大各地区的COVID-19病例都在增加”。
+文中称，共有21个州于3月29日对拜登政府和CDC提起诉讼，希望阻止联邦口罩强制令，要求联邦取消在航空旅行和其他公共交通工具上使用口罩的强制政策。
 
-#### 评论：
+但今天CDC宣布的政策是再延长15天。这个口罩强制令从2021年5月到期，之后被多次延长到4月18日，今天又从4月18日延至5月3日。
 
-还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。
+各州和联邦政府在疫情控制政策上可以说非常不同步，给普通人生活造成的混乱显而易见，但我们看到的是美国这个国家有人在努力、在纠偏，最终会出现制度性的纠偏。
 
-祝新中国联邦的无苗的，有币的 ， 灭共的战友们以及全世界人民顺利度过 5月份。
+够了，借疫情出台的各种封锁和隔离政策还打着科学的名义，其实无论是疫苗还是病毒溯源还是封城隔离过程都充满了反科学、反人类的罪行。这次对人类的伤害可以说史无前例，能存活下来的人类必在战胜邪恶后觉醒。
 
-#### 参考资料
+参考链接：
+【1】[https://www.foxbusiness.com/economy/cdc-extends-travel-mask-mandate-15-days](https://www.foxbusiness.com/economy/cdc-extends-travel-mask-mandate-15-days)
+【2】[https://www.newsmax.com/newsfront/mask-mandates-airplanes-transportation/2022/04/13/id/1065593/](https://www.newsmax.com/newsfront/mask-mandates-airplanes-transportation/2022/04/13/id/1065593/)
 
-1. [Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
-
-编辑：LILY
-
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

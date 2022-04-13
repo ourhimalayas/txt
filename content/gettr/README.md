@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 9:53 PM (UTC)`
+
+4/13/2022 Miles Guo Live: Our frontline fellow fighter gives details about the Belgium Prime Minister’s visiting the New Federal State of China (NFSC)’s rescue tent in Medyka. The Prime Minister told our fellow fighter Nicole that he was indeed on his way to our NFSC’s tent, and invited Nicole, who was wearing our signature yellow vest, to take a picture with him. Immediately after the Prime Minister’s departure, a NGO from Belgium delivered to our tent many rescue supplies that are in urgent need. Is this a coincidence or a tacit collaboration?<br/><br/>4/13/2022：文贵直播：前线战友讲述昨天比利时总理参观新中国联邦救援帐篷的详细经过. 总理明确告诉Nicole战友他正在去新中国联邦帐篷的路上，并主动邀请穿着黄马甲的Nicole与他一起合影，随即比利时的NGO组织便送来了我们急需的救援物资，这是偶然还是默契？<br/>
+![img](https://media.gettr.com/group31/getter/2022/04/13/21/86f24fbd-2696-3c9a-1b72-6d1d01aeaea6/out.jpg)
+
+---
+
 `@miles 4/13/2022 8:52 PM (UTC)`
 
 2022.04.13  新中国联邦 | 喜健康     中共病毒感染后遗症的中医治疗经验点滴；营养师的私房经续集
@@ -147,13 +154,6 @@
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.04.13 ET
 ![img](https://media.gettr.com/group4/origin/2022/04/13/09/267f20a9-fe53-3b38-f2bb-c02406576e48/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 9:05 AM (UTC)`
-
-2022-04-013 | 新中国联邦法制基金乌克兰人道救援行动–波兰救援基地前线报道
-![img](https://media.gettr.com/group21/origin/2022/04/13/09/21c30c0c-1061-d31e-cb1c-f739a976cdc5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

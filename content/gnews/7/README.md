@@ -2,32 +2,78 @@
 ---
 
 
-## 卫星图像显示俄罗斯准备进攻顿涅茨克
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2341964/)
+## 恐慌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2342001/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：香草山健身部 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-253.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/发声.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+公而告知又出一例
+不出意外的依然是因为有个毒王，
+从上午到下午，
+从那天到昨天，
+脚不停步的异常活跃，涉及面广。
+朋友圈炸的人仰马翻。
+明明都知道病死率很低
+明明都知道封控断经济
+还是再次滑出封控区
+扩大了防空区，
+刚刚松动的后门又增加了保安，
+人们又恐慌的叹着哎哟哎哟，
+我趁还能去菜场，
+出去透透气。
+卖菜的阿姐偷偷告诉我，
+下午开始封控的路口要加高了，
+不让你们的东西送进送出了
+而且菜场也要关闭。
+隔壁包子店的老板说，
+没有包子了只有奶包，
+等明天你要什么包都没有了
+这下不恐慌的我也恐慌了
+这是要割断物质了
+一旦各区分割彼此中断
+那就真的惨了，
+就是说你望得见田里绿油油的蔬菜，
+近的走几步都可以摘到
+出门你就是违法，
+进来你就是犯法，
+只能饿着肚子望菜兴叹，干着急，
+这是得有多讽刺，
+什么样的恶魔会造成这千古第一的荒诞事，
+看来封控的区域只会越来越多了，
+我只好跟风抢购。
+到处是恐慌的人心恐慌的情绪，
+文明、礼仪、人性往谷底沉陷。
+我趴着窗户傻傻看着绿化带的嫩绿花红，
+叹息千娇百媚的季节，
+被一个疯子的封令
+过成了监狱生活。
+就怕这还只是开始，
+我叫姐妹、同学多备物资，
+好像也没有得到重视，
+因为善良不了解邪恶。
+活在这高墙内
+活在这指鹿为马的今天，
+发达的信息时代，
+反成了中共一手遮天的愚民手段，
+有话说不透，
+有理论不明，
+真相无人信。
+人云亦云的社会，
+只能保持一个人独醒！
 
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Ukraine-Krieg-Satellitenbild-Bilokurakyne.jpg)
+编辑/校对/发稿：Fei797
 
+**更多资讯，更多关注**
 
-图片来源：德新社
-
-俄罗斯即将在乌克兰东部发动大规模攻势。卫星图像显示俄罗斯军队的准备工作。
-
-据乌克兰军方称，俄罗斯军队现在准备进攻顿涅茨克和赫尔松地区。军方在 Facebook 帖子中引用了“可用信息”。
-
-在俄罗斯对乌克兰北部的初步攻势失败后，莫斯科的军队现在集中在该国东部地区。乌克兰国防部发言人奥列克桑德尔·莫图西亚尼克本周早些时候表示：“敌人几乎完成了对东部发动袭击的准备工作。攻击很快就会发生。”
-
-卫星图像显示俄罗斯军队正在为进攻做准备。总部位于美国的 Maxar Technologies 周一发布了一张图片，显示了乌克兰东部 Bilokurakyne 附近的俄罗斯军车车队。
-
-简评：俄罗斯重新集结军队， 在东部地区想要发起新的更猛烈的攻击， 今天美国也为了应对这次进攻追加了8亿的军事支援， 相信乌克兰能够度过这个难关， 战胜俄罗斯。
-
-🔗[https://www.welt.de/politik/ausland/article238148579/Ukraine-Krieg-Satellitenbilder-zeigen-russischen-Konvoi.html](https://www.welt.de/politik/ausland/article238148579/Ukraine-Krieg-Satellitenbilder-zeigen-russischen-Konvoi.html)
-
-编辑发表： Shuizhuyu
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
++2
 
  
 

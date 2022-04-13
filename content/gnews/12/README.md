@@ -2,46 +2,42 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月13日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2341873/)
+## 新中国联邦里程碑：比利时外交默认新中国联邦
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2341947/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1622.png)
-**1、巴菲特副手芒格今年一季度抛售30.2万份阿里巴巴ADR，减持幅度高达50%**
-![img](https://media.gettr.com/group33/origin/2022/04/13/02/b8378112-1b60-3092-d25a-747988b2c9ab/921f69a9e1533b9cf4813d5f53b3c949_500x0.png)
-巴菲特副手芒格曾担任董事长的Daily Journal今年一季度抛售30.2万份阿里巴巴ADR，减持幅度高达50%，与去年四季度该公司买入30万份阿里ADR的情况截然不同。Daily Journal从2021年一季度开始建仓阿里巴巴，并在随后的几个季度里越跌越卖。目前阿里巴巴股价已较芒格建仓之初，大幅下跌约50%。芒格自1977年以来一直担任Daily Journal公司的董事长，直到今年3月28日辞去董事长一职，但仍然是公司的董事。芒格拒绝就Daily Journal出售阿里巴巴股票一事置评。链接 [https://www.reuters.com/article/daily-journal-alibaba-stake-idCNL6S2W9087](https://www.reuters.com/article/daily-journal-alibaba-stake-idCNL6S2W9087)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-6.jpg)
+4月12日，比利时首相亚历山大`·德克洛访问了Medyka的人道主义救援中心，这里是接收乌克兰难民的地方。
 
-**2、多家银行下调个人账户线上交易限额 ，有银行单日限额1万元**
-![img](https://media.gettr.com/group13/origin/2022/04/13/02/9ea0d187-3fb3-26d4-368f-5ee101796857/c0147f3c979e5664709d310cc00f9278_500x0.png)
-银行机构在不断加大对个人账户线上渠道的管理力度。光大银行、浦发银行、农业银行等多家银行相继发布公告，下调个人账户线上相关业务交易限额，包括线上转账限额及网上支付交易限额等。
+德克洛首相与他的安全团队到达Medyka，并接受了国际媒体的采访，其中包括我们NFSC的记者Nicole。Nicole向首相解释说，新中国联邦的使命是推翻中国共产党。新中国联邦人已经帮助了超过10000多位难民。 当听到Nicole提到郭文贵先生这个名字是新中国联邦的创始人时，德克洛首相回应说：最重要的是，作为人类，我们要帮助别人，我很高兴听到你们在帮助他们。
 
-财经G评：温水煮青蛙式的金融管控，中共只要管住老百姓的钱袋子、菜篮子、再加上中共手中的枪杆子！14亿人变奴隶！
+德克洛总理邀请Nicole与他合影，Nicole背心上的 “推翻中国共产党 “的标语非常醒目。他对Nicole的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，好像对这一切都非常熟悉。说明新中国联邦早就获得了国际社会的关注与默认。
 
-链接 [http://finance.eastmoney.com/a/202204122340210788.html](http://finance.eastmoney.com/a/202204122340210788.html)
+Nicole邀请首相在我们的救援帐篷里喝杯咖啡，我们有Medyka最大的帐篷、最好的咖啡。首相回答说：”我们正朝着这个方向前进”。 他是第一位访问新中国联邦救援帐篷的在任国家元首。
 
-**3、美国再将12家中概股公司列入“预摘牌名单”**
-![img](https://media.gettr.com/group27/origin/2022/04/13/03/02bd881c-36cf-c97d-fc2d-e33374759301/123165d676c69bd6e1f8730f71cf7d73_500x0.png)
-4月12日美国证劵交易委员会（SEC）再将12家中概股公司加入“预摘牌”名单，这是自3月以来第四批被纳入名单的中概股公司。具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
+郭先生在4月12日的直播中回应了这次首相的访问。他说：
 
-财经G评：看来中共在上个月举行的《金融稳定题会议》示好美国SEC，一点效果也没有！
+—-这对中国新联邦国家来说意义重大! 这叫外交默认。这是一个默认的外交声明！这意味着我们（国家）认可你们灭掉中国共产党。我们（比利时）认可（NFSC）!
 
-链接 [https://finance.sina.com.cn/roll/2022-04-13/doc-imcwiwst1511369.shtml](https://finance.sina.com.cn/roll/2022-04-13/doc-imcwiwst1511369.shtml)
+郭先生对比利时首相亚历山大德克洛和他的家族将改变欧洲充满信心。他给予首相和他的家人极高的赞赏：他是一个很勇敢，有强烈的正义感，接受过正规的高等教育，而且他的家人素质特别高。
 
-**4、中共国4月份已有14城松绑购房政策**
-![img](https://media.gettr.com/group30/origin/2022/04/13/03/9418be27-e851-2490-2e2f-6134af3b28e6/41eeee16f6cec5fcead6eb5e8caa50cf_500x0.png)
-4月以来，已经有衢州、秦皇岛、大连、绵阳、兰州、丽水、台州、安顺、苏州、南京、咸宁、荆门、黄石、宜昌等14城松绑了购房政策，涉及限购、限贷、限售、公积金贷款、房贷利率等内容。有业内人士认为，今年来房地产政策松绑力度和范围明显扩大，苏州、南京放松限购或成为热点城市楼市政策风向标，未来市场下行压力较大的二线城市或将效仿进行局部放松，乃至取消“四限”（限购、限贷、限售、限价）。
+在国际媒体面前，亚历山大·德克洛首相指责俄罗斯在乌克兰造成了一场人道主义灾难。他说：
 
-链接  [https://finance.sina.com.cn/jjxw/2022-04-13/doc-imcwiwst1514141.shtml](https://finance.sina.com.cn/jjxw/2022-04-13/doc-imcwiwst1514141.shtml)
+—我看到人性在这场不可思议的战争中被击的粉碎，俄罗斯军队所做的事情离人性是如此遥远。
 
-**5、USDC 稳定币发行中心聘请 2 名高管监督监管、运营**
-![img](https://media.gettr.com/group33/origin/2022/04/13/03/aa928957-7b52-2a10-50f6-1d6c8e53b05d/76ffdd9f2108b5edefacceff8244c0ee_500x0.png)
-第二大[稳定币](https://www.coindesk.com/learn/what-is-a-stablecoin/)的发行人聘请了两名新高管来监督政策和运营。Centre 是 Circle 和 Coinbase 于 2018 年成立的管理美元硬币 (USDC) 的财团，周二宣布，现任乔治城大学法学教授、美国证券交易委员会 (SEC) 前监管机构 Linda Jeng 将加入 Centre 担任首席执行官政策和监管官员。随着全球稳定币市场持续增长并引起立法者的关注，Center 已采取措施——包括对 USDC 的支持变得越来越透明——以保持监管机构的青睐。USDC 的市值超过 500 亿美元。
+有媒体问首相有什么针对俄罗斯的措施，包括军事方面的。
 
-链接：[https://www.coindesk.com/policy/2022/04/12/usdc-stablecoin-issuer-centre-hires-2-executives-to-oversee-regulation-operations/](https://www.coindesk.com/policy/2022/04/12/usdc-stablecoin-issuer-centre-hires-2-executives-to-oversee-regulation-operations/)
+首相回答的非常直截了当：
 
-海报：润玉
+—-在欧洲方面，我们做了很多事情，其中之一是制裁， 经济制裁相当严厉，真正触及了俄罗斯经济的核心，限制了其掌控战争的能力。
 
-排版上传：文勇
+第二个方面是孤立俄罗斯与国际社会。我们也在通过武器和人道主义援助向乌克兰人们提供防御手段。
+
+最后一个方面是关于战争罪。战争罪是存在的，事实是存在的。有人需要承担责任，经收集、分析，并最终将被起诉。
+
+来源：
+
+[https://gettr.com/post/p14ygi79dc4](https://gettr.com/post/p14ygi79dc4)
 
  
 
