@@ -2,10 +2,18 @@
 ---
 
 
-## 4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2342296/)
+## 比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342339/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+发布：*陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1（在新窗口中打开）)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
