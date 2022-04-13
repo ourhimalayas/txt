@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 10:58 AM (UTC)`
+
+2022.04.13  新中国联邦 | 军情室  解析中共向塞尔维亚输送红旗导弹
+![img](https://media.gettr.com/group10/origin/2022/04/13/10/f3d23af5-a184-54d8-24eb-03fc7fab8121/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/13/2022 9:57 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月12日第39天当日救援统计：<br/>Medyka救援站接待：约301人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11178人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 39 - Date: April 12, 2022 :<br/>Medyka Rescue Station Reception: about 301 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11178 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -165,13 +172,6 @@ Nicole现场采访波兰义工视频 精彩纷呈👇👇👇<br/>         ❣�
 
 2022.04.12 晚  新中国联邦 | 新闻访谈   新中国联播在国际舞台上大放异彩，为即将到来的全球排华做好防范和准备
 ![img](https://media.gettr.com/group4/origin/2022/04/13/01/83265451-fad7-194e-1d35-c0bf35a6add8/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/13/2022 12:32 AM (UTC)`
-
-2022.04.12 晚  新中国联邦 | 新闻     上海确诊人数首度下降，当局分区管理愚弄民众，解封区仍维持禁足；俄罗斯外长表示对乌克兰军事行动不会停止
-![img](https://media.gettr.com/group49/origin/2022/04/13/00/c327ddcb-5160-cc77-702d-a3617fb95dca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
