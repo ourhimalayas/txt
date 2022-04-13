@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/13/2022 8:52 PM (UTC)`
+
+2022.04.13  新中国联邦 | 喜健康     中共病毒感染后遗症的中医治疗经验点滴；营养师的私房经续集
+![img](https://media.gettr.com/group16/origin/2022/04/13/20/72ab3a3f-d57a-1aef-62fc-698dc49e555c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/13/2022 5:32 PM (UTC)`
 
 04.13.2022  俄乌战争战况播报
@@ -147,13 +154,6 @@
 
 2022-04-013 | 新中国联邦法制基金乌克兰人道救援行动–波兰救援基地前线报道
 ![img](https://media.gettr.com/group21/origin/2022/04/13/09/21c30c0c-1061-d31e-cb1c-f739a976cdc5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 6:08 AM (UTC)`
-
-2022.04.10  新中国联邦 | 喜财经   传统银行与数字银行对比
-![img](https://media.gettr.com/group35/origin/2022/04/13/06/b142b076-9044-c02d-6f74-949d77bac220/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

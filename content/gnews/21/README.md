@@ -2,36 +2,49 @@
 ---
 
 
-## 【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2341589/)
+## 加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2341618/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-法国总统选举投票时间为4月11日。此次选举没有邮寄选票和肮脏的投票机。只使用纸质选票。每个人都必须出示选民身份证。选票是手工计算的，获胜者将在当天结束时公布。
+2022-04-13
 
-在此次的总统选举中，法国选民将使用几代人都在使用的相同系统：亲自投票并手工计算纸质选票。尽管不时有提高灵活性或现代化的呼吁声，但法国并没有像美国那样进行邮寄投票、提前投票或大量使用投票机。选民必须年满 18 岁。大约 4870 万法国人在他们居住地的选民名册上登记。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0T0AIMF3R7M3RVM9LG3.png)屏幕截图：[Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+#### 加拿大正处于 COVID-19 的第六波浪潮中，谭咏诗医生说
 
-选民在一个摊位上做出选择，拉上窗帘，然后将他们的选票放入一个信封中，然后再放入一个透明的投票箱。他们必须出示带照片的身份证明并在其姓名旁边的文件上签名，以完成该过程。
+瑞秋·吉尔摩Rachel Gilmore  全球新闻Global News
 
-据法国内政部ministère de l’Intérieur的数据显示，第一轮投票结果马克龙以27.8%的得票率领先，勒庞以23.1% 得票率居第二。 根据选举规则，第一轮选举中获得50% 选票的候选人获胜。
+发布 四月 12， 2022 11：56 上午
 
-如果没有候选人得到50%选票，则头两名获胜者在两周后进行最后一轮选举。根据这一规则，马克龙和勒庞将在4月24日一决胜负。
+更新时间 四月 12， 2022 12：17 下午
 
-盖特链接：[https://www.gettr.com/post/p150wbiaa29](https://www.gettr.com/post/p150wbiaa29)
+#### 已经证处于第六波COVID-19中
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+加拿大顶级医生已经证实加拿大正处于第六波COVID-19中。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+全国最新上升的病例属于Omicron的BA.2亚变种，首席公共卫生官谭咏诗Theresa Tam医生周二表示。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+“这取决于加拿大不同的地区，但是总体上看来，可以说我们在加拿大正在经历第六波浪潮”，谭对记者说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+“加拿大各地区的COVID-19病例都在增加”。
+
+#### 评论：
+
+还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。
+
+祝新中国联邦的无苗的，有币的 ， 灭共的战友们以及全世界人民顺利度过 5月份。
+
+#### 参考资料
+
+1. [Canada is in 6th wave of COVID-19, Dr. Theresa Tam says](https://globalnews.ca/news/8754298/covid-omicron-booster-ba2-wave-cases/?utm_source=notification)
+
+
+编辑：LILY
+
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
