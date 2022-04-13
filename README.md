@@ -54,74 +54,74 @@
 ### [国际文传电讯社称俄罗斯对美国和加拿大政客实施制裁](/content/gnews/13/README.md)
  ` Shuizhuyu`
 
-### [DC每日热点0413](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [芬兰将在未来几周而不是几个月内决定加入北约](/content/gnews/15/README.md)
+### [芬兰将在未来几周而不是几个月内决定加入北约](/content/gnews/14/README.md)
  ` Shuizhuyu`
 
-### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（4/4）](/content/gnews/16/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（4/4）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（04/13/2022）](/content/gnews/17/README.md)
+### [五月花简报（04/13/2022）](/content/gnews/16/README.md)
  ` mayflowertranslate`
 
-### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（3/4）](/content/gnews/18/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（3/4）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）](/content/gnews/19/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（2/4）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美CDC将旅行口罩强制令再延长15天](/content/gnews/20/README.md)
+### [美CDC将旅行口罩强制令再延长15天](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）](/content/gnews/21/README.md)
+### [日本首相宣布对俄制裁 禁运煤炭以及冻结最大头银行资产（1/4）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/22/README.md)
+### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻时评】 台湾鹰式飞弹罕见现身市区操演](/content/gnews/23/README.md)
+### [【秘翻时评】 台湾鹰式飞弹罕见现身市区操演](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/24/README.md)
+### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [乌克兰难民妇女被迫卖淫谋生](/content/gnews/25/README.md)
+### [乌克兰难民妇女被迫卖淫谋生](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机](/content/gnews/26/README.md)
+### [【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机](/content/gnews/25/README.md)
  ` G-时新闻`
 
-### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/27/README.md)
+### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/28/README.md)
+### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [截至4.13 俄乌战事汇总](/content/gnews/29/README.md)
+### [截至4.13 俄乌战事汇总](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/30/README.md)
+### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战局最近消息汇总](/content/gnews/31/README.md)
+### [俄乌战局最近消息汇总](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/32/README.md)
+### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/33/README.md)
+### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/34/README.md)
+### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/33/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/35/README.md)
+### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/34/README.md)
  ` KarmaLabs`
 
-### [美命令非紧急雇员撤离上海](/content/gnews/36/README.md)
+### [美命令非紧急雇员撤离上海](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大生活美谈 2022-04-07第五十期](/content/gnews/36/README.md)
+ ` canadalifetalk`
 
 ### [中共国将面临最严峻的粮食危机 习近平认为战争和动乱有利于维护政权](/content/gnews/37/README.md)
  ` 焦點20分`
