@@ -2,33 +2,39 @@
 ---
 
 
-## 中日财经爆|被社会主义铁拳锤醒 众多日商撤出中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338435/)
+## 普京誓言继续攻打乌克兰，直至完成目标
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338460/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月12日，日本《产经新闻》台北支局长矢板明夫在社交媒体上表示，最近很多在中共国经商的日本人正在计划离开中共国，其中好几个是他的朋友，这次上海疫情封城，让日商认识到了社会主义的铁拳的厉害。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-30.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2020%2F06%2Fnp_file_16887-870x489.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2020%2F12%2F30%2Fbusiness%2Fjapan-tech-firms-china%2F&amp;tbnid=qFMSY)
-4月12日，日本《产经新闻》台北支局长矢板明夫在社交媒体上表示，最近很多在中共国经商的日本人正在计划离开中共国，其中好几个是他的朋友，这次上海疫情封城，让日商认识到了社会主义的铁拳的厉害。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-矢板明夫也以自身在北京做10年记者经验，揭露投资中共国或者在中共国讨生活的政治风险，并感叹“可惜听进去的人并不是很多。”
+整理/编辑：围剿维尼熊
 
-在中共国讨生活的政治风险，不管你有多高的社会地位、你的生意做得有多大，哪怕你住在上海市中心的豪宅、家里有三四个佣人，但只要最高领导人的心情不好，你随时可能成为最卑微的韭菜，你可能饿肚子，可能有病不能看，还可能出门被人拳脚相加。当你有困难、或者受了委屈，没有民意代表为你做选民服务、没有媒体替你伸张正义、你在网上发文求救，可能被删号甚至有牢狱之灾。
-
-中共国在改革开放之初，为了从国外招商引资，开出了很多优惠的政策，又加上后来的高度经济发展，最早进中共国的很多企业，确实赚到了不少钱。大概在20年前，日本的经济界把中共国看成了企业腾飞的希望之地。甚至有人说“21世纪是中共国的世纪”现在不去中共国的话，将被时代淘汰。
-
-但矢板明夫点出，中共国吸引外资的目的是为了巩固共产党政权。在中共脑海中只有政治逻辑、没有商业逻辑，中共随时可能翻脸，一个新政策，就会让外商的投资血本无归。这次上海封城，不仅仅是日本的商人，也吓坏了很多的在中共国淘金的外国人。
-
-消息来源:[怕了！日媒揭上海封城日商撤出中國](https://tw.news.yahoo.com/%E6%80%95%E4%BA%86-%E6%97%A5%E5%AA%92%E6%8F%AD%E4%B8%8A%E6%B5%B7%E5%B0%81%E5%9F%8E%E6%97%A5%E5%95%86%E6%92%A4%E5%87%BA%E4%B8%AD%E5%9C%8B-041509852.html)编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3461.jpg)图片来源：人民资讯
 
 
+根据美国之音4月13日报道，俄罗斯总统普京星期二(4月12日)誓言俄罗斯将继续猛攻乌克兰，直到莫斯科完成他没有具体说明的“崇高”目标为止。他还声称，西方实施的经济制裁将反噬美国及其盟友。
+
+虽然俄罗斯已承认部队有“重大损失”，但是普京说，莫斯科对乌克兰的攻势正在按计划进行。
+
+在普京发表这番评论之际，美国总统拜登和英国首相约翰逊就约翰逊上周末的乌克兰之行通了话。
+
+白宫说，两位领导人“重申面对俄罗斯的持续暴行，他们致力于向乌克兰提供安全和人道援助”，并“欢迎与盟友的持续合作”，因“其无端和无理的战争”而对俄罗斯实施制裁。
+
+俄军对乌克兰城市进行了大规模攻击，破坏了医院和民居，但是乌克兰挫败了莫斯科推翻乌克兰政府的企图。如今，俄罗斯正在把用兵重点放在攻打乌克兰东部地区。
+
+一些西方国家已呼吁对普京进行战争罪调查。乌克兰总统泽连斯基敦促欧洲联盟制裁所有俄罗斯银行并禁止进口俄罗斯石油。
+
+不过一些欧洲领导人表示，他们担心停止进口俄罗斯油气会对本国经济造成影响。
+
+参考链接：[普京扬言继续猛攻乌克兰 不达目的绝不罢手](https://www.voachinese.com/a/putin-vows-continued-onslaught-in-ukraine-20220412/6526605.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

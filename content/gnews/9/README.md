@@ -2,47 +2,51 @@
 ---
 
 
-## 樱花深度报道┃谎言连篇的中共宣传机器（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2338443/)
+## COVID-19疫苗副作用集萃(2022.4.13)–康希诺疫苗对身体副作用大
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2338465/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-【摘要】在接受记者提问谈及中共如何看待俄罗斯入侵乌克兰问题时，中共国防部发表了一份言辞犀利的声明，充斥着诸多[谎言](https://www.epochtimes.com/gb/tag/%E8%B0%8E%E8%A8%80.html)。本文将基于事实逐一驳斥，以正视听，以防止妖言惑众。由于中共宣传机器谎话连篇，要逐条打击中共的所有对外宣传似乎并不总是有效，也不现实。然而虚假的信息一旦多次重复宣传而得不到纠正，就有可能逐渐成为一个公认的“事实”。这正是中共对外宣传机器的初衷和野心。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-250.jpg)（图片说明）2022年3月10日，一众高官在人民大会堂参加中国人民政治协商会议（CPPCC）的闭幕会。(Kevin Frayer/Getty Images)
-2022年3月10日，中国北京，一众高官在人民大会堂参加中国人民政治协商会议（CPPCC）的闭幕会。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-在接受记者提问谈及中共如何看待俄罗斯入侵乌克兰问题时，中共国防部发表了一份言辞犀利的声明，充斥着诸多[谎言](https://www.epochtimes.com/gb/tag/%E8%B0%8E%E8%A8%80.html)。本文将基于事实逐一驳斥，以正视听，以防止妖言惑众。
+整理/编辑：禄森
 
-一直以来，中共非常善于操控话语权，满口[谎言](https://www.epochtimes.com/gb/tag/%E8%B0%8E%E8%A8%80.html)，从而诱使西方世界产生负罪感。最新的案例便是3月24日中共国防部新闻发言人吴谦大校发布的声明，该声明篇幅不长，但包含谎言之多，令人咋舌。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-25.png)图片来源：雅典娜设计组(614)
 
-在新闻发布会现场，西方媒体记者提问，中共如何看待俄罗斯入侵乌克兰一事。记者提问如下：
 
-“首先，如果中国以俄罗斯为榜样，对其邻国发动战争，国际社会将陷入更严重的危机。其次，如果在亚太地区发生侵略行为，该地区的各个国家将团结起来进行抵抗。第三，由于地形因素，中国将很难对其邻国发动战争。对此，请问阁下如何评论？”
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-国防部发言人随后的回答因其谎话连篇和逻辑混乱而引起外界一片哗然。他的回答如下：
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-“众所周知，中国一直奉行防御性国防政策和积极防御的军事战略，坚持友好、真诚、互利、包容的外交理念，致力于建设一个与邻国共享未来的命运共同体。新中国成立以来，我们没有侵略过其它国家，没有参与过代理人战争，没有谋求过势力范围，也没有参与过军事集团对抗。
+**帖子原文**：
 
-“在和平与安全问题上，美国自身早已是劣迹斑斑。自建国以来，美国经常在海外挑起战争，在全球范围内输出动乱，并造成严重的人道主义灾难。”
+**博主: GG李**
 
-套用电影《星球大战》主角卢克‧天行者（Luke Skywalker）的经典台词，“这句话彻头彻尾是一句谎言。”个中原因剖析如下。
+**被康希诺放倒的3天**
 
-（未完待续）
+传说中的猛男针，打完当天晚上睡觉到半夜2点多感觉浑身发冷，关节疼痛，之前在网上搜了相关反应就起来喝热水，大概4点多开始发烧，持续一天发烧没吃任何药物退烧，用毛巾和酒精物理降温，到第二天退烧了但是浑身酸疼，尤其是关节，肩膀等位置，真的在床上颓了3天才缓过来，身体不好的千万避雷
 
-作者简介：
+**作者发布于2022-4-12**
 
-摩根‧迪恩（Morgan Deane）是前美国海军陆战队员、军事历史学家、自由撰稿人。他曾在英国伦敦国王学院（Kings College London）和美国诺维奇大学（Norwich University）学习军事历史。摩根目前是美国公立大学（American Public University）的军事历史学教授。他也是一位多产的作家，出版著作包括《中国历史上的决战》（Decisive Battles in Chinese History）、《龙爪泥足：中国现代战略入门》（Dragon’s Claws with Feet of Clay: a Primer on Modern Chinese Strategy）等，以及即将出版的《超越孙子兵法：中国关于战争与政府的经典辩论》（Beyond Sunzi: Classical Chinese Debates on War and Government）。他的众多军事见解“真正的防御”（Real Clear Defense）和“战略之桥”（Strategy Bridge）等军事网站上。
+**精选评论**
 
-信息来源：[So Many Lies From the CCP](https://www.theepochtimes.com/so-many-lies-from-the-ccp_4370172.html)
+你是真的皮评论:
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+第六天了 我现在间断性发烧 持续性头晕 医院去了两次 抽血 ct 没啥问题 然后被关在医院等核酸我真的会谢
+
+小花评论:
+
+打了过了一个月，心率110 走几步140，就好像随时要死过去一样，呼吸不了，一句话我没办法一口气说完，所有病都查了，都没事，最后吃了心脏的好多药，还有中药，才好的，我想说这个疫苗真的很带劲
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1509.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1510.png)图片来源：小红书
+参考链接：
+
+[全身酸痛，高烧](https://www.xiaohongshu.com/discovery/item/6254a9bd000000002103f122?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729149)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
