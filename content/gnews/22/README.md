@@ -2,22 +2,28 @@
 ---
 
 
-## 乌克兰难民妇女被迫卖淫谋生
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341599/)
+## 俄罗斯间谍被普京当作乌克兰败局的替罪羊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341641/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16498722491.png)             图片来源：纽约时报
-据《布雷特巴特新闻网》（Breitbart News）4月12日报道，瑞典警方在3月开战的一项行动中逮捕了38名试图向妓女购买性服务的男子，其中有30人向乌克兰妇女购买性服务，而这些乌克兰妇女中的一些人是因为持续的俄乌冲突不得不在最近逃离乌克兰。
+#### 选材/编译 Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16498737631.png)The Telegraph
+据4月13日英国Metro报道，情报局长弗拉季斯拉夫·苏尔科夫（Vladislav Surkov）被拘留。他涉嫌在乌克兰的卧底网络挪用了40亿美元。同时被捕的是联邦安全局（FSB）的150名特工。
 
-警督Simon Häggström告诉瑞典电视台（SVT）：“这很让人吃惊。从广告中可以看出，有一些妇女是最近从乌克兰过来的。她们在与我们对话时谈到，是战争导致她们不得不卖淫，只能靠出卖自己的身体来帮助在乌克兰的或正逃离的家人。”
+弗拉基米尔·普京（Vladimir Putin）的这项 “清洗” 发生在入侵乌克兰后，未能取得任何快速突破性进展。普京对FSB在战争准备过程中提供的信息质量感到愤怒。他认为与他保持密切联系的特勤局正在被颠覆。
 
-据瑞典电视台报道，性贩子（sex traffickers）通过互联网引诱妇女，承诺以住宿和现金作为交换条件，让她们成为妓女。Simon Häggström说：“人贩子用支付旅行费和住宿费等一揽子解决方案吸引妇女，然后有中介联系她们和买春者（sex buyers），一切都非常有组织。”
+57岁的苏尔科夫是 “普京主义” 的发明者，也是普京长期当选的关键人物。他主张吞并乌克兰、白俄罗斯和波罗的海国家。该案涉及特勤局涉嫌挪用50亿美元（38.5亿英镑）这笔钱应用于在乌克兰建立卧底和情报网络。显然，普京与他的亲信之间存在深刻的分歧。
 
-在数百万难民逃离乌克兰进入欧盟后不久，许多人就警告说，这些难民（大部分是妇女和儿童）可能会被性贩子和其他人贩子剥削和利用。非政府组织Wadi的难民和移民协调员席琳·蒂勒桑德（Shirin Tinnesand）在上个月就谈到了这个问题：“难民面临着被贩卖、卖淫和被摘取器官的风险，而且不止于此。伪装成志愿者的人贩子通常会去混乱、无组织和人多的地方寻找难民目标，比如在波兰和其他地方的火车站就会看到有人对难民采取可疑的行动。”
+西方情报机构认为，普京在乌克兰挫败后，情报局长谢尔盖·贝塞达（Sergey Betheda）承担了失败的责任。“误判” 使他被软禁，他现在被关押在勒福尔托沃一座令人恐惧的监狱。那里曾关押过代斯大林清洗的受害者。普京可能怀疑他的间谍头目向西方提供了情报。
 
-*责编：白夜*
+普京的偏执狂更增强了普京的多疑；他开始在那些与美国情报机构有官方联系的地方和机构寻找叛徒。
 
-新闻来源：[Sweden: Majority of Prostitution Busts in March Involved Exploited Ukrainian Women](https://www.breitbart.com/europe/2022/04/12/sweden-majority-of-prostitution-busts-in-march-involved-exploited-ukrainian-women/)
+责编：白夜
+
+
+
+> [Putin locks up spy chief and ‘purges 100 agents’ over failures in Ukraine](https://metro.co.uk/2022/04/12/vladimir-putin-purges-fsb-after-russian-failure-to-conquer-ukraine-16449758/)
+
+
 
  
 

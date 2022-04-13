@@ -2,39 +2,36 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/04/13
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2341517/)
+## 【G时新闻】法国大选周日举行：没有邮寄选票和肮脏的投票机
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2341589/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1619.png)[盖特链接](https://gettr.com/post/p153hbz15f5)
+##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+法国总统选举投票时间为4月11日。此次选举没有邮寄选票和肮脏的投票机。只使用纸质选票。每个人都必须出示选民身份证。选票是手工计算的，获胜者将在当天结束时公布。
 
-- 七哥今天开会，星期五《文贵大直播》不能参加。争取周末参加大直播。
-- 乌克兰救援前线人员工作辛苦，多国和某国际组织联系新中国联邦“讨论”前线救援。
-- 纽约春天景色美丽。
-- 世界所有问题根源就是中国共产党。新中国联邦区分开中国人和中共，得到国际高度关注和认可。
-- 乌克兰每天都有人被强奸和杀害。
-- 上海、长春屡发生“以食物”强奸人，老人在街上被打，中国人该醒来了。
-- 世界都在醒来，消灭共产党 是解决问题的唯一办法。
-- 习近平和普京再回不到两个月以前的国际形势。
-- 欧洲开始以乌克兰和波兰为中心重整，放弃默克尔和萨科齐曾经主导以共产主义为中心的路线。
+在此次的总统选举中，法国选民将使用几代人都在使用的相同系统：亲自投票并手工计算纸质选票。尽管不时有提高灵活性或现代化的呼吁声，但法国并没有像美国那样进行邮寄投票、提前投票或大量使用投票机。选民必须年满 18 岁。大约 4870 万法国人在他们居住地的选民名册上登记。
 
+选民在一个摊位上做出选择，拉上窗帘，然后将他们的选票放入一个信封中，然后再放入一个透明的投票箱。他们必须出示带照片的身份证明并在其姓名旁边的文件上签名，以完成该过程。
 
-*听写：call me uncle*
+据法国内政部ministère de l’Intérieur的数据显示，第一轮投票结果马克龙以27.8%的得票率领先，勒庞以23.1% 得票率居第二。 根据选举规则，第一轮选举中获得50% 选票的候选人获胜。
 
-*校对: 乐禧禧*
+如果没有候选人得到50%选票，则头两名获胜者在两周后进行最后一轮选举。根据这一规则，马克龙和勒庞将在4月24日一决胜负。
 
+盖特链接：[https://www.gettr.com/post/p150wbiaa29](https://www.gettr.com/post/p150wbiaa29)
+
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
