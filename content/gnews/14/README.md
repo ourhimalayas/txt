@@ -2,29 +2,31 @@
 ---
 
 
-## 今日盖特大V推荐 — 巴比伦蜜蜂（The Babylon Bee）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339201/)
+## 台湾｜瑞典及欧洲议会议员访台之际 外长吴钊燮专访谈台欧关系、中共对台威胁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2339338/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1527.png)
-盖特链接： [**https://gettr.com/user/thebabylonbee**](https://gettr.com/user/thebabylonbee)
+**港台前线 zhong｜2022-4-13**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-23.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+瑞典国会及欧洲议会议员首次联合组团访台，10日抵达台湾，12日与总统蔡英文视讯会晤。对于本次访台行程，台湾外交部发新闻稿称“近年台欧关系蓬勃发展、双方友好合作关系迈向新里程碑”。
 
-巴比伦蜜蜂自述：
+## 具体行动展现对台湾的支持
 
-您可以信任的假新闻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1528.png)图片来源：网络
-**巴比伦蜜蜂简介：**
+欧洲议会上去年通过史上第一份“台欧盟政治关系暨合作”报告，法国、爱尔兰、丹麦、义大利等国议会也纷纷通过友台决议案，欧洲议会及法国、波海三国、瑞典等会员国陆续筹组议员团访台。
 
-《巴比伦蜜蜂》（Babylon Bee）是一个保守的基督教新闻讽刺网站，发布有关宗教、政治、时事和公众人物等主题的讽刺文章。
+## TaiwanPlus专访谈“台欧关系、中国对台威胁、俄乌战事的启示”
 
-2021年1月，《华盛顿时报》称，《巴比伦蜜蜂》每月的页面浏览量超过2000万，拥有超过20,000名付费订阅者，并拥有一个856,000名关注者的Twitter帐户。2022年1月，《经济学人》称《巴比伦蜜蜂》“在鼎盛时期每月吸引多达2500万读者”。并且，该网站所有者兼首席执行官塞思·狄龙已经将《巴比伦蜜蜂》变成了“继《福克斯新闻》之后最受欢迎的保守网站之一”。
+外长吴钊燮表示，欧盟与台湾加强关系，是基于台湾与欧盟及会员国共享自由、民主及人权普世价值。此外，中共战狼外交也警醒欧盟成员国。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+2021年中共有近千架次军机侵扰台湾防空识别区，也不断对台湾发动假讯息、混合战及网路攻击等，美国拜登政府持续对台军售，展现对台湾国防的高度重视。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+俄乌战争中，乌克兰能坚持抵御是全国人民强大自卫决心，并运用不对称战力，台湾将借镜，并继续与理念相近国家共同抵御威权侵略。
+
+来源｜外交部
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,31 +2,30 @@
 ---
 
 
-## 樱花灭共诗——武斗（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2339009/)
+## 今日盖特大V推荐 — 路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2339279/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1529.png)
+盖特链接：[** https://gettr.com/user/luislacombereal**](https://gettr.com/user/luislacombereal)
 
-沪上纷纭军管至，四围浦江战车鸣。
+**路易斯·埃内斯托·拉科姆自述：**
 
-不习十载文革乱，莫尽一尊武斗形。
+记者、主持人和作家。 建议访问我的网站并了解我的社区
+**[\[email protected\]](/cdn-cgi/l/email-protection#2945484a46444b4c694b5b485a4045444c4d404841465c5a4c074a4644)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1530.png)图片来源：网络
+**路易斯·埃内斯托·拉科姆简介：**
 
-市委夺官民怨解，社区圈禁党旗兴。
+路易斯·埃内斯托·拉科姆（Luís Ernesto Lacombe Heilborn，生于1966年8月2日）是巴西记者、主持人、作家和YouTuber。
 
-摇旗赚取笼中鸟，交口感恩白卫兵。
+路易斯·埃内斯托·拉科姆先后主持了“夜晚·曼切特河、环球新闻、早安巴西、空中观点”等节目；著有三部“十四行诗集”和一部小说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-41.jpg)图片：东京樱花团/闪闪
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
