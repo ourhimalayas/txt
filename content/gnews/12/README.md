@@ -2,25 +2,18 @@
 ---
 
 
-## 加拿大公司使用中共国强迫劳动力
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2345753/)
+## 秘翻在线：印度继原油之后大量采购俄罗斯煤炭
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2345798/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-26.jpg)图片来源：本文链接
+据韩国《朝鲜日报》4月14日的消息，CNBC当地时间13日援引期货信息企业克夫勒的话报道说，印度上月采购的俄罗斯产煤炭数量创下了过去两年中规模最大的一次。 也就是说，正在从俄罗斯采购打折原油的印度正在大量采购煤炭。
 
-据自媒体【真北方】4月11日报道，[加拿大人权联盟]正在要求联邦机构调查多家被指控在中共国使用强迫劳动力生产的加拿大公司。
+美国一直警告印度停止进口俄罗斯产能源，在乌克兰战争中不要站在俄罗斯一边。因此，有预测称，如果今后印度不减少对俄罗斯煤炭和原油的采购，美国有可能考虑对其采取制裁等措施。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1749.png)图片来源：WYZX
+信息来源：[https://biz.chosun.com/international/international\_economy/2022/04/14/GWSH54JOKFEX7D5P7PFZVJHIJM/?utm\_source=naver&utm\_medium=original&utm\_campaign=biz](https://biz.chosun.com/international/international_economy/2022/04/14/GWSH54JOKFEX7D5P7PFZVJHIJM/?utm_source=naver&amp;utm_medium=original&amp;utm_campaign=biz)
 
-
-报道称，参与本次诉讼的28个人权团体向加拿大企业监察机构提出了以上申请，并援引澳大利亚战略政策研究所2020年的相关研究报告，证明至少有14个加拿大公司使用了27家中共国工厂的强迫劳动力。
-
-据悉，作为2018年美-墨-加贸易协议的一部分，加拿大政府已承诺将禁止“由强迫劳动所生产商品的进口贸易”。但由于联邦法院上周驳回了一项全面禁止从中共国新疆地区进口所有商品的申请，因此导致了以上人权机构起诉那些与中共国强迫劳动力有关的加拿大公司。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [Feds asked to investigate Canadian companies’ ties to slave labour | True North (tnc.news)](https://tnc.news/2022/04/11/feds-asked-to-investigate-canadian-companies-ties-to-slave-labour/)
+责编：Eric Kim
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220413郭文贵大直播 ：比利时总理和欧盟官方组织的相继到访开启了新中国联邦的外交默认
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2345743/)
+## 20220413郭文贵大直播 ：六月鲜花战友讲述比利时总理来新中国联邦帐篷时的细节
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2345784/)
 
 作者：东京樱花团小视频组
 

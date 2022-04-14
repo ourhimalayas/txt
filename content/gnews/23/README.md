@@ -2,25 +2,22 @@
 ---
 
 
-## 2022年4月14日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2345573/)
+## 速报┃俄军在日本海发射导弹 报复日本
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2345633/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+撰稿：东京樱花团/闻雨
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1085.jpg)
+4月14日，俄罗斯国防部宣布，太平洋舰队进行了一次巡航导弹发射试验，并发布了一段视频。
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1728.png)[图片来源](http://www.xinhuanet.com/mil/2021-05/28/c_1211176482.htm)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+俄罗斯塔斯社报道说，这次“是从日本海海域发射的”。俄罗斯国防部宣布，“从太平洋舰队的一艘潜水艇上试射了巡航导弹‘Kalibr’，目标是日本海的一艘被认为是敌方的舰船。”据说俄罗斯在攻击乌克兰时也使用了“Kalibr”。据信这是由于在俄罗斯对乌克兰进行军事入侵的问题上，日本对俄罗斯加强了制裁措施，所以俄罗斯要威慑日本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-2.jpeg)
+信息来源：[【速報】ロシア軍が日本海でミサイル発射 日本の経済制裁をけん制か(フジテレビ系(FNN))](https://ndjust.in/f6QPMoao)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
