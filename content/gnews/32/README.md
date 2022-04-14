@@ -2,37 +2,32 @@
 ---
 
 
-## 突发：中共两列火车发生碰撞 9节车厢坠落桥下
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2346086/)
+## 台湾军方卖台贼购买了中共国的无人机
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2346293/)
 
-作者：：香草山教育部-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-墙内媒体4月14日报道，当天下午1时，中共国两列货运火车在行驶至大秦铁路途经天津市蓟州区的铁路段时发生了剧烈的碰撞，其中部分车厢滚落至铁路桥下。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/article-608b0e6ad6514.jpg)
+4月14日早，郭先生在直播中提到台湾目前的情况。
 
-据了解，此次事故发生在大秦铁路413公里600米处，两列运煤火车发生相撞后，导致其中一列火车9节车厢坠落桥下，7节车厢发生侧翻。网传视频显示，中共的一列货运火车行驶在高架桥上，突然中间有几节车厢脱轨，掉到了下方空旷的地上，腾起大量烟雾。事故原因目前仍在调查中。
+郭先生爆料，台湾此次参与对抗中共入侵的无人机正是来自中共大陆制造。中共先把生产好的无人机卖到澳大利亚，然后台湾的卖台贼再买回来。郭先生说未来中共一旦打台湾，可能出卖老百姓的就是被中共收买的台湾军方和情报系统的卖台贼们。
 
-此前，郭文贵先生曾在直播中指出，中共疫苗灾难将在今年五月份全面爆发，届时，空运、铁运等大型的事故灾难将会频繁发生。此次的火车相撞事故亦或与疫苗次生灾难相关。
+世界局势正在日益剧变，中共大概可能会在4月底5月份入侵台湾。而现在中共对卖台贼正在进行着战前最猛烈的一波洗脑和策反。中共给台湾一些要员大量赠送美元现金和黄金，有一些给到台湾手里，有一些给到台湾那些身在上海的家人手中。中共同时承诺一旦开战，卖台贼的家人会得到很好的照顾，并且战后的土地分配问题也已经谈妥。
 
-新闻链接1：[http://124.133.228.83/articleContent/4399\_1003395.html](http://124.133.228.83/articleContent/4399_1003395.html)
+台湾危矣。
 
-新闻链接2：[https://i.ifeng.com/c/8FCwPpisCpl](https://i.ifeng.com/c/8FCwPpisCpl)
+撰稿、发布：骄子
 
-视频：[https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4](https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4)
+* * *
 
-编辑/审核/发稿：Bronx Bombers
+欢迎订阅我们的GNews账号：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

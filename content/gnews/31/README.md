@@ -2,23 +2,25 @@
 ---
 
 
-## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
+## 加拿大资源出口从俄乌战争中获益
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2346306/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
+编译撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
+据【法广】4月12日报道，作为石油，天然气，特殊矿产及农业生产大国，加拿大的资源出口业在俄乌战争及欧美各国对俄罗斯的制裁中受益。
 
-台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1757.png)图片来源：[https://www.rfi.fr/cn](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%8C%97%E7%BE%8E%E6%9D%A5%E9%B8%BF/20220412-%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E5%B8%A6%E7%BB%99%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%9A%84%E5%88%A9%E5%A5%BD%E4%B8%8E%E7%BA%A0%E7%BB%93)
 
-来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
 
-* * *
+加拿大自然资源部长近日表示，目前已有为数众多的国家都计划通过使用加拿大生产的化肥，能源，矿业和农业等产品来减轻此前对俄罗斯同类产品的进口依赖。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+据悉，位于萨省全球最大钾肥生产企业 Nutrien 公司宣布：今年钾肥产量将比去年增加10%，达1500万吨。全球最大的豆类加工企业[加拿大AGT]已将其产品销往120多个国家。而加拿大铀矿巨头Cameco也宣布在两年内将其铀矿产量提高1000万吨。此外，加拿大政府还承诺每天增加出口20万桶石油和10万立方天然气。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%8C%97%E7%BE%8E%E6%9D%A5%E9%B8%BF/20220412-%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E5%B8%A6%E7%BB%99%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%9A%84%E5%88%A9%E5%A5%BD%E4%B8%8E%E7%BA%A0%E7%BB%93](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%8C%97%E7%BE%8E%E6%9D%A5%E9%B8%BF/20220412-%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E5%B8%A6%E7%BB%99%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%9A%84%E5%88%A9%E5%A5%BD%E4%B8%8E%E7%BA%A0%E7%BB%93)
 
  
 

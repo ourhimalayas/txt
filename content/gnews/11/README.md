@@ -2,43 +2,18 @@
 ---
 
 
-## 疯魔乱世
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2346467/)
+## 台湾人民危在旦夕
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2346701/)
 
-香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-30.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-9.jpg)
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/SharedScreenshot-1.jpg)图片来源 GETTR
+4月14日爆料革命发起人郭文贵先生在盖特直播，回答全球灭共者所关心的各种热议问题。
 
-疯魔世道耻辱年
-青壮无勇妇悲恨
-狐假虎威伤同类
-善恶到头终有报
-荒唐年代心酸多
-锁人锁心锁民生 
-房贷车贷逼人命 
-失业失心起绝念 
-大街小巷冷寂寂 
-唯有喇叭日夜吼 
-犹如阎王殿前钟 
-一声更比一声寒 
-梦幻盛世始觉醒 
-已是新坟添冤魂 
-苟活于世谁可安 
-何时是个头！
+郭先生面向所有关心台湾命运的人们，再次明确表示：台湾人民危矣！
 
-编辑/审核/发稿：Bronx Bombers
+文贵先生负责任地说，有情报表明，一旦中共在台海动手，最先被出卖的就是台湾人民。台湾的军方和情治部门很多卖台贼，罔顾台湾民众死活，早已“心向共党”。郭先生爆出台湾采购的很多无人机全部产自中共，无非绕道澳大利亚而已。从中共上海流出的大量黄金和现金都到了卖台贼或其亲戚手里，而且在土地等资产分配上已经给予巨额承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+郭文贵先生根据情报回答大家，预计4月底5月初左右，中共就会发动台海战争。目前发生和即将发生的北上广深所谓“疫情”暴政也是军事准备、压力测试的一部分。【来源链接】https://gettr.com/streaming/p15aede6360
 
  
 

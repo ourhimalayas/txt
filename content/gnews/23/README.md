@@ -2,27 +2,24 @@
 ---
 
 
-## 俄罗斯将摧毁乌克兰的粮食库存和出口
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2346379/)
+## “普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346461/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+**撰稿：日本东京方舟农场 北极**
 
-撰稿/翻译  加拿大温哥华扬帆农场 – 重生之鹰
+据焦点报4月14日报道，乌克兰情报机构截获的一段入侵士兵与妻子的通话录音：俄罗斯联邦领导人弗拉基米尔·普京（Vladimir Putin）下令摧毁他们未能占领的乌克兰城市。
 
-据[布莱特巴特新闻]4月12日报道，欧盟外长当天表示：俄军目前正计划摧毁乌克兰的主要小麦和其他粮食库存，以彻底阻止该国粮食产品的对外出口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-149.png)乌克兰截获了占领者与妻子关于乌克兰“普京下令将一切夷为平地”的谈话。（图片来自焦点报）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1758.png)图片来源：[https://www.breitbart.com](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+乌克兰国防部情报总局公开了截获的俄罗斯士兵奥列格·卡拉塞夫（Oleh Karasev）和他妻子之间的通话录音，录音证实了俄罗斯军方确实已经接到指示，要彻底摧毁他们未能占领的乌克兰城市。同时录音中还提到，在5月10日之前对乌克兰的战争必须取得某种所谓“成果“。
 
+乌克兰情报部门对此事发表评论表示，该录音证实了俄罗斯联邦在该国最高军事政治领导层，特别是普京总统的直接指示下，故意摧毁乌克兰城市并对平民犯下种种罪行。
 
-据悉，俄罗斯对此不仅军事封锁了黑海沿岸的乌克兰港口，还同时通过加紧轰炸乌克兰的各大粮食加工和储存基地来加剧全世界粮食供应危机，并试图以战争直接破坏全球供应链。
+参考链接：
+[https://reurl.cc/AKEVKj](https://reurl.cc/AKEVKj)
 
-报道称，作为世界上最大的谷物特别是小麦生产国之一，目前乌克兰出口的粮食量已经为零。此外，俄罗斯也是全球小麦市场的另一个主要参与者，但由于受到欧美制裁，该国的粮食出口供应也显著下降。因此不难预见，极端的全球粮食危机已迫在眉睫。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+总编：老孙
+校对发布：爱放飞
 
  
 

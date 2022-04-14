@@ -2,47 +2,28 @@
 ---
 
 
-## 埃隆-马斯克提出以430亿美元的现金收购Twitter
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2346506/)
+## 樱花FM┃上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2346723/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-20.jpg)
-上周，埃隆-马斯克成为Twitter的最大股东。这位特斯拉和SpaceX的首席执行官本打算加入Twitter的董事会–后来他没有加入。
+音频：东京樱花团 / 战友520
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1759-edited.png)*埃隆-马斯克在一份美国证券交易委员会的文件中说，他将提出收购Twitter，在成为该公司最大的股东后不久。John Raoux/AP*
+![](https://lh6.googleusercontent.com/DwUMiyZvlI5RMAARxDgbdbytASPwfLW7FSR9qFc-0DLnoY7K1xUTFBG48DEGUHhLvWXX2Bmjfgb3bu5rKnG6AVtaFwSbZXsg0YAJjEnyrCI3wVl0qrG_mFKcxIc0sKk4cu4-0FdR)
 
-根据周三发布的一份监管文件，现在这位世界首富提出以430亿美元–每股54.20美元–的现金收购该公司。
+近日，上海同济大学附属同济医院门口，一对老人，妻子治疗结束出院，但是因为中共毫无人性的防疫措施，交通断绝，无法回家，走投无路的老人充满了痛苦的悲鸣！
 
-“我提出了一个提议”，马斯克在推特上说。
+善不能举，恶不能退，利不能兴，害不能除。化善而作摊，使学而为盗！这就是习近平伟大的帝国现状，上海可是中国首屈一指的大城市，中共政权的经济中心啊，俨然已经变成了毫无人性的人间炼狱！
 
-马斯克说，他相信Twitter的潜力，并认为这家社交媒体公司需要转型。
+习近平借助疫情防控的幌子来消灭政治对手，并且通过不断对老百姓折腾、侮辱，让老百姓变的贫穷、变弱、变的疲惫不堪不断降低老百姓对生活的期盼！以前一个健康码就可以随便通行，后面又加了一个行程码，然后逐渐升级，又加一个疫苗接种证明，再加一个核酸检测报告，现在又多一个抗原检测，现在中共国不管多少证明都无法证明你是一个健康的人！ ！
 
-马斯克在文件中说：“我的提议是我最好也是最后的提议，如果不被接受，我将需要重新考虑我作为股东的立场。(他持有超过9%的Twitter股份）Twitter有非凡的潜力。我将释放它。”
+邪恶的习近平妄图通过贫民、疲民、愚民、辱民、弱民的驭民政策把老百姓拥有的东西都剥的干干净净，最后再给你一点点狗粮，让你对他感恩万分！请千万放弃对习近平的任何幻想，邪恶的习近平是没有任何一点底线，中共邪恶政权一日不铲除，何有我民族复兴和天下太平之日？团结起来，站立起来，加入新中国联邦，干掉中共这个邪恶政权，才是你正确的选择！
 
-他说：“我投资于Twitter，因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常的民主社会所必须的。”
+文字版原文：[樱花时政｜上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！ – GNEWS](https://gnews.org/zh-hans/2317739/)
 
-推特表示，它已经收到了马斯克“主动提出的”报价。
+编辑：东京樱花团/小老虎
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-该公司在一份声明中说，其董事会“将仔细审查该提案，以确定其认为符合公司和所有Twitter股东的最佳利益的行动方案”。
 
-马斯克提出的每股54.20美元的报价，比他公开宣布投资前一天的Twitter股票价值高38%，比周三的收盘价高18.2%。推特股票在周四的盘前交易中上涨了10%以上。
-
-本周早些时候，一名Twitter股东对马斯克提起了证券欺诈诉讼，称他迟迟没有披露他在Twitter的股份，使投资者损失惨重，为马斯克节省了约1.43亿美元。
-
-来源：[Elon Musk is offering to buy Twitter for $43 billion in cash](https://www.mprnews.org/story/2022/04/14/npr-twitter-elon-musk-buy-company)
-
-* * *
-
-审核：Aries的星
-校对：花羽
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

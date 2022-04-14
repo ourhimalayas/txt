@@ -2,50 +2,31 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2346558/)
+## 樱花FM┃日菲举行首次外长防长会议 全面强化军事合作应对中共
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2346751/)
 
-4/14/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天iTunes打榜记录：
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-1-9.png)
+4月9日，日本和菲律宾在东京都内举行了首次外长防长磋商会议，全面加强军事合作，以应对中共在东海和南海不断加强的军事活动。
 
-* * *
+4月9日，日本和菲律宾两国政府在东京都内举行了首次外长防长磋商会议（2+2）。鉴于中共在东海和南海不断加强的军事活动，双方达成一致，将围绕缔结自卫队与菲军部队可相互顺畅往来的《互惠准入协定》（RAA）展开探讨。日菲还发表了内容包括加强联合训练等的声明。双方还就俄罗斯进攻乌克兰危及国际秩序的根基、对亚洲也造成影响一事，达成了共识。
 
-[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+日本外相林芳正、防卫相岸信夫出席了磋商，菲方则由外交部长洛钦和国防部长洛伦扎纳出席。两国外长还举行单独会谈，朝着实现“自由开放的印度太平洋”交换了意见。
 
-* * *
+林芳正在2+2上指出，中共正在东海和南海持续实施以力量为背景单方面改变现状的尝试。他在联合记者会上表示：“鉴于严峻度增强的安全环境，将加强双边安全合作。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+日本根据《防卫装备品和技术转移协定》，与菲律宾签署了防空雷达出口协议。联合声明中写明“将通过防卫装备品和技术转移，进一步加强整个防务关系”。两国还将讨论缔结相互融通物资和劳务等的《物资劳务相互提供协定》（ACSA）。
 
+声明就东海和南海局势强调“表示严重关切，强烈反对加剧紧张的行为”。双方还确认了基于《联合国海洋法公约》等国际法解决争端的重要性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+在日本设置的部长级2+2的对象国中，菲律宾是继美英等之后的第9个国家，也是继印度尼西亚之后的东盟（ASEAN）成员国中的第2个。
 
+文字版原文：[日菲举行首次2+2磋商 探讨缔结RAA](https://china.kyodonews.net/news/2022/04/83f2edf6486f-22-raa.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+编辑：东京樱花团/小老虎
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-
-
-[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

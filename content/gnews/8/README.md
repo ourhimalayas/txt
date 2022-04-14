@@ -2,27 +2,30 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年4月12日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346539/)
+## 俄乌战局最近消息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346735/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-2.jpg)
+作者：文斌
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年4月12日早](https://gnews.org/zh-hans/2336155/)
+截止当地时间4月13日，俄罗斯部队在乌克兰哈尔科夫市周围的集结和整编还在进行，俄第1坦克军和第20集团军所属部队已经被部署至伊久姆附近，俄军试图以此增援其在伊久姆方向的进攻行动。为此，俄罗斯不得不继续牵制哈尔科夫周围的乌克兰守军。此外，虽然增援部队尚未集结，但俄军还是展开了其在顿巴斯的进攻行动，援军或将在到齐后被投入至当地的战斗中。
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-10.19.27-AM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+另一方面，即使全力依靠炮火攻击，但俄罗斯在北顿涅斯克、波帕斯纳亚以及鲁别日诺耶的进攻仍全数以失败告终。非但如此，乌克兰第30机步旅还反向袭击了斯维特洛达尔西克附近的俄军阵地。而在赫尔松地区，俄军当前只能集中精力改善当地的防御阵地并进行空中侦察，同时加强梅利托波尔的防空措施。但消息显示，乌克兰军队的反击战已经从第聂伯罗彼得罗夫斯克地区进入到了赫尔松地区。目前，俄罗斯别尔哥罗德州边境附近的一座铁路桥被炮火破坏，造成俄军的补给线路受阻。别尔哥罗德当局正在号召当地志愿者加入民兵，用以在夜间协助警察进行安保工作。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另据乌克兰方的消息显示，乌克兰边防军已经加强了其在德涅斯特河左岸和白俄罗斯边境的安保工作。 而在马里乌波尔市的乌克兰守军依然在奋力抵抗当地俄军的进攻。消息人士认为，俄军对马里乌波尔的包围导致外界无法获得实物证据、采访或检查幸存者，用以核实其在当地的化学武器使用情况。
+
+而乌克兰国防情报局也披露道，俄罗斯军队的士气依然处于低迷状态：一来，莫斯科当局先前承诺的参战财政奖励并没有如期交付给一些部队；二来，大量俄罗斯士兵的尸体被运回国内，导致相当一部分俄军拒绝参加战斗。
+
+更多消息，请持续关注本节目的后续报道。
+
+参考链接：[https://liveuamap.com/](https://liveuamap.com/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编/编辑/审核：Irene木木
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

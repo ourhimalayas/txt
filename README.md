@@ -15,110 +15,110 @@
 
 ---
 
-### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [樱花FM┃美国“授权撤离”驻上海总领馆](/content/gnews/1/README.md)
+ ` 樱花FM`
 
-### [俄罗斯威胁如瑞典芬兰加入北约要部署新的核设施](/content/gnews/2/README.md)
- ` 波士顿五月花农场金融部`
+### [樱花FM┃是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/2/README.md)
+ ` 樱花FM`
 
-### [有声|爱立信无限期暂停俄罗斯业务](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [Elon Musk打算以410亿美元收购推特](/content/gnews/4/README.md)
- ` 银河歌舞厅`
-
-### [2022年04月14日七哥乱聊直播速记](/content/gnews/5/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月12日早](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [4/10/2022 文贵直播： 实现法治和民主需要合理的财富分配和获得制度以及安全的财富拥有方式；实现喜马拉雅目标的头等大事是建立由人们自己决定财富、自动创造财富、可衡量且不受权力控制的金融模式](/content/gnews/9/README.md)
- ` 秘密翻译组-北美组`
-
-### [埃隆-马斯克提出以430亿美元的现金收购Twitter](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [疯魔乱世](/content/gnews/11/README.md)
- ` 纽约香草山MOS03`
-
-### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话](/content/gnews/13/README.md)
- ` 日本东京方舟农场`
-
-### [有声|前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [美国及世界疫情简报（04-14-2022）](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
-
-### [有声|国际货币基金组织為乌克兰設立捐助专用账户](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|中共威胁之下,台湾首次向民众发布战争生存指南](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [认定种族清洗或种族灭绝意义重大](/content/gnews/18/README.md)
- ` 温哥华扬帆农场`
-
-### [爆料｜郭文贵分析 中共攻打台湾 灭亡是日本](/content/gnews/19/README.md)
- ` 關注組`
-
-### [有声|新中国联邦咖啡 New Federal State of China coffee](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|中共要求上海为死亡一万人做准备](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [美国考虑派遣一名高级官员访问基辅](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [俄罗斯将摧毁乌克兰的粮食库存和出口](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [4/10/2022 文贵直播：《锁链梦》和《灭共的雪》两首歌同时打榜意味着什么？](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄罗斯联邦黑海舰队的旗舰“莫斯科号”被击中](/content/gnews/25/README.md)
- ` 日本东京方舟农场`
-
-### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/26/README.md)
+### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/3/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [加拿大资源出口从俄乌战争中获益](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [樱花FM┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/4/README.md)
+ ` 樱花FM`
 
-### [台湾军方卖台贼购买了中共国的无人机](/content/gnews/28/README.md)
- ` 银河歌舞厅`
+### [文·贵天成——文贵先生谈“默克尔”（二）](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美国国会资深领袖团乘军机访台](/content/gnews/29/README.md)
+### [樱花FM┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [2022年4月14日大直播速记精萃](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [俄乌战局最近消息汇总](/content/gnews/8/README.md)
+ ` NFSC News`
+
+### [有声|俄乌战局最近消息汇总](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [樱花FM┃上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！](/content/gnews/10/README.md)
+ ` 樱花FM`
+
+### [台湾人民危在旦夕](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
+
+### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/12/README.md)
+ ` NFSC News`
+
+### [有声|郭先生谈人生、性情与人类的未来](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄罗斯威胁如瑞典芬兰加入北约要部署新的核设施](/content/gnews/15/README.md)
  ` 波士顿五月花农场金融部`
 
-### [传上海虹口区卫健委主任在办公室自尽](/content/gnews/30/README.md)
+### [有声|爱立信无限期暂停俄罗斯业务](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [Elon Musk打算以410亿美元收购推特](/content/gnews/17/README.md)
+ ` 银河歌舞厅`
+
+### [马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|美国最新人权报告 重申中共的种族灭绝和反人类罪](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [埃隆-马斯克提出以430亿美元的现金收购Twitter](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|拜登称：俄罗斯在乌克兰犯下种族灭绝罪](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼](/content/gnews/31/README.md)
+### [有声|前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [美国及世界疫情简报（04-14-2022）](/content/gnews/25/README.md)
+ ` 波士顿五月花农场`
+
+### [认定种族清洗或种族灭绝意义重大](/content/gnews/26/README.md)
+ ` 温哥华扬帆农场`
+
+### [爆料｜郭文贵分析 中共攻打台湾 灭亡是日本](/content/gnews/27/README.md)
  ` 關注組`
 
-### [突发：中共两列火车发生碰撞 9节车厢坠落桥下](/content/gnews/32/README.md)
+### [美国考虑派遣一名高级官员访问基辅](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [俄罗斯将摧毁乌克兰的粮食库存和出口](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄罗斯联邦黑海舰队的旗舰“莫斯科号”被击中](/content/gnews/30/README.md)
+ ` 日本东京方舟农场`
+
+### [加拿大资源出口从俄乌战争中获益](/content/gnews/31/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [台湾军方卖台贼购买了中共国的无人机](/content/gnews/32/README.md)
+ ` 银河歌舞厅`
+
+### [美国国会资深领袖团乘军机访台](/content/gnews/33/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼](/content/gnews/34/README.md)
+ ` 關注組`
+
+### [突发：中共两列火车发生碰撞 9节车厢坠落桥下](/content/gnews/35/README.md)
  ` 纽约香草山MOS03`
-
-### [俄军长期囚禁并轮奸乌克兰少女](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [纽约地铁枪击案造成十余人受伤](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [全球疫情疫苗数据更新](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/36/README.md)
  ` 關注組`
