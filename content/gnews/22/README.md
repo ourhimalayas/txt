@@ -2,41 +2,37 @@
 ---
 
 
-## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
+## 民生集萃——疫情对实体经济打击巨大（2022.4.14）&#8211;疫情导致门面长期租不出去
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2344776/)
 
-翻译：Jenny Ball
+#### 雅典娜情报组《民生灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+整理/编辑：gardeniahu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-3.png)图片来源：雅典娜设计组(614)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
-医学页面（MedPage）今天报道：
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
+帖子原文：
 
-提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
+疫情对实体经济打击真的太大了，朋友说他家一个门面空了快两年还没有租出去，打电话问租金的人不多，有的也是乱砍价，还不如一套单身公寓租金高，朋友问我怎么处理这个门面？是空着还是卖掉？现在卖掉是不是也卖不了一个好价钱？
 
-然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
+发布于03.26
 
-评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
+精选评论
 
-新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
+数星星  回复：房东对实体经济的打击更大
 
-* * *
+手绘小调  回复：我们这边（小地方，不起眼的路边）有个门面，我见空了一两年了，我想着把我的小画室搬过去，好家伙，房租一年四十万。我朋友那边一年也就几万。滚一边去吧，真觉得创业的人钱是天上掉下来的呀。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1693.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1694.png)图片来源：小红书
+参考链接:[疫情对实体经济打击巨大](https://www.xiaohongshu.com/discovery/item/623e98160000000001026d98?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904338)
 
-评论： Jenny Ball
-审核：文乐      
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 
