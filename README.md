@@ -15,128 +15,128 @@
 
 ---
 
-### [全球疫情疫苗数据更新](/content/gnews/1/README.md)
+### [4/10/2022 文贵直播：未来世界新的三座大山：第一是食品和水，第二是生物科技和现代能源科技，第三是智慧和数据](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/10/2022 文贵直播：比特币、以太币和喜币是真正的数字货币；比特币开启了数字货币和法币消亡的时代；以太币是最牛的数字货币，NFT是其核心并实现了以太币的流通，摩根家族最早将NFT合法化](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文·贵天成——文贵先生谈“默克尔”（一）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【G时新闻】美国两党建议在澳增派兵力以应对日益紧张的中澳关系，并警告所罗门群岛可能落入中共国的手中](/content/gnews/2/README.md)
- ` G-时新闻`
+### [共产主义的结局必将是消亡](/content/gnews/4/README.md)
+ ` NFSC News`
 
-### [【G时新闻】比利时首相到访新中国联邦波兰救援中心](/content/gnews/3/README.md)
- ` G-时新闻`
-
-### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/4/README.md)
- ` 關注組`
-
-### [黑海舰队旗舰“莫斯科号”遭遇乌军导弹袭击沉没|](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [4/14/2022 银河快讯：日银黑田总裁：&#8221;采取强有力的货币宽松政策&#8221;对应20年来最弱的日元；内阁官房长官就日元贬值发表讲话说：快速波动是不可取的](/content/gnews/6/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [2022/04/14 英喜时事速递](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：韩国青瓦台召开常任委员会并敦促俄罗斯禁止屠杀乌克兰平民](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声｜上海物价离谱：蛋炒饭92元 30个鸡蛋478元](/content/gnews/9/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [乌克兰加入欧盟？“不会早于2030年”](/content/gnews/10/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [20220413郭文贵大直播 ：六月鲜花战友讲述欧盟官员来新中国联邦帐篷的细节](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [秘翻在线：印度继原油之后大量采购俄罗斯煤炭](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声｜上海有小区半解封 居民曝光路边大量果蔬腐烂](/content/gnews/13/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [20220413郭文贵大直播 ：六月鲜花战友讲述比利时总理来新中国联邦帐篷时的细节](/content/gnews/14/README.md)
- ` Tokyo Sakura Video Group`
-
-### [4/14/2022 国际财经快讯：乌克兰战争冲击支撑俄罗斯经济的石油工业;台湾19家IT企业3月增收17％](/content/gnews/15/README.md)
- ` 秘密翻译组金融团队`
-
-### [20220413郭文贵大直播 ： 我们已经退无可退，真正到了要承载历史使命的时刻了](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
-
-### [加拿大公司使用中共国强迫劳动力](/content/gnews/17/README.md)
+### [加拿大皇家骑警在镇压自由车队期间餐饮无度](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [视频|拜登总统公开表示 俄乌战争是种族灭绝](/content/gnews/18/README.md)
+### [全球疫情疫苗数据更新](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【G时新闻】美国两党建议在澳增派兵力以应对日益紧张的中澳关系，并警告所罗门群岛可能落入中共国的手中](/content/gnews/7/README.md)
+ ` G-时新闻`
+
+### [【G时新闻】比利时首相到访新中国联邦波兰救援中心](/content/gnews/8/README.md)
+ ` G-时新闻`
+
+### [伊隆马斯克的最终目的要买断推特股票](/content/gnews/9/README.md)
+ ` mayflowertranslate`
+
+### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/10/README.md)
+ ` 關注組`
+
+### [黑海舰队旗舰“莫斯科号”遭遇乌军导弹袭击沉没|](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [4/14/2022 银河快讯：日银黑田总裁：&#8221;采取强有力的货币宽松政策&#8221;对应20年来最弱的日元；内阁官房长官就日元贬值发表讲话说：快速波动是不可取的](/content/gnews/12/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [2022/04/14 英喜时事速递](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：韩国青瓦台召开常任委员会并敦促俄罗斯禁止屠杀乌克兰平民](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声｜上海物价离谱：蛋炒饭92元 30个鸡蛋478元](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [乌克兰加入欧盟？“不会早于2030年”](/content/gnews/16/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [20220413郭文贵大直播 ：六月鲜花战友讲述欧盟官员来新中国联邦帐篷的细节](/content/gnews/17/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [秘翻在线：印度继原油之后大量采购俄罗斯煤炭](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声｜上海有小区半解封 居民曝光路边大量果蔬腐烂](/content/gnews/19/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220413郭文贵大直播 ：六月鲜花战友讲述比利时总理来新中国联邦帐篷时的细节](/content/gnews/20/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/14/2022 国际财经快讯：乌克兰战争冲击支撑俄罗斯经济的石油工业;台湾19家IT企业3月增收17％](/content/gnews/21/README.md)
+ ` 秘密翻译组金融团队`
+
+### [加拿大公司使用中共国强迫劳动力](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [视频|俄乌大战在即 中共将在5月之前攻台](/content/gnews/23/README.md)
  ` MOSVIDEO`
 
-### [视频|俄乌大战在即 中共将在5月之前攻台](/content/gnews/19/README.md)
+### [视频|美国将再为乌克兰提供7.5亿美元军事援助](/content/gnews/24/README.md)
  ` MOSVIDEO`
 
-### [北欧两国对北约态度或使欧安全框架发生重大变化](/content/gnews/20/README.md)
- ` 澳喜特战旅Gnews`
-
-### [视频|美国将再为乌克兰提供7.5亿美元军事援助](/content/gnews/21/README.md)
- ` MOSVIDEO`
-
-### [拜登称8亿美元的乌克兰新方案将包括直升机](/content/gnews/22/README.md)
+### [拜登称8亿美元的乌克兰新方案将包括直升机](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [速报┃俄军在日本海发射导弹 报复日本](/content/gnews/23/README.md)
+### [速报┃俄军在日本海发射导弹 报复日本](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在购买了廉价的俄石油后，印度现在将目光投向了煤炭](/content/gnews/24/README.md)
+### [在购买了廉价的俄石油后，印度现在将目光投向了煤炭](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [政策随性，折腾百姓](/content/gnews/25/README.md)
+### [政策随性，折腾百姓](/content/gnews/28/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [微软称受到中共国的网路攻击](/content/gnews/26/README.md)
- ` 银河歌舞厅`
-
-### [两周后布查的尸体数量继续上升：“他们射杀了所有人”](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛](/content/gnews/28/README.md)
+### [网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛](/content/gnews/29/README.md)
  ` xiaobaige`
 
-### [民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉](/content/gnews/29/README.md)
+### [民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业](/content/gnews/30/README.md)
+### [民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/31/README.md)
+### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/32/README.md)
  ` 關注組`
 
-### [有声｜中共国石油巨头因惧怕制裁准备从西方撤出](/content/gnews/32/README.md)
+### [有声｜中共国石油巨头因惧怕制裁准备从西方撤出](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/33/README.md)
+### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/34/README.md)
  ` 關注組`
 
-### [闲聊澳洲：习近平大量调军进上海的目的](/content/gnews/34/README.md)
+### [闲聊澳洲：习近平大量调军进上海的目的](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [04/14每日播报｜社媒消息: 罗伯特马龙博士 战斗室](/content/gnews/35/README.md)
+### [04/14每日播报｜社媒消息: 罗伯特马龙博士 战斗室](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/36/README.md)
+### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/37/README.md)
  ` 關注組`
 
-### [洪都拉斯前总统因涉嫌贩毒将于下周引渡到美国](/content/gnews/37/README.md)
+### [洪都拉斯前总统因涉嫌贩毒将于下周引渡到美国](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
 
-### [国际｜拜登“种族灭绝”言论 白宫发言人：个人感受](/content/gnews/38/README.md)
+### [国际｜拜登“种族灭绝”言论 白宫发言人：个人感受](/content/gnews/39/README.md)
  ` 關注組`
 
-### [台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？](/content/gnews/39/README.md)
+### [台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？](/content/gnews/40/README.md)
  ` 關注組`
 
-### [聚焦：戴琪释放美中经济即将脱钩信号](/content/gnews/40/README.md)
+### [聚焦：戴琪释放美中经济即将脱钩信号](/content/gnews/41/README.md)
  ` 蓝莲花农场`
-
-### [美国务院2021年人权报告重申中共犯下种族灭绝罪和反人类罪](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [中国｜上海官员不堪抗疫压力自杀 胡锡进冷血评论：继续清零 没有选择](/content/gnews/42/README.md)
  ` 關注組`
