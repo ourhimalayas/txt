@@ -2,35 +2,19 @@
 ---
 
 
-## 福奇建議個人自主決定COVID的“個人風險”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2343486/)
+## 樱花FM┃美国驻华使团关于旅行警告和授权撤离的声明
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2343664/)
 
-據《福克斯新聞》作者：Peter Aitken，2022年4月10日報道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1679-e1649910150232.png)2021年12月1日，安東尼-福奇博士在白宮舉行的每日簡報會上發言。圖片來源：Mandel Ngan/AFP 通過 Getty Images
-安東尼-福齊博士建議，隨著人們學會與病毒共處，個人將需要自己決定他們個人的事件和COVID-19暴露的風險水平。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.png)
+伯恩斯大使以及国务院和使团的其他官员已直接向中共国官员提出了我们对疫情和中共国管控措施的关切，我们也已将自愿撤离的决定通知了他们。根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中共国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中共国的香港特别行政区、吉林省和上海市。我们正在向中共国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持。
 
-“將要發生的是，我們將看到每個人將不得不計算他們想要參加室內晚餐的風險程度，甚至在綠色區域的範圍內發揮作用。”福奇周日在參加美國廣播公司的“本周”節目時說，“這將是一個人對自己要承擔的個人風險的決定。”
+文字版原文：[美国驻华使团关于旅行警告和授权撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
-他補充說：“我們正處於這樣一個階段，在許多方面……我們將不得不忍受社區中某種程度的病毒。”
+*编辑：东京樱花团/小老虎
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
 
-疾病預防控制中心已將該國大部分地區標記為“綠色區域”，這表明對感染的擔憂程度“較低”。疾病預防控制中心建議保持最新的疫苗，如果一個人有癥狀，就去做檢查。
-
-諸如戴口罩或針對高危人群的額外預防措施，在一個區域被指定為“紅色”或“高”風險之前不會啟動，但福奇淡化了對感染率大幅上升的擔憂以及向該“紅色區域”移動的可能性。
-
-福奇贊揚了美國人的疫苗接種和預防水平，但他提醒說，人們需要保持對隨著時間推移出現的免疫力減弱的認識。
-
-文章來源: [https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk](https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk)
-
-翻譯：洛杉磯盤古農場 – Mike Li
-校對：洛杉磯盤古農場 – HotPixel
-編輯：洛杉磯盤古農場 – WenXiong
-發布：洛杉磯盤古農場 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

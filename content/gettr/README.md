@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 5:03 AM (UTC)`
+
+4/10/2022 Miles Guo: What does it mean for both "Chained Dream" and "The Terminator Snow" to hit the iTunes charts at the same time?<br/><br/>4/10/2022 文贵直播：《锁链梦》和《灭共的雪》两首歌同时打榜意味着什么？<br/>
+![img](https://media.gettr.com/group36/getter/2022/04/14/05/3c5940d1-69c8-b747-6204-fe86817e4675/out.jpg)
+
+---
+
+`@miles 4/14/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group25/origin/2022/04/14/04/9f826703-15e6-1384-0663-a03432d2126b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 4:32 AM (UTC)`
 
 4/10/2022 Miles Guo: Thanks to the fellow fighters from mainland China and those inside of the CCP for risking their lives to provide with the New Federal State of China key classified information and military intelligence about the CCP! You will always be regarded as the number 1 contributor to the New Federal State of China.<br/><br/>4/10/2022 文贵直播：感谢体制内和国内战友们冒着生命危险给新中国联邦提供的关于中共的重要机密信息和军事情报，你们永远是新中国联邦的第一功臣！<br/>
@@ -126,20 +140,6 @@
 
 新中国联邦 法治基金 飞飞秀救援快报 2022-04-13<br/>For English：gettr.com/streaming/p156azt1f19
 ![img](https://media.gettr.com/group39/origin/2022/04/13/21/37ae536a-69dc-5326-01f9-a7c83841589c/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/13/2022 10:00 PM (UTC)`
-
-4/10/2022 Miles Guo: Now you see the only thing that Xi Jinping is obsessed with is to bring down the dominance of the US dollar. That's the only concern of the CCP. Xi enjoys watching the Chinese people go hungry because of his experience of starvation.<br/><br/>4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元！<br/>
-![img](https://media.gettr.com/group33/getter/2022/04/13/22/c86c8a5e-c90d-ee5f-708c-860a87821ac6/out.jpg)
-
----
-
-`@miles 4/13/2022 9:58 PM (UTC)`
-
-4/10/2022 Miles Guo: Now you see the only thing that Xi Jinping is obsessed with is to bring down the dominance of the US dollar. That's the only concern of the CCP. Xi enjoys watching the Chinese people go hungry because of his experience of starvation.<br/><br/>4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元！<br/>
-![img](https://media.gettr.com/group43/getter/2022/04/13/21/f470e9e1-821d-04bf-404a-d2194760a19a/out.jpg)
 
 ---
 

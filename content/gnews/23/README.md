@@ -2,31 +2,35 @@
 ---
 
 
-## 有声|多家银行下调个人账户线上交易限额
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2343106/)
+## 澳大利亚对俄罗斯国有企业实施更多制裁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2343444/)
 
-录音：香草山文艺部 – maggie 喵
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-近期，光大银行、浦发银行、农业银行等多家银行相继发布公告，下调个人账户线上相关业务交易限额，包括线上转账限额及网上支付交易限额等。
+#### 翻译/编辑：小红帽
 
-光大银行在公告中称，自2022年5月12日起，将对网上支付交易限额进行调整，用户通过各类网上交易渠道消费并通过光大银行支付平台完成的支付交易，默认单笔限额及单日限额统一调整为1万元。
-
-原文链接：[多家银行下调个人账户线上交易限额](https://gnews.org/zh-hans/2339591/)
-
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-音频处理/发稿：Daxia
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/202108061653-main.cropped_1628243625.jpg)图片来源：VOI
 
 
+根据CNA 4月14日报道，澳大利亚周四对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
+
+澳大利亚外交部长玛丽斯·佩恩在一份声明中表示，制裁还将扩大到电子公司Ruselectronics（负责生产约80%的俄罗斯电子元件）以及俄罗斯铁路公司。
+
+俄罗斯表示在乌克兰发起了“特别军事行动”，并指责乌克兰造成了平民死亡以及基辅诋毁俄罗斯的武装部队。
+
+澳大利亚现在已经制裁了大约600名个人和实体，包括俄罗斯的大部分银行业和对该国主权债务负责的所有组织。
+
+澳大利亚还向乌克兰提供国防设备和人道主义物资，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+
+资料来源：[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

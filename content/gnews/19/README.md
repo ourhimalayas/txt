@@ -2,39 +2,40 @@
 ---
 
 
-## 俄罗斯称爆炸导致黑海旗舰瘫痪，乌克兰称是导弹袭击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343242/)
+## 中共国商业银行房地产和企业要么破产要么在破产的路上
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2343466/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8804.61%EF%BC%89%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%95%86%E4%B8%9A%E9%93%B6%E8%A1%8C%E6%88%BF%E5%9C%B0%E4%BA%A7%E5%92%8C%E4%BC%81%E4%B8%9A%E8%A6%81%E4%B9%88%E7%A0%B4%E4%BA%A7%E8%A6%81%E4%B9%88%E5%9C%A8%E7%A0%B4%E4%BA%A7%E7%9A%84%E8%B7%AF%E4%B8%8A%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-#### 翻译/编辑：小红帽
+**郭文贵先生：**另外一个就看中共国的经济。中共国现在把整个的银行、20几家商行破产，200多家银行等待破产。房地产过去的将近20几大家破产，2万家的小企业破产，和在2000家等待的破产，和印了将近50万亿人民币的所谓它自己承认的就是印的，就喷出来的，复印、复制出来的人民币，抢夺人民的财富，导致的经济，现在通胀通缩，以及银行和存户之间的这种随时可以爆破的这种存贷关系。中共国实在是太可怕了，太可怕了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1323683.jpg)图片来源：TASS
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
+编辑整理：星塵Scheddi；
 
-根据CNA新闻4月14日报道，俄罗斯于周四表示，其黑海舰队的旗舰在一次爆炸后严重受损，其船员被疏散。一名乌克兰官员称这是导弹袭击的结果。
+字幕文件制作：小满；
 
-据国际文传电讯社报道，俄罗斯国防部表示，“莫斯科”号导弹巡洋舰上的火灾导致弹药爆炸。
+视频制作及上传：Cindy；
 
-引起火灾的原因尚未明确，但黑海港口敖德萨附近地区的州长Maksym Marchenko表示，莫斯科号被两枚乌克兰制造的海王星反舰巡航导弹击中。
+G-News发布：海贼王M.D.LUFFY；
 
-乌克兰国防部没有回应置评请求，路透社也无法核实双方的说法。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“莫斯科”号是自战争开始以来已知的第二艘遭受严重破坏的主要船只。上个月，乌克兰说它在较小的亚速海摧毁了一艘登陆支援舰，即“奥尔斯克”号。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-俄罗斯海军向乌克兰发射了巡航导弹，其在黑海的行动对于支持乌克兰南部和东部的陆地行动至关重要。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-俄罗斯新闻机构说，1983年服役的“莫斯科”号配备了16枚反舰“武尔坎”巡航导弹，射程至少为700公里。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-资料来源:[俄罗斯称爆炸导致黑海旗舰瘫痪，乌克兰称是导弹袭击](https://www.channelnewsasia.com/world/russia-says-blast-cripples-black-sea-flagship-ukraine-claims-missile-strike-2625101?cid=FBcna)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-发布：*wenly*
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

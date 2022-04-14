@@ -2,25 +2,33 @@
 ---
 
 
-## 中共要求上海为死亡一万人做准备
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2340710/)
+## 有声|俄罗斯寡头的超级游艇驶向斐济
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340729/)
 
-作者：Leo M
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+据报道，一艘受制裁的俄罗斯寡头的超级游艇“Amadea”本周将在斐济加油，然后返回其母港，这里的当局预计这是最接近新西兰的一艘超级游艇。船主不太可能在船上。他是黄金生产商和涉嫌洗钱者苏莱曼克里莫夫，他在美国、英国和欧盟的制裁名单上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-4.jpg)‘阿玛达’。照片：国际船舶![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.jpg)超级游艇经纪人Duthie Lidgard 照片：RNZ/Dan Cook
+新西兰外交和贸易部（MFAT）表示，目前不知道有任何俄罗斯拥有的船只在新西兰水域受到制裁，并且表示如果“受制裁的船只试图进入新西兰，将被采取行动”。
 
-郭文贵先生在4月10日的大直播中透露，中共当前在上海进行的疫情封控其实是一次为战争准备的压力测试。其中，上海得到的死亡指标是1万人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-2.jpg)
-郭先生解释道，一份中共上海市政府提交的内部报告预计，在封城一个月后，当地将有总人口数三万分之一的老、幼、病、残死亡。此外，中共当局也要求上海为死亡1万当地居民做准备。同时，郭先生早先也透露过，为了应对即将到来的疫苗灾难，中共已经给上海配备了超过五千个气化焚尸炉，用于处理大量死亡的民众尸体。
+禁止所有俄罗斯军用或政府拥有的船只，或受制裁个人或实体的船只进入新西兰。与此同时，新西兰卫生部表示，俄罗斯的“Amadea”没有要求在新西兰加油。
 
-郭先生也提到，习近平本质就是要让中国人挨饿，因此，上海、香港、广州、深圳和北京等地区的民众都会生活得很惨。在此情况下，那些目前为上海支援食物的外省官员将很快被中共抓捕。
+[【援引连结】](https://www.rnz.co.nz/news/national/465191/russian-oligarch-s-superyacht-sailing-towards-fiji)
 
-参考链接：[4/10/2022 文贵直播：中共要求上海、广州、深圳、郑州和长春为死掉5000分之一或2500分之一的人做准备；外省为上海送食品的官员很快被抓，21个城市的官员若违反中共政治规定会被就地免职；习要让中国人挨饿，香港、上海、广州、深圳和北京会很惨！](https://gettr.com/post/p14mvas8559)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：Irene木木
-编辑/审核：飞虹
-校正/发稿：Fei797
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流**瓶
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

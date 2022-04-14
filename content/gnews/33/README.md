@@ -2,53 +2,62 @@
 ---
 
 
-## 向李强喊话者被带走时高喊:一定要站起来,不能跪下去
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2342208/)
+## 台海、俄乌、中东等地区的大战即将打响！
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342446/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面-4.png)
-据[We’re new Chinese who is taking down the evil CCP](https://gettr.com/user/wenlongjack)@wenlongjack4月 11日发布的盖特
+作者：顺其自然
+编辑：Kelly
 
-1） 上海市委书记李强被上海老阿姨骂，共产党都是假的，结果领导一膨胀以为多受爱戴 结果就是皇帝的新衣 ，上海老阿姨厉害。
-
-[https://gettr.com/post/p14oo3p602f](https://gettr.com/post/p14oo3p602f)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/001-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/002-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/003-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1-131.png)配图：雅典娜设计组～614
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/004.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/005.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/006.jpg)
+听完郭先生的盖特视频和三十分钟的简短直播，我补充一下相关的资料。
 
+1）本周一即4月11日，美国驻华使领馆官方微博发布公告：由于新冠病例激增以及中华人民共和国应对措施带来的相关限制的影响，2022年4月11日，美国国务院命令非紧急美国政府雇员以及所有家庭成员从上海总领事馆领区撤离。
 
-不管李强拐弯被骂后这个小区的生活物资是不是得到了解决，但是至少出了一口恶气，但是，但是，后续来了，根据网传一段视频，共匪白卫兵把向李强喊话的另一位市民带走了——
+两天前，美国驻华使领馆是授权撤离，现在美国国务院刚刚把2天前颁布的上海总领事馆的“授权撤离”升级为“命令撤离”，命令所有非紧急雇员及所有家属立即撤离！理由是上海疫情封控，但我们知道，中共国一向是一等洋人、二等官、三等少民、四等汉。何况是美国人这个一等中的一等，上海再怎么实行封控，也不会缺了美国使领馆官员及家属的物资。
 
-——记住！一个倒下了，千千万万站起来！你们一定要站起来，不能跪下去！
+2）本周二即4月12日，台湾军方首次发布全民防务手册，在俄罗斯入侵乌克兰的战争情景中为公民提供生存指导，将注意力集中在该岛应如何应对中共的压力。
 
-这位只是向李强喊话，说明小区居民缺吃少穿、没医没药的市民以这种悲壮的方式被解决，不知道他接下来会遭遇什么样的折磨，但是这一幕却是这个至暗时代的最真实写照。
+台湾全民防务手册详细介绍了如何通过智能手机应用程序找到防空洞、水和食物供应，以及准备紧急急救箱的技巧。
 
-撰稿：喜马拉雅的肉夹馍；
+台湾国防部全面国防动员部官员刘泰义在一次在线新闻发布会上说：“（我们）正在提供有关公民应如何应对军事危机和可能发生的灾难信息，这将有助于做好安全准备并帮助人们生存，该手册借鉴了瑞典和日本发布的类似指南，将进一步更新当地信息，例如避难所、医院和商店的地点，以满足日常需求。手册中使用连环画和图片展示如何在军事袭击中幸存下来的技巧，例如如何区分空袭警报器和躲避导弹的方法。
 
-审核：喜马拉雅的馍夹肉；
+我们知道习近平誓要将台湾拿下，而且越来越多的迹象表明，攻台为期不远，所以台湾给民众发放了生存手册，告诉民众怎么在战争中生存。
 
-校对：Maarago；
+3）据网易新闻，福州市人民政府关于组织试鸣防空警报的通告：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+2022年4月21日（星期四）上午9时30分、试鸣防空警报范围：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+鼓楼区、台江区、仓山区、晋安区、马尾区，长乐区、福清市、闽候县、连江县、闽清县、罗源县、永泰县。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+防空警报信号规定：
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+1.预先警报：鸣36秒，停24秒，反复3遍，时间3分钟；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+2.空袭警报：鸣6秒，停6秒，反复15遍，时间3分钟；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+3.解除警报：连续鸣放3分钟。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+特此通告。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+我们知道福建在中共攻台中的战略地位，福州市政府发布试鸣防空警报通知，目的显而易见了。
+
+中共把红旗导弹运送到塞尔维亚及中东各国，又在国内的深圳、上海、广州还有接下来的北京做极限压力测试，为中共攻打台湾后美欧对中共的制裁做准备，这一系列的动作说明大战真的临近了，郭先生说可能是在5月份之前。5月9日是俄罗斯卫国战争胜利日，所以在这之前，俄罗斯一定会对乌克兰进行更猛烈的攻击，现在又有了中共提供的导弹、无人机支持，就更加敢干了。
+
+中东基本都被中共的蓝金黄手段拿下，前几天中东小打小闹，估计很快也会配合俄罗斯把动静弄大点，分散俄罗斯的压力。中共那就更不用说了，习近平这个普京的铁哥们、利益伙伴，原本就计划好共同对抗欧美，俄罗斯取乌克兰，中共拿下台湾。他们原本的设想是俄罗斯能很快拿下乌克兰，然后中共紧接着对台湾动手，没想到乌克兰人民的英勇反抗使得俄罗斯的计划没有得逞，俄乌战争已经持续了一个多月，俄罗斯不仅没占到什么便宜，反而损失惨重。普京没有退路，只能把战争继续下去，接下来俄罗斯会对乌克兰进行更猛烈的、惨无人道的血腥进攻，而习近平不仅会配合普京，他自己也要完成所谓的统一大业——拿下台湾。
+
+一切一切的迹象表明：台海、俄乌、中东等地区的大战即将打响！
+
+资料来源：郭文贵先生youtube及盖特视频
+
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

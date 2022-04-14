@@ -2,55 +2,80 @@
 ---
 
 
-## 上海、北京进行极限压力测试与俄乌战事变化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342608/)
+## 拜登授权向乌克兰提供8亿美元额外援助
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
 
-作者：顺其自然
-编辑：Kelly
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7EF5E625-C0E4-48B7-8A1E-90EB1976C116.png)配图：雅典娜设计组～614
-在美国时间4月11日，郭先生在盖特小视频中主要讲了：
+**拜登总统： **
+今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
 
-1）东西南北中，现在就剩下西方和北方了，南方东方在行动，一切都在行动中。
 
-2）在上海、在长春，公开的、无数的大白、居委会给个馒头、给碗面，就要求陪睡，许多去上海支援的人说：“去上海睡大美女去了。”长春比这还惨。当年日本人在中国干的事，现在在上海来一把。一位战友说：“在管委中心，里面站着好几个女孩，领导就坐桌子上说，你妈病了，是吧？摸着女孩的屁股，女孩一动不敢动。”这个战友很愤怒，但是愤怒有用吗？上海、长春的男人，不要让你的老妈、老婆、女儿为了一个馒头、一碗面被人给睡了，要像个男人一样站出来！
 
-3）人的基本权利就是吃饭、睡觉、生活、工作、说话！当别人用任何理由剥夺你这些权力的时候，你都应该合法的反击，何况他侵犯你的人身安全。骗奸诱奸，现在又出一新词叫饭奸，就是用饭奸你，你看看当官家里会没饭吃吗？饭扔了，他们都不给你吃。在现代社会让你习惯把你的家变成你的监狱；让你习惯用你的手机变成你的脚镣手铐；让你习惯管理者享有你的一切——你的房子、你的老婆、你的女儿。
+> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
+> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
 
-4）俄罗斯和乌克兰正在准备一场大战，俄罗斯这把要来狠的，生化武器、围歼战、导弹、地面攻击会全上，而且一定是指东打西，说是打乌克兰东部，但实际可能会打基辅，然后导弹会像血雨一样过去，直奔泽连斯基。这个（指挥官）从叙利亚过去的，可不是好鸟。共产党送去了武器，它不仅祸害中国人，还祸害全世界人。未来的中东、东欧、欧洲都将变成火海，真可怕啊！
 
-5）接下来就是北京的压力测试，整个北京做准备。这种情况下，攻台时间应该在5月份以前，跟我们猜的没错，跟情报判断没错。但愿别发生！
 
-6）这两天的大宗贸易突然又逆转，现在商品供应链糟透了，很多基本的民生的商品都没人生产了。
+**国务卿安东尼·布林肯：** 
+随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
 
-在美国时间4月11日，郭先生还做了个30分钟的直播，在直播中，郭先生主要讲了：
 
-上海的、长春的、广州的有些战友听了郭先生的话，带着全家从国内跑出来 了，郭先生说他希望这样的事情越多越好。
 
-在美国时间的4月12日，郭先生的盖特小视频中主要讲了：
+> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
 
-1）昨天和今天过去这24小时，欧盟和美国正在进行香港的贸易地位、经济地位的重新定义，要把香港的金融市场踢出国际金融系统，并且要对香港政府官员进行大规模的，类似于俄罗斯的制裁。过去美国是授权撤离上海使领馆人员，现在是命令撤离，这是中美历史上第一次。接下来很多国家都会这样做，中共国一定会比北朝鲜还惨，北朝鲜还跟几个国家外交呢，特别是中国大使馆。未来中国没有外交，只有内交。
 
-2）经济脱钩、外交脱钩、贸易脱钩、文化脱钩，接下来是军事上的对抗，南海、东海，现在又多了一个东欧，最后东欧会和西欧联合起来对抗共产党的习近平、普京。中共的钱和私生子女还能好好的吗？能吗？
 
-3）现任的比利时总理主动走到新中国联邦乌克兰救援大帐篷，指着nicole穿着的take down the CCP的马甲，过去和她照相合影，接受采访，这件事意义重大，这叫外交默认。他是欧洲未来之星，是最早反对马克思主义的人之一，默克尔和萨科奇过去三十年崇拜马克思，提倡让俄罗斯和中国跟欧洲做贸易，通过贸易改变中共，实际上是个骗局，就是德法拿着美国的军费保护他们自己的安全和俄罗斯做生意，享受着几乎免费的石油和天然气，占领中国的汽车市场，培养出了习太阳、普大帝，以至新疆的种族大屠杀、香港大屠杀、乌克兰大屠杀。默克尔和萨科奇在2008年阻挡了乌克兰入欧，这才是今天乌克兰灾难的真正原因。
+**国防部长劳埃德·奥斯汀三世： **
+正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
 
-4）过去只有波兰是冷静的，波兰天天被欧洲KO，未来波兰和乌克兰一定是强大的国家，现在比利时也要和他们站在一起了。
 
-5）虽然中共威胁了南希佩罗西没去成台湾，但现在佩罗西可能随时会去台湾。香港经济要崩塌了中共还能活得下去吗？上海现在一个馍换一次打炮的事情，全国人民都知道了；长春一碗方便面睡一家三口全国人民都知道了。现在封城到北京了，北京怎么办？一箱还是一根火腿肠睡人全家吗？中共完了，这是天意，谁也挡不住。
 
-6）南美什么样的国家会和新中国联邦站在一起？喜币有一天会成为全世界最早的数字法币，人民币会成为恐怖分子使用的钱，谁用人民币、谁跟共产党交易就是犯罪，到那时你就懂新中国联邦的厉害了。
+> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
 
-7）北京人要小心，备物资、备药、备食物。
 
-资料来源：郭文贵先生youtube及盖特视频
 
-发布： tianzhihuan
+**参议员汤姆·科顿： **
+令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
+
+> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
+> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
+
+
+
+**参议员霍利新闻办公室： **
+“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
+
+
+
+> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
+
+
+
+**众议员帕特·法伦：** 
+[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
+
+
+
+> Beijing is watching our every move. 
+> 
+> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
+> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂：** 
+我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
+
+
+
+> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
+> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
+
+
 
  
 
