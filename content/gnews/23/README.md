@@ -2,41 +2,29 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345925/)
+## 俄军长期囚禁并轮奸乌克兰少女
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346055/)
 
-**整理：枳实**
-**美工：精灵蓝**
+作者：在远方
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+据相关媒体当地时间4月12日的报道，乌克兰人权观察员当天反馈的消息显示，在基辅郊区布查镇的一处地下室内，一群年龄在14岁至24岁之间的乌克兰少女曾被俄罗斯侵略军监禁长达25天。期间，俄军每天都对她们实施野蛮的轮奸行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-77.jpg)
+此外，大量的证据表明，俄罗斯士兵在侵略乌克兰的战争中对许多无辜的乌克兰妇女犯下了诸如强奸、滥杀和抢劫等罪行，致使她们当中的绝大多数遭受了无法复原的伤害。有当地居民证实，俄军不但将他的住所洗劫一空，甚至还在他家中的地窖内强奸并杀害了一名乌克兰女性。
 
+对此，乌克兰人权组织主席切芮帕卡向联合国安理会指控称，俄罗斯军队已经把强奸当成了一种在乌克兰境内使用的武器，而现存的所有证据不过是俄军暴行的冰山一角。同时，乌克兰驻联合国大使基斯提亚也告知安理会，该国检察总长办公室已经启动了对俄军暴力侵犯乌克兰妇女事件的调查。
 
-雅典娜疫情更新（2022年 4月14日）
+而据联合国妇女署执行主任巴豪斯透露，俄乌战争中越来越常出现的强奸和性暴力相关事件已经向全球释放了一个非常危险的信号，即俄军正在对乌克兰平民采取一种及其残暴的对待方式。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+参考链接：
+1. [殘暴！ 俄軍監禁烏國14至24歲女孩25天 至少9人遭輪姦懷孕](https://news.ltn.com.tw/news/world/breakingnews/3890512)
+2. [向聯合國安理會控訴 烏克蘭人權組織批俄軍把強姦當武器](https://news.ltn.com.tw/news/world/breakingnews/3890112)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-41.png)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-13.png)
-
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+总编：Irene木木
+编辑：静言
+审核：Irene木木
+校正/发稿：Fei797
 
  
 

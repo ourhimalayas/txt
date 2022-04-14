@@ -2,52 +2,30 @@
 ---
 
 
-## 推特用户敦促埃隆-马斯克恢复唐纳德-川普的账户
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346159/)
+## 传上海虹口区卫健委主任在办公室自尽
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346274/)
 
-据《纽约邮报》 作者：Ariel Zilber，2022年4月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1755-e1649943496816.png)盖蒂图片社
-在特斯拉的亿万富翁老板成为社交网络的最大股东并在Twitter的董事会中获得一席之地后，唐纳德-川普的支持者们敦促埃隆-马斯克恢复这位前总统的Twitter账户。
+**撰稿：日本东京方舟农场  子辰**
 
-在周二的盘前交易中，Twitter的股价上涨了27%以上–这是该公司连续第二天在马斯克收购7350万股后股价大涨。
+近期，上海疫情乱象丛生之际，有关上海虹口区卫健委信息中心主任钱文雄在办公室自杀的消息在网络疯传。但官方至今尚未公布此消息。
 
-推特首席执行官帕拉格-阿格拉瓦尔(Parag Agrawal)也在周二宣布，马斯克将加入推特的董事会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-146.png)（图片来自大纪元）
 
-“期待着与帕拉格和Twitter董事会合作，在未来几个月对Twitter进行重大改进！” 马斯克在推特上对阿格拉沃尔的宣布作出了回应。
+4月13日，网传消息说，“钱文雄同志，一医毕业，聪明能干，丁克家庭，爱人患癌晚期，本来思想负担很重，疫情期间工作量巨大，4月12日下午在办公室自尽。也算是疫情次生悲剧，痛惜。”
 
-2021年1月6日美国国会大厦发生骚乱后，特朗普被禁止进入Twitter、Facebook、Instagram和其他所有大型社交媒体平台。此后，特朗普推出了自己的社交媒体平台Truth Social，但它一直受到技术故障和主要管理人员离职的困扰。
+13日，钱文雄家属在其朋友圈发出消息表示，钱文雄于2022年4月12日下午一点十九分去世。疫情期间一切从简。家属目前悲痛不已，无法接待。
 
-现在，支持川普的声音呼吁马斯克擦亮他支持自由言论的证书，并让这位前总统回来。
+对于钱文雄自杀的消息，上海官方至今没有证实或辟谣，引发大陆网民议论。有网民说，“没人关心他为什么自缢吗？”
 
-Lauren Boebert（R-Colo）议员周一在推特上说：“现在Elon Musk是Twitter的最大股东，是时候取消政治审查了。”
+截止目前，中共官方通报称，13日，大陆31省市新增感染者29,317例（确诊2999例+无症状26,318例），染疫人数再飙高。其中上海新增本土感染者27,719例（确诊2573例+无症状25,146例）。
 
-“推特曾经是一个开放的自由思想领域.”皮特-赫格塞斯周二在《福克斯与朋友》节目中说。“现在，像群体思维的左派这样的蓝色复选标记是这种思想的警察，推特的企业类型一直乐于执行它。”
+由于中共惯于掩盖疫情真相，实际染疫人数或比官方公布的数据更多。
 
-Lauren Boebert议员要求马斯克和Twitter恢复川普的账户。
+参考链接：
+[https://www.epochtimes.com/gb/22/4/14/n13711153.htm](https://www.epochtimes.com/gb/22/4/14/n13711153.htm)
 
-同时，记者格伦-格林沃尔德嘲笑CNN的布莱恩-斯特尔特，他说自由派对马斯克成为推特最大的股东有一种“恐惧”。
-
-格林沃尔德在推特上写道：“民主党和自由主义活动家团体多年来一直在联合科技亿万富翁的审查权力，并对谷歌和FB的高管们在互联网上审查他们的敌人表示感谢。”
-
-“现在他们害怕一个不会为他们审查的亿万富翁会接管推特。”
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源: [https://nypost.com/2022/04/05/twitter-users-urge-elon-musk-to-reinstate-donald-trumps-account/?utm\_medium=SocialFlow&utm\_source=NYPTwitter&utm\_campaign=SocialFlow](https://nypost.com/2022/04/05/twitter-users-urge-elon-musk-to-reinstate-donald-trumps-account/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – HotPixel
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编：老孙
+校对发布：爱放飞
 
  
 

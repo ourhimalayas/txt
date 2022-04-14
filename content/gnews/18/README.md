@@ -2,25 +2,23 @@
 ---
 
 
-## 纽约地铁枪击案造成十余人受伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346021/)
+## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
 
-作者：文希
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
 
-据当地媒体4月12日报道，纽约市布鲁克林区当天早晨发生了一起严重的地铁枪击案，已经造成10人中弹，16人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-97.jpg)
-消息显示，一名身穿橙色建筑工地背心的非洲裔男子先是在纽约地铁列车内释放大量烟雾弹，随后，其向车厢内和月台上的乘客连续扫射33枪，造成七名男子和三名女子中弹，另有多名乘客在逃离时踩踏受伤，而这名凶手则在开枪后迅速逃离。现场照片显示，多名华裔也在伤者之列。
+此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
 
-目前，纽约警方已于13日将逃犯弗兰克-詹姆斯抓捕归案，而纽约东区检察官办公室将以“对公共交通系统进行恐怖和其他暴力袭击”为由，对其进行起诉。检察官表示，詹姆斯或将面临终身监禁的惩罚。
+台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
 
-参考链接：
-1. [影／纽约布鲁克林地铁爆枪案 10人中弹16伤 现场华人多](https://www.worldjournal.com/wj/story/121470/6234473?zh-cn)
-2. [Suspected Brooklyn subway shooter Frank James arrested: NYPD](https://pix11.com/news/local-news/suspected-brooklyn-subway-shooter-in-nypd-custody-sources/)
+来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+* * *
 
-总编/编辑/审核：Irene木木
-校正/发稿：Fei797
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,22 +2,24 @@
 ---
 
 
-## 秘翻在线：韩国青瓦台召开常任委员会并敦促俄罗斯禁止屠杀乌克兰平民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2345827/)
+## 伊隆马斯克的最终目的要买断推特股票
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2345895/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-27.jpg)图片来源：本文链接
-据韩国《中央日报》4月14日报道，青瓦台14日召开了由国家安保室长徐薰主持的国家安全保障会议（NSC）常任委员会会议，常任委员们在当天的会议上对乌克兰政府发表的俄罗斯军队屠杀平民情况表示了严重的担忧，并敦促俄罗斯禁止屠杀平民。
+编译：波士顿五月花—-思澈
 
-另外，还决定与国际社会紧密合作，确保在乌克兰的韩国国民的安全，向乌克兰提供人道主义支援等必要措施。
+马斯克对推特目前的现状表示，推特以其目前的形式既不会继续发展，也不会公正地发挥其社会效益。
 
-在朝鲜表现出核试验准备动向等安保脆弱期和政权交替期相衔接的现阶段，为了不让安保出现漏洞，将检查应对态势，并周密地管理相应情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CF91B343-851B-4052-9E48-91AFC1D2347D.jpeg)
 
-对此，常任委员会检查了朝鲜的军事动向和迎来梭子蟹季节的西海NLL（北方界线）周边水域的海上警戒态势。
+马斯克想要以每股54.20美元完全买断推特股票，他希望在收购后将推特从证券交易所中撤出来，因为只有这样，该服务才能发挥其作为自由言论平台的潜力。
 
-信息来源：[https://www.joongang.co.kr/article/25063553](https://www.joongang.co.kr/article/25063553)
+马斯克最初决定加入推特是因为他相信该公司有潜力成为 “全世界自由表达的平台”。然而，自从加入推特后他感觉到目前公司形式既没有发展，也没有发挥其社会作用。
 
-责编：Eric Kim
+素材来源：[https://www.n-tv.de/wirtschaft/Elon-Musk-will-Twitter-komplett-uebernehmen-article23268872.html](https://www.n-tv.de/wirtschaft/Elon-Musk-will-Twitter-komplett-uebernehmen-article23268872.html)
+
+发布：思澈
+
+
 
  
 

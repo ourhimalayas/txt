@@ -15,128 +15,128 @@
 
 ---
 
-### [五年前穿着同一套衣服开启爆料革命→今天成为无产阶级](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
+### [台湾军方卖台贼购买了中共国的无人机](/content/gnews/1/README.md)
+ ` 银河歌舞厅`
 
-### [有声|俄罗斯外汇评级降至“选择性违约”](/content/gnews/2/README.md)
+### [有声|任人宰割的羔羊](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [【 蓝枫法律 】 中共幸灾乐祸、挑拨离间](/content/gnews/3/README.md)
+### [美国国会资深领袖团乘军机访台](/content/gnews/3/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [传上海虹口区卫健委主任在办公室自尽](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [2022年4月14日文贵大直播摘要及音频—银河系农场](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [素未谋面者以身家相许与七哥共同分享所有的压力和痛苦](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【 蓝枫法律 】 仇恨犯罪及加拿大歧视华人的历史](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [推特用户敦促埃隆-马斯克恢复唐纳德-川普的账户](/content/gnews/4/README.md)
+### [04/14/22 香港快讯 财库局研规管众筹 称要杜绝「危害国安」活动](/content/gnews/8/README.md)
+ ` 英喜-粵語組`
+
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月10日晚](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [4/10/2022 文贵直播：新中国联邦要为中国人建立经济基础、让中国人有信仰、树立中国人的国际形象、让中国人学习西方千年的文明和民主](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [一己之破产迎来无数亿万百亿十亿富豪及许以身家的战友](/content/gnews/11/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [五年前穿着同一套衣服开启爆料革命→今天成为无产阶级](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [有声|俄罗斯外汇评级降至“选择性违约”](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [【 蓝枫法律 】 中共幸灾乐祸、挑拨离间](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [国人焦虑背后的真相是什么？](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [推特用户敦促埃隆-马斯克恢复唐纳德-川普的账户](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登批准向乌克兰提供8亿美元新军援](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [被精神病、被阳性只能出现在精神病统治的国度](/content/gnews/6/README.md)
+### [被精神病、被阳性只能出现在精神病统治的国度](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼](/content/gnews/7/README.md)
+### [爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼](/content/gnews/18/README.md)
  ` 關注組`
 
-### [樱花时政┃多国总统访乌示团结，乌促德国交付攻击武器](/content/gnews/8/README.md)
+### [樱花时政┃多国总统访乌示团结，乌促德国交付攻击武器](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [读者通过台湾作家王芮缇给救援基地捐赠充气床垫](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [樱花时政┃法国防长宣布将向乌克兰追加军援](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共治下，再现用食物诱奸女性丑行](/content/gnews/11/README.md)
- ` 波士顿五月花农场`
-
-### [安省废水分析结果表明变种病毒正席卷而来](/content/gnews/12/README.md)
+### [安省废水分析结果表明变种病毒正席卷而来](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [【 蓝枫法律 】 中共CCP病毒的相关歧视](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [澳州前总理:俄罗斯侵略乌克兰可能使习近平“有恃无恐”地入侵台湾](/content/gnews/14/README.md)
+### [澳州前总理:俄罗斯侵略乌克兰可能使习近平“有恃无恐”地入侵台湾](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [突发：中共两列火车发生碰撞 9节车厢坠落桥下](/content/gnews/15/README.md)
+### [突发：中共两列火车发生碰撞 9节车厢坠落桥下](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [俄军长期囚禁并轮奸乌克兰少女](/content/gnews/16/README.md)
+### [俄军长期囚禁并轮奸乌克兰少女](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [4/10/2022 文贵直播：未来世界新的三座大山：第一是食品和水，第二是生物科技和现代能源科技，第三是智慧和数据](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [纽约地铁枪击案造成十余人受伤](/content/gnews/18/README.md)
+### [纽约地铁枪击案造成十余人受伤](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [4/10/2022 文贵直播：比特币、以太币和喜币是真正的数字货币；比特币开启了数字货币和法币消亡的时代；以太币是最牛的数字货币，NFT是其核心并实现了以太币的流通，摩根家族最早将NFT合法化](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [文·贵天成——文贵先生谈“默克尔”（一）](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产主义的结局必将是消亡](/content/gnews/21/README.md)
+### [共产主义的结局必将是消亡](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [加拿大皇家骑警在镇压自由车队期间餐饮无度](/content/gnews/22/README.md)
+### [加拿大皇家骑警在镇压自由车队期间餐饮无度](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [全球疫情疫苗数据更新](/content/gnews/23/README.md)
+### [全球疫情疫苗数据更新](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [伊隆马斯克的最终目的要买断推特股票](/content/gnews/24/README.md)
+### [伊隆马斯克的最终目的要买断推特股票](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/25/README.md)
+### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/29/README.md)
  ` 關注組`
 
-### [4/14/2022 银河快讯：日银黑田总裁：&#8221;采取强有力的货币宽松政策&#8221;对应20年来最弱的日元；内阁官房长官就日元贬值发表讲话说：快速波动是不可取的](/content/gnews/26/README.md)
+### [4/14/2022 银河快讯：日银黑田总裁：&#8221;采取强有力的货币宽松政策&#8221;对应20年来最弱的日元；内阁官房长官就日元贬值发表讲话说：快速波动是不可取的](/content/gnews/30/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2022/04/14 英喜时事速递](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：韩国青瓦台召开常任委员会并敦促俄罗斯禁止屠杀乌克兰平民](/content/gnews/28/README.md)
+### [秘翻在线：韩国青瓦台召开常任委员会并敦促俄罗斯禁止屠杀乌克兰平民](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20220413郭文贵大直播 ：六月鲜花战友讲述欧盟官员来新中国联邦帐篷的细节](/content/gnews/29/README.md)
- ` Tokyo Sakura Video Group`
-
-### [秘翻在线：印度继原油之后大量采购俄罗斯煤炭](/content/gnews/30/README.md)
+### [秘翻在线：印度继原油之后大量采购俄罗斯煤炭](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/14/2022 国际财经快讯：乌克兰战争冲击支撑俄罗斯经济的石油工业;台湾19家IT企业3月增收17％](/content/gnews/31/README.md)
+### [4/14/2022 国际财经快讯：乌克兰战争冲击支撑俄罗斯经济的石油工业;台湾19家IT企业3月增收17％](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [加拿大公司使用中共国强迫劳动力](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [政策随性，折腾百姓](/content/gnews/33/README.md)
+### [政策随性，折腾百姓](/content/gnews/34/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛](/content/gnews/34/README.md)
+### [网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛](/content/gnews/35/README.md)
  ` xiaobaige`
 
-### [民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉](/content/gnews/35/README.md)
+### [民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业](/content/gnews/36/README.md)
+### [民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/37/README.md)
+### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/38/README.md)
  ` 關注組`
 
-### [有声｜中共国石油巨头因惧怕制裁准备从西方撤出](/content/gnews/38/README.md)
+### [有声｜中共国石油巨头因惧怕制裁准备从西方撤出](/content/gnews/39/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/39/README.md)
+### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/40/README.md)
  ` 關注組`
 
-### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/40/README.md)
+### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/41/README.md)
  ` 關注組`
-
-### [洪都拉斯前总统因涉嫌贩毒将于下周引渡到美国](/content/gnews/41/README.md)
- ` 日本东京方舟农场`
 
 ### [国际｜拜登“种族灭绝”言论 白宫发言人：个人感受](/content/gnews/42/README.md)
  ` 關注組`
