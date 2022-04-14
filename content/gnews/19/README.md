@@ -2,29 +2,29 @@
 ---
 
 
-## 俄罗斯国家安全局要求维基百科删除文中涉及普京的信息
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343870/)
+## “我们将自卫”，德鲁克在罗马尼亚访问比利时军队
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343899/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+#### **【雅典娜快讯】紧贴时代脉搏**
 
-#### 翻译/编辑：小红帽
+#### 翻译/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WIKI.png)图片来源：维基百科
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片45.png)图片来源：Vrt Nws & 雅典娜设计组
 
 
-根据Digit News 4月13日报道，俄罗斯国家安全局向维基百科管理部门发送了两份通知，内容涉及俄罗斯总统弗拉基米尔·普京的文章中存在违法传播的信息。俄罗斯国家安全局吹嘘要删除“不准确的信息”。
+4月14日，在为期三天的东欧之行中，比利时首相亚历山大·德克鲁参观了罗马尼亚黑海康斯坦察市的军事基地，该基地驻扎着300名比利时士兵。
 
-“昨天，俄罗斯国家安全局又发送了两份通知，均在“普京，弗拉基米尔·弗拉基米罗维奇”为标题的文章下。他们不喜欢与乌克兰（2021 年至今）和入侵乌克兰之后（2022 年）的部分关系。”
+比利时士兵是北约部队的一部分，与来自法国、意大利、英国和美国的军队一起驻扎在罗马尼亚，在乌克兰战争开始后被派往此地协助防卫欧盟东翼。
 
-维基百科
+“作为北约盟国，我们将团结一致捍卫我们的自由和领土”，德克鲁与罗马尼亚总理和总统在一个简短的仪式上说。
 
-维基百科澄清说，俄罗斯国家安全局在文章中发现“包含有关俄罗斯联邦武装部队保护顿涅茨克和卢甘斯克人民共和国的特种军事行动的目标和形式的虚假信息材料”。
+这是德克鲁首相在访问罗马尼亚期间，向作为北约快速反应部队一部分的比利时部队发出了明确的信息。
 
-“此类出版物可能会导致局势的不稳定，以及为俄罗斯联邦领土上大规模违反公共秩序和公共安全的行为创造条件。”
+由于罗马尼亚是乌克兰的邻国，北约驻地康斯坦察距离俄乌战场很近。
 
-俄罗斯国家安全局
+德鲁克表示，我们发出明确的信息，已做好准备，我们将自卫。我们的信息越清晰，具体的威胁就越小。俄罗斯就会明白，触碰北约的领土是没有意义的。
 
-资料来源：[Roskomnadzor requires Wikipedia to remove information from article about Putin](https://digitnews.in/roskomnadzor-requires-wikipedia-to-remove-information-from-article-about-putin/)
+新闻链接: [‘We will defend ourselves’: De Croo visits Belgian troops in Romania (brusselstimes.com)](https://www.brusselstimes.com/belgium-news/216930/we-will-defend-ourselves-de-croo-visits-belgian-troops-in-romania)
 
 发布：*wenly*
 

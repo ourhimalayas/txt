@@ -2,29 +2,37 @@
 ---
 
 
-## 美财长：美国及盟友不会对破坏制裁的行动“无动于衷”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2343641/)
+## 永不放弃为新闻自由而战，比利时首相悼念遇害记者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343789/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。
-据美国之音4月13日报道，美国财政部长耶伦4月13日指出，对俄罗斯入侵乌克兰的行为不进行谴责，并试图从中捞取好处的国家是缺乏远见的。美国及其合作伙伴针对莫斯科和俄罗斯总统普京实施了全面制裁，任何破坏制裁的动作，美国和西方盟友都“不会无动于衷”。
-
-俄乌战争改变了世界经济前景，拜登当局承诺一定要让俄罗斯对自己的行为承担责任。耶伦表示，俄罗斯入侵乌克兰促使许多国家和企业切断了与莫斯科的关系。但是还有一些国家一直做“骑墙派”。耶伦没有点具体国家的名字，但最突出的无疑就是拒绝谴责普京、公开反对西方的制裁，而且还继续与俄罗斯保持经贸关系的中共国，还有印度等几个国家。
-
-中共国海关数据显示，中共国与俄罗斯的双边贸易上个月比去年同期增长了12%。全世界都在谴责俄罗斯入侵乌克兰和屠杀乌克兰平民的行为，美国和西方国家一致支持乌克兰，只有邪恶中共支持俄罗斯，把14亿被洗脑的中国人民当作肉票同俄罗斯站在一起。俄乌之战拉开了中共与西方公开对阵的帷幕，正与邪的较量从俄乌之战开始。
-
-新闻参考链接：[美财长耶伦：美国及其盟友不会对破坏制裁的行动“无动于衷”](https://www.voachinese.com/a/yellen-warns-u-s-allies-will-not-be-indifferent-to-those-who-undermine-russia-sanctions-20220413/6527827.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：雅典娜农场 – 文泓
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
+4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-116.jpg)
+该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
+
+自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
+
+参考链接：
+[Premier De Croo eert vermoorde VTM-journalist Danny Huwé in Roemenië | Buitenland | hln.be](https://myprivacy.dpgmedia.be/consent?siteKey=Uqxf9TXhjmaG4pbQ&amp;callbackUrl=https%3A%2F%2Fwww.hln.be%2Fprivacy-gate%2Faccept-tcf2%3FredirectUri%3D%252Fbuitenland%252Fpremier-de-croo-eert-vermoorde-vtm-journalist-danny-huwe-in-roemenie~a5bf9366%252F)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+总编：zhong
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

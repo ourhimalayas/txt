@@ -2,80 +2,29 @@
 ---
 
 
-## 拜登授权向乌克兰提供8亿美元额外援助
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
+## 美财长：美国及盟友不会对破坏制裁的行动“无动于衷”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2343641/)
 
-**拜登总统： **
-今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。
+据美国之音4月13日报道，美国财政部长耶伦4月13日指出，对俄罗斯入侵乌克兰的行为不进行谴责，并试图从中捞取好处的国家是缺乏远见的。美国及其合作伙伴针对莫斯科和俄罗斯总统普京实施了全面制裁，任何破坏制裁的动作，美国和西方盟友都“不会无动于衷”。
 
+俄乌战争改变了世界经济前景，拜登当局承诺一定要让俄罗斯对自己的行为承担责任。耶伦表示，俄罗斯入侵乌克兰促使许多国家和企业切断了与莫斯科的关系。但是还有一些国家一直做“骑墙派”。耶伦没有点具体国家的名字，但最突出的无疑就是拒绝谴责普京、公开反对西方的制裁，而且还继续与俄罗斯保持经贸关系的中共国，还有印度等几个国家。
 
+中共国海关数据显示，中共国与俄罗斯的双边贸易上个月比去年同期增长了12%。全世界都在谴责俄罗斯入侵乌克兰和屠杀乌克兰平民的行为，美国和西方国家一致支持乌克兰，只有邪恶中共支持俄罗斯，把14亿被洗脑的中国人民当作肉票同俄罗斯站在一起。俄乌之战拉开了中共与西方公开对阵的帷幕，正与邪的较量从俄乌之战开始。
 
-> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
-> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
+新闻参考链接：[美财长耶伦：美国及其盟友不会对破坏制裁的行动“无动于衷”](https://www.voachinese.com/a/yellen-warns-u-s-allies-will-not-be-indifferent-to-those-who-undermine-russia-sanctions-20220413/6527827.html)
 
+编辑：胖丁
 
+* * *
 
-**国务卿安东尼·布林肯：** 
-随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
-
-
-
-> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**国防部长劳埃德·奥斯汀三世： **
-正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
-
-
-
-> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
-
-
-
-> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
-> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室： **
-“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
-
-
-
-> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
-
-
-
-**众议员帕特·法伦：** 
-[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
-
-
-
-> Beijing is watching our every move. 
-> 
-> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
-> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
-
-
-
-> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

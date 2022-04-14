@@ -2,39 +2,24 @@
 ---
 
 
-## 创纪录的起重机活跃在新维两州的建筑工地
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2344231/)
+## 台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344287/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-281.jpg)图片来自网络
-《悉尼先驱晨报》近日报道，悉尼和墨尔本遭受重创的建筑业正在从新冠大流行中反弹，从公寓楼到医院的项目中，有813台起重机点缀在其天际线上，创下了历史新高。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-25.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国众议院议长裴洛西（Nancy Pelosi）原订10日要访台，后因确诊新冠延期，郭文贵爆料称裴洛西原定出访台湾，后遭中共威胁访台便出兵攻打台湾，故未出行。
 
-最新的RLB起重机指数（衡量澳大利亚各城市的建筑活动，涵盖截至3月31日的前三个月）数据显示，起重机数量增加了13%。
+台媒接获亲美政坛人士提供消息，表示美国联邦参议院外交委员会主席、民主党籍梅南德兹（Bob Menendez）将率团访台与总统蔡英文会晤，时间就在今（14）日，共计有6名议员。惟台湾外交部未证实，同时新闻报导所列的成员twitter并未透漏相关资讯，消息无法核实。此外，郭文贵于盖特透漏，裴洛西可能随时访台，中共的威胁在国际犹如笑话般存在。
 
-这是自2012年春季建筑业如火如荼的时候该指数成立以来所记录的最高起重机数量。建筑业每年产生超过3600亿澳元的收入，相当于澳大利亚经济的9%。
+媒体称本次访台成员有：美国联邦参议院外交关系委员会主席、民主党籍梅南德兹（Bob Menendez）与共和党参议员葛瑞姆（Lindsey Graham）、北卡罗来纳州共和党参议员理查德伯尔（Richard Burr）、内布拉斯加州共和党参议员本萨斯（Ben Sasse）、俄亥俄州共和党参议员罗伯特波特曼（Rob Portman），以及德克萨斯州美国国会议员龙尼·杰克逊（Ronny Jackson）等。
 
-这个创纪录的数字与2020年4月形成鲜明对比，当时新冠疫情开始引起关注，起重机的数量下降了5%。
+来源｜[三立](https://www.setn.com/News.aspx?NewsID=1099945)
 
-RLB大洋洲研究和开发总监多米尼克-希亚福尼说，起重机数量的增加是受大流行病影响的建筑业的力量和 “非凡的复原力 “的展示。
+* * *
 
-希亚福尼说：”自两年前爆发新冠疫情以来，面临的挑战不胜枚举。如供应链中断，运输和货运成本增加，材料价格上涨，工人生病或被隔离，当地劳动力资源的压力，然后就是下雨。
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-随着新项目的启动，包括位于城市南端的价值20亿美元的悉尼中央广场，RLB的董事们表示，未来的管道仍然强劲。
-
-总的来说，悉尼有348台起重机，192台在墨尔本，79台在布里斯班，分布在办公大楼、学校、医院和住宅楼。
-
-墨尔本的新Footscray医院有10台起重机，使其成为澳大利亚单个工地上起重机数量最多的项目。
-
-在即将到来的加息周期中房产仍然没有减少供给，反而新房供应还在增加，这或许是除了加息以外澳洲房产市场需要面临的另外一大利空。
-
-参考链接：
-
-[https://www.smh.com.au/business/companies/record-cranes-light-up-the-sky-as-sector-shrugs-off-covid-20220413-p5ad7t.html](https://www.smh.com.au/business/companies/record-cranes-light-up-the-sky-as-sector-shrugs-off-covid-20220413-p5ad7t.html)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

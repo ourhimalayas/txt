@@ -2,37 +2,22 @@
 ---
 
 
-## “我们将自卫”，德鲁克在罗马尼亚访问比利时军队
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343899/)
+## 欧洲理事会：进一步向乌克兰提供军事援助，总额达到16.3亿美元
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2343998/)
 
-#### **【雅典娜快讯】紧贴时代脉搏**
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-14-下午2.17.59.png)图为何塞普-博雷尔。图片来源：FRANCOIS LENOIR / POOL / AFP
+欧盟周三批准向乌克兰进一步提供5.43亿美元的军事援助。欧盟总共拨出16.3亿美元的援助，帮助该国抵御俄罗斯军队。
 
-#### 翻译/编辑：文泓
+欧洲理事会在一份声明中说，新的一揽子计划将资助向乌克兰武装部队提供设备和用品，其中包括 “个人防护设备、急救包和燃料，以及旨在为防御目的提供致命力量的军事装备”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片45.png)图片来源：Vrt Nws & 雅典娜设计组
+欧盟外交政策负责人何塞普-博雷尔（Josep Borrell）在一份声明中说：”随着俄罗斯准备对乌克兰东部地区发动进攻，我们继续并加强对乌克兰的军事支持以保卫其领土和人口并防止进一步的痛苦是至关重要的。”
 
+原文链接：[European Union approves further military aid to Ukraine, taking total to $1.63 billion](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-13-22/h_b0499c820a3315ac04f54c65af9b21c6)
 
-4月14日，在为期三天的东欧之行中，比利时首相亚历山大·德克鲁参观了罗马尼亚黑海康斯坦察市的军事基地，该基地驻扎着300名比利时士兵。
+* * *
 
-比利时士兵是北约部队的一部分，与来自法国、意大利、英国和美国的军队一起驻扎在罗马尼亚，在乌克兰战争开始后被派往此地协助防卫欧盟东翼。
-
-“作为北约盟国，我们将团结一致捍卫我们的自由和领土”，德克鲁与罗马尼亚总理和总统在一个简短的仪式上说。
-
-这是德克鲁首相在访问罗马尼亚期间，向作为北约快速反应部队一部分的比利时部队发出了明确的信息。
-
-由于罗马尼亚是乌克兰的邻国，北约驻地康斯坦察距离俄乌战场很近。
-
-德鲁克表示，我们发出明确的信息，已做好准备，我们将自卫。我们的信息越清晰，具体的威胁就越小。俄罗斯就会明白，触碰北约的领土是没有意义的。
-
-新闻链接: [‘We will defend ourselves’: De Croo visits Belgian troops in Romania (brusselstimes.com)](https://www.brusselstimes.com/belgium-news/216930/we-will-defend-ourselves-de-croo-visits-belgian-troops-in-romania)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑&发布：长岛开心*
 
  
 
