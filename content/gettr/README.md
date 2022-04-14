@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 2:49 PM (UTC)`
+
+【Ukrainian Rescue】 4/13/2022 The fellow fighters of the NFSC and ROLF are invited by the local Polish Red Cross to urgently provide supplies to more than 100 Ukrainian refugee children. These children need to  immediately leave by a bus to a place 5 hours away from the Medyka camp. The local Polish Red Cross staff is very grateful for the help of our NFSC fellow fighters, and invite us to help them in their bi-weekly bus rescue operation. They will bring the photos of the rescued children in their next rescue operation in two weeks.<br/><br/>【乌克兰救援】 4/13/2022 新中国联邦法治基金战友应波兰当地红十字会的邀请，为100多名乌克兰难民儿童紧急提供物资，这些儿童需要乘坐大巴立即前往梅迪卡营地5小时之外的地点。波兰当地红十字会非常感激新中国联邦战友的帮助，邀请我们为他们每两周一次的大巴救援行动提供帮助，并表示他们将在两周后救援行动时带来这些被救孩子的照片。<br/>
+![img](https://media.gettr.com/group47/getter/2022/04/14/14/6c2e18a5-72cd-1fb4-e179-894539855c67/out.jpg)
+
+---
+
+`@miles 4/14/2022 2:45 PM (UTC)`
+
+04.14.2022新中国联邦法治基金乌克兰人道救援行动-波兰Medyka基地突发新闻
+![img](https://media.gettr.com/group23/origin/2022/04/14/14/6804f375-ccd7-2bd6-b0c0-38912aec9bde/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 12:50 PM (UTC)`
 
 4月14日 七哥乱聊直播
@@ -142,20 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 4月13号：尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏明天上午我会抽时间直播半小时左右，一切都已经开始！
 ![img](https://media.gettr.com/group37/getter/2022/04/14/01/0a52bfd9-8d18-287b-74db-fafab368ef56/out.jpg)
-
----
-
-`@miles 4/14/2022 1:22 AM (UTC)`
-
-4/10/2022 Miles Guo: The biggest uncertainties of the year 2022 are the evil countries such as North Korea, Iran, and Syria. The Kim family will not be able to get through the food crisis. With the new technology capable of tearing down North Korea’s firewall, the Kim family will be taken out once the people who are starving hear the voices from the outside world. Finally, both the CCP and Putin’s regime in Russia will be taken down.<br/><br/>4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭！<br/>
-![img](https://media.gettr.com/group27/getter/2022/04/14/01/f1cbad68-f808-1b81-c73f-edbfaf5473f4/out.jpg)
-
----
-
-`@miles 4/14/2022 1:19 AM (UTC)`
-
-4/10/2022 Miles Guo: Food has become the most powerful weapon for the CCP to rule the Chinese people. Xi's pushing mandatory nucleic acid testing kills four birds with one stone: 1) tackle the social collapse brought by the economic and real estate crisis; 2) conduct a "stress test" on the Chinese people; 3) create a "wartime state of emergency" to help Xi stay in power after the 20th Party Congress and invade Taiwan; and 4) let the world experience how Xi suffered when he had nothing to eat. Meanwhile, Xi also wants to take down the US dollar and become a strong man in troubled times.<br/><br/>4/10/2022 文贵直播：粮食成了中共统治老百姓最有力的武器；习搞核酸检测一箭四雕：1) 解决经济和房地产危机带来的社会崩塌；2) 对老百姓进行“压力测试”；3) 制造“战时状态”帮助习连任20大和打台湾； 4)  让世人尝尝习当年没饭吃的感觉；同时，习还想打垮美元并在乱世当强人
-![img](https://media.gettr.com/group42/getter/2022/04/14/01/960a35d9-a6a4-e2bb-46c6-c15160c24313/out.jpg)
 
 ---
 
