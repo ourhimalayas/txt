@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 9:09 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group17/origin/2022/04/14/08/4ba40cef-2a06-0b4a-83fe-75d25379384f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 8:11 AM (UTC)`
 
 【Ukraine Rescue】04/12/2022 Philip, member of a Belgian Humanitarian Organization “Humans Now”, is interviewed by NFSC volunteer Nicole. Philip has spoken with the Belgian Prime Minister in Medyka and praises his humanitarian work. After hearing about the cause of the NFSC, Philip says that what it's doing is amazing, and he really hopes that it will succeed.<br/><br/>【乌克兰救援】04/12/2022 比利时人道组织“Humans Now”的成员菲利普接受了新中国联邦义工妮可的采访。菲利普在梅迪卡与比利时总理进行了交谈，称赞了他的人道主义工作。在听到新中国联邦的事业后，菲利普说新中国联邦的事业令人惊叹，真心希望它成功。<br/>
@@ -147,13 +154,6 @@
 
 4/10/2022 Miles Guo: In a totalitarian regime, public opinions are easily manipulated by the state propagandas and most people believe what the government tells them. That's why Putin’s internal support rate went up rather than down before the invasion of Ukraine; Now Putin knows that he is losing, and the only way for him to survive is to keep the war going and let more people die.<br/><br/>4/10/2022 文贵直播: 一个国家机器操纵民意的时候，绝大多数老百姓都是相信的，所以战前普京在内部的支持度不降反升；普京知道基本大势已去，要想侥幸得到一线生机，唯有让战争和死亡继续<br/>
 ![img](https://media.gettr.com/group38/getter/2022/04/13/22/40367c05-3a0b-fc7c-66f2-a1b70f0080eb/out.jpg)
-
----
-
-`@miles 4/13/2022 10:06 PM (UTC)`
-
-新中国联邦 法治基金 飞飞秀救援快报 2022-04-13<br/>For English：gettr.com/streaming/p156azt1f19
-![img](https://media.gettr.com/group39/origin/2022/04/13/21/37ae536a-69dc-5326-01f9-a7c83841589c/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,35 +2,37 @@
 ---
 
 
-## 中共内外交困加剧 喜币将成为最早的数字法币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343791/)
+## 俄罗斯国家安全局要求维基百科删除文中涉及普京的信息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343870/)
 
-作者：纽约磐石农场 – 在远方
+#### 【雅典娜快讯】紧贴时代脉搏
 
+#### 翻译/编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-4月12日，郭文贵先生盖特视频表示，习近平现在已是内外交困。之前中共威胁佩洛西访台将对台湾开战，现在佩洛西随时可能访问台湾。美国之前也已经有许多外交官员和外交飞机前往台湾，中共军方所有威胁的话语都已经成为国际笑柄。在墙内，上海、长春等地被封闭的饥饿居民为了一点食物，被迫出卖身体的事情已经传遍世界，中共灭亡是天意使然。
-
-郭先生还说，目前有许多重大的好消息还需要严格保密，但是，喜币将会成为世界上最早的、最流行的数字法币，而人民币在海外会成为只有恐怖分子才使用的钱，成为犯罪币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/44-1.jpg)
-参考链接：
-[4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！](https://www.gettr.com/post/p14zzj3ab04)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-总编：zhong
-编辑/审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WIKI.png)图片来源：维基百科
 
 
+根据Digit News 4月13日报道，俄罗斯国家安全局向维基百科管理部门发送了两份通知，内容涉及俄罗斯总统弗拉基米尔·普京的文章中存在违法传播的信息。俄罗斯国家安全局吹嘘要删除“不准确的信息”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+“昨天，俄罗斯国家安全局又发送了两份通知，均在“普京，弗拉基米尔·弗拉基米罗维奇”为标题的文章下。他们不喜欢与乌克兰（2021 年至今）和入侵乌克兰之后（2022 年）的部分关系。”
 
+维基百科
 
+维基百科澄清说，俄罗斯国家安全局在文章中发现“包含有关俄罗斯联邦武装部队保护顿涅茨克和卢甘斯克人民共和国的特种军事行动的目标和形式的虚假信息材料”。
+
+“此类出版物可能会导致局势的不稳定，以及为俄罗斯联邦领土上大规模违反公共秩序和公共安全的行为创造条件。”
+
+俄罗斯国家安全局
+
+资料来源：[Roskomnadzor requires Wikipedia to remove information from article about Putin](https://digitnews.in/roskomnadzor-requires-wikipedia-to-remove-information-from-article-about-putin/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

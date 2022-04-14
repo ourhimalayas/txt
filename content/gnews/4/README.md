@@ -2,25 +2,22 @@
 ---
 
 
-## 樱花时政┃日本首个技能签转永居由中国籍男性获得
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2344588/)
+## 欧盟和联合国联手防止乌克兰战争引发粮食危机
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2344741/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-为了接收外国劳动者而引入的特定技能制度，在岐阜县各务原市建设公司工作的中国籍翁飞先生在14日取得了事实上可以永久居住的“特定技能2号”资格。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-53.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcontinental-immigration.com%2Fwp-content%2Fuploads%2F2018%2F11%2Ff716d45b3c549ae0c4ec358782a08289-e1541321045587.png&amp;imgrefurl=https%3A%2F%2Fcontinental-immigration.com%2Ftokuteigino%2Fginoujissyuu%2F&amp;tbnid=trE2p9FE08-DnM&amp;vet=12ahUKEwiThv7Gi5P3AhXK44UKHZwwBv4QMygBegUIARCpAQ..i&amp;docid=DrnBCh1o-u4pNM&amp;w=600&amp;h=378&amp;q=%E3%80%8C%E7%89%B9%E5%AE%9A%E6%8A%80%E8%83%BD2%E5%8F%B7%E3%80%8D%E6%97%A5%E6%9C%AC&amp;ved=2ahUKEwiThv7Gi5P3AhXK44UKHZwwBv4QMygBegUIARCpAQ#imgrc=UfxVKPcE_BQOxM&amp;imgdii=EyTCiRw2ZoGqGM)
-根据团体和国土交通省的说法，2号认证是全国首个。特定技能是2019年4月施行的修订入管难民法中设立的外国人的新在留资格，以农业和餐饮业等14个领域为对象。其中“建设”和“造船、船舶用工业”在留期间总共是5年的1号,在拥有熟练技能的情况下给予2号。2号在留期间更新没有上限，家属也可获得签证。过去的技能签证是三年，最多可再延长二年，然后必须回本籍国家。
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04141.jpg)图片来自today.it
+联合国和欧盟发起了一项联合倡议，试图应对乌克兰战争引发的粮食危机的严重后果。欧盟将与设在罗马的三个联合国机构合作：世界粮食计划署 ​​(Wfp)、粮食农业组织 (Fao) 和国际农业发展基金（农发基金）。
 
-消息来源：[「特定技能2号」全国初の認定　岐阜の中国籍男性（共同通信）](https://news.yahoo.co.jp/articles/79c322e82989390159a7ef0fb083c1d35313d964)
+世界粮食计划署执行主任戴维·比斯利强调现在的气候危机、大流行的后果和乌克兰战争所淹没,生产成本的增加并没有停止,立即采取行动至关重要。鉴于乌克兰在农业食品系统中的作用，目前的情况更加令人担忧。饥饿的极端后果已经开始袭击埃塞俄比亚、叙利亚、索马里、也门。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+乌克兰这个国家生产的粮食足以养活全世界 4 亿人，而俄罗斯和白俄罗斯供应全球约 40% 的化肥，欧盟正在全球范围内率先解决这一日益严重的问题。法国外交部长让-伊夫·勒德里昂强调：“导致粮食危机的不是对俄罗斯的制裁。正是对乌克兰这个世界粮食篮子的军事入侵，促成并加剧了危机”。
+
+乌克兰危机的连锁反应使依赖进口的国家更加紧张，尤其是小麦和玉米，它们现在不得不为基本食品支付更多费用。不断上涨的价格使许多弱势家庭无法获得食物。根据世界粮食计划署的数据，超过 8000 万人遭受饥饿。联合国粮食及农业组织的食品价格指数证实，食品价格处于历史最高水平。
+
+原文链接: [https://www.agrifoodtoday.it/attualita/farm-iniziativa-crisi-alimentare.html#\_ga=2.56478313.376478100.1649785326-1444427197.1644869074](https://www.agrifoodtoday.it/attualita/farm-iniziativa-crisi-alimentare.html#_ga=2.56478313.376478100.1649785326-1444427197.1644869074)
+
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

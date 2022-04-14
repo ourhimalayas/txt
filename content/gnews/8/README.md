@@ -2,30 +2,28 @@
 ---
 
 
-## 中日财经爆|英国泽西岛法院下令冻结阿布拉莫维奇70亿美元资产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2344537/)
+## 台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344721/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-102.jpg)[图片来源](https://www.marca.com/en/lifestyle/2022/04/07/624f0b60268e3e553c8b460f.html)
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-10.png)
+瑞典国会与欧洲议会访团10日抵台，12日与总统蔡英文视讯会晤，13日与行政院长苏贞昌会面。14日，与立法院长游锡堃会面，本次访问团团长之一“台湾─瑞典国会议员协会”主席欧柏莉（ Boriana Åberg）表示，此次访台的重大意义，是想要告诉国际社会，“瑞典及欧洲坚定支持台湾的主权与独立”。欧柏莉为瑞典现任国会议员，于访台期间公开表态瑞典、欧洲支持台湾主权与独立，于台湾外交史上是重大突破。
+
+- “台湾─瑞典国会议员协会暨欧洲议会议员联合访团”是由瑞典国会“台湾─瑞典国会议员协会”主席欧柏莉与瑞典籍“欧洲议会”议员魏莫斯共同担任团长
 
 
-4月13日，英国皇家属地的泽西岛法院下令，冻结俄罗斯富豪阿布拉莫维奇拥有的超过70亿美元的资产，这是俄罗斯入侵乌克兰后，英国政府对俄罗斯实施的制裁。
+瑞典国会与欧洲议会访团与行政院长苏贞昌13日会面，访问团团长向苏贞昌表明，本次访台系为传达国际社会对台湾的关心，欧洲将支持台湾捍卫民主自由，民主力量须团结起来支持台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_2022-04-14-16.08.50.jpeg)我们的结论是，很好！中(共)国在生气，(意味)我们正在做对的事。我们信念立场坚定，关于台湾的主权与独立。
+此外，她还提到访问团出发前收到中共威胁，访问团认为引起中共生气，意味着访问团出访是对的事。
 
-阿布拉莫维奇是英超切尔西俱乐部的老板，据说他与普京政府关系密切。
+郭文贵前段时间直播称，台湾主权将很快被承认。
 
-泽西岛是一个“避税天堂”，据英国《金融时报》报道，此次冻结的资产数额堪比瑞士当局迄今扣押的 900 名俄罗斯人的总资产，未来，受英国政府影响的避税天堂可能会加强对隐藏资产的俄罗斯人的制裁。
+来源｜[自由](https://news.ltn.com.tw/amp/news/politics/breakingnews/3893196)
 
-消息来源:**[英当局、チェルシーオーナーのロシア人富豪の資産凍結…８８００億円以上](https://www.yomiuri.co.jp/world/20220414-OYT1T50103/)**
+* * *
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

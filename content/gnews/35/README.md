@@ -2,53 +2,37 @@
 ---
 
 
-## 俄央行在战前就削减了美元储备并增加了人民币和欧元
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2343693/)
+## 永不放弃为新闻自由而战，比利时首相悼念遇害记者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343789/)
 
-翻译： Jenny Ball
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-28.jpg)
+作者：雅典娜农场 – 文泓
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-133.png)Oleg Elkov/Getty Images
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-2021 年末，早在乌克兰战争之前，俄罗斯就已经开始减少美元敞口，并增持人民币和欧元。
 
-周一，俄罗斯央行行长埃尔维拉·纳比乌利娜（Elvira Nabiullina）在向议会提交的年度报告时表示，尽管西方制裁切断了该国获得某些货币的渠道，但目前俄罗斯拥有足够的人民币和黄金储备。
 
-据《彭博社》报道，截至 1 月 1 日，俄罗斯央行已将其美元储备从去年同期的 21.2% 降至 10.9%。
+4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-116.jpg)
+该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
 
-与此同时，俄罗斯的人民币持有量较上年同期从 12.8% 跃升至 17.1%。 据该银行称，其在欧元中的份额从 29.2% 上升至 33.9%。
+自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
 
-与此同时，黄金储备略有下降。
+参考链接：
+[Premier De Croo eert vermoorde VTM-journalist Danny Huwé in Roemenië | Buitenland | hln.be](https://myprivacy.dpgmedia.be/consent?siteKey=Uqxf9TXhjmaG4pbQ&amp;callbackUrl=https%3A%2F%2Fwww.hln.be%2Fprivacy-gate%2Faccept-tcf2%3FredirectUri%3D%252Fbuitenland%252Fpremier-de-croo-eert-vermoorde-vtm-journalist-danny-huwe-in-roemenie~a5bf9366%252F)
 
-纳比乌利娜告诉议会，即使在国内生产总值下降之后，俄罗斯的经济最终也将能够恢复增长轨迹。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-自俄罗斯于 2 月 24 日首次入侵乌克兰以来，美国和其他国家对该国的经济、企业和一些最富有的寡头实施了严厉的金融制裁。
+总编：zhong
+编辑/审核：飞虹
+校对/发稿：为真不破20
 
-制裁包括限制贸易和冻结外汇储备。
 
-据俄罗斯官员称，这些制裁冻结了其** 6420 **亿美元储备中的约一半。
 
-上周，俄罗斯金融日报《生意人报》报道称，俄罗斯大型银行从美元和欧元兑换成人民币的资金激增，许多新账户都以人民币开立。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-新闻来源：[Russia’s central bank was cutting dollar reserves and adding yuan and euros even before the war, report says](https://markets.businessinsider.com/news/currencies/dollar-vs-yuan-russia-bank-euro-gold-eserves-ukraine-war-2022-4)
 
-* * *
-
-素材：文舞
-审核：文乐   
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 

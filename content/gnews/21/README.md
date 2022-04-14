@@ -2,31 +2,23 @@
 ---
 
 
-## 樱花时政┃北欧2国积极加入北约 欧洲安全框架将发生重大变化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2343931/)
+## 台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344287/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-随着俄罗斯对乌克兰持续的军事入侵，芬兰总理马林表示在几周内会就申请加入北大西洋公约组织作出结论。瑞典也在紧急做出决定，欧洲安全框架可能会发生重大变化。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-25.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国众议院议长裴洛西（Nancy Pelosi）原订10日要访台，后因确诊新冠延期，郭文贵爆料称裴洛西原定出访台湾，后遭中共威胁访台便出兵攻打台湾，故未出行。
 
-4月13日芬兰总理马林访问了瑞典，并与安德森总理进行了会面。会后，马林总理表示，“俄罗斯对乌克兰的军事入侵极大地改变了欧洲的格局，不加入北约就无法获得安全保障。”表现出积极态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-136.png)图片来源：本文链接
-芬兰政府公开发布的一份报告称，如果申请加入北约，就需要面对与俄罗斯边境加剧的紧张局势。马林总理会在国会讨论这份报告，并在几周内就申请加入北约做出结论。瑞典首相安德森也表示需要充分考虑，力争尽早做出决定。
+台媒接获亲美政坛人士提供消息，表示美国联邦参议院外交委员会主席、民主党籍梅南德兹（Bob Menendez）将率团访台与总统蔡英文会晤，时间就在今（14）日，共计有6名议员。惟台湾外交部未证实，同时新闻报导所列的成员twitter并未透漏相关资讯，消息无法核实。此外，郭文贵于盖特透漏，裴洛西可能随时访台，中共的威胁在国际犹如笑话般存在。
 
-芬兰和瑞典虽然是欧盟的成员，但不是军事联盟北约的成员，并且一直在军事上保持着中立。
+媒体称本次访台成员有：美国联邦参议院外交关系委员会主席、民主党籍梅南德兹（Bob Menendez）与共和党参议员葛瑞姆（Lindsey Graham）、北卡罗来纳州共和党参议员理查德伯尔（Richard Burr）、内布拉斯加州共和党参议员本萨斯（Ben Sasse）、俄亥俄州共和党参议员罗伯特波特曼（Rob Portman），以及德克萨斯州美国国会议员龙尼·杰克逊（Ronny Jackson）等。
 
-可以预见，欧洲安全框架可能会发生重大变化，俄罗斯肯定会强烈反对。
+来源｜[三立](https://www.setn.com/News.aspx?NewsID=1099945)
 
-信息来源：[北欧2国 NATO加盟に前向き 欧州の安全保障枠組み変わる可能性](https://www3.nhk.or.jp/news/html/20220414/k10013581371000.html)
+* * *
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
