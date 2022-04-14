@@ -2,32 +2,51 @@
 ---
 
 
-## 美证交会加压中概股企业，预摘牌名单再添12家
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342701/)
+## 民生集萃——疫情导致服装行业破产（2022.4.14）&#8211;正式告别服装行业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342720/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-4.jpg)美证交会加压中概股企业，预摘牌名单再添12家
-据美国之音4月14日报道，美国证券交易委员会（SEC）4月12日宣布将微宏动力、中汽系统等12家中概股企业列入除名观察名单，并下令这些企业必须在5月3日之前提交证据证明自己满足了上市的条件。
+#### 雅典娜情报组《民生灾难收集专栏》
 
-从今年3月8日到31日，SEC先后将百济神州、微博、百度等中共国企业列入“除名观察名单”。目前被列入该名单的中共国企业共有23家。如果这些企业在规定期限内不能提供相关证据，就会被转入“确定退市名单”。最新公布的这12家企业是SEC对中共国企业采取的第四批处罚行动。
+整理/编辑：BENJ1
 
-长期以来，在美国股市上市的中共国企业不向SEC提供上市公司必须提供的财报信息，在美国国内引起了越来越大的不满。这一情况迫使SEC不得不向中共国企业进一步施压，促使它们遵守SEC审计规则。
-
-在美国上市的外国公司依法必须向SEC提交文件，证明该公司不受外国政府拥有或掌控，并要求这些企业遵守相关审计标准。这是美国和西方社会的规则，中共在国内无法无天，在国际上也是横冲直撞，从不把他国的法律和规则放在眼里。美国不会允许这种情况一直存在，中共国企业会被一个个清查。随着更多的中概股公布年报，这个名单还会逐步延伸。
-
-新闻参考链接：[https://www.voachinese.com/a/us-adds-12-chinese-companies-to-sec-delisting-watchlist-20220413/6527956.html](https://www.voachinese.com/a/us-adds-12-chinese-companies-to-sec-delisting-watchlist-20220413/6527956.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1662.png)图片来源：雅典娜设计组(614)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+帖子原文：
 
+正式告别服装行业
 
+告别了第一个带我年入百万的行业，因为疫情加上抖音的冲击没撑住，我们主要是做网上服装批发的，自己找款设计打版买面料，再去工厂加工。
+
+每次我们做货基本10-20万，一个月两到3次上新，疫情几波下来亏完了，坚持了几次感觉无望最后决定告别7年的服装。
+
+都说隔行如隔山，但这样半死不活的不如果断放弃，接下来将踏入其他行业，希望能好运
+
+评论选集：
+
+[9527](http://www.xiaohongshu.com/user/profile/5c32ad08000000000603d1f4) 回复：
+
+一个已经坚持了15年的服装同行再此说一句：疫情期间的服装行业太难了，入行小白请谨慎，没有强大的抗压能力和过硬的经济支撑，千万别碰……
+
+肉桂大人  回复:
+
+疫情当下 哪行都难
+
+嘟麻可儿  回复:
+
+淘宝现在也不好做，去年营业额我是拦腰截断，女鞋行业
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1663.png)图片来源：小红书
+参考链接:
+
+[正式告别服装行业](http://xhslink.com/ZfKaJg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

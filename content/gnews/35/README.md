@@ -2,46 +2,56 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月13日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2341873/)
+## 伊朗向中共国运送价值220亿美元的非法石油
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2341916/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1622.png)
-**1、巴菲特副手芒格今年一季度抛售30.2万份阿里巴巴ADR，减持幅度高达50%**
-![img](https://media.gettr.com/group33/origin/2022/04/13/02/b8378112-1b60-3092-d25a-747988b2c9ab/921f69a9e1533b9cf4813d5f53b3c949_500x0.png)
-巴菲特副手芒格曾担任董事长的Daily Journal今年一季度抛售30.2万份阿里巴巴ADR，减持幅度高达50%，与去年四季度该公司买入30万份阿里ADR的情况截然不同。Daily Journal从2021年一季度开始建仓阿里巴巴，并在随后的几个季度里越跌越卖。目前阿里巴巴股价已较芒格建仓之初，大幅下跌约50%。芒格自1977年以来一直担任Daily Journal公司的董事长，直到今年3月28日辞去董事长一职，但仍然是公司的董事。芒格拒绝就Daily Journal出售阿里巴巴股票一事置评。链接 [https://www.reuters.com/article/daily-journal-alibaba-stake-idCNL6S2W9087](https://www.reuters.com/article/daily-journal-alibaba-stake-idCNL6S2W9087)
+翻译：wenwu
 
-**2、多家银行下调个人账户线上交易限额 ，有银行单日限额1万元**
-![img](https://media.gettr.com/group13/origin/2022/04/13/02/9ea0d187-3fb3-26d4-368f-5ee101796857/c0147f3c979e5664709d310cc00f9278_500x0.png)
-银行机构在不断加大对个人账户线上渠道的管理力度。光大银行、浦发银行、农业银行等多家银行相继发布公告，下调个人账户线上相关业务交易限额，包括线上转账限额及网上支付交易限额等。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
 
-财经G评：温水煮青蛙式的金融管控，中共只要管住老百姓的钱袋子、菜篮子、再加上中共手中的枪杆子！14亿人变奴隶！
+自2021年以来，伊朗的“幽灵船”船队向中共国运送了价值至少220亿美元的非法石油，中共国为伊朗的政权提供了一个主要的收入来源。
 
-链接 [http://finance.eastmoney.com/a/202204122340210788.html](http://finance.eastmoney.com/a/202204122340210788.html)
+根据密切跟踪德黑兰非法油轮船队的倡导组织“联合反对核伊朗”（UANI）公布的新数据，仅在2022年前三个月，伊朗平均每天向中共国运送82万9260桶石油。自乔·拜登总统上任以来，共有3亿3788万2520桶非法石油，相当于价值约为220亿美元石油输送给北京。
 
-**3、美国再将12家中概股公司列入“预摘牌名单”**
-![img](https://media.gettr.com/group27/origin/2022/04/13/03/02bd881c-36cf-c97d-fc2d-e33374759301/123165d676c69bd6e1f8730f71cf7d73_500x0.png)
-4月12日美国证劵交易委员会（SEC）再将12家中概股公司加入“预摘牌”名单，这是自3月以来第四批被纳入名单的中概股公司。具体名单包括：Microvast（微宏）、中汽系统、大全新能源、康乃德生物、金融壹账通、绿图生物科技、传奇生物、搜狐、新濠影汇、新濠博亚娱乐、Logiq和诺亚控股。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1623.png)图片来源：freebeacon.com
 
-财经G评：看来中共在上个月举行的《金融稳定题会议》示好美国SEC，一点效果也没有！
+据 UANI 报道，伊朗的舰队由 [182](https://www.unitedagainstnucleariran.com/blog/stop-hop-ii-ghost-armada-grows) 艘外国拥有和悬挂国旗的船只组成，其运作很少受到美国的干扰。它被称为德黑兰的“幽灵舰队”，因为这些船只经常混淆其在海上的位置，并关闭其追踪器——这违反了海事法——以便它们能够躲避检测。
 
-链接 [https://finance.sina.com.cn/roll/2022-04-13/doc-imcwiwst1511369.shtml](https://finance.sina.com.cn/roll/2022-04-13/doc-imcwiwst1511369.shtml)
+在拜登时代，伊朗的黑市石油贸易蓬勃发展，这助长了对美国对制裁的执行视而不见的指责，以便与德黑兰产生善意，作为达成修订的核协议的外交努力的一部分。
 
-**4、中共国4月份已有14城松绑购房政策**
-![img](https://media.gettr.com/group30/origin/2022/04/13/03/9418be27-e851-2490-2e2f-6134af3b28e6/41eeee16f6cec5fcead6eb5e8caa50cf_500x0.png)
-4月以来，已经有衢州、秦皇岛、大连、绵阳、兰州、丽水、台州、安顺、苏州、南京、咸宁、荆门、黄石、宜昌等14城松绑了购房政策，涉及限购、限贷、限售、公积金贷款、房贷利率等内容。有业内人士认为，今年来房地产政策松绑力度和范围明显扩大，苏州、南京放松限购或成为热点城市楼市政策风向标，未来市场下行压力较大的二线城市或将效仿进行局部放松，乃至取消“四限”（限购、限贷、限售、限价）。
+UANI 正在揭露拥有这些船只的公司，作为推动拜登政府采取行动的努力的一部分。众所周知，伊朗舰队中最活跃的四艘船——VIGOR、VIRGO、HORNET和BERG 1 号由大西洋航运公司（Atlantic Navigation）运营，该公司与美国制裁的支持伊朗伊斯兰革命卫队（IRGC）的实体有联系，IRGC 是伊朗的准军事战斗部队，对杀害数百名美国人负有责任。
 
-链接  [https://finance.sina.com.cn/jjxw/2022-04-13/doc-imcwiwst1514141.shtml](https://finance.sina.com.cn/jjxw/2022-04-13/doc-imcwiwst1514141.shtml)
+“在上述四艘船由大西洋航运公司运营期间，它们向中共国运送了刚刚超过1900万桶的伊朗石油，价值约10亿美元，”UANI 参谋长克莱尔·荣曼（Claire Jungman）告诉 《自由灯塔》。“这些钱让伊朗政权获利，并反过来资助其在世界各地的恐怖活动。这些船只和受制裁的实体之间有明显的联系，拜登政府没有充分理由对此视而不见。拜登政府的这种不作为，只会使伊朗的恶劣行为成为可能”。
 
-**5、USDC 稳定币发行中心聘请 2 名高管监督监管、运营**
-![img](https://media.gettr.com/group33/origin/2022/04/13/03/aa928957-7b52-2a10-50f6-1d6c8e53b05d/76ffdd9f2108b5edefacceff8244c0ee_500x0.png)
-第二大[稳定币](https://www.coindesk.com/learn/what-is-a-stablecoin/)的发行人聘请了两名新高管来监督政策和运营。Centre 是 Circle 和 Coinbase 于 2018 年成立的管理美元硬币 (USDC) 的财团，周二宣布，现任乔治城大学法学教授、美国证券交易委员会 (SEC) 前监管机构 Linda Jeng 将加入 Centre 担任首席执行官政策和监管官员。随着全球稳定币市场持续增长并引起立法者的关注，Center 已采取措施——包括对 USDC 的支持变得越来越透明——以保持监管机构的青睐。USDC 的市值超过 500 亿美元。
+关于这些船只及其船东的最新信息揭示了一个由空壳公司组成的错综复杂的公司网络，这使得美国当局难以确定谁应承担责任以及应如何实施制裁。
 
-链接：[https://www.coindesk.com/policy/2022/04/12/usdc-stablecoin-issuer-centre-hires-2-executives-to-oversee-regulation-operations/](https://www.coindesk.com/policy/2022/04/12/usdc-stablecoin-issuer-centre-hires-2-executives-to-oversee-regulation-operations/)
+“在我们协助当局的持续努力中，UANI 已经对 Ghost Armada 船只的真正所有者进行了调查，”该组织在最近[公布](https://www.unitedagainstnucleariran.com/blog/march-2022-iran-tanker-tracking)的一项调查中说。“利用官方公共记录和其他公开来源的数据，我们迄今为止的研究已经发现了一个由幌子公司和协助者组成的网络，最终指向伊朗。”
 
-海报：润玉
+由大西洋航运公司负责向中共国运送石油的四艘船通过一个复杂的外国公司网络与被制裁的实体联系在一起。
 
-排版上传：文勇
+大西洋导航公司的董事是维贾伊库马尔·米什拉（Vijaykumar Mishra），他还在另外两家被美国制裁的航运公司——Vaniya 船舶管理公司和12度船舶管理公司担任这一职务。这两家公司都在2019年9月受到制裁，因为它们代表另一个与伊朗有联系的实体——迈赫迪集团——进行运营。
+
+根据 UANI 的调查，迈赫迪集团由阿里·扎希尔·迈赫迪（Ali Zaheer Mehdi）经营，美国指认他向伊斯兰革命卫队提供物质支持。
+
+“虽然大西洋航运公司只被列为上述四艘船舶中的一艘的现任技术经理，但它与我们对这一逃避制裁计划的调查非常相关，”UANI 解释说。“我们发现，所有管理这些船只的新公司可能仍然与受制裁的实体有联系，这并不奇怪，因为我们经常看到实体之间在逃避制裁和其他非法航运计划方面的合作。”
+
+该监督组织表示，它将在未来几周内披露有关这一规避制裁计划的更多材料。
+
+国务院发言人告诉《自由灯塔》，美国国务院知道中共国进口非法伊朗石油的情况，而且制裁“仍然有效，除非并直到它们被解除，我们将处理任何逃避制裁的努力”。
+
+“我们已经利用我们的制裁权力来应对伊朗的制裁规避行为，包括那些涉及中共国的行为，并将在必要时继续这样做，”该国务院发言人说，并补充说美国官员也正在与中共国直接解决这个问题。
+
+“我们一直在与中共国以外交方式处理这个问题，这是我们关于伊朗政策的对话的一部分，也是我们为实现双方重新全面遵守《联合政治协议》的外交努力的一部分，”国务院发言人说，他指的是2015年核协议的首字母。“我们认为，总的来说，这是解决我们关切的一个更有效的途径。”
+
+新闻来源：[freebeacon.com] [Iranian ‘Ghost Armada’ Ferries $22 Billion Worth of Illicit Oil to China](https://freebeacon.com/national-security/iranian-ghost-armada-ferries-22-billion-worth-of-illicit-oil-to-china/)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 
