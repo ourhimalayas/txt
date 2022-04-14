@@ -2,42 +2,27 @@
 ---
 
 
-## 微软称受到中共国的网路攻击
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345483/)
+## 视频|东方卫视“抗疫特别节目”被上海市民骂停
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2345742/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/acastro_170621_1777_0007_v2_0001_2.jpg)
-当地时间4月12日，美国微软公司向用户发出警报，称中共国家黑客团体Hafnium正在进行恶意软件活动和网路威胁。
+制作：香草山视频部
 
-据微软消息，Hafnium利用未修补的零日漏洞作为初始载体，以及tarrask这种防御规避恶意软件来向用户隐瞒设备受损状态，Hafnium创建隐藏的任务计划，即使设备多次重启以后也能保留对设备的继续入侵，Windows的任务调度程序帮助其清理痕迹，保证tarrask的恶意活动在磁盘中不会保留。最新的报告还证实Hafnium正在利用Windows子系统内的新漏洞。
+上海疫情持续严峻，被封控在家的上海民众，在解封遥遥无期和物资严重短缺的双重压力之下濒临崩溃。中共官方漠视封控对上海造成的灾难，上海民众便投身志愿者行列，对独居老者或面临断粮窘境的居民发起救援行动。
 
-据悉Hafnium是中共国的黑客组织，曾经在2021年导致微软Exchange崩溃，从此次崩溃中收集到的数据被认为是中共政府进行人工智能研究的大数据库。
+不料，中共党媒《东方卫视》竟然在昨晚（12日）发布了一则节目表，邀请包括易烊千玺、迪丽热巴、张艺兴等一线明星助阵，上演抗疫特别节目，为上海市民打气，结果在微博上遭遇了如潮水般的指骂。
 
-reference：
+据东方卫视在昨晚刊出《众志成城 同心守沪——东方卫视抗疫特别节目》节目表，出演的明星除了萧敬腾、张信哲、曾志伟等港台艺人之外，上海籍演员胡歌、马伊琍亦参与其中。
 
+消息一出，许多民众纷纷到微博上留言，认为东方卫视的特别节目完全脱离现实，老百姓正居家受难，官方就迫不及待的“歌舞升平”。有民众建议，“如果真的要拍，不如走入上海人的家中，进行24小时的实况直播，看看现实中的老百姓到底过着什么日子。”
 
+另有民众留言质问，“物资问题解决了吗？看病问题解决了吗？就这么急着丧事喜办吗？”亦有人揶揄，“让被关在家中上海人看这样的节目，是打气还是讽刺？”巨大的舆论压力之下，东方卫视只得紧急宣布，节目暂缓播出。
 
+发稿：Daxia
 
-> [Tarrask malware uses scheduled tasks for defense evasion](https://www.microsoft.com/security/blog/2022/04/12/tarrask-malware-uses-scheduled-tasks-for-defense-evasion/)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
-
- 
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

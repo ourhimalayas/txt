@@ -2,13 +2,16 @@
 ---
 
 
-## 拜登总统现在有一个“黄金机会”来对抗邪恶的中国共产党
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2345685/)
+## 20220413郭文贵大直播 ：六月鲜花战友讲述欧盟官员来新中国联邦帐篷的细节
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2345799/)
 
-04/12/2022 传统基金会主席凯文·罗伯茨：全球每天发生的许多恐怖事件都源自中国共产党，总统拜登现在有一个黄金机会来对抗中共政权，因为中共的邪恶本性是如此的清晰可见。
+作者：东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

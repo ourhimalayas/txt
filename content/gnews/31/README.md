@@ -2,38 +2,34 @@
 ---
 
 
-## 大直播后记：封城悲惨人民不抗争是中共想要的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2344856/)
+## 国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345305/)
 
-整理：奮鬥
-编辑：Sadhu
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-27.png)
+法国记者推特发布消息指，瑞典和芬兰的总理刚刚举行了联合记者会，就两国加入北约的计划进行了会谈。芬兰总理马林表示，加入北约一事她不会给出确切时间表，但很快会在几周内发生。而瑞典可能在六月申请加入北约，瑞典的安全审查预计将在 5 月底之前完成，总理安德森表示，她将等待审查结果出炉后方作出决定。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-1651.png)图片来源：雅典娜设计组
 
 
-一个金融中心的国际大都市，现在到了这种情况，而且现在在上海以物易物的这个经济模式已经成为上海日日常了。甚至就像刚才PPT说的以性来换物，都成为一个上海的日常，真的是非常非常难想象的。还有人去用个宠物说我借个猫给你，我来换个3个橘子呃，这种事情全都出来了。
+> 🇸🇪[#Sweden](https://twitter.com/hashtag/Sweden?src=hash&amp;ref_src=twsrc%5Etfw) and 🇫🇮[#Finland](https://twitter.com/hashtag/Finland?src=hash&amp;ref_src=twsrc%5Etfw)'s prime ministers have just held a joint press conference outlining plans to join [#NATO](https://twitter.com/hashtag/NATO?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> 🇫🇮 expected to move first. PM Marin says she won't give a timetable but "it will happen quite fast—within weeks, not within months, we will have the discussion" [pic.twitter.com/huEKnkDVUD](https://t.co/huEKnkDVUD)
+> — Dave Keating (@DaveKeating) [April 13, 2022](https://twitter.com/DaveKeating/status/1514198882250596356?ref_src=twsrc%5Etfw)
 
-很多地方都发生的，我知道江苏的一个城市就是上周死了几个学生，那天发生了很多事情，就是我非常熟悉的一个学校，我特别熟悉的，一个十二年级的学生，马上要考上大学的一个国际学校的十二年级的学生走了，然后家长群“啪”就暴动了。刚要说这个事情的时候，整个群就被封了，我也在那里面，被封了当天，就在当天很短的时间里，这整个事件就销声匿迹掉了，就像没发生一样，谁也不敢提了。
 
-上海其实这两天，我相信大家还听过一个上海浦东传出来的一个语音，一对夫妇，他们的官方的医院检测是阴性的夫妇，他就是给你莫须有的阳性罪名，给你强制拉到方舱，我说你阳性你就是阳性你不是阴性。其实这种事情真的是太多了，可以说是家常便饭，看了很让人心疼。没有行动自由，没有说话自由，甚至你没有悲伤哭泣的权利，我们也有很多国内的亲人，但我们也不得不面对这个残酷的现实。土共它就是要绑架14亿的老百姓，和它一起买单，这也是它敢和西方对抗的最大的资本。那习近平现在对国内的疫情封城，其实他也是在为战争在做准备，让老百姓在这个贫乏面前你吃都吃不上了，你整天想着怎么来解决自己的温饱问题，在这面前变得麻木，变得顺从，从而失去这个反抗的斗志，斗志彻彻底底的变成奴隶和猪狗来为他们几十个独裁的家族服务，让他们继续荣华富贵。
 
-所以现在我们唯一的出路就是我们所有的人真的站起来。
+据外媒所述，芬兰已经准备好在几周内作出加入北约的决定，芬兰总理马林称，加入北约可能倒致俄罗斯采取行动，但不加入北约（结果）也是一样的，并表示“芬兰必须为俄罗斯的各种行动做好准备”。
 
-文智：
+外媒引述民调结果，芬兰民调数据68% 支持加入北约，是俄乌战争发生前的两倍多，仅12%反对加入。而瑞典民调数据则显示，支持加入北约者略多于不支持者。
 
-非常感谢如水女士这么精彩的分享，而且真没想到您是对上海这么熟知的。非常感谢您这个一手的各种信息，各种的分享，非常感激。我觉得这个意义重大，然后我觉得就是您自己已经给自己的问题有答案了，病毒包括刚才说的所有的一切，其实就是个实验，这个实验的结果他们只关心至于经济会不会断裂，至于什么供应链，至于这个物流上包括老百姓痛不痛苦、会不会自杀，他们都不关心，恰恰他们关心的是你在这个过程中痛苦了，你是要起来反抗还是接受。
+俄罗斯曾表示，若瑞典、芬兰加入北约，将不再谈论波罗的海无核化。俄罗斯安全委员会副主席德米特里．梅德韦杰夫（Dmitry Medvedev）表示，如果发生这种情况，莫斯科会做出回应，并加强俄军地面及防空部队，在位于芬兰、爱莎尼亚、俄罗斯之间的芬兰湾布署海军。
 
-目前来说，我们看到了反抗都是零星的，没有组织的，也没有更多的人勇敢地说我不光为我自己，哪怕我有饭吃，我过2个周后就没有饭吃了，我要不要被现在都没有饭吃的人一块儿，大家团结起来游行，我们是以宪法——中共国宪法也赋予了老百姓可以上街去表态表达，做你自己作为公民的意愿，但没有没有任何人站出来，所以这是很遗憾的一件事啊！
+来源｜[衛報](https://www.theguardian.com/world/2022/apr/13/finland-and-sweden-could-apply-for-nato-membership-in-weeks)、[sky](https://news.sky.com/story/russia-threatens-nuclear-escalation-if-sweden-and-finland-join-nato-12589823)
 
-文智：但是反过来说，猫本小哥，我也想提下一个问题，也是顺带的，我们可以看到在这个过程中中共真的是很坏，但是他们并不傻。那么这个七哥揭秘了包括上海，包括全中国，我们现在说的31个省，但实际上大概超两亿人，目前在工作状态，这一切都是他们的计划，都是在做一个所谓一箭四雕的计划。但这非常可怕，一个很宏大的计划，那么七哥上面说的一件四雕，包括防止中共国一劳永逸地解决中国所有的泡沫危机，然后包括可以保稳20大，然后顺便攻打台湾，也包括战前所谓的压力测试，让老百姓能够适应战时状态。
+* * *
 
-资料来源：[2022年4月13日 文贵大直播](https://gettr.com/streaming/p153u568840)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

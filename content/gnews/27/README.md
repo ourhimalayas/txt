@@ -2,29 +2,34 @@
 ---
 
 
-## 有声｜中共国石油巨头因惧怕制裁准备从西方撤出
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2344991/)
+## 参议员霍利敦促美国尽快向台湾运送武器
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345432/)
 
-By:**秘翻新闻**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-18.57.28.png)
+当地时间4月13日下午，美国共和党参议员霍利表示，美国必须尽快向台湾运送武器避免为时已晚。
 
-**2022-04-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-142.png)
-[路透社](https://www.reuters.com/business/energy/exclusive-chinas-oil-champion-prepares-western-retreat-over-sanctions-fear-2022-04-13/)4月13日独家报道，中共国最大的海上石油和天然气生产商-中海油，正准备退出其在英国、加拿大和美国的业务，因为中共国担心这些资产可能会受到西方制裁的影响。
+据悉此前拜登政府批准了一项价值9500美元的台湾武器计划，这是自俄乌战争以来的第二笔类似协议。随着中共国对台湾的剑拔弩张，战争尽在咫尺。上周，霍利提出了《台湾武器出口法》，该法案正在通过加快国会批准和简化行政程序来加快向台湾运送武器。霍利在一份新闻稿中说到，俄乌战争的教训就是乌克兰已经被入侵后造成了损失才去援助，美国不能在印太地区犯同样的错误，所以给台湾快速运送武器，给台湾争取一些时间建立防御并阻止中共的入侵。
 
-中共国与西方之间的关系长期以来因贸易和人权问题而持续紧张，随着俄罗斯入侵乌克兰，中共国拒绝谴责俄罗斯更加剧了紧张局势。美国上周表示，如果中共国帮助俄罗斯逃避西方的制裁，将会面临严重的后果。
+台湾外交部对霍利议员的《台湾武器出口法》表达感谢，说这是对”stand with Taiwan“的坚定承诺，以及对2300万台湾人的信任支持。
 
-上个月，路透社报道称，中海油已准备出售其在西方的资产，其中包括北海、墨西哥湾和加拿大大型油砂项目的主要油田的股份，这些油田每天生产约22万桶石油。
+reference：
 
-消息人士称，中海油计划在上海证交所公开上市之前启动全球投资组合审查，以图在美股退市后寻求替代资金。中海油在首次公开募股前的招股说明书中表示，它可能面临更多制裁。
+[https://news.tbs.co.jp/newseye/tbs\_newseye6012823.htm?1649906920242](https://news.tbs.co.jp/newseye/tbs_newseye6012823.htm?1649906920242)
 
-消息人士称，在离开西方的同时，中海油正在寻求在拉丁美洲和非洲收购新资产，并希望优先开发巴西、圭亚那和乌干达的大型新油田。
-
-秘翻新闻 清风先生编译报道
-
-发布 : 恩典
+撰稿、发布：骄子
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

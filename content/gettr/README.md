@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 12:17 PM (UTC)`
+
+4月14日 七哥乱聊直播
+![img](https://media.gettr.com/group9/origin/2022/04/14/11/2d9bc56d-f143-5ea4-2ffb-ab9661cfd74d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 11:56 AM (UTC)`
 
 4月14日 七哥乱聊直播
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 4/13/2022 Miles Guo Live: Following yesterday’s visit of the Belgium Prime Minister, two officials of the European Union visited the New Federal State of China’s tent at the front line of the Ukraine rescue operation. They expressed their intention of collaborating with the New Federal State of China in the rescue operations of Ukrainian refugees. There will be a growing number of countries that stand with us to take down the CCP.<br/><br/>4/13/2022 文贵直播：继昨天比利时首相参观新中国联邦在乌克兰前线的救援帐篷后，两位欧联盟官员也来到新中国联邦帐篷，并表示愿意与新中国联邦合作帮助乌克兰难民；越来越多的国家和政府机构会跟我们站在一起灭共！<br/>
 ![img](https://media.gettr.com/group43/getter/2022/04/14/01/8284bb0a-ffaf-3432-b0dd-3ab06116c161/out.jpg)
-
----
-
-`@miles 4/14/2022 12:59 AM (UTC)`
-
-2022.04.13 晚  新中国联邦 | 新闻访谈   中共野蛮防疫  致民怨沸腾 ; 欧盟代表团成员 参观新中国联邦救援帐篷
-![img](https://media.gettr.com/group39/origin/2022/04/14/00/09fc6290-9ad2-d2ab-c52e-7dedc474bb15/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

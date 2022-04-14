@@ -2,31 +2,28 @@
 ---
 
 
-## 粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344928/)
+## 网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2345430/)
 
-**图/文｜CP **
-**发布时间｜14/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜IMF及WTO等四大國際機構呼籲各國採取緊急行動.jpg)
+#### 编译 意大利达芬奇农场 小白鸽
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+世界冠军拉斐尔·纳达尔（Rafael Nadal)上个月突然出现严重的呼吸困难。3月20日，纳达尔在印第安维尔斯锦标赛的决赛中仅以两盘输给了美国人泰勒·弗里茨（Tayler Fritz )，并在比赛结束时说他呼吸很困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-14-alle-12.55.13.png)图片来自网络
+他告诉记者：“我只能说我现在呼吸很困难，我不知道什么原因，当我试图呼吸时，感觉很痛苦，而且非常复杂。”他在印第安维尔斯的史诗般的半决赛中与西班牙人卡洛斯·阿尔卡拉斯(Carlos Alcaraz)进行了三个多小时的比赛时感到胸部疼痛，左脚也有不适。
 
+在与弗里茨的决赛中，纳尔达两次向医疗机构寻求帮助以缓解胸痛，但他在球场上一直觉得不舒服。他说：“老实说，我很伤心，因为我无法参加比赛。”
 
-世界银行、国际货币基金组织（IMF）、联合国世界粮食计划署（WFP）和世贸组织（WTO）4月13日发表联合声明，呼吁各国政府就粮食问题采取紧急行动，并建议避免推行禁止粮食或化肥出口等相关政策。
+今年1月纳达尔在他的对手德约科维奇(Novak Djokovic)陷入司法纠纷时曾对媒体说过：“我相信专家了解药品，如果他们让我们接种新冠疫苗，我们就该接种疫苗。”
 
-四大机构的领导人在声明中警告，鉴于俄乌战争加剧了新冠疫情和气候变化对全球人民所造成的伤害，受困于主粮价格的大幅上涨和供应短缺，中低收入国家的家庭正面临巨大危机。据世界银行估计，每增加一个百分点的食品价格，全世界就有1000万人陷入极端贫困。
+这位35岁的球员本月从巴塞罗那公开赛退役。据路透社报道，纳达尔在从本月在巴塞罗那举行的ATP赛事中退役后，仍然不确定何时能够重返竞技网球，因为他的肋骨受伤，正在恢复。
 
-俄罗斯和乌克兰均是重要的粮食出口国，仅乌克兰就能为全球贡献49.6%的葵花籽油、10%的小麦、12.6%的大麦和15.3%的玉米的产量。但自战争爆发以来，黑海地区的粮食出口持续受到干扰，供应的不确定性加剧。此外，俄罗斯和乌克兰还是全球重要的化肥生产国。
+简评：曾经极力支持新冠疫苗，相信专家的纳达尔如今身体健康出现了问题。还会有多少像纳达尔这样的运动员会一个个地倒下？也许今后类似的灾难会更多，但愿人们早日醒来。新冠疫苗含有刺突蛋白，正在造成大量的伤亡。
 
-据联合国粮农组织（FAO）上周公布的数据显示，在俄乌战争的背景下，全球粮食价格再创历史新高。FAO的食品价格指数3月份升至159.3，较2月份上涨13%，较去年同期上涨34%。（该指数旨在衡量食品价格的月度变化，包括肉类、奶制品、谷物、植物油和糖。）
+参考链接：
 
-四大机构强调，现在最重要的，是要保持贸易开放，避免推行食品或化肥出口禁令等限制性措施，尤其不能对WFP的人道主义食品采购施加任何限制。
+[https://www.eventiavversinews.it/la-star-del-tennis-rafael-nadal-si-ritira-dal-barcelona-open-per-problemi-di-salute/](https://www.eventiavversinews.it/la-star-del-tennis-rafael-nadal-si-ritira-dal-barcelona-open-per-problemi-di-salute/)
 
-來源｜[ReliefWeb](https://reliefweb.int/report/world/joint-statement-heads-world-bank-group-imf-wfp-and-wto-call-urgent-coordinated-action)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+编辑、上传：Xiao baige
 
  
 
