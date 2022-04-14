@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 11:53 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月13日第40天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11429人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 40 - Date: April 13, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11429 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group17/getter/2022/04/14/11/3c37aeaa-4274-5235-a337-1a5522ef2f34/9404a9804c178641185fe3e705244174.jpg)
+
+---
+
 `@miles 4/14/2022 11:12 AM (UTC)`
 
 <br/>4月14号：尊敬的战友们好……大约在50分钟左右，七哥在这里，开始今天的乱聊直播！
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 2022.04.13 晚  新中国联邦 | 新闻   美国将再为乌克兰提供7.5亿美元军事援助; 俄乌大战在即, 中共将在5月之前攻台
 ![img](https://media.gettr.com/group43/origin/2022/04/14/00/df297324-1997-b093-e851-84af0a97c32b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 11:43 PM (UTC)`
-
-2022.04.13《The Fringe》 Episode 168<br/>中文同傳：https://gettr.com/streaming/p1573cze34a
-![img](https://media.gettr.com/group39/origin/2022/04/13/23/860241e2-fe85-cfa5-3208-e86d7cfb3aa5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
