@@ -2,38 +2,25 @@
 ---
 
 
-## 俄罗斯表示限制石油数据访问以保护当地市场
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2345222/)
+## 瑞士总统将于18日访问日本共商俄乌战争及双边关系问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2345347/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-87.png) （图片源自本文链接）
+4月14日时事通信社消息：14日，日本政府宣布，瑞士总统兼外交部长卡西斯将于18日访问日本。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+同一天，将与日本首相岸田文雄和外相林芳正举行会谈，共同讨论俄罗斯入侵乌克兰和加强双边关系。
 
+信息来源： [スイス大統領が来日へ（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/98bb51447453828dda5a4d0d28963fe6ac8b842a)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/EUV3KPNMWZPW3ARVS54NLRPOKY.jpg)
-
-
-资料来源：路透社
-
-4 月 14 日（路透社）俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。
-
-该部“正在限制信息的分发，这可能会被用作对俄罗斯市场及其参与者的额外压力，”它说。
-
-据两位客户称，编制数据的部门单位 CDU TEK 没有在 4 月 2 日发布月度数据，这是多年来首次出现此类延迟。阅读更多
-
-自 2 月 24 日莫斯科在乌克兰开始所谓的“特别军事行动”以来，俄罗斯一直面临西方制裁。
-
-该部表示：“在限制下，该行业的统计数据对操纵非常敏感，这会危及 CDU TEK 对手方的运营。”
-
-两位熟悉数据的消息人士称，俄罗斯周一的石油和天然气凝析油产量降至 1000 万桶/日以下，为 2020 年 7 月以来的最低水平。
-
-国际能源署预测，由于俄罗斯炼油厂减产和买家回避，本月俄罗斯石油产量可能下降 150 万桶/日。
-
-简评：独裁者采用各种手段都是如出一辙， 限制数据披露就是数据不好看呗，还能是什么原因。 数据公布了， 俄罗斯国民知道了普京在撒谎， 内部压力就更大了。 现在，普京可以继续撒谎欺骗国民， 国民生活水平的下降与石油和天然气出口减少的唯一原因， 那么普京的战争就不能继续了。 普京的治国方针之一是以骗治国。
-
-🔗[https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
-
-责任编辑、发布： Shuizhuyu
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

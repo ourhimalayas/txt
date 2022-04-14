@@ -2,46 +2,35 @@
 ---
 
 
-## 【G时新闻】美国航母和日本防卫队在日本海联合演习
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2345158/)
+## 国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345305/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-美国第七舰队周三（4月13日）说，在朝鲜日益增长的核和导弹威胁下，美国和日本一直在日本海进行由美国航母和日本海上自卫队船只参加的联合海军演习。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-27.png)
+法国记者推特发布消息指，瑞典和芬兰的总理刚刚举行了联合记者会，就两国加入北约的计划进行了会谈。芬兰总理马林表示，加入北约一事她不会给出确切时间表，但很快会在几周内发生。而瑞典可能在六月申请加入北约，瑞典的安全审查预计将在 5 月底之前完成，总理安德森表示，她将等待审查结果出炉后方作出决定。
 
-据美国第七舰队称，核动力航母林肯号的打击群于上周五开始参与联合演习。据韩国韩联社报道，这是自2017年11月以来美国航母首次部署到朝鲜半岛附近海域。
 
-人们越来越多地猜测平壤可能进行核试验或在4月15日金日成诞辰110周年之际，在日本上空向太平洋发射洲际弹道导弹。
 
-据自卫队称，从日本出发，装备有宙斯盾防空系统的驱逐舰孔古（Kongou）号和另一艘驱逐舰伊奈兹玛（Inazuma）号参加了周二举行的训练。自卫队在推特上说，这次训练是 “保卫我们的国家，从和平时期开始确保这一地区和平与稳定 ”的努力的一部分。
+> 🇸🇪[#Sweden](https://twitter.com/hashtag/Sweden?src=hash&amp;ref_src=twsrc%5Etfw) and 🇫🇮[#Finland](https://twitter.com/hashtag/Finland?src=hash&amp;ref_src=twsrc%5Etfw)'s prime ministers have just held a joint press conference outlining plans to join [#NATO](https://twitter.com/hashtag/NATO?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> 🇫🇮 expected to move first. PM Marin says she won't give a timetable but "it will happen quite fast—within weeks, not within months, we will have the discussion" [pic.twitter.com/huEKnkDVUD](https://t.co/huEKnkDVUD)
+> — Dave Keating (@DaveKeating) [April 13, 2022](https://twitter.com/DaveKeating/status/1514198882250596356?ref_src=twsrc%5Etfw)
 
-航空自卫队说，其四架F-2战斗机被派往周二的演习。
 
-在今年年初以来进行了一连串的弹道导弹发射后，朝鲜于3月24日进行了自2017年11月以来的首次洲际弹道导弹发射，标志着其自2018年4月以来自我暂停的洲际弹道导弹试验的结束。
 
-据日本防卫省称，最新的导弹被评估为能够飞行超过15000公里，如果按照正常弹道，能够到达整个美国本土。
+据外媒所述，芬兰已经准备好在几周内作出加入北约的决定，芬兰总理马林称，加入北约可能倒致俄罗斯采取行动，但不加入北约（结果）也是一样的，并表示“芬兰必须为俄罗斯的各种行动做好准备”。
 
-平壤在1月份暗示，它可能会恢复核试验和洲际弹道导弹试验。它上次进行核试验是在2017年9月。
+外媒引述民调结果，芬兰民调数据68% 支持加入北约，是俄乌战争发生前的两倍多，仅12%反对加入。而瑞典民调数据则显示，支持加入北约者略多于不支持者。
 
-快评：美国和日本都在亚太海域部署，这篇新闻看上去是为了应对朝鲜的核和导弹发射，实际上大家都明白威慑的是朝鲜背后的中共。
+俄罗斯曾表示，若瑞典、芬兰加入北约，将不再谈论波罗的海无核化。俄罗斯安全委员会副主席德米特里．梅德韦杰夫（Dmitry Medvedev）表示，如果发生这种情况，莫斯科会做出回应，并加强俄军地面及防空部队，在位于芬兰、爱莎尼亚、俄罗斯之间的芬兰湾布署海军。
 
-中共打台湾已经箭在弦上，为了这一时刻，郭先生爆料称习太阳已经准备了10年。
+来源｜[衛報](https://www.theguardian.com/world/2022/apr/13/finland-and-sweden-could-apply-for-nato-membership-in-weeks)、[sky](https://news.sky.com/story/russia-threatens-nuclear-escalation-if-sweden-and-finland-join-nato-12589823)
 
-中共在穷途末路上狂奔。郭先生在3天前的文贵大直播中说过，朝鲜金家已经知道中共与俄罗斯都完了，他自己肯定无法和美国对抗。接下来金家会被灭。
-
-编辑/上传：一叶
-盖特链接：[https://www.gettr.com/post/p156m77507c](https://www.gettr.com/post/p156m77507c)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
-- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

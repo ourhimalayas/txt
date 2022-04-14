@@ -2,81 +2,29 @@
 ---
 
 
-## 拜登授权向乌克兰提供8亿美元额外援助
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
+## 【每日聚焦】俄乌战事4月14日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2342609/)
 
-**拜登总统： **
-今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
+**编撰：多伦多蓝莲花- wood(文斌)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+1、基辅和乌克兰东北部：前来协助调查基辅周边战争罪行的法国科技宪兵支队在布查开展工作。俄罗斯国防部威胁说，如果乌克兰继续打击俄罗斯境内的目标，将攻击基辅的决策总部。美国太空部队称俄罗斯正在干扰乌克兰的GPS卫星信号。
 
+2、哈尔科夫和伊久姆：俄军继续在哈尔科夫州为进攻行动进行集结，在4月13日仅对伊久姆南部进行了小规模攻击。美国情报来源称，俄罗斯增援伊久姆的努力进展缓慢。乌克兰副总司令叶文·莫伊修克于4月13日视察了哈尔科夫州一个未指明的地点的前线，以检查乌克兰的防御阵地，并表示俄军继续对哈尔科夫市构成威胁，尽管这种重新尝试攻占该市的可能性不大。哈尔科夫州民政当局声称乌军在罗汉和德哈奇（分别位于哈尔科夫市东南和西北）进行了小规模反击。
 
+3、顿涅茨克州和卢甘斯克州：在过去24小时内，俄军继续在乌克兰东部进行不成功的局部攻击，交战相对最激烈的地方是阿瓦迪夫卡；俄军炮击该镇，并发动了几次小规模的攻击，试图突破乌克兰的防线，但是都没有成功。俄军也继续为可能的更大范围的攻势做着准备。美国情报来源称，俄军有大约55个营级战术群在乌克兰南部作战，这个数字可能包括了顿巴斯和赫尔松一带的俄军。乌克兰总参谋部报告说，靠着强行动员手段，俄罗斯在顿涅茨克和卢甘斯克组建了五个兵力不足的摩托化步枪团（第103、109、113、125和127团），而其实这5个团最多只有5个营的兵力，每个营约 300 人，只有 5-10% 的士兵有战斗经验。
 
-> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
-> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
+4、马里乌波尔：俄军于4月13日占领了马里乌波尔北部的伊里奇金属厂，有相当一部分乌克兰海军陆战队第36旅人员成功突围到亚速钢铁厂与那里的守军会合，第36旅和亚速营的指挥官还在4月13日发布了一个联合视频。
 
+5、南部战线：4月13日，俄罗斯军队在赫尔松州进行了小规模的攻击，但没有成功。美国情报人士4月13日表示，俄罗斯军队很可能在克里米亚和乌克兰南部建立了两个补给基地，为马里乌波尔和赫尔松的行动提供补给。乌军向正在蛇岛附近巡弋的一艘俄罗斯军舰发射了2枚海王星反舰导弹，重创了这艘排水量为 12,490 吨的的莫斯科号巡洋舰。
 
+校对：文斌/发布：一叶知秋
 
-**国务卿安东尼·布林肯：** 
-随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
-
-
-
-> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
-
-
-
-**国防部长劳埃德·奥斯汀三世： **
-正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
-
-
-
-> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
-
-
-
-> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
-> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室： **
-“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
-
-
-
-> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
-
-
-
-**众议员帕特·法伦：** 
-[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
-
-
-
-> Beijing is watching our every move. 
-> 
-> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
-> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
-
-
-
-> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

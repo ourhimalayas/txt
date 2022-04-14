@@ -2,30 +2,41 @@
 ---
 
 
-## 洪都拉斯前总统因涉嫌贩毒将于下周引渡到美国
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2344710/)
+## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
 
-**撰稿：日本东京方舟农场  子辰**
+翻译：Jenny Ball
 
-4月13日，洪都拉斯安全部长雷蒙‧萨比隆（Ramón Sabillón表示，由于前总统胡安‧奥兰多‧埃尔南德斯（Juan Orlando Hernández）涉嫌贩毒并在贩毒过程中使用了武器，现遭到美国检察官指控，将于下周引渡至美国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-288.jpg)（图片来自大纪元）
 
-据悉，埃尔南德斯于2月15日在家中被捕，美国当局对他发出引渡令后。洪都拉斯法官几小时后即签署了逮捕令，而洪都拉斯当局也于前一天晚上开始就包围了埃尔南德斯的家，并在法官签署逮捕令后迅速将其拘留。其本人并没有抵抗，而是选择了向警方自首。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
+医学页面（MedPage）今天报道：
 
-埃尔南德斯担任了八年总统并于今年1月离任后，其不再具有国家元首豁免权，随即被美国对他采取了行动。美国检察官一直指控其涉嫌贩毒并与毒品贩子有关联。
+一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
 
-萨比隆说，埃尔南德斯在美国面临的主要指控包括贩毒、使用武器贩毒和阴谋使用武器贩毒。
+提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
 
-此外，埃尔南德斯的兄弟，胡安‧安东尼奥‧“托尼”‧埃尔南德斯（Juan Antonio “Tony” Hernández）在2021年3月因贩毒和使用武器的罪名被判处终身监禁。
+然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
 
-其兄弟在2019年贩毒案的审判中，纽约的美国检察官多次将洪都拉斯时任总统列为同谋，称他的政治崛起是由毒品利润推动的。
+评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/13/n13710996.htm](https://www.epochtimes.com/gb/22/4/13/n13710996.htm)
+新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
 
-总编：老孙
-校对发布：爱放飞
+* * *
+
+评论： Jenny Ball
+审核：文乐      
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 
