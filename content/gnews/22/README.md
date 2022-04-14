@@ -2,29 +2,47 @@
 ---
 
 
-## 俄罗斯潜艇在日本海演习中发射导弹
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2346881/)
+## 墨西哥表示不接受俄罗斯入侵乌克兰
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346899/)
 
-据俄罗斯塔斯社报道，俄罗斯太平洋舰队的两艘潜艇周四（4月14日）在日本海的演习中发射了喀拉布（Kalibr）巡航导弹，这显然是对在附近参加联合军事演习的日本和美国的警告。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Ru.jpg)gmanetwork.com
-该通讯社援引舰队新闻办公室的话报道，两艘柴电潜艇彼得罗巴甫洛夫斯克-堪察斯基（Petropavlovsk-Kamchatsky）和沃尔霍夫（Volkhov）在水下对一个海军目标发射了导弹。
+***评论：**奥夫拉多尔说道，“我们支持以和平方式解决俄罗斯和乌克兰之间的冲突。必须实现和平，这样乌克兰人民、俄罗斯人民以及世界上任何其他国家的人民都不会继续遭受这种荒谬的痛苦，因为战争是可耻的，永远不应该寻求战争。”…但是对待比法西斯还狠的普特勒，一味的采取和平方式只会更加纵容、让其愈加无法无天。*
 
-这次发射是在日本海上自卫队和美国海军核动力航母林肯号进行联合演习时进行的。
+据《路透社》记者Dave Graham， 2022年4月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1764-e1649954590688.png)2022年3月21日，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔（Andres Manuel Lopez Obrador）在墨西哥州祖姆潘戈市（Zumpango munici-pality）的新费利佩·安吉利斯机场（the new Felipe Angeles Airport）落成典礼前的一次会议上发表讲话。
+图片来源：路透社/路易斯 科尔特斯/档案照片(REUTERS/Luis Cortes/File Pho-to)
+路透社墨西哥城4月9日电—墨西哥总统奥夫拉多尔(Andres Manuel Lopez Obrador)周六在一段视频中表示，墨西哥不接受俄罗斯入侵乌克兰。这段视频是在一项支持俄乌冲突中乌克兰受害者的全球活动中发布的。
 
-报道称，巡航导弹准确地击中了由特殊船舶结构代表的目标，该结构旨在模拟敌人的水面战斗舰。
+奥夫拉多尔说:“我们不接受俄罗斯入侵乌克兰，因为我们也曾遭受了入侵。” 他指的是西班牙、法国和美国过去入侵墨西哥的历史。
 
-**快评**：昨天就美日联合在日本海军演的消息，我发过一篇[《美国航母和日本防卫队在日本海联合演习》](https://gnews.org/zh-hans/2341581/)，今天来自塔斯社的报道称俄罗斯两艘潜艇在那里发射了巡航导弹，显然是对日本与美国的联合演习发出警告。
+“我们赞成以和平方式解决冲突。”
 
-东方与西方阵营轮廓愈发清晰，从这则新闻中看出俄罗斯属于东方阵营，日本、美国属于西方阵营。东西方阵营正邪之争的决战应该将很快在印太地区发生。今天郭先生直播爆料4月底5月初中共打台湾的机率很大。
+本周早些时候，加拿大总理贾斯汀·特鲁多（Justin Trudeau）已邀请奥夫拉多尔出席他与欧盟执行委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）共同召开的活动，替乌克兰难民和乌国境内流离失所的民众募款。
 
-第三次世界大战早已从CCP病毒大流行和疫苗强制施打开始，但火战应该以俄乌战争开启为标志，在俄乌战争进入更惨烈的同时，亚洲、中东的战场都将拉开。
+虽然奥夫拉多尔周三表示，他无法出席，但他承诺将发布一段视频“谴责入侵”。
 
-中共和共产主义是一切灾难的根源，灭共大战正在全面开启。
+奥夫拉多尔试图在冲突中保持中立，并拒绝对俄罗斯实施制裁。
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/7e8144ec7bcd-russian-submarines-fire-missiles-in-sea-of-japan-drills-report.html](https://english.kyodonews.net/news/2022/04/7e8144ec7bcd-russian-submarines-fire-missiles-in-sea-of-japan-drills-report.html)
+虽然奥夫拉多尔政府支持联合国投票敦促俄罗斯从乌克兰撤军，但墨西哥周四在联合国大会（UNGA）就暂停俄罗斯在联合国人权理事会会员资格的表决中，投下弃权票。
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源：[https://www.reuters.com/world/europe/mexico-says-it-does-not-accept-russian-invasion-ukraine-2022-04-09/](https://www.reuters.com/world/europe/mexico-says-it-does-not-accept-russian-invasion-ukraine-2022-04-09/)
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场  – Freeearth
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
