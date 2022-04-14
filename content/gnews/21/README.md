@@ -2,35 +2,41 @@
 ---
 
 
-## 【秘翻北美时评】中共国银行将关闭相关个人外汇买卖业务
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2344650/)
+## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
 
-**By：[秘翻北美时评](https://gettr.com/post/p156r22cdd2)**
+翻译：Jenny Ball
 
-***[2022-04-14](https://gettr.com/post/p156r22cdd2)***
-
-**今题主题：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
 
 
-```
-1. 中共国银行将关闭相关个人外汇买卖业务 
- 2. 香港事隔十多年再次出现“一人模式”选举特首 
- 3. 乌克兰人道走廊因太危险而遭叫停 
- 4. 俄兵性侵乌克兰儿童 
- 5. 泽连斯基警告欧洲不阻侵略恐失东欧 
- 6. 索罗门拟签约允许中共国驻军 
- 7. 驻华欧盟商会呼吁中共国调整防疫策略 
- 8. 美国情报指中共研发可打击卫星的多款导弹
-```
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
+医学页面（MedPage）今天报道：
 
+一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
 
-🔗链接：[https://gettr.com/post/p156r22cdd2](https://gettr.com/post/p156r22cdd2)
+提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
 
-发布：陸柒陸捌
+然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
+
+评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
+
+新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
 
+评论： Jenny Ball
+审核：文乐      
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 

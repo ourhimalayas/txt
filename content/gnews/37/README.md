@@ -2,38 +2,29 @@
 ---
 
 
-## 美国最新人权报告 重申中共的种族灭绝和反人类罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343790/)
+## 中国｜上海官员不堪抗疫压力自杀 胡锡进冷血评论：继续清零 没有选择
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2343793/)
 
-作者：澳喜农场 – Leo M
+**图/文｜CP**
+**发布时间｜14/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海官員不堪抗疫壓力自殺-胡錫進冷血評論：繼續清零-沒有選擇.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-当地时间4月12日，美国国务院发布2021年度《世界人权报告》。在关于中共国的部分，报告重申中共政府在新疆犯下了种族灭绝和反人类罪。这些针对维吾尔人等新疆少数族群的罪行包括：任意关押或剥夺上百万人的人身自由，大规模监控，强制绝育，强奸，酷刑折磨，强迫劳动，严格限制宗教或信仰自由等。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-97.jpg)
-除此之外，报告还列举了中共国存在的其他严重人权问题，如强迫失踪、严重干预和平集会和结社、人口贩卖、借公共卫生的名义实施各种严酷政策等。报告还强调，中共国的官员和安保人员时常不受惩罚地犯下侵犯人权的行为；中共国的腐败现象也非常猖獗，但当局在腐败问题上的执法反复无常，且并不透明。
-
-参考链接：
-1. [美国发布最新《各国人权报告》 重申中共国在新疆犯下种族灭绝!](https://gettr.com/post/p1518sp24b1)
-2. [特朗普政府宣布中国在新疆犯下种族灭绝和反人类罪](https://www.voachinese.com/a/trump-administration-declares-chinas-repression-of-uighurs-genocide-20210119/5743710.html)
-3. [美国发布最新《各国人权报告》 重申中国在新疆犯下种族灭绝](https://www.rfa.org/mandarin/Xinwen/10-04122022162954.html)
-4. [国家主席习近平掌权下，中国政府2021年加倍对国内和国外的压迫。该政府对新冠肺炎的“零容忍”政策更加强了当局的铁腕，借公共卫生的名义实施各种严酷政策。](https://www.hrw.org/zh-hans/world-report/2022/country-chapters/china)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-总编：zhong
-编辑/审核：飞虹
-校对/发稿：为真不破20
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
+上海疫情持续严峻，网传上海虹口区卫健委资讯中心主任钱文雄于4月12日下午在办公室自尽，钱文雄家属后来通过微信朋友圈发布讣告证实消息属实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+对此，中共党媒《环球时报》前总编胡锡进14日凌晨在微博上发表看法，他认为，钱文雄离世的悲剧，加剧上海防疫让部分基层人员不堪重负的印象，“这两天上海有各种令人不安的讯息和影片传到网上，它们的共同指向是对抗疫次生悲剧和代价的强烈不满，以及长时间封控引发的焦躁感。”
 
+他表示，“站在动态清零的角度，上海一定要继续把清零作为坚定目标，理由是明确的：上海不清零，即使上海人接受，全国其他地方的人接受吗？上海之外的人，有谁愿意与来自疫情如此严重上海的人打交道？那样的话上海将真的成为孤岛，或者很快把全国『拉下水』。”
 
+胡锡进强调：“今天的上海除了为清零而奋斗，别无选择。”
+
+來源｜[yahoo](https://tw.news.yahoo.com/%E4%B8%8D%E5%A0%AA%E6%B2%89%E9%87%8D%E5%A3%93%E5%8A%9B-%E8%83%A1%E9%8C%AB%E9%80%B2%E8%AD%89%E5%AF%A6%E4%B8%8A%E6%B5%B7%E9%98%B2%E7%96%AB%E5%AE%98%E5%93%A1%E8%87%AA%E7%9B%A1-020759932.html)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

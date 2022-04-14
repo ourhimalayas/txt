@@ -2,50 +2,31 @@
 ---
 
 
-## 苔丝·劳里博士是一位具有远见卓识的 COVID 英雄
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344863/)
+## 粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344928/)
 
-翻译： Jenny Ball
+**图/文｜CP **
+**发布时间｜14/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜IMF及WTO等四大國際機構呼籲各國採取緊急行動.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-28.jpg)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+世界银行、国际货币基金组织（IMF）、联合国世界粮食计划署（WFP）和世贸组织（WTO）4月13日发表联合声明，呼吁各国政府就粮食问题采取紧急行动，并建议避免推行禁止粮食或化肥出口等相关政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-140.png)图片来源：rwmalonemd.substack.com
+四大机构的领导人在声明中警告，鉴于俄乌战争加剧了新冠疫情和气候变化对全球人民所造成的伤害，受困于主粮价格的大幅上涨和供应短缺，中低收入国家的家庭正面临巨大危机。据世界银行估计，每增加一个百分点的食品价格，全世界就有1000万人陷入极端贫困。
 
-我（作者罗伯特.马龙）从未当面见过苔丝·劳里（Tess Lawrie）博士，但在科学努力中，为真理和诚信而战使我们走到了一起，今天，我认为她是前线医生的盟友。你可能已经认识苔丝。她曾担任世卫组织的顾问，评估证据并提出建议。当她看到皮埃尔·科里（ Pierre Kory） 博士在国会就伊维菌素作证时，她放弃了圣诞节假期，转而进行其中一项审查（无偿），看看证据是否真的支持皮埃尔的说法。确实如此，所以她开始工作，写信给世界各地的卫生当局和政府，并分享这个好消息。
+俄罗斯和乌克兰均是重要的粮食出口国，仅乌克兰就能为全球贡献49.6%的葵花籽油、10%的小麦、12.6%的大麦和15.3%的玉米的产量。但自战争爆发以来，黑海地区的粮食出口持续受到干扰，供应的不确定性加剧。此外，俄罗斯和乌克兰还是全球重要的化肥生产国。
 
-我不需要告诉你这是怎么回事。感谢我们所有人，苔丝不会轻易放弃。从那时起，她一直在不停地工作，向公众宣传有关伊维菌素和早期治疗的信息。我让她在我的新书中写下她的经历，但你现在可以在她的Substack上阅读她的故事。
+据联合国粮农组织（FAO）上周公布的数据显示，在俄乌战争的背景下，全球粮食价格再创历史新高。FAO的食品价格指数3月份升至159.3，较2月份上涨13%，较去年同期上涨34%。（该指数旨在衡量食品价格的月度变化，包括肉类、奶制品、谷物、植物油和糖。）
 
-苔丝最让我印象深刻的是，她在黑暗面前始终如一的积极态度。她和我们其他人一起在战壕里，流着血和瘀伤，但她也是那些微笑着指向黎明的人之一。我们需要像苔丝这样的人来提醒我们，我们不仅仅是战士，我们还是未来的建筑师。如果我们想为我们自己和我们的孩子创造一个更公平、更友善的世界，我们需要弄清楚它是什么样子以及如何实现它。
+四大机构强调，现在最重要的，是要保持贸易开放，避免推行食品或化肥出口禁令等限制性措施，尤其不能对WFP的人道主义食品采购施加任何限制。
 
-苔丝一直忙于创建框架，通过这些框架我们可以开始构建这个更光明的未来。她是世界卫生委员会背后团队的一员，这是一项草根倡议，就如何保持健康和生活得好提供清晰的信息和指导。每个星期一他们都会召开一次大会，医生、科学家和活动家公开分享你应该能够从你的政府、医生或媒体渠道获得的信息，只是地狱还没有结束。
-
-现在，世卫委员会将于今年五月在英国巴斯举办第一次会议，该活动被称为“更好的方式会议”，专注于为我们所处的混乱找到解决方案。美国将派出强有力的代表，彼得·麦卡洛（Peter McCullough）博士、瑞恩·科尔（Ryan Cole）、理查德·乌索（Richard Urso）、卡塔琳娜·林德利（Katarina Lindley） 以及布雷特·温斯坦（Bret Weinstein）和我本人，都将出席。这是我们所有人从战斗中休息的机会，洗去脸上的泥巴，并为设计将人类健康放在首位的新运营方式而兴奋不已。
-
-会议将包括七场对话。我将参加第一个：一起回收科学。正如你可以想象的那样，我有几件事要说。其他对话将涵盖管理 Covid-19 健康后果、培养活跃的社区、革新媒体、主权、法律、司法等。如果您有兴趣参加，您不必飞往巴斯：在线门票很快就可以通过会议网站获得。
-
-我们需要这样的活动，以及像世卫委员会这样的倡议——但他们也需要我们。这就是我今天写信给你们的部分原因——看你们是否会考虑通过提供财政捐助来支持他们的工作。
-
-像我们许多人一样，苔丝的经营也很拮据。她的公司“世界卫生委员会的所在地”（EBMC Squared）是非营利性的，完全依赖捐助者的资金和一小群志愿者。他们已经用最少的资金和很多善意取得了如此多的成就。现在，我想帮助他们获得更好的资金，这样他们就可以继续工作并做得更多。如果你也愿意促使这样做，请和我一起捐款。
-
-对我们所有人和我们的资源都有很多要求，所以，我不会问我是否认为这很重要。如果我们想要更好的方式，我们需要以更好的方式进行投资，通过我们的个人努力支持这样的项目。
-
-新闻来源：[Dr Tess Lawrie is a COVID hero with a powerful vision](https://rwmalonemd.substack.com/p/dr-tess-lawrie-is-a-covid-hero-with?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTIxMzkzNjksIl8iOiJsdGFHKyIsImlhdCI6MTY0OTg1OTI2OSwiZXhwIjoxNjQ5ODYyODY5LCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.-4W_HQ8RI2YLCTRjVowcxmLNUWLRyjLGMO76aIyoLis&amp;s=r)
+來源｜[ReliefWeb](https://reliefweb.int/report/world/joint-statement-heads-world-bank-group-imf-wfp-and-wto-call-urgent-coordinated-action)
 
 * * *
 
-审核：文乐
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

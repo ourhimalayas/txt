@@ -15,134 +15,134 @@
 
 ---
 
-### [俄罗斯国防工业被制裁 无法继续生产高超音速匕首导弹系统](/content/gnews/1/README.md)
+### [有声｜波兰和波罗的海三国总统访问基辅谴责俄罗斯](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [上海民众拒“抗疫晚会”节目官方紧急叫停](/content/gnews/2/README.md)
  ` 日本東京方舟農場`
 
-### [COVID-19疫苗副作用集萃（2022.4.14）第二针](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [诗歌《我就是在这边爱上了你》](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/4/README.md)
- ` 關注組`
-
-### [中共犯罪 以“打击电信网络诈骗犯罪”为名](/content/gnews/5/README.md)
- ` 儒为`
-
-### [COVID-19疫苗副作用集萃(2022.4.14)–打完第三针疫苗各种副作用](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如果北约接纳瑞典和芬兰，俄罗斯警告波罗的海核部署](/content/gnews/7/README.md)
+### [立陶宛称俄罗斯已经在波罗的海地区拥有核武器](/content/gnews/3/README.md)
  ` Shuizhuyu`
 
-### [闲聊澳洲：郭先生4月13日盖特视频内容摘要及观后感受](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花深度报道┃暴涨的疫情病例戳穿中共谎言（下）](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [闲聊澳洲：习近平大量调军进上海的目的](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [苔丝·劳里博士是一位具有远见卓识的 COVID 英雄](/content/gnews/11/README.md)
+### [COVID疫苗不起作用——再多加强针也没用（3/4）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：封城悲惨人民不抗争是中共想要的](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
+### [【G时新闻】比利时首相到访新中国联邦波兰救援中心](/content/gnews/5/README.md)
+ ` G-时新闻`
 
-### [有声｜联合国称 乌克兰有 140 万人无法使用自来水](/content/gnews/13/README.md)
+### [美国向乌克兰承诺再提供8亿美元的武器](/content/gnews/6/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [乌克兰将从世界银行获得15亿美元的支持计划](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【G叻睇真D】拜登明确普京和俄逻斯侵略军在乌克兰犯下种族灭绝罪行](/content/gnews/8/README.md)
+ ` G-时新闻`
+
+### [有声｜中共国石油巨头因惧怕制裁准备从西方撤出](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花深度报道┃暴涨的疫情病例戳穿中共谎言（上）](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [民生集萃——疫情对实体经济打击巨大（2022.4.14）&#8211;疫情导致门面长期租不出去](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声｜联合国报告称 朝鲜从中俄购买导弹材料](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [每次 COVID 注射后双眼出现罕见的缺血性视神经病变](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/18/README.md)
- ` 關注組`
-
-### [洪都拉斯前总统因涉嫌贩毒将于下周引渡到美国](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [媒体如何将坏科学变成“新闻”（2/2）](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【秘翻北美时评】中共国银行将关闭相关个人外汇买卖业务](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [媒体如何将坏科学变成“新闻”（1/2）](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [吉尔吉斯斯坦与塔吉克斯坦边防部队交火](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [国际｜拜登“种族灭绝”言论 白宫发言人：个人感受](/content/gnews/24/README.md)
- ` 關注組`
-
-### [“他们想杀我”揭露孟山都的生物学家告诉小肯尼迪](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [上海市民:我违反防疫法,你把我带走至少还有一天三顿饭](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [没有一分资产和一个喜币七哥自己破产却让无数人赚大钱](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？](/content/gnews/28/README.md)
- ` 關注組`
-
-### [聚焦：戴琪释放美中经济即将脱钩信号](/content/gnews/29/README.md)
- ` 蓝莲花农场`
-
-### [美国务院2021年人权报告重申中共犯下种族灭绝罪和反人类罪](/content/gnews/30/README.md)
+### [DIA警告：中共国发射超音速导弹加热太空火药桶](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧洲理事会：进一步向乌克兰提供军事援助，总额达到16.3亿美元](/content/gnews/31/README.md)
- ` 波士顿五月花农场金融部`
-
-### [樱花时政┃北欧2国积极加入北约 欧洲安全框架将发生重大变化](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/33/README.md)
- ` MOSVIDEO`
-
-### [视频|俄乌战局最近消息汇总](/content/gnews/34/README.md)
- ` MOSVIDEO`
-
-### [中国｜上海官员不堪抗疫压力自杀 胡锡进冷血评论：继续清零 没有选择](/content/gnews/35/README.md)
+### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/11/README.md)
  ` 關注組`
 
-### [中共内外交困加剧 喜币将成为最早的数字法币](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [美国最新人权报告 重申中共的种族灭绝和反人类罪](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [永不放弃为新闻自由而战，比利时首相悼念遇害记者](/content/gnews/38/README.md)
- ` NFSC News`
-
-### [俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满](/content/gnews/39/README.md)
- ` 關注組`
-
-### [拜登授权向乌克兰提供8亿美元额外援助](/content/gnews/40/README.md)
- ` 美国政要直译推`
-
-### [民生集萃——疫情导致服装行业破产（2022.4.14）&#8211;正式告别服装行业](/content/gnews/41/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.14)–打完第三针疫苗各种副作用](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/42/README.md)
- ` 秘密翻译组-原创组`
+### [闲聊澳洲：郭先生4月13日盖特视频内容摘要及观后感受](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [上海封城中的无助与绝望](/content/gnews/43/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [樱花深度报道┃暴涨的疫情病例戳穿中共谎言（下）](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [闲聊澳洲：习近平大量调军进上海的目的](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [苔丝·劳里博士是一位具有远见卓识的 COVID 英雄](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [大直播后记：封城悲惨人民不抗争是中共想要的](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [有声｜联合国称 乌克兰有 140 万人无法使用自来水](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [民生集萃——疫情对实体经济打击巨大（2022.4.14）&#8211;疫情导致门面长期租不出去](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声｜联合国报告称 朝鲜从中俄购买导弹材料](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [每次 COVID 注射后双眼出现罕见的缺血性视神经病变](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/22/README.md)
+ ` 關注組`
+
+### [洪都拉斯前总统因涉嫌贩毒将于下周引渡到美国](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [【秘翻新视野】全球供应链中断 一触即发](/content/gnews/24/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [媒体如何将坏科学变成“新闻”（2/2）](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【秘翻北美时评】中共国银行将关闭相关个人外汇买卖业务](/content/gnews/26/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [媒体如何将坏科学变成“新闻”（1/2）](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [吉尔吉斯斯坦与塔吉克斯坦边防部队交火](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [国际｜拜登“种族灭绝”言论 白宫发言人：个人感受](/content/gnews/29/README.md)
+ ` 關注組`
+
+### [“他们想杀我”揭露孟山都的生物学家告诉小肯尼迪](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [上海市民:我违反防疫法,你把我带走至少还有一天三顿饭](/content/gnews/31/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [没有一分资产和一个喜币七哥自己破产却让无数人赚大钱](/content/gnews/32/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？](/content/gnews/33/README.md)
+ ` 關注組`
+
+### [聚焦：戴琪释放美中经济即将脱钩信号](/content/gnews/34/README.md)
+ ` 蓝莲花农场`
+
+### [美国务院2021年人权报告重申中共犯下种族灭绝罪和反人类罪](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花时政┃北欧2国积极加入北约 欧洲安全框架将发生重大变化](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中国｜上海官员不堪抗疫压力自杀 胡锡进冷血评论：继续清零 没有选择](/content/gnews/37/README.md)
+ ` 關注組`
+
+### [中共内外交困加剧 喜币将成为最早的数字法币](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [美国最新人权报告 重申中共的种族灭绝和反人类罪](/content/gnews/39/README.md)
+ ` NFSC News`
+
+### [永不放弃为新闻自由而战，比利时首相悼念遇害记者](/content/gnews/40/README.md)
+ ` NFSC News`
+
+### [俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满](/content/gnews/41/README.md)
+ ` 關注組`
+
+### [拜登授权向乌克兰提供8亿美元额外援助](/content/gnews/42/README.md)
+ ` 美国政要直译推`
+
+### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/43/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`

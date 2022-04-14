@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 10:07 AM (UTC)`
+
+ 4月14号：尊敬的战友们好，中国人从来不缺大明白人，就是没有行动力，反抗的勇气……连鸡鸭鹅狗被杀前的反抗的胆子都没有！永远希望别人来完成自己的事情。永远是把批评别人放在第一位．永远将自己的理想和情怀，寄托在孩子，及他们眼中看不起的没文化的人……最底层人的身上，能很荣幸地为他们去牺牲，还要对他们感恩戴德。这就是中国社会的悲哀，自私懦弱，狂妄自大，没有任何真正的情怀，更不要谈任何所谓的信仰……什么样的社会就会选出什么样的政府，什么样的政府就会展现给社会大众的综合素质同等标准的事情。今天中国政府有多坏，中国社会的人心就有多孬！这是个轮回。这是自然的逻辑！
+![img](https://media.gettr.com/group30/getter/2022/04/14/10/c4ecbd96-2e66-8b9b-83ba-44d2d6b064f1/e13d3b799020082186c3ea58557d293f.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtv_uk 4/13/2022 4:16 PM (UTC)`
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 2022.04.13 NFSC news  World Leaders Indicate Recognition of NFSC Coming Soon
 ![img](https://media.gettr.com/group38/origin/2022/04/13/23/a70a8c31-b83f-0fd1-8d2b-8965a8e377b0/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/13/2022 10:33 PM (UTC)`
-
-4/13/2022  Miles Guo’s GETTR: The persistence of the fellow fighters of New Federal State of China on the rescue frontline in Ukraine has won the recognition of more countries and international organizations; Mr. Guo is always thinking about the safety of the frontline fellow fighters; the NFSC has been taking actions to make the world realize that the Chinese Communist Party is the biggest threat to humanity<br/><br/>4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可；郭先生无时不刻不挂念着前线战友的安危；新中国联邦人用实际行动让世界认识到中共就是人类最大的威胁<br/>
-![img](https://media.gettr.com/group21/getter/2022/04/13/22/dfb0f549-958e-fd91-b9aa-5fa19884088f/out.jpg)
 
 ---
 

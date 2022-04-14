@@ -2,71 +2,36 @@
 ---
 
 
-## 诗歌《我就是在这边爱上了你》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344938/)
+## 立陶宛称俄罗斯已经在波罗的海地区拥有核武器
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2345100/)
 
-整理：vale
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-289.jpg)俞风景：局势尚未明朗（布面亚克力80x80cm）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1162.jpg)
 
-**《我就是在这边爱上了你》**
-作者：俞心樵
 
-每天醒来，只要伸手张口
+资料来源：路透社
 
-吃的东西就摆在我的桌面
+维尔纽斯，4 月 14 日（路透社）——立陶宛国防部长 Arvydas Anusauskas 周四表示，俄罗斯已经在波罗的海地区拥有核武器。
 
-大海星辰协议合同催款帐单
+俄罗斯总统弗拉基米尔·普京最亲密的盟友之一周四警告北约，如果瑞典和芬兰加入美国领导的军事联盟，那么俄罗斯将不得不加强其在该地区的防御，包括部署核武器。
 
-我宁可饿着，我懒得动，我看着浮云
+Anusauskas 告诉立陶宛的 BNS 电报，自当前危机发生之前，核武器就已部署在俄罗斯位于波罗的海的加里宁格勒飞地。
 
-一朵一朵，我就是其中一朵重如泰山
+“目前俄罗斯的威胁看起来很奇怪，因为我们知道，即使没有目前的安全局势，他们也将武器保持在距离立陶宛边境 100 公里的地方，”周四电报援引部长的话。
 
-但并不比孤山更重。我还从来没去过孤山
+俄罗斯的加里宁格勒飞地位于波罗的海沿岸，夹在北约成员国立陶宛和波兰之间。
 
-我自己就是孤山在众山之中
+立陶宛总理英格丽达·西蒙尼特周四表示，俄罗斯威胁要在波罗的海地区增加包括核在内的军事力量“并不是什么新鲜事”。
 
-众山之上，一只小鸟治愈了整个天空
+简评：俄罗斯这个国家有个疯狂的总统普京， 导致这个国家现在就像一个疯狗， 到处咬人， 而且到处用加擀面杖子威胁周边的各国， 任何一个理智的人都不能理解普京到底要干什么，是真的要当欧洲的老大？他真的没有这个实力， 这次欧洲的空前团结，以及波罗的海小国都是站在乌克兰一边的， 因为他们最知道，如果俄罗斯侵略乌克兰成功， 普京的下一个目标就是这个小国，因为他们都是曾经的苏联。 这次普京是真的以全欧洲为敌了。
 
-小鸟飞进石头剪刀布深处治愈了我
+🔗[https://www.reuters.com/world/europe/russia-already-has-nuclear-weapons-baltic-region-says-lithuania-2022-04-14/](https://www.reuters.com/world/europe/russia-already-has-nuclear-weapons-baltic-region-says-lithuania-2022-04-14/)
 
-任何妄图在我的诗歌中寻求刺激的人
-
-必定绝望，除非你想让自己安静下来
-
-大科技，小程序，众神的堕落行为
-
-在我身上一个都不少。让我们羡慕的人
-
-哭着喊着去了水深火热的地狱
-
-而这边的天堂给我带来了灾难性的后果
-
-是的，没办法，我就是在这边爱上了你
-
-2022.3.26.杭州
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：五通庙
-
-当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+责任编辑、发布： Shuizhuyu
 
  
 
