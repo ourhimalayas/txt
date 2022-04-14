@@ -2,20 +2,23 @@
 ---
 
 
-## 樱花FM┃德国强制老人接种新冠疫苗提案被否决
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2343672/)
+## 【秘翻在线】白宫正在考虑派遣政府高级官员访问基辅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2343806/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-7.png)
-在参与投票的683名议员中，378人对该法案投了反对票，296人投了赞成票，这引发了极右翼非洲民主党议员们的欢呼。AfD动议认为，将疫苗接种强加给公民违反了宪法第二条，该条保证了公民对自己身体的控制。
+#### 撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16499148031.png)  图片来源：网络照片
+据Politico4月14日报道，拜登政府官员可能会派遣政府高级官员访问基辅。
 
-肖尔茨补充说，政府将寻求其他方式来提高该国的疫苗接种率，而不是再次推行强制接种。
+近日，英国首相鲍里斯约翰逊、欧盟主席冯德莱恩在俄军从基辅撤退后到访过乌克兰，周三爱沙尼亚、拉脱维亚、立陶宛和波兰首脑在基辅与泽连斯基会晤。
 
-文字版原文：[Germany’s Scholz says he will not make second push for vaccine mandate](https://www.reuters.com/world/europe/german-parliament-rejects-mandatory-vaccines-blow-scholz-2022-04-07/)
+美国刚刚向乌克兰额外提供8亿额外军事援助，在俄国入侵乌克兰后，美国已承诺向乌提供了17亿美元的安全援助。出于安全和安保目的，美国政府尚未公布访问的详细信息，包括何时和最终会派哪位代表赴乌访问。不过国务卿安东尼·布林肯或国防部长劳埃德·奥斯汀更有可能前往。
 
-*编辑：东京樱花团/小老虎
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+这次会面对美乌两国都具有高度的象征意义。美国将重申其对乌克兰抵抗俄国入侵的承诺。
+
+*责编：白夜*
+
+**新闻来源：** [U.S. weighs sending top-level official to meet Zelenskyy in Kyiv – POLITICO](https://www.politico.com/news/2022/04/13/us-visit-zelenskyy-kyiv-00025050)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

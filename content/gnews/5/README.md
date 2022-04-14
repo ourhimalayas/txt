@@ -2,29 +2,38 @@
 ---
 
 
-## 美国人权报告 &#8220;专制主义威胁着人权和民主&#8221;
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2343702/)
+## 俄罗斯国家安全局要求维基百科删除文中涉及普京的信息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343870/)
 
-2022-04-14
+#### 【雅典娜快讯】紧贴时代脉搏
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3XRI_LXU7D_2PJDSRU.png)图片来源：https://www3.nhk.or.jp/news
-美国国务院发布了2021年世界各地人权状况的报告。报告强烈谴责俄罗斯，称 “专制主义威胁着人权和民主，在俄罗斯对乌克兰的攻击中表现得最为明显”。 4月12日，美国国务院发布了2021年世界各地人权状况的报告，报告强烈谴责俄罗斯，称 “专制主义威胁着人权和民主，在俄罗斯对乌克兰的攻击中表现得最为明显”
+#### 翻译/编辑：小红帽
 
-这次人权报告的内容虽然并不包含今年年初俄罗斯入侵乌克兰以来的情况，但报告在开头强烈谴责了俄罗斯，“世界上许多地方继续存在着侵犯人权的行为，威胁人权和民主的专制主义正在侵扰世界，这在俄罗斯对乌克兰的不合理侵略中表现得尤为突出”。报告还指出，新闻和言论自由在俄罗斯受到严重压制，持不同政见者、人权活动家和记者遭到非法拘留。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WIKI.png)图片来源：维基百科
 
-对于中共国，报告也指出，在新疆维吾尔自治区对少数民族正在进行大规模的集团性迫害，犯下种族灭绝和危害人类罪，而香港的争取民主和自由的和平抗议运动的参与者也正在受到压迫。
 
-美国国务卿布林肯在新闻发布会上说：”侵犯人权的国家往往是那些在其他方面也不遵守国际秩序的国家，保护人权不仅仅是一项原则，而对我们的国家安全至关重要”，并强调拜登政府对人权问题的持续关注。
+根据Digit News 4月13日报道，俄罗斯国家安全局向维基百科管理部门发送了两份通知，内容涉及俄罗斯总统弗拉基米尔·普京的文章中存在违法传播的信息。俄罗斯国家安全局吹嘘要删除“不准确的信息”。
 
-信息来源：[米 人権状況報告書“専制主義が人権と民主主義脅かしている”](https://www3.nhk.or.jp/news/html/20220413/k10013579551000.html)
+“昨天，俄罗斯国家安全局又发送了两份通知，均在“普京，弗拉基米尔·弗拉基米罗维奇”为标题的文章下。他们不喜欢与乌克兰（2021 年至今）和入侵乌克兰之后（2022 年）的部分关系。”
 
-编辑：LILY
-发布：肥鯮
+维基百科
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+维基百科澄清说，俄罗斯国家安全局在文章中发现“包含有关俄罗斯联邦武装部队保护顿涅茨克和卢甘斯克人民共和国的特种军事行动的目标和形式的虚假信息材料”。
+
+“此类出版物可能会导致局势的不稳定，以及为俄罗斯联邦领土上大规模违反公共秩序和公共安全的行为创造条件。”
+
+俄罗斯国家安全局
+
+资料来源：[Roskomnadzor requires Wikipedia to remove information from article about Putin](https://digitnews.in/roskomnadzor-requires-wikipedia-to-remove-information-from-article-about-putin/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

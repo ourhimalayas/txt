@@ -2,35 +2,44 @@
 ---
 
 
-## 澳大利亚对俄罗斯国有企业实施更多制裁
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2343444/)
+## 台媒披露：美参议员梅嫩德斯（Bob Menendez）和格雷厄姆（Lindsey Graham）今率团抵台将与蔡英文会面
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2343495/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+来自新加坡早报 /
+2022年4月14日 7:23 AM 报导
+采集：玫瑰新闻组
 
-#### 翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/202108061653-main.cropped_1628243625.jpg)图片来源：VOI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
 
-根据CNA 4月14日报道，澳大利亚周四对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
 
-澳大利亚外交部长玛丽斯·佩恩在一份声明中表示，制裁还将扩大到电子公司Ruselectronics（负责生产约80%的俄罗斯电子元件）以及俄罗斯铁路公司。
 
-俄罗斯表示在乌克兰发起了“特别军事行动”，并指责乌克兰造成了平民死亡以及基辅诋毁俄罗斯的武装部队。
 
-澳大利亚现在已经制裁了大约600名个人和实体，包括俄罗斯的大部分银行业和对该国主权债务负责的所有组织。
 
-澳大利亚还向乌克兰提供国防设备和人道主义物资，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
 
-资料来源：[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+![本月第2团美议员团访台称抵「台湾共和国」 会见蔡英文| 要闻| 焦点| 世界新闻网](https://assets.gnews.org/wp-content/uploads/2022/04/image-216.jpeg)
 
-发布：*wenly*
+以下原文内容：
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+台湾媒体披露，美国参议院议员梅嫩德斯（Bob Menendez）和格雷厄姆（Lindsey Graham）今晚（14日）将率团抵达台湾，并将与台湾总统蔡英文会面，隔天傍晚启程返美。
+
+据台湾民视新闻网报道，美国方面权威人士透露，访团将在今晚抵达台北松山机场。台湾外交部回应时说，暂无评论，但称台湾政府一向欢迎美国国会议员访台。
+
+也是参议院外交委员会主席梅嫩德斯，曾与另一名参议员卢比奥（Marco Rubio）提出法案，要求美国针对“驻美国台北经济文化代表处”更名为“台湾代表处”一事展开协商。
+
+格雷厄姆早前在美国首都华盛顿举行的一个活动上，曾与当时还是副总统当选人的赖清德同桌。赖清德当时是以个人身分访问华府。
+
+如果上述访台消息属实，这将是自美国众议员高野（Mark Takano）去年11月率团访台后，再次有美国国会议员访问台湾。总统拜登指派由前高级国安官员组成的另一个代表团，今年3月也访台。
+
+美国众议院早前也传出议长佩洛西可能访台的消息。在佩洛西确诊感染冠病后，佩洛西的发言人公布她的亚洲之行将推迟，但随着佩洛西痊愈，外界再次关注她将是否访台。
+
+新闻链接：
+[台媒：美参议员今率团抵台将与蔡英文会面](https://www.zaobao.com.sg/realtime/china/story20220414-1262590)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
+
 
  
 

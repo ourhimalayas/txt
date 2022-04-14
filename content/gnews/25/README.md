@@ -2,35 +2,50 @@
 ---
 
 
-## 福奇建议个人自主决定COVID的“个人风险”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2343459/)
+## 辉瑞Moderna和Facebook一定破产马克龙必将上绞刑架
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2343510/)
 
-据《福克斯新闻》作者：Peter Aitken，2022年4月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1679-e1649910150232.png)2021年12月1日，安东尼-福奇博士在白宫举行的每日简报会上发言。图片来源：Mandel Ngan/AFP 通过 Getty Images
-安东尼-福齐博士建议，随着人们学会与病毒共处，个人将需要自己决定他们个人的事件和COVID-19暴露的风险水平。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8806.61%EF%BC%89%E8%BE%89%E7%91%9EModerna%E5%92%8CFacebook%E4%B8%80%E5%AE%9A%E7%A0%B4%E4%BA%A7%E9%A9%AC%E5%85%8B%E9%BE%99%E5%BF%85%E5%B0%86%E4%B8%8A%E7%BB%9E%E5%88%91%E6%9E%B6%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-“将要发生的是，我们将看到每个人将不得不计算他们想要参加室内晚餐的风险程度，甚至在绿色区域的范围内发挥作用。”福奇周日在参加美国广播公司的“本周”节目时说，“这将是一个人对自己要承担的个人风险的决定。”
+**郭文贵先生：**然后再看全世界的疫苗，疫苗世界成了什么了？兄弟姐妹们，全人类就咱们爆料革命、新中国联邦，咱是无苗有币族。我说过疫苗灾难和疫苗次生灾难会超过一切，你看看澳大利亚、你看看法国、你看看加拿大，孩子、老人、妇孺全上街。这种人类上的这种辉煌的，包括美国现在你看辉瑞，七哥给你说什么？做空辉瑞、Moderna医药公司，医药股降了多少？
 
-他补充说：“我们正处于这样一个阶段，在许多方面……我们将不得不忍受社区中某种程度的病毒。”
+你见过有一个人、一个群体像我们那样那么牛叉的吗？如果你们听七哥的，你们得赚多少钱？而且我告诉你，辉瑞、Moderna和Facebook都会破产，还有什么Twitter一定会破产。只要人类上有一个人在，他都会破产，我告诉你，他是没有任何争议的。
 
-疾病预防控制中心已将该国大部分地区标记为“绿色区域”，这表明对感染的担忧程度“较低”。疾病预防控制中心建议保持最新的疫苗，如果一个人有症状，就去做检查。
+就像我说过共产党一定会被消灭一样，任何可能性都没有存在的可能性，是吧？你想想共产党它怎么活？它怎么闭幕？“冬眠会”它这成啥了？你想想现在这个卡车司机，你想想辉瑞、你想想Moderna、你想想国内的卖6亿假疫苗，是吧？6亿假疫苗赚了很多钱，但是这钱赚得好。
 
-诸如戴口罩或针对高危人群的额外预防措施，在一个区域被指定为“红色”或“高”风险之前不会启动，但福奇淡化了对感染率大幅上升的担忧以及向该“红色区域”移动的可能性。
+还有一个，前天下午咱日本一个朋友跟我说，她说：.郭先生，我没敢跟你说，日本人很老实。我先生和我作为政府官员都必须打，我们都没打这疫苗，医生就给喷到地上了。我们现在就是回家喝点儿小酒，就感谢Miles，感谢你！”她说：.我们两个最不诚实的就是这次没打疫苗。” 那么同时她非常相信日本的那些卖疫苗的一定也会被追究，走上绞刑架。
 
-福奇赞扬了美国人的疫苗接种和预防水平，但他提醒说，人们需要保持对随着时间推移出现的免疫力减弱的认识。
+法国我们的战友在医疗界的，他说：.郭先生，我可以看到马克龙走上绞刑架的感觉，我可以预想到把他送上绞刑架。”他说：“我们家都没打疫苗。” 也是政府官员，而且妻子家人都是搞军火的，都是搞军火的。
 
-文章来源: [https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk](https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk)
+所以兄弟姐妹们，你看到了人类现在是个什么觉醒？这是多大的事儿！人类上一半的人被打了疫苗，他可能处在一个生死不确定、得癌症、随时死亡的不确定状态下，你觉得他能放过这些媒体，所谓的严肃媒体、黑暗的共产党势力？他能和共产党拉倒吗？疫苗来自你那，开始研究你那，病毒来自你那，我不知道随时可以死，或者家人已经死了，他能跟共产党拉倒吗？病毒不溯源吗？疫苗灾难难道人家能结束吗？
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
+编辑整理：星塵Scheddi；
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+字幕文件制作：小满；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
