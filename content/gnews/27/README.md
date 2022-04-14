@@ -2,26 +2,38 @@
 ---
 
 
-## 樱花FM┃不要低估习近平与普京的关系（下）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2343695/)
+## 永不放弃为新闻自由而战，比利时首相悼念遇害记者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343789/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-2.png)
-这部电影很特别。它反映了对普京时代俄罗斯的一些痴迷，从庆祝战时胜利到对西方渗透的偏执。但它对集体化和计划经济的辩护甚至会让普京的拥护者们感到厌恶：他们只相信权贵资本主义，而不是马克思主义。克里姆林宫的宣传机器也没有花费精力推崇斯大林的个人崇拜，或者坚持认为很久以前的英雄确实存在。这些选择更多的是中国而不是俄罗斯。这部电影一次又一次地捍卫斯大林时代的各个方面，这些方面让人想起共产主义中国的创始人毛泽东。毛泽东引发了数千万人饿死的农村大饥荒和导致数百万人死亡的政治清洗。他的计划经济使国家破产。他命令群众学习模范公社和模范英雄的虚假或虚构的成就，往往造成灾难性的后果。与此同时，这部电影赞扬了普京的执政记录，这些记录也适用于习近平。中国领导人重写了历史教科书，并通过了禁止不尊重烈士和英雄的法律。在习近平的领导下，言论自由等价值观被称为西方颠覆的工具，其目的是通过“和平演变”推翻中共。
+作者：雅典娜农场 – 文泓
 
-**支持俄罗斯的战争国内最大的政治**
 
-最重要的是，这部电影通过暗示赞扬高度个性化的统治来帮助习近平，在电影的某一场景，年轻的俄罗斯人亲吻了普京的形象。今年晚些时候，习近平预计将寻求第三次担任党总书记，颠覆在毛泽东长达数十年的可怕统治之后制定的规则。关于纪录片放映的报道几乎都是以惊人的相似方式呈现：官员们强调“正确”历史观的重要性，然后得出结论，最重要的是对中国共产党和习近平的忠诚。
 
-还有一个警告外国政府想知道为什么习近平不会承认普京的罪行的原因，就是中国对俄罗斯的支持的重要原因是地缘政治，普京先生被视为与美国斗争中不可替代的战友。但这也涉及到国内的政治考量，中国理论家认为，将习近平的民族主义品牌与普京的民族主义品牌相提并论是有益的。只要这种理论存在，要求习近平与俄罗斯断绝关系，站在西方一边，就像要求他与自己决裂一样，绝无可能。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-（全文完）
 
-文字版原文：[**Don’t underestimate Xi Jinping’s bond with Vladimir Putin**](https://www.economist.com/china/2022/04/09/dont-underestimate-xi-jinpings-bond-with-vladimir-putin)
 
-*编辑：东京樱花团/小老虎
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-116.jpg)
+该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
+
+自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
+
+参考链接：
+[Premier De Croo eert vermoorde VTM-journalist Danny Huwé in Roemenië | Buitenland | hln.be](https://myprivacy.dpgmedia.be/consent?siteKey=Uqxf9TXhjmaG4pbQ&amp;callbackUrl=https%3A%2F%2Fwww.hln.be%2Fprivacy-gate%2Faccept-tcf2%3FredirectUri%3D%252Fbuitenland%252Fpremier-de-croo-eert-vermoorde-vtm-journalist-danny-huwe-in-roemenie~a5bf9366%252F)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+总编：zhong
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

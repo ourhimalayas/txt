@@ -2,44 +2,29 @@
 ---
 
 
-## 推特一股东起诉马斯克：太晚披露其推特股份
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2343611/)
+## 美财长：美国及盟友不会对破坏制裁的行动“无动于衷”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2343641/)
 
-翻译：噜噜咪
+![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。
+据美国之音4月13日报道，美国财政部长耶伦4月13日指出，对俄罗斯入侵乌克兰的行为不进行谴责，并试图从中捞取好处的国家是缺乏远见的。美国及其合作伙伴针对莫斯科和俄罗斯总统普京实施了全面制裁，任何破坏制裁的动作，美国和西方盟友都“不会无动于衷”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+俄乌战争改变了世界经济前景，拜登当局承诺一定要让俄罗斯对自己的行为承担责任。耶伦表示，俄罗斯入侵乌克兰促使许多国家和企业切断了与莫斯科的关系。但是还有一些国家一直做“骑墙派”。耶伦没有点具体国家的名字，但最突出的无疑就是拒绝谴责普京、公开反对西方的制裁，而且还继续与俄罗斯保持经贸关系的中共国，还有印度等几个国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-274.jpg)特斯拉首席执行官埃隆·马斯克出席位于德国格伦海德的特斯拉柏林勃兰登堡工厂的开幕仪式
+中共国海关数据显示，中共国与俄罗斯的双边贸易上个月比去年同期增长了12%。全世界都在谴责俄罗斯入侵乌克兰和屠杀乌克兰平民的行为，美国和西方国家一致支持乌克兰，只有邪恶中共支持俄罗斯，把14亿被洗脑的中国人民当作肉票同俄罗斯站在一起。俄乌之战拉开了中共与西方公开对阵的帷幕，正与邪的较量从俄乌之战开始。
 
-一位推特的股东起诉了埃隆·马斯克，声称由于没有尽快披露他在这家社交媒体公司的股份，这位特斯拉CEO让推特的股价下跌。
+新闻参考链接：[美财长耶伦：美国及其盟友不会对破坏制裁的行动“无动于衷”](https://www.voachinese.com/a/yellen-warns-u-s-allies-will-not-be-indifferent-to-those-who-undermine-russia-sanctions-20220413/6527827.html)
 
-据彭博社首先报道，该诉讼是由马克·贝恩·拉塞拉于周二在曼哈顿联邦法院提起。诉讼称马斯克被要求在3月24日前披露他在推特的股份，但他直到4月4日才披露。当马斯克披露他在推特的股份时，该公司的股价暴涨27%。
-
-据拉塞拉称，在3月14日其持股比例超过5%的门槛后，马斯克有10天时间通知证券交易委员会。诉讼认为，在3月24日至4月4日期间卖出推特股票的投资者失去了收益，如果马斯克早点披露他的股份，他们本可以实现收益。拉塞拉说，通过推迟披露，马斯克能够继续以较低的价格购买推特的股票。
-
-拉塞拉旨在代表在3月24日至4月1日期间，处置推特股票的一类投资者。
-
-马斯克和推特没有立即回复评论请求。
-
-诉讼是自马斯克公开其在推特的9.1%股份以来所发生的戏剧性事件的最新进展，他在该平台上拥有8000多万粉丝。
-
-这项投资使马斯克成为该公司最大的个人股东，他说他期待着作为该公司董事会成员进行重大变革。但是，推特首席执行官帕拉格·阿格拉瓦尔周日表示，马斯克终究不会加入董事会，这是一个重大的逆转。
-
-新闻来源：[Elon Musk was sued by a Twitter shareholder who alleged he disclosed his stake in the social-media company too late](https://www.businessinsider.com/elon-musk-sued-twitter-stake-disclosure-2022-4)
+编辑：胖丁
 
 * * *
 
-审核：文乐
-校对：信心满满
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 
