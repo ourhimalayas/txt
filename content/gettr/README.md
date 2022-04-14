@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 11:56 AM (UTC)`
+
+4月14日 七哥乱聊直播
+![img](https://media.gettr.com/group9/origin/2022/04/14/11/2d9bc56d-f143-5ea4-2ffb-ab9661cfd74d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 11:53 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月13日第40天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11429人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 40 - Date: April 13, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11429 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 2022.04.13 晚  新中国联邦 | 新闻访谈   中共野蛮防疫  致民怨沸腾 ; 欧盟代表团成员 参观新中国联邦救援帐篷
 ![img](https://media.gettr.com/group39/origin/2022/04/14/00/09fc6290-9ad2-d2ab-c52e-7dedc474bb15/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/14/2022 12:29 AM (UTC)`
-
-2022.04.13 晚  新中国联邦 | 新闻   美国将再为乌克兰提供7.5亿美元军事援助; 俄乌大战在即, 中共将在5月之前攻台
-![img](https://media.gettr.com/group43/origin/2022/04/14/00/df297324-1997-b093-e851-84af0a97c32b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

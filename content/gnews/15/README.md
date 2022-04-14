@@ -2,20 +2,24 @@
 ---
 
 
-## 参议员霍利敦促美国尽快向台湾运送武器
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345432/)
+## 微软称受到中共国的网路攻击
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345483/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-18.57.28.png)
-当地时间4月13日下午，美国共和党参议员霍利表示，美国必须尽快向台湾运送武器避免为时已晚。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/acastro_170621_1777_0007_v2_0001_2.jpg)
+当地时间4月12日，美国微软公司向用户发出警报，称中共国家黑客团体Hafnium正在进行恶意软件活动和网路威胁。
 
-据悉此前拜登政府批准了一项价值9500美元的台湾武器计划，这是自俄乌战争以来的第二笔类似协议。随着中共国对台湾的剑拔弩张，战争尽在咫尺。上周，霍利提出了《台湾武器出口法》，该法案正在通过加快国会批准和简化行政程序来加快向台湾运送武器。霍利在一份新闻稿中说到，俄乌战争的教训就是乌克兰已经被入侵后造成了损失才去援助，美国不能在印太地区犯同样的错误，所以给台湾快速运送武器，给台湾争取一些时间建立防御并阻止中共的入侵。
+据微软消息，Hafnium利用未修补的零日漏洞作为初始载体，以及tarrask这种防御规避恶意软件来向用户隐瞒设备受损状态，Hafnium创建隐藏的任务计划，即使设备多次重启以后也能保留对设备的继续入侵，Windows的任务调度程序帮助其清理痕迹，保证tarrask的恶意活动在磁盘中不会保留。最新的报告还证实Hafnium正在利用Windows子系统内的新漏洞。
 
-台湾外交部对霍利议员的《台湾武器出口法》表达感谢，说这是对”stand with Taiwan“的坚定承诺，以及对2300万台湾人的信任支持。
+据悉Hafnium是中共国的黑客组织，曾经在2021年导致微软Exchange崩溃，从此次崩溃中收集到的数据被认为是中共政府进行人工智能研究的大数据库。
 
 reference：
 
-[https://news.tbs.co.jp/newseye/tbs\_newseye6012823.htm?1649906920242](https://news.tbs.co.jp/newseye/tbs_newseye6012823.htm?1649906920242)
+
+
+
+> [Tarrask malware uses scheduled tasks for defense evasion](https://www.microsoft.com/security/blog/2022/04/12/tarrask-malware-uses-scheduled-tasks-for-defense-evasion/)
+
 
 撰稿、发布：骄子
 
@@ -30,6 +34,10 @@ reference：
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

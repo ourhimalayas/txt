@@ -2,13 +2,16 @@
 ---
 
 
-## 瑞辉额外雇2400名全职员工处理中共病毒疫苗伤害问题
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2345668/)
+## 20220413郭文贵大直播 ：比利时总理和欧盟官方组织的相继到访开启了新中国联邦的外交默认
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2345743/)
 
-04/12/2022 辉瑞依据德州法官要求而被迫公布的文件显示，早在2021年2月，瑞辉就通知食药局他们额外雇佣了2400名全职员工来处理中共病毒疫苗伤害问题
+作者：东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

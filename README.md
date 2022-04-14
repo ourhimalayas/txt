@@ -15,80 +15,80 @@
 
 ---
 
-### [拜登总统现在有一个“黄金机会”来对抗邪恶的中国共产党](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [瑞辉额外雇2400名全职员工处理中共病毒疫苗伤害问题](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [不要担心普京，而要担心欧洲](/content/gnews/3/README.md)
+### [俄罗斯否认军舰沉没，仍然适航](/content/gnews/1/README.md)
  ` Shuizhuyu`
 
-### [日媒把习太阳的所为所言拿来当笑话报道](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [20220413郭文贵大直播 ：比利时总理和欧盟官方组织的相继到访开启了新中国联邦的外交默认](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [速报┃俄军在日本海发射导弹 报复日本](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [20220413郭文贵大直播 ：新中国联邦旭日初升，中共独裁者日薄西山PPT](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [与比利时总理交谈的人道组织成员称新中国联邦的事业令人惊叹](/content/gnews/6/README.md)
+### [20220413郭文贵大直播 ：中共国封锁运动持续升温PPT](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [拜登总统现在有一个“黄金机会”来对抗邪恶的中国共产党](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [在购买了廉价的俄石油后，印度现在将目光投向了煤炭](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022年4月14日，全球中共病毒疫情情况汇总](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [乔·拜登认为俄罗斯在乌克兰的战争是种族灭绝](/content/gnews/9/README.md)
+### [瑞辉额外雇2400名全职员工处理中共病毒疫苗伤害问题](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [政策随性，折腾百姓](/content/gnews/10/README.md)
+### [不要担心普京，而要担心欧洲](/content/gnews/7/README.md)
+ ` Shuizhuyu`
+
+### [拜登称8亿美元的乌克兰新方案将包括直升机](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日媒把习太阳的所为所言拿来当笑话报道](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [速报┃俄军在日本海发射导弹 报复日本](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [与比利时总理交谈的人道组织成员称新中国联邦的事业令人惊叹](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [在购买了廉价的俄石油后，印度现在将目光投向了煤炭](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022年4月14日，全球中共病毒疫情情况汇总](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [政策随性，折腾百姓](/content/gnews/14/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [微软称受到中共国的网路攻击](/content/gnews/11/README.md)
+### [微软称受到中共国的网路攻击](/content/gnews/15/README.md)
  ` 银河歌舞厅`
 
-### [2022年4月13日郭先生盖特 — 视频2「3分04秒」](/content/gnews/12/README.md)
+### [2022年4月13日郭先生盖特 — 视频2「3分04秒」](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [要港人习惯有限度的自由 做好炮灰](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [两周后布查的尸体数量继续上升：“他们射杀了所有人”](/content/gnews/14/README.md)
+### [两周后布查的尸体数量继续上升：“他们射杀了所有人”](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [参议员霍利敦促美国尽快向台湾运送武器](/content/gnews/15/README.md)
+### [参议员霍利敦促美国尽快向台湾运送武器](/content/gnews/18/README.md)
  ` 银河歌舞厅`
 
-### [网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛](/content/gnews/16/README.md)
+### [网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛](/content/gnews/19/README.md)
  ` xiaobaige`
 
-### [民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉](/content/gnews/17/README.md)
+### [民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业](/content/gnews/18/README.md)
+### [民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜辉瑞疫苗应该对儿童肝炎爆发负责](/content/gnews/19/README.md)
+### [有声｜辉瑞疫苗应该对儿童肝炎爆发负责](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拥有2500万人口的上海仍然处于封锁状态 压力越来越大](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID-19疫苗副作用集萃(2022.4.14)–疫苗混打对身体造成强大摧残](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [‘抗原、抗体、核酸’ 检测-你知道多少？](/content/gnews/22/README.md)
+### [‘抗原、抗体、核酸’ 检测-你知道多少？](/content/gnews/23/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [日本协调派驻海牙军事法庭三名检察官](/content/gnews/23/README.md)
+### [日本协调派驻海牙军事法庭三名检察官](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/24/README.md)
+### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/25/README.md)
  ` 關注組`
-
-### [美国表示对乌克兰的战事援助并不分散美国对抗中共](/content/gnews/25/README.md)
- ` 银河歌舞厅`
 
 ### [乌克兰救援前线报道4.14.2022：前线救援行动推动新中国联邦的国际影响力](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`

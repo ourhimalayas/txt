@@ -2,45 +2,58 @@
 ---
 
 
-## 民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345404/)
+## 两周后布查的尸体数量继续上升：“他们射杀了所有人”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2345443/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+编译：七叶之芒
 
-整理/编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-3.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
 
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-帖子原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-290.jpg)随着更多尸体在基辅郊区被找到，乌克兰布卡的平民死亡人数继续上升。上图为2022年4月13日，工人们从布卡发现的一个万人坑中搬运尸体袋。Sergei Supinsky/AFP/Getty
 
-到卖房时候才发现房价真的凉了。
+随着地方当局发现据称被俄罗斯军队屠杀的人的遗体，乌克兰布查的平民死亡人数继续上升。
 
-房子挂出去几天了，依然没有一个看房的。中介给出理由我家租客在看房不方便。另外据说二手房挂盘的太多成交的太少。
+周二，布查市长阿纳托利-费多鲁克（Anatoliy Fedoruk）声称，在这个拥有37000人的基辅郊区已经找到了403具尸体。据《基辅独立报》报道，第二天，当局从一个万人坑中又找到了至少17具尸体。
 
-刚刚翻出两年前的短信，当时很傲娇的没有卖，现在悔恨不已。两年过去了，多交了快三十万的房，房价落到尘埃里了。现在又要卖了才有名额买，好难过。
+据报道，总共有72具尸体从坟墓中被找到，还有几十具尸体被认为仍在地下。在该镇周围还发现了许多被子弹击中的尸体。乌克兰政府和其他国家指责俄罗斯故意以平民为目标，犯下了战争罪。 “他们向所有人开枪”。布卡的首席地区检察官鲁斯兰-克拉夫琴科（Ruslan Kravchenko）告诉《基辅独立报》，据说当时他穿着一件背后写着“战争罪检察官”的夹克。
 
-#深圳楼市
+“这些人没有武器”，克拉夫琴科补充说。“我们有足够的证据将其定性为战争罪”。
 
-发布于04.08
+乌克兰国家警察的调查员安德里-诺维科夫（Andriy Novikov）告诉该媒体，救援队发现的尸体包括“一位母亲和两个孩子”的烧焦的遗体。诺维科夫说，这一家人在尸体被烧毁之前被俄罗斯军队射杀。
 
-精选评论
+乌克兰军队本月早些时候重新控制了布查。不久之后，俄罗斯在该镇的所谓罪行引起了国际社会的谴责，当时出现了躺在街道上的平民尸体的图片，其中一些人显然是在近距离被枪杀，双手被绑在背后。
 
-比较知名的博主  回复：尽早套现离场吧，后面会更夸张。
+据路透社报道，周二，俄罗斯总统弗拉基米尔-普京在与白俄罗斯总统亚历山大-卢卡申科举行的新闻发布会上声称，布查的尸体图像是“假的”。
 
-HHH  回复：你们最起码吃到了房价上涨的红利，现在接盘的开始没有这福利了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1734.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1735.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1736.png)图片来源：小红书
-参考链接:[到卖房的时候发现放假真的凉了](https://www.xiaohongshu.com/discovery/item/62503ea900000000210350e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904531)
+据报道，俄罗斯国营媒体也一直在宣传阴谋论，声称大屠杀是作为“假旗”攻击的一部分而伪造的，目的是将俄罗斯军队描绘成战争罪犯。
 
-*发布：tianzhihuan*
+据The Intercept报道，俄罗斯国家电视台最近播放了散落在布查街道上的尸体图片，上面印有“假”字。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+俄罗斯驻美国大使阿纳托利-安东诺夫此前在对《新闻周刊》发表的未经独立核实的评论中声称，在俄罗斯军队刚刚离开后，“乌克兰武装部队炮击了布查市”。
+
+俄罗斯以外的人很少相信假旗阴谋的说法，而乌克兰总统沃洛基米尔-泽伦斯基谴责这些杀戮是俄罗斯军队的“集中邪恶”。
+
+除了所谓的处决之外，俄罗斯军队还被指控在布查发生暴行，包括酷刑和强奸。乌克兰国防部声称，至少有9名妇女在俄罗斯占领期间被强奸后怀孕。
+
+上周，美国总统乔-拜登(Joe Biden)将对布卡的攻击描述为“令人发指”，是俄罗斯犯下的“战争罪行”。周二，拜登指责俄罗斯进行“种族灭绝”，认为“普京只是试图消灭甚至能够成为乌克兰人的想法，这一点越来越清楚。”
+
+新闻来源：[Bucha Body Count Continues Rising Two Weeks Later: ‘They Shot Everyone’](https://www.newsweek.com/bucha-body-count-continues-rising-two-weeks-later-they-shot-everyone-1697806)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-2.jpeg)
 
  
 
