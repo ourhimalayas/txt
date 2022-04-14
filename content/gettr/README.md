@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 12:50 PM (UTC)`
+
+4月14日 七哥乱聊直播
+![img](https://media.gettr.com/group9/origin/2022/04/14/11/2d9bc56d-f143-5ea4-2ffb-ab9661cfd74d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 12:17 PM (UTC)`
 
 4月14日 七哥乱聊直播
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 4/10/2022 Miles Guo: Food has become the most powerful weapon for the CCP to rule the Chinese people. Xi's pushing mandatory nucleic acid testing kills four birds with one stone: 1) tackle the social collapse brought by the economic and real estate crisis; 2) conduct a "stress test" on the Chinese people; 3) create a "wartime state of emergency" to help Xi stay in power after the 20th Party Congress and invade Taiwan; and 4) let the world experience how Xi suffered when he had nothing to eat. Meanwhile, Xi also wants to take down the US dollar and become a strong man in troubled times.<br/><br/>4/10/2022 文贵直播：粮食成了中共统治老百姓最有力的武器；习搞核酸检测一箭四雕：1) 解决经济和房地产危机带来的社会崩塌；2) 对老百姓进行“压力测试”；3) 制造“战时状态”帮助习连任20大和打台湾； 4)  让世人尝尝习当年没饭吃的感觉；同时，习还想打垮美元并在乱世当强人
 ![img](https://media.gettr.com/group42/getter/2022/04/14/01/960a35d9-a6a4-e2bb-46c6-c15160c24313/out.jpg)
-
----
-
-`@miles 4/14/2022 1:16 AM (UTC)`
-
-4/13/2022 Miles Guo Live: Following yesterday’s visit of the Belgium Prime Minister, two officials of the European Union visited the New Federal State of China’s tent at the front line of the Ukraine rescue operation. They expressed their intention of collaborating with the New Federal State of China in the rescue operations of Ukrainian refugees. There will be a growing number of countries that stand with us to take down the CCP.<br/><br/>4/13/2022 文贵直播：继昨天比利时首相参观新中国联邦在乌克兰前线的救援帐篷后，两位欧联盟官员也来到新中国联邦帐篷，并表示愿意与新中国联邦合作帮助乌克兰难民；越来越多的国家和政府机构会跟我们站在一起灭共！<br/>
-![img](https://media.gettr.com/group43/getter/2022/04/14/01/8284bb0a-ffaf-3432-b0dd-3ab06116c161/out.jpg)
 
 ---
 
