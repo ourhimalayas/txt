@@ -2,48 +2,53 @@
 ---
 
 
-## 俄罗斯央行外币构成人民币份额增长最快
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2342133/)
+## 向李强喊话者被带走时高喊:一定要站起来,不能跪下去
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2342208/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-14-上午6.08.39.png)图片来源：互联网
-俄罗斯央行年度报告显示其黄金资产下降，外币份额构成看，明显去美元而人民币份额增长最快达4.3%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/封面-4.png)
+据[We’re new Chinese who is taking down the evil CCP](https://gettr.com/user/wenlongjack)@wenlongjack4月 11日发布的盖特
 
-据塔斯社（TASS）周一（4月11日）报道尽管西方金融制裁俄罗斯，但俄罗斯拥有充足的黄金和人民币储备。【1】
+1） 上海市委书记李强被上海老阿姨骂，共产党都是假的，结果领导一膨胀以为多受爱戴 结果就是皇帝的新衣 ，上海老阿姨厉害。
 
-截至2021年底，俄罗斯央行的外币和黄金资产为6129亿美元，其中外汇资产 4814 亿美元，黄金 1315 亿美元。考察俄罗斯外汇资产构成，美元资产份额从 21.2% 下降到 10.9%，人民币的份额从 12.8% 上升到17.1%，欧元也从 29.2% 增加到 33.9%，英镑6.2%基本保持不变，其他货币储备从 7.2% 上升到 10.4%。
+[https://gettr.com/post/p14oo3p602f](https://gettr.com/post/p14oo3p602f)
 
-按照中共人民币在俄罗斯外币占17.1%份额计算，俄罗斯持有人民币储备达823.19亿美元，折合人民币5244亿元（美元/人民币汇率6.37）。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/001-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/002-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/003-1.jpg)
 
-从外币和黄金资产的地域分布看，德国的份额是一年来增幅最大从 10.8% 上升到 15.7%，中共国的份额也上升了——从 14.2% 上升到了 16.8%，日本的份额从 12.7% 下降到9.3%。
 
-央行行长埃尔维拉·纳比乌利娜 (Elvira Nabiullina) 说：”俄罗斯银行自2014年以来一直奉行建立国际储备并使之多样化的政策，以便基本上有两个安全垫：在金融风险发生时，金融市场对美元和欧元的需求很高；在地缘政治危机发生时，俄罗斯对大多数储备货币的使用可能受到限制。而现在，在西方国家冻结其货币储备后，俄罗斯继续拥有足够的黄金和人民币储备。”【1】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/004.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/005.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/006.jpg)
 
-澳大利亚4月8日将俄罗斯中央银行行长纳比乌利娜（Nabiullina）列入制裁名单，而这是美国、欧盟、英国和加拿大等盟友制裁名单中没有的。
 
-现年 58 岁的纳比乌利娜 (Nabiullina) 是一名经济学家，自 2013 年 6 月以来一直担任央行行长。2017 年，她的任期又延长了五年。在上任之前，纳比乌利纳曾担任普京一年的顾问，此前曾领导经济发展部。【2】
+不管李强拐弯被骂后这个小区的生活物资是不是得到了解决，但是至少出了一口恶气，但是，但是，后续来了，根据网传一段视频，共匪白卫兵把向李强喊话的另一位市民带走了——
 
-普京于3月18日已提议提名央行行长埃尔维拉·纳比乌利娜(Elvira Nabiullina)第三任期。第二五年任期于今年6月结束。
+——记住！一个倒下了，千千万万站起来！你们一定要站起来，不能跪下去！
 
-而几天后，3月23日彭博社报道纳比乌利娜 (Nabiullina) 试图辞职，但被普京拒绝，告知要留下来。
+这位只是向李强喊话，说明小区居民缺吃少穿、没医没药的市民以这种悲壮的方式被解决，不知道他接下来会遭遇什么样的折磨，但是这一幕却是这个至暗时代的最真实写照。
 
-一位认识纳比乌利娜大约15年的同行古里耶夫，他说：“她（比乌利娜）没有报名在战时工作，她不是那种可以应对金融市场关闭和灾难性制裁的人。”【3】
+撰稿：喜马拉雅的肉夹馍；
 
-显然普京需要这位”值得信任“的行长来维其集权持统治的信心，尽管她并不希望普京发动侵略乌克兰战争下继续工作，战争的代价让她难以承受。
+审核：喜马拉雅的馍夹肉；
 
-截至4月13日，美元对卢布报价79.8062，3月初最高升破140。
+校对：Maarago；
 
-参考链接：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-【1】[纳比乌利纳表示，俄罗斯拥有充足的黄金和人民币储备](https://tass.ru/ekonomika/14344523?utm_source=google.com&amp;utm_medium=organic&amp;utm_campaign=google.com&amp;utm_referrer=google.com)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-【2】[普京提议将央行行长任期延长五年](https://www.rferl.org/a/russia-nabiullina-bank-extended-sanctions/31759311.html)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-【3】[俄罗斯央行行长想离开乌克兰，普京说不](https://www.bloomberg.com/news/articles/2022-03-23/russia-central-banker-wanted-out-over-ukraine-but-putin-said-no)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-* * *
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*编辑&发布：长岛开心*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

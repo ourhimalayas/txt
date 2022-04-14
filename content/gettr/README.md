@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 1:27 AM (UTC)`
+
+4月13号：尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏明天上午我会抽时间直播半小时左右，一切都已经开始！
+![img](https://media.gettr.com/group37/getter/2022/04/14/01/0a52bfd9-8d18-287b-74db-fafab368ef56/out.jpg)
+
+---
+
 `@miles 4/14/2022 1:22 AM (UTC)`
 
 4/10/2022 Miles Guo: The biggest uncertainties of the year 2022 are the evil countries such as North Korea, Iran, and Syria. The Kim family will not be able to get through the food crisis. With the new technology capable of tearing down North Korea’s firewall, the Kim family will be taken out once the people who are starving hear the voices from the outside world. Finally, both the CCP and Putin’s regime in Russia will be taken down.<br/><br/>4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭！<br/>
@@ -133,13 +140,6 @@
 
 4/10/2022 Miles Guo: The time has come for the Chinese Communist Party to begin to “purify” the Chinese. Chinese fellows should be prepared for the worst. The CCP will never hesitate to sacrifice Chinese lives and has prepared in advance for sanctions from Europe and the U.S. The bloody war in Ukraine will escalate into an all-out war between Russia, China and Europe.<br/><br/>4/10/2022 文贵直播: 共产党开始净化中国人的时代已降临！中国同胞要做好最坏的打算。中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争。<br/>
 ![img](https://media.gettr.com/group6/getter/2022/04/13/16/2cb07e67-81d4-1c03-0266-05b1a83bb184/out.jpg)
-
----
-
-`@miles 4/13/2022 3:56 PM (UTC)`
-
-【Ukraine Rescue】04/03/2022 <br/>Japanese freelance media reporter Hiroki, who had been in the NFSC Medyka huge tent and was interviewed by NFSC volunteer Nicole, reports in his YouTube Channel: The NFSC provides a huge and well-equipped tent as a resting place for the refugees and the media personalities and volunteers.  The NFSC rescue volunteers provide freshly ground coffee, free Wi-Fi internet access in the tent.  The NFSC opposes the Chinese Communist Party.<br/><br/>【乌克兰救援】04/03/2022 曾到过Medyca新中国联邦大帐篷，被新中国联邦志愿者妮可采访过的日本自由人Hiroki在他的Youtube频道报道： 新中国联邦提供了一个巨大且设备齐全的帐篷，作为难民、媒体人士和志愿者的休息场所。 新中国联邦救援志愿者在帐篷内提供现磨咖啡、免费无线网络连接。新中国联邦反对中国共产党。<br/>
-![img](https://media.gettr.com/group3/getter/2022/04/13/15/a3f413d0-b3c0-11db-7606-0a37802a709a/out.jpg)
 
 ---
 

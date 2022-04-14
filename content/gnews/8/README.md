@@ -2,31 +2,34 @@
 ---
 
 
-## 有声|中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2342430/)
+## 美财长警告各国若破坏西方对俄制裁将面临严重后果
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2342475/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共國上海的武漢肺炎（新型冠狀病毒病，COVID-19）疫情升溫，美國國務院11日表示，考慮到中國「任意執法」的案例，命令美國駐上海總領事館的部分員工撤離，並建議公民重新考慮前往中國。
-美國國務院8日批准，美國駐上海總領館非緊急人員與家屬可自願撤離中國。而國務院11日再度發布通告，命令非緊急人員與家屬強制撤離，目前還不知道強制撤離的原因。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-國務院11日聲明指出，由於中國的任意執法和與武漢肺炎相關的限制，建議重新考慮前往中國的旅行，此外因為疫情相關的限制，其中包括父母與孩子分離的風險，美國公民不應前往香港、吉林和上海。國務院還下令，強制要求非緊急美國政府僱員和所有家庭成員離開上海總領事館領區。
-上海目前面臨自武漢肺炎2019年12月首度在湖北省武漢市現蹤以來，最嚴重的一波疫情。上海政府12日通報，11日新增本土確診病例994例及無症狀感染2萬2348例。
+4月13日，美国财政部长耶伦（Janet Yellen）表示，不谴责俄罗斯对乌克兰发动“令人发指战争”并想借此谋利的国家是短视近利，若破坏西方对俄罗斯实施的制裁，它们将面临严重后果。
 
-文字版原文：[中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離](https://gnews.org/zh-hans/2333217/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-269.jpg)图为美国财政部长耶伦（Janet Yellen）（图片来自早报网）
 
-音频处理：Fei797
-发稿：Fei797
+据《中央社》报道，耶伦为华府智库大西洋理事会（Atlantic Council）主办的活动所准备的广泛谈话警告说，美国和合作伙伴针对俄国侵略乌克兰而向莫斯科当局和俄罗斯总统普京（Vladimir Putin）实施全面制裁，但美国和合作伙伴对于破坏全面制裁的行动“不会无动于衷”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-3.jpg)
+耶伦表示，俄罗斯与乌克兰之间的战争重塑了世界经济前景，美国总统拜登（Joe Biden）政府坚决允诺要让俄罗斯对自身的“可怕行径”及违反国际法行为负起责任。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+她说：“在普京结束他发动令人发指战争之前，拜登政府将跟我们的合作伙伴一同努力，把俄罗斯进一步推向经济、金融和战略孤立。”
+
+耶伦还表示，但部分国家依然袖手旁观，或许看到保持跟俄罗斯之间的关系并填补其他国家留下空间的谋利机会，但她没有点名任何特定国家。
+
+不过，此前美议员曾推出新法案警告中共，若其帮助俄罗斯逃避西方国家的全面制裁，中共国也将面临制裁。
+
+据了解，俄罗斯入侵乌克兰后，迅速遭到全球谴责，但中共拒绝谴责这场战争，并谴责国际社会对俄罗斯的制裁。此外，联合国大会经过表决，暂停俄罗斯在人权理事会的成员国资格。中共选择站在俄罗斯一边，投下了反对票。
+
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202204130447.aspx](https://www.cna.com.tw/news/aopl/202204130447.aspx)
+2.[https://www.voachinese.com/a/us-gop-senators-bill-to-prevent-russia-china-coordination-20220317/6490699.html](https://www.voachinese.com/a/us-gop-senators-bill-to-prevent-russia-china-coordination-20220317/6490699.html)
+
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

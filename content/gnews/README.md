@@ -15,116 +15,116 @@
 
 ---
 
-### [美国和欧盟追加对乌克兰军事援助](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国在朝鲜半岛附近部署航空母舰](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
-
-### [有声|上海放松封城政策 沪京高铁票抢售一空](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [大直播后记：国内的疫苗次生灾害惨状](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/6/README.md)
+### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰成功拦截俄罗斯黑客攻击 企图破坏电网](/content/gnews/7/README.md)
- ` 日本東京方舟農場`
-
-### [有声|中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [2022年4月14日《樱花简报》：美第七舰队与日本海上自卫队在日本海联合训练](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃俄乌大战即将开始，或升级为俄中欧全面战争](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共系统性危机爆发，全面回归计划经济](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [灭共是中国人的唯一活路（二）](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [灭共是中国人的唯一活路（一）](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（一）](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [新中国联邦旭日初升，中共独裁者日薄西山（二）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [4/10/2022 文贵直播：粮食成了中共统治老百姓最有力的武器；习搞核酸检测一箭四雕：1) 解决经济和房地产危机带来的社会崩塌；2) 对老百姓进行“压力测试”；3) 制造“战时状态”帮助习连任20大和打台湾； 4) 让世人尝尝习当年没饭吃的感觉；同时，习还想打垮美元并在乱世当强人](/content/gnews/20/README.md)
+### [4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [禁止化学武器组织关注俄军在马里乌波尔使用化武的报道](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [4/13/2022 乌克兰救援连线：继昨天比利时首相参观新中国联邦在乌克兰前线的救援帐篷后，两位欧联盟官员也来到新中国联邦帐篷，并表示愿意与新中国联邦合作帮助乌克兰难民](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
 
-### [专家：中共国封城是为扼制供应链而突出美国的依赖性](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [英国表示，若俄在乌使用化学武器，所有回应都在考虑之内](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本同意冻结普京女儿及其他396名俄罗斯人的资产](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [与中共为伍将使所罗门群岛像斯里兰卡一样走向国家破产](/content/gnews/5/README.md)
+ ` 澳喜农场`
 
-### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/24/README.md)
+### [美国和欧盟追加对乌克兰军事援助](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国在朝鲜半岛附近部署航空母舰](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|上海放松封城政策 沪京高铁票抢售一空](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [大直播后记：国内的疫苗次生灾害惨状](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰成功拦截俄罗斯黑客攻击 企图破坏电网](/content/gnews/12/README.md)
+ ` 日本東京方舟農場`
+
+### [有声|中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [2022年4月14日《樱花简报》：美第七舰队与日本海上自卫队在日本海联合训练](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [俄罗斯央行外币构成人民币份额增长最快](/content/gnews/25/README.md)
+### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共系统性危机爆发，全面回归计划经济](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [灭共是中国人的唯一活路（二）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [灭共是中国人的唯一活路（一）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/21/README.md)
+ ` 纽约香草山MOS02`
+
+### [禁止化学武器组织关注俄军在马里乌波尔使用化武的报道](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [专家：中共国封城是为扼制供应链而突出美国的依赖性](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本同意冻结普京女儿及其他396名俄罗斯人的资产](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/25/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄罗斯央行外币构成人民币份额增长最快](/content/gnews/26/README.md)
  ` 波士顿五月花农场金融部`
 
-### [波兰和波罗的海三国总统访问基辅](/content/gnews/26/README.md)
+### [拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/27/README.md)
+### [波兰和波罗的海三国总统访问基辅](/content/gnews/28/README.md)
+ ` 蓝莲花农场`
+
+### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有法治的社会才能减少“仇恨”](/content/gnews/28/README.md)
+### [有法治的社会才能减少“仇恨”](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/29/README.md)
+### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/30/README.md)
+### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大国家储备的大量COVID疫苗开始过期](/content/gnews/31/README.md)
+### [加拿大国家储备的大量COVID疫苗开始过期](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/32/README.md)
+### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/34/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [五月花简报（04/13/2022）](/content/gnews/33/README.md)
+### [五月花简报（04/13/2022）](/content/gnews/35/README.md)
  ` mayflowertranslate`
 
-### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/35/README.md)
+### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/36/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/36/README.md)
+### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/38/README.md)
  ` NFSC News`
