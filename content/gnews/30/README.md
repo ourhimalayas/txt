@@ -2,37 +2,22 @@
 ---
 
 
-## 俄罗斯国家安全局要求维基百科删除文中涉及普京的信息
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343870/)
+## 欧洲理事会：进一步向乌克兰提供军事援助，总额达到16.3亿美元
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2343998/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-14-下午2.17.59.png)图为何塞普-博雷尔。图片来源：FRANCOIS LENOIR / POOL / AFP
+欧盟周三批准向乌克兰进一步提供5.43亿美元的军事援助。欧盟总共拨出16.3亿美元的援助，帮助该国抵御俄罗斯军队。
 
-#### 翻译/编辑：小红帽
+欧洲理事会在一份声明中说，新的一揽子计划将资助向乌克兰武装部队提供设备和用品，其中包括 “个人防护设备、急救包和燃料，以及旨在为防御目的提供致命力量的军事装备”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WIKI.png)图片来源：维基百科
+欧盟外交政策负责人何塞普-博雷尔（Josep Borrell）在一份声明中说：”随着俄罗斯准备对乌克兰东部地区发动进攻，我们继续并加强对乌克兰的军事支持以保卫其领土和人口并防止进一步的痛苦是至关重要的。”
 
+原文链接：[European Union approves further military aid to Ukraine, taking total to $1.63 billion](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-13-22/h_b0499c820a3315ac04f54c65af9b21c6)
 
-根据Digit News 4月13日报道，俄罗斯国家安全局向维基百科管理部门发送了两份通知，内容涉及俄罗斯总统弗拉基米尔·普京的文章中存在违法传播的信息。俄罗斯国家安全局吹嘘要删除“不准确的信息”。
+* * *
 
-“昨天，俄罗斯国家安全局又发送了两份通知，均在“普京，弗拉基米尔·弗拉基米罗维奇”为标题的文章下。他们不喜欢与乌克兰（2021 年至今）和入侵乌克兰之后（2022 年）的部分关系。”
-
-维基百科
-
-维基百科澄清说，俄罗斯国家安全局在文章中发现“包含有关俄罗斯联邦武装部队保护顿涅茨克和卢甘斯克人民共和国的特种军事行动的目标和形式的虚假信息材料”。
-
-“此类出版物可能会导致局势的不稳定，以及为俄罗斯联邦领土上大规模违反公共秩序和公共安全的行为创造条件。”
-
-俄罗斯国家安全局
-
-资料来源：[Roskomnadzor requires Wikipedia to remove information from article about Putin](https://digitnews.in/roskomnadzor-requires-wikipedia-to-remove-information-from-article-about-putin/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑&发布：长岛开心*
 
  
 

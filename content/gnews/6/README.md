@@ -2,41 +2,28 @@
 ---
 
 
-## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
+## 澳大利亚 3 月份失业率稳定在创纪录的 4%
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2344871/)
 
-翻译：Jenny Ball
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+**翻译/编辑：Rianna**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/bfff5619045ef142-3.png)图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
-医学页面（MedPage）今天报道：
+澳大利亚的失业率稳定地保持在近半个世纪以来的最低水平附近，青年失业率和就业不足水平近期继续下降。根据澳大利亚统计局的数据，3 月份经济增加了 20,000 多个全职职位，同时减少了不到 3000 个兼职工作，使失业率保持在经季节性调整后的 4.0%不变。ABS 劳工统计主管 Bjorn Jarvis 表示：“4.0%是月度调查中的最低失业率。” 除今年 2 月和 3 月外，自公布月度就业数据以来，仅有的 4% 失业率出现在 2008 年2月和8月。经季节性调整的工作小时数较2月减少1000万小时，至上个月的 18.03亿小时。周四的劳动力数据可能会在联邦竞选活动中受到密切关注，尤其是在反对党领袖 Anthony Albanese 周一在被要求说明失业率时。储备银行也将密切关注，因为经济学家认为利率将很快上升——最有可能从 6 月开始。周四，澳新银行和西太平洋银行成为最新提高部分抵押贷款利率的银行。总体就业人数继续从 Covid 中断中恢复，目前有13,389,900人在工作，比 2020 年初经济衰退最严重的时期增加了近400,000人。3月份季度的消费者价格指数定于4月27日公布。澳大利亚社会服务委员会首席执行官卡桑德拉·戈尔迪（Cassandra Goldie）强调需要“坚持不懈地追求充分就业的历史性机遇”。她强调了为那些勉强维持生计的人提供收入援助可能会在他们找到稳定的工作之前被收回的风险。
 
-一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
+澳大利亚工商会首席执行官安德鲁·麦凯勒 (Andrew McKellar) 表示，低失业率“与 48 年来最严重的劳动力短缺以及有记录以来的最高职位空缺率相吻合”。他警告说，如果不解决短缺问题，“那些已经在劳动力市场极度紧张的情况下捉襟见肘的企业将被推到崩溃的边缘”。
 
-提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
+**新闻来源**：[澳大利亚的失业率保持在经季节性调整后的 4.0% 不变](http://澳大利亚的失业率稳定地保持在近半个世纪以来的最低水平附近，青年失业率和就业不足水平近期继续下降。根据澳大利亚统计局的数据，3%20月份经济增加了%2020,000%20多个全职职位，同时减少了不到%203000%20个兼职工作，使失业率保持在经季节性调整后的%204.0%不变。ABS%20劳工统计主管%20Bjorn%20Jarvis%20表示：“4.0%是月度调查中的最低失业率。”%20除今年%202%20月和%203%20月外，自公布月度就业数据以来，仅有的%204%%20失业率出现在%202008%20年2月和8月。经季节性调整的工作小时数较2月减少1000万小时，至上个月的%2018.03亿小时。周四的劳动力数据可能会在联邦竞选活动中受到密切关注，尤其是在反对党领袖%20Anthony%20Albanese%20周一在被要求说明失业率时。储备银行也将密切关注，因为经济学家认为利率将很快上升——最有可能从%206%20月开始。周四，澳新银行和西太平洋银行成为最新提高部分抵押贷款利率的银行。总体就业人数继续从%20Covid%20中断中恢复，目前有13,389,900人在工作，比%202020%20年初经济衰退最严重的时期增加了近400,000人。3月份季度的消费者价格指数定于4月27日公布。澳大利亚社会服务委员会首席执行官卡桑德拉·戈尔迪（Cassandra%20Goldie）强调需要“坚持不懈地追求充分就业的历史性机遇”。她强调了为那些勉强维持生计的人提供收入援助可能会在他们找到稳定的工作之前被收回的风险。%20澳大利亚工商会首席执行官安德鲁·麦凯勒%20%28Andrew%20McKellar%29%20表示，低失业率“与%2048%20年来最严重的劳动力短缺以及有记录以来的最高职位空缺率相吻合”。他警告说，如果不解决短缺问题，“那些已经在劳动力市场极度紧张的情况下捉襟见肘的企业将被推到崩溃的边缘”。%20%20%20%20新闻来源：澳大利亚的失业率保持在经季节性调整后的%204.0%%20不变%20https://www.theguardian.com/business/2022/apr/14/march-unemployment-rate-remains-steady-at-record-low-4-despite-expectations-of-fall)
 
-然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
+发布：文武全才
 
-评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
-
-新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
-
-* * *
-
-评论： Jenny Ball
-审核：文乐      
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 

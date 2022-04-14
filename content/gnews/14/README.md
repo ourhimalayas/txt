@@ -2,41 +2,37 @@
 ---
 
 
-## 吉尔吉斯斯坦与塔吉克斯坦边防部队交火
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344462/)
+## 民生集萃——疫情对实体经济打击巨大（2022.4.14）&#8211;疫情导致门面长期租不出去
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2344776/)
 
-翻译： Jenny Ball
+#### 雅典娜情报组《民生灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+整理/编辑：gardeniahu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-3.png)图片来源：雅典娜设计组(614)
 
 
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-137.png)撤离：1 月 14 日，吉尔吉斯斯坦军队于从哈萨克斯坦返回时，在距离比什凯克 30 公里的楚伊地区的一条道路上前进。派遣军队的决定是在哈萨克斯坦领导人提出紧急请求后，莫斯科领导的集体安全条约组织的第一次决定 。 （法新社/维亚切斯拉夫·奥塞莱德科）
+帖子原文：
 
-吉尔吉斯斯坦方面表示，吉尔吉斯斯坦和塔吉克斯坦边防警卫周二在有争议的边界发生交火，这是一起新事件，导致中亚国家各有一人受伤。 两个贫困的前苏联国家的边境经常因土地和供水问题发生冲突，边境警卫经常参与其中。吉尔吉斯斯坦边防部队在一份声明中说，周二，在塔吉克斯坦边防部队向争议地区推进后，双方发生了交火。
+疫情对实体经济打击真的太大了，朋友说他家一个门面空了快两年还没有租出去，打电话问租金的人不多，有的也是乱砍价，还不如一套单身公寓租金高，朋友问我怎么处理这个门面？是空着还是卖掉？现在卖掉是不是也卖不了一个好价钱？
 
-声明说，面对塔吉克斯坦人拒绝停止他们的前进，吉尔吉斯斯坦边防部队“向空中鸣枪示警”。“作为回应，塔吉克边防卫兵向吉尔吉斯斯坦边防卫兵开火。“在两国代表……谈判后，枪击停止了，”声明说，并补充说，一名塔吉克斯坦边防卫兵中弹受伤。同一消息来源称，后来，又一次发生交火，一名吉尔吉斯斯坦边防警卫“严重”受伤。
+发布于03.26
 
-他们说，塔吉克军队向边境村庄多斯托克（Dostuk）短暂发射了迫击炮。塔吉克斯坦是一个封闭的专制国家，没有立即发表评论。吉尔吉斯斯坦边防部队后来表示，已与塔吉克斯坦达成协议，撤出在敌对行动期间部署的额外部队，以缓和紧张局势。
+精选评论
 
-“双方已开始撤出兵力和装备，”他们说，“局势相对稳定，但有些紧张”。地方当局还宣布疏散边界吉尔吉斯一侧的五个村庄。两国之间 970 公里（600 英里）的边界有近一半存在争议，近年来标界进展缓慢。上个月已经发生了交火，这是局势动荡的迹象。去年，双方发生了前所未有的冲突，造成 50 多人死亡，引发了对更广泛冲突的担忧。
+数星星  回复：房东对实体经济的打击更大
 
-新闻来源：[yrgyz, Tajik border guards exchange fire](https://www.thejakartapost.com/world/2022/04/13/kyrgyz-tajik-border-guards-exchange-fire.html)
+手绘小调  回复：我们这边（小地方，不起眼的路边）有个门面，我见空了一两年了，我想着把我的小画室搬过去，好家伙，房租一年四十万。我朋友那边一年也就几万。滚一边去吧，真觉得创业的人钱是天上掉下来的呀。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1693.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1694.png)图片来源：小红书
+参考链接:[疫情对实体经济打击巨大](https://www.xiaohongshu.com/discovery/item/623e98160000000001026d98?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904338)
 
-* * *
-
-素材： peacelv
-审核：文乐   
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-20.jpeg)
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

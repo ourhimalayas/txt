@@ -2,37 +2,23 @@
 ---
 
 
-## “我们将自卫”，德鲁克在罗马尼亚访问比利时军队
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343899/)
+## 台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344287/)
 
-#### **【雅典娜快讯】紧贴时代脉搏**
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-25.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国众议院议长裴洛西（Nancy Pelosi）原订10日要访台，后因确诊新冠延期，郭文贵爆料称裴洛西原定出访台湾，后遭中共威胁访台便出兵攻打台湾，故未出行。
 
-#### 翻译/编辑：文泓
+台媒接获亲美政坛人士提供消息，表示美国联邦参议院外交委员会主席、民主党籍梅南德兹（Bob Menendez）将率团访台与总统蔡英文会晤，时间就在今（14）日，共计有6名议员。惟台湾外交部未证实，同时新闻报导所列的成员twitter并未透漏相关资讯，消息无法核实。此外，郭文贵于盖特透漏，裴洛西可能随时访台，中共的威胁在国际犹如笑话般存在。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片45.png)图片来源：Vrt Nws & 雅典娜设计组
+媒体称本次访台成员有：美国联邦参议院外交关系委员会主席、民主党籍梅南德兹（Bob Menendez）与共和党参议员葛瑞姆（Lindsey Graham）、北卡罗来纳州共和党参议员理查德伯尔（Richard Burr）、内布拉斯加州共和党参议员本萨斯（Ben Sasse）、俄亥俄州共和党参议员罗伯特波特曼（Rob Portman），以及德克萨斯州美国国会议员龙尼·杰克逊（Ronny Jackson）等。
 
+来源｜[三立](https://www.setn.com/News.aspx?NewsID=1099945)
 
-4月14日，在为期三天的东欧之行中，比利时首相亚历山大·德克鲁参观了罗马尼亚黑海康斯坦察市的军事基地，该基地驻扎着300名比利时士兵。
+* * *
 
-比利时士兵是北约部队的一部分，与来自法国、意大利、英国和美国的军队一起驻扎在罗马尼亚，在乌克兰战争开始后被派往此地协助防卫欧盟东翼。
-
-“作为北约盟国，我们将团结一致捍卫我们的自由和领土”，德克鲁与罗马尼亚总理和总统在一个简短的仪式上说。
-
-这是德克鲁首相在访问罗马尼亚期间，向作为北约快速反应部队一部分的比利时部队发出了明确的信息。
-
-由于罗马尼亚是乌克兰的邻国，北约驻地康斯坦察距离俄乌战场很近。
-
-德鲁克表示，我们发出明确的信息，已做好准备，我们将自卫。我们的信息越清晰，具体的威胁就越小。俄罗斯就会明白，触碰北约的领土是没有意义的。
-
-新闻链接: [‘We will defend ourselves’: De Croo visits Belgian troops in Romania (brusselstimes.com)](https://www.brusselstimes.com/belgium-news/216930/we-will-defend-ourselves-de-croo-visits-belgian-troops-in-romania)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

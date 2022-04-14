@@ -2,31 +2,51 @@
 ---
 
 
-## 樱花时政┃北欧2国积极加入北约 欧洲安全框架将发生重大变化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2343931/)
+## 上海市民:我违反防疫法,你把我带走至少还有一天三顿饭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2344413/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-随着俄罗斯对乌克兰持续的军事入侵，芬兰总理马林表示在几周内会就申请加入北大西洋公约组织作出结论。瑞典也在紧急做出决定，欧洲安全框架可能会发生重大变化。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/b60e19b26f59f37edacbcb1518c2415d_副本.jpg)
+据野山@naochashu 于[10:50 PM · Apr 13, 2022](https://twitter.com/naochashu/status/1514254654447955973?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1514254654447955973%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fzh-hans%2F2342134%2F)发布的推文——
 
-4月13日芬兰总理马林访问了瑞典，并与安德森总理进行了会面。会后，马林总理表示，“俄罗斯对乌克兰的军事入侵极大地改变了欧洲的格局，不加入北约就无法获得安全保障。”表现出积极态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-136.png)图片来源：本文链接
-芬兰政府公开发布的一份报告称，如果申请加入北约，就需要面对与俄罗斯边境加剧的紧张局势。马林总理会在国会讨论这份报告，并在几周内就申请加入北约做出结论。瑞典首相安德森也表示需要充分考虑，力争尽早做出决定。
+“大概的意思，他想去监狱，因为他饥饿”
 
-芬兰和瑞典虽然是欧盟的成员，但不是军事联盟北约的成员，并且一直在军事上保持着中立。
+听懂语言的纠正一个。对应文字内容——
 
-可以预见，欧洲安全框架可能会发生重大变化，俄罗斯肯定会强烈反对。
 
-信息来源：[北欧2国 NATO加盟に前向き 欧州の安全保障枠組み変わる可能性](https://www3.nhk.or.jp/news/html/20220414/k10013581371000.html)
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+> “大概的意思，他想去监狱，因为他饥饿”
+> 听懂语言的纠正一个。 [pic.twitter.com/7odWQ3wTP7](https://t.co/7odWQ3wTP7)
+> — 野山🎗 (@naochashu) [April 13, 2022](https://twitter.com/naochashu/status/1514254654447955973?ref_src=twsrc%5Etfw)
+
+
+
+面对恐惧要么趴下，要么战胜恐惧，自爆料革命开启以来，国内的战友们享受到被喝茶被刑拘以至身陷囹圄者数以万计或十万、百万计，这种经历可以把人吓破胆，也可以让人彻底铁心灭共。
+
+时下之上海能被警察抓到看守所至少也能管上一天三顿饭，唯一的不足之处是要失去自由，唯一的不足之处是不能带解药进去，不过比之在上海封城之下，能进看守所倒也是一种解放，至少一天会有固定的放封时间。
+
+在时下之上海乃至时下之中共国，饥寒交迫的同胞们只要鼓起勇气，要么主动被捉，要么上街抗议被捉，在一场胆量和耐力的抗争中，只要头脑灵活，办法总比困难多，死都不怕的时候，去看守所住两天未尝不是一个很好的选择，如果拳头够硬再升级做个号长，那也是人生得到了升华。衷心祝愿所有被封控、被饥寒交迫的同胞们挺住。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

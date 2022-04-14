@@ -2,54 +2,100 @@
 ---
 
 
-## 被爆料者必因七哥破产而高兴,追随七哥钱的战友该离开了
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2344400/)
+## 媒体如何将坏科学变成“新闻”（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344655/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8811.61%EF%BC%89%E8%A2%AB%E7%88%86%E6%96%99%E8%80%85%E5%BF%85%E5%9B%A0%E4%B8%83%E5%93%A5%E7%A0%B4%E4%BA%A7%E8%80%8C%E9%AB%98%E5%85%B4%2C%E8%BF%BD%E9%9A%8F%E4%B8%83%E5%93%A5%E9%92%B1%E7%9A%84%E6%88%98%E5%8F%8B%E8%AF%A5%E7%A6%BB%E5%BC%80%E4%BA%86%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
+翻译： Jenny Ball
 
-**郭文贵先生：**包括我个人破产，我认为它有必然的、自然的因缘轮回的结果和逻辑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-28.jpg)
 
-七哥个人破产了，那海航王健死、陈峰死，王岐山、姚庆、孙瑶、马云、吴征、“钥匙澜”得多恨七哥呀？你们爱七哥，七哥破产你难受，那这些人多高兴啊？高冰尘多高兴啊？“路大脑袋”、“蛇妖闫”、“九指妖”多高兴啊？是吧？
 
-因为七哥的爆料也伤害了很多人，对方不会觉得说你是要灭共产党，你伤害我是对的，人的本能，你伤害我我肯定骂你，我肯定恨你，我希望你不好嘛，这里边就有怨气，就有戾气，七哥这几年爆料革命可伤了不少人。
 
-挺好的，七哥个人破产，人家得说啥？———小兔崽子，你骂了我五年，人家海航你让我破产了，我让你破产。田国立、田惠宇该多高兴啊？康典多高兴啊？单伟建说：“你看看，我让这小子破产了。”
 
-但是我请问大家，问到这儿的时候，跟刚才你问的那话题一模一样，追寻自由，看本质，你们跟七哥是为了七哥有钱吗？今天在这儿同框直播、同心直播，你是为了七哥的钱吗？Alice、Tiger，从第一天你信七哥，是为了七哥的钱吗？
 
-爆料革命的每个人、跟随七哥的人都是拿着命跟七哥的，都有可能被抓被害，甭说破产了，你连破产的机会都没有，七哥个人破产算事儿吗？什么逻辑呀？战友们拿着命跟你郭文贵去灭共去，不要说破产了，全部财产都可能没收，甚至要我全家的命。
+[接上篇媒体如何将坏科学变成“新闻”（1/2）](https://gnews.org/zh-hans/2344565/)
 
-郭文贵可以越来越有钱，然后我可以破产，我可以没有命，这不就共产党的逻辑吗？为啥七哥就不能破产呢？只能有战友破产，七哥不能破产？你们这脑子里得有多少共产党的毒你们才能这么想呢？“七哥不应该破产”这个本身就是错的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-138.png)图片来源：childrenshealthdefense.org
 
-第二，你跟随七哥是为了七哥的钱吗？这回七哥更加知道谁是战友了，你要为了钱来的，你这回你该离开了。
+哪个组更容易接触到这种疾病？我们不知道。
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+哪个组开始时病情更重？患有 COVID 的儿童是：82% 有合并症，而对照组为 73%。
 
-编辑整理：星塵Scheddi；
+更重要的是，这种方法还为操纵疫苗计算效力的简单方法打开了大门。
 
-字幕文件制作：小满；
+如果作者优先将接种疫苗的儿童纳入对照组，将未接种疫苗的儿童纳入 COVID 组，疫苗的有效性就会被夸大。
 
-视频制作及上传：Cindy；
+如果他们反其道而行之，效果将不仅是微不足道的，而且是负面的。
 
-G-News发布：海贼王M.D.LUFFY；
+由于没有关于如何选择对照组的更多细节，我们只能推测。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+研究对象是否根据疫苗接种状况精心挑选？
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+这种比较如何导致对疫苗在预防 COVID-19 住院方面的有效性进行任何有意义的评估？
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“事实并非如此”，梅丽尔·纳斯博士告诉 《捍卫者》。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+纳斯博士是一名内科医生，也是儿童健康防御科学咨询委员会的成员，他说，作者如何招募参与者，还有一些令人费解的地方。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+根据这项研究，在 9 周内从 31 家不同的儿科医院挑选了 537 名儿童。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+这意味着平均而言，研究期间每周从每个设施中仅选择一对匹配的儿童（年龄相同，同时入住同一家医院）。“这是一个非常低的招募率，特别是考虑到这些是儿科医院，显然，奥美光的住院率很高，”纳斯说。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+“为什么患者参与这项研究的速度如此之慢？”纳斯问道。“他们是根据疫苗接种状况从大量中挑选出来的吗？还是一开始就没有足够的录取人数？”
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+该研究还旨在计算疫苗在预防 COVID 的“危急”病例（即导致生命支持干预或死亡的病例）方面的功效。
 
-G-TV：日本银河系农场。
+但是，5-11 岁年龄段的危重病例不足以进行适当的分析。
+
+然而，与所有因 COVID 住院的儿童相比，未接种疫苗的儿童在重症 COVID 亚组中的比例略低（90% 对 93%）。因此，疫苗接种并不能预防严重疾病。
+
+最后，在因 COVID 住院的儿童中，4/5以上有潜在的合并症。
+
+科学论文的“大问题”
+
+我们不知道 CNN 是否故意将 NEJM 研究从表面上看，而不是检查其缺陷。
+
+然而，我们确实知道，在 COVID 时代，美国政府正在向包括 CNN 在内的主要媒体支付费用，以推进有关疫苗的“安全有效”的叙述。
+
+CNN 是否选择忽略这项特定研究中的缺陷是一个问题。然而，更大的问题是，著名的期刊，如《新英格兰医学杂志》，如何发表不符合严格科学研究标准的研究？
+
+据《卫报》报道，今天的科学论文发表系统“存在很大问题”。据《卫报》报道：
+
+“所以科学家们不遗余力地宣传他们的研究，依靠他们的分析来产生“更好”的结果，有时甚至为了给那些最重要的看门人留下深刻印象而进行欺诈。这极大地扭曲了我们对真实情况的看法。”
+
+对于由具有议程的公共卫生机构资助的研究——例如，由 CDC 支持的 NEJM 研究是高度支持 COVID 的疫苗——可以想象，作者会偏向于发表支持该议程的结果。
+
+还有其他问题。例如，科学论文经常包含错误，但作者很少纠正它们。
+
+然后是数据问题。同样，据《卫报》报道：
+
+“在过去，与该论文的读者分享构成论文基础的原始数据或多或少是不可能的。现在，只需单击几下即可完成，只需将数据上传到开放的存储库即可。
+
+“然而，我们的行为就好像我们生活在过去的世界里：论文仍然几乎没有附加数据，从而使评论者和读者无法看到全貌。”
+
+撰写 NEJM 研究的 CDC 员工，是否以得出一组先入为主的结论的方式构建研究？
+
+除非他们告诉我们，否则我们无法确切知道，就像我们无法知道 CNN 是否故意不检查这项研究，而不是仅仅反刍作者的发现一样。
+
+但我们确实知道这一点：媒体的工作是批判性地思考和报道，但CNN 在这项工作上失败了。
+
+完结
+
+新闻来源：[How Media Turns Bad Science Into ‘News’](https://childrenshealthdefense.org/defender/media-turns-bad-science-news/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
+
+* * *
+
+审核：文乐    
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 
