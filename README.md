@@ -15,64 +15,64 @@
 
 ---
 
-### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/1/README.md)
+### [国内战友的自救与互助](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：猫本小哥对中共可怕计划的四点分析](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭](/content/gnews/2/README.md)
+### [4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/13/2022 乌克兰救援连线：继昨天比利时首相参观新中国联邦在乌克兰前线的救援帐篷后，两位欧联盟官员也来到新中国联邦帐篷，并表示愿意与新中国联邦合作帮助乌克兰难民](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [英国表示，若俄在乌使用化学武器，所有回应都在考虑之内](/content/gnews/4/README.md)
+### [普京称与乌克兰的和平谈判陷入僵局](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [与中共为伍将使所罗门群岛像斯里兰卡一样走向国家破产](/content/gnews/5/README.md)
+### [4/13/2022 乌克兰救援连线：继昨天比利时首相参观新中国联邦在乌克兰前线的救援帐篷后，两位欧联盟官员也来到新中国联邦帐篷，并表示愿意与新中国联邦合作帮助乌克兰难民](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [英国表示，若俄在乌使用化学武器，所有回应都在考虑之内](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [与中共为伍将使所罗门群岛像斯里兰卡一样走向国家破产](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [美国和欧盟追加对乌克兰军事援助](/content/gnews/6/README.md)
+### [美国和欧盟追加对乌克兰军事援助](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国在朝鲜半岛附近部署航空母舰](/content/gnews/7/README.md)
+### [美国在朝鲜半岛附近部署航空母舰](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/8/README.md)
+### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [有声|上海放松封城政策 沪京高铁票抢售一空](/content/gnews/9/README.md)
+### [有声|上海放松封城政策 沪京高铁票抢售一空](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [大直播后记：国内的疫苗次生灾害惨状](/content/gnews/10/README.md)
+### [大直播后记：国内的疫苗次生灾害惨状](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/11/README.md)
+### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰成功拦截俄罗斯黑客攻击 企图破坏电网](/content/gnews/12/README.md)
+### [乌克兰成功拦截俄罗斯黑客攻击 企图破坏电网](/content/gnews/15/README.md)
  ` 日本東京方舟農場`
 
-### [有声|中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離](/content/gnews/13/README.md)
+### [有声|中共國任意執法及上海疫情嚴重 美國務院令領事館非緊急人員強制撤離](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [2022年4月14日《樱花简报》：美第七舰队与日本海上自卫队在日本海联合训练](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/15/README.md)
+### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/16/README.md)
+### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共系统性危机爆发，全面回归计划经济](/content/gnews/17/README.md)
+### [中共系统性危机爆发，全面回归计划经济](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [灭共是中国人的唯一活路（二）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [灭共是中国人的唯一活路（一）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）](/content/gnews/20/README.md)
+### [灭共是中国人的唯一活路（二）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
 ### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/21/README.md)
