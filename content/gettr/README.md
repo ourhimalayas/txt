@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 4:46 PM (UTC)`
+
+4/14/2022 Miles Guo: Most of Taiwan's military and Intelligence Services have been bought off by the CCP; the drones purchased by Taiwan are indeed made in Communist China!<br/><br/>4/14/2022 文贵直播：台湾的军队以及情报部门绝大多数已被CCP收买，台湾的无人机来自中共国！<br/>
+![img](https://media.gettr.com/group5/getter/2022/04/14/16/85d32bd1-098a-ab09-afec-82ee296a16a3/out.jpg)
+
+---
+
 `@miles 4/14/2022 4:31 PM (UTC)`
 
  4月14号：太晚了，太软了，太不团结了！如果这么多人被这几个穿白衣服的，困死在家里．病死在家里，饿死在家里，那就真的没有天理了……
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 4/10/2022 Miles Guo: The New Federal State of China is going to establish a solid economic foundation for the Chinese people, give them faith, build the image of Chinese people internationally, and let them learn about the thousands of years of the Western civilization and democracy. The Chinese people will either be doomed, or they will be saved by the New Federal State of China.<br/><br/>4/10/2022 文贵直播：新中国联邦要为中国人建立经济基础、让中国人有信仰、树立中国人的国际形象、让中国人学习西方千年的文明和民主；中国人要么万劫不复，要么被新中国联邦拯救<br/>
 ![img](https://media.gettr.com/group31/getter/2022/04/14/03/04e34b90-7141-b59e-6055-806b0b68c0c9/out.jpg)
-
----
-
-`@miles 4/14/2022 3:36 AM (UTC)`
-
-4/10/2022 Miles Guo: The new three mountains of the future world are: the first is food and water, the second is biotechnology and modern energy technology, and the third is intelligence and data; there will be bloody moments in Ukraine, and the new Atlantic Treaty will be born only after Russia and the Chinese Communist Party has completed their last show, and the countries behind it and the swamp come to the surface.<br/><br/>4/10/2022 文贵直播：未来世界新的三座大山：第一是食品和水，第二是生物科技和现代能源科技，第三是智慧和数据；乌克兰还会有血腥时刻，俄罗斯和中共最后一出戏演完后，背后的国家和沼泽地才都浮出水面后，新大西洋公约才会诞生
-![img](https://media.gettr.com/group9/getter/2022/04/14/03/aa6c4555-32b3-f461-2a92-3200173d4c02/out.jpg)
 
 ---
 
