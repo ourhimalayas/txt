@@ -2,25 +2,38 @@
 ---
 
 
-## 马龙博士称中共病毒疫苗造成获得性免疫综合症
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2343864/)
+## 俄罗斯国家安全局要求维基百科删除文中涉及普京的信息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343870/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
-近日马龙博士在接受采访时表示，RNA疫苗尤其是中共病毒疫苗，会造成某种形式的获得性免疫缺陷综合症即艾滋病，而加强剂疫苗不会起到任何预防感染的作用。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1686.png)
-马龙博士说，越来越多的不良反应清晰的表明，接种中共病毒疫苗可能会增加成年人感染、住院或死亡的风险。心肌炎背后的最常见的原因是DNA病毒的再激活，比如爱泼斯坦巴尔病毒（疱疹病毒EBV）引起的传染性单核细胞增多症、带状疱疹、巨细胞病毒等，然而正常情况下，人体的T细胞把多种病毒功能锁在潘多拉盒子里。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-科学数据表明，中共病毒疫苗会破坏T细胞，会造成接种者“获得性免疫缺陷综合症”（AIDS），即患上艾滋病。这是一种无法抵抗其他疾病的状态或综合症状。并不是说中共病毒疫苗让人感染了艾滋病HIV病毒, 而是大量的人群在注射疫苗后导致产生了疫苗接种后综合症。比如会在长时间里会感觉很糟和无力。这种情况出现多数是因为免疫力下降导致感染了爱泼斯坦巴尔病毒、疱疹病毒等DNA病毒，或者使潜伏的病毒得到了激活。 因此，疫苗加强针不但不会起到预防感染的作用，实际上更容易让人容易出现各种免疫缺陷导致的各种疾病，机理就是T细胞功能被抑制或者破坏、潜伏的DNA病毒的激活等有关。此外，也引起了心肌炎、癌症的风险增加，以及明显会在人体全身各处引发血栓。
+#### 翻译/编辑：小红帽
 
-参考链接： [心肌炎背後的原因是DNA病毒的再激活,（新冠）疫苗，尤其是RNA疫苗，正在破壞T細胞的反應](https://www.gettr.com/post/p13z2th27d6)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WIKI.png)图片来源：维基百科
 
-[艾滋病病毒和艾滋病有什么区别?](http://www.gov.cn/ztzl/yfazb/content_457412.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+根据Digit News 4月13日报道，俄罗斯国家安全局向维基百科管理部门发送了两份通知，内容涉及俄罗斯总统弗拉基米尔·普京的文章中存在违法传播的信息。俄罗斯国家安全局吹嘘要删除“不准确的信息”。
 
-校对/编辑/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
+“昨天，俄罗斯国家安全局又发送了两份通知，均在“普京，弗拉基米尔·弗拉基米罗维奇”为标题的文章下。他们不喜欢与乌克兰（2021 年至今）和入侵乌克兰之后（2022 年）的部分关系。”
+
+维基百科
+
+维基百科澄清说，俄罗斯国家安全局在文章中发现“包含有关俄罗斯联邦武装部队保护顿涅茨克和卢甘斯克人民共和国的特种军事行动的目标和形式的虚假信息材料”。
+
+“此类出版物可能会导致局势的不稳定，以及为俄罗斯联邦领土上大规模违反公共秩序和公共安全的行为创造条件。”
+
+俄罗斯国家安全局
+
+资料来源：[Roskomnadzor requires Wikipedia to remove information from article about Putin](https://digitnews.in/roskomnadzor-requires-wikipedia-to-remove-information-from-article-about-putin/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
