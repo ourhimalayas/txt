@@ -2,45 +2,52 @@
 ---
 
 
-## 民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345404/)
+## 新西兰财经G乐部2022年4月14日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2345909/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-14-202641-1.jpg)
+**1、中共发起关于防范NFT相关金融风险的倡议**
+![img](https://media.gettr.com/group17/origin/2022/04/14/03/897c7ac9-4848-18dd-e1b8-9dd7daffe381/aa5bc77fab16a8012ea0921449350130_500x0.png)
+中共国互金协会、中银协、中证协联合发布《关于防范NFT相关金融风险的倡议》提出，确保NFT产品的价值有充分支撑，引导消费者理性消费，防止价格虚高背离基本的价值规律。坚决遏制NFT金融化证券化倾向，从严防范非法金融活动风险；不在NFT底层商品中包含证券、保险、信贷、贵金属等金融资产，变相发行交易金融产品；不以比特币、以太币、泰达币等虚拟货币作为NFT发行交易的计价和结算工具；不直接或间接投资NFT，不为投资NFT提供融资支持。
 
-整理/编辑：gardeniahu
+财经G评：放眼世界中共没有不管的！中共的强权管制从来都是与时俱进！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-3.png)图片来源：雅典娜设计组(614)
+链接 [https://news.cnstock.com/news,bwkx-202204-4861741.htm](https://news.cnstock.com/news,bwkx-202204-4861741.htm)
 
+**2、四川省粮食和物资储备局物资与能源储备处原处长被查 **
+![img](https://media.gettr.com/group20/origin/2022/04/14/03/dc862a29-30d8-2e48-b6ef-7f79cadc5376/fe14cb9c35449608c11f924b58c74edf_500x0.png)
+四川省粮食和物资储备局物资与能源储备处原处长、一级调研员王亚南涉嫌严重违纪违法，目前中共四川省纪委监委驻省发改委纪检监察组正对其进行纪律审查，经四川省监委指定管辖，乐山市监委正对其进行监察调查。
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
+链接 [https://www.sohu.com/a/537827030\_313745](https://www.sohu.com/a/537827030_313745)
 
-帖子原文：
+**3、华夏银行客户经理私售理财产品，老人被诈骗超200万元**
+![img](https://media.gettr.com/group44/origin/2022/04/14/04/e6ac3dbb-fc85-0494-c92a-615e81c98010/c23e25250b322d4cb768dbc6598bd9bb_500x0.png)
+近日，裁判文书网披露的一则判决书显示，华夏银行长安支行客户经理赵某以私自售卖非本行理财产品为名，以承诺高额收益为由非法吸收公众资金，致使七旬老人程某损失人民币215万元。针对上述事件，一审法院判定华夏银行北京分行（以下简称北京分行）、华夏银行长安支行（以下简称长安支行）承担20%赔偿责任。对此，程某与华夏银行方面均表示不服，并向二审法院北京市第二中级人民法院提起上诉。
 
-到卖房时候才发现房价真的凉了。
+财经G评：中共国银行每个银行都存在监守自盗！往期银行案例和评论，请看“财经G乐部”盖特评论区。
 
-房子挂出去几天了，依然没有一个看房的。中介给出理由我家租客在看房不方便。另外据说二手房挂盘的太多成交的太少。
+链接 [https://finance.sina.com.cn/jinrong/yh/2022-04-13/doc-imcwiwst1651539.shtml](https://finance.sina.com.cn/jinrong/yh/2022-04-13/doc-imcwiwst1651539.shtml)
 
-刚刚翻出两年前的短信，当时很傲娇的没有卖，现在悔恨不已。两年过去了，多交了快三十万的房，房价落到尘埃里了。现在又要卖了才有名额买，好难过。
+**4、中共公安部以电信诈骗为由打击数字货币**
+![img](https://media.gettr.com/group9/origin/2022/04/14/04/b039baf0-f02c-4e7a-79f4-37d165ab7459/f5bf07761dd52d55cdef6d2fb09849eb_500x0.png)
+中共国公安部刑事侦查局局长刘忠义在回答电信网络诈骗犯罪有哪些新形式和特点这一问题时提到，从资金通道看，传统的三方支付、对公账户洗钱占比已减少，大量利用跑分平台加数字货币洗钱，尤其是利用USDT（泰达币）危害最为严重。
 
-#深圳楼市
+财经G评：最近又是打击NFT、又打击USDT说明什么？充分说明了，封城之后中共的铁拳砸醒很多人，后知后觉被砸醒的人，手里的钱开始出逃！
 
-发布于04.08
+链接：[https://www.yicai.com/news/101379841.html](https://www.yicai.com/news/101379841.html)
 
-精选评论
+**5、马斯克因延迟披露推特持股情况遭起诉**
+![img](https://media.gettr.com/group48/origin/2022/04/14/04/bc2f143e-934a-5bab-aa6b-11c663824716/b67f3ac592e080fa703fea178251e59a_500x0.png)
+有推特的投资者向曼哈顿联邦法院提起诉讼，指控马斯克在监管机构要求的最后期限之前，未能及时披露持有推特股票超过5%的情况，而是等到持有比例几乎翻倍至9%时才进行披露。根据指控，这种做法伤害了马斯克披露持股情况之前近两周内卖出推特股票的投资者的利益。这一诉讼由名为麦克·贝恩·拉泽拉的推特投资者发起，正寻求成为一桩集体诉讼，代表在3月24日至4月4日之间出售推特股票的投资者。
 
-比较知名的博主  回复：尽早套现离场吧，后面会更夸张。
+财经G评：马斯克成为推特股东后，先是被董事会拒绝加入、再被股民集体诉讼，推特的原罪征讨还会越来越多，接下来马斯克会怎么办？
 
-HHH  回复：你们最起码吃到了房价上涨的红利，现在接盘的开始没有这福利了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1734.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1735.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1736.png)图片来源：小红书
-参考链接:[到卖房的时候发现放假真的凉了](https://www.xiaohongshu.com/discovery/item/62503ea900000000210350e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904531)
+链接  [https://www.bloomberg.com/news/articles/2022-04-12/elon-musk-sued-over-delay-in-disclosing-twitter-holdings](https://www.bloomberg.com/news/articles/2022-04-12/elon-musk-sued-over-delay-in-disclosing-twitter-holdings)
 
-*发布：tianzhihuan*
+海报：润玉
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+排版上传：文勇
 
  
 

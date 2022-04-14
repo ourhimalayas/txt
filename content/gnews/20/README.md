@@ -2,35 +2,37 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2346980/)
+## 俄乌战争影响 IMF下调143个经济体前景
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2347101/)
 
-作者：香草山翻译部
+国际货币基金组织总裁克里斯塔利娜·格奥尔基耶娃(Kristalina Georgieva)周四(4月14日)表示，受俄罗斯入侵乌克兰的影响，今年有超过140个经济体面临经济前景的下调，这推高了全世界的能源和食品价格。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/140.jpg)globalupfront.com
+在下周举行的国际货币基金组织和世界银行春季会议之前的一次演讲中，格奥尔基耶娃还警告说，多年来第一次，通货膨胀对许多国家来说已经成为 “一个明显和现实的危险”，构成了 “全球经济复苏的巨大挫折”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
+她说，虽然大多数国家可以预计其经济增长将保持在正值，但战争的影响将促使占全球国内生产总值86%的143个经济体在2022年下调。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-13.png)
+她说，国际货币基金组织将于周二发布其旗舰报告《世界经济展望》，其中预计将削减2022年和2023年的全球预期增长。
 
-文章仅代表作者本人观点，与Gnews无关
+这将是对1月份的进一步下调，当时IMF将2022年的全球增长预期从10月份的估计下调了0.5个百分点至4.4%，因为与疫情大流行有关的供应中断和通货膨胀对美国和中共国造成了压力。
 
-视频参看：
-[2022.04.14早 《NFSC新闻》](https://gettr.com/streaming/p159txd5ed8)
-[2022.04.14早《NFSC新闻访谈》](https://gettr.com/streaming/p15aepqa6c8)
+自1月以来，前景 “大幅恶化，主要是因为战争及其影响”，这位IMF总裁说。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+她说，通货膨胀、金融紧缩和中共国频繁的、大范围的COVID-19封锁，正在导致全球供应链出现新的瓶颈，并对经济活动造成压力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+她补充说，粮食不安全是一个 “严重的问题”，并呼吁通过一项多边倡议立即采取行动。
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+在2月底开始的战争之前，俄罗斯和乌克兰提供了全球28%的小麦出口。根据国际货币基金组织的数据，俄罗斯和支持莫斯科军事侵略的白俄罗斯提供了40%的钾肥出口，钾肥是一种重要的化肥。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
+格奥尔基耶娃说，但是谷物和玉米的价格正在飙升，非洲和中东的国家正在警告说，供应正在减少。
+
+“对于发达经济体来说，通货膨胀已经达到了四十年来的高点。” 她说，”我们现在预测它将比以前估计的更长时间保持高位。”
+
+**快评:** 世界经济遇到大麻烦，不是仅仅因为俄乌战争，还有病毒和疫苗灾难。郭先生说，2022年是人类历史上最黑暗的时刻，经济大崩溃一定会来，已经在路上。
+
+参考链接:
+[https://english.kyodonews.net/news/2022/04/2660c857a013-over-140-economies-to-face-outlook-downgrade-due-to-russias-war-imf.html](https://english.kyodonews.net/news/2022/04/2660c857a013-over-140-economies-to-face-outlook-downgrade-due-to-russias-war-imf.html)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

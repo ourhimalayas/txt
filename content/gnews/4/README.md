@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：买火能祛邪，是希望
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347530/)
+## 七哥金句：GCLUBS会员都有着共同的一个使命
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347645/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片2-1.jpg)
 发布：枫叶红了
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

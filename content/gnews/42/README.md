@@ -2,36 +2,21 @@
 ---
 
 
-## 突发：中共两列火车发生碰撞 9节车厢坠落桥下
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2346086/)
+## 爆料｜郭文贵分析 中共攻打台湾 灭亡是日本
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346400/)
 
-作者：：香草山教育部-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-墙内媒体4月14日报道，当天下午1时，中共国两列货运火车在行驶至大秦铁路途经天津市蓟州区的铁路段时发生了剧烈的碰撞，其中部分车厢滚落至铁路桥下。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-29.png)
+郭文贵于台北14日晚间[直播](https://gettr.com/post/p15a3qt15e1)称，中共攻台，美军一定轰炸中共军事基地。此外，他表示“打得是台湾，灭得是日本”中共出兵攻打台湾，若台湾失守，日本就完了。郭分析日本、中共军力，他表示日本军事实力远高于中共，若日本出兵中共将惨败。他分析认为，中共可能五月对台军事行动。
 
-据了解，此次事故发生在大秦铁路413公里600米处，两列运煤火车发生相撞后，导致其中一列火车9节车厢坠落桥下，7节车厢发生侧翻。网传视频显示，中共的一列货运火车行驶在高架桥上，突然中间有几节车厢脱轨，掉到了下方空旷的地上，腾起大量烟雾。事故原因目前仍在调查中。
+依照目前国际形式，郭文贵认为中共撑不过20大，他不相信中共还会有20大。港币他认为今年年底、明年年初将会崩塌。欧盟国家有可能会对中共撤回大使馆。
 
-此前，郭文贵先生曾在直播中指出，中共疫苗灾难将在今年五月份全面爆发，届时，空运、铁运等大型的事故灾难将会频繁发生。此次的火车相撞事故亦或与疫苗次生灾难相关。
+郭提到新中国联邦愿景，未来可能让新疆、西藏、香港、台湾，甚至是广东独立，实施联邦制度。
 
-新闻链接1：[http://124.133.228.83/articleContent/4399\_1003395.html](http://124.133.228.83/articleContent/4399_1003395.html)
+* * *
 
-新闻链接2：[https://i.ifeng.com/c/8FCwPpisCpl](https://i.ifeng.com/c/8FCwPpisCpl)
-
-视频：[https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4](https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4)
-
-编辑/审核/发稿：Bronx Bombers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
