@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 5:50 PM (UTC)`
+
+04.14.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group11/origin/2022/04/14/17/1bdd8397-926f-cbf5-94b8-88aa090f99c9/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/14/2022 4:46 PM (UTC)`
 
 4/14/2022 Miles Guo: Most of Taiwan's military and Intelligence Services have been bought off by the CCP; the drones purchased by Taiwan are indeed made in Communist China!<br/><br/>4/14/2022 文贵直播：台湾的军队以及情报部门绝大多数已被CCP收买，台湾的无人机来自中共国！<br/>
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 4/10/2022 Miles Guo: Thanks to the fellow fighters from mainland China and those inside of the CCP for risking their lives to provide with the New Federal State of China key classified information and military intelligence about the CCP! You will always be regarded as the number 1 contributor to the New Federal State of China.<br/><br/>4/10/2022 文贵直播：感谢体制内和国内战友们冒着生命危险给新中国联邦提供的关于中共的重要机密信息和军事情报，你们永远是新中国联邦的第一功臣！<br/>
 ![img](https://media.gettr.com/group13/getter/2022/04/14/04/696b7a2e-17ed-f9d8-f005-954fc3a6fde9/out.jpg)
-
----
-
-`@miles 4/14/2022 3:42 AM (UTC)`
-
-4/10/2022 Miles Guo: The New Federal State of China is going to establish a solid economic foundation for the Chinese people, give them faith, build the image of Chinese people internationally, and let them learn about the thousands of years of the Western civilization and democracy. The Chinese people will either be doomed, or they will be saved by the New Federal State of China.<br/><br/>4/10/2022 文贵直播：新中国联邦要为中国人建立经济基础、让中国人有信仰、树立中国人的国际形象、让中国人学习西方千年的文明和民主；中国人要么万劫不复，要么被新中国联邦拯救<br/>
-![img](https://media.gettr.com/group31/getter/2022/04/14/03/04e34b90-7141-b59e-6055-806b0b68c0c9/out.jpg)
 
 ---
 
