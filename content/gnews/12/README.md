@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦旭日初升，中共独裁者日薄西山（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342320/)
+## 比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342339/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
