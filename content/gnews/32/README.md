@@ -2,10 +2,10 @@
 ---
 
 
-## 国际社会对俄罗斯发起新一轮经济制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343788/)
+## 永不放弃为新闻自由而战，比利时首相悼念遇害记者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343789/)
 
-作者：澳喜 – 追着曙光跑，纽约磐石农场 – 在远方，华盛顿DC农场-自由信仰
+作者：雅典娜农场 – 文泓
 
 
 
@@ -13,23 +13,19 @@
 
 
 
-当地时间4月12日，外媒报导，日本政府宣布将冻结俄罗斯398名个人和28个团体的资产，作为对莫斯科当局的新一轮经济制裁。其中，为了杜绝制裁行动中可能存在的漏洞，特别将政府核心家庭成员纳入制裁之列，其中包括「普京的两个女儿玛丽亚和卡捷琳娜，以及俄罗斯外长拉夫罗夫的妻子」。
+4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-116.jpg)
+该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
 
-此外，日本出于与七国集团统一步调的考量，自本月19日起，将禁止从俄罗斯进口木材、机械和包含伏特加在内的酒精饮料，这也是岸田文雄政府首次对莫斯科实施的进口禁令。同时，俄罗斯最大的联邦储蓄银行和最大的私人商业阿尔法银行也是日本政府的主要制裁对象。另外，日本将从5月12日起禁止该国任何机构或企业参入新的对俄投资项目。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture-28.jpg)
-与此同时，美国总统拜登也敦促印度总理莫迪不要再继续增加对俄罗斯石油和天然气的采购。拜登总统强调，加快或增加对俄罗斯能源和其他商品的进口，除了不再符合印度的利益之外，也将阻碍全球维持对俄罗斯的经济制裁行动。
-
-俄罗斯面对全球联手制裁，前财政部长古德林表示，莫斯科当局预计，俄罗斯的经济将在2022年萎缩超过10%，这将成为该国自1991年苏联解体后出现的最大GDP降幅。
+自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
 
 参考链接：
-1. [プーチン氏娘の資産凍結　ロシア産ウオッカ、19日から禁輸　政府](https://news.yahoo.co.jp/articles/42bb928128b0ac5b5fcf37b457c40dea5787771f)
-2. [Biden to Modi: Buying more Russian oil is not in India’s interest](https://www.reuters.com/world/indian-pm-modi-suggests-direct-talks-between-putin-zelenskiy-2022-04-11/)
-3. [俄前財長：經濟將萎縮逾10% 創1991年來最大降幅](https://www.rti.org.tw/news/view/id/2129834)
+[Premier De Croo eert vermoorde VTM-journalist Danny Huwé in Roemenië | Buitenland | hln.be](https://myprivacy.dpgmedia.be/consent?siteKey=Uqxf9TXhjmaG4pbQ&amp;callbackUrl=https%3A%2F%2Fwww.hln.be%2Fprivacy-gate%2Faccept-tcf2%3FredirectUri%3D%252Fbuitenland%252Fpremier-de-croo-eert-vermoorde-vtm-journalist-danny-huwe-in-roemenie~a5bf9366%252F)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-编辑：Irene木木，zhong
-总编/审核：zhong
+总编：zhong
+编辑/审核：飞虹
 校对/发稿：为真不破20
 
 
