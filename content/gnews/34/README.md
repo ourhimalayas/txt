@@ -2,29 +2,35 @@
 ---
 
 
-## 俄乌战局最近消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346735/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2346980/)
 
-作者：文斌
+作者：香草山翻译部
 
-截止当地时间4月13日，俄罗斯部队在乌克兰哈尔科夫市周围的集结和整编还在进行，俄第1坦克军和第20集团军所属部队已经被部署至伊久姆附近，俄军试图以此增援其在伊久姆方向的进攻行动。为此，俄罗斯不得不继续牵制哈尔科夫周围的乌克兰守军。此外，虽然增援部队尚未集结，但俄军还是展开了其在顿巴斯的进攻行动，援军或将在到齐后被投入至当地的战斗中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-10.19.27-AM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-13.png)
 
-另一方面，即使全力依靠炮火攻击，但俄罗斯在北顿涅斯克、波帕斯纳亚以及鲁别日诺耶的进攻仍全数以失败告终。非但如此，乌克兰第30机步旅还反向袭击了斯维特洛达尔西克附近的俄军阵地。而在赫尔松地区，俄军当前只能集中精力改善当地的防御阵地并进行空中侦察，同时加强梅利托波尔的防空措施。但消息显示，乌克兰军队的反击战已经从第聂伯罗彼得罗夫斯克地区进入到了赫尔松地区。目前，俄罗斯别尔哥罗德州边境附近的一座铁路桥被炮火破坏，造成俄军的补给线路受阻。别尔哥罗德当局正在号召当地志愿者加入民兵，用以在夜间协助警察进行安保工作。
+文章仅代表作者本人观点，与Gnews无关
 
-另据乌克兰方的消息显示，乌克兰边防军已经加强了其在德涅斯特河左岸和白俄罗斯边境的安保工作。 而在马里乌波尔市的乌克兰守军依然在奋力抵抗当地俄军的进攻。消息人士认为，俄军对马里乌波尔的包围导致外界无法获得实物证据、采访或检查幸存者，用以核实其在当地的化学武器使用情况。
+视频参看：
+[2022.04.14早 《NFSC新闻》](https://gettr.com/streaming/p159txd5ed8)
+[2022.04.14早《NFSC新闻访谈》](https://gettr.com/streaming/p15aepqa6c8)
 
-而乌克兰国防情报局也披露道，俄罗斯军队的士气依然处于低迷状态：一来，莫斯科当局先前承诺的参战财政奖励并没有如期交付给一些部队；二来，大量俄罗斯士兵的尸体被运回国内，导致相当一部分俄军拒绝参加战斗。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-更多消息，请持续关注本节目的后续报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-参考链接：[https://liveuamap.com/](https://liveuamap.com/)
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编/编辑/审核：Irene木木
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
 
  
 

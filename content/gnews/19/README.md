@@ -2,35 +2,20 @@
 ---
 
 
-## 俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2347643/)
+## 樱花时政┃俄罗斯停止石油数据发布
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16499717521.png)路透社在油管本视频的截屏
-据路透社和多家媒体4月14日报道，莫斯科警告，如果芬兰和瑞典加入北约，就将它们视为敌国。俄罗斯旗舰被乌克兰导弹击中。
+撰稿：东京樱花团/加一颗稻草
 
-周四俄罗斯安全委员会付主席，德米特里·梅德韦杰夫(Dmitry Medvedev) 称，如果芬兰和瑞典加入北约，俄罗斯将在波罗的海加强和扩大领土和空军。他还提到了核威胁：“不再讨论波罗的海的任何无核状态——必须恢复平衡”。
+4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
+自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
 
-作为普京的主要策略制定者，梅德韦杰夫提到在欧洲飞地使用超高音速和核导弹的可能性。他同时希望芬兰和瑞士这两个邻居有 “基本常识”，不要加入北约。否则就会受到超音速导弹轰炸的影响。
+消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
 
-俄罗斯在波罗的海有一个夹在波兰和立陶宛之间的加里宁格勒（Kaliningrad）飞地。莫斯科已经在俄乌战争开始时，向飞地运送了核武器。立陶宛说，俄罗斯的核威胁不是第一次。
-
-芬兰总理萨那马林 (Sanna Marin) 称，将在下周决定是否加入北约。芬兰和瑞士两国与俄罗斯有超过1300公里的临界线。
-
-另据乌克兰消息，俄罗斯的旗舰导弹巡洋舰，莫斯科号被乌克兰导弹袭击中。在其引起大火后撤离。俄罗斯国防部证实，这艘船 “严重受损”。这艘旗舰上有许多巡航导弹，每一枚导弹都可能导致数十至数百乌克兰人丧生。
-
-乌克兰前总统彼得罗·波罗申科（Petro Poroshenko）率领的军队成功地用导弹袭击了俄罗斯精锐战舰。他说，“我认为，这是对克里米亚的未来进行审议的第一步，因为这艘旗舰的基地是克里米亚”。他言外之意可能是，克里米亚的 “解放”。
-
-2014年，俄罗斯占领克里米亚。同年，俄罗斯支持的乌克兰领导人维克托·亚努科维奇（Viktor Yanukovich）在暴力抗议中逃离乌克兰后，波罗申科当选乌克兰总统。2019年，波罗申科被现任总统泽伦斯基取代。在俄罗斯2月底入侵乌克兰之前，泽伦斯基与波罗申科和解并取消了对他的叛国指控。波罗申科返回基辅并与总统一起与对抗俄罗斯。
-
-*责编：白夜*
-
-[https://www.cnbc.com/2022/04/14/russia-ukraine-live-updates.html](https://www.cnbc.com/2022/04/14/russia-ukraine-live-updates.html)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

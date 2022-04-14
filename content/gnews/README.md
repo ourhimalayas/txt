@@ -15,136 +15,136 @@
 
 ---
 
-### [4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨](/content/gnews/1/README.md)
+### [上海男人吴征天天让他老婆杨澜去找钥匙](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [汉人活的不如新疆西藏香港台湾人有骨气（二）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [汉人活的不如新疆西藏香港台湾人有骨气（一）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [印度计划向俄增加20亿美元货物出口](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [共产党杀鸡取卵釜底抽薪卖掉中华儿女所有子孙的未来（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [美国宣布再向乌克兰提供7.5亿美元武器](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [20220414郭文贵乱聊直播 ： 指望世界会救中国那是白日做梦中国人只能自已救自已](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/14/2022 文贵直播：广东叶家势力已被习灭；若台湾守不住，日本就完了；新中国联邦人是未来最有身份、最受尊重、最安全和最有前途的中国人，港币可能在今年年底或明年年初崩塌](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/14/2022 文贵直播：俄罗斯所谓的&#8221;黑海之神&#8221;导弹巡洋舰被两个半导弹击沉了，这对改变整个世界军事政治格局意义大了去了](/content/gnews/2/README.md)
+### [鉴于印度对俄立场，德国在纠结是否邀请莫迪参加G7峰会](/content/gnews/9/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220414郭文贵乱聊直播 ：CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220414郭文贵乱聊直播 ：台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [雅典娜时报-第263期](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国再次动用《国际紧急经济权力法》制裁违犯者](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [DC大中华时事：台湾近日公布《全民国防手册》强化战时应对能力](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频｜“莫斯科”号的重创给普京造成沉重打击](/content/gnews/6/README.md)
- ` mayflowertranslate`
-
-### [俄乌战争“没想到”系列之八：](/content/gnews/7/README.md)
+### [俄乌战争“没想到”系列之八：](/content/gnews/14/README.md)
  ` 蓝莲花农场`
 
-### [联合国报告称全球17亿人因俄乌战争受到严重打击](/content/gnews/8/README.md)
+### [联合国报告称全球17亿人因俄乌战争受到严重打击](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【粤语配音】2022年4月14日：台湾大部分已经被中共收买](/content/gnews/9/README.md)
- ` MOS香港部`
-
-### [上海市民：不是上海救我们 是我们救上海](/content/gnews/10/README.md)
+### [上海市民：不是上海救我们 是我们救上海](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰](/content/gnews/11/README.md)
+### [樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从“零麻雀”到清零 毛式运动伤害了所有人](/content/gnews/12/README.md)
+### [从“零麻雀”到清零 毛式运动伤害了所有人](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄罗斯停止石油数据发布](/content/gnews/13/README.md)
+### [樱花时政┃俄罗斯停止石油数据发布](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元](/content/gnews/14/README.md)
+### [中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃细胞医药品量产化或将有效治疗癌症](/content/gnews/15/README.md)
+### [樱花时政┃细胞医药品量产化或将有效治疗癌症](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃苏州或成为下一个“动态清零”的城市](/content/gnews/16/README.md)
+### [樱花时政┃苏州或成为下一个“动态清零”的城市](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤](/content/gnews/17/README.md)
+### [中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议](/content/gnews/18/README.md)
+### [樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中](/content/gnews/19/README.md)
+### [俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃中共的严厉封城造成巨大灾难](/content/gnews/20/README.md)
+### [樱花时政┃中共的严厉封城造成巨大灾难](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃英国和欧盟扩大制裁俄罗斯和亲俄份子](/content/gnews/21/README.md)
+### [樱花时政┃英国和欧盟扩大制裁俄罗斯和亲俄份子](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [五月花简报（04/14/2022）](/content/gnews/23/README.md)
+### [五月花简报（04/14/2022）](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄罗斯称有更多跨境攻击 威胁要打击 “决策中心”](/content/gnews/25/README.md)
+### [俄罗斯称有更多跨境攻击 威胁要打击 “决策中心”](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/26/README.md)
+### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄罗斯拒绝乌克兰交换战俘的要求](/content/gnews/27/README.md)
+### [俄罗斯拒绝乌克兰交换战俘的要求](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/28/README.md)
+### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/29/README.md)
+### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年4月14日郭先生大直播文字同步精要](/content/gnews/30/README.md)
- ` 焦點20分`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月14日早](/content/gnews/31/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月14日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台](/content/gnews/32/README.md)
+### [面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台](/content/gnews/35/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共是如何迫使中国人仇视美国的？ （二）](/content/gnews/33/README.md)
+### [中共是如何迫使中国人仇视美国的？ （二）](/content/gnews/36/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [俄乌战局最近消息汇总](/content/gnews/34/README.md)
+### [俄乌战局最近消息汇总](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [台湾人民危在旦夕](/content/gnews/35/README.md)
+### [台湾人民危在旦夕](/content/gnews/38/README.md)
  ` 秘密翻译组-原创组`
 
-### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/36/README.md)
+### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/37/README.md)
+### [视频文编|「音乐灭共」by 威廉王1](/content/gnews/40/README.md)
+ ` KarmaLabs`
+
+### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年04月14日七哥乱聊直播速记](/content/gnews/38/README.md)
+### [2022年04月14日七哥乱聊直播速记](/content/gnews/42/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国及世界疫情简报（04-14-2022）](/content/gnews/40/README.md)
- ` 波士顿五月花农场`
-
-### [有声|田纳西州参议院立法允许伊维菌素用于新冠治疗](/content/gnews/41/README.md)
+### [有声|田纳西州参议院立法允许伊维菌素用于新冠治疗](/content/gnews/43/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|上海确诊病例多数为轻症 重症九人](/content/gnews/42/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|四国总统访基辅 调查战争犯罪](/content/gnews/43/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|阻中共扩张太平洋势力 澳高官出访所罗门群岛](/content/gnews/44/README.md)
+### [有声|上海确诊病例多数为轻症 重症九人](/content/gnews/44/README.md)
  ` 【🌹玫瑰新闻】`
 
 ### [认定种族清洗或种族灭绝意义重大](/content/gnews/45/README.md)

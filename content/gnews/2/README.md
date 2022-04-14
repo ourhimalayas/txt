@@ -2,10 +2,19 @@
 ---
 
 
-## 4/14/2022 文贵直播：俄罗斯所谓的&#8221;黑海之神&#8221;导弹巡洋舰被两个半导弹击沉了，这对改变整个世界军事政治格局意义大了去了
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2347935/)
+## 汉人活的不如新疆西藏香港台湾人有骨气（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348098/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
