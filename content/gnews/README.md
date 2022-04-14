@@ -15,77 +15,77 @@
 
 ---
 
-### [樱花FM┃美国“授权撤离”驻上海总领馆](/content/gnews/1/README.md)
+### [樱花FM┃郭文贵先生2022年4月9日盖特视频（5分34秒）全文字版](/content/gnews/1/README.md)
  ` 樱花FM`
 
-### [樱花FM┃是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/2/README.md)
+### [樱花FM┃起来吧，中国人！](/content/gnews/2/README.md)
  ` 樱花FM`
 
-### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/3/README.md)
+### [樱花FM┃推翻中共的逻辑陷阱](/content/gnews/3/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃驯化教育? 中共防疫被指是服从性训练 民众需觉醒](/content/gnews/4/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃美国“授权撤离”驻上海总领馆](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃是人还是病毒？极度不满网友：饿死也算清零？!](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/7/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [樱花FM┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/4/README.md)
+### [樱花FM┃捕鱼期临近 日俄拟启动鲑鱼和鳟鱼的渔业谈判](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [文·贵天成——文贵先生谈“默克尔”（二）](/content/gnews/5/README.md)
+### [文·贵天成——文贵先生谈“默克尔”（二）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花FM┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/6/README.md)
+### [樱花FM┃日菲举行首次外长防长会议 全面强化军事合作应对中共](/content/gnews/10/README.md)
  ` 樱花FM`
 
-### [2022年4月14日大直播速记精萃](/content/gnews/7/README.md)
+### [2022年4月14日大直播速记精萃](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [俄乌战局最近消息汇总](/content/gnews/8/README.md)
+### [俄乌战局最近消息汇总](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [有声|俄乌战局最近消息汇总](/content/gnews/9/README.md)
+### [有声|俄乌战局最近消息汇总](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [樱花FM┃上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！](/content/gnews/10/README.md)
+### [樱花FM┃上海封城变炼狱：老人拉板车运术后妻子回家，仰天悲鸣！](/content/gnews/14/README.md)
  ` 樱花FM`
 
-### [台湾人民危在旦夕](/content/gnews/11/README.md)
+### [台湾人民危在旦夕](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/12/README.md)
+### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [有声|郭先生谈人生、性情与人类的未来](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/14/README.md)
+### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯威胁如瑞典芬兰加入北约要部署新的核设施](/content/gnews/15/README.md)
+### [俄罗斯威胁如瑞典芬兰加入北约要部署新的核设施](/content/gnews/18/README.md)
  ` 波士顿五月花农场金融部`
 
-### [有声|爱立信无限期暂停俄罗斯业务](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [Elon Musk打算以410亿美元收购推特](/content/gnews/17/README.md)
+### [Elon Musk打算以410亿美元收购推特](/content/gnews/19/README.md)
  ` 银河歌舞厅`
 
-### [马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场](/content/gnews/18/README.md)
+### [马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美国最新人权报告 重申中共的种族灭绝和反人类罪](/content/gnews/19/README.md)
+### [有声|美国最新人权报告 重申中共的种族灭绝和反人类罪](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [埃隆-马斯克提出以430亿美元的现金收购Twitter](/content/gnews/20/README.md)
+### [埃隆-马斯克提出以430亿美元的现金收购Twitter](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|拜登称：俄罗斯在乌克兰犯下种族灭绝罪](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/22/README.md)
+### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话](/content/gnews/23/README.md)
+### [“普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
-
-### [有声|前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [美国及世界疫情简报（04-14-2022）](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
