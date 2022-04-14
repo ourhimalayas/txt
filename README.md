@@ -15,101 +15,101 @@
 
 ---
 
-### [上海市委书记李强亲民秀遭上海市民痛骂](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [2022年4月13日郭先生盖特 — 视频1「6分03秒」](/content/gnews/1/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [拿习近平万亿美元交易做出台费的普京在乌克兰虚晃一枪](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
+### [俄罗斯称爆炸导致黑海旗舰瘫痪，乌克兰称是导弹袭击](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [当前强制核酸的城市每个人都有正当防卫的权利](/content/gnews/3/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;新冠疫苗异常反应赔偿金申请后续](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花FM┃岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧](/content/gnews/4/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃日本宣布5项对俄追加制裁措施](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [每日快报：前白宫国安高官称习近平的底线是防止普京失去权力](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频|新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/4/README.md)
- ` MOSVIDEO`
+### [墙内热点新闻](/content/gnews/7/README.md)
+ ` 澳喜农场`
 
-### [大直播后记：新中国联邦和中共国势力此消彼长](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
+### [美联储会议纪要揭十年最严控制措施、股市即将崩塌](/content/gnews/8/README.md)
+ ` GTV News Talk`
 
-### [【乌克兰救援】04/04/2022 日本自由媒体人说：很吃惊！竟然还有这样的中国人！](/content/gnews/6/README.md)
+### [有声|郭先生谈战友在乌克兰前线救援的巨大意义](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|中共进行极限压力测试 并制造经济灾难、毁掉美元](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|佩洛西染疫和蔡英文密接的背后原因](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [上海市委书记李强亲民秀遭上海市民痛骂](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花FM┃中共正在进行第二次文化大革命](/content/gnews/7/README.md)
+### [耶伦喊话中共国：帮助阻止俄的侵乌战争 否则将失去世界地位](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [拿习近平万亿美元交易做出台费的普京在乌克兰虚晃一枪](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [当前强制核酸的城市每个人都有正当防卫的权利](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [樱花FM┃郭文贵先生2022年4月8日盖特视频（6分20秒）全文字版](/content/gnews/16/README.md)
  ` 樱花FM`
 
-### [樱花FM┃战友怎么才能避免被喝茶](/content/gnews/8/README.md)
+### [樱花FM┃中共正在进行第二次文化大革命](/content/gnews/17/README.md)
  ` 樱花FM`
 
-### [樱花FM┃美国制裁将让海外资产清零 中共专家警告须提前应对](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [樱花FM┃枪口抬高一寸](/content/gnews/10/README.md)
- ` 樱花FM`
-
-### [凌晨上海一母亲绝望中向邻居求退烧药](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜登授权向乌克兰提供8亿美元额外援助](/content/gnews/12/README.md)
+### [拜登授权向乌克兰提供8亿美元额外援助](/content/gnews/18/README.md)
  ` 美国政要直译推`
 
-### [封城导致医院瘫痪，上海市民被逼转向网上求医](/content/gnews/13/README.md)
+### [上海疫情再回升 公安局警告抵制封控者必严处](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [突破：俄纳粹军重新集结在乌东地区,一场血战即将开始](/content/gnews/14/README.md)
- ` 战云长天时评`
-
-### [上海疫情再回升 公安局警告抵制封控者必严处](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [疫苗之殃](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [秘翻在线：日本厚生省公布5-11岁儿童疫苗副作用报告](/content/gnews/17/README.md)
+### [秘翻在线：日本厚生省公布5-11岁儿童疫苗副作用报告](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用](/content/gnews/18/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚](/content/gnews/19/README.md)
+### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;加强针康希诺后副作用](/content/gnews/20/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;加强针康希诺后副作用](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [民生集萃——疫情导致服装行业破产（2022.4.14）&#8211;正式告别服装行业](/content/gnews/21/README.md)
+### [民生集萃——疫情导致服装行业破产（2022.4.14）&#8211;正式告别服装行业](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美证交会加压中概股企业，预摘牌名单再添12家](/content/gnews/22/README.md)
+### [美证交会加压中概股企业，预摘牌名单再添12家](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/23/README.md)
+### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国和欧盟追加对乌克兰军事援助](/content/gnews/24/README.md)
+### [美国和欧盟追加对乌克兰军事援助](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/25/README.md)
+### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/26/README.md)
+### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/27/README.md)
+### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/29/README.md)
+### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [禁止化学武器组织关注俄军在马里乌波尔使用化武的报道](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/31/README.md)
+### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [苹果MacBook全球唯一代工厂因中共的清零政策而被迫关闭](/content/gnews/32/README.md)
- ` 蓝莲花农场`
 
 ### [拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/33/README.md)
  ` 蓝莲花农场`
@@ -120,14 +120,14 @@
 ### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/36/README.md)
+### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/36/README.md)
+ ` 秘密翻译组-原创组`
+
+### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/37/README.md)
+### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/38/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/39/README.md)
  ` NFSC News`

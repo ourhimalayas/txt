@@ -2,33 +2,32 @@
 ---
 
 
-## 美财长警告各国若破坏西方对俄制裁将面临严重后果
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2342475/)
+## 美证交会加压中概股企业，预摘牌名单再添12家
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342701/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-4.jpg)美证交会加压中概股企业，预摘牌名单再添12家
+据美国之音4月14日报道，美国证券交易委员会（SEC）4月12日宣布将微宏动力、中汽系统等12家中概股企业列入除名观察名单，并下令这些企业必须在5月3日之前提交证据证明自己满足了上市的条件。
 
-4月13日，美国财政部长耶伦（Janet Yellen）表示，不谴责俄罗斯对乌克兰发动“令人发指战争”并想借此谋利的国家是短视近利，若破坏西方对俄罗斯实施的制裁，它们将面临严重后果。
+从今年3月8日到31日，SEC先后将百济神州、微博、百度等中共国企业列入“除名观察名单”。目前被列入该名单的中共国企业共有23家。如果这些企业在规定期限内不能提供相关证据，就会被转入“确定退市名单”。最新公布的这12家企业是SEC对中共国企业采取的第四批处罚行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-269.jpg)图为美国财政部长耶伦（Janet Yellen）（图片来自早报网）
+长期以来，在美国股市上市的中共国企业不向SEC提供上市公司必须提供的财报信息，在美国国内引起了越来越大的不满。这一情况迫使SEC不得不向中共国企业进一步施压，促使它们遵守SEC审计规则。
 
-据《中央社》报道，耶伦为华府智库大西洋理事会（Atlantic Council）主办的活动所准备的广泛谈话警告说，美国和合作伙伴针对俄国侵略乌克兰而向莫斯科当局和俄罗斯总统普京（Vladimir Putin）实施全面制裁，但美国和合作伙伴对于破坏全面制裁的行动“不会无动于衷”。
+在美国上市的外国公司依法必须向SEC提交文件，证明该公司不受外国政府拥有或掌控，并要求这些企业遵守相关审计标准。这是美国和西方社会的规则，中共在国内无法无天，在国际上也是横冲直撞，从不把他国的法律和规则放在眼里。美国不会允许这种情况一直存在，中共国企业会被一个个清查。随着更多的中概股公布年报，这个名单还会逐步延伸。
 
-耶伦表示，俄罗斯与乌克兰之间的战争重塑了世界经济前景，美国总统拜登（Joe Biden）政府坚决允诺要让俄罗斯对自身的“可怕行径”及违反国际法行为负起责任。
+新闻参考链接：[https://www.voachinese.com/a/us-adds-12-chinese-companies-to-sec-delisting-watchlist-20220413/6527956.html](https://www.voachinese.com/a/us-adds-12-chinese-companies-to-sec-delisting-watchlist-20220413/6527956.html)
 
-她说：“在普京结束他发动令人发指战争之前，拜登政府将跟我们的合作伙伴一同努力，把俄罗斯进一步推向经济、金融和战略孤立。”
+* * *
 
-耶伦还表示，但部分国家依然袖手旁观，或许看到保持跟俄罗斯之间的关系并填补其他国家留下空间的谋利机会，但她没有点名任何特定国家。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-不过，此前美议员曾推出新法案警告中共，若其帮助俄罗斯逃避西方国家的全面制裁，中共国也将面临制裁。
 
-据了解，俄罗斯入侵乌克兰后，迅速遭到全球谴责，但中共拒绝谴责这场战争，并谴责国际社会对俄罗斯的制裁。此外，联合国大会经过表决，暂停俄罗斯在人权理事会的成员国资格。中共选择站在俄罗斯一边，投下了反对票。
+编辑：【英国伦敦喜庄园编辑部】
 
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202204130447.aspx](https://www.cna.com.tw/news/aopl/202204130447.aspx)
-2.[https://www.voachinese.com/a/us-gop-senators-bill-to-prevent-russia-china-coordination-20220317/6490699.html](https://www.voachinese.com/a/us-gop-senators-bill-to-prevent-russia-china-coordination-20220317/6490699.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-总编：老孙
-校对发布：爱放飞
+
 
  
 
