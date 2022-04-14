@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtv_uk 4/13/2022 4:16 PM (UTC)`
+
+Wednesday with Steve K. Bannon 13th April, 2022
+![img](https://media.gettr.com/group44/origin/2022/04/13/16/7a54ec40-dca0-eac4-78da-ee4da4badca2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 9:09 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -147,13 +156,6 @@
 
 4/13/2022  Miles Guo’s GETTR: The persistence of the fellow fighters of New Federal State of China on the rescue frontline in Ukraine has won the recognition of more countries and international organizations; Mr. Guo is always thinking about the safety of the frontline fellow fighters; the NFSC has been taking actions to make the world realize that the Chinese Communist Party is the biggest threat to humanity<br/><br/>4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可；郭先生无时不刻不挂念着前线战友的安危；新中国联邦人用实际行动让世界认识到中共就是人类最大的威胁<br/>
 ![img](https://media.gettr.com/group21/getter/2022/04/13/22/dfb0f549-958e-fd91-b9aa-5fa19884088f/out.jpg)
-
----
-
-`@miles 4/13/2022 10:10 PM (UTC)`
-
-4/10/2022 Miles Guo: In a totalitarian regime, public opinions are easily manipulated by the state propagandas and most people believe what the government tells them. That's why Putin’s internal support rate went up rather than down before the invasion of Ukraine; Now Putin knows that he is losing, and the only way for him to survive is to keep the war going and let more people die.<br/><br/>4/10/2022 文贵直播: 一个国家机器操纵民意的时候，绝大多数老百姓都是相信的，所以战前普京在内部的支持度不降反升；普京知道基本大势已去，要想侥幸得到一线生机，唯有让战争和死亡继续<br/>
-![img](https://media.gettr.com/group38/getter/2022/04/13/22/40367c05-3a0b-fc7c-66f2-a1b70f0080eb/out.jpg)
 
 ---
 
