@@ -2,20 +2,20 @@
 ---
 
 
-## 美国表示对乌克兰的战事援助并不分散美国对抗中共
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345303/)
+## 参议员霍利敦促美国尽快向台湾运送武器
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345432/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6894082-scaled-e1649790884910.jpg)A CH-47 Chinook helicopter crew, assigned to the 25th Combat Aviation Brigade, monitors flight operations over-looking the city of Honolulu while in support of exercise Joint Pacific Multi-Readiness Center 22-01 in Honolulu, Hawaii, Oct. 17, 2021. The JPMRC exercise is a capstone training event that allows 3rd Infantry Brigade Combat Team, 25th Infantry Division, to achieve certification for worldwide deployment while building interoperability with key allies in support of a free and open Indo-Pacific. (U.S. Army photo by Staff Sgt. Timothy Hamlin)
-当地时间4月13日，美国陆军太平洋司令弗林将军表示，随着世界的注意力集中在对乌克兰的援助上，但这并没有分散美国应对中共挑战的注意力和资源投入。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-18.57.28.png)
+当地时间4月13日下午，美国共和党参议员霍利表示，美国必须尽快向台湾运送武器避免为时已晚。
 
-据悉弗林将军近日访问了印太地区盟友的五个国家，包括澳大利亚、菲律宾、新加坡、泰国和马来西亚，他主要向盟国表示美国军队仍然坚持在该地区效力。近日美国专注于欧洲并向乌克兰运送军队武器，因中共在此地的军事扩张，印太地区盟友有天然的担忧。据弗林将军说，该地区的国防官员不断强调美国在此地的重要性，包括美国陆军太平洋军队的各种作用，从救灾到安全援助以及军事训练盟军。
+据悉此前拜登政府批准了一项价值9500美元的台湾武器计划，这是自俄乌战争以来的第二笔类似协议。随着中共国对台湾的剑拔弩张，战争尽在咫尺。上周，霍利提出了《台湾武器出口法》，该法案正在通过加快国会批准和简化行政程序来加快向台湾运送武器。霍利在一份新闻稿中说到，俄乌战争的教训就是乌克兰已经被入侵后造成了损失才去援助，美国不能在印太地区犯同样的错误，所以给台湾快速运送武器，给台湾争取一些时间建立防御并阻止中共的入侵。
 
-美国太平洋司令部将在10月前进行横跨太平洋的十几次演习，包括在关岛、马来西亚、日本和韩国。到目前为止已经完成了五项演习，其中包括在阿拉斯加举办的太平洋多国准备中心轮换。
+台湾外交部对霍利议员的《台湾武器出口法》表达感谢，说这是对”stand with Taiwan“的坚定承诺，以及对2300万台湾人的信任支持。
 
 reference：
 
-[https://breakingdefense.com/2022/04/reassuring-regional-allies-us-army-pacific-not-distracted-by-ukraine-crisis-general/](https://breakingdefense.com/2022/04/reassuring-regional-allies-us-army-pacific-not-distracted-by-ukraine-crisis-general/)
+[https://news.tbs.co.jp/newseye/tbs\_newseye6012823.htm?1649906920242](https://news.tbs.co.jp/newseye/tbs_newseye6012823.htm?1649906920242)
 
 撰稿、发布：骄子
 
@@ -29,7 +29,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,42 @@
 ---
 
 
-## 瑞士总统将于18日访问日本共商俄乌战争及双边关系问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2345347/)
+## 微软称受到中共国的网路攻击
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345483/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-87.png) （图片源自本文链接）
-4月14日时事通信社消息：14日，日本政府宣布，瑞士总统兼外交部长卡西斯将于18日访问日本。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/acastro_170621_1777_0007_v2_0001_2.jpg)
+当地时间4月12日，美国微软公司向用户发出警报，称中共国家黑客团体Hafnium正在进行恶意软件活动和网路威胁。
 
-同一天，将与日本首相岸田文雄和外相林芳正举行会谈，共同讨论俄罗斯入侵乌克兰和加强双边关系。
+据微软消息，Hafnium利用未修补的零日漏洞作为初始载体，以及tarrask这种防御规避恶意软件来向用户隐瞒设备受损状态，Hafnium创建隐藏的任务计划，即使设备多次重启以后也能保留对设备的继续入侵，Windows的任务调度程序帮助其清理痕迹，保证tarrask的恶意活动在磁盘中不会保留。最新的报告还证实Hafnium正在利用Windows子系统内的新漏洞。
 
-信息来源： [スイス大統領が来日へ（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/98bb51447453828dda5a4d0d28963fe6ac8b842a)
+据悉Hafnium是中共国的黑客组织，曾经在2021年导致微软Exchange崩溃，从此次崩溃中收集到的数据被认为是中共政府进行人工智能研究的大数据库。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+reference：
 
+
+
+
+> [Tarrask malware uses scheduled tasks for defense evasion](https://www.microsoft.com/security/blog/2022/04/12/tarrask-malware-uses-scheduled-tasks-for-defense-evasion/)
+
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

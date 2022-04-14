@@ -2,46 +2,34 @@
 ---
 
 
-## 【G时新闻】美国航母和日本防卫队在日本海联合演习
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2345158/)
+## 美国表示对乌克兰的战事援助并不分散美国对抗中共
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345303/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-美国第七舰队周三（4月13日）说，在朝鲜日益增长的核和导弹威胁下，美国和日本一直在日本海进行由美国航母和日本海上自卫队船只参加的联合海军演习。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6894082-scaled-e1649790884910.jpg)A CH-47 Chinook helicopter crew, assigned to the 25th Combat Aviation Brigade, monitors flight operations over-looking the city of Honolulu while in support of exercise Joint Pacific Multi-Readiness Center 22-01 in Honolulu, Hawaii, Oct. 17, 2021. The JPMRC exercise is a capstone training event that allows 3rd Infantry Brigade Combat Team, 25th Infantry Division, to achieve certification for worldwide deployment while building interoperability with key allies in support of a free and open Indo-Pacific. (U.S. Army photo by Staff Sgt. Timothy Hamlin)
+当地时间4月13日，美国陆军太平洋司令弗林将军表示，随着世界的注意力集中在对乌克兰的援助上，但这并没有分散美国应对中共挑战的注意力和资源投入。
 
-据美国第七舰队称，核动力航母林肯号的打击群于上周五开始参与联合演习。据韩国韩联社报道，这是自2017年11月以来美国航母首次部署到朝鲜半岛附近海域。
+据悉弗林将军近日访问了印太地区盟友的五个国家，包括澳大利亚、菲律宾、新加坡、泰国和马来西亚，他主要向盟国表示美国军队仍然坚持在该地区效力。近日美国专注于欧洲并向乌克兰运送军队武器，因中共在此地的军事扩张，印太地区盟友有天然的担忧。据弗林将军说，该地区的国防官员不断强调美国在此地的重要性，包括美国陆军太平洋军队的各种作用，从救灾到安全援助以及军事训练盟军。
 
-人们越来越多地猜测平壤可能进行核试验或在4月15日金日成诞辰110周年之际，在日本上空向太平洋发射洲际弹道导弹。
+美国太平洋司令部将在10月前进行横跨太平洋的十几次演习，包括在关岛、马来西亚、日本和韩国。到目前为止已经完成了五项演习，其中包括在阿拉斯加举办的太平洋多国准备中心轮换。
 
-据自卫队称，从日本出发，装备有宙斯盾防空系统的驱逐舰孔古（Kongou）号和另一艘驱逐舰伊奈兹玛（Inazuma）号参加了周二举行的训练。自卫队在推特上说，这次训练是 “保卫我们的国家，从和平时期开始确保这一地区和平与稳定 ”的努力的一部分。
+reference：
 
-航空自卫队说，其四架F-2战斗机被派往周二的演习。
+[https://breakingdefense.com/2022/04/reassuring-regional-allies-us-army-pacific-not-distracted-by-ukraine-crisis-general/](https://breakingdefense.com/2022/04/reassuring-regional-allies-us-army-pacific-not-distracted-by-ukraine-crisis-general/)
 
-在今年年初以来进行了一连串的弹道导弹发射后，朝鲜于3月24日进行了自2017年11月以来的首次洲际弹道导弹发射，标志着其自2018年4月以来自我暂停的洲际弹道导弹试验的结束。
+撰稿、发布：骄子
 
-据日本防卫省称，最新的导弹被评估为能够飞行超过15000公里，如果按照正常弹道，能够到达整个美国本土。
-
-平壤在1月份暗示，它可能会恢复核试验和洲际弹道导弹试验。它上次进行核试验是在2017年9月。
-
-快评：美国和日本都在亚太海域部署，这篇新闻看上去是为了应对朝鲜的核和导弹发射，实际上大家都明白威慑的是朝鲜背后的中共。
-
-中共打台湾已经箭在弦上，为了这一时刻，郭先生爆料称习太阳已经准备了10年。
-
-中共在穷途末路上狂奔。郭先生在3天前的文贵大直播中说过，朝鲜金家已经知道中共与俄罗斯都完了，他自己肯定无法和美国对抗。接下来金家会被灭。
-
-编辑/上传：一叶
-盖特链接：[https://www.gettr.com/post/p156m77507c](https://www.gettr.com/post/p156m77507c)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
-- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
