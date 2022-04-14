@@ -2,33 +2,33 @@
 ---
 
 
-## 福奇建议个人自主决定COVID的“个人风险”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2343459/)
+## 福奇建議個人自主決定COVID的“個人風險”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2343486/)
 
-据《福克斯新闻》作者：Peter Aitken，2022年4月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1679-e1649910150232.png)2021年12月1日，安东尼-福奇博士在白宫举行的每日简报会上发言。图片来源：Mandel Ngan/AFP 通过 Getty Images
-安东尼-福齐博士建议，随着人们学会与病毒共处，个人将需要自己决定他们个人的事件和COVID-19暴露的风险水平。
+據《福克斯新聞》作者：Peter Aitken，2022年4月10日報道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1679-e1649910150232.png)2021年12月1日，安東尼-福奇博士在白宮舉行的每日簡報會上發言。圖片來源：Mandel Ngan/AFP 通過 Getty Images
+安東尼-福齊博士建議，隨著人們學會與病毒共處，個人將需要自己決定他們個人的事件和COVID-19暴露的風險水平。
 
-“将要发生的是，我们将看到每个人将不得不计算他们想要参加室内晚餐的风险程度，甚至在绿色区域的范围内发挥作用。”福奇周日在参加美国广播公司的“本周”节目时说，“这将是一个人对自己要承担的个人风险的决定。”
+“將要發生的是，我們將看到每個人將不得不計算他們想要參加室內晚餐的風險程度，甚至在綠色區域的範圍內發揮作用。”福奇周日在參加美國廣播公司的“本周”節目時說，“這將是一個人對自己要承擔的個人風險的決定。”
 
-他补充说：“我们正处于这样一个阶段，在许多方面……我们将不得不忍受社区中某种程度的病毒。”
+他補充說：“我們正處於這樣一個階段，在許多方面……我們將不得不忍受社區中某種程度的病毒。”
 
-疾病预防控制中心已将该国大部分地区标记为“绿色区域”，这表明对感染的担忧程度“较低”。疾病预防控制中心建议保持最新的疫苗，如果一个人有症状，就去做检查。
+疾病預防控制中心已將該國大部分地區標記為“綠色區域”，這表明對感染的擔憂程度“較低”。疾病預防控制中心建議保持最新的疫苗，如果一個人有癥狀，就去做檢查。
 
-诸如戴口罩或针对高危人群的额外预防措施，在一个区域被指定为“红色”或“高”风险之前不会启动，但福奇淡化了对感染率大幅上升的担忧以及向该“红色区域”移动的可能性。
+諸如戴口罩或針對高危人群的額外預防措施，在一個區域被指定為“紅色”或“高”風險之前不會啟動，但福奇淡化了對感染率大幅上升的擔憂以及向該“紅色區域”移動的可能性。
 
-福奇赞扬了美国人的疫苗接种和预防水平，但他提醒说，人们需要保持对随着时间推移出现的免疫力减弱的认识。
+福奇贊揚了美國人的疫苗接種和預防水平，但他提醒說，人們需要保持對隨著時間推移出現的免疫力減弱的認識。
 
-文章来源: [https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk](https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk)
+文章來源: [https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk](https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+翻譯：洛杉磯盤古農場 – Mike Li
+校對：洛杉磯盤古農場 – HotPixel
+編輯：洛杉磯盤古農場 – WenXiong
+發布：洛杉磯盤古農場 – 子萍
 
 
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

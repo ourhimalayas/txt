@@ -2,31 +2,27 @@
 ---
 
 
-## 菲律宾自由区针对数字货币和区块链公司制定新法规
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343400/)
+## 澳大利亚对俄罗斯国有企业实施更多制裁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2343444/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+#### 了解澳洲生活点滴， 带您走进澳洲
 
 #### 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Cryptocurrency-in-the-Philippines-Outlook-for-Foreign-Investors.jpg)图片来源：ENTERPH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/202108061653-main.cropped_1628243625.jpg)图片来源：VOI
 
 
-根据COINGEEK4月14日报道，菲律宾经济区巴丹正在寻求成为该国的数字货币和区块链中心，并通过了一项允许当地监管机构监督该行业的新法规。
+根据CNA 4月14日报道，澳大利亚周四对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
 
-在最近的一份公告中，巴丹自由港区（FAB）透露，第11659号共和国法案的通过为该生态区成为一个拥抱新兴金融技术市场的离岸金融中心铺平了道路。
+澳大利亚外交部长玛丽斯·佩恩在一份声明中表示，制裁还将扩大到电子公司Ruselectronics（负责生产约80%的俄罗斯电子元件）以及俄罗斯铁路公司。
 
-以其新的身份，巴丹自由港区管理局将能够对从事人工智能、网络安全、虚拟现实、物联网和智能城市等行业的本地和外国商业实体进行许可、注册、监督和审批。
+俄罗斯表示在乌克兰发起了“特别军事行动”，并指责乌克兰造成了平民死亡以及基辅诋毁俄罗斯的武装部队。
 
-巴丹自由港区管理局现在还将负责监督巴丹自由区内的区块链和分布式账本技术。该自由区是菲律宾400多个运营经济区之一。
+澳大利亚现在已经制裁了大约600名个人和实体，包括俄罗斯的大部分银行业和对该国主权债务负责的所有组织。
 
-在努力将经济区作为区块链友好的目的地进行宣传的过程中，FAB在行政长官Emmanuel D. Pineda的带领下，参加了最近结束的AIBC迪拜峰会。来自区块链和数字货币行业的领导人聚集在一起。
+澳大利亚还向乌克兰提供国防设备和人道主义物资，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
 
-为了使巴丹自由港区成为一个对数字货币友好的目的地，菲律宾顶级区块链公司已经合作，旨在发展巴丹区块链城市。
-
-该倡议背后的公司之一Acceptar集团的首席执行官Francis Jimenez评论说：“帮助在菲律宾建立区块链公司将加速加密货币的大规模普及，并吸引该行业的领导者在这里投资和建立基地。”
-
-资料来源：[Philippines: Bataan free zone targets digital currency and blockchain companies with new regulations](https://coingeek.com/philippines-bataan-free-zone-targets-digital-currency-and-blockchain-companies-with-new-regulations/)
+资料来源：[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
 
 发布：*wenly*
 

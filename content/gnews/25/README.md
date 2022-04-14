@@ -2,33 +2,39 @@
 ---
 
 
-## 俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2343399/)
+## 菲律宾自由区针对数字货币和区块链公司制定新法规
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343400/)
 
-**图/文｜CP**
-**发布时间｜14/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/總統出訪遭烏克蘭拒絕-德國政界齊表不滿.jpg)
+#### 【雅典娜快讯】紧贴时代脉搏
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+#### 翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Cryptocurrency-in-the-Philippines-Outlook-for-Foreign-Investors.jpg)图片来源：ENTERPH
 
 
-德媒13日报道，德国总理朔尔茨（Olaf Scholz）对于乌克兰拒绝总统施泰因迈尔的来访而感到“恼火”。但至于他本人是否会接受泽连斯基的邀请而出访基辅，他选择避而不谈。
+根据COINGEEK4月14日报道，菲律宾经济区巴丹正在寻求成为该国的数字货币和区块链中心，并通过了一项允许当地监管机构监督该行业的新法规。
 
-报道认为，德国毕竟是乌克兰最大的支持者之一，而施泰因迈尔是一位受人尊敬的德国总统，基辅的态度令人感到“困惑”。除朔尔茨外，包括其他党派在内的多位德国政要亦对基辅的做法表达不满。
+在最近的一份公告中，巴丹自由港区（FAB）透露，第11659号共和国法案的通过为该生态区成为一个拥抱新兴金融技术市场的离岸金融中心铺平了道路。
 
-其中，以自民党联邦议院副议长库比茨基（Wolfgang Kubicki）及绿党外事政策发言人特里亭（Jürgen Trittin）的反应最为强烈。他们向媒体表示，无法现象一个才刚被选出来的德国国家元首会被定义为不受欢迎的人物。泽连斯基（Volodymyr Zelensky）总统以这样的方式冷落施泰因迈尔是不明智的。并认为，“这对普京来说是一个很大的宣传成果”。如果人们想分裂欧洲人，就只需要按乌克兰总统的样子去做就可以了。
+以其新的身份，巴丹自由港区管理局将能够对从事人工智能、网络安全、虚拟现实、物联网和智能城市等行业的本地和外国商业实体进行许可、注册、监督和审批。
 
-不过，在野党基民盟党主席默尔茨（Friedrich Merz）则认为，拒绝施泰因迈尔来访是乌克兰对德国社民党在俄罗斯问题上的政治取态表达不满。默尔茨表示，“很明显，许多东欧国家对社民党的俄罗斯政策持保留态度，我非常理解这一点”。但他同时批评基辅的赌气决定，他表示，施泰因迈尔毕竟是民主国家的民选国家元首，拒绝他来访是一种外交侮辱。
+巴丹自由港区管理局现在还将负责监督巴丹自由区内的区块链和分布式账本技术。该自由区是菲律宾400多个运营经济区之一。
 
-另外，绿党籍德国外长贝尔伯克（Annalena Baerbock）表示，虽然她本人对此事也感到非常遗憾，但强调德国会继续站在乌克兰一边。
+在努力将经济区作为区块链友好的目的地进行宣传的过程中，FAB在行政长官Emmanuel D. Pineda的带领下，参加了最近结束的AIBC迪拜峰会。来自区块链和数字货币行业的领导人聚集在一起。
 
-德国总统施泰因迈尔4月12日表示，他打算13日与爱沙尼亚、拉脱维亚、立陶宛和波兰总统共同前往基辅会见乌克兰总统泽连斯基，以向外界表达支持乌克兰的立场，可惜，遭到乌克兰方面的拒绝。目前，波兰、立陶宛、拉脱维亚和爱沙尼亚总统已抵达基辅并与泽连斯基会面。
+为了使巴丹自由港区成为一个对数字货币友好的目的地，菲律宾顶级区块链公司已经合作，旨在发展巴丹区块链城市。
 
-來源｜[USnews](https://www.usnews.com/news/world/articles/2022-04-13/scholz-irritated-by-german-presidents-aborted-ukraine-visit)
+该倡议背后的公司之一Acceptar集团的首席执行官Francis Jimenez评论说：“帮助在菲律宾建立区块链公司将加速加密货币的大规模普及，并吸引该行业的领导者在这里投资和建立基地。”
 
-* * *
+资料来源：[Philippines: Bataan free zone targets digital currency and blockchain companies with new regulations](https://coingeek.com/philippines-bataan-free-zone-targets-digital-currency-and-blockchain-companies-with-new-regulations/)
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

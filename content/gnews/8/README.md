@@ -2,44 +2,19 @@
 ---
 
 
-## 推特一股东起诉马斯克：太晚披露其推特股份
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2343611/)
+## 樱花FM┃美国驻华使团关于旅行警告和授权撤离的声明
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2343664/)
 
-翻译：噜噜咪
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.png)
+伯恩斯大使以及国务院和使团的其他官员已直接向中共国官员提出了我们对疫情和中共国管控措施的关切，我们也已将自愿撤离的决定通知了他们。根据美国国务院2022年4月8日的旅行警告，由于当地法律的任意执行以及新冠疫情相关的限制，美国公民被要求重新考虑前往中共国的旅行。此外，由于新冠疫情相关的限制，其中包括父母与孩子分离的风险，美国公民不应前往中共国的香港特别行政区、吉林省和上海市。我们正在向中共国各地的美国公民群体提供支持。受当地新冠疫情管控措施影响，上海的领事处目前对公众关闭，将在获准后尽快对公众开放。不过，领事馆的工作人员仍每天24小时在值，为美国公民提供紧急服务。 他们还获得美国驻华大使馆成立的一个团队的补充性支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+文字版原文：[美国驻华使团关于旅行警告和授权撤离的声明](https://china.usembassy-china.org.cn/zh/u-s-mission-china-statement-on-travel-advisory-and-authorized-departure-zh/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-274.jpg)特斯拉首席执行官埃隆·马斯克出席位于德国格伦海德的特斯拉柏林勃兰登堡工厂的开幕仪式
+*编辑：东京樱花团/小老虎
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
 
-一位推特的股东起诉了埃隆·马斯克，声称由于没有尽快披露他在这家社交媒体公司的股份，这位特斯拉CEO让推特的股价下跌。
-
-据彭博社首先报道，该诉讼是由马克·贝恩·拉塞拉于周二在曼哈顿联邦法院提起。诉讼称马斯克被要求在3月24日前披露他在推特的股份，但他直到4月4日才披露。当马斯克披露他在推特的股份时，该公司的股价暴涨27%。
-
-据拉塞拉称，在3月14日其持股比例超过5%的门槛后，马斯克有10天时间通知证券交易委员会。诉讼认为，在3月24日至4月4日期间卖出推特股票的投资者失去了收益，如果马斯克早点披露他的股份，他们本可以实现收益。拉塞拉说，通过推迟披露，马斯克能够继续以较低的价格购买推特的股票。
-
-拉塞拉旨在代表在3月24日至4月1日期间，处置推特股票的一类投资者。
-
-马斯克和推特没有立即回复评论请求。
-
-诉讼是自马斯克公开其在推特的9.1%股份以来所发生的戏剧性事件的最新进展，他在该平台上拥有8000多万粉丝。
-
-这项投资使马斯克成为该公司最大的个人股东，他说他期待着作为该公司董事会成员进行重大变革。但是，推特首席执行官帕拉格·阿格拉瓦尔周日表示，马斯克终究不会加入董事会，这是一个重大的逆转。
-
-新闻来源：[Elon Musk was sued by a Twitter shareholder who alleged he disclosed his stake in the social-media company too late](https://www.businessinsider.com/elon-musk-sued-twitter-stake-disclosure-2022-4)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 

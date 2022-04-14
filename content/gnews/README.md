@@ -15,83 +15,83 @@
 
 ---
 
-### [樱花FM┃德国强制老人接种新冠疫苗提案被否决](/content/gnews/1/README.md)
+### [4月13日文贵大直播要点（图片1-5）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [Nexo 和万事达卡推出“世界第一个”加密资产抵押的信用卡](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国人权报告 &#8220;专制主义威胁着人权和民主&#8221;](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [樱花FM┃不要低估习近平与普京的关系（下）](/content/gnews/4/README.md)
  ` 樱花FM`
 
-### [樱花FM┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/2/README.md)
- ` 樱花FM`
-
-### [《台湾武器出口法》若通过，可加速向台湾交付武器](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [樱花FM┃受俄乌战争影响 全球食品价格创历史新高](/content/gnews/4/README.md)
- ` 樱花FM`
-
-### [美财长：美国及盟友不会对破坏制裁的行动“无动于衷”](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花FM┃德国总统呼吁设立俄战争罪法庭](/content/gnews/6/README.md)
- ` 樱花FM`
-
-### [樱花FM┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/7/README.md)
- ` 樱花FM`
-
-### [推特一股东起诉马斯克：太晚披露其推特股份](/content/gnews/8/README.md)
+### [俄央行在战前就削减了美元储备并增加了人民币和欧元](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM┃墙](/content/gnews/9/README.md)
+### [樱花FM┃不要低估习近平与普京的关系（上）](/content/gnews/6/README.md)
  ` 樱花FM`
 
-### [樱花FM┃法国外长：俄军犯下了“反人类罪”](/content/gnews/10/README.md)
+### [樱花FM┃德国强制老人接种新冠疫苗提案被否决](/content/gnews/7/README.md)
  ` 樱花FM`
 
-### [美国参议院外委会主席梅南德兹（Bob Menendez）等共6位参众议员，传出将于今（14）晚抵达台湾访问](/content/gnews/11/README.md)
+### [樱花FM┃美国驻华使团关于旅行警告和授权撤离的声明](/content/gnews/8/README.md)
+ ` 樱花FM`
+
+### [《台湾武器出口法》若通过，可加速向台湾交付武器](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花FM┃受俄乌战争影响 全球食品价格创历史新高](/content/gnews/10/README.md)
+ ` 樱花FM`
+
+### [美财长：美国及盟友不会对破坏制裁的行动“无动于衷”](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花FM┃德国总统呼吁设立俄战争罪法庭](/content/gnews/12/README.md)
+ ` 樱花FM`
+
+### [樱花FM┃欧盟承诺：血雨腥风中的乌克兰“将踏上加入欧盟之路”](/content/gnews/13/README.md)
+ ` 樱花FM`
+
+### [推特一股东起诉马斯克：太晚披露其推特股份](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花FM┃法国外长：俄军犯下了“反人类罪”](/content/gnews/15/README.md)
+ ` 樱花FM`
+
+### [美国参议院外委会主席梅南德兹（Bob Menendez）等共6位参众议员，传出将于今（14）晚抵达台湾访问](/content/gnews/16/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共病毒来源不明何以出现疫苗?丹麦挪威官员被七哥说服](/content/gnews/12/README.md)
+### [中共病毒来源不明何以出现疫苗?丹麦挪威官员被七哥说服](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [拜登将与莫迪通话，警告勿进口俄能源](/content/gnews/13/README.md)
+### [拜登将与莫迪通话，警告勿进口俄能源](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [辉瑞Moderna和Facebook一定破产马克龙必将上绞刑架](/content/gnews/14/README.md)
+### [辉瑞Moderna和Facebook一定破产马克龙必将上绞刑架](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [台媒披露：美参议员梅嫩德斯（Bob Menendez）和格雷厄姆（Lindsey Graham）今率团抵台将与蔡英文会面](/content/gnews/15/README.md)
+### [台媒披露：美参议员梅嫩德斯（Bob Menendez）和格雷厄姆（Lindsey Graham）今率团抵台将与蔡英文会面](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [福奇建議個人自主決定COVID的“個人風險”](/content/gnews/16/README.md)
+### [福奇建議個人自主決定COVID的“個人風險”](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [只有普京一个真元首参加的冬奥会成为共产党灭亡的开始](/content/gnews/17/README.md)
+### [只有普京一个真元首参加的冬奥会成为共产党灭亡的开始](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [视频|郭先生即将推出两首新歌](/content/gnews/18/README.md)
- ` MOSVIDEO`
-
-### [中共国商业银行房地产和企业要么破产要么在破产的路上](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [视频|中共要求上海为死亡一万人做准备](/content/gnews/20/README.md)
- ` MOSVIDEO`
-
-### [福奇建议个人自主决定COVID的“个人风险”](/content/gnews/21/README.md)
+### [福奇建议个人自主决定COVID的“个人风险”](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|郭先生解读比利时首相接受战友采访的意义](/content/gnews/22/README.md)
- ` MOSVIDEO`
-
-### [澳大利亚对俄罗斯国有企业实施更多制裁](/content/gnews/23/README.md)
+### [澳大利亚对俄罗斯国有企业实施更多制裁](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [菲律宾自由区针对数字货币和区块链公司制定新法规](/content/gnews/24/README.md)
+### [菲律宾自由区针对数字货币和区块链公司制定新法规](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满](/content/gnews/25/README.md)
+### [俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满](/content/gnews/26/README.md)
  ` 關注組`
-
-### [中国封城扰乱进出口贸易，将推升全球通胀](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;新冠疫苗异常反应赔偿金申请后续](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
