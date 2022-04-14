@@ -2,12 +2,10 @@
 ---
 
 
-## 4月14日文贵直播要点（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2347498/)
+## 4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2347551/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9CFE5BA2-095D-4A31-9D0C-1C69597777E9-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/876DCE08-6F9C-4569-9DB8-93A612C9B87E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/23008E63-4414-4E52-BED1-A6CD382B6425-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/EEB970D6-518B-420F-997F-CCB50A27EBF3-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/C2B47223-0044-4484-928B-D32C4688C2EC-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/20E3F4D4-0584-4C6C-A9DF-FD1DDDD3CAAC-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/A5FF8F91-6016-49DE-A9A8-9EA29A8711F4-scaled.jpeg)
-发布：水涨船高
+秘密翻译组-北美组
 
  
 

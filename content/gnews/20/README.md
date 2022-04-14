@@ -2,28 +2,35 @@
 ---
 
 
-## 文贵爆料 4.14：“木马屠城”的悲剧或将在台湾上演
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2346961/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2346980/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SharedScreenshot-1.jpg)
-此次俄乌战事，着实让台湾人欣喜若狂，仿佛美欧和乌克兰缔造的战争神话，就是台湾坚不可摧的壁垒。觥筹交错、夸夸其谈中，他们忘记了台湾早已是刀光剑影、杀机四伏，忘记了真正的危机从来不是来自外部而是内部。其实，一只无形之手早已将”特鲁伊病毒”植入台湾体内，一场“木马屠城”的灭顶之灾就在眼前。
+作者：香草山翻译部
 
-郭文贵先生在4月14日的直播中透露，台湾的情报部门和台湾军队绝大多数都已经被收买了，一旦开战，第一个出卖台湾的，一定是台湾的军方和情报部门。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
 
-台湾最近买了很多无人机，你们知道这些无人机是哪儿造的吗？这些无人机都是大陆制造的。郭先生气愤地说。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-13.png)
 
-大陆把无人机卖给澳大利亚，而台湾军方再从澳大利亚把无人机买回。郭先生补充说。
+文章仅代表作者本人观点，与Gnews无关
 
-现在中共给这些卖台贼大量的美金、黄金，有的给到他们上海的家人，有些给到台湾。不但如此，还向他们许诺，一旦开战，会把他们的家人安顿好，战后会分到台湾的土地。郭先生进一步揭示真相。
+视频参看：
+[2022.04.14早 《NFSC新闻》](https://gettr.com/streaming/p159txd5ed8)
+[2022.04.14早《NFSC新闻访谈》](https://gettr.com/streaming/p15aepqa6c8)
 
-台湾危矣！当美国人发现台湾的无人机是来中国共产党时，他们会气死的。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭先生警告说，我认为中共可能会在四月底或五月攻打台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-参考链接：
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-[2022年4月14日 文贵直播](https://gettr.com/streaming/p15a3qt15e1)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
 
  
 

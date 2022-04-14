@@ -2,84 +2,12 @@
 ---
 
 
-## 新中国联邦咖啡
-` The Potomac View` [轉載自GNews](https://gnews.org/zh-hans/2347349/)
+## 4月14日文贵直播要点（图片1-7）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2347498/)
 
-想象一下一个星期六的早晨
-
-在经历了漫长一周无休止的工作后
-
-你终于有时间陪陪你爱的人
-
-你们一起去一家钟意的咖啡馆
-
-点上你们最喜爱的咖啡和饮料
-
-咖啡师看著你们说：请享用
-
-你想知道还有什么能比这更好的么？
-
-直到
-
-现在，想像你是一个战争难民
-
-逃离家园，寻找庇护所
-
-你被迫和家人分离
-
-在绝望中挣扎，在痛苦中哀伤
-
-在冰天雪地里，你感到被抛弃和迷茫的时候
-
-突然间，你发现一顶巨大的白色帐篷
-
-而且你出乎意料地闻到现磨咖啡的香味
-
-这让你想起了昔日周六早晨的美好时光
-
-你再次感觉到被爱、快乐和充满希望
-
-当每个人都在不停的寻找
-
-最好的咖啡时
-
-最珍贵、最传奇的咖啡
-
-出现在战区
-
-太棒了
-
-这是救援现场唯一一个
-
-有真正的咖啡机和咖啡豆的地方”
-
-“我要在《猫途鹰》上给你们点个赞”
-
-这个白色的大帐篷里都是热情的志愿者们
-
-并且人们彼此照顾
-
-让你有种在家的感觉
-
-特别是当你被滞留在战区的时候
-
-经历著饥饿和思乡之苦
-
-但是你并没有被遗忘
-
-最珍贵和传奇的咖啡不在于
-
-专业的咖啡师或新鲜研磨的咖啡
-
-而是在于深切的慈悲和同情
-
-以德为先，因爱而生的服务
-
-这就是新中国联邦咖啡的故事
-
-* * *
-
-*发布：Theodosia*
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9CFE5BA2-095D-4A31-9D0C-1C69597777E9-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/876DCE08-6F9C-4569-9DB8-93A612C9B87E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/23008E63-4414-4E52-BED1-A6CD382B6425-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/EEB970D6-518B-420F-997F-CCB50A27EBF3-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/C2B47223-0044-4484-928B-D32C4688C2EC-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/20E3F4D4-0584-4C6C-A9DF-FD1DDDD3CAAC-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/A5FF8F91-6016-49DE-A9A8-9EA29A8711F4-scaled.jpeg)
+发布：水涨船高
 
  
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：Gfashion 买给最亲的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347529/)
+## 七哥金句：共产党说了一件事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347553/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片4.jpg)
 发布：枫叶红了
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
