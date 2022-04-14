@@ -2,29 +2,25 @@
 ---
 
 
-## 政策随性，折腾百姓
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2345547/)
+## 加拿大公司使用中共国强迫劳动力
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2345753/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-**4月11日下午，上海浦江镇闵行区政府，   强征1800住户公寓楼作为阳性病例隔离点。要求自主产权住户和租住户们连夜搬走，没有说法。**
+采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+
+据自媒体【真北方】4月11日报道，[加拿大人权联盟]正在要求联邦机构调查多家被指控在中共国使用强迫劳动力生产的加拿大公司。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1749.png)图片来源：WYZX
 
 
+报道称，参与本次诉讼的28个人权团体向加拿大企业监察机构提出了以上申请，并援引澳大利亚战略政策研究所2020年的相关研究报告，证明至少有14个加拿大公司使用了27家中共国工厂的强迫劳动力。
 
+据悉，作为2018年美-墨-加贸易协议的一部分，加拿大政府已承诺将禁止“由强迫劳动所生产商品的进口贸易”。但由于联邦法院上周驳回了一项全面禁止从中共国新疆地区进口所有商品的申请，因此导致了以上人权机构起诉那些与中共国强迫劳动力有关的加拿大公司。
 
+校对编辑：硫酸羟氯喹64
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+发稿：青青
 
+原文链接： [Feds asked to investigate Canadian companies’ ties to slave labour | True North (tnc.news)](https://tnc.news/2022/04/11/feds-asked-to-investigate-canadian-companies-ties-to-slave-labour/)
 
  
 

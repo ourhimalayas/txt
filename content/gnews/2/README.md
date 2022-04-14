@@ -2,24 +2,31 @@
 ---
 
 
-## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
+## 有声|俄罗斯外汇评级降至“选择性违约”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346171/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+4月9日美国媒体报导，标准普尔当天将俄罗斯的外汇评级下调到了“选择性违约”的级别，原因是，他们认为，俄罗斯政府无法，也不愿履行对外国债券持有人承诺的风险在加大。
 
-此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
+由于入侵乌克兰而受到的一系列制裁，俄罗斯可能面临一个多世纪以来的首次主权外部违约。标准普尔表示，未来几周，对俄罗斯的制裁可能会进一步加强，这会阻碍俄罗斯对外国债权人履行义务的意愿和能力。
 
-台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
+本周，俄罗斯安排以卢布偿还一笔本应以美元偿还的国际债券，对此，标普表示，他们不预期投资者能够将这些卢布付款转换成与最初到期金额等值的美元，也不期望政府在30天的宽限期内会转换这些付款。而当他们认为债务人选择性地拖欠了特定类型的义务，但将继续及时履行其他义务时，就会给予选择性违约评级。
 
-来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
+文字版原文：[俄罗斯外汇评级降至“选择性违约”](https://gnews.org/zh-hans/2326195/)
 
-* * *
+音频处理：Fei797
+发稿：Fei797
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,41 @@
 ---
 
 
-## 国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345305/)
+## 民生集萃——疫情下工厂关闭（2022.4.14）&#8211;疫情导致父母中年失业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345372/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-27.png)
-法国记者推特发布消息指，瑞典和芬兰的总理刚刚举行了联合记者会，就两国加入北约的计划进行了会谈。芬兰总理马林表示，加入北约一事她不会给出确切时间表，但很快会在几周内发生。而瑞典可能在六月申请加入北约，瑞典的安全审查预计将在 5 月底之前完成，总理安德森表示，她将等待审查结果出炉后方作出决定。
+#### 雅典娜情报组《民生灾难收集专栏》
 
+整理/编辑：gardeniahu
 
-
-> 🇸🇪[#Sweden](https://twitter.com/hashtag/Sweden?src=hash&amp;ref_src=twsrc%5Etfw) and 🇫🇮[#Finland](https://twitter.com/hashtag/Finland?src=hash&amp;ref_src=twsrc%5Etfw)'s prime ministers have just held a joint press conference outlining plans to join [#NATO](https://twitter.com/hashtag/NATO?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> 🇫🇮 expected to move first. PM Marin says she won't give a timetable but "it will happen quite fast—within weeks, not within months, we will have the discussion" [pic.twitter.com/huEKnkDVUD](https://t.co/huEKnkDVUD)
-> — Dave Keating (@DaveKeating) [April 13, 2022](https://twitter.com/DaveKeating/status/1514198882250596356?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-3.png)图片来源：雅典娜设计组(614)
 
 
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-据外媒所述，芬兰已经准备好在几周内作出加入北约的决定，芬兰总理马林称，加入北约可能倒致俄罗斯采取行动，但不加入北约（结果）也是一样的，并表示“芬兰必须为俄罗斯的各种行动做好准备”。
+帖子原文：
 
-外媒引述民调结果，芬兰民调数据68% 支持加入北约，是俄乌战争发生前的两倍多，仅12%反对加入。而瑞典民调数据则显示，支持加入北约者略多于不支持者。
+疫情下父母中年失业
 
-俄罗斯曾表示，若瑞典、芬兰加入北约，将不再谈论波罗的海无核化。俄罗斯安全委员会副主席德米特里．梅德韦杰夫（Dmitry Medvedev）表示，如果发生这种情况，莫斯科会做出回应，并加强俄军地面及防空部队，在位于芬兰、爱莎尼亚、俄罗斯之间的芬兰湾布署海军。
+因为疫情很多工厂都停了，妈妈说他和爸爸都失业了，在家愁死了找不到工作。我自己去年才毕业，也是好不容易才找到工作，现在发现中年失业才是最难的，没有学历，没有一技傍身，4、50岁本来就不好找工作，现在疫情还这么厉害，年轻人想找工作都很难，别说他们了。大家有什么建议吗？父母这个年纪能干些什么呀，疫情到底么时候结束？
 
-来源｜[衛報](https://www.theguardian.com/world/2022/apr/13/finland-and-sweden-could-apply-for-nato-membership-in-weeks)、[sky](https://news.sky.com/story/russia-threatens-nuclear-escalation-if-sweden-and-finland-join-nato-12589823)
+#疫情下的生活  #失业  #找工作
 
-* * *
+发布于03.26
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+精选评论
+
+哼哼  回复：你会发现父母的父母40， 50那一代也是这个年龄失业的。
+
+糯米    回复：你工作几年会发现我们这一代女生26岁以上工作就已经不好找了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1731.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1732.png)图片来源：小红书
+参考链接:[疫情导致父母中年失业](https://www.xiaohongshu.com/discovery/item/623f0c23000000002103ee7e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904472)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

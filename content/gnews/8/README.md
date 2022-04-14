@@ -2,56 +2,25 @@
 ---
 
 
-## 澳州前总理:俄罗斯侵略乌克兰可能使习近平“有恃无恐”地入侵台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346088/)
+## 樱花时政┃多国总统访乌示团结，乌促德国交付攻击武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2346137/)
 
-据《澳洲天空新闻》 作者：Tyrone Clarke，2022年3月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1754-e1649942422135.png)托尼-阿博特警告说，俄罗斯对乌克兰的入侵可能会使中国国家主席习近平“有恃无恐”地攻击台湾。图片。NCA Newswire / Gaye Gerard
-前总理托尼-阿博特说，俄罗斯总统弗拉基米尔-普京对乌克兰的入侵可能会鼓励中共对台湾采取类似的军事行动。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+波兰总统杜达、爱沙尼亚总统卡里斯、立陶宛总统那乌色达和拉脱维亚总统莱维茨也将于当天乘火车前往基辅，表示对乌总统泽连斯基支持。启程前往基辅之前，上述波兰和波罗的海国家元首于周二晚间在波兰东南部毗邻乌克兰的边境地区举行了一次特别峰会，以表达对乌的声援。站在俄罗斯门口，有着惨痛历史教训的这四个东欧国家担心，一旦乌克兰垮台，下一个就会轮到他们。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-45.png)（图片来源于本文链接）
+4月13日，泽连斯基称舒尔茨访问基辅“依旧是被万众期待的”，乌方期待他做出包括对乌交付重型武器等决定。乌总统顾问表示，“乌克兰人，尤其是马里乌波尔和乌克兰东部的人民的命运将由德国武器来决定，我们希望拿到这些武器，但这些武器并没有到来”。
 
-阿博特先生在纪录片特别节目《竞选揭秘》中告诉澳大利亚天空新闻台。今晚在Foxtel和Flash播出的特别纪录片“The Campaign Uncovered: A Peta Credlin Investigation”中说，欧洲的冲突具有深远的影响，将成为即将举行的联邦选举的一个关键战场。
+信息来源： [波兰波罗的海三国总统访乌示团结，泽连斯基准备与舒尔茨会面促德国交付攻击武器](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220413-%E6%B3%A2%E5%85%B0%E6%B3%A2%E7%BD%97%E7%9A%84%E6%B5%B7%E4%B8%89%E5%9B%BD%E6%80%BB%E7%BB%9F%E8%AE%BF%E4%B9%8C%E7%A4%BA%E5%9B%A2%E7%BB%93%EF%BC%8C%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA%E5%87%86%E5%A4%87%E4%B8%8E%E8%88%92%E5%B0%94%E8%8C%A8%E4%BC%9A%E9%9D%A2%E4%BF%83%E5%BE%B7%E5%9B%BD%E4%BA%A4%E4%BB%98%E6%94%BB%E5%87%BB%E6%AD%A6%E5%99%A8)
 
-澳洲前总理说：“这是一个非常危险的时代，正如许多人所说，在这个时代有1930年代的影子。”
-
-“我们显然看到了现在在东欧发生的事情，这不仅仅是一场遥远的、我们一无所知的人民之间的斗争。”
-
-阿博特先生还发出了一个严峻的警告，如果冲突蔓延到欧洲边界之外，澳大利亚在全球秩序中的安全可能受到威胁。
-
-他在节目中说：“这很容易使习近平冒险，企图占领台湾。”
-
-“这将破坏我们在过去70年里所生活的全球秩序，在这种秩序下，我们享受到了人类历史上最美好的时光。”
-
-随着与中共关系的恶化，澳大利亚的国家安全和国防最近被迫成为政治辩论的焦点。
-
-澳大利亚和美国都表示，在中共入侵的情况下，他们会向这个岛国提供军事支持。
-
-然而，对澳大利亚国家安全更直接的威胁是在3月份实现的，当时所罗门群岛和中共国之间泄露的协议承诺加强两国的安全关系。
-
-该安全协议将允许中共国“根据自己的需要”将军事人员和海军舰艇转移到岛上，一些国防专家说，这可能会导致中共海军基地距离澳大利亚海岸不到200公里。
-
-澳大利亚战略政策研究所执行主任彼得-詹宁斯说，该协议是二战以来最大的“来自该地区的战略问题”。
-
-“从澳大利亚的战略和防御角度来看，这是不可接受的事情，”詹宁斯先生在3月告诉澳大利亚天空新闻。
-
-“它将对澳大利亚东部造成威胁，并为中共国人收集情报提供机会”。
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源: [https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true](https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – HotPixel
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

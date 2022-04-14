@@ -2,28 +2,29 @@
 ---
 
 
-## 网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2345430/)
+## 政策随性，折腾百姓
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2345547/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+**4月11日下午，上海浦江镇闵行区政府，   强征1800住户公寓楼作为阳性病例隔离点。要求自主产权住户和租住户们连夜搬走，没有说法。**
 
-世界冠军拉斐尔·纳达尔（Rafael Nadal)上个月突然出现严重的呼吸困难。3月20日，纳达尔在印第安维尔斯锦标赛的决赛中仅以两盘输给了美国人泰勒·弗里茨（Tayler Fritz )，并在比赛结束时说他呼吸很困难。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-14-alle-12.55.13.png)图片来自网络
-他告诉记者：“我只能说我现在呼吸很困难，我不知道什么原因，当我试图呼吸时，感觉很痛苦，而且非常复杂。”他在印第安维尔斯的史诗般的半决赛中与西班牙人卡洛斯·阿尔卡拉斯(Carlos Alcaraz)进行了三个多小时的比赛时感到胸部疼痛，左脚也有不适。
 
-在与弗里茨的决赛中，纳尔达两次向医疗机构寻求帮助以缓解胸痛，但他在球场上一直觉得不舒服。他说：“老实说，我很伤心，因为我无法参加比赛。”
 
-今年1月纳达尔在他的对手德约科维奇(Novak Djokovic)陷入司法纠纷时曾对媒体说过：“我相信专家了解药品，如果他们让我们接种新冠疫苗，我们就该接种疫苗。”
 
-这位35岁的球员本月从巴塞罗那公开赛退役。据路透社报道，纳达尔在从本月在巴塞罗那举行的ATP赛事中退役后，仍然不确定何时能够重返竞技网球，因为他的肋骨受伤，正在恢复。
 
-简评：曾经极力支持新冠疫苗，相信专家的纳达尔如今身体健康出现了问题。还会有多少像纳达尔这样的运动员会一个个地倒下？也许今后类似的灾难会更多，但愿人们早日醒来。新冠疫苗含有刺突蛋白，正在造成大量的伤亡。
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
 
-参考链接：
-
-[https://www.eventiavversinews.it/la-star-del-tennis-rafael-nadal-si-ritira-dal-barcelona-open-per-problemi-di-salute/](https://www.eventiavversinews.it/la-star-del-tennis-rafael-nadal-si-ritira-dal-barcelona-open-per-problemi-di-salute/)
-
-编辑、上传：Xiao baige
 
  
 

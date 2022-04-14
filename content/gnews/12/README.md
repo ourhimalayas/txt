@@ -2,25 +2,27 @@
 ---
 
 
-## 纽约地铁枪击案造成十余人受伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346021/)
+## 安省废水分析结果表明变种病毒正席卷而来
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2346102/)
 
-作者：文希
+采编：加拿大温哥华扬帆农场 – 青青
 
-据当地媒体4月12日报道，纽约市布鲁克林区当天早晨发生了一起严重的地铁枪击案，已经造成10人中弹，16人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-97.jpg)
-消息显示，一名身穿橙色建筑工地背心的非洲裔男子先是在纽约地铁列车内释放大量烟雾弹，随后，其向车厢内和月台上的乘客连续扫射33枪，造成七名男子和三名女子中弹，另有多名乘客在逃离时踩踏受伤，而这名凶手则在开枪后迅速逃离。现场照片显示，多名华裔也在伤者之列。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-目前，纽约警方已于13日将逃犯弗兰克-詹姆斯抓捕归案，而纽约东区检察官办公室将以“对公共交通系统进行恐怖和其他暴力袭击”为由，对其进行起诉。检察官表示，詹姆斯或将面临终身监禁的惩罚。
+据加拿大CTV新闻4月13日报道，由于安省缺乏足够的新冠病毒检测人员和设施，卫生部门不得不转用包括对包城市生活废水检验结果在内的其它数据来分析病毒传播情况。并通过定期重复采样，来准确计算出废水中的病毒浓度。
 
-参考链接：
-1. [影／纽约布鲁克林地铁爆枪案 10人中弹16伤 现场华人多](https://www.worldjournal.com/wj/story/121470/6234473?zh-cn)
-2. [Suspected Brooklyn subway shooter Frank James arrested: NYPD](https://pix11.com/news/local-news/suspected-brooklyn-subway-shooter-in-nypd-custody-sources/)
+- ![](https://www.ctvnews.ca/content/dam/ctvnews/en/images/2022/4/13/wastewater-covid-1-5859982-1649849022958.jpg)图片来源：[https://toronto.ctvnews.ca](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编/编辑/审核：Irene木木
-校正/发稿：Fei797
+对废水分析的最新数据显示，安省目前的病毒感染人数正在回升，病毒标准化浓度已恢复到去年圣诞节前后的高水平。而在所收集的样本中，有90%以上是传播能力和速度更强的Omicron亚变体。同时，所有公共卫生单位也都出现了同样的疫情峰值，这表明第六波病毒传播潮并不受地域限制。
+
+据悉，安省废水中病毒标准化浓度在2月和3月初曾持续下降，但在政府取消卫生限制措施和配戴口罩规定之后，该数据随后猛然回升。这表明在人们都放松了警惕时，变种病毒却再次席卷而来
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
 
  
 
