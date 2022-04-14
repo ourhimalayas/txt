@@ -15,23 +15,23 @@
 
 ---
 
-### [七哥金句：你没有超级本事，最好别去驾驭它](/content/gnews/1/README.md)
+### [俄国防部称“莫斯科”号导弹巡洋舰沉没](/content/gnews/1/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [七哥金句：你没有超级本事，最好别去驾驭它](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：中国人最大的问题就是害羞](/content/gnews/2/README.md)
+### [七哥金句：中国人最大的问题就是害羞](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：驾驭自己的兰博基尼](/content/gnews/3/README.md)
+### [七哥金句：驾驭自己的兰博基尼](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：当你拥有兰博基尼的时候](/content/gnews/4/README.md)
+### [七哥金句：当你拥有兰博基尼的时候](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [联合国报告称全球17亿人因俄乌战争受到严重打击](/content/gnews/5/README.md)
+### [联合国报告称全球17亿人因俄乌战争受到严重打击](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [七哥金句：人生当你回顾谁跟你在一起](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
 
 ### [【粤语配音】2022年4月14日：台湾大部分已经被中共收买](/content/gnews/7/README.md)
  ` MOS香港部`

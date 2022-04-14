@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：驾驭自己的兰博基尼
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347851/)
+## 七哥金句：中国人最大的问题就是害羞
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347855/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片14.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片15.jpg)
 发布：枫叶红了
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
