@@ -2,42 +2,25 @@
 ---
 
 
-## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
+## 有声｜联合国报告称 朝鲜从中俄购买导弹材料
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2344758/)
 
-翻译：Jenny Ball
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+**2022-04-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-14-163709.jpg)
+据[《大纪元》](https://www.epochtimes.com/b5/22/4/13/n13710899.htm)4月14日报道，联合国最近的一份报告显示，朝鲜不顾国际社会制裁，仍然坚持开发弹道导弹，其必要的零件和材料均来自中共和俄罗斯。
 
+联合国安理会下属的对朝制裁委员会的专家组近日发表年度报告，指2021年朝鲜通过其贸易公司至少4次从中共国一家企业购买不锈钢合金、阀门、泵、轴承等制作导弹所需要的材料和部件，这些都是 2017年联合国对朝鲜制裁决议案限制出口的物品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
-医学页面（MedPage）今天报道：
+调查发现，向中共国辽宁丹东一家企业订购这些材料的人，是朝鲜机械贸易总公司的金钟德。此外，朝鲜军工部还派遣一名叫林龙南的人在2019年至2020年期间，从沈阳购买铝粉等制作导弹固体燃料所需的材料。
 
-一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
+（秘翻新闻 Milojai 编辑报道）
 
-提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
-
-然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
-
-评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
-
-新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
+发布:星星
 
 * * *
-
-评论： Jenny Ball
-审核：文乐      
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

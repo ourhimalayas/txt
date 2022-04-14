@@ -2,28 +2,41 @@
 ---
 
 
-## 台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344721/)
+## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-10.png)
-瑞典国会与欧洲议会访团10日抵台，12日与总统蔡英文视讯会晤，13日与行政院长苏贞昌会面。14日，与立法院长游锡堃会面，本次访问团团长之一“台湾─瑞典国会议员协会”主席欧柏莉（ Boriana Åberg）表示，此次访台的重大意义，是想要告诉国际社会，“瑞典及欧洲坚定支持台湾的主权与独立”。欧柏莉为瑞典现任国会议员，于访台期间公开表态瑞典、欧洲支持台湾主权与独立，于台湾外交史上是重大突破。
+翻译：Jenny Ball
 
-- “台湾─瑞典国会议员协会暨欧洲议会议员联合访团”是由瑞典国会“台湾─瑞典国会议员协会”主席欧柏莉与瑞典籍“欧洲议会”议员魏莫斯共同担任团长
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
 
 
-瑞典国会与欧洲议会访团与行政院长苏贞昌13日会面，访问团团长向苏贞昌表明，本次访台系为传达国际社会对台湾的关心，欧洲将支持台湾捍卫民主自由，民主力量须团结起来支持台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_2022-04-14-16.08.50.jpeg)我们的结论是，很好！中(共)国在生气，(意味)我们正在做对的事。我们信念立场坚定，关于台湾的主权与独立。
-此外，她还提到访问团出发前收到中共威胁，访问团认为引起中共生气，意味着访问团出访是对的事。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
+医学页面（MedPage）今天报道：
 
-郭文贵前段时间直播称，台湾主权将很快被承认。
+一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
 
-来源｜[自由](https://news.ltn.com.tw/amp/news/politics/breakingnews/3893196)
+提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
+
+然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
+
+评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
+
+新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+评论： Jenny Ball
+审核：文乐      
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 

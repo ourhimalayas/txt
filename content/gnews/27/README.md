@@ -2,23 +2,46 @@
 ---
 
 
-## 台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344287/)
+## 没有一分资产和一个喜币七哥自己破产却让无数人赚大钱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2344412/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-25.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国众议院议长裴洛西（Nancy Pelosi）原订10日要访台，后因确诊新冠延期，郭文贵爆料称裴洛西原定出访台湾，后遭中共威胁访台便出兵攻打台湾，故未出行。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8812.61%EF%BC%89%E6%B2%A1%E6%9C%89%E4%B8%80%E5%88%86%E8%B5%84%E4%BA%A7%E5%92%8C%E4%B8%80%E4%B8%AA%E5%96%9C%E5%B8%81%E4%B8%83%E5%93%A5%E8%87%AA%E5%B7%B1%E7%A0%B4%E4%BA%A7%E5%8D%B4%E8%AE%A9%E6%97%A0%E6%95%B0%E4%BA%BA%E8%B5%9A%E5%A4%A7%E9%92%B1%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
 
-台媒接获亲美政坛人士提供消息，表示美国联邦参议院外交委员会主席、民主党籍梅南德兹（Bob Menendez）将率团访台与总统蔡英文会晤，时间就在今（14）日，共计有6名议员。惟台湾外交部未证实，同时新闻报导所列的成员twitter并未透漏相关资讯，消息无法核实。此外，郭文贵于盖特透漏，裴洛西可能随时访台，中共的威胁在国际犹如笑话般存在。
+**郭文贵先生：**说七哥破产了，话又说回来，七哥破不破产能跟你的钱有啥关系呢？是吧？你这要想明白，你跟随七哥不是为了钱。
 
-媒体称本次访台成员有：美国联邦参议院外交关系委员会主席、民主党籍梅南德兹（Bob Menendez）与共和党参议员葛瑞姆（Lindsey Graham）、北卡罗来纳州共和党参议员理查德伯尔（Richard Burr）、内布拉斯加州共和党参议员本萨斯（Ben Sasse）、俄亥俄州共和党参议员罗伯特波特曼（Rob Portman），以及德克萨斯州美国国会议员龙尼·杰克逊（Ronny Jackson）等。
+更重要的，兄弟姐妹们，还有很多条，我其中讲一条。我问你们，人类上出现过一个他这个人破产了，而让无数人赚大钱的人，你见过一个吗？是吧？我就是这几天好多人都跟我说：“七哥，你是人类上第一个，你个人破产却让无数人成为富豪，你这是啥人哪？” 是吧？
 
-来源｜[三立](https://www.setn.com/News.aspx?NewsID=1099945)
+昨天的咱们国内电信公司的一个副老总家里边也都是投资咱G-TV的，也都是买了很多喜币的，他说：“七哥，我从来没觉得我这些年当官弄了三五个亿那是我家钱过，我知道只要我被抓，那钱都被弄走。”他说：“现在我就觉得孩子手里有了喜币就是我们家的钱，它咋也弄不走。”他说：“结果你破产了，我们是真有钱了。”他有200万个币咱这个战友，200万个币呀。
 
-* * *
+我说：“我告诉你，如果七哥有一个币，或者七哥当初爆料革命开始从2015年干到今天，共产党一万二千个警察，查了我五六年，我没有一分资产，我没有一张信用卡，没有一个银行账号。”
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+
+编辑整理：星塵Scheddi；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

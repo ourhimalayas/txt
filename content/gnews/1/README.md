@@ -2,26 +2,23 @@
 ---
 
 
-## 市场收盘：矿业和能源股提振澳交所
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2344903/)
+## 俄罗斯国防工业被制裁 无法继续生产高超音速匕首导弹系统
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2345002/)
 
-#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+**撰稿：日本东京方舟农场 北极**
 
-**翻译/编辑：Rianna**
+据联合新闻报4月14日报道，乌克兰军事和法律研究中心主任亚历山大·穆西延科（Alexander Musienko）表示，西方对俄罗斯国防工业部门实施了额外的制裁，导致俄罗斯无法继续生产匕首（Kynzhal）高超音速飞机导弹系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-12.png)俄罗斯米格-31K战斗机与高超音速匕首导弹。（图片来自联合新闻报）
+匕首高超音速导弹是俄罗斯研发的一种空射高超音速导弹，据称射程超过2,000公里，速度能达到10马赫，该导弹每个飞行阶段都能进行规避动作，无视目前所有的防空和导弹防御系统。它可以携带常规弹头和核弹头，该导弹目前配备在图-22M轰炸机或米格-31战斗机上发射。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/bfff5619045ef142-3.png)图片来源：雅典娜设计组
+3月18日，俄罗斯使用匕首导弹摧毁了乌克兰西部的一个地下武器库，这是俄罗斯首次使用该武器。当地时间3月20日，俄军从里海再次发射匕首导弹击中了乌军位于尼古拉耶夫州（Mykolayivs’ka oblast）的一处大型油料库。
 
+参考链接：
+1. [https://reurl.cc/Qj1g4o](https://reurl.cc/Qj1g4o)
+2. [https://reurl.cc/zM2LAV](https://reurl.cc/zM2LAV)
 
-澳大利亚股市因矿业和能源股反弹，以及美国已达到“通胀峰值”且消费者价格可能很快开始回落。东欧和平希望的减弱也推高了油价，Santos、Beach 和 Origin Energy 等公司也随之走高，而有关中国额外刺激措施的报道提振了铁矿石和大型矿业公司 Rio Tinto 和 Fortescue Metals。科技、房地产信托和电信行业仍处于亏损状态，但其他领域的广泛上涨帮助基准 ASX 200 收高 25 点或 0.3%，至 7479.0。 更广泛的所有普通股上涨 36.5 点，或 0.5%，收于 7772.0，而澳元在当地收盘时从接近 75 美分下跌至 74.39 美分。尽管美联储对利率前景仍持鹰派态度，但市场情绪进一步受益于这样一种观点，即隔夜达到40年新高的美国通胀可能已达到顶峰。OANDA 亚太分析师Jeffrey Halley表示，全年通胀率可能已达到8.5%的峰值，但“快速赚钱永远看涨的 FOMO （Fear of Miss Out）显然希望保持活力。在美联储主席莱尔·布雷纳德（Lael Brainard）表示央行将“迅速”提高利率并使通胀率回到2%之后，隔夜的涨势消退了。但美国期货在当地交易中仍然走高，为澳大利亚交易员带来积极的交易。城市指数分析师Tony Sycamore表示，铁矿石价格反弹至每吨155美元以上也有所帮助，此前有报道称中国当局将再次放宽货币政策以支持其停滞不前的经济。
-
-**新闻来源**：[随着投资者欢呼“通胀高峰”，矿业和能源股提振澳交所](https://www.news.com.au/finance/markets/australian-markets/markets-wrap-mining-and-energy-stocks-boost-asx-as-investors-cheer-peak-inflation/news-story/29ac458ad5a3d7d033dad26777968bbc)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+总编：老孙
+校对发布：Linda
 
  
 
