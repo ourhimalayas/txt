@@ -2,50 +2,35 @@
 ---
 
 
-## 拜登称俄罗斯正在乌克兰实施种族灭绝
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2343348/)
+## 澳大利亚对俄罗斯国有企业实施更多制裁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2343444/)
 
-总统之前提到布查（Bucha）暴行时没有使用这一说法。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-10.png)视频截图
-据《NBC新闻》作者香农·佩蒂皮斯（Shannon Pettypiece）和佐伊·理查兹（Zoë Richards）2022 年 4 月 13 日报道
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-华盛顿——周二，总统乔·拜登（Joe Biden）表示，俄罗斯在乌克兰犯下的暴行相当于“种族灭绝”，这是他首次对总统弗拉基米尔·普京（Vladimir Putin）提出这种指控。
+#### 翻译/编辑：小红帽
 
-拜登在访问爱荷华州期间对记者说：“越来越多的证据表明俄罗斯人在乌克兰所做的可怕事情确实是种族灭绝，而且我们只会越来越多地了解这场破坏。我们会让律师在国际上决定它是否符合[种族灭绝]的条件，但在我看来确实是这样。”
-
-就在上周，当记者问及俄罗斯在布查的行动是否符合这一定义时，拜登没有将这些暴行称为种族灭绝。白宫国家安全顾问杰克·沙利文（Jake Sullivan）当时表示，乌克兰记录的杀戮并未达到美国政府定义的 “种族灭绝” 水平。
-
-但在周二的一次哀叹美国天然气价格飙升的演讲中，他提到了正在发生的“半个地球之外的种族灭绝”，他说这是由“独裁者”犯下的，显然是指普京。
-
-在登上空军一号返回华盛顿之前，拜登向记者明确表示，他之前的言论是针对普京的。
-
-拜登在停机坪上对记者说：“我称其为种族灭绝，因为越来越清楚的是，普京试图消除甚至是做乌克兰人的这一想法。证据越来越多。”
-
-在周二的讲话中，拜登指责普京是最近油价飙升的罪魁。“你的家庭预算，你装满油箱的能力，都不应该取决于一个独裁者是否宣战并在地球另一边实施种族灭绝，”他说。
-
-乌克兰总检察长伊琳娜·维涅迪克托娃（ Iryna Venediktova）本月早些时候表示，随着俄罗斯军队从该地区撤退，410 名平民的尸体被从布查和基辅其他郊区运走。布查的目击者向 NBC 新闻描述了他们所称的俄罗斯军队的任意杀戮。
-
-国务院有一个漫长的内部程序来确定，大规模屠杀是否构成种族灭绝，包括在一段时间内收集证据。美国政府将种族灭绝定义为“针对一个国家、民族、种族或宗教团体的成员，意图全部或部分毁灭的行为” 。
-
-乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyy）之前就称布查的杀戮为种族灭绝，他赞扬拜登周二的言论。
-
-他在推特上写道：“一位真正领导者的真话。”  “直呼其名对于对抗邪恶至关重要。我们感谢美国迄今为止提供的援助，我们迫切需要更多重型武器来防止俄罗斯进一步的暴行。”
-
-泽连斯基敦促联合国对俄罗斯采取行动，坚称莫斯科军队必须对布查和乌克兰其他地方的战争罪行和暴行负责。
-
-联合国秘书长安东尼奥·古特雷斯（António Guterres）本月早些时候在联合国安理会发表讲话时提到了“可能的战争罪”。
-
-他说，“我永远不会忘记在布查遇害的平民的可怕画面，我呼吁立即进行独立调查，以确保有效问责。”
-
-原文链接：
-
-[https://www.nbcnews.com/politics/white-house/biden-calls-putin-actions-ukraine-genocide-rcna24131](https://www.nbcnews.com/politics/white-house/biden-calls-putin-actions-ukraine-genocide-rcna24131)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/202108061653-main.cropped_1628243625.jpg)图片来源：VOI
 
 
+根据CNA 4月14日报道，澳大利亚周四对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
 
+澳大利亚外交部长玛丽斯·佩恩在一份声明中表示，制裁还将扩大到电子公司Ruselectronics（负责生产约80%的俄罗斯电子元件）以及俄罗斯铁路公司。
 
+俄罗斯表示在乌克兰发起了“特别军事行动”，并指责乌克兰造成了平民死亡以及基辅诋毁俄罗斯的武装部队。
 
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
+澳大利亚现在已经制裁了大约600名个人和实体，包括俄罗斯的大部分银行业和对该国主权债务负责的所有组织。
+
+澳大利亚还向乌克兰提供国防设备和人道主义物资，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+
+资料来源：[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,78 +2,75 @@
 ---
 
 
-## 拜登授权向乌克兰提供8亿美元额外援助
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
+## 耶伦喊话中共国：帮助阻止俄的侵乌战争 否则将失去世界地位
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2343148/)
 
-**拜登总统： **
-今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
+翻译：文乐
 
-
-
-> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
-> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
 
 
 
-**国务卿安东尼·布林肯：** 
-随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-273.jpg)美国财政部长珍妮特·耶伦于 2022年4月6日在美国华盛顿国会山举行的众议院金融服务委员会关于“国际金融体系状况”的听证会上作证。路透社/汤姆·布伦纳
 
+路透华盛顿4月13日 – 美国财政部长珍妮特·耶伦周三表示，中共国应该帮助结束俄罗斯在乌克兰的“令人发指的战争”，否则将失去其在世界上的地位，并警告那些试图破坏西方制裁的人将面临经济危机的后果。
 
+耶伦在一次具有里程碑意义的演讲中表示，她“热切”希望中共国利用与俄罗斯的“特殊关系”来说服莫斯科寻求结束冲突，而在战争问题上“袖手旁观”的国家是短视的。
 
-> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
+“世界对中国的态度及其接受进一步经济一体化的意愿，很可能会受到中国对我们呼吁对俄罗斯采取坚决行动的反应的影响，”耶伦在华盛顿的大西洋理事会智囊团表示。
 
+这些言论反映了拜登政府呼吁中共国谴责俄罗斯的入侵并与西方民主国家站在一起，北京与西方民主国家享有有利可图的经济关系。
 
+美国总统乔·拜登周一还告诉印度总理纳伦德拉·莫迪，购买更多俄罗斯石油不符合印度的利益。
 
-**国防部长劳埃德·奥斯汀三世： **
-正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
+中共国驻华盛顿大使馆发言人刘鹏宇表示，中共国“坚决反对”将中俄关系与乌克兰危机联系起来，并补充说北京“致力于促进和谈”。
 
+“中方反对美方一切形式的单边制裁和长臂管辖，将坚决维护中国企业和个人的合法权益，”他在电子邮件声明中表示。
 
+展望未来，耶伦表示，中共国和西方将越来越难以将经济问题与更广泛的国家安全问题分开。
 
-> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
+“无论中国的地缘政治目标和战略如何，我们都没有看到对俄罗斯入侵及其对国际秩序的影响的善意解释，”耶伦说。
 
+她补充说，如果中共国不尊重乌克兰的这些原则，那么中共国就不能指望世界会尊重北京未来关于主权和领土完整的任何呼吁。
 
+但耶伦在问答环节中表示，美国需要与中共国努力合作，以避免出现市场驱动的民主国家与国家驱动的专制经济体对立的两极全球金融体系。
 
-**参议员汤姆·科顿： **
-令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
+她说，中共国对国有企业的依赖和其他做法损害了美国的国家安全利益，并补充说，维持当前的关系需要改变和北京的合作。
 
+“我希望看到我们保留与中国深度经济一体化的好处——而不是走向两极世界——但我相信这是我们需要解决的危险，”耶伦说。
 
+耶伦还表示担心，中共国新的严格的COVID-19大流行封锁将导致新一波供应链中断，这可能会损害世界经济复苏。
 
-> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
-> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
+耶伦还呼吁更多的“朋友支持”，或者将供应链转移到没有地缘政治冲突的更值得信赖的伙伴国家。
 
+这位美国财政部长还表示，全球经济增长将受到俄罗斯和乌克兰之间战争的打击，拜登政府坚决承诺让俄罗斯对其“可怕的行为”和违反国际法的行为负责。
 
+现代化机构
 
-**参议员霍利新闻办公室： **
-“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
+耶伦的讲话是在国际货币基金组织和世界银行成员国下周在华盛顿召开春季会议的几天前发表的，她说乌克兰战争将是“每个人的头等大事”。
 
+她呼吁这些在第二次世界大战结束时创建的机构要“现代化”，以应对导致当前冲突的 21 世纪挑战，并帮助解决其他重大问题，包括气候变化、结束 COVID-19 大流行、并支持低收入国家。上周，耶伦表示，俄罗斯应被排除在 20 国集团主要经济体之外，其财政领导人将于下周在华盛顿举行会议。
 
+耶伦还表示，她计划在国际货币基金组织和世界银行会议期间召集其他领导人，讨论对伤害世界最贫困人口的食品价格飙升的可能解决方案。
 
-> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
+她以战争和挥之不去的流行病为例说：“有些人可能会说，现在不是思考大局的合适时机。然而，我认为这是解决我们实时目睹的国际金融体系差距的正确时机。”
 
+新闻来源：[Yellen to China: Help stop Russia’s war in Ukraine or lose standing in the world](https://www.reuters.com/world/us-allies-will-not-be-indifferent-those-who-undermine-russia-sanctions-yellen-2022-04-13/)
 
+* * *
 
-**众议员帕特·法伦：** 
-[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-> Beijing is watching our every move. 
-> 
-> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
-> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
-
-
-
-> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
 
 

@@ -2,35 +2,40 @@
 ---
 
 
-## 中共海上石油巨头因担心制裁退出西方市场
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2343411/)
+## 中共国商业银行房地产和企业要么破产要么在破产的路上
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2343466/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-6.png)图片来自网络
-据《油价网》作者茨维塔娜·帕拉斯科娃（Tsvetana Paraskova）2022 年 4 月 13 日报道：
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8804.61%EF%BC%89%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%95%86%E4%B8%9A%E9%93%B6%E8%A1%8C%E6%88%BF%E5%9C%B0%E4%BA%A7%E5%92%8C%E4%BC%81%E4%B8%9A%E8%A6%81%E4%B9%88%E7%A0%B4%E4%BA%A7%E8%A6%81%E4%B9%88%E5%9C%A8%E7%A0%B4%E4%BA%A7%E7%9A%84%E8%B7%AF%E4%B8%8A%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-据路透社周三引用行业消息来源报道，中共海上石油和天然气生产巨头中海油（CNOOC）正准备退出其在美国、英国和加拿大的业务和资产，原因是担心它可能会因乌克兰战争而受到二级制裁。
+**郭文贵先生：**另外一个就看中共国的经济。中共国现在把整个的银行、20几家商行破产，200多家银行等待破产。房地产过去的将近20几大家破产，2万家的小企业破产，和在2000家等待的破产，和印了将近50万亿人民币的所谓它自己承认的就是印的，就喷出来的，复印、复制出来的人民币，抢夺人民的财富，导致的经济，现在通胀通缩，以及银行和存户之间的这种随时可以爆破的这种存贷关系。中共国实在是太可怕了，太可怕了。
 
-近十年前，中海油收购了加拿大的尼克森（Nexen）公司后，在美国墨西哥湾、北海和加拿大油砂项目的油田拥有股份。
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
-据路透社计算，估计中海油在美国、英国和加拿大的资产每天生产约 220,000 桶石油。
+编辑整理：星塵Scheddi；
 
-然而，据路透社消息人士称，在中美关系紧张的情况下，这家中共海上石油巨头现在正准备离开这三个西方市场，尤其是在俄罗斯入侵乌克兰之后，中共拒绝谴责。
+字幕文件制作：小满；
 
-上周，美国副国务卿温迪·谢尔曼（Wendy Sherman）在众议院外交事务委员会的听证会上表示，如果中共国支持俄罗斯在乌克兰的战争，它可能会成为制裁对象。
+视频制作及上传：Cindy；
 
-据路透社，谢尔曼说：“我认为，这让习近平很好地理解了如果他实际上以任何物质方式支持普京，他可能会遭遇什么。”
+G-News发布：海贼王M.D.LUFFY；
 
-银行及石油业界消息人士3月份告诉路透社，中海油计划退出其北海业务，包括英国产量最高的油田之一Buzzard油田。消息人士称，据说这家中共巨头已聘请美国银行（BOA）帮助其出售北海资产，这笔资产的售价可能高达 30 亿美元。据与路透社的消息人士称，准备退出北海是中海油新战略转变的一部分，该公司现在看起来要专注于拉丁美洲、非洲和国内海上资产，而放弃成熟市场的业务。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-原文链接：
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[https://oilprice.com/Latest-Energy-News/World-News/Chinas-Offshore-Oil-Giant-Exits-Western-Markets-Over-Sanction-Fears.html](https://oilprice.com/Latest-Energy-News/World-News/Chinas-Offshore-Oil-Giant-Exits-Western-Markets-Over-Sanction-Fears.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

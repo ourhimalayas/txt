@@ -2,59 +2,33 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342834/)
+## 上海疫情再回升 公安局警告抵制封控者必严处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342969/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-5.jpg)上海疫情再回升 公安局警告抵制封控者必严处 网络图片
 
-整理/编辑：BENJ1
+据美国之音4月13日报道，中共国上海疫情4月13日再次出现反复，新增感染病例26330万例，超出前一天3000多例。上海市公安局表示，要严厉禁止任何抵制抗疫措施的行为，对任何阳性患者拒绝接受隔离等行为要进行“严格处理”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
+上海市公安局列出十条被严禁的行为：封控区内人员在封闭管理期间擅自出户；封控区和管控区内人员在居家健康监测期间擅离居民小区，自然村或聚集；违反隔离管控规定，故意破坏门磁、封条擅自出入等。另外，编造、故意传播涉疫虚假信息；伪造、变造或买卖、使用伪造、编造的核酸检测证明、道路通行证证明文件等行为，也被列为严禁之列。
+
+中共国海关总署的数据显示，3月份，中共国进口同比下降0.1%，为2287亿美元。这是2020年8月以来的第一次下降。至少有11家台湾主要从事电子原件制造的公司由于供应链中断而被迫停产。
+
+26330万新增感染病例，就把一个2600万人的国际大都市完全封锁，这种匪夷所思的事情只有中共才能做得出来。在世界各国都要求疫苗护照、封国防疫的时候，中共国恢复了正常生活，宣称“只有中共国最安全”。到整个世界逐步取消疫苗护照、逐渐解封时，中共国各大城市轮流进入残酷的封城状态，居民饿死、病死、跳楼自杀等惨绝人寰的事件不断被爆出。中共封城是比强制疫苗更快速、更残酷的屠杀。
+
+新闻参考链接：[https://www.voachinese.com/a/shanghai-vows-punishment-for-covid-lockdown-violators-as-cases-hit-25-000-20220413/6527652.html](https://www.voachinese.com/a/shanghai-vows-punishment-for-covid-lockdown-violators-as-cases-hit-25-000-20220413/6527652.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+编辑：【英国伦敦喜庄园编辑部】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-帖子原文：
 
-博主：一片月光
-
-辉瑞第三针
-
-时隔半年给催促打了第三针
-
-第一天手臂疼浑身疲惫
-
-第二天发烧发冷全身酸痛+头疼
-
-第三天吃了Panadol 退烧了,手臂肿，可是拉肚子
-
-第四天困、困、困
-
-只能弱弱地说，大了几岁生二胎，身体远没有生一胎时恢复快恢复好
-
-疫情啊疫情能不能结束哇？我可不想去打第四五六针了！！
-
-担惊受怕+忍受疼痛，仿佛大病了一场
-
-#辉瑞第三针
-
-网友评论：
-
-[小! 绣包子](https://www.xiaohongshu.com/user/profile/5b4de66f11be102af765fed7) 回复：
-
-我打完辉瑞第三针除了手臂有些痛。还拉肚子。我还以为是巧合呢。以为我自己吃了不干净的东西。你也拉肚子。看来还有拉肚子这个后遗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1665.png)图片来源：小红书
-素材来源：
-
-[辉瑞第三针副作用](http://xhslink.com/aCHyHg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

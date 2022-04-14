@@ -2,33 +2,35 @@
 ---
 
 
-## 俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2343399/)
+## 福奇建议个人自主决定COVID的“个人风险”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2343459/)
 
-**图/文｜CP**
-**发布时间｜14/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/總統出訪遭烏克蘭拒絕-德國政界齊表不滿.jpg)
+据《福克斯新闻》作者：Peter Aitken，2022年4月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1679-e1649910150232.png)2021年12月1日，安东尼-福奇博士在白宫举行的每日简报会上发言。图片来源：Mandel Ngan/AFP 通过 Getty Images
+安东尼-福齐博士建议，随着人们学会与病毒共处，个人将需要自己决定他们个人的事件和COVID-19暴露的风险水平。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+“将要发生的是，我们将看到每个人将不得不计算他们想要参加室内晚餐的风险程度，甚至在绿色区域的范围内发挥作用。”福奇周日在参加美国广播公司的“本周”节目时说，“这将是一个人对自己要承担的个人风险的决定。”
+
+他补充说：“我们正处于这样一个阶段，在许多方面……我们将不得不忍受社区中某种程度的病毒。”
+
+疾病预防控制中心已将该国大部分地区标记为“绿色区域”，这表明对感染的担忧程度“较低”。疾病预防控制中心建议保持最新的疫苗，如果一个人有症状，就去做检查。
+
+诸如戴口罩或针对高危人群的额外预防措施，在一个区域被指定为“红色”或“高”风险之前不会启动，但福奇淡化了对感染率大幅上升的担忧以及向该“红色区域”移动的可能性。
+
+福奇赞扬了美国人的疫苗接种和预防水平，但他提醒说，人们需要保持对随着时间推移出现的免疫力减弱的认识。
+
+文章来源: [https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk](https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
 
-德媒13日报道，德国总理朔尔茨（Olaf Scholz）对于乌克兰拒绝总统施泰因迈尔的来访而感到“恼火”。但至于他本人是否会接受泽连斯基的邀请而出访基辅，他选择避而不谈。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-报道认为，德国毕竟是乌克兰最大的支持者之一，而施泰因迈尔是一位受人尊敬的德国总统，基辅的态度令人感到“困惑”。除朔尔茨外，包括其他党派在内的多位德国政要亦对基辅的做法表达不满。
-
-其中，以自民党联邦议院副议长库比茨基（Wolfgang Kubicki）及绿党外事政策发言人特里亭（Jürgen Trittin）的反应最为强烈。他们向媒体表示，无法现象一个才刚被选出来的德国国家元首会被定义为不受欢迎的人物。泽连斯基（Volodymyr Zelensky）总统以这样的方式冷落施泰因迈尔是不明智的。并认为，“这对普京来说是一个很大的宣传成果”。如果人们想分裂欧洲人，就只需要按乌克兰总统的样子去做就可以了。
-
-不过，在野党基民盟党主席默尔茨（Friedrich Merz）则认为，拒绝施泰因迈尔来访是乌克兰对德国社民党在俄罗斯问题上的政治取态表达不满。默尔茨表示，“很明显，许多东欧国家对社民党的俄罗斯政策持保留态度，我非常理解这一点”。但他同时批评基辅的赌气决定，他表示，施泰因迈尔毕竟是民主国家的民选国家元首，拒绝他来访是一种外交侮辱。
-
-另外，绿党籍德国外长贝尔伯克（Annalena Baerbock）表示，虽然她本人对此事也感到非常遗憾，但强调德国会继续站在乌克兰一边。
-
-德国总统施泰因迈尔4月12日表示，他打算13日与爱沙尼亚、拉脱维亚、立陶宛和波兰总统共同前往基辅会见乌克兰总统泽连斯基，以向外界表达支持乌克兰的立场，可惜，遭到乌克兰方面的拒绝。目前，波兰、立陶宛、拉脱维亚和爱沙尼亚总统已抵达基辅并与泽连斯基会面。
-
-來源｜[USnews](https://www.usnews.com/news/world/articles/2022-04-13/scholz-irritated-by-german-presidents-aborted-ukraine-visit)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

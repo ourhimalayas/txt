@@ -2,51 +2,78 @@
 ---
 
 
-## 普京收嫖资不出台在乌克兰虚晃一枪的战争经济战争金融
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2343211/)
+## 2022年4月14日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2343262/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选:e](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8803.61%EF%BC%89%E6%99%AE%E4%BA%AC%E6%94%B6%E5%AB%96%E8%B5%84%E4%B8%8D%E5%87%BA%E5%8F%B0%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E8%99%9A%E6%99%83%E4%B8%80%E6%9E%AA%E7%9A%84%E6%88%98%E4%BA%89%E7%BB%8F%E6%B5%8E%E6%88%98%E4%BA%89%E9%87%91%E8%9E%8D%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1669.png)图片来自网络
+1. 三月环球各国通胀率
 
-**郭文贵先生：**但是同时你也看到世界的金融，兄弟姐妹们，你看看世界的金融到了什么情况？石油、石油期货、黄金、大宗产品，就这种玩儿，从50美金、60美金到90美金，甚至上百美金，石油的，还有石油期货的这种变化能让多少人破产？
 
-但掌握这个起伏的人几乎就是沼泽地几个人，还有普京本人。普京说我不打，在之前喊打，石油涨上去了，你买，是吧？谁是普京的女朋友你就买，是吧？我这两天不开战，那肯定降，是吧？那就赚大钱了。买也赚，卖也赚，这个游戏是多大知道吗？这就是人类有史以来最高等的游戏，这就叫战争的游戏，叫战争经济。
+美国三月份CPI同比增长8.5%，是1981年12月份以来的最高值。
 
-罗斯柴尔德是干嘛的？罗斯柴尔德的老爷爷就是一个叫David Rothschild，是一个要饭的小擦鞋匠，擦皮匠的。人家旁边的那个欧洲的大公国，人家是就是专门干啥？大公国就是谁家打仗你没钱，我先借给你钱，你打完以后再还给我，都是30%、100%的利息。
+欧元区三月通胀率达到7.5%，也是欧元诞生以来最高。
 
-他就当人家收数的、放数的，最后是放着放着他自己就赚了很多钱，他很会服务，是吧？这个中间的时候，大公国就死了，大公国就把钱就交给他了，就这么Rothschild出来的，是吧？
+德国三月通胀率7.6%，是1990年两德统一以来的最高水平。
 
-你再往前说，当时的三个英国的威廉国王都是干啥的？私下里边战争都是借人家放高利贷，就干这个的，这叫战争经济，战争金融，人类上，上万年了没少过。
+德国三月份能源产品价格同比上涨39.5%，食品同比上涨6.2%。
 
-那么现在你看有人玩战争经济、战争金融，这里边就很不严肃了，这什么都可以买，什么都可以买。所以说这个事儿大家看得很大，分分钟改变世界，变数很大，但对台湾是好事。
+法国三月通胀率4.5%，是1985年以来最高水平。
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+英国三月通胀率7%，是1992年以来的最高水平。
 
-编辑整理：星塵Scheddi；
+希腊三月通胀率8.9%，达到1996年以来的最高水平。
 
-字幕文件制作：小满；
+荷兰三月通胀率升至9.7%，达到1976年以来的最高水平。
 
-视频制作及上传：Cindy；
+意大利三月通胀率升至6.7%，达到1991年以来的最高水平。
 
-G-News发布：海贼王M.D.LUFFY；
+罗马尼亚三月通胀率升至10.2%，达到2004年以来的最高水平。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+匈牙利三通胀率升至8.5%，达到2007年以来的最高水平。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+2. 美财长说俄乌战争重塑世界经济格局
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1670.png)图片来自网络
+3. 贾斯汀比伯投资加密货币买卖初创公司MoonPay
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1671.png)图片来自网络
+4. 博康推出wifi 7芯片
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1672.png)图片来自网络
+5. 斯洛伐尼亚考虑捐献米格29战斗机给乌克兰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1673.png)图片来自网路
+6. 世界第一大原油交易商停止采购俄罗斯原油
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1674.png)图片来自网路
+7. 特斯拉德克萨斯工厂投产并向员工优惠内售model Y
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1675.png)图片来自网路
+8. 日本北部一个51mwh液流电池投产
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1676.png)图片来自网路
+9. 安克推出3d打印机
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1677.png)图片来自网络
+10. 耶伦强硬警告北京 称选边俄罗斯恐令中国付出经济代价
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+记者 Christopher Condon
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+【彭博】– 美国财政部长珍妮特·耶伦周三就中国选边俄罗斯对北京发出了严厉警告。她暗示，国际社会是否可能让中国付出经济代价取决于它如何处理俄罗斯对乌克兰的入侵。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+“中国确认了与俄罗斯的特殊关系，” 耶伦周三在大西洋理事会发表演讲时说，“我热切地希望中国能利用这种关系产生积极影响，并帮助结束这场战争。” 大西洋理事会成立于上世纪60年代，旨在推动对北约和集体安全理念的支持。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+此次讲话代表着耶伦担任美国财长以来针对中国最为犀利的表态。她警告称，“将来，将会越来越难以将经济问题与包括国家安全在内的广泛国家利益考量区分开。”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+“我们呼吁对俄罗斯采取坚决行动，而中国如何响应，很可能会影响世界对于中国的态度及其拥抱进一步经济融合的意愿，”耶伦表示。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+中国政府未加入美国牵头的对俄制裁行动，同时也呼吁尊重主权和领土完整的原则。中国还表示，俄罗斯在乌克兰的行动与其统一台湾的决心不具可比性。
 
-G-TV：日本银河系农场。
+“如果中国在当下关键时刻不遵守这些原则，那么就不能期望国际社会未来会尊重其对主权和领土完整的呼声，” 耶伦表示。
 
+她还重申，对于就国际制裁俄罗斯行动“保持观望”的国家来说，任何削弱制裁的行动都将触怒美国及其盟友。
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+
+【[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)[1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章](https://gnews.org/zh-hans/author/himalaya-australia/)[2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+
+*审核：喜国公民*
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

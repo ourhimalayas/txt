@@ -2,22 +2,80 @@
 ---
 
 
-## 秘翻在线：日本厚生省公布5-11岁儿童疫苗副作用报告
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2342902/)
+## 拜登授权向乌克兰提供8亿美元额外援助
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-18.png)（图片源自本文链接）
-4月14日朝日电视新闻消息：日本厚生省宣布，到目前为止，在5至11岁接种中共病毒(新冠病毒)疫苗的儿童中，已经收到16起疑似不良反应报告。这其中的两个案例，引起很严重的心肌炎症状。
+**拜登总统： **
+今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
 
-2月下旬开始为5至11岁的儿童接种疫苗，截至3月20日，已大约接种了21.5万多例。
 
-根据厚生劳动省的报告，接种疫苗后有16例疑似不良反应，大多数症状表现在接种过程中感觉到的疼痛和压力导致的血压和脉搏下降。
 
-在16个病例中，有两个被诊断为重症。一个在3月接种疫苗的7岁男孩被诊断为疑似心肌炎和心包炎。此后，他的症状有所减轻。
+> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
+> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
 
-厚生省的结论是：不良反应的发生率低于12岁以上人群，没有发现严重问题。
 
-信息源：[小児ワクチン副反応疑い16件 心筋炎など重い症状も (msn.com)](https://www.msn.com/ja-jp/health/healthy-lifestyle/%E5%B0%8F%E5%85%90%E3%83%AF%E3%82%AF%E3%83%81%E3%83%B3%E5%89%AF%E5%8F%8D%E5%BF%9C%E7%96%91%E3%81%8416%E4%BB%B6-%E5%BF%83%E7%AD%8B%E7%82%8E%E3%81%AA%E3%81%A9%E9%87%8D%E3%81%84%E7%97%87%E7%8A%B6%E3%82%82/ar-AAWczC3?ocid=msedgntp&amp;cvid=796b158930b5411db5a15a87f4413f62)
+
+**国务卿安东尼·布林肯：** 
+随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
+
+
+
+> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
+
+
+
+**国防部长劳埃德·奥斯汀三世： **
+正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
+
+
+
+> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
+
+
+
+**参议员汤姆·科顿： **
+令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
+
+
+
+> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
+> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
+
+
+
+**参议员霍利新闻办公室： **
+“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
+
+
+
+> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
+
+
+
+**众议员帕特·法伦：** 
+[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
+
+
+
+> Beijing is watching our every move. 
+> 
+> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
+> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂：** 
+我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
+
+
+
+> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
+> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
+
+
 
  
 
