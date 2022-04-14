@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 11:00 PM (UTC)`
+
+2022.04.14 NFSC news  President Biden Publicly Says the Russia-Ukraine War is Genocide
+![img](https://media.gettr.com/group4/origin/2022/04/14/22/ded3f9dd-15c4-344b-18ac-29867417a2f0/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/14/2022 10:13 PM (UTC)`
 
 4/14/2022 Miles Guo: My advice to people inside mainland China: stock up food and water, have some cash handy, and find a safe place to live in for the next 1-2 years; Many more cities will be locked down, and the situation in Beijing will be the worst.<br/><br/>4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨。<br/><br/>
@@ -147,13 +154,6 @@
 
 <br/>4月14号：尊敬的战友们好……大约在50分钟左右，七哥在这里，开始今天的乱聊直播！
 ![img](https://media.gettr.com/group30/getter/2022/04/14/11/4a253423-66ee-bace-0138-5119a6b68f00/out.jpg)
-
----
-
-`@miles 4/14/2022 10:07 AM (UTC)`
-
- 4月14号：尊敬的战友们好，中国人从来不缺大明白人，就是没有行动力，反抗的勇气……连鸡鸭鹅狗被杀前的反抗的胆子都没有！永远希望别人来完成自己的事情。永远是把批评别人放在第一位．永远将自己的理想和情怀，寄托在孩子，及他们眼中看不起的没文化的人……最底层人的身上，能很荣幸地为他们去牺牲，还要对他们感恩戴德。这就是中国社会的悲哀，自私懦弱，狂妄自大，没有任何真正的情怀，更不要谈任何所谓的信仰……什么样的社会就会选出什么样的政府，什么样的政府就会展现给社会大众的综合素质同等标准的事情。今天中国政府有多坏，中国社会的人心就有多孬！这是个轮回。这是自然的逻辑！
-![img](https://media.gettr.com/group30/getter/2022/04/14/10/c4ecbd96-2e66-8b9b-83ba-44d2d6b064f1/e13d3b799020082186c3ea58557d293f.jpg)
 
 ---
 
