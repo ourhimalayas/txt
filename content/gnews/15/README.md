@@ -2,37 +2,20 @@
 ---
 
 
-## 俄罗斯国家安全局要求维基百科删除文中涉及普京的信息
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343870/)
+## 视频|乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2343886/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+制作：香草山视频部
 
-#### 翻译/编辑：小红帽
+当地时间4月11日，据相关媒体报道，乌克兰马里乌波尔市的市长波成柯在接受采访时表示，该市目前已有超过一万名平民死于俄罗斯侵略军的战火之中，民众遗体遍布大街小巷。 此外，波成柯还严正谴责俄军故意阻止人道主义救援车队进入该市，并试图对外隐瞒在该市市区发生的大屠杀。
+据波成柯证实，俄军早先运来了大量的移动焚尸炉用于处理遇难者的遗体：他们将许多平民的尸体集中运到某个具有大型冷冻设施的购物中心，随后用卡车运载的移动焚尸炉将这些尸体焚化，试图掩盖其令人发指的反人类罪行。
+另一方面，波成柯也补充道，马里乌波尔市当前大约有12万人迫切需要食物、饮用水、暖气和对外通信设备。然而，只有经过俄军“过滤”的民众才能逃离当地，其他没有通过检查的居民则被押送至临时拘留所。据悉，当地至少有3.3万人被强迫遣送至俄罗斯或乌克兰分离主义地区。对此，乌克兰人权监察员透露，俄罗斯军队在这些地区对乌克兰平民实施了酷刑和处决，且俄军还在继续非法逮捕、折磨并处死任何有亲乌克兰立场的民众。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WIKI.png)图片来源：维基百科
+发稿：qiutian（邱甜）
 
-
-根据Digit News 4月13日报道，俄罗斯国家安全局向维基百科管理部门发送了两份通知，内容涉及俄罗斯总统弗拉基米尔·普京的文章中存在违法传播的信息。俄罗斯国家安全局吹嘘要删除“不准确的信息”。
-
-“昨天，俄罗斯国家安全局又发送了两份通知，均在“普京，弗拉基米尔·弗拉基米罗维奇”为标题的文章下。他们不喜欢与乌克兰（2021 年至今）和入侵乌克兰之后（2022 年）的部分关系。”
-
-维基百科
-
-维基百科澄清说，俄罗斯国家安全局在文章中发现“包含有关俄罗斯联邦武装部队保护顿涅茨克和卢甘斯克人民共和国的特种军事行动的目标和形式的虚假信息材料”。
-
-“此类出版物可能会导致局势的不稳定，以及为俄罗斯联邦领土上大规模违反公共秩序和公共安全的行为创造条件。”
-
-俄罗斯国家安全局
-
-资料来源：[Roskomnadzor requires Wikipedia to remove information from article about Putin](https://digitnews.in/roskomnadzor-requires-wikipedia-to-remove-information-from-article-about-putin/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

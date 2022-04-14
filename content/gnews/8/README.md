@@ -2,24 +2,22 @@
 ---
 
 
-## 俄罗斯周边四国总统访问乌克兰表达支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2343926/)
+## 欧洲理事会：进一步向乌克兰提供军事援助，总额达到16.3亿美元
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2343998/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-96.jpg)
-美联社4月13日报道–俄罗斯门口的四个国家的总统周三访问了乌克兰，强调他们对这个陷入困境的国家的支持，并要求对俄罗斯军队犯下的战争罪行追责。
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-14-下午2.17.59.png)图为何塞普-博雷尔。图片来源：FRANCOIS LENOIR / POOL / AFP
+欧盟周三批准向乌克兰进一步提供5.43亿美元的军事援助。欧盟总共拨出16.3亿美元的援助，帮助该国抵御俄罗斯军队。
 
-波兰、立陶宛、拉脱维亚和爱沙尼亚总统的访问是北约东翼国家的一次强烈声援，其中三个国家跟乌克兰一样曾经是苏联的一部分。四位领导人乘坐火车前往乌克兰首都基辅，与沃洛基米尔-泽连斯基（Volodymyr Zelenskyy）会面，并访问了附近城镇之一的博罗江卡（ Borodyanka），在俄罗斯军队撤离以专注于该国东部后，那里发现了暴行的证据。
+欧洲理事会在一份声明中说，新的一揽子计划将资助向乌克兰武装部队提供设备和用品，其中包括 “个人防护设备、急救包和燃料，以及旨在为防御目的提供致命力量的军事装备”。
 
-立陶宛总统吉塔纳斯-瑙塞达（Gitanas Nauseda）说：“这里正在为欧洲的未来而战，”他呼吁进行更严厉的制裁，包括对俄罗斯的石油和天然气运输以及所有的银行进行制裁。
+欧盟外交政策负责人何塞普-博雷尔（Josep Borrell）在一份声明中说：”随着俄罗斯准备对乌克兰东部地区发动进攻，我们继续并加强对乌克兰的军事支持以保卫其领土和人口并防止进一步的痛苦是至关重要的。”
 
-周三，在基辅历史悠久的马林斯基宫，会见泽连斯基有立陶宛总统吉塔纳斯-瑙塞达、爱沙尼亚总统阿拉尔-卡里斯（Alar Karis）、波兰的安杰伊-杜达（Andrzej Duda）和拉脱维亚的埃吉尔斯-列维特斯（Egils Levits），他们重申了在政治和军事援助方面支持乌克兰的承诺。
+原文链接：[European Union approves further military aid to Ukraine, taking total to $1.63 billion](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-13-22/h_b0499c820a3315ac04f54c65af9b21c6)
 
-“我们知道这段历史。我们知道俄罗斯的占领意味着什么。我们知道俄罗斯的恐怖主义意味着什么，”杜达说。他补充说，犯下战争罪的人和下达命令的人都应该被追究责任。
+* * *
 
-他说：“如果有人派飞机，如果有人派部队炮击居民区，杀害平民，谋杀他们，这就不是战争。这是残忍，这是强盗行为，这是恐怖主义。”
-
-新闻链接：[https://apnews.com/article/russia-ukraine-putin-kyiv-business-europe-afc276faff040e7bf0b87b7625adbba8](https://apnews.com/article/russia-ukraine-putin-kyiv-business-europe-afc276faff040e7bf0b87b7625adbba8)
+*编辑&发布：长岛开心*
 
  
 

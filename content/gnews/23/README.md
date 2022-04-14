@@ -2,10 +2,10 @@
 ---
 
 
-## 永不放弃为新闻自由而战，比利时首相悼念遇害记者
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343789/)
+## 中共内外交困加剧 喜币将成为最早的数字法币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343791/)
 
-作者：雅典娜农场 – 文泓
+作者：纽约磐石农场 – 在远方
 
 
 
@@ -13,14 +13,12 @@
 
 
 
-4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-116.jpg)
-该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
+4月12日，郭文贵先生盖特视频表示，习近平现在已是内外交困。之前中共威胁佩洛西访台将对台湾开战，现在佩洛西随时可能访问台湾。美国之前也已经有许多外交官员和外交飞机前往台湾，中共军方所有威胁的话语都已经成为国际笑柄。在墙内，上海、长春等地被封闭的饥饿居民为了一点食物，被迫出卖身体的事情已经传遍世界，中共灭亡是天意使然。
 
-自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
-
+郭先生还说，目前有许多重大的好消息还需要严格保密，但是，喜币将会成为世界上最早的、最流行的数字法币，而人民币在海外会成为只有恐怖分子才使用的钱，成为犯罪币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/44-1.jpg)
 参考链接：
-[Premier De Croo eert vermoorde VTM-journalist Danny Huwé in Roemenië | Buitenland | hln.be](https://myprivacy.dpgmedia.be/consent?siteKey=Uqxf9TXhjmaG4pbQ&amp;callbackUrl=https%3A%2F%2Fwww.hln.be%2Fprivacy-gate%2Faccept-tcf2%3FredirectUri%3D%252Fbuitenland%252Fpremier-de-croo-eert-vermoorde-vtm-journalist-danny-huwe-in-roemenie~a5bf9366%252F)
+[4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！](https://www.gettr.com/post/p14zzj3ab04)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 

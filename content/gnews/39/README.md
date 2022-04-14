@@ -2,38 +2,54 @@
 ---
 
 
-## 上海清零现连坐制：居民若拒转运 小区不解封
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2342088/)
+## 向李强喊话者被带走时高喊:一定要站起来,不能跪下去
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2342208/)
 
-撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/04/封面-4.png)
+据[We’re new Chinese who is taking down the evil CCP](https://gettr.com/user/wenlongjack)@wenlongjack4月 11日发布的盖特
 
-大纪元2022年04月13日讯，上海当局清零政策实施黑箱操作，令不少持阴性检测证明的市民突然收到阳性通知，他们拒进方舱医院。近日上海多个居委会发通知，恐吓拒转运去方舱的市民，“将永远红码，永不摘帽”，其所在社区也遭株连，不得解封。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-12.jpg)
-据上海官方4月12日通报，该市11日新增本土确诊病例和无症状感染者总计为23,342例。不过，由于中共隐瞒疫情真相，外界普遍怀疑疫情实际更严重。中共国务院副总理孙春兰近期一直在上海督阵防疫清零。4月12日下午，孙春兰在国家会展中心（上海）方舱医院的讲话显示，上海疫情扩散蔓延势头还在持续，她要求上海当局尽快遏制。
+1） 上海市委书记李强被上海老阿姨骂，共产党都是假的，结果领导一膨胀以为多受爱戴 结果就是皇帝的新衣 ，上海老阿姨厉害。
 
-就在同一天，上海市虹口区嘉兴路街道瑞鑫居委会根据上海发布和疾控中心的现行防疫政策发布通知，称拒去方舱的居民将永远红码，其所在小区也被“株连”，解封无望。
+[https://gettr.com/post/p14oo3p602f](https://gettr.com/post/p14oo3p602f)
 
-上述通知称，
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/001-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/002-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/003-1.jpg)
 
-1、己经确诊的病例，即便后来抗原自测为阴性，也依然属于确诊病例。医生不会再上门复测核酸，不会解除隔离，须去方舱后治愈开具解除隔离的单子。
 
-2、关于方舱，方舱是每批安排指定方舱，无法满足个性化需求。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/004.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/005.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/006.jpg)
 
-3、根据转运要求，疾控中心会委托居委电话通知居民转运事宜和方式，疾控不会上门。若以此为由都视为拒绝转运。
 
-4、按规定需转运的居民，若拒绝转运，对于个人，若不去方舱的，将永远红码，永不摘帽。
+不管李强拐弯被骂后这个小区的生活物资是不是得到了解决，但是至少出了一口恶气，但是，但是，后续来了，根据网传一段视频，共匪白卫兵把向李强喊话的另一位市民带走了——
 
-5、按规定需转运的居民，若拒绝转运，对于整个小区，目前政策就是整栋楼持续封控，楼内居民风险倍增，小区解封无望。
+——记住！一个倒下了，千千万万站起来！你们一定要站起来，不能跪下去！
 
-发布类似通知的不止瑞鑫居委会，上海浦东新区“三林世博家园”第四居委会4月11日下发一则通知，对于拒绝进方舱的居民，除对个人惩治之外，还对整个小区实施“连坐”惩罚。
+这位只是向李强喊话，说明小区居民缺吃少穿、没医没药的市民以这种悲壮的方式被解决，不知道他接下来会遭遇什么样的折磨，但是这一幕却是这个至暗时代的最真实写照。
 
-中共防疫就是个笑话，更是一场闹剧，黑箱式作业，输入输出两头管，中间更是暗无天日。不受制约的权利，官老爷的任性，不负责任的行政，遍布全过程的造假，受伤的永远都是老百姓。宣传的造假化，科学问题政治化，防疫只能成为官老爷弄权和粉饰伟光正的手段。
+撰稿：喜马拉雅的肉夹馍；
 
-消息来源：[上海清零现连坐制：居民若拒转运 小区不解封](https://www.epochtimes.com/gb/22/4/12/n13710156.htm)
+审核：喜马拉雅的馍夹肉；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
