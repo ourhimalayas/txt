@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 5:43 AM (UTC)`
+
+4/10/2022 Miles Guo: A reasonable system of wealth distribution, wealth acquisition, and a way to secure people’s own wealth is necessary to achieve democracy and rule of law. The top priority of achieving our goal of Himalaya is to establish a financial system that not only allows people to take control of their own wealth but also automatically creates the wealth that is measurable without being controlled by power. People want to have respect, recognition, and faith only if their basic material needs are sufficiently satisfied.<br/><br/>4/10/2022 文贵直播： 实现法治和民主需要合理的财富分配和获得制度以及安全的财富拥有方式；实现喜马拉雅目标的头等大事是建立由人们自己决定财富、自动创造财富、可衡量且不受权力控制的金融模式；人只有满足了基本物质需求，才会需要尊严、认可和信仰<br/>
+![img](https://media.gettr.com/group13/getter/2022/04/14/05/a3c8bea0-ff2a-955f-1960-7e959d1e1196/out.jpg)
+
+---
+
 `@miles 4/14/2022 5:03 AM (UTC)`
 
 4/10/2022 Miles Guo: What does it mean for both "Chained Dream" and "The Terminator Snow" to hit the iTunes charts at the same time?<br/><br/>4/10/2022 文贵直播：《锁链梦》和《灭共的雪》两首歌同时打榜意味着什么？<br/>

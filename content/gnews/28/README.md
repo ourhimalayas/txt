@@ -2,80 +2,33 @@
 ---
 
 
-## 拜登授权向乌克兰提供8亿美元额外援助
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
+## 俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2343399/)
 
-**拜登总统： **
-今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
+**图/文｜CP**
+**发布时间｜14/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/總統出訪遭烏克蘭拒絕-德國政界齊表不滿.jpg)
 
-
-
-> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
-> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+德媒13日报道，德国总理朔尔茨（Olaf Scholz）对于乌克兰拒绝总统施泰因迈尔的来访而感到“恼火”。但至于他本人是否会接受泽连斯基的邀请而出访基辅，他选择避而不谈。
 
-**国务卿安东尼·布林肯：** 
-随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
+报道认为，德国毕竟是乌克兰最大的支持者之一，而施泰因迈尔是一位受人尊敬的德国总统，基辅的态度令人感到“困惑”。除朔尔茨外，包括其他党派在内的多位德国政要亦对基辅的做法表达不满。
 
+其中，以自民党联邦议院副议长库比茨基（Wolfgang Kubicki）及绿党外事政策发言人特里亭（Jürgen Trittin）的反应最为强烈。他们向媒体表示，无法现象一个才刚被选出来的德国国家元首会被定义为不受欢迎的人物。泽连斯基（Volodymyr Zelensky）总统以这样的方式冷落施泰因迈尔是不明智的。并认为，“这对普京来说是一个很大的宣传成果”。如果人们想分裂欧洲人，就只需要按乌克兰总统的样子去做就可以了。
 
+不过，在野党基民盟党主席默尔茨（Friedrich Merz）则认为，拒绝施泰因迈尔来访是乌克兰对德国社民党在俄罗斯问题上的政治取态表达不满。默尔茨表示，“很明显，许多东欧国家对社民党的俄罗斯政策持保留态度，我非常理解这一点”。但他同时批评基辅的赌气决定，他表示，施泰因迈尔毕竟是民主国家的民选国家元首，拒绝他来访是一种外交侮辱。
 
-> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
+另外，绿党籍德国外长贝尔伯克（Annalena Baerbock）表示，虽然她本人对此事也感到非常遗憾，但强调德国会继续站在乌克兰一边。
 
+德国总统施泰因迈尔4月12日表示，他打算13日与爱沙尼亚、拉脱维亚、立陶宛和波兰总统共同前往基辅会见乌克兰总统泽连斯基，以向外界表达支持乌克兰的立场，可惜，遭到乌克兰方面的拒绝。目前，波兰、立陶宛、拉脱维亚和爱沙尼亚总统已抵达基辅并与泽连斯基会面。
 
+來源｜[USnews](https://www.usnews.com/news/world/articles/2022-04-13/scholz-irritated-by-german-presidents-aborted-ukraine-visit)
 
-**国防部长劳埃德·奥斯汀三世： **
-正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
+* * *
 
-
-
-> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
-
-
-
-> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
-> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室： **
-“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
-
-
-
-> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
-
-
-
-**众议员帕特·法伦：** 
-[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
-
-
-
-> Beijing is watching our every move. 
-> 
-> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
-> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
-
-
-
-> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
-
-
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

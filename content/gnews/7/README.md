@@ -2,20 +2,54 @@
 ---
 
 
-## 樱花FM┃德国强制老人接种新冠疫苗提案被否决
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2343672/)
+## 俄央行在战前就削减了美元储备并增加了人民币和欧元
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2343693/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-7.png)
-在参与投票的683名议员中，378人对该法案投了反对票，296人投了赞成票，这引发了极右翼非洲民主党议员们的欢呼。AfD动议认为，将疫苗接种强加给公民违反了宪法第二条，该条保证了公民对自己身体的控制。
+翻译： Jenny Ball
 
-肖尔茨补充说，政府将寻求其他方式来提高该国的疫苗接种率，而不是再次推行强制接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-28.jpg)
 
-文字版原文：[Germany’s Scholz says he will not make second push for vaccine mandate](https://www.reuters.com/world/europe/german-parliament-rejects-mandatory-vaccines-blow-scholz-2022-04-07/)
 
-*编辑：东京樱花团/小老虎
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-133.png)Oleg Elkov/Getty Images
+
+2021 年末，早在乌克兰战争之前，俄罗斯就已经开始减少美元敞口，并增持人民币和欧元。
+
+周一，俄罗斯央行行长埃尔维拉·纳比乌利娜（Elvira Nabiullina）在向议会提交的年度报告时表示，尽管西方制裁切断了该国获得某些货币的渠道，但目前俄罗斯拥有足够的人民币和黄金储备。
+
+据《彭博社》报道，截至 1 月 1 日，俄罗斯央行已将其美元储备从去年同期的 21.2% 降至 10.9%。
+
+与此同时，俄罗斯的人民币持有量较上年同期从 12.8% 跃升至 17.1%。 据该银行称，其在欧元中的份额从 29.2% 上升至 33.9%。
+
+与此同时，黄金储备略有下降。
+
+纳比乌利娜告诉议会，即使在国内生产总值下降之后，俄罗斯的经济最终也将能够恢复增长轨迹。
+
+自俄罗斯于 2 月 24 日首次入侵乌克兰以来，美国和其他国家对该国的经济、企业和一些最富有的寡头实施了严厉的金融制裁。
+
+制裁包括限制贸易和冻结外汇储备。
+
+据俄罗斯官员称，这些制裁冻结了其** 6420 **亿美元储备中的约一半。
+
+上周，俄罗斯金融日报《生意人报》报道称，俄罗斯大型银行从美元和欧元兑换成人民币的资金激增，许多新账户都以人民币开立。
+
+新闻来源：[Russia’s central bank was cutting dollar reserves and adding yuan and euros even before the war, report says](https://markets.businessinsider.com/news/currencies/dollar-vs-yuan-russia-bank-euro-gold-eserves-ukraine-war-2022-4)
+
+* * *
+
+素材：文舞
+审核：文乐   
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

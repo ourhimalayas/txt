@@ -2,39 +2,35 @@
 ---
 
 
-## 菲律宾自由区针对数字货币和区块链公司制定新法规
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343400/)
+## 福奇建议个人自主决定COVID的“个人风险”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2343459/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+据《福克斯新闻》作者：Peter Aitken，2022年4月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1679-e1649910150232.png)2021年12月1日，安东尼-福奇博士在白宫举行的每日简报会上发言。图片来源：Mandel Ngan/AFP 通过 Getty Images
+安东尼-福齐博士建议，随着人们学会与病毒共处，个人将需要自己决定他们个人的事件和COVID-19暴露的风险水平。
 
-#### 翻译/编辑：小红帽
+“将要发生的是，我们将看到每个人将不得不计算他们想要参加室内晚餐的风险程度，甚至在绿色区域的范围内发挥作用。”福奇周日在参加美国广播公司的“本周”节目时说，“这将是一个人对自己要承担的个人风险的决定。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Cryptocurrency-in-the-Philippines-Outlook-for-Foreign-Investors.jpg)图片来源：ENTERPH
+他补充说：“我们正处于这样一个阶段，在许多方面……我们将不得不忍受社区中某种程度的病毒。”
+
+疾病预防控制中心已将该国大部分地区标记为“绿色区域”，这表明对感染的担忧程度“较低”。疾病预防控制中心建议保持最新的疫苗，如果一个人有症状，就去做检查。
+
+诸如戴口罩或针对高危人群的额外预防措施，在一个区域被指定为“红色”或“高”风险之前不会启动，但福奇淡化了对感染率大幅上升的担忧以及向该“红色区域”移动的可能性。
+
+福奇赞扬了美国人的疫苗接种和预防水平，但他提醒说，人们需要保持对随着时间推移出现的免疫力减弱的认识。
+
+文章来源: [https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk](https://www.foxnews.com/health/fauci-each-person-needs-to-decide-individual-risk)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
 
-根据COINGEEK4月14日报道，菲律宾经济区巴丹正在寻求成为该国的数字货币和区块链中心，并通过了一项允许当地监管机构监督该行业的新法规。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-在最近的一份公告中，巴丹自由港区（FAB）透露，第11659号共和国法案的通过为该生态区成为一个拥抱新兴金融技术市场的离岸金融中心铺平了道路。
-
-以其新的身份，巴丹自由港区管理局将能够对从事人工智能、网络安全、虚拟现实、物联网和智能城市等行业的本地和外国商业实体进行许可、注册、监督和审批。
-
-巴丹自由港区管理局现在还将负责监督巴丹自由区内的区块链和分布式账本技术。该自由区是菲律宾400多个运营经济区之一。
-
-在努力将经济区作为区块链友好的目的地进行宣传的过程中，FAB在行政长官Emmanuel D. Pineda的带领下，参加了最近结束的AIBC迪拜峰会。来自区块链和数字货币行业的领导人聚集在一起。
-
-为了使巴丹自由港区成为一个对数字货币友好的目的地，菲律宾顶级区块链公司已经合作，旨在发展巴丹区块链城市。
-
-该倡议背后的公司之一Acceptar集团的首席执行官Francis Jimenez评论说：“帮助在菲律宾建立区块链公司将加速加密货币的大规模普及，并吸引该行业的领导者在这里投资和建立基地。”
-
-资料来源：[Philippines: Bataan free zone targets digital currency and blockchain companies with new regulations](https://coingeek.com/philippines-bataan-free-zone-targets-digital-currency-and-blockchain-companies-with-new-regulations/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
