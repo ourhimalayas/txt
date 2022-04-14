@@ -2,26 +2,37 @@
 ---
 
 
-## 马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2346551/)
+## 有声|中共内外交困加剧 喜币将成为最早的数字法币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346571/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1760.png)图片来源：CNN
-4月14日，《华盛顿观察家报》报道，埃隆·马斯克（Elon Musk）已经提出要购买推特（Twitter）百分百的股份，将公司归属其个人名下。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月12日，郭文贵先生盖特视频表示，习近平现在已是内外交困。之前中共威胁佩洛西访台将对台湾开战，现在佩洛西随时可能访问台湾。美国之前也已经有许多外交官员和外交飞机前往台湾，中共军方所有威胁的话语都已经成为国际笑柄。在墙内，上海、长春等地被封闭的饥饿居民为了一点食物，被迫出卖身体的事情已经传遍世界，中共灭亡是天意使然。
 
-周三，马斯克给推特董事会主席布莱特·泰勒（Bret Taylor）写了一封信，周四被安全和交易委员会进行了披露。在信中，马斯克提出以每股54.20美元的现金收购这家社交媒体公司，如果他的提议被拒绝，他将“需要重新考虑我作为股东的立场”。
+郭先生还说，目前有许多重大的好消息还需要严格保密，但是，喜币将会成为世界上最早的、最流行的数字法币，而人民币在海外会成为只有恐怖分子才使用的钱，成为犯罪币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/44-1.jpg)
 
-他在信中说：“我投资推特是因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常民主社会所必需的。然而，自从我进行投资后，我现在意识到，该公司以其目前的形式既不会茁壮成长，也不会为这种社会需求服务。推特需要作为一家私人公司进行转型。因此，我提出以每股54.20美元的现金收购推特的100%股权，比我开始投资推特的前一天溢价54%，比我公开宣布投资的前一天溢价38%。我的报价是我最好的也是最后的报价，如果不被接受，我将需要重新考虑我作为股东的立场。”
 
-马斯克表示：“我将会释放推特的非凡潜力。”
 
-截至周四上午，推特的交易价格为每股45.85美元。
 
-*责编：白夜*
+文字版原文：[中共内外交困加剧 喜币将成为最早的数字法币](https://gnews.org/zh-hans/2343791/)
 
-**新闻来源**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[Musk offers to buy 100% of Twitter in all-cash deal](https://www.washingtonexaminer.com/news/musk-offers-to-buy-100-of-twitter-in-all-cash-deal)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
