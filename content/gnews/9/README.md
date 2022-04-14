@@ -2,55 +2,59 @@
 ---
 
 
-## “非同寻常”——美国消费物价40年来最快飙升
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2342629/)
+## COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342834/)
 
-据《Zerohedge》记者Tyler Durden 2022年4月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1653.png)資料來源：彭博社
-在警告世界预计由于“普京式价格上涨”而导致通胀水平“异常升高”后，白宫今天早上可能会感到震惊，因为 3 月份整体 CPI 上涨 1.2%（环比），这导致整体 CPI同比增长惊人的8.5%（与预期8.4% 和前一期7.9% 相比）——自 1981 年以来的最高水平。
+#### 雅典娜情报组《民生灾难收集专栏》
 
-1.2% 的环比涨幅是自2005年9月以来的最大涨幅，而 CPI已连续22个月上涨，但我们注意到商品通胀实际上环比下降（而能源价格飙升）……
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1654.png)资料来源：彭博社
-然而，核心CPI（不含食品和能源）仅环比上涨0.3%（低于预期的+0.5%），同比上涨6.5%（高于2月份的6.4%，但低于预期的+6.6%）。
+整理/编辑：BENJ1
 
-住房指数是迄今为止增长的最大因素，其他一系列广泛的指数也有贡献，包括机票、家庭家具和运营、医疗保健和机动车辆保险。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
 
-相比之下，二手车和卡车指数本月下跌3.8%。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1655.png)图片来源：彭博社
-每月增长前5个子组件的完整细分如下所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1656.png)图片来源：彭博社
-与去年同期相比，价格上涨主要由能源和商品主导。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1657.png)资料来源：彭博社
-在你头上盖一个屋顶的成本（除非你在洛杉矶无家可归）继续飙升……
 
-- 3月住房通胀同比5.0%，高于2月的4.7%，为1991年5月以来的最高水平；
-- 3月租金同比上涨4.44%，高于2月的4.17%，为 2007年5月以来的最高水平。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1658.png)资料来源：彭博社
-3月份通胀的完整热图（更多内容将在后续帖子中跟进）。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1659.png)资料来源：彭博社
-请记住，根据《彭博社》的一项调查，在今年3月的报告之后，通胀预期开始下降，到第二季度 CPI分别为7.6% 和5.7%。根据至少6家华尔街银行的说法，这是通胀浪潮的顶峰。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-最后，也许最重要的是，对于实际上每天必须用自己（或她或她）的钱支付“东西”的普通美国人来说，实际平均每小时收入连续第12个月下降……
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1660.png)资料来源：彭博社
-这证实了《NBC 新闻》最近的民意调查显示，62% 的美国人表示他们的收入无法跟上不断上涨的生活成本。
+帖子原文：
 
-不过，好消息是，我们都知道这应该归咎于谁？
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1661.png)资料来源：彭博社
-当他们试图将今天的 CPI 数字归咎于“普京式价格上涨”时，请记住这一点。
+博主：一片月光
 
-* * *
+辉瑞第三针
 
-文章来源：[https://www.zerohedge.com/personal-finance/extraordinary-us-consumer-prices-soar-fastest-over-40-years](https://www.zerohedge.com/personal-finance/extraordinary-us-consumer-prices-soar-fastest-over-40-years)
+时隔半年给催促打了第三针
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+第一天手臂疼浑身疲惫
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+第二天发烧发冷全身酸痛+头疼
+
+第三天吃了Panadol 退烧了,手臂肿，可是拉肚子
+
+第四天困、困、困
+
+只能弱弱地说，大了几岁生二胎，身体远没有生一胎时恢复快恢复好
+
+疫情啊疫情能不能结束哇？我可不想去打第四五六针了！！
+
+担惊受怕+忍受疼痛，仿佛大病了一场
+
+#辉瑞第三针
+
+网友评论：
+
+[小! 绣包子](https://www.xiaohongshu.com/user/profile/5b4de66f11be102af765fed7) 回复：
+
+我打完辉瑞第三针除了手臂有些痛。还拉肚子。我还以为是巧合呢。以为我自己吃了不干净的东西。你也拉肚子。看来还有拉肚子这个后遗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1665.png)图片来源：小红书
+素材来源：
+
+[辉瑞第三针副作用](http://xhslink.com/aCHyHg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

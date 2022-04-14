@@ -2,53 +2,61 @@
 ---
 
 
-## 向李强喊话者被带走时高喊:一定要站起来,不能跪下去
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2342208/)
+## 专家：中共国封城是为扼制供应链而突出美国的依赖性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342280/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面-4.png)
-据[We’re new Chinese who is taking down the evil CCP](https://gettr.com/user/wenlongjack)@wenlongjack4月 11日发布的盖特
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1239800805-1200x800-700x420-1.jpg)2022 年 4 月 7 日，一名工作人员走在中共国上海的一家将收治新冠患者的方舱医院。（STR/AFP via Getty Images）
 
-1） 上海市委书记李强被上海老阿姨骂，共产党都是假的，结果领导一膨胀以为多受爱戴 结果就是皇帝的新衣 ，上海老阿姨厉害。
+来自《大纪元时报》2022年04月07日的报道，
 
-[https://gettr.com/post/p14oo3p602f](https://gettr.com/post/p14oo3p602f)
+投资公司Macrolens LLC的首席策略师布莱恩·麦卡锡(Brian McCarthy)说，中共官员最近几周对上海和其他城市实施的极其严格的封城，可能是为了向美国和盟友就其对中共国供应链的依赖发出信息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/001-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/002-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/003-1.jpg)
+上海的两阶段封城于3月28日开始生效，至今仍未解除。中共国官员不顾仅在两周内就使中共国经济损失290亿美元的预测，实施了这一措施。但在麦卡锡看来，美国和盟国的代价可能更大。
+
+4月4日，麦卡锡在接受大纪元电视台“中共国内幕”节目采访时说，全球供应链的中断尤其成问题，在通胀激增之际，美国的弱点更加明显。麦卡锡表示，中共国官员完全了解美国的经济困境，并选择这个时机来表明美国经济的脆弱性。
+
+麦卡锡说：“我们真的没有能力应对任何进一步的供应链中断。所以，你知道，他们真的让我们陷入了困境，（特别是）新冠病毒流行期”。
+
+但是麦卡锡并没有像一些人那样把病毒的爆发归咎于中共国共产党的恶意或处理不当。
+
+他说：“我认为这最终是一种自然行为，我不认为它是故意的，但很明显它使中共国相对于西方国家处于更强大的地位，西方国家正在处理瘫痪的供应链，而且看起来我们的食品和能源价格将急剧上升”。
+
+麦卡锡表示，中共国领导人习近平试图将西方对中共国供应链的依赖这一事实摆在面前，以便在他继续推行特别是针对台湾的扩张主义计划时为自己提供筹码。麦卡锡说，过去对习近平的软弱使他更有勇气在2023年、2024年或2025年采取进一步的激进行动。
+
+他说：“看看在香港发生了什么。美国对习近平有效地破坏了香港的任何形式的民主没有给予一点象征性的惩罚。”
+
+尽管习近平可能希望展示美国的弱点，但中共国经济本身也有严重的问题，主要集中在严重依赖信贷的房地产行业。麦卡锡说，他预计将看到房地产行业的营业额和价格继续下降。
+
+麦卡锡说：“在中共国，房地产是所有信贷的主要抵押形式。因此，新的贷款面临着非常严重的阻力。尽管有外部通胀压力，但中共国的内部动力将是强大的通货紧缩。”
+
+麦卡锡描述了一个严重依赖不完整的房地产泡沫的经济。他说，中共国各地的人们支付了目前价值约为其购买价格30%的资产。
+
+他说：“他们浪费了大量的实际资源，建造了一些没有人会使用的东西。这是千真万确的现实。”
+
+**简评：**
+
+中共国经济发展的过程本质就是中共国逐步成为全球供应链的一环，整个过程持续了四十多年。中共国的经济从1979年的1783亿到2021年的15万亿，这都是中共国人民几代人在付出了血和泪代价下创造的经济学奇迹。遗憾的是这些钱并没有进入到中共国人民的口袋，而是被中共的一帮盗国贼利用权力装到自己的口袋。中共的官员享受着全球最好的福利，做最轻松的工作，而中共国普通人民没有免费疫苗，没有免费教育，没有养老，还要支付高额的房贷。中共的盗国贼不但要偷走属于中共国人的财富，还要垄断中共国的市场，榨干中共国人的每一滴血。中共国的高房价就是中共垄断土地使用权，抬高土地成本，变相的剥夺了老百姓的生存权，最终都是老百姓买单。
+
+习近平上台之后更加变本加厉，他不但要报复社会，也要报复中共国人。上海封城就是最佳的证明，习近平想利用疫情将所有上海人囚禁在自己的家里，让他们也感受自己年轻时饿肚子的滋味。这是何其的变态。不仅如此，他更要挑战全世界，不惜摧毁中共国的经济，牺牲无数中共国人民也要实现自己的野心。而可怜、无辜的中共国人民都被他无情的绑上了中共战车，无数的青年男女将成为习近平追逐权力的炮灰。灭共，时不我待。
+
+新闻链接：[China’s Lockdowns May Be Partly a Ploy to Tamper With Supply Chains, Highlight US Dependence: Expert](https://www.theepochtimes.com/chinas-lockdowns-may-be-partly-a-ploy-to-tamper-with-supply-chains-highlight-us-dependence-expert_4392603.html)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: 感恩*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/004.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/005.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/006.jpg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
 
-不管李强拐弯被骂后这个小区的生活物资是不是得到了解决，但是至少出了一口恶气，但是，但是，后续来了，根据网传一段视频，共匪白卫兵把向李强喊话的另一位市民带走了——
-
-——记住！一个倒下了，千千万万站起来！你们一定要站起来，不能跪下去！
-
-这位只是向李强喊话，说明小区居民缺吃少穿、没医没药的市民以这种悲壮的方式被解决，不知道他接下来会遭遇什么样的折磨，但是这一幕却是这个至暗时代的最真实写照。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
