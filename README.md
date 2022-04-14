@@ -15,125 +15,125 @@
 
 ---
 
-### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [樱花时政┃俄乌大战即将开始，或升级为俄中欧全面战争](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共系统性危机爆发，全面回归计划经济](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [灭共是中国人的唯一活路（二）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [灭共是中国人的唯一活路（一）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（一）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [新中国联邦旭日初升，中共独裁者日薄西山（二）](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [4/10/2022 文贵直播：粮食成了中共统治老百姓最有力的武器；习搞核酸检测一箭四雕：1) 解决经济和房地产危机带来的社会崩塌；2) 对老百姓进行“压力测试”；3) 制造“战时状态”帮助习连任20大和打台湾； 4) 让世人尝尝习当年没饭吃的感觉；同时，习还想打垮美元并在乱世当强人](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [新中国联邦旭日初升，中共独裁者日薄西山（一）](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [禁止化学武器组织关注俄军在马里乌波尔使用化武的报道](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [杰克·波索比克:“他们非常害怕, 证明他们的疫苗无效，这就是他们进行所有这些封锁的原因”](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [专家：中共国封城是为扼制供应链而突出美国的依赖性](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/13/2022 文贵盖特：不论是俄乌战争被强奸被杀害的平民，还是发生在长春用一袋方便面睡一家子人的荒唐事件，只有灭共才是解决世界问题的唯一办法](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [日本同意冻结普京女儿及其他396名俄罗斯人的资产](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/17/README.md)
+### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [多数加拿大人认为疫情将永不会结束](/content/gnews/18/README.md)
- ` 扬帆枫叶快讯`
+### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [俄罗斯央行外币构成人民币份额增长最快](/content/gnews/19/README.md)
+### [中共系统性危机爆发，全面回归计划经济](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [灭共是中国人的唯一活路（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [灭共是中国人的唯一活路（一）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（二）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [比利时总理欧盟官员主动来到新中国联邦在乌克兰的救援营地现场（一）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦旭日初升，中共独裁者日薄西山（二）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [4/10/2022 文贵直播：粮食成了中共统治老百姓最有力的武器；习搞核酸检测一箭四雕：1) 解决经济和房地产危机带来的社会崩塌；2) 对老百姓进行“压力测试”；3) 制造“战时状态”帮助习连任20大和打台湾； 4) 让世人尝尝习当年没饭吃的感觉；同时，习还想打垮美元并在乱世当强人](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [新中国联邦旭日初升，中共独裁者日薄西山（一）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [禁止化学武器组织关注俄军在马里乌波尔使用化武的报道](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [4/13/2022 文贵盖特：新中国联邦战友在乌克兰救援前线的坚持赢得了更多国家和国际组织的认可](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [杰克·波索比克:“他们非常害怕, 证明他们的疫苗无效，这就是他们进行所有这些封锁的原因”](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [专家：中共国封城是为扼制供应链而突出美国的依赖性](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/13/2022 文贵盖特：不论是俄乌战争被强奸被杀害的平民，还是发生在长春用一袋方便面睡一家子人的荒唐事件，只有灭共才是解决世界问题的唯一办法](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [日本同意冻结普京女儿及其他396名俄罗斯人的资产](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄罗斯央行外币构成人民币份额增长最快](/content/gnews/21/README.md)
  ` 波士顿五月花农场金融部`
 
-### [波兰和波罗的海三国总统访问基辅](/content/gnews/20/README.md)
+### [波兰和波罗的海三国总统访问基辅](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/21/README.md)
+### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有法治的社会才能减少“仇恨”](/content/gnews/22/README.md)
+### [有法治的社会才能减少“仇恨”](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登称：俄罗斯在乌克兰犯下种族灭绝罪](/content/gnews/23/README.md)
+### [拜登称：俄罗斯在乌克兰犯下种族灭绝罪](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/24/README.md)
+### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/25/README.md)
+### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大国家储备的大量COVID疫苗开始过期](/content/gnews/26/README.md)
+### [加拿大国家储备的大量COVID疫苗开始过期](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
 
-### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/27/README.md)
+### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/29/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [芬兰将在未来几周而不是几个月内决定加入北约](/content/gnews/28/README.md)
- ` Shuizhuyu`
-
-### [五月花简报（04/13/2022）](/content/gnews/29/README.md)
+### [五月花简报（04/13/2022）](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/30/README.md)
+### [俄罗斯间谍被普京当作乌克兰败局的替罪羊](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/31/README.md)
+### [加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/32/README.md)
+### [滑铁卢大学禁止未接种疫苗者参加比赛](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/33/README.md)
+### [欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [截至4.13 俄乌战事汇总](/content/gnews/34/README.md)
+### [截至4.13 俄乌战事汇总](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/35/README.md)
+### [非董事会成员的依隆马斯克更能施展影响力](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/36/README.md)
+### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/37/README.md)
+### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/38/README.md)
+### [日本考虑派自卫队飞机支援乌克兰难民](/content/gnews/39/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/39/README.md)
+### [视频文编|疫苗灾难蔓延 储粮备药应对](/content/gnews/40/README.md)
  ` KarmaLabs`
-
-### [美命令非紧急雇员撤离上海](/content/gnews/40/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [美欧对中共国的一系列脱钩与制裁即将展开](/content/gnews/41/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`

@@ -2,8 +2,8 @@
 ---
 
 
-## 灭共是中国人的唯一活路（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342340/)
+## 中共系统性危机爆发，全面回归计划经济
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2342342/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
