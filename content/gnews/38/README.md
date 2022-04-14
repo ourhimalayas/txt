@@ -2,27 +2,21 @@
 ---
 
 
-## 俄罗斯将摧毁乌克兰的粮食库存和出口
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2346379/)
+## 爆料｜郭文贵分析 中共攻打台湾 灭亡是日本
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346400/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-29.png)
+郭文贵于台北14日晚间[直播](https://gettr.com/post/p15a3qt15e1)称，中共攻台，美军一定轰炸中共军事基地。此外，他表示“打得是台湾，灭得是日本”中共出兵攻打台湾，若台湾失守，日本就完了。郭分析日本、中共军力，他表示日本军事实力远高于中共，若日本出兵中共将惨败。他分析认为，中共可能五月对台军事行动。
 
-撰稿/翻译  加拿大温哥华扬帆农场 – 重生之鹰
+依照目前国际形式，郭文贵认为中共撑不过20大，他不相信中共还会有20大。港币他认为今年年底、明年年初将会崩塌。欧盟国家有可能会对中共撤回大使馆。
 
-据[布莱特巴特新闻]4月12日报道，欧盟外长当天表示：俄军目前正计划摧毁乌克兰的主要小麦和其他粮食库存，以彻底阻止该国粮食产品的对外出口。
+郭提到新中国联邦愿景，未来可能让新疆、西藏、香港、台湾，甚至是广东独立，实施联邦制度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1758.png)图片来源：[https://www.breitbart.com](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+* * *
 
-
-据悉，俄罗斯对此不仅军事封锁了黑海沿岸的乌克兰港口，还同时通过加紧轰炸乌克兰的各大粮食加工和储存基地来加剧全世界粮食供应危机，并试图以战争直接破坏全球供应链。
-
-报道称，作为世界上最大的谷物特别是小麦生产国之一，目前乌克兰出口的粮食量已经为零。此外，俄罗斯也是全球小麦市场的另一个主要参与者，但由于受到欧美制裁，该国的粮食出口供应也显著下降。因此不难预见，极端的全球粮食危机已迫在眉睫。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

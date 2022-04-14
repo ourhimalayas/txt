@@ -27,107 +27,107 @@
 ### [新一轮大战即将开打，泽连斯基公布所需武器清单](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国人权状况报告 ：“专制主义威胁着人权和民主主义”](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [比利时总理到访梅迪卡，消灭中共成为世界共识](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [新中国联邦、德国合作救助7难民](/content/gnews/9/README.md)
- ` 华盛顿DC-Russian`
-
-### [中共与俄勾肩搭背，台湾危险，拜登政府对了解COVID的起源 &#8220;不感兴趣&#8221;](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [拜登的 &#8220;种族灭绝 &#8220;言论，发言人萨基：&#8221;说的是感受&#8221;&#8230;&#8230;认定 &#8220;需数年&#8221;。](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月14日早](/content/gnews/12/README.md)
- ` 纽约香草山MOS01`
-
-### [文贵爆料 4.14：“木马屠城”的悲剧或将在台湾上演](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [截至4.14 俄乌战事汇总](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [波兰总统安德烈·杜达称俄罗斯入侵乌克兰是恐怖主义](/content/gnews/15/README.md)
- ` 温哥华扬帆农场`
-
-### [4/14/2022 文贵直播：台湾的军队以及情报部门绝大多数已被CCP收买，台湾的无人机来自中共国](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台](/content/gnews/17/README.md)
- ` G-NEWS TAIWAN`
-
-### [墨西哥表示不接受俄罗斯入侵乌克兰](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯潜艇在日本海演习中发射导弹](/content/gnews/19/README.md)
+### [俄乌战争影响 IMF下调143个经济体前景](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [樱花时政┃美国两党议员联合访台 将会晤蔡英文](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国家媒体正在利用H-1B签证绕过政府记者签证限制](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/22/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [文·贵天成——文贵先生谈“默克尔”（二）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大秦铁路天津蓟州段两火车相撞 在沉默中爆发抑或死亡？](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [2022年4月14日大直播速记精萃](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [俄乌战局最近消息汇总](/content/gnews/26/README.md)
- ` NFSC News`
-
-### [台湾人民危在旦夕](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/28/README.md)
- ` NFSC News`
-
-### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/29/README.md)
+### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯威胁如瑞典芬兰加入北约要部署新的核设施](/content/gnews/30/README.md)
- ` 波士顿五月花农场金融部`
+### [美国人权状况报告 ：“专制主义威胁着人权和民主主义”](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年04月14日七哥乱聊直播速记](/content/gnews/31/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [有声|中共内外交困加剧 喜币将成为最早的数字法币](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国及世界疫情简报（04-14-2022）](/content/gnews/35/README.md)
+### [比利时总理到访梅迪卡，消灭中共成为世界共识](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [认定种族清洗或种族灭绝意义重大](/content/gnews/36/README.md)
+### [新中国联邦、德国合作救助7难民](/content/gnews/10/README.md)
+ ` 华盛顿DC-Russian`
+
+### [中共与俄勾肩搭背，台湾危险，拜登政府对了解COVID的起源 &#8220;不感兴趣&#8221;](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [拜登的 &#8220;种族灭绝 &#8220;言论，发言人萨基：&#8221;说的是感受&#8221;&#8230;&#8230;认定 &#8220;需数年&#8221;。](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月14日早](/content/gnews/13/README.md)
+ ` 纽约香草山MOS01`
+
+### [文贵爆料 4.14：“木马屠城”的悲剧或将在台湾上演](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [截至4.14 俄乌战事汇总](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [波兰总统安德烈·杜达称俄罗斯入侵乌克兰是恐怖主义](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
 
-### [爆料｜郭文贵分析 中共攻打台湾 灭亡是日本](/content/gnews/37/README.md)
- ` 關注組`
+### [4/14/2022 文贵直播：台湾的军队以及情报部门绝大多数已被CCP收买，台湾的无人机来自中共国](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
 
-### [俄罗斯将摧毁乌克兰的粮食库存和出口](/content/gnews/38/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台](/content/gnews/18/README.md)
+ ` G-NEWS TAIWAN`
+
+### [墨西哥表示不接受俄罗斯入侵乌克兰](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [俄罗斯潜艇在日本海演习中发射导弹](/content/gnews/20/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [樱花时政┃美国两党议员联合访台 将会晤蔡英文](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国家媒体正在利用H-1B签证绕过政府记者签证限制](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共是如何迫使中国人仇视美国的？ （二）](/content/gnews/23/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/24/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [文·贵天成——文贵先生谈“默克尔”（二）](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大秦铁路天津蓟州段两火车相撞 在沉默中爆发抑或死亡？](/content/gnews/26/README.md)
+ ` 秘密翻译组-原创组`
+
+### [2022年4月14日大直播速记精萃](/content/gnews/27/README.md)
+ ` 雅典娜GNotes`
+
+### [俄乌战局最近消息汇总](/content/gnews/28/README.md)
+ ` NFSC News`
+
+### [台湾人民危在旦夕](/content/gnews/29/README.md)
+ ` 秘密翻译组-原创组`
+
+### [塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/30/README.md)
+ ` NFSC News`
+
+### [一直沉默的主持人马赫公开质疑新冠疫苗](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022年04月14日七哥乱聊直播速记](/content/gnews/32/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [有声|中共内外交困加剧 喜币将成为最早的数字法币](/content/gnews/33/README.md)
+ ` MOSREC`
+
+### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [长春疫情管控再酿惨案 多人因铁皮封锁被困火海](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国及世界疫情简报（04-14-2022）](/content/gnews/36/README.md)
+ ` 波士顿五月花农场`
+
+### [认定种族清洗或种族灭绝意义重大](/content/gnews/37/README.md)
+ ` 温哥华扬帆农场`
+
+### [爆料｜郭文贵分析 中共攻打台湾 灭亡是日本](/content/gnews/38/README.md)
+ ` 關注組`
 
 ### [传上海虹口区卫健委主任在办公室自尽](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
