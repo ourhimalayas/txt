@@ -2,29 +2,36 @@
 ---
 
 
-## 俄军长期囚禁并轮奸乌克兰少女
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346055/)
+## 突发：中共两列火车发生碰撞 9节车厢坠落桥下
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2346086/)
 
-作者：在远方
+作者：：香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
+墙内媒体4月14日报道，当天下午1时，中共国两列货运火车在行驶至大秦铁路途经天津市蓟州区的铁路段时发生了剧烈的碰撞，其中部分车厢滚落至铁路桥下。
 
-据相关媒体当地时间4月12日的报道，乌克兰人权观察员当天反馈的消息显示，在基辅郊区布查镇的一处地下室内，一群年龄在14岁至24岁之间的乌克兰少女曾被俄罗斯侵略军监禁长达25天。期间，俄军每天都对她们实施野蛮的轮奸行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-77.jpg)
-此外，大量的证据表明，俄罗斯士兵在侵略乌克兰的战争中对许多无辜的乌克兰妇女犯下了诸如强奸、滥杀和抢劫等罪行，致使她们当中的绝大多数遭受了无法复原的伤害。有当地居民证实，俄军不但将他的住所洗劫一空，甚至还在他家中的地窖内强奸并杀害了一名乌克兰女性。
+据了解，此次事故发生在大秦铁路413公里600米处，两列运煤火车发生相撞后，导致其中一列火车9节车厢坠落桥下，7节车厢发生侧翻。网传视频显示，中共的一列货运火车行驶在高架桥上，突然中间有几节车厢脱轨，掉到了下方空旷的地上，腾起大量烟雾。事故原因目前仍在调查中。
 
-对此，乌克兰人权组织主席切芮帕卡向联合国安理会指控称，俄罗斯军队已经把强奸当成了一种在乌克兰境内使用的武器，而现存的所有证据不过是俄军暴行的冰山一角。同时，乌克兰驻联合国大使基斯提亚也告知安理会，该国检察总长办公室已经启动了对俄军暴力侵犯乌克兰妇女事件的调查。
+此前，郭文贵先生曾在直播中指出，中共疫苗灾难将在今年五月份全面爆发，届时，空运、铁运等大型的事故灾难将会频繁发生。此次的火车相撞事故亦或与疫苗次生灾难相关。
 
-而据联合国妇女署执行主任巴豪斯透露，俄乌战争中越来越常出现的强奸和性暴力相关事件已经向全球释放了一个非常危险的信号，即俄军正在对乌克兰平民采取一种及其残暴的对待方式。
+新闻链接1：[http://124.133.228.83/articleContent/4399\_1003395.html](http://124.133.228.83/articleContent/4399_1003395.html)
 
-参考链接：
-1. [殘暴！ 俄軍監禁烏國14至24歲女孩25天 至少9人遭輪姦懷孕](https://news.ltn.com.tw/news/world/breakingnews/3890512)
-2. [向聯合國安理會控訴 烏克蘭人權組織批俄軍把強姦當武器](https://news.ltn.com.tw/news/world/breakingnews/3890112)
+新闻链接2：[https://i.ifeng.com/c/8FCwPpisCpl](https://i.ifeng.com/c/8FCwPpisCpl)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+视频：[https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4](https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4)
 
-总编：Irene木木
-编辑：静言
-审核：Irene木木
-校正/发稿：Fei797
+编辑/审核/发稿：Bronx Bombers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

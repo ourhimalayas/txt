@@ -2,41 +2,25 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345925/)
+## 纽约地铁枪击案造成十余人受伤
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346021/)
 
-**整理：枳实**
-**美工：精灵蓝**
+作者：文希
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+据当地媒体4月12日报道，纽约市布鲁克林区当天早晨发生了一起严重的地铁枪击案，已经造成10人中弹，16人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-97.jpg)
+消息显示，一名身穿橙色建筑工地背心的非洲裔男子先是在纽约地铁列车内释放大量烟雾弹，随后，其向车厢内和月台上的乘客连续扫射33枪，造成七名男子和三名女子中弹，另有多名乘客在逃离时踩踏受伤，而这名凶手则在开枪后迅速逃离。现场照片显示，多名华裔也在伤者之列。
 
+目前，纽约警方已于13日将逃犯弗兰克-詹姆斯抓捕归案，而纽约东区检察官办公室将以“对公共交通系统进行恐怖和其他暴力袭击”为由，对其进行起诉。检察官表示，詹姆斯或将面临终身监禁的惩罚。
 
-雅典娜疫情更新（2022年 4月14日）
+参考链接：
+1. [影／纽约布鲁克林地铁爆枪案 10人中弹16伤 现场华人多](https://www.worldjournal.com/wj/story/121470/6234473?zh-cn)
+2. [Suspected Brooklyn subway shooter Frank James arrested: NYPD](https://pix11.com/news/local-news/suspected-brooklyn-subway-shooter-in-nypd-custody-sources/)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-41.png)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-13.png)
-
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+总编/编辑/审核：Irene木木
+校正/发稿：Fei797
 
  
 

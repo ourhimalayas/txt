@@ -2,32 +2,25 @@
 ---
 
 
-## 台湾军方卖台贼购买了中共国的无人机
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2346293/)
+## 俄罗斯联邦黑海舰队的旗舰“莫斯科号”被击中
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346343/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/article-608b0e6ad6514.jpg)
-4月14日早，郭先生在直播中提到台湾目前的情况。
+**撰稿：日本东京方舟农场 北极**
 
-郭先生爆料，台湾此次参与对抗中共入侵的无人机正是来自中共大陆制造。中共先把生产好的无人机卖到澳大利亚，然后台湾的卖台贼再买回来。郭先生说未来中共一旦打台湾，可能出卖老百姓的就是被中共收买的台湾军方和情报系统的卖台贼们。
+据乌克兰国防快报4月13日报道，乌克兰海军发射了两颗RC-360MC海王星导弹，击中了俄罗斯黑海舰队的旗舰”莫斯科号”导弹巡洋舰。
 
-世界局势正在日益剧变，中共大概可能会在4月底5月份入侵台湾。而现在中共对卖台贼正在进行着战前最猛烈的一波洗脑和策反。中共给台湾一些要员大量赠送美元现金和黄金，有一些给到台湾手里，有一些给到台湾那些身在上海的家人手中。中共同时承诺一旦开战，卖台贼的家人会得到很好的照顾，并且战后的土地分配问题也已经谈妥。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-147.png)俄罗斯黑海舰队的旗舰 “莫斯科号”导弹巡洋舰。（图片来自国防快报）
 
-台湾危矣。
+导弹巡洋舰“莫斯科号”标准排水量为9,300吨，船体186米长，舰载船员485人。该舰一般部署在偏远地区的海域，可攻击敌方航母战斗群。
 
-撰稿、发布：骄子
+RK-360MC“海王星”导弹是由乌克兰卢奇设计局（Luch Design Bureau）研发制造的，列装乌克兰海军部队。海王星巡航导弹的射程可达280公里，携带重达150公斤的战斗单位。
 
-* * *
+参考链接：
+[https://reurl.cc/LpvgG7](https://reurl.cc/LpvgG7)
 
-欢迎订阅我们的GNews账号：
+总编：老孙
+校对发布：爱放飞
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

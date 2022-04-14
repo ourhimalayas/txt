@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|中共威胁之下,台湾首次向民众发布战争生存指南
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346412/)
+## 马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2346551/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1760.png)图片来源：CNN
+4月14日，《华盛顿观察家报》报道，埃隆·马斯克（Elon Musk）已经提出要购买推特（Twitter）百分百的股份，将公司归属其个人名下。
 
+周三，马斯克给推特董事会主席布莱特·泰勒（Bret Taylor）写了一封信，周四被安全和交易委员会进行了披露。在信中，马斯克提出以每股54.20美元的现金收购这家社交媒体公司，如果他的提议被拒绝，他将“需要重新考虑我作为股东的立场”。
 
-当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-22.45.47.png)图片来源: 网络
-据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备。还包含如何在军事攻击中幸存下来的技巧，如何区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
+他在信中说：“我投资推特是因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常民主社会所必需的。然而，自从我进行投资后，我现在意识到，该公司以其目前的形式既不会茁壮成长，也不会为这种社会需求服务。推特需要作为一家私人公司进行转型。因此，我提出以每股54.20美元的现金收购推特的100%股权，比我开始投资推特的前一天溢价54%，比我公开宣布投资的前一天溢价38%。我的报价是我最好的也是最后的报价，如果不被接受，我将需要重新考虑我作为股东的立场。”
 
-尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
+马斯克表示：“我将会释放推特的非凡潜力。”
 
+截至周四上午，推特的交易价格为每股45.85美元。
 
+*责编：白夜*
 
-文字版原文：[中共威胁之下,台湾首次向民众发布战争生存指南](https://gnews.org/zh-hans/2340940/)
+**新闻来源**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Musk offers to buy 100% of Twitter in all-cash deal](https://www.washingtonexaminer.com/news/musk-offers-to-buy-100-of-twitter-in-all-cash-deal)
 
  
 

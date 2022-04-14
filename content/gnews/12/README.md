@@ -2,101 +2,22 @@
 ---
 
 
-## 有声|新中国联邦咖啡 New Federal State of China coffee
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346393/)
+## 长春疫情管控再酿惨案 多人因铁皮封锁被困火海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2346466/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-乌克兰土地上的炮声
+撰稿/视频：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月14日15:00左右，长春市白菊路发生一起火灾。由于疫情防控，事发地点早已被长春市政府用铁皮栅栏进行了围挡封闭，导致多人被困于火海。
 
-The bombing from Ukraine
+编辑：东京樱花团/喜马拉雅的微尘 
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
-
-Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
-
-一个个匆忙的黄马甲，汇集成一束光，是力量
-
-The busy yellow vests, gathering into a beam of light, it is strength
-
-一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
-
-Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
-
-咖啡不苦 Coffee is not bitter
-
-苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
-
-咖啡不苦 Coffee is not bitter
-
-苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
-
-咖啡不苦
-
-Coffee is not bitter
-
-苦的是即使炮声和苦难也不能扭转很多人 的愚昧
-
-The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
-
-咖啡不苦
-
-coffee is not bitter
-
-苦的是人们在邪恶势力面前的懦弱与可怜
-
-The bitter is the cowardice and pitifulness of people in the face of evil forces
-
-端起咖啡杯
-
-Holding up the coffee cup
-
-品尝战火的苦难，愤怒 悲痛 无奈
-
-To taste the suffering of war, anger, grief, helplessness
-
-品尝新中国联邦咖啡，香浓 温暖 回味
-
-To taste New Federal State of China coffee, fragrant, warm and aftertaste
-
-每天一杯新中国联邦咖啡
-
-A cup of New China Federation coffee every day
-
-品味邪恶与正义较量的滋味
-
-Tasting the taste of the battle between evil and justice
-
-品味志愿者们传播的力量与温暖
-
-Tasting the power and warmth spread by volunteers
-
-等正义打败邪恶
-
-Waiting for justice to defeat evil
-
-再来一杯新中国联邦咖啡
-
-Another cup of New China Federal Coffee
-
-品尝苦尽甘来的滋味
-
-Tasting the taste of aftering suffering comes happiness.
-
-文字版原文：[新中国联邦咖啡 New Federal State of China coffee](https://gnews.org/zh-hans/2337190/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,35 @@
 ---
 
 
-## 美国考虑派遣一名高级官员访问基辅
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346387/)
+## 有声|前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346458/)
 
-**撰稿：日本东京方舟农场  北极**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国前国务卿蓬佩奥在4月10日播出的一档节目中，呼吁拜登政府加大对台湾的扶持力度。 蓬佩奥指出，首先应当承认台湾是一个独立的主权国家，这不仅是一个正确的选择，也是一个符合美国国家利益的策略。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-32.jpg)
+美国对台湾的立场，不能像对待乌克兰一样重蹈覆辙，等到乌克兰面临巨大危险时，才想起援助武器并提供支持。蓬佩奥强调，习近平和普京一样，他们不会满足于浅尝辄止的扩张，他们对外侵略的野心欲壑难填。如果美国对乌克兰的态度不够坚决，势必会让习近平相信，拿下台湾甚至侵占东南亚，都并非不可能完成的任务。
 
-据纽约时报4月13日报道，有知情人士透露，美国政府正在考虑在未来几天内向乌克兰首都基辅派遣一名高级官员，以示对乌克兰抵抗战争的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-148.png)拜登总统上个月在华沙会见了总统安杰伊·杜达（Andrzej Duda），但他不太可能去乌克兰。（图片来自纽约时报）
 
-该知情人士表示，拜登或哈里斯不太可能去基辅。拜登总统和副总统卡马拉·哈里斯（Kamala Harris）在过去一个月里都对乌克兰邻国进行了访问。美国总统或副总统在战区的安全要求是非常高的，访问活动需要大量的安保人员和设备。而白宫内阁秘书或军方高级成员，则有可能在小规模安全人员随行的情况下完成访问行程。
+文字版原文：[前美国国务卿蓬佩奥呼吁当局加大力度扶持台湾](https://gnews.org/zh-hans/2337878/)
 
-其他国家的高级官员包括一些世界领导人，已经对乌克兰首都进行了正式访问。英国首相鲍里斯·约翰逊（Boris Johnson）周六出人意料地访问了基辅。波兰、立陶宛、拉脱维亚和爱沙尼亚的总统周三访问了基辅。奥地利总理和欧盟委员会主席也均已到访基辅。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：
-[https://reurl.cc/44k7Zv](https://reurl.cc/44k7Zv)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-总编：老孙
-校对发布：爱放飞
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

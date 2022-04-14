@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|中共要求上海为死亡一万人做准备
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346392/)
+## “普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346461/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-郭文贵先生在4月10日的大直播中透露，中共当前在上海进行的疫情封控其实是一次为战争准备的压力测试。其中，上海得到的死亡指标是1万人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/586624293807329280624051.jpeg)
-郭先生解释道，一份中共上海市政府提交的内部报告预计，在封城一个月后，当地将有总人口数三万分之一的老、幼、病、残死亡。此外，中共当局也要求上海为死亡1万当地居民做准备。同时，郭先生早先也透露过，为了应对即将到来的疫苗灾难，中共已经给上海配备了超过五千个气化焚尸炉，用于处理大量死亡的民众尸体。
+**撰稿：日本东京方舟农场 北极**
 
-郭先生也提到，习近平本质就是要让中国人挨饿，因此，上海、香港、广州、深圳和北京等地区的民众都会生活得很惨。在此情况下，那些目前为上海支援食物的外省官员将很快被中共抓捕。
+据焦点报4月14日报道，乌克兰情报机构截获的一段入侵士兵与妻子的通话录音：俄罗斯联邦领导人弗拉基米尔·普京（Vladimir Putin）下令摧毁他们未能占领的乌克兰城市。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-149.png)乌克兰截获了占领者与妻子关于乌克兰“普京下令将一切夷为平地”的谈话。（图片来自焦点报）
 
+乌克兰国防部情报总局公开了截获的俄罗斯士兵奥列格·卡拉塞夫（Oleh Karasev）和他妻子之间的通话录音，录音证实了俄罗斯军方确实已经接到指示，要彻底摧毁他们未能占领的乌克兰城市。同时录音中还提到，在5月10日之前对乌克兰的战争必须取得某种所谓“成果“。
 
-文字版原文：[中共要求上海为死亡一万人做准备](https://gnews.org/zh-hans/2340710/)
+乌克兰情报部门对此事发表评论表示，该录音证实了俄罗斯联邦在该国最高军事政治领导层，特别是普京总统的直接指示下，故意摧毁乌克兰城市并对平民犯下种种罪行。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+参考链接：
+[https://reurl.cc/AKEVKj](https://reurl.cc/AKEVKj)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：老孙
+校对发布：爱放飞
 
  
 

@@ -2,47 +2,27 @@
 ---
 
 
-## 埃隆-马斯克提出以430亿美元的现金收购Twitter
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2346506/)
+## 有声|爱立信无限期暂停俄罗斯业务
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346644/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-20.jpg)
-上周，埃隆-马斯克成为Twitter的最大股东。这位特斯拉和SpaceX的首席执行官本打算加入Twitter的董事会–后来他没有加入。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据外媒报道，4月11日，瑞典电信设备制造商爱立信发表声明称，鉴于近期发生的事件和欧盟的制裁，公司从当日起，将无限期暂停与俄罗斯客户有关的业务。同时，爱立信在俄罗斯的员工将获得带薪休假。 据悉，爱立信公司在2月下旬战争初期，就停止了向俄罗斯供货。该公司发言人表示，爱立信在俄罗斯有大约600名员工，是俄罗斯最大和第四大电信公司的主要供应商。该公司在俄罗斯与乌克兰的收入，占其总收入的不到2%。 自俄罗斯入侵乌克兰以来，已有包括宜家家居、可口可乐、高盛和麦当劳在内的数百家西方公司，停止了在俄罗斯的业务。爱立信在芬兰的竞争对手诺基亚也曾在2月底表示，他们已经暂停向俄罗斯供货。爱立信和诺基亚的首席执行官分别宣布，两家公司将支持受战争影响的乌克兰的人道主义援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1759-edited.png)*埃隆-马斯克在一份美国证券交易委员会的文件中说，他将提出收购Twitter，在成为该公司最大的股东后不久。John Raoux/AP*
+文字版原文：[爱立信无限期暂停俄罗斯业务](https://gnews.org/zh-hans/2337877/)
 
-根据周三发布的一份监管文件，现在这位世界首富提出以430亿美元–每股54.20美元–的现金收购该公司。
+音频处理：Fei797
+发稿：Fei797
 
-“我提出了一个提议”，马斯克在推特上说。
-
-马斯克说，他相信Twitter的潜力，并认为这家社交媒体公司需要转型。
-
-马斯克在文件中说：“我的提议是我最好也是最后的提议，如果不被接受，我将需要重新考虑我作为股东的立场。(他持有超过9%的Twitter股份）Twitter有非凡的潜力。我将释放它。”
-
-他说：“我投资于Twitter，因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常的民主社会所必须的。”
-
-推特表示，它已经收到了马斯克“主动提出的”报价。
-
-该公司在一份声明中说，其董事会“将仔细审查该提案，以确定其认为符合公司和所有Twitter股东的最佳利益的行动方案”。
-
-马斯克提出的每股54.20美元的报价，比他公开宣布投资前一天的Twitter股票价值高38%，比周三的收盘价高18.2%。推特股票在周四的盘前交易中上涨了10%以上。
-
-本周早些时候，一名Twitter股东对马斯克提起了证券欺诈诉讼，称他迟迟没有披露他在Twitter的股份，使投资者损失惨重，为马斯克节省了约1.43亿美元。
-
-来源：[Elon Musk is offering to buy Twitter for $43 billion in cash](https://www.mprnews.org/story/2022/04/14/npr-twitter-elon-musk-buy-company)
-
-* * *
-
-审核：Aries的星
-校对：花羽
-发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
