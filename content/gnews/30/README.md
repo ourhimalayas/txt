@@ -2,29 +2,56 @@
 ---
 
 
-## 俄军长期囚禁并轮奸乌克兰少女
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346055/)
+## 澳州前总理:俄罗斯侵略乌克兰可能使习近平“有恃无恐”地入侵台湾
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346088/)
 
-作者：在远方
+据《澳洲天空新闻》 作者：Tyrone Clarke，2022年3月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1754-e1649942422135.png)托尼-阿博特警告说，俄罗斯对乌克兰的入侵可能会使中国国家主席习近平“有恃无恐”地攻击台湾。图片。NCA Newswire / Gaye Gerard
+前总理托尼-阿博特说，俄罗斯总统弗拉基米尔-普京对乌克兰的入侵可能会鼓励中共对台湾采取类似的军事行动。
 
-据相关媒体当地时间4月12日的报道，乌克兰人权观察员当天反馈的消息显示，在基辅郊区布查镇的一处地下室内，一群年龄在14岁至24岁之间的乌克兰少女曾被俄罗斯侵略军监禁长达25天。期间，俄军每天都对她们实施野蛮的轮奸行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-77.jpg)
-此外，大量的证据表明，俄罗斯士兵在侵略乌克兰的战争中对许多无辜的乌克兰妇女犯下了诸如强奸、滥杀和抢劫等罪行，致使她们当中的绝大多数遭受了无法复原的伤害。有当地居民证实，俄军不但将他的住所洗劫一空，甚至还在他家中的地窖内强奸并杀害了一名乌克兰女性。
+阿博特先生在纪录片特别节目《竞选揭秘》中告诉澳大利亚天空新闻台。今晚在Foxtel和Flash播出的特别纪录片“The Campaign Uncovered: A Peta Credlin Investigation”中说，欧洲的冲突具有深远的影响，将成为即将举行的联邦选举的一个关键战场。
 
-对此，乌克兰人权组织主席切芮帕卡向联合国安理会指控称，俄罗斯军队已经把强奸当成了一种在乌克兰境内使用的武器，而现存的所有证据不过是俄军暴行的冰山一角。同时，乌克兰驻联合国大使基斯提亚也告知安理会，该国检察总长办公室已经启动了对俄军暴力侵犯乌克兰妇女事件的调查。
+澳洲前总理说：“这是一个非常危险的时代，正如许多人所说，在这个时代有1930年代的影子。”
 
-而据联合国妇女署执行主任巴豪斯透露，俄乌战争中越来越常出现的强奸和性暴力相关事件已经向全球释放了一个非常危险的信号，即俄军正在对乌克兰平民采取一种及其残暴的对待方式。
+“我们显然看到了现在在东欧发生的事情，这不仅仅是一场遥远的、我们一无所知的人民之间的斗争。”
 
-参考链接：
-1. [殘暴！ 俄軍監禁烏國14至24歲女孩25天 至少9人遭輪姦懷孕](https://news.ltn.com.tw/news/world/breakingnews/3890512)
-2. [向聯合國安理會控訴 烏克蘭人權組織批俄軍把強姦當武器](https://news.ltn.com.tw/news/world/breakingnews/3890112)
+阿博特先生还发出了一个严峻的警告，如果冲突蔓延到欧洲边界之外，澳大利亚在全球秩序中的安全可能受到威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+他在节目中说：“这很容易使习近平冒险，企图占领台湾。”
 
-总编：Irene木木
-编辑：静言
-审核：Irene木木
-校正/发稿：Fei797
+“这将破坏我们在过去70年里所生活的全球秩序，在这种秩序下，我们享受到了人类历史上最美好的时光。”
+
+随着与中共关系的恶化，澳大利亚的国家安全和国防最近被迫成为政治辩论的焦点。
+
+澳大利亚和美国都表示，在中共入侵的情况下，他们会向这个岛国提供军事支持。
+
+然而，对澳大利亚国家安全更直接的威胁是在3月份实现的，当时所罗门群岛和中共国之间泄露的协议承诺加强两国的安全关系。
+
+该安全协议将允许中共国“根据自己的需要”将军事人员和海军舰艇转移到岛上，一些国防专家说，这可能会导致中共海军基地距离澳大利亚海岸不到200公里。
+
+澳大利亚战略政策研究所执行主任彼得-詹宁斯说，该协议是二战以来最大的“来自该地区的战略问题”。
+
+“从澳大利亚的战略和防御角度来看，这是不可接受的事情，”詹宁斯先生在3月告诉澳大利亚天空新闻。
+
+“它将对澳大利亚东部造成威胁，并为中共国人收集情报提供机会”。
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true](https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – HotPixel
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

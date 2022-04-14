@@ -2,18 +2,88 @@
 ---
 
 
-## 有声|习近平决定让北上广深的人民体验挨饿
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346357/)
+## 有声|新中国联邦咖啡 New Federal State of China coffee
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346393/)
 
 配音：香草山教育部 – 子兵
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-4月10日，郭先生在大直播透露，北上广深的城市化发展过快，人口膨胀，为了让这些地方承担城市过度发展的代价，习近平决定让这些地方的人民体验挨饿的滋味。
+乌克兰土地上的炮声
 
-据人口统计，上海目前的2500万人口，远超邓小平、江泽民时代规划的1500万，还在继续往5000万增长。此外，江浙沪一带共有1.3亿人口，都基本是为上海提供服务。
+The bombing from Ukraine
 
-郭先生最后指出，习近平认为江浙沪，得到太多的优惠政策和资源，才过上好日子。尤其是广州深圳的发展，已经远超中共国平均水平。但是，这些地区的人却认为是凭着自己的聪明和勤劳，获得富裕的生活，并没有感恩中共。为了让中国人民认识到城市过快发展后要面对的后果，以及这些城市的发展，和生活水平的提高都是中共的恩赐，通过断粮、断供等方式，让他们让体验挨饿的滋味。
+打响了正义与邪恶的交战，惊醒了世界对黑暗的漠视与纵容
 
-文字版原文：[习近平决定让北上广深的人民体验挨饿](https://gnews.org/zh-hans/2335251/)
+Starting the war between justice and evil, Awakening the world’s indifference and connivance to darkness
+
+一个个匆忙的黄马甲，汇集成一束光，是力量
+
+The busy yellow vests, gathering into a beam of light, it is strength
+
+一杯杯现磨的新中国联邦咖啡，温暖成春天的样子，是希望
+
+Cups and cups of freshly ground New Federal State of China coffee, the warm like spring, it is hope
+
+咖啡不苦 Coffee is not bitter
+
+苦的是乌克兰受难的人们的无辜 The bitter is the innocence of the suffering people in Ukraine
+
+咖啡不苦 Coffee is not bitter
+
+苦的是黑暗势力的蔓延和世界的糊涂 The bitter is the spread of dark forces and the confusion of the world
+
+咖啡不苦
+
+Coffee is not bitter
+
+苦的是即使炮声和苦难也不能扭转很多人 的愚昧
+
+The bitter is the sound of gunfire and sufferings can not turn many people around ignorance
+
+咖啡不苦
+
+coffee is not bitter
+
+苦的是人们在邪恶势力面前的懦弱与可怜
+
+The bitter is the cowardice and pitifulness of people in the face of evil forces
+
+端起咖啡杯
+
+Holding up the coffee cup
+
+品尝战火的苦难，愤怒 悲痛 无奈
+
+To taste the suffering of war, anger, grief, helplessness
+
+品尝新中国联邦咖啡，香浓 温暖 回味
+
+To taste New Federal State of China coffee, fragrant, warm and aftertaste
+
+每天一杯新中国联邦咖啡
+
+A cup of New China Federation coffee every day
+
+品味邪恶与正义较量的滋味
+
+Tasting the taste of the battle between evil and justice
+
+品味志愿者们传播的力量与温暖
+
+Tasting the power and warmth spread by volunteers
+
+等正义打败邪恶
+
+Waiting for justice to defeat evil
+
+再来一杯新中国联邦咖啡
+
+Another cup of New China Federal Coffee
+
+品尝苦尽甘来的滋味
+
+Tasting the taste of aftering suffering comes happiness.
+
+文字版原文：[新中国联邦咖啡 New Federal State of China coffee](https://gnews.org/zh-hans/2337190/)
 
 音频处理：Fei797
 发稿：Fei797

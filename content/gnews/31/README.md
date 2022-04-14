@@ -2,25 +2,36 @@
 ---
 
 
-## 纽约地铁枪击案造成十余人受伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346021/)
+## 突发：中共两列火车发生碰撞 9节车厢坠落桥下
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2346086/)
 
-作者：文希
+作者：：香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
+墙内媒体4月14日报道，当天下午1时，中共国两列货运火车在行驶至大秦铁路途经天津市蓟州区的铁路段时发生了剧烈的碰撞，其中部分车厢滚落至铁路桥下。
 
-据当地媒体4月12日报道，纽约市布鲁克林区当天早晨发生了一起严重的地铁枪击案，已经造成10人中弹，16人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-97.jpg)
-消息显示，一名身穿橙色建筑工地背心的非洲裔男子先是在纽约地铁列车内释放大量烟雾弹，随后，其向车厢内和月台上的乘客连续扫射33枪，造成七名男子和三名女子中弹，另有多名乘客在逃离时踩踏受伤，而这名凶手则在开枪后迅速逃离。现场照片显示，多名华裔也在伤者之列。
+据了解，此次事故发生在大秦铁路413公里600米处，两列运煤火车发生相撞后，导致其中一列火车9节车厢坠落桥下，7节车厢发生侧翻。网传视频显示，中共的一列货运火车行驶在高架桥上，突然中间有几节车厢脱轨，掉到了下方空旷的地上，腾起大量烟雾。事故原因目前仍在调查中。
 
-目前，纽约警方已于13日将逃犯弗兰克-詹姆斯抓捕归案，而纽约东区检察官办公室将以“对公共交通系统进行恐怖和其他暴力袭击”为由，对其进行起诉。检察官表示，詹姆斯或将面临终身监禁的惩罚。
+此前，郭文贵先生曾在直播中指出，中共疫苗灾难将在今年五月份全面爆发，届时，空运、铁运等大型的事故灾难将会频繁发生。此次的火车相撞事故亦或与疫苗次生灾难相关。
 
-参考链接：
-1. [影／纽约布鲁克林地铁爆枪案 10人中弹16伤 现场华人多](https://www.worldjournal.com/wj/story/121470/6234473?zh-cn)
-2. [Suspected Brooklyn subway shooter Frank James arrested: NYPD](https://pix11.com/news/local-news/suspected-brooklyn-subway-shooter-in-nypd-custody-sources/)
+新闻链接1：[http://124.133.228.83/articleContent/4399\_1003395.html](http://124.133.228.83/articleContent/4399_1003395.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+新闻链接2：[https://i.ifeng.com/c/8FCwPpisCpl](https://i.ifeng.com/c/8FCwPpisCpl)
 
-总编/编辑/审核：Irene木木
-校正/发稿：Fei797
+视频：[https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4](https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4)
+
+编辑/审核/发稿：Bronx Bombers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

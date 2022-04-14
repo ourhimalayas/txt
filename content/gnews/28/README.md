@@ -2,42 +2,38 @@
 ---
 
 
-## 澳州前总理:俄罗斯侵略乌克兰可能使习近平“有恃无恐”地入侵台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346088/)
+## 推特用户敦促埃隆-马斯克恢复唐纳德-川普的账户
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346159/)
 
-据《澳洲天空新闻》 作者：Tyrone Clarke，2022年3月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1754-e1649942422135.png)托尼-阿博特警告说，俄罗斯对乌克兰的入侵可能会使中国国家主席习近平“有恃无恐”地攻击台湾。图片。NCA Newswire / Gaye Gerard
-前总理托尼-阿博特说，俄罗斯总统弗拉基米尔-普京对乌克兰的入侵可能会鼓励中共对台湾采取类似的军事行动。
+据《纽约邮报》 作者：Ariel Zilber，2022年4月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1755-e1649943496816.png)盖蒂图片社
+在特斯拉的亿万富翁老板成为社交网络的最大股东并在Twitter的董事会中获得一席之地后，唐纳德-川普的支持者们敦促埃隆-马斯克恢复这位前总统的Twitter账户。
 
-阿博特先生在纪录片特别节目《竞选揭秘》中告诉澳大利亚天空新闻台。今晚在Foxtel和Flash播出的特别纪录片“The Campaign Uncovered: A Peta Credlin Investigation”中说，欧洲的冲突具有深远的影响，将成为即将举行的联邦选举的一个关键战场。
+在周二的盘前交易中，Twitter的股价上涨了27%以上–这是该公司连续第二天在马斯克收购7350万股后股价大涨。
 
-澳洲前总理说：“这是一个非常危险的时代，正如许多人所说，在这个时代有1930年代的影子。”
+推特首席执行官帕拉格-阿格拉瓦尔(Parag Agrawal)也在周二宣布，马斯克将加入推特的董事会。
 
-“我们显然看到了现在在东欧发生的事情，这不仅仅是一场遥远的、我们一无所知的人民之间的斗争。”
+“期待着与帕拉格和Twitter董事会合作，在未来几个月对Twitter进行重大改进！” 马斯克在推特上对阿格拉沃尔的宣布作出了回应。
 
-阿博特先生还发出了一个严峻的警告，如果冲突蔓延到欧洲边界之外，澳大利亚在全球秩序中的安全可能受到威胁。
+2021年1月6日美国国会大厦发生骚乱后，特朗普被禁止进入Twitter、Facebook、Instagram和其他所有大型社交媒体平台。此后，特朗普推出了自己的社交媒体平台Truth Social，但它一直受到技术故障和主要管理人员离职的困扰。
 
-他在节目中说：“这很容易使习近平冒险，企图占领台湾。”
+现在，支持川普的声音呼吁马斯克擦亮他支持自由言论的证书，并让这位前总统回来。
 
-“这将破坏我们在过去70年里所生活的全球秩序，在这种秩序下，我们享受到了人类历史上最美好的时光。”
+Lauren Boebert（R-Colo）议员周一在推特上说：“现在Elon Musk是Twitter的最大股东，是时候取消政治审查了。”
 
-随着与中共关系的恶化，澳大利亚的国家安全和国防最近被迫成为政治辩论的焦点。
+“推特曾经是一个开放的自由思想领域.”皮特-赫格塞斯周二在《福克斯与朋友》节目中说。“现在，像群体思维的左派这样的蓝色复选标记是这种思想的警察，推特的企业类型一直乐于执行它。”
 
-澳大利亚和美国都表示，在中共入侵的情况下，他们会向这个岛国提供军事支持。
+Lauren Boebert议员要求马斯克和Twitter恢复川普的账户。
 
-然而，对澳大利亚国家安全更直接的威胁是在3月份实现的，当时所罗门群岛和中共国之间泄露的协议承诺加强两国的安全关系。
+同时，记者格伦-格林沃尔德嘲笑CNN的布莱恩-斯特尔特，他说自由派对马斯克成为推特最大的股东有一种“恐惧”。
 
-该安全协议将允许中共国“根据自己的需要”将军事人员和海军舰艇转移到岛上，一些国防专家说，这可能会导致中共海军基地距离澳大利亚海岸不到200公里。
+格林沃尔德在推特上写道：“民主党和自由主义活动家团体多年来一直在联合科技亿万富翁的审查权力，并对谷歌和FB的高管们在互联网上审查他们的敌人表示感谢。”
 
-澳大利亚战略政策研究所执行主任彼得-詹宁斯说，该协议是二战以来最大的“来自该地区的战略问题”。
-
-“从澳大利亚的战略和防御角度来看，这是不可接受的事情，”詹宁斯先生在3月告诉澳大利亚天空新闻。
-
-“它将对澳大利亚东部造成威胁，并为中共国人收集情报提供机会”。
+“现在他们害怕一个不会为他们审查的亿万富翁会接管推特。”
 
 文章观点仅代表作者个人，与Gnews平台无关。
 
-文章来源: [https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true](https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true)
+文章来源: [https://nypost.com/2022/04/05/twitter-users-urge-elon-musk-to-reinstate-donald-trumps-account/?utm\_medium=SocialFlow&utm\_source=NYPTwitter&utm\_campaign=SocialFlow](https://nypost.com/2022/04/05/twitter-users-urge-elon-musk-to-reinstate-donald-trumps-account/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
 
 翻译：洛杉矶盘古农场 – Mike Li
 

@@ -2,24 +2,26 @@
 ---
 
 
-## 有声|中共要求上海为死亡一万人做准备
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346392/)
+## 有声|中共威胁之下,台湾首次向民众发布战争生存指南
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346412/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-郭文贵先生在4月10日的大直播中透露，中共当前在上海进行的疫情封控其实是一次为战争准备的压力测试。其中，上海得到的死亡指标是1万人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/586624293807329280624051.jpeg)
-郭先生解释道，一份中共上海市政府提交的内部报告预计，在封城一个月后，当地将有总人口数三万分之一的老、幼、病、残死亡。此外，中共当局也要求上海为死亡1万当地居民做准备。同时，郭先生早先也透露过，为了应对即将到来的疫苗灾难，中共已经给上海配备了超过五千个气化焚尸炉，用于处理大量死亡的民众尸体。
-
-郭先生也提到，习近平本质就是要让中国人挨饿，因此，上海、香港、广州、深圳和北京等地区的民众都会生活得很惨。在此情况下，那些目前为上海支援食物的外省官员将很快被中共抓捕。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
+当地时间4月12日，鉴于中共威胁不断加重，台湾军方发布了民防手册，为战争中的公民提供生存指导。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-22.45.47.png)图片来源: 网络
+据悉该指导手册详细介绍了如何通过智能手机应用程序找到水、食品供给和防空洞，以及急救包的准备。还包含如何在军事攻击中幸存下来的技巧，如何区分空袭警报和躲避导弹。手册使用了连环漫画的形式，清晰易懂，台湾国防官员介绍说，该手册借鉴了瑞典和日本发布的类似指南，讯息将会不断更新，如庇护所、医院和日用品商店，为安全做好准备，并帮助人们生存。
 
-文字版原文：[中共要求上海为死亡一万人做准备](https://gnews.org/zh-hans/2340710/)
+尽管台湾没有报告中共即将入侵的任何迹象，但自俄乌战争以来，中共入侵台湾近在咫尺。
+
+
+
+文字版原文：[中共威胁之下,台湾首次向民众发布战争生存指南](https://gnews.org/zh-hans/2340940/)
 
 音频处理：Tom Li
 发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,7 +34,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

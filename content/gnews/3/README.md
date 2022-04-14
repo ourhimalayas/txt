@@ -2,42 +2,47 @@
 ---
 
 
-## 樱花时政┃日本强化与意大利的军事合作 对抗中俄威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2346411/)
+## 埃隆-马斯克提出以430亿美元的现金收购Twitter
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2346506/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-292.jpg) [图片来源](https://www.voachinese.com/a/japan-italy-military-cooperation-china-russia-20220413/6528197.html)
-日本防卫大臣岸信夫(Nobuo Kishi)和意大利国防部长格里尼(Lorenzo Guerini) 星期二（4月12日）在东京举行了双边会谈。岸信夫说，他与他的意大利同行同意加强军事合作。日本因担心俄罗斯入侵乌克兰及其对亚洲的影响，而扩大与欧洲的安全关系。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-20.jpg)
+上周，埃隆-马斯克成为Twitter的最大股东。这位特斯拉和SpaceX的首席执行官本打算加入Twitter的董事会–后来他没有加入。
 
-岸信夫对媒体说，他与正在东京访问的格里尼讨论了扩大联合军事演习和开发国防技术的可能性。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1759-edited.png)*埃隆-马斯克在一份美国证券交易委员会的文件中说，他将提出收购Twitter，在成为该公司最大的股东后不久。John Raoux/AP*
 
-岸信夫说，格里尼对意大利可能参与日本下一代战斗机F-X特别表达了兴趣，但拒绝做出详细的说明。这将是日本40年来首次自主研发的战斗机。
+根据周三发布的一份监管文件，现在这位世界首富提出以430亿美元–每股54.20美元–的现金收购该公司。
 
-这两位防长一致认为，俄罗斯入侵乌克兰破坏了欧洲以及亚洲的国际秩序基础，是“绝对不能允许的”。
+“我提出了一个提议”，马斯克在推特上说。
 
-岸信夫说：“我们一致认为，拥有共同基本价值观的国家，如日本和意大利，必须团结一致，坚决采取行动。”
+马斯克说，他相信Twitter的潜力，并认为这家社交媒体公司需要转型。
 
-岸信夫还表示，日本高度重视意大利在印度-太平洋地区的利益和参与。中共国在该地区日益强势的军事活动加剧了紧张局势。
+马斯克在文件中说：“我的提议是我最好也是最后的提议，如果不被接受，我将需要重新考虑我作为股东的立场。(他持有超过9%的Twitter股份）Twitter有非凡的潜力。我将释放它。”
 
-近年来，日本大幅扩大了与美国及其他亚太地区和欧洲伙伴的安全会谈和联合演习，这些国家与日本一样对中共国在亚太地区的领土主张表示担忧。该地区拥有全球最繁忙的一些海上通道。
+他说：“我投资于Twitter，因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常的民主社会所必须的。”
 
-日本虽然不是北约成员国，但已经加强了与北约联盟的伙伴关系。本月早些时候，日本派遣外相林芳正(Yoshimasa Hayashi)赴布鲁塞尔参加了北约外长会议，讨论乌克兰问题。
+推特表示，它已经收到了马斯克“主动提出的”报价。
 
-日本尤其担心中共国军队和海警在日本控制的尖阁诸岛附近的活动。中共国把这组无人居住的小岛称为钓鱼岛，并声称对其拥有主权。
+该公司在一份声明中说，其董事会“将仔细审查该提案，以确定其认为符合公司和所有Twitter股东的最佳利益的行动方案”。
 
-信息来源： [出于对俄罗斯和中国的担忧，日本加强与意大利的军事合作](https://www.voachinese.com/a/japan-italy-military-cooperation-china-russia-20220413/6528197.html)
+马斯克提出的每股54.20美元的报价，比他公开宣布投资前一天的Twitter股票价值高38%，比周三的收盘价高18.2%。推特股票在周四的盘前交易中上涨了10%以上。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+本周早些时候，一名Twitter股东对马斯克提起了证券欺诈诉讼，称他迟迟没有披露他在Twitter的股份，使投资者损失惨重，为马斯克节省了约1.43亿美元。
 
+来源：[Elon Musk is offering to buy Twitter for $43 billion in cash](https://www.mprnews.org/story/2022/04/14/npr-twitter-elon-musk-buy-company)
 
+* * *
 
+审核：Aries的星
+校对：花羽
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
