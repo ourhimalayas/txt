@@ -2,34 +2,45 @@
 ---
 
 
-## 国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345305/)
+## 民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345404/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-27.png)
-法国记者推特发布消息指，瑞典和芬兰的总理刚刚举行了联合记者会，就两国加入北约的计划进行了会谈。芬兰总理马林表示，加入北约一事她不会给出确切时间表，但很快会在几周内发生。而瑞典可能在六月申请加入北约，瑞典的安全审查预计将在 5 月底之前完成，总理安德森表示，她将等待审查结果出炉后方作出决定。
+#### 雅典娜情报组《民生灾难收集专栏》
 
+整理/编辑：gardeniahu
 
-
-> 🇸🇪[#Sweden](https://twitter.com/hashtag/Sweden?src=hash&amp;ref_src=twsrc%5Etfw) and 🇫🇮[#Finland](https://twitter.com/hashtag/Finland?src=hash&amp;ref_src=twsrc%5Etfw)'s prime ministers have just held a joint press conference outlining plans to join [#NATO](https://twitter.com/hashtag/NATO?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> 🇫🇮 expected to move first. PM Marin says she won't give a timetable but "it will happen quite fast—within weeks, not within months, we will have the discussion" [pic.twitter.com/huEKnkDVUD](https://t.co/huEKnkDVUD)
-> — Dave Keating (@DaveKeating) [April 13, 2022](https://twitter.com/DaveKeating/status/1514198882250596356?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-3.png)图片来源：雅典娜设计组(614)
 
 
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-据外媒所述，芬兰已经准备好在几周内作出加入北约的决定，芬兰总理马林称，加入北约可能倒致俄罗斯采取行动，但不加入北约（结果）也是一样的，并表示“芬兰必须为俄罗斯的各种行动做好准备”。
+帖子原文：
 
-外媒引述民调结果，芬兰民调数据68% 支持加入北约，是俄乌战争发生前的两倍多，仅12%反对加入。而瑞典民调数据则显示，支持加入北约者略多于不支持者。
+到卖房时候才发现房价真的凉了。
 
-俄罗斯曾表示，若瑞典、芬兰加入北约，将不再谈论波罗的海无核化。俄罗斯安全委员会副主席德米特里．梅德韦杰夫（Dmitry Medvedev）表示，如果发生这种情况，莫斯科会做出回应，并加强俄军地面及防空部队，在位于芬兰、爱莎尼亚、俄罗斯之间的芬兰湾布署海军。
+房子挂出去几天了，依然没有一个看房的。中介给出理由我家租客在看房不方便。另外据说二手房挂盘的太多成交的太少。
 
-来源｜[衛報](https://www.theguardian.com/world/2022/apr/13/finland-and-sweden-could-apply-for-nato-membership-in-weeks)、[sky](https://news.sky.com/story/russia-threatens-nuclear-escalation-if-sweden-and-finland-join-nato-12589823)
+刚刚翻出两年前的短信，当时很傲娇的没有卖，现在悔恨不已。两年过去了，多交了快三十万的房，房价落到尘埃里了。现在又要卖了才有名额买，好难过。
 
-* * *
+#深圳楼市
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+发布于04.08
+
+精选评论
+
+比较知名的博主  回复：尽早套现离场吧，后面会更夸张。
+
+HHH  回复：你们最起码吃到了房价上涨的红利，现在接盘的开始没有这福利了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1734.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1735.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1736.png)图片来源：小红书
+参考链接:[到卖房的时候发现放假真的凉了](https://www.xiaohongshu.com/discovery/item/62503ea900000000210350e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904531)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

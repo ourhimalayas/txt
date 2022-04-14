@@ -2,25 +2,27 @@
 ---
 
 
-## 美国向乌克兰承诺再提供8亿美元的武器
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2345049/)
+## 有声｜对乌克兰的武器运输将被俄军视为军事目标
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2345289/)
 
-**美国承诺向乌克兰提供高达8亿美元的进一步军事援助。**
+**By:秘翻新闻**
 
-作者：dpa/JP/原文发布于2022年4月14日6:23(CET)
-翻译：LK
+**2022-04-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-14-182059.jpg)
+[路透社](https://www.reuters.com/world/russia-says-us-nato-weapon-transports-ukraine-are-legitimate-targets-2022-04-13/)4月13日报道，周三，俄罗斯外交部副部长谢尔盖-里亚布科夫在接受塔斯社采访时表示，俄罗斯将把在乌克兰境内运输武器的美国和北约车辆视为合法的军事目标。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-10.jpg)图片：马里乌波尔上空的烟雾（图片：Andrey Bordulin/法新社）。
+他补充称，西方国家企图对俄军或其在乌克兰的分离主义盟友造成重大损害，这些企图将被俄罗斯严厉镇压。
 
-此外，还将提供大炮、装甲车、直升机和弹药。在拜登总统和乌克兰国家元首泽伦斯基通话后，华盛顿政府宣布了这一消息。
+塔斯社援引里亚布科夫的话称：美国和北约的武器运输车穿过乌克兰领土，将被我们视为合法的军事目标。
 
-据乌克兰方面的消息，双方也商定美国将再次加强对俄罗斯的制裁。
+里亚布科夫还表示，俄罗斯正在让美国人和其他西方人明白，对俄罗斯特遣队和顿涅茨克、卢甘斯克人民共和国的编队造成损害的企图，将受到严厉镇压。
 
-欧盟也承诺向乌克兰进一步提供价值5亿欧元的武器。
+（ 秘翻新闻  大树  编译报道）
 
-原文链接：[https://brf.be/international/1593467/](https://brf.be/international/1593467/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,46 @@
 ---
 
 
-## 每次 COVID 注射后双眼出现罕见的缺血性视神经病变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344732/)
+## 【G时新闻】美国航母和日本防卫队在日本海联合演习
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2345158/)
 
-翻译：Jenny Ball
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+美国第七舰队周三（4月13日）说，在朝鲜日益增长的核和导弹威胁下，美国和日本一直在日本海进行由美国航母和日本海上自卫队船只参加的联合海军演习。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+据美国第七舰队称，核动力航母林肯号的打击群于上周五开始参与联合演习。据韩国韩联社报道，这是自2017年11月以来美国航母首次部署到朝鲜半岛附近海域。
 
+人们越来越多地猜测平壤可能进行核试验或在4月15日金日成诞辰110周年之际，在日本上空向太平洋发射洲际弹道导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-139.png)图片来源：childrenshealthdefense.org
-医学页面（MedPage）今天报道：
+据自卫队称，从日本出发，装备有宙斯盾防空系统的驱逐舰孔古（Kongou）号和另一艘驱逐舰伊奈兹玛（Inazuma）号参加了周二举行的训练。自卫队在推特上说，这次训练是 “保卫我们的国家，从和平时期开始确保这一地区和平与稳定 ”的努力的一部分。
 
-一名 53 岁男子左眼失明后到医院就诊。他解释说，他在 10 天前接种了辉瑞公司的第二剂 COVID 疫苗 (Comirnaty)。 他说，他在接种第一剂疫苗后 7 天出现了类似的症状。
+航空自卫队说，其四架F-2战斗机被派往周二的演习。
 
-提出这个非动脉炎性前部缺血性视神经病变（NA-AION）病例的临床医生强调，在接受辉瑞疫苗后，该病例（最初发表的两个病例之一）“描述了 NA-AION 和 COVID-19 疫苗接种之间的关联，而不是因果关系。”
+在今年年初以来进行了一连串的弹道导弹发射后，朝鲜于3月24日进行了自2017年11月以来的首次洲际弹道导弹发射，标志着其自2018年4月以来自我暂停的洲际弹道导弹试验的结束。
 
-然而，他们指出，“疫苗接种和缺血性视神经病变发展之间的时间”，以及患者在“第一次接种后一只眼睛和第二次接种后另一只眼睛出现症状”的潜在作用 ，在这两种情况下，这种疾病的发病机制中， COVID-19 疫苗引发的作用似乎是合理的。”
+据日本防卫省称，最新的导弹被评估为能够飞行超过15000公里，如果按照正常弹道，能够到达整个美国本土。
 
-评论：很快就将到疫苗灾难大爆发的时间，既5月左右，各种mRNA刺突蛋白注射引发的灾难将逐渐显现，疫苗灾难的程度将是史无前例的。
+平壤在1月份暗示，它可能会恢复核试验和洲际弹道导弹试验。它上次进行核试验是在2017年9月。
 
-新闻来源：[Visual Disturbances After Each COVID Shot? — Rare Sequence of Ischemic Optic Neuropathy in Both Eyes After First and Second Doses](https://childrenshealthdefense.org/defender/covid-nw-fauci-admits-defeat-people-calculate-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
+快评：美国和日本都在亚太海域部署，这篇新闻看上去是为了应对朝鲜的核和导弹发射，实际上大家都明白威慑的是朝鲜背后的中共。
 
+中共打台湾已经箭在弦上，为了这一时刻，郭先生爆料称习太阳已经准备了10年。
+
+中共在穷途末路上狂奔。郭先生在3天前的文贵大直播中说过，朝鲜金家已经知道中共与俄罗斯都完了，他自己肯定无法和美国对抗。接下来金家会被灭。
+
+编辑/上传：一叶
+盖特链接：[https://www.gettr.com/post/p156m77507c](https://www.gettr.com/post/p156m77507c)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
 
-评论： Jenny Ball
-审核：文乐      
-校对：信心满满
-发布：五通庙
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

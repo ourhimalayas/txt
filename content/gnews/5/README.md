@@ -2,56 +2,34 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.14)–打完第三针加强针疫苗对身体造成伤害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345315/)
+## 参议员霍利敦促美国尽快向台湾运送武器
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2345432/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-18.57.28.png)
+当地时间4月13日下午，美国共和党参议员霍利表示，美国必须尽快向台湾运送武器避免为时已晚。
 
-整理/编辑：禄森
+据悉此前拜登政府批准了一项价值9500美元的台湾武器计划，这是自俄乌战争以来的第二笔类似协议。随着中共国对台湾的剑拔弩张，战争尽在咫尺。上周，霍利提出了《台湾武器出口法》，该法案正在通过加快国会批准和简化行政程序来加快向台湾运送武器。霍利在一份新闻稿中说到，俄乌战争的教训就是乌克兰已经被入侵后造成了损失才去援助，美国不能在印太地区犯同样的错误，所以给台湾快速运送武器，给台湾争取一些时间建立防御并阻止中共的入侵。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
+台湾外交部对霍利议员的《台湾武器出口法》表达感谢，说这是对”stand with Taiwan“的坚定承诺，以及对2300万台湾人的信任支持。
 
+reference：
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+[https://news.tbs.co.jp/newseye/tbs\_newseye6012823.htm?1649906920242](https://news.tbs.co.jp/newseye/tbs_newseye6012823.htm?1649906920242)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+撰稿、发布：骄子
 
-**帖子原文**：
+* * *
 
-**博主:  Mr.zhang的佳宝**
+欢迎订阅我们的GNews账号：
 
-加强针确实威力强啊、昨天打完第三针、感觉胳膊好疼、今天胳膊还是好疼，很无力、抬不起来、还有点想睡觉、感觉人晕晕乎乎的、你们打完都有什么反应呢？
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-**#****疫苗加强针**
-
-**作者发布于2022-4-1**
-
-**精选评论**
-
-Sissy(维尼CC)评论:
-
-我也是，抬起来就痛，想睡觉
-
-Sssherry评论:
-
-我姨妈还没有来
-
-VIVI评论:
-
-我打第二针就疼了几天了！睡觉都不能侧睡了！现在都不敢去打第三针
-
-珍珍 : 我打第二针上吐下泄，昏睡了两天，关键我还有个小孩要照顾，迟迟拖着不敢打第三针，这不，要开学了，学校统计家长加强针是否已接种完成，所以刚打完第三针，期待啥事都没有
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1718.png)![](https://gnews.org/808c8cb9-5cca-4f34-bb05-2d570a217c25)![](https://gnews.org/c6fcf07e-3559-4d29-8131-215837738ed5)图片来源：小红书
-参考链接：
-
-[胳膊痛，头昏，犯困](https://www.xiaohongshu.com/discovery/item/6246787b00000000210360b0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1649729942)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
