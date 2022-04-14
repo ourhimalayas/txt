@@ -2,34 +2,32 @@
 ---
 
 
-## 樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347653/)
+## 中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347686/)
 
 撰稿：东京樱花团/喜马拉雅的微尘
 
-所罗门群岛准备与中共正式签署一项包含警务合作的安全协议引起美国以及地区国家的高度关切。澳大利亚和美国也相继增加向所罗门施加外交压力，希望所国放弃这一计划。
+北京时间4月13日早间消息，负责打击金融犯罪行为的印度联邦机构已经传唤了小米公司的一名前印度负责人，以调查该公司的商业行为是否符合印度的外汇相关法律。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://live-production.wcms.abc-cdn.net.au/aff337860baf67c387afaac2d65674f6?impolicy=wcms_crop_resize&amp;cropH=3333&amp;cropW=5000&amp;xPos=0&amp;yPos=0&amp;width=862&amp;height=575&amp;imgrefurl=https://www.abc.net.au/news/2022-03-24/draft-leak-chinese-military-base-solomon-islands/100937632&amp;tbnid=UPTlGhAFJyyDxM&amp;vet=12ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ..i&amp;docid=DnQpWLe0qLU5LM&amp;w=862&amp;h=575&amp;itg=1&amp;q=CCP%20Solomon%20Security%20Protocol&amp;ved=2ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-3.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://ichef.bbci.co.uk/news/976/cpsprodpb/B038/production/_109321154_gettyimages-1163006258.jpg&amp;imgrefurl=https://www.bbc.com/news/world-asia-india-50135050&amp;tbnid=5jtxvJrRe9V3gM&amp;vet=12ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ..i&amp;docid=7gwU1eJPbgB3lM&amp;w=976&amp;h=549&amp;q=Xiaomi%20India&amp;ved=2ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ)
 
-澳大利亚总理斯考特∙莫里森（Scott Morrison）星期三（4月13日）表示，澳大利亚国际合作与太平洋事务部长泽德∙瑟萨尔加（Zed Seselja）前一天已经飞往所罗门群岛，与该国总理梅纳西∙索加瓦雷（Manasseh Sogavare）就所国与北京4月1日草签的一份安全协议举行会谈。
+据悉，至少从2月开始，印度执法局（Enforcement Directorate）就一直在调查小米，并于最近几周要求该公司的前印度董事总经理马努·库马尔·贾恩（Manu Kumar Jain）出面配合调查。
 
-美联社引述瑟萨尔加的话说，他已经要求索加瓦雷放弃签署与中共的这份协议。
+贾恩目前是小米驻迪拜的全球副总裁，而据消息人士称，他目前正在印度，但他此行的目的尚不清楚。
 
-瑟萨尔加出访所罗门群岛的当天，美国副国务卿温迪∙谢尔曼（Wendy Sherman）也与所罗门群岛外长杰里迈亚∙马内莱（Jeremiah Manele）通了电话，讨论美国在所国首都霍尼亚拉重开大使馆的计划。
+在被问及此次调查时，小米发言人发表声明称，该公司遵守印度所有法律，并“完全遵守所有法规”。声明还表示：“我们正在配合当局正在进行的调查，以确保其能够拥有所有必要的信息。”
 
-美国驻所罗门群岛大使馆1993年关闭后，美国政府今年2月首次宣布重开该大使馆的计划。虽然那时所国与中共安全协议草案尚未曝光，但美国对中共在所罗门群岛这个极具战略意义国家迅速增长的影响力已经感到不安。
+这一行动标志着，印度对小米的审查正在加强。去年12月，在另一项涉嫌逃税的调查中，小米的印度办事处遭到突击搜查。当时，其他一些中国智能手机制造商也遭到了突击搜查。
 
-布林肯国务卿2月作出这一宣布时曾表示，在中共的影响力“根深蒂固”之前，美国也要在该国增加自己的影响力。
+贾恩未对相关置评请求作出回应，印度执法局也尚未回应。但值得指出的是，该局通常不会在调查进行期间公开细节。
 
-根据网上曝光的中共与所罗门群岛安全协议草案，中共军舰可以停靠在所罗门群岛进行“后勤补给”，中共也可以派遣警察和其他军方人士前往所罗门群岛“协助维持治安”。
+据悉，印度执法局正在调查小米印度、其代工制造商与其中国母公司之间的现有业务结构。此人表示，小米印度与其母公司之间的资金流（包括特许权使用费的支付）正在受到调查。
 
-协议草案还规定，双方的联合安全安排的信息如果对外披露，必须获得中方批准，这还包括媒体的吹风会。
+印度执法局在2月向贾恩发出通知，要求其提供各种公司文件，其中包括外国资金的细节、持股和融资模式、财务报表以及负责经营小米印度业务的主要高管的信息等。
 
-所罗门群岛政府已经表示，安全协议草案已经在两个星期前草签，并将在“整理后”很快定稿。
+根据市场研究公司Counterpoint Research的数据，在2021年里，小米仍然是印度最大的智能手机销售商，拥有24%的市场份额，而三星以19%的份额位居第二。除了智能手机以外，小米还在印度经营其他科技产品，如智能手表和电视等。
 
-所罗门群岛政府已经表示，不会允许中共在该国建立军事基地，而中共也否认在南太平洋寻求军事立足点。但是这份安全协议还是让许多西方国家深为关切。
-
-信息来源：[西方国家施压所罗门群岛，劝其放弃签署与中国的安全协议](https://www.voachinese.com/a/western-pressure-mounts-on-solomons-to-quash-pact-with-china-20220413/6527852.html)
+信息来源：[传印度执法局传唤小米印度前负责人：调查其是否遵守外汇相关法律](https://finance.sina.com.cn/tech/2022-04-13/doc-imcwiwst1507997.shtml)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

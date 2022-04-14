@@ -2,32 +2,18 @@
 ---
 
 
-## 中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347686/)
+## 樱花时政┃苏州或成为下一个“动态清零”的城市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347687/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+撰稿：东京樱花团/盐和光
 
-北京时间4月13日早间消息，负责打击金融犯罪行为的印度联邦机构已经传唤了小米公司的一名前印度负责人，以调查该公司的商业行为是否符合印度的外汇相关法律。
+4月14日每日经济报报道，苏州市召开中共病毒（新冠病毒Covid-19）疫情防控新闻发布会。苏州市委常委、市政府常务副市长顾海东通报：根据当前疫情防控形势，近几日苏州市持续组织开展了大规模的全员核酸检测，4月12日苏州市核酸采样1042.7万人次，4月13日核酸采样757.4万人次。今天（4月14日）继续开展重点区域核酸检测，截至15时，苏州全市重点区域核酸采样772万人次。苏州市本轮疫情累计追踪排查在苏州密接19163人，次密接33150人。苏州全市现有封控区138个、管控区100个、防范区14个。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片8-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp7.itc.cn%2Fq_70%2Fimages03%2F20220414%2F8f574c5696c4461d8f3e0cc2d89fd7f0.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.sohu.com%2Fa%2F537969307_115479&amp;tbnid=0VKjFTVb9rWwqM&amp;vet=12ahUKEwjhyvyxs5T3AhWFw4UKHTy0AA0QMygBegUIARCLAQ..i&amp;docid=6w18geLfzti6iM&amp;w=1080&amp;h=622&amp;itg=1&amp;q=%E8%8B%8F%E5%B7%9E%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjhyvyxs5T3AhWFw4UKHTy0AA0QMygBegUIARCLAQ)
+4月14日0时至15时，苏州全市新增阳性感染者16例，涉及7个县级市（区），截至2020年11月1日，苏州市常住人口为12748262人，与2010年第六次全国人口普查的10459890人相比，十年共增加2288372人，增长21.88%，年平均增长率为2.0%，截至2019年，苏州市实现地区生产总值（GDP）19235.80亿元，按可比价格计算，比上年同期增长5.6%。分产业看，2019年第一、二、三产业分别实现增加值196.70亿元、9130.18亿元、9908.92亿元，增速分别为-6.5%、5.1%和6.3%。2020年8月，名列上半年中共国GDP十强。这将是继武汉，香港，深证，长春，上海后，又一个因中共病毒和疫苗后遗症导致中共采取将要封城的城市。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-3.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://ichef.bbci.co.uk/news/976/cpsprodpb/B038/production/_109321154_gettyimages-1163006258.jpg&amp;imgrefurl=https://www.bbc.com/news/world-asia-india-50135050&amp;tbnid=5jtxvJrRe9V3gM&amp;vet=12ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ..i&amp;docid=7gwU1eJPbgB3lM&amp;w=976&amp;h=549&amp;q=Xiaomi%20India&amp;ved=2ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ)
+中共当前的所谓的“动态清零”疫情防控政策，不仅会造成大规模人道灾难，还在客观上顺应了全世界遏制中共国的大战略部署，包括像特区的深圳，直辖市的上海，苏州等核心工业区全面停工停产，高速全面封路等，造成的结果是封断供应链，将海外订单赶走，打击国内企业信心，逼迫企业外迁，吓退外来投资，然后流失掉众多人才……中共天天洗脑宣传世界要处心积虑围堵中共，最后却让中共自己促成围堵遏制自己。
 
-据悉，至少从2月开始，印度执法局（Enforcement Directorate）就一直在调查小米，并于最近几周要求该公司的前印度董事总经理马努·库马尔·贾恩（Manu Kumar Jain）出面配合调查。
-
-贾恩目前是小米驻迪拜的全球副总裁，而据消息人士称，他目前正在印度，但他此行的目的尚不清楚。
-
-在被问及此次调查时，小米发言人发表声明称，该公司遵守印度所有法律，并“完全遵守所有法规”。声明还表示：“我们正在配合当局正在进行的调查，以确保其能够拥有所有必要的信息。”
-
-这一行动标志着，印度对小米的审查正在加强。去年12月，在另一项涉嫌逃税的调查中，小米的印度办事处遭到突击搜查。当时，其他一些中国智能手机制造商也遭到了突击搜查。
-
-贾恩未对相关置评请求作出回应，印度执法局也尚未回应。但值得指出的是，该局通常不会在调查进行期间公开细节。
-
-据悉，印度执法局正在调查小米印度、其代工制造商与其中国母公司之间的现有业务结构。此人表示，小米印度与其母公司之间的资金流（包括特许权使用费的支付）正在受到调查。
-
-印度执法局在2月向贾恩发出通知，要求其提供各种公司文件，其中包括外国资金的细节、持股和融资模式、财务报表以及负责经营小米印度业务的主要高管的信息等。
-
-根据市场研究公司Counterpoint Research的数据，在2021年里，小米仍然是印度最大的智能手机销售商，拥有24%的市场份额，而三星以19%的份额位居第二。除了智能手机以外，小米还在印度经营其他科技产品，如智能手表和电视等。
-
-信息来源：[传印度执法局传唤小米印度前负责人：调查其是否遵守外汇相关法律](https://finance.sina.com.cn/tech/2022-04-13/doc-imcwiwst1507997.shtml)
+消息来源：[【苏州市已追踪排查在苏州密接19163人 现有封控区138个】](https://my.mbd.baidu.com/r/EtacxibmBa?f=cp&amp;rs=2898412079&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a35dcfb4c3b23491&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
