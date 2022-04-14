@@ -2,22 +2,41 @@
 ---
 
 
-## 秘翻在线：韩国青瓦台召开常任委员会并敦促俄罗斯禁止屠杀乌克兰平民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2345827/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345925/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-27.jpg)图片来源：本文链接
-据韩国《中央日报》4月14日报道，青瓦台14日召开了由国家安保室长徐薰主持的国家安全保障会议（NSC）常任委员会会议，常任委员们在当天的会议上对乌克兰政府发表的俄罗斯军队屠杀平民情况表示了严重的担忧，并敦促俄罗斯禁止屠杀平民。
+**整理：枳实**
+**美工：精灵蓝**
 
-另外，还决定与国际社会紧密合作，确保在乌克兰的韩国国民的安全，向乌克兰提供人道主义支援等必要措施。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-在朝鲜表现出核试验准备动向等安保脆弱期和政权交替期相衔接的现阶段，为了不让安保出现漏洞，将检查应对态势，并周密地管理相应情况。
 
-对此，常任委员会检查了朝鲜的军事动向和迎来梭子蟹季节的西海NLL（北方界线）周边水域的海上警戒态势。
+雅典娜疫情更新（2022年 4月14日）
 
-信息来源：[https://www.joongang.co.kr/article/25063553](https://www.joongang.co.kr/article/25063553)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-责编：Eric Kim
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-41.png)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-13.png)
+
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 

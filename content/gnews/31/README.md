@@ -2,24 +2,25 @@
 ---
 
 
-## 伊隆马斯克的最终目的要买断推特股票
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2345895/)
+## 纽约地铁枪击案造成十余人受伤
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346021/)
 
-编译：波士顿五月花—-思澈
+作者：文希
 
-马斯克对推特目前的现状表示，推特以其目前的形式既不会继续发展，也不会公正地发挥其社会效益。
+据当地媒体4月12日报道，纽约市布鲁克林区当天早晨发生了一起严重的地铁枪击案，已经造成10人中弹，16人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-97.jpg)
+消息显示，一名身穿橙色建筑工地背心的非洲裔男子先是在纽约地铁列车内释放大量烟雾弹，随后，其向车厢内和月台上的乘客连续扫射33枪，造成七名男子和三名女子中弹，另有多名乘客在逃离时踩踏受伤，而这名凶手则在开枪后迅速逃离。现场照片显示，多名华裔也在伤者之列。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CF91B343-851B-4052-9E48-91AFC1D2347D.jpeg)
+目前，纽约警方已于13日将逃犯弗兰克-詹姆斯抓捕归案，而纽约东区检察官办公室将以“对公共交通系统进行恐怖和其他暴力袭击”为由，对其进行起诉。检察官表示，詹姆斯或将面临终身监禁的惩罚。
 
-马斯克想要以每股54.20美元完全买断推特股票，他希望在收购后将推特从证券交易所中撤出来，因为只有这样，该服务才能发挥其作为自由言论平台的潜力。
+参考链接：
+1. [影／纽约布鲁克林地铁爆枪案 10人中弹16伤 现场华人多](https://www.worldjournal.com/wj/story/121470/6234473?zh-cn)
+2. [Suspected Brooklyn subway shooter Frank James arrested: NYPD](https://pix11.com/news/local-news/suspected-brooklyn-subway-shooter-in-nypd-custody-sources/)
 
-马斯克最初决定加入推特是因为他相信该公司有潜力成为 “全世界自由表达的平台”。然而，自从加入推特后他感觉到目前公司形式既没有发展，也没有发挥其社会作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-素材来源：[https://www.n-tv.de/wirtschaft/Elon-Musk-will-Twitter-komplett-uebernehmen-article23268872.html](https://www.n-tv.de/wirtschaft/Elon-Musk-will-Twitter-komplett-uebernehmen-article23268872.html)
-
-发布：思澈
-
-
+总编/编辑/审核：Irene木木
+校正/发稿：Fei797
 
  
 

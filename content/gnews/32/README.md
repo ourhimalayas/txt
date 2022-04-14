@@ -2,29 +2,27 @@
 ---
 
 
-## 财经｜拟私有化Twitter 马斯克提全面收购计划
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345891/)
+## 加拿大皇家骑警在镇压自由车队期间餐饮无度
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2345969/)
 
-**图/文｜CP**
-**发布时间｜14/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/擬私有化Twitter-馬斯克提全面收購計劃.jpg)
+采编：加拿大温哥华扬帆农场 – 硫酸羟氯喹64
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+
+据自媒体《真北方》4月12日报道，加拿大皇家骑警在此前镇压自由车队运动期间，仅用于支付在高档酒店的自助餐费用就花费掉纳税人近25万加元。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1752.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/12/rcmp-billed-taxpayers-nearly-250k-for-buffets-during-freedom-convoy-crackdown/)
 
 
-据美国证交会14日提交的一份公开文件显示，世界首富，Tesla创办人马斯克（Elon Musk）去信社交媒体Twitter（美：TWTR），提出以每股54.2美元的价格进行全面收购。目前，Twitter市值约为367亿美元，而马斯克提购价大约是410亿美元。
+据官方记录显示，皇家骑警在渥太华市中心的[费尔蒙]豪华酒店享用早，中，晚三餐的总费用高达23万5千加元。皇家骑警财务部门则对此声称，他们只是在该酒店吃饭而从未住宿，否则，警官们在渥太华的总花费还会更高。
 
-关于此举目的，马斯克在写给Twitter董事会主席Bret Taylor的信中解释道，“我投资Twitter，是因为我相信它有潜力成为全球言论自由平台，而且相信言论自由是有效民主制度的社会必要条件”，然而，在他投资Twitter后，他发现若公司停留在现有模式，既不会蓬勃发展，也不会有利言论自由，“Twitter需要转型为私人公司”。
+报道称，皇家骑警于2月10日在安省宣布进入紧急状态后抵达该酒店并成立联合指挥中心，并于2月18日开始依据特鲁多的[紧急状态法]逮捕和平抗议者。报告显示，所有参加镇压行动警员在该酒店的餐饮一直持续到2月23日。
 
-马斯克强调，现时提出的收购条件已是他的最终叫价，“若不被接受，我需要重新考虑自己作为投资者的身分”，强调“Twitter具有非凡潜力，我会将它解锁”。
+校对编辑：硫酸羟氯喹64
 
-Twitter股价周三收报45.85美元，马斯克拟全面收购的消息传出后，盘前大升逾11%，暂报51.27美元。
+发稿：青青
 
-來源｜[彭博社](https://www.bloomberg.com/news/articles/2022-04-14/elon-musk-launches-43-billion-hostile-takeover-of-twitter)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+新闻来源： [https://tnc.news/2022/04/12/rcmp-billed-taxpayers-nearly-250k-for-buffets-during-freedom-convoy-crackdown/](https://tnc.news/2022/04/12/rcmp-billed-taxpayers-nearly-250k-for-buffets-during-freedom-convoy-crackdown/)
 
  
 

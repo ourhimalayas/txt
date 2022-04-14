@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 3:04 PM (UTC)`
+
+【Ukraine Rescue】 04/14/22 Ben, a volunteer from the United States, says that the largest and best-equipped NFSC rescue station is the cornerstone of the Medyka center. Without the presence of the NFSC, Medyka would not be as global as it is today. He believes that it is because the New China Federation upholds humanity that the Communist Party should be eliminated; it should be a global fight because even a country as powerful and symbolic of freedom as the United States has been infiltrated by the CCP, so the whole world should come together to take down the CCP!<br/><br/>【乌克兰救援】 04/14/22 来自美国的志愿者本表示：设施最大服务最好的新中国联邦救援站是梅迪卡营地的基石。如果没有新中国联邦在这里，梅迪卡营地不可能像今天这样极具国际性。 他认为，因为新中国联邦维护人性，所以才要灭共，灭共应该是一场全球性的斗争，因为即使是美国这么强大、象征自由的国家都已经被中共染指和渗透，所以全球人都应该来灭共。
+![img](https://media.gettr.com/group6/origin/2022/04/14/15/9b110ad1-fe5c-e0fe-440f-078018609271/out.jpg)
+
+---
+
 `@miles 4/14/2022 2:49 PM (UTC)`
 
 【Ukrainian Rescue】 4/13/2022 The fellow fighters of the NFSC and ROLF are invited by the local Polish Red Cross to urgently provide supplies to more than 100 Ukrainian refugee children. These children need to  immediately leave by a bus to a place 5 hours away from the Medyka camp. The local Polish Red Cross staff is very grateful for the help of our NFSC fellow fighters, and invite us to help them in their bi-weekly bus rescue operation. They will bring the photos of the rescued children in their next rescue operation in two weeks.<br/><br/>【乌克兰救援】 4/13/2022 新中国联邦法治基金战友应波兰当地红十字会的邀请，为100多名乌克兰难民儿童紧急提供物资，这些儿童需要乘坐大巴立即前往梅迪卡营地5小时之外的地点。波兰当地红十字会非常感激新中国联邦战友的帮助，邀请我们为他们每两周一次的大巴救援行动提供帮助，并表示他们将在两周后救援行动时带来这些被救孩子的照片。<br/>
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 2022.04.13  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百六十四集 嘉宾：青藤、风雨之中
 ![img](https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/14/2022 1:27 AM (UTC)`
-
-4月13号：尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏明天上午我会抽时间直播半小时左右，一切都已经开始！
-![img](https://media.gettr.com/group37/getter/2022/04/14/01/0a52bfd9-8d18-287b-74db-fafab368ef56/out.jpg)
 
 ---
 
