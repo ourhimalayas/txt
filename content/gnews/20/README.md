@@ -2,28 +2,27 @@
 ---
 
 
-## 安省废水分析结果表明变种病毒正席卷而来
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2346102/)
+## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月10日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346241/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV-3.jpg)
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月10日晚](https://gnews.org/zh-hans/2324974/)
 
-据加拿大CTV新闻4月13日报道，由于安省缺乏足够的新冠病毒检测人员和设施，卫生部门不得不转用包括对包城市生活废水检验结果在内的其它数据来分析病毒传播情况。并通过定期重复采样，来准确计算出废水中的病毒浓度。
+音频处理：Fei797
+发稿：Fei797
 
-- ![](https://www.ctvnews.ca/content/dam/ctvnews/en/images/2022/4/13/wastewater-covid-1-5859982-1649849022958.jpg)图片来源：[https://toronto.ctvnews.ca](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-
-对废水分析的最新数据显示，安省目前的病毒感染人数正在回升，病毒标准化浓度已恢复到去年圣诞节前后的高水平。而在所收集的样本中，有90%以上是传播能力和速度更强的Omicron亚变体。同时，所有公共卫生单位也都出现了同样的疫情峰值，这表明第六波病毒传播潮并不受地域限制。
-
-据悉，安省废水中病毒标准化浓度在2月和3月初曾持续下降，但在政府取消卫生限制措施和配戴口罩规定之后，该数据随后猛然回升。这表明在人们都放松了警惕时，变种病毒却再次席卷而来
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

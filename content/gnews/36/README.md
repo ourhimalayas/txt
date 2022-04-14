@@ -2,45 +2,28 @@
 ---
 
 
-## 民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345404/)
+## 网球明星拉斐尔·纳达尔因健康原因退出巴塞罗那公开赛
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2345430/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+#### 编译 意大利达芬奇农场 小白鸽
 
-整理/编辑：gardeniahu
+世界冠军拉斐尔·纳达尔（Rafael Nadal)上个月突然出现严重的呼吸困难。3月20日，纳达尔在印第安维尔斯锦标赛的决赛中仅以两盘输给了美国人泰勒·弗里茨（Tayler Fritz )，并在比赛结束时说他呼吸很困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-14-alle-12.55.13.png)图片来自网络
+他告诉记者：“我只能说我现在呼吸很困难，我不知道什么原因，当我试图呼吸时，感觉很痛苦，而且非常复杂。”他在印第安维尔斯的史诗般的半决赛中与西班牙人卡洛斯·阿尔卡拉斯(Carlos Alcaraz)进行了三个多小时的比赛时感到胸部疼痛，左脚也有不适。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-3.png)图片来源：雅典娜设计组(614)
+在与弗里茨的决赛中，纳尔达两次向医疗机构寻求帮助以缓解胸痛，但他在球场上一直觉得不舒服。他说：“老实说，我很伤心，因为我无法参加比赛。”
 
+今年1月纳达尔在他的对手德约科维奇(Novak Djokovic)陷入司法纠纷时曾对媒体说过：“我相信专家了解药品，如果他们让我们接种新冠疫苗，我们就该接种疫苗。”
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
+这位35岁的球员本月从巴塞罗那公开赛退役。据路透社报道，纳达尔在从本月在巴塞罗那举行的ATP赛事中退役后，仍然不确定何时能够重返竞技网球，因为他的肋骨受伤，正在恢复。
 
-帖子原文：
+简评：曾经极力支持新冠疫苗，相信专家的纳达尔如今身体健康出现了问题。还会有多少像纳达尔这样的运动员会一个个地倒下？也许今后类似的灾难会更多，但愿人们早日醒来。新冠疫苗含有刺突蛋白，正在造成大量的伤亡。
 
-到卖房时候才发现房价真的凉了。
+参考链接：
 
-房子挂出去几天了，依然没有一个看房的。中介给出理由我家租客在看房不方便。另外据说二手房挂盘的太多成交的太少。
+[https://www.eventiavversinews.it/la-star-del-tennis-rafael-nadal-si-ritira-dal-barcelona-open-per-problemi-di-salute/](https://www.eventiavversinews.it/la-star-del-tennis-rafael-nadal-si-ritira-dal-barcelona-open-per-problemi-di-salute/)
 
-刚刚翻出两年前的短信，当时很傲娇的没有卖，现在悔恨不已。两年过去了，多交了快三十万的房，房价落到尘埃里了。现在又要卖了才有名额买，好难过。
-
-#深圳楼市
-
-发布于04.08
-
-精选评论
-
-比较知名的博主  回复：尽早套现离场吧，后面会更夸张。
-
-HHH  回复：你们最起码吃到了房价上涨的红利，现在接盘的开始没有这福利了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1734.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1735.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1736.png)图片来源：小红书
-参考链接:[到卖房的时候发现放假真的凉了](https://www.xiaohongshu.com/discovery/item/62503ea900000000210350e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904531)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑、上传：Xiao baige
 
  
 

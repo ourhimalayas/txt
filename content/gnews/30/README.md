@@ -2,42 +2,41 @@
 ---
 
 
-## 4/14/2022 银河快讯：日银黑田总裁：&#8221;采取强有力的货币宽松政策&#8221;对应20年来最弱的日元；内阁官房长官就日元贬值发表讲话说：快速波动是不可取的
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2345869/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345925/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/thumb-12198-1576891-economy.jpeg)
-[图片来源](https://news.nifty.com/article/economy/economyall/12198-1576891/)
+**整理：枳实**
+**美工：精灵蓝**
 
-1. **日银黑田总裁：****“采取强有力的货币宽松政策”对应20年来最弱的日元**
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
 
-[据朝日新闻4月13号报道，在东京外汇市场上，日元兑美元加速贬值，暂时跌至1美元兑126日元的水平，这是自2002年5月以来19年零11个月中的第一次。自今年3月以来，在日美货币政策差异的背景下，买入高利率美元和卖出日元的情况越来越多，导致日元的跌幅超过了11日元。由于乌克兰局势的恶化，资源价格的飙升更加刺激了日元的贬值，人们越来越担心家庭负担会愈加沉重。](https://news.yahoo.co.jp/articles/fd5edd2d19e895076ffcc02940ad61eb9337a044)
+雅典娜疫情更新（2022年 4月14日）
 
-**2. 内阁官房松野长官就日元贬值发表讲话：快速波动是不可取的**
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-[据TBS 4月13号报道，内阁官房松野长官就最近日元贬值的问题发言我们认为，”货币稳定很重要，快速波动是不可取的。政府将继续以高度的紧迫感监测外汇市场的动向及其对日本经济的影响”。关于外汇政策，将基于七国集团对#1对外汇市场动向的密切磋商#2过度的波动和无序的移动将对经济和金融稳定产生负面影响的共同协议。并将与美国和其他货币当局密切沟通并作出适当的反应。](https://news.yahoo.co.jp/articles/0f720576fe0f4cb55da2ed8b4f5a685bde72d437)
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
 
-**3. 中共病毒（新冠病毒COVID-19）对策专家会议：病例呈上升趋势**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-41.png)
 
-[据NHK4月13号报道，全国新感染数总体上继续增加，十几岁及以下的感染者转为下降，而50岁及以上的人数则呈现上升。人们还注意到，区域差异已经出现，大都市增长速度相对温和，而在一些地方城市，感染正在迅速蔓延。专家组注意到，目前虽然全国范围内的感染继续增加，但有一些地区，新感染人数保持不变，而另外一些区域并为从所谓的 “第六波 “的高峰期充分下降即开始上升。](https://www3.nhk.or.jp/news/html/20220413/k10013581131000.html)
 
-**4. 机械订单连续第二个月下降，基本判断 “复苏停滞”**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-13.png)
 
-[据NHK4月13号报道，主要机械制造商收到的订单表明了企业资本投资的前景，今年2月连续第二个月下降，比前一个月下降超过9%。内阁已经将其对经济的基本基调的评估下调为 “复苏停滞”。分项数据显示，在制造业方面，化工制造商生产树脂和其他化学产品的机械订单减少，而在非制造业方面，信息服务业的系统相关设备订单减少，推动了整体订单数量的下降。](https://www3.nhk.or.jp/news/html/20220413/k10013580011000.html)
 
-**5. 北海道电力公司不再续签俄罗斯煤炭合同，对供应亦无影响**
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-[据NHK4月13号报道,燃煤发电是北海道电力的主要电力来源，在2020财政年度占其发电量的一半以上。澳大利亚是最大的外国煤炭来源，俄罗斯的煤炭占近10%。在此背景下，北海道电力公司上周宣布，在俄罗斯军事入侵乌克兰后，政府最终禁止从俄罗斯进口煤炭，它将不会签署任何新的俄罗斯煤炭合同。](https://www3.nhk.or.jp/news/html/20220413/k10013580771000.html)
+发布：文武全才
 
-**6. 派遣自卫队飞机援助乌克兰**
-
-[据日本电视4月13号报道，作为对乌克兰支持的一部分，政府正在进行最后的调整，根据《维和法》向乌克兰和邻国派遣自卫队运输机。应联合国难民署/联合国难民事务高级专员的要求，自卫队的飞机将被派去运送救援物资。根据《国际和平合作法》（PKO法），部署自卫队飞机作为实施 “人道主义国际救援行动 “。据政府官员称，这是自2003年派遣运输机支援伊拉克以来，自卫队首次以这种形式派遣飞机。](https://news.ntv.co.jp/category/politics/ef3288037e5e4697a6dca5a6fb3dde94)
-
-**【日本银河系农场-阿尔法星球】**
-
-作者：返朴归真
-
-校对：Tagomi
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 

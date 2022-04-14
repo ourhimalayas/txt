@@ -2,27 +2,36 @@
 ---
 
 
-## 共产主义的结局必将是消亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2346000/)
+## 突发：中共两列火车发生碰撞 9节车厢坠落桥下
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2346086/)
 
-作者：Naughty(文行)
+作者：：香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
+墙内媒体4月14日报道，当天下午1时，中共国两列货运火车在行驶至大秦铁路途经天津市蓟州区的铁路段时发生了剧烈的碰撞，其中部分车厢滚落至铁路桥下。
 
-4月13日，郭文贵先生在盖特视频中再次提到，共产主义必将走向消亡的结局。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-103.jpg)
-郭先生提到，通过爆料革命战友的努力，世界人民已经切身地体会到了来自共产党的威胁：在乌克兰人被大量杀害的同时，中共国内的民众也难逃一劫。为此，国际社会已经深切地意识到，共产党是世界上一切问题和所有邪恶的根源，只有消灭中国共产党才能真正解决当今世界的各种问题。这其中，新中国联邦人用实际行动告诉世界，中国共产党不等同于中国人，而新中国联邦更是致力于消灭中共的新中国人。
+据了解，此次事故发生在大秦铁路413公里600米处，两列运煤火车发生相撞后，导致其中一列火车9节车厢坠落桥下，7节车厢发生侧翻。网传视频显示，中共的一列货运火车行驶在高架桥上，突然中间有几节车厢脱轨，掉到了下方空旷的地上，腾起大量烟雾。事故原因目前仍在调查中。
 
-此外，郭先生也解释道，虽然俄罗斯还会继续疯狂地投入战争，但这场战争将会铸造出一个以波兰和乌克兰为核心的团结欧洲。因此，对于俄罗斯乃至整个共产主义来说，其只会面临一个灾难性的收场。
+此前，郭文贵先生曾在直播中指出，中共疫苗灾难将在今年五月份全面爆发，届时，空运、铁运等大型的事故灾难将会频繁发生。此次的火车相撞事故亦或与疫苗次生灾难相关。
 
-至于目前仍在波兰梅蒂卡前线的救援战友，郭先生表示，他们正在用实际行动、努力和坚持换来世界各国对新中国联邦的重视和广泛关注。而在这个历史性的时刻，郭先生勉励前线战友继续坚持，也鼓励后方战友大量传播前线信息和中共在墙内制造的人权灾难。
+新闻链接1：[http://124.133.228.83/articleContent/4399\_1003395.html](http://124.133.228.83/articleContent/4399_1003395.html)
 
-参考链接：[4月13号：尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！](https://gettr.com/post/p153hbz15f5)
+新闻链接2：[https://i.ifeng.com/c/8FCwPpisCpl](https://i.ifeng.com/c/8FCwPpisCpl)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+视频：[https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4](https://video.sina.cn/finance/2022-04-14/detail-imcwipii4256858.d.html?vt=4)
 
-总编：Irene木木
-编辑：Delilah小胖，Irene木木
-审核：Ivy001
-校正/发稿：Fei797
+编辑/审核/发稿：Bronx Bombers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

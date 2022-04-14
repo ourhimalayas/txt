@@ -2,52 +2,54 @@
 ---
 
 
-## 推特用户敦促埃隆-马斯克恢复唐纳德-川普的账户
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346159/)
+## 素未谋面者以身家相许与七哥共同分享所有的压力和痛苦
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2346257/)
 
-据《纽约邮报》 作者：Ariel Zilber，2022年4月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1755-e1649943496816.png)盖蒂图片社
-在特斯拉的亿万富翁老板成为社交网络的最大股东并在Twitter的董事会中获得一席之地后，唐纳德-川普的支持者们敦促埃隆-马斯克恢复这位前总统的Twitter账户。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8815.61%EF%BC%89%E7%B4%A0%E6%9C%AA%E8%B0%8B%E9%9D%A2%E8%80%85%E4%BB%A5%E8%BA%AB%E5%AE%B6%E7%9B%B8%E8%AE%B8%E4%B8%8E%E4%B8%83%E5%93%A5%E5%85%B1%E5%90%8C%E5%88%86%E4%BA%AB%E6%89%80%E6%9C%89%E7%9A%84%E5%8E%8B%E5%8A%9B%E5%92%8C%E7%97%9B%E8%8B%A6%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
 
-在周二的盘前交易中，Twitter的股价上涨了27%以上–这是该公司连续第二天在马斯克收购7350万股后股价大涨。
+**郭文贵先生：**就我在美国找到黄灯的感觉，让我幸福到真的浑身“流水”，真的不是两性相交就高潮，真的是战友们发了一段感动的视频，浑身发热，真的比高潮还幸福，上下都“流水”，真的，我希望你们能体会到这种感受。
 
-推特首席执行官帕拉格-阿格拉瓦尔(Parag Agrawal)也在周二宣布，马斯克将加入推特的董事会。
+从素未谋面一家人家要把这那都捐给七哥，共同的痛、共同的感动，共同的享受，共同的希望，还有共同地分享所有的压力和痛苦。
 
-“期待着与帕拉格和Twitter董事会合作，在未来几个月对Twitter进行重大改进！” 马斯克在推特上对阿格拉沃尔的宣布作出了回应。
+然后战友们一家人给我唱了《一帘幽梦》，唱得真好哇！在国内冒着多大危险啊？他在他的大军队院里边，一家人给我唱《一帘幽梦》，把我唱得真的是浑身发热。没有人能体会到七哥就我今天一开始说的，这种快乐、这种感动，真的是让你……
 
-2021年1月6日美国国会大厦发生骚乱后，特朗普被禁止进入Twitter、Facebook、Instagram和其他所有大型社交媒体平台。此后，特朗普推出了自己的社交媒体平台Truth Social，但它一直受到技术故障和主要管理人员离职的困扰。
+战友他老母亲都是八九十的人了，说：“让我给文贵唱一下《一帘幽梦》。”一张口老太太把我眼泪（唱得）“欻”就下来了。我不想让你七嫂子看见我掉眼泪，我跑到洗手间去又听一遍，又掉眼泪。就那老大姐八九十岁了（注：开始唱《一帘幽梦》）我有一帘幽梦～欲诉无人能懂～哎呦我的妈呀，大姐把我唱得，今天老大姐在那看（我）直播呢，你把我唱傻了啊。
 
-现在，支持川普的声音呼吁马斯克擦亮他支持自由言论的证书，并让这位前总统回来。
+昨天大十五的吃饺子，我昨天吃了33个饺子，我每次吃45个饺子，我（昨天）吃了33个，也挺撑得慌，但是那每个饺子吃着我都在想着大姐一家给我发信息。大姐给我讲了一句话：“文贵呀，我现在就想看你直播，明天一定要直播，没有你直播我真过不了这个年。十五是最后一天嘛，我过不了这个中国年了。”
 
-Lauren Boebert（R-Colo）议员周一在推特上说：“现在Elon Musk是Twitter的最大股东，是时候取消政治审查了。”
+所以今天，大姐一定在前边看直播呢，今天是台湾帮儿，七哥已经被弄到台湾孤岛上去了，被这几个台湾的给弄到台湾孤岛上去了。所以说今天有老有少，有美女有帅哥，希望大姐能开心。
 
-“推特曾经是一个开放的自由思想领域.”皮特-赫格塞斯周二在《福克斯与朋友》节目中说。“现在，像群体思维的左派这样的蓝色复选标记是这种思想的警察，推特的企业类型一直乐于执行它。”
+你看到今天这个画面就能看到我们中国人的希望，看到台湾就会看到我们的明天，看到香港你就知道我们中国人人种没问题，我们要向那些孩子们学习。
 
-Lauren Boebert议员要求马斯克和Twitter恢复川普的账户。
+还有七哥个人破产只会让七哥更强大，让爆料革命更干净更纯洁，更成为史诗般的伟大的人类的革命！
 
-同时，记者格伦-格林沃尔德嘲笑CNN的布莱恩-斯特尔特，他说自由派对马斯克成为推特最大的股东有一种“恐惧”。
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
-格林沃尔德在推特上写道：“民主党和自由主义活动家团体多年来一直在联合科技亿万富翁的审查权力，并对谷歌和FB的高管们在互联网上审查他们的敌人表示感谢。”
+编辑整理：星塵Scheddi；
 
-“现在他们害怕一个不会为他们审查的亿万富翁会接管推特。”
+字幕文件制作：小满；
 
-文章观点仅代表作者个人，与Gnews平台无关。
+视频制作及上传：Cindy；
 
-文章来源: [https://nypost.com/2022/04/05/twitter-users-urge-elon-musk-to-reinstate-donald-trumps-account/?utm\_medium=SocialFlow&utm\_source=NYPTwitter&utm\_campaign=SocialFlow](https://nypost.com/2022/04/05/twitter-users-urge-elon-musk-to-reinstate-donald-trumps-account/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
+G-News发布：海贼王M.D.LUFFY；
 
-翻译：洛杉矶盘古农场 – Mike Li
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-校对：洛杉矶盘古农场 – HotPixel
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-编辑：洛杉矶盘古农场 – 傻小子
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-发布：洛杉矶盘古农场 – 子萍
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
