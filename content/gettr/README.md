@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 2:06 AM (UTC)`
+
+2022.04.13  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百六十四集 嘉宾：青藤、风雨之中
+![img](https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/14/2022 1:27 AM (UTC)`
 
 4月13号：尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏明天上午我会抽时间直播半小时左右，一切都已经开始！
@@ -133,13 +140,6 @@
 
 04.13.2022  俄乌战争战况播报
 ![img](https://media.gettr.com/group28/origin/2022/04/13/17/53565401-9015-9429-8e6b-d19d49bca29d/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/13/2022 4:35 PM (UTC)`
-
-4/10/2022 Miles Guo: The time has come for the Chinese Communist Party to begin to “purify” the Chinese. Chinese fellows should be prepared for the worst. The CCP will never hesitate to sacrifice Chinese lives and has prepared in advance for sanctions from Europe and the U.S. The bloody war in Ukraine will escalate into an all-out war between Russia, China and Europe.<br/><br/>4/10/2022 文贵直播: 共产党开始净化中国人的时代已降临！中国同胞要做好最坏的打算。中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。乌克兰的血腥战争将升级为俄、中、欧的全面战争。<br/>
-![img](https://media.gettr.com/group6/getter/2022/04/13/16/2cb07e67-81d4-1c03-0266-05b1a83bb184/out.jpg)
 
 ---
 

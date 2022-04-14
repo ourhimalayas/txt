@@ -2,13 +2,11 @@
 ---
 
 
-## 美国和欧盟追加对乌克兰军事援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2342525/)
+## 4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2342605/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220414.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
