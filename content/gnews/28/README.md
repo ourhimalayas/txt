@@ -2,24 +2,50 @@
 ---
 
 
-## “普京说要将一切夷为平地&#8221;：乌克兰情报机构截获入侵士兵与妻子的对话
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346461/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2346558/)
 
-**撰稿：日本东京方舟农场 北极**
+4/14/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天iTunes打榜记录：
 
-据焦点报4月14日报道，乌克兰情报机构截获的一段入侵士兵与妻子的通话录音：俄罗斯联邦领导人弗拉基米尔·普京（Vladimir Putin）下令摧毁他们未能占领的乌克兰城市。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-149.png)乌克兰截获了占领者与妻子关于乌克兰“普京下令将一切夷为平地”的谈话。（图片来自焦点报）
+[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-乌克兰国防部情报总局公开了截获的俄罗斯士兵奥列格·卡拉塞夫（Oleh Karasev）和他妻子之间的通话录音，录音证实了俄罗斯军方确实已经接到指示，要彻底摧毁他们未能占领的乌克兰城市。同时录音中还提到，在5月10日之前对乌克兰的战争必须取得某种所谓“成果“。
+* * *
 
-乌克兰情报部门对此事发表评论表示，该录音证实了俄罗斯联邦在该国最高军事政治领导层，特别是普京总统的直接指示下，故意摧毁乌克兰城市并对平民犯下种种罪行。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
 
-参考链接：
-[https://reurl.cc/AKEVKj](https://reurl.cc/AKEVKj)
 
-总编：老孙
-校对发布：爱放飞
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+
+
+[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
