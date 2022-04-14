@@ -16,6 +16,10 @@
 ---
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
 
+[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/content/2018/10/20181010-3706069488897098623.md)
+
+[文字版：20181004 郭先生报平安直播 希望成功快点到来](/content/2018/10/20181005-2805451400972075742.md)
+
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/content/2018/10/20181004-6010597625419921233.md)
 
 [文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/content/2018/10/20181004-4197432532070823443.md)
@@ -61,10 +65,6 @@
 [翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
 
 [文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
-
-[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/2018/08/20180820-7217065400016406673.md)
-
-[文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/content/2018/08/20180818-8117868108357444047.md)
 
 
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)

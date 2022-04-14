@@ -16,6 +16,10 @@
 ---
 ## 頁面 14/41 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [41](/content/README-41.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[【文字版】2020年8月7日文贵先生直播视频](/content/2020/08/20200814-1685166699558420781.md)
+
+[文字版：2020年8月5日郭先生GTV盖特视频](/content/2020/08/20200814-7866344919726272257.md)
+
 [【文字版】2020年8月4日文贵先生直播视频](/content/2020/08/20200814-4721687325348689489.md)
 
 [文字版:2020年7月30日郭先生GTV连线朴昌海先生及韩国战友团](/content/2020/08/20200805-753892440282858627.md)
@@ -61,10 +65,6 @@
 [文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
 
 [文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/2020/06/20200623-2877590404181782091.md)
-
-[文字版： 郭先生2020年6月16日GTV直播](/content/2020/06/20200619-258636614731498375.md)
-
-[文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/content/2020/06/20200619-1125909043318608744.md)
 
 
 ## 頁面 14/41 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [41](/content/README-41.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

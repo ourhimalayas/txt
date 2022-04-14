@@ -16,6 +16,10 @@
 ---
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/2020/04/20200410-8094198208001085988.md)
+
+[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/2020/04/20200410-1671828290392113200.md)
+
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/2020/04/20200408-8436401289033941417.md)
 
 [文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/2020/04/20200406-4712830590535337259.md)
@@ -61,10 +65,6 @@
 [文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
 
 [文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
-
-[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/content/2020/03/20200302-6186645591158961547.md)
-
-[文字版:2020年2月27日文贵谈王岐山站着出来握手](/content/2020/02/20200229-501572706956306869.md)
 
 
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

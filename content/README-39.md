@@ -16,6 +16,10 @@
 ---
 ## 頁面 39/41 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
 
+[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/2018/04/20180418-732290735735777378.md)
+
+[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/content/2018/04/20180418-1943689665396012735.md)
+
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
 
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
@@ -61,10 +65,6 @@
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-3181090078770141211.md)
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6751902581957520102.md)
-
-[（九）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6171763823261464315.md)
-
-[（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
 
 
 ## 頁面 39/41 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)

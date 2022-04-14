@@ -16,6 +16,10 @@
 ---
 ## 頁面 36/41 [**<**](/content/README-35.md) [1](/content/README.md) ... [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) **36** [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-37.md) [查看全部](/content/README-all.md)
 
+[头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/content/2018/04/20180418-8895540675062184474.md)
+
+[文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/content/2018/04/20180418-2325296927078284742.md)
+
 [文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？](/content/2018/04/20180418-3224603331520399831.md)
 
 [文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/content/2018/04/20180418-7942093624246044835.md)
@@ -61,10 +65,6 @@
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
-
-[文字版：郭文贵先生2018年2月4日郭媒体直播](/content/2018/04/20180418-7184160832028927540.md)
-
-[2018年2月3号 文贵郭媒体报平安视频](/content/2018/04/20180418-8770803911585151936.md)
 
 
 ## 頁面 36/41 [**<**](/content/README-35.md) [1](/content/README.md) ... [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) **36** [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-37.md) [查看全部](/content/README-all.md)
