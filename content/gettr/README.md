@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 1:22 AM (UTC)`
+
+4/10/2022 Miles Guo: The biggest uncertainties of the year 2022 are the evil countries such as North Korea, Iran, and Syria. The Kim family will not be able to get through the food crisis. With the new technology capable of tearing down North Korea’s firewall, the Kim family will be taken out once the people who are starving hear the voices from the outside world. Finally, both the CCP and Putin’s regime in Russia will be taken down.<br/><br/>4/10/2022 文贵直播：2022年最大的变数是北朝鲜、伊朗、叙利亚等邪恶国家；粮食危机是金家跨不过的坎儿，新科技会打开北朝鲜的防火墙，当饥饿的老百姓听到了墙外的声音，金家必灭；中共和普京最后一定会被灭！<br/>
+![img](https://media.gettr.com/group27/getter/2022/04/14/01/f1cbad68-f808-1b81-c73f-edbfaf5473f4/out.jpg)
+
+---
+
+`@miles 4/14/2022 1:19 AM (UTC)`
+
+4/10/2022 Miles Guo: Food has become the most powerful weapon for the CCP to rule the Chinese people. Xi's pushing mandatory nucleic acid testing kills four birds with one stone: 1) tackle the social collapse brought by the economic and real estate crisis; 2) conduct a "stress test" on the Chinese people; 3) create a "wartime state of emergency" to help Xi stay in power after the 20th Party Congress and invade Taiwan; and 4) let the world experience how Xi suffered when he had nothing to eat. Meanwhile, Xi also wants to take down the US dollar and become a strong man in troubled times.<br/><br/>4/10/2022 文贵直播：粮食成了中共统治老百姓最有力的武器；习搞核酸检测一箭四雕：1) 解决经济和房地产危机带来的社会崩塌；2) 对老百姓进行“压力测试”；3) 制造“战时状态”帮助习连任20大和打台湾； 4)  让世人尝尝习当年没饭吃的感觉；同时，习还想打垮美元并在乱世当强人
+![img](https://media.gettr.com/group42/getter/2022/04/14/01/960a35d9-a6a4-e2bb-46c6-c15160c24313/out.jpg)
+
+---
+
+`@miles 4/14/2022 1:16 AM (UTC)`
+
+4/13/2022 Miles Guo Live: Following yesterday’s visit of the Belgium Prime Minister, two officials of the European Union visited the New Federal State of China’s tent at the front line of the Ukraine rescue operation. They expressed their intention of collaborating with the New Federal State of China in the rescue operations of Ukrainian refugees. There will be a growing number of countries that stand with us to take down the CCP.<br/><br/>4/13/2022 文贵直播：继昨天比利时首相参观新中国联邦在乌克兰前线的救援帐篷后，两位欧联盟官员也来到新中国联邦帐篷，并表示愿意与新中国联邦合作帮助乌克兰难民；越来越多的国家和政府机构会跟我们站在一起灭共！<br/>
+![img](https://media.gettr.com/group43/getter/2022/04/14/01/8284bb0a-ffaf-3432-b0dd-3ab06116c161/out.jpg)
+
+---
+
 `@miles 4/14/2022 12:59 AM (UTC)`
 
 2022.04.13 晚  新中国联邦 | 新闻访谈   中共野蛮防疫  致民怨沸腾 ; 欧盟代表团成员 参观新中国联邦救援帐篷
@@ -119,27 +140,6 @@
 
 【Ukraine Rescue】04/03/2022 <br/>Japanese freelance media reporter Hiroki, who had been in the NFSC Medyka huge tent and was interviewed by NFSC volunteer Nicole, reports in his YouTube Channel: The NFSC provides a huge and well-equipped tent as a resting place for the refugees and the media personalities and volunteers.  The NFSC rescue volunteers provide freshly ground coffee, free Wi-Fi internet access in the tent.  The NFSC opposes the Chinese Communist Party.<br/><br/>【乌克兰救援】04/03/2022 曾到过Medyca新中国联邦大帐篷，被新中国联邦志愿者妮可采访过的日本自由人Hiroki在他的Youtube频道报道： 新中国联邦提供了一个巨大且设备齐全的帐篷，作为难民、媒体人士和志愿者的休息场所。 新中国联邦救援志愿者在帐篷内提供现磨咖啡、免费无线网络连接。新中国联邦反对中国共产党。<br/>
 ![img](https://media.gettr.com/group3/getter/2022/04/13/15/a3f413d0-b3c0-11db-7606-0a37802a709a/out.jpg)
-
----
-
-`@miles 4/13/2022 3:30 PM (UTC)`
-
-【Ukraine Rescue】04/12/22 Introducing the interview with the Belgian Prime Minister, Nicole says: Mr. Prime Minister seemed to know who we are and why we are here. He was very receptive to the message of exterminating the Communist Party clearly conveyed on our hat and vest, and was not surprised at all, as if he was very familiar with us, which means that the NFSC has long gained the attention and acquiescence of the international community.<br/><br/>【乌克兰救援】04/12/22 妮可介绍采访比利时首相的经过：首相先生好像知道我们是谁，以及我们为什么在这里，他对我们的帽子和马甲上清楚传达的灭共信息非常接受，一点都不感到惊讶，感觉好像对我们非常熟悉一样。说明新中国联邦早就获得了国际社会的关注与默认。
-![img](https://media.gettr.com/group7/getter/2022/04/13/15/1733b6c1-e90e-cb04-158d-c76998b680c8/out.jpg)
-
----
-
-`@miles 4/13/2022 3:28 PM (UTC)`
-
-【Ukraine Rescue】04/12/22 On the historic moment when the Belgian Prime Minister was the first head of state to be interviewed by the NFSC, Nicole says: "This is just the beginning and many countries will follow suit; it will send a very strong and encouraging message to the 1.4 billion Chinese people who are still inside the belly of the Communist Party beast.<br/><br/>【乌克兰救援】04/12/22 对于比利时首相作为首位国家元首接受了新中国联邦采访这一深具历史意义的时刻，妮可表示：这仅仅是个开始，很多国家都会效仿；这将给仍身处水深火热之中的14亿中国人民传达出一个非常强烈且鼓舞人心的信息。<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/13/15/3f8a69af-422d-f1ba-a5dc-a85b5fbe3f5a/out.jpg)
-
----
-
-`@miles 4/13/2022 2:56 PM (UTC)`
-
-04.13.2022新中国联邦法治基金乌克兰人道救援行动-波兰Medyka基地突发新闻
-![img](https://media.gettr.com/group10/origin/2022/04/13/14/2864313f-3b19-bafc-07d0-2fc93e2a6890/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
