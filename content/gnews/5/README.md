@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：拜登在华沙的演讲
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347740/)
+## 七哥金句：生命是什么样的过程？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2347783/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片8-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/投影片10-1.jpg)
 发布：枫叶红了
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
@@ -14,8 +14,6 @@
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 

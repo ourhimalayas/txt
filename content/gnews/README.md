@@ -15,95 +15,95 @@
 
 ---
 
-### [七哥金句：生命是什么样的过程？](/content/gnews/1/README.md)
+### [七哥金句：当你拥有兰博基尼的时候](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [上海市民：不是上海救我们 是我们救上海](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥金句：文明的中心在哪里？](/content/gnews/3/README.md)
+### [七哥金句：人生当你回顾谁跟你在一起](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥金句：拜登在华沙的演讲](/content/gnews/5/README.md)
+### [七哥金句：兰博基尼和人之间的关系](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [樱花灭共诗——七星盘古](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [【粤语配音】2022年4月14日：台湾大部分已经被中共收买](/content/gnews/4/README.md)
+ ` MOS香港部`
 
-### [从“零麻雀”到清零 毛式运动伤害了所有人](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃俄罗斯停止石油数据发布](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥金句：Fashion 是永远不满足](/content/gnews/10/README.md)
+### [七哥金句：生命是什么样的过程？](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [樱花时政┃细胞医药品量产化或将有效治疗癌症](/content/gnews/11/README.md)
+### [上海市民：不是上海救我们 是我们救上海](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃苏州或成为下一个“动态清零”的城市](/content/gnews/12/README.md)
+### [七哥金句：文明的中心在哪里？](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤](/content/gnews/13/README.md)
+### [从“零麻雀”到清零 毛式运动伤害了所有人](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议](/content/gnews/14/README.md)
+### [樱花时政┃俄罗斯停止石油数据发布](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|永不放弃为新闻自由而战，比利时首相悼念遇害记者](/content/gnews/15/README.md)
+### [中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃细胞医药品量产化或将有效治疗癌症](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃苏州或成为下一个“动态清零”的城市](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|永不放弃为新闻自由而战，比利时首相悼念遇害记者](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中](/content/gnews/16/README.md)
+### [俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃中共的严厉封城造成巨大灾难](/content/gnews/17/README.md)
+### [樱花时政┃中共的严厉封城造成巨大灾难](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃英国和欧盟扩大制裁俄罗斯和亲俄份子](/content/gnews/18/README.md)
+### [樱花时政┃英国和欧盟扩大制裁俄罗斯和亲俄份子](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚](/content/gnews/19/README.md)
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利](/content/gnews/20/README.md)
+### [4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [五月花简报（04/14/2022）](/content/gnews/21/README.md)
+### [五月花简报（04/14/2022）](/content/gnews/22/README.md)
  ` mayflowertranslate`
 
-### [4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了](/content/gnews/22/README.md)
+### [4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯称有更多跨境攻击 威胁要打击 “决策中心”](/content/gnews/23/README.md)
+### [俄罗斯称有更多跨境攻击 威胁要打击 “决策中心”](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/24/README.md)
+### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄罗斯拒绝乌克兰交换战俘的要求](/content/gnews/25/README.md)
+### [俄罗斯拒绝乌克兰交换战俘的要求](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争影响 IMF下调143个经济体前景](/content/gnews/26/README.md)
+### [俄乌战争影响 IMF下调143个经济体前景](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/27/README.md)
+### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/28/README.md)
+### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年4月14日郭先生大直播文字同步精要](/content/gnews/29/README.md)
+### [2022年4月14日郭先生大直播文字同步精要](/content/gnews/30/README.md)
  ` 焦點20分`
-
-### [中共与俄勾肩搭背，台湾危险，拜登政府对了解COVID的起源 &#8220;不感兴趣&#8221;](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [NFSC新闻、NFSC新闻访谈简报|2022年4月14日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`

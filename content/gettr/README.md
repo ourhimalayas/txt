@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 10:13 PM (UTC)`
+
+4/14/2022 Miles Guo: My advice to people inside mainland China: stock up food and water, have some cash handy, and find a safe place to live in for the next 1-2 years; Many more cities will be locked down, and the situation in Beijing will be the worst.<br/><br/>4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨。<br/><br/>
+![img](https://media.gettr.com/group49/getter/2022/04/14/22/545a7487-6524-a9a4-4342-68f36edbb4ff/out.jpg)
+
+---
+
+`@miles 4/14/2022 10:11 PM (UTC)`
+
+4/14/2022 Miles Guo: Russia’s so-called "God of the Black Sea", the guided missile cruiser Moskva, was sunk by two and a half missiles, and this is of great significance in terms of shifting the world's military and political landscape. Since Russia will not be able to defeat Ukraine, it may find excuses to use nuclear weapons. The disasters in Europe were caused by the Marxism and totalitarianism promoted by Germany and France in the past 30 years.<br/><br/>4/14/2022 文贵直播：俄罗斯所谓的"黑海之神"导弹巡洋舰被两个半导弹击沉了，这对改变整个世界军事政治格局意义大了去了；俄罗斯无法将乌克兰打趴下，因而有可能会找借口使用核武器；过去30年德国和法国推行的马克思主义极权导致了欧洲的灾难<br/>
+![img](https://media.gettr.com/group43/getter/2022/04/14/22/839465c7-bfc0-e89e-dc5c-a45130138a76/out.jpg)
+
+---
+
 `@miles 4/14/2022 10:09 PM (UTC)`
 
 4/14/2022 Miles Guo: A lot of Americans have been asking me why the Shanghainese don’t fight back. The basic right given by God to every human being is to protect themselves and their family and to defend their basic dignity! Only the Chinese themselves can save the Chinese. Lang Xianping slept with a stewardess for five years, but he sued her and demanded her to return the property and car he gave her. Lang wasn’t even willing to pay the lawyer!<br/><br/>4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利！只有中国人自己才能拯救中国人！郎咸平睡了空姐五年，却打官司要空姐还他送的房和车，竟然连律师费都不愿意付！<br/>
@@ -140,22 +154,6 @@
 
  4月14号：尊敬的战友们好，中国人从来不缺大明白人，就是没有行动力，反抗的勇气……连鸡鸭鹅狗被杀前的反抗的胆子都没有！永远希望别人来完成自己的事情。永远是把批评别人放在第一位．永远将自己的理想和情怀，寄托在孩子，及他们眼中看不起的没文化的人……最底层人的身上，能很荣幸地为他们去牺牲，还要对他们感恩戴德。这就是中国社会的悲哀，自私懦弱，狂妄自大，没有任何真正的情怀，更不要谈任何所谓的信仰……什么样的社会就会选出什么样的政府，什么样的政府就会展现给社会大众的综合素质同等标准的事情。今天中国政府有多坏，中国社会的人心就有多孬！这是个轮回。这是自然的逻辑！
 ![img](https://media.gettr.com/group30/getter/2022/04/14/10/c4ecbd96-2e66-8b9b-83ba-44d2d6b064f1/e13d3b799020082186c3ea58557d293f.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtv_uk 4/13/2022 4:16 PM (UTC)`
-
-Wednesday with Steve K. Bannon 13th April, 2022
-![img](https://media.gettr.com/group44/origin/2022/04/13/16/7a54ec40-dca0-eac4-78da-ee4da4badca2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 9:09 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group17/origin/2022/04/14/08/4ba40cef-2a06-0b4a-83fe-75d25379384f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

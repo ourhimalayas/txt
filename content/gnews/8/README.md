@@ -2,20 +2,48 @@
 ---
 
 
-## 樱花时政┃俄罗斯停止石油数据发布
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
+## 樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347752/)
 
-撰稿：东京樱花团/加一颗稻草
+撰稿：东京樱花团/asket
 
-4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
-自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
+莫斯科已经警告北约，如果瑞典和芬兰加入军事联盟，俄罗斯将不得不加强其在该地区的防御，并威胁要在波罗的海地区部署核武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-3.jpg)[图片来源](https://www.reuters.com/world/europe/russia-warns-baltic-nuclear-deployment-if-nato-admits-sweden-finland-2022-04-14/)
+俄罗斯安全委员会副主席德米特里·梅德韦杰夫说：“不能再谈论波罗的海的任何无核地位了，必须恢复平衡。”
 
-消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
+梅德韦杰夫说：“直到今天，俄罗斯还没有采取这种措施，也不打算这样做。如果我们是被迫的，那么……请注意，这不是我们提出的。”
+
+梅德韦杰夫先生没有具体说明这将发生在哪里，或者可以实施哪些措施，但俄罗斯的加里宁格勒飞地夹在波兰和立陶宛之间，而且最近才在波罗的海进行海军演习。
+
+克里姆林宫发言人德米特里·佩斯科夫说，普京也在考虑如何根据可能的事态发展最好地加强俄罗斯的安全，国防部将向他提交关于这个问题的建议。
+
+周三，芬兰表示，它将在未来几周内就是否申请加入该联盟作出决定，而瑞典也在审查其安全政策，预计将在下个月得出结论。
+
+芬兰总理桑娜·马林说，她的国家必须“为来自俄罗斯的各种行动做好准备”，并补充说，除了根据北约的第5条威慑和共同防御政策，没有其他的安全保障，该政策规定，对一个国家的攻击应被视为对所有国家的攻击。
+
+她说：“我不会给出任何类型的时间表，我们将何时做出决定，但我认为这将很快发生，在几周内而不是几个月内。”
+
+芬兰与俄罗斯有1300公里的共同边界，最近的视频片段显示俄罗斯在与芬兰的边界附近移动军事装备，显然是在展示实力。
+
+自俄罗斯入侵乌克兰以来，许多芬兰人改变了对北约的看法，在广播公司MTV最近进行的民意调查中，超过三分之二的人支持加入北约。该调查发现，68%的受访者支持加入该联盟，只有12%的人反对。
+
+瑞典已经有200多年没有打过仗了，而且由于它与俄罗斯没有陆地边界，所以受俄罗斯侵略的影响较小，它也在考虑加入该联盟。
+
+瑞典首相马格达莱纳·安德森（Magdalena Andersson）说，成为成员有利有弊，但主要优势是第5条的安全。
+
+直到最近，这两个北欧邻国还认为不公开选边站是维持和平的最佳方式。
+
+俄总统新闻秘书佩斯科夫此前曾警告说，如果任何一个国家加入北约，俄罗斯将不得不以自己的措施来“重新平衡局势”。
+
+信息来源：
+
+[Russia warns that Sweden and Finland joining Nato would end ‘nuclear-free Baltics’](https://www.independent.co.uk/news/world/europe/nato-russia-warning-sweden-finland-b2057825.html)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|永不放弃为新闻自由而战，比利时首相悼念遇害记者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2347646/)
+## 樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347653/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
+撰稿：东京樱花团/喜马拉雅的微尘
 
-该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
+所罗门群岛准备与中共正式签署一项包含警务合作的安全协议引起美国以及地区国家的高度关切。澳大利亚和美国也相继增加向所罗门施加外交压力，希望所国放弃这一计划。
 
-自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://live-production.wcms.abc-cdn.net.au/aff337860baf67c387afaac2d65674f6?impolicy=wcms_crop_resize&amp;cropH=3333&amp;cropW=5000&amp;xPos=0&amp;yPos=0&amp;width=862&amp;height=575&amp;imgrefurl=https://www.abc.net.au/news/2022-03-24/draft-leak-chinese-military-base-solomon-islands/100937632&amp;tbnid=UPTlGhAFJyyDxM&amp;vet=12ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ..i&amp;docid=DnQpWLe0qLU5LM&amp;w=862&amp;h=575&amp;itg=1&amp;q=CCP%20Solomon%20Security%20Protocol&amp;ved=2ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ)
 
-文字版原文：[永不放弃为新闻自由而战，比利时首相悼念遇害记者](https://gnews.org/zh-hans/2343789/)
+澳大利亚总理斯考特∙莫里森（Scott Morrison）星期三（4月13日）表示，澳大利亚国际合作与太平洋事务部长泽德∙瑟萨尔加（Zed Seselja）前一天已经飞往所罗门群岛，与该国总理梅纳西∙索加瓦雷（Manasseh Sogavare）就所国与北京4月1日草签的一份安全协议举行会谈。
 
-音频处理：Fei797
-发稿：Fei797
+美联社引述瑟萨尔加的话说，他已经要求索加瓦雷放弃签署与中共的这份协议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+瑟萨尔加出访所罗门群岛的当天，美国副国务卿温迪∙谢尔曼（Wendy Sherman）也与所罗门群岛外长杰里迈亚∙马内莱（Jeremiah Manele）通了电话，讨论美国在所国首都霍尼亚拉重开大使馆的计划。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国驻所罗门群岛大使馆1993年关闭后，美国政府今年2月首次宣布重开该大使馆的计划。虽然那时所国与中共安全协议草案尚未曝光，但美国对中共在所罗门群岛这个极具战略意义国家迅速增长的影响力已经感到不安。
+
+布林肯国务卿2月作出这一宣布时曾表示，在中共的影响力“根深蒂固”之前，美国也要在该国增加自己的影响力。
+
+根据网上曝光的中共与所罗门群岛安全协议草案，中共军舰可以停靠在所罗门群岛进行“后勤补给”，中共也可以派遣警察和其他军方人士前往所罗门群岛“协助维持治安”。
+
+协议草案还规定，双方的联合安全安排的信息如果对外披露，必须获得中方批准，这还包括媒体的吹风会。
+
+所罗门群岛政府已经表示，安全协议草案已经在两个星期前草签，并将在“整理后”很快定稿。
+
+所罗门群岛政府已经表示，不会允许中共在该国建立军事基地，而中共也否认在南太平洋寻求军事立足点。但是这份安全协议还是让许多西方国家深为关切。
+
+信息来源：[西方国家施压所罗门群岛，劝其放弃签署与中国的安全协议](https://www.voachinese.com/a/western-pressure-mounts-on-solomons-to-quash-pact-with-china-20220413/6527852.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
