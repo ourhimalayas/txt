@@ -2,25 +2,39 @@
 ---
 
 
-## 加拿大公司使用中共国强迫劳动力
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2345753/)
+## 黑海舰队旗舰“莫斯科号”遭遇乌军导弹袭击沉没|
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345880/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-据自媒体【真北方】4月11日报道，[加拿大人权联盟]正在要求联邦机构调查多家被指控在中共国使用强迫劳动力生产的加拿大公司。
+**翻译/编辑：文泓**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1749.png)图片来源：WYZX
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-71.png)图片来源：Forbes & 雅典娜设计组
 
 
-报道称，参与本次诉讼的28个人权团体向加拿大企业监察机构提出了以上申请，并援引澳大利亚战略政策研究所2020年的相关研究报告，证明至少有14个加拿大公司使用了27家中共国工厂的强迫劳动力。
+4月14日，据天空新闻报道，俄罗斯最大的军舰“莫斯科号”在乌克兰导弹袭击后在敖德萨附近海域爆炸并沉没。
 
-据悉，作为2018年美-墨-加贸易协议的一部分，加拿大政府已承诺将禁止“由强迫劳动所生产商品的进口贸易”。但由于联邦法院上周驳回了一项全面禁止从中共国新疆地区进口所有商品的申请，因此导致了以上人权机构起诉那些与中共国强迫劳动力有关的加拿大公司。
+俄罗斯国防部证实，莫斯科号在发生火灾后遭受了“重大损失”，但表示仍在调查爆炸原因。
 
-校对编辑：硫酸羟氯喹64
+周四乌方官员称，这首俄罗斯黑海舰队旗舰巡洋舰被两枚R-360海王星级反舰导弹击中，导致其在敖德萨附近爆炸并沉没，船员在遭袭击后弃船。
 
-发稿：青青
+俄罗斯媒体称，船上的弹药意外引爆后，船上的500名船员被疏散。
+开源情报分析员也接受到求救舰上信号“SOS”和“沉没”。袭击发生时黑海上空有强风暴。
 
-原文链接： [Feds asked to investigate Canadian companies’ ties to slave labour | True North (tnc.news)](https://tnc.news/2022/04/11/feds-asked-to-investigate-canadian-companies-ties-to-slave-labour/)
+莫斯科号的沉没现在使黑海舰队失去旗舰，而且黑海舰队抵御乌克兰攻击的最佳防御手段。
+
+这款光荣级巡洋舰其设计遵循俄罗斯一贯思路，将大量大型武器装到船体上的理念而容易发生爆炸。该舰最初设计用于击沉美国海军核动力航空母舰，配备16枚大型超音速反舰导弹、鱼雷发射管和一架直升机。
+
+**新闻链接**：[Russia’s largest warship The Moskva sinks near Ukrainian coast after missile attack | Sky News Australia](https://www.skynews.com.au/australia-news/russias-largest-warship-the-moskva-sinks-near-ukrainian-coast-after-missile-attack/news-story/0551243a3ab0282c73d7c67ceb363e94) 
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
+
 
  
 

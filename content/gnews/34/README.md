@@ -2,31 +2,45 @@
 ---
 
 
-## 粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344928/)
+## 民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345404/)
 
-**图/文｜CP **
-**发布时间｜14/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜IMF及WTO等四大國際機構呼籲各國採取緊急行動.jpg)
+#### 雅典娜情报组《民生灾难收集专栏》
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+整理/编辑：gardeniahu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-3.png)图片来源：雅典娜设计组(614)
 
 
-世界银行、国际货币基金组织（IMF）、联合国世界粮食计划署（WFP）和世贸组织（WTO）4月13日发表联合声明，呼吁各国政府就粮食问题采取紧急行动，并建议避免推行禁止粮食或化肥出口等相关政策。
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-四大机构的领导人在声明中警告，鉴于俄乌战争加剧了新冠疫情和气候变化对全球人民所造成的伤害，受困于主粮价格的大幅上涨和供应短缺，中低收入国家的家庭正面临巨大危机。据世界银行估计，每增加一个百分点的食品价格，全世界就有1000万人陷入极端贫困。
+帖子原文：
 
-俄罗斯和乌克兰均是重要的粮食出口国，仅乌克兰就能为全球贡献49.6%的葵花籽油、10%的小麦、12.6%的大麦和15.3%的玉米的产量。但自战争爆发以来，黑海地区的粮食出口持续受到干扰，供应的不确定性加剧。此外，俄罗斯和乌克兰还是全球重要的化肥生产国。
+到卖房时候才发现房价真的凉了。
 
-据联合国粮农组织（FAO）上周公布的数据显示，在俄乌战争的背景下，全球粮食价格再创历史新高。FAO的食品价格指数3月份升至159.3，较2月份上涨13%，较去年同期上涨34%。（该指数旨在衡量食品价格的月度变化，包括肉类、奶制品、谷物、植物油和糖。）
+房子挂出去几天了，依然没有一个看房的。中介给出理由我家租客在看房不方便。另外据说二手房挂盘的太多成交的太少。
 
-四大机构强调，现在最重要的，是要保持贸易开放，避免推行食品或化肥出口禁令等限制性措施，尤其不能对WFP的人道主义食品采购施加任何限制。
+刚刚翻出两年前的短信，当时很傲娇的没有卖，现在悔恨不已。两年过去了，多交了快三十万的房，房价落到尘埃里了。现在又要卖了才有名额买，好难过。
 
-來源｜[ReliefWeb](https://reliefweb.int/report/world/joint-statement-heads-world-bank-group-imf-wfp-and-wto-call-urgent-coordinated-action)
+#深圳楼市
 
-* * *
+发布于04.08
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+精选评论
+
+比较知名的博主  回复：尽早套现离场吧，后面会更夸张。
+
+HHH  回复：你们最起码吃到了房价上涨的红利，现在接盘的开始没有这福利了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1734.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1735.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1736.png)图片来源：小红书
+参考链接:[到卖房的时候发现放假真的凉了](https://www.xiaohongshu.com/discovery/item/62503ea900000000210350e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904531)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

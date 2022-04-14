@@ -2,28 +2,57 @@
 ---
 
 
-## 【G时新闻】比利时首相到访新中国联邦波兰救援中心
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2345899/)
+## 澳州前总理:俄罗斯侵略乌克兰可能使习近平“有恃无恐”地入侵台湾
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2346088/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据4月12日文贵先生盖特消息，欧美即将把香港剔除出国际金融及贸易体系，并率先将对港共政府高官及其海外亲属进行与对俄罗斯相同的严厉制裁。同时，美国政府将史无前例地从其驻上海领事馆开始，由之前的授权撤离改为战时状况下才出现的命令撤离。消息指出，比利时首相亚历山大·德克罗当天到访了新中国联邦在波兰靠近乌克兰边境的梅迪卡救援中心，在接受了现场采访后，还主动与新中国联邦成员合影。文贵先生对此表示，比利时首相的到访开启了新中国联邦建国以来国际外交的新纪元，不仅意义重大，还充分体现出西方民主国家对铲除中共的新中国联邦的绝对认可和支持。此外，由于此前曾对美国参议院议长南希计划访问台湾所发出的战争恫吓，习近平政权目前已内乱外困。随著欧美与中共的经济，贸易，外交，金融以及文化的彻底脱钩，香港经济的即将崩塌，国内疫情灾难下的民怨沸腾以及美国政府对台湾的公开支持等，都预示著中共政权即将不可逆转的覆灭。
+据《澳洲天空新闻》 作者：Tyrone Clarke，2022年3月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1754-e1649942422135.png)托尼-阿博特警告说，俄罗斯对乌克兰的入侵可能会使中国国家主席习近平“有恃无恐”地攻击台湾。图片。NCA Newswire / Gaye Gerard
+前总理托尼-阿博特说，俄罗斯总统弗拉基米尔-普京对乌克兰的入侵可能会鼓励中共对台湾采取类似的军事行动。
 
-盖特链接：[https://gettr.com/post/p157gedd6d9](https://gettr.com/post/p157gedd6d9)
+阿博特先生在纪录片特别节目《竞选揭秘》中告诉澳大利亚天空新闻台。今晚在Foxtel和Flash播出的特别纪录片“The Campaign Uncovered: A Peta Credlin Investigation”中说，欧洲的冲突具有深远的影响，将成为即将举行的联邦选举的一个关键战场。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+澳洲前总理说：“这是一个非常危险的时代，正如许多人所说，在这个时代有1930年代的影子。”
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+“我们显然看到了现在在东欧发生的事情，这不仅仅是一场遥远的、我们一无所知的人民之间的斗争。”
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+阿博特先生还发出了一个严峻的警告，如果冲突蔓延到欧洲边界之外，澳大利亚在全球秩序中的安全可能受到威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+他在节目中说：“这很容易使习近平冒险，企图占领台湾。”
+
+“这将破坏我们在过去70年里所生活的全球秩序，在这种秩序下，我们享受到了人类历史上最美好的时光。”
+
+随着与中共关系的恶化，澳大利亚的国家安全和国防最近被迫成为政治辩论的焦点。
+
+澳大利亚和美国都表示，在中共入侵的情况下，他们会向这个岛国提供军事支持。
+
+然而，对澳大利亚国家安全更直接的威胁是在3月份实现的，当时所罗门群岛和中共国之间泄露的协议承诺加强两国的安全关系。
+
+该安全协议将允许中共国“根据自己的需要”将军事人员和海军舰艇转移到岛上，一些国防专家说，这可能会导致中共海军基地距离澳大利亚海岸不到200公里。
+
+澳大利亚战略政策研究所执行主任彼得-詹宁斯说，该协议是二战以来最大的“来自该地区的战略问题”。
+
+“从澳大利亚的战略和防御角度来看，这是不可接受的事情，”詹宁斯先生在3月告诉澳大利亚天空新闻。
+
+“它将对澳大利亚东部造成威胁，并为中共国人收集情报提供机会”。
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true](https://www.skynews.com.au/world-news/china/former-australian-prime-minister-tony-abbott-says-russias-war-in-ukraine-could-embolden-xi-jinping-to-invade-taiwan/news-story/ecbea3a2157fa99a3b2daeb3c6d07282?preview=true)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – HotPixel
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,23 @@
 ---
 
 
-## 中共内外交困加剧 喜币将成为最早的数字法币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343791/)
+## 台湾｜媒体传美参议院外委会主席率团访台 预计今晚抵达？
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344287/)
 
-作者：纽约磐石农场 – 在远方
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-25.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国众议院议长裴洛西（Nancy Pelosi）原订10日要访台，后因确诊新冠延期，郭文贵爆料称裴洛西原定出访台湾，后遭中共威胁访台便出兵攻打台湾，故未出行。
 
+台媒接获亲美政坛人士提供消息，表示美国联邦参议院外交委员会主席、民主党籍梅南德兹（Bob Menendez）将率团访台与总统蔡英文会晤，时间就在今（14）日，共计有6名议员。惟台湾外交部未证实，同时新闻报导所列的成员twitter并未透漏相关资讯，消息无法核实。此外，郭文贵于盖特透漏，裴洛西可能随时访台，中共的威胁在国际犹如笑话般存在。
 
+媒体称本次访台成员有：美国联邦参议院外交关系委员会主席、民主党籍梅南德兹（Bob Menendez）与共和党参议员葛瑞姆（Lindsey Graham）、北卡罗来纳州共和党参议员理查德伯尔（Richard Burr）、内布拉斯加州共和党参议员本萨斯（Ben Sasse）、俄亥俄州共和党参议员罗伯特波特曼（Rob Portman），以及德克萨斯州美国国会议员龙尼·杰克逊（Ronny Jackson）等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+来源｜[三立](https://www.setn.com/News.aspx?NewsID=1099945)
 
+* * *
 
-
-4月12日，郭文贵先生盖特视频表示，习近平现在已是内外交困。之前中共威胁佩洛西访台将对台湾开战，现在佩洛西随时可能访问台湾。美国之前也已经有许多外交官员和外交飞机前往台湾，中共军方所有威胁的话语都已经成为国际笑柄。在墙内，上海、长春等地被封闭的饥饿居民为了一点食物，被迫出卖身体的事情已经传遍世界，中共灭亡是天意使然。
-
-郭先生还说，目前有许多重大的好消息还需要严格保密，但是，喜币将会成为世界上最早的、最流行的数字法币，而人民币在海外会成为只有恐怖分子才使用的钱，成为犯罪币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/44-1.jpg)
-参考链接：
-[4/12/2022 文贵盖特：佩洛西现在可能随时去台湾，在上海和长春发生的用性换取食物的惨剧会在北京重演吗？共产党已经完了！南美有国家和新中国联邦站在一起；喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了！](https://www.gettr.com/post/p14zzj3ab04)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-总编：zhong
-编辑/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

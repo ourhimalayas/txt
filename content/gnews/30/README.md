@@ -2,45 +2,25 @@
 ---
 
 
-## 民生集萃——房价凉凉（2022.4.14）&#8211;卖房时才发现房价凉凉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345404/)
+## 加拿大公司使用中共国强迫劳动力
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2345753/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+采编/撰稿：加拿大温哥华扬帆农场 – 文莱
 
-整理/编辑：gardeniahu
+据自媒体【真北方】4月11日报道，[加拿大人权联盟]正在要求联邦机构调查多家被指控在中共国使用强迫劳动力生产的加拿大公司。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-3.png)图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1749.png)图片来源：WYZX
 
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
+报道称，参与本次诉讼的28个人权团体向加拿大企业监察机构提出了以上申请，并援引澳大利亚战略政策研究所2020年的相关研究报告，证明至少有14个加拿大公司使用了27家中共国工厂的强迫劳动力。
 
-帖子原文：
+据悉，作为2018年美-墨-加贸易协议的一部分，加拿大政府已承诺将禁止“由强迫劳动所生产商品的进口贸易”。但由于联邦法院上周驳回了一项全面禁止从中共国新疆地区进口所有商品的申请，因此导致了以上人权机构起诉那些与中共国强迫劳动力有关的加拿大公司。
 
-到卖房时候才发现房价真的凉了。
+校对编辑：硫酸羟氯喹64
 
-房子挂出去几天了，依然没有一个看房的。中介给出理由我家租客在看房不方便。另外据说二手房挂盘的太多成交的太少。
+发稿：青青
 
-刚刚翻出两年前的短信，当时很傲娇的没有卖，现在悔恨不已。两年过去了，多交了快三十万的房，房价落到尘埃里了。现在又要卖了才有名额买，好难过。
-
-#深圳楼市
-
-发布于04.08
-
-精选评论
-
-比较知名的博主  回复：尽早套现离场吧，后面会更夸张。
-
-HHH  回复：你们最起码吃到了房价上涨的红利，现在接盘的开始没有这福利了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1734.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1735.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1736.png)图片来源：小红书
-参考链接:[到卖房的时候发现放假真的凉了](https://www.xiaohongshu.com/discovery/item/62503ea900000000210350e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904531)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+原文链接： [Feds asked to investigate Canadian companies’ ties to slave labour | True North (tnc.news)](https://tnc.news/2022/04/11/feds-asked-to-investigate-canadian-companies-ties-to-slave-labour/)
 
  
 

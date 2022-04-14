@@ -2,41 +2,27 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345925/)
+## 安省废水分析结果表明变种病毒正席卷而来
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2346102/)
 
-**整理：枳实**
-**美工：精灵蓝**
+采编：加拿大温哥华扬帆农场 – 青青
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
+据加拿大CTV新闻4月13日报道，由于安省缺乏足够的新冠病毒检测人员和设施，卫生部门不得不转用包括对包城市生活废水检验结果在内的其它数据来分析病毒传播情况。并通过定期重复采样，来准确计算出废水中的病毒浓度。
 
-雅典娜疫情更新（2022年 4月14日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-41.png)
+- ![](https://www.ctvnews.ca/content/dam/ctvnews/en/images/2022/4/13/wastewater-covid-1-5859982-1649849022958.jpg)图片来源：[https://toronto.ctvnews.ca](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-13.png)
+对废水分析的最新数据显示，安省目前的病毒感染人数正在回升，病毒标准化浓度已恢复到去年圣诞节前后的高水平。而在所收集的样本中，有90%以上是传播能力和速度更强的Omicron亚变体。同时，所有公共卫生单位也都出现了同样的疫情峰值，这表明第六波病毒传播潮并不受地域限制。
 
+据悉，安省废水中病毒标准化浓度在2月和3月初曾持续下降，但在政府取消卫生限制措施和配戴口罩规定之后，该数据随后猛然回升。这表明在人们都放松了警惕时，变种病毒却再次席卷而来
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+校对编辑：硫酸羟氯喹64
 
-发布：文武全才
+发稿：青青
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+新闻来源： [https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
 
  
 
