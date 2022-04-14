@@ -15,53 +15,53 @@
 
 ---
 
-### [五月花简报（04/14/2022）](/content/gnews/1/README.md)
- ` mayflowertranslate`
+### [七哥金句：Gfashion 买给最亲的人](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
 
-### [4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄罗斯称有更多跨境攻击 威胁要打击 “决策中心”](/content/gnews/3/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [新中国联邦咖啡](/content/gnews/4/README.md)
- ` The Potomac View`
-
-### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [俄罗斯拒绝乌克兰交换战俘的要求](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [纽约地铁枪击案嫌疑人被捕 亲自热线联络（下）](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [DC每日热点0414](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [纽约地铁枪击案嫌疑人被捕 亲自热线联络（上）](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新一轮大战即将开打，泽连斯基公布所需武器清单](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [俄乌战争影响 IMF下调143个经济体前景](/content/gnews/11/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国人权状况报告 ：“专制主义威胁着人权和民主主义”](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [比利时总理到访梅迪卡，消灭中共成为世界共识](/content/gnews/15/README.md)
+### [4月14日文贵直播要点（图片1-7）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [新中国联邦、德国合作救助7难民](/content/gnews/16/README.md)
- ` 华盛顿DC-Russian`
+### [五月花简报（04/14/2022）](/content/gnews/3/README.md)
+ ` mayflowertranslate`
+
+### [4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [俄罗斯称有更多跨境攻击 威胁要打击 “决策中心”](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [新中国联邦咖啡](/content/gnews/6/README.md)
+ ` The Potomac View`
+
+### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/7/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄罗斯拒绝乌克兰交换战俘的要求](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [纽约地铁枪击案嫌疑人被捕 亲自热线联络（下）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC每日热点0414](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [纽约地铁枪击案嫌疑人被捕 亲自热线联络（上）](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新一轮大战即将开打，泽连斯基公布所需武器清单](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄乌战争影响 IMF下调143个经济体前景](/content/gnews/13/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [上海已成地狱，人类史上第一次大规模隔离始于中国中部城市武汉](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [应对俄罗斯石油销售上升全球贸易商将减购](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国人权状况报告 ：“专制主义威胁着人权和民主主义”](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [中共与俄勾肩搭背，台湾危险，拜登政府对了解COVID的起源 &#8220;不感兴趣&#8221;](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
