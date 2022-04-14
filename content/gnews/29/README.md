@@ -2,50 +2,37 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2346558/)
+## 有声|中共内外交困加剧 喜币将成为最早的数字法币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2346571/)
 
-4/14/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天iTunes打榜记录：
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月12日，郭文贵先生盖特视频表示，习近平现在已是内外交困。之前中共威胁佩洛西访台将对台湾开战，现在佩洛西随时可能访问台湾。美国之前也已经有许多外交官员和外交飞机前往台湾，中共军方所有威胁的话语都已经成为国际笑柄。在墙内，上海、长春等地被封闭的饥饿居民为了一点食物，被迫出卖身体的事情已经传遍世界，中共灭亡是天意使然。
 
-* * *
-
-[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+郭先生还说，目前有许多重大的好消息还需要严格保密，但是，喜币将会成为世界上最早的、最流行的数字法币，而人民币在海外会成为只有恐怖分子才使用的钱，成为犯罪币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/44-1.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+文字版原文：[中共内外交困加剧 喜币将成为最早的数字法币](https://gnews.org/zh-hans/2343791/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-
-
-[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
