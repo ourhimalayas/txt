@@ -2,61 +2,152 @@
 ---
 
 
-## 专家：中共国封城是为扼制供应链而突出美国的依赖性
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342280/)
+## 杰克·波索比克:“他们非常害怕, 证明他们的疫苗无效，这就是他们进行所有这些封锁的原因”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2342282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1239800805-1200x800-700x420-1.jpg)2022 年 4 月 7 日，一名工作人员走在中共国上海的一家将收治新冠患者的方舱医院。（STR/AFP via Getty Images）
+Jack Posobiec
+杰克·波索别克
 
-来自《大纪元时报》2022年04月07日的报道，
+Well, there I mean, they’re basically admitting that their vaccine doesn’t work
+好吧，我的意思是，他们（中国）基本上承认他们的疫苗不起作用
 
-投资公司Macrolens LLC的首席策略师布莱恩·麦卡锡(Brian McCarthy)说，中共官员最近几周对上海和其他城市实施的极其严格的封城，可能是为了向美国和盟友就其对中共国供应链的依赖发出信息。
+And that’s something that even even mainstream publications of people have point-ed out for years
+这就是即使是人们在主流出版物也已经指出多年的事情
 
-上海的两阶段封城于3月28日开始生效，至今仍未解除。中共国官员不顾仅在两周内就使中共国经济损失290亿美元的预测，实施了这一措施。但在麦卡锡看来，美国和盟国的代价可能更大。
+That sign of vaxx does not have the efficacy behind it
+这个标志着疫苗并没有功效
 
-4月4日，麦卡锡在接受大纪元电视台“中共国内幕”节目采访时说，全球供应链的中断尤其成问题，在通胀激增之际，美国的弱点更加明显。麦卡锡表示，中共国官员完全了解美国的经济困境，并选择这个时机来表明美国经济的脆弱性。
+that they jumped that they dummied up all the trials for this thing
+他们仓促开始，他们为这件事取消了所有的试验
 
-麦卡锡说：“我们真的没有能力应对任何进一步的供应链中断。所以，你知道，他们真的让我们陷入了困境，（特别是）新冠病毒流行期”。
+they dummied up to test
+他们假装去测试
 
-但是麦卡锡并没有像一些人那样把病毒的爆发归咎于中共国共产党的恶意或处理不当。
+the same way they were lying about what they were doing in Wuhan in the first place
+就像他们一开始就在武汉所做的事情上撒谎一样
 
-他说：“我认为这最终是一种自然行为，我不认为它是故意的，但很明显它使中共国相对于西方国家处于更强大的地位，西方国家正在处理瘫痪的供应链，而且看起来我们的食品和能源价格将急剧上升”。
+But they push the thing out
+但他们把事情推了出去
 
-麦卡锡表示，中共国领导人习近平试图将西方对中共国供应链的依赖这一事实摆在面前，以便在他继续推行特别是针对台湾的扩张主义计划时为自己提供筹码。麦卡锡说，过去对习近平的软弱使他更有勇气在2023年、2024年或2025年采取进一步的激进行动。
+and they said, rah, rah, hey, roll good to go
+他们说，啊，啊，嘿，好了可以了
 
-他说：“看看在香港发生了什么。美国对习近平有效地破坏了香港的任何形式的民主没有给予一点象征性的惩罚。”
+We’ll now Omicron had and it may very well come in through the Olympics
+我们现在有奥米克戎，它很可能已经从通过奥运会进入
 
-尽管习近平可能希望展示美国的弱点，但中共国经济本身也有严重的问题，主要集中在严重依赖信贷的房地产行业。麦卡锡说，他预计将看到房地产行业的营业额和价格继续下降。
+and some of the other opening up that they’ve done
+和从他们已经完成的其他一些开放进入的
 
-麦卡锡说：“在中共国，房地产是所有信贷的主要抵押形式。因此，新的贷款面临着非常严重的阻力。尽管有外部通胀压力，但中共国的内部动力将是强大的通货紧缩。”
+But now it’s hitting and because they’re so terrified of it
+但现在它来袭了，因为他们太害怕新冠病毒了
 
-麦卡锡描述了一个严重依赖不完整的房地产泡沫的经济。他说，中共国各地的人们支付了目前价值约为其购买价格30%的资产。
+proving that their vaccine didn’t work
+证明他们的疫苗无效
 
-他说：“他们浪费了大量的实际资源，建造了一些没有人会使用的东西。这是千真万确的现实。”
+That’s why they’re getting really locked
+这就是为什么他们真的被封锁了
 
-**简评：**
+Steve Bannon
+史蒂夫·班农
 
-中共国经济发展的过程本质就是中共国逐步成为全球供应链的一环，整个过程持续了四十多年。中共国的经济从1979年的1783亿到2021年的15万亿，这都是中共国人民几代人在付出了血和泪代价下创造的经济学奇迹。遗憾的是这些钱并没有进入到中共国人民的口袋，而是被中共的一帮盗国贼利用权力装到自己的口袋。中共的官员享受着全球最好的福利，做最轻松的工作，而中共国普通人民没有免费疫苗，没有免费教育，没有养老，还要支付高额的房贷。中共的盗国贼不但要偷走属于中共国人的财富，还要垄断中共国的市场，榨干中共国人的每一滴血。中共国的高房价就是中共垄断土地使用权，抬高土地成本，变相的剥夺了老百姓的生存权，最终都是老百姓买单。
+That’s where you lose the mandate of heaven made everybody get
+那就是你失去了让每个人都强制疫苗的立场，
 
-习近平上台之后更加变本加厉，他不但要报复社会，也要报复中共国人。上海封城就是最佳的证明，习近平想利用疫情将所有上海人囚禁在自己的家里，让他们也感受自己年轻时饿肚子的滋味。这是何其的变态。不仅如此，他更要挑战全世界，不惜摧毁中共国的经济，牺牲无数中共国人民也要实现自己的野心。而可怜、无辜的中共国人民都被他无情的绑上了中共战车，无数的青年男女将成为习近平追逐权力的炮灰。灭共，时不我待。
+Jack Posobiec
+杰克·波索别克
 
-新闻链接：[China’s Lockdowns May Be Partly a Ploy to Tamper With Supply Chains, Highlight US Dependence: Expert](https://www.theepochtimes.com/chinas-lockdowns-may-be-partly-a-ploy-to-tamper-with-supply-chains-highlight-us-dependence-expert_4392603.html)
+Because again there, it’s not
+因为又在那里，它不是
 
-*翻译/简评: kkoto(芬兰大灰狼)*
+It’s not about your health, right？because we all know
+这与您的健康无关，是吧？因为我们都知道
 
-*校对: 感恩*
+by the way that Omicron has been the least significant of all the variants, right?
+顺便说一句，奥米克戎是所有变体中最不严重的，对吧？
 
-* * *
+Delta was much harsher than than Omicron
+德尔塔比奥米克戎要厉害得多
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Omicron is the one that’s
+奥米克戎就是那个
 
+Steve Bannon
+史蒂夫·班农
 
-编辑：【英国伦敦喜庄园编辑部】
+as far as death
+特别是死亡率
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+Jack Posobiec
+杰克·波索别克
 
+as far as death
+特别是死亡率
 
+So people were saying it, it’s almost like you almost want to get Omicron
+所以人们说，这几乎就像你几乎想要得过奥米克戎
+
+because then at least you can get the antibodies
+因为那样至少你可以得到抗体
+
+They’re trying to shut this thing down because they want zero COVID
+他们正试图关闭这件事，因为他们想要新冠病毒清零
+
+This is the authoritarianism
+这就是威权主义
+
+This is by the way, this is the world Klaus Schwab want, right?
+顺便说一句，这就是克劳斯·施瓦布想要的世界，对吧？
+
+when he sits down with the other world economic forum leaders at Davos
+当他在达沃斯与其他世界经济论坛领导人坐下来时
+
+and they’re going to Dubai this summer
+今年夏天他们要去迪拜
+
+Dubai in summer does not sound like a fun picnic by the way
+顺便说一句，夏天的迪拜听起来不像是一次有趣的野餐
+
+This is exactly what they’re trying to import to the west
+这正是他们试图向西方输入的东西
+
+is what you saw Macron do with all the crackdowns on the yellow vests
+这就是你看到马克龙对黄背心的所有镇压所做的
+
+as we saw with the great truckers of Canada later
+正如我们在加拿大伟大的卡车司机身上看到的那样
+
+on the way that they were destroyed the way that they completely dismantled that movement
+他们被摧毁的方式就像他们彻底摧毁了那个运动
+
+and all those great freedom fighters
+和所有那些伟大的自由战士
+
+This is the authoritarianism they want to put down
+这就是他们想要放施威权主义的
+
+but they’re doing it in China to their own people of 193 victims of the CCP
+但他们是在中共国对自己的1.93亿名中共受害者做的
+
+原视频链接: [https://gettr.com/post/p14y3brf223](https://gettr.com/post/p14y3brf223)
+
+Date:04/122022
+原视频标题: “They’re so terrified of it proving that their vaccine didn’t work, that’s why they’re conducting all these lockdowns.” -Jack Posobiec
+杰克·波索比克:“他们非常害怕, 证明他们的疫苗无效，这就是他们进行所有这些封锁的原因”
+原视频日期：2022/04/12
+原视频链接https://gettr.com/post/p14y3brf223
+任务编号：KE478(4240)
+视频时间段 :0:00-1:38
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
