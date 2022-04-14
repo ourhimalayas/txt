@@ -2,22 +2,16 @@
 ---
 
 
-## 樱花时政┃细胞医药品量产化或将有效治疗癌症
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347698/)
+## 樱花时政┃俄罗斯停止石油数据发布
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
 
-撰稿：东京樱花团/haruka春香
+撰稿：东京樱花团/加一颗稻草
 
-再生医疗风险企业Hellios 赫利奥斯（东京）将于今年夏天在神户港岛制造设备公司，正式启动批量生产细胞医药品。2年后，还会针对癌症治疗药的试验，而提高生产能力。虽然没有表示投资额，但估计是5亿日元左右。新设施被称为“细胞加工制造设施(CPC)”，在无菌空间放置的容器中培养大量细胞。在港岛神户南部的“神户医疗创新中心”5楼进行了整备。该设施的核心细胞培养区面积约为120平方米，除制造设备外，还保管有细胞储藏和培养薄片等材料。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片9-3.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220414-00000026-kobenext-000-4-view.jpg?exp=10800)
-该公司一直在进行利用自身的基因编辑技术，在人工多能性干细胞（iPS细胞）中制造出攻击癌细胞的“NK细胞”的研究。随着确立提高NK细胞功能的“eNK细胞”的制作方法，批量生产技术已经达到了世界最尖端水平。作为治疗肺癌和肝癌的候选药物，计划在2024年开始进行给患者使用的试验。
+4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
+自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
 
-该公司的主要场所是位于港岛医疗产业城市的“神户研究所”，80%左右的职员（90多名）在该研究所工作，其中30多名拥有博士学位。研究、开发、生产、品质管理等部门在港岛医疗中心附近有3处。据悉，新设施生产线为远程操作，只配备了3、4名职员。总经理鍵本忠尚（45岁）表示：“如果把人工培育的细胞自动化，就能稳定地供应相同质量的产品。我们将把试验用药运上轨道，尽快向全世界患者提供药物。”
-
-目前该公司正和住友法玛（原大日本住友制药）开发治疗眼疾“老年黄斑变性”的药物。通过iPS细胞首次成功移植视网膜细胞的前理化学研究所项目负责人高桥政代去年称，Hellios 的新药开发进展还很缓慢，为了使用该公司等拥有的专利，正向国家提出了“裁定”，目前正在审议中。
-
-信息来源：
-
-[再生医療のヘリオス、細胞医薬品の量産へ　がん治療薬の治験視野、神戸・ポーアイに整備（神戸新聞NEXT） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e9605449edfc9d53dfdc4aba41e075d6bbcc7219)
+消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

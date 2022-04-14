@@ -2,34 +2,18 @@
 ---
 
 
-## 樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347653/)
+## 樱花时政┃苏州或成为下一个“动态清零”的城市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347687/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+撰稿：东京樱花团/盐和光
 
-所罗门群岛准备与中共正式签署一项包含警务合作的安全协议引起美国以及地区国家的高度关切。澳大利亚和美国也相继增加向所罗门施加外交压力，希望所国放弃这一计划。
+4月14日每日经济报报道，苏州市召开中共病毒（新冠病毒Covid-19）疫情防控新闻发布会。苏州市委常委、市政府常务副市长顾海东通报：根据当前疫情防控形势，近几日苏州市持续组织开展了大规模的全员核酸检测，4月12日苏州市核酸采样1042.7万人次，4月13日核酸采样757.4万人次。今天（4月14日）继续开展重点区域核酸检测，截至15时，苏州全市重点区域核酸采样772万人次。苏州市本轮疫情累计追踪排查在苏州密接19163人，次密接33150人。苏州全市现有封控区138个、管控区100个、防范区14个。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片8-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp7.itc.cn%2Fq_70%2Fimages03%2F20220414%2F8f574c5696c4461d8f3e0cc2d89fd7f0.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.sohu.com%2Fa%2F537969307_115479&amp;tbnid=0VKjFTVb9rWwqM&amp;vet=12ahUKEwjhyvyxs5T3AhWFw4UKHTy0AA0QMygBegUIARCLAQ..i&amp;docid=6w18geLfzti6iM&amp;w=1080&amp;h=622&amp;itg=1&amp;q=%E8%8B%8F%E5%B7%9E%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjhyvyxs5T3AhWFw4UKHTy0AA0QMygBegUIARCLAQ)
+4月14日0时至15时，苏州全市新增阳性感染者16例，涉及7个县级市（区），截至2020年11月1日，苏州市常住人口为12748262人，与2010年第六次全国人口普查的10459890人相比，十年共增加2288372人，增长21.88%，年平均增长率为2.0%，截至2019年，苏州市实现地区生产总值（GDP）19235.80亿元，按可比价格计算，比上年同期增长5.6%。分产业看，2019年第一、二、三产业分别实现增加值196.70亿元、9130.18亿元、9908.92亿元，增速分别为-6.5%、5.1%和6.3%。2020年8月，名列上半年中共国GDP十强。这将是继武汉，香港，深证，长春，上海后，又一个因中共病毒和疫苗后遗症导致中共采取将要封城的城市。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://live-production.wcms.abc-cdn.net.au/aff337860baf67c387afaac2d65674f6?impolicy=wcms_crop_resize&amp;cropH=3333&amp;cropW=5000&amp;xPos=0&amp;yPos=0&amp;width=862&amp;height=575&amp;imgrefurl=https://www.abc.net.au/news/2022-03-24/draft-leak-chinese-military-base-solomon-islands/100937632&amp;tbnid=UPTlGhAFJyyDxM&amp;vet=12ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ..i&amp;docid=DnQpWLe0qLU5LM&amp;w=862&amp;h=575&amp;itg=1&amp;q=CCP%20Solomon%20Security%20Protocol&amp;ved=2ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ)
+中共当前的所谓的“动态清零”疫情防控政策，不仅会造成大规模人道灾难，还在客观上顺应了全世界遏制中共国的大战略部署，包括像特区的深圳，直辖市的上海，苏州等核心工业区全面停工停产，高速全面封路等，造成的结果是封断供应链，将海外订单赶走，打击国内企业信心，逼迫企业外迁，吓退外来投资，然后流失掉众多人才……中共天天洗脑宣传世界要处心积虑围堵中共，最后却让中共自己促成围堵遏制自己。
 
-澳大利亚总理斯考特∙莫里森（Scott Morrison）星期三（4月13日）表示，澳大利亚国际合作与太平洋事务部长泽德∙瑟萨尔加（Zed Seselja）前一天已经飞往所罗门群岛，与该国总理梅纳西∙索加瓦雷（Manasseh Sogavare）就所国与北京4月1日草签的一份安全协议举行会谈。
-
-美联社引述瑟萨尔加的话说，他已经要求索加瓦雷放弃签署与中共的这份协议。
-
-瑟萨尔加出访所罗门群岛的当天，美国副国务卿温迪∙谢尔曼（Wendy Sherman）也与所罗门群岛外长杰里迈亚∙马内莱（Jeremiah Manele）通了电话，讨论美国在所国首都霍尼亚拉重开大使馆的计划。
-
-美国驻所罗门群岛大使馆1993年关闭后，美国政府今年2月首次宣布重开该大使馆的计划。虽然那时所国与中共安全协议草案尚未曝光，但美国对中共在所罗门群岛这个极具战略意义国家迅速增长的影响力已经感到不安。
-
-布林肯国务卿2月作出这一宣布时曾表示，在中共的影响力“根深蒂固”之前，美国也要在该国增加自己的影响力。
-
-根据网上曝光的中共与所罗门群岛安全协议草案，中共军舰可以停靠在所罗门群岛进行“后勤补给”，中共也可以派遣警察和其他军方人士前往所罗门群岛“协助维持治安”。
-
-协议草案还规定，双方的联合安全安排的信息如果对外披露，必须获得中方批准，这还包括媒体的吹风会。
-
-所罗门群岛政府已经表示，安全协议草案已经在两个星期前草签，并将在“整理后”很快定稿。
-
-所罗门群岛政府已经表示，不会允许中共在该国建立军事基地，而中共也否认在南太平洋寻求军事立足点。但是这份安全协议还是让许多西方国家深为关切。
-
-信息来源：[西方国家施压所罗门群岛，劝其放弃签署与中国的安全协议](https://www.voachinese.com/a/western-pressure-mounts-on-solomons-to-quash-pact-with-china-20220413/6527852.html)
+消息来源：[【苏州市已追踪排查在苏州密接19163人 现有封控区138个】](https://my.mbd.baidu.com/r/EtacxibmBa?f=cp&amp;rs=2898412079&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a35dcfb4c3b23491&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

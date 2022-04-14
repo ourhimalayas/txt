@@ -2,14 +2,10 @@
 ---
 
 
-## 五月花简报（04/14/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2347423/)
+## 4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2347551/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E95485BB-14EC-4421-A635-447AC3D6A2DE.jpeg)
-
-发布：思澈
+秘密翻译组-北美组
 
  
 

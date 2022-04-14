@@ -2,31 +2,36 @@
 ---
 
 
-## 有声|永不放弃为新闻自由而战，比利时首相悼念遇害记者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2347646/)
+## 中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347686/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-4月12日，比利时首相亚历山大·德克鲁出访罗马尼亚，期间德克鲁先生向遇害的比利时记者丹尼·休韦的纪念碑上敬献了花圈。
+撰稿：东京樱花团/喜马拉雅的微尘
 
-该纪念碑是一位名为丹尼·休韦的新闻记者为报导反对共产党总统尼古拉·齐奥塞斯库的革命运动，前往罗马尼亚布加勒斯特。1989年12月25日，丹尼·休韦在工作中被罗马尼亚士兵击杀。据了解，他是唯一一位在工作中被杀害的比利时记者，而为了纪念他，在他去世的地方建有一座纪念碑。德克鲁首相表示，这座纪念碑让我们想起了他的牺牲，以及自由媒体今天仍然面临的危险。
+北京时间4月13日早间消息，负责打击金融犯罪行为的印度联邦机构已经传唤了小米公司的一名前印度负责人，以调查该公司的商业行为是否符合印度的外汇相关法律。
 
-自乌克兰战争开始以来，已有七名记者和媒体工作者在当地被杀害。德克鲁表示，如果俄罗斯拥有自由媒体，乌克兰战争就不会发生。因此，我们永远不要放弃为新闻自由而战，因为这也是为我们的民主和自由而战。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-3.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://ichef.bbci.co.uk/news/976/cpsprodpb/B038/production/_109321154_gettyimages-1163006258.jpg&amp;imgrefurl=https://www.bbc.com/news/world-asia-india-50135050&amp;tbnid=5jtxvJrRe9V3gM&amp;vet=12ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ..i&amp;docid=7gwU1eJPbgB3lM&amp;w=976&amp;h=549&amp;q=Xiaomi%20India&amp;ved=2ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ)
 
-文字版原文：[永不放弃为新闻自由而战，比利时首相悼念遇害记者](https://gnews.org/zh-hans/2343789/)
+据悉，至少从2月开始，印度执法局（Enforcement Directorate）就一直在调查小米，并于最近几周要求该公司的前印度董事总经理马努·库马尔·贾恩（Manu Kumar Jain）出面配合调查。
 
-音频处理：Fei797
-发稿：Fei797
+贾恩目前是小米驻迪拜的全球副总裁，而据消息人士称，他目前正在印度，但他此行的目的尚不清楚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+在被问及此次调查时，小米发言人发表声明称，该公司遵守印度所有法律，并“完全遵守所有法规”。声明还表示：“我们正在配合当局正在进行的调查，以确保其能够拥有所有必要的信息。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这一行动标志着，印度对小米的审查正在加强。去年12月，在另一项涉嫌逃税的调查中，小米的印度办事处遭到突击搜查。当时，其他一些中国智能手机制造商也遭到了突击搜查。
+
+贾恩未对相关置评请求作出回应，印度执法局也尚未回应。但值得指出的是，该局通常不会在调查进行期间公开细节。
+
+据悉，印度执法局正在调查小米印度、其代工制造商与其中国母公司之间的现有业务结构。此人表示，小米印度与其母公司之间的资金流（包括特许权使用费的支付）正在受到调查。
+
+印度执法局在2月向贾恩发出通知，要求其提供各种公司文件，其中包括外国资金的细节、持股和融资模式、财务报表以及负责经营小米印度业务的主要高管的信息等。
+
+根据市场研究公司Counterpoint Research的数据，在2021年里，小米仍然是印度最大的智能手机销售商，拥有24%的市场份额，而三星以19%的份额位居第二。除了智能手机以外，小米还在印度经营其他科技产品，如智能手表和电视等。
+
+信息来源：[传印度执法局传唤小米印度前负责人：调查其是否遵守外汇相关法律](https://finance.sina.com.cn/tech/2022-04-13/doc-imcwiwst1507997.shtml)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
