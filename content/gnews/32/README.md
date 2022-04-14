@@ -2,35 +2,23 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2346980/)
+## 面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2346909/)
 
-作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AIT.jpg)
+美国众议院议长裴洛西（Nancy Pelosi）原定4月10日访台，因突然确诊而延后，文贵先生4月10日直播表示，可能是中共明确告知，如果Nancy Pelosi来台湾访问， 中共立刻发动军事武力攻击台湾，但4月14日晚间7时40分美国联邦参议院预算委员会共和党首席议员葛瑞姆（Lindsey Graham, R-SC）、参议员梅南德兹（Bob Menendez）、参议员波尔（Richard Burr）、萨斯（Ben Sasse）、波特曼（Rob Portman），及众议员杰克森（Ronny Jackson）于结束澳洲行程后，搭乘美国行政专机闪电访问台湾，显示美国拜登政府跨党派支持捍卫台湾和印太区域安全的威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
+此次美国联邦参议院外交委员会的民主党籍主席梅南德兹，是与共和党资深议员里契共同推出**《****2021****战略竞争法案》**，梅南德兹曾表示美国政府必须清楚中共长期破坏国际体系的计划，该法案最主要就是在强化美国对中共展开全面战略竞争的力量。其中明确表示台湾是美国印太战略重要部分，包含新疆维吾尔族的种族灭绝、支持香港民主，加强施压中共，在贸易、知识产权上维护美国的利益与价值，并强调应优先在印太地区进行军事投资以达到美国政治目标。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-13.png)
+**然而就在中共对台海与区域军事威胁持续升高的同时，根据文贵先生在盖特爆料，中共于塞尔维亚等地大面积布置红旗HQ-22地对空导弹系统，从中共运-20的集体飞行轨迹可以看到，经过的国家有吉尔吉斯坦、乌兹别克斯坦、阿塞拜疆、土耳其、保加利亚等，运送其战略性进攻武器，直接支持俄罗斯攻占乌克兰的军事侵略，甚至派出大量的黑客部队与俄罗斯站在一起，对北约欧盟造成严重的威胁。中共红旗导弹系统甚至将部署在吉布提、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，其中包括装在货轮上的移动式导弹，以及可能部署在古巴、巴哈马等美临国的导弹系统。**
 
-文章仅代表作者本人观点，与Gnews无关
+**中共与俄罗斯两个共产独裁统治，不断制造世界各地区域性冲突与战争，目的就是要挑战美国、毁掉美元系统，这是一场共产独裁主义与自由民主资本的战争，一场信仰的对立和意志的冲撞，一场大规模的战争侵略行动，中共是全世界灾难的根源，只有消灭中共才能拯救全人类。**
 
-视频参看：
-[2022.04.14早 《NFSC新闻》](https://gettr.com/streaming/p159txd5ed8)
-[2022.04.14早《NFSC新闻访谈》](https://gettr.com/streaming/p15aepqa6c8)
+本文仅代表个人立场
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+祈祷万佛万神加持文贵先生与新中国联邦战友Take down the CCP!
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
+审核:Athena雅典娜 撰稿发布:Amitofu
 
  
 

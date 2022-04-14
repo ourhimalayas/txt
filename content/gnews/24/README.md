@@ -2,14 +2,10 @@
 ---
 
 
-## 五月花简报（04/14/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2347423/)
+## 4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2347407/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E95485BB-14EC-4421-A635-447AC3D6A2DE.jpeg)
-
-发布：思澈
+秘密翻译组-北美组
 
  
 
