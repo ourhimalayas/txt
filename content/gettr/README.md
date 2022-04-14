@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 10:09 PM (UTC)`
+
+4/14/2022 Miles Guo: A lot of Americans have been asking me why the Shanghainese don’t fight back. The basic right given by God to every human being is to protect themselves and their family and to defend their basic dignity! Only the Chinese themselves can save the Chinese. Lang Xianping slept with a stewardess for five years, but he sued her and demanded her to return the property and car he gave her. Lang wasn’t even willing to pay the lawyer!<br/><br/>4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利！只有中国人自己才能拯救中国人！郎咸平睡了空姐五年，却打官司要空姐还他送的房和车，竟然连律师费都不愿意付！<br/>
+![img](https://media.gettr.com/group13/getter/2022/04/14/22/292131dc-8a80-10d7-a68a-17c14ef73b1e/out.jpg)
+
+---
+
+`@miles 4/14/2022 10:06 PM (UTC)`
+
+4/14/2022 Miles Guo: The world situation is ever-changing. The CCP will possibly attack Taiwan in early May; once the war on Taiwan begins, the CCP will absolutely restrict you from withdrawing money, neither does the banking system have any money for you to withdraw; the coercion of COVID vaccines is on the rise again in mainland China. In the remote areas, the CCP entices the seniors with money so that they would take the jabs. The CCP is killing people with the COVID vaccines!<br/><br/>4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了；国内骗打毒疫苗趋势抬头，以金钱引诱偏远地区老人打，这就是用疫苗杀人啊！<br/>
+![img](https://media.gettr.com/group11/getter/2022/04/14/22/50393953-3661-bd5d-46d0-7fdcd67d9c12/out.jpg)
+
+---
+
+`@miles 4/14/2022 10:04 PM (UTC)`
+
+“中共放风：北约必须解散！” 飞飞秀救援快报 2022-04-14<br/>For English：gettr.com/streaming/p15c34zdce3
+![img](https://media.gettr.com/group42/origin/2022/04/14/22/e43a4c2d-735f-6d91-d235-dfa4830d943b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 8:45 PM (UTC)`
 
 2022.04.14  新中国联邦 | 喜健康    压力与营养的关系
@@ -135,27 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group17/origin/2022/04/14/08/4ba40cef-2a06-0b4a-83fe-75d25379384f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 8:11 AM (UTC)`
-
-【Ukraine Rescue】04/12/2022 Philip, member of a Belgian Humanitarian Organization “Humans Now”, is interviewed by NFSC volunteer Nicole. Philip has spoken with the Belgian Prime Minister in Medyka and praises his humanitarian work. After hearing about the cause of the NFSC, Philip says that what it's doing is amazing, and he really hopes that it will succeed.<br/><br/>【乌克兰救援】04/12/2022 比利时人道组织“Humans Now”的成员菲利普接受了新中国联邦义工妮可的采访。菲利普在梅迪卡与比利时总理进行了交谈，称赞了他的人道主义工作。在听到新中国联邦的事业后，菲利普说新中国联邦的事业令人惊叹，真心希望它成功。<br/>
-![img](https://media.gettr.com/group27/getter/2022/04/14/08/ef3d40a5-b1f8-282d-5e0f-e3c36b4a3503/out.jpg)
-
----
-
-`@miles 4/14/2022 5:43 AM (UTC)`
-
-4/10/2022 Miles Guo: A reasonable system of wealth distribution, wealth acquisition, and a way to secure people’s own wealth is necessary to achieve democracy and rule of law. The top priority of achieving our goal of Himalaya is to establish a financial system that not only allows people to take control of their own wealth but also automatically creates the wealth that is measurable without being controlled by power. People want to have respect, recognition, and faith only if their basic material needs are sufficiently satisfied.<br/><br/>4/10/2022 文贵直播： 实现法治和民主需要合理的财富分配和获得制度以及安全的财富拥有方式；实现喜马拉雅目标的头等大事是建立由人们自己决定财富、自动创造财富、可衡量且不受权力控制的金融模式；人只有满足了基本物质需求，才会需要尊严、认可和信仰<br/>
-![img](https://media.gettr.com/group13/getter/2022/04/14/05/a3c8bea0-ff2a-955f-1960-7e959d1e1196/out.jpg)
-
----
-
-`@miles 4/14/2022 5:03 AM (UTC)`
-
-4/10/2022 Miles Guo: What does it mean for both "Chained Dream" and "The Terminator Snow" to hit the iTunes charts at the same time?<br/><br/>4/10/2022 文贵直播：《锁链梦》和《灭共的雪》两首歌同时打榜意味着什么？<br/>
-![img](https://media.gettr.com/group36/getter/2022/04/14/05/3c5940d1-69c8-b747-6204-fe86817e4675/out.jpg)
 
 ---
 
