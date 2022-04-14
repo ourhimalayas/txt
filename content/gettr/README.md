@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 8:11 AM (UTC)`
+
+【Ukraine Rescue】04/12/2022 Philip, member of a Belgian Humanitarian Organization “Humans Now”, is interviewed by NFSC volunteer Nicole. Philip has spoken with the Belgian Prime Minister in Medyka and praises his humanitarian work. After hearing about the cause of the NFSC, Philip says that what it's doing is amazing, and he really hopes that it will succeed.<br/><br/>【乌克兰救援】04/12/2022 比利时人道组织“Humans Now”的成员菲利普接受了新中国联邦义工妮可的采访。菲利普在梅迪卡与比利时总理进行了交谈，称赞了他的人道主义工作。在听到新中国联邦的事业后，菲利普说新中国联邦的事业令人惊叹，真心希望它成功。<br/>
+![img](https://media.gettr.com/group27/getter/2022/04/14/08/ef3d40a5-b1f8-282d-5e0f-e3c36b4a3503/out.jpg)
+
+---
+
 `@miles 4/14/2022 5:43 AM (UTC)`
 
 4/10/2022 Miles Guo: A reasonable system of wealth distribution, wealth acquisition, and a way to secure people’s own wealth is necessary to achieve democracy and rule of law. The top priority of achieving our goal of Himalaya is to establish a financial system that not only allows people to take control of their own wealth but also automatically creates the wealth that is measurable without being controlled by power. People want to have respect, recognition, and faith only if their basic material needs are sufficiently satisfied.<br/><br/>4/10/2022 文贵直播： 实现法治和民主需要合理的财富分配和获得制度以及安全的财富拥有方式；实现喜马拉雅目标的头等大事是建立由人们自己决定财富、自动创造财富、可衡量且不受权力控制的金融模式；人只有满足了基本物质需求，才会需要尊严、认可和信仰<br/>

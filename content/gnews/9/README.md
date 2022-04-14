@@ -2,44 +2,92 @@
 ---
 
 
-## 父亲当年既奸既杀的援藏干部经历&amp;锁链女24年性奴经历
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2344342/)
+## “他们想杀我”揭露孟山都的生物学家告诉小肯尼迪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344420/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8810.61%EF%BC%89%E7%88%B6%E4%BA%B2%E5%BD%93%E5%B9%B4%E6%97%A2%E5%A5%B8%E6%97%A2%E6%9D%80%E7%9A%84%E6%8F%B4%E8%97%8F%E5%B9%B2%E9%83%A8%E7%BB%8F%E5%8E%86%E3%80%81%E9%94%81%E9%93%BE%E5%A5%B324%E5%B9%B4%E6%80%A7%E5%A5%B4%E7%BB%8F%E5%8E%86%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
+翻译： Jenny Ball
 
-**郭文贵先生：**所以说你看追寻自由你要劝别人不打疫苗的时候，真的对方不打的时候，就像留在大陆的那些同胞们，遭受了70年的挫折，甚至他闺女被24年绑架。我昨天我才听说这个24年绑架“锁链女”的爸爸是援藏干部，当年在援藏的事儿上极端的错误，极端的极端的错误，你不觉得这也是报应吗？你援藏去到西藏无非即奸即杀，结果他的闺女24年被“锁链女”，被无数个男人奸淫，苦到这种程度，都不敢看。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
 
-我没什么不敢看的，我最爱看是蛇呀，什么动物大世界，我一看“锁链女”我心里就揪得慌，我个人破产没让我一秒钟揪得慌，但我一看到“锁链女”我就心里“咯噔咯噔”的受不了。这孩子做了什么孽遭受这个？这是父亲我相信一定也给她造了孽。
 
-就是我们身边很多人你去看吧，不打疫苗，劝他不打疫苗还各种理由啊，还有强迫给老公喝安眠药打疫苗的这种人，这不知道啥罪呢，上一辈子估计她老公跟她之间就是谋杀和被谋杀的这种缘分。所以我相信缘分。
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-135.png)图片来源：childrenshealthdefense.org
 
-编辑整理：星塵Scheddi；
+法国生物学家吉勒·埃里克·塞拉利尼（Gilles-Éric Séralini）和《儿童健康保护》主席兼首席法律顾问罗伯特·肯尼迪（Robert F. Kennedy, Jr.）有一个共同点：他们都致力于揭露孟山都农达除草剂的毒性。
 
-字幕文件制作：小满；
+两人第一次见面是在“肯尼迪捍卫者播客”（RFK Jr. The Defender Podcast）上，他们讨论了他们的工作。
 
-视频制作及上传：Cindy；
+塞拉利尼是一名分子生物学家，也是转基因生物 (GMO) 和杀虫剂方面的专家。他是卡昂大学教授，基因工程独立研究和信息委员会主任兼主席。
 
-G-News发布：海贼王M.D.LUFFY；
+塞拉利尼与杰罗姆·杜泽莱（Jérôme Douzelet）也是《孟山都论文的全部真相》的合著者。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+这本书详细介绍了，在塞拉利尼发表有关农达除草剂的突破性发现后，孟山都如何攻击他并欺骗公众。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+塞拉利尼的发现在 2012 年的一篇食品和化学毒理学文章中得到了报道，该杂志的主编迫于压力，于 2013 年撤回了这篇文章。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+肯尼迪描述了这些发现：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+“他 [做了] 其他人不敢做的事情，那就是对 [老鼠] 进行与孟山都 90 天完全相同的测试，然后改为两年，这是老鼠的典型寿命。他发现……食用农达的老鼠中，有 80% 患上了肿瘤，而对照组为 30%。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+“不仅如此，老鼠身上的肿瘤还增大了 130%。”
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+孟山都发起了一场压制和诋毁塞拉利尼研究的运动。臭名昭著的孟山都论文揭示了该公司的战略。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+肯尼迪是获得这些文件的鲍姆(Baum)，赫德伦德(Hedlund)，阿里斯蒂和高盛(Aristei & Goldman)法律团队的联合法律顾问。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+肯尼迪说，当孟山都公司的文件——数十万份文件——被启封时，“我们第一次看到了孟山都公司的内部通讯。我们看到了他们破坏塞拉利尼教授声誉，并让他的文章撤稿的策略。”
 
-G-TV：日本银河系农场。
+肯尼迪说，孟山都雇佣了前情报人员和其他“杀手”来破坏科学家的声誉，并从期刊上撤稿。
+
+他接着说道：
+
+“[孟山都]有很多策略。每一项策略都旨在确保孟山都——即综合报道——不受科学的伤害。
+
+“其中一种策略被称为‘什么都不做’。另一种策略被称为‘自由经营’。还有一个叫做‘打地鼠’。每次有科学家从路障上探出头来发表一项研究表明农达不安全时，他们就会打他。”
+
+“云杉计划”是另一个例子，肯尼迪说。“而且所有这些都是由这些黑人行动间谍实施的，包括CIA和其他情报机构的前成员。”
+
+塞拉利尼说他“只是一名研究人员”，他称赞肯尼迪“为我们的世界带来了很多光明”。
+
+塞拉利尼在评论他的研究时说：
+
+“我们发现 [孟山都] 知道他们犯罪，他们使用世界上主要的除草剂农达 (Roundup) 生产有毒产品，[以及] 转基因生物……经过改良以包含这种杀虫剂。”
+
+塞拉利尼说，很多人不明白一些转基因食品已经被改良为耐受农达**。**
+
+肯尼迪解释说，最初，转基因公司声称基因改造将减少对杀虫剂的需求并生产更好的作物，并告诉公众，“你将拥有更大的玉米粒、更大的草莓、更高质量的食物、更多的肉、更多的一切……没有化学品的绿色革命的聚宝盆。”
+
+但是，他说，转基因生物主要用于生产耐农药的作物：
+
+“你可以用这种毒素浸透飞机上的风景。在这片土地上，唯一会生长的将是抗农达玉米和抗农达大豆。现在他们有抗农达的小麦、大麦和高粱。
+
+“而且，他们实际上大大增加了杀虫剂的使用和我们孩子的接触，而不是减少它们。”
+
+“这对环境来说真的是毁灭性的，”塞拉利尼说。
+
+他说，转基因食品中含有大量有毒杀虫剂，这些杀虫剂会传递给食用它们的动物和人类。对公共健康的影响包括癌症风险——以及对免疫系统、神经系统和内分泌系统的伤害**。**
+
+“问题是，人们不知道，当他们使用杀虫剂时，他们会吃掉石油废料，”塞拉利尼说。 “这非常重要……我们对此有了新的认识。”
+
+肯尼迪和塞拉利尼谈到了孟山都和其他大型化工公司背后的巨大政治和法律力量。
+
+“一些与 [孟山都] 有关的人试图杀死我……至少首先是科学上的，然后是身体上的**，**”塞拉利尼说。“我有机会在这个体制中生存下来 ……但很多人没能活下来。”
+
+新闻来源：[‘They Tried to Kill Me,’ Biologist Who Exposed Dangers of Roundup Weedkiller Tells RFK, Jr.](https://childrenshealthdefense.org/defender/biologist-exposed-dangers-roundup-weedkiller-rfk-jr/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=870a8b13-8675-4d5b-a31a-402216440cdd)
+
+* * *
+
+审核：文乐
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 

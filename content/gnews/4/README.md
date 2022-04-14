@@ -2,21 +2,30 @@
 ---
 
 
-## 国际｜拜登“种族灭绝”言论 白宫发言人：个人感受
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344429/)
+## 中日财经爆|英国泽西岛法院下令冻结阿布拉莫维奇70亿美元资产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2344537/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-9.png)
-外媒报导拜登总统于12日于爱荷华州公开谈论油价上涨时称，普京对乌克兰的战争是种族灭绝，并有意想抹灭乌克兰人的身分认同。事后，拜登总统向媒体确认普京对乌克兰发起战争“他称之为种族灭绝”。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-102.jpg)[图片来源](https://www.marca.com/en/lifestyle/2022/04/07/624f0b60268e3e553c8b460f.html)
 
-拜登总统此番言论遭白宫发言人称为“总统对乌克兰局势的个人感受”，普京对乌克兰的战争行为要确定为种族灭绝须经过长达数年的时间。此外，白宫发言人强调，美国在认定普京的战争行为是否构成种族灭绝并未省略法律程序，美国正在乌克兰等地搜集更多证据，上周美国高级官员表示“他们尚未看到符合种族灭绝的证据”。
 
-来源｜[讀賣新聞](https://www.yomiuri.co.jp/world/20220414-OYT1T50072/)、[The Washington Post](https://www.washingtonpost.com/politics/2022/04/13/biden-russia-genocide-ukraine/)
+4月13日，英国皇家属地的泽西岛法院下令，冻结俄罗斯富豪阿布拉莫维奇拥有的超过70亿美元的资产，这是俄罗斯入侵乌克兰后，英国政府对俄罗斯实施的制裁。
 
-* * *
+阿布拉莫维奇是英超切尔西俱乐部的老板，据说他与普京政府关系密切。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+泽西岛是一个“避税天堂”，据英国《金融时报》报道，此次冻结的资产数额堪比瑞士当局迄今扣押的 900 名俄罗斯人的总资产，未来，受英国政府影响的避税天堂可能会加强对隐藏资产的俄罗斯人的制裁。
+
+消息来源:**[英当局、チェルシーオーナーのロシア人富豪の資産凍結…８８００億円以上](https://www.yomiuri.co.jp/world/20220414-OYT1T50103/)**
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
