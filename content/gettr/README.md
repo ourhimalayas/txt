@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 4:31 PM (UTC)`
+
+ 4月14号：太晚了，太软了，太不团结了！如果这么多人被这几个穿白衣服的，困死在家里．病死在家里，饿死在家里，那就真的没有天理了……
+![img](https://media.gettr.com/group19/getter/2022/04/14/16/692ce829-49a6-1eef-1c04-c5176d15fd02/out.jpg)
+
+---
+
+`@miles 4/14/2022 4:30 PM (UTC)`
+
+ 4月14号：太晚了，太软了，太不团结了！总比饿死好！
+![img](https://media.gettr.com/group29/getter/2022/04/14/16/ce2c1a9c-22b0-ebd1-38a3-d4fd2df102d9/out.jpg)
+
+---
+
 `@miles 4/14/2022 3:04 PM (UTC)`
 
 【Ukraine Rescue】 04/14/22 Ben, a volunteer from the United States, says that the largest and best-equipped NFSC rescue station is the cornerstone of the Medyka center. Without the presence of the NFSC, Medyka would not be as global as it is today. He believes that it is because the New China Federation upholds humanity that the Communist Party should be eliminated; it should be a global fight because even a country as powerful and symbolic of freedom as the United States has been infiltrated by the CCP, so the whole world should come together to take down the CCP!<br/><br/>【乌克兰救援】 04/14/22 来自美国的志愿者本表示：设施最大服务最好的新中国联邦救援站是梅迪卡营地的基石。如果没有新中国联邦在这里，梅迪卡营地不可能像今天这样极具国际性。 他认为，因为新中国联邦维护人性，所以才要灭共，灭共应该是一场全球性的斗争，因为即使是美国这么强大、象征自由的国家都已经被中共染指和渗透，所以全球人都应该来灭共。
@@ -142,20 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 4/10/2022 Miles Guo: The new three mountains of the future world are: the first is food and water, the second is biotechnology and modern energy technology, and the third is intelligence and data; there will be bloody moments in Ukraine, and the new Atlantic Treaty will be born only after Russia and the Chinese Communist Party has completed their last show, and the countries behind it and the swamp come to the surface.<br/><br/>4/10/2022 文贵直播：未来世界新的三座大山：第一是食品和水，第二是生物科技和现代能源科技，第三是智慧和数据；乌克兰还会有血腥时刻，俄罗斯和中共最后一出戏演完后，背后的国家和沼泽地才都浮出水面后，新大西洋公约才会诞生
 ![img](https://media.gettr.com/group9/getter/2022/04/14/03/aa6c4555-32b3-f461-2a92-3200173d4c02/out.jpg)
-
----
-
-`@miles 4/14/2022 3:28 AM (UTC)`
-
-4/10/2022 Miles Guo: Bitcoin, ETH, and the Himalaya Coin are the real digital currencies. Bitcoin initiated the era of digital currencies and the demise of fiat currencies. ETH is the most remarkable digital currency, with its core being NFT, which has helped realize the circulation of ETH. The Morgan family was the first to make NFT an legitimate token. The Himalaya Coin is a unique one that has incorporated the strengths of other digital currencies and goes beyond all of them. The new Atlantic Charter has not yet been born.<br/><br/>4/10/2022 文贵直播：比特币、以太币和喜币是真正的数字货币；比特币开启了数字货币和法币消亡的时代；以太币是最牛的数字货币，NFT是其核心并实现了以太币的流通，摩根家族最早将NFT合法化；独一无二的喜币博采众长，超越了所有数字货币；新大西洋宪章尚未诞生<br/>
-![img](https://media.gettr.com/group20/getter/2022/04/14/03/cf47e494-e04b-a75e-6899-c429040eded9/out.jpg)
-
----
-
-`@miles 4/14/2022 2:06 AM (UTC)`
-
-2022.04.13  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百六十四集 嘉宾：青藤、风雨之中
-![img](https://media.gettr.com/group44/origin/2022/04/14/02/c53636b8-a324-9365-8e9d-eac2fd2b8d9a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,29 +2,42 @@
 ---
 
 
-## 有声｜中共国石油巨头因惧怕制裁准备从西方撤出
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2344991/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2345925/)
 
-By:**秘翻新闻**
+**整理：枳实**
+**美工：精灵蓝**
 
-**2022-04-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-142.png)
-[路透社](https://www.reuters.com/business/energy/exclusive-chinas-oil-champion-prepares-western-retreat-over-sanctions-fear-2022-04-13/)4月13日独家报道，中共国最大的海上石油和天然气生产商-中海油，正准备退出其在英国、加拿大和美国的业务，因为中共国担心这些资产可能会受到西方制裁的影响。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-中共国与西方之间的关系长期以来因贸易和人权问题而持续紧张，随着俄罗斯入侵乌克兰，中共国拒绝谴责俄罗斯更加剧了紧张局势。美国上周表示，如果中共国帮助俄罗斯逃避西方的制裁，将会面临严重的后果。
 
-上个月，路透社报道称，中海油已准备出售其在西方的资产，其中包括北海、墨西哥湾和加拿大大型油砂项目的主要油田的股份，这些油田每天生产约22万桶石油。
+雅典娜疫情更新（2022年 4月14日）
 
-消息人士称，中海油计划在上海证交所公开上市之前启动全球投资组合审查，以图在美股退市后寻求替代资金。中海油在首次公开募股前的招股说明书中表示，它可能面临更多制裁。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-消息人士称，在离开西方的同时，中海油正在寻求在拉丁美洲和非洲收购新资产，并希望优先开发巴西、圭亚那和乌干达的大型新油田。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
 
-秘翻新闻 清风先生编译报道
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-41.png)
 
-发布 : 恩典
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-13.png)
+
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

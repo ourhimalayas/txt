@@ -2,27 +2,31 @@
 ---
 
 
-## 樱花时政┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2340518/)
+## 粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344928/)
 
-撰稿：东京樱花团/haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-乌克兰当局指出，俄罗斯强制性地将乌克兰人移往俄罗斯境内的边境地区。据俄罗斯《国际先驱论坛报》称，计划向这样的地区派遣近10万名乌克兰人。据英国《泰晤士报》报道说，俄罗斯计划将近10万名乌克兰人派往西伯利亚和北极圈。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-88.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220413-00000005-binsider-000-1-view.jpg?exp=10800)
-乌克兰总统杰伦斯基 ，对被逮捕的人移送“特别筛选设施”的此事，鸣起警钟。 Thei引用俄罗斯总统府文件显示，俄罗斯在3月份下达了强制将9万5739名乌克兰人转移到俄罗斯内边防地区的紧急命令。该文件表明，乌克兰人不会将他们送往莫斯科或圣彼得堡等主要城市，而是会派遣到距离乌克兰数千公里的偏僻地区。根据Thei的介绍，具体是西伯利亚的马加丹和北极圈的摩尔曼斯克、车臣共和国、英格西共和国、达格斯坦共和国的高加索地区等。据《国际先驱报》报道，其中还有被送往日本北部的库页岛市的乌克兰人。
+**图/文｜CP **
+**发布时间｜14/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜IMF及WTO等四大國際機構呼籲各國採取緊急行動.jpg)
 
-这些地区每月都要向政府报告新到达当地的人数。乌克兰当局谴责说，俄罗斯从马里乌波尔——遭受猛烈轰炸的乌克兰东南部港口城市将数千名乌克兰人转移到边境的所谓“筛选设施”，然后强制移居到俄罗斯境内的边远地区。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-信息来源：[ロシア、避難させたウクライナ人10万人近くをシベリアや北極圏などに強制移住か（BUSINESS INSIDER JAPAN） – Ya…](https://news.yahoo.co.jp/articles/484a866061f8db7519941e27c80e4ab6a452a506)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+世界银行、国际货币基金组织（IMF）、联合国世界粮食计划署（WFP）和世贸组织（WTO）4月13日发表联合声明，呼吁各国政府就粮食问题采取紧急行动，并建议避免推行禁止粮食或化肥出口等相关政策。
+
+四大机构的领导人在声明中警告，鉴于俄乌战争加剧了新冠疫情和气候变化对全球人民所造成的伤害，受困于主粮价格的大幅上涨和供应短缺，中低收入国家的家庭正面临巨大危机。据世界银行估计，每增加一个百分点的食品价格，全世界就有1000万人陷入极端贫困。
+
+俄罗斯和乌克兰均是重要的粮食出口国，仅乌克兰就能为全球贡献49.6%的葵花籽油、10%的小麦、12.6%的大麦和15.3%的玉米的产量。但自战争爆发以来，黑海地区的粮食出口持续受到干扰，供应的不确定性加剧。此外，俄罗斯和乌克兰还是全球重要的化肥生产国。
+
+据联合国粮农组织（FAO）上周公布的数据显示，在俄乌战争的背景下，全球粮食价格再创历史新高。FAO的食品价格指数3月份升至159.3，较2月份上涨13%，较去年同期上涨34%。（该指数旨在衡量食品价格的月度变化，包括肉类、奶制品、谷物、植物油和糖。）
+
+四大机构强调，现在最重要的，是要保持贸易开放，避免推行食品或化肥出口禁令等限制性措施，尤其不能对WFP的人道主义食品采购施加任何限制。
+
+來源｜[ReliefWeb](https://reliefweb.int/report/world/joint-statement-heads-world-bank-group-imf-wfp-and-wto-call-urgent-coordinated-action)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

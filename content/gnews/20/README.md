@@ -2,27 +2,38 @@
 ---
 
 
-## 马斯克：如果不能完全拥有推特，将重新考虑作为股东的立场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2346551/)
+## Elon Musk打算以410亿美元收购推特
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2346635/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1760.png)图片来源：CNN
-4月14日，《华盛顿观察家报》报道，埃隆·马斯克（Elon Musk）已经提出要购买推特（Twitter）百分百的股份，将公司归属其个人名下。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/42191e7028d94a56abdccd6c6eada2d8.jpeg)
+当地时间4月14日，马斯克提出以410亿美元的价格收购推特，他表示，社交媒体巨头推特需要被私有化，从而成为一个言论自由的平台。
 
-周三，马斯克给推特董事会主席布莱特·泰勒（Bret Taylor）写了一封信，周四被安全和交易委员会进行了披露。在信中，马斯克提出以每股54.20美元的现金收购这家社交媒体公司，如果他的提议被拒绝，他将“需要重新考虑我作为股东的立场”。
+据悉此前推特宣布马斯克即将加入董事会，但在就任的当天，马斯克拒绝了加入，据分析人士称董事会将他的持股比例限制在低于15%，从而引发了他想收购推特的想法。
 
-他在信中说：“我投资推特是因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常民主社会所必需的。然而，自从我进行投资后，我现在意识到，该公司以其目前的形式既不会茁壮成长，也不会为这种社会需求服务。推特需要作为一家私人公司进行转型。因此，我提出以每股54.20美元的现金收购推特的100%股权，比我开始投资推特的前一天溢价54%，比我公开宣布投资的前一天溢价38%。我的报价是我最好的也是最后的报价，如果不被接受，我将需要重新考虑我作为股东的立场。”
+马斯克自2009年以来加入推特，已经累积了8千万多跟随者。马斯克本人是言论自由的绝对支持者，一直对社交媒体平台的审查制度持批评态度，近日他在推特进行了一项民意调查，询问用户是否推特遵守了言论自由的原则。
 
-马斯克表示：“我将会释放推特的非凡潜力。”
+推特的近几个月表现欠佳，用户增加量低于预期，即便它在布局一些大项目如音频聊天室和新闻通讯等，更由于推特对用户的冷漠态度，人们对其增长产生了怀疑。消息人士称马斯克关于收购推特的计划很难有竞标者或者财团出现，推特董事会将被迫接受这一竞标或者用其他积极的方法来出售推特。
 
-截至周四上午，推特的交易价格为每股45.85美元。
+reference：
 
-*责编：白夜*
+[https://www.reuters.com/technology/elon-musk-offers-buy-twitter-5420-per-share-2022-04-14/](https://www.reuters.com/technology/elon-musk-offers-buy-twitter-5420-per-share-2022-04-14/)
 
-**新闻来源**
 
-[Musk offers to buy 100% of Twitter in all-cash deal](https://www.washingtonexaminer.com/news/musk-offers-to-buy-100-of-twitter-in-all-cash-deal)
 
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

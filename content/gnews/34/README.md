@@ -2,23 +2,24 @@
 ---
 
 
-## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
+## 俄罗斯联邦黑海舰队的旗舰“莫斯科号”被击中
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2346343/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
+**撰稿：日本东京方舟农场 北极**
 
-此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
+据乌克兰国防快报4月13日报道，乌克兰海军发射了两颗RC-360MC海王星导弹，击中了俄罗斯黑海舰队的旗舰”莫斯科号”导弹巡洋舰。
 
-台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-147.png)俄罗斯黑海舰队的旗舰 “莫斯科号”导弹巡洋舰。（图片来自国防快报）
 
-来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
+导弹巡洋舰“莫斯科号”标准排水量为9,300吨，船体186米长，舰载船员485人。该舰一般部署在偏远地区的海域，可攻击敌方航母战斗群。
 
-* * *
+RK-360MC“海王星”导弹是由乌克兰卢奇设计局（Luch Design Bureau）研发制造的，列装乌克兰海军部队。海王星巡航导弹的射程可达280公里，携带重达150公斤的战斗单位。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+参考链接：
+[https://reurl.cc/LpvgG7](https://reurl.cc/LpvgG7)
+
+总编：老孙
+校对发布：爱放飞
 
  
 
