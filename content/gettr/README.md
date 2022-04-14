@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 3:42 AM (UTC)`
+
+4/10/2022 Miles Guo: The New Federal State of China is going to establish a solid economic foundation for the Chinese people, give them faith, build the image of Chinese people internationally, and let them learn about the thousands of years of the Western civilization and democracy. The Chinese people will either be doomed, or they will be saved by the New Federal State of China.<br/><br/>4/10/2022 文贵直播：新中国联邦要为中国人建立经济基础、让中国人有信仰、树立中国人的国际形象、让中国人学习西方千年的文明和民主；中国人要么万劫不复，要么被新中国联邦拯救<br/>
+![img](https://media.gettr.com/group31/getter/2022/04/14/03/04e34b90-7141-b59e-6055-806b0b68c0c9/out.jpg)
+
+---
+
 `@miles 4/14/2022 3:36 AM (UTC)`
 
 4/10/2022 Miles Guo: The new three mountains of the future world are: the first is food and water, the second is biotechnology and modern energy technology, and the third is intelligence and data; there will be bloody moments in Ukraine, and the new Atlantic Treaty will be born only after Russia and the Chinese Communist Party has completed their last show, and the countries behind it and the swamp come to the surface.<br/><br/>4/10/2022 文贵直播：未来世界新的三座大山：第一是食品和水，第二是生物科技和现代能源科技，第三是智慧和数据；乌克兰还会有血腥时刻，俄罗斯和中共最后一出戏演完后，背后的国家和沼泽地才都浮出水面后，新大西洋公约才会诞生
@@ -133,13 +140,6 @@
 
 4/13/2022 Miles Guo’s GETTR: Whether it's the civilians who were raped and killed because Russia invaded Ukraine, or someone in Changchun who used a bag of instant noodles to trade sex with a family, the only way to solve the world's problems is to take down the CCP! After we take down the CCP, communism will no longer exist in the world.<br/><br/>4/13/2022 文贵盖特：不论是俄乌战争被强奸被杀害的平民，还是发生在长春用一袋方便面睡一家子人的荒唐事件，只有灭共才是解决世界问题的唯一办法！中共被我们灭了之后，世界不可能再有共产主义！<br/>
 ![img](https://media.gettr.com/group22/getter/2022/04/13/21/1393f428-0d3c-ef9e-61a8-9ff7b5b126da/out.jpg)
-
----
-
-`@miles 4/13/2022 9:53 PM (UTC)`
-
-4/13/2022 Miles Guo Live: Our frontline fellow fighter gives details about the Belgium Prime Minister’s visiting the New Federal State of China (NFSC)’s rescue tent in Medyka. The Prime Minister told our fellow fighter Nicole that he was indeed on his way to our NFSC’s tent, and invited Nicole, who was wearing our signature yellow vest, to take a picture with him. Immediately after the Prime Minister’s departure, a NGO from Belgium delivered to our tent many rescue supplies that are in urgent need. Is this a coincidence or a tacit collaboration?<br/><br/>4/13/2022：文贵直播：前线战友讲述昨天比利时总理参观新中国联邦救援帐篷的详细经过. 总理明确告诉Nicole战友他正在去新中国联邦帐篷的路上，并主动邀请穿着黄马甲的Nicole与他一起合影，随即比利时的NGO组织便送来了我们急需的救援物资，这是偶然还是默契？<br/>
-![img](https://media.gettr.com/group31/getter/2022/04/13/21/86f24fbd-2696-3c9a-1b72-6d1d01aeaea6/out.jpg)
 
 ---
 
