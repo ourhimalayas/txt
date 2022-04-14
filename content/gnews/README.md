@@ -15,122 +15,122 @@
 
 ---
 
-### [2022年4月13日郭先生盖特 — 视频1「6分03秒」](/content/gnews/1/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [视频|中共要求上海为死亡一万人做准备](/content/gnews/1/README.md)
+ ` MOSVIDEO`
 
-### [俄罗斯称爆炸导致黑海旗舰瘫痪，乌克兰称是导弹袭击](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
+### [视频|郭先生解读比利时首相接受战友采访的意义](/content/gnews/2/README.md)
+ ` MOSVIDEO`
 
-### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;新冠疫苗异常反应赔偿金申请后续](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
+### [澳大利亚对俄罗斯国有企业实施更多制裁](/content/gnews/3/README.md)
+ ` 走进澳洲`
 
-### [樱花FM┃岸田首相对俄罗斯军队在日本周边越来越活跃表示担忧](/content/gnews/4/README.md)
- ` 樱花FM`
+### [视频|比利时首相救援前线接受新中国联邦战友采访](/content/gnews/4/README.md)
+ ` MOSVIDEO`
 
-### [樱花FM┃日本宣布5项对俄追加制裁措施](/content/gnews/5/README.md)
- ` 樱花FM`
-
-### [每日快报：前白宫国安高官称习近平的底线是防止普京失去权力](/content/gnews/6/README.md)
+### [中共海上石油巨头因担心制裁退出西方市场](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [墙内热点新闻](/content/gnews/7/README.md)
- ` 澳喜农场`
+### [菲律宾自由区针对数字货币和区块链公司制定新法规](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美联储会议纪要揭十年最严控制措施、股市即将崩塌](/content/gnews/8/README.md)
+### [俄乌战争｜总统出访遭乌克兰拒绝 德国政界齐表不满](/content/gnews/7/README.md)
+ ` 關注組`
+
+### [郭文贵先生2022年4月13日第二条盖特视频（3分04秒）全文字版](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登称俄罗斯正在乌克兰实施种族灭绝](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：如水分析比利时首相与新中国联邦战友同框的重要意义](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [美副国务卿及财长警告中共 如侵犯台湾国际必作出回应](/content/gnews/11/README.md)
  ` GTV News Talk`
 
-### [有声|郭先生谈战友在乌克兰前线救援的巨大意义](/content/gnews/9/README.md)
- ` MOSREC`
+### [中国封城扰乱进出口贸易，将推升全球通胀](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [有声|中共进行极限压力测试 并制造经济灾难、毁掉美元](/content/gnews/10/README.md)
- ` MOSREC`
+### [2022年4月14日新闻集](/content/gnews/13/README.md)
+ ` 澳喜农场`
 
-### [有声|佩洛西染疫和蔡英文密接的背后原因](/content/gnews/11/README.md)
- ` MOSREC`
+### [俄罗斯称爆炸导致黑海旗舰瘫痪，乌克兰称是导弹袭击](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [上海市委书记李强亲民秀遭上海市民痛骂](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;新冠疫苗异常反应赔偿金申请后续](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [耶伦喊话中共国：帮助阻止俄的侵乌战争 否则将失去世界地位](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [樱花FM┃俄罗斯官员被国际雪橇联合会除名](/content/gnews/16/README.md)
+ ` 樱花FM`
 
-### [拿习近平万亿美元交易做出台费的普京在乌克兰虚晃一枪](/content/gnews/14/README.md)
+### [樱花FM┃参与美国白宫晚宴的53人被群体感染](/content/gnews/17/README.md)
+ ` 樱花FM`
+
+### [普京收嫖资不出台在乌克兰虚晃一枪的战争经济战争金融](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [当前强制核酸的城市每个人都有正当防卫的权利](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [耶伦喊话中共国：帮助阻止俄的侵乌战争 否则将失去世界地位](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM┃郭文贵先生2022年4月8日盖特视频（6分20秒）全文字版](/content/gnews/16/README.md)
- ` 樱花FM`
+### [有声|瑞典国会、欧洲议会等11人抵台访问](/content/gnews/20/README.md)
+ ` MOSREC`
 
-### [樱花FM┃中共正在进行第二次文化大革命](/content/gnews/17/README.md)
- ` 樱花FM`
+### [有声|多家银行下调个人账户线上交易限额](/content/gnews/21/README.md)
+ ` MOSREC`
 
-### [拜登授权向乌克兰提供8亿美元额外援助](/content/gnews/18/README.md)
+### [拜登授权向乌克兰提供8亿美元额外援助](/content/gnews/22/README.md)
  ` 美国政要直译推`
 
-### [上海疫情再回升 公安局警告抵制封控者必严处](/content/gnews/19/README.md)
+### [上海疫情再回升 公安局警告抵制封控者必严处](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：日本厚生省公布5-11岁儿童疫苗副作用报告](/content/gnews/20/README.md)
+### [秘翻在线：日本厚生省公布5-11岁儿童疫苗副作用报告](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用](/content/gnews/21/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚](/content/gnews/22/README.md)
- ` 纽约香草山MOS01`
-
-### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;加强针康希诺后副作用](/content/gnews/23/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.14）&#8211;加强针康希诺后副作用](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [民生集萃——疫情导致服装行业破产（2022.4.14）&#8211;正式告别服装行业](/content/gnews/24/README.md)
+### [民生集萃——疫情导致服装行业破产（2022.4.14）&#8211;正式告别服装行业](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美证交会加压中概股企业，预摘牌名单再添12家](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/26/README.md)
+### [上海、北京进行极限压力测试与俄乌战事变化](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国和欧盟追加对乌克兰军事援助](/content/gnews/27/README.md)
+### [美国和欧盟追加对乌克兰军事援助](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/28/README.md)
+### [美财长警告各国若破坏西方对俄制裁将面临严重后果](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/29/README.md)
+### [台海、俄乌、中东等地区的大战即将打响！](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/30/README.md)
+### [居委会录音:我面前放的一群这样的人群,就是他们不处置](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [與中共國及俄羅斯獨裁國內奸的下場.澤倫斯基爆逮捕親俄派政治領袖](/content/gnews/31/README.md)
- ` 纽约香草山MOS02`
-
-### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/32/README.md)
+### [向李强喊话者被带走时高喊:一定要站起来,不能跪下去](/content/gnews/33/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/33/README.md)
+### [拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/34/README.md)
  ` 蓝莲花农场`
 
-### [波兰和波罗的海三国总统访问基辅](/content/gnews/34/README.md)
+### [波兰和波罗的海三国总统访问基辅](/content/gnews/35/README.md)
  ` 蓝莲花农场`
 
-### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/35/README.md)
+### [上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/36/README.md)
+### [新中国联邦里程碑：比利时外交默认新中国联邦](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/37/README.md)
+### [伊朗向中共国运送价值220亿美元的非法石油](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/38/README.md)
+### [新西兰财经G乐部2022年4月13日:财经新闻整理](/content/gnews/39/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰](/content/gnews/39/README.md)
- ` NFSC News`
 
 ### [拜登指责普京在乌克兰实施“种族灭绝”](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
@@ -168,8 +168,8 @@
 ### [俄乌战争｜拜登总统公开表示 俄乌战争是种族灭绝](/content/gnews/51/README.md)
  ` 關注組`
 
-### [五角大楼：中俄正开发可打击美国卫星的武器](/content/gnews/52/README.md)
- ` 日本東京方舟農場`
+### [挺乌抗俄！美国再增7.5亿美元军援](/content/gnews/52/README.md)
+ ` 蓝莲花农场`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

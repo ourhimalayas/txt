@@ -2,30 +2,27 @@
 ---
 
 
-## 有声|佩洛西染疫和蔡英文密接的背后原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2343163/)
+## 美副国务卿及财长警告中共 如侵犯台湾国际必作出回应
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2343310/)
 
-录音：香草山文艺部 – maggie 喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月10日大直播中，郭先生透露了美国众议院议长佩洛西突然中共疫苗病毒呈阳性，以及台湾总统蔡英文也成为密接者的背后原因。
+撰稿：纽约香草山 医疗部 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
+当地时间4月6日，美国副国务卿雪蔓及财政部长叶伦在出席联邦众议院不同的听证会时，各自表达如果中共侵犯台湾，国际社会及美国必然对中共作出强烈的反应加以制裁。
+![](https://imgcdn.cna.com.tw/www/WebPhotos/800/20220407/2000x1333_095489687222.jpg)图片来自：twitter.com/DeputySecState
+美国副国务卿雪蔓6日参加众议院外委会的听证会，众议院外委会亚太小组首席议员夏波提问表示，中共长期散播台湾是属于中共一部分的谎言，若中共犯台，要集结类似俄侵乌时的国际势力来声援台湾恐较困难，他询问美方届时应如何因应。雪蔓回应指出，过去40多年来，美国「一中」政策是以台湾关系法、美中三公报与六项保证做为指引，拜登当时任参议员也是表决支持该法案。任何企图以非和平方式决定台湾未来的作为，都会被视为对西太平洋和平与安全的威胁，将被美方严重关切；美国也会保有能力，抵抗任何会危及台湾人民安全、社经制度的武力或胁迫行动。美国也已清楚表明台海稳定的重要性，没有任何「国家」应被侵略。美国一中政策不接受中共企图以武力夺台，此举动无助于台海或印太区域的稳定。
 
-据郭先生了解，佩洛西刚宣布要访问台湾，中共随即发出威胁信息，若佩洛西敢去中共则肯定开打台湾。紧接着俩人有了很好的借口，一个阳性，一个成为密接者。
+美国财政部长叶伦在6日出席联邦众议院金融服务委员会听证会回答提问时表示，如果中共对台湾采取侵略行动，美国将对中共实施制裁，这将如同美国与盟友针对俄罗斯入侵乌克兰所作出的制裁。美国正和盟友密切合作，针对台湾可能面对的威胁作出适当响应，中共不应怀疑美国动用制裁工具的决心。
 
-原文链接：[佩洛西染疫和蔡英文密接的背后原因](https://gnews.org/zh-hans/2337334/)
+参考链接：
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+[美副國務卿籲北京記取俄國教訓 犯台國際必回應](https://www.cna.com.tw/news/aopl/202204070012.aspx)
 
-音频处理/发稿：Daxia
+[美財長葉倫：中國若侵台 美國準備實施制裁](https://www.cna.com.tw/news/aopl/202204070003.aspx)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
 
 
  

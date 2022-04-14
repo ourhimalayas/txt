@@ -2,59 +2,31 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342834/)
+## 有声|多家银行下调个人账户线上交易限额
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2343106/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+录音：香草山文艺部 – maggie 喵
 
-整理/编辑：BENJ1
+近期，光大银行、浦发银行、农业银行等多家银行相继发布公告，下调个人账户线上相关业务交易限额，包括线上转账限额及网上支付交易限额等。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
+光大银行在公告中称，自2022年5月12日起，将对网上支付交易限额进行调整，用户通过各类网上交易渠道消费并通过光大银行支付平台完成的支付交易，默认单笔限额及单日限额统一调整为1万元。
+
+原文链接：[多家银行下调个人账户线上交易限额](https://gnews.org/zh-hans/2339591/)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+音频处理/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-帖子原文：
-
-博主：一片月光
-
-辉瑞第三针
-
-时隔半年给催促打了第三针
-
-第一天手臂疼浑身疲惫
-
-第二天发烧发冷全身酸痛+头疼
-
-第三天吃了Panadol 退烧了,手臂肿，可是拉肚子
-
-第四天困、困、困
-
-只能弱弱地说，大了几岁生二胎，身体远没有生一胎时恢复快恢复好
-
-疫情啊疫情能不能结束哇？我可不想去打第四五六针了！！
-
-担惊受怕+忍受疼痛，仿佛大病了一场
-
-#辉瑞第三针
-
-网友评论：
-
-[小! 绣包子](https://www.xiaohongshu.com/user/profile/5b4de66f11be102af765fed7) 回复：
-
-我打完辉瑞第三针除了手臂有些痛。还拉肚子。我还以为是巧合呢。以为我自己吃了不干净的东西。你也拉肚子。看来还有拉肚子这个后遗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1665.png)图片来源：小红书
-素材来源：
-
-[辉瑞第三针副作用](http://xhslink.com/aCHyHg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

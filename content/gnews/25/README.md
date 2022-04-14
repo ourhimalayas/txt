@@ -2,32 +2,59 @@
 ---
 
 
-## 美证交会加压中概股企业，预摘牌名单再添12家
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2342701/)
+## COVID-19疫苗副作用集萃（2022.4.14）&#8211;辉瑞疫苗第三针后副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2342834/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-4.jpg)美证交会加压中概股企业，预摘牌名单再添12家
-据美国之音4月14日报道，美国证券交易委员会（SEC）4月12日宣布将微宏动力、中汽系统等12家中概股企业列入除名观察名单，并下令这些企业必须在5月3日之前提交证据证明自己满足了上市的条件。
+#### 雅典娜情报组《民生灾难收集专栏》
 
-从今年3月8日到31日，SEC先后将百济神州、微博、百度等中共国企业列入“除名观察名单”。目前被列入该名单的中共国企业共有23家。如果这些企业在规定期限内不能提供相关证据，就会被转入“确定退市名单”。最新公布的这12家企业是SEC对中共国企业采取的第四批处罚行动。
+整理/编辑：BENJ1
 
-长期以来，在美国股市上市的中共国企业不向SEC提供上市公司必须提供的财报信息，在美国国内引起了越来越大的不满。这一情况迫使SEC不得不向中共国企业进一步施压，促使它们遵守SEC审计规则。
-
-在美国上市的外国公司依法必须向SEC提交文件，证明该公司不受外国政府拥有或掌控，并要求这些企业遵守相关审计标准。这是美国和西方社会的规则，中共在国内无法无天，在国际上也是横冲直撞，从不把他国的法律和规则放在眼里。美国不会允许这种情况一直存在，中共国企业会被一个个清查。随着更多的中概股公布年报，这个名单还会逐步延伸。
-
-新闻参考链接：[https://www.voachinese.com/a/us-adds-12-chinese-companies-to-sec-delisting-watchlist-20220413/6527956.html](https://www.voachinese.com/a/us-adds-12-chinese-companies-to-sec-delisting-watchlist-20220413/6527956.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-25.png)图片来源：雅典娜设计组(614)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+帖子原文：
 
+博主：一片月光
+
+辉瑞第三针
+
+时隔半年给催促打了第三针
+
+第一天手臂疼浑身疲惫
+
+第二天发烧发冷全身酸痛+头疼
+
+第三天吃了Panadol 退烧了,手臂肿，可是拉肚子
+
+第四天困、困、困
+
+只能弱弱地说，大了几岁生二胎，身体远没有生一胎时恢复快恢复好
+
+疫情啊疫情能不能结束哇？我可不想去打第四五六针了！！
+
+担惊受怕+忍受疼痛，仿佛大病了一场
+
+#辉瑞第三针
+
+网友评论：
+
+[小! 绣包子](https://www.xiaohongshu.com/user/profile/5b4de66f11be102af765fed7) 回复：
+
+我打完辉瑞第三针除了手臂有些痛。还拉肚子。我还以为是巧合呢。以为我自己吃了不干净的东西。你也拉肚子。看来还有拉肚子这个后遗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1665.png)图片来源：小红书
+素材来源：
+
+[辉瑞第三针副作用](http://xhslink.com/aCHyHg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

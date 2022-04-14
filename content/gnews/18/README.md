@@ -2,80 +2,50 @@
 ---
 
 
-## 拜登授权向乌克兰提供8亿美元额外援助
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2343009/)
+## 普京收嫖资不出台在乌克兰虚晃一枪的战争经济战争金融
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2343211/)
 
-**拜登总统： **
-今天，我与泽连斯基总统进行了交谈，并与他分享了我的政府正在授权向乌克兰额外提供 8 亿美元的武器、弹药、和其他安全援助。
+视频链接：[odysee.com/@郭文贵先生大直播精选:e](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8803.61%EF%BC%89%E6%99%AE%E4%BA%AC%E6%94%B6%E5%AB%96%E8%B5%84%E4%B8%8D%E5%87%BA%E5%8F%B0%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E8%99%9A%E6%99%83%E4%B8%80%E6%9E%AA%E7%9A%84%E6%88%98%E4%BA%89%E7%BB%8F%E6%B5%8E%E6%88%98%E4%BA%89%E9%87%91%E8%9E%8D%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
 
+**郭文贵先生：**但是同时你也看到世界的金融，兄弟姐妹们，你看看世界的金融到了什么情况？石油、石油期货、黄金、大宗产品，就这种玩儿，从50美金、60美金到90美金，甚至上百美金，石油的，还有石油期货的这种变化能让多少人破产？
 
+但掌握这个起伏的人几乎就是沼泽地几个人，还有普京本人。普京说我不打，在之前喊打，石油涨上去了，你买，是吧？谁是普京的女朋友你就买，是吧？我这两天不开战，那肯定降，是吧？那就赚大钱了。买也赚，卖也赚，这个游戏是多大知道吗？这就是人类有史以来最高等的游戏，这就叫战争的游戏，叫战争经济。
 
-> Today, I spoke with President Zelenskyy and shared with him that my Administration is authorizing an additional $800 million in weapons, ammunition, and other security assistance to Ukraine. [pic.twitter.com/i1xlClxnUB](https://t.co/i1xlClxnUB)
-> — President Biden (@POTUS) [April 13, 2022](https://twitter.com/POTUS/status/1514339982407831557?ref_src=twsrc%5Etfw)
+罗斯柴尔德是干嘛的？罗斯柴尔德的老爷爷就是一个叫David Rothschild，是一个要饭的小擦鞋匠，擦皮匠的。人家旁边的那个欧洲的大公国，人家是就是专门干啥？大公国就是谁家打仗你没钱，我先借给你钱，你打完以后再还给我，都是30%、100%的利息。
 
+他就当人家收数的、放数的，最后是放着放着他自己就赚了很多钱，他很会服务，是吧？这个中间的时候，大公国就死了，大公国就把钱就交给他了，就这么Rothschild出来的，是吧？
 
+你再往前说，当时的三个英国的威廉国王都是干啥的？私下里边战争都是借人家放高利贷，就干这个的，这叫战争经济，战争金融，人类上，上万年了没少过。
 
-**国务卿安东尼·布林肯：** 
-随着乌克兰军队勇敢地继续保卫自己的国家，我已授权在乌克兰进入争取自由和未来的下一阶段之际，为其提供8亿美元的武器、装备和物资。我们与乌克兰团结一致 [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hashtag_click)。
+那么现在你看有人玩战争经济、战争金融，这里边就很不严肃了，这什么都可以买，什么都可以买。所以说这个事儿大家看得很大，分分钟改变世界，变数很大，但对台湾是好事。
 
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
+编辑整理：星塵Scheddi；
 
-> As Ukraine’s forces bravely continue to defend their country, I have authorized a drawdown of $800 million in arms, equipment, and supplies for Ukraine as it enters the next phase of the fight for its freedom and future. We stand [#UnitedwithUkraine](https://twitter.com/hashtag/UnitedwithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 14, 2022](https://twitter.com/SecBlinken/status/1514395565693419520?ref_src=twsrc%5Etfw)
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
+G-News发布：海贼王M.D.LUFFY；
 
-**国防部长劳埃德·奥斯汀三世： **
-正如总统[@POTUS](https://twitter.com/POTUS)今天向泽连斯基[@ZelenskyyUa](https://twitter.com/ZelenskyyUa)保证的那样，我们将继续与勇敢的乌克兰人民站在一起，为自由而战。为此，这个最新的支持包包含了我们已经提供的许多高效武器系统，以及关键的新(军事武器)能力。 【附支持包清单】
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-> As [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) assured [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) today, we continue to stand with the brave Ukrainian people in their fight for freedom. To that end, this latest support package contains many of the highly effective weapons systems we have already provided along with critical new capabilities. [pic.twitter.com/kwbp2tPvoP](https://t.co/kwbp2tPvoP)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 14, 2022](https://twitter.com/SecDef/status/1514398512729178112?ref_src=twsrc%5Etfw)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**参议员汤姆·科顿： **
-令人遗憾的是，乌克兰人不得不等待了七周，来让拜登总统认真对待这场危机。 【转华尔街日报：拜登政府将向乌克兰提供更多情报、和更重型武器来对抗俄罗斯 这些举措将使乌克兰能够以莫斯科在顿巴斯和克里米亚的部队为目标，并对抗预期的俄罗斯进攻】
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-> It’s a shame Ukrainians have had to wait seven weeks for President Biden to take this crisis seriously.[https://t.co/E6BFF02nNn](https://t.co/E6BFF02nNn)
-> — Tom Cotton (@SenTomCotton) [April 13, 2022](https://twitter.com/SenTomCotton/status/1514311299055984643?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室： **
-“霍利参议员说，阻止入侵[意味着]确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12网报道：霍利提出《台湾武器出口法》】
-
-
-
-> “Senator Hawley says deterring an invasion [means] ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.”[https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 13, 2022](https://twitter.com/SenHawleyPress/status/1514318641113833478?ref_src=twsrc%5Etfw)
-
-
-
-**众议员帕特·法伦：** 
-[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 正在注视着我们的一举一动。 如果我们从东欧的局势中学到了任何东西 —— 那就是美国和我们的盟友必须立即在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 周围团结起来。
-
-
-
-> Beijing is watching our every move. 
-> 
-> If we've learned anything from the situation in Eastern Europe — it is that America and our allies must rally around Taiwan immediately.
-> — Rep. Pat Fallon (@RepPatFallon) [April 13, 2022](https://twitter.com/RepPatFallon/status/1514317747479625738?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-我们南部边境危机的真正赢家是价值数十亿美元的贩毒集团，它们基本上控制了墨西哥北部边境，以及贩毒集团在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的合作伙伴，是他们将芬太尼的前体运送过来。而正是拜登和民主党人让他们有机可乘。
-
-
-
-> The real winners of the crisis at our southern border are the billion-dollar cartels that have basically taken control of the Northern border in Mexico and their partners in China that are shipping the precursors to fentanyl over. And Biden and Democrats are enabling it. [pic.twitter.com/ErPpbiSFZ9](https://t.co/ErPpbiSFZ9)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 13, 2022](https://twitter.com/SenatorHagerty/status/1514387959927095296?ref_src=twsrc%5Etfw)
-
-
+G-TV：日本银河系农场。
 
  
 

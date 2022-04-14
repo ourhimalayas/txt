@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 4:32 AM (UTC)`
+
+4/10/2022 Miles Guo: Thanks to the fellow fighters from mainland China and those inside of the CCP for risking their lives to provide with the New Federal State of China key classified information and military intelligence about the CCP! You will always be regarded as the number 1 contributor to the New Federal State of China.<br/><br/>4/10/2022 文贵直播：感谢体制内和国内战友们冒着生命危险给新中国联邦提供的关于中共的重要机密信息和军事情报，你们永远是新中国联邦的第一功臣！<br/>
+![img](https://media.gettr.com/group13/getter/2022/04/14/04/696b7a2e-17ed-f9d8-f005-954fc3a6fde9/out.jpg)
+
+---
+
 `@miles 4/14/2022 3:42 AM (UTC)`
 
 4/10/2022 Miles Guo: The New Federal State of China is going to establish a solid economic foundation for the Chinese people, give them faith, build the image of Chinese people internationally, and let them learn about the thousands of years of the Western civilization and democracy. The Chinese people will either be doomed, or they will be saved by the New Federal State of China.<br/><br/>4/10/2022 文贵直播：新中国联邦要为中国人建立经济基础、让中国人有信仰、树立中国人的国际形象、让中国人学习西方千年的文明和民主；中国人要么万劫不复，要么被新中国联邦拯救<br/>
@@ -133,13 +140,6 @@
 
 4/10/2022 Miles Guo: Now you see the only thing that Xi Jinping is obsessed with is to bring down the dominance of the US dollar. That's the only concern of the CCP. Xi enjoys watching the Chinese people go hungry because of his experience of starvation.<br/><br/>4/10/2022 文贵直播: 习近平非常享受看到中国老百姓挨饿的过程，目前共产党一门心思就是灭掉美元！<br/>
 ![img](https://media.gettr.com/group43/getter/2022/04/13/21/f470e9e1-821d-04bf-404a-d2194760a19a/out.jpg)
-
----
-
-`@miles 4/13/2022 9:56 PM (UTC)`
-
-4/13/2022 Miles Guo’s GETTR: Whether it's the civilians who were raped and killed because Russia invaded Ukraine, or someone in Changchun who used a bag of instant noodles to trade sex with a family, the only way to solve the world's problems is to take down the CCP! After we take down the CCP, communism will no longer exist in the world.<br/><br/>4/13/2022 文贵盖特：不论是俄乌战争被强奸被杀害的平民，还是发生在长春用一袋方便面睡一家子人的荒唐事件，只有灭共才是解决世界问题的唯一办法！中共被我们灭了之后，世界不可能再有共产主义！<br/>
-![img](https://media.gettr.com/group22/getter/2022/04/13/21/1393f428-0d3c-ef9e-61a8-9ff7b5b126da/out.jpg)
 
 ---
 

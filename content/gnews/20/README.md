@@ -2,22 +2,33 @@
 ---
 
 
-## 秘翻在线：日本厚生省公布5-11岁儿童疫苗副作用报告
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2342902/)
+## 有声|瑞典国会、欧洲议会等11人抵台访问
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2343125/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-18.png)（图片源自本文链接）
-4月14日朝日电视新闻消息：日本厚生省宣布，到目前为止，在5至11岁接种中共病毒(新冠病毒)疫苗的儿童中，已经收到16起疑似不良反应报告。这其中的两个案例，引起很严重的心肌炎症状。
+录音：香草山文艺部 – maggie 喵
 
-2月下旬开始为5至11岁的儿童接种疫苗，截至3月20日，已大约接种了21.5万多例。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-根据厚生劳动省的报告，接种疫苗后有16例疑似不良反应，大多数症状表现在接种过程中感觉到的疼痛和压力导致的血压和脉搏下降。
+台媒4月10日报道，瑞典国会议员协会暨欧洲议会议员联合访团于当地时间下午5时23分登机，启程前往台湾桃园机场，开启4月10～14日对台湾的访问。 访问团启程前，曾遭中共驻瑞典大使馆的施压。
 
-在16个病例中，有两个被诊断为重症。一个在3月接种疫苗的7岁男孩被诊断为疑似心肌炎和心包炎。此后，他的症状有所减轻。
+大使馆向访问团成员发信重申了中共的所谓“一中”原则，称他们若访问台湾，将严重违反瑞典的对外政策，违背对中共国的政治承诺，强烈要求该团议员不得访问台湾。 但这种施压反而加强了11位团员访台的决心。针对最近中俄两国发展合作关系，访问团团长魏莫斯建议欧盟及其会员国与台湾积极发展友好关系。瑞典外交部则相信联合访问团此行一定可以深化台湾与瑞典，以及台湾与欧盟之间的友好关系。
 
-厚生省的结论是：不良反应的发生率低于12岁以上人群，没有发现严重问题。
+原文链接：[瑞典国会、欧洲议会等11人抵台访问](https://gnews.org/zh-hans/2338060/)
 
-信息源：[小児ワクチン副反応疑い16件 心筋炎など重い症状も (msn.com)](https://www.msn.com/ja-jp/health/healthy-lifestyle/%E5%B0%8F%E5%85%90%E3%83%AF%E3%82%AF%E3%83%81%E3%83%B3%E5%89%AF%E5%8F%8D%E5%BF%9C%E7%96%91%E3%81%8416%E4%BB%B6-%E5%BF%83%E7%AD%8B%E7%82%8E%E3%81%AA%E3%81%A9%E9%87%8D%E3%81%84%E7%97%87%E7%8A%B6%E3%82%82/ar-AAWczC3?ocid=msedgntp&amp;cvid=796b158930b5411db5a15a87f4413f62)
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+音频处理/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 
