@@ -2,50 +2,18 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2346558/)
+## 台湾人民危在旦夕
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2346701/)
 
-4/14/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天iTunes打榜记录：
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/SharedScreenshot-1.jpg)图片来源 GETTR
+4月14日爆料革命发起人郭文贵先生在盖特直播，回答全球灭共者所关心的各种热议问题。
 
-* * *
+郭先生面向所有关心台湾命运的人们，再次明确表示：台湾人民危矣！
 
-[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+文贵先生负责任地说，有情报表明，一旦中共在台海动手，最先被出卖的就是台湾人民。台湾的军方和情治部门很多卖台贼，罔顾台湾民众死活，早已“心向共党”。郭先生爆出台湾采购的很多无人机全部产自中共，无非绕道澳大利亚而已。从中共上海流出的大量黄金和现金都到了卖台贼或其亲戚手里，而且在土地等资产分配上已经给予巨额承诺。
 
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-
-
-[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+郭文贵先生根据情报回答大家，预计4月底5月初左右，中共就会发动台海战争。目前发生和即将发生的北上广深所谓“疫情”暴政也是军事准备、压力测试的一部分。【来源链接】https://gettr.com/streaming/p15aede6360
 
  
 

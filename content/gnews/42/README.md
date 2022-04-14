@@ -2,21 +2,50 @@
 ---
 
 
-## 爆料｜郭文贵分析 中共攻打台湾 灭亡是日本
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346400/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天位列4国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2346558/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-29.png)
-郭文贵于台北14日晚间[直播](https://gettr.com/post/p15a3qt15e1)称，中共攻台，美军一定轰炸中共军事基地。此外，他表示“打得是台湾，灭得是日本”中共出兵攻打台湾，若台湾失守，日本就完了。郭分析日本、中共军力，他表示日本军事实力远高于中共，若日本出兵中共将惨败。他分析认为，中共可能五月对台军事行动。
-
-依照目前国际形式，郭文贵认为中共撑不过20大，他不相信中共还会有20大。港币他认为今年年底、明年年初将会崩塌。欧盟国家有可能会对中共撤回大使馆。
-
-郭提到新中国联邦愿景，未来可能让新疆、西藏、香港、台湾，甚至是广东独立，实施联邦制度。
+4/14/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第11天iTunes打榜记录：
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+
+
+[【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Thursday-14-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

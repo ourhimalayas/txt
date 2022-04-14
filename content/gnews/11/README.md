@@ -2,29 +2,26 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2347584/)
+## 樱花时政┃细胞医药品量产化或将有效治疗癌症
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347698/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+撰稿：东京樱花团/haruka春香
 
+再生医疗风险企业Hellios 赫利奥斯（东京）将于今年夏天在神户港岛制造设备公司，正式启动批量生产细胞医药品。2年后，还会针对癌症治疗药的试验，而提高生产能力。虽然没有表示投资额，但估计是5亿日元左右。新设施被称为“细胞加工制造设施(CPC)”，在无菌空间放置的容器中培养大量细胞。在港岛神户南部的“神户医疗创新中心”5楼进行了整备。该设施的核心细胞培养区面积约为120平方米，除制造设备外，还保管有细胞储藏和培养薄片等材料。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片9-3.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220414-00000026-kobenext-000-4-view.jpg?exp=10800)
+该公司一直在进行利用自身的基因编辑技术，在人工多能性干细胞（iPS细胞）中制造出攻击癌细胞的“NK细胞”的研究。随着确立提高NK细胞功能的“eNK细胞”的制作方法，批量生产技术已经达到了世界最尖端水平。作为治疗肺癌和肝癌的候选药物，计划在2024年开始进行给患者使用的试验。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC2.jpg)
+该公司的主要场所是位于港岛医疗产业城市的“神户研究所”，80%左右的职员（90多名）在该研究所工作，其中30多名拥有博士学位。研究、开发、生产、品质管理等部门在港岛医疗中心附近有3处。据悉，新设施生产线为远程操作，只配备了3、4名职员。总经理鍵本忠尚（45岁）表示：“如果把人工培育的细胞自动化，就能稳定地供应相同质量的产品。我们将把试验用药运上轨道，尽快向全世界患者提供药物。”
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月13日晚](https://gnews.org/zh-hans/2342759/)
+目前该公司正和住友法玛（原大日本住友制药）开发治疗眼疾“老年黄斑变性”的药物。通过iPS细胞首次成功移植视网膜细胞的前理化学研究所项目负责人高桥政代去年称，Hellios 的新药开发进展还很缓慢，为了使用该公司等拥有的专利，正向国家提出了“裁定”，目前正在审议中。
 
-音频处理：Fei797
-发稿：Fei797
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+[再生医療のヘリオス、細胞医薬品の量産へ　がん治療薬の治験視野、神戸・ポーアイに整備（神戸新聞NEXT） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e9605449edfc9d53dfdc4aba41e075d6bbcc7219)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

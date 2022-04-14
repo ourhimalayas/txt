@@ -2,49 +2,35 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“默克尔”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2346763/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2346980/)
 
-整理/编辑：BENJ1
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1762.png)圖片來源：雅典娜設計組（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-13.png)
 
-**郭文贵先生2021年2月15日直播**
+文章仅代表作者本人观点，与Gnews无关
 
-●今天欧洲和美国世界你看看欧洲那些不要脸的政客官员马克龙包括Boris Johnson**包括德国的默克尔、意大利，他们都会成为人类上政治上的历史性的垃圾!他会钉在人类的历史的耻辱柱上**，你记住我郭文贵今天说的话，因为什么？他没有意识到，为什么共产党要灭掉你的信仰基督教、天主教包括犹太教，为什么灭掉你的信仰让你们信它共产主义，它不是想灭你的族呢吗？它为什么到新疆去大屠杀它让新疆人不让你信你的教，它让你信共产党，爹亲娘亲不如党亲、一切都是党的、一切听党的，它是代表上帝的，它要把印度这三万多个神全都给它消掉变成一个神——中国共产党，西方的今天和欧洲的今天的不是绥靖主义，是完全的卖国主义，这帮流氓、这帮垃圾!这种变态的一些政客们，他在出卖着整个人类的这几百年来的人类上最伟大的文明。
+视频参看：
+[2022.04.14早 《NFSC新闻》](https://gettr.com/streaming/p159txd5ed8)
+[2022.04.14早《NFSC新闻访谈》](https://gettr.com/streaming/p15aepqa6c8)
 
-**郭文贵2021年5月30日直播**
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-●据说法国马克龙、德国默克尔，欧洲的**欧盟老大就是默克尔**，老二就是马克龙，由于欧中协议受到了巨大的挑战和争议，最后欧中协议有美国在背后强烈的施压，包括欧中协议的战狼外交的条款，让默克尔让马克龙简直是一下子快崩溃状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-●大家记住，没有我们爆料革命和新中国联邦，欧洲一定不会是今天的关系，一定不是今天对共的关系和态度。所以说很多事情是需要时间的，不是你讲讲就能发生的，它需要背后各种情报的分享和有力的证据和对这些政治家个人的政治前途有帮助的信息，让他们有资格有权力有资源去说话，更重要的事情是私人关系。
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-你不管你有多牛的什么，最后都是人控制的。**共产党就是搞通了默克尔和马克龙还有原来的英国首相，它才能在欧洲在那块儿要风得风要雨得雨、横冲直闯、霸占欧洲。**
-
-**郭文贵先生2021年6月13日直播**
-
-●俄罗斯的政局现在看上去很坚固，实际上是不稳的。教宗、整个教廷都会大变革，**德国的默克尔一定会退下去。**不要小看了巴西这个地方，巴西的亚马逊河是明年的人类的生存线，粮食，一定要记住——粮食。
-
-资料来源：
-
-[郭文贵先生2021年2月15日直播](https://gtv.org/video/id=602b06fabe64150df858276b)
-
-[郭文贵先生2021年5月30日直播](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa)
-
-[郭文贵先生2021年6月13日直播](https://gtv.org/video/id=60c605b0b96c69573d7d42dc)
-
-往期回顾：
-
-[文·贵天成——文贵先生谈“默克尔”（一）](https://gnews.org/zh-hans/2346002/)
-
-发布：Frank2021
-
-**更多資訊，請關注：**
-[澳大利亞墨爾本雅典娜農場Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亞墨爾本雅典娜農場Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亞墨爾本雅典娜農場YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亞墨爾本雅典娜農場Discord](https://discord.gg/76QVRChsgU)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-3.png)
 
  
 

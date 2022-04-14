@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花时政┃英国和欧盟扩大制裁俄罗斯和亲俄份子
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347627/)
+## 樱花时政┃俄罗斯停止石油数据发布
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
 
-撰稿：东京樱花团/上善若水
+撰稿：东京樱花团/加一颗稻草
 
-英国和欧盟4月13日宣布，对178名乌的亲俄分离份子及6间俄属企业的负责人实施制裁。乌东大战一触即发，欧盟火力全开支援乌克兰，再批准5亿美元军事援助。英国外交大臣特拉斯表示，乌东部平民遭火箭弹攻击后，新制裁是要针对支持非法分离并参与对乌人民施暴的人，英方将继续锁定所有帮助和怂恿俄罗斯总统普京发动战争的人士。最新计划包括延长英国对俄罗斯商品的进口禁令，即日起将纳入钢铁产品。被制裁的对象包括获得俄罗斯支持、声称是顿涅茨克和卢甘斯克两个人民共和国的领导人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-72.png)图片来源于本文链接
-欧盟上周五正式对俄全面制裁，包括禁止进口俄煤炭、木材、化学品，以及禁止与4家俄国银行的所有交易，其中包括VTB银行。欧盟4月13日拨出5.43亿美元，批准对乌更多军援，除了防御武器和军事设备，还提供了个人防护设备、急救箱、燃料等物资。
+4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
+自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
 
-信息来源：[英国和欧盟扩大制裁俄罗斯及亲俄份子](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220413-%E8%8B%B1%E5%9B%BD%E5%92%8C%E6%AC%A7%E7%9B%9F%E6%89%A9%E5%A4%A7%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%8F%8A%E4%BA%B2%E4%BF%84%E4%BB%BD%E5%AD%90)
+消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
