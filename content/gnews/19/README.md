@@ -2,37 +2,50 @@
 ---
 
 
-## 民生集萃——疫情对实体经济打击巨大（2022.4.14）&#8211;疫情导致门面长期租不出去
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2344776/)
+## 苔丝·劳里博士是一位具有远见卓识的 COVID 英雄
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2344863/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+翻译： Jenny Ball
 
-整理/编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-3.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-28.jpg)
 
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-帖子原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-140.png)图片来源：rwmalonemd.substack.com
 
-疫情对实体经济打击真的太大了，朋友说他家一个门面空了快两年还没有租出去，打电话问租金的人不多，有的也是乱砍价，还不如一套单身公寓租金高，朋友问我怎么处理这个门面？是空着还是卖掉？现在卖掉是不是也卖不了一个好价钱？
+我（作者罗伯特.马龙）从未当面见过苔丝·劳里（Tess Lawrie）博士，但在科学努力中，为真理和诚信而战使我们走到了一起，今天，我认为她是前线医生的盟友。你可能已经认识苔丝。她曾担任世卫组织的顾问，评估证据并提出建议。当她看到皮埃尔·科里（ Pierre Kory） 博士在国会就伊维菌素作证时，她放弃了圣诞节假期，转而进行其中一项审查（无偿），看看证据是否真的支持皮埃尔的说法。确实如此，所以她开始工作，写信给世界各地的卫生当局和政府，并分享这个好消息。
 
-发布于03.26
+我不需要告诉你这是怎么回事。感谢我们所有人，苔丝不会轻易放弃。从那时起，她一直在不停地工作，向公众宣传有关伊维菌素和早期治疗的信息。我让她在我的新书中写下她的经历，但你现在可以在她的Substack上阅读她的故事。
 
-精选评论
+苔丝最让我印象深刻的是，她在黑暗面前始终如一的积极态度。她和我们其他人一起在战壕里，流着血和瘀伤，但她也是那些微笑着指向黎明的人之一。我们需要像苔丝这样的人来提醒我们，我们不仅仅是战士，我们还是未来的建筑师。如果我们想为我们自己和我们的孩子创造一个更公平、更友善的世界，我们需要弄清楚它是什么样子以及如何实现它。
 
-数星星  回复：房东对实体经济的打击更大
+苔丝一直忙于创建框架，通过这些框架我们可以开始构建这个更光明的未来。她是世界卫生委员会背后团队的一员，这是一项草根倡议，就如何保持健康和生活得好提供清晰的信息和指导。每个星期一他们都会召开一次大会，医生、科学家和活动家公开分享你应该能够从你的政府、医生或媒体渠道获得的信息，只是地狱还没有结束。
 
-手绘小调  回复：我们这边（小地方，不起眼的路边）有个门面，我见空了一两年了，我想着把我的小画室搬过去，好家伙，房租一年四十万。我朋友那边一年也就几万。滚一边去吧，真觉得创业的人钱是天上掉下来的呀。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1693.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1694.png)图片来源：小红书
-参考链接:[疫情对实体经济打击巨大](https://www.xiaohongshu.com/discovery/item/623e98160000000001026d98?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649904338)
+现在，世卫委员会将于今年五月在英国巴斯举办第一次会议，该活动被称为“更好的方式会议”，专注于为我们所处的混乱找到解决方案。美国将派出强有力的代表，彼得·麦卡洛（Peter McCullough）博士、瑞恩·科尔（Ryan Cole）、理查德·乌索（Richard Urso）、卡塔琳娜·林德利（Katarina Lindley） 以及布雷特·温斯坦（Bret Weinstein）和我本人，都将出席。这是我们所有人从战斗中休息的机会，洗去脸上的泥巴，并为设计将人类健康放在首位的新运营方式而兴奋不已。
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+会议将包括七场对话。我将参加第一个：一起回收科学。正如你可以想象的那样，我有几件事要说。其他对话将涵盖管理 Covid-19 健康后果、培养活跃的社区、革新媒体、主权、法律、司法等。如果您有兴趣参加，您不必飞往巴斯：在线门票很快就可以通过会议网站获得。
+
+我们需要这样的活动，以及像世卫委员会这样的倡议——但他们也需要我们。这就是我今天写信给你们的部分原因——看你们是否会考虑通过提供财政捐助来支持他们的工作。
+
+像我们许多人一样，苔丝的经营也很拮据。她的公司“世界卫生委员会的所在地”（EBMC Squared）是非营利性的，完全依赖捐助者的资金和一小群志愿者。他们已经用最少的资金和很多善意取得了如此多的成就。现在，我想帮助他们获得更好的资金，这样他们就可以继续工作并做得更多。如果你也愿意促使这样做，请和我一起捐款。
+
+对我们所有人和我们的资源都有很多要求，所以，我不会问我是否认为这很重要。如果我们想要更好的方式，我们需要以更好的方式进行投资，通过我们的个人努力支持这样的项目。
+
+新闻来源：[Dr Tess Lawrie is a COVID hero with a powerful vision](https://rwmalonemd.substack.com/p/dr-tess-lawrie-is-a-covid-hero-with?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTIxMzkzNjksIl8iOiJsdGFHKyIsImlhdCI6MTY0OTg1OTI2OSwiZXhwIjoxNjQ5ODYyODY5LCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.-4W_HQ8RI2YLCTRjVowcxmLNUWLRyjLGMO76aIyoLis&amp;s=r)
+
+* * *
+
+审核：文乐
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 
