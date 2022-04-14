@@ -2,44 +2,53 @@
 ---
 
 
-## 台媒披露：美参议员梅嫩德斯（Bob Menendez）和格雷厄姆（Lindsey Graham）今率团抵台将与蔡英文会面
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2343495/)
+## 俄央行在战前就削减了美元储备并增加了人民币和欧元
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2343693/)
 
-来自新加坡早报 /
-2022年4月14日 7:23 AM 报导
-采集：玫瑰新闻组
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-28.jpg)
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-133.png)Oleg Elkov/Getty Images
 
+2021 年末，早在乌克兰战争之前，俄罗斯就已经开始减少美元敞口，并增持人民币和欧元。
 
+周一，俄罗斯央行行长埃尔维拉·纳比乌利娜（Elvira Nabiullina）在向议会提交的年度报告时表示，尽管西方制裁切断了该国获得某些货币的渠道，但目前俄罗斯拥有足够的人民币和黄金储备。
 
+据《彭博社》报道，截至 1 月 1 日，俄罗斯央行已将其美元储备从去年同期的 21.2% 降至 10.9%。
 
-![本月第2团美议员团访台称抵「台湾共和国」 会见蔡英文| 要闻| 焦点| 世界新闻网](https://assets.gnews.org/wp-content/uploads/2022/04/image-216.jpeg)
+与此同时，俄罗斯的人民币持有量较上年同期从 12.8% 跃升至 17.1%。 据该银行称，其在欧元中的份额从 29.2% 上升至 33.9%。
 
-以下原文内容：
+与此同时，黄金储备略有下降。
 
-台湾媒体披露，美国参议院议员梅嫩德斯（Bob Menendez）和格雷厄姆（Lindsey Graham）今晚（14日）将率团抵达台湾，并将与台湾总统蔡英文会面，隔天傍晚启程返美。
+纳比乌利娜告诉议会，即使在国内生产总值下降之后，俄罗斯的经济最终也将能够恢复增长轨迹。
 
-据台湾民视新闻网报道，美国方面权威人士透露，访团将在今晚抵达台北松山机场。台湾外交部回应时说，暂无评论，但称台湾政府一向欢迎美国国会议员访台。
+自俄罗斯于 2 月 24 日首次入侵乌克兰以来，美国和其他国家对该国的经济、企业和一些最富有的寡头实施了严厉的金融制裁。
 
-也是参议院外交委员会主席梅嫩德斯，曾与另一名参议员卢比奥（Marco Rubio）提出法案，要求美国针对“驻美国台北经济文化代表处”更名为“台湾代表处”一事展开协商。
+制裁包括限制贸易和冻结外汇储备。
 
-格雷厄姆早前在美国首都华盛顿举行的一个活动上，曾与当时还是副总统当选人的赖清德同桌。赖清德当时是以个人身分访问华府。
+据俄罗斯官员称，这些制裁冻结了其** 6420 **亿美元储备中的约一半。
 
-如果上述访台消息属实，这将是自美国众议员高野（Mark Takano）去年11月率团访台后，再次有美国国会议员访问台湾。总统拜登指派由前高级国安官员组成的另一个代表团，今年3月也访台。
+上周，俄罗斯金融日报《生意人报》报道称，俄罗斯大型银行从美元和欧元兑换成人民币的资金激增，许多新账户都以人民币开立。
 
-美国众议院早前也传出议长佩洛西可能访台的消息。在佩洛西确诊感染冠病后，佩洛西的发言人公布她的亚洲之行将推迟，但随着佩洛西痊愈，外界再次关注她将是否访台。
+新闻来源：[Russia’s central bank was cutting dollar reserves and adding yuan and euros even before the war, report says](https://markets.businessinsider.com/news/currencies/dollar-vs-yuan-russia-bank-euro-gold-eserves-ukraine-war-2022-4)
 
-新闻链接：
-[台媒：美参议员今率团抵台将与蔡英文会面](https://www.zaobao.com.sg/realtime/china/story20220414-1262590)
+* * *
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+素材：文舞
+审核：文乐   
+校对：信心满满
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-22.jpeg)
 
  
 

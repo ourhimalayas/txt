@@ -2,31 +2,30 @@
 ---
 
 
-## 芬兰海关扣押俄罗斯艺术品，最新进展是决定退还查封的艺术品
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2343439/)
+## 美财长：美国及盟友不会对破坏制裁的行动“无动于衷”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2343641/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。![](https://assets.gnews.org/wp-content/uploads/2022/04/06a70000-0aff-0242-ae00-08da18b39e0a_w1023_r1_s.jpg)资料照：美国财政部长耶伦。
+据美国之音4月13日报道，美国财政部长耶伦4月13日指出，对俄罗斯入侵乌克兰的行为不进行谴责，并试图从中捞取好处的国家是缺乏远见的。美国及其合作伙伴针对莫斯科和俄罗斯总统普京实施了全面制裁，任何破坏制裁的动作，美国和西方盟友都“不会无动于衷”。
+
+俄乌战争改变了世界经济前景，拜登当局承诺一定要让俄罗斯对自己的行为承担责任。耶伦表示，俄罗斯入侵乌克兰促使许多国家和企业切断了与莫斯科的关系。但是还有一些国家一直做“骑墙派”。耶伦没有点具体国家的名字，但最突出的无疑就是拒绝谴责普京、公开反对西方的制裁，而且还继续与俄罗斯保持经贸关系的中共国，还有印度等几个国家。
+
+中共国海关数据显示，中共国与俄罗斯的双边贸易上个月比去年同期增长了12%。全世界都在谴责俄罗斯入侵乌克兰和屠杀乌克兰平民的行为，美国和西方国家一致支持乌克兰，只有邪恶中共支持俄罗斯，把14亿被洗脑的中国人民当作肉票同俄罗斯站在一起。俄乌之战拉开了中共与西方公开对阵的帷幕，正与邪的较量从俄乌之战开始。
+
+新闻参考链接：[美财长耶伦：美国及其盟友不会对破坏制裁的行动“无动于衷”](https://www.voachinese.com/a/yellen-warns-u-s-allies-will-not-be-indifferent-to-those-who-undermine-russia-sanctions-20220413/6527827.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-4月1日和2日，芬兰海关在Vaalimaa过境点扣留了三批运往俄罗斯的货物，货物中包含绘画和雕塑等艺术品，价值4200万欧元。
-![](https://i.insider.com/6251995aa2956a0018d7d80f?width=700)
-芬兰外交部于4月6日的新闻发布会通报了该批俄罗斯的艺术品从发现到执行制裁，以及初步调查的进展情况。据悉该艺术品是俄罗斯冬宫博物馆和沙皇国家博物馆借给日本和意大利博物馆和画廊的，尚未透露艺术家的具体讯息。
+编辑：【英国伦敦喜庄园编辑部】
 
-芬兰海关局长说，欧盟对俄罗斯的制裁中包含对艺术品的制裁，执行制裁是保持正常海关运营的必要工作。该批艺术品的调查以信息收集、国际合作与互助进行，芬兰海关表示会继续和外交部协商，欧盟委员已在参与讨论此事。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-事件最新进展情况是，据路透社报道，芬兰将归还被查封的这部分艺术品。
-
-参考链接：
-
-[Finland seizes Russian artwork worth $46 million under sanctions](https://www.washingtonpost.com/world/2022/04/06/russia-sanctions-finnish-border-art/)
-
-[Finland will return $46 million worth of Russian artwork that was seized by customs officers, officials say](https://www.businessinsider.com/finland-russia-return-seized-artwork-paintings-sanctions-2022-4?r=US&amp;IR=T)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,37 @@
 ---
 
 
-## 前总统川普开始称俄罗斯在乌克兰的行为是种族灭绝
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2343770/)
+## “我们将自卫”，德鲁克在罗马尼亚访问比利时军队
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343899/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1684.png)图片来源：网络图片
-根据《国会山报》4月13日的最新报道，周三晚上，前总统川普接受了《福克斯新闻》主持人肖恩·汉尼提(Sean Hannity)的采访，称俄罗斯在乌克兰的所作所为是种族灭绝行为。
+#### **【雅典娜快讯】紧贴时代脉搏**
 
-报道说，在川普抨击拜登的政策导致通胀率创新高时，他顺带评论说：“现在，此外，乌克兰发生的事情是一场种族灭绝。”
+#### 翻译/编辑：文泓
 
-文章指出，川普发表该评论的时机正好是拜登周二指责俄罗斯总统普京进行了种族灭绝一天后。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片45.png)图片来源：Vrt Nws & 雅典娜设计组
 
-川普重申，如果他仍然在任总统，普京就不会入侵乌克兰。川普认为，美国拥有比俄罗斯更强大的核武库，我们“不该让别人把我们玩的团团转。”
 
-针对目前的局势，他表示，“我认为，100年后，人们回头看现在，他们会说‘我们怎么会退缩？北约怎么会退缩？’”
+4月14日，在为期三天的东欧之行中，比利时首相亚历山大·德克鲁参观了罗马尼亚黑海康斯坦察市的军事基地，该基地驻扎着300名比利时士兵。
 
-*责编：白夜*
+比利时士兵是北约部队的一部分，与来自法国、意大利、英国和美国的军队一起驻扎在罗马尼亚，在乌克兰战争开始后被派往此地协助防卫欧盟东翼。
 
-**新闻来源**
+“作为北约盟国，我们将团结一致捍卫我们的自由和领土”，德克鲁与罗马尼亚总理和总统在一个简短的仪式上说。
 
-[Trump joins Biden in calling Russia’s war on Ukraine ‘genocide’](https://thehill.com/blogs/blog-briefing-room/3267118-trump-joins-biden-in-calling-russias-war-on-ukraine-genocide/)
+这是德克鲁首相在访问罗马尼亚期间，向作为北约快速反应部队一部分的比利时部队发出了明确的信息。
+
+由于罗马尼亚是乌克兰的邻国，北约驻地康斯坦察距离俄乌战场很近。
+
+德鲁克表示，我们发出明确的信息，已做好准备，我们将自卫。我们的信息越清晰，具体的威胁就越小。俄罗斯就会明白，触碰北约的领土是没有意义的。
+
+新闻链接: [‘We will defend ourselves’: De Croo visits Belgian troops in Romania (brusselstimes.com)](https://www.brusselstimes.com/belgium-news/216930/we-will-defend-ourselves-de-croo-visits-belgian-troops-in-romania)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

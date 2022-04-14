@@ -2,51 +2,26 @@
 ---
 
 
-## 辉瑞Moderna和Facebook一定破产马克龙必将上绞刑架
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2343510/)
+## 樱花FM┃不要低估习近平与普京的关系（下）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2343695/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8806.61%EF%BC%89%E8%BE%89%E7%91%9EModerna%E5%92%8CFacebook%E4%B8%80%E5%AE%9A%E7%A0%B4%E4%BA%A7%E9%A9%AC%E5%85%8B%E9%BE%99%E5%BF%85%E5%B0%86%E4%B8%8A%E7%BB%9E%E5%88%91%E6%9E%B6%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-2.png)
+这部电影很特别。它反映了对普京时代俄罗斯的一些痴迷，从庆祝战时胜利到对西方渗透的偏执。但它对集体化和计划经济的辩护甚至会让普京的拥护者们感到厌恶：他们只相信权贵资本主义，而不是马克思主义。克里姆林宫的宣传机器也没有花费精力推崇斯大林的个人崇拜，或者坚持认为很久以前的英雄确实存在。这些选择更多的是中国而不是俄罗斯。这部电影一次又一次地捍卫斯大林时代的各个方面，这些方面让人想起共产主义中国的创始人毛泽东。毛泽东引发了数千万人饿死的农村大饥荒和导致数百万人死亡的政治清洗。他的计划经济使国家破产。他命令群众学习模范公社和模范英雄的虚假或虚构的成就，往往造成灾难性的后果。与此同时，这部电影赞扬了普京的执政记录，这些记录也适用于习近平。中国领导人重写了历史教科书，并通过了禁止不尊重烈士和英雄的法律。在习近平的领导下，言论自由等价值观被称为西方颠覆的工具，其目的是通过“和平演变”推翻中共。
 
-**郭文贵先生：**然后再看全世界的疫苗，疫苗世界成了什么了？兄弟姐妹们，全人类就咱们爆料革命、新中国联邦，咱是无苗有币族。我说过疫苗灾难和疫苗次生灾难会超过一切，你看看澳大利亚、你看看法国、你看看加拿大，孩子、老人、妇孺全上街。这种人类上的这种辉煌的，包括美国现在你看辉瑞，七哥给你说什么？做空辉瑞、Moderna医药公司，医药股降了多少？
+**支持俄罗斯的战争国内最大的政治**
 
-你见过有一个人、一个群体像我们那样那么牛叉的吗？如果你们听七哥的，你们得赚多少钱？而且我告诉你，辉瑞、Moderna和Facebook都会破产，还有什么Twitter一定会破产。只要人类上有一个人在，他都会破产，我告诉你，他是没有任何争议的。
+最重要的是，这部电影通过暗示赞扬高度个性化的统治来帮助习近平，在电影的某一场景，年轻的俄罗斯人亲吻了普京的形象。今年晚些时候，习近平预计将寻求第三次担任党总书记，颠覆在毛泽东长达数十年的可怕统治之后制定的规则。关于纪录片放映的报道几乎都是以惊人的相似方式呈现：官员们强调“正确”历史观的重要性，然后得出结论，最重要的是对中国共产党和习近平的忠诚。
 
-就像我说过共产党一定会被消灭一样，任何可能性都没有存在的可能性，是吧？你想想共产党它怎么活？它怎么闭幕？“冬眠会”它这成啥了？你想想现在这个卡车司机，你想想辉瑞、你想想Moderna、你想想国内的卖6亿假疫苗，是吧？6亿假疫苗赚了很多钱，但是这钱赚得好。
+还有一个警告外国政府想知道为什么习近平不会承认普京的罪行的原因，就是中国对俄罗斯的支持的重要原因是地缘政治，普京先生被视为与美国斗争中不可替代的战友。但这也涉及到国内的政治考量，中国理论家认为，将习近平的民族主义品牌与普京的民族主义品牌相提并论是有益的。只要这种理论存在，要求习近平与俄罗斯断绝关系，站在西方一边，就像要求他与自己决裂一样，绝无可能。
 
-还有一个，前天下午咱日本一个朋友跟我说，她说：.郭先生，我没敢跟你说，日本人很老实。我先生和我作为政府官员都必须打，我们都没打这疫苗，医生就给喷到地上了。我们现在就是回家喝点儿小酒，就感谢Miles，感谢你！”她说：.我们两个最不诚实的就是这次没打疫苗。” 那么同时她非常相信日本的那些卖疫苗的一定也会被追究，走上绞刑架。
+（全文完）
 
-法国我们的战友在医疗界的，他说：.郭先生，我可以看到马克龙走上绞刑架的感觉，我可以预想到把他送上绞刑架。”他说：“我们家都没打疫苗。” 也是政府官员，而且妻子家人都是搞军火的，都是搞军火的。
+文字版原文：[**Don’t underestimate Xi Jinping’s bond with Vladimir Putin**](https://www.economist.com/china/2022/04/09/dont-underestimate-xi-jinpings-bond-with-vladimir-putin)
 
-所以兄弟姐妹们，你看到了人类现在是个什么觉醒？这是多大的事儿！人类上一半的人被打了疫苗，他可能处在一个生死不确定、得癌症、随时死亡的不确定状态下，你觉得他能放过这些媒体，所谓的严肃媒体、黑暗的共产党势力？他能和共产党拉倒吗？疫苗来自你那，开始研究你那，病毒来自你那，我不知道随时可以死，或者家人已经死了，他能跟共产党拉倒吗？病毒不溯源吗？疫苗灾难难道人家能结束吗？
-
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
-
-编辑整理：星塵Scheddi；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*编辑：东京樱花团/小老虎
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

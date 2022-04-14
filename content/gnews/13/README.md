@@ -2,43 +2,51 @@
 ---
 
 
-## Nexo 和万事达卡推出“世界第一个”加密资产抵押的信用卡
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2343729/)
+## 民生集萃——疫情导致房地产行业降薪（2022.4.14）&#8211;国企裁员降薪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2343887/)
 
-2022-04-14
+#### **雅典娜情报组《民生灾难收集专栏》**
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/04/JB1QYF7UMZY0DPPR0I2.png)图片来源：[Nexo and Mastercard launch ‘world first’ crypto-backed payment card](https://www.reuters.com/technology/nexo-mastercard-launch-world-first-crypto-backed-payment-card-2022-04-13/)
-来自路透社REUTERS四月十三日的新闻报道：
+#### 整理/编辑：gardeniahu
 
-伦敦，4 月 13 日（路透社）加密货币借贷公司 Nexo 表示，它已与全球支付公司 Mastercard (MA.N) 合作，将于周三推出其所谓的世界上第一张“加密支持”支付卡。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44.png)图片来源：雅典娜设计组(614)
 
-随着数字资产变得更加主流，它标志着加密货币和现有金融网络联合起来的最新举措。
 
-Nexo 表示，该卡最初在选定的欧洲国家可用，允许用户在无需出售其数字资产（例如比特币）的情况下进行消费，这些数字资产被用作支持所授予信用的抵押品。
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-大多数传统信用卡都是无抵押担保，设有信用额度。
+帖子原文：
 
-Nexo 表示，该卡与 Nexo 提供的、加密支持的信用额度相关联，可用于全球 9200 万接受万事达卡的商户，允许投资者花费高达 90% 的加密资产法定价值。
+裁员降薪，国企真的是铁饭碗吗？
 
-“该卡不需要最低还款额、月费或闲置费。每月低于20,000 欧元则没有换汇费用”，Nexo 说。
+本人坐标北京，就职于央企房地产公司。
 
-客户在未结信用额度范围内消费或提取多少现金没有限制，并且仅根据实际使用的信用额度支付利息。对于贷款与价值比率保持在 20% 或以下的客户，利息为零。
+疫情叠加国家政策调控，房地产行业的情况恶劣程度应该仅次于教培行业了，裁员降薪弥漫，国企也不可豁免，只是方式上更加隐晦。
 
-“万事达卡认识到数字资产正在彻底改变金融格局”，万事达卡公司加密和区块链产品及合作伙伴关系负责人 Raj Dhamodharan 说。
+全员选聘，没选上的，薪资按照当地最低工资标准发放，或者强制派往外地，逼得你不得不离职；薪水也是一降再降，本人的工资相比去年，不仅仅是腰斩，保守估计只能拿到以往的1 /3。
 
-电子货币公司 DiPocket 是 Nexo 的发卡机构。
+无法看到自己的未来，始终处于迷茫的状态。跳槽吧，行业内机会少，歧视女性严重，去了新的环境也面临着更多的不确定因素；继续呆着呢，无法负担巨额房贷，依然有被裁员的风险，30岁依然要啃老生活，未来又要何去何从呢？
 
-**点评：**数字资产正在成为主流，改变金融格局，势不可挡。我们新中国联邦的创始人郭先生远见卓识，创建的喜币和喜交所，以及随后的衍生系列产品，必将掀开史诗级的辉煌篇章。新中国联邦人有幸追随郭先生，参与推翻中共，消灭共产主义，当努力了解学习专研数字货币知识，参与和推动投资和使用推广，配合喜交所业务开发完善。从小的方面说，个人直接受益，从大的方面讲，此乃关乎公平正义美好的新世界未来。
+发布于昨天04.13
 
-原文链接：[Nexo and Mastercard launch ‘world first’ crypto-backed payment card](https://www.reuters.com/technology/nexo-mastercard-launch-world-first-crypto-backed-payment-card-2022-04-13/)
+精选评论
 
-编辑：LILY
-发布：肥鯮
+小红薯60A45ADC  回复：我觉得石油铁路啥的还是铁饭碗，其他的有些不好说。
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+大雨君  回复：没想到中字头都这样玩…这工资在北京无法生存啊。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-32.png)图片来源：小红书
+
+
+参考链接:[国企裁员降薪](https://www.xiaohongshu.com/discovery/item/6256f013000000002103d97b?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649903760)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
