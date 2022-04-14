@@ -2,29 +2,22 @@
 ---
 
 
-## 乌克兰平民遇难过万 俄军焚烧遗体欲盖弥彰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2341416/)
+## 欧盟高官指控俄军攻击和破坏乌克兰的小麦库存，加剧全球粮食危机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2341495/)
 
-作者：在远方，Naughty(文行)
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16498704471.png)   图片来源：欧洲新闻台
+据《布雷特巴特新闻网》（Breitbart News）4月12日报道，欧盟的外交事务主管何塞·博雷利 (Josep Borrell）近日表示，当世界正面临着严重的粮食危机时，俄罗斯军队却一直在积极地攻击和破坏全球最大之一的粮食生产国—乌克兰的小麦库存。
 
-当地时间4月11日，据相关媒体报道，乌克兰马里乌波尔市的市长波成柯在接受采访时表示，该市目前已有超过一万名平民死于俄罗斯侵略军的战火之中，民众遗体遍布大街小巷。 此外，波成柯还严正谴责俄军故意阻止人道主义救援车队进入该市，并试图对外隐瞒在该市市区发生的大屠杀。
+根据《欧洲新闻台》（Euronews）的报道，博雷利说，俄军不仅封锁了乌克兰在黑海的港口，导致该国的粮食出口中断（乌克兰向全球供应了大量的小麦），而且还在积极地攻击和破坏乌克兰的急需资源（much-needed resource）储备。“俄军正在轰炸乌克兰的城市，并通过阻止小麦出口和破坏乌克兰的小麦库存，在全世界制造饥荒。”博雷利强调，许多欧洲人正面临的粮食短缺问题不是因为欧盟对莫斯科的制裁，而是俄罗斯通过封锁和军事打击破坏供应链所直接导致的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-13-at-11.41.00-AM.png)
+一家粮食贸易公司的负责人Jörg-Simon Immerz说：“目前乌克兰的港口没有出口任何粮食，任何东西都无法离开该国。另外，全球小麦市场的另一个主要参与者—俄罗斯供应的小麦也显著下降。”不久前，俄罗斯的一位高官甚至威胁说，将只向所谓的“友好”国家供应粮食和农产品。
 
-据波成柯证实，俄军早先运来了大量的移动焚尸炉用于处理遇难者的遗体：他们将许多平民的尸体集中运到某个具有大型冷冻设施的购物中心，随后用卡车运载的移动焚尸炉将这些尸体焚化，试图掩盖其令人发指的反人类罪行。
+欧盟官员以及前南卡罗来纳州州长、现世界粮食计划署主任大卫·比斯利 (David Beasley)上个月警告说，如果今年不能额外提供数十亿美元的粮食援助，那么全球将出现饥荒、不稳定和大规模移民等危机。
 
-另一方面，波成柯也补充道，马里乌波尔市当前大约有12万人迫切需要食物、饮用水、暖气和对外通信设备。然而，只有经过俄军“过滤”的民众才能逃离当地，其他没有通过检查的居民则被押送至临时拘留所。据悉，当地至少有3.3万人被强迫遣送至俄罗斯或乌克兰分离主义地区。对此，乌克兰人权监察员透露，俄罗斯军队在这些地区对乌克兰平民实施了酷刑和处决，且俄军还在继续非法逮捕、折磨并处死任何有亲乌克兰立场的民众。
+*责编：白夜*
 
-参考链接：
-1. [馬立波市長：城內已超過1萬平民死亡 俄軍計畫性焚燒百姓遺體](https://news.ltn.com.tw/news/world/breakingnews/3890226)
-2. [Ukraine says tens of thousands killed in Mariupol, accuses Russia of abuses](https://www.reuters.com/world/europe/ukraine-says-tens-thousands-killed-mariupol-accuses-russia-slowing-evacuations-2022-04-11/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+新闻来源：[Global Food Crisis: Russian Forces Actively ‘Bombing and Destroying’ Wheat Stocks in Ukraine As Crisis Mounts](https://www.breitbart.com/europe/2022/04/12/global-food-crisis-russian-forces-actively-bombing-and-destroying-wheat-stocks-in-ukraine-as-crisis-mounts/)
 
  
 

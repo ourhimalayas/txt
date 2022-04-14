@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 12:59 AM (UTC)`
+
+2022.04.13 晚  新中国联邦 | 新闻访谈   中共野蛮防疫  致民怨沸腾 ; 欧盟代表团成员 参观新中国联邦救援帐篷
+![img](https://media.gettr.com/group39/origin/2022/04/14/00/09fc6290-9ad2-d2ab-c52e-7dedc474bb15/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/14/2022 12:29 AM (UTC)`
 
 2022.04.13 晚  新中国联邦 | 新闻   美国将再为乌克兰提供7.5亿美元军事援助; 俄乌大战在即, 中共将在5月之前攻台
@@ -133,12 +140,6 @@
 
 04.13.2022新中国联邦法治基金乌克兰人道救援行动-波兰Medyka基地突发新闻
 ![img](https://media.gettr.com/group10/origin/2022/04/13/14/2864313f-3b19-bafc-07d0-2fc93e2a6890/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/13/2022 2:33 PM (UTC)`
-
-04/13/2022 on the 10th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#3🥉 on Cambodia 🇰🇭Top Song Charts<br/>#1 🥇 on Hong Kong 🇭🇰, Taiwan 🇹🇼，Singapore 🇸🇬 Rock Song Charts<br/>#2🥈 on New Zealand 🇳🇿, Cambodia 🇰🇭 , Laos 🇱🇦 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/>#3🥉 on Laos 🇱🇦 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#1 🥇 on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>🎉🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Cambodia,Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2340139/
 
 ---
 

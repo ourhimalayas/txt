@@ -2,33 +2,32 @@
 ---
 
 
-## 有声|俄罗斯寡头的超级游艇驶向斐济
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2340729/)
+## 美欧对中共国的一系列脱钩与制裁即将展开
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2341140/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-据报道，一艘受制裁的俄罗斯寡头的超级游艇“Amadea”本周将在斐济加油，然后返回其母港，这里的当局预计这是最接近新西兰的一艘超级游艇。船主不太可能在船上。他是黄金生产商和涉嫌洗钱者苏莱曼克里莫夫，他在美国、英国和欧盟的制裁名单上。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-4.jpg)‘阿玛达’。照片：国际船舶![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.jpg)超级游艇经纪人Duthie Lidgard 照片：RNZ/Dan Cook
-新西兰外交和贸易部（MFAT）表示，目前不知道有任何俄罗斯拥有的船只在新西兰水域受到制裁，并且表示如果“受制裁的船只试图进入新西兰，将被采取行动”。
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-32.png)
+据文贵先生4月12日盖特直播报道，美国和欧盟目前正对香港贸易和经济地位进行重新定义，并将把香港金融市场踢出国际金融系统。此外，还将率先对香港政府官员进行大规模严厉制裁，制裁级别将与制裁俄罗斯相似。
 
-禁止所有俄罗斯军用或政府拥有的船只，或受制裁个人或实体的船只进入新西兰。与此同时，新西兰卫生部表示，俄罗斯的“Amadea”没有要求在新西兰加油。
+美国从过去的授权撤离上海总领馆人员到现在的命令撤离，这在中美历史上还是首次，接下来将会有很多国家陆续跟进撤离。未来中共国将成为零外交，外交关系将不如北韩。随后与中共在经济、外交、贸易、文化等领域的脱钩都将陆续到来。
 
-[【援引连结】](https://www.rnz.co.nz/news/national/465191/russian-oligarch-s-superyacht-sailing-towards-fiji)
+美欧与中共在军事上的对抗也即将展开。南海、东海，特别是东欧。整个欧洲将联合对抗中共国和俄罗斯。中共官员在海外藏匿的钱财和私生子女毫无疑问也将在制裁之列。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**校对：小脑斧
-上传：漂流**瓶
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+原文链接：[https://gettr.com/post/p14y3tsd6bc](https://gettr.com/post/p14y3tsd6bc)
+
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 晨熹
+素材/采编 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
