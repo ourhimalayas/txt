@@ -2,23 +2,62 @@
 ---
 
 
-## 面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2346909/)
+## 波兰总统安德烈·杜达称俄罗斯入侵乌克兰是恐怖主义
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2346938/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/AIT.jpg)
-美国众议院议长裴洛西（Nancy Pelosi）原定4月10日访台，因突然确诊而延后，文贵先生4月10日直播表示，可能是中共明确告知，如果Nancy Pelosi来台湾访问， 中共立刻发动军事武力攻击台湾，但4月14日晚间7时40分美国联邦参议院预算委员会共和党首席议员葛瑞姆（Lindsey Graham, R-SC）、参议员梅南德兹（Bob Menendez）、参议员波尔（Richard Burr）、萨斯（Ben Sasse）、波特曼（Rob Portman），及众议员杰克森（Ronny Jackson）于结束澳洲行程后，搭乘美国行政专机闪电访问台湾，显示美国拜登政府跨党派支持捍卫台湾和印太区域安全的威胁。
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-此次美国联邦参议院外交委员会的民主党籍主席梅南德兹，是与共和党资深议员里契共同推出**《****2021****战略竞争法案》**，梅南德兹曾表示美国政府必须清楚中共长期破坏国际体系的计划，该法案最主要就是在强化美国对中共展开全面战略竞争的力量。其中明确表示台湾是美国印太战略重要部分，包含新疆维吾尔族的种族灭绝、支持香港民主，加强施压中共，在贸易、知识产权上维护美国的利益与价值，并强调应优先在印太地区进行军事投资以达到美国政治目标。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**然而就在中共对台海与区域军事威胁持续升高的同时，根据文贵先生在盖特爆料，中共于塞尔维亚等地大面积布置红旗HQ-22地对空导弹系统，从中共运-20的集体飞行轨迹可以看到，经过的国家有吉尔吉斯坦、乌兹别克斯坦、阿塞拜疆、土耳其、保加利亚等，运送其战略性进攻武器，直接支持俄罗斯攻占乌克兰的军事侵略，甚至派出大量的黑客部队与俄罗斯站在一起，对北约欧盟造成严重的威胁。中共红旗导弹系统甚至将部署在吉布提、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，其中包括装在货轮上的移动式导弹，以及可能部署在古巴、巴哈马等美临国的导弹系统。**
+自从本月早些时候俄罗斯军队面对乌克兰的英勇抵抗撤出该国北部以来，欧洲政界人士纷纷乘火车前往乌克兰首都。
 
-**中共与俄罗斯两个共产独裁统治，不断制造世界各地区域性冲突与战争，目的就是要挑战美国、毁掉美元系统，这是一场共产独裁主义与自由民主资本的战争，一场信仰的对立和意志的冲撞，一场大规模的战争侵略行动，中共是全世界灾难的根源，只有消灭中共才能拯救全人类。**
+4月13日，波兰总统安德烈·杜达（Andrzej Duda）、立陶宛总统吉塔纳斯·瑙塞达（Gitanas Nauseda）、拉脱维亚总统埃吉尔斯·莱维茨（Egils Levits）和爱沙尼亚总统阿拉尔·卡里斯（Alar Karis）访问了基辅地区在俄罗斯撤军后发现了数百名平民被杀的地方。
 
-本文仅代表个人立场
+随后，在会见泽连斯基时，四位总统呼吁增加对乌克兰的军事支持，并要求俄罗斯对其部队在乌克兰当地的行为负责。
 
-祈祷万佛万神加持文贵先生与新中国联邦战友Take down the CCP!
+波兰总统安德烈·杜达在基辅举行的新闻发布会上说，当士兵被派去谋杀平民时，这不是战争，这是恐怖主义，这是我们无法接受也不能接受的战争面貌。这些罪行的肇事者，无论是直接的还是间接的，都必须受到惩罚。检察官在发生大规模谋杀的地方收集证据，在现代世界发生这样的事情是不可思议的，与那些违反所有规则的人没有对话。我希望乌克兰能尽快成为欧盟的一部分，作为一个自由和主权国家可以自行决定。我们不仅是乌克兰的地理位置上的邻居，而且在共同历史和对局势的理解上也是如此。
 
-审核:Athena雅典娜 撰稿发布:Amitofu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/674ac9ea-31c5-47b8-9b0f-045742abef78.jpg)President of Ukraine Volodymyr Zelensky (R) listens to his Polish counterpart Andrzej Duda during a press conference along with the presidents of Lithuania, Latvia and Estonia following their talks in Kyiv, on April 13, 2022. – The leaders of Poland, Estonia, Latvia and Lithuania travelled to Kyiv together by train to show support for the Ukrainian, amid Russia’s military invasion launched on Ukraine. (Photo by Sergei SUPINSKY / AFP) (Photo by SERGEI SUPINSKY/AFP via Getty Images)
+
+其他来访的总统也表达了对俄罗斯追究责任的愿望，他们还表示，他们计划推动国际社会加大对乌克兰应对俄罗斯在东部攻势的军事支持。
+
+拉脱维亚总统埃吉尔斯·莱维茨说，“我们有责任用各种武器帮助乌克兰”。
+
+立陶宛总统吉塔纳斯·瑙塞达说，“乌克兰的未来将在战场上决定……乌克兰必须获胜。”
+
+爱沙尼亚总统阿拉尔·卡里斯说，“普京总统必须输掉这场战争，否则欧洲将无法实现和平”。
+
+作为犯下战争罪、种族灭绝罪独裁者和国家，普京和俄罗斯一直否认其部队以平民为目标，并表示乌克兰和西方关于战争罪的指控是捏造的。
+
+在杜达发表上述言论之际，俄罗斯总统弗拉基米尔·普京和他的盟友白俄罗斯总统亚历山大·卢卡申科表示，有关乌克兰布哈镇人道暴行的报道是“假的”，而是将责任归咎于英国特工。如此厚颜无耻！
+
+4月12日，美国白宫官方网站发布了《拜登总统在空军一号出发前的讲话》，明确普京和入侵乌克兰的俄罗斯军队在乌克兰犯下“种族灭绝”罪行。拜登总统说，“是的，我称之为种族灭绝。越来越清楚的是，普京正在想抹杀即使是能够成为乌克兰人的想法”。
+
+美国负责政治事务的副国务卿维多利亚·纽兰（Victoria Nuland）周三在接受CNN新闻编辑室采访时说，美国总统乔·拜登“在谈到我们在乌克兰看到的俄罗斯联邦及其部队实施的种族灭绝事件时，是发自内心的”。美国很可能最终确定乌克兰发生了种族灭绝事件。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4ec77b2e-b93a-43a3-8dd0-2009789ff699.jpg)
+
+纽兰说，美国有“随着时间的推移收集证据的过程”，以便对政府做出正式的种族灭绝决定。
+
+“但我将预测，当我们能够收集所有这些证据时，我们最终可能会发现拜登总统所说的那样，因为实地发生的事情并非偶然。这是俄罗斯军队有意摧毁乌克兰及其平民的决定。”
+
+当被问及为什么制裁没有对俄罗斯总统弗拉基米尔·普京产生威慑作用时，纽兰回答说，这是因为普京“不关心他的人民或它的国家，它只关心他自己的帝国野心。他没有看到他所做的不仅是把乌克兰变成废墟，而且把俄罗斯变成监狱。
+
+乌克兰当局指责俄罗斯军队在基辅附近的一个小镇布查处决、强奸和折磨居民。东部港口城市马里乌波尔的市长本周表示，在俄罗斯的袭击中，已有超过10,000名平民丧生。
+
+参考数据：
+
+[Visiting Kyiv, leaders of Poland and Baltic states condemn Russia](https://www.euronews.com/2022/04/14/uk-ukraine-crisis-poland-president)
+
+[Polish president: Russian invasion of Ukraine is ‘terrorism’](https://thehill.com/news/3267269-polish-president-russian-invasion-of-ukraine-is-terrorism/)
+
+[Polish president: Russian invasion of Ukraine is “not war, it’s terrorism”](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-13-22/h_6209e310b6bbf88f22a03fb405ac36d1)
+
+[Top US State Department official: US will likely determine genocide has been committed in Ukraine](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-13-22/h_6209e310b6bbf88f22a03fb405ac36d1)
+
+[Tyrants get bad information — so do non-tyrants](https://thehill.com/opinion/national-security/3267222-tyrants-get-bad-information-so-do-non-tyrants/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

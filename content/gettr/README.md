@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/14/2022 7:06 PM (UTC)`
+
+2022-4-14《避风港》(36) 专家预警：疫苗即将带来深重灾难
+![img](https://media.gettr.com/group49/origin/2022/04/14/19/9c3af3b9-4380-4ea0-5957-185038c210bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 5:50 PM (UTC)`
 
 04.14.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -149,13 +156,6 @@ Wednesday with Steve K. Bannon 13th April, 2022
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group25/origin/2022/04/14/04/9f826703-15e6-1384-0663-a03432d2126b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 4:32 AM (UTC)`
-
-4/10/2022 Miles Guo: Thanks to the fellow fighters from mainland China and those inside of the CCP for risking their lives to provide with the New Federal State of China key classified information and military intelligence about the CCP! You will always be regarded as the number 1 contributor to the New Federal State of China.<br/><br/>4/10/2022 文贵直播：感谢体制内和国内战友们冒着生命危险给新中国联邦提供的关于中共的重要机密信息和军事情报，你们永远是新中国联邦的第一功臣！<br/>
-![img](https://media.gettr.com/group13/getter/2022/04/14/04/696b7a2e-17ed-f9d8-f005-954fc3a6fde9/out.jpg)
 
 ---
 
