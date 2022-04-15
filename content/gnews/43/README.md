@@ -2,37 +2,31 @@
 ---
 
 
-## MobiKwik钱包在印度撤销了UPI支付
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351033/)
+## 有声｜“上海人忍耐已到极限”吗？
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2351120/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-整理：li yan li
-编辑：朝花夕拾
+**2022-04-15**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-34.png)
+[新唐人](https://www.ntdtv.com/gb/2022/04/14/a103400447.html)北京时间4月15日消息，上海市无人性的“清零防疫”导致民怨沸腾，也令许多中共国人对中共体制彻底绝望。网文《上海人民的忍耐已经到了极限》阅读量超过2000万，一度被封杀。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
+这篇4月13日发表在微信上的网文，细数上海封城期间各种“刷新底线的事件”，直斥“连坐陪罪”等封控苛政。
 
+文章说，封城以来“每天都有刷新底线的事件”，并提到又一起病患因延误治疗死亡的悲剧。
 
-4月14日，印度支付机构印度国家支付委员会（NPCI）在Coinbase（纳斯达克股票代码：COIN）宣布在印度推出交易服务后数小时，拒绝承认Coinbase的推出。因此，Coinbase暂停了对统一支付接口（UPI）的支持，随后MobiKwik钱包也撤回了用于数字货币交易的UPI支付。这为该国的数字货币交易者铺设了一条越来越困难的道路。
+据信，一位病情稳定的癌症患者，4月3日发病去医院求医，医院拒绝小区的核酸阴性报告，要求必须再做核酸检测，确认检测阴性后才能收治。病人在等待检测结果的过程中离世，死前最后一句话是询问“核酸报告出来了吗”。而核酸阴性报告在他去世两小时后才出来。
 
-MobiKwik是至少六家数字货币交易所的合作伙伴，这些交易所立即停止提供MobiKwik电子钱包选项。现在印度只有少数交易所允许用户进行数字货币交易。
+这篇文章一度遭微信封杀，原文不可见。但随后文章又被恢复，却疑似被限流，禁止其他用户分享。
 
-目前，用户只能通过国家电子资金转账（NEFT）和即时支付服务（IMPS）的方式进行出售，不过没有购买选项。由于选择有限，在WazirX、CoinDCX和Coinbase上存入资金具有挑战性。大多数交易所只允许用户通过网银存入资金。
+与此同时，网络还流出一篇题为“上海人的忍耐还远远没有到极限”的短文，隐晦地呼吁中共国人用实际行动对中共政权展开抗争。
 
-在4月7日的发布会上，Coinbase首席执行官布莱恩-阿姆斯特朗表示：“随着我们进入印度市场，我们正在积极尝试一些支付方式和合作伙伴，使我们的客户能够无缝地进行加密货币购买。这些方法之一就是简单易用的快速支付系统UPI”。
+秘翻新闻 二丫编辑报道
 
-然而，在NPCI的声明否认推出使用UPI支付的新数字货币交易所后，Coinbase澄清说：“我们知道NPCI最近发表的关于加密货币交易所使用UPI的声明。我们致力于与NPCI和其他相关部门合作，以确保我们与当地的期望和行业规范保持一致”。
+发布 : 恩典
 
-新闻链接：[继Coinbase之后，MobiKwik钱包也在印度撤销了UPI支付](https://coingeek.com/after-coinbase-mobikwik-wallet-also-withdraws-upi-payments-in-india/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

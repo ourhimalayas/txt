@@ -2,27 +2,20 @@
 ---
 
 
-## 疫情｜台湾单日确诊“首破千例” 儿童疫苗谈判最后阶段
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2351116/)
+## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
 
-**疫情关注组 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-8.png)
-台湾防疫指挥中心今（15日）公布新增本土个案1209例、境外移入75例，共1284例。指挥官陈时中表示，台湾疫情破百万例，“这也不是完全不可能”，现在最重要是将疫情控制住，强调防疫重点将转变为减灾，强化疫苗、药物及轻重症分流。减灾方法为“积极接种疫苗”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-15-下午6.02.59.png)
-因应台湾疫情进入下一阶段，中央调整部分防疫政策，如修订学校停课标准。台湾防疫仍以“疫苗”为主轴，并承认台湾“清零不可能”。先前，指挥中心曾表示，未来可能会以接种疫苗作为放宽接触者匡列的依据，将匡列范围缩小，并要降低家用快筛剂的售价，保留充足医疗量能。
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
+美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
 
-13日媒体报导，卫生福利部长陈时中表示，适合5到11岁小孩的剂型是由辉瑞制造，目前谈判已进入最后阶段。
+其中个别死亡案例统计信息统计如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
+由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
 
-另外，中央发布最新的停课标准，全国各高中职、国中小、幼儿园及补习班，“全校有3分之1以上班级或全校达10班以上班级暂停实体课程10天”，得实施全校暂停实体课程。此规定使各级学校只有在十分严峻的情形，方有停课可能。
+信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
 
-台湾劳动部针对“劳工之防疫隔离假”，强调若劳工遇居家隔离状况，雇主应准“防疫隔离假”不可视为旷职，亦不得为解雇、扣发奖金或其他不利处分。此外，劳工染疫除可归责于雇主外，受隔离请防疫隔离假，雇主可不给薪，确诊可改请病假领半薪。（亦即劳工染疫系归因于雇主者，于防疫隔离假期间，雇主仍应给付薪资，并无上述不给薪情形适用；所谓“劳工染疫”可归责于雇主之情形，劳动部举例：雇主派遣员工出差致员工受隔离，或于隔离期间经确诊染疫者）
-
-来源｜[udn](https://tw.stock.yahoo.com/news/%E9%98%B2%E7%96%AB%E9%9A%94%E9%9B%A2%E5%81%87%E9%9B%87%E4%B8%BB%E4%B8%8D%E7%B5%A6%E8%96%AA-%E7%A2%BA%E8%A8%BA%E5%8F%AF%E6%94%B9%E8%AB%8B%E7%97%85%E5%81%87%E9%A0%98%E5%8D%8A%E8%96%AA-042048117.html)、[自由](https://news.ltn.com.tw/news/life/breakingnews/3891746)、[cna](https://www.cna.com.tw/news/ahel/202204130110.aspx)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
 
  
 

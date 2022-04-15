@@ -2,20 +2,27 @@
 ---
 
 
-## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
+## 樱花时政┃俄为销毁屠杀证据，导弹袭击基辅
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2351658/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
-美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
+撰稿人：东京樱花团/风翼
 
-其中个别死亡案例统计信息统计如下：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
-由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-159.png)图片来源于网络
 
-信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
+据A NN新闻速报：4月15日下午6时左右，俄罗斯国防部宣布用巡航导弹袭击了乌克兰首都基辅郊区的一处军事设施，称这次袭击的目标是位于基辅市郊区的一家生产和维修反舰导弹的工厂。其袭击的原因是为了报基辅克兰军队对俄罗斯领土的袭击。它还表示，它将扩大对基辅郊区的攻击，以回应乌克兰军队的攻击。
 
-[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
+4月13日乌克兰发表的为增援马里乌波尔海军陆战队第36旅一部分人员遭到俄军炮火袭击，因弹药用尽一部分军人被俘的消息，到今日俄罗斯的导弹袭击，据分析，其因屠杀毁尸灭迹的目的大于破环军事设施的目的。根据俄军自入侵乌克兰开始，残杀无辜市民的恶劣行径被国际社会严厉谴责，引起的各种强烈谴责与制裁。而这次乌军被俘事件可以想见可能屠杀人数众多，俄为转移注意力而采取的行动。
+
+信息来源：[キーウ郊外の軍事施設を巡航ミサイルで攻撃 ロシア国防省が発表](https://times.abema.tv/articles/-/10020630)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

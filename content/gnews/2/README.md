@@ -2,44 +2,37 @@
 ---
 
 
-## 币安骗掉所有投资者VS一币不名的七哥让战友们发大财
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2352233/)
+## 活摘器官是中共国家政策 多国媒体关注
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2352374/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8830.61%EF%BC%89%E5%B8%81%E5%AE%89%E9%AA%97%E6%8E%89%E6%89%80%E6%9C%89%E6%8A%95%E8%B5%84%E8%80%85VS%E4%B8%80%E5%B8%81%E4%B8%8D%E5%90%8D%E7%9A%84%E4%B8%83%E5%93%A5%E8%AE%A9%E6%88%98%E5%8F%8B%E4%BB%AC%E5%8F%91%E5%A4%A7%E8%B4%A2%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+大纪元2022年04月14日讯，4月5日，《美国移植杂志》（American Jounal of Transplantation）发表一篇新的研究报告《通过摘取器官执行死刑：中国（中共）违反死亡捐献者规则》（Execution by organ procurement: Breaching the dead donor rule in China）。
 
-**郭文贵先生：**那么你今天咱们这个喜币，你看赵长鹏这个王八蛋，他有多坏啊，他把所有的、全世界他不KYC的，只要你不管什么钱都来，他就是共产党那套：玩儿假的、犯罪，然后没有KYC完了以后他再把所有人汇钱的信息再给共产党，抓了多少人、弄了多少人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-124.jpg)
 
-全世界谁敢说喜币、H-Pay绝不可能有任何第三方拿走你的信息，谁拿走了我负一切责任。
+报告通过关键字筛选124,770份中国外科医生自己撰写的器官移植临床论文，找到了中共“活体摘除器官”的“直接证据”，证实了中共国家执法机构一直在与医院合作，系统地实施活体摘除器官。
 
-还有更重要的今天个人破产的时候你想想七哥但凡有一个币，喜联储、七哥那就是犯罪呀，那就不是开玩笑的。但是七哥作为一个最智慧、adviser、创造者，用这种智慧让这么多人有钱，他是一个什么样的一个多么伟大的一个行为呀！这个伟大到什么程度，这比共产党说得还伟大，它是爹亲娘亲不如党亲，七哥这真是兄弟姐妹，爹亲娘亲没有战友们亲，战友们现在都发财了，而且，你看44块钱，这是真的！你现在就可以卖呀，这是真的！真钱呐！
+报告说，“死亡捐赠者规则”（DDR）是移植伦理的基础，包括两项核心原则：一是在捐赠者死亡并被正式宣布为死亡之前，不得开始器官摘取，二是器官摘取不得造成捐赠者的死亡。 报告作者判断是否脑死亡后摘除器官还是“活体摘除器官”的方法很简单。因为脑死亡的临床判定必须包括深昏迷、脑干反射消失和无自主呼吸三项指标。而无自主呼吸指的是必须依靠呼吸机维持通气。也就是说，在确诊脑死亡之前，一定是用呼吸机通过人工气道（气管插管）维持呼吸的。如果捐赠者是在被（虚假）宣布为脑死亡后才插管，就可以证明，在摘取手术前，供体是活体。
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+而报告作者却发现，1980年至2015年间，有71篇器官移植中文论文中，对摘取器官步骤的描述，却出现了先诊断脑死亡，然后气管插管的现象。如在报告附录2中，有篇论文描述了2001年一例器官移植手术过程：“2供心切取配合2.1麻醉配合脑死亡后用麻醉机维持呼吸，巡回护士迅速建立静脉通道，同时协助麻醉医生气管内插管。2.2手术配合洗手护士提前30min洗手上，迅速摆好器械台将无菌冰块刨成冰屑。协助医生消毒皮肤及铺巾，备好氩气刀。”还有篇论文描述了2004年一例手术：“脑死亡后立即气管插管，接简易呼吸囊上氧控制呼吸，迅速开胸，肝素化，分离心肺组织，断升主动脉后，从主动脉根部灌注冷晶体停搏液1,000ml。”另有篇论文描述了2005年一例手术：“脑死亡后，气管插管机械通气，胸部正中切口，肝素化后切开心包游离大血管，肺动脉根部注入PGE1（保达新，德国许瓦兹大药厂生产）500μg后。”
 
-编辑整理：星塵Scheddi；
+因此报告得出结论：“鉴于捐赠者在器官获取前不可能是脑死亡，脑死亡的声明在医学上不可能是合理的。因此，在这些案例中，死亡一定是由获取器官的外科医生造成的。”报告说，“由于这些器官捐献者只能是囚犯，我们的发现强烈表明，中华人民共和国的医生参与了通过摘取器官进行的处决。”
 
-字幕文件制作：小满；
+报告出来之后，各国媒体纷纷进行报导，并谴责中共对人类基本尊严的严重侵犯。（Wiley Online Library和追查国际）以色列媒体：活摘是一项政策。澳媒：活摘是系统的和普遍的。澳大利亚媒体9news报导，（中共）强制摘取政治犯和囚犯器官的可怕故事，已“经流传了几十年。”现在，澳大利亚国立大学（ANU）刚刚发布的一项研究声称发现了一些证据，表明中国的外科医生正在处决死刑犯，在他们临床死亡之前就摘除他们的心脏。印度媒体：中国医生通过摘除囚犯的心脏来处决他们 印度新闻网站The Wire报导，《美国移植杂志》的研究表明，中国医生已经成为处决死刑犯和“良心犯”（因种族、宗教或政治观点而被监禁的人）的同谋。The Wire还提到，（英国的）中国法庭是一个独立的律师团，在2019年发现，中共正在谋杀法轮功精神修炼团体的成员，并摘取他们的器官进行移植，明确的证据已经表明，活摘器官的行为至少发生了20年之久。
 
-视频制作及上传：Cindy；
+作恶是中共的原始本性，是中共始终牢记的不忘初心。中共存在的一切行为都是围绕着作恶和粉饰作恶以便于更好的作恶这个中心点的。中共就是个魔鬼无疑，任何对中共抱有任何善意的期望和幻想必将会跌的鼻青脸肿。让善良的人们美好的期望落空，共产党还从来没有失败回。全世界的人们，彻底抛弃幻想，不要再犹豫，不要在观察和等待，快快醒来，对中共只有一个字“干”就完了。
 
-G-News发布：海賊王M.D.LUFFY；
+消息来源：[活摘器官是中共政策 多国媒体关注](https://www.epochtimes.com/gb/22/4/10/n13708476.htm)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
