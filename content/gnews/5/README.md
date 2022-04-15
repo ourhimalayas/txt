@@ -2,74 +2,63 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.15）-疫苗副作用综合征
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353811/)
+## 2022年4月15日文贵大直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2353873/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220415_副本-1.png)
+视频连接：[2022年4月15日 文贵大直播：多地封城疫苗灾难最新信息；中共将打台湾做好备粮备药；疫情战争国内粮食危机分析；喜币是最早最流行数字法币](https://gettr.com/streaming/p15f3i8714f)
 
-#### 整理/编辑：gardeniahu
+一、前线报道：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-34.png)图片来源：雅典娜设计组(614)
+（1）即将到来复活节和愉悦节，梅迪卡营地所有人员，聚集到新中国联邦大帐篷度过复活节和愉悦节；
 
+（2）新中国联邦度过了怀疑和质疑，得到所有救援组织认可，波兰政府发放给新中国联邦乌克兰救援工作证，上面直接写的新中国联邦；
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+（3）新中国联邦义工迎接了一个从乌克兰逃出来的中国大哥和他的太太（乌克兰人）深知中共邪恶，决定留下来加入我们的救援行动；
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+二、中共国粮食种植现状：2021年粮食总产量官方数据6.83亿吨，实际不足5亿吨；
 
-原文作者：Krypttonite
+三、战争和疫情导致粮价大涨：俄乌占全球谷物出口量的1/3以上；
 
-**疫情|新冠疫苗副作用     疫苗副作用综合征**
+四、中共国粮食饥荒已经到来：
 
-辉瑞你好狠让我心砰砰狂跳。
+1）水灾、干旱等自然灾害导致减产或绝收；
 
-记录一些辉瑞接种后的症状。
+2）35个国家已限制粮食出口，将无处购买粮食；
 
-本人4月底国内打完的科兴，昨天在学校的接种点walkin打了辉瑞。医生说只需打一针，六个月后可自行选择打booster。
+3）闭关锁国、外汇耗尽、经济垮塌将无钱购买粮食；
 
-打完后除了针口处酸胀，一直到睡觉前我都还没其他反应，还以为我逃过了一劫（其实现在回想起来睡前已经明显听到自己心跳了，但我无视了）。
+五、中共借疫情管控升级：下一个是北京；
 
-结果今天早晨起来手臂酸痛，四肢无力，但还能正常行动出门上课了。出门下雨没带伞淋了点雨，上课的时候一直很疲惫我猜这个时候已经低烧了。回房间吃完饭14：30左右开始休息。
+六、中共暴政胜商鞅：上海政府强征百姓公寓为隔离点，民众反抗被镇压；
 
-期间一直心悸，听着心跳咚咚咚睡不好，最后被自己心跳跳醒。
+七、中共即将攻台，做好长期准备：备钱、备水、备药；
 
-感觉自己在散发热气了就借了体温计，16：10测到38.5℃，立马吃了泰诺继续躺着，喝了很多热水，上厕所，还喝了一杯维c。
+八、2021年NFT市场销售额达到210亿美元：G系列和喜马拉雅农场事实上已经形成了新中国联邦的元宇宙；
 
-17：35，37.5℃明显感觉好了很多出了很多汗,18：53,37℃感觉身体轻盈了,手臂已经不会酸痛。19：51，36.3 ℃成功退烧。
+九、喜币将成为全世界最流行的数字货币：喜币有公开严谨的发行规则，方便快捷的双币支付系统，广泛的实体商业流通，有未来14亿华人的社会基础，有和西方合作的历史，最有希望成为承载未来经济的国际货币；
 
-吃药4小时后，我已经没有疲惫的感觉。基本什么事情都可以干了。保险起见还是乖乖躺着休息，希望不会反复发烧了。但我的心率一直都挺高，我查了下以前的数据。静止状态下我一般心率50－60左右。现在躺着也有78－85，时不时感觉心脏会难受所以确定是因为打完疫苗引起的反应。
+**注：大直播音频——**
 
-希望心率快点降下来今晚能睡个好觉。
+编辑整理：文俊；
 
-补充：
+发布：黎明之前；
 
-接种后第三天恢复正常，精力充沛，手臂处几乎没痛感，心脏也不会难受了，但心率依旧比之前高，稍微走多两步心率就120了。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-发布于2021.10.09
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-精选评论
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-Suzy松子回复：打完辉瑞后17天，一模一样，现在还没好，去了急诊检查抽血心电图什么的都没查出来原因，很多人都这样的。只能等慢慢好了，多注意休息，我有天走路去上课，心率跳到210。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-甜甜恬Tian回复：我也是心脏疼！但半天之后就好了，祝姐妹心率也快快降下来。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-39.png)图片来源：小红书
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-14.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345-4.png)图片来源：小红书
-
-
-参考链接：[疫苗副作用综合征](https://www.xiaohongshu.com/discovery/item/6160a09a0000000021035122?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649996453)
-
-*发布：wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

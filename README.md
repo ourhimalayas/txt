@@ -15,71 +15,71 @@
 
 ---
 
-### [2022年4月15日文贵大直播摘要及音频—银河系农场](/content/gnews/1/README.md)
+### [大直播后记：中共统治下的饥荒即将来临](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：中共搞大封锁是在为攻台做测试](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [《一道不愈合的伤口》](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十四）](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年4月15日文贵大直播摘要及音频—银河系农场](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.15）-儿童打新冠疫苗后反复发烧](/content/gnews/2/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.15）-儿童打新冠疫苗后反复发烧](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/15/2022 乌克兰救援连线: 新中国联邦前线的战友将在梅迪卡和世界各地的志愿者以及乌克兰难民一起庆祝逾越节和复活节](/content/gnews/3/README.md)
+### [4/15/2022 乌克兰救援连线: 新中国联邦前线的战友将在梅迪卡和世界各地的志愿者以及乌克兰难民一起庆祝逾越节和复活节](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大专家呼吁提高疫情数据应透明度](/content/gnews/4/README.md)
+### [加拿大专家呼吁提高疫情数据应透明度](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [COVID-19疫苗副作用集萃（2022.4.15）-疫苗副作用综合征](/content/gnews/5/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.15）-疫苗副作用综合征](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/16/2022 银河快讯：日本加速“去俄罗斯化”； 岸田首相表示花费2.4万亿日元购买疫苗（新冠疫苗）“是必要的”](/content/gnews/6/README.md)
+### [4/16/2022 银河快讯：日本加速“去俄罗斯化”； 岸田首相表示花费2.4万亿日元购买疫苗（新冠疫苗）“是必要的”](/content/gnews/10/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [COVID-19疫苗副作用集萃（2022.4.15）–打完新冠疫苗后我每天下午开始心悸心慌](/content/gnews/7/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.15）–打完新冠疫苗后我每天下午开始心悸心慌](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月15日文贵乱聊直播摘要及音频—银河系农场](/content/gnews/8/README.md)
+### [2022年4月15日文贵乱聊直播摘要及音频—银河系农场](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [纽约联储行长约翰·威廉姆斯讨论有助于降低美国通胀的策略](/content/gnews/9/README.md)
+### [纽约联储行长约翰·威廉姆斯讨论有助于降低美国通胀的策略](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [20220415郭文贵乱聊直播 ：鼓励投资喜币，别鼠目寸光，别在拿回SEC钱上出错](/content/gnews/10/README.md)
+### [20220415郭文贵乱聊直播 ：鼓励投资喜币，别鼠目寸光，别在拿回SEC钱上出错](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220415郭文贵大直播 ：一位中国籍难民及其家属立即加入到了新中国联邦救援队中](/content/gnews/11/README.md)
+### [20220415郭文贵大直播 ：一位中国籍难民及其家属立即加入到了新中国联邦救援队中](/content/gnews/15/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220415郭文贵乱聊直播 ：切记！GTV的投资者们无论在任何情况下都不要与警察合作，会带来杀身之祸的！](/content/gnews/12/README.md)
+### [20220415郭文贵乱聊直播 ：切记！GTV的投资者们无论在任何情况下都不要与警察合作，会带来杀身之祸的！](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220415郭文贵大直播 ：新中国联邦乌克兰救援队得到了国际组织的工作证](/content/gnews/13/README.md)
+### [20220415郭文贵大直播 ：新中国联邦乌克兰救援队得到了国际组织的工作证](/content/gnews/17/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220415郭文贵大直播 ：新中国联邦的元宇宙已经建成](/content/gnews/14/README.md)
+### [20220415郭文贵大直播 ：新中国联邦的元宇宙已经建成](/content/gnews/18/README.md)
  ` Tokyo Sakura Video Group`
 
-### [拜登在谴责普京时避谈中共对维吾尔族的种族灭绝](/content/gnews/15/README.md)
+### [拜登在谴责普京时避谈中共对维吾尔族的种族灭绝](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [20220415郭文贵大直播 ：国内因疫情封控矛盾激化 需要5月攻台来缓解内部压力](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
-
-### [加拿大安省进入第六波疫情](/content/gnews/17/README.md)
+### [加拿大安省进入第六波疫情](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [秘翻在线:抖音宣布账号将显示IP属地](/content/gnews/19/README.md)
+### [秘翻在线:抖音宣布账号将显示IP属地](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20220415郭文贵大直播 ：NICK分析喜币对于未来经济生活的意义](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [加拿大皇家骑警在镇压期间大肆吃喝](/content/gnews/21/README.md)
+### [加拿大皇家骑警在镇压期间大肆吃喝](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [20220415郭文贵大直播 ：喜币将成为最早的数字法币](/content/gnews/22/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [五月花简报（04/15/2022）](/content/gnews/23/README.md)
  ` mayflowertranslate`

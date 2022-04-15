@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：新中国联邦的元宇宙已经建成
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353686/)
+## 20220415郭文贵乱聊直播 ：鼓励投资喜币，别鼠目寸光，别在拿回SEC钱上出错
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353725/)
 
 作者：东京樱花团小视频组
 

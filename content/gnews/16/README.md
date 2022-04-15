@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：国内因疫情封控矛盾激化 需要5月攻台来缓解内部压力
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353670/)
+## 20220415郭文贵乱聊直播 ：切记！GTV的投资者们无论在任何情况下都不要与警察合作，会带来杀身之祸的！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353711/)
 
 作者：东京樱花团小视频组
 

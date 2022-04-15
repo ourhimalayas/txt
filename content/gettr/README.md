@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 11:51 PM (UTC)`
+
+4/15/2022 Ukrainian Rescue: The fellow fighters of the New Federal State of China have been rescuing Ukrainian refugees for more than a month! We will always stand with Ukraine!<br/><br/>4/15/2022 乌克兰救援连线: 新中国联邦前线的战友参与救援乌克兰难民已超过一个月！我们将永远和乌克兰站在一起！<br/>​​
+![img](https://media.gettr.com/group31/getter/2022/04/15/23/3d0f5f0c-f5a1-fd1a-515d-692b39f02f39/out.jpg)
+
+---
+
+`@miles 4/15/2022 11:41 PM (UTC)`
+
+2022.04.15《The Fringe》 Episode 170<br/>中文同传：https://gettr.com/streaming/p15i05a64f7
+![img](https://media.gettr.com/group46/origin/2022/04/15/23/a5a5f725-f30d-5da5-1d34-5a7d5081551c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 11:05 PM (UTC)`
 
 4/15/2022 Ukrainian Rescue: Fellow fighters of the New Federal State of China will celebrate Passover and Easter in Medyka with Ukrainian refugees and volunteers from all over the world!<br/><br/>4/15/2022 乌克兰救援连线: 新中国联邦前线的战友将在梅迪卡和世界各地的志愿者以及乌克兰难民一起庆祝逾越节和复活节！<br/>
@@ -140,20 +154,6 @@ NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自�
 
 2022.04.15  新中国联邦 | 军情室 乌克兰战况最新进展报告 莫斯科号巡洋舰中弹沉没 美国扩大对乌武器供应 从东风15开始谈东风导弹
 ![img](https://media.gettr.com/group48/origin/2022/04/15/10/7d6d7c34-64d0-d867-6f32-bcf5b2cde2b7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 8:22 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group26/origin/2022/04/15/08/9db50923-bc67-2144-2e79-04560ae5592a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 7:19 AM (UTC)`
-
-《灭共的雪 The terminator snow》🎤卡拉OK版（Karaoke)🎵🎵🎵<br/> <br/>我爱你，塞北的雪<br/>I love you, the northern snow<br/> <br/>飘飘洒洒漫天遍野<br/>drifting in the sky, covering the earth below<br/> <br/>你的舞姿是那样的轻盈 <br/>Your dance is full of grace<br/> <br/>你的心地是那样的纯洁 <br/>and pure is your heart and soul<br/> <br/>你是消灭那共匪的战友 <br/>Fighting with us to terminate the communist bandits<br/> <br/>你是上天派出的使节 <br/>you are the envoy sent from heaven<br/> <br/>灭共的使节 <br/>to take down the CCP<br/> <br/> <br/>我爱你，灭共的雪<br/>I love you, the terminator snow<br/> <br/>轰轰烈烈漫山遍野 <br/>vigorously, all over mountains and fields<br/> <br/>你用自己那无暇的身躯 <br/>With your flawless flakes<br/> <br/>净化被谎言笼罩的世界 <br/>a world covered in lies purified<br/> <br/>你把真相传递给了人间 <br/>You enlightened the world with truth<br/> <br/>唤醒那无尽的黑夜 <br/>awakened the endless night<br/> <br/>沉睡的心田 <br/>and those sleeping souls<br/> <br/>啊 ～～～我爱你<br/>Ah.. I love you<br/> <br/>啊 ～～～灭共的雪 塞北的雪～～～<br/>Ah.. the terminator snow, the northern snow<br/> 
-![img](https://media.gettr.com/group29/getter/2022/04/15/07/8a6f474f-4180-a1e9-e5e8-617b798474da/out.jpg)
 
 ---
 

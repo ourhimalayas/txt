@@ -2,63 +2,32 @@
 ---
 
 
-## 2022年4月15日文贵大直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2353873/)
+## 大直播后记：中共统治下的饥荒即将来临
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2353903/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220415_副本-1.png)
-视频连接：[2022年4月15日 文贵大直播：多地封城疫苗灾难最新信息；中共将打台湾做好备粮备药；疫情战争国内粮食危机分析；喜币是最早最流行数字法币](https://gettr.com/streaming/p15f3i8714f)
+#### 整理：枫叶红了、W2
+编辑：Mohegayer K. Simon
 
-一、前线报道：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-3.png)图片来源：墨尔本雅典娜农场设计组
 
-（1）即将到来复活节和愉悦节，梅迪卡营地所有人员，聚集到新中国联邦大帐篷度过复活节和愉悦节；
 
-（2）新中国联邦度过了怀疑和质疑，得到所有救援组织认可，波兰政府发放给新中国联邦乌克兰救援工作证，上面直接写的新中国联邦；
+嘉宾Nick:我现在从上海这一次的表现可以看到，粮食危机在我看来，它可能体现在两个方面，一个就是它的储备，或者说是这个国家层面的这样的一个供应，就是说它自己的生产还有从国外进口，尤其中共国是一个粮食进口国，那么除了它自己生产的，还有就是从海外能进口得到的粮食。另外一方面就是粮食的配送或者又叫物流，就是粮食从粮仓到达老百姓的手中。现在这两方面都存在巨大的问题，第一个问题就是说它的储备本身，因为疫情、水灾等等，导致中共国自身的粮食储备和生产急剧下降，包括现在北大荒这种东北的肥沃土地都没有人去种植了，你种植的话，还被这个大白给抓走，还有这样荒唐的事情。
 
-（3）新中国联邦义工迎接了一个从乌克兰逃出来的中国大哥和他的太太（乌克兰人）深知中共邪恶，决定留下来加入我们的救援行动；
+另一方面，由于战争的影响和全球疫情的影响，各国都在加强对粮食的管控，刚才PPT里面也讲到了，有30几个国家进行了粮食出口的限制，相较于几周之前增加了25%。各国已经开始实施超过53项对粮食贸易相关的新干预措施，而且未来只增不减，所以说接下来由于从粮食供应就已经面临一个非常大的一个困境，尤其是像中共国在全球围剿的一个状态，自身的这个外汇储备又急剧下滑。国内的经济在全世界都在加息的一个状态下，都在面临一个通胀的问题，中共国刚刚宣布在25号实施这个降准，又释放将近5300亿人民币现金，增加现金流是非常非常恐怖的一个事情，那么这是储备这一段。
 
-二、中共国粮食种植现状：2021年粮食总产量官方数据6.83亿吨，实际不足5亿吨；
+另外从物流配送这一段，大家看到上海的这个情况是什么？是有粮有肉有饭，但是它到不了老百姓的手中，今天在盖特上就看到很多这样的视频，肉烂在大街上，就在小区门外，它到不了老百姓的手里。饭就摆在那里，然后就腐烂变臭，就到不了这些饿的已经就要上吊的、要跳楼的老百姓手里，这个可能是接下来老百姓要面临的一个问题。老百姓可能都动用不到中共的粮食储备，刚才PPT也讲，粮食储备都是留给谁的？都是留给军队、达官显贵等这些人的。在市面上的这些可以用的口粮，它都很可能因为政治的原因和荒唐的疫情控制的原因，甚至可以说是中共主动的、有意的压力测试的原因，把大家封在家里面，而得不到粮食，而得不到粮食就饿死了。所以说我觉得这个一定是要引起全国老百姓的警觉。
 
-三、战争和疫情导致粮价大涨：俄乌占全球谷物出口量的1/3以上；
+那么现在上海是这样的一个情况，其他省市各个地区的老百姓一定要引以为戒，不要等到所谓爹亲娘亲不如党亲的这个中共来拯救你，一定要自己多储备点粮食。今天有一个很好的例子，七哥也发了盖特，北京的某一个小区，成批成批地购入那种大的顶开式的冰箱，或者说四开门的冰箱来储备更多的粮食，到关键的时候你至少手里有粮，心中不慌，可以度过接下来可能要面临的一个危机。
 
-四、中共国粮食饥荒已经到来：
+资料来源：2022年4月15日文贵大直播
 
-1）水灾、干旱等自然灾害导致减产或绝收；
+发布：*wenly*
 
-2）35个国家已限制粮食出口，将无处购买粮食；
-
-3）闭关锁国、外汇耗尽、经济垮塌将无钱购买粮食；
-
-五、中共借疫情管控升级：下一个是北京；
-
-六、中共暴政胜商鞅：上海政府强征百姓公寓为隔离点，民众反抗被镇压；
-
-七、中共即将攻台，做好长期准备：备钱、备水、备药；
-
-八、2021年NFT市场销售额达到210亿美元：G系列和喜马拉雅农场事实上已经形成了新中国联邦的元宇宙；
-
-九、喜币将成为全世界最流行的数字货币：喜币有公开严谨的发行规则，方便快捷的双币支付系统，广泛的实体商业流通，有未来14亿华人的社会基础，有和西方合作的历史，最有希望成为承载未来经济的国际货币；
-
-**注：大直播音频——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
