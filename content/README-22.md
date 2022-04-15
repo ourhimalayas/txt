@@ -16,6 +16,8 @@
 ---
 ## 頁面 22/41 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [41](/content/README-41.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
+
 [文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/content/2019/11/20191108-5173281267885078042.md)
 
 [文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/content/2019/11/20191107-407016786599015158.md)
@@ -63,8 +65,6 @@
 [文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/content/2019/10/20191014-1580303253011226173.md)
 
 [文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/content/2019/10/20191014-3517209154004585431.md)
-
-[文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/2019/10/20191011-1512379949091228539.md)
 
 
 ## 頁面 22/41 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [41](/content/README-41.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
