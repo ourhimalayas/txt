@@ -2,20 +2,24 @@
 ---
 
 
-## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
+## 俄罗斯舰队在黑海的震慑地位发生动摇
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2351641/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
-美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
+#### 撰稿：日本东京方舟农场 北极
 
-其中个别死亡案例统计信息统计如下：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
-由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
+据联合新闻4月15日报道，俄罗斯军队入侵乌克兰后，俄罗斯黑海舰队的战斗力遭受了严重打击，动摇了该舰队在黑海地区的震慑地位。
 
-信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/17-5.png)巡洋舰“莫斯科”号沉没。（图片来自联合新闻）
 
-[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
+英国情报部门指出，俄罗斯军方承认斯拉瓦级“莫斯科号”导弹巡洋舰已经沉没。作为俄罗斯黑海舰队的旗舰，“莫斯科号”担任整个舰队的指挥舰和防空中心枢纽的角色。但在4月13日，乌克兰用两枚海王星导弹袭击了该舰，并最终导致其沉没。
+
+早在3月24日，乌克兰在别尔江斯克摧毁了俄罗斯的“萨拉托夫”号(Saratov) 两栖登陆舰。 英国情报部门表示，“这一事件意味着，在入侵乌克兰之后，俄罗斯的两个关键海军设施遭到破坏。这将迫使俄罗斯重新考虑其在黑海的海上地位。”
+
+参考链接：
+[https://reurl.cc/1ZjeRW](https://reurl.cc/1ZjeRW)
+
+总编： 老孙
+发布：土清风
 
  
 

@@ -2,36 +2,36 @@
 ---
 
 
-## 美国目前九成新冠案例几乎都是Omicron亚变体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
+## MobiKwik钱包在印度撤销了UPI支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351033/)
 
-素材翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
-根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
+整理：li yan li
+编辑：朝花夕拾
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
 
-冠状病毒大流行使 7700 万人陷入“极端贫困”
 
-[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
+4月14日，印度支付机构印度国家支付委员会（NPCI）在Coinbase（纳斯达克股票代码：COIN）宣布在印度推出交易服务后数小时，拒绝承认Coinbase的推出。因此，Coinbase暂停了对统一支付接口（UPI）的支持，随后MobiKwik钱包也撤回了用于数字货币交易的UPI支付。这为该国的数字货币交易者铺设了一条越来越困难的道路。
 
-根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
+MobiKwik是至少六家数字货币交易所的合作伙伴，这些交易所立即停止提供MobiKwik电子钱包选项。现在印度只有少数交易所允许用户进行数字货币交易。
 
-来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
+目前，用户只能通过国家电子资金转账（NEFT）和即时支付服务（IMPS）的方式进行出售，不过没有购买选项。由于选择有限，在WazirX、CoinDCX和Coinbase上存入资金具有挑战性。大多数交易所只允许用户通过网银存入资金。
 
-债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
+在4月7日的发布会上，Coinbase首席执行官布莱恩-阿姆斯特朗表示：“随着我们进入印度市场，我们正在积极尝试一些支付方式和合作伙伴，使我们的客户能够无缝地进行加密货币购买。这些方法之一就是简单易用的快速支付系统UPI”。
 
-素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+然而，在NPCI的声明否认推出使用UPI支付的新数字货币交易所后，Coinbase澄清说：“我们知道NPCI最近发表的关于加密货币交易所使用UPI的声明。我们致力于与NPCI和其他相关部门合作，以确保我们与当地的期望和行业规范保持一致”。
 
-* * *
+新闻链接：[继Coinbase之后，MobiKwik钱包也在印度撤销了UPI支付](https://coingeek.com/after-coinbase-mobikwik-wallet-also-withdraws-upi-payments-in-india/)
 
-审核：文乐
-校对：阿伯塔
-发布：小东
+发布：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

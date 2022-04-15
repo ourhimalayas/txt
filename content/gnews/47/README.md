@@ -2,42 +2,37 @@
 ---
 
 
-## 樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349180/)
+## 美国目前九成新冠案例几乎都是Omicron亚变体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
 
-撰稿：东京樱花团/asket
+素材翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1801.png)[图片来源](https://www.reuters.com/world/europe/eu-closes-loophole-allowing-multimillion-euro-arms-sales-russia-2022-04-14/)
+据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
 
-布鲁塞尔，4月14日（路透社），欧盟已经堵塞了一个漏洞——尽管2014年俄罗斯吞并乌克兰克里米亚地区后禁运生效，但仅去年一年，欧盟政府就向俄罗斯出口了价值数千万欧元的武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
 
-根据欧盟委员会提供的最新数据，欧盟国家去年向俄罗斯出售了价值3900万欧元（4230万美元）的武器和弹药——比2020年增长了50%以上，当时的销售价值为2500万欧元，这一数量与前几年一致。
+冠状病毒大流行使 7700 万人陷入“极端贫困”
 
-欧盟曾在2014年7月禁止向莫斯科出口武器，以回应俄罗斯对克里米亚的吞并，但制裁中的一项条款允许根据2014年8月前签署的合同进行销售。
+[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
 
-拥有大型国防工业的国家，如法国和德国，是最大的出口国之一。
+根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
 
-自2月24日俄罗斯开始入侵乌克兰以来，这个漏洞受到了一些欧盟国家政府的猛烈抨击。
+来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
 
-为了削弱克里姆林宫在乌克兰的战争努力，欧盟已经实施了五轮全面制裁，禁止向俄罗斯出口大量可用于国防工业的各种技术。
+债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
 
-但欧盟外交官和官员告诉路透社，欧盟各国政府未能立即同意取消对武器销售的豁免，直到上周，作为欧盟第五套制裁措施的一部分，这个漏洞才被堵住。
+素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
 
-4月8日发表在欧盟官方杂志上的一份法律文本删除了这项豁免。
+* * *
 
-欧盟委员会在其关于第五套制裁方案的公开通讯中没有提到关闭这个漏洞。
+审核：文乐
+校对：阿伯塔
+发布：小东
 
-立陶宛驻欧盟外交使团的一位发言人说，这项豁免已被取消，但欧盟国家将能够继续把俄罗斯制造的武器运到俄罗斯进行维修，然后再运回欧盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
 
-外交官们说，负责准备制裁的欧盟委员会没有提出关于堵塞漏洞的修正案，因为不清楚它是否得到了欧盟27国的一致政治支持。
-
-但出席会议的外交官说，在上周的一次会议上，在包括波兰和立陶宛在内的一些政府提出新的批评后，特使们同意修改文本。
-
-信息来源：[**EU closes loophole allowing multimillion-euro arms sales to Russia**](https://www.reuters.com/world/europe/eu-closes-loophole-allowing-multimillion-euro-arms-sales-russia-2022-04-14/)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
