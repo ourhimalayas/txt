@@ -2,27 +2,32 @@
 ---
 
 
-## 波兰政府发放新中国联邦乌克兰救援行动志愿者证
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2349172/)
+## 中日财经爆┃美国摩根大通利润暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349178/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃美国摩根大通利润暴跌.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.reuters.com%2Fbusiness%2Ffinance%2Fjpmorgan-profit-falls-trading-slowdown-2022-01-14%2F&amp;psig=AOvVaw2GJoamcw6ejB8HCLAI8fzy&amp;ust=1650077958798000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCOCmxMmJlfcCFQAAAAAdAAAAABAD) 
+摩根大通周三（4月13日）表示，其第一季度的利润已经比去年下降了42%，部分原因是由于通货膨胀率上升，以及在乌克兰冲突中结束了在俄罗斯的业务，该银行减记了近15亿美元的资产。
 
-4月14日，波兰政府发放注名“新中国联邦”乌克兰救援行动的志愿者证。对此，网友表示，这是继比利时后又一主权国家的外交默认。
+这家美国资产规模最大的银行表示，利润降至82.8亿美元，或每股2.63美元，低于华尔街预期的每股2.72美元。收入下降了5%，至315.9亿美元，幅度较小。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-9.jpg)图为波兰政府发放的志愿者证（图片来自GETTR）
+首席执行官Jamie Dimon在一份声明中说，该银行认为 “由于高通胀、供应链问题和乌克兰战争，未来将面临重大的地缘政治和经济挑战。”
 
-今日，新中国联邦的乌克兰前线救援战友发盖文表示，波兰政府发放了新中国联邦乌克兰救援行动的志愿者证，上面直接写的是新中国联邦，并附上注名“New Federal State Of China(新中国联邦)”的志愿者证照片。
+上个月，摩根大通说它正在逐步减少其俄罗斯业务。戴蒙在他的年度股东信中说，虽然管理层并不担心其在俄罗斯的风险敞口，但 “随着时间的推移，它仍然可能损失约10亿美元”。
 
-对此，有网友表示，这是继比利时后又一主权国家在外交上默认新中国联邦。4月12日，比利时总统亚历山大·德克罗接受新中国联邦记者Nicole的采访并主动和穿戴有“Take down the Chinese Communist Party（消灭中国共产党）”标识的黄色马甲及帽子的Nicole合影留念。
+周三，该银行的首席财务官杰里米-巴纳姆(Jeremy Barnum)告诉记者，在承受本季度的打击后，大约还有6亿美元的俄罗斯风险敞口。
 
-另外，截至4月13日，由新中国联邦法治基金和法治社会发起的乌克兰救援行动已经持续了40天，梅迪卡救援站累计接待约11429人，救援巴士累计发车39次，从乌克兰战区安全撤离2009位乌克兰难民。
+信息来源： 
+[**JPMorgan profits crash**](https://dailytelegraph.co.nz/money/jpmorgan-profits-crash/)
 
-参考链接：
-1.[https://www.gettr.com/post/p15ax1f6fc6](https://www.gettr.com/post/p15ax1f6fc6)
-2.[https://www.gettr.com/post/p15a9w113ca](https://www.gettr.com/post/p15a9w113ca)
-
-总编：青城道姑
-校对发布： 文曦
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

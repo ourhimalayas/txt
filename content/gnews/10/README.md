@@ -2,30 +2,30 @@
 ---
 
 
-## 中日财经爆┃中国38个城市住房价格下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349867/)
+## 中共否认囤粮 并称自己是负责任大国还捐助他国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349914/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中国38个城市住房价格下跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fimages01%2F20220116%2Fc8e9ee63585a4b3bb9bca8e2c55c1195.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F517021244_104543&amp;tbnid=ihhf9NkUO9o2IM&amp;vet=12ahUKEwiMjKngtZX3AhVcTPUHHZfdD4gQMygBegUIARCq)
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-79.jpg)
+图片来源：大纪元
 
-中共国家统计局4月15日发布的3月新建房屋价格指数,主要70个城市中38个,与上个月相比下跌。
+根据2022年4月13日 新浪报道，  俄罗斯和乌克兰都是全球主要粮食供应国，受冲突影响，乌克兰的农耕收到重要影响，同时其多个港口无法正常运营，而俄罗斯则正式对外宣布，接下来暂时只对友好国家出口粮食。这几年加上中共新冠疫情肆虐、极端天气层出不穷等各种因素也对粮食供应产生重大影响。
 
-由于中国恒大集团等经营危机,房地产市场停滞不前,各地地方政府正在加速缓和购买管制，以期提振市场信心。
+面对一些对中共国带有偏见的西方政客和媒体把全球粮食供应不足的现状， 造谣称是由于中共囤积粮食导致的， 《南华早报》发表声明，“中共国没有囤积粮食。” 并称中共国每年从海外进口大量农产品，是为了填补国内的缺口，主要是解决结构性短缺的问题，这跟大规模囤积粮食没有任何联系。
 
-一线城市北上广深，在下跌。其他下跌的地方城市更多。但是,在中国经济的压迫压力背景下,地方政府再次增强对房地产的依赖,己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
+中共国专家指出，从全球并不存在严重缺粮的问题， 缺少的是和平与稳定的宏观经济基础，中共国甚至对外出口粮食， 不久前中共国刚刚为斯里兰卡提供了一批粮食援助，中共国作为负责任的大国用实际行动证明不仅没有囤积粮食， 反而有利于保障全球粮食安全。
 
-信息来源：
-[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
+郭先生在3月23日的大直播中就提到俄乌战争开启了真正的潘多拉盒子，接下来就是饥荒，粮食大灾难。 全球抢粮食抢疯了，连欧洲国都是大量地囤积粮食。二级市场的粮食和可储存上的食品暴涨，中国老百姓可能未来要很快到达人吃人的境况！
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+中共官媒一月份的报道就说进口粮食再创新高，而粮食自给率持续下降，中共国面临两个问题，1，作为粮食进口大国，以后还有没有国际愿意卖粮食给中共，2，中共以后还有没有钱进口粮食。老百姓要认清的是，中共囤粮不是为老百姓，只为了盗国贼自己！
+
+**新闻来源：**
+
+[https://k.sina.cn/article\_7517400647\_1c0126e4705903fkhp.html?from=news&sinawapsharesource=newsapp&wm=3200\_0024](https://k.sina.cn/article_7517400647_1c0126e4705903fkhp.html?from=news&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)
+
+#### [https://finance.sina.com.cn/china/2022-01-18/doc-ikyamrmz5813015.shtml](https://finance.sina.com.cn/china/2022-01-18/doc-ikyamrmz5813015.shtml)
+
+
 
  
 

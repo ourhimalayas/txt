@@ -2,26 +2,39 @@
 ---
 
 
-## 传统基金会主席：全球许多恐怖事件都源自中共 必须击败中共
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349525/)
+## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-98.jpg)
-美国传统基金会主席凯文·罗伯茨接受《福克斯》记者玛丽亚采访（图片来自视频截图）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美国保守派智库“传统基金会”的主席凯文·罗伯茨近日在接受《福克斯》记者玛丽亚采访时表示，全球许多恐怖事件都起源于中共，必须抗击并击败中共。
+翻译/编辑：小红帽
 
-罗伯茨表示，美国无论是民主党还是共和党，都应该勇于对抗世界各地的邪恶政权。他指出，全球每天发生的许多恐怖事件都源自中国共产党，中共的邪恶本性已十分清晰可见。拜登政府现在拥有一个对抗这个邪恶政权的黄金机会，并且可以采纳多种手段。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
 
-罗伯茨强调，对抗中共等邪恶政权，首先是为了美国人民；其次也是为了全世界的自由人民以及那些渴望自由的人。
 
-罗伯茨还表示，传统基金会将竭尽所能揭露中共的疯狂恶行，让人们认识到，为了拯救世界的自由，必须与中共对抗，并击败中共。
+根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
 
-新闻链接：
+Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
 
-[https://gettr.com/post/p1592qs695c](https://gettr.com/post/p1592qs695c)
+这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
 
-* * *
+这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
+
+在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
+
+检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
+
+目前尚不清楚同谋者是否是以太坊基金会的其他员工。
+
+资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

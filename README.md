@@ -15,116 +15,116 @@
 
 ---
 
-### [COVID-19疫苗副作用集萃（2022.4.15）第三针加强针](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [管控区附近的姥姥经打点终于住进医院背后的辛酸与无奈](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [这次是海洋文明与陆地文明的再一次重创与PK](/content/gnews/3/README.md)
+### [中共实施“被赋黄码”不是为了防疫](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [远离快乐奴役你的第一步](/content/gnews/4/README.md)
+### [2022/04/11 墙内世界](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [上海](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [中共否认囤粮 并称自己是负责任大国还捐助他国](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [韩国时隔二年解除新冠病毒的规定](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来](/content/gnews/7/README.md)
+### [新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海警察暴力镇压民众时怒吼：中共即将与美国开战](/content/gnews/8/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.15）第三针加强针](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [管控区附近的姥姥经打点终于住进医院背后的辛酸与无奈](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [这次是海洋文明与陆地文明的再一次重创与PK](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [远离快乐奴役你的第一步](/content/gnews/8/README.md)
+ ` 纽约香草山MOS03`
+
+### [【秘翻北美时评】上海市张江镇市民冲破封锁走向街头](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共否认囤粮 并称自己是负责任大国还捐助他国](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [韩国时隔二年解除新冠病毒的规定](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [上海警察暴力镇压民众时怒吼：中共即将与美国开战](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [中央情报局警告：绝望的普京可能祭出战术核武器](/content/gnews/9/README.md)
+### [中央情报局警告：绝望的普京可能祭出战术核武器](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃中国38个城市住房价格下跌](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰全境拉响空袭警报，警告局势升级](/content/gnews/11/README.md)
+### [乌克兰全境拉响空袭警报，警告局势升级](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|俄军长期囚禁并轮奸乌克兰少女](/content/gnews/12/README.md)
+### [视频|俄军长期囚禁并轮奸乌克兰少女](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [视频|纽约地铁枪击案造成十余人受伤](/content/gnews/13/README.md)
- ` MOSVIDEO`
-
-### [有声| 纽约地铁枪击案造成十余人受伤](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [大直播后记：台湾危也](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [俄国防部确认导弹巡洋舰“莫斯科”号沉没](/content/gnews/16/README.md)
+### [俄国防部确认导弹巡洋舰“莫斯科”号沉没](/content/gnews/17/README.md)
  ` 波士顿五月花农场金融部`
 
-### [由于无限期的封锁，巴西到上海港的肉类货物运输中断](/content/gnews/17/README.md)
+### [由于无限期的封锁，巴西到上海港的肉类货物运输中断](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑](/content/gnews/18/README.md)
+### [教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [传统基金会主席：全球许多恐怖事件都源自中共 必须击败中共](/content/gnews/19/README.md)
+### [传统基金会主席：全球许多恐怖事件都源自中共 必须击败中共](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美参众议员访台，与蔡英文总统会晤](/content/gnews/20/README.md)
+### [美参众议员访台，与蔡英文总统会晤](/content/gnews/21/README.md)
  ` 银河歌舞厅`
 
-### [巴菲特针对推特控股之事说“马斯克在赢，这是美国”](/content/gnews/21/README.md)
+### [巴菲特针对推特控股之事说“马斯克在赢，这是美国”](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德军火商将向乌克兰提供豹式1型坦克](/content/gnews/22/README.md)
+### [德军火商将向乌克兰提供豹式1型坦克](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [巴西人道救援 接收乌克兰难民](/content/gnews/23/README.md)
+### [巴西人道救援 接收乌克兰难民](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/24/README.md)
+### [拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [拜登宣布扩大使用乙醇混合汽油以降低美国燃料价格](/content/gnews/25/README.md)
+### [拜登宣布扩大使用乙醇混合汽油以降低美国燃料价格](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [援乌营地心系孩子们的义工Ben](/content/gnews/26/README.md)
+### [援乌营地心系孩子们的义工Ben](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美安全顾问沙利文重申美对台安全承诺](/content/gnews/27/README.md)
+### [美安全顾问沙利文重申美对台安全承诺](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在39.000 HDO](/content/gnews/28/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在39.000 HDO](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花时政┃上海封城惨剧：民众在呼救，中共在删帖！](/content/gnews/29/README.md)
+### [樱花时政┃上海封城惨剧：民众在呼救，中共在删帖！](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞](/content/gnews/30/README.md)
+### [樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃美国摩根大通利润暴跌](/content/gnews/31/README.md)
+### [中日财经爆┃美国摩根大通利润暴跌](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [波兰政府发放新中国联邦乌克兰救援行动志愿者证](/content/gnews/32/README.md)
+### [波兰政府发放新中国联邦乌克兰救援行动志愿者证](/content/gnews/33/README.md)
  ` 日本东京方舟农场`
 
-### [上海沦为习近平坚守清零政策的炼狱场](/content/gnews/33/README.md)
+### [上海沦为习近平坚守清零政策的炼狱场](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [中共卫健委救治组专家康焰:无症状感染者不要需特别治疗](/content/gnews/34/README.md)
+### [中共卫健委救治组专家康焰:无症状感染者不要需特别治疗](/content/gnews/35/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [马斯克出价430亿美元收购推特称要打造言论自由平台](/content/gnews/35/README.md)
+### [马斯克出价430亿美元收购推特称要打造言论自由平台](/content/gnews/36/README.md)
  ` 蓝莲花农场`
 
-### [玛莎·布莱克本：习近平为寻求第三个任期，加倍实施中共病毒清零政策](/content/gnews/36/README.md)
+### [玛莎·布莱克本：习近平为寻求第三个任期，加倍实施中共病毒清零政策](/content/gnews/37/README.md)
  ` 美国政要直译推`
-
-### [中共官媒公然把病毒来源引向莫德纳及美国政府和军方](/content/gnews/37/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [有声|对抗中共影响力 美国高层官员将访问所罗门](/content/gnews/38/README.md)
  ` 【🌹玫瑰新闻】`
