@@ -2,30 +2,25 @@
 ---
 
 
-## 加拿大国家储备中共病毒疫苗开始大量过期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352786/)
+## 美国下令一些领事人员离开上海 并建议美国人重新考虑前往中国
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2353112/)
 
-作者：Spirit
+编辑：幸运草
+发稿：am夏天
+德国纽伦堡正义农场
 
-据当地媒体 4月13日的报道，加拿大卫生部表示，由于民众接种意愿大幅下降，自1月份以来，近150万剂中共病毒疫苗已经过期。
+根据当地时间4月11日发布的一份声明，美国国务院已下令所有在上海的非紧急政府工作人员及其家人离开，并告诉美国公民重新考虑前往中国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-10.55.20-AM.png)
+美国国务院表示：“考虑到任意执行当地法律和与新冠相关的限制，需要重新考虑前往中华人民共和国的旅行。”
 
-这150万剂过期疫苗在2020年12月以来交付给加拿大的1.18亿剂疫苗中，约占1.3%的份额。另外，国家库存的1800多万剂绝大部分将在未来四个月内过期。卫生部说，过期的疫苗不会被马上扔掉，该机构正在等待制造商是否可以延长有效期的决定。
+该声明并称：“由于与新冠相关的限制，包括父母和子女被分离的风险，不要前往中国香港特别行政区、吉林省和上海市。由于当地法律的任意执行，需要重新考虑前往中国香港特别行政区的旅行。”
 
-据悉，加拿大总理贾斯汀·特鲁多已经向国内外七家疫苗制造商，为3500万加拿大居民订购了总数达4亿剂的中共病毒疫苗，人均11剂。目前已借捐赠之名，规避了价值7亿加元的疫苗过期风险。分析人士认为，人们逐渐意识到中共病毒疫苗不能阻止感染和传播病毒，反而有长期的副作用，因此接种意愿陡然降低。各国政府将很难继续推进疫苗的施打。继日本爆出疫苗大量过期后，同样的情况也在加拿大发生。预计未来一段时间，全球有越来越多的中共病毒疫苗因被弃用而过期。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-15-at-20.42.19.png)
 
-参考链接：
-1.[COVID-19 vaccines in national stockpile starting to expire as uptake slows](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
-2. [Canada has ordered more than 400 million COVID-19 vaccine shots: Here’s the progress report](https://www.cbc.ca/news/politics/canada-vaccine-deliveries-progress-report-1.6034624?__vfz=medium%3Dsharebar)
+在国务院发表这一声明之前，美国驻华使团上周末也宣布，非紧急政府雇员及其家属可以自愿离开上海。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：宁文静
-编辑：飞虹
-审核：飞虹
-校正/发稿：谐趣园
-
+美国在4月8日发布了一份旅行警告，用同样的语言警告“任意执行当地法律”和新冠限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

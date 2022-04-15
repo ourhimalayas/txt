@@ -2,29 +2,21 @@
 ---
 
 
-## 有声｜中共松绑政策救房市 地方融资仍困难
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2351042/)
+## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
 
-By:**秘翻新闻**
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
+美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
 
-**2022-04-15**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-20.png)
-[新唐人](https://www.ntdtv.com/gb/2022/04/14/a103400366.html)北京时间4月14日消息，近年来，中共国多家大型房产开发商爆发债务危机，房市也陷入了低迷。最近中共政府为了要稳住房市，在多地放松对房地产行业的限制，但不少房产开发商表示，各地方政府并没有放宽贷款审核的条件，要融资还是很困难。
+其中个别死亡案例统计信息统计如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
+由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
 
-据报道，今年以来，中国多个城市分别从限购、限贷、限售等方面，相继对楼市政策进行松绑。目前中共国累计已有60多个城市推出了楼市松绑政策。
+信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
 
-但据外媒报导，有5家排名中共国前50强的房地产开发商透露，虽然各地频频释出松绑政策，但他们无法从银行获得新贷款，而销售收入又一直在减少。
+[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
 
-外界评论认为，银行不愿放贷的原因是因为现在出现了大批量大规模违约的问题，导致银行不敢放贷给民营房地产开发商。
-
-此外，房市低迷的另一个原因，是这几年中共“国进民退”的经济政策，导致很多民营企业对市场不看好，甚至资金外流，而且外资也在大量撤出中共国，再加上疫情的影响，各行各业都面临挑战。
-
-秘翻新闻 二丫编辑报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

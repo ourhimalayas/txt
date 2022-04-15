@@ -2,34 +2,27 @@
 ---
 
 
-## 莫斯科号导弹巡洋舰沉没对俄罗斯造成多大损失
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353338/)
+## 渥太华公立学校恢复在校内配戴口罩
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353347/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+采编：加拿大温哥华扬帆农场 – 青青
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500516141.png)图片来源：CTV News
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/TXFKJFTUTNKUFIQUHSHSGWQGQA.jpg)
+据CTV新闻4月13日报道，渥太华公立学校董事会日前宣布：从即日起，所有幼儿园及学校的工作人员、学生和访客在校内必须配戴口罩，但学生不会因拒绝该规定而被停学或开除。
 
+据悉，除了在餐饮、体育课等特殊情况时可以摘下口罩外，如学生在没有豁免的情况下拒绝遵守该项规定，学校将与其家长或监护人联系，以协助学生达到口罩要求，或申请豁免配戴口罩。
 
-图片来源：路透社
+渥太华教育总监对此表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。此外，该市卫生官员也敦促各企业雇主鼓励其员工在室内配戴口罩，以限制病毒传播。
 
-4 月 15 日（路透社）俄罗斯证实，其黑海舰队的旗舰莫斯科导弹巡洋舰在被拖到港口时沉没，据称这是因为船上存放的弹药发生火灾和爆炸。
+校对编辑：硫酸羟氯喹64
 
-乌克兰表示，莫斯科号被其军队从海岸发射的导弹袭击，该导弹撕裂了这艘庞大的苏联时代船只的船体。俄罗斯国防部尚未证实该事件的版本。路透社无法核实任何一方的说法。
+发稿：文莱
 
-下沉使俄罗斯丧失了哪些能力？
-
-俄罗斯在克里米亚部署了强大的防空系统，并于 2014 年从乌克兰手中夺取了该系统，但莫斯科能够为整个黑海舰队提供远程和移动防空保护，并且是一个浮动指挥和控制中心。它的损失降低了舰队的防空能力，特别是在远程任务中。
-
-这艘船有大约 500 名船员，俄罗斯称他们已成功撤离到其他船只，然后于周五返回其位于克里米亚的母港塞瓦斯托波尔。乌克兰曾暗示可能有人死亡，但俄罗斯尚未就此事发表任何评论。
-
-莫斯科号的沉没不太可能改变整个战争进程，英国国防部表示，其损失可能会促使俄罗斯重新审视其在黑海的海军态势。不愿透露姓名的美国官员表示，虽然沉没将产生象征性影响，并可能引发对俄罗斯长期海军能力的质疑，但不太可能对冲突进程产生重大影响。到目前为止，俄罗斯海军还没有发挥重要作用。
-
-🔗[https://www.reuters.com/world/europe/how-big-loss-russia-is-sinking-moskva-missile-cruiser-2022-04-15/](https://www.reuters.com/world/europe/how-big-loss-russia-is-sinking-moskva-missile-cruiser-2022-04-15/)
-
-编辑发表： Shuizhuyu
+新闻来源： [https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
 
  
 

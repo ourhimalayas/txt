@@ -2,20 +2,30 @@
 ---
 
 
-## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
+## 俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2351704/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
-美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
+**撰稿：日本东京方舟农场  子辰**
 
-其中个别死亡案例统计信息统计如下：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
-由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
+4月14日，俄罗斯国防部宣布，俄罗斯在黑海的主要军舰莫斯科娃号已沉没，乌克兰称这是导弹袭击的结果，但俄罗斯则表示是船上装载的弹药发生爆炸所致。俄罗斯国防部一直没有承认乌克兰导弹袭击事件。
 
-信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-21.jpg)（图片来自大纪元）
 
-[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
+俄罗斯国防部周四发表声明，导弹巡洋舰莫斯科娃号（Moskva）已经沉没。声明说：“在将巡洋舰莫斯科号拖到目的港期间，由于弹药爆炸引起的火灾造成船体损坏，该船失去了稳定性。在暴风雨中，该船沉没了。”
+
+乌克兰方面则表示，乌军用乌克兰制造的海王星反舰导弹击中了这艘俄罗斯旗舰。乌克兰的声明表示：“在黑海作战区，海王星反舰巡航导弹击中了俄罗斯黑海舰队旗舰莫斯科娃号巡洋舰，使其受到严重破坏。”称该军舰“发生了火灾，其船组的其它单位试图提供帮助，但风暴和强大的弹药爆炸将巡洋舰掀翻并使其开始下沉。”
+
+美国五角大楼发言人约翰‧柯比（John Kirby）也于周四证实，俄罗斯黑海舰队的旗舰发生爆炸。他说，“我们无法独立正式确认导致这艘船现在沉没的确切原因，但我们也无法反驳乌克兰方面的这一点（导弹击中莫斯科号）。”
+
+据悉，莫斯科娃号长611英尺（186米），是俄罗斯海军舰队在黑海的骄傲。该军舰装备了一系列反舰和防空导弹，鱼雷和海军舰炮以及近距离导弹防御系统。
+
+此外，美国海军退役上校、美国太平洋司令部联合情报中心前作战主任卡尔‧舒斯特（Carl Schuster）对CNN说，所有这些都说明该军舰弹药库中有大量爆炸性弹药。并表示，如果乌克兰袭击了该军舰这是真的，莫斯科娃号可能是有史以来被导弹击中的最大军舰。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/14/n13711974.htm](https://www.epochtimes.com/gb/22/4/14/n13711974.htm)
+
+总编：老孙
+校对发布：Linda
 
  
 

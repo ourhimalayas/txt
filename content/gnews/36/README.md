@@ -2,27 +2,35 @@
 ---
 
 
-## 樱花时政┃俄为销毁屠杀证据，导弹袭击基辅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2351658/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
 
-撰稿人：东京樱花团/风翼
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-159.png)图片来源于网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
 
-据A NN新闻速报：4月15日下午6时左右，俄罗斯国防部宣布用巡航导弹袭击了乌克兰首都基辅郊区的一处军事设施，称这次袭击的目标是位于基辅市郊区的一家生产和维修反舰导弹的工厂。其袭击的原因是为了报基辅克兰军队对俄罗斯领土的袭击。它还表示，它将扩大对基辅郊区的攻击，以回应乌克兰军队的攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
 
-4月13日乌克兰发表的为增援马里乌波尔海军陆战队第36旅一部分人员遭到俄军炮火袭击，因弹药用尽一部分军人被俘的消息，到今日俄罗斯的导弹袭击，据分析，其因屠杀毁尸灭迹的目的大于破环军事设施的目的。根据俄军自入侵乌克兰开始，残杀无辜市民的恶劣行径被国际社会严厉谴责，引起的各种强烈谴责与制裁。而这次乌军被俘事件可以想见可能屠杀人数众多，俄为转移注意力而采取的行动。
+文章仅代表作者本人观点，与Gnews无关
 
-信息来源：[キーウ郊外の軍事施設を巡航ミサイルで攻撃 ロシア国防省が発表](https://times.abema.tv/articles/-/10020630)
+视频参看：
+[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
+[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
 
  
 

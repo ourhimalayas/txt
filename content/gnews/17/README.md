@@ -2,43 +2,29 @@
 ---
 
 
-## 乌克兰人在马里乌波尔钢铁厂坚持
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353311/)
+## 有声|郭文贵先生灭共布局
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2353326/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+早在2018年10月29日，郭文贵先生谈到，美国著名的军火商邀请世界30多位国家元首、和金融集团，成立全球反共联盟，坚决反对直接投资中国共产党，并成立公益基金，拯救被陷害的华人、西藏人、新疆人。为维护美国的自由、民主、法治，坚守二战后的国际新秩序，和保护美国在台湾的利益，维护美国的尊严，一旦中共入侵台湾，美国明确表态，一定参战。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+郭先生在4月11日的盖特视频中揭露，鉴于当前中共国疫情状况，中共将于5月前进攻台湾。
 
+文字版原文：[郭文贵先生灭共布局](https://gnews.org/zh-hans/2351268/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/NGTFN2NGNRIEJGGLDLEY33B2IU.jpg)
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-图片来源：路透社
-
-4 月 15 日（路透社）本周，在被围困的马里乌波尔（Mariupol）的一个炼钢区发生爆炸，浓烟滚滚，随着俄罗斯试图完全控制其迄今为止最大的城市，乌克兰军队在该地区躲藏起来。
-
-亚速斯塔尔钢铁厂是欧洲最大的冶金厂之一，在俄罗斯入侵乌克兰 7 周后，乌克兰军队的炮火、人数超过了他们，并被包围了这个厂子，它已成为一个恰当的世界末日堡垒。
-
-在遭受数周炮击破坏的南部港口东部，该工厂位于俯瞰亚速海的工业区，占地超过 11 平方公里（4.25 平方英里），拥有无数建筑物、高炉和铁轨.
-
-“亚速斯塔尔 工厂是一个巨大的空间，拥有如此多的建筑物，俄罗斯人根本找不到乌克兰军队，”驻基辅的军事分析家 Oleh Zhdanov 说。“这就是俄罗斯人开始谈论尝试化学袭击的原因，这是将乌克兰军队消灭的唯一方法。”
-
-乌克兰表示，它正在检查俄罗斯可能在马里乌波尔使用化学武器的未经证实的信息。俄罗斯支持的乌克兰分裂分子否认使用化学武器。
-
-在和平时期，Azovstal 钢铁厂每年生产 400 万吨钢、350 万吨铁水和 120 万吨轧钢。
-
-与该市的其他 Illich Steel and Iron Works 一样，亚速斯塔尔由 Metinvest 持有，该集团由乌克兰首富亿万富翁 Rinat Akhmetov 控制。
-
-周二，美国私营卫星公司 Maxar 能够从太空俯瞰激烈的战斗。
-
-报告说：“在该市西部和东部地区以及亚速斯塔尔 钢铁厂内部和附近，观察到烟雾和火灾，是来自俄罗斯和乌克兰军队之间持续战斗的地点。”
-
-一位欧盟安全消息人士告诉路透社，很难说乌克兰人能坚持多久，俄罗斯也很难因为工业园区而占领整个城市。 “钢铁厂下面有地下隧道系统。”
-
-🔗[https://www.reuters.com/world/europe/fortress-city-ukrainians-cling-steel-plant-mariupol-2022-04-15/](https://www.reuters.com/world/europe/fortress-city-ukrainians-cling-steel-plant-mariupol-2022-04-15/)
-
-编辑发表： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

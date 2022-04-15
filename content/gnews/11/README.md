@@ -2,27 +2,25 @@
 ---
 
 
-## 渥太华公立学校恢复在校内配戴口罩
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353347/)
+## 安大略省第六波新冠病毒疫情
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353366/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+采编/撰稿： 加拿大温哥华扬帆农场 – 文莱
 
-撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500516141.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500520611.png)图片来源：CTV News
 
 
-据CTV新闻4月13日报道，渥太华公立学校董事会日前宣布：从即日起，所有幼儿园及学校的工作人员、学生和访客在校内必须配戴口罩，但学生不会因拒绝该规定而被停学或开除。
+据【CTV新闻】4月14日报道，安大略省当天大约有65%的医院重症监护患者正在接受“新冠病毒”治疗，而其余35%的患者在因其他疾病入院后也感染该病毒，其中有23人因此死亡。
 
-据悉，除了在餐饮、体育课等特殊情况时可以摘下口罩外，如学生在没有豁免的情况下拒绝遵守该项规定，学校将与其家长或监护人联系，以协助学生达到口罩要求，或申请豁免配戴口罩。
+报道称，安省因奥密克戎新变体感染而住院的患者在过去五天中持续增加。同时，生活废水数据表明，该省的感染人数不断飙升，预估值约为每天10万例。此外，目前全省人口的病毒阳性率约为18.1%，高于4月初的17%。
 
-渥太华教育总监对此表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。此外，该市卫生官员也敦促各企业雇主鼓励其员工在室内配戴口罩，以限制病毒传播。
+据最新疫情报告显示，由于病毒检测设备和人员的严重不足，安省真实确诊率应该被大幅低估。卫生部门因此将于近期发布最新数据模型，以掌握第六波疫情的数据变化。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源： [https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
+新闻来源：[https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940](https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940)
 
  
 

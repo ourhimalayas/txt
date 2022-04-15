@@ -2,29 +2,27 @@
 ---
 
 
-## 特鲁多反对艾伯塔省关闭毒品消费场所
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353394/)
+## 加拿大武装部队将参与乌克兰救援
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353403/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+采编：加拿大温哥华扬帆农场 – 青青
 
-撰稿：加拿大温哥华扬帆农场 – 晨熹
+撰稿：加拿大温哥华扬帆农场 – 文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500528271.png)图片来源：True North
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500532591-1.png)图片来源：CTV News
 
 
-据加拿大【真北方】4月12日报道，特鲁多当天在埃德蒙顿推动其政府的2022年预算时，抨击了艾伯塔省长肯尼为控制高犯罪率和有效减少毒品致死问题而部分关闭该省指定吸毒场所的决定。
+据加拿大【CTV新闻】4月14日报道，加拿大武装部队约150名军人将很快被部署在波兰靠乌克兰边境，以协同管理驻留在波兰的战争难民，并帮助当地数千名乌克兰人前往加拿大。
 
-据悉，阿尔伯塔省在2016至2021年间约有2000人因吸毒过量致死。省长肯尼因此决定自2020年起陆续关闭并重新安置了部分受监管的毒品消费场所。
+加拿大国防部长对此表示：除了在波兰提供基本人道救援和医疗服务外，还将在当地确认乌克兰人作为加拿大移民、难民和公民的身份。同时，加拿大武装部队还将与波兰军方联合行动，以增强北约在中东欧的威慑力量。
 
-对于肯尼的以上措施，特鲁多表示反对并坚持认为阿尔伯塔省政府应该保障安全的毒品消费场所，以解决因摄毒过量而造成的人员伤亡。据悉，埃德蒙顿市长和自由党议员日前启动了对拥有海洛因和可卡因等毒品申请豁免权的联邦法律。
+此外，联邦政府最近制定的乌克兰紧急旅行授权计划将允许来加拿大的乌克兰人停留三年之久，而且其任何国籍的直系亲属都可获得临时居留权，并有权在加拿大工作或学习。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/](https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/)
-
-
+新闻来源：[https://www.ctvnews.ca/politics/canadian-military-deploying-to-poland-to-assist-ukrainian-refugees-1.5861960](https://www.ctvnews.ca/politics/canadian-military-deploying-to-poland-to-assist-ukrainian-refugees-1.5861960)
 
  
 

@@ -2,29 +2,30 @@
 ---
 
 
-## 有声|以歌灭共成绩斐然 意义重大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2353385/)
+## 特鲁多反对艾伯塔省关闭毒品消费场所
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353394/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-自上榜以来，《灭共的雪》和《铁锁梦》连续多日占领多个国家和地区iTunes排行榜前列。
+采编：加拿大温哥华扬帆农场 – 文莱
 
-郭文贵先生在4月10日的大直播中表示，因为中共的威逼利诱，两首灭共歌曲上榜之路艰辛。成功上榜后，中共又恶意篡改数据。即便如此，这两首歌仍在中共国内受众极广，达十几亿的次播放量。 两首歌曲同时打榜，也震撼了日本、台湾等业界人士。
+撰稿：加拿大温哥华扬帆农场 – 晨熹
 
-文字版原文：[以歌灭共成绩斐然 意义重大](https://gnews.org/zh-hans/2350708/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500528271.png)图片来源：True North
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+据加拿大【真北方】4月12日报道，特鲁多当天在埃德蒙顿推动其政府的2022年预算时，抨击了艾伯塔省长肯尼为控制高犯罪率和有效减少毒品致死问题而部分关闭该省指定吸毒场所的决定。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据悉，阿尔伯塔省在2016至2021年间约有2000人因吸毒过量致死。省长肯尼因此决定自2020年起陆续关闭并重新安置了部分受监管的毒品消费场所。
+
+对于肯尼的以上措施，特鲁多表示反对并坚持认为阿尔伯塔省政府应该保障安全的毒品消费场所，以解决因摄毒过量而造成的人员伤亡。据悉，埃德蒙顿市长和自由党议员日前启动了对拥有海洛因和可卡因等毒品申请豁免权的联邦法律。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/](https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
