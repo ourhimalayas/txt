@@ -2,8 +2,8 @@
 ---
 
 
-## 共匪攻台美国一定会轰炸共匪军事基地，现在共产党已经将粮食武器化
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348210/)
+## 强烈建议SEC退款的战友需要资金流动的不要投新平台，新平台适合长线投资
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348225/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,32 +2,20 @@
 ---
 
 
-## 【G时新闻】台湾军方卖台贼购买了中共国的无人机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2348167/)
+## 未来新疆西藏香港台湾等都会独立形成联邦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348216/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月14日早，郭先生在直播中提到台湾目前的情况。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-郭先生爆料，台湾此次参与对抗中共入侵的无人机正是来自中共大陆制造。中共先把生产好的无人机卖到澳大利亚，然后台湾的卖台贼再买回来。郭先生说未来中共一旦打台湾，可能出卖老百姓的就是被中共收买的台湾军方和情报系统的卖台贼们。
+*发布：陶子*
 
-世界局势正在日益剧变，中共大概可能会在4月底5月份入侵台湾。而现在中共对卖台贼正在进行着战前最猛烈的一波洗脑和策反。中共给台湾一些要员大量赠送美元现金和黄金，有一些给到台湾手里，有一些给到台湾那些身在上海的家人手中。中共同时承诺一旦开战，卖台贼的家人会得到很好的照顾，并且战后的土地分配问题也已经谈妥。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-盖特链接：[https://www.gettr.com/post/p15bgg5af85](https://www.gettr.com/post/p15bgg5af85)
-
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

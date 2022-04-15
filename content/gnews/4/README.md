@@ -2,8 +2,8 @@
 ---
 
 
-## 未来的中国人最受尊重就是加入新中国联邦人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348211/)
+## 中共和俄罗斯是全世界独裁和谎言的集大成者
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348230/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
