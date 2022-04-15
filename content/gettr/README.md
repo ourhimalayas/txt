@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 2:01 AM (UTC)`
+
+2022.04.14  新中国联邦 | 喜财经   喜币成为全世界最流行、最早的数字法币
+![img](https://media.gettr.com/group20/origin/2022/04/15/01/cfce6d09-1ef5-186f-29eb-d98437bf86e5/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/15/2022 1:27 AM (UTC)`
 
 04/14/2022 on the 11th  day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Hong Kong 🇭🇰, New Zealand 🇳🇿, Singapore 🇸🇬 , Laos 🇱🇦 Rock Song Charts<br/>#2🥈 on Taiwan 🇹🇼, Cambodia 🇰🇭 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/>#3🥉 on Laos 🇱🇦 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Cambodia,Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2346562/
@@ -145,13 +152,6 @@
 
 【Ukrainian Rescue】 4/13/2022 The fellow fighters of the NFSC and ROLF are invited by the local Polish Red Cross to urgently provide supplies to more than 100 Ukrainian refugee children. These children need to  immediately leave by a bus to a place 5 hours away from the Medyka camp. The local Polish Red Cross staff is very grateful for the help of our NFSC fellow fighters, and invite us to help them in their bi-weekly bus rescue operation. They will bring the photos of the rescued children in their next rescue operation in two weeks.<br/><br/>【乌克兰救援】 4/13/2022 新中国联邦法治基金战友应波兰当地红十字会的邀请，为100多名乌克兰难民儿童紧急提供物资，这些儿童需要乘坐大巴立即前往梅迪卡营地5小时之外的地点。波兰当地红十字会非常感激新中国联邦战友的帮助，邀请我们为他们每两周一次的大巴救援行动提供帮助，并表示他们将在两周后救援行动时带来这些被救孩子的照片。<br/>
 ![img](https://media.gettr.com/group47/getter/2022/04/14/14/6c2e18a5-72cd-1fb4-e179-894539855c67/out.jpg)
-
----
-
-`@miles 4/14/2022 2:45 PM (UTC)`
-
-04.14.2022新中国联邦法治基金乌克兰人道救援行动-波兰Medyka基地突发新闻
-![img](https://media.gettr.com/group23/origin/2022/04/14/14/6804f375-ccd7-2bd6-b0c0-38912aec9bde/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
