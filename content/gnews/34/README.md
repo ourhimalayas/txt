@@ -2,42 +2,33 @@
 ---
 
 
-## 纽约地铁枪击案的嫌犯被举报后被捕
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350958/)
+## 美国国会代表团突访台湾，中共台湾周边军演恫吓
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351009/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
-据多个报道，纽约地铁大规模枪击案的疑犯被举报电话提供线索后已被捕。
+#### 【雅典娜观察】和您一起洞察世界
 
-官员们说，62岁的弗兰克·詹姆斯（Frank James）周三下午[被捕](https://www.insider.com/nyc-subway-shooting-suspect-arrested-2022-4)，他与布鲁克林日落公园附近的地铁列车上发生的大规模枪击案有关，因为当局收到了关于他的行踪的线索。他被指控犯有联邦恐怖主义罪行。
+翻译/编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1863.png)图片来源：新闻链接
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1857.png)
 
-在嫌疑人被列为枪击案的“疑犯”后，警方启动了对他的搜索。两个执法部门的消息来源告诉CNN和美联社，是詹姆斯向犯罪制止者热线（Crime Stoppers hotline）举报了他的位置。
 
-“犯罪制止者”接到一个电话……那个人说，“你知道，我认为你在找我。我看到新闻上到处都是我的照片，我就在这个麦当劳附近，”一位执法人士周三[告诉](https://nypost.com/2022/04/13/brooklyn-shooting-suspect-frank-james-in-police-custody/)《纽约邮报》。
+周五中共在台湾周边进行了军事演习，正值美国国会代表团突访该岛，中共解放军东部战区发言人称，此举旨在针对美国发出的“错误信号”的回应。美国参议院外交关系委员会主席、参议员鲍勃·梅南德斯在周五与台湾总统蔡英文的会晤中表示，**台湾作为技术枢纽是一个“具有全球意义的国家”。**美国国会代表团由六名跨党派参议员组成，正值台湾面临中共重重压力之时，此次访问彰显美国对这个民主岛屿的支持。
+梅南德斯的说法，激怒了北京，它驳斥了任何关于台湾是一个国家的说法。虽然美国与台湾没有正式关系，但却是其最重要的国际支持者和武器供应商。
 
-纽约市警察局部门主管肯尼斯·科里（Kenneth Corey）说，当警察到达曼哈顿东村附近的那家麦当劳时，嫌犯不在楼里。当局在周围地区开车，然后在附近逮捕了他。他们在“圣马克斯和第一街的拐角处”将其拘留，科里说。
+**“****台湾生产了全球90%的高端半导体产品，是一个具有全球意义的国家。因此，应该理解台湾的安全具有全球影响，”梅南德斯在总统办公室的会议上说，同时全网进行了直播。**
 
-“我的纽约同胞们，我们抓住了他。”纽约市长埃里克·亚当斯（Eric Adams）在詹姆斯被捕后说。
+俄罗斯入侵乌克兰也让台北对北京可能利用乌克兰危机而采取行动保持警惕，美国政府尚未报告中共任何不寻常的活动。
+共和党参议员林赛·格雷厄姆告诉蔡英文总统，乌克兰战争和中共的挑衅行为让美国的舆论空前团结。“我们会和你站在一起，放弃台湾就是放弃民主自由。”
+该代表团于周四晚些时候抵达，进行为期两天的突访，还将会见台湾外交部长吴钊燮和国防部长邱国正。
 
-他的被捕为周二美东时间上午8:30左右开始的搜索画上了句号，当时一名枪手引爆了两枚烟雾弹，并在一辆开往曼哈顿的N线列车驶入日落公园的36街地铁站时开火。
+参考链接：[China holds military drills around Taiwan as US delegation visits | Arab News](https://www.arabnews.com/node/2063726/world)
 
-警方说，嫌犯至少开了33枪，击中了10人。在随后的恐慌中，有十几人受伤，一些人因吸入烟雾而接受治疗。
+发布：tianzhihuan
 
-执法官员还没有证实导致詹姆斯被捕的电话来源。纽约警察局的一位发言人告诉《Insider》：“所有打给犯罪制止者的电话都是严格保密的。”
-
-周三，一位当地的安全摄像机安装人员因在曼哈顿东村指认了枪击嫌疑人，并通知了纽约警方而受到
-
-新闻来源：https://www.insider.com/nyc-subway-shooting-suspect-called-tip-that-led-capture-cnn-2022-4
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

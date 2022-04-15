@@ -2,28 +2,34 @@
 ---
 
 
-## 美国目前九成新冠案例几乎都是Omicron亚变体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
+## 纽约地铁枪击案的嫌犯被举报后被捕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350958/)
 
-素材翻译： Jenny Ball
+翻译：wenwu
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
-根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
+据多个报道，纽约地铁大规模枪击案的疑犯被举报电话提供线索后已被捕。
 
-据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
+官员们说，62岁的弗兰克·詹姆斯（Frank James）周三下午[被捕](https://www.insider.com/nyc-subway-shooting-suspect-arrested-2022-4)，他与布鲁克林日落公园附近的地铁列车上发生的大规模枪击案有关，因为当局收到了关于他的行踪的线索。他被指控犯有联邦恐怖主义罪行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1863.png)图片来源：新闻链接
 
-冠状病毒大流行使 7700 万人陷入“极端贫困”
+在嫌疑人被列为枪击案的“疑犯”后，警方启动了对他的搜索。两个执法部门的消息来源告诉CNN和美联社，是詹姆斯向犯罪制止者热线（Crime Stoppers hotline）举报了他的位置。
 
-[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
+“犯罪制止者”接到一个电话……那个人说，“你知道，我认为你在找我。我看到新闻上到处都是我的照片，我就在这个麦当劳附近，”一位执法人士周三[告诉](https://nypost.com/2022/04/13/brooklyn-shooting-suspect-frank-james-in-police-custody/)《纽约邮报》。
 
-根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
+纽约市警察局部门主管肯尼斯·科里（Kenneth Corey）说，当警察到达曼哈顿东村附近的那家麦当劳时，嫌犯不在楼里。当局在周围地区开车，然后在附近逮捕了他。他们在“圣马克斯和第一街的拐角处”将其拘留，科里说。
 
-来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
+“我的纽约同胞们，我们抓住了他。”纽约市长埃里克·亚当斯（Eric Adams）在詹姆斯被捕后说。
 
-债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
+他的被捕为周二美东时间上午8:30左右开始的搜索画上了句号，当时一名枪手引爆了两枚烟雾弹，并在一辆开往曼哈顿的N线列车驶入日落公园的36街地铁站时开火。
 
-素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+警方说，嫌犯至少开了33枪，击中了10人。在随后的恐慌中，有十几人受伤，一些人因吸入烟雾而接受治疗。
+
+执法官员还没有证实导致詹姆斯被捕的电话来源。纽约警察局的一位发言人告诉《Insider》：“所有打给犯罪制止者的电话都是严格保密的。”
+
+周三，一位当地的安全摄像机安装人员因在曼哈顿东村指认了枪击嫌疑人，并通知了纽约警方而受到
+
+新闻来源：https://www.insider.com/nyc-subway-shooting-suspect-called-tip-that-led-capture-cnn-2022-4
 
 * * *
 

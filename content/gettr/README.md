@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 12:51 PM (UTC)`
+
+2022年4月15日 文贵大直播：多地封城疫苗灾难最新信息；中共将打台湾做好备粮备药；疫情战争国内粮食危机分析；喜币是最早最流行数字法币
+![img](https://media.gettr.com/group27/origin/2022/04/15/12/6cb714fd-9ae5-236c-a905-00fa95dacfd3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 12:13 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月14日第41天当日救援统计：<br/>Medyka救援站接待：约243人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11672人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 41 - Date: April 14, 2022 :<br/>Medyka Rescue Station Reception: about 243 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11672 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 4/14/2022 Miles Guo: My advice to people inside mainland China: stock up food and water, have some cash handy, and find a safe place to live in for the next 1-2 years; Many more cities will be locked down, and the situation in Beijing will be the worst.<br/><br/>4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨。<br/><br/>
 ![img](https://media.gettr.com/group49/getter/2022/04/14/22/545a7487-6524-a9a4-4342-68f36edbb4ff/out.jpg)
-
----
-
-`@miles 4/14/2022 10:11 PM (UTC)`
-
-4/14/2022 Miles Guo: Russia’s so-called "God of the Black Sea", the guided missile cruiser Moskva, was sunk by two and a half missiles, and this is of great significance in terms of shifting the world's military and political landscape. Since Russia will not be able to defeat Ukraine, it may find excuses to use nuclear weapons. The disasters in Europe were caused by the Marxism and totalitarianism promoted by Germany and France in the past 30 years.<br/><br/>4/14/2022 文贵直播：俄罗斯所谓的"黑海之神"导弹巡洋舰被两个半导弹击沉了，这对改变整个世界军事政治格局意义大了去了；俄罗斯无法将乌克兰打趴下，因而有可能会找借口使用核武器；过去30年德国和法国推行的马克思主义极权导致了欧洲的灾难<br/>
-![img](https://media.gettr.com/group43/getter/2022/04/14/22/839465c7-bfc0-e89e-dc5c-a45130138a76/out.jpg)
 
 ---
 
