@@ -2,12 +2,30 @@
 ---
 
 
-## 4月15日乌克兰救援行动（图片1-8）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2348758/)
+## 樱花时政┃莫斯科号巡洋舰遭乌军导弹击中
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2348983/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8E5BF957-104C-43B0-9352-DBE3FCABBA97.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FF801005-3EE0-44D0-B09E-D27E881EB0EF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/87891988-FE00-4AB0-8BAB-4999C79C7A08.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/44153DA3-4DA7-4427-B8D6-58F431FEA357.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2ED9180D-8CF6-40A1-94B5-3D3B68570A59.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/339EDE10-84D9-4301-B28D-2AB59AAA30AA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BCBE5835-B294-47A6-823C-EC84E909EB84.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E52CAD9C-D125-423B-9410-0E6E0074B92F.png)
-发布：水涨船高
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃莫斯科号巡洋舰遭乌军导弹击中.png)[图片来源](https://www.lbc.co.uk/news/russian-black-sea-warship-moskva-has-sunk/)
+
+4月13日夜间，俄海军黑海旗舰“莫斯科”被乌克兰导弹击中的消息传了出来，根据乌方报道，乌“海王星”巡航导弹击沉了“莫斯科”号，俄方表示， 186米长的“莫斯科”因发生爆炸导致全船大火，500名船员紧急疏散。
+
+俄新社和塔斯社消息报导，“莫斯科”号导弹巡洋舰在被拖走时“在暴风雨的海况下沉没”。这已经印证了乌方面早先提出的“击沉”的说法。
+
+乌敖德萨州州长马克西姆-马尔琴科说，乌军用乌方制造的海王星巡航导弹击中了莫斯科号，造成了 “毁灭性损失”。 他的话得到了敖德萨军事当局发言人谢尔盖-布拉楚克的证实。
+
+信息来源：
+[莫斯科号巡洋舰遭乌克兰击中俄罗斯露屁股网民梦碎](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220414-%E8%8E%AB%E6%96%AF%E7%A7%91%E5%8F%B7%E5%B7%A1%E6%B4%8B%E8%88%B0%E9%81%AD%E4%B9%8C%E5%85%8B%E5%85%B0%E5%87%BB%E4%B8%AD-%E4%BF%84%E7%BD%97%E6%96%AF%E9%9C%B2%E5%B1%81%E8%82%A1%E7%BD%91%E6%B0%91%E6%A2%A6%E7%A2%)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

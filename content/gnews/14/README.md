@@ -2,65 +2,50 @@
 ---
 
 
-## 视频|英国首相鲍里斯突访基辅与泽连斯基会晤
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2348667/)
+## 视频|采访比利时志愿者
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2348738/)
 
-4月9日，继欧盟委员会主席乌苏拉-冯德莱恩一行访问乌克兰之后，
+4/12星期二波兰当地时间上午10点半，
 
-英国首相鲍里斯在高度保密的情况下突访基辅，与乌克兰总统泽连斯基举行一对一会晤，
+April 12th, Tuesday. At 10:30 am local time in Poland,
 
-并在荷枪实弹的安保团队保护下高调现身基辅街头，两人徒步视察了被俄军严重破坏的基辅市区，
+一位从比利时来的志愿者来给法治基金新中国联邦大帐篷捐救援物资，
 
-鲍里斯还不时跟基辅市民互动，以示对基辅市民的喜爱与尊重。
+a volunteer from Belgium came to donate relief supplies to the New Federal State of China and the Rule of Law Foundation’s tent.
 
-事前英国政府与媒体完全未透露任何相关信息，
+这位义工正好同时跟比利时首相到达梅迪卡营地，
 
-直到英国驻乌克兰大使馆在其官网上发布两位国家领导人会晤的照片后消息才随之曝光。
+The volunteer arrived at the Medyka camp, coincidentally at the same time as the Belgian Prime Minister,
 
-英国首相官邸发言人随即也证实了此消息，称此举是为了“展現出与乌克兰人民团结一心”，
+也有跟比利时首相交谈。
 
-并透露鲍里斯将提供新的金融与军事援助。
+and he also talked with the Belgian Prime Minister.
 
-泽连斯基事后在脸书上发出了“欢迎来到基辅，我的朋友！”的帖子，
+他接受了我们的采访，
 
-并晒出了两人会面握手的照片，并高度赞扬鲍里斯是反对俄罗斯入侵乌克兰最有原则的领导人之一，
+He was interviewed by the New Federal State of China.
 
-是坚定对俄罗斯实施制裁以及对乌克兰国防支持的领导人。
+在采访中，他对新中国联邦灭共表达了强烈的共鸣，
 
-乌克兰之所以能在战争最艰难的时刻赢得欧盟和英国的大力支持，并非因为它是战争中的弱者，
+In the interview, he expressed strong sympathy for taking down the CCP by the New Federal State of China.
 
-而是因为在这场实力悬殊的战争中，有像泽连斯基这样爱国爱民、无私无畏的总统，和不畏强暴、
+他知道中共政府对中国人民犯下的反人类罪和种族大屠杀，
 
-英勇奋战的乌克兰人民。面对俄罗斯的非法入侵，他们以小博大、以弱制强、奋力反击，
+He knew about the crimes against humanity and genocide committed by the Chinese Communist Party against the Chinese people.
 
-坚定不移地捍卫国家主权、保卫自己的家园。正是他们的勇敢唤醒了西方懦弱政客的良知，
+他还希望国际社会都来谴责和制裁中共，
 
-赢得了世界各国广泛的的尊重和支持。
+He also hoped that the international community would condemn and sanction the Chinese Communist Party
 
-【盖文】世界和人类每到关键时刻，大英帝国都会挺身而出力挽狂澜，前有丘吉尔现有鲍里斯！
+帮助中国人民早日获得自由。
 
-退出欧盟让英国有更多的决策独立性和灵活性，
-
-鲍里斯这次的基辅之行证明了大英帝国一如既往的担当与胆识，再现了英国贵族的勇气与敢为先！
+to help the Chinese people obtain freedom as soon as possible.
 
 
 
-【撰稿】香草山农场信息部–6zero4
+香草山 铭心
 
-【审稿】香草山农场信息部–阳光玫瑰
-
-【剪辑】香草山农场视频部–皮皮虾
-
-【链接】https://news.ltn.com.tw/news/world/breakingnews/3888113
-
-
-
-> 英国首相鲍里斯.约翰逊来到基辅，支持乌克兰人民。这次英国表现明显好于德法。勇气可嘉，看来俄罗斯在退缩防守阶段。 [pic.twitter.com/GjB5V5idVv](https://t.co/GjB5V5idVv)
-> — 增广贤文—(澳喜特战旅）🌻🌻 (@Bob20227) [April 9, 2022](https://twitter.com/Bob20227/status/1512905794143940608?ref_src=twsrc%5Etfw)
-
-
-
-【发布】奇门遁甲
+发布：奇门遁甲
 
  
 

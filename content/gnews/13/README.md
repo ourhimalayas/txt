@@ -2,20 +2,12 @@
 ---
 
 
-## 2022年4月15日《樱花快报》：韩国决定下周全面解除中共病毒疫情管制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2348675/)
+## 新中国联邦法治基金战友为100多名乌克兰难民儿童紧急提供物资
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2348749/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220415快报.jpg)
+【乌克兰救援】 4/13/2022 新中国联邦法治基金战友应波兰当地红十字会的邀请，为100多名乌克兰难民儿童紧急提供物资，这些儿童需要乘坐大巴立即前往梅迪卡营地5小时之外的地点。波兰当地红十字会非常感激新中国联邦战友的帮助，邀请我们为他们每两周一次的大巴救援行动提供帮助，并表示他们将在两周后救援行动时带来这些被救孩子的照片。
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
