@@ -2,45 +2,20 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第12天位列3国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2352689/)
+## 加拿大资源出口从俄乌战争中获益
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2352849/)
 
-4/15/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第12天iTunes打榜记录：
+加拿大温哥华扬帆农场    平民正道
+
+据【法广】4月12日报道，作为石油，天然气，特殊矿产及农业生产大国，加拿大的资源出口业在俄乌战争及欧美各国对俄罗斯的制裁中受益。
+
+加拿大自然资源部长近日表示，目前已有为数众多的国家都计划通过使用加拿大生产的化肥，能源，矿业和农业等产品来减轻此前对俄罗斯同类产品的进口依赖。
+
+据悉，位于萨省全球最大钾肥生产企业 Nutrien 公司宣布：今年钾肥产量将比去年增加10%，达1500万吨。全球最大的豆类加工企业[加拿大AGT]已将其产品销往120多个国家。而加拿大铀矿巨头Cameco也宣布在两年内将其铀矿产量提高1000万吨。此外，加拿大政府还承诺每天增加出口20万桶石油和10万立方天然气。
 
 * * *
 
-[【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20-1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59-1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60-1.jpg)
-
-
-[【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑： 平民正道    发布：平民正道
 
  
 

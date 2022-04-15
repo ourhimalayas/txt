@@ -2,62 +2,45 @@
 ---
 
 
-## 文贵大直播要点-主持：Tex（2022年4月15日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2352386/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第12天位列3国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2352689/)
 
-整理：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220403.jpg)
-**一、乌克兰救援现场连线**
-
-1.文科：昨天与其他组织合作给堵在路上的卡车司机送水，我们的行动顺应历史潮流，与波兰司机站在一起；在救援营地的以色列人、犹太人非常开心能在我们的大帐篷里庆祝逾越节，这一点体现了新中国联邦倡导的宗教自由；以前的救援工作证是自己印制的，现在的是由波兰官方提供的，上面印的是新中国联邦的国名，这体现了一个从最初的被质疑到现在的被欢迎的转变，也是被其他专业救援组织认可的表现；
-
-2.文科：公路上的拥堵是因为乌克兰那边有12公里的坦克车队，这预示着未来的战争还会非常残酷、时间还会很长；
-
-3.Nicole：昨天我们的大帐篷里来了一个有着乌克兰太太的中国人，他们在乌克兰的房子都被炸毁，之前就听说了我们的救援行动，所以到梅迪卡的时候就找到了我们的帐篷，看到小Sarah的时候，老乡见老乡两眼泪汪汪，他们原本要去瑞士找儿子，但是了解了我们的救援行动后，决定留下与我们一起参与救援；文科：这个大哥拿的还是中国护照，不属于乌克兰难民，只能在波兰待15天，我们为他们提供了欧盟对非乌克兰籍难民的政策，并提供了住宿酒店；Nicole：之前他们如果接受共产党的救援需要交五万块钱；
-
-**二、大饥荒又来了（****PPT****）**
-
-4.中共国粮食种植现状，农业的根基：种子化肥，战争和疫情导致粮价大涨，中共国粮食饥荒已经到来；
-
-5.Nick：粮食危机表现在两个方面，一个是粮食储备，另一个是粮食物流，中共国在这两个方面都存在问题，上海的情况证明了老百姓自己储备粮食的重要性；
-
-6.宁南：只有被铁拳打到的时候才会真的感到痛；
-
-7.文艺：中共释放病毒已经杀死了很多人，农业也受到了严重打击，现在国内还在大范围隔离，很多人无法务农，再加上战争导致乌克兰这个粮仓无法春耕，俄乌两国的化肥产量也受到极大影响，所以一定要提前准备钱粮；
-
-8.Tex：中共国的耕地在减少，农业生产是不顾生态的破坏性种植，严重依赖化肥，所以如果没有提前准备就可能面临无可挽回的后果；
-
-**三、何以解忧，唯有灭共（PPT）**
-
-9.中共借疫情管控升级、下一个是北京，百姓哀鸿声四起，中共暴政胜商鞅，中共即将攻台、做好长期准备；
-
-10.Nick：全世界都有病毒感染，但是都没有出现上海这样的封城，其目的就是为了测试老百姓容忍的极限，因为上海的极限可以代表全国的极限，上海将成为控制其他地区时的样板；
-
-11.宁南：现在所有的封城和军事管理都是为了将来的战争做准备，只有灭共才能从种种担忧中解脱出来；
-
-12.文艺：在中国的一个医科大学，学生的行动和生活全都被控制，也不允许用专业知识质疑核酸检测，而老师和其他工作人员却不受控制，这些表明了中共对学生的奴化，五月份有可能打台湾，可能也是为了转嫁现在国内严重的内部压力；
-
-13.Tex：战友们要加入农场，保持与农场的联系；
-
-**四、喜币将将成为全世界最流行、最早的数字法币（****PPT****）**
-
-14.耶伦讲话要点与喜币设计特征一一对应，数字货币监管最新信息，喜币、躺平币与新中国联邦的元宇宙，喜币将成为全世界最流行的数字法币；
-
-15.Nick：全球通胀可以通过数字货币来解决，在目前的世界形势下，如果不买数字货币，手里的钱都会变成纸，而喜币是数字货币中的最佳选择；
-
-16.Tex：在墙内将来可能躺平币是唯一可以换到资源的东西；
-
-17.宁南：新中国联邦的元宇宙已经成型，未来的联邦制令人期待；
-
-18.文艺：中共国大量依赖进口，如果被SWIFT制裁，产生的影响一定比俄罗斯严重得多，各国政府的法币都在大量兑水，数字货币时代不可阻挡，喜币是唯一有稳定币和黄金储备的数字货币，所以必将成为最流行的数字法币。
-
-（整理要点仅供参考，准确含义以原视频为准。）
+4/15/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第12天iTunes打榜记录：
 
 * * *
 
-*封面：霹雳鼠年*
+[【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-*编辑 /发布：吐纳*
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20-1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59-1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60-1.jpg)
+
+
+[【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-15-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
