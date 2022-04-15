@@ -2,8 +2,8 @@
 ---
 
 
-## 汉人活的不如新疆西藏香港台湾人有骨气（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348098/)
+## 联盟正在复核10%的币，复核完成后才会发放
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348190/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

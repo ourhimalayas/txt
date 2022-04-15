@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花时政┃俄罗斯停止石油数据发布
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
+## 中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347725/)
 
-撰稿：东京樱花团/加一颗稻草
+撰稿：东京樱花团/haruka春香
 
-4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
-自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
+美国电动汽车巨头特斯拉的首席执行官（CEO）埃隆·马斯克提议以410亿美元现金收购Twitter。以每股54.20美元的价格收购了全部股票，比马斯克持有大量股票的前一天当日的收盘价高出38%。他目前持有9%以上的推特股份。推特股价在14日开盘前的加班交易中上涨了12%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片10-4.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220414-00000127-reut-000-3-view.jpg?exp=10800)
+马斯克在写给Twitter总裁布雷特·泰勒的信函中写道：“在投资之后，我理解了不能以现在的状态发展，也不能满足社会的要求”，“Twitter有必要成为非公开企业。”他说：“该提案是最佳、最终的提案，如果无法接受，有必要重新考虑作为股东的立场。”
 
-消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
+信息来源：
+
+[マスク氏、米ツイッター完全買収を提案　410億ドル（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4989accbc485ec274d80f405704bf59afc84391f)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

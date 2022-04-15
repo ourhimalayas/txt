@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党杀鸡取卵釜底抽薪卖掉中华儿女所有子孙的未来（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348077/)
+## 乌克兰改变了世界格局
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348176/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

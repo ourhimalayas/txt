@@ -2,33 +2,22 @@
 ---
 
 
-## 有声|上海确诊病例多数为轻症 重症九人
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2346439/)
+## 爆料｜郭文贵分析 中共攻打台湾 灭亡是日本
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346400/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-上海冠病感染者持续增加，昨天（4月13日）新增27719名感染者，其中2573例为确诊病例，其余为无症状感染者。上海卫健委官员披露，目前的确诊病例中多数是轻症，重症患者仅九名。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-3.jpg)
-综合澎湃新闻及中新网报道，上海市卫生健康委一级巡视员吴干渝今天上午在疫情发布会上介绍说，这九例重症患者包括七名男性和两名女性，除一名33岁患者外，其余八人为年龄介于70到93岁之间的老人，均伴有严重基础性疾病及高龄等高风险因素，且均未接种新冠疫苗。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-29.png)
+郭文贵于台北14日晚间[直播](https://gettr.com/post/p15a3qt15e1)称，中共攻台，美军一定轰炸中共军事基地。此外，他表示“打得是台湾，灭得是日本”中共出兵攻打台湾，若台湾失守，日本就完了。郭分析日本、中共军力，他表示日本军事实力远高于中共，若日本出兵中共将惨败。他分析认为，中共可能五月对台军事行动。
 
-[【援引连结】](https://www.zaobao.com.sg/realtime/china/story20220414-1262624)
+依照目前国际形式，郭文贵认为中共撑不过20大，他不相信中共还会有20大。港币他认为今年年底、明年年初将会崩塌。欧盟国家有可能会对中共撤回大使馆。
 
+郭提到新中国联邦愿景，未来可能让新疆、西藏、香港、台湾，甚至是广东独立，实施联邦制度。
 
+* * *
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

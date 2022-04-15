@@ -2,8 +2,8 @@
 ---
 
 
-## 上海男人吴征天天让他老婆杨澜去找钥匙
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348120/)
+## 没有GTV，新平台5月份上线，新中国联邦护照目前还不行，美国对共产党的红旗导弹一定会有反应
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348196/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

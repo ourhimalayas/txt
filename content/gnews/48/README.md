@@ -2,18 +2,29 @@
 ---
 
 
-## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
+## 国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345305/)
 
 **图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-27.png)
+法国记者推特发布消息指，瑞典和芬兰的总理刚刚举行了联合记者会，就两国加入北约的计划进行了会谈。芬兰总理马林表示，加入北约一事她不会给出确切时间表，但很快会在几周内发生。而瑞典可能在六月申请加入北约，瑞典的安全审查预计将在 5 月底之前完成，总理安德森表示，她将等待审查结果出炉后方作出决定。
 
-此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
 
-台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
 
-来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
+> 🇸🇪[#Sweden](https://twitter.com/hashtag/Sweden?src=hash&amp;ref_src=twsrc%5Etfw) and 🇫🇮[#Finland](https://twitter.com/hashtag/Finland?src=hash&amp;ref_src=twsrc%5Etfw)'s prime ministers have just held a joint press conference outlining plans to join [#NATO](https://twitter.com/hashtag/NATO?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> 🇫🇮 expected to move first. PM Marin says she won't give a timetable but "it will happen quite fast—within weeks, not within months, we will have the discussion" [pic.twitter.com/huEKnkDVUD](https://t.co/huEKnkDVUD)
+> — Dave Keating (@DaveKeating) [April 13, 2022](https://twitter.com/DaveKeating/status/1514198882250596356?ref_src=twsrc%5Etfw)
+
+
+
+据外媒所述，芬兰已经准备好在几周内作出加入北约的决定，芬兰总理马林称，加入北约可能倒致俄罗斯采取行动，但不加入北约（结果）也是一样的，并表示“芬兰必须为俄罗斯的各种行动做好准备”。
+
+外媒引述民调结果，芬兰民调数据68% 支持加入北约，是俄乌战争发生前的两倍多，仅12%反对加入。而瑞典民调数据则显示，支持加入北约者略多于不支持者。
+
+俄罗斯曾表示，若瑞典、芬兰加入北约，将不再谈论波罗的海无核化。俄罗斯安全委员会副主席德米特里．梅德韦杰夫（Dmitry Medvedev）表示，如果发生这种情况，莫斯科会做出回应，并加强俄军地面及防空部队，在位于芬兰、爱莎尼亚、俄罗斯之间的芬兰湾布署海军。
+
+来源｜[衛報](https://www.theguardian.com/world/2022/apr/13/finland-and-sweden-could-apply-for-nato-membership-in-weeks)、[sky](https://news.sky.com/story/russia-threatens-nuclear-escalation-if-sweden-and-finland-join-nato-12589823)
 
 * * *
 
