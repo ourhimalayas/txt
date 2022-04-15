@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 8:22 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group26/origin/2022/04/15/08/9db50923-bc67-2144-2e79-04560ae5592a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 7:19 AM (UTC)`
 
 《灭共的雪 The terminator snow》🎤卡拉OK版（Karaoke)🎵🎵🎵<br/> <br/>我爱你，塞北的雪<br/>I love you, the northern snow<br/> <br/>飘飘洒洒漫天遍野<br/>drifting in the sky, covering the earth below<br/> <br/>你的舞姿是那样的轻盈 <br/>Your dance is full of grace<br/> <br/>你的心地是那样的纯洁 <br/>and pure is your heart and soul<br/> <br/>你是消灭那共匪的战友 <br/>Fighting with us to terminate the communist bandits<br/> <br/>你是上天派出的使节 <br/>you are the envoy sent from heaven<br/> <br/>灭共的使节 <br/>to take down the CCP<br/> <br/> <br/>我爱你，灭共的雪<br/>I love you, the terminator snow<br/> <br/>轰轰烈烈漫山遍野 <br/>vigorously, all over mountains and fields<br/> <br/>你用自己那无暇的身躯 <br/>With your flawless flakes<br/> <br/>净化被谎言笼罩的世界 <br/>a world covered in lies purified<br/> <br/>你把真相传递给了人间 <br/>You enlightened the world with truth<br/> <br/>唤醒那无尽的黑夜 <br/>awakened the endless night<br/> <br/>沉睡的心田 <br/>and those sleeping souls<br/> <br/>啊 ～～～我爱你<br/>Ah.. I love you<br/> <br/>啊 ～～～灭共的雪 塞北的雪～～～<br/>Ah.. the terminator snow, the northern snow<br/> 
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 4/14/2022 Miles Guo: The world situation is ever-changing. The CCP will possibly attack Taiwan in early May; once the war on Taiwan begins, the CCP will absolutely restrict you from withdrawing money, neither does the banking system have any money for you to withdraw; the coercion of COVID vaccines is on the rise again in mainland China. In the remote areas, the CCP entices the seniors with money so that they would take the jabs. The CCP is killing people with the COVID vaccines!<br/><br/>4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了；国内骗打毒疫苗趋势抬头，以金钱引诱偏远地区老人打，这就是用疫苗杀人啊！<br/>
 ![img](https://media.gettr.com/group11/getter/2022/04/14/22/50393953-3661-bd5d-46d0-7fdcd67d9c12/out.jpg)
-
----
-
-`@miles 4/14/2022 10:04 PM (UTC)`
-
-“中共放风：北约必须解散！” 飞飞秀救援快报 2022-04-14<br/>For English：gettr.com/streaming/p15c34zdce3
-![img](https://media.gettr.com/group42/origin/2022/04/14/22/e43a4c2d-735f-6d91-d235-dfa4830d943b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
