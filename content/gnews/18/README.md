@@ -2,8 +2,8 @@
 ---
 
 
-## 20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348035/)
+## 20220414郭文贵乱聊直播 ： 指望世界会救中国那是白日做梦中国人只能自已救自已
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348061/)
 
 作者：东京樱花团小视频组
 

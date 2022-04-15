@@ -2,8 +2,8 @@
 ---
 
 
-## 20220414郭文贵乱聊直播 ：台湾大部分军方已被收买，台湾无人机来自中共
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348015/)
+## 20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348035/)
 
 作者：东京樱花团小视频组
 
