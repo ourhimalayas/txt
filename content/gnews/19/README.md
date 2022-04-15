@@ -2,23 +2,36 @@
 ---
 
 
-## 视频|关注新中国联邦和法治基金在乌克兰的人道救援行动
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2350891/)
+## 美国目前九成新冠案例几乎都是Omicron亚变体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
 
-制作：香草山视频部
+素材翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+冠状病毒大流行使 7700 万人陷入“极端贫困”
 
-发稿：呼吸的雾霾（文小呼吸）
+[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
+
+来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
+
+债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
+
+素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
 
  
 

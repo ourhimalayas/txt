@@ -2,35 +2,74 @@
 ---
 
 
-## 以色列在中共国大使馆送的逾越节礼物中发现可疑的间谍装置
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2350983/)
+## 暴政猛于虎
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2350973/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1853.png)
+作者：蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1852.png)
 
-（图片来自原文）
 
-2022年4月12日周二，以色列在中共国大使馆的逾越节礼物中发现一个物体，怀疑是个监听装置。
+这是最真实历史
+一声声哭喊
+一句句求救
+一个个失去的
+鲜活生命
+喊楼的人
+已经沉寂
+也许
+没有了力气
 
-这个监听装置是在一次镜像安全检查中被发现的。它被装在一个保温杯内作为礼物，送给科学、技术和空间部长Orit Farkash-Hacohen办公室。
 
-类似的杯子也送到了交通部和卫生部的官员手中。其他办公室的部长助理也收到了中国大使馆的信息，说未来几天会有更多的礼物送来。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/D2DE4ACB-670E-413F-A264-EDFF686A3EC6.jpeg)
+这历史啊
+残酷真相
+悲剧
+涂满眼睛
+拿什么
+可以
+救赎
+你们
 
-以色列的内部安全部门（Shin Bet）正在调查这一事件。大使馆提供的所有其他杯子也都被收集起来作进一步检查，它们不会被退回给使馆。
+最真实历史
+记录最悲惨事故
+粗暴警察
+警棍在挥舞
+政府说
+没事没事
+太平需要粉饰
+楼上下着人雨
 
-Shin Bet还指示各部委的安全官员报告任何来自中共国大使馆或别国大使馆的礼物，因为担心里面暗藏间谍装置。
+这残酷现实
+来不及粉饰
+击碎着
+你的，我的
+你们的，我们的
+眼膜
+泪水无法挽救
+暴政猛于虎的残忍
+悲剧要重复多少次
+才能唤醒沉睡的人
 
-然而，迄今为止，其他国家送来的礼物中，没有可疑发现。
+反抗吧
+如果此前只是犹豫
+铁拳砸醒
+痛不欲生
+反抗吧
+如果有一丝生存希求
+推翻这暴政横行
+书写新的
+历史进程
 
-中共控制的中共国和以色列总体上保持着良好的关系。两国今年1月举行了中共国-以色列创新合作联合委员会第五次会议，庆祝两国的外交关系30年。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/B425D8AA-6585-47DB-A77F-1038EF5AF484.jpeg)
 
-中共国在2021年超过了美国，成为以色列最大的进口来源国。
+**更多資訊，更多關注**
+[**烏克蘭救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文貴先生**Gettr](https://gettr.com/user/miles)
+[**全球喜馬拉雅農場聯盟委員會**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜馬拉雅聯盟大使館全球客服中心**Discord](https://discord.gg/zv8j42srdN)
 
-新闻来源链接：[https://www.ynetnews.com/article/sjgjbamn9](https://www.ynetnews.com/article/sjgjbamn9)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3987.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
