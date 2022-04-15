@@ -2,33 +2,42 @@
 ---
 
 
-## 中日财经爆┃美国摩根大通利润暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349178/)
+## 樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349180/)
 
 撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃美国摩根大通利润暴跌.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.reuters.com%2Fbusiness%2Ffinance%2Fjpmorgan-profit-falls-trading-slowdown-2022-01-14%2F&amp;psig=AOvVaw2GJoamcw6ejB8HCLAI8fzy&amp;ust=1650077958798000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCOCmxMmJlfcCFQAAAAAdAAAAABAD) 
-摩根大通周三（4月13日）表示，其第一季度的利润已经比去年下降了42%，部分原因是由于通货膨胀率上升，以及在乌克兰冲突中结束了在俄罗斯的业务，该银行减记了近15亿美元的资产。
 
-这家美国资产规模最大的银行表示，利润降至82.8亿美元，或每股2.63美元，低于华尔街预期的每股2.72美元。收入下降了5%，至315.9亿美元，幅度较小。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1801.png)[图片来源](https://www.reuters.com/world/europe/eu-closes-loophole-allowing-multimillion-euro-arms-sales-russia-2022-04-14/)
 
-首席执行官Jamie Dimon在一份声明中说，该银行认为 “由于高通胀、供应链问题和乌克兰战争，未来将面临重大的地缘政治和经济挑战。”
+布鲁塞尔，4月14日（路透社），欧盟已经堵塞了一个漏洞——尽管2014年俄罗斯吞并乌克兰克里米亚地区后禁运生效，但仅去年一年，欧盟政府就向俄罗斯出口了价值数千万欧元的武器。
 
-上个月，摩根大通说它正在逐步减少其俄罗斯业务。戴蒙在他的年度股东信中说，虽然管理层并不担心其在俄罗斯的风险敞口，但 “随着时间的推移，它仍然可能损失约10亿美元”。
+根据欧盟委员会提供的最新数据，欧盟国家去年向俄罗斯出售了价值3900万欧元（4230万美元）的武器和弹药——比2020年增长了50%以上，当时的销售价值为2500万欧元，这一数量与前几年一致。
 
-周三，该银行的首席财务官杰里米-巴纳姆(Jeremy Barnum)告诉记者，在承受本季度的打击后，大约还有6亿美元的俄罗斯风险敞口。
+欧盟曾在2014年7月禁止向莫斯科出口武器，以回应俄罗斯对克里米亚的吞并，但制裁中的一项条款允许根据2014年8月前签署的合同进行销售。
 
-信息来源： 
-[**JPMorgan profits crash**](https://dailytelegraph.co.nz/money/jpmorgan-profits-crash/)
+拥有大型国防工业的国家，如法国和德国，是最大的出口国之一。
+
+自2月24日俄罗斯开始入侵乌克兰以来，这个漏洞受到了一些欧盟国家政府的猛烈抨击。
+
+为了削弱克里姆林宫在乌克兰的战争努力，欧盟已经实施了五轮全面制裁，禁止向俄罗斯出口大量可用于国防工业的各种技术。
+
+但欧盟外交官和官员告诉路透社，欧盟各国政府未能立即同意取消对武器销售的豁免，直到上周，作为欧盟第五套制裁措施的一部分，这个漏洞才被堵住。
+
+4月8日发表在欧盟官方杂志上的一份法律文本删除了这项豁免。
+
+欧盟委员会在其关于第五套制裁方案的公开通讯中没有提到关闭这个漏洞。
+
+立陶宛驻欧盟外交使团的一位发言人说，这项豁免已被取消，但欧盟国家将能够继续把俄罗斯制造的武器运到俄罗斯进行维修，然后再运回欧盟。
+
+外交官们说，负责准备制裁的欧盟委员会没有提出关于堵塞漏洞的修正案，因为不清楚它是否得到了欧盟27国的一致政治支持。
+
+但出席会议的外交官说，在上周的一次会议上，在包括波兰和立陶宛在内的一些政府提出新的批评后，特使们同意修改文本。
+
+信息来源：[**EU closes loophole allowing multimillion-euro arms sales to Russia**](https://www.reuters.com/world/europe/eu-closes-loophole-allowing-multimillion-euro-arms-sales-russia-2022-04-14/)
 
 *编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

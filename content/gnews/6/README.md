@@ -2,29 +2,21 @@
 ---
 
 
-## 樱花时政┃美国两党参议员联合访台 挺台抗共信号明确
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349806/)
+## 中日财经爆┃中国38个城市住房价格下跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349867/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国两党参议员联合访台-挺台抗共信号明确.png)[图片来源](https://asia.nikkei.com/Politics/International-relations/Six-U.S.-lawmakers-arrive-in-Taiwan-on-unannounced-trip) （两党团体包括参议院外交关系委员会主席梅嫩德斯）
-台北（路透社）–包括美国参议院外交关系委员会主席鲍勃-梅嫩德斯（Bob Menendez）在内的六名美国立法者周四到达台湾，进行此前并未宣布的访问，以示在中共压力下对该岛的支持。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中国38个城市住房价格下跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fimages01%2F20220116%2Fc8e9ee63585a4b3bb9bca8e2c55c1195.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F517021244_104543&amp;tbnid=ihhf9NkUO9o2IM&amp;vet=12ahUKEwiMjKngtZX3AhVcTPUHHZfdD4gQMygBegUIARCq)
 
-美国与台湾没有正式外交关系，但却是其最重要的国际支持者和武器供应商。
+中共国家统计局4月15日发布的3月新建房屋价格指数,主要70个城市中38个,与上个月相比下跌。
 
-美国拜登政府提供的持续支持令台湾感到振奋，拜登政府多次谈到其对这个民主治理的岛屿的 “坚如磐石 “的承诺。这使得本已糟糕的中美关系更加紧张。
+由于中国恒大集团等经营危机,房地产市场停滞不前,各地地方政府正在加速缓和购买管制，以期提振市场信心。
 
-两党小组将在周五上午与台湾总统蔡英文会面，进行为期两天的访问。他们乘坐美国空军飞机抵达台北市中心的松山机场，受到台湾外交部长吴钊燮的迎接。
-
-总统府发言人Xavier Chang在一份声明中说，这次访问不仅显示了美国两党对台湾的支持，也显示了台美关系的 “坚如磐石”。
-
-他补充说：”总统府期待着通过这种面对面的交流继续深化台美伙伴关系，并继续合作，为全球和地区的和平、稳定、繁荣和发展作出贡献。“
-
-梅嫩德斯是民主党人，是台湾的坚定支持者。今年2月，他共同提出了一项法案，要求美国通过谈判将台湾在华盛顿的事实上的大使馆更名为 “台湾代表处”。
-
-共和党资深参议员林赛-格雷厄姆（Lindsey Graham）也在此行。
+一线城市北上广深，在下跌。其他下跌的地方城市更多。但是,在中国经济的压迫压力背景下,地方政府再次增强对房地产的依赖,己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
 
 信息来源：
-** **[Six U.S. lawmakers arrive in Taiwan on unannounced trip](https://asia.nikkei.com/Politics/International-relations/Six-U.S.-lawmakers-arrive-in-Taiwan-on-unannounced-trip)
+[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
