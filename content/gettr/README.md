@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 10:23 PM (UTC)`
+
+4/15/2022 Miles Guo: Has the CCP shipped supplies to Russia? How did it do so? The CCP has been delivering strategic supplies to Russia and carrying back oil via the so-called “China-Europe Railway Express” to assist evil nations to evade America’s sanctions; CCP asks its Lao Baixing and its Party members to obey rules, but it never believes in the rule of law, or international laws<br/><br/>4/15/2022 文贵直播：中共给俄罗斯运送物资不？咋运的？中共通过所谓的中欧铁路频繁运送战略物资和石油，帮助邪恶国家逃避美国制裁；共产党让老百姓和党员讲规矩，自己却从不相信法律、更不要说国际法
+![img](https://media.gettr.com/group29/getter/2022/04/15/22/a17a5368-f69e-cbf3-1f0e-4a856b1de615/out.jpg)
+
+---
+
+`@miles 4/15/2022 10:20 PM (UTC)`
+
+4/15/2022 Miles Guo: Fellow fighters in mainland China should have a comprehensive plan for stocking up food. Coming next there will be cut-off of water and electricity supplies. You probably won’t be allowed to step out of your house. Think carefully about what to stock and how, so that you will survive the up-coming disasters.<br/><br/>4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关。<br/>
+![img](https://media.gettr.com/group13/getter/2022/04/15/22/5956fb30-fffd-d489-fe42-1b22f1c22225/out.jpg)
+
+---
+
 `@miles 4/15/2022 10:02 PM (UTC)`
 
 “太软了，太晚了，太不团结了...” 飞飞秀救援快报 2022-04-15<br/>For English：gettr.com/streaming/p15hfbe209e
@@ -140,20 +154,6 @@ NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自�
 
 The Spanish college student asked for a vest of “Take Down the Chinese Communist Party”. He supports our movement to take down the CCP. He said people can get freedom only by taking down the Communist Party. He supports taking down the Communist Party in China and Communist Parties all over the world.<br/><br/>这个西班牙的大学生主动问我们要灭共马甲。他非常支持新中国联邦灭共。他说，只有消灭共产党，人民才会有自由。他支持灭掉在中国的共产党和全世界其他国家的共产党。
 ![img](https://media.gettr.com/group42/origin/2022/04/15/03/376a5afd-bf22-40df-0b6d-5e21a3eaf6f0/out.jpg)
-
----
-
-`@miles 4/15/2022 3:02 AM (UTC)`
-
-2022-4-14《鸡血王喜币大作战》 第一百六十五集 嘉宾：无双柳薇薇、青藤
-![img](https://media.gettr.com/group50/origin/2022/04/10/02/1b337cc6-35b8-9f08-ae6d-69e0175c7077/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 2:15 AM (UTC)`
-
-Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from the Ukrainian refugee children as well as what he saw and heard while volunteering in the NFSC & ROFL tent at the Medyka Refugee Center on Facebook. <br/><br/>台湾原视新闻：35岁的台湾阿美族人王芮缇在脸书上分享了一些乌克兰难民儿童绘制的图画以及他在梅迪卡难民中心新中国联邦法治基金帐篷内做义工时的所见所闻。<br/>
-![img](https://media.gettr.com/group9/getter/2022/04/15/02/94993258-b416-f867-c98a-7e0074aa8aa8/out.jpg)
 
 ---
 
