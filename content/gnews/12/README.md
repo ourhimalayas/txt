@@ -2,39 +2,44 @@
 ---
 
 
-## 俄罗斯“断箭”：担忧核导弹与普京的旗舰一起沉没
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2352030/)
+## 中共房地产危机日益严重
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352081/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：日本方舟农场 – Andy5
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+2022年一季度，中共国房地产依旧没有回暖迹象，延期交付、债务爆雷继续成为常态。
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/捕获.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1884.png)图片来源：Tass & 雅典娜设计组
+4月13日，中共国内证券媒体曝出，因被大股东重庆渝富大幅减持，中交地产股票直接跌停。
+
+自去年9月恒大发生债务爆雷事件，中共国房地产行业一路下行。到了2022年一季度，中共国内重点百城的新房成交规模，同比下降40.5%。而在房市小阳春的3月，房地产交易面积几乎减至同期一半。
+
+与此同时，武汉、郑州、西安、山东等城市也不断爆出，房屋延期交付的消息。华夏幸福、阳光城等大型地产公司，不仅面临债务危机，其股票也长期停牌。而对恒大，中共除了不断发布“稳妥处理”的声明以外，并没有公布实质性的处理办法。
+
+就目前形势而言，作为中共的支柱性产业，中共房地产的危机正在不断恶化。
+
+参考链接：
+
+- [“小阳春”失约！ 一季度百城新房成交规模降逾四成](https://finance.sina.com.cn/stock/estate/integration/2022-04-08/doc-imcwiwst0525138.shtml)
+- [武汉又一批楼盘延期交付](https://www.163.com/dy/article/H4GVQL3R0552IAA4.html)
+- [最惨购房者！延期4年未交付，郑州“烂尾”楼盘开发商珠江置业号召业主集资4000万复工](https://finance.sina.com.cn/chanjing/gsnews/2022-03-16/doc-imcwiwss6263850.shtml?finpagefr=p_111)
+- [延期交房快1年，业主投诉平度永新华府项目近乎停工！开发商曾多次被约谈](http://news.bandao.cn/a/612753.html)
+- [深圳：稳妥处置恒大集团等房地产企业债务风险](https://www.sohu.com/a/537078219_116062?scm=1002.2715008b.0.SHARINGAN_PC_FINANCE)
+- [华夏幸福“18华夏06”和“18华夏07”继续停牌](https://www.guandian.cn/article/20220412/292025.html)
+- [阳光城“20阳光城MTN002”未能按期足额偿付 应付本息金额7.86亿元](http://www.guandian.cn/article/20220411/291851.html)
+- [快讯：地产股开盘下挫 中交地产跌停](https://finance.sina.com.cn/stock/gujiayidong/2022-04-11/doc-imcwipii3563201.shtml)
+- [中交地产大股东出手减持，还有这些股减持比例居前](https://stock.stcn.com/gsdt/202204/t20220413_4352115.html)
+- [这个“金九银十”有点冷](http://www.ce.cn/xwzx/gnsz/gdxw/202110/13/t20211013_36986812.shtml)
 
 
-军事专家和分析人士周五警告，俄罗斯黑海舰队旗舰昨天爆炸后沉没，因为可能携带核弹头，他们呼吁对存在威胁进行紧急调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-周四，排水量12000吨的导弹巡洋舰“莫斯科号”在塞瓦斯托波尔港附近沉没。此前乌克兰称它用两枚巡航导弹击中了这艘船，导致其翻滚。俄罗斯承认在船上发生火灾和爆炸后沉没，但没有说明起火原因。[** **](https://www.dailymail.co.uk/news/russia-ukraine-conflict/index.html)
-
-现在有人担心“莫斯科号”将携带两枚核弹头坠入海底，可能会演变成“断箭”事件——即**核武器**的事故。
-
-**乌克兰军事专家警告，“莫斯科号”设计目的是携带超音速P-1000（玄武岩）重型导弹——旨在摧毁美国航空母舰，可能装有两枚核弹头。他们呼吁其他黑海国家（土耳其、罗马尼亚、格鲁吉亚和保加利亚等）要坚持让俄罗斯作出解释，这些核弹头弹头在哪里？**
-
-乌克兰《国防快报》表示，“采访了包括设计师和海军军官在内的专家，他们一致且独立地给出了以下答案——这艘旗舰确实有可能搭载核弹。”
-
-关于核灾难的猜测不断，也是因为“莫斯科号”的510名船员中的大多数至今生死不明。
-
-截至目前，大约50名船员被核实由一艘土耳其船只接走，另有14人前往塞瓦斯托波尔港，剩下大约450人的下落不明。俄方声称已经疏散了所有船员，但在塞瓦斯托波尔港夜间视频显示，数十辆据称属于水手的汽车仍停在港口——这表明他们的主人还没有回来。
-
-参考链接：[Ukraine war: Fears Moskva warship was carrying nuclear weapons when it sank | Daily Mail Online](https://www.dailymail.co.uk/news/article-10721351/Ukraine-war-Fears-Moskva-warship-carrying-nuclear-weapons-sank.html)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+总编：雪梨
+编辑：宁文静/雪梨
+审核：Irene木木
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
