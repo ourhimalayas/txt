@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 8:57 PM (UTC)`
+
+2022.04.15  新中国联邦 | 喜健康    克服恐惧携手灭共
+![img](https://media.gettr.com/group18/origin/2022/04/15/20/67387dfe-23fb-6b70-a9d9-b9ba43043f59/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 6:15 PM (UTC)`
 
 NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自由的逾越节
@@ -147,12 +154,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 2022.04.14  新中国联邦 | 喜财经   喜币成为全世界最流行、最早的数字法币
 ![img](https://media.gettr.com/group20/origin/2022/04/15/01/cfce6d09-1ef5-186f-29eb-d98437bf86e5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/15/2022 1:27 AM (UTC)`
-
-04/14/2022 on the 11th  day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Hong Kong 🇭🇰, New Zealand 🇳🇿, Singapore 🇸🇬 , Laos 🇱🇦 Rock Song Charts<br/>#2🥈 on Taiwan 🇹🇼, Cambodia 🇰🇭 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/>#3🥉 on Laos 🇱🇦 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Cambodia,Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2346562/
 
 ---
 
