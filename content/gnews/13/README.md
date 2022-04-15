@@ -2,32 +2,26 @@
 ---
 
 
-## 文贵爆料：中共今天启动 “台湾之子 ”行动
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2353478/)
+## 俄罗斯驱逐 18 名欧盟外交官
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353483/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-38.png)
-图片来源：Getter
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-在2022年4月15日的直播中，郭文贵先生透露，习近平的 “台湾之子 “行动今天启动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-郭先生说：”在我们播出前三个小时，我们收到了绝对可靠的情报，中共在台湾正式启动了这一行动。”
 
-该行动旨在切断台湾的电力和水的供应，造成台湾内乱，并挑起台湾的社会动荡。郭先生说，中共随后将利用这一优势入侵台湾。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0145.jpg)
 
-因邪恶的中共对台湾的超限战，台湾社会将面临混乱，水、天然气、电力供应和网络将被中断。
 
-郭先生继续说：”从至少5个渠道，我们已经证实了 “台湾之子 “的行动即将到来。
+图片来源：路透社
 
-郭先生对台湾的评论似乎并不乐观，他说：”台湾绝对不像乌克兰一样，虽然台湾确实有像乌克兰人一样勇敢的人，但绝对不会形成乌克兰的效果，因为台湾有太多的精英被中共收买了”。
+欧洲时间周五晚上 8 点 39 分德国世界报报道， 作为对俄罗斯外交官被欧盟驱逐的回应，俄罗斯将驱逐欧盟驻莫斯科代表处的18名外交官。 这是外交部在莫斯科宣布的。 同时，它指责欧盟“不断破坏数十年来建立的双边对话与合作架构”。
 
-郭先生提到，”我五年前就警告过这个军事行动”。然而，台湾无视了他的早期警告。
+鉴于俄罗斯对乌克兰的侵略战争，布鲁塞尔于4月初宣布俄罗斯驻欧盟代表处的19名官员为不受欢迎的人。 这是因为他们开展了与其外交地位相矛盾的活动。 包括德国在内的许多欧盟成员国也驱逐了最近几周在各国首都受雇的俄罗斯外交官。
 
-台湾将面临中共从内部和外部的攻击，台湾最黑暗的时刻已经到来。
+🔗 [https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html](https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html)
 
-来源：
-
-[文贵先生盖特](https://gettr.com/post/p15f3ij6b1a)
+编辑发表： Shuizhuyu
 
  
 

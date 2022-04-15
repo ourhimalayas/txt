@@ -2,27 +2,24 @@
 ---
 
 
-## 俄罗斯驱逐 18 名欧盟外交官
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353483/)
+## 樱花时政┃“乌克兰忠犬八公”秋田犬等待着被俄军杀害的主人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2353505/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/haruka春香
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+俄罗斯军事侵略仍在持续的乌克兰，基乌州的一个叫玛卡里乌的小镇上，有一只“秋田犬”停在无人居住的民宅大门口。据当地报纸报道，这只秋田犬的名字叫“利尼”，主人女性是被俄军杀害了。从那以后，一个月来，“利尼”一直在等待着主人的归来，不知何时开始被称为玛卡里乌的“忠犬八公”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-41.jpg)[图片来源](https://yvpub-pctr.c.yimg.jp/dk/yvpub-bucket001-west/contents/yvpub-content-32c702850e94aae6a6ae8144a1743d71/thumb/a8aa6d4e20ebdc46483384fe3323fe25/1650047007.jpg)
+给乌克兰送来了很多秋田狗的饲养员在日本神奈川县厚木市的白井夫妇。据悉，白井秀喜应居住在东部多尼普罗的乌克兰人布雷德的要求，从2009年开始向当地派送了20多只秋田犬。4月14日倾听了白井夫妇的谈话，并让两个人看了《利尼》的视频。白井夫妇：不知道有没有人养，只要能送过来，就愿意接手，想收留他。只是秋田犬对主人非常忠诚，在得到同意之前很难离开家。这个孩子不动是自然的事情。我们认为，只要战火未止，就该得到妥善的保护，而且要设施齐全，还可以去新主人家。我们相信这一点。
 
+不知是不是两人的愿望终于实现了，在14日上传到乌克兰内务大臣顾问SNS上的视频中出现了身穿红色衣服的利尼。说是被新主人收养的。成为战火牺牲品的秋田犬“利尼”开始了新的生活。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0145.jpg)
+信息来源：
 
+[“ウクライナのハチ公”軍事侵攻で死亡した飼い主を待ち続けた秋田犬　ブリーダーも涙 – MBSニュース | Yahoo! JAPAN](https://video.yahoo.co.jp/c/16778/ee88704ce2219db0c80b87444be0c185d327b244)
 
-图片来源：路透社
-
-欧洲时间周五晚上 8 点 39 分德国世界报报道， 作为对俄罗斯外交官被欧盟驱逐的回应，俄罗斯将驱逐欧盟驻莫斯科代表处的18名外交官。 这是外交部在莫斯科宣布的。 同时，它指责欧盟“不断破坏数十年来建立的双边对话与合作架构”。
-
-鉴于俄罗斯对乌克兰的侵略战争，布鲁塞尔于4月初宣布俄罗斯驻欧盟代表处的19名官员为不受欢迎的人。 这是因为他们开展了与其外交地位相矛盾的活动。 包括德国在内的许多欧盟成员国也驱逐了最近几周在各国首都受雇的俄罗斯外交官。
-
-🔗 [https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html](https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html)
-
-编辑发表： Shuizhuyu
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 10:38 PM (UTC)`
+
+A volunteer from Mozambique, Africa supports us to take down the Chinese Communist Party (CCP).  He believes that it's the Russian government and their greed, it’s Putin and his buddies (including the CCP), started this war, not the Russian people. He agrees that the CCP is using One Belt One Road initiatives to buy African politicians and help them enslave the African people. He says that the things we are doing are great.<br/><br/>来自非洲莫桑比克的义工支持我们推翻中国共产党。他相信是俄罗斯政府以及他们的贪婪，是普京和他的帮凶们（包括中共）发动了这场战争，而不是俄罗斯人民。他同意，中共拿钱收买非洲政客，搞的“一带一路“， 其实是变相地帮助他们奴役非洲人民。他说我们正在做的事情太棒了。
+![img](https://media.gettr.com/group40/origin/2022/04/15/22/68777fa1-4361-2366-dbd4-d757d3b1edce/out.jpg)
+
+---
+
+`@miles 4/15/2022 10:34 PM (UTC)`
+
+4/15/2022 Ukraine Rescue: A Chinese man and his Ukrainian wife were recently rescued by the Ukraine rescue team of the New Federal State of China. He told our frontline fellow fighters about the expensive "aid" offered by the Chinese Embassy in Ukraine; he and his wife were so moved by our great rescuing operations and the sincerity of our fellow fighters, and now they have decided to join our frontline rescue team to change their role from refugees to rescuers.<br/><br/>4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕; 他和他的太太并被我们前线战友救援的实际行动和真情所感动，已决定加入新中国联邦的灭共黄马甲救援队伍，从被救援者变成救援者<br/>
+![img](https://media.gettr.com/group30/getter/2022/04/15/22/cc813b91-346f-f282-74df-ce605ae353c9/out.jpg)
+
+---
+
+`@miles 4/15/2022 10:28 PM (UTC)`
+
+4/15/2022 Miles Guo: the CCP launched its “Son of Taiwan” action starting from today, as it did to Mr. Pompeo’s Taiwan visit, the CCP will cause shut-down of Taiwan’s water and power supplies, transportation, airports and Internet to further stir up chaos and civil commotion in Taiwan so that the CCP can take advantage to take over Taiwan<br/><br/>4/15/2022 文贵紧急直播的第三个原因：中共从今天开始已启动”台湾之子”计划，如同上次蓬佩奥访问台湾期间出现停电一样，中共会让台湾水电供应、交通、机场、网路等停摆，引起社会内乱，趁机拿下台湾<br/>
+![img](https://media.gettr.com/group16/getter/2022/04/15/22/09b5cc3d-03a3-11aa-ea2b-74d893a3acdd/out.jpg)
+
+---
+
 `@miles 4/15/2022 10:23 PM (UTC)`
 
 4/15/2022 Miles Guo: Has the CCP shipped supplies to Russia? How did it do so? The CCP has been delivering strategic supplies to Russia and carrying back oil via the so-called “China-Europe Railway Express” to assist evil nations to evade America’s sanctions; CCP asks its Lao Baixing and its Party members to obey rules, but it never believes in the rule of law, or international laws<br/><br/>4/15/2022 文贵直播：中共给俄罗斯运送物资不？咋运的？中共通过所谓的中欧铁路频繁运送战略物资和石油，帮助邪恶国家逃避美国制裁；共产党让老百姓和党员讲规矩，自己却从不相信法律、更不要说国际法
@@ -133,27 +154,6 @@ NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自�
 
 4/10/2022 Miles Guo:  Mr. Miles Guo sent a message to our fellow fighters especially living in mainland China:  listen to the songs created by our fellow fighters in the Whistleblowers' Movement, learn to be at peace with what has happened and let go of your hang-ups, and survive the hard time!<br/><br/>4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关<br/>
 ![img](https://media.gettr.com/group49/getter/2022/04/15/04/78833075-2d89-ac68-8f4d-2e707517ca5d/out.jpg)
-
----
-
-`@miles 4/15/2022 4:19 AM (UTC)`
-
-4/10/2022 Miles Guo: The fact that both The Terminator Snow and Chained Dream can hit the charts at the same time has a big impact on the world; One of famous singers in China, who is also our fellow fighter, is working on a song for Mr. Guo;  a famous Hollywood lyricist who was inspired by Mr. Guo’s broadcasts is planning to work with popular Hollywood dancers and backing singers to write a full English song “One Hundred Percent” for the New Federal State of China, and Mr. Guo will be the lead singer.<br/><br/>4/10/2022文贵直播：《灭共的雪》和《铁锁梦》同时打榜影响巨大；国内著名歌手战友正在给郭先生写新歌；好莱坞有名的作词人从郭先生直播中得到灵感，准备联合好莱坞最火的伴舞和伴唱，为新中国联邦打造歌名为“One Hundred Percent”的一首全英文歌，由郭先生亲自主唱。<br/>
-![img](https://media.gettr.com/group31/getter/2022/04/15/04/e742716b-173e-fb23-b118-2f958556338c/out.jpg)
-
----
-
-`@miles 4/15/2022 3:51 AM (UTC)`
-
-【Ukraine Rescue】04/14/2022 A volunteer from Spain says his father was a member of the Communist Party in the former Yugoslavia. But he was changed by God then left the Communist Party. He believes that the CCP members could change as well because people joined the Communist Party just for a living. As long as we are willing to be the light that shines in the world, we can definitely defeat the Communist Party of China！<br/><br/>【乌克兰救援】04/14/2022 一位来自西班牙的志愿者说，他的父亲也是前南斯拉夫共产党员，后来在上帝感召下脱离了共产党。 他认为中国的共产党员也会改变，人们不过是为了生存不得不加入共产党。只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
-![img](https://media.gettr.com/group7/getter/2022/04/15/03/b3acb94f-5333-e9e0-99d6-9360cbfb7a35/out.jpg)
-
----
-
-`@miles 4/15/2022 3:44 AM (UTC)`
-
-The Spanish college student asked for a vest of “Take Down the Chinese Communist Party”. He supports our movement to take down the CCP. He said people can get freedom only by taking down the Communist Party. He supports taking down the Communist Party in China and Communist Parties all over the world.<br/><br/>这个西班牙的大学生主动问我们要灭共马甲。他非常支持新中国联邦灭共。他说，只有消灭共产党，人民才会有自由。他支持灭掉在中国的共产党和全世界其他国家的共产党。
-![img](https://media.gettr.com/group42/origin/2022/04/15/03/376a5afd-bf22-40df-0b6d-5e21a3eaf6f0/out.jpg)
 
 ---
 

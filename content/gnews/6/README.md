@@ -2,16 +2,15 @@
 ---
 
 
-## 20220415郭文贵大直播 ：嘉宾点评“国内粮食危机ppt
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353584/)
+## 五月花简报（04/15/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2353585/)
 
-作者：东京樱花团小视频组
+编辑：波士顿五月花—-冲天一怒
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/FC99304E-9815-4356-B855-12F6EF4FD186.jpeg)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+*发布：思澈*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

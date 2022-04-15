@@ -2,31 +2,35 @@
 ---
 
 
-## 德国联邦政府大幅增加对乌克兰军队的武器援助
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353456/)
+## 俄乌战争“没想到”系列之十：
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2353460/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+视频制作：多伦多蓝莲花- 视频制作组laocai
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
 
+**第十个没想到：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0164.jpg)
+**没想到马斯克的星链改变了战争的规则。**
 
+**乌克兰建立了前线传感器网络，取名“三角洲”，将其输入数字地图，指挥官便能够看到敌我动向，可以向乌克兰炮兵提供实时数据，使他们能够锁定俄罗斯目标而实施精准打击。**
 
-图片来源：世界报
+[查看文章](https://gnews.org/zh-hans/2353460/)
 
-德国联邦政府正在增加对乌克兰军队的财政援助。联邦财政部长克里斯蒂安·林德纳）周五晚间宣布，培训援助是一项加强合作伙伴安全的举措，将在补充预算中增加到 20 亿欧元。 “大部分资金将使乌克兰受益，”林德纳在推特上写道。总理舒尔茨已经提出了这一要求。
+**星链可以对多达350枚洲际弹道导弹在轨拦截，可以让普京的核武器会发射不出大气层，星链武装了乌克兰，开创了以数字战争的先河，也用一场实实在在的流血战争验证了美国高科技的”扎扎实实“。**
 
-德国电视一台 此前曾报道称，20 亿欧元的军事援助中“超过 10 亿欧元”应用于乌克兰。乌克兰人可以用它来“购买他们想要的武器”。资金将流入的培训援助是联邦政府的一项举措，旨在支持外国合作伙伴照顾自己的安全。
+视频文案：wood(文斌）
 
-联邦政府的一位女发言人应法新社的要求告诉法新社，有关部门在两周前原则上同意“大幅增加”援助升级计划。上周，总额定为 20 亿欧元。
+编辑与校对：冰糖葫芦喵
 
-除了对乌克兰的直接援助外，还计划为所谓的欧洲和平基金（EPF）再提供4亿欧元的新军事援助。这是自 2016 年以来一直存在的欧洲危机管理专项基金。除其他外，EPF 为乌克兰军队采购武器和装备。在 20 亿欧元的总额中，有 4 亿欧元用于乌克兰以外的国家。
-
-🔗[https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html](https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html)
-
-编辑发表： Shuizhuyu
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
