@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：嘉宾点评“国内粮食危机ppt
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353584/)
+## 20220415郭文贵大直播 ：国内因疫情封控矛盾激化 需要5月攻台来缓解内部压力
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353670/)
 
 作者：东京樱花团小视频组
 

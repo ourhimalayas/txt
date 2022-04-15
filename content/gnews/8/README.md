@@ -2,25 +2,49 @@
 ---
 
 
-## 加拿大安省进入第六波疫情
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353655/)
+## 2022年4月15日文贵乱聊直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2353753/)
 
-作者：加拿大温哥华扬帆农场-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220415_副本.png)
+视频连接1：[https://gettr.com/streaming/p15fvzj74b6](https://gettr.com/streaming/p15fvzj74b6)
 
-- ![安省发布最新疫情建模数据：Omicron 在安省已趋于平稳，但预计COVID-19 住院人数将“延长高峰”！-加拿大省钱快报Dealmoon.ca 攻略](http://imgcache.dealmoon.com/thumbimg.dealmoon.com/dealmoon/fbc/86d/fa4/e0c9c6808adb3ebcd2875e0.jpg_1280_1280_3_6e1c.jpg)图片来源：TNH
+视频连接2：[https://gettr.com/streaming/p15f3ij6b1a](https://gettr.com/streaming/p15f3ij6b1a)
 
+1、盖特注册难，流失了一千多万注册用户；
 
-加拿大CTV新闻4月13日报道，由于安省缺乏PCR测试，卫生部门已转用包括对废水分析在内的其它数据来追踪病毒传播情况，通过定期重复采样，能够非常准确地计算出废水中的病毒浓度。
+2、SEC退款，警察故意示好，让老椅子退款到警察哪里，要和农场联系，即使退款到警察哪里，警察会被全球通缉；
 
-数据分析显示，安省目前正经历着病毒感染的回升，病毒标准化浓度恢复到了圣诞前后水平，且所有公共卫生单位都出现了同样的峰值，这表明第六波病毒传播不受地域限制。
+3、北京买那么多冰箱，储存那么多物资，会大停电，没水没电，你的饭怎么做熟，战友们要有智慧准备；
 
-多伦多现在收集的样本中有90%以上是Omicron亚变体BA.2，这种 隐形亚变体比其他Omicron菌株更具传播性，很快就会占到所有感染的一半。
+4、中共向俄罗斯提供物资：中欧火车拉的战略物资，回去拉的是俄罗斯石油，现在一周几班？
 
-分析表明，安省目前正在经历的第六波传播不单是由变体快速传播引起，更由可能是政策变化导致。废水中病毒标准化浓度在2月和3月初曾持续下降，然后猛然上升，取消口罩规定和公众信息变化是潜在原因，这表明人们放松了警惕，而变种病毒正在席卷而来。
+5、中共即将对台湾实施，台湾之子计划：就是让台湾大停电 大停水；
 
-原文链接：[https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
+6、任何人问题10%币问题，文贵先生不会再回复了；
 
-采编：青青， 编辑发稿：硫酸羟氯喹64
+**注：大直播音频——**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

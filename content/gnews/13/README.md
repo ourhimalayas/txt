@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：喜币将成为最早的数字法币
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353604/)
+## 20220415郭文贵大直播 ：新中国联邦乌克兰救援队得到了国际组织的工作证
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353699/)
 
 作者：东京樱花团小视频组
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：NICK分析喜币对于未来经济生活的意义
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353620/)
+## 20220415郭文贵大直播 ：一位中国籍难民及其家属立即加入到了新中国联邦救援队中
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353718/)
 
 作者：东京樱花团小视频组
 
