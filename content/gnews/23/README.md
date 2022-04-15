@@ -2,220 +2,41 @@
 ---
 
 
-## 能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349880/)
+## 管控区附近的姥姥经打点终于住进医院背后的辛酸与无奈
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2350008/)
 
-星空链就这么厉害
-El Starlink es así de poderoso
+![](https://assets.gnews.org/wp-content/uploads/2022/04/灭共.png)
+最近我的外婆住院了，早在去年开始一直干咳，直到上周，家人叫她的状态十分差，饭只吃几口，全身哪都不舒服，于是家人连夜带她到医院，因为外婆是管控区附近过去，医生要求验完核酸才能看病，而等核酸结果要六小时，意味着要等到凌晨三四点，出于担心老人熬不住这么晚，家人选择先带外婆次日再来。
 
-现在的新兴能源
-La energía emergente de hoy en día
+次日再到医院打算验核酸，后来医生告知医院无床位，需要先回家等通知，家人无奈先带外婆回家。两天后拖朋友打点，“外婆终于住院了”，这听起来本事一件悲伤的事，而此时此刻，我和家人的心情居然是带有愉悦的病态心理。
 
-是一种真正的在太空外面
-Es algo que verdaderamente está afuera en el espacio
+接下来得知的消息是，外婆每天都要接受检查来查明病因，最近发现怀疑是得了肿瘤，外婆的一位孙子早在几年前亦是因为得了肿瘤而死亡，当时遗留给家庭重重的债务和阴阳相隔的痛苦。直到现在，家人仍未告诉外婆可能患有肿瘤的消息，我们明白这会给我们带来灾难性的债务和哪怕继续治疗也难挽回局面的不安，作为文明人类对生命的尊重，拿金钱与生命来相提并论是一件十分可耻的行为，而在到处都是被剥削的地方，人性的光辉十分现实与脆弱，而又是什么原因促使产生这种心理。
 
-伊隆-马斯克会从外星球
-Elon Musk desde un planeta alienígena
+有时我在想，为什么我们的教育、医疗都要自己掏钱，一个家庭成员得病很容易导致带给几个家庭的灾难。在这里，小病小痛看医生第一步就是各类型的检查，成百上千的费用对于草根来说是一笔高昂甚至是无法支付的费用。看病还要挑时间，只能周一到周五看病，因为医生周六日休息，周一到周五只能从早上八点到下午五点看病，而且中午有两小时不看病，而伤病并不会挑时间来找病人，这并不能怪罪与医生，医生留救助病人是没有过错的，错的是形成这种医疗环境的体制。
 
-给你带回来外星球(上的东西)
-Te traerá de vuelta las cosas del planeta alienígena
+农村人多数没有社保和医保，导致生不起病、看不起病，有金钱能力看病的人群，亦会被纷繁复杂的门槛处处阻挡，且看看上海封控下每天关于看病和取药的悲剧，为了我们的父母、孩子、我们自己的健康与未来，我们要改变我们的现状，不再如猪狗般偷生，不再是每天十多个小时的超高工作强度而月薪只有几千块，不再是背着几十年房债的房奴，不再担心毒奶粉化学食物危害孩子的健康，不再担心老人因生病而一贫如洗。
 
-像未来的钻石一毛钱都不值
-Así como los futuros diamantes que no valdrán nada
+与文明国家比起来，十四亿中国人生活在永远看不到希望的地狱中，而中国共产党是一切灾难的根源，若不推翻共产党，我们永无机会夺回本属于我们的一切；若不推翻共产党，我们永无机会拥有创造财富与实现自我价值的机会；若不推翻共产党，我们的孩子永无机会得到公平和阳光的教育；若不推翻共产党，我们的老人永远老有所养、老有所尊的机会。
 
-黄金也不值钱
-Tampoco el oro
+撰稿：telunsu75；
 
-包括整个外太空的各种金属
-Incluyendo todo tipo de metales en todo el espacio exterior
+发布：黎明之前；
 
-(他只要)从月球上
-Desde la luna, (él sólo)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-他随便带两次(回来)
-Trae (de regreso) dos veces
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-黄金价格就跌到可能白菜价了
-El precio del oro bajará al precio del repollo
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-伊隆-马斯克就有这本事
-Elon Musk tiene esta capacidad
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-不用别人, 你说还囤黄金吗
-No se necesita otra persona, tú dices que ¿todavía se debe almacenar oro?
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-囤钻石, 你要我给你拉几车去
-O diamantes, si quieres te traigo unos cuantos camiones de oro y diamantes
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-他只要对着话筒一说
-Él sólo habla por el micrófono
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-我要到月球上采几吨钻石回来
-Voy a la luna a extraer toneladas de diamantes
-
-钻石啪就不值钱了
-En seguida, los diamantes no valen nada
-
-什么钻石恒久远
-Que si los diamantes duran para siempre
-
-那是胡扯呢
-Pura mentira
-
-因为少而为贵
-Es costoso por lo poco que hay
-
-那么能源呢, 所有能源
-¿Qué pasa con la energía? Toda la energía
-
-现在已经有好多种, 特别在月球上
-Ahora hay muchos tipos, especialmente en la luna
-
-能发现的包括氢, 気
-Se pueden encontrar hidrógeno, deuterio
-
-包括外太空引力之外的(能源)
-Incluyendo (la energía) más allá de la fuerza gravitatoria del espacio exterior
-
-那些能源已经多到你不能想像了
-Entonces ya hay tanta energía que ya ni te puedes imaginar
-
-外(太空)能源, 新能源
-La energía del (espacio) exterior, la nueva energía
-
-现在新能源是什么
-¿Qué es la nueva energía ahora?
-
-大家现在从石油中
-Ahora todos pueden extraer del petróleo
-
-能提取出一种石油氢块儿
-Una especie de hidrógeno del petróleo
-
-就像一块方糖一样
-Así como un cubo de azúcar
-
-这个方糖就放在了一个
-Este cubo de azúcar se le pone
-
-类似像电脑这样的东西里边
-En algo parecido como la computadora
-
-可以使用1000年都不用充能
-Y puede utilizar por 1000 años sin tener que recargar
-
-太阳能, 现在的核电站
-La energía solar, el central nuclear actual
-
-你看过西屋的核电站是什么概念
-¿Has visto el concepto de la central nuclear de Westinghouse?
-
-你知道吗
-Sabes que
-
-西屋可以在27天内
-Westinghouse puede construir en 27 días
-
-给你建一个小型核电站
-Una pequeña planta de energía nuclear
-
-马上可以达到3万到10万人使用
-Inmediamente puede darle uso de 30 mil a 100 mil personas
-
-而且人家远程控制
-Y ellos lo controlan a distancia
-
-欧洲在新能源外太空资源
-Europa en nuevos recursos energéticos del espacio exterior
-
-甚至核电开发, 包括取暖
-Incluso el desarrollo de la energía nuclear, incluida la calefacción
-
-未来的取暖一定是大家记住
-La futura calefacción de seguro, todos recuerden
-
-是无害取暖清洁能源
-Es una calefacción inofensiva y energía limpia
-
-而且这个地方很有可能来自
-Y este sitio probablemente se origine de
-
-乌克兰和欧洲和美国
-Ucrania, Europa y EE. UU
-
-100%来自美国和西方国家
-100% proveniente de EE. UU y países occidentales
-
-你中国跟人家PK那简直是胡扯
-Es absurdo que China compita con ellos
-
-共产党跟人家比, 你比啥比
-El PCCh quiere comparar con otros, con qué comparas usted
-
-你压根脑子就没有
-No tienes cerebro en lo absoluto
-
-所以你不要以为能源制约欧洲
-Así que no creas que el asunto de la energía limita a Europa
-的事情(会持续), 它以经过去了
-(seguirá), ya esto queda en el pasado
-
-而且会让强大的欧洲研发出
-y permitirá a que el fuerte Europa lo desarrolle
-
-人类上最大的文明
-La civilización más grande de la humanidad
-
-美国的所有的
-Todo lo que es EE. UU
-
-战略经济和战略位置
-Su economía y ubicación estratégica
-
-从过去的重欧轻亚变成重亚轻欧
-Desde el pasado que se daba más importancia a Europa y menos en Asia, ahora será al revés
-
-因为欧洲几乎跟美国成为一部份
-Porque Europa es prácticamente parte de EE. UU
-
-诞生的德国, 乌克兰国还有日本国
-El nacimiento de Alemania, Ucrania y Japón
-
-欧洲的国防得到
-Si la defensa europea consigue
-
-美国和日本之间的联合
-La unión entre EE. UU y Japón
-
-这个世界一下子
-Este mundo en un rato
-
-就成了文明的古国
-Se convierte en una civilización antigua
-
-叫无皇有主的时代正式到来
-La era de ningún emperador ha llegado oficialmente
-
-* * *
-
-日期：04/10/2022
-原视频标题：能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
-Las limitaciones energéticas en Europa son cosas del pasado, y la era de centrarse en Asia y menos en Europa, sin ningún emperador ha llegado oficialmente
-
-原视频日期：03/29/2021
-原视频网址：https://gettr.com/post/p12f4m44209
-任务编号：KC488（4140）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,12 +2,28 @@
 ---
 
 
-## 一位来自西班牙的志愿者说，只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2350530/)
+## 中日财经爆┃中国38个城市房价下跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350673/)
 
-【乌克兰救援】04/14/2022 一位来自西班牙的志愿者说，他的父亲也是前南斯拉夫共产党员，后来在上帝感召下脱离了共产党。 他认为中国的共产党员也会改变，人们不过是为了生存不得不加入共产党。只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+中共国国家统计局15日发布的3月新建房屋价格指数，主要70个城市中38个，与上个月相比下跌。由于中国恒大集团等经营危机，房地产市场停滞不前，各地地方政府正在加速缓和购买管制。市况有可能恢复。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中国38个城市房价下跌.png)[图片来源](http://cd.jiwu.com/news/4776067.html)
+
+大城市广东省广州市也下跌。其他下跌的地方城市很多。首都北京市和上海市实际上也在下跌。习近平仍坚持对住宅投机戒备的方针。但是，在中国经济的压迫压力背景下，地方政府再次增强对房地产的依赖，己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
+
+消息来源：
+[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

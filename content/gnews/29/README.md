@@ -2,22 +2,41 @@
 ---
 
 
-## 巴菲特针对推特控股之事说“马斯克在赢，这是美国”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349457/)
+## 由于无限期的封锁，巴西到上海港的肉类货物运输中断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349563/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-105.jpg)
-图片来源： superpyq.com
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-零对冲网4月14日报道，纽约时报说根据两个知道内情的人士透露，推特委员会正在考虑采取防范性动作，例如给马斯克设陷井让他难以在这个社交巨头平台上发挥作用。
+翻译/编辑：小红帽
 
-这个陷井之一就是股东权利计划，该计划能够限制单一股东的运作能力，这基本上是让该公司影响新股份或允许现有的持股者而非潜在股票获得者购买降价股份。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SIPG-Shanghai-780x470-1.jpg)图片来源：SIPG
 
-多数自由派反对马斯克，但有一个全球著名的最富者之一却支持马斯克，他说： “ 这是美国的产物，我认为马斯克有主见，他正在赢，这是美国，你不能靠做梦，这事很惊人。”
 
-当马斯克提出$54.20一股的价格收购时，沙特王族在推特上回复说：“ 我不认为这个价格接近于推特成长前景的内在价值，作为一个最大的长期推特股票持有者，我拒绝这个价。” 这个有些奇怪，因为表面看起来沙特王族并不是最大的持股者。马斯克随即问： “你拥有多少股份，直接的还是间接的？王族对自由言论的观点如何？” 马斯克说，如果A计划不行，他还有B计划。
+根据CNA 4月15日报道，一位知情人士告诉路透社，巴西对中共国上海港的肉类出口因该港口被封锁而中断。
 
-#### 新闻来源： [Buffett Says “Musk Is Winning…It’s America” As TWTR Board Ponders Poison Pill](https://www.zerohedge.com/markets/best-and-final-offer-elon-musk-offers-buy-twitter-5420-share)
+该人士说，至少有一家航运公司已经停止向上海运送巴西肉类，同时为客户提供将货物运送到新港和宁波的替代方案。
+
+一家大型巴西肉类出口商取消了三个集装箱的装运，而另一家则停止预订新货物。
+
+消息人士称，自3月底上海封锁开始，冷冻食品的集装箱已经开始在港口积压，对进港肉类的检查已经停止。
+
+上海是巴西向中共国进口肉类的主要入境点，而中共国是巴西的最大贸易伙伴。
+
+根据行业数据显示，2021年中共国从巴西进口了723,370吨牛肉和640,469吨鸡肉，是迄今为止巴西肉类的最大消费者。
+
+由于中共国大部分地区的新冠措施影响了国内需求并阻碍了贸易，中共国的整体进口量在3月意外下降。
+
+目前还不清楚有多少货物受到上海封锁的影响。巴西牛肉游说团体Abiec和猪肉及家禽游说团体ABPA均未立即回应置评请求。
+
+资料来源：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,39 +2,206 @@
 ---
 
 
-## 中央情报局警告：绝望的普京可能祭出战术核武器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349869/)
+## 这次是海洋文明与陆地文明的再一次重创与PK
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349975/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+这一次绝对是世界的
+Esta vez definitivamente es
 
-#### 翻译/编辑：文泓
+一场大的秩序重组
+Una importante reorganización mundial
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片46.png)图片来源：The National Interest & 雅典娜设计组
+没有任何改变
+Nada ha cambiado
 
+我2017年爆料的时候说过
+En el 2017 dije en el Movimiento de Denunciantes
 
-周四，中央情报局局长威廉·伯恩斯表示，俄罗斯在入侵乌克兰方面屡遭重挫，普京总统可能祭出战术或低当量核武器。
+我跟胡锦涛这些人
+Hu Jintao, estas personas y yo
 
-伯恩斯在亚特兰大演讲中提示，“鉴于俄罗斯领导人可能陷入绝望，任何人都不能轻视俄罗斯可能诉诸战术核武器或低当量核武器所带来的威胁”。
+还有中国的老常委
+Y el antiguo Comité Permanente de China
 
-克里姆林宫已表示，在2月24日侵略战争开始后已将俄罗斯核力量置于高度戒备状态，但美国尚未看到大规模部署核武器的实际证据。
+还有国安部的人
+Y el Ministro de Seguridad Nacional
 
-伯恩斯说，拜登总统极力避免第三次世界大战，避免可能触及到核冲突的门槛。
+每次他们都说
+Cada vez que dicen
 
-俄罗斯拥有许多战术核武器，其威力不如美国在二战期间在广岛投下的炸弹。俄罗斯的军事学有一个叫做“升级降级”原则，即在与西方国家的常规冲突中，如果战场局势不利，就发射低当量核武器，以夺回主动权。
+中国历史上几百年回到桌子上
+Cientos de años en la historia China de regreso a la mesa
 
-伯恩斯曾是美国驻俄大使，称普京是一位“报复的使徒”，多年来“一直被怨恨、野心和不安全感所包围”。
+国际桌子上, 已经接近到桌面上
+En la mesa internacional, ya se han acercado a la mesa
 
-“每天普京都在证明，衰落的大国（俄罗斯）至少与崛起的大国（中共国）一样具有破坏性，”伯恩斯说。
+如果被人拍下去
+Si alguien le da un golpe
 
-新闻链接：[CIA warns desperate Putin poses nuclear threat | World News – Hindustan Times](https://www.hindustantimes.com/world-news/cia-warns-desperate-putin-poses-nuclear-threat-101649976216869.html)
+就是万劫不复, 回到石器时代
+Simplemente será condenado, de regreso a la era de piedra
 
-发布：*wenly*
+站到桌子上
+Pararse en la mesa
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+就永远成为世界强国
+Es ser por siempre un país poderoso en todo el mundo
+
+可悲的事情
+Qué cosa tan triste
+
+他们选出了对我们来讲是好事
+Nos hace bien que hayan elegido
+
+选出了习太阳, 王岐山
+Al sol Xi y Wang Qishan
+
+这两个文化大革命的
+Estas dos revoluciones culturales
+
+鬼魂
+Fantasmas
+
+我觉得是文化大革命的被害者
+Siento que son víctimas de la Revolución Cultural
+
+推出了这俩人
+Lanzaron a estas dos personas
+
+对中国所谓的国际说了算
+Tener la última palabra en el llamado proceso internacional de China
+
+当大国是个灾难
+Ser un país grande es un desastre
+
+对中国人是短期灾难
+Y para los chinos es un desastre a corto plazo
+
+对灭共那是
+Para eliminar al PCCh
+
+绝对的最佳的两个人物
+Definitivamente son los dos mejores personajes
+
+结果上桌子的人要掀桌子
+Resulta ser que la persona que se monta en la mesa quiere voltearla
+
+现在要掀桌子
+Quiere voltear la mesa ahora
+
+就是现在他和普京大帝
+Lo que es ahora él y el gran emperador Putin
+
+要把桌子掀了
+Quieren voltear la mesa
+
+能不能掀成呢
+Será que ¿logran voltearla?
+
+他是从冠状病毒, 疫苗
+Él desde el Coronavirus hasta las vacunas
+
+世界经济崩塌
+El derrumbe de la economía mundial
+
+然后从地缘政治扩张
+Luego desde la expansión geopolítica
+
+最后整合全世界的所有的
+Finalmente reune el mundo entero
+
+和他所谓的中弱国家
+Y sus llamados países medios y débiles
+
+形成的一股势力, 对抗西方的
+Formando así una fuerza contra el occidente
+
+基督文明和西方的民主
+El Cristianismo y la democracia occidental
+
+资本主义社会就是独裁的政治
+La sociedad capitalista es dictadura
+
+对抗西方的民主的法律的政治
+La política del derecho contra la democracia occidental
+
+也就是根本能看得出来
+Es lo que se puede notar
+
+亚洲这些国家和东欧国家
+Estos países asiáticos y países de Europa del Este
+
+都是什么, 都是陆地国家
+Son países terrestres
+
+所有西方的最后现在跟这些
+Ahora el final de todo el oeste con estos
+
+陆地国家
+Países terrestres
+
+所谓的习太阳普大帝对抗
+El llamado lucha entre el sol Xi y el emperador Putin
+
+都是海洋国家
+Son países marinos
+
+他非常清楚的能分出来
+Él claramente puede diferenciarlo
+
+这个是海洋文明和陆地文明的
+Este es otro gran daño y competencia entre
+
+再一次大的一场重创和PK
+La civilización marina y la civilización terrestre
+
+同时呢, 显出东西方的文化
+Al mismo tiempo, se evidencia la cultura entre el oriente y el occidente
+
+和政治利益的大重创
+Y un golpe duro a los intereses políticos
+
+同时显示出来的一个杂教或
+Al mismo tiempo se nota una religión miscelánea o
+
+没有教的国家和西方的基督教
+Países sin religiones y el cristianismo en el occidente
+
+天主教文明的一场大PK
+Una gran competencia de la civilización católica
+
+更重要的是要看到, 东西方之间
+Y lo más importante es ver entre el oriente y el occidente
+
+出现了一个从来没有的事情
+Aparece algo que nunca había sucedido antes
+
+就是独裁国家政治制度
+Es el sistema político de la dictadura
+
+和西方的民主制度到底谁活着
+Con el sistema democrático occidental, ¿quién sobrevivirá?
+
+日期：04/12/2022
+原视频标题：这次是海洋文明与陆地文明的再一次重创与PK
+Esta vez es otro golpe fuerte y la competencia entre la civilización marina y la civilización terrestre
+
+* * *
+
+原视频日期：03/31/2021
+原视频网址：**[https://gettr.com/post/p12qrq1ff4a](https://gettr.com/post/p12qrq1ff4a)**
+任务编号：KC489（4142）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

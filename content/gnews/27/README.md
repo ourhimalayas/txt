@@ -2,35 +2,33 @@
 ---
 
 
-## 由于无限期的封锁，巴西到上海港的肉类货物运输中断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349563/)
+## 中央情报局警告：绝望的普京可能祭出战术核武器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349869/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯】紧贴时代脉搏
 
-翻译/编辑：小红帽
+#### 翻译/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SIPG-Shanghai-780x470-1.jpg)图片来源：SIPG
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片46.png)图片来源：The National Interest & 雅典娜设计组
 
 
-根据CNA 4月15日报道，一位知情人士告诉路透社，巴西对中共国上海港的肉类出口因该港口被封锁而中断。
+周四，中央情报局局长威廉·伯恩斯表示，俄罗斯在入侵乌克兰方面屡遭重挫，普京总统可能祭出战术或低当量核武器。
 
-该人士说，至少有一家航运公司已经停止向上海运送巴西肉类，同时为客户提供将货物运送到新港和宁波的替代方案。
+伯恩斯在亚特兰大演讲中提示，“鉴于俄罗斯领导人可能陷入绝望，任何人都不能轻视俄罗斯可能诉诸战术核武器或低当量核武器所带来的威胁”。
 
-一家大型巴西肉类出口商取消了三个集装箱的装运，而另一家则停止预订新货物。
+克里姆林宫已表示，在2月24日侵略战争开始后已将俄罗斯核力量置于高度戒备状态，但美国尚未看到大规模部署核武器的实际证据。
 
-消息人士称，自3月底上海封锁开始，冷冻食品的集装箱已经开始在港口积压，对进港肉类的检查已经停止。
+伯恩斯说，拜登总统极力避免第三次世界大战，避免可能触及到核冲突的门槛。
 
-上海是巴西向中共国进口肉类的主要入境点，而中共国是巴西的最大贸易伙伴。
+俄罗斯拥有许多战术核武器，其威力不如美国在二战期间在广岛投下的炸弹。俄罗斯的军事学有一个叫做“升级降级”原则，即在与西方国家的常规冲突中，如果战场局势不利，就发射低当量核武器，以夺回主动权。
 
-根据行业数据显示，2021年中共国从巴西进口了723,370吨牛肉和640,469吨鸡肉，是迄今为止巴西肉类的最大消费者。
+伯恩斯曾是美国驻俄大使，称普京是一位“报复的使徒”，多年来“一直被怨恨、野心和不安全感所包围”。
 
-由于中共国大部分地区的新冠措施影响了国内需求并阻碍了贸易，中共国的整体进口量在3月意外下降。
+“每天普京都在证明，衰落的大国（俄罗斯）至少与崛起的大国（中共国）一样具有破坏性，”伯恩斯说。
 
-目前还不清楚有多少货物受到上海封锁的影响。巴西牛肉游说团体Abiec和猪肉及家禽游说团体ABPA均未立即回应置评请求。
+新闻链接：[CIA warns desperate Putin poses nuclear threat | World News – Hindustan Times](https://www.hindustantimes.com/world-news/cia-warns-desperate-putin-poses-nuclear-threat-101649976216869.html)
 
-资料来源：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
-
-发布：tianzhihuan
+发布：*wenly*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

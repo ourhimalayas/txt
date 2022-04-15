@@ -2,28 +2,40 @@
 ---
 
 
-## 德军火商将向乌克兰提供豹式1型坦克
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349450/)
+## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
 
-作者：Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1d67ed2883bd401f8cf0299d93afc754.jpeg)
-资料显示，莱茵金属公司是德国最大的军火商，其所制造的豹式1型战斗坦克是目前在德国武装部队服役的豹式2型坦克的前身型号，但豹1坦克仍是许多国家的主要地面作战力量。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-报道提及，自俄罗斯侵略战争开始之后，德国政府改变了其不向冲突地区运送武器的长期政策，反而主动向基辅提供了大量的反坦克武器和导弹。 对此，德国外长贝尔伯克指出，乌克兰需要军事物资，尤其是重型武器，才能抵御俄罗斯军队的攻势。
+翻译/编辑：小红帽
 
-据了解，熟练的乌克兰军事人员可以在几天内精通豹1坦克的操作技术。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
 
-参考链接：[Rheinmetall ready to supply up to 50 tanks to Ukraine – newspaper](https://www.swissinfo.ch/eng/rheinmetall-ready-to-supply-up-to-50-tanks-to-ukraine---newspaper/47508992)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
 
-编辑：玫瑰圓
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
+
+这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
+
+这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
+
+在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
+
+检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
+
+目前尚不清楚同谋者是否是以太坊基金会的其他员工。
+
+资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,58 +2,220 @@
 ---
 
 
-## 俄国防部确认导弹巡洋舰“莫斯科”号沉没
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2349591/)
+## 能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349880/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-15-下午1.35.42.png)图片来源：互联网
-俄官方确认”莫斯科 “号巡洋舰着火爆炸沉没，乌军方称该舰遭乌海王星反舰导弹系统击中后严重受损沉没，郭文贵先生直播透露两下半击毁该舰，军事意义重大，中俄军队军事能力挑战西方如同拿“菜刀“拼”机枪“。
+星空链就这么厉害
+El Starlink es así de poderoso
 
-据俄罗斯新闻社周五（15日）报道，俄罗斯国防部4月14日晚发布的报告说，在”莫斯科 “号巡洋舰在被拖往目的港时，由于在弹药爆炸的火灾中船体受损而失去了稳定性，在暴风雨的海况下沉没。俄军方说：”在暴风雨的海况下，该船沉没。”
+现在的新兴能源
+La energía emergente de hoy en día
 
-该报告还说，”莫斯科 “号巡洋舰上发生火灾，导致弹药爆炸。船员们被完全疏散了。主要的导弹武器没有被损坏，火势被控制住了，舰艇仍有浮力。
+是一种真正的在太空外面
+Es algo que verdaderamente está afuera en el espacio
 
-**俄国防部并没有说明造成****“****莫斯科**** “****号巡洋舰火灾和弹药爆炸的原因，但乌军方称该舰被乌海王星反舰导弹系统击损导致其沉没。**
+伊隆-马斯克会从外星球
+Elon Musk desde un planeta alienígena
 
-乌克兰武装部队南部作战司令部4月14日报道称，俄罗斯黑海舰队的巡洋舰莫斯科号在被乌克兰**海王星反舰导弹系统**击中后严重受损。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-15-下午1.38.20.png)图片来自乌克兰国家通讯社
-乌司令部部说，该舰群的其他单位试图提供帮助，但风暴和强大的弹药爆炸将巡洋舰掀翻，并开始沉入黑海。
+给你带回来外星球(上的东西)
+Te traerá de vuelta las cosas del planeta alienígena
 
-乌克兰总统泽连斯基4月15日在[演讲视频](https://www.youtube.com/watch?v=PChyCowOovM)中说：“俄罗斯不是在2月24日开始对乌克兰发动战争的。俄罗斯军队早在2014年就来到了我们这里。他们占领了我们的克里米亚。他们把它变成了一个大型军事基地。他们把黑海和亚速海变成了地球上最危险的海域之一。“
+像未来的钻石一毛钱都不值
+Así como los futuros diamantes que no valdrán nada
 
-根据公开信息，”莫斯科 “号指挥官是近卫军第一军团的安东-库普林上尉。该舰于1976年在尼古拉耶夫斯克61公社造船厂建成，名为 “斯拉瓦 “号导弹巡洋舰，是一系列导弹巡洋舰的主角。设计用于攻击大型单舰和攻击型水面舰艇群，确保舰艇反潜群的作战稳定性，并对偏远地区的舰艇编队进行集体防空。此外，它还能够与敌方潜艇交战和射击，并为两栖作战提供火力支援。该巡洋舰的总排水量为11300吨，长度为186米，宽度为21米，船员为680人。
+黄金也不值钱
+Tampoco el oro
 
-1989年12月，它为苏联共产党总书记米哈伊尔-戈尔巴乔夫与美国总统乔治-布什在马耳他的会晤提供了安全保障。
+包括整个外太空的各种金属
+Incluyendo todo tipo de metales en todo el espacio exterior
 
-1990年8月，该舰主办了雅尔塔国际核军备控制会议。
+(他只要)从月球上
+Desde la luna, (él sólo)
 
-2008年8月至9月，”莫斯科 “号导弹巡洋舰作为黑海舰队舰艇群的一部分，参加了在南奥塞梯的维和行动，目的是迫使格鲁吉亚当局实现和平。
+他随便带两次(回来)
+Trae (de regreso) dos veces
 
-2014年2月，该巡洋舰支持在索契举行的第22届冬奥会。
+黄金价格就跌到可能白菜价了
+El precio del oro bajará al precio del repollo
 
-从2015年9月到2016年1月，”莫斯科 “号巡洋舰在地中海东部执行任务，从海上方向向俄罗斯空军基地赫梅米姆（阿拉伯叙利亚共和国）提供防空掩护。
+伊隆-马斯克就有这本事
+Elon Musk tiene esta capacidad
 
-2016年5月，根据俄罗斯总统弗拉基米尔-普京的命令，近卫军导弹巡洋舰莫斯科号被授予纳希莫夫勋章。
+不用别人, 你说还囤黄金吗
+No se necesita otra persona, tú dices que ¿todavía se debe almacenar oro?
 
-**此战意义重大，俄军和中共解放军（****PLA****）军事能力于美欧西方差距巨大，如****”****菜刀****“****拼****”****机枪****“**
+囤钻石, 你要我给你拉几车去
+O diamantes, si quieres te traigo unos cuantos camiones de oro y diamantes
 
-郭文贵先生周四（4月14日）在[盖特直播](https://gettr.com/streaming/p15aede6360)中透露，俄军对”俄罗斯号“非常骄傲，一舰打12个国家，……结果让人给导（导弹）了。两下半，为什么是两下半，两下命中，半个打到水下，如果三个全到的话，整个死掉。两个半结果把船打废了，人跑了。这个对共产党来讲对全世界军事的意义太大了，严格讲就是拿菜刀和开枪的打仗。
+他只要对着话筒一说
+Él sólo habla por el micrófono
 
-美国国防部发言人柯比（John Kirby）告诉美国有线电视新闻网（CNN）：”这对（俄罗斯）黑海舰队来说是一大打击，这是…他们力图在黑海发挥某种海军优势的关键一环。“柯比还说：”这将对他们的战力产生影响。“【3】
+我要到月球上采几吨钻石回来
+Voy a la luna a extraer toneladas de diamantes
 
-参考链接：
+钻石啪就不值钱了
+En seguida, los diamantes no valen nada
 
-【1】[巡洋舰“莫斯科”号在暴风雨中被拖走时沉没](https://ria.ru/20220414/kreyser-1783626130.html)
+什么钻石恒久远
+Que si los diamantes duran para siempre
 
-【2】[Russia confirms its Black Sea Fleet flagship has sunk](https://www.ukrinform.net/rubric-ato/3457932-russia-confirms-its-black-sea-fleet-flagship-has-sunk.html)
+那是胡扯呢
+Pura mentira
 
-【3】[俄军莫斯科号沉船 美：对俄黑海舰队打击大](https://www.rfi.fr/cn/%25E4%25BF%2584%25E5%2586%259B%25E8%258E%25AB%25E6%2596%25AF%25E7%25A7%2591%25E5%258F%25B7%25E6%25B2%2589%25E8%2588%25B9-%25E7%25BE%258E-%25E5%25AF%25B9%25E4%25BF%2584%25E9%25BB%2591%25E6%25B5%25B7%25E8%2588%25B0%25E9%2598%259F%25E6%2589%2593%25E5%2587%25BB%25E5%25A4%25A7)
+因为少而为贵
+Es costoso por lo poco que hay
+
+那么能源呢, 所有能源
+¿Qué pasa con la energía? Toda la energía
+
+现在已经有好多种, 特别在月球上
+Ahora hay muchos tipos, especialmente en la luna
+
+能发现的包括氢, 気
+Se pueden encontrar hidrógeno, deuterio
+
+包括外太空引力之外的(能源)
+Incluyendo (la energía) más allá de la fuerza gravitatoria del espacio exterior
+
+那些能源已经多到你不能想像了
+Entonces ya hay tanta energía que ya ni te puedes imaginar
+
+外(太空)能源, 新能源
+La energía del (espacio) exterior, la nueva energía
+
+现在新能源是什么
+¿Qué es la nueva energía ahora?
+
+大家现在从石油中
+Ahora todos pueden extraer del petróleo
+
+能提取出一种石油氢块儿
+Una especie de hidrógeno del petróleo
+
+就像一块方糖一样
+Así como un cubo de azúcar
+
+这个方糖就放在了一个
+Este cubo de azúcar se le pone
+
+类似像电脑这样的东西里边
+En algo parecido como la computadora
+
+可以使用1000年都不用充能
+Y puede utilizar por 1000 años sin tener que recargar
+
+太阳能, 现在的核电站
+La energía solar, el central nuclear actual
+
+你看过西屋的核电站是什么概念
+¿Has visto el concepto de la central nuclear de Westinghouse?
+
+你知道吗
+Sabes que
+
+西屋可以在27天内
+Westinghouse puede construir en 27 días
+
+给你建一个小型核电站
+Una pequeña planta de energía nuclear
+
+马上可以达到3万到10万人使用
+Inmediamente puede darle uso de 30 mil a 100 mil personas
+
+而且人家远程控制
+Y ellos lo controlan a distancia
+
+欧洲在新能源外太空资源
+Europa en nuevos recursos energéticos del espacio exterior
+
+甚至核电开发, 包括取暖
+Incluso el desarrollo de la energía nuclear, incluida la calefacción
+
+未来的取暖一定是大家记住
+La futura calefacción de seguro, todos recuerden
+
+是无害取暖清洁能源
+Es una calefacción inofensiva y energía limpia
+
+而且这个地方很有可能来自
+Y este sitio probablemente se origine de
+
+乌克兰和欧洲和美国
+Ucrania, Europa y EE. UU
+
+100%来自美国和西方国家
+100% proveniente de EE. UU y países occidentales
+
+你中国跟人家PK那简直是胡扯
+Es absurdo que China compita con ellos
+
+共产党跟人家比, 你比啥比
+El PCCh quiere comparar con otros, con qué comparas usted
+
+你压根脑子就没有
+No tienes cerebro en lo absoluto
+
+所以你不要以为能源制约欧洲
+Así que no creas que el asunto de la energía limita a Europa
+的事情(会持续), 它以经过去了
+(seguirá), ya esto queda en el pasado
+
+而且会让强大的欧洲研发出
+y permitirá a que el fuerte Europa lo desarrolle
+
+人类上最大的文明
+La civilización más grande de la humanidad
+
+美国的所有的
+Todo lo que es EE. UU
+
+战略经济和战略位置
+Su economía y ubicación estratégica
+
+从过去的重欧轻亚变成重亚轻欧
+Desde el pasado que se daba más importancia a Europa y menos en Asia, ahora será al revés
+
+因为欧洲几乎跟美国成为一部份
+Porque Europa es prácticamente parte de EE. UU
+
+诞生的德国, 乌克兰国还有日本国
+El nacimiento de Alemania, Ucrania y Japón
+
+欧洲的国防得到
+Si la defensa europea consigue
+
+美国和日本之间的联合
+La unión entre EE. UU y Japón
+
+这个世界一下子
+Este mundo en un rato
+
+就成了文明的古国
+Se convierte en una civilización antigua
+
+叫无皇有主的时代正式到来
+La era de ningún emperador ha llegado oficialmente
 
 * * *
 
-*编辑&发布：长岛开心*
+日期：04/10/2022
+原视频标题：能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
+Las limitaciones energéticas en Europa son cosas del pasado, y la era de centrarse en Asia y menos en Europa, sin ningún emperador ha llegado oficialmente
 
+原视频日期：03/29/2021
+原视频网址：https://gettr.com/post/p12f4m44209
+任务编号：KC488（4140）
+视频时间段：0:00-2:21
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
