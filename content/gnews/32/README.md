@@ -2,24 +2,41 @@
 ---
 
 
-## 郭文贵先生谈新中国联邦的金山、银山、钻石山
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2350611/)
+## 俄罗斯军舰沉没后基辅传来强烈的爆炸声
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350871/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-在4月10日的大直播中，郭文贵先生谈及新中国联邦的三座大山—金山、银山、钻石山。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323079.jpg)
-郭先生说道，沼泽地将控制世界粮食和资源，美国的核心竞争力是人才。对新中国联邦来说，最重要的就是通过教育培养智慧型人才。以教育和人才为基础，实现新中国联邦的三座大山：第一座山，食物和水；第二座山，维持健康的生物科技，和可持续发展的新能源科技；第三座大山，智慧和现代化数据。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-乌克兰即将迎来血腥时刻，俄罗斯和中共还将上演最后一幕，幕后的沼泽地浮出水面后，新大西洋公约诞生。
+整理：li yan li
+编辑：朝花夕拾
 
-参考链接：[4/10/2022 文贵直播](https://gettr.com/post/p157joz28f0)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
 
-编辑/总编: 雪梨
+4月15日，莫斯科在黑海的主要军舰“莫斯科号”起火沉没后，基辅听到了强烈的爆炸声，乌克兰各地响起了空袭警报，居民们准备迎接俄罗斯的新攻击。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+爆炸似乎是乌克兰首都地区最重要的事件之一，因为俄罗斯军队本月早些时候从该地区撤走，准备在南部和东部作战。
+
+乌克兰声称对“莫斯科”号的沉没负责，称这艘苏联时代的俄罗斯黑海舰队的旗舰被其一枚导弹击中。它是用国产的海王星反舰导弹击中了这艘军舰。
+
+但俄罗斯国防部表示，在船上的弹药爆炸后，导弹巡洋舰上的500多名船员被疏散，该部不承认有攻击。该船于周四晚些时候在被拖往港口时沉没。
+
+该舰的损失发生在俄罗斯海军发动入侵乌克兰近50天后，且继续轰炸黑海上的乌克兰城市之时。毗邻亚速海的敖德萨和马里乌波尔的居民一直在准备迎接俄罗斯新的攻击。
+
+据报道，基辅南部的赫尔松，东部城市哈尔科夫和西部的伊万诺-弗兰科夫斯克镇发生爆炸后，没有立即报告损失情况。乌克兰媒体报道了基辅部分地区的停电情况。
+
+乌克兰媒体称，周五午夜过后，乌克兰所有地区都响起了空袭警报，包括东部地区的卢甘斯克和扎波罗热继续响起警报。
+
+新闻链接：[俄罗斯军舰沉没后基辅传来强烈的爆炸声](https://www.channelnewsasia.com/world/powerful-explosions-heard-kyiv-after-russian-warship-sinks-2627526)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

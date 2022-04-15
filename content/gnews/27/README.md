@@ -2,41 +2,42 @@
 ---
 
 
-## 民生集萃——疫情严重又失业（2022.4.15）&#8211;电商人员疫情失业
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350882/)
+## 纽约地铁枪击案的嫌犯被举报后被捕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350958/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+据多个报道，纽约地铁大规模枪击案的疑犯被举报电话提供线索后已被捕。
 
-整理/编辑：gardeniahu
+官员们说，62岁的弗兰克·詹姆斯（Frank James）周三下午[被捕](https://www.insider.com/nyc-subway-shooting-suspect-arrested-2022-4)，他与布鲁克林日落公园附近的地铁列车上发生的大规模枪击案有关，因为当局收到了关于他的行踪的线索。他被指控犯有联邦恐怖主义罪行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8744-5.png)图片来源：小红书
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1863.png)图片来源：新闻链接
 
+在嫌疑人被列为枪击案的“疑犯”后，警方启动了对他的搜索。两个执法部门的消息来源告诉CNN和美联社，是詹姆斯向犯罪制止者热线（Crime Stoppers hotline）举报了他的位置。
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
+“犯罪制止者”接到一个电话……那个人说，“你知道，我认为你在找我。我看到新闻上到处都是我的照片，我就在这个麦当劳附近，”一位执法人士周三[告诉](https://nypost.com/2022/04/13/brooklyn-shooting-suspect-frank-james-in-police-custody/)《纽约邮报》。
 
-帖子原文：
+纽约市警察局部门主管肯尼斯·科里（Kenneth Corey）说，当警察到达曼哈顿东村附近的那家麦当劳时，嫌犯不在楼里。当局在周围地区开车，然后在附近逮捕了他。他们在“圣马克斯和第一街的拐角处”将其拘留，科里说。
 
-电商人员疫情失业。
+“我的纽约同胞们，我们抓住了他。”纽约市长埃里克·亚当斯（Eric Adams）在詹姆斯被捕后说。
 
-没想到在最艰难的时候失业，广州疫情这么严重又找不到工作，刚刚租好房子。呜呜呜，今天老板说现在行情不怎么样公司决定解散明天可以不用来上班了，番禺南村有没有万达介绍。
+他的被捕为周二美东时间上午8:30左右开始的搜索画上了句号，当时一名枪手引爆了两枚烟雾弹，并在一辆开往曼哈顿的N线列车驶入日落公园的36街地铁站时开火。
 
-#失业  #广州
+警方说，嫌犯至少开了33枪，击中了10人。在随后的恐慌中，有十几人受伤，一些人因吸入烟雾而接受治疗。
 
-发布于04.13
+执法官员还没有证实导致詹姆斯被捕的电话来源。纽约警察局的一位发言人告诉《Insider》：“所有打给犯罪制止者的电话都是严格保密的。”
 
-精彩评论
+周三，一位当地的安全摄像机安装人员因在曼哈顿东村指认了枪击嫌疑人，并通知了纽约警方而受到
 
-果然是你  回复：电商内卷严重，订单减少。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1838.png)图片来源：小红书
-参考链接:[电商人员疫情失业](https://www.xiaohongshu.com/discovery/item/6256cc9b000000002103f45a?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649993676)
+新闻来源：https://www.insider.com/nyc-subway-shooting-suspect-called-tip-that-led-capture-cnn-2022-4
 
-发布：tianzhihuan
+* * *
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
 
  
 
