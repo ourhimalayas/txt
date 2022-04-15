@@ -2,20 +2,23 @@
 ---
 
 
-## 中日财经爆┃一名中国人获得日本首例“特定技能2号”资格
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349277/)
+## 巴菲特针对推特控股之事说“马斯克在赢，这是美国”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349457/)
 
-撰稿：东京樱花团/百花李香
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-105.jpg)
+图片来源： superpyq.com
 
-4月14日，据《共同通信》在线报道，岐阜县各务原市的一家建筑公司工作的中国人翁飞，根据日本为接受外国人而引入的特定技能制度，他获得了《特定技能2号》资格。也就是说，他得到了允许永久居留的资格。据支援团体和国土交通省称，这在日本是首列。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-38.jpg)[图片来源](https://www.mofa.go.jp/mofaj/ca/fna/ssw/us/overview/#:~:text=Automobile%20Repair%20and%20Maintenance)
-特定技能是日本修改后的移民难民法中对新移民法设立的一种新的外国人居留身份，该法于2019年4月生效，涵盖14个领域，包括农业和食品服务。特定2号在留资格对居留期的延长没有上限，并且允许家庭成员来日本探亲。
+零对冲网4月14日报道，纽约时报说根据两个知道内情的人士透露，推特委员会正在考虑采取防范性动作，例如给马斯克设陷井让他难以在这个社交巨头平台上发挥作用。
 
-信息源：[「特定技能2号」全国初の認定　岐阜の中国籍男性](https://news.yahoo.co.jp/articles/79c322e82989390159a7ef0fb083c1d35313d964#:~:text=%E3%80%8C)
+这个陷井之一就是股东权利计划，该计划能够限制单一股东的运作能力，这基本上是让该公司影响新股份或允许现有的持股者而非潜在股票获得者购买降价股份。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+多数自由派反对马斯克，但有一个全球著名的最富者之一却支持马斯克，他说： “ 这是美国的产物，我认为马斯克有主见，他正在赢，这是美国，你不能靠做梦，这事很惊人。”
+
+当马斯克提出$54.20一股的价格收购时，沙特王族在推特上回复说：“ 我不认为这个价格接近于推特成长前景的内在价值，作为一个最大的长期推特股票持有者，我拒绝这个价。” 这个有些奇怪，因为表面看起来沙特王族并不是最大的持股者。马斯克随即问： “你拥有多少股份，直接的还是间接的？王族对自由言论的观点如何？” 马斯克说，如果A计划不行，他还有B计划。
+
+#### 新闻来源： [Buffett Says “Musk Is Winning…It’s America” As TWTR Board Ponders Poison Pill](https://www.zerohedge.com/markets/best-and-final-offer-elon-musk-offers-buy-twitter-5420-share)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,28 @@
 ---
 
 
-## 中日财经爆┃马斯克拟以430亿美元收购推特 遭沙特王子拒绝
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349262/)
+## 巴西人道救援 接收乌克兰难民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349449/)
 
-撰稿：东京樱花团/asket
+作者：Naughty(文行)，自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3549803-PH.jpeg)
+另据 巴西司法和公共安全部部长托瑞斯指出，接收难民是一项人道主义行为，因此，联邦政府将致力于帮助所有在巴西寻求安全、居住和工作等权利的乌克兰人。为此，在该国最新颁发的一项条例中，巴西司法部和外交部将允许政府签发人道主义签证和居留许可，用以向受俄乌战争影响的乌克兰人提供帮助。目前，这项工作正在受到国际移民组织和国际移民观察站的支持，乌克兰难民可以通过这两个组织获取相关的讯息和资源。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1807.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.massnews.com%2Fmusks-twitter-offer-rejected-analysis%2F&amp;psig=AOvVaw2XIWKzDNHeN-E7cJ9WC4lX&amp;ust=1650079651705000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQ3YkBahcKEwjA9u7wj5X3AhUAAAAAHQAAAAAQEA)
+据悉，为了躲避俄军的攻击，当前已有超过四百万乌克兰人不得不离开祖国。对此，乌克兰第一夫人泽连斯卡向各国呼吁称，希望国际社会将乌克兰民众视为世界大家庭的一员。泽连斯卡强调，俄乌战争激发了乌克兰孩子们最深的爱国情怀，他们伺候必将成为最忠诚的爱国者和祖国最坚强的捍卫者。因此，请各国的友好民众帮助这些孩子和母亲，直到他们能够重返家园。
 
-沙特王子瓦利德-本-塔拉勒是Twitter的主要股东，他拒绝了埃隆-马斯克以430亿美元收购该公司的提议。
+参考链接：
+1.[巴西人道救援 接收烏克蘭移民和難民](https://www.cna.com.tw/news/aopl/202204130016.aspx)
+2.[Treat our refugees as one of your own, Ukraine’s first lady Olena Zelenska asks the West](https://www.thetimes.co.uk/article/treat-our-refugees-as-one-of-your-own-ukraines-first-lady-olena-zelenska-asks-the-west-2mjjq5zz6)
 
-瓦利德-本-塔拉勒(Al Waleed bin Talal)在Twitter上说，他拒绝企业家对该社交媒体平台的现金报价，因为它太低了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-“我不相信@elonmusk提出的报价（54.20美元）接近（Twitter）的内在价值，因为它的增长前景。作为Twitter最大和长期的股东之一，@Kingdom\_KHC和我拒绝这一提议。”
-
-王子经营着位于沙特的控股公司KHC，他还分享了一条2015年的推文，其中他宣布将其在Twitter的股份增至5.7%。
-
-马斯克先生是该公司最大的股东，拥有9.2%的股份，他在周四凌晨宣布了对Twitter的收购要约。
-
-马斯克先生在给Twitter董事会主席布雷特-泰勒的信中说：”我提出以每股54.20美元的现金收购Twitter的100%股份，比我开始投资Twitter的前一天溢价54%，比我公开宣布投资前一天溢价38%。
-
-据彭博社报道，马斯克先生的个人财富约为2600亿美元，他说，Twitter必须私有化，才能进行他认为必要的变革。
-
-“马斯克先生在信中说：”我投资于推特，因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常的民主社会所必须的。”推特具有非凡的潜力。我将释放它。”
-
-他说，如果他的提议不被接受，他 “将需要重新考虑我作为股东的立场”。
-
-据报道，Twitter的董事会在周四开会讨论这一提议，该公司正在与员工举行全员会议，讨论这一情况。
-
-与此同时，白宫表示，它对埃隆-马斯克收购该社交媒体平台的提议不予置评。
-
-“这是一个私人投资者的提议，”白宫首席副新闻秘书Karine Jean-Pierre在空军一号上告诉记者。
-
-信息来源： [**Saudi prince, who is major Twitter shareholder, rejects Elon Musk offer to buy company**](https://www.independent.co.uk/tech/elon-musk-twitter-offer-saudi-b2058326.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+编辑：宁文静
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

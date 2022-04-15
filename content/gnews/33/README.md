@@ -2,29 +2,38 @@
 ---
 
 
-## 拜登总统称：美国决定派特使前往乌克兰
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2348442/)
+## 有声| 中共继续清零 美国让上海领馆部分人员离开
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2348759/)
 
-撰稿：追着曙光跑
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
+【大纪元4月9日讯】 在中共执意清零封锁之际，上海Covid-19病例激增。美国周六（4月9日）让其在上海领馆的部分工作人员离开，同时警告要去中共国旅游的美国公民三思。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-1.png)左图是
+防疫人员在杀狗。右图是美国驻上海领事馆外交官遛狗，被防疫人员呵斥。
+自3月以来，上海的中共病毒病例报告已经超过10万个，中共苛刻的清零政策受到挑战。
 
-据路透社4月15日的报道，美国总统拜登周四（14日）表示，美国高层官员将很快决定是否派遣一名高级官员前往基辅，以表示对乌克兰的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-15-at-11.02.13-AM.jpeg)图片来源：原新闻
-拜登总统在准备启程前往北卡罗来纳州时告诉记者：美国现在正在做出这个决定。
+该市大约2,600万居民于上周被分阶段封锁，结果引发食物短缺问题，满腹怨言的民众与政府官员大吵的视频在网上热传。最近，上海卫生部门为了清零，竟然将一只宠物柯基犬杀死，引起人们的公愤。
 
-一位熟悉情况的消息人士周三表示，国防部长奥斯汀或国务卿布林肯可能会去，但拜登总统和副总统哈里斯都不太可能去。
+美国大使馆发言人在一份声明中说，“受Covid-19病例激增以及相关应对措施所带来的限制影响，美国国务院现允许非必要员工离开其在上海的领事馆。”
 
-英国首相约翰逊，在上周成功访问基辅会见乌克兰总统泽连斯基后，美国官员开始讨论是否派遣高级特使。
+之后，美国、法国和意大利驻华领事馆纷纷警告他们在上海的公民，随着中共当局执行COVID-19遏制措施，妻离子散、骨肉分离的一幕恐怕难免。
 
-美国国家安全顾问沙利文，周四在华盛顿特区经济俱乐部接受采访时表示，如果发生派遣这种情况，美国政府希望确保以非常安全的方式来完成。
+[【援引连结】](https://www.epochtimes.com/gb/22/4/11/n13708832.htm)
 
-评论：从欧盟委员会主席冯德莱恩，到英国首相约翰逊访问乌克兰基辅之后，现在有美国的跟进，这是告诉俄罗斯和中共，在乌克兰犯下的战争罪，世界民主文明的国家不会看着乌克兰人受到非法入侵而视而不见！
-
-从最开始对俄罗斯的各种经济制裁，以及提供武器和金钱等支持，到现在国家政要亲自访问乌克兰，都非常鲜明地表达了对乌克兰的坚定支持。就像郭先生在大直播中提到的，勇敢善良的乌克兰人，为保卫家园而跟俄罗斯誓死反抗的精神，感动了西方民主文明的国家，正义必然战胜邪恶。愿乌克兰战争早日结束，迎来和平！
-
-*上传：追着曙光跑*
-
-信息来源：[Biden says U.S. deciding on sending envoy to Ukraine](https://www.reuters.com/world/us/biden-says-us-deciding-sending-envoy-ukraine-2022-04-14/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
