@@ -2,30 +2,34 @@
 ---
 
 
-## 德国联邦政府大幅增加对乌克兰军队的武器援助
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353456/)
+## 年轻人心脏骤停纷纷倒下
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2353545/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### 编译 意大利达芬奇农场 小白鸽     
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+短时间内从未有过如此多的有关意大利年轻人心脏骤停的报道。这里讲述的三位年轻人幸运地被救活，第四位却不幸死于家中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-15-alle-23.30.39.png)图片来源：eventiavversinews.it
+一位19岁的男孩上楼梯时突然倒在地上，在场一位陌生人马上对他实施了心脏按摩。这时, 其他人忙着拨打118救护车，将年轻人送到附近的医院。医生和护士对其进行了救治，年轻人得救。
 
+在警察局附近年轻人突感不适，被警察所救
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0164.jpg)
+4月14日下午一位19岁的年轻女孩与两个朋友坐在一辆行驶的汽车里。当车子行驶到一所警察局附近时，坐在后排的女孩突然呼吸困难。她的两位朋友立即停下车，请求警察帮助。女孩已处在意识半清醒状态，其中一位警察马上将女孩带到办公室，让她躺在办公桌上，并让她把舌头伸出嘴外，极力让其保持清醒状态，与此同时让同事拨打118。事实证明，这一措施是正确的，急救人员到达之后，对女孩进行了初步救治之后，宣布女孩脱离危险。
 
+在去巴黎的飞机上，突发心脏病，年轻人被乘坐同一飞机的四位护士所救
 
-图片来源：世界报
+4月12日，从威尼斯飞往巴黎的飞机上一位三十二岁的意大利人被乘坐同机的四位护士所救。这四位护士都在同一所医院的心脏病科工作。据护士们事后回忆，“我们立即意识到他呼吸沉重，这不是正常的睡眠打鼾。”接下来护士们对他心脏实施了救助，使一场可能发生的悲剧，转变成令人难忘的一天。
 
-德国联邦政府正在增加对乌克兰军队的财政援助。联邦财政部长克里斯蒂安·林德纳）周五晚间宣布，培训援助是一项加强合作伙伴安全的举措，将在补充预算中增加到 20 亿欧元。 “大部分资金将使乌克兰受益，”林德纳在推特上写道。总理舒尔茨已经提出了这一要求。
+年轻人在家中死亡
 
-德国电视一台 此前曾报道称，20 亿欧元的军事援助中“超过 10 亿欧元”应用于乌克兰。乌克兰人可以用它来“购买他们想要的武器”。资金将流入的培训援助是联邦政府的一项举措，旨在支持外国合作伙伴照顾自己的安全。
+几天前，一位年轻人在位于意大利中部的家中突然死亡。目前尚不清楚死因，宪兵正在对此进行调查。年轻人的死亡在他所生活的小镇引起震动，人们纷纷在社交媒体上表达了对死者的哀悼。
 
-联邦政府的一位女发言人应法新社的要求告诉法新社，有关部门在两周前原则上同意“大幅增加”援助升级计划。上周，总额定为 20 亿欧元。
+简评：三位意大利年轻人转危为安，死里逃生，而最后一位却没能逃出死亡的阴影。这些以前难得看到的景象，今后疫苗灾难开始时，可能会成为常态。
 
-除了对乌克兰的直接援助外，还计划为所谓的欧洲和平基金（EPF）再提供4亿欧元的新军事援助。这是自 2016 年以来一直存在的欧洲危机管理专项基金。除其他外，EPF 为乌克兰军队采购武器和装备。在 20 亿欧元的总额中，有 4 亿欧元用于乌克兰以外的国家。
+参考链接：
 
-🔗[https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html](https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html)
+[https://www.eventiavversinews.it/ragazzi-che-cadono-come-mosche-tre-giovanissimi-salvati-per-miracolo-da-arresto-cardiaco-dal-passante-di-turno-il-quarto-non-ce-la-fa-trovato-morto-in-casa/](https://www.eventiavversinews.it/ragazzi-che-cadono-come-mosche-tre-giovanissimi-salvati-per-miracolo-da-arresto-cardiaco-dal-passante-di-turno-il-quarto-non-ce-la-fa-trovato-morto-in-casa/)
 
-编辑发表： Shuizhuyu
+编辑、上传： Xiao baige
 
  
 

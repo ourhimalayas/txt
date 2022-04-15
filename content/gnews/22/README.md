@@ -2,29 +2,30 @@
 ---
 
 
-## 特鲁多反对艾伯塔省关闭毒品消费场所
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353394/)
+## 德国联邦政府大幅增加对乌克兰军队的武器援助
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353456/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-撰稿：加拿大温哥华扬帆农场 – 晨熹
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500528271.png)图片来源：True North
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据加拿大【真北方】4月12日报道，特鲁多当天在埃德蒙顿推动其政府的2022年预算时，抨击了艾伯塔省长肯尼为控制高犯罪率和有效减少毒品致死问题而部分关闭该省指定吸毒场所的决定。
-
-据悉，阿尔伯塔省在2016至2021年间约有2000人因吸毒过量致死。省长肯尼因此决定自2020年起陆续关闭并重新安置了部分受监管的毒品消费场所。
-
-对于肯尼的以上措施，特鲁多表示反对并坚持认为阿尔伯塔省政府应该保障安全的毒品消费场所，以解决因摄毒过量而造成的人员伤亡。据悉，埃德蒙顿市长和自由党议员日前启动了对拥有海洛因和可卡因等毒品申请豁免权的联邦法律。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/](https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0164.jpg)
 
 
+图片来源：世界报
+
+德国联邦政府正在增加对乌克兰军队的财政援助。联邦财政部长克里斯蒂安·林德纳）周五晚间宣布，培训援助是一项加强合作伙伴安全的举措，将在补充预算中增加到 20 亿欧元。 “大部分资金将使乌克兰受益，”林德纳在推特上写道。总理舒尔茨已经提出了这一要求。
+
+德国电视一台 此前曾报道称，20 亿欧元的军事援助中“超过 10 亿欧元”应用于乌克兰。乌克兰人可以用它来“购买他们想要的武器”。资金将流入的培训援助是联邦政府的一项举措，旨在支持外国合作伙伴照顾自己的安全。
+
+联邦政府的一位女发言人应法新社的要求告诉法新社，有关部门在两周前原则上同意“大幅增加”援助升级计划。上周，总额定为 20 亿欧元。
+
+除了对乌克兰的直接援助外，还计划为所谓的欧洲和平基金（EPF）再提供4亿欧元的新军事援助。这是自 2016 年以来一直存在的欧洲危机管理专项基金。除其他外，EPF 为乌克兰军队采购武器和装备。在 20 亿欧元的总额中，有 4 亿欧元用于乌克兰以外的国家。
+
+🔗[https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html](https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html)
+
+编辑发表： Shuizhuyu
 
  
 

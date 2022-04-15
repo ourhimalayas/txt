@@ -2,14 +2,10 @@
 ---
 
 
-## 五月花简报（04/15/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2353585/)
+## 4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2353648/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/FC99304E-9815-4356-B855-12F6EF4FD186.jpeg)
-
-*发布：思澈*
+秘密翻译组-北美组
 
  
 

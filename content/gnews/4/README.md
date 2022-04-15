@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：喜币将成为最早的数字法币
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353604/)
+## 20220415郭文贵大直播 ：国内因疫情封控矛盾激化 需要5月攻台来缓解内部压力
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353670/)
 
 作者：东京樱花团小视频组
 
