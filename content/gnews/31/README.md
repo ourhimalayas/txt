@@ -2,31 +2,38 @@
 ---
 
 
-## 文贵爆料14.04：台湾购买的无人机实为中共国制造
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2347287/)
+## 樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347653/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图像-1-4.jpg)
-图片来源：郭先生盖特
+撰稿：东京樱花团/喜马拉雅的微尘
 
-在2022年4月14日的直播中，郭文贵先生揭露，台湾购买的无人机其实是中共国制造的，而且台湾的大部分军队和情报部门都已被中共收买了。
+所罗门群岛准备与中共正式签署一项包含警务合作的安全协议引起美国以及地区国家的高度关切。澳大利亚和美国也相继增加向所罗门施加外交压力，希望所国放弃这一计划。
 
-郭先生透露了无人机的购买过程。首先，中共国将无人机卖给澳大利亚。然后，台湾军方从澳大利亚购买这些无人机，并将其送回台湾。因此，台湾购买的无人机确实是中共的无人机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://live-production.wcms.abc-cdn.net.au/aff337860baf67c387afaac2d65674f6?impolicy=wcms_crop_resize&amp;cropH=3333&amp;cropW=5000&amp;xPos=0&amp;yPos=0&amp;width=862&amp;height=575&amp;imgrefurl=https://www.abc.net.au/news/2022-03-24/draft-leak-chinese-military-base-solomon-islands/100937632&amp;tbnid=UPTlGhAFJyyDxM&amp;vet=12ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ..i&amp;docid=DnQpWLe0qLU5LM&amp;w=862&amp;h=575&amp;itg=1&amp;q=CCP%20Solomon%20Security%20Protocol&amp;ved=2ahUKEwiX2pbQ1JP3AhUFEqYKHbwyCc4QxiAoB3oECAAQFQ)
 
-然而，一旦美国人知道他们在帮助台湾抵御中共的同时，台湾却在暗中向中共购买无人机的事实，他们一定会非常愤怒。
+澳大利亚总理斯考特∙莫里森（Scott Morrison）星期三（4月13日）表示，澳大利亚国际合作与太平洋事务部长泽德∙瑟萨尔加（Zed Seselja）前一天已经飞往所罗门群岛，与该国总理梅纳西∙索加瓦雷（Manasseh Sogavare）就所国与北京4月1日草签的一份安全协议举行会谈。
 
-根据郭先生的情报来源，中共国已经向居住在上海和台湾的台湾卖台贼家人送去了大量的美元现金以及黄金。此外，中共向他们保证，一旦战争开始，中共会好好照顾他们，一旦战争结束，他们可以返回台湾。甚至连台湾的土地也在他们之间划分好了，比如谁将拥有哪块土地。
+美联社引述瑟萨尔加的话说，他已经要求索加瓦雷放弃签署与中共的这份协议。
 
-郭先生还声明：”记住我的话。今天4月14日，我向全世界政府保证并对我所说的话负责。”
+瑟萨尔加出访所罗门群岛的当天，美国副国务卿温迪∙谢尔曼（Wendy Sherman）也与所罗门群岛外长杰里迈亚∙马内莱（Jeremiah Manele）通了电话，讨论美国在所国首都霍尼亚拉重开大使馆的计划。
 
-郭先生深信，”一旦战争开始，最先出卖台湾人的将是台湾的军事和情报机构”。
+美国驻所罗门群岛大使馆1993年关闭后，美国政府今年2月首次宣布重开该大使馆的计划。虽然那时所国与中共安全协议草案尚未曝光，但美国对中共在所罗门群岛这个极具战略意义国家迅速增长的影响力已经感到不安。
 
-台湾危已!
+布林肯国务卿2月作出这一宣布时曾表示，在中共的影响力“根深蒂固”之前，美国也要在该国增加自己的影响力。
 
-新闻来源：
+根据网上曝光的中共与所罗门群岛安全协议草案，中共军舰可以停靠在所罗门群岛进行“后勤补给”，中共也可以派遣警察和其他军方人士前往所罗门群岛“协助维持治安”。
 
-[郭先生盖特14.4.2022](https://gettr.com/post/p15bg9i0d27)
+协议草案还规定，双方的联合安全安排的信息如果对外披露，必须获得中方批准，这还包括媒体的吹风会。
 
+所罗门群岛政府已经表示，安全协议草案已经在两个星期前草签，并将在“整理后”很快定稿。
+
+所罗门群岛政府已经表示，不会允许中共在该国建立军事基地，而中共也否认在南太平洋寻求军事立足点。但是这份安全协议还是让许多西方国家深为关切。
+
+信息来源：[西方国家施压所罗门群岛，劝其放弃签署与中国的安全协议](https://www.voachinese.com/a/western-pressure-mounts-on-solomons-to-quash-pact-with-china-20220413/6527852.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

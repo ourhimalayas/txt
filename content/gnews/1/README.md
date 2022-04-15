@@ -2,32 +2,18 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2348273/)
+## 2022年4月15日《樱花简报》：日元汇率创下约20年来的新低
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2348358/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a7dwr-7cv3c-2.jpg)
-**盖特链接**：[https://gettr.com/user/jim\_jordan](https://gettr.com/user/jim_jordan)
-
-**众议员吉姆·喬丹自述：**
-
-自豪地为俄亥俄州美丽的第四区服务。@JudiciaryGOP排名会员
-为做好我们所说的奋斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ln.jpg)图片来源：网络
-**众议员吉姆·喬丹简介：**
-
-吉姆·喬丹全名詹姆斯·丹尼尔·乔丹（James Daniel Jordan，生于1964年2月17日）是一位美国政治家，自2007年起担任俄亥俄州第四国会选区的美国众议员。
-
-吉姆·喬丹是保守的美国众议院自由核心小组的创始成员，2015年～2017年担任第一任主席，2017年起担任副主席；2019年1月～2020年6月，担任美国众议院监督委员会高级成员；现任美国众议院司法委员会高级成员。
-
-吉姆·喬丹是前总统唐纳德·川普的盟友。2021年1月11日荣获“约旦总统自由勋章”。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220414简报-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

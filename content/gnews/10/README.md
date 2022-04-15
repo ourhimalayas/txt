@@ -2,32 +2,43 @@
 ---
 
 
-## 【G时新闻】台湾军方卖台贼购买了中共国的无人机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2348167/)
+## 大空头投资者Michael Burry警告美国股市将因严重高估而暴跌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2348218/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月14日早，郭先生在直播中提到台湾目前的情况。
+**据《markets.businessinsider.com》作者：Theron Mohamed，2022年4月12日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/aj64z-2b8yu.jpg)图片来源：零对冲
+迈克尔-伯利警告，美国股票被严重高估，价格可能暴跌。
+大空头投资者指出，标准普尔500指数的市售率在10年内几乎翻了一番。
+伯利一直在对历史性的市场泡沫发出警报，并预测将出现史诗般的崩溃。
+以“大空头”闻名的投资者迈克尔-伯利(Michael Burry)周一晚间在一条现已删除的推文中警告，美国股市被严重高估，准备暴跌。
 
-郭先生爆料，台湾此次参与对抗中共入侵的无人机正是来自中共大陆制造。中共先把生产好的无人机卖到澳大利亚，然后台湾的卖台贼再买回来。郭先生说未来中共一旦打台湾，可能出卖老百姓的就是被中共收买的台湾军方和情报系统的卖台贼们。
+伯利在推特上写道：“多重阴霾下的暗夜。”他附上了一张追踪标准普尔500指数等权重股的价格与销售比率的图表。该图表显示，在20世纪90年代和21世纪的大部分时间里，该比率低于1.0，但在过去十年里，该比率几乎翻了一番，今天达到1.9以上。
 
-世界局势正在日益剧变，中共大概可能会在4月底5月份入侵台湾。而现在中共对卖台贼正在进行着战前最猛烈的一波洗脑和策反。中共给台湾一些要员大量赠送美元现金和黄金，有一些给到台湾手里，有一些给到台湾那些身在上海的家人手中。中共同时承诺一旦开战，卖台贼的家人会得到很好的照顾，并且战后的土地分配问题也已经谈妥。
+据推测，伯利想表明该指数的交易价格几乎是其成分股收入的两倍——表明美国最大的上市公司的估值倍数已经延伸到了不可持续的高度。
 
-盖特链接：[https://www.gettr.com/post/p15bgg5af85](https://www.gettr.com/post/p15bgg5af85)
+投资者可能使用了市售率，因为它比市盈率或账面价值更具投机性。它将一个公司的市值与它的收入进行比较，而不是与它的利润或净资产进行比较。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+伯利最出名的是他对两千年代中期美国房地产泡沫的大规模押注，这在书籍和电影“大空头”中是不朽的。他还通过在2021年1月GameStop股价暴涨之前投资该公司，为记忆股票热铺平了道路，并在去年高调押注埃隆-马斯克的特斯拉和凯西-伍德的旗舰方舟创新ETF。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+在过去18个月里，这位Scion资产管理公司的负责人在已经删除的推文中多次对过度的资产估值敲响警钟，并预测了历史性的市场抛售。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+伯利在6月宣称：“所有事物中最伟大的投机泡沫”。他还在当月预测“崩溃之母”，并警告2021年2月“市场正在刀刃上跳舞”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+此外，伯利在2021年6月警告，比特币、Meme-股票和电动汽车公司的价格已经“被投机的狂热驱使到了疯狂的高度，从那里的下跌将是戏剧性和痛苦的。”
+
+原文连接：[https://markets.businessinsider.com/news/stocks/big-short-michael-burry-stock-market-bubble-crash-valuation-multiple-2022-4](https://markets.businessinsider.com/news/stocks/big-short-michael-burry-stock-market-bubble-crash-valuation-multiple-2022-4)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
