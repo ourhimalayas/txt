@@ -2,25 +2,27 @@
 ---
 
 
-## 加拿大政府储备的大量疫苗已过期
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353325/)
+## 渥太华公立学校恢复在校内配戴口罩
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353347/)
 
-采编/撰稿： 加拿大温哥华扬帆农场 – Spirit
+采编：加拿大温哥华扬帆农场 – 青青
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500511781-1.png)图片来源：CTV News
+撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500516141.png)图片来源：CTV News
 
 
-据[CTV新闻]4月13日报道，加拿大卫生部当天表示，由于自今年1月份以来新冠病毒接种人数的大幅减少，全国库存的大量疫苗已经过期。
+据CTV新闻4月13日报道，渥太华公立学校董事会日前宣布：从即日起，所有幼儿园及学校的工作人员、学生和访客在校内必须配戴口罩，但学生不会因拒绝该规定而被停学或开除。
 
-据悉，该数量为150万剂过期疫苗占加拿大政府自2020年12月以来，所总共购买1.18亿剂的2%，其中莫德纳疫苗就有约50万剂。而在目前1800多万剂库存疫苗中，绝大部分都将在未来四个月内过期。
+据悉，除了在餐饮、体育课等特殊情况时可以摘下口罩外，如学生在没有豁免的情况下拒绝遵守该项规定，学校将与其家长或监护人联系，以协助学生达到口罩要求，或申请豁免配戴口罩。
 
-报道称，由于加拿大卫生部正在等待疫苗制造商关于是否可以延长有效期的通知，因此，以上已过期的疫苗将不会被立即销毁。
+渥太华教育总监对此表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。此外，该市卫生官员也敦促各企业雇主鼓励其员工在室内配戴口罩，以限制病毒传播。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源： [https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
+新闻来源： [https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
 
  
 

@@ -2,10 +2,25 @@
 ---
 
 
-## 4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2353330/)
+## 安大略省第六波新冠病毒疫情
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353366/)
 
-秘密翻译组-北美组
+采编/撰稿： 加拿大温哥华扬帆农场 – 文莱
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500520611.png)图片来源：CTV News
+
+
+据【CTV新闻】4月14日报道，安大略省当天大约有65%的医院重症监护患者正在接受“新冠病毒”治疗，而其余35%的患者在因其他疾病入院后也感染该病毒，其中有23人因此死亡。
+
+报道称，安省因奥密克戎新变体感染而住院的患者在过去五天中持续增加。同时，生活废水数据表明，该省的感染人数不断飙升，预估值约为每天10万例。此外，目前全省人口的病毒阳性率约为18.1%，高于4月初的17%。
+
+据最新疫情报告显示，由于病毒检测设备和人员的严重不足，安省真实确诊率应该被大幅低估。卫生部门因此将于近期发布最新数据模型，以掌握第六波疫情的数据变化。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940](https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940)
 
  
 

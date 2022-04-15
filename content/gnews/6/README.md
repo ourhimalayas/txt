@@ -2,27 +2,25 @@
 ---
 
 
-## 渥太华公立学校恢复在校内配戴口罩
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353347/)
+## 特鲁多政府在疫情期间的恐慌性投资
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353386/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+采编/撰稿： 加拿大温哥华扬帆农场 – 文莱
 
-撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500516141.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500524161.png)图片来源：True North
 
 
-据CTV新闻4月13日报道，渥太华公立学校董事会日前宣布：从即日起，所有幼儿园及学校的工作人员、学生和访客在校内必须配戴口罩，但学生不会因拒绝该规定而被停学或开除。
+据加拿大【真北方】4月13日报道，特鲁多政府于疫情初期，在未经任何调查核实的情况下，仓促动用巨额纳税人资金，恐慌性投资最终毫无作用的新冠病毒测试系统。
 
-据悉，除了在餐饮、体育课等特殊情况时可以摘下口罩外，如学生在没有豁免的情况下拒绝遵守该项规定，学校将与其家长或监护人联系，以协助学生达到口罩要求，或申请豁免配戴口罩。
+报道称，特鲁多政府在2020年向现已倒闭的[斯巴达生物科学公司]投资了数百万加元，为安大略省提供便携式病毒快速检测装置。尽管该公司所生产的检测剂被验证毫无效果，但加拿大卫生部仍然批准了该产品的生产。最终，该公司在去年以技术问题为由停止了生产并宣布破产。
 
-渥太华教育总监对此表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。此外，该市卫生官员也敦促各企业雇主鼓励其员工在室内配戴口罩，以限制病毒传播。
+对此，众多议员和医药专家都抨击了这项失败的投资，并指责自由党政府随意浪费纳税人的钱进行了恐慌性的购买。同时还在疫情期间，因购买了不合格的医疗防护装备而损失了近1.06亿加元。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源： [https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
+新闻来源：[https://tnc.news/2022/04/13/taxpayers-paid-20-million-for-covid-19-tests-that-never-worked/](https://tnc.news/2022/04/13/taxpayers-paid-20-million-for-covid-19-tests-that-never-worked/)
 
  
 
