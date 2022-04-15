@@ -2,25 +2,31 @@
 ---
 
 
-## 2022年4月15日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2351023/)
+## 有声｜“上海人忍耐已到极限”吗？
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2351120/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1102.jpg)
+**2022-04-15**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-34.png)
+[新唐人](https://www.ntdtv.com/gb/2022/04/14/a103400447.html)北京时间4月15日消息，上海市无人性的“清零防疫”导致民怨沸腾，也令许多中共国人对中共体制彻底绝望。网文《上海人民的忍耐已经到了极限》阅读量超过2000万，一度被封杀。
 
-发稿：信心的选择
+这篇4月13日发表在微信上的网文，细数上海封城期间各种“刷新底线的事件”，直斥“连坐陪罪”等封控苛政。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+文章说，封城以来“每天都有刷新底线的事件”，并提到又一起病患因延误治疗死亡的悲剧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
+据信，一位病情稳定的癌症患者，4月3日发病去医院求医，医院拒绝小区的核酸阴性报告，要求必须再做核酸检测，确认检测阴性后才能收治。病人在等待检测结果的过程中离世，死前最后一句话是询问“核酸报告出来了吗”。而核酸阴性报告在他去世两小时后才出来。
 
+这篇文章一度遭微信封杀，原文不可见。但随后文章又被恢复，却疑似被限流，禁止其他用户分享。
+
+与此同时，网络还流出一篇题为“上海人的忍耐还远远没有到极限”的短文，隐晦地呼吁中共国人用实际行动对中共政权展开抗争。
+
+秘翻新闻 二丫编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

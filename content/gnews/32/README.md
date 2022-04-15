@@ -2,40 +2,42 @@
 ---
 
 
-## 俄罗斯军舰沉没后基辅传来强烈的爆炸声
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350871/)
+## 纽约地铁枪击案的嫌犯被举报后被捕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350958/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+据多个报道，纽约地铁大规模枪击案的疑犯被举报电话提供线索后已被捕。
 
-整理：li yan li
-编辑：朝花夕拾
+官员们说，62岁的弗兰克·詹姆斯（Frank James）周三下午[被捕](https://www.insider.com/nyc-subway-shooting-suspect-arrested-2022-4)，他与布鲁克林日落公园附近的地铁列车上发生的大规模枪击案有关，因为当局收到了关于他的行踪的线索。他被指控犯有联邦恐怖主义罪行。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1863.png)图片来源：新闻链接
 
+在嫌疑人被列为枪击案的“疑犯”后，警方启动了对他的搜索。两个执法部门的消息来源告诉CNN和美联社，是詹姆斯向犯罪制止者热线（Crime Stoppers hotline）举报了他的位置。
 
-4月15日，莫斯科在黑海的主要军舰“莫斯科号”起火沉没后，基辅听到了强烈的爆炸声，乌克兰各地响起了空袭警报，居民们准备迎接俄罗斯的新攻击。
+“犯罪制止者”接到一个电话……那个人说，“你知道，我认为你在找我。我看到新闻上到处都是我的照片，我就在这个麦当劳附近，”一位执法人士周三[告诉](https://nypost.com/2022/04/13/brooklyn-shooting-suspect-frank-james-in-police-custody/)《纽约邮报》。
 
-爆炸似乎是乌克兰首都地区最重要的事件之一，因为俄罗斯军队本月早些时候从该地区撤走，准备在南部和东部作战。
+纽约市警察局部门主管肯尼斯·科里（Kenneth Corey）说，当警察到达曼哈顿东村附近的那家麦当劳时，嫌犯不在楼里。当局在周围地区开车，然后在附近逮捕了他。他们在“圣马克斯和第一街的拐角处”将其拘留，科里说。
 
-乌克兰声称对“莫斯科”号的沉没负责，称这艘苏联时代的俄罗斯黑海舰队的旗舰被其一枚导弹击中。它是用国产的海王星反舰导弹击中了这艘军舰。
+“我的纽约同胞们，我们抓住了他。”纽约市长埃里克·亚当斯（Eric Adams）在詹姆斯被捕后说。
 
-但俄罗斯国防部表示，在船上的弹药爆炸后，导弹巡洋舰上的500多名船员被疏散，该部不承认有攻击。该船于周四晚些时候在被拖往港口时沉没。
+他的被捕为周二美东时间上午8:30左右开始的搜索画上了句号，当时一名枪手引爆了两枚烟雾弹，并在一辆开往曼哈顿的N线列车驶入日落公园的36街地铁站时开火。
 
-该舰的损失发生在俄罗斯海军发动入侵乌克兰近50天后，且继续轰炸黑海上的乌克兰城市之时。毗邻亚速海的敖德萨和马里乌波尔的居民一直在准备迎接俄罗斯新的攻击。
+警方说，嫌犯至少开了33枪，击中了10人。在随后的恐慌中，有十几人受伤，一些人因吸入烟雾而接受治疗。
 
-据报道，基辅南部的赫尔松，东部城市哈尔科夫和西部的伊万诺-弗兰科夫斯克镇发生爆炸后，没有立即报告损失情况。乌克兰媒体报道了基辅部分地区的停电情况。
+执法官员还没有证实导致詹姆斯被捕的电话来源。纽约警察局的一位发言人告诉《Insider》：“所有打给犯罪制止者的电话都是严格保密的。”
 
-乌克兰媒体称，周五午夜过后，乌克兰所有地区都响起了空袭警报，包括东部地区的卢甘斯克和扎波罗热继续响起警报。
+周三，一位当地的安全摄像机安装人员因在曼哈顿东村指认了枪击嫌疑人，并通知了纽约警方而受到
 
-新闻链接：[俄罗斯军舰沉没后基辅传来强烈的爆炸声](https://www.channelnewsasia.com/world/powerful-explosions-heard-kyiv-after-russian-warship-sinks-2627526)
+新闻来源：https://www.insider.com/nyc-subway-shooting-suspect-called-tip-that-led-capture-cnn-2022-4
 
-发布：tianzhihuan
+* * *
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
 
  
 
