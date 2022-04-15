@@ -2,39 +2,32 @@
 ---
 
 
-## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
+## “莫斯科”号被击沉的意义——军事帝国神话的破灭！
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2349642/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+编辑：文宝
+![](https://n.sinaimg.cn/news/crawl/103/w550h353/20220415/e0ae-aeb61e267a207523ca9e12d8d1cc7eb3.jpg)
+这应该也是开战以来，俄海军遭遇的最惨重损失。
 
-翻译/编辑：小红帽
+要知道，“莫斯科”号不是普通舰船，它是俄罗斯黑海舰队旗舰，可搭载16发P-1000“玄武岩”重型反舰导弹，满水排量超过11000吨。在俄海军现役水面战斗舰船中，它是第三大，仅次于俄“库兹涅佐夫号”航母和“彼得大帝号”核动力导弹巡洋舰。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
+现在，“莫斯科号”沉没在了黑海海底。
+
+谁干的？
+
+俄国防部的说法是，军舰上火灾引发弹药殉爆，军舰遭到重创。俄海军后来说，大火已被控制，导弹发射器完好，船员被转移，这艘船将被拖到港口。但最终，这艘旗舰，还是没能支撑到港口，在海上苦苦挣扎后，失去稳定性并在风浪中沉没。
+![](https://n.sinaimg.cn/news/crawl/46/w550h296/20220415/e4d6-c59e2042af051e90763dd7a4546f4213.png)
 
 
-根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
+但按照乌克兰方面的说法，是乌军发射了两枚“海王星”反舰导弹，击中了“莫斯科”号。“海王星”反舰导弹由乌克兰开发，基于早期的苏联设计。导弹发射器安装在海岸附近的卡车上，最远射程 280 公里。根据“莫斯科号”最初的位置，倒确实在射程之内。
 
-Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
+因为黑海风暴，西方也没有清晰的卫星图片，也承认无法证实到底发生了什么，也不清楚“莫斯科号”上到底有多大伤亡。
 
-这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
+但对俄罗斯来说，打击应该是重大的。这是俄罗斯军事帝国神话的破灭！
 
-这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
 
-在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
 
-检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
 
-目前尚不清楚同谋者是否是以太坊基金会的其他员工。
-
-资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

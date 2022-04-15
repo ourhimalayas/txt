@@ -2,38 +2,40 @@
 ---
 
 
-## 美参众议员访台，与蔡英文总统会晤
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2349479/)
+## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/id13711654-2204140837042378-600x400-1.jpg)
-台湾当地时间4月14日晚，美国联邦共和党首席议员Lindsey Graham带领的参众两院议员一行6人抵达台湾。该团是本年访台的首个美国国会参众两院访问团，其成员横跨预算、外交、国土安全、卫生教育劳工、财政、军事等领域，均为国会两院的资深领袖。而Lindsey Graham曾于2016年角逐共和党总统候选人提名。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-当地时间4月15日，美国参众两院议员与台湾蔡英文总统进行了会晤。该场会晤进行了现场直播，蔡英文总统感谢台湾得到了美国跨党派跨两会的支持，会为捍卫台湾的自由民主而努力。美国表示在俄乌战争之际，在共产党对台湾的威胁之下，美国访问台湾代表对台湾自由民主法治的支持，如果放弃台湾，那就是放弃了自由。中共支持普京、攻击台湾、以及对不同政见的残忍迫害等，中共所作的一切罪恶，是时候应该让他们付出代价了，世界人民正在集结力量。中共已经给美国此次访台表达了严重不满甚至威胁，但美国不会退缩。台湾的芯片科技和自由贸易经济是印太地区乃至全球的重要组成部分，台湾的安全就是全世界的安全。
+翻译/编辑：小红帽
 
-美国会和台湾和乌克兰站在一起，愿上帝保佑台湾。
-
-reference：
-
-[https://www.epochtimes.com/gb/22/4/14/n13711579.htm](https://www.epochtimes.com/gb/22/4/14/n13711579.htm)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
 
 
+根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
 
+Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
 
+这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
 
-撰稿、发布：骄子
+这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
 
-* * *
+在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
 
-欢迎订阅我们的GNews账号：
+检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+目前尚不清楚同谋者是否是以太坊基金会的其他员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

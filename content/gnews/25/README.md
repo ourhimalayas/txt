@@ -2,32 +2,31 @@
 ---
 
 
-## 中日财经爆┃美国摩根大通利润暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349178/)
+## 沙利文重申美对台承诺：任何形式的侵犯都不接受
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2349240/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃美国摩根大通利润暴跌.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.reuters.com%2Fbusiness%2Ffinance%2Fjpmorgan-profit-falls-trading-slowdown-2022-01-14%2F&amp;psig=AOvVaw2GJoamcw6ejB8HCLAI8fzy&amp;ust=1650077958798000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCOCmxMmJlfcCFQAAAAAdAAAAABAD) 
-摩根大通周三（4月13日）表示，其第一季度的利润已经比去年下降了42%，部分原因是由于通货膨胀率上升，以及在乌克兰冲突中结束了在俄罗斯的业务，该银行减记了近15亿美元的资产。
+![白宫安全顾问沙利文2022年4月14日参与华盛顿经济俱乐部活动。](https://gdb.voanews.com/03a90000-0aff-0242-e0aa-08da1e2ebf0d_w1023_r1_s.jpg)白宫安全顾问沙利文2022年4月14日参与华盛顿经济俱乐部活动。（VOA）
+据美国之音4月15日报道，白宫国家安全顾问沙利文4月14日重申美国对台湾的安全承诺，并表示中共国正在仔细观察乌克兰发生的一切，并从中汲取经验，为未来入侵台湾作准备。
 
-这家美国资产规模最大的银行表示，利润降至82.8亿美元，或每股2.63美元，低于华尔街预期的每股2.72美元。收入下降了5%，至315.9亿美元，幅度较小。
+沙利文表示，“如果这样的事能发生在欧洲，也能发生在印太地区。负责任的国家有义务就此发出明确的信息，那就是任何类型的侵犯都是不可接受的，无论发生在哪里”。美国与台湾有以《台湾关系法》建立的安全伙伴关系。美国会“采取一切可能的方式”确保中共国不入侵台湾，但并没有明确透露如果中共国进攻台湾，美国如何回应。
 
-首席执行官Jamie Dimon在一份声明中说，该银行认为 “由于高通胀、供应链问题和乌克兰战争，未来将面临重大的地缘政治和经济挑战。”
+沙利文表示，中共国目前未向俄罗斯提供武器帮助其入侵乌克兰。沙利文没有排除拜登总统可能会访问乌克兰。虽然损失惨重，但乌克兰树立了不屈不挠的战斗民族的形象。战争总会过去，乌克兰这个伟大的民族一战成名，永载史册。处在严酷封城中的上海，2600万人口，有人宁愿跳楼自杀，为什么不能像乌克兰人民那样用生命去抗争呢？酒瓶子落地还能砸死人呢，一条生命无声无息就从高楼坠落下来了。
 
-上个月，摩根大通说它正在逐步减少其俄罗斯业务。戴蒙在他的年度股东信中说，虽然管理层并不担心其在俄罗斯的风险敞口，但 “随着时间的推移，它仍然可能损失约10亿美元”。
+侵略战争不会让人接受，如果主动放弃生命，相当于放弃抵抗呢？
 
-周三，该银行的首席财务官杰里米-巴纳姆(Jeremy Barnum)告诉记者，在承受本季度的打击后，大约还有6亿美元的俄罗斯风险敞口。
+新闻参考链接：[https://www.voachinese.com/a/sullivan-reiterates-security-commitment-toward-taiwan-20220414/6529713.html](https://www.voachinese.com/a/sullivan-reiterates-security-commitment-toward-taiwan-20220414/6529713.html)
 
-信息来源： 
-[**JPMorgan profits crash**](https://dailytelegraph.co.nz/money/jpmorgan-profits-crash/)
+编辑：胖丁
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

@@ -2,24 +2,41 @@
 ---
 
 
-## 美国财政部长耶伦批评中共对俄乌战争中的可疑立场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349480/)
+## 由于无限期的封锁，巴西到上海港的肉类货物运输中断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349563/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-122.jpg)
-4月13日，美国财政部发布耶伦在大西洋理事会的讲话。北京最近确认了与俄罗斯有一种“特殊关系”，耶伦希望这可以在结束俄罗斯入侵乌克兰战争中发挥作用。耶伦称，未来把经济问题与国家安全等事项分开将“越来越难”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-耶伦称，华盛顿要求对俄罗斯采取“坚决行动”，而中共国如何反应，可能会影响世界对中共国及其“拥抱进一步经济一体化”意愿的态度。
+翻译/编辑：小红帽
 
-“无论中共国的地缘政治目的和战略如何，我们都找不出对俄罗斯入侵的良性解释，也看不到其对国际秩序的影响。如果在当下关键时刻不尊重主权和领土完整的原则，中共国就不能指望全球社会在未来尊重其对这些原则的诉求。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SIPG-Shanghai-780x470-1.jpg)图片来源：SIPG
 
-耶伦在讲话中指出，俄罗斯对乌克兰的入侵表明有必要”捍卫国际秩序“，并保护这种秩序为发达国家和发展中共国家提供的和平与繁荣。
 
-这将涉及到把“致力于一套核心价值观和原则 “的合作伙伴聚集起来。为应对21世纪的挑战，现有的机构，如国际货币基金组织（IMF）和多边开发银行等需要进行现代化改造。
+根据CNA 4月15日报道，一位知情人士告诉路透社，巴西对中共国上海港的肉类出口因该港口被封锁而中断。
 
-新闻来源：
+该人士说，至少有一家航运公司已经停止向上海运送巴西肉类，同时为客户提供将货物运送到新港和宁波的替代方案。
 
-[https://www.zerohedge.com/geopolitical/yellen-slams-chinas-position-russia-ukraine-war](https://www.zerohedge.com/geopolitical/yellen-slams-chinas-position-russia-ukraine-war)
+一家大型巴西肉类出口商取消了三个集装箱的装运，而另一家则停止预订新货物。
+
+消息人士称，自3月底上海封锁开始，冷冻食品的集装箱已经开始在港口积压，对进港肉类的检查已经停止。
+
+上海是巴西向中共国进口肉类的主要入境点，而中共国是巴西的最大贸易伙伴。
+
+根据行业数据显示，2021年中共国从巴西进口了723,370吨牛肉和640,469吨鸡肉，是迄今为止巴西肉类的最大消费者。
+
+由于中共国大部分地区的新冠措施影响了国内需求并阻碍了贸易，中共国的整体进口量在3月意外下降。
+
+目前还不清楚有多少货物受到上海封锁的影响。巴西牛肉游说团体Abiec和猪肉及家禽游说团体ABPA均未立即回应置评请求。
+
+资料来源：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

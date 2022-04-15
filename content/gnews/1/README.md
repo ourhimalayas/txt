@@ -2,41 +2,20 @@
 ---
 
 
-## 由于无限期的封锁，巴西到上海港的肉类货物运输中断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349563/)
+## 视频|巴西人道救援 接收乌克兰难民
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2349668/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-翻译/编辑：小红帽
+当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
+另据 巴西司法和公共安全部部长托瑞斯指出，接收难民是一项人道主义行为，因此，联邦政府将致力于帮助所有在巴西寻求安全、居住和工作等权利的乌克兰人。为此，在该国最新颁发的一项条例中，巴西司法部和外交部将允许政府签发人道主义签证和居留许可，用以向受俄乌战争影响的乌克兰人提供帮助。目前，这项工作正在受到国际移民组织和国际移民观察站的支持，乌克兰难民可以通过这两个组织获取相关的讯息和资源。
+据悉，为了躲避俄军的攻击，当前已有超过四百万乌克兰人不得不离开祖国。对此，乌克兰第一夫人泽连斯卡向各国呼吁称，希望国际社会将乌克兰民众视为世界大家庭的一员。泽连斯卡强调，俄乌战争激发了乌克兰孩子们最深的爱国情怀，他们伺候必将成为最忠诚的爱国者和祖国最坚强的捍卫者。因此，请各国的友好民众帮助这些孩子和母亲，直到他们能够重返家园。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SIPG-Shanghai-780x470-1.jpg)图片来源：SIPG
+发稿：qiutian（邱甜）
 
-
-根据CNA 4月15日报道，一位知情人士告诉路透社，巴西对中共国上海港的肉类出口因该港口被封锁而中断。
-
-该人士说，至少有一家航运公司已经停止向上海运送巴西肉类，同时为客户提供将货物运送到新港和宁波的替代方案。
-
-一家大型巴西肉类出口商取消了三个集装箱的装运，而另一家则停止预订新货物。
-
-消息人士称，自3月底上海封锁开始，冷冻食品的集装箱已经开始在港口积压，对进港肉类的检查已经停止。
-
-上海是巴西向中共国进口肉类的主要入境点，而中共国是巴西的最大贸易伙伴。
-
-根据行业数据显示，2021年中共国从巴西进口了723,370吨牛肉和640,469吨鸡肉，是迄今为止巴西肉类的最大消费者。
-
-由于中共国大部分地区的新冠措施影响了国内需求并阻碍了贸易，中共国的整体进口量在3月意外下降。
-
-目前还不清楚有多少货物受到上海封锁的影响。巴西牛肉游说团体Abiec和猪肉及家禽游说团体ABPA均未立即回应置评请求。
-
-资料来源：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

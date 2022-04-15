@@ -2,24 +2,20 @@
 ---
 
 
-## 面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2346909/)
+## 樱花时政┃俄罗斯停止石油数据发布
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/AIT.jpg)
-美国众议院议长裴洛西（Nancy Pelosi）原定4月10日访台，因突然确诊而延后，文贵先生4月10日直播表示，可能是中共明确告知，如果Nancy Pelosi来台湾访问， 中共立刻发动军事武力攻击台湾，但4月14日晚间7时40分美国联邦参议院预算委员会共和党首席议员葛瑞姆（Lindsey Graham, R-SC）、参议员梅南德兹（Bob Menendez）、参议员波尔（Richard Burr）、萨斯（Ben Sasse）、波特曼（Rob Portman），及众议员杰克森（Ronny Jackson）于结束澳洲行程后，搭乘美国行政专机闪电访问台湾，显示美国拜登政府跨党派支持捍卫台湾和印太区域安全的威胁。
+撰稿：东京樱花团/加一颗稻草
 
-此次美国联邦参议院外交委员会的民主党籍主席梅南德兹，是与共和党资深议员里契共同推出**《****2021****战略竞争法案》**，梅南德兹曾表示美国政府必须清楚中共长期破坏国际体系的计划，该法案最主要就是在强化美国对中共展开全面战略竞争的力量。其中明确表示台湾是美国印太战略重要部分，包含新疆维吾尔族的种族灭绝、支持香港民主，加强施压中共，在贸易、知识产权上维护美国的利益与价值，并强调应优先在印太地区进行军事投资以达到美国政治目标。
+4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
+自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
 
-**然而就在中共对台海与区域军事威胁持续升高的同时，根据文贵先生在盖特爆料，中共于塞尔维亚等地大面积布置红旗HQ-22地对空导弹系统，从中共运-20的集体飞行轨迹可以看到，经过的国家有吉尔吉斯坦、乌兹别克斯坦、阿塞拜疆、土耳其、保加利亚等，运送其战略性进攻武器，直接支持俄罗斯攻占乌克兰的军事侵略，甚至派出大量的黑客部队与俄罗斯站在一起，对北约欧盟造成严重的威胁。中共红旗导弹系统甚至将部署在吉布提、沙特、伊拉克、伊朗、也门、叙利亚、突尼斯，其中包括装在货轮上的移动式导弹，以及可能部署在古巴、巴哈马等美临国的导弹系统。**
+消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
 
-**中共与俄罗斯两个共产独裁统治，不断制造世界各地区域性冲突与战争，目的就是要挑战美国、毁掉美元系统，这是一场共产独裁主义与自由民主资本的战争，一场信仰的对立和意志的冲撞，一场大规模的战争侵略行动，中共是全世界灾难的根源，只有消灭中共才能拯救全人类。**
-
-本文仅代表个人立场
-
-祈祷万佛万神加持文贵先生与新中国联邦战友Take down the CCP!
-
-审核:Athena雅典娜 撰稿发布:Amitofu
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

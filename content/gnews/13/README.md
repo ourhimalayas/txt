@@ -2,28 +2,38 @@
 ---
 
 
-## 拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349448/)
+## 美参众议员访台，与蔡英文总统会晤
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2349479/)
 
-作者：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月13日，据当地媒体报道，美国总统拜登日前指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，而这也是拜登政府首次对俄军使用这一术语。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.jpeg) (AP Photo/Carolyn Kaster)
-《国际法》规定，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。而根据《联合国公约》，构成种族灭绝的行为包括杀戮、严重的身体或精神伤害、施加致命的条件和措施阻止生育等等。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/id13711654-2204140837042378-600x400-1.jpg)
+台湾当地时间4月14日晚，美国联邦共和党首席议员Lindsey Graham带领的参众两院议员一行6人抵达台湾。该团是本年访台的首个美国国会参众两院访问团，其成员横跨预算、外交、国土安全、卫生教育劳工、财政、军事等领域，均为国会两院的资深领袖。而Lindsey Graham曾于2016年角逐共和党总统候选人提名。
 
-报道提及，一直以来，种族灭绝被认为是最严重的国际罪行，且由于该词语严格的法律定义和这一指责所带来的沉重影响，美国对于该罪行的认定极为谨慎。但据拜登总统在近日的采访中指出，他明确将普京下属军队在乌克兰的罪行定义为“种族灭绝”，而美国法院将进一步判定俄军的行动是否在法律层面上构成这一指控。
+当地时间4月15日，美国参众两院议员与台湾蔡英文总统进行了会晤。该场会晤进行了现场直播，蔡英文总统感谢台湾得到了美国跨党派跨两会的支持，会为捍卫台湾的自由民主而努力。美国表示在俄乌战争之际，在共产党对台湾的威胁之下，美国访问台湾代表对台湾自由民主法治的支持，如果放弃台湾，那就是放弃了自由。中共支持普京、攻击台湾、以及对不同政见的残忍迫害等，中共所作的一切罪恶，是时候应该让他们付出代价了，世界人民正在集结力量。中共已经给美国此次访台表达了严重不满甚至威胁，但美国不会退缩。台湾的芯片科技和自由贸易经济是印太地区乃至全球的重要组成部分，台湾的安全就是全世界的安全。
 
-早先，拜登总统就已经将普京描述为“战争罪犯”，并呼吁全球对其暴行做出审判。
+美国会和台湾和乌克兰站在一起，愿上帝保佑台湾。
 
-参考链接：[Biden says Russia committing genocide in Ukraine](https://www.channelnewsasia.com/world/biden-says-russia-committing-genocide-ukraine-2622651)
+reference：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+[https://www.epochtimes.com/gb/22/4/14/n13711579.htm](https://www.epochtimes.com/gb/22/4/14/n13711579.htm)
 
-编辑：Irene木木
-总编：Irene木木
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+
+
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

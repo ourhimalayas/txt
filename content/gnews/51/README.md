@@ -2,25 +2,23 @@
 ---
 
 
-## 俄乌大战在即 中共将在5月之前攻台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343385/)
+## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-郭文贵先生11日盖特影片透露，俄罗斯与乌克兰将有一场恶战，中共会在5月份之前攻台，全球供应链已经出现严重危机。俄军的新任指挥官德沃尔尼科夫，曾经从叙利亚犯下了严重暴行。他将会使用生化武器，采取围歼战战术，以及声东击西的策略来攻打基辅，他的重点目标就是泽连斯基。中共给俄罗斯送去了大量武器，不仅祸害全世界人民，也将给中国人带来深重的灾难。未来的中东、东欧，甚至欧洲，有可能会变成战火连天。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-34.jpg)
-在中共国方面，接下来将开展大规模核算检测，全国到处封城，并计划在5月份之前攻打台湾。此外，目前很多基本商品无人生产，全球供应链出现重大危机。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
 
-参考链接：[北京将开始大规模核酸检测，中共会在五月前攻台](https://www.gettr.com/post/p14r26jd5bf)
+此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
 
-总编：zhong
-编辑：Ivy001
-审核：Ivy001
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
