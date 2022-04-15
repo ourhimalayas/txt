@@ -2,206 +2,70 @@
 ---
 
 
-## 这次是海洋文明与陆地文明的再一次重创与PK
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349975/)
+## 6位公共卫生官员曾用双重标准为COVID疫苗辩护(2/5)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350204/)
 
-这一次绝对是世界的
-Esta vez definitivamente es
+翻译： Jenny Ball
 
-一场大的秩序重组
-Una importante reorganización mundial
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30.jpg)
 
-没有任何改变
-Nada ha cambiado
 
-我2017年爆料的时候说过
-En el 2017 dije en el Movimiento de Denunciantes
 
-我跟胡锦涛这些人
-Hu Jintao, estas personas y yo
 
-还有中国的老常委
-Y el antiguo Comité Permanente de China
 
-还有国安部的人
-Y el Ministro de Seguridad Nacional
+[接上篇6位公共卫生官员曾用双重标准为COVID疫苗辩护(1/5)](https://gnews.org/zh-hans/2349303/)
 
-每次他们都说
-Cada vez que dicen
+**2. CDC****使用VAERS数据调查心肌炎，但声称VAERS疫苗死亡数据不可靠**
 
-中国历史上几百年回到桌子上
-Cientos de años en la historia China de regreso a la mesa
+2021 年 6 月 23 日，CDC 免疫实践咨询委员会召开会议，评估 COVID 疫苗接种后患心肌炎/心肌炎的风险，尤其是年轻男性。
 
-国际桌子上, 已经接近到桌面上
-En la mesa internacional, ya se han acercado a la mesa
+这是本次演示中的关键幻灯片：
 
-如果被人拍下去
-Si alguien le da un golpe
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-304.jpg)
 
-就是万劫不复, 回到石器时代
-Simplemente será condenado, de regreso a la era de piedra
+在 18 至 24 岁的男性中，大约 430 万次第二剂 COVID 疫苗中观察到的心肌炎风险为 219。
 
-站到桌子上
-Pararse en la mesa
+CDC 可以使用 VAERS 数据来评估接种疫苗后心肌炎的风险——但该机构拒绝了 26,699 份疫苗接种后死亡报告中的所有报告，只有 9 份除外。
 
-就永远成为世界强国
-Es ser por siempre un país poderoso en todo el mundo
+**为什么 CDC 信任 VAERS 中的心包炎/心肌炎数据而不信任死亡数据？**
 
-可悲的事情
-Qué cosa tan triste
+一个原因可能是因为心肌炎症状的发作与接种疫苗的时间密切相关。
 
-他们选出了对我们来讲是好事
-Nos hace bien que hayan elegido
+换句话说，因为这种情况紧随接种后，这两个事件是高度相关的，并暗示了因果关系。 例如，这是同一演示文稿中的另一张幻灯片：
 
-选出了习太阳, 王岐山
-Al sol Xi y Wang Qishan
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-92.png)
 
-这两个文化大革命的
-Estas dos revoluciones culturales
+大多数疫苗引起的心包炎/心肌炎病例在注射后的最初几天内出现症状。如上所述，这高度暗示了疫苗的致病作用。
 
-鬼魂
-Fantasmas
+《柳叶刀》最近的一项研究包括一个类似的图表，直接取自 VAERS，关于疫苗接种后的死亡情况：
 
-我觉得是文化大革命的被害者
-Siento que son víctimas de la Revolución Cultural
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-106.jpg)
 
-推出了这俩人
-Lanzaron a estas dos personas
+再一次，在大多数情况下，事件（死亡）紧随疫苗接种之后。
 
-对中国所谓的国际说了算
-Tener la última palabra en el llamado proceso internacional de China
+当我们考虑上面的两个图表时，我们应该承认: 注射和不良事件之间的时间关系暗示了因果关系，但这不能作为证据。
 
-当大国是个灾难
-Ser un país grande es un desastre
+然而，同样重要的是要注意，如果疫苗接种导致了死亡，这正是情节的样子。
 
-对中国人是短期灾难
-Y para los chinos es un desastre a corto plazo
+应该清楚的是，如果 CDC 愿意接受来自同一报告系统的心肌炎/心包炎报告，则 CDC 没有理由驳回 VAERS 死亡**。**
 
-对灭共那是
-Para eliminar al PCCh
+接下篇6位公共卫生官员曾用双重标准为COVID疫苗辩护(3/5)
 
-绝对的最佳的两个人物
-Definitivamente son los dos mejores personajes
-
-结果上桌子的人要掀桌子
-Resulta ser que la persona que se monta en la mesa quiere voltearla
-
-现在要掀桌子
-Quiere voltear la mesa ahora
-
-就是现在他和普京大帝
-Lo que es ahora él y el gran emperador Putin
-
-要把桌子掀了
-Quieren voltear la mesa
-
-能不能掀成呢
-Será que ¿logran voltearla?
-
-他是从冠状病毒, 疫苗
-Él desde el Coronavirus hasta las vacunas
-
-世界经济崩塌
-El derrumbe de la economía mundial
-
-然后从地缘政治扩张
-Luego desde la expansión geopolítica
-
-最后整合全世界的所有的
-Finalmente reune el mundo entero
-
-和他所谓的中弱国家
-Y sus llamados países medios y débiles
-
-形成的一股势力, 对抗西方的
-Formando así una fuerza contra el occidente
-
-基督文明和西方的民主
-El Cristianismo y la democracia occidental
-
-资本主义社会就是独裁的政治
-La sociedad capitalista es dictadura
-
-对抗西方的民主的法律的政治
-La política del derecho contra la democracia occidental
-
-也就是根本能看得出来
-Es lo que se puede notar
-
-亚洲这些国家和东欧国家
-Estos países asiáticos y países de Europa del Este
-
-都是什么, 都是陆地国家
-Son países terrestres
-
-所有西方的最后现在跟这些
-Ahora el final de todo el oeste con estos
-
-陆地国家
-Países terrestres
-
-所谓的习太阳普大帝对抗
-El llamado lucha entre el sol Xi y el emperador Putin
-
-都是海洋国家
-Son países marinos
-
-他非常清楚的能分出来
-Él claramente puede diferenciarlo
-
-这个是海洋文明和陆地文明的
-Este es otro gran daño y competencia entre
-
-再一次大的一场重创和PK
-La civilización marina y la civilización terrestre
-
-同时呢, 显出东西方的文化
-Al mismo tiempo, se evidencia la cultura entre el oriente y el occidente
-
-和政治利益的大重创
-Y un golpe duro a los intereses políticos
-
-同时显示出来的一个杂教或
-Al mismo tiempo se nota una religión miscelánea o
-
-没有教的国家和西方的基督教
-Países sin religiones y el cristianismo en el occidente
-
-天主教文明的一场大PK
-Una gran competencia de la civilización católica
-
-更重要的是要看到, 东西方之间
-Y lo más importante es ver entre el oriente y el occidente
-
-出现了一个从来没有的事情
-Aparece algo que nunca había sucedido antes
-
-就是独裁国家政治制度
-Es el sistema político de la dictadura
-
-和西方的民主制度到底谁活着
-Con el sistema democrático occidental, ¿quién sobrevivirá?
-
-日期：04/12/2022
-原视频标题：这次是海洋文明与陆地文明的再一次重创与PK
-Esta vez es otro golpe fuerte y la competencia entre la civilización marina y la civilización terrestre
+新闻来源：[6 Double Standards Public Health Officials Used to Justify COVID Vaccines](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
 
 * * *
 
-原视频日期：03/31/2021
-原视频网址：**[https://gettr.com/post/p12qrq1ff4a](https://gettr.com/post/p12qrq1ff4a)**
-任务编号：KC489（4142）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+审核：文乐
+校对：花羽
+发布：五通庙
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
 
  
 

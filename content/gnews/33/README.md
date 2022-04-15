@@ -2,28 +2,40 @@
 ---
 
 
-## 拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349448/)
+## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
 
-作者：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月13日，据当地媒体报道，美国总统拜登日前指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，而这也是拜登政府首次对俄军使用这一术语。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.jpeg) (AP Photo/Carolyn Kaster)
-《国际法》规定，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。而根据《联合国公约》，构成种族灭绝的行为包括杀戮、严重的身体或精神伤害、施加致命的条件和措施阻止生育等等。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-报道提及，一直以来，种族灭绝被认为是最严重的国际罪行，且由于该词语严格的法律定义和这一指责所带来的沉重影响，美国对于该罪行的认定极为谨慎。但据拜登总统在近日的采访中指出，他明确将普京下属军队在乌克兰的罪行定义为“种族灭绝”，而美国法院将进一步判定俄军的行动是否在法律层面上构成这一指控。
+翻译/编辑：小红帽
 
-早先，拜登总统就已经将普京描述为“战争罪犯”，并呼吁全球对其暴行做出审判。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
 
-参考链接：[Biden says Russia committing genocide in Ukraine](https://www.channelnewsasia.com/world/biden-says-russia-committing-genocide-ukraine-2622651)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
 
-编辑：Irene木木
-总编：Irene木木
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
+
+这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
+
+这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
+
+在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
+
+检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
+
+目前尚不清楚同谋者是否是以太坊基金会的其他员工。
+
+资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

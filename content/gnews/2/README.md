@@ -2,21 +2,21 @@
 ---
 
 
-## 中日财经爆┃中国38个城市房价下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350673/)
+## 中日财经爆┃日本铃木财务大臣认为目前是“不好的日元贬值”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350758/)
 
 撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-中共国国家统计局15日发布的3月新建房屋价格指数，主要70个城市中38个，与上个月相比下跌。由于中国恒大集团等经营危机，房地产市场停滞不前，各地地方政府正在加速缓和购买管制。市况有可能恢复。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃日本铃木财务大臣认为目前是不好的日元贬值.png)[图片来源](https://asia.nikkei.com/Politics/Japan-election/Kishida-to-name-Shunichi-Suzuki-as-Japan-s-new-finance-minister)
+日本财务大臣铃木俊一在4月15日内阁会议后会见媒体称,在原材料价格上涨不能充分转嫁或工资上涨不足的环境下,日元贬值是“不好的日元贬值”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中国38个城市房价下跌.png)[图片来源](http://cd.jiwu.com/news/4776067.html)
+财政大臣说:“现在日元贬值,进口商品等(价格)却正在高涨。特别是加上乌克兰局势,这种趋势很强。”这种“不能将原材料转嫁到价格上,或者买的人,对于工资没有增长到明显超过和弥补这种增长的环境，我认为是不好的日元贬值。”
 
-大城市广东省广州市也下跌。其他下跌的地方城市很多。首都北京市和上海市实际上也在下跌。习近平仍坚持对住宅投机戒备的方针。但是，在中国经济的压迫压力背景下，地方政府再次增强对房地产的依赖，己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
+关于美元/日元行情时隔20年的日元贬值,表示“不发表评论”,并表示“汇率的稳定很重要,特别是快速变动是不可取的”。
 
-消息来源：
-[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
+信息来源：
+[不十分な価格転嫁や賃金上昇は「悪い円安」＝鈴木財務相](https://news.yahoo.co.jp/articles/4bbc4f903865e6af63eaf32800d05a707cfb7610)
 
-*编辑：东京樱花团/知了知了
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
