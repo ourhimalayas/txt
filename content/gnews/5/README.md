@@ -2,24 +2,36 @@
 ---
 
 
-## 乌克兰和西方正在商讨如何让俄罗斯为其入侵支付赔偿
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2350978/)
+## MobiKwik钱包在印度撤销了UPI支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351033/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-3-5.jpg)图片来源：彭博社
-据《真正美国之声》（Real America’s Voice）4月14日报道，自俄罗斯2月24日入侵乌克兰以来，俄乌战争已持续了7周时间，而且冲突还在升级。俄军的入侵对乌克兰的城市、基础设施和乌克兰人的生活造成了严重破坏。专家估计，除开对社会造成的无形损失外，乌克兰遭受的损失在7000亿美元到1.5万亿美元之间。基辅和西方国家的领导人正在商讨如何从咄咄逼人的俄罗斯那里获得赔偿。
+整理：li yan li
+编辑：朝花夕拾
 
-乌克兰总统泽连斯基上个月在一次视频讲话中对莫斯科表示：“我们将恢复每所房屋、每条街道、每座城市。你们将为对我们国家以及每个乌克兰人所做的一切支付全额赔偿。”一位分析人士说，尽管普京很可能会无视这项声明，但西方可能已经有办法代表乌克兰向俄罗斯进行专项索赔了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
 
-布鲁金斯学会 (Brookings Institution) 的罗伯特·利坦（Robert Litan）今年3月在一篇文章中写道：“在过去，侵略国在战后向其他国家支付赔偿，比如西德和东德在二战后向盟国支付赔偿、法国为拿破仑所造成的损失向欧洲各国支付赔偿款。现在，由于许多国家已经控制了俄罗斯持有的外汇。这意味着，俄罗斯实际上已为其对乌克兰的侵略行动预先提供了赔偿资金。”
 
-世界各地的政府已经冻结了俄罗斯的大量资金。据报道，欧洲官员正在考虑是否可以将没收的俄罗斯寡头的财产用于重建乌克兰。一个更有利可图的举措是没收俄罗斯中央银行存在外国银行的资产。但一些人表示，鉴于法律上的限制，将其用于赔偿可能会遇到一些障碍。阿姆斯特丹国际法中心（Amsterdam Center for International Law）的斯蒂芬·席尔 (Stephan Schill)说：“国际法对外国财产有特别保护。”罗伯特·利坦也谈到了此事：“这是一个公认的独特情况。但国际法中的一个基础能够让拥有这些储备资产的国家支付伤害赔偿。乌克兰的这个例子是，俄罗斯对其无端实施了大规模的暴力行动。”
+4月14日，印度支付机构印度国家支付委员会（NPCI）在Coinbase（纳斯达克股票代码：COIN）宣布在印度推出交易服务后数小时，拒绝承认Coinbase的推出。因此，Coinbase暂停了对统一支付接口（UPI）的支持，随后MobiKwik钱包也撤回了用于数字货币交易的UPI支付。这为该国的数字货币交易者铺设了一条越来越困难的道路。
 
-欧洲预算专员强尼斯·哈恩（Johannes Hahn）上周建议，在面临法律挑战的情况下，重建乌克兰的更快途径可能是采用二战后实施的新方法。以前的方法被称为“马歇尔计划（Marshall Plan）”，为被战争蹂躏的欧洲提供重建资金。“我认为，归根结底，乌克兰所需要的是一个马歇尔计划的最新模式。这必须是一项全球努力，以帮助乌克兰迅速恢复。”
+MobiKwik是至少六家数字货币交易所的合作伙伴，这些交易所立即停止提供MobiKwik电子钱包选项。现在印度只有少数交易所允许用户进行数字货币交易。
 
-新闻来源：[How to wrest war reparations from Russia: Ukraine and the West count the ways](https://americasvoice.news/justthenews/how-wrest-war-reparations-russia-ukraine-and-west-count-ways/)
+目前，用户只能通过国家电子资金转账（NEFT）和即时支付服务（IMPS）的方式进行出售，不过没有购买选项。由于选择有限，在WazirX、CoinDCX和Coinbase上存入资金具有挑战性。大多数交易所只允许用户通过网银存入资金。
+
+在4月7日的发布会上，Coinbase首席执行官布莱恩-阿姆斯特朗表示：“随着我们进入印度市场，我们正在积极尝试一些支付方式和合作伙伴，使我们的客户能够无缝地进行加密货币购买。这些方法之一就是简单易用的快速支付系统UPI”。
+
+然而，在NPCI的声明否认推出使用UPI支付的新数字货币交易所后，Coinbase澄清说：“我们知道NPCI最近发表的关于加密货币交易所使用UPI的声明。我们致力于与NPCI和其他相关部门合作，以确保我们与当地的期望和行业规范保持一致”。
+
+新闻链接：[继Coinbase之后，MobiKwik钱包也在印度撤销了UPI支付](https://coingeek.com/after-coinbase-mobikwik-wallet-also-withdraws-upi-payments-in-india/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

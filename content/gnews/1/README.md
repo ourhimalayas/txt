@@ -2,33 +2,40 @@
 ---
 
 
-## 美国国会代表团突访台湾，中共台湾周边军演恫吓
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351009/)
+## 美国警告：如所罗门签署安全协议，中国将成为他们国家的主人与管家
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2351081/)
 
-#### 【雅典娜观察】和您一起洞察世界
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：文泓
+整理：等风来
+编辑：JH
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1857.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1862.png)图片来源：澳大利亚人报
 
 
-周五中共在台湾周边进行了军事演习，正值美国国会代表团突访该岛，中共解放军东部战区发言人称，此举旨在针对美国发出的“错误信号”的回应。美国参议院外交关系委员会主席、参议员鲍勃·梅南德斯在周五与台湾总统蔡英文的会晤中表示，**台湾作为技术枢纽是一个“具有全球意义的国家”。**美国国会代表团由六名跨党派参议员组成，正值台湾面临中共重重压力之时，此次访问彰显美国对这个民主岛屿的支持。
-梅南德斯的说法，激怒了北京，它驳斥了任何关于台湾是一个国家的说法。虽然美国与台湾没有正式关系，但却是其最重要的国际支持者和武器供应商。
+2022年4月14日报道，美国的一位最高外交政策制定者警告所罗门群岛总理Manasseh Sogavare，如果他推进与北京的安全协议，中国将成为他的国家的“主人和管家”。
 
-**“****台湾生产了全球90%的高端半导体产品，是一个具有全球意义的国家。因此，应该理解台湾的安全具有全球影响，”梅南德斯在总统办公室的会议上说，同时全网进行了直播。**
+在发出这一警告的同时，澳大利亚太平洋事务部长Zed Seselja敦促Sogavare先生放弃与北京的安全协议，西方盟友认为该协议将为中国在距离澳大利亚东北海岸2000公里处建立基地开辟道路。
 
-俄罗斯入侵乌克兰也让台北对北京可能利用乌克兰危机而采取行动保持警惕，美国政府尚未报告中共任何不寻常的活动。
-共和党参议员林赛·格雷厄姆告诉蔡英文总统，乌克兰战争和中共的挑衅行为让美国的舆论空前团结。“我们会和你站在一起，放弃台湾就是放弃民主自由。”
-该代表团于周四晚些时候抵达，进行为期两天的突访，还将会见台湾外交部长吴钊燮和国防部长邱国正。
+Sogavare誓签署协议，但坚称不会有中国基地，并将这些说法称为“侮辱性的”。
 
-参考链接：[China holds military drills around Taiwan as US delegation visits | Arab News](https://www.arabnews.com/node/2063726/world)
+乔-拜登总统的印太顾问库尔特-坎贝尔（Kurt Campbell）未来几天访问所罗门群岛，其访问将给Sogavare施加进一步的压力，使其退出该协议。
+
+澳大利亚参议员Seselja说，澳大利亚今年向所罗门群岛提供了超过1.6亿的发展援助。
+
+早些时候，美国副国务卿Wendy Sherman与所罗门群岛外交部长Jeremiah Manele通话，谈到了计划在霍尼亚拉建立的新的美国大使馆。
+
+参考链接：[https://cn.theaustralian.com.au/2022/04/14/65688/](https://cn.theaustralian.com.au/2022/04/14/65688/)
 
 发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+﻿
 
  
 

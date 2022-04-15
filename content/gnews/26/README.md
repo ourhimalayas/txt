@@ -2,21 +2,19 @@
 ---
 
 
-## 郭文贵先生谈新中国联邦的金山、银山、钻石山
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2350611/)
+## 以歌灭共成绩斐然 意义重大
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2350708/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-在4月10日的大直播中，郭文贵先生谈及新中国联邦的三座大山—金山、银山、钻石山。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323079.jpg)
-郭先生说道，沼泽地将控制世界粮食和资源，美国的核心竞争力是人才。对新中国联邦来说，最重要的就是通过教育培养智慧型人才。以教育和人才为基础，实现新中国联邦的三座大山：第一座山，食物和水；第二座山，维持健康的生物科技，和可持续发展的新能源科技；第三座大山，智慧和现代化数据。
+自上榜以来，《灭共的雪》和《铁锁梦》连续多日占领多个国家和地区iTunes排行榜前列。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323078.jpg)
+郭文贵先生在4月10日的大直播中表示，因为中共的威逼利诱，两首灭共歌曲上榜之路艰辛。成功上榜后，中共又恶意篡改数据。即便如此，这两首歌仍在中共国内受众极广，达十几亿的次播放量。 两首歌曲同时打榜，也震撼了日本、台湾等业界人士。
 
-乌克兰即将迎来血腥时刻，俄罗斯和中共还将上演最后一幕，幕后的沼泽地浮出水面后，新大西洋公约诞生。
+参考链接：[4/10/2022 文贵直播](https://www.gettr.com/post/p1589c85e83)
 
-参考链接：[4/10/2022 文贵直播](https://gettr.com/post/p157joz28f0)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
-
-编辑/总编: 雪梨
+编辑/总编：雪梨
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
