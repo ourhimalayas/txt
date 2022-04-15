@@ -15,125 +15,125 @@
 
 ---
 
-### [香港现在的防疫形势似乎和上海一样](/content/gnews/1/README.md)
+### [佛州州长德桑蒂斯警告非法移民：不要前往佛罗里达](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [2022/04/15 英喜时事速递](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [上海市民饥饿难耐不戴口罩想进牢房吃饭](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关](/content/gnews/2/README.md)
+### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第12天位列3国iTunes音乐榜首](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [国台办发言人马晓光威胁台湾民众](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [赵立坚：乌克兰问题暴露了美国霸权霸凌行径](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2022年04月15日文贵大直播速记](/content/gnews/7/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [香港现在的防疫形势似乎和上海一样](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国联邦参议员葛瑞姆率参众议员访台](/content/gnews/9/README.md)
+ ` 新西兰伊甸农场听写编辑组`
+
+### [4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯黑海舰队旗舰“莫斯科”号因被乌克兰导弹击中而沉没](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [樱花时政┃为乌而战的白俄人，希望击败普京解放祖国](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“真相社交”平台遭《福克斯新闻》打脸](/content/gnews/5/README.md)
+### [国会推进技术基础设施立法，加快摆脱中共对供应链的控制](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/10/2022文贵直播：《灭共的雪》和《铁锁梦》同时打榜影响巨大；国内著名歌手战友正在给郭先生写新歌](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
+### [俄罗斯黑海舰队旗舰“莫斯科”号因被乌克兰导弹击中而沉没](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花时政┃马里乌波尔市民讲述“冒着生命危险避难”的真相](/content/gnews/7/README.md)
+### [樱花时政┃为乌而战的白俄人，希望击败普京解放祖国](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月15日早](/content/gnews/8/README.md)
+### [“真相社交”平台遭《福克斯新闻》打脸](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4/10/2022文贵直播：《灭共的雪》和《铁锁梦》同时打榜影响巨大；国内著名歌手战友正在给郭先生写新歌](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [樱花时政┃马里乌波尔市民讲述“冒着生命危险避难”的真相](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月15日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵大直播要点-主持：Tex（2022年4月15日）](/content/gnews/9/README.md)
+### [文贵大直播要点-主持：Tex（2022年4月15日）](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [无视俄方正式警告，美国继续为乌克兰提供先进军事援助](/content/gnews/10/README.md)
+### [无视俄方正式警告，美国继续为乌克兰提供先进军事援助](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国官员认为朝鲜黑客与6.15亿美元的加密货币抢劫案有关联](/content/gnews/11/README.md)
+### [美国官员认为朝鲜黑客与6.15亿美元的加密货币抢劫案有关联](/content/gnews/20/README.md)
  ` 波士顿五月花农场金融部`
 
-### [活摘器官是中共国家政策 多国媒体关注](/content/gnews/12/README.md)
+### [活摘器官是中共国家政策 多国媒体关注](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国及世界疫情简报（04-15-2022）](/content/gnews/13/README.md)
+### [美国及世界疫情简报（04-15-2022）](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [俄乌战局最新消息汇总(4.15)](/content/gnews/14/README.md)
+### [俄乌战局最新消息汇总(4.15)](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [波罗的海三国与波兰总统联袂访问基辅](/content/gnews/15/README.md)
+### [波罗的海三国与波兰总统联袂访问基辅](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [俄黑海舰队旗舰被乌克兰导弹击中而沉没](/content/gnews/16/README.md)
+### [俄黑海舰队旗舰被乌克兰导弹击中而沉没](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [李家超若当选香港特首名义上的“港人治港”都将不复存在](/content/gnews/17/README.md)
+### [李家超若当选香港特首名义上的“港人治港”都将不复存在](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/15/2022 银河快讯：俄罗斯国防部：“在日本海成功进行巡航导弹发射试验”；黄金期货价格创新高](/content/gnews/18/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [诺基亚退出俄罗斯电信市场](/content/gnews/27/README.md)
+ ` GTV News Talk`
 
-### [以防疫行暴政，每个国人都有权推翻中共（权利篇）](/content/gnews/19/README.md)
- ` 澳喜特战旅Gnews`
+### [俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“](/content/gnews/28/README.md)
+ ` GTV News Talk`
 
-### [中共疫情封控下的老百姓连上厕所的自由都没有](/content/gnews/20/README.md)
+### [中共疫情封控下的老百姓连上厕所的自由都没有](/content/gnews/29/README.md)
  ` 银河歌舞厅`
 
-### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/21/README.md)
+### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/30/README.md)
  ` G-NEWS TAIWAN`
 
-### [美国代表团访台，中共在台湾周边举行军事演习](/content/gnews/22/README.md)
- ` 波士顿五月花农场金融部`
-
-### [币安骗掉所有投资者VS一币不名的七哥让战友们发大财](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [20220414郭文贵乱聊直播 ：独裁国家俄罗斯和中国共产党，相信他们就会成为他们的奴隶](/content/gnews/24/README.md)
- ` Tokyo Sakura Video Group`
-
-### [大难来临新中国联邦让你有战友有币有情报让你开智明眼](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [巨婴上海](/content/gnews/26/README.md)
+### [巨婴上海](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [上海封城乱象丛生](/content/gnews/27/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [乌克兰救援前线报道4.15.2022：NFSC帐篷迎来了首个中国同胞家庭](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共房地产危机日益严重](/content/gnews/29/README.md)
- ` NFSC News`
-
-### [俄罗斯“断箭”：担忧核导弹与普京的旗舰一起沉没](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/31/README.md)
+### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [中国民众开始觉醒不再相信中共党媒宣传洗脑](/content/gnews/32/README.md)
+### [中国民众开始觉醒不再相信中共党媒宣传洗脑](/content/gnews/33/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没](/content/gnews/33/README.md)
+### [俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没](/content/gnews/34/README.md)
  ` 日本東京方舟農場`
 
-### [4/15/2022国际财经快讯：马斯克向Twitter提出430亿美元报价；英国实施有史以来最大规模资产冻结](/content/gnews/34/README.md)
+### [4/15/2022国际财经快讯：马斯克向Twitter提出430亿美元报价；英国实施有史以来最大规模资产冻结](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [樱花时政┃美国用库存三分之一的反坦克导弹援助乌克兰](/content/gnews/35/README.md)
+### [樱花时政┃美国用库存三分之一的反坦克导弹援助乌克兰](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄为销毁屠杀证据，导弹袭击基辅](/content/gnews/36/README.md)
+### [樱花时政┃俄为销毁屠杀证据，导弹袭击基辅](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯舰队在黑海的震慑地位发生动摇](/content/gnews/37/README.md)
+### [俄罗斯舰队在黑海的震慑地位发生动摇](/content/gnews/38/README.md)
  ` 日本東京方舟農場`
 
-### [美中情局局长：美国不能轻视俄动用核武器的可能性](/content/gnews/38/README.md)
+### [美中情局局长：美国不能轻视俄动用核武器的可能性](/content/gnews/39/README.md)
  ` 日本東京方舟農場`
 
-### [台湾｜美重量级议员访台 推动台湾驻美代表处正名法案 抛弃台湾等于抛弃自由](/content/gnews/39/README.md)
+### [台湾｜美重量级议员访台 推动台湾驻美代表处正名法案 抛弃台湾等于抛弃自由](/content/gnews/40/README.md)
  ` 關注組`
-
-### [拜登将宣布为乌克兰提供7.5亿美元的军事援助计划](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`

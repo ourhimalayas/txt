@@ -2,46 +2,45 @@
 ---
 
 
-## 中共疫情封控下的老百姓连上厕所的自由都没有
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2352341/)
+## 美国官员认为朝鲜黑客与6.15亿美元的加密货币抢劫案有关联
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2352375/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-22.21.54.png)
-当地时间4月13日，中共国社交媒体有贴文显示，上海和长春的一些大学，学生们如厕需要排队。涉及到的大学有上海同济大学、长春理工大学。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-15-下午10.40.40.png)图片来源：互联网
+美国官员称，朝鲜国家支持的黑客组织 Lazarus Group 与大规模加密货币黑客事件有关，该事件导致 6.15 亿美元的数字资产被盗。
 
-在疫情风控期间，很多大学寝室开始管控学生上厕所。帖文显示长春大学居然有专门用来排队的手机小程序，上海同济大学的学生也在微信交流群排队上厕所，学生如厕完毕不允许洗手。据称是因为担心厕所垃圾和洗手的水龙头会传染中共病毒，学生只有回寝室拿酒精湿巾来擦手。而长春大学的学生除了如厕不方便，洗澡更难。有的学生一个多月没洗澡，身体起疹，拿热水擦了擦，疹子全破了，后背都是血。
+美国财政部外国资产控制办公室周四宣布对属于 Lazarus 的以太坊钱包实施新制裁。
 
-中共病毒的传染最重要的就是要保持干净卫生，然而从中共的防疫手段来看，折磨老百姓是第一要务。
+据加密研究人员称，已识别的钱包包含与对Ronin Network 的攻击有关的资金，该网络支持流行的区块链游戏 Axie Infinity。在这次攻击中，价值超过 6 亿美元的以太币和 USDC 代币被盗。
 
-reference：
+黑客利用所谓的区块链“桥梁”，允许用户将他们的数字资产从加密网络转移到另一个。在快速发展的“去中心化金融”或 DeFi 世界中，桥梁是一种越来越受欢迎的工具。
 
-[https://gettr.com/post/p15ft6acfbd](https://gettr.com/post/p15ft6acfbd)
+区块链分析公司 Elliptic 在一篇博客文章中表示，新宣布的制裁措施禁止美国个人和实体与已确定的以太坊账户进行交易，以确保黑客无法“兑现”他们可能在美国加密货币交易所持有的任何资金。
 
-[https://gettr.com/post/p158snp0dad](https://gettr.com/post/p158snp0dad)
+另一个加密研究小组 Chainalysis [表示](https://twitter.com/chainalysis/status/1514645225876205569?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1514645227411226631%257Ctwgr%255E%257Ctwcon%255Es2_&amp;ref_url=https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)，对 Lazarus 的归因强调了“与朝鲜有关联的威胁行为者如何利用加密以及更好的 DeFi 协议安全性”的重要性。
 
-[https://gettr.com/post/p151w7fdaf3](https://gettr.com/post/p151w7fdaf3)
+据信由朝鲜政府运营的 Lazarus 多年来一直与几起重大网络攻击有关，包括 2014 年对索尼影业的黑客攻击和 2017 年 WannaCry 勒索软件攻击。
 
-[https://m.weibo.cn/6443225955/4758488179804238](https://m.weibo.cn/6443225955/4758488179804238)
+据网络安全专家称，朝鲜曾多次试图使用加密货币作为逃避美国制裁的一种方式，这引发了人们对乌克兰战争期间可能使用数字资产来逃避俄罗斯制裁的担忧。
 
-[https://m.weibo.cn/6599600309/4757857738424344](https://m.weibo.cn/6599600309/4757857738424344)
+本周早些时候，39 岁的美国加密专家 Virgil Griffith因帮助朝鲜使用虚拟货币逃避制裁而被判处五年监禁。
 
+加密货币的支持者表示，它们是清洗不义之财的无效工具，因为活动记录在称为区块链的公共分类账上。
 
+然而，根据 Elliptic 的说法，犯罪分子可以使用多种技术来清洗加密货币。该公司表示，内部分析表明，截至周四，Ronin 攻击“成功清洗了 18% 的被盗资金”。
 
-撰稿、发布：骄子
+黑客最初通过不受监管的去中心化交易所将被盗的 USDC 代币换成以太币，以防止其被没收，但随后通过 FTX 和火币等中心化交易所洗钱近 1700 万美元。
+
+他们随后使用了所谓的“混合器”，该服务旨在通过将潜在可识别的加密交易流与其他交易流混合来掩盖资金的踪迹。据 Elliptic 称，通过这项名为 Tornado Cash 的混合服务已经发送了超过 8000 万美元。
+
+原文链接：
+
+【1】[U.S. officials link North Korean hackers to $615 million cryptocurrency heist](https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*编辑&发布：长岛开心*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

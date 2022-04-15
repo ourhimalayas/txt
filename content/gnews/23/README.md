@@ -2,45 +2,28 @@
 ---
 
 
-## 币安骗掉所有投资者VS一币不名的七哥让战友们发大财
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2352233/)
+## 俄乌战局最新消息汇总(4.15)
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352368/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8830.61%EF%BC%89%E5%B8%81%E5%AE%89%E9%AA%97%E6%8E%89%E6%89%80%E6%9C%89%E6%8A%95%E8%B5%84%E8%80%85VS%E4%B8%80%E5%B8%81%E4%B8%8D%E5%90%8D%E7%9A%84%E4%B8%83%E5%93%A5%E8%AE%A9%E6%88%98%E5%8F%8B%E4%BB%AC%E5%8F%91%E5%A4%A7%E8%B4%A2%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
+作者：文斌
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月13日，俄罗斯国防部发出威胁，如果乌克兰继续打击俄罗斯境内的目标，将攻击基辅的决策总部。俄军继续在哈尔科夫州为进攻行动进行集结，对伊久姆南部进行了小规模攻击，但进展缓慢。在过去24小时内，交战相对最激烈的地方是阿瓦迪夫卡，俄军炮击该镇，并发动了几次小规模的攻击，并未成功。俄军可能正为更大范围的进攻势做准备。美国情报来源称，俄军有大约55个营级战术群在乌克兰南部作战，这个数字可能包括了顿巴斯和赫尔松一带的俄军。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/37ddb7102a1a43938d1d1b87026f7def-scaled.jpeg)
+乌克兰总参谋部报告说，俄罗斯在顿涅茨克和卢甘斯克组建了五个兵力不足的摩托化步枪团，其实只相当于5个营的兵力，每个营约 300 人，只有 5-10% 的士兵有战斗经验。在马里乌波尔，俄军占领了北部的伊里奇金属厂。美国情报人士4月13日表示，俄罗斯军队很可能在克里米亚和乌克兰南部建立了两个补给基地，为马里乌波尔和赫尔松的行动提供补给。
 
-**郭文贵先生：**那么你今天咱们这个喜币，你看赵长鹏这个王八蛋，他有多坏啊，他把所有的、全世界他不KYC的，只要你不管什么钱都来，他就是共产党那套：玩儿假的、犯罪，然后没有KYC完了以后他再把所有人汇钱的信息再给共产党，抓了多少人、弄了多少人。
+乌克兰方面，法国科技宪兵支队正在布查开展调查工作。乌军副总司令叶文·莫伊修克于13日视察了哈尔科夫州一个不明地点的前线，以检查乌克兰的防御阵地。哈尔科夫州民政当局称乌军在罗汉和德哈奇进行了小规模反击。在马里乌波尔，有相当一部分乌克兰海军陆战队第36旅人员成功突围到亚速钢铁厂与那里的守军会合，第36旅和亚速营的指挥官还在13日发布了一个联合视频。当日最亮眼的胜利，是乌军向正在蛇岛附近巡弋的“莫斯科”号巡洋舰发射了2枚海王星反舰导弹，重创了这艘排水量为 12,490 吨的的黑海舰队旗舰，并最终沉没。
 
-全世界谁敢说喜币、H-Pay绝不可能有任何第三方拿走你的信息，谁拿走了我负一切责任。
+更多信息，请关注本台持续报道。
 
-还有更重要的今天个人破产的时候你想想七哥但凡有一个币，喜联储、七哥那就是犯罪呀，那就不是开玩笑的。但是七哥作为一个最智慧、adviser、创造者，用这种智慧让这么多人有钱，他是一个什么样的一个多么伟大的一个行为呀！这个伟大到什么程度，这比共产党说得还伟大，它是爹亲娘亲不如党亲，七哥这真是兄弟姐妹，爹亲娘亲没有战友们亲，战友们现在都发财了，而且，你看44块钱，这是真的！你现在就可以卖呀，这是真的！真钱呐！
+参考链接：
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-编辑整理：星塵Scheddi；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：海賊王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+编辑：宁文静
+总编：宁文静
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
