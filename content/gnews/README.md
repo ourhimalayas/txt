@@ -15,71 +15,71 @@
 
 ---
 
-### [20220415郭文贵大直播 ：新中国联邦乌克兰救援队得到了国际组织的工作证](/content/gnews/1/README.md)
+### [20220415郭文贵乱聊直播 ：鼓励投资喜币，别鼠目寸光，别在拿回SEC钱上出错](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220415郭文贵大直播 ：新中国联邦的元宇宙已经建成](/content/gnews/2/README.md)
+### [20220415郭文贵大直播 ：一位中国籍难民及其家属立即加入到了新中国联邦救援队中](/content/gnews/2/README.md)
  ` Tokyo Sakura Video Group`
 
-### [拜登在谴责普京时避谈中共对维吾尔族的种族灭绝](/content/gnews/3/README.md)
+### [20220415郭文贵乱聊直播 ：切记！GTV的投资者们无论在任何情况下都不要与警察合作，会带来杀身之祸的！](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220415郭文贵大直播 ：新中国联邦乌克兰救援队得到了国际组织的工作证](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220415郭文贵大直播 ：新中国联邦的元宇宙已经建成](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [拜登在谴责普京时避谈中共对维吾尔族的种族灭绝](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [20220415郭文贵大直播 ：国内因疫情封控矛盾激化 需要5月攻台来缓解内部压力](/content/gnews/4/README.md)
+### [20220415郭文贵大直播 ：国内因疫情封控矛盾激化 需要5月攻台来缓解内部压力](/content/gnews/7/README.md)
  ` Tokyo Sakura Video Group`
 
-### [加拿大安省进入第六波疫情](/content/gnews/5/README.md)
+### [加拿大安省进入第六波疫情](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕](/content/gnews/6/README.md)
+### [4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线:抖音宣布账号将显示IP属地](/content/gnews/7/README.md)
+### [秘翻在线:抖音宣布账号将显示IP属地](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20220415郭文贵大直播 ：NICK分析喜币对于未来经济生活的意义](/content/gnews/8/README.md)
+### [20220415郭文贵大直播 ：NICK分析喜币对于未来经济生活的意义](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [加拿大皇家骑警在镇压期间大肆吃喝](/content/gnews/9/README.md)
+### [加拿大皇家骑警在镇压期间大肆吃喝](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [20220415郭文贵大直播 ：喜币将成为最早的数字法币](/content/gnews/10/README.md)
+### [20220415郭文贵大直播 ：喜币将成为最早的数字法币](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【粤语配音】2022年4月15日：中共与俄罗斯妄想躲过美国的国际制裁](/content/gnews/11/README.md)
+### [【粤语配音】2022年4月15日：中共与俄罗斯妄想躲过美国的国际制裁](/content/gnews/14/README.md)
  ` MOS香港部`
 
-### [五月花简报（04/15/2022）](/content/gnews/12/README.md)
+### [五月花简报（04/15/2022）](/content/gnews/15/README.md)
  ` mayflowertranslate`
 
-### [20220415郭文贵大直播 ：嘉宾点评“国内粮食危机ppt](/content/gnews/13/README.md)
+### [20220415郭文贵大直播 ：嘉宾点评“国内粮食危机ppt](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [2018年9月3日&nbsp; 郭文贵先生直播 全文字版](/content/gnews/14/README.md)
+### [2018年9月3日&nbsp; 郭文贵先生直播 全文字版](/content/gnews/17/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [【粤语配音】2022年4月14日：俄罗斯的&#8221;黑海之神&#8221;旗舰被精准炸毁](/content/gnews/15/README.md)
+### [【粤语配音】2022年4月14日：俄罗斯的&#8221;黑海之神&#8221;旗舰被精准炸毁](/content/gnews/18/README.md)
  ` MOS香港部`
 
-### [年轻人心脏骤停纷纷倒下](/content/gnews/16/README.md)
+### [年轻人心脏骤停纷纷倒下](/content/gnews/19/README.md)
  ` xiaobaige`
 
-### [没逻辑的上海确诊死亡数据 分析：不符合医学规律](/content/gnews/17/README.md)
+### [没逻辑的上海确诊死亡数据 分析：不符合医学规律](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃“乌克兰忠犬八公”秋田犬等待着被俄军杀害的主人](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯驱逐 18 名欧盟外交官](/content/gnews/19/README.md)
- ` Shuizhuyu`
-
-### [文贵爆料：中共今天启动 “台湾之子 ”行动](/content/gnews/20/README.md)
+### [文贵爆料：中共今天启动 “台湾之子 ”行动](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄乌战争“没想到”系列之十：](/content/gnews/21/README.md)
+### [俄乌战争“没想到”系列之十：](/content/gnews/22/README.md)
  ` 蓝莲花农场`
-
-### [德国联邦政府大幅增加对乌克兰军队的武器援助](/content/gnews/22/README.md)
- ` Shuizhuyu`
 
 ### [中国海洋石油被迫退出加拿大市场](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

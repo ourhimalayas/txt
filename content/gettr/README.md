@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 11:05 PM (UTC)`
+
+4/15/2022 Ukrainian Rescue: Fellow fighters of the New Federal State of China will celebrate Passover and Easter in Medyka with Ukrainian refugees and volunteers from all over the world!<br/><br/>4/15/2022 乌克兰救援连线: 新中国联邦前线的战友将在梅迪卡和世界各地的志愿者以及乌克兰难民一起庆祝逾越节和复活节！<br/>
+![img](https://media.gettr.com/group34/getter/2022/04/15/23/4d7bb2a8-32ce-d55c-a604-020fc1722c71/out.jpg)
+
+---
+
+`@miles 4/15/2022 11:02 PM (UTC)`
+
+2022.04.15 NFSC news “Chained Dream" And "The Terminator Snow" Played Over 1 Billion Times On iTunes
+![img](https://media.gettr.com/group15/origin/2022/04/15/23/f876a1a6-447c-9ce5-b9e9-cee8d67b8c58/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/15/2022 10:38 PM (UTC)`
 
 A volunteer from Mozambique, Africa supports us to take down the Chinese Communist Party (CCP).  He believes that it's the Russian government and their greed, it’s Putin and his buddies (including the CCP), started this war, not the Russian people. He agrees that the CCP is using One Belt One Road initiatives to buy African politicians and help them enslave the African people. He says that the things we are doing are great.<br/><br/>来自非洲莫桑比克的义工支持我们推翻中国共产党。他相信是俄罗斯政府以及他们的贪婪，是普京和他的帮凶们（包括中共）发动了这场战争，而不是俄罗斯人民。他同意，中共拿钱收买非洲政客，搞的“一带一路“， 其实是变相地帮助他们奴役非洲人民。他说我们正在做的事情太棒了。
@@ -140,20 +154,6 @@ NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自�
 
 《灭共的雪 The terminator snow》🎤卡拉OK版（Karaoke)🎵🎵🎵<br/> <br/>我爱你，塞北的雪<br/>I love you, the northern snow<br/> <br/>飘飘洒洒漫天遍野<br/>drifting in the sky, covering the earth below<br/> <br/>你的舞姿是那样的轻盈 <br/>Your dance is full of grace<br/> <br/>你的心地是那样的纯洁 <br/>and pure is your heart and soul<br/> <br/>你是消灭那共匪的战友 <br/>Fighting with us to terminate the communist bandits<br/> <br/>你是上天派出的使节 <br/>you are the envoy sent from heaven<br/> <br/>灭共的使节 <br/>to take down the CCP<br/> <br/> <br/>我爱你，灭共的雪<br/>I love you, the terminator snow<br/> <br/>轰轰烈烈漫山遍野 <br/>vigorously, all over mountains and fields<br/> <br/>你用自己那无暇的身躯 <br/>With your flawless flakes<br/> <br/>净化被谎言笼罩的世界 <br/>a world covered in lies purified<br/> <br/>你把真相传递给了人间 <br/>You enlightened the world with truth<br/> <br/>唤醒那无尽的黑夜 <br/>awakened the endless night<br/> <br/>沉睡的心田 <br/>and those sleeping souls<br/> <br/>啊 ～～～我爱你<br/>Ah.. I love you<br/> <br/>啊 ～～～灭共的雪 塞北的雪～～～<br/>Ah.. the terminator snow, the northern snow<br/> 
 ![img](https://media.gettr.com/group29/getter/2022/04/15/07/8a6f474f-4180-a1e9-e5e8-617b798474da/out.jpg)
-
----
-
-`@miles 4/15/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group39/origin/2022/04/15/04/234fc0aa-4b48-20ac-fa2f-3eb46eaf7c14/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 4:20 AM (UTC)`
-
-4/10/2022 Miles Guo:  Mr. Miles Guo sent a message to our fellow fighters especially living in mainland China:  listen to the songs created by our fellow fighters in the Whistleblowers' Movement, learn to be at peace with what has happened and let go of your hang-ups, and survive the hard time!<br/><br/>4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关<br/>
-![img](https://media.gettr.com/group49/getter/2022/04/15/04/78833075-2d89-ac68-8f4d-2e707517ca5d/out.jpg)
 
 ---
 
