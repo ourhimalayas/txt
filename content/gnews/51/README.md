@@ -2,31 +2,34 @@
 ---
 
 
-## 粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2344928/)
+## 国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2345305/)
 
-**图/文｜CP **
-**发布时间｜14/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜IMF及WTO等四大國際機構呼籲各國採取緊急行動.jpg)
-
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-27.png)
+法国记者推特发布消息指，瑞典和芬兰的总理刚刚举行了联合记者会，就两国加入北约的计划进行了会谈。芬兰总理马林表示，加入北约一事她不会给出确切时间表，但很快会在几周内发生。而瑞典可能在六月申请加入北约，瑞典的安全审查预计将在 5 月底之前完成，总理安德森表示，她将等待审查结果出炉后方作出决定。
 
 
-世界银行、国际货币基金组织（IMF）、联合国世界粮食计划署（WFP）和世贸组织（WTO）4月13日发表联合声明，呼吁各国政府就粮食问题采取紧急行动，并建议避免推行禁止粮食或化肥出口等相关政策。
 
-四大机构的领导人在声明中警告，鉴于俄乌战争加剧了新冠疫情和气候变化对全球人民所造成的伤害，受困于主粮价格的大幅上涨和供应短缺，中低收入国家的家庭正面临巨大危机。据世界银行估计，每增加一个百分点的食品价格，全世界就有1000万人陷入极端贫困。
+> 🇸🇪[#Sweden](https://twitter.com/hashtag/Sweden?src=hash&amp;ref_src=twsrc%5Etfw) and 🇫🇮[#Finland](https://twitter.com/hashtag/Finland?src=hash&amp;ref_src=twsrc%5Etfw)'s prime ministers have just held a joint press conference outlining plans to join [#NATO](https://twitter.com/hashtag/NATO?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> 🇫🇮 expected to move first. PM Marin says she won't give a timetable but "it will happen quite fast—within weeks, not within months, we will have the discussion" [pic.twitter.com/huEKnkDVUD](https://t.co/huEKnkDVUD)
+> — Dave Keating (@DaveKeating) [April 13, 2022](https://twitter.com/DaveKeating/status/1514198882250596356?ref_src=twsrc%5Etfw)
 
-俄罗斯和乌克兰均是重要的粮食出口国，仅乌克兰就能为全球贡献49.6%的葵花籽油、10%的小麦、12.6%的大麦和15.3%的玉米的产量。但自战争爆发以来，黑海地区的粮食出口持续受到干扰，供应的不确定性加剧。此外，俄罗斯和乌克兰还是全球重要的化肥生产国。
 
-据联合国粮农组织（FAO）上周公布的数据显示，在俄乌战争的背景下，全球粮食价格再创历史新高。FAO的食品价格指数3月份升至159.3，较2月份上涨13%，较去年同期上涨34%。（该指数旨在衡量食品价格的月度变化，包括肉类、奶制品、谷物、植物油和糖。）
 
-四大机构强调，现在最重要的，是要保持贸易开放，避免推行食品或化肥出口禁令等限制性措施，尤其不能对WFP的人道主义食品采购施加任何限制。
+据外媒所述，芬兰已经准备好在几周内作出加入北约的决定，芬兰总理马林称，加入北约可能倒致俄罗斯采取行动，但不加入北约（结果）也是一样的，并表示“芬兰必须为俄罗斯的各种行动做好准备”。
 
-來源｜[ReliefWeb](https://reliefweb.int/report/world/joint-statement-heads-world-bank-group-imf-wfp-and-wto-call-urgent-coordinated-action)
+外媒引述民调结果，芬兰民调数据68% 支持加入北约，是俄乌战争发生前的两倍多，仅12%反对加入。而瑞典民调数据则显示，支持加入北约者略多于不支持者。
+
+俄罗斯曾表示，若瑞典、芬兰加入北约，将不再谈论波罗的海无核化。俄罗斯安全委员会副主席德米特里．梅德韦杰夫（Dmitry Medvedev）表示，如果发生这种情况，莫斯科会做出回应，并加强俄军地面及防空部队，在位于芬兰、爱莎尼亚、俄罗斯之间的芬兰湾布署海军。
+
+来源｜[衛報](https://www.theguardian.com/world/2022/apr/13/finland-and-sweden-could-apply-for-nato-membership-in-weeks)、[sky](https://news.sky.com/story/russia-threatens-nuclear-escalation-if-sweden-and-finland-join-nato-12589823)
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

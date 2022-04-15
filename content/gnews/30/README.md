@@ -2,20 +2,36 @@
 ---
 
 
-## 樱花时政┃俄罗斯停止石油数据发布
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
+## 联合国报告称全球17亿人因俄乌战争受到严重打击
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2347834/)
 
-撰稿：东京樱花团/加一颗稻草
+**编译：文小白**
 
-4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
-自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
+产经新闻驻纽约记者平田佑介4月14日报道，联合国秘书长安东尼奥·古特雷斯13日发布报告称，由于俄罗斯入侵乌克兰引发的粮食、能源和金融市场的动荡，全球107个国家17亿人受到严重打击。其中，5.53亿人处于贫困之中，2.15亿人营养不良。发展中国家违约的担忧也与日俱增。古特雷斯在新闻发布会上说，受新冠病毒重创的发展中国家正在“承受着更大的痛苦”，他呼吁国际社会加大支持力度。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1A72D26B-2E89-4CC3-80C3-8F20668D92F1.png)图片来源：https://www.sankei.com
+报告称，自今年年初以来，小麦和玉米价格上涨了约30%。自去年12月1日以来，原油价格上涨了46%，天然气价格上涨了49%。除了运输货物时绕过冲突地区增高运输成本以外，国际供应链本身的不稳定也造成了价格的上涨。
 
-消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
+对通货膨胀的担忧导致许多国家的中央银行比预期更早地采取l了加息手段，加大了发展中国家偿还债务的成本。60%的最不发达国家和低收入国家面临破产或破产风险增高的危险。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+报告指出，我们要警惕在从新冠疫情的打击中恢复之前，食品价格飙升的连锁反应造成“社会动荡的蔓延”。全球有36个国家小麦进口的一半是依赖俄罗斯和乌克兰，古特雷斯建议全世界的粮食和能源应该实现“公平顺利的分配”。古特雷斯还表示，“决不能让世界上的弱势民众因侵略战争受到伤害”，呼吁国际社会不仅要支持乌克兰及其周边国家，还要支持世界各地的发展中国家。
+
+对于乌克兰的局势，古特雷斯4月3日一方面派人道事务担当格里菲斯赴莫斯科和基辅，呼吁实现人道主义停火，减少平民的牺牲，另一方面，古特雷斯敦促俄罗斯方面确保公民撤离时的安全和实施人道主义援助。不过，古特雷斯也表示目前很难实现人道主义停火。
+
+**信息来源：**
+
+[ウクライナ侵攻で世界１７億人、途上国に打撃　食料市場など混乱　国連報告書](https://www.sankei.com/article/20220414-JBEMXT7OBJMZRMPOKDLIUSX3UY/)
+
+[国連事務総長 人道的停戦 難しいとの見方 働きかけを継続](https://www3.nhk.or.jp/news/html/20220414/k10013581501000.html)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220414
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

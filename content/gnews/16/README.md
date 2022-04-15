@@ -2,32 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2348273/)
+## 美国又一个资深国会议员访问团抵达台湾访问
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2348639/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a7dwr-7cv3c-2.jpg)
-**盖特链接**：[https://gettr.com/user/jim\_jordan](https://gettr.com/user/jim_jordan)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-6.jpg)美国又一个资深国会议员访问团抵达台湾访问 网络图片
+据美国之音4月15日报道，由美国资深联邦参议院预算委员会共和党首席参议员林赛∙格雷厄姆率领的一个六人组美国国会议员代表团4月14日抵达台北，对台湾进行为期一天一夜的旋风般访问。他们将会晤台湾总统蔡英文、参加外交部长吴钊燮举办的午宴，还将与国防部长邱国正举行会谈，讨论双边关系和区域安全等问题。
 
-**众议员吉姆·喬丹自述：**
+这次旋风访台的六位国会议员资深重量，超级友台。以实际行动展现美国力挺台湾，以及美国国会对台湾的跨党派支持。该团是今年访台的第一个美国国会议员代表团。今年3月，拜登总统派遣一个由前国防和安全事务高级官员组成的代表团访问台湾，在俄罗斯入侵乌克兰的敏感时机，重申美方对台湾的强力支持。
 
-自豪地为俄亥俄州美丽的第四区服务。@JudiciaryGOP排名会员
-为做好我们所说的奋斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ln.jpg)图片来源：网络
-**众议员吉姆·喬丹简介：**
+美方接受一个中国原则，同时也维持与台湾的非官方关系。但是美国没有明确一个中国是台湾中华民国，还是大陆中华人民共和国。现在是抉择时期，中共需要表态。如果大陆坚持武力攻台，美中关系势必彻底破裂，战争不可避免。美中关系在川普和拜登两任总统期内持续恶化，美台关系则进一步加强，美国对台军售也逐渐走上正轨，台湾军事国防力量在增强。
 
-吉姆·喬丹全名詹姆斯·丹尼尔·乔丹（James Daniel Jordan，生于1964年2月17日）是一位美国政治家，自2007年起担任俄亥俄州第四国会选区的美国众议员。
+新闻参考链接：[https://www.voachinese.com/a/us-senator-lindsey-graham-leads-senior-congressional-delegation-to-taiwan-20220414/6529550.html](https://www.voachinese.com/a/us-senator-lindsey-graham-leads-senior-congressional-delegation-to-taiwan-20220414/6529550.html)
 
-吉姆·喬丹是保守的美国众议院自由核心小组的创始成员，2015年～2017年担任第一任主席，2017年起担任副主席；2019年1月～2020年6月，担任美国众议院监督委员会高级成员；现任美国众议院司法委员会高级成员。
+* * *
 
-吉姆·喬丹是前总统唐纳德·川普的盟友。2021年1月11日荣获“约旦总统自由勋章”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
 
  
 
