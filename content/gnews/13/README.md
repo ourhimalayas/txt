@@ -2,45 +2,29 @@
 ---
 
 
-## 旅行地狱：由于人员短缺 捷蓝航空取消了更多航班
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350723/)
+## 樱花时政┃受北韩导弹威胁，日本或将恢复居民疏散演习
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350807/)
 
-翻译：Jenny Ball
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+由于北朝鲜多次发射弹道导弹，政府透漏，正在与地方政府合作，将恢复四年以来对居民的疏散演习。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-156.png)图片来源：thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-123.jpg)[图片来源](https://www.bbc.com/news/world-asia-41174689#:~:text=North%20Korea%3A%2)
 
-航空旅行已成为一场彻头彻尾的噩梦。
+假设弹道导弹的居民疏散演习由国家与地方政府根据《国民保护法》联合进行，政府自2018年6月起暂停了演习。
 
-由于人员短缺，捷蓝航空将取消额外的航班，捷蓝已经取消了一个周末的航班。
+在4月15日的发布会上，内阁官房长官松野表示，有关恢复演习之事，政府将会综合考虑从防止中共病毒（新冠病毒Covid-19）扩散的观点出发做出决定。今年年初以来，朝鲜不断发射弹道导弹和其它导弹，因此，目前政府正在考虑恢复演习。然而，实际重启的时间尚未确定。
 
-捷蓝航空表示“鉴于我们预计夏季将继续面临行业挑战和大量需求，我们正在计划更加保守，并试图在可能因破坏性天气和空中交通管制事件而取消的情况下，采取积极主动的态度”。
+#### 信息源：[弾道ミサイル想定の住民避難訓練を再開へ　松野官房長官](https://news.yahoo.co.jp/articles/92ff3043f10e007399c1cb655a0e9d2e463fd352#:~:text=%E5%BC%BE%E9%81)
 
-本月早些时候，在 2,000 多个航班被取消或延误后，西南航空公司将责任归咎于技术问题。
-
-几个周末前，470 个航班被取消，1,438 个航班延误。
-
-该航空公司声称“计划中的系统中断”和严重的雷暴影响了全国的航班。、
-
-评论：为什么航空公司不敢承认真相：人员短缺是上千航班取消的原因，而绝非技术问题。那么，为什么今年会人员如此短缺？和mRNA注射的飞行员伤亡有关吗？和飞行员行使宪法权利选择不当试验老鼠被航空公司开除有关吗？
-
-新闻来源：[Travel Hell: JetBlue Cancels More Flights Due to Staffing Shortages](https://www.thegatewaypundit.com/2022/04/travel-jetblue-cancels-flights-due-staffing-shortages/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-评论： Jenny Ball
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/ yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

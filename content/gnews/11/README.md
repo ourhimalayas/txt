@@ -2,26 +2,45 @@
 ---
 
 
-## 樱花时政┃捷克外长希望与台湾建立更紧密关系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350799/)
+## 看看今年的医疗保健业的亿万富翁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350817/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-下届欧盟主席国捷克共和国外长说，现在是欧盟“尽可能”帮助像台湾这样的受欺负的民主国家的时候了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃捷克外长希望与台湾建立更紧密关系.jpg)（图片来源于本文链接）
-捷克外长还说，“我们表示，中共国任何帮助俄的行为都会对欧盟和中共国的关系产生严重后果。”捷克新政府强调台湾是其重要的印太伙伴之一，而布拉格正准备在其担任欧盟主席期间推出印太战略。捷克外长利帕夫斯基说，“我们理解受到中共国的欺负的台湾”。“（我们政府愿景）是民主国家应该团结起来，而台湾是一个民主国家。”他补充说：“台湾也是捷克共和国的顶级投资者之一。他们创造了许多好的产业和工作岗位。我们希望在这种经济关系上下功夫。当然，我们也希望尽可能地帮助他们。”
+翻译：Jenny Ball
 
-信息来源： 
-[捷克外长希望与”受欺负”的台湾建立更紧密关系](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220414-%E6%8D%B7%E5%85%8B%E5%A4%96%E9%95%BF%E5%B8%8C%E6%9C%9B%E4%B8%8E-%E5%8F%97%E6%AC%BA%E8%B4%9F-%E7%9A%84%E5%8F%B0%E6%B9%BE%E5%BB%BA%E7%AB%8B%E6%9B%B4%E7%B4%A7%E5%AF%86%E5%85%B3%E7%B3%BB)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：childrenshealthdefense.org
+
+《今日医疗》（MedPage Today）报道：
+
+今年福布斯年度全球富豪榜上的亿万富翁人数可能减少了 87 位，但医疗保健行业的领袖们却成功地登上了榜单。
+
+小托马斯·弗里斯特(Thomas Frist Jr.)医学博士，庞大的上市医疗系统美国医院公司 (HCA) 的创始人，在美国医疗保健亿万富翁上榜名列前茅。其次是医疗设备制造商库克集团的首席执行官卡尔·库克(Carl Cook ),和研发和制造服务公司药明康德的联合创始人兼董事长李戈(Li Ge)博士。
+
+据福布斯报道，在国际上，弗里斯特仅次于普纳瓦拉集团主席赛勒斯·普纳瓦拉(Cyrus Poonawalla)博士，该集团包括印度血清研究所，“世界上最大的疫苗制造商（按剂量计）”。 普纳瓦拉以 243 亿美元的净资产在总榜上排名第 56 位。
+
+疫苗市场的其他公司也表现良好，例如：中国的姜仁生，重庆 ZFSW 生物制品公司董事长（净资产 177 亿美元）。还有双胞胎安德烈亚斯和托马斯·斯特伦曼（Andreas and Thomas Struengmann)，他们是辉瑞-生物科技的早期支持者，该公司与辉瑞公司合作开发 COVID-19 疫苗（净资产 119 亿美元）。
+
+评论：这些人血馒头致富的医疗保健行业的大佬们，你们心安理得吗？
+
+新闻来源：[Meet This Year’s Healthcare Billionaires](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+
+* * *
+
+评论： Jenny Ball
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
 
  
 

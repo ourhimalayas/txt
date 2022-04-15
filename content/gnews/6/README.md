@@ -2,45 +2,46 @@
 ---
 
 
-## 看看今年的医疗保健业的亿万富翁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350817/)
+## 民生集萃——裁员最大的感受（2022.4.15）&#8211;裁员后直观感受
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350855/)
 
-翻译：Jenny Ball
+#### 雅典娜情报组《民生灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+整理/编辑：gardeniahu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-5.png)圖片來源：雅典娜設計組(614)
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
+帖子原文：
 
+裁员最大的感受
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：childrenshealthdefense.org
+裁员后直观感受：
 
-《今日医疗》（MedPage Today）报道：
+1、地铁都不如以前有上下班的感觉了，总体来说很空旷。
 
-今年福布斯年度全球富豪榜上的亿万富翁人数可能减少了 87 位，但医疗保健行业的领袖们却成功地登上了榜单。
+2、吃饭也不那么需要排队了，以前排10几米的队伍，现在可能最多只有之前的三分之一。
 
-小托马斯·弗里斯特(Thomas Frist Jr.)医学博士，庞大的上市医疗系统美国医院公司 (HCA) 的创始人，在美国医疗保健亿万富翁上榜名列前茅。其次是医疗设备制造商库克集团的首席执行官卡尔·库克(Carl Cook ),和研发和制造服务公司药明康德的联合创始人兼董事长李戈(Li Ge)博士。
+3、职场更空了，原本就比较空的4号楼，感觉更冷清了。
 
-据福布斯报道，在国际上，弗里斯特仅次于普纳瓦拉集团主席赛勒斯·普纳瓦拉(Cyrus Poonawalla)博士，该集团包括印度血清研究所，“世界上最大的疫苗制造商（按剂量计）”。 普纳瓦拉以 243 亿美元的净资产在总榜上排名第 56 位。
+4、身边天天都有听说被裁员，整个心态有点差。
 
-疫苗市场的其他公司也表现良好，例如：中国的姜仁生，重庆 ZFSW 生物制品公司董事长（净资产 177 亿美元）。还有双胞胎安德烈亚斯和托马斯·斯特伦曼（Andreas and Thomas Struengmann)，他们是辉瑞-生物科技的早期支持者，该公司与辉瑞公司合作开发 COVID-19 疫苗（净资产 119 亿美元）。
+发布于03.31
 
-评论：这些人血馒头致富的医疗保健行业的大佬们，你们心安理得吗？
+精选评论
 
-新闻来源：[Meet This Year’s Healthcare Billionaires](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+莱布拉libra  回复：最大感受就是，身边留未来几年的现金流。
 
-* * *
+用户已注销  回复：大环境的经济就不好，也是没招。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1834.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1835.png)图片来源：小红书
+参考链接:[裁员最大的感受](https://www.xiaohongshu.com/discovery/item/6245a573000000000102ba7e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649993176)
 
-评论： Jenny Ball
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 
