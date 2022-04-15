@@ -2,36 +2,28 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
+## 台湾作最好的准备应对中共侵台的最坏状况
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352352/)
 
-作者：香草山翻译部
+作者：纽约香草山医疗部 – 云豹
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+当地时间4月11日，台湾驻欧盟代表蔡明彦在接受英国媒体专访中表示，中共从未放弃以武力侵台，台湾必须为战争作好一切准备。 台湾无法预测战争会以何种方式，或是何时发生，但是对于战争最坏的状况，台湾要作最好的准备来应对。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/maxresdefault-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
+蔡明彦表示，对于俄罗斯侵略乌克兰，民主国家需要联合一致给予俄罗斯制裁压力，让其它独裁政体看到冒然发动战争的严重后果。 中共正在密切观察民主国家阵营对俄罗斯侵乌的反应，评估其侵台将面临的代价。
 
-文章仅代表作者本人观点，与Gnews无关
+中共有比俄罗斯更强大的经济实力，及更多的可用资源。 但是台湾将着力于发展不对称性武力增强自我防卫，及利用现有高科技晶片的强大生产能力来与国际社会联成一体，作为另一种保护台湾的力量。
 
-视频参看：
-[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
-[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
+参考链接：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+- [中共未棄武統 蔡明彥：台灣為最壞情況做最好準備](https://www.cna.com.tw/news/aipl/202204130417.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
-
+校对/编辑/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

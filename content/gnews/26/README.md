@@ -2,29 +2,35 @@
 ---
 
 
-## 佛州州长德桑蒂斯警告非法移民：不要前往佛罗里达
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2352719/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+作者：香草山翻译部
 
-4月14日，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）警告非法进入美国的移民不要前往佛罗里达州。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-314.jpg)（图片来源：美国头条）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
 
-据《美国头条》新闻网报导，佛罗里达州州长执行办公室对非法进入美国的移民发出警告，千万不要到佛罗里达州来，如果非法来到此地，将面临拜登政府带来的极大伤害。
+文章仅代表作者本人观点，与Gnews无关
 
-德桑蒂斯解释道，拜登政府一直无视边境危机，允许数千名移民长途跋涉至边境，并将他们的生命置于人贩手中，这将会对他们的家人带来巨大痛苦。
+视频参看：
+[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
+[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
 
-德桑蒂斯指出，佛罗里达州并不是一个庇护州，它的社会福祉是为本州的公民服务，而且州长有义务保护佛罗里达公民的安全。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-此前，德克萨斯州也遇到类似情况，目前该州已将二十多名非法移民转运至华盛顿，并表示将继续转运，直至拜登政府处理边境危机为止。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-参考链接：
-[https://en-volve.com/2022/04/14/desantis-warns-illegal-immigrants-do-not-come-to-florida/](https://en-volve.com/2022/04/14/desantis-warns-illegal-immigrants-do-not-come-to-florida/)
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-编辑：海星
-总编：老孙
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
 
  
 

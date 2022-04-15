@@ -2,24 +2,22 @@
 ---
 
 
-## 黑海舰队旗舰“莫斯科号”被乌军导弹击沉
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352353/)
+## 俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352349/)
 
-作者：雅典娜农场 – 文泓
+作者：日本东京方舟农场 – Miyali7768(文玉）
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-当地时间4月13日夜间，俄罗斯最大的军舰“莫斯科号”在乌克兰导弹袭击后在敖德萨附近海域爆炸并沉没。
+据美国《国会山》4月13日消息，俄罗斯周三宣布，对美国398名国会议员实施报复性制裁，以回应上个月美国对300多名俄罗斯立法者实施的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-95.png)
+俄罗斯外交部在一份新闻稿中说： “美国国会下议院的领导层和委员会主席，被永久列入俄罗斯’禁止入境名单’。俄罗斯外交部称这些措施是对拜登总统3月24日针对俄罗斯立法机构杜马的328名成员制裁的回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-70.png)
+美国众议员迪恩·菲利普斯（Dean Phillips）说，自己家人逃脱了19世纪末的“俄罗斯大屠杀”，在美国获得庇护，他在推特上强硬回应：120年后的今天，我因反对种族灭绝，威权主义和暴政而受到俄罗斯的制裁，我向我的曾祖父母承诺我会战斗。
 
-俄罗斯国防部证实，“莫斯科号”在发生火灾后遭受了“重大损失”，但表示仍在调查爆炸原因。俄媒体称，船上的弹药意外引爆后，船上的500名船员被疏散。
-
-周四乌方官员称，这首俄罗斯黑海舰队旗舰排水量12000吨巡洋舰被两枚R-360海王星级反舰导弹击中，导致其在敖德萨附近爆炸并沉没，船员在遭袭击后弃船。开源情报分析员也接受到求救舰上信号“SOS”和“沉没”。
-
-“莫斯科号”曾是黑海舰队抵御乌克兰攻击的最佳防御手段，但这款光荣级巡洋舰其设计遵循俄罗斯一贯思路，将大量大型武器装到船体上的理念而容易发生爆炸。
+犹他州共和党众议员约翰柯蒂斯则明确表示自己被俄罗斯列入制裁名单是“荣幸”。
 
 参考链接：
 
-- [Russia’s largest warship The Moskva sinks near Ukrainian coast after missile attack](https://www.skynews.com.au/australia-news/russias-largest-warship-the-moskva-sinks-near-ukrainian-coast-after-missile-attack/news-story/0551243a3ab0282c73d7c67ceb363e94)
+- [Russia sanctions 398 members of Congress](https://thehill.com/news/house/3266670-russia-sanctions-398-members-of-congress/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)

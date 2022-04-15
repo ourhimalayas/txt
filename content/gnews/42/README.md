@@ -2,21 +2,31 @@
 ---
 
 
-## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
+## 有声｜“上海人忍耐已到极限”吗？
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2351120/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
-美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
+By:**秘翻新闻**
 
-其中个别死亡案例统计信息统计如下：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
-由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
+**2022-04-15**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-34.png)
+[新唐人](https://www.ntdtv.com/gb/2022/04/14/a103400447.html)北京时间4月15日消息，上海市无人性的“清零防疫”导致民怨沸腾，也令许多中共国人对中共体制彻底绝望。网文《上海人民的忍耐已经到了极限》阅读量超过2000万，一度被封杀。
 
-信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
+这篇4月13日发表在微信上的网文，细数上海封城期间各种“刷新底线的事件”，直斥“连坐陪罪”等封控苛政。
 
-[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
+文章说，封城以来“每天都有刷新底线的事件”，并提到又一起病患因延误治疗死亡的悲剧。
 
+据信，一位病情稳定的癌症患者，4月3日发病去医院求医，医院拒绝小区的核酸阴性报告，要求必须再做核酸检测，确认检测阴性后才能收治。病人在等待检测结果的过程中离世，死前最后一句话是询问“核酸报告出来了吗”。而核酸阴性报告在他去世两小时后才出来。
+
+这篇文章一度遭微信封杀，原文不可见。但随后文章又被恢复，却疑似被限流，禁止其他用户分享。
+
+与此同时，网络还流出一篇题为“上海人的忍耐还远远没有到极限”的短文，隐晦地呼吁中共国人用实际行动对中共政权展开抗争。
+
+秘翻新闻 二丫编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

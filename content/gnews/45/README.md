@@ -2,27 +2,36 @@
 ---
 
 
-## 疫情｜台湾单日确诊“首破千例” 儿童疫苗谈判最后阶段
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2351116/)
+## MobiKwik钱包在印度撤销了UPI支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351033/)
 
-**疫情关注组 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-8.png)
-台湾防疫指挥中心今（15日）公布新增本土个案1209例、境外移入75例，共1284例。指挥官陈时中表示，台湾疫情破百万例，“这也不是完全不可能”，现在最重要是将疫情控制住，强调防疫重点将转变为减灾，强化疫苗、药物及轻重症分流。减灾方法为“积极接种疫苗”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-15-下午6.02.59.png)
-因应台湾疫情进入下一阶段，中央调整部分防疫政策，如修订学校停课标准。台湾防疫仍以“疫苗”为主轴，并承认台湾“清零不可能”。先前，指挥中心曾表示，未来可能会以接种疫苗作为放宽接触者匡列的依据，将匡列范围缩小，并要降低家用快筛剂的售价，保留充足医疗量能。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-13日媒体报导，卫生福利部长陈时中表示，适合5到11岁小孩的剂型是由辉瑞制造，目前谈判已进入最后阶段。
+整理：li yan li
+编辑：朝花夕拾
 
-另外，中央发布最新的停课标准，全国各高中职、国中小、幼儿园及补习班，“全校有3分之1以上班级或全校达10班以上班级暂停实体课程10天”，得实施全校暂停实体课程。此规定使各级学校只有在十分严峻的情形，方有停课可能。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
 
-台湾劳动部针对“劳工之防疫隔离假”，强调若劳工遇居家隔离状况，雇主应准“防疫隔离假”不可视为旷职，亦不得为解雇、扣发奖金或其他不利处分。此外，劳工染疫除可归责于雇主外，受隔离请防疫隔离假，雇主可不给薪，确诊可改请病假领半薪。（亦即劳工染疫系归因于雇主者，于防疫隔离假期间，雇主仍应给付薪资，并无上述不给薪情形适用；所谓“劳工染疫”可归责于雇主之情形，劳动部举例：雇主派遣员工出差致员工受隔离，或于隔离期间经确诊染疫者）
 
-来源｜[udn](https://tw.stock.yahoo.com/news/%E9%98%B2%E7%96%AB%E9%9A%94%E9%9B%A2%E5%81%87%E9%9B%87%E4%B8%BB%E4%B8%8D%E7%B5%A6%E8%96%AA-%E7%A2%BA%E8%A8%BA%E5%8F%AF%E6%94%B9%E8%AB%8B%E7%97%85%E5%81%87%E9%A0%98%E5%8D%8A%E8%96%AA-042048117.html)、[自由](https://news.ltn.com.tw/news/life/breakingnews/3891746)、[cna](https://www.cna.com.tw/news/ahel/202204130110.aspx)
+4月14日，印度支付机构印度国家支付委员会（NPCI）在Coinbase（纳斯达克股票代码：COIN）宣布在印度推出交易服务后数小时，拒绝承认Coinbase的推出。因此，Coinbase暂停了对统一支付接口（UPI）的支持，随后MobiKwik钱包也撤回了用于数字货币交易的UPI支付。这为该国的数字货币交易者铺设了一条越来越困难的道路。
 
-* * *
+MobiKwik是至少六家数字货币交易所的合作伙伴，这些交易所立即停止提供MobiKwik电子钱包选项。现在印度只有少数交易所允许用户进行数字货币交易。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+目前，用户只能通过国家电子资金转账（NEFT）和即时支付服务（IMPS）的方式进行出售，不过没有购买选项。由于选择有限，在WazirX、CoinDCX和Coinbase上存入资金具有挑战性。大多数交易所只允许用户通过网银存入资金。
+
+在4月7日的发布会上，Coinbase首席执行官布莱恩-阿姆斯特朗表示：“随着我们进入印度市场，我们正在积极尝试一些支付方式和合作伙伴，使我们的客户能够无缝地进行加密货币购买。这些方法之一就是简单易用的快速支付系统UPI”。
+
+然而，在NPCI的声明否认推出使用UPI支付的新数字货币交易所后，Coinbase澄清说：“我们知道NPCI最近发表的关于加密货币交易所使用UPI的声明。我们致力于与NPCI和其他相关部门合作，以确保我们与当地的期望和行业规范保持一致”。
+
+新闻链接：[继Coinbase之后，MobiKwik钱包也在印度撤销了UPI支付](https://coingeek.com/after-coinbase-mobikwik-wallet-also-withdraws-upi-payments-in-india/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

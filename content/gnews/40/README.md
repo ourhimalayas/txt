@@ -2,26 +2,20 @@
 ---
 
 
-## 美中情局局长：美国不能轻视俄动用核武器的可能性
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2351555/)
+## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
 
-#### **撰稿：**日本东京方舟农场  子辰
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
+美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
 
-4月14日，美国中央情报局局长伯恩斯警告说，美国不能“轻视”俄罗斯使用战术核武器的可能性，因为莫斯科在对乌克兰的军事打击过程中正变得越来越绝望。
+其中个别死亡案例统计信息统计如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
+由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16-7.png)图片来自大纪元
+信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
 
-援引《国会山报》（The Hill）报导，CIA局长威廉·伯恩斯（William Burns）周四在于乔治亚理工学院（Georgia Tech）发表演讲后表示：“鉴于俄罗斯总统普京和俄罗斯领导人可能面临的绝望，鉴于他们迄今为止在军事上所遭到的挫折，我们任何人都不能轻视他们可能使用战术核武器或低当量核武器的潜在威胁。”
-
-伯恩斯说，虽然目前美国尚未看到俄罗斯将动用核武的“实际证据”。 但我们会密切关注这一点，这是我们中情局最重要的职责之一。据悉这是首次针对潜在的核武器威胁对广大公众发出的公开警告。
-
-此外，伯恩斯还详细谈到了俄罗斯对乌克兰发动的战争中，美国做出的应对策略。他说，拜登总统关心的是如何避免欧洲爆发第三次世界大战，正是出于这种担心，美国才没有在乌克兰上空设立禁飞区，也没有接受波兰向乌克兰移交苏联时代战斗机的计划。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/14/n13711964.htm](https://www.epochtimes.com/gb/22/4/14/n13711964.htm)
-
-总编：老孙
-发布：土清风
+[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
 
  
 
