@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 3:02 AM (UTC)`
+
+2022-4-14《鸡血王喜币大作战》 第一百六十五集 嘉宾：无双柳薇薇、青藤
+![img](https://media.gettr.com/group50/origin/2022/04/10/02/1b337cc6-35b8-9f08-ae6d-69e0175c7077/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 2:15 AM (UTC)`
 
 Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from the Ukrainian refugee children as well as what he saw and heard while volunteering in the NFSC & ROFL tent at the Medyka Refugee Center on Facebook. <br/><br/>台湾原视新闻：35岁的台湾阿美族人王芮缇在脸书上分享了一些乌克兰难民儿童绘制的图画以及他在梅迪卡难民中心新中国联邦法治基金帐篷内做义工时的所见所闻。<br/>
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
  4月14号：太晚了，太软了，太不团结了！总比饿死好！
 ![img](https://media.gettr.com/group29/getter/2022/04/14/16/ce2c1a9c-22b0-ebd1-38a3-d4fd2df102d9/out.jpg)
-
----
-
-`@miles 4/14/2022 3:04 PM (UTC)`
-
-【Ukraine Rescue】 04/14/22 Ben, a volunteer from the United States, says that the largest and best-equipped NFSC rescue station is the cornerstone of the Medyka center. Without the presence of the NFSC, Medyka would not be as global as it is today. He believes that it is because the New China Federation upholds humanity that the Communist Party should be eliminated; it should be a global fight because even a country as powerful and symbolic of freedom as the United States has been infiltrated by the CCP, so the whole world should come together to take down the CCP!<br/><br/>【乌克兰救援】 04/14/22 来自美国的志愿者本表示：设施最大服务最好的新中国联邦救援站是梅迪卡营地的基石。如果没有新中国联邦在这里，梅迪卡营地不可能像今天这样极具国际性。 他认为，因为新中国联邦维护人性，所以才要灭共，灭共应该是一场全球性的斗争，因为即使是美国这么强大、象征自由的国家都已经被中共染指和渗透，所以全球人都应该来灭共。
-![img](https://media.gettr.com/group6/origin/2022/04/14/15/9b110ad1-fe5c-e0fe-440f-078018609271/out.jpg)
 
 ---
 
