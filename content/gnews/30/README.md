@@ -2,22 +2,22 @@
 ---
 
 
-## 俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352349/)
+## 台湾作最好的准备应对中共侵台的最坏状况
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352352/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+作者：纽约香草山医疗部 – 云豹
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-据美国《国会山》4月13日消息，俄罗斯周三宣布，对美国398名国会议员实施报复性制裁，以回应上个月美国对300多名俄罗斯立法者实施的制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-95.png)
-俄罗斯外交部在一份新闻稿中说： “美国国会下议院的领导层和委员会主席，被永久列入俄罗斯’禁止入境名单’。俄罗斯外交部称这些措施是对拜登总统3月24日针对俄罗斯立法机构杜马的328名成员制裁的回应。
+当地时间4月11日，台湾驻欧盟代表蔡明彦在接受英国媒体专访中表示，中共从未放弃以武力侵台，台湾必须为战争作好一切准备。 台湾无法预测战争会以何种方式，或是何时发生，但是对于战争最坏的状况，台湾要作最好的准备来应对。
 
-美国众议员迪恩·菲利普斯（Dean Phillips）说，自己家人逃脱了19世纪末的“俄罗斯大屠杀”，在美国获得庇护，他在推特上强硬回应：120年后的今天，我因反对种族灭绝，威权主义和暴政而受到俄罗斯的制裁，我向我的曾祖父母承诺我会战斗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/maxresdefault-1.jpg)
 
-犹他州共和党众议员约翰柯蒂斯则明确表示自己被俄罗斯列入制裁名单是“荣幸”。
+蔡明彦表示，对于俄罗斯侵略乌克兰，民主国家需要联合一致给予俄罗斯制裁压力，让其它独裁政体看到冒然发动战争的严重后果。 中共正在密切观察民主国家阵营对俄罗斯侵乌的反应，评估其侵台将面临的代价。
+
+中共有比俄罗斯更强大的经济实力，及更多的可用资源。 但是台湾将着力于发展不对称性武力增强自我防卫，及利用现有高科技晶片的强大生产能力来与国际社会联成一体，作为另一种保护台湾的力量。
 
 参考链接：
 
-- [Russia sanctions 398 members of Congress](https://thehill.com/news/house/3266670-russia-sanctions-398-members-of-congress/)
+- [中共未棄武統 蔡明彥：台灣為最壞情況做最好準備](https://www.cna.com.tw/news/aipl/202204130417.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)

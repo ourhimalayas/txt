@@ -2,28 +2,21 @@
 ---
 
 
-## 国内已经爆发粮荒 中共把粮食定为了战略性武器
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2352986/)
+## 加拿大政府储备的大量疫苗已过期
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2353127/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-5月份就会经济崩塌，同时疫苗灾难大爆发。
+加拿大温哥华扬帆农场    平民正道
 
-粮荒已经在国内爆发了，中共已经把粮食定为战略性武器。
+据[CTV新闻]4月13日报道，加拿大卫生部当天表示，由于自今年1月份以来新冠病毒接种人数的大幅减少，全国库存的大量疫苗已经过期。
 
-在未来的2年，3个保命的关键：1，有粮，有水，备好食物；2.备些现金；3.有安全的居所，避免高楼住宅；4.备好药物。
+据悉，该数量为150万剂过期疫苗占加拿大政府自2020年12月以来，所总共购买1.18亿剂的2%，其中莫德纳疫苗就有约50万剂。而在目前1800多万剂库存疫苗中，绝大部分都将在未来四个月内过期。
 
-视频来源: 20220414—郭先生GETTR短直播
-视频制作: 文星光
-文案:文星光
+报道称，由于加拿大卫生部正在等待疫苗制造商关于是否可以延长有效期的通知，因此，以上已过期的疫苗将不会被立即销毁。
 
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+* * *
+
+编辑： 平民正道    发布：平民正道
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
