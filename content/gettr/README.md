@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 12:13 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月14日第41天当日救援统计：<br/>Medyka救援站接待：约243人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11672人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 41 - Date: April 14, 2022 :<br/>Medyka Rescue Station Reception: about 243 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11672 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group9/getter/2022/04/15/12/d343a132-b5c3-750e-f284-653f708ee18f/337b7b01f84970cc91a0405fea81a409.jpg)
+
+---
+
 `@miles 4/15/2022 10:58 AM (UTC)`
 
 2022.04.15  新中国联邦 | 军情室 乌克兰战况最新进展报告 莫斯科号巡洋舰中弹沉没 美国扩大对乌武器供应 从东风15开始谈东风导弹
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 4/14/2022 Miles Guo: Russia’s so-called "God of the Black Sea", the guided missile cruiser Moskva, was sunk by two and a half missiles, and this is of great significance in terms of shifting the world's military and political landscape. Since Russia will not be able to defeat Ukraine, it may find excuses to use nuclear weapons. The disasters in Europe were caused by the Marxism and totalitarianism promoted by Germany and France in the past 30 years.<br/><br/>4/14/2022 文贵直播：俄罗斯所谓的"黑海之神"导弹巡洋舰被两个半导弹击沉了，这对改变整个世界军事政治格局意义大了去了；俄罗斯无法将乌克兰打趴下，因而有可能会找借口使用核武器；过去30年德国和法国推行的马克思主义极权导致了欧洲的灾难<br/>
 ![img](https://media.gettr.com/group43/getter/2022/04/14/22/839465c7-bfc0-e89e-dc5c-a45130138a76/out.jpg)
-
----
-
-`@miles 4/14/2022 10:09 PM (UTC)`
-
-4/14/2022 Miles Guo: A lot of Americans have been asking me why the Shanghainese don’t fight back. The basic right given by God to every human being is to protect themselves and their family and to defend their basic dignity! Only the Chinese themselves can save the Chinese. Lang Xianping slept with a stewardess for five years, but he sued her and demanded her to return the property and car he gave her. Lang wasn’t even willing to pay the lawyer!<br/><br/>4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利！只有中国人自己才能拯救中国人！郎咸平睡了空姐五年，却打官司要空姐还他送的房和车，竟然连律师费都不愿意付！<br/>
-![img](https://media.gettr.com/group13/getter/2022/04/14/22/292131dc-8a80-10d7-a68a-17c14ef73b1e/out.jpg)
 
 ---
 
