@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 10:02 PM (UTC)`
+
+“太软了，太晚了，太不团结了...” 飞飞秀救援快报 2022-04-15<br/>For English：gettr.com/streaming/p15hfbe209e
+![img](https://media.gettr.com/group43/origin/2022/04/15/22/5f11b10e-23cc-378a-1718-faeb2b41121f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 8:57 PM (UTC)`
 
 2022.04.15  新中国联邦 | 喜健康    克服恐惧携手灭共
@@ -147,13 +154,6 @@ The Spanish college student asked for a vest of “Take Down the Chinese Communi
 
 Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from the Ukrainian refugee children as well as what he saw and heard while volunteering in the NFSC & ROFL tent at the Medyka Refugee Center on Facebook. <br/><br/>台湾原视新闻：35岁的台湾阿美族人王芮缇在脸书上分享了一些乌克兰难民儿童绘制的图画以及他在梅迪卡难民中心新中国联邦法治基金帐篷内做义工时的所见所闻。<br/>
 ![img](https://media.gettr.com/group9/getter/2022/04/15/02/94993258-b416-f867-c98a-7e0074aa8aa8/out.jpg)
-
----
-
-`@miles 4/15/2022 2:01 AM (UTC)`
-
-2022.04.14  新中国联邦 | 喜财经   喜币成为全世界最流行、最早的数字法币
-![img](https://media.gettr.com/group20/origin/2022/04/15/01/cfce6d09-1ef5-186f-29eb-d98437bf86e5/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

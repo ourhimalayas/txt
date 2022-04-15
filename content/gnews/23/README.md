@@ -2,26 +2,29 @@
 ---
 
 
-## 加拿大政府储备的大量疫苗已过期
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353325/)
+## 有声|以歌灭共成绩斐然 意义重大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2353385/)
 
-采编/撰稿： 加拿大温哥华扬帆农场 – Spirit
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+自上榜以来，《灭共的雪》和《铁锁梦》连续多日占领多个国家和地区iTunes排行榜前列。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500511781-1.png)图片来源：CTV News
+郭文贵先生在4月10日的大直播中表示，因为中共的威逼利诱，两首灭共歌曲上榜之路艰辛。成功上榜后，中共又恶意篡改数据。即便如此，这两首歌仍在中共国内受众极广，达十几亿的次播放量。 两首歌曲同时打榜，也震撼了日本、台湾等业界人士。
 
+文字版原文：[以歌灭共成绩斐然 意义重大](https://gnews.org/zh-hans/2350708/)
 
-据[CTV新闻]4月13日报道，加拿大卫生部当天表示，由于自今年1月份以来新冠病毒接种人数的大幅减少，全国库存的大量疫苗已经过期。
+音频处理：Fei797
+发稿：Fei797
 
-据悉，该数量为150万剂过期疫苗占加拿大政府自2020年12月以来，所总共购买1.18亿剂的2%，其中莫德纳疫苗就有约50万剂。而在目前1800多万剂库存疫苗中，绝大部分都将在未来四个月内过期。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-报道称，由于加拿大卫生部正在等待疫苗制造商关于是否可以延长有效期的通知，因此，以上已过期的疫苗将不会被立即销毁。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源： [https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

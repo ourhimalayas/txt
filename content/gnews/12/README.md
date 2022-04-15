@@ -2,29 +2,26 @@
 ---
 
 
-## 特鲁多反对艾伯塔省关闭毒品消费场所
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353394/)
+## 俄罗斯驱逐 18 名欧盟外交官
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353483/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-撰稿：加拿大温哥华扬帆农场 – 晨熹
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500528271.png)图片来源：True North
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据加拿大【真北方】4月12日报道，特鲁多当天在埃德蒙顿推动其政府的2022年预算时，抨击了艾伯塔省长肯尼为控制高犯罪率和有效减少毒品致死问题而部分关闭该省指定吸毒场所的决定。
-
-据悉，阿尔伯塔省在2016至2021年间约有2000人因吸毒过量致死。省长肯尼因此决定自2020年起陆续关闭并重新安置了部分受监管的毒品消费场所。
-
-对于肯尼的以上措施，特鲁多表示反对并坚持认为阿尔伯塔省政府应该保障安全的毒品消费场所，以解决因摄毒过量而造成的人员伤亡。据悉，埃德蒙顿市长和自由党议员日前启动了对拥有海洛因和可卡因等毒品申请豁免权的联邦法律。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/](https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0145.jpg)
 
 
+图片来源：路透社
+
+欧洲时间周五晚上 8 点 39 分德国世界报报道， 作为对俄罗斯外交官被欧盟驱逐的回应，俄罗斯将驱逐欧盟驻莫斯科代表处的18名外交官。 这是外交部在莫斯科宣布的。 同时，它指责欧盟“不断破坏数十年来建立的双边对话与合作架构”。
+
+鉴于俄罗斯对乌克兰的侵略战争，布鲁塞尔于4月初宣布俄罗斯驻欧盟代表处的19名官员为不受欢迎的人。 这是因为他们开展了与其外交地位相矛盾的活动。 包括德国在内的许多欧盟成员国也驱逐了最近几周在各国首都受雇的俄罗斯外交官。
+
+🔗 [https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html](https://www.welt.de/politik/ausland/article238194767/Ukraine-News-Bundesregierung-stockt-Ruestungshilfe-drastisch-auf.html)
+
+编辑发表： Shuizhuyu
 
  
 

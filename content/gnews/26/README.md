@@ -2,14 +2,25 @@
 ---
 
 
-## 非洲志愿者支持新中国联邦灭共
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/2353279/)
+## 加拿大政府储备的大量疫苗已过期
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353325/)
 
-在波兰边境，来自非洲莫桑比克的志愿者看到新中国联邦义工身上穿的 “灭共马甲” 很感兴趣。他完全理解中共 “一带一路” 邪恶的用意是奴役非洲人，他表示中国人不等于中共，就像俄罗斯人不等于俄罗斯政府一样。他完全赞同推翻邪恶的中共政权，还中国人民自由。
+采编/撰稿： 加拿大温哥华扬帆农场 – Spirit
 
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500511781-1.png)图片来源：CTV News
 
-视频/ 编辑：意大利罗马达芬奇农场- 阿娜
+
+据[CTV新闻]4月13日报道，加拿大卫生部当天表示，由于自今年1月份以来新冠病毒接种人数的大幅减少，全国库存的大量疫苗已经过期。
+
+据悉，该数量为150万剂过期疫苗占加拿大政府自2020年12月以来，所总共购买1.18亿剂的2%，其中莫德纳疫苗就有约50万剂。而在目前1800多万剂库存疫苗中，绝大部分都将在未来四个月内过期。
+
+报道称，由于加拿大卫生部正在等待疫苗制造商关于是否可以延长有效期的通知，因此，以上已过期的疫苗将不会被立即销毁。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源： [https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
 
  
 

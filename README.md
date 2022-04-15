@@ -15,161 +15,161 @@
 
 ---
 
-### [没逻辑的上海确诊死亡数据 分析：不符合医学规律](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [20220415郭文贵大直播 ：NICK分析喜币对于未来经济生活的意义](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [樱花时政┃“乌克兰忠犬八公”秋田犬等待着被俄军杀害的主人](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [加拿大皇家骑警在镇压期间大肆吃喝](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [俄罗斯驱逐 18 名欧盟外交官](/content/gnews/3/README.md)
- ` Shuizhuyu`
+### [20220415郭文贵大直播 ：喜币将成为最早的数字法币](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [文贵爆料：中共今天启动 “台湾之子 ”行动](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [俄乌战争“没想到”系列之十：](/content/gnews/5/README.md)
- ` 蓝莲花农场`
-
-### [德国联邦政府大幅增加对乌克兰军队的武器援助](/content/gnews/6/README.md)
- ` Shuizhuyu`
-
-### [4/15/2022 文贵紧急直播的第三个原因：中共从今天开始已启动”台湾之子”计划，如同上次蓬佩奥访问台湾期间出现停电一样，中共会让台湾水电供应、交通、机场、网路等停摆，引起社会内乱，趁机拿下台湾](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [中国海洋石油被迫退出加拿大市场](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [【粤语配音】2022年4月15日：中共正式启动&#8221;台湾之子&#8221;行动](/content/gnews/9/README.md)
+### [【粤语配音】2022年4月15日：中共与俄罗斯妄想躲过美国的国际制裁](/content/gnews/4/README.md)
  ` MOS香港部`
 
-### [加拿大武装部队将参与乌克兰救援](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [五月花简报（04/15/2022）](/content/gnews/5/README.md)
+ ` mayflowertranslate`
 
-### [日本下议院通过了剥夺俄罗斯贸易优惠国地位的法案](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [20220415郭文贵大直播 ：嘉宾点评“国内粮食危机ppt](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [特鲁多反对艾伯塔省关闭毒品消费场所](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [2018年9月3日&nbsp; 郭文贵先生直播 全文字版](/content/gnews/7/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [特鲁多政府在疫情期间的恐慌性投资](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [【粤语配音】2022年4月14日：俄罗斯的&#8221;黑海之神&#8221;旗舰被精准炸毁](/content/gnews/8/README.md)
+ ` MOS香港部`
 
-### [有声|以歌灭共成绩斐然 意义重大](/content/gnews/14/README.md)
- ` MOSREC`
+### [年轻人心脏骤停纷纷倒下](/content/gnews/9/README.md)
+ ` xiaobaige`
 
-### [巴勒斯坦人在耶路撒冷圣地与以色列警察发生冲突导致152人受伤](/content/gnews/15/README.md)
- ` Shuizhuyu`
-
-### [安大略省第六波新冠病毒疫情](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [4/15/2022 文贵直播：中共给俄罗斯运送物资不？咋运的？中共通过所谓的中欧铁路频繁运送战略物资和石油，帮助邪恶国家逃避美国制裁](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [渥太华公立学校恢复在校内配戴口罩](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [有声|新中国联邦与德国天主教公益组织合作救援](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [莫斯科号导弹巡洋舰沉没对俄罗斯造成多大损失](/content/gnews/20/README.md)
- ` Shuizhuyu`
-
-### [4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|郭文贵先生灭共布局](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [加拿大政府储备的大量疫苗已过期](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [乌克兰人在马里乌波尔钢铁厂坚持](/content/gnews/24/README.md)
- ` Shuizhuyu`
-
-### [我要把美好的青春送给你，歌唱中共国的歌唱家叶佩英凄凉离世](/content/gnews/25/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [非洲志愿者支持新中国联邦灭共](/content/gnews/26/README.md)
- ` Itana`
-
-### [俄罗斯远程轰炸机首次袭击乌克兰](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [醒来吧，中国人，勇敢吧，同胞们！推翻邪恶的共产党才能彻底解决问题！](/content/gnews/28/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [加拿大政府储备的大量疫苗已过期](/content/gnews/29/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国下令一些领事人员离开上海 并建议美国人重新考虑前往中国](/content/gnews/30/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [辉瑞新冠疫苗试验评审中的利益冲突](/content/gnews/31/README.md)
- ` Little c`
-
-### [2022年4月15日大直播速记精萃](/content/gnews/32/README.md)
- ` 雅典娜GNotes`
-
-### [携妻逃出乌克兰 一心为寻新联邦](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [肥料短缺加剧全球粮食危机](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [美财政部长就中俄结盟问题发出严厉警告](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [截至4.15 俄乌战事汇总](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [视频文编|共产党利用群众的意见制造矛盾](/content/gnews/38/README.md)
- ` KarmaLabs`
-
-### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/39/README.md)
- ` G-NEWS TAIWAN`
-
-### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/40/README.md)
- ` 温哥华扬帆农场`
-
-### [中国民众开始觉醒不再相信中共党媒宣传洗脑](/content/gnews/41/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没](/content/gnews/42/README.md)
- ` 日本東京方舟農場`
-
-### [4/15/2022国际财经快讯：马斯克向Twitter提出430亿美元报价；英国实施有史以来最大规模资产冻结](/content/gnews/43/README.md)
- ` 秘密翻译组金融团队`
-
-### [台湾｜美重量级议员访台 推动台湾驻美代表处正名法案 抛弃台湾等于抛弃自由](/content/gnews/44/README.md)
- ` 關注組`
-
-### [疫情｜台湾单日确诊“首破千例” 儿童疫苗谈判最后阶段](/content/gnews/45/README.md)
- ` 關注組`
-
-### [MobiKwik钱包在印度撤销了UPI支付](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
-
-### [埃隆•马斯克会被阻止接管推特吗？](/content/gnews/47/README.md)
- ` 墨尔本雅典娜农场`
-
-### [马斯克猛砸410亿美元现金 提出收购推特建议](/content/gnews/48/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频文编|习近平早已决定要让老百姓尝尝挨饿的滋味，才会更听话](/content/gnews/49/README.md)
- ` KarmaLabs`
-
-### [樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞](/content/gnews/50/README.md)
+### [没逻辑的上海确诊死亡数据 分析：不符合医学规律](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [波兰政府发放新中国联邦乌克兰救援行动志愿者证](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
+### [樱花时政┃“乌克兰忠犬八公”秋田犬等待着被俄军杀害的主人](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频文编|不服从中共中央统一安排，私自调配物资违反政治规矩的领导都会被免职](/content/gnews/52/README.md)
+### [俄罗斯驱逐 18 名欧盟外交官](/content/gnews/12/README.md)
+ ` Shuizhuyu`
+
+### [文贵爆料：中共今天启动 “台湾之子 ”行动](/content/gnews/13/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄乌战争“没想到”系列之十：](/content/gnews/14/README.md)
+ ` 蓝莲花农场`
+
+### [德国联邦政府大幅增加对乌克兰军队的武器援助](/content/gnews/15/README.md)
+ ` Shuizhuyu`
+
+### [4/15/2022 文贵紧急直播的第三个原因：中共从今天开始已启动”台湾之子”计划，如同上次蓬佩奥访问台湾期间出现停电一样，中共会让台湾水电供应、交通、机场、网路等停摆，引起社会内乱，趁机拿下台湾](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中国海洋石油被迫退出加拿大市场](/content/gnews/17/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [【粤语配音】2022年4月15日：中共正式启动&#8221;台湾之子&#8221;行动](/content/gnews/18/README.md)
+ ` MOS香港部`
+
+### [加拿大武装部队将参与乌克兰救援](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [日本下议院通过了剥夺俄罗斯贸易优惠国地位的法案](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [特鲁多反对艾伯塔省关闭毒品消费场所](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [特鲁多政府在疫情期间的恐慌性投资](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声|以歌灭共成绩斐然 意义重大](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [巴勒斯坦人在耶路撒冷圣地与以色列警察发生冲突导致152人受伤](/content/gnews/24/README.md)
+ ` Shuizhuyu`
+
+### [安大略省第六波新冠病毒疫情](/content/gnews/25/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大政府储备的大量疫苗已过期](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰人在马里乌波尔钢铁厂坚持](/content/gnews/27/README.md)
+ ` Shuizhuyu`
+
+### [我要把美好的青春送给你，歌唱中共国的歌唱家叶佩英凄凉离世](/content/gnews/28/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [悲剧的上海](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
+
+### [非洲志愿者支持新中国联邦灭共](/content/gnews/30/README.md)
+ ` Itana`
+
+### [俄罗斯远程轰炸机首次袭击乌克兰](/content/gnews/31/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [醒来吧，中国人，勇敢吧，同胞们！推翻邪恶的共产党才能彻底解决问题！](/content/gnews/32/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [美国下令一些领事人员离开上海 并建议美国人重新考虑前往中国](/content/gnews/33/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [辉瑞新冠疫苗试验评审中的利益冲突](/content/gnews/34/README.md)
+ ` Little c`
+
+### [携妻逃出乌克兰 一心为寻新联邦](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [肥料短缺加剧全球粮食危机](/content/gnews/36/README.md)
+ ` NFSC News`
+
+### [美财政部长就中俄结盟问题发出严厉警告](/content/gnews/37/README.md)
+ ` NFSC News`
+
+### [截至4.15 俄乌战事汇总](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/39/README.md)
+ ` NFSC News`
+
+### [视频文编|共产党利用群众的意见制造矛盾](/content/gnews/40/README.md)
  ` KarmaLabs`
+
+### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/41/README.md)
+ ` G-NEWS TAIWAN`
+
+### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/42/README.md)
+ ` 温哥华扬帆农场`
+
+### [中国民众开始觉醒不再相信中共党媒宣传洗脑](/content/gnews/43/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没](/content/gnews/44/README.md)
+ ` 日本東京方舟農場`
+
+### [4/15/2022国际财经快讯：马斯克向Twitter提出430亿美元报价；英国实施有史以来最大规模资产冻结](/content/gnews/45/README.md)
+ ` 秘密翻译组金融团队`
+
+### [台湾｜美重量级议员访台 推动台湾驻美代表处正名法案 抛弃台湾等于抛弃自由](/content/gnews/46/README.md)
+ ` 關注組`
+
+### [疫情｜台湾单日确诊“首破千例” 儿童疫苗谈判最后阶段](/content/gnews/47/README.md)
+ ` 關注組`
+
+### [MobiKwik钱包在印度撤销了UPI支付](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [埃隆•马斯克会被阻止接管推特吗？](/content/gnews/49/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马斯克猛砸410亿美元现金 提出收购推特建议](/content/gnews/50/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [波兰政府发放新中国联邦乌克兰救援行动志愿者证](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
