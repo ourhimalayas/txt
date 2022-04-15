@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 7:19 AM (UTC)`
+
+《灭共的雪 The terminator snow》🎤卡拉OK版（Karaoke)🎵🎵🎵<br/> <br/>我爱你，塞北的雪<br/>I love you, the northern snow<br/> <br/>飘飘洒洒漫天遍野<br/>drifting in the sky, covering the earth below<br/> <br/>你的舞姿是那样的轻盈 <br/>Your dance is full of grace<br/> <br/>你的心地是那样的纯洁 <br/>and pure is your heart and soul<br/> <br/>你是消灭那共匪的战友 <br/>Fighting with us to terminate the communist bandits<br/> <br/>你是上天派出的使节 <br/>you are the envoy sent from heaven<br/> <br/>灭共的使节 <br/>to take down the CCP<br/> <br/> <br/>我爱你，灭共的雪<br/>I love you, the terminator snow<br/> <br/>轰轰烈烈漫山遍野 <br/>vigorously, all over mountains and fields<br/> <br/>你用自己那无暇的身躯 <br/>With your flawless flakes<br/> <br/>净化被谎言笼罩的世界 <br/>a world covered in lies purified<br/> <br/>你把真相传递给了人间 <br/>You enlightened the world with truth<br/> <br/>唤醒那无尽的黑夜 <br/>awakened the endless night<br/> <br/>沉睡的心田 <br/>and those sleeping souls<br/> <br/>啊 ～～～我爱你<br/>Ah.. I love you<br/> <br/>啊 ～～～灭共的雪 塞北的雪～～～<br/>Ah.. the terminator snow, the northern snow<br/> 
+![img](https://media.gettr.com/group29/getter/2022/04/15/07/8a6f474f-4180-a1e9-e5e8-617b798474da/out.jpg)
+
+---
+
 `@miles 4/15/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 “中共放风：北约必须解散！” 飞飞秀救援快报 2022-04-14<br/>For English：gettr.com/streaming/p15c34zdce3
 ![img](https://media.gettr.com/group42/origin/2022/04/14/22/e43a4c2d-735f-6d91-d235-dfa4830d943b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 8:45 PM (UTC)`
-
-2022.04.14  新中国联邦 | 喜健康    压力与营养的关系
-![img](https://media.gettr.com/group37/origin/2022/04/14/20/9e7889aa-1580-e97c-56dc-b04bb3943e6b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
