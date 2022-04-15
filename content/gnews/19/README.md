@@ -2,28 +2,20 @@
 ---
 
 
-## 再跨中共红线 美参院重量级议员组团访台
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2348632/)
+## 2022年4月15日《樱花快报》：韩国决定下周全面解除中共病毒疫情管制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2348675/)
 
-**撰稿：日本东京方舟农场  胖小哥**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220415快报.jpg)
 
-据万维网消息，由美国联邦参议院预算委员会共和党首席议员葛理汉（Lindsey Graham）领衔，美国参院外委会主席梅南德兹（Robert Menendez）等6人组成的参院访问团，14日晚间抵达台北，展开不到24小时的旋风式访问。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-295.jpg)美国参议院的外委会主席梅南德兹（Bob Menendez，右三）14日率团访台。（外交部提供）
-
-据悉，美国参院访团将于15日上午拜会蔡英文总统，并与外交部长吴钊燮以及国防部长邱国正会面。
-
-总统府发言人张惇涵14日晚间表示，总统府诚挚欢迎6位美国重量级国会议员访团抵达台湾，蔡英文预计将在15日上午于总统府接见访问团。此外，AIT也证实，访团将与吴钊燮以邱国正会面。透过所有的会面，访问团得以有机会与台湾相关人士，就美国与台湾之间至关重要的广泛议题交换意见。
-
-外交部表示，此一访团为今年度首个访台的美国国会参众议员访问团，此时正值4月中旬美国国会复活节休会期间，访问团安排亚洲访问并主动规划将台湾纳入出访重点国家，展现美国国会跨党派议员对台湾的高度重视与坚定支持。
-
-总统府表示，乌克兰情势严峻之际，美国国会筹组此重要参众议员访团来台，不仅展现美国国会跨党派对台湾的重视与支持，也再次展现台美关系的“坚若磐石”。总统府期盼透过此次的面对面交流，持续深化台美合作伙伴关系，并持续携手对全球及区域的和平稳定与繁荣发展，贡献良善力量。
-
-参考链接：
-[https://news.creaders.net/us/2022/04/14/2472802.html](https://news.creaders.net/us/2022/04/14/2472802.html)
-
-总编：青城道姑
-校对发布：爱放飞
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

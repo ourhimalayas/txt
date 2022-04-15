@@ -2,22 +2,47 @@
 ---
 
 
-## 中日财经爆┃食用油将是中共国另一个安全问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2348965/)
+## COVID-19疫苗副作用集萃（2022.4.15A）第三针加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349026/)
 
-翻译：东京樱花团/英翻组
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1794.png)(图片来源：Unsplash)
+**整理/编辑：红红火火**
 
-中共国的石油安全严重依赖于俄罗斯和中东。但是现在还面临另一个用油问题，那就是食用油。根据美国农业部的数据，中共国占全球主要植物油消费量的20%，但只占其产量的13%，一旦国际价格和供应产生波动，势必会影响到中共国。因此，中国农业部长在2月份就说，“一瓶油应该尽可能多地包含中国（产）油。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-29.png)图片来源：雅典娜设计组(614)
 
-而现在，一系列的因素正在推高价格食用油的价格。中共国国家经济计划局价格司司长黄汉权在接受《经济日报》采访时指出，牛痘大流行、俄乌战争、南美和加拿大的干旱、印尼棕榈油的出口限制，以及天价的运输成本都是影响因素。
 
-新闻来源：[https://qz.com/2152863/chinas-other-oil-security-problem-besides-russia-middle-east/](https://qz.com/2152863/chinas-other-oil-security-problem-besides-russia-middle-east/)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**博主:小红薯大花花**
+
+**帖子原文：新冠第三针，痒死了**
+
+上周三打了新冠第三针，之前也没做功课直接就去了，看了一下，安徽智飞，打完只是稍微有点疼，第七天现在直接红肿痒，痒的就想把胳膊割了，有什么办法#打新冠疫苗 #
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-75.png)
+**#新冠疫苗****  ****#疫苗加强针**** ****#胳膊红肿痒**
+
+**发布于 2022-04-15**
+
+**精选评论**
+
+阿白:
+
+一针都不要打
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-44.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-15.png)
+图片来源：小红书
+
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
