@@ -2,10 +2,10 @@
 ---
 
 
-## 人们现在更加恐惧中共国极端的隔离和防疫措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2349029/)
+## 川普称在乌克兰发生的事情是种族灭绝行为
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2349056/)
 
-04/12/2022 CNN驻上海记者大卫·卡尔弗讲述他在上海的封城经历。他指出，比起病毒，人们现在更加恐惧中共政府极端的隔离和防疫措施。
+04/13/2022 川普称在乌克兰发生的事情是种族灭绝行为
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

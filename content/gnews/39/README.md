@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花时政┃俄罗斯停止石油数据发布
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
+## 上海市民：不是上海救我们 是我们救上海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347765/)
 
-撰稿：东京樱花团/加一颗稻草
+撰稿/配图：东京樱花团/Ob
 
-4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
-自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
+看中国2022年4月13日讯，上海疫情持续升温，近6天每天本土阳性感染者均在2万人以上，封控下的上海次生灾难不断，民众怨声四起。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片15-1.jpg)
+网传，有市民说：“不是上海在救我们，是我们在救上海”,“所有的感染者都是在检疫过程中感染的。”也有医务人员说：“每天我们自己都在阳性”，他们（阳性患者）都说：‘我根本没有出去过，为什么我会阳性？’” 网友“lily valley”所推视频中，一位年轻男子说：“不管你信不信，上海最终是躺平的。就基于现在防疫手段而言啊，躺平是肯定的呀！像雨哥所在的小区，4栋楼400户人家，极端情况来说，每天爆一例，一年半以后才能解封，对吧？那如果像我妈那个小区4000用户，如果也是一天爆一例的话，12年才能解封。所有的感染者都是在检疫过程中感染的，太正常不过了。每天在家里也会感染，怎么感染的？检疫的时候感染的，嘴巴一张感染的。如果检疫手段不改变的话，全上海封个一千年都是有可能的，这个逻辑是说得通的嘛。检疫手段不变，检疫的方针不变，上海永无出头之日。” 该男子接着说：“还有一点，大家要理解啊，不是街道在帮助我们，是我们在帮助街道，或者说不是上海在救我们，是我们在救上海。我们拿出自己的青春，拿出自己的金钱，放弃在外活动的权利，安心在家里面，我们救的是谁？我们救的是上海啊！不是上海救我们啊！如果上海救我们的话，那你天天给我送东西吃啊！”
 
-消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
+一句“不是上海救我们是我们救上海”，道出了人们对这个国家无奈的绝望。国家不是我们的，我们是国家的。中国式防疫，个体必须为了国家“伟、光、正”的决策做出必须的付出和牺牲。一切为了国家的荣耀，国家是骑在人民头上的土匪。
+
+消息来源：[上海市民：不是上海救我们是我们救上海(图)](https://m.secretchina.com/news/gb/2022/04/13/1003393.html)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
