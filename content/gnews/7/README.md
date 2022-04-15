@@ -2,45 +2,55 @@
 ---
 
 
-## 中共卫健委救治组专家康焰:无症状感染者不要需特别治疗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2349097/)
+## 民生集萃——疫情导致实体经济低迷（2022.4.15）&#8211;坚持了一年零五个月的超市终究还是倒闭了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349173/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/方舱医院_副本.png)
-据[**南方人物周刊**](https://weibo.com/southernpeopleweekly?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2022年4月15日10:16](https://weibo.com/1653460650/LowQ95iNG?ref=home&amp;rid=19_0_8_4807431721339829774_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+#### 雅典娜情报组《民生灾难收集专栏》
 
-[#声音·观点#](https://s.weibo.com/weibo?q=%23%E5%A3%B0%E9%9F%B3%C2%B7%E8%A7%82%E7%82%B9%23&amp;from=default)【无症状感染者不需要特别救治】国家卫健委赴吉林医疗救治组专家、四川大学华西天府医院院长 康焰：国家卫健委发布的第九版《新型冠状病毒肺炎诊疗方案》，是把无症状和轻型病人都集中到方舱进行救治。一般来说在方舱不需要特别救治，可能会给他们喝点中药，更多是让他们尽可能恢复到正常的生活状态。通俗来讲，就是让他们吃好、睡好、休息好，保持愉快的心情，那么他们对抗病毒的这种自我抵抗力就会得到保证和稳定，所以基本上在方舱的轻型和无症状患者是这样治疗的。（新闻一加一） [L新闻一加一的微博视频](http://t.cn/A663lr2J)
+**整理/编辑：BENJ1**
 
-\*\*\*\*\*\*\*引用完毕\*\*\*\*\*\*\*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-6.png)图片来源：雅典娜设计组(614)
 
-国家卫健委赴吉林医疗救治组专家、四川大学华西天府医院院长 康焰通过央视平台发出的这则说明意味深长，也就是说从国家层面的专家嘴里说出中共的无症状感染者被集中隔离的本质原因在于隔离或者说封禁，既然无症状感染者在方舱不需要特别救治，那么为什么要把无症状感染者集中隔离呢？
 
-方舱医院的环境到底能不能保证每位被隔离的无症状感染者及轻症患者吃好、睡好、休息好？这是一个不需要回答的问题，因为从我们零星看到的各地方舱医院都存在吃不好、睡不好、休息不好、卫生脏乱差的普遍现象。
+#### 【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-那么全国各地的方舱医院以及各种集中隔离点到底封禁了多少人呢？这个数字难以统计，但是这应该是个天文数字，那么全国各地因所谓发现无症状感染者而封城、封区造成的饿死、因病得不到救治死亡、自杀等次生灾难又有多少呢？这也是一个天文数字。
+###  帖子原文：
 
-中共制造和释放作为超限生物武器的新冠病毒杀人之余，再以疫苗杀人，疫苗杀人之余再以全员核酸检测和方舱医院及集中隔离杀人，在以方舱医院和集中隔离点杀人之余，再利用封城、封区制造饥饿、制造求医困难杀人，这一系列的杀人链条正在以血淋淋的方式展现给世人，而此番国家卫国家卫健委赴吉林医疗救治组专家、四川大学华西天府医院院长康焰的无意表白却在不经意间掀开中共大规模集中隔离无症状感染者和轻症患者的真相的一角。
+博主：晚睡
 
-撰稿：喜马拉雅的肉夹馍；
+### 坚持了一年零五个月的超市终究还是倒闭了
 
-审核：喜马拉雅的馍夹肉；
+20年11月份盘下来的这个超市，当时转让费➕货款➕房租总共花了42万。上下两层360平米，房租12万，转让费6万，其余的都是货款。
 
-校对：Maarago；
+到21年8月份的时候，10个月的时间，盘算了一下利润有差不多22万，成本我只算了房租跟水电，人工只有我自己还有我妈妈，我们两人守店还负责带孩子，所以我基本没算人工成本，货款也是一直在进货卖货，至于转让费，主要是转让了原先的货架展示柜收银系统，所以也没有算进去。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+原本这个营业额是可以赚到钱的，无奈21年8月份开始疫情反反复复，我超市开在一个中专学校门口，学校9月1号开始封闭式管理，生意一落千丈。生意不好过期的产品就多了起来，比如酸奶乳酸菌。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+供货的供应商很多承诺是可以退换的，但是一小部分供应商也倒闭不做了。挨到今年3月份，店里几乎每个月都是亏本的状态，每个月的收入还不够房租的，于是决定及时止损，3月份把店盘了出去。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+最后店面盘出去之后联系供应商退货很多扯皮的，不愿意退或者只给退半价，还有很多整箱的拆开了就不退。最后打折便宜处理了很多东西。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+最终竹篮打水一场空，之前赚的利润很多补贴了货款，货架展示柜冰箱全部便宜处理了。还有一堆没有处理掉的东西摆在家里。具体的数额还没有算出来，太难算了也没有心情算。没有赚到钱，应该还亏损了万把块。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+接下来做个什么事情很迷茫，很焦虑。想过考公务员图个安稳，想到自己已经30岁了，毕业7年就没什么信心。想去重新上班好像也找不到班上。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+疫情当下，创业不易。慎重考虑谨慎选择吧。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-77.png)图片来源：小红书
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+参考链接：[坚持了一年零五个月的超市终究还是倒闭了](http://xhslink.com/9G5AJg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+*发布：*文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
+
+
+
 
  
 

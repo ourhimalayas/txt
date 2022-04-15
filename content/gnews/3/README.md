@@ -2,45 +2,28 @@
 ---
 
 
-## 没有好的教育再没有信仰的人几乎随时是一颗危险的炸弹
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2349129/)
+## 樱花时政┃俄罗斯入侵乌克兰50日，超过 4500名平民伤亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349182/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8817.61%EF%BC%89%E6%B2%A1%E6%9C%89%E5%A5%BD%E7%9A%84%E6%95%99%E8%82%B2%E5%86%8D%E6%B2%A1%E6%9C%89%E4%BF%A1%E4%BB%B0%E7%9A%84%E4%BA%BA%E5%87%A0%E4%B9%8E%E9%9A%8F%E6%97%B6%E6%98%AF%E4%B8%80%E9%A2%97%E5%8D%B1%E9%99%A9%E7%9A%84%E7%82%B8%E5%BC%B9%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
+撰稿：东京樱花团/向海
 
-**郭文贵先生：**一个国家一个民族任何一个人，任何一个人，Bunny你的未来女友，我的腹肌你的未来男友，追寻自由你老婆、你女友，任何你身边人，你记住，最可怕的人，跟你身边相处的人就是一旦这个人他没受过一个好的教育，他再没有信仰，这人对你来讲几乎随时都是你的炸弹，都是危险的。你看所有的问题，就是没有好教育的社会是很可怕的！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1803.png)[图片来源](https://www.sakigake.jp/news/article/20220225CO0138/)
 
-就像七哥这样的人，如果我没有经过清丰看守所，我可能就是那个买“锁链女”或者干卖“锁链女”，什么事我都可能干的出来。我不会是养Snow，我会是吃Snow的那种人。因为你没有被教育，你就是最粗鲁的。然后七哥有了信仰，你要说吃狗，七哥简直心都碎了，是吧？一看到“锁链女”，心都碎了，为什么？我有信仰。
+自俄罗斯入侵乌克兰以来的50天，平民伤亡人数已超过4500人。
 
-你去想想追寻自由刚才说那话，给旁边人说他不信，所有不信的人他是被另外一种洗脑了、教育了，叫科学迷信，就科学主义，还有对所有的所谓中立媒体的那种被虐待。连加拿大CBS、英国BBC、美国CNN、澳大利亚的叫什么Seven电视台，瞪眼撒谎，全世界媒体撒谎。老百姓成了所谓的媒体主义和中立媒体主义和被定义的媒体和严肃媒体的彻底的洗脑。所以追寻自由，你说他们不听，它就成了恶魔、恶缘。
+据报道，联合国人权事务高级专员办事处（OHCHR）于14 日报告资料称，2 月 24 日凌晨4 点（入侵开始日期）至 4 月 13 日午夜在乌克兰共有 4577 人伤亡发生，死亡 1964 名平民，2613人受伤。
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+在 1964 人死亡中，男性 507 人，女性 319 人，男女儿童 89 人，儿童 72 人，性别不明的成年人 977 人。受伤的2613人中，男性304人，女性222人，男女儿童108人，儿童144人，性别不明1835人。
 
-编辑整理：星塵Scheddi；
+仅乌克兰东部卢甘斯克（Lugansk）和顿涅茨克（Donetsk）地区就有703人死亡、1308人受伤，共2011人官方发表的人员伤亡。此外，首都基辅、切尔尼戈夫、切尔尼戈夫、哈尔科夫、赫尔松、米科拉尤、敖德萨、苏米、扎波罗热、第聂伯罗彼得罗夫斯克、日托米尔等省也有2566人伤亡。
 
-字幕文件制作：小满；
+俄罗斯已将兵力集中在乌克兰东部，首都基辅附近大屠杀的情况接二连三地暴露出来。因此，实际伤亡人数可能会更高。据乌克兰检察官办公室称，截至当天上午 8 点，已有 197 名儿童遇难，351 人受伤。
 
-视频制作及上传：Cindy；
+信息来源：[ロシア「ウクライナ侵攻」５０日…民間人の死傷者４５００人超](https://news.yahoo.co.jp/articles/e4fba41bc665022238e51821b7087f29f574f3e2)
 
-G-News发布：海賊王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

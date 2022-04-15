@@ -2,12 +2,48 @@
 ---
 
 
-## 人们现在更加恐惧中共国极端的隔离和防疫措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2349029/)
+## 新中国联邦最了不起的事情是唯真不破&amp;做自己&amp;说实话
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2349149/)
 
-04/12/2022 CNN驻上海记者大卫·卡尔弗讲述他在上海的封城经历。他指出，比起病毒，人们现在更加恐惧中共政府极端的隔离和防疫措施。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8818.61%EF%BC%89%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E6%9C%80%E4%BA%86%E4%B8%8D%E8%B5%B7%E7%9A%84%E4%BA%8B%E6%83%85%E6%98%AF%E5%94%AF%E7%9C%9F%E4%B8%8D%E7%A0%B4%E3%80%81%E5%81%9A%E8%87%AA%E5%B7%B1%E3%80%81%E8%AF%B4%E5%AE%9E%E8%AF%9D%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:8)
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+**郭文贵先生：**那么我们新中国联邦一上来干的最多了不起的事情，我们就是唯真不破，大家就是做自己，Be Yourself，说实话。所以你看看任何事情的结果都是不一样的。
+
+最重要的事情，你像我们的就是直播，是吧？昨天我的一个多年的老友给我发信息，我笑得快晕了，“哎呀七哥，你那一播就几个小时，你也不准备准备？不打草稿？”我说：“你是没认真看我直播这几年。”
+
+七哥的直播和爆料革命的直播就是唯真不破，不打草稿，没有任何的事情……我这前边的一张纸，你看所有的，这张纸是昨天我给小福利说的，我这说的药的问题还有排华的问题。
+
+所以说兄弟姐妹们，刚才我的腹肌还有Bunny你们听的看的还有想问的这些东西，最可怕的一个根本原因就是人被洗脑了，没有教育、没有信仰的结果。
+
+中国人会不会有多少郭文贵这样的有勇气的人？我的腹肌？真的，我不是自我感觉好，真不多，在你有生之年看到不会太多，有没有？有！
+
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+
+编辑整理：星塵Scheddi；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：海賊王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

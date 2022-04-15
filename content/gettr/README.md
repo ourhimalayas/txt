@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 3:51 AM (UTC)`
+
+【Ukraine Rescue】04/14/2022 A volunteer from Spain says his father was a member of the Communist Party in the former Yugoslavia. But he was changed by God then left the Communist Party. He believes that the CCP members could change as well because people joined the Communist Party just for a living. As long as we are willing to be the light that shines in the world, we can definitely defeat the Communist Party of China！<br/><br/>【乌克兰救援】04/14/2022 一位来自西班牙的志愿者说，他的父亲也是前南斯拉夫共产党员，后来在上帝感召下脱离了共产党。 他认为中国的共产党员也会改变，人们不过是为了生存不得不加入共产党。只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
+![img](https://media.gettr.com/group7/getter/2022/04/15/03/b3acb94f-5333-e9e0-99d6-9360cbfb7a35/out.jpg)
+
+---
+
+`@miles 4/15/2022 3:44 AM (UTC)`
+
+The Spanish college student asked for a vest of “Take Down the Chinese Communist Party”. He supports our movement to take down the CCP. He said people can get freedom only by taking down the Communist Party. He supports taking down the Communist Party in China and Communist Parties all over the world.<br/><br/>这个西班牙的大学生主动问我们要灭共马甲。他非常支持新中国联邦灭共。他说，只有消灭共产党，人民才会有自由。他支持灭掉在中国的共产党和全世界其他国家的共产党。
+![img](https://media.gettr.com/group42/origin/2022/04/15/03/376a5afd-bf22-40df-0b6d-5e21a3eaf6f0/out.jpg)
+
+---
+
 `@miles 4/15/2022 3:02 AM (UTC)`
 
 2022-4-14《鸡血王喜币大作战》 第一百六十五集 嘉宾：无双柳薇薇、青藤
@@ -138,20 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 4/14/2022 Miles Guo: Most of Taiwan's military and Intelligence Services have been bought off by the CCP; the drones purchased by Taiwan are indeed made in Communist China!<br/><br/>4/14/2022 文贵直播：台湾的军队以及情报部门绝大多数已被CCP收买，台湾的无人机来自中共国！<br/>
 ![img](https://media.gettr.com/group5/getter/2022/04/14/16/85d32bd1-098a-ab09-afec-82ee296a16a3/out.jpg)
-
----
-
-`@miles 4/14/2022 4:31 PM (UTC)`
-
- 4月14号：太晚了，太软了，太不团结了！如果这么多人被这几个穿白衣服的，困死在家里．病死在家里，饿死在家里，那就真的没有天理了……
-![img](https://media.gettr.com/group19/getter/2022/04/14/16/692ce829-49a6-1eef-1c04-c5176d15fd02/out.jpg)
-
----
-
-`@miles 4/14/2022 4:30 PM (UTC)`
-
- 4月14号：太晚了，太软了，太不团结了！总比饿死好！
-![img](https://media.gettr.com/group29/getter/2022/04/14/16/ce2c1a9c-22b0-ebd1-38a3-d4fd2df102d9/out.jpg)
 
 ---
 

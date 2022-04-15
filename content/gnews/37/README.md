@@ -2,32 +2,16 @@
 ---
 
 
-## 中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347686/)
+## 樱花时政┃俄罗斯停止石油数据发布
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+撰稿：东京樱花团/加一颗稻草
 
-北京时间4月13日早间消息，负责打击金融犯罪行为的印度联邦机构已经传唤了小米公司的一名前印度负责人，以调查该公司的商业行为是否符合印度的外汇相关法律。
+4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
+自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-3.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://ichef.bbci.co.uk/news/976/cpsprodpb/B038/production/_109321154_gettyimages-1163006258.jpg&amp;imgrefurl=https://www.bbc.com/news/world-asia-india-50135050&amp;tbnid=5jtxvJrRe9V3gM&amp;vet=12ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ..i&amp;docid=7gwU1eJPbgB3lM&amp;w=976&amp;h=549&amp;q=Xiaomi%20India&amp;ved=2ahUKEwjx4vKM6ZP3AhUJJqYKHbZsBKYQMyghegUIARD0AQ)
-
-据悉，至少从2月开始，印度执法局（Enforcement Directorate）就一直在调查小米，并于最近几周要求该公司的前印度董事总经理马努·库马尔·贾恩（Manu Kumar Jain）出面配合调查。
-
-贾恩目前是小米驻迪拜的全球副总裁，而据消息人士称，他目前正在印度，但他此行的目的尚不清楚。
-
-在被问及此次调查时，小米发言人发表声明称，该公司遵守印度所有法律，并“完全遵守所有法规”。声明还表示：“我们正在配合当局正在进行的调查，以确保其能够拥有所有必要的信息。”
-
-这一行动标志着，印度对小米的审查正在加强。去年12月，在另一项涉嫌逃税的调查中，小米的印度办事处遭到突击搜查。当时，其他一些中国智能手机制造商也遭到了突击搜查。
-
-贾恩未对相关置评请求作出回应，印度执法局也尚未回应。但值得指出的是，该局通常不会在调查进行期间公开细节。
-
-据悉，印度执法局正在调查小米印度、其代工制造商与其中国母公司之间的现有业务结构。此人表示，小米印度与其母公司之间的资金流（包括特许权使用费的支付）正在受到调查。
-
-印度执法局在2月向贾恩发出通知，要求其提供各种公司文件，其中包括外国资金的细节、持股和融资模式、财务报表以及负责经营小米印度业务的主要高管的信息等。
-
-根据市场研究公司Counterpoint Research的数据，在2021年里，小米仍然是印度最大的智能手机销售商，拥有24%的市场份额，而三星以19%的份额位居第二。除了智能手机以外，小米还在印度经营其他科技产品，如智能手表和电视等。
-
-信息来源：[传印度执法局传唤小米印度前负责人：调查其是否遵守外汇相关法律](https://finance.sina.com.cn/tech/2022-04-13/doc-imcwiwst1507997.shtml)
+消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

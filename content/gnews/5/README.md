@@ -2,38 +2,32 @@
 ---
 
 
-## 全球最大的暗网市场Hydra被捣毁，查获543.3个比特币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349119/)
+## 中日财经爆┃美国摩根大通利润暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349178/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃美国摩根大通利润暴跌.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.reuters.com%2Fbusiness%2Ffinance%2Fjpmorgan-profit-falls-trading-slowdown-2022-01-14%2F&amp;psig=AOvVaw2GJoamcw6ejB8HCLAI8fzy&amp;ust=1650077958798000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCOCmxMmJlfcCFQAAAAAdAAAAABAD) 
+摩根大通周三（4月13日）表示，其第一季度的利润已经比去年下降了42%，部分原因是由于通货膨胀率上升，以及在乌克兰冲突中结束了在俄罗斯的业务，该银行减记了近15亿美元的资产。
 
-**翻译/编辑：小红帽**
+这家美国资产规模最大的银行表示，利润降至82.8亿美元，或每股2.63美元，低于华尔街预期的每股2.72美元。收入下降了5%，至315.9亿美元，幅度较小。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/darknet_market_.png)图片来源：www.ciphertrace.com
+首席执行官Jamie Dimon在一份声明中说，该银行认为 “由于高通胀、供应链问题和乌克兰战争，未来将面临重大的地缘政治和经济挑战。”
 
+上个月，摩根大通说它正在逐步减少其俄罗斯业务。戴蒙在他的年度股东信中说，虽然管理层并不担心其在俄罗斯的风险敞口，但 “随着时间的推移，它仍然可能损失约10亿美元”。
 
-根据COINGEEK 4月14日报道，美国和德国当局联手扳倒了被称为世界上最大的暗网市场的Hydra。在过程中查获了价值超过2500万美元的比特币。
+周三，该银行的首席财务官杰里米-巴纳姆(Jeremy Barnum)告诉记者，在承受本季度的打击后，大约还有6亿美元的俄罗斯风险敞口。
 
-美国司法部与德国当局联手进行了长达八个月的调查。德国美因河畔法兰克福检察院、打击网络犯罪中央办公室（ZIT）和联邦刑事警察局（BKA）宣布查获了支持Hydra的服务器基础设施以及543.3个比特币。
+信息来源： 
+[**JPMorgan profits crash**](https://dailytelegraph.co.nz/money/jpmorgan-profits-crash/)
 
-Hydra于2015年推出，总部设在俄罗斯。据报道，俄罗斯当局一直不愿意与国际同行合作，以扳倒该平台。
-
-Hydra的用户可以买到几乎任何非法的东西，从LSD和海洛因等非法毒品到假的身份证件和黑客工具和服务。供应商还提供洗钱和套现服务，使买家可以将他们的比特币转换成各种形式的货币。Hydra还拥有自己的内部币种混合服务，以便在用户提取资金时进一步混淆被盗比特币的路径。
-
-尽管涉及的几乎是纯粹的俄罗斯人，但司法部估计，在2021年，Hydra占了大约四分之三的数字货币相关交易。自从它推出以来，该机构声称它已经处理了超过50亿美元的比特币交易。德国当局进一步透露，在其关闭时，Hydra有1700万客户和大约19000个供应商。
-
-除了扣押之外，美国司法部还宣布对30岁的俄罗斯国民德米特里·奥列戈维奇·巴甫洛夫 (Dmitry Olegovich Pavlov) 的洗钱和串谋分发毒品的串谋指控。德米特里负责维护Hydra运作的服务器。截至记者发稿时，还没有人被逮捕。
-
-美国财政部紧随其后，宣布对Hydra和相关的数字货币交易所实施制裁，据称这些交易所促进了市场的活动。
-
-资料来源：[World’s largest darknet market Hydra brought down, 543 BTC seized](https://coingeek.com/world-largest-darknet-market-hydra-brought-down-543-btc-seized/)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
