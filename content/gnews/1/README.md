@@ -2,32 +2,42 @@
 ---
 
 
-## 辉瑞新冠疫苗试验评审中的利益冲突
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2353049/)
+## 川普的国家安全官员呼吁将乌克兰武装到牙齿
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2353078/)
 
-作者：波士顿五月花 Little c
+川普政府的两名前国家安全官员周五（4月15日）发表了一篇评论文章，称他们 “希望看到乌克兰被美国的援助武装到牙齿”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/U-5.jpg)twitter.com
+退役的前副总统迈克·彭斯的国家安全顾问基思·凯洛格（Keith Kellogg）中将和美国国家安全委员会前参谋长弗雷德·弗莱茨（Fred Fleitz）在《西部日报》（The Western  Journal）上写道，他们 “强烈主张 ”向乌克兰运送更多的军火和武器装备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pfizer-e1649866835170.jpg)图片来自网络
+然而，他们 “反对设立禁飞区和其他让美国军队参与乌克兰冲突的方式，因为我们认为美国不应该冒着与俄罗斯战争的风险。这样的冲突可能升级为欧洲更广泛的战争或核冲突”。
 
-在最新一批FDA披露的文件中，有一个名为“BNT162 疫苗调查项目”的文件，描述了辉瑞在2020和2021年对新冠疫苗试验进行的内部评审。文件的第51和52页罗列了辉瑞外部数据检测委员会（EDMC）的五位成员, 以及两位在2021才加入此委员会的母婴医学医师。而这些成员都存在着利益冲突的法律问题。
+凯洛格和弗莱茨补充说，他们 “希望看到乌克兰武装到牙齿，我们非常担心拜登政府似乎在提供承诺的武器方面拖后腿，并拒绝了乌克兰官员提出的其他武器请求。”
 
-1. Dr. Kathryn Edwards， Vanderbilt大学教授。在加入委员会之前，她已经是辉瑞付费顾问。不只是辉瑞，她还从其他很多大药企收取了演讲费，基金，差旅费等。在2020年7月，当她就新冠疫苗安全性向CDC免疫实践咨询委员会（ACIP）报告时，从未公布过这些利益冲突事项。
-2. Jonathan Zenilman, MD, 来自 Johns Hopkins 大学，也是委员会的主席 。自2014 到2020，他从辉瑞收取了$78,279 咨询费和六千多的差旅费。此外，他也从其他药企收取大额咨询费，并持有NIH研究经费。
-3. Lawrence Stanberry, MD, 来自哥伦比亚大学，仅2020年就从辉瑞收取了$23,000，并持有来自NIH，CDC，比尔盖茨基金会的研究经费。
-4. Robert Philips Heine, MD, 来自Wake Forest 浸会健康中心。从2014到2020，他从辉瑞及替他药企收取了共计$27,450的各种费用。他的研究也获得了比尔盖茨基金会的支持。
-5. Heather S. Lipkind, MS, MS, 来自耶鲁医学院，2019到2020年间，从辉瑞收取咨询和研究费共$21,660.
-6. Steve Self, PhD, 一位来自Fred Hutchinson癌症中心的统计学家，同时又是一家设计新型简易生物识别感应器公司Health Stream Analytics 的董事会成员。
+他们还回击了调查记者杰弗里·斯科特·夏皮罗（Jeffrey Scott Shapiro）最近在《华尔街日报》上发表的一篇评论文章，称 “一些美国优先的保守派”包括众议员马乔里·泰勒·格林（Marjorie Taylor Greene）和“美国转折点”主席查理·柯克（Charlie Kirk），“发表了听起来像是俄罗斯宣传的言论”。
 
+凯洛格和弗莱茨声称，“这纯属无稽之谈”，并补充说，虽然华盛顿可能有其他人随口称自己为“美国第一”，但我们和美国第一政策研究所的同事与川普一起在白宫和整个行政部门的部门和机构担任高级职务。
 
-可见，这些给新冠疫苗开绿灯的专家的口袋里装满了大药企的钱。
+“我们是‘美国第一’运动的领导者。我们一直非常明确地谴责普京对乌克兰的破坏性入侵以及他的军队在那里犯下的卑鄙暴行。”
+
+该前官员总结说，他们 “毫无疑问地反对俄罗斯对乌克兰的入侵，我们希望美国向乌克兰军队发送它所需要的武器，以保卫其国家并击败俄罗斯。”
+
+**快评**：NEWSMAX 发表了这篇新闻稿【1】，我找了这两位前国家安全官员的原文，题目是“我们想把乌克兰武装到牙齿，为什么拜登不这样做？” 【2】
+
+挺川普的一些人之前挺普京贬泽连斯基，像文中提到的众议员马乔里·泰勒·格林（Marjorie Taylor Greene）和“美国转折点”主席查理·柯克（Charlie Kirk）等的此类言论，现在被保守派给予了否定。
+
+看起来，站在乌克兰人一边要成为美国两党的“政治正确”了。
+
+保守派估计也发现，拜登和民主党在这次俄乌战争中对乌克兰支持的态度和做法将在中期选举和2024大选中扳回重要的一局。现在不是讨论要不要支持乌克兰的时候了，而是讨论现政府你咋不积极做呢？还提“美国第一”会丢很多分了。
+
+郭先生说美国要将所有的错都试过才能醒，它醒来就会纠偏了。
+
+至于川普，我想他不会再成为下届总统了，这不是坏事。
 
 参考链接：
+【1】[https://www.newsmax.com/us/keith-kellogg-fred-fleitz-ukraine-russia/2022/04/15/id/1065878/](https://www.newsmax.com/us/keith-kellogg-fred-fleitz-ukraine-russia/2022/04/15/id/1065878/)
+【2】[https://www.westernjournal.com/top-trump-wh-staffers-want-arm-ukraine-teeth-wont-biden/](https://www.westernjournal.com/top-trump-wh-staffers-want-arm-ukraine-teeth-wont-biden/)
 
-[Conflicts of Interest in Pfizer Vaccine Trials? Say it Ain’t So!](https://www.icandecide.org/ican_press/conflicts-of-interest-in-pfizer-vaccine-trial/)
-
-* * *
-
-编辑/发布：Little c
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

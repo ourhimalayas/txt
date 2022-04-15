@@ -2,22 +2,24 @@
 ---
 
 
-## 台湾作最好的准备应对中共侵台的最坏状况
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352352/)
+## 黑海舰队旗舰“莫斯科号”被乌军导弹击沉
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352353/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：雅典娜农场 – 文泓
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-当地时间4月11日，台湾驻欧盟代表蔡明彦在接受英国媒体专访中表示，中共从未放弃以武力侵台，台湾必须为战争作好一切准备。 台湾无法预测战争会以何种方式，或是何时发生，但是对于战争最坏的状况，台湾要作最好的准备来应对。
+当地时间4月13日夜间，俄罗斯最大的军舰“莫斯科号”在乌克兰导弹袭击后在敖德萨附近海域爆炸并沉没。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/maxresdefault-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-70.png)
 
-蔡明彦表示，对于俄罗斯侵略乌克兰，民主国家需要联合一致给予俄罗斯制裁压力，让其它独裁政体看到冒然发动战争的严重后果。 中共正在密切观察民主国家阵营对俄罗斯侵乌的反应，评估其侵台将面临的代价。
+俄罗斯国防部证实，“莫斯科号”在发生火灾后遭受了“重大损失”，但表示仍在调查爆炸原因。俄媒体称，船上的弹药意外引爆后，船上的500名船员被疏散。
 
-中共有比俄罗斯更强大的经济实力，及更多的可用资源。 但是台湾将着力于发展不对称性武力增强自我防卫，及利用现有高科技晶片的强大生产能力来与国际社会联成一体，作为另一种保护台湾的力量。
+周四乌方官员称，这首俄罗斯黑海舰队旗舰排水量12000吨巡洋舰被两枚R-360海王星级反舰导弹击中，导致其在敖德萨附近爆炸并沉没，船员在遭袭击后弃船。开源情报分析员也接受到求救舰上信号“SOS”和“沉没”。
+
+“莫斯科号”曾是黑海舰队抵御乌克兰攻击的最佳防御手段，但这款光荣级巡洋舰其设计遵循俄罗斯一贯思路，将大量大型武器装到船体上的理念而容易发生爆炸。
 
 参考链接：
 
-- [中共未棄武統 蔡明彥：台灣為最壞情況做最好準備](https://www.cna.com.tw/news/aipl/202204130417.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [Russia’s largest warship The Moskva sinks near Ukrainian coast after missile attack](https://www.skynews.com.au/australia-news/russias-largest-warship-the-moskva-sinks-near-ukrainian-coast-after-missile-attack/news-story/0551243a3ab0282c73d7c67ceb363e94)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
