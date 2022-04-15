@@ -2,37 +2,35 @@
 ---
 
 
-## 习近平调兵进驻上海，防疫或涉高层内斗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2348297/)
+## 布林肯：中共国必须在侵略者与受害者之间选择
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2348333/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/04/03a80000-0aff-0242-2219-08da1dac2fa9_cx0_cy5_cw0_w650_r1_s.jpg)美国国务卿布林肯. （网络图片）
 
-**整理：li yan li
-编辑：文泓**
+编辑摘要：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-10.png)图片来源： & 雅典娜设计组
+据美国之音4月15日报道，美国国务卿布林肯4月14日说，中共国在俄罗斯入侵乌克兰问题上言行不一，中共国最终必须在侵略者和受害者之间、现有国际体系和混乱冲突之间做出选择。
+
+俄罗斯总统普京在入侵乌克兰前20天在北京与中共国国家主席习近平签署了长达5000字的联合声明。中共国声称这种合作“无上限”，俄乌战争使这一“无上限”合作关系受到了挑战。
+
+俄乌战争爆发之后，中共拒绝对俄罗斯的侵略行为作出谴责。联合国投票要求俄罗斯撤军时，中共国弃权。联大投票暂停俄罗斯人权理事会成员资格时，中共国反对。中共国在背后支持俄罗斯，这是全世界都知道的秘密。中共此时的决定关系到中国未来的走向和十四亿民众的生存。中共必须做出选择。毫无疑问，魔鬼只能是选择地狱，即使天堂的大门已经打开。正邪最终的较量就从俄乌战争开始。
+
+[新闻参考链接](https://www.voachinese.com/a/blinken-china-must-choose-between-aggressor-and-victim-20220414/6529929.html)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-4月12日，据大纪元报道，上海的防疫政策或涉及中共[高层内斗](https://www.epochtimes.com/gb/tag/%E9%AB%98%E5%B1%82%E5%86%85%E6%96%97.html)。习近平一边调兵，一边加强防疫策略。
+编辑：【英国伦敦喜庄园编辑部】
 
-中共副总理孙春兰4月2日抵达上海后，接连对上海官员传达[习近平](https://www.epochtimes.com/gb/tag/%E4%B9%A0%E8%BF%91%E5%B9%B3.html)的强硬指令——坚持“[动态清零](https://www.epochtimes.com/gb/tag/%E5%8A%A8%E6%80%81%E6%B8%85%E9%9B%B6.html)”方针不动摇。上海随即全面封城，进入临时军管模式，接下来采取的是全民核酸检测加集中隔离的所谓“社会面清零”方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-同期，中共杀鸡儆猴，4月8日浦东新区的三名处级官员因防疫不力被免职。
 
-另据中共央视消息称，4月7日有“多架次”运-20运输机降落在上海虹桥机场，“支援”[上海防疫](https://www.epochtimes.com/gb/tag/%E4%B8%8A%E6%B5%B7%E9%98%B2%E7%96%AB.html)工作。4月3日，中共军报报道称，已从军队抽调了2000多人支援上海。除了军队之外，上海街头布置了很多外省的特警及武警等“维稳”力量。
-
-一张推特图片显示，在上海虹桥火车站几乎全是身穿迷彩服的军人，其中还有女兵，部分军人左臂上套着红十字袖章。
-
-评论人士认为，北京当局此举表面上是协助防疫，实质是变相接管上海。这次[上海防疫](https://www.epochtimes.com/gb/tag/%E4%B8%8A%E6%B5%B7%E9%98%B2%E7%96%AB.html)政策突然转变，也是一场中共高层内部政治斗争。
-
-新闻链接：[习近平调兵进驻上海](https://www.epochtimes.com/gb/22/4/12/n13709528.htm)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 

@@ -2,32 +2,31 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2348273/)
+## 俄罗斯制裁美国398名国会议员
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2348325/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a7dwr-7cv3c-2.jpg)
-**盖特链接**：[https://gettr.com/user/jim\_jordan](https://gettr.com/user/jim_jordan)
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-**众议员吉姆·喬丹自述：**
+4月13日，俄罗斯外交部表示，该国正对美国398名国会议员实施报复性制裁，以回应上个月美国对300多名俄罗斯立法者实施的制裁。
 
-自豪地为俄亥俄州美丽的第四区服务。@JudiciaryGOP排名会员
-为做好我们所说的奋斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ln.jpg)图片来源：网络
-**众议员吉姆·喬丹简介：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-294.jpg)（图片来源：德国之声）
 
-吉姆·喬丹全名詹姆斯·丹尼尔·乔丹（James Daniel Jordan，生于1964年2月17日）是一位美国政治家，自2007年起担任俄亥俄州第四国会选区的美国众议员。
+据《国会山》报导，俄罗斯外交部发布新闻稿表示，该国正对美国398名国会议员实施所谓的“镜像”制裁。美国国会下议院的领导层和委员会主席，已被永久列入俄罗斯的禁止入境名单。名单中还包括美国两院代表，皮特·阿圭拉（Pete Aguilar）、劳伦·博伯特（Lauren Boebert)，以及其他数百人。
 
-吉姆·喬丹是保守的美国众议院自由核心小组的创始成员，2015年～2017年担任第一任主席，2017年起担任副主席；2019年1月～2020年6月，担任美国众议院监督委员会高级成员；现任美国众议院司法委员会高级成员。
+俄罗斯外交部称，这些措施是针对美国拜登总统3月24日制裁俄罗斯立法机构杜马328名成员的回应，并声称将来会继续扩大旅行禁令的名单。
 
-吉姆·喬丹是前总统唐纳德·川普的盟友。2021年1月11日荣获“约旦总统自由勋章”。
+对此，众议员迪恩·菲利普斯（Dean Phillips）在推特上发帖表示，他的家人逃离了19世纪末的”俄罗斯大屠杀”，在美国获得了庇护。120年后的今天，他因反对种族灭绝，威权主义和暴政而受到俄罗斯的制裁。他坚定地说，“我向我的曾祖父母承诺过我会战斗到底。”
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+犹他州共和党众议员约翰·柯蒂斯（John Curtis）则表示自己能被俄罗斯列入制裁名单是“荣幸”。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+此外，俄罗斯外交部还宣布对87名加拿大参议员进行制裁。
+
+参考链接：
+[https://thehill.com/news/house/3266670-russia-sanctions-398-members-of-congress/](https://thehill.com/news/house/3266670-russia-sanctions-398-members-of-congress/)
+
+编辑：海星
+总编：老孙
+校对发布：爱放飞
 
  
 

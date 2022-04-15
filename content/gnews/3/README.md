@@ -2,19 +2,16 @@
 ---
 
 
-## 2022年4月15日《樱花简报》：日元汇率创下约20年来的新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2348358/)
+## 泽连斯基：“如果没有额外的武器，这场战争将变成一场无休止的血腥屠杀，传播苦难、痛苦和毁灭。 Mariupol、Bucha、克拉马托尔斯克——名单将继续。除了乌克兰，没有人会用重型武器阻止俄罗斯。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348425/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/20220414简报-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+作者：东京樱花团小视频组
 
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

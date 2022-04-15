@@ -15,44 +15,44 @@
 
 ---
 
-### [泽连斯基：“如果没有额外的武器，这场战争将变成一场无休止的血腥屠杀，传播苦难、痛苦和毁灭。 Mariupol、Bucha、克拉马托尔斯克——名单将继续。除了乌克兰，没有人会用重型武器阻止俄罗斯。](/content/gnews/1/README.md)
+### [Nicole采访来自德国巴伐利亚的国际医疗援救义工](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022年4月14日 郭文贵先生乱聊直播 全文字版](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [泽连斯基：“如果没有额外的武器，这场战争将变成一场无休止的血腥屠杀，传播苦难、痛苦和毁灭。 Mariupol、Bucha、克拉马托尔斯克——名单将继续。除了乌克兰，没有人会用重型武器阻止俄罗斯。](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [澳副总理对中共与所罗门群岛达成安全协议发出紧急警告](/content/gnews/2/README.md)
+### [澳副总理对中共与所罗门群岛达成安全协议发出紧急警告](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年4月15日《樱花简报》：日元汇率创下约20年来的新低](/content/gnews/3/README.md)
+### [2022年4月15日《樱花简报》：日元汇率创下约20年来的新低](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [布林肯：中共国必须在侵略者与受害者之间选择](/content/gnews/4/README.md)
+### [布林肯：中共国必须在侵略者与受害者之间选择](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯制裁美国398名国会议员](/content/gnews/5/README.md)
+### [俄罗斯制裁美国398名国会议员](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [习近平调兵进驻上海，防疫或涉高层内斗](/content/gnews/6/README.md)
+### [习近平调兵进驻上海，防疫或涉高层内斗](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）](/content/gnews/7/README.md)
+### [今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“默克尔”（三）](/content/gnews/8/README.md)
+### [文·贵天成——文贵先生谈“默克尔”（三）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/9/README.md)
+### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共和俄罗斯是全世界独裁和谎言的集大成者](/content/gnews/10/README.md)
+### [中共和俄罗斯是全世界独裁和谎言的集大成者](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [强烈建议SEC退款的战友需要资金流动的不要投新平台，新平台适合长线投资](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [大空头投资者Michael Burry警告美国股市将因严重高估而暴跌](/content/gnews/12/README.md)
+### [大空头投资者Michael Burry警告美国股市将因严重高估而暴跌](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [未来新疆西藏香港台湾等都会独立形成联邦](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
 
 ### [2022/04/14文贵先生直播精要](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
