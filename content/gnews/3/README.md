@@ -2,29 +2,26 @@
 ---
 
 
-## 有声|郭文贵先生灭共布局
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2353326/)
+## 特鲁多政府在疫情期间的恐慌性投资
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353386/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-早在2018年10月29日，郭文贵先生谈到，美国著名的军火商邀请世界30多位国家元首、和金融集团，成立全球反共联盟，坚决反对直接投资中国共产党，并成立公益基金，拯救被陷害的华人、西藏人、新疆人。为维护美国的自由、民主、法治，坚守二战后的国际新秩序，和保护美国在台湾的利益，维护美国的尊严，一旦中共入侵台湾，美国明确表态，一定参战。
+采编/撰稿： 加拿大温哥华扬帆农场 – 文莱
 
-郭先生在4月11日的盖特视频中揭露，鉴于当前中共国疫情状况，中共将于5月前进攻台湾。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500524161.png)图片来源：True North
 
-文字版原文：[郭文贵先生灭共布局](https://gnews.org/zh-hans/2351268/)
 
-音频处理：Fei797
-发稿：Fei797
+据加拿大【真北方】4月13日报道，特鲁多政府于疫情初期，在未经任何调查核实的情况下，仓促动用巨额纳税人资金，恐慌性投资最终毫无作用的新冠病毒测试系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+报道称，特鲁多政府在2020年向现已倒闭的[斯巴达生物科学公司]投资了数百万加元，为安大略省提供便携式病毒快速检测装置。尽管该公司所生产的检测剂被验证毫无效果，但加拿大卫生部仍然批准了该产品的生产。最终，该公司在去年以技术问题为由停止了生产并宣布破产。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对此，众多议员和医药专家都抨击了这项失败的投资，并指责自由党政府随意浪费纳税人的钱进行了恐慌性的购买。同时还在疫情期间，因购买了不合格的医疗防护装备而损失了近1.06亿加元。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://tnc.news/2022/04/13/taxpayers-paid-20-million-for-covid-19-tests-that-never-worked/](https://tnc.news/2022/04/13/taxpayers-paid-20-million-for-covid-19-tests-that-never-worked/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

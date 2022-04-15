@@ -15,92 +15,92 @@
 
 ---
 
-### [渥太华公立学校恢复在校内配戴口罩](/content/gnews/1/README.md)
+### [日本下议院通过了剥夺俄罗斯贸易优惠国地位的法案](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [特鲁多反对艾伯塔省关闭毒品消费场所](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关](/content/gnews/2/README.md)
+### [特鲁多政府在疫情期间的恐慌性投资](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [安大略省第六波新冠病毒疫情](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [4/15/2022 文贵直播：中共给俄罗斯运送物资不？咋运的？中共通过所谓的中欧铁路频繁运送战略物资和石油，帮助邪恶国家逃避美国制裁](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|郭文贵先生灭共布局](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [加拿大政府储备的大量疫苗已过期](/content/gnews/4/README.md)
+### [渥太华公立学校恢复在校内配戴口罩](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [乌克兰人在马里乌波尔钢铁厂坚持](/content/gnews/5/README.md)
+### [有声|新中国联邦与德国天主教公益组织合作救援](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [莫斯科号导弹巡洋舰沉没对俄罗斯造成多大损失](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [DC大中华时事：解放军多兵种演习回应美议员窜访台湾](/content/gnews/6/README.md)
+### [4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|郭文贵先生灭共布局](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [加拿大政府储备的大量疫苗已过期](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰人在马里乌波尔钢铁厂坚持](/content/gnews/12/README.md)
+ ` Shuizhuyu`
+
+### [DC大中华时事：解放军多兵种演习回应美议员窜访台湾](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [我要把美好的青春送给你，歌唱中共国的歌唱家叶佩英凄凉离世](/content/gnews/7/README.md)
+### [我要把美好的青春送给你，歌唱中共国的歌唱家叶佩英凄凉离世](/content/gnews/14/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [DC每日热点0415](/content/gnews/8/README.md)
+### [DC每日热点0415](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [非洲志愿者支持新中国联邦灭共](/content/gnews/9/README.md)
+### [非洲志愿者支持新中国联邦灭共](/content/gnews/16/README.md)
  ` Itana`
 
-### [俄罗斯远程轰炸机首次袭击乌克兰](/content/gnews/10/README.md)
+### [俄罗斯远程轰炸机首次袭击乌克兰](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [《历史的今天》2022.04.15](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【G时新闻】大空头投资者Michael Burry警告美国股市将因严重高估而暴跌](/content/gnews/12/README.md)
+### [【G时新闻】大空头投资者Michael Burry警告美国股市将因严重高估而暴跌](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [渥太华公立学校恢复在校内配戴口罩](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大政府储备的大量疫苗已过期](/content/gnews/14/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国下令一些领事人员离开上海 并建议美国人重新考虑前往中国](/content/gnews/15/README.md)
+### [美国下令一些领事人员离开上海 并建议美国人重新考虑前往中国](/content/gnews/19/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [川普的国家安全官员呼吁将乌克兰武装到牙齿](/content/gnews/16/README.md)
+### [川普的国家安全官员呼吁将乌克兰武装到牙齿](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022年4月15日大直播速记精萃](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [2021年日本人口出现历史最大降幅](/content/gnews/18/README.md)
+### [2021年日本人口出现历史最大降幅](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [携妻逃出乌克兰 一心为寻新联邦](/content/gnews/19/README.md)
+### [携妻逃出乌克兰 一心为寻新联邦](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美议员团访台 中共在台湾周边军演震摄](/content/gnews/20/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [肥料短缺加剧全球粮食危机](/content/gnews/21/README.md)
+### [肥料短缺加剧全球粮食危机](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [美财政部长就中俄结盟问题发出严厉警告](/content/gnews/22/README.md)
+### [美财政部长就中俄结盟问题发出严厉警告](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [截至4.15 俄乌战事汇总](/content/gnews/23/README.md)
+### [截至4.15 俄乌战事汇总](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/24/README.md)
+### [加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [佛州州长德桑蒂斯警告非法移民：不要前往佛罗里达](/content/gnews/25/README.md)
+### [佛州州长德桑蒂斯警告非法移民：不要前往佛罗里达](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月15日早](/content/gnews/26/README.md)
+### [视频文编|共产党利用群众的意见制造矛盾](/content/gnews/28/README.md)
+ ` KarmaLabs`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月15日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
-
-### [黑海舰队旗舰“莫斯科号”被乌军导弹击沉](/content/gnews/27/README.md)
- ` GTV News Talk`
-
-### [台湾作最好的准备应对中共侵台的最坏状况](/content/gnews/28/README.md)
- ` GTV News Talk`
-
-### [俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“](/content/gnews/29/README.md)
- ` GTV News Talk`
 
 ### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/30/README.md)
  ` G-NEWS TAIWAN`

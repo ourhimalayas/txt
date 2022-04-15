@@ -2,30 +2,30 @@
 ---
 
 
-## 黑海舰队旗舰“莫斯科号”被乌军导弹击沉
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352353/)
+## 佛州州长德桑蒂斯警告非法移民：不要前往佛罗里达
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2352719/)
 
-作者：雅典娜农场 – 文泓
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-当地时间4月13日夜间，俄罗斯最大的军舰“莫斯科号”在乌克兰导弹袭击后在敖德萨附近海域爆炸并沉没。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-70.png)
+4月14日，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）警告非法进入美国的移民不要前往佛罗里达州。
 
-俄罗斯国防部证实，“莫斯科号”在发生火灾后遭受了“重大损失”，但表示仍在调查爆炸原因。俄媒体称，船上的弹药意外引爆后，船上的500名船员被疏散。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-314.jpg)（图片来源：美国头条）
 
-周四乌方官员称，这首俄罗斯黑海舰队旗舰排水量12000吨巡洋舰被两枚R-360海王星级反舰导弹击中，导致其在敖德萨附近爆炸并沉没，船员在遭袭击后弃船。开源情报分析员也接受到求救舰上信号“SOS”和“沉没”。
+据《美国头条》新闻网报导，佛罗里达州州长执行办公室对非法进入美国的移民发出警告，千万不要到佛罗里达州来，如果非法来到此地，将面临拜登政府带来的极大伤害。
 
-“莫斯科号”曾是黑海舰队抵御乌克兰攻击的最佳防御手段，但这款光荣级巡洋舰其设计遵循俄罗斯一贯思路，将大量大型武器装到船体上的理念而容易发生爆炸。
+德桑蒂斯解释道，拜登政府一直无视边境危机，允许数千名移民长途跋涉至边境，并将他们的生命置于人贩手中，这将会对他们的家人带来巨大痛苦。
+
+德桑蒂斯指出，佛罗里达州并不是一个庇护州，它的社会福祉是为本州的公民服务，而且州长有义务保护佛罗里达公民的安全。
+
+此前，德克萨斯州也遇到类似情况，目前该州已将二十多名非法移民转运至华盛顿，并表示将继续转运，直至拜登政府处理边境危机为止。
 
 参考链接：
+[https://en-volve.com/2022/04/14/desantis-warns-illegal-immigrants-do-not-come-to-florida/](https://en-volve.com/2022/04/14/desantis-warns-illegal-immigrants-do-not-come-to-florida/)
 
-- [Russia’s largest warship The Moskva sinks near Ukrainian coast after missile attack](https://www.skynews.com.au/australia-news/russias-largest-warship-the-moskva-sinks-near-ukrainian-coast-after-missile-attack/news-story/0551243a3ab0282c73d7c67ceb363e94)
+编辑：海星
+总编：老孙
+校对发布：爱放飞
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
-
-校对/编辑/发稿：海阔天空1
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

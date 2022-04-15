@@ -2,28 +2,36 @@
 ---
 
 
-## 俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352349/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-据美国《国会山》4月13日消息，俄罗斯周三宣布，对美国398名国会议员实施报复性制裁，以回应上个月美国对300多名俄罗斯立法者实施的制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-95.png)
-俄罗斯外交部在一份新闻稿中说： “美国国会下议院的领导层和委员会主席，被永久列入俄罗斯’禁止入境名单’。俄罗斯外交部称这些措施是对拜登总统3月24日针对俄罗斯立法机构杜马的328名成员制裁的回应。
+作者：香草山翻译部
 
-美国众议员迪恩·菲利普斯（Dean Phillips）说，自己家人逃脱了19世纪末的“俄罗斯大屠杀”，在美国获得庇护，他在推特上强硬回应：120年后的今天，我因反对种族灭绝，威权主义和暴政而受到俄罗斯的制裁，我向我的曾祖父母承诺我会战斗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
 
-犹他州共和党众议员约翰柯蒂斯则明确表示自己被俄罗斯列入制裁名单是“荣幸”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
 
-参考链接：
+文章仅代表作者本人观点，与Gnews无关
 
-- [Russia sanctions 398 members of Congress](https://thehill.com/news/house/3266670-russia-sanctions-398-members-of-congress/)
+视频参看：
+[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
+[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-校对/编辑/发稿：海阔天空1
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
