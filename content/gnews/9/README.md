@@ -2,28 +2,53 @@
 ---
 
 
-## 德军火商将向乌克兰提供豹式1型坦克
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349450/)
+## 欧洲央行面临创纪录的通胀压力
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2349475/)
 
-作者：Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1d67ed2883bd401f8cf0299d93afc754.jpeg)
-资料显示，莱茵金属公司是德国最大的军火商，其所制造的豹式1型战斗坦克是目前在德国武装部队服役的豹式2型坦克的前身型号，但豹1坦克仍是许多国家的主要地面作战力量。
+撰稿：Gradient Boost
 
-报道提及，自俄罗斯侵略战争开始之后，德国政府改变了其不向冲突地区运送武器的长期政策，反而主动向基辅提供了大量的反坦克武器和导弹。 对此，德国外长贝尔伯克指出，乌克兰需要军事物资，尤其是重型武器，才能抵御俄罗斯军队的攻势。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-301.jpg)
+网络图片
 
-据了解，熟练的乌克兰军事人员可以在几天内精通豹1坦克的操作技术。
+随着美国、英国和其他国家采取更强硬措施应对飙升的消费者价格，压力越来越大的欧洲央行周四可能会就何时开始加息给出更多暗示，
 
-参考链接：[Rheinmetall ready to supply up to 50 tanks to Ukraine – newspaper](https://www.swissinfo.ch/eng/rheinmetall-ready-to-supply-up-to-50-tanks-to-ukraine---newspaper/47508992)
+随着上个月通货膨胀率升至 7.5% 的年增长率——这是自 1997 年开始统计以来的最高水平——使用欧元的 19 个国家的居民们看到从食品到燃料的各种成本都在增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+受俄罗斯入侵乌克兰以来能源价格飙升的推动，创纪录的通胀使得人们逐渐开始思考：欧洲央行何时采取严厉措施控制消费者价格上涨。
 
-编辑：玫瑰圓
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+在上个月的会议之后的新闻发布会上，央行主席克里斯蒂娜·拉加德（Christine Lagarde）为今年晚些时候的加息计划打开了大。当时该行表示将加快结束大流行的刺激措施——这是利率决定的关键，因为该银行承诺只会在债券购买结束后才会加息。
+
+乌克兰战争导致通货膨胀飙升至出乎意料的高水平。石油和天然气的价格一直在上涨，因为人们担心俄罗斯是世界上最大的石油出口国，而且随着经济复苏增加了对燃料的需求。
+
+随着全球通胀率的上升，美联储上个月上调了基准短期利率，并表示今年将继续大幅上调。自去年 12 月以来，英格兰银行已三度上调基准利率。然而，欧洲央行处于不同的境地。
+
+经济学家表示，美国的大部分通胀是本土造成的——这是大流行期间大规模联邦刺激和支持性支出的副作用。另一方面，欧洲的通胀主要是通过高油价输入的，而这通常超出了央行控制的利率政策的范围。
+
+最重要的是，更高的通胀和供应瓶颈正在拖累经济增长，导致一些人所谓的“滞胀”。这一现象结合了缓慢的增长和高通胀，使中央银行陷入两难境地：对抗通胀所需的加息也可能损害增长和就业。
+
+预计明年欧洲的通货膨胀率将下降。从长远来看，当前的通胀有多少最终会融入经济体系，这仍然是一个悬而未决的问题。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[AP News](https://apnews.com/article/covid-health-business-consumer-prices-75da98b81f0853dca5441bdf840b1d54)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+
+
+
+**更多信息，更多关注
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

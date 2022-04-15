@@ -2,28 +2,23 @@
 ---
 
 
-## 巴西人道救援 接收乌克兰难民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349449/)
+## 巴菲特针对推特控股之事说“马斯克在赢，这是美国”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349457/)
 
-作者：Naughty(文行)，自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3549803-PH.jpeg)
-另据 巴西司法和公共安全部部长托瑞斯指出，接收难民是一项人道主义行为，因此，联邦政府将致力于帮助所有在巴西寻求安全、居住和工作等权利的乌克兰人。为此，在该国最新颁发的一项条例中，巴西司法部和外交部将允许政府签发人道主义签证和居留许可，用以向受俄乌战争影响的乌克兰人提供帮助。目前，这项工作正在受到国际移民组织和国际移民观察站的支持，乌克兰难民可以通过这两个组织获取相关的讯息和资源。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-105.jpg)
+图片来源： superpyq.com
 
-据悉，为了躲避俄军的攻击，当前已有超过四百万乌克兰人不得不离开祖国。对此，乌克兰第一夫人泽连斯卡向各国呼吁称，希望国际社会将乌克兰民众视为世界大家庭的一员。泽连斯卡强调，俄乌战争激发了乌克兰孩子们最深的爱国情怀，他们伺候必将成为最忠诚的爱国者和祖国最坚强的捍卫者。因此，请各国的友好民众帮助这些孩子和母亲，直到他们能够重返家园。
+零对冲网4月14日报道，纽约时报说根据两个知道内情的人士透露，推特委员会正在考虑采取防范性动作，例如给马斯克设陷井让他难以在这个社交巨头平台上发挥作用。
 
-参考链接：
-1.[巴西人道救援 接收烏克蘭移民和難民](https://www.cna.com.tw/news/aopl/202204130016.aspx)
-2.[Treat our refugees as one of your own, Ukraine’s first lady Olena Zelenska asks the West](https://www.thetimes.co.uk/article/treat-our-refugees-as-one-of-your-own-ukraines-first-lady-olena-zelenska-asks-the-west-2mjjq5zz6)
+这个陷井之一就是股东权利计划，该计划能够限制单一股东的运作能力，这基本上是让该公司影响新股份或允许现有的持股者而非潜在股票获得者购买降价股份。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+多数自由派反对马斯克，但有一个全球著名的最富者之一却支持马斯克，他说： “ 这是美国的产物，我认为马斯克有主见，他正在赢，这是美国，你不能靠做梦，这事很惊人。”
 
-编辑：宁文静
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当马斯克提出$54.20一股的价格收购时，沙特王族在推特上回复说：“ 我不认为这个价格接近于推特成长前景的内在价值，作为一个最大的长期推特股票持有者，我拒绝这个价。” 这个有些奇怪，因为表面看起来沙特王族并不是最大的持股者。马斯克随即问： “你拥有多少股份，直接的还是间接的？王族对自由言论的观点如何？” 马斯克说，如果A计划不行，他还有B计划。
+
+#### 新闻来源： [Buffett Says “Musk Is Winning…It’s America” As TWTR Board Ponders Poison Pill](https://www.zerohedge.com/markets/best-and-final-offer-elon-musk-offers-buy-twitter-5420-share)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

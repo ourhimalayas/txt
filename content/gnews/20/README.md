@@ -2,32 +2,20 @@
 ---
 
 
-## 沙利文重申美对台承诺：任何形式的侵犯都不接受
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2349240/)
+## 中日财经爆┃一名中国人获得日本首例“特定技能2号”资格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349277/)
 
-![白宫安全顾问沙利文2022年4月14日参与华盛顿经济俱乐部活动。](https://gdb.voanews.com/03a90000-0aff-0242-e0aa-08da1e2ebf0d_w1023_r1_s.jpg)白宫安全顾问沙利文2022年4月14日参与华盛顿经济俱乐部活动。（VOA）
-据美国之音4月15日报道，白宫国家安全顾问沙利文4月14日重申美国对台湾的安全承诺，并表示中共国正在仔细观察乌克兰发生的一切，并从中汲取经验，为未来入侵台湾作准备。
+撰稿：东京樱花团/百花李香
 
-沙利文表示，“如果这样的事能发生在欧洲，也能发生在印太地区。负责任的国家有义务就此发出明确的信息，那就是任何类型的侵犯都是不可接受的，无论发生在哪里”。美国与台湾有以《台湾关系法》建立的安全伙伴关系。美国会“采取一切可能的方式”确保中共国不入侵台湾，但并没有明确透露如果中共国进攻台湾，美国如何回应。
+4月14日，据《共同通信》在线报道，岐阜县各务原市的一家建筑公司工作的中国人翁飞，根据日本为接受外国人而引入的特定技能制度，他获得了《特定技能2号》资格。也就是说，他得到了允许永久居留的资格。据支援团体和国土交通省称，这在日本是首列。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-38.jpg)[图片来源](https://www.mofa.go.jp/mofaj/ca/fna/ssw/us/overview/#:~:text=Automobile%20Repair%20and%20Maintenance)
+特定技能是日本修改后的移民难民法中对新移民法设立的一种新的外国人居留身份，该法于2019年4月生效，涵盖14个领域，包括农业和食品服务。特定2号在留资格对居留期的延长没有上限，并且允许家庭成员来日本探亲。
 
-沙利文表示，中共国目前未向俄罗斯提供武器帮助其入侵乌克兰。沙利文没有排除拜登总统可能会访问乌克兰。虽然损失惨重，但乌克兰树立了不屈不挠的战斗民族的形象。战争总会过去，乌克兰这个伟大的民族一战成名，永载史册。处在严酷封城中的上海，2600万人口，有人宁愿跳楼自杀，为什么不能像乌克兰人民那样用生命去抗争呢？酒瓶子落地还能砸死人呢，一条生命无声无息就从高楼坠落下来了。
+信息源：[「特定技能2号」全国初の認定　岐阜の中国籍男性](https://news.yahoo.co.jp/articles/79c322e82989390159a7ef0fb083c1d35313d964#:~:text=%E3%80%8C)
 
-侵略战争不会让人接受，如果主动放弃生命，相当于放弃抵抗呢？
-
-新闻参考链接：[https://www.voachinese.com/a/sullivan-reiterates-security-commitment-toward-taiwan-20220414/6529713.html](https://www.voachinese.com/a/sullivan-reiterates-security-commitment-toward-taiwan-20220414/6529713.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

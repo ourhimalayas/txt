@@ -2,55 +2,28 @@
 ---
 
 
-## 联合国称俄乌战争可能波及许多贫穷国家
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2349402/)
+## 拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349448/)
 
-撰稿：Gradient Boost
+作者：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月13日，据当地媒体报道，美国总统拜登日前指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，而这也是拜登政府首次对俄军使用这一术语。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.jpeg) (AP Photo/Carolyn Kaster)
+《国际法》规定，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。而根据《联合国公约》，构成种族灭绝的行为包括杀戮、严重的身体或精神伤害、施加致命的条件和措施阻止生育等等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+报道提及，一直以来，种族灭绝被认为是最严重的国际罪行，且由于该词语严格的法律定义和这一指责所带来的沉重影响，美国对于该罪行的认定极为谨慎。但据拜登总统在近日的采访中指出，他明确将普京下属军队在乌克兰的罪行定义为“种族灭绝”，而美国法院将进一步判定俄军的行动是否在法律层面上构成这一指控。
 
+早先，拜登总统就已经将普京描述为“战争罪犯”，并呼吁全球对其暴行做出审判。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1811.png)
-网络图片
+参考链接：[Biden says Russia committing genocide in Ukraine](https://www.channelnewsasia.com/world/biden-says-russia-committing-genocide-ukraine-2622651)
 
-联合国特别工作组本周三警告说，俄罗斯对乌克兰的战争可能会破坏许多发展中国家的经济——这些国家现在正面临更高的食品和能源成本以及日益困难的金融状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-联合国秘书长安东尼奥·古特雷斯发布报告称，这场战争正在“加剧”较贫穷国家的粮食、能源和金融危机——这些国家已经在努力应对 COVID-19 大流行、气候变化和资源短缺，同时试图为经济复苏提供必要的资金。
-
-古特雷斯在新闻发布会上说：“我们现在正面临一场可能摧毁许多发展中国家经济的风暴……多达 17 亿人——其中三分之一已经生活在贫困中——现在高度暴露于食品及能源的短缺，还有金融系统的破坏，这一切正在引发贫困和饥饿的加剧。”
-
-负责协调工作组的联合国促进贸易和发展机构秘书长丽贝卡·格林斯潘表示，这些人生活在 107 个国家，在这些国家中出现了各类危机中的至少一个方面：例如食品价格上涨、能源价格上涨和收紧的金融环境。
-
-报告称，在这些国家，人们难以负担健康的饮食，进口对于满足食品和能源需求至关重要。此外，“债务负担和紧缩的资源限制了政府应对全球金融环境变化无常的能力”。
-
-报告称，有 69 个国家即大约12亿人口正面临着一场“完美风暴”，并严重或显着地暴露上述三类危机中。这包括非洲 25 个国家、亚太地区 25 个国家以及拉丁美洲和加勒比地区 19 个国家。
-
-*编辑：Gradient Boost*
-
-*发布：疯狂的韭菜*
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/russia-ukraine-covid-health-business-antonio-guterres-29bb43b57b5b5315151d126b5a578eea)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-
-
-**更多信息，更多关注
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
-
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
-
-
-
-
-
+编辑：Irene木木
+总编：Irene木木
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
