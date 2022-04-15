@@ -2,46 +2,29 @@
 ---
 
 
-## 中共疫情封控下的老百姓连上厕所的自由都没有
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2352341/)
+## 无视俄方正式警告，美国继续为乌克兰提供先进军事援助
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2352384/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-22.21.54.png)
-当地时间4月13日，中共国社交媒体有贴文显示，上海和长春的一些大学，学生们如厕需要排队。涉及到的大学有上海同济大学、长春理工大学。
+#### 撰稿：彩虹   
 
-在疫情风控期间，很多大学寝室开始管控学生上厕所。帖文显示长春大学居然有专门用来排队的手机小程序，上海同济大学的学生也在微信交流群排队上厕所，学生如厕完毕不允许洗手。据称是因为担心厕所垃圾和洗手的水龙头会传染中共病毒，学生只有回寝室拿酒精湿巾来擦手。而长春大学的学生除了如厕不方便，洗澡更难。有的学生一个多月没洗澡，身体起疹，拿热水擦了擦，疹子全破了，后背都是血。
+#### 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16500338571.png)图片来源：纽约时报
+据《华盛顿邮报》4月15日报道，俄罗斯已向美国发出正式信函，警告美国和北约，称对乌克兰的敏感武器运送正在加剧乌克兰的紧张局势，并可能导致“不可预测的后果”。
 
-中共病毒的传染最重要的就是要保持干净卫生，然而从中共的防疫手段来看，折磨老百姓是第一要务。
+在《华盛顿邮报》看到的日期为周二的这封信中，俄罗斯称美国无视向冲突地区转让武器的规则，并指责北约阻碍了俄罗斯与乌克兰的早期和平谈判。
 
-reference：
+文章指，即使这封外交信函被送达到了美国，但拜登总统本周仍然宣布向乌克兰提供额外的8亿美元军事援助，其中首次包括乌克兰所要求的先进弹药。
 
-[https://gettr.com/post/p15ft6acfbd](https://gettr.com/post/p15ft6acfbd)
+拜登说：“乌克兰军队使用我们提供的武器取得了重要成果，随着俄罗斯准备加强对顿巴斯地区的攻击，美国将继续向乌克兰提供自卫的能力”。
 
-[https://gettr.com/post/p158snp0dad](https://gettr.com/post/p158snp0dad)
+据五角大楼称，最新一轮的援助计划包括11架米-17直升机、300架弹簧刀无人机、200辆M113装甲运兵车、18门榴弹炮和4万发炮弹、10台反炮兵雷达、500枚标枪导弹、无人驾驶海岸防御舰，以及发生化学或生物武器袭击时的保护设备。
 
-[https://gettr.com/post/p151w7fdaf3](https://gettr.com/post/p151w7fdaf3)
+*责编：白夜*
 
-[https://m.weibo.cn/6443225955/4758488179804238](https://m.weibo.cn/6443225955/4758488179804238)
+**新闻来源**
 
-[https://m.weibo.cn/6599600309/4757857738424344](https://m.weibo.cn/6599600309/4757857738424344)
+[Russia sends formal letter warning US to stop arming Ukraine: report](https://thehill.com/policy/international/3269401-russia-sends-formal-letter-warning-us-to-stop-arming-ukraine-report/)
 
-
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

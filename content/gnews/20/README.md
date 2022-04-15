@@ -2,44 +2,45 @@
 ---
 
 
-## 中共房地产危机日益严重
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352081/)
+## 币安骗掉所有投资者VS一币不名的七哥让战友们发大财
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2352233/)
 
-作者：日本方舟农场 – Andy5
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-2022年一季度，中共国房地产依旧没有回暖迹象，延期交付、债务爆雷继续成为常态。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8830.61%EF%BC%89%E5%B8%81%E5%AE%89%E9%AA%97%E6%8E%89%E6%89%80%E6%9C%89%E6%8A%95%E8%B5%84%E8%80%85VS%E4%B8%80%E5%B8%81%E4%B8%8D%E5%90%8D%E7%9A%84%E4%B8%83%E5%93%A5%E8%AE%A9%E6%88%98%E5%8F%8B%E4%BB%AC%E5%8F%91%E5%A4%A7%E8%B4%A2%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/捕获.png)
+**郭文贵先生：**那么你今天咱们这个喜币，你看赵长鹏这个王八蛋，他有多坏啊，他把所有的、全世界他不KYC的，只要你不管什么钱都来，他就是共产党那套：玩儿假的、犯罪，然后没有KYC完了以后他再把所有人汇钱的信息再给共产党，抓了多少人、弄了多少人。
 
-4月13日，中共国内证券媒体曝出，因被大股东重庆渝富大幅减持，中交地产股票直接跌停。
+全世界谁敢说喜币、H-Pay绝不可能有任何第三方拿走你的信息，谁拿走了我负一切责任。
 
-自去年9月恒大发生债务爆雷事件，中共国房地产行业一路下行。到了2022年一季度，中共国内重点百城的新房成交规模，同比下降40.5%。而在房市小阳春的3月，房地产交易面积几乎减至同期一半。
+还有更重要的今天个人破产的时候你想想七哥但凡有一个币，喜联储、七哥那就是犯罪呀，那就不是开玩笑的。但是七哥作为一个最智慧、adviser、创造者，用这种智慧让这么多人有钱，他是一个什么样的一个多么伟大的一个行为呀！这个伟大到什么程度，这比共产党说得还伟大，它是爹亲娘亲不如党亲，七哥这真是兄弟姐妹，爹亲娘亲没有战友们亲，战友们现在都发财了，而且，你看44块钱，这是真的！你现在就可以卖呀，这是真的！真钱呐！
 
-与此同时，武汉、郑州、西安、山东等城市也不断爆出，房屋延期交付的消息。华夏幸福、阳光城等大型地产公司，不仅面临债务危机，其股票也长期停牌。而对恒大，中共除了不断发布“稳妥处理”的声明以外，并没有公布实质性的处理办法。
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
-就目前形势而言，作为中共的支柱性产业，中共房地产的危机正在不断恶化。
+编辑整理：星塵Scheddi；
 
-参考链接：
+字幕文件制作：小满；
 
-- [“小阳春”失约！ 一季度百城新房成交规模降逾四成](https://finance.sina.com.cn/stock/estate/integration/2022-04-08/doc-imcwiwst0525138.shtml)
-- [武汉又一批楼盘延期交付](https://www.163.com/dy/article/H4GVQL3R0552IAA4.html)
-- [最惨购房者！延期4年未交付，郑州“烂尾”楼盘开发商珠江置业号召业主集资4000万复工](https://finance.sina.com.cn/chanjing/gsnews/2022-03-16/doc-imcwiwss6263850.shtml?finpagefr=p_111)
-- [延期交房快1年，业主投诉平度永新华府项目近乎停工！开发商曾多次被约谈](http://news.bandao.cn/a/612753.html)
-- [深圳：稳妥处置恒大集团等房地产企业债务风险](https://www.sohu.com/a/537078219_116062?scm=1002.2715008b.0.SHARINGAN_PC_FINANCE)
-- [华夏幸福“18华夏06”和“18华夏07”继续停牌](https://www.guandian.cn/article/20220412/292025.html)
-- [阳光城“20阳光城MTN002”未能按期足额偿付 应付本息金额7.86亿元](http://www.guandian.cn/article/20220411/291851.html)
-- [快讯：地产股开盘下挫 中交地产跌停](https://finance.sina.com.cn/stock/gujiayidong/2022-04-11/doc-imcwipii3563201.shtml)
-- [中交地产大股东出手减持，还有这些股减持比例居前](https://stock.stcn.com/gsdt/202204/t20220413_4352115.html)
-- [这个“金九银十”有点冷](http://www.ce.cn/xwzx/gnsz/gdxw/202110/13/t20211013_36986812.shtml)
+视频制作及上传：Cindy；
 
+G-News发布：海賊王M.D.LUFFY；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-总编：雪梨
-编辑：宁文静/雪梨
-审核：Irene木木
-校正/发稿：海阔天空1
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
