@@ -2,36 +2,43 @@
 ---
 
 
-## MobiKwik钱包在印度撤销了UPI支付
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351033/)
+## 美日五年来首次在日本-朝鲜水域举行联合海军演习
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2351041/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WireAP_6d195d77a75d4605ab8d79640f93264f_16x9_9921.jpg)图片来自美联社
+《澳大利亚广播公司》2022年4月13日报道，东京 — 由美国亚伯拉罕·林肯号航母打击群(USS Abraham Lincoln carrier strike group)率领的美国军舰和日本军舰五年来首次在日本和朝鲜半岛之间的水域进行联合海军演习，在对朝鲜本周晚些时候进行导弹或核试验的猜测不断增加的情况下，展示了他们紧密的军事同盟关系。
 
-整理：li yan li
-编辑：朝花夕拾
+美国第七舰队和日本海上自卫队周三表示，他们于周二和周三在日本海进行了联合海军演习。这是自2017年以来美国航母首次在该地区举行演习，被视为是遏制朝鲜挑衅的明显尝试。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
+国防专家警告说，朝鲜最早可能在本周平壤纪念其开国领导人金日成诞辰之际发射另一枚导弹甚至进行一次核试验。在美国和韩国举行年度联合军事演习之前，该地区的紧张局势正在加剧。
+
+近年来，由于对中共国在地区海域日益强硬的军事行动的担忧不断增加，日本还加强了与其最亲密的盟友美国以及地区伙伴的联合军事演习。
+
+日本内阁官房长松野博一(Hirokazu Matsuno)告诉记者，正在进行的联合演习“旨在加强日美之间的军事合作，而不是针对特定国家。我们将继续加强日美同盟的威慑和反应能力，并为我们国家的防务尽最大努力。” 日本防卫省将在“情况允许披露时”公布演习的细节。
+
+日本海上自卫队表示，其驱逐舰“金刚号” (JS Kongo)和“闪电号” (JS Inazuma)以及日本 F-2 战斗机加入了亚伯拉罕·林肯号航空母舰打击群，“以加强日美同盟的有效威慑和反应能力。”
+
+“我们的工作有助于地区和平与稳定，”日本海军在推特上写道。一名日本海上自卫队官员表示，在演习结束之前，他们无法提供正在进行的联合演习的具体日期和地点。由于朝鲜今年进行了一系列导弹试验，包括四年多来首次发射洲际弹道导弹(intercontinental ballistic missile, ICBM)，该地区的紧张局势有所加剧。
+
+一些专家表示，朝鲜最近的导弹试验旨在完善其武器技术，提高其在未来与美国谈判中的筹码，并确保更强大的内部忠诚。他们说，朝鲜可能很快会在未来几周内再次发射洲际弹道导弹、发射卫星运载火箭或进行核装置实验。
+
+新闻链接： [Japan, US hold navy drills off Koreas amid nuke test worry](https://abcnews.go.com/US/wireStory/japan-us-hold-navy-drills-off-koreas-amid-84052263)
+
+翻译/简评：milkcat / PR: 感恩
+
+**简评：**
+
+作为其背后的金主和指使者，中共国多年以来操控着北朝鲜威胁南韩和日本，背后瞄准的是台湾。早在今年1月，美国与日本在冲绳南方海域进行联合军演时，中共派出39架军机扰台，数量创历史第二高，而中共常在有重要外国政要访台的日子发起这些活动，可见习领导下的中共早已抛弃其虚伪的外衣，就台湾问题与美国正面硬刚。俄乌战争发展近一个半月，中共先后给塞尔维亚送去了红旗导弹系统、给俄罗斯生产武器、给中东递枪，以期扰乱世界秩序、制造能源危机、带来更大的金融灾难。台湾在这中间处于一个至关重要的地位。习的野心在台湾，而世界的民主尊严以及科技芯片未来也在台湾，大战一触即发，而我们每个人都身处其中。
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-4月14日，印度支付机构印度国家支付委员会（NPCI）在Coinbase（纳斯达克股票代码：COIN）宣布在印度推出交易服务后数小时，拒绝承认Coinbase的推出。因此，Coinbase暂停了对统一支付接口（UPI）的支持，随后MobiKwik钱包也撤回了用于数字货币交易的UPI支付。这为该国的数字货币交易者铺设了一条越来越困难的道路。
+编辑：【英国伦敦喜庄园编辑部】
 
-MobiKwik是至少六家数字货币交易所的合作伙伴，这些交易所立即停止提供MobiKwik电子钱包选项。现在印度只有少数交易所允许用户进行数字货币交易。
-
-目前，用户只能通过国家电子资金转账（NEFT）和即时支付服务（IMPS）的方式进行出售，不过没有购买选项。由于选择有限，在WazirX、CoinDCX和Coinbase上存入资金具有挑战性。大多数交易所只允许用户通过网银存入资金。
-
-在4月7日的发布会上，Coinbase首席执行官布莱恩-阿姆斯特朗表示：“随着我们进入印度市场，我们正在积极尝试一些支付方式和合作伙伴，使我们的客户能够无缝地进行加密货币购买。这些方法之一就是简单易用的快速支付系统UPI”。
-
-然而，在NPCI的声明否认推出使用UPI支付的新数字货币交易所后，Coinbase澄清说：“我们知道NPCI最近发表的关于加密货币交易所使用UPI的声明。我们致力于与NPCI和其他相关部门合作，以确保我们与当地的期望和行业规范保持一致”。
-
-新闻链接：[继Coinbase之后，MobiKwik钱包也在印度撤销了UPI支付](https://coingeek.com/after-coinbase-mobikwik-wallet-also-withdraws-upi-payments-in-india/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

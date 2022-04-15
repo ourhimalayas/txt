@@ -2,8 +2,8 @@
 ---
 
 
-## 20220414郭文贵乱聊直播 ：新疆 西藏 香港人即使面临种族屠杀始终在反抗 我们应该反省
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2351224/)
+## 20220413郭文贵大直播 ：统一配送就是供销社的借尸还魂
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2351238/)
 
 作者：东京樱花团小视频组
 
