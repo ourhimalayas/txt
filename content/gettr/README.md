@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 10:58 AM (UTC)`
+
+2022.04.15  新中国联邦 | 军情室 乌克兰战况最新进展报告 莫斯科号巡洋舰中弹沉没 美国扩大对乌武器供应 从东风15开始谈东风导弹
+![img](https://media.gettr.com/group48/origin/2022/04/15/10/7d6d7c34-64d0-d867-6f32-bcf5b2cde2b7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 8:22 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 4/14/2022 Miles Guo: A lot of Americans have been asking me why the Shanghainese don’t fight back. The basic right given by God to every human being is to protect themselves and their family and to defend their basic dignity! Only the Chinese themselves can save the Chinese. Lang Xianping slept with a stewardess for five years, but he sued her and demanded her to return the property and car he gave her. Lang wasn’t even willing to pay the lawyer!<br/><br/>4/14/2022 文贵直播: 许多美国人都在问郭先生为何上海人不反抗！保护自己和家人的生命安全以及维护起码的尊严是上天赋予我们最基本的权利！只有中国人自己才能拯救中国人！郎咸平睡了空姐五年，却打官司要空姐还他送的房和车，竟然连律师费都不愿意付！<br/>
 ![img](https://media.gettr.com/group13/getter/2022/04/14/22/292131dc-8a80-10d7-a68a-17c14ef73b1e/out.jpg)
-
----
-
-`@miles 4/14/2022 10:06 PM (UTC)`
-
-4/14/2022 Miles Guo: The world situation is ever-changing. The CCP will possibly attack Taiwan in early May; once the war on Taiwan begins, the CCP will absolutely restrict you from withdrawing money, neither does the banking system have any money for you to withdraw; the coercion of COVID vaccines is on the rise again in mainland China. In the remote areas, the CCP entices the seniors with money so that they would take the jabs. The CCP is killing people with the COVID vaccines!<br/><br/>4/14/2022 文贵直播：世界局势千变万化，中共可能5月初打台湾；如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了；国内骗打毒疫苗趋势抬头，以金钱引诱偏远地区老人打，这就是用疫苗杀人啊！<br/>
-![img](https://media.gettr.com/group11/getter/2022/04/14/22/50393953-3661-bd5d-46d0-7fdcd67d9c12/out.jpg)
 
 ---
 

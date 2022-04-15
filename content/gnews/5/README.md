@@ -2,40 +2,34 @@
 ---
 
 
-## 美国警告：如所罗门签署安全协议，中国将成为他们国家的主人与管家
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2351081/)
+## 中国共产党的人工智能化战争计划 -4
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2351222/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1860.png)
 
-整理：等风来
-编辑：JH
+（图片来自原文）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1862.png)图片来源：澳大利亚人报
+**中国共产党（****CCP****）突袭的可行性**
 
+使用前一个时代的作战思想来操作新技术的军事组织通常都会被打败。德国在第二次世界大战开始时迅速击败法国就是这样一个例子。其原因是德国创新的闪电战军事理念，其核心技术之一是坦克。法国人拥有许多性能比德国人更好的坦克。然而，自第一次世界大战以来，法国的军事思想并没有改变，他们将坦克视为步兵的辅助武器。他们无法应对由坦克组成的德国装甲师从阿登森林发起的闪电战攻击。
 
-2022年4月14日报道，美国的一位最高外交政策制定者警告所罗门群岛总理Manasseh Sogavare，如果他推进与北京的安全协议，中国将成为他的国家的“主人和管家”。
+中共的智能化战争的核心技术是人工智能, 目标是利用人工智能发展一种前所未有的创新作战理念，就像德国的闪电战。
 
-在发出这一警告的同时，澳大利亚太平洋事务部长Zed Seselja敦促Sogavare先生放弃与北京的安全协议，西方盟友认为该协议将为中国在距离澳大利亚东北海岸2000公里处建立基地开辟道路。
+中共的战略家认为，如果实现了这一点，即使是最近使用尖端信息技术的战争战略也会变得过时。正如法国在二战中的情况一样，即使一个国家使用了坦克或人工智能等新技术，但如果他们继续使用以前时代的作战理念，也不会取得战争的胜利。
 
-Sogavare誓签署协议，但坚称不会有中国基地，并将这些说法称为“侮辱性的”。
+在信息技术时代，从海底延伸到外太空的信息网络一直是先进军事技术的核心。信息网络使精确射击成为可能，并以较少的弹药达到出色的效果。同时，传感器和火力之间的协调也变得更好，使得发现目标并立即释放火力成为可能。
 
-乔-拜登总统的印太顾问库尔特-坎贝尔（Kurt Campbell）未来几天访问所罗门群岛，其访问将给Sogavare施加进一步的压力，使其退出该协议。
+美国在信息时代建立了强大的军事力量，并展示了巨大的成果。
 
-澳大利亚参议员Seselja说，澳大利亚今年向所罗门群岛提供了超过1.6亿的发展援助。
+中共正在设计一种不对称的作战战略来对抗这支强大的军事力量。除了导弹攻击外，网络攻击和对卫星的攻击可以扰乱美国的信息网络，从而使中共在信息空间获得优势。这种不对称的行动干扰了信息技术实现的火力的准确性和速度。
 
-早些时候，美国副国务卿Wendy Sherman与所罗门群岛外交部长Jeremiah Manele通话，谈到了计划在霍尼亚拉建立的新的美国大使馆。
+然而，中共理论家们看得更远。他们认为，信息技术的发展已经达到极限，未来的战争将发生在认知领域。
 
-参考链接：[https://cn.theaustralian.com.au/2022/04/14/65688/](https://cn.theaustralian.com.au/2022/04/14/65688/)
+新闻来源链接：[https://warontherocks.com/2022/04/new-tech-new-concepts-chinas-plans-for-ai-and-cognitive-warfare/?singlepage=1](https://warontherocks.com/2022/04/new-tech-new-concepts-chinas-plans-for-ai-and-cognitive-warfare/?singlepage=1)
 
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-﻿
+本文作者：Rebecca (一切心皆不可得！)  
+上传排版：Hong
 
  
 

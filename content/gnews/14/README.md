@@ -2,42 +2,40 @@
 ---
 
 
-## 纽约地铁枪击案的嫌犯被举报后被捕
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350958/)
+## 美国警告：如所罗门签署安全协议，中国将成为他们国家的主人与管家
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2351081/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
-据多个报道，纽约地铁大规模枪击案的疑犯被举报电话提供线索后已被捕。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-官员们说，62岁的弗兰克·詹姆斯（Frank James）周三下午[被捕](https://www.insider.com/nyc-subway-shooting-suspect-arrested-2022-4)，他与布鲁克林日落公园附近的地铁列车上发生的大规模枪击案有关，因为当局收到了关于他的行踪的线索。他被指控犯有联邦恐怖主义罪行。
+整理：等风来
+编辑：JH
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1863.png)图片来源：新闻链接
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1862.png)图片来源：澳大利亚人报
 
-在嫌疑人被列为枪击案的“疑犯”后，警方启动了对他的搜索。两个执法部门的消息来源告诉CNN和美联社，是詹姆斯向犯罪制止者热线（Crime Stoppers hotline）举报了他的位置。
 
-“犯罪制止者”接到一个电话……那个人说，“你知道，我认为你在找我。我看到新闻上到处都是我的照片，我就在这个麦当劳附近，”一位执法人士周三[告诉](https://nypost.com/2022/04/13/brooklyn-shooting-suspect-frank-james-in-police-custody/)《纽约邮报》。
+2022年4月14日报道，美国的一位最高外交政策制定者警告所罗门群岛总理Manasseh Sogavare，如果他推进与北京的安全协议，中国将成为他的国家的“主人和管家”。
 
-纽约市警察局部门主管肯尼斯·科里（Kenneth Corey）说，当警察到达曼哈顿东村附近的那家麦当劳时，嫌犯不在楼里。当局在周围地区开车，然后在附近逮捕了他。他们在“圣马克斯和第一街的拐角处”将其拘留，科里说。
+在发出这一警告的同时，澳大利亚太平洋事务部长Zed Seselja敦促Sogavare先生放弃与北京的安全协议，西方盟友认为该协议将为中国在距离澳大利亚东北海岸2000公里处建立基地开辟道路。
 
-“我的纽约同胞们，我们抓住了他。”纽约市长埃里克·亚当斯（Eric Adams）在詹姆斯被捕后说。
+Sogavare誓签署协议，但坚称不会有中国基地，并将这些说法称为“侮辱性的”。
 
-他的被捕为周二美东时间上午8:30左右开始的搜索画上了句号，当时一名枪手引爆了两枚烟雾弹，并在一辆开往曼哈顿的N线列车驶入日落公园的36街地铁站时开火。
+乔-拜登总统的印太顾问库尔特-坎贝尔（Kurt Campbell）未来几天访问所罗门群岛，其访问将给Sogavare施加进一步的压力，使其退出该协议。
 
-警方说，嫌犯至少开了33枪，击中了10人。在随后的恐慌中，有十几人受伤，一些人因吸入烟雾而接受治疗。
+澳大利亚参议员Seselja说，澳大利亚今年向所罗门群岛提供了超过1.6亿的发展援助。
 
-执法官员还没有证实导致詹姆斯被捕的电话来源。纽约警察局的一位发言人告诉《Insider》：“所有打给犯罪制止者的电话都是严格保密的。”
+早些时候，美国副国务卿Wendy Sherman与所罗门群岛外交部长Jeremiah Manele通话，谈到了计划在霍尼亚拉建立的新的美国大使馆。
 
-周三，一位当地的安全摄像机安装人员因在曼哈顿东村指认了枪击嫌疑人，并通知了纽约警方而受到
+参考链接：[https://cn.theaustralian.com.au/2022/04/14/65688/](https://cn.theaustralian.com.au/2022/04/14/65688/)
 
-新闻来源：https://www.insider.com/nyc-subway-shooting-suspect-called-tip-that-led-capture-cnn-2022-4
+发布：tianzhihuan
 
-* * *
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
+﻿
 
  
 

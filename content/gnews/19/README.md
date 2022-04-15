@@ -2,36 +2,33 @@
 ---
 
 
-## 美国目前九成新冠案例几乎都是Omicron亚变体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
+## 美国国会代表团突访台湾，中共台湾周边军演恫吓
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351009/)
 
-素材翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
-根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
+#### 【雅典娜观察】和您一起洞察世界
 
-据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
+翻译/编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1857.png)
 
-冠状病毒大流行使 7700 万人陷入“极端贫困”
 
-[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
+周五中共在台湾周边进行了军事演习，正值美国国会代表团突访该岛，中共解放军东部战区发言人称，此举旨在针对美国发出的“错误信号”的回应。美国参议院外交关系委员会主席、参议员鲍勃·梅南德斯在周五与台湾总统蔡英文的会晤中表示，**台湾作为技术枢纽是一个“具有全球意义的国家”。**美国国会代表团由六名跨党派参议员组成，正值台湾面临中共重重压力之时，此次访问彰显美国对这个民主岛屿的支持。
+梅南德斯的说法，激怒了北京，它驳斥了任何关于台湾是一个国家的说法。虽然美国与台湾没有正式关系，但却是其最重要的国际支持者和武器供应商。
 
-根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
+**“****台湾生产了全球90%的高端半导体产品，是一个具有全球意义的国家。因此，应该理解台湾的安全具有全球影响，”梅南德斯在总统办公室的会议上说，同时全网进行了直播。**
 
-来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
+俄罗斯入侵乌克兰也让台北对北京可能利用乌克兰危机而采取行动保持警惕，美国政府尚未报告中共任何不寻常的活动。
+共和党参议员林赛·格雷厄姆告诉蔡英文总统，乌克兰战争和中共的挑衅行为让美国的舆论空前团结。“我们会和你站在一起，放弃台湾就是放弃民主自由。”
+该代表团于周四晚些时候抵达，进行为期两天的突访，还将会见台湾外交部长吴钊燮和国防部长邱国正。
 
-债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
+参考链接：[China holds military drills around Taiwan as US delegation visits | Arab News](https://www.arabnews.com/node/2063726/world)
 
-素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+发布：tianzhihuan
 
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

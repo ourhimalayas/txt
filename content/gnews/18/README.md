@@ -2,23 +2,24 @@
 ---
 
 
-## 视频|中共工商银行暂停个人外汇业务
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2350892/)
+## 2022年4月15日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2351023/)
 
-制作：香草山视频部
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-4月13日，中共工商银行宣布，自北京时间2022年6月12日0时起，该行将暂停个人外汇买卖业务新客户签约，及全部交易品种的开仓交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1102.jpg)
 
-据悉，这是继去年招商银行、华夏银行之后，又一家暂停个人外汇买卖业务的中共银行，也是中共国首家宣布将暂停个人外汇业务的大型国有银行。
-
-虽然该行在声明中强调，此次调整仅涉及个人外汇买卖业务，个人结售汇业务可正常办理，但限制个人外汇业务，相对于封锁普通老百姓财富转移的途径。正如郭先生爆料，在中共国内疫情失控的当下，为应对即将到来的国际经济制裁和经济灾难，中共正在“闭关锁国“。
-
-发稿：呼吸的雾霾（文小呼吸）
+发稿：信心的选择
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
 
  
 

@@ -2,275 +2,66 @@
 ---
 
 
-## 新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2350029/)
+## 聚焦：核战阴云笼罩欧洲
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2350476/)
 
-我原来的在吉林镍矿的中学的女同学
-Mi ex compañera de clase en la escuela secundaria de la mina de níquel de Jilin
+加拿大多伦多蓝莲花农场 丁过
 
-说我现在在看你们直播
-Dijo que ahora estoy viendo la transmisión en vivo de ustedes
+![俄动用核武剧本曝光乌克兰：俄高层恐已拍板定案| 马来西亚诗华日报新闻网](https://news.seehua.com/wp-content/uploads/2022/04/NUCLEAR1B-696x366.jpg?x59465)来源：Seward Daily （乌克兰国安顾问：俄高层极可能已拍板定案栽赃并发动核攻击）
 
-就是到乌克兰前线救人
-El rescate en Ucrania en primera línea
+普京在2月4日下令入侵乌克兰的同时，用核威慑手段给西方划下了不准出兵干预的红线。
 
-她嫁给了一个外国人
-Ella se casó con un extranjero
+据美国中央情报局近日透露，当时普京认为“可以用最低的成本取得快速的决定性胜利”，另外他还有一个“防制裁的巨额战争外汇储备。”
 
-她已经有孙子孙女了
-Ya tiene nietos
+但仅仅几天后，普京已经意识到开战决策是错误的，如果俄罗斯战败，他不得不交出全部权力甚至自己的身家性命。
 
-而且看到我们的救人, 她最大感触
-Y al ver nuestro rescate, su mayor sentimiento
+全世界都在关注普京如何解开他在乌克兰打下的死结，正是从那个时候开始，乌克兰及西方的政要相继、密集发出警告：普京正在准备在乌克兰使用战术核武器或化学武器，以扭转败局。
 
-她说她在她家地位增高了
-Dijo que ha crecido su estatus en la casa
+出自俄罗斯的契诃夫叙事法则（也叫契诃夫之枪）强调，第一幕中挂在墙上的枪，在第第三幕中必须发射，否则就没有必要挂在墙上。
 
-你们啥时候会救人呢
-¿Ustedes cuándo salvarán a las personas?
+![契诃夫的枪](https://assets.gnews.org/wp-content/uploads/2022/04/image-233.jpeg)来源：North American Life Engine
 
-我告诉你
-Te digo
+普京的“核枪”已经在乌克兰战争场景中多次出现，接下来他是否“发射”，成为全世界关注的焦点。
 
-这头儿就是我七哥
-Este Boss es mi amigo
+美国中央情报局局长威廉·伯恩斯4月14日表示，由于俄军遭受重大损失，普京处于“潜在的绝望”状态，“我们谁也不能轻视普京可能诉诸战术核武器或低当量核武器构成的威胁。”
 
-我同学
-Mi compañero
+芬兰和瑞典近日就加入北约准备进入表决程序，普京最亲密的盟友之一梅德韦杰夫14日警告北约，如果两国加入北约，俄罗斯将针对该地区部署核武器和超高音速导弹，并加强在波罗的海的海陆空军事力量。
 
-她这个外国丈夫讲流利的普通话
-Su esposo extranjero habla mandarín con fluidez
+之前，普京发言人和俄罗斯外交部警告，如果两国加入北约将面临严重后果。
 
-在哈尔滨军工待着的
-Permanece en la industria militar de Harbin
+那么问题来了，两国加入北约已成定局，到时俄罗斯是否在波罗的海开辟第二战场直接挑战北约，还是对北约发动核攻击？
 
-是原来的俄罗斯人生在乌克兰
-Es un ruso que nació en Ucrania
+立陶宛国防部长甘阿努萨斯卡斯证实，早在乌克兰战争前，俄罗斯已在波罗的海的俄罗斯飞地加里宁格勒部署了核武器，而且距离立陶宛边境仅100公里。
 
-你去想想现在你们在前线意味着什么
-Piensa qué sentido tiene, ustedes estando en la primera línea ahora
+![俄罗斯是如何从德国手中抢走加里宁格勒这块“飞地”的？ - 知乎](https://pic1.zhimg.com/80/v2-fedef4a88923b1647f58c4f5fcc782d8_1440w.jpg)来源：Know Your Column
 
-一个生在乌克兰的俄罗斯人
-Un ruso nacido en Ucrania
+据BBC于3月4日报道，俄罗斯目前有核弹头约6000枚，数量和美国相当。但另外有世界上最多的2000枚低当量战术核武器，可以由空军、海军和地面部队运载和发射。
 
-到了哈尔滨军工帮助中共搞武器
-Llega a Harbin, a la industria militar a ayudar al PCCh a fabricar armas
+乌克兰政府国防与安全事务顾问丹尼柳克4月13日透露，根据乌克兰掌握的情报，俄罗斯高层很有可能已拍板定案，通过假旗行动和刻意挑衅作为动用核武的藉口，首当其冲的将是乌东顿巴斯地区。
 
-然后娶了一个东北女人
-Y se casó con una mujer del noreste
+丹尼柳克说，俄罗斯已经密谋策划被乌克兰“攻击”的战略核武设施，包括位于俄罗斯境内的军事城镇“贝尔哥罗德-22”（Belgorod-22）内、代号S（俄文字母为С）的核武贮存基地。该基地距离乌克兰东部苏梅州（Sumy）仅数公里。
 
-已经子孙三代了
-Tienen tres generaciones
+情报显示，“假攻击”将由俄罗斯军人装扮成乌克兰的“袭击”人员，俄方对过程进行技术性拍摄，然后作为核反击的借口。
 
-然后看到你们去救乌克兰
-Luego vio a ustedes haciendo rescate en Ucrania
+根据俄罗斯的“核武使用准则”，俄罗斯动用核武的条件包括：俄罗斯在遭遇传统常规武器攻击下，俄罗斯的国家生存受威胁，以及关键设施遭敌方攻击，导致俄罗斯不得不以核军力回应。
+![乌克兰国防与安全事务顾问：俄罗斯为准备动用核武铺路](https://s.rfi.fr/media/display/ecd91610-16a2-11ea-a528-005056a99247/w:1280/p:16x9/f97ed68a38521e1fd4eefa4414b9b4be915cd2d4.jpg)来源：RFI （乌克兰国安顾问：俄罗斯为准备动用核武铺路）
+丹尼柳克有意暴露俄罗斯的阴谋，对扼止俄罗斯的行动会有一定的效果，另外，在美国及其盟友的全天候实时高清卫星监测之下，俄罗斯的栽赃行动难度不小。
 
-她感动了
-Ella fue conmovida
+但是，一个惯偷总会找到他认为合理的借口鼓励自己去作案，回顾历史，俄罗斯惯常使用自导自演的栽赃诬陷作为侵略的理由，典型的例子包括1939年与芬兰的冬季战争、2008年与格鲁吉亚的战争等等。
 
-竟然找到七哥
-Me encontró
+其中1999年第二次车臣战争开始前，俄罗斯境内的数起民宅爆炸案据信是由普京当局一手策划的，其目的是为普京发动第二次车臣战争寻找正当性和民众支持。
 
-这真的是, 这是多么
-Esto realmente es, algo tan…
+综上，欧洲局势趋于复杂化，正在朝核对抗方向发展，普京政权为了逃脱战争罪责、保住权力和身家性命，极可能最终在核武使用上挺而走险，但乌克兰、芬兰和瑞典、波罗的海三国和波兰乃至北约都不可能退缩，因此，欧洲正在被核战阴云笼罩。
 
-说我们每时每刻都在改变自己的人生
-Por eso digo que nosotros estamos cambiando nuestras vidas en cada minuto y segundo
+选民并不害怕中俄的核武和生化武器，因为害怕只会助长他们的邪恶，如果核战难以避免，大部人将坦然面对，人们最担心的是，西方延续多年以来的软弱自私，难以团结一致，不能祭出足以令普京和习近平畏惧收手的反击措施！
 
-你们在前线的这种救援
-Este tipo de rescate en primera línea
+参考：
 
-你去想想影响多少中国人
-Piensen a cuántos chinos han influenciado
+[U.S. cannot ‘take lightly’ threat Russia could use nuclear weapons – CIA chief](https://www.reuters.com/world/us-cannot-take-lightly-threat-russia-could-use-nuclear-weapons-cia-chief-2022-04-14/)
 
-国际婚姻在海外的形象啊
-La imagen del matrimonio internacional en el extranjero
+[乌克兰国防与安全事务顾问：俄罗斯为准备动用核武铺路](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220413-%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%BD%E9%98%B2%E4%B8%8E%E5%AE%89%E5%85%A8%E4%BA%8B%E5%8A%A1%E9%A1%BE%E9%97%AE-%E4%BF%84%E7%BD%97%E6%96%AF%E4%B8%BA%E5%87%86%E5%A4%87%E5%8A%A8%E7%94%A8%E6%A0%B8%E6%AD%A6%E9%93%BA%E8%B7%AF)
 
-你想这多么记忆深刻呀
-Piensa lo inolvidable que es esto
-
-你们这上边这个马甲, 每时每刻都传送着光芒
-Este chaleco que tienen puesto encima de ustedes, transmite luz a cada instante
-
-就是跟我要马甲的人一大堆
-Cantidades de personas me han pedido este chaleco
-
-世界级的大佬
-Un Boss a nivel mundial
-
-金融华尔街大佬之一
-Uno de los grandes Boss financieros del Wall Street
-
-都是你们每天在报纸上看到的人
-Son personas que ustedes ven todos los días en el periódico
-
-说Miles你要给我几个马甲
-Dijo, Miles, debes darme unos cuantos chalecos
-
-我的孙子要你的马甲
-Mi nieto quiere tu chaleco
-
-我说为什么
-Le pregunté, ¿por qué?
-
-他说那个太棒了
-Dijo que eso es maravilloso
-
-他原来是绝对共产党的
-Él era absolutamente del PCCh
-
-那是他把共产党当爹的, 我跟你说
-Él veía al PCCh como su padre, déjame decirte
-
-除了桥水(基金)
-A parte del Bridgewater Associates
-
-他就是老二的投资到中共国的
-Él es el segundo en invertir a la República Popular de China
-
-原海航投资者之一
-Uno de los inversores antiguos de HNA Group
-
-最早投资者
-Uno de los primeros inversores
-
-现在跟我们爆料革命一起了
-Ahora está con nosotros en el Movimiento de Denunciantes
-
-他都在看我们支持乌克兰
-Él siempre está viendo a nosotros apoyando a Ucrania
-
-他为啥
-¿Por qué?
-
-你知道现在变了
-Sabes que ahora todo ha cambiado
-
-你知道吗
-¿Lo sabes?
-
-儿子在英国读书
-Su hijo está estudiando en Reino Unido
-
-他要去英国参加仪式
-Él debe ir hasta allá a asistir una ceremonia
-
-必须打疫苗
-Y por eso tiene que vacunarse
-
-只打了一针, 回来半瘫
-Sólo se vacunó una dosis y regresó hemiparesia
-
-这个牛叉的人物
-Este personaje poderoso
-
-大家都知道
-Todos saben
-
-他光这个曼哈顿多少学校, 多少医院都他捐款
-Donó tantas escuelas y hospitales como lo hizo en Manhattan
-
-这回把他给救了
-Esta vez lo salvaron
-
-结果一去
-Resulta cuando fue
-
-人家一看, 一个护士
-La persona, una enfermera lo vio
-
-说你就是这个疫苗反应症
-Y dijo que estas son reacciones de la vacuna
-
-最后是把他摁到了医院里
-Al final fue llevado al hospital
-
-给他所有的血液洗毒
-Se le hizo un hemodiálisis
-
-在ICU啊呆了几天, 差点死在了里边
-Pasó unos días en la UCI y casi muere adentro
-
-这就是病毒
-Este es el virus
-
-这就是疫苗这个综合症
-Este es el síndrome de la vacuna
-
-现在都在看这个
-Ahora lo que se ven son estas cosas
-
-咱们乌克兰直播, 都在看咱们前线
-Nuestra transmisión en vivo en Ucrania, nuestro rescate en primera línea
-
-你们那个帐篷绝对就像
-Su carpa es absolutamente como
-
-就是贾平凹写的一本书
-Un libro escrito por Jia Pingwa
-
-就是那个写的新疆
-Lo que escribió es sobre Xinjiang
-
-在黑暗中的一盏灯一样
-Como una lámpara en medio de la oscuridad
-
-看着
-Viendo
-
-在那个
-En aquel…
-
-那所有的土房子里边儿挖出了一个房子
-Una casa fue excavada entre todas las casas de barro
-
-房子里边点着一个灯
-Hay una luz dentro de la casa
-
-我看到那小说, 我觉得你们就是那盏灯
-Vi esa novela y pienso que ustedes son como esa lámpara
-
-是你们的形象确实绝对给世界带来了希望
-Sus imágenes trajeron sinceramente esperanza al mundo
-
-特别给海外中国人带来了希望
-Especialmente, trajeron esperanza a los chinos en el extranjero
-
-真的是衷心地感谢, 用什么话
-Realmente agradezco de corazón, no hay palabras
-
-都无法表达战友们对你们的感激
-Para describir el agradecimiento hacia ustedes, compañeros luchadores
-
-任何忽视前线战友在24小时
-Cualquiera que ignore a los compañeros luchadores de primera línea, donde las 24 horas
-
-随时面临着这种生命危险, 病毒危险的人
-Se están enfrentando el peligro de la vida y del virus en cualquier momento
-
-他不配做我们的兄弟姊妹
-Él no merece ser nuestro hermano o hermana
-
-* * *
-
-日期：04/14/2022
-原视频标题：新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-La Operación Internacional de rescate del Nuevo Estado Federal de China en Ucrania está cambiando la visión mundial hacia los chinos
-
-原视频日期：04/08/2021
-原视频网址：[**https://gettr.com/post/p143xe6f378**](https://gettr.com/post/p143xe6f378)
-任务编号：KC490（4225）
-视频时间段：0:00-3:38
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Russia already has nuclear weapons in the Baltic region, says Lithuania](https://www.reuters.com/world/europe/russia-already-has-nuclear-weapons-baltic-region-says-lithuania-2022-04-14/)
 
  
 
