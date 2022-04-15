@@ -2,32 +2,38 @@
 ---
 
 
-## 葛瑞姆：放弃台湾等于放弃自由民主
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2349357/)
+## 美参众议员访台，与蔡英文总统会晤
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2349479/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-俄乌战争仍在继续，台海危机日益严重，美国联邦参议院预算委员会共和党首席议员葛瑞姆（Lindsey Graham, R-SC）率团搭乘美国军机来台访问，15日访团上午到总统府会晤总统蔡英文，葛瑞姆强调，美国会积极因应中（共）国对台湾日益加剧的挑衅行为，更说「如果放弃台湾，就相当是放弃自由与民主」。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/id13711654-2204140837042378-600x400-1.jpg)
+台湾当地时间4月14日晚，美国联邦共和党首席议员Lindsey Graham带领的参众两院议员一行6人抵达台湾。该团是本年访台的首个美国国会参众两院访问团，其成员横跨预算、外交、国土安全、卫生教育劳工、财政、军事等领域，均为国会两院的资深领袖。而Lindsey Graham曾于2016年角逐共和党总统候选人提名。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1b064de4-0620-4000-9b63-e7da7de59bd3.jpg)图片来源：民视新闻
+当地时间4月15日，美国参众两院议员与台湾蔡英文总统进行了会晤。该场会晤进行了现场直播，蔡英文总统感谢台湾得到了美国跨党派跨两会的支持，会为捍卫台湾的自由民主而努力。美国表示在俄乌战争之际，在共产党对台湾的威胁之下，美国访问台湾代表对台湾自由民主法治的支持，如果放弃台湾，那就是放弃了自由。中共支持普京、攻击台湾、以及对不同政见的残忍迫害等，中共所作的一切罪恶，是时候应该让他们付出代价了，世界人民正在集结力量。中共已经给美国此次访台表达了严重不满甚至威胁，但美国不会退缩。台湾的芯片科技和自由贸易经济是印太地区乃至全球的重要组成部分，台湾的安全就是全世界的安全。
 
-今台湾总统蔡英文会晤美国会访团，美国联邦参议院预算委员会共和党首席议员葛瑞姆（Lindsey Graham, R-SC）于4月14日至15日率团搭乘美国军机来台访问。访团成员包括：参院外交委员会主席孟南德兹（Robert Menendez, D-NJ）参议员、卫生、教育、劳工暨年金委员会共和党首席参议员波尔（Richard Burr, R-NC）、国土安全委员会共和党首席参议员波特曼（Robert Portman, R-OH）、联邦参议员赛斯（Ben Sasse, R-NE）、联邦众议员杰克森（Ronny Jackson, R-TX）共6位国会议员。
+美国会和台湾和乌克兰站在一起，愿上帝保佑台湾。
 
-葛瑞姆上午在台湾总统府致词表示，美国政界两党意见诸多分歧，但是我们两党一起来台湾，我们是团结的，在俄国入侵乌克兰之际，面对中（共）国威胁的台湾，使得美国对台湾态度空前的团结，当中（共）国对台湾的挑衅日益加剧的时候，美国该怎么应对，我们相信只要珍视热爱的一切，一定会积极的因应，他强调放弃台湾就等于放弃自由民主，甚至放弃自由贸易，这对全人类都是非常重大的遗憾。
+reference：
 
-葛瑞姆也提到，在乌克兰情势中，中共政府跟台湾人民之间的反应形成对比鲜明，中共对全世界所做的一切，是时候让他们付出更庞大的代价。
+[https://www.epochtimes.com/gb/22/4/14/n13711579.htm](https://www.epochtimes.com/gb/22/4/14/n13711579.htm)
 
-郭文贵先生在直播中称，中共很可能在4月末到5月初对台湾动武，如果中共打台湾，美国一定会轰炸中共的军事基地。俄罗斯在乌克兰的战争牵制了欧洲，如今能威慑中共的只有美国，葛瑞姆此次访台不仅是对台湾的支持，更是捍卫民主世界的尊严。中共对乌克兰的态度已经表明了一切，攻台的代价就是自取灭亡！
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022415W0112](https://www.ftvnews.com.tw/news/detail/2022415W0112)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

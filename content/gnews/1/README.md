@@ -2,20 +2,30 @@
 ---
 
 
-## 视频|巴西人道救援 接收乌克兰难民
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2349668/)
+## 中日财经爆┃中国38个城市住房价格下跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349867/)
 
-制作：香草山视频部
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中国38个城市住房价格下跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fimages01%2F20220116%2Fc8e9ee63585a4b3bb9bca8e2c55c1195.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F517021244_104543&amp;tbnid=ihhf9NkUO9o2IM&amp;vet=12ahUKEwiMjKngtZX3AhVcTPUHHZfdD4gQMygBegUIARCq)
 
-当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
-另据 巴西司法和公共安全部部长托瑞斯指出，接收难民是一项人道主义行为，因此，联邦政府将致力于帮助所有在巴西寻求安全、居住和工作等权利的乌克兰人。为此，在该国最新颁发的一项条例中，巴西司法部和外交部将允许政府签发人道主义签证和居留许可，用以向受俄乌战争影响的乌克兰人提供帮助。目前，这项工作正在受到国际移民组织和国际移民观察站的支持，乌克兰难民可以通过这两个组织获取相关的讯息和资源。
-据悉，为了躲避俄军的攻击，当前已有超过四百万乌克兰人不得不离开祖国。对此，乌克兰第一夫人泽连斯卡向各国呼吁称，希望国际社会将乌克兰民众视为世界大家庭的一员。泽连斯卡强调，俄乌战争激发了乌克兰孩子们最深的爱国情怀，他们伺候必将成为最忠诚的爱国者和祖国最坚强的捍卫者。因此，请各国的友好民众帮助这些孩子和母亲，直到他们能够重返家园。
+中共国家统计局4月15日发布的3月新建房屋价格指数,主要70个城市中38个,与上个月相比下跌。
 
-发稿：qiutian（邱甜）
+由于中国恒大集团等经营危机,房地产市场停滞不前,各地地方政府正在加速缓和购买管制，以期提振市场信心。
 
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+一线城市北上广深，在下跌。其他下跌的地方城市更多。但是,在中国经济的压迫压力背景下,地方政府再次增强对房地产的依赖,己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
+
+信息来源：
+[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

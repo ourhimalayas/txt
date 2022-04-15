@@ -2,36 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃里克·博林（Eric Bolling）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349500/)
+## 有声| 疫苗之殃
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2349759/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1812.png)
+配音：香草山媒体部 – 纳米
 
-盖特链接：[https://gettr.com/user/ericbolling](https://gettr.com/user/ericbolling)
+全面普及打疫苗
 
-埃里克·博林自述：
+一苗 二苗 三苗
 
-NewsmaxTV主持人，2020 @Emmys，2次纽约时报畅销书，白宫记者协会成员([\[email protected\]](/cdn-cgi/l/email-protection))
+加强苗
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1813.png)图片来源：网络
+自愿 奖励 强制
 
-埃里克·博林简介：
+针针带毒进身体
 
-埃里克·博林全名埃里克·托马斯·博林（ Eric Thomas Bolling，生于1963 年3月2日) 是美国电视名人、保守派政治评论员、作家和财经评论员。
+谁曾想毒毒疫苗进身体
 
-埃里克·博林担任过许多电视节目的财务及政治评论员。他最著名的是先后主持了福克斯商业频道（Fox Business Channel）的兑现（Cashin’ In）、福克斯新闻频道（Fox News Channel）的五人组（The Five）。目前，他在Newsmax上主持电视节目埃里克·博林-平衡（Eric Bolling The Balance）。
 
-埃里克·博林出版了两本书：《唤醒美国》（2016年）和《沼泽：华盛顿的腐败和任人唯亲的阴暗池以及特朗普如何排干它》（2017年）
 
-* * *
+文字版原文：[疫苗之殃](https://gnews.org/zh-hans/2342956/)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+音频处理/发稿：雪梨
 
  
 
