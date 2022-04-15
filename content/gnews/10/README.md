@@ -2,60 +2,52 @@
 ---
 
 
-## 格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2351888/)
+## 拜登总统把中共玩个半死并看穿中共背后支持俄罗斯真相
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2352029/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8824.61%EF%BC%89%E6%8B%9C%E7%99%BB%E6%80%BB%E7%BB%9F%E6%8A%8A%E4%B8%AD%E5%85%B1%E7%8E%A9%E4%B8%AA%E5%8D%8A%E6%AD%BB%E5%B9%B6%E7%9C%8B%E7%A9%BF%E4%B8%AD%E5%85%B1%E8%83%8C%E5%90%8E%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E7%9C%9F%E7%9B%B8%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:9)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
+**郭文贵先生：**我真的希望不管任何情况下，包括我希望即使不灭共，我也不希望它灭共去打台湾去。我们就晚点灭共，我希望它不打台湾，因为那是无法想象的惨剧。
 
-4月14日晚，由美国南卡罗纳州资深联邦参议员林赛∙格雷厄姆（Lindsey Graham）率领的一个美国国会议员代表抵达台北，对台湾进行为期一天一夜的旋风般访问。
+我觉得乌克兰也不要被打，你打了乌克兰，乌克兰美女太多了，太可惜了，是吧？就别打乌克兰，乌克兰也别被打，台湾也别被打，灭共晚一年两年都行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Six-U.S.-Lawmakers-Arrive-in-Taiwan-on-Unannounced-Trip.jpg)
+但是我觉得现在一个比较好还是美国这个国家它很厉害。就美国就是跟你明说，你打了以后我肯定揍你。从经济上先揍你，把你弄半残了，我再武力上把你解决掉。我觉得千万别小看了拜登总统这方面决心。
 
-代表团由六位美国两党参众议员组成。团长是一贯友台并对北京持强硬立场的参院预算委员会共和党首席议员格雷厄姆，代表团成员包括立场同样一贯友台的新泽西州民主党籍参院外交委员会主席鲍勃∙梅嫩德兹（Bob Menendez）。另外四位成员是北卡罗来纳州参议员理查德·伯尔（Richard Burr）、俄亥俄州参议员罗伯·波特曼（Rob Portman）、内布拉斯加州参议员本·萨斯（Ben Sasse）和德克萨斯州众议员罗尼·杰克逊（Ronny Jackson）。
+这就是头两天这个所谓的，我不能说，这是国际上最有名的所谓政治智库之一，我们有一段通话。本来是参加20分钟，结果弄了将近50分钟，我的老战友是美国的前参议员，要我参加这个会，怎么来看待这个美国还有拜登总统、川普总统。
 
-梅嫩德斯在与蔡英文总统会面时说，作为参议院台湾核心小组的联合主席和参议院外交关系委员会主席，我很自豪能够再次确认我们与台湾坚如磐石的关系（I am proud to be back to reaffirm our rock-solid relationship with Taiwan），在世界关注俄罗斯入侵乌克兰之际，代表团在台湾的存在向台湾人民发出了“强有力的信息”，“我们理解这里是台湾，就在这个地区，未来在这里。”（we understand that here in Taiwan, here in this region, this is where the future is.）
+他说：“我知道你支持川普，你怎么看待拜登总统对美政策上？”我说：“我从来哪个都不支持，我哪个也不反对，不掺和你美国政治。但是你要让我现在比较两个总统对中共的政策，我认为拜登总统更现实，川普是有组织有计划，非常聪明地把中共从这个国际所谓的全球一体化、全球贸易战略系统里边给它干出去了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/937x768_970348711876.jpg)
+“但是拜登比他更有组织、更精密化地把共产党从金融系统和世界系统给踢出去，而且招招有效。比如说授权撤离这块，跟你玩个授权撤离把共产党玩了个半死。马上就花1000多亿美元到美国来买卖美国的农业、科技，然后说‘那我再回去啊，我还继续派大使过去，派沈阳大使’，这边‘啪’一下子来一个，是吧？这个对共的整个的所谓所有的，大家知道的新法规，参议院众议院快立法，是吧？然后在欧洲也推动这新的所谓灭共法案，这都是非常有组织、很精密的。”
 
-梅嫩德斯称，中共国政府曾对代表团访问台湾表示不满。但抗议“并没有阻止我们前来”，也“不会阻止我们未来支持台湾”。台湾生产了全球 90% 的高端半导体产品，它是一个具有全球意义、具有全球连锁效应、具有全球影响力的国家。因此，应该理解台湾的安全具有全球意义。
+“然后在俄罗斯这个事上，直接把责任就推给你中共了。只要俄罗斯打了乌克兰，就叫欧洲知道背后就是因为中共，他直接不提普京的，直接说：‘我知道他俩好，这个东方某国在支持他’。就告诉你乌克兰、告诉中共、告诉欧洲，只要是他普京动了乌克兰，第二个坏蛋就是‘习太阳’中共国。”这都是非常精密的战略高手啊，没有这样的战略，搞不定的。
 
-代表团团长格雷厄姆赞同梅南德斯的观点，称台湾“对世界和美国的数字经济来说是不可或缺的，我们希望在经济上加强双边关系”。
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
-格雷厄姆说，我们来这里是为了表达对我们所爱的事物的支持。我们热爱自由，我们热爱实现个人梦想的能力，我们热爱选择自己的领导人的能力，我们热爱法治，我们讨厌 舞枪弄棒，经常有人问，如果中国共产党进一步侵略台湾，美国会怎么做。我相信我们会坚持我们所爱的，我们会和你站在一起。
+编辑整理：星塵Scheddi；
 
-这位南卡罗来纳州参议员还指责中共国帮助俄罗斯入侵乌克兰，并对台湾经济及其人民发动网络攻击。他补充说，但没有详细说明，“我们将开始让中共国为他们在世界各地所做的事情付出更大的代价。”
+字幕文件制作：小满；
 
-今天，PLA东部战区新闻发言人施毅陆军大校在新浪微博称，“4月15日，中国人民解放军东部战区出动驱护舰、轰炸机、歼击机等力量在东海当面和台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。此次行动是针对近期美在台湾问题上频频释放错误信号而组织的。美恶劣行径和伎俩完全是徒劳的，也是十分危险的，玩火者必自焚。战区部队时刻保持高度戒备，坚决捍卫国家主权安全和地区和平稳定。”
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-15_21-04-28.png)
+G-News发布：海賊王M.D.LUFFY；
 
-东部战区发布消息称，东部战区在台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-中共外交部发言人赵立“奸”在外交部例行记者会上称，“中方坚决反对任何形式的美台官方往来。美国国会议员应该遵守美国政府奉行的一个中国政策，恪守一个中国原则和中美三个联合公报规定，停止美台官方交往。他们更不应该发表不负责任的言论。中方将继续采取有力措施，坚决维护国家主权和领土完整。我相信大家已经注意到中国人民解放军东部战区已经发布了相关声明。中国军队有关行动就是对近期美国包括国会议员团访台等消极行动的反制”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-昨天，美国白宫国家安全顾问沙利文在华盛顿出席座谈会时，谈及俄乌和两岸形势。他指台湾与乌克兰情况不同，美国的政策是采取一切可能措施，以确保中共国大陆不会武统台湾。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-沙利文首先表达对中共国采取措施企图片面改变现状的担忧，但也认为中共国正在密切了解乌克兰局势以吸取教训；他也强调，乌克兰情况与台湾不同，美国与台湾的安全伙伴关系基于台湾关系法。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-15_21-02-20.png)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-沙利文同时表示，预计白宫会在一、两个星期内宣布，向协助俄罗斯减轻制裁影响的国家采取行动。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-参考数据：
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[2022年4月15日外交部发言人赵立坚主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202204/t20220415_10668513.shtml)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[Visiting U.S. Congressional delegation reaffirms support for Taiwan](https://focustaiwan.tw/politics/202204150010)
-
-[Six U.S. Lawmakers Arrive in Taiwan on Unannounced Trip](https://www.usnews.com/news/world/articles/2022-04-14/six-u-s-lawmakers-arrive-in-taiwan-on-unannounced-trip)
-
-[6 US lawmakers arrive in Taiwan for surprise visit, China issues warning](https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham)
-
-[The Honorable Jake Sullivan, Assistant to the President for National Security Affairs](https://www.youtube.com/watch?v=roptdLIDCNw)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+G-TV：日本银河系农场。
 
  
 

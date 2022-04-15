@@ -2,18 +2,20 @@
 ---
 
 
-## 【 蓝枫法律 】 全球反歧视法律框架概述
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2351206/)
+## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
+美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
 
-联合国的人权宣言是人权史上具有里程碑意义的文件。他在1948年巴黎召开的联合国大会，所有人都有的共识。他第一条就写了：人人生而自由，在尊严和权利上一律平等；第二条就是每个人都有资格享有本宣言所在的一切权利和自由，不分种族、肤色、性别、语言、宗教、政治及其他见解、国籍、社会出身财产等，它里面有一个平等原则，就是联合国大会重申的人人生而自由，权利和尊严一律平等。
+其中个别死亡案例统计信息统计如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
+由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
 
-任何企图在种族上面有种族优越论的东西在科学上是荒谬的，在道德上都是被谴责的，在社会上是一个不公正和危险必须予以驳斥的。其实这个就是每年的3月21日全球种族歧视的一个国际日，就是因为1960年的这一天南非的莎佩维尔，警察开枪杀害了69名参加反对种族隔离“通行证法”的和平示威的人们。
+信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
 
-**直播视频：**https://www.gettr.com/post/p14gfvjd981
-
-**编辑****/****发文：蓝枫法律栏目**
+[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
 
  
 

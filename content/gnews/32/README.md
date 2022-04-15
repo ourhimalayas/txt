@@ -2,20 +2,55 @@
 ---
 
 
-## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
+## 拜登将宣布为乌克兰提供7.5亿美元的军事援助计划
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2351251/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
-美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/styles-thumb_small_article-public-bidenjoseph_031822arl4_lead.jpg)thehill.com
+据美国国会山报于4月13日报道，经一位消息人士证实，预计拜登总统的政府将批准向乌克兰额外提供7.5亿美元的军事援助，其中包括榴弹炮。
 
-其中个别死亡案例统计信息统计如下：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
-由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
+正当乌克兰军队准备应对俄罗斯在首都基辅周围被击退后将其部队集结在该国东部发动攻击之际，新的援助计划出台。
 
-信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
+目前尚不清楚拜登计划何时宣布新的援助。总统周三的公开日程中没有任何内容。
 
-[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
+白宫没有回应提供信息的请求。然而，白宫表示，拜登之后与乌克兰总统弗拉基米尔·泽连斯基进行了交谈，“向他介绍了美国对乌克兰的持续支持”，这是一个即将宣布新的援助声明的潜在迹象。两位领导人通了近一个小时的电话。
+
+正值乌克兰官员请求更多军事帮助以抵御俄罗斯的一连串进攻之际，路透社首次报道了新的援助。
+
+最近几天，俄罗斯改变了进攻目标，在莫斯科无法占领基辅后从基辅撤军。美国和乌克兰官员表示，他们预计俄罗斯将把注意力集中在乌克兰的南部和东部地区。
+
+新的 7.5 亿美元援助是自俄罗斯于2月24日对乌克兰发动袭击以来，美国提供的17亿美元的安全援助，以及自拜登政府上任以来提供的 24 亿美元的基础上提供的。
+
+国防部上周表示，它已向乌克兰人提供了数千枚防空和反装甲弹药，包括毒刺和标枪导弹，数百架弹簧刀（Switchblade）无人机，它们充当遥控导弹；激光制导火箭系统；和5000万发弹药。
+
+政府还向乌克兰军队提供了用于警告化学武器袭击的探测设备、个人防护设备和医疗用品，以治疗潜在的受害者。
+
+国会批准了136亿美元的乌克兰相关援助，作为3月签署成为法律的大规模政府资助法案的一部分。
+
+除了向乌克兰提供安全、人道主义和经济援助外，美国及其盟国还加强了对俄罗斯银行和官员的制裁，作为对俄罗斯近七周前开始的入侵乌克兰的回应。
+
+拜登还升级了他对普京的言论，周二在爱荷华州的一次演讲中，指责普京在乌克兰犯下了种族灭绝罪。
+
+拜登在活动结束后对记者说：“越来越清楚的是，普京试图消除作为乌克兰人的想法。”他详细说明了他的评论。“证据越来越多了。”
+
+**简评：**
+
+拜登总统与乌克兰总统泽连斯基的通话，以及加大军事上援助的力度，表明西方抵制独裁的决心。战争持续数周以来，在弱小的乌克兰被硕大残酷的俄罗斯猛烈攻击下，乌克兰人民表现出的不屈、勇敢，感动了世界，让当今世界缺乏的勇敢的心重新回归。只有拼死抵抗，绝不下跪，才能坚持到援助的到来，致使俄罗斯深陷战争的泥沼，不得不调整战略，击碎了俄罗斯开战之初想迅速吞并乌克兰的幻想。
+
+俄罗斯入侵乌克兰，最强的后援就是中共，帮助俄罗斯绕开西方制裁，给普京提供一系列援助。目前来说，世界各国面对中共的行径，并未采取有效的制裁，如同各国不敢提及中共制造了这次生化战争（COVID-19），病毒溯源更是遥遥无期。在中共面前，各国需要像乌克兰人民一样，拿出勇气，绝不能向中共下跪，否则会失去一个国家的未来，会怂恿中共将其独裁专制输出至全世界。
+
+新闻链接: [Biden to announce $750 million military aid package for Ukraine](https://thehill.com/policy/defense/3266178-biden-approves-750-million-military-package-for-ukraine/)
+
+翻译/简评:親愛的瑪嘉烈 / PR: 感恩
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 
