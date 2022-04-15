@@ -2,32 +2,33 @@
 ---
 
 
-## 【G时新闻】台湾军方卖台贼购买了中共国的无人机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2348167/)
+## 今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2348273/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月14日早，郭先生在直播中提到台湾目前的情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a7dwr-7cv3c-2.jpg)
+**盖特链接**：[https://gettr.com/user/jim\_jordan](https://gettr.com/user/jim_jordan)
 
-郭先生爆料，台湾此次参与对抗中共入侵的无人机正是来自中共大陆制造。中共先把生产好的无人机卖到澳大利亚，然后台湾的卖台贼再买回来。郭先生说未来中共一旦打台湾，可能出卖老百姓的就是被中共收买的台湾军方和情报系统的卖台贼们。
+**众议员吉姆·喬丹自述：**
 
-世界局势正在日益剧变，中共大概可能会在4月底5月份入侵台湾。而现在中共对卖台贼正在进行着战前最猛烈的一波洗脑和策反。中共给台湾一些要员大量赠送美元现金和黄金，有一些给到台湾手里，有一些给到台湾那些身在上海的家人手中。中共同时承诺一旦开战，卖台贼的家人会得到很好的照顾，并且战后的土地分配问题也已经谈妥。
+自豪地为俄亥俄州美丽的第四区服务。@JudiciaryGOP排名会员
+为做好我们所说的奋斗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ln.jpg)图片来源：网络
+**众议员吉姆·喬丹简介：**
 
-盖特链接：[https://www.gettr.com/post/p15bgg5af85](https://www.gettr.com/post/p15bgg5af85)
+吉姆·喬丹全名詹姆斯·丹尼尔·乔丹（James Daniel Jordan，生于1964年2月17日）是一位美国政治家，自2007年起担任俄亥俄州第四国会选区的美国众议员。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+吉姆·喬丹是保守的美国众议院自由核心小组的创始成员，2015年～2017年担任第一任主席，2017年起担任副主席；2019年1月～2020年6月，担任美国众议院监督委员会高级成员；现任美国众议院司法委员会高级成员。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+吉姆·喬丹是前总统唐纳德·川普的盟友。2021年1月11日荣获“约旦总统自由勋章”。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,116 +15,116 @@
 
 ---
 
-### [Nicole采访来自德国巴伐利亚的国际医疗援救义工](/content/gnews/1/README.md)
+### [视频|英国首相鲍里斯突访基辅与泽连斯基会晤](/content/gnews/1/README.md)
+ ` MOSVIDEO`
+
+### [视频|奥尔加女士给新中国联邦人的五星级救援服务打满分](/content/gnews/2/README.md)
+ ` MOSVIDEO`
+
+### [美国又一个资深国会议员访问团抵达台湾访问](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄罗斯周边四国总统访问乌克兰，谴责俄罗斯的侵略行为](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登总统称：美国决定派特使前往乌克兰](/content/gnews/5/README.md)
+ ` thedawn`
+
+### [Nicole采访来自德国巴伐利亚的国际医疗援救义工](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年4月14日 郭文贵先生乱聊直播 全文字版](/content/gnews/2/README.md)
+### [2022年4月14日 郭文贵先生乱聊直播 全文字版](/content/gnews/7/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [泽连斯基：“如果没有额外的武器，这场战争将变成一场无休止的血腥屠杀，传播苦难、痛苦和毁灭。 Mariupol、Bucha、克拉马托尔斯克——名单将继续。除了乌克兰，没有人会用重型武器阻止俄罗斯。](/content/gnews/3/README.md)
+### [泽连斯基：“如果没有额外的武器，这场战争将变成一场无休止的血腥屠杀，传播苦难、痛苦和毁灭。 Mariupol、Bucha、克拉马托尔斯克——名单将继续。除了乌克兰，没有人会用重型武器阻止俄罗斯。](/content/gnews/8/README.md)
  ` Tokyo Sakura Video Group`
 
-### [澳副总理对中共与所罗门群岛达成安全协议发出紧急警告](/content/gnews/4/README.md)
+### [欧盟火力支援乌克兰 周三再批准5.43亿美元](/content/gnews/9/README.md)
+ ` 蓝莲花农场`
+
+### [躺平币为信息赋予可度量的价值](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [澳副总理对中共与所罗门群岛达成安全协议发出紧急警告](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年4月15日《樱花简报》：日元汇率创下约20年来的新低](/content/gnews/5/README.md)
+### [2022年4月15日《樱花简报》：日元汇率创下约20年来的新低](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [布林肯：中共国必须在侵略者与受害者之间选择](/content/gnews/6/README.md)
+### [布林肯：中共国必须在侵略者与受害者之间选择](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯制裁美国398名国会议员](/content/gnews/7/README.md)
+### [俄罗斯制裁美国398名国会议员](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [习近平调兵进驻上海，防疫或涉高层内斗](/content/gnews/8/README.md)
+### [习近平调兵进驻上海，防疫或涉高层内斗](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）](/content/gnews/9/README.md)
+### [今日盖特大V推荐 — 众议员吉姆·喬丹（Rep. Jim Jordan）](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“默克尔”（三）](/content/gnews/10/README.md)
+### [文·贵天成——文贵先生谈“默克尔”（三）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/11/README.md)
+### [秘翻在线:中共在全世界布置红旗导弹](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共和俄罗斯是全世界独裁和谎言的集大成者](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [大空头投资者Michael Burry警告美国股市将因严重高估而暴跌](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2022/04/14文贵先生直播精要](/content/gnews/14/README.md)
+### [2022/04/14文贵先生直播精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [深圳医生投诉录音:建议并要求深圳市停止强制接种疫苗](/content/gnews/15/README.md)
+### [深圳医生投诉录音:建议并要求深圳市停止强制接种疫苗](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【G时新闻】台湾军方卖台贼购买了中共国的无人机](/content/gnews/16/README.md)
+### [【G时新闻】台湾军方卖台贼购买了中共国的无人机](/content/gnews/21/README.md)
  ` G-时新闻`
 
-### [美国考虑派遣高级官员在基辅会见泽伦斯基](/content/gnews/17/README.md)
+### [美国考虑派遣高级官员在基辅会见泽伦斯基](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [20220414郭文贵乱聊直播 ： 指望世界会救中国那是白日做梦中国人只能自已救自已](/content/gnews/18/README.md)
+### [20220414郭文贵乱聊直播 ： 指望世界会救中国那是白日做梦中国人只能自已救自已](/content/gnews/23/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4/14/2022 文贵直播：广东叶家势力已被习灭；若台湾守不住，日本就完了；新中国联邦人是未来最有身份、最受尊重、最安全和最有前途的中国人，港币可能在今年年底或明年年初崩塌](/content/gnews/19/README.md)
+### [4/14/2022 文贵直播：广东叶家势力已被习灭；若台湾守不住，日本就完了；新中国联邦人是未来最有身份、最受尊重、最安全和最有前途的中国人，港币可能在今年年底或明年年初崩塌](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220414郭文贵乱聊直播 ：CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
-
-### [俄乌战争“没想到”系列之八：](/content/gnews/22/README.md)
+### [俄乌战争“没想到”系列之八：](/content/gnews/25/README.md)
  ` 蓝莲花农场`
 
-### [联合国报告称全球17亿人因俄乌战争受到严重打击](/content/gnews/23/README.md)
+### [联合国报告称全球17亿人因俄乌战争受到严重打击](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [上海市民：不是上海救我们 是我们救上海](/content/gnews/24/README.md)
+### [上海市民：不是上海救我们 是我们救上海](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰](/content/gnews/25/README.md)
+### [樱花时政┃终止“无核波罗的海”？ 俄威胁瑞典和芬兰](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从“零麻雀”到清零 毛式运动伤害了所有人](/content/gnews/26/README.md)
+### [从“零麻雀”到清零 毛式运动伤害了所有人](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄罗斯停止石油数据发布](/content/gnews/27/README.md)
+### [樱花时政┃俄罗斯停止石油数据发布](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元](/content/gnews/28/README.md)
+### [中日财经爆┃马斯克提议收购推特全部股权，价值410亿美元](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃细胞医药品量产化或将有效治疗癌症](/content/gnews/29/README.md)
+### [樱花时政┃细胞医药品量产化或将有效治疗癌症](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃苏州或成为下一个“动态清零”的城市](/content/gnews/30/README.md)
+### [樱花时政┃苏州或成为下一个“动态清零”的城市](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤](/content/gnews/31/README.md)
+### [中日财经爆┃小米涉嫌违反印度外汇法律 前负责人被执法部门传唤](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃美澳联合施压所罗门，要求弃签与中共的安全协议](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中](/content/gnews/33/README.md)
+### [俄罗斯以核威胁芬兰瑞士，俄军舰被导弹击中](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃英国和欧盟扩大制裁俄罗斯和亲俄份子](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/35/README.md)
+### [文贵爆料14.04：台湾购买的无人机实为中共国制造](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
 
-### [面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台](/content/gnews/36/README.md)
+### [面对中共对台湾和印太的威胁，美国6位重量级参众议员闪电访台](/content/gnews/37/README.md)
  ` G-NEWS TAIWAN`
-
-### [中共是如何迫使中国人仇视美国的？ （二）](/content/gnews/37/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [俄乌战局最近消息汇总](/content/gnews/38/README.md)
  ` NFSC News`

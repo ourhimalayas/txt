@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 2:15 AM (UTC)`
+
+Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from the Ukrainian refugee children as well as what he saw and heard while volunteering in the NFSC & ROFL tent at the Medyka Refugee Center on Facebook. <br/><br/>台湾原视新闻：35岁的台湾阿美族人王芮缇在脸书上分享了一些乌克兰难民儿童绘制的图画以及他在梅迪卡难民中心新中国联邦法治基金帐篷内做义工时的所见所闻。<br/>
+![img](https://media.gettr.com/group9/getter/2022/04/15/02/94993258-b416-f867-c98a-7e0074aa8aa8/out.jpg)
+
+---
+
 `@miles 4/15/2022 2:01 AM (UTC)`
 
 2022.04.14  新中国联邦 | 喜财经   喜币成为全世界最流行、最早的数字法币
@@ -145,13 +152,6 @@
 
 【Ukraine Rescue】 04/14/22 Ben, a volunteer from the United States, says that the largest and best-equipped NFSC rescue station is the cornerstone of the Medyka center. Without the presence of the NFSC, Medyka would not be as global as it is today. He believes that it is because the New China Federation upholds humanity that the Communist Party should be eliminated; it should be a global fight because even a country as powerful and symbolic of freedom as the United States has been infiltrated by the CCP, so the whole world should come together to take down the CCP!<br/><br/>【乌克兰救援】 04/14/22 来自美国的志愿者本表示：设施最大服务最好的新中国联邦救援站是梅迪卡营地的基石。如果没有新中国联邦在这里，梅迪卡营地不可能像今天这样极具国际性。 他认为，因为新中国联邦维护人性，所以才要灭共，灭共应该是一场全球性的斗争，因为即使是美国这么强大、象征自由的国家都已经被中共染指和渗透，所以全球人都应该来灭共。
 ![img](https://media.gettr.com/group6/origin/2022/04/14/15/9b110ad1-fe5c-e0fe-440f-078018609271/out.jpg)
-
----
-
-`@miles 4/14/2022 2:49 PM (UTC)`
-
-【Ukrainian Rescue】 4/13/2022 The fellow fighters of the NFSC and ROLF are invited by the local Polish Red Cross to urgently provide supplies to more than 100 Ukrainian refugee children. These children need to  immediately leave by a bus to a place 5 hours away from the Medyka camp. The local Polish Red Cross staff is very grateful for the help of our NFSC fellow fighters, and invite us to help them in their bi-weekly bus rescue operation. They will bring the photos of the rescued children in their next rescue operation in two weeks.<br/><br/>【乌克兰救援】 4/13/2022 新中国联邦法治基金战友应波兰当地红十字会的邀请，为100多名乌克兰难民儿童紧急提供物资，这些儿童需要乘坐大巴立即前往梅迪卡营地5小时之外的地点。波兰当地红十字会非常感激新中国联邦战友的帮助，邀请我们为他们每两周一次的大巴救援行动提供帮助，并表示他们将在两周后救援行动时带来这些被救孩子的照片。<br/>
-![img](https://media.gettr.com/group47/getter/2022/04/14/14/6c2e18a5-72cd-1fb4-e179-894539855c67/out.jpg)
 
 ---
 
