@@ -2,26 +2,36 @@
 ---
 
 
-## 樱花时政┃捷克外长希望与台湾建立更紧密关系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350799/)
+## 美国目前九成新冠案例几乎都是Omicron亚变体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-下届欧盟主席国捷克共和国外长说，现在是欧盟“尽可能”帮助像台湾这样的受欺负的民主国家的时候了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃捷克外长希望与台湾建立更紧密关系.jpg)（图片来源于本文链接）
-捷克外长还说，“我们表示，中共国任何帮助俄的行为都会对欧盟和中共国的关系产生严重后果。”捷克新政府强调台湾是其重要的印太伙伴之一，而布拉格正准备在其担任欧盟主席期间推出印太战略。捷克外长利帕夫斯基说，“我们理解受到中共国的欺负的台湾”。“（我们政府愿景）是民主国家应该团结起来，而台湾是一个民主国家。”他补充说：“台湾也是捷克共和国的顶级投资者之一。他们创造了许多好的产业和工作岗位。我们希望在这种经济关系上下功夫。当然，我们也希望尽可能地帮助他们。”
+素材翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
 
-信息来源： 
-[捷克外长希望与”受欺负”的台湾建立更紧密关系](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220414-%E6%8D%B7%E5%85%8B%E5%A4%96%E9%95%BF%E5%B8%8C%E6%9C%9B%E4%B8%8E-%E5%8F%97%E6%AC%BA%E8%B4%9F-%E7%9A%84%E5%8F%B0%E6%B9%BE%E5%BB%BA%E7%AB%8B%E6%9B%B4%E7%B4%A7%E5%AF%86%E5%85%B3%E7%B3%BB)
+据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
+
+冠状病毒大流行使 7700 万人陷入“极端贫困”
+
+[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
+
+根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
+
+来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
+
+债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
+
+素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
 
  
 

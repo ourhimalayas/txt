@@ -2,24 +2,33 @@
 ---
 
 
-## 郭文贵先生谈新中国联邦的金山、银山、钻石山
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2350611/)
+## 大流行推动全球努力研究罕见的疫苗副作用
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350822/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-在4月10日的大直播中，郭文贵先生谈及新中国联邦的三座大山—金山、银山、钻石山。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323079.jpg)
-郭先生说道，沼泽地将控制世界粮食和资源，美国的核心竞争力是人才。对新中国联邦来说，最重要的就是通过教育培养智慧型人才。以教育和人才为基础，实现新中国联邦的三座大山：第一座山，食物和水；第二座山，维持健康的生物科技，和可持续发展的新能源科技；第三座大山，智慧和现代化数据。
+素材翻译： Jenny Ball
 
-乌克兰即将迎来血腥时刻，俄罗斯和中共还将上演最后一幕，幕后的沼泽地浮出水面后，新大西洋公约诞生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
 
-参考链接：[4/10/2022 文贵直播](https://gettr.com/post/p157joz28f0)
+科学报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
+除南极洲外， 在不同大陆20 多个国家/地区的科学家，已经开始为有史以来最大的疫苗安全项目收集数据。该项目的成员被称为全球疫苗数据网络 (GVDN)，该项目在 10 多年前构思后，由于寻求资金徒劳而无功。
 
-编辑/总编: 雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+但 COVID-19 大流行期间的大规模疫苗接种为该项目注入了新的活力。该网络能够利用超过 2.5 亿人的数据，调查与 COVID-19 疫苗相关的罕见并发症，以期改进对这些副作用的预测、治疗和潜在预防。
+
+梅奥诊所的疫苗学家格雷戈里·波兰（Gregory Poland）说：“你真的需要全球数据才能了解”罕见的疫苗副作用。格雷戈里医生没有参与 GVDN项目，他自己在第二剂疫苗接种约 90 分钟后出现了严重的耳鸣，他怀疑这与疫苗注射有关。他说，研究潜在的疫苗并发症“是一个被严重忽视的领域”。
+
+素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,60 +2,40 @@
 ---
 
 
-## 6位公共卫生官员曾用双重标准为COVID疫苗辩护(5/5)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350719/)
+## 俄罗斯军舰沉没后基辅传来强烈的爆炸声
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350871/)
 
-素材翻译： Jenny Ball
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+整理：li yan li
+编辑：朝花夕拾
 
-接上篇6位公共卫生官员曾用双重标准为COVID疫苗辩护(4/5)
-
-同样，在评估医疗干预的危害时，要考虑的最敏感的结果是死亡率。说到底，引入一种能预防一些死亡，却又造成更多死亡的疫苗又有什么意义呢？
-
-然而，事实上，这就是我们对辉瑞产品所做的事情。 3期试验的中期结果表明，接种组的全因死亡率高于安慰剂组**。**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-153.png)图片来源：素材链接
-
-这个明显的问题被置之不理，因为安慰剂组中有 2 人死于 COVID，而接种疫苗的人群中只有 1 人，这使疫苗制造商能够声称：在预防这一结果方面有 50% 的功效。
-
-但是，如果我们将预防这一死亡事件的疫苗归因于保护性益处，我们还必须得出结论，在考虑所有原因造成的死亡率时，疫苗是造成额外死亡的原因。
-
-否则将是又一个双重标准。
-
-大流行如何以不同的方式发挥作用
-
-总结一下使用这些双重标准来制定“安全有效”的叙述是多么具有破坏性，让我们看看：如果我们采用相反的标准，情况会有多么不同：
-
-- 死于 COVID 的人数会极少。很少有尸检（如果有的话）明确证实死亡是由 SARS-CoV-2 引起的。如果以尸检确认为标准，那么在大流行期间，死于** **COVID 的人数基本上为零。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
 
 
-- 另一方面，如果我们假设 VAERS 中记录的死亡实际上是疫苗引起的死亡——类似于 CDC 假设许多死于 COVID 的方式——我们可以肯定：已有超过 26,000 例疫苗死亡。
+4月15日，莫斯科在黑海的主要军舰“莫斯科号”起火沉没后，基辅听到了强烈的爆炸声，乌克兰各地响起了空袭警报，居民们准备迎接俄罗斯的新攻击。
 
+爆炸似乎是乌克兰首都地区最重要的事件之一，因为俄罗斯军队本月早些时候从该地区撤走，准备在南部和东部作战。
 
-- 使用绝对风险降低作为有效性的衡量标准，疫苗会因无效而被广泛拒绝，因为它仅能将感染严重 COVID 的风险降低 0.038%。
+乌克兰声称对“莫斯科”号的沉没负责，称这艘苏联时代的俄罗斯黑海舰队的旗舰被其一枚导弹击中。它是用国产的海王星反舰导弹击中了这艘军舰。
 
+但俄罗斯国防部表示，在船上的弹药爆炸后，导弹巡洋舰上的500多名船员被疏散，该部不承认有攻击。该船于周四晚些时候在被拖往港口时沉没。
 
-- 对于感染 COVID 的人来说，伊维菌素和羟氯喹很容易获得。对于那些接种了疫苗但还是感染了 COVID 的人来说，这些药物将是加强剂的一个很好的替代品，由于缺乏单一的随机对照研究，这些药物不会被批准，因为它们有效。
+该舰的损失发生在俄罗斯海军发动入侵乌克兰近50天后，且继续轰炸黑海上的乌克兰城市之时。毗邻亚速海的敖德萨和马里乌波尔的居民一直在准备迎接俄罗斯新的攻击。
 
+据报道，基辅南部的赫尔松，东部城市哈尔科夫和西部的伊万诺-弗兰科夫斯克镇发生爆炸后，没有立即报告损失情况。乌克兰媒体报道了基辅部分地区的停电情况。
 
-- 5 至 11 岁的儿童不会接受这种有风险的实验性疫苗，因为，它没有被授权用于该年龄组——因为辉瑞的儿科试验并未证明对 5 至 11 岁的儿童有任何有意义的结果。
+乌克兰媒体称，周五午夜过后，乌克兰所有地区都响起了空袭警报，包括东部地区的卢甘斯克和扎波罗热继续响起警报。
 
+新闻链接：[俄罗斯军舰沉没后基辅传来强烈的爆炸声](https://www.channelnewsasia.com/world/powerful-explosions-heard-kyiv-after-russian-warship-sinks-2627526)
 
-- 辉瑞疫苗将不再使用，因为中期数据表明：接种疫苗的全因死亡率更高。
+发布：tianzhihuan
 
-
-评论： 阅读后，何止一个气愤能够表达译者的心情！
-
-素材链接：[https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

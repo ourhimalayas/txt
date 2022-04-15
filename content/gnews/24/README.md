@@ -2,13 +2,22 @@
 ---
 
 
-## 一位来自西班牙的志愿者说，只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2350530/)
+## 以歌灭共成绩斐然 意义重大
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2350708/)
 
-【乌克兰救援】04/14/2022 一位来自西班牙的志愿者说，他的父亲也是前南斯拉夫共产党员，后来在上帝感召下脱离了共产党。 他认为中国的共产党员也会改变，人们不过是为了生存不得不加入共产党。只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+自上榜以来，《灭共的雪》和《铁锁梦》连续多日占领多个国家和地区iTunes排行榜前列。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323078.jpg)
+郭文贵先生在4月10日的大直播中表示，因为中共的威逼利诱，两首灭共歌曲上榜之路艰辛。成功上榜后，中共又恶意篡改数据。即便如此，这两首歌仍在中共国内受众极广，达十几亿的次播放量。 两首歌曲同时打榜，也震撼了日本、台湾等业界人士。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+参考链接：[4/10/2022 文贵直播](https://www.gettr.com/post/p1589c85e83)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+
+编辑/总编：雪梨
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
