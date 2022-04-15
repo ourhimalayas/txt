@@ -2,210 +2,196 @@
 ---
 
 
-## 能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349880/)
+## 这次是海洋文明与陆地文明的再一次重创与PK
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349975/)
 
-星空链就这么厉害
-El Starlink es así de poderoso
+这一次绝对是世界的
+Esta vez definitivamente es
 
-现在的新兴能源
-La energía emergente de hoy en día
+一场大的秩序重组
+Una importante reorganización mundial
 
-是一种真正的在太空外面
-Es algo que verdaderamente está afuera en el espacio
+没有任何改变
+Nada ha cambiado
 
-伊隆-马斯克会从外星球
-Elon Musk desde un planeta alienígena
+我2017年爆料的时候说过
+En el 2017 dije en el Movimiento de Denunciantes
 
-给你带回来外星球(上的东西)
-Te traerá de vuelta las cosas del planeta alienígena
+我跟胡锦涛这些人
+Hu Jintao, estas personas y yo
 
-像未来的钻石一毛钱都不值
-Así como los futuros diamantes que no valdrán nada
+还有中国的老常委
+Y el antiguo Comité Permanente de China
 
-黄金也不值钱
-Tampoco el oro
+还有国安部的人
+Y el Ministro de Seguridad Nacional
 
-包括整个外太空的各种金属
-Incluyendo todo tipo de metales en todo el espacio exterior
+每次他们都说
+Cada vez que dicen
 
-(他只要)从月球上
-Desde la luna, (él sólo)
+中国历史上几百年回到桌子上
+Cientos de años en la historia China de regreso a la mesa
 
-他随便带两次(回来)
-Trae (de regreso) dos veces
+国际桌子上, 已经接近到桌面上
+En la mesa internacional, ya se han acercado a la mesa
 
-黄金价格就跌到可能白菜价了
-El precio del oro bajará al precio del repollo
+如果被人拍下去
+Si alguien le da un golpe
 
-伊隆-马斯克就有这本事
-Elon Musk tiene esta capacidad
+就是万劫不复, 回到石器时代
+Simplemente será condenado, de regreso a la era de piedra
 
-不用别人, 你说还囤黄金吗
-No se necesita otra persona, tú dices que ¿todavía se debe almacenar oro?
+站到桌子上
+Pararse en la mesa
 
-囤钻石, 你要我给你拉几车去
-O diamantes, si quieres te traigo unos cuantos camiones de oro y diamantes
+就永远成为世界强国
+Es ser por siempre un país poderoso en todo el mundo
 
-他只要对着话筒一说
-Él sólo habla por el micrófono
+可悲的事情
+Qué cosa tan triste
 
-我要到月球上采几吨钻石回来
-Voy a la luna a extraer toneladas de diamantes
+他们选出了对我们来讲是好事
+Nos hace bien que hayan elegido
 
-钻石啪就不值钱了
-En seguida, los diamantes no valen nada
+选出了习太阳, 王岐山
+Al sol Xi y Wang Qishan
 
-什么钻石恒久远
-Que si los diamantes duran para siempre
+这两个文化大革命的
+Estas dos revoluciones culturales
 
-那是胡扯呢
-Pura mentira
+鬼魂
+Fantasmas
 
-因为少而为贵
-Es costoso por lo poco que hay
+我觉得是文化大革命的被害者
+Siento que son víctimas de la Revolución Cultural
 
-那么能源呢, 所有能源
-¿Qué pasa con la energía? Toda la energía
+推出了这俩人
+Lanzaron a estas dos personas
 
-现在已经有好多种, 特别在月球上
-Ahora hay muchos tipos, especialmente en la luna
+对中国所谓的国际说了算
+Tener la última palabra en el llamado proceso internacional de China
 
-能发现的包括氢, 気
-Se pueden encontrar hidrógeno, deuterio
+当大国是个灾难
+Ser un país grande es un desastre
 
-包括外太空引力之外的(能源)
-Incluyendo (la energía) más allá de la fuerza gravitatoria del espacio exterior
+对中国人是短期灾难
+Y para los chinos es un desastre a corto plazo
 
-那些能源已经多到你不能想像了
-Entonces ya hay tanta energía que ya ni te puedes imaginar
+对灭共那是
+Para eliminar al PCCh
 
-外(太空)能源, 新能源
-La energía del (espacio) exterior, la nueva energía
+绝对的最佳的两个人物
+Definitivamente son los dos mejores personajes
 
-现在新能源是什么
-¿Qué es la nueva energía ahora?
+结果上桌子的人要掀桌子
+Resulta ser que la persona que se monta en la mesa quiere voltearla
 
-大家现在从石油中
-Ahora todos pueden extraer del petróleo
+现在要掀桌子
+Quiere voltear la mesa ahora
 
-能提取出一种石油氢块儿
-Una especie de hidrógeno del petróleo
+就是现在他和普京大帝
+Lo que es ahora él y el gran emperador Putin
 
-就像一块方糖一样
-Así como un cubo de azúcar
+要把桌子掀了
+Quieren voltear la mesa
 
-这个方糖就放在了一个
-Este cubo de azúcar se le pone
+能不能掀成呢
+Será que ¿logran voltearla?
 
-类似像电脑这样的东西里边
-En algo parecido como la computadora
+他是从冠状病毒, 疫苗
+Él desde el Coronavirus hasta las vacunas
 
-可以使用1000年都不用充能
-Y puede utilizar por 1000 años sin tener que recargar
+世界经济崩塌
+El derrumbe de la economía mundial
 
-太阳能, 现在的核电站
-La energía solar, el central nuclear actual
+然后从地缘政治扩张
+Luego desde la expansión geopolítica
 
-你看过西屋的核电站是什么概念
-¿Has visto el concepto de la central nuclear de Westinghouse?
+最后整合全世界的所有的
+Finalmente reune el mundo entero
 
-你知道吗
-Sabes que
+和他所谓的中弱国家
+Y sus llamados países medios y débiles
 
-西屋可以在27天内
-Westinghouse puede construir en 27 días
+形成的一股势力, 对抗西方的
+Formando así una fuerza contra el occidente
 
-给你建一个小型核电站
-Una pequeña planta de energía nuclear
+基督文明和西方的民主
+El Cristianismo y la democracia occidental
 
-马上可以达到3万到10万人使用
-Inmediamente puede darle uso de 30 mil a 100 mil personas
+资本主义社会就是独裁的政治
+La sociedad capitalista es dictadura
 
-而且人家远程控制
-Y ellos lo controlan a distancia
+对抗西方的民主的法律的政治
+La política del derecho contra la democracia occidental
 
-欧洲在新能源外太空资源
-Europa en nuevos recursos energéticos del espacio exterior
+也就是根本能看得出来
+Es lo que se puede notar
 
-甚至核电开发, 包括取暖
-Incluso el desarrollo de la energía nuclear, incluida la calefacción
+亚洲这些国家和东欧国家
+Estos países asiáticos y países de Europa del Este
 
-未来的取暖一定是大家记住
-La futura calefacción de seguro, todos recuerden
+都是什么, 都是陆地国家
+Son países terrestres
 
-是无害取暖清洁能源
-Es una calefacción inofensiva y energía limpia
+所有西方的最后现在跟这些
+Ahora el final de todo el oeste con estos
 
-而且这个地方很有可能来自
-Y este sitio probablemente se origine de
+陆地国家
+Países terrestres
 
-乌克兰和欧洲和美国
-Ucrania, Europa y EE. UU
+所谓的习太阳普大帝对抗
+El llamado lucha entre el sol Xi y el emperador Putin
 
-100%来自美国和西方国家
-100% proveniente de EE. UU y países occidentales
+都是海洋国家
+Son países marinos
 
-你中国跟人家PK那简直是胡扯
-Es absurdo que China compita con ellos
+他非常清楚的能分出来
+Él claramente puede diferenciarlo
 
-共产党跟人家比, 你比啥比
-El PCCh quiere comparar con otros, con qué comparas usted
+这个是海洋文明和陆地文明的
+Este es otro gran daño y competencia entre
 
-你压根脑子就没有
-No tienes cerebro en lo absoluto
+再一次大的一场重创和PK
+La civilización marina y la civilización terrestre
 
-所以你不要以为能源制约欧洲
-Así que no creas que el asunto de la energía limita a Europa
-的事情(会持续), 它以经过去了
-(seguirá), ya esto queda en el pasado
+同时呢, 显出东西方的文化
+Al mismo tiempo, se evidencia la cultura entre el oriente y el occidente
 
-而且会让强大的欧洲研发出
-y permitirá a que el fuerte Europa lo desarrolle
+和政治利益的大重创
+Y un golpe duro a los intereses políticos
 
-人类上最大的文明
-La civilización más grande de la humanidad
+同时显示出来的一个杂教或
+Al mismo tiempo se nota una religión miscelánea o
 
-美国的所有的
-Todo lo que es EE. UU
+没有教的国家和西方的基督教
+Países sin religiones y el cristianismo en el occidente
 
-战略经济和战略位置
-Su economía y ubicación estratégica
+天主教文明的一场大PK
+Una gran competencia de la civilización católica
 
-从过去的重欧轻亚变成重亚轻欧
-Desde el pasado que se daba más importancia a Europa y menos en Asia, ahora será al revés
+更重要的是要看到, 东西方之间
+Y lo más importante es ver entre el oriente y el occidente
 
-因为欧洲几乎跟美国成为一部份
-Porque Europa es prácticamente parte de EE. UU
+出现了一个从来没有的事情
+Aparece algo que nunca había sucedido antes
 
-诞生的德国, 乌克兰国还有日本国
-El nacimiento de Alemania, Ucrania y Japón
+就是独裁国家政治制度
+Es el sistema político de la dictadura
 
-欧洲的国防得到
-Si la defensa europea consigue
+和西方的民主制度到底谁活着
+Con el sistema democrático occidental, ¿quién sobrevivirá?
 
-美国和日本之间的联合
-La unión entre EE. UU y Japón
-
-这个世界一下子
-Este mundo en un rato
-
-就成了文明的古国
-Se convierte en una civilización antigua
-
-叫无皇有主的时代正式到来
-La era de ningún emperador ha llegado oficialmente
+日期：04/12/2022
+原视频标题：这次是海洋文明与陆地文明的再一次重创与PK
+Esta vez es otro golpe fuerte y la competencia entre la civilización marina y la civilización terrestre
 
 * * *
 
-日期：04/10/2022
-原视频标题：能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
-Las limitaciones energéticas en Europa son cosas del pasado, y la era de centrarse en Asia y menos en Europa, sin ningún emperador ha llegado oficialmente
-
-原视频日期：03/29/2021
-原视频网址：https://gettr.com/post/p12f4m44209
-任务编号：KC488（4140）
-视频时间段：0:00-2:21
+原视频日期：03/31/2021
+原视频网址：**[https://gettr.com/post/p12qrq1ff4a](https://gettr.com/post/p12qrq1ff4a)**
+任务编号：KC489（4142）
+视频时间段：0:00-2:18
 西听校：洛杉矶盘古农场-霙霙（文霙）
 翻译：洛杉矶盘古农场- 小文萱
 翻译终校：洛杉矶盘古农场-霙霙（文霙）

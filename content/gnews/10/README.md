@@ -2,24 +2,30 @@
 ---
 
 
-## 视频|共产主义的结局必将是消亡
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2349811/)
+## 中日财经爆┃中国38个城市住房价格下跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349867/)
 
-制作：香草山视频部
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中国38个城市住房价格下跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fimages01%2F20220116%2Fc8e9ee63585a4b3bb9bca8e2c55c1195.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F517021244_104543&amp;tbnid=ihhf9NkUO9o2IM&amp;vet=12ahUKEwiMjKngtZX3AhVcTPUHHZfdD4gQMygBegUIARCq)
 
-4月13日，郭文贵先生在盖特视频中再次提到，共产主义必将走向消亡的结局。
+中共国家统计局4月15日发布的3月新建房屋价格指数,主要70个城市中38个,与上个月相比下跌。
 
-郭先生提到，通过爆料革命战友的努力，世界人民已经切身地体会到了来自共产党的威胁：在乌克兰人被大量杀害的同时，中共国内的民众也难逃一劫。为此，国际社会已经深切地意识到，共产党是世界上一切问题和所有邪恶的根源，只有消灭中国共产党才能真正解决当今世界的各种问题。这其中，新中国联邦人用实际行动告诉世界，中国共产党不等同于中国人，而新中国联邦更是致力于消灭中共的新中国人。
+由于中国恒大集团等经营危机,房地产市场停滞不前,各地地方政府正在加速缓和购买管制，以期提振市场信心。
 
-此外，郭先生也解释道，虽然俄罗斯还会继续疯狂地投入战争，但这场战争将会铸造出一个以波兰和乌克兰为核心的团结欧洲。因此，对于俄罗斯乃至整个共产主义来说，其只会面临一个灾难性的收场。
+一线城市北上广深，在下跌。其他下跌的地方城市更多。但是,在中国经济的压迫压力背景下,地方政府再次增强对房地产的依赖,己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
 
-至于目前仍在波兰梅蒂卡前线的救援战友，郭先生表示，他们正在用实际行动、努力和坚持换来世界各国对新中国联邦的重视和广泛关注。而在这个历史性的时刻，郭先生勉励前线战友继续坚持，也鼓励后方战友大量传播前线信息和中共在墙内制造的人权灾难。
+信息来源：
+[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
 
-发稿：林礼
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,39 +2,30 @@
 ---
 
 
-## 中央情报局警告：绝望的普京可能祭出战术核武器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349869/)
+## 中共否认囤粮 并称自己是负责任大国还捐助他国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349914/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-79.jpg)
+图片来源：大纪元
 
-#### 翻译/编辑：文泓
+根据2022年4月13日 新浪报道，  俄罗斯和乌克兰都是全球主要粮食供应国，受冲突影响，乌克兰的农耕收到重要影响，同时其多个港口无法正常运营，而俄罗斯则正式对外宣布，接下来暂时只对友好国家出口粮食。这几年加上中共新冠疫情肆虐、极端天气层出不穷等各种因素也对粮食供应产生重大影响。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片46.png)图片来源：The National Interest & 雅典娜设计组
+面对一些对中共国带有偏见的西方政客和媒体把全球粮食供应不足的现状， 造谣称是由于中共囤积粮食导致的， 《南华早报》发表声明，“中共国没有囤积粮食。” 并称中共国每年从海外进口大量农产品，是为了填补国内的缺口，主要是解决结构性短缺的问题，这跟大规模囤积粮食没有任何联系。
+
+中共国专家指出，从全球并不存在严重缺粮的问题， 缺少的是和平与稳定的宏观经济基础，中共国甚至对外出口粮食， 不久前中共国刚刚为斯里兰卡提供了一批粮食援助，中共国作为负责任的大国用实际行动证明不仅没有囤积粮食， 反而有利于保障全球粮食安全。
+
+郭先生在3月23日的大直播中就提到俄乌战争开启了真正的潘多拉盒子，接下来就是饥荒，粮食大灾难。 全球抢粮食抢疯了，连欧洲国都是大量地囤积粮食。二级市场的粮食和可储存上的食品暴涨，中国老百姓可能未来要很快到达人吃人的境况！
+
+中共官媒一月份的报道就说进口粮食再创新高，而粮食自给率持续下降，中共国面临两个问题，1，作为粮食进口大国，以后还有没有国际愿意卖粮食给中共，2，中共以后还有没有钱进口粮食。老百姓要认清的是，中共囤粮不是为老百姓，只为了盗国贼自己！
+
+**新闻来源：**
+
+[https://k.sina.cn/article\_7517400647\_1c0126e4705903fkhp.html?from=news&sinawapsharesource=newsapp&wm=3200\_0024](https://k.sina.cn/article_7517400647_1c0126e4705903fkhp.html?from=news&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)
+
+#### [https://finance.sina.com.cn/china/2022-01-18/doc-ikyamrmz5813015.shtml](https://finance.sina.com.cn/china/2022-01-18/doc-ikyamrmz5813015.shtml)
 
 
-周四，中央情报局局长威廉·伯恩斯表示，俄罗斯在入侵乌克兰方面屡遭重挫，普京总统可能祭出战术或低当量核武器。
-
-伯恩斯在亚特兰大演讲中提示，“鉴于俄罗斯领导人可能陷入绝望，任何人都不能轻视俄罗斯可能诉诸战术核武器或低当量核武器所带来的威胁”。
-
-克里姆林宫已表示，在2月24日侵略战争开始后已将俄罗斯核力量置于高度戒备状态，但美国尚未看到大规模部署核武器的实际证据。
-
-伯恩斯说，拜登总统极力避免第三次世界大战，避免可能触及到核冲突的门槛。
-
-俄罗斯拥有许多战术核武器，其威力不如美国在二战期间在广岛投下的炸弹。俄罗斯的军事学有一个叫做“升级降级”原则，即在与西方国家的常规冲突中，如果战场局势不利，就发射低当量核武器，以夺回主动权。
-
-伯恩斯曾是美国驻俄大使，称普京是一位“报复的使徒”，多年来“一直被怨恨、野心和不安全感所包围”。
-
-“每天普京都在证明，衰落的大国（俄罗斯）至少与崛起的大国（中共国）一样具有破坏性，”伯恩斯说。
-
-新闻链接：[CIA warns desperate Putin poses nuclear threat | World News – Hindustan Times](https://www.hindustantimes.com/world-news/cia-warns-desperate-putin-poses-nuclear-threat-101649976216869.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

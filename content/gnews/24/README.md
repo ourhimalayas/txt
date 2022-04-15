@@ -2,26 +2,26 @@
 ---
 
 
-## 德军火商将向乌克兰提供豹式1型坦克
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349450/)
+## 拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349448/)
 
-作者：Naughty(文行)
+作者：小红帽
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1d67ed2883bd401f8cf0299d93afc754.jpeg)
-资料显示，莱茵金属公司是德国最大的军火商，其所制造的豹式1型战斗坦克是目前在德国武装部队服役的豹式2型坦克的前身型号，但豹1坦克仍是许多国家的主要地面作战力量。
+4月13日，据当地媒体报道，美国总统拜登日前指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，而这也是拜登政府首次对俄军使用这一术语。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.jpeg) (AP Photo/Carolyn Kaster)
+《国际法》规定，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。而根据《联合国公约》，构成种族灭绝的行为包括杀戮、严重的身体或精神伤害、施加致命的条件和措施阻止生育等等。
 
-报道提及，自俄罗斯侵略战争开始之后，德国政府改变了其不向冲突地区运送武器的长期政策，反而主动向基辅提供了大量的反坦克武器和导弹。 对此，德国外长贝尔伯克指出，乌克兰需要军事物资，尤其是重型武器，才能抵御俄罗斯军队的攻势。
+报道提及，一直以来，种族灭绝被认为是最严重的国际罪行，且由于该词语严格的法律定义和这一指责所带来的沉重影响，美国对于该罪行的认定极为谨慎。但据拜登总统在近日的采访中指出，他明确将普京下属军队在乌克兰的罪行定义为“种族灭绝”，而美国法院将进一步判定俄军的行动是否在法律层面上构成这一指控。
 
-据了解，熟练的乌克兰军事人员可以在几天内精通豹1坦克的操作技术。
+早先，拜登总统就已经将普京描述为“战争罪犯”，并呼吁全球对其暴行做出审判。
 
-参考链接：[Rheinmetall ready to supply up to 50 tanks to Ukraine – newspaper](https://www.swissinfo.ch/eng/rheinmetall-ready-to-supply-up-to-50-tanks-to-ukraine---newspaper/47508992)
+参考链接：[Biden says Russia committing genocide in Ukraine](https://www.channelnewsasia.com/world/biden-says-russia-committing-genocide-ukraine-2622651)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-编辑：玫瑰圓
+编辑：Irene木木
 总编：Irene木木
-审核：Irene木木
+审核：飞虹
 校正/发稿：呼吸的雾霾（文小呼吸）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  

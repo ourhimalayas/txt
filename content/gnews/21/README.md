@@ -2,36 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃里克·博林（Eric Bolling）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349500/)
+## 巴菲特针对推特控股之事说“马斯克在赢，这是美国”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349457/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1812.png)
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-105.jpg)
+图片来源： superpyq.com
 
-盖特链接：[https://gettr.com/user/ericbolling](https://gettr.com/user/ericbolling)
+零对冲网4月14日报道，纽约时报说根据两个知道内情的人士透露，推特委员会正在考虑采取防范性动作，例如给马斯克设陷井让他难以在这个社交巨头平台上发挥作用。
 
-埃里克·博林自述：
+这个陷井之一就是股东权利计划，该计划能够限制单一股东的运作能力，这基本上是让该公司影响新股份或允许现有的持股者而非潜在股票获得者购买降价股份。
 
-NewsmaxTV主持人，2020 @Emmys，2次纽约时报畅销书，白宫记者协会成员([\[email protected\]](/cdn-cgi/l/email-protection))
+多数自由派反对马斯克，但有一个全球著名的最富者之一却支持马斯克，他说： “ 这是美国的产物，我认为马斯克有主见，他正在赢，这是美国，你不能靠做梦，这事很惊人。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1813.png)图片来源：网络
+当马斯克提出$54.20一股的价格收购时，沙特王族在推特上回复说：“ 我不认为这个价格接近于推特成长前景的内在价值，作为一个最大的长期推特股票持有者，我拒绝这个价。” 这个有些奇怪，因为表面看起来沙特王族并不是最大的持股者。马斯克随即问： “你拥有多少股份，直接的还是间接的？王族对自由言论的观点如何？” 马斯克说，如果A计划不行，他还有B计划。
 
-埃里克·博林简介：
-
-埃里克·博林全名埃里克·托马斯·博林（ Eric Thomas Bolling，生于1963 年3月2日) 是美国电视名人、保守派政治评论员、作家和财经评论员。
-
-埃里克·博林担任过许多电视节目的财务及政治评论员。他最著名的是先后主持了福克斯商业频道（Fox Business Channel）的兑现（Cashin’ In）、福克斯新闻频道（Fox News Channel）的五人组（The Five）。目前，他在Newsmax上主持电视节目埃里克·博林-平衡（Eric Bolling The Balance）。
-
-埃里克·博林出版了两本书：《唤醒美国》（2016年）和《沼泽：华盛顿的腐败和任人唯亲的阴暗池以及特朗普如何排干它》（2017年）
-
-* * *
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+#### 新闻来源： [Buffett Says “Musk Is Winning…It’s America” As TWTR Board Ponders Poison Pill](https://www.zerohedge.com/markets/best-and-final-offer-elon-musk-offers-buy-twitter-5420-share)
 
  
 

@@ -2,38 +2,28 @@
 ---
 
 
-## 美参众议员访台，与蔡英文总统会晤
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2349479/)
+## 德军火商将向乌克兰提供豹式1型坦克
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349450/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/id13711654-2204140837042378-600x400-1.jpg)
-台湾当地时间4月14日晚，美国联邦共和党首席议员Lindsey Graham带领的参众两院议员一行6人抵达台湾。该团是本年访台的首个美国国会参众两院访问团，其成员横跨预算、外交、国土安全、卫生教育劳工、财政、军事等领域，均为国会两院的资深领袖。而Lindsey Graham曾于2016年角逐共和党总统候选人提名。
+作者：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1d67ed2883bd401f8cf0299d93afc754.jpeg)
+资料显示，莱茵金属公司是德国最大的军火商，其所制造的豹式1型战斗坦克是目前在德国武装部队服役的豹式2型坦克的前身型号，但豹1坦克仍是许多国家的主要地面作战力量。
 
-当地时间4月15日，美国参众两院议员与台湾蔡英文总统进行了会晤。该场会晤进行了现场直播，蔡英文总统感谢台湾得到了美国跨党派跨两会的支持，会为捍卫台湾的自由民主而努力。美国表示在俄乌战争之际，在共产党对台湾的威胁之下，美国访问台湾代表对台湾自由民主法治的支持，如果放弃台湾，那就是放弃了自由。中共支持普京、攻击台湾、以及对不同政见的残忍迫害等，中共所作的一切罪恶，是时候应该让他们付出代价了，世界人民正在集结力量。中共已经给美国此次访台表达了严重不满甚至威胁，但美国不会退缩。台湾的芯片科技和自由贸易经济是印太地区乃至全球的重要组成部分，台湾的安全就是全世界的安全。
+报道提及，自俄罗斯侵略战争开始之后，德国政府改变了其不向冲突地区运送武器的长期政策，反而主动向基辅提供了大量的反坦克武器和导弹。 对此，德国外长贝尔伯克指出，乌克兰需要军事物资，尤其是重型武器，才能抵御俄罗斯军队的攻势。
 
-美国会和台湾和乌克兰站在一起，愿上帝保佑台湾。
+据了解，熟练的乌克兰军事人员可以在几天内精通豹1坦克的操作技术。
 
-reference：
+参考链接：[Rheinmetall ready to supply up to 50 tanks to Ukraine – newspaper](https://www.swissinfo.ch/eng/rheinmetall-ready-to-supply-up-to-50-tanks-to-ukraine---newspaper/47508992)
 
-[https://www.epochtimes.com/gb/22/4/14/n13711579.htm](https://www.epochtimes.com/gb/22/4/14/n13711579.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-
-
-
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+编辑：玫瑰圓
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

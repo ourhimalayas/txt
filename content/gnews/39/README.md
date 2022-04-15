@@ -2,53 +2,39 @@
 ---
 
 
-## 达美航空宣布政策性逆转，将把Covid-19视为季节性病毒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2348801/)
+## 有声|被封控上海老人跳楼求助 发现居委会已瘫痪
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2348228/)
 
-作者：纽约香草山农场 – 四季
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+【大纪元4月10日讯】中共当局执行的清零政策，把老百姓全封控在家。一位上海六旬老人被逼从二楼跳下，为家里九旬老母亲寻求救治，后发现居委会已瘫痪。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image004-1.png)
+4月9日，微博上一个求助帖说，两位老人在家中，皆呈阳性，90岁老人目前肺气肿、胸闷、心脏病、高血压，另一位65岁老人从居民楼上二楼跳下去找居委，还是没有人来管。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+大纪元记者9日上午致电发帖人郭先生，他说，所在小区（徐汇区枫林路街道天钥新村）居委会已经瘫痪。记者致电天钥新村第一、二居委会，居委会工作人员坦言，“居委的所有固定、正式成员，全部都已经隔离了，现在这个居委都是由临时志愿者组成。”
 
+郭先生说他所在楼栋已经被封了五六天，一楼用锁锁著。政府已经不作为了，把老百姓封在家里不管。
 
+昨天他的外甥女也帮他一起打电话，“居委会也好，疾控也好，甚至市政府，所有他们公布的热线，打过去全是空号，没人接的。”但是，等他们把求助帖子发到微博上了，政府人员马上打电话来找他们，要求他们删帖。
 
-
-
-据美联社报4月13日报道，达美航空宣布他们已经取消了对未接种疫苗员工每月200美元的医疗保险附加费用的要求，因为该公司将Covid-19作为季节性病毒对待。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-37.jpg)[图片来源](https://www.thegatewaypundit.com/2022/04/delta-airlines-will-treat-covid-19-seasonal-flu-drops-200-surcharge-unvaccinated-employees/)
-
-4月13日，达美航空公司首席执行官埃德·巴斯蒂安在与专家和记者的通话中宣布了这一政策逆转。在接受一家媒体采访时他表示，如果联邦政府取消对公共交通的口罩规定，达美航空将不会要求乘客或员工佩戴口罩。
-
-早在去年8月，达美航空公司要求未接种疫苗的员工按月支付健康保险费，该政策还要求他们每周接受Covid-19测试。但现在，达美航空公司表示，将把住院治疗作为关键性措施。
-
-**原文阅读：**
-
-**[Delta Airlines Will Treat Covid-19 as Seasonal Virus – Drops $200 Surcharge for Unvaccinated Employees (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/04/delta-airlines-will-treat-covid-19-seasonal-flu-drops-200-surcharge-unvaccinated-employees/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
+[【援引连结】](https://www.epochtimes.com/gb/22/4/10/n13708118.htm)
 
 
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

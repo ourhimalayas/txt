@@ -2,21 +2,19 @@
 ---
 
 
-## 中日财经爆┃中国38个城市住房价格下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349867/)
+## 韩国时隔二年解除新冠病毒的规定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349887/)
 
 撰稿：东京樱花团/立正道
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中国38个城市住房价格下跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fimages01%2F20220116%2Fc8e9ee63585a4b3bb9bca8e2c55c1195.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F517021244_104543&amp;tbnid=ihhf9NkUO9o2IM&amp;vet=12ahUKEwiMjKngtZX3AhVcTPUHHZfdD4gQMygBegUIARCq)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/韩国时隔二年解除新冠病毒的规定.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3-ap-northeast-1.amazonaws.com%2Fpsh-ex-ftnikkei-3937bb4%2Fimages%2F2%2F8%2F2%2F4%2F39544282-3-eng-GB%2FCropped-1647628055RTS6CB7Q.JPG&amp;imgrefurl=https%3A%2F%2Fasia.nikkei.com%2FSpotlight%2FCoronavirus%)
 
-中共国家统计局4月15日发布的3月新建房屋价格指数,主要70个城市中38个,与上个月相比下跌。
+韩国政府于4月15日宣布,根据新感染人数减少的趋势等判断，从18日开始解除餐厅营业时间和会议人数限制等新冠病毒对策的规定。
 
-由于中国恒大集团等经营危机,房地产市场停滞不前,各地地方政府正在加速缓和购买管制，以期提振市场信心。
-
-一线城市北上广深，在下跌。其他下跌的地方城市更多。但是,在中国经济的压迫压力背景下,地方政府再次增强对房地产的依赖,己有少数城市放宽了购房条件，但是更有助长泡沫经济的担忧。
+虽然暂时维持了戴口罩的义务,但时隔约2年几乎恢复了新冠疫情前的日常生活。 韩国逐步放宽管制,现在餐厅的营业时间是到凌晨0点,从18号开始可以24小时营业。从25号开始,电影院和体育设施等也将恢复可以饮食。
 
 信息来源：
-[中国の住宅価格、３８都市で下落　３月、市況持ち直し傾向か](https://www.tokyo-np.co.jp/article/171904?rct=economics)
+[韓国、新型コロナ規制をほぼ解除　新規感染者減少、2年ぶり](https://news.yahoo.co.jp/articles/05b477b0d997460d5568d3cb513214bcf58c821d)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
