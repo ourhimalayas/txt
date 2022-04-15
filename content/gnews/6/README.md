@@ -2,44 +2,31 @@
 ---
 
 
-## 中共治下中国女人只是握在手里的工具还是裤裆里的工具
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2349177/)
+## 世卫：新冠疫情仍为&#8221;国际关注的突发卫生公共事件&#8221;
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2349283/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8819.61%EF%BC%89%E4%B8%AD%E5%85%B1%E6%B2%BB%E4%B8%8B%E4%B8%AD%E5%9B%BD%E5%A5%B3%E4%BA%BA%E5%8F%AA%E6%98%AF%E6%8F%A1%E5%9C%A8%E6%89%8B%E9%87%8C%E7%9A%84%E5%B7%A5%E5%85%B7%E8%BF%98%E6%98%AF%E8%A3%A4%E8%A3%86%E9%87%8C%E7%9A%84%E5%B7%A5%E5%85%B7%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:e)
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-**郭文贵先生：**我们看到了“锁链女”被锁24年，周围人性的冷漠、共产党的这个流氓、黑社会和整个绑架人类的体制和所谓骗了中国人几十年的“妇女半边天”，妇女半边天？连毛儿天都不是！
+4月13日，鉴于专家建议，世卫组织总干事谭德塞（ Tedros Adhanom Ghebreyesus ）博士表示，新冠疫情仍为”国际关注的突发卫生公共事件”。
 
-在中国女人就是工具，只是这个工具我握在手里边还是放在裤裆里边，还是放在了箱子里边，还是我开在手里边。开在手里的车也是你的工具，握在手里的笔也是你的工具，含在嘴里边的假牙也是你的工具，她没有同等（被）尊重。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-6.jpg)图为世卫组织总干事谭德塞（ Tedros Adhanom Ghebreyesus ）（图片来自德国之声）
 
-只是中国女性被所谓的好言好语的、对你有同等地位让你多做点饭吃，或者绑在链子上。在中国的人眼里边，女人就是工具，只是哄着来还是绑着来的问题。
+据《德国之声》报道，世界卫生组织突发事件委员会此前建议，不取消自2020年1月底以来的这一定位。该委员会负责人胡辛（Didier Houssin ）在日内瓦表示，委员会一致认为，解除警报的时机尚不成熟。
 
-字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
+胡辛说：“病毒仍在迅速传播，并继续以不可预测的方式变化，死亡率依旧很高。”
 
-编辑整理：星塵Scheddi；
+对于，目前有越来越多的国家大幅放松以至取消防疫措施，这位专家明确警告，不应 “放松警惕”，相反，政府须 “审查其政策，准备应对新挑战”。
 
-字幕文件制作：小满；
+依据专家建议，世界卫生组织总干事谭德塞博士13日表示，继续将新冠大流行瘟疫列为 “国际关注的突发卫生公共事件”。
 
-视频制作及上传：Cindy；
+2020年1月30日，世卫组织宣布新型冠状病毒（中共病毒）疫情为国际关注的突发公共卫生事件。另外，自新冠大流行瘟疫爆发迄今，全球已有600多万人死亡，正式登记的染疫病例近5亿。
 
-G-News发布：海賊王M.D.LUFFY；
+参考链接：
+1. [https://reurl.cc/rDdgXk](https://reurl.cc/rDdgXk)
+2. [https://news.un.org/zh/story/2020/01/1050102](https://news.un.org/zh/story/2020/01/1050102)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+总编：青城道姑
+校对发布： 文曦
 
  
 

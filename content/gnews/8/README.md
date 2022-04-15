@@ -2,27 +2,32 @@
 ---
 
 
-## 波兰政府发放新中国联邦乌克兰救援行动志愿者证
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2349172/)
+## 岸田首相明确态度：无意派大使去游说普京
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349270/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/岸田首相明确态度：无意派大使去游说普京.png)（图片源自本文链接）
 
-4月14日，波兰政府发放注名“新中国联邦”乌克兰救援行动的志愿者证。对此，网友表示，这是继比利时后又一主权国家的外交默认。
+4月15日FNN综合在线消息：关于俄罗斯入侵乌克兰的问题，岸田首相否认他将派遣前首相安倍晋三作为特使前往俄罗斯，他说他目前无意派遣特使。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-9.jpg)图为波兰政府发放的志愿者证（图片来自GETTR）
+在15日的参议院全体会议上，岸田首相被问及是否会派遣与普京总统建立了密切关系的前首相安倍晋三作为外交特使前往俄罗斯阻止俄罗斯的军事行动。他回答说：德国、法国、奥地利等国已经直接游说普京总统，但没有迹象表明普京愿意做出妥协。
 
-今日，新中国联邦的乌克兰前线救援战友发盖文表示，波兰政府发放了新中国联邦乌克兰救援行动的志愿者证，上面直接写的是新中国联邦，并附上注名“New Federal State Of China(新中国联邦)”的志愿者证照片。
+岸田首相随后明确否定了派遣前首相安倍晋三作为特使前往俄罗斯的可能性。并表示，俄罗斯有必要倾听国际社会的声音。他还说，有必要对俄罗斯采取强有力的制裁措施，以停止其侵略行为，目前无意派遣特使。
 
-对此，有网友表示，这是继比利时后又一主权国家在外交上默认新中国联邦。4月12日，比利时总统亚历山大·德克罗接受新中国联邦记者Nicole的采访并主动和穿戴有“Take down the Chinese Communist Party（消灭中国共产党）”标识的黄色马甲及帽子的Nicole合影留念。
+被问及岸田首相亲自访问乌克兰并与泽伦斯基总统举行直接会谈的可能性时，他说：我们将考虑当地的情况等因素，不断思考什么是适合我国的做法。
 
-另外，截至4月13日，由新中国联邦法治基金和法治社会发起的乌克兰救援行动已经持续了40天，梅迪卡救援站累计接待约11429人，救援巴士累计发车39次，从乌克兰战区安全撤离2009位乌克兰难民。
+信息来源： 
+[安倍元首相ロシア派遣に「現時点で特使派遣の考えない」　岸田首相（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7b634e2b553aec401e38a5e7ce7fb6f2ba4d9d20)
 
-参考链接：
-1.[https://www.gettr.com/post/p15ax1f6fc6](https://www.gettr.com/post/p15ax1f6fc6)
-2.[https://www.gettr.com/post/p15a9w113ca](https://www.gettr.com/post/p15a9w113ca)
-
-总编：青城道姑
-校对发布： 文曦
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

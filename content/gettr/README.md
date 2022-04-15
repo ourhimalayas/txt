@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 4:20 AM (UTC)`
+
+4/10/2022 Miles Guo:  Mr. Miles Guo sent a message to our fellow fighters especially living in mainland China:  listen to the songs created by our fellow fighters in the Whistleblowers' Movement, learn to be at peace with what has happened and let go of your hang-ups, and survive the hard time!<br/><br/>4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关<br/>
+![img](https://media.gettr.com/group49/getter/2022/04/15/04/78833075-2d89-ac68-8f4d-2e707517ca5d/out.jpg)
+
+---
+
+`@miles 4/15/2022 4:19 AM (UTC)`
+
+4/10/2022 Miles Guo: The fact that both The Terminator Snow and Chained Dream can hit the charts at the same time has a big impact on the world; One of famous singers in China, who is also our fellow fighter, is working on a song for Mr. Guo;  a famous Hollywood lyricist who was inspired by Mr. Guo’s broadcasts is planning to work with popular Hollywood dancers and backing singers to write a full English song “One Hundred Percent” for the New Federal State of China, and Mr. Guo will be the lead singer.<br/><br/>4/10/2022文贵直播：《灭共的雪》和《铁锁梦》同时打榜影响巨大；国内著名歌手战友正在给郭先生写新歌；好莱坞有名的作词人从郭先生直播中得到灵感，准备联合好莱坞最火的伴舞和伴唱，为新中国联邦打造歌名为“One Hundred Percent”的一首全英文歌，由郭先生亲自主唱。<br/>
+![img](https://media.gettr.com/group31/getter/2022/04/15/04/e742716b-173e-fb23-b118-2f958556338c/out.jpg)
+
+---
+
 `@miles 4/15/2022 3:51 AM (UTC)`
 
 【Ukraine Rescue】04/14/2022 A volunteer from Spain says his father was a member of the Communist Party in the former Yugoslavia. But he was changed by God then left the Communist Party. He believes that the CCP members could change as well because people joined the Communist Party just for a living. As long as we are willing to be the light that shines in the world, we can definitely defeat the Communist Party of China！<br/><br/>【乌克兰救援】04/14/2022 一位来自西班牙的志愿者说，他的父亲也是前南斯拉夫共产党员，后来在上帝感召下脱离了共产党。 他认为中国的共产党员也会改变，人们不过是为了生存不得不加入共产党。只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！
@@ -138,20 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 2022-4-14《避风港》(36) 专家预警：疫苗即将带来深重灾难
 ![img](https://media.gettr.com/group49/origin/2022/04/14/19/9c3af3b9-4380-4ea0-5957-185038c210bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 5:50 PM (UTC)`
-
-04.14.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group11/origin/2022/04/14/17/1bdd8397-926f-cbf5-94b8-88aa090f99c9/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/14/2022 4:46 PM (UTC)`
-
-4/14/2022 Miles Guo: Most of Taiwan's military and Intelligence Services have been bought off by the CCP; the drones purchased by Taiwan are indeed made in Communist China!<br/><br/>4/14/2022 文贵直播：台湾的军队以及情报部门绝大多数已被CCP收买，台湾的无人机来自中共国！<br/>
-![img](https://media.gettr.com/group5/getter/2022/04/14/16/85d32bd1-098a-ab09-afec-82ee296a16a3/out.jpg)
 
 ---
 
