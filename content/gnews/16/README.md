@@ -2,29 +2,26 @@
 ---
 
 
-## 有声|新中国联邦与德国天主教公益组织合作救援
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2353346/)
+## 安大略省第六波新冠病毒疫情
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353366/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-4月13日，新中国联邦、法治基金救援团队，与德国著名天主教人道救援组织马尔特瑟（Malteser International）合作，成功营救7名国际友人和一只宠物狗。
+采编/撰稿： 加拿大温哥华扬帆农场 – 文莱
 
-据前线战友连线报导，日前，该人道救援组织与新中国联邦战友取得联系，寻求合作，帮助7名国际友人逃离乌克兰。经过精心安排和组织，新中国联邦救援团队在梅迪卡口岸，顺利接应这7位国际友人，并为他们提供3天免费食宿。13日，新中国联邦前线救援团队悉心准备了充足的口罩、食物和水，并护送他们登上前往德国的巴士。该组织盛赞新中国联邦的此次救援工作。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500520611.png)图片来源：CTV News
 
-文字版原文：[新中国联邦与德国天主教公益组织合作救援](https://gnews.org/zh-hans/2351286/)
 
-音频处理：Fei797
-发稿：Fei797
+据【CTV新闻】4月14日报道，安大略省当天大约有65%的医院重症监护患者正在接受“新冠病毒”治疗，而其余35%的患者在因其他疾病入院后也感染该病毒，其中有23人因此死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+报道称，安省因奥密克戎新变体感染而住院的患者在过去五天中持续增加。同时，生活废水数据表明，该省的感染人数不断飙升，预估值约为每天10万例。此外，目前全省人口的病毒阳性率约为18.1%，高于4月初的17%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据最新疫情报告显示，由于病毒检测设备和人员的严重不足，安省真实确诊率应该被大幅低估。卫生部门因此将于近期发布最新数据模型，以掌握第六波疫情的数据变化。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940](https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,34 @@
 ---
 
 
-## 加拿大政府储备的大量疫苗已过期
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2353325/)
+## 莫斯科号导弹巡洋舰沉没对俄罗斯造成多大损失
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353338/)
 
-采编/撰稿： 加拿大温哥华扬帆农场 – Spirit
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16500511781-1.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据[CTV新闻]4月13日报道，加拿大卫生部当天表示，由于自今年1月份以来新冠病毒接种人数的大幅减少，全国库存的大量疫苗已经过期。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/TXFKJFTUTNKUFIQUHSHSGWQGQA.jpg)
 
-据悉，该数量为150万剂过期疫苗占加拿大政府自2020年12月以来，所总共购买1.18亿剂的2%，其中莫德纳疫苗就有约50万剂。而在目前1800多万剂库存疫苗中，绝大部分都将在未来四个月内过期。
 
-报道称，由于加拿大卫生部正在等待疫苗制造商关于是否可以延长有效期的通知，因此，以上已过期的疫苗将不会被立即销毁。
+图片来源：路透社
 
-校对编辑：硫酸羟氯喹64
+4 月 15 日（路透社）俄罗斯证实，其黑海舰队的旗舰莫斯科导弹巡洋舰在被拖到港口时沉没，据称这是因为船上存放的弹药发生火灾和爆炸。
 
-发稿：文莱
+乌克兰表示，莫斯科号被其军队从海岸发射的导弹袭击，该导弹撕裂了这艘庞大的苏联时代船只的船体。俄罗斯国防部尚未证实该事件的版本。路透社无法核实任何一方的说法。
 
-新闻来源： [https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
+下沉使俄罗斯丧失了哪些能力？
+
+俄罗斯在克里米亚部署了强大的防空系统，并于 2014 年从乌克兰手中夺取了该系统，但莫斯科能够为整个黑海舰队提供远程和移动防空保护，并且是一个浮动指挥和控制中心。它的损失降低了舰队的防空能力，特别是在远程任务中。
+
+这艘船有大约 500 名船员，俄罗斯称他们已成功撤离到其他船只，然后于周五返回其位于克里米亚的母港塞瓦斯托波尔。乌克兰曾暗示可能有人死亡，但俄罗斯尚未就此事发表任何评论。
+
+莫斯科号的沉没不太可能改变整个战争进程，英国国防部表示，其损失可能会促使俄罗斯重新审视其在黑海的海军态势。不愿透露姓名的美国官员表示，虽然沉没将产生象征性影响，并可能引发对俄罗斯长期海军能力的质疑，但不太可能对冲突进程产生重大影响。到目前为止，俄罗斯海军还没有发挥重要作用。
+
+🔗[https://www.reuters.com/world/europe/how-big-loss-russia-is-sinking-moskva-missile-cruiser-2022-04-15/](https://www.reuters.com/world/europe/how-big-loss-russia-is-sinking-moskva-missile-cruiser-2022-04-15/)
+
+编辑发表： Shuizhuyu
 
  
 
