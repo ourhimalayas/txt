@@ -15,77 +15,77 @@
 
 ---
 
-### [战友贴现喜币六七亿美元,赵长鹏单伟建和单博一定完蛋](/content/gnews/1/README.md)
+### [币安骗掉所有投资者VS一币不名的七哥让战友们发大财](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [20220414郭文贵乱聊直播 ：未来一两年，国内的战友需要备好现金粮食水和安全的居所](/content/gnews/2/README.md)
+### [20220414郭文贵乱聊直播 ：独裁国家俄罗斯和中国共产党，相信他们就会成为他们的奴隶](/content/gnews/2/README.md)
  ` Tokyo Sakura Video Group`
 
-### [碰上普京拜登加上欧洲法国英国美国选举换届习近平危矣](/content/gnews/3/README.md)
+### [以防疫行暴政，每个国人都有权推翻中共（政治篇）](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [大难来临新中国联邦让你有战友有币有情报让你开智明眼](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [上海正面临物资供应链崩溃的危险](/content/gnews/4/README.md)
+### [战友贴现喜币六七亿美元,赵长鹏单伟建和单博一定完蛋](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [20220414郭文贵乱聊直播 ：未来一两年，国内的战友需要备好现金粮食水和安全的居所](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [碰上普京拜登加上欧洲法国英国美国选举换届习近平危矣](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [上海正面临物资供应链崩溃的危险](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [拜登巧妙地把国际怨声和疫苗伤害病毒伤害推到中共一边](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [04/15/22 香港快讯 理工大学勒令学生会停用理工大学的字眼](/content/gnews/6/README.md)
+### [04/15/22 香港快讯 理工大学勒令学生会停用理工大学的字眼](/content/gnews/9/README.md)
  ` 英喜-粵語組`
 
-### [拜登明确不离开中国前提是病毒溯源杨洁篪王毅彻底打蔫](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美跨党派参众两院资深议员抵达台湾访问](/content/gnews/8/README.md)
+### [中共工商银行暂停个人外汇业务](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [俄罗斯“断箭”：担忧核导弹与普京的旗舰一起沉没](/content/gnews/9/README.md)
+### [美跨党派参众两院资深议员抵达台湾访问](/content/gnews/11/README.md)
+ ` NFSC News`
+
+### [俄罗斯“断箭”：担忧核导弹与普京的旗舰一起沉没](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登总统把中共玩个半死并看穿中共背后支持俄罗斯真相](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【 蓝枫法律 】 如何面对疫苗灾难、经济灾难与排华](/content/gnews/11/README.md)
+### [【 蓝枫法律 】 如何面对疫苗灾难、经济灾难与排华](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [台湾军方购买中共无人机 恐现“木马屠城”惨剧](/content/gnews/12/README.md)
+### [台湾军方购买中共无人机 恐现“木马屠城”惨剧](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [何以解忧 唯有灭共](/content/gnews/13/README.md)
+### [喜币成为全世界最流行最早 的数字法币](/content/gnews/15/README.md)
  ` MilesGuoLivePPT`
 
-### [【 蓝枫法律 】 加拿大反种族歧视概述](/content/gnews/14/README.md)
+### [何以解忧 唯有灭共](/content/gnews/16/README.md)
+ ` MilesGuoLivePPT`
+
+### [【 蓝枫法律 】 加拿大反种族歧视概述](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/15/README.md)
+### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [西班牙大学生喜爱“推翻中共”的背心](/content/gnews/16/README.md)
+### [西班牙大学生喜爱“推翻中共”的背心](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [中共面临经济崩溃，籍疫情借刀杀人](/content/gnews/17/README.md)
+### [中共面临经济崩溃，籍疫情借刀杀人](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [大饥荒又来了 你准备好了吗](/content/gnews/18/README.md)
- ` MilesGuoLivePPT`
-
-### [中国民众开始觉醒不再相信中共党媒宣传洗脑](/content/gnews/19/README.md)
+### [中国民众开始觉醒不再相信中共党媒宣传洗脑](/content/gnews/21/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [【 蓝枫法律 】 关于仇恨犯罪的相关补充内容](/content/gnews/20/README.md)
+### [【 蓝枫法律 】 关于仇恨犯罪的相关补充内容](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声｜天津铁路段两货运列车相撞 11节车厢坠落桥下](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [由于市场快速复苏墨尔本租户相继离开](/content/gnews/22/README.md)
+### [由于市场快速复苏墨尔本租户相继离开](/content/gnews/23/README.md)
  ` 走进澳洲`
 
-### [俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没](/content/gnews/23/README.md)
+### [俄罗斯证实黑海军舰莫斯科娃号在爆炸后沉没](/content/gnews/24/README.md)
  ` 日本東京方舟農場`
-
-### [7•24系列——比利时首相亚历山大•德克鲁](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [4/15/2022国际财经快讯：马斯克向Twitter提出430亿美元报价；英国实施有史以来最大规模资产冻结](/content/gnews/25/README.md)
  ` 秘密翻译组金融团队`
