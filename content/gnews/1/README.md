@@ -2,49 +2,68 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.15）&#8211;打完第三针加强针疫苗后淋巴结肿大
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350497/)
+## 快讯：马斯克提出430亿收购Twitter 将其转变为“私人公司”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350560/)
 
-#### **雅典娜情报组《疫苗灾难收集专栏》**
+翻译： Jenny Ball
 
-**整理:  BENJ1
-编辑：BENJ1**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-31.jpg)
 
 
-#### 【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-69.png)图片来源：thegatewaypundit.com
 
-帖子原文：
+根据周四提交给美国证券交易委员会（SEC）的一份文件，特斯拉首席执行官兼 SpaceX 创始人埃隆·马斯克提出了以 430 亿美元或每股 54.20 美元的价格收购 Twitter 的最佳和最终报价。
 
-博主：小苹果
-打完第三针加强针疫苗后淋巴结肿大
+埃隆马斯克希望将 Twitter 转变为一家私人公司，因为他意识到，“该公司当前形式，既不会兴旺发达，也不会服务于言论自由。”
 
-2月28号打的第三针，三天后脖子摸到一颗颗东西，去医院做B超显示左侧淋巴结肿大，最大那颗1cm，医生没开药，只说先观察，你们第三针打完后有颈部淋巴结肿大吗
+本月早些时候，特斯拉首席执行官兼 SpaceX 创始人埃隆·马斯克以被动股东购买了 Twitter 9.2% 的股份。
 
-评论选集：
+(注释： 保持“被动”股东，既那些不寻求影响或改变公司控制权的人)
 
-#### [小苹果(作者)](https://www.xiaohongshu.com/user/profile/599463ae82ec397e998fbda9) 回复：
+根据美国SEC披露的一份监管文件，这使得埃隆·马斯克在购买了价值 28.9 亿美元的股票后，成为 Twitter 的最大股东。
 
-打了第三针加强针疫苗，过三天就淋巴结肿大了
+马斯克在一项交易中被指定为 Twitter 的董事会成员之一，该交易将禁止他拥有这家媒体巨头 14.9% 以上的普通股，但他拒绝了这一提议。
 
-#### [乐(yue)乐](https://www.xiaohongshu.com/user/profile/58953cda6a6a691de412a2aa) 回复：
+周二，一群愤怒的 Twitter 股东起诉埃隆·马斯克，等待太久才披露他在公司 9.2% 的股份。
 
-我有腹股沟淋巴结肿大
+现在，根据他周四的推文，埃隆·马斯克提出购买 Twitter 100% 的股份。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-48.png)图片来源：小红书
+马斯克向推特董事会主席布雷特·泰勒（Bret Taylor）发出正式信函：
 
+我投资 Twitter 是因为我相信它有潜力成为全球言论自由的平台，而且我相信言论自由对于一个正常运转的民主国家来说是社会当务之急。
 
-素材来源：[打完第三针加强针疫苗后淋巴结肿大](http://xhslink.com/CoFlKg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+但是，自从进行投资以来，我现在意识到，以目前的形式该公司既不会蓬勃发展，也不会服务于这种社会需求。Twitter 需要转型为一家私营公司。
 
-发布：文武全才
+因此，我提出以每股 54.20 美元的现金购买 Twitter 100% 的股份，比我开始投资 Twitter 前一天溢价 54%，比我公开宣布投资前一天溢价 38%。我的报价是我最好的，也是最终的报价，如果不被接受，我需要重新考虑我作为股东的地位。Twitter具有非凡的潜力。我会将（这个潜力）释放。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+据 CNBC 报道，Twitter 的市值约为 370 亿美元，马斯克提出以约 430 亿美元的价格收购 Twitter。
+
+《彭博社》报道：
+
+这位世界首富将以每股 54.20 美元的现金出价，对 Twitter 的估值约为 430 亿美元。这家社交媒体公司的股价在纽约开盘时仅上涨 5.3% 至 48.27 美元，因为投资者开始评估该平台最直言不讳的用户之一，将在他的收购尝试中取得成功。
+
+现年 50 岁的马斯克，在拒绝了该公司潜在的董事会席位后，于周四提交给美国SEC的文件中宣布了这项潜在交易。这位同时控制特斯拉公司的亿万富翁于 4 月 4 日首次披露其持有约 9% 的股份。消息传出后，特斯拉股价下跌约 1.8%。
+
+Twitter 表示，其董事会将审查该提案，任何回应都将符合“所有 Twitter 股东”的最大利益。
+
+此次出价是马斯克与社交媒体平台之间风险最高的冲突。这位高管是 Twitter 上最受关注的煽动者之一，经常向@elonmusk 账号超过 8000 万的粉丝发布备忘录和嘲讽。他一直在大声疾呼他想考虑在社交媒体平台上实施的改变，公司在宣布他持有 33.5 亿美元的股份后，为他提供了一个董事会席位。
+
+新闻来源：[BREAKING: Elon Musk Wants to Buy Twitter for $43 Billion and Transform It Into ‘Private Company’](https://www.thegatewaypundit.com/2022/04/elon-musk-wants-buy-twitter-43-billion-transformed-private-company/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=2022-04-14)
+
+* * *
+
+审核：文乐
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
 
  
 

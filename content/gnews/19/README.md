@@ -2,220 +2,73 @@
 ---
 
 
-## 能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349880/)
+## COVID-19疫苗副作用集萃（2022.4.15）第三针加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350020/)
 
-星空链就这么厉害
-El Starlink es así de poderoso
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-现在的新兴能源
-La energía emergente de hoy en día
+整理/编辑：红红火火
 
-是一种真正的在太空外面
-Es algo que verdaderamente está afuera en el espacio
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-30.png)图片来源：雅典娜设计组(614)
 
-伊隆-马斯克会从外星球
-Elon Musk desde un planeta alienígena
 
-给你带回来外星球(上的东西)
-Te traerá de vuelta las cosas del planeta alienígena
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-像未来的钻石一毛钱都不值
-Así como los futuros diamantes que no valdrán nada
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-黄金也不值钱
-Tampoco el oro
+**博主:瑰宝儿**
 
-包括整个外太空的各种金属
-Incluyendo todo tipo de metales en todo el espacio exterior
+**帖子原文：**
 
-(他只要)从月球上
-Desde la luna, (él sólo)
+**为什么我打了加强针反应这么大啊！！！**
 
-他随便带两次(回来)
-Trae (de regreso) dos veces
+3.30 早上去打了加强针，接种的是重组疫苗（腺病毒载体），整个白天没啥反应
 
-黄金价格就跌到可能白菜价了
-El precio del oro bajará al precio del repollo
+晚上下班开始不舒服发寒战、乏力、头晕感觉要生病
 
-伊隆-马斯克就有这本事
-Elon Musk tiene esta capacidad
+回家没洗澡就睡了，越睡越不舒服半夜开始发高烧到38.9℃
 
-不用别人, 你说还囤黄金吗
-No se necesita otra persona, tú dices que ¿todavía se debe almacenar oro?
+家里没有退烧药就只能一直喝水扛着
 
-囤钻石, 你要我给你拉几车去
-O diamantes, si quieres te traigo unos cuantos camiones de oro y diamantes
+一整晚睡不好做噩梦第二天醒来还是发烧
 
-他只要对着话筒一说
-Él sólo habla por el micrófono
+3.31 上午烧到39℃，实在扛不住了，觉得是疫苗不良反应赶紧去了医院，医院让我去成都指定收治发热病人的医院
 
-我要到月球上采几吨钻石回来
-Voy a la luna a extraer toneladas de diamantes
+3.31 下午一点来到公共医疗卫生中心，被告知必须留管检查，下午小姐姐给我抽血、核酸检测、照CT。下午说肺部有些感染吓死我了，我心想我天天认真工作哪也没去谁也没接触啊打个疫苗咋还打出感染了呢。给我开了莲花清瘟和儿童退烧药，退烧药效果巨好我就吃了15ml就退烧了。
 
-钻石啪就不值钱了
-En seguida, los diamantes no valen nada
+晚上核酸结果出来正常。但是因为肺部有感染医生依然不放我出院。
 
-什么钻石恒久远
-Que si los diamantes duran para siempre
+4.1 在医院房间隔离了一天，期间昨晚鼻拭子、咽拭子，话说鼻拭子的滋味简直了（呕，做完我都要咳了），烧是完全退了，不舒服的症状也没了，可打针的手臂却越来越痛。
 
-那是胡扯呢
-Pura mentira
+4.1 晚两次核酸结果都是阴性放我回家了。
 
-因为少而为贵
-Es costoso por lo poco que hay
+4.3 今天离我打疫苗已经过去了4天了，但是我打针的手臂红肿得厉害，又痒又痛，摸着皮肤还烫，手臂抬都抬不起来，丝毫不见好转。
 
-那么能源呢, 所有能源
-¿Qué pasa con la energía? Toda la energía
+想问红薯们打完加强针就只有我一个人这么大反应么？？？
 
-现在已经有好多种, 特别在月球上
-Ahora hay muchos tipos, especialmente en la luna
+**#****新冠疫苗****  #****疫苗加强针**** #胳膊红肿痒**
 
-能发现的包括氢, 気
-Se pueden encontrar hidrógeno, deuterio
+**发布于 2022-04-15**
 
-包括外太空引力之外的(能源)
-Incluyendo (la energía) más allá de la fuerza gravitatoria del espacio exterior
+**精选评论**
 
-那些能源已经多到你不能想像了
-Entonces ya hay tanta energía que ya ni te puedes imaginar
+萤火虫那年:一样啊，我现在正在烧着，白天打得时候一点事没有，后半夜开始冷，巨冷，然后又烫，一天过去了，还是晕乎乎，还是烫，没胃口，想吐，没力。。除了皮肤正常，其他不良反应都中了
 
-外(太空)能源, 新能源
-La energía del (espacio) exterior, la nueva energía
+瑰宝儿(作者) : 不行还是得去医院，不良反应不要自己治
 
-现在新能源是什么
-¿Qué es la nueva energía ahora?
+鑫鑫瘦了20斤啦！ : 我昨天打的今天身上特别热还睡不着
 
-大家现在从石油中
-Ahora todos pueden extraer del petróleo
+萤火虫那年 : 嗯嗯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1816.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1817.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1818.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1819.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1820.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1821.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1822.png)图片来源：小红书
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
-能提取出一种石油氢块儿
-Una especie de hidrógeno del petróleo
+发布：tianzhihuan
 
-就像一块方糖一样
-Así como un cubo de azúcar
-
-这个方糖就放在了一个
-Este cubo de azúcar se le pone
-
-类似像电脑这样的东西里边
-En algo parecido como la computadora
-
-可以使用1000年都不用充能
-Y puede utilizar por 1000 años sin tener que recargar
-
-太阳能, 现在的核电站
-La energía solar, el central nuclear actual
-
-你看过西屋的核电站是什么概念
-¿Has visto el concepto de la central nuclear de Westinghouse?
-
-你知道吗
-Sabes que
-
-西屋可以在27天内
-Westinghouse puede construir en 27 días
-
-给你建一个小型核电站
-Una pequeña planta de energía nuclear
-
-马上可以达到3万到10万人使用
-Inmediamente puede darle uso de 30 mil a 100 mil personas
-
-而且人家远程控制
-Y ellos lo controlan a distancia
-
-欧洲在新能源外太空资源
-Europa en nuevos recursos energéticos del espacio exterior
-
-甚至核电开发, 包括取暖
-Incluso el desarrollo de la energía nuclear, incluida la calefacción
-
-未来的取暖一定是大家记住
-La futura calefacción de seguro, todos recuerden
-
-是无害取暖清洁能源
-Es una calefacción inofensiva y energía limpia
-
-而且这个地方很有可能来自
-Y este sitio probablemente se origine de
-
-乌克兰和欧洲和美国
-Ucrania, Europa y EE. UU
-
-100%来自美国和西方国家
-100% proveniente de EE. UU y países occidentales
-
-你中国跟人家PK那简直是胡扯
-Es absurdo que China compita con ellos
-
-共产党跟人家比, 你比啥比
-El PCCh quiere comparar con otros, con qué comparas usted
-
-你压根脑子就没有
-No tienes cerebro en lo absoluto
-
-所以你不要以为能源制约欧洲
-Así que no creas que el asunto de la energía limita a Europa
-的事情(会持续), 它以经过去了
-(seguirá), ya esto queda en el pasado
-
-而且会让强大的欧洲研发出
-y permitirá a que el fuerte Europa lo desarrolle
-
-人类上最大的文明
-La civilización más grande de la humanidad
-
-美国的所有的
-Todo lo que es EE. UU
-
-战略经济和战略位置
-Su economía y ubicación estratégica
-
-从过去的重欧轻亚变成重亚轻欧
-Desde el pasado que se daba más importancia a Europa y menos en Asia, ahora será al revés
-
-因为欧洲几乎跟美国成为一部份
-Porque Europa es prácticamente parte de EE. UU
-
-诞生的德国, 乌克兰国还有日本国
-El nacimiento de Alemania, Ucrania y Japón
-
-欧洲的国防得到
-Si la defensa europea consigue
-
-美国和日本之间的联合
-La unión entre EE. UU y Japón
-
-这个世界一下子
-Este mundo en un rato
-
-就成了文明的古国
-Se convierte en una civilización antigua
-
-叫无皇有主的时代正式到来
-La era de ningún emperador ha llegado oficialmente
-
-* * *
-
-日期：04/10/2022
-原视频标题：能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来
-Las limitaciones energéticas en Europa son cosas del pasado, y la era de centrarse en Asia y menos en Europa, sin ningún emperador ha llegado oficialmente
-
-原视频日期：03/29/2021
-原视频网址：https://gettr.com/post/p12f4m44209
-任务编号：KC488（4140）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

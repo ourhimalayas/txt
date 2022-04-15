@@ -2,43 +2,30 @@
 ---
 
 
-## 马斯克报价430亿美元收购推特，以建立 &#8220;言论自由的竞技场&#8221;
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2350275/)
+## 樱花时政┃美议员访问团抵台将与蔡英文会面
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350400/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-306.jpg)图片来自网络
-《路透社》近日报道，亿万富翁企业家埃隆-马斯克周四提出了430亿美元的现金收购要约，这位特斯拉CEO表示，这家社交媒体公司需要被私有化来发展，成为一个自由言论的平台。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-310.jpg)[图片来源](https://asia.nikkei.com/Politics/International-relations/Six-U.S.-lawmakers-arrive-in-Taiwan-on-unannounced-trip)
 
-马斯克已经是总部位于旧金山的推特第二大股东，他在温哥华举行的TED讲座上被问及他的出价时说：”我认为为自由言论提供一个包容性的舞台非常重要。”
+美国参众议员访问团4月14日搭机抵达台北松山机场，台湾外长吴钊燮亲自前往接机。该访团预计在台展开两天行程，并在周五上午与台湾总统蔡英文会面。访团由美国参议院外交委员会主席梅南德兹率领，一共有6名议员。
 
-马斯克周三在给推特董事会的一封信中提出了竞标，这个微博平台已经成为个人和世界领导人的全球交流手段，并在周四的一份监管文件中被公开。他的收购价为每股54.20美元，比推特4月1日的收盘价高出38%，这是他公开持有该社交媒体平台9.1%股份前的最后一个交易日。
+路透社报道，梅南德兹是台湾的坚定支持者。今年2月，他提出法案，要求美国将“台湾代表处”更名为“驻华盛顿大使馆，”此外，还包含曾于2016年角逐共和党总统候选人提名的参议员葛瑞姆、波尔、波特曼、赛斯、众议员杰克森. 台北经济文化代表处称，美国议员访团此次赴台，是为了“ 美台关系、区域安全和其他共同关心的重大问题 ”的会谈。
 
-根据福布斯的统计，马斯克是世界上最富有的人，拥有2736亿美元的财富，在披露他的股份后，他在周六拒绝了加入推特董事会的邀请，分析人士称此举表明了他的收购意图，因为董事会席位会将他的持股比例限制在15%以下。
+台总统府发言人张敦涵及台湾外交部在声明中表示，在乌克兰的“严峻”情势下，美国议员此次访问不仅彰显了美国两党对台湾的支持，也显示了台美关系“坚如磐石”!
 
-在他的TED演讲之后，马斯克暗示了敌意收购的可能性，他将绕过推特的董事会，直接向其股东提出要约，他在推特上写道。”如果不把这个提议提交给股东投票，那将是完全无法辩解的。”
+#### 信息来源：[Six U.S. lawmakers arrive in Taiwan on unannounced trip](https://asia.nikkei.com/Politics/International-relations/Six-U.S.-lawmakers-arrive-in-Taiwan-on-unannounced-trip)
 
-知情人士告诉路透社说推特将向高盛及威尔逊‧桑西尼‧古奇‧罗沙迪律师事务所寻求建议，审议马斯克的出价。该消息人士称，该公司还在准备一个毒丸防御，作为防止马斯克最早在周五提高股份的保护措施。
+编辑：东京樱花团/深藏不露
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-周四，推特的股票收盘下跌1.7%。
-
-投资者并不信服。
-
-沙特阿拉伯的阿尔瓦利德-本-塔拉勒王子从他的认证账户中发推文介绍了这项交易。他称自己是 “推特最大的长期股东 “之一，并称马斯克的报价低估了公司的价值，他拒绝了这一报价。
-
-马斯克则告诉推特，这是他的 “最佳和最终报价”，并表示如果董事会拒绝，他将重新考虑其投资。
-
-“这不是一种赚钱的方式，”马斯克在TED演讲中说。
-
-马斯克补充说：”我强烈的直觉是，拥有一个最大限度信任和广泛包容的公共平台，对人类文明的未来极为重要。”
-
-参考链接：
-
-[https://www.reuters.com/technology/elon-musk-offers-buy-twitter-5420-per-share-2022-04-14/](https://www.reuters.com/technology/elon-musk-offers-buy-twitter-5420-per-share-2022-04-14/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

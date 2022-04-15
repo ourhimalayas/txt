@@ -2,20 +2,39 @@
 ---
 
 
-## 樱花时政┃俄罗斯停止石油数据发布
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2347727/)
+## 有声|国会信任投票失利 巴基斯坦总理伊姆兰•汗遭到罢黜
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2348226/)
 
-撰稿：东京樱花团/加一颗稻草
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+【路透伊斯兰堡4月10日 】  巴基斯坦总理伊姆兰·汗周日在国会的信任投票中失利，遭到罢黜。此前联合政府的盟友弃他而去，指责他导致经济摇摇欲坠，且未能兑现竞选承诺。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image002-1.png)
+69岁的伊姆兰·汗在位三年半后被赶下台，国会将于周一开会选举新总理。
 
-4月14日路透社，俄罗斯能源部周四表示，正在限制获取其石油和天然气生产和出口统计数据。编制数据的部门单位CDU TEK没有在4月2日发布月度数据，这是多年来首次出现此类延迟。该部表示：“在限制条件下，该行业的统计数据对操纵非常敏感，这会危及CDU TEK对手方的运营。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.doofinder.com%2Fmain-files%2Fuploads%2F2019%2F08%2F110655-404-not-found-Doofinder.jpg&amp;imgrefurl=https%3A%2F%2Fwww.doofinder.com%2Fen%2Fblog%2F404-not-found-error&amp;tbnid=S517AKWCwZxVgM&amp;vet=12ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ..i&amp;docid=jIirh9c_yac4lM&amp;w=850&amp;h=478&amp;q=404&amp;ved=2ahUKEwjApfSYuZT3AhUFZxoKHfTDAXkQMygIegUIARCVAQ)
-自俄罗斯入侵乌克兰以来，俄罗斯受到国际社会的制裁越来越严厉。在乌的俄军溃败后，俄境内的反战情绪不断高涨。无论限制与不限制数据的公布，市场的实际状况就摆在那里，不会因为谎言而变的更好。普京政府采用这种掩耳盗铃的做法欺骗民众，与中共的做法如出一辙。这种撒谎习惯了连自己都骗的行径，不过是苟延残喘，狗尾续貂，企图延长奄奄一息的烂命而已。
+伊姆兰·汗早些时候指责美国支持推翻他的行动，因为俄罗斯2月24日入侵乌克兰后，他曾访问莫斯科，与总统普京进行会谈。华盛顿否认这一指控。
 
-消息来源：[Russia says limiting oil data access to protect local market](https://www.reuters.com/business/energy/russia-says-limiting-oil-data-access-protect-local-market-2022-04-14/)
+伊姆兰·汗在总理任内不断与美国对立，对去年塔利班接管阿富汗表示欢迎，并呼吁国际社会与他们合作。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+新中国联邦创始人郭文贵早先在直播中预警，伊姆兰·汗因为不大听中共的话，一定会被中共赶下台。
+
+[【援引连结】](https://cn.reuters.com/article/pakistan-premier-confidence-vote-fail-04-idCNKCS2M305P)
+
+
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

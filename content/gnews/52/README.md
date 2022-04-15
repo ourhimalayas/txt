@@ -2,27 +2,23 @@
 ---
 
 
-## 欧美将与香港脱钩 中共未来不会再有外交
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2343386/)
+## 爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346141/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月12日，郭文贵先生发布盖特视频表示，过去24小时对新中国联邦至关重要。欧盟和美国正在对香港的贸易和经济地位进行重新定义，将把香港的金融市场踢出所的国际金融系统之外，并率先要对港共政府人员进行类似于俄罗斯的大规模制裁。而美国驻中共国上海使领馆从授权撤离到命令撤离，这是中美历史上第一次，此消息也是新中国联邦也是第一个告知世界的。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-35.jpg)
-在欧盟、美国祭出制裁后，全球将陆续与中共的经济脱钩、外交脱钩、贸易脱钩、文化脱钩会接踵而来，中共将没有外交只有内交，比北朝鲜还不如。紧接着，东海和南海将会发生军事对抗，东欧与西欧也将会联合起来对抗中共和俄罗斯。中共盗国贼家族转移到海外的财富与亲属及私生子女，都会受到严厉制裁。
+**图文 zhong｜2022-4-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-28.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+郭文贵于台北14日晚间[直播](https://gettr.com/post/p15aede6360)爆料称，台湾的无人机表面上是向澳大利亚采购，但都是中共卖给澳大利亚后，再被台湾采购。此外，台湾情报部门、军队绝大多数都已经被中共收买，只要对台发动战争，第一出卖台湾人民的一定是情资部门及军方。
 
-相信爆料革命而没打疫苗就是人生赢家，加入新中国联邦意味着拥有了无限美好的未来。
+此外郭还指出，目前上海(共产党)大批量的把美金现金、黄金交给在台湾的亲人，更许诺将战后的台湾土地划分给卖台贼。他预估中共可能在5月攻打台湾。
 
-参考链接：[欧美将与香港脱钩 中共未来不会再有外交](https://www.gettr.com/post/p1504mb4f0c)
+台湾媒体报导，中研院研发的“腾云无人机”，自澳洲采购引擎。中科院先前采购美军MQ-9死神侦察机同级“TPE331”涡轮轴引擎，澳洲负责这款引擎升级的TAE Aerospace公司，与在台湾负责代理的Ｂ公司，主动找上中科院。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+来源｜[風傳媒](https://www.storm.mg/article/1358213?page=1)
 
-总编：zhong
-编辑：飞虹
-审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

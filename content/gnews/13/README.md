@@ -2,275 +2,70 @@
 ---
 
 
-## 新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2350029/)
+## 6位公共卫生官员曾用双重标准为COVID疫苗辩护(3/5)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350241/)
 
-我原来的在吉林镍矿的中学的女同学
-Mi ex compañera de clase en la escuela secundaria de la mina de níquel de Jilin
+素材翻译： Jenny Ball
 
-说我现在在看你们直播
-Dijo que ahora estoy viendo la transmisión en vivo de ustedes
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30.jpg)
 
-就是到乌克兰前线救人
-El rescate en Ucrania en primera línea
+接上篇6位公共卫生官员曾用双重标准为COVID疫苗辩护(3/5)
 
-她嫁给了一个外国人
-Ella se casó con un extranjero
+3. CDC 推“相对风险”来确定疫苗效力，但使用“绝对风险”来淡化不良事件的风险
 
-她已经有孙子孙女了
-Ya tiene nietos
+在辉瑞的第 3 期试验中，在短期观察期间，安慰剂接受者患严重 COVID 的人数是接种疫苗者的 9 倍，这构成了 90% 的相对风险降低。
 
-而且看到我们的救人, 她最大感触
-Y al ver nuestro rescate, su mayor sentimiento
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-153.png)图片来源：素材链接
 
-她说她在她家地位增高了
-Dijo que ha crecido su estatus en la casa
+尽管没有任何长期数据，这似乎是一个令人鼓舞的发现，并被用作迫使公众接受这种实验性疗法的主要话题。
 
-你们啥时候会救人呢
-¿Ustedes cuándo salvarán a las personas?
+然而，如果接种疫苗，试验参与者感染严重 COVID（表 S5）的风险为 21,314 人中有 1 人（0.0047%）。
 
-我告诉你
-Te digo
+如果他们接受安慰剂，风险仍然只有 21,259 人中的 9 人（0.0423%）。
 
-这头儿就是我七哥
-Este Boss es mi amigo
+该疫苗将感染严重疾病的绝对风险降低了 0.038%。
 
-我同学
-Mi compañero
+主流媒体和CDC从未提及通过接种疫苗可显着降低感染重症 COVID 的绝对风险。
 
-她这个外国丈夫讲流利的普通话
-Su esposo extranjero habla mandarín con fluidez
+此外，由于试验中 0.6% 的疫苗接种者遭受严重的疫苗伤害（导致死亡、医疗或手术干预、住院或即将面临生命威胁），每例严重的COVID病例，将导致接种疫苗预防大约 16 次严重不良事件。
 
-在哈尔滨军工待着的
-Permanece en la industria militar de Harbin
+然而，当谈到患心肌炎/心包炎的风险时，CDC表示，“心肌炎和心包炎的报道很少，尤其是在接种 COVID-19 疫苗后几天内的青少年和年轻成年男性中。”
 
-是原来的俄罗斯人生在乌克兰
-Es un ruso que nació en Ucrania
+CDC 进一步指出，“虽然绝对风险仍然很小，但 12 至 39 岁的男性患心肌炎的风险更高……”
 
-你去想想现在你们在前线意味着什么
-Piensa qué sentido tiene, ustedes estando en la primera línea ahora
+换句话说，不良事件的风险是在绝对意义上考虑的，而不是相对的。
 
-一个生在乌克兰的俄罗斯人
-Un ruso nacido en Ucrania
+上面的 CDC 演示文稿幻灯片（表 1）表明： 18 至 24 岁男性感染心肌炎/心包炎的相对风险，比该年龄（未接种疫苗的）年轻男性的预期高 27 至 200 多倍。
 
-到了哈尔滨军工帮助中共搞武器
-Llega a Harbin, a la industria militar a ayudar al PCCh a fabricar armas
+在缓解公众对疫苗诱发的心肌炎的恐惧时，CDC 发现，引用绝对风险是有用的——但在宣传疫苗的功效时，CDC 强调相对风险。
 
-然后娶了一个东北女人
-Y se casó con una mujer del noreste
+这种双重标准已被悄悄地巧妙地用于减少疫苗犹豫，并鼓励遵守。
 
-已经子孙三代了
-Tienen tres generaciones
+4. FDA 要求对早期治疗药物进行随机对照研究——但对加强剂没有要求
 
-然后看到你们去救乌克兰
-Luego vio a ustedes haciendo rescate en Ucrania
+CDC 报告称，截至 4 月 8 日，已有 9830 万美国人接受了 COVID 加强针。
 
-她感动了
-Ella fue conmovida
+3 月 29 日，美国FDA授权对免疫功能低下者和 50 岁以上的成年人进行第二次加强免疫。
 
-竟然找到七哥
-Me encontró
+这些授权并不是因为有确凿证据证明加强剂有效，而是为了纠正这样一个事实，即主要疫苗系列已被广泛证明在几个月内效力减弱。
 
-这真的是, 这是多么
-Esto realmente es, algo tan…
+正如《捍卫者》报道的那样，FDA 生物制品评估与研究中心疫苗部门主任彼得·马克斯（Peter Marks）博士承认，上周批准的第四剂加强剂是“权宜之计”——换句话说，是一项临时措施, 直到将来找到合适的解决方案。
 
-说我们每时每刻都在改变自己的人生
-Por eso digo que nosotros estamos cambiando nuestras vidas en cada minuto y segundo
+尽管缺乏确凿的证据，FDA 继续推荐和授权加强剂。
 
-你们在前线的这种救援
-Este tipo de rescate en primera línea
+然而，在早期治疗方案方面，该机构持有的药物——包括该机构已经获得许可和批准用于其他用途的药物——也具有不同的标准。
 
-你去想想影响多少中国人
-Piensen a cuántos chinos han influenciado
+未完待续
 
-国际婚姻在海外的形象啊
-La imagen del matrimonio internacional en el extranjero
-
-你想这多么记忆深刻呀
-Piensa lo inolvidable que es esto
-
-你们这上边这个马甲, 每时每刻都传送着光芒
-Este chaleco que tienen puesto encima de ustedes, transmite luz a cada instante
-
-就是跟我要马甲的人一大堆
-Cantidades de personas me han pedido este chaleco
-
-世界级的大佬
-Un Boss a nivel mundial
-
-金融华尔街大佬之一
-Uno de los grandes Boss financieros del Wall Street
-
-都是你们每天在报纸上看到的人
-Son personas que ustedes ven todos los días en el periódico
-
-说Miles你要给我几个马甲
-Dijo, Miles, debes darme unos cuantos chalecos
-
-我的孙子要你的马甲
-Mi nieto quiere tu chaleco
-
-我说为什么
-Le pregunté, ¿por qué?
-
-他说那个太棒了
-Dijo que eso es maravilloso
-
-他原来是绝对共产党的
-Él era absolutamente del PCCh
-
-那是他把共产党当爹的, 我跟你说
-Él veía al PCCh como su padre, déjame decirte
-
-除了桥水(基金)
-A parte del Bridgewater Associates
-
-他就是老二的投资到中共国的
-Él es el segundo en invertir a la República Popular de China
-
-原海航投资者之一
-Uno de los inversores antiguos de HNA Group
-
-最早投资者
-Uno de los primeros inversores
-
-现在跟我们爆料革命一起了
-Ahora está con nosotros en el Movimiento de Denunciantes
-
-他都在看我们支持乌克兰
-Él siempre está viendo a nosotros apoyando a Ucrania
-
-他为啥
-¿Por qué?
-
-你知道现在变了
-Sabes que ahora todo ha cambiado
-
-你知道吗
-¿Lo sabes?
-
-儿子在英国读书
-Su hijo está estudiando en Reino Unido
-
-他要去英国参加仪式
-Él debe ir hasta allá a asistir una ceremonia
-
-必须打疫苗
-Y por eso tiene que vacunarse
-
-只打了一针, 回来半瘫
-Sólo se vacunó una dosis y regresó hemiparesia
-
-这个牛叉的人物
-Este personaje poderoso
-
-大家都知道
-Todos saben
-
-他光这个曼哈顿多少学校, 多少医院都他捐款
-Donó tantas escuelas y hospitales como lo hizo en Manhattan
-
-这回把他给救了
-Esta vez lo salvaron
-
-结果一去
-Resulta cuando fue
-
-人家一看, 一个护士
-La persona, una enfermera lo vio
-
-说你就是这个疫苗反应症
-Y dijo que estas son reacciones de la vacuna
-
-最后是把他摁到了医院里
-Al final fue llevado al hospital
-
-给他所有的血液洗毒
-Se le hizo un hemodiálisis
-
-在ICU啊呆了几天, 差点死在了里边
-Pasó unos días en la UCI y casi muere adentro
-
-这就是病毒
-Este es el virus
-
-这就是疫苗这个综合症
-Este es el síndrome de la vacuna
-
-现在都在看这个
-Ahora lo que se ven son estas cosas
-
-咱们乌克兰直播, 都在看咱们前线
-Nuestra transmisión en vivo en Ucrania, nuestro rescate en primera línea
-
-你们那个帐篷绝对就像
-Su carpa es absolutamente como
-
-就是贾平凹写的一本书
-Un libro escrito por Jia Pingwa
-
-就是那个写的新疆
-Lo que escribió es sobre Xinjiang
-
-在黑暗中的一盏灯一样
-Como una lámpara en medio de la oscuridad
-
-看着
-Viendo
-
-在那个
-En aquel…
-
-那所有的土房子里边儿挖出了一个房子
-Una casa fue excavada entre todas las casas de barro
-
-房子里边点着一个灯
-Hay una luz dentro de la casa
-
-我看到那小说, 我觉得你们就是那盏灯
-Vi esa novela y pienso que ustedes son como esa lámpara
-
-是你们的形象确实绝对给世界带来了希望
-Sus imágenes trajeron sinceramente esperanza al mundo
-
-特别给海外中国人带来了希望
-Especialmente, trajeron esperanza a los chinos en el extranjero
-
-真的是衷心地感谢, 用什么话
-Realmente agradezco de corazón, no hay palabras
-
-都无法表达战友们对你们的感激
-Para describir el agradecimiento hacia ustedes, compañeros luchadores
-
-任何忽视前线战友在24小时
-Cualquiera que ignore a los compañeros luchadores de primera línea, donde las 24 horas
-
-随时面临着这种生命危险, 病毒危险的人
-Se están enfrentando el peligro de la vida y del virus en cualquier momento
-
-他不配做我们的兄弟姊妹
-Él no merece ser nuestro hermano o hermana
+素材链接：[https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
 
 * * *
 
-日期：04/14/2022
-原视频标题：新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-La Operación Internacional de rescate del Nuevo Estado Federal de China en Ucrania está cambiando la visión mundial hacia los chinos
+审核：文乐
+校对：花羽
+发布：小东
 
-原视频日期：04/08/2021
-原视频网址：[**https://gettr.com/post/p143xe6f378**](https://gettr.com/post/p143xe6f378)
-任务编号：KC490（4225）
-视频时间段：0:00-3:38
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
 
  
 

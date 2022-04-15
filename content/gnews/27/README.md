@@ -2,28 +2,42 @@
 ---
 
 
-## 德军火商将向乌克兰提供豹式1型坦克
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349450/)
+## 由于无限期的封锁，巴西到上海港的肉类货物运输中断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349563/)
 
-作者：Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1d67ed2883bd401f8cf0299d93afc754.jpeg)
-资料显示，莱茵金属公司是德国最大的军火商，其所制造的豹式1型战斗坦克是目前在德国武装部队服役的豹式2型坦克的前身型号，但豹1坦克仍是许多国家的主要地面作战力量。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-报道提及，自俄罗斯侵略战争开始之后，德国政府改变了其不向冲突地区运送武器的长期政策，反而主动向基辅提供了大量的反坦克武器和导弹。 对此，德国外长贝尔伯克指出，乌克兰需要军事物资，尤其是重型武器，才能抵御俄罗斯军队的攻势。
+翻译/编辑：小红帽
 
-据了解，熟练的乌克兰军事人员可以在几天内精通豹1坦克的操作技术。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SIPG-Shanghai-780x470-1.jpg)图片来源：SIPG
 
-参考链接：[Rheinmetall ready to supply up to 50 tanks to Ukraine – newspaper](https://www.swissinfo.ch/eng/rheinmetall-ready-to-supply-up-to-50-tanks-to-ukraine---newspaper/47508992)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+根据CNA 4月15日报道，一位知情人士告诉路透社，巴西对中共国上海港的肉类出口因该港口被封锁而中断。
 
-编辑：玫瑰圓
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+该人士说，至少有一家航运公司已经停止向上海运送巴西肉类，同时为客户提供将货物运送到新港和宁波的替代方案。
+
+一家大型巴西肉类出口商取消了三个集装箱的装运，而另一家则停止预订新货物。
+
+消息人士称，自3月底上海封锁开始，冷冻食品的集装箱已经开始在港口积压，对进港肉类的检查已经停止。
+
+上海是巴西向中共国进口肉类的主要入境点，而中共国是巴西的最大贸易伙伴。
+
+根据行业数据显示，2021年中共国从巴西进口了723,370吨牛肉和640,469吨鸡肉，是迄今为止巴西肉类的最大消费者。
+
+由于中共国大部分地区的新冠措施影响了国内需求并阻碍了贸易，中共国的整体进口量在3月意外下降。
+
+目前还不清楚有多少货物受到上海封锁的影响。巴西牛肉游说团体Abiec和猪肉及家禽游说团体ABPA均未立即回应置评请求。
+
+资料来源：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

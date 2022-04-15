@@ -2,28 +2,40 @@
 ---
 
 
-## 巴西人道救援 接收乌克兰难民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349449/)
+## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
 
-作者：Naughty(文行)，自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3549803-PH.jpeg)
-另据 巴西司法和公共安全部部长托瑞斯指出，接收难民是一项人道主义行为，因此，联邦政府将致力于帮助所有在巴西寻求安全、居住和工作等权利的乌克兰人。为此，在该国最新颁发的一项条例中，巴西司法部和外交部将允许政府签发人道主义签证和居留许可，用以向受俄乌战争影响的乌克兰人提供帮助。目前，这项工作正在受到国际移民组织和国际移民观察站的支持，乌克兰难民可以通过这两个组织获取相关的讯息和资源。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据悉，为了躲避俄军的攻击，当前已有超过四百万乌克兰人不得不离开祖国。对此，乌克兰第一夫人泽连斯卡向各国呼吁称，希望国际社会将乌克兰民众视为世界大家庭的一员。泽连斯卡强调，俄乌战争激发了乌克兰孩子们最深的爱国情怀，他们伺候必将成为最忠诚的爱国者和祖国最坚强的捍卫者。因此，请各国的友好民众帮助这些孩子和母亲，直到他们能够重返家园。
+翻译/编辑：小红帽
 
-参考链接：
-1.[巴西人道救援 接收烏克蘭移民和難民](https://www.cna.com.tw/news/aopl/202204130016.aspx)
-2.[Treat our refugees as one of your own, Ukraine’s first lady Olena Zelenska asks the West](https://www.thetimes.co.uk/article/treat-our-refugees-as-one-of-your-own-ukraines-first-lady-olena-zelenska-asks-the-west-2mjjq5zz6)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-编辑：宁文静
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
+
+Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
+
+这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
+
+这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
+
+在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
+
+检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
+
+目前尚不清楚同谋者是否是以太坊基金会的其他员工。
+
+资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
