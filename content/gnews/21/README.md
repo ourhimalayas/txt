@@ -2,21 +2,22 @@
 ---
 
 
-## 上海疫情更新：公众号《上海逝者》被删 愈120人案例显示死于中共封控隔离而非新冠病毒！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2351249/)
+## 中共对上海实行恐怖封锁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2351303/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.10.57-AM.png)
-美东4月15日晨7点多报道，墙内网友通过airtable创建了每天更新的 “上海疫情逝者名单” ，数据来源于被删除的公众号文章《上海逝者》及其评论区、各种社交媒体、网友提供信息。这是对因上海疫情封控而导致死亡人数的不完全统计。截止到目前不完全统计死亡人数将近120人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+4月11日，在战斗室节目中，嘉宾Jack Posobiec表示，中共正在对上海实行恐怖封锁。外卖、网购停运，超市关门，人们日常必需品的供应均被中共切断。居住在上海的人民被关在家里，每天被强制要求进行核酸检测。因为得不到及时的物资补给和帮助，人们忍受饥饿，有的不堪忍受选择跳楼自尽。疫情执行者甚至残忍地捕杀宠物。中共深知，人民一旦奋起反抗，中共将被推翻。中共严格管控人民的行为，一旦走上街头将被严惩。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323074.jpg)
+班农先生表示，早在几个月前，郭文贵先生已发出警示，大规模的封锁即将到来，而且此次大规模的疫情由毒疫苗引发。（请播放视频，视频时长3‘46“）
 
-其中个别死亡案例统计信息统计如下：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.48.23-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.39.49-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.40.54-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.43.20-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.44.12-AM.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-6.47.23-AM.png)
-由以上几个死亡案例可以看出，他们都不是死于新冠病毒，而是死于上海的疫情封控和隔离。逝者中有老人、孩子、医生、保安等各种年龄和职业群体。
+参考链接：[上海和中国其他地区的封锁是恐怖封锁](https://gettr.com/post/p14wcy7da98)
 
-信息来源：[https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN](https://airtable.com/shrQw3CYR9N14a4iw/tblTv0f9KVySJACSN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
 
-[上海疫情逝者名单（不完全统计100+位）](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/上海疫情逝者名单（不完全统计100位）.csv)
+编辑/总编：雪梨
 
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

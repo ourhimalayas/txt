@@ -2,33 +2,60 @@
 ---
 
 
-## 正道主义是照亮黑暗的火种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2351752/)
+## 格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2351888/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-郭先生说：“行善不问结果。哪有道理指责别人说，‘我行善你还不接受我的善’。这是比大恶还恶的事情。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fjesusismyshepherd2.files.wordpress.com%2F2017%2F12%2Fdeng-ta.jpg&amp;imgrefurl=https%3A%2F%2Fjesusismyshepherd2.wordpress.com%2F2017%2F12%2F03%2Fa-lamp%2F&amp;tbnid=lrc3-JbNjm647M&amp;vet=12ahUKEwiP2bu_i5b3AhUMeRoKHSCoDd0QMygBegUIARC4AQ..i&amp;docid=a4ziPsfS5_GokM&amp;w=640&amp;h=360&amp;q=%E9%BB%91%E6%9A%97%E4%B8%AD%E7%9A%84%E7%81%AF&amp;ved=2ahUKEwiP2bu_i5b3AhUMeRoKHSCoDd0QMygBegUIARC4AQ)
-在这里给大家讲个故事：“说梁国有个女子，家里失火，自己和哥哥的两个孩子被困，慌乱中只救出自己的孩子，哥哥的孩子还在里面。这时火势已大，女子还要进入火中救哥哥的孩子，被朋友拦住说：‘大家都知道你要救的不是自己的孩子，你的心是好的，但是这不必过于自责，实在不行大家给你作证。’女子告诉朋友：‘我本来打算救出哥哥的孩子，可是梁国能发告示告诉全国的人吗？以后怎么面对我的哥哥和梁国人呢？本来应该把我的孩子再扔进火里，但这样做有损作为母亲的德行，所以我绝对不会再活着了。’于是跳进火里自杀了。”这是一个很虐心的悲剧，出自《烈女传》之梁节姑姊。这个故事之所以上榜《烈女传》，本是想宣扬此女子，为证明自己没有私心而不惜放弃生命的所谓美德。
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-故事里的梁国女子是个典型的，在乎别人看法而造成悲剧的范例。她没有勇气面对未来生活的压力，选择逃避问题，选择一了百了。她没有考虑到哥哥失去孩子的同时还要承受失去妹妹的悲痛；也没有考虑自己的孩子失去母亲的悲痛；更没有考虑丈夫失去妻子、父母失去女儿的悲痛。人们在现实生活中面对非议、羞耻、丑闻、挫折、个人损失、身体痛苦，甚至死亡或死亡威胁时所需要的勇气，根据每个个体的认知能力高低，表现出的承受能力大不相同。这种承受能力取决于对事物的认知。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-人们在做出重大决定的时候，总是有坚信不移的证据来支撑，而认知就是这些证据的来源。认知是透过思想、经验和感官获得知识和理解的心理行为或过程。在西方关于认知理解为“直觉”和“推论”的双重历程理论。“直觉”的产生来自于信仰，是一种近似超自然的能力。佛家讲的五毒心“贪、嗔、痴、慢、疑、”再加上“不正见”就成了众生的六种烦恼。在人生中剔除这烦恼和心毒的过程就是提高认知的修行过程，也是开智慧的过程。
+4月14日晚，由美国南卡罗纳州资深联邦参议员林赛∙格雷厄姆（Lindsey Graham）率领的一个美国国会议员代表抵达台北，对台湾进行为期一天一夜的旋风般访问。
 
-郭先生谈到的《六祖坛经》里：“一灯能除万年暗，一智能灭万年愚。”这里的灯就是智慧。当一个人的智慧超出常人的时候，你真正能理解他人的同时也会感受到同样的痛苦，就会对世间众生产生悲悯之心。这也许就是孤独的来源吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Six-U.S.-Lawmakers-Arrive-in-Taiwan-on-Unannounced-Trip.jpg)
 
-郭先生开创的正道主义信仰，在这人类面临最黑暗的时候，就如同一颗火种。他把火种传递到我们每一个人的手中，当这火种越来越多的时候这个世界就会更加温暖、光明。所以郭先生告诉我们，要珍惜并利用好手中的火种，享受他的光明和温暖，不要在乎别人怎么看。
+代表团由六位美国两党参众议员组成。团长是一贯友台并对北京持强硬立场的参院预算委员会共和党首席议员格雷厄姆，代表团成员包括立场同样一贯友台的新泽西州民主党籍参院外交委员会主席鲍勃∙梅嫩德兹（Bob Menendez）。另外四位成员是北卡罗来纳州参议员理查德·伯尔（Richard Burr）、俄亥俄州参议员罗伯·波特曼（Rob Portman）、内布拉斯加州参议员本·萨斯（Ben Sasse）和德克萨斯州众议员罗尼·杰克逊（Ronny Jackson）。
 
-感到孤独的时候才有利于思考，而思考又促使我们改变自己的习惯，使我们不断的进步，人生的每一次思考都是对灵魂的救赎。只有别人看到我们的光明、感受到我们的温暖才会靠近我们。
+梅嫩德斯在与蔡英文总统会面时说，作为参议院台湾核心小组的联合主席和参议院外交关系委员会主席，我很自豪能够再次确认我们与台湾坚如磐石的关系（I am proud to be back to reaffirm our rock-solid relationship with Taiwan），在世界关注俄罗斯入侵乌克兰之际，代表团在台湾的存在向台湾人民发出了“强有力的信息”，“我们理解这里是台湾，就在这个地区，未来在这里。”（we understand that here in Taiwan, here in this region, this is where the future is.）
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/937x768_970348711876.jpg)
+
+梅嫩德斯称，中共国政府曾对代表团访问台湾表示不满。但抗议“并没有阻止我们前来”，也“不会阻止我们未来支持台湾”。台湾生产了全球 90% 的高端半导体产品，它是一个具有全球意义、具有全球连锁效应、具有全球影响力的国家。因此，应该理解台湾的安全具有全球意义。
+
+代表团团长格雷厄姆赞同梅南德斯的观点，称台湾“对世界和美国的数字经济来说是不可或缺的，我们希望在经济上加强双边关系”。
+
+格雷厄姆说，我们来这里是为了表达对我们所爱的事物的支持。我们热爱自由，我们热爱实现个人梦想的能力，我们热爱选择自己的领导人的能力，我们热爱法治，我们讨厌 舞枪弄棒，经常有人问，如果中国共产党进一步侵略台湾，美国会怎么做。我相信我们会坚持我们所爱的，我们会和你站在一起。
+
+这位南卡罗来纳州参议员还指责中共国帮助俄罗斯入侵乌克兰，并对台湾经济及其人民发动网络攻击。他补充说，但没有详细说明，“我们将开始让中共国为他们在世界各地所做的事情付出更大的代价。”
+
+今天，PLA东部战区新闻发言人施毅陆军大校在新浪微博称，“4月15日，中国人民解放军东部战区出动驱护舰、轰炸机、歼击机等力量在东海当面和台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。此次行动是针对近期美在台湾问题上频频释放错误信号而组织的。美恶劣行径和伎俩完全是徒劳的，也是十分危险的，玩火者必自焚。战区部队时刻保持高度戒备，坚决捍卫国家主权安全和地区和平稳定。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-15_21-04-28.png)
+
+东部战区发布消息称，东部战区在台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。
+
+中共外交部发言人赵立“奸”在外交部例行记者会上称，“中方坚决反对任何形式的美台官方往来。美国国会议员应该遵守美国政府奉行的一个中国政策，恪守一个中国原则和中美三个联合公报规定，停止美台官方交往。他们更不应该发表不负责任的言论。中方将继续采取有力措施，坚决维护国家主权和领土完整。我相信大家已经注意到中国人民解放军东部战区已经发布了相关声明。中国军队有关行动就是对近期美国包括国会议员团访台等消极行动的反制”。
+
+昨天，美国白宫国家安全顾问沙利文在华盛顿出席座谈会时，谈及俄乌和两岸形势。他指台湾与乌克兰情况不同，美国的政策是采取一切可能措施，以确保中共国大陆不会武统台湾。
+
+沙利文首先表达对中共国采取措施企图片面改变现状的担忧，但也认为中共国正在密切了解乌克兰局势以吸取教训；他也强调，乌克兰情况与台湾不同，美国与台湾的安全伙伴关系基于台湾关系法。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-15_21-02-20.png)
+
+沙利文同时表示，预计白宫会在一、两个星期内宣布，向协助俄罗斯减轻制裁影响的国家采取行动。
+
+参考数据：
+
+[2022年4月15日外交部发言人赵立坚主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202204/t20220415_10668513.shtml)
+
+[Visiting U.S. Congressional delegation reaffirms support for Taiwan](https://focustaiwan.tw/politics/202204150010)
+
+[Six U.S. Lawmakers Arrive in Taiwan on Unannounced Trip](https://www.usnews.com/news/world/articles/2022-04-14/six-u-s-lawmakers-arrive-in-taiwan-on-unannounced-trip)
+
+[6 US lawmakers arrive in Taiwan for surprise visit, China issues warning](https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham)
+
+[The Honorable Jake Sullivan, Assistant to the President for National Security Affairs](https://www.youtube.com/watch?v=roptdLIDCNw)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

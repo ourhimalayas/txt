@@ -2,38 +2,43 @@
 ---
 
 
-## 【视频】乌克兰国防部：载有核弹头的俄黑海舰队的旗舰被击沉引发担忧
-` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2351656/)
+## 由于市场快速复苏墨尔本租户相继离开
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2351719/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花20220408105541.jpg)
-**俄罗斯国防部承认 “莫斯科号”巡洋舰旗舰被摧毁。 乌克兰透露这是一艘核有两个核武器的旗舰。但俄罗斯否认被炸毁，谎称是因弹药爆炸自毁。最离奇的谎言是中共国的消息称，“乌克兰直升机入侵俄罗斯。中共和俄罗斯就此大使掩盖，并准备对乌发动恐怖袭击。**
+翻译/编辑：Rianna
 
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1650026127894.jpg)图片来源：ozhome.com.au
 
 
+随着租户发现该市一些地区的房产已经枯竭，墨尔本面临着新的租赁住房危机。根据Domain的最新研究，房地产行业和租户倡导者都警告说，在疫情期间，全市租金供应峰值超过5.2%，3月份降至1.8%后，出现了严重问题。
 
+在外郊，租房者更可能是有孩子的家庭，短缺更加严重，墨尔本东南部的卡迪尼亚议会区和城市最西北部的森伯里只有0.4%的租赁房产可供租赁。
 
+Domain研究发现，其他外郊区地方政府地区，包括Frankston、Kingston、Casey、Maroondah和Whittlesea，也面临严重的租赁物业短缺，空缺率分别为0.6%和0.7%。
 
-原文：[乌克兰国防部：载有核弹头的俄黑海舰队的旗舰被击沉引发担忧](https://gnews.org/zh-hans/2349552/)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花20220408105541.jpg)
-**阅读更多樱花团资讯**：
+包括Essendon、Maribyrnong、Stonnington、Boroondara和Moreland在内的中环地区的租户可能会运气更好，空缺率超过2%。墨尔本租赁景观最显著的变化是在市中心，3月份的租金空缺率仅为1.5%，低于一年前的11%以上。
 
-- [突破：俄纳粹军重新集结在乌东地区,一场血战即将开始](https://gnews.org/zh-hans/2342994/)
+该桅杆头出版商Nine拥有的域名表示，租金短缺是由需求激增驱动的，自上市机构五年前开始收集数据以来，随着租户首次面临澳大利亚所有首都的“房东市场”，租金短缺将恶化。墨尔本是所有首都中空置率最高的城市，但房地产研究所所长Adam Docking表示，州政府于2021年3月实施的租赁住房最低标准以及土地税法案迫使业主出售而不是租赁房屋和公寓。Docking先生说，租金供应正走向危机点，租金很快就会开始爆裂。
 
+Docking先生说，所有类型的房产都受到租户的强烈需求，但三居室房屋受到激烈的质疑，疫情推动CBD的皮卡后，年轻人对小型公寓的需求正在回市场。
 
-- [樱花时政｜俄国防部证实“莫斯科”号巡洋舰被导弹击中沉没](https://gnews.org/zh-hans/2349249/)
-- [美国总统坚称普京犯下“大屠杀”行为 将由国际审判庭定罪](https://gnews.org/zh-hans/2338330/)
-- [樱花时政｜俄乌大战即将开始，或升级为俄中欧全面战争](https://gnews.org/zh-hans/2342408/)
-- [美国和欧盟追加对乌克兰军事援助](https://gnews.org/zh-hans/2342525/)
-- [中共将上海打成“魔都”，解封只是城市压力测试心里预演](https://gnews.org/zh-hans/2328047/)
+News Corp支持的realestate.com的研究支持Domain的观点，即租金短缺是由需求激增而不是供应减少驱动的。
 
+租户维多利亚州首席执行官Jennifer Beveridge表示，外郊家庭最强烈地感受到了强硬市场的伤害。Beveridge女士说，家庭在寻找租金时被迫远离工作、子女学校、大家庭和就业，其后果超出了住房政策。
 
-- [日本多次追加接种令人担忧,专家认为应停止疫苗第四针](https://gnews.org/zh-hans/2333226/)
-- [美总统助理沙利文称将启动国际刑事法院追讨俄罗斯总统普京 “战争罪”。](https://gnews.org/zh-hans/2290690/)
-- [NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
-- [新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
+Anglicare Victoria首席执行官Paul McDonald表示，他的机构支持家庭搬出紧急住宿，搬进经济实惠的出租物业。
 
+总部位于普拉兰的调酒师兼婚礼歌手Alexander Rohan说，在他12年的租房中，找到新地方从未像现在这样困难。30岁的Rohan先生目前住在合租的房子里，但现在正在寻找自己的公寓。他说他想住在普拉兰附近，但对公寓的需求很高。
+
+新闻来源：[随着市场快速复苏，墨尔本租户争先恐后地离开了](https://www.theage.com.au/national/victoria/melbourne-renters-left-scrambling-as-market-recovers-quickly-20220406-p5ab6r.html?btis)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
