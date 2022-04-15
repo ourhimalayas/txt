@@ -2,53 +2,30 @@
 ---
 
 
-## 韩国出人意料地加息，加大对抗通胀的力度
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2350207/)
+## 樱花时政┃美议员访问团抵台将与蔡英文会面
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350400/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-303.jpg)图片来自网络
-《路透社》近日报道，韩国央行周四出人意料地将其基准利率提高到2019年8月以来的最高值，因为它加大了对威胁其经济复苏的通胀的打击力度。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-310.jpg)[图片来源](https://asia.nikkei.com/Politics/International-relations/Six-U.S.-lawmakers-arrive-in-Taiwan-on-unannounced-trip)
 
-在其有史以来第一次在没有行长的情况下举行的利率审查中，该银行的货币政策委员会投票决定将利率提高0.25个百分点至1.50%，在路透社的调查中，只有不到一半的经济学家预见到这一结果。
+美国参众议员访问团4月14日搭机抵达台北松山机场，台湾外长吴钊燮亲自前往接机。该访团预计在台展开两天行程，并在周五上午与台湾总统蔡英文会面。访团由美国参议院外交委员会主席梅南德兹率领，一共有6名议员。
 
-大多数分析家曾预计，在李柱烈上个月结束其行长任期后，韩国银行将在其新行长上任前保持利率不变。
+路透社报道，梅南德兹是台湾的坚定支持者。今年2月，他提出法案，要求美国将“台湾代表处”更名为“驻华盛顿大使馆，”此外，还包含曾于2016年角逐共和党总统候选人提名的参议员葛瑞姆、波尔、波特曼、赛斯、众议员杰克森. 台北经济文化代表处称，美国议员访团此次赴台，是为了“ 美台关系、区域安全和其他共同关心的重大问题 ”的会谈。
 
-由六名成员组成的政策委员会代理主席Joo Sang-yong（朱尚勇）说，该银行不能等待新行长的正式任命来继续努力减缓通货膨胀，并警告说价格增长可能会在一段时间内超过4%，高于其2月份预测的3.1%。
+台总统府发言人张敦涵及台湾外交部在声明中表示，在乌克兰的“严峻”情势下，美国议员此次访问不仅彰显了美国两党对台湾的支持，也显示了台美关系“坚如磐石”!
 
-“5月份背靠背加息也是有可能的，”Kyobo证券的分析师Paik Yoon-min（白润敏）说，他认为到今年年底政策利率为2.00%。
+#### 信息来源：[Six U.S. lawmakers arrive in Taiwan on unannounced trip](https://asia.nikkei.com/Politics/International-relations/Six-U.S.-lawmakers-arrive-in-Taiwan-on-unannounced-trip)
 
-“如果美联储从5月开始大步加息，它将很快追上韩国的基准利率，并削弱韩国央行先发制人举措的有效性。”
+编辑：东京樱花团/深藏不露
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-**滞胀风险**
-
-虽然加息与大多数经济学家的官方预测背道而驰，但许多投资者认为4月份的紧缩政策是一个鲜活的前景，韩元和债券收益率在此举之后几乎没有受到影响。
-
-事实上，在朱尚勇在新闻发布会上谈到增长的下行风险后，三年期国债收益率下降。
-
-在一份政策声明中，韩国央行表示，韩国的经济增长预计将低于2月份预测的3%。
-
-同时，由于俄罗斯入侵乌克兰使商品价格飙升，韩国的通货膨胀率预计将维持在十年来的高位。
-
-周四的利率决定是因为新西兰和加拿大都实现了50个基点的加息，以及其他亚太央行将其重点从支持经济增长转移到打击激增的通货膨胀之后作出的。
-
-分析师认为，韩国的政策利率在今年年底将达到2.00%。
-
-国际货币基金组织资深官员、韩国央行行长提名人Rhee Chang-yong（李昌勇）预计将在4月19日举行必要的议会听证会后开始其四年任期。
-
-本周，流动性最强的三年期国债收益率超过3.2%，达到2012年以来的水平，因为美国加快加息的前景加剧了人们对全球经济承受更高融资成本能力的担忧。
-
-美联储在3月份提高了政策利率的目标区间，这是2018年以来的首次上调，分析人士预测，美联储在收紧货币政策方面将变得更加激进，以加强对通货膨胀的打击。
-
-全球掀起一股加息潮，各国央行都在努力为通胀降温，利率的上升是压缩资金的流动性以及压制投机资金。大家都要合理的调整自己的资产配置，避免财富蒸发。
-
-参考链接：
-
-[https://www.reuters.com/business/finance/south-korea-steps-up-inflation-fight-with-surprise-rate-hike-2022-04-14/](https://www.reuters.com/business/finance/south-korea-steps-up-inflation-fight-with-surprise-rate-hike-2022-04-14/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

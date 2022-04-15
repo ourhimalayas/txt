@@ -2,28 +2,23 @@
 ---
 
 
-## 拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349448/)
+## 巴菲特针对推特控股之事说“马斯克在赢，这是美国”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349457/)
 
-作者：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月13日，据当地媒体报道，美国总统拜登日前指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，而这也是拜登政府首次对俄军使用这一术语。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.jpeg) (AP Photo/Carolyn Kaster)
-《国际法》规定，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。而根据《联合国公约》，构成种族灭绝的行为包括杀戮、严重的身体或精神伤害、施加致命的条件和措施阻止生育等等。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-105.jpg)
+图片来源： superpyq.com
 
-报道提及，一直以来，种族灭绝被认为是最严重的国际罪行，且由于该词语严格的法律定义和这一指责所带来的沉重影响，美国对于该罪行的认定极为谨慎。但据拜登总统在近日的采访中指出，他明确将普京下属军队在乌克兰的罪行定义为“种族灭绝”，而美国法院将进一步判定俄军的行动是否在法律层面上构成这一指控。
+零对冲网4月14日报道，纽约时报说根据两个知道内情的人士透露，推特委员会正在考虑采取防范性动作，例如给马斯克设陷井让他难以在这个社交巨头平台上发挥作用。
 
-早先，拜登总统就已经将普京描述为“战争罪犯”，并呼吁全球对其暴行做出审判。
+这个陷井之一就是股东权利计划，该计划能够限制单一股东的运作能力，这基本上是让该公司影响新股份或允许现有的持股者而非潜在股票获得者购买降价股份。
 
-参考链接：[Biden says Russia committing genocide in Ukraine](https://www.channelnewsasia.com/world/biden-says-russia-committing-genocide-ukraine-2622651)
+多数自由派反对马斯克，但有一个全球著名的最富者之一却支持马斯克，他说： “ 这是美国的产物，我认为马斯克有主见，他正在赢，这是美国，你不能靠做梦，这事很惊人。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+当马斯克提出$54.20一股的价格收购时，沙特王族在推特上回复说：“ 我不认为这个价格接近于推特成长前景的内在价值，作为一个最大的长期推特股票持有者，我拒绝这个价。” 这个有些奇怪，因为表面看起来沙特王族并不是最大的持股者。马斯克随即问： “你拥有多少股份，直接的还是间接的？王族对自由言论的观点如何？” 马斯克说，如果A计划不行，他还有B计划。
 
-编辑：Irene木木
-总编：Irene木木
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+#### 新闻来源： [Buffett Says “Musk Is Winning…It’s America” As TWTR Board Ponders Poison Pill](https://www.zerohedge.com/markets/best-and-final-offer-elon-musk-offers-buy-twitter-5420-share)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

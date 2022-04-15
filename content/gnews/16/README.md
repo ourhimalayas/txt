@@ -2,45 +2,206 @@
 ---
 
 
-## 乌克兰全境拉响空袭警报，警告局势升级
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349854/)
+## 这次是海洋文明与陆地文明的再一次重创与PK
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2349975/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+这一次绝对是世界的
+Esta vez definitivamente es
 
-#### 翻译：li yan li
-编辑：李易通
+一场大的秩序重组
+Una importante reorganización mundial
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
+没有任何改变
+Nada ha cambiado
 
+我2017年爆料的时候说过
+En el 2017 dije en el Movimiento de Denunciantes
 
-4月14日，在警告弗拉基米尔·普京可能发动“立即升级”的战争后，乌克兰的每个地区都同时拉响了空袭警报，这是俄罗斯准备发动重大袭击的最新迹象。
+我跟胡锦涛这些人
+Hu Jintao, estas personas y yo
 
-今天上午，媒体Nexta在推特上宣布，“乌克兰全境已进入空袭警报”。
+还有中国的老常委
+Y el antiguo Comité Permanente de China
 
-《基辅独立报》也宣布，“乌克兰所有地区同时拉响了空袭警报”。
+还有国安部的人
+Y el Ministro de Seguridad Nacional
 
-乌克兰议员Lesia Vasylenko透露，基辅发生了多起爆炸，持续的空袭警报已经响了近一个小时。
+每次他们都说
+Cada vez que dicen
 
-在发出警报之前，普京总统警告说，在他的莫斯克号军舰在一次明显的乌克兰导弹袭击中被击中之后，他可能会发动“立即升级”的乌克兰战争。
+中国历史上几百年回到桌子上
+Cientos de años en la historia China de regreso a la mesa
 
-乌克兰国家媒体周四报道，俄罗斯参与对乌克兰的海上攻击的黑海旗舰因爆炸而“严重受损”，莫斯科威胁要打击基辅的指挥中心。
+国际桌子上, 已经接近到桌面上
+En la mesa internacional, ya se han acercado a la mesa
 
-目前还不清楚到底是什么原因导致了莫斯科号导弹巡洋舰的爆炸，也不清楚损失的程度，双方的报告相互矛盾。
+如果被人拍下去
+Si alguien le da un golpe
 
-俄罗斯分析家克林特·埃利希在Twitter上写道：“如果乌克兰真的击沉了‘莫斯克瓦号’，预计莫斯科会立即战争升级。”
+就是万劫不复, 回到石器时代
+Simplemente será condenado, de regreso a la era de piedra
 
-一位退役空军军官告诉本刊记者，俄罗斯正在进行不分青红皂白的轰炸。
+站到桌子上
+Pararse en la mesa
 
-乌克兰当局说，俄罗斯军队继续在他们仍然占领的地区杀害平民。
+就永远成为世界强国
+Es ser por siempre un país poderoso en todo el mundo
 
-参考链接：[乌克兰全境拉响空袭警报，警告局势升级](https://www.news.com.au/world/europe/russia-will-immediately-escalate-attacks-on-ukraine-in-response-to-moskva-explosion-expert-warns/news-story/f27ff792819891f9f81038b9692b5bc7)
+可悲的事情
+Qué cosa tan triste
 
-发布：*wenly*
+他们选出了对我们来讲是好事
+Nos hace bien que hayan elegido
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+选出了习太阳, 王岐山
+Al sol Xi y Wang Qishan
+
+这两个文化大革命的
+Estas dos revoluciones culturales
+
+鬼魂
+Fantasmas
+
+我觉得是文化大革命的被害者
+Siento que son víctimas de la Revolución Cultural
+
+推出了这俩人
+Lanzaron a estas dos personas
+
+对中国所谓的国际说了算
+Tener la última palabra en el llamado proceso internacional de China
+
+当大国是个灾难
+Ser un país grande es un desastre
+
+对中国人是短期灾难
+Y para los chinos es un desastre a corto plazo
+
+对灭共那是
+Para eliminar al PCCh
+
+绝对的最佳的两个人物
+Definitivamente son los dos mejores personajes
+
+结果上桌子的人要掀桌子
+Resulta ser que la persona que se monta en la mesa quiere voltearla
+
+现在要掀桌子
+Quiere voltear la mesa ahora
+
+就是现在他和普京大帝
+Lo que es ahora él y el gran emperador Putin
+
+要把桌子掀了
+Quieren voltear la mesa
+
+能不能掀成呢
+Será que ¿logran voltearla?
+
+他是从冠状病毒, 疫苗
+Él desde el Coronavirus hasta las vacunas
+
+世界经济崩塌
+El derrumbe de la economía mundial
+
+然后从地缘政治扩张
+Luego desde la expansión geopolítica
+
+最后整合全世界的所有的
+Finalmente reune el mundo entero
+
+和他所谓的中弱国家
+Y sus llamados países medios y débiles
+
+形成的一股势力, 对抗西方的
+Formando así una fuerza contra el occidente
+
+基督文明和西方的民主
+El Cristianismo y la democracia occidental
+
+资本主义社会就是独裁的政治
+La sociedad capitalista es dictadura
+
+对抗西方的民主的法律的政治
+La política del derecho contra la democracia occidental
+
+也就是根本能看得出来
+Es lo que se puede notar
+
+亚洲这些国家和东欧国家
+Estos países asiáticos y países de Europa del Este
+
+都是什么, 都是陆地国家
+Son países terrestres
+
+所有西方的最后现在跟这些
+Ahora el final de todo el oeste con estos
+
+陆地国家
+Países terrestres
+
+所谓的习太阳普大帝对抗
+El llamado lucha entre el sol Xi y el emperador Putin
+
+都是海洋国家
+Son países marinos
+
+他非常清楚的能分出来
+Él claramente puede diferenciarlo
+
+这个是海洋文明和陆地文明的
+Este es otro gran daño y competencia entre
+
+再一次大的一场重创和PK
+La civilización marina y la civilización terrestre
+
+同时呢, 显出东西方的文化
+Al mismo tiempo, se evidencia la cultura entre el oriente y el occidente
+
+和政治利益的大重创
+Y un golpe duro a los intereses políticos
+
+同时显示出来的一个杂教或
+Al mismo tiempo se nota una religión miscelánea o
+
+没有教的国家和西方的基督教
+Países sin religiones y el cristianismo en el occidente
+
+天主教文明的一场大PK
+Una gran competencia de la civilización católica
+
+更重要的是要看到, 东西方之间
+Y lo más importante es ver entre el oriente y el occidente
+
+出现了一个从来没有的事情
+Aparece algo que nunca había sucedido antes
+
+就是独裁国家政治制度
+Es el sistema político de la dictadura
+
+和西方的民主制度到底谁活着
+Con el sistema democrático occidental, ¿quién sobrevivirá?
+
+日期：04/12/2022
+原视频标题：这次是海洋文明与陆地文明的再一次重创与PK
+Esta vez es otro golpe fuerte y la competencia entre la civilización marina y la civilización terrestre
+
+* * *
+
+原视频日期：03/31/2021
+原视频网址：**[https://gettr.com/post/p12qrq1ff4a](https://gettr.com/post/p12qrq1ff4a)**
+任务编号：KC489（4142）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

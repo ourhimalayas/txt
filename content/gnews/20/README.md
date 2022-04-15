@@ -2,33 +2,33 @@
 ---
 
 
-## 教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349553/)
+## 中央情报局警告：绝望的普京可能祭出战术核武器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349869/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯】紧贴时代脉搏
 
-翻译/编辑：小红帽
+#### 翻译/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Virgil-Griffith_.jpg)图片来源：www.tronweekly.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片46.png)图片来源：The National Interest & 雅典娜设计组
 
 
-根据COINGEEK 4月14日报道，美国纽约联邦法院判处前以太坊基金会研究员Virgil Griffith 63 个月监禁，原因是他前往朝鲜做了一个关于如何利用数字资产规避制裁的演讲。
+周四，中央情报局局长威廉·伯恩斯表示，俄罗斯在入侵乌克兰方面屡遭重挫，普京总统可能祭出战术或低当量核武器。
 
-Griffith于2021年9月承认了共谋违反《国际紧急经济权力法》的指控，该法是美国制裁制度的基本法规。
+伯恩斯在亚特兰大演讲中提示，“鉴于俄罗斯领导人可能陷入绝望，任何人都不能轻视俄罗斯可能诉诸战术核武器或低当量核武器所带来的威胁”。
 
-这些指控源于Griffith决定参加2019年初在平壤举行的会议，当时他仍然是以太坊基金会的雇员。在那里，他做了一个关于区块链技术的演讲。
+克里姆林宫已表示，在2月24日侵略战争开始后已将俄罗斯核力量置于高度戒备状态，但美国尚未看到大规模部署核武器的实际证据。
 
-这次访问明显违反了美国对朝鲜的制裁，美国国务院曾拒绝Griffith早期提出的访问朝鲜的请求。
+伯恩斯说，拜登总统极力避免第三次世界大战，避免可能触及到核冲突的门槛。
 
-在宣判时，法官驳回了Griffith的行为是“被误导”的说法。
+俄罗斯拥有许多战术核武器，其威力不如美国在二战期间在广岛投下的炸弹。俄罗斯的军事学有一个叫做“升级降级”原则，即在与西方国家的常规冲突中，如果战场局势不利，就发射低当量核武器，以夺回主动权。
 
-检察官明确表示将对Griffith的同谋提出进一步的起诉。根据Griffith的起诉书，被告与“其他已知和未知的人”合谋违反美国的制裁。这些同谋帮助Griffith前往朝鲜，并向其暗示需要向他在朝鲜遇到的人展示区块链如何用来洗钱和避免制裁。
+伯恩斯曾是美国驻俄大使，称普京是一位“报复的使徒”，多年来“一直被怨恨、野心和不安全感所包围”。
 
-目前尚不清楚同谋者是否是以太坊基金会的其他员工。
+“每天普京都在证明，衰落的大国（俄罗斯）至少与崛起的大国（中共国）一样具有破坏性，”伯恩斯说。
 
-资料来源：[Ethereum’s Virgil Griffith sentenced to over 5 years in US prison over sanctions violations, more indictments expected](https://coingeek.com/ethereum-virgil-griffith-sentenced-to-over-5-years-in-us-prison-over-sanctions-violations-more-indictments-expected/)
+新闻链接：[CIA warns desperate Putin poses nuclear threat | World News – Hindustan Times](https://www.hindustantimes.com/world-news/cia-warns-desperate-putin-poses-nuclear-threat-101649976216869.html)
 
-发布：tianzhihuan
+发布：*wenly*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
