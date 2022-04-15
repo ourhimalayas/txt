@@ -2,28 +2,21 @@
 ---
 
 
-## 国内已经爆发粮荒 中共把粮食定为了战略性武器
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2352986/)
+## 文贵紧急直播 4/15 中共启动“台湾之子”行动
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2352998/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-5月份就会经济崩塌，同时疫苗灾难大爆发。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/01-2.jpg)图片来源 GETTR
+台湾人民的灾难即将来临。4月15日，爆料革命发起人郭文贵先生在GETTR紧急直播中再爆中共犯台秘密行动。
 
-粮荒已经在国内爆发了，中共已经把粮食定为战略性武器。
+继爆出台湾军购无人机竟来自中共之后，文贵先生告诉所有关心台湾命运的人们，事实比这还要惨。
 
-在未来的2年，3个保命的关键：1，有粮，有水，备好食物；2.备些现金；3.有安全的居所，避免高楼住宅；4.备好药物。
+根据五个渠道多方确认的情报，中共已自今日开始，展开“台湾之子”犯台秘密行动。意指台湾自家人开始内乱。手段是破坏交通、供电、供水、机场、网络等，制造内乱，使社会大乱，中共就会趁虚而入。
 
-视频来源: 20220414—郭先生GETTR短直播
-视频制作: 文星光
-文案:文星光
+郭先生指出，之前美国前国务卿迈克.蓬皮奥台湾之行所发生的多起断电“事故”就是解放军所为。
 
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+【来源链接】https://gettr.com/streaming/p15f3ij6b1a
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

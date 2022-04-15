@@ -15,65 +15,65 @@
 
 ---
 
-### [文贵紧急直播 4/15 中共启动“台湾之子”行动](/content/gnews/1/README.md)
- ` 秘密翻译组-原创组`
-
-### [国内已经爆发粮荒 中共把粮食定为了战略性武器](/content/gnews/2/README.md)
- ` 焦點20分`
-
-### [SEC退款申请和新平台投资](/content/gnews/3/README.md)
- ` 焦點20分`
-
-### [美议员团访台 中共在台湾周边军演震摄](/content/gnews/4/README.md)
+### [2021年日本人口出现历史最大降幅](/content/gnews/1/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中日财经爆┃加大俄罗斯进口 中共开展中俄铁路大桥载货列车通行测试演练](/content/gnews/5/README.md)
+### [文贵紧急直播 4/15 中共启动“台湾之子”行动](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [国内已经爆发粮荒 中共把粮食定为了战略性武器](/content/gnews/3/README.md)
+ ` 焦點20分`
+
+### [SEC退款申请和新平台投资](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [美议员团访台 中共在台湾周边军演震摄](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中日财经爆┃加大俄罗斯进口 中共开展中俄铁路大桥载货列车通行测试演练](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [肥料短缺加剧全球粮食危机](/content/gnews/6/README.md)
+### [肥料短缺加剧全球粮食危机](/content/gnews/7/README.md)
  ` NFSC News`
 
-### [COVID-19疫苗副作用集萃（2022.4.15）––疫苗加强针副作用大](/content/gnews/7/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.15）––疫苗加强针副作用大](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美财政部长就中俄结盟问题发出严厉警告](/content/gnews/8/README.md)
+### [美财政部长就中俄结盟问题发出严厉警告](/content/gnews/9/README.md)
  ` NFSC News`
 
-### [加拿大公司使用中共国强迫劳动力](/content/gnews/9/README.md)
+### [加拿大公司使用中共国强迫劳动力](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄罗斯将摧毁乌克兰的粮食库存和出口](/content/gnews/10/README.md)
+### [俄罗斯将摧毁乌克兰的粮食库存和出口](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大资源出口从俄乌战争中获益](/content/gnews/11/README.md)
+### [加拿大资源出口从俄乌战争中获益](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [安省废水分析结果表明变种病毒正席卷而来](/content/gnews/12/README.md)
+### [安省废水分析结果表明变种病毒正席卷而来](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大皇家骑警在镇压自由车队期间餐饮无度](/content/gnews/13/README.md)
+### [加拿大皇家骑警在镇压自由车队期间餐饮无度](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大央行再次上调基准利率](/content/gnews/14/README.md)
+### [加拿大央行再次上调基准利率](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [截至4.15 俄乌战事汇总](/content/gnews/15/README.md)
+### [截至4.15 俄乌战事汇总](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [沙特当局无视新疆种族灭绝和危害人类罪 强行引渡四名维吾尔人](/content/gnews/16/README.md)
+### [沙特当局无视新疆种族灭绝和危害人类罪 强行引渡四名维吾尔人](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/17/README.md)
+### [加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [郭先生盖特乱聊直播要点（2022年4月15日）](/content/gnews/18/README.md)
+### [郭先生盖特乱聊直播要点（2022年4月15日）](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [辉瑞公司试图隐瞒处理疫苗伤害的2400名全职雇员](/content/gnews/19/README.md)
+### [辉瑞公司试图隐瞒处理疫苗伤害的2400名全职雇员](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
-
-### [COVID-19疫苗副作用集萃（2022.4.15）––安徽智飞加强针反应](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [佛州州长德桑蒂斯警告非法移民：不要前往佛罗里达](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
