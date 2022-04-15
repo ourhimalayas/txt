@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 6:15 PM (UTC)`
+
+NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自由的逾越节
+![img](https://media.gettr.com/group18/origin/2022/04/15/18/5d26bc3c-c781-8ea0-c936-5fb9e81586e9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 4:51 PM (UTC)`
 
 4月15日：在乌克兰前线的兄弟姐妹们……你们太伟大了……
@@ -146,12 +153,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 `@miles 4/15/2022 1:27 AM (UTC)`
 
 04/14/2022 on the 11th  day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇 on Hong Kong 🇭🇰, New Zealand 🇳🇿, Singapore 🇸🇬 , Laos 🇱🇦 Rock Song Charts<br/>#2🥈 on Taiwan 🇹🇼, Cambodia 🇰🇭 Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#3 🥉on Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#2🥈 on Macau 🇲🇴 Rock Song Charts<br/>#3🥉 on Laos 🇱🇦 Rock Song Charts<br/><br/><br/>“Hcoin To The Moon” Hit iTunes<br/>#2🥈on Cambodia 🇰🇭 Top Song Charts<br/>#1🥇on Cambodia 🇰🇭 Rock Song Charts <br/><br/>“The Hero” Hit iTunes<br/>#3 🥉on Macau 🇲🇴 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, Macau, New Zealand, Cambodia,Laos 🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2346562/
-
----
-
-`@miles 4/15/2022 1:26 AM (UTC)`
-
-4月14号, 郭文贵先生两首新歌上线第11天<br/>《灭共的雪》登榜iTunes<br/>香港 🇭🇰，新西兰 🇳🇿，新加坡 🇸🇬， 老挝 🇱🇦摇滚歌曲榜首🥇<br/>台湾 🇹🇼，柬埔寨🇰🇭 摇滚榜第二名🥈<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨 🇰🇭 流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、柬埔寨, 老挝 的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2346558/
 
 ---
 
