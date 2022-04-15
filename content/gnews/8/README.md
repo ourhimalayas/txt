@@ -2,33 +2,20 @@
 ---
 
 
-## 岸田首相明确态度：无意派大使去游说普京
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349270/)
+## 中日财经爆┃一名中国人获得日本首例“特定技能2号”资格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349277/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/岸田首相明确态度：无意派大使去游说普京.png)（图片源自本文链接）
+撰稿：东京樱花团/百花李香
 
-4月15日FNN综合在线消息：关于俄罗斯入侵乌克兰的问题，岸田首相否认他将派遣前首相安倍晋三作为特使前往俄罗斯，他说他目前无意派遣特使。
+4月14日，据《共同通信》在线报道，岐阜县各务原市的一家建筑公司工作的中国人翁飞，根据日本为接受外国人而引入的特定技能制度，他获得了《特定技能2号》资格。也就是说，他得到了允许永久居留的资格。据支援团体和国土交通省称，这在日本是首列。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-38.jpg)[图片来源](https://www.mofa.go.jp/mofaj/ca/fna/ssw/us/overview/#:~:text=Automobile%20Repair%20and%20Maintenance)
+特定技能是日本修改后的移民难民法中对新移民法设立的一种新的外国人居留身份，该法于2019年4月生效，涵盖14个领域，包括农业和食品服务。特定2号在留资格对居留期的延长没有上限，并且允许家庭成员来日本探亲。
 
-在15日的参议院全体会议上，岸田首相被问及是否会派遣与普京总统建立了密切关系的前首相安倍晋三作为外交特使前往俄罗斯阻止俄罗斯的军事行动。他回答说：德国、法国、奥地利等国已经直接游说普京总统，但没有迹象表明普京愿意做出妥协。
+信息源：[「特定技能2号」全国初の認定　岐阜の中国籍男性](https://news.yahoo.co.jp/articles/79c322e82989390159a7ef0fb083c1d35313d964#:~:text=%E3%80%8C)
 
-岸田首相随后明确否定了派遣前首相安倍晋三作为特使前往俄罗斯的可能性。并表示，俄罗斯有必要倾听国际社会的声音。他还说，有必要对俄罗斯采取强有力的制裁措施，以停止其侵略行为，目前无意派遣特使。
-
-被问及岸田首相亲自访问乌克兰并与泽伦斯基总统举行直接会谈的可能性时，他说：我们将考虑当地的情况等因素，不断思考什么是适合我国的做法。
-
-信息来源： 
-[安倍元首相ロシア派遣に「現時点で特使派遣の考えない」　岸田首相（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7b634e2b553aec401e38a5e7ce7fb6f2ba4d9d20)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

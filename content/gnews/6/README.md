@@ -2,31 +2,78 @@
 ---
 
 
-## 世卫：新冠疫情仍为&#8221;国际关注的突发卫生公共事件&#8221;
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2349283/)
+## 6位公共卫生官员曾用双重标准为COVID疫苗辩护(1/5)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2349303/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+翻译： Jenny Ball
 
-4月13日，鉴于专家建议，世卫组织总干事谭德塞（ Tedros Adhanom Ghebreyesus ）博士表示，新冠疫情仍为”国际关注的突发卫生公共事件”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-6.jpg)图为世卫组织总干事谭德塞（ Tedros Adhanom Ghebreyesus ）（图片来自德国之声）
 
-据《德国之声》报道，世界卫生组织突发事件委员会此前建议，不取消自2020年1月底以来的这一定位。该委员会负责人胡辛（Didier Houssin ）在日内瓦表示，委员会一致认为，解除警报的时机尚不成熟。
 
-胡辛说：“病毒仍在迅速传播，并继续以不可预测的方式变化，死亡率依旧很高。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-153.png)图片来源：childrenshealthdefense.org
 
-对于，目前有越来越多的国家大幅放松以至取消防疫措施，这位专家明确警告，不应 “放松警惕”，相反，政府须 “审查其政策，准备应对新挑战”。
+我们不仅处于流行病学危机中，而且还处于认识论危机中。我们怎么知道我们知道的是否是真相？意见与合理信念有何区别？
 
-依据专家建议，世界卫生组织总干事谭德塞博士13日表示，继续将新冠大流行瘟疫列为 “国际关注的突发卫生公共事件”。
+**近两年来，公众一直被一场敦促我们“相信科学”的复杂信息宣传活动所淹没**。
 
-2020年1月30日，世卫组织宣布新型冠状病毒（中共病毒）疫情为国际关注的突发公共卫生事件。另外，自新冠大流行瘟疫爆发迄今，全球已有600多万人死亡，正式登记的染疫病例近5亿。
+但是一个非科学家怎么能知道科学真正在说什么？
 
-参考链接：
-1. [https://reurl.cc/rDdgXk](https://reurl.cc/rDdgXk)
-2. [https://news.un.org/zh/story/2020/01/1050102](https://news.un.org/zh/story/2020/01/1050102)
+**传统媒体资源为我们提供了一个简单的解决方案：“相信我们**”。
 
-总编：青城道姑
-校对发布： 文曦
+大量所谓的“独立”事实核查网站旨在消除任何任性的想法，让那些持怀疑态度的人与（主流）保持一致。
+
+**“研究”已被重新定义为浏览维基百科引文了。**
+
+通过将其来源标记为不可靠，异议意见更容易被视为错误信息而被视为其优点，而不是被考虑。
+
+我们怎么知道这些来源是不可信的？如果他们提出不同意见呢？
+
+这种循环推理形式是所有教条思想系统的核心公理。打破教条思维的魔咒并不容易，但有可能。
+
+在这篇文章中，**我描述了医疗当局用来制造他们对 COVID-19 叙述是合乎逻辑和敏感的错觉的双重标准的六个例子**。
+
+这种错觉已被用于提高疫苗依从性，具有毁灭性的影响。
+
+与其引用与我们医疗当局的叙述自相冲突的科学出版物或专家意见——这些信息将被断然驳回，因为它出现在《捍卫者》（The Defender）上——而是我将用展示官方自己从一开始就不一致、虚伪和/或或自相矛盾的叙述。
+
+1. COVID 死亡是“假定的”(Presumed)，但疫苗死亡必须是“证实的”(Proven)
+
+截至 4 月 8 日，VAERS 收录了 26,699 份 COVID 疫苗后死亡报告。
+
+疾病控制和预防中心 (CDC) 正式承认其中只有九个。
+
+为了确定因果关系，疾病预防控制中心要求进行尸检以排除任何可能的死亡病因，然后再将责任归咎于疫苗。
+
+但是，在识别死于 COVID 的人时，CDC 使用了一个非常不同的标准。
+
+如注释 [1] 所示，CDC 在此处报告的 986,000 例 COVID 死亡是“确认或假定[强调] COVID-19 的死亡。”
+
+如果一个人死于 PCR 检测呈阳性或被推定患有 COVID，CDC 会将其视为 COVID-19 死亡。
+
+请注意，在 CDC 的定义中，COVID 死亡并不意味着该人死于该疾病，而只是伴随该病而死亡。
+
+为什么需要尸检来确定COVID疫苗死亡而不是确定COVID死亡？
+
+相反，为什么最近在死亡前接触过 SARS-CoV-2 足以确定因果关系——但最近打过疫苗却被认为​​是巧合？
+
+接下篇6位公共卫生官员曾用双重标准为COVID疫苗辩护(1/5)
+
+新闻来源：[6 Double Standards Public Health Officials Used to Justify COVID Vaccines](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-23.jpeg)
 
  
 

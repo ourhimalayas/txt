@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group39/origin/2022/04/15/04/234fc0aa-4b48-20ac-fa2f-3eb46eaf7c14/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 4:20 AM (UTC)`
 
 4/10/2022 Miles Guo:  Mr. Miles Guo sent a message to our fellow fighters especially living in mainland China:  listen to the songs created by our fellow fighters in the Whistleblowers' Movement, learn to be at peace with what has happened and let go of your hang-ups, and survive the hard time!<br/><br/>4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关<br/>
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 2022.04.14  新中国联邦 | 喜健康    压力与营养的关系
 ![img](https://media.gettr.com/group37/origin/2022/04/14/20/9e7889aa-1580-e97c-56dc-b04bb3943e6b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 7:06 PM (UTC)`
-
-2022-4-14《避风港》(36) 专家预警：疫苗即将带来深重灾难
-![img](https://media.gettr.com/group49/origin/2022/04/14/19/9c3af3b9-4380-4ea0-5957-185038c210bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

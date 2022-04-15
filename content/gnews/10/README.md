@@ -2,28 +2,40 @@
 ---
 
 
-## 羡慕乌克兰有这样一位不唱赞歌的国母！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349261/)
+## 中日财经爆┃马斯克拟以430亿美元收购推特 遭沙特王子拒绝
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349262/)
 
-撰稿：东京樱花团/待命（文晓）
+撰稿：东京樱花团/asket
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1805.png)（图片源自本文链接）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1807.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.massnews.com%2Fmusks-twitter-offer-rejected-analysis%2F&amp;psig=AOvVaw2XIWKzDNHeN-E7cJ9WC4lX&amp;ust=1650079651705000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQ3YkBahcKEwjA9u7wj5X3AhUAAAAAHQAAAAAQEA)
 
-4月15日CNN消息：当俄罗斯军队入侵自己的祖国乌克兰时，总统沃洛季米尔-泽伦斯基和他的妻子奥莱娜-泽伦斯卡拒绝叛逃或投降，选择了像许多普通的男女公民一样，抵抗俄军入侵。
+沙特王子瓦利德-本-塔拉勒是Twitter的主要股东，他拒绝了埃隆-马斯克以430亿美元收购该公司的提议。
 
-总统致力于对俄罗斯军队的军事反击，第一夫人则致力于关注人道主义问题和儿童问题，并努力让世界了解战争给乌克兰平民带来的痛苦。
+瓦利德-本-塔拉勒(Al Waleed bin Talal)在Twitter上说，他拒绝企业家对该社交媒体平台的现金报价，因为它太低了。
 
-总统夫人说：您和您的家人在这种情况下是如何坚持下来的？如果问我现在的感觉是怎样的？我觉得自己好像已经倒退了很多年，甚至是几十年。
+“我不相信@elonmusk提出的报价（54.20美元）接近（Twitter）的内在价值，因为它的增长前景。作为Twitter最大和长期的股东之一，@Kingdom\_KHC和我拒绝这一提议。”
 
-现在的问题不是健康饮食，而是一般的食物。儿童的生命和死亡都处于危险之中!　我们不再像以前那样讨论学校的最佳设施，（相反）现在挑战的应该是如何为数百万儿童提供教育。我们已经没有考虑孩子们的健康生活的能力，现在最重要的课题是如何才能拯救所有的孩子。
+王子经营着位于沙特的控股公司KHC，他还分享了一条2015年的推文，其中他宣布将其在Twitter的股份增至5.7%。
 
-全世界有目共睹，她的丈夫带领乌克兰人民英勇抗击俄军侵略，甚至被全世界爱好和平的人视为大英雄。但这位国母只字未提，只是在全神贯注的说乌克兰人民，乌克兰孩子现在多么需要帮助等关于如何救人的，老百姓听了会感觉很实在，确实是在设法救人的话。
+马斯克先生是该公司最大的股东，拥有9.2%的股份，他在周四凌晨宣布了对Twitter的收购要约。
 
-笔者读过这篇报道的强烈感受是：我们中国人从未有过这样的国母！羡慕！羡慕！羡慕乌克兰人民能有这样一位急百姓之所急，想百姓之所想，不唱赞歌的国母！
+马斯克先生在给Twitter董事会主席布雷特-泰勒的信中说：”我提出以每股54.20美元的现金收购Twitter的100%股份，比我开始投资Twitter的前一天溢价54%，比我公开宣布投资前一天溢价38%。
 
-信息来源： [「一番の標的は私たち全員」、ロシア軍攻撃から逃れる者なし　ウクライナ大統領夫人が警告（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/cd22734c2c140fd22c8c1f7916014cfb59c9ec23)
+据彭博社报道，马斯克先生的个人财富约为2600亿美元，他说，Twitter必须私有化，才能进行他认为必要的变革。
 
-*校对：东京樱花团/喜马拉雅的微尘
+“马斯克先生在信中说：”我投资于推特，因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常的民主社会所必须的。”推特具有非凡的潜力。我将释放它。”
+
+他说，如果他的提议不被接受，他 “将需要重新考虑我作为股东的立场”。
+
+据报道，Twitter的董事会在周四开会讨论这一提议，该公司正在与员工举行全员会议，讨论这一情况。
+
+与此同时，白宫表示，它对埃隆-马斯克收购该社交媒体平台的提议不予置评。
+
+“这是一个私人投资者的提议，”白宫首席副新闻秘书Karine Jean-Pierre在空军一号上告诉记者。
+
+信息来源： [**Saudi prince, who is major Twitter shareholder, rejects Elon Musk offer to buy company**](https://www.independent.co.uk/tech/elon-musk-twitter-offer-saudi-b2058326.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  

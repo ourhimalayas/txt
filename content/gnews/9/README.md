@@ -2,42 +2,33 @@
 ---
 
 
-## 中日财经爆┃马斯克拟以430亿美元收购推特 遭沙特王子拒绝
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349262/)
+## 岸田首相明确态度：无意派大使去游说普京
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2349270/)
 
-撰稿：东京樱花团/asket
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/岸田首相明确态度：无意派大使去游说普京.png)（图片源自本文链接）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1807.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.massnews.com%2Fmusks-twitter-offer-rejected-analysis%2F&amp;psig=AOvVaw2XIWKzDNHeN-E7cJ9WC4lX&amp;ust=1650079651705000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQ3YkBahcKEwjA9u7wj5X3AhUAAAAAHQAAAAAQEA)
+4月15日FNN综合在线消息：关于俄罗斯入侵乌克兰的问题，岸田首相否认他将派遣前首相安倍晋三作为特使前往俄罗斯，他说他目前无意派遣特使。
 
-沙特王子瓦利德-本-塔拉勒是Twitter的主要股东，他拒绝了埃隆-马斯克以430亿美元收购该公司的提议。
+在15日的参议院全体会议上，岸田首相被问及是否会派遣与普京总统建立了密切关系的前首相安倍晋三作为外交特使前往俄罗斯阻止俄罗斯的军事行动。他回答说：德国、法国、奥地利等国已经直接游说普京总统，但没有迹象表明普京愿意做出妥协。
 
-瓦利德-本-塔拉勒(Al Waleed bin Talal)在Twitter上说，他拒绝企业家对该社交媒体平台的现金报价，因为它太低了。
+岸田首相随后明确否定了派遣前首相安倍晋三作为特使前往俄罗斯的可能性。并表示，俄罗斯有必要倾听国际社会的声音。他还说，有必要对俄罗斯采取强有力的制裁措施，以停止其侵略行为，目前无意派遣特使。
 
-“我不相信@elonmusk提出的报价（54.20美元）接近（Twitter）的内在价值，因为它的增长前景。作为Twitter最大和长期的股东之一，@Kingdom\_KHC和我拒绝这一提议。”
+被问及岸田首相亲自访问乌克兰并与泽伦斯基总统举行直接会谈的可能性时，他说：我们将考虑当地的情况等因素，不断思考什么是适合我国的做法。
 
-王子经营着位于沙特的控股公司KHC，他还分享了一条2015年的推文，其中他宣布将其在Twitter的股份增至5.7%。
+信息来源： 
+[安倍元首相ロシア派遣に「現時点で特使派遣の考えない」　岸田首相（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7b634e2b553aec401e38a5e7ce7fb6f2ba4d9d20)
 
-马斯克先生是该公司最大的股东，拥有9.2%的股份，他在周四凌晨宣布了对Twitter的收购要约。
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-马斯克先生在给Twitter董事会主席布雷特-泰勒的信中说：”我提出以每股54.20美元的现金收购Twitter的100%股份，比我开始投资Twitter的前一天溢价54%，比我公开宣布投资前一天溢价38%。
-
-据彭博社报道，马斯克先生的个人财富约为2600亿美元，他说，Twitter必须私有化，才能进行他认为必要的变革。
-
-“马斯克先生在信中说：”我投资于推特，因为我相信它有可能成为全球自由言论的平台，我相信言论自由是一个正常的民主社会所必须的。”推特具有非凡的潜力。我将释放它。”
-
-他说，如果他的提议不被接受，他 “将需要重新考虑我作为股东的立场”。
-
-据报道，Twitter的董事会在周四开会讨论这一提议，该公司正在与员工举行全员会议，讨论这一情况。
-
-与此同时，白宫表示，它对埃隆-马斯克收购该社交媒体平台的提议不予置评。
-
-“这是一个私人投资者的提议，”白宫首席副新闻秘书Karine Jean-Pierre在空军一号上告诉记者。
-
-信息来源： [**Saudi prince, who is major Twitter shareholder, rejects Elon Musk offer to buy company**](https://www.independent.co.uk/tech/elon-musk-twitter-offer-saudi-b2058326.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
