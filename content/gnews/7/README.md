@@ -2,22 +2,23 @@
 ---
 
 
-## 以歌灭共成绩斐然 意义重大
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2350708/)
+## 穆迪称俄罗斯可能对美元债券违约
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2350816/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-自上榜以来，《灭共的雪》和《铁锁梦》连续多日占领多个国家和地区iTunes排行榜前列。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323078.jpg)
-郭文贵先生在4月10日的大直播中表示，因为中共的威逼利诱，两首灭共歌曲上榜之路艰辛。成功上榜后，中共又恶意篡改数据。即便如此，这两首歌仍在中共国内受众极广，达十几亿的次播放量。 两首歌曲同时打榜，也震撼了日本、台湾等业界人士。
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-15-下午5.06.25.png)图片来源：MIKHAIL TERESHCHENKO/ZUMA PRESS
+穆迪投资者服务公司表示，俄罗斯在用卢布支付美元债券后可能出现违约。
 
-参考链接：[4/10/2022 文贵直播](https://www.gettr.com/post/p1589c85e83)
+穆迪在周四的一份声明中说：”据报道，俄罗斯用卢布而不是美元支付2022年和2042年到期的两笔债券，这意味着相对于最初的债券合同而言，支付条款发生了变化，因此，如果在5月4日，即宽限期结束前没有得到纠正，可能被视为违约。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+如果俄罗斯被认为是违约，这将是自1917年布尔什维克革命之后的几年中，俄罗斯首次在外国债券上出现重大违约。
 
-编辑/总编：雪梨
+原文链接：[Russia may be in default, Moody’s says](https://www.reuters.com/world/europe/moodys-says-russia-may-be-default-dollar-bonds-2022-04-15/)
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

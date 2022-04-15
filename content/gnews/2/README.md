@@ -2,28 +2,46 @@
 ---
 
 
-## 中日财经爆┃日本铃木财务大臣认为目前是“不好的日元贬值”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2350758/)
+## 民生集萃——裁员最大的感受（2022.4.15）&#8211;裁员后直观感受
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350855/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃日本铃木财务大臣认为目前是不好的日元贬值.png)[图片来源](https://asia.nikkei.com/Politics/Japan-election/Kishida-to-name-Shunichi-Suzuki-as-Japan-s-new-finance-minister)
-日本财务大臣铃木俊一在4月15日内阁会议后会见媒体称,在原材料价格上涨不能充分转嫁或工资上涨不足的环境下,日元贬值是“不好的日元贬值”。
+#### 雅典娜情报组《民生灾难收集专栏》
 
-财政大臣说:“现在日元贬值,进口商品等(价格)却正在高涨。特别是加上乌克兰局势,这种趋势很强。”这种“不能将原材料转嫁到价格上,或者买的人,对于工资没有增长到明显超过和弥补这种增长的环境，我认为是不好的日元贬值。”
+整理/编辑：gardeniahu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-5.png)圖片來源：雅典娜設計組(614)
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-关于美元/日元行情时隔20年的日元贬值,表示“不发表评论”,并表示“汇率的稳定很重要,特别是快速变动是不可取的”。
+帖子原文：
 
-信息来源：
-[不十分な価格転嫁や賃金上昇は「悪い円安」＝鈴木財務相](https://news.yahoo.co.jp/articles/4bbc4f903865e6af63eaf32800d05a707cfb7610)
+裁员最大的感受
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+裁员后直观感受：
+
+1、地铁都不如以前有上下班的感觉了，总体来说很空旷。
+
+2、吃饭也不那么需要排队了，以前排10几米的队伍，现在可能最多只有之前的三分之一。
+
+3、职场更空了，原本就比较空的4号楼，感觉更冷清了。
+
+4、身边天天都有听说被裁员，整个心态有点差。
+
+发布于03.31
+
+精选评论
+
+莱布拉libra  回复：最大感受就是，身边留未来几年的现金流。
+
+用户已注销  回复：大环境的经济就不好，也是没招。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1834.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1835.png)图片来源：小红书
+参考链接:[裁员最大的感受](https://www.xiaohongshu.com/discovery/item/6245a573000000000102ba7e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649993176)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 
  
 

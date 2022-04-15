@@ -15,128 +15,128 @@
 
 ---
 
-### [樱花时政┃捷克外长希望与台湾建立更紧密关系](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆┃日本铃木财务大臣认为目前是“不好的日元贬值”](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [COVID-19疫苗副作用集萃(2022.4.15D) 第三针摩德纳对身体的危害](/content/gnews/3/README.md)
+### [民生集萃——疫情导致很多公司倒闭（2022.4.15）&#8211;疫情导致工作难找](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃难道吃饱饭比祖国更重要吗？](/content/gnews/4/README.md)
+### [民生集萃——裁员最大的感受（2022.4.15）&#8211;裁员后直观感受](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [闲聊澳洲：观看郭先生4月14日盖特直播视频的感受](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [COVID-19疫苗副作用集萃(2022.4.15E) 第三针疫苗后身体产生副作用](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花时政┃联合国称俄乌战争严重危及弱势群体](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [旅行地狱：由于人员短缺 捷蓝航空取消了更多航班](/content/gnews/5/README.md)
+### [看看今年的医疗保健业的亿万富翁](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花时政┃韩国时隔二年解除中共病毒规定](/content/gnews/6/README.md)
+### [穆迪称俄罗斯可能对美元债券违约](/content/gnews/7/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [樱花时政┃受北韩导弹威胁，日本或将恢复居民疏散演习](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以歌灭共成绩斐然 意义重大](/content/gnews/7/README.md)
- ` NFSC News`
+### [台湾担忧中共入侵 发布公民防御手册](/content/gnews/9/README.md)
+ ` topnews`
 
-### [卢比奥关于2021年国家人权实践报告的声明](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
+### [中共二十大 开展网络定调排查工作](/content/gnews/10/README.md)
+ ` 儒为`
 
-### [樱花时政┃“莫斯科”号沉没打掉俄罗斯军队虚幻的尊严](/content/gnews/9/README.md)
+### [樱花时政┃捷克外长希望与台湾建立更紧密关系](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海特色”防疫模式即将登陆北京，广州，郑州，大连，福建周边等城市](/content/gnews/10/README.md)
- ` 澳喜农场`
+### [COVID-19疫苗副作用集萃(2022.4.15D) 第三针摩德纳对身体的危害](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [郭文贵先生谈新中国联邦的金山、银山、钻石山](/content/gnews/11/README.md)
- ` NFSC News`
-
-### [俄军将把被乌克兰声称导弹击瘫的军舰拖回港口](/content/gnews/12/README.md)
+### [旅行地狱：由于人员短缺 捷蓝航空取消了更多航班](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻时评】 mRNA疫苗引发类艾滋病综合症](/content/gnews/13/README.md)
+### [6位公共卫生官员曾用双重标准为COVID疫苗辩护(5/5)](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [以歌灭共成绩斐然 意义重大](/content/gnews/15/README.md)
+ ` NFSC News`
+
+### [樱花时政┃“莫斯科”号沉没打掉俄罗斯军队虚幻的尊严](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生谈新中国联邦的金山、银山、钻石山](/content/gnews/17/README.md)
+ ` NFSC News`
+
+### [俄军将把被乌克兰声称导弹击瘫的军舰拖回港口](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【秘翻时评】 mRNA疫苗引发类艾滋病综合症](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [6位公共卫生官员曾用双重标准为COVID疫苗辩护(4/5)](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [上海军管封城实则消灭老年人❗️](/content/gnews/20/README.md)
+ ` mayflowertranslate`
 
-### [快讯：马斯克提出430亿收购Twitter 将其转变为“私人公司”](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [一位来自西班牙的志愿者说，只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！](/content/gnews/16/README.md)
+### [一位来自西班牙的志愿者说，只要我们愿意成为照亮这个世界的那道光，就一定可以打倒中国共产党！](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [马斯克猛砸410亿美元现金 提出收购推特建议](/content/gnews/17/README.md)
+### [马斯克猛砸410亿美元现金 提出收购推特建议](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台媒：原住民在新中国联邦法治基金梅迪卡难民帐篷做义工](/content/gnews/18/README.md)
+### [台媒：原住民在新中国联邦法治基金梅迪卡难民帐篷做义工](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [聚焦：核战阴云笼罩欧洲](/content/gnews/19/README.md)
+### [聚焦：核战阴云笼罩欧洲](/content/gnews/24/README.md)
  ` 蓝莲花农场`
 
-### [杰克·基恩：美国应该增加军费预算并投资台湾](/content/gnews/20/README.md)
+### [杰克·基恩：美国应该增加军费预算并投资台湾](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：韩国明知医院称至少有65%的新冠(中共病毒)患者出现3种以上后遗症](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：韩国新增新冠（中共病毒）确诊12万5846例，危重症999人，死亡264人](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [6位公共卫生官员曾用双重标准为COVID疫苗辩护(3/5)](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [6位公共卫生官员曾用双重标准为COVID疫苗辩护(2/5)](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [《避风港Haven》直播内容精选（第三十五集）](/content/gnews/25/README.md)
+### [《避风港Haven》直播内容精选（第三十五集）](/content/gnews/26/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [2022/04/11 墙内世界](/content/gnews/26/README.md)
+### [2022/04/11 墙内世界](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法](/content/gnews/27/README.md)
+### [新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [管控区附近的姥姥经打点终于住进医院背后的辛酸与无奈](/content/gnews/28/README.md)
+### [管控区附近的姥姥经打点终于住进医院背后的辛酸与无奈](/content/gnews/29/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [这次是海洋文明与陆地文明的再一次重创与PK](/content/gnews/29/README.md)
+### [这次是海洋文明与陆地文明的再一次重创与PK](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻北美时评】上海市张江镇市民冲破封锁走向街头](/content/gnews/30/README.md)
+### [【秘翻北美时评】上海市张江镇市民冲破封锁走向街头](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来](/content/gnews/31/README.md)
+### [能源制约欧洲已成过去，重亚轻欧无皇有主的时代正式到来](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [由于无限期的封锁，巴西到上海港的肉类货物运输中断](/content/gnews/32/README.md)
+### [由于无限期的封锁，巴西到上海港的肉类货物运输中断](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑](/content/gnews/33/README.md)
+### [教朝鲜用数字资产规避制裁，前以太坊基金会研究员获刑](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德军火商将向乌克兰提供豹式1型坦克](/content/gnews/34/README.md)
+### [德军火商将向乌克兰提供豹式1型坦克](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [巴西人道救援 接收乌克兰难民](/content/gnews/35/README.md)
+### [巴西人道救援 接收乌克兰难民](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [币圈新闻动态：喜币（HCN）价格目前在39.000 HDO](/content/gnews/36/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在39.000 HDO](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞](/content/gnews/37/README.md)
+### [樱花时政┃欧盟终于堵住了向俄罗斯出售武器的漏洞](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃美国摩根大通利润暴跌](/content/gnews/38/README.md)
+### [中日财经爆┃美国摩根大通利润暴跌](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [波兰政府发放新中国联邦乌克兰救援行动志愿者证](/content/gnews/39/README.md)
+### [波兰政府发放新中国联邦乌克兰救援行动志愿者证](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [上海沦为习近平坚守清零政策的炼狱场](/content/gnews/40/README.md)
+### [上海沦为习近平坚守清零政策的炼狱场](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
-
-### [中共卫健委救治组专家康焰:无症状感染者不要需特别治疗](/content/gnews/41/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [马斯克出价430亿美元收购推特称要打造言论自由平台](/content/gnews/42/README.md)
  ` 蓝莲花农场`

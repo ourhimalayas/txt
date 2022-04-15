@@ -2,45 +2,28 @@
 ---
 
 
-## 中共卫健委救治组专家康焰:无症状感染者不要需特别治疗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2349097/)
+## 上海沦为习近平坚守清零政策的炼狱场
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2349136/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/方舱医院_副本.png)
-据[**南方人物周刊**](https://weibo.com/southernpeopleweekly?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2022年4月15日10:16](https://weibo.com/1653460650/LowQ95iNG?ref=home&amp;rid=19_0_8_4807431721339829774_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+**撰稿：日本东京方舟农场  胖小哥**
 
-[#声音·观点#](https://s.weibo.com/weibo?q=%23%E5%A3%B0%E9%9F%B3%C2%B7%E8%A7%82%E7%82%B9%23&amp;from=default)【无症状感染者不需要特别救治】国家卫健委赴吉林医疗救治组专家、四川大学华西天府医院院长 康焰：国家卫健委发布的第九版《新型冠状病毒肺炎诊疗方案》，是把无症状和轻型病人都集中到方舱进行救治。一般来说在方舱不需要特别救治，可能会给他们喝点中药，更多是让他们尽可能恢复到正常的生活状态。通俗来讲，就是让他们吃好、睡好、休息好，保持愉快的心情，那么他们对抗病毒的这种自我抵抗力就会得到保证和稳定，所以基本上在方舱的轻型和无症状患者是这样治疗的。（新闻一加一） [L新闻一加一的微博视频](http://t.cn/A663lr2J)
+一则网络调查引发大量网友对中国上海坚持习近平的“清零政策”而引起的人道灾难的关注。上海因为坚持“清零”的防疫政策，导致的城市居民饥荒，抑郁以及本身其他的病患无法得到救治而去世的事件屡屡见诸网络。
 
-\*\*\*\*\*\*\*引用完毕\*\*\*\*\*\*\*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-296.jpg)图片源自网络
 
-国家卫健委赴吉林医疗救治组专家、四川大学华西天府医院院长 康焰通过央视平台发出的这则说明意味深长，也就是说从国家层面的专家嘴里说出中共的无症状感染者被集中隔离的本质原因在于隔离或者说封禁，既然无症状感染者在方舱不需要特别救治，那么为什么要把无症状感染者集中隔离呢？
+在一份微信上发布但随后迅速被删除的文章可以对上海的惨状略知一二，该文章记录了部分因为上海封闭“清零”政策而逝去的人员，这些人员其中包括了普通的医护工作者，也不乏名人，例如中国著名财经评论员郎咸平的母亲因为核酸结果四小时未出，无法及时得到救治而去世。
 
-方舱医院的环境到底能不能保证每位被隔离的无症状感染者及轻症患者吃好、睡好、休息好？这是一个不需要回答的问题，因为从我们零星看到的各地方舱医院都存在吃不好、睡不好、休息不好、卫生脏乱差的普遍现象。
+根据上海中共病毒疫情（COVID-19）通报，自上海疫情爆发以来，因为中共病毒（COVID-19）去世的人数为0，但中共病毒（COVID-19）“清零”政策导致的其他死亡却不计其数，饿死、病死、抑郁跳楼死等层出不穷，上海沦为了中共病毒（COVID-19）“清零”政策下的炼狱场。
 
-那么全国各地的方舱医院以及各种集中隔离点到底封禁了多少人呢？这个数字难以统计，但是这应该是个天文数字，那么全国各地因所谓发现无症状感染者而封城、封区造成的饿死、因病得不到救治死亡、自杀等次生灾难又有多少呢？这也是一个天文数字。
+4月14日，中国网络盛传上海卫健委信息中心主任钱文雄因疫情期间压力太大而自杀身亡，该消息随后得到证实。
 
-中共制造和释放作为超限生物武器的新冠病毒杀人之余，再以疫苗杀人，疫苗杀人之余再以全员核酸检测和方舱医院及集中隔离杀人，在以方舱医院和集中隔离点杀人之余，再利用封城、封区制造饥饿、制造求医困难杀人，这一系列的杀人链条正在以血淋淋的方式展现给世人，而此番国家卫国家卫健委赴吉林医疗救治组专家、四川大学华西天府医院院长康焰的无意表白却在不经意间掀开中共大规模集中隔离无症状感染者和轻症患者的真相的一角。
+据法广的采访报道，目前在上海浦东陆家嘴的中国“厕所革命”的发起者季孝龙先生表示：“我相信上述消息应该属实，但是，这位官员的自杀不会引发我的同情与怜悯，因为今天整个上海无数个生灵都在哀嚎，都在生死存亡的边缘挣扎。”针对政府官员的自杀，这位季先生评论到：“我很愿意相信这位官员是无法承受清零政策带来的心理压力，满怀愧疚做出这样的行为。因为，通常中国官员自杀往往是因为贪腐丑闻被揭露，罪行必将被追究，为了隐藏自己的财富而自杀。”
 
-撰稿：喜马拉雅的肉夹馍；
+参考链接：
+[季孝龙：习近平坚守清零政策堪为现代唐吉可德 (rfi.fr)](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220414-%25E5%25AD%25A3%25E5%25AD%259D%25E9%25BE%2599-%25E4%25B9%25A0%25E8%25BF%2591%25E5%25B9%25B3%25E5%259D%259A%25E5%25AE%2588%25E6%25B8%2585%25E9%259B%25B6%25E6%2594%25BF%25E7%25AD%2596%25E5%25A0%25AA%25E4%25B8%25BA%25E7%258E%25B0%25E4%25BB%25A3%25E5%2594%2590%25E5%2590%2589%25E5%258F%25AF%25E5%25BE%25B7)
 
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+总编：青城道姑
+校对发布：爱放飞
 
  
 
