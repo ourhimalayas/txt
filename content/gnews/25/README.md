@@ -2,35 +2,26 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
+## 郭文贵乱聊直播音频2022.04.14
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2352459/)
 
-作者：香草山翻译部
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6383d6c383a688bc0ce747d8282e44b3_500x0.jpeg)
+### 视频链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+[https://www.gettr.com/post/p159w5ob237](https://www.gettr.com/post/p159w5ob237)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
+[https://www.gettr.com/post/p15aede6360](https://www.gettr.com/post/p15aede6360)
 
-文章仅代表作者本人观点，与Gnews无关
+[https://www.gettr.com/post/p15a3qt15e1](https://www.gettr.com/post/p15a3qt15e1)
 
-视频参看：
-[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
-[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
+### 音频链接：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+
+编辑发布：闪电训练
 
  
 

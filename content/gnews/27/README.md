@@ -2,28 +2,36 @@
 ---
 
 
-## 俄乌战局最新消息汇总(4.15)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352368/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
 
-作者：文斌
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月13日，俄罗斯国防部发出威胁，如果乌克兰继续打击俄罗斯境内的目标，将攻击基辅的决策总部。俄军继续在哈尔科夫州为进攻行动进行集结，对伊久姆南部进行了小规模攻击，但进展缓慢。在过去24小时内，交战相对最激烈的地方是阿瓦迪夫卡，俄军炮击该镇，并发动了几次小规模的攻击，并未成功。俄军可能正为更大范围的进攻势做准备。美国情报来源称，俄军有大约55个营级战术群在乌克兰南部作战，这个数字可能包括了顿巴斯和赫尔松一带的俄军。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/37ddb7102a1a43938d1d1b87026f7def-scaled.jpeg)
-乌克兰总参谋部报告说，俄罗斯在顿涅茨克和卢甘斯克组建了五个兵力不足的摩托化步枪团，其实只相当于5个营的兵力，每个营约 300 人，只有 5-10% 的士兵有战斗经验。在马里乌波尔，俄军占领了北部的伊里奇金属厂。美国情报人士4月13日表示，俄罗斯军队很可能在克里米亚和乌克兰南部建立了两个补给基地，为马里乌波尔和赫尔松的行动提供补给。
+作者：香草山翻译部
 
-乌克兰方面，法国科技宪兵支队正在布查开展调查工作。乌军副总司令叶文·莫伊修克于13日视察了哈尔科夫州一个不明地点的前线，以检查乌克兰的防御阵地。哈尔科夫州民政当局称乌军在罗汉和德哈奇进行了小规模反击。在马里乌波尔，有相当一部分乌克兰海军陆战队第36旅人员成功突围到亚速钢铁厂与那里的守军会合，第36旅和亚速营的指挥官还在13日发布了一个联合视频。当日最亮眼的胜利，是乌军向正在蛇岛附近巡弋的“莫斯科”号巡洋舰发射了2枚海王星反舰导弹，重创了这艘排水量为 12,490 吨的的黑海舰队旗舰，并最终沉没。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
 
-更多信息，请关注本台持续报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
 
-参考链接：
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+视频参看：
+[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
+[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
 
-编辑：宁文静
-总编：宁文静
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

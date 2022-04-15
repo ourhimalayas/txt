@@ -2,10 +2,10 @@
 ---
 
 
-## 国台办发言人马晓光威胁台湾民众
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2352679/)
+## 上海市民饥饿难耐不戴口罩想进牢房吃饭
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2352700/)
 
-04/12/2022 国台办发言人马晓光威胁台湾民众：台独意味着和平的丧失和灾难的降临。
+04/14/2022 上海封城造成食物供应短缺，一市民饥饿难耐只好不戴口罩找警察要求被抓进监狱以吃一口饱饭。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
