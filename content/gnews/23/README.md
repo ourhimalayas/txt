@@ -2,28 +2,23 @@
 ---
 
 
-## 德军火商将向乌克兰提供豹式1型坦克
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349450/)
+## 巴菲特针对推特控股之事说“马斯克在赢，这是美国”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2349457/)
 
-作者：Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1d67ed2883bd401f8cf0299d93afc754.jpeg)
-资料显示，莱茵金属公司是德国最大的军火商，其所制造的豹式1型战斗坦克是目前在德国武装部队服役的豹式2型坦克的前身型号，但豹1坦克仍是许多国家的主要地面作战力量。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-105.jpg)
+图片来源： superpyq.com
 
-报道提及，自俄罗斯侵略战争开始之后，德国政府改变了其不向冲突地区运送武器的长期政策，反而主动向基辅提供了大量的反坦克武器和导弹。 对此，德国外长贝尔伯克指出，乌克兰需要军事物资，尤其是重型武器，才能抵御俄罗斯军队的攻势。
+零对冲网4月14日报道，纽约时报说根据两个知道内情的人士透露，推特委员会正在考虑采取防范性动作，例如给马斯克设陷井让他难以在这个社交巨头平台上发挥作用。
 
-据了解，熟练的乌克兰军事人员可以在几天内精通豹1坦克的操作技术。
+这个陷井之一就是股东权利计划，该计划能够限制单一股东的运作能力，这基本上是让该公司影响新股份或允许现有的持股者而非潜在股票获得者购买降价股份。
 
-参考链接：[Rheinmetall ready to supply up to 50 tanks to Ukraine – newspaper](https://www.swissinfo.ch/eng/rheinmetall-ready-to-supply-up-to-50-tanks-to-ukraine---newspaper/47508992)
+多数自由派反对马斯克，但有一个全球著名的最富者之一却支持马斯克，他说： “ 这是美国的产物，我认为马斯克有主见，他正在赢，这是美国，你不能靠做梦，这事很惊人。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+当马斯克提出$54.20一股的价格收购时，沙特王族在推特上回复说：“ 我不认为这个价格接近于推特成长前景的内在价值，作为一个最大的长期推特股票持有者，我拒绝这个价。” 这个有些奇怪，因为表面看起来沙特王族并不是最大的持股者。马斯克随即问： “你拥有多少股份，直接的还是间接的？王族对自由言论的观点如何？” 马斯克说，如果A计划不行，他还有B计划。
 
-编辑：玫瑰圓
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+#### 新闻来源： [Buffett Says “Musk Is Winning…It’s America” As TWTR Board Ponders Poison Pill](https://www.zerohedge.com/markets/best-and-final-offer-elon-musk-offers-buy-twitter-5420-share)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,276 +2,53 @@
 ---
 
 
-## 新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2350029/)
+## 韩国出人意料地加息，加大对抗通胀的力度
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2350207/)
 
-我原来的在吉林镍矿的中学的女同学
-Mi ex compañera de clase en la escuela secundaria de la mina de níquel de Jilin
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-303.jpg)图片来自网络
+《路透社》近日报道，韩国央行周四出人意料地将其基准利率提高到2019年8月以来的最高值，因为它加大了对威胁其经济复苏的通胀的打击力度。
 
-说我现在在看你们直播
-Dijo que ahora estoy viendo la transmisión en vivo de ustedes
+在其有史以来第一次在没有行长的情况下举行的利率审查中，该银行的货币政策委员会投票决定将利率提高0.25个百分点至1.50%，在路透社的调查中，只有不到一半的经济学家预见到这一结果。
 
-就是到乌克兰前线救人
-El rescate en Ucrania en primera línea
+大多数分析家曾预计，在李柱烈上个月结束其行长任期后，韩国银行将在其新行长上任前保持利率不变。
 
-她嫁给了一个外国人
-Ella se casó con un extranjero
+由六名成员组成的政策委员会代理主席Joo Sang-yong（朱尚勇）说，该银行不能等待新行长的正式任命来继续努力减缓通货膨胀，并警告说价格增长可能会在一段时间内超过4%，高于其2月份预测的3.1%。
 
-她已经有孙子孙女了
-Ya tiene nietos
+“5月份背靠背加息也是有可能的，”Kyobo证券的分析师Paik Yoon-min（白润敏）说，他认为到今年年底政策利率为2.00%。
 
-而且看到我们的救人, 她最大感触
-Y al ver nuestro rescate, su mayor sentimiento
+“如果美联储从5月开始大步加息，它将很快追上韩国的基准利率，并削弱韩国央行先发制人举措的有效性。”
 
-她说她在她家地位增高了
-Dijo que ha crecido su estatus en la casa
+**滞胀风险**
 
-你们啥时候会救人呢
-¿Ustedes cuándo salvarán a las personas?
+虽然加息与大多数经济学家的官方预测背道而驰，但许多投资者认为4月份的紧缩政策是一个鲜活的前景，韩元和债券收益率在此举之后几乎没有受到影响。
 
-我告诉你
-Te digo
+事实上，在朱尚勇在新闻发布会上谈到增长的下行风险后，三年期国债收益率下降。
 
-这头儿就是我七哥
-Este Boss es mi amigo
+在一份政策声明中，韩国央行表示，韩国的经济增长预计将低于2月份预测的3%。
 
-我同学
-Mi compañero
+同时，由于俄罗斯入侵乌克兰使商品价格飙升，韩国的通货膨胀率预计将维持在十年来的高位。
 
-她这个外国丈夫讲流利的普通话
-Su esposo extranjero habla mandarín con fluidez
+周四的利率决定是因为新西兰和加拿大都实现了50个基点的加息，以及其他亚太央行将其重点从支持经济增长转移到打击激增的通货膨胀之后作出的。
 
-在哈尔滨军工待着的
-Permanece en la industria militar de Harbin
+分析师认为，韩国的政策利率在今年年底将达到2.00%。
 
-是原来的俄罗斯人生在乌克兰
-Es un ruso que nació en Ucrania
+国际货币基金组织资深官员、韩国央行行长提名人Rhee Chang-yong（李昌勇）预计将在4月19日举行必要的议会听证会后开始其四年任期。
 
-你去想想现在你们在前线意味着什么
-Piensa qué sentido tiene, ustedes estando en la primera línea ahora
+本周，流动性最强的三年期国债收益率超过3.2%，达到2012年以来的水平，因为美国加快加息的前景加剧了人们对全球经济承受更高融资成本能力的担忧。
 
-一个生在乌克兰的俄罗斯人
-Un ruso nacido en Ucrania
+美联储在3月份提高了政策利率的目标区间，这是2018年以来的首次上调，分析人士预测，美联储在收紧货币政策方面将变得更加激进，以加强对通货膨胀的打击。
 
-到了哈尔滨军工帮助中共搞武器
-Llega a Harbin, a la industria militar a ayudar al PCCh a fabricar armas
+全球掀起一股加息潮，各国央行都在努力为通胀降温，利率的上升是压缩资金的流动性以及压制投机资金。大家都要合理的调整自己的资产配置，避免财富蒸发。
 
-然后娶了一个东北女人
-Y se casó con una mujer del noreste
+参考链接：
 
-已经子孙三代了
-Tienen tres generaciones
+[https://www.reuters.com/business/finance/south-korea-steps-up-inflation-fight-with-surprise-rate-hike-2022-04-14/](https://www.reuters.com/business/finance/south-korea-steps-up-inflation-fight-with-surprise-rate-hike-2022-04-14/)
 
-然后看到你们去救乌克兰
-Luego vio a ustedes haciendo rescate en Ucrania
+*编辑：金生水*
 
-她感动了
-Ella fue conmovida
-
-竟然找到七哥
-Me encontró
-
-这真的是, 这是多么
-Esto realmente es, algo tan…
-
-说我们每时每刻都在改变自己的人生
-Por eso digo que nosotros estamos cambiando nuestras vidas en cada minuto y segundo
-
-你们在前线的这种救援
-Este tipo de rescate en primera línea
-
-你去想想影响多少中国人
-Piensen a cuántos chinos han influenciado
-
-国际婚姻在海外的形象啊
-La imagen del matrimonio internacional en el extranjero
-
-你想这多么记忆深刻呀
-Piensa lo inolvidable que es esto
-
-你们这上边这个马甲, 每时每刻都传送着光芒
-Este chaleco que tienen puesto encima de ustedes, transmite luz a cada instante
-
-就是跟我要马甲的人一大堆
-Cantidades de personas me han pedido este chaleco
-
-世界级的大佬
-Un Boss a nivel mundial
-
-金融华尔街大佬之一
-Uno de los grandes Boss financieros del Wall Street
-
-都是你们每天在报纸上看到的人
-Son personas que ustedes ven todos los días en el periódico
-
-说Miles你要给我几个马甲
-Dijo, Miles, debes darme unos cuantos chalecos
-
-我的孙子要你的马甲
-Mi nieto quiere tu chaleco
-
-我说为什么
-Le pregunté, ¿por qué?
-
-他说那个太棒了
-Dijo que eso es maravilloso
-
-他原来是绝对共产党的
-Él era absolutamente del PCCh
-
-那是他把共产党当爹的, 我跟你说
-Él veía al PCCh como su padre, déjame decirte
-
-除了桥水(基金)
-A parte del Bridgewater Associates
-
-他就是老二的投资到中共国的
-Él es el segundo en invertir a la República Popular de China
-
-原海航投资者之一
-Uno de los inversores antiguos de HNA Group
-
-最早投资者
-Uno de los primeros inversores
-
-现在跟我们爆料革命一起了
-Ahora está con nosotros en el Movimiento de Denunciantes
-
-他都在看我们支持乌克兰
-Él siempre está viendo a nosotros apoyando a Ucrania
-
-他为啥
-¿Por qué?
-
-你知道现在变了
-Sabes que ahora todo ha cambiado
-
-你知道吗
-¿Lo sabes?
-
-儿子在英国读书
-Su hijo está estudiando en Reino Unido
-
-他要去英国参加仪式
-Él debe ir hasta allá a asistir una ceremonia
-
-必须打疫苗
-Y por eso tiene que vacunarse
-
-只打了一针, 回来半瘫
-Sólo se vacunó una dosis y regresó hemiparesia
-
-这个牛叉的人物
-Este personaje poderoso
-
-大家都知道
-Todos saben
-
-他光这个曼哈顿多少学校, 多少医院都他捐款
-Donó tantas escuelas y hospitales como lo hizo en Manhattan
-
-这回把他给救了
-Esta vez lo salvaron
-
-结果一去
-Resulta cuando fue
-
-人家一看, 一个护士
-La persona, una enfermera lo vio
-
-说你就是这个疫苗反应症
-Y dijo que estas son reacciones de la vacuna
-
-最后是把他摁到了医院里
-Al final fue llevado al hospital
-
-给他所有的血液洗毒
-Se le hizo un hemodiálisis
-
-在ICU啊呆了几天, 差点死在了里边
-Pasó unos días en la UCI y casi muere adentro
-
-这就是病毒
-Este es el virus
-
-这就是疫苗这个综合症
-Este es el síndrome de la vacuna
-
-现在都在看这个
-Ahora lo que se ven son estas cosas
-
-咱们乌克兰直播, 都在看咱们前线
-Nuestra transmisión en vivo en Ucrania, nuestro rescate en primera línea
-
-你们那个帐篷绝对就像
-Su carpa es absolutamente como
-
-就是贾平凹写的一本书
-Un libro escrito por Jia Pingwa
-
-就是那个写的新疆
-Lo que escribió es sobre Xinjiang
-
-在黑暗中的一盏灯一样
-Como una lámpara en medio de la oscuridad
-
-看着
-Viendo
-
-在那个
-En aquel…
-
-那所有的土房子里边儿挖出了一个房子
-Una casa fue excavada entre todas las casas de barro
-
-房子里边点着一个灯
-Hay una luz dentro de la casa
-
-我看到那小说, 我觉得你们就是那盏灯
-Vi esa novela y pienso que ustedes son como esa lámpara
-
-是你们的形象确实绝对给世界带来了希望
-Sus imágenes trajeron sinceramente esperanza al mundo
-
-特别给海外中国人带来了希望
-Especialmente, trajeron esperanza a los chinos en el extranjero
-
-真的是衷心地感谢, 用什么话
-Realmente agradezco de corazón, no hay palabras
-
-都无法表达战友们对你们的感激
-Para describir el agradecimiento hacia ustedes, compañeros luchadores
-
-任何忽视前线战友在24小时
-Cualquiera que ignore a los compañeros luchadores de primera línea, donde las 24 horas
-
-随时面临着这种生命危险, 病毒危险的人
-Se están enfrentando el peligro de la vida y del virus en cualquier momento
-
-他不配做我们的兄弟姊妹
-Él no merece ser nuestro hermano o hermana
-
-* * *
-
-日期：04/14/2022
-原视频标题：新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-La Operación Internacional de rescate del Nuevo Estado Federal de China en Ucrania está cambiando la visión mundial hacia los chinos
-
-原视频日期：04/08/2021
-原视频网址：[**https://gettr.com/post/p143xe6f378**](https://gettr.com/post/p143xe6f378)
-任务编号：KC490（4225）
-视频时间段：0:00-3:38
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

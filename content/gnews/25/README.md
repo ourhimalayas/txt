@@ -2,26 +2,26 @@
 ---
 
 
-## 拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349448/)
+## 巴西人道救援 接收乌克兰难民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2349449/)
 
-作者：小红帽
+作者：Naughty(文行)，自由信仰
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月13日，据当地媒体报道，美国总统拜登日前指责俄罗斯总统普京的部队在乌克兰犯下种族灭绝罪，而这也是拜登政府首次对俄军使用这一术语。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.jpeg) (AP Photo/Carolyn Kaster)
-《国际法》规定，种族灭绝是指有意全部或部分消灭一个民族、族裔、种族或宗教群体。而根据《联合国公约》，构成种族灭绝的行为包括杀戮、严重的身体或精神伤害、施加致命的条件和措施阻止生育等等。
+当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3549803-PH.jpeg)
+另据 巴西司法和公共安全部部长托瑞斯指出，接收难民是一项人道主义行为，因此，联邦政府将致力于帮助所有在巴西寻求安全、居住和工作等权利的乌克兰人。为此，在该国最新颁发的一项条例中，巴西司法部和外交部将允许政府签发人道主义签证和居留许可，用以向受俄乌战争影响的乌克兰人提供帮助。目前，这项工作正在受到国际移民组织和国际移民观察站的支持，乌克兰难民可以通过这两个组织获取相关的讯息和资源。
 
-报道提及，一直以来，种族灭绝被认为是最严重的国际罪行，且由于该词语严格的法律定义和这一指责所带来的沉重影响，美国对于该罪行的认定极为谨慎。但据拜登总统在近日的采访中指出，他明确将普京下属军队在乌克兰的罪行定义为“种族灭绝”，而美国法院将进一步判定俄军的行动是否在法律层面上构成这一指控。
+据悉，为了躲避俄军的攻击，当前已有超过四百万乌克兰人不得不离开祖国。对此，乌克兰第一夫人泽连斯卡向各国呼吁称，希望国际社会将乌克兰民众视为世界大家庭的一员。泽连斯卡强调，俄乌战争激发了乌克兰孩子们最深的爱国情怀，他们伺候必将成为最忠诚的爱国者和祖国最坚强的捍卫者。因此，请各国的友好民众帮助这些孩子和母亲，直到他们能够重返家园。
 
-早先，拜登总统就已经将普京描述为“战争罪犯”，并呼吁全球对其暴行做出审判。
-
-参考链接：[Biden says Russia committing genocide in Ukraine](https://www.channelnewsasia.com/world/biden-says-russia-committing-genocide-ukraine-2622651)
+参考链接：
+1.[巴西人道救援 接收烏克蘭移民和難民](https://www.cna.com.tw/news/aopl/202204130016.aspx)
+2.[Treat our refugees as one of your own, Ukraine’s first lady Olena Zelenska asks the West](https://www.thetimes.co.uk/article/treat-our-refugees-as-one-of-your-own-ukraines-first-lady-olena-zelenska-asks-the-west-2mjjq5zz6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-编辑：Irene木木
+编辑：宁文静
 总编：Irene木木
-审核：飞虹
+审核：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  

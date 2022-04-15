@@ -2,33 +2,47 @@
 ---
 
 
-## 上海
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2350033/)
+## 俄罗斯警告如果芬兰和瑞典加入北约则将部署核武器
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2350253/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-我家在上海，犹如小天堂
-小资情调浓，说话带嗲音
-侬好上海人，日子乐融融
-因疫封了城，天堂瞬间空
-大白态度横，警察鬼临门
-强制进方舱，犹进垃圾场
-断药又断粮，上海人彷徨
-日夜喊楼声，声声断心肠
-朗咸平死娘，可曾恨共党
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-305.jpg)图片来自网络
+《路透社》近日报道，俄罗斯总统弗拉基米尔-普京最亲密的盟友之一在周四警告北约，如果瑞典和芬兰加入美国领导的军事联盟，那么俄罗斯将在欧洲的一块飞地部署核武器和高超音速导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_1-58.png)
+与俄罗斯有着1300公里（810英里）共同边界的芬兰和瑞典正在考虑加入北约联盟。芬兰总理桑娜-马林周三表示，芬兰将在未来几周内作出决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+俄罗斯安全委员会副主席德米特里-梅德韦杰夫说，如果瑞典和芬兰加入北约，那么俄罗斯将不得不加强其在波罗的海的陆军、海军和空军力量。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+梅德韦杰夫还明确提出了核威胁，他说不能再谈论 “无核 “波罗的海–俄罗斯在那里有夹在波兰和立陶宛之间的加里宁格勒飞地。
 
+2008 年至 2012 年曾担任总统的梅德韦杰夫说：“不能再谈论波罗的海的无核地位了——必须重塑平衡。
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+梅德韦杰夫说，他希望芬兰和瑞典将看到理智。他说，如果不这样做，他们将不得不与核武器和高超音速导弹近距离相处。
+
+当被问及华盛顿如何看待在俄罗斯的警告下瑞典和芬兰可能加入北约时，美国国务院说华盛顿的立场没有改变，并重申 “北约的大门是敞开的”。
+
+“国务院发言人内德-普莱斯在一次简报中说：”在不特别对任何国家说话的情况下，我们不会担心一个防御性联盟的扩大除了促进欧洲大陆的稳定外还会有其他作用。
+
+俄罗斯拥有世界上最大的核弹头武器库，并与中国和美国一起成为高超音速导弹技术的全球领导者之一。
+
+立陶宛表示，俄罗斯的威胁并不新鲜，莫斯科早在乌克兰战争之前就已经在加里宁格勒部署了核武器。北约没有立即回应俄罗斯的警告。
+
+不过，芬兰和瑞典可能加入北约，北约成立于1949年，旨在为西方提供对抗苏联的安全保障
+
+芬兰于1917年从俄罗斯获得独立，并在第二次世界大战期间与俄罗斯进行了两次战争，期间它失去了一些领土。周四，芬兰宣布在芬兰西部举行军事演习，英国、美国、拉脱维亚和爱沙尼亚参加。
+
+瑞典已经有200年没有打过仗了。外交政策的重点是支持民主和削减核武器。
+
+讹上瘾了，动不动就核武威胁。欧洲已经从这次俄罗斯的侵略中觉醒，变得更加团结。俄罗斯终将自食其果，并进一步解体分裂。
+
+参考链接：
+
+[https://www.reuters.com/world/europe/russia-warns-baltic-nuclear-deployment-if-nato-admits-sweden-finland-2022-04-14/](https://www.reuters.com/world/europe/russia-warns-baltic-nuclear-deployment-if-nato-admits-sweden-finland-2022-04-14/)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

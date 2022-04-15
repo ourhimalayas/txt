@@ -2,45 +2,39 @@
 ---
 
 
-## 乌克兰全境拉响空袭警报，警告局势升级
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349854/)
+## 中央情报局警告：绝望的普京可能祭出战术核武器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2349869/)
 
 #### 【雅典娜快讯】紧贴时代脉搏
 
-#### 翻译：li yan li
-编辑：李易通
+#### 翻译/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片46.png)图片来源：The National Interest & 雅典娜设计组
 
 
-4月14日，在警告弗拉基米尔·普京可能发动“立即升级”的战争后，乌克兰的每个地区都同时拉响了空袭警报，这是俄罗斯准备发动重大袭击的最新迹象。
+周四，中央情报局局长威廉·伯恩斯表示，俄罗斯在入侵乌克兰方面屡遭重挫，普京总统可能祭出战术或低当量核武器。
 
-今天上午，媒体Nexta在推特上宣布，“乌克兰全境已进入空袭警报”。
+伯恩斯在亚特兰大演讲中提示，“鉴于俄罗斯领导人可能陷入绝望，任何人都不能轻视俄罗斯可能诉诸战术核武器或低当量核武器所带来的威胁”。
 
-《基辅独立报》也宣布，“乌克兰所有地区同时拉响了空袭警报”。
+克里姆林宫已表示，在2月24日侵略战争开始后已将俄罗斯核力量置于高度戒备状态，但美国尚未看到大规模部署核武器的实际证据。
 
-乌克兰议员Lesia Vasylenko透露，基辅发生了多起爆炸，持续的空袭警报已经响了近一个小时。
+伯恩斯说，拜登总统极力避免第三次世界大战，避免可能触及到核冲突的门槛。
 
-在发出警报之前，普京总统警告说，在他的莫斯克号军舰在一次明显的乌克兰导弹袭击中被击中之后，他可能会发动“立即升级”的乌克兰战争。
+俄罗斯拥有许多战术核武器，其威力不如美国在二战期间在广岛投下的炸弹。俄罗斯的军事学有一个叫做“升级降级”原则，即在与西方国家的常规冲突中，如果战场局势不利，就发射低当量核武器，以夺回主动权。
 
-乌克兰国家媒体周四报道，俄罗斯参与对乌克兰的海上攻击的黑海旗舰因爆炸而“严重受损”，莫斯科威胁要打击基辅的指挥中心。
+伯恩斯曾是美国驻俄大使，称普京是一位“报复的使徒”，多年来“一直被怨恨、野心和不安全感所包围”。
 
-目前还不清楚到底是什么原因导致了莫斯科号导弹巡洋舰的爆炸，也不清楚损失的程度，双方的报告相互矛盾。
+“每天普京都在证明，衰落的大国（俄罗斯）至少与崛起的大国（中共国）一样具有破坏性，”伯恩斯说。
 
-俄罗斯分析家克林特·埃利希在Twitter上写道：“如果乌克兰真的击沉了‘莫斯克瓦号’，预计莫斯科会立即战争升级。”
-
-一位退役空军军官告诉本刊记者，俄罗斯正在进行不分青红皂白的轰炸。
-
-乌克兰当局说，俄罗斯军队继续在他们仍然占领的地区杀害平民。
-
-参考链接：[乌克兰全境拉响空袭警报，警告局势升级](https://www.news.com.au/world/europe/russia-will-immediately-escalate-attacks-on-ukraine-in-response-to-moskva-explosion-expert-warns/news-story/f27ff792819891f9f81038b9692b5bc7)
+新闻链接：[CIA warns desperate Putin poses nuclear threat | World News – Hindustan Times](https://www.hindustantimes.com/world-news/cia-warns-desperate-putin-poses-nuclear-threat-101649976216869.html)
 
 发布：*wenly*
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
