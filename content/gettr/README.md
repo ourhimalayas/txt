@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 1:02 PM (UTC)`
+
+ 4月15号：尊敬的战友们好！北京和战友们做好万宜的准备是非常重要的很多战友给我发的信息，我无法一一回复，在此抱歉。【7哥好，北京市都在在大量储存食品。很多人都买四们冰箱，咸肉，药品。看来大灾难的时候真的来了，谢谢你，亲爱的7哥，这将是第三次救我全家人的命。】
+![img](https://media.gettr.com/group14/getter/2022/04/15/13/6848734f-c08a-157a-9b26-40d98ac8d00c/d0dbb67c10e200d00d9909d769cd568f.jpg)
+
+---
+
 `@miles 4/15/2022 12:51 PM (UTC)`
 
 2022年4月15日 文贵大直播：多地封城疫苗灾难最新信息；中共将打台湾做好备粮备药；疫情战争国内粮食危机分析；喜币是最早最流行数字法币
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 2022.04.14 NFSC news  President Biden Publicly Says the Russia-Ukraine War is Genocide
 ![img](https://media.gettr.com/group4/origin/2022/04/14/22/ded3f9dd-15c4-344b-18ac-29867417a2f0/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/14/2022 10:13 PM (UTC)`
-
-4/14/2022 Miles Guo: My advice to people inside mainland China: stock up food and water, have some cash handy, and find a safe place to live in for the next 1-2 years; Many more cities will be locked down, and the situation in Beijing will be the worst.<br/><br/>4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨。<br/><br/>
-![img](https://media.gettr.com/group49/getter/2022/04/14/22/545a7487-6524-a9a4-4342-68f36edbb4ff/out.jpg)
 
 ---
 

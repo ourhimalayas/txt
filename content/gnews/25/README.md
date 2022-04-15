@@ -2,21 +2,31 @@
 ---
 
 
-## 中共害怕人才外逃资金外流阻止移民
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2351181/)
+## 秘翻新闻｜俄军舰沉没后 基辅响起巨爆声
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2351182/)
 
-编辑：波士顿五月花—思澈
+**By:[秘翻新闻](https://gettr.com/post/p15enqxe874)**
 
-“移民”这个话题目前在百度搜索引擎中被完全屏蔽
+**[2022-04-15](https://gettr.com/post/p15enqxe874)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/94E44C59-721E-4189-8E49-3B6DB5741424.jpeg)
+**新闻内容:**
 
-随着上海灾难性的封锁，许多年轻的中共国中产阶级已经厌倦了。自3月底以来，”移民 “一直是微信搜索的趋势，”移民加拿大的条件 “或 “哪里是最好的移民地 “现在的访问量超过了20倍。
+1.“上海人忍耐已到极限”吗？
 
-*发布：思澈*
+2. 中共松绑政策救房市 地方融资仍困难
 
+3. 国际刑事法院前往乌克兰调查战争罪
 
+4. 白宫准备打击规避制裁的行为
 
+5. 随着相互贸易激增 中共重申与俄罗斯的关系
+
+🔗Gettr链接：**[https://gettr.com/post/p15enqxe874](https://gettr.com/post/p15enqxe874)**
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
