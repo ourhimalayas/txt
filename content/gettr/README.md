@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 12:30 AM (UTC)`
+
+2022.04.14 晚  新中国联邦 | 新闻   郭文贵先生谈新中国联邦的金山、银山、钻石山；以歌灭共成绩斐然 意义重大
+![img](https://media.gettr.com/group50/origin/2022/04/15/00/32135891-7f39-6cc8-942c-2899aed2c571/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/14/2022 11:40 PM (UTC)`
 
 2022.04.14《The Fringe》 Episode 169<br/>中文同传：https://gettr.com/streaming/p15d34027cb
@@ -147,13 +154,6 @@
 
 4月14日 七哥乱聊直播
 ![img](https://media.gettr.com/group9/origin/2022/04/14/11/2d9bc56d-f143-5ea4-2ffb-ab9661cfd74d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 11:53 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月13日第40天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11429人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 40 - Date: April 13, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11429 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group17/getter/2022/04/14/11/3c37aeaa-4274-5235-a337-1a5522ef2f34/9404a9804c178641185fe3e705244174.jpg)
 
 ---
 

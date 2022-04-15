@@ -2,8 +2,8 @@
 ---
 
 
-## SEC退款事宜一定要及时联系农场，新平台是长期投资条件不合适的不建议投资新平台
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348184/)
+## 未来的中国人最受尊重就是加入新中国联邦人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2348211/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

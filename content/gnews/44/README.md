@@ -2,21 +2,20 @@
 ---
 
 
-## 爆料｜郭文贵分析 中共攻打台湾 灭亡是日本
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2346400/)
+## 视频文编|乌克兰人的信仰和勇气赢得欧盟100%的信任 是我们的榜样
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2346430/)
 
-**图文 zhong｜2022-4-14**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-29.png)
-郭文贵于台北14日晚间[直播](https://gettr.com/post/p15a3qt15e1)称，中共攻台，美军一定轰炸中共军事基地。此外，他表示“打得是台湾，灭得是日本”中共出兵攻打台湾，若台湾失守，日本就完了。郭分析日本、中共军力，他表示日本军事实力远高于中共，若日本出兵中共将惨败。他分析认为，中共可能五月对台军事行动。
+撰稿：东京樱花团/菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-14_235304.png)
+欧联盟主席，英国首相（Boris Johnson），包括波兰，对乌克兰的支持，是因为乌克兰人民有勇有谋，有正义感，乌克兰人没造假，人民的信仰和勇气，赢得了欧盟100%的信任和支持，然后才是泽连斯基，中国人永远没有信任，这就是我们今天要面对的问题，中共水军撒谎说布查造假是摆拍，激起了欧盟的暴怒，唯真不破才能赢得尊重，也是我们新中国联邦人珍惜的信仰。
 
-依照目前国际形式，郭文贵认为中共撑不过20大，他不相信中共还会有20大。港币他认为今年年底、明年年初将会崩塌。欧盟国家有可能会对中共撤回大使馆。
+消息来源：
+[2022年4月10《文贵大直播》](https://gettr.com/streaming/p14iwpvf134)
 
-郭提到新中国联邦愿景，未来可能让新疆、西藏、香港、台湾，甚至是广东独立，实施联邦制度。
+编辑：东京樱花团/荆轲
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
 
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

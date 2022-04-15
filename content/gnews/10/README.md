@@ -2,8 +2,8 @@
 ---
 
 
-## 20220414郭文贵乱聊直播 ：CCP还在催打疫苗，特别是老年人，就是在杀人
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348026/)
+## 20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2348035/)
 
 作者：东京樱花团小视频组
 

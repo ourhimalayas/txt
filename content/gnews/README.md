@@ -15,41 +15,41 @@
 
 ---
 
-### [没有GTV，新平台5月份上线，新中国联邦护照目前还不行，美国对共产党的红旗导弹一定会有反应](/content/gnews/1/README.md)
+### [中共和俄罗斯是全世界独裁和谎言的集大成者](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [联盟正在复核10%的币，复核完成后才会发放](/content/gnews/2/README.md)
+### [强烈建议SEC退款的战友需要资金流动的不要投新平台，新平台适合长线投资](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [深圳医生投诉录音:建议并要求深圳市停止强制接种疫苗](/content/gnews/3/README.md)
+### [未来新疆西藏香港台湾等都会独立形成联邦](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [未来的中国人最受尊重就是加入新中国联邦人](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [共匪攻台美国一定会轰炸共匪军事基地，现在共产党已经将粮食武器化](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [深圳医生投诉录音:建议并要求深圳市停止强制接种疫苗](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [SEC退款事宜一定要及时联系农场，新平台是长期投资条件不合适的不建议投资新平台](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
+### [【G时新闻】台湾军方卖台贼购买了中共国的无人机](/content/gnews/7/README.md)
+ ` G-时新闻`
 
-### [乌克兰改变了世界格局](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [普京发誓要继续入侵，直到实现“崇高”的目标](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [20220414郭文贵乱聊直播 ： 指望世界会救中国那是白日做梦中国人只能自已救自已](/content/gnews/7/README.md)
+### [20220414郭文贵乱聊直播 ： 指望世界会救中国那是白日做梦中国人只能自已救自已](/content/gnews/8/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4/14/2022 文贵直播：广东叶家势力已被习灭；若台湾守不住，日本就完了；新中国联邦人是未来最有身份、最受尊重、最安全和最有前途的中国人，港币可能在今年年底或明年年初崩塌](/content/gnews/8/README.md)
+### [4/14/2022 文贵直播：广东叶家势力已被习灭；若台湾守不住，日本就完了；新中国联邦人是未来最有身份、最受尊重、最安全和最有前途的中国人，港币可能在今年年底或明年年初崩塌](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废](/content/gnews/9/README.md)
+### [20220414郭文贵乱聊直播 ：俄罗斯一军舰被乌克兰三枚导弹打废](/content/gnews/10/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220414郭文贵乱聊直播 ：CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/10/README.md)
+### [20220414郭文贵乱聊直播 ：CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220414郭文贵乱聊直播 ：台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/11/README.md)
+### [20220414郭文贵乱聊直播 ：台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
-
-### [4/14/2022 文贵直播：给国内战友的建议：未来一两年一定要有食物、水、现金和生存的地方！接下来很多城市都会被隔离，北京一定会更惨](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
 
 ### [俄乌战争“没想到”系列之八：](/content/gnews/13/README.md)
  ` 蓝莲花农场`
@@ -135,41 +135,41 @@
 ### [2022年04月14日七哥乱聊直播速记](/content/gnews/40/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|田纳西州参议院立法允许伊维菌素用于新冠治疗](/content/gnews/41/README.md)
+### [视频文编|英国和欧盟争抢乌克兰](/content/gnews/41/README.md)
+ ` KarmaLabs`
+
+### [有声|田纳西州参议院立法允许伊维菌素用于新冠治疗](/content/gnews/42/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|上海确诊病例多数为轻症 重症九人](/content/gnews/42/README.md)
+### [有声|上海确诊病例多数为轻症 重症九人](/content/gnews/43/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [认定种族清洗或种族灭绝意义重大](/content/gnews/43/README.md)
+### [视频文编|乌克兰人的信仰和勇气赢得欧盟100%的信任 是我们的榜样](/content/gnews/44/README.md)
+ ` KarmaLabs`
+
+### [认定种族清洗或种族灭绝意义重大](/content/gnews/45/README.md)
  ` 温哥华扬帆农场`
 
-### [爆料｜郭文贵分析 中共攻打台湾 灭亡是日本](/content/gnews/44/README.md)
+### [爆料｜郭文贵分析 中共攻打台湾 灭亡是日本](/content/gnews/46/README.md)
  ` 關注組`
 
-### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/45/README.md)
+### [中共是如何迫使中国人仇视美国的？ （一）](/content/gnews/47/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼](/content/gnews/46/README.md)
+### [爆料｜郭文贵警告 台湾的无人机都是大陆货?! 注意军人卖台贼](/content/gnews/48/README.md)
  ` 關注組`
 
-### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/47/README.md)
+### [财经｜拟私有化Twitter 马斯克提全面收购计划](/content/gnews/49/README.md)
  ` 關注組`
 
-### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/48/README.md)
+### [国际｜瑞典、芬兰联合记者会谈入北约 瑞典总理称将在几周内发生](/content/gnews/50/README.md)
  ` 關注組`
 
-### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/49/README.md)
+### [粮食危机｜IMF及WTO等四大国际机构呼吁各国采取紧急行动](/content/gnews/51/README.md)
  ` 關注組`
 
-### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/50/README.md)
+### [台湾｜访问团团长：瑞典及欧洲坚定支持台湾的主权与独立](/content/gnews/52/README.md)
  ` 關注組`
-
-### [视频文编|中国人只要站起来反抗，外国人就会出自本能帮助](/content/gnews/51/README.md)
- ` KarmaLabs`
-
-### [视频文编|Hpay的设计是所有数字货币的希望](/content/gnews/52/README.md)
- ` KarmaLabs`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
