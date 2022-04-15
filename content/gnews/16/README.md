@@ -2,46 +2,26 @@
 ---
 
 
-## 中共疫情封控下的老百姓连上厕所的自由都没有
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2352341/)
+## 俄黑海舰队旗舰被乌克兰导弹击中而沉没
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352366/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-22.21.54.png)
-当地时间4月13日，中共国社交媒体有贴文显示，上海和长春的一些大学，学生们如厕需要排队。涉及到的大学有上海同济大学、长春理工大学。
+作者：小红帽，Naughty（文行）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月14日，据多家国外媒体报道，俄罗斯国防部当天证实，其黑海舰队的旗舰，“莫斯科”号导弹巡洋舰，在遭受攻击发生爆炸后严重受损，目前已经沉于黑海海底。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/下载.jpeg)
+乌克兰敖德萨州州长、军管局长马尔琴科表示， 乌军用两枚KH-35海王星反舰导弹击中了“莫斯科”号巡洋舰，对军舰造成了“严重破坏”。舰艇被攻击后引起火灾，导致满载的包括各类型近中程导弹在内的弹药库发生猛烈爆炸，“莫斯科”号随后沉入黑海。舰上的500多名官兵生死未卜。
 
-在疫情风控期间，很多大学寝室开始管控学生上厕所。帖文显示长春大学居然有专门用来排队的手机小程序，上海同济大学的学生也在微信交流群排队上厕所，学生如厕完毕不允许洗手。据称是因为担心厕所垃圾和洗手的水龙头会传染中共病毒，学生只有回寝室拿酒精湿巾来擦手。而长春大学的学生除了如厕不方便，洗澡更难。有的学生一个多月没洗澡，身体起疹，拿热水擦了擦，疹子全破了，后背都是血。
+据悉，黑海舰队一直作为俄罗斯权力的象征，而旗舰“莫斯科”号已服役40余年，是防御能力最强的军舰之一。自俄乌战争开始以来，这已是第二艘遭受严重破坏的俄罗斯主要船舰。上个月，俄罗斯的一艘登陆支援舰，即“奥尔斯克”号，被乌克兰摧毁。
 
-中共病毒的传染最重要的就是要保持干净卫生，然而从中共的防疫手段来看，折磨老百姓是第一要务。
+参考链接：[Russia says blast cripples Black Sea flagship, Ukraine claims missile strike](https://www.channelnewsasia.com/world/russia-says-blast-cripples-black-sea-flagship-ukraine-claims-missile-strike-2625101?cid=FBcna)
 
-reference：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-[https://gettr.com/post/p15ft6acfbd](https://gettr.com/post/p15ft6acfbd)
-
-[https://gettr.com/post/p158snp0dad](https://gettr.com/post/p158snp0dad)
-
-[https://gettr.com/post/p151w7fdaf3](https://gettr.com/post/p151w7fdaf3)
-
-[https://m.weibo.cn/6443225955/4758488179804238](https://m.weibo.cn/6443225955/4758488179804238)
-
-[https://m.weibo.cn/6599600309/4757857738424344](https://m.weibo.cn/6599600309/4757857738424344)
-
-
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
-
- 
+编辑：飞虹
+总编：宁文静
+审核：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

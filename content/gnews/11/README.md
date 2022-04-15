@@ -2,28 +2,45 @@
 ---
 
 
-## 波罗的海三国与波兰总统联袂访问基辅
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352367/)
+## 美国官员认为朝鲜黑客与6.15亿美元的加密货币抢劫案有关联
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2352375/)
 
-作者：在远方，Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-据外媒4月13日的报道，位于波罗的海的立陶宛、拉脱维亚、爱沙尼亚三国总统，以及波兰总统前往乌克兰首都基辅，与泽连斯基展开面对面会谈。四国领袖表示将对乌克兰进行支持和援助，并协助国际社会对俄罗斯战争罪展开调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/四国总统和泽-e1649889108471.jpeg)
-在基辅举行的新闻发布会上，波兰总统安德烈·杜达谴责了俄罗斯对乌克兰平民的屠杀行为是恐怖主义，所有参与者都应该被绳之以法。爱沙尼亚总统阿拉尔·卡里斯认为，普京总统必须输掉这场战争，否则欧洲将无法实现和平。卡里斯同时在社交媒体上表示，他与波兰总统杜达、立陶宛总统瑙赛达，以及拉脱维亚总统李维兹，来到这个因俄罗斯的入侵而遭到严重破坏的乌克兰首都，以行动向乌克兰人民，以及泽连斯基总统表示强烈的支持。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-15-下午10.40.40.png)图片来源：互联网
+美国官员称，朝鲜国家支持的黑客组织 Lazarus Group 与大规模加密货币黑客事件有关，该事件导致 6.15 亿美元的数字资产被盗。
 
-来访的四国总统还表示，有计划推动国际社会加大对乌克兰的军事支持，以应对俄罗斯在乌克兰东部的攻势。泽连斯基则向四国总统的勇气和支持表达了谢意。
+美国财政部外国资产控制办公室周四宣布对属于 Lazarus 的以太坊钱包实施新制裁。
 
-参考链接：
-1.[烏克蘭堅定支持者～波羅的海三國與波蘭等4國總統今連袂訪基輔](https://www.rti.org.tw/news/view/id/2129916)
-2.[Visiting Kyiv, leaders of Poland and Baltic states condemn Russia](https://www.reuters.com/world/europe/leaders-poland-baltic-states-head-kyiv-2022-04-13/)
+据加密研究人员称，已识别的钱包包含与对Ronin Network 的攻击有关的资金，该网络支持流行的区块链游戏 Axie Infinity。在这次攻击中，价值超过 6 亿美元的以太币和 USDC 代币被盗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+黑客利用所谓的区块链“桥梁”，允许用户将他们的数字资产从加密网络转移到另一个。在快速发展的“去中心化金融”或 DeFi 世界中，桥梁是一种越来越受欢迎的工具。
 
-编辑：宁文静，飞虹
-总编：宁文静
-审核：Irene木木，文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+区块链分析公司 Elliptic 在一篇博客文章中表示，新宣布的制裁措施禁止美国个人和实体与已确定的以太坊账户进行交易，以确保黑客无法“兑现”他们可能在美国加密货币交易所持有的任何资金。
+
+另一个加密研究小组 Chainalysis [表示](https://twitter.com/chainalysis/status/1514645225876205569?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1514645227411226631%257Ctwgr%255E%257Ctwcon%255Es2_&amp;ref_url=https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)，对 Lazarus 的归因强调了“与朝鲜有关联的威胁行为者如何利用加密以及更好的 DeFi 协议安全性”的重要性。
+
+据信由朝鲜政府运营的 Lazarus 多年来一直与几起重大网络攻击有关，包括 2014 年对索尼影业的黑客攻击和 2017 年 WannaCry 勒索软件攻击。
+
+据网络安全专家称，朝鲜曾多次试图使用加密货币作为逃避美国制裁的一种方式，这引发了人们对乌克兰战争期间可能使用数字资产来逃避俄罗斯制裁的担忧。
+
+本周早些时候，39 岁的美国加密专家 Virgil Griffith因帮助朝鲜使用虚拟货币逃避制裁而被判处五年监禁。
+
+加密货币的支持者表示，它们是清洗不义之财的无效工具，因为活动记录在称为区块链的公共分类账上。
+
+然而，根据 Elliptic 的说法，犯罪分子可以使用多种技术来清洗加密货币。该公司表示，内部分析表明，截至周四，Ronin 攻击“成功清洗了 18% 的被盗资金”。
+
+黑客最初通过不受监管的去中心化交易所将被盗的 USDC 代币换成以太币，以防止其被没收，但随后通过 FTX 和火币等中心化交易所洗钱近 1700 万美元。
+
+他们随后使用了所谓的“混合器”，该服务旨在通过将潜在可识别的加密交易流与其他交易流混合来掩盖资金的踪迹。据 Elliptic 称，通过这项名为 Tornado Cash 的混合服务已经发送了超过 8000 万美元。
+
+原文链接：
+
+【1】[U.S. officials link North Korean hackers to $615 million cryptocurrency heist](https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)
+
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

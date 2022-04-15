@@ -2,35 +2,33 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2352415/)
+## 樱花时政┃为乌而战的白俄人，希望击败普京解放祖国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2352485/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌克兰边境的波兰杂树林中，身穿迷彩服的男人们正在递过止血带。然后将膝盖放在泥泞的土地上，开始进行基本的生存训练。他们称自己为“波黑尼亚大队”。主要是居住在波兰和欧洲各地的近30名白俄罗斯流亡者集团，他们希望加入已经参加保卫乌克兰的数百名同胞的行列。志愿兵们表示，要想从俄罗斯普京的统治中解放祖国，首先要在乌克兰打败他。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-84.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220415-35186393-cnn-000-3-view.jpg?exp=10800)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-14.png)
+队员们的年龄在19~60岁之间。虽然随身携带卡拉希尼科夫自动步枪的复制品，但几乎没有人有过战斗经验。带领着职业扑克手、摇滚音乐家和电工在内的这个团队的是，反体制人士兼餐厅经营者巴迪姆·普罗科皮耶夫。他11日表示：“我呼吁白俄罗斯人参加为乌克兰的战斗。因为这才是第一步，而且还会继续为白俄罗斯而战。”包括他在内的大部分成员在2020年被迫逃出国外。
 
-文章仅代表作者本人观点，与Gnews无关
+因为普京的盟友、白俄罗斯总统卢卡申科在非法选举中宣布胜利后，管制了大规模抗议运动。普罗科皮耶夫表示：“如果乌克兰输掉这场战争，白俄罗斯获得自由的机会为零。” 波黑尼亚大队希望加入由外国志愿兵组成的“乌克兰国际防卫军团”，但在本稿执笔时，还没有得到入伍许可。其他数百名白俄罗斯志愿兵已经与乌克兰军队展开了战斗。据白俄罗斯在野党领导人西哈诺夫斯卡娅透露，开战以来已有4人死亡。“白俄罗斯人理解本国的命运取决于乌克兰的命运。乌克兰的自由对于排除卢卡申科政权非常重要。”
 
-视频参看：
-[2022.04.15早 《NFSC新闻》](https://gettr.com/streaming/p15f3lce588)
-[2022.04.15早《NFSC新闻访谈》](https://gettr.com/streaming/p15f4cw853a)
+俄罗斯将白俄罗斯利用为入侵乌克兰的卫星基地。冲突爆发时，普京总统下令通过俄罗斯和白俄罗斯边境向乌克兰派兵。在首都基辅附近筑起地势失败后，俄罗斯军队为重新编制和重新部署而撤退到了白俄罗斯。北大西洋公约组织（NATO）担忧，俄罗斯有可能要求卢卡申科总统派遣军队，从而加强本军。这意味着白俄罗斯流亡者和该国的军队将在前线面对面。在白俄罗斯，俄罗斯军队向乌克兰运送物资时使用的铁路在4月份被激进分子部分切断。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+另外，网络活动家最近还攻击了参与对乌克兰战争的白俄罗斯国家机关，在网上与俄罗斯的假情报进行着斗争。但是，这种小小的抵抗并没有对被称为欧洲最后独裁者的卢卡申科长达28年的统治造成真正的威胁。流亡者目前的期待是依赖俄罗斯政府的卢卡申科与普京共度“未来”，并取得应有的下场。这也是目前处于劣势的对乌克兰军事侵略所带来的后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+信息来源：[ウクライナのために戦うベラルーシ人、プーチン氏の支配からの祖国解放を望む（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/035bbad17085f31a11ea00255b2a1f5989a8b2c8)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -15,95 +15,95 @@
 
 ---
 
-### [“真相社交”平台遭《福克斯新闻》打脸](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [香港现在的防疫形势似乎和上海一样](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/10/2022文贵直播：《灭共的雪》和《铁锁梦》同时打榜影响巨大；国内著名歌手战友正在给郭先生写新歌](/content/gnews/2/README.md)
+### [4/10/2022 文贵直播：文贵先生寄语国内战友们：多听听爆料革命的歌，学会接受、放下和感恩，一定要挺过这一关](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [樱花时政┃马里乌波尔市民讲述“冒着生命危险避难”的真相](/content/gnews/3/README.md)
+### [俄罗斯黑海舰队旗舰“莫斯科”号因被乌克兰导弹击中而沉没](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花时政┃为乌而战的白俄人，希望击败普京解放祖国](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月15日早](/content/gnews/4/README.md)
+### [“真相社交”平台遭《福克斯新闻》打脸](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4/10/2022文贵直播：《灭共的雪》和《铁锁梦》同时打榜影响巨大；国内著名歌手战友正在给郭先生写新歌](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [樱花时政┃马里乌波尔市民讲述“冒着生命危险避难”的真相](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月15日早](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵大直播要点-主持：Tex（2022年4月15日）](/content/gnews/5/README.md)
+### [文贵大直播要点-主持：Tex（2022年4月15日）](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [无视俄方正式警告，美国继续为乌克兰提供先进军事援助](/content/gnews/6/README.md)
+### [无视俄方正式警告，美国继续为乌克兰提供先进军事援助](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国官员认为朝鲜黑客与6.15亿美元的加密货币抢劫案有关联](/content/gnews/7/README.md)
+### [美国官员认为朝鲜黑客与6.15亿美元的加密货币抢劫案有关联](/content/gnews/11/README.md)
  ` 波士顿五月花农场金融部`
 
-### [活摘器官是中共国家政策 多国媒体关注](/content/gnews/8/README.md)
+### [活摘器官是中共国家政策 多国媒体关注](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国及世界疫情简报（04-15-2022）](/content/gnews/9/README.md)
+### [美国及世界疫情简报（04-15-2022）](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [俄乌战局最新消息汇总(4.15)](/content/gnews/10/README.md)
+### [俄乌战局最新消息汇总(4.15)](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [波罗的海三国与波兰总统联袂访问基辅](/content/gnews/11/README.md)
+### [波罗的海三国与波兰总统联袂访问基辅](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [俄黑海舰队旗舰被乌克兰导弹击中而沉没](/content/gnews/12/README.md)
+### [俄黑海舰队旗舰被乌克兰导弹击中而沉没](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [李家超若当选香港特首名义上的“港人治港”都将不复存在](/content/gnews/13/README.md)
+### [李家超若当选香港特首名义上的“港人治港”都将不复存在](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/15/2022 银河快讯：俄罗斯国防部：“在日本海成功进行巡航导弹发射试验”；黄金期货价格创新高](/content/gnews/14/README.md)
+### [4/15/2022 银河快讯：俄罗斯国防部：“在日本海成功进行巡航导弹发射试验”；黄金期货价格创新高](/content/gnews/18/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [以防疫行暴政，每个国人都有权推翻中共（权利篇）](/content/gnews/15/README.md)
+### [以防疫行暴政，每个国人都有权推翻中共（权利篇）](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共疫情封控下的老百姓连上厕所的自由都没有](/content/gnews/16/README.md)
+### [中共疫情封控下的老百姓连上厕所的自由都没有](/content/gnews/20/README.md)
  ` 银河歌舞厅`
 
-### [以防疫行暴政，每个国人都有权推翻中共（法律篇）](/content/gnews/17/README.md)
- ` 澳喜特战旅Gnews`
-
-### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/18/README.md)
+### [美国国会跨党派坚定支持台湾，表达中共连手俄罗斯破坏自由民主国家](/content/gnews/21/README.md)
  ` G-NEWS TAIWAN`
 
-### [美国代表团访台，中共在台湾周边举行军事演习](/content/gnews/19/README.md)
+### [美国代表团访台，中共在台湾周边举行军事演习](/content/gnews/22/README.md)
  ` 波士顿五月花农场金融部`
 
-### [币安骗掉所有投资者VS一币不名的七哥让战友们发大财](/content/gnews/20/README.md)
+### [币安骗掉所有投资者VS一币不名的七哥让战友们发大财](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [20220414郭文贵乱聊直播 ：独裁国家俄罗斯和中国共产党，相信他们就会成为他们的奴隶](/content/gnews/21/README.md)
+### [20220414郭文贵乱聊直播 ：独裁国家俄罗斯和中国共产党，相信他们就会成为他们的奴隶](/content/gnews/24/README.md)
  ` Tokyo Sakura Video Group`
 
-### [大难来临新中国联邦让你有战友有币有情报让你开智明眼](/content/gnews/22/README.md)
+### [大难来临新中国联邦让你有战友有币有情报让你开智明眼](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [巨婴上海](/content/gnews/23/README.md)
+### [巨婴上海](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [20220414郭文贵乱聊直播 ：未来一两年，国内的战友需要备好现金粮食水和安全的居所](/content/gnews/24/README.md)
- ` Tokyo Sakura Video Group`
-
-### [上海封城乱象丛生](/content/gnews/25/README.md)
+### [上海封城乱象丛生](/content/gnews/27/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [乌克兰救援前线报道4.15.2022：NFSC帐篷迎来了首个中国同胞家庭](/content/gnews/26/README.md)
+### [乌克兰救援前线报道4.15.2022：NFSC帐篷迎来了首个中国同胞家庭](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共房地产危机日益严重](/content/gnews/27/README.md)
+### [中共房地产危机日益严重](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [俄罗斯“断箭”：担忧核导弹与普京的旗舰一起沉没](/content/gnews/28/README.md)
+### [俄罗斯“断箭”：担忧核导弹与普京的旗舰一起沉没](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
-
-### [【 蓝枫法律 】 如何面对疫苗灾难、经济灾难与排华](/content/gnews/29/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [【 蓝枫法律 】 加拿大反种族歧视概述](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
 
 ### [格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价](/content/gnews/31/README.md)
  ` 温哥华扬帆农场`

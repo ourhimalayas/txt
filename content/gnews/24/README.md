@@ -2,8 +2,8 @@
 ---
 
 
-## 20220414郭文贵乱聊直播 ：未来一两年，国内的战友需要备好现金粮食水和安全的居所
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2352149/)
+## 20220414郭文贵乱聊直播 ：独裁国家俄罗斯和中国共产党，相信他们就会成为他们的奴隶
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2352215/)
 
 作者：东京樱花团小视频组
 
