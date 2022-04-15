@@ -2,40 +2,36 @@
 ---
 
 
-## 俄罗斯军舰沉没后基辅传来强烈的爆炸声
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2350871/)
+## 美国目前九成新冠案例几乎都是Omicron亚变体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2350883/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+素材翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-32.jpg)
+根据疾病控制和预防中心（CDC）的新数据，美国近 90% 的新 COVID-19 病例现在是 Omicron 的一种更具传染性的亚变体，称为 BA.2。
 
-整理：li yan li
-编辑：朝花夕拾
+据估计，BA.2 变体的传播能力比原始 Omicron 变体高 30%，Omicron已经比早期变体更容易传播。但重要的是，没有证据表明 BA.2 亚变体在更大程度上逃避疫苗或导致更严重的疾病。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-157.png)图片来源：素材链接
 
+冠状病毒大流行使 7700 万人陷入“极端贫困”
 
-4月15日，莫斯科在黑海的主要军舰“莫斯科号”起火沉没后，基辅听到了强烈的爆炸声，乌克兰各地响起了空袭警报，居民们准备迎接俄罗斯的新攻击。
+[《国会山》报道](https://thehill.com/policy/healthcare/3266047-coronavirus-pandemic-pushed-77m-into-extreme-poverty-un/)：
 
-爆炸似乎是乌克兰首都地区最重要的事件之一，因为俄罗斯军队本月早些时候从该地区撤走，准备在南部和东部作战。
+根据联合国周二发布的一份新报告，去年冠状病毒大流行使 7700 万人陷入极端贫困。
 
-乌克兰声称对“莫斯科”号的沉没负责，称这艘苏联时代的俄罗斯黑海舰队的旗舰被其一枚导弹击中。它是用国产的海王星反舰导弹击中了这艘军舰。
+来自联合国经济和社会事务部的 208 页报告还表示，1/5的发展中国家，明年国内生产总值不会恢复到 2019 年的水平。
 
-但俄罗斯国防部表示，在船上的弹药爆炸后，导弹巡洋舰上的500多名船员被疏散，该部不承认有攻击。该船于周四晚些时候在被拖往港口时沉没。
+债务也有所增加，最贫穷的发展中国家，平均要支付约 14% 的收入来偿还债务，而发达国家则为 3.5%。
 
-该舰的损失发生在俄罗斯海军发动入侵乌克兰近50天后，且继续轰炸黑海上的乌克兰城市之时。毗邻亚速海的敖德萨和马里乌波尔的居民一直在准备迎接俄罗斯新的攻击。
+素材链接：[https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm\_source=salsa&eType=EmailBlastContent&eId=ee69c458-1145-4f6e-8268-3d85d06b4c35](https://childrenshealthdefense.org/defender/covid-nw-pandemic-propels-global-effort-vaccine-side-effects/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ee69c458-1145-4f6e-8268-3d85d06b4c35)
 
-据报道，基辅南部的赫尔松，东部城市哈尔科夫和西部的伊万诺-弗兰科夫斯克镇发生爆炸后，没有立即报告损失情况。乌克兰媒体报道了基辅部分地区的停电情况。
+* * *
 
-乌克兰媒体称，周五午夜过后，乌克兰所有地区都响起了空袭警报，包括东部地区的卢甘斯克和扎波罗热继续响起警报。
+审核：文乐
+校对：阿伯塔
+发布：小东
 
-新闻链接：[俄罗斯军舰沉没后基辅传来强烈的爆炸声](https://www.channelnewsasia.com/world/powerful-explosions-heard-kyiv-after-russian-warship-sinks-2627526)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-25.jpeg)
 
  
 

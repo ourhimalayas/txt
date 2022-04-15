@@ -2,22 +2,23 @@
 ---
 
 
-## 视频|以歌灭共成绩斐然 意义重大
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2351416/)
+## 墙内之悲
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2351537/)
 
-制作：香草山视频部
+##### 作者：敢想敢做
+编辑：无相
+![](https://assets.gnews.org/wp-content/uploads/2022/04/783687963-scaled.jpg)图片|雅典娜设计组（姐夫说说）
+年初拼命干，年尾一屁股债。
+休假少，干活多。
+我要被累死，还得拼命干！
 
-自上榜以来，《灭共的雪》和《铁锁梦》连续多日占领多个国家和地区iTunes排行榜前列。
+*发布：Mttfly*
 
-郭文贵先生在4月10日的大直播中表示，因为中共的威逼利诱，两首灭共歌曲上榜之路艰辛。成功上榜后，中共又恶意篡改数据。即便如此，这两首歌仍在中共国内受众极广，达十几亿的次播放量。
-
-两首歌曲同时打榜，也震撼了日本、台湾等业界人士。
-
-发稿：Daxia
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
