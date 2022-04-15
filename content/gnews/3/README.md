@@ -2,77 +2,44 @@
 ---
 
 
-## 学会水培，应对粮食危机
-` zuzu` [轉載自GNews](https://gnews.org/zh-hans/2349044/)
+## 没有好的教育再没有信仰的人几乎随时是一颗危险的炸弹
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2349129/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/微信图片_20220413010948.jpg)
-**作者：英国伦敦喜庄园 文名**
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8817.61%EF%BC%89%E6%B2%A1%E6%9C%89%E5%A5%BD%E7%9A%84%E6%95%99%E8%82%B2%E5%86%8D%E6%B2%A1%E6%9C%89%E4%BF%A1%E4%BB%B0%E7%9A%84%E4%BA%BA%E5%87%A0%E4%B9%8E%E9%9A%8F%E6%97%B6%E6%98%AF%E4%B8%80%E9%A2%97%E5%8D%B1%E9%99%A9%E7%9A%84%E7%82%B8%E5%BC%B9%E3%80%902022%E5%B9%B402%E6%9C%8816%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
 
-2022年4月14日，郭先生再次在直播中提醒战友们，粮食危机已经发生了。上海在中共疯狂的疫情政策之下陷入了空前的人道灾难。无数被饿死、病死、困死的惨剧发生，甚至文革中一个玉米棒子睡一个黄花大闺女的事件都再次发生了。
+**郭文贵先生：**一个国家一个民族任何一个人，任何一个人，Bunny你的未来女友，我的腹肌你的未来男友，追寻自由你老婆、你女友，任何你身边人，你记住，最可怕的人，跟你身边相处的人就是一旦这个人他没受过一个好的教育，他再没有信仰，这人对你来讲几乎随时都是你的炸弹，都是危险的。你看所有的问题，就是没有好教育的社会是很可怕的！
 
-一边是隔离墙外的救援物资烂掉臭掉扔掉，一边是隔离墙内的老百姓们没有物资吃着大白和居委会强迫销售的高价菜。真是应对了那句古诗“朱门酒肉臭路有冻死骨”。讽刺至极！
+就像七哥这样的人，如果我没有经过清丰看守所，我可能就是那个买“锁链女”或者干卖“锁链女”，什么事我都可能干的出来。我不会是养Snow，我会是吃Snow的那种人。因为你没有被教育，你就是最粗鲁的。然后七哥有了信仰，你要说吃狗，七哥简直心都碎了，是吧？一看到“锁链女”，心都碎了，为什么？我有信仰。
 
-更讽刺的是，大量农民出门下地干活被抓捕的荒唐事出现在神州各地。现在是春耕播种的重要时节，本来就没粮食可吃了，抓农民是要做什么？
+你去想想追寻自由刚才说那话，给旁边人说他不信，所有不信的人他是被另外一种洗脑了、教育了，叫科学迷信，就科学主义，还有对所有的所谓中立媒体的那种被虐待。连加拿大CBS、英国BBC、美国CNN、澳大利亚的叫什么Seven电视台，瞪眼撒谎，全世界媒体撒谎。老百姓成了所谓的媒体主义和中立媒体主义和被定义的媒体和严肃媒体的彻底的洗脑。所以追寻自由，你说他们不听，它就成了恶魔、恶缘。
 
-人祸，人祸，完全的人祸！
+字幕来源：[2022年2月16日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2021624/)
 
-另一方面，太阳又一次进入活跃期，大量的太阳风暴裹挟着高能粒子不停向外喷射，随时都有可能击中地球，造成地磁爆发，引发火山喷发、地震等灾害天气。
+编辑整理：星塵Scheddi；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/600px-Solar_Cycle_Prediction.gif)图片源自网络
+字幕文件制作：小满；
 
-例如2022年1月10日左右观测到转向地球的巨大日冕洞。从洞口喷射出的太阳风暴冲击地球磁场，造成地磁震荡。就像积木城堡被推了一把，说不定哪里就会倒塌。地球板块间脆弱的区域，也许会因太阳风暴持续不断的冲击震荡而突破临界点，引发火山或地震。
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/太阳风暴.png)图片源自网络
+G-News发布：海賊王M.D.LUFFY；
 
-紧随其后，1月15日发生了汤加火山大爆发，火山灰直接冲入平流层，巨大蘑菇云在太空中清晰可见。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/微信图片_20220117063930.jpg)图片源自网络
-进入平流层的火山灰，会在大气中滞留，影响地球气候数年之久。*“这些物质将散射太阳光，并与臭氧层吸收的光线相互配合。。。若真正发生大喷发，可能会对人类文明带来严重的影响，「火山灰将透过平流层扩散至全球，遮蔽日光，不仅可能带来作物欠收的后果，更可能导致气候大变」。”*—摘自《自由时报》
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-进入平流层的火山灰对农业生产的影响不可小觑，或可导致气候变冷，粮食减产。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-因此从自然因素来讲，未来的农作物产量可预期是下降趋势。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-天灾、人祸交织在一起，更有战争乌云笼罩，战友们务必要做好长久的粮食储备。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-除了储粮，更要学会如何可持续性发展。例如自己种植生产粮食。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-作者在调查当中发现，夏威夷大学的Dr. Kratky发明了一种傻瓜式的懒人种菜方法，成本极低，不需电，不需水循环，被动培养系统。可以做到无人值守最低程度的维护，一个月检查一次并补充营养液即可。具体的操作方法感兴趣的战友可以自行搜索。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-对于已经处于粮食危机中的读者，请考虑开始学习水培的方法。少吃一口菜，也许就有源源不断的食物供给。只用在切菜的时候保留根部完整，把切下的根放在浅浅的水中，给它一周两周的时间，蔬菜就会继续生长。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220411_145934-scaled.jpg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-如上图，保留5厘米左右的菜根
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220411_150052-scaled.jpg)
-
-如上图，洋葱的屁股多切一点点留下泡在水里，几天之后也会生根发芽。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220411_163109.jpg)
-
-如有烂菜叶子、果皮等厨余，可以保留放在密闭容器中泡水做酵素，一周左右即可生成液体肥供水培蔬菜成长。
-
-作者本人正在进行一系列的学习和实践，未来待有进展会与战友分享。未雨绸缪，莫坐吃山空。
-
-【文章仅代表作者观点】
-
-参考文献：
-[➥火山灰噴到平流層 研究：全球日落可看到「神秘紫光」](https://news.ltn.com.tw/news/world/breakingnews/2918981)
-[➥2022年汤加海底火山喷发](https://zh.wikipedia.org/wiki/2022%E5%B9%B4%E6%B1%A4%E5%8A%A0%E6%B5%B7%E5%BA%95%E7%81%AB%E5%B1%B1%E5%96%B7%E5%8F%91)
-[➥湯加火山爆發：從空中看這場浩劫造成的破壞和影響](https://www.bbc.com/zhongwen/trad/world-60049419)
-
-[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
-[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
-[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
-[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
-[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
-[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
-[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
-[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
-[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
-[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
-[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
-[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
+G-TV：日本银河系农场。
 
  
 
