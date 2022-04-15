@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 4:51 PM (UTC)`
+
+4月15日：在乌克兰前线的兄弟姐妹们……你们太伟大了……
+![img](https://media.gettr.com/group35/getter/2022/04/15/16/3f451a8e-b2ca-8141-0b61-26e8943822d6/out.jpg)
+
+---
+
 `@miles 4/15/2022 2:58 PM (UTC)`
 
 2022年4月15日 文贵乱聊直播
@@ -145,13 +152,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 `@miles 4/15/2022 1:26 AM (UTC)`
 
 4月14号, 郭文贵先生两首新歌上线第11天<br/>《灭共的雪》登榜iTunes<br/>香港 🇭🇰，新西兰 🇳🇿，新加坡 🇸🇬， 老挝 🇱🇦摇滚歌曲榜首🥇<br/>台湾 🇹🇼，柬埔寨🇰🇭 摇滚榜第二名🥈<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨 🇰🇭 流行歌曲第三名🥉<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>澳门🇲🇴摇滚歌曲第二名🥈<br/>老挝🇱🇦摇滚歌曲第三名🥉<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨 🇰🇭 热门歌曲榜榜首🥇<br/>柬埔寨🇰🇭摇滚歌曲榜榜首🥇<br/><br/>《The Hero》登榜iTunes<br/>澳门🇲🇴摇滚榜第三名🥉<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门，新加坡、新西兰、柬埔寨, 老挝 的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2346558/
-
----
-
-`@miles 4/15/2022 1:04 AM (UTC)`
-
-2022.04.14 晚  新中国联邦 | 新闻访谈   大一统市场；中国知识分子的犬儒主义；中共封城的邪恶企图
-![img](https://media.gettr.com/group47/origin/2022/04/15/01/f8f748cd-8a90-1aab-28c6-601f5b45570a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

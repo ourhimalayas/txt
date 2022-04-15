@@ -2,30 +2,22 @@
 ---
 
 
-## 诺基亚退出俄罗斯电信市场
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352350/)
+## 俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2352349/)
 
-作者：MOS – 柳是多水土透
+作者：日本东京方舟农场 – Miyali7768(文玉）
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-电信制造商诺基亚的CEO告诉路透社，公司将比爱立信更进一步，完全退出俄电信市场。之前爱立信公告将“无限期暂停”在俄的商业运营。
+据美国《国会山》4月13日消息，俄罗斯周三宣布，对美国398名国会议员实施报复性制裁，以回应上个月美国对300多名俄罗斯立法者实施的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-95.png)
+俄罗斯外交部在一份新闻稿中说： “美国国会下议院的领导层和委员会主席，被永久列入俄罗斯’禁止入境名单’。俄罗斯外交部称这些措施是对拜登总统3月24日针对俄罗斯立法机构杜马的328名成员制裁的回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-161.png)
+美国众议员迪恩·菲利普斯（Dean Phillips）说，自己家人逃脱了19世纪末的“俄罗斯大屠杀”，在美国获得庇护，他在推特上强硬回应：120年后的今天，我因反对种族灭绝，威权主义和暴政而受到俄罗斯的制裁，我向我的曾祖父母承诺我会战斗。
 
-虽然特定领域基于人道考虑被豁免于制裁，但诺基亚认为退出俄罗斯已成为唯一选项。
-
-目前诺基亚正在申请制裁实施后的合规许可，但CEO Pekka Lundmark认为“现有条件下，我们看不到任何继续运营的可能”。
-
-电信基础设施市场高度集中于爱立信，诺基亚，华为和中兴四家供应商，目前来自中国的两家企业在俄罗斯拥有较大市场份额。
-
-由于对乌克兰的入侵，数百家西方企业已经宣布结束在俄业务。军事行动同时使俄联邦与接壤的芬兰和瑞典关系恶化，两国分别为爱立信和诺基亚的总部所在地，现正在考虑快速加入北约。
-
-俄政府曾推动外国企业以本国产品建立通信网络，希望说服诺基亚与爱立信在俄境内建设工厂。
-
-Lundmark称，11月宣布的与俄企业YADRO成立合资公司，一同生产4G和5G基站的项目将不会继续，“若要诺基亚重回俄罗斯，需要很多方面的重大改变”，Lundmark说到。
+犹他州共和党众议员约翰柯蒂斯则明确表示自己被俄罗斯列入制裁名单是“荣幸”。
 
 参考链接：
 
-- [Nokia to stop doing business in Russia](https://www.reuters.com/business/media-telecom/nokia-says-stop-doing-business-russia-2022-04-12/)
+- [Russia sanctions 398 members of Congress](https://thehill.com/news/house/3266670-russia-sanctions-398-members-of-congress/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)

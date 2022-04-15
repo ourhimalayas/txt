@@ -2,29 +2,20 @@
 ---
 
 
-## 加拿大国家储备中共病毒疫苗开始大量过期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352786/)
+## 安省废水分析结果表明变种病毒正席卷而来
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2352848/)
 
-作者：Spirit
+加拿大温哥华扬帆农场    平民正道
 
-据当地媒体 4月13日的报道，加拿大卫生部表示，由于民众接种意愿大幅下降，自1月份以来，近150万剂中共病毒疫苗已经过期。
+据加拿大CTV新闻4月13日报道，由于安省缺乏足够的新冠病毒检测人员和设施，卫生部门不得不转用包括对包城市生活废水检验结果在内的其它数据来分析病毒传播情况。并通过定期重复采样，来准确计算出废水中的病毒浓度。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-10.55.20-AM.png)
+对废水分析的最新数据显示，安省目前的病毒感染人数正在回升，病毒标准化浓度已恢复到去年圣诞节前后的高水平。而在所收集的样本中，有90%以上是传播能力和速度更强的Omicron亚变体。同时，所有公共卫生单位也都出现了同样的疫情峰值，这表明第六波病毒传播潮并不受地域限制。
 
-这150万剂过期疫苗在2020年12月以来交付给加拿大的1.18亿剂疫苗中，约占1.3%的份额。另外，国家库存的1800多万剂绝大部分将在未来四个月内过期。卫生部说，过期的疫苗不会被马上扔掉，该机构正在等待制造商是否可以延长有效期的决定。
+据悉，安省废水中病毒标准化浓度在2月和3月初曾持续下降，但在政府取消卫生限制措施和配戴口罩规定之后，该数据随后猛然回升。这表明在人们都放松了警惕时，变种病毒却再次席卷而来。
 
-据悉，加拿大总理贾斯汀·特鲁多已经向国内外七家疫苗制造商，为3500万加拿大居民订购了总数达4亿剂的中共病毒疫苗，人均11剂。目前已借捐赠之名，规避了价值7亿加元的疫苗过期风险。分析人士认为，人们逐渐意识到中共病毒疫苗不能阻止感染和传播病毒，反而有长期的副作用，因此接种意愿陡然降低。各国政府将很难继续推进疫苗的施打。继日本爆出疫苗大量过期后，同样的情况也在加拿大发生。预计未来一段时间，全球有越来越多的中共病毒疫苗因被弃用而过期。
+* * *
 
-参考链接：
-1.[COVID-19 vaccines in national stockpile starting to expire as uptake slows](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
-2. [Canada has ordered more than 400 million COVID-19 vaccine shots: Here’s the progress report](https://www.cbc.ca/news/politics/canada-vaccine-deliveries-progress-report-1.6034624?__vfz=medium%3Dsharebar)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：宁文静
-编辑：飞虹
-审核：飞虹
-校正/发稿：谐趣园
+编辑： 平民正道    发布：平民正道
 
  
 
