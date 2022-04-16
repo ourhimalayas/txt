@@ -2,42 +2,28 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
+## 上海方舱：心脏病和癌症患者得不到救治求助无门
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356846/)
 
-整理：枳实
-美工：精灵蓝
+**撰稿：日本东京方舟农场  子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
+近期，上海为了落实中共的清零政策，许多心脏病和癌症患者也被送入了方舱集中隔离，这些重患得不到及时治疗，求助无门。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-328.jpg)（图片来自大纪元）
 
-雅典娜疫情更新（2022年 4月16日）
+4月12日李女士72岁的母亲，半夜被送到方舱医院，第一天就突发心脏病，一直得不到救治，到15日心脏病已复发两次。方舱医院告知家属，无法处理，要家属自己想办法，但家属联系不到医院收治。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+4月15日凌晨两点，糖尿病重症患者张女士被送到方舱医院。她随身带了很多胰岛素，却无处冷藏，而且方舱无法提供适合糖尿病人的饮食，也没有放置胰岛素的冰箱。她跟医护人员反映，得到的回应是，待不了几天就回去了。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
-数据来源：
+上海癌症病人麻女士，已在方舱医院近一周的时间，而其定期化疗的时间已经超过多天。家属张先生质疑，方舱医院应该只接收无症状感染者或轻症患者，不应该接收有重大疾病的人，因为有重大疾病的患者，本身免疫力和自愈能力差，在医疗没保障的情况下，很可能病情恶化，危及生命。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+像这样的案例，在上海举不胜举，为了政治清零，中共随意践踏和罔顾生命，等到中共灭亡以后，所犯下的种种罪行必将得到清算！
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+参考链接：
+[https://www.epochtimes.com/gb/22/4/16/n13712910.htm](https://www.epochtimes.com/gb/22/4/16/n13712910.htm)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+总编：老孙
+校对发布：爱放飞
 
  
 

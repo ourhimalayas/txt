@@ -2,34 +2,33 @@
 ---
 
 
-## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
+## 樱花时政┃苏联垮台成为中共挥之不去的梦魇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357165/)
 
-当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-118.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fgdb.rferl.org%2F62232c14-4dca-4e30-bf35-eea52f544a2f.jpg&amp;imgrefurl=https%3A%2F%2Fwww.rferl.org%2Fa%2Fsoviet-union-collapse-timeline%2F31487661.html&amp;tbnid=bel1tuBsqiJTEM&amp;vet=12ahUKEwjjlpD13pj3AhVBNqYKHZF)
 
-在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
+《法国世界报》周五（4月15日）刊发了一篇文章表示，苏联的垮台继续困扰着中共。文章指出，在俄军开始入侵乌克兰的前两天，中共于2月22日发布了一部纪录片，讲述了苏联解体的原因。这部名为《历史虚无主义与苏联解体》的纪录片在中共各地的干训班放映，文章表示，这部纪录片证实了习近平和普京在意识形态上的接近以及中共对苏联的解体非常恐惧。
 
-撰稿：喜马拉雅的肉夹馍
+1956年，《纽约时报》于6月份发表了苏共第一书记赫鲁晓夫于2月25日在二十大的秘密报告。在这份报告中，赫鲁晓夫批判了斯大林的罪行。这部纪录片明显表现出对赫鲁晓夫的不满，认为这么做点燃了“虚无主义之火”，也就是说，助长了对官方历史的质疑。但它却成了美国中央情报局的天赐之物。纪录片显示斯大林犯了巨大错误，他与希特勒一起发动了第二次世界大战，中共批判赫鲁晓夫，而无限夸大斯大林的功绩，因为斯大林和毛泽东的特殊关系，中共如果否定斯大林间接否定了毛，否定毛则中共执政合法性没有了，所以一定要维护斯大林，虽然斯大林双手沾满了鲜血也要维护，明显是双重标准，此后在苏共内部引发了一场危机，导致苏共失去执政地位，直到现在没有从中复原的危机。
 
-审核：喜马拉雅的馍夹肉；
+美国总统艾森豪威尔（1953-1961）对苏联施加了强大的影响力，1956年，他特别邀请了1万名苏联青年赴美留学，费用全包。纪录片援引一位俄罗斯研究人员解释说，“除了核武器，美国最重要的武器是意识形态斗争”。这些学生中有一个人叫亚历山大·雅科夫列夫，他于1958年在纽约哥伦比亚大学学习，三十年后，亚历山大·雅科夫列夫是1980年代戈尔巴乔夫的顾问。
 
-校对：Maarago；
+但对于习近平领导的中共国来说，戈尔巴乔夫恰恰是“虚无主义的教父”。他通过开放媒体和反对斯大林的政策而从内部摧毁了苏联。纪录片解释说，（戈尔巴乔夫）“最大的错误是失去对媒体的控制。”这部纪录片还深感遗憾地说，戈尔巴乔夫在1987年决定不再反对西方人的媒体宣传，从而让“美国以和平的方式改变了苏联”，另外，这部纪录片对叶利钦时代（1991-1999）一笔带过，但却突出了普京的角色，明显表现出对他的肯定。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+纪录片展示了年轻人穿着印有普京肖像的T恤或在莫斯科红场接受“检阅”。这部纪录片的作者从苏联的解体中吸取了“深刻教训”，法国世界报文章强调，这部纪录片显示了中共当局对“外部危险”是非常恐惧的。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+信息来源：[苏联的垮台继续困扰着中国](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20220415-%E8%8B%8F%E8%81%94%E7%9A%84%E5%9E%AE%E5%8F%B0%E7%BB%A7%E7%BB%AD%E5%9B%B0%E6%89%B0%E7%9D%80%E4%B8%AD%E5%9B%BD)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
