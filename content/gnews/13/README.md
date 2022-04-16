@@ -2,35 +2,26 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月16日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2357648/)
+## 特斯拉准备于4月18日恢复上海工厂生产
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2357708/)
 
-作者：香草山翻译部
+编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+特斯拉上海工厂在停产三周后，已获得当地政府的批准，准备于下周一（4月18日）恢复生产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-15.png)
+特斯拉上海工厂位于浦东新区，受疫情影响，于3月28日停产至今。而知情人士今日称，特斯拉的复工计划已经得到了地方当局的批准。
 
-文章仅代表作者本人观点，与Gnews无关
+但知情人士同时指出，该计划仍可能根据疫情的发展情况而发生变化。
 
-视频参看：
-[2022.04.16早 《NFSC新闻》](https://gettr.com/streaming/p15kaxdd3be)
-[2022.04.16早《NFSC新闻访谈》](https://gettr.com/streaming/p15ksgh1f3e)
+其中一位知情人士称，下周一复工后，特斯拉最初计划从一个班次开始，然后逐步增加。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+对此，特斯拉和上海相关部门尚未置评。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+文件显示，最近的这次停工是特斯拉上海工厂自2019年底投产以来，持续时间最长的一次，已导致超过5万辆的产量损失。
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+另外，该工厂复工后，还可能受到汽车零部件采购困难的影响。因为疫情原因，工厂周边地区的物流也受到了影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+昨晚，小鹏汽车CEO何小鹏曾表示，如果上海及周边地区的供应商无法恢复生产，中国的汽车制造商可能不得不在5月份停产。但他同时指出，好消息是目前部分部委和主管部门正在尽全力协调，并期望更多政府和主管部门的支持和共同努力。
 
  
 
