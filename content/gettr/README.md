@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 11:00 PM (UTC)`
+
+2022.04.16 NFSC news  Three labeled missiles sank the warship "Moskva “, releasing soldiers
+![img](https://media.gettr.com/group8/origin/2022/04/16/22/4b8c37a8-8e82-17bd-3acc-c41d8f594ae4/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/16/2022 10:23 PM (UTC)`
 
 4/16/2022 Miles Guo: Several fellow fighters and their families in Russia cleverly avoided the most dangerous places. A fellow fighter working in the CCP’s system sold the classified information of the National Bureau of Statistics to the US. As a result, the US granted his whole family urgent immigration visas. As long as it is the CCP’s secret, it can be sold for a good price, with the New Federal State of China being the deal maker.<br/><br/>4/16/2022文贵直播：俄罗斯几家战友聪明地躲开了最危险的地方；体制内战友把统计局的机密信息提供给了美国，全家获批美国紧急移民；只要是共产党的秘密，都能卖个好价钱，新中国联邦就是交易的桥梁<br/>
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
  4月16号：七哥是在什么时候说的．很快在中国国内用爱马仕包，换粮都不行❌……
 ![img](https://media.gettr.com/group12/getter/2022/04/16/17/97636044-1ac5-fb62-f361-22f8e924b555/46b11e549acdad0624083f7e7206fac5.jpg)
-
----
-
-`@miles 4/16/2022 4:58 PM (UTC)`
-
- 4月16号：这是在哪里？怎么回事儿？
-![img](https://media.gettr.com/group15/getter/2022/04/16/16/cff68b5d-a489-1784-1cd9-d07a931fcf1d/out.jpg)
 
 ---
 
