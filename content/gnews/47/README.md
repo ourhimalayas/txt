@@ -2,89 +2,77 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.16）打新冠疫苗第二针后荨麻疹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354387/)
+## 参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2353937/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
-
-整理/编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-39.png)图片来源：雅典娜设计组(614)
+**参议员罗恩·约翰逊**： 
+我给密尔沃基退伍军人医疗中心@MilwaukeeVA 写了一封信，要求他们就其新冠 COVID-19 疫苗强制接种问题给出答案。 我们现在知道，完全接种疫苗的人可以感染和传播新冠 COVID-19 ([#中共病毒](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92))。 疫苗强制接种毫无意义且具有破坏性。 【附福克斯新闻相关报道】
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+> I sent a letter to [@MilwaukeeVA](https://twitter.com/milwaukeeva?ref_src=twsrc%5Etfw) demanding answers on their COVID-19 vaccine mandates. 
+> 
+> We now know individuals who are fully vaccinated can contract and spread COVID-19. Vaccine mandates are pointless and destructive.[https://t.co/D1KlJalsap](https://t.co/D1KlJalsap)
+> — Senator Ron Johnson (@SenRonJohnson) [April 15, 2022](https://twitter.com/SenRonJohnson/status/1515000945008066569?ref_src=twsrc%5Etfw)
 
-原文作者：不开飞机的舒克
 
-**疫情|新冠疫苗副作用     打新冠疫苗第二针后荨麻疹**
 
-新冠疫苗第二针后得了急性荨麻（已好）
+**众议员加拉格尔新闻办公室**： 
+议员加拉格尔评论 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 和习 的关系：“这可不是什么沉默的伙伴关系…普京在这场他们发动的对抗西方的新冷战中，正变成习的虐待狂伙伴。他在乌克兰遭受的挫折越多，他只会越依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 。”
 
-我只当是一次疾病，提醒我要调整好工作和生活状态。
 
-我也来记录下这一次的打疫苗的故事吧，希望能顺利攻克人生难得遇到的过敏反应。
 
-1、治疗经过：
+> Rep. Gallagher Putin and Xi's relationship: "This isn't a silent partnership…Putin is becoming Xi's sadistic sidekick in this New Cold War that they have launched against the West. He will only grow more dependent on China the more he experiences setbacks in Ukraine." [pic.twitter.com/NipePqGcoU](https://t.co/NipePqGcoU)
+> — Rep. Gallagher Press Office (@RepGallagher) [April 15, 2022](https://twitter.com/RepGallagher/status/1514968256083333122?ref_src=twsrc%5Etfw)
 
-6月27日下午5点新冠疫苗的兰州生物第二针后出现过敏反应。之前第一针是科兴的疫苗，安然无恙。
 
-6月27日晚上7点，手臂内侧出现红点，大腿也有几颗。有些痒。
 
-晚上11点，手臂，背部，大腿根部都有覆盖。尤其是右腿的大腿根部覆盖的红疹如同密密麻麻的…有密集恐惧的我，自己看到都觉得不适。
+**参议员霍利新闻办公室**： 
+参议员霍利的法案，“将让美国更加容易送给 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 防卫武器——包括支持其爱国者地对空导弹系统的设备——并将加快许可的审批。” 
+【转newsmax新闻网，霍利: 美国必须尽快武装台湾】
 
-晚上涂了炉甘石。也发现不仅只有我出现这个情况。
 
-6月28日上午，去家附近的医院。医生听我说完后，看看了红疹，判断为急性荨麻疹，给我开了氯雷他定片。此后我担心情况严重，也拨通当地疾控电话做个报备。根据提示，我又前往接种中心做了不良反应的登记。接种医生说，“看个人体质，有些人几天就好了，有些人需要几个月。”晚上睡觉时感觉有占胸闷。
 
-6月29日上午，为了尽快好起来，忍住痒，一定不抓挠。太难受呢，就继续涂上炉甘石。上一个小时班，在床上趴五分钟。
+> Senator Hawley’s “bill would make it easier for the U.S. to send Taiwan defensive weaponry — including equipment to bolster its Patriot surface-to-air missile system — and would expedite licensing approvals."[https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 15, 2022](https://twitter.com/SenHawleyPress/status/1514982221655990278?ref_src=twsrc%5Etfw)
 
-下午，感觉手臂上的红点没那么红了。但是红疹的范围没有减少，也有新发。于是晚上去医院急诊科看诊，结果队伍太长，半道而返。
 
-6月30日，今天竟然因为工作太忙，忘记了挠痒，症状轻微些。手臂的红疹颜色淡了许多，只是没有发过红疹的小部分区域还在新增，有好几颗疹子像是埋在皮肤里，快要冒出。
 
-7月1日，我的荨麻疹病症减轻了。此前冒出的红疹颜色变浅。手臂和腿上新长出来了一些个红占占特别是左手掌。不抓不挠，它们就不会红肿连成片。
+**美国国务院**： 
+国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken) 讨论了人权报告中一些最令人震惊的发现，这些发现涵盖了 2021 年的事件，例如袭击记者、([#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)) 种族灭绝、和无辜平民被不公正羁押。 [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hashtag_click) 
+【附布林肯讲话视频节选 】
 
-下午尝试了下，用艾叶泡脚。泡的时间有点长，出了一身的汗，有点头晕哈哈哈，不过，我手掌上的红疹竟然消退了。
 
-7月2日，3日，眼瞅着好得差不多了，只是手脚的部分区域冒出七八颗。我已经开荤啦，喝了去年的梅子酒，吃了点虾肉。
 
-7月5日，极小的局部范围有，基本好了。
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) discusses some of the most alarming findings of the [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hash&amp;ref_src=twsrc%5Etfw) that covers events of 2021, such as attacks on journalists, genocide, and innocent civilians being unjustly detained. [pic.twitter.com/ovtv2uwjD2](https://t.co/ovtv2uwjD2)
+> — Department of State (@StateDept) [April 15, 2022](https://twitter.com/StateDept/status/1515027177162657797?ref_src=twsrc%5Etfw)
 
-7月7日，手臂上又冒出了3颗。
 
-7月12日，忘买药巩固下，但没有再复发。
 
-2、药物：
+**前国务卿迈克.蓬佩奥**： 
+美国的军事领导人知道，赋予伊朗权力的代价将是美国国家安全的迫在眉睫的风险，对美国士兵来说将是一个更危险的作战环境。 拜登政府必须改变其伊朗交易谈判的方向。 
+【附美国军方领导人反对伊朗核协议的公开信】
 
-氯雷他定片，维生素C，炉甘石洗剂（只要痒，就随时涂）
 
-饮食：猪肉，青菜，水果。
 
-3、寄语：
+> America's military leaders know the cost of empowering Iran will be imminent risk to American national security and a more dangerous operating environment for American soldiers. The Biden Administration must reverse course on its Iran deal negotiations. [https://t.co/XBguUGWi9i](https://t.co/XBguUGWi9i)
+> — Mike Pompeo (@mikepompeo) [April 15, 2022](https://twitter.com/mikepompeo/status/1514966912299634693?ref_src=twsrc%5Etfw)
 
-评论里好多小伙伴遇到和我类似的经历，这是十万分之六的缘分。加油提高免疫力。
 
-#新冠疫苗 #有姐妹想看荨麻疹的图，我担心其他人感到不适，稍微遮挡了一下。可见最后一张图。
 
-发布于2021.06.29
+**众议员安迪·比格斯**: 
+任何热爱这个国家的理性领导人的解决方案，都是开放美国的石油和天然气能源。 从我们的敌手那里购买石油和天然气，或者让美国人购买 5.5万 美元的特斯拉，并不是真正的解决方案。
 
-精彩评论：
 
-T乐LING回复：我也是！！！人生第一次荨麻疹。
 
-冰汤雪离回复：我也是。但我没意识到是荨麻疹，意识到的时候已经发展成慢性的了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1958.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1959.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1960.png)图片来源：小红书
-参考链接：[新冠疫苗第二针后荨麻疹](https://www.xiaohongshu.com/discovery/item/60dad4460000000021038902?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=61e6a6ab000000001000feb2&amp;apptime=1650006304)
+> The solution for any rational leader who loves this country is to open up America’s oil and gas energy. 
+> 
+> Purchasing oil and gas from our adversaries or making Americans buy $55K Teslas are not real solutions.
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 15, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515006878698332164?ref_src=twsrc%5Etfw)
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
 
  
 

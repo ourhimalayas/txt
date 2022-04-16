@@ -2,27 +2,22 @@
 ---
 
 
-## 有声｜莫斯科号的损失严重打击了俄军威信
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2356433/)
+## 中日财经爆┃60家日本上市企业决定停止或退出涉俄业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356471/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-53.png)[图片来源](https://asia.nikkei.com/Business/Automobiles/Toyota-to-halt-Russia-production-Friday-as-sanctions-cut-supply-chain)
+据日本帝国数据库统计，截止4月11日，在进军俄罗斯的168家日本上市公司中，有60家公司（约占36%）决定停止业务或退出。3月为止的调查中只有37家公司，现已扩大为约1.6倍。乌克兰危机导致“远离俄罗斯”的公司越来越多，但也有一些公司出于订单未完成等原因而暂时维持俄罗斯业务。
 
-**2022-04-16**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/416-9.jpg)
-[《卫报》](https://www.theguardian.com/world/2022/apr/15/loss-of-moskva-strikes-serious-blow-to-russian-militarys-prestige)4月15日报道，在黑海沉没的莫斯科号战舰，对普京和其军队的威望造成极大打击。
+关于停止业务的理由，很多企业列举了商品配送等供应面的混乱。随着俄乌战争长期化，企业对营商前景的警惕升温，这也成为背后原因。
 
-事件一开始，俄政府就淡化处理。起初，俄罗斯国防部声称是一场事故导致了船上起火。然后，国防部称损失已被控制，该船正被拖到塞瓦斯托波尔的港口。最后，在周四晚些时候，国防部宣布该船在风暴中沉没。
+信息来源：[日本上市公司涉俄业务有36%决定停止或退出](https://china.kyodonews.net/news/2022/04/4b2a1404f7fd-36.html)
 
-即使国家电视台的评论员试图将莫斯科号的损失说成是暂时的挫折，俄罗斯人也意识到发生了严重的事情。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-乌克兰声称它用一枚海王星反舰导弹击中了莫斯科号。俄罗斯媒体没有公布该舰或其船员的照片。一些西方媒体报道称，在该船沉没时，估计500名船员中只有几十人获救。俄罗斯没有公布伤亡信息。
 
-（秘密翻译组  大树  编译报道）
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
