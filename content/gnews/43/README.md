@@ -2,28 +2,26 @@
 ---
 
 
-## 加拿大国家储备中共病毒疫苗开始大量过期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352786/)
+## 美财政部长就中俄结盟问题发出严厉警告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352852/)
 
-作者：Spirit
+作者：宁文静
 
-据当地媒体 4月13日的报道，加拿大卫生部表示，由于民众接种意愿大幅下降，自1月份以来，近150万剂中共病毒疫苗已经过期。
+4月13日，美国财政部长珍妮特·耶伦在大西洋理事会智库的演讲中，针对中共与俄罗斯“没有上限”的伙伴关系，态度强硬地发出警告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-10.55.20-AM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-11.02.14-AM.png)
 
-这150万剂过期疫苗在2020年12月以来交付给加拿大的1.18亿剂疫苗中，约占1.3%的份额。另外，国家库存的1800多万剂绝大部分将在未来四个月内过期。卫生部说，过期的疫苗不会被马上扔掉，该机构正在等待制造商是否可以延长有效期的决定。
+耶伦指出，习近平妄图将中共的威权制度作为全球新兴国家和发展中国家的典范，国际秩序正处于危险之中。随后，耶伦措辞严厉地强调，如果在关键时刻不尊重主权和领土完整的原则，中共国就不能指望全球社会在未来尊重它对这些原则的诉求。
 
-据悉，加拿大总理贾斯汀·特鲁多已经向国内外七家疫苗制造商，为3500万加拿大居民订购了总数达4亿剂的中共病毒疫苗，人均11剂。目前已借捐赠之名，规避了价值7亿加元的疫苗过期风险。分析人士认为，人们逐渐意识到中共病毒疫苗不能阻止感染和传播病毒，反而有长期的副作用，因此接种意愿陡然降低。各国政府将很难继续推进疫苗的施打。继日本爆出疫苗大量过期后，同样的情况也在加拿大发生。预计未来一段时间，全球有越来越多的中共病毒疫苗因被弃用而过期。
+耶伦在问答环节还表示，美国需要避免出现两极的全球金融体系，即市场驱动的民主国家与政府驱动的专制国家形成的两大经济阵营。但分析人士认为，耶伦的演讲是在下周国际货币基金组织和世界银行成员国，将在华盛顿召开春季会议的前几天发表的，勾勒出一个新的国际金融和经济架构的轮廓，可能正在为两大阵营的对垒做准备，因此具有“里程碑”式的意义。
 
-参考链接：
-1.[COVID-19 vaccines in national stockpile starting to expire as uptake slows](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-in-national-stockpile-starting-to-expire-as-uptake-slows-1.5860395)
-2. [Canada has ordered more than 400 million COVID-19 vaccine shots: Here’s the progress report](https://www.cbc.ca/news/politics/canada-vaccine-deliveries-progress-report-1.6034624?__vfz=medium%3Dsharebar)
+参考链接：[Yellen to China: Help Stop Russia or Lose Standing in World](https://www.newsmax.com/newsfront/yellen/2022/04/13/id/1065613/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
 总编：宁文静
 编辑：飞虹
-审核：飞虹
+审核：文真
 校正/发稿：谐趣园
 
  

@@ -2,89 +2,38 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.16）打新冠疫苗第二针后荨麻疹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354387/)
+## 乌总统要求俄支付战争赔款
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354549/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+作者：MOS- 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+战争开始7周后，基辅和西方政府正在计划如何让莫斯科支付战争赔款。普京在2月24日开始入侵乌克兰，造成了大量人员伤亡和基础设施的破坏。除非物质社会伤害外，专家估计损失在7000至1万5000亿美元之间 。
 
-整理/编辑：gardeniahu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-162.png)图片源自网络
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-39.png)图片来源：雅典娜设计组(614)
+则连斯基上月告知莫斯科，他要求侵略国支付账单，“你将要修复每一幢房屋，每一条街道，每一个城市，你将报销所有账单，包括你对我国，每一个乌克兰人带来的损失” 。
 
+有分析人士认为，西方已经有能力要求赔付。“在历史上，战争赔款在对立结束后，由战争发起国支付”，布鲁金斯学会的Robert Litan说到，“就像德国在两次世界大战之后的那样，法兰西在战后，赔付了欧洲多国拿破仑所造成的伤害”。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+ “现在，众多政府已经扣押了俄罗斯存放在海外的外汇储备，意味着对乌克兰赔款已经先期到位” 。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+一些欧盟官员正在考虑，将冻结的俄寡头财产用至乌克兰重建项目。更大部分的金额是俄联邦央行存在外国银行中的储备金，但收缴将面临司法挑战。Amsterdam Center for International Law的法律教授Stephan Schill说到，“国际法对外国政府财产有特殊保护” 。
 
-原文作者：不开飞机的舒克
+面对法律问题，最快的方法可能是新的马歇尔计划，欧盟预算委员Johannes Hahn建议道，马歇尔作为美国防长，曾以大量贷款资助战后欧洲重建。“帮助乌克兰快速重建，需要全球一起努力，一个新的马歇尔计划”。
 
-**疫情|新冠疫苗副作用     打新冠疫苗第二针后荨麻疹**
+【参考链接】 [https://justthenews.com/world/europe/how-wrest-war-reparations-russia-ukraine-and-west-count-ways](https://justthenews.com/world/europe/how-wrest-war-reparations-russia-ukraine-and-west-count-ways)
 
-新冠疫苗第二针后得了急性荨麻（已好）
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-我只当是一次疾病，提醒我要调整好工作和生活状态。
+编辑/校对/发稿：Daxia
 
-我也来记录下这一次的打疫苗的故事吧，希望能顺利攻克人生难得遇到的过敏反应。
+**更多资讯，更多关注**
 
-1、治疗经过：
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
 
-6月27日下午5点新冠疫苗的兰州生物第二针后出现过敏反应。之前第一针是科兴的疫苗，安然无恙。
-
-6月27日晚上7点，手臂内侧出现红点，大腿也有几颗。有些痒。
-
-晚上11点，手臂，背部，大腿根部都有覆盖。尤其是右腿的大腿根部覆盖的红疹如同密密麻麻的…有密集恐惧的我，自己看到都觉得不适。
-
-晚上涂了炉甘石。也发现不仅只有我出现这个情况。
-
-6月28日上午，去家附近的医院。医生听我说完后，看看了红疹，判断为急性荨麻疹，给我开了氯雷他定片。此后我担心情况严重，也拨通当地疾控电话做个报备。根据提示，我又前往接种中心做了不良反应的登记。接种医生说，“看个人体质，有些人几天就好了，有些人需要几个月。”晚上睡觉时感觉有占胸闷。
-
-6月29日上午，为了尽快好起来，忍住痒，一定不抓挠。太难受呢，就继续涂上炉甘石。上一个小时班，在床上趴五分钟。
-
-下午，感觉手臂上的红点没那么红了。但是红疹的范围没有减少，也有新发。于是晚上去医院急诊科看诊，结果队伍太长，半道而返。
-
-6月30日，今天竟然因为工作太忙，忘记了挠痒，症状轻微些。手臂的红疹颜色淡了许多，只是没有发过红疹的小部分区域还在新增，有好几颗疹子像是埋在皮肤里，快要冒出。
-
-7月1日，我的荨麻疹病症减轻了。此前冒出的红疹颜色变浅。手臂和腿上新长出来了一些个红占占特别是左手掌。不抓不挠，它们就不会红肿连成片。
-
-下午尝试了下，用艾叶泡脚。泡的时间有点长，出了一身的汗，有点头晕哈哈哈，不过，我手掌上的红疹竟然消退了。
-
-7月2日，3日，眼瞅着好得差不多了，只是手脚的部分区域冒出七八颗。我已经开荤啦，喝了去年的梅子酒，吃了点虾肉。
-
-7月5日，极小的局部范围有，基本好了。
-
-7月7日，手臂上又冒出了3颗。
-
-7月12日，忘买药巩固下，但没有再复发。
-
-2、药物：
-
-氯雷他定片，维生素C，炉甘石洗剂（只要痒，就随时涂）
-
-饮食：猪肉，青菜，水果。
-
-3、寄语：
-
-评论里好多小伙伴遇到和我类似的经历，这是十万分之六的缘分。加油提高免疫力。
-
-#新冠疫苗 #有姐妹想看荨麻疹的图，我担心其他人感到不适，稍微遮挡了一下。可见最后一张图。
-
-发布于2021.06.29
-
-精彩评论：
-
-T乐LING回复：我也是！！！人生第一次荨麻疹。
-
-冰汤雪离回复：我也是。但我没意识到是荨麻疹，意识到的时候已经发展成慢性的了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1958.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1959.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1960.png)图片来源：小红书
-参考链接：[新冠疫苗第二针后荨麻疹](https://www.xiaohongshu.com/discovery/item/60dad4460000000021038902?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=61e6a6ab000000001000feb2&amp;apptime=1650006304)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

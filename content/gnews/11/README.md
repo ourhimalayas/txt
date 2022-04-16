@@ -2,39 +2,31 @@
 ---
 
 
-## 芬兰瑞典拟加入北约，俄威胁向波罗的海部署核武器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354488/)
+## 韩国将从下周起取消大多数疫情限制
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354585/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山教育部 -Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+韩国4月15日表示，由于奥米炕病例激增显示出减弱的迹象，将于下周取消与中共病毒相关的大部分限制措施，包括对餐馆的午夜宵禁， 尽管人们仍然会有戴口罩。
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-47.png)图片源自网络
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1965.png)
+首相金富谦在中共病毒回应会议上表示，从 4 月 18 日起，将取消对餐馆和其他企业的午夜宵禁，并将私人聚会上限设定为 10 人的限制。 金富谦还强调戴口罩仍然是自我保护的非常重要的手段，韩国在相当长的一段时间内仍会维持室内口罩的规定。 
 
+关于在户外戴口罩，金说，政府将根据病毒情况在两周内审查是否取消现有限制。 目前韩国的中共病毒单日确诊病例数在 3 月中旬每天徘徊在 620,000 多例，之后周四每日感染人数降至 150,000 例以下，似乎已经过了传播高峰期。
 
-4月16日，据天空新闻报道，当两个北欧国家表示可能加入北约，普京的盟友梅德韦杰夫警告，莫斯科可能会下令在欧洲地区部署核武器。
+【参考链接】[https://www.reuters.com/world/asia-pacific/skorea-lift-most-covid-curbs-next-week-yonhap-2022-04-14/](https://www.reuters.com/world/asia-pacific/skorea-lift-most-covid-curbs-next-week-yonhap-2022-04-14/)
 
-当俄罗斯入侵乌克兰改变了欧洲的整个安全格局，北欧国家普遍改变了以往的思维方式，芬兰和瑞典强烈表示希望成为北约成员。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-芬兰总理桑娜·马林表示，除了成为北约成员国之外，没有其他方式可以获得安全保障；瑞典首相马格达莱娜·安德森说，她正在分析入侵乌克兰战争爆发以后，如何才能对她的国家最有利。
+编辑/校对/发稿：Daxia
 
-梅德韦杰夫宣布，如果这些国家加入北约，莫斯科将不得不通过加强其在波罗的海的陆海空力量来“恢复平衡”，“在这种情况下，就不可能再谈论波罗的海的无核地位了。”
+**更多资讯，更多关注**
 
-近几十年来，瑞典和芬兰一直保持中立，因为两国都避免与俄罗斯的关系搞僵，但在入侵战争爆发后情况发生了变化。
-
-上周，包括澳大利亚等盟国在内的北约国家外长举行会议，讨论瑞典和芬兰加入的可能性。
-
-国防和安全分析师杰辛塔卡罗尔表示，这两个北欧国家表示有意加入北约，标志着俄罗斯的惨败。
-
-参考链接：[Dmitry Medvedev suggests Moscow will send nuclear weapons to Baltic region over Finland, Sweden NATO membership | Sky News Australia](https://www.skynews.com.au/world-news/global-affairs/dmitry-medvedev-suggests-moscow-will-send-nuclear-weapons-to-baltic-region-over-finland-sweden-nato-membership/news-story/fcf93eec4bbb7578780a1eea762876d1)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

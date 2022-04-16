@@ -2,23 +2,18 @@
 ---
 
 
-## 美对乌克兰新军事援助中包括直升机等重型装备
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353981/)
+## 乌克兰高速公路非常拥堵全是运送物资油料和坦克等军事装备的车辆
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354295/)
 
-作者：加拿大温哥华扬帆农场-晨熹
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1953.png)
+发布：*陶子*
 
-
-据【Yahoo News】4月14日报道， 美周三公布了一项价值8亿美元的对乌克兰新的军事援助计划，其中包括直升机、榴弹炮和装甲运兵车等重型装备。
-
-拜登在与泽连斯基进行了约一个小时的交谈后表示，随着俄军准备加强对顿巴斯的攻击，美国将继续为乌克兰提供自卫能力。新一揽子军援中将包含更多高效武器系统，以及为乌克兰东部，俄军即将发动的更广泛攻击而量身定制的新武器。新援助中包括华盛顿此前因担心与拥核的俄罗斯冲突升级而拒绝向基辅提供的一些重型装备。
-
-五角大楼发言人约翰·柯比公布了这次最新援助计划的项目清单，并表示美国正在与盟国合作，以向乌克兰提供额外的军事能力。五角大楼周三将与美主要国防集团负责人开会，商讨加快生产乌克兰军队最常用的武器。
-
-新闻来源：[https://news.yahoo.com/us-military-aid-ukraine-includes-180441582.html](https://news.yahoo.com/us-military-aid-ukraine-includes-180441582.html)
-
-采编：风云小哥，编辑发稿：硫酸羟氯喹64
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
