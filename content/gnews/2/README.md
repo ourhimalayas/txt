@@ -2,33 +2,31 @@
 ---
 
 
-## 澳大利亚和英国继续制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
+## 基辅附近大量平民遭俄军枪决
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355621/)
 
-撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
-根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
-据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-61.jpg)
+图片来源： https://trixabia.com/
 
-据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+美联社2022年4月15日发文，报道了近日乌克兰各地平民在俄乌战争中的受害情况，包括基辅警方发布的惊人数据。
 
-而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
+**首都 基辅（Kyiv）：**
 
-参考链接：
+俄军夺取基辅失败而撤离后，当地警方4月15日表示已发现了多达900多具平民尸体，其中95% 是明显遭到了直接枪决后，被遗弃在街上、或被草草埋葬。其中在距基辅30公里的布恰市，发现了多达350 多具尸体。当局表示，现每天仍在瓦砾下和乱葬坑中发现更多尸体。
 
-[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+**南部港口 马里乌波尔（Mariupol）：**
 
-[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
+该市自开战以来被俄军封锁围攻至今，大量民众被困，死亡人数可能超过2万。当地居民说看到俄军正在把埋在住宅庭院中的尸体挖出来，同时禁止再埋葬之后被杀的人，没人知道俄方将把这些尸体移去哪里。乌军坚守部队日渐单薄、却仍在坚持抵抗。
 
-[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
+**东北部城市 哈尔科夫（Kharkiv）：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
+当地官员表示，一处住宅区遭俄军炮击， 7 人死亡（包括一名 7 个月的婴儿）、 34 人受伤。该地检察院已经对俄军涉嫌“违反战争法和惯例、预谋谋杀”提起了刑事诉讼。
 
-编辑/总编/审核：飞虹
+**背景：**4月13日，俄方布局在黑海的“莫斯科号”旗舰发生爆炸，乌军及美高级国防官员表示该舰被乌军导弹击中，但俄方不承认遭到袭击，该舰受损严重，在14日被拖回港口的途中沉没。俄国防部随后宣布将提升对基辅的导弹攻击，并继续准备对乌东部地区的袭击。目前，不确定俄军何时会发起一场全面战役。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+**新闻来源：** [Police: More than 900 civilian bodies found in Kyiv region](https://apnews.com/article/russia-ukraine-zelenskyy-kyiv-business-black-sea-22d7279f32c15d4a7037a2195113fb57)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

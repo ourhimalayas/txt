@@ -2,44 +2,60 @@
 ---
 
 
-## 4/15/2022国际财经快讯：马斯克向Twitter提出430亿美元报价；英国实施有史以来最大规模资产冻结
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2351697/)
+## 格雷厄姆访台时称开始让中共国为所做的事情付出更大的代价
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2351888/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-81.png)[图片来源](https://www.reuters.com/)
-**1.马斯克向Twitter提出430亿美元的报价，以建立“言论自由的舞台”**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-[亿万富翁企业家埃隆马斯克周四以430亿美元现金收购Twitter Inc(TWTR.N)，特斯拉首席执行官表示，这家社交媒体公司需要私有化才能发展并成为言论自由的平台。“我认为有一个包容性的言论自由舞台非常重要，”已经是旧金山Twitter的第二大股东的马斯克在被问及他的出价时表示。马斯克周三在致Twitter董事会的一封信中提出了收购要约，Twitter是一个微博平台，已成为个人和世界领导人的全球交流方式，并于周四在监管文件中公开。他的每股54.20美元的报价比Twitter4月1日的收盘价溢价38%，这是他在该社交媒体平台9.1%的股份公开之前的最后一个交易日报价。](https://www.reuters.com/technology/elon-musk-offers-buy-twitter-5420-per-share-2022-04-14/)
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**2.英国对两名阿布拉莫维奇的同事实施有史以来最大规模的资产冻结**
+4月14日晚，由美国南卡罗纳州资深联邦参议员林赛∙格雷厄姆（Lindsey Graham）率领的一个美国国会议员代表抵达台北，对台湾进行为期一天一夜的旋风般访问。
 
-[英国周四制裁了切尔西老板罗曼·阿布拉莫维奇的两名亲密同伙，以回应俄罗斯入侵乌克兰，称这些人受到了政府有史以来最大规模的资产冻结。切尔西足球俱乐部董事尤金·特南鲍姆和另一位阿布拉莫维奇商业伙伴大卫·戴维多维奇成为目标。大卫多维奇还将面临旅行禁令，这意味着他将被拒绝进入或留在英国的权利。据路透社上个月报道，在俄罗斯入侵乌克兰的当天，亿万富翁商人阿布拉莫维奇将他控制的两家公司转让给了特南鲍姆和大卫多维奇。政府表示，已对与这两人有关的价值100亿美元的资产下达冻结令，这两人因与阿布拉莫维奇的密切关系而受到制裁，阿布拉莫维奇是上个月被英国和欧盟制裁的几名俄罗斯富豪之一。](https://www.reuters.com/world/uk/uk-adds-two-further-listings-under-russia-sanctions-regime-2022-04-14/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Six-U.S.-Lawmakers-Arrive-in-Taiwan-on-Unannounced-Trip.jpg)
 
-**3.穆迪称俄罗斯可能违约**
+代表团由六位美国两党参众议员组成。团长是一贯友台并对北京持强硬立场的参院预算委员会共和党首席议员格雷厄姆，代表团成员包括立场同样一贯友台的新泽西州民主党籍参院外交委员会主席鲍勃∙梅嫩德兹（Bob Menendez）。另外四位成员是北卡罗来纳州参议员理查德·伯尔（Richard Burr）、俄亥俄州参议员罗伯·波特曼（Rob Portman）、内布拉斯加州参议员本·萨斯（Ben Sasse）和德克萨斯州众议员罗尼·杰克逊（Ronny Jackson）。
 
-[穆迪表示，由于西方对乌克兰战争的制裁，俄罗斯试图以卢布偿还美元债券后可能违约，这是自1917年布尔什维克革命后莫斯科首次出现重大外国债券违约。俄罗斯在4月4日以卢布而非根据证券条款规定支付的美元支付了2022年和2042年到期的两种主权债券。穆迪周四在一份声明中表示，俄罗斯“因此如果在5月4日（即宽限期结束）之前未得到解决，可能会被视为穆迪定义的违约”。“债券合约没有规定以美元以外的任何其他货币偿还。”](https://www.reuters.com/world/europe/moodys-says-russia-may-be-default-dollar-bonds-2022-04-15/)
+梅嫩德斯在与蔡英文总统会面时说，作为参议院台湾核心小组的联合主席和参议院外交关系委员会主席，我很自豪能够再次确认我们与台湾坚如磐石的关系（I am proud to be back to reaffirm our rock-solid relationship with Taiwan），在世界关注俄罗斯入侵乌克兰之际，代表团在台湾的存在向台湾人民发出了“强有力的信息”，“我们理解这里是台湾，就在这个地区，未来在这里。”（we understand that here in Taiwan, here in this region, this is where the future is.）
 
-**4.渣打在非洲和中东削减七家小业务**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/937x768_970348711876.jpg)
 
-[渣打银行(STAN.L)周四表示，将离开非洲和中东的七个国家，以寻求通过将重点缩小到该地区增长较快的市场来提高利润。该银行将完全退出安哥拉、喀麦隆、冈比亚、约旦、黎巴嫩、塞拉利昂和津巴布韦，可能会试图出售其在这些市场的业务。它还将关闭其在坦桑尼亚和科特迪瓦的零售银行业务，专注于企业银行业务。此举标志着渣打银行的重大转变，渣打银行是近年来在欧洲大陆投资的最大银行之一，当时同行一直在退出。](https://www.reuters.com/business/stanchart-exits-7-markets-africa-middle-east-2022-04-14/)
+梅嫩德斯称，中共国政府曾对代表团访问台湾表示不满。但抗议“并没有阻止我们前来”，也“不会阻止我们未来支持台湾”。台湾生产了全球 90% 的高端半导体产品，它是一个具有全球意义、具有全球连锁效应、具有全球影响力的国家。因此，应该理解台湾的安全具有全球意义。
 
-**5.花旗集团下调对俄罗斯潜在损失的预测**
+代表团团长格雷厄姆赞同梅南德斯的观点，称台湾“对世界和美国的数字经济来说是不可或缺的，我们希望在经济上加强双边关系”。
 
-[花旗集团(C.N)周四表示，其在俄罗斯的风险敞口可能会损失多达30亿美元，比之前的预测少20亿美元，同时报告其第一季度利润几乎减半。该银行表示，自去年12月以来已将其对俄罗斯的总敞口减少20亿美元至78亿美元，现在在严重不利的情况下损失不超过30亿美元，低于上个月估计的近50亿美元。披露这一消息之际，美国银行中最全球化的花旗在本季度增加了19亿美元的储备，以准备应对俄罗斯直接风险敞口和乌克兰战争的经济影响造成的损失。](https://www.reuters.com/business/finance/citigroup-profit-sinks-46-loan-loss-provisions-dealmaking-slump-2022-04-14/)
+格雷厄姆说，我们来这里是为了表达对我们所爱的事物的支持。我们热爱自由，我们热爱实现个人梦想的能力，我们热爱选择自己的领导人的能力，我们热爱法治，我们讨厌 舞枪弄棒，经常有人问，如果中国共产党进一步侵略台湾，美国会怎么做。我相信我们会坚持我们所爱的，我们会和你站在一起。
 
-**6.富国银行的利润超过储备释放的预期**
+这位南卡罗来纳州参议员还指责中共国帮助俄罗斯入侵乌克兰，并对台湾经济及其人民发动网络攻击。他补充说，但没有详细说明，“我们将开始让中共国为他们在世界各地所做的事情付出更大的代价。”
 
-[富国银行(WFC.N)周四公布第一季度利润下降21%，但超出华尔街预期，因为为弥补与大流行相关的潜在贷款损失而拨出的资金缓解了抵押贷款的下降。根据Refinitiv的数据，这家美国第四大银行公布了36.7亿美元的利润，即每股88美分，而分析师平均估计为每股80美分。总收入下降5%至175.9亿美元，而预期为178亿美元。该银行股价下跌超过3%。分析师表示，这反映了投资者的担忧，即该行释放了11亿美元的准备金，用于支付与大流行相关的损失，但并未实现，而该行也未能达到削减开支的预期。](https://www.reuters.com/business/wells-fargo-quarterly-profit-drops-nearly-21-2022-04-14/)
+今天，PLA东部战区新闻发言人施毅陆军大校在新浪微博称，“4月15日，中国人民解放军东部战区出动驱护舰、轰炸机、歼击机等力量在东海当面和台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。此次行动是针对近期美在台湾问题上频频释放错误信号而组织的。美恶劣行径和伎俩完全是徒劳的，也是十分危险的，玩火者必自焚。战区部队时刻保持高度戒备，坚决捍卫国家主权安全和地区和平稳定。”
 
-**7.高盛在财富管理和交易方面的盈利表现强劲**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-15_21-04-28.png)
 
-[高盛集团(GS.N)周五公布利润下降43%，但超出华尔街预期，因为其财富管理和交易业务的强劲表现部分抵消了股票承销业务因股票上市枯竭而导致的下滑。在全球交易量下滑的情况下，华尔街银行面临压力，但对加息的担忧和乌克兰战争的经济影响助长了波动性，帮助高盛的交易部门打破了预期。该银行的全球市场部门报告净收入为78.7亿美元，比去年同期增长4%，当时美联储的宽松货币政策导致交易活动大幅增加。该银行表示，强劲的业绩是由固定收益收入增长21%推动的。](https://www.reuters.com/business/finance/goldman-sachs-profit-nearly-halves-slowdown-dealmaking-2022-04-14/)
+东部战区发布消息称，东部战区在台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。
 
-**8.瑞银为陷入困境的亚洲基金任命新经理**
+中共外交部发言人赵立“奸”在外交部例行记者会上称，“中方坚决反对任何形式的美台官方往来。美国国会议员应该遵守美国政府奉行的一个中国政策，恪守一个中国原则和中美三个联合公报规定，停止美台官方交往。他们更不应该发表不负责任的言论。中方将继续采取有力措施，坚决维护国家主权和领土完整。我相信大家已经注意到中国人民解放军东部战区已经发布了相关声明。中国军队有关行动就是对近期美国包括国会议员团访台等消极行动的反制”。
 
-[瑞银集团(UBSG.S)在一份声明中表示，瑞银集团(UBSG.S)已任命一名新经理来监管一只20亿美元的亚洲高收益基金，此前该基金的高层领导层因受到中国房地产的重创而中断了五个月。根据周四的声明，Raymond Lin Gui将于5月2日加入瑞银在香港的资产管理部门，担任亚洲固定收益投资组合管理主管。声明称，曾在香港收入合伙人资产管理公司担任联席首席投资官和高级投资组合经理的Gui将成为亚洲高收益基金的牵头经理。他将向全球新兴市场和亚太地区固定收益部门主管Hayden Briscoe汇报工作。](https://www.reuters.com/business/ubs-names-new-manager-embattled-asia-fund-2022-04-14/)
+昨天，美国白宫国家安全顾问沙利文在华盛顿出席座谈会时，谈及俄乌和两岸形势。他指台湾与乌克兰情况不同，美国的政策是采取一切可能措施，以确保中共国大陆不会武统台湾。
 
-By 【秘密翻译组-金融组】
-作者：小海星
+沙利文首先表达对中共国采取措施企图片面改变现状的担忧，但也认为中共国正在密切了解乌克兰局势以吸取教训；他也强调，乌克兰情况与台湾不同，美国与台湾的安全伙伴关系基于台湾关系法。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-15_21-02-20.png)
+
+沙利文同时表示，预计白宫会在一、两个星期内宣布，向协助俄罗斯减轻制裁影响的国家采取行动。
+
+参考数据：
+
+[2022年4月15日外交部发言人赵立坚主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202204/t20220415_10668513.shtml)
+
+[Visiting U.S. Congressional delegation reaffirms support for Taiwan](https://focustaiwan.tw/politics/202204150010)
+
+[Six U.S. Lawmakers Arrive in Taiwan on Unannounced Trip](https://www.usnews.com/news/world/articles/2022-04-14/six-u-s-lawmakers-arrive-in-taiwan-on-unannounced-trip)
+
+[6 US lawmakers arrive in Taiwan for surprise visit, China issues warning](https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham)
+
+[The Honorable Jake Sullivan, Assistant to the President for National Security Affairs](https://www.youtube.com/watch?v=roptdLIDCNw)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

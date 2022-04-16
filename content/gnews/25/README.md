@@ -2,18 +2,22 @@
 ---
 
 
-## 三发贴牌导弹击沉“莫斯科号” 放生士兵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355183/)
+## 乌克兰多地彻夜拉响防空警报
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355235/)
 
-撰稿：澳喜农场 – Leo M
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-在4月14日的盖特直播中，郭文贵先生透露，击沉俄罗斯黑海舰队旗舰“莫斯科号”的导弹的核心技术是欧洲提供的，外壳贴的是乌克兰的铭牌。三发导弹全部准确命中，其中有一发是有意瞄准水下部分进行攻击的，留给了士兵撤离的空间和时间。战舰被击中后舰上士兵得以逃生。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323091.jpg)
-郭先生指出，这次交锋体现了现代战争的新高度，政治上势必加速结束共产主义的灾难。
+撰稿：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
+4月15日外媒报道，在俄罗斯黑海舰队的旗舰“莫斯科号”被击中损毁并沉没以后，14日晚上，乌克兰多个地区彻夜响起空袭警报，人们在基辅听到了强烈的爆炸声，在南部城市赫尔松、东部城市哈尔科夫和西部城市伊万诺-弗兰科夫斯克也听到了爆炸声。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323088.jpg)
+乌克兰议员瓦西连科表示，基辅发生了三起爆炸，并认为这些袭击是普京对“莫斯科号”沉没的报复。
 
-参考链接：[4/14/2022 文贵直播](https://gettr.com/post/p15c6j6a801)
+一些社交媒体发布的视频显示，自俄罗斯军队本月早些时候开始撤出该地区以来，这是最严重的一次袭击事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+参考链接：
+
+[Huge blasts rip through multiple Ukrainian cities in ‘livid’ Putin’s ship ‘revenge’](https://www.mirror.co.uk/news/world-news/breaking-air-raid-sirens-go-26718178)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
 
 编辑/总编/审核：飞虹
 
