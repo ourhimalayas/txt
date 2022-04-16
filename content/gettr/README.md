@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 1:13 AM (UTC)`
+
+2022.04.15 晚  新中国联邦 | 新闻访谈   《莫斯科号》沉了，《北京号》还远吗？郎咸平丧母，胡锡进表态！
+![img](https://media.gettr.com/group46/origin/2022/04/16/01/fc6a21b1-112a-1877-cb5a-53051ec7cb94/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/16/2022 12:36 AM (UTC)`
 
 2022.04.15 晚  新中国联邦 | 新闻   新中国联邦救援战友获波兰颁发志愿者工作证; 三发贴牌导弹击沉“莫斯科号” 放生士兵
@@ -147,13 +154,6 @@ NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自�
 
 2022年4月15日 文贵大直播：多地封城疫苗灾难最新信息；中共将打台湾做好备粮备药；疫情战争国内粮食危机分析；喜币是最早最流行数字法币
 ![img](https://media.gettr.com/group27/origin/2022/04/15/12/6cb714fd-9ae5-236c-a905-00fa95dacfd3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 12:13 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月14日第41天当日救援统计：<br/>Medyka救援站接待：约243人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11672人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 41 - Date: April 14, 2022 :<br/>Medyka Rescue Station Reception: about 243 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11672 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group9/getter/2022/04/15/12/d343a132-b5c3-750e-f284-653f708ee18f/337b7b01f84970cc91a0405fea81a409.jpg)
 
 ---
 

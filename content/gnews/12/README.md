@@ -2,37 +2,48 @@
 ---
 
 
-## 全球疫情疫苗数据更新（4.15）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353946/)
+## 推特采用“毒丸”，以挫败埃隆-马斯克的收购行动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2353984/)
 
-**整理：枳实
-美工：精灵蓝**
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+Twitter董事会周五颁布了一项防御性措施，旨在阻止埃隆-马斯克430亿美元的敌意收购。
 
-雅典娜疫情更新（2022年 4月15日）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1954.png)*2022年2月，埃隆-马斯克在德克萨斯州举行的新闻发布会上。照片。吉姆-沃森/法新社，通过盖蒂图片社*
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+**它为什么重要**：用企业术语来说，“毒丸”给了Twitter现有股东以折扣价购买额外股份的时间，从而稀释了马斯克的股权。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-50.png)
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+**它是如何运作的：**此举旨在使包括马斯克在内的任何人都难以建立起价值超过15%的公司股份。
 
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+- 毒丸让现有股东有能力以折扣价购买公司的额外股份，这反过来又稀释了寻求购买公司的人或组织的股份。
 
 
+**大势所趋：**马斯克本月早些时候披露了在Twitter的9.2%股份。
+
+- 他随后宣布加入该公司的董事会，并开始提议对该平台进行若干改革，包括将该公司的总部变成一个无家可归者收容所。
+- 马斯克曾多次表示，他认为推特“未能坚持言论自由原则”，甚至提议创建一个竞争对手的平台，在这个平台上，“言论自由和坚持言论自由被放在首位”。
+- 他后来放弃了加入董事会，并提出以每股54.20美元的价格收购该公司，不过他没有说明他打算如何支付。
 
 
+**他们在说什么：**Twitter在一份声明中说，“其董事会已经一致通过了一项有期限的股东权利计划……董事会在有人主动提出收购Twitter的非约束性建议后通过了权利计划”。
 
+- 该公司补充说：“权利计划将减少任何实体、个人或团体在未向所有股东支付适当的控制权溢价，或未向董事会提供足够的时间做出明智的判断并采取符合股东最佳利益的行动的情况下，通过公开市场积累获得Twitter控制权的可能性。”
+
+
+来源：[Twitter adopts poison pill in bid to thwart Elon Musk takeover](https://www.axios.com/twitter-elon-musk-poison-pill-7a62f6d6-b77a-4481-a2e3-5a7081557a84.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

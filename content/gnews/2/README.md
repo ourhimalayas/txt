@@ -2,12 +2,12 @@
 ---
 
 
-## 2月15日文贵大直播要点（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2354126/)
+## 美国在投资方面没有对俄罗斯施加足够大的压力
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2354236/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/DE650B0A-678D-4A4E-9228-02BC75B337C6-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/0A26C1A5-12ED-4F9F-9210-12CFEDA9AF2A-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/45B22190-8114-4B99-8F27-817247D852DF-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2C0378A0-C4C1-4E04-AABF-1B707AEDFB95-scaled.jpeg)
-发布：水涨船高
+04/13/2022 前里根国家安全委员会高级主任罗杰·罗宾逊做客福克斯新闻称美国在投资方面没有对俄罗斯施加足够大的压力。中止俄罗斯企业证券的交易需要行政命令或国会行动，或者二者同时发生。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

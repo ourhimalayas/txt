@@ -2,55 +2,24 @@
 ---
 
 
-## 美国官员将朝鲜黑客与6.15亿美元的加密货币抢劫联系起来
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2353901/)
+## 俄罗斯边境国家领导人到访乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353950/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1945.png)*显示朝鲜国旗和电脑黑客的照片插图。Budrul Chukrut | Sopa Images | Lightrocket | Getty Images*
+作者：加拿大温哥华扬帆农场-晨熹
 
-美国官员指称，朝鲜国家支持的黑客组织Lazarus Group与导致6.15亿美元数字资产被盗的大规模加密货币黑客活动有关。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1950.png)图片来源：推特
 
-财政部外国资产控制办公室周四宣布了对属于Lazarus的一个以太坊钱包的新制裁。
 
-根据加密货币研究人员的说法，被确认的钱包包含与攻击罗宁网络有关的资金，该网络支持流行的区块链游戏Axie Infinity。在这次攻击中，价值超过6亿美元的以太币和USDC代币被盗。
+据【CTV NEWS】4月13日报道，处于俄罗斯边境的四个国家领导人周三到访了乌克兰，表达对乌克兰的支持，他们看到了俄军在那里所犯的罪行，并要求追究战争责任。
 
-黑客利用了所谓的区块链“桥”，它允许用户将其数字资产从加密货币网络转移到另一个网络。在迅速发展的“去中心化金融”（DeFi）世界中，桥接是一个越来越受欢迎的工具。
+波兰、立陶宛、拉脱维亚和爱沙尼亚总统的到访是来自北约东翼国家的强烈声援，其中三个国家也曾是前苏联的一部分。领导人们到访基辅，会见泽连斯基，并访问了基辅附近的博罗江卡，这是乌克兰遭俄军炮火严重袭击的重要城镇之一。
 
-区块链分析公司Elliptic在一篇博文中说，新宣布的制裁措施禁止美国个人和实体与已确定的以太坊账户进行交易，以确保黑客无法“兑现”他们可能在美国加密货币交易所持有的任何资金。
+四位总统重申在政治、军事援助上支持乌克兰的承诺，并呼吁采取更严厉的制裁措施，包括对俄石油和天然气运输以及对俄所有银行进行制裁。
 
-另一个密码研究小组Chainalysis说，归因于Lazarus突出了“与朝鲜有关的威胁者如何利用密码，以及DeFi协议更好的安全性”的重要性。
+新闻来源：[https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912](https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1949.png)
+采编：青青，编辑发稿：硫酸羟氯喹64
 
-据信，Lazarus是由朝鲜国家运营的，多年来一直与几次重大网络攻击有关，包括2014年对索尼影业的黑客攻击和2017年的WannaCry勒索软件攻击。
-
-据网络安全专家称，朝鲜曾多次试图利用加密货币作为逃避美国制裁的方式，这引起了人们对在乌克兰战争中可能利用数字资产来逃避对俄罗斯制裁的担忧。
-
-本周早些时候，39岁的美国加密货币专家维吉尔-格里菲斯因帮助朝鲜利用虚拟货币逃避制裁而被判处五年监禁。
-
-加密货币的支持者说，它们是清洗不义之财的有效工具，因为活动被记录在一个被称为区块链的公共账本上。
-
-然而，根据Elliptic的说法，犯罪分子有许多技术可以用来清洗加密货币。该公司表示，内部分析表明，截至周四，Ronin攻击“成功地洗掉了他们18%的被盗资金”。
-
-黑客最初通过不受监管的分散式交易所将偷来的USDC代币换成了以太坊，以防止其被查封，但随后通过FTX和Huobi等集中式交易所清洗了近1700万美元的收益。
-
-他们随后使用了所谓的“混合器”，这种服务旨在通过将潜在的可识别的加密货币交易流与其他交易混合，来掩盖资金的踪迹。据Elliptic称，已经有超过8000万美元的资金通过这种名为Tornado Cash的混合服务被发送。
-
-来源：[U.S. officials link North Korean hackers to $615 million cryptocurrency heist](https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

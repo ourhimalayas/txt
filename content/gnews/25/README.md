@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵乱聊直播 ：切记！GTV的投资者们无论在任何情况下都不要与警察合作，会带来杀身之祸的！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353711/)
+## 20220415郭文贵大直播 ：一位中国籍难民及其家属立即加入到了新中国联邦救援队中
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353718/)
 
 作者：东京樱花团小视频组
 

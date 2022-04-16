@@ -2,51 +2,52 @@
 ---
 
 
-## 仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2354029/)
+## COVID-19疫苗副作用集萃（2022.4.16）-打新冠疫苗后发烧，淋巴肿大
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354183/)
 
-编译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-新闻报道或社交媒体可以传达故事，但第一手资料可以很好地解释问题。所以，当中共千方百计阻止疾病信息的传播时，是时候引起注意了。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1955.png)
+#### 整理/编辑：gardeniahu
 
-如果您的政府采取严厉措施让世界对生活条件一无所知，请不要忽视这些警告信号。当中国人被迫进入另一个 COVID 封锁时，有一些令人毛骨悚然的警告标志“指导方针”：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-38.png)图片来源：雅典娜设计组(614)
 
-不要在网上发布与流行病相关的消息。
-未经许可不得进出北京。
-间谍就在我们中间；泄密可能会在瞬间发生。管住你的嘴否则面临惩罚。
 
-Louder with Crowder 很幸运能有一位 Mug Club 观众从上海打来电话，第一手了解当地发生的情况。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-喜剧演员戴夫·兰道（Dave Landau）代替史蒂文·克劳德（Steven Crowder）采访了来电者，出于显而易见的原因，他必须保持匿名，让我们了解中共国的现状。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-来电者：我很荣幸； 我在一个有很多外籍人士的社区，所以我们目前比许多社会经济地位较低的中国人做得好得多。 我们可以每隔几天送一点食物。我们得到一点水果和一些蔬菜； 我们可以在网上搜寻，找出谁有食物，找到一个拥有“非常特殊的通行证”并被允许上路的人。我们实际上付给他们一大笔钱来送食物。实际可用的东西非常非常零星。
+原文作者：墨升
 
-戴夫：我想如果你得到一点食物，你可能还没有准备好。有没有通知准备？
+**疫情|新冠疫苗副作用     打新冠疫苗后发烧，淋巴肿大**
 
-来电者：真的很快。完全封锁前给了我们一天时间，本来应该是四天。我们采购了大约够六天的东西，现在我们已经过了两个半星期了。据报道，中共国的商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有库存，因为已经超过两周没有发货了。
+第三针疫苗后你们什么反应？
 
-来电者：我也有两个孩子，我们要上网课。
+今天是我高烧的第三天，淋巴炎，脖子两侧淋巴结肿大！基本四个小时就烧一次，四种布洛芬不一样的药换着吃，特别冷，所有被子盖上也冷，吃布洛芬后发不出来汗，而且持续高烧不爱退还起来的快！去医院检查做了彩超也验了血！医生也没说出所以然来，他的意思淋巴炎高烧就是一定有一个诱因，要么牙坏了？眼睛哪里有炎症了？但是我什么症状都没有，也没感冒，就是干烧！我刚刚查了一下我的第三针疫苗接种时间2021.12.21日！从我打完第三针疫苗迄今为止到今天2022年4月10日我已经四次同类症状高烧！接种第一针后回家胳膊疼了一天一宿，除此之外没什么感觉！第二针去接种后胳膊都没疼，跟没打一样！第三针打了之后的一星期就无症状高烧，纯干烧，脖子两侧淋巴肿很大（以前好几年发烧一次，咱就忘记发烧什么感觉，淋巴也没有任何问题）！其实我知道就是我对疫苗的反应！头一次觉得挺可怕的！我发文章出来并不是告诉大家不要去打新冠疫苗！毕竟我这样的情况纯属个例！每个人的情况都不一样！我因为第一次无症状高烧到现在陆陆续续瘦了将近1 0斤！闺蜜都说我占便宜了！我不知道别人对疫苗有什么样的反应！但是成人发烧真的不抗劲儿啊！去医院都用上轮椅了，说话力气都没有啊，看到油腻东西，想到炒菜都想吐啊！祝自己早日康复！大家健康快乐。
 
-来电者提供了令人震惊的信息，有关当孩子出现 COVID 检测呈阳性时在中共国会发生什么。孩子被从家中带走，并在没有父母或倡导者的情况下被送入这些隔离营。
+发布于04.11
 
-观看视频，了解更多关于中国人民在政府手中面临的令人心碎的描述。
+精选评论
 
-素材链接：[**‘Watch your mouth or face punishment’: CCP threatens citizens as China remains locked down**](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?utm_source=theblaze-7DayTrendingTest&amp;utm_medium=email&amp;utm_campaign=The%20Blaze%20PM%20Trending%202022-04-14&amp;utm_term=ACTIVE%20LIST%20-%207%20Day%20Engagement)
+井山胡同回复:喉咙不舒服，而且胳膊疼死了,睡着了在梦里都能感觉到很疼。
 
-* * *
+知南陌意回复：我好像打了疫苗就是容易饿，想吃东西。
 
-审核：文乐
-校对：阿伯塔
-发布：花羽
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-41.png)图片来源：小红书
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-16.png)图片来源：小红书
+
+
+参考链接：[打完新冠疫苗后发烧，淋巴肿大](https://www.xiaohongshu.com/discovery/item/62540671000000000c031ddd?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=61e6a6ab000000001000feb2&amp;apptime=1650005888)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
