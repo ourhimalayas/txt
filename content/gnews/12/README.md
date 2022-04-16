@@ -2,33 +2,32 @@
 ---
 
 
-## 澳大利亚和英国继续制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
+## 不堪封锁镇压 越来越多外企考虑撤离中共国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2355603/)
 
-撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
-根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
-据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_l2.jpg)上海疫情防控人员坐电动三轮车行驶在商家关闭、空荡荡的上海街头。 图片来源：美国之音
+据美国之音4月16日报道，由于中共国国家主席习近平坚持新冠病毒清零政策，至少使44个中共国城市处于完全或部分封锁状态，尤其对拥有2500万人口的国际都市上海的严控，已经导致商业活动停摆、盈利减少，以及港口的延误，许多美国公司正考虑撤离中共国。美国电动汽车制造商特斯拉已延长超级工厂的停产时间，德国汽车制造商大众汽车将暂停上海和长春的生产。
 
-据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+美国进出口银行董事会批准的 “在美国制造更多”计划是拜登政府推动的加强美国供应链的一部分。这项计划将创造新的融资机会，刺激美国制造业，扩大美国制造业的出口实力，支持美国就业，并提高美国与中共国等国家的竞争力。
 
-而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
+中共国是全球最大的视频游戏市场，规模达470亿美元。中共国曾经冻结了九个月电子游戏牌照，期间导致大约14,000家相关公司关闭。现今这一冻结已经被解除，45场比赛获得了许可。但冻结并不意味着恢复原状。一家由国家支持的游戏协会组织了一项针对开发者的培训计划，目前已经有5000多家游戏公司接入国家防沉迷系统，众多公司对游戏内容进行更改，不合规的公司已受到监管机构的调查和罚款。中共国的小型游戏公司正在考虑转向西方的区块链游戏，尽管这可能意味着放弃中共国市场，因为北京禁止未经批准的加密货币。
 
-参考链接：
+盗取并转移国家财富、巩固并延续极权统治是中共存在的目的。至于经济崩溃、民不聊生，中共完全不在意。就算是在中共国的外国企业也逃不过中共疯狂的隔离措施，撤离还能留一条活命。最大的受害者就是中共国老百姓，很多人会在封城时因疾病和生活物资极度短缺而死去，还有更多的人会死于疫苗灾难。中共不灭，灾难不断。
 
-[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+新闻参考链接：[不堪当局封锁镇压 越来越多外企考虑撤离中国](https://www.voachinese.com/a/make-more-in-america-manufacturing-us-leaving-china-20220415/6531560.html)
 
-[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
+*编辑：胖丁*
 
-[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编辑/总编/审核：飞虹
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
