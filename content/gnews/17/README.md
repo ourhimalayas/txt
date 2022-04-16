@@ -2,26 +2,24 @@
 ---
 
 
-## 澳大利亚和英国继续制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
+## 受制裁俄罗斯石油工业减产
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355687/)
 
-撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
-根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
-据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
+撰稿：华盛顿DC农场 – 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+4月12日美媒报道，受西方制裁的影响，俄罗斯的原油产量已经开始下降，预计能源业制裁未来将对俄罗斯的经济造成持久影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323082.jpg)
+俄罗斯第二大石油公司称，由于国外需求不断下降，俄罗斯的储油库中已经装满石油，炼油厂和原油油井都在减少产量，面临关闭风险。
 
-据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+开战前，俄罗斯是仅次于美国和沙特阿拉伯的第三大石油生产国，同时是世界上最大的石油出口国，每天出口 500 万桶原油和一种称为凝析油的相关燃料，以及每天 290 万桶精炼产品，尤其是柴油。
 
-而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
+标准普尔石油分析主管表示，截至4月8日的一周内，俄罗斯的炼油厂每天减产大约 170 万桶油。国际能源署则预测，从 5 月开始，俄罗斯每天将关闭近 300 万桶的石油生产。这将使其日产量减少到不到 900 万桶，比其他分析师预测的回落幅度更大。
+
+另外，由于炼油厂使用的一些催化剂和传感器主要由美国和欧洲公司制造，俄罗斯炼油厂如果由于受制裁无法获得相关零件，未来可能停止运转。
 
 参考链接：
 
-[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
-
-[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
-
-[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
+[Russia’s Oil Industry, Linchpin of Economy, Feels Sting of Ukraine War Disruptions](https://www.wsj.com/articles/russias-oil-industry-linchpin-of-economy-feels-sting-of-ukraine-war-disruptions-11649843249)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
 

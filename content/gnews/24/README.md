@@ -2,28 +2,33 @@
 ---
 
 
-## 【G时新闻】美议员团访台 中共在台湾周边军演震摄
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2355400/)
+## 澳大利亚和英国继续制裁俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-共同社北京报道，中共东部战区4月15日宣布，已于当日在台海周边区域使用诸如轰炸机等进行海空军联合军演，以警告美国对台湾的干涉。中共官媒对美国会代表团访台点名譴責称“美国的卑劣行径终将徒劳无功”，美台联合加强军事实力共同对抗中共国的意味非常鲜明。 中共国防部发言人吴谦同时放话，对美议会代表团访问台湾表示 “坚决反对”。 他向美国提出了严正抗议， “美方毫无信誉可言”。 他呼吁军队“做好战斗准备采取一切必要措施将干涉中国内政的外国势力彻底粉碎”。 评：都叫了几十年了，那个高某某家的绿帽子王在哪儿呢？不是美国登台之时就是共军攻台之日吗？假的终究还是假的。
+撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
+根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
+据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
 
-盖特链接：[https://www.gettr.com/post/p15h0fgba0f](https://www.gettr.com/post/p15h0fgba0f)
+据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+参考链接：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
+
+[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
+
+编辑/总编/审核：飞虹
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

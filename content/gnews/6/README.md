@@ -2,31 +2,39 @@
 ---
 
 
-## 受制裁俄罗斯石油工业减产
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355687/)
+## 乌总统泽连斯基采访中透露军人死亡数字
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2355872/)
 
-撰稿：华盛顿DC农场 – 自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-4月12日美媒报道，受西方制裁的影响，俄罗斯的原油产量已经开始下降，预计能源业制裁未来将对俄罗斯的经济造成持久影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323082.jpg)
-俄罗斯第二大石油公司称，由于国外需求不断下降，俄罗斯的储油库中已经装满石油，炼油厂和原油油井都在减少产量，面临关闭风险。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-16-下午4.23.06.png)图片来源：互联网
+乌克兰官员认为，自俄罗斯于 2 月 24 日开始入侵乌克兰以来，已有 2,500 至 3,000 名乌克兰士兵死亡。
 
-开战前，俄罗斯是仅次于美国和沙特阿拉伯的第三大石油生产国，同时是世界上最大的石油出口国，每天出口 500 万桶原油和一种称为凝析油的相关燃料，以及每天 290 万桶精炼产品，尤其是柴油。
+据 Ukrinform 报道，乌克兰总统弗拉基米尔-泽伦斯基 （Volodymyr Zelensky） 在接受[CNN采访](https://edition.cnn.com/2022/04/15/politics/tapper-zelensky-interview-cnntv/index.html?fbclid=IwAR1M2a39s___uSQbJSTYmAo2myQiBFVpOkON_GVo2xYBt7CizO8s6q9Vc5s)时表示。
 
-标准普尔石油分析主管表示，截至4月8日的一周内，俄罗斯的炼油厂每天减产大约 170 万桶油。国际能源署则预测，从 5 月开始，俄罗斯每天将关闭近 300 万桶的石油生产。这将使其日产量减少到不到 900 万桶，比其他分析师预测的回落幅度更大。
+他补充说，大约有 10,000 名乌克兰士兵受伤，“很难说有多少人能幸存下来”。
 
-另外，由于炼油厂使用的一些催化剂和传感器主要由美国和欧洲公司制造，俄罗斯炼油厂如果由于受制裁无法获得相关零件，未来可能停止运转。
+泽连斯基说，平民伤亡更难量化。
 
-参考链接：
+“谈论平民是非常困难的，因为在我国南部，城镇被封锁——赫尔松、别尔江斯克、马里乌波尔更东边，以及东边沃尔诺瓦卡所在的地区——我们只是不知道有多少人在被封锁的地区死亡，”他说。
 
-[Russia’s Oil Industry, Linchpin of Economy, Feels Sting of Ukraine War Disruptions](https://www.wsj.com/articles/russias-oil-industry-linchpin-of-economy-feels-sting-of-ukraine-war-disruptions-11649843249)
+当被问及本周发布的令人痛心的视频显示他的国家的死亡和破坏，包括一名乌克兰妇女在井中发现她儿子的尸体时，泽伦斯基说：“这对我来说是一个巨大的痛苦。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
+“作为父亲，我不能看，只是因为你想要的只是报复和杀戮，”他说。“我必须看着这个州的总统，那里有很多人死去，失去了亲人，还有数百万人想要活下去。”
 
-编辑/总编/审核：飞虹
+“我们所有人都想战斗，”他继续说。“但我们都必须竭尽全力，让这场战争不至于无休止。时间越长，我们的损失就越多，所有这些损失都会像那一场一样。”
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+正如早些时候报道的那样，自入侵乌克兰以来，俄罗斯已经损失了 20,000 名士兵。
+
+3月12日，泽连斯基表示，至少有1300名乌克兰军人在与俄罗斯的战争中丧生。
+
+原文链接：
+
+【1】[Zelensky names Ukrainian troop losses](https://www.ukrinform.net/rubric-ato/3458879-zelensky-names-ukrainian-troop-losses.html)
+
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
