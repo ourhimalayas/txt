@@ -2,32 +2,48 @@
 ---
 
 
-## 新中国联邦帐篷内举办犹太族传统节日逾越节
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2357018/)
+## 英国首次训练乌克兰使用反坦克导弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357307/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/逾越节的筵席.jpg)
-当地时间4月15日晚上八点，前线梅迪卡新中国联邦大帐篷内举办了犹太族的神圣节日逾越节。来自以色列的救援团队one heart以及世界各地的犹太人以及新中国联邦的战友在一起度过了一个特殊而难忘的逾越节。我们为此次盛大节日准备了节日必备的传统食品，水煮蛋、水果、酒水等，并把红酒赠送给以色列救援团队的领队，这位女士表现出的激动之情溢于言表。现场的犹太救援团队感谢法治基金和新中国联邦为他们提供的场地和美食。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-52.jpg)[图片来源](https://www.dailymail.co.uk/news/article-10723345/SAS-troops-training-Ukrainians-use-British-supplied-anti-tank-missiles.html)
+据报道，英国陆军特种空勤团（SAS）已经在基辅训练乌克兰士兵如何使用英国提供的便携式反坦克导弹发射器（NLAW）。
 
-逾越节的来历是为纪念当年上帝拯救深受奴役的犹太人，上帝让摩西带领犹太人最终摆脱奴役，获得自由的那段历史。新中国联邦灭掉共产党，为中国人争取一人一票的选举，争取自由摆脱奴役，重建信仰，与这个节日传达的内容深深契合。
+这次训练标志着自俄罗斯普京于2月24日发动入侵以来，英国部队首次对其乌克兰同行进行指导。
 
+驻扎在该国首都及其周边地区的两个营的军官告诉《泰晤士报》，英国特种部队在过去两周内两次训练他们的部队。
 
+自2014年俄罗斯入侵克里米亚以来，英国军事教官一直在乌克兰驻扎，但随着普京下令全面入侵乌克兰的可能性增加，他们于2月撤出。
 
-撰稿、发布：骄子
+自2月以来，英国已向乌克兰交付了3600多件下一代轻型反坦克武器（NLAW）。在有报道称这些武器已被证明对俄罗斯装甲部队非常有效之后，基辅要求提供更多。
 
-* * *
+这些发射器相对容易使用，并为地面部队提供了一个现代轻型用以对抗俄罗斯大量行动缓慢、老旧过时坦克的工具。
 
-欢迎订阅我们的GNews账号：
+英国国防部告诉《泰晤士报》，它不会对这些报道发表评论，因为长期以来的惯例意味着它不会对该国特种部队的活动进行评论。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+关于训练的报道，是在美国总统拜登周三宣布向乌克兰提供8亿美元的额外军事援助之后出现的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+该一揽子计划使俄罗斯军队入侵以来的军事援助总额超过25亿美元，包括火炮系统、炮弹、装甲运兵车和无人驾驶的海岸防御船。
 
- 
+新的一揽子计划包括11架米-17直升机，这些飞机在去年美国支持的政府倒台前已被指定用于阿富汗。
+
+它还包括18门155毫米榴弹炮，以及4万发炮弹、反炮兵雷达、200辆装甲运兵车和另外300架’Switchblade’无人机。
+
+这是美国首次向乌克兰提供榴弹炮。
+
+在莫斯科最近几周从基辅撤军后，乌克兰目前正在为俄罗斯在该国东部重新集中的攻势做准备。
+
+信息来源：** **[**SAS troops are now training Ukrainians in how to use British-supplied anti-tank missiles after Russia warned that Western involvement means World War Three has already started**](https://www.dailymail.co.uk/news/article-10723345/SAS-troops-training-Ukrainians-use-British-supplied-anti-tank-missiles.html)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

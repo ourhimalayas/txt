@@ -2,12 +2,24 @@
 ---
 
 
-## 俄罗斯已向美国发出正式外交照会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2357275/)
+## 郭文贵直播音频2022.04.15
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2357476/)
 
-04/15/2022 在拜登总统宣布为乌克兰军队提供8亿美元的武器和防御援助计划后，俄罗斯正式向美国提出外交照会，警告说如果这种支持继续下去，将产生不可预测的后果。
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6383d6c383a688bc0ce747d8282e44b3_500x0-2.jpeg)
+### 视频链接：
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+[https://www.gettr.com/post/p15fvzj74b6](https://www.gettr.com/post/p15fvzj74b6)
+
+[https://www.gettr.com/post/p15f3ij6b1a](https://www.gettr.com/post/p15f3ij6b1a)
+
+### 音频链接：
+
+
+
+
+
+编辑发布:闪电训练
 
  
 

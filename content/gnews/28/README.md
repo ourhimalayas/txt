@@ -2,42 +2,34 @@
 ---
 
 
-## 中共强制清零政策 砸翻大陆爱党名人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356766/)
+## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
 
-**撰稿：日本东京方舟农场  子辰**
+当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
 
-自从中共病毒奥米克戎攻陷中共国最大城市上海以后，在中共的强制封城清零政策下，一系列次生灾难也无差别降临到了一些大陆名人、尤其是上海名人头上。他们曾为中共政策唱赞歌。
+在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-327.jpg)（图片来自大纪元）
+撰稿：喜马拉雅的肉夹馍
 
-郎咸平生于台湾，曾执教于香港中文大学，后在中共国大陆发展，主持过多个财经电视节目。郎咸平之前在发微博大赞中共全员核酸检测政策，讴歌上海，称“全国一盘棋，这就是中国力量”。
+审核：喜马拉雅的馍夹肉；
 
-郎咸平4月11日发微博说，母亲年纪98岁，这次肾脏有一点点衰竭，按照过去诊断，只要打一针就好，但“上海严格规定必须要做核酸后才能就医，我妈妈在三甲医院当场做的核酸竟然4个小时都没出结果，我深感震惊”，“妈妈在医院急诊室门口等待了4个小时后，永远离我而去了。”
+校对：Maarago；
 
-郎咸平母亲意外过世让其看到，中共的政策所造成的次生灾难同样会落到他的头上，因此态度也有所转变，开始质疑上海防疫“很多方式方法值得商榷”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-徐新2005年创办了今日资本集团，曾被美国《商业周刊》评为“亚洲25位最具影响力的人”，有中共国“女版巴菲特”称号，据2022年胡润富豪榜上显示，徐新目前身家为160亿元（25亿美元）。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-4月7日下午，“风投女王”徐新在网络求购牛奶面包被刷屏。让广大网民匪夷所思之余，也再次认清，中共极权之下，钱并不是万能的，没有任何人有绝对的生命安全。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-中国太平洋证券总裁助理韦桂国，因为上海封城，发病得不到救治，结果在家中病故。韦桂国压根没想到自己在家中脑溢血，是由于自己刚刚大赞的防疫政策导致的。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-韦桂国曾在微信朋友圈称：“我赞成坚持动态清零的策略，执行的战术和管理手段要优化。困难终会过去，但必将有大的收获；带湾湾回家时（指中共武力侵占台湾），全民战争动员也不过如此，漂亮国（指美国）想想只能瞪眼目送。到那时看，现在的困难和成本是最低的。”
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-更有当年的作家六六质疑为武汉发声的作家方方。还在武汉抗疫临近尾声之际，随队赴武汉为中共谱写颂歌。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-4月10日六六在朋友圈发长文，讲述自己父母在上海封城期间的遭遇。结果遭受广大网民的回怼。有网友说，“一个人没有同情心，对灾难中的生命保持冷漠状态，他们终将有一天会得到常识的报复。”
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-上海市闵行区司法局法制宣传教育科科长杨华，近日在微博上求救，曝出老母亲常用药告罄，抢菜无门。他说：“我们苦，高龄老人更苦！但等会发布会依然会说‘货源充足’吧？”遭到网民嘲讽说：“作为爱国大V，此时应默默支持党和政府，不要因为一点小问题就发牢骚，搞成网络笑话，记得饿死事小，失节事大。”
-
-面对这些平时所谓的“爱党名人”发出的求救声音。民众认为，“只要铁拳没有打到他们身上，他们就可以无视，并把发声者污蔑为汉奸。他们都是极端的利己主义者，无视他人苦痛，只会谄媚权贵，直到铁拳砸在自己身上…”
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/15/n13712649.htm](https://www.epochtimes.com/gb/22/4/15/n13712649.htm)
-
-总编：老孙
-校对发布：
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

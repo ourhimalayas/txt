@@ -2,24 +2,42 @@
 ---
 
 
-## 乌克兰总理和财政部长将于下周访问华盛顿
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356672/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
 
-**撰稿：日本东京方舟农场  北极**
+整理：枳实
+美工：精灵蓝
 
-据联合新闻4月16日报道，乌克兰总理丹尼斯·什米加尔（Denys Shmygal）和高级金融官员将于下周在国际货币基金组织和世界银行春季会议期间访问华盛顿。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-168.png)乌克兰总理兼代表团团长丹尼斯·什米哈尔于2021年2月11日在比利时布鲁塞尔举行的欧盟 – 乌克兰协会理事会会议后出席联合新闻发布会。（图片来自路透社）
-据消息人士透露，乌克兰总理将与财政部长谢尔盖·马尔琴科（Serhiy Marchenko）和国家银行主席凯里洛·舍甫琴科（Kyrylo Shevchenko）一起，分别与七国集团和其他国家地区的金融官员举行双边会议，并参加世界银行于4月21日星期四组织的乌克兰问题圆桌会议。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
-此次活动将是乌克兰官员在2月24日俄罗斯入侵乌克兰后首次会见发达经济体的众多金融人物。预计此次会见将讨论战争造成的破坏和经济后果，以及乌克兰国家银行和金融部门的下一步运作。
 
-今年早些时候，世界银行曾计划向乌克兰提供15亿美元的一揽子财政援助。
+雅典娜疫情更新（2022年 4月16日）
 
-参考链接：
-[https://reurl.cc/1ZjlDG](https://reurl.cc/1ZjlDG)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-总编：老孙
-校对发布：爱放飞
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,43 +2,30 @@
 ---
 
 
-## 警察局长说，在基辅地区发现900多具平民尸体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356737/)
+## 乌克兰已经获得了27万吨人道主义援助
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356899/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1992.png)Dmytrivka村附近被摧毁的俄罗斯军事装备。照片。Pavlo Bahmut/ Ukrinform/Future Publishing via Getty Images
+**撰稿：日本东京方舟农场  北极**
 
-据美联社报道，一位地区警察局长周五表示，俄罗斯军队撤出后，在基辅地区发现了900多具平民的尸体。
+据乌克兰新闻报4月16日报道，乌克兰总统办公室发表声明称，在俄罗斯入侵的50余天里，国际社会共向乌克兰运送了27万吨人道主义援助物资，并通过协调中心从乌克兰生产商那里购买食物，并为近1200万乌克兰人制作了餐包。
 
-**推动新闻：**基辅地区警察局局长Andriy Nebytov在周五的发布会上说：“因此，我们了解到，在[俄罗斯]占领下，人们被简单地在街上处决。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-170.png)乌克兰已经获得了27万吨人道主义援助（图片来自乌克兰新闻报）
 
-- Nebytov说，尸体大多被遗弃在街上或被临时埋葬，他补充说，每天都有更多尸体被发现。
-- Nebytov援引警方的数据指出，95%的人死于枪伤。
-- Nebytov说：“在布查发现的受害者最多，那里有350多具尸体。”
+这是乌克兰总统办公室副主任尤利娅·索科洛夫斯卡（Yulia Sokolovska）在报告人道主义和社会事务协调中心取得的成果时发表的声明。
 
+据悉，俄乌战争爆发后的3月2日，乌克兰总统沃洛季米尔·泽伦斯基签署了一项法令，为了向俄罗斯武装侵略期间的乌克兰公民提供援助，乌克兰成立了人道主义和社会事务协调中心。
 
-**大势所趋：**乌克兰官员报告说，当乌克兰军队重新占领布查地区时，尸体–有些人的手被反绑在背后–散落在布查的街道上。
+乌克兰第一副总理兼经济部长尤利娅·斯维里登科（Yulia Svyrydenko）称，开战第一周就在与波兰，匈牙利，罗马尼亚，摩尔多瓦和斯洛伐克的西部边界建立了物流中心，国际捐助者和合作伙伴将人道主义援助送往那里。利沃夫地区已成为乌克兰最大的人道主义支持中心，51% 的货物来自国外。
 
-- 乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelensky）本月早些时候访问了布查。
-- “我们希望你们向世界展示这里发生的一切”，泽伦斯基说。“俄罗斯军队做了什么。俄罗斯联邦在和平的乌克兰做了什么。对你们来说，重要的是看到这些是平民。”
+关于重要的能源供应问题，乌克兰副总理表示，从战争的第一天起，波兰政府战略储备局就提供了2万吨燃料作为人道主义援助，各物流中心与乌克兰境内最大的加油站网络达成协议，通过加油站分配给特定接收者。
 
+最后，据总统办公室副主任凯里洛·季莫申科（Kyrylo Tymoshenko）介绍，在战争的50天里，整个乌克兰团结一致，后方每天都在帮助支援前线地区。
 
-**新闻来源：**[More than 900 civilians’ bodies found in Kyiv region, police chief says](https://www.axios.com/ukraine-deaths-kyiv-russian-invasion-96e2fcfe-c3df-44d9-9977-14ff68669e11.html)
+参考链接：
+[https://reurl.cc/g2k1AL](https://reurl.cc/g2k1AL)
 
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+总编：青城道姑
+校对发布：爱放飞
 
  
 

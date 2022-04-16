@@ -2,22 +2,37 @@
 ---
 
 
-## 中日财经爆┃60家日本上市企业决定停止或退出涉俄业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356471/)
+## 俄乌战争“没想到”系列之十二：
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2356715/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-53.png)[图片来源](https://asia.nikkei.com/Business/Automobiles/Toyota-to-halt-Russia-production-Friday-as-sanctions-cut-supply-chain)
-据日本帝国数据库统计，截止4月11日，在进军俄罗斯的168家日本上市公司中，有60家公司（约占36%）决定停止业务或退出。3月为止的调查中只有37家公司，现已扩大为约1.6倍。乌克兰危机导致“远离俄罗斯”的公司越来越多，但也有一些公司出于订单未完成等原因而暂时维持俄罗斯业务。
+视频制作：多伦多蓝莲花视频组laocai
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
 
-关于停止业务的理由，很多企业列举了商品配送等供应面的混乱。随着俄乌战争长期化，企业对营商前景的警惕升温，这也成为背后原因。
+俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
 
-信息来源：[日本上市公司涉俄业务有36%决定停止或退出](https://china.kyodonews.net/news/2022/04/4b2a1404f7fd-36.html)
+**第十二个没想到：**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+今天又一个让世界哗然，想不到莫斯科会葬身海底。
 
+黑海舰队的旗舰，曾经雄霸世界最大巡洋舰长达40年，曾经是俄罗斯的骄傲，曾经那样的不可一世。号称一舰可灭几国，装备有世界无敌的远程导弹，号称舰艇杀手，想不到却再一次被没有海军的乌克兰击沉。
 
+他装备的先进雷达没能及时发现目标，电子战武器呢，防空飞弹呢，统统无效。神话被一个一个戳破，曾经是莫斯科不相信眼泪，现在是莫斯科不相信事实，瞪眼楞说是因为失火引起损坏。
+
+但是不得不将所有军舰后退，不再敢肆无忌惮的近岸霸凌。在一个没有海军的国家面前失去制海权，北极熊不过是虚张声势。
+
+一场非正义战争将他彻底打回原形，只要正义力量同仇敌忾，只要爱国者们不再退缩，民主世界必将赢得与独裁的终极之战，自由之花将开遍全球。
+
+视频文案：wood(文斌)
+
+编辑与校对：冰糖葫芦喵
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

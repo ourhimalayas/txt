@@ -2,34 +2,44 @@
 ---
 
 
-## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
+## 4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2357243/)
 
-当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-90.png)[图片来源](https://www.reuters.com)
+**1.****美国将恢复在公共土地上的石油、天然气钻探活动**
 
-在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
+[华盛顿，4月15日（路透社）–拜登政府周五表示，它已经恢复了在联邦土地上进行石油和天然气开发的计划，此举可能打破乔-拜登在竞选总统时作出的承诺。该计划要求政府租赁比最初提议的更少的土地用于钻探，向石油和天然气公司收取更高的特许权使用费，并评估开发这些土地对气候的影响。该提案很快遭到了一些环保组织的谴责，其中一个组织称它是 “气候领导力的一次鲁莽失败”。石油工业团体赞扬了这一举措，但表示它走得还不够远。内政部在周末假期前的周五晚些时候宣布，这是拜登2021年1月上任以来改革联邦石油和天然气租赁计划的最新举措。政府面临着持续的压力，要解决大流行病带来的经济反弹和俄罗斯入侵乌克兰所带来的高能源价格。](https://www.reuters.com/world/us/us-resume-oil-gas-drilling-public-land-despite-biden-campaign-pledge-2022-04-15/)
 
-撰稿：喜马拉雅的肉夹馍
+**2.****动视称正配合联邦内幕交易调查**
 
-审核：喜马拉雅的馍夹肉；
+[4月15日（路透社）-动视暴雪（ATVI.O）周五在一份证券文件中说，它正在配合联邦对其首席执行官的朋友在游戏公司披露其出售给微软公司前不久进行的交易的调查。这家”使命召唤”的制造商在一份修正的代理文件中说，它收到了美国证券交易委员会的信息要求，并收到了司法部大陪审团的传票。这些要求”似乎与他们各自对第三方–包括动视暴雪首席执行官认识的人–在宣布拟议交易之前进行的证券交易的调查有关”，它说。微软在1月份同意以每股95美元的价格收购动视，即总价687亿美元，这是历史上最大的视频游戏行业交易。](https://www.reuters.com/technology/activision-cooperating-with-federal-insider-trading-probes-filing-2022-04-16/)
 
-校对：Maarago；
+**3.****达维塔公司及其前****CEO****在美国的反垄断指控中被宣告无罪**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+[4月15日，科罗拉多州丹佛市的一个陪审团周五宣告透析供应商DaVita及其前首席执行官Kent Thiry无罪，指控他们与竞争对手合谋不雇佣对方的员工。司法部在该案中称，DaVita和Surgical Care Affiliates LLC都要求寻求为其工作的高级雇员通知其目前的雇主他们正在找工作。”陪审团肯定了这个案件不应该被提起，”Thiry在一份声明中说。”我想感谢在这个困难时期提供了如此多支持的社区”。达维塔公司在一份声明中说。”（我们）很感激能把这件事抛在脑后。我们仍然致力于诚信经营，维护法律的最高标准”。虽然执法者在执行反垄断法时传统上侧重于价格和创新，但拜登政府已经在某种程度上转移了重点，更多地关注可能压低工资的非法协议。](https://www.reuters.com/business/healthcare-pharmaceuticals/davita-its-former-ceo-acquitted-antitrust-charges-2022-04-15/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**4.****迈克尔-巴尔作为美国联储的下一任华尔街警察面临着漫长的任务清单**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[华盛顿，4月15日（路透社）–美国总统拜登周五表示，他将提名前财政部官员迈克尔-巴尔担任美联储的华尔街警察，以取代萨拉-布鲁姆-拉斯金，后者在未能赢得温和的民主党人的支持后于3月退出。巴尔目前是密歇根大学法学院的教授，在2007-09年金融危机后国会通过全面改革时，他是巴拉克-奥巴马总统领导下的财政部的核心人物。以下是巴尔在赢得参议院批准后必须解决的监管议程。去监管化的翻版？前任美联储负责监管的副主席兰德尔-夸尔斯领导了对危机后法规的审查，认为这些法规过于粗暴和繁琐。民主党人指责夸尔斯在为华尔街节省数十亿美元的同时增加了系统性风险，他们希望美联储重新审视其中的一些变化。](https://www.reuters.com/world/us/michael-barr-faces-long-to-do-list-us-feds-next-wall-street-cop-2022-04-15/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+**5.****推特采用 ****“****毒丸****“****，马斯克的挑战者出现**
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[消息人士提醒说，目前还不清楚Thoma Bravo准备出多少钱，也不确定这样的对手会不会出价，他们要求不透露身份，因为这件事是保密的。Thoma Bravo的发言人拒绝发表评论，而Twitter的代表没有立即回应评论请求。《纽约邮报》周四报道，Thoma Bravo正在考虑竞购Twitter。Twitter周五表示，它采用了一个毒药丸，将通过向其他股东折价出售更多股份来稀释任何在该公司积累的15%以上的股权。该计划被正式称为股东权利计划，将在364天内实施。此举并不妨碍马斯克直接向Twitter的股东发出要约，发起招标。虽然毒丸将阻止大多数Twitter股东出售他们的股票，但投标报价将允许他们登记他们对马斯克的报价的支持或反对。](https://www.reuters.com/technology/twitter-adopts-poison-pill-fight-musk-2022-04-15/)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**6.****穆迪表示，俄罗斯可能处于违约状态**
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[伦敦，4月15日（路透社）–穆迪表示，俄罗斯可能会违约，因为它试图用卢布偿还其美元债券，这将是自弗拉基米尔-普京总统入侵乌克兰以来，莫斯科被排除在西方金融体系之外的最严峻的后果之一。如果莫斯科被宣布违约，这将标志着俄罗斯自1917年布尔什维克革命后首次出现重大的外国债券违约，尽管克里姆林宫称西方国家通过实施破坏性制裁迫使俄罗斯违约。俄罗斯于4月4日以卢布而非证券条款规定的美元支付了两笔主权债券的到期款项–2022年和2042年到期。穆迪在周四的一份声明中说：”因此，如果在5月4日，即宽限期结束前没有得到纠正，俄罗斯可能会被认为是违约的，”穆迪说。](https://www.reuters.com/world/europe/moodys-says-russia-may-be-default-dollar-bonds-2022-04-15/)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**7.****埃隆****–****马斯克****可能改变****twitter****的发展方向**
+
+[4月15日（路透社）–股东活动家和公司治理专家表示，Twitter最新的大股东埃隆-马斯克可能会改变这家社交媒体公司的发展方向，因为管理层将在即将举行的年会上与一系列侧重于从民权到政治等话题的代理提案进行斗争。无论马斯克周四宣布的430亿美元收购Twitter的竞标结果如何，持相反政治观点的投资者称，这位亿万富翁企业家可能会努力取消Twitter对内容的一些限制，因为它试图在打击仇恨言论和虚假信息的同时促进自由言论。关注公司治理问题的人士表示，即使他未能收购Twitter，这位最近披露持有9.6%股份的特斯拉首席执行官也被认为可能在5月25日的虚拟会议上以可能撼动该公司的方式进行投票。](https://www.reuters.com/technology/elon-musk-deals-twitter-wild-card-shareholders-seek-reforms-2022-04-15/)
+
+**8.****石油公司获得禁令以阻止英国的气候抗议活动**
+
+[伦敦，4月15日（路透社）–政府周五表示，包括埃克森美孚在内的三家涉及英国石油行业的公司已经获得禁令，以阻止气候变化活动家的抗议活动，这些活动本月已经造成了广泛的破坏。Extinction Rebellion和Just Stop Oil等环保组织每天都在伦敦和全国各地举行抗议活动，主要针对石油设施。英国商务部表示，Navigator Thames、ExxonMobil和Valero现在已经获得了民事禁令，使他们能够最大限度地减少干扰并防止出现进一步的问题。能源部长Greg Hands说：”虽然我们重视和平抗议的权利，但至关重要的是，这些抗议不会对人们的日常生活造成干扰。这就是为什么我很高兴看到石油公司采取行动，在他们的场地确保禁令，与当地警察部队合作，逮捕那些违反法律的人，并确保燃料的交付能够继续正常进行。”](https://www.reuters.com/business/energy/oil-firms-secure-injunctions-stop-uk-climate-protests-2022-04-15/)
+
+By 【秘密翻译组-金融组】
+作者：千年等一回
 
  
 
