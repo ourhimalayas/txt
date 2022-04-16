@@ -2,27 +2,13 @@
 ---
 
 
-## 【秘翻时评】 正式展开“台湾之子”秘密行动,对台湾发动超限战
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2357818/)
+## 4月16日勿忘香港（图片1-9）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2357854/)
 
-By:**[秘翻时评](https://gettr.com/post/p15kqhk6f71)**
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5FEBD418-6433-4DDB-9682-976E23F1D841.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DB41BCEF-16C3-4950-A0B6-64B241D3E28F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7297E7E6-0129-4DA6-975E-F17FF6F2CEDF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/334B138D-BDF6-40E4-A0BE-65173939C757.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DC16C7BA-3EB6-4461-9F2A-8C9B2B244DAF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E4BC6ED0-6F92-4B69-831D-A24F1FA65B52.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/57D940EB-4BD8-4A88-A658-1C4D9AD7DC7D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/085F70F0-50C7-4295-8B9D-E16E5BE14A72.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3B4ECB87-C5A0-4A66-9019-8D336BC9B15A.png)
+发布：水涨船高
 
-**[2022‑04‑16](https://gettr.com/post/p15kqhk6f71)**
-
-**晚间新闻：**
-
-1.俄官媒表示：已进入第三次世界大战
-2.日本总领事馆致信上海政府 疫情艰难压力大日企或将撤离
-3.美国大使馆最新公告：撤离上海无需阴性证明
-4.正式展开“台湾之子”秘密行动,对台湾发动超限战
-
-喜欢记得点赞订阅分享喔！！
-Gettr链接：[**https://gettr.com/post/p15kqhk6f71**](https://gettr.com/post/p15kqhk6f71)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

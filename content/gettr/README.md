@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 6:44 PM (UTC)`
+
+4月15日晚上7点半，梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节<br/>April 15th, 7:30 p.m. Israeli volunteers from the Medyka Rescue Center gathered at the NFSC tent to celebrate Passover<br/>#ukrainerescue  #nfsc新中国联邦 #nfscukrainerescue
+![img](https://media.gettr.com/group42/origin/2022/04/16/18/31943d65-be7c-63e3-f098-522723c8a668/out.jpg)
+
+---
+
 `@miles 4/16/2022 6:15 PM (UTC)`
 
 4/16/2022 Miles Guo: Xi’an will be locked down again, and as a result many companies will end up bankrupt; Chinese people should learn to be grateful, and don’t take others’ help for granted; bigs changes will happen in Ukraine; major policies will come out in Shanghai; the US will introduce a series of policies towards Taiwan next week.<br/><br/>4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然；乌克兰局势会有重大变化；上海会有重大政策出台；下周美国对台湾也会出台一系列政策。<br/>
@@ -147,13 +154,6 @@
 
 4月16号：尊敬的战友们好！共产党的无知，愚蠢，和邪恶，只能用一个办法来解决，那就是彻底的消灭他们。【七哥好，乌克兰战争爆发以来有人粗略统计了中文媒体相关数据：泽连斯基逃跑18次，基辅失守4次，亚速营被歼灭9次。马里乌波尔被全面占领11次。乌海军陆战队投降人数都超过整编编制人数了。普京一共怒了93次，撂狠话58次，挑明了24次，美国怂了136次，北约尿了98次，欧盟跪了105次。】<br/>😄😄😄快乐灭共！
 ![img](https://media.gettr.com/group41/getter/2022/04/16/13/dd5289d8-fde8-960d-f5d2-f04e6a4c4bec/out.jpg)
-
----
-
-`@miles 4/16/2022 1:04 PM (UTC)`
-
-2022.04.16早  新中国联邦 | 新闻访谈
-![img](https://media.gettr.com/group4/origin/2022/04/16/12/a775a275-75e9-af1a-4b83-1a811d8f75b6/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
