@@ -2,29 +2,42 @@
 ---
 
 
-## 肥料短缺加剧全球粮食危机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2352887/)
+## 乌克兰人在马里乌波尔钢铁厂坚持
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2353311/)
 
-作者：柳是多水土透
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-4月6日，据外媒报道，由于俄罗斯和乌克兰都是世界主要农作物肥料和粮食出口国，已经持续了一个多月的俄乌战争，将令全球即将到来的粮食危机，雪上加霜。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-11.10.17-AM.png)
 
-据悉，俄罗斯出口世界11%的尿素，48%的硝铵，乌克兰与俄罗斯共同生产全球28%的氮基，磷基和钾基化肥。另外，白俄罗斯提供全球40%的钾盐出口，在俄乌战争开始后，白俄已经宣布将因“不可抗力”导致无法履行之前签订的外贸出口合同。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/NGTFN2NGNRIEJGGLDLEY33B2IU.jpg)
 
-俄乌两国传统上供应世界30%的大麦和20%的玉米需求，因为战争导致交战双方无法按时播种，且黑海港口关闭，粮食生产正在面临灾难性危机。肥料的短缺和高价将会在更长的周期内，推动农户选择种植需要较少肥料的作物，这会在数月后导致一些基础作物减产。玉米价格在21年已经上涨了57%，小麦涨了27%，今年恐怕更令人担忧。谷物类短缺还会传导至其它大宗商品涨价，如玉米、麦子、稻谷的成本上升将带动牛肉猪肉禽肉等类别的价格显著上涨。
 
-道明证券全球商品战略主管巴特·梅莱克说，目前不但有地缘政治风险，有更高的投入成本，甚至还有可怕的肥料短缺。世界即将面临灾难性的粮食危机。
+图片来源：路透社
 
-参考链接：[A fertilizer shortage, worsened by war in Ukraine, is driving up global food prices and scarcity](https://www.cnbc.com/2022/04/06/a-fertilizer-shortage-worsened-by-war-in-ukraine-is-driving-up-global-food-prices-and-scarcity.html)
+4 月 15 日（路透社）本周，在被围困的马里乌波尔（Mariupol）的一个炼钢区发生爆炸，浓烟滚滚，随着俄罗斯试图完全控制其迄今为止最大的城市，乌克兰军队在该地区躲藏起来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+亚速斯塔尔钢铁厂是欧洲最大的冶金厂之一，在俄罗斯入侵乌克兰 7 周后，乌克兰军队的炮火、人数超过了他们，并被包围了这个厂子，它已成为一个恰当的世界末日堡垒。
 
-总编：宁文静
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+在遭受数周炮击破坏的南部港口东部，该工厂位于俯瞰亚速海的工业区，占地超过 11 平方公里（4.25 平方英里），拥有无数建筑物、高炉和铁轨.
+
+“亚速斯塔尔 工厂是一个巨大的空间，拥有如此多的建筑物，俄罗斯人根本找不到乌克兰军队，”驻基辅的军事分析家 Oleh Zhdanov 说。“这就是俄罗斯人开始谈论尝试化学袭击的原因，这是将乌克兰军队消灭的唯一方法。”
+
+乌克兰表示，它正在检查俄罗斯可能在马里乌波尔使用化学武器的未经证实的信息。俄罗斯支持的乌克兰分裂分子否认使用化学武器。
+
+在和平时期，Azovstal 钢铁厂每年生产 400 万吨钢、350 万吨铁水和 120 万吨轧钢。
+
+与该市的其他 Illich Steel and Iron Works 一样，亚速斯塔尔由 Metinvest 持有，该集团由乌克兰首富亿万富翁 Rinat Akhmetov 控制。
+
+周二，美国私营卫星公司 Maxar 能够从太空俯瞰激烈的战斗。
+
+报告说：“在该市西部和东部地区以及亚速斯塔尔 钢铁厂内部和附近，观察到烟雾和火灾，是来自俄罗斯和乌克兰军队之间持续战斗的地点。”
+
+一位欧盟安全消息人士告诉路透社，很难说乌克兰人能坚持多久，俄罗斯也很难因为工业园区而占领整个城市。 “钢铁厂下面有地下隧道系统。”
+
+🔗[https://www.reuters.com/world/europe/fortress-city-ukrainians-cling-steel-plant-mariupol-2022-04-15/](https://www.reuters.com/world/europe/fortress-city-ukrainians-cling-steel-plant-mariupol-2022-04-15/)
+
+编辑发表： Shuizhuyu
 
  
 

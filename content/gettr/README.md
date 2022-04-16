@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group14/origin/2022/04/16/04/54779e1c-ffd9-c673-f496-187a620419d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 4:18 AM (UTC)`
 
 04.15.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -151,13 +158,6 @@ A volunteer from Mozambique, Africa supports us to take down the Chinese Communi
 
 4/15/2022 Ukraine Rescue: A Chinese man and his Ukrainian wife were recently rescued by the Ukraine rescue team of the New Federal State of China. He told our frontline fellow fighters about the expensive "aid" offered by the Chinese Embassy in Ukraine; he and his wife were so moved by our great rescuing operations and the sincerity of our fellow fighters, and now they have decided to join our frontline rescue team to change their role from refugees to rescuers.<br/><br/>4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕; 他和他的太太并被我们前线战友救援的实际行动和真情所感动，已决定加入新中国联邦的灭共黄马甲救援队伍，从被救援者变成救援者<br/>
 ![img](https://media.gettr.com/group30/getter/2022/04/15/22/cc813b91-346f-f282-74df-ce605ae353c9/out.jpg)
-
----
-
-`@miles 4/15/2022 10:28 PM (UTC)`
-
-4/15/2022 Miles Guo: the CCP launched its “Son of Taiwan” action starting from today, as it did to Mr. Pompeo’s Taiwan visit, the CCP will cause shut-down of Taiwan’s water and power supplies, transportation, airports and Internet to further stir up chaos and civil commotion in Taiwan so that the CCP can take advantage to take over Taiwan<br/><br/>4/15/2022 文贵紧急直播的第三个原因：中共从今天开始已启动”台湾之子”计划，如同上次蓬佩奥访问台湾期间出现停电一样，中共会让台湾水电供应、交通、机场、网路等停摆，引起社会内乱，趁机拿下台湾<br/>
-![img](https://media.gettr.com/group16/getter/2022/04/15/22/09b5cc3d-03a3-11aa-ea2b-74d893a3acdd/out.jpg)
 
 ---
 

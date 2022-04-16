@@ -2,11 +2,11 @@
 ---
 
 
-## 2022年4月16日《樱花简报》：日本拟假想朝鲜试射导弹重启避难训练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2354386/)
+## 2022年4月16日《樱花快报》：台湾新增感染中共病毒首次破千例 创历史新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2354397/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220416简报-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220416快报.jpg)
 
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/老黑*
