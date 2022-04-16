@@ -2,44 +2,24 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第13天位列3国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2356496/)
+## 克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2356676/)
 
-4/16/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第13天iTunes打榜记录：
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-16-下午8.23.46.png)图片来源：互联网
+俄罗斯专家告诉《泰晤士报》，克里姆林宫可能正在协调整个欧洲的示威活动，以显示对乌克兰战争的支持。
+
+上周末，印有支持战争的Z字标志的车辆和数百名挥舞旗帜的民族主义者参加的游行在都柏林、汉诺威、法兰克福和利马索尔巡游，此前在雅典和柏林也有类似活动。
+
+尽管示威活动相隔数百英里，但其时间和形式促使俄罗斯事务专家认为它们可能是由国家精心策划的。
+
+他们说，侨民可能是由Rossotrudnichestvo指挥的，这是一个在欧洲各地都有办事处的俄罗斯联邦政府机构，负责促进软实力，实际上由莫斯科的外交部管理。
+
+原文链接：[Kremlin ‘is behind pro-Russian protests in Europe’](https://www.thetimes.co.uk/article/kremlin-is-behind-pro-russian-protests-in-europe-9gj27s8g5)
 
 * * *
 
-[【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-[【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑&发布：长岛开心*
 
  
 

@@ -2,31 +2,43 @@
 ---
 
 
-## 俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356340/)
+## 随着上海病例的增加，更多的中国城市实施了针对COVID-19限制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356420/)
 
-**图/文｜CP**
-**发布时间｜16/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/澤連斯基請求拜登政府-將俄羅斯列為「恐怖主義支援國」.jpg)
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+翻译：li yan li
+编辑：李易通
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
 
 
-外媒16日引述消息人士报道，乌克兰总统泽连斯基（Volodymyr Zelenskyy）在最近一次与美国总统拜登的通话中，请求美国将俄罗斯列为“恐怖主义支援国”，惟拜登暂未作出明确表态或采取具体行动，只表示愿意探讨一系列的建议，并向俄方施加更大压力。
+4月16日，上海报告了创纪录的有症状的COVID-19病例。因为中国保持了“动态清除”的防疫政策，旨在消除高度传播的Omicron中共病毒变体。中国其它地区也实施了限制措施。
 
-报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支援国”，意味美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+郑州空港经济区是中国中部的一个制造区，包括苹果公司供应商富士康，周五宣布了为期14天的封锁，“将根据疫情情况进行调整”。
 
-不过，有传美国国会部分鹰派共和党议员曾经敦促拜登政府将俄罗斯列入“恐怖主义支援国”名单，惟白宫一直不置可否，只表示会考虑这项提议。
+在中国西北部，西安市在本月发生数十起COVID-19感染事件后，周五敦促居民避免在住宅区外进行不必要的旅行，并鼓励公司让员工在家工作或在工作场所居住。
 
-在上月召开的记者会上，国务卿布林肯（Antony Blinken）被问及此事时回应，政府会考虑一切选项，强调首要任务是尽其所能迅速结束这场战争，停止乌克兰人民的苦难。
+上海是中国最近爆发疫情的中心，周六报告了4月15日创纪录的3590个有症状的病例，以及19923个无症状病例。无症状病例的数量比一天前的19872例略有增加。
 
-自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支援国”。
+该市的COVID-19病例数占全国病例数的绝大部分，即使其2500万居民中的大多数仍处于封锁状态。
 
-來源｜[NBC](https://www.nbcnews.com/politics/national-security/ukraines-zelenskyy-asked-biden-designate-russia-state-sponsor-terroris-rcna24618)
+周五，中国电动汽车标杆Xpeng的负责人表示，如果上海和周边地区的供应商不能恢复工作，汽车制造商可能不得不在下个月暂停生产。
 
-* * *
+在郑州工厂，经济区当局在官方微信即时通讯文章中说，只有持有有效通行证、健康代码和COVID-19阴性测试证明的人员才能在这段时间内离开经济区。
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+鸿海精密工业公司的商标名富士康在周四向路透社援引其声明，称其郑州工厂正在配合政府的疫情控制工作。
+
+经济学家表示，这些限制措施将对该国今年的经济增长率产生影响。
+
+参考链接：[随着上海病例的增加，更多的中国城市实施了COVID-19限制措施](https://www.channelnewsasia.com/asia/more-chinese-cities-impose-covid-19-curbs-shanghai-cases-rise-2629191)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

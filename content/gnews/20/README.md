@@ -2,25 +2,45 @@
 ---
 
 
-## 有声｜乌克兰称有2,500-3,000名士兵在战争中丧生
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2356443/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第13天位列3国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2356496/)
 
-By:**秘翻新闻**
-
-**2022-04-16**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/416-10.png)
-[路透社基辅](https://www.reuters.com/world/europe/ukraine-says-2500-3000-its-troops-killed-war-no-count-civilian-deaths-2022-04-16/)4 月 16 日报导，乌克兰总统泽连斯基表示，在与俄罗斯的七周战争中，约有 2,500 至 3,000 名乌克兰士兵丧生，约 10,000 人受伤。
-
-他还表示，有 19,000 至 20,000 名俄罗斯士兵在战争中丧生。而莫斯科上个月表示，已有 1,351 名俄罗斯士兵阵亡，3,825 人受伤。
-
-由于乌克兰表示试图打破俄罗斯对东南港口城市的围困，马里乌波尔的战斗非常激烈。在俄罗斯入侵之前，马里乌波尔是 40万人的家园，现已沦为瓦砾。数以千计的平民丧生，数以万计的人仍被困。
-
-(编译 文洋)
-
-发布 : 文橙
+4/16/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第13天iTunes打榜记录：
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
+
+[【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+[【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

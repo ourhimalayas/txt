@@ -2,11 +2,31 @@
 ---
 
 
-## 4月16日乌克兰救援行动（图片1-16）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2354320/)
+## 【每日聚焦】俄乌战事4月16日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2354472/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E0817FC-20B5-4BD4-A1D7-A637510726D4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1A28E766-718D-4845-B6EB-F625E685D518.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/EE03AE52-853D-4B84-8847-8A3609BE9915.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D3278721-E64F-45B7-91C6-65E6BE8A9598.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CE3D24AF-3AB7-4036-8FA0-A9D778696812.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/27D9D387-0849-4634-9709-C4F995E7A0AA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1C9E5D2F-17E0-4A7D-83F1-443A8079DE9C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3077DF5C-1C66-4005-9C24-5A05CD0B53CC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3B09A1E6-7759-49C2-8573-CA748B04DD18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4839CB1A-A70E-4C71-8463-0CE8CF7B3E81.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/84D8E26D-A2F7-48D8-890F-BC9F78C866FD.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DDEAFAC1-AB55-4122-B694-4D88718BA353.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BBD90A6F-11DA-4B2B-9224-E0AC435F6DFE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FCFB732C-C240-4833-ABC5-DA95A07DCC2B.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C870B281-68B0-4347-84E5-F5E4E3AF3E3E.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2D7A2179-12E0-4050-8D62-AC210D069D8F.png)发布：水涨船高![]()
+**编撰：多伦多蓝莲花- wood(文斌)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+1、基辅和乌克兰东北部：乌克兰总统办公室顾问称，是俄罗斯在外国领土上发动了一场无端的战争，故意大规模杀害平民，大规模破坏民用基础设施。因此，乌克兰的任何报复行动在道德上和法律上都是绝对合理的。
+
+2、哈尔科夫和伊久姆：继续炮击哈尔科夫的俄军主要是西北军区的第6集团军和北方舰队的第14军团所部，意图掩护伊久姆方向的补给线。4月15日，乌军击退了俄军从伊久姆向巴文科伏和斯拉夫扬斯克的进攻。
+
+3、顿涅茨克州和卢甘斯克州：俄罗斯军队继续每天对波帕斯纳亚、鲁别日诺耶和马林卡进行攻击，并沿着前沿阵地进行猛烈炮击，但在4月15日没有取得任何成功推进。乌克兰国防部4月15日表示，除了顿涅茨克共和国和卢甘斯克共和国的第1和第2军团外，第58和第8集团军是俄军在顿巴斯的主要军力。俄军需要真正的休整才能凝聚足够的力量，才有可能在正面战场上突破乌克兰防线。防空部队在乌克兰顿巴斯的上空击落了 6 架Orlan-10无人机。
+
+4、马里乌波尔：俄军继续在马里乌波尔西南部和东部围攻乌克兰守军，乌克兰海军陆战队第36旅指挥官4月15日表示，马里乌波尔的局势正在恶化，但表示不会投降。马里乌波尔市市长顾问彼得罗-安德留申科说，俄军正在向伊利奇金属厂地区部署重武器和火炮，用以对亚速钢厂进行攻击。乌克兰国防部报告说，4月15日，俄罗斯用远程轰炸机图-22M3对马里乌波尔进行了空袭，这是本次战争中的第一次使用这种战略轰炸机。原因在于地面攻击速度缓慢，俄军可能不得不加强空袭和炮击。
+
+5、南方战线：在过去的24小时内，赫尔松周围没有重大变化。俄军对赫尔松以西的乌克兰阵地进行了有限的攻击，并继续炮击尼古拉耶夫，但没有取得任何推进。
+
+6、乌克兰军事情报4月15日报道，国际制裁正日益扰乱俄罗斯的生产能力。世界上最大的坦克制造商、俄罗斯T-72主战坦克的生产商乌拉尔瓦贡扎沃德公司正面临着贷款利率上升，材料和部件（包括装甲钢）价格上涨，以及进口部件短缺的问题。俄罗斯的进口替代努力也无法维持现有合同。
+
+校对：文斌/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

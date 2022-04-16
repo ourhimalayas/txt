@@ -2,24 +2,43 @@
 ---
 
 
-## 秘翻在线：因新冠（中共病毒）中断的中韩航班恢复5条航线运行
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2356624/)
+## 警察局长说，在基辅地区发现900多具平民尸体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356737/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-31.jpg)图片来源：本文链接
-据韩国《韩联社》4月16日报道，因新型冠状病毒（中共病毒）的扩散而中断的中韩两国间的部分航线已重新开通。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1992.png)Dmytrivka村附近被摧毁的俄罗斯军事装备。照片。Pavlo Bahmut/ Ukrinform/Future Publishing via Getty Images
 
-中共国春秋航空和东方航空分别于15日和18日恢复了从仁川到上海的航线。随着上海因新冠（中共病毒）疫情封锁，两个航班的目的地将改为浙江杭州和山东济南。但是，从上海飞往仁川的航班没有变更出发地，正常运行。
+据美联社报道，一位地区警察局长周五表示，俄罗斯军队撤出后，在基辅地区发现了900多具平民的尸体。
 
-此外，仁川至青岛航线（山东航空）和仁川至深圳航线（深圳航空）和武汉航线（德威航空）分别于15日和13日也恢复了运行。但是仁川至北京、广州、沈阳、长春等主要航线到4月下旬为止将持续停止运行。
+**推动新闻：**基辅地区警察局局长Andriy Nebytov在周五的发布会上说：“因此，我们了解到，在[俄罗斯]占领下，人们被简单地在街上处决。”
 
-在新冠（中共病毒）疫情下持续运行的仁川-哈尔滨(韩亚航空)、仁川-厦门(厦门航空)、釜山-青岛(釜山航空)预计4月也将继续正常运行。
+- Nebytov说，尸体大多被遗弃在街上或被临时埋葬，他补充说，每天都有更多尸体被发现。
+- Nebytov援引警方的数据指出，95%的人死于枪伤。
+- Nebytov说：“在布查发现的受害者最多，那里有350多具尸体。”
 
-上月，韩国和中共国之间的26条（往返按1条路线计算）航线中，往返全部运行的航线有8条，只有从中共国进入韩国的单程航线有7条。这是因为受到了中共国民航局的防控措施规定和中共国部分机场关闭等情况的影响，如果特定航线确诊患者超过标准，就会停止运行。
 
-信息来源：[https://www.yna.co.kr/view/AKR20220416029000083?did=1195m](https://www.yna.co.kr/view/AKR20220416029000083?did=1195m)
+**大势所趋：**乌克兰官员报告说，当乌克兰军队重新占领布查地区时，尸体–有些人的手被反绑在背后–散落在布查的街道上。
 
-责编：Eric Kim
+- 乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelensky）本月早些时候访问了布查。
+- “我们希望你们向世界展示这里发生的一切”，泽伦斯基说。“俄罗斯军队做了什么。俄罗斯联邦在和平的乌克兰做了什么。对你们来说，重要的是看到这些是平民。”
+
+
+**新闻来源：**[More than 900 civilians’ bodies found in Kyiv region, police chief says](https://www.axios.com/ukraine-deaths-kyiv-russian-invasion-96e2fcfe-c3df-44d9-9977-14ff68669e11.html)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 

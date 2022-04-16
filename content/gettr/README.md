@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 1:21 PM (UTC)`
+
+【Ukraine Rescue】04/15/2022 Nicole shows the afternoon scene in the NFSC relief tent: Volunteers would come for coffee; news reporters are interviewing; NFSC volunteers welcoming a Chinese man and his Ukrainian wife who had escaped from Ukraine, five rooms of their house had been blown away.<br/><br/>【乌克兰救援】04/15/2022 妮可展示新中国联邦救援帐篷下午的场景：义工们会来喝咖啡；新闻记者在采访；新中国联邦义工迎接了一位从乌克兰逃出来的中国大哥和他的乌克兰太太，他们家的5间房被炸。<br/>
+![img](https://media.gettr.com/group14/getter/2022/04/16/13/a40642b4-cf5c-ec96-3e44-2a9faf90d6d3/out.jpg)
+
+---
+
+`@miles 4/16/2022 1:19 PM (UTC)`
+
+【Ukraine Rescue】04/15/2022 A journalist from Helsinki, Finland, visiting the NFSC rescue tent in search of interview material, meets the American volunteer who is preparing to put on a rabbit costume. It turned out he was a lawyer and a former federal prosecutor. He describes it as the most rewarding work of his life.<br/><br/>【乌克兰救援】04/15/2022 一位来自芬兰首都赫尔辛基的记者来新中国联邦救援帐篷寻找采访素材，遇到了正在准备穿上兔子服装的美国志愿者。原来他是一位律师，还曾是联邦检察官。他说这是他一生中最有意义的工作。
+![img](https://media.gettr.com/group42/getter/2022/04/16/13/62dc6f1a-bec2-f567-9b07-930ed9e2e29d/out.jpg)
+
+---
+
 `@miles 4/16/2022 1:10 PM (UTC)`
 
 4月16号：尊敬的战友们好！共产党的无知，愚蠢，和邪恶，只能用一个办法来解决，那就是彻底的消灭他们。【七哥好，乌克兰战争爆发以来有人粗略统计了中文媒体相关数据：泽连斯基逃跑18次，基辅失守4次，亚速营被歼灭9次。马里乌波尔被全面占领11次。乌海军陆战队投降人数都超过整编编制人数了。普京一共怒了93次，撂狠话58次，挑明了24次，美国怂了136次，北约尿了98次，欧盟跪了105次。】<br/>😄😄😄快乐灭共！
@@ -144,20 +158,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 
 2022.04.15 晚  新中国联邦 | 新闻   新中国联邦救援战友获波兰颁发志愿者工作证; 三发贴牌导弹击沉“莫斯科号” 放生士兵
 ![img](https://media.gettr.com/group13/origin/2022/04/16/00/5f64c848-31c2-1297-8d48-1b47eddca910/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 11:51 PM (UTC)`
-
-4/15/2022 Ukrainian Rescue: The fellow fighters of the New Federal State of China have been rescuing Ukrainian refugees for more than a month! We will always stand with Ukraine!<br/><br/>4/15/2022 乌克兰救援连线: 新中国联邦前线的战友参与救援乌克兰难民已超过一个月！我们将永远和乌克兰站在一起！<br/>​​
-![img](https://media.gettr.com/group31/getter/2022/04/15/23/3d0f5f0c-f5a1-fd1a-515d-692b39f02f39/out.jpg)
-
----
-
-`@miles 4/15/2022 11:41 PM (UTC)`
-
-2022.04.15《The Fringe》 Episode 170<br/>中文同传：https://gettr.com/streaming/p15i05a64f7
-![img](https://media.gettr.com/group46/origin/2022/04/15/23/a5a5f725-f30d-5da5-1d34-5a7d5081551c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

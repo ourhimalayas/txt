@@ -2,22 +2,24 @@
 ---
 
 
-## 秘翻在线：乌克兰2800多名平民逃离东部交战地区
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2356599/)
+## 泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356721/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-30.jpg)图片来源：本文链接
-据韩国《朝鲜日报》4月16日的消息，德新社和BBC等外电报道说，当地时间15日，俄罗斯军队正在围攻的乌克兰东南部港口城市马里乌波尔有363人自力逃脱，共有平民2864人逃离了乌克兰和俄罗斯交战不断的乌克兰东部地区。
+**撰稿：日本东京方舟农场  北极**
 
-根据两国间的协议，虽然开通了旨在平民避难的人道主义通道，但又有消息称，俄方不允许乌克兰当局或国际红十字会(ICRC)在最大激战地之一的马里乌波尔进行系统避难。因此，据说民间人士正在利用没有确保安全的通道私自逃离。
+据联合新闻4月16日报道，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelensky）在视频讲话中称，乌克兰将很快完成欧盟成员国候选人资格调查问卷。
 
-据联合国世界粮食计划署(WFP)秘书长大卫•比斯利的说法，俄罗斯军队从两周前就开始包围了马里乌波尔，不允许运进救援物资，而马里乌波尔仍有10万平民，粮食和饮用水迟早会消耗殆尽。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-169.png)乌克兰正准备返回欧盟成员国候选人身份调查问卷。（图片来自联合新闻）
 
-乌克兰当局还主张，俄罗斯正在出动图-22M3战略轰炸机对马里乌波尔进行轰炸。据德新社报道，乌克兰哈尔基宇宙检察院还透露，俄方攻击了试图乘坐公交车通过人道主义通道逃生的平民，造成7人死亡，27人受伤。
+国家元首在当天晚上发表了视频讲话，“今天，我们与官员讨论了乌克兰从欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）那里收到的填写调查问卷的工作。这是我国为获得欧洲联盟成员资格候选人地位作准备的必要阶段。这项工作几乎已经完成，我们很快将向欧盟代表发送答复。”
 
-信息来源：[https://biz.chosun.com/international/international\_general/2022/04/16/IRM3KPHGIZGY7GW5TJLXQII4DQ/?utm\_source=naver&utm\_medium=original&utm\_campaign=biz](https://biz.chosun.com/international/international_general/2022/04/16/IRM3KPHGIZGY7GW5TJLXQII4DQ/?utm_source=naver&amp;utm_medium=original&amp;utm_campaign=biz)
+4月8日，在访问基辅期间，欧盟委员会主席冯德莱恩向泽连斯基提交了一份调查问卷，开启了授予乌克兰欧盟成员国资格的进程。
 
-责编：Eric Kim
+参考链接：
+[https://reurl.cc/415YeL](https://reurl.cc/415YeL)
+
+总编：老孙
+校对发布：爱放飞
 
  
 

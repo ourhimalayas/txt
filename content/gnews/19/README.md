@@ -2,42 +2,24 @@
 ---
 
 
-## 新西兰向澳洲旅客重新开放边境，允许无隔离入境
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2356451/)
+## 秘翻在线：与其说谁认可了新中国联邦不如说谁有幸与新中国联邦结缘
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2356573/)
 
-评论：***新西兰为因应COVID-19疫情，执行全球最严格边境管控措施近2年，今年开始逐步放宽。预期，10月份起将全面向全球旅客开放边境。在国际社会逐步停止疫苗接种及放开各种限制措施之际，反观中共国，却日益加紧疫情防控。正如杰克·波索比克所说：“中共非常害怕，证明他们的疫苗无效，这就是中共进行所有这些封锁的原因。”同时，我们知道，CCP在沪上广深北京等地加强封锁还有更进一步的邪恶目的。***
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-19.png)（图片源自[https://himoney.press/the-first-head-of-state-to-acquiesce-to-the-new-federation-of-china/](https://himoney.press/the-first-head-of-state-to-acquiesce-to-the-new-federation-of-china/)）
+社会关系，往小了说，是个人与个人之间的关系，往大了说，就是世界各国之间的关系。
 
-据《天空网》作者：Miriah Davis，2022年4月13日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1988.png)2022年4月13日，新西兰奥克兰国际机场欢迎游客、朋友和家人。图片来源：Fiona Goodall/盖蒂图片社
-新西兰从4月12日晚上11点59分开始向澳大利亚人重新开放国际边界。9个月前，跨塔斯曼边境（the trans-Tasman bubble，意为澳大利亚和新西兰之间的边境）因新冠肺炎疫情而被关闭。
+国与国之间也跟人与人之间关系一样，得道多助失道寡助。与人自由、与人财富、与人和平之与人为善者处，必然门庭若市。而与人囹圄、与人痛苦、与人战争之与人灾难者处，必然门可罗雀。
 
-在边境重新开放的第一天，预计将有超过3000名旅客从澳大利亚抵达，第一个来自墨尔本的航班将于星期三凌晨1点在奥克兰降落。
+凡事，都有个从量变到质变的过程。近年，中共在以欧美为主的西方等国家大搞蓝金黄，偷盗尖端技术，收买政客，已引起各国的注意。但这些偷鸡摸狗的勾当，中共毕竟当婊子还想立贞节牌坊，还未曾拍胸脯子说：这就是老子干的，想怎么着吧！
 
-澳大利亚公民和返回的新西兰居民必须完全接种疫苗，才有资格享受免检疫入境。
+而这次俄乌战争，彻底撕开了中共的面纱！正义的必须以及高科技使中共为俄罗斯侵略输血的事实昭然天下。中共也不得不自己掀开盖头了！
 
-旅客需要在出发前进行监督下的快速抗原测试、LAMP或PCR测试，并在抵达后和第六天再次进行检测。
+在这样的背景下，已经为整个人类吹了五年哨子的新中国联邦，其之前发出的对中共在屠戮国民的提醒、对中共病毒的提醒、对中共病毒疫苗的提醒、对中共蓝金黄于世界的提醒、对中共想干掉美元称霸世界的提醒，都被证实了这些提醒来自于一群欲拯救人类，正在竭尽全力地拯救人类的人！海航的结局、王建之死、疫苗灾难的显现等等，也更加证实了这群人，是已不多见的，说真话的“新人种”！
 
-新西兰总理杰辛达·阿德恩(Jacinda Ardern)女士说，她很高兴欢迎澳大利亚人在复活节假期和新西兰滑雪季节到来之前回到新西兰。
+这世上，有拒绝拯救自己于危难的人吗？有拒绝温暖、拒绝自由、拒绝和平的人吗？NO！还有谁不知道乌克兰与波兰边境梅迪卡救援营地最美的风景、最好的咖啡、最暖的帐篷！
 
-澳航和新西兰航空已经增加了额外的航班，以满足需求，航空公司预计从6月中旬开始，滑雪季节的旅行将激增。
-
-在大流行病引发长期封锁和边境关闭之前，旅游业对新西兰经济的贡献超过400亿美元。
-
-澳大利亚人约贡献了新西兰旅游业的40%，每年有超过150万游客到新西兰旅游。
-
-从5月1日起，美国、英国、日本、德国、韩国和新加坡等免签证国家的游客，以及持有有效旅游签证的游客，都可以进入新西兰。
-
-文章来源：**[https://www.skynews.com.au/australia-news/jacinda-ardern-excited-to-welcome-australians-back-to-new-zealand-as-borders-reopen-for-quarantinefree-travel/news-story/75abd4b671099d34af26e80deeb29507](https://www.skynews.com.au/australia-news/jacinda-ardern-excited-to-welcome-australians-back-to-new-zealand-as-borders-reopen-for-quarantinefree-travel/news-story/75abd4b671099d34af26e80deeb29507)**
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 钢蛋儿
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+如果世上有了这样一个全新的国家，这个国家还需要谁的认可吗？我想，人们应该会以与之结缘为荣！
 
  
 
