@@ -2,28 +2,38 @@
 ---
 
 
-## 澳大利亚面临血液危机
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2356292/)
+## Pink Floyd推出新歌声援乌克兰
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2356346/)
 
-翻译/编辑：Rianna
+作者 台湾宝岛农场 Y.M.O
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-247.jpeg)
+2022年3月12日，Pink Floyd宣布为了与世界站在一起，强烈谴责俄罗斯对乌克兰的入侵，Pink Floyd1987年以来的作品和David Gilmour所有的独奏录音都将从俄罗斯和白俄罗斯的所有数字音乐提供商处下架。不过Pink Floyd所做的并不止于此，就在最近他们又做了一件令人惊讶的事情，那就是为了乌克兰集合起来录了一首新歌。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1650102309046.jpg)图片来源：Australian Red Cross
+事情要从David Gilmour被问到是否看过乌克兰摇滚乐队BoomBox主唱Andriy Khlyvnyuk的Instagram说起。David Gilmour曾经在2015年与BoomBox一起演出，俄罗斯入侵乌克兰之后BoomBox放弃了之前预定好的美国巡演，Andriy Khlyvnyuk也拿起步枪保卫自己的家园。在Instagram上Andriy Khlyvnyuk穿着军装，肩上挂着一把步枪站在基辅的圣索非亚大教堂外，大声唱着《Oh, the Red Viburnum in the Meadow》，这是一首第一次世界大战期间创作出来的乌克兰抗议歌曲，它也成为了Pink Floyd录这首新歌的基础。
+
+首先他们将Andriy Khlyvnyuk的人声分离出来，然后抓出这首歌的和弦，在此基础之上进行全新的创作。除了乐手之外2008年逝世的Pink Floyd键盘手Rick Wright的女儿也参与了。之后当David Gilmour与Andriy Khlyvnyuk分享这首歌相关内容的时候Andriy Khlyvnyuk由于被迫击炮弹炸伤躺在医院里，四分之一英寸的小弹片嵌入了他的脸颊。不过对于这首歌的发行他还是觉得相当高兴的，并且所有收益也都将用于乌克兰人道主义救治。
+
+Pink Floyd发布新歌可能很多人会觉得是愚人节的玩笑，的确乐队上一次发表原创作品还是在28年前，Pink Floyd这个名字听上去已经更像是被供奉起来的神一样不会轻易出手。并且2008年键盘手Rick Wright去世更是让Pink Floyd离重出江湖越来越远。不过之前也提到David Gilmour有家人住在乌克兰，包括Andriy Khlyvnyuk的这个视频片段都让他想利用自己的平台做些什么。
+
+肯定会有人对此感到高兴，因为自己心爱的音乐人发了新歌。然而我却很难有这种感觉，不是说忽视音乐人对于帮助乌克兰的努力，而是觉得死者虽然仍有灵魂但他已经不能转世为生前的样子了。Pink Floyd在David Gilmour与Roger Waters关系恶化之后就应该像人类的生老病死一样逐步将这样的自然规律完成。David Gilmour也认为2014年发行的《The Endless River》就应该是这支乐队的终结之作，并且之前也有提到Pink Floyd只让1987年以来的作品从俄罗斯和白俄罗斯的所有数字音乐提供商处下架，也许他们的分歧在俄乌冲突中也有所体现。我是觉得这样的复生虽然是为了正义，但同时它也是不自然的。
+
+话说回来既然Pink Floyd的回魂已经发生那我们也必须去正视它。之前有句话叫艺术必须不断地干预政治直到政治不再干预艺术为止。华语乐坛也在唱着刚刚送走了恼人的青春才发现活在无歌的时代。现在全世界都是战场，Pink Floyd拿出的这首其实不能算是歌曲，而是专属于音乐人的武器，一切都是为了将世界导向正轨。
+
+新闻链接
+
+[https://www.instagram.com/p/Cae5TydPAxh/](https://www.instagram.com/p/Cae5TydPAxh/)
+
+[https://www.theguardian.com/music/2022/apr/07/pink-floyd-reform-to-support-ukraine?fbclid=IwAR3OyRnCg7Q03\_dsceHpL4hsQSLWtZF\_ivnVET26OOEYnep2qMZQuef4AHQ](https://www.theguardian.com/music/2022/apr/07/pink-floyd-reform-to-support-ukraine?fbclid=IwAR3OyRnCg7Q03_dsceHpL4hsQSLWtZF_ivnVET26OOEYnep2qMZQuef4AHQ)
 
 
-随着供应量降至12个月以来的最低点以及复活节假期的临近，澳大利亚人被敦促献血。澳大利亚红十字会已敦促具有O 型血型（用于血型未知的创伤患者）的人立即捐赠，因为全国供应仅剩 1.5 天。上述中心报告说，由于新冠病毒隔离和长周末，超过一半的预约被错过。“在任何一天，我们仍然看到有二分之一的预约被取消或无人参加。”斯通女士说。由于交通事故和紧急情况，诊所无法承受复活节和澳新军团日周末献血往往下降的后果。“血袋通常存放在救护车和救援直升机中，用于在短时间内需要大量物资的创伤患者，”斯通女士说。 尽管 O 阴性血型占人口的比例不到 7%，但它占全澳大利亚医院订单的 16%。 其他血型也面临短缺，仅剩 1.9 天供应。 短缺促使 Lifeblood 首次在耶稣受难日开放 40 项服务，因为只有不到 4% 的澳大利亚人主动献血。
 
-斯通女士说：“对血液的需求通常是无计划的和紧急的。” 这个复活节周末，成千上万的人需要血液，包括创伤和急诊患者、接生的妈妈和接受癌症治疗的人。一次捐赠对接受捐赠的人来说可能意味着一生，捐赠者所花费的只是他们一个小时的时间。 Lifeblood 客户经理 Mitch Bryce 告诉记者，他在三年前的复活节期间不小心撕开了手术缝线后，被送往医院接受 O 阴性输血。 “我服用了布洛芬，因为我一直使用止痛药无法开车，问题在于阻止了血液凝结，我失去了两升半的血，” 布莱斯先生说，“大多数时候你去上班，你会看到有很多人进来，但两个小时后，你刷新那个名单，它已经减少了一半。”
+* * *
 
-要捐血，请访问 lifeblood.com.au 或致电您当地的诊所。
-
-新闻来源：[澳洲红十字会：血液供应量降至一年来最低](https://www.news.com.au/lifestyle/health/health-problems/australian-red-cross-blood-supply-plunges-to-lowest-point-in-a-year/news-story/9b516c93a63452558af0e6ffc1afcf69)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
