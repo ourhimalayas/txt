@@ -2,35 +2,26 @@
 ---
 
 
-## 印度应提升对中共的战略思维，加强与台湾合作
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2355036/)
+## 俄罗斯入侵乌克兰的战争会持续多久？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355053/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1970.png)图片来源：美联社
+目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年年底。
 
-#### 翻译/编辑：小红帽
+之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/shutterstock_1462454072-1.jpg)图片来源：ipleaders
+而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“这是可能的，凯特，当然，我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
 
+同时，根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
 
-根据印度媒体4月15日报道，印度军队正在努力解决其在普通话方面的能力不足问题，并在其队伍中提高对中共国问题的专业性。
+本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的。
 
-如果印度要增加对中共的战略了解，这是一个迟来的但必要的步骤。按照计划，印度军队正在努力提高士兵的基础和高级普通话水平，包括在部队内部以及通过与提供中文课程的大学签订谅解备忘录。印度军队于去年开始为一些士兵提供关于西藏学的专门课程。
+*责编：白夜*
 
-鉴于中共今天是印度的主要战略挑战，印度的国防和战略机构需要加强对中共的解读。中国共产党和中国人民解放军已经形成了深刻的战略思维能力，提前数年就形成了中共的战略安全态势。然而，印度的战略安全方向历来是面向巴基斯坦的，这也解释了普通话和中共国研究的深度不足。
+**新闻来源**
 
-加强印度对中共国的战略理解的最佳方式是在整个学校和大学的生态系统中支持普通话和中文研究。这就是美国几十年来所做的工作，培养出了像Ezra Vogel和John King Fairbank这样的中共国研究的先驱者。只有民防学术契约才能让印度对中共有360度的了解。
-
-在这方面，促进与台湾的普通话教育和中共国研究合作将更有益。鉴于中共国的历史，台湾最了解中共国，并愿意与印度合作。印度政府须认真考虑在印度大学设立更多的台湾教育中心，甚至促进印度军队和台湾大学之间的普通话合作。
-
-资料来源：[Decoding dragon: GoI should upgrade strategic thinking on China](https://timesofindia.indiatimes.com/blogs/toi-editorials/decoding-dragon-goi-should-upgrade-strategic-thinking-on-china/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[State Department admits it’s ‘possible’ Ukraine war rages through end of year](https://nypost.com/2022/04/15/state-department-says-its-possible-ukraine-war-rages-through-2022/)
 
  
 
