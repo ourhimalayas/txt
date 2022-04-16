@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 3:41 AM (UTC)`
+
+4/15/2022 Ukrainian Rescue: A Ukrainian Chinese who was rescued by the front-line fellow fighters bravely joined the volunteer team of the New Federal State of China and Rule of Law Foundation<br/><br/>4/15/2022 乌克兰救援连线: 被前线战友拯救的乌克兰华人勇敢地加入了新中国联邦与法治基金义工团队！<br/>​​
+![img](https://media.gettr.com/group36/getter/2022/04/16/03/ac7f3ca9-c52b-cb38-54c5-e94a4ac9ca16/out.jpg)
+
+---
+
 `@miles 4/16/2022 3:01 AM (UTC)`
 
 2022-4-15《鸡血王喜币大作战》 第一百六十六集 嘉宾：Tex、文空
@@ -151,13 +158,6 @@ A volunteer from Mozambique, Africa supports us to take down the Chinese Communi
 
 4/15/2022 Miles Guo: Fellow fighters in mainland China should have a comprehensive plan for stocking up food. Coming next there will be cut-off of water and electricity supplies. You probably won’t be allowed to step out of your house. Think carefully about what to stock and how, so that you will survive the up-coming disasters.<br/><br/>4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关。<br/>
 ![img](https://media.gettr.com/group13/getter/2022/04/15/22/5956fb30-fffd-d489-fe42-1b22f1c22225/out.jpg)
-
----
-
-`@miles 4/15/2022 10:02 PM (UTC)`
-
-“太软了，太晚了，太不团结了...” 飞飞秀救援快报 2022-04-15<br/>For English：gettr.com/streaming/p15hfbe209e
-![img](https://media.gettr.com/group43/origin/2022/04/15/22/5f11b10e-23cc-378a-1718-faeb2b41121f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
