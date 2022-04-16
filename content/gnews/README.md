@@ -27,38 +27,38 @@
 ### [美国务院：“没有什么能阻止”美国政府支持乌克兰](/content/gnews/4/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【G时新闻】美议员团访台 中共在台湾周边军演震摄](/content/gnews/5/README.md)
+### [【秘翻时评】 上海警察暴力镇压抗议时称：中共即将与美国开战](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【G时新闻】美议员团访台 中共在台湾周边军演震摄](/content/gnews/6/README.md)
  ` G-时新闻`
 
-### [“莫斯科”号战舰的沉没严重打击了俄罗斯的骄傲和实力](/content/gnews/6/README.md)
+### [“莫斯科”号战舰的沉没严重打击了俄罗斯的骄傲和实力](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】上海专家和媒体人发声批评清零政策遭封杀](/content/gnews/7/README.md)
+### [【G时新闻】上海专家和媒体人发声批评清零政策遭封杀](/content/gnews/8/README.md)
  ` G-时新闻`
 
-### [视频|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/8/README.md)
+### [视频|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/9/README.md)
  ` MOSVIDEO`
 
-### [视频|上海正面临物资供应链崩溃的危险](/content/gnews/9/README.md)
+### [视频|上海正面临物资供应链崩溃的危险](/content/gnews/10/README.md)
  ` MOSVIDEO`
 
-### [视频|美跨党派参众两院资深议员抵达台湾访问](/content/gnews/10/README.md)
+### [视频|美跨党派参众两院资深议员抵达台湾访问](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [打了疫苗的人就是病毒携带者 隔离措施就是为疫苗灾难做准备](/content/gnews/11/README.md)
+### [打了疫苗的人就是病毒携带者 隔离措施就是为疫苗灾难做准备](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [被关押在沙特的维吾尔族妇女说她被警告即将被驱逐到中国](/content/gnews/12/README.md)
+### [被关押在沙特的维吾尔族妇女说她被警告即将被驱逐到中国](/content/gnews/13/README.md)
  ` 波士顿五月花农场金融部`
 
-### [视频| 台湾军方购买中共无人机 恐现“木马屠城”惨剧](/content/gnews/13/README.md)
+### [视频| 台湾军方购买中共无人机 恐现“木马屠城”惨剧](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [文·贵天成——文贵先生谈“习近平”（一）](/content/gnews/14/README.md)
+### [文·贵天成——文贵先生谈“习近平”（一）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
-
-### [视频|中共面临经济崩溃，籍疫情借刀杀人](/content/gnews/15/README.md)
- ` MOSVIDEO`
 
 ### [乌克兰多地彻夜拉响防空警报](/content/gnews/16/README.md)
  ` NFSC News`
