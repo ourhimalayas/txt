@@ -2,47 +2,66 @@
 ---
 
 
-## 郎咸平老母离世，只因苦等核酸耽误就医
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2358057/)
+## 2022/04/16 文贵先生直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2358097/)
 
-作者：香草山商业部 – Bronx Bombers
+[![](https://express.adobe.com/page/wbHIQFXfERaPY/images/4b9f1e0c-b1f5-41be-afde-5b868c55a510.png?asset_id=da261227-9f32-48fc-b2d6-c515a811859d&amp;img_etag=%2251a778cf7b67d8739d8af39e274927e0%22&amp;size=2560)](https://express.adobe.com/page/wbHIQFXfERaPY/images/4b9f1e0c-b1f5-41be-afde-5b868c55a510.png?asset_id=da261227-9f32-48fc-b2d6-c515a811859d&amp;img_etag=%2251a778cf7b67d8739d8af39e274927e0%22&amp;size=1024)
+链接：[https://gettr.com/post/p15kayqd9fb](https://gettr.com/post/p15kayqd9fb)
 
+**一．国内疫情**
 
+1.长春战友积极响应七哥号召储备物资，战友之间互助达二千多次。长春积累吉林省大部分精英。战友之间帮助不能理所当然为必须。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+2.上海战友及时提供政府行动情报、分享食品获取渠道。请上海战友继续保持。
 
+3.广州预计还会有大面积隔离。青岛、大连、哈尔冰、海口相继“排队中”。
 
+4.七哥吃维他命D和青蒿素花粉敏感消失。吃青蒿素期间禁止喝酒。
 
+5.微信会因其封锁消息被登上“绞刑架”。
 
+6.西安再次被封，因与某耳熟能详的人有关系。
 
-4月11日，经济学者郎咸平在社交平台上发文称：其98岁高龄的母亲，近日患轻微肾脏衰竭，按之前诊断，原本打一针就可治愈。但因为上海严格要求必须做核酸后才能就医，故其老母在医院门口现场做核酸测试，却苦等四个小时无结果，未能得到及时救治而离世。由于郎咸平本人居住的小区已经封闭，虽经和有关部门沟通允许其去医院陪护母亲，但由于区域封控无法打车赶到医院而未能见到其母最后一面。
+7.中共控制大陆人银行卡和通讯。上海人遇到银行刁难转账困难多，上海死亡可能接近百万，官方要求报道数字不能超十万。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16-04-2022-1.jpg)
+8.战友们做好极端条件（停水、停电、医院停用）下的防范措施。
 
-图片来源于网络
+**二．国际局势**
 
-中共对上海的封控管理毫无人性可言，一线医护人员只能机械式执行命令，之前就有社交媒体传出因急救车不予救治，致使哮喘病人死亡的惨剧发生。
+1.俄罗斯两个地方最安全（靠近普京、远离普京）。
 
+2.中共强制香港人选择李加超成为特首。
 
+3.中共通过澳大利亚公司向台湾出售无人机，凸显台湾整个军方系统出现严重漏洞。
 
-相关链接:
+**三．马云案件**
 
-[https://weibo.com/langxianpinghk](https://weibo.com/langxianpinghk)
+1.通过渠道购买到关于马云的卷宗，所有数据由中共国财政部编写，审计署全程参与，震撼外国政府。
 
-[http://m.jrj.com.cn/madapter/finance/2022/04/11203836307725.shtml](http://m.jrj.com.cn/madapter/finance/2022/04/11203836307725.shtml)
+2.任何人能搜集到关于吴征卷宗（三十次以上问讯笔录）、马云、孙立军、傅政华、孟建柱等卷宗、单伟健档案，请与各农场联系，会有相应报酬。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+3.某统计局战友将数据提供给美国，全家拿到紧急移民，欢迎大家积极“出卖”中共国秘密。
 
-编辑/校对/发稿：Petite abeille
+**四.应对中共办法**
 
-**更多资讯，更多关注**
+1.任何国家强迫人民隔离，大家都有权力反抗并智慧抗争。比如所有人针对警察从窗台外扔垃圾、泼水。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+2.人类保护自己最佳利器：水、火。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+3.新中国联邦救援前线积极参与以色列的复活节，七哥收到大量信息很多外国友人表示想参与救援行动。乌克兰将有大变化。
 
+4. 上海将有重大的政策。
+
+5. 美国对台湾下周有一系列政策出台。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*听写：call me uncle|PR: 乐禧禧| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/wbHIQFXfERaPY/images/7985748d-b99b-41ce-a9c5-bc7ea719e24c.jpg?asset_id=b7082805-f817-46fe-b3e8-985a9c53862d&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/wbHIQFXfERaPY/images/7985748d-b99b-41ce-a9c5-bc7ea719e24c.jpg?asset_id=b7082805-f817-46fe-b3e8-985a9c53862d&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

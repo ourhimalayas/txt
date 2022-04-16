@@ -15,32 +15,32 @@
 
 ---
 
-### [美财长提醒中共：在阻止俄军入侵和失去世界地位之间做出选择](/content/gnews/1/README.md)
+### [DC大中华时事：很多国家都“躺平”了，我们为何还“动态清零”？](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [出于对制裁的担忧，中海油将退出加拿大](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [2022/04/16 文贵先生直播精要](/content/gnews/2/README.md)
+### [Bison Bank 成为葡萄牙第一家获得加密许可证的银行](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [美财长提醒中共：在阻止俄军入侵和失去世界地位之间做出选择](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2022/04/16 文贵先生直播精要](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/3/README.md)
+### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [DC每日热点0416](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郎咸平老母离世，只因苦等核酸耽误就医](/content/gnews/5/README.md)
+### [郎咸平老母离世，只因苦等核酸耽误就医](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [《歷史的今天》2022.04.16](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/7/README.md)
+### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [教皇出席但不主持复活节守夜仪式](/content/gnews/8/README.md)
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/9/README.md)
  ` Shuizhuyu`
-
-### [乌克兰血肉铸就的意志，击碎了德国的绥靖梦](/content/gnews/9/README.md)
- ` 纽约香草山MOS02`
 
 ### [截至4.16 俄乌战事汇总](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
