@@ -2,28 +2,36 @@
 ---
 
 
-## 第六波新冠疫情下的安大略省
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358275/)
+## 灭共段子——吐了吐了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358460/)
 
-##### **作者：加拿大温哥华扬帆农场 – 文莱**
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+故事背景：喝了农药的农妇躺在病床上，等待救治，医生询问农妇丈夫（农民）病情原委，以下是二人对话。
 
-据【ctv新闻】4月14日报导，安大略省目前大约65%的ICU患者正在接受新冠病毒的治疗，而其余35%的患者在因其他疾病入院后被感染呈阳性，并且该省又确认了23例新冠病毒的死亡病例。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2031.png)
-报导称，因新冠病毒住院的患者在过去五天中稳步增加，但废水数据表明，该省的感染人数仍在飙升，预估值约为每天10万例的新冠病例。此外，安大略省的阳性率目前约为18.1%，较高于4月初的17%。
+医生：怎么搞成这样呢？
 
-据悉，安大略省的流行病学报告显示，由于PCR检测试剂与实验室的限制，该省真实确诊率应该是被低估的。相关部门预计将于近期发布该省的最新建模资料，以便于了解第六波大流行期间的数据变化。
+农民：家里房子强拆，她..一时想不开，就喝农药自杀了。
 
-连结：[Ontario COVID news: 23 more deaths confirmed as hospitalizations increase | CTV News](https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940)
+医生：喝了多少呢？
 
-上传/发稿 – 文永
+农民：哎，喝了一大瓶呢？哎，医生，你快动手术救救她吧。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+医生：哎呀，动什么手术啊，现在让她吐出来就行了，把农药吐出来。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+农民：我们是想让她吐，可她就是不吐啊……
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+医生：你们都用了哪些方法？
+
+农民：我们什么方法豆试了，后来邻居说灌大粪水肯定有用，结果我们给她灌了,灌的人都吐了，她还是不吐啊。
+
+医生：（表情平静）让我来试试，（轻附农妇耳边）大声：“情为民所系，利为民所谋，立党为公，执政为民，以人为本。”
+
+农民：（农妇突然起身，作呕吐状）哎呀，吐了吐了吐了，哎呀，你看这口号多好啊！是党救了们呢？感谢党啊！
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

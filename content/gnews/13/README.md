@@ -2,74 +2,28 @@
 ---
 
 
-## 有声|暴政猛于虎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358196/)
+## 第六波新冠疫情下的安大略省
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358275/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-这是最真实历史
-一声声哭喊
-一句句求救
-一个个失去的
-鲜活生命
-喊楼的人
-已经沉寂
-也许
-没有了力气
+##### **作者：加拿大温哥华扬帆农场 – 文莱**
 
-这历史啊
-残酷真相
-悲剧
-涂满眼睛
-拿什么
-可以
-救赎
-你们
+据【ctv新闻】4月14日报导，安大略省目前大约65%的ICU患者正在接受新冠病毒的治疗，而其余35%的患者在因其他疾病入院后被感染呈阳性，并且该省又确认了23例新冠病毒的死亡病例。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2031.png)
+报导称，因新冠病毒住院的患者在过去五天中稳步增加，但废水数据表明，该省的感染人数仍在飙升，预估值约为每天10万例的新冠病例。此外，安大略省的阳性率目前约为18.1%，较高于4月初的17%。
 
-最真实历史
-记录最悲惨事故
-粗暴警察
-警棍在挥舞
-政府说
-没事没事
-太平需要粉饰
-楼上下着人雨
+据悉，安大略省的流行病学报告显示，由于PCR检测试剂与实验室的限制，该省真实确诊率应该是被低估的。相关部门预计将于近期发布该省的最新建模资料，以便于了解第六波大流行期间的数据变化。
 
-这残酷现实
-来不及粉饰
-击碎着
-你的，我的
-你们的，我们的
-眼膜
-泪水无法挽救
-暴政猛于虎的残忍
-悲剧要重复多少次
-才能唤醒沉睡的人
+连结：[Ontario COVID news: 23 more deaths confirmed as hospitalizations increase | CTV News](https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940)
 
-反抗吧
-如果此前只是犹豫
-铁拳砸醒
-痛不欲生
-反抗吧
-如果有一丝生存希求
-推翻这暴政横行
-书写新的
-历史进程
+上传/发稿 – 文永
 
-文字版原文：[暴政猛于虎](https://gnews.org/zh-hans/2350973/)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-音频处理：Fei797
-发稿：Fei797
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
