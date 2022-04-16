@@ -15,133 +15,133 @@
 
 ---
 
-### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/1/README.md)
+### [《歷史的今天》2022.04.16](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰血肉铸就的意志，击碎了德国的绥靖梦](/content/gnews/2/README.md)
- ` 纽约香草山MOS02`
-
-### [俄罗斯袭击基辅郊区，在马里乌波尔遗址发起进攻](/content/gnews/3/README.md)
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/3/README.md)
  ` Shuizhuyu`
 
-### [截至4.16 俄乌战事汇总](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄罗斯国家电视台主持人声称第三次世界大战已经开始](/content/gnews/6/README.md)
- ` 温哥华扬帆农场`
-
-### [所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城](/content/gnews/9/README.md)
- ` 秘密翻译组-北美组`
-
-### [4月16日勿忘香港（图片1-9）](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/12/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/13/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [马斯克将以430亿美元收购推特](/content/gnews/14/README.md)
- ` NFSC News`
-
-### [美台两国启动士官交流计划](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/16/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】西安宣布实施4天临时社会面管控](/content/gnews/17/README.md)
- ` G-时新闻`
-
-### [借疫情中共禁闭45个城市3.7亿人](/content/gnews/18/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [文·贵天成——文贵先生谈“习近平”（二）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共接下来要对青岛、大连、哈尔滨（海口）大隔离](/content/gnews/20/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】肥料短缺加剧全球粮食危机](/content/gnews/21/README.md)
- ` G-时新闻`
-
-### [沙利文称美国将确保中共侵台不会发生](/content/gnews/22/README.md)
- ` NFSC News`
-
-### [郭先生盖特乱聊直播要点（2022年4月16日）](/content/gnews/23/README.md)
- ` 波士顿五月花农场`
-
-### [爆料革命——历史的今天1月31日](/content/gnews/24/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/25/README.md)
- ` G-NEWS TAIWAN`
-
-### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭先生谈即将到来的数字货币时代](/content/gnews/27/README.md)
+### [乌克兰血肉铸就的意志，击碎了德国的绥靖梦](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [2022年04月16日七哥乱聊直播](/content/gnews/28/README.md)
- ` Mr. Miles Guo's News Briefing`
+### [俄罗斯袭击基辅郊区，在马里乌波尔遗址发起进攻](/content/gnews/5/README.md)
+ ` Shuizhuyu`
 
-### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [截至4.16 俄乌战事汇总](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
 
-### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/31/README.md)
- ` 秘密翻译组金融团队`
+### [俄罗斯国家电视台主持人声称第三次世界大战已经开始](/content/gnews/8/README.md)
+ ` 温哥华扬帆农场`
 
-### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/32/README.md)
- ` topnews`
+### [所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
 
-### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/34/README.md)
- ` 历史组`
+### [4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
 
-### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/35/README.md)
+### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/13/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/14/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [马斯克将以430亿美元收购推特](/content/gnews/15/README.md)
+ ` NFSC News`
+
+### [美台两国启动士官交流计划](/content/gnews/16/README.md)
+ ` NFSC News`
+
+### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/17/README.md)
  ` 银河歌舞厅`
 
-### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/36/README.md)
+### [【G时新闻】西安宣布实施4天临时社会面管控](/content/gnews/18/README.md)
+ ` G-时新闻`
+
+### [借疫情中共禁闭45个城市3.7亿人](/content/gnews/19/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [文·贵天成——文贵先生谈“习近平”（二）](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共接下来要对青岛、大连、哈尔滨（海口）大隔离](/content/gnews/21/README.md)
+ ` 银河歌舞厅`
+
+### [【G时新闻】肥料短缺加剧全球粮食危机](/content/gnews/22/README.md)
+ ` G-时新闻`
+
+### [沙利文称美国将确保中共侵台不会发生](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [郭先生盖特乱聊直播要点（2022年4月16日）](/content/gnews/24/README.md)
+ ` 波士顿五月花农场`
+
+### [爆料革命——历史的今天1月31日](/content/gnews/25/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/26/README.md)
+ ` G-NEWS TAIWAN`
+
+### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭先生谈即将到来的数字货币时代](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022年04月16日七哥乱聊直播](/content/gnews/29/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/32/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/33/README.md)
+ ` topnews`
+
+### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/35/README.md)
+ ` 历史组`
+
+### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/36/README.md)
+ ` 银河歌舞厅`
+
+### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/37/README.md)
+### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
 
-### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/38/README.md)
+### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [中共的乌克兰战争宣传（一）](/content/gnews/39/README.md)
+### [中共的乌克兰战争宣传（一）](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [警察局长说，在基辅地区发现900多具平民尸体](/content/gnews/40/README.md)
+### [警察局长说，在基辅地区发现900多具平民尸体](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成](/content/gnews/41/README.md)
+### [泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [泽连斯基称世界应该为普京可能使用核武器做好准备](/content/gnews/42/README.md)
- ` 波士顿五月花农场金融部`
-
-### [克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”](/content/gnews/43/README.md)
+### [泽连斯基称世界应该为普京可能使用核武器做好准备](/content/gnews/43/README.md)
  ` 波士顿五月花农场金融部`
 
 ### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/44/README.md)
