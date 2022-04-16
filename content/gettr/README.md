@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 10:23 PM (UTC)`
+
+4/16/2022 Miles Guo: Several fellow fighters and their families in Russia cleverly avoided the most dangerous places. A fellow fighter working in the CCP’s system sold the classified information of the National Bureau of Statistics to the US. As a result, the US granted his whole family urgent immigration visas. As long as it is the CCP’s secret, it can be sold for a good price, with the New Federal State of China being the deal maker.<br/><br/>4/16/2022文贵直播：俄罗斯几家战友聪明地躲开了最危险的地方；体制内战友把统计局的机密信息提供给了美国，全家获批美国紧急移民；只要是共产党的秘密，都能卖个好价钱，新中国联邦就是交易的桥梁<br/>
+![img](https://media.gettr.com/group44/getter/2022/04/16/22/01e16b11-cf69-9fdb-5829-337b1555d2c8/out.jpg)
+
+---
+
 `@miles 4/16/2022 10:00 PM (UTC)`
 
 “台湾之子，中共要大屠杀啦！” 飞飞秀救援快报 2022-04-16<br/>For English：gettr.com/streaming/p15mpked660
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
  4月16号：这是在哪里？怎么回事儿？
 ![img](https://media.gettr.com/group15/getter/2022/04/16/16/cff68b5d-a489-1784-1cd9-d07a931fcf1d/out.jpg)
-
----
-
-`@miles 4/16/2022 4:08 PM (UTC)`
-
-4月16号：我们中国人就连这些．家禽．畜生的勇气都没有……中国才有比爹娘还亲的中国共产党！
-![img](https://media.gettr.com/group14/getter/2022/04/16/16/72e6b972-7a46-6376-500a-b31fe3e5ba2e/out.jpg)
 
 ---
 

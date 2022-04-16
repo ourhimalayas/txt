@@ -2,18 +2,18 @@
 ---
 
 
-## 美财长提醒中共：在阻止俄军入侵和失去世界地位之间做出选择
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358098/)
+## 特鲁多政府新冠恐慌性购买丑陋行径
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358139/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：风云小哥、撰稿：晨熹
+##### 作者：加拿大温哥华扬帆农场 – 文莱
 
-据【今日】4月13日报道，美财长珍妮特·耶伦周三表示，中共国应该帮助结束俄罗斯在乌克兰“令人发指的战争”，否则将失去其世界地位，并警告那些试图破坏西方制裁的人将面临经济后果。美国总统拜登早前曾对中共发出了类似的警告。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2023.png)
-耶伦认为中共国和西方将越来越难把经济问题与国家安全问题分开。她表示如果中共国不尊重乌克兰，那么就不能指望世界会尊重北京未来关于主权和领土完整的任何呼吁。她还表示美国要与中共努力合作，以免出现民主与专制对立的两极全球金融体系。此外她也表达了对中共严格封锁将导致供应链中断，损害世界经济的担心。
+据【真北方】4月13日报道，加拿大特鲁多政府使用2000万加元纳税人的钱，以用于投资新冠病毒测试系统，但该系统不但不起作用，也从未交给加拿大人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2025.png)
+报道称，2020年特鲁多政府在斯巴达生物科学公司投资了数百万加元，该公司承诺为安大略省提供便携式新冠检测剂，据称可在不到一小时内检测到病毒，并且加拿大卫生部已于2020年3月与该公司签订了合同。但结果表明，该公司所生产的检测剂效果不堪入目。尽管加拿大卫生部于2021年1月重新批准了该产品，但该公司在几个月后以技术问题为由停止了生产，最终宣布破产。
 
-耶伦此番讲话是在国际货币基金组织和世界银行成员国下周春季会议召开前发表的。
+据悉，保守党议员和健康评论家抨击了这项投资，指责自由党政府随意使用纳税人的钱进行了恐慌性的购买。此外，有政府官员在下议院中还抨击了自由党在新冠大流行期间，渥太华因购买有缺陷的个人医疗防护装备而总共损失了近1.06亿加元
 
-新闻来源：[https://www.todayonline.com/world/yellen-china-help-stop-russias-war-ukraine-or-lose-standing-world-1872971](https://www.todayonline.com/world/yellen-china-help-stop-russias-war-ukraine-or-lose-standing-world-1872971)
+链接：[Taxpayers paid $20 million for COVID-19 tests that never worked | True North (tnc.news)](https://tnc.news/2022/04/13/taxpayers-paid-20-million-for-covid-19-tests-that-never-worked/)
 
 上传/发稿 – 文永
 
