@@ -2,31 +2,31 @@
 ---
 
 
-## 波兰和比利时总理均认为 对俄罗斯的制裁必须更加严厉
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355327/)
+## 日本拟派自卫队运输机增援乌克兰难民救助
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355599/)
 
-撰稿：雅典娜农场-小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
-外媒4月11日报道，波兰总理马特乌什·莫拉维茨基和比利时总理亚历山大·德克鲁在华沙会面后同意，如果要对克里姆林宫产生影响，对俄罗斯的制裁必须更加严厉。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323087.jpg)
-莫拉维茨基表示，下一轮制裁应该让克里姆林宫相信，西方盟国在争取普世价值方面非常坚定，迄今为止对俄罗斯实施的制裁“还不够努力”。德克鲁也认为制裁应该极其严厉，应该让俄罗斯更加难以进入金融市场，并宣布比利时准备在这方面采取进一步措施，还要能源转型以摆脱对俄罗斯化石燃料的需要。
+撰稿：日本东京方舟农场 – Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
+据日媒4月13消息，日本计划在本月晚些时候派遣一架自卫队C-2运输机，帮助向接收乌克兰难民的国家运送救援物资。这项任务预计从4月下旬起每周运输一次，总共有10个左右的航班，一直持续到 6 月底。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323085.jpg)
+由于俄罗斯不顾国际社会的谴责，继续在乌克兰进行侵略战争，约有400万人逃离家园。应联合国难民事务高级专员办事处要求，日本内阁最早将于下周根据该国的《国际和平合作法》，决定是否派遣自卫队飞机参与国际人道主义救援行动。
 
-
+日本政府3月份曾通过波兰向饱受战争蹂躏的乌克兰运送了防弹背心和头盔。如果本次援助计划实行，飞机将从第三国向乌克兰运送毯子和睡垫等物资。
 
 参考链接：
 
-[Polish, Belgian PM say sanctions on Russia must have maximum impact](https://www.thefirstnews.com/article/polish-belgian-pm-say-sanctions-on-russia-must-have-maximum-impact-29610)
+[Japan plans to send SDF plane for Ukraine refugee aid this month](https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-123.jpg)
 
-编辑：玫瑰园
 
-总编：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-审核：木木
+编辑：Delilah小胖/飞虹
+
+总编/审核：飞虹
 
 校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-59.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

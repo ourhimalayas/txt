@@ -2,26 +2,30 @@
 ---
 
 
-## 乌克兰英勇的扫雷犬已经嗅出了“数百枚俄罗斯地雷”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2355787/)
+## 中共高墙已挡不住如潮般的民怨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2355864/)
 
-**撰稿：日本东京方舟农场  北极**
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/中共高墙已挡不住如潮般的民怨.png)（图片源自本文链接）
+4月16日BBC日本消息：随着中共国上海的中共病毒(新冠病毒)爆发后的持续封锁，积怨成仇的市民开始在社交媒体上发布一系列抗议视频。
 
-据每日星报4月16日报道，一只名为Patron的著名乌克兰扫雷犬，已经帮助乌克兰紧急服务部门清除了俄罗斯军队留下的“数百枚地雷”。
+正常情况下，抗议政策内容的帖子不会逃过强大的，被称作”长城防火墙”政府审查系统。然而，视频的数量如此之多，审查系统无法跟上。抗议视频开始在私人聊天群中传播，审查工作更加困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-166.png)Patron通过嗅出从矿井内部泄漏的爆炸物和其他化学物质的气味来工作。（图片来每日星报）
+这些视频揭示了封锁区缺乏食物和用品，隔离检疫设施条件恶劣，以及人们寻求治疗的呼喊。
 
-Patron是一个可爱的两岁半的杰克罗素㹴犬（Jack Russell Terrier），在六个月大的时候就开始了它的扫雷生涯。它现在与乌克兰紧急服务部门一起工作，清除在基辅以北的切尔尼戈夫地区的地雷。
+下跪只能受辱，站起才是出路！
 
-该部门工作人员称，“俄罗斯的军队在撤退时，大规模埋伏了国际法所禁止的诱杀装置，甚至在食品设施，房屋和死难者尸体上。“
+信息来源： 
+[上海ロックダウン、市民の抗議動画次々と拡散　検閲追い付かず – BBCニュース](https://www.bbc.com/japanese/video-61125391)
 
-扫雷犬是通过嗅出设备内部泄漏的爆炸物和其他化学物质的气味来排雷的。狗大脑中的嗅觉中枢十分发达，比人类的嗅觉敏感40倍左右。杰克罗素梗犬更是其中的佼佼者。
-
-参考链接：
-[https://reurl.cc/Dynek5](https://reurl.cc/Dynek5)
-
-总编：老孙
-校对发布：爱放飞
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
