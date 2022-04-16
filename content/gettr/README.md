@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 4:18 AM (UTC)`
+
+04.15.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group45/origin/2022/04/16/04/9bb465e9-deac-bf69-3604-540d8c28380a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 4:06 AM (UTC)`
 
 【Ukraine Rescue】04/15/2022 A self-media person from Brazil is amazed by the NFSC and ROLF’s strong financial ability and high-quality volunteers, the NFSC is able to set up the largest and most well-equipped tent in the entire camp within two days. Volunteer Nicole tells him that if large Western companies want to gain access to the huge market of 1.4 billion Chinese, they must cut ties with the CCP and stand with the NFSC to destroy the CCP. The CCP does not represent the Chinese people. He says he will help spread the news about the NFSC in Brazil.<br/><br/>【乌克兰救援】04/15/2022 一个巴西的自媒体人惊叹于新中国联邦法治基金的强大财力和义工们一流的素质──能够在两天之内建起了整个营地最大、设施最完善的帐篷！义工妮可告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起。中共不代表中国人。他表示会在巴西帮助传播新中国联邦。<br/>
@@ -151,13 +158,6 @@ A volunteer from Mozambique, Africa supports us to take down the Chinese Communi
 
 4/15/2022 Miles Guo: the CCP launched its “Son of Taiwan” action starting from today, as it did to Mr. Pompeo’s Taiwan visit, the CCP will cause shut-down of Taiwan’s water and power supplies, transportation, airports and Internet to further stir up chaos and civil commotion in Taiwan so that the CCP can take advantage to take over Taiwan<br/><br/>4/15/2022 文贵紧急直播的第三个原因：中共从今天开始已启动”台湾之子”计划，如同上次蓬佩奥访问台湾期间出现停电一样，中共会让台湾水电供应、交通、机场、网路等停摆，引起社会内乱，趁机拿下台湾<br/>
 ![img](https://media.gettr.com/group16/getter/2022/04/15/22/09b5cc3d-03a3-11aa-ea2b-74d893a3acdd/out.jpg)
-
----
-
-`@miles 4/15/2022 10:23 PM (UTC)`
-
-4/15/2022 Miles Guo: Has the CCP shipped supplies to Russia? How did it do so? The CCP has been delivering strategic supplies to Russia and carrying back oil via the so-called “China-Europe Railway Express” to assist evil nations to evade America’s sanctions; CCP asks its Lao Baixing and its Party members to obey rules, but it never believes in the rule of law, or international laws<br/><br/>4/15/2022 文贵直播：中共给俄罗斯运送物资不？咋运的？中共通过所谓的中欧铁路频繁运送战略物资和石油，帮助邪恶国家逃避美国制裁；共产党让老百姓和党员讲规矩，自己却从不相信法律、更不要说国际法
-![img](https://media.gettr.com/group29/getter/2022/04/15/22/a17a5368-f69e-cbf3-1f0e-4a856b1de615/out.jpg)
 
 ---
 
