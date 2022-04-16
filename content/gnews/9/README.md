@@ -2,37 +2,49 @@
 ---
 
 
-## 全球最大的暗网市场Hydra被捣毁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354594/)
+## 美国准备采取行动来打击俄罗斯逃避制裁的行为
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2354605/)
 
-作者：雅典娜农场-小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-根据COINGEEK 4月14日报道，美国和德国当局联手扳倒了被称为世界上最大的暗网市场的Hydra。在过程中查获了价值超过2500万美元的比特币。
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-319.jpg)图片来自网络
+《路透社》近日报道，美国总统乔-拜登的国家安全顾问周四表示，美国正在准备新的努力，以打击俄罗斯逃避制裁的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-15-221739.png)图片源自网络
+国家安全顾问杰克-沙利文在华盛顿经济俱乐部接受采访时说：”在未来的日子里，我们的重点将是逃避制裁。
 
-美国司法部与德国当局联手进行了长达八个月的调查。德国美因河畔法兰克福检察院、打击网络犯罪中央办公室（ZIT）和联邦刑事警察局（BKA）宣布查获了支持Hydra的服务器基础设施以及543.3个比特币。
+他说：”我认为我们将在未来一两个星期内宣布一些消息，确定在俄罗斯境内外试图促进这种逃避行为的目标，”他说，但没有给出未来计划的细节。
 
-Hydra于2015年推出，总部设在俄罗斯。据报道，俄罗斯当局一直不愿意与国际同行合作，以扳倒该平台。
+但沙利文确实说，华盛顿并不希望归还从他们认为与普京有关系的寡头手中没收的游艇和其他资产。
 
-Hydra的用户可以买到几乎任何非法的东西，从LSD和海洛因等非法毒品到假的身份证件和黑客工具和服务。供应商还提供洗钱和套现服务，使买家可以将他们的比特币转换成各种形式的货币。Hydra还拥有自己的内部币种混合服务，以便在用户提取资金时进一步混淆被盗比特币的路径。
+他说：”总统正在积极研究我们如何处理这样一个事实，即在我们扣押这些资产时，我们的目标不是把它们归还。
 
-美国司法部估计，在2021年，Hydra占了大约四分之三的数字货币相关交易。 除了扣押之外，美国司法部还宣布对30岁的俄罗斯国民德米特里·奥列戈维奇·巴甫洛夫 (Dmitry Olegovich Pavlov) 的洗钱和串谋分发毒品的串谋指控。德米特里负责维护Hydra运作的服务器。截至记者发稿时，还没有人被逮捕。
+“我们的目标是将它们用于比归还更好的用途。但我今天说话会很谨慎，因为围绕我们最终如何处理这个问题，有一个持续的制定某种政策的过程。但请放心，目标不是扣留一段时间再全部还回去。”
 
-美国财政部紧随其后，宣布对Hydra和相关的数字货币交易所实施制裁，据称这些交易所促进了市场的活动。
+**武装乌克兰**
 
-【参考来源】[https://coingeek.com/world-largest-darknet-market-hydra-brought-down-543-btc-seized/](https://coingeek.com/world-largest-darknet-market-hydra-brought-down-543-btc-seized/)
+他还说，俄罗斯破坏有利于乌克兰的武器转让的任何努力都可能使与西方的对峙升级。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+“美国没有在乌克兰境内行动，因此，如果俄罗斯明显要打击组装物资的北约领土，将援引第5条，会完全颠覆游戏规则。”
 
-编辑/校对/发稿：Daxia
+北约宪章第5条规定，对军事联盟的一个成员的攻击就是对其所有成员的攻击。该条款只被援引过一次，即2001年9月11日对美国的袭击之后。
 
-**更多资讯，更多关注**
+沙利文说，周四乌克兰声称对一艘俄罗斯导弹巡洋舰的袭击打击了俄罗斯。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+“我们连夜与乌克兰人进行了联系，他们说他们用反舰导弹袭击了这艘船，”他说。”我们目前没有能力独立核实这一点，但当然，从这一事件的发展来看，这对俄罗斯是一个很大的打击。”
+
+然而，俄罗斯国防部说，其黑海舰队的旗舰莫斯科号导弹巡洋舰在舰上的弹药爆炸后发生了火灾，但没有提到袭击事件。路透社无法核实双方的声明。
+
+该舰在美国官员的评论后沉没。
+
+沙利文拒绝讨论是否有美国高级官员将很快访问基辅，因包括英国首相约翰逊在内的其他国家领导人最近访问了基辅。 他警告说，乌克兰的战斗可能会持续数月或更长时间。
+
+参考链接：
+
+[https://www.reuters.com/world/us-preps-new-effort-crack-down-russian-sanctions-evasion-official-2022-04-14/](https://www.reuters.com/world/us-preps-new-effort-crack-down-russian-sanctions-evasion-official-2022-04-14/)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

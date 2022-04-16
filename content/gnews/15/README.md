@@ -2,26 +2,22 @@
 ---
 
 
-## 乌总统要求俄支付战争赔款
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354549/)
+## 出于对俄罗斯和中共的担忧，日本加强与意大利的军事合作
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354579/)
 
-作者：MOS- 柳是多水土透
+作者：纽约香草山-文希
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-战争开始7周后，基辅和西方政府正在计划如何让莫斯科支付战争赔款。普京在2月24日开始入侵乌克兰，造成了大量人员伤亡和基础设施的破坏。除非物质社会伤害外，专家估计损失在7000至1万5000亿美元之间 。
+据共同社4月13日消息报道，日本防卫相岸信夫12日晚在防卫省与意大利国防部长洛伦佐·盖里尼（Lorenzo Guerini）举行了视频会谈，因日本担心俄罗斯入侵乌克兰及其对亚洲的影响而扩大与欧州的安全关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-162.png)图片源自网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-72.png)图片源自网络
 
-则连斯基上月告知莫斯科，他要求侵略国支付账单，“你将要修复每一幢房屋，每一条街道，每一个城市，你将报销所有账单，包括你对我国，每一个乌克兰人带来的损失” 。
+双方围绕俄罗斯进攻乌克兰的局势展开讨论。岸信夫谴责俄军在乌克兰的暴行称杀害平民是严重违反国际人道法的行为绝不容忍，意大利是七国集团（G7）和北大西洋公约组织（NATO）成员国，两位防长都一致认为，俄罗斯入侵乌克兰破坏了欧洲以及亚洲的国际秩序基础，是“绝对不能允许的”，拥有共同基本价值观的国家，必须团结一致，坚决采取行动。”双方都同意加强安全关系，并讨论了在发展国防设备方面的可能合作。
 
-有分析人士认为，西方已经有能力要求赔付。“在历史上，战争赔款在对立结束后，由战争发起国支付”，布鲁金斯学会的Robert Litan说到，“就像德国在两次世界大战之后的那样，法兰西在战后，赔付了欧洲多国拿破仑所造成的伤害”。
+岸信夫表示，中共在印太地区日益强势的军事活动加剧了紧张局势，近年来，日本大幅扩大了与美国及其他亚太地区和欧洲伙伴的安全会谈和联合演习，这些国家与日本一样对中共在亚太地区的领土主张表示担忧。
 
- “现在，众多政府已经扣押了俄罗斯存放在海外的外汇储备，意味着对乌克兰赔款已经先期到位” 。
+该地区拥有全球最繁忙的一些海上通道。尤其担心中共军队和海警在东中国海日本控制的尖阁诸岛附近的活动，中共把这组无人居住的小岛称为钓鱼岛，并声称对其拥有主权。
 
-一些欧盟官员正在考虑，将冻结的俄寡头财产用至乌克兰重建项目。更大部分的金额是俄联邦央行存在外国银行中的储备金，但收缴将面临司法挑战。Amsterdam Center for International Law的法律教授Stephan Schill说到，“国际法对外国政府财产有特殊保护” 。
-
-面对法律问题，最快的方法可能是新的马歇尔计划，欧盟预算委员Johannes Hahn建议道，马歇尔作为美国防长，曾以大量贷款资助战后欧洲重建。“帮助乌克兰快速重建，需要全球一起努力，一个新的马歇尔计划”。
-
-【参考链接】 [https://justthenews.com/world/europe/how-wrest-war-reparations-russia-ukraine-and-west-count-ways](https://justthenews.com/world/europe/how-wrest-war-reparations-russia-ukraine-and-west-count-ways)
+【新闻链接】 [https://descargitas.com/%E4%B8%AD%E4%BF%84%E6%8B%85%E5%BF%A7%E6%97%A5%E6%9C%AC%E6%84%8F%E5%A4%A7%E5%88%A9%E8%A7%A3%E9%99%A4%E5%AE%89%E5%85%A8%E5%85%B3%E7%B3%BB/](https://descargitas.com/%E4%B8%AD%E4%BF%84%E6%8B%85%E5%BF%A7%E6%97%A5%E6%9C%AC%E6%84%8F%E5%A4%A7%E5%88%A9%E8%A7%A3%E9%99%A4%E5%AE%89%E5%85%A8%E5%85%B3%E7%B3%BB/)
 
 ![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
@@ -33,8 +29,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

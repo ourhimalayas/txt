@@ -2,38 +2,38 @@
 ---
 
 
-## 芬兰瑞典拟加入北约，俄威胁向波罗的海部署核武器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354488/)
+## 乌总统要求俄支付战争赔款
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354549/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：MOS- 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+战争开始7周后，基辅和西方政府正在计划如何让莫斯科支付战争赔款。普京在2月24日开始入侵乌克兰，造成了大量人员伤亡和基础设施的破坏。除非物质社会伤害外，专家估计损失在7000至1万5000亿美元之间 。
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-162.png)图片源自网络
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1965.png)
+则连斯基上月告知莫斯科，他要求侵略国支付账单，“你将要修复每一幢房屋，每一条街道，每一个城市，你将报销所有账单，包括你对我国，每一个乌克兰人带来的损失” 。
 
+有分析人士认为，西方已经有能力要求赔付。“在历史上，战争赔款在对立结束后，由战争发起国支付”，布鲁金斯学会的Robert Litan说到，“就像德国在两次世界大战之后的那样，法兰西在战后，赔付了欧洲多国拿破仑所造成的伤害”。
 
-4月16日，据天空新闻报道，当两个北欧国家表示可能加入北约，普京的盟友梅德韦杰夫警告，莫斯科可能会下令在欧洲地区部署核武器。
+ “现在，众多政府已经扣押了俄罗斯存放在海外的外汇储备，意味着对乌克兰赔款已经先期到位” 。
 
-当俄罗斯入侵乌克兰改变了欧洲的整个安全格局，北欧国家普遍改变了以往的思维方式，芬兰和瑞典强烈表示希望成为北约成员。
+一些欧盟官员正在考虑，将冻结的俄寡头财产用至乌克兰重建项目。更大部分的金额是俄联邦央行存在外国银行中的储备金，但收缴将面临司法挑战。Amsterdam Center for International Law的法律教授Stephan Schill说到，“国际法对外国政府财产有特殊保护” 。
 
-芬兰总理桑娜·马林表示，除了成为北约成员国之外，没有其他方式可以获得安全保障；瑞典首相马格达莱娜·安德森说，她正在分析入侵乌克兰战争爆发以后，如何才能对她的国家最有利。
+面对法律问题，最快的方法可能是新的马歇尔计划，欧盟预算委员Johannes Hahn建议道，马歇尔作为美国防长，曾以大量贷款资助战后欧洲重建。“帮助乌克兰快速重建，需要全球一起努力，一个新的马歇尔计划”。
 
-梅德韦杰夫宣布，如果这些国家加入北约，莫斯科将不得不通过加强其在波罗的海的陆海空力量来“恢复平衡”，“在这种情况下，就不可能再谈论波罗的海的无核地位了。”
+【参考链接】 [https://justthenews.com/world/europe/how-wrest-war-reparations-russia-ukraine-and-west-count-ways](https://justthenews.com/world/europe/how-wrest-war-reparations-russia-ukraine-and-west-count-ways)
 
-近几十年来，瑞典和芬兰一直保持中立，因为两国都避免与俄罗斯的关系搞僵，但在入侵战争爆发后情况发生了变化。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-上周，包括澳大利亚等盟国在内的北约国家外长举行会议，讨论瑞典和芬兰加入的可能性。
+编辑/校对/发稿：Daxia
 
-国防和安全分析师杰辛塔卡罗尔表示，这两个北欧国家表示有意加入北约，标志着俄罗斯的惨败。
+**更多资讯，更多关注**
 
-参考链接：[Dmitry Medvedev suggests Moscow will send nuclear weapons to Baltic region over Finland, Sweden NATO membership | Sky News Australia](https://www.skynews.com.au/world-news/global-affairs/dmitry-medvedev-suggests-moscow-will-send-nuclear-weapons-to-baltic-region-over-finland-sweden-nato-membership/news-story/fcf93eec4bbb7578780a1eea762876d1)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
