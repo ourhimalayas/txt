@@ -2,25 +2,21 @@
 ---
 
 
-## 加拿大安省进入第六波疫情
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353655/)
+## 拜登在谴责普京时避谈中共对维吾尔族的种族灭绝
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353671/)
 
-作者：加拿大温哥华扬帆农场-自由法兰西
+作者：加拿大温哥华扬帆农场-晨熹
 
-- ![安省发布最新疫情建模数据：Omicron 在安省已趋于平稳，但预计COVID-19 住院人数将“延长高峰”！-加拿大省钱快报Dealmoon.ca 攻略](http://imgcache.dealmoon.com/thumbimg.dealmoon.com/dealmoon/fbc/86d/fa4/e0c9c6808adb3ebcd2875e0.jpg_1280_1280_3_6e1c.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1931.png)图片来源：BREITBART
 
 
-加拿大CTV新闻4月13日报道，由于安省缺乏PCR测试，卫生部门已转用包括对废水分析在内的其它数据来追踪病毒传播情况，通过定期重复采样，能够非常准确地计算出废水中的病毒浓度。
+据【布赖特巴特】4月13日报道， 周二，拜登总统谴责普京在乌克兰的战争是“种族灭绝罪”，这比他之前在试图解释中共独裁习近平对维吾尔族穆斯林的种族灭绝要严厉得多。他说：“越来越清楚的是，普京只是想灭绝乌克兰人。” 尽管普京曾辩称，乌克兰不是一个合法国家，它是由俄共创造的，说他们从来没有稳定的国家传统。
 
-数据分析显示，安省目前正经历着病毒感染的回升，病毒标准化浓度恢复到了圣诞前后水平，且所有公共卫生单位都出现了同样的峰值，这表明第六波病毒传播不受地域限制。
+与乌克兰情况不同，国际人权学者同意中共在东突厥斯坦对穆斯林族群进行绝育、杀害、奴役和文化灌输是一场种族灭绝。前任国务卿庞培奥和现任国务卿布林肯都曾公开声称中共在该地区对维吾尔和其他族裔所犯的罪行是种族灭绝。但拜登很少提及，并且一直不愿用类似语言来谴责中共的暴行。
 
-多伦多现在收集的样本中有90%以上是Omicron亚变体BA.2，这种 隐形亚变体比其他Omicron菌株更具传播性，很快就会占到所有感染的一半。
+新闻来源：[https://www.breitbart.com/politics/2022/04/13/joe-biden-personally-silent-on-xi-jinpings-genocide-as-he-berates-vladimir-putin/](https://www.breitbart.com/politics/2022/04/13/joe-biden-personally-silent-on-xi-jinpings-genocide-as-he-berates-vladimir-putin/)
 
-分析表明，安省目前正在经历的第六波传播不单是由变体快速传播引起，更由可能是政策变化导致。废水中病毒标准化浓度在2月和3月初曾持续下降，然后猛然上升，取消口罩规定和公众信息变化是潜在原因，这表明人们放松了警惕，而变种病毒正在席卷而来。
-
-原文链接：[https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978](https://toronto.ctvnews.ca/what-is-wastewater-actually-telling-us-about-covid-19-in-ontario-1.5859978)
-
-采编：青青， 编辑发稿：硫酸羟氯喹64
+采编：青青，编辑发稿：硫酸羟氯喹64
 
  
 

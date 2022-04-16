@@ -2,36 +2,23 @@
 ---
 
 
-## 全球疫情疫苗数据更新（4.15）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353946/)
+## 俄罗斯边境国家领导人到访乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353950/)
 
-**整理：枳实
-美工：精灵蓝**
+作者：加拿大温哥华扬帆农场-晨熹
 
-雅典娜疫情更新（2022年 4月15日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-50.png)
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1950.png)图片来源：推特
 
 
+据【CTV NEWS】4月13日报道，处于俄罗斯边境的四个国家领导人周三到访了乌克兰，表达对乌克兰的支持，他们看到了俄军在那里所犯的罪行，并要求追究战争责任。
 
+波兰、立陶宛、拉脱维亚和爱沙尼亚总统的到访是来自北约东翼国家的强烈声援，其中三个国家也曾是前苏联的一部分。领导人们到访基辅，会见泽连斯基，并访问了基辅附近的博罗江卡，这是乌克兰遭俄军炮火严重袭击的重要城镇之一。
 
+四位总统重申在政治、军事援助上支持乌克兰的承诺，并呼吁采取更严厉的制裁措施，包括对俄石油和天然气运输以及对俄所有银行进行制裁。
+
+新闻来源：[https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912](https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912)
+
+采编：青青，编辑发稿：硫酸羟氯喹64
 
  
 
