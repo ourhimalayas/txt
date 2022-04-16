@@ -2,37 +2,20 @@
 ---
 
 
-## 因中共国“清零”政策，苹果组装商暂停iPhone生产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2356426/)
+## 乌克兰军方声称“莫斯科”号军舰在被击中时开始下沉
+` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2356366/)
 
-据《Zerohedge》记者：Tyler Durden，2022年4月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1987.png)图片来源：WSJ
-由于中共国新冠“清零”政策，上海供应链再次变得拥挤，该政策关闭工厂并使数百万人处于封锁状态。
+作者：一念
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1983.png)
+**俄罗斯国防部表示，俄罗斯黑海舰队的旗舰“莫斯科号”军舰上的火势“已得到控制”。**
 
-据《彭博社》报道，iPhone组装商和硕是最新一家暂停上海和附近昆山工厂生产的公司，遵守当地政府的卫生要求，以缓解两年来最严重的病毒爆发 。
+据报道，周三深夜这艘船在黑海被两枚乌克兰导弹击中。战争开始时，乌克兰军队在蛇岛的反抗是出了名的。俄罗斯国防部在一份声明中说：巡洋舰莫斯科号的火势已得到控制。没有可见的火焰，供应的弹药不再爆炸。巡洋舰莫斯科号仍在漂浮，主要导弹库没有损坏。巡洋舰的船员被疏散到附近的黑海舰队船只。正在采取措施将巡洋舰拖入港口。目前正在查明起火原因。该部早些时候曾表示，这艘船是“由于火灾引起的弹药爆炸而严重受损”。
 
-总部位于台湾的和硕在一份证券文件中宣布，两家iPhone工厂的复工都需要获得政府的授权。它表示将与当地卫生官员“积极合作”，以尽快恢复工作，但没有给出时间表。
+然而，**乌克兰南部军事指挥部表示，莫斯科号在被海王星导弹击中后开始下沉。**南方军事司令部在 Facebook 上发帖称，导弹巡洋舰受到“严重损坏”，然后起火。该船组的其他单位试图提供帮助，但风暴和巨多的弹药爆炸将巡洋舰掀翻并开始下沉。
 
-和硕表示，它已经联系了客户和供应商，并评估了两家工厂关闭的影响，但没有详细说明细节。
+排版上传：文勇
 
-和硕的重要之处在于，它是仅次于富士康科技集团的第二大iPhone组装商。上个月富士康被迫停业后，和硕保持在线生产数周。由于上海和邻近的昆山现在都处于严格的封锁状态，顶级生产商关闭业务，因此在中共国的iPhone组装可能会减少。
-
-《彭博社》供应链分析显示，富士康和和硕是iPhone和其他苹果产品的两大生产商。目前还没有关于成品电子产品供应中断的报告。
-
-在季节性基础上，美国公司普遍开始增加夏季的中共国进口。由于工厂关闭、物流网络和港口堵塞，这可能阻碍了对美国的发货。
-
-供应链再次中断，这可能导致美国商店到夏季货架空空如也。咨询公司Trendforce警告说，和硕的库存仅剩几周。
-
-文章来源：[**https://www.zerohedge.com/markets/apple-assembler-pegatron-halts-iphone-production-china-combats-covid-outbreak**](https://www.zerohedge.com/markets/apple-assembler-pegatron-halts-iphone-production-china-combats-covid-outbreak)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+信息来源：https://himoney.press/ukrainian-military-claims-uss-moskva-began-sinking-when-hit/
 
  
 

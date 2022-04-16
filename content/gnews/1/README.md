@@ -2,30 +2,27 @@
 ---
 
 
-## 拒绝前往前线的俄罗斯士兵被俄罗斯指挥官起诉
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2357176/)
+## 樱花时政┃泽连斯基：警惕普京狗急跳墙动用核武！应将俄罗斯列为&#8221;资助恐怖主义国家&#8221;！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357231/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2009.png)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-110.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp5.itc.cn%2Fq_70%2Fimages03%2F20220225%2F05a640b9011641a48724d17efb432ddc.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F525380045_115479&amp;tbnid=BCRo0aV9BOTMbM&amp;vet=12ahUKEwiC_Mev4pj3AhXJz4sBHWsrCYMQMygCe)
 
-（图片来自原文）
+泽连斯基4月15日表示，世界应警惕普京因在乌克兰遭遇军事挫折铤而走险诉诸核武。
 
-乌克兰安全局再次拦截到有关信息，俄罗斯士兵向亲属抱怨在乌克兰的战斗结果令人失望，许多人拒绝上前线。
+这是他自俄罗斯2月24日入侵乌克兰以来发表最广泛的公开评论，凸显1945年以来针对欧洲国家最大规模攻击事件动用核武风险升高的担心。
 
-乌克兰安全局截获的部分内容如下：
+泽连斯基还要求美国将俄罗斯列为”资助恐怖主义国家”；乌克兰国会通过决议认定俄军构成种族灭绝。
 
-“昨天纵队回来了，离这里10公里……两辆虎式装甲车（Tigrs），台风M轮式装甲车（Typhoon），一些其他设备…… “Tigr “是如此的\*\*，”Tigr “的人飞到了4米之外。开放性骨折，根本没法看……
-
-而我们明天或后天将转移到[俄罗斯村庄蒂奥特基诺，将从那里进行重新部署，可能是去顿涅茨克人民共和国。
-
-据在布良斯克地区，跟我们老板斯米尔诺夫在一起的小伙子们讲，那里完全是一团糟：那里的每个人都拒绝离开，没有人愿意离开…….他们（俄罗斯指挥官）正在对不愿去前线的士兵立案，把他们踢出去。”
-
-俄罗斯军人抱怨说，首长觉得他自己是个英雄，正派人开着UAZs去前线，就是为了能派人去，他根本不关心他的士兵。
-
-新闻来源链接：[https://www.pravda.com.ua/eng/news/2022/04/13/7339273/](https://www.pravda.com.ua/eng/news/2022/04/13/7339273/)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

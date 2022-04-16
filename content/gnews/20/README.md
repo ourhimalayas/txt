@@ -2,42 +2,42 @@
 ---
 
 
-## 中共强制清零政策 砸翻大陆爱党名人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356766/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
 
-**撰稿：日本东京方舟农场  子辰**
+整理：枳实
+美工：精灵蓝
 
-自从中共病毒奥米克戎攻陷中共国最大城市上海以后，在中共的强制封城清零政策下，一系列次生灾难也无差别降临到了一些大陆名人、尤其是上海名人头上。他们曾为中共政策唱赞歌。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-327.jpg)（图片来自大纪元）
 
-郎咸平生于台湾，曾执教于香港中文大学，后在中共国大陆发展，主持过多个财经电视节目。郎咸平之前在发微博大赞中共全员核酸检测政策，讴歌上海，称“全国一盘棋，这就是中国力量”。
+雅典娜疫情更新（2022年 4月16日）
 
-郎咸平4月11日发微博说，母亲年纪98岁，这次肾脏有一点点衰竭，按照过去诊断，只要打一针就好，但“上海严格规定必须要做核酸后才能就医，我妈妈在三甲医院当场做的核酸竟然4个小时都没出结果，我深感震惊”，“妈妈在医院急诊室门口等待了4个小时后，永远离我而去了。”
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-郎咸平母亲意外过世让其看到，中共的政策所造成的次生灾难同样会落到他的头上，因此态度也有所转变，开始质疑上海防疫“很多方式方法值得商榷”。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
+数据来源：
 
-徐新2005年创办了今日资本集团，曾被美国《商业周刊》评为“亚洲25位最具影响力的人”，有中共国“女版巴菲特”称号，据2022年胡润富豪榜上显示，徐新目前身家为160亿元（25亿美元）。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-4月7日下午，“风投女王”徐新在网络求购牛奶面包被刷屏。让广大网民匪夷所思之余，也再次认清，中共极权之下，钱并不是万能的，没有任何人有绝对的生命安全。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-中国太平洋证券总裁助理韦桂国，因为上海封城，发病得不到救治，结果在家中病故。韦桂国压根没想到自己在家中脑溢血，是由于自己刚刚大赞的防疫政策导致的。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-韦桂国曾在微信朋友圈称：“我赞成坚持动态清零的策略，执行的战术和管理手段要优化。困难终会过去，但必将有大的收获；带湾湾回家时（指中共武力侵占台湾），全民战争动员也不过如此，漂亮国（指美国）想想只能瞪眼目送。到那时看，现在的困难和成本是最低的。”
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-更有当年的作家六六质疑为武汉发声的作家方方。还在武汉抗疫临近尾声之际，随队赴武汉为中共谱写颂歌。
+[covidlive.com.au](https://covidlive.com.au/)
 
-4月10日六六在朋友圈发长文，讲述自己父母在上海封城期间的遭遇。结果遭受广大网民的回怼。有网友说，“一个人没有同情心，对灾难中的生命保持冷漠状态，他们终将有一天会得到常识的报复。”
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-上海市闵行区司法局法制宣传教育科科长杨华，近日在微博上求救，曝出老母亲常用药告罄，抢菜无门。他说：“我们苦，高龄老人更苦！但等会发布会依然会说‘货源充足’吧？”遭到网民嘲讽说：“作为爱国大V，此时应默默支持党和政府，不要因为一点小问题就发牢骚，搞成网络笑话，记得饿死事小，失节事大。”
+发布：tianzhihuan
 
-面对这些平时所谓的“爱党名人”发出的求救声音。民众认为，“只要铁拳没有打到他们身上，他们就可以无视，并把发声者污蔑为汉奸。他们都是极端的利己主义者，无视他人苦痛，只会谄媚权贵，直到铁拳砸在自己身上…”
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/15/n13712649.htm](https://www.epochtimes.com/gb/22/4/15/n13712649.htm)
-
-总编：老孙
-校对发布：
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
