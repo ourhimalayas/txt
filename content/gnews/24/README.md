@@ -2,24 +2,42 @@
 ---
 
 
-## 泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356721/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
 
-**撰稿：日本东京方舟农场  北极**
+整理：枳实
+美工：精灵蓝
 
-据联合新闻4月16日报道，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelensky）在视频讲话中称，乌克兰将很快完成欧盟成员国候选人资格调查问卷。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-169.png)乌克兰正准备返回欧盟成员国候选人身份调查问卷。（图片来自联合新闻）
 
-国家元首在当天晚上发表了视频讲话，“今天，我们与官员讨论了乌克兰从欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）那里收到的填写调查问卷的工作。这是我国为获得欧洲联盟成员资格候选人地位作准备的必要阶段。这项工作几乎已经完成，我们很快将向欧盟代表发送答复。”
+雅典娜疫情更新（2022年 4月16日）
 
-4月8日，在访问基辅期间，欧盟委员会主席冯德莱恩向泽连斯基提交了一份调查问卷，开启了授予乌克兰欧盟成员国资格的进程。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-参考链接：
-[https://reurl.cc/415YeL](https://reurl.cc/415YeL)
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
+数据来源：
 
-总编：老孙
-校对发布：爱放飞
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,18 +2,20 @@
 ---
 
 
-## 樱花时政┃泽连斯基：警惕普京狗急跳墙动用核武！应将俄罗斯列为&#8221;资助恐怖主义国家&#8221;！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357231/)
+## 中日财经爆┃面对西方制裁 中俄共进一步合作提高铁路货运量
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357283/)
 
-撰稿：东京樱花团/上善若水
+撰稿：东京樱花团/asket
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-110.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp5.itc.cn%2Fq_70%2Fimages03%2F20220225%2F05a640b9011641a48724d17efb432ddc.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F525380045_115479&amp;tbnid=BCRo0aV9BOTMbM&amp;vet=12ahUKEwiC_Mev4pj3AhXJz4sBHWsrCYMQMygCe)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-64.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.bloomberg.com%2Fnews%2Farticles%2F2022-03-23%2Fchina-europe-rail-routes-become-supply-chain-s-latest-problem&amp;psig=AOvVaw10LailKOCzOlEele_tGgQk&amp;ust=1650202387299000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCIDL84zZmPcCFQAAAAAdAAAAABAD)
 
-泽连斯基4月15日表示，世界应警惕普京因在乌克兰遭遇军事挫折铤而走险诉诸核武。
+俄罗斯铁路公司（RZD）周五（4月15日）表示，它已经与中共国的合作伙伴达成协议，逐步增加通过连接站的货运列车的数量。
 
-这是他自俄罗斯2月24日入侵乌克兰以来发表最广泛的公开评论，凸显1945年以来针对欧洲国家最大规模攻击事件动用核武风险升高的担心。
+“4月份，俄罗斯和中共国之间的铁路货物转运在扎巴伊尔斯克（Zabaykalsk）每月增加27%，在格罗德科沃（Grodekovo）增加10%，”RZD说，”通过哈萨克斯坦和蒙古到中国的出口货物运输也在增长。”
 
-泽连斯基还要求美国将俄罗斯列为”资助恐怖主义国家”；乌克兰国会通过决议认定俄军构成种族灭绝。
+该公司指出，除了煤炭数量不断增长外，其他类型的货物也通过贝加尔-阿穆尔（BAM）和西伯利亚大铁路发送。与去年相比，提交的通过这些铁路运输的申请数量增加了近30%。在2022年第一季度，超过3500辆重型列车和1700辆连接列车通过两国供应链的战略路线运输货物。RZD表示，新增货物量超过600万吨。
+
+信息来源：** **[**Russia, China to boost freight rail traffic**](https://thepressunited.com/updates/russia-china-to-boost-freight-rail-traffic/)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

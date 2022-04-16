@@ -2,27 +2,32 @@
 ---
 
 
-## 有声｜莫斯科号的损失严重打击了俄军威信
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2356433/)
+## 中日财经爆┃中共封控上海 日企遭受打击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356470/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/喜马拉雅的微尘
 
-**2022-04-16**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/416-9.jpg)
-[《卫报》](https://www.theguardian.com/world/2022/apr/15/loss-of-moskva-strikes-serious-blow-to-russian-militarys-prestige)4月15日报道，在黑海沉没的莫斯科号战舰，对普京和其军队的威望造成极大打击。
+由于上海疫封城持续，日本企业受到的打击日益扩大。不仅在当地业务停滞，而且供应链断裂导致马自达和三菱等多家公司在日本本土的生产也遭受冲击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-88.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn-japantimes.com/wp-content/uploads/2021/05/np_file_90234-scaled.jpeg&amp;imgrefurl=https://www.japantimes.co.jp/news/2021/05/31/business/corporate-business/electronics-earnings-gap/&amp;tbnid=qZxGGeAL_3Lx_M&amp;vet=12ahUKEwia6ensq5j3AhX7TPUHHaRCC_kQxiAoCnoECAAQHQ..i&amp;docid=2CXBlyupiZ26hM&amp;w=2560&amp;h=1706&amp;itg=1&amp;q=sony%20japan%20factory&amp;ved=2ahUKEwia6ensq5j3AhX7TPUHHaRCC_kQxiAoCnoECAAQHQ)
+在中国运营逾300家店铺的“无印良品”目前约50家店铺暂停营业。该公司14日列举中国业务作为理由之一，下调了全财年（2021年9月～2022年8月）的业绩预期。
 
-事件一开始，俄政府就淡化处理。起初，俄罗斯国防部声称是一场事故导致了船上起火。然后，国防部称损失已被控制，该船正被拖到塞瓦斯托波尔的港口。最后，在周四晚些时候，国防部宣布该船在风暴中沉没。
+迅销公司截至14日，上海的共86家优衣库和共8家GU店铺已全部停业。
 
-即使国家电视台的评论员试图将莫斯科号的损失说成是暂时的挫折，俄罗斯人也意识到发生了严重的事情。
+罗森在上海市有约1000家便利店，8～9成处于停业状态。一部分店铺为了支撑市民生活，仅继续提供配送服务。
 
-乌克兰声称它用一枚海王星反舰导弹击中了莫斯科号。俄罗斯媒体没有公布该舰或其船员的照片。一些西方媒体报道称，在该船沉没时，估计500名船员中只有几十人获救。俄罗斯没有公布伤亡信息。
+索尼、三菱电机、夏普等制造业方面，当地工厂长期停工。从当地供应商采购零部件的工作滞后，马自达4月在总部工厂（广岛县府中町）和防府工厂（山口县防府市）停工了共8天。三菱汽车11～15日停止了冈崎制作所（爱知县冈崎市）的生产，还让员工暂时歇业。
 
-（秘密翻译组  大树  编译报道）
+据全日本空输和日本航空透露，上海航线的货运航班已部分停飞。据称是因为无法确保足够的装卸货和机修人员。此类航班从日本向上海运送半导体相关货物，从上海向日本运输电子零部件等。
 
-发布 : 文橙
+根据郭文贵先生爆料，中共计划以腰斩自己的经济和攻打台湾，来打垮西方经济和美元体系，用“比烂”和“比谁更扛饿”的套路来彻底干掉西方，至少让西方无力干预其继续奴役中国人民。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
+此次上海封城使得众多日企遭受打击，这让人深感遗憾，但或许也会让日企对中共有更清醒的认识，从而更快速更果决地做出应有的选择和行动。
+
+信息来源：[日本企业因上海封控日益遭受打击](https://china.kyodonews.net/news/2022/04/860ec62a28a0.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

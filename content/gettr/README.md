@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 2:48 PM (UTC)`
+
+新中国联邦｜真人真事 第49期 乌克兰救援特辑    明道
+![img](https://media.gettr.com/group44/origin/2022/04/16/14/ccf0a4dc-22c2-b1e1-4d3e-466eb8b98d8f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 2:09 PM (UTC)`
 
 2022.04.16早  7哥乱聊直播
@@ -150,14 +157,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 
 【Ukraine Rescue】04/14/2022 A Turkish reporter was attracted by the slogan in our Medyka tent, “We are the new Chinese who are taking down the Evil Chinese Communist Party.“ Although the Turkish reporter thinks that politics should be avoided at this time, when he hears that the big tent of the big tent of the New Federal State of China has taken in over 10,000 Ukrainian refugees, his face shows a look of disbelief and he has to say with admiration how well it was done!<br/><br/>【乌克兰救援】04/14/2022 一位土耳其记者被我们帐篷里的标语“我们是消灭中共的新中国人“所吸引。尽管这位土耳其记者认为此时应该回避政治，但当他听说新中国联邦大帐篷已经接收超过万名乌克兰难民，他的脸上还是露出了不可思议的表情，不得不佩服地说做得太好了！
 ![img](https://media.gettr.com/group16/getter/2022/04/16/02/dd2fb3f9-d1e8-ffab-544d-5ffa142b92bd/out.jpg)
-
----
-
-`@miles 4/16/2022 2:03 AM (UTC)`
-
-🔺
-> `@lu_lu 4/7/2022 1:02 PM (UTC)`<br/>#周末夜话 敢说真话的孙海英(二)<br/><br/>（关于“长津湖”票房）那是什么东西，你还夸要呢！胡编的一个故事……真的历史你敢拍么？
-![img](https://media.gettr.com/group24/getter/2022/04/07/13/ce470c29-65af-07fb-91eb-3907abb38ead/out.jpg)
 
 ---
 
