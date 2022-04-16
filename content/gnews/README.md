@@ -15,64 +15,64 @@
 
 ---
 
-### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/1/README.md)
- ` G-时新闻`
-
-### [DC大中华时事：很多国家都“躺平”了，我们为何还“动态清零”？](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [出于对制裁的担忧，中海油将退出加拿大](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [Bison Bank 成为葡萄牙第一家获得加密许可证的银行](/content/gnews/4/README.md)
- ` 纽约香草山MOS02`
-
-### [美财长提醒中共：在阻止俄军入侵和失去世界地位之间做出选择](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [2022/04/16 文贵先生直播精要](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/7/README.md)
+### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [郎咸平老母离世，只因苦等核酸耽误就医](/content/gnews/8/README.md)
- ` GTV News Talk`
+### [特鲁多政府新冠恐慌性购买丑陋行径](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/9/README.md)
+### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [DC大中华时事：很多国家都“躺平”了，我们为何还“动态清零”？](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [出于对制裁的担忧，中海油将退出加拿大](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [Bison Bank 成为葡萄牙第一家获得加密许可证的银行](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [美财长提醒中共：在阻止俄军入侵和失去世界地位之间做出选择](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2022/04/16 文贵先生直播精要](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [教皇出席但不主持复活节守夜仪式](/content/gnews/10/README.md)
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/11/README.md)
  ` Shuizhuyu`
 
-### [截至4.16 俄乌战事汇总](/content/gnews/11/README.md)
+### [截至4.16 俄乌战事汇总](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/12/README.md)
+### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节](/content/gnews/13/README.md)
+### [所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/14/README.md)
+### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城](/content/gnews/15/README.md)
+### [4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/16/README.md)
+### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/17/README.md)
+### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/18/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/18/README.md)
+### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [马斯克将以430亿美元收购推特](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [美台两国启动士官交流计划](/content/gnews/20/README.md)
+### [马斯克将以430亿美元收购推特](/content/gnews/20/README.md)
  ` NFSC News`
 
 ### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/21/README.md)

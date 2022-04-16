@@ -2,18 +2,20 @@
 ---
 
 
-## 美财长提醒中共：在阻止俄军入侵和失去世界地位之间做出选择
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358098/)
+## 出于对制裁的担忧，中海油将退出加拿大
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358125/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：风云小哥、撰稿：晨熹
+##### 作者：加拿大温哥华扬帆农场 – 活力人生
 
-据【今日】4月13日报道，美财长珍妮特·耶伦周三表示，中共国应该帮助结束俄罗斯在乌克兰“令人发指的战争”，否则将失去其世界地位，并警告那些试图破坏西方制裁的人将面临经济后果。美国总统拜登早前曾对中共发出了类似的警告。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2023.png)
-耶伦认为中共国和西方将越来越难把经济问题与国家安全问题分开。她表示如果中共国不尊重乌克兰，那么就不能指望世界会尊重北京未来关于主权和领土完整的任何呼吁。她还表示美国要与中共努力合作，以免出现民主与专制对立的两极全球金融体系。此外她也表达了对中共严格封锁将导致供应链中断，损害世界经济的担心。
+据【路透社】4月13日报导，因为担心成为西方制裁的目标，中国国营企业，也是最大的海上石油和天然气生产商中海油正准备退出其在加拿大、英国和美国的业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2024.png)
+中海油在 2013 年通过收购加拿大尼克松能源公司进入以上三国市场，并因此拥有包括北海、墨西哥湾和加拿大大型油砂专案油田的股份，每天生产约 220,000 桶石油当量。
 
-耶伦此番讲话是在国际货币基金组织和世界银行成员国下周春季会议召开前发表的。
+近年来，中国与西方之间的关系日益紧张。2021 年 10 月，中海油被美国纽约证券交易所强制退市，同年 12 月，中海油从加拿大多伦多证券交易所退市。中海油表示，“如果政策发生变化，我们无法预测公司或其关联公司和合作伙伴未来是否会受到制裁的影响。”
 
-新闻来源：[https://www.todayonline.com/world/yellen-china-help-stop-russias-war-ukraine-or-lose-standing-world-1872971](https://www.todayonline.com/world/yellen-china-help-stop-russias-war-ukraine-or-lose-standing-world-1872971)
+新闻连结：
+
+[https://www.reuters.com/business/energy/exclusive-chinas-oil-champion-prepares-western-retreat-over-sanctions-fear-2022-04-13/](https://www.reuters.com/business/energy/exclusive-chinas-oil-champion-prepares-western-retreat-over-sanctions-fear-2022-04-13/)
 
 上传/发稿 – 文永
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 9:36 PM (UTC)`
+
+4/16/2022 Miles Guo: I am calling out fellow fighters to collect and provide the dossiers and interrogation files of the running dogs of the CCP, such as Jack Ma, Bruno Wu, Meng Jianzhu, Fu Zhenghua, Sun Lijun, Weijian Shan, and so on. The New Federal State of China will be rewarding anyone who can obtain and provide those documents.<br/><br/>4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案；新中国联邦会给提供信息的战友巨额奖励<br/><br/>
+![img](https://media.gettr.com/group43/getter/2022/04/16/21/996b5b71-e48e-073d-7e0f-92ad14bb79e0/out.jpg)
+
+---
+
+`@miles 4/16/2022 9:31 PM (UTC)`
+
+【Ukraine Rescue】04/15/2022  Jewish volunteers say that this tent provided by the New Federal State of China should be called the liberation tent, because we're helping the Ukrainian refugees to escape from the war to embrace freedom. And the Rule of Law Foundation is also helping the 1.4 billion Chinese people to be freed from the slavery by the Chinese Communist Party. And then the Jewish people have a great example, great success of being freed from the Egyptians, and fighting for freedom again in the Holocaust during the Second World War  in Poland. And today,  the new Chinese are taking down the CCP. <br/><br/>【乌克兰救援】04/15/2022 犹太义工说，新中国联邦提供的这个帐篷应该叫‘解放帐篷’，因为我们正在帮助乌克兰难民逃离战争，拥抱自由。而法治基金会也在帮助14亿中国人民摆脱中共的奴役。犹太人是一个很好的先例，成功从埃及人的奴役中解放出来；然后是二战时波兰人与纳粹的战斗；今天是新中国人正在推翻中共。
+![img](https://media.gettr.com/group44/getter/2022/04/16/21/49c5881c-969e-e440-d651-f16858fd4220/out.jpg)
+
+---
+
 `@miles 4/16/2022 9:12 PM (UTC)`
 
 4/16/2022 Miles Guo: The New Federal State of China is grateful for what our fellow fighters in Changchun, northeast China, did to help each other. Thanks to our fellow fighters in Shanghai for providing important intelligence regarding governmental actions and helping other fellow fighters’ families in smart ways. However, everyone should remember that no one is obligated to help anyone else. Don’t take other fellow fighters’ help for granted.<br/><br/>4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的<br/>
@@ -148,20 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
  4月16号：和平稳定的吉林省．还有长春都变成了如此不堪的样子，加油，这个词是给失败者送葬的形容词，却在中国变成了解决痛苦，掩盖灾难．<br/><br/>推卸责任的代名词，而且成为国家忽悠老百姓的专用词。现在中国清明节不让烧纸了，但可以喊加油加油！难道．坟墓里的人也需要这种加油的政治口号的鼓励么？担心他们从墓地跑出来吗？这个国家是不是已经精神错乱了？
 ![img](https://media.gettr.com/group13/getter/2022/04/16/16/dd8b0af2-1950-d81e-017c-b9894042e3ab/out.jpg)
-
----
-
-`@miles 4/16/2022 2:48 PM (UTC)`
-
-新中国联邦｜真人真事 第49期 乌克兰救援特辑    明道
-![img](https://media.gettr.com/group44/origin/2022/04/16/14/ccf0a4dc-22c2-b1e1-4d3e-466eb8b98d8f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 2:09 PM (UTC)`
-
-2022.04.16早  7哥乱聊直播
-![img](https://media.gettr.com/group49/origin/2022/04/16/14/c55b74b3-1ff4-f58d-3ea4-6979b6b90e78/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
