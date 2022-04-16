@@ -21,134 +21,134 @@
 ### [COVID-19疫苗副作用集萃（2022.04.16K）——接种疫苗后出现了浑身发冷、酸痛和嗜睡的症状](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本东京樱花团 中文新闻播报第51期](/content/gnews/3/README.md)
+### [视频|行善不问结果](/content/gnews/3/README.md)
+ ` KarmaLabs`
+
+### [日本东京樱花团 中文新闻播报第51期](/content/gnews/4/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声｜美国将恢复对石油和天然气租赁业务](/content/gnews/4/README.md)
+### [有声｜美国将恢复对石油和天然气租赁业务](/content/gnews/5/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [大直播后记：嘉宾谈喜币的未来](/content/gnews/5/README.md)
+### [大直播后记：嘉宾谈喜币的未来](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [中共对国内快递行业进行“压力测试”](/content/gnews/6/README.md)
+### [中共对国内快递行业进行“压力测试”](/content/gnews/7/README.md)
  ` 儒为`
 
-### [Pink Floyd推出新歌声援乌克兰](/content/gnews/7/README.md)
+### [Pink Floyd推出新歌声援乌克兰](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [文•贵天成（精选篇）——文贵先生谈孟建柱（四十七）](/content/gnews/8/README.md)
+### [文•贵天成（精选篇）——文贵先生谈孟建柱（四十七）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”](/content/gnews/9/README.md)
+### [俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”](/content/gnews/10/README.md)
  ` 關注組`
 
-### [视频|北朝鲜金家政权将彻底瓦解](/content/gnews/10/README.md)
+### [视频|北朝鲜金家政权将彻底瓦解](/content/gnews/11/README.md)
  ` KarmaLabs`
 
-### [2022年4月15日 文贵紧急大直播全文字版](/content/gnews/11/README.md)
+### [2022年4月15日 文贵紧急大直播全文字版](/content/gnews/12/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [秘翻新闻｜基辅附近发现900多具平民尸体](/content/gnews/12/README.md)
+### [秘翻新闻｜基辅附近发现900多具平民尸体](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美议员访台，中共发出警告](/content/gnews/13/README.md)
+### [美议员访台，中共发出警告](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚面临血液危机](/content/gnews/14/README.md)
+### [澳大利亚面临血液危机](/content/gnews/15/README.md)
  ` 走进澳洲`
 
-### [有声｜警方称在基辅附近发现了 900 多具平民尸体](/content/gnews/15/README.md)
+### [有声｜警方称在基辅附近发现了 900 多具平民尸体](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [乌克兰救援前线报道4.16.2022：梅迪卡犹太志愿者们在NFSC帐篷庆祝逾越节](/content/gnews/16/README.md)
+### [乌克兰救援前线报道4.16.2022：梅迪卡犹太志愿者们在NFSC帐篷庆祝逾越节](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [【视频】新闻述评：美国会跨党派议员访台谴责习近平支持了普京](/content/gnews/17/README.md)
+### [【视频】新闻述评：美国会跨党派议员访台谴责习近平支持了普京](/content/gnews/18/README.md)
  ` 战云长天时评`
 
-### [“上海逝者”名单被以区块链技术上传 网址随即遭中共屏蔽](/content/gnews/18/README.md)
+### [“上海逝者”名单被以区块链技术上传 网址随即遭中共屏蔽](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜乌克兰总理和其他官员将访问华盛顿](/content/gnews/19/README.md)
+### [有声｜乌克兰总理和其他官员将访问华盛顿](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [一位叫陈村的上海作家，差点死于疫情封控](/content/gnews/20/README.md)
+### [一位叫陈村的上海作家，差点死于疫情封控](/content/gnews/21/README.md)
  ` KarmaLabs`
 
-### [文贵先生精要- 2022/04/15](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [来自莫桑比克的志愿者：“你们做的太棒了”](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
-
-### [疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性](/content/gnews/23/README.md)
+### [疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性](/content/gnews/22/README.md)
  ` 關注組`
 
-### [有声｜深圳强推打疫苗 不接种者或被赋黄码](/content/gnews/24/README.md)
+### [有声｜深圳强推打疫苗 不接种者或被赋黄码](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国表示对乌克兰的战事援助并不分散美国对抗中共](/content/gnews/25/README.md)
+### [美国表示对乌克兰的战事援助并不分散美国对抗中共](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [美参众议员访台 中共突击军演威胁](/content/gnews/26/README.md)
+### [美参众议员访台 中共突击军演威胁](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/27/README.md)
+### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”](/content/gnews/28/README.md)
+### [仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜三次阴性仍被困上海方舱 乌克兰人称想回国](/content/gnews/29/README.md)
+### [有声｜三次阴性仍被困上海方舱 乌克兰人称想回国](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [疫情｜上海传染病专家质疑“若清零有效，我愿向14亿人割腕谢罪”](/content/gnews/30/README.md)
+### [疫情｜上海传染病专家质疑“若清零有效，我愿向14亿人割腕谢罪”](/content/gnews/29/README.md)
  ` 關注組`
 
-### [有声｜西安宣布封城 市民被封地铁站](/content/gnews/31/README.md)
+### [有声｜西安宣布封城 市民被封地铁站](/content/gnews/30/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [乌总统泽连斯基采访中透露军人死亡数字](/content/gnews/32/README.md)
+### [乌总统泽连斯基采访中透露军人死亡数字](/content/gnews/31/README.md)
  ` 波士顿五月花农场金融部`
 
-### [俄罗斯：如果美国继续武装乌克兰，将有 “不可预测的后果”](/content/gnews/33/README.md)
+### [俄罗斯：如果美国继续武装乌克兰，将有 “不可预测的后果”](/content/gnews/32/README.md)
  ` 波士顿五月花农场金融部`
 
-### [台湾｜郭文贵爆料：中共启动“台湾之子”行动 制造社会动乱 趁机夺台](/content/gnews/34/README.md)
+### [台湾｜郭文贵爆料：中共启动“台湾之子”行动 制造社会动乱 趁机夺台](/content/gnews/33/README.md)
  ` 關注組`
 
-### [中共国正派出最先进战机在争议海域巡逻](/content/gnews/35/README.md)
+### [中共国正派出最先进战机在争议海域巡逻](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰英勇的扫雷犬已经嗅出了“数百枚俄罗斯地雷”](/content/gnews/36/README.md)
+### [乌克兰英勇的扫雷犬已经嗅出了“数百枚俄罗斯地雷”](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [香港前途悲惨 前保安局局长李家超锁定特首职位](/content/gnews/37/README.md)
+### [香港前途悲惨 前保安局局长李家超锁定特首职位](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [百度数据：移民查询增百倍 北上广百姓欲离开中国](/content/gnews/38/README.md)
+### [百度数据：移民查询增百倍 北上广百姓欲离开中国](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [上海方舱医院豆腐渣工程引爆网络](/content/gnews/39/README.md)
+### [上海方舱医院豆腐渣工程引爆网络](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [俄罗斯入侵乌克兰的战争会持续多久？](/content/gnews/40/README.md)
+### [俄罗斯入侵乌克兰的战争会持续多久？](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推特通过“毒丸计划”，强力遏止马斯克的敌意收购](/content/gnews/41/README.md)
+### [推特通过“毒丸计划”，强力遏止马斯克的敌意收购](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西安实施临时性的部分封城措施以应对奥米克戎的爆发](/content/gnews/42/README.md)
+### [西安实施临时性的部分封城措施以应对奥米克戎的爆发](/content/gnews/41/README.md)
  ` 澳喜农场`
 
-### [俄乌战争：中共国给俄罗斯提供了哪些帮助？](/content/gnews/43/README.md)
+### [俄乌战争：中共国给俄罗斯提供了哪些帮助？](/content/gnews/42/README.md)
  ` 澳喜农场`
 
-### [下调143个国家经济增长率，IMF发出强烈警示](/content/gnews/44/README.md)
+### [下调143个国家经济增长率，IMF发出强烈警示](/content/gnews/43/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [担心西方额外制裁，中海油加紧退出美英加业务](/content/gnews/45/README.md)
+### [担心西方额外制裁，中海油加紧退出美英加业务](/content/gnews/44/README.md)
  ` 温哥华圆成农场🇨🇦`
+
+### [【每日聚焦】俄乌战事4月16日简要](/content/gnews/45/README.md)
+ ` 蓝莲花农场`
 
 ### [COVID-19疫苗副作用集萃（2022.4.16）打新冠疫苗第二针后荨麻疹](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`

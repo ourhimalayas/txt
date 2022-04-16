@@ -2,50 +2,38 @@
 ---
 
 
-## 文•贵天成（精选篇）——文贵先生谈孟建柱（四十七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356345/)
+## Pink Floyd推出新歌声援乌克兰
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2356346/)
 
-整理： 小儿
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片39-7.png)
-郭文贵2017年9月5日直播
+作者 台湾宝岛农场 Y.M.O
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-247.jpeg)
+2022年3月12日，Pink Floyd宣布为了与世界站在一起，强烈谴责俄罗斯对乌克兰的入侵，Pink Floyd1987年以来的作品和David Gilmour所有的独奏录音都将从俄罗斯和白俄罗斯的所有数字音乐提供商处下架。不过Pink Floyd所做的并不止于此，就在最近他们又做了一件令人惊讶的事情，那就是为了乌克兰集合起来录了一首新歌。
 
-哎呀，真是的，这还是梁冠军同志的实力不够啊。我接着说的事情就是关于北京和中央的高层政治制度，它最大的问题就是搞盖世太保的这种行为，就是当年美国胡佛的这种行为。中国到底现在有几个胡佛啊？孙力军是不是孟建柱书记的小胡啊？查查他们的家人，查他们所有的历史，习书记只要去查就会发现这些事实，查查王岐山先生的这些最大的白手套，田国立是第二个白手套。
+事情要从David Gilmour被问到是否看过乌克兰摇滚乐队BoomBox主唱Andriy Khlyvnyuk的Instagram说起。David Gilmour曾经在2015年与BoomBox一起演出，俄罗斯入侵乌克兰之后BoomBox放弃了之前预定好的美国巡演，Andriy Khlyvnyuk也拿起步枪保卫自己的家园。在Instagram上Andriy Khlyvnyuk穿着军装，肩上挂着一把步枪站在基辅的圣索非亚大教堂外，大声唱着《Oh, the Red Viburnum in the Meadow》，这是一首第一次世界大战期间创作出来的乌克兰抗议歌曲，它也成为了Pink Floyd录这首新歌的基础。
 
-别人知道也不可能没有证据啊，看到这个的时候，大家千万记住真得吃点镇静药，不是你心脏受不了，而是你的整个精神受不了，这事我真的很担心。同时七哥写了个爆料清单，关于孟建柱书记对E租宝的批示，对泛亚的批示，对老兵的批示，开会的协调和孙力军的执行，北京市傅振华当时的事儿啊，什么姜良栋副局长涉及杀手黑社会，还有大连的刘志国和王立军等事件。
+首先他们将Andriy Khlyvnyuk的人声分离出来，然后抓出这首歌的和弦，在此基础之上进行全新的创作。除了乐手之外2008年逝世的Pink Floyd键盘手Rick Wright的女儿也参与了。之后当David Gilmour与Andriy Khlyvnyuk分享这首歌相关内容的时候Andriy Khlyvnyuk由于被迫击炮弹炸伤躺在医院里，四分之一英寸的小弹片嵌入了他的脸颊。不过对于这首歌的发行他还是觉得相当高兴的，并且所有收益也都将用于乌克兰人道主义救治。
 
-郭文贵2017年9月6日视频
+Pink Floyd发布新歌可能很多人会觉得是愚人节的玩笑，的确乐队上一次发表原创作品还是在28年前，Pink Floyd这个名字听上去已经更像是被供奉起来的神一样不会轻易出手。并且2008年键盘手Rick Wright去世更是让Pink Floyd离重出江湖越来越远。不过之前也提到David Gilmour有家人住在乌克兰，包括Andriy Khlyvnyuk的这个视频片段都让他想利用自己的平台做些什么。
 
-任何人想要欺骗推友、欺骗网友那就真是无知愚蠢到了极点。这就像今天的王岐山先生、孟建柱先生、傅政华先生和孙力军先生，他们完全不了解这个时代，他们以为控制网络就控制了真相，控制网络就控制了大家知道一切真相的权力，这完全是不同的概念。技术上你共产党建了高墙，但绝不等同于真相就消失，更不等同于不知道的人就没有智商、没有其他能力知道，这完全是不同的概念。所以说今天大家看到，新的国家领导人、新的企业领导人，如果他们不懂得现在自媒体和信息时代到来给大家带来的巨大的变革，那么他就已经被淘汰了，他一定会失败的。
+肯定会有人对此感到高兴，因为自己心爱的音乐人发了新歌。然而我却很难有这种感觉，不是说忽视音乐人对于帮助乌克兰的努力，而是觉得死者虽然仍有灵魂但他已经不能转世为生前的样子了。Pink Floyd在David Gilmour与Roger Waters关系恶化之后就应该像人类的生老病死一样逐步将这样的自然规律完成。David Gilmour也认为2014年发行的《The Endless River》就应该是这支乐队的终结之作，并且之前也有提到Pink Floyd只让1987年以来的作品从俄罗斯和白俄罗斯的所有数字音乐提供商处下架，也许他们的分歧在俄乌冲突中也有所体现。我是觉得这样的复生虽然是为了正义，但同时它也是不自然的。
 
-大家一定想想，这些人的好坏和这些人的隐私跟你王岐山、孟建柱、傅政华和孙力军盗国、杀人灭口有关系吗？和海航股权，贯君他爹是谁，贯君他妈是谁，刘呈杰他爹是谁，他妈是谁，孙瑶是谁，海航的钱哪来的，跟这些有关系吗？给美国纽约慈航捐的不是1800亿啊，那是6000亿美元！
+话说回来既然Pink Floyd的回魂已经发生那我们也必须去正视它。之前有句话叫艺术必须不断地干预政治直到政治不再干预艺术为止。华语乐坛也在唱着刚刚送走了恼人的青春才发现活在无歌的时代。现在全世界都是战场，Pink Floyd拿出的这首其实不能算是歌曲，而是专属于音乐人的武器，一切都是为了将世界导向正轨。
 
-另外一个，王彦平事件非常典型的代表了盗国贼们的凶残和凶狠，我在这儿我要谈一谈，不论是王岐山、孟建柱、傅政华还是孙力军他们都是如此。
+新闻链接
 
-孙力军和董卿将近十来年在一起上床，人家给他生了孩子。然后在孙力军不在的时候，董卿陪孟建柱游泳，孟建柱喜欢游泳，然后又把董卿给上了。人家董卿有口说不出来啊，被孙力军霸占了一二十年青春全没了。那么这就是他孙力军对女人的态度，明知那个事他也不说，因为他觉得老板给他的政治利益重要。董卿是一个非常悲惨的女性的代表！
+[https://www.instagram.com/p/Cae5TydPAxh/](https://www.instagram.com/p/Cae5TydPAxh/)
 
-这是为什么王岐山书记、孟建柱书记、傅政华和孙力军这过去五年办的案子全部涉及通奸，被抓起来的官员全都生活不正常。就他们自己搞女人叫谈恋爱，别人搞女人叫通奸，别人搞女人叫强奸。全是生活腐化、通奸、生活淫荡。所以说中国共产党有个第二号名字叫世界通奸党，这是大家都知道的嘛！
+[https://www.theguardian.com/music/2022/apr/07/pink-floyd-reform-to-support-ukraine?fbclid=IwAR3OyRnCg7Q03\_dsceHpL4hsQSLWtZF\_ivnVET26OOEYnep2qMZQuef4AHQ](https://www.theguardian.com/music/2022/apr/07/pink-floyd-reform-to-support-ukraine?fbclid=IwAR3OyRnCg7Q03_dsceHpL4hsQSLWtZF_ivnVET26OOEYnep2qMZQuef4AHQ)
 
-资料来源：郭先生GTV、盖特直播
 
-往期回顾：
 
-[文•贵天成（精选篇）——文贵先生谈“孟建柱”（四十二）](https://gnews.org/zh-hant/2336959/)
+* * *
 
-[文•贵天成（精选篇）——文贵先生谈“孟建柱”（四十三）](https://gnews.org/zh-hant/2352828/)
-
-[文•贵天成（精选篇）——文贵先生谈“孟建柱”（四十四）](https://gnews.org/zh-hant/2354007/)
-
-[文•贵天成（精选篇）——文贵先生谈“孟建柱”（四十五）](https://gnews.org/zh-hans/2354896/)
-
-[文•贵天成（精选篇）——文贵先生谈“孟建柱”（四十六）](https://gnews.org/zh-hans/2356009/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
