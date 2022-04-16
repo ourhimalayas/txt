@@ -2,53 +2,33 @@
 ---
 
 
-## 仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2355951/)
+## 美参众议员访台 中共突击军演威胁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355963/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1976-edited.png)
-新闻报道或社交媒体可以传达故事，但第一手资料可以很好地解释问题。所以，当中共千方百计阻止疾病信息的传播时，是时候引起注意了。
+作者：银河系农场 – 骄子；纽约香草山 – 侠肝义胆
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+台湾当地时间4月14日晚，美国联邦共和党首席议员格雷厄姆带领的参众两院议员一行6人抵达台湾。该团是本年访台的首个美国国会参众两院访问团，成员横跨预算、外交、国土安全、卫生教育劳工、财政、军事等领域，均为国会两院的资深领袖。而格雷厄姆曾于2016年角逐共和党总统候选人提名。
 
-如果您的政府采取严厉措施让世界对生活条件一无所知，请不要忽视这些警告信号。当中国人被迫进入另一个 COVID 封锁时，有一些令人毛骨悚然的警告标志“指导方针”：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15-6.jpg)
 
-不要在网上发布与流行病相关的消息。
+15日，美国参众两院议员与台湾蔡英文总统进行了会晤。媒体对该场会晤进行了现场直播，蔡英文总统感谢台湾得到了美国跨党派跨两会的支持。美国表示在俄乌战争之际，在共产党对台湾的威胁之下，美国访问台湾代表对台湾自由、民主、法治的支持。
 
-未经许可不得进出北京。
+美国的此次访台行动引发了中共的强烈反应，4月15日，中共东部战区在台湾周边海空域，组织了大规模多军兵种的联合战备警巡和对台海的突袭演练。
 
-间谍就在我们中间；泄密可能会在瞬间发生。管住你的嘴否则面临惩罚。
+参考链接：
 
-Louder with Crowder 很幸运能有一位 Mug Club 观众从上海打来电话，第一手了解当地发生的情况。
+- [“放棄台灣=放棄自由民主!” 共和黨首席議員葛瑞姆：是時候讓中國付出代價! 蔡英文會晤美參院外委主席訪團　強調:深化交流.守護民主價值!](https://www.youtube.com/watch?v=OiHDBErLdAQ)
+- [6名美跨党派参众议员 搭空军专机抵台访问](https://www.epochtimes.com/gb/22/4/14/n13711579.htm)
+- [央视新闻客户端2022-04-15 【东部战区在台岛周边海空域组织多军兵种联合战备警巡并展开对海突击等科目演练】](https://gettr.com/post/p15enfw71e6)
+- [美国联邦参议员格雷厄姆率团访台 将会见蔡英文总统](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm2-04142022074804.html/ampRFA)
 
-喜剧演员戴夫·兰道（Dave Landau）代替史蒂文·克劳德（Steven Crowder）采访了来电者，出于显而易见的原因，他必须保持匿名，让我们了解中共国的现状。
 
-来电者：我很荣幸； 我在一个有很多外籍人士的社区，所以我们目前比许多社会经济地位较低的中国人做得好得多。 我们可以每隔几天送一点食物。我们得到一点水果和一些蔬菜； 我们可以在网上搜寻，找出谁有食物，找到一个拥有“非常特殊的通行证”并被允许上路的人。我们实际上付给他们一大笔钱来送食物。实际可用的东西非常非常零星。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-戴夫：我想如果你得到一点食物，你可能还没有准备好。有没有通知准备？
-
-来电者：真的很快。完全封锁前给了我们一天时间，本来应该是四天。我们采购了大约六天的物资，现在我们已经过了两个半星期了。据报道，中共国的商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有库存，因为已经超过两周没有发货了。
-
-来电者：我也有两个孩子，我们要上网课。
-
-来电者提供了令人震惊的信息，有关当孩子出现 COVID 检测呈阳性时在中共国会发生什么。孩子被从家中带走，并在没有父母或倡导者的情况下被送入这些隔离营。
-
-观看视频，了解更多关于中国人民在政府手中面临的令人心碎的描述。
-
-链接：**[Watch your mouth or face punishment’: CCP threatens citizens as China remains locked down](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?utm_source=theblaze-7DayTrendingTest&amp;utm_medium=email&amp;utm_campaign=The%20Blaze%20PM%20Trending%202022-04-14&amp;utm_term=ACTIVE%20LIST%20-%207%20Day%20Engagement)**
-
-* * *
-
-审核：文乐
-校对:  花羽
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
-
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
