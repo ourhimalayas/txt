@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@himalayadcfarm 4/15/2022 5:55 PM (UTC)`
+
+🆘🇺🇦🆘🇺🇦🆘来自乌克兰救援前线 报道<br/>❣️Nicole采访来自台湾的退伍军官义工❣️<br/>台湾退伍军官义工来到新中国联邦帐篷：<br/>他在梅第卡帮助和支持乌克兰难民，现在准备去基辅送医药物资。但是他的装药品的行李袋坏掉了，文科和吴佳战友热心帮忙送给他结实的双肩背包。他那慈祥的面容充满着浓浓的爱意和谢意！<br/>--------<br/>通过前线战友辛勤地传播新中国联邦和中共邪恶的真相，相信越来越多的台湾同胞会了解现在的台湾严峻形势。上天保佑善良的台湾同胞们和家人平安！<br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
+![img](https://media.gettr.com/group11/origin/2022/04/15/17/dea64f20-c248-006a-2607-d416b42f62d9/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@himalayadcfarm 4/15/2022 6:37 PM (UTC)`
 
 🆘🇺🇦🆘Reports from the Ukrainian Rescue Front<br/>❣️Nicole interviews volunteers from Spain❣️<br/>His first sentence shouted: "take down CCP!"<br/>He saw it at first sight: Our vest with, "Take Down the CCP!"<br/>He suddenly remembered his father.<br/>❣️ He recalled that his father, who used to be a Yugoslav party member, left the Communist Party and became a man of faith.<br/>❣️ He firmly believes that those Chinese who have joined the Communist Party will also change because in a country ruled by a Communist Party many people are forced to join the Communist Party in order to survive! In fact, the truth is that the Communist Party has kidnapped the people!<br/>❣️He sighed: How great the actions of NFSC whose objective it is to take down the CCP and rescue the Chinese people.
@@ -153,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
  4月16号：尊敬的战友们好……大约半小时左右，七哥再来一段乱聊直播！大概直播30分钟左右一切都已经开始。
 ![img](https://media.gettr.com/group27/getter/2022/04/16/13/3b4ac484-9104-9ef5-14da-3dae3983a913/out.jpg)
-
----
-
-`@miles 4/16/2022 1:25 PM (UTC)`
-
-【Ukraine Rescue】04/15/2022 A volunteer from France, happily wearing the vest of the NFSC, and says, "Taking down the Communist Party is also my philosophy. We are different, but we think the same."<br/><br/>【乌克兰救援】04/15/2022 来自法国的志愿者开心地穿上新中国联邦的背心，他表示： “灭共也是我的理念。我们虽然不同，但想法一致。”
-![img](https://media.gettr.com/group42/getter/2022/04/16/13/8843cfbb-4c54-ad7e-3bed-6723e00b47dc/out.jpg)
 
 ---
 
