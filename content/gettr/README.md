@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 6:08 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月15日第42天当日救援统计：<br/>Medyka救援站接待：约316人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11988人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 42 - Date: April 15, 2022 :<br/>Medyka Rescue Station Reception: about 316 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11988 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group42/getter/2022/04/16/18/cce80e9d-354c-c9c3-bda5-5c21b25e2fac/6f0b5f0041324a4e536d7944fc4d1187.jpg)
+
+---
+
+`@miles 4/16/2022 5:58 PM (UTC)`
+
+4/16/2022 Miles Guo: The CCP wants John Lee to be the Chief Executive of Hong Kong. Once John Lee gets elected, there will be less forced PCR tests in Hong Kong; the fact the CCP could sell its drones to Taiwan military through a third party tells that the entire system in Taiwan has a huge problem.<br/><br/>4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解；台湾军方能通过第三方购买中共的无人机，说明台湾的整个系统出了大问题。<br/>
+![img](https://media.gettr.com/group36/getter/2022/04/16/17/6fce8b8a-7e15-2715-46e0-75e033add6bd/out.jpg)
+
+---
+
 `@miles 4/16/2022 5:43 PM (UTC)`
 
 【Ukraine Rescue】04/15/2022 All the Jews in Medyka are celebrating their holiday of freedom, Passover, in the big tent of NFSC and ROLF. They said: “ the big tent of NFSC and ROLF is really “the tent of freedom” because you are not only helping people fleeing war from Ukraine to freedom but also helping the 1.4 billion Chinese people enslaved by the Chinese Communist Party breaking their shackles of slavery to go to a future of freedom, light and prosperity.”<br/><br/>【乌克兰救援】04/15/2022 所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节。他们说：“你们法治基金和新中国联邦的大帐篷就是一个自由的帐篷。因为你们不仅帮助逃离战争的人们奔向自由，同时你们法治基金也是在帮助被中国共产党所奴役的14亿的中国人民摆脱被奴役的命运，走向自由，光明和美好的未来。“<br/>
@@ -140,20 +154,6 @@
 
 2022.04.16早  新中国联邦 | 新闻
 ![img](https://media.gettr.com/group36/origin/2022/04/16/11/03624322-f724-8197-685d-72cec1dce3a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 9:00 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group23/origin/2022/04/16/08/7787ce47-f5fc-236b-d48c-c612ec2221c2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group14/origin/2022/04/16/04/54779e1c-ffd9-c673-f496-187a620419d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
