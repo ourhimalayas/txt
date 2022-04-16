@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 9:12 PM (UTC)`
+
+4/16/2022 Miles Guo: The New Federal State of China is grateful for what our fellow fighters in Changchun, northeast China, did to help each other. Thanks to our fellow fighters in Shanghai for providing important intelligence regarding governmental actions and helping other fellow fighters’ families in smart ways. However, everyone should remember that no one is obligated to help anyone else. Don’t take other fellow fighters’ help for granted.<br/><br/>4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的<br/>
+![img](https://media.gettr.com/group30/getter/2022/04/16/21/d7add4da-617d-43cc-9fe8-7110edef2893/out.jpg)
+
+---
+
 `@miles 4/16/2022 8:51 PM (UTC)`
 
 2022.04.16  新中国联邦 | 喜健康   拥抱太阳医生专访
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 2022.04.16早  7哥乱聊直播
 ![img](https://media.gettr.com/group49/origin/2022/04/16/14/c55b74b3-1ff4-f58d-3ea4-6979b6b90e78/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 1:59 PM (UTC)`
-
-【Ukraine Rescue】04/15/2022 Mr. Peng and his Ukrainian wife, who had just escaped from the war, are moved to ask to join the NFSC and add to our multilingual services. His wife was in shock all the way, his cat was not brought out, and his daughter is a volunteer in Denmark rescuing refugees.<br/><br/>【乌克兰救援】04/15/2022 刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦，为我们的多语种服务增加力量。他的太太一路惊魂未定，猫咪也没有带出来，女儿在丹麦也是救助难民的义工。
-![img](https://media.gettr.com/group50/getter/2022/04/16/13/119bf572-ae15-56a3-0e62-ea92509c7252/out.jpg)
 
 ---
 
