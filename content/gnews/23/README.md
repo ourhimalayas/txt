@@ -2,15 +2,16 @@
 ---
 
 
-## 五月花简报（04/15/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2353585/)
+## 20220415郭文贵大直播 ：新中国联邦乌克兰救援队得到了国际组织的工作证
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353699/)
 
-编辑：波士顿五月花—-冲天一怒
+作者：东京樱花团小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/FC99304E-9815-4356-B855-12F6EF4FD186.jpeg)
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-*发布：思澈*
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

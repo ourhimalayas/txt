@@ -2,145 +2,51 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.15）–打完新冠疫苗后我每天下午开始心悸心慌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353760/)
+## 《一道不愈合的伤口》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2353896/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+整理：vale
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-29.jpg)
+凝神细看，多看，静看，张鉴墙笔下的上访信，在我眼里就成了一个个活人。他们夹着破包，拿着皱皱巴巴的上访材料，散发出多日不洗澡的味道，热切地盯着你。
 
-#### 整理/编辑：五伊
+1986年这一年，我在农民日报群工部工作，阅读群众来信，接待读者上访。在这些信里，我看到中国有无数被冤枉的人，看到他们有多么委屈，多么无奈。我也无奈。无奈的编辑，每日面对无奈的上访者，日久生厌，话也说得越来越没心肝。我说：我知道你觉得冤枉。中国有很多被冤枉的人，但我们也没有办法。我们是报社。没有新闻价值，不能报导，就没有办法。请你去找党政部门吧。套话说完后，就是不耐烦的不不不。实在不行，我可以答应替他们转信。我知道转信没什么用，也知道他们找党政部门没什么用，但我还是日复一日地把这些满心委屈又抱着一丝希望的人打发到没用的地方。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-32.png)图片来源：雅典娜设计组(614)
+这些人中，有一些特别执拗，把一些小事放大，搭进自己的时间、家庭，甚至生命。这些人多数不善于写东西，杂乱，啰嗦，自说自话。当面交流也大体如此。权力欺负了他们，他们也彼此欺负。他们有委屈，他们需要帮助，但他们走投无路。凝固在画中的上访信，唤醒了埋藏在我记忆中的各种上访者。
 
+这是中国的一道永不愈合的伤口。至少，从我熟悉的1986年至今，伤口越撕越大，毫无愈合的迹象。后人大概会笑话我们的无能和残忍，但我不觉得可笑。我只觉得无奈，我们和上访者一样，面对着不受制约的权力。权力的刀子，在我们社会的身体上，一下又一下，划出了这种伤口。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+我不知道应该如何比较和评价画笔下的伤口和美景，但我知道，社会上不只有美景。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+吴思 
+二0一0年二月十日
 
-帖子原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1934.png)
 
-**打完新冠疫苗后我每天下午开始心悸心慌**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1935.png)
 
-4月29号中午打的疫苗，打完后下午感觉自己心跳很快心慌胸闷，连着第四天了每天下午都会心慌，早上一点事儿没有，晚上症状也好很多，去医院检查，医生跟我说这几天先好好休息试试再看。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1936.png)
 
-发布于 2021-05-02 14:36
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1937.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1938.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1939.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1940.png)
 
-精选评论
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1941.png)
 
-不是小饼干
+* * *
 
-2021-05-09
+审核：Aries的星
+校对：阿伯塔
+发布：信心的选择
 
-回复
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
 
-我第三天出现了心悸反胃等等。很难受，看到你发的放心了
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-zzzhang : 同样症状，吃完饭后突然加重，还以为有心脏病了，后面才想到疫苗的问题，吓死
-
-燚月手作 : 你现在好了吗，我是第三天，还是心慌，当晚最严重
-
-CC : 我跟你的反应一样一样的 给社康打电话 说让我自己去医院看看 说我可能是打完疫苗后过度紧张………我是第一批打疫苗的人好么 紧张我能那么早么
-
-馨\_小红书
-
-2021-06-30
-
-回复
-
-现在怎么样呢，我也是接种第一剂后出现心慌心悸胸闷，最后被诊断为焦虑症
-
-阿秋(作者) : 我已经打完两针了，昨天熬夜今天早起没吃早饭喝了咖啡，下午心悸胸闷，我发现这个可能是没休息好造成的
-
-阿秋(作者) : 我第一针那天是打完看到自己比赛上榜了要参加下一级的比赛，又激动又紧张，心悸好几天，第二针啥事没有
-
-Miss张 : 你现在好了吗？
-
-Zero\_小红书
-
-Zero
-
-2021-05-14
-
-回复
-
-我也是，我都持续一周了，就是会突然出现一阵，就一直想喝凉水，摸凉的东西会觉得好受些
-
-阿秋(作者) : 那你去医院检查一下吧我是去医院后第二天就好了的
-
-你的番番呀: 我也检查了，一直没好，姐妹怎么治好的阿
-
-阿秋(作者) : 好好睡觉不熬夜自然就好了
-
-很迷\_小红书
-
-很迷
-
-2021-09-14
-
-回复
-
-打完第二针一个礼拜突然出现心悸胸闷气短失眠晚上躺着心狂跳
-
-小糖软熊 : 我也是 你后来好了吗
-
-白琳 : hello你还在吗
-
-Dan ni : 我也是
-
-她是黯淡星 丶（21点就睡觉）\_小红书
-
-她是黯淡星 丶（21点就睡觉）
-
-2021-09-04
-
-回复
-
-我也是。。。打的生物科兴，竟然觉得心跳突然快了，就心率过速。。三个月了还这样。。
-
-请推送千万级别房子给我 : metoo
-
-她是黯淡星 丶（21点就睡觉） : 买了个测心率的手表，就是突然快！！准备去医院看看了，
-
-青衫亦如初 : 跟你一样，科兴生物，今天感觉心脏要跳出来了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-38.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-13.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123456.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234567.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234567-1.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345678.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123456789.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234567890.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345678901.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123456789012.png)图片来源：小红书
-
-
-参考链接：[打完新冠疫苗后我每天下午开始心悸心慌](http://xhslink.com/UqlfLg)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
 
  
 

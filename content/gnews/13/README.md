@@ -2,161 +2,43 @@
 ---
 
 
-## 纽约联储行长约翰·威廉姆斯讨论有助于降低美国通胀的策略
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2353739/)
+## 文·贵天成（精选篇）——文贵先生谈孟建柱（四十四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353877/)
 
-John Williams (Fed Bank of New York President)
-约翰·威廉姆斯 (纽约联储银行行长)
+#### 整理：小儿
+编辑：李易通
 
-I don’t think we’re going to do our policy adjustment
-我认为我们不会进行政策调整
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片39-4.png)图片来源：雅典娜设计组（614）
 
-and measured slow pace for sure
-并且肯定会衡量缓慢的步伐
 
-I do think we need with high very high inflation
-我确实认为我们正在经历高通胀
+郭文贵2017年9月1日视频
 
-we need to really focus on bringing inflation down to our 2% longer run goal
-我们需要真正专注于将通胀率降至 2% 的长期目标
+孟建柱书记一生的挚爱，其中之一就是孙力军。刘彦平先生你最大的失败就是相信了孙力军，你被这个流氓骗子欺骗让他混到政法系统里面！任何一个中国政法系统里有正义感的人都该逮住孙力军一枪把他给毙了，这种人必须杀无赦。他玩弄人家妻女玩弄人家母亲，玩弄一个个明星，威胁人家搞变态，审问犯人，自以为是，他是什么东西啊？干什么出身的啊？控制着一个国家，动不动就代表习主席。周永康的秘书余刚，很嚣张被抓了吧，但是1000个余刚也没有你孙力军嚣张，是你抓了一个政法委公安上看你不顺眼的人，是你用一个个莫须有的罪名甚至以这些人身上有臭味为名抓了一个个公检法的正义人士，像曾欣还有陈真，包括李东生、杨焕宁、孟庭伟、孟宏伟和傅政华都恨你恨的咬牙根，都想让你抓紧死才好呢。你拿我郭文贵当猪狗啊！你以为拿签证就能把我弄回去吗？
 
-and to do that over the next few years
-并在接下来的几年里做到这一点
+你们记住，孟建柱书记、王岐山书记和孙力军，你们在美国除了暗杀我，你们要能做成一件事，我对不起我的列祖列宗。就你那点儿本事你骗共产党行，你对付共产党行，但你对付美国人，对付我这号人不可能。你骗！你一次次的骗！我告诉你，只要十九大我看到你孟建柱的半点儿影子，孙力军任何一个常委，咱们的全球发布会上你就会看到血流成河。不信咱就试试，咱不试了好几年了吗？你们继续骗。
 
-that is the number one focus in a week
-这是一周内的第一重点
+郭文贵的事情，我再给你说清楚。刚刚俩小时以前我侄女被放回去了，你当初半年前就答应我放我侄女回去。到现在我侄女没罪你给她造罪，没有证据你给她造证据，然后给她判完了还不当庭释放。习主席，我文贵请问问你，你的依法治国在哪儿呢？为什么郭文贵的案件你只让孟建柱、王岐山和孙力军处理呢？郭文贵和他们是利益相关者，我是揭发他们的人，他们是盗国贼。习总书记你就不能派第三方去对我的案情做个了解吗？
 
-I say that because the economy is strong
-我这么说是因为经济是强劲的
+习书记，你这依法治国、一带一路和你的中国梦就让孟建柱、王岐山、傅振华和孙力军给绑架了。如果下一个政法委书记和公安部长还是这样的人，郭文贵一定继续战斗到底。我的郭七条永不放弃，全世界人民都在看着呢！
 
-The labor market is basically back to a close to where it was before the pan-demic
-劳动力市场基本回到了大流行前的水平
+我请问问伟大的习主席，就算你们所有海外给我编造的谣言都是真的，那和孟建柱、孙力军杀人，杀令谷，把黎院长给推下去，把李院长给推下去有关系吗？他们为什么换三次肾五次肾？为什么他母亲换两三次肾和肝？为什么天天吃着从年轻人血液里提炼出的血清？这都是吸人血的魔王啊！这难道不是真的吗？他们为什么不被定罪？
 
-with the unemployment rate around three and a half percent
-失业率大约在3.5%的左右
+法轮功学员说中共高官换器官，我原来以为是假的，现在来看都是真的。很多话我现在还不能说，我就亲自参与过这样的事情。我未来会讲，被杀的人的家属有的已经跑到国外，有的还在国内。在未来的全球发布会上，我会让他们在大会上讲讲他们是怎么帮助这些人换肾的，是怎么帮助这些人换肝的，怎么帮助这些人换器官的，怎么家里人又被杀的。还有被杀的家人，例如一个新疆的21岁的小伙子，就因为住酒店用假身份证，被抓起来以后验出来他的肾和领导的家人匹配，结果就以他涉嫌恐怖主义要搞爆炸为罪名就给判了个死刑，然后把他的肾就给换走了。这个新疆小伙子是21岁被杀的，肝给了另外一个领导的家人，中共的高官按需杀人。我今天说的这些都有视频，有种的和我在纽约法庭上对质。Youtube又被黑了？
 
-and other other indicators showing
-并且其它指标显示
+我们没有别的选择，我们必须要求中国政府习主席一定要建立独立的司法制度，独立的媒体制度，让中国同胞拥有宪法赋予的人权与自由。如果中国不去走这条路，老百姓只有革命，别无选择。而且必须要查清楚孟建柱和孙力军等人，在过去五年和他当公安部部长的那些年都干了哪些案子。以及孟建柱当政法委书记期间，哪些人是被判了死刑的？哪些人是从死刑犯里提走被换了肾、换了肝的？孟建柱等他们的家人换的肝和肾都哪来的？这么多相关利益人的肝和肾哪来的？而且必须查清楚他们所指定的和抓起来的贪污腐败分子到底是真贪假贪还是被黑贪了？这些被抓起来的官员，他们家里人现在什么情况？谁受到了刑讯逼供？谁受到了虐待？这是最关键的。
 
-that we have very strong demand for for labor
-我们对劳动力的需求非常强烈
+资料来源：郭先生GTV、盖特直播
 
-So I do think from a monetary policy point of view
-所以我确实认为从货币政策的角度来看
+往期回顾：
+[文•贵天成（精选篇）——文贵先生谈“孟建柱”（四十二）](https://gnews.org/zh-hant/2336959/)
 
-it does make sense for us to move expeditiously
-快速行动对我们来说是有意义的
+发布：*wenly*
 
-towards more normal levels of the federal funds rate
-朝着更正常的联邦基金利率水平
-
-and also move forward on our balance sheet reduction plans
-并推进我们的资产负债表缩减计划
-
-Michael McKee (Bloomberg News)
-迈克尔·麦基（彭博新闻）
-
-If there was one phrase it’s sort of thumbs up where your colleagues are
-如果有一句话让你的同事竖起大拇指
-
-It’s get to neutral by the end of the year
-到年底将达到中性
-
-Would you be on board with that?
-你会同意吗？
-
-John Williams
-约翰·威廉姆斯
-
-I do think we need to get back to a more neutral a normal level of the federal funds rate
-我确实认为我们需要将联邦基金利率恢复到更中性的正常水平
-
-whether it’s at the end of the year or exactly when that happens will depend on the data
-无论是在年底还是确切发生的时间将取决于数据
-
-We will continue to be data dependent
-我们将继续依赖数据
-
-but given where the economy is, and especially given where inflation is
-但考虑到经济的情况，尤其是考虑到通货膨胀处的情况
-
-we really do need to reverse the policy actions
-我们确实需要作出行动，扭转政策
-
-that we’re putting into place back in March of 2020 move that forward
-我们将将继续实施在 2020 年 3 月的计划
-
-and move the federal funds target to neutral
-并将联邦基金目标调至中性
-
-And again, whether it’s by the end of the year or exactly when it happens
-再说一次，无论是到年底还是确切的什么时间发生
-
-I think that that will depend on the path of the economy
-我认为这将取决于经济的路径
-
-but yes, I agree with that
-但是，是的，我同意
-
-Michael McKee
-迈克尔·麦基
-
-So 50 basis points on May 4
-所以在5月4日，50个基点
-
-John Williams
-约翰·威廉姆斯
-
-Well, that’s not a decision we made yet
-好吧，这还不是我们做出的决定
-
-but I do think that…
-但我确实认为…
-
-Michael McKee
-迈克尔·麦基
-
-Oh, you could make it right now
-但我确实认为你现在可以做到
-
-John Williams
-约翰·威廉姆斯
-
-that’s not a decision we made yet
-这还不是我们做出的决定
-
-But I think that’s a you know, a reasonable option
-但我认为这是一个你知道的，一个合理的选择
-
-I think that for us because the federal funds rate is very low
-我认为这对我们来说是因为联邦基金利率非常低
-
-We do need to move policy back to more neutral levels later through this year
-我们确实需要通过今年将政策恢复到更中性的水平
-
-And I think that’s a very reasonable option
-我认为这是一个非常合理的选择
-
-**原视频链接**:[https://twitter.com/bloombergtv/status/1514612928724430855?s=24](https://twitter.com/bloombergtv/status/1514612928724430855?s=24)
-
-Date:04/14/2022
-原视频标题: Fed Bank of New York President John Williams discusses tactics to help decrease U.S. inflation
-纽约联储行长约翰·威廉姆斯讨论有助于降低美国通胀的策略
-原视频日期：2022/04/14
-原视频链接https://twitter.com/bloombergtv/status/1514612928724430855?s=24
-任务编号：KE480（4254）
-视频时间段 : 0:00-1:54
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike li
-字幕+视频制作: 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
