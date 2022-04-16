@@ -2,38 +2,52 @@
 ---
 
 
-## 乌总统泽连斯基采访中透露军人死亡数字
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2355872/)
+## 仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2355951/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-16-下午4.23.06.png)图片来源：互联网
-乌克兰官员认为，自俄罗斯于 2 月 24 日开始入侵乌克兰以来，已有 2,500 至 3,000 名乌克兰士兵死亡。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1976-edited.png)
+新闻报道或社交媒体可以传达故事，但第一手资料可以很好地解释问题。所以，当中共千方百计阻止疾病信息的传播时，是时候引起注意了。
 
-据 Ukrinform 报道，乌克兰总统弗拉基米尔-泽伦斯基 （Volodymyr Zelensky） 在接受[CNN采访](https://edition.cnn.com/2022/04/15/politics/tapper-zelensky-interview-cnntv/index.html?fbclid=IwAR1M2a39s___uSQbJSTYmAo2myQiBFVpOkON_GVo2xYBt7CizO8s6q9Vc5s)时表示。
+如果您的政府采取严厉措施让世界对生活条件一无所知，请不要忽视这些警告信号。当中国人被迫进入另一个 COVID 封锁时，有一些令人毛骨悚然的警告标志“指导方针”：
 
-他补充说，大约有 10,000 名乌克兰士兵受伤，“很难说有多少人能幸存下来”。
+不要在网上发布与流行病相关的消息。
 
-泽连斯基说，平民伤亡更难量化。
+未经许可不得进出北京。
 
-“谈论平民是非常困难的，因为在我国南部，城镇被封锁——赫尔松、别尔江斯克、马里乌波尔更东边，以及东边沃尔诺瓦卡所在的地区——我们只是不知道有多少人在被封锁的地区死亡，”他说。
+间谍就在我们中间；泄密可能会在瞬间发生。管住你的嘴否则面临惩罚。
 
-当被问及本周发布的令人痛心的视频显示他的国家的死亡和破坏，包括一名乌克兰妇女在井中发现她儿子的尸体时，泽伦斯基说：“这对我来说是一个巨大的痛苦。”
+Louder with Crowder 很幸运能有一位 Mug Club 观众从上海打来电话，第一手了解当地发生的情况。
 
-“作为父亲，我不能看，只是因为你想要的只是报复和杀戮，”他说。“我必须看着这个州的总统，那里有很多人死去，失去了亲人，还有数百万人想要活下去。”
+喜剧演员戴夫·兰道（Dave Landau）代替史蒂文·克劳德（Steven Crowder）采访了来电者，出于显而易见的原因，他必须保持匿名，让我们了解中共国的现状。
 
-“我们所有人都想战斗，”他继续说。“但我们都必须竭尽全力，让这场战争不至于无休止。时间越长，我们的损失就越多，所有这些损失都会像那一场一样。”
+来电者：我很荣幸； 我在一个有很多外籍人士的社区，所以我们目前比许多社会经济地位较低的中国人做得好得多。 我们可以每隔几天送一点食物。我们得到一点水果和一些蔬菜； 我们可以在网上搜寻，找出谁有食物，找到一个拥有“非常特殊的通行证”并被允许上路的人。我们实际上付给他们一大笔钱来送食物。实际可用的东西非常非常零星。
 
-正如早些时候报道的那样，自入侵乌克兰以来，俄罗斯已经损失了 20,000 名士兵。
+戴夫：我想如果你得到一点食物，你可能还没有准备好。有没有通知准备？
 
-3月12日，泽连斯基表示，至少有1300名乌克兰军人在与俄罗斯的战争中丧生。
+来电者：真的很快。完全封锁前给了我们一天时间，本来应该是四天。我们采购了大约六天的物资，现在我们已经过了两个半星期了。据报道，中共国的商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有库存，因为已经超过两周没有发货了。
 
-原文链接：
+来电者：我也有两个孩子，我们要上网课。
 
-【1】[Zelensky names Ukrainian troop losses](https://www.ukrinform.net/rubric-ato/3458879-zelensky-names-ukrainian-troop-losses.html)
+来电者提供了令人震惊的信息，有关当孩子出现 COVID 检测呈阳性时在中共国会发生什么。孩子被从家中带走，并在没有父母或倡导者的情况下被送入这些隔离营。
+
+观看视频，了解更多关于中国人民在政府手中面临的令人心碎的描述。
+
+链接：**[Watch your mouth or face punishment’: CCP threatens citizens as China remains locked down](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?utm_source=theblaze-7DayTrendingTest&amp;utm_medium=email&amp;utm_campaign=The%20Blaze%20PM%20Trending%202022-04-14&amp;utm_term=ACTIVE%20LIST%20-%207%20Day%20Engagement)**
 
 * * *
 
-*编辑&发布：长岛开心*
+审核：文乐
+校对:  花羽
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 

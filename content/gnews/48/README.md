@@ -2,45 +2,11 @@
 ---
 
 
-## 中共开启“台湾之子”攻占台湾行动，卖台贼们蠢蠢欲动
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2354127/)
+## 4月16日乌克兰救援行动（图片1-16）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2354320/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
-
-4月15日，郭文贵先生于Gettr紧急直播中透露，中共自今日开始启动“台湾之子”行动 ，直指台湾的供电、供水、网络、交通、机场，妄图制造混乱的同时趁机军事入侵攻下台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif.com-gif-maker-7.jpg)图片来源AFP台湾F16战机监控伴飞在台湾南部巴士海峡上空飞行的中国空军H-6K轰炸机
-
-
-超过5个信息渠道证实的绝对准确情报，即中共自4月15日开始启动“台湾之子”行动 ，具体表现为致使台湾停电、停水等以至内部秩序大乱，制造台湾社会混乱的同时出兵攻占台湾。
-
-可悲的是，台湾不会像乌克兰一样团结抵抗外来入侵，因为台湾太多人已被中共收买。据4月14日郭先生直播透露，台湾情报部门、军队中绝大多数都已被中共成功收买，他们将成为中共攻台后第一个出卖台湾人民的群体。
-
-为了收买卖台贼，中共大批量赠送美元现金、黄金给到台湾相关人士的上海家人，或者送往各自台湾的家中。不但如此，中共还许诺卖台贼们一旦开战便会安置好他们的家人，而且攻占台湾后的土地归属问题各方都已分配完毕。
-
-结果是，连台湾军队装备的大量无人机都是大陆制造，中共先把无人机销往澳大利亚作为中转站，台湾军人再从澳大利亚把中共制造的无人机买回台湾使用。台湾装备的武器来自敌对国，尤其是中共高精端设备可能埋藏了中共的暗门或者机关，对共作战时还指不定武器瞄准的方向被安排朝向哪里。
-
-毋庸置疑，一旦中共攻占台湾，将对日本的国家存亡产生巨大的威胁。可以说，打的是台湾，灭的是日本。同时，中共打台湾剑指美国，打垮美国的芯片供应链，进一步摧毁美国经济和美元地位。
-
-无论如何，中共选择攻占台湾，也宣告中共的结束。
-
-**相关****Gnews****链接：**
-
-
-
-
-
-> [习面对实则中美之战的俄乌战争不惧怕，妄图放手一搏换取美中共治](https://gnews.org/zh-hans/2139849/)
-
-
-习面对实则中美之战的俄乌战争不惧怕，妄图放手一搏换取美中共治
-
-
-
-
-> [中共部署红旗导弹、反导系统到塞尔维亚，正式军事参与俄乌战争](https://gnews.org/zh-hans/2287502/)
-
-
-中共部署红旗导弹、反导系统到塞尔维亚，正式军事参与俄乌战争
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7E0817FC-20B5-4BD4-A1D7-A637510726D4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1A28E766-718D-4845-B6EB-F625E685D518.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/EE03AE52-853D-4B84-8847-8A3609BE9915.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D3278721-E64F-45B7-91C6-65E6BE8A9598.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CE3D24AF-3AB7-4036-8FA0-A9D778696812.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/27D9D387-0849-4634-9709-C4F995E7A0AA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1C9E5D2F-17E0-4A7D-83F1-443A8079DE9C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3077DF5C-1C66-4005-9C24-5A05CD0B53CC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3B09A1E6-7759-49C2-8573-CA748B04DD18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4839CB1A-A70E-4C71-8463-0CE8CF7B3E81.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/84D8E26D-A2F7-48D8-890F-BC9F78C866FD.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DDEAFAC1-AB55-4122-B694-4D88718BA353.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BBD90A6F-11DA-4B2B-9224-E0AC435F6DFE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FCFB732C-C240-4833-ABC5-DA95A07DCC2B.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C870B281-68B0-4347-84E5-F5E4E3AF3E3E.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2D7A2179-12E0-4050-8D62-AC210D069D8F.png)发布：水涨船高![]()
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
