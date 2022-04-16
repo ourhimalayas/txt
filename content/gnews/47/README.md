@@ -2,11 +2,35 @@
 ---
 
 
-## 4月16日乌克兰救援行动（图片1-16）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2354320/)
+## 担心西方额外制裁，中海油加紧退出美英加业务
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2354514/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E0817FC-20B5-4BD4-A1D7-A637510726D4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1A28E766-718D-4845-B6EB-F625E685D518.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/EE03AE52-853D-4B84-8847-8A3609BE9915.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D3278721-E64F-45B7-91C6-65E6BE8A9598.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CE3D24AF-3AB7-4036-8FA0-A9D778696812.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/27D9D387-0849-4634-9709-C4F995E7A0AA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1C9E5D2F-17E0-4A7D-83F1-443A8079DE9C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3077DF5C-1C66-4005-9C24-5A05CD0B53CC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3B09A1E6-7759-49C2-8573-CA748B04DD18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4839CB1A-A70E-4C71-8463-0CE8CF7B3E81.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/84D8E26D-A2F7-48D8-890F-BC9F78C866FD.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DDEAFAC1-AB55-4122-B694-4D88718BA353.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BBD90A6F-11DA-4B2B-9224-E0AC435F6DFE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FCFB732C-C240-4833-ABC5-DA95A07DCC2B.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C870B281-68B0-4347-84E5-F5E4E3AF3E3E.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2D7A2179-12E0-4050-8D62-AC210D069D8F.png)发布：水涨船高![]()
+2022-04-15
+
+翻译：文明志
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AMXT0WPHXH3FOVPSJ7U.png)照片来源：[中国海洋石油、米英加での操業撤退準備　西側の追加制裁懸念](https://jp.reuters.com/article/topNews/idJPKCN2M60B6)
+ 
+中国海洋石油总公司，因担心中共在俄乌战争中支持俄罗斯侵略的立场导致该公司在三国的资产受到西方新一轮制裁的影响，正在加紧准备退出在英国、加拿大和美国的石油业务。
+
+据4月14日路透社消息，4月13日多位业界相关人士透露，中国最大的国有石油公司—中国海洋石油总公司正在加紧准备退出在英国、加拿大和美国的业务，因为中共国政府担心该公司在这三个国家的资产会受到西方新一轮制裁的影响。
+
+由于贸易问题和对中共国侵犯人权行为的批评，中共国和西方之间的关系长期以来一直就十分紧张。加上俄罗斯武装入侵乌克兰后，中共国不但没有批评俄罗斯反而表现出同情或支持的态度，这就加剧了与西方关系的紧张。美国政府上周警告说，如果中共国通过获得外汇或进入国际支付网络来帮助俄罗斯绕过制裁，可能面临相应的严重后果。
+
+中海油在美英加三个国家开展业务的时间还不到十年。随着以150亿美元收购加拿大能源公司尼克森，中海油已经成为全球领先的石油生产商。中海油在英国北海和美国墨西哥湾的主要油田都拥有权益，并在加拿大的一个大型油砂开采事业中拥有资产。据路透社估算，中海油每天总共生产约22万桶石油。
+
+去年，在美国前总统特朗普发布总统禁令，禁止投资支持中共国军队的中国公司后，中海油在纽约证券交易所退市。据消息人士称，该公司计划本月在上海证券交易所上市，为此已加紧复核其全球资产以备上市。上海首次公开募股（IPO）的招股说明书，指出了新制裁的风险，称 “无法解读由于美国政策的变化，未来可能对公司、业务伙伴和商业伙伴实施何种制裁”。
+
+一些人认为自俄罗斯入侵以来石油和天然气价格的进一步上涨是一个机会，并认为中海油可以为他们正在撤出的资产找到新的买家。据消息人士称，该公司打算将注意力转向在拉丁美洲和非洲收购新资产，并优先开发巴西、圭亚那和乌干达的大型新项目。
+
+参考链接：
+[中国海洋石油、米英加での操業撤退準備　西側の追加制裁懸念](https://jp.reuters.com/article/topNews/idJPKCN2M60B6)
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

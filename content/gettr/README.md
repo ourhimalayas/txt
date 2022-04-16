@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 1:31 PM (UTC)`
+
+ 4月16号：尊敬的战友们好……大约半小时左右，七哥再来一段乱聊直播！大概直播30分钟左右一切都已经开始。
+![img](https://media.gettr.com/group27/getter/2022/04/16/13/3b4ac484-9104-9ef5-14da-3dae3983a913/out.jpg)
+
+---
+
+`@miles 4/16/2022 1:25 PM (UTC)`
+
+【Ukraine Rescue】04/15/2022 A volunteer from France, happily wearing the vest of the NFSC, and says, "Taking down the Communist Party is also my philosophy. We are different, but we think the same."<br/><br/>【乌克兰救援】04/15/2022 来自法国的志愿者开心地穿上新中国联邦的背心，他表示： “灭共也是我的理念。我们虽然不同，但想法一致。”
+![img](https://media.gettr.com/group42/getter/2022/04/16/13/8843cfbb-4c54-ad7e-3bed-6723e00b47dc/out.jpg)
+
+---
+
 `@miles 4/16/2022 1:21 PM (UTC)`
 
 【Ukraine Rescue】04/15/2022 Nicole shows the afternoon scene in the NFSC relief tent: Volunteers would come for coffee; news reporters are interviewing; NFSC volunteers welcoming a Chinese man and his Ukrainian wife who had escaped from Ukraine, five rooms of their house had been blown away.<br/><br/>【乌克兰救援】04/15/2022 妮可展示新中国联邦救援帐篷下午的场景：义工们会来喝咖啡；新闻记者在采访；新中国联邦义工迎接了一位从乌克兰逃出来的中国大哥和他的乌克兰太太，他们家的5间房被炸。<br/>
@@ -144,20 +158,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 
  4月15号：希望所有的吉林省的乡亲们，度过这艰难的一关，万佛万神保佑吉林！
 ![img](https://media.gettr.com/group26/getter/2022/04/16/01/ccf49f99-82b7-0aeb-9217-670b325cf937/eff2cd29918cd8327c31d60e18384e6d.jpg)
-
----
-
-`@miles 4/16/2022 1:13 AM (UTC)`
-
-2022.04.15 晚  新中国联邦 | 新闻访谈   《莫斯科号》沉了，《北京号》还远吗？郎咸平丧母，胡锡进表态！
-![img](https://media.gettr.com/group46/origin/2022/04/16/01/fc6a21b1-112a-1877-cb5a-53051ec7cb94/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/16/2022 12:36 AM (UTC)`
-
-2022.04.15 晚  新中国联邦 | 新闻   新中国联邦救援战友获波兰颁发志愿者工作证; 三发贴牌导弹击沉“莫斯科号” 放生士兵
-![img](https://media.gettr.com/group13/origin/2022/04/16/00/5f64c848-31c2-1297-8d48-1b47eddca910/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

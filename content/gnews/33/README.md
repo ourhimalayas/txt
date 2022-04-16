@@ -2,31 +2,37 @@
 ---
 
 
-## 俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356340/)
+## 因中共国“清零”政策，苹果组装商暂停iPhone生产
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2356426/)
 
-**图/文｜CP**
-**发布时间｜16/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/澤連斯基請求拜登政府-將俄羅斯列為「恐怖主義支援國」.jpg)
+据《Zerohedge》记者：Tyler Durden，2022年4月12日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1987.png)图片来源：WSJ
+由于中共国新冠“清零”政策，上海供应链再次变得拥挤，该政策关闭工厂并使数百万人处于封锁状态。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+据《彭博社》报道，iPhone组装商和硕是最新一家暂停上海和附近昆山工厂生产的公司，遵守当地政府的卫生要求，以缓解两年来最严重的病毒爆发 。
 
+总部位于台湾的和硕在一份证券文件中宣布，两家iPhone工厂的复工都需要获得政府的授权。它表示将与当地卫生官员“积极合作”，以尽快恢复工作，但没有给出时间表。
 
-外媒16日引述消息人士报道，乌克兰总统泽连斯基（Volodymyr Zelenskyy）在最近一次与美国总统拜登的通话中，请求美国将俄罗斯列为“恐怖主义支援国”，惟拜登暂未作出明确表态或采取具体行动，只表示愿意探讨一系列的建议，并向俄方施加更大压力。
+和硕表示，它已经联系了客户和供应商，并评估了两家工厂关闭的影响，但没有详细说明细节。
 
-报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支援国”，意味美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+和硕的重要之处在于，它是仅次于富士康科技集团的第二大iPhone组装商。上个月富士康被迫停业后，和硕保持在线生产数周。由于上海和邻近的昆山现在都处于严格的封锁状态，顶级生产商关闭业务，因此在中共国的iPhone组装可能会减少。
 
-不过，有传美国国会部分鹰派共和党议员曾经敦促拜登政府将俄罗斯列入“恐怖主义支援国”名单，惟白宫一直不置可否，只表示会考虑这项提议。
+《彭博社》供应链分析显示，富士康和和硕是iPhone和其他苹果产品的两大生产商。目前还没有关于成品电子产品供应中断的报告。
 
-在上月召开的记者会上，国务卿布林肯（Antony Blinken）被问及此事时回应，政府会考虑一切选项，强调首要任务是尽其所能迅速结束这场战争，停止乌克兰人民的苦难。
+在季节性基础上，美国公司普遍开始增加夏季的中共国进口。由于工厂关闭、物流网络和港口堵塞，这可能阻碍了对美国的发货。
 
-自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支援国”。
+供应链再次中断，这可能导致美国商店到夏季货架空空如也。咨询公司Trendforce警告说，和硕的库存仅剩几周。
 
-來源｜[NBC](https://www.nbcnews.com/politics/national-security/ukraines-zelenskyy-asked-biden-designate-russia-state-sponsor-terroris-rcna24618)
+文章来源：[**https://www.zerohedge.com/markets/apple-assembler-pegatron-halts-iphone-production-china-combats-covid-outbreak**](https://www.zerohedge.com/markets/apple-assembler-pegatron-halts-iphone-production-china-combats-covid-outbreak)
 
-* * *
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

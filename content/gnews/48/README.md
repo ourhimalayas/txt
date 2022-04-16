@@ -2,78 +2,31 @@
 ---
 
 
-## 参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2353937/)
+## 【每日聚焦】俄乌战事4月16日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2354472/)
 
-**参议员罗恩·约翰逊**： 
-我给密尔沃基退伍军人医疗中心@MilwaukeeVA 写了一封信，要求他们就其新冠 COVID-19 疫苗强制接种问题给出答案。 我们现在知道，完全接种疫苗的人可以感染和传播新冠 COVID-19 ([#中共病毒](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92))。 疫苗强制接种毫无意义且具有破坏性。 【附福克斯新闻相关报道】
+**编撰：多伦多蓝莲花- wood(文斌)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+1、基辅和乌克兰东北部：乌克兰总统办公室顾问称，是俄罗斯在外国领土上发动了一场无端的战争，故意大规模杀害平民，大规模破坏民用基础设施。因此，乌克兰的任何报复行动在道德上和法律上都是绝对合理的。
 
+2、哈尔科夫和伊久姆：继续炮击哈尔科夫的俄军主要是西北军区的第6集团军和北方舰队的第14军团所部，意图掩护伊久姆方向的补给线。4月15日，乌军击退了俄军从伊久姆向巴文科伏和斯拉夫扬斯克的进攻。
 
+3、顿涅茨克州和卢甘斯克州：俄罗斯军队继续每天对波帕斯纳亚、鲁别日诺耶和马林卡进行攻击，并沿着前沿阵地进行猛烈炮击，但在4月15日没有取得任何成功推进。乌克兰国防部4月15日表示，除了顿涅茨克共和国和卢甘斯克共和国的第1和第2军团外，第58和第8集团军是俄军在顿巴斯的主要军力。俄军需要真正的休整才能凝聚足够的力量，才有可能在正面战场上突破乌克兰防线。防空部队在乌克兰顿巴斯的上空击落了 6 架Orlan-10无人机。
 
-> I sent a letter to [@MilwaukeeVA](https://twitter.com/milwaukeeva?ref_src=twsrc%5Etfw) demanding answers on their COVID-19 vaccine mandates. 
-> 
-> We now know individuals who are fully vaccinated can contract and spread COVID-19. Vaccine mandates are pointless and destructive.[https://t.co/D1KlJalsap](https://t.co/D1KlJalsap)
-> — Senator Ron Johnson (@SenRonJohnson) [April 15, 2022](https://twitter.com/SenRonJohnson/status/1515000945008066569?ref_src=twsrc%5Etfw)
+4、马里乌波尔：俄军继续在马里乌波尔西南部和东部围攻乌克兰守军，乌克兰海军陆战队第36旅指挥官4月15日表示，马里乌波尔的局势正在恶化，但表示不会投降。马里乌波尔市市长顾问彼得罗-安德留申科说，俄军正在向伊利奇金属厂地区部署重武器和火炮，用以对亚速钢厂进行攻击。乌克兰国防部报告说，4月15日，俄罗斯用远程轰炸机图-22M3对马里乌波尔进行了空袭，这是本次战争中的第一次使用这种战略轰炸机。原因在于地面攻击速度缓慢，俄军可能不得不加强空袭和炮击。
 
+5、南方战线：在过去的24小时内，赫尔松周围没有重大变化。俄军对赫尔松以西的乌克兰阵地进行了有限的攻击，并继续炮击尼古拉耶夫，但没有取得任何推进。
 
+6、乌克兰军事情报4月15日报道，国际制裁正日益扰乱俄罗斯的生产能力。世界上最大的坦克制造商、俄罗斯T-72主战坦克的生产商乌拉尔瓦贡扎沃德公司正面临着贷款利率上升，材料和部件（包括装甲钢）价格上涨，以及进口部件短缺的问题。俄罗斯的进口替代努力也无法维持现有合同。
 
-**众议员加拉格尔新闻办公室**： 
-议员加拉格尔评论 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 和习 的关系：“这可不是什么沉默的伙伴关系…普京在这场他们发动的对抗西方的新冷战中，正变成习的虐待狂伙伴。他在乌克兰遭受的挫折越多，他只会越依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 。”
+校对：文斌/发布：一叶知秋
 
-
-
-> Rep. Gallagher Putin and Xi's relationship: "This isn't a silent partnership…Putin is becoming Xi's sadistic sidekick in this New Cold War that they have launched against the West. He will only grow more dependent on China the more he experiences setbacks in Ukraine." [pic.twitter.com/NipePqGcoU](https://t.co/NipePqGcoU)
-> — Rep. Gallagher Press Office (@RepGallagher) [April 15, 2022](https://twitter.com/RepGallagher/status/1514968256083333122?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室**： 
-参议员霍利的法案，“将让美国更加容易送给 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 防卫武器——包括支持其爱国者地对空导弹系统的设备——并将加快许可的审批。” 
-【转newsmax新闻网，霍利: 美国必须尽快武装台湾】
-
-
-
-> Senator Hawley’s “bill would make it easier for the U.S. to send Taiwan defensive weaponry — including equipment to bolster its Patriot surface-to-air missile system — and would expedite licensing approvals."[https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 15, 2022](https://twitter.com/SenHawleyPress/status/1514982221655990278?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院**： 
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken) 讨论了人权报告中一些最令人震惊的发现，这些发现涵盖了 2021 年的事件，例如袭击记者、([#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)) 种族灭绝、和无辜平民被不公正羁押。 [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hashtag_click) 
-【附布林肯讲话视频节选 】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) discusses some of the most alarming findings of the [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hash&amp;ref_src=twsrc%5Etfw) that covers events of 2021, such as attacks on journalists, genocide, and innocent civilians being unjustly detained. [pic.twitter.com/ovtv2uwjD2](https://t.co/ovtv2uwjD2)
-> — Department of State (@StateDept) [April 15, 2022](https://twitter.com/StateDept/status/1515027177162657797?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥**： 
-美国的军事领导人知道，赋予伊朗权力的代价将是美国国家安全的迫在眉睫的风险，对美国士兵来说将是一个更危险的作战环境。 拜登政府必须改变其伊朗交易谈判的方向。 
-【附美国军方领导人反对伊朗核协议的公开信】
-
-
-
-> America's military leaders know the cost of empowering Iran will be imminent risk to American national security and a more dangerous operating environment for American soldiers. The Biden Administration must reverse course on its Iran deal negotiations. [https://t.co/XBguUGWi9i](https://t.co/XBguUGWi9i)
-> — Mike Pompeo (@mikepompeo) [April 15, 2022](https://twitter.com/mikepompeo/status/1514966912299634693?ref_src=twsrc%5Etfw)
-
-
-
-**众议员安迪·比格斯**: 
-任何热爱这个国家的理性领导人的解决方案，都是开放美国的石油和天然气能源。 从我们的敌手那里购买石油和天然气，或者让美国人购买 5.5万 美元的特斯拉，并不是真正的解决方案。
-
-
-
-> The solution for any rational leader who loves this country is to open up America’s oil and gas energy. 
-> 
-> Purchasing oil and gas from our adversaries or making Americans buy $55K Teslas are not real solutions.
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 15, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515006878698332164?ref_src=twsrc%5Etfw)
-
-
-
-
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
