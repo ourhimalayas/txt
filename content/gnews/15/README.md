@@ -2,38 +2,28 @@
 ---
 
 
-## 大直播后记：连线波兰救援前线战友
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2355948/)
+## 美国表示对乌克兰的战事援助并不分散美国对抗中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355964/)
 
-#### 整理：Guojunior、W2
-编辑：Mohegayer K. Simon
+作者：银河系农场 – 骄子
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+当地时间4月13日，美国陆军太平洋司令弗林将军表示，虽然世界的注意力集中在对乌克兰的援助上，但并没有分散美国应对中共挑战的注意力和资源投入。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/14-9.jpg)
+据悉，弗林将军近日访问了印太地区的五个盟友国家，包括澳大利亚、菲律宾、新加坡、泰国和马来西亚，主要向盟国表示美国军队仍然坚持在该地区效力。近日，美国专注于欧洲并向乌克兰军队运送武器，而中共在印太地区的军事扩张，让这个地区的盟友有天然的担忧。据弗林将军说，该地区的国防官员不断强调美国在此地的重要性，包括美国陆军太平洋军队的各种作用，从救灾到安全援助以及对盟军进行军事训练。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-9.png)图片来源：墨尔本雅典娜农场设计组
+美国太平洋司令部将在10月前进行横跨太平洋的十几次演习，包括在关岛、马来西亚、日本和韩国。到目前为止已经完成了五项，其中包括在阿拉斯加举办的太平洋多国准备中心轮换。
 
+参考链接：
 
-主持人Tex：欢迎大家来到今天周五的文贵大直播，我是今天的主持人Tex，非常有幸能够跟Nick大帅哥和MC文艺大美女，还有宁南大帅哥，同心同框。今天跟大家一样，我也特别想念有七哥在的文贵大直播，希望七哥能够早日归来，注意身体，开始之前，我们请三位嘉宾跟大家打声招呼。
-
-嘉宾Nick：好，那我先来吧，谢谢大家，今天非常荣幸又来到了我们的文贵大直播，等七哥大直播，谢谢。
-
-嘉宾宁南：好的，那我就在中间，就是我了。其实我今天突然间补位，我们把我的飞飞姐先替换下来，我先上来。那么非常开心，又跟大家一起同心同框，能在这里给大家站一班岗，我是宁南，来自澳喜农场。
-
-嘉宾MC文艺：电视屏幕前的战友们大家好，Tex、Nick、宁南好。非常开心能够与3位大帅哥同心同框，共同学习，共同成长，谢谢，我是樱花团的MC文艺。
-
-主持人Tex：谢谢大家，谢谢3位嘉宾，那我们先麻烦导播先切去波兰前线梅迪卡的救援现场，今天文科和Nicole会跟我们update一下前线救援的最新情况，谢谢。
-
-Nicole：战友们，全球的观众们，大家好，今天是我们波兰当地时间差不多下午是3点多吧，然后我们这边外面下着淅淅沥沥的春雨，大家知道春天快到了，然后波兰人民正准备他们连续放假4天的复活节。复活节是象征着一个神的重生，所以在欧洲，在波兰是一个很重大的节日。那么再过2天，就是犹太人的逾越节，就是Passover，这个节日对所有的犹太人也是很重要的，因为这个象征着犹太民族经历了千年的奴役，重新获得了自由。
-
-资料来源：2022年4月15日文贵大直播
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+- [Reassuring regional allies, US Army Pacific not ‘distracted’ by Ukraine crisis: General](https://breakingdefense.com/2022/04/reassuring-regional-allies-us-army-pacific-not-distracted-by-ukraine-crisis-general/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

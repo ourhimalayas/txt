@@ -15,101 +15,101 @@
 
 ---
 
-### [“上海逝者”名单被以区块链技术上传 网址随即遭中共屏蔽](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [莫里森承诺农业支持资金一揽子计划](/content/gnews/2/README.md)
+### [澳大利亚面临血液危机](/content/gnews/1/README.md)
  ` 走进澳洲`
 
-### [2022年4月15日文贵大直播全文字版](/content/gnews/3/README.md)
+### [明星银行家和生态零售商之间的诉讼](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [【视频】新闻述评：美国会跨党派议员访台谴责习近平支持了普京](/content/gnews/3/README.md)
+ ` 战云长天时评`
+
+### [“上海逝者”名单被以区块链技术上传 网址随即遭中共屏蔽](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [莫里森承诺农业支持资金一揽子计划](/content/gnews/5/README.md)
+ ` 走进澳洲`
+
+### [2022年4月15日文贵大直播全文字版](/content/gnews/6/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [有声｜乌克兰总理和其他官员将访问华盛顿](/content/gnews/4/README.md)
+### [有声｜乌克兰总理和其他官员将访问华盛顿](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾称中国的威胁只会增加对岛屿的支持](/content/gnews/5/README.md)
+### [台湾称中国的威胁只会增加对岛屿的支持](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美国参议院代表团与台湾总统会谈](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [来自莫桑比克的志愿者：“你们做的太棒了”](/content/gnews/7/README.md)
- ` 波士顿五月花农场`
-
-### [有声｜FDA 授权以呼气测试检测中共病毒](/content/gnews/8/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性](/content/gnews/9/README.md)
- ` 關注組`
-
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十六）](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记：何以解忧，唯有灭共](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜深圳强推打疫苗 不接种者或被赋黄码](/content/gnews/12/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花时政┃无脸男尸死守婚戒 妻子控诉俄军暴刑](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：连线波兰救援前线战友](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜三次阴性仍被困上海方舱 乌克兰人称想回国](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [疫情｜上海传染病专家质疑“若清零有效，我愿向14亿人割腕谢罪”](/content/gnews/17/README.md)
- ` 關注組`
-
-### [泽伦斯基：欧洲国家还在为俄石油进行血腥交易](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声｜西安宣布封城 市民被封地铁站](/content/gnews/19/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [乌总统泽连斯基采访中透露军人死亡数字](/content/gnews/20/README.md)
- ` 波士顿五月花农场金融部`
-
-### [【 蓝枫法律 】 种族歧视的定义及种族主义的多面性](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [俄罗斯：如果美国继续武装乌克兰，将有 “不可预测的后果”](/content/gnews/22/README.md)
- ` 波士顿五月花农场金融部`
-
-### [【 蓝枫法律 】 案例讲解种族主义的多面性](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [台湾｜郭文贵爆料：中共启动“台湾之子”行动 制造社会动乱 趁机夺台](/content/gnews/24/README.md)
- ` 關注組`
-
-### [中共国正派出最先进战机在争议海域巡逻](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【 蓝枫法律 】 新冠后针对亚裔（华人）的歧视数据](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [乌克兰英勇的扫雷犬已经嗅出了“数百枚俄罗斯地雷”](/content/gnews/27/README.md)
- ` 日本东京方舟农场`
-
-### [在俄乌战争中，西方是行动派还是口炮党](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [不堪封锁镇压 越来越多外企考虑撤离中共国](/content/gnews/29/README.md)
+### [文贵先生精要- 2022/04/15](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [曾支持港警施暴的一上海居民如愿以偿地尝到沪警的铁拳](/content/gnews/30/README.md)
+### [来自莫桑比克的志愿者：“你们做的太棒了”](/content/gnews/10/README.md)
+ ` 波士顿五月花农场`
+
+### [有声｜FDA 授权以呼气测试检测中共病毒](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性](/content/gnews/12/README.md)
+ ` 關注組`
+
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十六）](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声｜深圳强推打疫苗 不接种者或被赋黄码](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美国表示对乌克兰的战事援助并不分散美国对抗中共](/content/gnews/15/README.md)
+ ` NFSC News`
+
+### [美参众议员访台 中共突击军演威胁](/content/gnews/16/README.md)
+ ` NFSC News`
+
+### [仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声｜三次阴性仍被困上海方舱 乌克兰人称想回国](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [疫情｜上海传染病专家质疑“若清零有效，我愿向14亿人割腕谢罪”](/content/gnews/19/README.md)
+ ` 關注組`
+
+### [有声｜西安宣布封城 市民被封地铁站](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [乌总统泽连斯基采访中透露军人死亡数字](/content/gnews/21/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [【 蓝枫法律 】 种族歧视的定义及种族主义的多面性](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [俄罗斯：如果美国继续武装乌克兰，将有 “不可预测的后果”](/content/gnews/23/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [【 蓝枫法律 】 案例讲解种族主义的多面性](/content/gnews/24/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [台湾｜郭文贵爆料：中共启动“台湾之子”行动 制造社会动乱 趁机夺台](/content/gnews/25/README.md)
+ ` 關注組`
+
+### [中共国正派出最先进战机在争议海域巡逻](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【 蓝枫法律 】 新冠后针对亚裔（华人）的歧视数据](/content/gnews/27/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [乌克兰英勇的扫雷犬已经嗅出了“数百枚俄罗斯地雷”](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [在俄乌战争中，西方是行动派还是口炮党](/content/gnews/29/README.md)
+ ` 澳喜农场`
+
+### [不堪封锁镇压 越来越多外企考虑撤离中共国](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [曾支持港警施暴的一上海居民如愿以偿地尝到沪警的铁拳](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [闵行人大代表原航天厂党委书记杨海退出核酸检测志愿者](/content/gnews/31/README.md)
+### [闵行人大代表原航天厂党委书记杨海退出核酸检测志愿者](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [芬兰瑞典拟加入北约 俄罗斯警告部署核武](/content/gnews/32/README.md)
- ` NFSC News`
 
 ### [SEC新添12家中概股进观察名单](/content/gnews/33/README.md)
  ` NFSC News`
