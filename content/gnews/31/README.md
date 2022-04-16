@@ -2,21 +2,22 @@
 ---
 
 
-## 中日财经爆┃60家日本上市企业决定停止或退出涉俄业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356471/)
+## 秘翻在线：乌克兰2800多名平民逃离东部交战地区
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2356599/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-53.png)[图片来源](https://asia.nikkei.com/Business/Automobiles/Toyota-to-halt-Russia-production-Friday-as-sanctions-cut-supply-chain)
-据日本帝国数据库统计，截止4月11日，在进军俄罗斯的168家日本上市公司中，有60家公司（约占36%）决定停止业务或退出。3月为止的调查中只有37家公司，现已扩大为约1.6倍。乌克兰危机导致“远离俄罗斯”的公司越来越多，但也有一些公司出于订单未完成等原因而暂时维持俄罗斯业务。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-30.jpg)图片来源：本文链接
+据韩国《朝鲜日报》4月16日的消息，德新社和BBC等外电报道说，当地时间15日，俄罗斯军队正在围攻的乌克兰东南部港口城市马里乌波尔有363人自力逃脱，共有平民2864人逃离了乌克兰和俄罗斯交战不断的乌克兰东部地区。
 
-关于停止业务的理由，很多企业列举了商品配送等供应面的混乱。随着俄乌战争长期化，企业对营商前景的警惕升温，这也成为背后原因。
+根据两国间的协议，虽然开通了旨在平民避难的人道主义通道，但又有消息称，俄方不允许乌克兰当局或国际红十字会(ICRC)在最大激战地之一的马里乌波尔进行系统避难。因此，据说民间人士正在利用没有确保安全的通道私自逃离。
 
-信息来源：[日本上市公司涉俄业务有36%决定停止或退出](https://china.kyodonews.net/news/2022/04/4b2a1404f7fd-36.html)
+据联合国世界粮食计划署(WFP)秘书长大卫•比斯利的说法，俄罗斯军队从两周前就开始包围了马里乌波尔，不允许运进救援物资，而马里乌波尔仍有10万平民，粮食和饮用水迟早会消耗殆尽。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+乌克兰当局还主张，俄罗斯正在出动图-22M3战略轰炸机对马里乌波尔进行轰炸。据德新社报道，乌克兰哈尔基宇宙检察院还透露，俄方攻击了试图乘坐公交车通过人道主义通道逃生的平民，造成7人死亡，27人受伤。
 
+信息来源：[https://biz.chosun.com/international/international\_general/2022/04/16/IRM3KPHGIZGY7GW5TJLXQII4DQ/?utm\_source=naver&utm\_medium=original&utm\_campaign=biz](https://biz.chosun.com/international/international_general/2022/04/16/IRM3KPHGIZGY7GW5TJLXQII4DQ/?utm_source=naver&amp;utm_medium=original&amp;utm_campaign=biz)
+
+责编：Eric Kim
 
  
 

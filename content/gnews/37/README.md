@@ -2,38 +2,27 @@
 ---
 
 
-## 因中共国“清零”政策，苹果组装商暂停iPhone生产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2356426/)
+## 有声｜莫斯科号的损失严重打击了俄军威信
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2356433/)
 
-据《Zerohedge》记者：Tyler Durden，2022年4月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1987.png)图片来源：WSJ
-由于中共国新冠“清零”政策，上海供应链再次变得拥挤，该政策关闭工厂并使数百万人处于封锁状态。
+By:**秘翻新闻**
 
-据《彭博社》报道，iPhone组装商和硕是最新一家暂停上海和附近昆山工厂生产的公司，遵守当地政府的卫生要求，以缓解两年来最严重的病毒爆发 。
+**2022-04-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/416-9.jpg)
+[《卫报》](https://www.theguardian.com/world/2022/apr/15/loss-of-moskva-strikes-serious-blow-to-russian-militarys-prestige)4月15日报道，在黑海沉没的莫斯科号战舰，对普京和其军队的威望造成极大打击。
 
-总部位于台湾的和硕在一份证券文件中宣布，两家iPhone工厂的复工都需要获得政府的授权。它表示将与当地卫生官员“积极合作”，以尽快恢复工作，但没有给出时间表。
+事件一开始，俄政府就淡化处理。起初，俄罗斯国防部声称是一场事故导致了船上起火。然后，国防部称损失已被控制，该船正被拖到塞瓦斯托波尔的港口。最后，在周四晚些时候，国防部宣布该船在风暴中沉没。
 
-和硕表示，它已经联系了客户和供应商，并评估了两家工厂关闭的影响，但没有详细说明细节。
+即使国家电视台的评论员试图将莫斯科号的损失说成是暂时的挫折，俄罗斯人也意识到发生了严重的事情。
 
-和硕的重要之处在于，它是仅次于富士康科技集团的第二大iPhone组装商。上个月富士康被迫停业后，和硕保持在线生产数周。由于上海和邻近的昆山现在都处于严格的封锁状态，顶级生产商关闭业务，因此在中共国的iPhone组装可能会减少。
+乌克兰声称它用一枚海王星反舰导弹击中了莫斯科号。俄罗斯媒体没有公布该舰或其船员的照片。一些西方媒体报道称，在该船沉没时，估计500名船员中只有几十人获救。俄罗斯没有公布伤亡信息。
 
-《彭博社》供应链分析显示，富士康和和硕是iPhone和其他苹果产品的两大生产商。目前还没有关于成品电子产品供应中断的报告。
+（秘密翻译组  大树  编译报道）
 
-在季节性基础上，美国公司普遍开始增加夏季的中共国进口。由于工厂关闭、物流网络和港口堵塞，这可能阻碍了对美国的发货。
+发布 : 文橙
 
-供应链再次中断，这可能导致美国商店到夏季货架空空如也。咨询公司Trendforce警告说，和硕的库存仅剩几周。
-
-文章来源：[**https://www.zerohedge.com/markets/apple-assembler-pegatron-halts-iphone-production-china-combats-covid-outbreak**](https://www.zerohedge.com/markets/apple-assembler-pegatron-halts-iphone-production-china-combats-covid-outbreak)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

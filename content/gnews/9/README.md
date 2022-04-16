@@ -2,34 +2,80 @@
 ---
 
 
-## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
+## 俄军 “莫斯科”号沉没， 乌克兰制反舰导弹是什么？
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2356960/)
 
-当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
+撰稿：毛毛虫
 
-在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/FireShot-Capture-1592-为莫斯科号复仇！俄军黑海舰队挺进乌海岸线-＊-阿波罗新闻网-www.aboluowang.com_.png)
+网络图片
 
-撰稿：喜马拉雅的肉夹馍
+俄罗斯国防部宣布，黑海舰队的旗舰“莫斯科”号已经沉没，有观点认为这将给乌克兰军事入侵造成打击。沉没的细节不得而知，但乌克兰方面称，乌克兰反舰导弹“海王星”击中了莫斯科号。
 
-审核：喜马拉雅的馍夹肉；
+俄罗斯国防部14日宣布，黑海舰队的旗舰“莫斯科”号 “被大火损害了船体，由于在拖往港口途中船体失去稳定性，沉没在波涛汹涌的海洋里”。
 
-校对：Maarago；
+**“莫斯科****”号是俄罗斯海军黑海舰队的旗舰**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+据俄罗斯国防部称，该船于1983年服役，1999年苏联解体后成为俄罗斯黑海舰队的旗舰，驻扎在乌克兰南部克里米亚的军事港口塞瓦斯托波尔。船员人数最多为680人，可携带16枚名为“巴扎里特”的巡航导弹和鱼雷。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+除了2008年俄罗斯军事入侵格鲁吉亚外，2015年还被派往介入叙利亚内战进行了军事干预，并被定位为俄罗斯海军的主力军。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**乌克兰军队 ****“国产反舰导弹****”命中**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+关于“莫斯科”号沉没事件，乌克兰军方发言人14日在当地媒体采访时表示，“乌克兰反舰导弹“海王星”击中了“莫斯科”号，使其遭到严重破坏并发生火灾。其他船试图提供帮助，但海面波涛汹涌，加之炸药猛烈爆炸，导致船体失去平衡开始下沉。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“海王星”是乌克兰制造的反舰巡航导弹，可以在陆地、海洋或空中发射。射程约300公里，可有效对抗护卫舰和小型驱逐舰。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+据乌克兰当地媒体报道，自2014年俄罗斯单方面吞并南部克里米亚危机以来，该船一直在参与开发黑海和亚速海的防御系统，并于去年3月正式部署在海军中。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+美国国防部：对黑海舰队的沉重打击
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+美国国防部发言人柯比14日在美国有线电视新闻网（CNN）上表示，“我们无法亲自确认造成沉没的原因，但乌克兰方面用导弹攻击是合理的，也是可能的。”并指出这对黑海舰队来说是一个重大打击。一艘拥有近500名船员 非常有能力的巡洋舰，将影响俄罗斯军队的战斗力。
+
+**美国智库****：俄罗斯失去了最重要的船只之一**
+
+美国智库“战争研究所”14日表示，“这将提振乌克兰士兵的士气，作为乌克兰反击俄罗斯海军能力的的象征。相反 俄方损失了一艘最重要的舰船。”这将很难解释，俄罗斯士兵的士气也会恶化，无法对俄罗斯人民隐瞒。
+
+英国国防部在15日的分析中指出，“莫斯科”号在指挥和防空任务中发挥了重要作用，自军事入侵以来，3月24日俄罗斯登陆舰受损后造成的重大损失，可能导致俄罗斯军队重新审视其在黑海的态势。
+
+**问到前海上自卫队干部，沉没的原因是什么？**
+
+震惊世界的“莫斯科”号沉没。我们向前海上自卫队指挥官香田洋二询问了原因和对未来的影响。根据香田先生的说法，沉船的原因可能是船内发生火灾并蔓延到弹药库，且乌克兰的导弹击中并爆炸，但军舰已经采取双重和三重措施应对火灾。另一方面，如果导弹击中弹药 很快就会爆炸变得无法控制，造成重大损失。”
+
+此外，部署在黑海的俄罗斯舰队的主要任务是，从海上运输物资从克里米亚半岛到乌克兰东部地区，并通过舰炮和导弹攻击支援地面作战。指出这是一艘负责防御导弹袭击 并指挥整个行动的舰艇。
+
+最重要的是关于未来的影响，“旗舰是舰队或整个海军的象征性舰船，如此轻易沉没的事实将大大降低俄罗斯海军的士气。如何重建防御乌克兰导弹袭击和保持士气方面，俄罗斯将面临着新的挑战。
+
+**防卫省国防研究所高桥杉雄先生****：如何引爆舰上的导弹**
+
+如果导弹击中后沉没，将如何影响未来的战局？熟悉军事战略的高桥先生表示，“第一印象是，俄罗斯在黑海的海军力量因此收到重创。无论是乌克兰导弹或是爆炸事故，都有可能是遭到乌克兰攻击，从今天的报道来看，黑海舰队的其他五艘船只正在远离海岸。如果远离 可能因为害怕乌克兰的进一步导弹袭击，意味着这次乌克兰的攻击是成功的”。
+
+**沉没的****“莫斯科****”号是怎样的****舰船**
+
+“1980年代的船，在日本自卫队中几乎不存在这个年代的船，还要使用这样的舰船，绝对不是一支强大的海军。然而 如果单看在黑海对手是乌克兰海军，这是支压倒性的力量，在控制黑海方面是一艘非常强大的船。”
+
+如果这次乌克兰反巡航舰导弹“海王星”击中“莫斯科”号会怎样？高桥先生表示，“在前线意外沉没或者被乌克兰军队击沉都是令人尴尬的。俄罗斯海军本来就是比较消极作战的海军，所以觉得不能采取相对积极的行动”。还指出“莫斯科”号沉没可能让乌克兰在南部战局中占据优势。“从赫尔松到尼古拉耶夫的战斗仍然很激烈。“莫斯科”号的防空系统S300失去掩护，消弱后将增加乌克兰空军攻击俄罗斯地面部队的可能性。这可能对南方战局产生最大影响。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[https://www3.nhk.or.jp/news/html/20220415/k10013584291000.html](https://www3.nhk.or.jp/news/html/20220415/k10013584291000.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+
+
+
+**更多信息，更多关注
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 

@@ -2,37 +2,42 @@
 ---
 
 
-## 闲聊澳洲：4月15日其它主要信息摘要
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356757/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
 
-作者：顺其自然
-编辑：李易通
+整理：枳实
+美工：精灵蓝
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1700.png)图片来源：雅典娜设计组（614）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
 
-有个网友说，不要妄图去启蒙任何人。每个人读过的书、挨过的刀、犯过的错、走过的路、爱过的人都不一样。你想说明白讲清楚的事，需要跨越的不是语言，而是语言背后的认知水平、智商、教育、阶层、信仰等等鸿沟。当你的见识与见解超过大多数人的时候，你绝对不会是一个很受欢迎的人。所以这次让国内的人存粮食，听你的话，存了更好，若是没存，也不要生气难过。
+雅典娜疫情更新（2022年 4月16日）
 
-最后说一下其它方面的消息：
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-（1）4月13日，新西兰和加拿大央行宣布大幅度加息50个基点，并且已经提出缩表的要求，而且在六月和七月也会大幅度的加息，用惊涛骇浪来形容毫不为过。另外昨天韩国也意外加息25个基点。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
+数据来源：
 
-（2）人民日报4月15日报道，东部战区新闻发言人施毅陆军大校表示，中国人民解放军东部战区出动驱扩舰、轰炸机、歼击机等力量在东海台岛周边海空域组织多军兵种联合战备警巡，并展开对海突击等科目演练。此次行动是针对近期美在台湾问题上频频释放错误信号而组织的。美恶劣行径和伎俩完全是徒劳的，也是十分危险的，玩火者必自焚。战区部队时刻保持高度戒备，坚决捍卫国家主权安全和地区和平稳定。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-（3）被乌克兰导弹击沉的莫斯科号共有510名船员，除了被土耳其的商船救助上来50多人以外，其余基本都遇难了。乌克兰海岸警卫队消息，俄罗斯黑海舰队尽管很努力，但还是未能营救莫斯科号船员。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-（4）俄罗斯军队出动，从俄罗斯空域向马里乌波尔发射巡航导弹。这是自开战以来俄军首次出动战略轰炸机空袭。马里乌波尔这个连接克里米亚和顿巴斯的重要城市，这次战局的走向，就在这十天。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-（5)推特最大股东马斯克今天提出以每股54.20美元的价格收购整个推特。如果推特董事会不同意，他可能会抛售自己拥有的股票。马斯克成为最大股东后，推特股价暴涨30%。他如果抛售，起码那涨出的三成会跌掉。无论这个交易成功与否，马斯克此举都提出个思路，市场经济下，科技大公司干预言论自由，会有市场手段来调整和纠错。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-马斯克要买下推特，遭左派疯狂反对和围剿，甚至呼吁拜登政府“没收马斯克的财产”。以此可以看出共产主义意识形态已经在美国嚣张到何等地步。谁动了左派一统天下的奶酪，谁就会被左媒和左派政客围剿。一场没有硝烟的社会主义和资本主义的战争早已在美国本土打响。马斯克此举只是把这个事实再次推到了前台。
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
 发布：tianzhihuan
 
-更多资讯，请关注：**
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

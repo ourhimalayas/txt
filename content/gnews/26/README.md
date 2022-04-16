@@ -2,31 +2,25 @@
 ---
 
 
-## 俄乌战争“没想到”系列之十一：
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2356670/)
+## 克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2356676/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-16-下午8.23.46.png)图片来源：互联网
+俄罗斯专家告诉《泰晤士报》，克里姆林宫可能正在协调整个欧洲的示威活动，以显示对乌克兰战争的支持。
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+上周末，印有支持战争的Z字标志的车辆和数百名挥舞旗帜的民族主义者参加的游行在都柏林、汉诺威、法兰克福和利马索尔巡游，此前在雅典和柏林也有类似活动。
 
-**第十一个没想到：**
+尽管示威活动相隔数百英里，但其时间和形式促使俄罗斯事务专家认为它们可能是由国家精心策划的。
 
-** 没想到俄罗斯的将军接连被击毙，中共国粉红们最崇拜俄爹，所谓的战斗民族原来是如此不堪一击。**
+他们说，侨民可能是由Rossotrudnichestvo指挥的，这是一个在欧洲各地都有办事处的俄罗斯联邦政府机构，负责促进软实力，实际上由莫斯科的外交部管理。
 
-**中共洗脑中国老百姓称俄罗斯将军身先士卒冲在最前线，甚至对俄爹崇拜的五体投地，鼓吹俄军值得敬佩，殊不知将军决胜千里之外。不战而屈，人之兵，方为兵法上乘。**
+原文链接：[Kremlin ‘is behind pro-Russian protests in Europe’](https://www.thetimes.co.uk/article/kremlin-is-behind-pro-russian-protests-in-europe-9gj27s8g5)
 
-**而俄军只是因为作战指挥系统的低效无能。通信落后梗阻不畅，作战指挥部不得不前移，这一致命弱点在现代科技面前被放大。**
+* * *
 
-**将军们被精准定位定点斩首，不寒而栗吧，中共的将军们，为独裁者卖命，与人类的价值观背道而驰就是这样的下场。**
+*编辑&发布：长岛开心*
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
