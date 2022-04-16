@@ -2,50 +2,34 @@
 ---
 
 
-## 中共的乌克兰战争宣传（一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356807/)
+## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/61381764_303.jpg)图片来源：dw.com
+当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
 
-中共国庞大的信息控制机构，通常专注于歪曲中国公民能够获得的关于他们自己国家的信息，外交事务的重要性被降到了次要地位。然而，在过去的七周里，中国共产党（CCP）领导层在，俄罗斯总统弗拉基米尔-普京无端入侵乌克兰的事件中明显决定站在他一边，这助长了一场全面的运动，以塑造公众舆论和互联网上关于千里之外事件的讨论。
+在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
 
-在中共政权可用的强大控制工具箱中，有三种策略似乎在这场运动中发挥了巨大的作用：呼应俄罗斯国家虚假信息的国家旗舰媒体、操纵社交媒体标签和热门话题，以及审查其他观点和信息来源。
+撰稿：喜马拉雅的肉夹馍
 
-这一努力有效地在中共国周围筑起了一道隔离墙，使中国的新闻消费者对本世纪最重要的地缘政治事件之一的印象与世界上其他人口所看到的版本截然不同。
+审核：喜马拉雅的馍夹肉；
 
-**歪曲现实的三管齐下的策略**
+校对：Maarago；
 
-在普京入侵乌克兰后的几周内，中共国的三家国有媒体–中共喉舌《人民日报》、国家广播公司中国中央电视台（CCTV）和民族主义小报《环球时报》–在向中国新闻消费者提供俄罗斯国家宣传方面表现得尤为积极。它们不是简单地宣传莫斯科的官方观点或声明，而是传播包括多个彻头彻尾的谎言的内容。例如，它们宣称乌克兰士兵交出了他们的武器，乌克兰总统沃洛基米尔-泽伦斯基逃离了基辅，以及俄罗斯军队只打击了军事目标。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-与所宣扬的谎言同样值得注意的是所遗漏的基本事实。没有人承认，莫斯科公然违反国际法，入侵一个主权邻国，从而发起了这场战争。泽伦斯基每天都会在视频中展示他的魅力，这些视频已经在全球观众中传播开来，在中共国但却没有得到任何播放时间。此外，在占领国俄罗斯军队撤退后，出现的关于基辅地区暴行的详细描述也没有出现。例如，中央电视台的多个新闻广播–包括每晚仍有数千万中国人收看的黄金时段节目–几乎没有提及4月初布查镇的平民死亡报告。相反，他们专注于俄罗斯成功的军事打击和美国向乌克兰运送武器等话题。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-中共政权通过操纵国内社交媒体平台上的标签和热门话题，帮助传播亲克里姆林宫的宣传。有许多例子表明，中共国的国家机构创建了与虚假信息叙述有关的标签，然后积极地放大这些标签。在战争初期，中央电视台创建了一个标签，宣称泽伦斯基已经逃离基辅，据说该标签被浏览了5.1亿次。最近，在俄罗斯政府宣布它将在8月举办一次反法西斯会议之后–这是其虚假信息叙述的一部分，即入侵是为了摆脱乌克兰的纳粹分子–中央电视台在微博社交媒体平台上发布了一个相关故事并创建了一个标签。据报道，在24小时内，它获得了6.5亿次浏览和90次媒体引用。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-即使他们的算法和趋势话题与政府的优先事项保持一致，中共国社交媒体平台的工作人员也一直忙于删除偏离官方路线的内容。在其他目标中，他们删除了中国国内知名人士的帖子和公开信，这些人直接质疑政府对莫斯科的支持，批评普京，表达对乌克兰的支持，或谴责民族主义网民无视中国在外国侵略者手中的历史痛苦。至少在两个案例中，那些称普京为“疯子”、敦促追随者为和平祈祷或发布俄罗斯反战抗议活动照片的名人的微博账户被暂停或限制。这两个人，前脱口秀主持人金星和女演员柯蓝，因此分别失去了接触1360万和290万粉丝的能力。一些好战的亲莫斯科帖子也被撤下，但在被审查和扭曲的中共国互联网上，最主要的说法是亲克里姆林宫、反美国和反北约。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-审查员也同样压制了在乌克兰的中国居民的第一手报道，包括对政府延迟协助他们撤离战区的投诉。在敖德萨市发布视频的技术工人王发现，他在多个平台的社交媒体账户，包括微信，都被关闭了。在一段发布在YouTube上的情绪化视频中，王愤怒地哀叹他不再有办法与父母直接沟通，要求朋友提醒他们他还活着。今日头条上的个别网民帖子和视频被删除，今日头条是字节跳动旗下的一个广泛使用的内容聚合平台，因为描述了俄罗斯的反战抗议活动。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-这些信息控制策略与3月3日泄露的一系列官方媒体指令密切相关。其中一项指令明确指出，不得转载外国新闻报道，社交媒体平台必须“严格控制”挑战官方声明、涉及“煽动中俄对立”、提及历史上对中国的入侵，或涉及“公开反战声明”的评论文章。这条指令和另一条指令都强制要求国家媒体垄断与战争有关的标签和趋势性话题，例如，指出 “无一例外，个人、自媒体和商业平台发起的现有标签不得列入趋势性话题，并严格禁止新标签”。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-【接下篇：[中共的乌克兰战争宣传（二）](https://gnews.org/zh-hans/2356853/)】
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**新闻来源：**[The CCP’s Ukraine War Propaganda](https://thediplomat.com/2022/04/the-ccps-ukraine-war-propaganda/)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,37 +2,44 @@
 ---
 
 
-## 俄乌战争“没想到”系列之十二：
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2356715/)
+## 警察局长说，在基辅地区发现900多具平民尸体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356737/)
 
-视频制作：多伦多蓝莲花视频组laocai
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1992.png)Dmytrivka村附近被摧毁的俄罗斯军事装备。照片。Pavlo Bahmut/ Ukrinform/Future Publishing via Getty Images
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+据美联社报道，一位地区警察局长周五表示，俄罗斯军队撤出后，在基辅地区发现了900多具平民的尸体。
 
-**第十二个没想到：**
+**推动新闻：**基辅地区警察局局长Andriy Nebytov在周五的发布会上说：“因此，我们了解到，在[俄罗斯]占领下，人们被简单地在街上处决。”
 
-今天又一个让世界哗然，想不到莫斯科会葬身海底。
+- Nebytov说，尸体大多被遗弃在街上或被临时埋葬，他补充说，每天都有更多尸体被发现。
+- Nebytov援引警方的数据指出，95%的人死于枪伤。
+- Nebytov说：“在布查发现的受害者最多，那里有350多具尸体。”
 
-黑海舰队的旗舰，曾经雄霸世界最大巡洋舰长达40年，曾经是俄罗斯的骄傲，曾经那样的不可一世。号称一舰可灭几国，装备有世界无敌的远程导弹，号称舰艇杀手，想不到却再一次被没有海军的乌克兰击沉。
 
-他装备的先进雷达没能及时发现目标，电子战武器呢，防空飞弹呢，统统无效。神话被一个一个戳破，曾经是莫斯科不相信眼泪，现在是莫斯科不相信事实，瞪眼楞说是因为失火引起损坏。
+**大势所趋：**乌克兰官员报告说，当乌克兰军队重新占领布查地区时，尸体–有些人的手被反绑在背后–散落在布查的街道上。
 
-但是不得不将所有军舰后退，不再敢肆无忌惮的近岸霸凌。在一个没有海军的国家面前失去制海权，北极熊不过是虚张声势。
+- 乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelensky）本月早些时候访问了布查。
+- “我们希望你们向世界展示这里发生的一切”，泽伦斯基说。“俄罗斯军队做了什么。俄罗斯联邦在和平的乌克兰做了什么。对你们来说，重要的是看到这些是平民。”
 
-一场非正义战争将他彻底打回原形，只要正义力量同仇敌忾，只要爱国者们不再退缩，民主世界必将赢得与独裁的终极之战，自由之花将开遍全球。
 
-视频文案：wood(文斌)
+**新闻来源：**[More than 900 civilians’ bodies found in Kyiv region, police chief says](https://www.axios.com/ukraine-deaths-kyiv-russian-invasion-96e2fcfe-c3df-44d9-9977-14ff68669e11.html)
 
-编辑与校对：冰糖葫芦喵
+* * *
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

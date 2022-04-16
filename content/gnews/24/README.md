@@ -2,38 +2,28 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
+## 俄罗斯警告：军事援助乌克兰将带来“不可预料后果”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356866/)
 
-整理：枳实
-美工：精灵蓝
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
+翻译/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2004.png)
 
 
-雅典娜疫情更新（2022年 4月16日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+在本周的一份外交照会中，俄罗斯警告美国和北约不要向基辅运送最敏感的武器，用于与俄罗斯的冲突，称此类援助正在让局势失控，并可能带来“不可预测的后果”。
+就在同一周，美国总统乔·拜登承诺向乌克兰提供8亿美元的新军事援助计划，包括直升机、榴弹炮和装甲运兵车。
+“**俄罗斯人私下告诉我们的正是我们公开告诉世界的——我们向乌克兰合作伙伴提供的大量援助被证明是非常有效的**，”《华盛顿邮报》援引一位不愿透露姓名高级政府官员的话。
+美国国务院拒绝对有关正式照会的报道发表评论。
+“我们可以确认的是，我们与盟国和合作伙伴一道，正在向乌克兰提供价值数十亿美元的安全援助，我们的乌克兰合作伙伴正在利用这些援助来保护他们的国家免受俄罗斯的无端侵略和可怕的暴力行为。”
+该照会是通过正常渠道发出的，但没有任何俄罗斯高级官员签署。一位不愿透露姓名的美国官员告诉媒体，此照会表明，俄罗斯担心美国对乌克兰持续的物质支持。
+一位熟悉该文件的消息人士称，俄罗斯照会可能意味着随着入侵战争的继续，莫斯科正准备对美国和北约采取更激进的立场。
+原文链接：[Russia warns US of ‘consequences’ of Ukraine military aid: Reports – CNA (channelnewsasia.com)](https://www.channelnewsasia.com/world/russia-warns-us-consequences-ukraine-military-aid-reports-2629186)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
