@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 10:00 PM (UTC)`
+
+“台湾之子，中共要大屠杀啦！” 飞飞秀救援快报 2022-04-16<br/>For English：gettr.com/streaming/p15mpked660
+![img](https://media.gettr.com/group29/origin/2022/04/16/21/ff53b0a8-cf42-7d22-ca07-f6a71e1129b3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 9:36 PM (UTC)`
 
 4/16/2022 Miles Guo: I am calling out fellow fighters to collect and provide the dossiers and interrogation files of the running dogs of the CCP, such as Jack Ma, Bruno Wu, Meng Jianzhu, Fu Zhenghua, Sun Lijun, Weijian Shan, and so on. The New Federal State of China will be rewarding anyone who can obtain and provide those documents.<br/><br/>4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案；新中国联邦会给提供信息的战友巨额奖励<br/><br/>
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 4月16号：我们中国人就连这些．家禽．畜生的勇气都没有……中国才有比爹娘还亲的中国共产党！
 ![img](https://media.gettr.com/group14/getter/2022/04/16/16/72e6b972-7a46-6376-500a-b31fe3e5ba2e/out.jpg)
-
----
-
-`@miles 4/16/2022 4:04 PM (UTC)`
-
- 4月16号：和平稳定的吉林省．还有长春都变成了如此不堪的样子，加油，这个词是给失败者送葬的形容词，却在中国变成了解决痛苦，掩盖灾难．<br/><br/>推卸责任的代名词，而且成为国家忽悠老百姓的专用词。现在中国清明节不让烧纸了，但可以喊加油加油！难道．坟墓里的人也需要这种加油的政治口号的鼓励么？担心他们从墓地跑出来吗？这个国家是不是已经精神错乱了？
-![img](https://media.gettr.com/group13/getter/2022/04/16/16/dd8b0af2-1950-d81e-017c-b9894042e3ab/out.jpg)
 
 ---
 
