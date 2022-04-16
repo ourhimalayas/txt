@@ -2,20 +2,38 @@
 ---
 
 
-## 中日财经爆┃面对西方制裁 中俄共进一步合作提高铁路货运量
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357283/)
+## 英国首次训练乌克兰使用反坦克导弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2357307/)
 
 撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-64.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.bloomberg.com%2Fnews%2Farticles%2F2022-03-23%2Fchina-europe-rail-routes-become-supply-chain-s-latest-problem&amp;psig=AOvVaw10LailKOCzOlEele_tGgQk&amp;ust=1650202387299000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCIDL84zZmPcCFQAAAAAdAAAAABAD)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-52.jpg)[图片来源](https://www.dailymail.co.uk/news/article-10723345/SAS-troops-training-Ukrainians-use-British-supplied-anti-tank-missiles.html)
+据报道，英国陆军特种空勤团（SAS）已经在基辅训练乌克兰士兵如何使用英国提供的便携式反坦克导弹发射器（NLAW）。
 
-俄罗斯铁路公司（RZD）周五（4月15日）表示，它已经与中共国的合作伙伴达成协议，逐步增加通过连接站的货运列车的数量。
+这次训练标志着自俄罗斯普京于2月24日发动入侵以来，英国部队首次对其乌克兰同行进行指导。
 
-“4月份，俄罗斯和中共国之间的铁路货物转运在扎巴伊尔斯克（Zabaykalsk）每月增加27%，在格罗德科沃（Grodekovo）增加10%，”RZD说，”通过哈萨克斯坦和蒙古到中国的出口货物运输也在增长。”
+驻扎在该国首都及其周边地区的两个营的军官告诉《泰晤士报》，英国特种部队在过去两周内两次训练他们的部队。
 
-该公司指出，除了煤炭数量不断增长外，其他类型的货物也通过贝加尔-阿穆尔（BAM）和西伯利亚大铁路发送。与去年相比，提交的通过这些铁路运输的申请数量增加了近30%。在2022年第一季度，超过3500辆重型列车和1700辆连接列车通过两国供应链的战略路线运输货物。RZD表示，新增货物量超过600万吨。
+自2014年俄罗斯入侵克里米亚以来，英国军事教官一直在乌克兰驻扎，但随着普京下令全面入侵乌克兰的可能性增加，他们于2月撤出。
 
-信息来源：** **[**Russia, China to boost freight rail traffic**](https://thepressunited.com/updates/russia-china-to-boost-freight-rail-traffic/)
+自2月以来，英国已向乌克兰交付了3600多件下一代轻型反坦克武器（NLAW）。在有报道称这些武器已被证明对俄罗斯装甲部队非常有效之后，基辅要求提供更多。
+
+这些发射器相对容易使用，并为地面部队提供了一个现代轻型用以对抗俄罗斯大量行动缓慢、老旧过时坦克的工具。
+
+英国国防部告诉《泰晤士报》，它不会对这些报道发表评论，因为长期以来的惯例意味着它不会对该国特种部队的活动进行评论。
+
+关于训练的报道，是在美国总统拜登周三宣布向乌克兰提供8亿美元的额外军事援助之后出现的。
+
+该一揽子计划使俄罗斯军队入侵以来的军事援助总额超过25亿美元，包括火炮系统、炮弹、装甲运兵车和无人驾驶的海岸防御船。
+
+新的一揽子计划包括11架米-17直升机，这些飞机在去年美国支持的政府倒台前已被指定用于阿富汗。
+
+它还包括18门155毫米榴弹炮，以及4万发炮弹、反炮兵雷达、200辆装甲运兵车和另外300架’Switchblade’无人机。
+
+这是美国首次向乌克兰提供榴弹炮。
+
+在莫斯科最近几周从基辅撤军后，乌克兰目前正在为俄罗斯在该国东部重新集中的攻势做准备。
+
+信息来源：** **[**SAS troops are now training Ukrainians in how to use British-supplied anti-tank missiles after Russia warned that Western involvement means World War Three has already started**](https://www.dailymail.co.uk/news/article-10723345/SAS-troops-training-Ukrainians-use-British-supplied-anti-tank-missiles.html)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
