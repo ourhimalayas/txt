@@ -2,28 +2,26 @@
 ---
 
 
-## 美国表示对乌克兰的战事援助并不分散美国对抗中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355964/)
+## 疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356016/)
 
-作者：银河系农场 – 骄子
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-当地时间4月13日，美国陆军太平洋司令弗林将军表示，虽然世界的注意力集中在对乌克兰的援助上，但并没有分散美国应对中共挑战的注意力和资源投入。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/14-9.jpg)
-据悉，弗林将军近日访问了印太地区的五个盟友国家，包括澳大利亚、菲律宾、新加坡、泰国和马来西亚，主要向盟国表示美国军队仍然坚持在该地区效力。近日，美国专注于欧洲并向乌克兰军队运送武器，而中共在印太地区的军事扩张，让这个地区的盟友有天然的担忧。据弗林将军说，该地区的国防官员不断强调美国在此地的重要性，包括美国陆军太平洋军队的各种作用，从救灾到安全援助以及对盟军进行军事训练。
+**图/文｜CP **
+**发布时间｜16/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/英美爆發不明「兒童急性肺炎」部分病例呈新冠陽性.jpg)
+世界卫生组织（WHO）4月15日称，英国数十名儿童出现不明原因的急性肝炎症状，部分严重到需要立即做肝脏移植手术，截至4月8日为止，短短三日内，患者激增至74人之多。出现的主要症状是黄疸、下痢、呕吐和腹痛，由于他们并没有接种过新冠疫苗，因此排除是疫苗引发的副作用。
 
-美国太平洋司令部将在10月前进行横跨太平洋的十几次演习，包括在关岛、马来西亚、日本和韩国。到目前为止已经完成了五项，其中包括在阿拉斯加举办的太平洋多国准备中心轮换。
+世卫表示，病例最早出现在英国北部苏格兰地区，4月5日发现10件重症急性肝炎个案，患者主要是10岁以下儿童，到了8日，英国全境该类肝炎患者增至74人，并在一部分病例中检测到新冠病毒的存在，其中有6人严重到需要肝脏移植。所幸截至11日为止，暂未出现死亡报告。
 
-参考链接：
+而在美国阿拉巴马州，同样出现了9名1至6岁的儿童患上该类急性肝炎，这些儿童的新冠病毒均呈阳性，其中2例需要进行肝移植，而这些儿童本身并没有任何潜在的健康问题。
 
-- [Reassuring regional allies, US Army Pacific not ‘distracted’ by Ukraine crisis: General](https://breakingdefense.com/2022/04/reassuring-regional-allies-us-army-pacific-not-distracted-by-ukraine-crisis-general/)
+不仅如此，西班牙、爱尔兰也都相继确诊了数例儿童急性肝炎病例，目前，世卫组织和相关当局都严正以待。
 
+來源｜[Statnews](https://www.statnews.com/2022/04/14/u-s-u-k-investigating-unusual-cases-of-hepatitis-in-young-children/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+* * *
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,24 @@
 ---
 
 
-## 2022年4月16日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356637/)
+## 乌克兰总理和财政部长将于下周访问华盛顿
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356672/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+**撰稿：日本东京方舟农场  北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1146.jpg)
+据联合新闻4月16日报道，乌克兰总理丹尼斯·什米加尔（Denys Shmygal）和高级金融官员将于下周在国际货币基金组织和世界银行春季会议期间访问华盛顿。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-168.png)乌克兰总理兼代表团团长丹尼斯·什米哈尔于2021年2月11日在比利时布鲁塞尔举行的欧盟 – 乌克兰协会理事会会议后出席联合新闻发布会。（图片来自路透社）
+据消息人士透露，乌克兰总理将与财政部长谢尔盖·马尔琴科（Serhiy Marchenko）和国家银行主席凯里洛·舍甫琴科（Kyrylo Shevchenko）一起，分别与七国集团和其他国家地区的金融官员举行双边会议，并参加世界银行于4月21日星期四组织的乌克兰问题圆桌会议。
 
-发稿：信心的选择
+此次活动将是乌克兰官员在2月24日俄罗斯入侵乌克兰后首次会见发达经济体的众多金融人物。预计此次会见将讨论战争造成的破坏和经济后果，以及乌克兰国家银行和金融部门的下一步运作。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+今年早些时候，世界银行曾计划向乌克兰提供15亿美元的一揽子财政援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+参考链接：
+[https://reurl.cc/1ZjlDG](https://reurl.cc/1ZjlDG)
+
+总编：老孙
+校对发布：爱放飞
 
  
 

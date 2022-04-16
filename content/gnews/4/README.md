@@ -2,22 +2,24 @@
 ---
 
 
-## 秘翻在线：乌克兰2800多名平民逃离东部交战地区
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2356599/)
+## 2022年4月16日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356637/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-30.jpg)图片来源：本文链接
-据韩国《朝鲜日报》4月16日的消息，德新社和BBC等外电报道说，当地时间15日，俄罗斯军队正在围攻的乌克兰东南部港口城市马里乌波尔有363人自力逃脱，共有平民2864人逃离了乌克兰和俄罗斯交战不断的乌克兰东部地区。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-根据两国间的协议，虽然开通了旨在平民避难的人道主义通道，但又有消息称，俄方不允许乌克兰当局或国际红十字会(ICRC)在最大激战地之一的马里乌波尔进行系统避难。因此，据说民间人士正在利用没有确保安全的通道私自逃离。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1146.jpg)
 
-据联合国世界粮食计划署(WFP)秘书长大卫•比斯利的说法，俄罗斯军队从两周前就开始包围了马里乌波尔，不允许运进救援物资，而马里乌波尔仍有10万平民，粮食和饮用水迟早会消耗殆尽。
+发稿：信心的选择
 
-乌克兰当局还主张，俄罗斯正在出动图-22M3战略轰炸机对马里乌波尔进行轰炸。据德新社报道，乌克兰哈尔基宇宙检察院还透露，俄方攻击了试图乘坐公交车通过人道主义通道逃生的平民，造成7人死亡，27人受伤。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-信息来源：[https://biz.chosun.com/international/international\_general/2022/04/16/IRM3KPHGIZGY7GW5TJLXQII4DQ/?utm\_source=naver&utm\_medium=original&utm\_campaign=biz](https://biz.chosun.com/international/international_general/2022/04/16/IRM3KPHGIZGY7GW5TJLXQII4DQ/?utm_source=naver&amp;utm_medium=original&amp;utm_campaign=biz)
-
-责编：Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 

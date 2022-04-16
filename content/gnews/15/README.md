@@ -2,43 +2,42 @@
 ---
 
 
-## 随着上海病例的增加，更多的中国城市实施了针对COVID-19限制措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356420/)
+## 新西兰向澳洲旅客重新开放边境，允许无隔离入境
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2356451/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+评论：***新西兰为因应COVID-19疫情，执行全球最严格边境管控措施近2年，今年开始逐步放宽。预期，10月份起将全面向全球旅客开放边境。在国际社会逐步停止疫苗接种及放开各种限制措施之际，反观中共国，却日益加紧疫情防控。正如杰克·波索比克所说：“中共非常害怕，证明他们的疫苗无效，这就是中共进行所有这些封锁的原因。”同时，我们知道，CCP在沪上广深北京等地加强封锁还有更进一步的邪恶目的。***
 
-翻译：li yan li
-编辑：李易通
+据《天空网》作者：Miriah Davis，2022年4月13日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1988.png)2022年4月13日，新西兰奥克兰国际机场欢迎游客、朋友和家人。图片来源：Fiona Goodall/盖蒂图片社
+新西兰从4月12日晚上11点59分开始向澳大利亚人重新开放国际边界。9个月前，跨塔斯曼边境（the trans-Tasman bubble，意为澳大利亚和新西兰之间的边境）因新冠肺炎疫情而被关闭。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
+在边境重新开放的第一天，预计将有超过3000名旅客从澳大利亚抵达，第一个来自墨尔本的航班将于星期三凌晨1点在奥克兰降落。
 
+澳大利亚公民和返回的新西兰居民必须完全接种疫苗，才有资格享受免检疫入境。
 
-4月16日，上海报告了创纪录的有症状的COVID-19病例。因为中国保持了“动态清除”的防疫政策，旨在消除高度传播的Omicron中共病毒变体。中国其它地区也实施了限制措施。
+旅客需要在出发前进行监督下的快速抗原测试、LAMP或PCR测试，并在抵达后和第六天再次进行检测。
 
-郑州空港经济区是中国中部的一个制造区，包括苹果公司供应商富士康，周五宣布了为期14天的封锁，“将根据疫情情况进行调整”。
+新西兰总理杰辛达·阿德恩(Jacinda Ardern)女士说，她很高兴欢迎澳大利亚人在复活节假期和新西兰滑雪季节到来之前回到新西兰。
 
-在中国西北部，西安市在本月发生数十起COVID-19感染事件后，周五敦促居民避免在住宅区外进行不必要的旅行，并鼓励公司让员工在家工作或在工作场所居住。
+澳航和新西兰航空已经增加了额外的航班，以满足需求，航空公司预计从6月中旬开始，滑雪季节的旅行将激增。
 
-上海是中国最近爆发疫情的中心，周六报告了4月15日创纪录的3590个有症状的病例，以及19923个无症状病例。无症状病例的数量比一天前的19872例略有增加。
+在大流行病引发长期封锁和边境关闭之前，旅游业对新西兰经济的贡献超过400亿美元。
 
-该市的COVID-19病例数占全国病例数的绝大部分，即使其2500万居民中的大多数仍处于封锁状态。
+澳大利亚人约贡献了新西兰旅游业的40%，每年有超过150万游客到新西兰旅游。
 
-周五，中国电动汽车标杆Xpeng的负责人表示，如果上海和周边地区的供应商不能恢复工作，汽车制造商可能不得不在下个月暂停生产。
+从5月1日起，美国、英国、日本、德国、韩国和新加坡等免签证国家的游客，以及持有有效旅游签证的游客，都可以进入新西兰。
 
-在郑州工厂，经济区当局在官方微信即时通讯文章中说，只有持有有效通行证、健康代码和COVID-19阴性测试证明的人员才能在这段时间内离开经济区。
+文章来源：**[https://www.skynews.com.au/australia-news/jacinda-ardern-excited-to-welcome-australians-back-to-new-zealand-as-borders-reopen-for-quarantinefree-travel/news-story/75abd4b671099d34af26e80deeb29507](https://www.skynews.com.au/australia-news/jacinda-ardern-excited-to-welcome-australians-back-to-new-zealand-as-borders-reopen-for-quarantinefree-travel/news-story/75abd4b671099d34af26e80deeb29507)**
 
-鸿海精密工业公司的商标名富士康在周四向路透社援引其声明，称其郑州工厂正在配合政府的疫情控制工作。
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 钢蛋儿
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-经济学家表示，这些限制措施将对该国今年的经济增长率产生影响。
-
-参考链接：[随着上海病例的增加，更多的中国城市实施了COVID-19限制措施](https://www.channelnewsasia.com/asia/more-chinese-cities-impose-covid-19-curbs-shanghai-cases-rise-2629191)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

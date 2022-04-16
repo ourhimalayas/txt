@@ -2,42 +2,43 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.16K）——接种疫苗后出现了浑身发冷、酸痛和嗜睡的症状
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356399/)
+## 随着上海病例的增加，更多的中国城市实施了针对COVID-19限制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356420/)
 
-整理：w2
-編輯：文泓
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-38.png)图片来源：雅典娜设计组
+翻译：li yan li
+编辑：李易通
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-46.png)图片来源：雅典娜设计组
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报导已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+4月16日，上海报告了创纪录的有症状的COVID-19病例。因为中国保持了“动态清除”的防疫政策，旨在消除高度传播的Omicron中共病毒变体。中国其它地区也实施了限制措施。
 
-[**副作用集萃 – GNEWS**](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+郑州空港经济区是中国中部的一个制造区，包括苹果公司供应商富士康，周五宣布了为期14天的封锁，“将根据疫情情况进行调整”。
 
-**疫苗第三针打完的反应（博主：小蘑鲜）**
+在中国西北部，西安市在本月发生数十起COVID-19感染事件后，周五敦促居民避免在住宅区外进行不必要的旅行，并鼓励公司让员工在家工作或在工作场所居住。
 
-2022年3月22日，刚打的时候没啥事，我是跟老公一起去的。过后他啥事没有，我从晚上开始浑身发冷并且浑身酸痛，嗓子疼、嗜睡……本来以为睡一觉会好，今天是打完的第二天，浑身还是痛，冷的像进了冰窖一样……新冠疫苗第三针。
+上海是中国最近爆发疫情的中心，周六报告了4月15日创纪录的3590个有症状的病例，以及19923个无症状病例。无症状病例的数量比一天前的19872例略有增加。
 
-以下是网友评论：
+该市的COVID-19病例数占全国病例数的绝大部分，即使其2500万居民中的大多数仍处于封锁状态。
 
-“这里是圆脸”评论：我的反应竟然是，月经这个月已经来过，打完针第二天又来了，而且量巨多。
+周五，中国电动汽车标杆Xpeng的负责人表示，如果上海和周边地区的供应商不能恢复工作，汽车制造商可能不得不在下个月暂停生产。
 
-博主回复：太痛苦了！
+在郑州工厂，经济区当局在官方微信即时通讯文章中说，只有持有有效通行证、健康代码和COVID-19阴性测试证明的人员才能在这段时间内离开经济区。
 
-“用户已注销”：我也是，醉了！
+鸿海精密工业公司的商标名富士康在周四向路透社援引其声明，称其郑州工厂正在配合政府的疫情控制工作。
 
-“小红薯60CB”评论：我也是这样，非常难受……
+经济学家表示，这些限制措施将对该国今年的经济增长率产生影响。
 
-参考链接：[疫苗第三针打完的反应 (xiaohongshu.com)](https://www.xiaohongshu.com/discovery/item/6239558b000000000102d8ca?share_from_user_hidden)
+参考链接：[随着上海病例的增加，更多的中国城市实施了COVID-19限制措施](https://www.channelnewsasia.com/asia/more-chinese-cities-impose-covid-19-curbs-shanghai-cases-rise-2629191)
 
-发布：Frank2021
+发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
