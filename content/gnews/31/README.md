@@ -2,34 +2,30 @@
 ---
 
 
-## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
+## 乌克兰已经获得了27万吨人道主义援助
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356899/)
 
-当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
+**撰稿：日本东京方舟农场  北极**
 
-在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
+据乌克兰新闻报4月16日报道，乌克兰总统办公室发表声明称，在俄罗斯入侵的50余天里，国际社会共向乌克兰运送了27万吨人道主义援助物资，并通过协调中心从乌克兰生产商那里购买食物，并为近1200万乌克兰人制作了餐包。
 
-撰稿：喜马拉雅的肉夹馍
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-170.png)乌克兰已经获得了27万吨人道主义援助（图片来自乌克兰新闻报）
 
-审核：喜马拉雅的馍夹肉；
+这是乌克兰总统办公室副主任尤利娅·索科洛夫斯卡（Yulia Sokolovska）在报告人道主义和社会事务协调中心取得的成果时发表的声明。
 
-校对：Maarago；
+据悉，俄乌战争爆发后的3月2日，乌克兰总统沃洛季米尔·泽伦斯基签署了一项法令，为了向俄罗斯武装侵略期间的乌克兰公民提供援助，乌克兰成立了人道主义和社会事务协调中心。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+乌克兰第一副总理兼经济部长尤利娅·斯维里登科（Yulia Svyrydenko）称，开战第一周就在与波兰，匈牙利，罗马尼亚，摩尔多瓦和斯洛伐克的西部边界建立了物流中心，国际捐助者和合作伙伴将人道主义援助送往那里。利沃夫地区已成为乌克兰最大的人道主义支持中心，51% 的货物来自国外。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+关于重要的能源供应问题，乌克兰副总理表示，从战争的第一天起，波兰政府战略储备局就提供了2万吨燃料作为人道主义援助，各物流中心与乌克兰境内最大的加油站网络达成协议，通过加油站分配给特定接收者。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+最后，据总统办公室副主任凯里洛·季莫申科（Kyrylo Tymoshenko）介绍，在战争的50天里，整个乌克兰团结一致，后方每天都在帮助支援前线地区。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+参考链接：
+[https://reurl.cc/g2k1AL](https://reurl.cc/g2k1AL)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+总编：青城道姑
+校对发布：爱放飞
 
  
 

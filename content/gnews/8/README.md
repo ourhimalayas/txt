@@ -2,29 +2,24 @@
 ---
 
 
-## 美议员认为 放弃台湾就是放弃民主自由
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2357605/)
+## 马斯克已不再是Twitter最大股东
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2357670/)
 
-作者：在远方，文希
+编辑：文宝
 
-当地时间4月15日，据相关媒体报道，由美国联邦参议员葛瑞姆率领的跨党派国会代表团已经抵达台湾。当天上午，代表团成员与台湾总统蔡英文举行了会晤。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-16-at-10.36.52-AM.png)
-会上，葛瑞姆参议员表示，美国两党虽然意见多有分歧，但于访台一事上却格外团结，且有鉴于俄罗斯当前对乌克兰发动的侵略战争，两党一致认定，此次访台行程即要展现出美国对台湾的支持与热爱，同时也要重点回应中共政府近期在台海地区日益加强的挑衅行为。
+4月15日晚间消息，据报道，[特斯拉](http://stock.finance.sina.com.cn/usstock/quotes/TSLA.html)CEO埃隆·马斯克（Elon Musk）已经不再是Twitter的最大股东，这正值马斯克拟以400多亿美元收购Twitter。
 
-葛瑞姆参议员也再次强调了台湾对美国及世界的重要性：在电子产品方面，全球90%的高端半导体都产自台湾，因此，台湾是全球不可或缺的伙伴。
+美国证券交易委员会（SEC）上周一公布的一份文件显示，马斯克拥有73,486,938股Twitter股票，占股9.2%，成为Twitter最大股东。
 
-此外，葛瑞姆参议员还指出，美国支持台湾人民选择民主的权利，而放弃台湾就等于放弃民主、自由及自由贸易——这对全人类来说都将是重大的遗憾。
+但如今，他已经失去了“头把交椅”，被资产管理公司Vanguard Group取代。Vanguard Group最近提交给SEC的文件中称，截至4月8日，已持有Twitter 10.3%的股份。按上周五收盘价计算，价值36亿美元。
 
-葛瑞姆参议员最后提到，无论中共的态度如何，美国政府将坚定支持其对台湾的承诺。
+文件显示，Vanguard Group在第一季度增持了Twitter股份。
 
-参考链接：[美參眾議員訪台表達支持 葛瑞姆：放棄台灣就等於放棄自由民主](https://www.rti.org.tw/news/view/id/2130127)
+这正值马斯克拟以400多亿美元现金收购Twitter。马斯克昨晚宣布，拟以每股54.20美元的现金，收购其尚未持有的Twitter全部已发行普通股，交易总金额约为430亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+当然，马斯克仍是Twitter的最大个人股东，而Twitter联合创始人杰克·多西（Jack Dorsey）为第二大个人股东。
 
-总编：Irene木木
-编辑：静言
-审核：Irene木木
-校正/发稿：谐趣园
+原文链接：[https://finance.sina.com.cn/tech/2022-04-15/doc-imcwipii4494903.shtml](https://finance.sina.com.cn/tech/2022-04-15/doc-imcwipii4494903.shtml)
 
  
 
