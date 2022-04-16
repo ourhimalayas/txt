@@ -2,30 +2,77 @@
 ---
 
 
-## 大直播后记：中共搞大封锁是在为攻台做测试
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2353897/)
+## 参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2353937/)
 
-**整理：Grace Fang、红红火火
-编辑：守望黎明**
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-1308.png)图片来源：墨尔本雅典娜农场设计组
+**参议员罗恩·约翰逊**： 
+我给密尔沃基退伍军人医疗中心@MilwaukeeVA 写了一封信，要求他们就其新冠 COVID-19 疫苗强制接种问题给出答案。 我们现在知道，完全接种疫苗的人可以感染和传播新冠 COVID-19 ([#中共病毒](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92))。 疫苗强制接种毫无意义且具有破坏性。 【附福克斯新闻相关报道】
 
 
-Nick: 中共以后想要做同类事情的时候，就有了一个很好的样本，对吧？ 上海就是最好的样本。然后可以它可以毫无顾忌地推广到全国的任何一个地方，没有人可以逃开。如果你敢反抗的话，前面它的香港模式已经准备好了，对吧？ 从全中国就大陆来看的话，谁比香港的勇士们更加勇敢？没有吧！我目前是没有看到有的。香港模式也已经摆在那里了，看你谁敢反，敢反就用香港模式来对付你。上海的极限已经探测好了，在需要的情况下随时推广到全国各地。所以我觉得中共现在做的事情，不是在搞所谓的防疫、所谓的清零，清零只是借口。中共的目的就是要用这样一个政治上的手段，来为接下来要干的事情做准备。这就是为什么七哥能告诉大家中共攻打台湾可能就在5月份。 从种种的迹象表明，这个会是真的啊！接下来的日子会非常难过，而且我们的台湾同胞一定要提前做好准备。 好的，谢谢主持人。
 
-MC文艺： 那么国内现在的疫情呢？ 我想跟大家分享一下我今天刚看到一则消息。就是国内有一个医大的高校生，他们现在被封控在校园当中，说是非必要的时候不得离校。但是什么是必要什么是不必要呢？ 领导说了算。再一个就是对这些在校学生赚取黑心钱。怎么赚取呢？ 限制你网购，限制你叫外卖，物流快递等等一切对外的联系全都控制，要求学生只能在食堂吃饭。但是呢，它不保证食堂食物的质量，然后还不停的做核酸检测。这些学医的学生本身都懂得这个道理哈，知道做这个核酸到底是不是科学。但是，你不做就会给你处分。所以说，学生都是敢怒不敢言。他们的老师、食堂的阿姨、保洁员，甚至就连宠物狗都能够自由地出入这个学校，但只有学生不可以。这明显就是中共这种邪党政权对学生搞的奴化和驯化。可能这个也是中共总结了当年六四的教训，因为有知识这些年轻人才是最有远见的，所以说中共想重点控制这一代人，不允许他们有自由批判的思想和反抗的精神。
+> I sent a letter to [@MilwaukeeVA](https://twitter.com/milwaukeeva?ref_src=twsrc%5Etfw) demanding answers on their COVID-19 vaccine mandates. 
+> 
+> We now know individuals who are fully vaccinated can contract and spread COVID-19. Vaccine mandates are pointless and destructive.[https://t.co/D1KlJalsap](https://t.co/D1KlJalsap)
+> — Senator Ron Johnson (@SenRonJohnson) [April 15, 2022](https://twitter.com/SenRonJohnson/status/1515000945008066569?ref_src=twsrc%5Etfw)
 
-再一个原因呢，就是七哥说的这个最新消息，中共要在5月份攻打台湾，这个七哥曾经说过。因为国内疫情的大爆发和全国到处的封城，这些现象很多都是与疫苗灾害密切相关的。那为什么5月份会打呢？从种种迹象表明，我感觉因为现在这种封城已经给大家带来了很大的精神压力，已经到达了一个爆发的临界线。再一个就是整个这次大灾害、也就是这次封城也可以说是一场演习，强暴防疫的这种手段只是要让整个国内的内部矛盾更加激化。所以中共必定要沿用一贯的恶劣做法，在这个时候打台湾，把内部的矛盾转向外部。这样就会让大家把注意力全都转移到战争当中， 而忘了是习猪头的独裁才导致中国现在的这种恶劣的状况，让他的独裁更加合理化，让他能够顺利地召开20大，这样习猪头就可以确定自己终身独裁的地位。这是我的一点浅见，谢谢。
 
-资料来源：2022年4月15日文贵大直播
 
-发布：文武全才
+**众议员加拉格尔新闻办公室**： 
+议员加拉格尔评论 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 和习 的关系：“这可不是什么沉默的伙伴关系…普京在这场他们发动的对抗西方的新冷战中，正变成习的虐待狂伙伴。他在乌克兰遭受的挫折越多，他只会越依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
+> Rep. Gallagher Putin and Xi's relationship: "This isn't a silent partnership…Putin is becoming Xi's sadistic sidekick in this New Cold War that they have launched against the West. He will only grow more dependent on China the more he experiences setbacks in Ukraine." [pic.twitter.com/NipePqGcoU](https://t.co/NipePqGcoU)
+> — Rep. Gallagher Press Office (@RepGallagher) [April 15, 2022](https://twitter.com/RepGallagher/status/1514968256083333122?ref_src=twsrc%5Etfw)
+
+
+
+**参议员霍利新闻办公室**： 
+参议员霍利的法案，“将让美国更加容易送给 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 防卫武器——包括支持其爱国者地对空导弹系统的设备——并将加快许可的审批。” 
+【转newsmax新闻网，霍利: 美国必须尽快武装台湾】
+
+
+
+> Senator Hawley’s “bill would make it easier for the U.S. to send Taiwan defensive weaponry — including equipment to bolster its Patriot surface-to-air missile system — and would expedite licensing approvals."[https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 15, 2022](https://twitter.com/SenHawleyPress/status/1514982221655990278?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院**： 
+国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken) 讨论了人权报告中一些最令人震惊的发现，这些发现涵盖了 2021 年的事件，例如袭击记者、([#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)) 种族灭绝、和无辜平民被不公正羁押。 [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hashtag_click) 
+【附布林肯讲话视频节选 】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) discusses some of the most alarming findings of the [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hash&amp;ref_src=twsrc%5Etfw) that covers events of 2021, such as attacks on journalists, genocide, and innocent civilians being unjustly detained. [pic.twitter.com/ovtv2uwjD2](https://t.co/ovtv2uwjD2)
+> — Department of State (@StateDept) [April 15, 2022](https://twitter.com/StateDept/status/1515027177162657797?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥**： 
+美国的军事领导人知道，赋予伊朗权力的代价将是美国国家安全的迫在眉睫的风险，对美国士兵来说将是一个更危险的作战环境。 拜登政府必须改变其伊朗交易谈判的方向。 
+【附美国军方领导人反对伊朗核协议的公开信】
+
+
+
+> America's military leaders know the cost of empowering Iran will be imminent risk to American national security and a more dangerous operating environment for American soldiers. The Biden Administration must reverse course on its Iran deal negotiations. [https://t.co/XBguUGWi9i](https://t.co/XBguUGWi9i)
+> — Mike Pompeo (@mikepompeo) [April 15, 2022](https://twitter.com/mikepompeo/status/1514966912299634693?ref_src=twsrc%5Etfw)
+
+
+
+**众议员安迪·比格斯**: 
+任何热爱这个国家的理性领导人的解决方案，都是开放美国的石油和天然气能源。 从我们的敌手那里购买石油和天然气，或者让美国人购买 5.5万 美元的特斯拉，并不是真正的解决方案。
+
+
+
+> The solution for any rational leader who loves this country is to open up America’s oil and gas energy. 
+> 
+> Purchasing oil and gas from our adversaries or making Americans buy $55K Teslas are not real solutions.
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 15, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515006878698332164?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

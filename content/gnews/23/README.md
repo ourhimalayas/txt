@@ -2,8 +2,8 @@
 ---
 
 
-## 20220415郭文贵大直播 ：一位中国籍难民及其家属立即加入到了新中国联邦救援队中
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353718/)
+## 20220415郭文贵乱聊直播 ：鼓励投资喜币，别鼠目寸光，别在拿回SEC钱上出错
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2353725/)
 
 作者：东京樱花团小视频组
 

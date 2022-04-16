@@ -2,23 +2,23 @@
 ---
 
 
-## 俄罗斯边境国家领导人到访乌克兰
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353950/)
+## 美对乌克兰新军事援助中包括直升机等重型装备
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353981/)
 
 作者：加拿大温哥华扬帆农场-晨熹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1950.png)图片来源：推特
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1953.png)
 
 
-据【CTV NEWS】4月13日报道，处于俄罗斯边境的四个国家领导人周三到访了乌克兰，表达对乌克兰的支持，他们看到了俄军在那里所犯的罪行，并要求追究战争责任。
+据【Yahoo News】4月14日报道， 美周三公布了一项价值8亿美元的对乌克兰新的军事援助计划，其中包括直升机、榴弹炮和装甲运兵车等重型装备。
 
-波兰、立陶宛、拉脱维亚和爱沙尼亚总统的到访是来自北约东翼国家的强烈声援，其中三个国家也曾是前苏联的一部分。领导人们到访基辅，会见泽连斯基，并访问了基辅附近的博罗江卡，这是乌克兰遭俄军炮火严重袭击的重要城镇之一。
+拜登在与泽连斯基进行了约一个小时的交谈后表示，随着俄军准备加强对顿巴斯的攻击，美国将继续为乌克兰提供自卫能力。新一揽子军援中将包含更多高效武器系统，以及为乌克兰东部，俄军即将发动的更广泛攻击而量身定制的新武器。新援助中包括华盛顿此前因担心与拥核的俄罗斯冲突升级而拒绝向基辅提供的一些重型装备。
 
-四位总统重申在政治、军事援助上支持乌克兰的承诺，并呼吁采取更严厉的制裁措施，包括对俄石油和天然气运输以及对俄所有银行进行制裁。
+五角大楼发言人约翰·柯比公布了这次最新援助计划的项目清单，并表示美国正在与盟国合作，以向乌克兰提供额外的军事能力。五角大楼周三将与美主要国防集团负责人开会，商讨加快生产乌克兰军队最常用的武器。
 
-新闻来源：[https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912](https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912)
+新闻来源：[https://news.yahoo.com/us-military-aid-ukraine-includes-180441582.html](https://news.yahoo.com/us-military-aid-ukraine-includes-180441582.html)
 
-采编：青青，编辑发稿：硫酸羟氯喹64
+采编：风云小哥，编辑发稿：硫酸羟氯喹64
 
  
 
