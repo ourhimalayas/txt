@@ -2,77 +2,46 @@
 ---
 
 
-## 参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2353937/)
+## 大直播后记：逃出乌克兰的中国夫妇加入新中国联邦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354179/)
 
-**参议员罗恩·约翰逊**： 
-我给密尔沃基退伍军人医疗中心@MilwaukeeVA 写了一封信，要求他们就其新冠 COVID-19 疫苗强制接种问题给出答案。 我们现在知道，完全接种疫苗的人可以感染和传播新冠 COVID-19 ([#中共病毒](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92))。 疫苗强制接种毫无意义且具有破坏性。 【附福克斯新闻相关报道】
+#### 整理：GHope
+编辑：伏而起之
 
-
-
-> I sent a letter to [@MilwaukeeVA](https://twitter.com/milwaukeeva?ref_src=twsrc%5Etfw) demanding answers on their COVID-19 vaccine mandates. 
-> 
-> We now know individuals who are fully vaccinated can contract and spread COVID-19. Vaccine mandates are pointless and destructive.[https://t.co/D1KlJalsap](https://t.co/D1KlJalsap)
-> — Senator Ron Johnson (@SenRonJohnson) [April 15, 2022](https://twitter.com/SenRonJohnson/status/1515000945008066569?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片35-13.png)
 
 
+**Nicole:**
 
-**众议员加拉格尔新闻办公室**： 
-议员加拉格尔评论 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 和习 的关系：“这可不是什么沉默的伙伴关系…普京在这场他们发动的对抗西方的新冷战中，正变成习的虐待狂伙伴。他在乌克兰遭受的挫折越多，他只会越依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 。”
+我们法治基金和新中国联邦的帐篷迎接了一位从乌克兰逃出来的中国人，带着他的乌克兰太太。在4月7号的时候，他们在乌克兰的5间房子全部都被俄军炸毁。他太太因为连续好几周惊恐，都是躲在地下室里面，所以人已经瘦得都脱相了。这位这中国大哥，他决定带着他的太太出逃。
 
+来到我们这个大帐篷的时候，他说他在微信群里面就已经听说过法治基金和新中国联邦在组织乌克兰的救援行动，他只知道中共政府根本就是摆样子，根本就没有去救乌克兰的这些中国同胞。所以，他就想找到法治基金和新中国联邦。当他们走到梅迪卡边境的时候，就向人打听有没有新中国联邦的人在这边。当他走到我们帐篷的时候，看到我们有中国字，一看是法治基金和新中国联邦，他们马上就走进来了。
 
+当时，他看到我们的战友，尤其是看到我们小Sara战友的时候，非常地激动，因为他们是老乡。老乡见老乡，两眼泪汪汪。他们本来是在我们这边休息一下，然后去瑞士投奔他的儿子，去他儿子那边避难。但是，当听到我们法治基金和新中国联邦在过去的一个月里面救助了那么多乌克兰难民，他们非常感动。他说，与其去儿子家坐着、等着，还不如就留下来加入我们法治基金和新中国联邦的义工团队。
 
-> Rep. Gallagher Putin and Xi's relationship: "This isn't a silent partnership…Putin is becoming Xi's sadistic sidekick in this New Cold War that they have launched against the West. He will only grow more dependent on China the more he experiences setbacks in Ukraine." [pic.twitter.com/NipePqGcoU](https://t.co/NipePqGcoU)
-> — Rep. Gallagher Press Office (@RepGallagher) [April 15, 2022](https://twitter.com/RepGallagher/status/1514968256083333122?ref_src=twsrc%5Etfw)
+他们当场就穿上了我们的灭共黄马甲，戴上了我们新中国联邦的帽子。他们两个人都会说中文、俄文和乌克兰文，他太太还会说一些法语。同时，他们也感谢有这个机会能够很荣幸地加入到我们新中国联邦在乌克兰的这次救援行动。
 
+文科，我记得你当时帮他们拿行李送他们上车，是吧？可不可以再说两句，当时你跟他们在交谈的时候是什么样的感觉？
 
+**文科：**
 
-**参议员霍利新闻办公室**： 
-参议员霍利的法案，“将让美国更加容易送给 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 防卫武器——包括支持其爱国者地对空导弹系统的设备——并将加快许可的审批。” 
-【转newsmax新闻网，霍利: 美国必须尽快武装台湾】
+其实刚来的时候，他就跟我们说，他的老婆非常难受，现在心情还没有平静下来，因为他们的房子都被炸了，他们家没了，他们不知道去哪里好。他现在拿的是中国护照，据我了解，按照波兰之前的政策，在波兰他不属于乌克兰的难民。他可能只能待15天，他们也是不知道该怎么办。
 
+刚好我们跟欧盟这边有过一些合作和联系，我们就问了欧盟这边，然后给了他们欧盟的宣传册，以及欧盟对于乌克兰难民的一些新政策，这给了他们一些帮助。我们也让他们住到我们安排的酒店里面，因为咱们都是中国同胞，我们必须伸出这个援助之手。这也是因为，法治基金的宗旨就是帮助咱们中国人。
 
+总体来说，我还是非常难受的，因为在那种状态下没有人帮他们。他甚至跟我说，那两辆从奥德萨到摩尔多瓦的大巴，是他们家联系的大使馆，大巴其实就半个小时的车程。半个小时车程之后，他就是被扔到摩尔多瓦，不管了。还问他们要18000的飞机票钱，18000还是学生半价，成人还要得更贵。我记得他们说，如果要接受中共大使馆的帮助，好像要交5万块钱。
 
-> Senator Hawley’s “bill would make it easier for the U.S. to send Taiwan defensive weaponry — including equipment to bolster its Patriot surface-to-air missile system — and would expedite licensing approvals."[https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 15, 2022](https://twitter.com/SenHawleyPress/status/1514982221655990278?ref_src=twsrc%5Etfw)
+但是，他来到法治基金和新中国联邦，马上就得到了食宿的安排，这里给了他们安全感，他们也愿意加入到我们这个团队当中。所以，当时这位大哥希望我们以后有机会采访他，他会跟大家具体解释一下。
 
+资料來源：[2022.4.15文贵大直播](https://www.gettr.com/streaming/p15f3i8714f)
 
+发布：*wenly*
 
-**美国国务院**： 
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken) 讨论了人权报告中一些最令人震惊的发现，这些发现涵盖了 2021 年的事件，例如袭击记者、([#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)) 种族灭绝、和无辜平民被不公正羁押。 [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hashtag_click) 
-【附布林肯讲话视频节选 】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) discusses some of the most alarming findings of the [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hash&amp;ref_src=twsrc%5Etfw) that covers events of 2021, such as attacks on journalists, genocide, and innocent civilians being unjustly detained. [pic.twitter.com/ovtv2uwjD2](https://t.co/ovtv2uwjD2)
-> — Department of State (@StateDept) [April 15, 2022](https://twitter.com/StateDept/status/1515027177162657797?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥**： 
-美国的军事领导人知道，赋予伊朗权力的代价将是美国国家安全的迫在眉睫的风险，对美国士兵来说将是一个更危险的作战环境。 拜登政府必须改变其伊朗交易谈判的方向。 
-【附美国军方领导人反对伊朗核协议的公开信】
-
-
-
-> America's military leaders know the cost of empowering Iran will be imminent risk to American national security and a more dangerous operating environment for American soldiers. The Biden Administration must reverse course on its Iran deal negotiations. [https://t.co/XBguUGWi9i](https://t.co/XBguUGWi9i)
-> — Mike Pompeo (@mikepompeo) [April 15, 2022](https://twitter.com/mikepompeo/status/1514966912299634693?ref_src=twsrc%5Etfw)
-
-
-
-**众议员安迪·比格斯**: 
-任何热爱这个国家的理性领导人的解决方案，都是开放美国的石油和天然气能源。 从我们的敌手那里购买石油和天然气，或者让美国人购买 5.5万 美元的特斯拉，并不是真正的解决方案。
-
-
-
-> The solution for any rational leader who loves this country is to open up America’s oil and gas energy. 
-> 
-> Purchasing oil and gas from our adversaries or making Americans buy $55K Teslas are not real solutions.
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 15, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515006878698332164?ref_src=twsrc%5Etfw)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

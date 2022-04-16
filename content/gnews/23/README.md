@@ -2,27 +2,27 @@
 ---
 
 
-## 俄罗斯入侵乌克兰的战争会持续多久？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355053/)
+## 乌克兰多地彻夜拉响防空警报
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355235/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1970.png)图片来源：美联社
-目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年年底。
+撰稿：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
+4月15日外媒报道，在俄罗斯黑海舰队的旗舰“莫斯科号”被击中损毁并沉没以后，14日晚上，乌克兰多个地区彻夜响起空袭警报，人们在基辅听到了强烈的爆炸声，在南部城市赫尔松、东部城市哈尔科夫和西部城市伊万诺-弗兰科夫斯克也听到了爆炸声。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323088.jpg)
+乌克兰议员瓦西连科表示，基辅发生了三起爆炸，并认为这些袭击是普京对“莫斯科号”沉没的报复。
 
-之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
+一些社交媒体发布的视频显示，自俄罗斯军队本月早些时候开始撤出该地区以来，这是最严重的一次袭击事件。
 
-而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“这是可能的，凯特，当然，我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
+参考链接：
 
-同时，根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
+[Huge blasts rip through multiple Ukrainian cities in ‘livid’ Putin’s ship ‘revenge’](https://www.mirror.co.uk/news/world-news/breaking-air-raid-sirens-go-26718178)
 
-本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
 
-*责编：白夜*
+编辑/总编/审核：飞虹
 
-**新闻来源**
-
-[State Department admits it’s ‘possible’ Ukraine war rages through end of year](https://nypost.com/2022/04/15/state-department-says-its-possible-ukraine-war-rages-through-2022/)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

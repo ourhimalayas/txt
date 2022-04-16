@@ -2,29 +2,33 @@
 ---
 
 
-## 日本、澳大利亚出现COVID-19亚变体Omicron XE
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355533/)
+## 澳大利亚和英国继续制裁俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-114.jpg)
-合众国际社4月15日报道–澳大利亚官员周五证实，一种新的COVID-19亚变种，即Omicron XE，已经在澳大利亚出现了。
+撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
+根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
+据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
 
-新南威尔士州卫生当局说，第一个报告病例确认自一名上周国外归来旅行者。
+据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
 
-日本周二表示，它也证实了其首例XE病例。
+而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
 
-世界卫生组织称，XE是之前变种BA.1和BA.2的组合。
+参考链接：
 
-1月中旬，英国成为第一个检测到XE的国家，此后记录了1000多个病例。XE还出现在泰国、加拿大、以色列和印度。
+[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
 
-据悉，与目前全球占主导的奥密克戎BA.2毒株相比，XE的传播速度还要快。许多研究人员表示，XE变种比一般变种传播率高10倍。
+[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
 
-但也有专家称新的变种有“炒作”成分。
+[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
 
-路易斯安那州立大学什里夫波特分校（Louisiana State University Health Shreveport）微生物学和免疫学副教授杰里米-卡米尔（Jeremy Kamil）说：“我觉得人们对这些变种的炒作非常令人失望和无益。”“它们在科学上是有趣，但在很大程度上仍然是一种好奇心。”“这些根本不可能构成特殊或独特的威胁，我们不应该这样对待它们。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
 
-新闻链接：[https://www.upi.com/Health\_News/2022/04/15/Australia-New-South-Wales-COVID19-XE-variant/7481650033888/](https://www.upi.com/Health_News/2022/04/15/Australia-New-South-Wales-COVID19-XE-variant/7481650033888/)
+编辑/总编/审核：飞虹
 
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
