@@ -2,44 +2,24 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第13天位列3国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2356496/)
+## 秘翻在线：因新冠（中共病毒）中断的中韩航班恢复5条航线运行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2356624/)
 
-4/16/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第13天iTunes打榜记录：
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-31.jpg)图片来源：本文链接
+据韩国《韩联社》4月16日报道，因新型冠状病毒（中共病毒）的扩散而中断的中韩两国间的部分航线已重新开通。
 
-* * *
+中共国春秋航空和东方航空分别于15日和18日恢复了从仁川到上海的航线。随着上海因新冠（中共病毒）疫情封锁，两个航班的目的地将改为浙江杭州和山东济南。但是，从上海飞往仁川的航班没有变更出发地，正常运行。
 
-[【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+此外，仁川至青岛航线（山东航空）和仁川至深圳航线（深圳航空）和武汉航线（德威航空）分别于15日和13日也恢复了运行。但是仁川至北京、广州、沈阳、长春等主要航线到4月下旬为止将持续停止运行。
 
-* * *
+在新冠（中共病毒）疫情下持续运行的仁川-哈尔滨(韩亚航空)、仁川-厦门(厦门航空)、釜山-青岛(釜山航空)预计4月也将继续正常运行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+上月，韩国和中共国之间的26条（往返按1条路线计算）航线中，往返全部运行的航线有8条，只有从中共国进入韩国的单程航线有7条。这是因为受到了中共国民航局的防控措施规定和中共国部分机场关闭等情况的影响，如果特定航线确诊患者超过标准，就会停止运行。
 
+信息来源：[https://www.yna.co.kr/view/AKR20220416029000083?did=1195m](https://www.yna.co.kr/view/AKR20220416029000083?did=1195m)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-
-
-[【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Saturday-16-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+责编：Eric Kim
 
  
 

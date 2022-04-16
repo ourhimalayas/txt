@@ -2,53 +2,28 @@
 ---
 
 
-## 仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2355951/)
+## 法治基金在乌克兰的人道救援行动仍在继续
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355962/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1976-edited.png)
-新闻报道或社交媒体可以传达故事，但第一手资料可以很好地解释问题。所以，当中共千方百计阻止疾病信息的传播时，是时候引起注意了。
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-如果您的政府采取严厉措施让世界对生活条件一无所知，请不要忽视这些警告信号。当中国人被迫进入另一个 COVID 封锁时，有一些令人毛骨悚然的警告标志“指导方针”：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/08.jpg)
 
-不要在网上发布与流行病相关的消息。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-未经许可不得进出北京。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-间谍就在我们中间；泄密可能会在瞬间发生。管住你的嘴否则面临惩罚。
+参考链接：
 
-Louder with Crowder 很幸运能有一位 Mug Club 观众从上海打来电话，第一手了解当地发生的情况。
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-喜剧演员戴夫·兰道（Dave Landau）代替史蒂文·克劳德（Steven Crowder）采访了来电者，出于显而易见的原因，他必须保持匿名，让我们了解中共国的现状。
 
-来电者：我很荣幸； 我在一个有很多外籍人士的社区，所以我们目前比许多社会经济地位较低的中国人做得好得多。 我们可以每隔几天送一点食物。我们得到一点水果和一些蔬菜； 我们可以在网上搜寻，找出谁有食物，找到一个拥有“非常特殊的通行证”并被允许上路的人。我们实际上付给他们一大笔钱来送食物。实际可用的东西非常非常零星。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-戴夫：我想如果你得到一点食物，你可能还没有准备好。有没有通知准备？
-
-来电者：真的很快。完全封锁前给了我们一天时间，本来应该是四天。我们采购了大约六天的物资，现在我们已经过了两个半星期了。据报道，中共国的商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有库存，因为已经超过两周没有发货了。
-
-来电者：我也有两个孩子，我们要上网课。
-
-来电者提供了令人震惊的信息，有关当孩子出现 COVID 检测呈阳性时在中共国会发生什么。孩子被从家中带走，并在没有父母或倡导者的情况下被送入这些隔离营。
-
-观看视频，了解更多关于中国人民在政府手中面临的令人心碎的描述。
-
-链接：**[Watch your mouth or face punishment’: CCP threatens citizens as China remains locked down](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?utm_source=theblaze-7DayTrendingTest&amp;utm_medium=email&amp;utm_campaign=The%20Blaze%20PM%20Trending%202022-04-14&amp;utm_term=ACTIVE%20LIST%20-%207%20Day%20Engagement)**
-
-* * *
-
-审核：文乐
-校对:  花羽
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
-
+总编：飞虹
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

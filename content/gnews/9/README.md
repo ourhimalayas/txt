@@ -2,43 +2,32 @@
 ---
 
 
-## 新西兰向澳洲旅客重新开放边境，允许无隔离入境
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2356451/)
+## 中日财经爆┃中共封控上海 日企遭受打击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356470/)
 
-评论：***新西兰为因应COVID-19疫情，执行全球最严格边境管控措施近2年，今年开始逐步放宽。预期，10月份起将全面向全球旅客开放边境。在国际社会逐步停止疫苗接种及放开各种限制措施之际，反观中共国，却日益加紧疫情防控。正如杰克·波索比克所说：“中共非常害怕，证明他们的疫苗无效，这就是中共进行所有这些封锁的原因。”同时，我们知道，CCP在沪上广深北京等地加强封锁还有更进一步的邪恶目的。***
+撰稿：东京樱花团/喜马拉雅的微尘
 
-据《天空网》作者：Miriah Davis，2022年4月13日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1988.png)2022年4月13日，新西兰奥克兰国际机场欢迎游客、朋友和家人。图片来源：Fiona Goodall/盖蒂图片社
-新西兰从4月12日晚上11点59分开始向澳大利亚人重新开放国际边界。9个月前，跨塔斯曼边境（the trans-Tasman bubble，意为澳大利亚和新西兰之间的边境）因新冠肺炎疫情而被关闭。
+由于上海疫封城持续，日本企业受到的打击日益扩大。不仅在当地业务停滞，而且供应链断裂导致马自达和三菱等多家公司在日本本土的生产也遭受冲击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-88.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn-japantimes.com/wp-content/uploads/2021/05/np_file_90234-scaled.jpeg&amp;imgrefurl=https://www.japantimes.co.jp/news/2021/05/31/business/corporate-business/electronics-earnings-gap/&amp;tbnid=qZxGGeAL_3Lx_M&amp;vet=12ahUKEwia6ensq5j3AhX7TPUHHaRCC_kQxiAoCnoECAAQHQ..i&amp;docid=2CXBlyupiZ26hM&amp;w=2560&amp;h=1706&amp;itg=1&amp;q=sony%20japan%20factory&amp;ved=2ahUKEwia6ensq5j3AhX7TPUHHaRCC_kQxiAoCnoECAAQHQ)
+在中国运营逾300家店铺的“无印良品”目前约50家店铺暂停营业。该公司14日列举中国业务作为理由之一，下调了全财年（2021年9月～2022年8月）的业绩预期。
 
-在边境重新开放的第一天，预计将有超过3000名旅客从澳大利亚抵达，第一个来自墨尔本的航班将于星期三凌晨1点在奥克兰降落。
+迅销公司截至14日，上海的共86家优衣库和共8家GU店铺已全部停业。
 
-澳大利亚公民和返回的新西兰居民必须完全接种疫苗，才有资格享受免检疫入境。
+罗森在上海市有约1000家便利店，8～9成处于停业状态。一部分店铺为了支撑市民生活，仅继续提供配送服务。
 
-旅客需要在出发前进行监督下的快速抗原测试、LAMP或PCR测试，并在抵达后和第六天再次进行检测。
+索尼、三菱电机、夏普等制造业方面，当地工厂长期停工。从当地供应商采购零部件的工作滞后，马自达4月在总部工厂（广岛县府中町）和防府工厂（山口县防府市）停工了共8天。三菱汽车11～15日停止了冈崎制作所（爱知县冈崎市）的生产，还让员工暂时歇业。
 
-新西兰总理杰辛达·阿德恩(Jacinda Ardern)女士说，她很高兴欢迎澳大利亚人在复活节假期和新西兰滑雪季节到来之前回到新西兰。
+据全日本空输和日本航空透露，上海航线的货运航班已部分停飞。据称是因为无法确保足够的装卸货和机修人员。此类航班从日本向上海运送半导体相关货物，从上海向日本运输电子零部件等。
 
-澳航和新西兰航空已经增加了额外的航班，以满足需求，航空公司预计从6月中旬开始，滑雪季节的旅行将激增。
+根据郭文贵先生爆料，中共计划以腰斩自己的经济和攻打台湾，来打垮西方经济和美元体系，用“比烂”和“比谁更扛饿”的套路来彻底干掉西方，至少让西方无力干预其继续奴役中国人民。
 
-在大流行病引发长期封锁和边境关闭之前，旅游业对新西兰经济的贡献超过400亿美元。
+此次上海封城使得众多日企遭受打击，这让人深感遗憾，但或许也会让日企对中共有更清醒的认识，从而更快速更果决地做出应有的选择和行动。
 
-澳大利亚人约贡献了新西兰旅游业的40%，每年有超过150万游客到新西兰旅游。
+信息来源：[日本企业因上海封控日益遭受打击](https://china.kyodonews.net/news/2022/04/860ec62a28a0.html)
 
-从5月1日起，美国、英国、日本、德国、韩国和新加坡等免签证国家的游客，以及持有有效旅游签证的游客，都可以进入新西兰。
-
-文章来源：**[https://www.skynews.com.au/australia-news/jacinda-ardern-excited-to-welcome-australians-back-to-new-zealand-as-borders-reopen-for-quarantinefree-travel/news-story/75abd4b671099d34af26e80deeb29507](https://www.skynews.com.au/australia-news/jacinda-ardern-excited-to-welcome-australians-back-to-new-zealand-as-borders-reopen-for-quarantinefree-travel/news-story/75abd4b671099d34af26e80deeb29507)**
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 钢蛋儿
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
