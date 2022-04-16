@@ -2,30 +2,42 @@
 ---
 
 
-## 安省东部医院遭遇人员短缺危机
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358277/)
+## 有声|俄军长期囚禁并轮奸乌克兰少女
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358393/)
 
-##### **作者：加拿大温哥华扬帆农场 – **采编：青青、撰稿：自由法兰西
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据相关媒体当地时间4月12日的报道，乌克兰人权观察员当天反馈的消息显示，在基辅郊区布查镇的一处地下室内，一群年龄在14岁至24岁之间的乌克兰少女曾被俄罗斯侵略军监禁长达25天。期间，俄军每天都对她们实施野蛮的轮奸行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-77.jpg)
+此外，大量的证据表明，俄罗斯士兵在侵略乌克兰的战争中对许多无辜的乌克兰妇女犯下了诸如强奸、滥杀和抢劫等罪行，致使她们当中的绝大多数遭受了无法复原的伤害。有当地居民证实，俄军不但将他的住所洗劫一空，甚至还在他家中的地窖内强奸并杀害了一名乌克兰女性。
 
-加拿大CTV新闻4月14日报道，4月以来，安省彭布罗克地区医院每天都有60至80名医护人员因CCP病毒BA.2变体被迫不能上班，这次新的病毒变体比以往更具传播性。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2032.png)
-因病毒感染，人员短缺危机正在席卷安省东部各大医院。安省儿童医院1200名员工中，每天都有10-15%的员工缺勤，渥太华医院目前有450名员工离岗。业内人士表示，如问题持续恶化，医院将不得不取消常规手术，改为只接待急诊和紧急病例，而选择性和非紧急手术将再次被列入等候名单。
+对此，乌克兰人权组织主席切芮帕卡向联合国安理会指控称，俄罗斯军队已经把强奸当成了一种在乌克兰境内使用的武器，而现存的所有证据不过是俄军暴行的冰山一角。同时，乌克兰驻联合国大使基斯提亚也告知安理会，该国检察总长办公室已经启动了对俄军暴力侵犯乌克兰妇女事件的调查。
 
-使问题更加复杂的是对医护人员的隔离要求。根据规定，高风险环境中工作人员出现病毒感染症状后需隔离10天，已完全接种疫苗且非高风险环境中工作人员需隔离5天。为了应急，手术室工作人员正在被重新部署到急诊部或重症监护室，医院也在请求外地支援，但目前尚无最终解决方案。
+而据联合国妇女署执行主任巴豪斯透露，俄乌战争中越来越常出现的强奸和性暴力相关事件已经向全球释放了一个非常危险的信号，即俄军正在对乌克兰平民采取一种及其残暴的对待方式。
 
-原文链接：[https://ottawa.ctvnews.ca/staff-shortages-impacting-eastern-ontario-hospitals-1.5861123](https://ottawa.ctvnews.ca/staff-shortages-impacting-eastern-ontario-hospitals-1.5861123)
 
-上传/发稿 – 文永
 
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+文字版原文：[俄军长期囚禁并轮奸乌克兰少女](https://gnews.org/zh-hans/2346055/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,28 @@
 ---
 
 
-## 警察局长说，在基辅地区发现900多具平民尸体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356737/)
+## 上海方舱：心脏病和癌症患者得不到救治求助无门
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2356846/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1992.png)Dmytrivka村附近被摧毁的俄罗斯军事装备。照片。Pavlo Bahmut/ Ukrinform/Future Publishing via Getty Images
+**撰稿：日本东京方舟农场  子辰**
 
-据美联社报道，一位地区警察局长周五表示，俄罗斯军队撤出后，在基辅地区发现了900多具平民的尸体。
+近期，上海为了落实中共的清零政策，许多心脏病和癌症患者也被送入了方舱集中隔离，这些重患得不到及时治疗，求助无门。
 
-**推动新闻：**基辅地区警察局局长Andriy Nebytov在周五的发布会上说：“因此，我们了解到，在[俄罗斯]占领下，人们被简单地在街上处决。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-328.jpg)（图片来自大纪元）
 
-- Nebytov说，尸体大多被遗弃在街上或被临时埋葬，他补充说，每天都有更多尸体被发现。
-- Nebytov援引警方的数据指出，95%的人死于枪伤。
-- Nebytov说：“在布查发现的受害者最多，那里有350多具尸体。”
+4月12日李女士72岁的母亲，半夜被送到方舱医院，第一天就突发心脏病，一直得不到救治，到15日心脏病已复发两次。方舱医院告知家属，无法处理，要家属自己想办法，但家属联系不到医院收治。
 
+4月15日凌晨两点，糖尿病重症患者张女士被送到方舱医院。她随身带了很多胰岛素，却无处冷藏，而且方舱无法提供适合糖尿病人的饮食，也没有放置胰岛素的冰箱。她跟医护人员反映，得到的回应是，待不了几天就回去了。
 
-**大势所趋：**乌克兰官员报告说，当乌克兰军队重新占领布查地区时，尸体–有些人的手被反绑在背后–散落在布查的街道上。
+上海癌症病人麻女士，已在方舱医院近一周的时间，而其定期化疗的时间已经超过多天。家属张先生质疑，方舱医院应该只接收无症状感染者或轻症患者，不应该接收有重大疾病的人，因为有重大疾病的患者，本身免疫力和自愈能力差，在医疗没保障的情况下，很可能病情恶化，危及生命。
 
-- 乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelensky）本月早些时候访问了布查。
-- “我们希望你们向世界展示这里发生的一切”，泽伦斯基说。“俄罗斯军队做了什么。俄罗斯联邦在和平的乌克兰做了什么。对你们来说，重要的是看到这些是平民。”
+像这样的案例，在上海举不胜举，为了政治清零，中共随意践踏和罔顾生命，等到中共灭亡以后，所犯下的种种罪行必将得到清算！
 
+参考链接：
+[https://www.epochtimes.com/gb/22/4/16/n13712910.htm](https://www.epochtimes.com/gb/22/4/16/n13712910.htm)
 
-**新闻来源：**[More than 900 civilians’ bodies found in Kyiv region, police chief says](https://www.axios.com/ukraine-deaths-kyiv-russian-invasion-96e2fcfe-c3df-44d9-9977-14ff68669e11.html)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+总编：老孙
+校对发布：爱放飞
 
  
 

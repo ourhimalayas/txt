@@ -2,21 +2,43 @@
 ---
 
 
-## 中日财经爆┃60家日本上市企业决定停止或退出涉俄业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356471/)
+## 警察局长说，在基辅地区发现900多具平民尸体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356737/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-53.png)[图片来源](https://asia.nikkei.com/Business/Automobiles/Toyota-to-halt-Russia-production-Friday-as-sanctions-cut-supply-chain)
-据日本帝国数据库统计，截止4月11日，在进军俄罗斯的168家日本上市公司中，有60家公司（约占36%）决定停止业务或退出。3月为止的调查中只有37家公司，现已扩大为约1.6倍。乌克兰危机导致“远离俄罗斯”的公司越来越多，但也有一些公司出于订单未完成等原因而暂时维持俄罗斯业务。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1992.png)Dmytrivka村附近被摧毁的俄罗斯军事装备。照片。Pavlo Bahmut/ Ukrinform/Future Publishing via Getty Images
 
-关于停止业务的理由，很多企业列举了商品配送等供应面的混乱。随着俄乌战争长期化，企业对营商前景的警惕升温，这也成为背后原因。
+据美联社报道，一位地区警察局长周五表示，俄罗斯军队撤出后，在基辅地区发现了900多具平民的尸体。
 
-信息来源：[日本上市公司涉俄业务有36%决定停止或退出](https://china.kyodonews.net/news/2022/04/4b2a1404f7fd-36.html)
+**推动新闻：**基辅地区警察局局长Andriy Nebytov在周五的发布会上说：“因此，我们了解到，在[俄罗斯]占领下，人们被简单地在街上处决。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+- Nebytov说，尸体大多被遗弃在街上或被临时埋葬，他补充说，每天都有更多尸体被发现。
+- Nebytov援引警方的数据指出，95%的人死于枪伤。
+- Nebytov说：“在布查发现的受害者最多，那里有350多具尸体。”
 
+
+**大势所趋：**乌克兰官员报告说，当乌克兰军队重新占领布查地区时，尸体–有些人的手被反绑在背后–散落在布查的街道上。
+
+- 乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelensky）本月早些时候访问了布查。
+- “我们希望你们向世界展示这里发生的一切”，泽伦斯基说。“俄罗斯军队做了什么。俄罗斯联邦在和平的乌克兰做了什么。对你们来说，重要的是看到这些是平民。”
+
+
+**新闻来源：**[More than 900 civilians’ bodies found in Kyiv region, police chief says](https://www.axios.com/ukraine-deaths-kyiv-russian-invasion-96e2fcfe-c3df-44d9-9977-14ff68669e11.html)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 

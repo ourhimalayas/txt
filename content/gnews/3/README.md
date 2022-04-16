@@ -2,10 +2,14 @@
 ---
 
 
-## 4/16/2022文贵直播：俄罗斯几家战友聪明地躲开了最危险的地方；体制内战友把统计局的机密信息提供给了美国，全家获批美国紧急移民
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2358266/)
+## 北约”不东扩“到底咋回事？
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2358330/)
 
-秘密翻译组-北美组
+作者：Chloe蔻依
+
+（感谢三票先生的指导，感谢DC战友洋葱头参与收集资料，感谢DC战友磨刀石文强帮助PPT制作）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-176.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-76.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-51.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-44.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/13-19.png)
+发布：Chloe蔻依
 
  
 
