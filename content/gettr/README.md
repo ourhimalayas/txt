@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 5:34 PM (UTC)`
+
+4月16号：这是中国共产党最想要的结果，此时此刻所有的中央政治局委员．中南坑老杂毛们都在仰天长啸，其实他们最成功，体验权利，最甜美的味道的绝佳时刻。【百亿私募大佬梁宏，说自己已经开始吃西瓜皮了。】
+![img](https://media.gettr.com/group19/getter/2022/04/16/17/e06f4658-4fdc-f760-b67f-dc79d08363b6/880c5d6eda1451f12bb907652f54e7ac.jpg)
+
+---
+
+`@miles 4/16/2022 5:32 PM (UTC)`
+
+4/16/2022 Miles Guo: According to the reliable intelligence information, the Chinese Communist Party is going to impose a lockdown in Guangzhou on a larger scale; three other cities will be put on lockdown as well, they are Qingdao, Dalian, and either Harbin or Haikou will be picked as the third city; our fellow fighters must be well prepared.<br/><br/>4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城：青岛和大连，中共还在哈尔滨和或海口之间选择第三个城市, 战友们要做好准备<br/>
+![img](https://media.gettr.com/group23/getter/2022/04/16/17/c3162efe-bd8e-a950-b67c-cf0f725abc47/out.jpg)
+
+---
+
 `@miles 4/16/2022 5:00 PM (UTC)`
 
  4月16号：七哥是在什么时候说的．很快在中国国内用爱马仕包，换粮都不行❌……
@@ -140,20 +154,6 @@
 
 【Ukraine Rescue】04/15/2022 A self-media person from Brazil is amazed by the NFSC and ROLF’s strong financial ability and high-quality volunteers, the NFSC is able to set up the largest and most well-equipped tent in the entire camp within two days. Volunteer Nicole tells him that if large Western companies want to gain access to the huge market of 1.4 billion Chinese, they must cut ties with the CCP and stand with the NFSC to destroy the CCP. The CCP does not represent the Chinese people. He says he will help spread the news about the NFSC in Brazil.<br/><br/>【乌克兰救援】04/15/2022 一个巴西的自媒体人惊叹于新中国联邦法治基金的强大财力和义工们一流的素质──能够在两天之内建起了整个营地最大、设施最完善的帐篷！义工妮可告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起。中共不代表中国人。他表示会在巴西帮助传播新中国联邦。<br/>
 ![img](https://media.gettr.com/group24/getter/2022/04/16/04/dce2a220-127c-fe38-e2ce-98d76663b449/out.jpg)
-
----
-
-`@miles 4/16/2022 3:41 AM (UTC)`
-
-4/15/2022 Ukrainian Rescue: A Ukrainian Chinese who was rescued by the front-line fellow fighters bravely joined the volunteer team of the New Federal State of China and Rule of Law Foundation<br/><br/>4/15/2022 乌克兰救援连线: 被前线战友拯救的乌克兰华人勇敢地加入了新中国联邦与法治基金义工团队！<br/>​​
-![img](https://media.gettr.com/group36/getter/2022/04/16/03/ac7f3ca9-c52b-cb38-54c5-e94a4ac9ca16/out.jpg)
-
----
-
-`@miles 4/16/2022 3:01 AM (UTC)`
-
-2022-4-15《鸡血王喜币大作战》 第一百六十六集 嘉宾：Tex、文空
-![img](https://media.gettr.com/group33/origin/2022/04/16/03/9104e6b7-b131-8d58-24ab-330cd0a88d2c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
