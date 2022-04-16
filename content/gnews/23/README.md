@@ -2,43 +2,26 @@
 ---
 
 
-## 随着危机恶化，破产的斯里兰卡实行燃料配给制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354855/)
+## 俄罗斯入侵乌克兰的战争会持续多久？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355053/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1970.png)图片来源：美联社
+目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年年底。
 
-#### 翻译/编辑：小红帽
+之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SRI-LANKA-CRISIS-1_1649944237880_1649944249630.jpeg)图片来源：REUTERS
+而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“这是可能的，凯特，当然，我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
 
+同时，根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
 
-根据CNA 4月15日报道，资金紧张的斯里兰卡从周五起实行了燃料配给制。这是经济危机的又一次恶化，从而引发了广泛的示威活动，要求总统戈塔巴亚·拉贾帕克萨（Gotabaya Rajapaksa）辞职。
+本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的。
 
-占零售燃料市场三分之二的国营锡兰石油公司（CPC）表示，将限制司机购买燃料的数量，并完全禁止向罐子里加油，以防止驾驶者因恐惧而囤积汽油或柴油。
+*责编：白夜*
 
-大多数加油站的汽油已经用完，而少数仍然开放的加油站则排起了长队。自上个月以来，至少有8人在排队等候购买燃料时死亡。
+**新闻来源**
 
-能源部官员预计，该国的另一家燃料零售商斯里兰卡国际石油公司（IOC）（印度石油公司的当地子公司）也会效仿。
-
-兰卡国际石油公司没有立即发表评论。该公司占据了剩余三分之一的市场。
-
-斯里兰卡正处于自1948年独立以来最严重的经济危机中，基本商品的严重短缺和定期停电导致民众生活困难。
-
-该国主要的厨用燃气零售商Litro Gas表示已经完全没有库存，但希望在周一之前获得新的供应，以恢复分销。
-
-这家国有公司表示，其董事长Theshara Jayasinghe是拉贾帕克萨的坚定盟友，他已于周四因该国的局势而辞职。
-
-周五，数万人在拉贾帕克萨的办公室外连续第七天举行抗议活动，要求他因该国2200万居民遭受的经济困难而辞职。
-
-资料来源：[Bankrupt Sri Lanka rations fuel as crisis worsens](https://www.channelnewsasia.com/asia/bankrupt-sri-lanka-rations-fuel-crisis-worsens-2628396)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[State Department admits it’s ‘possible’ Ukraine war rages through end of year](https://nypost.com/2022/04/15/state-department-says-its-possible-ukraine-war-rages-through-2022/)
 
  
 

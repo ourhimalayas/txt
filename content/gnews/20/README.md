@@ -2,26 +2,38 @@
 ---
 
 
-## 俄罗斯入侵乌克兰的战争会持续多久？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355053/)
+## 参议员梅南德斯：澳大利亚是全球挑战中共国的中心
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2355218/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1970.png)图片来源：美联社
-目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年年底。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
+#### 翻译：文扬
+编辑：文泓
 
-而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“这是可能的，凯特，当然，我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片49-2.png)图片来源：网络
 
-同时，根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
 
-本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的。
+周三，由跨党派6名参议员组成的美国国会代表团访问了澳大利亚，确定如何最好地利用新的AUKUS联盟，在太平洋地区反击中共国。
 
-*责编：白夜*
+访问期间，共和党参议员林赛·格雷厄姆指出，澳大利亚为反抗共产主义中国付出了“沉重的代价”，美国比以往任何时候都更加支持澳洲。
 
-**新闻来源**
+格雷厄姆表示，现在中共国正在利用一切可以利用的手段来击垮澳大利亚。“如果你决定通讯系统采用华为，这就表明让中共掌握你的一切”。
 
-[State Department admits it’s ‘possible’ Ukraine war rages through end of year](https://nypost.com/2022/04/15/state-department-says-its-possible-ukraine-war-rages-through-2022/)
+“澳大利亚为反抗中共国付出了沉重的代价，感谢你们所做的一切，我们比以往任何时候都更支持你们。”
+
+“在澳大利亚感觉很舒服，我很幸运能够生活在一个自由发展的国家，我可不想住在共产主义中国。”
+
+民主党参议员罗伯特·梅南德斯称，澳大利亚是全球挑战中共国的中心。我们都在关注乌克兰和俄罗斯，这事关未来我们想生活在什么样的世界中。
+
+原文链接： [Australia is ‘growing with freedom’: Lindsey Graham | Sky News Australia](https://www.skynews.com.au/world-news/china/australia-is-growing-with-freedom-lindsey-graham/video/287bcd5d854776b54e89c12beef7951a)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

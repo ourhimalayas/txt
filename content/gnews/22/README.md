@@ -2,35 +2,30 @@
 ---
 
 
-## 欧盟委员会启动数字欧元磋商
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354876/)
+## 西安16日起再一次封城
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2355177/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-8.jpg)西安16日起再一次封城 网络图片
+据法国国际广播电台4月15日报道，在上海全面封城、民不聊生之际，西安突然宣布，从16日零时至19日24时实施社会面暂时管控，非必要不得外出，为达到所谓“社会面动态清零”。
 
-#### 翻译/编辑：小红帽
+西安第一次封城始于去年12月23日，今年1月24日才全面解封。官方在西安实施强制性集中隔离的严酷程度超过武汉封城。而全面封锁拥有1300万人口的西安，官方公布的确诊病例仅2053例。而16日再一次对西安实施管控的原因是截至15日，全市共发现43例本土阳性感染，是“传染性极强的奥米克戎变异毒株”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ART_30_DIC_-_Euro_Digital_-_EN_-_PORTADA.png)
+习近平日前再次重申的坚持动态清零不动摇成为“政治任务”。为完成最高指示，43例感染的西安要封锁1300万人来达到清零。2万多例感染的上海要封锁2600万人。如此悬殊的数据，是谎报了感染病例还是另有隐情呢？因为封城造成的次生灾难和经济损失难以估量，且民怨极大，对中共政权和老百姓都没有好处。俗话说，事出反常必有妖，结合中共的本性，背后一定有更大的阴谋，而且一定是杀伤力更大的邪恶阴谋。不灭中共，墙内百姓没有活路。
+
+新闻参考链接：[https://www.rfi.fr/cn/中国/20220415-又来了-西安16日起封城](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220415-%25E5%258F%2588%25E6%259D%25A5%25E4%25BA%2586-%25E8%25A5%25BF%25E5%25AE%258916%25E6%2597%25A5%25E8%25B5%25B7%25E5%25B0%2581%25E5%259F%258E)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-根据COINGEEK 4月15日报道，欧盟委员会已就其数字欧元展开咨询，敦促支付和金融服务专家关注中央银行数字货币 (CBDC)、隐私和数据保护以及欧洲区域数字货币的其他方面的需求和期望。
+编辑：【英国伦敦喜庄园编辑部】
 
-欧盟委员会在公告中透露，咨询时间为4月5日至6月14日。委员会呼吁支付专家、信贷机构、商家及其协会、支付解决方案开发商、消费者协会、零售支付监管机构、反洗钱监管机构和其他相关专家就数字欧元向其提供反馈意见。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-用户对数字欧元的需求和期望是委员会正在寻求反馈的领域。欧洲在数字支付方面相当先进，挪威和芬兰等国家的借记卡普及率高达98%，是世界上最高的。这可能会减少对数字欧元的需求。
 
-委员会还想了解数字欧元在零售支付和数字经济中的作用；如何建立数字欧元来保护欧元实物货币的法定货币地位；对金融稳定的影响；适用反洗钱和反恐融资规则；以及字欧元如何与国际支付相结合。
-
-咨询还将收集有关数字欧元隐私和数据保护方面的反馈。
-
-资料来源：[European Commission launches consultation on digital euro](https://coingeek.com/european-commission-launches-consultation-on-digital-euro/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

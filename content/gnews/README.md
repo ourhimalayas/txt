@@ -15,119 +15,119 @@
 
 ---
 
-### [加拿大央行加息1%，并警告会继续](/content/gnews/1/README.md)
+### [闵行人大代表原航天厂党委书记杨海退出核酸检测志愿者](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [日本、澳大利亚出现COVID-19亚变体Omicron XE](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [福奇: 封锁是手段，疫苗是目的！](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [警察在基辅地区发现900具平民尸体](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大央行加息1%，并警告会继续](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美不打算返还俄企业家被扣押资产 称用更好方式利用](/content/gnews/2/README.md)
+### [美不打算返还俄企业家被扣押资产 称用更好方式利用](/content/gnews/6/README.md)
  ` 加拿大温哥华英里农场`
 
-### [俄罗斯警告美国停止武装乌克兰](/content/gnews/3/README.md)
+### [俄罗斯警告美国停止武装乌克兰](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美国务院：“没有什么能阻止”美国政府支持乌克兰](/content/gnews/4/README.md)
+### [美国务院：“没有什么能阻止”美国政府支持乌克兰](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【秘翻时评】 上海警察暴力镇压抗议时称：中共即将与美国开战](/content/gnews/5/README.md)
+### [【秘翻时评】 上海警察暴力镇压抗议时称：中共即将与美国开战](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【G时新闻】美议员团访台 中共在台湾周边军演震摄](/content/gnews/6/README.md)
+### [【G时新闻】美议员团访台 中共在台湾周边军演震摄](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [“莫斯科”号战舰的沉没严重打击了俄罗斯的骄傲和实力](/content/gnews/7/README.md)
+### [“莫斯科”号战舰的沉没严重打击了俄罗斯的骄傲和实力](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】上海专家和媒体人发声批评清零政策遭封杀](/content/gnews/8/README.md)
+### [【G时新闻】上海专家和媒体人发声批评清零政策遭封杀](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [视频|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/9/README.md)
+### [视频|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/13/README.md)
  ` MOSVIDEO`
 
-### [视频|上海正面临物资供应链崩溃的危险](/content/gnews/10/README.md)
+### [视频|上海正面临物资供应链崩溃的危险](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [视频|美跨党派参众两院资深议员抵达台湾访问](/content/gnews/11/README.md)
+### [视频|美跨党派参众两院资深议员抵达台湾访问](/content/gnews/15/README.md)
  ` MOSVIDEO`
 
-### [打了疫苗的人就是病毒携带者 隔离措施就是为疫苗灾难做准备](/content/gnews/12/README.md)
+### [打了疫苗的人就是病毒携带者 隔离措施就是为疫苗灾难做准备](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [被关押在沙特的维吾尔族妇女说她被警告即将被驱逐到中国](/content/gnews/13/README.md)
+### [被关押在沙特的维吾尔族妇女说她被警告即将被驱逐到中国](/content/gnews/17/README.md)
  ` 波士顿五月花农场金融部`
 
-### [视频| 台湾军方购买中共无人机 恐现“木马屠城”惨剧](/content/gnews/14/README.md)
- ` MOSVIDEO`
-
-### [文·贵天成——文贵先生谈“习近平”（一）](/content/gnews/15/README.md)
+### [文·贵天成——文贵先生谈“习近平”（一）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰多地彻夜拉响防空警报](/content/gnews/16/README.md)
+### [乌克兰多地彻夜拉响防空警报](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [参议员梅南德斯：澳大利亚是全球挑战中共国的中心](/content/gnews/17/README.md)
+### [参议员梅南德斯：澳大利亚是全球挑战中共国的中心](/content/gnews/20/README.md)
  ` 走进澳洲`
 
-### [三发贴牌导弹击沉“莫斯科号” 放生士兵](/content/gnews/18/README.md)
+### [三发贴牌导弹击沉“莫斯科号” 放生士兵](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [西安16日起再一次封城](/content/gnews/19/README.md)
+### [西安16日起再一次封城](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯入侵乌克兰的战争会持续多久？](/content/gnews/20/README.md)
+### [俄罗斯入侵乌克兰的战争会持续多久？](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度应提升对中共的战略思维，加强与台湾合作](/content/gnews/21/README.md)
+### [印度应提升对中共的战略思维，加强与台湾合作](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟委员会启动数字欧元磋商](/content/gnews/22/README.md)
+### [欧盟委员会启动数字欧元磋商](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着危机恶化，破产的斯里兰卡实行燃料配给制](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新中国联邦救援战友获波兰颁发志愿者工作证](/content/gnews/24/README.md)
+### [新中国联邦救援战友获波兰颁发志愿者工作证](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [郭先生：中共正式启动“台湾之子”行动](/content/gnews/25/README.md)
+### [西安宣布实施4天临时社会面管控](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [西安宣布实施4天临时社会面管控](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
-
-### [推特通过“毒丸计划”，强力遏止马斯克的敌意收购](/content/gnews/27/README.md)
+### [推特通过“毒丸计划”，强力遏止马斯克的敌意收购](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西安实施临时性的部分封城措施以应对奥米克戎的爆发](/content/gnews/28/README.md)
+### [西安实施临时性的部分封城措施以应对奥米克戎的爆发](/content/gnews/29/README.md)
  ` 澳喜农场`
 
-### [俄乌战争：中共国给俄罗斯提供了哪些帮助？](/content/gnews/29/README.md)
+### [俄乌战争：中共国给俄罗斯提供了哪些帮助？](/content/gnews/30/README.md)
  ` 澳喜农场`
 
-### [民生集萃——互联网裁员（2022.4.15E）&#8211;整个部门全部被裁员](/content/gnews/30/README.md)
+### [民生集萃——互联网裁员（2022.4.15E）&#8211;整个部门全部被裁员](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [下调143个国家经济增长率，IMF发出强烈警示](/content/gnews/31/README.md)
+### [下调143个国家经济增长率，IMF发出强烈警示](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [担心西方额外制裁，中海油加紧退出美英加业务](/content/gnews/32/README.md)
+### [担心西方额外制裁，中海油加紧退出美英加业务](/content/gnews/33/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [COVID-19疫苗副作用集萃（2022.4.16D）身边朋友注射完新冠疫苗的副作用](/content/gnews/33/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.16D）身边朋友注射完新冠疫苗的副作用](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海爆发警民冲突 墙内视频多被删除](/content/gnews/34/README.md)
+### [上海爆发警民冲突 墙内视频多被删除](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [上海民众和警察发生冲突因其住宅被强征为隔离设施](/content/gnews/35/README.md)
+### [上海民众和警察发生冲突因其住宅被强征为隔离设施](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [2022年4月16日《樱花快报》：台湾新增感染中共病毒首次破千例 创历史新高](/content/gnews/36/README.md)
+### [2022年4月16日《樱花快报》：台湾新增感染中共病毒首次破千例 创历史新高](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19疫苗副作用集萃（2022.4.16）打新冠疫苗第二针后荨麻疹](/content/gnews/37/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.16）打新冠疫苗第二针后荨麻疹](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [2022年4月16日《樱花简报》：日本拟假想朝鲜试射导弹重启避难训练](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [4月16日乌克兰救援行动（图片1-16）](/content/gnews/39/README.md)
  ` 波士顿五月花农场`
