@@ -2,24 +2,43 @@
 ---
 
 
-## 克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2356676/)
+## 警察局长说，在基辅地区发现900多具平民尸体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2356737/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-16-下午8.23.46.png)图片来源：互联网
-俄罗斯专家告诉《泰晤士报》，克里姆林宫可能正在协调整个欧洲的示威活动，以显示对乌克兰战争的支持。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1992.png)Dmytrivka村附近被摧毁的俄罗斯军事装备。照片。Pavlo Bahmut/ Ukrinform/Future Publishing via Getty Images
 
-上周末，印有支持战争的Z字标志的车辆和数百名挥舞旗帜的民族主义者参加的游行在都柏林、汉诺威、法兰克福和利马索尔巡游，此前在雅典和柏林也有类似活动。
+据美联社报道，一位地区警察局长周五表示，俄罗斯军队撤出后，在基辅地区发现了900多具平民的尸体。
 
-尽管示威活动相隔数百英里，但其时间和形式促使俄罗斯事务专家认为它们可能是由国家精心策划的。
+**推动新闻：**基辅地区警察局局长Andriy Nebytov在周五的发布会上说：“因此，我们了解到，在[俄罗斯]占领下，人们被简单地在街上处决。”
 
-他们说，侨民可能是由Rossotrudnichestvo指挥的，这是一个在欧洲各地都有办事处的俄罗斯联邦政府机构，负责促进软实力，实际上由莫斯科的外交部管理。
+- Nebytov说，尸体大多被遗弃在街上或被临时埋葬，他补充说，每天都有更多尸体被发现。
+- Nebytov援引警方的数据指出，95%的人死于枪伤。
+- Nebytov说：“在布查发现的受害者最多，那里有350多具尸体。”
 
-原文链接：[Kremlin ‘is behind pro-Russian protests in Europe’](https://www.thetimes.co.uk/article/kremlin-is-behind-pro-russian-protests-in-europe-9gj27s8g5)
+
+**大势所趋：**乌克兰官员报告说，当乌克兰军队重新占领布查地区时，尸体–有些人的手被反绑在背后–散落在布查的街道上。
+
+- 乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelensky）本月早些时候访问了布查。
+- “我们希望你们向世界展示这里发生的一切”，泽伦斯基说。“俄罗斯军队做了什么。俄罗斯联邦在和平的乌克兰做了什么。对你们来说，重要的是看到这些是平民。”
+
+
+**新闻来源：**[More than 900 civilians’ bodies found in Kyiv region, police chief says](https://www.axios.com/ukraine-deaths-kyiv-russian-invasion-96e2fcfe-c3df-44d9-9977-14ff68669e11.html)
 
 * * *
 
-*编辑&发布：长岛开心*
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 

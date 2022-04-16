@@ -2,43 +2,27 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.16K）——接种疫苗后出现了浑身发冷、酸痛和嗜睡的症状
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356399/)
+## 有声｜莫斯科号的损失严重打击了俄军威信
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2356433/)
 
-整理：w2
-編輯：文泓
+By:**秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-38.png)图片来源：雅典娜设计组
+**2022-04-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/416-9.jpg)
+[《卫报》](https://www.theguardian.com/world/2022/apr/15/loss-of-moskva-strikes-serious-blow-to-russian-militarys-prestige)4月15日报道，在黑海沉没的莫斯科号战舰，对普京和其军队的威望造成极大打击。
 
+事件一开始，俄政府就淡化处理。起初，俄罗斯国防部声称是一场事故导致了船上起火。然后，国防部称损失已被控制，该船正被拖到塞瓦斯托波尔的港口。最后，在周四晚些时候，国防部宣布该船在风暴中沉没。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报导已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+即使国家电视台的评论员试图将莫斯科号的损失说成是暂时的挫折，俄罗斯人也意识到发生了严重的事情。
 
-[**副作用集萃 – GNEWS**](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+乌克兰声称它用一枚海王星反舰导弹击中了莫斯科号。俄罗斯媒体没有公布该舰或其船员的照片。一些西方媒体报道称，在该船沉没时，估计500名船员中只有几十人获救。俄罗斯没有公布伤亡信息。
 
-**疫苗第三针打完的反应（博主：小蘑鲜）**
+（秘密翻译组  大树  编译报道）
 
-2022年3月22日，刚打的时候没啥事，我是跟老公一起去的。过后他啥事没有，我从晚上开始浑身发冷并且浑身酸痛，嗓子疼、嗜睡……本来以为睡一觉会好，今天是打完的第二天，浑身还是痛，冷的像进了冰窖一样……新冠疫苗第三针。
+发布 : 文橙
 
-以下是网友评论：
-
-“这里是圆脸”评论：我的反应竟然是，月经这个月已经来过，打完针第二天又来了，而且量巨多。
-
-博主回复：太痛苦了！
-
-“用户已注销”：我也是，醉了！
-
-“小红薯60CB”评论：我也是这样，非常难受……
-
-参考链接：[疫苗第三针打完的反应 (xiaohongshu.com)](https://www.xiaohongshu.com/discovery/item/6239558b000000000102d8ca?share_from_user_hidden)
-
-发布：Frank2021
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

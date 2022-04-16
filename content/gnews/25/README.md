@@ -2,31 +2,42 @@
 ---
 
 
-## 俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356340/)
+## COVID-19疫苗副作用集萃（2022.04.16K）——接种疫苗后出现了浑身发冷、酸痛和嗜睡的症状
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356399/)
 
-**图/文｜CP**
-**发布时间｜16/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/澤連斯基請求拜登政府-將俄羅斯列為「恐怖主義支援國」.jpg)
+整理：w2
+編輯：文泓
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-38.png)图片来源：雅典娜设计组
 
 
-外媒16日引述消息人士报道，乌克兰总统泽连斯基（Volodymyr Zelenskyy）在最近一次与美国总统拜登的通话中，请求美国将俄罗斯列为“恐怖主义支援国”，惟拜登暂未作出明确表态或采取具体行动，只表示愿意探讨一系列的建议，并向俄方施加更大压力。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报导已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支援国”，意味美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+[**副作用集萃 – GNEWS**](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
 
-不过，有传美国国会部分鹰派共和党议员曾经敦促拜登政府将俄罗斯列入“恐怖主义支援国”名单，惟白宫一直不置可否，只表示会考虑这项提议。
+**疫苗第三针打完的反应（博主：小蘑鲜）**
 
-在上月召开的记者会上，国务卿布林肯（Antony Blinken）被问及此事时回应，政府会考虑一切选项，强调首要任务是尽其所能迅速结束这场战争，停止乌克兰人民的苦难。
+2022年3月22日，刚打的时候没啥事，我是跟老公一起去的。过后他啥事没有，我从晚上开始浑身发冷并且浑身酸痛，嗓子疼、嗜睡……本来以为睡一觉会好，今天是打完的第二天，浑身还是痛，冷的像进了冰窖一样……新冠疫苗第三针。
 
-自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支援国”。
+以下是网友评论：
 
-來源｜[NBC](https://www.nbcnews.com/politics/national-security/ukraines-zelenskyy-asked-biden-designate-russia-state-sponsor-terroris-rcna24618)
+“这里是圆脸”评论：我的反应竟然是，月经这个月已经来过，打完针第二天又来了，而且量巨多。
 
-* * *
+博主回复：太痛苦了！
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+“用户已注销”：我也是，醉了！
+
+“小红薯60CB”评论：我也是这样，非常难受……
+
+参考链接：[疫苗第三针打完的反应 (xiaohongshu.com)](https://www.xiaohongshu.com/discovery/item/6239558b000000000102d8ca?share_from_user_hidden)
+
+发布：Frank2021
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

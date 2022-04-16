@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 1:10 PM (UTC)`
+
+4月16号：尊敬的战友们好！共产党的无知，愚蠢，和邪恶，只能用一个办法来解决，那就是彻底的消灭他们。【七哥好，乌克兰战争爆发以来有人粗略统计了中文媒体相关数据：泽连斯基逃跑18次，基辅失守4次，亚速营被歼灭9次。马里乌波尔被全面占领11次。乌海军陆战队投降人数都超过整编编制人数了。普京一共怒了93次，撂狠话58次，挑明了24次，美国怂了136次，北约尿了98次，欧盟跪了105次。】<br/>😄😄😄快乐灭共！
+![img](https://media.gettr.com/group41/getter/2022/04/16/13/dd5289d8-fde8-960d-f5d2-f04e6a4c4bec/out.jpg)
+
+---
+
+`@miles 4/16/2022 1:04 PM (UTC)`
+
+2022.04.16早  新中国联邦 | 新闻访谈
+![img](https://media.gettr.com/group4/origin/2022/04/16/12/a775a275-75e9-af1a-4b83-1a811d8f75b6/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/16/2022 12:29 PM (UTC)`
 
 2022.04.16早  新中国联邦 | 新闻
@@ -144,20 +158,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 
 2022.04.15《The Fringe》 Episode 170<br/>中文同传：https://gettr.com/streaming/p15i05a64f7
 ![img](https://media.gettr.com/group46/origin/2022/04/15/23/a5a5f725-f30d-5da5-1d34-5a7d5081551c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 11:05 PM (UTC)`
-
-4/15/2022 Ukrainian Rescue: Fellow fighters of the New Federal State of China will celebrate Passover and Easter in Medyka with Ukrainian refugees and volunteers from all over the world!<br/><br/>4/15/2022 乌克兰救援连线: 新中国联邦前线的战友将在梅迪卡和世界各地的志愿者以及乌克兰难民一起庆祝逾越节和复活节！<br/>
-![img](https://media.gettr.com/group34/getter/2022/04/15/23/4d7bb2a8-32ce-d55c-a604-020fc1722c71/out.jpg)
-
----
-
-`@miles 4/15/2022 11:02 PM (UTC)`
-
-2022.04.15 NFSC news “Chained Dream" And "The Terminator Snow" Played Over 1 Billion Times On iTunes
-![img](https://media.gettr.com/group15/origin/2022/04/15/23/f876a1a6-447c-9ce5-b9e9-cee8d67b8c58/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
