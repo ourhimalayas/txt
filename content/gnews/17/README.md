@@ -2,24 +2,42 @@
 ---
 
 
-## 克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2356676/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2356780/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-16-下午8.23.46.png)图片来源：互联网
-俄罗斯专家告诉《泰晤士报》，克里姆林宫可能正在协调整个欧洲的示威活动，以显示对乌克兰战争的支持。
+整理：枳实
+美工：精灵蓝
 
-上周末，印有支持战争的Z字标志的车辆和数百名挥舞旗帜的民族主义者参加的游行在都柏林、汉诺威、法兰克福和利马索尔巡游，此前在雅典和柏林也有类似活动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
-尽管示威活动相隔数百英里，但其时间和形式促使俄罗斯事务专家认为它们可能是由国家精心策划的。
 
-他们说，侨民可能是由Rossotrudnichestvo指挥的，这是一个在欧洲各地都有办事处的俄罗斯联邦政府机构，负责促进软实力，实际上由莫斯科的外交部管理。
+雅典娜疫情更新（2022年 4月16日）
 
-原文链接：[Kremlin ‘is behind pro-Russian protests in Europe’](https://www.thetimes.co.uk/article/kremlin-is-behind-pro-russian-protests-in-europe-9gj27s8g5)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-* * *
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1997.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1998.png)
+数据来源：
 
-*编辑&发布：长岛开心*
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
