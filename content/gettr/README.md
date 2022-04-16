@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 12:36 AM (UTC)`
+
+2022.04.15 晚  新中国联邦 | 新闻   新中国联邦救援战友获波兰颁发志愿者工作证; 三发贴牌导弹击沉“莫斯科号” 放生士兵
+![img](https://media.gettr.com/group13/origin/2022/04/16/00/5f64c848-31c2-1297-8d48-1b47eddca910/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 11:51 PM (UTC)`
 
 4/15/2022 Ukrainian Rescue: The fellow fighters of the New Federal State of China have been rescuing Ukrainian refugees for more than a month! We will always stand with Ukraine!<br/><br/>4/15/2022 乌克兰救援连线: 新中国联邦前线的战友参与救援乌克兰难民已超过一个月！我们将永远和乌克兰站在一起！<br/>​​
@@ -147,13 +154,6 @@ NFSC乌克兰救援行动与以色列组织One Heart组织一起庆祝象征自�
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月14日第41天当日救援统计：<br/>Medyka救援站接待：约243人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11672人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 41 - Date: April 14, 2022 :<br/>Medyka Rescue Station Reception: about 243 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11672 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group9/getter/2022/04/15/12/d343a132-b5c3-750e-f284-653f708ee18f/337b7b01f84970cc91a0405fea81a409.jpg)
-
----
-
-`@miles 4/15/2022 10:58 AM (UTC)`
-
-2022.04.15  新中国联邦 | 军情室 乌克兰战况最新进展报告 莫斯科号巡洋舰中弹沉没 美国扩大对乌武器供应 从东风15开始谈东风导弹
-![img](https://media.gettr.com/group48/origin/2022/04/15/10/7d6d7c34-64d0-d867-6f32-bcf5b2cde2b7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

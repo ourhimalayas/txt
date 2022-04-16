@@ -2,32 +2,36 @@
 ---
 
 
-## 大直播后记：中共统治下的饥荒即将来临
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2353903/)
+## 全球疫情疫苗数据更新（4.15）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353946/)
 
-#### 整理：枫叶红了、W2
-编辑：Mohegayer K. Simon
+**整理：枳实
+美工：精灵蓝**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-3.png)图片来源：墨尔本雅典娜农场设计组
+雅典娜疫情更新（2022年 4月15日）
 
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-嘉宾Nick:我现在从上海这一次的表现可以看到，粮食危机在我看来，它可能体现在两个方面，一个就是它的储备，或者说是这个国家层面的这样的一个供应，就是说它自己的生产还有从国外进口，尤其中共国是一个粮食进口国，那么除了它自己生产的，还有就是从海外能进口得到的粮食。另外一方面就是粮食的配送或者又叫物流，就是粮食从粮仓到达老百姓的手中。现在这两方面都存在巨大的问题，第一个问题就是说它的储备本身，因为疫情、水灾等等，导致中共国自身的粮食储备和生产急剧下降，包括现在北大荒这种东北的肥沃土地都没有人去种植了，你种植的话，还被这个大白给抓走，还有这样荒唐的事情。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-50.png)
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-另一方面，由于战争的影响和全球疫情的影响，各国都在加强对粮食的管控，刚才PPT里面也讲到了，有30几个国家进行了粮食出口的限制，相较于几周之前增加了25%。各国已经开始实施超过53项对粮食贸易相关的新干预措施，而且未来只增不减，所以说接下来由于从粮食供应就已经面临一个非常大的一个困境，尤其是像中共国在全球围剿的一个状态，自身的这个外汇储备又急剧下滑。国内的经济在全世界都在加息的一个状态下，都在面临一个通胀的问题，中共国刚刚宣布在25号实施这个降准，又释放将近5300亿人民币现金，增加现金流是非常非常恐怖的一个事情，那么这是储备这一段。
+发布：文武全才
 
-另外从物流配送这一段，大家看到上海的这个情况是什么？是有粮有肉有饭，但是它到不了老百姓的手中，今天在盖特上就看到很多这样的视频，肉烂在大街上，就在小区门外，它到不了老百姓的手里。饭就摆在那里，然后就腐烂变臭，就到不了这些饿的已经就要上吊的、要跳楼的老百姓手里，这个可能是接下来老百姓要面临的一个问题。老百姓可能都动用不到中共的粮食储备，刚才PPT也讲，粮食储备都是留给谁的？都是留给军队、达官显贵等这些人的。在市面上的这些可以用的口粮，它都很可能因为政治的原因和荒唐的疫情控制的原因，甚至可以说是中共主动的、有意的压力测试的原因，把大家封在家里面，而得不到粮食，而得不到粮食就饿死了。所以说我觉得这个一定是要引起全国老百姓的警觉。
-
-那么现在上海是这样的一个情况，其他省市各个地区的老百姓一定要引以为戒，不要等到所谓爹亲娘亲不如党亲的这个中共来拯救你，一定要自己多储备点粮食。今天有一个很好的例子，七哥也发了盖特，北京的某一个小区，成批成批地购入那种大的顶开式的冰箱，或者说四开门的冰箱来储备更多的粮食，到关键的时候你至少手里有粮，心中不慌，可以度过接下来可能要面临的一个危机。
-
-资料来源：2022年4月15日文贵大直播
-
-发布：*wenly*
-
-更多资讯，请关注：
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
+
+
+
 
  
 

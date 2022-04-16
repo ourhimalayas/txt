@@ -2,55 +2,28 @@
 ---
 
 
-## 美国官员将朝鲜黑客与6.15亿美元的加密货币抢劫联系起来
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2353901/)
+## 大直播后记：中共国粮食问题
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2353939/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1945.png)*显示朝鲜国旗和电脑黑客的照片插图。Budrul Chukrut | Sopa Images | Lightrocket | Getty Images*
+#### 整理：Guojunior
+编辑：Mohegayer K. Simon
 
-美国官员指称，朝鲜国家支持的黑客组织Lazarus Group与导致6.15亿美元数字资产被盗的大规模加密货币黑客活动有关。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-5.png)图片来源：墨尔本雅典娜农场设计组
 
-财政部外国资产控制办公室周四宣布了对属于Lazarus的一个以太坊钱包的新制裁。
 
-根据加密货币研究人员的说法，被确认的钱包包含与攻击罗宁网络有关的资金，该网络支持流行的区块链游戏Axie Infinity。在这次攻击中，价值超过6亿美元的以太币和USDC代币被盗。
+主持人Tex：他们都在说，一直在吹风，中国粮食耕地都没有问题，主要是乌克兰那边的化肥来不了。我们当然知道是假的，因为之前我就针对这个问题做了一些research，那基本上从90年代到2016年他们有一个机构做了一个学术的研究，是联合国外的机构做的。基本上一些重要的产粮区，他们的耕地面积已经减少了30%到40%以上，那个已经是2016年的，快要到6年前的事情，所以到现在来讲，基本上耕地是不足够的。
 
-黑客利用了所谓的区块链“桥”，它允许用户将其数字资产从加密货币网络转移到另一个网络。在迅速发展的“去中心化金融”（DeFi）世界中，桥接是一个越来越受欢迎的工具。
+另外一点，他讲到化肥这个方面，他有一个是可取的，是什么呢？因为中共国很多公司，他实行的是那种毁灭性种植，就是说他不管你整个生态是怎么样，他反正就是猛下料猛下肥。他那种肥下去对整个土地是破坏性的，基本上到第2年，什么都种不出来了。所以说到最后，农民都是必须得用化肥一直地去boost这个地，才能够有一些的出产。那比如说中共国，我一个比较好的在本地做农民的朋友，从去年他已经说了，他从相关机构得知消息，在未来他们就会遇到粮食紧缺，跟着整个粮食价格会大涨，那是去年的事件。所以全球范围内，再加上中共国，那我相信还有一些人还没有相信粮食危机，还觉得我还有粮食，我还能够买到，或者说还没有发现任何迹象。那其实真的不要有任何的侥幸心理，为什么呢？因为这种灾难出现的时候，一旦出现他就回不去了。一旦断了，那就是断了，那你还没有准备的人可能就会因此有一些不可挽回的结果。好，那下一个话题也是跟粮食危机是紧扣的，那就是我们国内封城跟疫苗灾难的最新消息。我们再有请宁南给我们朗读一下PPT，谢谢。
 
-区块链分析公司Elliptic在一篇博文中说，新宣布的制裁措施禁止美国个人和实体与已确定的以太坊账户进行交易，以确保黑客无法“兑现”他们可能在美国加密货币交易所持有的任何资金。
+资料来源：2022年4月15日文贵大直播
 
-另一个密码研究小组Chainalysis说，归因于Lazarus突出了“与朝鲜有关的威胁者如何利用密码，以及DeFi协议更好的安全性”的重要性。
+发布：*wenly*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1949.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
-据信，Lazarus是由朝鲜国家运营的，多年来一直与几次重大网络攻击有关，包括2014年对索尼影业的黑客攻击和2017年的WannaCry勒索软件攻击。
-
-据网络安全专家称，朝鲜曾多次试图利用加密货币作为逃避美国制裁的方式，这引起了人们对在乌克兰战争中可能利用数字资产来逃避对俄罗斯制裁的担忧。
-
-本周早些时候，39岁的美国加密货币专家维吉尔-格里菲斯因帮助朝鲜利用虚拟货币逃避制裁而被判处五年监禁。
-
-加密货币的支持者说，它们是清洗不义之财的有效工具，因为活动被记录在一个被称为区块链的公共账本上。
-
-然而，根据Elliptic的说法，犯罪分子有许多技术可以用来清洗加密货币。该公司表示，内部分析表明，截至周四，Ronin攻击“成功地洗掉了他们18%的被盗资金”。
-
-黑客最初通过不受监管的分散式交易所将偷来的USDC代币换成了以太坊，以防止其被查封，但随后通过FTX和Huobi等集中式交易所清洗了近1700万美元的收益。
-
-他们随后使用了所谓的“混合器”，这种服务旨在通过将潜在的可识别的加密货币交易流与其他交易混合，来掩盖资金的踪迹。据Elliptic称，已经有超过8000万美元的资金通过这种名为Tornado Cash的混合服务被发送。
-
-来源：[U.S. officials link North Korean hackers to $615 million cryptocurrency heist](https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
