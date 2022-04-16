@@ -2,29 +2,33 @@
 ---
 
 
-## 上海爆发警民冲突 墙内视频多被删除
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2354439/)
+## 普京前助理：停止购买俄能源是阻止战争有效手段
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354557/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-7.jpg)上海爆发警民冲突 墙内视频多被删除 网络图片
-据法国国际广播电台4月15日报道，4月初，上海全面封城，2500万居民被禁闭在家里。上海当局隔离了阳性感染者，包括无症状的也被安置在隔离中心。但最近每天都有超过2万个新阳性病例，上海当局强征居民区作为隔离点，引发警民冲突。视频显示有人被抓，审查人员已删除了该事件的大部分视频。
+作者：纽约香草山农场教育部-马克文、百合观察
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+据国际媒体报道，俄罗斯独裁者普京前助理指出，西方只有全面禁止购买俄罗斯能源才是阻止战争有效的手段。
 
-新冠爆发后，全球都在隔离、封城，只有中共国采取了把家门焊死、把小区封闭，任由居民饿死、病死，甚至跳楼死也绝不解封的屠杀式隔离。随着阳性感染者增多，强制措施也在升级，居然强征民房作为隔离点。上海2600万民众，全民皆兵的乌克兰不过4100万人口，因为万众一心，硬是挡住了号称战斗民族的俄罗斯的进攻。如果上海人民全部起来反抗，封城马上就会结束。如果这股力量汇集到北京，中共瞬间土崩瓦解，新中国宣告诞生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-97.png)图片源自网络
 
-新闻参考链接：[https://www.rfi.fr/cn/中国/20220415-上海爆发警民冲突-墙内视频多被删除](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220415-%25E4%25B8%258A%25E6%25B5%25B7%25E7%2588%2586%25E5%258F%2591%25E8%25AD%25A6%25E6%25B0%2591%25E5%2586%25B2%25E7%25AA%2581-%25E5%25A2%2599%25E5%2586%2585%25E8%25A7%2586%25E9%25A2%2591%25E5%25A4%259A%25E8%25A2%25AB%25E5%2588%25A0%25E9%2599%25A4)
+自从俄乌开战以来，西方并没有全面停止购买俄罗斯石油、天然气。随着石油、天然气国际价格的飘升，欧盟各国仍然大量购买俄罗斯能源，欧盟每天支付10亿欧元给俄罗斯，等于给俄罗斯发动战争输血。俄罗斯石油、天然气占国家收入约36%。
 
-* * *
+这位普京前助理进一步表示，普京的个人帝国野心高于一切，他做好了一切准备，即使牺牲俄国经济、百姓的生活。尽管西方在其它领域实施了全面制裁，但全面禁止购买俄罗斯能源是见效快的方法，短时间内，战争就会停下来。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+近日，美国总统拜登与英国首相英国首相约翰逊通电话，双方同意继续制裁俄罗斯，结束西方购买俄罗斯石油、天然气。
 
+【信息链接】[https://www.bbc.com/zhongwen/simp/world-61071013](https://www.bbc.com/zhongwen/simp/world-61071013) AA [https://www.trt.net.tr/chinese/guo-ji/2022/04/13/bai-deng-yu-yue-han-xun-ju-xing-dian-hua-hui-wu-1811385](https://www.trt.net.tr/chinese/guo-ji/2022/04/13/bai-deng-yu-yue-han-xun-ju-xing-dian-hua-hui-wu-1811385)
 
-编辑：【英国伦敦喜庄园编辑部】
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+编辑/校对/发稿：Daxia
 
+**更多资讯，更多关注**
 
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

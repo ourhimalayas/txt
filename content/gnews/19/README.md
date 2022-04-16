@@ -2,12 +2,18 @@
 ---
 
 
-## 美国在投资方面没有对俄罗斯施加足够大的压力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2354236/)
+## 乌克兰高速公路非常拥堵全是运送物资油料和坦克等军事装备的车辆
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354295/)
 
-04/13/2022 前里根国家安全委员会高级主任罗杰·罗宾逊做客福克斯新闻称美国在投资方面没有对俄罗斯施加足够大的压力。中止俄罗斯企业证券的交易需要行政命令或国会行动，或者二者同时发生。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发布：*陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

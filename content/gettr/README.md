@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 3:01 AM (UTC)`
+
+2022-4-15《鸡血王喜币大作战》 第一百六十六集 嘉宾：Tex、文空
+![img](https://media.gettr.com/group33/origin/2022/04/16/03/9104e6b7-b131-8d58-24ab-330cd0a88d2c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/16/2022 3:01 AM (UTC)`
+
+4/15/2022 Ukrainian Rescue: Fellow fighters at the front line of the Ukraine Rescue operation have received the volunteer permits issued by the Polish authorities bearing the words “The New Federal State of China”. This means that the New Federal State of China is recognized by the international rescue organizations.<br/><br/>4/15/2022 乌克兰救援连线: 救援前线的战友们获得了波兰颁发的印有新中国联邦英文的志愿者工作证，这意味着首次参与国际救援的新中国联邦受到了国际救援组织的认可<br/>​​
+![img](https://media.gettr.com/group46/getter/2022/04/16/02/7c16219c-a812-345d-e653-5832a533f1c8/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ken_chen 4/14/2022 4:51 PM (UTC)`
@@ -24,13 +38,6 @@
 When freedom and will of thoughts are choked by power<br/>When the green pass has become a dead-end<br/>When those in uniforms only care about their careers<br/>When life and dignity they treat like dirt<br/><br/>When the healthy are locked up as sick<br/>When the sick have nowhere to turn for cure<br/>When a decree is used as means to harm<br/>When souls get sucked out and ghouls they become<br/><br/>With a stern expression they despise souls<br/>In an instant they forget they also are mortals<br/>Their clamor of haughtiness, their clamor of haughtiness<br/>"If you don't have Covid you ain't fucking sick"<br/><br/>A human society doing unhumane things<br/>They look down on the despicable, with eyes full of thorns<br/>And hearts too small the recall their oaths<br/>Their palms so filthy that they smell of blood
 > `@giraffe 4/14/2022 2:31 PM (UTC)`<br/>上海一说唱歌手创作了一首歌，视频迅速被删。<br/>评：真的是不痛不醒啊！
 ![img](https://media.gettr.com/group23/getter/2022/04/14/14/a1e505f4-9390-3d21-f711-30df1f3a91df/out.jpg)
-
----
-
-`@miles 4/16/2022 2:19 AM (UTC)`
-
-4/15/2022 Ukrainian Rescue: Fellow fighters at the front line of the Ukraine Rescue operation have received the volunteer permits issued by the Polish authorities bearing the words “The New Federal State of China”. This means that the New Federal State of China is recognized by the local Polish government and international rescue organizations.<br/><br/>4/15/2022 乌克兰救援连线: 救援前线的战友们获得了波兰颁发的印有新中国联邦英文的志愿者工作证，这意味着首次参与国际救援的新中国联邦受到了波兰当地政府和国际救援组织的认可<br/>​​
-![img](https://media.gettr.com/group18/getter/2022/04/16/02/71a673a8-b006-7654-c78c-9786a477e275/out.jpg)
 
 ---
 
@@ -151,13 +158,6 @@ A volunteer from Mozambique, Africa supports us to take down the Chinese Communi
 
 “太软了，太晚了，太不团结了...” 飞飞秀救援快报 2022-04-15<br/>For English：gettr.com/streaming/p15hfbe209e
 ![img](https://media.gettr.com/group43/origin/2022/04/15/22/5f11b10e-23cc-378a-1718-faeb2b41121f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/15/2022 8:57 PM (UTC)`
-
-2022.04.15  新中国联邦 | 喜健康    克服恐惧携手灭共
-![img](https://media.gettr.com/group18/origin/2022/04/15/20/67387dfe-23fb-6b70-a9d9-b9ba43043f59/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
