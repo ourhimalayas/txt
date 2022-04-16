@@ -2,28 +2,28 @@
 ---
 
 
-## 日本拟派自卫队运输机增援乌克兰难民救助
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355599/)
+## 受制裁俄罗斯石油工业减产
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355687/)
 
-撰稿：日本东京方舟农场 – Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
-据日媒4月13消息，日本计划在本月晚些时候派遣一架自卫队C-2运输机，帮助向接收乌克兰难民的国家运送救援物资。这项任务预计从4月下旬起每周运输一次，总共有10个左右的航班，一直持续到 6 月底。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323085.jpg)
-由于俄罗斯不顾国际社会的谴责，继续在乌克兰进行侵略战争，约有400万人逃离家园。应联合国难民事务高级专员办事处要求，日本内阁最早将于下周根据该国的《国际和平合作法》，决定是否派遣自卫队飞机参与国际人道主义救援行动。
+撰稿：华盛顿DC农场 – 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+4月12日美媒报道，受西方制裁的影响，俄罗斯的原油产量已经开始下降，预计能源业制裁未来将对俄罗斯的经济造成持久影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323082.jpg)
+俄罗斯第二大石油公司称，由于国外需求不断下降，俄罗斯的储油库中已经装满石油，炼油厂和原油油井都在减少产量，面临关闭风险。
 
-日本政府3月份曾通过波兰向饱受战争蹂躏的乌克兰运送了防弹背心和头盔。如果本次援助计划实行，飞机将从第三国向乌克兰运送毯子和睡垫等物资。
+开战前，俄罗斯是仅次于美国和沙特阿拉伯的第三大石油生产国，同时是世界上最大的石油出口国，每天出口 500 万桶原油和一种称为凝析油的相关燃料，以及每天 290 万桶精炼产品，尤其是柴油。
+
+标准普尔石油分析主管表示，截至4月8日的一周内，俄罗斯的炼油厂每天减产大约 170 万桶油。国际能源署则预测，从 5 月开始，俄罗斯每天将关闭近 300 万桶的石油生产。这将使其日产量减少到不到 900 万桶，比其他分析师预测的回落幅度更大。
+
+另外，由于炼油厂使用的一些催化剂和传感器主要由美国和欧洲公司制造，俄罗斯炼油厂如果由于受制裁无法获得相关零件，未来可能停止运转。
 
 参考链接：
 
-[Japan plans to send SDF plane for Ukraine refugee aid this month](https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html)
+[Russia’s Oil Industry, Linchpin of Economy, Feels Sting of Ukraine War Disruptions](https://www.wsj.com/articles/russias-oil-industry-linchpin-of-economy-feels-sting-of-ukraine-war-disruptions-11649843249)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
-
-编辑：Delilah小胖/飞虹
-
-总编/审核：飞虹
+编辑/总编/审核：飞虹
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)

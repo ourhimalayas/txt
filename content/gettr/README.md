@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 9:00 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group23/origin/2022/04/16/08/7787ce47-f5fc-236b-d48c-c612ec2221c2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -151,13 +158,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 
 A volunteer from Mozambique, Africa supports us to take down the Chinese Communist Party (CCP).  He believes that it's the Russian government and their greed, it’s Putin and his buddies (including the CCP), started this war, not the Russian people. He agrees that the CCP is using One Belt One Road initiatives to buy African politicians and help them enslave the African people. He says that the things we are doing are great.<br/><br/>来自非洲莫桑比克的义工支持我们推翻中国共产党。他相信是俄罗斯政府以及他们的贪婪，是普京和他的帮凶们（包括中共）发动了这场战争，而不是俄罗斯人民。他同意，中共拿钱收买非洲政客，搞的“一带一路“， 其实是变相地帮助他们奴役非洲人民。他说我们正在做的事情太棒了。
 ![img](https://media.gettr.com/group40/origin/2022/04/15/22/68777fa1-4361-2366-dbd4-d757d3b1edce/out.jpg)
-
----
-
-`@miles 4/15/2022 10:34 PM (UTC)`
-
-4/15/2022 Ukraine Rescue: A Chinese man and his Ukrainian wife were recently rescued by the Ukraine rescue team of the New Federal State of China. He told our frontline fellow fighters about the expensive "aid" offered by the Chinese Embassy in Ukraine; he and his wife were so moved by our great rescuing operations and the sincerity of our fellow fighters, and now they have decided to join our frontline rescue team to change their role from refugees to rescuers.<br/><br/>4/15/2022 乌克兰救援连线：新中国联邦最近救助了一位中国同胞和他的乌克兰太太，他给前线战友讲述了中共大使馆的高价“援助”内幕; 他和他的太太并被我们前线战友救援的实际行动和真情所感动，已决定加入新中国联邦的灭共黄马甲救援队伍，从被救援者变成救援者<br/>
-![img](https://media.gettr.com/group30/getter/2022/04/15/22/cc813b91-346f-f282-74df-ce605ae353c9/out.jpg)
 
 ---
 

@@ -2,29 +2,31 @@
 ---
 
 
-## 日本、澳大利亚出现COVID-19亚变体Omicron XE
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355533/)
+## 日本拟派自卫队运输机增援乌克兰难民救助
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355599/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-114.jpg)
-合众国际社4月15日报道–澳大利亚官员周五证实，一种新的COVID-19亚变种，即Omicron XE，已经在澳大利亚出现了。
+撰稿：日本东京方舟农场 – Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
+据日媒4月13消息，日本计划在本月晚些时候派遣一架自卫队C-2运输机，帮助向接收乌克兰难民的国家运送救援物资。这项任务预计从4月下旬起每周运输一次，总共有10个左右的航班，一直持续到 6 月底。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323085.jpg)
+由于俄罗斯不顾国际社会的谴责，继续在乌克兰进行侵略战争，约有400万人逃离家园。应联合国难民事务高级专员办事处要求，日本内阁最早将于下周根据该国的《国际和平合作法》，决定是否派遣自卫队飞机参与国际人道主义救援行动。
 
-新南威尔士州卫生当局说，第一个报告病例确认自一名上周国外归来旅行者。
+日本政府3月份曾通过波兰向饱受战争蹂躏的乌克兰运送了防弹背心和头盔。如果本次援助计划实行，飞机将从第三国向乌克兰运送毯子和睡垫等物资。
 
-日本周二表示，它也证实了其首例XE病例。
+参考链接：
 
-世界卫生组织称，XE是之前变种BA.1和BA.2的组合。
+[Japan plans to send SDF plane for Ukraine refugee aid this month](https://english.kyodonews.net/news/2022/04/964db0585fe9-japan-mulls-sending-sdf-aircraft-for-ukraine-refugee-support.html)
 
-1月中旬，英国成为第一个检测到XE的国家，此后记录了1000多个病例。XE还出现在泰国、加拿大、以色列和印度。
 
-据悉，与目前全球占主导的奥密克戎BA.2毒株相比，XE的传播速度还要快。许多研究人员表示，XE变种比一般变种传播率高10倍。
 
-但也有专家称新的变种有“炒作”成分。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-路易斯安那州立大学什里夫波特分校（Louisiana State University Health Shreveport）微生物学和免疫学副教授杰里米-卡米尔（Jeremy Kamil）说：“我觉得人们对这些变种的炒作非常令人失望和无益。”“它们在科学上是有趣，但在很大程度上仍然是一种好奇心。”“这些根本不可能构成特殊或独特的威胁，我们不应该这样对待它们。”
+编辑：Delilah小胖/飞虹
 
-新闻链接：[https://www.upi.com/Health\_News/2022/04/15/Australia-New-South-Wales-COVID19-XE-variant/7481650033888/](https://www.upi.com/Health_News/2022/04/15/Australia-New-South-Wales-COVID19-XE-variant/7481650033888/)
+总编/审核：飞虹
 
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

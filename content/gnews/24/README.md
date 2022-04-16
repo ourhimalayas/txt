@@ -2,33 +2,29 @@
 ---
 
 
-## 澳大利亚和英国继续制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
+## 美国总统拜登表示将派特使前往乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355668/)
 
-撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
-根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
-据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
+撰稿：澳喜-追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
+据外媒4月15日报道，美国总统拜登14日表示，官方正在商讨派遣一名高级官员前往乌克兰首都基辅，以表示支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323084.jpg)
+据美国政府消息人士称，国防部长奥斯汀或国务卿布林肯有望成为最佳人选。
 
-据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+继英国首相约翰逊等西方各国领导人陆续访问基辅后，美国官方也着手将派遣高级特使提上日程，以表示对乌克兰的声援。
 
-而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
+美国国家安全顾问沙利文在华盛顿特区经济俱乐部接受采访时表示，如果美方高级官员访问乌克兰，美国政府一定会确保以绝对安全的方式保障顺利成行。
 
 参考链接：
 
-[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+[Biden says U.S. deciding on sending envoy to Ukraine](https://www.reuters.com/world/us/biden-says-us-deciding-sending-envoy-ukraine-2022-04-14/)
 
-[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-125.jpg)
 
-[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
+编辑：麗子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
-
-编辑/总编/审核：飞虹
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+总编/审核：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

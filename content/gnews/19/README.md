@@ -2,29 +2,27 @@
 ---
 
 
-## 美国总统拜登表示将派特使前往乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355668/)
+## 乌克兰英勇的扫雷犬已经嗅出了“数百枚俄罗斯地雷”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2355787/)
 
-撰稿：澳喜-追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
-据外媒4月15日报道，美国总统拜登14日表示，官方正在商讨派遣一名高级官员前往乌克兰首都基辅，以表示支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323084.jpg)
-据美国政府消息人士称，国防部长奥斯汀或国务卿布林肯有望成为最佳人选。
+**撰稿：日本东京方舟农场  北极**
 
-继英国首相约翰逊等西方各国领导人陆续访问基辅后，美国官方也着手将派遣高级特使提上日程，以表示对乌克兰的声援。
+据每日星报4月16日报道，一只名为Patron的著名乌克兰扫雷犬，已经帮助乌克兰紧急服务部门清除了俄罗斯军队留下的“数百枚地雷”。
 
-美国国家安全顾问沙利文在华盛顿特区经济俱乐部接受采访时表示，如果美方高级官员访问乌克兰，美国政府一定会确保以绝对安全的方式保障顺利成行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-166.png)Patron通过嗅出从矿井内部泄漏的爆炸物和其他化学物质的气味来工作。（图片来每日星报）
+
+Patron是一个可爱的两岁半的杰克罗素㹴犬（Jack Russell Terrier），在六个月大的时候就开始了它的扫雷生涯。它现在与乌克兰紧急服务部门一起工作，清除在基辅以北的切尔尼戈夫地区的地雷。
+
+该部门工作人员称，“俄罗斯的军队在撤退时，大规模埋伏了国际法所禁止的诱杀装置，甚至在食品设施，房屋和死难者尸体上。“
+
+扫雷犬是通过嗅出设备内部泄漏的爆炸物和其他化学物质的气味来排雷的。狗大脑中的嗅觉中枢十分发达，比人类的嗅觉敏感40倍左右。杰克罗素梗犬更是其中的佼佼者。
 
 参考链接：
+[https://reurl.cc/Dynek5](https://reurl.cc/Dynek5)
 
-[Biden says U.S. deciding on sending envoy to Ukraine](https://www.reuters.com/world/us/biden-says-us-deciding-sending-envoy-ukraine-2022-04-14/)
+总编：老孙
+校对发布：爱放飞
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-125.jpg)
-
-编辑：麗子
-
-总编/审核：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-58.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
