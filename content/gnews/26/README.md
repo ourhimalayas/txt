@@ -2,39 +2,27 @@
 ---
 
 
-## 参议员梅南德斯：澳大利亚是全球挑战中共国的中心
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2355218/)
+## 乌克兰多地彻夜拉响防空警报
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355235/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+撰稿：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
+4月15日外媒报道，在俄罗斯黑海舰队的旗舰“莫斯科号”被击中损毁并沉没以后，14日晚上，乌克兰多个地区彻夜响起空袭警报，人们在基辅听到了强烈的爆炸声，在南部城市赫尔松、东部城市哈尔科夫和西部城市伊万诺-弗兰科夫斯克也听到了爆炸声。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323088.jpg)
+乌克兰议员瓦西连科表示，基辅发生了三起爆炸，并认为这些袭击是普京对“莫斯科号”沉没的报复。
 
-#### 翻译：文扬
-编辑：文泓
+一些社交媒体发布的视频显示，自俄罗斯军队本月早些时候开始撤出该地区以来，这是最严重的一次袭击事件。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片49-2.png)图片来源：网络
+参考链接：
 
+[Huge blasts rip through multiple Ukrainian cities in ‘livid’ Putin’s ship ‘revenge’](https://www.mirror.co.uk/news/world-news/breaking-air-raid-sirens-go-26718178)
 
-周三，由跨党派6名参议员组成的美国国会代表团访问了澳大利亚，确定如何最好地利用新的AUKUS联盟，在太平洋地区反击中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
 
-访问期间，共和党参议员林赛·格雷厄姆指出，澳大利亚为反抗共产主义中国付出了“沉重的代价”，美国比以往任何时候都更加支持澳洲。
+编辑/总编/审核：飞虹
 
-格雷厄姆表示，现在中共国正在利用一切可以利用的手段来击垮澳大利亚。“如果你决定通讯系统采用华为，这就表明让中共掌握你的一切”。
-
-“澳大利亚为反抗中共国付出了沉重的代价，感谢你们所做的一切，我们比以往任何时候都更支持你们。”
-
-“在澳大利亚感觉很舒服，我很幸运能够生活在一个自由发展的国家，我可不想住在共产主义中国。”
-
-民主党参议员罗伯特·梅南德斯称，澳大利亚是全球挑战中共国的中心。我们都在关注乌克兰和俄罗斯，这事关未来我们想生活在什么样的世界中。
-
-原文链接： [Australia is ‘growing with freedom’: Lindsey Graham | Sky News Australia](https://www.skynews.com.au/world-news/china/australia-is-growing-with-freedom-lindsey-graham/video/287bcd5d854776b54e89c12beef7951a)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

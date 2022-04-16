@@ -2,33 +2,115 @@
 ---
 
 
-## 澳大利亚和英国继续制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355582/)
+## 以疫待牢
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2355630/)
 
-撰稿：雅典娜农场-小红帽；香草山农场-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
-根据国外媒体 4月14日的报道，澳大利亚当天对14家俄罗斯国有企业实施了有针对性的金融制裁，包括与国防有关的实体，如卡车制造商Kamaz，以及航运公司SEVMASH和联合造船公司。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323086.jpg)
-据澳大利亚外长玛丽斯·佩恩的一份声明中表示，制裁还将扩大到一家生产了约80%的俄罗斯电子元件的电子公司，以及俄罗斯铁路公司。
+撰稿人：木本水源
 
-据悉，自战争开始以来，澳大利亚已经制裁了俄罗斯大约600名个人和实体，包括俄罗斯大部分银行业和对该国主权债务负责的所有组织，同时禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。
+![](https://lh5.googleusercontent.com/-SbmRZpzbcGgDiulqSE7P2UKcFVkeWTw3QKCP7pkVB0hWXYchef1fsMhy2SnOD3o1XRcIXY93G0u1-waBD1NXbWGbX9mDJs8whU9FYNAbrpx4s4y9KZIahlTGTx4hsc5SmUbWiX6)
+![](https://lh4.googleusercontent.com/qYjg1tennG5pNxdCXYGyuzxo2jBSVK7U9q5OZvVD30Fmek2hEMLMqjX1Ij0bijnVfuPMT_58A2us0J7iHnfrY8e2OyqEADJGETydiWNUe6o5FFGndRwy-_3PJbsbUH0S9t5qAjgX)
+（澳喜文宣）
 
-而在英国，皇家法庭12日签署正式冻结命令，对与俄罗斯富豪阿布拉莫维奇有关联的70亿英镑以上的财产实施冻结，14日冻结金额继续扩大到100亿英镑。
+当自由和思想意志被权利禁锢
 
-参考链接：
+当绿色的通道被封锁成了禁路
 
-[Australia imposes more sanctions on Russian state-owned enterprises](https://www.channelnewsasia.com/world/australia-imposes-more-sanctions-russian-state-owned-enterprises-2625366)
+当穿上制服却只关心自己仕途
 
-[Jersey freezes $7bn worth of assets linked to Roman Abramovich](https://www.ft.com/content/365b2f7a-2746-44d8-86bd-4beae7dfec51)
+当生命尊严都被他们视为粪土
 
-[UK freezes £10bn of assets held by associates of Roman Abramovich](https://www.ft.com/content/b60b589f-afe6-4d1c-94c9-31fee65f0e56)
+当没病的人被关在家当作病人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-128.jpg)
+当真正病人踏不进医院的大门
 
-编辑/总编/审核：飞虹
+当把遵守命令变成理由去伤人
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+当变成行尸走肉被抽干了魂儿
+
+藐视着生命他们表情很淡定
+
+孰知一转眼自己也是个白丁
+
+他们叫嚣的自信 叫嚣的自信
+
+反正没得新冠你就不算生病
+
+所谓人情的社会干着绝情的事儿
+
+面对绝望的人们眼里装满了刺儿
+
+心眼儿太小装不下宣誓过的字儿
+
+手掌太脏了还弥漫着血腥的味儿
+
+shit 可真他妈的难闻
+
+空气中嗅到了腐烂的灵魂
+
+自诩高等动物却比动物更残忍
+
+比病毒更可怕的正是这人吃人
+
+上级命令大于天 其他全都靠一边
+
+除了手里这点权 其他权当看不见
+
+上级命令大于天 其他全都靠一边
+
+除了手里这点权 其他权当看不见
+
+没错儿 在这光鲜的时代
+
+房价越来越高 底线越来越low
+
+没错儿 在这繁华的时代
+
+弱肉强食地规则里人性早被淘汰
+
+open your eyes
+
+open your eyes
+
+这样恶性的循环为何还在一直重复
+
+open your eyes
+
+open your eyes
+
+有多少人不配当人混在人群滥竽充数
+
+open your mind
+
+open your mind
+
+摩天大楼的繁华掩盖了多少罪恶和痛苦
+
+open your mind
+
+open your mind
+
+滚滚车轮向前留下的沟壑谁又会去填补
+
+当自由和思想意志被权利禁锢
+
+当绿色的通道被封锁成了禁路
+
+当穿上制服却只关心自己仕途
+
+当生命尊严都被他们视为粪土
+
+*一位上海青年用说唱的方式表达现在上海因为疫情被全面封锁下人性的丑陋面。地狱空荡荡，恶魔在人间*。
+
+资料来源：
+
+视频地址：[https://twitter.com/littleduck977/status/1514627204768055304?s=20](https://twitter.com/littleduck977/status/1514627204768055304?s=20)
+
+*审核：文筝*
+
+*发布：yin*
+
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
