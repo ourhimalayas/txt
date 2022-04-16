@@ -17,6 +17,33 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/15/2022 6:37 PM (UTC)`
+
+🆘🇺🇦🆘Reports from the Ukrainian Rescue Front<br/>❣️Nicole interviews volunteers from Spain❣️<br/>His first sentence shouted: "take down CCP!"<br/>He saw it at first sight: Our vest with, "Take Down the CCP!"<br/>He suddenly remembered his father.<br/>❣️ He recalled that his father, who used to be a Yugoslav party member, left the Communist Party and became a man of faith.<br/>❣️ He firmly believes that those Chinese who have joined the Communist Party will also change because in a country ruled by a Communist Party many people are forced to join the Communist Party in order to survive! In fact, the truth is that the Communist Party has kidnapped the people!<br/>❣️He sighed: How great the actions of NFSC whose objective it is to take down the CCP and rescue the Chinese people.
+![img](https://media.gettr.com/group12/origin/2022/04/15/18/5806facd-5e08-2716-e0c0-f399ae49294b/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/16/2022 12:15 AM (UTC)`
+
+Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interview with #Belgium Prime Minister #Alexander De Croo. When he was listening the story of #NFSC, he nodded, smiled and agreed.<br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole讲述采访 #比利时 现任总理 #亚历山大·德保罗 过程中故事. 当他在听Nicole讲述新中国联邦的故事时，他表示点头，微笑和赞同！<br/><br/>👇About New Federal State of China #NFSC 👇<br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
+![img](https://media.gettr.com/group23/origin/2022/04/16/00/b506604a-c9b9-42e0-ffb3-ad6dfd2e6503/out.jpg)
+> `@himalayadcfarm 4/12/2022 4:53 PM (UTC)`<br/>❤️Report from #NFSC's #UkraineRescue #Nicole <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>波兰时间4月12日早上10点在梅迪卡营地，比利时总理Alexander De Croo 接受 #新中国联邦 记者Nicole采访<br/>nicole在阐述自己是来自 #新中国联邦，我们所做的人道救援和提供的帐篷等工作，也介绍了郭先生和我们的目标愿景......<br/>比利时首相微笑着回答，人们需要互相帮助，非常高兴你们 #新中国联邦 在这里帮助这些人。nicole说，我们有很好的咖啡,请来我们帐篷，欢迎品尝，<br/><br/>首相说，是的，我们就是在去的路上💖😀<br/><br/>今天是个好日子！👏👏👏
+![img](https://media.gettr.com/group12/origin/2022/04/12/16/1c829f7b-2299-c24e-319c-8c93f274f36f/out.jpg)
+
+---
+
+`@miles 4/16/2022 7:02 PM (UTC)`
+
+2022-4-16《避风港》(37) 制药公司与FDA共同隐瞒疫苗杀人
+![img](https://media.gettr.com/group16/origin/2022/04/16/18/0944f2d1-9d26-ab4d-4d73-c8112abd19c8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 6:44 PM (UTC)`
 
 4月15日晚上7点半，梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节<br/>April 15th, 7:30 p.m. Israeli volunteers from the Medyka Rescue Center gathered at the NFSC tent to celebrate Passover<br/>#ukrainerescue  #nfsc新中国联邦 #nfscukrainerescue
@@ -133,27 +160,6 @@
 
 【Ukraine Rescue】04/15/2022 A volunteer from France, happily wearing the vest of the NFSC, and says, "Taking down the Communist Party is also my philosophy. We are different, but we think the same."<br/><br/>【乌克兰救援】04/15/2022 来自法国的志愿者开心地穿上新中国联邦的背心，他表示： “灭共也是我的理念。我们虽然不同，但想法一致。”
 ![img](https://media.gettr.com/group42/getter/2022/04/16/13/8843cfbb-4c54-ad7e-3bed-6723e00b47dc/out.jpg)
-
----
-
-`@miles 4/16/2022 1:21 PM (UTC)`
-
-【Ukraine Rescue】04/15/2022 Nicole shows the afternoon scene in the NFSC relief tent: Volunteers would come for coffee; news reporters are interviewing; NFSC volunteers welcoming a Chinese man and his Ukrainian wife who had escaped from Ukraine, five rooms of their house had been blown away.<br/><br/>【乌克兰救援】04/15/2022 妮可展示新中国联邦救援帐篷下午的场景：义工们会来喝咖啡；新闻记者在采访；新中国联邦义工迎接了一位从乌克兰逃出来的中国大哥和他的乌克兰太太，他们家的5间房被炸。<br/>
-![img](https://media.gettr.com/group14/getter/2022/04/16/13/a40642b4-cf5c-ec96-3e44-2a9faf90d6d3/out.jpg)
-
----
-
-`@miles 4/16/2022 1:19 PM (UTC)`
-
-【Ukraine Rescue】04/15/2022 A journalist from Helsinki, Finland, visiting the NFSC rescue tent in search of interview material, meets the American volunteer who is preparing to put on a rabbit costume. It turned out he was a lawyer and a former federal prosecutor. He describes it as the most rewarding work of his life.<br/><br/>【乌克兰救援】04/15/2022 一位来自芬兰首都赫尔辛基的记者来新中国联邦救援帐篷寻找采访素材，遇到了正在准备穿上兔子服装的美国志愿者。原来他是一位律师，还曾是联邦检察官。他说这是他一生中最有意义的工作。
-![img](https://media.gettr.com/group42/getter/2022/04/16/13/62dc6f1a-bec2-f567-9b07-930ed9e2e29d/out.jpg)
-
----
-
-`@miles 4/16/2022 1:10 PM (UTC)`
-
-4月16号：尊敬的战友们好！共产党的无知，愚蠢，和邪恶，只能用一个办法来解决，那就是彻底的消灭他们。【七哥好，乌克兰战争爆发以来有人粗略统计了中文媒体相关数据：泽连斯基逃跑18次，基辅失守4次，亚速营被歼灭9次。马里乌波尔被全面占领11次。乌海军陆战队投降人数都超过整编编制人数了。普京一共怒了93次，撂狠话58次，挑明了24次，美国怂了136次，北约尿了98次，欧盟跪了105次。】<br/>😄😄😄快乐灭共！
-![img](https://media.gettr.com/group41/getter/2022/04/16/13/dd5289d8-fde8-960d-f5d2-f04e6a4c4bec/out.jpg)
 
 ---
 
