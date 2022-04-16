@@ -2,35 +2,35 @@
 ---
 
 
-## 有声|上海
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2357963/)
+## 教皇出席但不主持复活节守夜仪式
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2358036/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-我家在上海，犹如小天堂
-小资情调浓，说话带嗲音
-侬好上海人，日子乐融融
-因疫封了城，天堂瞬间空
-大白态度横，警察鬼临门
-强制进方舱，犹进垃圾场
-断药又断粮，上海人彷徨
-日夜喊楼声，声声断心肠
-朗咸平死娘，可曾恨共党
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-文字版原文：[上海](https://gnews.org/zh-hans/2350033/)文字版原文：文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/MBT7QQNRTNMMDOC54JUNZWWGVA.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+图片来源：路透社
+
+梵蒂冈城，4 月 16 日（路透社) 教皇方济各周六晚上出席但没有主持在圣彼得大教堂举行的复活节守夜仪式，大概是因为反复出现的腿部疼痛迫使他减少了一些活动。
+
+意大利红衣主教乔瓦尼·巴蒂斯塔·雷 (Giovanni Battista Re) 取代了教皇成为仪式的主要主礼人，其中包括在基督教世界最大教堂的中央教堂中殿几乎完全黑暗的游行队伍。
+
+教皇坐在大殿前侧的一张白色大椅子上，一副警惕的样子。梵蒂冈说他稍后会在弥撒中宣读讲道。
+
+主持有 5,500 人参加的弥撒，需要在诵经和读福音时长时间站立，以及在祭坛前跪下。
+
+这位 85 岁的教皇患有坐骨神经痛，这会导致一条腿疼痛并导致明显的跛行。最近，弗朗西斯的右膝也突然疼痛。
+
+梵蒂冈周五发布的一个节目将教皇列为周六晚礼拜的主礼。梵蒂冈没有给出改变的官方理由。
+
+🔗[https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/](https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

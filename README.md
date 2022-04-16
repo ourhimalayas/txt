@@ -15,77 +15,77 @@
 
 ---
 
-### [4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案](/content/gnews/1/README.md)
+### [安省东部医院遭遇人员短缺危机](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [第六波新冠疫情下的安大略省](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [4/16/2022文贵直播：俄罗斯几家战友聪明地躲开了最危险的地方；体制内战友把统计局的机密信息提供给了美国，全家获批美国紧急移民](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的](/content/gnews/2/README.md)
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月15日晚](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大武装部队加速帮助乌克兰难民](/content/gnews/3/README.md)
+### [4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大武装部队加速帮助乌克兰难民](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|中共对上海实行恐怖封锁](/content/gnews/4/README.md)
+### [有声|中共对上海实行恐怖封锁](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [特鲁多抨击艾伯塔省关闭毒品消费场所的做法](/content/gnews/5/README.md)
+### [特鲁多抨击艾伯塔省关闭毒品消费场所的做法](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|暴政猛于虎](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄乌战争升级 普京要动用战术核武器](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
-
-### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/9/README.md)
- ` 秘密翻译组-原创组`
-
-### [特鲁多政府新冠恐慌性购买丑陋行径](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/11/README.md)
- ` G-时新闻`
-
-### [DC大中华时事：很多国家都“躺平”了，我们为何还“动态清零”？](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2022/04/16 文贵先生直播精要](/content/gnews/13/README.md)
+### [美国会代表团访台之际，中共在台湾周边进行军演](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/14/README.md)
- ` 秘密翻译组-原创组`
-
-### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/15/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [教皇出席但不主持复活节守夜仪式](/content/gnews/16/README.md)
- ` Shuizhuyu`
-
-### [截至4.16 俄乌战事汇总](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|上海](/content/gnews/18/README.md)
+### [有声|暴政猛于虎](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
+### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
+### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/13/README.md)
+ ` 秘密翻译组-原创组`
 
-### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
+### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/14/README.md)
+ ` G-时新闻`
 
-### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/22/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
+### [2022/04/16 文贵先生直播精要](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/23/README.md)
+### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/16/README.md)
+ ` 秘密翻译组-原创组`
+
+### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [马斯克将以430亿美元收购推特](/content/gnews/24/README.md)
- ` NFSC News`
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/18/README.md)
+ ` Shuizhuyu`
+
+### [截至4.16 俄乌战事汇总](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/23/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/24/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/25/README.md)
  ` 银河歌舞厅`
@@ -144,45 +144,42 @@
 ### [泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [泽连斯基称世界应该为普京可能使用核武器做好准备](/content/gnews/44/README.md)
- ` 波士顿五月花农场金融部`
-
-### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/45/README.md)
+### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共封控上海 日企遭受打击](/content/gnews/46/README.md)
+### [中日财经爆┃中共封控上海 日企遭受打击](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”](/content/gnews/47/README.md)
+### [俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”](/content/gnews/46/README.md)
  ` 關注組`
 
-### [疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性](/content/gnews/48/README.md)
+### [疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性](/content/gnews/47/README.md)
  ` 關注組`
 
-### [疫情｜上海传染病专家质疑“若清零有效，我愿向14亿人割腕谢罪”](/content/gnews/49/README.md)
+### [疫情｜上海传染病专家质疑“若清零有效，我愿向14亿人割腕谢罪”](/content/gnews/48/README.md)
  ` 關注組`
 
-### [台湾｜郭文贵爆料：中共启动“台湾之子”行动 制造社会动乱 趁机夺台](/content/gnews/50/README.md)
+### [台湾｜郭文贵爆料：中共启动“台湾之子”行动 制造社会动乱 趁机夺台](/content/gnews/49/README.md)
  ` 關注組`
 
-### [俄罗斯入侵乌克兰的战争会持续多久？](/content/gnews/51/README.md)
+### [俄罗斯入侵乌克兰的战争会持续多久？](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性](/content/gnews/52/README.md)
+### [参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性](/content/gnews/51/README.md)
  ` 美国政要直译推`
 
-### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
+### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/54/README.md)
+### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/55/README.md)
+### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共才是世界上黑帮的幕后大佬](/content/gnews/56/README.md)
+### [中共才是世界上黑帮的幕后大佬](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/57/README.md)
+### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

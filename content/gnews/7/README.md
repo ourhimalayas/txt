@@ -2,26 +2,30 @@
 ---
 
 
-## 樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358170/)
+## 加拿大武装部队加速帮助乌克兰难民
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358222/)
 
-撰稿：东京樱花团/加一颗稻草
+##### **作者：加拿大温哥华扬帆农场 – 采编：青青、编译：文莱**
 
-美联社——在尘土飞扬的加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰战争中吸取的教训，让士兵为未来与俄罗斯或中共国等主要对手的战斗做好准备。这是一场针对网络、社交媒体、后勤保障以及如何克服坦克在泥泞中的困难的演练。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-332.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/4cfafe71219446498073ac361509228d/3000.jpeg)
-此次俄罗斯入侵乌克兰的战争中，乌克兰巧妙的利用社交媒体摧毁了俄罗斯的虚假宣传战术。以直播的形式让全世界的人们在电视或网络上，看到飞弹爆炸的场景，对平民的伤害。更看到了乌克兰人民的勇敢，并揭穿了俄罗斯的虚假指控。这是一种创新的战争形式，结合与北约的情报和信息的共享，成功的击溃俄罗斯军队。
+据加拿大媒体【CTV新闻】4月14日报道，多达150名加拿大武装部队成员将很快部署，以帮助管理驻留在波兰的乌克兰难民，包括帮助数千名乌克兰人来到加拿大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2030.png)
+报道称，加拿大国防部长日前在安省特伦顿的军事基地宣布了此消息。这一部署将分为三阶段进行，首先，加拿大武装部队成员将部署到波兰各地的接待中心，人员将在将乌克兰语的帮助下提供一般援助、精神服务和基本医疗服务。其次，加拿大将部署一些成员帮助波兰领导的人道主义特遣部队，其中包括其他联邦政府代表和盟国官员。最后，军事人员将通过与波兰军方联系，以帮助加拿大移民、难民和公民身份。这项联合行动是加拿大在最近扩大北约在中欧和东欧的威慑任务。
 
-这样的战争模式与我们的爆料革命的战略不谋而合。爆料革命以为真不破的理念，用直播的方式向世界揭露了中共的无数次的谎言。导致中共内部听到爆料革命的声音就已经闻风丧胆，所以我们的每一次直播都对中共造成沉重打击。
+据悉，加拿大-乌克兰紧急旅行授权计划将允许希望暂时来加拿大的乌克兰人停留三年之久，并且其任何国籍的直系亲属都可获得临时居留权，而且有权在加拿大工作或学习。
 
-消息来源：
+链接：[Canada’s military deploying to Poland | CTV News](https://www.ctvnews.ca/politics/canadian-military-deploying-to-poland-to-assist-ukrainian-refugees-1.5861960)
 
-[US Army using lessons from Ukraine war to aid own training](https://apnews.com/article/russia-ukraine-war-us-army-training-54e76eba46f9bf79542dd3f872456e67)
+上传/发稿 – 文永
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
