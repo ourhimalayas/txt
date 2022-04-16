@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰高速公路非常拥堵全是运送物资油料和坦克等军事装备的车辆
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354295/)
+## 新中国联邦和法治基金乌克兰营地现场接待并救助了从乌克兰逃难出来的华人和他的乌克兰妻子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354315/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

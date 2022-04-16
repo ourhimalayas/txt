@@ -2,20 +2,23 @@
 ---
 
 
-## 中共封锁期间释放更多正在接受病毒医学观察者
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353895/)
+## 俄罗斯边境国家领导人到访乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2353950/)
 
 作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1948.png)
-据【CTV NEWS】4月13日报道， 中共政府周三表示，上海从病毒观察中心释放了6000多名为对抗病毒正接受医学观察的人，尽管对这座中国最大城市的封锁已经持续三周，且目前仍没有解除迹象。
 
-中共官员警告，尽管上海的清零政策已经让居民在家中呆了三周甚至更长，但仍没能控制住奥米克戎的新增病例。封锁导致上海居民的食品和药品出现严重短缺，网管对在社交媒体上的相关言论不停的在清除，中共党媒则一如既往的成功列举食品和物资的供应被充分保障，并劝告民众“坚持就是胜利”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1950.png)图片来源：推特
 
-上海是中国最繁忙的港口和金融中心，人们越来越担心封锁对经济的不利影响，已有数据显示上海等工业城市因病毒封锁导致工厂减产。
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/shanghai-releases-more-from-virus-observation-amid-lockdown-1.5860215](https://www.ctvnews.ca/health/coronavirus/shanghai-releases-more-from-virus-observation-amid-lockdown-1.5860215)
+据【CTV NEWS】4月13日报道，处于俄罗斯边境的四个国家领导人周三到访了乌克兰，表达对乌克兰的支持，他们看到了俄军在那里所犯的罪行，并要求追究战争责任。
 
-采编：青青， 编辑发稿：硫酸羟氯喹64
+波兰、立陶宛、拉脱维亚和爱沙尼亚总统的到访是来自北约东翼国家的强烈声援，其中三个国家也曾是前苏联的一部分。领导人们到访基辅，会见泽连斯基，并访问了基辅附近的博罗江卡，这是乌克兰遭俄军炮火严重袭击的重要城镇之一。
+
+四位总统重申在政治、军事援助上支持乌克兰的承诺，并呼吁采取更严厉的制裁措施，包括对俄石油和天然气运输以及对俄所有银行进行制裁。
+
+新闻来源：[https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912](https://www.ctvnews.ca/world/presidents-from-countries-on-russia-s-doorstep-visit-ukraine-1.5859912)
+
+采编：青青，编辑发稿：硫酸羟氯喹64
 
  
 

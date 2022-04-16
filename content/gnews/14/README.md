@@ -2,12 +2,28 @@
 ---
 
 
-## 川普：中共国是比俄罗斯更大的地缘政治威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2354264/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2354298/)
 
-04/14/2022 川普：中共国是比俄罗斯更大的地缘政治威胁。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-84.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-1-3.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p15hy287563](https://gettr.com/post/p15hy287563)
+访谈：[https://gettr.com/post/p15i50m67e1](https://gettr.com/post/p15i50m67e1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

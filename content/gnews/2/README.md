@@ -2,40 +2,28 @@
 ---
 
 
-## 美国财政部证实北朝鲜黑客盗窃了美巨额加密资产
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2354484/)
+## 封控年代
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2354517/)
 
-2022-04-15
+作者：香草山健身部-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-11.jpg)
 
-翻译：文明志
-![](https://assets.gnews.org/wp-content/uploads/2022/04/RPAMCC9BO4NJQMSHF2.png)图片来源：[北朝鮮ハッカーが関与と判断、人気ゲーム暗号資産盗難で米財務省](https://jp.reuters.com/article/fintech-crypto-currency-ronin-idJPKCN2M61ZE)
+翻遍新闻是盛世，灿烂春色亦失色
+掀开真相疑炼狱，白天更比黑夜暗，
+白色防疫纵恶狼，四月寒意袭人心
+细雨绵绵起愤怒，人性瑟瑟起癫狂。
+可怜民心懦无能，人间噩梦何时醒
 
-美国财政部裁定，一个北朝鲜黑客组织参与了在热门网络游戏 “Axe Infinity “上盗窃价值数亿美元加密资产的黑客行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
 
-据4月14日路透社华盛顿消息，美国财政部周四(14日）表示，美国人气流行网络游戏 “Axe Infinity “相当于数亿美元金额的加密货币资产（虚拟货币）被盗，作案人被锁定为一伙北朝鲜黑客。
+**审核/编辑/发稿**： **春草**
 
-美国财政部裁定，一个北朝鲜黑客组织参与了在热门网络游戏 “Axe Infinity “上盗窃价值数亿美元加密资产的黑客行动。
-
-Ronin是允许用户在游戏中转移加密货币资产的区块链网络平台，3月23日该平台宣布价值约6亿1500万美金的数字货币被盗。
-
-美财政部证实，黑客使用的数字货币地址是由一个经常被称为 “拉扎勒斯 “的北朝鲜黑客组织所控制。
-
-发言人指出，”美国清楚地掌握了北朝鲜在逃避美国和联合国的强力制裁下，越来越依赖非法活动，包括网络犯罪，并利用网络犯罪为其大规模杀伤性武器和弹道导弹计划创造收入”。
-
-根据Ronin官方博客上的一篇文章，美国联邦调查局（FBI）将黑客攻击归咎于拉扎勒斯，美国财政部已经制裁了收到被盗资金的地址。
-
-美国指出，拉扎勒斯由朝鲜的主要情报部门——侦察总局控制。拉扎勒斯一直被怀疑为操纵敲诈勒索的病毒Wannacry 、针对国际银行和客户账户进行黑客攻击、以及2014年对索尼影视娱乐公司展开网络攻击的罪魁祸首。
-
-根据路透社4月13日证实的一份决议草案，美国正在游说联合国安理会将拉扎勒斯列入黑名单并冻结其资产。
-
-新闻来源：[北朝鮮ハッカーが関与と判断、人気ゲーム暗号資産盗難で米財務省](https://jp.reuters.com/article/fintech-crypto-currency-ronin-idJPKCN2M61ZE)
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

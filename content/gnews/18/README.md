@@ -2,48 +2,32 @@
 ---
 
 
-## 推特采用“毒丸”，以挫败埃隆-马斯克的收购行动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2353984/)
+## 泽伦斯基伏特加酒！收益全捐乌难民重建家园
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2354252/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-Twitter董事会周五颁布了一项防御性措施，旨在阻止埃隆-马斯克430亿美元的敌意收购。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+俄罗斯侵略乌克兰已将近2个月，世界各国挺乌抵俄的行动越来越多，英国近日推出一款以乌克兰总统泽伦斯基命名的伏特加酒（Vodka Zelensky）来声援乌克兰，而这款酒的销售收入将全数捐助给乌克兰难民帮助他们重建家园。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1954.png)*2022年2月，埃隆-马斯克在德克萨斯州举行的新闻发布会上。照片。吉姆-沃森/法新社，通过盖蒂图片社*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/17dd9308-d4b5-4603-b488-aa3b78614669.jpg)图片来源：推特
 
-**它为什么重要**：用企业术语来说，“毒丸”给了Twitter现有股东以折扣价购买额外股份的时间，从而稀释了马斯克的股权。
+近日英国推出一款以泽伦斯基命名的伏特加酒，该团队表示，2026年之前这款酒的100%收入将全数捐赠给乌克兰，协助饱受战争之苦的乌克兰难民重建家园、医疗物资补给等项目。短短不到5天时间该团队就已筹到资金，且已捐出3万英镑。
 
-**它是如何运作的：**此举旨在使包括马斯克在内的任何人都难以建立起价值超过15%的公司股份。
+该酒瓶身以乌克兰国旗为底色，并以泽伦斯基的侧脸为logo，酒瓶设计师表示这是为了要致敬泽伦斯基在大战下临危不乱的领导能力。目前这款酒已在德国、瑞士开始销售，英国也将马上在实体商店推出。团队表示，目标在2022年底售出100万瓶，将扣除掉成本支出，利润将全数捐给乌克兰，协助难民重建家园。
 
-- 毒丸让现有股东有能力以折扣价购买公司的额外股份，这反过来又稀释了寻求购买公司的人或组织的股份。
+伏特加作为俄罗斯享誉世界的招牌饮酒，冠以泽伦斯基的名字真是哇塞的创意，喝伏特加支持乌克兰，喝伏特加挺泽伦斯基，喝伏特加俄罗斯人止战和平，喝伏特加推翻普京独裁，喝伏特加俄乌重归友好，喝伏特加助乌克兰人重建家园。
 
+如此创意把伏特加酒赋予了时代的历史意义，作为俄罗斯人的生命之水，普京统治下的俄罗斯配不上浓烈的伏特加酒，乌克兰国旗为底色，泽伦斯基的侧脸为logo的伏特加才是真正意义上的伏特加。顽强与智慧一结合是不可摧毁的，饮一杯泽伦斯基伏特加酒，为残暴的独裁者普京送行！
 
-**大势所趋：**马斯克本月早些时候披露了在Twitter的9.2%股份。
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022414W0103](https://www.ftvnews.com.tw/news/detail/2022414W0103)
 
-- 他随后宣布加入该公司的董事会，并开始提议对该平台进行若干改革，包括将该公司的总部变成一个无家可归者收容所。
-- 马斯克曾多次表示，他认为推特“未能坚持言论自由原则”，甚至提议创建一个竞争对手的平台，在这个平台上，“言论自由和坚持言论自由被放在首位”。
-- 他后来放弃了加入董事会，并提出以每股54.20美元的价格收购该公司，不过他没有说明他打算如何支付。
+撰稿/发布：一叶知秋
 
-
-**他们在说什么：**Twitter在一份声明中说，“其董事会已经一致通过了一项有期限的股东权利计划……董事会在有人主动提出收购Twitter的非约束性建议后通过了权利计划”。
-
-- 该公司补充说：“权利计划将减少任何实体、个人或团体在未向所有股东支付适当的控制权溢价，或未向董事会提供足够的时间做出明智的判断并采取符合股东最佳利益的行动的情况下，通过公开市场积累获得Twitter控制权的可能性。”
-
-
-来源：[Twitter adopts poison pill in bid to thwart Elon Musk takeover](https://www.axios.com/twitter-elon-musk-poison-pill-7a62f6d6-b77a-4481-a2e3-5a7081557a84.html)
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

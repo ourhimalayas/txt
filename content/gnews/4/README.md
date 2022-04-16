@@ -2,28 +2,38 @@
 ---
 
 
-## 上海爆发警民冲突 墙内视频多被删除
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2354439/)
+## 芬兰瑞典拟加入北约，俄威胁向波罗的海部署核武器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354488/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-7.jpg)上海爆发警民冲突 墙内视频多被删除 网络图片
-据法国国际广播电台4月15日报道，4月初，上海全面封城，2500万居民被禁闭在家里。上海当局隔离了阳性感染者，包括无症状的也被安置在隔离中心。但最近每天都有超过2万个新阳性病例，上海当局强征居民区作为隔离点，引发警民冲突。视频显示有人被抓，审查人员已删除了该事件的大部分视频。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-新冠爆发后，全球都在隔离、封城，只有中共国采取了把家门焊死、把小区封闭，任由居民饿死、病死，甚至跳楼死也绝不解封的屠杀式隔离。随着阳性感染者增多，强制措施也在升级，居然强征民房作为隔离点。上海2600万民众，全民皆兵的乌克兰不过4100万人口，因为万众一心，硬是挡住了号称战斗民族的俄罗斯的进攻。如果上海人民全部起来反抗，封城马上就会结束。如果这股力量汇集到北京，中共瞬间土崩瓦解，新中国宣告诞生。
+翻译/编辑：文泓
 
-新闻参考链接：[https://www.rfi.fr/cn/中国/20220415-上海爆发警民冲突-墙内视频多被删除](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220415-%25E4%25B8%258A%25E6%25B5%25B7%25E7%2588%2586%25E5%258F%2591%25E8%25AD%25A6%25E6%25B0%2591%25E5%2586%25B2%25E7%25AA%2581-%25E5%25A2%2599%25E5%2586%2585%25E8%25A7%2586%25E9%25A2%2591%25E5%25A4%259A%25E8%25A2%25AB%25E5%2588%25A0%25E9%2599%25A4)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1965.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+4月16日，据天空新闻报道，当两个北欧国家表示可能加入北约，普京的盟友梅德韦杰夫警告，莫斯科可能会下令在欧洲地区部署核武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+当俄罗斯入侵乌克兰改变了欧洲的整个安全格局，北欧国家普遍改变了以往的思维方式，芬兰和瑞典强烈表示希望成为北约成员。
 
+芬兰总理桑娜·马林表示，除了成为北约成员国之外，没有其他方式可以获得安全保障；瑞典首相马格达莱娜·安德森说，她正在分析入侵乌克兰战争爆发以后，如何才能对她的国家最有利。
 
+梅德韦杰夫宣布，如果这些国家加入北约，莫斯科将不得不通过加强其在波罗的海的陆海空力量来“恢复平衡”，“在这种情况下，就不可能再谈论波罗的海的无核地位了。”
+
+近几十年来，瑞典和芬兰一直保持中立，因为两国都避免与俄罗斯的关系搞僵，但在入侵战争爆发后情况发生了变化。
+
+上周，包括澳大利亚等盟国在内的北约国家外长举行会议，讨论瑞典和芬兰加入的可能性。
+
+国防和安全分析师杰辛塔卡罗尔表示，这两个北欧国家表示有意加入北约，标志着俄罗斯的惨败。
+
+参考链接：[Dmitry Medvedev suggests Moscow will send nuclear weapons to Baltic region over Finland, Sweden NATO membership | Sky News Australia](https://www.skynews.com.au/world-news/global-affairs/dmitry-medvedev-suggests-moscow-will-send-nuclear-weapons-to-baltic-region-over-finland-sweden-nato-membership/news-story/fcf93eec4bbb7578780a1eea762876d1)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
