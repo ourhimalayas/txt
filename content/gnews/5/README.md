@@ -2,26 +2,28 @@
 ---
 
 
-## 樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358170/)
+## 特鲁多抨击艾伯塔省关闭毒品消费场所的做法
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358209/)
 
-撰稿：东京樱花团/加一颗稻草
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编译：晨熹
 
-美联社——在尘土飞扬的加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰战争中吸取的教训，让士兵为未来与俄罗斯或中共国等主要对手的战斗做好准备。这是一场针对网络、社交媒体、后勤保障以及如何克服坦克在泥泞中的困难的演练。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-332.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/4cfafe71219446498073ac361509228d/3000.jpeg)
-此次俄罗斯入侵乌克兰的战争中，乌克兰巧妙的利用社交媒体摧毁了俄罗斯的虚假宣传战术。以直播的形式让全世界的人们在电视或网络上，看到飞弹爆炸的场景，对平民的伤害。更看到了乌克兰人民的勇敢，并揭穿了俄罗斯的虚假指控。这是一种创新的战争形式，结合与北约的情报和信息的共享，成功的击溃俄罗斯军队。
+据【真北方】4月12日报导，周二特鲁多在去埃德蒙顿推动2022年预算时，抨击艾伯塔省省长杰森·肯尼针对犯罪率高和有效减少药物致死问题而限制该省吸毒场所的决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2029.png)
+肯尼基于对该问题独立调查后的结果，自2020年起陆续关闭并重新安置部分受监管的毒品消费。调查显示阿尔伯塔省在2016至2021年间有1758人因吸毒过量致死。
 
-这样的战争模式与我们的爆料革命的战略不谋而合。爆料革命以为真不破的理念，用直播的方式向世界揭露了中共的无数次的谎言。导致中共内部听到爆料革命的声音就已经闻风丧胆，所以我们的每一次直播都对中共造成沉重打击。
+而特鲁多则认为政府应该推动安全消费场所，艾伯塔省的做法却正好相反。他同时表示像埃德蒙顿领导人的决定，才是度过危机的正确方式。据悉，埃德蒙顿市长和前自由党议员周一启动了该市申请豁免有关拥有海洛因和快克可卡因等硬性毒品的联邦法律。特鲁多对此表示欢迎。
 
-消息来源：
+新闻来源：[https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/](https://tnc.news/2022/04/12/trudeau-upset-with-alberta-for-dropping-drug-consumption-sites/)
 
-[US Army using lessons from Ukraine war to aid own training](https://apnews.com/article/russia-ukraine-war-us-army-training-54e76eba46f9bf79542dd3f872456e67)
+上传/发稿 – 文永
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

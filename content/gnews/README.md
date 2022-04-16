@@ -15,64 +15,64 @@
 
 ---
 
-### [4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的](/content/gnews/1/README.md)
+### [4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大武装部队加速帮助乌克兰难民](/content/gnews/2/README.md)
+### [4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大武装部队加速帮助乌克兰难民](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [特鲁多抨击艾伯塔省关闭毒品消费场所的做法](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声|暴政猛于虎](/content/gnews/4/README.md)
+### [有声|中共对上海实行恐怖封锁](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/5/README.md)
+### [特鲁多抨击艾伯塔省关闭毒品消费场所的做法](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|暴政猛于虎](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌战争升级 普京要动用战术核武器](/content/gnews/6/README.md)
+### [俄乌战争升级 普京要动用战术核武器](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/7/README.md)
+### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [特鲁多政府新冠恐慌性购买丑陋行径](/content/gnews/8/README.md)
+### [特鲁多政府新冠恐慌性购买丑陋行径](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/9/README.md)
+### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [DC大中华时事：很多国家都“躺平”了，我们为何还“动态清零”？](/content/gnews/10/README.md)
+### [DC大中华时事：很多国家都“躺平”了，我们为何还“动态清零”？](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022/04/16 文贵先生直播精要](/content/gnews/11/README.md)
+### [2022/04/16 文贵先生直播精要](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/12/README.md)
+### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/13/README.md)
+### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [教皇出席但不主持复活节守夜仪式](/content/gnews/14/README.md)
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/16/README.md)
  ` Shuizhuyu`
 
-### [截至4.16 俄乌战事汇总](/content/gnews/15/README.md)
+### [截至4.16 俄乌战事汇总](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|上海](/content/gnews/16/README.md)
+### [有声|上海](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/17/README.md)
+### [4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城](/content/gnews/20/README.md)
+### [4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
 ### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/21/README.md)
