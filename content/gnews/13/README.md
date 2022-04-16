@@ -2,28 +2,40 @@
 ---
 
 
-## 第六波新冠疫情下的安大略省
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358275/)
+## 有声|国人焦虑背后的真相是什么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358405/)
 
-##### **作者：加拿大温哥华扬帆农场 – 文莱**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一个是驭民五术带来的压力另一个是真理与虚假现实的碰撞。
 
-据【ctv新闻】4月14日报导，安大略省目前大约65%的ICU患者正在接受新冠病毒的治疗，而其余35%的患者在因其他疾病入院后被感染呈阳性，并且该省又确认了23例新冠病毒的死亡病例。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2031.png)
-报导称，因新冠病毒住院的患者在过去五天中稳步增加，但废水数据表明，该省的感染人数仍在飙升，预估值约为每天10万例的新冠病例。此外，安大略省的阳性率目前约为18.1%，较高于4月初的17%。
+共匪政权除了通过驭民政策用生活压力让人恐慌和焦虑之外，更大的阴谋是撒下了弥天大谎，企图颠覆人的基本判断力，来彻彻底底的控制人的思想。人类生存的第一要素是安全，所有的活动包括繁衍都是建立在此基础上，就算是共匪篡夺权利几十年，依然该写不了人追求真相真理的天性。
 
-据悉，安大略省的流行病学报告显示，由于PCR检测试剂与实验室的限制，该省真实确诊率应该是被低估的。相关部门预计将于近期发布该省的最新建模资料，以便于了解第六波大流行期间的数据变化。
+安全感的建立是以事实为基础，共匪的假恶丑虽然隐瞒的很好，但是纸总是包不住火的，真相的缝隙会引导着人们去不断的发掘。最终水落石出，让人们把安全建立在事实的基石上，当真相与虚假的表面发生冲突，与基本的逻辑并不相符时往往会让人觉得想不通，或者总感觉到哪不对劲，这也是焦虑情绪的根源。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/01911ADA-4C7E-444F-989D-61DB979925D4.jpeg)
 
-连结：[Ontario COVID news: 23 more deaths confirmed as hospitalizations increase | CTV News](https://toronto.ctvnews.ca/ontario-confirms-23-more-covid-19-deaths-as-hospitalizations-continue-to-increase-1.5861940)
 
-上传/发稿 – 文永
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+文字版原文：[国人焦虑背后的真相是什么？](https://gnews.org/zh-hans/2346160/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,44 @@
 ---
 
 
-## 安省东部医院遭遇人员短缺危机
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2358277/)
+## 有声|塞浦路斯东正教领袖谴责普京的侵略行为
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358427/)
 
-##### **作者：加拿大温哥华扬帆农场 – **采编：青青、撰稿：自由法兰西
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月12日，塞浦路斯东正教领袖金口二世当天发布声明表示，俄罗斯总统普京正在对乌克兰人民发动一场极为荒谬的战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-14-at-10.18.40-AM-1.png)
+据悉，塞浦路斯教会与俄罗斯东正教此前关系极为密切，但俄罗斯东正教教宗——主教基里尔不但是普京执政机构的支柱，其还对俄罗斯的这次侵略战争表达了支持。为此，金口二世公开谴责了俄罗斯东正教同胞发起战争的这一非基督教行为。
 
-加拿大CTV新闻4月14日报道，4月以来，安省彭布罗克地区医院每天都有60至80名医护人员因CCP病毒BA.2变体被迫不能上班，这次新的病毒变体比以往更具传播性。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2032.png)
-因病毒感染，人员短缺危机正在席卷安省东部各大医院。安省儿童医院1200名员工中，每天都有10-15%的员工缺勤，渥太华医院目前有450名员工离岗。业内人士表示，如问题持续恶化，医院将不得不取消常规手术，改为只接待急诊和紧急病例，而选择性和非紧急手术将再次被列入等候名单。
+金口二世指出，普京无端摧毁另一个国家的做法既无意义，又无道理，其已经脱离了基督教徒的行事准则。同时，金口二世也为那些遭受杀害的乌克兰人民表示难过。
 
-使问题更加复杂的是对医护人员的隔离要求。根据规定，高风险环境中工作人员出现病毒感染症状后需隔离10天，已完全接种疫苗且非高风险环境中工作人员需隔离5天。为了应急，手术室工作人员正在被重新部署到急诊部或重症监护室，医院也在请求外地支援，但目前尚无最终解决方案。
+目前，乌克兰总统泽连斯基正在敦促塞浦路斯政府取消向俄罗斯人发放的签证。至于欧盟当前对俄罗斯做出的制裁，塞浦路斯也明确了支持的态度。
 
-原文链接：[https://ottawa.ctvnews.ca/staff-shortages-impacting-eastern-ontario-hospitals-1.5861123](https://ottawa.ctvnews.ca/staff-shortages-impacting-eastern-ontario-hospitals-1.5861123)
+早先，罗马天主教教宗方济各同样发表声明指责了俄罗斯军队对乌克兰平民的屠杀行动，以及普京政府犯下的战争罪行。
 
-上传/发稿 – 文永
 
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+文字版原文：[塞浦路斯东正教领袖谴责普京的侵略行为](https://gnews.org/zh-hans/2346700/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 11:41 PM (UTC)`
+
+2022.04.16 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+![img](https://media.gettr.com/group26/origin/2022/04/16/23/97ae1991-4ba2-01a2-6336-7ff0ad4e2bfb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 11:00 PM (UTC)`
 
 2022.04.16 NFSC news  Three labeled missiles sank the warship "Moskva “, releasing soldiers
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 4/16/2022 Miles Guo: According to the reliable intelligence information, the Chinese Communist Party is going to impose a lockdown in Guangzhou on a larger scale; three other cities will be put on lockdown as well, they are Qingdao, Dalian, and either Harbin or Haikou will be picked as the third city; our fellow fighters must be well prepared.<br/><br/>4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城：青岛和大连，中共还在哈尔滨和或海口之间选择第三个城市, 战友们要做好准备<br/>
 ![img](https://media.gettr.com/group23/getter/2022/04/16/17/c3162efe-bd8e-a950-b67c-cf0f725abc47/out.jpg)
-
----
-
-`@miles 4/16/2022 5:00 PM (UTC)`
-
- 4月16号：七哥是在什么时候说的．很快在中国国内用爱马仕包，换粮都不行❌……
-![img](https://media.gettr.com/group12/getter/2022/04/16/17/97636044-1ac5-fb62-f361-22f8e924b555/46b11e549acdad0624083f7e7206fac5.jpg)
 
 ---
 

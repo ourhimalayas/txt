@@ -2,8 +2,8 @@
 ---
 
 
-## 20220416郭文贵乱聊直播 ：长春的战友这次表现得比上海战友棒！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358467/)
+## 20220416郭文贵乱聊直播 ：七哥呼吁战友们不但要有勇气反抗，还要有智慧
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358521/)
 
 作者：东京樱花团小视频组
 

@@ -2,22 +2,22 @@
 ---
 
 
-## 有声|国人焦虑背后的真相是什么？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358405/)
+## 有声|达美航空宣布政策性逆转，将把Covid-19视为季节性病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358466/)
 
 配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一个是驭民五术带来的压力另一个是真理与虚假现实的碰撞。
+据美联社报4月13日报道，达美航空宣布他们已经取消了对未接种疫苗员工每月200美元的医疗保险附加费用的要求，因为该公司将Covid-19作为季节性病毒对待。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%871-37.jpg)[图片来源](https://www.thegatewaypundit.com/2022/04/delta-airlines-will-treat-covid-19-seasonal-flu-drops-200-surcharge-unvaccinated-employees/)
+4月13日，达美航空公司首席执行官埃德·巴斯蒂安在与专家和记者的通话中宣布了这一政策逆转。在接受一家媒体采访时他表示，如果联邦政府取消对公共交通的口罩规定，达美航空将不会要求乘客或员工佩戴口罩。
 
-共匪政权除了通过驭民政策用生活压力让人恐慌和焦虑之外，更大的阴谋是撒下了弥天大谎，企图颠覆人的基本判断力，来彻彻底底的控制人的思想。人类生存的第一要素是安全，所有的活动包括繁衍都是建立在此基础上，就算是共匪篡夺权利几十年，依然该写不了人追求真相真理的天性。
-
-安全感的建立是以事实为基础，共匪的假恶丑虽然隐瞒的很好，但是纸总是包不住火的，真相的缝隙会引导着人们去不断的发掘。最终水落石出，让人们把安全建立在事实的基石上，当真相与虚假的表面发生冲突，与基本的逻辑并不相符时往往会让人觉得想不通，或者总感觉到哪不对劲，这也是焦虑情绪的根源。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/01911ADA-4C7E-444F-989D-61DB979925D4.jpeg)
-
+早在去年8月，达美航空公司要求未接种疫苗的员工按月支付健康保险费，该政策还要求他们每周接受Covid-19测试。但现在，达美航空公司表示，将把住院治疗作为关键性措施。
 
 
 
-文字版原文：[国人焦虑背后的真相是什么？](https://gnews.org/zh-hans/2346160/)
+
+
+文字版原文：[达美航空宣布政策性逆转，将把Covid-19视为季节性病毒](https://gnews.org/zh-hans/2348801/)
 
 音频处理：Tom Li
 发稿：Tom Li

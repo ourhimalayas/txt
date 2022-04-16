@@ -2,15 +2,16 @@
 ---
 
 
-## 北约”不东扩“到底咋回事？
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2358330/)
+## 20220416郭文贵乱聊直播 ：共产党接下来会对青岛 大连哈尔滨(或海口)依次进行大隔离
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358447/)
 
-作者：Chloe蔻依
+作者：东京樱花团小视频组
 
-（感谢三票先生的指导，感谢DC战友洋葱头参与收集资料，感谢DC战友磨刀石文强帮助PPT制作）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-176.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-76.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-51.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-44.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/13-19.png)
-发布：Chloe蔻依
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

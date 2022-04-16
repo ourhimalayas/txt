@@ -2,8 +2,8 @@
 ---
 
 
-## 20220416郭文贵乱聊直播 ：共产党接下来会对青岛 大连哈尔滨(或海口)依次进行大隔离
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358447/)
+## 20220416郭文贵乱聊直播 ：七哥教战友用智慧维护自己的生命权益善用上天赐予的水火
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358486/)
 
 作者：东京樱花团小视频组
 

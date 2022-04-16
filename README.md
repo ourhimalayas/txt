@@ -15,53 +15,53 @@
 
 ---
 
-### [20220416郭文贵乱聊直播 ：共产党的秘密你都可以卖，新中国联邦是你最好的桥梁](/content/gnews/1/README.md)
+### [20220416郭文贵乱聊直播 ：CCP将无人机卖给台湾引起台湾民众的震惊](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220416郭文贵乱聊直播 ：七哥教战友用智慧维护自己的生命权益善用上天赐予的水火](/content/gnews/2/README.md)
+### [斯卡维诺和纳瓦罗被指控在1月6日事件调查中藐视国会](/content/gnews/2/README.md)
+ ` 日本東京方舟農場`
+
+### [20220416郭文贵乱聊直播 ：七哥呼吁战友们不但要有勇气反抗，还要有智慧](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220416郭文贵乱聊直播 ：长春的战友这次表现得比上海战友棒！](/content/gnews/3/README.md)
+### [20220416郭文贵乱聊直播 ：共产党的秘密你都可以卖，新中国联邦是你最好的桥梁](/content/gnews/4/README.md)
  ` Tokyo Sakura Video Group`
 
-### [中共病毒致日本去年总人口下降64万人](/content/gnews/4/README.md)
+### [中共颠倒黑白把地狱粉饰成天堂天理不容](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [20220416郭文贵乱聊直播 ：七哥教战友用智慧维护自己的生命权益善用上天赐予的水火](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220416郭文贵乱聊直播 ：长春的战友这次表现得比上海战友棒！](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|达美航空宣布政策性逆转，将把Covid-19视为季节性病毒](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [中共病毒致日本去年总人口下降64万人](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共段子——吐了吐了](/content/gnews/5/README.md)
+### [灭共段子——吐了吐了](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220416郭文贵乱聊直播 ：共产党接下来会对青岛 大连哈尔滨(或海口)依次进行大隔离](/content/gnews/6/README.md)
+### [20220416郭文贵乱聊直播 ：共产党接下来会对青岛 大连哈尔滨(或海口)依次进行大隔离](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/7/README.md)
+### [有声|塞浦路斯东正教领袖谴责普京的侵略行为](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|国人焦虑背后的真相是什么？](/content/gnews/8/README.md)
+### [有声|国人焦虑背后的真相是什么？](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|俄军长期囚禁并轮奸乌克兰少女](/content/gnews/9/README.md)
+### [有声|俄军长期囚禁并轮奸乌克兰少女](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/10/README.md)
+### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/15/README.md)
  ` 蓝莲花农场`
 
-### [北约”不东扩“到底咋回事？](/content/gnews/11/README.md)
- ` DC政经`
-
-### [安省东部医院遭遇人员短缺危机](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [第六波新冠疫情下的安大略省](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [4/16/2022文贵直播：俄罗斯几家战友聪明地躲开了最危险的地方；体制内战友把统计局的机密信息提供给了美国，全家获批美国紧急移民](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
+### [有声|乌总统要求俄支付战争赔款](/content/gnews/16/README.md)
+ ` MOSREC`
 
 ### [美国会代表团访台之际，中共在台湾周边进行军演](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -129,25 +129,25 @@
 ### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/39/README.md)
+### [2022年4月16日战时快讯（1）](/content/gnews/39/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/40/README.md)
  ` 历史组`
 
-### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/40/README.md)
+### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/41/README.md)
  ` 银河歌舞厅`
 
-### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/41/README.md)
+### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/42/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/42/README.md)
+### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/43/README.md)
+### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [中共的乌克兰战争宣传（一）](/content/gnews/44/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [警察局长说，在基辅地区发现900多具平民尸体](/content/gnews/45/README.md)
+### [中共的乌克兰战争宣传（一）](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/46/README.md)
