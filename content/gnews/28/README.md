@@ -2,31 +2,37 @@
 ---
 
 
-## 韩国将从下周起取消大多数疫情限制
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354585/)
+## 西安实施临时性的部分封城措施以应对奥米克戎的爆发
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2354611/)
 
-作者：纽约香草山教育部 -Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-韩国4月15日表示，由于奥米炕病例激增显示出减弱的迹象，将于下周取消与中共病毒相关的大部分限制措施，包括对餐馆的午夜宵禁， 尽管人们仍然会有戴口罩。
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-320.jpg)图片来自网络
+《亚洲新闻台》近日报道，中共国西北部城市西安周五（4月15日）表示，在本月报告了数十起新冠感染病例后，它将暂时实行部分封锁，以减少其1300万居民的流动，因为中国正在与创纪录的新冠病例潮作斗争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-47.png)图片源自网络
+自3月以来，中国大陆一直在努力应对自2019年底该病毒首次在中部城市武汉出现以来最严重的新冠疫情。
 
-首相金富谦在中共病毒回应会议上表示，从 4 月 18 日起，将取消对餐馆和其他企业的午夜宵禁，并将私人聚会上限设定为 10 人的限制。 金富谦还强调戴口罩仍然是自我保护的非常重要的手段，韩国在相当长的一段时间内仍会维持室内口罩的规定。 
+尽管从国际比较来看，这一数字仍然适中，但最新的一波疫情给中国的 “动态清零 “政策带来了巨大的压力，该政策旨在使任何感染都不被发现，严厉的措施扰乱了供应链和地方经济。
 
-关于在户外戴口罩，金说，政府将根据病毒情况在两周内审查是否取消现有限制。 目前韩国的中共病毒单日确诊病例数在 3 月中旬每天徘徊在 620,000 多例，之后周四每日感染人数降至 150,000 例以下，似乎已经过了传播高峰期。
+中国国家主席习近平说，病毒控制和预防工作不应放松，同时中共国将努力将该政策对经济和社会发展的影响降到最低。
 
-【参考链接】[https://www.reuters.com/world/asia-pacific/skorea-lift-most-covid-curbs-next-week-yonhap-2022-04-14/](https://www.reuters.com/world/asia-pacific/skorea-lift-most-covid-curbs-next-week-yonhap-2022-04-14/)
+西安市在12月封锁了其居民以对抗德尔塔变种的爆发，在其目前的奥米克戎爆发中发现了43个本地传播的感染。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+该市从周六到周二对居民的行动进行了限制，尽管它没有实施全面封锁。
 
-编辑/校对/发稿：Daxia
+当地政府在一份声明中说，居民应在很大程度上将他们的行动保持在住宅小区内，而公司应正常运营，但鼓励员工在远程工作或住在他们的工作场所。
 
-**更多资讯，更多关注**
+在4月16日至4月19日期间，该市还将暂停餐馆的餐饮和各种娱乐和文化场所的运营，以及一些面对面的学校课程。根据该声明，出租车和在乘车平台上运营的汽车也将不允许离开该市。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+非必要不离市，这已经是全面封城的前奏，相信政策会进一步收紧。西安12月封了一次，现在又要封而且不知道要封多久，西安战友不要犹豫赶紧屯粮，备战备荒。
+
+参考链接：
+
+[https://www.channelnewsasia.com/asia/covid-19-chinas-xian-imposes-temporary-partial-lockdown-fight-omicron-flare-2628576](https://www.channelnewsasia.com/asia/covid-19-chinas-xian-imposes-temporary-partial-lockdown-fight-omicron-flare-2628576)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

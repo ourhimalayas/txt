@@ -2,35 +2,26 @@
 ---
 
 
-## 欧盟委员会启动数字欧元磋商
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2354876/)
+## 俄罗斯入侵乌克兰的战争会持续多久？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2355053/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1970.png)图片来源：美联社
+目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年年底。
 
-#### 翻译/编辑：小红帽
+之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ART_30_DIC_-_Euro_Digital_-_EN_-_PORTADA.png)
+而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“这是可能的，凯特，当然，我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
 
+同时，根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
 
-根据COINGEEK 4月15日报道，欧盟委员会已就其数字欧元展开咨询，敦促支付和金融服务专家关注中央银行数字货币 (CBDC)、隐私和数据保护以及欧洲区域数字货币的其他方面的需求和期望。
+本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的。
 
-欧盟委员会在公告中透露，咨询时间为4月5日至6月14日。委员会呼吁支付专家、信贷机构、商家及其协会、支付解决方案开发商、消费者协会、零售支付监管机构、反洗钱监管机构和其他相关专家就数字欧元向其提供反馈意见。
+*责编：白夜*
 
-用户对数字欧元的需求和期望是委员会正在寻求反馈的领域。欧洲在数字支付方面相当先进，挪威和芬兰等国家的借记卡普及率高达98%，是世界上最高的。这可能会减少对数字欧元的需求。
+**新闻来源**
 
-委员会还想了解数字欧元在零售支付和数字经济中的作用；如何建立数字欧元来保护欧元实物货币的法定货币地位；对金融稳定的影响；适用反洗钱和反恐融资规则；以及字欧元如何与国际支付相结合。
-
-咨询还将收集有关数字欧元隐私和数据保护方面的反馈。
-
-资料来源：[European Commission launches consultation on digital euro](https://coingeek.com/european-commission-launches-consultation-on-digital-euro/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[State Department admits it’s ‘possible’ Ukraine war rages through end of year](https://nypost.com/2022/04/15/state-department-says-its-possible-ukraine-war-rages-through-2022/)
 
  
 

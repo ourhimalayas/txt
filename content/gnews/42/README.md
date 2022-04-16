@@ -2,32 +2,77 @@
 ---
 
 
-## 文贵爆料：中共今天启动 “台湾之子 ”行动
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2353478/)
+## 参议员罗恩·约翰逊：疫苗强制接种毫无意义且具有破坏性
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2353937/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-38.png)
-图片来源：Getter
+**参议员罗恩·约翰逊**： 
+我给密尔沃基退伍军人医疗中心@MilwaukeeVA 写了一封信，要求他们就其新冠 COVID-19 疫苗强制接种问题给出答案。 我们现在知道，完全接种疫苗的人可以感染和传播新冠 COVID-19 ([#中共病毒](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92))。 疫苗强制接种毫无意义且具有破坏性。 【附福克斯新闻相关报道】
 
-在2022年4月15日的直播中，郭文贵先生透露，习近平的 “台湾之子 “行动今天启动。
 
-郭先生说：”在我们播出前三个小时，我们收到了绝对可靠的情报，中共在台湾正式启动了这一行动。”
 
-该行动旨在切断台湾的电力和水的供应，造成台湾内乱，并挑起台湾的社会动荡。郭先生说，中共随后将利用这一优势入侵台湾。
+> I sent a letter to [@MilwaukeeVA](https://twitter.com/milwaukeeva?ref_src=twsrc%5Etfw) demanding answers on their COVID-19 vaccine mandates. 
+> 
+> We now know individuals who are fully vaccinated can contract and spread COVID-19. Vaccine mandates are pointless and destructive.[https://t.co/D1KlJalsap](https://t.co/D1KlJalsap)
+> — Senator Ron Johnson (@SenRonJohnson) [April 15, 2022](https://twitter.com/SenRonJohnson/status/1515000945008066569?ref_src=twsrc%5Etfw)
 
-因邪恶的中共对台湾的超限战，台湾社会将面临混乱，水、天然气、电力供应和网络将被中断。
 
-郭先生继续说：”从至少5个渠道，我们已经证实了 “台湾之子 “的行动即将到来。
 
-郭先生对台湾的评论似乎并不乐观，他说：”台湾绝对不像乌克兰一样，虽然台湾确实有像乌克兰人一样勇敢的人，但绝对不会形成乌克兰的效果，因为台湾有太多的精英被中共收买了”。
+**众议员加拉格尔新闻办公室**： 
+议员加拉格尔评论 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 和习 的关系：“这可不是什么沉默的伙伴关系…普京在这场他们发动的对抗西方的新冷战中，正变成习的虐待狂伙伴。他在乌克兰遭受的挫折越多，他只会越依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 。”
 
-郭先生提到，”我五年前就警告过这个军事行动”。然而，台湾无视了他的早期警告。
 
-台湾将面临中共从内部和外部的攻击，台湾最黑暗的时刻已经到来。
 
-来源：
+> Rep. Gallagher Putin and Xi's relationship: "This isn't a silent partnership…Putin is becoming Xi's sadistic sidekick in this New Cold War that they have launched against the West. He will only grow more dependent on China the more he experiences setbacks in Ukraine." [pic.twitter.com/NipePqGcoU](https://t.co/NipePqGcoU)
+> — Rep. Gallagher Press Office (@RepGallagher) [April 15, 2022](https://twitter.com/RepGallagher/status/1514968256083333122?ref_src=twsrc%5Etfw)
 
-[文贵先生盖特](https://gettr.com/post/p15f3ij6b1a)
+
+
+**参议员霍利新闻办公室**： 
+参议员霍利的法案，“将让美国更加容易送给 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 防卫武器——包括支持其爱国者地对空导弹系统的设备——并将加快许可的审批。” 
+【转newsmax新闻网，霍利: 美国必须尽快武装台湾】
+
+
+
+> Senator Hawley’s “bill would make it easier for the U.S. to send Taiwan defensive weaponry — including equipment to bolster its Patriot surface-to-air missile system — and would expedite licensing approvals."[https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 15, 2022](https://twitter.com/SenHawleyPress/status/1514982221655990278?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院**： 
+国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken) 讨论了人权报告中一些最令人震惊的发现，这些发现涵盖了 2021 年的事件，例如袭击记者、([#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)) 种族灭绝、和无辜平民被不公正羁押。 [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hashtag_click) 
+【附布林肯讲话视频节选 】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) discusses some of the most alarming findings of the [#HumanRightReports](https://twitter.com/hashtag/HumanRightReports?src=hash&amp;ref_src=twsrc%5Etfw) that covers events of 2021, such as attacks on journalists, genocide, and innocent civilians being unjustly detained. [pic.twitter.com/ovtv2uwjD2](https://t.co/ovtv2uwjD2)
+> — Department of State (@StateDept) [April 15, 2022](https://twitter.com/StateDept/status/1515027177162657797?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥**： 
+美国的军事领导人知道，赋予伊朗权力的代价将是美国国家安全的迫在眉睫的风险，对美国士兵来说将是一个更危险的作战环境。 拜登政府必须改变其伊朗交易谈判的方向。 
+【附美国军方领导人反对伊朗核协议的公开信】
+
+
+
+> America's military leaders know the cost of empowering Iran will be imminent risk to American national security and a more dangerous operating environment for American soldiers. The Biden Administration must reverse course on its Iran deal negotiations. [https://t.co/XBguUGWi9i](https://t.co/XBguUGWi9i)
+> — Mike Pompeo (@mikepompeo) [April 15, 2022](https://twitter.com/mikepompeo/status/1514966912299634693?ref_src=twsrc%5Etfw)
+
+
+
+**众议员安迪·比格斯**: 
+任何热爱这个国家的理性领导人的解决方案，都是开放美国的石油和天然气能源。 从我们的敌手那里购买石油和天然气，或者让美国人购买 5.5万 美元的特斯拉，并不是真正的解决方案。
+
+
+
+> The solution for any rational leader who loves this country is to open up America’s oil and gas energy. 
+> 
+> Purchasing oil and gas from our adversaries or making Americans buy $55K Teslas are not real solutions.
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 15, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515006878698332164?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

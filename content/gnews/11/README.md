@@ -2,13 +2,23 @@
 ---
 
 
-## 【乌克兰救援】04/14/2022 西班牙大学生身穿灭共马甲呼吁灭掉全世界的共产主义
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2355076/)
+## 三发贴牌导弹击沉“莫斯科号” 放生士兵
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355183/)
 
-【乌克兰救援】04/14/2022  西班牙大学生主动要灭共马甲穿。他非常支持新中国联邦灭共。他说，只有消灭共产党，人民才会有自由。 全世界人都应该灭共，灭掉在中国的共产党和其他国家的共产党的势力。
+撰稿：澳喜农场 – Leo M
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
+在4月14日的盖特直播中，郭文贵先生透露，击沉俄罗斯黑海舰队旗舰“莫斯科号”的导弹的核心技术是欧洲提供的，外壳贴的是乌克兰的铭牌。三发导弹全部准确命中，其中有一发是有意瞄准水下部分进行攻击的，留给了士兵撤离的空间和时间。战舰被击中后舰上士兵得以逃生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323091.jpg)
+郭先生指出，这次交锋体现了现代战争的新高度，政治上势必加速结束共产主义的灾难。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+参考链接：[4/14/2022 文贵直播](https://gettr.com/post/p15c6j6a801)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+
+编辑/总编/审核：飞虹
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
