@@ -2,24 +2,12 @@
 ---
 
 
-## 郭文贵直播音频2022.04.15
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2357476/)
+## 上海一位老妇人因绝望跳楼而死，只留下他的丈夫对着她的尸体哭泣
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2357529/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6383d6c383a688bc0ce747d8282e44b3_500x0-2.jpeg)
-### 视频链接：
+04/16/2022 中共非人道的封城政策正在制造更多灾难。上海一位老妇人因绝望跳楼而死，只留下他的丈夫对着她的尸体哭泣。
 
-[https://www.gettr.com/post/p15fvzj74b6](https://www.gettr.com/post/p15fvzj74b6)
-
-[https://www.gettr.com/post/p15f3ij6b1a](https://www.gettr.com/post/p15f3ij6b1a)
-
-### 音频链接：
-
-
-
-
-
-编辑发布:闪电训练
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

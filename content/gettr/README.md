@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 4:08 PM (UTC)`
+
+4月16号：我们中国人就连这些．家禽．畜生的勇气都没有……中国才有比爹娘还亲的中国共产党！
+![img](https://media.gettr.com/group14/getter/2022/04/16/16/72e6b972-7a46-6376-500a-b31fe3e5ba2e/out.jpg)
+
+---
+
+`@miles 4/16/2022 4:04 PM (UTC)`
+
+ 4月16号：和平稳定的吉林省．还有长春都变成了如此不堪的样子，加油，这个词是给失败者送葬的形容词，却在中国变成了解决痛苦，掩盖灾难．<br/><br/>推卸责任的代名词，而且成为国家忽悠老百姓的专用词。现在中国清明节不让烧纸了，但可以喊加油加油！难道．坟墓里的人也需要这种加油的政治口号的鼓励么？担心他们从墓地跑出来吗？这个国家是不是已经精神错乱了？
+![img](https://media.gettr.com/group13/getter/2022/04/16/16/dd8b0af2-1950-d81e-017c-b9894042e3ab/out.jpg)
+
+---
+
 `@miles 4/16/2022 2:48 PM (UTC)`
 
 新中国联邦｜真人真事 第49期 乌克兰救援特辑    明道
@@ -143,20 +157,6 @@
 When freedom and will of thoughts are choked by power<br/>When the green pass has become a dead-end<br/>When those in uniforms only care about their careers<br/>When life and dignity they treat like dirt<br/><br/>When the healthy are locked up as sick<br/>When the sick have nowhere to turn for cure<br/>When a decree is used as means to harm<br/>When souls get sucked out and ghouls they become<br/><br/>With a stern expression they despise souls<br/>In an instant they forget they also are mortals<br/>Their clamor of haughtiness, their clamor of haughtiness<br/>"If you don't have Covid you ain't fucking sick"<br/><br/>A human society doing unhumane things<br/>They look down on the despicable, with eyes full of thorns<br/>And hearts too small the recall their oaths<br/>Their palms so filthy that they smell of blood
 > `@giraffe 4/14/2022 2:31 PM (UTC)`<br/>上海一说唱歌手创作了一首歌，视频迅速被删。<br/>评：真的是不痛不醒啊！
 ![img](https://media.gettr.com/group23/getter/2022/04/14/14/a1e505f4-9390-3d21-f711-30df1f3a91df/out.jpg)
-
----
-
-`@miles 4/16/2022 2:13 AM (UTC)`
-
-【Ukraine Rescue】04/14/2022 An Australian volunteer recalls how her Chinese friend died after persecutions on her religious beliefs. From there, the evilness of CCP can be seen everywhere. Communism is the source of all disasters, overthrow the CCP and liberate humanity, and the Whistleblowers' Movement started by Mr. Miles Guo i is fulfilling this sacred mission.<br/><br/>【乌克兰救援】04/14/2022 一位澳大利亚志愿者回忆起她中国的朋友如何死于针对宗教信仰的迫害。在那件事中，中共的邪恶随处可见。共产主义是所有灾难之源，推翻中共，解放人类，郭文贵先生发起的爆料革命正在完成这一神圣使命。
-![img](https://media.gettr.com/group11/getter/2022/04/16/02/c4962f48-3d4f-847e-360f-4b135626ce1c/out.jpg)
-
----
-
-`@miles 4/16/2022 2:11 AM (UTC)`
-
-【Ukraine Rescue】04/14/2022 A Turkish reporter was attracted by the slogan in our Medyka tent, “We are the new Chinese who are taking down the Evil Chinese Communist Party.“ Although the Turkish reporter thinks that politics should be avoided at this time, when he hears that the big tent of the big tent of the New Federal State of China has taken in over 10,000 Ukrainian refugees, his face shows a look of disbelief and he has to say with admiration how well it was done!<br/><br/>【乌克兰救援】04/14/2022 一位土耳其记者被我们帐篷里的标语“我们是消灭中共的新中国人“所吸引。尽管这位土耳其记者认为此时应该回避政治，但当他听说新中国联邦大帐篷已经接收超过万名乌克兰难民，他的脸上还是露出了不可思议的表情，不得不佩服地说做得太好了！
-![img](https://media.gettr.com/group16/getter/2022/04/16/02/dd2fb3f9-d1e8-ffab-544d-5ffa142b92bd/out.jpg)
 
 ---
 

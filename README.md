@@ -15,77 +15,77 @@
 
 ---
 
-### [美议员认为 放弃台湾就是放弃民主自由](/content/gnews/1/README.md)
- ` NFSC News`
-
-### [爆料革命——历史的今天1月31日](/content/gnews/2/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [2022年1月31日 新中国联邦春晚大直播节选整理](/content/gnews/3/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [中共启动“台湾之子”行动](/content/gnews/4/README.md)
- ` NFSC News`
-
-### [2022年4月16日文贵乱聊直播摘要及音频—银河系农场](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [伊隆·马斯克想以 430 亿美元收购推特](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [法国勒庞的崛起](/content/gnews/7/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [特朗普被问到：俄罗斯和中共谁是更大的地缘政治威胁](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [上海一位老妇人因绝望跳楼而死，只留下他的丈夫对着她的尸体哭泣](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/10/README.md)
- ` G-NEWS TAIWAN`
-
-### [郭文贵直播音频2022.04.15](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【乌克兰救援】刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄罗斯两位记者因传播真相 呼吁对俄罗斯制裁遭黑警逮捕](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
-
-### [【乌克兰救援】来自法国的志愿者表示： “灭共也是我的理念。我们虽然不同，但想法一致。”](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【乌克兰救援】04/15/2022 妮可展示新中国联邦救援帐篷下午的场景](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2022年04月16日七哥乱聊直播](/content/gnews/17/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【乌克兰救援】04/15/2022 一位曾是联邦检察官的美国律师志愿者说这是他一生中最有意义的工作](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国及世界疫情简报（04-16-2022）](/content/gnews/20/README.md)
+### [郭先生盖特乱聊直播要点（2022年4月16日）](/content/gnews/1/README.md)
  ` 波士顿五月花农场`
 
-### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/21/README.md)
+### [美国财长珍妮特耶伦警告中共必须帮助结束乌克兰战争](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美议员认为 放弃台湾就是放弃民主自由](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [爆料革命——历史的今天1月31日](/content/gnews/4/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2022年1月31日 新中国联邦春晚大直播节选整理](/content/gnews/5/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [中共启动“台湾之子”行动](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [2022年4月16日文贵乱聊直播摘要及音频—银河系农场](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [伊隆·马斯克想以 430 亿美元收购推特](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [法国勒庞的崛起](/content/gnews/9/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [特朗普被问到：俄罗斯和中共谁是更大的地缘政治威胁](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [上海一位老妇人因绝望跳楼而死，只留下他的丈夫对着她的尸体哭泣](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/12/README.md)
+ ` G-NEWS TAIWAN`
+
+### [郭文贵直播音频2022.04.15](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【乌克兰救援】刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【乌克兰救援】来自法国的志愿者表示： “灭共也是我的理念。我们虽然不同，但想法一致。”](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【乌克兰救援】04/15/2022 妮可展示新中国联邦救援帐篷下午的场景](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2022年04月16日七哥乱聊直播](/content/gnews/18/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/22/README.md)
+### [【乌克兰救援】04/15/2022 一位曾是联邦检察官的美国律师志愿者说这是他一生中最有意义的工作](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国及世界疫情简报（04-16-2022）](/content/gnews/21/README.md)
+ ` 波士顿五月花农场`
+
+### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/23/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/23/README.md)
+### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/24/README.md)
  ` topnews`
-
-### [纵观二战后经济崛起历史展望新中国](/content/gnews/24/README.md)
- ` 历史组`
 
 ### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
