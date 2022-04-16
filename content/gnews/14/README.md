@@ -2,27 +2,34 @@
 ---
 
 
-## 无限期封锁致巴西到沪港运输中断
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2357714/)
+## 【G时新闻】美对乌克兰新军事援助中包括直升机等重型装备
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2357759/)
 
-作者：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-当地时间4月15日，据相关媒体报道，由于中共政府在上海地区借中共病毒疫情实施的严苛的封锁政策，巴西对中共国上海港的肉类出口近日被迫中断。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-12.36.00-AM.png)
-资料显示，中共国一直是巴西肉类的最大消费者。2021年，超过72万吨牛肉和64万多吨鸡肉从巴西进入中共国。这当中，上海则是巴西向中共国出口肉类的主要入境点。然而，自今年3月底开始，上海的疫情封控政策导致当地对进港肉类的检查已经完全停止，而大量装有冷冻食品的集装箱正在港口积压。同时，中共国的整体进口量在3月大幅下降。
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据【Yahoo News】4月14日报道， 美国周三公布了一项价值8亿美元的对乌克兰新的军事援助计划，其中包括直升机、榴弹炮和装甲运兵车等重型装备。
 
-知情人士透露，巴西一家大型肉类出口商已经取消了对三个运往中共国集装箱的装载工作，另有某家货运公司不得不将目的地重新选择为新港和宁波作为替代方案，还有一家巴西出口公司已经暂停向客户提供预订新品的服务。
+拜登在与泽连斯基进行了约一个小时的交谈后表示，随着俄军准备加强对顿巴斯的攻击，美国将继续为乌克兰提供自卫能力。
 
-目前，相关机构正在统计受到上海封控政策影响的货物的具体数据。
+新一揽子军援中将包含更多高效武器系统，以及为乌克兰东部，俄军即将发动的更广泛攻击而量身定制的新武器。新援助中包括华盛顿此前因担心与拥核的俄罗斯冲突升级而拒绝向基辅提供的一些重型装备。
 
-参考链接：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
+五角大楼发言人约翰·柯比公布了这次最新援助计划的项目清单，并表示美国正在与盟国合作，以向乌克兰提供额外的军事能力。五角大楼周三将与美国主要国防集团负责人开会，商讨加快生产乌克兰军队最常用的武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+盖特链接：[https://gettr.com/post/p15jntw2ad2](https://gettr.com/post/p15jntw2ad2)
 
-编辑：静言
-总编/审核：Irene木木
-校正/发稿：我不在这里
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

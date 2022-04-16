@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 6:15 PM (UTC)`
+
+4/16/2022 Miles Guo: Xi’an will be locked down again, and as a result many companies will end up bankrupt; Chinese people should learn to be grateful, and don’t take others’ help for granted; bigs changes will happen in Ukraine; major policies will come out in Shanghai; the US will introduce a series of policies towards Taiwan next week.<br/><br/>4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然；乌克兰局势会有重大变化；上海会有重大政策出台；下周美国对台湾也会出台一系列政策。<br/>
+![img](https://media.gettr.com/group35/getter/2022/04/16/18/f6642e01-902d-eb61-0a1a-1e7ba1efa766/out.jpg)
+
+---
+
 `@miles 4/16/2022 6:08 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月15日第42天当日救援统计：<br/>Medyka救援站接待：约316人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11988人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 42 - Date: April 15, 2022 :<br/>Medyka Rescue Station Reception: about 316 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11988 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 2022.04.16早  新中国联邦 | 新闻访谈
 ![img](https://media.gettr.com/group4/origin/2022/04/16/12/a775a275-75e9-af1a-4b83-1a811d8f75b6/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/16/2022 12:29 PM (UTC)`
-
-2022.04.16早  新中国联邦 | 新闻
-![img](https://media.gettr.com/group36/origin/2022/04/16/11/03624322-f724-8197-685d-72cec1dce3a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
