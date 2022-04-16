@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 8:51 PM (UTC)`
+
+2022.04.16  新中国联邦 | 喜健康   拥抱太阳医生专访
+![img](https://media.gettr.com/group40/origin/2022/04/16/20/7d72cc93-5197-5e19-e0b4-2b612500b095/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 4/15/2022 5:55 PM (UTC)`
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 【Ukraine Rescue】04/15/2022 Mr. Peng and his Ukrainian wife, who had just escaped from the war, are moved to ask to join the NFSC and add to our multilingual services. His wife was in shock all the way, his cat was not brought out, and his daughter is a volunteer in Denmark rescuing refugees.<br/><br/>【乌克兰救援】04/15/2022 刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦，为我们的多语种服务增加力量。他的太太一路惊魂未定，猫咪也没有带出来，女儿在丹麦也是救助难民的义工。
 ![img](https://media.gettr.com/group50/getter/2022/04/16/13/119bf572-ae15-56a3-0e62-ea92509c7252/out.jpg)
-
----
-
-`@miles 4/16/2022 1:31 PM (UTC)`
-
- 4月16号：尊敬的战友们好……大约半小时左右，七哥再来一段乱聊直播！大概直播30分钟左右一切都已经开始。
-![img](https://media.gettr.com/group27/getter/2022/04/16/13/3b4ac484-9104-9ef5-14da-3dae3983a913/out.jpg)
 
 ---
 

@@ -2,34 +2,46 @@
 ---
 
 
-## 教皇出席但不主持复活节守夜仪式
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2358036/)
+## 郎咸平老母离世，只因苦等核酸耽误就医
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2358057/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+作者：香草山商业部 – Bronx Bombers
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/MBT7QQNRTNMMDOC54JUNZWWGVA.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-图片来源：路透社
 
-梵蒂冈城，4 月 16 日（路透社) 教皇方济各周六晚上出席但没有主持在圣彼得大教堂举行的复活节守夜仪式，大概是因为反复出现的腿部疼痛迫使他减少了一些活动。
 
-意大利红衣主教乔瓦尼·巴蒂斯塔·雷 (Giovanni Battista Re) 取代了教皇成为仪式的主要主礼人，其中包括在基督教世界最大教堂的中央教堂中殿几乎完全黑暗的游行队伍。
 
-教皇坐在大殿前侧的一张白色大椅子上，一副警惕的样子。梵蒂冈说他稍后会在弥撒中宣读讲道。
+4月11日，经济学者郎咸平在社交平台上发文称：其98岁高龄的母亲，近日患轻微肾脏衰竭，按之前诊断，原本打一针就可治愈。但因为上海严格要求必须做核酸后才能就医，故其老母在医院门口现场做核酸测试，却苦等四个小时无结果，未能得到及时救治而离世。由于郎咸平本人居住的小区已经封闭，虽经和有关部门沟通允许其去医院陪护母亲，但由于区域封控无法打车赶到医院而未能见到其母最后一面。
 
-主持有 5,500 人参加的弥撒，需要在诵经和读福音时长时间站立，以及在祭坛前跪下。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16-04-2022-1.jpg)
 
-这位 85 岁的教皇患有坐骨神经痛，这会导致一条腿疼痛并导致明显的跛行。最近，弗朗西斯的右膝也突然疼痛。
+图片来源于网络
 
-梵蒂冈周五发布的一个节目将教皇列为周六晚礼拜的主礼。梵蒂冈没有给出改变的官方理由。
+中共对上海的封控管理毫无人性可言，一线医护人员只能机械式执行命令，之前就有社交媒体传出因急救车不予救治，致使哮喘病人死亡的惨剧发生。
 
-🔗[https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/](https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/)
 
-编辑发表： Shuizhuyu
+
+相关链接:
+
+[https://weibo.com/langxianpinghk](https://weibo.com/langxianpinghk)
+
+[http://m.jrj.com.cn/madapter/finance/2022/04/11203836307725.shtml](http://m.jrj.com.cn/madapter/finance/2022/04/11203836307725.shtml)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
  
 
