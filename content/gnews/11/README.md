@@ -2,8 +2,8 @@
 ---
 
 
-## 犹太兄弟的逾越节和其它宗教类别在新中国联邦大帐篷举行体现了新中国联邦宣言信仰自由的理念
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354281/)
+## 新中国联邦和法治基金乌克兰营地现场接待并救助了从乌克兰逃难出来的华人和他的乌克兰妻子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354311/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
