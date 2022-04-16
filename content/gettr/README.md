@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 2:09 PM (UTC)`
+
+2022.04.16早  7哥乱聊直播
+![img](https://media.gettr.com/group49/origin/2022/04/16/14/c55b74b3-1ff4-f58d-3ea4-6979b6b90e78/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/16/2022 1:59 PM (UTC)`
+
+【Ukraine Rescue】04/15/2022 Mr. Peng and his Ukrainian wife, who had just escaped from the war, are moved to ask to join the NFSC and add to our multilingual services. His wife was in shock all the way, his cat was not brought out, and his daughter is a volunteer in Denmark rescuing refugees.<br/><br/>【乌克兰救援】04/15/2022 刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦，为我们的多语种服务增加力量。他的太太一路惊魂未定，猫咪也没有带出来，女儿在丹麦也是救助难民的义工。
+![img](https://media.gettr.com/group50/getter/2022/04/16/13/119bf572-ae15-56a3-0e62-ea92509c7252/out.jpg)
+
+---
+
 `@miles 4/16/2022 1:31 PM (UTC)`
 
  4月16号：尊敬的战友们好……大约半小时左右，七哥再来一段乱聊直播！大概直播30分钟左右一切都已经开始。
@@ -144,20 +158,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 🔺
 > `@lu_lu 4/7/2022 1:02 PM (UTC)`<br/>#周末夜话 敢说真话的孙海英(二)<br/><br/>（关于“长津湖”票房）那是什么东西，你还夸要呢！胡编的一个故事……真的历史你敢拍么？
 ![img](https://media.gettr.com/group24/getter/2022/04/07/13/ce470c29-65af-07fb-91eb-3907abb38ead/out.jpg)
-
----
-
-`@miles 4/16/2022 2:00 AM (UTC)`
-
-2022.04.15  新中国联邦 | 喜财经  推特遭馬斯克放鴿子 股價應聲走跌
-![img](https://media.gettr.com/group20/origin/2022/04/16/01/3d6102b5-49ef-cae0-8470-1ae7a7576847/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/16/2022 1:28 AM (UTC)`
-
- 4月15号：希望所有的吉林省的乡亲们，度过这艰难的一关，万佛万神保佑吉林！
-![img](https://media.gettr.com/group26/getter/2022/04/16/01/ccf49f99-82b7-0aeb-9217-670b325cf937/eff2cd29918cd8327c31d60e18384e6d.jpg)
 
 ---
 
