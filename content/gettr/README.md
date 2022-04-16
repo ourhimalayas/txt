@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 4:06 AM (UTC)`
+
+【Ukraine Rescue】04/15/2022 A self-media person from Brazil is amazed by the NFSC and ROLF’s strong financial ability and high-quality volunteers, the NFSC is able to set up the largest and most well-equipped tent in the entire camp within two days. Volunteer Nicole tells him that if large Western companies want to gain access to the huge market of 1.4 billion Chinese, they must cut ties with the CCP and stand with the NFSC to destroy the CCP. The CCP does not represent the Chinese people. He says he will help spread the news about the NFSC in Brazil.<br/><br/>【乌克兰救援】04/15/2022 一个巴西的自媒体人惊叹于新中国联邦法治基金的强大财力和义工们一流的素质──能够在两天之内建起了整个营地最大、设施最完善的帐篷！义工妮可告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起。中共不代表中国人。他表示会在巴西帮助传播新中国联邦。<br/>
+![img](https://media.gettr.com/group24/getter/2022/04/16/04/dce2a220-127c-fe38-e2ce-98d76663b449/out.jpg)
+
+---
+
 `@miles 4/16/2022 3:41 AM (UTC)`
 
 4/15/2022 Ukrainian Rescue: A Ukrainian Chinese who was rescued by the front-line fellow fighters bravely joined the volunteer team of the New Federal State of China and Rule of Law Foundation<br/><br/>4/15/2022 乌克兰救援连线: 被前线战友拯救的乌克兰华人勇敢地加入了新中国联邦与法治基金义工团队！<br/>​​
@@ -151,13 +158,6 @@ A volunteer from Mozambique, Africa supports us to take down the Chinese Communi
 
 4/15/2022 Miles Guo: Has the CCP shipped supplies to Russia? How did it do so? The CCP has been delivering strategic supplies to Russia and carrying back oil via the so-called “China-Europe Railway Express” to assist evil nations to evade America’s sanctions; CCP asks its Lao Baixing and its Party members to obey rules, but it never believes in the rule of law, or international laws<br/><br/>4/15/2022 文贵直播：中共给俄罗斯运送物资不？咋运的？中共通过所谓的中欧铁路频繁运送战略物资和石油，帮助邪恶国家逃避美国制裁；共产党让老百姓和党员讲规矩，自己却从不相信法律、更不要说国际法
 ![img](https://media.gettr.com/group29/getter/2022/04/15/22/a17a5368-f69e-cbf3-1f0e-4a856b1de615/out.jpg)
-
----
-
-`@miles 4/15/2022 10:20 PM (UTC)`
-
-4/15/2022 Miles Guo: Fellow fighters in mainland China should have a comprehensive plan for stocking up food. Coming next there will be cut-off of water and electricity supplies. You probably won’t be allowed to step out of your house. Think carefully about what to stock and how, so that you will survive the up-coming disasters.<br/><br/>4/15/2022 文贵直播：国内战友储存食物要考虑周全，接下来会有断水、断电，你可能无法走出家门，要想好如何储备食物才能度过这样的难关。<br/>
-![img](https://media.gettr.com/group13/getter/2022/04/15/22/5956fb30-fffd-d489-fe42-1b22f1c22225/out.jpg)
 
 ---
 

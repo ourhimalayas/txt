@@ -2,33 +2,37 @@
 ---
 
 
-## 下调143个国家经济增长率，IMF发出强烈警示
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2354528/)
+## 全球最大的暗网市场Hydra被捣毁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2354594/)
 
-2022-04-15
+作者：雅典娜农场-小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+根据COINGEEK 4月14日报道，美国和德国当局联手扳倒了被称为世界上最大的暗网市场的Hydra。在过程中查获了价值超过2500万美元的比特币。
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2TDOE5CDQJT8WQ6G669.png)图片来源：https://www3.nhk.or.jp
-受俄罗斯入侵乌克兰的影响，全球140多个国家的经济增长率低于最初的预测，并对世界经济的放缓释放出强烈谨慎的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-15-221739.png)图片源自网络
 
-国际货币基金组织（IMF）总裁格奥尔基耶娃4月14日在华盛顿总部接受NHK采访时表示，受俄罗斯入侵乌克兰的影响，全球140多个国家的经济增长率低于最初的预测，并对世界经济的放缓释放出强烈谨慎的态度。
+美国司法部与德国当局联手进行了长达八个月的调查。德国美因河畔法兰克福检察院、打击网络犯罪中央办公室（ZIT）和联邦刑事警察局（BKA）宣布查获了支持Hydra的服务器基础设施以及543.3个比特币。
 
-关于俄罗斯对乌克兰的入侵，格奥尔基耶娃总裁说“尚未从新型冠状病毒的影响中走出来的世界经济又遭遇俄乌战争，已然成为危机之上的危机。战争加速了通货膨胀，许多国家的经济明显受到了战争的威胁”。由此引发了人们对能源和食品价格上涨而影响全球经济的担忧。
+Hydra于2015年推出，总部设在俄罗斯。据报道，俄罗斯当局一直不愿意与国际同行合作，以扳倒该平台。
 
-格奥尔基耶娃总裁警告说，占全球GDP国内生产总值86%的143个国家的增长率，将从1月份的预测作出下方调整。
+Hydra的用户可以买到几乎任何非法的东西，从LSD和海洛因等非法毒品到假的身份证件和黑客工具和服务。供应商还提供洗钱和套现服务，使买家可以将他们的比特币转换成各种形式的货币。Hydra还拥有自己的内部币种混合服务，以便在用户提取资金时进一步混淆被盗比特币的路径。
 
-此外，新冠疫情的蔓延使中国经济放缓，伴随着全球供应链，即供应网络的长期混乱化也是经济减速的主要原因，总裁说“比如中国在严控经济活动的情况下，房地产市场出现了诸多问题，正在让消费者失去信心，相信政府会采取财政刺激措施防止经济增长的放缓”。
+美国司法部估计，在2021年，Hydra占了大约四分之三的数字货币相关交易。 除了扣押之外，美国司法部还宣布对30岁的俄罗斯国民德米特里·奥列戈维奇·巴甫洛夫 (Dmitry Olegovich Pavlov) 的洗钱和串谋分发毒品的串谋指控。德米特里负责维护Hydra运作的服务器。截至记者发稿时，还没有人被逮捕。
 
-此外，下周20日将在华盛顿举行的20个主要国家财长和央行行长（G20）会议，针对各国在应对俄罗斯问题上的分歧，总裁说“世界局势紧张，为防止世界经济进一步恶化，需要各国精诚合作”。
+美国财政部紧随其后，宣布对Hydra和相关的数字货币交易所实施制裁，据称这些交易所促进了市场的活动。
 
-信息来源：[IMFトップ “経済成長率143か国で下方修正” 強い警戒感示す](https://www3.nhk.or.jp/news/html/20220415/k10013583171000.html)
+【参考来源】[https://coingeek.com/world-largest-darknet-market-hydra-brought-down-543-btc-seized/](https://coingeek.com/world-largest-darknet-market-hydra-brought-down-543-btc-seized/)
 
-编辑：LILY
-发布：肥鯮
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

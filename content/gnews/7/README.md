@@ -2,25 +2,21 @@
 ---
 
 
-## 视频|救援前线
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2354628/)
+## 视频|三发贴牌导弹击沉“莫斯科号” 放生士兵
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2354830/)
 
-【视频制作】红桃Q
+制作：香草山视频部
 
-【文案编辑】 Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-山河已破碎，百年身何归？一对年迈的夫妻在梅迪卡救援前线战友的帮助下，终于等来了从德国赶过来接他们的女儿。战火中的团聚虽然感人，也令人心碎。
+在4月14日的盖特直播中，郭文贵先生透露，击沉俄罗斯黑海舰队旗舰“莫斯科号”的导弹的核心技术是欧洲提供的，外壳贴的是乌克兰的铭牌。三发导弹全部准确命中，其中有一发是有意瞄准水下部分进行攻击的，留给了士兵撤离的空间和时间。战舰被击中后舰上士兵得以逃生。
 
-【制作团队】大直播短视频组
+郭先生指出，这次交锋体现了现代战争的新高度，政治上势必加速结束共产主义的灾难。
 
-发稿：qiutian（邱甜）
+发稿：Daxia
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
