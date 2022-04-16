@@ -15,140 +15,140 @@
 
 ---
 
-### [马斯克将以430亿美元收购推特](/content/gnews/1/README.md)
- ` NFSC News`
-
-### [美台两国启动士官交流计划](/content/gnews/2/README.md)
- ` NFSC News`
-
-### [美欧日经济周报（4月11日～4月15日）](/content/gnews/3/README.md)
- ` 经济小组`
-
-### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/4/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】西安宣布实施4天临时社会面管控](/content/gnews/5/README.md)
- ` G-时新闻`
-
-### [借疫情中共禁闭45个城市3.7亿人](/content/gnews/6/README.md)
+### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/1/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G时新闻】美对乌克兰新军事援助中包括直升机等重型装备](/content/gnews/7/README.md)
- ` G-时新闻`
-
-### [文·贵天成——文贵先生谈“习近平”（二）](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共接下来要对青岛、大连、哈尔滨（海口）大隔离](/content/gnews/9/README.md)
- ` 银河歌舞厅`
-
-### [俄乌战局最新消息汇总 04/16/2022](/content/gnews/10/README.md)
- ` NFSC News`
-
-### [无限期封锁致巴西到沪港运输中断](/content/gnews/11/README.md)
- ` NFSC News`
-
-### [COVID-19疫苗副作用集萃（2022.4.16P）第三针加强针](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [特斯拉准备于4月18日恢复上海工厂生产](/content/gnews/13/README.md)
- ` 加拿大温哥华英里农场`
-
-### [【G时新闻】肥料短缺加剧全球粮食危机](/content/gnews/14/README.md)
- ` G-时新闻`
-
-### [七哥说—第64期](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月16日早](/content/gnews/16/README.md)
- ` 纽约香草山MOS01`
-
-### [《大独裁者》- 战友朗诵视频](/content/gnews/17/README.md)
+### [关注乌克兰的妇女儿童人道灾难](/content/gnews/2/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [沙利文称美国将确保中共侵台不会发生](/content/gnews/18/README.md)
+### [马斯克将以430亿美元收购推特](/content/gnews/3/README.md)
  ` NFSC News`
 
-### [郭先生盖特乱聊直播要点（2022年4月16日）](/content/gnews/19/README.md)
- ` 波士顿五月花农场`
+### [美台两国启动士官交流计划](/content/gnews/4/README.md)
+ ` NFSC News`
 
-### [爆料革命——历史的今天1月31日](/content/gnews/20/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [美欧日经济周报（4月11日～4月15日）](/content/gnews/5/README.md)
+ ` 经济小组`
 
-### [特朗普被问到：俄罗斯和中共谁是更大的地缘政治威胁](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [上海一位老妇人因绝望跳楼而死，只留下他的丈夫对着她的尸体哭泣](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/23/README.md)
- ` G-NEWS TAIWAN`
-
-### [【乌克兰救援】刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年04月16日七哥乱聊直播](/content/gnews/26/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/29/README.md)
- ` 秘密翻译组金融团队`
-
-### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/30/README.md)
- ` topnews`
-
-### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/32/README.md)
- ` 历史组`
-
-### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/33/README.md)
+### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/6/README.md)
  ` 银河歌舞厅`
 
-### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/34/README.md)
+### [【G时新闻】西安宣布实施4天临时社会面管控](/content/gnews/7/README.md)
+ ` G-时新闻`
+
+### [借疫情中共禁闭45个城市3.7亿人](/content/gnews/8/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [【G时新闻】美对乌克兰新军事援助中包括直升机等重型装备](/content/gnews/9/README.md)
+ ` G-时新闻`
+
+### [文·贵天成——文贵先生谈“习近平”（二）](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共接下来要对青岛、大连、哈尔滨（海口）大隔离](/content/gnews/11/README.md)
+ ` 银河歌舞厅`
+
+### [俄乌战局最新消息汇总 04/16/2022](/content/gnews/12/README.md)
+ ` NFSC News`
+
+### [无限期封锁致巴西到沪港运输中断](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [COVID-19疫苗副作用集萃（2022.4.16P）第三针加强针](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【G时新闻】肥料短缺加剧全球粮食危机](/content/gnews/15/README.md)
+ ` G-时新闻`
+
+### [七哥说—第64期](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月16日早](/content/gnews/17/README.md)
+ ` 纽约香草山MOS01`
+
+### [《大独裁者》- 战友朗诵视频](/content/gnews/18/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [沙利文称美国将确保中共侵台不会发生](/content/gnews/19/README.md)
+ ` NFSC News`
+
+### [郭先生盖特乱聊直播要点（2022年4月16日）](/content/gnews/20/README.md)
+ ` 波士顿五月花农场`
+
+### [爆料革命——历史的今天1月31日](/content/gnews/21/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [特朗普被问到：俄罗斯和中共谁是更大的地缘政治威胁](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [上海一位老妇人因绝望跳楼而死，只留下他的丈夫对着她的尸体哭泣](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/24/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【乌克兰救援】刚从战火纷飞中逃出的彭先生和他的乌克兰太太受到感动要求加入新中国联邦](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022年04月16日七哥乱聊直播](/content/gnews/27/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/30/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/31/README.md)
+ ` topnews`
+
+### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/33/README.md)
+ ` 历史组`
+
+### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/34/README.md)
+ ` 银河歌舞厅`
+
+### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/35/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/35/README.md)
+### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/36/README.md)
+### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [诗歌《我可不想和你们团结在一起》](/content/gnews/37/README.md)
+### [诗歌《我可不想和你们团结在一起》](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共的乌克兰战争宣传（一）](/content/gnews/38/README.md)
+### [中共的乌克兰战争宣传（一）](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [警察局长说，在基辅地区发现900多具平民尸体](/content/gnews/39/README.md)
+### [警察局长说，在基辅地区发现900多具平民尸体](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成](/content/gnews/40/README.md)
+### [泽连斯基：乌克兰加入欧盟候选国资格的调查问卷即将完成](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [泽连斯基称世界应该为普京可能使用核武器做好准备](/content/gnews/41/README.md)
+### [泽连斯基称世界应该为普京可能使用核武器做好准备](/content/gnews/42/README.md)
  ` 波士顿五月花农场金融部`
 
-### [克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”](/content/gnews/42/README.md)
+### [克里姆林宫 “是欧洲亲俄抗议活动的幕后黑手”](/content/gnews/43/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/43/README.md)
+### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共封控上海 日企遭受打击](/content/gnews/44/README.md)
+### [中日财经爆┃中共封控上海 日企遭受打击](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英央行:清查资产发现曾拥有奴隶 需反思英国创造财富方式](/content/gnews/45/README.md)
- ` 波士顿五月花农场金融部`
 
 ### [俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”](/content/gnews/46/README.md)
  ` 關注組`

@@ -2,18 +2,36 @@
 ---
 
 
-## 《大独裁者》- 战友朗诵视频
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2357632/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月16日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2357648/)
 
-朗读：小小维
-视频剪辑：蜂鸟
-统筹：勇往直前
-供稿者：桑桠
-发稿：am夏天
-德国纽伦堡正义农场：创意部，视频部
+作者：香草山翻译部
 
-我想帮助每一个人，不论他是犹太人或是基督徒，也不管他是黑种人还是白种人，我希望我们彼此帮助，人类本应如此，我希望每个人都能过上幸福的生活，我反对彼此仇视和互相侮辱，地球上的富饶足以养活全人类，生活方式可以是自由而美好的，但我们已经失去了这种生活方式，丑恶的欲望腐蚀了人类的灵魂，在全世界筑起了仇视的壁垒，而且他使我们陷于苦难和杀戮，科学固然发展了，但我们却失去了灵魂沟通的能力，创造了财富和繁荣的机器，反而使我们陷于贫困，知识被用来作不顾廉耻的事，大家不能和睦相处，彼此冷漠对待，我们过于计较那些空洞的道理，感情反倒退化了，我们最需要的不是机器，而是人性，如果没有这一切，那么人生就会变得残暴并一无所有，现在遭遇的灾难，完全是由于贪婪和狂暴所造成的，那些害怕人类进步的人疯狂的制造灾难，因此带来这种恶果，人类的仇恨终会消失，独裁者终会死去，被他们夺去的权利将会归还给人民。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-15.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.16早 《NFSC新闻》](https://gettr.com/streaming/p15kaxdd3be)
+[2022.04.16早《NFSC新闻访谈》](https://gettr.com/streaming/p15ksgh1f3e)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

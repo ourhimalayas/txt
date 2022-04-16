@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 5:43 PM (UTC)`
+
+【Ukraine Rescue】04/15/2022 All the Jews in Medyka are celebrating their holiday of freedom, Passover, in the big tent of NFSC and ROLF. They said: “ the big tent of NFSC and ROLF is really “the tent of freedom” because you are not only helping people fleeing war from Ukraine to freedom but also helping the 1.4 billion Chinese people enslaved by the Chinese Communist Party breaking their shackles of slavery to go to a future of freedom, light and prosperity.”<br/><br/>【乌克兰救援】04/15/2022 所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节。他们说：“你们法治基金和新中国联邦的大帐篷就是一个自由的帐篷。因为你们不仅帮助逃离战争的人们奔向自由，同时你们法治基金也是在帮助被中国共产党所奴役的14亿的中国人民摆脱被奴役的命运，走向自由，光明和美好的未来。“<br/>
+![img](https://media.gettr.com/group41/getter/2022/04/16/17/c0e3ae96-bcd9-c6dd-68d0-9fb2389882af/out.jpg)
+
+---
+
+`@miles 4/16/2022 5:41 PM (UTC)`
+
+04.16.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group9/origin/2022/04/16/17/9f24dafc-1b43-e255-29f4-6bb0efc0b44b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/16/2022 5:34 PM (UTC)`
 
 4月16号：这是中国共产党最想要的结果，此时此刻所有的中央政治局委员．中南坑老杂毛们都在仰天长啸，其实他们最成功，体验权利，最甜美的味道的绝佳时刻。【百亿私募大佬梁宏，说自己已经开始吃西瓜皮了。】
@@ -140,20 +154,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group14/origin/2022/04/16/04/54779e1c-ffd9-c673-f496-187a620419d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 4:18 AM (UTC)`
-
-04.15.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group45/origin/2022/04/16/04/9bb465e9-deac-bf69-3604-540d8c28380a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 4:06 AM (UTC)`
-
-【Ukraine Rescue】04/15/2022 A self-media person from Brazil is amazed by the NFSC and ROLF’s strong financial ability and high-quality volunteers, the NFSC is able to set up the largest and most well-equipped tent in the entire camp within two days. Volunteer Nicole tells him that if large Western companies want to gain access to the huge market of 1.4 billion Chinese, they must cut ties with the CCP and stand with the NFSC to destroy the CCP. The CCP does not represent the Chinese people. He says he will help spread the news about the NFSC in Brazil.<br/><br/>【乌克兰救援】04/15/2022 一个巴西的自媒体人惊叹于新中国联邦法治基金的强大财力和义工们一流的素质──能够在两天之内建起了整个营地最大、设施最完善的帐篷！义工妮可告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起。中共不代表中国人。他表示会在巴西帮助传播新中国联邦。<br/>
-![img](https://media.gettr.com/group24/getter/2022/04/16/04/dce2a220-127c-fe38-e2ce-98d76663b449/out.jpg)
 
 ---
 

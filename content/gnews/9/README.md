@@ -2,32 +2,34 @@
 ---
 
 
-## 中共接下来要对青岛、大连、哈尔滨（海口）大隔离
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2357741/)
+## 【G时新闻】美对乌克兰新军事援助中包括直升机等重型装备
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2357759/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-119.jpg)
-4月16日郭先生紧急直播告知战友，中共即将对青岛、大连、哈尔滨或者海口等地实施大封锁。
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据【Yahoo News】4月14日报道， 美国周三公布了一项价值8亿美元的对乌克兰新的军事援助计划，其中包括直升机、榴弹炮和装甲运兵车等重型装备。
 
-郭先生爆料，随着中共对上海和长春的封锁，上海死亡人数可能已达到百万。上海战友及时为当地战友提供政府实时情报，协助战友买到粮食、蔬菜以及药品，还有的战友用智慧的办法帮到了生病的战友家人。长春战友在郭先生的建议下积极行动，提前在外准备的基地、粮食以及医疗用品帮到了无数人度过了此次共产党的大隔离，完全体现出作为新中国联邦人的高素质，郭先生说这在未来盘古相聚时会是辉煌的一页。
+拜登在与泽连斯基进行了约一个小时的交谈后表示，随着俄军准备加强对顿巴斯的攻击，美国将继续为乌克兰提供自卫能力。
 
-目前得到准确情报，共产党接下来要对国内进行大隔离的城市有青岛、大连、哈尔滨或者海口，这些城市将会再现上海和长春以及广州的惨状，请战友提前准备。郭先生还提供了一些方法，中共大隔离本身就是犯法，已经构成了正当防卫的条件。合理利用家中的水、煤气、冰箱、车里的油，尤其是团结周围单元楼的老百姓集体行动，勇气和智慧缺一不可。
+新一揽子军援中将包含更多高效武器系统，以及为乌克兰东部，俄军即将发动的更广泛攻击而量身定制的新武器。新援助中包括华盛顿此前因担心与拥核的俄罗斯冲突升级而拒绝向基辅提供的一些重型装备。
 
-郭先生此前曾赌注灭共50%是新中国联邦，这是最好的机会。
+五角大楼发言人约翰·柯比公布了这次最新援助计划的项目清单，并表示美国正在与盟国合作，以向乌克兰提供额外的军事能力。五角大楼周三将与美国主要国防集团负责人开会，商讨加快生产乌克兰军队最常用的武器。
 
-撰稿、发布：骄子
+盖特链接：[https://gettr.com/post/p15jntw2ad2](https://gettr.com/post/p15jntw2ad2)
 
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-欢迎订阅我们的GNews账号：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

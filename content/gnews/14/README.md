@@ -2,36 +2,74 @@
 ---
 
 
-## 【G时新闻】肥料短缺加剧全球粮食危机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2357683/)
+## COVID-19疫苗副作用集萃（2022.4.16P）第三针加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2357710/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月6日，据外媒报道，由于俄罗斯和乌克兰都是世界主要农作物肥料和粮食出口国，已经持续了一个多月的俄乌战争，将令全球即将到来的粮食危机，雪上加霜。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-据悉，俄罗斯出口世界11%的尿素，48%的硝铵，乌克兰与俄罗斯共同生产全球28%的氮基，磷基和钾基化肥。另外，白俄罗斯提供全球40%的钾盐出口，在俄乌战争开始后，白俄已经宣布将因“不可抗力”导致无法履行之前签订的外贸出口合同。
+#### 整理/编辑：红红火火
 
-俄乌两国传统上供应世界30%的大麦和20%的玉米需求，因为战争导致交战双方无法按时播种，且黑海港口关闭，粮食生产正在面临灾难性危机。肥料的短缺和高价将会在更长的周期内，推动农户选择种植需要较少肥料的作物，这会在数月后导致一些基础作物减产。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-44.png)图片来源：雅典娜设计组(614)
 
-玉米价格在21年已经上涨了57%，小麦涨了27%，今年恐怕更令人担忧。谷物类短缺还会传导至其它大宗商品涨价，如玉米、麦子、稻谷的成本上升将带动牛肉猪肉禽肉等类别的价格显著上涨。
 
-道明证券全球商品战略主管巴特·梅莱克说，目前不但有地缘政治风险，有更高的投入成本，甚至还有可怕的肥料短缺。世界即将面临灾难性的粮食危机。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-盖特链接：[https://gettr.com/post/p15jqdn93fb](https://gettr.com/post/p15jqdn93fb)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+博主:  Aa
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+帖子原文:
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+**康希诺疫苗 混打加强针 没打的别尝试！！**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+第一针是兰州生物 第二针是科兴 打完无任何症状
+
+第三针康希诺 接种完白天无症状 晚上睡觉胸口疼胳膊疼！！这还没完 早上四五点疼醒 头晕浑身酸疼
+
+关键还发烧了！！ 疫情几年都没发烧过 不对是成人后就没发烧过
+
+接种完的第二天 发烧退了 但是背和腰特别酸疼 胳膊感觉有硬块抬不起来 四肢无力
+
+到现在了躺着不能侧身 一挨胳膊就疼 太难了 有一样的姐妹吗 你们都什么时候痊愈
+
+发布于 2022-04-04 17:36
+
+**#新冠疫苗****  ****#疫苗加强针**** ****#腰酸背痛**
+
+精选评论
+
+开心的朵儿:
+
+那我算是找到组织了，我前天打的加强针，也是胳膊腿胸口疼，今天头还疼，
+
+Aa(作者) : 我今天好点了只剩下胳膊疼了 多喝热水
+
+momolist : 我也胸口疼！！姐妹了只剩下胳膊疼了 多喝热水
+
+momolist : 我也胸口疼！！姐妹
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-44.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-17.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345-5.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123456-1.png)图片来源：小红书
+
+
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

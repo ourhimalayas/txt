@@ -2,35 +2,25 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月16日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2357648/)
+## 七哥说—第64期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2357678/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-15.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.16早 《NFSC新闻》](https://gettr.com/streaming/p15kaxdd3be)
-[2022.04.16早《NFSC新闻访谈》](https://gettr.com/streaming/p15ksgh1f3e)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
+制作：Inzaghi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-16_9.00.04.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-16_1.20.49.png)
+发稿：信心满满
 
 **更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-36.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+
+
 
  
 
