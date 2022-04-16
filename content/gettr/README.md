@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/16/2022 12:29 PM (UTC)`
+
+2022.04.16早  新中国联邦 | 新闻
+![img](https://media.gettr.com/group36/origin/2022/04/16/11/03624322-f724-8197-685d-72cec1dce3a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 9:00 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -151,13 +158,6 @@ When freedom and will of thoughts are choked by power<br/>When the green pass ha
 
 2022.04.15 NFSC news “Chained Dream" And "The Terminator Snow" Played Over 1 Billion Times On iTunes
 ![img](https://media.gettr.com/group15/origin/2022/04/15/23/f876a1a6-447c-9ce5-b9e9-cee8d67b8c58/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/15/2022 10:38 PM (UTC)`
-
-A volunteer from Mozambique, Africa supports us to take down the Chinese Communist Party (CCP).  He believes that it's the Russian government and their greed, it’s Putin and his buddies (including the CCP), started this war, not the Russian people. He agrees that the CCP is using One Belt One Road initiatives to buy African politicians and help them enslave the African people. He says that the things we are doing are great.<br/><br/>来自非洲莫桑比克的义工支持我们推翻中国共产党。他相信是俄罗斯政府以及他们的贪婪，是普京和他的帮凶们（包括中共）发动了这场战争，而不是俄罗斯人民。他同意，中共拿钱收买非洲政客，搞的“一带一路“， 其实是变相地帮助他们奴役非洲人民。他说我们正在做的事情太棒了。
-![img](https://media.gettr.com/group40/origin/2022/04/15/22/68777fa1-4361-2366-dbd4-d757d3b1edce/out.jpg)
 
 ---
 
