@@ -2,27 +2,21 @@
 ---
 
 
-## 乌克兰多地彻夜拉响防空警报
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2355235/)
+## 视频| 台湾军方购买中共无人机 恐现“木马屠城”惨剧
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2355287/)
 
-撰稿：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-57.png)
-4月15日外媒报道，在俄罗斯黑海舰队的旗舰“莫斯科号”被击中损毁并沉没以后，14日晚上，乌克兰多个地区彻夜响起空袭警报，人们在基辅听到了强烈的爆炸声，在南部城市赫尔松、东部城市哈尔科夫和西部城市伊万诺-弗兰科夫斯克也听到了爆炸声。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323088.jpg)
-乌克兰议员瓦西连科表示，基辅发生了三起爆炸，并认为这些袭击是普京对“莫斯科号”沉没的报复。
+制作：香草山视频部
 
-一些社交媒体发布的视频显示，自俄罗斯军队本月早些时候开始撤出该地区以来，这是最严重的一次袭击事件。
+4月14日，郭文贵先生在盖特直播中爆料，台湾即将用于对抗中共入侵的无人机，其实是由中共国制造，再通过澳大利亚转手卖给了台湾军方。一旦开战，这些无人机犹如“特洛伊木马”，摧枯拉朽，台湾恐遭灭顶之灾。
 
-参考链接：
+郭先生判断，中共大概率会在5月前入侵台湾。目前，中共对卖台贼们正在进行着战前最猛烈的策反：给台湾一些要员大量赠送美元现金和黄金。中共同时承诺，一旦开战，他们的家人会得到妥善安置，甚至已经勾兑好战后土地的瓜分问题。郭先生说，真正的危险往往来自于内部。中共一旦攻打台湾，首当其冲出卖台湾人民的，是被中共收买的台湾军方和情报部门。详情请收看如下视频。
 
-[Huge blasts rip through multiple Ukrainian cities in ‘livid’ Putin’s ship ‘revenge’](https://www.mirror.co.uk/news/world-news/breaking-air-raid-sirens-go-26718178)
+发稿：林礼
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-121.jpg)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-编辑/总编/审核：飞虹
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-60.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

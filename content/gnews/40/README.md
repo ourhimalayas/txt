@@ -2,11 +2,47 @@
 ---
 
 
-## 4月16日乌克兰救援行动（图片1-16）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2354320/)
+## 大直播后记：逃出乌克兰的中国夫妇加入新中国联邦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354179/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E0817FC-20B5-4BD4-A1D7-A637510726D4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1A28E766-718D-4845-B6EB-F625E685D518.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/EE03AE52-853D-4B84-8847-8A3609BE9915.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D3278721-E64F-45B7-91C6-65E6BE8A9598.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CE3D24AF-3AB7-4036-8FA0-A9D778696812.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/27D9D387-0849-4634-9709-C4F995E7A0AA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1C9E5D2F-17E0-4A7D-83F1-443A8079DE9C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3077DF5C-1C66-4005-9C24-5A05CD0B53CC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3B09A1E6-7759-49C2-8573-CA748B04DD18.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4839CB1A-A70E-4C71-8463-0CE8CF7B3E81.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/84D8E26D-A2F7-48D8-890F-BC9F78C866FD.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DDEAFAC1-AB55-4122-B694-4D88718BA353.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BBD90A6F-11DA-4B2B-9224-E0AC435F6DFE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FCFB732C-C240-4833-ABC5-DA95A07DCC2B.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C870B281-68B0-4347-84E5-F5E4E3AF3E3E.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2D7A2179-12E0-4050-8D62-AC210D069D8F.png)发布：水涨船高![]()
+#### 整理：GHope
+编辑：伏而起之
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片35-13.png)
+
+
+**Nicole:**
+
+我们法治基金和新中国联邦的帐篷迎接了一位从乌克兰逃出来的中国人，带着他的乌克兰太太。在4月7号的时候，他们在乌克兰的5间房子全部都被俄军炸毁。他太太因为连续好几周惊恐，都是躲在地下室里面，所以人已经瘦得都脱相了。这位这中国大哥，他决定带着他的太太出逃。
+
+来到我们这个大帐篷的时候，他说他在微信群里面就已经听说过法治基金和新中国联邦在组织乌克兰的救援行动，他只知道中共政府根本就是摆样子，根本就没有去救乌克兰的这些中国同胞。所以，他就想找到法治基金和新中国联邦。当他们走到梅迪卡边境的时候，就向人打听有没有新中国联邦的人在这边。当他走到我们帐篷的时候，看到我们有中国字，一看是法治基金和新中国联邦，他们马上就走进来了。
+
+当时，他看到我们的战友，尤其是看到我们小Sara战友的时候，非常地激动，因为他们是老乡。老乡见老乡，两眼泪汪汪。他们本来是在我们这边休息一下，然后去瑞士投奔他的儿子，去他儿子那边避难。但是，当听到我们法治基金和新中国联邦在过去的一个月里面救助了那么多乌克兰难民，他们非常感动。他说，与其去儿子家坐着、等着，还不如就留下来加入我们法治基金和新中国联邦的义工团队。
+
+他们当场就穿上了我们的灭共黄马甲，戴上了我们新中国联邦的帽子。他们两个人都会说中文、俄文和乌克兰文，他太太还会说一些法语。同时，他们也感谢有这个机会能够很荣幸地加入到我们新中国联邦在乌克兰的这次救援行动。
+
+文科，我记得你当时帮他们拿行李送他们上车，是吧？可不可以再说两句，当时你跟他们在交谈的时候是什么样的感觉？
+
+**文科：**
+
+其实刚来的时候，他就跟我们说，他的老婆非常难受，现在心情还没有平静下来，因为他们的房子都被炸了，他们家没了，他们不知道去哪里好。他现在拿的是中国护照，据我了解，按照波兰之前的政策，在波兰他不属于乌克兰的难民。他可能只能待15天，他们也是不知道该怎么办。
+
+刚好我们跟欧盟这边有过一些合作和联系，我们就问了欧盟这边，然后给了他们欧盟的宣传册，以及欧盟对于乌克兰难民的一些新政策，这给了他们一些帮助。我们也让他们住到我们安排的酒店里面，因为咱们都是中国同胞，我们必须伸出这个援助之手。这也是因为，法治基金的宗旨就是帮助咱们中国人。
+
+总体来说，我还是非常难受的，因为在那种状态下没有人帮他们。他甚至跟我说，那两辆从奥德萨到摩尔多瓦的大巴，是他们家联系的大使馆，大巴其实就半个小时的车程。半个小时车程之后，他就是被扔到摩尔多瓦，不管了。还问他们要18000的飞机票钱，18000还是学生半价，成人还要得更贵。我记得他们说，如果要接受中共大使馆的帮助，好像要交5万块钱。
+
+但是，他来到法治基金和新中国联邦，马上就得到了食宿的安排，这里给了他们安全感，他们也愿意加入到我们这个团队当中。所以，当时这位大哥希望我们以后有机会采访他，他会跟大家具体解释一下。
+
+资料來源：[2022.4.15文贵大直播](https://www.gettr.com/streaming/p15f3i8714f)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
