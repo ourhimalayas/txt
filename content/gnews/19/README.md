@@ -2,58 +2,55 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.15）-儿童打新冠疫苗后反复发烧
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2353840/)
+## 美国官员将朝鲜黑客与6.15亿美元的加密货币抢劫联系起来
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2353901/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1945.png)*显示朝鲜国旗和电脑黑客的照片插图。Budrul Chukrut | Sopa Images | Lightrocket | Getty Images*
 
-#### 整理/编辑：gardeniahu
+美国官员指称，朝鲜国家支持的黑客组织Lazarus Group与导致6.15亿美元数字资产被盗的大规模加密货币黑客活动有关。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-36.png)图片来源：雅典娜设计组(614)
+财政部外国资产控制办公室周四宣布了对属于Lazarus的一个以太坊钱包的新制裁。
 
+根据加密货币研究人员的说法，被确认的钱包包含与攻击罗宁网络有关的资金，该网络支持流行的区块链游戏Axie Infinity。在这次攻击中，价值超过6亿美元的以太币和USDC代币被盗。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+黑客利用了所谓的区块链“桥”，它允许用户将其数字资产从加密货币网络转移到另一个网络。在迅速发展的“去中心化金融”（DeFi）世界中，桥接是一个越来越受欢迎的工具。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+区块链分析公司Elliptic在一篇博文中说，新宣布的制裁措施禁止美国个人和实体与已确定的以太坊账户进行交易，以确保黑客无法“兑现”他们可能在美国加密货币交易所持有的任何资金。
 
-原文作者：Skr
+另一个密码研究小组Chainalysis说，归因于Lazarus突出了“与朝鲜有关的威胁者如何利用密码，以及DeFi协议更好的安全性”的重要性。
 
-**疫情|新冠疫苗副作用     儿童打新冠疫苗后反复高烧**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1949.png)
 
-11月19日14：00打了第一针新冠疫苗（科兴），晚上00：30开始发烧，38.5度，然后退烧药+各种物理降温。
+据信，Lazarus是由朝鲜国家运营的，多年来一直与几次重大网络攻击有关，包括2014年对索尼影业的黑客攻击和2017年的WannaCry勒索软件攻击。
 
-11月20日早上没有发烧，午饭后13：40又开始了，又上退烧药。退烧了娃就活蹦乱跳，小孩果然不装病。我的天晚上才1 7：00又开始升温了，急剧升温到38.9，又上退烧药，始终退不下来，身体滚烫，我这个焦虑啊。当时真想冲到医院马上去挂急诊。商量一下发烧去医院要各种报告，检查。核酸，查血，开退烧药，打退烧针，挂水各种折腾。然后我想起他的症状和之前有一次感染上流行感冒病毒症状一样。就翻出上次医生开的药。吃了一包，当天晚上温度一直在38.7到39.2徘徊。折腾到两点钟才去睡觉。
+据网络安全专家称，朝鲜曾多次试图利用加密货币作为逃避美国制裁的方式，这引起了人们对在乌克兰战争中可能利用数字资产来逃避对俄罗斯制裁的担忧。
 
-11月21日，早上还是一如既往活蹦乱跳，悬着的心还是没有放下，继续给他冲了包药。中午饭后一包，这次没有发烧，悬着的心稍微休息一下。晚上一包，到22：36准备睡觉的时候不放心check一次，体温36.8一37度。有点低烧，还好。
+本周早些时候，39岁的美国加密货币专家维吉尔-格里菲斯因帮助朝鲜利用虚拟货币逃避制裁而被判处五年监禁。
 
-11月22日早上温度已经正常。在家休养一天再去幼几园。
+加密货币的支持者说，它们是清洗不义之财的有效工具，因为活动被记录在一个被称为区块链的公共账本上。
 
-疫苗本身是灭活病毒，本身体质不好的，或有感冒潜伏状态的，容易扛不住，导致像病毒感染感冒症状一样的不良反应。
+然而，根据Elliptic的说法，犯罪分子有许多技术可以用来清洗加密货币。该公司表示，内部分析表明，截至周四，Ronin攻击“成功地洗掉了他们18%的被盗资金”。
 
-发布于2021.11.22
+黑客最初通过不受监管的分散式交易所将偷来的USDC代币换成了以太坊，以防止其被查封，但随后通过FTX和Huobi等集中式交易所清洗了近1700万美元的收益。
 
-精选评论
+他们随后使用了所谓的“混合器”，这种服务旨在通过将潜在的可识别的加密货币交易流与其他交易混合，来掩盖资金的踪迹。据Elliptic称，已经有超过8000万美元的资金通过这种名为Tornado Cash的混合服务被发送。
 
-Skr回复：姐妹们，我不是妖魔化疫苗，实事求是的讲述打了新冠疫苗后的情况。我是接种过两针疫苗的。接种过程中没有任何异常反应。但是自从上次我儿子打了第一针发烧开始，然后我也没有其他感冒症状就是嗓子一直痒一直咳嗽，黄痰，都快一个月了，现在还没有完全好。
+来源：[U.S. officials link North Korean hackers to $615 million cryptocurrency heist](https://www.cnbc.com/2022/04/15/ronin-hack-north-korea-linked-to-615-million-crypto-heist-us-says.html)
 
-晨晨妈咪回复：我们这有个打了疫苗发烧好几天的小孩，家长去医院医生都不敢说是疫苗的问题，打疫苗的时候么催催催，出事了就都是自己的事了。
+* * *
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-40.png)图片来源：小红书
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-15.png)图片来源：小红书
-
-
-参考链接：[儿童打新冠疫苗后反复发烧](https://www.xiaohongshu.com/discovery/item/619b6418000000002103b97c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649996525)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-26.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
