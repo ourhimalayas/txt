@@ -2,12 +2,12 @@
 ---
 
 
-## 4月16日勿忘香港（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2357854/)
+## 所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2357935/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5FEBD418-6433-4DDB-9682-976E23F1D841.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DB41BCEF-16C3-4950-A0B6-64B241D3E28F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7297E7E6-0129-4DA6-975E-F17FF6F2CEDF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/334B138D-BDF6-40E4-A0BE-65173939C757.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DC16C7BA-3EB6-4461-9F2A-8C9B2B244DAF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E4BC6ED0-6F92-4B69-831D-A24F1FA65B52.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/57D940EB-4BD8-4A88-A658-1C4D9AD7DC7D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/085F70F0-50C7-4295-8B9D-E16E5BE14A72.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3B4ECB87-C5A0-4A66-9019-8D336BC9B15A.png)
-发布：水涨船高
+【乌克兰救援】04/15/2022 所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节。他们说：“你们法制基金和新中国联邦的大帐篷就是一个自由的帐篷。因为你们不仅帮助逃离战争的人们奔向自由，同时你们法治基金也是在帮助被中国共产党所奴役的14亿的中国人民摆脱被奴役的命运，走向自由，光明和美好的未来。“
+
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
