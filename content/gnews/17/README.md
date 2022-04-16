@@ -2,52 +2,25 @@
 ---
 
 
-## 仍处封锁状态 中共威胁公民“管住你的嘴否则面临惩罚”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2355951/)
+## 疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356016/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-1976-edited.png)
-新闻报道或社交媒体可以传达故事，但第一手资料可以很好地解释问题。所以，当中共千方百计阻止疾病信息的传播时，是时候引起注意了。
+**图/文｜CP **
+**发布时间｜16/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/英美爆發不明「兒童急性肺炎」部分病例呈新冠陽性.jpg)
+世界卫生组织（WHO）4月15日称，英国数十名儿童出现不明原因的急性肝炎症状，部分严重到需要立即做肝脏移植手术，截至4月8日为止，短短三日内，患者激增至74人之多。出现的主要症状是黄疸、下痢、呕吐和腹痛，由于他们并没有接种过新冠疫苗，因此排除是疫苗引发的副作用。
 
-如果您的政府采取严厉措施让世界对生活条件一无所知，请不要忽视这些警告信号。当中国人被迫进入另一个 COVID 封锁时，有一些令人毛骨悚然的警告标志“指导方针”：
+世卫表示，病例最早出现在英国北部苏格兰地区，4月5日发现10件重症急性肝炎个案，患者主要是10岁以下儿童，到了8日，英国全境该类肝炎患者增至74人，并在一部分病例中检测到新冠病毒的存在，其中有6人严重到需要肝脏移植。所幸截至11日为止，暂未出现死亡报告。
 
-不要在网上发布与流行病相关的消息。
+而在美国阿拉巴马州，同样出现了9名1至6岁的儿童患上该类急性肝炎，这些儿童的新冠病毒均呈阳性，其中2例需要进行肝移植，而这些儿童本身并没有任何潜在的健康问题。
 
-未经许可不得进出北京。
+不仅如此，西班牙、爱尔兰也都相继确诊了数例儿童急性肝炎病例，目前，世卫组织和相关当局都严正以待。
 
-间谍就在我们中间；泄密可能会在瞬间发生。管住你的嘴否则面临惩罚。
-
-Louder with Crowder 很幸运能有一位 Mug Club 观众从上海打来电话，第一手了解当地发生的情况。
-
-喜剧演员戴夫·兰道（Dave Landau）代替史蒂文·克劳德（Steven Crowder）采访了来电者，出于显而易见的原因，他必须保持匿名，让我们了解中共国的现状。
-
-来电者：我很荣幸； 我在一个有很多外籍人士的社区，所以我们目前比许多社会经济地位较低的中国人做得好得多。 我们可以每隔几天送一点食物。我们得到一点水果和一些蔬菜； 我们可以在网上搜寻，找出谁有食物，找到一个拥有“非常特殊的通行证”并被允许上路的人。我们实际上付给他们一大笔钱来送食物。实际可用的东西非常非常零星。
-
-戴夫：我想如果你得到一点食物，你可能还没有准备好。有没有通知准备？
-
-来电者：真的很快。完全封锁前给了我们一天时间，本来应该是四天。我们采购了大约六天的物资，现在我们已经过了两个半星期了。据报道，中共国的商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有库存，因为已经超过两周没有发货了。
-
-来电者：我也有两个孩子，我们要上网课。
-
-来电者提供了令人震惊的信息，有关当孩子出现 COVID 检测呈阳性时在中共国会发生什么。孩子被从家中带走，并在没有父母或倡导者的情况下被送入这些隔离营。
-
-观看视频，了解更多关于中国人民在政府手中面临的令人心碎的描述。
-
-链接：**[Watch your mouth or face punishment’: CCP threatens citizens as China remains locked down](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?utm_source=theblaze-7DayTrendingTest&amp;utm_medium=email&amp;utm_campaign=The%20Blaze%20PM%20Trending%202022-04-14&amp;utm_term=ACTIVE%20LIST%20-%207%20Day%20Engagement)**
+來源｜[Statnews](https://www.statnews.com/2022/04/14/u-s-u-k-investigating-unusual-cases-of-hepatitis-in-young-children/)
 
 * * *
 
-审核：文乐
-校对:  花羽
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

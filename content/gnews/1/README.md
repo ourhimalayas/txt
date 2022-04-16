@@ -2,28 +2,31 @@
 ---
 
 
-## 澳大利亚面临血液危机
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2356292/)
+## 俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356340/)
 
-翻译/编辑：Rianna
+**图/文｜CP**
+**发布时间｜16/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/澤連斯基請求拜登政府-將俄羅斯列為「恐怖主義支援國」.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/a1650102309046.jpg)图片来源：Australian Red Cross
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-随着供应量降至12个月以来的最低点以及复活节假期的临近，澳大利亚人被敦促献血。澳大利亚红十字会已敦促具有O 型血型（用于血型未知的创伤患者）的人立即捐赠，因为全国供应仅剩 1.5 天。上述中心报告说，由于新冠病毒隔离和长周末，超过一半的预约被错过。“在任何一天，我们仍然看到有二分之一的预约被取消或无人参加。”斯通女士说。由于交通事故和紧急情况，诊所无法承受复活节和澳新军团日周末献血往往下降的后果。“血袋通常存放在救护车和救援直升机中，用于在短时间内需要大量物资的创伤患者，”斯通女士说。 尽管 O 阴性血型占人口的比例不到 7%，但它占全澳大利亚医院订单的 16%。 其他血型也面临短缺，仅剩 1.9 天供应。 短缺促使 Lifeblood 首次在耶稣受难日开放 40 项服务，因为只有不到 4% 的澳大利亚人主动献血。
+外媒16日引述消息人士报道，乌克兰总统泽连斯基（Volodymyr Zelenskyy）在最近一次与美国总统拜登的通话中，请求美国将俄罗斯列为“恐怖主义支援国”，惟拜登暂未作出明确表态或采取具体行动，只表示愿意探讨一系列的建议，并向俄方施加更大压力。
 
-斯通女士说：“对血液的需求通常是无计划的和紧急的。” 这个复活节周末，成千上万的人需要血液，包括创伤和急诊患者、接生的妈妈和接受癌症治疗的人。一次捐赠对接受捐赠的人来说可能意味着一生，捐赠者所花费的只是他们一个小时的时间。 Lifeblood 客户经理 Mitch Bryce 告诉记者，他在三年前的复活节期间不小心撕开了手术缝线后，被送往医院接受 O 阴性输血。 “我服用了布洛芬，因为我一直使用止痛药无法开车，问题在于阻止了血液凝结，我失去了两升半的血，” 布莱斯先生说，“大多数时候你去上班，你会看到有很多人进来，但两个小时后，你刷新那个名单，它已经减少了一半。”
+报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支援国”，意味美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
 
-要捐血，请访问 lifeblood.com.au 或致电您当地的诊所。
+不过，有传美国国会部分鹰派共和党议员曾经敦促拜登政府将俄罗斯列入“恐怖主义支援国”名单，惟白宫一直不置可否，只表示会考虑这项提议。
 
-新闻来源：[澳洲红十字会：血液供应量降至一年来最低](https://www.news.com.au/lifestyle/health/health-problems/australian-red-cross-blood-supply-plunges-to-lowest-point-in-a-year/news-story/9b516c93a63452558af0e6ffc1afcf69)
+在上月召开的记者会上，国务卿布林肯（Antony Blinken）被问及此事时回应，政府会考虑一切选项，强调首要任务是尽其所能迅速结束这场战争，停止乌克兰人民的苦难。
 
-发布：tianzhihuan
+自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支援国”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+來源｜[NBC](https://www.nbcnews.com/politics/national-security/ukraines-zelenskyy-asked-biden-designate-russia-state-sponsor-terroris-rcna24618)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
