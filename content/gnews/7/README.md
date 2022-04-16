@@ -2,8 +2,8 @@
 ---
 
 
-## 波兰的逾越节和犹太人的复活节即将到我们的大帐篷庆祝
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354237/)
+## 新中国联邦和法治基金乌克兰营地现场接待并救助了从乌克兰逃难出来的华人和他的乌克兰妻子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354311/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
@@ -11,8 +11,8 @@
 发布：*陶子*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  

@@ -2,8 +2,8 @@
 ---
 
 
-## 文科介绍营地目前的状况,卡车司机及爱好和平的人和乌克兰人站在一起
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354260/)
+## 新中国联邦和法治基金乌克兰营地现场接待并救助了从乌克兰逃难出来的华人和他的乌克兰妻子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2354315/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
@@ -15,7 +15,7 @@
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
-
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
