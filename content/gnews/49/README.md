@@ -2,25 +2,21 @@
 ---
 
 
-## 疫情｜英美爆发不明“儿童急性肺炎”部分病例呈新冠阳性
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356016/)
+## 中日财经爆┃60家日本上市企业决定停止或退出涉俄业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2356471/)
 
-**图/文｜CP **
-**发布时间｜16/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/英美爆發不明「兒童急性肺炎」部分病例呈新冠陽性.jpg)
-世界卫生组织（WHO）4月15日称，英国数十名儿童出现不明原因的急性肝炎症状，部分严重到需要立即做肝脏移植手术，截至4月8日为止，短短三日内，患者激增至74人之多。出现的主要症状是黄疸、下痢、呕吐和腹痛，由于他们并没有接种过新冠疫苗，因此排除是疫苗引发的副作用。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-53.png)[图片来源](https://asia.nikkei.com/Business/Automobiles/Toyota-to-halt-Russia-production-Friday-as-sanctions-cut-supply-chain)
+据日本帝国数据库统计，截止4月11日，在进军俄罗斯的168家日本上市公司中，有60家公司（约占36%）决定停止业务或退出。3月为止的调查中只有37家公司，现已扩大为约1.6倍。乌克兰危机导致“远离俄罗斯”的公司越来越多，但也有一些公司出于订单未完成等原因而暂时维持俄罗斯业务。
 
-世卫表示，病例最早出现在英国北部苏格兰地区，4月5日发现10件重症急性肝炎个案，患者主要是10岁以下儿童，到了8日，英国全境该类肝炎患者增至74人，并在一部分病例中检测到新冠病毒的存在，其中有6人严重到需要肝脏移植。所幸截至11日为止，暂未出现死亡报告。
+关于停止业务的理由，很多企业列举了商品配送等供应面的混乱。随着俄乌战争长期化，企业对营商前景的警惕升温，这也成为背后原因。
 
-而在美国阿拉巴马州，同样出现了9名1至6岁的儿童患上该类急性肝炎，这些儿童的新冠病毒均呈阳性，其中2例需要进行肝移植，而这些儿童本身并没有任何潜在的健康问题。
+信息来源：[日本上市公司涉俄业务有36%决定停止或退出](https://china.kyodonews.net/news/2022/04/4b2a1404f7fd-36.html)
 
-不仅如此，西班牙、爱尔兰也都相继确诊了数例儿童急性肝炎病例，目前，世卫组织和相关当局都严正以待。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-來源｜[Statnews](https://www.statnews.com/2022/04/14/u-s-u-k-investigating-unusual-cases-of-hepatitis-in-young-children/)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 
