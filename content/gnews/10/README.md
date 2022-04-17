@@ -2,40 +2,47 @@
 ---
 
 
-## 中共青岛和大连在为大隔离做舆论准备
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2364028/)
+## 埃及在全球通胀压力下上调燃油价格
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2364116/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2222-1.jpg)
-当地时间4月16日，郭先生爆料中共即将对青岛、大连、哈尔滨或者海口等省市实行大隔离。
+撰稿：Gradient Boost
 
-中共目前已经在为大隔离做舆论准备了。中共媒体公开消息显示，当地时间4月17日，大连市开展全员核酸，扬言不查核酸的就把健康码的绿码自动变成黄码，并将承担相应的法律责任。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1.jpg-3.png)
+网络图片
 
-青岛市自从上海疫情以来，3月底至4月16日，每日的疫情新增感染人数都是个位数，甚至都不超过3人，几乎都是一两人确诊或是无症状。4月17日，青岛无症状感染者一下子达到18位，并且公布了这些人员的行踪迹象。再次国内某快递行业，快件不发青岛。更有一篇共产党式的苛责报告见诸媒体，声称青岛市的建筑工地未能履行疫情防控职责，包括消杀、人员管控、封闭管理等等。
+由于俄罗斯对乌克兰的战争导致全球通胀压力飙升，埃及政府本周五将燃料价格提高了近 3%。媒体预计此举将加剧该国中产阶级的经济压力——近年来，政府雄心勃勃的经济重组计划使得紧缩措施对中产阶级造成了沉重打击。
 
-reference：
+新价格在内阁的脸书页面上公布，并于周五早上生效。 95 号汽油的价格从 9.5 增加到每升 9.75 埃及镑（0.53 美元）。同时，92辛烷值从8.5升至8.75，80辛烷值从7.25升至7.5。同时政府表示将维持柴油价格不变，因为柴油是用于运输货物和通勤者的主要燃料。
 
-[https://gettr.com/post/p15ovlscb86](https://gettr.com/post/p15ovlscb86)
+根据国家统计局的数据，预计燃料价格上涨将反映通货膨胀率，通货膨胀率已经从 2 月份的 10% 跃升至 3 月份的 12%。上个月，埃及中央银行自 2017 年以来首次上调关键利率，以遏制飙升的通胀。此举导致埃及镑汇率出现下滑，从 1 美元兑 15.6 英镑的平均汇率上涨到 18 英镑以上。
 
-[http://news.10jqka.com.cn/20220417/c638409341.shtml](http://news.10jqka.com.cn/20220417/c638409341.shtml)
+乌克兰战争动摇了全球经济，威胁到粮食供应和世界各地人民的生计。上个月，布伦特原油创下每桶 140 美元的历史新高，不过最近改价格已跌至近 112 美元。
 
-[https://3g.163.com/dy/article/H557FFHA0537MIRK.html](https://3g.163.com/dy/article/H557FFHA0537MIRK.html)
+与许多新兴市场一样，埃及也见证了战后资本外流，使该国的净外汇储备在 3 月底降至 370.82 亿美元——2 月份这一数值为 409.9 亿美元。
 
-[https://m.weibo.cn/1176222671/4757375582732589https://k.sina.cn/article\_1899227237\_7133e865019015s2a.html?ua=iPhone12%2C1\_\_weibo\_\_10.12.1\_\_iphone\_\_os14.8&from=10AC193010&subch=onews&wm=3049\_0032](https://m.weibo.cn/1176222671/4757375582732589https://k.sina.cn/article_1899227237_7133e865019015s2a.html?ua=iPhone12%2C1__weibo__10.12.1__iphone__os14.8&amp;from=10AC193010&amp;subch=onews&amp;wm=3049_0032)
+为了稳定埃及经济，沙特阿拉伯、卡塔尔和阿拉伯联合酋长国承诺以存款和直接投资的形式提供总计 220 亿美元的资金。这个阿拉伯世界人口最多的国家也向国际货币基金组织寻求援助，尽管目前尚不清楚是否要求提供新的贷款。
 
-撰稿、发布：骄子
+*编辑：Gradient Boost*
 
-* * *
+*发布：疯狂的韭菜*
 
-欢迎订阅我们的GNews账号：
+新闻参考链接：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+[AP News](https://apnews.com/article/russia-ukraine-business-egypt-africa-prices-eff5d64867f6cdac29ffb6f62403f50b)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+
+
+**更多信息，更多关注
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,27 @@
 ---
 
 
-## 非洲也不需要如此多的疫苗，大量新冠疫苗过期
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2364046/)
+## 中国人获得日本首个“特定技能2号”资格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2364138/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+关于日本为接纳外国劳动者而引入的特定技能制度，在岐阜县各务原市一家建筑公司工作的中国人翁飞（35岁）获得了建筑领域的“特定技能2号”资格，将来可以申请永居权。
 
-大约有一亿剂送到非洲的新冠疫苗过期，又被发回原处。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-17-alle-16.32.46.png)图片来源：imolaoggi.it
-世界上的新冠疫苗太多了。大约还有二十三亿剂的疫苗待注射，在富裕国家已有两亿四千一百万剂疫苗被扔掉。德国已有三百万疫苗过期，法国二百一十八万疫苗过期。这些过多的疫苗数据已由意大利《共和国》报登出，数量令人不安。以色列打了第二剂新冠疫苗中的25%的人没打第三剂，打了第三剂中的50%的没打第四剂。而在意大利还有五百万诺瓦瓦克斯疫苗放在冰箱里，自二月以来有一百万剂到达意大利：但只注射了三万六千剂，使用期限是九个月。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-140.jpg)（图片来源于本文链接）
 
-非洲联盟与穷国分享新冠疫苗的国际行动（Covax ）已经拒绝了两个到期库存的莫德纳六千万至一亿六千六百万剂疫苗。非洲两剂疫苗的覆盖率只有15%（世界平均接种率为57%），非洲大陆只注射了七亿疫苗中的4亿剂。大约有一亿剂到达非洲的疫苗过期，被发送回原址。去年12月尼日利亚扔掉了一亿剂阿斯利康过期疫苗。当时尼日利亚政府在首都阿布贾附近垃圾填埋场挖了一个巨坑，推土机将仍然完好无破的装有新冠疫苗的箱子推入大坑。
+据支援团体和日本国土交通省表示，这是日本全国首次认定“特定技能2号”资格。特定技能是2019年4月开始施行的日本出入国管理及难民认定法修正案针对外国人设定的新在留资格，对象为农业及餐饮业等14个领域。其中“建筑”以及“造船与船舶用工业”的资格分为两种，一种是居留时间共计5年的1号资格，另一种是在拥有熟练技能的情况下可以获得的2号资格。2号资格的居留时间没有上限，而且可以携带家属。
 
-参考链接：
+信息来源： [中国人获得日本首个“特定技能2号”资格](https://cn.nikkei.com/politicsaeconomy/politicsasociety/48265-2022-04-15-10-35-52.html)
 
-[https://www.lapressa.it/articoli/societa/troppi-vaccini-anche-lafrica-non-li-vuole-milioni-di-dosi-al-macero](https://www.lapressa.it/articoli/societa/troppi-vaccini-anche-lafrica-non-li-vuole-milioni-di-dosi-al-macero)
-
-编辑、上传：Xiao baige
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,43 +2,31 @@
 ---
 
 
-## “感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361418/)
+## 上海疫情｜继浦东市民抗议后 中共发布《吿浦东居民书》：绝不动摇“动态清零”方针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2361775/)
 
-**翻译：【日本东京方舟农场】山豆根后**
+**图/文｜CP **
+**发布时间｜17/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/繼浦東市民抗議後-中共發布《吿浦東居民書》：絕不動搖「動態清零」方針.jpg)
 
-就在美国各地的共和党议员们在许多州通过了被评论人士认为有侵犯到LGBTQ【译注1，见文后】权利的法律之际，美国总统乔·拜登（Joe Biden）政府颁布的政策不亚于是一种福音。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-从4月11日起，美国公民可以获得性别标识为“X”的护照了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-7.jpg)（图片来源：wionews.com）
+中共当局对上海已实施3周严厉封城措施，惟确诊数字依然高企。早前，上海浦东新区市民忍无可忍，走上街头和平抗议，导致中共当局出动大批警力镇压。
 
-这对于超过120万不认同传性别身份，或性别认同不属于男性或女性范畴的美国人来说是一种祝福。
+不仅如此，上海浦东新区政府昨晚（16日）还发布《告浦东新区全体居民书》，强调“动态清零”总方针绝不动摇。
 
-然而，这一举措预计将进一步加剧这个对于在堕胎权和性别问题等方面采取“渐进式”改革上已存在分歧的国家的紧张局势。
+通知提到，鉴于浦东新区的疫情防控形势仍然严峻复杂，新增的阳性感染者数量仍然在高位运行，已经连续4天超过1万人；而且Omicron病毒非常隐匿且传染性极强，留下一点缝隙就会感染一大片，如果放任传播，将会带来极其严重的无法挽回的灾难性后果。
 
-有了这种举措，双性人或性别认知不固定者将不必面对繁文缛节。对于大多数人来说，这只是申请表上一个打钩的一个小方框，但对于许多像奥赫达（D. Ojeda） 这样的非二元性别人士来说，周一成为了第一批申请中性护照的美国人之一，这是“难以置信” 的。
+因此，中共党中央坚持“动态清零”总方针不动摇，在上海市委市政府的坚强配合下，继续采取“全域静态管理、全员核酸检测、全面流调排查、全民清洁消杀”的防控措施。
 
-在接受法新社采访时，使用they/them【译注2】代词的社会活动家奥赫达说，“即使是我的家人，他们仍然不理解这一点，”并补充说，“至少现在有政府帮我说出作为一个人来讲我是谁。”
+当局警告，浦东新区已经封控20天，但越是困难的时候，就越是要坚持，一旦放弃，将来要付出更大代价。
 
-申请人还可以选择“性别改变”框。这反映了他们选择的性别与他们之前持有的护照不同，并且他们不必为更改提供任何医学证明文件。
+來源｜[上海证券报](https://news.cnstock.com/news,bwkx-202204-4863612.htm)
 
-“感觉上世界更安全了，”奥赫达说。
+* * *
 
-去年10月，经过长期的漫长斗争，一名来自美国科罗拉多州的双性人获得了持有“X”字样护照的权利。
-
-就在几天前的3月31日，也被称为国际跨性别现身日（International Day of Transgender Visibility），美国国务院宣布他们将把这项服务扩展到所有美国公民。该部门还将在联邦一级采取一些其他措施，以减少对跨性别者和非二元性别者的行政障碍。
-
-译者附注：
-1. LGBTQ是五个英文单词首字母的缩写。Lesbian女同性恋者；Gay男同性恋者；Bisexual双性恋者；Transgender变性者/跨性别者；Question/Queer性别疑惑者。
-
-2. LGBTQ认为they/them是指代二元性别的他（她）们的代词，对应地LGBTQ会使用比如ey/em作为第三人称复数的代词。原文中受访者用了they这个词。参考自[https://uwm.edu/lgbtrc/support/gender-pronouns/](https://uwm.edu/lgbtrc/support/gender-pronouns/)
-
-原文链接：
-[https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370](https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370)
-
-校对：妙喜小油鍋
-发布：文曦
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 
