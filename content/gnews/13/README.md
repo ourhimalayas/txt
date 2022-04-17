@@ -2,34 +2,59 @@
 ---
 
 
-## 前苏联领导人赫鲁晓夫的曾孙女警告说，俄罗斯可能准备在乌克兰使用战术核武器
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2362229/)
+## COVID-19疫苗副作用集萃(2022.4.17H) 打完新冠疫苗对身体危害太大了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362243/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-5.19.45-PM.jpeg)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-发布: AWAC （新西兰伊甸农场）
+整理/编辑：禄森
 
-翻译: AWAC （新西兰伊甸农场）
-
-前苏联领导人尼基塔·赫鲁晓夫的曾孙女警告说，俄罗斯可能准备在乌克兰使用战术核武器。
-
-美国国际事务教授尼娜·赫鲁晓娃对 BBC 表示，她相信俄罗斯总统弗拉基米尔·普京最终会不惜一切代价取得战争胜利。
-
-“我认为这场战争确实是普京计划赢得的一场战争，并且计划不惜一切代价赢得胜利。如果他需要宣布胜利并且他可能需要使用战术核武器——我没有在预测——这可能是俄罗斯人可能准备使用的选项之一，”她说。
-
-虽然战术核武器的威力不如前苏联赫鲁晓夫时期的远程战略导弹。
-
-但纽约新学院的俄罗斯学者和普京的长期批评者赫鲁晓娃女士担心莫斯科可能会利用它们对乌克兰的土地造成破坏性影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/gettyimages-623841168_wide-b949880a7dda8647e88a4fd3f0c5cc5633fb734c-s1100-c50.jpg)
-
-*图为俄军士兵在装载伊斯坎德尔战术地地导弹*
-
-原文：[Putin could use nuclear weapons: Khrushchev’s great-granddaughter](%20Khrushchev’s%20great-granddaughter)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-5.19.45-PM.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：小红书
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+**博主:  小杨同学的摆摊日常**
+
+打完新冠疫苗的你有副作用吗
+
+前天打完疫苗，昨天人都废了
+
+发烧，浑身酸疼，接种的胳膊也超级疼
+
+我这是咋啦？
+
+**作者发布于2022-4-13**
+
+**评论选集**
+
+I am alive评论:
+
+没啥副作用，就是打完三个月不来姨妈而已
+
+飞翔的鱼评论:
+
+北京生物2针，确诊胰腺受损。
+
+张张小评论:
+
+胖了20斤，以前吃不胖，找我每天都好饿，我都快抑郁了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2067.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2068.png)图片来源：小红书
+参考链接：
+
+[全身酸痛，发烧](https://www.xiaohongshu.com/discovery/item/62567f4100000000210397e7?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650067959)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

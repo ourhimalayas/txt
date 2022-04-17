@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 8:12 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group24/origin/2022/04/17/08/6f9a293b-5f49-6ed5-cfea-c53aa86a579f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/17/2022 4:58 AM (UTC)`
 
 04.17.2022  俄乌战争战况播报
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 ![img](https://media.gettr.com/group23/origin/2022/04/16/00/b506604a-c9b9-42e0-ffb3-ad6dfd2e6503/out.jpg)
 > `@himalayadcfarm 4/12/2022 4:53 PM (UTC)`<br/>❤️Report from #NFSC's #UkraineRescue #Nicole <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>波兰时间4月12日早上10点在梅迪卡营地，比利时总理Alexander De Croo 接受 #新中国联邦 记者Nicole采访<br/>nicole在阐述自己是来自 #新中国联邦，我们所做的人道救援和提供的帐篷等工作，也介绍了郭先生和我们的目标愿景......<br/>比利时首相微笑着回答，人们需要互相帮助，非常高兴你们 #新中国联邦 在这里帮助这些人。nicole说，我们有很好的咖啡,请来我们帐篷，欢迎品尝，<br/><br/>首相说，是的，我们就是在去的路上💖😀<br/><br/>今天是个好日子！👏👏👏
 ![img](https://media.gettr.com/group12/origin/2022/04/12/16/1c829f7b-2299-c24e-319c-8c93f274f36f/out.jpg)
-
----
-
-`@miles 4/16/2022 7:02 PM (UTC)`
-
-2022-4-16《避风港》(37) 制药公司与FDA共同隐瞒疫苗杀人
-![img](https://media.gettr.com/group16/origin/2022/04/16/18/0944f2d1-9d26-ab4d-4d73-c8112abd19c8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
