@@ -2,45 +2,35 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.17M）新冠康复后科兴第一针副作用明显
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362785/)
+## 俄媒：俄罗斯人使用银联卡网购遭遇困难
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363113/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 【雅典娜快讯】，紧贴时代脉搏   
 
-整理/编辑：机器猫
+整理：li yan li
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-22.png)
+据德国之声中文网报道，由于VISA、万事达（Mastercard）和美国运通（American Express）等西方金融企业发行的卡遭遇西方制裁，自3月初以来再也无法使用。再加上大部分俄罗斯金融机构被排除在SWIFT（环球银行金融电信协会）之外，使俄罗斯人难以在网上或国外用信用卡消费。转而只能依靠中国的银联信用卡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
+中国至今没有谴责俄罗斯对乌克兰的侵略，也没有参与对俄罗斯的国际经济制裁。
 
+虽然俄罗斯人能使用中国的信用卡进行网上购物，但这只是理想情况，事实上似乎并非这么顺利。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+在Visa和万事达卡停止在俄罗斯的业务后，许多俄罗斯公民曾希望能够用中国银联的卡片进行支付。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+俄罗斯标准银行和MTS银行近日也开始发行银联借记卡。部分俄罗斯银行还计划推出支持俄罗斯MIR支付和银联支付的“双标卡”。
 
-原文作者：豹豹颗粒memo机
+据德新社引用俄罗斯媒体的报道，银联卡可能无法弥补其他卡片被停用所带来的不便。据俄罗斯《生意人报》报道，大多数知名的国际网店及其合作银行一般不再接受由俄罗斯发行的卡片，包括银联卡在内。
 
-**新冠康复后科兴第一针副作用明显**
+新闻链接：[俄媒：俄罗斯人使用银联卡网购遭遇困难](https://www.dw.com/zh/%E4%BF%84%E5%AA%92%E4%BF%84%E7%BD%97%E6%96%AF%E4%BA%BA%E4%BD%BF%E7%94%A8%E9%93%B6%E8%81%94%E5%8D%A1%E7%BD%91%E8%B4%AD%E9%81%AD%E9%81%87%E5%9B%B0%E9%9A%BE/a-61473994)
 
-帖子原文：
-
-自从去年7月份感染之后别人的自然抗体igg都是蹭蹭蹭的往上涨，但是我从感染开始igm就一直阴，igg也不高，基本流水测自测板的时候都看不到线的程度，大概二三百？
-
-一般来说有感染史的再打一剂加强剂，基于我这种情况我咨询了一下医生，建议我最好三针再打一次，所以我就是那个感染了个寂寞的人
-
-康复之后的六个月开始打第一针，科兴副作用有点强，打完之后非常疲惫且头痛，头痛欲裂的头痛，就像又冲击钻那样一直突突突突的痛，感受到神经的跳动。当时打完的半小时没啥事就离开注射点，结果吃完饭就开始疲惫犯困头痛烦躁，痛到睡也睡不着，也不敢吃药，就这样持续一天过去…还有一点低烧，但是我看说明书是很常见的症状
-
-关于打科兴会瘦这回事，确实瘦了两斤，但我估计是因为头痛吃不下东西瘦的，希望第二针反应别那么强烈
-
-#北京科兴中维#科兴新冠疫苗#打新冠疫苗第一针#打新冠疫苗#新冠#新冠康复者
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2084.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2083.png)图片来源：小红书
-参考链接：[新冠康复后科兴第一针副作用明显](https://www.xiaohongshu.com/discovery/item/6241407b000000000102fc6e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068530)
-
-发布：*tianzhihuan*
+发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

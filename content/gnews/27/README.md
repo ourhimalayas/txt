@@ -2,114 +2,157 @@
 ---
 
 
-## 乌克兰第一夫人奥莱娜·泽连斯卡谈被围困的生活——以及她的国家如何向前发展
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361973/)
+## 2022/04/17 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2362593/)
 
-**翻译：【日本东京方舟农场】流浪的蝼蚁**
+### 环球：枢密院十号：“俄罗斯的复仇”！
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/59db790d-29b5-43e2-a54e-e73f64a53649.jpg?asset_id=3b919cd3-2b42-4e38-9032-f99ff59b2e69&amp;img_etag=%222a846075ceca42126f4ed7c45c5e68bf%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/59db790d-29b5-43e2-a54e-e73f64a53649.jpg?asset_id=3b919cd3-2b42-4e38-9032-f99ff59b2e69&amp;img_etag=%222a846075ceca42126f4ed7c45c5e68bf%22&amp;size=1024)网络图片
+**评论：**对基辅茹良斯基机械制造厂的攻击俄罗斯自己不好意思承认是为莫斯科号沉没复仇，中共黄俄孙子倒是迫不及待地宣传复仇的说法，这让它们俄爹的脸往哪里搁。
 
-受访者：Olena Zelenska（第一夫人奥莱娜·泽连斯卡）
+### 人民网：上海疫情防控关键期 交通运输业全力以赴保供稳链。
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/35a1af92-607f-43ac-8b0c-76d40051100f.jpg?asset_id=d41a8e9d-bb45-4c3b-93f5-a78f59b2364e&amp;img_etag=%2260de09e5097fceb86ace226bd58d0106%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/35a1af92-607f-43ac-8b0c-76d40051100f.jpg?asset_id=d41a8e9d-bb45-4c3b-93f5-a78f59b2364e&amp;img_etag=%2260de09e5097fceb86ace226bd58d0106%22&amp;size=1024)REUTERS
+**评论：**中共窑子媒体又在一本正经地胡说八道，正是在它们全力以赴保供稳链后，上海市民才过上了三餐不继忍饥挨饿的美好生活。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-11.jpg)（图片来源：vogue.com）
+### 人民网：人民银行降准0.25个百分点 释放长期资金约5300亿元
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/b870441c-d0f8-49ce-b7e7-2b3f7f9e02ed.jpg?asset_id=f9ec3a00-d836-4fe7-99b7-4087be615031&amp;img_etag=%229d40db89a600a33da020d5f24723d937%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/b870441c-d0f8-49ce-b7e7-2b3f7f9e02ed.jpg?asset_id=f9ec3a00-d836-4fe7-99b7-4087be615031&amp;img_etag=%229d40db89a600a33da020d5f24723d937%22&amp;size=1024)网络图片
+**评论：**没弄清楚消费基础，老百姓手里没钱，调啥也没用，调来调去都是纸面上的数据拆了东墙补西墙而已。
 
-采访者：Taylor\_Antrim of Vogue（时尚杂志的泰勒·安特里姆）
-2022年4月8日**
-**
-**Vogue：你能描述一下入侵的最初日子吗？你记得最清楚的是什么？**
+### 人民网：四川省成都市纪委监委通报5起领导干部酒驾醉驾典型案例
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/f38f6655-f488-48e3-bcf1-1265fa30acca.jpg?asset_id=5221d33c-65ba-45a2-8634-31664b0c014f&amp;img_etag=%226a2c17d05274d786a84fee0ef41b2e72%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/f38f6655-f488-48e3-bcf1-1265fa30acca.jpg?asset_id=5221d33c-65ba-45a2-8634-31664b0c014f&amp;img_etag=%226a2c17d05274d786a84fee0ef41b2e72%22&amp;size=1024)网络图片
+**评论：**总算是有不算是贪污腐败的官员可以报道了。不过这次的负面效应更大，无视法纪！
 
-奥莱娜·泽连斯卡：我很清楚地记得是怎么开始的。那是一个正常的工作日和晚上：孩子们放学回来，做着日常的家务，为明天上学做准备……我们一直很紧张。到处都在谈论可能发生的入侵。但直到最后一刻，人们都无法相信这会发生在……二十一世纪？在现代世界？我在凌晨 4 点到 5 点之间的某个时间醒来，因为一声巨响。我没有立即意识到这是一场爆炸。我意识不过来它可能是什么。我丈夫不在床上。但是当我起床时，我立刻看到他已经穿好衣服，像往常一样穿着西装（这是我最后一次看到他穿着西装和白衬衫——从那时过后，就只有军服了）。“开始了。” 他就只这么说。
+### 人民网：上海15日新增本土感染者“3590+19923”
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/418b06df-f2b6-44dc-b630-459061cf2e85.jpg?asset_id=566feed4-6535-40ed-b994-af2d8f3d5613&amp;img_etag=%22231b28360d24c62b7e42718cc3f83240%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/418b06df-f2b6-44dc-b630-459061cf2e85.jpg?asset_id=566feed4-6535-40ed-b994-af2d8f3d5613&amp;img_etag=%22231b28360d24c62b7e42718cc3f83240%22&amp;size=1024)BBC 视频截图
+**评论：**封，还会接着封。小资生活的上海都扛得住压，挨得了饿，那么接下来必将全国推广。以疫为牢，以疫维稳，封到年底二十大。
 
-我不会说有恐慌。也许是混乱。“孩子们该怎么办？” “等等，”他说，“我会告诉你的。以防万一，收集必需品和文件。” 说完，他出门了。
+### 环球网：俄罗斯总统普京与沙特王储通电话 就乌克兰和也门局势交换意见
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/521574f9-5bf4-4784-b9d0-d096b15b4ebf.jpg?asset_id=cef16d11-7cc6-4f1f-8940-6f743c377aee&amp;img_etag=%224ec749498bdd2a34fde9b09b61cc6965%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/521574f9-5bf4-4784-b9d0-d096b15b4ebf.jpg?asset_id=cef16d11-7cc6-4f1f-8940-6f743c377aee&amp;img_etag=%224ec749498bdd2a34fde9b09b61cc6965%22&amp;size=1024)网络图片
+**评论：**沙特的电话最近很忙，习特勒讲完，普特勒讲，这是要把沙特往风口浪尖推呢？还是怕沙特反水呢？石油这场戏要是歇菜了，基本上就不用玩了。
 
-**Vogue：你儿子 9 岁，你女儿 17 岁。你怎么对他们解释现在的情况？**
+### 央视网：上海经信委发布工业企业复工复产疫情防控指引
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/b3efe5e7-6bc4-4a96-b625-b9fb060dbd21.jpg?asset_id=1a7caede-f967-4ed6-9f56-73539630dd86&amp;img_etag=%22ee8c57adbddc5529ad19ce59113bf8e3%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/b3efe5e7-6bc4-4a96-b625-b9fb060dbd21.jpg?asset_id=1a7caede-f967-4ed6-9f56-73539630dd86&amp;img_etag=%22ee8c57adbddc5529ad19ce59113bf8e3%22&amp;size=1024)网络截图
+**评论：**是经济扛不住了，上海不得不复工了？但看繁琐的程序，就是复个工，也得举着清零的旗帜。
 
-没有必要向孩子解释任何事情。他们看到了一切，就像乌克兰的每个孩子一样。当然，这不是孩子们应该看到的——但孩子们非常诚实和真诚。你无法对他们隐瞒任何事情。因此，最好的策略是真理。所以，我们已经和我的女儿和儿子讨论了一切。我试图回答他们的问题。我们谈了很多，因为要说出何种伤害，不要在自己内心保持沉默——这是一种行之有效的心理策略。很有用。
+### 每日经济新闻：哈尔滨银行原行长吕天君被查，15天前刚辞职。
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/4f2dcabe-0049-4acd-8528-6bd70a8e7c22.jpg?asset_id=85a57fbf-d316-4d34-b032-060087ab3bce&amp;img_etag=%220f9eb4f693970c156324d89bb4af3cae%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/4f2dcabe-0049-4acd-8528-6bd70a8e7c22.jpg?asset_id=85a57fbf-d316-4d34-b032-060087ab3bce&amp;img_etag=%220f9eb4f693970c156324d89bb4af3cae%22&amp;size=1024)网络图片
+**评论：**地方银行的这些白手套们替权贵们来掏空储蓄本金以后，还要被抓出来顶罪，榨干最后一点使用价值。
 
-**Vogue：你显然一直在考虑你家人的安全——即使你已经看到对普通乌克兰公民实施暴力。你能描述一下你的个人感受和市民感受吗？
-**
-战争立即将个人和公民结合在一起。而这大概就是袭击我们的暴君的致命错误吧。我们首先都是乌克兰人，然后才是其他一切。他想分裂我们，粉碎我们，挑起内部对抗，但对乌克兰人来说是不可能的。当我们中的一个人受到折磨、强奸或杀害时，我们会觉得自己都在遭受折磨、强奸或杀害。我们不需要宣传来激起公民意识和做出抵抗。正是这种我们都感受到的个人愤怒和痛苦，立即激发了行动的渴望，抵抗侵略，捍卫我们的自由。每个人都尽其所能做到这一点：手中拿着武器的士兵，继续教书的老师，在攻击下进行复杂手术的医生。在野蛮人试图接管我们的国家时，所有人都成为了志愿者——艺术家、餐馆老板、理发师。我已经看到这在我们的孩子心中激起了最深的爱国情怀。不仅是我的孩子，还有乌克兰的所有孩子。他们将成长为爱国者和祖国的捍卫者。
+### 银保监会：因疫情还汽车贷款暂时有困难的 应视情合理给予延期、展期或续贷。
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/3685206a-06d7-4a8f-abb2-4603acc52eee.jpg?asset_id=654659b1-676e-48f7-ace6-e630be2faa50&amp;img_etag=%2252cc07e302cb11b781bc494bf0fb1e50%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/3685206a-06d7-4a8f-abb2-4603acc52eee.jpg?asset_id=654659b1-676e-48f7-ace6-e630be2faa50&amp;img_etag=%2252cc07e302cb11b781bc494bf0fb1e50%22&amp;size=1024)FOTOLIA
+**评论：**就没有提一句减免的话，哪怕减免一点利息也算是真的想为民众办一点事，恐怕最后到认定环节，它们会认定没有符合情理延期、展期的人。
 
-**Vogue：你是如何应对情绪的？在此期间，您是否有任何朋友或支持的来源？在战争的最初几周，你和你丈夫有多少联系？现在呢？**
+### 新浪：互联网大厂裁员，背后什么风向？
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/3ff35f7d-91c4-42c4-9179-e15627d72888.jpg?asset_id=9afc3240-39a4-4c53-b682-7d80192e2f66&amp;img_etag=%22248011f9af3a326d92492df745282123%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/3ff35f7d-91c4-42c4-9179-e15627d72888.jpg?asset_id=9afc3240-39a4-4c53-b682-7d80192e2f66&amp;img_etag=%22248011f9af3a326d92492df745282123%22&amp;size=1024)网络图片
+**评论：**都在说自己是常规人事调整，说白了不就是没钱了吗，有钱谁裁员，当初招来干嘛的？
 
-一开始没有时间去感慨。我必要照顾孩子，关注他们的情绪状态。所以我试着自信、微笑、精力充沛，向他们解释说，是的，有必要去地下室，这就是为什么你不能开灯的原因。我试着乐观地回答他们的问题，“我们什么时候能见到爸爸？” “很快。” 在最初的日子里，我希望我们可以和他在一起。但是总统办公室已经变成了一个军事设施，我和我的孩子们被禁止呆在那里。我们被命令搬到一个安全的地方——如果，在乌克兰，现在还可以找到一个安全的地方……从那以后，我们一直只通过电话与Volodymyr联系。
+### 新浪：俄罗斯宣布对英国首相进行制裁
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/35e0478b-b41b-4e35-9803-1d7c6567cee2.jpg?asset_id=1bd7d0ca-d689-4bec-8136-19850089d57c&amp;img_etag=%2205634a05561a26333ef59b1aeb8b5b2a%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/35e0478b-b41b-4e35-9803-1d7c6567cee2.jpg?asset_id=1bd7d0ca-d689-4bec-8136-19850089d57c&amp;img_etag=%2205634a05561a26333ef59b1aeb8b5b2a%22&amp;size=1024)网络图片
+**评论：**只因英国将向乌克兰提供120辆装甲车和新的反舰导弹系统，俄罗斯如果输了，到底谁制裁谁呢？
 
-**Vogue：在俄罗斯入侵时，贵国的女性尤其面临哪些挑战？**
+### 新浪：福奇：群体免疫可能不适用于新冠病毒
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/d9ba5e58-a2ed-4b69-8d8d-65f759794f22.jpg?asset_id=4912fc6a-9fe8-41c5-9d9b-ba28389340e8&amp;img_etag=%22449fb91f881716119b54f7537ecb0b2f%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/d9ba5e58-a2ed-4b69-8d8d-65f759794f22.jpg?asset_id=4912fc6a-9fe8-41c5-9d9b-ba28389340e8&amp;img_etag=%22449fb91f881716119b54f7537ecb0b2f%22&amp;size=1024)视频截图
+**评论：**党媒有些开始卸磨杀驴的迹象了，注意福奇可是美国人，这是要开始煽风点火了。
 
-我希望世界上的所有人都明白，乌克兰女性过着和平、现代的生活，就像每个国家的《Vogue》读者同样的生活方式。事实上，他们是你的读者，因为有《Vogue》乌克兰版。他们并没有为导弹袭击准备防空洞。但从头几天开始，在俄罗斯导弹开始袭击不同城市的住宅楼后，很明显俄罗斯对和平生活并不会表示仁慈。所有乌克兰人都不再感到安全。我们必须学习如何在警笛声中迅速召集亲人，然后下到地铁或最近的地下室。
+### 新浪：解放军进行对海突击演习，看佩洛西还去不去台湾！
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/a44f40f0-0b13-4116-93dd-6593b54be2fa.jpg?asset_id=ea0d3fc3-d9f7-49fd-b25f-f3c29c6fbc7a&amp;img_etag=%229fd9ef727c35cc7bd4bab117415f542b%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/a44f40f0-0b13-4116-93dd-6593b54be2fa.jpg?asset_id=ea0d3fc3-d9f7-49fd-b25f-f3c29c6fbc7a&amp;img_etag=%229fd9ef727c35cc7bd4bab117415f542b%22&amp;size=1024)PICTURE ALLIANCE
+**评论：**看不懂，在自己家打孩子，想表明一个什么态度给人看？是给别人看，还是给自己家孩子看？战狼呢？虽远必诛呢？登台之日就是收台之时呢？
 
-到战争的第三天，一个乌克兰孩子出生在一个防空洞里。在那之后，成千上万的妇女不得不在防空洞里分娩，因为我们已经看到像在马里乌波尔的妇产医院的下场。被俄罗斯人轰炸。治疗儿童也是个问题，尤其是那些患有严重疾病的儿童。几个月来，母亲和祖母与这些孩子住在医院里。现在我们都必须把他们带到国外接受治疗。
+### 新浪：Twitter正式启动“毒丸”防御 抵制马斯克430亿美元的敌意并购
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/95fbd11f-357f-4569-a5a3-7628ca2bfda1.jpg?asset_id=4868c9a6-851d-4b87-af08-e9331d29756c&amp;img_etag=%2243bced37c57f7d2cdc534ae3b9c5ea27%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/95fbd11f-357f-4569-a5a3-7628ca2bfda1.jpg?asset_id=4868c9a6-851d-4b87-af08-e9331d29756c&amp;img_etag=%2243bced37c57f7d2cdc534ae3b9c5ea27%22&amp;size=1024)REUTERS – Hannibal Hanschke
+**评论：**马斯克说：“这不是一个赚钱的方式。我强烈的直觉是，拥有一个最受信任和广泛包容的公共平台，对文明的未来极其重要。”有多少人利用媒体在赚钱，又有多少人在利用媒体作恶，而又有多少人能真正为人类未来着想。相信大家自有答案，扎克伯从始至终都在为了钱活着，纳粹党从生下来那天起就在利用媒体欺骗，而马斯克，新中国联邦才是那真正为人类未来着想的。
 
-妇女不得不带着孩子和老人离开被占领的城市——比如布查和戈斯托梅尔，冒着生命危险——带着孩子和老人，通常用步行，一般没有男人陪伴，因为男人不会被占领者释放。3 月初，全世界从目睹人们从 Irpin 市穿过一座爆炸的桥看到了这一点。
+### 网易新闻：上海一盒马店40多人阳性？团购“盒马”套餐却拿到辽宁捐赠的物资？真相→
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/2fbc96a2-a1b5-4714-9cfc-2885535f567a.jpg?asset_id=fa506126-8c63-4ba9-a038-37a10a57a79f&amp;img_etag=%22e8271a2aac6e7bef9dc6f9d4228d1c3b%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/2fbc96a2-a1b5-4714-9cfc-2885535f567a.jpg?asset_id=fa506126-8c63-4ba9-a038-37a10a57a79f&amp;img_etag=%22e8271a2aac6e7bef9dc6f9d4228d1c3b%22&amp;size=1024)网络图片
+**评论：**近日来对市民意见反应最迅速，最及时的就是上海辟谣平台了，什么都能了解，什么都知道，就是只辟谣，不解决任何问题
 
-现在，随着这些城市的空置，我们对乌克兰妇女所面临的情况有了更多了解：完全不安全，暴力威胁。国际调查必须在这里有发言权。
+### 搜狐新闻：关于梅陇镇保障物资中发现问题猪肉的情况说明
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/0ed19cef-3a87-4e0e-9f7b-b9fbf952b4c6.jpg?asset_id=55647c69-2b31-44f8-9864-56bedd15c2cf&amp;img_etag=%226354dbc46bd284fe0aee200d6a5e57f9%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/0ed19cef-3a87-4e0e-9f7b-b9fbf952b4c6.jpg?asset_id=55647c69-2b31-44f8-9864-56bedd15c2cf&amp;img_etag=%226354dbc46bd284fe0aee200d6a5e57f9%22&amp;size=1024)网络图片
+**评论：**每次事件发生，都是企业的责任，政府永远没有责任，哪怕是管理不善的责任也没有。 这就是中共领导的上梁不正下梁歪的政府。
 
-在仍然被占领的赫尔松、梅利托波尔、别尔江斯克等城市，还有多少妇女？她们甚至不能告诉他们的亲人发生了什么事，因为没有任何联系，否则她们所做的任何接触都会被追踪。
+### 联合新闻网：再打虎！北京市政协副主席于鲁明被查
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/958fff39-f2c3-40f4-9692-8b61cd5357a4.jpg?asset_id=d36526a4-db7e-4fe8-adbb-61a0439f866f&amp;img_etag=%2267cbed0860367edbbc767aa668ea2eaa%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/958fff39-f2c3-40f4-9692-8b61cd5357a4.jpg?asset_id=d36526a4-db7e-4fe8-adbb-61a0439f866f&amp;img_etag=%2267cbed0860367edbbc767aa668ea2eaa%22&amp;size=1024)网络图片
+**评论：**不用看，肯定是严重违法违纪，不会提贪污腐败
 
-在马里乌波尔的废墟中，有数以万计的妇女带着孩子。人们只能想象他们正在经历一场噩梦，一个月来一直在寻找食物，因为不允许人道主义援助进入。
+### 联合新闻网：陆财政部副长：三重压力仍延续 避免出台收缩效应政策
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/010dd41a-08f5-48b4-b851-41a185803f62.jpg?asset_id=bacc8af0-8c29-44e7-b27a-8a210a423291&amp;img_etag=%22fc1565706f594b1d30d1e05ac3e9c209%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/010dd41a-08f5-48b4-b851-41a185803f62.jpg?asset_id=bacc8af0-8c29-44e7-b27a-8a210a423291&amp;img_etag=%22fc1565706f594b1d30d1e05ac3e9c209%22&amp;size=1024)陆财政部副部长廖岷16日在2022年清华大学五道口全球金融论坛致词。 （取自澎湃新闻）
+**评论：**以疫维稳，以疫为牢，以地区封锁的空间换经济暴雷的时间。
 
-大约有 400 万妇女和儿童移居国外。作为移民，无论是精神上还是身体上都很难。因为你必须重新开始。
+### 联合新闻网：坚持「动态清零」 大陆4月已有12地封控
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/fa63418d-0d72-4a52-b5f3-488d96748871.jpg?asset_id=4cbc3711-8981-45ca-b113-4d69c3c147dd&amp;img_etag=%2227431f590701f713425367f8c34645bd%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/fa63418d-0d72-4a52-b5f3-488d96748871.jpg?asset_id=4cbc3711-8981-45ca-b113-4d69c3c147dd&amp;img_etag=%2227431f590701f713425367f8c34645bd%22&amp;size=1024)中共官媒统计，今年4月以来已有12地实施封控，图为西安。 （图／曲江发布公众号）
+**评论：**反抗的声音少之又少，接下来将会有更多的地方封控，等快要饿死的时候不知道有没有力气反抗。教练爆料中南坑老杂毛的话，死人怎会说话，怎会告诉人真相？
 
-当你甚至不能穿你的私人衣服时，生活是什么感觉？如何向孩子解释为什么她不能睡在自己的床上？这是您不希望对任何人进行的测试。
+### 联合新闻网：郑州富士康厂遭交通管控14天 恐影响苹果供应链
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/552f65f3-904a-471f-85a2-b01c5c3ee01f.jpg?asset_id=43a67ec0-92c3-44e5-b600-14bbcdeef403&amp;img_etag=%229cf0a26945dcd88f90353aad50090b68%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/552f65f3-904a-471f-85a2-b01c5c3ee01f.jpg?asset_id=43a67ec0-92c3-44e5-b600-14bbcdeef403&amp;img_etag=%229cf0a26945dcd88f90353aad50090b68%22&amp;size=1024)网络图片
+**评论：**网传iPhone14可越过运营商直接链接星链，难道是怕这个？
 
-**Vogue：有没有一个特定的女人的故事——在这么多的故事中——你可以讲述的？**
+### 联合新闻网：封城重创企业营运 日本总领事致函上海副市长关切
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/90705b5d-9a86-4867-8b5c-7802632d281b.jpg?asset_id=18bdd08e-4de1-4fed-8340-ced9c2339a54&amp;img_etag=%226997e41905750aa5c23122fbfd5fcb5c%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/90705b5d-9a86-4867-8b5c-7802632d281b.jpg?asset_id=18bdd08e-4de1-4fed-8340-ced9c2339a54&amp;img_etag=%226997e41905750aa5c23122fbfd5fcb5c%22&amp;size=1024)受上海封城影响，无印良品已下调全财年（2021年9月至2022年8月）财测。图为上海淮海中路一家无印良品早前资料照。记者林则宏／摄影
+**评论：**这个时候还在祈求纳粹党的非傻即坏。这次可不一定能惯着洋大人了。
 
-我可以讲几十个这样的故事。例如，在基辅地区被占领后，我们听到了一位医生 Iryna Yazova 的故事，她留在了布查。她救出了因俄罗斯枪伤而寻求庇护和治疗的邻居和陌生人。她对他们进行麻醉和包扎。她甚至帮助在着火的房子里接生了一个婴儿——没有光、水和煤气。现在，被她拯救的邻居们讲述了她日常勇敢行为的故事。
+### 联合新闻网：西安又封 非必要不外出 市民深夜抢粮
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/aaf960f0-2458-4077-ab5b-6c9b7dfabc24.jpg?asset_id=833a29d9-85b2-460e-b5c5-a44522e4d8b1&amp;img_etag=%2287066d79b9cdcd5452ba11e9655ba55c%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/aaf960f0-2458-4077-ab5b-6c9b7dfabc24.jpg?asset_id=833a29d9-85b2-460e-b5c5-a44522e4d8b1&amp;img_etag=%2287066d79b9cdcd5452ba11e9655ba55c%22&amp;size=1024)西安市民15日深夜排队购买物资，不少货架被扫空。 （取材自微博）
+**评论：**看形势“习太阳”是铁了心了要折腾下去了。
+
+### 联合新闻网：北京民众预防囤粮 怕和上海封城一样争抢食物
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/3aada44a-9923-4884-a310-252379a307fb.jpg?asset_id=ce30608e-14e4-48e5-a2f7-439fe4999ff3&amp;img_etag=%226febf77ad3c5d87ae04743fb713aa403%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/3aada44a-9923-4884-a310-252379a307fb.jpg?asset_id=ce30608e-14e4-48e5-a2f7-439fe4999ff3&amp;img_etag=%226febf77ad3c5d87ae04743fb713aa403%22&amp;size=1024)北京的外卖骑手在装车，摄于周二。(photo:NYTimes)
+**评论：**不反抗，一样的结果。
+
+### 联合新闻网：财损巨大！旗舰「莫斯科号」黑海沉没 俄军损失超过7.5亿美元
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/a8e96c25-304f-441e-9fc0-134fb8de3735.jpg?asset_id=16e8c4b4-d818-413f-9c08-bbb308bdef77&amp;img_etag=%22d67ae12a7118dbe9eb5dc86e7199d421%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/a8e96c25-304f-441e-9fc0-134fb8de3735.jpg?asset_id=16e8c4b4-d818-413f-9c08-bbb308bdef77&amp;img_etag=%22d67ae12a7118dbe9eb5dc86e7199d421%22&amp;size=1024)14日在黑海沉没的俄国海军飞弹巡洋舰「莫斯科号」。美联社
+**评论：**俄国黑海舰队旗舰「莫斯科号」（Moskva）沉没，财经杂志《富比世》乌克兰版估计，俄军因此损失7.5亿美元
+
+### 联合新闻网：乌俄战争50天 基辅再现近千平民遗体多遭处决
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/d7ec4d3c-7039-4f4d-b995-d4dd1e8f3022.jpg?asset_id=b47721e7-560c-4a5d-b7cf-c2ca1d0852d9&amp;img_etag=%22ce1faec076c8a6071b289cc836ac0bfa%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/d7ec4d3c-7039-4f4d-b995-d4dd1e8f3022.jpg?asset_id=b47721e7-560c-4a5d-b7cf-c2ca1d0852d9&amp;img_etag=%22ce1faec076c8a6071b289cc836ac0bfa%22&amp;size=1024)乌克兰警方14日在基辅附近一个村庄挖掘出遇难平民的尸体。美联社
+**评论：**普京这次侵略的独裁决断，会将俄罗斯引向纳粹反人类的路，毕竟动手杀平民的是俄罗斯军队的军人。
+
+### 联合新闻网：前白宫国安高层：习近平挺俄的底线是防止普京失去权力
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/61706a3b-d64c-4136-a11d-f7b9028769a4.jpg?asset_id=8d1c9241-e67c-458a-a3f5-cace5402512d&amp;img_etag=%226b97beeaa5da4c25a36ee406d0dd16b1%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/61706a3b-d64c-4136-a11d-f7b9028769a4.jpg?asset_id=8d1c9241-e67c-458a-a3f5-cace5402512d&amp;img_etag=%226b97beeaa5da4c25a36ee406d0dd16b1%22&amp;size=1024)美聯社
+**评论：**看看人类独裁者的下场，不都是带着政权，政党上路的吗？独裁没有第二条路，一步走错了只有死路一条。
+
+### 美国之音：《台湾关系法》生效43周年 台美关系正值最佳之时
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/4b9d7c89-0908-4ff2-80d5-45e0963e7e56.jpg?asset_id=66c9c8b5-c778-473e-aa0d-22a45cff60f0&amp;img_etag=%224304e0c93cab4a80ae3bcef25f8323c0%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/4b9d7c89-0908-4ff2-80d5-45e0963e7e56.jpg?asset_id=66c9c8b5-c778-473e-aa0d-22a45cff60f0&amp;img_etag=%224304e0c93cab4a80ae3bcef25f8323c0%22&amp;size=1024)《台湾关系法》第一页和最后一页的复印。（图片来源：美国国家档案馆）
+**评论：**目前，台湾关系法是美对台最大的支持和保障，不过，也仅限于物资和战备，所以台必须在人民战争动员方面做好充分准备，以做最坏的打算。
+
+### FT中文网：中国下调银行存款准备金率，以应对新冠疫情对经济的影响
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/e2f21155-306e-4942-8bdf-71a07779019b.jpg?asset_id=0075527d-3d5f-4554-b62e-484e7aa7b1a6&amp;img_etag=%221f478c0c2cbe0c72b4cf398b4c4fea07%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/e2f21155-306e-4942-8bdf-71a07779019b.jpg?asset_id=0075527d-3d5f-4554-b62e-484e7aa7b1a6&amp;img_etag=%221f478c0c2cbe0c72b4cf398b4c4fea07%22&amp;size=1024)网络图片
+**评论：**虽然应对经济颓势下调准备金率，但中国人民银行在应对资本外流和经济增长放缓的同时，没有下调关键利率，也是害怕外资的快速外流。
+
+### Twitter：吉林政府发文，做好准备，不再通知，直接封城
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/54d638de-6c56-4734-81a2-3100951eb230.jpg?asset_id=afca599a-119d-4211-ae1a-e337ac795edd&amp;img_etag=%22d14444efb0946fc77a50a21dead2ee78%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/54d638de-6c56-4734-81a2-3100951eb230.jpg?asset_id=afca599a-119d-4211-ae1a-e337ac795edd&amp;img_etag=%22d14444efb0946fc77a50a21dead2ee78%22&amp;size=1024)推特截图
+“网友转发教练盖特：4月15号：希望所有的吉林省的乡亲们，度过这艰难的一关，万佛万神保佑吉林！**评论：**看来地方政府也不知道中央什么时候要疯，什么时候要封。”
+
+### Twitter：不止一种人民币
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/4e750d94-69bc-49e2-b782-067d3e59cce0.jpg?asset_id=cacbf016-38ba-4a30-86ef-e2a5cbb16ec6&amp;img_etag=%22e8aeb355c1e8237c935fcd5fd8246550%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/4e750d94-69bc-49e2-b782-067d3e59cce0.jpg?asset_id=cacbf016-38ba-4a30-86ef-e2a5cbb16ec6&amp;img_etag=%22e8aeb355c1e8237c935fcd5fd8246550%22&amp;size=1024)推特截图
+**评论：**3种人民币的价值比，海外人民币：0.25，人民币：1，上海人民币：3
+
+### Twitter：在上海，現在500塊錢可以買些什麼
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/84d01ee3-a9f8-4149-9663-04763fa23e86.jpg?asset_id=e09d4522-6b1b-46a4-b005-2b406db8c20c&amp;img_etag=%22e61b610a666ace437001bf7d2877e3b7%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/84d01ee3-a9f8-4149-9663-04763fa23e86.jpg?asset_id=e09d4522-6b1b-46a4-b005-2b406db8c20c&amp;img_etag=%22e61b610a666ace437001bf7d2877e3b7%22&amp;size=1024)推特截图
+**评论：**除，境外人民币，境内人民币，降维之外。境内人民币又细分为，未封闭区人民币，封闭区人民币，深度降维。之后，封闭区变换，循环操作，面对之前可预见性的未来经济危机和爆雷，以空间换时间，这种操作美其名曰「动态清零」。
+
+### Twitter：新的COVID-19亚变种，即Omicron XE，已经在澳大利亚出现
+[![](https://express.adobe.com/page/w0vTeqL6xagCZ/images/653b09b7-a247-4175-bbbf-e346569faee8.jpg?asset_id=39d15730-6535-4b35-aede-9e46d313a9ea&amp;img_etag=%22fd3852829224c8b6eee1a243965b088e%22&amp;size=1024)](https://express.adobe.com/page/w0vTeqL6xagCZ/images/653b09b7-a247-4175-bbbf-e346569faee8.jpg?asset_id=39d15730-6535-4b35-aede-9e46d313a9ea&amp;img_etag=%22fd3852829224c8b6eee1a243965b088e%22&amp;size=1024)推特截图
+**评论：**网友信息：日本、澳大利亚出现COVID-19亚变体Omicron XE，合众国际社4月15日报道–澳大利亚官员周五证实，一种新的COVID-19亚变种，即Omicron XE，已经在澳大利亚出现了。
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*收集：加油干吧总加速师，Redsparrow，YueShangLiuShao | 校对：文风-NFSC | PAGE：Doremi Rose*
+
+（世界协调时）部分信息收集于网络世界的各方，请自行甄别
 
 
-还有基辅的一位母亲奥尔加的故事，当火箭击中她的公寓楼时，她掩护了她 2 个月大的女儿。或者切尔尼戈夫孤儿院老师娜塔莉亚的故事，她和 30 个孩子（其中一个是她自己的孩子）住在地下室。她喂饱并照顾他们，然后找到一辆车，在战火中（因为切尔尼戈夫从一开始就受到战略），把他们带到了一个安全的地方。
 
-这样的故事几乎和乌克兰人一样多。我开通了一个Telegram 频道，邀请乌克兰人分享他们的战争经历。每一个个人故事都是我们国家的历史。
+* * *
 
-**Vogue：乌克兰城镇的破坏是可怕的。有没有让你印象深刻的，在早期攻击就表明普京和俄罗斯军队想做到什么程度？是对马里乌波尔妇产医院的袭击吗？ 有没有你觉得很早就越界的事件？**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-你所说的那条界限在第一天就被越过了——第一天！俄罗斯当时（和现在一样）在说它只针对军事地点时撒了谎。事实上，在 2 月 24 日，他们的袭击杀死了 Chuguev 一名名叫 Svetlana 的民用天然气服务调度员，她只是在做她的工作。那是第一天！
 
-在接下来的日子里，我们失去了孩子。弹片让他们命丧家乡。我们失去了200多名儿童。
+编辑：【英国伦敦喜庄园编辑部】
 
-因此，每个案例对我们来说都是指示性的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-封锁、摧毁马里乌波尔是我们可怕的痛苦。基辅地区变得可怕——这就是我们看到的俄罗斯军队撤退的情况。世界已经学会了布查这个名字。这是首都附近曾经美丽的城镇之一，但在基辅地区的数十个村庄和城镇中也可以看到同样的恐怖情况。在街上被杀的人。不是军人——平民！游乐场附近的坟墓。我甚至无法描述它。这让我无语。但有必要关注它。
 
-我希望我们不是唯一看到俄罗斯发出的信息的人。这条信息不仅是给我们的。这是他们向世界传达的信息！这可能会发生在俄罗斯不喜欢的任何国家身上。
-
-**Vogue：你和你的丈夫已经恳求各国采取更多措施来应对这次入侵——特别是你呼吁美国设立禁飞区。您仍然认为美国采取的行动是正确的吗？**
-
-是的，我们已经正式和非正式地询问过。就像每个乌克兰人一样，在他们的社交网络上，在抗议中。当俄罗斯对马里乌波尔的围攻开始时，很明显俄罗斯不仅在发射火箭，而且还在空中轰炸。其中一枚炸弹落在了藏有一千多人的剧院上。大约三百人死在那里。例如，我知道一个失去儿子、女儿和孙女的家庭。只有祖父母和大女儿还活着。之后他们该怎样的生活下去？
-
-我们要求关闭我们上方的天空，这样乌克兰人就不会灭亡。但北约认为这是与俄罗斯的直接冲突。那么，我现在可以说只有俄罗斯应该为更多的死亡负责吗？修辞性的问题。你问这对美国来说是否正确。我说——这不仅适用于美国——对侵略者的行动给出一个强硬的答案，否则侵略者将被鼓励采取行动。俄罗斯知道西方不会遮天蔽日，这一事实助长了它犯下的暴行。民主世界必须团结起来，做出强硬的回应，从而表明，在二十一世纪，没有杀戮平民和侵占外国领土的地方。我看到一幅北约和世界组织的漫画，看着一座房子倒塌，上面写着乌克兰。也许这有点夸张——因为乌克兰确实有武器。但我们也需要保护！确实，这种保护是给予那些出国的人的。我们数以百万计的妇女和儿童现在得到了欧盟政府和数百万普通民众的帮助。我对此无限感激。
-
-**Vogue：您如何看待俄罗斯军队最近的举动。您是否看到任何迹象表明俄罗斯愿意降级？**
-
-这里重要的不是我的想法，而是真实发生的事情。老实说，乌克兰没有人相信侵略者的任何言论。降级尚不可见。俄军撤出基辅地区，但加强了对顿涅茨克和敖德萨地区的进攻。
-
-**Vogue：普通公民可以做些什么来帮助乌克兰人？**
-
-最重要的是不要习惯战争——不要把它变成数据。继续抗议，继续要求你们的政府采取行动。乌克兰人和你一样，但就在一个多月前，我们的生活发生了翻天覆地的变化。乌克兰人不想离开家园。但他们已经没有家。乌克兰人长期以来一直在欧洲免签证——许多人可以旅行，而且也旅行过。我们大多数人以前都出过国。但他们并没打算成为难民。所以：把它们当作你自己的一员。这些母亲和孩子最大的梦想就是回家，与家人团聚。所以请帮助他们适应——家庭、工作、孩子们的学校——直到他们能回来。
-
-此外，世界上每个人都应该知道，俄罗斯正在世界舞台上进行一场大规模的信息战。应谨慎对待来自他们的任何信息并进行批判性思考。最近几天，我们在德国、希腊和其他国家看到了一些支持战争的亲俄行动。这些都是俄罗斯人做的。一个普通的俄罗斯人应该只为他的国家的行为，为他的军队所犯下的暴行感到羞耻。我从不要求暴力。但决不能信任那些支持战争的人。
-
-**Vogue：你现在的生活是怎样的？**
-
-我现在和其他乌克兰人一样生活。我们都有一个伟大的愿望：看到和平。我和每一位母亲和妻子一样，经常担心我的丈夫，并尽一切努力保护我的孩子们的安全。
-
-**Vogue：什么给了你希望？**
-
-我的家人——就像每个乌克兰人一样——和我的同胞：组织起来帮助军队并互相帮助的不可思议的人。现在所有乌克兰人都是军队。每个人都尽其所能。有关于祖母们为军队烤面包的故事，只是因为她们感受到了这个召唤。他们想把胜利拉得更近。
-
-乌克兰人就是这样。我们都为他们保持希望。我们为自己保持希望。
-
-**Vogue：上个月有没有一个你永远不会忘记的特定时刻？**
-
-战争开始大约一周后，我打电话四处询问我的亲戚在哪里以及他们是否还活着。一瞬间，我意识到我不知道我是否还能再见到他们——我爱的人，我心爱的人！那可能是我第一次哭——我第一次释放情绪。我受不了了。
-
-我会永远记得我的认识的人，和朋友，所有穿着军装的男人和男孩。我会永远记得我的女性朋友是多么勇敢！这些女人——在和平时期脆弱而优雅——在战火纷飞时能够坚强勇敢！他们的故事启发了我。我为他们感到骄傲。我梦想再次见到他们。
-
-（此次采访是与乌克兰版Vogue合作通过电子邮件进行的，为清晰起见，对语言进行过编辑。）
-
-原文链接：
-[https://www.vogue.com/article/ukrainian-first-lady-olena-zelenska-on-life-under-siege](https://www.vogue.com/article/ukrainian-first-lady-olena-zelenska-on-life-under-siege)
-
-校对：妙喜小油鍋
-发布：文曦
 
  
 
