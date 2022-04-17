@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 9:12 AM (UTC)`
+
+The founder of Himalaya Exchange, William Je, is interviewed by GB News about how cryptocurrencies help the rescue work in Ukraine. He particularly mentions that what happens in Ukraine today will happen in Taiwan tomorrow, as he comes from Hong Kong and has experienced all of these before. He also shows concerns that a new Axis of Evil is forming, and this Ukraine War is just the beginning of a bigger war.<br/><br/>喜联储的创始人William Je余建明接受英国GB News的采访，关于虚拟货币是怎样有助于对乌克兰的救援活动。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。<br/>
+![img](https://media.gettr.com/group37/getter/2022/04/17/09/26690006-e47a-dfbb-a096-0f633d623407/out.jpg)
+
+---
+
 `@miles 4/17/2022 8:29 AM (UTC)`
 
 【Ukraine Rescue】04/15/2022<br/>An American volunteer from “One Heart”international relief organization expresses that it’s so precious to celebrate this most important holiday of Passover in Medyka with these Jewish and Chinese people, and all others around the world. We share one mission, one faith and one heart ,we’re trying to help the Ukrainians as well as 1.4 billion Chinese who are still under slavery of Chinese Communist Party.<br/><br/>【乌克兰救援】04/15/2022 一位来自”One Heart”国际救援组织的美国志愿者表示能在梅迪卡和其他犹太人，中国人以及来自全世界的人们聚在一起庆祝逾越节这个最重要的节日她感到非常珍贵。我们有着共同的使命、信仰和心愿：都想尽力帮助乌克兰人，同时也要拯救被中共奴役的14亿中国人。<br/>
@@ -149,15 +156,6 @@
 
 🆘🇺🇦🆘🇺🇦🆘来自乌克兰救援前线 报道<br/>❣️Nicole采访来自台湾的退伍军官义工❣️<br/>台湾退伍军官义工来到新中国联邦帐篷：<br/>他在梅第卡帮助和支持乌克兰难民，现在准备去基辅送医药物资。但是他的装药品的行李袋坏掉了，文科和吴佳战友热心帮忙送给他结实的双肩背包。他那慈祥的面容充满着浓浓的爱意和谢意！<br/>--------<br/>通过前线战友辛勤地传播新中国联邦和中共邪恶的真相，相信越来越多的台湾同胞会了解现在的台湾严峻形势。上天保佑善良的台湾同胞们和家人平安！<br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
 ![img](https://media.gettr.com/group11/origin/2022/04/15/17/dea64f20-c248-006a-2607-d416b42f62d9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/15/2022 6:37 PM (UTC)`
-
-🆘🇺🇦🆘Reports from the Ukrainian Rescue Front<br/>❣️Nicole interviews volunteers from Spain❣️<br/>His first sentence shouted: "take down CCP!"<br/>He saw it at first sight: Our vest with, "Take Down the CCP!"<br/>He suddenly remembered his father.<br/>❣️ He recalled that his father, who used to be a Yugoslav party member, left the Communist Party and became a man of faith.<br/>❣️ He firmly believes that those Chinese who have joined the Communist Party will also change because in a country ruled by a Communist Party many people are forced to join the Communist Party in order to survive! In fact, the truth is that the Communist Party has kidnapped the people!<br/>❣️He sighed: How great the actions of NFSC whose objective it is to take down the CCP and rescue the Chinese people.
-![img](https://media.gettr.com/group12/origin/2022/04/15/18/5806facd-5e08-2716-e0c0-f399ae49294b/out.jpg)
 
 ---
 
