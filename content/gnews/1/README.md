@@ -2,26 +2,26 @@
 ---
 
 
-## 视频|中共启动“台湾之子”行动
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2362213/)
+## 治疗新冠的新药莫努皮拉维仅销售85天就有9人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2362220/)
 
-制作：香草山视频部
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/治疗新冠的新药莫努皮拉维仅销售85天就有9人死亡.jpg)[图片来源](https://i.gyazo.com/8c3c5c933893aeecc3ed7808eb883114.png)
 
-4月15日，郭文贵先生在盖特直播中透露，中共已经启动了其长期部署的”台湾之子“行动。
+日本4月8日，厚生劳动委员会，由山田胜彦众议院议员提问，在药机法修改之前，特例批准的新冠病毒治疗药物的验证是不是该先认证呢？尚未开展临床试验的莫努皮拉维的安全性是什么？Molnupiravir在开始销售后仅85天内，在1,526人中，有2,246起副作用报告，其中282件是严重的。另外，有9人死亡的报告，但关于这9人的详细尚未公布。这是治疗新冠病毒的口服药，由美国默沙东药厂推出，英国医药品规制当局输入。
 
-郭先生指出，倘若身处战争之中，台湾很难像如今的乌克兰一样形成严密的防御阵地，其原因在于，大量的台湾人已经为中共所收买。
+消息来源：
+[新型コロナウイルス感染症の経口抗ウイルス薬ーモルヌピラビル販売開始わずか85日間で9名死亡、詳細公表されず](https://blog.goo.ne.jp/sakurasakuya7/e/b42645ffafc591a68050cf4d41997a80)
 
-而据郭先生从多个渠道证实的信息显示，中共的“台湾之子”行动已经处于开启状态，即让台湾从内部开始动荡，包括出现停电、停水、交通瘫痪或网络停摆等问题。这之中，美国前国务卿蓬佩奥今年3月访台时，当地发生的大规模停电事故就是出于中共的手笔。
-
-郭先生表示，中共试图让台湾社会处于混乱之中，并以此趁机拿下台湾。
-
-发稿：林礼
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
