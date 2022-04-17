@@ -19,9 +19,10 @@
 
 **:arrows_clockwise: miles 已轉發**
 
-`@gtranslators_1 4/17/2022 11:47 AM (UTC)`
+`@gtranslators_1 4/17/2022 11:43 AM (UTC)`
 
-https://gettr.com/streaming/p15opbade6f
+【中文同传】NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望与和平⎢2022.04.17 EST
+![img](https://media.gettr.com/group25/origin/2022/04/17/11/e0f03b7a-88c9-1ad7-558b-264836119227/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

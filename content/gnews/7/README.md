@@ -2,35 +2,30 @@
 ---
 
 
-## 俄媒：俄罗斯人使用银联卡网购遭遇困难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363113/)
+## 樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363164/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏   
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输.jpg)
 
-整理：li yan li
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-22.png)
-据德国之声中文网报道，由于VISA、万事达（Mastercard）和美国运通（American Express）等西方金融企业发行的卡遭遇西方制裁，自3月初以来再也无法使用。再加上大部分俄罗斯金融机构被排除在SWIFT（环球银行金融电信协会）之外，使俄罗斯人难以在网上或国外用信用卡消费。转而只能依靠中国的银联信用卡。
+4月17日每经经济报报道，交通运输部将根据各省（区、市）上报数据汇总统计，受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个，占收费站总数的2.03%，比4月10日减少459个，下降了67.70%；共关停服务区76个，占服务区总数的1.15%，比4月10日减少288个，下降了79.12%。除西藏（无高速公路收费站和服务区）外的30个省（区、市）中，北京、天津、山西、内蒙古、福建、山东、河南、湖南、海南、重庆、四川、贵州、甘肃、宁夏等14个省份已无关闭关停的高速公路收费站和服务区。
 
-中国至今没有谴责俄罗斯对乌克兰的侵略，也没有参与对俄罗斯的国际经济制裁。
+中共独裁者不顾及经济与民生，用一刀切的方式，所谓的疫苗后遗症当作中共病毒疫情防控来处理，导致大半个中国交通运输和城市处于封闭状态。
 
-虽然俄罗斯人能使用中国的信用卡进行网上购物，但这只是理想情况，事实上似乎并非这么顺利。
+信息来源：
+[交通运输部：受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个](https://mi.mbd.baidu.com/r/ED7jxWvVhS?f=cp&amp;rs=909221183&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6fefe818ea7e54f5&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-在Visa和万事达卡停止在俄罗斯的业务后，许多俄罗斯公民曾希望能够用中国银联的卡片进行支付。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-俄罗斯标准银行和MTS银行近日也开始发行银联借记卡。部分俄罗斯银行还计划推出支持俄罗斯MIR支付和银联支付的“双标卡”。
 
-据德新社引用俄罗斯媒体的报道，银联卡可能无法弥补其他卡片被停用所带来的不便。据俄罗斯《生意人报》报道，大多数知名的国际网店及其合作银行一般不再接受由俄罗斯发行的卡片，包括银联卡在内。
-
-新闻链接：[俄媒：俄罗斯人使用银联卡网购遭遇困难](https://www.dw.com/zh/%E4%BF%84%E5%AA%92%E4%BF%84%E7%BD%97%E6%96%AF%E4%BA%BA%E4%BD%BF%E7%94%A8%E9%93%B6%E8%81%94%E5%8D%A1%E7%BD%91%E8%B4%AD%E9%81%AD%E9%81%87%E5%9B%B0%E9%9A%BE/a-61473994)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
