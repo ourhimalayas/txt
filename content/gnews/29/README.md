@@ -2,40 +2,31 @@
 ---
 
 
-## 中欧班列新进开通多趟列车前往俄罗斯
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2363998/)
+## 南非洪灾造成400多人死亡，救援人员正在寻找失踪者
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2364023/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1539082945.png)
-当地时间4月15日，郭先生爆料中共支援俄罗斯的物资通过火车运输抵达，因俄罗斯战事吃紧，中共的物资频繁地被运抵俄罗斯。中共是俄罗斯侵略乌克兰的背后支持者，近日为了给俄罗斯运输物资，中共一带一路重要项目中欧班列新添了多趟列车。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午11.09.56.png)图片来源：互联网
+一名高级省级官员周日表示，洪水已造成 400 多人死亡，并在夸祖鲁纳塔尔省（KZN）造成至少 100 亿兰特（6.8458 亿美元）的损失，救援人员正在搜寻失踪者和预计会有更多降雨。
 
-据中共国公开新闻显示，截止2022年1月29日，中欧班列累计开行5万列。中欧班列途径俄罗斯的三个出境口岸为阿拉山口（霍尔果斯）、二连浩特、满洲里。截至4月15日，满洲里累计开行数量达到15000列。霍尔果斯累计开行20239列，在3月19日，霍尔果斯口岸的这个数字是19526，短短27天开行达到713列，往常每月大概是500列。这只是霍尔果斯一个口岸的吞吐量。
+洪水导致数千人无家可归，电力和供水服务中断，非洲最繁忙的港口之一德班的运营中断。
 
-除了增加原有线路的开行次数，中共还增添了多条线路。在4月13日开通中豫号里海、黑海班列，当天五地六列班车齐发。直抵莫斯科的列车有，4月15日九江至莫斯科线路复航，4月6日赤峰至莫斯科首度开行。3月25日，咸宁至莫斯科首度开行。
+KZN 负责经济发展、旅游和环境事务的官员拉维皮莱说，除了刚刚超过 400 人死亡外，还有大约 40 至 50 人下落不明。
 
+谈到损失，他告诉当地电视频道 Newzroom Afrika，它“此时已超过 100 亿大关”。
 
+公共广播公司 SABC 周六公布的死亡人数为 398 人，其中 27 人失踪。阅读更多
 
-reference：
+总统西里尔·拉马福萨（Cyril Ramaphosa）的办公室在周六晚些时候的一份声明中表示，他推迟了对沙特阿拉伯的工作访问，以专注于这场灾难。拉马福萨将与内阁部长会面，以评估对危机的反应。
 
-[http://www.news.cn/world/2022-04/16/c\_1128566580.htm](http://www.news.cn/world/2022-04/16/c_1128566580.htm)
+原文链接：
 
-[https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm\_HF1s9g](https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm_HF1s9g)[https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn\_Mbv\_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo\_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA](https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn_Mbv_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA)
-
-[https://baike.baidu.com/reference/15832643/c396syJUUu-jQ\_svfwIY9Wm-5ctVFeBDk3kN\_6RZgJ3VDcBTkKi\_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA](https://baike.baidu.com/reference/15832643/c396syJUUu-jQ_svfwIY9Wm-5ctVFeBDk3kN_6RZgJ3VDcBTkKi_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA)
-
-撰稿、发布：骄子
+【1】[Rescuers hunt missing after South African floods kill more than 400](https://www.reuters.com/world/africa/rescuers-hunt-missing-after-south-african-floods-kill-more-than-400-2022-04-17/)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*编辑&发布：长岛开心*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
