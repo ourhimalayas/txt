@@ -2,34 +2,35 @@
 ---
 
 
-## 中共病毒使美国人寿命急剧下降 比预期缩短2年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363077/)
+## 俄媒：俄罗斯人使用银联卡网购遭遇困难
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363113/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯】，紧贴时代脉搏   
 
-整理：等风来
-编辑：JH
+整理：li yan li
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-22.png)
+据德国之声中文网报道，由于VISA、万事达（Mastercard）和美国运通（American Express）等西方金融企业发行的卡遭遇西方制裁，自3月初以来再也无法使用。再加上大部分俄罗斯金融机构被排除在SWIFT（环球银行金融电信协会）之外，使俄罗斯人难以在网上或国外用信用卡消费。转而只能依靠中国的银联信用卡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2097.png)
+中国至今没有谴责俄罗斯对乌克兰的侵略，也没有参与对俄罗斯的国际经济制裁。
 
+虽然俄罗斯人能使用中国的信用卡进行网上购物，但这只是理想情况，事实上似乎并非这么顺利。
 
-大纪元2022年04月14日讯，据一项全球研究显示，在2020年的COVID-19疫情期间，美国人的预期寿命平均缩短了近两年，降至77岁左右，与其它21个高收入国家相比降幅最大。
+在Visa和万事达卡停止在俄罗斯的业务后，许多俄罗斯公民曾希望能够用中国银联的卡片进行支付。
 
-在COVID-19（中共病毒）疫情期间，美国的疫情感染死亡率和死亡人数均位居世界前列。 在2020年，中国病毒成为美国人的第三大死亡原因，仅次于心脏病和癌症。
+俄罗斯标准银行和MTS银行近日也开始发行银联借记卡。部分俄罗斯银行还计划推出支持俄罗斯MIR支付和银联支付的“双标卡”。
 
-这项研究结果与美国疾病控制和预防中心早先的一项预估相吻合。 该预估显示，2020年美国总人口的预期寿命平均为77岁，比2019年的78.8岁下降了1.8岁。 这是自二战以来最大的降幅。
+据德新社引用俄罗斯媒体的报道，银联卡可能无法弥补其他卡片被停用所带来的不便。据俄罗斯《生意人报》报道，大多数知名的国际网店及其合作银行一般不再接受由俄罗斯发行的卡片，包括银联卡在内。
 
-根据疾病控制与预防中心的数据，随着疫情进入第三个年头，已经有近100万美国人死于中共病毒。
-
-参考链接：[https://www.epochtimes.com/b5/22/4/13/n13711020.htm](https://www.epochtimes.com/b5/22/4/13/n13711020.htm)
+新闻链接：[俄媒：俄罗斯人使用银联卡网购遭遇困难](https://www.dw.com/zh/%E4%BF%84%E5%AA%92%E4%BF%84%E7%BD%97%E6%96%AF%E4%BA%BA%E4%BD%BF%E7%94%A8%E9%93%B6%E8%81%94%E5%8D%A1%E7%BD%91%E8%B4%AD%E9%81%AD%E9%81%87%E5%9B%B0%E9%9A%BE/a-61473994)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,30 +2,34 @@
 ---
 
 
-## 樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363164/)
+## 大午集团被以6.861亿元人民币低价拍卖，外界指中共全盘操作斩草除根
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363196/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输.jpg)
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-4月17日每经经济报报道，交通运输部将根据各省（区、市）上报数据汇总统计，受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个，占收费站总数的2.03%，比4月10日减少459个，下降了67.70%；共关停服务区76个，占服务区总数的1.15%，比4月10日减少288个，下降了79.12%。除西藏（无高速公路收费站和服务区）外的30个省（区、市）中，北京、天津、山西、内蒙古、福建、山东、河南、湖南、海南、重庆、四川、贵州、甘肃、宁夏等14个省份已无关闭关停的高速公路收费站和服务区。
+翻译：li yan li
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-22.png)
+4月15日, 河北民营企业大午农牧集团被高碑店法院以6.861亿元人民币低价拍卖。获得竞标的是一家注册成立才三天的新公司。外界质疑，该公司只是官方的白手套。
 
-中共独裁者不顾及经济与民生，用一刀切的方式，所谓的疫苗后遗症当作中共病毒疫情防控来处理，导致大半个中国交通运输和城市处于封闭状态。
+据维权网及消息人士透露，河北民营企业大午农牧集团4月15日下午被高碑店法院以6.861亿元人民币的低价拍卖给了一家刚成立三天的新公司。
 
-信息来源：
-[交通运输部：受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个](https://mi.mbd.baidu.com/r/ED7jxWvVhS?f=cp&amp;rs=909221183&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6fefe818ea7e54f5&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+孙大午次子孙福硕发朋友圈证实了公司已被拍卖的消息。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据悉，竞拍获得大午集团的是河北保定芮溪科技有限公司。网上公开信息显示，该公司成立仅三天，为独资公司，注册人赵安东，注册资本七亿元（认缴不是实缴），公司批准经营行业为 “农林牧渔技术推广服务”，似乎正是针对大午集团资产竞拍而成立的。
 
+旅美民营企业家王安娜质疑这家公司就是中共的白手套。“我相信这个公司，一定是特殊背景的公司，甚至可能是中共政府它找的个托儿，背后还是中共全盘在操作。”
 
+纽约城市大学政治学教授夏明表示，中共绝对不允许把这些资产留给孙大午家人或创业者，而由国家来清盘，这不仅是中共政权对民营企业的一个收割，也是对所有敢言的民营企业家的警告。“我认为它有一种斩草除根的效应，就是绝不会把资源留给你们这些对政权来说是有威胁的人。”
+
+参考链接：[大午集团以6.861亿元人民币的低价被拍卖，外界只中共全盘操作斩草除根](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/kw-04152022111611.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
