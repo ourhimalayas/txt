@@ -2,18 +2,18 @@
 ---
 
 
-## 七哥演绎【铁锁梦】并做祈祷
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362539/)
+## 嘉宾谈喜币的未来（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362573/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-发布：*陶子*
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：00-10：10-003.jpg)
+发布：*tianzhihuan*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
