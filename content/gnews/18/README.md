@@ -2,32 +2,42 @@
 ---
 
 
-## 中共国在约有1300万人口的西安市导入大规模的行动限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364366/)
+## 有声|郎咸平老母离世，只因苦等核酸耽误就医
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2364427/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
-在因受新冠病毒感染扩大化影响而陆续封城的中共国，最新的是在一个拥有约1300万人口西安市，导入了大规模的行动限制。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2128.png)图片来源网络
-陕西省西安市宣布从4月16日至19日对市民的行动进行限制。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月11日，经济学者郎咸平在社交平台上发文称：其98岁高龄的母亲，近日患轻微肾脏衰竭，按之前诊断，原本打一针就可治愈。但因为上海严格要求必须做核酸后才能就医，故其老母在医院门口现场做核酸测试，却苦等四个小时无结果，未能得到及时救治而离世。由于郎咸平本人居住的小区已经封闭，虽经和有关部门沟通允许其去医院陪护母亲，但由于区域封控无法打车赶到医院而未能见到其母最后一面。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16-04-2022-1.jpg)
 
-原则上，市民被禁止在市内外行动，要求非必要不外出。 与此同时，商业等设施也暂停营业。
 
-在拥有约1300万人口的西安市，从去年末到今年1月，封闭了约一个月，对市民的生活产生了严重影响，包括发生因限制就医导致了孕妇胎死腹中等事件。
+中共对上海的封控管理毫无人性可言，一线医护人员只能机械式执行命令，之前就有社交媒体传出因急救车不予救治，致使哮喘病人死亡的惨剧发生。
 
-据说，此次是因截至4月15日有43人被确诊感染，而再次实施限制。
 
-西安市解释说，这项措施“不是封城”，但如果感染继续蔓延，今后也可能采取更为严格的措施。
 
-在坚持严格病毒清零政策的中共国，继大规模封城的上海市后，山西省会太原和江苏的苏州也开始行动限制，导致担忧影响经济活动的呼声渐高。
 
-参考链接：[中国　人口約1300万人の西安市に大規模な移動制限を導入(日テレNEWS24) – goo ニュース](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022041705423475.html)
 
-* * *
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+
+文字版原文：[郎咸平老母离世，只因苦等核酸耽误就医](https://gnews.org/zh-hans/2358057/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
