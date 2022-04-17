@@ -2,39 +2,67 @@
 ---
 
 
-## 中日财经爆┃中共网络监控再升级 抖音知乎头条等多平台将显示用户IP地址
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2362680/)
+## COVID-19疫苗副作用集萃（2022.4.17K）辉瑞第三针bootster反馈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362752/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-184.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://miro.medium.com/max/1400/1*1yZTm6Jt2uWFn0sJfoVE4g.png&amp;imgrefurl=https://medium.com/@wuyuwen116/%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%90%A5%E9%94%80%E6%B8%A0%E9%81%93%E6%95%88%E6%9E%9C%E9%A2%84%E6%B5%8B%E5%88%86%E6%9E%90-7a5d3ea9ada2&amp;tbnid=_tVI3E_aSLawZM&amp;vet=12ahUKEwjk_66_35r3AhVH9pQKHa_sAjYQMygHegUIARDEAQ..i&amp;docid=5g-qxtci-B1i9M&amp;w=1398&amp;h=658&amp;q=%E5%B0%8F%E7%BA%A2%E4%B9%A6&amp;hl=zh-CN&amp;ved=2ahUKEwjk_66_35r3AhVH9pQKHa_sAjYQMygHegUIARDEAQ)
-4月15日，抖音、今日头条、小红书、知乎都先后宣布拟在个人主页等位置展示帐号IP属地。上月，微博开放了热点事件和部分用户的IP归属地展示。用户IP对网站是透明的，显示IP属地，目的是给用户施压，提醒用户不要翻墙、不要乱说话。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-4月15日，今日头条安全中心和抖音官方宣布称，为维护真实有序的讨论氛围，减少冒充热点事件当事人、恶意造谣、蹭流量等不良行为，今日头条和抖音，将拟在个人主页等位置展示帐 IP属地，平台展示的帐号IP属地为用户最近一次发文或评论时的网络位置，境内展示到省（区、市），境外展示到国家（地区）。帐号IP属地以运营商提供信息为准，相关展示不支持手动开启或关闭。同时将根据测试情况逐步在其他场景全量上线。
+整理/编辑：机器猫
 
-据了解，今日头条相关功能即日起在网页版进行测试；抖音相关功能将在4月底进行测试。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
 
-15日晚间，知乎、小红书也相继发布公告，宣布即将上线显示用户IP属地。
 
-4月15日，小红书发布“关于在个人主页等位置展示账号IP属地的公告”。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-小红书表示，为维护真实互动的社区氛围，防治冒充热点事件当地网友造谣传谣的行为，小红书拟逐步开放“个人主页展示账号IP属地”功能，相关说明如下：
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-1、该功能上线后，将在用户个人主页展示IP归属地域信息，境内展示到省（区、市），境外展示到国家（地区），信息以网络运营商数据为准；
+原文作者：Viola的记事薄
 
-2、该功能在测试阶段，不支持手动开启或关闭。
+**辉瑞第三针bootster反馈**
 
-今日晚间，知乎发布公告，宣布即将上线显示用户 IP属地。知乎表示，近期注意到，在国内外热点事件的讨论中，出现个别用户冒充当地网友，发布、传播不实信息，干扰正常讨论秩序的情况。与此同时，众多用户也向其反映，建议知乎公开展示用户IP属地信息。知乎在公告中指出，社区拟逐步开放“用户IP属地”的公开显示。届时，问答页面将显示用户发布内容时的IP属地。
+帖子原文：
 
-信息来源：[网络不是法外之地！抖音快手知乎等将展示用户IP归属地，各平台纷纷加入](http://nnwb.nnnews.net/rejian/p/76645.html)
+之前在国内接种科兴一二针，打辉瑞之前我就各种看反馈，吓得不行。因为自己属于体质不太好经常感冒的类型，所以很担心。但目前为止我的反应没有网上其他反馈那么强烈，看来还是因人而异吧。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+4.12
+
+10:24注射
+
+立刻胳膊就开始痛（抬起来就痛）
+
+4.13
+
+胳膊更疼了，摸着疼
+
+16：07 37.4℃
+
+晚上一直头晕，也有点发烧，但最多也就是37多一点
+
+4.14
+
+几乎没啥感觉了，没有发烧了，胳膊也不疼了
+
+Tips:多喝热水+VC泡腾片放水里喝
+
+#辉瑞
+
+发布于04-14
+
+精选评论
+
+嘎不拉几：你让我想起了我还没打第三针哈哈
+
+Viola的记事薄：问题不大哈哈哈可以打一打
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2079.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2078.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2080.png)图片来源：小红书
+参考链接：[辉瑞第三针booster反馈](https://www.xiaohongshu.com/discovery/item/6257d3730000000021036406?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068552)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
