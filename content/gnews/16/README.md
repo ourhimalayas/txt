@@ -2,30 +2,35 @@
 ---
 
 
-## 南非洪灾造成400多人死亡，救援人员正在寻找失踪者
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2364023/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2364085/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午11.09.56.png)图片来源：互联网
-一名高级省级官员周日表示，洪水已造成 400 多人死亡，并在夸祖鲁纳塔尔省（KZN）造成至少 100 亿兰特（6.8458 亿美元）的损失，救援人员正在搜寻失踪者和预计会有更多降雨。
+作者：香草山翻译部
 
-洪水导致数千人无家可归，电力和供水服务中断，非洲最繁忙的港口之一德班的运营中断。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
 
-KZN 负责经济发展、旅游和环境事务的官员拉维皮莱说，除了刚刚超过 400 人死亡外，还有大约 40 至 50 人下落不明。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-16.png)
 
-谈到损失，他告诉当地电视频道 Newzroom Afrika，它“此时已超过 100 亿大关”。
+文章仅代表作者本人观点，与Gnews无关
 
-公共广播公司 SABC 周六公布的死亡人数为 398 人，其中 27 人失踪。阅读更多
+视频参看：
+[2022.04.17早 《NFSC新闻》](https://gettr.com/streaming/p15piw18d52)
+[2022.04.17早《NFSC新闻访谈》](https://gettr.com/streaming/p15p2ox451e)
 
-总统西里尔·拉马福萨（Cyril Ramaphosa）的办公室在周六晚些时候的一份声明中表示，他推迟了对沙特阿拉伯的工作访问，以专注于这场灾难。拉马福萨将与内阁部长会面，以评估对危机的反应。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-原文链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
 
-【1】[Rescuers hunt missing after South African floods kill more than 400](https://www.reuters.com/world/africa/rescuers-hunt-missing-after-south-african-floods-kill-more-than-400-2022-04-17/)
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-* * *
-
-*编辑&发布：长岛开心*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
 
  
 

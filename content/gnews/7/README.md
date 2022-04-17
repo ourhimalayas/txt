@@ -2,35 +2,31 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/04/17
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2364151/)
+## 中共的外宣和上海的疫情走势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2364195/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-17-175113.png)
-链接：[https://gettr.com/post/p15pehy240a](https://gettr.com/post/p15pehy240a)
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+今天是2022年4月17日，从中共下图中的数据可以估算出上海已经直接间接的封城将近一个多月了，上海发生了感染者每天都在增加，国际化的大都市经过中共的无逻辑的，拍脑门子的，病毒社会面清零的，以及杂乱无章的防疫政策下，将一个国际化大都市变成了寂静之城，甚至看到有形容上海的机场成了美军撤离阿富汗喀布尔机场……
 
-- 中共高官子女和家人基本全部在他们所谓“邪恶”的美帝国主义。
-- 某军区司令私下聊天全部把子女安排在美国、澳洲、新西兰。避开英国因其气候冷。
-- 中共的话相信了，受啥罪都活該，上海之前宣传不会封城。上海人的傲慢和骄傲都結束了，一下子回到了石器時代，上海少男少女因粮食被迫出卖身体。男性普遍懦弱眼看妻女被欺负却没有作为，还说礼和修养，与畜生讲礼是你的无知。
-- 长春、西安、青岛（已经有18例阳性）、大连、哈尔滨将是下个“上海”。
-- 中共国病毒线性传染–广州、深圳、香港、上海，最后北京。类似人为操作病毒爆发。
-- 俄罗斯和乌克兰双方出杀器，美国欧洲“引”俄罗斯和中共出手。
-- 新中国联邦前线救援帐篷里热火朝天工作，为正在过节的以色列朋友服务。前线战友熟练掌握俄文、英文、意大利文、德文、法文与国际友人合作。
-- 新中国联邦人年轻漂亮有活力。
-- 中国知识界、文化界、老板界名人聚集在上海，无奈被困家里。跟着共产党在火葬场门口转悠，让人求生不能求死不得。
-- 星期二4.19有五周年纪念大直播（直播一整天）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-115.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F6%2F000142986_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001095813%3Ffull%3Dy&amp;tbnid=1FOBhmAj-MHMNM&amp;vet=12ahUKEwjN_8Drupv3AhUDjxoKHXt3DK0QMygBegUIARCUAQ..i&amp;docid=K53g7n8im1wuDM&amp;w=900&amp;h=506&amp;q=%E4%B8%8A%E6%B5%B7%E5%B0%81%E5%9F%8E&amp;ved=2ahUKEwjN_8Drupv3AhUDjxoKHXt3DK0QMygBegUIARCUAQ)
 
+看一下中共的外宣——知乎的解释：3月1号上海普陀区一名女性被确认感染新冠，把她相关的一个社区文化活动中心划为中风险地区！同一天另外一名感染者从上海坐高铁赶往徐州，第二天被徐州当地检查返乡人员后发现为阳性！之后的十几天里，上海发现许多的本土感染者，全国各地也陆续的发现由上海输出的新冠感染者，在这样的情况下，上海没有采取封城的措施，单单把发现本土感染者的地点划分成了中风险地区，未采取全市范围的管控措施！时间到3月12号，中共国中央通知之后，上海开始采取全市范围的防范措施，上海发布官方通告:市民非必要不离沪，确需离沪的人员须持有48小时内核酸检测阴性报告，来沪返沪的人员须持有抵沪前48小时内核酸检测阴性报告。从12日至20日之间所有的离开上海的人都爆出感染，为上海封城买下伏笔。20日上海迪士尼宣布3月21号起暂时关闭，在30日之前每天基本上都是几百的确诊和千人的无症状。直至30日全域静态管理，全员核酸筛查。4月2日零时起离沪人员须提供24小时抗原检测阴性证明。4月1日上海七个火车站宣布暂停办理旅客进出站业务，但3个大站仍在照常运营；4月5日无症状感染者破万。4月8日无症状破两万；4月9日以建成方舱医院100多个；4月13日无症状感染者达到峰值25141例；数据相对稳定，之后几日病例呈下降趋势。为今后在端午节要实现恢复正常生活奠定基础。
 
-听写：call me uncle / PR: 乐禧禧
+来源：[上海疫情时间线（保存日更新中！） – 知乎 (zhihu.com)](https://zhuanlan.zhihu.com/p/496571371)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-91.jpg) **图片来源：**[实时更新：新型冠状病毒肺炎疫情地图 (baidu.com)](https://voice.baidu.com/act/newpneumonia/newpneumonia/?from=osari_aladin_banner&amp;city=%E4%B8%8A%E6%B5%B7-%E4%B8%8A%E6%B5%B7)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+我们都知道中共的数据是在造假，但这也掩盖不住上海大量的感染者，郭文贵先生曾说过，上海的疫情就是疫苗导致的，上海死亡的人数已经近10万人。从墙外的媒体我们看到太多令我们痛心的事件，不知道如何去描述和抒写内心的愤怒和感慨，不知如何去批判那些工具者，被洗脑者的罪行，更不知如何去拯救那些处于水深火热中的上海人。拥有2500万人口的上海，国际化大都市的上海，中国大陆经济中心的上海，中国人的上海，就被这几个混蛋玩弄于股掌之中，古有陈胜，吴广起义，自由是需要代价的，我们新中国人已经开始为之奋斗，新中国联邦已经正式的走过了1年多了，在国际政治舞台上已经初露锋芒在俄乌战争的边境Mekdya，我们就是推翻干灭这些的恶魔流氓的共产党。让中国人真正的享受到自由，民主。抛掉软弱和懦弱，唤醒国人的麻木不仁，唤起内心的真正善良和正值。
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

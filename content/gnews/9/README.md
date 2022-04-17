@@ -2,28 +2,30 @@
 ---
 
 
-## 中国人获得日本首个“特定技能2号”资格
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2364138/)
+## 欧盟将针对俄罗斯石油和银行领域实施第6轮制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364176/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-关于日本为接纳外国劳动者而引入的特定技能制度，在岐阜县各务原市一家建筑公司工作的中国人翁飞（35岁）获得了建筑领域的“特定技能2号”资格，将来可以申请永居权。
+作者：方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据世界新闻网4月16日援引路透社报导，欧盟即将针对俄罗斯石油和银行，特别是俄罗斯联邦储蓄银行“（Sberbank），实施的第6轮特别制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/sEMp81kW1omPKgeoHN0IZKXPOsBWOlGT2QF0IdkBdCE.jpeg)
+消息指出，欧盟此前一直未对俄罗斯联邦储蓄银行出手，是因为它与“俄罗斯天然气工业银行“（Gazprombank）都是俄罗斯石油和天然气支付的主要渠道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-140.jpg)（图片来源于本文链接）
+欧盟执委会主席范德赖恩（Ursula von der Leyen）表示计划中的制裁包括占俄罗斯银行业37%的最大银行–俄罗斯联邦储蓄银行和能源问题。
 
-据支援团体和日本国土交通省表示，这是日本全国首次认定“特定技能2号”资格。特定技能是2019年4月开始施行的日本出入国管理及难民认定法修正案针对外国人设定的新在留资格，对象为农业及餐饮业等14个领域。其中“建筑”以及“造船与船舶用工业”的资格分为两种，一种是居留时间共计5年的1号资格，另一种是在拥有熟练技能的情况下可以获得的2号资格。2号资格的居留时间没有上限，而且可以携带家属。
+范德赖恩强调当务之急是缩减普京的收入，他说欧盟正在制定“聪明的机制“，以便石油也可以纳入制裁。
 
-信息来源： [中国人获得日本首个“特定技能2号”资格](https://cn.nikkei.com/politicsaeconomy/politicsasociety/48265-2022-04-15-10-35-52.html)
+俄罗斯联邦储蓄银行现在已成为美国和英国的制裁目标。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+参考链接：[歐盟將對俄祭出第6波制裁 范德賴恩：將針對2個領域](https://www.worldjournal.com/wj/story/121256/6245001)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+编辑：文恩
+总编：文恩
+审核：文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

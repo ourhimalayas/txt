@@ -2,12 +2,12 @@
 ---
 
 
-## 在被迫居家7天后，上海某小区居民一起在夜晚放声大叫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2363813/)
+## 上海人的忍耐已经到了极限
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2363875/)
 
-04/08/2022 在被迫居家7天后，由于长时间压抑和对未来生活的不确定，上海某小区居民一起在夜晚放声大叫
+**视频整理：雨人**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 
  
 
