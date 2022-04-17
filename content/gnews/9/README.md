@@ -2,12 +2,18 @@
 ---
 
 
-## 【乌克兰救援】一位美国志愿者表示能在梅迪卡和来自全世界的人们聚在一起庆祝逾越节她感到非常珍贵
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2362257/)
+## 新中国联邦史上将有你们辉煌的一页
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362271/)
 
-【乌克兰救援】04/15/2022 一位来自”One Heart”国际救援组织的美国志愿者表示能在梅迪卡和其他犹太人，中国人以及来自全世界的人们聚在一起庆祝逾越节这个最重要的节日她感到非常珍贵。我们有着共同的使命、信仰和心愿：都想尽力帮助乌克兰人，同时也要拯救被中共奴役的14亿中国人。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发布：*陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

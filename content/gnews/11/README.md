@@ -2,34 +2,12 @@
 ---
 
 
-## 前苏联领导人赫鲁晓夫的曾孙女警告说，俄罗斯可能准备在乌克兰使用战术核武器
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2362229/)
+## 【乌克兰救援】一位美国志愿者表示能在梅迪卡和来自全世界的人们聚在一起庆祝逾越节她感到非常珍贵
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2362257/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-5.19.45-PM.jpeg)
+【乌克兰救援】04/15/2022 一位来自”One Heart”国际救援组织的美国志愿者表示能在梅迪卡和其他犹太人，中国人以及来自全世界的人们聚在一起庆祝逾越节这个最重要的节日她感到非常珍贵。我们有着共同的使命、信仰和心愿：都想尽力帮助乌克兰人，同时也要拯救被中共奴役的14亿中国人。
 
-发布: AWAC （新西兰伊甸农场）
-
-翻译: AWAC （新西兰伊甸农场）
-
-前苏联领导人尼基塔·赫鲁晓夫的曾孙女警告说，俄罗斯可能准备在乌克兰使用战术核武器。
-
-美国国际事务教授尼娜·赫鲁晓娃对 BBC 表示，她相信俄罗斯总统弗拉基米尔·普京最终会不惜一切代价取得战争胜利。
-
-“我认为这场战争确实是普京计划赢得的一场战争，并且计划不惜一切代价赢得胜利。如果他需要宣布胜利并且他可能需要使用战术核武器——我没有在预测——这可能是俄罗斯人可能准备使用的选项之一，”她说。
-
-虽然战术核武器的威力不如前苏联赫鲁晓夫时期的远程战略导弹。
-
-但纽约新学院的俄罗斯学者和普京的长期批评者赫鲁晓娃女士担心莫斯科可能会利用它们对乌克兰的土地造成破坏性影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/gettyimages-623841168_wide-b949880a7dda8647e88a4fd3f0c5cc5633fb734c-s1100-c50.jpg)
-
-*图为俄军士兵在装载伊斯坎德尔战术地地导弹*
-
-原文：[Putin could use nuclear weapons: Khrushchev’s great-granddaughter](%20Khrushchev’s%20great-granddaughter)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-5.19.45-PM.jpeg)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

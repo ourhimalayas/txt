@@ -2,8 +2,8 @@
 ---
 
 
-## 广州战友做好大隔离的准备，接下来是青岛大连哈尔滨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362279/)
+## 人间炼狱
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362317/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

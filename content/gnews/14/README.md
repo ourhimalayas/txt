@@ -2,34 +2,26 @@
 ---
 
 
-## 苏州无预警封控，台资大厂做最坏准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2361969/)
+## 治疗新冠的新药莫努皮拉维仅销售85天就有9人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2362220/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/治疗新冠的新药莫努皮拉维仅销售85天就有9人死亡.jpg)[图片来源](https://i.gyazo.com/8c3c5c933893aeecc3ed7808eb883114.png)
 
-整理/编辑：文泓
+日本4月8日，厚生劳动委员会，由山田胜彦众议院议员提问，在药机法修改之前，特例批准的新冠病毒治疗药物的验证是不是该先认证呢？尚未开展临床试验的莫努皮拉维的安全性是什么？Molnupiravir在开始销售后仅85天内，在1,526人中，有2,246起副作用报告，其中282件是严重的。另外，有9人死亡的报告，但关于这9人的详细尚未公布。这是治疗新冠病毒的口服药，由美国默沙东药厂推出，英国医药品规制当局输入。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2063.png)图片来源：Asia Times & 雅典娜设计组
+消息来源：
+[新型コロナウイルス感染症の経口抗ウイルス薬ーモルヌピラビル販売開始わずか85日間で9名死亡、詳細公表されず](https://blog.goo.ne.jp/sakurasakuya7/e/b42645ffafc591a68050cf4d41997a80)
 
-
-自上海、昆山封城后，台资在大陆投资重镇苏州昨天（16日）凌晨无预警通知，需要进一步升级防控，在半导体产业集聚的苏州工业园区、苏州高新区及吴中区，以及精密机械产业集聚的吴江区等进行封闭式管理。台企首当其冲，包括和硕、佳世达、达方电子、台达电等，无一幸免。
-
-据《苏州发布》通告称，16日零时起，在吴江区、吴中区、相城区、姑苏区、苏州工业园区和虎丘区（苏州高新区）进一步升级疫情防控措施。产业园区实行封闭式管理，严格实行一门一岗，严格查验所有出入人员，外来人员和车辆非必须不得进入。
-
-据防控措施，产业园区实行封闭式管理，厂内闭门生产，不会停工，但物流势必会受影响。
-
-苏州台协会长、广运机械董事长谢清福指出，制造业供应链是上下游关系，尽管封控期间还是能闭门生产，但物流不能出入，上游产业没原料就做不了，下游产业想出货也出不去，持续下去，产业链就会中断。
-
-台商普遍认为，苏州这波疫情虽不至于像上海，但面对升级封控，需要做最坏准备。因为一线工人都住在厂区宿舍，闭门生产不成问题，但管理层只能居家线上工作。未来碰到疫情，就地隔离、管控，这是台资大厂今后在大陆“动态清零”政策下必须面对的常态。
-
-参考链接：[苏州封控 台厂做最坏准备](https://tw.news.yahoo.com/%E8%98%87%E5%B7%9E%E5%B0%81%E6%8E%A7-%E5%8F%B0%E5%BB%A0%E5%81%9A%E6%9C%80%E5%A3%9E%E6%BA%96%E5%82%99-224014552.html)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
