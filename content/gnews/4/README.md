@@ -2,16 +2,29 @@
 ---
 
 
-## 20220416郭文贵乱聊直播 ：CCP将无人机卖给台湾引起台湾民众的震惊
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358561/)
+## 有声|乌克兰多地彻夜拉响防空警报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358750/)
 
-作者：东京樱花团小视频组
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-57.png)
+4月15日外媒报道，在俄罗斯黑海舰队的旗舰“莫斯科号”被击中损毁并沉没以后，14日晚上，乌克兰多个地区彻夜响起空袭警报，人们在基辅听到了强烈的爆炸声，在南部城市赫尔松、东部城市哈尔科夫和西部城市伊万诺-弗兰科夫斯克也听到了爆炸声。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+乌克兰议员瓦西连科表示，基辅发生了三起爆炸，并认为这些袭击是普京对“莫斯科号”沉没的报复。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+一些社交媒体发布的视频显示，自俄罗斯军队本月早些时候开始撤出该地区以来，这是最严重的一次袭击事件。
+
+文字版原文：[乌克兰多地彻夜拉响防空警报](https://gnews.org/zh-hans/2355235/)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+音频处理/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

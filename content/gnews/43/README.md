@@ -2,34 +2,47 @@
 ---
 
 
-## 习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2356903/)
+## 记述中共六十年代大饥荒史实的《墓碑》
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2357131/)
 
-当全国人民在伟大领袖习猪头的带领下正在一步步滑入深渊之际，习猪头在独乐乐众不乐的氛围之下，怡然自得地深入女兵宿舍，并亲自观看女兵们深情款款的吹箫表演，这需要勇气，作为习猪头夜壶的中央电视台把女兵们为习近平吹箫的视频搬上荧屏更需要勇气。
+作者：香草山写作组—静言
 
-在全国人民渐次被习猪头把吃饭和喝水变成核武器的攻击之下，让习猪头变成习奥塞斯库、把习猪头的御用私器彭丽媛变成埃列娜·齐奥塞斯库需要哪些呢？实现这一目标需要广场上的一声怒吼，实现这一目标需要军事法庭的审判，实现这一目标还需要从枪膛里射出的子弹，实现这一目标最需要的其实只有一个——我们的勇气。
 
-撰稿：喜马拉雅的肉夹馍
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-1.png)
+《墓碑—中国六十年代大饥荒纪实》，系新华社退休记者杨继绳所著。内容涉及中共制造的三年大饥荒，书中大量真实的数据再加上新闻与史实资料的精确描述，使得中共对作者与其作品大肆封杀。至2008年12月，此书终于在香港出版，马上被译成多国语言，被称为“最畅销的中国禁书”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/E0jN4_MXMAI4Ptx.jpeg)图源网络
+杨继绳先生写此书并起名墓碑，是因为1959年春天时，他为饿死的父亲立一个墓碑。他自费穷尽多年之力，遍访当年灾难最严重的十多个省份，查阅档案记录资料，找寻还健在的当事人查证，真实地再现了这段惨绝人寰的人为悲剧。
 
-审核：喜马拉雅的馍夹肉；
+《墓碑》有段惊悚的描述：人死亡前因饥饿而产生的痛苦，远比死亡本身还要恐怖。玉米芯吃光了、野草吃光了、树皮吃光了；鸟粪、老鼠、棉絮等都被烤来吃；饥民们把大把观音土塞进嘴里；死人尸体、外来逃难的饥民、甚至自己的亲人，都被当作充饥食物。古代饥荒时发生过的“易子相食”也有发生，骇人听闻至极。
 
-校对：Maarago；
+杨先生在本书中揭示，1958年至1962年期间，据不完全统计，中共国饿死了三千六百万人，几乎相当于法国人口的一半；加上因饥饿使得出生率降低，少出生人数估记四千万，一共七千多万人。这不仅是中华民族历史上所发生灾荒中死亡人数最多的一次，也是人类历史中最为惨痛的悲剧之一。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+对于危及其政权的历史事实，中共对老百姓一向不仅隐瞒真相，反而用谎言宣传，把人为造成的问题归因为自然灾害，以及所谓苏俄的掐脖等外在因素。刘少奇视察他和毛的家乡湖南，发现这里有近100万人死于饥荒。有些人靠吃死尸，或者杀人吃人肉活下来。刘对毛说：饿死这么多人，历史上要写上你我的，人相食，要上书的。这些史实中共却掩盖不让民众知晓。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+眼下，中国人民被中共借疫情防控关在各种牢笼之中，习又提出“全国统一大市场”，面对即将发生的灾难包括粮食危机带来的饥荒，要是再不醒来反抗中共倒行逆施回归计划经济合作社等军管老路，其结果可能就像60年代大饥荒一样，很有可能你就是其中饥饿难耐而“人相食”，以致饿死倒毙的一具无名尸而已。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+参考来源：
+1.[墓碑（书籍）](https://zh.m.wikipedia.org/wiki/墓碑_%28书籍%29#/media/File%3ATombstoneTheGreatChineseFamine1958%E2%80%911962.jpg)
+2.[墓碑：中國六十年代大饑荒紀實(上/下冊)](https://www.books.com.tw/products/0010542023)
+3.[墓碑（电子书）](https://docs.google.com/file/d/0B5q0Lwv0vxVmZXNyMEdFV25XZDQ/edit?resourcekey=0-3uEqkimc141UKwjVuDY80g)
+4.[3600万中国人的墓碑](https://cn.nytimes.com/china/20121211/c11mirsky/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-11.jpg)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑/校对/发稿：兰兰
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-1.png)
+
+
+
 
  
 

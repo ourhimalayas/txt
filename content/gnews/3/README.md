@@ -2,38 +2,27 @@
 ---
 
 
-## 有声|加拿大国家储备中共病毒疫苗开始大量过期
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358589/)
+## 有声|香港前途悲惨 前保安局局长李家超锁定特首职位
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358752/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据当地媒体 4月13日的报道，加拿大卫生部表示，由于民众接种意愿大幅下降，自1月份以来，近150万剂中共病毒疫苗已经过期。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-15-at-10.55.20-AM.png)
-这150万剂过期疫苗在2020年12月以来交付给加拿大的1.18亿剂疫苗中，约占1.3%的份额。另外，国家库存的1800多万剂绝大部分将在未来四个月内过期。卫生部说，过期的疫苗不会被马上扔掉，该机构正在等待制造商是否可以延长有效期的决定。
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+4月14日，原来表示参选香港特首职务的冼（xian三声）国林宣布退出选举，让前香港保安局局长李家超成为唯一的候选人。而在前一天，李家超的团队已经发布消息，称其得到了1400名选委中超过半数的786票。这在事实上已经锁定了李家超成为下一任香港特首，也是中共又一次打着民主选举的幌子，用剔除候选人的方式，让其推举的人成为掌权者。
 
-据悉，加拿大总理贾斯汀·特鲁多已经向国内外七家疫苗制造商，为3500万加拿大居民订购了总数达4亿剂的中共病毒疫苗，人均11剂。目前已借捐赠之名，规避了价值7亿加元的疫苗过期风险。分析人士认为，人们逐渐意识到中共病毒疫苗不能阻止感染和传播病毒，反而有长期的副作用，因此接种意愿陡然降低。各国政府将很难继续推进疫苗的施打。继日本爆出疫苗大量过期后，同样的情况也在加拿大发生。预计未来一段时间，全球有越来越多的中共病毒疫苗因被弃用而过期。
+回顾李家超的履历，我们不难发现他欠下香港人的累累血债。2019年1月，李家超作为保安局局长就特别强调，新疆集中营式的管理值得香港参考。同年6月，香港爆发轰轰烈烈的反送中运动，香港保安局和香港黑警对香港人的残酷镇压和屠戮引起了全世界的震惊。
 
+文字版原文：[香港前途悲惨 前保安局局长李家超锁定特首职位](https://gnews.org/zh-hans/2355488/)
 
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-文字版原文：[加拿大国家储备中共病毒疫苗开始大量过期](https://gnews.org/zh-hans/2352786/)
+音频处理/发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

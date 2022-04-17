@@ -15,140 +15,140 @@
 
 ---
 
-### [习普暗中指使白俄罗斯开火波兰并甩锅开启三战火拼时代](/content/gnews/1/README.md)
+### [【粤语配音】2022年4月16日：拭目以待接下来重要事情的发生](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [杰克·波索比克: “这些都是在中共国进行的恐怖封锁”](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共匪非要把世界往死里逼？这一次轮到世界出手了](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/3/README.md)
+### [有声|香港前途悲惨 前保安局局长李家超锁定特首职位](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [20220416郭文贵乱聊直播 ：CCP将无人机卖给台湾引起台湾民众的震惊](/content/gnews/4/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/5/README.md)
+### [有声|乌克兰多地彻夜拉响防空警报](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [斯卡维诺和纳瓦罗被指控在1月6日事件调查中藐视国会](/content/gnews/6/README.md)
- ` 日本東京方舟農場`
-
-### [20220416郭文贵乱聊直播 ：七哥呼吁战友们不但要有勇气反抗，还要有智慧](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|美国将再为乌克兰提供7.5亿美元军事援助](/content/gnews/8/README.md)
+### [有声|三发贴牌导弹击沉“莫斯科号” 放生士兵](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [20220416郭文贵乱聊直播 ：共产党的秘密你都可以卖，新中国联邦是你最好的桥梁](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共颠倒黑白把地狱粉饰成天堂天理不容](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [20220416郭文贵乱聊直播 ：七哥教战友用智慧维护自己的生命权益善用上天赐予的水火](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|达美航空宣布政策性逆转，将把Covid-19视为季节性病毒](/content/gnews/12/README.md)
+### [有声|新中国联邦救援战友获波兰颁发志愿者工作证](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [中共病毒致日本去年总人口下降64万人](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|国人焦虑背后的真相是什么？](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用](/content/gnews/15/README.md)
- ` 美国政要直译推`
-
-### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/16/README.md)
- ` 蓝莲花农场`
-
-### [有声|乌总统要求俄支付战争赔款](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [美国会代表团访台之际，中共在台湾周边进行军演](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/20/README.md)
- ` 秘密翻译组-原创组`
-
-### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/21/README.md)
- ` G-时新闻`
-
-### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/23/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [教皇出席但不主持复活节守夜仪式](/content/gnews/24/README.md)
- ` Shuizhuyu`
-
-### [截至4.16 俄乌战事汇总](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/27/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/28/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/29/README.md)
- ` 银河歌舞厅`
-
-### [借疫情中共禁闭45个城市3.7亿人](/content/gnews/30/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共接下来要对青岛、大连、哈尔滨（海口）大隔离](/content/gnews/31/README.md)
- ` 银河歌舞厅`
-
-### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/32/README.md)
- ` G-NEWS TAIWAN`
-
-### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年04月16日七哥乱聊直播](/content/gnews/34/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/37/README.md)
- ` 秘密翻译组金融团队`
-
-### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/38/README.md)
- ` topnews`
-
-### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年4月16日战时快讯（1）](/content/gnews/40/README.md)
- ` 墨尔本雅典娜农场`
-
-### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/41/README.md)
- ` 历史组`
-
-### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/42/README.md)
- ` 银河歌舞厅`
-
-### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/43/README.md)
+### [俄罗斯叫嚣清除马斯克星链,灭共3.0剩下的0.3日益临近](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰已经获得了27万吨人道主义援助](/content/gnews/44/README.md)
- ` 日本东京方舟农场`
+### [习普暗中指使白俄罗斯开火波兰并甩锅开启三战火拼时代](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海方舱：心脏病和癌症患者得不到救治求助无门](/content/gnews/45/README.md)
- ` 日本东京方舟农场`
+### [潘多拉盒子的底部——希望！](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|黑海舰队旗舰“莫斯科号”被乌军导弹击沉](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [共匪非要把世界往死里逼？这一次轮到世界出手了](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [20220416郭文贵乱聊直播 ：CCP将无人机卖给台湾引起台湾民众的震惊](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|拜登指责俄罗斯军队在乌克兰犯下种族灭绝罪](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [20220416郭文贵乱聊直播 ：七哥呼吁战友们不但要有勇气反抗，还要有智慧](/content/gnews/16/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共病毒致日本去年总人口下降64万人](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用](/content/gnews/18/README.md)
+ ` 美国政要直译推`
+
+### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/19/README.md)
+ ` 蓝莲花农场`
+
+### [美国会代表团访台之际，中共在台湾周边进行军演](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/22/README.md)
+ ` 秘密翻译组-原创组`
+
+### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/23/README.md)
+ ` G-时新闻`
+
+### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/24/README.md)
+ ` 秘密翻译组-原创组`
+
+### [疫情下中共国互联网企业迎来裁员潮](/content/gnews/25/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/26/README.md)
+ ` Shuizhuyu`
+
+### [截至4.16 俄乌战事汇总](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/29/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/30/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/31/README.md)
+ ` 银河歌舞厅`
+
+### [借疫情中共禁闭45个城市3.7亿人](/content/gnews/32/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共接下来要对青岛、大连、哈尔滨（海口）大隔离](/content/gnews/33/README.md)
+ ` 银河歌舞厅`
+
+### [中共武力犯台:从莫斯科号沉没，看美国高科技飞弹导航电讯作战](/content/gnews/34/README.md)
+ ` G-NEWS TAIWAN`
+
+### [秘翻在线：上海虹口卫健委官员钱文雄自杀，成为政治牺牲品](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022年04月16日七哥乱聊直播](/content/gnews/36/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [英国首次训练乌克兰使用反坦克导弹](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [听党话阳了！女作家诉苦 母亲遭居委恐吓心脏病发](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/39/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共强硬的病毒清零措施导致全球供应链瘫痪](/content/gnews/40/README.md)
+ ` topnews`
+
+### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年4月16日战时快讯（1）](/content/gnews/42/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/43/README.md)
+ ` 历史组`
+
+### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/44/README.md)
+ ` 银河歌舞厅`
+
+### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/45/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
