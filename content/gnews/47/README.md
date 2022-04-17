@@ -2,32 +2,29 @@
 ---
 
 
-## 俄乌战争｜泽连斯基请求拜登政府 将俄罗斯列为“恐怖主义支援国”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2356340/)
+## 樱花FM｜加拿大牧师Pawlowski在监狱里受到虐待
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2356281/)
 
-**图/文｜CP**
-**发布时间｜16/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/澤連斯基請求拜登政府-將俄羅斯列為「恐怖主義支援國」.jpg)
+音频：东京樱花团/战友520
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://lh5.googleusercontent.com/KpaDmW_PVBwjrMQT4rzUxfdxD8RwNtDknBlcS6BmHK6ZBB5-3ig7f-U12XVlVj-1I-AEeKJat8yS22aCT7VAn2NI6gzCroT9i6gGgZHEAMIYH3yjhWwTOiYahk7dhY6UXLa-b7a9)
 
+据福克斯新闻报道，加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待。
 
-外媒16日引述消息人士报道，乌克兰总统泽连斯基（Volodymyr Zelenskyy）在最近一次与美国总统拜登的通话中，请求美国将俄罗斯列为“恐怖主义支援国”，惟拜登暂未作出明确表态或采取具体行动，只表示愿意探讨一系列的建议，并向俄方施加更大压力。
+自从2021年4月复活节服务期间首次成为国际头条新闻以来，Pawlowski已成为一位杰出人物。这位牧师把武装警察赶出教堂，因为他们试图检查其是否符合COVID-19的规定。在无视法院命令继续举行教堂礼拜后，这位牧师遭受了多次戏剧性的逮捕，包括在卡尔加里繁忙的高速公路中间和卡尔加里国际机场的停机坪上。加拿大各地的教会都面临着牧师被监禁、设施被锁、高额罚款以及政府官员的持续干预。
 
-报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支援国”，意味美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+Pawlowski在共产主义波兰长大，17年来一直警告加拿大的暴政日益严重，他感叹“加拿大正在变得越来越糟”，他最近几个月一直在提醒大众，加拿大当局已经揭开了威权主义的面纱。Pawlowski在监狱中受到了狱友的青睐。
 
-不过，有传美国国会部分鹰派共和党议员曾经敦促拜登政府将俄罗斯列入“恐怖主义支援国”名单，惟白宫一直不置可否，只表示会考虑这项提议。
+最后Pawlowski说:“所以我认为上帝在揭露，上帝在审判，上帝在震动，”并补充说，他认为“上帝正在寻找有足够勇气去做正确事情的人。”
 
-在上月召开的记者会上，国务卿布林肯（Antony Blinken）被问及此事时回应，政府会考虑一切选项，强调首要任务是尽其所能迅速结束这场战争，停止乌克兰人民的苦难。
+文字版原文：[加拿大牧师Pawlowski在监狱里受到虐待](https://gnews.org/zh-hans/2324138/)
 
-自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支援国”。
+编辑：东京樱花团/Calvin
+发布：东京樱花团/Calvin
 
-來源｜[NBC](https://www.nbcnews.com/politics/national-security/ukraines-zelenskyy-asked-biden-designate-russia-state-sponsor-terroris-rcna24618)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+关键词: 樱花FM,有声读物,加拿大,威权主义,牧师Pawlowski,花时政,虐待
+摘要：​加拿大卡尔加里Adullam洞穴教会的牧师Artur Pawlowski在与卡车司机车队演讲后，被判入狱51天。这位牧师在接受采访时表示在监狱中受到虐待
+![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

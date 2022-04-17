@@ -2,76 +2,34 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.17B）&#8211;辉瑞疫苗副作用update
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2358833/)
+## 梅迪卡的最新时尚 亮丽的灭共马甲
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2360418/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+【撰稿】纽约香草山—Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+在波兰梅迪卡，一件小小的黄色马甲，正在成为梅迪卡最亮丽的风景线。这件马甲，是郭文贵先生特意为乌克兰救援行动设计的，上面印着“消灭中国共产党”，“我们是灭共的新中国联邦人”。
 
-#### 整理/编辑: BENJ1
+![](https://cdn.discordapp.com/attachments/902205163622776852/965063473606303794/fa812f6e-cbd9-41f3-9939-e2e9c29aa4e3.JPG)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-48.png)图片来源：雅典娜设计组(614)
+饱受战火蹂躏的乌克兰难民，因为俄罗斯的侵略而深刻厌恶共产党政权，对同是共产政权的中共国也是一样的讨厌。看到前线战友的华人面孔时，她们的眼神都带着怀疑和戒备。当身穿这件灭共马甲的前线战友，向她们解释，我们是灭共的新中国联邦人，我们的信仰是消灭中国共产党。她们听完之后，全都放下戒备，换上真心的笑容。
 
+4月15日，前线战友妮可的消息：一位法国义工穿着灭共马甲说，灭共是他的信仰，我们一起来灭共。还有，台湾流浪作家王芮缇穿上灭共马甲，与前线救援战友一起在联邦大帐篷里工作了两周。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+4月16日，前线战友正义小Sarah报道，两位从西班牙来捐物资的西班牙人走进我们的帐篷，问我们要灭共马甲。他们说，将来计划穿着这个马甲去中共国，用这件马甲来表达消灭中国共产党的心声。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+越来越多的人来到我们的救援大帐篷，想要一件和我们前线战友同款的灭共马甲。这件灭共马甲，就和新中国联邦大帐篷，以及新中国联邦咖啡一样，已经成为新中国联邦救援行动的标志。身穿灭共马甲的战友们，是梅迪卡最亮丽的风景线。[https://mega.nz/file/gF5mBYpI#BfqzALKGQE5UjExqmkx1Txx3cxh\_-R6M5sJ6YgBKdII](https://mega.nz/file/gF5mBYpI#BfqzALKGQE5UjExqmkx1Txx3cxh_-R6M5sJ6YgBKdII%20https://mega.nz/file/FUICzBzR#_Hkrq1i8Iuaob5FLpv-NSYHj_nhu3alEm_9chsC65vY%20https://discord.com/channels/872153398588370944/950448401529577502/964639706233061456)
 
-帖子原文：
+[https://mega.nz/file/FUICzBzR#\_Hkrq1i8Iuaob5FLpv-NSYHj\_nhu3alEm\_9chsC65vY https://discord.com/channels/872153398588370944/950448401529577502/964639706233061456](https://mega.nz/file/gF5mBYpI#BfqzALKGQE5UjExqmkx1Txx3cxh_-R6M5sJ6YgBKdII%20https://mega.nz/file/FUICzBzR#_Hkrq1i8Iuaob5FLpv-NSYHj_nhu3alEm_9chsC65vY%20https://discord.com/channels/872153398588370944/950448401529577502/964639706233061456)
 
-博主：时舒妈妈在加拿大
+校对/发稿：菩提树
 
-辉瑞疫苗副作用update
+![](https://assets.gnews.org/wp-content/uploads/2022/04/08E49E48-F9AB-4128-A1F8-15A80E2509A7.jpeg)
 
-今天一大早跑到医院做stress test（上跑步机和同时监测心率和血压）和心脏彩超。偷偷问了医生，结果应该都正常。
-
-很乌龙的跑到了医院，才知道该科室（诊所？）不在医院里。。。继续learn加拿大的医疗系统。
-
-除了自己好好休息，认真吃饭不熬夜外，就吃了Q10和维生素，没尝试中药、和各种菌、素。
-
-距离发作有一个多月，体力在恢复，偶尔有倒退。
-
-如果说惊恐症，我个人认为症状类似，但肯定不是，毕竟那么多人同时有相似状况，过于“凑巧”
-
-我个人认为与疫苗相关，但确实很难证明。但也不要病急乱投医，自己给自己开药或各种看中医。疫苗是新事物，中医是老手段，何况还有那么多本身水平不怎样的中医和那么多副作用不明的中成药。。。还是保留些科学精神吧。
-
-网上信息真真假假，每个人都有自己的见识和经历，唯有不断增加理性、提高判断力。#海外独自带娃 #移民加拿大 #辉瑞疫苗副作用
-
-评论选集：
-
-[粉红大象](https://www.xiaohongshu.com/user/profile/5aa1e36e4eacab34b16d3038) 回复：
-
-自己总结了是疫苗刺激了神经 ，植物神经紊乱了 就是会有焦虑症和panic attack的症状 所以查不出来实质性的毛病
-
-####  
-
-[RVS](https://www.xiaohongshu.com/user/profile/611d7931000000000100b83f) 回复：
-
-辉瑞被迫自己公布的1000多种副作用，ym初期死亡率2.9%，这些都可以去参观一下
-
-[Hakuna Matata](https://www.xiaohongshu.com/user/profile/5dfcce1800000000010000c4) 回复：
-
-阿姨您有啥症状呀？我也打的辉瑞，后来检查出高血压，体力变得特别差，总是心跳很快心慌…后来我还带了两周心脏检测仪，做个核磁共振，血管造影，都显示我没问题。但就是血压高。我23
-
-时舒妈妈在加拿大(作者) 回复 :
-
-我马上奔到四了 主要症状是一累心率就高 人没力气 最近查出贫血
-
-[米卡莎](https://www.xiaohongshu.com/user/profile/624c38f30000000010009c66) 回复：
-
-核磁共振做了吗，你这个心肌炎了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-46.png)图片来源：小红书
-
-
-素材来源：[辉瑞疫苗副作用update](http://xhslink.com/rHuwLg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
 
  
 

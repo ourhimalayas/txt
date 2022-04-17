@@ -2,87 +2,60 @@
 ---
 
 
-## 参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2358389/)
+## 焦点：千古一魔习近平封锁4亿人将导致全国汽车停产
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2358360/)
 
-**参议员卢比奥**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 2020年的新冠应对方式，在2022年不太起作用。
-【转路透社报道，随着上海新冠病例的增加，更多中国城市收紧控制】
+#### 加拿大多伦多蓝莲花农场 丁过
 
+![中国汽车产销量连续13年全球第一4家中企出口增速超100%｜多维新闻｜经济](https://media.dwnews.net/hk01/krWj8vNqX7_2dE25jUMxdMnGBqU%3D/320*0/media/images/cis/5e183e6db66f770df1c1f061.jpg)来源：Multi Dimension
 
+近日野村(Nomura)又发布了一项关于供应链的调查报告，显示此前中共国对23个城市实行封控已经大幅增加至本周一的45个城市，涵盖人口近4亿人，对应的经济产值占全国GDP的40%左右。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s 2020 Covid response not doing too well in 2022
-> 
->  [https://t.co/YvtUCYJ2pr](https://t.co/YvtUCYJ2pr)
-> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515317416812847104?ref_src=twsrc%5Etfw)
+除了经济龙头长江三角洲被封锁，被封控的还有北方工业重镇太原和南方特大城市广州和深圳等珠三角经济发达地区。
 
+其中的上海何时解封，没有人知道。笔者搜索了这方面的信息，仅看到一家国内小媒体预测起码到5月份。
 
+综合金融时报等多家媒体报道，4月14日晚和15日晨，小鹏汽车CEO何小鹏、华为智能汽车BU CEO余承东分别在个人朋友圈发文认为，如果上海不能复工复产，5月之后所有科技、工业产业涉及上海供应链的，都会全面停产，尤其是中国所有的整车厂都要停工停产。
 
-**参议员卢比奥**：
-#中共国 过去在新冠病毒上做得如此“出色”，以至于在大流行开始的两年后，他们已经迫使一座拥有 2500 万人口的城市（上海）进入全面封闭。 
-【转华盛顿邮报：上海的新冠围攻，商品短缺，讲话机器，饿肚子的动物】
+春江水暖鸭先知，何小鹏和余承东是汽车界的资深人士，他们发出的不是呐喊，而是泣血哀嚎，试想一下，他们如何面对即将到来的企业崩溃和亲如手足的成千上万部下失去生活来源！
 
+实际上很多汽车整车厂已经全面停产，比如特斯拉上海超级工厂于3月28日起停产，大众汽车上海工厂于4月初停产，蔚来汽车在4月9日宣布停产……
 
+为什么长三角封城效应显现那么快呢？中国汽车工业咨询发展公司首席分析师贾新光介绍，汽车生产的特点之一是缺一个螺丝都要停产。全球化之下，汽车配套的特点是有的零部件可能一个工厂供应全球。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) did such a great job on Covid that 2 years after the pandemic began they have forced a city of 25 million people into total lockdown [https://t.co/8O7k9i7Soo](https://t.co/8O7k9i7Soo)
-> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515321035989688321?ref_src=twsrc%5Etfw)
+传统整车厂一般有2万-3万个零部件供应商，只要一个关键零部件无法供应，车企的生产就会陷入停滞，这又会导致整车厂停止釆购其他零部件，从而导致整个汽车产业供应链的脆断。
 
+被重点封锁的上海地区和珠三角地区到底有多重要？
 
+上海地区规模以上汽车零部件企业超过600家，加上小微汽配企业多达2万多家，其中约40%汽配出口到全世界。
 
-**比尔·戈茨**： 
-这就是大白 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 
-【转英国自由撰稿人James Melville推文：上海的“健康与安全”冲锋队来了。 显然，这是为了你“好”。 （所附视频显示，上海一帮身着白色防护服的警察手持武器闯入民宅，将住户主人逼到阳台逼其就范…有开枪声！）】
+而后发制人的珠三角汽车产业集群发展更快，在2016年乘用车产量就位居全国第一。
 
+汽车产业是中共国经济的支柱产业，涉及超长的上下游产业链和数千万人的就业（仅在汽车4S店和汽修店就业的人数就达1000万人）。
 
+封锁不仅重创了汽车产业链，出口外贸也面临前所未有的冲击，以中共病毒疫情未爆发前的2019年为例，长三角和珠三角GDP之和为32.41万亿元，占全国经济总量近三分之一，其中出口外贸所占权重最大。
 
-> This is the Big White Chinese Communist Party [https://t.co/ijZZTQ0h48](https://t.co/ijZZTQ0h48)
-> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515176857364099072?ref_src=twsrc%5Etfw)
+这次停产将导致大多数出口企业的破产，因为除了要支付上下游商家的违约金，还被下游供应商抛弃，这些国际供应商纷纷将釆购渠道转移到其他国家。
 
+要知道，去年中共国的贸易顺差达到创纪录的6776亿美元。
 
+![评论| 刘青：习近平因邪恶实至名归— 普通话主页](https://www.rfa.org/mandarin/pinglun/liuqing/lq-10162020143900.html/88ab79f04e3a4e6076875e1d.jpg/@@images/image)来源：Radio Free News
 
-**比尔·戈茨**： 
-这就是中共国社交媒体用户如何通过在发布的照片​​上涂鸦来击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 自动审查技术的方式。 照片显示中国警察冲锋队在强迫一名上海居民隔离，来自帐号“微博上有什么”[@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo)
+习近平曾经在江浙、上海长期担任一把手，对长江、珠江三角地区举足轻重的龙头地位比谁都清楚，但他为什么还是如此决绝地下令封锁，而且解封遥遥无期呢？
 
+新中国联邦创始人郭文贵先生指出，习近平准备在5月攻打台湾（上海白衣警察在和市民的对峙中也说出来了）以及军援俄罗斯，会遭到西方的全面制裁，到时中共国的外贸将被封锁，经济将全面崩溃。
 
+为了让中国人民提前适应随之而来的大面积失业、财富归零、大饥荒、非正常死亡状态，习近平有计划的进行了全面压力测试，由于富有的发达地区将承受的损失和冲击最大，心理落差与反抗也会相应最大，所以习近平把测试重点放在了让他发迹的发达地区。
 
-> This is how Chinese social media users defeat automated CCP censor tech by scribbling lines on posted photos. Photo shows Chinese police stormtroopers forcing a Shanghai resident into quarantine h/t [@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo?ref_src=twsrc%5Etfw) [pic.twitter.com/m5ZRnqrMY8](https://t.co/m5ZRnqrMY8)
-> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515327783936806915?ref_src=twsrc%5Etfw)
+人类有史以来屠杀人类最多的是中国共产党，习近平为了保住这个恶党给予他的权力、数以千亿美元的非法财富以及为数不明的私生子女，不仅悍然释放生化武器、和普京发动乌克兰战争，而且正在将中国拉回毛式文革时代，并准备攻打台湾、挑起世界大战，相较于希特勒、普京等魔鬼，习近平才是名符其实的千古一魔！
 
+参考：
 
+[抗疫封控从上海扩展至国内其他城市](https://cn.wsj.com/articles/%E6%8A%97%E7%96%AB%E5%B0%81%E6%8E%A7%E4%BB%8E%E4%B8%8A%E6%B5%B7%E6%89%A9%E5%B1%95%E8%87%B3%E5%9B%BD%E5%86%85%E5%85%B6%E4%BB%96%E5%9F%8E%E5%B8%82-11650004508)
 
-**前国务卿迈克.蓬佩奥**： 
-当我们庆祝圣周和逾越节时，我们也应该为那些因信仰而被暴君和专制者们迫害的人而考虑并祈祷。 （阅读）我发表在《美国法律与司法中心》的最新文章 
-【附文章链接：这个复活节和逾越节，记住那些遭受迫害的人】
+[中国电动汽车产业的“三个软肋”](http://www.ftchinese.com/story/001095838?full=y&amp;gift_id=cb46056b7a36a7b3293f438c9f07d92e6227f908&amp;archive)
 
-
-
-> As we celebrate Holy Week and Passover, we should also consider and pray for those who are persecuted for their faith by tyrants and despots. My latest in ACLJ: [https://t.co/fG64IZWHTZ](https://t.co/fG64IZWHTZ)
-> — Mike Pompeo (@mikepompeo) [April 16, 2022](https://twitter.com/mikepompeo/status/1515363143530205199?ref_src=twsrc%5Etfw)
-
-
-
-**众议员安迪·比格斯**: 
-伊隆·马斯克在推特上做着正确的事。 
-左派和科技巨头憎恨言论自由。
-
-
-
-> Elon Musk is doing the right thing with Twitter. 
-> 
-> The Left and Big Tech hate free speech.
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515379782309105672?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂**： 
-[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国的年轻人发动一场非法毒品战争，而拜登政府正在通过让我们的南部边境开放，来获取他们的政治利益。
-
-
-
-> The CCP is waging an illicit drug war on America’s youth & the Biden Admin is enabling it by leaving our southern border open for their political gain.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 16, 2022](https://twitter.com/SenatorHagerty/status/1515465062194069506?ref_src=twsrc%5Etfw)
-
-
+[断供！5月全国车企可能停产？汽车业打响保供攻坚战](https://finance.sina.com.cn/tech/2022-04-15/doc-imcwiwst2058661.shtml)
 
  
 

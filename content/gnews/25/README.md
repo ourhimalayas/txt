@@ -2,38 +2,35 @@
 ---
 
 
-## [G时新闻】俄罗斯入侵乌克兰的战争会持续多久
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2358136/)
+## 教皇出席但不主持复活节守夜仪式
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2358036/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年俄罗斯入侵乌克兰的战争会持续多久.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
 
-而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/MBT7QQNRTNMMDOC54JUNZWWGVA.jpg)
 
-同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
 
-根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
+图片来源：路透社
 
-本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的
+梵蒂冈城，4 月 16 日（路透社) 教皇方济各周六晚上出席但没有主持在圣彼得大教堂举行的复活节守夜仪式，大概是因为反复出现的腿部疼痛迫使他减少了一些活动。
 
-盖特链接：https://gettr.com/post/p15jb9sf0cf
-上传/发稿 – 【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+意大利红衣主教乔瓦尼·巴蒂斯塔·雷 (Giovanni Battista Re) 取代了教皇成为仪式的主要主礼人，其中包括在基督教世界最大教堂的中央教堂中殿几乎完全黑暗的游行队伍。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+教皇坐在大殿前侧的一张白色大椅子上，一副警惕的样子。梵蒂冈说他稍后会在弥撒中宣读讲道。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+主持有 5,500 人参加的弥撒，需要在诵经和读福音时长时间站立，以及在祭坛前跪下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
-里输入要转换的内容
- 
+这位 85 岁的教皇患有坐骨神经痛，这会导致一条腿疼痛并导致明显的跛行。最近，弗朗西斯的右膝也突然疼痛。
+
+梵蒂冈周五发布的一个节目将教皇列为周六晚礼拜的主礼。梵蒂冈没有给出改变的官方理由。
+
+🔗[https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/](https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
