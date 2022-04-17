@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 5:27 PM (UTC)`
+
+04.17.2022 俄乌战争战况播报<br/>
+![img](https://media.gettr.com/group15/origin/2022/04/17/17/dac06d7f-4a7f-a65d-8a30-ed3cf7ae7595/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mos_designer 4/16/2022 10:18 PM (UTC)`
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 2022.04.16 晚  新中国联邦 | 新闻   近百名犹太人在新中国联邦的七星大帐蓬共度逾越节；新中国联邦的救援被全球越来越多人认识
 ![img](https://media.gettr.com/group31/origin/2022/04/17/00/7290b097-6937-ca11-17a5-c2a674f001bc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 11:41 PM (UTC)`
-
-2022.04.16 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-![img](https://media.gettr.com/group26/origin/2022/04/16/23/97ae1991-4ba2-01a2-6336-7ff0ad4e2bfb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
