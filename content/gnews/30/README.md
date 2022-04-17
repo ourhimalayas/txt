@@ -2,31 +2,28 @@
 ---
 
 
-## 樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363164/)
+## 【G时新闻】任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2363455/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输.jpg)
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+4月16日郭先生在直播中公布，任何人但凡有中共国的刑讯卷宗的，都可以主动联系新中国联邦。这些重要的情报可以得到丰厚的回报。 郭先生提到此前通过战友的介绍购买了大量的材料，通过Hpay迅速完成了交易。其中有马云的刑讯卷宗，卷宗显示马云的财政数据由中共的财政部门专门操作，中共审计署有专业的团队来给阿里巴巴审计数据。尽管卷宗只提供了三分之一，但已经让接触到的某国政府瞠目结舌。 郭先生爆料吴征接受的问讯笔录不下30次，这些大量的卷宗对于打破中共在美国的间谍网布置具有重要的作用。郭先生公布，任何人，但凡有吴征的问讯笔录、孙力军和傅政华的卷宗、马云其余的三分之二卷宗、以及吴征、孙力军、孟建柱等人的银行问讯笔录，单伟建的间谍档案等，请和所在农场主或者老椅子战友联系，新中国联邦会妥善安置。现金和喜币都可以交易，不用担心人身安全，此前有提供中共统计局数据的战友全家得到了美国紧急移民。郭先生提到，不仅限于以上卷宗资料，只要是中共的秘密都可以交易，新中国联邦是最好的桥梁。
 
-4月17日每经经济报报道，交通运输部将根据各省（区、市）上报数据汇总统计，受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个，占收费站总数的2.03%，比4月10日减少459个，下降了67.70%；共关停服务区76个，占服务区总数的1.15%，比4月10日减少288个，下降了79.12%。除西藏（无高速公路收费站和服务区）外的30个省（区、市）中，北京、天津、山西、内蒙古、福建、山东、河南、湖南、海南、重庆、四川、贵州、甘肃、宁夏等14个省份已无关闭关停的高速公路收费站和服务区。
+盖特链接：[https://gettr.com/post/p15omul4473](https://gettr.com/post/p15omul4473)
 
-中共独裁者不顾及经济与民生，用一刀切的方式，所谓的疫苗后遗症当作中共病毒疫情防控来处理，导致大半个中国交通运输和城市处于封闭状态。
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-信息来源：
-[交通运输部：受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个](https://mi.mbd.baidu.com/r/ED7jxWvVhS?f=cp&amp;rs=909221183&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6fefe818ea7e54f5&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

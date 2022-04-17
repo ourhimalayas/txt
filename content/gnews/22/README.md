@@ -2,41 +2,26 @@
 ---
 
 
-## 有声|马斯克将以430亿美元收购推特
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2363569/)
+## 台防疫指挥中心陈时中：估全台染疫率恐超15%
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2363700/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月14日，据当地媒体报道，企业家埃隆-马斯克当天以每股54.2美元的价格收购了推特公司的全部股份，总计大约430亿美元。早先，马斯克已经花费了 30多亿美元购入了推特9.2%的股份，成为该公司最大的个人股东。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-16-at-12.01.21-PM.png)
-据悉，马斯克于2009年加入推特平台，目前已有超过八千万跟随者。但近几年间，马斯克多番发表评论，批评推特平台审查言论的行为。对此，马斯克指出，此次收购的决定性因素在于，推特这家社交媒体公司如今已经无法推进并确保其用户的言论自由，为此，该公司急需转型以释放其潜力。然而，马斯克也表示，如果这一转型提议遭到推特的拒绝，那么他将考虑出售当前持有的股份。
+# **撰稿：日本东京方舟农场 胖小哥**
 
-另一方面，郭文贵先生也在直播中提到，对于社交媒体而言，缺乏市场竞争将导致社交媒体寡头的垄断，相反的，竞争才是为世界带来真相的动力。
+据中央社报道，台湾COVID-19（中共病毒）病例数快速攀升，国内有专家推估，台湾染疫率可能高达20%至30%。 台湾指挥中心指挥官陈时中日前曾坦言，本土确诊累计破百万例不是完全不可能，强调防疫重点将转变为减灾，强化疫苗、药物及轻重症分流。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-25.jpg)国内17日新增1210例COVID-19（中共病毒）本土个案，疫情持续延烧，民众下午前往台北松山文创园区逛街，在人潮聚集的区域戴好口罩防疫。 中央社记者裴禛摄 4月17日
 
+陈时中今天下午在中央流行疫情指挥中心记者会上再次表示，以台湾过去的防疫经验来看，推估台湾染疫率应该会与香港、新西兰雷同，大约落在人口15%至16%，预计会超过300万人，未来两周是密切观察期，须注意确诊人数是否出现指数成长。
 
+陈时中说，近期连续3天新增本土个案突破千例，部分地方卫生单位仍积极追感染源，但案例愈多愈无法追感染源。 未来轻症在家照护实行后，预防中重症的辉瑞口服药，只要病人有需要时，就会用适当方式送到手上。
 
+另外，本土疫情持续升温，也在影响台北市场的选举进程。据悉台北市长柯文哲和代表民进党参选台北市长热门人选的陈时中均强调，不将疫情作为选择的筹码。
 
+参考链接：
+[俄乌战争与北京的舆论宣传游击战 (voachinese.com)](https://www.voachinese.com/a/russia-ukraine-war-creates-new-propaganda-and-diplomacy-challenges-for-china-20220417/6532080.html)
 
-
-文字版原文：[马斯克将以430亿美元收购推特](https://gnews.org/zh-hans/2357808/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：青城道姑
+校对发布：Linda
 
  
 

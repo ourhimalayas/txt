@@ -2,28 +2,42 @@
 ---
 
 
-## 【G时新闻】任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2363455/)
+## 有声|马斯克将以430亿美元收购推特
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2363569/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月16日郭先生在直播中公布，任何人但凡有中共国的刑讯卷宗的，都可以主动联系新中国联邦。这些重要的情报可以得到丰厚的回报。 郭先生提到此前通过战友的介绍购买了大量的材料，通过Hpay迅速完成了交易。其中有马云的刑讯卷宗，卷宗显示马云的财政数据由中共的财政部门专门操作，中共审计署有专业的团队来给阿里巴巴审计数据。尽管卷宗只提供了三分之一，但已经让接触到的某国政府瞠目结舌。 郭先生爆料吴征接受的问讯笔录不下30次，这些大量的卷宗对于打破中共在美国的间谍网布置具有重要的作用。郭先生公布，任何人，但凡有吴征的问讯笔录、孙力军和傅政华的卷宗、马云其余的三分之二卷宗、以及吴征、孙力军、孟建柱等人的银行问讯笔录，单伟建的间谍档案等，请和所在农场主或者老椅子战友联系，新中国联邦会妥善安置。现金和喜币都可以交易，不用担心人身安全，此前有提供中共统计局数据的战友全家得到了美国紧急移民。郭先生提到，不仅限于以上卷宗资料，只要是中共的秘密都可以交易，新中国联邦是最好的桥梁。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月14日，据当地媒体报道，企业家埃隆-马斯克当天以每股54.2美元的价格收购了推特公司的全部股份，总计大约430亿美元。早先，马斯克已经花费了 30多亿美元购入了推特9.2%的股份，成为该公司最大的个人股东。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-16-at-12.01.21-PM.png)
+据悉，马斯克于2009年加入推特平台，目前已有超过八千万跟随者。但近几年间，马斯克多番发表评论，批评推特平台审查言论的行为。对此，马斯克指出，此次收购的决定性因素在于，推特这家社交媒体公司如今已经无法推进并确保其用户的言论自由，为此，该公司急需转型以释放其潜力。然而，马斯克也表示，如果这一转型提议遭到推特的拒绝，那么他将考虑出售当前持有的股份。
 
-盖特链接：[https://gettr.com/post/p15omul4473](https://gettr.com/post/p15omul4473)
+另一方面，郭文贵先生也在直播中提到，对于社交媒体而言，缺乏市场竞争将导致社交媒体寡头的垄断，相反的，竞争才是为世界带来真相的动力。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+
+
+
+文字版原文：[马斯克将以430亿美元收购推特](https://gnews.org/zh-hans/2357808/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

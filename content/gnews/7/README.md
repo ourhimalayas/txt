@@ -2,44 +2,68 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第14天位列3国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2363920/)
+## 【商见你我他】第50期新闻简讯（二）
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2363997/)
 
-4/17/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第14天iTunes打榜记录：
+编辑：波士顿五月花—DM
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-7.jpeg)
+首先，让我们关注灭共新歌打榜的情况，
 
-* * *
+4月14号, 郭文贵先生两首新歌上线第11天，继续创造奇迹。
 
-[【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+《灭共的雪》登榜iTunes，香港 ，新西兰 ，新加坡 ，老挝 ，摇滚歌曲榜首，台湾 ，柬埔寨，摇滚榜第二名。《铁锁梦》登榜iTunes，柬埔寨 ，流行歌曲第三名。《Fight for Hong Kong》登榜iTunes，澳门，摇滚歌曲第二名，老挝，摇滚歌曲第三名。《Hcoin To The Moon》登榜iTunes 柬埔寨 ，热门歌曲榜榜首，柬埔寨，摇滚歌曲榜榜首。《The Hero》登榜iTunes澳门，摇滚榜第三名。
 
-* * *
+接下来，是新中国联邦新闻，本周文贵先生直播以及盖特资讯，
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+1）独裁者习近平和普京明白, 只有让老百姓生活在战争，恐惧和饥饿中，他们自己才安全。如今，习在中共国几个城市所做的压力测试，就是当年希特勒和日本在发动战争前所做的事情。
 
+2）通过用封锁把家变成监狱，中共得以享受人们的一切。病毒、疫苗灾难和核酸检测及其造成的死亡都在习近平的计划之中，习要把所有的灾难都甩锅给中国人，并通过“社会压力测试”增加老百姓的承受能力进而对抗美国、毁掉美元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+3）习让中国人没电、没水、没冰箱、没食品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿。中国同胞要做好最坏的打算，共产党开始净化中国人的时代已降临。
 
+4）在习代表的文化大革命一代高官的眼里，老百姓只是工具。他们希望借老百姓被压榨到只关心食物和生存，无暇顾及权利和选票之际，为中共政权赢得苟延残喘的机会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+5）习要让中国人挨饿，香港、上海、广州、深圳和北京会很惨。中共要求上海、广州、深圳、郑州和长春为死掉5000分之一或2500分之一的人做准备。
 
+6）邪恶中共再次刷新下限，上海和长春无数大白和居委会的人用食物逼迫女孩陪睡，无数人的妻女遭饭奸、水奸、面奸，却无人敢站出来反抗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+7）国内骗打毒疫苗趋势抬头，以金钱引诱偏远地区老人打，这就是用疫苗杀人。老百姓抢着打疫苗是因为无知和对死亡的恐惧。而中共明知疫苗杀人却仍推毒疫苗，核酸检测100%是假的。
 
+8）外省为上海送食品的官员很快被抓，21个城市的官员若违反中共政治规定会被就地免职。共产党那些所谓的领导都是精致的利己主义者，胆小窝囊，只能等习的身体垮掉，其他人才有胆子夺权。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+另外，上海封城不是习和上海帮的政治斗争，上海帮早已完蛋。中共灭亡的50%押在习的身体上，另外50%要靠我们新中国联邦。
 
+9）世界局势千变万化，中共可能5月初打台湾。这场战争的最大受害者将是中国老百姓，现在的上海就是未来中国的缩影，共产党已做好中国死上一亿人的准备。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+10）习在执行周密的杀人计划，对内实施计划经济，拿下港台，在日本周围将布置超级水雷并控制马六甲海峡和霍尔木兹海峡，而美国却无法理解习的计划。
 
+11）乌克兰的血腥战争将升级为俄、中、欧的全面战争。中共不惜牺牲中国人的性命，已提前做好欧美制裁的准备。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+俄乌大战在即，俄军新指挥官冷酷无情，将声东击西打基辅，泽连斯基将成众矢之的。
 
+英国和欧盟争相与乌克兰建立同盟，同时中共在巴尔干、中东地区布置红旗与东风导弹系统，意味着欧俄中大战全面拉开。
 
-[【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+12）俄罗斯所谓的”黑海之神”导弹巡洋舰被两个半导弹击沉了，这对改变整个世界军事政治格局意义非凡，俄罗斯无法将乌克兰打趴下，因而有可能会找借口使用核武器。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+13）过去30年德国和法国推行的马克思主义极权导致了欧洲的灾难。
+
+默克尔和萨科齐是政治战犯，他们欺骗了世界并跟共匪勾兑，是他们培养了习和普京，造成无数人道灾难发生在中共国和乌克兰。
+
+14）全球供应链现严重危机，很多基本商品无人生产。习妄图通过拿下港台和中东原油制造世界经济灾难，从而让中共国跟西方玩谁能挨饿的游戏。
+
+如果打台湾，一定以战争的名义限制取钱，银行也没钱让你取了。欧盟和美国要对香港金融脱钩、对香港官员进行严厉制裁。
+
+15） 习的终极目标是确保20大连任并建立起永远属于习的江山。习为了实现这一目标，不惜将中国人置于永不停歇的战争、饥饿、以及矛盾和冲突之中。只有爆料革命向世界揭露了这一真相。
+
+中共未来不会再有外交了，只有内交。共产党已经完了。
+
+16）郭先生给墙内战友建议：未来一两年一定要有食物、水、现金和生存的地方。接下来很多城市都会被隔离，北京一定会更惨。
+
+17）新中国联邦才是所有华人的未来，南美有国家和新中国联邦站在一起，喜币成为最早最流行的数字法币、而人民币等同于犯罪币的那天不远了。
+
+18）乌克兰民族勇气的感染力量一定把俄罗斯解体。乌克兰人的英勇反抗唤醒了欧洲和美国本能的良知和正义，因而得到了广泛的支持和援助。以乌克兰为鉴，反抗是中国同胞们的唯一选择。
+
+封面图片/发布：DM
 
  
 

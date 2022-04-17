@@ -2,34 +2,30 @@
 ---
 
 
-## 中共病毒使美国人寿命急剧下降 比预期缩短2年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363077/)
+## 樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363164/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输.jpg)
 
-整理：等风来
-编辑：JH
+4月17日每经经济报报道，交通运输部将根据各省（区、市）上报数据汇总统计，受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个，占收费站总数的2.03%，比4月10日减少459个，下降了67.70%；共关停服务区76个，占服务区总数的1.15%，比4月10日减少288个，下降了79.12%。除西藏（无高速公路收费站和服务区）外的30个省（区、市）中，北京、天津、山西、内蒙古、福建、山东、河南、湖南、海南、重庆、四川、贵州、甘肃、宁夏等14个省份已无关闭关停的高速公路收费站和服务区。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2097.png)
+中共独裁者不顾及经济与民生，用一刀切的方式，所谓的疫苗后遗症当作中共病毒疫情防控来处理，导致大半个中国交通运输和城市处于封闭状态。
+
+信息来源：
+[交通运输部：受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个](https://mi.mbd.baidu.com/r/ED7jxWvVhS?f=cp&amp;rs=909221183&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6fefe818ea7e54f5&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
 
-大纪元2022年04月14日讯，据一项全球研究显示，在2020年的COVID-19疫情期间，美国人的预期寿命平均缩短了近两年，降至77岁左右，与其它21个高收入国家相比降幅最大。
-
-在COVID-19（中共病毒）疫情期间，美国的疫情感染死亡率和死亡人数均位居世界前列。 在2020年，中国病毒成为美国人的第三大死亡原因，仅次于心脏病和癌症。
-
-这项研究结果与美国疾病控制和预防中心早先的一项预估相吻合。 该预估显示，2020年美国总人口的预期寿命平均为77岁，比2019年的78.8岁下降了1.8岁。 这是自二战以来最大的降幅。
-
-根据疾病控制与预防中心的数据，随着疫情进入第三个年头，已经有近100万美国人死于中共病毒。
-
-参考链接：[https://www.epochtimes.com/b5/22/4/13/n13711020.htm](https://www.epochtimes.com/b5/22/4/13/n13711020.htm)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
