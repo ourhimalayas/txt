@@ -2,11 +2,11 @@
 ---
 
 
-## 前线战友介绍相关情况（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362487/)
+## 喜币成为全世界最早的数字法币指日可待（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362559/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：10-09：20-001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：50-10：00-006.jpg)
 发布：*tianzhihuan*
 
 更多资讯，请关注：

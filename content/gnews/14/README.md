@@ -2,26 +2,59 @@
 ---
 
 
-## 治疗新冠的新药莫努皮拉维仅销售85天就有9人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2362220/)
+## COVID-19疫苗副作用集萃(2022.4.17H) 打完新冠疫苗对身体危害太大了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362243/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/治疗新冠的新药莫努皮拉维仅销售85天就有9人死亡.jpg)[图片来源](https://i.gyazo.com/8c3c5c933893aeecc3ed7808eb883114.png)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-日本4月8日，厚生劳动委员会，由山田胜彦众议院议员提问，在药机法修改之前，特例批准的新冠病毒治疗药物的验证是不是该先认证呢？尚未开展临床试验的莫努皮拉维的安全性是什么？Molnupiravir在开始销售后仅85天内，在1,526人中，有2,246起副作用报告，其中282件是严重的。另外，有9人死亡的报告，但关于这9人的详细尚未公布。这是治疗新冠病毒的口服药，由美国默沙东药厂推出，英国医药品规制当局输入。
+整理/编辑：禄森
 
-消息来源：
-[新型コロナウイルス感染症の経口抗ウイルス薬ーモルヌピラビル販売開始わずか85日間で9名死亡、詳細公表されず](https://blog.goo.ne.jp/sakurasakuya7/e/b42645ffafc591a68050cf4d41997a80)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：小红书
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+**博主:  小杨同学的摆摊日常**
+
+打完新冠疫苗的你有副作用吗
+
+前天打完疫苗，昨天人都废了
+
+发烧，浑身酸疼，接种的胳膊也超级疼
+
+我这是咋啦？
+
+**作者发布于2022-4-13**
+
+**评论选集**
+
+I am alive评论:
+
+没啥副作用，就是打完三个月不来姨妈而已
+
+飞翔的鱼评论:
+
+北京生物2针，确诊胰腺受损。
+
+张张小评论:
+
+胖了20斤，以前吃不胖，找我每天都好饿，我都快抑郁了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2067.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2068.png)图片来源：小红书
+参考链接：
+
+[全身酸痛，发烧](https://www.xiaohongshu.com/discovery/item/62567f4100000000210397e7?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650067959)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
