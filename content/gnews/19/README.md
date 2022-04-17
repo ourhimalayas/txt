@@ -2,30 +2,35 @@
 ---
 
 
-## 上海浦东发“告全体居民书” 仍坚持动态清零不顾百姓死活
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2364050/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2364085/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-44.jpg)
-封城下的上海某处（图片来自《路透社》）
+作者：香草山翻译部
 
-中共国上海市执行严酷的疫情封控措施已经有三、四周时间了。4月16日晚，上海市浦东新区委员会与浦东新区政府联合发布“告浦东新区全体居民书”，称封控及动态清零政策不变，呼吁民众“坚持”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
 
-据《阿波罗新闻网》4月17日报道，上海浦东新区官方微信公众号“浦东发布”4月16日晚发布公告称，浦东新区目前感染仍十分严重，已经连续四天超过1万人。公告指，奥米克戎病毒不是大号流感，它非常隐匿、非常狡猾，传染性极强，留下一点缝隙就会感染一大片。如果放任传播，将会带来极其严重、无法挽回的灾难性后果。只有第一时间发现感染者、第一时间集中隔离救治感染者和密接，才能彻底阻断病毒传播链条。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-16.png)
 
-公告书强调，在有关防疫措施方面， 将继续坚持“人民至上、生命至上，科学决策”，明确动态清零总方针不动摇。公告还指明：“在市委市政府的坚强领导下，采取全域静态管理、全员核酸检测、全面流调排查、全民清洁消杀的防控措施。”
+文章仅代表作者本人观点，与Gnews无关
 
-目前浦东新区已经封控了超过20天，有些社区甚至已经封控了一个多月。而这封“告全体居民书”却仍要求民众继续坚持，声称一旦放弃，之前的所有努力和牺牲都将付诸流水，将来还要付出更大的代价。
+视频参看：
+[2022.04.17早 《NFSC新闻》](https://gettr.com/streaming/p15piw18d52)
+[2022.04.17早《NFSC新闻访谈》](https://gettr.com/streaming/p15p2ox451e)
 
-从这份公告书可以看出，中共高层及上海当局不仅是要“一条道走到黑”，并且或将升级其防疫暴政。中共完全无视所谓的“清零政策”带来的次生灾难已经远远大于病毒本身，完全无视科学、无视人权、不顾百姓死活，上海人即便付出再多生命代价也不会令中共当权者回头。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-上海人，为了你们基本的生存权利，该团结起来反抗了！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
 
-新闻链接：
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-[https://www.aboluowang.com/2022/0417/1736154.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0417/1736154.html?utm_source=dlvr.it&amp;utm_medium=twitter)
-
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
 
  
 

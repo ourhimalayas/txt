@@ -2,40 +2,32 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾 (2022年4月7日~4月15日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364174/)
+## 中共的外宣和上海的疫情走势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2364195/)
 
-作者：香草山农场 BIM ；DC农场 火来
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-2022年4月6日至4月13日，除中共国外，全球新增中共病毒确诊患者663万余例，同比上周的847万余例下降了21.7%；此外，本周新增确诊死亡病例22,753例，同比上周的25418例下降了10.5%。本周已是连续第六周全球确诊病例和死亡病例持续负增长。 截止4月6日，除中共国外，全球累计接种了82.6亿剂中共病毒疫苗，同比4月6日的接种数据增长了0.487%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/shuaiguo.gif)（圖片：PhotoAC）
-4月7日，美国众议院议长南希佩罗西中共病毒检测阳性，此前，南希佩罗西已经完全接种了疫苗，并且接种了疫苗加强针。
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+今天是2022年4月17日，从中共下图中的数据可以估算出上海已经直接间接的封城将近一个多月了，上海发生了感染者每天都在增加，国际化的大都市经过中共的无逻辑的，拍脑门子的，病毒社会面清零的，以及杂乱无章的防疫政策下，将一个国际化大都市变成了寂静之城，甚至看到有形容上海的机场成了美军撤离阿富汗喀布尔机场……
 
-4月10日，数千人参加了在洛杉矶举办的“反对强制疫苗”集会。当下，美国各地已经逐渐放宽了一些强制措施，但仍然有一些学校、学院、企业、医院和公司继续采取疫苗强制措施。此外，在用药方面对治疗中共病毒的医生进行种种限制、大型科技公司对疫苗真相的审查与掩盖，对儿童进行不必要的疫苗接种，以及对科学论证保持缄默，是集会中强调的几个主要问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-115.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F6%2F000142986_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001095813%3Ffull%3Dy&amp;tbnid=1FOBhmAj-MHMNM&amp;vet=12ahUKEwjN_8Drupv3AhUDjxoKHXt3DK0QMygBegUIARCUAQ..i&amp;docid=K53g7n8im1wuDM&amp;w=900&amp;h=506&amp;q=%E4%B8%8A%E6%B5%B7%E5%B0%81%E5%9F%8E&amp;ved=2ahUKEwjN_8Drupv3AhUDjxoKHXt3DK0QMygBegUIARCUAQ)
 
-4月12日，美国媒体揭露了辉瑞公司曾试图隐瞒新增聘的2400名全职员工，以负责处理疫苗副反应的案例。德克萨斯州法院下令辉瑞公司披露与中共疫苗有关的细节时，最新文件显示了与疫苗伤害相关的新增数字令人震惊。此前，法庭要求辉瑞公司及美国食品和药物管理局披露的文件中所罗列的1291项严重副反应，也仅简单列出副反应的名称，并未描述副反应的详细情况。
+看一下中共的外宣——知乎的解释：3月1号上海普陀区一名女性被确认感染新冠，把她相关的一个社区文化活动中心划为中风险地区！同一天另外一名感染者从上海坐高铁赶往徐州，第二天被徐州当地检查返乡人员后发现为阳性！之后的十几天里，上海发现许多的本土感染者，全国各地也陆续的发现由上海输出的新冠感染者，在这样的情况下，上海没有采取封城的措施，单单把发现本土感染者的地点划分成了中风险地区，未采取全市范围的管控措施！时间到3月12号，中共国中央通知之后，上海开始采取全市范围的防范措施，上海发布官方通告:市民非必要不离沪，确需离沪的人员须持有48小时内核酸检测阴性报告，来沪返沪的人员须持有抵沪前48小时内核酸检测阴性报告。从12日至20日之间所有的离开上海的人都爆出感染，为上海封城买下伏笔。20日上海迪士尼宣布3月21号起暂时关闭，在30日之前每天基本上都是几百的确诊和千人的无症状。直至30日全域静态管理，全员核酸筛查。4月2日零时起离沪人员须提供24小时抗原检测阴性证明。4月1日上海七个火车站宣布暂停办理旅客进出站业务，但3个大站仍在照常运营；4月5日无症状感染者破万。4月8日无症状破两万；4月9日以建成方舱医院100多个；4月13日无症状感染者达到峰值25141例；数据相对稳定，之后几日病例呈下降趋势。为今后在端午节要实现恢复正常生活奠定基础。
 
-4月13日，华盛顿州卫生部官员投票反对强制要求学生接种中共疫苗。
+来源：[上海疫情时间线（保存日更新中！） – 知乎 (zhihu.com)](https://zhuanlan.zhihu.com/p/496571371)
 
-该州卫生委员会一致投票决定，不再推进为学生接种中共疫苗的申请。经过来自公众广泛的讨论和建议，华盛顿州卫生部官员认为，尽管中共疫苗对所有符合条件的年龄组都是安全的，但他们亦承认若强制要求儿童接种，将带来不可预计的多重影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-91.jpg) **图片来源：**[实时更新：新型冠状病毒肺炎疫情地图 (baidu.com)](https://voice.baidu.com/act/newpneumonia/newpneumonia/?from=osari_aladin_banner&amp;city=%E4%B8%8A%E6%B5%B7-%E4%B8%8A%E6%B5%B7)
 
-董事会成员鲍勃-卢茨博士在周三的会议上说，在与全州各学校校长的讨论中，他了解到：家长们担心学生会因没有注射疫苗而无法上课。校长们非常担心会流失大量的学生，以及父母将被逼带着孩子离开学校。
+我们都知道中共的数据是在造假，但这也掩盖不住上海大量的感染者，郭文贵先生曾说过，上海的疫情就是疫苗导致的，上海死亡的人数已经近10万人。从墙外的媒体我们看到太多令我们痛心的事件，不知道如何去描述和抒写内心的愤怒和感慨，不知如何去批判那些工具者，被洗脑者的罪行，更不知如何去拯救那些处于水深火热中的上海人。拥有2500万人口的上海，国际化大都市的上海，中国大陆经济中心的上海，中国人的上海，就被这几个混蛋玩弄于股掌之中，古有陈胜，吴广起义，自由是需要代价的，我们新中国人已经开始为之奋斗，新中国联邦已经正式的走过了1年多了，在国际政治舞台上已经初露锋芒在俄乌战争的边境Mekdya，我们就是推翻干灭这些的恶魔流氓的共产党。让中国人真正的享受到自由，民主。抛掉软弱和懦弱，唤醒国人的麻木不仁，唤起内心的真正善良和正值。
 
-参考链接：
-1.[COVID-19 vaccinations, cases, excess mortality, and much more](https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&amp;time=2022-04-07..latest&amp;country=~World+excl.+China)
-2.[Pelosi tests positive for COVID-19](https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/)
-3.[Thousands Protest Vaccine Mandates at Los Angeles Rally](https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally_4396176.html)
-4.[Pfizer Tries To Hide 2.4K Full-Time Hires Handling Vax Injuries](https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/)
-5.[Over 4000 Women have now lost their baby due to the Covid Vaccine in the USA; this is a 16,633% increase on the number of Fetus deaths caused by the Flu Jabs since 1990](https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/)
-6.[Washington health officials vote against requiring COVID vaccine for students](https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-编辑：文恩
-总编：文恩
-审核：文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
