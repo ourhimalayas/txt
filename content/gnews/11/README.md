@@ -2,24 +2,31 @@
 ---
 
 
-## 英国特种部队训练乌克兰军队
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2364629/)
+## 拒绝俄罗斯军队劝降，作誓死抵抗的架势 隐蔽在马里乌波尔Azovstari钢铁厂内的乌克兰士兵
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364651/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+翻译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
+在乌克兰东南部的马里乌波尔，虽然俄罗斯军队劝告躲在城里的乌克兰士兵投降，但乌克兰军队拒绝并作出了誓死抵抗的姿态。
 
-过去两周，英国特种部队前往基辅训练乌克兰军队使用伦敦特工的某些类型的武器，特别是Nlaw反坦克火箭。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-17-alle-20.06.19.png)图片来源：open.online
-乌克兰官员告诉《纽约时报》，驻扎在首都及周围地区两个营的军官说，他们参加了英国同事提供的两门培训课程，一个是上周的，一个是前一周的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2129.png)图片来源：雅虎新闻
 
-如果这一消息得到证实，这将是第一次有来自北约国家的军队出现在乌克兰的记录。在俄罗斯入侵之前，美国和英国已经撤回了他们的军事顾问，担心可能发生直接对抗带来不可预测的后果。
+俄罗斯军劝告藏身在马里乌波尔Azovstari钢铁厂内的乌克兰士兵投降，称如果他们在日本时间4月17日下午7点之前放下武器，就能保证他们的生命安全。
 
-Yiriy Myronenko上尉说英国军队已前往乌克兰首都训练新兵，并要求使用Nlaw便携式反坦克火箭，事实证明，这是对抗俄罗斯人进攻的最有效的武器之一。
+据CNN报道，乌克兰军队表示拒绝投降，并将坚持继续保卫马里乌波尔市。
 
-参考链接：
+与此同时，据报道，俄罗斯国防部截获了乌克兰军方的通讯，称乌克兰军方 “下令枪杀内部想要投降的士兵”。
 
-[https://www.imolaoggi.it/2022/04/16/forze-speciali-britanniche-addestrano-militari-ucraini/](https://www.imolaoggi.it/2022/04/16/forze-speciali-britanniche-addestrano-militari-ucraini/)
+除此之外，报道还称从投降的乌克兰士兵那里得到的信息，400名乌克兰士兵仍留在Azovstari钢铁厂。
 
-编辑、上传：Xiao baige
+参考链接：[ロシア軍からの投降呼びかけ拒否、徹底抗戦の構え マリウポリのアゾフスタリ製鉄所に立てこもるウクライナ兵（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/aa49bc2dad4fdf7150f2b691ebc0b0c1ab471f36)
+
+* * *
+
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+
 
  
 

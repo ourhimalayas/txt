@@ -2,42 +2,40 @@
 ---
 
 
-## 有声|郎咸平老母离世，只因苦等核酸耽误就医
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2364427/)
+## 【G时新闻】中共反美宣传大翻车
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2364431/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月11日，经济学者郎咸平在社交平台上发文称：其98岁高龄的母亲，近日患轻微肾脏衰竭，按之前诊断，原本打一针就可治愈。但因为上海严格要求必须做核酸后才能就医，故其老母在医院门口现场做核酸测试，却苦等四个小时无结果，未能得到及时救治而离世。由于郎咸平本人居住的小区已经封闭，虽经和有关部门沟通允许其去医院陪护母亲，但由于区域封控无法打车赶到医院而未能见到其母最后一面。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16-04-2022-1.jpg)
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是中共反美宣传大翻车！
 
+近期上海的疫情乱象，相关内容的审查及其严厉，与此同时，中共官媒继续其长期以来的“反美宣传”，孰料随着老百姓的认知提高，遭遇了大翻车。 网友们发出的声音，遭到中共严厉封杀。
 
-中共对上海的封控管理毫无人性可言，一线医护人员只能机械式执行命令，之前就有社交媒体传出因急救车不予救治，致使哮喘病人死亡的惨剧发生。
+4月13日，中共央视在官方微博发文，指称美国是“全球最大的人权赤字国”，要求美国“拿人权手电筒照照自己”等，该话题被许多官媒微博转发，一度被推上微博热搜榜第二名。然而，该话题下方满是网友对中共和官媒的嘲讽及抨击，评论区一度大翻车。
 
+有网友说：“半夜发帖的不一定是境外势力，也可能是饿得睡不着的上海人。” 也有网友讥讽：“我们虽然给人家家门口贴封条、杀宠物，浪费医疗 ，让更多急重症患者错失治疗，但我们统计的死亡数字可是零呢！”
 
+还有网友感叹说：“上一秒刚刷到上海抗疫无奈求助，下一秒刷到文化自信国大谈人权，也不知道丰县的马赛克打在哪里？” 也有网友嘲讽：“自己被隔离，宠物却被打死，敲盆子被拘留，春耕播种是恶意农耕，恶意返乡，难道这些就是所谓的人权吗？
 
+有人表示：“有幸在这个没有网管的凌晨，见证了人民觉醒的开始。这个实时微博撕毁了所有伪装的岁月静好。人民的嘴是捂不住的。” 此外，中共喉舌赵立坚在一次记者会上对外国记者说：“疫情期间，生活在中国，你们就偷着乐吧”，于是“偷着乐”也成了大陆网民们嘲讽中共的热词。
 
+目前，“偷着乐”一词已经被微博屏蔽，但网民对官方的批评和讽刺还在继续。 此次上海人历经一场生死劫，让一批人觉醒，民怨堆积下，越来越多的网民开始找寻和传播真相，这将解开中共强行捆绑在中国人心灵上的枷锁，同时将粉碎中共政权的合法性并加速中共的崩毁。
 
+盖特链接：[https://gettr.com/post/p15nxkbb43a](https://gettr.com/post/p15nxkbb43a)
 
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-文字版原文：[郎咸平老母离世，只因苦等核酸耽误就医](https://gnews.org/zh-hans/2358057/)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

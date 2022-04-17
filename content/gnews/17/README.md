@@ -2,43 +2,35 @@
 ---
 
 
-## 有声|欧盟委员会启动数字欧元咨询
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2364455/)
+## 2022/04/12 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2364478/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据媒体 4月15日报道，欧盟委员会已发布公告，就数字欧元展开咨询，咨询时间为4月5日至6月14日。委员会呼吁支付专家、信贷机构、商家及其协会、支付解决方案开发商、消费者协会、零售支付监管机构、反洗钱监管机构和其他相关专家就数字欧元向其提供反馈意见，敦促支付和金融服务专家关注中央银行数字货币CBDC、隐私和数据保护以及欧洲区域数字货币其他方面的需求和期望。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-36.jpg)
-用户对数字欧元的需求和期望是委员会正在寻求反馈的领域。欧洲在数字支付技术方面相当先进，挪威和芬兰等国家的借记卡普及率高达98%，是世界上最高的。这可能会减少对数字欧元的需求。
-
-委员会还想了解数字欧元在零售支付和数字经济中的作用；如何建立数字欧元来保护欧元实物货币的法定货币地位；对金融稳定会有什么影响；如何适用反洗钱和反恐融资规则；以及数字欧元如何与国际支付相结合等。
-
-另外，委员会还将收集有关数字欧元隐私和数据保护方面的反馈。
-
-
+1. 4月10日，江苏无锡。在中共国家卫生健康委员会的要求下，各省市都在全面建设方舱医院。中共宣传机构镜头里用于宣传的方舱医院是这样的。
+2. 4月9日，上海。中共解放军陆军军医大学军医与护士进驻上海最大方舱医院，参与所谓医疗支援。
+3. 然而，大城市上海，镜头之外的方舱医院其实是这样的！
+4. 4月9日，吉林。被中共集中隔离关押的市民视频记录着“集中营”里放饭投喂瞬间！
+5. 4月4日，上海。被隔离市民吐槽隔离点基础设施简陋，如厕后无水清洗。质疑集中隔离的目的是什么？
+6. 4月9日，上海浦东新区集中隔离方舱医院。集中隔离市民不吃药不打针，隔离点内没救治医疗能力，质疑政府集中隔离的目的。
+7. 在中共政权各种荒唐政策指引下，中国大陆各地奇葩事件频发。工厂现纸棺材板式的隔离。
+8. 4月9日。上海。市民呼吁政府关注，疫情下睡在路边回不去家的那些人。#真实的上海
+9. 4月5日，上海。疫情下的浦东，睡在路边的外卖小哥们。
 
 
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon
+ 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
+- *3，翻译：一切都是刚刚开始Miles#4229
+ 4，PR：Seven-Star Ant*
 
 
+* * *
 
-文字版原文：[欧盟委员会启动数字欧元咨询](https://gnews.org/zh-hans/2363016/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

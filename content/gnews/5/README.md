@@ -2,33 +2,26 @@
 ---
 
 
-## 渥太华通过决议 学生在校内须佩戴口罩
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364728/)
+## 俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364753/)
 
-##### 加拿大温哥华扬帆农场 – 采编：  青青/编译撰稿：自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/scarymommy.com_.jpg)图片来源：scarymommy.com
-加拿大CTV新闻4月13日报道，渥太华公立学校董事会周二晚间通过一项决议，要求所有工作人员、幼儿园至12年级学生、义工和访客在校内必须佩戴口罩，立即生效，但学生不会因拒绝在学校佩戴口罩而被停学或开除。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
+俄罗斯国防部16日在被俄军包围的乌克兰东南部要冲马里乌波尔宣布“从整个城市地区清除了乌克兰方面的战斗人员”，并劝告剩下的战斗人员投降。马里乌波尔当局17日表示将拒绝投降，俄方面警告称，“如果继续抵抗，将会赶尽杀绝”。被俄军包围马里乌波尔的攻防战迎来了生死局面。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2133.png)图片来源网络
+乌克兰总统泽连斯基16日在接受乌克兰媒体采访时表示，“不把本国领土和国民作为交易对象”，始终准备继续彻底抗战。他还说：“当我们的军队被全军覆没时，(与俄罗斯的)所有谈判都将结束。”
 
-强制性口罩在用餐、饮水、体育课或高强度体育活动等特殊情况时可以摘下。如学生在没有豁免的情况下拒绝遵守该项规定，学校将与家长/监护人联系，协助学生达到口罩要求，或申请豁免口罩要求。
+据互联社报道，俄国防部新闻发言人科纳申科夫16日就马里乌波尔的局势说明，在从城市地区清除乌克兰方面战斗人员的基础上劝降，“将残余部队困在(市内的)阿佐夫斯塔利钢铁厂场内”。“放下武器投降是保护自己生命的唯一机会”。塔斯社报道，俄军方16日向乌克兰方面提出，在莫斯科时间17日上午6时(日本时间17日中午)至下午1时期间将暂时停火，供留在炼厂内的乌克兰方战斗人员投降。
 
-教育总监泰勒表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。卫生官员埃切斯博士也敦促雇主鼓励员工室内佩戴口罩，以帮助限制病毒传播，因为这确实增加了一层保护。
+下一篇：[俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）](https://gnews.org/zh-hans/2364767/)
 
-原文链接：[https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
+参考链接：[ロシア「抵抗なら全滅させる」　マリウポリで投降拒むウクライナに（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/70353d3af99e54f2bfa1d2ee7d7a3575bc9dfb0b)
 
-上传/发稿 – 云起时
-撰稿/翻译/听写 -【自由法兰西🇫🇷】
-素材/采编 -【青青】
-校对/审核 -【云起时】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,31 @@
 ---
 
 
-## 4月18日起韩美军演 朝鲜可能反制（上）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364693/)
+## 俄烏戰爭中第八位俄將軍陣亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2364743/)
 
-翻译：天天
-
-韩国武装部队参谋长联席会议4月17日宣布，2022年上半年的韩美联合军事演习将从4月18日起举行，为期9天。 据称演习全面考虑到了新冠状病毒的情况和维持联盟防御态势。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2132.png)图片来源：雅虎新闻
-
-总部表示将不进行机动训练，并强调：”通过这些演习，我们将提高韩美两国将军执行联军行动的能力，并进一步加强联军防御态势”。
-
-两国打算加强其防御态势，为朝鲜在演习期间可能发生的军事挑衅做好准备。
-
-两国于4月12日至15日进行了一次初步演习，即危机管理工作人员培训（CMST）。 危机管理人员培训确认了在战争爆发前管理突发危机情况的过程等。该演习是基于计算机模拟的指挥中心演习，其中防御（第一部分）和反击（第二部分）是在假设战争爆发的情况下进行的。
-
-下一篇：*[4月18日起韩美军演 朝鲜可能反制（下）](https://gnews.org/zh-hans/2364717/)*
-
-参考链接：[韓米軍事演習　18日から実施＝北朝鮮が反発か（聯合ニュース） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6377378cac76f0773ac61c5d15e16fcf30ccbeb2)
-
-* * *
-
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+作者：紐約香草山健身部-文鷹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2135.png)
 
 
+據外媒報道，俄軍第8近衛軍集團軍副司令官佛洛夫（VIadimirFroIv）葬禮，於16日在俄國聖彼得堡舉行，市長貝格洛夫主持了儀式。
+
+俄軍第8集團軍2月24日入侵烏克蘭後，司令官莫德維切夫中將已在3月份陣亡。佛洛夫的死亡日期可能在此月。該集團軍正副指揮官的雙陣亡，揭示俄軍在入侵戰爭中的軍事慘敗。
+
+另16日消息指出，在烏克蘭東部地區。烏軍擊斃了俄軍坦克營指揮官巴沙科夫上校，為第34名上校。截止到俄烏戰爭爆發今日，俄軍共計42名高級指揮官殉命。
+
+参考鏈接：[https://www.aboluowang.com/2022/0417/1736355.html](https://www.aboluowang.com/2022/0417/1736355.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/548B40D9-5BBD-4186-8F0C-E82BC615015F.jpeg)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

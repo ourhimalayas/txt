@@ -2,28 +2,39 @@
 ---
 
 
-## 俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364767/)
+## 特鲁多决定审查互联网
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364784/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
-上一篇：[俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](https://gnews.org/zh-hans/2364753/)
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/capforcanada.com_.jpg)图片来源：capforcanada.com
+据《真北方》Truth North网站4月13日报道，在贾斯廷·特鲁多可怕的网络审查法案因特鲁多在2021年秋季举行选举而被废除后，他们又回来了，而且比以前更糟糕。
 
-对此，美国CNN报道，马里乌波尔的市长顾问17日通过通讯应用“电讯报”表明 “继续防卫”，拒绝投降的态度。关于俄军将部队关在钢铁厂内的说法他否认道“不属实”，并称在距离炼厂5公里的地方战斗仍在继续。俄国防部表示，“通过截获无线电得知(乌克兰政府)禁止投降交涉”，并表示，“如果进一步抵抗，就会全军覆没”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2133.png)图片来源网络
-16日晚，泽连斯基向电讯报发布讲话视频。虽然没有提到俄罗斯军队的投降要求，但认为俄军“正在试图摧毁所有在马里乌波尔的人”，并表示“很难找到解决办法”。
+特鲁多政府重新推出了最新的网络审查法案C-11和C-18。在特鲁多的新审查制度下，大型科技平台将被迫推广政府定义的加拿大内容，并为在线平台上分享的文章向新闻媒体付费。
 
-乌克兰副总理贝莱西丘克17日表示无法就提供平民从战斗地区撤离的“人道走廊”与俄罗斯达成协议，“今天不能设置”。
+在今天的《坎迪斯·马尔科姆秀》中，Rebel News的老板Ezra Levant和坎迪斯一起讨论特鲁多的网络审查立法对加拿大人意味着什么，以及为什么特鲁多决心审查互联网。
 
-俄军的攻势似乎以包括马里乌波尔在内的乌克兰东部顿涅茨克、卢甘斯克两州为中心，但对首都基乌近郊和西部利比乌省的导弹袭击仍在继续。
+简评：特鲁多政府准备推出的网络审查法案，标志着媒体将成为政府的附庸和传声筒，媒体将毫无自由和公正可言，这无疑是特鲁多政府继向参加渥太华和平集会抗议的卡车司机冻结银行账户限制公民人身和财产自由后限制公民言论自由的又一重大违宪事件！加拿大俨然成了中共国的小弟子！
 
-参考链接：[ロシア「抵抗なら全滅させる」　マリウポリで投降拒むウクライナに（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/70353d3af99e54f2bfa1d2ee7d7a3575bc9dfb0b)
+链接：[https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
 
+上传/发稿 – 【云起时】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【文莱】
+校对/审核 -【云起时】
+
+（选填）视频 -【添加作者】
+（选填）音频 -【添加作者】
+（选填）字幕 -【添加作者】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
