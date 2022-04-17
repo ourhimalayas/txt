@@ -2,28 +2,31 @@
 ---
 
 
-## 4月18日起韩美军演 朝鲜可能反制（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364717/)
+## 俄烏戰爭中第八位俄將軍陣亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2364743/)
 
-翻译：天天
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
-上一篇：[*4月18日起韩美军演 朝鲜可能反制（上）*](https://gnews.org/zh-hans/2364693/)
+作者：紐約香草山健身部-文鷹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2135.png)
 
-演习期间恰逢朝鲜人民革命军（抗日游击队）成立90周年（4月25日），预计届时朝鲜将举行检阅仪式（阅兵）。 韩国军方和情报部门官员正在关注新的洲际弹道导弹（ICBM）和能够携带小型核弹头的新中短程弹道导弹可能在阅兵式上亮相。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2132.png)图片来源：雅虎新闻
+據外媒報道，俄軍第8近衛軍集團軍副司令官佛洛夫（VIadimirFroIv）葬禮，於16日在俄國聖彼得堡舉行，市長貝格洛夫主持了儀式。
 
-由于朝鲜过去强烈反对韩美军事演习，可能会在4月10日下届韩国政府就职之际进行更多的挑衅。
+俄軍第8集團軍2月24日入侵烏克蘭後，司令官莫德維切夫中將已在3月份陣亡。佛洛夫的死亡日期可能在此月。該集團軍正副指揮官的雙陣亡，揭示俄軍在入侵戰爭中的軍事慘敗。
 
-过去，韩国和美国在演习前通过朝鲜军方和联合国军司令部之间的直通车将演习日程和目标告知朝鲜，但据悉这次他们不会被告知。 韩国国防部在4月11日的例行新闻发布会上解释是否有计划将演习日程通知朝鲜方面，称 “迄今为止没有计划通知他们”，而在2016年和2017年，在宣布演习计划的当天，朝鲜方面通过扩音器在南北军事分界线的板门店被告知了演习日程和其他信息。
+另16日消息指出，在烏克蘭東部地區。烏軍擊斃了俄軍坦克營指揮官巴沙科夫上校，為第34名上校。截止到俄烏戰爭爆發今日，俄軍共計42名高級指揮官殉命。
 
-参考链接：[韓米軍事演習　18日から実施＝北朝鮮が反発か（聯合ニュース） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6377378cac76f0773ac61c5d15e16fcf30ccbeb2)
+参考鏈接：[https://www.aboluowang.com/2022/0417/1736355.html](https://www.aboluowang.com/2022/0417/1736355.html)
 
-* * *
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/548B40D9-5BBD-4186-8F0C-E82BC615015F.jpeg)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

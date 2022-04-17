@@ -2,31 +2,35 @@
 ---
 
 
-## 俄烏戰爭中第八位俄將軍陣亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2364743/)
+## 马斯克因延迟披露信息被Twitter原股东起诉
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364752/)
 
-作者：紐約香草山健身部-文鷹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2135.png)
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/koran-jakarta.com_.jpg)图片来源：koran-jakarta.com
+《马来邮报》(Malay Mail) 4月13日的报道，埃隆•马斯克(Elon Musk)昨日被社交媒体公司Twitter Inc的前股东起诉，他们声称，由于马斯克等了太久才披露其所持这家公司9.2%股份，他们错过了该公司股价最近的上涨。
 
+在向曼哈顿联邦法院提起的集体诉讼中，股东们表示，电动汽车公司特斯拉(Tesla Inc .)的首席执行官马斯克未能按照联邦法律的要求，在3月24日之前披露他对Twitter的投资，从而做出了严重虚假和误导性的声明和遗漏。
 
-據外媒報道，俄軍第8近衛軍集團軍副司令官佛洛夫（VIadimirFroIv）葬禮，於16日在俄國聖彼得堡舉行，市長貝格洛夫主持了儀式。
+4月4日，推特股价上涨27%，从39.31美元涨至49.97美元，以马克·拉塞拉为首的前股东表示，延迟披露信息让马斯克以更低的价格买进更多Twitter股票，同时欺骗他们以人为压低的价格卖出。拉塞拉说，在3月25日至29日期间，他以1,373美元的价格出售了35股Twitter股票，平均价格为39.23美元。
 
-俄軍第8集團軍2月24日入侵烏克蘭後，司令官莫德維切夫中將已在3月份陣亡。佛洛夫的死亡日期可能在此月。該集團軍正副指揮官的雙陣亡，揭示俄軍在入侵戰爭中的軍事慘敗。
+该诉讼要求赔偿和惩罚性赔偿，但具体金额不详。美国证券法规定，投资者在收购一家公司达到5%的股份后，必须在10天内披露，马斯克的收购时间是3月24日。
 
-另16日消息指出，在烏克蘭東部地區。烏軍擊斃了俄軍坦克營指揮官巴沙科夫上校，為第34名上校。截止到俄烏戰爭爆發今日，俄軍共計42名高級指揮官殉命。
+链接：[https://www.malaymail.com/news/money/2022/04/13/elon-musk-is-sued-by-shareholders-over-delay-in-disclosing-twitter-stake/2053222](https://www.malaymail.com/news/money/2022/04/13/elon-musk-is-sued-by-shareholders-over-delay-in-disclosing-twitter-stake/2053222)
 
-参考鏈接：[https://www.aboluowang.com/2022/0417/1736355.html](https://www.aboluowang.com/2022/0417/1736355.html)
+上传/发稿 – 【云起时】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【风云小哥】
+校对/审核 -【云起时】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/548B40D9-5BBD-4186-8F0C-E82BC615015F.jpeg)
-**更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
