@@ -2,77 +2,49 @@
 ---
 
 
-## 乌总统警告世界防普京用核武 促拜登定义俄支持恐怖主义（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2361317/)
+## 退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2361454/)
 
-翻译：噜噜咪
+![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰-1.jpg)
+据[**张新年律师**](https://weibo.com/xinnianzhang) [22-04-17 10:16](https://weibo.com/2611415173/LoPH3oEyq?from=page_1005052611415173_profile&amp;wvr=6&amp;mod=weibotime)新浪微博
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
+这两张图片在朋友圈刷屏了，看到后，我一念头就是要帮这位退休老检察官秦培丰转发求助！但点击秦老师的微博主页发现：第一张的求助微博已不在，第二张还在，目前微博也没更新。我很担心他，谁知道现在的情况吗？谁知道发生什么了吗？不管怎样，对于突发疾病患者，应尽快安排治疗，希望秦老师早日康复
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰2.jpg)
 
 
+经查秦培丰的这条新浪微博依然健在——[**秦培丰**](https://weibo.com/u/2401934164)[20-12-3 12:31](https://weibo.com/2401934164/JwJO0dC8q?from=page_1005052401934164_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
 
+李光满：方方、“蚂蝗”、日本军旗相继上演！艰难时刻，任正非的演讲令人泪崩！[O李光满：方方、“蚂蝗”、日本军旗相继上演！艰…](http://t.cn/A6GdlDL1) ​​​​
+![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰3.png)
+对照上海的党员花名册，我们可以找到的信息是——
 
+秦培丰，性别：男，民族：汉族，籍贯：福建，所属支部：中共黄浦区人民检察院退休第三支部委员会，身份证号码：310101194612193214
 
-[接上篇乌总统警告世界防普京用核武 促拜登定义俄支持恐怖主义（1/2）](https://gnews.org/zh-hans/2361167/)
+秦培丰的深夜求救信息已经尸骨无存，不知道秦培丰检察官是否音容宛在，为什么你总是眼含热泪？因为你的脑子里进了太多水，所有秦培丰们曾经对方方的辱骂、对独裁的赞歌都是有意义和有价值的，因为冥冥之中总有一双眼睛在看着你，冥冥之中总有轮回在等着你。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-339.jpg)在对乌克兰进行无情的常规打击之后，人们担心俄罗斯会使用战术核武器。
+撰稿：喜马拉雅的肉夹馍；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-135.jpg)人们担心俄罗斯沉没的 “莫斯科 “号巡洋舰可能载有核弹头
+审核：喜马拉雅的馍夹肉；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-124.jpg)2022年4月13日，乌克兰哈尔科夫，乌克兰救援人员在炮击后扑灭一个仓库上的火。乌克兰第二大城市哈尔科夫市目睹了包括卫星城市在内的俄罗斯军队的多次空袭。
+校对：Maarago；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-113.jpg)中情局局长威廉·伯恩斯说：“鉴于普京总统和俄罗斯领导人的潜在绝望境地，鉴于他们迄今为止在军事上面临的挫折，我们任何人都不能轻视可能诉诸战术核武器或低当量核武器所带来的威胁。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-在美国宣布最新一项对乌克兰的一系列援助计划后，俄罗斯警告说“后果不可预测”——作为8亿美元支援的一部分，包括直升机、155毫米榴弹炮远程火炮和弹簧刀无人机。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-俄罗斯驻华盛顿大使馆星期二向国务院发出了一份两页的外交照会或意见书，以示抗议。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-据《华盛顿邮报》报道，该照会的标题是“关于俄罗斯在向基辅政权大量供应武器和军事装备方面的关切”。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-它指责美国和北约盟友试图迫使乌克兰“放弃”与俄罗斯的谈判，“以便继续流血”，同时向其他国家施压，要求它们结束与莫斯科的军事和技术合作。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-“我们呼吁美国及其盟友停止对乌克兰不负责任的军事化，这意味着对地区和国际安全的不可预测的后果，”该照会说。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-俄罗斯于2月底开始的入侵已经带来了对核事故的担忧，因为俄罗斯军队在扣留乌克兰核电站工人数周后，夺取了切尔诺贝利核电站，后来又放弃了该核电站。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-在冲突初期，俄罗斯军队向扎波罗热核电站开火。
-
-还有人担心，俄罗斯沉没的黑海旗舰莫斯科瓦号可能是携带了核弹头。
-
-这艘苏联时代的导弹巡洋舰周四在塞瓦斯托波尔港附近沉没，此前乌克兰称它用两枚巡航导弹击中了该舰。莫斯科称这是由于船上起火，并说它沉没的部分原因是“暴风雨的海况”。
-
-五角大楼官员周五表示，美国的评估是乌克兰军队用两枚海王星导弹击中了这艘船。
-
-俄罗斯随后在一夜之间对乌克兰发动了一系列巡航导弹袭击，以报复这艘船的沉没——说它袭击了基辅附近的一家工厂，该工厂制造了用来对付莫斯科瓦号的武器。
-
-这些打击表明，即使在撤出试图包围基辅的部队后，莫斯科仍然可以对乌克兰发动火箭袭击。
-
-设在利沃夫的军事智囊团主任米哈伊洛·萨穆斯、《黑海新闻》编辑安德烈·克里门科和乌克兰报纸《国防快报》都警告说，“莫斯科瓦”号可能携带了两枚设计用于安装在其P-1000“航母杀手”导弹上的核弹头。
-
-如果情况属实，核弹头遗失在黑海可能会引发“断箭”事件——美国军队对涉及核武器的潜在致命事故的俚语。
-
-“莫斯科瓦号上可能有核弹头——两个单元，”萨穆斯说，而克里门科呼吁其他黑海国家——土耳其、罗马尼亚、格鲁吉亚和保加利亚——坚持要求作出解释。“这些弹头在哪里？弹药爆炸时他们在哪里，”他问道。
-
-周四在五角大楼，发言人约翰·柯比说莫斯科瓦号的主要作用是为俄罗斯军队提供防空。
-
-据信，这艘斯拉夫级导弹巡洋舰配备了16枚反舰巡航导弹、64枚反空导弹、2门反潜迫击炮、10个鱼雷发射管、6套近程武器系统和1门130毫米多用途炮。
-
-新闻来源：[Zelensky says the whole WORLD should be worried about Putin using nuclear weapons and has urged Biden to designate Russia a state sponsor of terrorism](https://www.dailymail.co.uk/news/article-10722355/Zelensky-says-WORLD-worried-Putin-using-tactical-nuclear-weapon.html)
-
-* * *
-
-素材：peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

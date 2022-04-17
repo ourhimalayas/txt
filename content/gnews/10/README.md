@@ -2,54 +2,30 @@
 ---
 
 
-## 埃隆·马斯克建议订阅Twitter Blue的人应该被允许使用狗狗币支付
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361294/)
+## 有声|台湾当局调查中共芯片人才掠夺公司
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2361435/)
 
-**翻译：【日本东京方舟农场】流浪的蝼蚁**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+国外媒体4月8日报道，近日台湾当局一名调查官员表示，台湾已经对大约100家涉嫌非法挖走芯片工程师和其他技术人才的中共公司展开调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-22.jpg)
+台湾法律禁止中共在台湾芯片行业的某些方面进行投资，但中共通过在开曼群岛等避税地注册公司等手段来规避资金来源调查，进行技术或者人才偷盗。台湾台积电的芯片广泛供应全球，在如今全球芯片短缺和被美国政府制裁的背景下，中共更加快了非法掠夺的计划。
 
-关键点：
+为抵制中共的作为，台湾于2020年12月在司法部调查局内部设立了一个工作组专门应对此问题。前述调查官员称，自去年年初以来，已经有27家中共公司被突击检查，或者其所有者被传唤质询，其中有7家公司已被起诉。2022年3月，工作组开展了迄今为止最大的行动，突击检查了8家公司。据悉其中一家自称是台湾的数据分析公司，其总公司是位于中共上海的一家芯片公司，该公司一直偷盗台湾芯片设计蓝图发送给中共。其他涉及到的公司还有北京IC设计公司、通富微电等。
 
-- 这位特斯拉和SpaceX的亿万富翁首席执行官——本周透露他拥有推特9.2%的股份——是一位多产的推特用户，他的推文经常影响市场。
-- 他于周二被任命为推特董事会成员，并表示他期待与董事会合作，“在未来几个月内对推特做出重大改进”。
-- Twitter Blue于去年6月推出，是这家社交媒体巨头为愿意为独家访问特殊功能付费的用户推出的首个订阅服务。
+文字版原文：[台湾当局调查中共芯片人才掠夺公司](https://gnews.org/zh-hans/2320206/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
 
-埃隆马斯克再次在推特上发推。
-
-这一次，他为社交媒体巨头的订阅服务Twitter Blue提出了一系列建议。其中包括降价、支付狗狗币的选项和禁止广告。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-10.jpg)（图片来源：cnbc.com）
-
-这位特斯拉和SpaceX的亿万富翁首席执行官——现在拥有推特9.2%的股份——是一位多产的推特用户，经常用他的推文来推动市场。
-
-他于周二被任命为推特董事会成员，并表示他期待与董事会合作，“在未来几个月内对推特做出重大改进”。
-
-Twitter Blue于6月推出，是这家社交媒体巨头的首个订阅服务，面向那些愿意为独家访问特殊功能（如“撤消推文”功能、定制的推特应用程序图标和添加书签的功能）付费的用户。
-
-在周六的一系列推文中，马斯克建议不应该有广告并降低订阅价格。
-
-“每个注册Twitter Blue的人（即每月支付3美元）都应该得到一个认证复选标记，”他在推特上写道。
-
-他说：“价格可能应该是每月2美元左右，但提前12个月付款，并且帐户在60天内没有得到复选标记（注意CC退款），如果用于诈骗/垃圾邮件，则被暂停且不予退款。”
-
-“而且没有广告。如果推特依靠广告钱生存，广告商制定政策的权力就会大大增强，”他补充道。
-
-马斯克还提议，定价“应与可负担性和当地货币成比例”。
-
-“也许甚至可以选择用狗狗币付款？”他建议，指的是加密货币。
-
-推特尚未回应CNBC的置评请求。
-
-Twitter Blue服务目前仅在美国、加拿大、澳大利亚和新西兰提供。
-
-撤消功能可让订阅者在推文上线之前更改推文。这不是推特用户经常要求的编辑功能。该公司表示：“这不是一个编辑按钮，而是一个在发布给全世界之前预览和修改你的推文的机会。”
-
-原文链接：
-[https://www.cnbc.com/2022/04/10/elon-musk-on-changes-to-twitter-blue-says-dogecoin-should-be-accepted.html](https://www.cnbc.com/2022/04/10/elon-musk-on-changes-to-twitter-blue-says-dogecoin-should-be-accepted.html)
-
-校对：妙喜小油鍋
-发布；文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

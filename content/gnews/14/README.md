@@ -2,69 +2,43 @@
 ---
 
 
-## 乌总统警告世界防普京用核武 促拜登定义俄支持恐怖主义（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2361167/)
+## “感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361418/)
 
-翻译：噜噜咪
+**翻译：【日本东京方舟农场】山豆根后**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
+就在美国各地的共和党议员们在许多州通过了被评论人士认为有侵犯到LGBTQ【译注1，见文后】权利的法律之际，美国总统乔·拜登（Joe Biden）政府颁布的政策不亚于是一种福音。
 
+从4月11日起，美国公民可以获得性别标识为“X”的护照了。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-7.jpg)（图片来源：wionews.com）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-335.jpg)
+这对于超过120万不认同传性别身份，或性别认同不属于男性或女性范畴的美国人来说是一种祝福。
 
-乌克兰总统沃洛季米尔·泽伦斯基警告说，俄罗斯可能在入侵乌克兰期间使用战术核武器——并警告说这是整个世界严重关切的问题。
+然而，这一举措预计将进一步加剧这个对于在堕胎权和性别问题等方面采取“渐进式”改革上已存在分歧的国家的紧张局势。
 
-“不仅是我——我认为全世界，所有的国家都必须担心，因为这可能不是真实的信息，但可能是事实，”泽伦斯基用英语说。
+有了这种举措，双性人或性别认知不固定者将不必面对繁文缛节。对于大多数人来说，这只是申请表上一个打钩的一个小方框，但对于许多像奥赫达（D. Ojeda） 这样的非二元性别人士来说，周一成为了第一批申请中性护照的美国人之一，这是“难以置信” 的。
 
-“我们应该想到不是要害怕，不是要害怕，而是要做好准备。但我认为，这不是乌克兰的问题，不仅是乌克兰的问题，也是全世界的问题，”他说。
+在接受法新社采访时，使用they/them【译注2】代词的社会活动家奥赫达说，“即使是我的家人，他们仍然不理解这一点，”并补充说，“至少现在有政府帮我说出作为一个人来讲我是谁。”
 
-泽伦斯基是在回答美国有线电视新闻网(CNN)的杰克·塔珀提出的问题时说，美国中央情报局局长威廉·伯恩斯警告说，俄罗斯总统弗拉基米尔·普京可能会在其持续了50天的入侵行动遭遇军事挫折的情况下，作为一种绝望的行为使用战术性核武。
+申请人还可以选择“性别改变”框。这反映了他们选择的性别与他们之前持有的护照不同，并且他们不必为更改提供任何医学证明文件。
 
-他提到核武器以及化学武器是一种潜在的威胁。
+“感觉上世界更安全了，”奥赫达说。
 
-“化学武器，他们应该会这么做，他们有能力这么做，对他们来说，人民的生命一文不值。这就是原因。”泽伦斯基用有时并不精确的英语说到。
+去年10月，经过长期的漫长斗争，一名来自美国科罗拉多州的双性人获得了持有“X”字样护照的权利。
 
-据报道，他在采访中发表的可怕言论是在泽伦斯基亲自要求总统乔·拜登指定俄罗斯为支持恐怖主义的国家后发出的——此举对贸易和制裁有重大影响。
+就在几天前的3月31日，也被称为国际跨性别现身日（International Day of Transgender Visibility），美国国务院宣布他们将把这项服务扩展到所有美国公民。该部门还将在联邦一级采取一些其他措施，以减少对跨性别者和非二元性别者的行政障碍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-134.jpg)乌克兰总统沃洛季米尔·泽伦斯基周五警告说，俄罗斯可能使用战术核武器。
+译者附注：
+1. LGBTQ是五个英文单词首字母的缩写。Lesbian女同性恋者；Gay男同性恋者；Bisexual双性恋者；Transgender变性者/跨性别者；Question/Queer性别疑惑者。
 
-消息人士告诉《华盛顿邮报》，拜登没有就这个问题作出承诺。
+2. LGBTQ认为they/them是指代二元性别的他（她）们的代词，对应地LGBTQ会使用比如ey/em作为第三人称复数的代词。原文中受访者用了they这个词。参考自[https://uwm.edu/lgbtrc/support/gender-pronouns/](https://uwm.edu/lgbtrc/support/gender-pronouns/)
 
-认定俄罗斯为支持恐怖主义的国家将导致对继续与俄罗斯做生意的国家进行经济制裁，以及冻结俄罗斯在美国的资产。
+原文链接：
+[https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370](https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370)
 
-泽伦斯基是在（中情局局长）伯恩斯4月14日的演讲中发出警告的一天后发出该警告的。
-
-鉴于普京总统和俄罗斯领导人潜在的绝望境地，鉴于他们迄今为止在军事上面临的挫折，我们任何人都不能轻视可能诉诸战术核武器或低当量核武器所带来的威胁，”这位中情局局长说。
-
-美国官员长期以来一直警告说，普京可能会采取越来越鲁莽的行动，特别是在其入侵行动遭受重大挫折之后，包括未能拿下基辅或斩断政权，大量部队损失，重型装甲被毁，以及将重心重新放在乌克兰南部和东部。
-
-美国本周表示，由于距离原因，它无法证实乌克兰关于一架俄罗斯无人机向被围困的马里乌波尔市投放化学武器的说法。
-
-亚速营表示，周一释放了一种“来源不明的有毒物质”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-123.jpg)
-
-各国领导人一再警告俄罗斯总统弗拉基米尔·普京不要在乌克兰使用化学或生物武器。
-
-[接下篇乌总统警告世界防普京用核武 促拜登定义俄支持恐怖主义（2/2）](https://gnews.org/zh-hans/2361317/)
-
-新闻来源：[Zelensky says the whole WORLD should be worried about Putin using nuclear weapons and has urged Biden to designate Russia a state sponsor of terrorism](https://www.dailymail.co.uk/news/article-10722355/Zelensky-says-WORLD-worried-Putin-using-tactical-nuclear-weapon.html)
-
-* * *
-
-素材：peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+校对：妙喜小油鍋
+发布：文曦
 
  
 

@@ -2,49 +2,88 @@
 ---
 
 
-## 美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2357838/)
+## 参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2358389/)
 
-供稿：幸运草
-发稿：am夏天
-德国纽伦堡正义农场
+**参议员卢比奥**：
+ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 2020年的新冠应对方式，在2022年不太起作用。
+【转路透社报道，随着上海新冠病例的增加，更多中国城市收紧控制】
 
-美国财政部长耶伦4月13日呼吁中国和其他国家帮助结束俄罗斯在乌克兰的“令人发指的战争”，并在一次具有里程碑意义的讲话中警告说，那些试图破坏西方制裁的人将面临后果。
 
-耶伦在华盛顿的大西洋理事会发表讲话时表示，她“热切”希望中国能从与俄罗斯的“特殊关系”中做出积极的贡献，并表示，如果做不到这一点，中国的世界地位将受到损害。
 
-她说，如果中国“在重要的时候”不尊重乌克兰的这些原则，就不能指望国际社会在未来尊重其任何有关主权和领土完整的呼吁。
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s 2020 Covid response not doing too well in 2022
+> 
+>  [https://t.co/YvtUCYJ2pr](https://t.co/YvtUCYJ2pr)
+> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515317416812847104?ref_src=twsrc%5Etfw)
 
-耶伦说:“中国对我们呼吁对俄罗斯采取果断行动的反应，很可能会影响世界对中国的态度，以及中国进一步拥抱经济一体化的意愿。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2022.png)
-耶伦说，俄罗斯和乌克兰之间的战争已经重新划定了世界经济前景，拜登政府坚决承诺要让俄罗斯为其“可怕的行为”和违反国际法的行为负责。
 
-她说:“请放心，在普京结束他那令人发指的战争之前，拜登政府将与我们的伙伴一道，推动俄罗斯进一步走向经济、金融和战略孤立。”
 
-耶伦说，俄罗斯的入侵促使许多国家和企业采取统一的立场，切断与莫斯科的商业联系，这可能有助于塑造全球对其他“未遇到的全球挑战”的反应。
+**参议员卢比奥**：
+#中共国 过去在新冠病毒上做得如此“出色”，以至于在大流行开始的两年后，他们已经迫使一座拥有 2500 万人口的城市（上海）进入全面封闭。 
+【转华盛顿邮报：上海的新冠围攻，商品短缺，讲话机器，饿肚子的动物】
 
-她警告那些仍在“骑墙观望，或许看到了通过保持与俄罗斯的关系、填补其他国家留下的空白而获利的机会”的国家，他们的动机是短视的。
 
-她说:“我们国际秩序的未来，无论是和平安全和经济繁荣，都岌岌可危。”“让我们明确一点，联合政府……我们不会对破坏制裁的行为无动于衷。”
 
-耶伦发表这番言论的几天前，美国总统拜登警告尚未对莫斯科实施制裁的印度说，从俄罗斯购买更多石油不符合印度的利益，而且可能妨碍美国对乌克兰战争的反应。
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) did such a great job on Covid that 2 years after the pandemic began they have forced a city of 25 million people into total lockdown [https://t.co/8O7k9i7Soo](https://t.co/8O7k9i7Soo)
+> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515321035989688321?ref_src=twsrc%5Etfw)
 
-华盛顿及其盟友试图向印度、中国和其他“中立国家”施压，要求它们采取明确的立场，反对俄罗斯及其所谓的“特别军事行动”。
 
-耶伦说，拜登的多边方式使七国集团(G7)能够让俄罗斯付出巨大代价。她明确表示，七国集团的行动是为了支持一个以规则为基础的、保护和平与繁荣的全球秩序。
 
-她说，同样的方法和共同的价值观可以帮助解决其他重大问题，如气候变化、结束新冠大流行以及支持低收入国家。
+**比尔·戈茨**： 
+这就是大白 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 
+【转英国自由撰稿人James Melville推文：上海的“健康与安全”冲锋队来了。 显然，这是为了你“好”。 （所附视频显示，上海一帮身着白色防护服的警察手持武器闯入民宅，将住户主人逼到阳台逼其就范…有开枪声！）】
 
-耶伦说，改革还需要“使我们现有的国际货币基金组织和多边开发银行现代化，使它们适应21世纪。”
 
-在她发出这一呼吁之前，拜登曾表示，俄罗斯应该被排除在20国集团(G20)之外。
 
-她说:“有些人可能会说，现在不是想得太大的时候。”她提到了战争和持续的大流行。“然而，我认为现在是努力解决我们正在亲眼目睹的国际金融体系中的差距的正确时机。”
+> This is the Big White Chinese Communist Party [https://t.co/ijZZTQ0h48](https://t.co/ijZZTQ0h48)
+> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515176857364099072?ref_src=twsrc%5Etfw)
 
-她说，美国官员从1941年第二次世界大战初期就开始起草建立国际货币基金组织、世界银行和战后国际金融架构的提案，现在需要一个新的架构。
 
-“就像那时一样，我们不应该等待一种新常态。我们今天就应该开始塑造一个更美好的未来。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)
+
+**比尔·戈茨**： 
+这就是中共国社交媒体用户如何通过在发布的照片​​上涂鸦来击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 自动审查技术的方式。 照片显示中国警察冲锋队在强迫一名上海居民隔离，来自帐号“微博上有什么”[@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo)
+
+
+
+> This is how Chinese social media users defeat automated CCP censor tech by scribbling lines on posted photos. Photo shows Chinese police stormtroopers forcing a Shanghai resident into quarantine h/t [@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo?ref_src=twsrc%5Etfw) [pic.twitter.com/m5ZRnqrMY8](https://t.co/m5ZRnqrMY8)
+> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515327783936806915?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥**： 
+当我们庆祝圣周和逾越节时，我们也应该为那些因信仰而被暴君和专制者们迫害的人而考虑并祈祷。 （阅读）我发表在《美国法律与司法中心》的最新文章 
+【附文章链接：这个复活节和逾越节，记住那些遭受迫害的人】
+
+
+
+> As we celebrate Holy Week and Passover, we should also consider and pray for those who are persecuted for their faith by tyrants and despots. My latest in ACLJ: [https://t.co/fG64IZWHTZ](https://t.co/fG64IZWHTZ)
+> — Mike Pompeo (@mikepompeo) [April 16, 2022](https://twitter.com/mikepompeo/status/1515363143530205199?ref_src=twsrc%5Etfw)
+
+
+
+**众议员安迪·比格斯**: 
+伊隆·马斯克在推特上做着正确的事。 
+左派和科技巨头憎恨言论自由。
+
+
+
+> Elon Musk is doing the right thing with Twitter. 
+> 
+> The Left and Big Tech hate free speech.
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515379782309105672?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂**： 
+[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国的年轻人发动一场非法毒品战争，而拜登政府正在通过让我们的南部边境开放，来获取他们的政治利益。
+
+
+
+> The CCP is waging an illicit drug war on America’s youth & the Biden Admin is enabling it by leaving our southern border open for their political gain.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 16, 2022](https://twitter.com/SenatorHagerty/status/1515465062194069506?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

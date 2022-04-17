@@ -2,61 +2,50 @@
 ---
 
 
-## 焦点：千古一魔习近平封锁4亿人将导致全国汽车停产
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2358360/)
+## 英国首约翰逊因支持乌克兰而被禁止进入俄罗斯
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2358737/)
 
-#### 加拿大多伦多蓝莲花农场 丁过
+翻译：冰糖葫芦喵
 
-![中国汽车产销量连续13年全球第一4家中企出口增速超100%｜多维新闻｜经济](https://media.dwnews.net/hk01/krWj8vNqX7_2dE25jUMxdMnGBqU%3D/320*0/media/images/cis/5e183e6db66f770df1c1f061.jpg)来源：Multi Dimension
+编辑与校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《华盛顿观察家报》4月16日报道，**本周六，由于英国在军事援助上对乌克兰的积极支持，并强烈谴责俄罗斯在乌克兰的暴虐行为，俄罗斯将包括英国首相鲍里斯·约翰逊、前首相特雷莎·梅和国防部长本·华莱士列入禁止入境黑名单。**
 
-近日野村(Nomura)又发布了一项关于供应链的调查报告，显示此前中共国对23个城市实行封控已经大幅增加至本周一的45个城市，涵盖人口近4亿人，对应的经济产值占全国GDP的40%左右。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/约翰逊-e1650156033996.jpg)英国首相鲍里斯.约翰逊（图片来源：华盛顿邮报）
 
-除了经济龙头长江三角洲被封锁，被封控的还有北方工业重镇太原和南方特大城市广州和深圳等珠三角经济发达地区。
+在上周，一直将自己称为乌克兰最坚定盟友之一的**约翰逊，突然访问乌克兰首都基辅，并与乌克兰总统泽伦斯基进行了面对面的会晤**。与此同时，约翰逊宣布，**英国将会运送价值1亿英镑的先进的军事装备给乌克兰武装部队，这项援助方案包括光防空飞弹、800枚反战车飞弹以及其他精准武器弹药，并提供120部装甲车辆以及新的反舰飞弹系统。**
 
-其中的上海何时解封，没有人知道。笔者搜索了这方面的信息，仅看到一家国内小媒体预测起码到5月份。
+周六，**俄罗斯外交部在一份声明中表示，这一举措是对伦敦不断的军事援助和政治活动的回应，其目的是在国际上孤立俄罗斯，为限制俄罗斯国内经济创造条件。**
 
-综合金融时报等多家媒体报道，4月14日晚和15日晨，小鹏汽车CEO何小鹏、华为智能汽车BU CEO余承东分别在个人朋友圈发文认为，如果上海不能复工复产，5月之后所有科技、工业产业涉及上海供应链的，都会全面停产，尤其是中国所有的整车厂都要停工停产。
+**英国政府表示，尽管英国政府成员被列入黑名单，但英国仍然坚决支持乌克兰，并谴责俄罗斯在乌克兰的暴虐行为。**
 
-春江水暖鸭先知，何小鹏和余承东是汽车界的资深人士，他们发出的不是呐喊，而是泣血哀嚎，试想一下，他们如何面对即将到来的企业崩溃和亲如手足的成千上万部下失去生活来源！
+周六下午，**约翰逊在推特上说，今天下午，我向我的朋友泽连斯基更新了我们将在未来几天向乌克兰提供的进一步军事援助。英国将不惜一切代价确保乌克兰人拥有他们需要的资源，以保护他们的国家免受俄罗斯的攻击，与乌克兰站在一起。**
 
-实际上很多汽车整车厂已经全面停产，比如特斯拉上海超级工厂于3月28日起停产，大众汽车上海工厂于4月初停产，蔚来汽车在4月9日宣布停产……
 
-为什么长三角封城效应显现那么快呢？中国汽车工业咨询发展公司首席分析师贾新光介绍，汽车生产的特点之一是缺一个螺丝都要停产。全球化之下，汽车配套的特点是有的零部件可能一个工厂供应全球。
 
-传统整车厂一般有2万-3万个零部件供应商，只要一个关键零部件无法供应，车企的生产就会陷入停滞，这又会导致整车厂停止釆购其他零部件，从而导致整个汽车产业供应链的脆断。
+> I updated my friend [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) this afternoon on further military aid we will provide to Ukraine in the coming days.
+> 
+> The UK will stop at nothing to ensure Ukrainians have the resources they need to defend their country from the ongoing Russian onslaught. [#StandWithUkraine️](https://twitter.com/hashtag/StandWithUkraine%EF%B8%8F?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Boris Johnson (@BorisJohnson) [April 16, 2022](https://twitter.com/BorisJohnson/status/1515378969251569668?ref_src=twsrc%5Etfw)
 
-被重点封锁的上海地区和珠三角地区到底有多重要？
 
-上海地区规模以上汽车零部件企业超过600家，加上小微汽配企业多达2万多家，其中约40%汽配出口到全世界。
 
-而后发制人的珠三角汽车产业集群发展更快，在2016年乘用车产量就位居全国第一。
+3月15日，俄罗斯对美国实施了类似的制裁，禁止美国总统拜登、他的儿子亨特拜登、前国务卿希拉里·克林顿、白宫新闻秘书珍·普萨基等美国官员访问俄罗斯。
 
-汽车产业是中共国经济的支柱产业，涉及超长的上下游产业链和数千万人的就业（仅在汽车4S店和汽修店就业的人数就达1000万人）。
+自俄罗斯入侵乌克兰以来，**西方国家虽然没有派遣军队，但是通过经济制裁和对乌克兰提供军事援助，向俄罗斯施加压力，迫使其停止对乌克兰的进攻**。
 
-封锁不仅重创了汽车产业链，出口外贸也面临前所未有的冲击，以中共病毒疫情未爆发前的2019年为例，长三角和珠三角GDP之和为32.41万亿元，占全国经济总量近三分之一，其中出口外贸所占权重最大。
+新闻来源链接：
 
-这次停产将导致大多数出口企业的破产，因为除了要支付上下游商家的违约金，还被下游供应商抛弃，这些国际供应商纷纷将釆购渠道转移到其他国家。
+[Increasingly isolated Moscow blacklists British leaders | Washington Examiner](https://www.washingtonexaminer.com/policy/foreign/increasingly-isolated-moscow-blacklists-british-leaders)
 
-要知道，去年中共国的贸易顺差达到创纪录的6776亿美元。
+[Boris Johnson banned from Russia over support for Ukraine – The Washington Post](https://www.washingtonpost.com/world/2022/04/16/boris-johnson-banned-russia/)
 
-![评论| 刘青：习近平因邪恶实至名归— 普通话主页](https://www.rfa.org/mandarin/pinglun/liuqing/lq-10162020143900.html/88ab79f04e3a4e6076875e1d.jpg/@@images/image)来源：Radio Free News
-
-习近平曾经在江浙、上海长期担任一把手，对长江、珠江三角地区举足轻重的龙头地位比谁都清楚，但他为什么还是如此决绝地下令封锁，而且解封遥遥无期呢？
-
-新中国联邦创始人郭文贵先生指出，习近平准备在5月攻打台湾（上海白衣警察在和市民的对峙中也说出来了）以及军援俄罗斯，会遭到西方的全面制裁，到时中共国的外贸将被封锁，经济将全面崩溃。
-
-为了让中国人民提前适应随之而来的大面积失业、财富归零、大饥荒、非正常死亡状态，习近平有计划的进行了全面压力测试，由于富有的发达地区将承受的损失和冲击最大，心理落差与反抗也会相应最大，所以习近平把测试重点放在了让他发迹的发达地区。
-
-人类有史以来屠杀人类最多的是中国共产党，习近平为了保住这个恶党给予他的权力、数以千亿美元的非法财富以及为数不明的私生子女，不仅悍然释放生化武器、和普京发动乌克兰战争，而且正在将中国拉回毛式文革时代，并准备攻打台湾、挑起世界大战，相较于希特勒、普京等魔鬼，习近平才是名符其实的千古一魔！
-
-参考：
-
-[抗疫封控从上海扩展至国内其他城市](https://cn.wsj.com/articles/%E6%8A%97%E7%96%AB%E5%B0%81%E6%8E%A7%E4%BB%8E%E4%B8%8A%E6%B5%B7%E6%89%A9%E5%B1%95%E8%87%B3%E5%9B%BD%E5%86%85%E5%85%B6%E4%BB%96%E5%9F%8E%E5%B8%82-11650004508)
-
-[中国电动汽车产业的“三个软肋”](http://www.ftchinese.com/story/001095838?full=y&amp;gift_id=cb46056b7a36a7b3293f438c9f07d92e6227f908&amp;archive)
-
-[断供！5月全国车企可能停产？汽车业打响保供攻坚战](https://finance.sina.com.cn/tech/2022-04-15/doc-imcwiwst2058661.shtml)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

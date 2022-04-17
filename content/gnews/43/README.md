@@ -2,87 +2,64 @@
 ---
 
 
-## 参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2358389/)
+## 建议上海卫健委领导精神病鉴定并持48小时内报告上岗
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358881/)
 
-**参议员卢比奥**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 2020年的新冠应对方式，在2022年不太起作用。
-【转路透社报道，随着上海新冠病例的增加，更多中国城市收紧控制】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/习近平全面部署_副本.jpg)
+据[老司机](https://twitter.com/h5LPyKL7TP6jjop)[@h5LPyKL7TP6jjop](https://twitter.com/h5LPyKL7TP6jjop)于[上午3:25 · 2022年4月17日](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080)发布的推文——
 
-
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s 2020 Covid response not doing too well in 2022
-> 
->  [https://t.co/YvtUCYJ2pr](https://t.co/YvtUCYJ2pr)
-> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515317416812847104?ref_src=twsrc%5Etfw)
+这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！
 
 
 
-**参议员卢比奥**：
-#中共国 过去在新冠病毒上做得如此“出色”，以至于在大流行开始的两年后，他们已经迫使一座拥有 2500 万人口的城市（上海）进入全面封闭。 
-【转华盛顿邮报：上海的新冠围攻，商品短缺，讲话机器，饿肚子的动物】
+> 这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！ [pic.twitter.com/BeSoYDGByJ](https://t.co/BeSoYDGByJ)
+> — 老司机 (@h5LPyKL7TP6jjop) [April 16, 2022](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080?ref_src=twsrc%5Etfw)
 
 
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) did such a great job on Covid that 2 years after the pandemic began they have forced a city of 25 million people into total lockdown [https://t.co/8O7k9i7Soo](https://t.co/8O7k9i7Soo)
-> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515321035989688321?ref_src=twsrc%5Etfw)
+**接线员：**以防疫管控的这样一个措施您是觉得不合理？
 
+**投诉者：**他所谓的健康筛查，它是违反传染病防治法规定的。传染病防治法规定的说，你这个防控的对象只能是病人、密接，你对健康人群搞什么核酸检测、搞健康筛查。这逻辑很可笑的呀，按照这个逻辑，所有的上海市所有的卫健委系统的领导要全部进行精神病鉴定的，对吧？
 
+第一，精神病患者是不适合做领导工作的，我们都知道，因为他的角色和部署是不正常的、不靠谱的。
 
-**比尔·戈茨**： 
-这就是大白 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 
-【转英国自由撰稿人James Melville推文：上海的“健康与安全”冲锋队来了。 显然，这是为了你“好”。 （所附视频显示，上海一帮身着白色防护服的警察手持武器闯入民宅，将住户主人逼到阳台逼其就范…有开枪声！）】
+那么第二，卫健委系统的每个领导都可能具有精神疾病，都是潜在的精神病患者。
 
+第三，为了保证全市人民的健康着想，本着早发现、早报告、早治疗的原则和目的，建议卫健委系统的每一个领导都去做精神病鉴定，持四十八小时内精神正常的鉴定报告上岗工作，这样我们才放心。
 
+知道吗？就是你按照他们这种逻辑，来让他们做精神病鉴定，看他们能不能发现这种决策的可笑之处，或者说愚昧之处，怎么能用潜在的精神病患者来做决策和部署呢？
 
-> This is the Big White Chinese Communist Party [https://t.co/ijZZTQ0h48](https://t.co/ijZZTQ0h48)
-> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515176857364099072?ref_src=twsrc%5Etfw)
+**接线员：**呃，关于这个问题我会帮您反馈上去的，谢谢，让法律部门去核实处理。
 
+**投诉者：**一定要回复！
 
+**接线员：**好的，请您保持电话的畅通，我帮您转上去。
 
-**比尔·戈茨**： 
-这就是中共国社交媒体用户如何通过在发布的照片​​上涂鸦来击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 自动审查技术的方式。 照片显示中国警察冲锋队在强迫一名上海居民隔离，来自帐号“微博上有什么”[@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo)
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
+这一通对上海卫健委系统领导的投诉，以及建议卫健委系统的每位领导都去做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作的建议其实说出了我们每个人想说而没有说的话，但是我们有必要举一反三，对于全面部署、全面指挥这场冠状病毒抗疫的伟大领袖习猪头，他才是一切灾难的源头，在此也特别建议伟大领袖习猪头做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作。
 
+撰稿：喜马拉雅的肉夹馍；
 
-> This is how Chinese social media users defeat automated CCP censor tech by scribbling lines on posted photos. Photo shows Chinese police stormtroopers forcing a Shanghai resident into quarantine h/t [@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo?ref_src=twsrc%5Etfw) [pic.twitter.com/m5ZRnqrMY8](https://t.co/m5ZRnqrMY8)
-> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515327783936806915?ref_src=twsrc%5Etfw)
+审核：喜马拉雅的馍夹肉；
 
+校对：Maarago；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**前国务卿迈克.蓬佩奥**： 
-当我们庆祝圣周和逾越节时，我们也应该为那些因信仰而被暴君和专制者们迫害的人而考虑并祈祷。 （阅读）我发表在《美国法律与司法中心》的最新文章 
-【附文章链接：这个复活节和逾越节，记住那些遭受迫害的人】
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-> As we celebrate Holy Week and Passover, we should also consider and pray for those who are persecuted for their faith by tyrants and despots. My latest in ACLJ: [https://t.co/fG64IZWHTZ](https://t.co/fG64IZWHTZ)
-> — Mike Pompeo (@mikepompeo) [April 16, 2022](https://twitter.com/mikepompeo/status/1515363143530205199?ref_src=twsrc%5Etfw)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**众议员安迪·比格斯**: 
-伊隆·马斯克在推特上做着正确的事。 
-左派和科技巨头憎恨言论自由。
-
-
-
-> Elon Musk is doing the right thing with Twitter. 
-> 
-> The Left and Big Tech hate free speech.
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515379782309105672?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂**： 
-[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国的年轻人发动一场非法毒品战争，而拜登政府正在通过让我们的南部边境开放，来获取他们的政治利益。
-
-
-
-> The CCP is waging an illicit drug war on America’s youth & the Biden Admin is enabling it by leaving our southern border open for their political gain.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 16, 2022](https://twitter.com/SenatorHagerty/status/1515465062194069506?ref_src=twsrc%5Etfw)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
