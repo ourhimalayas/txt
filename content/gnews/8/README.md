@@ -2,18 +2,24 @@
 ---
 
 
-## 嘉宾谈喜币的未来（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2362577/)
+## 深陷一带一路陷阱 斯里兰卡证券交易所停业五天
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2362600/)
 
-**PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：00-10：10-004.jpg)
-发布：*tianzhihuan*
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午5.02.38.png)图片来源：互联网
+深陷中共一带一路债务危机的斯里兰卡代表团正前往华盛顿，希望从国际货币基金组织和其他贷款机构获得40亿美元的资金。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+周六斯里兰卡证券交易委员会下令科伦坡证券交易所下周停业，以便给投资者时间消化该国的经济状况。
+
+斯里兰卡寻求即时资金解套，并请求北京帮忙担保25 亿美元信贷，也没有得到北京的回应。斯里兰卡代表团希望从国际货币基金组织和其他贷款人那里获得多达40亿美元的资金，以帮助该岛国支付食品和燃料进口，并限制债务违约。这个国家正处于政治动荡之中，公民们在街头抗议，要求总统戈塔巴亚-拉贾帕克萨下台。
+
+斯里兰卡810亿美元的经济体在今年面临着价值86亿美元的债务义务，它暂停了支付外国贷款，以保留现金来支付基本的食品和燃料进口。
+
+参考链接：[Sri Lanka stock exchange to halt for five days from April 18 amid crisis](https://www.business-standard.com/article/international/sri-lanka-stock-exchange-to-halt-for-five-days-from-april-18-amid-crisis-122041600298_1.html)
+
+* * *
+
+*编辑&发布：长岛开心*
 
  
 
