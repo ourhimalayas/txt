@@ -2,47 +2,30 @@
 ---
 
 
-## 台湾表示来自中共的威胁只会让它变得更强
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2361341/)
+## 有声|北约称中共已构成严峻挑战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2361434/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-340.jpg)图片来自网络
-《路透社》近日报道，中国外交部在美国议员访问台北时中国在附近进行演习后说，中共国对台湾的军事威胁只会增加美国和其他民主国家对台湾的支持。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间4月7日，北大西洋公约组织秘书长斯托尔滕贝格表示，由于中共一直不肯对俄罗斯侵略乌克兰的行为发出谴责，同时其还与俄罗斯一起反对各自国内自由选择道路的权力，这一系列举动已经对北约构成了严峻的挑战。
 
-北京指责包括参议院外交关系委员会主席鲍勃-梅嫩德斯在内的立法者以其 “挑衅性 “的旅行加剧了紧张局势。中共国声称民主统治的台湾是其自己的领土。
+据悉，早在中共北京冬奥会期间，习近平与普京就多次强调双方“友好无止境、无禁区”，且二者联手公开反对北约东扩。而在俄乌战争爆发后，中共又被披露早已悉知俄罗斯入侵乌克兰的计划。此外，中共政府不但拒绝谴责普京当局，更不对其做出任何制裁，甚者还在联合国投票中数次对俄罗斯表现出支持态度。
 
-在周五晚些时候的一份声明中，台湾外交部谴责中共国对美国访问的 “顽固和荒谬 “的反应，这是今年美国现任政府官员的首次访问。
+对此，在当天举行的北约外长会议上，斯托尔滕贝格特别邀请了日本、韩国、澳大利亚和新西兰等国家的外长参与其中。斯托尔滕贝格指出，鉴于中共已经加入了莫斯科的行列并反复阻碍各国作出不利其自身表态的选择权，这将对全世界造成严重的影响。为此，北约和亚太地区的伙伴必须团结起来，共同保卫文明世界一直坚守的价值观。
 
-它说：”中国共产党极权政府对台湾的武力威胁只会加强台湾人民捍卫自由和民主的意志，也会吸引美国甚至更多民主伙伴对民主台湾的支持。
+文字版原文：[北约称中共已构成严峻挑战](https://gnews.org/zh-hans/2318763/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-该部说，台湾将继续深化与美国和其他志同道合的国家的合作，以捍卫自由和开放的印太地区，并防止中共国的 “持续扩张”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
 
-参议员本-萨斯是访问台湾并会见蔡英文总统的六名两党议员之一，他在一份声明中说，中共不能谴责美国或其当选代表。
-
-他表示：”美国人民不爱暴君，反而本能地支持热爱自由的台湾人民。
-
-台湾对拜登政府提供的美国支持感到振奋，拜登政府多次谈到它对这个民主治理的岛屿的 “坚如磐石的 “承诺。
-
-虽然美国与台湾没有正式的外交关系，但它是该岛最重要的国际支持者和武器供应者。这加剧了中美关系的紧张。
-
-台湾政府表示，只有该岛的2300万人民才能决定他们的未来。
-
-在周六对台湾独立团体组织的一个论坛预先录制的视频信息中，蔡英文说俄罗斯对乌克兰的入侵表明民主国家面临来自威权主义的威胁。
-
-她说：”台湾的立场是维护主权，维护民主，与志同道合的国家站在一起，相互协助，并贡献我们的力量。
-
-支持民族自决，台湾的未来要由台湾人民自己决定，中共无权干涉。俄乌战争打醒了很多西方国家，七十年来和平的日子已经一去不复返了，这一次，所有热爱民主自由的国家都会站在台湾背后。
-
-参考链接：
-
-[https://www.reuters.com/world/china/taiwan-says-chinas-threats-will-only-increase-support-island-2022-04-16/](https://www.reuters.com/world/china/taiwan-says-chinas-threats-will-only-increase-support-island-2022-04-16/)
-
-[https://www.reuters.com/world/asia-pacific/taiwans-security-has-global-impact-senior-us-lawmaker-tells-islands-president-2022-04-15/](https://www.reuters.com/world/asia-pacific/taiwans-security-has-global-impact-senior-us-lawmaker-tells-islands-president-2022-04-15/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

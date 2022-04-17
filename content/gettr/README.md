@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 4:58 AM (UTC)`
+
+04.17.2022  俄乌战争战况播报
+![img](https://media.gettr.com/group42/origin/2022/04/17/04/ddd4e18e-dca0-c171-0857-3101fbfab318/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/17/2022 3:03 AM (UTC)`
 
 2022-4-16《鸡血王喜币大作战》 第一百六十七集 嘉宾：卡丽熙、Eric
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 2022-4-16《避风港》(37) 制药公司与FDA共同隐瞒疫苗杀人
 ![img](https://media.gettr.com/group16/origin/2022/04/16/18/0944f2d1-9d26-ab4d-4d73-c8112abd19c8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 6:44 PM (UTC)`
-
-4月15日晚上7点半，梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节<br/>April 15th, 7:30 p.m. Israeli volunteers from the Medyka Rescue Center gathered at the NFSC tent to celebrate Passover<br/>#ukrainerescue  #nfsc新中国联邦 #nfscukrainerescue
-![img](https://media.gettr.com/group42/origin/2022/04/16/18/31943d65-be7c-63e3-f098-522723c8a668/out.jpg)
 
 ---
 
