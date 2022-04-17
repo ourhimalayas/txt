@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 8:29 AM (UTC)`
+
+【Ukraine Rescue】04/15/2022<br/>An American volunteer from “One Heart”international relief organization expresses that it’s so precious to celebrate this most important holiday of Passover in Medyka with these Jewish and Chinese people, and all others around the world. We share one mission, one faith and one heart ,we’re trying to help the Ukrainians as well as 1.4 billion Chinese who are still under slavery of Chinese Communist Party.<br/><br/>【乌克兰救援】04/15/2022 一位来自”One Heart”国际救援组织的美国志愿者表示能在梅迪卡和其他犹太人，中国人以及来自全世界的人们聚在一起庆祝逾越节这个最重要的节日她感到非常珍贵。我们有着共同的使命、信仰和心愿：都想尽力帮助乌克兰人，同时也要拯救被中共奴役的14亿中国人。<br/>
+![img](https://media.gettr.com/group16/getter/2022/04/17/08/14dc8703-f519-cf49-8f2f-85b21ee34ba5/out.jpg)
+
+---
+
 `@miles 4/17/2022 8:12 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -151,17 +158,6 @@
 
 🆘🇺🇦🆘Reports from the Ukrainian Rescue Front<br/>❣️Nicole interviews volunteers from Spain❣️<br/>His first sentence shouted: "take down CCP!"<br/>He saw it at first sight: Our vest with, "Take Down the CCP!"<br/>He suddenly remembered his father.<br/>❣️ He recalled that his father, who used to be a Yugoslav party member, left the Communist Party and became a man of faith.<br/>❣️ He firmly believes that those Chinese who have joined the Communist Party will also change because in a country ruled by a Communist Party many people are forced to join the Communist Party in order to survive! In fact, the truth is that the Communist Party has kidnapped the people!<br/>❣️He sighed: How great the actions of NFSC whose objective it is to take down the CCP and rescue the Chinese people.
 ![img](https://media.gettr.com/group12/origin/2022/04/15/18/5806facd-5e08-2716-e0c0-f399ae49294b/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/16/2022 12:15 AM (UTC)`
-
-Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interview with #Belgium Prime Minister #Alexander De Croo. When he was listening the story of #NFSC, he nodded, smiled and agreed.<br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole讲述采访 #比利时 现任总理 #亚历山大·德保罗 过程中故事. 当他在听Nicole讲述新中国联邦的故事时，他表示点头，微笑和赞同！<br/><br/>👇About New Federal State of China #NFSC 👇<br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
-![img](https://media.gettr.com/group23/origin/2022/04/16/00/b506604a-c9b9-42e0-ffb3-ad6dfd2e6503/out.jpg)
-> `@himalayadcfarm 4/12/2022 4:53 PM (UTC)`<br/>❤️Report from #NFSC's #UkraineRescue #Nicole <br/><br/>❤️#新中国联邦 #乌克兰救援 Nicole报道：<br/>波兰时间4月12日早上10点在梅迪卡营地，比利时总理Alexander De Croo 接受 #新中国联邦 记者Nicole采访<br/>nicole在阐述自己是来自 #新中国联邦，我们所做的人道救援和提供的帐篷等工作，也介绍了郭先生和我们的目标愿景......<br/>比利时首相微笑着回答，人们需要互相帮助，非常高兴你们 #新中国联邦 在这里帮助这些人。nicole说，我们有很好的咖啡,请来我们帐篷，欢迎品尝，<br/><br/>首相说，是的，我们就是在去的路上💖😀<br/><br/>今天是个好日子！👏👏👏
-![img](https://media.gettr.com/group12/origin/2022/04/12/16/1c829f7b-2299-c24e-319c-8c93f274f36f/out.jpg)
 
 ---
 
