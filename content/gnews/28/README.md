@@ -2,22 +2,34 @@
 ---
 
 
-## 生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2357853/)
+## 教皇出席但不主持复活节守夜仪式
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2358036/)
 
-撰稿：西枫westca
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-28.png) 图片来源：网络照片
-据《国家脉动》4月15日报道， 在COVID-19大流行病中不可脱责的Peter Daszak继续要求拜登政府向“流行病预防”追加投资至近万亿美元。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-Daszak仍在被许多人怀疑其对COVID-19疫情负责的武毒所的研究进行持续审查中。在这种情况下居然还在要求美国纳税人承担起保护他操纵 “杀手 “病原体工作的重任。在未来几年提供近一万亿美元资助称旨在 “预防大流行 “的研究。
 
-4月11日，Daszak与其他三位合著者在专栏文章中解释说，”拜登政府应该在基础设施方面投入资金来预防另一场大流行病，并在大流行病发生时能够适应它们。这些额外的资源将有助于预防下一次大流行病，使之有可能在早期发现新的疫情，并利用接触者追踪来有针对性地作出反应”。 Daszak建议初始投资价值超过5000亿美元，最终将增加到8290亿美元，并 “每年投资以维持能力”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/MBT7QQNRTNMMDOC54JUNZWWGVA.jpg)
 
-Peter Daszak 拥有的生态健康联盟深度参与武汉病毒实验室新冠病毒的研究，其后又参与武毒所掩盖Covid-19的起源。并参与了WHO派往中共国的调查团队，其结论是：病毒通过冷藏食品传入是“可能的途径”，而从实验室泄漏的说法“极不可能”
 
-**新闻来源：**[Wuhan Collaborator Peter Daszak Demands Nearly $1 TRILLION To Fund ‘Pandemic Prevention’ Efforts. (thenationalpulse.com)](https://thenationalpulse.com/2022/04/15/peter-daszak-calls-for-nearly-1-trillion/)
+图片来源：路透社
+
+梵蒂冈城，4 月 16 日（路透社) 教皇方济各周六晚上出席但没有主持在圣彼得大教堂举行的复活节守夜仪式，大概是因为反复出现的腿部疼痛迫使他减少了一些活动。
+
+意大利红衣主教乔瓦尼·巴蒂斯塔·雷 (Giovanni Battista Re) 取代了教皇成为仪式的主要主礼人，其中包括在基督教世界最大教堂的中央教堂中殿几乎完全黑暗的游行队伍。
+
+教皇坐在大殿前侧的一张白色大椅子上，一副警惕的样子。梵蒂冈说他稍后会在弥撒中宣读讲道。
+
+主持有 5,500 人参加的弥撒，需要在诵经和读福音时长时间站立，以及在祭坛前跪下。
+
+这位 85 岁的教皇患有坐骨神经痛，这会导致一条腿疼痛并导致明显的跛行。最近，弗朗西斯的右膝也突然疼痛。
+
+梵蒂冈周五发布的一个节目将教皇列为周六晚礼拜的主礼。梵蒂冈没有给出改变的官方理由。
+
+🔗[https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/](https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/)
+
+编辑发表： Shuizhuyu
 
  
 
