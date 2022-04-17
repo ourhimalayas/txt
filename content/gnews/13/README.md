@@ -2,40 +2,36 @@
 ---
 
 
-## 有声|国人焦虑背后的真相是什么？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358405/)
+## 灭共段子——吐了吐了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358460/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一个是驭民五术带来的压力另一个是真理与虚假现实的碰撞。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+故事背景：喝了农药的农妇躺在病床上，等待救治，医生询问农妇丈夫（农民）病情原委，以下是二人对话。
 
-共匪政权除了通过驭民政策用生活压力让人恐慌和焦虑之外，更大的阴谋是撒下了弥天大谎，企图颠覆人的基本判断力，来彻彻底底的控制人的思想。人类生存的第一要素是安全，所有的活动包括繁衍都是建立在此基础上，就算是共匪篡夺权利几十年，依然该写不了人追求真相真理的天性。
+医生：怎么搞成这样呢？
 
-安全感的建立是以事实为基础，共匪的假恶丑虽然隐瞒的很好，但是纸总是包不住火的，真相的缝隙会引导着人们去不断的发掘。最终水落石出，让人们把安全建立在事实的基石上，当真相与虚假的表面发生冲突，与基本的逻辑并不相符时往往会让人觉得想不通，或者总感觉到哪不对劲，这也是焦虑情绪的根源。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/01911ADA-4C7E-444F-989D-61DB979925D4.jpeg)
+农民：家里房子强拆，她..一时想不开，就喝农药自杀了。
 
+医生：喝了多少呢？
 
+农民：哎，喝了一大瓶呢？哎，医生，你快动手术救救她吧。
 
+医生：哎呀，动什么手术啊，现在让她吐出来就行了，把农药吐出来。
 
-文字版原文：[国人焦虑背后的真相是什么？](https://gnews.org/zh-hans/2346160/)
+农民：我们是想让她吐，可她就是不吐啊……
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+医生：你们都用了哪些方法？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+农民：我们什么方法豆试了，后来邻居说灌大粪水肯定有用，结果我们给她灌了,灌的人都吐了，她还是不吐啊。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+医生：（表情平静）让我来试试，（轻附农妇耳边）大声：“情为民所系，利为民所谋，立党为公，执政为民，以人为本。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+农民：（农妇突然起身，作呕吐状）哎呀，吐了吐了吐了，哎呀，你看这口号多好啊！是党救了们呢？感谢党啊！
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

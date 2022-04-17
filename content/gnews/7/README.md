@@ -2,8 +2,8 @@
 ---
 
 
-## 20220416郭文贵乱聊直播 ：长春的战友这次表现得比上海战友棒！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358467/)
+## 20220416郭文贵乱聊直播 ：共产党的秘密你都可以卖，新中国联邦是你最好的桥梁
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358505/)
 
 作者：东京樱花团小视频组
 
