@@ -2,38 +2,88 @@
 ---
 
 
-## [G时新闻】俄罗斯入侵乌克兰的战争会持续多久
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2358136/)
+## 参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2358389/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
+**参议员卢比奥**：
+ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 2020年的新冠应对方式，在2022年不太起作用。
+【转路透社报道，随着上海新冠病例的增加，更多中国城市收紧控制】
 
-目前，俄罗斯入侵乌克兰的战争已经持续了五十多天，未来还将持续多久，有着许多不同的预测。根据《纽约邮报》4月15日的报道，周五，美国国务院最高发言人认为，俄罗斯对乌克兰的战争将“可能”会持续到今年俄罗斯入侵乌克兰的战争会持续多久.
 
-之前，CNN（美国有线电视新闻网）曾报道，国务卿安东尼·布林肯（Antony Blinken）告诉欧洲官员,华盛顿的严肃预测是该战争将至少再持续八个月。
 
-而周五，德·普莱斯（Ned Price）在接受CNN主持人凯特·博尔丹（Kate Bolduan）采访时给出的新评估是，这一战争将可能持续到今年年底。他说：“我们正在努力缩短这场冲突。我们认为我们可以通过增加乌克兰在谈判桌上的筹码来做到这一点，我们正在通过向乌克兰提供空前数量的安全援助来做到这一点。
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s 2020 Covid response not doing too well in 2022
+> 
+>  [https://t.co/YvtUCYJ2pr](https://t.co/YvtUCYJ2pr)
+> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515317416812847104?ref_src=twsrc%5Etfw)
 
-同时，我们正通过我们的经济制裁和其他金融措施对俄罗斯施加同样程度的压力，希望这两方面能够有效协调，最终能够达成一项外交协议，结束这种毫无意义的暴力和侵略。”
 
-根据相关报道，一些国会议员担心战争可能会延长，并默默地将其与朝鲜战争相提并论。而朝鲜战争从1950年持续到1953年才正式结束。
 
-本月早些时候，CNN报道了国家安全顾问杰克·沙利文（Jake Sullivan）在白宫简报会上的警告：战争“很有可能会旷日持久”。沙利文明确表示，旷日持久的战争是俄罗斯总统普京最不希望看到的
+**参议员卢比奥**：
+#中共国 过去在新冠病毒上做得如此“出色”，以至于在大流行开始的两年后，他们已经迫使一座拥有 2500 万人口的城市（上海）进入全面封闭。 
+【转华盛顿邮报：上海的新冠围攻，商品短缺，讲话机器，饿肚子的动物】
 
-盖特链接：https://gettr.com/post/p15jb9sf0cf
-上传/发稿 – 【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) did such a great job on Covid that 2 years after the pandemic began they have forced a city of 25 million people into total lockdown [https://t.co/8O7k9i7Soo](https://t.co/8O7k9i7Soo)
+> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515321035989688321?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
-里输入要转换的内容
- 
+
+
+**比尔·戈茨**： 
+这就是大白 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 
+【转英国自由撰稿人James Melville推文：上海的“健康与安全”冲锋队来了。 显然，这是为了你“好”。 （所附视频显示，上海一帮身着白色防护服的警察手持武器闯入民宅，将住户主人逼到阳台逼其就范…有开枪声！）】
+
+
+
+> This is the Big White Chinese Communist Party [https://t.co/ijZZTQ0h48](https://t.co/ijZZTQ0h48)
+> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515176857364099072?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**： 
+这就是中共国社交媒体用户如何通过在发布的照片​​上涂鸦来击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 自动审查技术的方式。 照片显示中国警察冲锋队在强迫一名上海居民隔离，来自帐号“微博上有什么”[@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo)
+
+
+
+> This is how Chinese social media users defeat automated CCP censor tech by scribbling lines on posted photos. Photo shows Chinese police stormtroopers forcing a Shanghai resident into quarantine h/t [@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo?ref_src=twsrc%5Etfw) [pic.twitter.com/m5ZRnqrMY8](https://t.co/m5ZRnqrMY8)
+> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515327783936806915?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥**： 
+当我们庆祝圣周和逾越节时，我们也应该为那些因信仰而被暴君和专制者们迫害的人而考虑并祈祷。 （阅读）我发表在《美国法律与司法中心》的最新文章 
+【附文章链接：这个复活节和逾越节，记住那些遭受迫害的人】
+
+
+
+> As we celebrate Holy Week and Passover, we should also consider and pray for those who are persecuted for their faith by tyrants and despots. My latest in ACLJ: [https://t.co/fG64IZWHTZ](https://t.co/fG64IZWHTZ)
+> — Mike Pompeo (@mikepompeo) [April 16, 2022](https://twitter.com/mikepompeo/status/1515363143530205199?ref_src=twsrc%5Etfw)
+
+
+
+**众议员安迪·比格斯**: 
+伊隆·马斯克在推特上做着正确的事。 
+左派和科技巨头憎恨言论自由。
+
+
+
+> Elon Musk is doing the right thing with Twitter. 
+> 
+> The Left and Big Tech hate free speech.
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515379782309105672?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂**： 
+[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国的年轻人发动一场非法毒品战争，而拜登政府正在通过让我们的南部边境开放，来获取他们的政治利益。
+
+
+
+> The CCP is waging an illicit drug war on America’s youth & the Biden Admin is enabling it by leaving our southern border open for their political gain.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 16, 2022](https://twitter.com/SenatorHagerty/status/1515465062194069506?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

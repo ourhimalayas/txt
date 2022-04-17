@@ -2,28 +2,20 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2360587/)
+## 有声| 德军火商将向乌克兰提供豹式1型坦克
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2360607/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-93.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-16.png)
+配音：香草山媒体部 – 纳米
+
+当地时间4月11日，据相关媒体报道，德国军火商莱茵金属公司的执行总裁当天表示，该公司正在准备向乌克兰提供50辆豹式1型坦克，预计将于六周内交货。
 
 
-校对：Stay文苑
 
-编辑：Stay文苑
+文字版原文：[德军火商将向乌克兰提供豹式1型坦克](https://gnews.org/zh-hans/2349450/)
 
-发稿：Stay文苑
 
-新闻：[https://gettr.com/post/p15n1iu46da](https://gettr.com/post/p15n1iu46da)
-访谈：[https://gettr.com/post/p15mlu94f5a](https://gettr.com/post/p15mlu94f5a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+音频处理/发稿：雪梨
 
  
 

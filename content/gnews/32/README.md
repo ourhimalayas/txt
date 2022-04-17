@@ -2,25 +2,39 @@
 ---
 
 
-## 樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358170/)
+## 有声|国人焦虑背后的真相是什么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358405/)
 
-撰稿：东京樱花团/加一颗稻草
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一个是驭民五术带来的压力另一个是真理与虚假现实的碰撞。
 
-美联社——在尘土飞扬的加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰战争中吸取的教训，让士兵为未来与俄罗斯或中共国等主要对手的战斗做好准备。这是一场针对网络、社交媒体、后勤保障以及如何克服坦克在泥泞中的困难的演练。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-332.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/4cfafe71219446498073ac361509228d/3000.jpeg)
-此次俄罗斯入侵乌克兰的战争中，乌克兰巧妙的利用社交媒体摧毁了俄罗斯的虚假宣传战术。以直播的形式让全世界的人们在电视或网络上，看到飞弹爆炸的场景，对平民的伤害。更看到了乌克兰人民的勇敢，并揭穿了俄罗斯的虚假指控。这是一种创新的战争形式，结合与北约的情报和信息的共享，成功的击溃俄罗斯军队。
+共匪政权除了通过驭民政策用生活压力让人恐慌和焦虑之外，更大的阴谋是撒下了弥天大谎，企图颠覆人的基本判断力，来彻彻底底的控制人的思想。人类生存的第一要素是安全，所有的活动包括繁衍都是建立在此基础上，就算是共匪篡夺权利几十年，依然该写不了人追求真相真理的天性。
 
-这样的战争模式与我们的爆料革命的战略不谋而合。爆料革命以为真不破的理念，用直播的方式向世界揭露了中共的无数次的谎言。导致中共内部听到爆料革命的声音就已经闻风丧胆，所以我们的每一次直播都对中共造成沉重打击。
+安全感的建立是以事实为基础，共匪的假恶丑虽然隐瞒的很好，但是纸总是包不住火的，真相的缝隙会引导着人们去不断的发掘。最终水落石出，让人们把安全建立在事实的基石上，当真相与虚假的表面发生冲突，与基本的逻辑并不相符时往往会让人觉得想不通，或者总感觉到哪不对劲，这也是焦虑情绪的根源。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/01911ADA-4C7E-444F-989D-61DB979925D4.jpeg)
 
-消息来源：
 
-[US Army using lessons from Ukraine war to aid own training](https://apnews.com/article/russia-ukraine-war-us-army-training-54e76eba46f9bf79542dd3f872456e67)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
+文字版原文：[国人焦虑背后的真相是什么？](https://gnews.org/zh-hans/2346160/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
