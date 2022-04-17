@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 10:00 PM (UTC)`
+
+“起来吧，饥寒交迫的奴隶！” 飞飞秀救援快报 2022-04-17<br/>For English：gettr.com/streaming/p15raah696d
+![img](https://media.gettr.com/group33/origin/2022/04/17/22/cc7c98c3-323d-ba34-d79f-e92bb7ace4c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/17/2022 9:11 PM (UTC)`
 
 4/17/2022 Miles Guo’s GETTR: The route of viral transmission should be random and non-linear. Why in Communist China all the locked down cities follow a line? Is it because the CCP is so clever that it can control the route of viral transmission? Our fellow fighters within mainland China should be prepared and take good care of your families; citizens of the New Federal State of China are not jabbed with COVID vaccines and own Himalaya Coins. We are blessed by God!<br/><br/>4/17/2022 文贵盖特：病毒的传播应该是随机的跳跃式的, 为何在中共国被封的城市是线性的，难道是共产党太聪明能够控制病毒传染途径？希望国内的战友们做好准备保护好自己和家人；新中国联邦人无苗有币，是上天眷顾的人！<br/>
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 2022.04.16  新中国联邦 | 喜财经  GDP vs 货币发行量；货币总量等式背后的猫腻；使用价值是交换价值和价值的物质承担者
 ![img](https://media.gettr.com/group18/origin/2022/04/17/02/250b3e04-a624-4910-e9ce-bd58235132b2/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/17/2022 1:23 AM (UTC)`
-
-4/16/2022 Miles Guo:  It is speculated that the death toll during the quarantine in Shanghai may exceed one million; the Chinese Communist Party is slaughtering Chinese people through controlling their money, food, water, and the right of speech. If the Chinese people still remain silent and obedient, there is only one way available for them, which is to wait for death to come<br/><br/>4/16/2022 文贵直播：上海隔离期间的死亡人数可能突破百万；中共通过控制人民的钱、食物和水、说话的权利来屠杀人民，如果中国人民还继续默默忍受，只有在家等死的一条路可走<br/>
-![img](https://media.gettr.com/group8/getter/2022/04/17/01/890b1802-6615-3616-23cd-67d22268ca09/out.jpg)
 
 ---
 
