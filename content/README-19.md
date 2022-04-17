@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 19/41 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [41](/content/README-41.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+## 頁面 19/42 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [42](/content/README-42.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
 
 [文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/2020/01/20200130-1699829441084097385.md)
 
@@ -64,7 +66,5 @@
 
 [文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/2020/01/20200106-5803835959397002894.md)
 
-[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/2020/01/20200105-5702641725419467150.md)
 
-
-## 頁面 19/41 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [41](/content/README-41.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+## 頁面 19/42 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [42](/content/README-42.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

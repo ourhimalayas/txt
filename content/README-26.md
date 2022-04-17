@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 26/41 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [41](/content/README-41.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
+## 頁面 26/42 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [42](/content/README-42.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
 
 [文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/content/2019/07/20190702-4761346884149440512.md)
 
@@ -64,7 +66,5 @@
 
 [翻译：班农法国行：“胜利在我们一边”](/content/2019/05/20190527-4863328313468786056.md)
 
-[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
 
-
-## 頁面 26/41 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [41](/content/README-41.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
+## 頁面 26/42 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [42](/content/README-42.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

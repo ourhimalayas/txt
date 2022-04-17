@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 12/41 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [41](/content/README-41.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/42 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [42](/content/README-42.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
 
 [文字版：2020年11月22日文贵先生第二次直播视频](/content/2020/12/20201209-6591987473740035252.md)
 
@@ -64,7 +66,5 @@
 
 [文字版:2020年10月5日郭先生GTV直播 ](/content/2020/10/20201018-5793496232664041877.md)
 
-[文字版:2020年9月27日郭先生GTV直播](/content/2020/10/20201005-7844353111973949021.md)
 
-
-## 頁面 12/41 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [41](/content/README-41.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/42 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [42](/content/README-42.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

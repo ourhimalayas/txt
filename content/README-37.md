@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 37/41 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
+## 頁面 37/42 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
+
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
 
@@ -64,7 +66,5 @@
 
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
 
-[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
 
-
-## 頁面 37/41 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
+## 頁面 37/42 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
