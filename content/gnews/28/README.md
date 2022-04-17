@@ -2,29 +2,22 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2360587/)
+## 2022年4月15日，上海浦東新區三林鎮，等待拉走去方艙集中點，視頻中在說看看一晚上拉走多少人。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2360801/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-93.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-16.png)
+作者：东京樱花团小视频组
 
 
-校对：Stay文苑
 
-编辑：Stay文苑
 
-发稿：Stay文苑
 
-新闻：[https://gettr.com/post/p15n1iu46da](https://gettr.com/post/p15n1iu46da)
-访谈：[https://gettr.com/post/p15mlu94f5a](https://gettr.com/post/p15mlu94f5a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-1.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,13 @@
 ---
 
 
-## 上海，抗疫物資被倒賣！居民買的盒馬蔬菜，竟然是抗疫物資，裏邊有紙條「遼滬一家 攜手抗疫……」 ，居民跟居委會主任吵起來了。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2360870/)
+## 澳大利亚大使给在上海的澳大利亚人的致辞
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2361014/)
 
-作者：东京樱花团小视频组
+04/14/2022 澳大利亚大使给在上海的澳大利亚人的致辞
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-
-
-
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

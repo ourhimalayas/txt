@@ -2,59 +2,86 @@
 ---
 
 
-## 截至4.16 俄乌战事汇总
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2357997/)
+## 参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2358389/)
 
-#### 采集/翻译：文洋
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16501355761.png)
-1. 第一批模块化房屋已在博罗迪昂卡安装，用于安置俄罗斯居民被赶出城市后正在清理废墟的应急工作人员和志愿者。
-2. 意大利从4月17日起禁止悬挂俄罗斯国旗的船只在其港口停靠。该禁令也适用于2月24日之后改变其旗帜的船只。
-3. 罗马尼亚将从明天起禁止悬挂俄罗斯国旗的船只进入其港口。
-4. 俄罗斯为沉没的莫斯科号巡洋舰复仇：乌克兰的主要城市，包括首都，今夜遭受野蛮的火箭弹袭击。
-5. 泽连斯基说，如果马里乌波尔的乌克兰军队被摧毁，与俄罗斯的谈判将被停止。
-6. 法国和意大利大使馆返回基辅。
-7. 卢甘斯克OVA的负责人谢尔盖-海达伊说，俄罗斯再次炮击利希扬斯克的炼油厂。
-8. 法院重审寡头维克多-梅德韦丘克，不得保释。
-9. 法国化妆品公司欧舒丹关闭了在俄罗斯的所有商店并停止网上销售。
-10. 前乌克兰总检察长鲁斯兰-里亚博沙普卡已被送达军事传票。早些时候，他试图离开乌克兰，但在边境被扣留。
-11. 英国特种部队恢复在基辅及其周边地区训练乌克兰军队 – 泰晤士报。
-12. 格鲁吉亚国会议员代表团抵达基辅，议会议长沙尔瓦-帕普阿什维利表示：我们感受到乌克兰人的痛苦，格鲁吉亚支持乌克兰，格鲁吉亚人与乌克兰人在一起。
-13. 乌克兰总统顾问米哈伊洛-波多利亚克说，欧盟正在给乌克兰提供我们不需要的武器。此外，武器交付时间过长。
-14. 俄罗斯情报总局报告称，所谓的顿涅茨克人民共和国的武装力量副总指挥官爱德华-巴苏林已被俄罗斯联邦安全局带走，去向不明。
-正是他爆料了俄罗斯领导人在马里乌波尔使用化学武器的计划。
-15. 超过35万名来自乌克兰的难民在德国正式登记，而真正的数字可能要高得多。
-16. 在西班牙-阿利坎特的一家酒吧里，三名俄罗斯游客袭击了一名来自乌克兰的酒保，并对其进行了严重殴打。微醺的俄罗斯人在听到酒保的口音后开始了暴行。
-17. 来自美国、澳大利亚、德国和波兰的救援人员已经来到乌克兰。他们目前在博罗江卡协助乌克兰人展开救援工作。
-18. 哈尔科夫OVA负责人Oleh Sinehubov表示，在哈尔科夫中心区的火箭弹袭击中，有18名平民受伤，1人死亡。
-大约50名军人和国家紧急情况部的9辆车在现场工作。他们设法将65人从受损和邻近的建筑物以及附近的住宅中疏散出来。火灾于当地时间14:37被扑灭。
-19. 帕维尔-杜罗夫和其他几位企业家要求《福布斯》杂志不要称他们为俄罗斯商人，因为他们早就离开了这个国家，与这个国家毫无关系。
-伊戈尔和布赫曼兄弟、技术公司Revolut的联合创始人尼古拉-斯托伦斯基、投资公司Millhouse的负责人叶夫根尼-什维德勒以及被《福布斯》称为俄罗斯最具影响力的技术投资者的尤里-米尔纳也发表了类似的声明。
-20. 乌克兰副总理韦列舒克说，约有700名乌克兰军人被俄罗斯人扣押。目前在乌克兰被关押的俄罗斯囚犯的数量大约与此相同。不排除有新的囚犯交换的可能。此外，俄军还囚禁了约1000名平民，其中一半是妇女。
-21. 俄罗斯已经禁止英国首相鲍里斯-约翰逊和一些英国政治家和议员进入其领土。
-22. 乌克兰司法部已经简化了戒严法下的婚姻登记。现在可以在24小时内通过视频注册。
-23. 乌克兰边防局发言人纳塔利娅-胡梅纽克说，”莫斯科 “号巡洋舰的船员几乎与该舰一起完全沉没。
-24. 俄国人试图通过把军事装备带到芬兰的边界，以显示他们虚假的军事力量。克里姆林宫认为，用这种廉价的威胁可以吓到别人，甚至让芬兰放弃加入北约。
-25. 在第聂伯罗彼得罗夫斯克地区，俄军用火箭弹袭击摧毁了一家家禽厂。幸运的是，没有人员伤亡，因为工厂没有开工。
-26. 英国人权组织 “信息复原中心”（CIR）报告说：从2月28日至4月15日，赫尔松的公墓至少出现了824个新坟墓。赫尔松自3月3日以来一直被俄罗斯占领。
-27. 据联合国统计，自战争开始以来，乌克兰有2982名平民被杀，2651人受伤。
-这些只是官方记录的数字。真正的伤亡人数比这个统计数字多出好几倍。
-28. 俄罗斯正在耗尽导弹，但普京并没有退出战争。他紧张地重新安排棋盘上的棋子，要求至少在5月9日前取得某种胜利。
-29. 在被俄军占领的赫尔松，他们正试图用俄罗斯的宣传对民众进行洗脑。其中他们谈到了生物武器。
-30. 基辅市长证实达尼察区发生爆炸。
-31. 美国国务卿安东尼-布林肯告诉欧盟盟友，华盛顿认为俄乌冲突可能持续到2022年底。
-32. 乌克兰拆弹小组正在检查以前被俄军占领的地区桥，在俄军撤退的时候，他们在这些地方埋了地雷。仅在其中一座桥上就发现了16枚反坦克地雷。
-33. 利沃夫法院的裁决：梅德韦楚克被逮捕，没有保释的可能。
-34. 乌克兰战士在不知名的爱国者的帮助下，击中了被占领的托克马克的一条铁路，当时俄军正在从轨道车上卸下弹药。现场俄军被消灭，弹药被引爆。
-35. 德国量子公司已经向乌克兰交付了第一架用于火炮校正的军用无人机。Vector无人机具有垂直起飞和降落功能，并配有HD-40LV光学和雷达站，带有激光测距仪，是一种最先进的无人机。
-36. 俄军正计划5月初在赫尔松州举行假公投。在此期间，他们打算关闭赫尔松的进出通道，并切断所有通信。
-据目击者称，新卡霍夫卡镇的一家印刷厂正在印刷 “公投 “的 “选票”。显然，关于’投票’结果的所有协议都将事先准备好。
-37. 泽连斯基第二次表示，乌克兰已准备好交换梅德韦楚克。
-38. 和谈的结果可能是一项由两份文件组成的协议：一份直接涉及与俄罗斯的关系，另一份涉及乌克兰的安全保障。泽连斯基在接受乌克兰记者采访时表达了这一观点。
-据乌克兰总统称，英国、美国、意大利和土耳其原则上准备充当安全保证人。然而，目前还没有人确认他们的意愿。
-乌克兰还希望德国、法国、波兰和其他国家成为安全保证人之一。然而，正如泽连斯基所说，谈判过程的困难在于讨论 “乌克兰想要什么，俄罗斯准备给我们什么”。
-39. 一列载有军事装备的火车从白俄罗斯的戈梅利驶向俄罗斯。
-40. 泽连斯基说，乌克兰正试图将妇女、儿童和受伤的士兵送出马里乌波尔，但俄罗斯拒绝提供人道主义通道。
-41. 基辅附近的伊尔平有1000多座建筑被损坏。115辆完全被毁，698辆严重受损，187辆部分受损。
+**参议员卢比奥**：
+ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 2020年的新冠应对方式，在2022年不太起作用。
+【转路透社报道，随着上海新冠病例的增加，更多中国城市收紧控制】
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s 2020 Covid response not doing too well in 2022
+> 
+>  [https://t.co/YvtUCYJ2pr](https://t.co/YvtUCYJ2pr)
+> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515317416812847104?ref_src=twsrc%5Etfw)
+
+
+
+**参议员卢比奥**：
+#中共国 过去在新冠病毒上做得如此“出色”，以至于在大流行开始的两年后，他们已经迫使一座拥有 2500 万人口的城市（上海）进入全面封闭。 
+【转华盛顿邮报：上海的新冠围攻，商品短缺，讲话机器，饿肚子的动物】
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) did such a great job on Covid that 2 years after the pandemic began they have forced a city of 25 million people into total lockdown [https://t.co/8O7k9i7Soo](https://t.co/8O7k9i7Soo)
+> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515321035989688321?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**： 
+这就是大白 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 
+【转英国自由撰稿人James Melville推文：上海的“健康与安全”冲锋队来了。 显然，这是为了你“好”。 （所附视频显示，上海一帮身着白色防护服的警察手持武器闯入民宅，将住户主人逼到阳台逼其就范…有开枪声！）】
+
+
+
+> This is the Big White Chinese Communist Party [https://t.co/ijZZTQ0h48](https://t.co/ijZZTQ0h48)
+> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515176857364099072?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**： 
+这就是中共国社交媒体用户如何通过在发布的照片​​上涂鸦来击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 自动审查技术的方式。 照片显示中国警察冲锋队在强迫一名上海居民隔离，来自帐号“微博上有什么”[@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo)
+
+
+
+> This is how Chinese social media users defeat automated CCP censor tech by scribbling lines on posted photos. Photo shows Chinese police stormtroopers forcing a Shanghai resident into quarantine h/t [@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo?ref_src=twsrc%5Etfw) [pic.twitter.com/m5ZRnqrMY8](https://t.co/m5ZRnqrMY8)
+> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515327783936806915?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥**： 
+当我们庆祝圣周和逾越节时，我们也应该为那些因信仰而被暴君和专制者们迫害的人而考虑并祈祷。 （阅读）我发表在《美国法律与司法中心》的最新文章 
+【附文章链接：这个复活节和逾越节，记住那些遭受迫害的人】
+
+
+
+> As we celebrate Holy Week and Passover, we should also consider and pray for those who are persecuted for their faith by tyrants and despots. My latest in ACLJ: [https://t.co/fG64IZWHTZ](https://t.co/fG64IZWHTZ)
+> — Mike Pompeo (@mikepompeo) [April 16, 2022](https://twitter.com/mikepompeo/status/1515363143530205199?ref_src=twsrc%5Etfw)
+
+
+
+**众议员安迪·比格斯**: 
+伊隆·马斯克在推特上做着正确的事。 
+左派和科技巨头憎恨言论自由。
+
+
+
+> Elon Musk is doing the right thing with Twitter. 
+> 
+> The Left and Big Tech hate free speech.
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515379782309105672?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂**： 
+[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国的年轻人发动一场非法毒品战争，而拜登政府正在通过让我们的南部边境开放，来获取他们的政治利益。
+
+
+
+> The CCP is waging an illicit drug war on America’s youth & the Biden Admin is enabling it by leaving our southern border open for their political gain.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 16, 2022](https://twitter.com/SenatorHagerty/status/1515465062194069506?ref_src=twsrc%5Etfw)
+
 
 
  

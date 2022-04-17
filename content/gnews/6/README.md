@@ -2,70 +2,47 @@
 ---
 
 
-## 乌总统警告世界防普京用核武 促拜登定义俄支持恐怖主义（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2361167/)
+## 台湾表示来自中共的威胁只会让它变得更强
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2361341/)
 
-翻译：噜噜咪
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-340.jpg)图片来自网络
+《路透社》近日报道，中国外交部在美国议员访问台北时中国在附近进行演习后说，中共国对台湾的军事威胁只会增加美国和其他民主国家对台湾的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
+北京指责包括参议院外交关系委员会主席鲍勃-梅嫩德斯在内的立法者以其 “挑衅性 “的旅行加剧了紧张局势。中共国声称民主统治的台湾是其自己的领土。
 
+在周五晚些时候的一份声明中，台湾外交部谴责中共国对美国访问的 “顽固和荒谬 “的反应，这是今年美国现任政府官员的首次访问。
 
+它说：”中国共产党极权政府对台湾的武力威胁只会加强台湾人民捍卫自由和民主的意志，也会吸引美国甚至更多民主伙伴对民主台湾的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-335.jpg)
+该部说，台湾将继续深化与美国和其他志同道合的国家的合作，以捍卫自由和开放的印太地区，并防止中共国的 “持续扩张”。
 
-乌克兰总统沃洛季米尔·泽伦斯基警告说，俄罗斯可能在入侵乌克兰期间使用战术核武器——并警告说这是整个世界严重关切的问题。
+参议员本-萨斯是访问台湾并会见蔡英文总统的六名两党议员之一，他在一份声明中说，中共不能谴责美国或其当选代表。
 
-“不仅是我——我认为全世界，所有的国家都必须担心，因为这可能不是真实的信息，但可能是事实，”泽伦斯基用英语说。
+他表示：”美国人民不爱暴君，反而本能地支持热爱自由的台湾人民。
 
-“我们应该想到不是要害怕，不是要害怕，而是要做好准备。但我认为，这不是乌克兰的问题，不仅是乌克兰的问题，也是全世界的问题，”他说。
+台湾对拜登政府提供的美国支持感到振奋，拜登政府多次谈到它对这个民主治理的岛屿的 “坚如磐石的 “承诺。
 
-泽伦斯基是在回答美国有线电视新闻网(CNN)的杰克·塔珀提出的问题时说，美国中央情报局局长威廉·伯恩斯警告说，俄罗斯总统弗拉基米尔·普京可能会在其持续了50天的入侵行动遭遇军事挫折的情况下，作为一种绝望的行为使用战术性核武。
+虽然美国与台湾没有正式的外交关系，但它是该岛最重要的国际支持者和武器供应者。这加剧了中美关系的紧张。
 
-他提到核武器以及化学武器是一种潜在的威胁。
+台湾政府表示，只有该岛的2300万人民才能决定他们的未来。
 
-“化学武器，他们应该会这么做，他们有能力这么做，对他们来说，人民的生命一文不值。这就是原因。”泽伦斯基用有时并不精确的英语说到。
+在周六对台湾独立团体组织的一个论坛预先录制的视频信息中，蔡英文说俄罗斯对乌克兰的入侵表明民主国家面临来自威权主义的威胁。
 
-据报道，他在采访中发表的可怕言论是在泽伦斯基亲自要求总统乔·拜登指定俄罗斯为支持恐怖主义的国家后发出的——此举对贸易和制裁有重大影响。
+她说：”台湾的立场是维护主权，维护民主，与志同道合的国家站在一起，相互协助，并贡献我们的力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-134.jpg)乌克兰总统沃洛季米尔·泽伦斯基周五警告说，俄罗斯可能使用战术核武器。
+支持民族自决，台湾的未来要由台湾人民自己决定，中共无权干涉。俄乌战争打醒了很多西方国家，七十年来和平的日子已经一去不复返了，这一次，所有热爱民主自由的国家都会站在台湾背后。
 
-消息人士告诉《华盛顿邮报》，拜登没有就这个问题作出承诺。
+参考链接：
 
-认定俄罗斯为支持恐怖主义的国家将导致对继续与俄罗斯做生意的国家进行经济制裁，以及冻结俄罗斯在美国的资产。
+[https://www.reuters.com/world/china/taiwan-says-chinas-threats-will-only-increase-support-island-2022-04-16/](https://www.reuters.com/world/china/taiwan-says-chinas-threats-will-only-increase-support-island-2022-04-16/)
 
-泽伦斯基是在（中情局局长）伯恩斯4月14日的演讲中发出警告的一天后发出该警告的。
+[https://www.reuters.com/world/asia-pacific/taiwans-security-has-global-impact-senior-us-lawmaker-tells-islands-president-2022-04-15/](https://www.reuters.com/world/asia-pacific/taiwans-security-has-global-impact-senior-us-lawmaker-tells-islands-president-2022-04-15/)
 
-鉴于普京总统和俄罗斯领导人潜在的绝望境地，鉴于他们迄今为止在军事上面临的挫折，我们任何人都不能轻视可能诉诸战术核武器或低当量核武器所带来的威胁，”这位中情局局长说。
+*编辑：金生水*
 
-美国官员长期以来一直警告说，普京可能会采取越来越鲁莽的行动，特别是在其入侵行动遭受重大挫折之后，包括未能拿下基辅或斩断政权，大量部队损失，重型装甲被毁，以及将重心重新放在乌克兰南部和东部。
-
-美国本周表示，由于距离原因，它无法证实乌克兰关于一架俄罗斯无人机向被围困的马里乌波尔市投放化学武器的说法。
-
-亚速营表示，周一释放了一种“来源不明的有毒物质”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-123.jpg)
-
-各国领导人一再警告俄罗斯总统弗拉基米尔·普京不要在乌克兰使用化学或生物武器。
-
-[接下篇乌总统警告世界防普京用核武 促拜登定义俄支持恐怖主义（2/2）](https://gnews.org/zh-hans/2361317/)
-
-新闻来源：[Zelensky says the whole WORLD should be worried about Putin using nuclear weapons and has urged Biden to designate Russia a state sponsor of terrorism](https://www.dailymail.co.uk/news/article-10722355/Zelensky-says-WORLD-worried-Putin-using-tactical-nuclear-weapon.html)
-
-* * *
-
-素材：peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
