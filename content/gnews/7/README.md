@@ -2,25 +2,21 @@
 ---
 
 
-## 视频| 是时候让中共付出代价了
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2358989/)
+## 有声| 巴西人道救援 接收乌克兰难民
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2360604/)
 
-【视频剪辑】 文果
+配音：香草山媒体部 – 纳米
 
-【文案编辑】 Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【文案审核】文敏
+当地时间4月13日，据相关媒体报道，巴西政府最新提交的一份报告显示，2022年3月期间，巴西已经向乌克兰人签发了74份签证和27份人道主义居留许可。
 
-【制作团队】大直播短视频组
 
-发稿：qiutian（邱甜）
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+文字版原文：[巴西人道救援 接收乌克兰难民](https://gnews.org/zh-hans/2349449/)
+
+
+
+音频处理/发稿：雪梨
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

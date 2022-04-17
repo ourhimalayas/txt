@@ -2,34 +2,25 @@
 ---
 
 
-## 教皇出席但不主持复活节守夜仪式
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2358036/)
+## 樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358170/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/加一颗稻草
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+美联社——在尘土飞扬的加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰战争中吸取的教训，让士兵为未来与俄罗斯或中共国等主要对手的战斗做好准备。这是一场针对网络、社交媒体、后勤保障以及如何克服坦克在泥泞中的困难的演练。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-332.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/4cfafe71219446498073ac361509228d/3000.jpeg)
+此次俄罗斯入侵乌克兰的战争中，乌克兰巧妙的利用社交媒体摧毁了俄罗斯的虚假宣传战术。以直播的形式让全世界的人们在电视或网络上，看到飞弹爆炸的场景，对平民的伤害。更看到了乌克兰人民的勇敢，并揭穿了俄罗斯的虚假指控。这是一种创新的战争形式，结合与北约的情报和信息的共享，成功的击溃俄罗斯军队。
 
+这样的战争模式与我们的爆料革命的战略不谋而合。爆料革命以为真不破的理念，用直播的方式向世界揭露了中共的无数次的谎言。导致中共内部听到爆料革命的声音就已经闻风丧胆，所以我们的每一次直播都对中共造成沉重打击。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/MBT7QQNRTNMMDOC54JUNZWWGVA.jpg)
+消息来源：
 
+[US Army using lessons from Ukraine war to aid own training](https://apnews.com/article/russia-ukraine-war-us-army-training-54e76eba46f9bf79542dd3f872456e67)
 
-图片来源：路透社
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-梵蒂冈城，4 月 16 日（路透社) 教皇方济各周六晚上出席但没有主持在圣彼得大教堂举行的复活节守夜仪式，大概是因为反复出现的腿部疼痛迫使他减少了一些活动。
-
-意大利红衣主教乔瓦尼·巴蒂斯塔·雷 (Giovanni Battista Re) 取代了教皇成为仪式的主要主礼人，其中包括在基督教世界最大教堂的中央教堂中殿几乎完全黑暗的游行队伍。
-
-教皇坐在大殿前侧的一张白色大椅子上，一副警惕的样子。梵蒂冈说他稍后会在弥撒中宣读讲道。
-
-主持有 5,500 人参加的弥撒，需要在诵经和读福音时长时间站立，以及在祭坛前跪下。
-
-这位 85 岁的教皇患有坐骨神经痛，这会导致一条腿疼痛并导致明显的跛行。最近，弗朗西斯的右膝也突然疼痛。
-
-梵蒂冈周五发布的一个节目将教皇列为周六晚礼拜的主礼。梵蒂冈没有给出改变的官方理由。
-
-🔗[https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/](https://www.reuters.com/world/europe/pope-attends-does-not-preside-easter-vigil-service-2022-04-16/)
-
-编辑发表： Shuizhuyu
 
  
 

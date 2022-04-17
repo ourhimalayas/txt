@@ -2,27 +2,28 @@
 ---
 
 
-## 樱花FM｜伊隆•马斯克拒绝进入推特董事会​​
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2356983/)
+## 樱花FM｜世行预计乌克兰经济增长率下降45% 创历史新低
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2357001/)
 
 音频：东京樱花团/战友520
 
-![](https://lh4.googleusercontent.com/63vWDdSq_uUMIL5Q22lLGe9WrwlWL_kbOu0G31lrSXLN_b3ykWG-jrVOFFWqx24dyvVVkdTvaYMf6phxjnZBu8Mj0lXvSRwmhvhpE4ExNxIYoeRvNnb2T6r3ZmQo1p_PIW_1Lpx5)
+![](https://lh6.googleusercontent.com/aVSB42_BuxVM7wCN90m-C4eDCIoxpAIRtXR_CslN18Stn9Q9NDEZdRZUpLGl_Q5zISeKKIWphBS8IQJ2lHgq5Wxwp0V2BDOpuufteHR8wCPcassaFCa65ga725P56dMe6Wjipgwm)
 
-4月10日，成为推特公司最大股东的美国特斯拉公司首席执行官伊隆•马斯克宣布，他决定不加入推特董事会。
+4月10日，世界银行公布，乌克兰因遭到俄罗斯军入侵影响， 2022年经济增长率预计将下降45.1%，创历史新低。世行强调，俄罗斯的军事袭击严重破坏了乌克兰的基础设施（社会基础设施）。
 
-马斯克先生收购了Twitter的9.2%股份后，推特公司于4月5日宣布将提名他进入董事会，并将于4月9日正式任命。
+另一方面，作为侵略者的俄罗斯也受日本、美国和欧洲“史无前例的经济制裁”的影响，预测经济增长率将下降11.2%。
 
-然而，推特公司首席执行官阿格拉瓦尔先生发布的一份内部文件称，马斯克先生在当天上午通知他不打算加入董事会。
+世界银行对俄罗斯入侵乌克兰表示强烈担忧，称其“正在加速世界经济放缓、通货膨胀（物价上涨）和债务急剧上升”。
 
-文字版原文：[伊隆•马斯克拒绝进入推特董事会](https://gnews.org/zh-hans/2325881/)
+国际货币基金组织（IMF）3月份也表示，乌克兰2022年的增长率可能下降25-35%。
+
+文字版原文：[世行预计乌克兰经济增长率下降45% 创历史新低](https://gnews.org/zh-hans/2326058/)
 
 编辑：东京樱花团/Calvin
 发布：东京樱花团/Calvin
 
-关键词：樱花FM,有声读物,中日财经爆,推特,董事会,马斯克
-
-摘要：4月10日，成为推特公司最大股东的美国特斯拉公司首席执行官伊隆•马斯克宣布，他决定不加入推特董事会。
+关键词：樱花FM,有声读物,中日财经爆,乌克兰,俄罗斯,经济增长率
+摘要：4月10日，世界银行公布，乌克兰因遭到俄罗斯军入侵影响， 2022年经济增长率预计将下降45.1%，创历史新低。世行强调，俄罗斯的军事袭击严重破坏了乌克兰的基础设施（社会基础设施）。
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
  
 

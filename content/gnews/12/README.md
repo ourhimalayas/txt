@@ -2,310 +2,66 @@
 ---
 
 
-## 杰克·波索比克: “这些都是在中共国进行的恐怖封锁”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2358756/)
+## 三问“莫斯科”号巡洋舰沉没
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2360405/)
 
-Steve Bannon
-史蒂夫·班农
+【国内新闻短评】
 
-these videos people are talking about is that there’s no food
-人们在这些视频谈论的是那里没有食物
+新京报4月15日刊载：三问“莫斯科”号巡洋舰沉没
 
-They won’t let people out of the house
-他们不允许人们出门
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2035.png)图片来源：网络
 
-this is a lockdown as hard as
-这种封锁简直是…
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2037.png)
 
-Jack Posobiec
-杰克·波索别克
+**短评：**
 
-this is terror lockdowns
-这是恐怖封锁
+新中国联邦爆料革命郭文贵先生在2022年4月14日的全球视频短直播中说到自己的经历，他曾经到俄罗斯号称“黑海之神”的俄罗斯黑海舰队“莫斯科”号巡洋舰上参观过，那时普京独裁洗脑下的俄罗斯人对“莫斯科”号骄傲得不行，他们说“我们这一舰能打12个国家，东欧、立陶宛、保加利亚、罗马尼亚……分分钟就把它毁了”，结果被吹嘘得这么厉害的“莫斯科”号被乌克兰的导弹仅仅两下半就给击沉了。两下命中，半个打到水下面去了，如果三个都（命中）到的话，整个舰上的人全（会）死掉。两个半就把舰打废了，（舰上的）人跑了。
 
-these are terror lockdowns that are going on in China
-这些是在中共国正在进行的恐怖封锁
+据中共喉舌新华社北京4月15日电：俄罗斯国防部14日说，俄黑海舰队旗舰“莫斯科”号巡洋舰起火并导致舰上弹药爆炸，该舰严重受损，在被拖曳回港的过程中失去稳定性，在风浪中沉没。乌克兰地方政府官员13日则在社交媒体发文称，乌边防部队当天用巡航导弹重创了“莫斯科”号巡洋舰。
 
-This is China’s most populous and wealthiest city
-这是中共国人口最多、最富有的城市
+普京暴政独裁下的俄罗斯党卫军海兵主力战舰“莫斯科”号明明是被乌军反舰导弹重创，说重创也太委婉了，实际就是直接击沉，却还被中共企图乱带节奏地反问究竟是不是失火，还无意义地探讨旗舰沉没暴露俄军哪些问题会对普京侵略乌克兰的战局产生什么影响。
 
-right of mainland China is Shanghai
-中共国大陆的上海
+**1、遭导弹击中还是起火爆炸？当然是遭导弹击中了**
 
-26 million people, one of largest cities in the world that I counted
-2600万人，我知道的世界上最大的城市之一
+普京党卫军说：“莫斯科”号巡洋舰失火导致弹药库殉爆，这简直是流氓独裁国家欺上瞒下的惯用伎俩，既为了保住自己的颜面，又为了不让自己掉脑袋。
 
-and when I look at those videos now
-当我现在看那些视频时
+乌克兰敖德萨州州长马尔琴科13日在社交媒体发文称，驻守蛇岛的乌边防部队当天用“海王星”巡航导弹重创了行驶在附近水域的“莫斯科”号巡洋舰。
 
-these people are being starved, being locked that you can’t go out of your homes
-这些人正在挨饿，被锁着，不能出家门
+一贯谎话连篇的中共说，“海王星”是乌克兰在苏联“天王星”舰对舰导弹基础上研发的地对舰亚音速导弹，战斗部重150公斤，射程280公里，最低掠海飞行高度约3米，具备一定突防能力。而按照乌方说法，这是“海王星”首次用于实战。
 
-When I look at the towers, the apartment buildings, right?
-当我看到塔楼，公寓楼时，看到了吗？
+美国国防部发言人柯比说，“莫斯科”号发生爆炸时位于距离敖德萨港口大约110公里的外海。
 
-It looks exactly like the one where I used to live
-它看起来和我以前住过的一模一样
+让我们来看看习普日后在对乌克兰及台湾的侵略中武器被击后是如何为自己狡辩的：共方和俄方认为他方说法存在一些疑点：一是宣称对方武器击毁我方武器的是地方行政长官而非军方；二是他方尚未出具可信的战报或武器发射证据；三是对方武器发射车车体较大，如何机动到发射阵位而不被我方发现并摧毁，我方没能力弄明白所以就是存在疑问。
 
-People are jumping out of them to commit suicide
-人们从楼上跳下来自杀
+上海政法学院东北亚研究中心副主任、所谓军事专家杨震之类的习普走狗们会推卸责任地说，不能排除俄方武器阵亡是自身起火爆炸所致，由于各种因素，在侵略时发生这种情况也不是没有可能。实在是不要脸。
 
-because they can’t take it and the animals by the way，the pets
-因为他们不能接受它，顺便说一下动物，宠物
+**2、主力舰沉没暴露俄军哪些问题？这不重要好吗，你们的侵略输了才重要**
 
-if you test positive and everyone’s required to test every single day
-如果你测试呈阳性并且每个人都需要每天进行测试
+按流氓中共的说法，“莫斯科”号是苏联党卫军“光荣”级导弹巡洋舰首舰，排水量1.25万吨，配备16枚“玄武岩”重型反舰导弹及防空和反潜武器，1976开工建造，1983年服役，命名为“光荣”号，2000年更名“莫斯科”号。沉都沉了，这重要吗？
 
-you go out sometimes you even have to kneel, to take the test
-你出去有时你甚至不得不跪下来参加测试
+据中共走狗杨震介绍，“光荣”级是苏联党卫军海兵元帅戈尔什科夫“独裁国家海上威力论”的产物，主要使命是在公海和大洋掩护党卫军弹道导弹核潜艇，进行反舰作战并截断美欧之间的大西洋交通，属于远洋侵略舰艇。优点是火力强大、巡航能力强，是典型机械化侵略战争时代党卫军主战平台。
 
-They force you to kneel and
-他们强迫你跪下
+中共又作为马后炮信誓旦旦地为习普找借口：然而，随着侵略技术形态从机械化进入信息化，“光荣”级开始落后于时代，在高烈度的信息化海战场上，其防空能力不全面、信息化程度不高且自动化程度低的缺点凸显，隐身能力弱亦是其软肋。真是无耻，事实是你暴政独裁与人民为敌的体制缺陷。
 
-Steve Bannon
-史蒂夫·班农
+中共走狗杨震还装模作样地分析说，如果是导弹命中，说明“莫斯科”号防御低、慢、小目标的能力不足，海洋态势感知能力偏弱；如果是火灾，说明其保障舰船生命力的损害管制能力不强。从这次沉没事件看，普京党卫军的损管物资准备和应急预案等方面存在缺陷。这种废话要你说？你流氓中共这样打官腔说空话就算了，但你打官腔损害的是老百姓的生命和利益！
 
-how can 25 million people be tested
-如何对2500万人进行测试?
+**3、旗舰沉没是否会影响战局？当然不会，习普你们的侵略输定了**
 
-this is why you’re seeing the things of the army coming in
-这就是为什么你看到军队进城
+虽然此次普京侵略乌克兰暂时以陆战为主，但“莫斯科”号沉没也在很大程度上鼓励了乌军士气，是普京侵略战争中的一个重要标志性事件，从根本上扭转了普京侵略乌克兰的战场进程。普京党卫军号称即将占领亚速海重镇马里乌波尔。普京党卫军虽然在黑海和亚速海有数十艘舰艇，但包括“圣彼得堡”号在内的这些舰艇最终都会迎来和主力战舰“莫斯科”号一样的结局，俄罗斯的海上优势再也不复当年。
 
-Jack Posobiec
-杰克·波索别克
+连中共走狗杨震也识相地认为，“莫斯科”号是普京党卫军在黑海侵略北约的主力战舰，其沉没意味着北约对普京党卫军的海空优势更加明显，而黑海舰队进一步向“空潜快”舰队退化，即只能依托航空兵、潜艇、所谓机动性强的小型舰艇进行近岸防御作战。
 
-That’s why the military is coming in
-这就是军队进来的原因
+中共走狗杨震预计（威胁），接下来，普京党卫军将加大对顿巴斯地区乌军的攻势，加强火力覆盖，尽可能多地歼灭乌军有生力量，以锁定战局趋势。我们只想说，习普你们俩流氓能不能有点自知之明长点脸？侵略乌克兰已经有50天了，你们说了多少次加大攻势、加强火力覆盖、尽可能多地歼灭乌军有生力量、锁定战局趋势？结果？事实是习普败局已定，你俩的侵略注定失败，你们心知肚明。赶紧洗漱洗漱，准备下地狱吧。
 
-And if they if you test positive, there’s no videos coming out
-如果他们检测呈阳性，就没有视频出来了
+* * *
 
-They’re rounding up the pets
-他们正在围捕宠物
+新闻链接：
+[https://mr.baidu.com/r/EzwXhAQQJa?f=cp&u=7a7cd1ebb41944dd](https://mr.baidu.com/r/EzwXhAQQJa?f=cp&amp;u=7a7cd1ebb41944dd)
 
-Steve Bannon
-史蒂夫·班农
-
-they’re killing the pets
-他们杀死宠物
-
-Jack Posobiec
-杰克·波索别克
-
-They are killing the pets in the streets
-他们在街上杀死宠物
-
-Steve Bannon
-史蒂夫·班农
-
-Okay, this is what, you got to help me out here
-好吧，就是这样，你得帮帮我
-
-They just had a Winter Olympics in Beijing
-他们刚刚在北京举办了冬奥会
-
-Jack Posobiec
-杰克·波索别克
-
-That’s right
-是的
-
-Steve Bannon
-史蒂夫·班农
-
-that the whole world allowed all these athletes to go to
-全世界都允许所有这些运动员去参加
-
-and MSNBC and CNBC and NBC were over there cow-telling
-MSNBC 和 CNBC 和 NBC 在那边
-
-how can we have sent people over in basically
-基本上我们怎么能派人去参加
-
-late January, early February, and six weeks later, five weeks later?
-一月底，二月初，大概六周后，五周后？
-
-They’re literally quarantining and lock it in a hard lockdown one of the great cities of the world
-他们实际上是在将其隔离并封锁在世界上最伟大的城市之一中
-
-Jack Posobiec
-杰克·波索别克
-
-They’re locking this down even the western cities Hunan
-他们甚至封锁了湖南西部城市
-
-you can go through 23 cities are now looking at this
-已经有23个城市正在被封锁
-
-So Shanghai …
-所以上海…
-
-Steve Bannon
-史蒂夫·班农
-
-200 million people
-2亿人
-
-Jack Posobiec
-杰克·波索别克
-
-We’re looking probably about about 193 almost
-估计大约1.93以人左右
-
-just under 200 million people
-不到2亿人
-
-Steve Bannon
-史蒂夫·班农
-
-200 million people are in some form of lockdown as we
-2亿人处于某种形式的封锁中
-
-Jack Posobiec
-杰克·波索别克
-
-This is terror lockdown
-这是恐怖封锁
-
-Steve Bannon
-史蒂夫·班农
-
-What do you mean terror lockdown?
-恐怖封锁你的意思是？
-
-Jack Posobiec
-杰克·波索别克
-
-You know, there’s no UberEATS that’s running
-你知道，没有快递员送餐
-
-There’s no you know, you can’t get delivery
-那里没有，你知道，你不能得到送货
-
-The supermarkets are shut down
-超市都关门了
-
-You know, we had soft lock downs here in the US
-你知道，我们在美国有软封锁
-
-you know, you could still go out for the
-你知道，你仍然可以出去
-
-you know, the whole thing essential workers, everything else
-你知道，整个事情，必不可少的工人，民生岗位正常工作等
-
-and I don’t mean to downplay the lock downs that were had in the US
-我并不是要淡化美国的封锁
-
-but I’m saying they were nothing
-但是我要说我们的软封锁与中共在这些恐怖封锁
-
-compared to what the CCP was doing in these terror lock downs, right?
-中所做的相比算不了什么，对吧？
-
-They shut down your basic essentials
-他们切断了你的基本必需品
-
-They didn’t want anybody coming out and if they see you on the street
-他们不希望任何人出来，如果他们在街上看到你
-
-they’re grabbing you, tearing you down, right?
-他们会抓住你，把你推倒，对吧？
-
-I posted on Twitter, because they did let me back today
-我在推特上发帖，因为他们今天恢复了我的推特账号
-
-And I’ve got videos all over Shanghai about this
-我在网络上看到到处都有关于上海的视频
-
-And so the reason that I’m putting it this up and some people
-所以我提出这个的原因是
-
-and I remember I remember that there was this whole school of thought at one point
-我记得曾经有过一整套思想流派
-
-This is thought
-这是想法
-
-it’s China just doing all that in in late 2019, early 2020
-是中共国在 2019 年末、2020年初才做了这一切
-
-Was it a psyop?
-是心理战吗？
-
-Was it you know, were they tricking us with these videos was
-你知道吗，他们用这些视频欺骗我们
-
-it meant to trick the west into lockdown
-要欺骗西方进入封锁状态
-
-just said no, no, no, no, no
-只是说不不不不不不
-
-Steve Bannon
-史蒂夫·班农
-
-They don’t roll like that
-他们不这样做
-
-Jack Posobiec
-杰克·波索别克
-
-They’re terrified of this thing
-他们害怕这种事情
-
-And why is it and it goes back to
-为什么会这样，它又回到了
-
-what I said on the very first episode of this program
-我在这个节目的第一集中所说的
-
-two and a half years ago right in this chair
-两年半前, 就在这把椅子上
-
-They are terrified of being viewed as losing the mandate of heaven
-他们害怕被视为失去强制专权
-
-Because when you lose the mandate of heaven
-因为当你失去强制专权的时候
-
-when the God Emperor
-当皇威
-
-the Dragon throne is seen as losing the mandate of heaven in China
-即天子在中国被认为是失去了强制专权的话
-
-that means that people have the right and the duty
-这意味着人们有权利和义务
-
-to establish a new dynasty and to rise up against them
-建立一个新王朝并起来反对他
-
-And that means if you can’t handle the famine, the plague pestilence
-这意味着如果你不能应付饥荒，瘟疫
-
-that hits the land, the invaders, the bandits
-袭击土地，入侵者，土匪
-
-if your empire is crumbling, then you need a new empire
-如果你的帝国正在崩溃，那么你需要一个新的帝国
-
-**原视频链接**[https://gettr.com/post/p14yajx99c9](https://gettr.com/post/p14yajx99c9)
-
-Date:04/13/2022
-原视频标题: “These are terror lockdowns that are going on in China.” -Jack Posobiec
-杰克·波索比克: “这些都是在中共国进行的恐怖封锁”
-原视频日期：2022/04/12
-原视频链接https://gettr.com/post/p14yajx99c9
-任务编号：KE479（4233）
-视频时间段 : 0:00-3:17
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

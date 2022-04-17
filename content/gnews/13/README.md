@@ -2,57 +2,38 @@
 ---
 
 
-## 俄罗斯叫嚣清除马斯克星链,灭共3.0剩下的0.3日益临近
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358738/)
+## 台湾日新增连续两日破千，首见两岁儿童重症
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2359065/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/北斗_副本.jpg)
-据[SpaceX帮助击沉“莫斯科”号？梅德韦杰夫：俄空军将清除马斯克的卫星](https://finance.sina.com.cn/jjxw/2022-04-16/doc-imcwipii4672085.shtml)（2022年04月16日 19:42 环球时报）
+#### 【雅典娜快讯】紧贴时代脉搏
 
-【俄罗斯前总统、联邦安全会议副主席梅德韦杰夫说，俄罗斯情报部门获悉，本周早些时候乌克兰的一次导弹袭击击沉了“莫斯科”号导弹巡洋舰，是由SpaceX 发射的“星链”（Starlink）卫星协调的。
+#### 整理/编辑：文泓
 
-梅德夫德夫说：“总司令已发布命令，清除目前在俄罗斯联邦、特别军事行动地区和黑海上空的一组‘星链’卫星，以确保参与行动的所有部队的安全。”】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片51.png)图片来源：中央社 & 雅典娜设计组（台北车站疫苗接种站）
 
-这条消息有两层含义，一是俄罗斯自己终于承认“莫斯科”号导弹巡洋舰是由于被乌克兰以导弹击沉的，而不是此前所谎称的军舰着火。
 
-这条消息的第二层含义是俄乌战争开始转向太空，转向攻击敌方卫星。而这第二层含义又与灭共3.0剩下的0.3息息相关，郭文贵先生在前几期的直播中已经爆出了中共在塞尔维亚及多个地区部署了针对美国和欧盟及乌克兰的红旗导弹，并且也爆出了红旗导弹采用中共的北斗导航系统，同此引出灭共3.0剩下的0.3的话题（视频来源[郭文贵GTV直播2020年1月18日谈刘鹤招待会删除预示了什么，爆料革命击中了中共的所有要害，中美贸易，新疆，香港，蛇鼠一窝无处逃蹿](https://livestream.com/accounts/27235681/events/8197481/videos/200881630)）——
+4月17日台北消息，台湾中央流行疫情指挥中心昨日宣布，新增1199例本土个案，并出现首例儿童重症个案，为一名未满两岁男童，14日确诊当天进加护病房，出现急性脑炎并多重器官异常。
 
-15:01——
+指挥中心昨天公布新增1199例本土个案，其中152例境外输入；新增9例中症，1例重症，没有死亡个案。
 
-那么我想告诉大家的，我本来今天要给大家要谈一系列的这些事情啊，就是国内的一些热点，但是战友们都关心0.3，我今天一会儿再说，没啥，别着急啊。0.3我就说了吧，0.3别着急，你要听不到“蹦”一响，0.3就不会来，你们不要猜，
+指挥中心指挥官陈时中表示，本土病例分布于十九个县市，以新北市434例居冠，其余依序为台北市206例、桃园市159例、基隆市92例、高雄市60例。
 
-——15:25
+指挥中心医疗应变组副组长罗一钧表示，重症个案为未满五岁男童，无慢性病史、未接种疫苗，十四日采检确诊，当天即住进加护病房治疗，经检查发现急性脑炎并发多重器官异常，插管使用呼吸器并以类固醇、免疫调节剂治疗，病况严峻，医院全力救治中，也是儿童首例重症个案。
 
-15:46——
+**以下是台湾最新疫情图表（数据来源CSSE）,显示近日新增病例呈激增态势。**
 
-这个咱都不猜了，0.3里边一定要有3个以上的元素，要“蹦”一声，然后得白宫开记者招待会，第三个得有所谓的现在天上的星星，得有蹦下来的。没这个不算数啊，记住我说的啊，不到那时候不宣布，我不宣布啊，0.3，我也不会再回答了啊，你们也别猜了，你们谁猜都是，会砸你自己的脚。现在你们真的搬那0.3的石头砸自己的脚。别猜了，别砸了啊，很危险很危险。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-48.png)
 
-——16:24
 
-梅德韦杰夫的卫星战叫嚣虽然与中共无关，但是作为邪恶轴心的一员同时也是俄乌战争元凶的中共与这场战争脱不了干系，至于作为中共红旗导航系统的北斗在被美国击毁前那“蹦”的一声，到底是中共的辽宁舰或其他战舰被击沉发出来的还是美国或盟军的航母或战舰被击沉发出来的，我们猜不到，但是我们只能看到灭共3.0差的那0.3已经越来越近。
+参考链接：[本土+1199 首見2歲重症 | 中華日報|中華新聞雲 (cdns.com.tw)](https://www.cdns.com.tw/articles/569991)
 
-撰稿：喜马拉雅的肉夹馍；
+发布：*wenly*
 
-视频剪辑：Cindy；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
