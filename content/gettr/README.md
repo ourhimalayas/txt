@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 11:00 PM (UTC)`
+
+2022.04.17 NFSC news  Miles: The CCP Finally Launches Operation "Taiwan the Son."
+![img](https://media.gettr.com/group10/origin/2022/04/17/22/cd6f708d-a802-c395-be59-2990711c8e3c/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/17/2022 10:00 PM (UTC)`
 
 “起来吧，饥寒交迫的奴隶！” 飞飞秀救援快报 2022-04-17<br/>For English：gettr.com/streaming/p15raah696d
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 4/16/2022 Miles Guo: You have the right to defend yourself if any government wants to take you away from your home or kill you without due process; as long as you take actions smartly, and you are capable and have common sense; the New Federal State of China's rescue operation at the Ukraine front line serves as a good example and platform, through which the Western world can understand the Asians<br/><br/>4/16/2022 文贵直播：当任何政府不按法律程序剥夺你的人身自由和生命的时候，你都有权自卫；但你要有智慧、行动力和基本常识；新中国联邦的乌克兰救援行动就是一个例子，一个让西方了解亚洲人的平台<br/>
 ![img](https://media.gettr.com/group11/getter/2022/04/17/02/95b4a0f7-e43d-f30a-ea6d-907e2d1c6549/out.jpg)
-
----
-
-`@miles 4/17/2022 2:02 AM (UTC)`
-
-2022.04.16  新中国联邦 | 喜财经  GDP vs 货币发行量；货币总量等式背后的猫腻；使用价值是交换价值和价值的物质承担者
-![img](https://media.gettr.com/group18/origin/2022/04/17/02/250b3e04-a624-4910-e9ce-bd58235132b2/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,45 +2,31 @@
 ---
 
 
-## 有声|上海一网友曾力挺港警 如今自己被“维稳“
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2364485/)
+## 中共即将对多个大城市实施大封锁隔离
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364628/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据国外媒体4月15日报道，近日，一位名叫“乖乖咙滴董”的网友，在微博中贴出了上海警察在张江纳仕国际社区殴打小区居民的视频，并控诉道：这就是人民警察！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-37.jpg)
-微博发出后，有网友发现，在2019年香港反送中期间，他曾经支持香港警察，还转发了当时墙内百姓挺港警的名言：“我支持香港警察，你们可以打我了。”
+作者：银河系农场 骄子
 
-如今，上海因为疫情控制，要强征“乖乖咙滴董“居住的小区作为隔离点，引起小区居民的强烈反抗，但又被上海警察暴力维稳。他在微博中表达了对警方暴力执法的强烈愤概。
+4月16日郭先生紧急直播，公开了中共即将对青岛、大连、哈尔滨或者海口等地实施大封锁、大隔离的计划。
 
-有网友嘲笑他2019年的愿望，中2022年终于实现了。还有网友希望以后他能更清楚地认识这个社会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-1.12.12-PM.png)
 
-目前，“乖乖咙滴董”已经关闭了自己的微博帐号，避免继续成为公众嘲笑的对象。
+郭先生爆料，随着中共对上海和长春的封锁，上海死亡人数可能已达到百万。上海战友及时的为当地战友提供政府实时情报，协助战友买到粮食、蔬菜以及药品，还有的战友用智慧的办法帮到了生病的战友家人。
 
+长春战友在郭先生的建议下积极行动，提前在外准备的基地、粮食以及医疗用品帮到了无数人度过了此次共产党的大隔离，完全体现出作为新中国联邦人的高素质，郭先生说，这在未来盘古相聚时会是辉煌的一页。
 
+目前得到准确情报，中共接下来要对国内进行大隔离的城市有青岛、大连、哈尔滨或者海口，这些城市将会再现上海和长春以及广州的惨状，请战友提前准备。
 
+郭先生还提供了一些反抗策略，中共大隔离本身就是犯法，已经构成了正当防卫的条件。民众要合理利用家中的水、煤气、冰箱和汽车里的油，尤其是要团结周围单元楼的老百姓集体行动，勇气和智慧缺一不可。
 
+参考链接：[2022.04.16早 7哥乱聊直播](https://gettr.com/post/p15kayqd9fb)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-
-文字版原文：[上海一网友曾力挺港警 如今自己被“维稳“](https://gnews.org/zh-hans/2363018/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：文恩
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：谐趣园
 
  
 

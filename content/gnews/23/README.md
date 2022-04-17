@@ -2,32 +2,44 @@
 ---
 
 
-## 中共国在约有1300万人口的西安市导入大规模的行动限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364366/)
+## 有声|欧盟委员会启动数字欧元咨询
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2364455/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
-在因受新冠病毒感染扩大化影响而陆续封城的中共国，最新的是在一个拥有约1300万人口西安市，导入了大规模的行动限制。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2128.png)图片来源网络
-陕西省西安市宣布从4月16日至19日对市民的行动进行限制。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据媒体 4月15日报道，欧盟委员会已发布公告，就数字欧元展开咨询，咨询时间为4月5日至6月14日。委员会呼吁支付专家、信贷机构、商家及其协会、支付解决方案开发商、消费者协会、零售支付监管机构、反洗钱监管机构和其他相关专家就数字欧元向其提供反馈意见，敦促支付和金融服务专家关注中央银行数字货币CBDC、隐私和数据保护以及欧洲区域数字货币其他方面的需求和期望。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-36.jpg)
+用户对数字欧元的需求和期望是委员会正在寻求反馈的领域。欧洲在数字支付技术方面相当先进，挪威和芬兰等国家的借记卡普及率高达98%，是世界上最高的。这可能会减少对数字欧元的需求。
 
-原则上，市民被禁止在市内外行动，要求非必要不外出。 与此同时，商业等设施也暂停营业。
+委员会还想了解数字欧元在零售支付和数字经济中的作用；如何建立数字欧元来保护欧元实物货币的法定货币地位；对金融稳定会有什么影响；如何适用反洗钱和反恐融资规则；以及数字欧元如何与国际支付相结合等。
 
-在拥有约1300万人口的西安市，从去年末到今年1月，封闭了约一个月，对市民的生活产生了严重影响，包括发生因限制就医导致了孕妇胎死腹中等事件。
+另外，委员会还将收集有关数字欧元隐私和数据保护方面的反馈。
 
-据说，此次是因截至4月15日有43人被确诊感染，而再次实施限制。
 
-西安市解释说，这项措施“不是封城”，但如果感染继续蔓延，今后也可能采取更为严格的措施。
 
-在坚持严格病毒清零政策的中共国，继大规模封城的上海市后，山西省会太原和江苏的苏州也开始行动限制，导致担忧影响经济活动的呼声渐高。
 
-参考链接：[中国　人口約1300万人の西安市に大規模な移動制限を導入(日テレNEWS24) – goo ニュース](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022041705423475.html)
 
-* * *
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
+
+文字版原文：[欧盟委员会启动数字欧元咨询](https://gnews.org/zh-hans/2363016/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
