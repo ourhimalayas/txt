@@ -2,60 +2,64 @@
 ---
 
 
-## 中共颠倒黑白把地狱粉饰成天堂天理不容
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2358504/)
+## 建议上海卫健委领导精神病鉴定并持48小时内报告上岗
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358881/)
 
-【**国内新闻短评**】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/习近平全面部署_副本.jpg)
+据[老司机](https://twitter.com/h5LPyKL7TP6jjop)[@h5LPyKL7TP6jjop](https://twitter.com/h5LPyKL7TP6jjop)于[上午3:25 · 2022年4月17日](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080)发布的推文——
 
-**网易新闻2022年4月12日报道：上海战疫中的普通人：这些细节给人力量**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/anwr2-6y6bg.jpg)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/04/xcvv.jpg)
-***短评：***
+这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！
 
-四月上海所谓疫情封城以来，中共大陆视频网站和微信上出现了大量没有食物挨饿求救的现场视频。很多大白、居委会成员通过给个馒头、给一碗面的方式要求陪睡，有些从北方支援上海的人甚至公开炫耀说“去上海去睡闺女去喽”、“去睡上海大美女去喽”，令人愤怒至极。
 
-我们知道，人最基本的生存权就是吃饭、睡觉、生活、工作以及说话的权利，当别人有意或者无意地用任何理由剥夺人的生存权，任何人都应该在法律范围内坚决地予以反击，更何况他还侵犯了你的人身安全。上海这些大白和居委会成员的行为在以前被称为骗奸、诱奸和强奸，现在上海又出现了几个新词，叫饭奸、水奸、面奸、粮奸：以饭强奸你、以水强奸你、以面强奸你、以粮强奸你。魔鬼中共在用无比邪恶的方式，在现在的社会里，把你的家变成监狱、地狱，让你习惯用的手机变成你的脚镣手铐，让你习惯所谓管理者可以享受你的一切，你的房子、财富、老婆、女儿、先生。
 
-以下是2022年4月10日新中国联邦爆料革命郭文贵先生全球视频大直播中有关上海真实现场情况的集锦：
+> 这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！ [pic.twitter.com/BeSoYDGByJ](https://t.co/BeSoYDGByJ)
+> — 老司机 (@h5LPyKL7TP6jjop) [April 16, 2022](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080?ref_src=twsrc%5Etfw)
 
-**现场1**：没人管了，所有的物资都是靠自己在抢，所有的人都慌了，请大家曝光一下！
 
-**现场2**：没人管了，全部都是靠抢了，饭都没得吃了！
 
-**现场3**：我跟妈妈就（只）抢到了一箱水！（体弱多病抢不到的，那就只有忍饥挨饿，有眼泪也要往肚子里面咽。）
+**接线员：**以防疫管控的这样一个措施您是觉得不合理？
 
-**现场4**：我就（只）抢到了一箱水，什么都没抢到，像暴乱一样，没有人管。
+**投诉者：**他所谓的健康筛查，它是违反传染病防治法规定的。传染病防治法规定的说，你这个防控的对象只能是病人、密接，你对健康人群搞什么核酸检测、搞健康筛查。这逻辑很可笑的呀，按照这个逻辑，所有的上海市所有的卫健委系统的领导要全部进行精神病鉴定的，对吧？
 
-**现场5**：上海浦东新区瀚城居委会2022年4月9日集体离职报告：各位居民，很抱歉用这种方式和大家告别，翰城区委全体工作人员自3月17日开始封在职位至今日已经在居委生活了24天。我们放弃了家人，放弃了自己的所有生活，撇家舍业就是想尽力支撑下去，但是我们也是女儿、妻子和母亲，我们也希望为自己的家庭而生存，我们理解所有的居民，我们也尽力在配合（流氓）政府的各种（所谓）政策。所有人所有部门让我们理解配合，唯独没有人理解我们，没有人在乎我们的感受和心情，我们也是人，不是没有感情的机器，我们也有承受不住的时候。请不要把我们当铁人，这些年谢谢大家对我们工作的支持，这一次是我们辜负大家了，我们要离开了，请原谅。
+第一，精神病患者是不适合做领导工作的，我们都知道，因为他的角色和部署是不正常的、不靠谱的。
 
-**现场6**：上海金山区明卫佳苑有居民因暴力封城封小区翻墙出去被淹死。
+那么第二，卫健委系统的每个领导都可能具有精神疾病，都是潜在的精神病患者。
 
-**现场7**：外地援助上海的物资被政府人员撕掉标签进行私分牟利，被抓拍质问时还撒谎称这是团购的物资（后又说到这批援助的物资中只有10吨是免费的，其余的都进行售卖，简直是侮辱大家的智商）。
+第三，为了保证全市人民的健康着想，本着早发现、早报告、早治疗的原则和目的，建议卫健委系统的每一个领导都去做精神病鉴定，持四十八小时内精神正常的鉴定报告上岗工作，这样我们才放心。
 
-**现场8**：上海方舱医院的食品供应和管理极度混乱不负责任，上海现在的气温少说也有26-28度，结果饭盒就裸露堆积在烈日之下暴晒，同时还有很多饭菜被不卫生地随意丢弃。而一旁是吃不上饭的普通市民，在苦苦质问哀求。
+知道吗？就是你按照他们这种逻辑，来让他们做精神病鉴定，看他们能不能发现这种决策的可笑之处，或者说愚昧之处，怎么能用潜在的精神病患者来做决策和部署呢？
 
-**现场9**：夫妻两个因暴力封城缺物资，仅仅间隔五小时就相继跳楼了。
+**接线员：**呃，关于这个问题我会帮您反馈上去的，谢谢，让法律部门去核实处理。
 
-**现场10**：中共所谓防疫人员对人民拳打脚踢，暴力强制居民上楼隔离。
+**投诉者：**一定要回复！
 
-**现场11**：“不听话的人”被关在笼子里，中共不管你是不是出于疾病或者解饿的原因。
+**接线员：**好的，请您保持电话的畅通，我帮您转上去。
 
-**现场12**：上海中远二湾城民众由于物资匮乏饥饿难耐，发出愤怒的呼声，快要被逼疯地一片鬼哭狼嚎。
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
-*……*
+这一通对上海卫健委系统领导的投诉，以及建议卫健委系统的每位领导都去做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作的建议其实说出了我们每个人想说而没有说的话，但是我们有必要举一反三，对于全面部署、全面指挥这场冠状病毒抗疫的伟大领袖习猪头，他才是一切灾难的源头，在此也特别建议伟大领袖习猪头做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作。
 
-上海地狱般的场景不胜枚举，中共却还在邪恶地用大内宣摆拍，把地狱说成天堂来为自己洗地。这一次是上海这座城市被隔离在地狱，更悲惨的是流氓中共非法篡权几十年来把亿万家庭隔离在960万平方公里山河破碎满目疮痍的土地上。从人民公社到大跃进，从所谓土地改革到计划生育，从所谓改革开放到医疗产业化，从新疆大屠杀到香港送中恶法再到郑州大洪水，再到现在制造释放病毒强打毒疫苗强制核酸检测，无数这些被害的人他们回来了吗？他们得救了吗？邪恶呀中共！你若不灭，天理难容。
+撰稿：喜马拉雅的肉夹馍；
 
-***新闻链接：***
-[https://3g.163.com/news/article/H4P8QTFS000189FH.html](https://3g.163.com/news/article/H4P8QTFS000189FH.html)
+审核：喜马拉雅的馍夹肉；
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+校对：Maarago；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

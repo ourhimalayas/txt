@@ -2,43 +2,46 @@
 ---
 
 
-## “感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361418/)
+## 青春期女孩注射辉瑞新冠疫苗后罕见外阴溃疡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2361423/)
 
-**翻译：【日本东京方舟农场】山豆根后**
+编译： Jenny Ball
 
-就在美国各地的共和党议员们在许多州通过了被评论人士认为有侵犯到LGBTQ【译注1，见文后】权利的法律之际，美国总统乔·拜登（Joe Biden）政府颁布的政策不亚于是一种福音。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-178.png)图片来源：theepochtimes.com
 
-从4月11日起，美国公民可以获得性别标识为“X”的护照了。
+根据 4 月版的《儿科和青少年妇科杂志》，在接受第二剂辉瑞mRNA注射后，青春期女孩被诊断出罕见的外阴溃疡病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-7.jpg)（图片来源：wionews.com）
+医学杂志报道了 6 例 12 至 16 岁的少女，在接种第二剂疫苗后 4 天内出现疼痛的生殖器溃疡，其中两例发生在感染 COVID-19 后。
 
-这对于超过120万不认同传性别身份，或性别认同不属于男性或女性范畴的美国人来说是一种祝福。
+这是医学文献中首次提及和讨论青少年和年轻女性的外阴溃疡病例。
 
-然而，这一举措预计将进一步加剧这个对于在堕胎权和性别问题等方面采取“渐进式”改革上已存在分歧的国家的紧张局势。
+这些病例的医生说，“识别和解释可能的不良反应很重要，以帮助消除一些患者对接受新型疫苗的犹豫。”
 
-有了这种举措，双性人或性别认知不固定者将不必面对繁文缛节。对于大多数人来说，这只是申请表上一个打钩的一个小方框，但对于许多像奥赫达（D. Ojeda） 这样的非二元性别人士来说，周一成为了第一批申请中性护照的美国人之一，这是“难以置信” 的。
+外阴溃疡——称为外阴阿弗他溃疡、阴唇溃疡或急性生殖器溃疡——是在女性生殖器或外阴的外部结构上形成的非性获得性疼痛性病变。这种情况主要影响青少年和年轻女性，但也报告了老年女性的病例。
 
-在接受法新社采访时，使用they/them【译注2】代词的社会活动家奥赫达说，“即使是我的家人，他们仍然不理解这一点，”并补充说，“至少现在有政府帮我说出作为一个人来讲我是谁。”
+截至 4 月 14 日，在疫苗不良事件报告系统 (VAERS) 上简单搜索阿弗他溃疡、阴道溃疡、外阴溃疡和辉瑞 COVID-19 疫苗，共产生 282 起事件。
 
-申请人还可以选择“性别改变”框。这反映了他们选择的性别与他们之前持有的护照不同，并且他们不必为更改提供任何医学证明文件。
+其中，超过 40 份报告与第二次辉瑞注射后几天青少年和年轻女性的生殖器溃疡有关，而其余报告则与口腔溃疡有关。在第一剂和第三剂之后还发生了几起病例。
 
-“感觉上世界更安全了，”奥赫达说。
+最年轻的外阴溃疡患者是一名来自北卡罗来纳州的 10 岁女孩[VAERS ID 号：2087752-1]，她在 2022 年 1 月 29 日第二次注射辉瑞后 24 小时就出现了几处疼痛性病变，她的单纯疱疹病毒检测呈阴性。该报告没有提到是否进行了 COVID-19 测试。
 
-去年10月，经过长期的漫长斗争，一名来自美国科罗拉多州的双性人获得了持有“X”字样护照的权利。
+病例报告的作者说：“在这个大流行时期，应考虑对所有出现急性生殖器溃疡的年轻女性进行 COVID-19 感染检测或询问最近的 COVID-19 疫苗接种情况。”
 
-就在几天前的3月31日，也被称为国际跨性别现身日（International Day of Transgender Visibility），美国国务院宣布他们将把这项服务扩展到所有美国公民。该部门还将在联邦一级采取一些其他措施，以减少对跨性别者和非二元性别者的行政障碍。
+新闻来源：[reports of rare vulvar ulcers in adolescent girls following pfizer covid-19 injections](https://www.theepochtimes.com/reports-of-rare-vulvar-ulcers-in-adolescent-girls-following-pfizer-covid-19-injections_4404585.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-04-16&amp;utm_medium=email&amp;est=%2F5XvAzXggjKiHFX2yMhtcG9mM20%2B%2B5xRHqxdp5%2FzIcDPZ0%2B9PUA%2Fgv9FwO2iexgBW3zTmA%3D%3D)
 
-译者附注：
-1. LGBTQ是五个英文单词首字母的缩写。Lesbian女同性恋者；Gay男同性恋者；Bisexual双性恋者；Transgender变性者/跨性别者；Question/Queer性别疑惑者。
+* * *
 
-2. LGBTQ认为they/them是指代二元性别的他（她）们的代词，对应地LGBTQ会使用比如ey/em作为第三人称复数的代词。原文中受访者用了they这个词。参考自[https://uwm.edu/lgbtrc/support/gender-pronouns/](https://uwm.edu/lgbtrc/support/gender-pronouns/)
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
-原文链接：
-[https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370](https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-校对：妙喜小油鍋
-发布：文曦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 
