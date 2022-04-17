@@ -2,49 +2,43 @@
 ---
 
 
-## 退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2361454/)
+## “感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361418/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰-1.jpg)
-据[**张新年律师**](https://weibo.com/xinnianzhang) [22-04-17 10:16](https://weibo.com/2611415173/LoPH3oEyq?from=page_1005052611415173_profile&amp;wvr=6&amp;mod=weibotime)新浪微博
+**翻译：【日本东京方舟农场】山豆根后**
 
-这两张图片在朋友圈刷屏了，看到后，我一念头就是要帮这位退休老检察官秦培丰转发求助！但点击秦老师的微博主页发现：第一张的求助微博已不在，第二张还在，目前微博也没更新。我很担心他，谁知道现在的情况吗？谁知道发生什么了吗？不管怎样，对于突发疾病患者，应尽快安排治疗，希望秦老师早日康复
+就在美国各地的共和党议员们在许多州通过了被评论人士认为有侵犯到LGBTQ【译注1，见文后】权利的法律之际，美国总统乔·拜登（Joe Biden）政府颁布的政策不亚于是一种福音。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰2.jpg)
+从4月11日起，美国公民可以获得性别标识为“X”的护照了。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-7.jpg)（图片来源：wionews.com）
 
-经查秦培丰的这条新浪微博依然健在——[**秦培丰**](https://weibo.com/u/2401934164)[20-12-3 12:31](https://weibo.com/2401934164/JwJO0dC8q?from=page_1005052401934164_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+这对于超过120万不认同传性别身份，或性别认同不属于男性或女性范畴的美国人来说是一种祝福。
 
-李光满：方方、“蚂蝗”、日本军旗相继上演！艰难时刻，任正非的演讲令人泪崩！[O李光满：方方、“蚂蝗”、日本军旗相继上演！艰…](http://t.cn/A6GdlDL1) ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰3.png)
-对照上海的党员花名册，我们可以找到的信息是——
+然而，这一举措预计将进一步加剧这个对于在堕胎权和性别问题等方面采取“渐进式”改革上已存在分歧的国家的紧张局势。
 
-秦培丰，性别：男，民族：汉族，籍贯：福建，所属支部：中共黄浦区人民检察院退休第三支部委员会，身份证号码：310101194612193214
+有了这种举措，双性人或性别认知不固定者将不必面对繁文缛节。对于大多数人来说，这只是申请表上一个打钩的一个小方框，但对于许多像奥赫达（D. Ojeda） 这样的非二元性别人士来说，周一成为了第一批申请中性护照的美国人之一，这是“难以置信” 的。
 
-秦培丰的深夜求救信息已经尸骨无存，不知道秦培丰检察官是否音容宛在，为什么你总是眼含热泪？因为你的脑子里进了太多水，所有秦培丰们曾经对方方的辱骂、对独裁的赞歌都是有意义和有价值的，因为冥冥之中总有一双眼睛在看着你，冥冥之中总有轮回在等着你。
+在接受法新社采访时，使用they/them【译注2】代词的社会活动家奥赫达说，“即使是我的家人，他们仍然不理解这一点，”并补充说，“至少现在有政府帮我说出作为一个人来讲我是谁。”
 
-撰稿：喜马拉雅的肉夹馍；
+申请人还可以选择“性别改变”框。这反映了他们选择的性别与他们之前持有的护照不同，并且他们不必为更改提供任何医学证明文件。
 
-审核：喜马拉雅的馍夹肉；
+“感觉上世界更安全了，”奥赫达说。
 
-校对：Maarago；
+去年10月，经过长期的漫长斗争，一名来自美国科罗拉多州的双性人获得了持有“X”字样护照的权利。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+就在几天前的3月31日，也被称为国际跨性别现身日（International Day of Transgender Visibility），美国国务院宣布他们将把这项服务扩展到所有美国公民。该部门还将在联邦一级采取一些其他措施，以减少对跨性别者和非二元性别者的行政障碍。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+译者附注：
+1. LGBTQ是五个英文单词首字母的缩写。Lesbian女同性恋者；Gay男同性恋者；Bisexual双性恋者；Transgender变性者/跨性别者；Question/Queer性别疑惑者。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+2. LGBTQ认为they/them是指代二元性别的他（她）们的代词，对应地LGBTQ会使用比如ey/em作为第三人称复数的代词。原文中受访者用了they这个词。参考自[https://uwm.edu/lgbtrc/support/gender-pronouns/](https://uwm.edu/lgbtrc/support/gender-pronouns/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+原文链接：
+[https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370](https://www.wionews.com/world/it-feels-like-the-world-is-safer-man-woman-andx-us-starts-issuing-gender-neutral-passports-470370)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+校对：妙喜小油鍋
+发布：文曦
 
  
 

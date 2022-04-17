@@ -15,98 +15,98 @@
 
 ---
 
-### [俄罗斯命令马里乌波尔的乌克兰军队投降](/content/gnews/1/README.md)
+### [公开反对侵略乌克兰战争的名人麦莉·赛勒斯](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|马斯克将以430亿美元收购推特](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [传北京要求上海4月20号清零](/content/gnews/3/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美国及世界疫情简报（04-17-2022）](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [俄罗斯命令马里乌波尔的乌克兰军队投降](/content/gnews/5/README.md)
  ` 日本東京方舟農場`
 
-### [【G时新闻】任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/2/README.md)
+### [俄罗斯军方在日本海发射导弹，牵制日本的经济制裁](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【G时新闻】任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [樱花FM｜日本和俄罗斯开始鲑鱼和鳟鱼的捕捞谈判](/content/gnews/3/README.md)
+### [樱花FM｜日本和俄罗斯开始鲑鱼和鳟鱼的捕捞谈判](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [疫苗导致血栓，台湾一女士将获赔数百万新台币](/content/gnews/4/README.md)
+### [疫苗导致血栓，台湾一女士将获赔数百万新台币](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】英美爆发不明“儿童急性肝炎”部分病例呈新冠阳性](/content/gnews/5/README.md)
+### [【G时新闻】英美爆发不明“儿童急性肝炎”部分病例呈新冠阳性](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [秘翻在线：基辅正在更换其市内俄罗斯相关的地标地名](/content/gnews/6/README.md)
+### [秘翻在线：基辅正在更换其市内俄罗斯相关的地标地名](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京12日宣布将继续入侵乌克兰，直到达成 “崇高”目的（2/2）](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [마이크로소프트는 (Microsoft)러시아가 우크라이나를 공격하는 데 사용한 도메인 네임을(domain name) 압수하였다](/content/gnews/8/README.md)
+### [마이크로소프트는 (Microsoft)러시아가 우크라이나를 공격하는 데 사용한 도메인 네임을(domain name) 압수하였다](/content/gnews/12/README.md)
  ` 祁明`
 
-### [秘翻在线：俄罗斯国民使用telegram人数剧增](/content/gnews/9/README.md)
+### [秘翻在线：俄罗斯国民使用telegram人数剧增](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京12日宣布将继续入侵乌克兰，直到达成 “崇高”目的（1/2）](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [우크라이나에 있는 대만인 남성이 신 중국 연방 구조기지에서 자원봉사자로 일하고 있다](/content/gnews/11/README.md)
- ` 祁明`
-
-### [大午集团被以6.861亿元人民币低价拍卖，外界指中共全盘操作斩草除根](/content/gnews/12/README.md)
+### [大午集团被以6.861亿元人民币低价拍卖，外界指中共全盘操作斩草除根](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4月16日新闻联播以3月31日旧视频制造上海清零盛世](/content/gnews/13/README.md)
+### [4月16日新闻联播以3月31日旧视频制造上海清零盛世](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022年4月17日战时快讯（1）](/content/gnews/14/README.md)
+### [2022年4月17日战时快讯（1）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄媒：俄罗斯人使用银联卡网购遭遇困难](/content/gnews/15/README.md)
+### [俄媒：俄罗斯人使用银联卡网购遭遇困难](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [耶路撒冷阿克萨清真寺大院冲突中超过 150 人受伤](/content/gnews/16/README.md)
+### [耶路撒冷阿克萨清真寺大院冲突中超过 150 人受伤](/content/gnews/18/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共病毒使美国人寿命急剧下降 比预期缩短2年](/content/gnews/17/README.md)
+### [中共病毒使美国人寿命急剧下降 比预期缩短2年](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [莫斯科对乌克兰侵略战争可能使中共在俄罗斯巴什科尔托斯坦的投资消失](/content/gnews/18/README.md)
+### [莫斯科对乌克兰侵略战争可能使中共在俄罗斯巴什科尔托斯坦的投资消失](/content/gnews/20/README.md)
  ` 波士顿五月花农场金融部`
 
-### [台湾军方的无人机来自中共的消息，在台引起巨大震撼](/content/gnews/19/README.md)
+### [台湾军方的无人机来自中共的消息，在台引起巨大震撼](/content/gnews/21/README.md)
  ` thedawn`
 
-### [梅迪卡最亮丽的灭共马甲](/content/gnews/20/README.md)
+### [梅迪卡最亮丽的灭共马甲](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [新中国联邦前线救援行为获犹太义工高度肯定](/content/gnews/21/README.md)
+### [新中国联邦前线救援行为获犹太义工高度肯定](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [俄乌战场最新进展 04/17/2022](/content/gnews/22/README.md)
+### [俄乌战场最新进展 04/17/2022](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [随着上海病例的增加，更多的中国城市实施了COVID-19限制措施](/content/gnews/23/README.md)
+### [随着上海病例的增加，更多的中国城市实施了COVID-19限制措施](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.17M）新冠康复后科兴第一针副作用明显](/content/gnews/24/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.17M）新冠康复后科兴第一针副作用明显](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.17L）新冠疫苗加强针第三针](/content/gnews/25/README.md)
+### [文•贵天成——文贵先生谈“习近平”（四）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“习近平”（四）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花FM｜欧盟驻乌大使重回基辅办公](/content/gnews/27/README.md)
+### [樱花FM｜欧盟驻乌大使重回基辅办公](/content/gnews/28/README.md)
  ` 樱花FM`
 
-### [台湾｜美前国安顾问吁美军驻台 郭文贵：美国将对台有一系列政策](/content/gnews/28/README.md)
+### [台湾｜美前国安顾问吁美军驻台 郭文贵：美国将对台有一系列政策](/content/gnews/29/README.md)
  ` 關注組`
 
-### [樱花FM｜福奇表示美国人民要“各自”应对新冠病毒](/content/gnews/29/README.md)
+### [樱花FM｜福奇表示美国人民要“各自”应对新冠病毒](/content/gnews/30/README.md)
  ` 樱花FM`
 
-### [中共监管机构称滴滴退市不涉及其他在美国上市的中企](/content/gnews/30/README.md)
+### [中共监管机构称滴滴退市不涉及其他在美国上市的中企](/content/gnews/31/README.md)
  ` 波士顿五月花农场金融部`
-
-### [2022/04/17 英喜时事速递](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [来自俄罗斯的志愿者：希望中国和俄罗斯变成自由国度](/content/gnews/32/README.md)
  ` 波士顿五月花农场`
@@ -138,51 +138,48 @@
 ### [以色列志愿者：新中国联邦是自由的象征](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/42/README.md)
- ` MOSVIDEO`
-
-### [退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存](/content/gnews/43/README.md)
+### [退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存](/content/gnews/42/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [“感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照](/content/gnews/44/README.md)
+### [“感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [尽管有死亡风险，泰国仍将缅甸难民遣返](/content/gnews/45/README.md)
+### [尽管有死亡风险，泰国仍将缅甸难民遣返](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [中共即将在多城进行大规模封城隔离，人民有权面对枉法者自卫](/content/gnews/46/README.md)
+### [中共即将在多城进行大规模封城隔离，人民有权面对枉法者自卫](/content/gnews/45/README.md)
  ` YALUN 亚伦`
 
-### [反华危机｜“大翻译运动”被揭刻意撷取极端言论 妖魔化中国人 煽动反华情绪](/content/gnews/47/README.md)
+### [反华危机｜“大翻译运动”被揭刻意撷取极端言论 妖魔化中国人 煽动反华情绪](/content/gnews/46/README.md)
  ` 關注組`
 
-### [泽伦斯基呼吁美国 将俄罗斯列入支持恐怖主义国家](/content/gnews/48/README.md)
+### [泽伦斯基呼吁美国 将俄罗斯列入支持恐怖主义国家](/content/gnews/47/README.md)
  ` 蓝莲花农场`
 
-### [2022年3月30日 文贵大直播：俄乌战争与和谈最新动态；墙内疫情与民众生活危机；扩大应用与喜币价值提升；房地产债务违约金融分析](/content/gnews/49/README.md)
+### [2022年3月30日 文贵大直播：俄乌战争与和谈最新动态；墙内疫情与民众生活危机；扩大应用与喜币价值提升；房地产债务违约金融分析](/content/gnews/48/README.md)
  ` 秘密翻译组-原创组`
 
-### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/50/README.md)
+### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/49/README.md)
  ` 蓝莲花农场`
 
-### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/51/README.md)
+### [4/16/2022国际财经快讯：美国将恢复石油、天然气钻探活动；穆迪表示，俄罗斯可能处于违约状态](/content/gnews/50/README.md)
  ` 秘密翻译组金融团队`
 
-### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/52/README.md)
+### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
+### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/54/README.md)
+### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/55/README.md)
+### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共才是世界上黑帮的幕后大佬](/content/gnews/56/README.md)
+### [中共才是世界上黑帮的幕后大佬](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/57/README.md)
+### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

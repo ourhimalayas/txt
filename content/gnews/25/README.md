@@ -2,57 +2,44 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.17L）新冠疫苗加强针第三针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362776/)
+## 随着上海病例的增加，更多的中国城市实施了COVID-19限制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362970/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 【雅典娜快讯】紧贴时代脉搏
 
-整理/编辑：机器猫
+翻译：li yan li
+编辑：JH
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2092.png)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+4月16日，上海报告了创纪录的有症状的COVID-19病例。因为中国保持了“动态清除”的方法，旨在消除高度传播的Omicron COVID-19变体。中国其他地区也实施了限制措施。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+郑州空港经济区是中国中部的一个制造区，包括苹果供应商富士康，周五宣布了为期14天的封锁，“将根据疫情情况进行调整”。
 
-原文作者：sayonara
+在中国西北部，西安市在本月发生数十起COVID-19感染事件后，周五敦促居民避免在住宅区外进行不必要的旅行，并鼓励公司让员工在家工作或在工作场所居住。
 
-帖子原文：新冠疫苗第三针加强针
+上海是中国最近爆发疫情的中心，周六报告了4月15日创纪录的3,590个有症状的病例，以及19,923个无症状病例。无症状病例的数量比一天前的19,872例略有增加。
 
-有没有姐妹打完疫苗就立事牙发炎的啊？
+该市的COVID-19病例数占全国病例数的绝大部分，即使其2500万居民中的大多数仍处于封锁状态。
 
-高中时期长出一部分立事牙，偶尔不确定情况下可能会引发智齿冠周炎，打了新冠疫苗第一第二针的之后都发炎了，还引起附近扁桃体发炎和咽喉肿痛，总之半张脸都连带着肿痛起来了，现在疫情这么严重又不得不打，现在肿的厉害而且第三针安徽智飞的好痛！！！比前两针痛很多很多！
+周五，中国电动汽车标杆Xpeng的负责人表示，如果上海和周边地区的供应商不能恢复工作，汽车制造商可能不得不在下个月暂停生产。
 
-也是序贯接种了~大家做好防护吧！
+在郑州工厂，经济区当局在官方微信即时通讯文章中说，只有持有有效通行证、健康代码和COVID-19阴性测试证明的人员才能在这段时间内离开经济区。
 
-#新冠疫苗#疫苗加强针#疫苗副作用
+鸿海精密工业公司的商标名富士康在周四向路透社援引其声明，称其郑州工厂正在配合政府的疫情控制工作。
 
-发布于03-30
+经济学家表示，这些限制措施将对该国今年的经济增长率产生影响。
 
-精选评论
+新闻链接：https://www.channelnewsasia.com/asia/more-chinese-cities-impose-covid-19-curbs-shanghai-cases-rise-2629191
 
-黄二百 回复：我也是安徽智飞第三针， 牙疼难受到飞起！
-
-Miay英语启蒙分享 回复：我也是，前天下午打的，当天晚上感冒，现在半夜还牙肉痛来上网查。
-
-泪上 回复：打完就不感染了吗？
-
-天乐 回复：我打了第四天，经历寒战高烧骨痛肌肉痛头痛胳膊肿胀腋下淋巴结肿大，越来越大！
-
-北冥天琴 回复：我就是。
-
-小卡车 回复：免疫系统出了问题。
-![](https://gnews.org/a993e66e-5caf-4cd2-8b1b-a86bb9e5d9fa)![](https://gnews.org/bbb620d3-06d1-4786-980c-71a358cd61e8)![](https://gnews.org/d5e4348c-da36-467c-8506-dd4004cac01f)图片来源：小红书
-参考链接：[新冠疫苗第三针加强针](https://www.xiaohongshu.com/discovery/item/6244174a0000000001025bf0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068574)
-
-发布：*tianzhihuan*
+发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

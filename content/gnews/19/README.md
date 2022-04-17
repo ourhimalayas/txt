@@ -2,21 +2,35 @@
 ---
 
 
-## 台湾军方的无人机来自中共的消息，在台引起巨大震撼
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2363009/)
+## 中共病毒使美国人寿命急剧下降 比预期缩短2年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363077/)
 
-撰稿：追着曙光跑
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-4月16日，郭先生在盖特直播中指出，关于14日爆料中共把中共制造的无人机卖给台湾军方这一消息，在台湾引起了巨大震撼。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-17-at-8.30.17-PM.jpeg)图片来源：网络
-郭先生再一次明确告诉美国政府、台湾现任蔡英文政府以及所有台湾同胞，关于中国共产党把无人机先卖给了所谓的澳大利亚公司，然后澳大利公司再卖给台湾军方的消息，他愿意为此爆料承担一切法律责任。这事关台湾人民安全的问题，可以直接进行核实确认。另外，中共的无人机能够卖给台湾军方，这并不仅暴露了无人机的问题，而且也暴露了台湾整个系统出现了问题。
+整理：等风来
+编辑：JH
 
-到目前为止，台湾的卖台贼还不断地从中共政府谋取巨大的金钱和物质利益。一定会让美国和全世界知道卖台贼与中共的坑脏交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2097.png)
 
-*发布：追着曙光跑*
 
-信息来源：[4/16/2022 文贵直播](https://gettr.com/post/p15lpv54fb7)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
+大纪元2022年04月14日讯，据一项全球研究显示，在2020年的COVID-19疫情期间，美国人的预期寿命平均缩短了近两年，降至77岁左右，与其它21个高收入国家相比降幅最大。
+
+在COVID-19（中共病毒）疫情期间，美国的疫情感染死亡率和死亡人数均位居世界前列。 在2020年，中国病毒成为美国人的第三大死亡原因，仅次于心脏病和癌症。
+
+这项研究结果与美国疾病控制和预防中心早先的一项预估相吻合。 该预估显示，2020年美国总人口的预期寿命平均为77岁，比2019年的78.8岁下降了1.8岁。 这是自二战以来最大的降幅。
+
+根据疾病控制与预防中心的数据，随着疫情进入第三个年头，已经有近100万美国人死于中共病毒。
+
+参考链接：[https://www.epochtimes.com/b5/22/4/13/n13711020.htm](https://www.epochtimes.com/b5/22/4/13/n13711020.htm)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
