@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 12:32 AM (UTC)`
+
+2022.04.16 晚  新中国联邦 | 新闻   近百名犹太人在新中国联邦的七星大帐蓬共度逾越节；新中国联邦的救援被全球越来越多人认识
+![img](https://media.gettr.com/group31/origin/2022/04/17/00/7290b097-6937-ca11-17a5-c2a674f001bc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/16/2022 11:41 PM (UTC)`
 
 2022.04.16 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 4月16号：这是中国共产党最想要的结果，此时此刻所有的中央政治局委员．中南坑老杂毛们都在仰天长啸，其实他们最成功，体验权利，最甜美的味道的绝佳时刻。【百亿私募大佬梁宏，说自己已经开始吃西瓜皮了。】
 ![img](https://media.gettr.com/group19/getter/2022/04/16/17/e06f4658-4fdc-f760-b67f-dc79d08363b6/880c5d6eda1451f12bb907652f54e7ac.jpg)
-
----
-
-`@miles 4/16/2022 5:32 PM (UTC)`
-
-4/16/2022 Miles Guo: According to the reliable intelligence information, the Chinese Communist Party is going to impose a lockdown in Guangzhou on a larger scale; three other cities will be put on lockdown as well, they are Qingdao, Dalian, and either Harbin or Haikou will be picked as the third city; our fellow fighters must be well prepared.<br/><br/>4/16/2022 文贵直播：据战友们提供的可靠消息，中共会在广州实施更大规模的隔离；接下来还有三个城市会被封城：青岛和大连，中共还在哈尔滨和或海口之间选择第三个城市, 战友们要做好准备<br/>
-![img](https://media.gettr.com/group23/getter/2022/04/16/17/c3162efe-bd8e-a950-b67c-cf0f725abc47/out.jpg)
 
 ---
 

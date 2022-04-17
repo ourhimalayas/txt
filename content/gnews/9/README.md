@@ -2,8 +2,8 @@
 ---
 
 
-## 20220416郭文贵乱聊直播 ：七哥教战友用智慧维护自己的生命权益善用上天赐予的水火
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358486/)
+## 20220416郭文贵乱聊直播 ：共产党的秘密你都可以卖，新中国联邦是你最好的桥梁
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2358505/)
 
 作者：东京樱花团小视频组
 
