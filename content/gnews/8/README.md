@@ -2,28 +2,68 @@
 ---
 
 
-## 【G时新闻】美对乌克兰新军事援助中包括直升机等重型装备
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2362729/)
+## COVID-19疫苗副作用集萃（2022.4.17K）辉瑞第三针bootster反馈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362752/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据【Yahoo News】4月14日报道， 美周三公布了一项价值8亿美元的对乌克兰新的军事援助计划，其中包括直升机、榴弹炮和装甲运兵车等重型装备。拜登在与泽连斯基进行了约一个小时的交谈后表示，随着俄军准备加强对顿巴斯的攻击，美国将继续为乌克兰提供自卫能力。新一揽子军援中将包含更多高效武器系统，以及为乌克兰东部，俄军即将发动的更广泛攻击而量身定製的新武器。新援助中包括华盛顿此前因担心与拥核的俄罗斯冲突升级而拒绝向基辅提供的一些重型装备。五角大楼发言人约翰·柯比公布了这次最新援助计划的项目清单，并表示美国正在与盟国合作，以向乌克兰提供额外的军事能力。五角大楼周三将与美主要国防集团负责人开会，商讨加快生产乌克兰军队最常用的武器。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-盖特链接：[https://www.gettr.com/post/p15l9wobd42](https://www.gettr.com/post/p15l9wobd42)
+整理/编辑：机器猫
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+原文作者：Viola的记事薄
+
+**辉瑞第三针bootster反馈**
+
+帖子原文：
+
+之前在国内接种科兴一二针，打辉瑞之前我就各种看反馈，吓得不行。因为自己属于体质不太好经常感冒的类型，所以很担心。但目前为止我的反应没有网上其他反馈那么强烈，看来还是因人而异吧。
+
+4.12
+
+10:24注射
+
+立刻胳膊就开始痛（抬起来就痛）
+
+4.13
+
+胳膊更疼了，摸着疼
+
+16：07 37.4℃
+
+晚上一直头晕，也有点发烧，但最多也就是37多一点
+
+4.14
+
+几乎没啥感觉了，没有发烧了，胳膊也不疼了
+
+Tips:多喝热水+VC泡腾片放水里喝
+
+#辉瑞
+
+发布于04-14
+
+精选评论
+
+嘎不拉几：你让我想起了我还没打第三针哈哈
+
+Viola的记事薄：问题不大哈哈哈可以打一打
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2079.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2078.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2080.png)图片来源：小红书
+参考链接：[辉瑞第三针booster反馈](https://www.xiaohongshu.com/discovery/item/6257d3730000000021036406?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068552)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
