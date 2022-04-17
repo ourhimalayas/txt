@@ -2,32 +2,34 @@
 ---
 
 
-## 莫斯科对乌克兰侵略战争可能使中共在俄罗斯巴什科尔托斯坦的投资消失
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2363056/)
+## 中共病毒使美国人寿命急剧下降 比预期缩短2年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363077/)
 
-素材/选题：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午7.34.40.png)图片来源：微信
-五年来中共在俄罗斯巴什科尔托斯坦的投资一直停滞不前。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-“当地政府支持所有与吸引[中国]资金进入共和国有关的倡议，但不幸的是，一切都以空谈告终，”驻巴什科尔托斯坦首府乌法的经济学家Vsevolod Spivak告诉RFE/RL。
+整理：等风来
+编辑：JH
 
-在巴什科尔托斯坦，大多数中国支持的项目都是沿着北京横跨全球的 “一带一路 “倡议建设交通和铁路，同时投资于水泥等建筑材料的工厂。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2097.png)
 
-莫斯科对乌克兰的入侵使得中共公司谨慎地与俄罗斯保持距离，由于担心受到美国的二次制裁，中共国的公司缩减了业务，并冻结了计划中的项目。
 
-自2017年以来，中共投资者四川君和环保公司在西贝开设了一个办事处，并承诺向该工厂投资1.54亿美元（128亿卢布），为社区创造200个新的就业机会。
+大纪元2022年04月14日讯，据一项全球研究显示，在2020年的COVID-19疫情期间，美国人的预期寿命平均缩短了近两年，降至77岁左右，与其它21个高收入国家相比降幅最大。
 
-但目前这些计划已经搁浅，办公室已经关闭，公司的标牌已经被拆除。
+在COVID-19（中共病毒）疫情期间，美国的疫情感染死亡率和死亡人数均位居世界前列。 在2020年，中国病毒成为美国人的第三大死亡原因，仅次于心脏病和癌症。
 
-像华为这样的大公司也已经解雇了大部分俄罗斯员工。
+这项研究结果与美国疾病控制和预防中心早先的一项预估相吻合。 该预估显示，2020年美国总人口的预期寿命平均为77岁，比2019年的78.8岁下降了1.8岁。 这是自二战以来最大的降幅。
 
-许多专家也指出，虽然中共国不太可能支持俄罗斯经济，但一旦明确如何更好地遵守制裁，预计中共国会采取机会主义行动，比如购买折扣石油和收购西方公司从该国撤出的新市场空间。
+根据疾病控制与预防中心的数据，随着疫情进入第三个年头，已经有近100万美国人死于中共病毒。
 
-参考链接：[Moscow’s Ukraine War Could Make Chinese Investment In Russia’s Bashkortostan Disappear](https://www.rferl.org/a/china-investment-russia-ukraine-war-bashkortostan/31806076.html)
+参考链接：[https://www.epochtimes.com/b5/22/4/13/n13711020.htm](https://www.epochtimes.com/b5/22/4/13/n13711020.htm)
 
-* * *
+发布：tianzhihuan
 
-*编辑&发布：长岛开心*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
