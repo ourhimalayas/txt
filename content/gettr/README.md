@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 1:23 AM (UTC)`
+
+4/16/2022 Miles Guo:  It is speculated that the death toll during the quarantine in Shanghai may exceed one million; the Chinese Communist Party is slaughtering Chinese people through controlling their money, food, water, and the right of speech. If the Chinese people still remain silent and obedient, there is only one way available for them, which is to wait for death to come<br/><br/>4/16/2022 文贵直播：上海隔离期间的死亡人数可能突破百万；中共通过控制人民的钱、食物和水、说话的权利来屠杀人民，如果中国人民还继续默默忍受，只有在家等死的一条路可走<br/>
+![img](https://media.gettr.com/group8/getter/2022/04/17/01/890b1802-6615-3616-23cd-67d22268ca09/out.jpg)
+
+---
+
+`@miles 4/17/2022 1:18 AM (UTC)`
+
+4月16号：在中共国什么是真的？【这是3月22日上海警民直通车的微博发布的内容。中共用亲手制造的疫情撕下了同样是中共制造的虚假安逸的面具，通过剥夺百姓自由所建立的中共体制的虚假、暴力、邪恶，这次完全暴露在了阳光之下，真是无比的讽刺。】
+![img](https://media.gettr.com/group44/getter/2022/04/17/01/8ddbbeb1-0610-54db-0d55-4f36c5805bc7/7346b087a7b97e0463f82b8d9e4ac6b1.jpg)
+
+---
+
+`@miles 4/17/2022 1:11 AM (UTC)`
+
+2022.04.16 晚  新中国联邦 | 新闻访谈   上海疫情封城造成大面积死亡，居民断粮、无处可医
+![img](https://media.gettr.com/group22/origin/2022/04/17/01/588084ad-71a0-82fc-804e-34ccfa47f4d7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/17/2022 12:32 AM (UTC)`
 
 2022.04.16 晚  新中国联邦 | 新闻   近百名犹太人在新中国联邦的七星大帐蓬共度逾越节；新中国联邦的救援被全球越来越多人认识
@@ -141,27 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 4/16/2022 Miles Guo: The CCP wants John Lee to be the Chief Executive of Hong Kong. Once John Lee gets elected, there will be less forced PCR tests in Hong Kong; the fact the CCP could sell its drones to Taiwan military through a third party tells that the entire system in Taiwan has a huge problem.<br/><br/>4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解；台湾军方能通过第三方购买中共的无人机，说明台湾的整个系统出了大问题。<br/>
 ![img](https://media.gettr.com/group36/getter/2022/04/16/17/6fce8b8a-7e15-2715-46e0-75e033add6bd/out.jpg)
-
----
-
-`@miles 4/16/2022 5:43 PM (UTC)`
-
-【Ukraine Rescue】04/15/2022 All the Jews in Medyka are celebrating their holiday of freedom, Passover, in the big tent of NFSC and ROLF. They said: “ the big tent of NFSC and ROLF is really “the tent of freedom” because you are not only helping people fleeing war from Ukraine to freedom but also helping the 1.4 billion Chinese people enslaved by the Chinese Communist Party breaking their shackles of slavery to go to a future of freedom, light and prosperity.”<br/><br/>【乌克兰救援】04/15/2022 所有在梅迪卡的犹太人在新中国联邦和法治基金的大帐篷里庆祝他们象征自由的逾越节。他们说：“你们法治基金和新中国联邦的大帐篷就是一个自由的帐篷。因为你们不仅帮助逃离战争的人们奔向自由，同时你们法治基金也是在帮助被中国共产党所奴役的14亿的中国人民摆脱被奴役的命运，走向自由，光明和美好的未来。“<br/>
-![img](https://media.gettr.com/group41/getter/2022/04/16/17/c0e3ae96-bcd9-c6dd-68d0-9fb2389882af/out.jpg)
-
----
-
-`@miles 4/16/2022 5:41 PM (UTC)`
-
-04.16.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group9/origin/2022/04/16/17/9f24dafc-1b43-e255-29f4-6bb0efc0b44b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/16/2022 5:34 PM (UTC)`
-
-4月16号：这是中国共产党最想要的结果，此时此刻所有的中央政治局委员．中南坑老杂毛们都在仰天长啸，其实他们最成功，体验权利，最甜美的味道的绝佳时刻。【百亿私募大佬梁宏，说自己已经开始吃西瓜皮了。】
-![img](https://media.gettr.com/group19/getter/2022/04/16/17/e06f4658-4fdc-f760-b67f-dc79d08363b6/880c5d6eda1451f12bb907652f54e7ac.jpg)
 
 ---
 

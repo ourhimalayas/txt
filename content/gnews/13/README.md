@@ -2,41 +2,50 @@
 ---
 
 
-## 潘多拉盒子的底部——希望！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2358665/)
+## 英国首约翰逊因支持乌克兰而被禁止进入俄罗斯
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2358737/)
 
-作者：纽约香草山佛教部—无尽夏
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/插图.jpg)
+翻译：冰糖葫芦喵
 
-封控中的上海每天都在上演着无数的故事，有令人愤怒、悲伤的惨剧，也有让人看到希望的温暖闪光。本文所附两个“善良上海人”的短视频只是因为亲历者的记述才得以流传，没有被记录下来的好人好事何止于此。仅以笔者的亲身经历所见所闻，就是许多不为人知的却让人备感欣慰和振奋的善人善举，危难之际，正是这些普通人靠着最本能最朴实的善意给上海（人）也给自己带来了希望。
+编辑与校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《华盛顿观察家报》4月16日报道，**本周六，由于英国在军事援助上对乌克兰的积极支持，并强烈谴责俄罗斯在乌克兰的暴虐行为，俄罗斯将包括英国首相鲍里斯·约翰逊、前首相特雷莎·梅和国防部长本·华莱士列入禁止入境黑名单。**
 
-我居住的小区某单元里住着十几个年轻的打工仔，骤然被封，毫无食物储备，无奈之下只得向物业求助。物业转告了业主，短时间内就得到了邻居们赠送的足够他们吃几天的补给，后来居委把他们列入了配给名单，让他们在封控期间获得了基本的食物保障。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/约翰逊-e1650156033996.jpg)英国首相鲍里斯.约翰逊（图片来源：华盛顿邮报）
 
-我同学居住的某高校小区居民高度老龄化，居委超负荷运转、近乎瘫痪，封控期间老人们不会团购，又得不到同样封控在家的子女亲友的支持，储备消耗完以后很快陷入缺食少药的危境。这时全靠小区里为数不多的年轻人开始组织团购，买粮买菜，联系买药，然后分头给老人们送上门。
+在上周，一直将自己称为乌克兰最坚定盟友之一的**约翰逊，突然访问乌克兰首都基辅，并与乌克兰总统泽伦斯基进行了面对面的会晤**。与此同时，约翰逊宣布，**英国将会运送价值1亿英镑的先进的军事装备给乌克兰武装部队，这项援助方案包括光防空飞弹、800枚反战车飞弹以及其他精准武器弹药，并提供120部装甲车辆以及新的反舰飞弹系统。**
 
-某友人的老父亲90岁，独居，平时用保姆，住在一个人数过万的大型居民区里。自疫情封控当天开始，居委会了解到情况，就直接提供每日的工作餐。某些不能提供工作餐的时段，他所在地的楼组长主动承担了为他做饭的工作，至今快一个月了。还有邻居将家里“多余”的水果点心送给老人。老人将帮助过自己的人的住址一一记下，留待未来答谢。
+周六，**俄罗斯外交部在一份声明中表示，这一举措是对伦敦不断的军事援助和政治活动的回应，其目的是在国际上孤立俄罗斯，为限制俄罗斯国内经济创造条件。**
 
-我亲戚居住的小区有居民被测出阳性，邻居们在微信群里慰问鼓励，询问需要什么协助，有人主动提出同意阳性病人居家隔离，尽量不要去方舱，很多邻居接龙表示支持。
+**英国政府表示，尽管英国政府成员被列入黑名单，但英国仍然坚决支持乌克兰，并谴责俄罗斯在乌克兰的暴虐行为。**
 
-我朋友居住的小区里的群租者，也是没有食物了到业主群求助，楼上的邻居把家中的食物用绳子吊下来送给群租者。朋友拍下视频发给我看，夜晚路灯的映照下，楼上的包裹一点点往下挪，下面的人探出身子小心翼翼地接好，挥手致谢。
-
-有多少平日素无往来貌不惊人的邻居骤然担起了“团长”的重任，找货源联系物流，动用自己的各种资源为小区团购生活物资，统计、收货、分发、看管……工作量大得惊人，还要满足居民们的各种需求。热心，周到，能干，耐烦，她（他）们平时是我们眼中的路人邻居，现在是大家都要依靠的“团长”。疫情终将过去，“上海团长”这个响亮的称呼将会长久地留在人们的记忆中。 今天，此时此刻，无数的上海人（包括居住在上海的来自全国各地的人们），不管他们的身份是物业还是居委，是志愿者还是快递小哥，无数人正在用他们的行动诠释着“善良”，诠释着最平凡也最光彩的“人性”。恐怖的潘多拉盒子被打开了，但是，潘多拉盒子的底部是——希望！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402%E5%9B%9B%E6%9C%88%E6%9C%88%E5%8E%86-2.png)
-
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周六下午，**约翰逊在推特上说，今天下午，我向我的朋友泽连斯基更新了我们将在未来几天向乌克兰提供的进一步军事援助。英国将不惜一切代价确保乌克兰人拥有他们需要的资源，以保护他们的国家免受俄罗斯的攻击，与乌克兰站在一起。**
 
 
+
+> I updated my friend [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) this afternoon on further military aid we will provide to Ukraine in the coming days.
+> 
+> The UK will stop at nothing to ensure Ukrainians have the resources they need to defend their country from the ongoing Russian onslaught. [#StandWithUkraine️](https://twitter.com/hashtag/StandWithUkraine%EF%B8%8F?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Boris Johnson (@BorisJohnson) [April 16, 2022](https://twitter.com/BorisJohnson/status/1515378969251569668?ref_src=twsrc%5Etfw)
+
+
+
+3月15日，俄罗斯对美国实施了类似的制裁，禁止美国总统拜登、他的儿子亨特拜登、前国务卿希拉里·克林顿、白宫新闻秘书珍·普萨基等美国官员访问俄罗斯。
+
+自俄罗斯入侵乌克兰以来，**西方国家虽然没有派遣军队，但是通过经济制裁和对乌克兰提供军事援助，向俄罗斯施加压力，迫使其停止对乌克兰的进攻**。
+
+新闻来源链接：
+
+[Increasingly isolated Moscow blacklists British leaders | Washington Examiner](https://www.washingtonexaminer.com/policy/foreign/increasingly-isolated-moscow-blacklists-british-leaders)
+
+[Boris Johnson banned from Russia over support for Ukraine – The Washington Post](https://www.washingtonpost.com/world/2022/04/16/boris-johnson-banned-russia/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

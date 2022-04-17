@@ -2,310 +2,44 @@
 ---
 
 
-## 杰克·波索比克: “这些都是在中共国进行的恐怖封锁”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2358756/)
+## 如此共匪，何谈规则？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2358785/)
 
-Steve Bannon
-史蒂夫·班农
+【**国内新闻短评**】
 
-these videos people are talking about is that there’s no food
-人们在这些视频谈论的是那里没有食物
+**新华社北京4月14日电 题：如此美国，何谈规则？**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ap3jv-pyshl-1.jpg)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/04/llpvv.jpg)
+***短评：***
 
-They won’t let people out of the house
-他们不允许人们出门
+最喜欢拿“规则”说事儿，却又最不把规则当回事儿，共匪就是这样“双标”和虚伪。
 
-this is a lockdown as hard as
-这种封锁简直是…
+近日，美国国务院发言人声称，在普京对乌克兰的侵略中，“大国不能欺负小国”的国际秩序基本规则遭到破坏。其中的大国说的就是普京独裁下的俄罗斯和习特勒暴政下的中国大陆。而共匪总喜欢站在所谓“道义制高点”上指责他国，似乎全然忘记自己的所作所为——人民公社化、大跃进、文革、流氓土改、计划生育、网络防火墙、新疆大屠杀、西藏大屠杀、香港送中恶法、制造释放病毒、强打毒疫苗、强制核酸检测、一会退耕还林一会退林还耕……
 
-Jack Posobiec
-杰克·波索别克
+共匪非法篡夺了960万平方公里的中华大地奴役了14亿中国人民，竟然口口声声拿2003年美国在伊拉克和2020年美国在伊朗的的军事行动说事。伊拉克的暴政独裁者萨达姆和伊朗的暴政独裁指挥官苏莱曼尼给两国人民造成了无休无止的灾难与损失，美国为伊拉克与伊朗人民声张正义干掉萨达姆和苏莱曼尼有何不妥？别说干掉萨达姆和苏莱曼尼，就是干掉普京和习特勒也都是维护正义的需要。美国及其他世界文明国家惩治的从来都是对百姓横征暴敛的暴政独裁者，对于21世纪最大的人类病毒社会主义共产主义更是如此。美国对暴政独裁的苏联、伊拉克、伊朗、古巴、俄罗斯的经济、商业和金融封锁无不令人拍手称快盛赞有加。
 
-this is terror lockdowns
-这是恐怖封锁
+不论美国对巴拿马的军事行动还是与北约合作轰炸南联盟又或是在利比亚的军事行动，在铲除独裁行动成功后都没有侵占巴拿马、南联盟的一寸土地。既没有像共匪的一带一路一样以大欺小，也没有违反世界的和平规则。
 
-these are terror lockdowns that are going on in China
-这些是在中共国正在进行的恐怖封锁
+反观共匪，却非如此。共匪始终“合则用、不合则弃”，这就是共匪对待国际规则的态度。不管这个规则由谁制定、是否得到绝大多数文明国家的认可和遵循，以及共匪自身做过怎样的承诺、应承担何种义务，只要不利于维护共匪的全球独裁，都可以肆意践踏、抛弃。
 
-This is China’s most populous and wealthiest city
-这是中共国人口最多、最富有的城市
+仅习特勒篡政以来，共匪公然违反的国际条约和蓝金黄收买的国际组织就包括跨太平洋伙伴关系协定、《巴黎协定》、全球移民契约、伊朗核问题全民协议、《中导条约》、《开放天空条约》、联合国人权理事会、联合国教科文组织、世卫组织等待。因为诸多国际条约都被共匪公然违反、诸多国际组织都已被共匪蓝金黄收买而失去约束力成为了流氓条约与流氓组织，世界警察美国不得不退出这些已经变味的流氓条约与组织。习特勒篡政首先就把共匪大陆的《宪法》给改了，废除了共匪领导人连任不能超过两届的规定，为自己及后代的世代世袭铺平了道路。习特勒在国际上出尔反尔、反复横跳，完全把国际规则当儿戏，把国际舞台当游乐场。在流氓共匪眼中，哪里还有什么规则可言？
 
-right of mainland China is Shanghai
-中共国大陆的上海
+与此同时，共匪还企图把自己的“恶法帮规”包装成国际规则，用“共匪特色社会主义规则”取代以《联合国宪章》宗旨和原则为基础的国际法规则，从而打压文明国家、谋取私利。
 
-26 million people, one of largest cities in the world that I counted
-2600万人，我知道的世界上最大的城市之一
+共匪可言违反国际法、动用恐怖主义手段在文明国家搞“定点超限战”；可言在世界各地释放病毒蓝金黄收买政客强打毒疫苗杀害数百万无辜民众；可言搞“独裁小圈子”“黑帮集团政治”，复活共产主义幽灵……这些在世人眼中非法和残暴的行径，共匪均已维护“基于规则的国际秩序”来粉饰。而对其他国家的正常合理自卫，共匪又常常以“基于规则的国际秩序”为借口，凭治内暴政独裁经验，对全球进行蓝金黄渗透，施加强打毒疫苗为首的奴役暴政措施。
 
-and when I look at those videos now
-当我现在看那些视频时
+正如新中国联邦爆料革命发起人郭文贵先生所言，共匪所作所为“完美地”展示了什么是虚伪，什么是霸道，什么是双重标准。共匪已经成为世界和平的最大不稳定因素，以及法治和秩序的最大威胁。
 
-these people are being starved, being locked that you can’t go out of your homes
-这些人正在挨饿，被锁着，不能出家门
+世界需要规则，但国际规则只能由绝大多数文明国家共同制定，不能由个别暴政独裁恐怖组织集团的要挟来决定；国际规则也应该由联合国193个会员国共同遵守，没有也不应该又例外。共匪肆意破坏国际规则的斑斑劣迹，让其早已没有资格再奢谈“规则”了。
 
-When I look at the towers, the apartment buildings, right?
-当我看到塔楼，公寓楼时，看到了吗？
+共匪好话说尽坏事做绝的行为，说一套做一套的嘴脸，在共匪制造释放病毒、强打毒疫苗、支持侵略乌克兰、威胁台湾、威胁欧洲美国及全人类的罪行下体现得淋漓尽致。接下来，就是共匪被世界文明正义力量惩治的时候了，共匪即将灭亡、注定灭亡。
 
-It looks exactly like the one where I used to live
-它看起来和我以前住过的一模一样
+**新闻链接**：
+[https://mr.baidu.com/r/Evq4RYhtF6?f=cp&u=97c48082cdad8fc1](https://mr.baidu.com/r/Evq4RYhtF6?f=cp&amp;u=97c48082cdad8fc1)
 
-People are jumping out of them to commit suicide
-人们从楼上跳下来自杀
-
-because they can’t take it and the animals by the way，the pets
-因为他们不能接受它，顺便说一下动物，宠物
-
-if you test positive and everyone’s required to test every single day
-如果你测试呈阳性并且每个人都需要每天进行测试
-
-you go out sometimes you even have to kneel, to take the test
-你出去有时你甚至不得不跪下来参加测试
-
-They force you to kneel and
-他们强迫你跪下
-
-Steve Bannon
-史蒂夫·班农
-
-how can 25 million people be tested
-如何对2500万人进行测试?
-
-this is why you’re seeing the things of the army coming in
-这就是为什么你看到军队进城
-
-Jack Posobiec
-杰克·波索别克
-
-That’s why the military is coming in
-这就是军队进来的原因
-
-And if they if you test positive, there’s no videos coming out
-如果他们检测呈阳性，就没有视频出来了
-
-They’re rounding up the pets
-他们正在围捕宠物
-
-Steve Bannon
-史蒂夫·班农
-
-they’re killing the pets
-他们杀死宠物
-
-Jack Posobiec
-杰克·波索别克
-
-They are killing the pets in the streets
-他们在街上杀死宠物
-
-Steve Bannon
-史蒂夫·班农
-
-Okay, this is what, you got to help me out here
-好吧，就是这样，你得帮帮我
-
-They just had a Winter Olympics in Beijing
-他们刚刚在北京举办了冬奥会
-
-Jack Posobiec
-杰克·波索别克
-
-That’s right
-是的
-
-Steve Bannon
-史蒂夫·班农
-
-that the whole world allowed all these athletes to go to
-全世界都允许所有这些运动员去参加
-
-and MSNBC and CNBC and NBC were over there cow-telling
-MSNBC 和 CNBC 和 NBC 在那边
-
-how can we have sent people over in basically
-基本上我们怎么能派人去参加
-
-late January, early February, and six weeks later, five weeks later?
-一月底，二月初，大概六周后，五周后？
-
-They’re literally quarantining and lock it in a hard lockdown one of the great cities of the world
-他们实际上是在将其隔离并封锁在世界上最伟大的城市之一中
-
-Jack Posobiec
-杰克·波索别克
-
-They’re locking this down even the western cities Hunan
-他们甚至封锁了湖南西部城市
-
-you can go through 23 cities are now looking at this
-已经有23个城市正在被封锁
-
-So Shanghai …
-所以上海…
-
-Steve Bannon
-史蒂夫·班农
-
-200 million people
-2亿人
-
-Jack Posobiec
-杰克·波索别克
-
-We’re looking probably about about 193 almost
-估计大约1.93以人左右
-
-just under 200 million people
-不到2亿人
-
-Steve Bannon
-史蒂夫·班农
-
-200 million people are in some form of lockdown as we
-2亿人处于某种形式的封锁中
-
-Jack Posobiec
-杰克·波索别克
-
-This is terror lockdown
-这是恐怖封锁
-
-Steve Bannon
-史蒂夫·班农
-
-What do you mean terror lockdown?
-恐怖封锁你的意思是？
-
-Jack Posobiec
-杰克·波索别克
-
-You know, there’s no UberEATS that’s running
-你知道，没有快递员送餐
-
-There’s no you know, you can’t get delivery
-那里没有，你知道，你不能得到送货
-
-The supermarkets are shut down
-超市都关门了
-
-You know, we had soft lock downs here in the US
-你知道，我们在美国有软封锁
-
-you know, you could still go out for the
-你知道，你仍然可以出去
-
-you know, the whole thing essential workers, everything else
-你知道，整个事情，必不可少的工人，民生岗位正常工作等
-
-and I don’t mean to downplay the lock downs that were had in the US
-我并不是要淡化美国的封锁
-
-but I’m saying they were nothing
-但是我要说我们的软封锁与中共在这些恐怖封锁
-
-compared to what the CCP was doing in these terror lock downs, right?
-中所做的相比算不了什么，对吧？
-
-They shut down your basic essentials
-他们切断了你的基本必需品
-
-They didn’t want anybody coming out and if they see you on the street
-他们不希望任何人出来，如果他们在街上看到你
-
-they’re grabbing you, tearing you down, right?
-他们会抓住你，把你推倒，对吧？
-
-I posted on Twitter, because they did let me back today
-我在推特上发帖，因为他们今天恢复了我的推特账号
-
-And I’ve got videos all over Shanghai about this
-我在网络上看到到处都有关于上海的视频
-
-And so the reason that I’m putting it this up and some people
-所以我提出这个的原因是
-
-and I remember I remember that there was this whole school of thought at one point
-我记得曾经有过一整套思想流派
-
-This is thought
-这是想法
-
-it’s China just doing all that in in late 2019, early 2020
-是中共国在 2019 年末、2020年初才做了这一切
-
-Was it a psyop?
-是心理战吗？
-
-Was it you know, were they tricking us with these videos was
-你知道吗，他们用这些视频欺骗我们
-
-it meant to trick the west into lockdown
-要欺骗西方进入封锁状态
-
-just said no, no, no, no, no
-只是说不不不不不不
-
-Steve Bannon
-史蒂夫·班农
-
-They don’t roll like that
-他们不这样做
-
-Jack Posobiec
-杰克·波索别克
-
-They’re terrified of this thing
-他们害怕这种事情
-
-And why is it and it goes back to
-为什么会这样，它又回到了
-
-what I said on the very first episode of this program
-我在这个节目的第一集中所说的
-
-two and a half years ago right in this chair
-两年半前, 就在这把椅子上
-
-They are terrified of being viewed as losing the mandate of heaven
-他们害怕被视为失去强制专权
-
-Because when you lose the mandate of heaven
-因为当你失去强制专权的时候
-
-when the God Emperor
-当皇威
-
-the Dragon throne is seen as losing the mandate of heaven in China
-即天子在中国被认为是失去了强制专权的话
-
-that means that people have the right and the duty
-这意味着人们有权利和义务
-
-to establish a new dynasty and to rise up against them
-建立一个新王朝并起来反对他
-
-And that means if you can’t handle the famine, the plague pestilence
-这意味着如果你不能应付饥荒，瘟疫
-
-that hits the land, the invaders, the bandits
-袭击土地，入侵者，土匪
-
-if your empire is crumbling, then you need a new empire
-如果你的帝国正在崩溃，那么你需要一个新的帝国
-
-**原视频链接**[https://gettr.com/post/p14yajx99c9](https://gettr.com/post/p14yajx99c9)
-
-Date:04/13/2022
-原视频标题: “These are terror lockdowns that are going on in China.” -Jack Posobiec
-杰克·波索比克: “这些都是在中共国进行的恐怖封锁”
-原视频日期：2022/04/12
-原视频链接https://gettr.com/post/p14yajx99c9
-任务编号：KE479（4233）
-视频时间段 : 0:00-3:17
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

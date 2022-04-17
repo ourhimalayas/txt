@@ -15,65 +15,65 @@
 
 ---
 
-### [COVID-19疫苗副作用集萃（2022.4.17B）&#8211;辉瑞疫苗副作用update](/content/gnews/1/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.17C）&#8211;辉瑞疫苗可能心肌炎update](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.17A）&#8211;新冠疫苗第三针后遗症寻麻疹](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如此共匪，何谈规则？](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【粤语配音】2022年4月16日：拭目以待接下来重要事情的发生](/content/gnews/4/README.md)
- ` MOS香港部`
-
-### [杰克·波索比克: “这些都是在中共国进行的恐怖封锁”](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|香港前途悲惨 前保安局局长李家超锁定特首职位](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [有声|乌克兰多地彻夜拉响防空警报](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|三发贴牌导弹击沉“莫斯科号” 放生士兵](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦救援战友获波兰颁发志愿者工作证](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [俄罗斯叫嚣清除马斯克星链,灭共3.0剩下的0.3日益临近](/content/gnews/10/README.md)
+### [建议上海卫健委领导精神病鉴定并持48小时内报告上岗](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英国首约翰逊因支持乌克兰而被禁止进入俄罗斯](/content/gnews/11/README.md)
- ` 蓝莲花农场`
+### [COVID-19疫苗副作用集萃（2022.4.17B）&#8211;辉瑞疫苗副作用update](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [习普暗中指使白俄罗斯开火波兰并甩锅开启三战火拼时代](/content/gnews/12/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.17A）&#8211;新冠疫苗第三针后遗症寻麻疹](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如此共匪，何谈规则？](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [潘多拉盒子的底部——希望！](/content/gnews/13/README.md)
+### [【粤语配音】2022年4月16日：拭目以待接下来重要事情的发生](/content/gnews/6/README.md)
+ ` MOS香港部`
+
+### [杰克·波索比克: “这些都是在中共国进行的恐怖封锁”](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|香港前途悲惨 前保安局局长李家超锁定特首职位](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [有声|乌克兰多地彻夜拉响防空警报](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|三发贴牌导弹击沉“莫斯科号” 放生士兵](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦救援战友获波兰颁发志愿者工作证](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [俄罗斯叫嚣清除马斯克星链,灭共3.0剩下的0.3日益临近](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [英国首约翰逊因支持乌克兰而被禁止进入俄罗斯](/content/gnews/13/README.md)
+ ` 蓝莲花农场`
+
+### [有声|波兰和比利时总理均认为 对俄罗斯的制裁必须更加严厉](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [潘多拉盒子的底部——希望！](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|美参众议员访台 中共突击军演威胁](/content/gnews/14/README.md)
+### [有声|美参众议员访台 中共突击军演威胁](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“](/content/gnews/15/README.md)
+### [有声|俄罗斯叫嚣制裁美国会议员，美议员称“荣幸“](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|黑海舰队旗舰“莫斯科号”被乌军导弹击沉](/content/gnews/16/README.md)
+### [有声|黑海舰队旗舰“莫斯科号”被乌军导弹击沉](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|加拿大国家储备中共病毒疫苗开始大量过期](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [20220416郭文贵乱聊直播 ：CCP将无人机卖给台湾引起台湾民众的震惊](/content/gnews/18/README.md)
+### [20220416郭文贵乱聊直播 ：CCP将无人机卖给台湾引起台湾民众的震惊](/content/gnews/19/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220416郭文贵乱聊直播 ：七哥呼吁战友们不但要有勇气反抗，还要有智慧](/content/gnews/19/README.md)
+### [20220416郭文贵乱聊直播 ：七哥呼吁战友们不但要有勇气反抗，还要有智慧](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
-
-### [中共病毒致日本去年总人口下降64万人](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用](/content/gnews/21/README.md)
  ` 美国政要直译推`
@@ -87,26 +87,26 @@
 ### [樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4月16日文贵爆料：接下来的封城计划 警察枉法威胁生命安全时需要勇敢智慧地自卫](/content/gnews/25/README.md)
- ` 秘密翻译组-原创组`
-
-### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/26/README.md)
+### [[G时新闻】俄罗斯入侵乌克兰的战争会持续多久](/content/gnews/25/README.md)
  ` G-时新闻`
 
-### [4月16日文贵爆料：请有吴征、孙力军、孟建柱、马云、单伟建卷宗的战友与新中国联邦联系](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [教皇出席但不主持复活节守夜仪式](/content/gnews/28/README.md)
+### [教皇出席但不主持复活节守夜仪式](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [截至4.16 俄乌战事汇总](/content/gnews/29/README.md)
+### [截至4.16 俄乌战事汇总](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/30/README.md)
+### [生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国财长耶伦警告中国：如不帮助阻止乌克兰战争将承担后果](/content/gnews/29/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/31/README.md)
+### [拜登将恢复联邦土地上石油和天然气租赁业务](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [马斯克将以430亿美元收购推特](/content/gnews/31/README.md)
+ ` NFSC News`
 
 ### [任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦](/content/gnews/32/README.md)
  ` 银河歌舞厅`
@@ -141,14 +141,14 @@
 ### [樱花时政┃苏联垮台成为中共挥之不去的梦魇](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/43/README.md)
+### [2022年4月16日战时快讯（1）](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [记述中共六十年代大饥荒史实的《墓碑》](/content/gnews/44/README.md)
  ` 历史组`
 
-### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/44/README.md)
+### [新中国联邦帐篷内举办犹太族传统节日逾越节](/content/gnews/45/README.md)
  ` 银河歌舞厅`
-
-### [习近平深入女兵宿舍并当面观看女兵们进行群体吹箫表演](/content/gnews/45/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [中日财经爆┃60家日本上市企业决定停止或退出涉俄业务](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
