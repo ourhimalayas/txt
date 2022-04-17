@@ -2,39 +2,21 @@
 ---
 
 
-## 特鲁多决定审查互联网
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364784/)
+## 中共国殡仪馆工作人员急增睡在守灵间
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2364788/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/capforcanada.com_.jpg)图片来源：capforcanada.com
-据《真北方》Truth North网站4月13日报道，在贾斯廷·特鲁多可怕的网络审查法案因特鲁多在2021年秋季举行选举而被废除后，他们又回来了，而且比以前更糟糕。
+编辑：波士顿五月花—-思澈
 
-特鲁多政府重新推出了最新的网络审查法案C-11和C-18。在特鲁多的新审查制度下，大型科技平台将被迫推广政府定义的加拿大内容，并为在线平台上分享的文章向新闻媒体付费。
+**疫苗灾难降临了，中共国心梗得病率突然直冲云霄上升了2081.59%，殡仪馆工作人员急增。**
 
-在今天的《坎迪斯·马尔科姆秀》中，Rebel News的老板Ezra Levant和坎迪斯一起讨论特鲁多的网络审查立法对加拿大人意味着什么，以及为什么特鲁多决心审查互联网。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/362772F6-9809-49D8-8F78-23A7EB598B88.jpeg)
 
-简评：特鲁多政府准备推出的网络审查法案，标志着媒体将成为政府的附庸和传声筒，媒体将毫无自由和公正可言，这无疑是特鲁多政府继向参加渥太华和平集会抗议的卡车司机冻结银行账户限制公民人身和财产自由后限制公民言论自由的又一重大违宪事件！加拿大俨然成了中共国的小弟子！
+正如郭文贵先生所说，现在的疫情不是疫情而是疫苗灾难。中共国微信指数显示心梗患者自四月开始突然上升了2081.59%，这个上升率远远超出以往历史记载从没有过的。长春市殡仪馆工作人员急增因宿舍床位不够只能睡在守灵间。从这些迹象来看疫苗灾难造成死亡的急剧增加。
 
-链接：[https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
+*发布：思澈*
 
-上传/发稿 – 【云起时】
-撰稿/翻译/听写 -【重生之鹰】
-素材/采编 -【文莱】
-校对/审核 -【云起时】
 
-（选填）视频 -【添加作者】
-（选填）音频 -【添加作者】
-（选填）字幕 -【添加作者】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

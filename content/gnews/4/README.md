@@ -2,28 +2,33 @@
 ---
 
 
-## 俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364767/)
+## 俄罗斯黑海舰队旗舰莫斯科号沉没
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364774/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
-上一篇：[俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](https://gnews.org/zh-hans/2364753/)
+##### 作者：加拿大温哥华扬帆农场 -重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/in.olxpraca.com_.jpg)图片来源：in.olxpraca.com
+CTV NEWS 4月14日的消息称，俄罗斯黑海舰队(Black Sea fleet)的一艘导弹巡洋舰旗舰周四沉没，这艘以俄罗斯首都命名的战舰被毁，对莫斯科来说是一次具有象征意义的毁灭性失败。
 
-对此，美国CNN报道，马里乌波尔的市长顾问17日通过通讯应用“电讯报”表明 “继续防卫”，拒绝投降的态度。关于俄军将部队关在钢铁厂内的说法他否认道“不属实”，并称在距离炼厂5公里的地方战斗仍在继续。俄国防部表示，“通过截获无线电得知(乌克兰政府)禁止投降交涉”，并表示，“如果进一步抵抗，就会全军覆没”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2133.png)图片来源网络
-16日晚，泽连斯基向电讯报发布讲话视频。虽然没有提到俄罗斯军队的投降要求，但认为俄军“正在试图摧毁所有在马里乌波尔的人”，并表示“很难找到解决办法”。
+在战争的头几天，莫斯科号就是在对峙中要求驻扎在黑海蛇岛的乌克兰士兵投降的那艘船。黑海对面敖德萨地区的省长马克西姆马尔琴科(Maksym Marchenko)说，乌克兰人用两枚“海王星”导弹击中了这艘船，造成了“严重损害”。
 
-乌克兰副总理贝莱西丘克17日表示无法就提供平民从战斗地区撤离的“人道走廊”与俄罗斯达成协议，“今天不能设置”。
+俄罗斯承认莫斯科号上发生了火灾，大火迫使全体船员撤离，使这艘船在被拖往港口时遭遇风暴沉没。“莫斯科号”通常有500名船员，有能力携带16枚远程巡航导弹，撤除它将削弱俄罗斯在黑海的火力。这也打击了莫斯科在这场已经被广泛认为是历史性失误的战争中的威望，给重新集结准备在乌克兰东部发起新一轮攻势的莫斯科的军队一次沉重的打击！
 
-俄军的攻势似乎以包括马里乌波尔在内的乌克兰东部顿涅茨克、卢甘斯克两州为中心，但对首都基乌近郊和西部利比乌省的导弹袭击仍在继续。
+链接：[https://www.ctvnews.ca/world/russia-s-damaged-black-sea-flagship-sinks-in-latest-setback-1.5861650](https://www.ctvnews.ca/world/russia-s-damaged-black-sea-flagship-sinks-in-latest-setback-1.5861650)
 
-参考链接：[ロシア「抵抗なら全滅させる」　マリウポリで投降拒むウクライナに（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/70353d3af99e54f2bfa1d2ee7d7a3575bc9dfb0b)
-
+上传/发稿 – 【云起时】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【云起时】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

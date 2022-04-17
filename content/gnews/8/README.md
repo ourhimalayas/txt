@@ -2,33 +2,31 @@
 ---
 
 
-## 渥太华通过决议 学生在校内须佩戴口罩
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364728/)
+## 俄烏戰爭中第八位俄將軍陣亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2364743/)
 
-##### 加拿大温哥华扬帆农场 – 采编：  青青/编译撰稿：自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/scarymommy.com_.jpg)图片来源：scarymommy.com
-加拿大CTV新闻4月13日报道，渥太华公立学校董事会周二晚间通过一项决议，要求所有工作人员、幼儿园至12年级学生、义工和访客在校内必须佩戴口罩，立即生效，但学生不会因拒绝在学校佩戴口罩而被停学或开除。
+作者：紐約香草山健身部-文鷹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2135.png)
 
-强制性口罩在用餐、饮水、体育课或高强度体育活动等特殊情况时可以摘下。如学生在没有豁免的情况下拒绝遵守该项规定，学校将与家长/监护人联系，协助学生达到口罩要求，或申请豁免口罩要求。
 
-教育总监泰勒表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。卫生官员埃切斯博士也敦促雇主鼓励员工室内佩戴口罩，以帮助限制病毒传播，因为这确实增加了一层保护。
+據外媒報道，俄軍第8近衛軍集團軍副司令官佛洛夫（VIadimirFroIv）葬禮，於16日在俄國聖彼得堡舉行，市長貝格洛夫主持了儀式。
 
-原文链接：[https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
+俄軍第8集團軍2月24日入侵烏克蘭後，司令官莫德維切夫中將已在3月份陣亡。佛洛夫的死亡日期可能在此月。該集團軍正副指揮官的雙陣亡，揭示俄軍在入侵戰爭中的軍事慘敗。
 
-上传/发稿 – 云起时
-撰稿/翻译/听写 -【自由法兰西🇫🇷】
-素材/采编 -【青青】
-校对/审核 -【云起时】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+另16日消息指出，在烏克蘭東部地區。烏軍擊斃了俄軍坦克營指揮官巴沙科夫上校，為第34名上校。截止到俄烏戰爭爆發今日，俄軍共計42名高級指揮官殉命。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+参考鏈接：[https://www.aboluowang.com/2022/0417/1736355.html](https://www.aboluowang.com/2022/0417/1736355.html)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/548B40D9-5BBD-4186-8F0C-E82BC615015F.jpeg)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

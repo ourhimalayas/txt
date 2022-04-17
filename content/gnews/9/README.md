@@ -2,28 +2,33 @@
 ---
 
 
-## 4月18日起韩美军演 朝鲜可能反制（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364717/)
+## 渥太华通过决议 学生在校内须佩戴口罩
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364728/)
 
-翻译：天天
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
-上一篇：[*4月18日起韩美军演 朝鲜可能反制（上）*](https://gnews.org/zh-hans/2364693/)
+##### 加拿大温哥华扬帆农场 – 采编：  青青/编译撰稿：自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/scarymommy.com_.jpg)图片来源：scarymommy.com
+加拿大CTV新闻4月13日报道，渥太华公立学校董事会周二晚间通过一项决议，要求所有工作人员、幼儿园至12年级学生、义工和访客在校内必须佩戴口罩，立即生效，但学生不会因拒绝在学校佩戴口罩而被停学或开除。
 
-演习期间恰逢朝鲜人民革命军（抗日游击队）成立90周年（4月25日），预计届时朝鲜将举行检阅仪式（阅兵）。 韩国军方和情报部门官员正在关注新的洲际弹道导弹（ICBM）和能够携带小型核弹头的新中短程弹道导弹可能在阅兵式上亮相。
+强制性口罩在用餐、饮水、体育课或高强度体育活动等特殊情况时可以摘下。如学生在没有豁免的情况下拒绝遵守该项规定，学校将与家长/监护人联系，协助学生达到口罩要求，或申请豁免口罩要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2132.png)图片来源：雅虎新闻
+教育总监泰勒表示，出于健康和安全考虑，学校董事会有法律权力实施强制性口罩规定。卫生官员埃切斯博士也敦促雇主鼓励员工室内佩戴口罩，以帮助限制病毒传播，因为这确实增加了一层保护。
 
-由于朝鲜过去强烈反对韩美军事演习，可能会在4月10日下届韩国政府就职之际进行更多的挑衅。
+原文链接：[https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065](https://ottawa.ctvnews.ca/masks-mandatory-in-all-ottawa-public-schools-effective-immediately-ocdsb-says-1.5861065)
 
-过去，韩国和美国在演习前通过朝鲜军方和联合国军司令部之间的直通车将演习日程和目标告知朝鲜，但据悉这次他们不会被告知。 韩国国防部在4月11日的例行新闻发布会上解释是否有计划将演习日程通知朝鲜方面，称 “迄今为止没有计划通知他们”，而在2016年和2017年，在宣布演习计划的当天，朝鲜方面通过扩音器在南北军事分界线的板门店被告知了演习日程和其他信息。
-
-参考链接：[韓米軍事演習　18日から実施＝北朝鮮が反発か（聯合ニュース） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6377378cac76f0773ac61c5d15e16fcf30ccbeb2)
-
+上传/发稿 – 云起时
+撰稿/翻译/听写 -【自由法兰西🇫🇷】
+素材/采编 -【青青】
+校对/审核 -【云起时】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

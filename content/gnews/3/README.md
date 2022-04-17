@@ -2,23 +2,29 @@
 ---
 
 
-## 俄罗斯黑海舰队旗舰莫斯科号沉没
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364774/)
+## 特鲁多决定审查互联网
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364784/)
 
-##### 作者：加拿大温哥华扬帆农场 -重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/in.olxpraca.com_.jpg)图片来源：in.olxpraca.com
-CTV NEWS 4月14日的消息称，俄罗斯黑海舰队(Black Sea fleet)的一艘导弹巡洋舰旗舰周四沉没，这艘以俄罗斯首都命名的战舰被毁，对莫斯科来说是一次具有象征意义的毁灭性失败。
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/capforcanada.com_.jpg)图片来源：capforcanada.com
+据《真北方》Truth North网站4月13日报道，在贾斯廷·特鲁多可怕的网络审查法案因特鲁多在2021年秋季举行选举而被废除后，他们又回来了，而且比以前更糟糕。
 
-在战争的头几天，莫斯科号就是在对峙中要求驻扎在黑海蛇岛的乌克兰士兵投降的那艘船。黑海对面敖德萨地区的省长马克西姆马尔琴科(Maksym Marchenko)说，乌克兰人用两枚“海王星”导弹击中了这艘船，造成了“严重损害”。
+特鲁多政府重新推出了最新的网络审查法案C-11和C-18。在特鲁多的新审查制度下，大型科技平台将被迫推广政府定义的加拿大内容，并为在线平台上分享的文章向新闻媒体付费。
 
-俄罗斯承认莫斯科号上发生了火灾，大火迫使全体船员撤离，使这艘船在被拖往港口时遭遇风暴沉没。“莫斯科号”通常有500名船员，有能力携带16枚远程巡航导弹，撤除它将削弱俄罗斯在黑海的火力。这也打击了莫斯科在这场已经被广泛认为是历史性失误的战争中的威望，给重新集结准备在乌克兰东部发起新一轮攻势的莫斯科的军队一次沉重的打击！
+在今天的《坎迪斯·马尔科姆秀》中，Rebel News的老板Ezra Levant和坎迪斯一起讨论特鲁多的网络审查立法对加拿大人意味着什么，以及为什么特鲁多决心审查互联网。
 
-链接：[https://www.ctvnews.ca/world/russia-s-damaged-black-sea-flagship-sinks-in-latest-setback-1.5861650](https://www.ctvnews.ca/world/russia-s-damaged-black-sea-flagship-sinks-in-latest-setback-1.5861650)
+简评：特鲁多政府准备推出的网络审查法案，标志着媒体将成为政府的附庸和传声筒，媒体将毫无自由和公正可言，这无疑是特鲁多政府继向参加渥太华和平集会抗议的卡车司机冻结银行账户限制公民人身和财产自由后限制公民言论自由的又一重大违宪事件！加拿大俨然成了中共国的小弟子！
+
+链接：[https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
 
 上传/发稿 – 【云起时】
 撰稿/翻译/听写 -【重生之鹰】
-素材/采编 -【青青】
+素材/采编 -【文莱】
 校对/审核 -【云起时】
+
+（选填）视频 -【添加作者】
+（选填）音频 -【添加作者】
+（选填）字幕 -【添加作者】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 

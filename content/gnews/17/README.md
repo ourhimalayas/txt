@@ -2,35 +2,45 @@
 ---
 
 
-## 2022/04/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2364478/)
+## 有声|上海一网友曾力挺港警 如今自己被“维稳“
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2364485/)
 
-1. 4月10日，江苏无锡。在中共国家卫生健康委员会的要求下，各省市都在全面建设方舱医院。中共宣传机构镜头里用于宣传的方舱医院是这样的。
-2. 4月9日，上海。中共解放军陆军军医大学军医与护士进驻上海最大方舱医院，参与所谓医疗支援。
-3. 然而，大城市上海，镜头之外的方舱医院其实是这样的！
-4. 4月9日，吉林。被中共集中隔离关押的市民视频记录着“集中营”里放饭投喂瞬间！
-5. 4月4日，上海。被隔离市民吐槽隔离点基础设施简陋，如厕后无水清洗。质疑集中隔离的目的是什么？
-6. 4月9日，上海浦东新区集中隔离方舱医院。集中隔离市民不吃药不打针，隔离点内没救治医疗能力，质疑政府集中隔离的目的。
-7. 在中共政权各种荒唐政策指引下，中国大陆各地奇葩事件频发。工厂现纸棺材板式的隔离。
-8. 4月9日。上海。市民呼吁政府关注，疫情下睡在路边回不去家的那些人。#真实的上海
-9. 4月5日，上海。疫情下的浦东，睡在路边的外卖小哥们。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据国外媒体4月15日报道，近日，一位名叫“乖乖咙滴董”的网友，在微博中贴出了上海警察在张江纳仕国际社区殴打小区居民的视频，并控诉道：这就是人民警察！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-37.jpg)
+微博发出后，有网友发现，在2019年香港反送中期间，他曾经支持香港警察，还转发了当时墙内百姓挺港警的名言：“我支持香港警察，你们可以打我了。”
 
+如今，上海因为疫情控制，要强征“乖乖咙滴董“居住的小区作为隔离点，引起小区居民的强烈反抗，但又被上海警察暴力维稳。他在微博中表达了对警方暴力执法的强烈愤概。
 
-- *1，搜集：Free20200604、加油干吧总加速师 、Filon
- 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
-- *3，翻译：一切都是刚刚开始Miles#4229
- 4，PR：Seven-Star Ant*
+有网友嘲笑他2019年的愿望，中2022年终于实现了。还有网友希望以后他能更清楚地认识这个社会。
+
+目前，“乖乖咙滴董”已经关闭了自己的微博帐号，避免继续成为公众嘲笑的对象。
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+文字版原文：[上海一网友曾力挺港警 如今自己被“维稳“](https://gnews.org/zh-hans/2363018/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
