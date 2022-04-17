@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 2:35 PM (UTC)`
+
+The biggest tent of the New Federal State of China hosted more than 10,000 Ukrainian refugees at the Polish border, a number that surprised the German volunteer who came to deliver the relief supplies, and although it was the first time he had heard about the New Federal State of China (NFSC), he thought that the NFSC volunteers did a fantastic job<br/>新中国联邦的大帐篷在波兰边境接待超过1万名的乌克兰难民，这个数字让前来送救援物资的德国志愿者感到惊讶，虽然他是第一次听说新中国联邦，但是他认为新中国联邦志愿者做的太棒了<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
+![img](https://media.gettr.com/group4/origin/2022/04/17/14/6108e1d0-fed5-6ea7-6e3b-be36079cf9de/out.jpg)
+
+---
+
+`@miles 4/17/2022 2:30 PM (UTC)`
+
+Two volunteers from Russia had an interview with us. They hate Putin and don’t agree with the war. One of them, his mother, was arrested in a peaceful demonstration in Russia, and all of his Russian friends are against the war. The other says he loves Chinese people very much but he hates the Chinese government. He hopes China and Russia will be free and people can enjoy freedom and democracy. The two volunteers agree that freedom loving people should unite and take down dictatorships together.<br/><br/>两名来自俄罗斯的志愿者接受了我们战友的采访。他们恨普京并且他们反对战争。其中一位的母亲，由于参加一次和平抗议，被警察逮捕，而且他的所有朋友都反对这场战争。另一位说他非常爱中国人民但是恨中国政府。他希望中(共)国和俄罗斯变成自由国度，并且人们能享有自由和民主。两名志愿者认同热爱自由的人们应该联合起来共同推翻独裁统治。
+![img](https://media.gettr.com/group8/origin/2022/04/17/14/43148af2-7695-77da-5879-e8ce74ebf50d/out.jpg)
+
+---
+
+`@miles 4/17/2022 2:26 PM (UTC)`
+
+Two Spaniards who came to the border to donate supplies visited the NFSC tents and asked for our "Take Down the CCP" vests. The front line volunteers asked why the guests wanted this vest, and they said: "We are going to wear this vest in Communist China, and we want to express our true voice and stance by wearing this vest."<br/>两位从西班牙来捐物资的西班牙人走进我们的帐篷，问我们要灭共马甲。我们问他们为什么要这个马甲，他们说，我们要穿着这个马甲去中共国，我们要用这件马甲表达我们的心声
+![img](https://media.gettr.com/group34/origin/2022/04/17/14/226ec85c-2916-93a4-c78c-2d27f818eb0b/out.jpg)
+
+---
+
 `@miles 4/17/2022 2:17 PM (UTC)`
 
  4月17号：尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！
@@ -135,27 +156,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 2022.04.16 NFSC news  Three labeled missiles sank the warship "Moskva “, releasing soldiers
 ![img](https://media.gettr.com/group8/origin/2022/04/16/22/4b8c37a8-8e82-17bd-3acc-c41d8f594ae4/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/16/2022 10:23 PM (UTC)`
-
-4/16/2022 Miles Guo: Several fellow fighters and their families in Russia cleverly avoided the most dangerous places. A fellow fighter working in the CCP’s system sold the classified information of the National Bureau of Statistics to the US. As a result, the US granted his whole family urgent immigration visas. As long as it is the CCP’s secret, it can be sold for a good price, with the New Federal State of China being the deal maker.<br/><br/>4/16/2022文贵直播：俄罗斯几家战友聪明地躲开了最危险的地方；体制内战友把统计局的机密信息提供给了美国，全家获批美国紧急移民；只要是共产党的秘密，都能卖个好价钱，新中国联邦就是交易的桥梁<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/16/22/01e16b11-cf69-9fdb-5829-337b1555d2c8/out.jpg)
-
----
-
-`@miles 4/16/2022 10:00 PM (UTC)`
-
-“台湾之子，中共要大屠杀啦！” 飞飞秀救援快报 2022-04-16<br/>For English：gettr.com/streaming/p15mpked660
-![img](https://media.gettr.com/group29/origin/2022/04/16/21/ff53b0a8-cf42-7d22-ca07-f6a71e1129b3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 9:36 PM (UTC)`
-
-4/16/2022 Miles Guo: I am calling out fellow fighters to collect and provide the dossiers and interrogation files of the running dogs of the CCP, such as Jack Ma, Bruno Wu, Meng Jianzhu, Fu Zhenghua, Sun Lijun, Weijian Shan, and so on. The New Federal State of China will be rewarding anyone who can obtain and provide those documents.<br/><br/>4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案；新中国联邦会给提供信息的战友巨额奖励<br/><br/>
-![img](https://media.gettr.com/group43/getter/2022/04/16/21/996b5b71-e48e-073d-7e0f-92ad14bb79e0/out.jpg)
 
 ---
 

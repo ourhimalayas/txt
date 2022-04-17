@@ -2,36 +2,12 @@
 ---
 
 
-## 俄罗斯在乌克兰的目标没有改变
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2363565/)
+## 喜联储的创始人William Je 余建明接受英国GB News关于虚拟货币的采访
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2363718/)
 
-撰稿：香草山健身组-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-4月17日，据《欧洲真理报》援引英国情报部门的消息报道，俄罗斯入侵的作战重心已经转移到乌克兰东部，但俄罗斯的最终目标没有改变。
+04/12/2022 喜联储的创始人William Je余建明接受英国GB News的采访，关于虚拟货币是怎样有助于对乌克兰的救援活动。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。
 
-![](https://chinese.aljazeera.net/wp-content/uploads/2022/04/image-8-4.jpg?resize=770%2C513)
-
-俄罗斯军队继续将人员和军事装备从白俄罗斯转移到乌克兰东部。据英国情报机构称，这些地点包括哈尔科夫和北顿涅茨克附近的地点。
-
-俄罗斯导弹继续袭击该国东部的乌克兰阵地，俄罗斯计划在那里恢复进攻。
-
-与此同时，虽然俄罗斯的作战重心已经转移到了乌克兰东部，但俄罗斯的最终目标却没有改变。
-
-英国国防部声明中说：“它试图迫使乌克兰放弃其欧洲-大西洋定位，并建立自己的地区主导地位。”
-
-据报道，美国已敦促其盟国向乌克兰提供更多的导弹和弹药，预计未来几天俄罗斯将加强进攻。
-
-[https://www.eurointegration.com.ua/news/2022/04/17/7137949](https://www.eurointegration.com.ua/news/2022/04/17/7137949)
-
-校对/发稿：菩提树
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/08E49E48-F9AB-4128-A1F8-15A80E2509A7.jpeg)
-
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

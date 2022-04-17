@@ -2,18 +2,29 @@
 ---
 
 
-## 樱花FM｜欧盟驻乌大使重回基辅办公
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2362725/)
+## 梅迪卡最亮丽的灭共马甲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2363008/)
 
-**音频：东京樱花团**/**战友**520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7662E61E-A2A4-4D32-8A6A-7CC8BF9430DC.png)
-**欧盟主席冯德莱恩和外交安全代表博雷利**4**月**8**日到访基辅，并与泽连斯基举行会谈。欧盟对外行动署当天宣布，欧盟驻乌大使马西卡斯等外交工作人员将回到基辅继续办公。博雷利表示：**“**通过这次访问，欧盟又回到了基辅。马西卡斯将继续留在基辅工作，重开驻地，并评估工作条件。**”**博雷利强调：**“**在基辅期间，我们亲眼目睹了乌政府在非常困难的情况下，仍有能力确保政府机构有效全面运作。欧盟代表团返回基辅将确保与政府进行更好的互动，并为乌人民提供更多支持。**”
+作者：纽约香草山 Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+在波兰梅迪卡前线，一件小小的黄色马甲，正在成为梅迪卡最亮丽的一道风景线。这件马甲的设计，是新中国联邦创始人郭文贵先生，特意为乌克兰救援行动设计的，上面印着“消灭中国共产党”，“我们是灭共的新中国联邦人”。
 
-文字版原文：[**樱花时政┃欧盟驻乌大使重回基辅办公**](https://gnews.org/zh-hans/2327062/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-9.18.49-PM.png)
 
-**编辑：东京樱花团**/Calvin
-**发布：东京樱花团**/calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
+4月15日，前线战友妮可的消息：一位法国义工穿着灭共马甲说，灭共是他的信仰，我们一起来灭共。还有，台湾流浪作家王芮缇穿上灭共马甲，与前线救援战友一起，已在联邦大帐篷里工作了两周时间。
+
+4月16日，前线战友正义小Sarah报道，两位从西班牙远道而来，捐物资的西班牙人，走进我们的帐篷，拿到灭共马甲后。他们说，将来计划穿着这个马甲去中共国，用这件马甲来表达消灭中国共产党的心声。
+
+随着美迪卡前线战友不懈的传播真相，越来越多的人来到我们的新中国联邦救援大帐篷，想要一件和我们前线战友同款的灭共马甲。
+
+参考链接：[Brazil meat cargos to Shanghai port disrupted amid indefinite lockdown](https://www.channelnewsasia.com/business/brazil-meat-cargos-shanghai-port-disrupted-amid-indefinite-lockdown-2627486)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+
+编辑：静言
+总编/审核：Irene木木
+校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

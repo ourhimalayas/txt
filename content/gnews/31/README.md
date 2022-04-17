@@ -2,45 +2,32 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.17M）新冠康复后科兴第一针副作用明显
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362785/)
+## 莫斯科对乌克兰侵略战争可能使中共在俄罗斯巴什科尔托斯坦的投资消失
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2363056/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+素材/选题：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午7.34.40.png)图片来源：微信
+五年来中共在俄罗斯巴什科尔托斯坦的投资一直停滞不前。
 
-整理/编辑：机器猫
+“当地政府支持所有与吸引[中国]资金进入共和国有关的倡议，但不幸的是，一切都以空谈告终，”驻巴什科尔托斯坦首府乌法的经济学家Vsevolod Spivak告诉RFE/RL。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
+在巴什科尔托斯坦，大多数中国支持的项目都是沿着北京横跨全球的 “一带一路 “倡议建设交通和铁路，同时投资于水泥等建筑材料的工厂。
 
+莫斯科对乌克兰的入侵使得中共公司谨慎地与俄罗斯保持距离，由于担心受到美国的二次制裁，中共国的公司缩减了业务，并冻结了计划中的项目。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+自2017年以来，中共投资者四川君和环保公司在西贝开设了一个办事处，并承诺向该工厂投资1.54亿美元（128亿卢布），为社区创造200个新的就业机会。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+但目前这些计划已经搁浅，办公室已经关闭，公司的标牌已经被拆除。
 
-原文作者：豹豹颗粒memo机
+像华为这样的大公司也已经解雇了大部分俄罗斯员工。
 
-**新冠康复后科兴第一针副作用明显**
+许多专家也指出，虽然中共国不太可能支持俄罗斯经济，但一旦明确如何更好地遵守制裁，预计中共国会采取机会主义行动，比如购买折扣石油和收购西方公司从该国撤出的新市场空间。
 
-帖子原文：
+参考链接：[Moscow’s Ukraine War Could Make Chinese Investment In Russia’s Bashkortostan Disappear](https://www.rferl.org/a/china-investment-russia-ukraine-war-bashkortostan/31806076.html)
 
-自从去年7月份感染之后别人的自然抗体igg都是蹭蹭蹭的往上涨，但是我从感染开始igm就一直阴，igg也不高，基本流水测自测板的时候都看不到线的程度，大概二三百？
+* * *
 
-一般来说有感染史的再打一剂加强剂，基于我这种情况我咨询了一下医生，建议我最好三针再打一次，所以我就是那个感染了个寂寞的人
-
-康复之后的六个月开始打第一针，科兴副作用有点强，打完之后非常疲惫且头痛，头痛欲裂的头痛，就像又冲击钻那样一直突突突突的痛，感受到神经的跳动。当时打完的半小时没啥事就离开注射点，结果吃完饭就开始疲惫犯困头痛烦躁，痛到睡也睡不着，也不敢吃药，就这样持续一天过去…还有一点低烧，但是我看说明书是很常见的症状
-
-关于打科兴会瘦这回事，确实瘦了两斤，但我估计是因为头痛吃不下东西瘦的，希望第二针反应别那么强烈
-
-#北京科兴中维#科兴新冠疫苗#打新冠疫苗第一针#打新冠疫苗#新冠#新冠康复者
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2084.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2083.png)图片来源：小红书
-参考链接：[新冠康复后科兴第一针副作用明显](https://www.xiaohongshu.com/discovery/item/6241407b000000000102fc6e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068530)
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑&发布：长岛开心*
 
  
 

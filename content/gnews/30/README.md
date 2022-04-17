@@ -2,44 +2,34 @@
 ---
 
 
-## 随着上海病例的增加，更多的中国城市实施了COVID-19限制措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362970/)
+## 中共病毒使美国人寿命急剧下降 比预期缩短2年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363077/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译：li yan li
+整理：等风来
 编辑：JH
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2092.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2097.png)
 
 
-4月16日，上海报告了创纪录的有症状的COVID-19病例。因为中国保持了“动态清除”的方法，旨在消除高度传播的Omicron COVID-19变体。中国其他地区也实施了限制措施。
+大纪元2022年04月14日讯，据一项全球研究显示，在2020年的COVID-19疫情期间，美国人的预期寿命平均缩短了近两年，降至77岁左右，与其它21个高收入国家相比降幅最大。
 
-郑州空港经济区是中国中部的一个制造区，包括苹果供应商富士康，周五宣布了为期14天的封锁，“将根据疫情情况进行调整”。
+在COVID-19（中共病毒）疫情期间，美国的疫情感染死亡率和死亡人数均位居世界前列。 在2020年，中国病毒成为美国人的第三大死亡原因，仅次于心脏病和癌症。
 
-在中国西北部，西安市在本月发生数十起COVID-19感染事件后，周五敦促居民避免在住宅区外进行不必要的旅行，并鼓励公司让员工在家工作或在工作场所居住。
+这项研究结果与美国疾病控制和预防中心早先的一项预估相吻合。 该预估显示，2020年美国总人口的预期寿命平均为77岁，比2019年的78.8岁下降了1.8岁。 这是自二战以来最大的降幅。
 
-上海是中国最近爆发疫情的中心，周六报告了4月15日创纪录的3,590个有症状的病例，以及19,923个无症状病例。无症状病例的数量比一天前的19,872例略有增加。
+根据疾病控制与预防中心的数据，随着疫情进入第三个年头，已经有近100万美国人死于中共病毒。
 
-该市的COVID-19病例数占全国病例数的绝大部分，即使其2500万居民中的大多数仍处于封锁状态。
-
-周五，中国电动汽车标杆Xpeng的负责人表示，如果上海和周边地区的供应商不能恢复工作，汽车制造商可能不得不在下个月暂停生产。
-
-在郑州工厂，经济区当局在官方微信即时通讯文章中说，只有持有有效通行证、健康代码和COVID-19阴性测试证明的人员才能在这段时间内离开经济区。
-
-鸿海精密工业公司的商标名富士康在周四向路透社援引其声明，称其郑州工厂正在配合政府的疫情控制工作。
-
-经济学家表示，这些限制措施将对该国今年的经济增长率产生影响。
-
-新闻链接：https://www.channelnewsasia.com/asia/more-chinese-cities-impose-covid-19-curbs-shanghai-cases-rise-2629191
+参考链接：[https://www.epochtimes.com/b5/22/4/13/n13711020.htm](https://www.epochtimes.com/b5/22/4/13/n13711020.htm)
 
 发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

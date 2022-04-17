@@ -2,34 +2,37 @@
 ---
 
 
-## 中共病毒使美国人寿命急剧下降 比预期缩短2年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363077/)
+## 明白人质疑上海卫健委领导，理应持48小时内无精神病证明上岗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363197/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/明白人质疑上海卫健委领导，理应持48小时内无精神病证明上岗.jpg)图片来源
 
-整理：等风来
-编辑：JH
+甲：以防疫管控的这样措施你是觉得不合理？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2097.png)
+明白人：他们所谓的健康筛查，它是违反传染病防治法规定的。传染病防治法规定的说你这个防控的对象只能是病人、疑似病人、密接。你对健康人群搞什么核酸检测、搞健康筛查。
 
+这逻辑很可笑的呀。按照这个逻辑，那么的上海市所有卫健委系统的领导，就应全部进行精神病鉴定的，对吧!第一精神病患者是不适合做领导工作的。我们都知道因为他的决策和部署，是不正常、不靠谱的。那么第二，卫健委系统的每个领导都可能具有精神疾病，都是潜在的潜在的精神病患者。第三，为了保证全市人民的健康着想，本着早发现、早报告、早治疗的原则和目的，建议卫健委系统的每一个领导都去做精神病鉴定，持四十八小时内精神正常的鉴定报告、上岗工作，这样我们才放心。
 
-大纪元2022年04月14日讯，据一项全球研究显示，在2020年的COVID-19疫情期间，美国人的预期寿命平均缩短了近两年，降至77岁左右，与其它21个高收入国家相比降幅最大。
+知道吧，你按照他们的这种逻辑，再来让他们做精神病鉴定。看他们能不能发现这种决策的可笑之处或者说愚昧之处。 怎么能有有精神病潜在的精神病患者得来做决策和部暑呢？
 
-在COVID-19（中共病毒）疫情期间，美国的疫情感染死亡率和死亡人数均位居世界前列。 在2020年，中国病毒成为美国人的第三大死亡原因，仅次于心脏病和癌症。
+甲：关于这个问题呢，我会帮你反馈上去的，先生，按照惯例进行核实处理。
 
-这项研究结果与美国疾病控制和预防中心早先的一项预估相吻合。 该预估显示，2020年美国总人口的预期寿命平均为77岁，比2019年的78.8岁下降了1.8岁。 这是自二战以来最大的降幅。
+明白人：一定要回复。
 
-根据疾病控制与预防中心的数据，随着疫情进入第三个年头，已经有近100万美国人死于中共病毒。
+甲：嗯好的，那请您保持电话的畅通，我帮你反馈上去。
 
-参考链接：[https://www.epochtimes.com/b5/22/4/13/n13711020.htm](https://www.epochtimes.com/b5/22/4/13/n13711020.htm)
+消息来源：
 
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

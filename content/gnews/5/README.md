@@ -2,22 +2,28 @@
 ---
 
 
-## 公开反对侵略乌克兰战争的名人麦莉·赛勒斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363583/)
+## 新中国联邦的救援被全球越来越多人认识
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2363786/)
 
-撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-63.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2118.png)（图片源自本文链接）
 
-4月17日MSN消息：创作型歌手和女演员麦莉·赛勒斯推特发声。
+4月15日，一位来自巴西的自媒体人来到波兰前线新中国联邦救援营地的大帐篷中。当他知道我们能够在两天之内建起了整个营地最大、设施最完善的帐篷时，他惊叹于新中国联邦和法治基金的强大财力和义工们一流的素质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323101.jpg)
+看到他对中共的邪恶有所了解但并不深入，妮可战友向他详细介绍了中共和中国人的区别，告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起，中共不能代表中国人。还向他介绍了推特和Facebook在中共的控制下对新中国联邦的封杀，以及我们的新社交媒体——盖特。
 
-她发推说去基辅拍摄《没有什么比心碎了》的音乐视频时，被乌克兰人民的善良和友好所感动，她呼吁声援乌克兰并要求侵略者立即停火。
+他表示，他一定会在巴西帮助传播新中国联邦。
 
-信息来源： [ウクライナ侵略戦争に反意を唱えた有名人たち (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E4%BE%B5%E7%95%A5%E6%88%A6%E4%BA%89%E3%81%AB%E5%8F%8D%E6%84%8F%E3%82%92%E5%94%B1%E3%81%88%E3%81%9F%E6%9C%89%E5%90%8D%E4%BA%BA%E3%81%9F%E3%81%A1/ss-AAW4GA7?ocid=msedgntp&amp;cvid=b177a6cb09de48f9b3c0852f5e62ad03)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
+
+参考链接：[乌克兰救援04/15/2022](https://gettr.com/post/p15ij0025de)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-139.jpg)
+
+总编：飞虹
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-64.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

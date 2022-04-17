@@ -2,26 +2,36 @@
 ---
 
 
-## 新中国联邦前线救援行为获犹太义工高度肯定
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2363007/)
+## 俄媒：俄罗斯人使用银联卡网购遭遇困难
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363113/)
 
-作者：雅典娜农场 Candy
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
-当地时间4月15日晚，在梅迪卡东欧战争前线的新中国联邦救援营地，前线战友与当地的犹太裔义工共同庆贺犹太逾越节。Nicole战友采访了一位来自以色列耶路撒冷的义工那里安（Naria）在“同心“救援机构工作的。他自我介绍说；他叫）这位在“同心”救援机构工作的犹太裔战友，面对新中国联邦的摄像机，讲述了他造访利沃夫时的所见所闻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-9.21.46-PM.png)
-那里安发现，在乌克兰，尤其是利沃夫的难民中心，年轻人发起的各类救援与反抗组织占据了主导，他们中的很多人拥有“独立战争”字样的纹身。他认为，俄乌战争是一场唤起民智，关乎独立、自由与解放的战争；乌克兰的青年、犹太人、以及新中国联邦人，通过这场战争将彼此联系在了一起。
+#### 【雅典娜快讯】，紧贴时代脉搏   
 
-那里安认为，在新中国联邦救援营地举办的这场逾越节庆祝活动，既缅怀了千年以来、以及上个世纪在波兰这片土地上为自由而战的犹太先民；同时也鼓舞了乌克兰人民和新中国联邦人，他们为自由和解放而进行同样的战斗。新中国联邦人在前线夜以继日地帮助乌克兰人民逃离战争、拥抱自由，法治基金也在帮助14亿中国人民摆脱中共的奴役。这是一种精神的传承。大家一起在这片土地上，同一个帐篷里，拥有共同的信仰，同为自由解放而战。此情此景，令人感慨万千。而这个能容纳进百人的救援帐篷，应命名为‘解放帐篷“。
+整理：li yan li
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-22.png)
+据德国之声中文网报道，由于VISA、万事达（Mastercard）和美国运通（American Express）等西方金融企业发行的卡遭遇西方制裁，自3月初以来再也无法使用。再加上大部分俄罗斯金融机构被排除在SWIFT（环球银行金融电信协会）之外，使俄罗斯人难以在网上或国外用信用卡消费。转而只能依靠中国的银联信用卡。
 
-参考链接：[04/15/2022 Jewish volunteers say that this tent provided by the New Federal State of China should be called the liberation tent](https://www.gettr.com/post/p15mfh51324)
+中国至今没有谴责俄罗斯对乌克兰的侵略，也没有参与对俄罗斯的国际经济制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+虽然俄罗斯人能使用中国的信用卡进行网上购物，但这只是理想情况，事实上似乎并非这么顺利。
 
-编辑：文鹰
-总编：文恩
-审核：Jack Li文阳
-校正/发稿：我不在这里
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+在Visa和万事达卡停止在俄罗斯的业务后，许多俄罗斯公民曾希望能够用中国银联的卡片进行支付。
+
+俄罗斯标准银行和MTS银行近日也开始发行银联借记卡。部分俄罗斯银行还计划推出支持俄罗斯MIR支付和银联支付的“双标卡”。
+
+据德新社引用俄罗斯媒体的报道，银联卡可能无法弥补其他卡片被停用所带来的不便。据俄罗斯《生意人报》报道，大多数知名的国际网店及其合作银行一般不再接受由俄罗斯发行的卡片，包括银联卡在内。
+
+新闻链接：[俄媒：俄罗斯人使用银联卡网购遭遇困难](https://www.dw.com/zh/%E4%BF%84%E5%AA%92%E4%BF%84%E7%BD%97%E6%96%AF%E4%BA%BA%E4%BD%BF%E7%94%A8%E9%93%B6%E8%81%94%E5%8D%A1%E7%BD%91%E8%B4%AD%E9%81%AD%E9%81%87%E5%9B%B0%E9%9A%BE/a-61473994)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
