@@ -2,20 +2,22 @@
 ---
 
 
-## 雅典娜时报-第265期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2361580/)
+## 视频|俄罗斯从莫斯科驱逐18名欧盟外交官
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2361799/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+制作：香草山视频部
 
-#### 编辑：精灵蓝
-排版：0-0
-![圖片](https://media.discordapp.net/attachments/825592691433668612/964765043138904064/1.jpg?width=838&amp;height=1185)![圖片](https://media.discordapp.net/attachments/825592691433668612/964765043516379136/2.jpg?width=838&amp;height=1186)
-*发布：陶子*
+4月15日外媒报道，俄罗斯于当日驱逐了18名欧盟外交官，以报复欧盟本月早些时候将19名俄罗斯人列入不受欢迎名单的决定。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+俄罗斯外交部发表声明表示，已召见欧盟驻俄罗斯大使马库斯·埃德勒，并向他递交了一封抗议信，指责欧盟应对数十年来形成的双边对话与合作架构的持续破坏负责，并要求欧盟外交官必须尽快离开俄罗斯。
+
+欧盟驻俄罗斯代表团在一份声明中表示，它对俄罗斯毫无根据的举动表示遗憾，并指出俄罗斯选择的行动方针将使其在国际上更加孤立。
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

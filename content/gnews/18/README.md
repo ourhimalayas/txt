@@ -2,32 +2,28 @@
 ---
 
 
-## 有声|上海封锁进一步冲击全球供应链
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2361436/)
+## 上海一男性曾经力挺港警 如今自己被“维稳”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361540/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-4月8日多家媒体报导，由于中共在上海实施严格的疫情清零战略，各种管控措施正逐渐对国内的供应链造成破坏，并引发了人们对全球供应链受到冲击的担忧。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-15.jpg)
-多家公司表示，持续的封锁让他们不得不停止生产作业，放慢开发新项目的速度，而那些仍在运作的公司，除了要面临繁琐的许可证申请和病毒检测要求外，还在面临卡车司机短缺的问题。在上海港口，缺乏司机和其他工人使货物进出变得越来越困难。欧盟商会上海分会主席兼商会副主席许倍帝在接受采访时称，上海港每周的吞吐量已经较以往下降了40%。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-物流放缓甚至停滞导致的物资短缺正对国内庞大的消费经济带来伤害，淘宝等在线购物平台都面临交货延迟。
+近期，曾在香港反送中期间力挺港警的一位上海男性在微博上发帖批评当地警察以暴力手段强行征用民宅，引发网友们一片讪笑。
 
-同时，上海是世界第一货柜港口以及全球供应链的关键枢纽，也是中国对外贸易的重要门户，处理了大约17%的中共国港口的总吞吐量。封锁如果持续下去，将很快对世界各地产生负面影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-344.jpg)（图片来源：推特）
 
-文字版原文：[上海封锁进一步冲击全球供应链](https://gnews.org/zh-hans/2320204/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+据《自由时报》报道，近期，微博上一位名为“乖乖咙滴董”的网友贴出上海警察在张江纳仕国际社区殴打居民的视频，他控诉警方，“上海人民警察要强征我们小区作为隔离点！”据悉，中共上海以防止疫情扩散为由，将强行征用这位网友居住的小区作为隔离点，引起居民强烈反抗，从而遭到上海警察暴力维稳。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+然而，有网友却发现“乖乖咙滴董”曾在2019年香港反送中期间支持港警，还转发了当时力挺港警的名言：“我支持香港警察，你们可以打我了。”因此，网友纷纷嘲笑他，“你2019年的愿望，2022年终于实现了。”也有网友希望他以后能认清点这个社会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+目前，“乖乖咙滴董”已经关闭了自己的微博帐号。
+
+参考链接：
+[https://news.ltn.com.tw/news/world/breakingnews/3895075](https://news.ltn.com.tw/news/world/breakingnews/3895075)
+
+编辑：海星
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
