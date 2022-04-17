@@ -2,40 +2,34 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾 (2022年4月7日~4月15日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364174/)
+## 朝鲜试射 “新型战术制导武器”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2364262/)
 
-作者：香草山农场 BIM ；DC农场 火来
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-2022年4月6日至4月13日，除中共国外，全球新增中共病毒确诊患者663万余例，同比上周的847万余例下降了21.7%；此外，本周新增确诊死亡病例22,753例，同比上周的25418例下降了10.5%。本周已是连续第六周全球确诊病例和死亡病例持续负增长。 截止4月6日，除中共国外，全球累计接种了82.6亿剂中共病毒疫苗，同比4月6日的接种数据增长了0.487%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/shuaiguo.gif)（圖片：PhotoAC）
-4月7日，美国众议院议长南希佩罗西中共病毒检测阳性，此前，南希佩罗西已经完全接种了疫苗，并且接种了疫苗加强针。
+日本共同社4月17日转引朝鲜国营媒体朝中社周日的报道称，朝鲜领导人金正恩观察了“新型战术制导武器 ”的试射，这表明朝鲜在前一天发射了一枚短程导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/N-2.jpg)kfgo.com
+这一发展是在朝鲜于3月24日进行了自2017年11月以来的首次洲际弹道导弹发射之后发生的，这标志着朝鲜结束了2018年4月起实行的自我暂停洲际弹道导弹试验 。
 
-4月10日，数千人参加了在洛杉矶举办的“反对强制疫苗”集会。当下，美国各地已经逐渐放宽了一些强制措施，但仍然有一些学校、学院、企业、医院和公司继续采取疫苗强制措施。此外，在用药方面对治疗中共病毒的医生进行种种限制、大型科技公司对疫苗真相的审查与掩盖，对儿童进行不必要的疫苗接种，以及对科学论证保持缄默，是集会中强调的几个主要问题。
+官方的朝鲜中央通讯社说，这次试射是 “成功进行的”。它没有说朝鲜何时试射了该武器，但金正恩的活动通常会在一天后报道。
 
-4月12日，美国媒体揭露了辉瑞公司曾试图隐瞒新增聘的2400名全职员工，以负责处理疫苗副反应的案例。德克萨斯州法院下令辉瑞公司披露与中共疫苗有关的细节时，最新文件显示了与疫苗伤害相关的新增数字令人震惊。此前，法庭要求辉瑞公司及美国食品和药物管理局披露的文件中所罗列的1291项严重副反应，也仅简单列出副反应的名称，并未描述副反应的详细情况。
+韩国军方说，它探测到朝鲜在星期六下午6点左右向日本海发射了两枚弹，它们在大约25公里的高度上飞行了110公里，最高速度为4马赫，即音速的四倍。
 
-4月13日，华盛顿州卫生部官员投票反对强制要求学生接种中共疫苗。
+周五（4月15日），朝鲜纪念其创始人金日成（现任领导人的祖父）诞辰110周年，人们越来越担心朝鲜可能会针对美国和韩国进行军事挑衅。
 
-该州卫生委员会一致投票决定，不再推进为学生接种中共疫苗的申请。经过来自公众广泛的讨论和建议，华盛顿州卫生部官员认为，尽管中共疫苗对所有符合条件的年龄组都是安全的，但他们亦承认若强制要求儿童接种，将带来不可预计的多重影响。
+尽管人们猜测朝鲜可能在这一天发射洲际弹道导弹或进行第七次核试验，这一天是该国最大的节日，被称为 “太阳之日”，但结果没有看到这种举动。
 
-董事会成员鲍勃-卢茨博士在周三的会议上说，在与全州各学校校长的讨论中，他了解到：家长们担心学生会因没有注射疫苗而无法上课。校长们非常担心会流失大量的学生，以及父母将被逼带着孩子离开学校。
+许多外交事务专家说，朝鲜可能在周一前后采取挑衅行动，因为周一是美韩大规模联合军演的开始。平壤抨击这些演习是战争的 “预演”。
+
+**快评**：4月15日，朝鲜举行了盛大的纪念金日成诞辰110周年的活动，外界普遍担心当天朝鲜会发射洲际弹道导弹或进行第七次核试验，但没有发生。现在这个“新型战术制导武器”外界猜测是4月16日试射的。
+
+金正恩既要刷存在感又不敢真地对抗美日，唯一的目标就是保自己金家的独裁统治继续。习太阳非常羡慕金家的统治已经过了3代，自己也做着“中国梦”，正在独裁的路上远走越远，根本不顾百姓安危死活。
+
+东方的邪恶轴心国在联动，台海局势一触即发。
 
 参考链接：
-1.[COVID-19 vaccinations, cases, excess mortality, and much more](https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&amp;time=2022-04-07..latest&amp;country=~World+excl.+China)
-2.[Pelosi tests positive for COVID-19](https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/)
-3.[Thousands Protest Vaccine Mandates at Los Angeles Rally](https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally_4396176.html)
-4.[Pfizer Tries To Hide 2.4K Full-Time Hires Handling Vax Injuries](https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/)
-5.[Over 4000 Women have now lost their baby due to the Covid Vaccine in the USA; this is a 16,633% increase on the number of Fetus deaths caused by the Flu Jabs since 1990](https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/)
-6.[Washington health officials vote against requiring COVID vaccine for students](https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533)
+[https://english.kyodonews.net/news/2022/04/f734af111b06-update1-n-korea-test-fired-new-type-tactical-guided-weapon-kcna.html](https://english.kyodonews.net/news/2022/04/f734af111b06-update1-n-korea-test-fired-new-type-tactical-guided-weapon-kcna.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
-编辑：文恩
-总编：文恩
-审核：文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

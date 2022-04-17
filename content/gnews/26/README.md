@@ -2,31 +2,40 @@
 ---
 
 
-## 上海浦东发“告全体居民书” 仍坚持动态清零不顾百姓死活
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2364050/)
+## 一周疫情、疫苗信息回顾 (2022年4月7日~4月15日)
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364174/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-44.jpg)
-封城下的上海某处（图片来自《路透社》）
+作者：香草山农场 BIM ；DC农场 火来
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+2022年4月6日至4月13日，除中共国外，全球新增中共病毒确诊患者663万余例，同比上周的847万余例下降了21.7%；此外，本周新增确诊死亡病例22,753例，同比上周的25418例下降了10.5%。本周已是连续第六周全球确诊病例和死亡病例持续负增长。 截止4月6日，除中共国外，全球累计接种了82.6亿剂中共病毒疫苗，同比4月6日的接种数据增长了0.487%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/shuaiguo.gif)（圖片：PhotoAC）
+4月7日，美国众议院议长南希佩罗西中共病毒检测阳性，此前，南希佩罗西已经完全接种了疫苗，并且接种了疫苗加强针。
 
-中共国上海市执行严酷的疫情封控措施已经有三、四周时间了。4月16日晚，上海市浦东新区委员会与浦东新区政府联合发布“告浦东新区全体居民书”，称封控及动态清零政策不变，呼吁民众“坚持”。
+4月10日，数千人参加了在洛杉矶举办的“反对强制疫苗”集会。当下，美国各地已经逐渐放宽了一些强制措施，但仍然有一些学校、学院、企业、医院和公司继续采取疫苗强制措施。此外，在用药方面对治疗中共病毒的医生进行种种限制、大型科技公司对疫苗真相的审查与掩盖，对儿童进行不必要的疫苗接种，以及对科学论证保持缄默，是集会中强调的几个主要问题。
 
-据《阿波罗新闻网》4月17日报道，上海浦东新区官方微信公众号“浦东发布”4月16日晚发布公告称，浦东新区目前感染仍十分严重，已经连续四天超过1万人。公告指，奥米克戎病毒不是大号流感，它非常隐匿、非常狡猾，传染性极强，留下一点缝隙就会感染一大片。如果放任传播，将会带来极其严重、无法挽回的灾难性后果。只有第一时间发现感染者、第一时间集中隔离救治感染者和密接，才能彻底阻断病毒传播链条。
+4月12日，美国媒体揭露了辉瑞公司曾试图隐瞒新增聘的2400名全职员工，以负责处理疫苗副反应的案例。德克萨斯州法院下令辉瑞公司披露与中共疫苗有关的细节时，最新文件显示了与疫苗伤害相关的新增数字令人震惊。此前，法庭要求辉瑞公司及美国食品和药物管理局披露的文件中所罗列的1291项严重副反应，也仅简单列出副反应的名称，并未描述副反应的详细情况。
 
-公告书强调，在有关防疫措施方面， 将继续坚持“人民至上、生命至上，科学决策”，明确动态清零总方针不动摇。公告还指明：“在市委市政府的坚强领导下，采取全域静态管理、全员核酸检测、全面流调排查、全民清洁消杀的防控措施。”
+4月13日，华盛顿州卫生部官员投票反对强制要求学生接种中共疫苗。
 
-目前浦东新区已经封控了超过20天，有些社区甚至已经封控了一个多月。而这封“告全体居民书”却仍要求民众继续坚持，声称一旦放弃，之前的所有努力和牺牲都将付诸流水，将来还要付出更大的代价。
+该州卫生委员会一致投票决定，不再推进为学生接种中共疫苗的申请。经过来自公众广泛的讨论和建议，华盛顿州卫生部官员认为，尽管中共疫苗对所有符合条件的年龄组都是安全的，但他们亦承认若强制要求儿童接种，将带来不可预计的多重影响。
 
-从这份公告书可以看出，中共高层及上海当局不仅是要“一条道走到黑”，并且或将升级其防疫暴政。中共完全无视所谓的“清零政策”带来的次生灾难已经远远大于病毒本身，完全无视科学、无视人权、不顾百姓死活，上海人即便付出再多生命代价也不会令中共当权者回头。
+董事会成员鲍勃-卢茨博士在周三的会议上说，在与全州各学校校长的讨论中，他了解到：家长们担心学生会因没有注射疫苗而无法上课。校长们非常担心会流失大量的学生，以及父母将被逼带着孩子离开学校。
 
-上海人，为了你们基本的生存权利，该团结起来反抗了！
+参考链接：
+1.[COVID-19 vaccinations, cases, excess mortality, and much more](https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&amp;time=2022-04-07..latest&amp;country=~World+excl.+China)
+2.[Pelosi tests positive for COVID-19](https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/)
+3.[Thousands Protest Vaccine Mandates at Los Angeles Rally](https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally_4396176.html)
+4.[Pfizer Tries To Hide 2.4K Full-Time Hires Handling Vax Injuries](https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/)
+5.[Over 4000 Women have now lost their baby due to the Covid Vaccine in the USA; this is a 16,633% increase on the number of Fetus deaths caused by the Flu Jabs since 1990](https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/)
+6.[Washington health officials vote against requiring COVID vaccine for students](https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533)
 
-新闻链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-[https://www.aboluowang.com/2022/0417/1736154.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0417/1736154.html?utm_source=dlvr.it&amp;utm_medium=twitter)
-
-* * *
-
+编辑：文恩
+总编：文恩
+审核：文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
