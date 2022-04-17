@@ -2,26 +2,31 @@
 ---
 
 
-## 俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364753/)
+## 俄烏戰爭中第八位俄將軍陣亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2364743/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
-俄罗斯国防部16日在被俄军包围的乌克兰东南部要冲马里乌波尔宣布“从整个城市地区清除了乌克兰方面的战斗人员”，并劝告剩下的战斗人员投降。马里乌波尔当局17日表示将拒绝投降，俄方面警告称，“如果继续抵抗，将会赶尽杀绝”。被俄军包围马里乌波尔的攻防战迎来了生死局面。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2133.png)图片来源网络
-乌克兰总统泽连斯基16日在接受乌克兰媒体采访时表示，“不把本国领土和国民作为交易对象”，始终准备继续彻底抗战。他还说：“当我们的军队被全军覆没时，(与俄罗斯的)所有谈判都将结束。”
+作者：紐約香草山健身部-文鷹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2135.png)
 
-据互联社报道，俄国防部新闻发言人科纳申科夫16日就马里乌波尔的局势说明，在从城市地区清除乌克兰方面战斗人员的基础上劝降，“将残余部队困在(市内的)阿佐夫斯塔利钢铁厂场内”。“放下武器投降是保护自己生命的唯一机会”。塔斯社报道，俄军方16日向乌克兰方面提出，在莫斯科时间17日上午6时(日本时间17日中午)至下午1时期间将暂时停火，供留在炼厂内的乌克兰方战斗人员投降。
 
-下一篇：[俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）](https://gnews.org/zh-hans/2364767/)
+據外媒報道，俄軍第8近衛軍集團軍副司令官佛洛夫（VIadimirFroIv）葬禮，於16日在俄國聖彼得堡舉行，市長貝格洛夫主持了儀式。
 
-参考链接：[ロシア「抵抗なら全滅させる」　マリウポリで投降拒むウクライナに（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/70353d3af99e54f2bfa1d2ee7d7a3575bc9dfb0b)
+俄軍第8集團軍2月24日入侵烏克蘭後，司令官莫德維切夫中將已在3月份陣亡。佛洛夫的死亡日期可能在此月。該集團軍正副指揮官的雙陣亡，揭示俄軍在入侵戰爭中的軍事慘敗。
 
-* * *
+另16日消息指出，在烏克蘭東部地區。烏軍擊斃了俄軍坦克營指揮官巴沙科夫上校，為第34名上校。截止到俄烏戰爭爆發今日，俄軍共計42名高級指揮官殉命。
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+参考鏈接：[https://www.aboluowang.com/2022/0417/1736355.html](https://www.aboluowang.com/2022/0417/1736355.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/548B40D9-5BBD-4186-8F0C-E82BC615015F.jpeg)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 11:25 PM (UTC)`
+
+4/17/2022 Miles Guo: A senior official of the Ministry of Defense of a certain European country visited the tent of the NFSC & ROLF Ukraine rescue operation. He asked me to sincerely thank all our brothers and sisters at the front line! The world honors that our fellow fighters have earned for the Chinese and the gratitude this senior official has for us will benefit every Chinese!<br/><br/>4/17/2022 文贵直播：欧洲某国国防部的一位高官参观了新中国联邦法治基金乌克兰救援的帐篷，他嘱托文贵向前线的所有兄弟姐妹们致以衷心的感谢！战友们为中国人在全世界赢得的荣誉和这位高官对我们的感激将惠及每一个中国人！
+![img](https://media.gettr.com/group28/getter/2022/04/17/23/94edf85f-30e3-13ef-0838-d51d44c00add/out.jpg)
+
+---
+
 `@miles 4/17/2022 11:00 PM (UTC)`
 
 2022.04.17 NFSC news  Miles: The CCP Finally Launches Operation "Taiwan the Son."
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 2022-4-16《鸡血王喜币大作战》 第一百六十七集 嘉宾：卡丽熙、Eric
 ![img](https://media.gettr.com/group45/origin/2022/04/17/03/04bc0ca2-7182-685b-4d4a-1a101636e85c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 2:33 AM (UTC)`
-
-4/16/2022 Miles Guo: You have the right to defend yourself if any government wants to take you away from your home or kill you without due process; as long as you take actions smartly, and you are capable and have common sense; the New Federal State of China's rescue operation at the Ukraine front line serves as a good example and platform, through which the Western world can understand the Asians<br/><br/>4/16/2022 文贵直播：当任何政府不按法律程序剥夺你的人身自由和生命的时候，你都有权自卫；但你要有智慧、行动力和基本常识；新中国联邦的乌克兰救援行动就是一个例子，一个让西方了解亚洲人的平台<br/>
-![img](https://media.gettr.com/group11/getter/2022/04/17/02/95b4a0f7-e43d-f30a-ea6d-907e2d1c6549/out.jpg)
 
 ---
 

@@ -39,137 +39,137 @@
 ### [特鲁多决定审查互联网](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [俄罗斯黑海舰队旗舰莫斯科号沉没](/content/gnews/9/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）](/content/gnews/10/README.md)
+### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](/content/gnews/11/README.md)
+### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马斯克因延迟披露信息被Twitter原股东起诉](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [俄烏戰爭中第八位俄將軍陣亡](/content/gnews/13/README.md)
+### [俄烏戰爭中第八位俄將軍陣亡](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [4月18日起韩美军演 朝鲜可能反制（下）](/content/gnews/14/README.md)
+### [4月18日起韩美军演 朝鲜可能反制（下）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月18日起韩美军演 朝鲜可能反制（上）](/content/gnews/15/README.md)
+### [4月18日起韩美军演 朝鲜可能反制（上）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拒绝俄罗斯军队劝降，作誓死抵抗的架势 隐蔽在马里乌波尔Azovstari钢铁厂内的乌克兰士兵](/content/gnews/16/README.md)
+### [拒绝俄罗斯军队劝降，作誓死抵抗的架势 隐蔽在马里乌波尔Azovstari钢铁厂内的乌克兰士兵](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜马拉雅农场有偿征集中共军政情报](/content/gnews/17/README.md)
+### [喜马拉雅农场有偿征集中共军政情报](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [中共即将对多个大城市实施大封锁隔离](/content/gnews/18/README.md)
+### [中共即将对多个大城市实施大封锁隔离](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [班农称乌克兰前线救援创造历史性瞬间](/content/gnews/19/README.md)
+### [班农称乌克兰前线救援创造历史性瞬间](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [美国陆军以模拟的俄乌战争来训练士兵](/content/gnews/20/README.md)
+### [美国陆军以模拟的俄乌战争来训练士兵](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|上海一网友曾力挺港警 如今自己被“维稳“](/content/gnews/21/README.md)
+### [有声|上海一网友曾力挺港警 如今自己被“维稳“](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [2022/04/12 墙内世界](/content/gnews/22/README.md)
+### [2022/04/12 墙内世界](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|欧盟委员会启动数字欧元咨询](/content/gnews/23/README.md)
+### [有声|欧盟委员会启动数字欧元咨询](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [中共国在约有1300万人口的西安市导入大规模的行动限制](/content/gnews/24/README.md)
+### [中共国在约有1300万人口的西安市导入大规模的行动限制](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵盖特音频2022.04.17](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [有声|Bison Bank 成为葡萄牙第一家获得加密许可证的银行](/content/gnews/26/README.md)
+### [有声|Bison Bank 成为葡萄牙第一家获得加密许可证的银行](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [上海名人被中共折磨致死](/content/gnews/27/README.md)
+### [上海名人被中共折磨致死](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [截至4.17 俄乌战事汇总](/content/gnews/28/README.md)
+### [截至4.17 俄乌战事汇总](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共狙击美元的战略已经成功](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频文编|未来一两年，国内的战友需要备好现金、粮食、水和安全的居所](/content/gnews/30/README.md)
+### [视频文编|独裁国家俄罗斯和中国共产党，相信他们就会成为他们的奴隶！](/content/gnews/26/README.md)
  ` KarmaLabs`
 
-### [二氧化氯，川普说的消毒剂，能抗击冠状病毒和毒疫苗吗？](/content/gnews/31/README.md)
+### [中共狙击美元的战略已经成功](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频文编|未来一两年，国内的战友需要备好现金、粮食、水和安全的居所](/content/gnews/28/README.md)
+ ` KarmaLabs`
+
+### [二氧化氯，川普说的消毒剂，能抗击冠状病毒和毒疫苗吗？](/content/gnews/29/README.md)
  ` 波士顿五月花农场`
 
-### [中共的外宣和上海的疫情走势](/content/gnews/32/README.md)
+### [中共的外宣和上海的疫情走势](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频文编|CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/33/README.md)
+### [视频文编|CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/31/README.md)
  ` KarmaLabs`
 
-### [欧盟将针对俄罗斯石油和银行领域实施第6轮制裁](/content/gnews/34/README.md)
+### [欧盟将针对俄罗斯石油和银行领域实施第6轮制裁](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [习近平与沙特王储共谋独裁战略关系](/content/gnews/35/README.md)
+### [习近平与沙特王储共谋独裁战略关系](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [非洲也不需要如此多的疫苗，大量新冠疫苗过期](/content/gnews/36/README.md)
- ` xiaobaige`
+### [视频文编|台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/34/README.md)
+ ` KarmaLabs`
 
-### [中欧班列新进开通多趟列车前往俄罗斯](/content/gnews/37/README.md)
+### [视频文编|我们已经退无可退，真正到了要承载历史使命的时刻了](/content/gnews/35/README.md)
+ ` KarmaLabs`
+
+### [中欧班列新进开通多趟列车前往俄罗斯](/content/gnews/36/README.md)
  ` 银河歌舞厅`
 
-### [北朝鲜试射 &#8220;新型战术制导武器 &#8221; 韩国军方证实有飞行物发射](/content/gnews/38/README.md)
+### [北朝鲜试射 &#8220;新型战术制导武器 &#8221; 韩国军方证实有飞行物发射](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜联储的创始人William Je 余建明接受英国GB News关于虚拟货币的采访](/content/gnews/39/README.md)
+### [喜联储的创始人William Je 余建明接受英国GB News关于虚拟货币的采访](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/17/2022国内经济财经周报：央行放水5300亿；银行下调交易限额；小麦价格持续飙涨](/content/gnews/40/README.md)
+### [4/17/2022国内经济财经周报：央行放水5300亿；银行下调交易限额；小麦价格持续飙涨](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [近百名犹太人在新中国联邦的七星大帐蓬共度逾越节](/content/gnews/41/README.md)
+### [近百名犹太人在新中国联邦的七星大帐蓬共度逾越节](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [传北京要求上海4月20号清零](/content/gnews/42/README.md)
+### [传北京要求上海4月20号清零](/content/gnews/41/README.md)
  ` 波士顿五月花农场金融部`
 
-### [美国及世界疫情简报（04-17-2022）](/content/gnews/43/README.md)
+### [美国及世界疫情简报（04-17-2022）](/content/gnews/42/README.md)
  ` 波士顿五月花农场`
 
-### [俄罗斯军方在日本海发射导弹，牵制日本的经济制裁](/content/gnews/44/README.md)
+### [俄罗斯军方在日本海发射导弹，牵制日本的经济制裁](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾｜美前国安顾问吁美军驻台 郭文贵：美国将对台有一系列政策](/content/gnews/45/README.md)
+### [台湾｜美前国安顾问吁美军驻台 郭文贵：美国将对台有一系列政策](/content/gnews/44/README.md)
  ` 關注組`
 
-### [乌克兰第一夫人奥莱娜·泽连斯卡谈被围困的生活——以及她的国家如何向前发展](/content/gnews/46/README.md)
+### [乌克兰第一夫人奥莱娜·泽连斯卡谈被围困的生活——以及她的国家如何向前发展](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [中共自曝清零目的：制度与国力之争](/content/gnews/47/README.md)
+### [中共自曝清零目的：制度与国力之争](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [上海疫情｜继浦东市民抗议后 中共发布《吿浦东居民书》：绝不动摇“动态清零”方针](/content/gnews/48/README.md)
+### [上海疫情｜继浦东市民抗议后 中共发布《吿浦东居民书》：绝不动摇“动态清零”方针](/content/gnews/47/README.md)
  ` 關注組`
 
-### [日首相与美访日议员重申合作](/content/gnews/49/README.md)
+### [日首相与美访日议员重申合作](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [“感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照](/content/gnews/50/README.md)
+### [“感觉世界更安全了”：男性、女性和“X”，美国开始发放中性护照](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [尽管有死亡风险，泰国仍将缅甸难民遣返](/content/gnews/51/README.md)
+### [尽管有死亡风险，泰国仍将缅甸难民遣返](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/52/README.md)
+### [焦点：千古一魔习近平封锁4亿人将导致全国汽车停产](/content/gnews/51/README.md)
  ` 蓝莲花农场`
+
+### [小小尼莫成长记（七）- 读万卷书 行万里路](/content/gnews/52/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

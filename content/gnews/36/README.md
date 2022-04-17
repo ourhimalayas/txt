@@ -2,23 +2,40 @@
 ---
 
 
-## 非洲也不需要如此多的疫苗，大量新冠疫苗过期
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2364046/)
+## 中欧班列新进开通多趟列车前往俄罗斯
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2363998/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1539082945.png)
+当地时间4月15日，郭先生爆料中共支援俄罗斯的物资通过火车运输抵达，因俄罗斯战事吃紧，中共的物资频繁地被运抵俄罗斯。中共是俄罗斯侵略乌克兰的背后支持者，近日为了给俄罗斯运输物资，中共一带一路重要项目中欧班列新添了多趟列车。
 
-大约有一亿剂送到非洲的新冠疫苗过期，又被发回原处。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-17-alle-16.32.46.png)图片来源：imolaoggi.it
-世界上的新冠疫苗太多了。大约还有二十三亿剂的疫苗待注射，在富裕国家已有两亿四千一百万剂疫苗被扔掉。德国已有三百万疫苗过期，法国二百一十八万疫苗过期。这些过多的疫苗数据已由意大利《共和国》报登出，数量令人不安。以色列打了第二剂新冠疫苗中的25%的人没打第三剂，打了第三剂中的50%的没打第四剂。而在意大利还有五百万诺瓦瓦克斯疫苗放在冰箱里，自二月以来有一百万剂到达意大利：但只注射了三万六千剂，使用期限是九个月。
+据中共国公开新闻显示，截止2022年1月29日，中欧班列累计开行5万列。中欧班列途径俄罗斯的三个出境口岸为阿拉山口（霍尔果斯）、二连浩特、满洲里。截至4月15日，满洲里累计开行数量达到15000列。霍尔果斯累计开行20239列，在3月19日，霍尔果斯口岸的这个数字是19526，短短27天开行达到713列，往常每月大概是500列。这只是霍尔果斯一个口岸的吞吐量。
 
-非洲联盟与穷国分享新冠疫苗的国际行动（Covax ）已经拒绝了两个到期库存的莫德纳六千万至一亿六千六百万剂疫苗。非洲两剂疫苗的覆盖率只有15%（世界平均接种率为57%），非洲大陆只注射了七亿疫苗中的4亿剂。大约有一亿剂到达非洲的疫苗过期，被发送回原址。去年12月尼日利亚扔掉了一亿剂阿斯利康过期疫苗。当时尼日利亚政府在首都阿布贾附近垃圾填埋场挖了一个巨坑，推土机将仍然完好无破的装有新冠疫苗的箱子推入大坑。
+除了增加原有线路的开行次数，中共还增添了多条线路。在4月13日开通中豫号里海、黑海班列，当天五地六列班车齐发。直抵莫斯科的列车有，4月15日九江至莫斯科线路复航，4月6日赤峰至莫斯科首度开行。3月25日，咸宁至莫斯科首度开行。
 
-参考链接：
 
-[https://www.lapressa.it/articoli/societa/troppi-vaccini-anche-lafrica-non-li-vuole-milioni-di-dosi-al-macero](https://www.lapressa.it/articoli/societa/troppi-vaccini-anche-lafrica-non-li-vuole-milioni-di-dosi-al-macero)
 
-编辑、上传：Xiao baige
+reference：
 
+[http://www.news.cn/world/2022-04/16/c\_1128566580.htm](http://www.news.cn/world/2022-04/16/c_1128566580.htm)
+
+[https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm\_HF1s9g](https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm_HF1s9g)[https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn\_Mbv\_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo\_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA](https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn_Mbv_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA)
+
+[https://baike.baidu.com/reference/15832643/c396syJUUu-jQ\_svfwIY9Wm-5ctVFeBDk3kN\_6RZgJ3VDcBTkKi\_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA](https://baike.baidu.com/reference/15832643/c396syJUUu-jQ_svfwIY9Wm-5ctVFeBDk3kN_6RZgJ3VDcBTkKi_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
