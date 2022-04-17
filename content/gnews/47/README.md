@@ -2,64 +2,32 @@
 ---
 
 
-## 建议上海卫健委领导精神病鉴定并持48小时内报告上岗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358881/)
+## 新联邦在梅迪卡的大帐蓬被誉为“解放帐篷”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2360714/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/习近平全面部署_副本.jpg)
-据[老司机](https://twitter.com/h5LPyKL7TP6jjop)[@h5LPyKL7TP6jjop](https://twitter.com/h5LPyKL7TP6jjop)于[上午3:25 · 2022年4月17日](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080)发布的推文——
+撰稿、编辑：Candy
 
-这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！
+波兰时间4月15日晚，在梅迪卡的新中国联邦和法治基金的大帐蓬里欢度的犹太逾越节上，前线战友Nicole采访了一位“同心”（One Heart)救援团队的犹太义工。他自我介绍说：他叫那里安（Naria），来自耶路撒冷（Jerusalem），到波兰的梅迪卡救援在乌克兰境内的和逃到波兰的难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/犹太人.png)[https://www.gettr.com/post/p15mfh51324](https://www.gettr.com/post/p15mfh51324)
+当Nicole问他关于和新中国联邦人一起度过这个节日的感受时，他讲了当日的白天去访问乌克兰境内的利沃夫时的所见所闻：
 
+他发现在乌克兰，尤其是利沃夫的难民中心，都是由年轻人组织、领导的，而且有好几个人的胳膊上都有乌克兰国旗的纹身，上面刻着“独立战争”字样。所以，对于乌克兰人、在埃及受奴役的犹太人、以及新中国联邦人，这场俄乌战争就是关于你要独立、自由、解放的战争。
 
+他说，现在进行的这个庆祝活动有三个层面的意义：他们是一千年前为自由而战的犹太人；在不到100年前，第二次世界大战的大屠杀期间，在波兰的这块土地上，他们再次为自由而战；而现在的新中国联邦人也在为解放而进行同样的战斗；还有乌克兰人，大家一起在这块土地上的同一个帐篷里，为自由解放而战。这是如此感人，鼓舞人心！
 
-> 这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！ [pic.twitter.com/BeSoYDGByJ](https://t.co/BeSoYDGByJ)
-> — 老司机 (@h5LPyKL7TP6jjop) [April 16, 2022](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080?ref_src=twsrc%5Etfw)
+因此，新中国联邦和法治基金共建的这个大帐篷，应该取名“解放帐篷”，这也是很多波兰的犹太人给予的赞誉。因为我们正在帮助乌克兰难民逃离战争，拥抱自由；而法治基金会也在帮助14亿中国人民摆脱中共的奴役。犹太人是一个很好的先例，成功从埃及人的奴役中解放出来；然后是二战时波兰人与纳粹的战斗；今天是新中国人正在推翻中共。
 
+愿我们的七星大帐蓬迎来更多的正义之士，让我们团结在一起，消灭邪恶的中共及地球上的共产党，铲除这个罪恶的根源，解放全人类！
 
+参考来源：[https://www.gettr.com/post/p15mfh51324](https://www.gettr.com/post/p15mfh51324)
 
-**接线员：**以防疫管控的这样一个措施您是觉得不合理？
+***发布：Candy***
 
-**投诉者：**他所谓的健康筛查，它是违反传染病防治法规定的。传染病防治法规定的说，你这个防控的对象只能是病人、密接，你对健康人群搞什么核酸检测、搞健康筛查。这逻辑很可笑的呀，按照这个逻辑，所有的上海市所有的卫健委系统的领导要全部进行精神病鉴定的，对吧？
-
-第一，精神病患者是不适合做领导工作的，我们都知道，因为他的角色和部署是不正常的、不靠谱的。
-
-那么第二，卫健委系统的每个领导都可能具有精神疾病，都是潜在的精神病患者。
-
-第三，为了保证全市人民的健康着想，本着早发现、早报告、早治疗的原则和目的，建议卫健委系统的每一个领导都去做精神病鉴定，持四十八小时内精神正常的鉴定报告上岗工作，这样我们才放心。
-
-知道吗？就是你按照他们这种逻辑，来让他们做精神病鉴定，看他们能不能发现这种决策的可笑之处，或者说愚昧之处，怎么能用潜在的精神病患者来做决策和部署呢？
-
-**接线员：**呃，关于这个问题我会帮您反馈上去的，谢谢，让法律部门去核实处理。
-
-**投诉者：**一定要回复！
-
-**接线员：**好的，请您保持电话的畅通，我帮您转上去。
-
-\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
-
-这一通对上海卫健委系统领导的投诉，以及建议卫健委系统的每位领导都去做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作的建议其实说出了我们每个人想说而没有说的话，但是我们有必要举一反三，对于全面部署、全面指挥这场冠状病毒抗疫的伟大领袖习猪头，他才是一切灾难的源头，在此也特别建议伟大领袖习猪头做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,49 +2,75 @@
 ---
 
 
-## 退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2361454/)
+## 中情局长谴责俄罗斯罪行 称中共国是普京侵略的沉默伙伴
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2361532/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰-1.jpg)
-据[**张新年律师**](https://weibo.com/xinnianzhang) [22-04-17 10:16](https://weibo.com/2611415173/LoPH3oEyq?from=page_1005052611415173_profile&amp;wvr=6&amp;mod=weibotime)新浪微博
+翻译: 里奇
 
-这两张图片在朋友圈刷屏了，看到后，我一念头就是要帮这位退休老检察官秦培丰转发求助！但点击秦老师的微博主页发现：第一张的求助微博已不在，第二张还在，目前微博也没更新。我很担心他，谁知道现在的情况吗？谁知道发生什么了吗？不管怎样，对于突发疾病患者，应尽快安排治疗，希望秦老师早日康复
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
 
 
-经查秦培丰的这条新浪微博依然健在——[**秦培丰**](https://weibo.com/u/2401934164)[20-12-3 12:31](https://weibo.com/2401934164/JwJO0dC8q?from=page_1005052401934164_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-343.jpg)
+中央情报局局长威廉·伯恩斯周四谴责俄罗斯军队在布查和整个乌克兰犯下的“可怕”罪行，并警告说，即将进入第八周的战争的后续阶段将涉及持续的流血事件。
 
-李光满：方方、“蚂蝗”、日本军旗相继上演！艰难时刻，任正非的演讲令人泪崩！[O李光满：方方、“蚂蝗”、日本军旗相继上演！艰…](http://t.cn/A6GdlDL1) ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰3.png)
-对照上海的党员花名册，我们可以找到的信息是——
+“普京战争的最后一章还没有写完，因为他仍在乌克兰打擂，” 伯恩斯在准备好的公开讲话中说，以纪念他上任的第一年。“我毫不怀疑普京会继续对乌克兰造成残酷的痛苦和损毁，或者俄罗斯军队正在实施的野蛮暴行。”
 
-秦培丰，性别：男，民族：汉族，籍贯：福建，所属支部：中共黄浦区人民检察院退休第三支部委员会，身份证号码：310101194612193214
+伯恩斯在佐治亚理工学院对学生和教职员工发表讲话时称，以习近平主席为首的中共国是“普京侵略的沉默伙伴”，并表示这是美国面临的“最大挑战”和“中央情报局曾经面对过的最深刻的考验”。
 
-秦培丰的深夜求救信息已经尸骨无存，不知道秦培丰检察官是否音容宛在，为什么你总是眼含热泪？因为你的脑子里进了太多水，所有秦培丰们曾经对方方的辱骂、对独裁的赞歌都是有意义和有价值的，因为冥冥之中总有一双眼睛在看着你，冥冥之中总有轮回在等着你。
+在他的讲话中，伯恩斯描述了该机构在他称之为一个“新时代”中必须应对的几项广泛挑战——他说，其特点是日益敌对的中共国、“好斗和修正主义”的俄罗斯，以及其他日益增长的技术、气候和全球健康威胁。
 
-撰稿：喜马拉雅的肉夹馍；
+“中央情报局必须重新构想自己，才能在这个新时代成功胜出” 他说。
 
-审核：喜马拉雅的馍夹肉；
+作为一名职业外交官，曾担任美国驻俄罗斯大使，伯恩斯详细谈到了克里姆林宫的侵略所构成的“直接”威胁，并称俄罗斯总统弗拉基米尔·普京是“报复的使徒”，多年来，随着他的值得信赖的顾问圈人数缩减，他对风险的胃口越来越大。
 
-校对：Maarago；
+“每天，普京一直在展示，无论如何衰落的大国与崛起的大国一样具有破坏性，” 他说。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+伯恩斯讲述了他如何在 11 月与普京的互动中“陷入困境”，当时拜登总统派遣中央情报局局长前往莫斯科警告俄罗斯人可能在乌克兰采取军事行动的后果。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+伯恩斯说：“虽然他似乎还没有做出不可逆转的决定入侵乌克兰，但普京坚定地朝这个方向倾斜，显然担心他塑造乌克兰方向的窗口正在关闭。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+他说普京当时似乎确信乌克兰人会很快屈服，他自己的军队可以“以最小的代价”获胜；欧洲人将继续“规避风险”，并且他自己的经济受到大量外汇储备的“制裁证明”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+“当他七周前发动战争时，普京在这些方面都被证明是错误的” 伯恩斯说。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+他说，马里乌波尔和哈尔科夫的场景，在俄罗斯人长达数周的攻击下，“令人遗憾地让人想起”他在 1994 年冬天作为一名年轻的外交官在车臣格罗兹尼目睹的画面。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+“但乌克兰的意志是坚不可摧的，普京领导下的俄罗斯给自己造成了巨大的物质和声誉损害，”他说。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+伯恩斯赞扬了他所说的美国情报人员在很大程度上不为人知的工作，并一再称赞拜登政府公开发布有关俄罗斯计划的解密情报的政策所产生的影响，他说这“在某些重要方面得到了回报”。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+“通过公开我们的一些秘密，我们让普京更难掩盖他无端和恶毒侵略的真相，”伯恩斯说，并补充，该战略的成功反映了一个对智能要求独特的时代需要 “新思维和新策略” 。
+
+据美国官员称，上周，情报界扩大了与乌克兰共享情报的范围，以反映不断变化的战术现实，并应对俄罗斯在该国东部和南部迫在眉睫的进攻。
+
+一位美国情报官员告诉哥伦比亚广播公司新闻：“我们正在与乌克兰人密切分享及时的情报，以帮助他们在全国范围内进行自卫，包括在 2022 年入侵之前俄罗斯控制的地区。”
+
+伯恩斯在周四的问答环节中表示，克里姆林宫早些时候关于可能使用核武器的“修辞姿态”迄今尚未与部署或军事部署的“实际证据”相匹配，但中央情报局表示会“非常专注地注意这一点”。
+
+他还表示，该机构将增加其致力于中共国的投入，他说，中共国试图在“几乎所有领域”超越美国。他说，中央情报局的目标是将其会说普通话的官员人数“翻一番”，并增加专注于北京的海外职位。
+
+伯恩斯说：“对于我们作为情报机构的长期成功而言，没有什么比我们与[中华人民共和国]竞争的好坏以及我们在未来几年内为这场竞争组织自己的能力更重要的了。”
+
+
+```
+新闻来源:CIA Director William Burns decries Russia's "horrific" crimes in Ukraine, 
+calls out China as "silent partner in Putin's aggression"
+```
+
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-27.jpeg)
 
  
 

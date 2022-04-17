@@ -2,64 +2,49 @@
 ---
 
 
-## 埃隆·马斯克就是这么“大”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361404/)
+## 退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2361454/)
 
-翻译：日本东京方舟农场  Skyfrog
+![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰-1.jpg)
+据[**张新年律师**](https://weibo.com/xinnianzhang) [22-04-17 10:16](https://weibo.com/2611415173/LoPH3oEyq?from=page_1005052611415173_profile&amp;wvr=6&amp;mod=weibotime)新浪微博
 
-下述文字摘自1964年1月4日的《雷诺晚报》：“当 迪恩·马丁、弗兰克·辛纳屈和他们的好友山姆·戴维斯出现在拉斯维加斯金沙集团成立 11 周年纪念日时， 迪恩向弗兰克鞠躬并说：“这是你的世界，弗兰克；我只是生活在其中。”
+这两张图片在朋友圈刷屏了，看到后，我一念头就是要帮这位退休老检察官秦培丰转发求助！但点击秦老师的微博主页发现：第一张的求助微博已不在，第二张还在，目前微博也没更新。我很担心他，谁知道现在的情况吗？谁知道发生什么了吗？不管怎样，对于突发疾病患者，应尽快安排治疗，希望秦老师早日康复
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-342.jpg)（图片来源：finance.yahoo.com）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰2.jpg)
 
-今天的版本：这是你的世界，埃隆；我只是生活在其中。
 
-从史蒂夫·乔布斯到霍华德·休斯，再到托马斯·爱迪生，当然还有托尼·斯塔克，人们都拿埃隆·马斯克与之相比，但辛纳屈也很合适。一曲老蓝眼睛可能是“世界之王”、“世界之巅”，也有其批评者。但马斯克的影响力远远超出了辛纳屈。作为一个全球偶像和商人，马斯克比流行文化人物拥有更大的能量。
+经查秦培丰的这条新浪微博依然健在——[**秦培丰**](https://weibo.com/u/2401934164)[20-12-3 12:31](https://weibo.com/2401934164/JwJO0dC8q?from=page_1005052401934164_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
 
-我不是在这里评判马斯克和他的行为就像在推特和其他地方的网络攻击——但这是一个事实。我的观点是，马斯克的帝国、财富和机构从未像现在这样更强、更大、更高——而且它们可能也还没有达到顶峰。让我们逐一看看。
+李光满：方方、“蚂蝗”、日本军旗相继上演！艰难时刻，任正非的演讲令人泪崩！[O李光满：方方、“蚂蝗”、日本军旗相继上演！艰…](http://t.cn/A6GdlDL1) ​​​​
+![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰3.png)
+对照上海的党员花名册，我们可以找到的信息是——
 
-**帝国**
+秦培丰，性别：男，民族：汉族，籍贯：福建，所属支部：中共黄浦区人民检察院退休第三支部委员会，身份证号码：310101194612193214
 
-众所周知，马斯克控制或持有着一系列公司，包括两家颠覆性巨头:特斯拉、SpaceX，以及The Boring Company、Neuralink和OpenAI。还有一些子公司，比如SpaceX的Starlink和特斯拉的特斯拉能源。再想想马斯克帮助创立或投资的其他公司，包括Zip2(被惠普收购的康柏公司收购)、PayPal和DeepMind(被谷歌收购)，以及由离开这些事业的员工创立的公司。
+秦培丰的深夜求救信息已经尸骨无存，不知道秦培丰检察官是否音容宛在，为什么你总是眼含热泪？因为你的脑子里进了太多水，所有秦培丰们曾经对方方的辱骂、对独裁的赞歌都是有意义和有价值的，因为冥冥之中总有一双眼睛在看着你，冥冥之中总有轮回在等着你。
 
-根据 Crunchbase 的数据，私人持有的 SpaceX 价值超过 1000 亿美元（高于一年前的 740 亿美元），这是一个罕见的百角兽公司，仅次于中国的字节跳动（抖音的所有者）和中国的蚂蚁集团，他们是地球上有价值的私人公司。特斯拉从三年前的 340 亿美元，现在的价值超过 1 万亿美元， 23 倍的增长！
+撰稿：喜马拉雅的肉夹馍；
 
-杰富瑞公司马斯克的特斯拉分析师菲利普·霍乔斯表示:“关于人类自身，我能说的就是他所有的行为——它们要么得到了验证，要么还没有被证明是错误的。”
+审核：喜马拉雅的馍夹肉；
 
-耶鲁大学管理学教授杰弗里·索南菲尔德补充称:“埃隆·马斯克的小丑行为极大地分散了人们的注意力，很多企业界人士对他不屑一顾。
+校对：Maarago；
 
-如此高的估值还不足以说明特斯拉和SpaceX的重要性和影响力。你如何评价带领整个世界的交通运输行业远离化石燃料，进入电力时代？或者加速太空探索，也许是殖民太空，同时为世界提供可靠的互联网？
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**财富**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-要了解马斯克的财富，这个很容易，据彭博亿万富翁指数显示，50岁的埃隆·马斯克是世界上最富有的人，目前身价为2760亿美元，比排名第二的杰夫·贝佐斯多出870亿美元。马斯克比贝佐斯和他的前妻麦肯齐·斯科特加起来还富有，比沃尔顿家族所有成员加起来还富有。据网络统计门户网站估计，“美国居民平均需要工作300万年，年均工资为69392美元”才能积累马斯克的财富。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-还要注意的是，根据沃克斯传媒的调查，马斯克是美国最受欢迎的亿万富翁，50%的受访者说他们对他有好感——顺便说一句，这和民主党和共和党人的看法相当——“惊人的”66%的男性对他有好感。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-看看其他顶级亿万富翁——盖茨、佩奇、阿尔诺和巴菲特——你敢打赌谁的前景最乐观？这也印证了最近关于马斯克成为世界第一个万亿富翁的研究。这种方法似乎是一种推断，表明马斯克将在24个月内成为万亿富翁。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**机构**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-正如我相信你本周看到的，马斯克透露他购买了推特9.2%的股份(使他成为该公司最大的股东)，这使得该公司的股票飙升，并为他净赚了超过5亿美元。马斯克将在公司董事会任职，他起初表示自己是被动投资者，后来改为主动投资者。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-推特是马斯克与8070万粉丝沟通的途径(在该平台是否应该有编辑功能的问题上，他获得了440万粉丝的支持)。马斯克利用推特去中介化媒体，这是有道理的，因为他的观众人数是《60分钟》的10倍，或者是《华尔街日报》的20倍，尽管他在推特的地位可能不是市场所认为的好处。
-
-马斯克喜欢和其他全球男性领袖争吵，比如贝佐斯、乔·拜登和普京。奥巴马和特朗普就没那么喜欢了，不过我敢打赌马斯克肯定被最近的这个标题给吓了一跳:“随着埃隆·马斯克投资，推特股票爆炸式增长，而唐纳德·特朗普投资的公司股票暴跌。
-
-每天早上在雅虎财经，我们都有一个编辑部会议。马斯克和他的公司几乎每天都会出现，有时还不止一次(昨天是奥斯丁“网络竞技”盛大开幕)。世界各地的新闻编辑部也是如此。没有人能与之媲美。
-
-去年12月，我去了位于时代广场的纳斯达克总部，马斯克在那里被《时代》杂志评为年度人物。(实际上，我是在走廊里碰到他的，还跟他寒暄了几句。)马斯克的时装模特母亲梅耶也在现场，马斯克当时18个月大的儿子X也在现场，他举止得体，抢尽了风头。
-
-马斯克谈到了他对太空的愿景:“SpaceX的目的是帮助人类成为太空文明，最终成为多星球物种，从而扩大意识的范围和规模，最终更好地理解什么是宇宙。”哇。这可不是小事。
-
-我和玛莎·斯图尔特坐在几张桌子的距离，她看上去几乎是一个追星族，她喊道:“嘿，埃隆，电动卡车什么时候上市？”
-
-是啊，还早着呢。
-
-原文链接：
-[https://finance.yahoo.com/news/elon-musk-is-this-big-113616383.html](https://finance.yahoo.com/news/elon-musk-is-this-big-113616383.html)
-
-校对：妙喜小油鍋
-发布：爱放飞
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

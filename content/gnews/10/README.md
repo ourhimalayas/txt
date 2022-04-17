@@ -2,31 +2,59 @@
 ---
 
 
-## 上海疫情｜继浦东市民抗议后 中共发布《吿浦东居民书》：绝不动摇“动态清零”方针
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2361775/)
+## COVID-19疫苗副作用集萃(2022.4.17H) 打完新冠疫苗对身体危害太大了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362243/)
 
-**图/文｜CP **
-**发布时间｜17/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/繼浦東市民抗議後-中共發布《吿浦東居民書》：絕不動搖「動態清零」方針.jpg)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+整理/编辑：禄森
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：小红书
 
 
-中共当局对上海已实施3周严厉封城措施，惟确诊数字依然高企。早前，上海浦东新区市民忍无可忍，走上街头和平抗议，导致中共当局出动大批警力镇压。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-不仅如此，上海浦东新区政府昨晚（16日）还发布《告浦东新区全体居民书》，强调“动态清零”总方针绝不动摇。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-通知提到，鉴于浦东新区的疫情防控形势仍然严峻复杂，新增的阳性感染者数量仍然在高位运行，已经连续4天超过1万人；而且Omicron病毒非常隐匿且传染性极强，留下一点缝隙就会感染一大片，如果放任传播，将会带来极其严重的无法挽回的灾难性后果。
+**帖子原文**：
 
-因此，中共党中央坚持“动态清零”总方针不动摇，在上海市委市政府的坚强配合下，继续采取“全域静态管理、全员核酸检测、全面流调排查、全民清洁消杀”的防控措施。
+**博主:  小杨同学的摆摊日常**
 
-当局警告，浦东新区已经封控20天，但越是困难的时候，就越是要坚持，一旦放弃，将来要付出更大代价。
+打完新冠疫苗的你有副作用吗
 
-來源｜[上海证券报](https://news.cnstock.com/news,bwkx-202204-4863612.htm)
+前天打完疫苗，昨天人都废了
 
-* * *
+发烧，浑身酸疼，接种的胳膊也超级疼
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+我这是咋啦？
+
+**作者发布于2022-4-13**
+
+**评论选集**
+
+I am alive评论:
+
+没啥副作用，就是打完三个月不来姨妈而已
+
+飞翔的鱼评论:
+
+北京生物2针，确诊胰腺受损。
+
+张张小评论:
+
+胖了20斤，以前吃不胖，找我每天都好饿，我都快抑郁了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2067.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2068.png)图片来源：小红书
+参考链接：
+
+[全身酸痛，发烧](https://www.xiaohongshu.com/discovery/item/62567f4100000000210397e7?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650067959)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
