@@ -2,49 +2,36 @@
 ---
 
 
-## 退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2361454/)
+## 受西方制裁俄企困于资金和零部件缺乏被迫停产新坦克
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2361903/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰-1.jpg)
-据[**张新年律师**](https://weibo.com/xinnianzhang) [22-04-17 10:16](https://weibo.com/2611415173/LoPH3oEyq?from=page_1005052611415173_profile&amp;wvr=6&amp;mod=weibotime)新浪微博
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午1.36.07.png)图片来源：互联网
+由于西方制裁，俄罗斯企业陷入财务危机，材料和零部件缺乏被迫停止生产T-90 和 T-14 坦克（Armata）。
 
-这两张图片在朋友圈刷屏了，看到后，我一念头就是要帮这位退休老检察官秦培丰转发求助！但点击秦老师的微博主页发现：第一张的求助微博已不在，第二张还在，目前微博也没更新。我很担心他，谁知道现在的情况吗？谁知道发生什么了吗？不管怎样，对于突发疾病患者，应尽快安排治疗，希望秦老师早日康复
+据乌克兰国防部主要情报局周五（4月15日）报告称，俄罗斯的乌拉尔沃贡扎沃德（Uralvagonzavod）因实施制裁面临财务以及零部件缺乏问题，被迫停产新坦克。该俄罗斯企业生产装甲车，主要是 T-72 的主战坦克。【1】
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰2.jpg)
+自乌克兰战争开始以来，该公司面临着许多财务问题。乌情报局报告指出：”贷款利率上升、外币贷款缺乏资金偿还、价格上涨以及材料和部件（包括装甲钢）——这些以及其他问题使大多数类型的军事装备的生产变得非常复杂。”【1】
 
+“尽管俄罗斯对外鼓动宣传‘进口替代’，但如果不继续供应进口零部件，俄罗斯就无法继续自行生产高科技武器，”报告说。【1】
 
-经查秦培丰的这条新浪微博依然健在——[**秦培丰**](https://weibo.com/u/2401934164)[20-12-3 12:31](https://weibo.com/2401934164/JwJO0dC8q?from=page_1005052401934164_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+该工厂被迫寻求财务问题的解决方案，包括要求 100% 订阅政府合同。停止生产新设备，包括 T-90 和 T-14 坦克（Armata）。【1】
 
-李光满：方方、“蚂蝗”、日本军旗相继上演！艰难时刻，任正非的演讲令人泪崩！[O李光满：方方、“蚂蝗”、日本军旗相继上演！艰…](http://t.cn/A6GdlDL1) ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰3.png)
-对照上海的党员花名册，我们可以找到的信息是——
+此前乌情报局有报告指，过去十年俄军装备大量依靠购买外国技术和产品，失去进口，不可能继续生产现代武器如导弹、坦克、飞机。现在俄罗斯依靠自立更生，回退生产1960年代”经典“武器。【2】
 
-秦培丰，性别：男，民族：汉族，籍贯：福建，所属支部：中共黄浦区人民检察院退休第三支部委员会，身份证号码：310101194612193214
+例如卡玛斯（KAMAZ）工厂，该工厂生产的现代车型配备了康明斯发动机（美国）、采埃孚变速箱（德国）和博世燃油设备（德国）。
 
-秦培丰的深夜求救信息已经尸骨无存，不知道秦培丰检察官是否音容宛在，为什么你总是眼含热泪？因为你的脑子里进了太多水，所有秦培丰们曾经对方方的辱骂、对独裁的赞歌都是有意义和有价值的，因为冥冥之中总有一双眼睛在看着你，冥冥之中总有轮回在等着你。
+**自俄罗斯全面入侵乌克兰以来，俄罗斯军队已经损失了超过**** 20,000 ****名士兵并数千件军事装备。**乌克兰武装部队总参谋部[数据](https://www.facebook.com/GeneralStaff.ua/posts/295956466050772?locale=ru_RU)显示，截至 2022 年 4 月 16 日，俄军士兵损失20,100名，装备包括 762 辆坦克、1,982 辆装甲战车、371 门火炮系统、125 套多管火箭系统、66 套防空作战系统、163 架飞机、145 架直升机、1,458 架机动车辆、8 艘船/切割机、76 个油箱、138 架无人机、26 个特种设备单元和 4 个移动 SRBM 系统。
 
-撰稿：喜马拉雅的肉夹馍；
+参考链接：
 
-审核：喜马拉雅的馍夹肉；
+【1】[在俄罗斯，由于资金问题和缺乏进口部件，新坦克的生产已停止](https://gur.gov.ua/content/v-rf-zupyniaietsia-vyrobnytstvo-novykh-tankiv-cherez-finansovi-problemy-ta-vidsutnist-importnykh-komplektuiuchykh.html)
 
-校对：Maarago；
+【2】[美欧制裁之下俄国防生产力倒退上世纪中叶](https://gnews.org/zh-hans/2256287/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+* * *
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑&发布：长岛开心*
 
  
 

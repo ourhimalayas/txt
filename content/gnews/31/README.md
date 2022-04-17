@@ -2,22 +2,45 @@
 ---
 
 
-## 中共监管机构称滴滴退市不涉及其他在美国上市的中企
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2362639/)
+## COVID-19疫苗副作用集萃（2022.4.17M）新冠康复后科兴第一针副作用明显
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362785/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-17-下午5.18.49.png)图片来源：互联网
-（路透社）—中共证券监管机构周六表示，滴滴全球从纽约证券交易所退市的决定是这家中共国叫车巨头根据市场和公司自身情况自行做出的决定。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-中共证监会在其官方微信账户上发表声明称，滴滴的退市与其他在美国上市的中共国股票无关，也与中共监管机构和美国同行之间正在进行的，解决影响在美国上市的中共国公司的审计纠纷的努力无关。
+整理/编辑：机器猫
 
-滴滴出行周六表示，它将于5月23日召开特别股东大会，让股东就其自愿从纽约证券交易所退市进行投票。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
 
-原文链接：[China’s regulator says Didi delisting does not concern other U.S. listed Chinese firms](https://uk.finance.yahoo.com/news/chinas-regulator-says-didi-delisting-151444008.html)
 
-* * *
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-*编辑&发布：长岛开心*
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+原文作者：豹豹颗粒memo机
+
+**新冠康复后科兴第一针副作用明显**
+
+帖子原文：
+
+自从去年7月份感染之后别人的自然抗体igg都是蹭蹭蹭的往上涨，但是我从感染开始igm就一直阴，igg也不高，基本流水测自测板的时候都看不到线的程度，大概二三百？
+
+一般来说有感染史的再打一剂加强剂，基于我这种情况我咨询了一下医生，建议我最好三针再打一次，所以我就是那个感染了个寂寞的人
+
+康复之后的六个月开始打第一针，科兴副作用有点强，打完之后非常疲惫且头痛，头痛欲裂的头痛，就像又冲击钻那样一直突突突突的痛，感受到神经的跳动。当时打完的半小时没啥事就离开注射点，结果吃完饭就开始疲惫犯困头痛烦躁，痛到睡也睡不着，也不敢吃药，就这样持续一天过去…还有一点低烧，但是我看说明书是很常见的症状
+
+关于打科兴会瘦这回事，确实瘦了两斤，但我估计是因为头痛吃不下东西瘦的，希望第二针反应别那么强烈
+
+#北京科兴中维#科兴新冠疫苗#打新冠疫苗第一针#打新冠疫苗#新冠#新冠康复者
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2084.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2083.png)图片来源：小红书
+参考链接：[新冠康复后科兴第一针副作用明显](https://www.xiaohongshu.com/discovery/item/6241407b000000000102fc6e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068530)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

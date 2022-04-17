@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 2:17 PM (UTC)`
+
+ 4月17号：尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！
+![img](https://media.gettr.com/group20/getter/2022/04/17/14/47171a3c-de24-013b-b374-c0228ac1f98f/out.jpg)
+
+---
+
 `@miles 4/17/2022 1:31 PM (UTC)`
 
  4月17号：尊敬的战友们好……青岛开始搞舆论准备了吧……你你看看共产党这些下作的流氓，黑社会手段太可悲了……
@@ -149,13 +156,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 4/16/2022 Miles Guo: I am calling out fellow fighters to collect and provide the dossiers and interrogation files of the running dogs of the CCP, such as Jack Ma, Bruno Wu, Meng Jianzhu, Fu Zhenghua, Sun Lijun, Weijian Shan, and so on. The New Federal State of China will be rewarding anyone who can obtain and provide those documents.<br/><br/>4/16/2022 文贵直播：文贵号召战友收集提供马云、吴征、孟建柱、傅政华、孙力军、单伟建等中共走狗的卷宗和中共对他们的审讯档案；新中国联邦会给提供信息的战友巨额奖励<br/><br/>
 ![img](https://media.gettr.com/group43/getter/2022/04/16/21/996b5b71-e48e-073d-7e0f-92ad14bb79e0/out.jpg)
-
----
-
-`@miles 4/16/2022 9:31 PM (UTC)`
-
-【Ukraine Rescue】04/15/2022  Jewish volunteers say that this tent provided by the New Federal State of China should be called the liberation tent, because we're helping the Ukrainian refugees to escape from the war to embrace freedom. And the Rule of Law Foundation is also helping the 1.4 billion Chinese people to be freed from the slavery by the Chinese Communist Party. And then the Jewish people have a great example, great success of being freed from the Egyptians, and fighting for freedom again in the Holocaust during the Second World War  in Poland. And today,  the new Chinese are taking down the CCP. <br/><br/>【乌克兰救援】04/15/2022 犹太义工说，新中国联邦提供的这个帐篷应该叫‘解放帐篷’，因为我们正在帮助乌克兰难民逃离战争，拥抱自由。而法治基金会也在帮助14亿中国人民摆脱中共的奴役。犹太人是一个很好的先例，成功从埃及人的奴役中解放出来；然后是二战时波兰人与纳粹的战斗；今天是新中国人正在推翻中共。
-![img](https://media.gettr.com/group44/getter/2022/04/16/21/49c5881c-969e-e440-d651-f16858fd4220/out.jpg)
 
 ---
 
