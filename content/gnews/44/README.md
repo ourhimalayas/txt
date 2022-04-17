@@ -2,30 +2,28 @@
 ---
 
 
-## 任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2357787/)
+## 马斯克将以430亿美元收购推特
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2357808/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-00.45.54.png)
-4月16日郭先生在直播中公布，任何人但凡有中共国的刑讯卷宗的，都可以主动联系新中国联邦。这些重要的情报可以得到丰厚的回报。
+作者：骄子
 
-郭先生提到此前通过战友的介绍购买了大量的材料，通过Hpay迅速完成了交易。其中有马云的刑讯卷宗，其中显示马云的财政数据由中共的财政部门专门操作，中共审计署有专业的团队来给阿里巴巴审计数据。尽管卷宗只提供了三分之一，但已经让接触到的某国政府瞠目结舌。
+4月14日，据当地媒体报道，企业家埃隆-马斯克当天以每股54.2美元的价格收购了推特公司的全部股份，总计大约430亿美元。早先，马斯克已经花费了 30多亿美元购入了推特9.2%的股份，成为该公司最大的个人股东。
 
-郭先生爆料吴征接受的问讯笔录不下30次，这些大量的卷宗对于打破中共在美国的间谍网布置具有重要的作用。郭先生公布，任何人，但凡有吴征的问讯笔录、孙力军和傅政华的卷宗、马云其余的三分之二卷宗、以及吴征、孙力军、孟建柱等人的银行问讯笔录，单伟建的间谍档案等，请和所在农场主或者老椅子战友联系，新中国联邦会妥善安置。现金和喜币都可以交易，不用担心人身安全，此前有提供中共统计局数据的战友全家得到了美国紧急移民。郭先生提到，不仅限于以上卷宗资料，只要是中共的秘密都可以交易，新中国联邦是最好的桥梁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-16-at-12.01.21-PM.png)
 
-撰稿、发布：骄子
+据悉，马斯克于2009年加入推特平台，目前已有超过八千万跟随者。但近几年间，马斯克多番发表评论，批评推特平台审查言论的行为。对此，马斯克指出，此次收购的决定性因素在于，推特这家社交媒体公司如今已经无法推进并确保其用户的言论自由，为此，该公司急需转型以释放其潜力。然而，马斯克也表示，如果这一转型提议遭到推特的拒绝，那么他将考虑出售当前持有的股份。
 
-* * *
+另一方面，郭文贵先生也在直播中提到，对于社交媒体而言，缺乏市场竞争将导致社交媒体寡头的垄断，相反的，竞争才是为世界带来真相的动力。
 
-欢迎订阅我们的GNews账号：
+参考链接：[Musk makes $43 billion offer for Twitter to build ‘arena for free speech’](https://www.reuters.com/technology/elon-musk-offers-buy-twitter-5420-per-share-2022-04-14/)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+总编：Irene木木
+编辑：麗子
+审核：Irene木木
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

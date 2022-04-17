@@ -2,22 +2,25 @@
 ---
 
 
-## 生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2357853/)
+## 樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358170/)
 
-撰稿：西枫westca
+撰稿：东京樱花团/加一颗稻草
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-28.png) 图片来源：网络照片
-据《国家脉动》4月15日报道， 在COVID-19大流行病中不可脱责的Peter Daszak继续要求拜登政府向“流行病预防”追加投资至近万亿美元。
+美联社——在尘土飞扬的加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰战争中吸取的教训，让士兵为未来与俄罗斯或中共国等主要对手的战斗做好准备。这是一场针对网络、社交媒体、后勤保障以及如何克服坦克在泥泞中的困难的演练。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-332.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/4cfafe71219446498073ac361509228d/3000.jpeg)
+此次俄罗斯入侵乌克兰的战争中，乌克兰巧妙的利用社交媒体摧毁了俄罗斯的虚假宣传战术。以直播的形式让全世界的人们在电视或网络上，看到飞弹爆炸的场景，对平民的伤害。更看到了乌克兰人民的勇敢，并揭穿了俄罗斯的虚假指控。这是一种创新的战争形式，结合与北约的情报和信息的共享，成功的击溃俄罗斯军队。
 
-Daszak仍在被许多人怀疑其对COVID-19疫情负责的武毒所的研究进行持续审查中。在这种情况下居然还在要求美国纳税人承担起保护他操纵 “杀手 “病原体工作的重任。在未来几年提供近一万亿美元资助称旨在 “预防大流行 “的研究。
+这样的战争模式与我们的爆料革命的战略不谋而合。爆料革命以为真不破的理念，用直播的方式向世界揭露了中共的无数次的谎言。导致中共内部听到爆料革命的声音就已经闻风丧胆，所以我们的每一次直播都对中共造成沉重打击。
 
-4月11日，Daszak与其他三位合著者在专栏文章中解释说，”拜登政府应该在基础设施方面投入资金来预防另一场大流行病，并在大流行病发生时能够适应它们。这些额外的资源将有助于预防下一次大流行病，使之有可能在早期发现新的疫情，并利用接触者追踪来有针对性地作出反应”。 Daszak建议初始投资价值超过5000亿美元，最终将增加到8290亿美元，并 “每年投资以维持能力”。
+消息来源：
 
-Peter Daszak 拥有的生态健康联盟深度参与武汉病毒实验室新冠病毒的研究，其后又参与武毒所掩盖Covid-19的起源。并参与了WHO派往中共国的调查团队，其结论是：病毒通过冷藏食品传入是“可能的途径”，而从实验室泄漏的说法“极不可能”
+[US Army using lessons from Ukraine war to aid own training](https://apnews.com/article/russia-ukraine-war-us-army-training-54e76eba46f9bf79542dd3f872456e67)
 
-**新闻来源：**[Wuhan Collaborator Peter Daszak Demands Nearly $1 TRILLION To Fund ‘Pandemic Prevention’ Efforts. (thenationalpulse.com)](https://thenationalpulse.com/2022/04/15/peter-daszak-calls-for-nearly-1-trillion/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
 
  
 

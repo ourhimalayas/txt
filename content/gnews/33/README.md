@@ -2,87 +2,60 @@
 ---
 
 
-## 参议员卢比奥： 中共国2020年的新冠应对方式，在2022年不起作用
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2358389/)
+## 中共颠倒黑白把地狱粉饰成天堂天理不容
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2358504/)
 
-**参议员卢比奥**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 2020年的新冠应对方式，在2022年不太起作用。
-【转路透社报道，随着上海新冠病例的增加，更多中国城市收紧控制】
+【**国内新闻短评**】
 
+**网易新闻2022年4月12日报道：上海战疫中的普通人：这些细节给人力量**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/anwr2-6y6bg.jpg)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/04/xcvv.jpg)
+***短评：***
 
+四月上海所谓疫情封城以来，中共大陆视频网站和微信上出现了大量没有食物挨饿求救的现场视频。很多大白、居委会成员通过给个馒头、给一碗面的方式要求陪睡，有些从北方支援上海的人甚至公开炫耀说“去上海去睡闺女去喽”、“去睡上海大美女去喽”，令人愤怒至极。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s 2020 Covid response not doing too well in 2022
-> 
->  [https://t.co/YvtUCYJ2pr](https://t.co/YvtUCYJ2pr)
-> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515317416812847104?ref_src=twsrc%5Etfw)
+我们知道，人最基本的生存权就是吃饭、睡觉、生活、工作以及说话的权利，当别人有意或者无意地用任何理由剥夺人的生存权，任何人都应该在法律范围内坚决地予以反击，更何况他还侵犯了你的人身安全。上海这些大白和居委会成员的行为在以前被称为骗奸、诱奸和强奸，现在上海又出现了几个新词，叫饭奸、水奸、面奸、粮奸：以饭强奸你、以水强奸你、以面强奸你、以粮强奸你。魔鬼中共在用无比邪恶的方式，在现在的社会里，把你的家变成监狱、地狱，让你习惯用的手机变成你的脚镣手铐，让你习惯所谓管理者可以享受你的一切，你的房子、财富、老婆、女儿、先生。
 
+以下是2022年4月10日新中国联邦爆料革命郭文贵先生全球视频大直播中有关上海真实现场情况的集锦：
 
+**现场1**：没人管了，所有的物资都是靠自己在抢，所有的人都慌了，请大家曝光一下！
 
-**参议员卢比奥**：
-#中共国 过去在新冠病毒上做得如此“出色”，以至于在大流行开始的两年后，他们已经迫使一座拥有 2500 万人口的城市（上海）进入全面封闭。 
-【转华盛顿邮报：上海的新冠围攻，商品短缺，讲话机器，饿肚子的动物】
+**现场2**：没人管了，全部都是靠抢了，饭都没得吃了！
 
+**现场3**：我跟妈妈就（只）抢到了一箱水！（体弱多病抢不到的，那就只有忍饥挨饿，有眼泪也要往肚子里面咽。）
 
+**现场4**：我就（只）抢到了一箱水，什么都没抢到，像暴乱一样，没有人管。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) did such a great job on Covid that 2 years after the pandemic began they have forced a city of 25 million people into total lockdown [https://t.co/8O7k9i7Soo](https://t.co/8O7k9i7Soo)
-> — Marco Rubio (@marcorubio) [April 16, 2022](https://twitter.com/marcorubio/status/1515321035989688321?ref_src=twsrc%5Etfw)
+**现场5**：上海浦东新区瀚城居委会2022年4月9日集体离职报告：各位居民，很抱歉用这种方式和大家告别，翰城区委全体工作人员自3月17日开始封在职位至今日已经在居委生活了24天。我们放弃了家人，放弃了自己的所有生活，撇家舍业就是想尽力支撑下去，但是我们也是女儿、妻子和母亲，我们也希望为自己的家庭而生存，我们理解所有的居民，我们也尽力在配合（流氓）政府的各种（所谓）政策。所有人所有部门让我们理解配合，唯独没有人理解我们，没有人在乎我们的感受和心情，我们也是人，不是没有感情的机器，我们也有承受不住的时候。请不要把我们当铁人，这些年谢谢大家对我们工作的支持，这一次是我们辜负大家了，我们要离开了，请原谅。
 
+**现场6**：上海金山区明卫佳苑有居民因暴力封城封小区翻墙出去被淹死。
 
+**现场7**：外地援助上海的物资被政府人员撕掉标签进行私分牟利，被抓拍质问时还撒谎称这是团购的物资（后又说到这批援助的物资中只有10吨是免费的，其余的都进行售卖，简直是侮辱大家的智商）。
 
-**比尔·戈茨**： 
-这就是大白 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 
-【转英国自由撰稿人James Melville推文：上海的“健康与安全”冲锋队来了。 显然，这是为了你“好”。 （所附视频显示，上海一帮身着白色防护服的警察手持武器闯入民宅，将住户主人逼到阳台逼其就范…有开枪声！）】
+**现场8**：上海方舱医院的食品供应和管理极度混乱不负责任，上海现在的气温少说也有26-28度，结果饭盒就裸露堆积在烈日之下暴晒，同时还有很多饭菜被不卫生地随意丢弃。而一旁是吃不上饭的普通市民，在苦苦质问哀求。
 
+**现场9**：夫妻两个因暴力封城缺物资，仅仅间隔五小时就相继跳楼了。
 
+**现场10**：中共所谓防疫人员对人民拳打脚踢，暴力强制居民上楼隔离。
 
-> This is the Big White Chinese Communist Party [https://t.co/ijZZTQ0h48](https://t.co/ijZZTQ0h48)
-> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515176857364099072?ref_src=twsrc%5Etfw)
+**现场11**：“不听话的人”被关在笼子里，中共不管你是不是出于疾病或者解饿的原因。
 
+**现场12**：上海中远二湾城民众由于物资匮乏饥饿难耐，发出愤怒的呼声，快要被逼疯地一片鬼哭狼嚎。
 
+*……*
 
-**比尔·戈茨**： 
-这就是中共国社交媒体用户如何通过在发布的照片​​上涂鸦来击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 自动审查技术的方式。 照片显示中国警察冲锋队在强迫一名上海居民隔离，来自帐号“微博上有什么”[@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo)
+上海地狱般的场景不胜枚举，中共却还在邪恶地用大内宣摆拍，把地狱说成天堂来为自己洗地。这一次是上海这座城市被隔离在地狱，更悲惨的是流氓中共非法篡权几十年来把亿万家庭隔离在960万平方公里山河破碎满目疮痍的土地上。从人民公社到大跃进，从所谓土地改革到计划生育，从所谓改革开放到医疗产业化，从新疆大屠杀到香港送中恶法再到郑州大洪水，再到现在制造释放病毒强打毒疫苗强制核酸检测，无数这些被害的人他们回来了吗？他们得救了吗？邪恶呀中共！你若不灭，天理难容。
 
+***新闻链接：***
+[https://3g.163.com/news/article/H4P8QTFS000189FH.html](https://3g.163.com/news/article/H4P8QTFS000189FH.html)
 
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-> This is how Chinese social media users defeat automated CCP censor tech by scribbling lines on posted photos. Photo shows Chinese police stormtroopers forcing a Shanghai resident into quarantine h/t [@WhatsOnWeibo](https://twitter.com/WhatsOnWeibo?ref_src=twsrc%5Etfw) [pic.twitter.com/m5ZRnqrMY8](https://t.co/m5ZRnqrMY8)
-> — Bill Gertz (@BillGertz) [April 16, 2022](https://twitter.com/BillGertz/status/1515327783936806915?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥**： 
-当我们庆祝圣周和逾越节时，我们也应该为那些因信仰而被暴君和专制者们迫害的人而考虑并祈祷。 （阅读）我发表在《美国法律与司法中心》的最新文章 
-【附文章链接：这个复活节和逾越节，记住那些遭受迫害的人】
-
-
-
-> As we celebrate Holy Week and Passover, we should also consider and pray for those who are persecuted for their faith by tyrants and despots. My latest in ACLJ: [https://t.co/fG64IZWHTZ](https://t.co/fG64IZWHTZ)
-> — Mike Pompeo (@mikepompeo) [April 16, 2022](https://twitter.com/mikepompeo/status/1515363143530205199?ref_src=twsrc%5Etfw)
-
-
-
-**众议员安迪·比格斯**: 
-伊隆·马斯克在推特上做着正确的事。 
-左派和科技巨头憎恨言论自由。
-
-
-
-> Elon Musk is doing the right thing with Twitter. 
-> 
-> The Left and Big Tech hate free speech.
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [April 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1515379782309105672?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂**： 
-[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国的年轻人发动一场非法毒品战争，而拜登政府正在通过让我们的南部边境开放，来获取他们的政治利益。
-
-
-
-> The CCP is waging an illicit drug war on America’s youth & the Biden Admin is enabling it by leaving our southern border open for their political gain.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 16, 2022](https://twitter.com/SenatorHagerty/status/1515465062194069506?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
