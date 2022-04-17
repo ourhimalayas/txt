@@ -2,38 +2,45 @@
 ---
 
 
-## 认清共匪本质，自救救人
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2363839/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第14天位列3国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2363920/)
 
-BY：银河系农场|天雷滚滚
-![](https://assets.gnews.org/wp-content/uploads/2022/04/p8197321a739271274-800x450-1.jpg)
-共产党来源于德国，思想根源于欧洲黑教，撒旦教，在1910年代成功试验于俄罗斯。共产主的思想正好迎合了社会底层小流氓无业者的胃口，所谓的可以不劳而获的“按需分配”。 在当时到今天的技术和科技文明的条件下，忽略公民财产权而推行“不劳而获”的主义，无疑就是导致全社会的文明崩塌，饥荒，战乱频发等等。
+4/17/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第14天iTunes打榜记录：
 
-- 共产党是如何进入中国社会背景：苏联与日本远东利益重合，尤其是一战日饿战争落败，矛盾激化，苏饿急于扶植中国亲俄势力，建立苏俄组织。目的牵制日本冒进远东，我东北地区和西伯利亚地区。以陈独秀李大钊为代表的中国共产党成立，宗旨是保卫苏维埃政权为主。 孙中山先生在袁世凯和张勋复辟之后军阀割据情况下，在广州另立国民政府与北洋分庭抗礼，谋划北伐战争，统一中国！策略之一就是联俄联共。谋求苏俄帮助完成北伐统一大业。
+* * *
 
+[【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-此时共产党员都以个人身份加入国民党，获得政府参政职位，如毛泽东时为国民政府宣传部长，周恩来任职黄埔军校政治委员。 因共产党渗透，和腐化国民党成员，发展共产党党员，掌控工人工会，农会，谋求共产主义在中国之实现，破坏孙中山先生的“三民主义”立国的宗旨，同时效力于苏俄政权，1927年，时任国民党中央委员会委员长，黄埔军校校长，介石中正先生奋力清党，也是共产党历史的“白色恐怖”。所谓国共第一次合作破裂。
+* * *
 
-- 共产党的抗日 共产党历史里抗日的内容是表现其执政合法的主要依据。 首先共产党喊出抗日口号并非在1931年发生九一八前后，而是1935年所谓长征后期。实为国军五次围剿后的逃窜，后来美其名曰长征路上。目的是为了获得民众基础，尤其是在西南少数民族民风彪悍的地区。终达到其北上背靠苏联与当时国民政府抗衡的目的！ 事实上即便日本靖国神社在中国时间里记录的阵亡于中共作战的人数仅为599，在如此浩大的中日战争，实在谈不上中流砥柱！ 即便如此，有限的中共与日军作战也是迫于苏共中央压力，有俄罗斯解密文件表明，斯大林不惜以私人名义向毛泽东支付40万美元之多，迫使毛泽东实施与国军共同抗战，目的仍为不使得日军进入西伯利亚地区，与德军形成对苏联夹击态势。
-
-
-- 解放战争 国内外曾有军内作家在八十年代末经过调查采访原四野军人，一篇报告文学《雪白血红》，出版不日就被禁止了。里面对四野从东北作战到南下海南岛，战争做了不少的描述！ 长春围城无差别围而不打，绑架妇女儿童老人冲锋在前，防止战士开小差，睡觉的时候用绳子拴起来，战场上无情凶残的督战队！ 凶残程度，罄竹难书！大家可以去查阅！ 其二，1945年八月苏联出兵东北，也是因原子弹爆炸，胜利在握，抢占我东北利益。在接下来苏俄与国民党政府谈判，狮子大开口，包括外蒙独立，东北利益在内等，可谓一个《辛丑条约》，国民政府代表拂袖而去，苏俄在搬走东北巨量有形资产回苏俄，把战争武器，改造日本战俘交与解放军，等等。同时美国对共产党宣传未来成立联合政府的谎言信以为真，对国民政府的腐败也是失去了援助的动力。 在苏俄的支持下，占领了除台湾省外所有的国土。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
 
 
-- 建国后的历次运动本质 党外通过所谓社会主义改造垄断所有社会财富和土地，通过反右和文革破坏民族文化根源和思想启蒙，包括教育基础。 听过残酷的阶级斗争迫使人民就范，人人噤若蝉翼！ 通过指定代表，或者等额选举的虚假政治模式建立所谓的政治协商和人民代表制度。 党内权力斗争严酷！与其说是权力斗争不如说以权力争斗为表象的利益控制权的斗争！完全忽略人性的各种惨无人道令人发指的手段对待人民和党内同僚！ 七十年建政，死于非命者数以亿计！ 单单计划生育强迫引产堕胎有据可查4亿之多！ 60年人道主义灾难饿死饥民数千万，文革数以千万计，社会主义改造杀死地主富农，资本家以千万计，数百万知识分子处死或被迫害。各种人道灾难死去同胞无以计数。包括今天的上海，长春等地无脑严控！去年的河南水灾等等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
 
 
-- 预期共产党执政末期将会频发人道灾难，与同胞的自我选择。 从共产党成立开始到今天，早期的陈独秀，张国焘，王明，到文革诸多元帅等领导人，到近年的军头徐才厚郭伯雄等，周永康，令计划等等。这一切以为投靠共产党或者信仰共产主义的人几乎无一幸免。都会受到打压甚至有性命之忧！无一例外。 在共产党放出新冠病毒之后，世界格局大变。尤其在其联合国际上共产党“洋爹”全球即将来临的疫苗大灾难来临之际。 同时共产党破釜沉舟联合俄罗斯意图攻占乌克兰和台湾，导致全球正义力量的巨大反弹，势必在国内更加严历的管控，群众言行，甚至可能利用饥饿时粮食配给来引诱同胞奔赴台乌战场，用14亿人作为肉票绑架，与西方包括全球正义力量对峙！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
 
 
-因此，同胞们，只有团结起来，一栋楼住户，一个居民小区，每个同学组织或者老乡会，战友群等等。利用合法的诉求与手段与共产党周旋对抗对峙，同时想办法联络包括国内在内全球的新中国联邦战友！寻求可能的帮助，共同建设未来的新中国联邦，共建一个以一人一票选举政府，自由民主，人权至上的与世界互信的千年的和平的新中国联邦的时代。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
 
-作者：夜未央
 
-发布：天雷滚滚
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
 
-日本[银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![此图像的alt属性为空；文件名为Untitled_Project3.gif](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled_Project3.gif)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+[【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Sunday-17-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,30 @@
 ---
 
 
-## 2022年4月17日战时快讯（1）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2363139/)
+## 樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2363164/)
 
-#### 雅典娜情报组《战时快讯专栏》
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情防控措施瘫痪大半个国家的交通运输.jpg)
 
-整理/编辑：围剿维尼熊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3528.jpg)图片来源：中新网
-1—从中国传出的多种迹象显示，操控中国媒体和网络舆论的中国当局推行的亲俄反美宣传在中国国内遇到当局难以应对的挑战。中国当局有关可以从俄乌战争中获益的宣传难以成立。
+4月17日每经经济报报道，交通运输部将根据各省（区、市）上报数据汇总统计，受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个，占收费站总数的2.03%，比4月10日减少459个，下降了67.70%；共关停服务区76个，占服务区总数的1.15%，比4月10日减少288个，下降了79.12%。除西藏（无高速公路收费站和服务区）外的30个省（区、市）中，北京、天津、山西、内蒙古、福建、山东、河南、湖南、海南、重庆、四川、贵州、甘肃、宁夏等14个省份已无关闭关停的高速公路收费站和服务区。
 
-2—俄罗斯要求在马里乌波尔战斗的乌克兰军队，要想活命，就从莫斯科时间2022年4月17日6点开始放下武器。
+中共独裁者不顾及经济与民生，用一刀切的方式，所谓的疫苗后遗症当作中共病毒疫情防控来处理，导致大半个中国交通运输和城市处于封闭状态。
 
-3—朝鲜领导人金正恩观摩了显然能携带核弹头的“新型战术制导武器”的试射。这是平壤一系列挑衅行为中的最新动态。
+信息来源：
+[交通运输部：受疫情影响，截至2022年4月16日24时，各省（区、市）高速公路共关闭收费站219个](https://mi.mbd.baidu.com/r/ED7jxWvVhS?f=cp&amp;rs=909221183&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6fefe818ea7e54f5&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-4—近年来，中共持续大规模囤粮，同时宣传“世界缺粮、世界粮价创历史新高”。最新《经济学人》的文章称，中共对粮食的大量采购推高了全球粮食价格。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-5—美国联邦海事委员会专员近日发布的报告显示，中共几乎控制了全球的集装箱制造业，因此有能力操纵价格，这对世界供应链的安全构成了威胁。
 
-6—俄罗斯表示，正在对英国首相约翰逊以及其他几位英国高级官员实施入境禁令。
-
-7—德国交通部长维辛(Volker Wissing)表示，德国政府不会为接收乌克兰难民人数设定上限。
-
-8—随着中共军力的快速发展及在南海地区的不断扩张，美国及盟国对中共在南太平洋地区的动作保持高度警惕。
-
-9—俄军向在马里乌波尔战斗的乌克兰军队发出劝降。不过，在最后通牒发出数小时后，基辅方面并没有对这份通牒做出回应。
-
-10—消息人士透露，上海4月20日之前实现“社区清零”的新目标已于近日传达给了市党员干部和学校等组织。
-
-以上讯息均来自于网络，仅供参考。
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
