@@ -2,32 +2,28 @@
 ---
 
 
-## 有声|北约将就芬兰及瑞典的加入进行讨论
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2361439/)
+## 上海一男性曾经力挺港警 如今自己被“维稳”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361540/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-4月7日，据相关媒体报道，美国国务院一名高级官员当天透露，在本周于布鲁塞尔举行的北大西洋公约组织军事联盟外长会议上，公约国就芬兰和瑞典加入北约的可能性做出了讨论。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-09-at-7.44.51-PM-1.png)
-报道提及，俄罗斯对乌克兰的入侵促使芬兰和瑞典两个北欧国家开始考虑加入以美国为首的联盟。对此，这位美国官员指出，北约的大门仍然处于开启状态，潜在的候选资格也是公约国的议题之一。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-芬兰近期的民意调查显示，自俄罗斯入侵战争开始以来，大多数芬兰人都表现出希望加入北约的意愿。而芬兰外交部长哈维斯托早先也承认，芬兰或将在未来几周内确定是否申请加入北约。与此同时，芬兰外交部也强调，该国会坚定地支持乌克兰捍卫自由和民主的努力。
+近期，曾在香港反送中期间力挺港警的一位上海男性在微博上发帖批评当地警察以暴力手段强行征用民宅，引发网友们一片讪笑。
 
-然而，俄罗斯克里姆林宫的发言人扬言称，如果芬兰和瑞典加入北约，那俄罗斯将用自己的措施“重新平衡局势”。而就在次日乌克兰总统泽兰斯基于芬兰发表演讲时，一架俄罗斯飞机侵犯了芬兰的领空。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-344.jpg)（图片来源：推特）
 
-文字版原文：[北约将就芬兰及瑞典的加入进行讨论](https://gnews.org/zh-hans/2314568/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+据《自由时报》报道，近期，微博上一位名为“乖乖咙滴董”的网友贴出上海警察在张江纳仕国际社区殴打居民的视频，他控诉警方，“上海人民警察要强征我们小区作为隔离点！”据悉，中共上海以防止疫情扩散为由，将强行征用这位网友居住的小区作为隔离点，引起居民强烈反抗，从而遭到上海警察暴力维稳。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+然而，有网友却发现“乖乖咙滴董”曾在2019年香港反送中期间支持港警，还转发了当时力挺港警的名言：“我支持香港警察，你们可以打我了。”因此，网友纷纷嘲笑他，“你2019年的愿望，2022年终于实现了。”也有网友希望他以后能认清点这个社会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+目前，“乖乖咙滴董”已经关闭了自己的微博帐号。
+
+参考链接：
+[https://news.ltn.com.tw/news/world/breakingnews/3895075](https://news.ltn.com.tw/news/world/breakingnews/3895075)
+
+编辑：海星
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,49 @@
 ---
 
 
-## 美国前国安顾问博尔顿呼吁美军重新驻兵台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2361398/)
+## 退休检察官辱骂方方微博宛在但深夜求救信息已尸骨不存
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2361454/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-9.jpg)美国前国安顾问博尔顿呼吁美军重新驻兵台湾 网络图片
-据美国之音4月16日报道，美国前国安顾问博尔顿16日发表“台湾在面对北京威胁时扮演拟聚世界力量的角色”专题演讲，呼吁美国应在政治和军事上与台湾更紧密地合作，以有效吓阻中共国的武力威逼。美军重新在台湾派驻兵力，一如1979年以前的政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰-1.jpg)
+据[**张新年律师**](https://weibo.com/xinnianzhang) [22-04-17 10:16](https://weibo.com/2611415173/LoPH3oEyq?from=page_1005052611415173_profile&amp;wvr=6&amp;mod=weibotime)新浪微博
 
-以美国为首的国际社会已逐渐认知到中共国所带来的威胁，台湾因所处的地理位置，可以联合其他亚洲国家和理念相近的盟友，来共同对抗中共国的威胁，并遏阻其崛起后、向外扩张霸权的企图。博尔顿还呼吁美国协助台湾重返联合国并参与其他国际组织。
+这两张图片在朋友圈刷屏了，看到后，我一念头就是要帮这位退休老检察官秦培丰转发求助！但点击秦老师的微博主页发现：第一张的求助微博已不在，第二张还在，目前微博也没更新。我很担心他，谁知道现在的情况吗？谁知道发生什么了吗？不管怎样，对于突发疾病患者，应尽快安排治疗，希望秦老师早日康复
 
-英澳美同盟(AUKUS)是一个有效抗衡中共国的平台，主要目标是由英、美两国协助澳大利亚建造一支核子动力潜舰舰队，建构新的印太战略联盟。除了核能潜舰，该联盟近期也决定进一步合作开发超音速导弹，强化同盟军力。博尔顿认为此同盟应纳入日本，支持日本作为一个正常国家，可以发展国防、拥有武力保护自己的国家，尤其日本各界普遍认知到日本与台湾休戚与共的命运，纷纷发出“台湾有事就是日本有事”的警告。
-
-博尔顿表示，美国在认识到过去40年对华政策的错误后，已经和欧洲国家开始联手对抗中共国崛起所带来的政经威胁，以维护西方的民主自由体制。不过针对俄乌战事，西方集体发动的经济制裁还未能达到吓阻俄罗丝退兵的效果，这可能让中共国胸有成竹，相信未来能挺过西方的联合制裁。
-
-西方因为贪婪和轻信纵容中共壮大，以至于养虎为患，中共国成为了美国和西方世界最大的威胁。病毒没结束，疫苗灾难还没开始，俄乌战争已经打响，台湾之战也蠢蠢欲动，世界的动荡不安皆因为中共。铲除中共，世界才能恢复和平。
-
-新闻参考链接：[https://www.voachinese.com/a/former-us-national-security-adviser-john-bolton-calls-on-the-us-to-station-military-forces-in-taiwan-20220416/6532189.html](https://www.voachinese.com/a/former-us-national-security-adviser-john-bolton-calls-on-the-us-to-station-military-forces-in-taiwan-20220416/6532189.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+经查秦培丰的这条新浪微博依然健在——[**秦培丰**](https://weibo.com/u/2401934164)[20-12-3 12:31](https://weibo.com/2401934164/JwJO0dC8q?from=page_1005052401934164_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+李光满：方方、“蚂蝗”、日本军旗相继上演！艰难时刻，任正非的演讲令人泪崩！[O李光满：方方、“蚂蝗”、日本军旗相继上演！艰…](http://t.cn/A6GdlDL1) ​​​​
+![](https://assets.gnews.org/wp-content/uploads/2022/04/秦培丰3.png)
+对照上海的党员花名册，我们可以找到的信息是——
 
+秦培丰，性别：男，民族：汉族，籍贯：福建，所属支部：中共黄浦区人民检察院退休第三支部委员会，身份证号码：310101194612193214
 
+秦培丰的深夜求救信息已经尸骨无存，不知道秦培丰检察官是否音容宛在，为什么你总是眼含热泪？因为你的脑子里进了太多水，所有秦培丰们曾经对方方的辱骂、对独裁的赞歌都是有意义和有价值的，因为冥冥之中总有一双眼睛在看着你，冥冥之中总有轮回在等着你。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

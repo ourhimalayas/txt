@@ -2,20 +2,30 @@
 ---
 
 
-## 雅典娜时报-第265期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2361580/)
+## 日首相与美访日议员重申合作
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2361746/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-#### 编辑：精灵蓝
-排版：0-0
-![圖片](https://media.discordapp.net/attachments/825592691433668612/964765043138904064/1.jpg?width=838&amp;height=1185)![圖片](https://media.discordapp.net/attachments/825592691433668612/964765043516379136/2.jpg?width=838&amp;height=1186)
-*发布：陶子*
+4月16日，日本首相岸田文雄和来访的美国国会议员重申，将在长久以来的双边结盟关系基础上，持续携手合作，以面对全球的紧张情势，包括中共国和朝鲜构成的威胁。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-347.jpg)（图片来自美联社）
+
+根据日本外务省，由南卡罗来纳州共和党籍联邦参议员葛瑞姆（Lindsey Graham）率领的美国访团和日本首相岸田文雄在早餐会上强调维持“自由开放的印度—太平洋区域”的重要性。
+
+岸田文雄告诉来自两党的美国议员访团，双边结盟关系取代了政党分歧，并希望访客了解日本在推动区域和平繁荣所扮演的角色。
+
+另外，外务省表示，日本也寻求美方支持，把数十年前遭到朝鲜诱拐的日本人带回家。朝鲜曾在2004年让多名被强行带到朝鲜的日本人回朝鲜。
+
+据了解，葛瑞姆一行6人是在访问台湾后前往日本。他们访台期间，直接而公开地宣告对台湾民主的支持，同时向中共国发出警告，并在15日与台湾总统蔡英文会面。
+
+日本方面一直对于中共国可能侵台感到紧张。日本官方虽未承认台湾，但台日维持友好关系，而中共反对台湾与其他国家政府进行任何官方交流。一旦中共国武力犯台，日本也将面临危险。
+
+参考链接：
+[https://www.cna.com.tw/news/aopl/202204160237.aspx](https://www.cna.com.tw/news/aopl/202204160237.aspx)
+
+总编：青城道姑
+校对发布：爱放飞
 
  
 

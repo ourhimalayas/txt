@@ -2,8 +2,8 @@
 ---
 
 
-## 2022年4月15日，上海浦東新區三林鎮，等待拉走去方艙集中點，視頻中在說看看一晚上拉走多少人。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2360801/)
+## 上海，抗疫物資被倒賣！居民買的盒馬蔬菜，竟然是抗疫物資，裏邊有紙條「遼滬一家 攜手抗疫……」 ，居民跟居委會主任吵起來了。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2360870/)
 
 作者：东京樱花团小视频组
 
