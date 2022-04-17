@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_designer 4/16/2022 10:18 PM (UTC)`
+
+什么是正道主义？<br/>要敬畏自然，遵守宇宙法则<br/>第一，这个国家的权力必须是属于人民，个人财富受到尊重和保护。<br/>第二，建立在法制基础上的对人权的尊重，信仰自由，言论自由。<br/>正道主义崇尚和平，坚持正道主义的新中国联邦将是一支和平的力量，将与世界上爱好和平的国家达成千年和平协议。<br/><br/>视频：蜂鸟战友创作-战友日常之正道基石<br/>#新中国联邦宣言 #漫画灭共 #正道主义
+![img](https://media.gettr.com/group23/origin/2022/04/16/22/55e0b6fb-9e14-f051-f715-896d4775e200/out.jpg)
+
+---
+
 `@miles 4/17/2022 2:35 PM (UTC)`
 
 The biggest tent of the New Federal State of China hosted more than 10,000 Ukrainian refugees at the Polish border, a number that surprised the German volunteer who came to deliver the relief supplies, and although it was the first time he had heard about the New Federal State of China (NFSC), he thought that the NFSC volunteers did a fantastic job<br/>新中国联邦的大帐篷在波兰边境接待超过1万名的乌克兰难民，这个数字让前来送救援物资的德国志愿者感到惊讶，虽然他是第一次听说新中国联邦，但是他认为新中国联邦志愿者做的太棒了<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
@@ -149,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 2022.04.16 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 ![img](https://media.gettr.com/group26/origin/2022/04/16/23/97ae1991-4ba2-01a2-6336-7ff0ad4e2bfb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/16/2022 11:00 PM (UTC)`
-
-2022.04.16 NFSC news  Three labeled missiles sank the warship "Moskva “, releasing soldiers
-![img](https://media.gettr.com/group8/origin/2022/04/16/22/4b8c37a8-8e82-17bd-3acc-c41d8f594ae4/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
