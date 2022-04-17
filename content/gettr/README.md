@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 2:33 AM (UTC)`
+
+4/16/2022 Miles Guo: You have the right to defend yourself if any government wants to take you away from your home or kill you without due process; as long as you take actions smartly, and you are capable and have common sense; the New Federal State of China's rescue operation at the Ukraine front line serves as a good example and platform, through which the Western world can understand the Asians<br/><br/>4/16/2022 文贵直播：当任何政府不按法律程序剥夺你的人身自由和生命的时候，你都有权自卫；但你要有智慧、行动力和基本常识；新中国联邦的乌克兰救援行动就是一个例子，一个让西方了解亚洲人的平台<br/>
+![img](https://media.gettr.com/group11/getter/2022/04/17/02/95b4a0f7-e43d-f30a-ea6d-907e2d1c6549/out.jpg)
+
+---
+
 `@miles 4/17/2022 2:02 AM (UTC)`
 
 2022.04.16  新中国联邦 | 喜财经  GDP vs 货币发行量；货币总量等式背后的猫腻；使用价值是交换价值和价值的物质承担者
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 4/16/2022 Miles Guo: Xi’an will be locked down again, and as a result many companies will end up bankrupt; Chinese people should learn to be grateful, and don’t take others’ help for granted; bigs changes will happen in Ukraine; major policies will come out in Shanghai; the US will introduce a series of policies towards Taiwan next week.<br/><br/>4/16/2022 文贵直播：西安会再次封城，很多企业会因此倒闭；中国人要学会感恩，不要把别人的帮助当成理所当然；乌克兰局势会有重大变化；上海会有重大政策出台；下周美国对台湾也会出台一系列政策。<br/>
 ![img](https://media.gettr.com/group35/getter/2022/04/16/18/f6642e01-902d-eb61-0a1a-1e7ba1efa766/out.jpg)
-
----
-
-`@miles 4/16/2022 6:08 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月15日第42天当日救援统计：<br/>Medyka救援站接待：约316人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11988人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 42 - Date: April 15, 2022 :<br/>Medyka Rescue Station Reception: about 316 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11988 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group42/getter/2022/04/16/18/cce80e9d-354c-c9c3-bda5-5c21b25e2fac/6f0b5f0041324a4e536d7944fc4d1187.jpg)
 
 ---
 
