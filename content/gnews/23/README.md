@@ -2,60 +2,57 @@
 ---
 
 
-## 美国会代表团访台之际，中共在台湾周边进行军演
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2358198/)
+## 俄罗斯叫嚣清除马斯克星链,灭共3.0剩下的0.3日益临近
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358738/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/56647413-0-image-a-9_1650018425549.jpg)台湾总统蔡英文在台湾台北总统府与美国参议员Lindsey Graham、美国参议院外交委员会主席Bob Menendez和其他美国代表团成员合影。（路透社图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/北斗_副本.jpg)
+据[SpaceX帮助击沉“莫斯科”号？梅德韦杰夫：俄空军将清除马斯克的卫星](https://finance.sina.com.cn/jjxw/2022-04-16/doc-imcwipii4672085.shtml)（2022年04月16日 19:42 环球时报）
 
-来源于英国《每日邮报》网站2022年04月15日的报道，
+【俄罗斯前总统、联邦安全会议副主席梅德韦杰夫说，俄罗斯情报部门获悉，本周早些时候乌克兰的一次导弹袭击击沉了“莫斯科”号导弹巡洋舰，是由SpaceX 发射的“星链”（Starlink）卫星协调的。
 
-中共国对美国国会访问台湾的做出了挑衅性回应，在台湾附近海域进行了军事演习。
+梅德夫德夫说：“总司令已发布命令，清除目前在俄罗斯联邦、特别军事行动地区和黑海上空的一组‘星链’卫星，以确保参与行动的所有部队的安全。”】
 
-一支由护卫舰、轰炸机和战斗机组成的特遣部队在台湾海域附近演习，中共国人民解放军称此举旨在针对美国在表示支持台湾时发出的“错误信号”。
+这条消息有两层含义，一是俄罗斯自己终于承认“莫斯科”号导弹巡洋舰是由于被乌克兰以导弹击沉的，而不是此前所谎称的军舰着火。
 
-与此同时，中共国的歼-20隐形战斗机将开始在南中国海巡逻，该机型被广泛认为是在试图仿造美国F-35喷气式飞机，以重新控制有争议的海域，该海域的部分主权分别由印度尼西亚，马来西亚，菲律宾和越南声称拥有。
+这条消息的第二层含义是俄乌战争开始转向太空，转向攻击敌方卫星。而这第二层含义又与灭共3.0剩下的0.3息息相关，郭文贵先生在前几期的直播中已经爆出了中共在塞尔维亚及多个地区部署了针对美国和欧盟及乌克兰的红旗导弹，并且也爆出了红旗导弹采用中共的北斗导航系统，同此引出灭共3.0剩下的0.3的话题（视频来源[郭文贵GTV直播2020年1月18日谈刘鹤招待会删除预示了什么，爆料革命击中了中共的所有要害，中美贸易，新疆，香港，蛇鼠一窝无处逃蹿](https://livestream.com/accounts/27235681/events/8197481/videos/200881630)）——
 
-解放军东部战区新闻发言人施毅表示，此次行动是对近期美方在台湾问题上频频释放错误信号的回应，并未提及到访的美国议员。
+15:01——
 
-中共喉舌《环球时报》称，中共国最强大的隐形战斗机歼-20已开始在东海和南中国海巡逻，这将使战机更好地维护中共国的领空安全和海上利益。
+那么我想告诉大家的，我本来今天要给大家要谈一系列的这些事情啊，就是国内的一些热点，但是战友们都关心0.3，我今天一会儿再说，没啥，别着急啊。0.3我就说了吧，0.3别着急，你要听不到“蹦”一响，0.3就不会来，你们不要猜，
 
-在周五与台湾总统蔡英文的会晤中，美国参议院外交关系委员会主席、美国参议员鲍勃·梅南德斯(Bob Menendez)称，这个技术中心是一个“具有全球意义的国家”，其安全对世界有一定影响。
+——15:25
 
-梅南德斯补充说，台湾生产了全球90%的高端半导体产品，使其成为“具有全球意义、后果和影响力的国家”。
+15:46——
 
-梅南德斯是是由六名美国两党议员组成的访问团中的一员，面对中共国持续的压力，他对这个民主岛屿表示支持。
+这个咱都不猜了，0.3里边一定要有3个以上的元素，要“蹦”一声，然后得白宫开记者招待会，第三个得有所谓的现在天上的星星，得有蹦下来的。没这个不算数啊，记住我说的啊，不到那时候不宣布，我不宣布啊，0.3，我也不会再回答了啊，你们也别猜了，你们谁猜都是，会砸你自己的脚。现在你们真的搬那0.3的石头砸自己的脚。别猜了，别砸了啊，很危险很危险。
 
-他承认中共国对这次访问“非常不高兴”，但这不会阻止美国在中共与台湾的争端中支持拥有2400万人口的台湾，中共在事实上的警察国家中统治着超过14亿人。
+——16:24
 
-中共从未控制过自治的台湾，但它仍然将台湾视为其领土的一部分，并发誓有朝一日将在必要时以武力夺取它。
+梅德韦杰夫的卫星战叫嚣虽然与中共无关，但是作为邪恶轴心的一员同时也是俄乌战争元凶的中共与这场战争脱不了干系，至于作为中共红旗导航系统的北斗在被美国击毁前那“蹦”的一声，到底是中共的辽宁舰或其他战舰被击沉发出来的还是美国或盟军的航母或战舰被击沉发出来的，我们猜不到，但是我们只能看到灭共3.0差的那0.3已经越来越近。
 
-在中共国这一代人中最专制的领导人习近平的领导下，对该岛的威胁变得更加严峻，而俄罗斯最近入侵乌克兰也加剧了人们对中共国将很快实施吞并其较小邻国的威胁的担忧。
+撰稿：喜马拉雅的肉夹馍；
 
-**简评：**
-美国国会众议院议长佩洛西原定于4月8日启程，率领国会代表团访问日本之后到访台湾，后因佩洛西确诊感染新冠病毒，光是这佩洛西的计划访台已经让中共很恼火了。也许佩洛西的计划搁浅背后另有隐情，但这都不妨碍不到一周之后的4月14日，美国跨党派国会议员访问台湾，政客们争相访台并表达对台湾的支持，时至今日竟已成为一种政治正确，尤其对于这六位来自美参院外交关系委员会的议员而言。
+视频剪辑：Cindy；
 
-中共对于美台交往的恫吓从未停止，过去美方碍于情面并不会如此频繁地派重要人士前往台湾与当局握手言欢，而今，美方的态度已经从暧昧不明，直接转变成了开诚布公。参访人士的级别越来越高了，发言答问也越来越大胆直白。中共外交部在这样态势强硬的美国人面前，哪怕用再轻蔑地口吻将对方的行动说得一文不值，也无法掩盖其字里行间的心虚肝颤。
+审核：喜马拉雅的馍夹肉；
 
-而中共国则是常规戏：用军事演习来恐吓台湾。美方访台时，他偏要在边上耍大刀。可是美国人都来几次了，中共每逢这样的时机必要秀一秀肌肉，放一放狠话，可肌肉从来没见展示过实际的威力，而放出的狠话也从没有兑现，所以这究竟是演习还是演戏呢？当然民主国家的政客正是因为看清的中共的邪恶才选择跟民主台湾交往，并给予台湾实际性的帮助。当美国国会议员，欧盟委员会议员们访问台湾成为常态时，一个新台湾诞生之际，也是中共灭亡之时。
+校对：Maarago；
 
-新闻链接：[Beijing sends its new stealth fighter jet to the South China Sea and stages military drills around Taiwan to intimidate US Congressional visit](https://www.dailymail.co.uk/news/article-10721745/Beijing-stages-military-drills-Taiwan-intimidate-Congressional-visit.html)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*翻译/简评：Brianchow*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*校对：村民彼得潘*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-* * *
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-编辑：【英国伦敦喜庄园编辑部】
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,30 +2,26 @@
 ---
 
 
-## 任何人若持有吴征、马云、孙力军、傅政华等人的刑讯卷宗，请联系新中国联邦
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2357787/)
+## 樱花时政┃美国陆军利用乌克兰战争的经验来帮助训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2358170/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-00.45.54.png)
-4月16日郭先生在直播中公布，任何人但凡有中共国的刑讯卷宗的，都可以主动联系新中国联邦。这些重要的情报可以得到丰厚的回报。
+撰稿：东京樱花团/加一颗稻草
 
-郭先生提到此前通过战友的介绍购买了大量的材料，通过Hpay迅速完成了交易。其中有马云的刑讯卷宗，其中显示马云的财政数据由中共的财政部门专门操作，中共审计署有专业的团队来给阿里巴巴审计数据。尽管卷宗只提供了三分之一，但已经让接触到的某国政府瞠目结舌。
+美联社——在尘土飞扬的加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰战争中吸取的教训，让士兵为未来与俄罗斯或中共国等主要对手的战斗做好准备。这是一场针对网络、社交媒体、后勤保障以及如何克服坦克在泥泞中的困难的演练。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-332.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/4cfafe71219446498073ac361509228d/3000.jpeg)
+此次俄罗斯入侵乌克兰的战争中，乌克兰巧妙的利用社交媒体摧毁了俄罗斯的虚假宣传战术。以直播的形式让全世界的人们在电视或网络上，看到飞弹爆炸的场景，对平民的伤害。更看到了乌克兰人民的勇敢，并揭穿了俄罗斯的虚假指控。这是一种创新的战争形式，结合与北约的情报和信息的共享，成功的击溃俄罗斯军队。
 
-郭先生爆料吴征接受的问讯笔录不下30次，这些大量的卷宗对于打破中共在美国的间谍网布置具有重要的作用。郭先生公布，任何人，但凡有吴征的问讯笔录、孙力军和傅政华的卷宗、马云其余的三分之二卷宗、以及吴征、孙力军、孟建柱等人的银行问讯笔录，单伟建的间谍档案等，请和所在农场主或者老椅子战友联系，新中国联邦会妥善安置。现金和喜币都可以交易，不用担心人身安全，此前有提供中共统计局数据的战友全家得到了美国紧急移民。郭先生提到，不仅限于以上卷宗资料，只要是中共的秘密都可以交易，新中国联邦是最好的桥梁。
+这样的战争模式与我们的爆料革命的战略不谋而合。爆料革命以为真不破的理念，用直播的方式向世界揭露了中共的无数次的谎言。导致中共内部听到爆料革命的声音就已经闻风丧胆，所以我们的每一次直播都对中共造成沉重打击。
 
-撰稿、发布：骄子
+消息来源：
 
-* * *
+[US Army using lessons from Ukraine war to aid own training](https://apnews.com/article/russia-ukraine-war-us-army-training-54e76eba46f9bf79542dd3f872456e67)
 
-欢迎订阅我们的GNews账号：
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

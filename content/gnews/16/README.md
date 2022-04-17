@@ -2,64 +2,72 @@
 ---
 
 
-## 建议上海卫健委领导精神病鉴定并持48小时内报告上岗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358881/)
+## COVID-19疫苗副作用集萃(2022.4.17D)&#8211;三针辉瑞疫苗，每一针身体反应都不同
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2360413/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/习近平全面部署_副本.jpg)
-据[老司机](https://twitter.com/h5LPyKL7TP6jjop)[@h5LPyKL7TP6jjop](https://twitter.com/h5LPyKL7TP6jjop)于[上午3:25 · 2022年4月17日](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080)发布的推文——
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！
+#### 整理/编辑：禄森
 
-
-
-> 这个对话有意思：逻辑严谨，证据确凿，上海市卫健委员会领导有精神病！ [pic.twitter.com/BeSoYDGByJ](https://t.co/BeSoYDGByJ)
-> — 老司机 (@h5LPyKL7TP6jjop) [April 16, 2022](https://twitter.com/h5LPyKL7TP6jjop/status/1515411026065326080?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-52.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-**接线员：**以防疫管控的这样一个措施您是觉得不合理？
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**投诉者：**他所谓的健康筛查，它是违反传染病防治法规定的。传染病防治法规定的说，你这个防控的对象只能是病人、密接，你对健康人群搞什么核酸检测、搞健康筛查。这逻辑很可笑的呀，按照这个逻辑，所有的上海市所有的卫健委系统的领导要全部进行精神病鉴定的，对吧？
+**帖子原文：**
 
-第一，精神病患者是不适合做领导工作的，我们都知道，因为他的角色和部署是不正常的、不靠谱的。
+博主:  THISISCHLOE
 
-那么第二，卫健委系统的每个领导都可能具有精神疾病，都是潜在的精神病患者。
+打完辉瑞第三针确定，第二针绝对是生理盐水！
 
-第三，为了保证全市人民的健康着想，本着早发现、早报告、早治疗的原则和目的，建议卫健委系统的每一个领导都去做精神病鉴定，持四十八小时内精神正常的鉴定报告上岗工作，这样我们才放心。
+终于鼓足勇气打了第三针，不出我所料，有反应…
 
-知道吗？就是你按照他们这种逻辑，来让他们做精神病鉴定，看他们能不能发现这种决策的可笑之处，或者说愚昧之处，怎么能用潜在的精神病患者来做决策和部署呢？
+相比第一针的躺平心率130，这一针还是不错的，躺平心率117倒是省了有氧了，还没胃口不想吃饭，说不定躺这几天还能瘦两斤
 
-**接线员：**呃，关于这个问题我会帮您反馈上去的，谢谢，让法律部门去核实处理。
+然后就是，我很确定我第二针打的是生理盐水，因为除了打针的地方痛，基本没有反应…
 
-**投诉者：**一定要回复！
+真的服了加拿大的医疗了
 
-**接线员：**好的，请您保持电话的畅通，我帮您转上去。
+作者发布于2022-4-16
 
-\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+评论选集:
 
-这一通对上海卫健委系统领导的投诉，以及建议卫健委系统的每位领导都去做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作的建议其实说出了我们每个人想说而没有说的话，但是我们有必要举一反三，对于全面部署、全面指挥这场冠状病毒抗疫的伟大领袖习猪头，他才是一切灾难的源头，在此也特别建议伟大领袖习猪头做精神病鉴定，并持四十八小时内精神正常的鉴定报告上岗工作。
+米卡莎评论:
 
-撰稿：喜马拉雅的肉夹馍；
+打到真家伙了，所以有句话，人是痛醒的不是叫醒的
 
-审核：喜马拉雅的馍夹肉；
+GracesStyle评论:
 
-校对：Maarago；
+我第二针打完心脏就严重过速加早搏心率不齐了，快一年了依然没有完全恢复，导致我前几天拔智齿心脏科医生要求我的oral surgeon使用剂量最低的麻醉，于是我半麻拔完了四颗智齿，包括一颗阻生
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+付付呀评论:
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+我打完胳膊疼了一宿…然后打针那侧腋下疼了一周
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+紫云汐评论:
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+我在法国打第一针发烧躺了两天，第二针没有任何反应，我朋友跟我一起去打的，她正好是第三针躺了两天，我们俩一个盒子里随机拿的药，感觉有啥后续效果看个人吧
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-49.png)图片来源：小红书
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-19.png)图片来源：小红书
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345-6.png)图片来源：小红书
+
+
+参考链接：[没胃口，打针的地方痛](https://www.xiaohongshu.com/discovery/item/625a06ce0000000001029d1d?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650067727)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

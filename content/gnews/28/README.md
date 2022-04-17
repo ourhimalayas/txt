@@ -2,22 +2,39 @@
 ---
 
 
-## 生态健康联盟继续向美政府要求资金赞助其“流行病预防”研究
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2357853/)
+## 有声|国人焦虑背后的真相是什么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2358405/)
 
-撰稿：西枫westca
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一个是驭民五术带来的压力另一个是真理与虚假现实的碰撞。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-28.png) 图片来源：网络照片
-据《国家脉动》4月15日报道， 在COVID-19大流行病中不可脱责的Peter Daszak继续要求拜登政府向“流行病预防”追加投资至近万亿美元。
+共匪政权除了通过驭民政策用生活压力让人恐慌和焦虑之外，更大的阴谋是撒下了弥天大谎，企图颠覆人的基本判断力，来彻彻底底的控制人的思想。人类生存的第一要素是安全，所有的活动包括繁衍都是建立在此基础上，就算是共匪篡夺权利几十年，依然该写不了人追求真相真理的天性。
 
-Daszak仍在被许多人怀疑其对COVID-19疫情负责的武毒所的研究进行持续审查中。在这种情况下居然还在要求美国纳税人承担起保护他操纵 “杀手 “病原体工作的重任。在未来几年提供近一万亿美元资助称旨在 “预防大流行 “的研究。
+安全感的建立是以事实为基础，共匪的假恶丑虽然隐瞒的很好，但是纸总是包不住火的，真相的缝隙会引导着人们去不断的发掘。最终水落石出，让人们把安全建立在事实的基石上，当真相与虚假的表面发生冲突，与基本的逻辑并不相符时往往会让人觉得想不通，或者总感觉到哪不对劲，这也是焦虑情绪的根源。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/01911ADA-4C7E-444F-989D-61DB979925D4.jpeg)
 
-4月11日，Daszak与其他三位合著者在专栏文章中解释说，”拜登政府应该在基础设施方面投入资金来预防另一场大流行病，并在大流行病发生时能够适应它们。这些额外的资源将有助于预防下一次大流行病，使之有可能在早期发现新的疫情，并利用接触者追踪来有针对性地作出反应”。 Daszak建议初始投资价值超过5000亿美元，最终将增加到8290亿美元，并 “每年投资以维持能力”。
 
-Peter Daszak 拥有的生态健康联盟深度参与武汉病毒实验室新冠病毒的研究，其后又参与武毒所掩盖Covid-19的起源。并参与了WHO派往中共国的调查团队，其结论是：病毒通过冷藏食品传入是“可能的途径”，而从实验室泄漏的说法“极不可能”
 
-**新闻来源：**[Wuhan Collaborator Peter Daszak Demands Nearly $1 TRILLION To Fund ‘Pandemic Prevention’ Efforts. (thenationalpulse.com)](https://thenationalpulse.com/2022/04/15/peter-daszak-calls-for-nearly-1-trillion/)
+
+文字版原文：[国人焦虑背后的真相是什么？](https://gnews.org/zh-hans/2346160/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

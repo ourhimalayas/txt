@@ -2,50 +2,75 @@
 ---
 
 
-## 英国首约翰逊因支持乌克兰而被禁止进入俄罗斯
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2358737/)
+## COVID-19疫苗副作用集萃（2022.4.17C）&#8211;辉瑞疫苗可能心肌炎update
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2358901/)
 
-翻译：冰糖葫芦喵
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-编辑与校对：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
-《华盛顿观察家报》4月16日报道，**本周六，由于英国在军事援助上对乌克兰的积极支持，并强烈谴责俄罗斯在乌克兰的暴虐行为，俄罗斯将包括英国首相鲍里斯·约翰逊、前首相特雷莎·梅和国防部长本·华莱士列入禁止入境黑名单。**
+#### 整理/编辑: BENJ1
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/约翰逊-e1650156033996.jpg)英国首相鲍里斯.约翰逊（图片来源：华盛顿邮报）
-
-在上周，一直将自己称为乌克兰最坚定盟友之一的**约翰逊，突然访问乌克兰首都基辅，并与乌克兰总统泽伦斯基进行了面对面的会晤**。与此同时，约翰逊宣布，**英国将会运送价值1亿英镑的先进的军事装备给乌克兰武装部队，这项援助方案包括光防空飞弹、800枚反战车飞弹以及其他精准武器弹药，并提供120部装甲车辆以及新的反舰飞弹系统。**
-
-周六，**俄罗斯外交部在一份声明中表示，这一举措是对伦敦不断的军事援助和政治活动的回应，其目的是在国际上孤立俄罗斯，为限制俄罗斯国内经济创造条件。**
-
-**英国政府表示，尽管英国政府成员被列入黑名单，但英国仍然坚决支持乌克兰，并谴责俄罗斯在乌克兰的暴虐行为。**
-
-周六下午，**约翰逊在推特上说，今天下午，我向我的朋友泽连斯基更新了我们将在未来几天向乌克兰提供的进一步军事援助。英国将不惜一切代价确保乌克兰人拥有他们需要的资源，以保护他们的国家免受俄罗斯的攻击，与乌克兰站在一起。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-50.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-> I updated my friend [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) this afternoon on further military aid we will provide to Ukraine in the coming days.
-> 
-> The UK will stop at nothing to ensure Ukrainians have the resources they need to defend their country from the ongoing Russian onslaught. [#StandWithUkraine️](https://twitter.com/hashtag/StandWithUkraine%EF%B8%8F?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Boris Johnson (@BorisJohnson) [April 16, 2022](https://twitter.com/BorisJohnson/status/1515378969251569668?ref_src=twsrc%5Etfw)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+帖子原文：
+
+博主：时舒妈妈在加拿大
+
+**辉瑞疫苗可能心肌炎update**
+
+3.26去医院背了holter48小时，期间感觉还好，能做饭 下楼 买菜 开车。
+
+直到昨天和今天，傍晚时刻便胸闷气喘，人很累，八点多上床，九点多就能睡着。
+
+不管检查结果如何，身体状态差在这里，我还要每天照顾女儿，她虽然尽力帮助妈妈，可是毕竟还小，这日子不知道什么时候是个头？
+
+我知道带她来加拿大是正确的选择，可是真的没料到这么难、这么难。
+
+继续排队等待做心脏彩超。
+
+现在每天吃Q10 400mg VD 综合维生素和锌、鱼油。
+
+咬牙坚持吧#辉瑞疫苗 #心肌炎 #移民加拿大 #海外独自带娃
+
+评论选集：
+
+[Ying](https://www.xiaohongshu.com/user/profile/5f10a3750000000001002fd7) 回复：
+
+一样。打了第三针后整天跑专科
+
+[kt的两小只](https://www.xiaohongshu.com/user/profile/5f93dafe000000000101d1a3) 回复：
+
+你心跳怎么样？我跟你一样，去过两次急诊了，都是正常被打回来
+
+时舒妈妈在加拿大(作者)  回复:
+
+刚发作时静息近100，一动就120-140 两周后下来到70+但不能累
+
+kt的两小只 回复 :
+
+我跟你差不多，现在基本上日常活动90-100，上楼梯什么的就会到120
+
+kt的两小只 回复 :
+
+但我已经很久了！我去年7月打的疫苗。好一阵就不舒服一阵，循环好几次了
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-47.png)图片来源：小红书
 
 
+素材来源：[辉瑞疫苗可能心肌炎update](https://www.xiaohongshu.com/discovery/item/6244f027000000002103b994)
 
-3月15日，俄罗斯对美国实施了类似的制裁，禁止美国总统拜登、他的儿子亨特拜登、前国务卿希拉里·克林顿、白宫新闻秘书珍·普萨基等美国官员访问俄罗斯。
+发布：*wenly*
 
-自俄罗斯入侵乌克兰以来，**西方国家虽然没有派遣军队，但是通过经济制裁和对乌克兰提供军事援助，向俄罗斯施加压力，迫使其停止对乌克兰的进攻**。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-新闻来源链接：
-
-[Increasingly isolated Moscow blacklists British leaders | Washington Examiner](https://www.washingtonexaminer.com/policy/foreign/increasingly-isolated-moscow-blacklists-british-leaders)
-
-[Boris Johnson banned from Russia over support for Ukraine – The Washington Post](https://www.washingtonpost.com/world/2022/04/16/boris-johnson-banned-russia/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
