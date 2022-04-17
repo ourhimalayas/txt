@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 4/17/2022 11:47 AM (UTC)`
+
+https://gettr.com/streaming/p15opbade6f
+
+---
+
+`@miles 4/17/2022 11:42 AM (UTC)`
+
+NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望与和平<br/>
+![img](https://media.gettr.com/group19/origin/2022/04/17/11/9aafb504-d8a2-4f14-a43e-b0a177b5f627/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/17/2022 9:12 AM (UTC)`
 
 The founder of Himalaya Exchange, William Je, is interviewed by GB News about how cryptocurrencies help the rescue work in Ukraine. He particularly mentions that what happens in Ukraine today will happen in Taiwan tomorrow, as he comes from Hong Kong and has experienced all of these before. He also shows concerns that a new Axis of Evil is forming, and this Ukraine War is just the beginning of a bigger war.<br/><br/>喜联储的创始人William Je余建明接受英国GB News的采访，关于虚拟货币是怎样有助于对乌克兰的救援活动。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。<br/>
@@ -140,22 +155,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 4/16/2022 Miles Guo: The New Federal State of China is grateful for what our fellow fighters in Changchun, northeast China, did to help each other. Thanks to our fellow fighters in Shanghai for providing important intelligence regarding governmental actions and helping other fellow fighters’ families in smart ways. However, everyone should remember that no one is obligated to help anyone else. Don’t take other fellow fighters’ help for granted.<br/><br/>4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的<br/>
 ![img](https://media.gettr.com/group30/getter/2022/04/16/21/d7add4da-617d-43cc-9fe8-7110edef2893/out.jpg)
-
----
-
-`@miles 4/16/2022 8:51 PM (UTC)`
-
-2022.04.16  新中国联邦 | 喜健康   拥抱太阳医生专访
-![img](https://media.gettr.com/group40/origin/2022/04/16/20/7d72cc93-5197-5e19-e0b4-2b612500b095/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/15/2022 5:55 PM (UTC)`
-
-🆘🇺🇦🆘🇺🇦🆘来自乌克兰救援前线 报道<br/>❣️Nicole采访来自台湾的退伍军官义工❣️<br/>台湾退伍军官义工来到新中国联邦帐篷：<br/>他在梅第卡帮助和支持乌克兰难民，现在准备去基辅送医药物资。但是他的装药品的行李袋坏掉了，文科和吴佳战友热心帮忙送给他结实的双肩背包。他那慈祥的面容充满着浓浓的爱意和谢意！<br/>--------<br/>通过前线战友辛勤地传播新中国联邦和中共邪恶的真相，相信越来越多的台湾同胞会了解现在的台湾严峻形势。上天保佑善良的台湾同胞们和家人平安！<br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
-![img](https://media.gettr.com/group11/origin/2022/04/15/17/dea64f20-c248-006a-2607-d416b42f62d9/out.jpg)
 
 ---
 
