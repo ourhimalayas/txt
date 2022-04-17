@@ -2,36 +2,30 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2364085/)
+## 欧盟将针对俄罗斯石油和银行领域实施第6轮制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364176/)
 
-作者：香草山翻译部
+作者：方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据世界新闻网4月16日援引路透社报导，欧盟即将针对俄罗斯石油和银行，特别是俄罗斯联邦储蓄银行“（Sberbank），实施的第6轮特别制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/sEMp81kW1omPKgeoHN0IZKXPOsBWOlGT2QF0IdkBdCE.jpeg)
+消息指出，欧盟此前一直未对俄罗斯联邦储蓄银行出手，是因为它与“俄罗斯天然气工业银行“（Gazprombank）都是俄罗斯石油和天然气支付的主要渠道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
+欧盟执委会主席范德赖恩（Ursula von der Leyen）表示计划中的制裁包括占俄罗斯银行业37%的最大银行–俄罗斯联邦储蓄银行和能源问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-16.png)
+范德赖恩强调当务之急是缩减普京的收入，他说欧盟正在制定“聪明的机制“，以便石油也可以纳入制裁。
 
-文章仅代表作者本人观点，与Gnews无关
+俄罗斯联邦储蓄银行现在已成为美国和英国的制裁目标。
 
-视频参看：
-[2022.04.17早 《NFSC新闻》](https://gettr.com/streaming/p15piw18d52)
-[2022.04.17早《NFSC新闻访谈》](https://gettr.com/streaming/p15p2ox451e)
+参考链接：[歐盟將對俄祭出第6波制裁 范德賴恩：將針對2個領域](https://www.worldjournal.com/wj/story/121256/6245001)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
-
+编辑：文恩
+总编：文恩
+审核：文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

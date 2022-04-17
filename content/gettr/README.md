@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 6:25 PM (UTC)`
+
+2022-4-17 七哥来啦
+![img](https://media.gettr.com/group48/liveorigin/2022/04/17/18/e4ed94d3-ece5-bd1e-0d3d-189326716fb7/db77deaeeaadf94601c75dae84bb7948.jpg)
+
+---
+
 `@miles 4/17/2022 5:27 PM (UTC)`
 
 04.17.2022 俄乌战争战况播报<br/>
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 2022.04.16 晚  新中国联邦 | 新闻访谈   上海疫情封城造成大面积死亡，居民断粮、无处可医
 ![img](https://media.gettr.com/group22/origin/2022/04/17/01/588084ad-71a0-82fc-804e-34ccfa47f4d7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/17/2022 12:32 AM (UTC)`
-
-2022.04.16 晚  新中国联邦 | 新闻   近百名犹太人在新中国联邦的七星大帐蓬共度逾越节；新中国联邦的救援被全球越来越多人认识
-![img](https://media.gettr.com/group31/origin/2022/04/17/00/7290b097-6937-ca11-17a5-c2a674f001bc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
