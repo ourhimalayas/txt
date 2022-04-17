@@ -2,314 +2,57 @@
 ---
 
 
-## 杰克·波索比克: “这些都是在中共国进行的恐怖封锁”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2358756/)
+## 俄罗斯叫嚣清除马斯克星链,灭共3.0剩下的0.3日益临近
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2358738/)
 
-Steve Bannon
-史蒂夫·班农
+![](https://assets.gnews.org/wp-content/uploads/2022/04/北斗_副本.jpg)
+据[SpaceX帮助击沉“莫斯科”号？梅德韦杰夫：俄空军将清除马斯克的卫星](https://finance.sina.com.cn/jjxw/2022-04-16/doc-imcwipii4672085.shtml)（2022年04月16日 19:42 环球时报）
 
-these videos people are talking about is that there’s no food
-人们在这些视频谈论的是那里没有食物
+【俄罗斯前总统、联邦安全会议副主席梅德韦杰夫说，俄罗斯情报部门获悉，本周早些时候乌克兰的一次导弹袭击击沉了“莫斯科”号导弹巡洋舰，是由SpaceX 发射的“星链”（Starlink）卫星协调的。
 
-They won’t let people out of the house
-他们不允许人们出门
+梅德夫德夫说：“总司令已发布命令，清除目前在俄罗斯联邦、特别军事行动地区和黑海上空的一组‘星链’卫星，以确保参与行动的所有部队的安全。”】
 
-this is a lockdown as hard as
-这种封锁简直是…
+这条消息有两层含义，一是俄罗斯自己终于承认“莫斯科”号导弹巡洋舰是由于被乌克兰以导弹击沉的，而不是此前所谎称的军舰着火。
 
-Jack Posobiec
-杰克·波索别克
+这条消息的第二层含义是俄乌战争开始转向太空，转向攻击敌方卫星。而这第二层含义又与灭共3.0剩下的0.3息息相关，郭文贵先生在前几期的直播中已经爆出了中共在塞尔维亚及多个地区部署了针对美国和欧盟及乌克兰的红旗导弹，并且也爆出了红旗导弹采用中共的北斗导航系统，同此引出灭共3.0剩下的0.3的话题（视频来源[郭文贵GTV直播2020年1月18日谈刘鹤招待会删除预示了什么，爆料革命击中了中共的所有要害，中美贸易，新疆，香港，蛇鼠一窝无处逃蹿](https://livestream.com/accounts/27235681/events/8197481/videos/200881630)）——
 
-this is terror lockdowns
-这是恐怖封锁
+15:01——
 
-these are terror lockdowns that are going on in China
-这些是在中共国正在进行的恐怖封锁
+那么我想告诉大家的，我本来今天要给大家要谈一系列的这些事情啊，就是国内的一些热点，但是战友们都关心0.3，我今天一会儿再说，没啥，别着急啊。0.3我就说了吧，0.3别着急，你要听不到“蹦”一响，0.3就不会来，你们不要猜，
 
-This is China’s most populous and wealthiest city
-这是中共国人口最多、最富有的城市
+——15:25
 
-right of mainland China is Shanghai
-中共国大陆的上海
+15:46——
 
-26 million people, one of largest cities in the world that I counted
-2600万人，我知道的世界上最大的城市之一
+这个咱都不猜了，0.3里边一定要有3个以上的元素，要“蹦”一声，然后得白宫开记者招待会，第三个得有所谓的现在天上的星星，得有蹦下来的。没这个不算数啊，记住我说的啊，不到那时候不宣布，我不宣布啊，0.3，我也不会再回答了啊，你们也别猜了，你们谁猜都是，会砸你自己的脚。现在你们真的搬那0.3的石头砸自己的脚。别猜了，别砸了啊，很危险很危险。
 
-and when I look at those videos now
-当我现在看那些视频时
+——16:24
 
-these people are being starved, being locked that you can’t go out of your homes
-这些人正在挨饿，被锁着，不能出家门
+梅德韦杰夫的卫星战叫嚣虽然与中共无关，但是作为邪恶轴心的一员同时也是俄乌战争元凶的中共与这场战争脱不了干系，至于作为中共红旗导航系统的北斗在被美国击毁前那“蹦”的一声，到底是中共的辽宁舰或其他战舰被击沉发出来的还是美国或盟军的航母或战舰被击沉发出来的，我们猜不到，但是我们只能看到灭共3.0差的那0.3已经越来越近。
 
-When I look at the towers, the apartment buildings, right?
-当我看到塔楼，公寓楼时，看到了吗？
+撰稿：喜马拉雅的肉夹馍；
 
-It looks exactly like the one where I used to live
-它看起来和我以前住过的一模一样
+视频剪辑：Cindy；
 
-People are jumping out of them to commit suicide
-人们从楼上跳下来自杀
+审核：喜马拉雅的馍夹肉；
 
-because they can’t take it and the animals by the way，the pets
-因为他们不能接受它，顺便说一下动物，宠物
+校对：Maarago；
 
-if you test positive and everyone’s required to test every single day
-如果你测试呈阳性并且每个人都需要每天进行测试
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-you go out sometimes you even have to kneel, to take the test
-你出去有时你甚至不得不跪下来参加测试
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-They force you to kneel and
-他们强迫你跪下
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-Steve Bannon
-史蒂夫·班农
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-how can 25 million people be tested
-如何对2500万人进行测试?
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-this is why you’re seeing the things of the army coming in
-这就是为什么你看到军队进城
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-Jack Posobiec
-杰克·波索别克
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-That’s why the military is coming in
-这就是军队进来的原因
-
-And if they if you test positive, there’s no videos coming out
-如果他们检测呈阳性，就没有视频出来了
-
-They’re rounding up the pets
-他们正在围捕宠物
-
-Steve Bannon
-史蒂夫·班农
-
-they’re killing the pets
-他们杀死宠物
-
-Jack Posobiec
-杰克·波索别克
-
-They are killing the pets in the streets
-他们在街上杀死宠物
-
-Steve Bannon
-史蒂夫·班农
-
-Okay, this is what, you got to help me out here
-好吧，就是这样，你得帮帮我
-
-They just had a Winter Olympics in Beijing
-他们刚刚在北京举办了冬奥会
-
-Jack Posobiec
-杰克·波索别克
-
-That’s right
-是的
-
-Steve Bannon
-史蒂夫·班农
-
-that the whole world allowed all these athletes to go to
-全世界都允许所有这些运动员去参加
-
-and MSNBC and CNBC and NBC were over there cow-telling
-MSNBC 和 CNBC 和 NBC 在那边
-
-how can we have sent people over in basically
-基本上我们怎么能派人去参加
-
-late January, early February, and six weeks later, five weeks later?
-一月底，二月初，大概六周后，五周后？
-
-They’re literally quarantining and lock it in a hard lockdown one of the great cities of the world
-他们实际上是在将其隔离并封锁在世界上最伟大的城市之一中
-
-Jack Posobiec
-杰克·波索别克
-
-They’re locking this down even the western cities Hunan
-他们甚至封锁了湖南西部城市
-
-you can go through 23 cities are now looking at this
-已经有23个城市正在被封锁
-
-So Shanghai …
-所以上海…
-
-Steve Bannon
-史蒂夫·班农
-
-200 million people
-2亿人
-
-Jack Posobiec
-杰克·波索别克
-
-We’re looking probably about about 193 almost
-估计大约1.93以人左右
-
-just under 200 million people
-不到2亿人
-
-Steve Bannon
-史蒂夫·班农
-
-200 million people are in some form of lockdown as we
-2亿人处于某种形式的封锁中
-
-Jack Posobiec
-杰克·波索别克
-
-This is terror lockdown
-这是恐怖封锁
-
-Steve Bannon
-史蒂夫·班农
-
-What do you mean terror lockdown?
-恐怖封锁你的意思是？
-
-Jack Posobiec
-杰克·波索别克
-
-You know, there’s no UberEATS that’s running
-你知道，没有快递员送餐
-
-There’s no you know, you can’t get delivery
-那里没有，你知道，你不能得到送货
-
-The supermarkets are shut down
-超市都关门了
-
-You know, we had soft lock downs here in the US
-你知道，我们在美国有软封锁
-
-you know, you could still go out for the
-你知道，你仍然可以出去
-
-you know, the whole thing essential workers, everything else
-你知道，整个事情，必不可少的工人，民生岗位正常工作等
-
-and I don’t mean to downplay the lock downs that were had in the US
-我并不是要淡化美国的封锁
-
-but I’m saying they were nothing
-但是我要说我们的软封锁与中共在这些恐怖封锁
-
-compared to what the CCP was doing in these terror lock downs, right?
-中所做的相比算不了什么，对吧？
-
-They shut down your basic essentials
-他们切断了你的基本必需品
-
-They didn’t want anybody coming out and if they see you on the street
-他们不希望任何人出来，如果他们在街上看到你
-
-they’re grabbing you, tearing you down, right?
-他们会抓住你，把你推倒，对吧？
-
-I posted on Twitter, because they did let me back today
-我在推特上发帖，因为他们今天恢复了我的推特账号
-
-And I’ve got videos all over Shanghai about this
-我在网络上看到到处都有关于上海的视频
-
-And so the reason that I’m putting it this up and some people
-所以我提出这个的原因是
-
-and I remember I remember that there was this whole school of thought at one point
-我记得曾经有过一整套思想流派
-
-This is thought
-这是想法
-
-it’s China just doing all that in in late 2019, early 2020
-是中共国在 2019 年末、2020年初才做了这一切
-
-Was it a psyop?
-是心理战吗？
-
-Was it you know, were they tricking us with these videos was
-你知道吗，他们用这些视频欺骗我们
-
-it meant to trick the west into lockdown
-要欺骗西方进入封锁状态
-
-just said no, no, no, no, no
-只是说不不不不不不
-
-Steve Bannon
-史蒂夫·班农
-
-They don’t roll like that
-他们不这样做
-
-Jack Posobiec
-杰克·波索别克
-
-They’re terrified of this thing
-他们害怕这种事情
-
-And why is it and it goes back to
-为什么会这样，它又回到了
-
-what I said on the very first episode of this program
-我在这个节目的第一集中所说的
-
-two and a half years ago right in this chair
-两年半前, 就在这把椅子上
-
-They are terrified of being viewed as losing the mandate of heaven
-他们害怕被视为失去强制专权
-
-Because when you lose the mandate of heaven
-因为当你失去强制专权的时候
-
-when the God Emperor
-当皇威
-
-the Dragon throne is seen as losing the mandate of heaven in China
-即天子在中国被认为是失去了强制专权的话
-
-that means that people have the right and the duty
-这意味着人们有权利和义务
-
-to establish a new dynasty and to rise up against them
-建立一个新王朝并起来反对他
-
-And that means if you can’t handle the famine, the plague pestilence
-这意味着如果你不能应付饥荒，瘟疫
-
-that hits the land, the invaders, the bandits
-袭击土地，入侵者，土匪
-
-if your empire is crumbling, then you need a new empire
-如果你的帝国正在崩溃，那么你需要一个新的帝国
-
-**原视频链接**[https://gettr.com/post/p14yajx99c9](https://gettr.com/post/p14yajx99c9)
-
-Date:04/13/2022
-原视频标题: “These are terror lockdowns that are going on in China.” -Jack Posobiec
-杰克·波索比克: “这些都是在中共国进行的恐怖封锁”
-原视频日期：2022/04/12
-原视频链接https://gettr.com/post/p14yajx99c9
-任务编号：KE479（4233）
-视频时间段 : 0:00-3:17
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

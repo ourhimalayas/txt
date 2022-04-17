@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 2:02 AM (UTC)`
+
+2022.04.16  新中国联邦 | 喜财经  GDP vs 货币发行量；货币总量等式背后的猫腻；使用价值是交换价值和价值的物质承担者
+![img](https://media.gettr.com/group18/origin/2022/04/17/02/250b3e04-a624-4910-e9ce-bd58235132b2/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/17/2022 1:23 AM (UTC)`
 
 4/16/2022 Miles Guo:  It is speculated that the death toll during the quarantine in Shanghai may exceed one million; the Chinese Communist Party is slaughtering Chinese people through controlling their money, food, water, and the right of speech. If the Chinese people still remain silent and obedient, there is only one way available for them, which is to wait for death to come<br/><br/>4/16/2022 文贵直播：上海隔离期间的死亡人数可能突破百万；中共通过控制人民的钱、食物和水、说话的权利来屠杀人民，如果中国人民还继续默默忍受，只有在家等死的一条路可走<br/>
@@ -155,13 +162,6 @@ Report from #NFSC's #UkraineRescue #Nicole telled the story in process of interv
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月15日第42天当日救援统计：<br/>Medyka救援站接待：约316人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约11988人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 42 - Date: April 15, 2022 :<br/>Medyka Rescue Station Reception: about 316 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 11988 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group42/getter/2022/04/16/18/cce80e9d-354c-c9c3-bda5-5c21b25e2fac/6f0b5f0041324a4e536d7944fc4d1187.jpg)
-
----
-
-`@miles 4/16/2022 5:58 PM (UTC)`
-
-4/16/2022 Miles Guo: The CCP wants John Lee to be the Chief Executive of Hong Kong. Once John Lee gets elected, there will be less forced PCR tests in Hong Kong; the fact the CCP could sell its drones to Taiwan military through a third party tells that the entire system in Taiwan has a huge problem.<br/><br/>4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解；台湾军方能通过第三方购买中共的无人机，说明台湾的整个系统出了大问题。<br/>
-![img](https://media.gettr.com/group36/getter/2022/04/16/17/6fce8b8a-7e15-2715-46e0-75e033add6bd/out.jpg)
 
 ---
 

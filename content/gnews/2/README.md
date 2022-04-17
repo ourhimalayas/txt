@@ -2,25 +2,11 @@
 ---
 
 
-## 视频|深圳龙岗区里浦街布龙路，今天有网友拍到的，不打第3针的用黑车强行拉走。跟人贩子有得一比
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2360436/)
+## 4/16/2022 文贵直播：上海隔离期间的死亡人数可能突破百万；中共通过控制人民的钱、食物和水、说话的权利来屠杀人民
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2360492/)
 
-【视频剪辑】 文果
+秘密翻译组-北美组
 
-【文案作者】新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【文案审核】文敏
-
-【制作团队】大直播短视频组
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
