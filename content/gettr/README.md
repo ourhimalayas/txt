@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/17/2022 1:31 PM (UTC)`
+
+ 4月17号：尊敬的战友们好……青岛开始搞舆论准备了吧……你你看看共产党这些下作的流氓，黑社会手段太可悲了……
+![img](https://media.gettr.com/group29/getter/2022/04/17/13/4458f28a-1fea-2160-cd74-2e92e5fcf7b4/4a860e120f7a499e8d5d1d713c4ddfc9.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 4/17/2022 11:43 AM (UTC)`
@@ -149,13 +156,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 【Ukraine Rescue】04/15/2022  Jewish volunteers say that this tent provided by the New Federal State of China should be called the liberation tent, because we're helping the Ukrainian refugees to escape from the war to embrace freedom. And the Rule of Law Foundation is also helping the 1.4 billion Chinese people to be freed from the slavery by the Chinese Communist Party. And then the Jewish people have a great example, great success of being freed from the Egyptians, and fighting for freedom again in the Holocaust during the Second World War  in Poland. And today,  the new Chinese are taking down the CCP. <br/><br/>【乌克兰救援】04/15/2022 犹太义工说，新中国联邦提供的这个帐篷应该叫‘解放帐篷’，因为我们正在帮助乌克兰难民逃离战争，拥抱自由。而法治基金会也在帮助14亿中国人民摆脱中共的奴役。犹太人是一个很好的先例，成功从埃及人的奴役中解放出来；然后是二战时波兰人与纳粹的战斗；今天是新中国人正在推翻中共。
 ![img](https://media.gettr.com/group44/getter/2022/04/16/21/49c5881c-969e-e440-d651-f16858fd4220/out.jpg)
-
----
-
-`@miles 4/16/2022 9:12 PM (UTC)`
-
-4/16/2022 Miles Guo: The New Federal State of China is grateful for what our fellow fighters in Changchun, northeast China, did to help each other. Thanks to our fellow fighters in Shanghai for providing important intelligence regarding governmental actions and helping other fellow fighters’ families in smart ways. However, everyone should remember that no one is obligated to help anyone else. Don’t take other fellow fighters’ help for granted.<br/><br/>4/16/2022 文贵直播：新中国联邦感谢东北长春战友的互帮互助，感谢上海战友提供的关于政府行动情报以及智慧地帮战友家人，但记住，谁帮谁都不是必须的，不是人家欠你的<br/>
-![img](https://media.gettr.com/group30/getter/2022/04/16/21/d7add4da-617d-43cc-9fe8-7110edef2893/out.jpg)
 
 ---
 

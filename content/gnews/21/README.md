@@ -2,46 +2,26 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.17M）新冠康复后科兴第一针副作用明显
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2362785/)
+## 新中国联邦前线救援行为获犹太义工高度肯定
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2363007/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+作者：雅典娜农场 Candy
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
+当地时间4月15日晚，在梅迪卡东欧战争前线的新中国联邦救援营地，前线战友与当地的犹太裔义工共同庆贺犹太逾越节。Nicole战友采访了一位来自以色列耶路撒冷的义工那里安（Naria）在“同心“救援机构工作的。他自我介绍说；他叫）这位在“同心”救援机构工作的犹太裔战友，面对新中国联邦的摄像机，讲述了他造访利沃夫时的所见所闻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-9.21.46-PM.png)
+那里安发现，在乌克兰，尤其是利沃夫的难民中心，年轻人发起的各类救援与反抗组织占据了主导，他们中的很多人拥有“独立战争”字样的纹身。他认为，俄乌战争是一场唤起民智，关乎独立、自由与解放的战争；乌克兰的青年、犹太人、以及新中国联邦人，通过这场战争将彼此联系在了一起。
 
-整理/编辑：机器猫
+那里安认为，在新中国联邦救援营地举办的这场逾越节庆祝活动，既缅怀了千年以来、以及上个世纪在波兰这片土地上为自由而战的犹太先民；同时也鼓舞了乌克兰人民和新中国联邦人，他们为自由和解放而进行同样的战斗。新中国联邦人在前线夜以继日地帮助乌克兰人民逃离战争、拥抱自由，法治基金也在帮助14亿中国人民摆脱中共的奴役。这是一种精神的传承。大家一起在这片土地上，同一个帐篷里，拥有共同的信仰，同为自由解放而战。此情此景，令人感慨万千。而这个能容纳进百人的救援帐篷，应命名为‘解放帐篷“。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
+参考链接：[04/15/2022 Jewish volunteers say that this tent provided by the New Federal State of China should be called the liberation tent](https://www.gettr.com/post/p15mfh51324)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-原文作者：豹豹颗粒memo机
-
-**新冠康复后科兴第一针副作用明显**
-
-帖子原文：
-
-自从去年7月份感染之后别人的自然抗体igg都是蹭蹭蹭的往上涨，但是我从感染开始igm就一直阴，igg也不高，基本流水测自测板的时候都看不到线的程度，大概二三百？
-
-一般来说有感染史的再打一剂加强剂，基于我这种情况我咨询了一下医生，建议我最好三针再打一次，所以我就是那个感染了个寂寞的人
-
-康复之后的六个月开始打第一针，科兴副作用有点强，打完之后非常疲惫且头痛，头痛欲裂的头痛，就像又冲击钻那样一直突突突突的痛，感受到神经的跳动。当时打完的半小时没啥事就离开注射点，结果吃完饭就开始疲惫犯困头痛烦躁，痛到睡也睡不着，也不敢吃药，就这样持续一天过去…还有一点低烧，但是我看说明书是很常见的症状
-
-关于打科兴会瘦这回事，确实瘦了两斤，但我估计是因为头痛吃不下东西瘦的，希望第二针反应别那么强烈
-
-#北京科兴中维#科兴新冠疫苗#打新冠疫苗第一针#打新冠疫苗#新冠#新冠康复者
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2084.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2083.png)图片来源：小红书
-参考链接：[新冠康复后科兴第一针副作用明显](https://www.xiaohongshu.com/discovery/item/6241407b000000000102fc6e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068530)
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+编辑：文鹰
+总编：文恩
+审核：Jack Li文阳
+校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-10-at-4.45.47-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
