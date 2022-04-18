@@ -15,131 +15,131 @@
 
 ---
 
-### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共国经济放缓，远不止疫情因素](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [截至4.18 俄乌战事汇总](/content/gnews/3/README.md)
+### [白宫宣布于5月12日举行全球新冠疫情峰会](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美日等国善待从中共国上海出逃的人](/content/gnews/4/README.md)
+### [俄方号称击毁西方军援飞机，中共导弹难脱干系](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022年2月1-2日 郭文贵先生视频 节选整理](/content/gnews/3/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [🎉🎉🎉MV版《铁锁梦》4.19五周年纪念日全球上线](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [“灯光差点要了我的命！”——乌克兰妇女描述上海方舱医院内的恶劣条件](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/6/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/7/README.md)
+ ` thedawn`
+
+### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/8/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [多国首脑相继访日 岸田危机公关忙](/content/gnews/9/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共国经济放缓，远不止疫情因素](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [截至4.18 俄乌战事汇总](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美日等国善待从中共国上海出逃的人](/content/gnews/12/README.md)
  ` 银河歌舞厅`
 
-### [2022/04/18 文贵先生蓋特](/content/gnews/5/README.md)
+### [2022/04/18 文贵先生蓋特](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声｜俄证实俄军少将被乌军击毙](/content/gnews/6/README.md)
+### [有声｜俄证实俄军少将被乌军击毙](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜马里乌波尔的乌克兰守军坚决不投降](/content/gnews/7/README.md)
+### [有声｜马里乌波尔的乌克兰守军坚决不投降](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022/04/13 墙内世界](/content/gnews/8/README.md)
+### [2022/04/13 墙内世界](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月18日早](/content/gnews/9/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月18日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [中共以“清零”做掩护，实则用中共病毒疫苗杀人](/content/gnews/10/README.md)
+### [中共以“清零”做掩护，实则用中共病毒疫苗杀人](/content/gnews/18/README.md)
  ` 银河歌舞厅`
 
-### [有声｜泽连斯基与国际货币基金组织讨论乌克兰的重建](/content/gnews/11/README.md)
+### [有声｜泽连斯基与国际货币基金组织讨论乌克兰的重建](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [上海名人被中共折磨致死](/content/gnews/12/README.md)
+### [上海名人被中共折磨致死](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [数字货币发展进入法律规范化时代](/content/gnews/13/README.md)
+### [数字货币发展进入法律规范化时代](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [中共为大连和青岛大隔离做舆论准备](/content/gnews/14/README.md)
+### [中共为大连和青岛大隔离做舆论准备](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [2022年4月18日，全球中共病毒疫情情况汇总](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Ezra Levant在Tucker Carlson Tonight上讨论特鲁多对新闻业的许可证计划](/content/gnews/16/README.md)
+### [Ezra Levant在Tucker Carlson Tonight上讨论特鲁多对新闻业的许可证计划](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/17/README.md)
+### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界各地的年轻人现在非常反对中共国的侵略](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新中国联邦俄乌战争正式走向国际舞台展示中国人新形象](/content/gnews/19/README.md)
+### [新中国联邦俄乌战争正式走向国际舞台展示中国人新形象](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国及世界疫情简报（04-18-2022）](/content/gnews/20/README.md)
+### [美国及世界疫情简报（04-18-2022）](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [曾庆红识人断事之:粮食&amp;金融&amp;俄乌战争&amp;海航陈峰王岐山](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [04/18/22 香港快讯 资审会已完成审查李家超候选人资格 裁定提名有效](/content/gnews/22/README.md)
+### [04/18/22 香港快讯 资审会已完成审查李家超候选人资格 裁定提名有效](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [改编了中共國國歌（小區版）抱砖引玉。唱起來，用音樂找回我們的勇氣！](/content/gnews/23/README.md)
+### [改编了中共國國歌（小區版）抱砖引玉。唱起來，用音樂找回我們的勇氣！](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|俄罗斯从莫斯科驱逐18名欧盟外交官](/content/gnews/24/README.md)
+### [有声|俄罗斯从莫斯科驱逐18名欧盟外交官](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [乌军用英国最新防空导弹击落俄无人机](/content/gnews/25/README.md)
- ` GTV News Talk`
-
-### [G系列媒体平台必须坚持做正义媒体](/content/gnews/26/README.md)
+### [G系列媒体平台必须坚持做正义媒体](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/27/README.md)
+### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声|中共用中欧班列帮助普京](/content/gnews/28/README.md)
+### [有声|中共用中欧班列帮助普京](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|俄罗斯在乌克兰的目标没有改变](/content/gnews/29/README.md)
+### [有声|俄罗斯在乌克兰的目标没有改变](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/30/README.md)
+### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/34/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [澳大利亚法律专家团队加入俄罗斯侵略乌克兰战争罪的取证](/content/gnews/31/README.md)
+### [澳大利亚法律专家团队加入俄罗斯侵略乌克兰战争罪的取证](/content/gnews/35/README.md)
  ` 走进澳洲`
 
-### [美国打俄罗斯就像七哥上厕所撒泡尿功夫灭掉欺民贼一样](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [澳大利亚取消对旅客入境前的中共病毒测试](/content/gnews/33/README.md)
+### [澳大利亚取消对旅客入境前的中共病毒测试](/content/gnews/36/README.md)
  ` 走进澳洲`
 
-### [美国联邦法官宣称全国性禁令应该被“彻底消除”](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [黑色复活节，新的流行病——众多“突然死亡”](/content/gnews/35/README.md)
+### [黑色复活节，新的流行病——众多“突然死亡”](/content/gnews/37/README.md)
  ` xiaobaige`
 
-### [印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/36/README.md)
+### [印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/38/README.md)
  ` 温哥华扬帆农场`
 
-### [秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量](/content/gnews/37/README.md)
+### [樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国](/content/gnews/38/README.md)
+### [4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻在线：韩国因新冠（中共病毒）抑郁症咨询猛增](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯打击乌克兰各地目标，乌战斗人员在马里乌波尔坚守](/content/gnews/40/README.md)
- ` 波士顿五月花农场金融部`
-
-### [新西兰财经G乐部2022年4月18日:财经新闻整理](/content/gnews/41/README.md)
+### [新西兰财经G乐部2022年4月18日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [郭先生的社会教育完胜中共国愚民的学校教育](/content/gnews/42/README.md)
- ` mayflowertranslate`
 
 ### [世界银行：减少对中国的依赖“可能对每个人都有好处”](/content/gnews/43/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`

@@ -2,34 +2,33 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2368852/)
+## 多国首脑相继访日 岸田危机公关忙
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2368956/)
 
-作者：香草山翻译部
+**作者：意大利罗马达芬奇农场 HOKKYOKU KAMIKAZE**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/J-4.jpg)arabnews.jp
+外国领导人近期对日本的访问非常频繁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
+4月中旬包括德国在内的三国领导人将陆续访日，5月美国总统拜登将访日。岸田首相也在准备一次外事出访。在此次改变国际秩序的俄乌战争中，岸田的目标是积累外交政绩。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-17.png)
+4月18日岸田首相在官邸会见了首次访问日本的瑞士总统兼外长卡西思。新西兰总理杰辛达·阿德恩、德国总理奥拉夫·舒尔茨都将在本月内陆续到访。
 
-文章仅代表作者本人观点，与Gnews无关
+一系列的首脑会晤的主题是对俄罗斯入侵乌克兰的回应。瑞士是一个永久的中立国，但参与了以美国为首的对俄经济制裁阵营。德国是今年七国集团（G7）的轮值主席国。鉴于对危机蔓延到印太地区的担忧，政府官员说他们希望在欧洲和亚洲之间发挥联系的作用。
 
-视频参看：
-[2022.04.18早 《NFSC新闻》](https://gettr.com/streaming/p15uxsjba83)[2022.04.18早《NFSC新闻访谈》](https://gettr.com/streaming/p15udtjd74c)
+这是岸田首相自去年11月与越南首脑会晤以来首次迎接外国领导人的来访。 其原因是自3月起日本放宽了针对新冠疫情的边境管控措施。一位外交部官员说，“正因如此来日本容易多了”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+拜登总统将于 5 月 22 日左右访日。峰会将在包括澳大利亚和印度在内的四个国家（被称为四方会谈）的框架内举行。四方会谈将审视中共国日益增长的霸权主义行动。 重点是他们能在多大程度上将传统上 “不结盟 ”的印度纳入其中，并向中共国和俄罗斯展示一个统一的信息。岸田首相希望在此次会谈中展示其作为东道主的领导力，为赢得夏季参议院选举取得强有力的资本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
+岸田首相计划在黄金周期间访问东南亚三国和英国。他还将在 6 月 26 日至 28 日出席 G7 峰会，增加与各国首脑会晤的机会。
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+但是由于东南亚国家对中俄态度也存在偏差和暧昧，加之新冠疫情的发展趋势仍不确定，首脑外交是否能达到预期效果仍不明朗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-4.png)
+**评**：各国首脑在目前俄乌冲突加剧的情况下陆续来访日本，是期待日本在国际社会中发挥应有的作用。岸田首相来自史上第一个被核打击的城市——广岛，最重要的是岸田首相担心俄乌危机会导致俄罗斯对乌实施核打击，从而引发第三次世界大战。自二战战败后，日本宪法第9条规定不能对他国使用武力，这也是到目前为止日本应对他国武力威慑的最大的障碍。日本在不修改宪法第九条的前提下到底能发挥什么样的作用，现在是时候要认真思考这个问题了。
+
+新闻来源：
+[https://news.yahoo.co.jp/articles/f0ce310cfc24a14e936bfcb1e77c7b7f3a477f12](https://news.yahoo.co.jp/articles/f0ce310cfc24a14e936bfcb1e77c7b7f3a477f12)
+
+编辑 发布：意大利罗马达芬奇农场 Roma
 
  
 
