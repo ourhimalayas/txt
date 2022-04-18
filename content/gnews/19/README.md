@@ -2,35 +2,40 @@
 ---
 
 
-## 【秘翻时评】上海专家呼吁关注封城导致的额外死亡率
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2368284/)
+## 有声|新中国联邦的救援被全球越来越多人认识
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368432/)
 
-```
-By:秘翻时评
-2022-04-18
-```
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月15日，一位来自巴西的自媒体人来到波兰前线新中国联邦救援营地的大帐篷中。当他知道我们能够在两天之内建起了整个营地最大、设施最完善的帐篷时，他惊叹于新中国联邦和法治基金的强大财力和义工们一流的素质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323101.jpg)
+看到他对中共的邪恶有所了解但并不深入，妮可战友向他详细介绍了中共和中国人的区别，告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起，中共不能代表中国人。还向他介绍了推特和Facebook在中共的控制下对新中国联邦的封杀，以及我们的新社交媒体——盖特。
 
-
-**新闻内容:**
-
-
-```
-1.乌克兰完成问卷调查 正式展开加入欧盟程序
- 2.泽连斯基与IMF总裁通话 讨论乌克兰战后重建
- 3.习近平亲自起草封控政策 上海因此成为地狱
-
- 时评内容：
- *上海市民为日本驻沪总领事馆人员接济食物
- *上海专家呼吁关注封城导致的额外死亡率
-```
+他表示，他一定会在巴西帮助传播新中国联邦。
 
 
-🔗Gettr链接：**[https://gettr.com/post/p15ty4re134](https://gettr.com/post/p15ty4re134)**
 
-发布:星星
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-3.jpg)
+
+文字版原文：[新中国联邦的救援被全球越来越多人认识](https://gnews.org/zh-hans/2363786/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

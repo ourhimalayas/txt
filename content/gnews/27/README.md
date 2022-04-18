@@ -2,44 +2,49 @@
 ---
 
 
-## 俄罗斯打击乌克兰各地目标，乌战斗人员在马里乌波尔坚守
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2368005/)
+## 樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2368155/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午9.40.38.png)图片来源：互联网
-俄罗斯周一表示，它在一夜之间袭击了乌克兰的数百个军事目标，用空射导弹摧毁了指挥所，而西部城市利沃夫的当局则表示，该城市逃脱了猛烈的轰炸。导弹袭击造成七人死亡。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-121.jpg)[图片来源](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
+俄罗斯国家电视台周一播放了一段视频，视频中是为乌克兰作战被俘的“英国人”，俄罗斯要求首相鲍里斯·约翰逊就释放他们进行谈判。
 
-俄罗斯国防部在一份声明中表示，它已经摧毁了位于哈尔科夫、扎波罗热、顿涅茨克和第聂伯罗彼得罗夫斯克地区以及该国南部和东部的 Mykolayiv 港的 16 处乌克兰军事设施。
+这两名面容憔悴的男子被确认为英国国民，他们是肖恩·平纳（Shaun Pinner）和艾登·阿斯林（Aiden Aslin），他们要求用维克多·梅德韦丘克（Viktor Medvedchuk）交换，后者是与总统弗拉基米尔·普京关系密切的乌克兰富商，最近在乌克兰被捕。
 
-它补充说，俄罗斯空军对乌克兰军队集中的108个地区发动了打击，俄罗斯大炮一夜之间击中了315个乌克兰军事目标。
+广播里没有说明这两个人被关押在哪里或被谁关押，是俄罗斯军队还是莫斯科在乌克兰东部的分离主义盟友。
 
-在北方的乌克兰抵抗力量的驱使下，俄罗斯军队将地面进攻的重点重新集中在被称为顿巴斯的两个东部省份，同时对包括首都基辅在内的其他目标发动远程打击。
+这段录音是俄罗斯国家广播公司VGTRK的记者安德烈·鲁登科（Andrei Rudenko）的采访。
 
-它现在正试图完全控制乌克兰港口城市马里乌波尔，该城市已被围困数周，这将是一个巨大的战略奖励，将东部亲俄分裂分子控制的领土与莫斯科于 2014 年吞并的克里米亚地区连接起来.
+在这段视频中，鲁登科向两人展示了梅德韦丘克的妻子奥克萨娜·马尔琴科（Oksana Marchenko）上周发布的视频，她要求用她丈夫交换这两名英国人。
 
-乌克兰当局表示，导弹袭击了利沃夫的军事设施和汽车轮胎服务点，该地点距离波兰边境仅 60 公里（40 英里）。
+随后，被拘留者用英语要求换回这位商人。
 
-利沃夫市市长安德烈·萨多维（Andriy Sadoviy）说，有 7 人丧生，11 人受伤。他补充说，爆炸震碎了一家旅馆的窗户，该旅馆的住所是从该国其他地方撤离的乌克兰人。
+阿斯林的母亲在接受英国《每日电讯报》周五发表的采访时曾呼吁释放他。
 
-市长说：“七个和平的人有生活计划，但今天他们的生活停止了。”
+这位名叫安·伍德（Ang Wood）的女士说，她从俄罗斯的广播中认出了她28岁的儿子，因为他身上有独特的纹身。
 
-俄罗斯否认以平民为目标，并否认乌克兰所说的暴行证据，称乌克兰蓄意破坏和平谈判。莫斯科称其近两个月前发起的行动是一项特别军事行动，旨在使乌克兰非军事化并根除所谓的危险民族主义者。
+该报援引伍德的话说：“艾登是乌克兰武装部队的一名现役成员，因此是一名战俘，必须受到人道的对待。”
 
-西方首都和基辅指责俄罗斯总统弗拉基米尔普京无端侵略。
+在社交媒体上流传的带有克里姆林宫支持的广播公司RT标志的视频中，这名年轻人似乎暗示乌克兰正在延长战争冲突的时间。
 
-**马里乌波尔之战**
+目前尚不清楚这些人在视频中是否被强迫说话。
 
-乌克兰总理 Denys Shmyhal 表示，尽管俄罗斯要求投降，但周日，马里乌波尔港口的部队仍在战斗。
+乌克兰总统沃洛基米尔·泽伦斯基曾提议用67岁的梅德韦楚克交换目前被关押在俄罗斯的乌克兰人。
 
-“这座城市还没有倒下，”他告诉美国广播公司的本周节目，并补充说乌克兰士兵继续控制着东南部城市的一些地区。
+在上周被问及潜在的交换问题时，克里姆林宫发言人德米特里·佩斯科夫（Dmitry Peskov）强调，梅德韦丘克“不是俄罗斯公民”，并表示他不知道他是否希望莫斯科干预他的案件。
 
-原文链接：
+周一，佩斯科夫承诺将“传达”普京对该想法的任何回应。
 
-【1】[Russia hits targets across Ukraine, fighters cling on in Mariupol](https://www.reuters.com/world/europe/ukraines-zelenskiy-condemns-shelling-bodies-line-streets-mariupol-2022-04-18/)
+信息来源：** **[**Russia broadcasts video of captured ‘Britons’ demanding UK PM negotiate their release**](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
 
-* * *
-
-*编辑&发布：长岛开心*
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

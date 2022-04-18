@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|新中国联邦的救援被全球越来越多人认识
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368432/)
+## G系列媒体平台必须坚持做正义媒体
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2368627/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月15日，一位来自巴西的自媒体人来到波兰前线新中国联邦救援营地的大帐篷中。当他知道我们能够在两天之内建起了整个营地最大、设施最完善的帐篷时，他惊叹于新中国联邦和法治基金的强大财力和义工们一流的素质。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323101.jpg)
-看到他对中共的邪恶有所了解但并不深入，妮可战友向他详细介绍了中共和中国人的区别，告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起，中共不能代表中国人。还向他介绍了推特和Facebook在中共的控制下对新中国联邦的封杀，以及我们的新社交媒体——盖特。
+作者：文真
 
-他表示，他一定会在巴西帮助传播新中国联邦。
+郭文贵先生在2021年4月19日直播中，通过回顾爆料革命的“4.19”事件，特别强调媒体在当今国际政治、经济等领域的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-1-2.jpg)
+郭先生首先爆料，美国限制媒体交叉持股和垄断的法律完全失控，已经从过去的真正的自由灯塔，沦落为现如今的黑暗灯塔。黑暗灯塔第一个表现就是媒体和社交媒体，实际已经由五大家族完全控制。爆料革命开始以来，中共通过渗透收买西方媒体，不断造谣和抹黑郭文贵先生，操纵和控制了世界的法律和正义。
 
+郭先生强调，媒体拥有定义权和定价权，是比核武器强大的力量。历史上从来不存在“中立”媒体。G系列媒体平台——GNews、GTV和盖特，应势而生、应需而生，不仅是能让中国人自由发声的平台，而且是保障中国人在海外正义、安全和利益的唯一平台。G系列媒体平台要生存下去，必须坚持正义的媒体。
 
+随着人类进入最伟大的科技时代，G系列媒体平台将充分融合新一代高科技。让我们重温郭先生在去年“4.19”直播中，对G系列媒体平台的展望。
 
+参考链接：[全文字版2021年4月19日419断播四周年郭文贵先生G-TV直播](https://gnews.org/zh-hans/1125087/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-文字版原文：[新中国联邦的救援被全球越来越多人认识](https://gnews.org/zh-hans/2363786/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：文真
+编辑：Jack Li文阳
+审核：Ivy001
+校正/发稿：Fei797
 
  
 
