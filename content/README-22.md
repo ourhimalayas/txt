@@ -16,6 +16,8 @@
 ---
 ## 頁面 22/42 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [42](/content/README-42.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/2019/11/20191111-8774490754599223874.md)
+
 [文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/2019/11/20191110-4503525737047042543.md)
 
 [文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
@@ -63,8 +65,6 @@
 [文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/2019/10/20191019-5901855488500270018.md)
 
 [文字版：2019年10月14日游艇机舱报平安直播](/content/2019/10/20191015-2796579194021955341.md)
-
-[文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/content/2019/10/20191014-1580303253011226173.md)
 
 
 ## 頁面 22/42 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [42](/content/README-42.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)

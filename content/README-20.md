@@ -16,6 +16,8 @@
 ---
 ## 頁面 20/42 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [42](/content/README-42.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/2020/01/20200106-5803835959397002894.md)
+
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/2020/01/20200105-5702641725419467150.md)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/content/2020/01/20200104-2138537406331428619.md)
@@ -63,8 +65,6 @@
 [文字版：2019年12月9日上午郭文贵报平安直播](/content/2019/12/20191211-5104769377059048027.md)
 
 [文字版：2019年12月8日文贵报平安](/content/2019/12/20191210-8975996201411180459.md)
-
-[文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
 
 
 ## 頁面 20/42 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [42](/content/README-42.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

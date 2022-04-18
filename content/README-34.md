@@ -16,6 +16,8 @@
 ---
 ## 頁面 34/42 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) ... [42](/content/README-42.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)
 
+[翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
+
 [翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
 
 [文字版6/27/18郭媒体直播](/content/2018/06/20180630-1675811568156911003.md)
@@ -63,8 +65,6 @@
 [文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/content/2018/04/20180422-7434374756497601766.md)
 
 [文字版4月19号文贵谈明镜](/content/2018/04/20180422-6701679411518433297.md)
-
-[文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/2018/04/20180421-5848429127591941015.md)
 
 
 ## 頁面 34/42 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) ... [42](/content/README-42.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)

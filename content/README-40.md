@@ -16,6 +16,8 @@
 ---
 ## 頁面 40/42 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)
 
+[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
+
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-3181090078770141211.md)
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6751902581957520102.md)
@@ -63,8 +65,6 @@
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
 
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/2018/04/20180418-6931208450020595005.md)
-
-[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/2018/04/20180418-6992843521807662530.md)
 
 
 ## 頁面 40/42 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)

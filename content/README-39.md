@@ -16,6 +16,8 @@
 ---
 ## 頁面 39/42 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
 
+[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
+
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
 
 [文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/2018/04/20180418-6405859290507553352.md)
@@ -63,8 +65,6 @@
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/content/2018/04/20180418-6592319178525638083.md)
 
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
-
-[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
 
 
 ## 頁面 39/42 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
