@@ -2,28 +2,33 @@
 ---
 
 
-## 中共以“清零”做掩护，实则用中共病毒疫苗杀人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2368851/)
+## 2022/04/18 文贵先生蓋特
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2368923/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-374.jpg)
-4月18日郭先生发布盖特视频，提醒中共即将对青岛、大连、哈尔滨、海口实行大隔离“清零”政策的背后，是要大量给人注射中共病毒疫苗达到杀人目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6WQFWE5EUJEBXNVXTKRDOSXJLI6.jpg)
+链接：[https://gettr.com/post/p15wbxu0c9c](https://gettr.com/post/p15wbxu0c9c)
 
-郭先生透露，中共公布2022一季度经济增速为4.8%，这根本就是胡说八道，内部战友的消息显示2022经济全部都是负增长，所谓的4.8%是中共杜撰出来极其夸张的数据。而目前正在进行的防疫大清零运动，可以降低60-70%的社会成本，如居民日常生活里的粮食、用水、用电等，这部分数据都会计算到GDP中。另外配合着给一些人大规模地注射中共病毒疫苗，以疫苗杀死一些60岁以上的不再对共产党有贡献的老同志，因这部分人的生活和日常医疗保健占据了国家的大部分资源，尽管这些人年轻的时候曾经做出多么卓越的贡献。郭先生一直不相信中共真得会这么做，但今年看来，中共只能做得比这个更狠。
+- 收到大连、海口、哈尔滨、青岛大量战友信息，类似的苦日子还会再来。中共将以“清零”为幌子，真正目的–打疫苗。
+- 前段时间高层内部战友透露–可能上海会解封，七哥预计上海不会解封，中共尚未计划好如何编制各种灾难数据，负责部门–清理管理委员会。
+- 习非常想折腾上海，针对韩正悄悄乘火车回上海探望江泽民和朱镕基等上海老同志，习不放心。
+- 上海有人（有权有钱）花几百万人民币现金出逃上海，多数逃往美国、英国、加拿大。某战友花1000万十人乘坐私人飞机逃到美国，虽签证过期依然放行允许呆6个月，重新认识中共的邪恶，凸显中美之间相互对待彼此差距巨大。
+- 上千计战友逃往日本，日本基本全部放行。某战友几乎带着全部员工“投靠”日本。
+- 中共公布的4.8%经济增长是假的，实际情况绝对负增长。各地清零政策–清除“累赘”人民。
+- 俄乌战局最终将100%导致俄罗斯解体–欧洲重建–中共打台–中共崩塌。
 
-撰稿、发布：骄子
+
+*听写：call me uncle / PR: 樂禧禧*
 
 * * *
 
-欢迎订阅我们的GNews账号：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

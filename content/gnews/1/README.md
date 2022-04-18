@@ -2,26 +2,22 @@
 ---
 
 
-## 白宫宣布于5月12日举行全球新冠疫情峰会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2369046/)
+## 俄军突袭世界遗产名城利沃夫造成平民死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2369111/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16503005151.png)Insiderpaper/Pixabay
-据综合媒体4月18日报道，周一白宫宣布，将于5月12日举行全球峰会，以制定有关结束新冠疫情，和应对未来健康领域中不稳定因素的计划。这将是第二次有关疫情的峰会。
+撰稿：西枫westca
 
-这次视频会议将由美国、 G7现任主席德国、 G20主席印度尼西亚、非洲联盟主席塞内加尔和伯利兹，加勒比共同体现任主席共同主持。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-2-1.jpg)图片来源：网络照片
+据《The Guardian》 4月18日报导，俄军突袭乌克兰东部城市利沃夫，目前统计已造成7人死亡、11人受伤。
 
-白宫在七国集团和20国集团的新闻发布会上说，“2019新冠病毒的出现和传播，如奥秘炕（Omicron），从战略上对全球控制疫情提出进一步的要求”。在2019年新冠状毒疾病爆发之际，由于病毒变异，美国部分地区和世界各地的病毒感染率都很高。
+利沃夫市长 Andriy Sadovyi 说，“侵略者正在实施种族灭绝行为。他们正在杀害无辜的平民” 。并表示乌克兰不再有任何“安全”或“不安全”的地区。市长还说，看看马里乌波尔发生了什么？数以千计的无辜者被杀害。俄军试图通过追捕平民来恐吓乌克兰，我们在布查和霍斯托梅尔已看到了极为恐怖的场面。
 
-上海在经历了近三周的关闭后，正在试图恢复正常。大范围的封锁和措施，正在对世界第二大经济体造成损害。
+四枚俄罗斯远程导弹击中乌克兰西部城市利沃夫，其中一枚击中利沃夫的一家车库和轮胎修理店。至少有 7 人丧生，11 人受伤，受害者中有一名儿童，设施遭到严重破坏。
 
-声明称，峰会将以2021年9月第一次全球峰会上做出的努力和承诺为基础。其中包括让更多人接种疫苗、向高危人群提供检测和治疗、扩大对医护人员的保护，以及为疫情防备筹集资金。
+利沃夫是一座被联合国教科文组织列为世界遗产的城市，以其巴洛克式和新古典主义建筑而闻名。 目前是乌克兰其他地区因战斗而流离失所的数十万人的临时住所。它也是西方通过波兰运送武器的后勤枢纽。这次袭击警告人们，即使俄军把战役重点重新集中在乌克兰东部，但是整个乌克兰仍将处在威胁之中。
 
-“我们必须做好准备。建设，维持和资助我们所需要的全球能量。不仅要应对新出现的新冠病毒变体，还要应对未来的健康危机”。
-
-*责编：白夜*
-
-参考来源：[1](https://www.ctvnews.ca/health/coronavirus/second-global-covid-19-summit-scheduled-for-may-12-1.5865540) [2](https://www.usnews.com/news/world/articles/2022-04-18/second-global-covid-19-summit-scheduled-for-may-12)
+**新闻来源：**[Russia fires missile barrage at Ukraine in ‘softening up’ before eastern push | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/18/lviv-mayor-accuses-russia-genocide-missiles-strike-city-ukraine)
 
  
 
