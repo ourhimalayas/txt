@@ -2,34 +2,47 @@
 ---
 
 
-## 台湾军方无人机来自中共 暴露了台湾的系统问题
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366508/)
+## SpaceX火箭成功将第二颗美国间谍卫星送入轨道
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366859/)
 
-作者：澳喜 – 追着曙光跑
+翻译：文乐
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
 
 
 
-4月16日，郭文贵先生在盖特直播中指出，他在14日爆料的中共把自己制造的无人机卖给台湾军方这一消息，在台湾引起了巨大震撼。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-145.jpg)
-郭先生继续明确宣布，他希望告诉美国政府、台湾的现任蔡英文政府以及所有台湾同胞，中国共产党先把无人机卖给了所谓的澳大利亚公司，然后澳大利公司又将其卖给了台湾军方。对此消息，他愿意承担一切法律责任。这事关台湾人民的安全，相关部门可以直接进行核实和确认。另外，中共的无人机能够卖给台湾军方，已经不单纯是无人机的问题，还暴露出台湾的整个系统出现了问题。 到目前为止，台湾的卖台贼仍然在不断地从中共政府谋取巨大的金钱和物质利益。我们需要让美国和全世界都知道卖台贼与中共的坑脏交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-192.png)SpaceX的发射项目是2019年空军以2.97亿美元的总固定价格与SpaceX签订的三项合同之一
 
-参考链接：
-[4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解；台湾军方能通过第三方购买中共的无人机，说明台湾的整个系统出了大问题。](https://gettr.com/post/p15lpv54fb7)
+官员证实，周日上午，美国国家侦察局(NRO)的一颗机密卫星用可重复使用的 SpaceX Falcon 9 火箭成功发射到太空。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+NROL-85 卫星于当地时间上午 6 点 13 分从加利福尼亚州范登堡太空部队基地发射升空。[NRO在一份声明中说，](https://www.nro.gov/Portals/65/documents/news/press/2022/NROL-85%20%20Press%20Release_17April22.pdf)周日的发射是 NRO 首次重复使用之前发射到太空的火箭助推器。
 
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
+NRO 仅将 NROL-85 卫星描述为“关键的国家安全有效载荷”，这是今年与 Spacex 一起发射的第二颗卫星。
 
+[据埃隆·马斯克](https://www.spacex.com/vehicles/falcon-9/)的航空航天公司 Spacex 称，它总共发射了 147 枚 Falcon-9 火箭，其中 107 枚已经着陆。总共有 87 枚火箭被重新发射，其中包括 2017 年第二次使用的第一枚火箭。
 
+猎鹰的第一阶段飞回并降落在洛杉矶西北部的海边基地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+这次发射是空军在 2019 年以 2.97 亿美元的总固定价格与 SpaceX 签订的三项合同之一。
 
+NRO 是负责建造和发射美国卫星的政府机构，这些卫星向立法者、情报机构和国防部提供情报数据。
 
+新闻来源：[spacex falcon-9 rocket successfully launches second us spy satellite into orbi](https://nypost.com/2022/04/18/spacex-falcon-9-rocket-successfully-launches-second-us-spy-satellite-into-orbit/)
+
+* * *
+
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
 
  
 

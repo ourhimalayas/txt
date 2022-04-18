@@ -2,14 +2,14 @@
 ---
 
 
-## 【俄罗斯入侵乌克兰战局图片新闻】俄军摧毁了乌克兰城市无法摧毁乌克兰人民的意志-3
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2368003/)
+## 【俄罗斯入侵乌克兰战局图片新闻】俄军摧毁了乌克兰城市无法摧毁乌克兰人民的意志-4
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2368149/)
 
 【玫瑰看新闻】每日快讯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-2.png)
-每个国家都有独立生活的权利。每个城市都有权享有充分的安全保障。人人有权获得自由和寻求幸福。人民不应该成为某些政权、某些独裁者的工具。人们有权活着。这就是我们为之奋斗的目标。这就是我们要求您与我们一起捍卫的。我希望，这就是我们将在这场战争之后与整个世界一起恢复的东西。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-14.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/6-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-2.jpeg)
-照片：Rodrigo Abd，Narciso Contreras，Petros Giannakouris，Raphaël Lafargue，Serhii Korovainyi，Yuki Iwamura，Evgeny Zavgorodny，Julia Kochetova，Marco Djurica。
+入侵者将对他们在乌克兰所做的一切负责。对于他们对阵洋基队所做的一切。他们将负责Bucha，Kramatorsk，Volnovakha，Okhtyrka。作者：Gostomel 和 Borodianka。根据Izyum的说法，对于马里乌波尔和乌克兰的所有其他城市和社区，俄罗斯军队在80年前拒绝了这些城市和社区。在那个可怕的时刻，世界上的每个人和总是都说：“再也不会了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/13.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/14-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/17.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/19.jpeg)
+照片：Mykhail Dzhos，美联社照片，Rodrigo Abd，André Luís Alves。
 
 **推出问题，敲出真相，爆料在路上！
 请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**

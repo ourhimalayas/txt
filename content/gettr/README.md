@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 2:19 PM (UTC)`
+
+4月18号：尊敬的战友们好，你说咋弄的咋弄的咋弄的．七哥不亲自己的腚．好意思吗？就是这么骄傲．就是这么牛叉……咋办吧……第二个将是田国立，还有人民银行的纪委书记周亮……新华保险的康典……都会被抓的，咱们走着看。【Oh my god<br/>七哥2020年4月8日直播，請戰友記住：田惠宇、陳峰一定會被抓，這就是習王斗的結果<br/>gettr.com/post/p15t6rvae…-】
+![img](https://media.gettr.com/group38/getter/2022/04/18/14/4a96de4c-e673-c543-70cd-b4fb25df82b7/71cdb800d902dde09506ba89e8e4a0b5.jpg)
+
+---
+
+`@miles 4/18/2022 2:10 PM (UTC)`
+
+4月18号， 亲爱的兄弟姐妹们，铁锁梦MV将在4.19全球正式上线，感谢大家继续打榜支持🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>铁锁梦 Chained Dream by Miles Guo<br/>https://music.apple.com/au/music-video/%E9%93%81%E9%94%81%E6%A2%A6-chained-dream/1615091964
+![img](https://media.gettr.com/group16/getter/2022/04/18/14/21b06e31-0d69-014c-7026-95b8ff206cf8/out.jpg)
+
+---
+
 `@miles 4/18/2022 2:09 PM (UTC)`
 
 4月18日：尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！
@@ -140,20 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 4/17/2022  Miles Guo: The Europe and the US are carrying out the strategy of "luring Russia into actions" and "luring the CCP into actions"; the Russia-Ukraine war is ultimate battle between justice and evil; the New Federal State of China fellow fighters on the rescue frontline in Ukraine are outstanding, they represent the image of new Chinese people; the so-called Chinese celebrities working as the CCP’s running dogs will not be pitied by the CCP, they will eventually go to the crematorium prepared for them by the CCP<br/><br/>4/17/2022 文贵直播：欧洲和美国正在进行“引俄出洞”和“引共出洞”的策略，俄务战争是正义和邪恶的终极大战；新中国联邦的战友在乌克兰救援前线的表现卓越，代表了新中国人的新形象；充当中共走狗的所谓中国各界名流不会被中共所怜悯，最终会走进中共给他们准备的火葬场<br/>
 ![img](https://media.gettr.com/group7/getter/2022/04/18/03/6eff9ece-869d-61b5-a1a5-3a08ce6766f9/out.jpg)
-
----
-
-`@miles 4/18/2022 2:21 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月16日第43天当日救援统计：<br/>Medyka救援站接待：约216人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12204人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 43 - Date: April 16, 2022 :<br/>Medyka Rescue Station Reception: about 216 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12204 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group29/getter/2022/04/18/02/f7501451-2bac-d40b-4655-7951213c0f23/7aeb571acbcae70490b3cfb70aba6c45.jpg)
-
----
-
-`@miles 4/18/2022 2:15 AM (UTC)`
-
-2022.04.17 农场联盟工作汇报
-![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

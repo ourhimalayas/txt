@@ -2,29 +2,45 @@
 ---
 
 
-## 中日财经爆┃日本材料研究机构让锂空气电池寿命增至2倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2367962/)
+## 有声|梅迪卡的最新时尚 亮丽的灭共马甲
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368069/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-日本材料研究机构的主任研究员松田翔一等人开发出了把自动实验机器人与数据分析结合起来的材料开发方法。成功制造出使锂空气电池的周期寿命延长至约2倍的电解液。力争通过与企业的联合开发等推进实用化。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-147.jpg)图片来源于本文链接
-锂空气电池被认为在理论上能实现锂离子电池数倍的能量密度。一般来说，锂空气电池的负极采用锂金属，正极采用空气。除了充电一次可长时间使用之外，重量更轻，因此有望应用于无人机等。另一方面，课题是充放电的周期寿命短。寻求短时间内找出加入电解液的5种添加物的最佳组合。研究团队利用找到的添加物组合试制了锂空气电池，与不加入添加物时相比，周期寿命增至约2倍。松田表示，“只要5种添加物中的2种有所不同，结果就会很不一样”。据称在实验中发现了能在负极上形成优质膜的绝佳组合。2021年12月，日本物质材料研究机构和软银组建的研发团队开发了超过锂离子电池能量密度、达到每公斤500瓦时级的锂空气电池。不过，当时的充放电周期寿命仅为约10次。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在波兰梅迪卡，一件小小的黄色马甲，正在成为梅迪卡最亮丽的风景线。这件马甲，是郭文贵先生特意为乌克兰救援行动设计的，上面印着“消灭中国共产党”，“我们是灭共的新中国联邦人”。
+![](https://cdn.discordapp.com/attachments/902205163622776852/965063473606303794/fa812f6e-cbd9-41f3-9939-e2e9c29aa4e3.JPG)
+饱受战火蹂躏的乌克兰难民，因为俄罗斯的侵略而深刻厌恶共产党政权，对同是共产政权的中共国也是一样的讨厌。看到前线战友的华人面孔时，她们的眼神都带着怀疑和戒备。当身穿这件灭共马甲的前线战友，向她们解释，我们是灭共的新中国联邦人，我们的信仰是消灭中国共产党。她们听完之后，全都放下戒备，换上真心的笑容。
 
-研发团队还将尝试把这种开发方式应用于正和软银合作研发的电池上。还计划应用于钠离子电池等其他蓄电池的电解液，以提高性能。
+4月15日，前线战友妮可的消息：一位法国义工穿着灭共马甲说，灭共是他的信仰，我们一起来灭共。还有，台湾流浪作家王芮缇穿上灭共马甲，与前线救援战友一起在联邦大帐篷里工作了两周。
 
-信息来源： [日本团队让锂空气电池寿命增至2倍](https://cn.nikkei.com/industry/scienceatechnology/48256-2022-04-18-05-00-37.html)
+4月16日，前线战友正义小Sarah报道，两位从西班牙来捐物资的西班牙人走进我们的帐篷，问我们要灭共马甲。他们说，将来计划穿着这个马甲去中共国，用这件马甲来表达消灭中国共产党的心声。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+越来越多的人来到我们的救援大帐篷，想要一件和我们前线战友同款的灭共马甲。这件灭共马甲，就和新中国联邦大帐篷，以及新中国联邦咖啡一样，已经成为新中国联邦救援行动的标志。身穿灭共马甲的战友们，是梅迪卡最亮丽的风景线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-9.18.49-PM-768x467-1.png)
 
 
+
+
+
+
+文字版原文：[梅迪卡的最新时尚 亮丽的灭共马甲](https://gnews.org/zh-hans/2360418/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
