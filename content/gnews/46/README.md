@@ -2,34 +2,36 @@
 ---
 
 
-## 中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365050/)
+## 中共增加铁路货运班列援助俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366148/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-对冲基金经理凯尔巴斯警告说，俄罗斯在乌克兰的战争正在掩盖中共政权构成的一个非常令人担忧的威胁：其无纸化货币系统。
+作者：骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币.jpg)[图片来源](https://assets.zerohedge.com/s3fs-public/styles/16_9_max_700/public/2022-04/bass.jpg?itok=Qahrdrpy)
+4月15日，郭文贵先生爆料，因俄罗斯入侵乌克兰遭受国际制裁，中共的物资频繁地被运抵俄罗斯。中共援助俄罗斯的物资通过火车运输抵达。回程列车则满载俄罗斯的石油，并低价转手卖给多个国际基金。中共借此帮助俄罗斯逃避国际制裁。
 
-“我认为，这是过去50年来对西方的最大威胁。而且它被俄罗斯入侵乌克兰所掩盖，”巴斯在最近接受EpochTV的“美国思想领袖”节目采访时说中共国数字货币，也称为数字人民币、数字人民币、e-CYN和e-yuan，目前正由中共政权通过其中央银行开发。由于电子元由中国人民银行（PBOC）支持，它是一种中央银行数字货币（CBDC）或简称为中共国法定货币的数字版本。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-18-at-11.20.42-AM.png)
 
-到目前为止，电子元的试点测试正在中共国20多个不同的城市进行，这笔钱在2022年北京冬奥会期间首次通过移动应用程序提供给来访的外国人。“这不是一个简单的数字支付应用程序。这是一个应用程序，它可以跟踪您的位置、您的姓名、您的社会安全号码是什么，[以及]您的所有标识符是什么。它具有地理定位能力，”他解释说。巴斯解释说，一旦中共国的数字货币完全开发并可供中共国以外的所有人使用，中共政权可能会寻找某些电子元用户，例如陷入财务困境的用户，并对其进行腐败。“如果中共政府能够接触到美国、欧洲和加拿大的每一位汤姆、迪克和哈利，想象一下，”他说。“想象一下，如果他们可以交叉运行一个算法，让我们寻找拥有Tinder且资金短缺的美国政府雇员——也许他们已经结婚——我们可以立即腐蚀他们。”他补充说：“这让他们有机会腐蚀世界上任何可腐败的人，这是一个真正的国家安全问题。”“所以这是他们可以输出数字威权主义的一种方式。”巴斯说，中共国在全球推出电子人民币有一个非常具体的议程，那就是减少对美元的依赖。“中共国结算的全球交易中约有87%以美元结算，”他说。“他们极度缺乏能源，他们极度缺乏食物，他们极度缺乏基础材料，他们必须每天在世界各地购买这些东西，没有人相信他们的货币，他们仍然有封闭的资本帐户。”“那他们该怎么办？他们必须用他们的美元来做到这一点，”他说。
+近日，为了向俄罗斯运输物资，中共一带一路重要项目的中欧班列新添了多趟列车。
 
-根据总部位于华盛顿的智库大西洋理事会的跟踪，包括美国在内的全球80多个国家正在探索发行CBDC。到目前为止，尼日利亚是推出数字货币形式的九个国家之一。3月，白宫发布了乔·拜登总统关于数字资产的行政命令大纲。总统正在“紧急”研究和开发美国的CBDC，并且发行一个“被认为符合国家利益”。几位美国立法者一直热衷于看到电子元构成的威胁得到妥善解决。去年5月，代表FrenchHill(R-Ark.)和JimHimes(D-Conns.)提出了21世纪美元法案(HR3506)，该法案要求美国财政部在提交给国会的报告中包含任何风险对数字人民币构成的美元。3月，参议员MarshaBlackburn(R-Tenn.)和她的八位共和党同事介绍了《对丝绸之路说不法案》(S.3784)。如果获得通过，该立法将要求美国商务部和美国贸易代表办公室提交有关电子人民币的报告。
+据中共国公开新闻显示，截止2022年1月29日，中欧班列累计开行5万列。中欧班列途径俄罗斯的三个出境口岸为阿拉山口、二连浩特、满洲里。截至4月15日，满洲里累计开行数量达到15,000列。霍尔果斯累计开行20,239列，而在3月19日，霍尔果斯口岸该项数字是19,526。在短短27天内，开行达到713列。往常每月大概是500列。这仅是霍尔果斯一个口岸的吞吐量。
 
-此外，根据法案的文本，美国国务院将被要求在其网站上发布警告，警告前往中共国的美国公民“关于数字人民币的危险”。“在接下来的几周内，你会看到一些参议员将发起立法，禁止其使用。我相信，那些立法必须发生，”巴斯说。“西方需要召开会议，我们需要立即禁止它，”他补充说。“你不可能有一点点癌症，你要么有癌症，要么没有癌症。”
+除了增加原有线路的开行次数，中共还增添了多条线路。在4月13日开通中豫号里海、黑海班列，当天五地六列班车齐发。直抵莫斯科的列车有，4月15日九江至莫斯科线路复航，4月6日赤峰至莫斯科首度开行。3月25日，咸宁至莫斯科首度开行。
 
-消息来源：
-[China’sDigitalYuan,BiggestThreatToTheWest,IsOvershadowedByRussianWar,KyleBassWarns](https://www.zerohedge.com/geopolitical/chinas-digital-yuan-biggest-threat-west-overshadowed-russian-war-kyle-bass-warns)
+中共是俄罗斯侵略乌克兰的背后支持者，帮助俄罗斯逃避国际制裁，已经严重违反了国际法。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+参考链接：
+1. [4/15/2022 文贵直播](https://gettr.com/post/p15h9ro21b1)
+2. [全球连线｜新疆霍尔果斯口岸累计通行中欧班列超2万列](http://www.news.cn/world/2022-04/16/c_1128566580.htm)
+3.[https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm\_HF1s9g](https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm_HF1s9g)
+4.[https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn\_Mbv\_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo\_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA](https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn_Mbv_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA)
+5. [https://baike.baidu.com/reference/15832643/c396syJUUu-jQ\_svfwIY9Wm-5ctVFeBDk3kN\_6RZgJ3VDcBTkKi\_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA](https://baike.baidu.com/reference/15832643/c396syJUUu-jQ_svfwIY9Wm-5ctVFeBDk3kN_6RZgJ3VDcBTkKi_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：文真
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：谐趣园
 
  
 

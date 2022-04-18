@@ -2,26 +2,22 @@
 ---
 
 
-## 俄方号称击毁西方军援飞机，中共导弹难脱干系
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2369013/)
+## 俄军突袭世界遗产名城利沃夫造成平民死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2369111/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-2022年4月16日，据俄罗斯国防部发言人伊戈尔·科纳申科夫少将周六在一份声明中声称，军方在敖德萨附近击落了一架载有北约、美国输送给乌克兰军援的军用运输机。
+撰稿：西枫westca
 
-虽然俄国媒体对此只是进行了简单介绍。中共国党媒CCTV，也在在其4月18日节目《今日关注》中引用了该段内容加以报道。但是，诸如飞机的归属，型号，人员伤亡问题并没有详细介绍。美国、北约和乌克兰政府对此也还没有做出回应。此事事发21小时之后，CNN在媒体称，无法核实这一说法，并已联系五角大楼征求意见。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-2-1.jpg)图片来源：网络照片
+据《The Guardian》 4月18日报导，俄军突袭乌克兰东部城市利沃夫，目前统计已造成7人死亡、11人受伤。
 
-目前，俄乌双方正在马里乌波尔展开激战。这个城市位于卢甘斯克、顿涅斯克以及克里米亚的交汇点。作为顿涅斯克第二大城市，欧洲最大的煤炭港口以及乌东地区的铁路交通枢纽，他的得失直接影响这俄罗斯对于这三个地区的控制。一旦乌军掌控这地区，加之近日俄罗斯莫斯科导弹舰被击毁将会使得克里米亚的俄军孤立无援，解放该地区也不过是时间问题。有理由相信，克里米亚地区可能在阔别8年之后再次回到乌克兰人的怀中。
+利沃夫市长 Andriy Sadovyi 说，“侵略者正在实施种族灭绝行为。他们正在杀害无辜的平民” 。并表示乌克兰不再有任何“安全”或“不安全”的地区。市长还说，看看马里乌波尔发生了什么？数以千计的无辜者被杀害。俄军试图通过追捕平民来恐吓乌克兰，我们在布查和霍斯托梅尔已看到了极为恐怖的场面。
 
-结合4月9日，郭文贵先生的爆料，中共使用运-20运输机通过塞尔维亚向俄罗斯输送防空红旗导弹系统这一事实。如果此次击毁乌克兰运输机事件被判定为中共防空系统所为，这将意味着中共对于北约组织和美军的攻击，必将遭遇到严厉的政治、文化、经济制裁，乃至军事制裁。最近郭先生频繁的直播，可能也与此事有着紧密的关系。
+四枚俄罗斯远程导弹击中乌克兰西部城市利沃夫，其中一枚击中利沃夫的一家车库和轮胎修理店。至少有 7 人丧生，11 人受伤，受害者中有一名儿童，设施遭到严重破坏。
 
-[https://tass.com/defense/1438715?utm\_source=google.com&utm\_medium=organic&utm\_campaign=google.com&utm\_referrer=google.com](https://tass.com/defense/1438715?utm_source=google.com&amp;utm_medium=organic&amp;utm_campaign=google.com&amp;utm_referrer=google.com%20https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-17-22/h_a0b05373f8cfb5076e40762da6721feb)
+利沃夫是一座被联合国教科文组织列为世界遗产的城市，以其巴洛克式和新古典主义建筑而闻名。 目前是乌克兰其他地区因战斗而流离失所的数十万人的临时住所。它也是西方通过波兰运送武器的后勤枢纽。这次袭击警告人们，即使俄军把战役重点重新集中在乌克兰东部，但是整个乌克兰仍将处在威胁之中。
 
-[https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-17-22/h\_a0b05373f8cfb5076e40762da6721feb](https://tass.com/defense/1438715?utm_source=google.com&amp;utm_medium=organic&amp;utm_campaign=google.com&amp;utm_referrer=google.com%20https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-17-22/h_a0b05373f8cfb5076e40762da6721feb)
-
-校对/发稿：菩提树
-
-![](https://cdn.discordapp.com/attachments/942466911881539646/965650193439662110/IMG_9237.jpg)
+**新闻来源：**[Russia fires missile barrage at Ukraine in ‘softening up’ before eastern push | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/18/lviv-mayor-accuses-russia-genocide-missiles-strike-city-ukraine)
 
  
 
