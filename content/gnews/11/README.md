@@ -2,55 +2,32 @@
 ---
 
 
-## 公共卫生官员为COVID疫苗辩护的6个双重标准
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2366519/)
+## 视频|一周疫情、疫苗信息回顾 (2022年4月7日~4月15日)
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2366520/)
 
-据《childrenshealthdefense》作者：Madhava Setty，2022年4月13日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2177.png)图片源自childrenshealthdefense.org
-**公共卫生官员为COVID疫苗辩护的6个双重标准**
+制作：香草山视频部
 
-在这篇文章中，我描述了医疗机构使用双重标准的六个例子，以制造他们的COVID-19叙述是合乎逻辑和合理的假象。
+2022年4月6日至4月13日，除中共国外，全球新增中共病毒确诊患者663万余例，同比上周的847万余例下降了21.7%；此外，本周新增确诊死亡病例22,753例，同比上周的25418例下降了10.5%。本周已是连续第六周全球确诊病例和死亡病例持续负增长。 截止4月6日，除中共国外，全球累计接种了82.6亿剂中共病毒疫苗，同比4月6日的接种数据增长了0.487%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
+4月7日，美国众议院议长南希佩罗西中共病毒检测阳性，此前，南希佩罗西已经完全接种了疫苗，并且接种了疫苗加强针。
+4月10日，数千人参加了在洛杉矶举办的“反对强制疫苗”集会。当下，美国各地已经逐渐放宽了一些强制措施，但仍然有一些学校、学院、企业、医院和公司继续采取疫苗强制措施。此外，在用药方面对治疗中共病毒的医生进行种种限制、大型科技公司对疫苗真相的审查与掩盖，对儿童进行不必要的疫苗接种，以及对科学论证保持缄默，是集会中强调的几个主要问题。
+4月12日，美国媒体揭露了辉瑞公司曾试图隐瞒新增聘的2400名全职员工，以负责处理疫苗副反应的案例。德克萨斯州法院下令辉瑞公司披露与中共疫苗有关的细节时，最新文件显示了与疫苗伤害相关的新增数字令人震惊。此前，法庭要求辉瑞公司及美国食品和药物管理局披露的文件中所罗列的1291项严重副反应，也仅简单列出副反应的名称，并未描述副反应的详细情况。
+4月13日，华盛顿州卫生部官员投票反对强制要求学生接种中共疫苗。
+该州卫生委员会一致投票决定，不再推进为学生接种中共疫苗的申请。经过来自公众广泛的讨论和建议，华盛顿州卫生部官员认为，尽管中共疫苗对所有符合条件的年龄组都是安全的，但他们亦承认若强制要求儿童接种，将带来不可预计的多重影响。
+董事会成员鲍勃-卢茨博士在周三的会议上说，在与全州各学校校长的讨论中，他了解到：家长们担心学生会因没有注射疫苗而无法上课。校长们非常担心会流失大量的学生，以及父母将被逼带着孩子离开学校。
+【链接】
+1) [https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&time=2022-04-07..latest&country=~World+excl.+China](https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&amp;time=2022-04-07..latest&amp;country=~World+excl.+China)
+2）[https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/](https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/)
+3）[https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally\_4396176.html](https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally_4396176.html)
+4）[https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/](https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/)
+5）[https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/](https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/)
+6) [https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533](https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533)
+【图片】[https://discord.com/channels/872153398588370944/940296527308537896/964449534975561750](https://discord.com/channels/872153398588370944/940296527308537896/964449534975561750)
 
-这种假象被用来提高疫苗接种率，并产生了破坏性的效果。
+发稿：qiutian（邱甜）
 
-我不会引用与我们医疗当局的叙述相冲突的科学出版物或专家意见–这些信息将被断然拒绝，因为它出现在《卫报》上–而是要证明，从一开始，官方的叙述就是不一致的、虚伪的和/或矛盾的。
-
-1. COVID的死亡是“推定”的，但疫苗的死亡必须是“证明”的。
-2. 疾控中心使用VAERS数据调查心肌炎，却声称VAERS关于疫苗死亡的数据不可靠。
-3. CDC推崇用“相对风险”来确定疫苗效力，却用“绝对风险”来淡化不良事件的风险。
-4. 美国食品和药物管理局要求对早期治疗药物进行随机对照研究–但对疫苗加强剂却没有要求。
-5. 美国食品和药物管理局使用免疫桥接来证明辉瑞公司为幼儿注射疫苗的合理性，但拒绝将抗体作为COVID的免疫保护指标。
-6. 疫苗伤害必须证明因果关系，但相关关系足以证明疫苗的有效性。
-
-
-**这场大流行病可能会有不同的结果**
-
-为了总结在制定“安全有效”的说法时使用这些双重标准是多么具有破坏性，让我们看看如果我们采用相反的标准，情况会有多大不同。
-
-因COVID而死亡的人数会非常少。很少有（如果有的话）尸检能明确地确认死亡是由SARS-CoV-2引起的。如果验尸确认是标准，那么在大流行期间，COVID的死亡人数基本上为零。
-
-另一方面，如果我们假定在VAERS中登记的死亡病例实际上是由疫苗引起的死亡–类似于CDC对COVID造成的许多死亡的假定–我们可以肯定已经有超过26000例疫苗死亡。
-
-使用绝对风险降低作为衡量疗效的标准，疫苗会被广泛拒绝，因为它是无效的，只提供了0.038%的感染严重COVID的风险降低。
-
-对于感染COVID的人来说，伊维菌素和羟氯喹本来是很容易获得的。对于那些接种了疫苗但还是感染了COVID的人来说，这些药物将是疫苗加强剂的一个很好的替代品，由于缺乏一项随机对照研究证明其有效，疫苗加强剂不会被批准。
-
-没有5至11岁的儿童会接受这种危险的实验性疫苗，因为它不会被授权用于这个年龄组–因为辉瑞公司的儿科试验没有在5至11岁的儿童中证明任何有意义的结果。
-
-辉瑞公司的疫苗将不再使用，因为临时数据显示，接种疫苗的人全因死亡率更高。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源:[**https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/**](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

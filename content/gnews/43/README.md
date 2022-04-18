@@ -2,28 +2,75 @@
 ---
 
 
-## 秘翻在线： 俄罗斯国家电视台主播认为第三次世界大战已经开始
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2365783/)
+## 美国政要们祝大家复活节快乐
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2365967/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-359.jpg)图片来源：本文的链接
-俄罗斯国家电视台在报道“莫斯科”号沉没时，使用了第三次世界大战已经开始的表述。
+**参议员玛莎.布莱克本：**
+ “天 使 对 妇 女 说 ， ‘不 要 害 怕 ， 我 知 道 你 们 是 寻 找 那 钉 十 字 架 的 耶 稣 。他 不 在 这 里 ， 照 他 所 说 的 ， 已 经 复 活 了 。 你 们 来 看 安 放 主 的 地 方 。’” ——马太福音 第28章 第5、6节
 
-据英国《每日邮报》报道，5月15日（当地时间），俄罗斯国家电视台在“俄罗斯一号”的“60分钟”新闻节目中，主播奥尔加-斯卡贝耶娃说，“ 俄罗斯在乌克兰进行的特别军事行动已经推进到可以称为第三次世界大战的阶段，因为我们很显然是在与美国和北大西洋公约组织（NATO）作战。因为斯卡贝耶娃认为，美国和其他西方国家正在向乌克兰提供大规模武器支持”。
 
-在节目中，还有人认为，必须对乌克兰发动大规模反击，以应对莫斯科号船的沉没。值得注意的是，节目中还有人向普京总统建议，对乌克兰首都基辅（Kyiv）使用核武器。
 
-在“俄罗斯一号”的其他节目中，还有人声称，西方正通过向乌克兰提供天文数字般的武器，使乌克兰政府走上血腥的道路。
+> “But the angel said to the women, ‘Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay.’” — Matthew 28:5-6
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 17, 2022](https://twitter.com/MarshaBlackburn/status/1515692439897612296?ref_src=twsrc%5Etfw)
 
-该节目的另一主持人奥列西亚-洛塞娃声称，“西方认为俄罗斯是一个不值得在世界地图上存在的国家”，“在确认莫斯科号船沉没后的几个小时内，就有消息称必须将所有俄罗斯人从地球上抹去”。
 
-关于“莫斯科”号的沉没，乌克兰方面声称该船是被两枚海王星巡航导弹击沉的，而俄方则将沉船原因归咎于火灾事故和恶劣的天气条件造成的。
 
-然而，西方媒体的观点是，乌克兰的说法更可信，因为在莫斯科舰艇沉没后不久，俄罗斯袭击了基辅附近巴什尔基乌地区的一家导弹制造厂，这被认为是一次报复性袭击。
+**前国务卿迈克·蓬佩奥： **
+蓬佩奥全家祝您复活节快乐！ [#他复活了](https://gettr.com/hashtag/%23%E4%BB%96%E5%A4%8D%E6%B4%BB%E4%BA%86) [#HeIsRisen](https://gettr.com/hashtag/%23HeIsRisen)
 
-信息来源：[https://korea-economics.jp/posts/22041702/](https://korea-economics.jp/posts/22041702/)
 
-责编：Eric Kim
+
+> Happy Easter from the Pompeo family! [#HeIsRisen](https://twitter.com/hashtag/HeIsRisen?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xL9LzI8A6M](https://t.co/xL9LzI8A6M)
+> — Mike Pompeo (@mikepompeo) [April 17, 2022](https://twitter.com/mikepompeo/status/1515777707975614468?ref_src=twsrc%5Etfw)
+
+
+
+**众议员兰斯·古登： **
+今天，当我们庆祝耶稣基督复活的同时，他也提醒了我们信仰和家庭的重要性。 复活节快乐！
+
+
+
+> Today we are reminded of the importance of faith and family as we celebrate the resurrection of Jesus Christ.
+> 
+> Happy Easter!
+> — Lance Gooden (@Lancegooden) [April 18, 2022](https://twitter.com/Lancegooden/status/1515858659590422531?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院：** 
+许多人道主义组织正在向受乌克兰危机影响的人们提供紧急援助。无论您身在何处，都可以通过以下方式提供帮助：
+
+
+
+> Many humanitarian organizations are providing urgent assistance to those affected by the crisis in Ukraine. Here are some ways you can help from wherever you are: [https://t.co/1ANlO5M6f8](https://t.co/1ANlO5M6f8)
+> — Department of State (@StateDept) [April 18, 2022](https://twitter.com/StateDept/status/1515842545879764996?ref_src=twsrc%5Etfw)
+
+
+
+**众议员玛乔丽·泰勒·格林： **
+亨特·拜登的笔记本电脑(内容)。 
+就要发布了。 
+内容是一个比一个的吓人。 
+但可能更让我困惑的是那些掩盖真相的人，他们对这一切都装作没事。 
+你怎么能这么做？ 
+怎么会有人这么做？
+
+
+
+> Hunter Biden’s laptop.
+> 
+> It’s about to be released.
+> 
+> The contents are one horror after another.
+> 
+> But what bothers me maybe even more are all the people that covered it up and are ok with it all.
+> 
+> How could you do that?
+> 
+> How could anyone do that?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1515869385684049920?ref_src=twsrc%5Etfw)
+
+
 
  
 

@@ -2,32 +2,62 @@
 ---
 
 
-## 视频|一周疫情、疫苗信息回顾 (2022年4月7日~4月15日)
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2366520/)
+## 希望香港人立刻马上原地暴毙的上海博主LLAP_草莓教授
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2366537/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/青岛_副本.png)
+新浪微博用户[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_) 是一个资深脑残粉红，她在2022年3月14日发出希望香港人立刻马上原地暴毙，以节省医疗资源的微博——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/香港.png)
+香港同胞的大量死亡并没有天然地使得[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)得到更多的生活资源，所以在上海封城后作为孕妇的她既抢不到合适的生活物资，也没有得到更多的医疗资源，作为国际化大都市上海的一员，她和所有的人都进入了等死状态——
 
-2022年4月6日至4月13日，除中共国外，全球新增中共病毒确诊患者663万余例，同比上周的847万余例下降了21.7%；此外，本周新增确诊死亡病例22,753例，同比上周的25418例下降了10.5%。本周已是连续第六周全球确诊病例和死亡病例持续负增长。 截止4月6日，除中共国外，全球累计接种了82.6亿剂中共病毒疫苗，同比4月6日的接种数据增长了0.487%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续一个月低于百分之一。
-4月7日，美国众议院议长南希佩罗西中共病毒检测阳性，此前，南希佩罗西已经完全接种了疫苗，并且接种了疫苗加强针。
-4月10日，数千人参加了在洛杉矶举办的“反对强制疫苗”集会。当下，美国各地已经逐渐放宽了一些强制措施，但仍然有一些学校、学院、企业、医院和公司继续采取疫苗强制措施。此外，在用药方面对治疗中共病毒的医生进行种种限制、大型科技公司对疫苗真相的审查与掩盖，对儿童进行不必要的疫苗接种，以及对科学论证保持缄默，是集会中强调的几个主要问题。
-4月12日，美国媒体揭露了辉瑞公司曾试图隐瞒新增聘的2400名全职员工，以负责处理疫苗副反应的案例。德克萨斯州法院下令辉瑞公司披露与中共疫苗有关的细节时，最新文件显示了与疫苗伤害相关的新增数字令人震惊。此前，法庭要求辉瑞公司及美国食品和药物管理局披露的文件中所罗列的1291项严重副反应，也仅简单列出副反应的名称，并未描述副反应的详细情况。
-4月13日，华盛顿州卫生部官员投票反对强制要求学生接种中共疫苗。
-该州卫生委员会一致投票决定，不再推进为学生接种中共疫苗的申请。经过来自公众广泛的讨论和建议，华盛顿州卫生部官员认为，尽管中共疫苗对所有符合条件的年龄组都是安全的，但他们亦承认若强制要求儿童接种，将带来不可预计的多重影响。
-董事会成员鲍勃-卢茨博士在周三的会议上说，在与全州各学校校长的讨论中，他了解到：家长们担心学生会因没有注射疫苗而无法上课。校长们非常担心会流失大量的学生，以及父母将被逼带着孩子离开学校。
-【链接】
-1) [https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&time=2022-04-07..latest&country=~World+excl.+China](https://ourworldindata.org/grapher/weekly-covid-cases?tab=table&amp;time=2022-04-07..latest&amp;country=~World+excl.+China)
-2）[https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/](https://thehill.com/news/3261548-pelosi-tests-positive-for-covid-19/)
-3）[https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally\_4396176.html](https://www.theepochtimes.com/thousands-protest-vaccine-mandates-at-los-angeles-rally_4396176.html)
-4）[https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/](https://www.oann.com/pfizer-tries-to-hide-2-4k-full-time-hires-handling-vax-injuries/)
-5）[https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/](https://dailyexpose.uk/2022/04/11/4000-women-lost-baby-covid-vaccine-usa/)
-6) [https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533](https://www.king5.com/article/news/local/washington-health-board-vote-vaccine-students/281-a8b79600-a956-4f8a-82a1-6bfff5282533)
-【图片】[https://discord.com/channels/872153398588370944/940296527308537896/964449534975561750](https://discord.com/channels/872153398588370944/940296527308537896/964449534975561750)
+据[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)[2022年4月2日 10:48](https://weibo.com/2259007220/Lmyuw1vZ6?from=page_1005052259007220_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
 
-发稿：qiutian（邱甜）
+上海真实现状是什么样
+小区的政府防疫物资看不到。
+外卖快递全部停发，居民自己买菜买肉蛋奶没有渠道。
+叮咚买菜抢不到运力。
+今天小区附近盒马阳了一个，买的东西全部退款。
+一斤猪肉138元坐地起价。
+团购的蔬菜只能撑到下周。（而我一个妊糖送来的都是土豆 ）
+确诊阳性的隔了好几天才被拉走。
+在隔了好几天才被统计。
+医院人满为患普通应该得到救助的病人得不到救助。
+民生民生得不到解决，医疗资源医疗资源不够。
+上头天天开会不知道开了什么内容。
+这就是国际化大都市-上海
+所有人都等着死吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海.png)
+在上海封城半个月之后的4月17日，她两次亲身感受到了痛——
 
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+据[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)[2022-04-17 16:10](https://weibo.com/2259007220/LoS0Pu20Z?from=page_1005052259007220_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+
+真牛逼，我一孕晚期的孕妇，因为楼里有阳（已拉走）所以健康码是红的，要去产检，医院不收红码孕妇，有问题要拉去金山卫这种地方看 真牛逼真牛逼，我生你马勒戈壁的小孩。从今天我就是你们口中的“极端女权”，结个屁的婚，生个屁 的小孩，反正怀孕时候不被保障，生了国家也不帮养。 快点进入少子化吧，累了。[#上海疫情#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&amp;from=default)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/孕妇.png)
+在封城半月后作为一名晚期孕妇，她再度因为邻居红码而被赋予红码，并且让她的产检受到影响，是的，她是因为邻居的红码而受害，那她又何曾没有因为自己的脑残自干五而得到报应和轮回呢？全体上海人和十四亿同胞又何曾不是因为千千万万个[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)脑残和自干五的老少粉红们而在这个世界上受到另眼相看和歧视呢？
+
+上海已经出现过孕妇因为收治不及时而一尸两命的惨剧，接下来我们衷心祝愿这位脑残粉红的晚期孕妇[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)能够母子平安，因为所有脑残粉红也都是我们的同类，因为每一个人的生命都应该得到尊重。
+
+编辑整理：喜马拉雅的肉夹馍；
+
+校对整合：喜马拉雅的馍夹肉；
+
+发布：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
