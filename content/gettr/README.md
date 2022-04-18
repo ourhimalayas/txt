@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 2:21 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月16日第43天当日救援统计：<br/>Medyka救援站接待：约216人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12204人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 43 - Date: April 16, 2022 :<br/>Medyka Rescue Station Reception: about 216 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12204 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group29/getter/2022/04/18/02/f7501451-2bac-d40b-4655-7951213c0f23/7aeb571acbcae70490b3cfb70aba6c45.jpg)
+
+---
+
+`@miles 4/18/2022 2:15 AM (UTC)`
+
+2022.04.17 农场联盟工作汇报
+![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 1:08 AM (UTC)`
 
 2022.04.17 晚  新中国联邦 | 新闻访谈   逾越节，复活节，斋戒月三大宗教节日同周登场
@@ -144,20 +158,6 @@ NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望
 
 The founder of Himalaya Exchange, William Je, is interviewed by GB News about how cryptocurrencies help the rescue work in Ukraine. He particularly mentions that what happens in Ukraine today will happen in Taiwan tomorrow, as he comes from Hong Kong and has experienced all of these before. He also shows concerns that a new Axis of Evil is forming, and this Ukraine War is just the beginning of a bigger war.<br/><br/>喜联储的创始人William Je余建明接受英国GB News的采访，关于虚拟货币是怎样有助于对乌克兰的救援活动。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。<br/>
 ![img](https://media.gettr.com/group37/getter/2022/04/17/09/26690006-e47a-dfbb-a096-0f633d623407/out.jpg)
-
----
-
-`@miles 4/17/2022 8:29 AM (UTC)`
-
-【Ukraine Rescue】04/15/2022<br/>An American volunteer from “One Heart”international relief organization expresses that it’s so precious to celebrate this most important holiday of Passover in Medyka with these Jewish and Chinese people, and all others around the world. We share one mission, one faith and one heart ,we’re trying to help the Ukrainians as well as 1.4 billion Chinese who are still under slavery of Chinese Communist Party.<br/><br/>【乌克兰救援】04/15/2022 一位来自”One Heart”国际救援组织的美国志愿者表示能在梅迪卡和其他犹太人，中国人以及来自全世界的人们聚在一起庆祝逾越节这个最重要的节日她感到非常珍贵。我们有着共同的使命、信仰和心愿：都想尽力帮助乌克兰人，同时也要拯救被中共奴役的14亿中国人。<br/>
-![img](https://media.gettr.com/group16/getter/2022/04/17/08/14dc8703-f519-cf49-8f2f-85b21ee34ba5/out.jpg)
-
----
-
-`@miles 4/17/2022 8:12 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group24/origin/2022/04/17/08/6f9a293b-5f49-6ed5-cfea-c53aa86a579f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
