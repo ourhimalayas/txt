@@ -2,32 +2,32 @@
 ---
 
 
-## 美国FDA授权的中共病毒呼吸样本测试首度被使用
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369765/)
+## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
 
-##### 作者：加拿大温哥华扬帆农场 – UCool 优酷（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-13.png)
+撰稿：东京樱花团/asket
 
-据【CTV NEWS】4月14日报道， 周四，第一个中共病毒诊断测试获得了美国食药局（FDA）紧急使用许可，该测试能够识别出中共病毒呼吸样本中特有的化学成分。
+奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
+“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
 
-据报，该测试只需不到三分钟即可获得结果，敏感性（测试阳性样本的准确率）91.2%，特异性（测试阴性样本的准确率）99.3%。同时该测试在奥米克戎变体中具有相同的灵敏度。
+“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
 
-该测试采用气相色谱气相质谱（GC-MS）仪器来分离和识别化学混合物，从而快速检出呼吸中与感染相关的五种挥发性有机化合物（VOC）。据悉，GC-MS是分析环境样品最准确的工具之一。利用该技术诊断呼吸道感染患者将大大提高快速筛查中共病毒感染者的能力。
+内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
 
-[原文链接](https://www.ctvnews.ca/health/first-covid-19-test-using-breath-samples-authorized-by-u-s-fda-1.5862795?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname)
+这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

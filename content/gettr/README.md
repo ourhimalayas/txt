@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 11:38 PM (UTC)`
+
+4月18号，《铁锁梦》MV在iTunes上线后，迅速登榜台湾 🇹🇼， 香港🇭🇰，澳门🇲🇴，马来西亚🇲🇾，新加坡🇸🇬，泰国🇹🇭，MV总榜第一名🥇，MV流行曲榜第一名🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，澳门，马来西亚，新加坡，泰国的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>4/18/2022 Miles Guo’s latest MV “Chained Dream” hits iTunes No.1 🥇on Hong Kong 🇭🇰, Taiwan 🇹🇼, Macau 🇲🇴, Malaysia 🇲🇾, Singapore 🇸🇬, Thailand 🇹🇭 Top Music Video Charts and No.1 🥇Pop Music Video Charts ! <br/>🎉🎉🎉🎉🎉🎉🎉<br/>Thanks to our brothers and sisters in Hong Kong, Taiwan, Macau, Malaysia, Singapore, Thailand 🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group22/getter/2022/04/18/23/1da8fa18-148f-3330-8d58-198f3b979e3e/95742d48404ff3736abff3b1ee4dc465.jpg)
+
+---
+
 `@miles 4/18/2022 11:13 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月17日第44天当日救援统计：<br/>Medyka救援站接待：约285人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12489人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 44 - Date: April 17, 2022 :<br/>Medyka Rescue Station Reception: about 285 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12489 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】04/16/2022  Luka, a Spanish volunteer, is attracted to the slogan "Take down the Chinese Communist Party". He has a deep understanding of the CCP's treatment of Hong Kong, Xinjiang, suppression of press freedom and live organ harvesting. He calls for an end to mutual fighting and a joint effort against evil forces like Russia and the Chinese Communist Party.<br/><br/>【乌克兰救援】04/16/2022  西班牙的志願者卢卡(Luca)被“推翻中共”这一口号所吸引。他对中共的对待香港、新疆、压制新闻自由和活摘器官等罪行都有深刻认识。他呼吁停止互斗，共同对付像俄罗斯和中共这样的邪恶势力。
 ![img](https://media.gettr.com/group8/getter/2022/04/18/05/46ca3840-5585-d236-4e9e-dcdf8ade0a7f/out.jpg)
-
----
-
-`@miles 4/18/2022 5:43 AM (UTC)`
-
-【Ukraine Rescue】04/15/2022 A couple from New Mexico in the US quit their job and come to the front line rescue with a lot of materials. They denounce Putin's atrocity to the Ukrainians and support our efforts to take down the CCP because the Chinese have been under the CCP’s oppression for so long. Also, China's a world power and the fate of Chinese people impacts the fate of all mankind.<br/><br/>【乌克兰救援】04/15/2022 一对来自美国新墨西哥州的夫妇辞去工作准备了大量物资来到前线救援，他们谴责了普京对乌克兰人的暴行，并支持我们推翻中共，因为中国人长期受到中共的压迫，中国是大国， 中国人的命运涉及到全人类的命运。
-![img](https://media.gettr.com/group23/getter/2022/04/18/05/170ce88f-efc3-8f97-0ad1-41b22f66db14/out.jpg)
 
 ---
 
