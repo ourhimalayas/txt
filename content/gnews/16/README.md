@@ -2,29 +2,32 @@
 ---
 
 
-## 有声|喜联储创始人谈加密货币在危机中的巨大作用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2369673/)
+## 美国FDA授权的中共病毒呼吸样本测试首度被使用
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369765/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+##### 作者：加拿大温哥华扬帆农场 – UCool 优酷（采编）、晨熹（编译）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-13.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+据【CTV NEWS】4月14日报道， 周四，第一个中共病毒诊断测试获得了美国食药局（FDA）紧急使用许可，该测试能够识别出中共病毒呼吸样本中特有的化学成分。
 
-4月17日，郭文贵先生在盖特中发布了一段视频，喜马拉雅交易所创始人之一余建明先生几天前接受了英国媒体GBNEWS的专访。
+据报，该测试只需不到三分钟即可获得结果，敏感性（测试阳性样本的准确率）91.2%，特异性（测试阴性样本的准确率）99.3%。同时该测试在奥米克戎变体中具有相同的灵敏度。
 
-余先生以加密货币在俄乌战争中救助乌克兰民众发挥的巨大作用为例，畅谈了在新的邪恶轴心势力日益猖獗的当下，以及各种危机频频发生的将来，加密货币如何有望成为帮助普通大众摆脱专政独裁政权有效工具。具体内容请观看以下视频。
+该测试采用气相色谱气相质谱（GC-MS）仪器来分离和识别化学混合物，从而快速检出呼吸中与感染相关的五种挥发性有机化合物（VOC）。据悉，GC-MS是分析环境样品最准确的工具之一。利用该技术诊断呼吸道感染患者将大大提高快速筛查中共病毒感染者的能力。
 
-文字版原文：[喜联储创始人谈加密货币在危机中的巨大作用](https://gnews.org/zh-hans/2366274/)
+[原文链接](https://www.ctvnews.ca/health/first-covid-19-test-using-breath-samples-authorized-by-u-s-fda-1.5862795?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-音频处理/发稿：Daxia
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

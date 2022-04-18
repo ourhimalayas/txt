@@ -2,34 +2,30 @@
 ---
 
 
-## 中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369805/)
+## 韦涅迪克托娃——让普京付出代价的女人
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369915/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-45.jpg)[图片来源](https://www.zerohedge.com/economics/stagflation-fears-soar-world-bank-slashes-global-growth-outlook)
-世界银行刚刚削减了其对今年全球经济扩张的预测，将其前景转变归咎于俄罗斯对乌克兰的入侵。
+##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、晨熹（编译）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-16.png)
 
-这个总部位于华盛顿的机构将其对2022年全球经济增长的估计从1月份预测的4.1%下调至3.2%（与2021年5.7%的扩张相比）。
+据【CTV NEWS】4月15日报道，乌克兰总检查长韦涅迪克托娃要对手中的信息进行分类、调查，并将俄罗斯战争罪行的肇事者绳之以法，让普京和他的军队为此付出代价。虽然世界各地法院都在努力追究俄罗斯责任，但大部分调查和起诉，将由乌克兰自己完成。
 
-总裁马尔帕斯（David Malpass）在周一的电话会议上告诉记者，这种下降是由欧洲和中亚（包括俄罗斯和乌克兰）的前景下调所刺激的。
+韦涅迪克托娃的调查部门约有50名检察官。他们正与国际法庭和波兰等十几个国家密切合作，对俄罗斯的战争暴行展开调查。她还聘请了英国高级法律顾问，并正与美欧合作建立国际流动调查团队。该团队的首要任务就是没收战犯资产并赔偿受害者。目前，数千亿美元俄罗斯资产已被美欧国家冻结，未来将用来资助乌克兰重建和赔偿。
 
-随着通货膨胀继续飙升，而美联储只是蹑手蹑脚地进入其加息和QT，全球滞胀的焦虑正在爆发……
+[原文链接](https://www.ctvnews.ca/world/the-woman-who-would-make-putin-pay-meet-ukraine-s-war-crimes-investigator-1.5863278)
 
-增长的减少促使人们呼吁向各个经济体注入更多的资金（当然这对抑制通货膨胀毫无帮助）。据彭博社报道，马尔帕斯预计将在未来几周与银行董事会讨论一个新的15个月的危机应对方案，约1700亿美元，涵盖2022年4月至明年6月，其中约500亿美元将在未来三个月部署。
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-“鉴于危机的持续，这是一个持续的、大规模的危机应对措施，” 他补充说，新的举措将超过为Covid-19大流行病的初始阶段所调动的1570亿美元。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-马尔帕斯的评论和计划是在本周在华盛顿举行的国际货币基金组织和世界银行春季会议之前提出的，在这次会议上，粮食安全、通货膨胀、债务和俄罗斯入侵乌克兰的冲击都将成为焦点。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-目前，所有增长问题的 “解决方案 “似乎只会使粮食安全问题变得更糟，但从什么时候开始，过去的反复教训曾经阻止过一场美好的消费盛宴？
-
-信息来源：[**Stagflation Fears Soar As World Bank Slashes Global Growth Outlook**](https://www.zerohedge.com/economics/stagflation-fears-soar-world-bank-slashes-global-growth-outlook)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

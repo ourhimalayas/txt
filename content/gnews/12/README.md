@@ -2,32 +2,22 @@
 ---
 
 
-## 美国FDA授权的中共病毒呼吸样本测试首度被使用
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369765/)
+## 樱花时政┃意大利重开驻基辅大使馆 西班牙跟进
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369818/)
 
-##### 作者：加拿大温哥华扬帆农场 – UCool 优酷（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-13.png)
+撰稿：东京樱花团/加一颗稻草
 
-据【CTV NEWS】4月14日报道， 周四，第一个中共病毒诊断测试获得了美国食药局（FDA）紧急使用许可，该测试能够识别出中共病毒呼吸样本中特有的化学成分。
+法新社罗马18日电，续法国和土耳其上周宣布，驻乌克兰大使馆将从利维夫迁回基辅后。意大利驻基辅的大使馆于今天重新开放。这是入侵乌克兰的俄罗斯军队撤出基辅地区后，又一个国家让外交官返回乌国首都。西班牙总理桑杰士（Pedro Sanchez）今天也表示，马德里将在未来几天重开驻基辅大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.jpg)[图片来源](https://www.google.com/search?q=%E5%9F%BA%E8%BE%85+%E6%84%8F%E5%A4%A7%E5%88%A9%E5%A4%A7%E4%BD%BF%E9%A6%86&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBu2IdEkJblP3oc5vt2Tv_pFNpSQdQ:1650304103541&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwikn_PulZ73AhW_QkEAHabXBPsQ_AUoA3oECAEQBQ#imgrc=06B_XWVEWPCQSM)
+俄军2月24日侵略乌克兰后，意大利、法国等将驻基辅外交官转移到乌西城市利维夫。西班牙使馆迁至波兰。土耳其一度将驻乌克兰大使馆迁移至靠近罗马尼亚边界的车尼夫契。近日在俄军撤离基辅周围和乌克兰北部后，各国使馆人员陆续返回乌国首都。
 
-据报，该测试只需不到三分钟即可获得结果，敏感性（测试阳性样本的准确率）91.2%，特异性（测试阴性样本的准确率）99.3%。同时该测试在奥米克戎变体中具有相同的灵敏度。
+俄军在乌克兰遭遇惨败后，各国对乌克兰的抵抗侵略的能力的信心增强。各国使馆迁回基辅，使得各国对乌克兰的军事和民生等援助更加快捷有效。
 
-该测试采用气相色谱气相质谱（GC-MS）仪器来分离和识别化学混合物，从而快速检出呼吸中与感染相关的五种挥发性有机化合物（VOC）。据悉，GC-MS是分析环境样品最准确的工具之一。利用该技术诊断呼吸道感染患者将大大提高快速筛查中共病毒感染者的能力。
+消息来源：[义大利重开驻基辅大使馆 西班牙也快了](https://www.rfi.fr/cn/%E4%B9%89%E5%A4%A7%E5%88%A9%E9%87%8D%E5%BC%80%E9%A9%BB%E5%9F%BA%E8%BE%85%E5%A4%A7%E4%BD%BF%E9%A6%86-%E8%A5%BF%E7%8F%AD%E7%89%99%E4%B9%9F%E5%BF%AB%E4%BA%86)
 
-[原文链接](https://www.ctvnews.ca/health/first-covid-19-test-using-breath-samples-authorized-by-u-s-fda-1.5862795?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname)
-
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
