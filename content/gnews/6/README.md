@@ -2,18 +2,28 @@
 ---
 
 
-## 芬兰称未来安保选择与乌克兰局势“是两件不同的事”
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2366087/)
+## 中日财经爆┃静冈新茶创下196万日元一公斤的新高价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2366100/)
 
-编辑：文宝
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃静冈新茶创下196万日元一公斤的新高价.jpg)[图片来源](https://www.google.com/search?q=Tea+New+tea+in+Shizuoka+prefecture&amp;sxsrf=APq-WBt395HSJujguNtnD4BushmDSKeoVg:1650251890102&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=uPigtu1YBUfxUM%252CvcnKWMfBL4-e3M%252C_%253BU70wIPMC6516AM%252CNOjCcZUuzMOudM%252C_%253B1HGdDmpSZ6)
 
-据芬兰广播公司（Yle）4月16日报道，芬兰外长哈维斯托周五晚间接受采访时表示，俄乌冲突跟芬兰与瑞典未来的安保选择是两件不同的事。哈维斯托认为，没有理由对来自俄罗斯的“威胁”感到恐慌。他在采访中称，俄罗斯对芬兰和瑞典加入北约的立场早已众所周知，因此俄方的反应并不意外。
+4月18日，在日本静冈县的静冈茶叶市场举行了新茶季的首次交易会，截止上午8点10分，静冈县富士宫市产的手摘茶的价格达到了一公斤196万日元的历史新高。据茶叶市场的分析，虽然生长相比去年有所延迟，但茶叶的质量非常好。
 
-16日，俄罗斯外交部发言人扎哈罗娃此前表示，瑞典和芬兰加入北约将会对北欧稳定产生负面影响。14日，俄罗斯联邦安全会议副主席梅德韦杰夫表示，如果瑞典和芬兰加入北约的话，俄芬边界防卫将需要增强。同时他指出，这种情况下谈论波罗的海无核化地位则不太可能。
+根据静冈茶叶市场的相关数据，截止上午8点10分，该县的茶叶处理量为1732公斤，平均单价为每公斤5027日元。
 
-据Yle报道，哈维斯托在采访中说：“俄罗斯反对北约扩员不是新闻，俄罗斯在国防领域必须考虑北约也不是新闻。”此外，哈维斯托称，如果芬兰决定加入北约，那么将在未来六周提交申请。这与芬兰总理马林与瑞典总理安德森会谈时的表态相呼应。
+信息源：
+[静岡新茶、最高値196万円　初取引、「品質良好」](https://news.yahoo.co.jp/articles/b420cf2cfd52a5d460d56c078b7f17ec2fc29000#:~:text=%E3%83%88%E)
 
-原文链接：[https://news.sina.com.cn/w/2022-04-17/doc-imcwiwst2349331.shtml?cre=tianyi&mod=pcpager\_inter&loc=8&r=0&rfunc=99&tj=cxvertical\_pc\_pager\_spt&tr=174](https://news.sina.com.cn/w/2022-04-17/doc-imcwiwst2349331.shtml?cre=tianyi&amp;mod=pcpager_inter&amp;loc=8&amp;r=0&amp;rfunc=99&amp;tj=cxvertical_pc_pager_spt&amp;tr=174)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -15,35 +15,35 @@
 
 ---
 
-### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/1/README.md)
+### [2022年4月17日郭先生盖特 — 视频1「9分26秒」](/content/gnews/1/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [FDA和辉瑞知道新冠疫苗会导致免疫抑制（2/2）](/content/gnews/2/README.md)
+### [FDA和辉瑞知道新冠疫苗会导致免疫抑制（2/2）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本在加速开发冠状病毒和埃博拉及天花疫苗](/content/gnews/3/README.md)
+### [日本在加速开发冠状病毒和埃博拉及天花疫苗](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃美参议院担心乌克兰可能 “变成叙利亚” 提出在乌克兰部署美国军队](/content/gnews/4/README.md)
+### [樱花时政┃美参议院担心乌克兰可能 “变成叙利亚” 提出在乌克兰部署美国军队](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃静冈新茶创下196万日元一公斤的新高价](/content/gnews/5/README.md)
+### [中日财经爆┃静冈新茶创下196万日元一公斤的新高价](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [芬兰称未来安保选择与乌克兰局势“是两件不同的事”](/content/gnews/6/README.md)
+### [芬兰称未来安保选择与乌克兰局势“是两件不同的事”](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在40.399 HDO](/content/gnews/7/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在40.399 HDO](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [哈尔滨封城如约而至,大连和青岛正进行封城前舆论预热](/content/gnews/8/README.md)
+### [哈尔滨封城如约而至,大连和青岛正进行封城前舆论预热](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [俄罗斯和中国的恶梦：英美科学家解密普京珍爱的战斗机](/content/gnews/9/README.md)
+### [俄罗斯和中国的恶梦：英美科学家解密普京珍爱的战斗机](/content/gnews/10/README.md)
  ` 波士顿五月花农场金融部`
-
-### [俄白卡车被勒令限期离开欧盟](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [4/18/2022 银河快讯：日本首相强调提高粮食自给率； 日本外相将访问前苏联国家和中亚的其它国家](/content/gnews/11/README.md)
  ` 日本银河系农场-阿尔法星球`
@@ -114,11 +114,11 @@
 ### [俄罗斯国家电视台宣布第三次世界大战已经开始](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵先生2022年4月17日盖特视频（9分26秒）全文字版](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大年轻人染疫死亡率大幅上升](/content/gnews/35/README.md)
+### [加拿大年轻人染疫死亡率大幅上升](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [早晨第一缕意识的思考](/content/gnews/35/README.md)
+ ` 澳喜特战旅Gnews`
 
 ### [乌克兰完成加入欧盟的调查问卷](/content/gnews/36/README.md)
  ` 蓝莲花农场`

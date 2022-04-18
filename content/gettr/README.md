@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 5:49 AM (UTC)`
+
+【Ukraine Rescue】04/16/2022  Luka, a Spanish volunteer, is attracted to the slogan "Take down the Chinese Communist Party". He has a deep understanding of the CCP's treatment of Hong Kong, Xinjiang, suppression of press freedom and live organ harvesting. He calls for an end to mutual fighting and a joint effort against evil forces like Russia and the Chinese Communist Party.<br/><br/>【乌克兰救援】04/16/2022  西班牙的志願者卢卡(Luca)被“推翻中共”这一口号所吸引。他对中共的对待香港、新疆、压制新闻自由和活摘器官等罪行都有深刻认识。他呼吁停止互斗，共同对付像俄罗斯和中共这样的邪恶势力。
+![img](https://media.gettr.com/group8/getter/2022/04/18/05/46ca3840-5585-d236-4e9e-dcdf8ade0a7f/out.jpg)
+
+---
+
+`@miles 4/18/2022 5:43 AM (UTC)`
+
+【Ukraine Rescue】04/15/2022 A couple from New Mexico in the US quit their job and come to the front line rescue with a lot of materials. They denounce Putin's atrocity to the Ukrainians and support our efforts to take down the CCP because the Chinese have been under the CCP’s oppression for so long. Also, China's a world power and the fate of Chinese people impacts the fate of all mankind.<br/><br/>【乌克兰救援】04/15/2022 一对来自美国新墨西哥州的夫妇辞去工作准备了大量物资来到前线救援，他们谴责了普京对乌克兰人的暴行，并支持我们推翻中共，因为中国人长期受到中共的压迫，中国是大国， 中国人的命运涉及到全人类的命运。
+![img](https://media.gettr.com/group23/getter/2022/04/18/05/170ce88f-efc3-8f97-0ad1-41b22f66db14/out.jpg)
+
+---
+
 `@miles 4/18/2022 5:07 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -142,20 +156,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 什么是正道主义？<br/>要敬畏自然，遵守宇宙法则<br/>第一，这个国家的权力必须是属于人民，个人财富受到尊重和保护。<br/>第二，建立在法制基础上的对人权的尊重，信仰自由，言论自由。<br/>正道主义崇尚和平，坚持正道主义的新中国联邦将是一支和平的力量，将与世界上爱好和平的国家达成千年和平协议。<br/><br/>视频：蜂鸟战友创作-战友日常之正道基石<br/>#新中国联邦宣言 #漫画灭共 #正道主义
 ![img](https://media.gettr.com/group23/origin/2022/04/16/22/55e0b6fb-9e14-f051-f715-896d4775e200/out.jpg)
-
----
-
-`@miles 4/17/2022 2:35 PM (UTC)`
-
-The biggest tent of the New Federal State of China hosted more than 10,000 Ukrainian refugees at the Polish border, a number that surprised the German volunteer who came to deliver the relief supplies, and although it was the first time he had heard about the New Federal State of China (NFSC), he thought that the NFSC volunteers did a fantastic job<br/>新中国联邦的大帐篷在波兰边境接待超过1万名的乌克兰难民，这个数字让前来送救援物资的德国志愿者感到惊讶，虽然他是第一次听说新中国联邦，但是他认为新中国联邦志愿者做的太棒了<br/>#ukrainerescue #nfsc新中国联邦 #nfscukrainerescue
-![img](https://media.gettr.com/group4/origin/2022/04/17/14/6108e1d0-fed5-6ea7-6e3b-be36079cf9de/out.jpg)
-
----
-
-`@miles 4/17/2022 2:30 PM (UTC)`
-
-Two volunteers from Russia had an interview with us. They hate Putin and don’t agree with the war. One of them, his mother, was arrested in a peaceful demonstration in Russia, and all of his Russian friends are against the war. The other says he loves Chinese people very much but he hates the Chinese government. He hopes China and Russia will be free and people can enjoy freedom and democracy. The two volunteers agree that freedom loving people should unite and take down dictatorships together.<br/><br/>两名来自俄罗斯的志愿者接受了我们战友的采访。他们恨普京并且他们反对战争。其中一位的母亲，由于参加一次和平抗议，被警察逮捕，而且他的所有朋友都反对这场战争。另一位说他非常爱中国人民但是恨中国政府。他希望中(共)国和俄罗斯变成自由国度，并且人们能享有自由和民主。两名志愿者认同热爱自由的人们应该联合起来共同推翻独裁统治。
-![img](https://media.gettr.com/group8/origin/2022/04/17/14/43148af2-7695-77da-5879-e8ce74ebf50d/out.jpg)
 
 ---
 

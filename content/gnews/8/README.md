@@ -2,60 +2,84 @@
 ---
 
 
-## 哈尔滨封城如约而至,大连和青岛正进行封城前舆论预热
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2366054/)
+## 币圈新闻动态：喜币（HCN）价格目前在40.399 HDO
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2366082/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/青岛大连_副本.png)
-哈尔滨封城公告已经如约而至，那么青岛和大连的情况如何呢？
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-据[大连今日开展全员核酸！不参加者将赋黄码！如果变成黄码了如何解除？](https://baijiahao.baidu.com/s?id=1730405783382539905&amp;wfr=spider&amp;for=pc)（大连本地宝官网发布时间: 2022-04-18 08:59）
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-今天大连全域内要开展
 
-新一轮区域核酸筛查！
 
-我们一定要
+## 每日一问
 
-响应号召、积极配合
 
-做好防护、应检尽检
 
-对无正当理由、拒不配合
 
-参加本轮区域核酸筛查的
 
-将对其“辽事通健康码”赋“黄码”！
+喜联储主席陆续走上前台接受媒体采访，意味着什么？
 
-以及[刚刚！山东青岛市传来一个不好的据青岛卫健委通报、疫情最新情况](https://www.163.com/dy/article/H5801L2B055270Z7.html)（2022-04-18 11:32:31　来源: 无量风沙  ）
 
-青岛市，昨日疫情2022年4月17日0时~12时昨日新增本土确诊1例系青岛市城阳区报告新增本土无症状感染者18例均为青岛市城阳区报告以上人员均为支援外地工程建设返回人员，在管控中检测发现后续情况将继续跟进，敬请关注!疫情期间特别提醒关注防疫信息时刻保持警惕这波疫情病毒隐藏时间长不容易被发现部分人群没有前期的发烧感冒特征病毒传播速度快等特点大家出门一定要戴口罩、勤洗手、测体温、扫码登记、公共场合不要聚集人多的地方从目前看，国外疫情始终不断，国内必将受到牵连，防范疫情必将成为长期的一项任务，始终做到早发现、早提醒、早治疗避免更多人受到感染防范好自己的安全就是对朋友、对社会、对亲人最大的贡献坚持做好个人防护保持良好的生活习惯相信在大家的共同努力下我们最终会战胜疫情青岛加油！
 
-\*\*\*\*\*\*\*引用完毕\*\*\*\*\*\*\*
 
-郭文贵先生2022年4月15日盖特直播发出青岛、大连、哈尔滨或海口的封城预警后，我们以非常矛盾地心情看到如约而至的哈尔滨封城公告，我们也在同样以非常矛盾地心情看着中共以疫情为名在对青岛和大连做封城前的媒体造势，青岛、大连乃至任何这片土地上的同胞们，你们备水、备粮、备生活物资了吗？留给我们的时间不多了！
 
-编辑整理：喜马拉雅的肉夹馍；
+## 喜马拉雅交易所要闻
 
-校对整合：喜马拉雅的馍夹肉；
 
-发布：Maarago；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+- 喜交所网站行情显示，喜币（HCN）价格目前在40.399 HDO，24H最高价格为40.561 HDO，24H最低价格为39.531 HDO，24H成交量约为20679.402 HCN。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
+## 新闻动态
+
+
+
+
+
+1. EWN报道，根据Arcane Research团队的一份报告，目前有8000万加密用户可以访问比特币闪电网络。而在一年前，访问比特币闪电网络的加密用户刚达到了10万，这意味着在这段时间内，访问用户增加了800%。Arcane Research的报告解释说，比特币闪电网络接入的增加是由于越来越多的支付应用集成了支付服务。
+2. Zycrypto报道，根据Coincub的说法，德国现在是全球加密友好度最高的国家。考虑到目前欧盟加密货币监管的不确定性，这是一个重大的成就，也可能带来一丝希望。德国从2021年第四季度的第4名上升到2022年第一季度的第1名，击败了前第一名新加坡。机构对加密货币越来越多的采用，以及该国对发展中市场的累进税收，被认为是其在最新排名中上升的原因。德国机构已经接受加密货币作为储蓄者可行的长期投资。这一立场反映在被称为Sparkasse的一系列传统储蓄银行目前正致力于为用户提供加密交易和托管服务。此举意味着它的5000万客户将能够在该机构交易并持有比特币。目前排名第二的新加坡，由于政府最近对加密货币广告和比特币ATM机的打击，导致其排名有所下降。另一方面，目前排名第三的美国在纯数字方面是一股不可忽视的力量，在交易量、国内挖矿、比特币ATM机等方面都处于领先地位。
+3. 4月18日消息，据Etherscan最新数据显示，当前以太坊网络Gas费已降至18gwei。
+4. Nftevening报道，The Fabricant和World of Women背后的团队合作将时尚带入虚拟世界，并将更多女性带入Web3空间。World of Women系列将于5月23日这一周登陆The Fabricant Studio。除此之外，还将进行原始收藏品的空投。双方正在邀请任何Web3女性社区共同创造独特的NFT服装。所有参与者将平分共同创建的NFT的版税。
+5. 官方消息，元宇宙游戏生态DeHorizon宣布与My Crypto Heroes达成合作，后者是一款基于以太坊和Polygon的回合制自动战斗多人RPG游戏。
+6. Cointelegraph报道，Web3艺术项目RELI3F为乌克兰机构筹集了超过150万美元，其中包括向Razom Ukraine、Serhiy Prytula基金会、Valery Sozanovsky和CEO Club各捐赠46.25ETH，以及通过版税基金向Outright Action International和Web3 For Africansin Ukraine捐赠40ETH。据悉，RELI3F由Web3企业家atvik Sethi、Andrew Wang、Giovanni Gussen、Aleksandra Artamonovskaja、Raskalov和开发人员Signor Crypto于今年2月下旬创立。
+7. TechSutram报道，位于新奥尔良的Web3技术公司Gripnr宣布获得250万美元融资，Sopris Capital、XBTO Humla Ventures、Abstraction Ventures、Better Angels、Carl Sparks、Voodoo Ventures以及一系列位于新奥尔良的投资者参投。目前，该公司计划利用新融资发行其首款5E游戏和创世NFT系列《The Glimmering》，该NFT系列将于5月发布。据悉，Gripnr是一家Web3技术公司，由Brent McCrossen创立。其目标是将桌游带入区块链。
+8. CryptoPotato报道，西班牙主要航空公司之一欧罗巴航空（Air Europa）与区块链实体TravelX达成合作，基于Algorand首次发布NFT机票。购买此类收藏品的用户将于2022年11月29日登上从马德里到迈阿密的专机。用户可在TravelX平台上购买NFTickets，第一次拍卖于4月11日开启，之后每两周进行一次。TravelX解释称，这种机票就像传统的NFT一样。交易时，交易记录在区块链上。持有者可出示该收藏品，并获得相应的机票。
+9. 官方消息，RadioCaca联合创始人、著名嘻哈歌手French Montana将于近期发行NFT专辑。据悉，French Montana近日在推特中表示，将联合Radio Caca向世界展示“Montega”音乐NFT，目标是通过NFT创作、策划和收集音乐等，实现真正的音乐创作自由。通过使用专属的NFT技术，Radio Caca将使艺术家们能够轻松地将歌曲、专辑和商品代币化，从而彻底改变粉丝与他们喜爱的艺术家互动的方式。
+10. Bitcoin.com报道，美国滑板巨星Tony Hawk计划于下周二在NFT市场Autograph上推出另一个NFT系列，与他在去年12月推出的“Last Trick”NFT系列中使用的滑板挂钩。据悉，该系列将包括五块实体签名滑板，第一块（Frontside Cab板）将于周一空投给幸运收藏家Garry DeBoer。其他签名的滑板包括Finger Flip、Gymnast Plant、Magic Dance和Varia l540。
+11. CryptoSlate报道，美国大众歌手选秀节目《美国偶像》将与Theta Labs合作推出实时预测NFT，以纪念其在美国播出第20季节目。根据新闻稿，《美国偶像》NFT卡包售价99美元，收藏者将获得一张代表14强选手之一的NFT卡。Theta Labs联合创始人兼首席执行官Mitch Liu表示，Theta支持的实时预测性NFT将使粉丝们不仅仅为选手投票，还能成为评委。NFT将允许粉丝收集奖励，最终的奖励可兑换成一张好莱坞门票的NFT。
+12. 4月18日消息，The Sandbox宣布与韩国创意数字内容公司Design Egg达成合作，计划建立虚拟空间Como Tiny World，旨在为具有吸引力的角色提供富有想象力的世界，并创建100多个相关NFT。
+13. Decrypt报道，根据最近的一份报告，自俄乌战争以来，乌克兰已收到至少1亿美元的加密货币捐款。乌克兰副总理兼数字信息化部长Mykhailo Fedorov周日发推分享了一张正在使用加密货币捐款的照片。
+14. 韩联社报道，现代汽车集团通过YouTube发布了一段介绍自己的NFT世界观“Metamobility Universe”的视频，并表示其计划在全球汽车行业首次进军基于社区的NFT市场，为客户提供多样化的品牌体验。据悉，Metamobility是现代汽车通过机器人技术和元宇宙相结合的未来愿景。
+15. TheBlock报道，奢侈时尚品牌路易威登（Louis Vuitton）正在推进其NFT实验，在其独立手机应用游戏《Louis:The Game》中引入了以PFP为灵感的NFT奖励。该游戏于2021年8月首次推出。玩家进入一个世界，在那里他们可以装扮自己的化身Vivienne，四处收集明信片，了解该品牌的200年历史。据Vogue Business报道，该公司已经在该应用程序中添加了新的任务和新的NFT奖励。玩家在游戏中收集到一定数量的免费NFT，就有机会获得NFT抽奖资格，抽奖活动将持续到8月4日（游戏中的一张明信片显示，8月4日是路易威登的生日）。玩家将有机会赢得10个新的NFT之一，这些NFT基于拥有一系列不同外观的Vivienne，可以在多个平台上移植，类似PFP。
+16. 官方消息，DeFi协议dForce宣布推出dForce Bridge，这是一个跨链桥接工具，可在部署了dForce协议的区块链和层上实现USX和DF的即时和低成本转账。未来，dForce将寻求更多的合作，并将引入dForce定制桥接。
+17. 彭博社报道，美国国税局计划向NFT投资者征税，根据美国税务专家的说法，这是最热门的领域之一。Chainalysis的数据显示，NFT的投资者和创造者使这个市场已经膨胀到440亿美元，现在美国政府想要从中分享利润。美国国税局官员表示，NFT投资者欠美国数十亿税款，他们正准备进行打击。
+18. Bitcoin.com报道，俄罗斯联邦政府已向国家杜马提交了一项法律草案，该草案引入了对涉及加密货币的交易征税的规则。Forklog援引该文件报道称，“数字权利”的税基将确定为代币的销售和收购价格之间的差额。拥有代币的俄罗斯实体将支付其数字版权收入的13%，而外国公司的税率为15%。数字金融资产的发行人将有义务在明年2月1日之前提交有关各方和本年度交易的税务报告。此外，俄罗斯政府还准备提交一项新的法律草案“关于数字货币”，该草案最近由财政部修订并提交给内阁。该部门是加密货币合法化的支持者，而俄罗斯银行则反对。预计这两项立法都将在国家杜马春季会议期间通过。它们将补充于2021年1月生效的《数字金融资产法》，该法仅对该国的加密行业进行了部分监管，以建立一个全面的加密货币法律框架。
+19. 财联社报道，高盛首席经济学家Jan Hatzius在研究报告中写道，美联储面临的主要挑战是缩小就业岗位和工人之间的差距，通过收紧金融环境，在不大幅提高失业率的情况下减少职位空缺，从而将工资增长速度降至与2%通胀目标一致的水平。未来两年美国经济收缩的可能性约为35%。实现“软着陆”可能很难，因为从历史上看，美国就业岗位和工人差距的大幅下降只发生在经济衰退时期。但经济衰退并非不可避免，因为疫情后劳动力供应和耐用品价格的正常化将有助于美联储实现目标。
+20. 4月18日消息，Watcher.Guru发推称，摩根大通表示，NFT很可能在未来主导数字资产领域的规模。
+21. Decrypt报道，一群门罗币狂热者在社交媒体上表示，计划在4月18日进行一次XMR“挤兑”。在“门罗币”发行八周年之际举行的所谓“Monerun”活动，是对社区成员认为的门罗币缺乏透明度的一种回应，其中包括中心化交易所暂停XMR提现和不实储备的指控。周四，Reddit的一篇帖子详细介绍了这一计划。“我们将把XMR从交易所中撤出，”bawdyanarchist称，门罗币的模糊分类帐技术使得交易所有可能谎报储备，并出售他们实际上并不持有的XMR。交易所之所以能这样做，是因为他们相信大多数门罗币的持有者不会寻求提现。所以现在，门罗币社区的成员似乎正在协调努力，从尽可能多的交易所撤回XMR，从而佐证自己的判断。
+22. 4月17日消息，据派盾监测，稳定币项目Beanstalk Farms遭到攻击，随后，价值25万美元的USDC从攻击者钱包地址转入乌克兰加密捐赠地址。
+23. U.Today报道，根据WhaleStats的数据，鲸鱼用户正在积极购买SHIB，这导致Shiba Inu智能合约的使用量增加，并使其成为2000个最大的以太坊钱包使用最多的智能合约。除此之外，Shiba Inu的市场和链上指标也在飙升，鲸鱼地址的平均余额上升到2.36SHIB，交易量增长了436%，达到5300万美元。更重要的是Shiba Inu在鲸鱼地址上的净流量增长了近500%，这表明大型投资者短期和中期看涨SHIB。
+24. 4月17日消息，畅销书《富爸爸穷爸爸》作者罗伯特•清崎（Robert Kiyosaki）在推文中表示，预测10月份会出现“巨大的股市崩盘”，并指出崩盘之后，美国将陷入新的萧条，经济衰退和恶性通货膨胀即将来临，建议投资者购买黄金、白银和比特币。
+25. 4月17日消息，分析师Plan C发推表示，比特币总流通量的12.04%已在38,100美元至41,500美元之间易手，这比任何其他价格范围都多。
+26. CNBC报道，灰度首席执行官Michael Sonnenshein近期接受采访时表示：“从美国SEC的角度来看，40Act产品有的几项保护33Act产品并没有，但这些保护措施从未解决SEC对基础比特币市场以及欺诈或操纵可能性的担忧。因此，他们现在已经形成了自己的想法，并批准了一款符合33Act的Teucrium产品，这一事实使之前的论点无效，并显示了比特币期货和赋予期货合约价值的基础比特币现货市场之间的联系。”
+27. VideoGamesChronicle报道，日本游戏开发公司、《最终幻想》游戏发行商史克威尔•艾尼克斯（Square Enix）总裁Yosuke Matsuda重申，他希望该公司能够创造P2E区块链游戏。Matsuda近日在接受雅虎日本采访时表示，他相信只关注传统游戏对于想要继续向前迈进的公司而言是不够的，并描述了他的愿景，即用户可以创作内容并因此获得奖励。
+28. 4月17日消息，《黑天鹅》（Black Swan）一书的作者Nassim Taleb最近在推特上表示，NFT热潮可能即将结束。这位黎巴嫩裔美国数学统计学家确信，更高的利率将使泡沫破裂。美联储正在实施的货币紧缩政策预计将给风险资产带来压力。Taleb还指出，Jack Dorsey第一条推文NFT实际上已经失去了绝大部分价值。加密企业家Sina Estavi于2021年3月以290万美元的价格购买Twitter创始人Jack Dorsey第一条推文的NFT版本。近日，他在Twitter上宣布希望出售此NFT，并承诺将其50%的收益（他认为将超过2500万美元）用于慈善事业。该NFT挂单价格为4800万美元，售卖时期于4月13日结束，但仅收到少数几份报价，从0.0019ETH（约6美元）到0.09ETH（约280美元）不等。截至发稿时，OpenSea显示该推文NFT最高出价为1.163ETH（约3633.05美元）。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
+
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
