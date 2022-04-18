@@ -2,49 +2,22 @@
 ---
 
 
-## 樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2368155/)
+## 秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2368142/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-121.jpg)[图片来源](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
-俄罗斯国家电视台周一播放了一段视频，视频中是为乌克兰作战被俘的“英国人”，俄罗斯要求首相鲍里斯·约翰逊就释放他们进行谈判。
+**撰稿：Ping**
 
-这两名面容憔悴的男子被确认为英国国民，他们是肖恩·平纳（Shaun Pinner）和艾登·阿斯林（Aiden Aslin），他们要求用维克多·梅德韦丘克（Viktor Medvedchuk）交换，后者是与总统弗拉基米尔·普京关系密切的乌克兰富商，最近在乌克兰被捕。
+**责编：人间四月**
 
-广播里没有说明这两个人被关押在哪里或被谁关押，是俄罗斯军队还是莫斯科在乌克兰东部的分离主义盟友。
+今日网友戏评“孙大娘演戏演了3年了,一直在演戏，想不到今天穿帮了。裆中央老戏骨孙春兰跑到楼顶去视察上海的梦花街疫情，不知道这些民众看了有啥感受？主角配合配角演，堂堂大国副总理，欺上瞒下，这就是中共党官邪恶丑陋的嘴脸！” 网友称“上海新闻制作的跨界尝试，绝对有实力冲击奥斯卡”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-220800.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-220939.jpg)
+中共窃国70年，摆拍早已司空见惯，无需惊讶。这就是共产党愚民惯用的手段，不足为奇！奇怪的应该是为什么媒体没有把相关的舆论屏蔽，相关的帖子为什么没有及时删掉，为什么任其“不良影响”在民间发酵？似乎意味不同寻常，难道孙春兰大妈得罪了哪一派？这是要断孙大妈的官运？上海老百姓正在生死存亡的线上挣扎，他们的摆拍结果只能增添民愤，让人们更加看清这群共产党的老杂毛的丑恶嘴脸！
 
-这段录音是俄罗斯国家广播公司VGTRK的记者安德烈·鲁登科（Andrei Rudenko）的采访。
+如今上海的封城，老百姓的生存已经在生死一线间。然而，中文互联网上流传着官方媒体在上海在封城期间刻意“制造”正能量新闻的图片，例如摆拍当地居民生活物资充足可“送菜进小区”，实际并未提供给小区住户，甚至都不予销售，拍摄完成后将物资转移到了其他地方。例如电视画面中显示人们可自由进入超市进行购物，这些都因与民众的具体生活体验不符遭到质疑、揭发。如今更讽刺的是副总理孙春兰视察居民区，其画面却是在一处高层的楼顶进行摄……真可谓从上到下皆摆拍，愚弄百姓没商量啊！
 
-在这段视频中，鲁登科向两人展示了梅德韦丘克的妻子奥克萨娜·马尔琴科（Oksana Marchenko）上周发布的视频，她要求用她丈夫交换这两名英国人。
+日本媒体，还有西方自媒体都有报道上海的这些非人道的封城事件，都从人道主义角度谴责中共政府暴行。然而，这样毫无人性的政府都烂到根了，国人却还能忍受， 如果同胞不醒来，死亡早晚会降临在每一个人头上！国人不醒，民族危矣！
 
-随后，被拘留者用英语要求换回这位商人。
-
-阿斯林的母亲在接受英国《每日电讯报》周五发表的采访时曾呼吁释放他。
-
-这位名叫安·伍德（Ang Wood）的女士说，她从俄罗斯的广播中认出了她28岁的儿子，因为他身上有独特的纹身。
-
-该报援引伍德的话说：“艾登是乌克兰武装部队的一名现役成员，因此是一名战俘，必须受到人道的对待。”
-
-在社交媒体上流传的带有克里姆林宫支持的广播公司RT标志的视频中，这名年轻人似乎暗示乌克兰正在延长战争冲突的时间。
-
-目前尚不清楚这些人在视频中是否被强迫说话。
-
-乌克兰总统沃洛基米尔·泽伦斯基曾提议用67岁的梅德韦楚克交换目前被关押在俄罗斯的乌克兰人。
-
-在上周被问及潜在的交换问题时，克里姆林宫发言人德米特里·佩斯科夫（Dmitry Peskov）强调，梅德韦丘克“不是俄罗斯公民”，并表示他不知道他是否希望莫斯科干预他的案件。
-
-周一，佩斯科夫承诺将“传达”普京对该想法的任何回应。
-
-信息来源：** **[**Russia broadcasts video of captured ‘Britons’ demanding UK PM negotiate their release**](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**[新闻来源](https://news.ltn.com.tw/amp/news/world/breakingnews/3896588)**
 
  
 

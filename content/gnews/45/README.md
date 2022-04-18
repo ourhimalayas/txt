@@ -2,29 +2,36 @@
 ---
 
 
-## 疫情｜台湾首例2岁童新冠重症 拟推儿童接种半剂辉瑞 心肌炎风险官方称“没有比较高”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2366230/)
+## 中共增加铁路货运班列援助俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366148/)
 
-**疫情关注组 zhong｜2022-4-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-9.png)
-台湾疫情已确定进入社区感染，据新北市长侯友宜表明“新北市已进入社区感染”因此新北市疫调不再公布足迹，引起民众对实联制是否必要存在的疑虑。台湾连续多日确诊破千例，并出现中、重症患者。有别于过去，台湾本次疫情中央采“共存”策略，以往在如此严重的疫情下，早已宣布社交封锁政策，禁餐厅内用、学校教学采远端等，惟目前疫情指挥中心称未来采减灾策略，呼吁接种疫苗。
+作者：骄子
 
-又儿童部分，台湾媒体近日连续报导数起较严重的儿童感染个案，其一重症患者是未满5岁孩童，该孩童本身无慢性病史，4/14早上采检，傍晚出现比较严重症状，晚上确诊后住进加护病房，出现急性脑炎并多重器官异常，为台湾首例儿童重症个案。
+4月15日，郭文贵先生爆料，因俄罗斯入侵乌克兰遭受国际制裁，中共的物资频繁地被运抵俄罗斯。中共援助俄罗斯的物资通过火车运输抵达。回程列车则满载俄罗斯的石油，并低价转手卖给多个国际基金。中共借此帮助俄罗斯逃避国际制裁。
 
-据疫情关注组观察，台湾媒体近日接续报导儿童新冠确诊中重症个案，主管机关随后便迅速公布将启动儿童疫苗接种计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-18-at-11.20.42-AM.png)
 
-17日，疫情指挥中心表示，将召开专家会议审查5-11岁儿童疫苗的紧急使用授权（EUA），并将会优先审查莫德纳。下周专家会议将会参考专业意见决定是否让儿童接种疫苗。
+近日，为了向俄罗斯运输物资，中共一带一路重要项目的中欧班列新添了多趟列车。
 
-18日，中央流行疫情指挥中心宣布开放6-11岁儿童接种“半剂莫德纳”（食药署EUA审查会议专家建议，剂量为成人一半），两剂接种间隔为28天，符合接种资格人数约120万人，最快周三决定开始施打始期。
+据中共国公开新闻显示，截止2022年1月29日，中欧班列累计开行5万列。中欧班列途径俄罗斯的三个出境口岸为阿拉山口、二连浩特、满洲里。截至4月15日，满洲里累计开行数量达到15,000列。霍尔果斯累计开行20,239列，而在3月19日，霍尔果斯口岸该项数字是19,526。在短短27天内，开行达到713列。往常每月大概是500列。这仅是霍尔果斯一个口岸的吞吐量。
 
-有家长盼望有BNT可选择，原因在于有认为“莫德纳副作用根本魔王等级”；亦有家长担忧新冠疫苗的心肌炎、心包膜炎副作用，相关权责单位回覆称“风险没有比较高”并强调儿童副作用主疼痛、发烧、喉咙痛、咳嗽等。
+除了增加原有线路的开行次数，中共还增添了多条线路。在4月13日开通中豫号里海、黑海班列，当天五地六列班车齐发。直抵莫斯科的列车有，4月15日九江至莫斯科线路复航，4月6日赤峰至莫斯科首度开行。3月25日，咸宁至莫斯科首度开行。
 
-亚洲多国陆续开放儿童新冠疫苗，据疫情关注组了解，台湾已有中小学鼓励班级导师鼓励学生接种疫苗，若达标（全班接种）将会有相应的“鼓励措施”。据郭文贵直播爆料，上海、香港及欧美多国疫情，皆归因于“新冠疫苗（中共病毒疫苗）”，针对国际局势及中共动态的分析爆料，郭具充分把握，自新冠疫苗尚未推行他便主张“新冠疫苗就是中共的生物病毒武器，疫苗比病毒还毒，疫苗会导致心肌炎、心包膜炎、癌症风险暴增、爱滋及其他免疫疾病”，并称新冠疫苗不可能阻止疫情传播、亦无预防感染作用，其爆料资讯就目前观之，符合目前已揭露的公开资讯（不预防感染、心肌炎等严重副作用）。
+中共是俄罗斯侵略乌克兰的背后支持者，帮助俄罗斯逃避国际制裁，已经严重违反了国际法。
 
-* * *
+参考链接：
+1. [4/15/2022 文贵直播](https://gettr.com/post/p15h9ro21b1)
+2. [全球连线｜新疆霍尔果斯口岸累计通行中欧班列超2万列](http://www.news.cn/world/2022-04/16/c_1128566580.htm)
+3.[https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm\_HF1s9g](https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm_HF1s9g)
+4.[https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn\_Mbv\_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo\_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA](https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn_Mbv_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA)
+5. [https://baike.baidu.com/reference/15832643/c396syJUUu-jQ\_svfwIY9Wm-5ctVFeBDk3kN\_6RZgJ3VDcBTkKi\_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA](https://baike.baidu.com/reference/15832643/c396syJUUu-jQ_svfwIY9Wm-5ctVFeBDk3kN_6RZgJ3VDcBTkKi_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：文真
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：谐趣园
 
  
 

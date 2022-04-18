@@ -15,37 +15,37 @@
 
 ---
 
-### [4月18日勿忘香港（图片1-9）](/content/gnews/1/README.md)
+### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4月18日勿忘香港（图片1-9）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [给七哥发信息要移居伦敦并移交农场的大牛该如何答复？](/content/gnews/2/README.md)
+### [给七哥发信息要移居伦敦并移交农场的大牛该如何答复？](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|中共防疫神药实为骗局 以岭药业一字跌停](/content/gnews/3/README.md)
+### [有声|中共防疫神药实为骗局 以岭药业一字跌停](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|喜联储创始人谈加密货币在危机中的巨大作用](/content/gnews/4/README.md)
+### [有声|喜联储创始人谈加密货币在危机中的巨大作用](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [有声|台湾新增本土病例突现新高](/content/gnews/5/README.md)
+### [有声|台湾新增本土病例突现新高](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|台湾军方无人机来自中共 暴露了台湾的系统问题](/content/gnews/6/README.md)
+### [有声|台湾军方无人机来自中共 暴露了台湾的系统问题](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [加拿大报界“老油条”们对马斯克推特收购案感到恐慌](/content/gnews/7/README.md)
+### [加拿大报界“老油条”们对马斯克推特收购案感到恐慌](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [在农场散布谣言向战友借币借钱骗捐的韩国农场主Cosmos](/content/gnews/8/README.md)
+### [在农场散布谣言向战友借币借钱骗捐的韩国农场主Cosmos](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [绝大多数中国人的自私&amp;不懂感恩&amp;大头症&amp;为你好&amp;互相恨](/content/gnews/9/README.md)
+### [绝大多数中国人的自私&amp;不懂感恩&amp;大头症&amp;为你好&amp;互相恨](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [未来新疆西藏香港台湾的独立和中国解体形成中华联邦国](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [香港是东西方沟通的桥梁,台湾相当美国认养的第57个州](/content/gnews/11/README.md)
+### [未来新疆西藏香港台湾的独立和中国解体形成中华联邦国](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [基辅地区发现900多具平民尸体](/content/gnews/12/README.md)
@@ -93,68 +93,68 @@
 ### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/26/README.md)
  ` thedawn`
 
-### [外国首脑接连访日 岸田首相在危机中求取实绩](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/28/README.md)
+### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美日等国善待从中共国上海出逃的人](/content/gnews/29/README.md)
+### [美日等国善待从中共国上海出逃的人](/content/gnews/28/README.md)
  ` 银河歌舞厅`
 
-### [2022/04/13 墙内世界](/content/gnews/30/README.md)
+### [2022/04/13 墙内世界](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共以“清零”做掩护，实则用中共病毒疫苗杀人](/content/gnews/31/README.md)
+### [中共以“清零”做掩护，实则用中共病毒疫苗杀人](/content/gnews/30/README.md)
  ` 银河歌舞厅`
 
-### [数字货币发展进入法律规范化时代](/content/gnews/32/README.md)
+### [数字货币发展进入法律规范化时代](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [中共为大连和青岛大隔离做舆论准备](/content/gnews/33/README.md)
+### [中共为大连和青岛大隔离做舆论准备](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/34/README.md)
+### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国及世界疫情简报（04-18-2022）](/content/gnews/35/README.md)
+### [美国及世界疫情简报（04-18-2022）](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [改编了中共國國歌（小區版）抱砖引玉。唱起來，用音樂找回我們的勇氣！](/content/gnews/36/README.md)
+### [改编了中共國國歌（小區版）抱砖引玉。唱起來，用音樂找回我們的勇氣！](/content/gnews/35/README.md)
  ` 纽约香草山MOS03`
 
-### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/37/README.md)
+### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/38/README.md)
+### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/37/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/39/README.md)
+### [印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/38/README.md)
  ` 温哥华扬帆农场`
 
-### [樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判](/content/gnews/40/README.md)
+### [樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量](/content/gnews/41/README.md)
+### [秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国](/content/gnews/42/README.md)
+### [4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [新西兰财经G乐部2022年4月18日:财经新闻整理](/content/gnews/43/README.md)
+### [新西兰财经G乐部2022年4月18日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [世界银行：减少对中国的依赖“可能对每个人都有好处”](/content/gnews/44/README.md)
+### [世界银行：减少对中国的依赖“可能对每个人都有好处”](/content/gnews/43/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [疫情｜台湾首例2岁童新冠重症 拟推儿童接种半剂辉瑞 心肌炎风险官方称“没有比较高”](/content/gnews/45/README.md)
+### [疫情｜台湾首例2岁童新冠重症 拟推儿童接种半剂辉瑞 心肌炎风险官方称“没有比较高”](/content/gnews/44/README.md)
  ` 關注組`
 
-### [中共增加铁路货运班列援助俄罗斯](/content/gnews/46/README.md)
+### [中共增加铁路货运班列援助俄罗斯](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币](/content/gnews/47/README.md)
+### [中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频文编|一定要消除中国人心上的共产党病毒](/content/gnews/47/README.md)
+ ` KarmaLabs`
 
 ### [台湾｜美前国安顾问吁美军驻台 郭文贵：美国将对台有一系列政策](/content/gnews/48/README.md)
  ` 關注組`

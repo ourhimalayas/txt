@@ -2,32 +2,29 @@
 ---
 
 
-## 加拿大报界“老油条”们对马斯克推特收购案感到恐慌
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369659/)
+## 有声|台湾军方无人机来自中共 暴露了台湾的系统问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2369665/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-12.png)
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
-据【真北方】4月15日报道，据称，周四埃隆·马斯克提出以比4月1日报价高出38%的价格（即每股54.20美元）收购推特的意愿。他还表示，如果拥有推特，他将释放该平台“非凡潜力”。这一消息是在马斯克本月早些时候成为该公司最大股东后不久发布的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-随后，来自全球新闻、环球邮报、多伦多星报等媒体的记者和评论员，再也按捺不住恐慌，纷纷公开宣泄不满情绪，并表示将考虑转移平台。
+4月16日，郭文贵先生在盖特直播中指出，他在14日爆料的中共把自己制造的无人机卖给台湾军方这一消息，在台湾引起了巨大震撼。
 
-马斯克一直是媒体平台上言论自由的代表。他曾在推特上直言不讳地批评加拿大总理贾斯汀·特鲁多，也曾多次发推文支持自由车队运动，甚至被迫撤下一条有争议的将特鲁多比作纳粹独裁者阿道夫·希特勒的推文。
+郭先生继续明确宣布，他希望告诉美国政府、台湾的现任蔡英文政府以及所有台湾同胞，中国共产党先把无人机卖给了所谓的澳大利亚公司，然后澳大利公司又将其卖给了台湾军方。对此消息，他愿意承担一切法律责任。这事关台湾人民的安全，相关部门可以直接进行核实和确认。另外，中共的无人机能够卖给台湾军方，已经不单纯是无人机的问题，还暴露出台湾的整个系统出现了问题。 到目前为止，台湾的卖台贼仍然在不断地从中共政府谋取巨大的金钱和物质利益。我们需要让美国和全世界都知道卖台贼与中共的坑脏交易。
 
-[原文链接](https://tnc.news/2022/04/15/canadian-legacy-journalists-freak-out-over-elon-musks-twitter-takeover-bid/)
+文字版原文：[台湾军方无人机来自中共 暴露了台湾的系统问题](https://gnews.org/zh-hans/2366508/)
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+音频处理/发稿：Daxia
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
