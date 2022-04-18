@@ -2,29 +2,12 @@
 ---
 
 
-## 加拿大年轻人染疫死亡率大幅上升
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365660/)
+## 中共很清楚美国反对什么并制造了可能作为生物武器的病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2365727/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+04/15/2022 彼得·纳瓦罗博士：中国共产党很清楚我们反对的是什么，因为在托尼·福奇的资助下，中共在武汉病毒研究所制造了这种病毒，很可能是一种生物武器。
 
-编译：加拿大温哥华扬帆农场 – 晨熹
-
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2151.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
-
-
-据【CTV 新闻】4月14日报道，加拿大统计局最新数据显示，随着新冠病毒疫情在全国的再度蔓延，目前年轻人的超常规死亡率正悄然攀升。
-
-据悉，在2020年3月至次年11月期间，加拿大非正常死亡人数与去年同比增加了近29000人，高出常规数值约6%。其中，45岁以下男性的超常规死亡率约为19%，同龄女性的非常规死亡率约为13%，而且总体高于正常值15%左右。
-
-报道称，除因直接感染病毒致死外，其他疫情次生灾难包括：医疗延迟、药物使用过量等间接因素也导致了以上非正常死亡人数的大幅增加。以阿尔伯塔省为例，在奥米克戎新毒株肆虐期间，该省平均每周的非常规死亡人数多达150人，高出通常状况的25%。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,41 +2,36 @@
 ---
 
 
-## 最后通牒到期，乌克兰誓言在马里乌波尔战斗到底
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365250/)
+## 乌克兰完成加入欧盟的调查问卷
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2365605/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：冰糖葫芦喵
 
-翻译/编辑：小红帽
+编辑与校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《路透社》4月18日报道，**乌克兰总统泽伦斯基办公室副主任伊霍尔·若夫克瓦（Ihor Zhovkva）表示，乌克兰已经完成了一份调查问卷，这将成为欧盟决定乌克兰加入欧盟的起点。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/RRNPPETTURMC5KCVJYGBQYA6AI-e1650247851842.jpg)乌克兰总统泽伦斯基与欧盟委员会主席冯德莱恩和波兰总统安杰伊-杜达在皇家拉齐恩基公园的岛屿宫殿远程参加题为 “为乌克兰站起来 “的全球活动时，在屏幕上看到了这一画面。（图片来源：路透社）
+据报道，**欧盟委员会主席乌尔苏拉·冯·德·莱恩在4月8日访问基辅期间，向泽伦斯基递交了这份调查问卷，承诺在俄罗斯入侵乌克兰后，加快乌克兰加入欧盟的进程。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/mariupol-damage-rts_hpEmbed_20220404-020815_10x7_992.jpg)图片来源：ABC NEWS
+周日，若夫克瓦晚间对乌克兰公共广播电台说，今天，我可以说，乌**克兰方面已经完成了这份文件。**他还说，欧盟委员会需要就乌克兰是否遵守必要的成员国标准提出建议，我们希望建议……然后球就会落到欧盟成员国这一边。
 
+**他补充说，乌克兰希望在6月的欧洲理事会会议上获得加入欧盟候选国的地位。**
 
-根据CNA 4月17日报道，乌克兰周日发誓要在马里乌波尔战斗到底，此前俄罗斯发出最后通牒，要求剩余部队在黑海港口城市投降。
+**若夫克瓦说，接下来，我们将需要启动入盟谈判。一旦我们举行这些会谈，我们就已经可以谈论乌克兰在欧盟正式成员国身份。**
 
-“这座城市还没有沦陷，”乌克兰总理丹尼斯·什米哈尔说，在莫斯科要求投降的最后期限过去几个小时后，战士们躲在一个庞大的堡垒般的钢铁厂中。
+**根据欧洲理事会网站上的日程安排，理事会将于6月23日至24日举行会议。**
 
-“还有我们的军队，我们的士兵。他们会战斗到最后，”什米哈尔告诉美国广播公司。
+新闻来源链接：
 
-莫斯科已将其军事重点转移到控制顿巴斯东部地区，并建立一条通往已经吞并的克里米亚的陆地走廊。
+[Ukraine completes questionnaire for EU membership | Reuters](https://www.reuters.com/world/europe/ukraine-completes-questionnaire-eu-membership-official-2022-04-18/)
 
-俄罗斯国防部表示，被包围的钢铁厂内有多达400名雇佣军，并呼吁里面的乌克兰军队“放下武器投降，以保全自己的生命”。
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
 
-乌克兰总统泽连斯基表示，如果俄罗斯军队杀死了保卫该市的剩余部队，将结束和谈。
-
-俄罗斯总统普京已经表示，会谈处于“死胡同”。
-
-乌克兰总理什米哈尔说，乌克兰希望通过外交途径解决问题，但如有必要，将战斗到底。
-
-资料来源：[Ukraine vows to fight to the end in Mariupol as ultimatum expires](https://www.channelnewsasia.com/world/ukrainian-forces-fight-end-ukraine-prime-minister-russia-invasion-2630721)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

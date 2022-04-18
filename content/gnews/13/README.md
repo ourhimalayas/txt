@@ -2,41 +2,35 @@
 ---
 
 
-## 樱花时政┃乌克兰军队攻防兼备的作战能力得到巩固和加强
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365704/)
+## 美国特使在首尔就朝鲜导弹和核紧张局势进行会谈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365750/)
 
-撰稿：东京樱花团/皓月当空郭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃乌克兰军队攻防兼备的作战能力得到巩固和加强.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2022%2F04%2F2022-02-19T145335Z_1068565442_RC2XMS9DEOAD_RTRMADP_3_UKRAINE-CRISIS-LAWMAKERS-EAST.jpg%3Fresize%3D1200%252C630&amp;imgrefurl=https%3A%2F%2Fwww.aljazeer)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-自俄乌战争以来，乌克兰军队用一个多月时间抵御住了俄军的疯狂进攻，特别是在战争初期，俄军对重点目标的轰炸和占领，俄罗斯的战斗机和武装直升机、地面多路坦克和装甲部队、黑海舰队、空降部队等的来势汹汹，使首都基辅处于极度危险之中，但是通过乌克兰军队和人民的英勇顽强，利用“标枪”导弹、“毒刺”摧毁掉俄军的装甲、坦克、直升机，完全遏制住俄军的进攻势头，并通过打掉俄军后勤，使得俄军再也没有夺取首都基辅的能力，而且乌克兰军队越打越勇，俄军进攻部队很多被定点清除，迫使俄军不得已停止对首都基辅的战斗！
+翻译/编辑：小红帽
 
-如果说战争初期，乌克兰军队处于防守阶段，抵御俄军的进攻，那么从最近传出的乌军战斗捷报来看，乌军已经形成攻守兼备的战斗能力，不但防守有力，而且已经开始进攻！ 综合国际关于俄乌战争动向的报道：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/yna1065624913651394_594.jpg)图片来源：www.m.k-odyssey.com
 
-1、乌克兰表示它们发射导弹击中了俄罗斯“莫斯科号”巡洋舰，俄罗斯表示军舰上面发生大火导致军舰沉没。
 
-2、据法新社今天（4月17日）报道称，一名俄罗斯官员今天指控乌克兰对俄罗斯西部城市贝尔哥罗德的一个“油库”实施了直升机袭击，该城市距离乌克兰边境约40公里。
+根据CNA 4月18日报道，美国朝鲜问题特使于周一抵达首尔，与韩国同行就如何解决平壤增加的导弹发射以及对可能恢复核试验的担忧进行会谈。
 
-3、当地时间14日，与乌克兰接壤的俄罗斯布良斯克州克里莫沃遭到乌军武装直升机袭击，俄罗斯布良斯克州的克里莫夫区已进入紧急状态。
+在为期五天的访问期间，美国特别代表Sung Kim及其副手Jung Pak将与包括核问题特使Noh Kyu-duk在内的韩国官员会面。
 
-4、Planet Labs提供的图像称，乌克兰军方3月15日在赫尔松机场摧毁了多架俄罗斯军用直升机，报道称，这是乌克兰军方在此次战争期间对俄直升机进行的已知最具破坏性的袭击，至少三架俄罗斯直升机在机场起火或被摧毁。
+一行人的到来恰逢美国和韩国军队开始为期9天的年度联合军事演习。韩国参谋长联席会议周日表示，此次演习是“使用计算机模拟进行的防御性指挥所训练”，不会涉及部队的实地演习。
 
-5、利沃夫当地的官员说，防空系统拦截了4枚从苏-35战斗机上发射的导弹。乌克兰官员在社交媒体上说，那是一架从白俄罗斯机场起飞的战斗机。
+朝鲜谴责联合演习是战争的预演。近年来，由于努力与平壤进行外交接触，并且由于新冠病毒的限制，此类演习已经缩减。
 
-从以上战事新闻可以看到，乌克兰军队已经不限于在乌克兰境内消灭俄军，而且已经在境外和俄罗斯境内摧毁其重要军事目标，尤其是摧毁“莫斯科”巡洋舰，大大削弱了俄海军在黑海的战斗力。同时，看到乌军的拦截了俄军发射的导弹，说明了乌克兰的防空力量得到巩固和加强！
+周六，朝鲜试射了官方媒体所说的用于运送战术核武器的导弹。
 
-另据BBA中文网4月17日报道：美国军事援助开始抵达乌克兰 ，援引一位白宫官员, 美国有线电视新闻网报道称，由美国提供的军事援助陆续运抵乌克兰。
+资料来源：[US envoy in Seoul for talks over North Korea missile, nuclear tensions](https://www.channelnewsasia.com/asia/us-envoy-north-korea-south-korea-missile-launch-nuclear-testing-2631101)
 
-随着美国、英国、欧盟的援助的武器装备陆续到位，乌克兰军队的攻防兼备的战斗能力将进一步提升，这也使得俄罗斯军队的进攻愈加困难，不得已搬出核武器来威胁乌克兰！
+发布： tianzhihuan
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

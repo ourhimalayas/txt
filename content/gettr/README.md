@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 3:39 AM (UTC)`
+
+【Ukraine Rescue】 04/15/22  The Israeli volunteer who is celebrating Passover in the tent of the NFSC expresses her gratitude to us. And, to her surprise, she is learning that just as the Jews often say 'next year in Jerusalem', the NFSC people have a similar saying 'see you next year in Pangu', heralding the Chinese people in China will be free, and we will be reunited with our brothers and sisters who are still in China struggling with Communism, and we're going to fight together and win!<br/><br/>【乌克兰救援】 04/15/22  在新中国联邦帐篷内庆祝逾越节的以色列志愿者向我们表示了感谢。而且，她惊喜地得知，如同犹太人常说的‘明年在耶路撒冷见’一样，新中国联邦人也有一个类似说法‘明年在盘古相见’，预示着我们中国人民将在中国获得自由，与仍在国内与共产主义作斗争的兄弟姐妹团聚，并取得胜利！
+![img](https://media.gettr.com/group9/getter/2022/04/18/03/2a6c0c92-ee5c-e354-2e0a-f7503e5999fd/out.jpg)
+
+---
+
 `@miles 4/18/2022 3:21 AM (UTC)`
 
 4/17/2022  Miles Guo: The Europe and the US are carrying out the strategy of "luring Russia into actions" and "luring the CCP into actions"; the Russia-Ukraine war is ultimate battle between justice and evil; the New Federal State of China fellow fighters on the rescue frontline in Ukraine are outstanding, they represent the image of new Chinese people; the so-called Chinese celebrities working as the CCP’s running dogs will not be pitied by the CCP, they will eventually go to the crematorium prepared for them by the CCP<br/><br/>4/17/2022 文贵直播：欧洲和美国正在进行“引俄出洞”和“引共出洞”的策略，俄务战争是正义和邪恶的终极大战；新中国联邦的战友在乌克兰救援前线的表现卓越，代表了新中国人的新形象；充当中共走狗的所谓中国各界名流不会被中共所怜悯，最终会走进中共给他们准备的火葬场<br/>
@@ -151,13 +158,6 @@ Two Spaniards who came to the border to donate supplies visited the NFSC tents a
 
 【中文同传】NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望与和平⎢2022.04.17 EST
 ![img](https://media.gettr.com/group25/origin/2022/04/17/11/e0f03b7a-88c9-1ad7-558b-264836119227/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 11:42 AM (UTC)`
-
-NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望与和平<br/>
-![img](https://media.gettr.com/group19/origin/2022/04/17/11/9aafb504-d8a2-4f14-a43e-b0a177b5f627/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

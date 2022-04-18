@@ -2,37 +2,22 @@
 ---
 
 
-## 乌克兰完成加入欧盟的调查问卷
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2365605/)
+## 樱花时政┃俄方证实：第8集团军副司令阵亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365712/)
 
-翻译：冰糖葫芦喵
+撰稿：东京樱花团/加一颗稻草
 
-编辑与校对：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
-《路透社》4月18日报道，**乌克兰总统泽伦斯基办公室副主任伊霍尔·若夫克瓦（Ihor Zhovkva）表示，乌克兰已经完成了一份调查问卷，这将成为欧盟决定乌克兰加入欧盟的起点。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/RRNPPETTURMC5KCVJYGBQYA6AI-e1650247851842.jpg)乌克兰总统泽伦斯基与欧盟委员会主席冯德莱恩和波兰总统安杰伊-杜达在皇家拉齐恩基公园的岛屿宫殿远程参加题为 “为乌克兰站起来 “的全球活动时，在屏幕上看到了这一画面。（图片来源：路透社）
-据报道，**欧盟委员会主席乌尔苏拉·冯·德·莱恩在4月8日访问基辅期间，向泽伦斯基递交了这份调查问卷，承诺在俄罗斯入侵乌克兰后，加快乌克兰加入欧盟的进程。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2153.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.newsnpr.org%2Fwp-content%2Fuploads%2F2022%2F04%2F1650184476_Russian-official-said-the-deputy-commander-of-the-army-group.jpg&amp;imgrefurl=https%3A%2F%2Fwww.newsnpr.org%2Frussian-official-said-the-deput)
 
-周日，若夫克瓦晚间对乌克兰公共广播电台说，今天，我可以说，乌**克兰方面已经完成了这份文件。**他还说，欧盟委员会需要就乌克兰是否遵守必要的成员国标准提出建议，我们希望建议……然后球就会落到欧盟成员国这一边。
+当地时间4月16日，俄罗斯圣彼得堡市新闻处发布消息称，俄罗斯南部军区第8集团军副司令弗拉基米尔·弗罗洛夫（Vladimir Frolov）少将已在对乌军事行动中阵亡。 这是俄罗斯阵亡的第8位高级将领。
 
-**他补充说，乌克兰希望在6月的欧洲理事会会议上获得加入欧盟候选国的地位。**
+有网友评论：“我有个嗜好，高兴的时候喜欢喝两盅，下酒菜是必须亲自下厨鼓捣的。因为不怕大家笑话，我是一名只要一两白酒下肚就要睡个几小时的能人。老婆也喜欢见我这样，毕竟客厅里没有了我的身影心里安静了许多。但是最近一个多月喝酒的频率平添了8次，感觉身体有点吃不消了。一过磅秤增加了12斤脂肪，这让我很意外。如果再增加喝酒加菜4、5次我的体重就正常了，这是我前半生怎么努力也没达到的目的。”
 
-**若夫克瓦说，接下来，我们将需要启动入盟谈判。一旦我们举行这些会谈，我们就已经可以谈论乌克兰在欧盟正式成员国身份。**
+信息来源：[**俄方证实：第8集团军副司令阵亡，已在圣彼得堡落葬**](https://m.sohu.com/a/538697324_115479?spm=smwp.topic_125.tpl-list.1.1650237213772b4c0eqk_55243)
 
-**根据欧洲理事会网站上的日程安排，理事会将于6月23日至24日举行会议。**
-
-新闻来源链接：
-
-[Ukraine completes questionnaire for EU membership | Reuters](https://www.reuters.com/world/europe/ukraine-completes-questionnaire-eu-membership-official-2022-04-18/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
