@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 12:50 PM (UTC)`
+
+【Ukraine Rescue】04/16/2022  A Jewish volunteer from Washington D.C has seen the demonstrations of NFSC in Washington D.C，but he hasn't guessed to see the refugee relief by the NFSC by the border of Poland. He thinks The refugee relief by the NFSC will be a memorial and the co-worked international organization and institutes will be lifetime allies. It is smart to create allies and show humanity by providing relief and support for others.<br/><br/>【乌克兰救援】04/16/2022  来自美国首都华盛顿DC的犹太裔义工在美国华盛顿DC见过新中国联邦参加的集会和游行，但是万万没想到会在波兰边境看到新中国联邦的救援行动。 他说，新中国联邦在波兰边境的人道救援行动将会被历史所铭记，与其并肩合作过的国际组织和救援机构将成为终身的盟友。 通过为他人提供救济和支持而展示人性来创建大联盟，这真是智慧！
+![img](https://media.gettr.com/group42/getter/2022/04/18/12/17ee3540-158e-3923-84d9-f25a2839552b/out.jpg)
+
+---
+
 `@miles 4/18/2022 12:31 PM (UTC)`
 
 2022.04.18 早  新中国联邦 | 新闻    乌克兰救援前线团队与国际志愿者共同庆祝复活节；中共增加铁路货运班列援助俄罗斯
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 2022.04.17 晚  新中国联邦 | 新闻   美国志愿者珍视在新中国联邦庆祝逾越节；乌克兰称被击沉莫斯科号舰长在爆炸中丧生
 ![img](https://media.gettr.com/group12/origin/2022/04/18/00/67187d19-3582-0edc-b85a-c35ddfa6f9fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 11:25 PM (UTC)`
-
-4/17/2022 Miles Guo: A senior official of the Ministry of Defense of a certain European country visited the tent of the NFSC & ROLF Ukraine rescue operation. He asked me to sincerely thank all our brothers and sisters at the front line! The world honors that our fellow fighters have earned for the Chinese and the gratitude this senior official has for us will benefit every Chinese!<br/><br/>4/17/2022 文贵直播：欧洲某国国防部的一位高官参观了新中国联邦法治基金乌克兰救援的帐篷，他嘱托文贵向前线的所有兄弟姐妹们致以衷心的感谢！战友们为中国人在全世界赢得的荣誉和这位高官对我们的感激将惠及每一个中国人！
-![img](https://media.gettr.com/group28/getter/2022/04/17/23/94edf85f-30e3-13ef-0838-d51d44c00add/out.jpg)
 
 ---
 

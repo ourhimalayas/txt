@@ -2,56 +2,30 @@
 ---
 
 
-## 公共卫生官员为COVID疫苗辩护的6个双重标准
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2366519/)
+## 乌克兰总统和国际货币基金组织总裁讨论“战后重建”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2366673/)
 
-据《childrenshealthdefense》作者：Madhava Setty，2022年4月13日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2177.png)图片源自childrenshealthdefense.org
-**公共卫生官员为COVID疫苗辩护的6个双重标准**
+**翻译：文舞两道**
 
-在这篇文章中，我描述了医疗机构使用双重标准的六个例子，以制造他们的COVID-19叙述是合乎逻辑和合理的假象。
+据路透社华盛顿17日消息，乌克兰总统泽连斯基在推特发文称，他与国际货币基金组织（IMF）总裁格奥尔基耶娃通电话，讨论确保乌克兰金融稳定和“为战后重建做准备”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8783034F-C875-4408-AA52-3A900ECADCA4.jpeg)
+泽连斯基说“我们有明确的计划和明确的前景，我们相信国际货币基金组织与乌克兰之间的合作将非常有意义”。
 
-这种假象被用来提高疫苗接种率，并产生了破坏性的效果。
+乌克兰总理 Denys Shmyhal 表示有意参加本周在华盛顿举行的国际货币基金组织和世界银行举行的会议，以请求进一步的财政援助。
 
-我不会引用与我们医疗当局的叙述相冲突的科学出版物或专家意见–这些信息将被断然拒绝，因为它出现在《卫报》上–而是要证明，从一开始，官方的叙述就是不一致的、虚伪的和/或矛盾的。
+**信息来源：**
 
-1. COVID的死亡是“推定”的，但疫苗的死亡必须是“证明”的。
-2. 疾控中心使用VAERS数据调查心肌炎，却声称VAERS关于疫苗死亡的数据不可靠。
-3. CDC推崇用“相对风险”来确定疫苗效力，却用“绝对风险”来淡化不良事件的风险。
-4. 美国食品和药物管理局要求对早期治疗药物进行随机对照研究–但对疫苗加强剂却没有要求。
-5. 美国食品和药物管理局使用免疫桥接来证明辉瑞公司为幼儿注射疫苗的合理性，但拒绝将抗体作为COVID的免疫保护指标。
-6. 疫苗伤害必须证明因果关系，但相关关系足以证明疫苗的有效性。
+[ウクライナ大統領、ＩＭＦ専務理事と「戦後復興」巡り協議](https://news.yahoo.co.jp/articles/a57ca824284ba9e6364e8b1f858afd365803e1ba)
 
+**编辑：LILY**
 
-**这场大流行病可能会有不同的结果**
+**发布：歪桑**
 
-为了总结在制定“安全有效”的说法时使用这些双重标准是多么具有破坏性，让我们看看如果我们采用相反的标准，情况会有多大不同。
+20220418
 
-因COVID而死亡的人数会非常少。很少有（如果有的话）尸检能明确地确认死亡是由SARS-CoV-2引起的。如果验尸确认是标准，那么在大流行期间，COVID的死亡人数基本上为零。
-
-另一方面，如果我们假定在VAERS中登记的死亡病例实际上是由疫苗引起的死亡–类似于CDC对COVID造成的许多死亡的假定–我们可以肯定已经有超过26000例疫苗死亡。
-
-使用绝对风险降低作为衡量疗效的标准，疫苗会被广泛拒绝，因为它是无效的，只提供了0.038%的感染严重COVID的风险降低。
-
-对于感染COVID的人来说，伊维菌素和羟氯喹本来是很容易获得的。对于那些接种了疫苗但还是感染了COVID的人来说，这些药物将是疫苗加强剂的一个很好的替代品，由于缺乏一项随机对照研究证明其有效，疫苗加强剂不会被批准。
-
-没有5至11岁的儿童会接受这种危险的实验性疫苗，因为它不会被授权用于这个年龄组–因为辉瑞公司的儿科试验没有在5至11岁的儿童中证明任何有意义的结果。
-
-辉瑞公司的疫苗将不再使用，因为临时数据显示，接种疫苗的人全因死亡率更高。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源:[**https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/**](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

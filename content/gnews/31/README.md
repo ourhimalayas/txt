@@ -2,38 +2,55 @@
 ---
 
 
-## “动态清零”常态化，上海封控次生灾难不断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366490/)
+## 公共卫生官员为COVID疫苗辩护的6个双重标准
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2366519/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+据《childrenshealthdefense》作者：Madhava Setty，2022年4月13日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2177.png)图片源自childrenshealthdefense.org
+**公共卫生官员为COVID疫苗辩护的6个双重标准**
 
-整理/编辑：文泓
+在这篇文章中，我描述了医疗机构使用双重标准的六个例子，以制造他们的COVID-19叙述是合乎逻辑和合理的假象。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2175.png)图片来源：凤凰网 & Beanfun
+这种假象被用来提高疫苗接种率，并产生了破坏性的效果。
+
+我不会引用与我们医疗当局的叙述相冲突的科学出版物或专家意见–这些信息将被断然拒绝，因为它出现在《卫报》上–而是要证明，从一开始，官方的叙述就是不一致的、虚伪的和/或矛盾的。
+
+1. COVID的死亡是“推定”的，但疫苗的死亡必须是“证明”的。
+2. 疾控中心使用VAERS数据调查心肌炎，却声称VAERS关于疫苗死亡的数据不可靠。
+3. CDC推崇用“相对风险”来确定疫苗效力，却用“绝对风险”来淡化不良事件的风险。
+4. 美国食品和药物管理局要求对早期治疗药物进行随机对照研究–但对疫苗加强剂却没有要求。
+5. 美国食品和药物管理局使用免疫桥接来证明辉瑞公司为幼儿注射疫苗的合理性，但拒绝将抗体作为COVID的免疫保护指标。
+6. 疫苗伤害必须证明因果关系，但相关关系足以证明疫苗的有效性。
 
 
-自今年3月起，上海从部分地区封控，进入全面封城，至今已有1个半月。每日新增案例超过2万，却没有1例死亡。然而，非中共病毒死亡的人士已不计其数，以下是两位文艺界人士的命运。
+**这场大流行病可能会有不同的结果**
 
-4月13日晚，上海大众乐团小提琴家陈顺平突感腹部不适，进而剧烈疼痛并伴随着呕吐，家人先后拨打了110、120，好不容易打通120，先带他们到达同济医院总院，因这家医院接受了很多阳性病人，不对外接诊，连急诊都不接；后来又去第十人民医院，结果医院整体停诊，最后无奈只能忍痛返回家中，此时的陈顺平已经是疼痛难忍了。4月14日上午，绝望的陈顺平先生留下两页遗书跳楼自杀了。
+为了总结在制定“安全有效”的说法时使用这些双重标准是多么具有破坏性，让我们看看如果我们采用相反的标准，情况会有多大不同。
 
-上海作协副主席陈村，在4月15日晚间，突感呼吸不畅，急性哮喘发作，连续用了药也丝毫不见好转。紧急联系120，电话打通后，救护车告知让他自己事先确定好去哪家医院（可接受病人），120只负责把他送到医院门口，其他一概不管。
+因COVID而死亡的人数会非常少。很少有（如果有的话）尸检能明确地确认死亡是由SARS-CoV-2引起的。如果验尸确认是标准，那么在大流行期间，COVID的死亡人数基本上为零。
 
-联系多家医院，都要核酸报告，没办法只能急招120上门。然而，上门的救护车居然也需要核酸报告，否则不予送医和吸氧。“此时我已经几乎完全要断气了”（陈村自述）。在志愿者帮助下，开着私家车连续跑了多家医院，终于，新华医院同意先吸氧救治，再测核酸。“我在医院接着氧气挂吊瓶，呼吸也逐步缓解了，一条命算保住了。**现在把整个过程发给亲朋好友，只是让大家感受一下上海封控将会害死多少人啊**”。
+另一方面，如果我们假定在VAERS中登记的死亡病例实际上是由疫苗引起的死亡–类似于CDC对COVID造成的许多死亡的假定–我们可以肯定已经有超过26000例疫苗死亡。
 
-两位上海文艺名人一位不幸离世，一位侥幸获救。中共极限测试，民众生死一线，次生灾难不断。百度热搜“移民”搜寻量飙升，民众无奈只能用脚投票。
+使用绝对风险降低作为衡量疗效的标准，疫苗会被广泛拒绝，因为它是无效的，只提供了0.038%的感染严重COVID的风险降低。
 
-参考链接：
+对于感染COVID的人来说，伊维菌素和羟氯喹本来是很容易获得的。对于那些接种了疫苗但还是感染了COVID的人来说，这些药物将是疫苗加强剂的一个很好的替代品，由于缺乏一项随机对照研究证明其有效，疫苗加强剂不会被批准。
 
-1、[上海小提琴家陈顺平被拒诊后跳楼身亡，生前留下2页遗书](https://www.sohu.com/a/538772811_120161493)
+没有5至11岁的儿童会接受这种危险的实验性疫苗，因为它不会被授权用于这个年龄组–因为辉瑞公司的儿科试验没有在5至11岁的儿童中证明任何有意义的结果。
 
-2、[上海作家陈村，昨晚差点死于封控](https://mp.weixin.qq.com/s?__biz=Mzg4MzUzNjEzMQ==&amp;mid=2247494927&amp;idx=1&amp;sn=cd56b6660ea0fa67f227048990fc9b37&amp;chksm=cf475563f830dc75d4c3ff4026ad57995da4ca919feba63f3a645c97476559f7c73f9a002470&amp;mpshare=1&amp;scene=1&amp;srcid=0418AfB9S0iR0Kgb6aEDUXnJ&amp;sharer_sharetime=1650255387150&amp;sharer_shareid=5b23fc453f91ea4239fab99504fd5dbc&amp;exportkey=Aa%2BOmE%2FoIAXx8fiD7iQBtjc%3D&amp;acctmode=0&amp;pass_ticket=BGpMVz2fbv%2BBALwe%2BM0tl6hOWpH4ld%2F3NyUxTioElVuIFiyXIkrrT4hGgPGdqg9U&amp;wx_header=0#rd)
+辉瑞公司的疫苗将不再使用，因为临时数据显示，接种疫苗的人全因死亡率更高。
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源:[**https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/**](https://childrenshealthdefense.org/defender/6-double-standards-public-health-officials-justify-covid-vaccines/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
