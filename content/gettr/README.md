@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 12:30 AM (UTC)`
+
+2022.04.17 晚  新中国联邦 | 新闻   美国志愿者珍视在新中国联邦庆祝逾越节；乌克兰称被击沉莫斯科号舰长在爆炸中丧生
+![img](https://media.gettr.com/group12/origin/2022/04/18/00/67187d19-3582-0edc-b85a-c35ddfa6f9fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/17/2022 11:25 PM (UTC)`
 
 4/17/2022 Miles Guo: A senior official of the Ministry of Defense of a certain European country visited the tent of the NFSC & ROLF Ukraine rescue operation. He asked me to sincerely thank all our brothers and sisters at the front line! The world honors that our fellow fighters have earned for the Chinese and the gratitude this senior official has for us will benefit every Chinese!<br/><br/>4/17/2022 文贵直播：欧洲某国国防部的一位高官参观了新中国联邦法治基金乌克兰救援的帐篷，他嘱托文贵向前线的所有兄弟姐妹们致以衷心的感谢！战友们为中国人在全世界赢得的荣誉和这位高官对我们的感激将惠及每一个中国人！
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 04.17.2022  俄乌战争战况播报
 ![img](https://media.gettr.com/group42/origin/2022/04/17/04/ddd4e18e-dca0-c171-0857-3101fbfab318/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 3:03 AM (UTC)`
-
-2022-4-16《鸡血王喜币大作战》 第一百六十七集 嘉宾：卡丽熙、Eric
-![img](https://media.gettr.com/group45/origin/2022/04/17/03/04bc0ca2-7182-685b-4d4a-1a101636e85c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
