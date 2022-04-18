@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 3:21 AM (UTC)`
+
+4/17/2022  Miles Guo: The Europe and the US are carrying out the strategy of "luring Russia into actions" and "luring the CCP into actions"; the Russia-Ukraine war is ultimate battle between justice and evil; the New Federal State of China fellow fighters on the rescue frontline in Ukraine are outstanding, they represent the image of new Chinese people; the so-called Chinese celebrities working as the CCP’s running dogs will not be pitied by the CCP, they will eventually go to the crematorium prepared for them by the CCP<br/><br/>4/17/2022 文贵直播：欧洲和美国正在进行“引俄出洞”和“引共出洞”的策略，俄务战争是正义和邪恶的终极大战；新中国联邦的战友在乌克兰救援前线的表现卓越，代表了新中国人的新形象；充当中共走狗的所谓中国各界名流不会被中共所怜悯，最终会走进中共给他们准备的火葬场<br/>
+![img](https://media.gettr.com/group7/getter/2022/04/18/03/6eff9ece-869d-61b5-a1a5-3a08ce6766f9/out.jpg)
+
+---
+
 `@miles 4/18/2022 2:21 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月16日第43天当日救援统计：<br/>Medyka救援站接待：约216人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12204人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 43 - Date: April 16, 2022 :<br/>Medyka Rescue Station Reception: about 216 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12204 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -151,13 +158,6 @@ Two Spaniards who came to the border to donate supplies visited the NFSC tents a
 
 NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望与和平<br/>
 ![img](https://media.gettr.com/group19/origin/2022/04/17/11/9aafb504-d8a2-4f14-a43e-b0a177b5f627/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 9:12 AM (UTC)`
-
-The founder of Himalaya Exchange, William Je, is interviewed by GB News about how cryptocurrencies help the rescue work in Ukraine. He particularly mentions that what happens in Ukraine today will happen in Taiwan tomorrow, as he comes from Hong Kong and has experienced all of these before. He also shows concerns that a new Axis of Evil is forming, and this Ukraine War is just the beginning of a bigger war.<br/><br/>喜联储的创始人William Je余建明接受英国GB News的采访，关于虚拟货币是怎样有助于对乌克兰的救援活动。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。<br/>
-![img](https://media.gettr.com/group37/getter/2022/04/17/09/26690006-e47a-dfbb-a096-0f633d623407/out.jpg)
 
 ---
 
