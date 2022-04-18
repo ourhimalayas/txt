@@ -2,48 +2,30 @@
 ---
 
 
-## SpaceX火箭成功将第二颗美国间谍卫星送入轨道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366859/)
+## 乌克兰总统和国际货币基金组织总裁讨论“战后重建”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2366673/)
 
-翻译：文乐
+**翻译：文舞两道**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
+据路透社华盛顿17日消息，乌克兰总统泽连斯基在推特发文称，他与国际货币基金组织（IMF）总裁格奥尔基耶娃通电话，讨论确保乌克兰金融稳定和“为战后重建做准备”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8783034F-C875-4408-AA52-3A900ECADCA4.jpeg)
+泽连斯基说“我们有明确的计划和明确的前景，我们相信国际货币基金组织与乌克兰之间的合作将非常有意义”。
 
+乌克兰总理 Denys Shmyhal 表示有意参加本周在华盛顿举行的国际货币基金组织和世界银行举行的会议，以请求进一步的财政援助。
 
+**信息来源：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-192.png)SpaceX的发射项目是2019年空军以2.97亿美元的总固定价格与SpaceX签订的三项合同之一
+[ウクライナ大統領、ＩＭＦ専務理事と「戦後復興」巡り協議](https://news.yahoo.co.jp/articles/a57ca824284ba9e6364e8b1f858afd365803e1ba)
 
-官员证实，周日上午，美国国家侦察局(NRO)的一颗机密卫星用可重复使用的 SpaceX Falcon 9 火箭成功发射到太空。
+**编辑：LILY**
 
-NROL-85 卫星于当地时间上午 6 点 13 分从加利福尼亚州范登堡太空部队基地发射升空。[NRO在一份声明中说，](https://www.nro.gov/Portals/65/documents/news/press/2022/NROL-85%20%20Press%20Release_17April22.pdf)周日的发射是 NRO 首次重复使用之前发射到太空的火箭助推器。
+**发布：歪桑**
 
-NRO 仅将 NROL-85 卫星描述为“关键的国家安全有效载荷”，这是今年与 Spacex 一起发射的第二颗卫星。
+20220418
 
-[据埃隆·马斯克](https://www.spacex.com/vehicles/falcon-9/)的航空航天公司 Spacex 称，它总共发射了 147 枚 Falcon-9 火箭，其中 107 枚已经着陆。总共有 87 枚火箭被重新发射，其中包括 2017 年第二次使用的第一枚火箭。
-
-猎鹰的第一阶段飞回并降落在洛杉矶西北部的海边基地。
-
-这次发射是空军在 2019 年以 2.97 亿美元的总固定价格与 SpaceX 签订的三项合同之一。
-
-NRO 是负责建造和发射美国卫星的政府机构，这些卫星向立法者、情报机构和国防部提供情报数据。
-
-新闻来源：[spacex falcon-9 rocket successfully launches second us spy satellite into orbi](https://nypost.com/2022/04/18/spacex-falcon-9-rocket-successfully-launches-second-us-spy-satellite-into-orbit/)
-
-* * *
-
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
-
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

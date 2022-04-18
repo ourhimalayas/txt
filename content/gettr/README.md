@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 11:59 AM (UTC)`
+
+2022.04.18 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
+![img](https://media.gettr.com/group27/origin/2022/04/18/11/2290383a-37b2-f727-d591-1d027fb87dcf/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/18/2022 10:58 AM (UTC)`
 
 2022.04.18  新中国联邦 | 军情室 台海危机期间的东风15，沙特购买的东风导弹
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 2022.04.17 NFSC news  Miles: The CCP Finally Launches Operation "Taiwan the Son."
 ![img](https://media.gettr.com/group10/origin/2022/04/17/22/cd6f708d-a802-c395-be59-2990711c8e3c/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/17/2022 10:00 PM (UTC)`
-
-“起来吧，饥寒交迫的奴隶！” 飞飞秀救援快报 2022-04-17<br/>For English：gettr.com/streaming/p15raah696d
-![img](https://media.gettr.com/group33/origin/2022/04/17/22/cc7c98c3-323d-ba34-d79f-e92bb7ace4c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
