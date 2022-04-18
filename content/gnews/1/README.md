@@ -2,27 +2,29 @@
 ---
 
 
-## 美国考虑派高级官员在基辅会见泽伦斯基
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2367931/)
+## 樱花时政┃支持俄罗斯侵略者：在德国或被起诉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2367979/)
 
-翻译撰稿：金陵小生
-发稿：am夏天
-德国纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2224.png)Ukrainian President Volodymyr Zelenskyy speaks alongside the presidents of Poland, Lithuania, Latvia and Estonia during a press conference in Kyiv on April 13. | Adam Schreck/AP Photo
-两名美国官员告诉POLITICO，拜登政府正在就派遣一名高级官员前往基辅以进一步表示对乌克兰的支持进行内部讨论。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+德国警方和检察机关迄今已承办140多个鼓吹俄侵乌克兰战争行为案。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上印有这一符号。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃支持俄罗斯侵略者：在德国或被起诉.jpg)图片来源于本文链接
+调查结果显示，仅在德东地区萨克森-安哈尔特州，自俄军侵入乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。该州国家内政部透露，相关案件中有17起涉及使用“Z”符号。 汉堡州司法机构也已着手调查17起声援俄侵略战争案，其中16起涉及使用“Z”符号；北莱茵-威斯特法伦州已知立案37起，其中22起涉及“Z”符号。
 
-由于白宫内部仍在进行审议，因此尚未就可能的访问作出决定。官员们说，总统乔-拜登和副总统卡马拉-哈里斯仍然是代表美国前往乌克兰首都的候选人，尽管像国务卿安东尼-布林肯或国防部长劳埃德-奥斯汀这样的内阁成员更可能前往。
+此外，另有一百多桩破坏财产行为，“Z”符号也在这些案件中扮演了角色。
 
-拜登和哈里斯最近都去了波兰，这是一个与乌克兰接壤的北约前线国家。
+信息来源：
+[支持俄罗斯侵略者：在德国或被起诉](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
 
-美国官员访问基辅将是西方人士与乌克兰总统沃洛季米尔-泽伦斯基会面的最新一次。最近几周，欧盟委员会主席乌苏拉-冯德莱恩和英国首相鲍里斯-约翰逊出访，而爱沙尼亚、拉脱维亚、立陶宛和波兰的领导人周三在首都与泽伦斯基会面。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-如果政府决定派人到基辅，据了解，由于安全原因，不会提前宣布。任何潜在行程的时间都是不确定的，官员们提醒说，由于战争的多变性，或许可能不会发生。
-
-此行对华盛顿和基辅都具有高度的象征意义。美国将确认其对乌克兰抵抗俄罗斯入侵的承诺，而乌克兰将在迫使俄罗斯军队撤退仅数周之后，在首都接待一位美国高级官员。
-
-这次访问也是在拜登授权提供额外的8亿美元军事援助之后进行的，这使得自新政府上台以来，美国对乌克兰的援助总额超过30亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
