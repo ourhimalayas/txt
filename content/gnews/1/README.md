@@ -2,10 +2,10 @@
 ---
 
 
-## 中共将上海阳性病人抓走隔离，并捕杀他们的宠物
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2367075/)
+## 随着盖特的壮大和马斯克的推特收购，自由派变成进攻方
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2367089/)
 
-04/16/2022 中共将上海阳性病人抓走隔离，而他们的宠物则被集中装袋面临被屠杀的命运
+04/15/2022 随着盖特的壮大和埃隆·马斯克的推特收购，自由的一方终于变成了进攻方，而左派变成了防守方。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

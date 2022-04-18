@@ -2,10 +2,10 @@
 ---
 
 
-## 上海白卫兵拿棍棒打手无寸铁的市民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2367034/)
+## 中共将上海阳性病人抓走隔离，并捕杀他们的宠物
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2367075/)
 
-04/17/2022 上海白卫兵拿棍棒打手无寸铁的市民
+04/16/2022 中共将上海阳性病人抓走隔离，而他们的宠物则被集中装袋面临被屠杀的命运
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

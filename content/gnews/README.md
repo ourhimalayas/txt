@@ -15,61 +15,61 @@
 
 ---
 
-### [中共将上海阳性病人抓走隔离，并捕杀他们的宠物](/content/gnews/1/README.md)
+### [随着盖特的壮大和马斯克的推特收购，自由派变成进攻方](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海白卫兵拿棍棒打手无寸铁的市民](/content/gnews/2/README.md)
+### [中共将上海阳性病人抓走隔离，并捕杀他们的宠物](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海学生微博发帖向求救 中共封控制造人道灾难](/content/gnews/3/README.md)
+### [上海白卫兵拿棍棒打手无寸铁的市民](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [上海学生微博发帖向求救 中共封控制造人道灾难](/content/gnews/4/README.md)
  ` 波士顿五月花农场金融部`
 
-### [COVID-19疫苗副作用集萃（2022.4.18E）打完辉瑞以后心肌炎了？？](/content/gnews/4/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.18E）打完辉瑞以后心肌炎了？？](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰灾难表明美国必须应对台湾问题明确表态](/content/gnews/5/README.md)
+### [乌克兰灾难表明美国必须应对台湾问题明确表态](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲投票指南四：如何修改填错的选票](/content/gnews/6/README.md)
+### [澳洲投票指南四：如何修改填错的选票](/content/gnews/7/README.md)
  ` 走进澳洲`
 
-### [2022/04/18英喜时事速递](/content/gnews/7/README.md)
+### [2022/04/18英喜时事速递](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲投票指南三：如何填写白色和绿色选票](/content/gnews/8/README.md)
+### [澳洲投票指南三：如何填写白色和绿色选票](/content/gnews/9/README.md)
  ` 走进澳洲`
 
-### [基辅市长：要给该市与俄罗斯有关的地标建筑改名](/content/gnews/9/README.md)
+### [基辅市长：要给该市与俄罗斯有关的地标建筑改名](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [灾难中的私力救济](/content/gnews/10/README.md)
+### [灾难中的私力救济](/content/gnews/11/README.md)
  ` 银河勇气之星`
 
-### [COVID-19疫苗副作用集萃（2022.4.18D)](/content/gnews/11/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.18D)](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄乌战争：美军“引蛇出洞”大网紧盯中共对俄军事援助](/content/gnews/12/README.md)
+### [俄乌战争：美军“引蛇出洞”大网紧盯中共对俄军事援助](/content/gnews/13/README.md)
  ` 战云长天时评`
 
-### [SpaceX火箭成功将第二颗美国间谍卫星送入轨道](/content/gnews/13/README.md)
+### [SpaceX火箭成功将第二颗美国间谍卫星送入轨道](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻北美时评】日本驻上海大使馆人员也饿肚子](/content/gnews/14/README.md)
+### [【秘翻北美时评】日本驻上海大使馆人员也饿肚子](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [乌克兰总统和国际货币基金组织总裁讨论“战后重建”](/content/gnews/15/README.md)
+### [乌克兰总统和国际货币基金组织总裁讨论“战后重建”](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [乌克兰救援前线报道4.18.2022：NFSC营地的复活节烧烤活动](/content/gnews/16/README.md)
+### [乌克兰救援前线报道4.18.2022：NFSC营地的复活节烧烤活动](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [视频|喜马拉雅农场有偿征集中共军政情报](/content/gnews/17/README.md)
+### [视频|喜马拉雅农场有偿征集中共军政情报](/content/gnews/18/README.md)
  ` MOSVIDEO`
 
-### [视频|中共及即将对多个大城市实施大封锁隔离](/content/gnews/18/README.md)
- ` MOSVIDEO`
-
-### [视频|班农称乌克兰前线救援创造历史性瞬间](/content/gnews/19/README.md)
+### [视频|中共及即将对多个大城市实施大封锁隔离](/content/gnews/19/README.md)
  ` MOSVIDEO`
 
 ### [郭先生大使馆试衣直播&#8211;要点（2022年4月17日）](/content/gnews/20/README.md)
