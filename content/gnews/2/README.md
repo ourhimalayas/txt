@@ -2,58 +2,75 @@
 ---
 
 
-## 远程学习损害儿童心理健康
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2365932/)
+## 美国政要们祝大家复活节快乐
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2365967/)
 
-编译： Jenny Ball
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
-
+**参议员玛莎.布莱克本：**
+ “天 使 对 妇 女 说 ， ‘不 要 害 怕 ， 我 知 道 你 们 是 寻 找 那 钉 十 字 架 的 耶 稣 。他 不 在 这 里 ， 照 他 所 说 的 ， 已 经 复 活 了 。 你 们 来 看 安 放 主 的 地 方 。’” ——马太福音 第28章 第5、6节
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-190.png)COVID-19 大流行期间，当学校在转向远程学习时，第一个受害者是儿童的心理健康。
 
-美国疾病控制与预防中心（CDC）的一项新研究分析了 2021 年 1 月至 2021 年 6 月期间青少年的心理健康状况。研究发现，与 2019 年相比，2020 年12-17 岁儿童心理健康相关的急诊科就诊比例增加了约 31％  。
+> “But the angel said to the women, ‘Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay.’” — Matthew 28:5-6
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 17, 2022](https://twitter.com/MarshaBlackburn/status/1515692439897612296?ref_src=twsrc%5Etfw)
 
-总体而言，37.1% 的学生在大流行期间经历过心理健康状况不佳的情况，31.1% 的学生在过去 30 天内经历过心理健康状况不佳的情况。在调查前的** 12 **个月中，**44.2% **的人持续感到悲伤或绝望，**19.9% **的人曾认真考虑过自杀，**9.0% **的人曾尝试过自杀。
 
-研究人员指出，增加学校的“联系”可以减少学生的物质使用。
 
-“所有性别、性别认同、种族和族裔群体的学生心理健康状况不佳和自杀倾向都很高；然而，在大流行期间心理健康状况不佳、持续的悲伤或绝望感，以及自杀念头和行为的问题，在那些与学校里的人很亲近，并且实际上与他人有联系的人中不太普遍，”该研究指出。
+**前国务卿迈克·蓬佩奥： **
+蓬佩奥全家祝您复活节快乐！ [#他复活了](https://gettr.com/hashtag/%23%E4%BB%96%E5%A4%8D%E6%B4%BB%E4%BA%86) [#HeIsRisen](https://gettr.com/hashtag/%23HeIsRisen)
 
-在大流行期间，与学校里的人亲近的学生的心理健康状况不佳的患病率明显低于那些没有联系的学生（28.4% – 45.2%）。
 
-使用110个项目的调查问卷收集了从2021年1月至6月在128所学校进行的关于COVID-19大流行期间高中行为的数据，包括意外伤害、暴力、烟草制品使用、性行为和饮食行为。
 
-​​在接受调查的高中生中，9年级占26.7%，10年级占25.5%，11年级占24.3%，12年级占23.6%。
+> Happy Easter from the Pompeo family! [#HeIsRisen](https://twitter.com/hashtag/HeIsRisen?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xL9LzI8A6M](https://t.co/xL9LzI8A6M)
+> — Mike Pompeo (@mikepompeo) [April 17, 2022](https://twitter.com/mikepompeo/status/1515777707975614468?ref_src=twsrc%5Etfw)
 
-研究称，大约1/3曾经使用过酒精或其他药物的学生报告说，在大流行期间使用这些物质的次数更多。
 
-在 COVID-19 大流行期间，许多儿童经历了可能增加吸毒风险的因素，包括社会孤立，无聊，对 COVID-19 的压力和恐惧，悲伤，住房和粮食不安全；以及对医疗、心理健康和社会服务的破坏。
 
-2021 年全州评估显示，学生的成绩在远程学习和** COVID-19 **期间受到影响。
+**众议员兰斯·古登： **
+今天，当我们庆祝耶稣基督复活的同时，他也提醒了我们信仰和家庭的重要性。 复活节快乐！
 
-麦肯锡公司的一份报告发现，大流行的学习损失不仅仅包括学术学习。
 
-分析称：“学生面临着风险，在大学期间未能获得毕业或职场中所需要的技能、行为和心态。”
 
-该报告估计，“由于大流行对学校教育的影响，学生一生中的收入可能会减少 49,000 至 61,000 美元。随着这一群体进入劳动力市场，每年对美国经济的影响可能达到 1280 亿至 1880 亿美元。”
+> Today we are reminded of the importance of faith and family as we celebrate the resurrection of Jesus Christ.
+> 
+> Happy Easter!
+> — Lance Gooden (@Lancegooden) [April 18, 2022](https://twitter.com/Lancegooden/status/1515858659590422531?ref_src=twsrc%5Etfw)
 
-新闻来源：[cdc study remote learning hurt childrens mental health](https://www.theepochtimes.com/cdc-study-remote-learning-hurt-childrens-mental-health_4407367.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-04-17)
 
-* * *
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+**美国国务院：** 
+许多人道主义组织正在向受乌克兰危机影响的人们提供紧急援助。无论您身在何处，都可以通过以下方式提供帮助：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+
+> Many humanitarian organizations are providing urgent assistance to those affected by the crisis in Ukraine. Here are some ways you can help from wherever you are: [https://t.co/1ANlO5M6f8](https://t.co/1ANlO5M6f8)
+> — Department of State (@StateDept) [April 18, 2022](https://twitter.com/StateDept/status/1515842545879764996?ref_src=twsrc%5Etfw)
+
+
+
+**众议员玛乔丽·泰勒·格林： **
+亨特·拜登的笔记本电脑(内容)。 
+就要发布了。 
+内容是一个比一个的吓人。 
+但可能更让我困惑的是那些掩盖真相的人，他们对这一切都装作没事。 
+你怎么能这么做？ 
+怎么会有人这么做？
+
+
+
+> Hunter Biden’s laptop.
+> 
+> It’s about to be released.
+> 
+> The contents are one horror after another.
+> 
+> But what bothers me maybe even more are all the people that covered it up and are ok with it all.
+> 
+> How could you do that?
+> 
+> How could anyone do that?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1515869385684049920?ref_src=twsrc%5Etfw)
+
+
 
  
 
