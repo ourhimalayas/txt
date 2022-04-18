@@ -2,39 +2,32 @@
 ---
 
 
-## 有声|俄罗斯从莫斯科驱逐18名欧盟外交官
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368649/)
+## 若早出售武器给乌克兰和台湾，或将避免战争的发生
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2368752/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月15日外媒报道，俄罗斯于当日驱逐了18名欧盟外交官，以报复欧盟本月早些时候将19名俄罗斯人列入不受欢迎名单的决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323098.jpg)
-俄罗斯外交部发表声明表示，已召见欧盟驻俄罗斯大使马库斯·埃德勒，并向他递交了一封抗议信，指责欧盟应对数十年来形成的双边对话与合作架构的持续破坏负责，并要求欧盟外交官必须尽快离开俄罗斯。
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2237.png)图片来源：每日邮报
+《纽约邮报》4月17日刊登文章，报道周日时，共和党众议院领袖凯文·麦卡锡（Kevin McCarthy）表示，如果拜登总统早些向乌克兰运送军事装备，俄罗斯总统普京“可能”会放弃入侵乌克兰。
 
-欧盟驻俄罗斯代表团在一份声明中表示，它对俄罗斯毫无根据的举动表示遗憾，并指出俄罗斯选择的行动方针将使其在国际上更加孤立。
+本月早些时候，麦卡锡是在战争中前往波兰的两党众议员代表团成员，他亲眼看到了乌克兰人民的“顽强”，以及俄罗斯在乌克兰造成的“破坏”，以及针对妇女和儿童所犯下的罪行。
 
+《福克斯新闻》驻华盛顿记者迈克·伊曼纽尔（Mike Emanuel）指出，拜登政府上周宣布向乌克兰提供8亿美元的额外军事援助，总额为26亿美元，他问麦卡锡，政府还应该做什么。
 
+他说：“如果我们早点采取这些（军事援助）行动，而不是等到俄罗斯入侵之后，他们可能永远不会入侵。”
 
+麦卡锡还认为，他相信普京并不害怕拜登和美国盟友在2月24日入侵前威胁要对俄罗斯实施的制裁。
 
+麦卡锡告诉伊曼纽尔，“乌克兰渴望有能力保护自己。如果我们早点把武器运到乌克兰，让他们能够自卫，就能挽救成千上万的生命，也可能让普京决定不进入乌克兰。然后在普京进入后，拜登总统告诉我们，‘好吧，制裁需要很长时间才能发挥作用’”。
 
-文字版原文：[俄罗斯从莫斯科驱逐18名欧盟外交官](https://gnews.org/zh-hans/2363900/)
+对于此点，麦卡锡引用台湾作为未来的案例，他说，“我们需要做的是从这里学习，向乌克兰提供武器，但也要着眼于中共正在做的事情的未来。台湾已经等了一年多的时间（购买和交付武器），他们已经购买武器来保卫自己。让民主国家来保卫自己”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+报道指，本月早些时候，根据国防安全合作局的数据，国务院批准了可能向台湾出售价值9500万美元的军事装备，这是拜登政府自2021年1月上任以来的第三个（对外提供的）武器包。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*责编：白夜*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**新闻来源**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[McCarthy: Putin ‘probably’ wouldn’t have invaded Ukraine if Biden sent arms sooner](https://nypost.com/2022/04/17/mccarthy-calls-out-bidens-response-to-putin-ukraine/)
 
  
 

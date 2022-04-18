@@ -2,32 +2,25 @@
 ---
 
 
-## 改编了中共國國歌（小區版）抱砖引玉。唱起來，用音樂找回我們的勇氣！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2368667/)
+## 2022年4月18日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2368761/)
 
-作者：纽约香草山农场教育部-加州太阳
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-起來！
-不愿被饿死的奴隶！
-用我们的勇气，找回我们民族的尊严！
-中华民族到了最危险的时候，
-每个人被迫发出最后的吼声。
-解封！
-解封！
-解封！
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-我们万众一心，冲破小区的封锁，
-解封！
-冒着大白的威胁，
-解封！
-解封！
-解封！鋒！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1159-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+发稿：信心的选择
 
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

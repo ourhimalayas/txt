@@ -2,53 +2,46 @@
 ---
 
 
-## 美国多州立法批准羟氯喹和伊维菌素用于治疗新冠肺炎
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2367325/)
+## 新西兰财经G乐部2022年4月18日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2367974/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6WQFWE5EUJEBXNVXTKRDOSXJLI2.jpg)图片来源：美国前线医生网站
-美国前线医生网站2022年4月15日报道，2020年10月，以西蒙妮·戈尔德(Simone Gold)博士为首的美国前线医生(America’s Frontline Doctors, AFLDS)组织向美国食品药品监督管理局(FDA)提交了一份公民请愿书，要求将羟氯喹(Hydroxychloroquine,HCQ)作为治疗中共病毒肺炎的非处方药物。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-215448.jpg)
+**1、中共央行降准，释放资金约5300亿元 **
+![img](https://media.gettr.com/group46/origin/2022/04/18/02/82551fa1-73d0-0510-ca01-5fffa19c7273/fa2c548de68338c13a39275a95bb3474_500x0.png)
+中共央行决定于2022年4月25日下调金融机构存款准备金率0.25个百分点。对没有跨省经营的城商行和存款准备金率高于5%的农商行，在下调存款准备金率0.25个百分点的基础上，再额外多降0.25个百分点。本次下调后，金融机构加权平均存款准备金率为8.1%。此次降准共计释放长期资金约5300亿元。
 
-虽然这个人权组织受到主流媒体和许多政界人士的诋毁，但各个州现在都在追随该倡议并通过立法，使HCQ 和伊维菌素等更便宜的药物成为治疗中共病毒肺炎的非处方药物。
+链接 [https://finance.sina.com.cn/china/2022-04-18/doc-imcwiwst2428717.shtml](https://finance.sina.com.cn/china/2022-04-18/doc-imcwiwst2428717.shtml)
 
-上周，田纳西州的众议院和参议院以压倒性的票数通过了第2746号众议院法案。该法案“授权适合人类食用的伊维菌素在该州作为非处方药出售或购买，无需处方或咨询药剂师或其他医疗保健专业人员。”
+**2、周小川：数字人民币不是为了替代美元**
+![img](https://media.gettr.com/group49/origin/2022/04/18/02/4ca6b477-1e6c-df29-c276-b0a3147f95cf/d9cedb8d5088402558c7a16c46ab2283_500x0.png)
+2022清华五道口全球金融论坛，周小川发表演讲：“数字货币，至少中国的e—CNY设计是为了零售，为了百姓方便、商户方便，不是为了替代美元，当然我们不排除e—CNY未来可能有跨境支付的前景，但是我估计也是会注重于零售，跨境零售的应用，不是轻易地当做军事武器来使用的。”
 
-上个月，堪萨斯州立法者通过了第2280号众议院法案，授权HCQ和伊维菌素等药物(最初被批准为抗寄生虫药)在标签外用于治疗中共病毒肺炎。该法案还确保儿童可以获得任何中共病毒疫苗强制令的医疗或宗教豁免。
+财经G评：当下中共可以拿食物作为武器整治老百姓，人民币已经成为武器正在援助俄罗斯！如果中共数字人民币成功了，一定会成为武器来攻击民主国家！
 
-“成千上万的堪萨斯人和数十万美国人由于这种停止早期治疗的宣传而死亡。”共和党参议员马克斯·特芬(R-Hutchinson)说，“我完全相信，这项法案在参议院的通过将引起全国性的关注，并有助于成为向需要它的人提供护理的一个非常重要的部分。”
+链接 [https://finance.sina.com.cn/jryx/2022-04-16/doc-imcwiwst2226573.shtml](https://finance.sina.com.cn/jryx/2022-04-16/doc-imcwiwst2226573.shtml)
 
-周三，新罕布什尔州的众议院立法者通过了第1022号众议院法案，该法案将允许药剂师通过长期医嘱配发伊维菌素，同时第1466号众议院法案将赋予医生更广泛的权力来开具HCQ等标签外药物。这两项法案目前都在新罕布什尔州参议院的委员会审议。
+**3、银行利用“白名单”高息揽储逃避监管**
+![img](https://media.gettr.com/group22/origin/2022/04/18/02/fbea9a64-bda6-9462-4802-199b0d995fcf/b2f4bca5e88945f3cbc314638fa6c7e9_500x0.png)
+有调查发现，一些民营银行通过线上点对点邀请开立Ⅱ类账户、添加“白名单”的方式向用户推出高息存款产品，最高存款年利率可达4.6%；这种行为变相突破了监管对于异地揽储的红线。一些民营银行并未停止发布高息存款产品的脚步，而是将此类揽储行为转向了“地下”。新安银行的存款利率非常高，最高能达到4.6%。
 
-同样在上个月，爱荷华州附上了众议院的2203号文件，这也将给予医生更多的自由来开具 HCQ 和伊维菌素等药物以供标签外使用。
+链接 [https://finance.sina.com.cn/stock/yjdt/2022-04-18/doc-imcwiwst2412254.shtml](https://finance.sina.com.cn/stock/yjdt/2022-04-18/doc-imcwiwst2412254.shtml)
 
-今年2月，“前线新闻”报道说，俄克拉荷马州外科医生约翰·奥康纳(John O’Connor)发表声明称，对使用HCQ或伊维菌素进行早期中共病毒肺炎治疗的医生进行处罚“没有法律依据”。
+**4、2022年1—3月份中共国房地产开发投资增长创新低**
+![img](https://media.gettr.com/group48/origin/2022/04/18/03/7b920770-30b0-4b2f-b441-544104046e0f/fe188654be14c7d9805c478058d0ae40_500x0.png)
+1—3月份：全国房地产开发投资27765亿元，同比增长0.7%、商品房销售面积31046万平方米，同比下降13.8%、房地产开发企业到位资金38159亿元，同比下降19.6%。
 
-事实上，根据《美国医学杂志》(American Journal of Medicine)的一项研究，已经发现HCQ可降低中共病毒早期患者的死亡率。
+链接：[https://finance.sina.com.cn/china/gncj/2022-04-18/doc-imcwipii4929044.shtml](https://finance.sina.com.cn/china/gncj/2022-04-18/doc-imcwipii4929044.shtml)
 
-但在前总统唐纳德·川普推荐使用HCQ后，媒体和医疗机构开始对它发难，称其未经美国食品药品监督管理局(FDA)批准用于治疗中共病毒。
+**5、3万比特币离开Coinbase**
+![img](https://media.gettr.com/group4/origin/2022/04/18/03/f4197bff-d733-850f-56d3-f31291fa6a67/510be30ef8788add525fd4deec5b6e40_500x0.png)
+来自美国交易所Coinbase的专业交易分支机构Coinbase Pro的数据，该数据证实，大量比特币继续离开其账簿。在本周的一天里，转移量总计达到3万枚比特币，这种情况并不是第一次出现，3月份也出现了类似的行为。正如Cointelegraph本周报道的那样，这一趋势在各个交易所都很明显，目前4月份的资金外流总量正试图赶上3月份。
 
-媒体也对伊维菌素发起了一场无情的运动，称其为“马用除虫剂”，而忽略了伊维菌素也是为人类制造的这一事实。他们还抨击世界顶级医生为标签外使用而开出伊维菌素的处方，忽视了FDA批准的所有药物中约有20%被处方用于标签外使用的事实。
+链接  [https://cointelegraphcn.com/news/bitcoin-institutional-buying-could-be-big-narrative-again-as-30k-btc-leaves-coinbase](https://cointelegraphcn.com/news/bitcoin-institutional-buying-could-be-big-narrative-again-as-30k-btc-leaves-coinbase)
 
-但是，尽管有压倒性的科学证据支持HCQ和伊维菌素——这两种药价格更便宜，对大型制药公司来说也利润也更低——但像乔·罗根(Joe Rogan)这样的人物却仅仅因为采访了推荐这些药物的医生而不断遭到抵制。在大多数地方，开具这些药物用于治疗中共病毒肺炎的医生会立即受到调查和纪律处分。
+制作：文勇
 
-但也许正是由于有像美国前线医生这样坚定的团体，这种情况才开始得以改变。
-
-**简评：**
-
-自从中共病毒爆发以来，新中国联邦、爆料革命一直在坚定地告诉世界，中共病毒和毒疫苗的解药是羟氯喹、伊维菌素，还有青蒿素，一路走来可以看到无数的人因此获益。而药物的推出不仅拯救了很多人的生命，同时也引发了一场医药科学界的大地震。便宜有用的药物的再利用本不是一个罕见的事，但羟氯喹和伊维菌素药物的标签外使用，阻止了邪恶势力利用中共病毒疫苗杀害人类的计划，也威胁到了它们赖以获利的诸如瑞德西韦等昂贵却无用药物的地位。在遭到中共病毒伤害的基础上，毒疫苗和无效药物的双重副作用给人类造成了进一步伤害，媒体和医疗机构借助代表邪恶势力的大药厂的高价投资和广告费大力推崇疫苗和药物，这条黑暗的利益链条几乎要把人类社会毁灭。而破除这一切的，只有真相。坚持唯真不破的新中国联邦和全世界有良知的医生和一线医务工作者们一直在坚持，它们用无数的临床数据和治愈中共病毒肺炎患者的成功案例证明了这些药物的奇效，美国多州立法允许羟氯喹和伊维菌素的使用让我们看到了希望，希望这些药物在美国，在全世界都能得到更广泛的应用，以期最终战胜这场由中国共产党发起的，利用中共病毒毁灭人类的生化危机。
-
-新闻链接：[America’s Frontline Doctors vindicated as states validate HCQ, ivermectin](https://americasfrontlinedoctors.org/news/post/americas-frontline-doctors-vindicated-as-states-validate-ivermectin/)
-
-翻译/简评：milkcat / PR:Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+排版上传：文勇
 
  
 

@@ -2,39 +2,41 @@
 ---
 
 
-## 有声|新中国联邦的救援被全球越来越多人认识
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368432/)
+## 乌军用英国最新防空导弹击落俄无人机
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2368632/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月15日，一位来自巴西的自媒体人来到波兰前线新中国联邦救援营地的大帐篷中。当他知道我们能够在两天之内建起了整个营地最大、设施最完善的帐篷时，他惊叹于新中国联邦和法治基金的强大财力和义工们一流的素质。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323101.jpg)
-看到他对中共的邪恶有所了解但并不深入，妮可战友向他详细介绍了中共和中国人的区别，告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起，中共不能代表中国人。还向他介绍了推特和Facebook在中共的控制下对新中国联邦的封杀，以及我们的新社交媒体——盖特。
+作者：MOS 柳是多水土透
 
-他表示，他一定会在巴西帮助传播新中国联邦。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
 
+近日，乌克兰军队在社交媒体上发布了一段使用英国提供的新型便携式防空导弹攻击俄军无人机的视频。值得注意的是，该导弹并非之前被公开的英国星光(Starstreak)单兵防空导弹，而是另一款， “无足鸟”（Martlet）。
 
+这款导弹出现在战场上令人意外，因为英国之前并没有透露相关信息。该导弹设计上有独到之处，是同时考虑了地对空、空对地和地对地使用需求的多用途导弹，有不同的版本和配置对应不同的任务。目前英军也只服役了该弹的空对地版本，地对空版本连英军都暂时还没列装，所以乌克兰实际上成了地空版本的首个用户。
 
-文字版原文：[新中国联邦的救援被全球越来越多人认识](https://gnews.org/zh-hans/2363786/)
+无足鸟为星光的后继版本，2008年开始研发工作，以90年代的星爆（Starburst）便携防空导弹为基础开发，而星爆则为星光的上一代产品。射程方面，无足鸟最大射程达到8公里，比星光的5公里射程更远。无足鸟制导主要以激光驾束制导为主，与星光一致，而且可以直接使用星光的观瞄发射装置。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+不过考虑到不同的用途和使用场景，设计方泰利斯公司也为它准备了激光半主动、低成本红外成像和惯导加卫星修正等多种可更换的制导模块。不同版本和用途的无足鸟战斗部也有区别，防空版本的无足鸟使用的是破片战斗部，搭配激光近炸引信。而对地和对海攻击版本使用的则是破片和聚能装药双模战斗部，具备了一定的反装甲能力。
+
+参考链接：
+
+[https://www.telegraph.co.uk/world-news/2022/04/12/watch-ukrainian-soldiers-shoot-russian-drone-british-martlet/](https://www.telegraph.co.uk/world-news/2022/04/12/watch-ukrainian-soldiers-shoot-russian-drone-british-martlet/)
+
+[https://www.navalnews.com/naval-news/2021/10/royal-navy-tests-martlet-missile-during-csg-21-deployment/](https://www.navalnews.com/naval-news/2021/10/royal-navy-tests-martlet-missile-during-csg-21-deployment/)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
  
 
