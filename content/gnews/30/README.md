@@ -2,28 +2,24 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2365523/)
+## 安倍呼吁美国清晰表明对台战略
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2365566/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-104.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-17.png)
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+4月17日，日本前首相安倍晋三在一场自由民主党的集会上举行演讲时，呼吁美国向世界清楚表明，当中共入侵时将保卫台湾。
 
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-358.jpg)（图片来自TORU HANAI/REUTERS）
 
-编辑：Stay文苑
+据《中央社》报道，安倍在演讲时谈及台湾问题，他以乌克兰战争为例，呼吁美国向世界清楚表明当中共国入侵台湾时将保卫台湾。他指出，美国长期以来对台湾采取战略模糊，但这是危险的。
 
-发稿：Stay文苑
+另外，日前美国《洛杉矶时报》刊登了一篇安倍投稿的文章，文中比较台湾与乌克兰处境的异同，也提到美国对台政策的模糊立场已经过时，现在应该改变。
 
-新闻：[https://gettr.com/post/p15qxgl69d8](https://gettr.com/post/p15qxgl69d8)
-访谈：[https://gettr.com/post/p15qu2j4e65](https://gettr.com/post/p15qu2j4e65)
+参考链接：
+[https://www.cna.com.tw/news/aipl/202204170223.aspx](https://www.cna.com.tw/news/aipl/202204170223.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+总编：老孙
+校对发布：爱放飞
 
  
 

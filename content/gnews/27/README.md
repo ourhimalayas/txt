@@ -2,40 +2,30 @@
 ---
 
 
-## 中共国加入WTO，老百姓有真受益吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2365613/)
+## 加拿大年轻人染疫死亡率大幅上升
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365660/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-16.png)
-撰稿： 信心满满
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture3-2.png)
-网络截图
+采编：加拿大温哥华扬帆农场 – 青青
 
-中共国從 2002 年到 2007 年，中國淨出口占 GDP 的比重從 2.6% 上升到 7.7%。到 2010 年，中國的經常賬戶餘額為 3050 億美元 。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-自中共国在2002加入WTO，中共国最初以加工勞動密集型產品为主，同时国内對勞動力的需求也越來越大。使得中國各行業的實際工資上漲。從 2001 年到 2006 年，各行業的實際年工資翻了一番，從平均 12,000 元增加到 24,000 元。
 
-中共國因进入WTO獲得了 IT 產品的生產能力，中國的高科技產品出口大幅增長， 2000 年至 2005 年間，中國高科技產品的出口總額從 17% 增加到 32%。
 
-2001年的中共国货物贸易总额为5098亿美元；对外直接投资69亿美元；国内生产总值（简称GDP）全球份额仅4%，人均GDP只有8700元。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2151.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
 
-2020年，中共国贸易总额为46463亿美元，年均增速达12.68%；对外直接投资达1329.4亿美元；GDP全球占比达到了17.4%，人均GDP达到72000元，经济总量排名世界第2位。
 
-虽然中共国在加入WTO， 经济有了质的变化，老百姓人均收入也发生了变化。中共国从1997年GDP为9616 亿到75200 亿。但是，老百姓究竟收益多少？
+据【CTV 新闻】4月14日报道，加拿大统计局最新数据显示，随着新冠病毒疫情在全国的再度蔓延，目前年轻人的超常规死亡率正悄然攀升。
 
-老百姓吃饭问题有改善和计划经济一切以粮票定量供应有明显区别。但是中共集权管理的体制下，中共国所得到最惠国待遇，在进口和出口所享受低关税，但是老百姓却要付几倍价格才能买进口商品。企业每年出口外汇收入都是被强行结汇，个人，企业不能自由拥有外汇。当个人和企业使用外汇时，必须申请，购买价格比结汇价格高出3%。
+据悉，在2020年3月至次年11月期间，加拿大非正常死亡人数与去年同比增加了近29000人，高出常规数值约6%。其中，45岁以下男性的超常规死亡率约为19%，同龄女性的非常规死亡率约为13%，而且总体高于正常值15%左右。
 
-文贵先生在直播中提到中共几个家族，他们在海外的账户存款和房产都是数亿万计，他们的外汇存款和购买房产的外汇资金是从哪里来的？为什么这几个家族可以拥有他们可以想拥有但没有限制外汇。这是中共邪恶政权应许几个家族的特权，这些外汇本属于人民的。
+报道称，除因直接感染病毒致死外，其他疫情次生灾难包括：医疗延迟、药物使用过量等间接因素也导致了以上非正常死亡人数的大幅增加。以阿尔伯塔省为例，在奥米克戎新毒株肆虐期间，该省平均每周的非常规死亡人数多达150人，高出通常状况的25%。
 
-自病毒流行，中共国内供应中断，全球需求减少由于封城，全球运输价格上升，石油价格不断上涨，原材料价格攀升，外资企业撤离使得中共经济进入严冬。加上共产党，盗国贼骗，偷，使中共经济就要濒临崩塌。老百姓要能拥有自由，本该属于财富，只有消灭共产党这个邪魔组织。
+校对编辑：硫酸羟氯喹64
 
-*审稿 ： 信心满满*
+发稿：青青
 
-*发稿： 信心满满*
+原文链接： [https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
 
-资料来源：
-
-[https://home.kpmg/cn/zh/home/social/2020/03/how-coronavirus-affects-global-economy.html](https://home.kpmg/cn/zh/home/social/2020/03/how-coronavirus-affects-global-economy.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
