@@ -2,21 +2,22 @@
 ---
 
 
-## 雅典娜时报-第266期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365207/)
+## 人民在CCP 的防疫下已经到了猪狗不如没有尊严的境地。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2365251/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+作者：东京樱花团小视频组
 
-#### 编辑：精灵蓝
-排版：0-0
-![圖片](https://media.discordapp.net/attachments/825592691433668612/965162838928814080/1_2.jpg)![圖片](https://media.discordapp.net/attachments/825592691433668612/965162839197233152/2_2.jpg)
-*发布：陶子*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
+
+
+
+
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

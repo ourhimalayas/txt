@@ -2,36 +2,32 @@
 ---
 
 
-## 上海名人被中共折磨致死
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2364320/)
+## 中共即将对多个大城市实施大封锁隔离
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2364628/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/33333.jpg)
-近日中共在上海的暴力防疫政策让无数老百姓的生活陷入绝境，据郭先生4月16日直播爆料，上海死亡人数已近百万。上海的医院每天进行的手术大概有6-7万台，医院全停以后，这些人就只能等死。有些患有长期病灶的病人，有钱，但是无法买到药，也经常命悬一线。
+作者：银河系农场 骄子
 
-4月14日去世的上海著名音乐家陈顺平就是因胰腺炎发作无法及时得到救治而选择跳楼轻生了。无独有偶，4月15日，著名作家陈村因急性哮喘发作，紧急寻医之时却差点被耽误了诊治造成死亡，终于在最后一间医院得到了救治，病情得到了缓解，拣回一条命。次日作家自己发表的文字阐述了这一亡命求医的过程，却被中共风控，他把原文删除并发了道歉之文。
+4月16日郭先生紧急直播，公开了中共即将对青岛、大连、哈尔滨或者海口等地实施大封锁、大隔离的计划。
 
-上海作为一个国际大都市，在共产党的暴力防疫之下，无论曾经是什么，名人富豪，都不能幸免。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-1.12.12-PM.png)
 
-reference：
+郭先生爆料，随着中共对上海和长春的封锁，上海死亡人数可能已达到百万。上海战友及时的为当地战友提供政府实时情报，协助战友买到粮食、蔬菜以及药品，还有的战友用智慧的办法帮到了生病的战友家人。
 
-[https://gettr.com/post/p15o5b363e1](https://gettr.com/post/p15o5b363e1)
+长春战友在郭先生的建议下积极行动，提前在外准备的基地、粮食以及医疗用品帮到了无数人度过了此次共产党的大隔离，完全体现出作为新中国联邦人的高素质，郭先生说，这在未来盘古相聚时会是辉煌的一页。
 
-[https://gettr.com/post/p15jtsc118d](https://gettr.com/post/p15jtsc118d)
+目前得到准确情报，中共接下来要对国内进行大隔离的城市有青岛、大连、哈尔滨或者海口，这些城市将会再现上海和长春以及广州的惨状，请战友提前准备。
 
-撰稿、发布：骄子
+郭先生还提供了一些反抗策略，中共大隔离本身就是犯法，已经构成了正当防卫的条件。民众要合理利用家中的水、煤气、冰箱和汽车里的油，尤其是要团结周围单元楼的老百姓集体行动，勇气和智慧缺一不可。
 
-* * *
+参考链接：[2022.04.16早 7哥乱聊直播](https://gettr.com/post/p15kayqd9fb)
 
-欢迎订阅我们的GNews账号：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+总编：文恩
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

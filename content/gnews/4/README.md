@@ -2,8 +2,8 @@
 ---
 
 
-## 多半是疫苗的毒性大规模发作期到了，要韭菜们频繁的群聚核酸检测，就是共匪让外界以为是群聚时感染病毒的，实质上就是为了掩盖用毒疫苗杀人的事实！+结合CCP 投毒让群聚感染+通过大数据的任务=隔离你
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2365287/)
+## 疫情下作秀。領導一來，物資就來了。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2365346/)
 
 作者：东京樱花团小视频组
 

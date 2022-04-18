@@ -2,97 +2,34 @@
 ---
 
 
-## 原文转发:上海没有日记，只有一封封自私的求助信……！
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2364973/)
+## 中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365050/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片二_副本.jpg)
-原文发布者：说点想说的而已 暴躁大叔
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+对冲基金经理凯尔巴斯警告说，俄罗斯在乌克兰的战争正在掩盖中共政权构成的一个非常令人担忧的威胁：其无纸化货币系统。
 
-原文发布日期：2022年4月15日16：07
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币.jpg)[图片来源](https://assets.zerohedge.com/s3fs-public/styles/16_9_max_700/public/2022-04/bass.jpg?itok=Qahrdrpy)
 
-以下为原文——
+“我认为，这是过去50年来对西方的最大威胁。而且它被俄罗斯入侵乌克兰所掩盖，”巴斯在最近接受EpochTV的“美国思想领袖”节目采访时说中共国数字货币，也称为数字人民币、数字人民币、e-CYN和e-yuan，目前正由中共政权通过其中央银行开发。由于电子元由中国人民银行（PBOC）支持，它是一种中央银行数字货币（CBDC）或简称为中共国法定货币的数字版本。
 
-武汉有方方，能用日记的形式记录下疫情期间的所见所闻，还能顺便替敲锣女呼吁一下！
+到目前为止，电子元的试点测试正在中共国20多个不同的城市进行，这笔钱在2022年北京冬奥会期间首次通过移动应用程序提供给来访的外国人。“这不是一个简单的数字支付应用程序。这是一个应用程序，它可以跟踪您的位置、您的姓名、您的社会安全号码是什么，[以及]您的所有标识符是什么。它具有地理定位能力，”他解释说。巴斯解释说，一旦中共国的数字货币完全开发并可供中共国以外的所有人使用，中共政权可能会寻找某些电子元用户，例如陷入财务困境的用户，并对其进行腐败。“如果中共政府能够接触到美国、欧洲和加拿大的每一位汤姆、迪克和哈利，想象一下，”他说。“想象一下，如果他们可以交叉运行一个算法，让我们寻找拥有Tinder且资金短缺的美国政府雇员——也许他们已经结婚——我们可以立即腐蚀他们。”他补充说：“这让他们有机会腐蚀世界上任何可腐败的人，这是一个真正的国家安全问题。”“所以这是他们可以输出数字威权主义的一种方式。”巴斯说，中共国在全球推出电子人民币有一个非常具体的议程，那就是减少对美元的依赖。“中共国结算的全球交易中约有87%以美元结算，”他说。“他们极度缺乏能源，他们极度缺乏食物，他们极度缺乏基础材料，他们必须每天在世界各地购买这些东西，没有人相信他们的货币，他们仍然有封闭的资本帐户。”“那他们该怎么办？他们必须用他们的美元来做到这一点，”他说。
 
-西安有江雪，还能写个封城十日，虽不及方方，但起码也有勇气写下自己的所经历和听闻的一切！
+根据总部位于华盛顿的智库大西洋理事会的跟踪，包括美国在内的全球80多个国家正在探索发行CBDC。到目前为止，尼日利亚是推出数字货币形式的九个国家之一。3月，白宫发布了乔·拜登总统关于数字资产的行政命令大纲。总统正在“紧急”研究和开发美国的CBDC，并且发行一个“被认为符合国家利益”。几位美国立法者一直热衷于看到电子元构成的威胁得到妥善解决。去年5月，代表FrenchHill(R-Ark.)和JimHimes(D-Conns.)提出了21世纪美元法案(HR3506)，该法案要求美国财政部在提交给国会的报告中包含任何风险对数字人民币构成的美元。3月，参议员MarshaBlackburn(R-Tenn.)和她的八位共和党同事介绍了《对丝绸之路说不法案》(S.3784)。如果获得通过，该立法将要求美国商务部和美国贸易代表办公室提交有关电子人民币的报告。
 
-她们两写下那些东西，并不是自己陷入困境没人来帮助目己，相反她们在封控期间的生活影响开不大，她们写下那些东西的最明显的作用是让人们注意到那些需要帮助，但又难以发出自己声音的弱势群体…！
+此外，根据法案的文本，美国国务院将被要求在其网站上发布警告，警告前往中共国的美国公民“关于数字人民币的危险”。“在接下来的几周内，你会看到一些参议员将发起立法，禁止其使用。我相信，那些立法必须发生，”巴斯说。“西方需要召开会议，我们需要立即禁止它，”他补充说。“你不可能有一点点癌症，你要么有癌症，要么没有癌症。”
 
-请问上海有什么？上海有陈平、有沈逸、有各种国师、正能量大V,所以肯定少不了有骂方方的！
+消息来源：
+[China’sDigitalYuan,BiggestThreatToTheWest,IsOvershadowedByRussianWar,KyleBassWarns](https://www.zerohedge.com/geopolitical/chinas-digital-yuan-biggest-threat-west-overshadowed-russian-war-kyle-bass-warns)
 
-除此之外，上海什么都没有了吗？
-
-不，还有，还有求助信，各式各样，各有所需；
-
-杨国华，上海师大人文学院退休教授，著名日本文学专家，求水果，求牛奶，求降压药，求领导真切的关心一下，他家唯一断了的是牛奶，连水果都还有的吃，药还能用到月底，他之所求，全为自己…
-
-这也是一封求助信，几百个教授，博士后，专家，研究人员，求吃、求喝、求关注、求重视，全是为自己所求……
-
-一个是13日，一个是14日，都是一些高级知识分子，平时生活优越感十足，其实封控期间也很充足，别人半个月前就在求助了，他们坚持到现在还有水果……
-
-我没有看到他们的可怜，我看到的全是自私愚蠢的嘴脸！
-
-这可是上海啊，教授，学者，作家，会少吗？
-
-这一封求救信就二百个教授，你们居然要等自己挨饿的时候才会发出声音，你们对得起自己认识的那些文字吗？
-
-早些天发物资的时候，专门不给外地人，你们这些人没一个吭声，也许你们还会一口一个“上海宁”自豪满满！
-
-那些急症病患，得不到及时救治的时候，也没见哪位教授、博士后站出来质疑隔离的策略是否合理，是不是应该改进………！
-
-足不出户，说是防疫需要，天天排队核酸，也说是防疫需要，出门买菜不行，说会造成交叉感染，但排队做核酸却没有问题，这些都合理吗？
-
-这么多明显的问题，为什么这些学者、教授、博士后，没有一个人站出来提出质疑，为什么没有一个人者目己的专业知识去省定那些不合理的存在？
-
-居然等到自己快挺不住的时候，才发出这种哀鸣，别人死扛的时候，你们在做什么？
-
-求救的时候才告诉别人你们是教授，是博士后，是你奶奶个腿，知道这些头衔对应的社会责任吗？
-
-居然只知道拿来博同情，呸！
-
-总以为被牺牲的只会是比自己阶层更低的人，自己是永远幸运的？
-
-“只顾自家门前雪，不管他人瓦上霜”，这不是什么高级智慧，这TM的是顶级的愚蠢………这句话还被很多知识分子奉为处世之道，真是可笑之极！
-
-某人，大赞动态清零、支持用战术管理手段防疫，并称这是困难最低，成本最低的，结果自己成了那个最低的成本之一！
-
-据说这人也是个兼职教授，还是某证券公司的总裁助理……
-
-这就不单是愚蠢、自私了，这是脑残加智障，跟这脑残同样的还有著名的郎教授，著名的作家六六，还有一些不管他人瓦上霜的低调富豪，他们有的是悄悄的死掉了，有的是默的看看最亲的人死掉，甚至都不能去看最后一眼！
-
-自私、愚蠢、脑残、智障，就是目前上海知识精英们的综合表现了！
-
-很多东西，不是蠢一下就完了的，那都是要付出代价的，看到底层群众在哭喊的时候，你们视而不见还暗自庆幸那都是要遭报应的，今天很多遭遇其实就是报应嘛！
-
-上层人的生活是比底层人的生活物质水平高，但你们一定要知道最底层的那些人平时就不喝牛奶，不吃水果，大病小病都是硬挺过来，如果整个社会真的困难起来，上层人士怕是扛不过他们吧，他们的命可比你们硬的多！
-
-如果你选择无视别人的痛苦，那么就准备自己亲身经历吧！
-
-\*\*\*\*\*\*\*原文引用完毕\*\*\*\*\*\*\*
-
-**声明：文章转自网络，另外所有上传G-News的文章均自动放弃版权，如本文侵犯原著版权，请联系删除。**
-
-编辑整理：喜马拉雅的肉夹馍；
-
-校对整合：喜马拉雅的馍夹肉；
-
-发布：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
