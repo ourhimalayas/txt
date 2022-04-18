@@ -2,49 +2,30 @@
 ---
 
 
-## 樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2368155/)
+## 澳大利亚取消对旅客入境前的中共病毒测试
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2368346/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-121.jpg)[图片来源](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
-俄罗斯国家电视台周一播放了一段视频，视频中是为乌克兰作战被俘的“英国人”，俄罗斯要求首相鲍里斯·约翰逊就释放他们进行谈判。
+#### 【澳洲热点】
 
-这两名面容憔悴的男子被确认为英国国民，他们是肖恩·平纳（Shaun Pinner）和艾登·阿斯林（Aiden Aslin），他们要求用维克多·梅德韦丘克（Viktor Medvedchuk）交换，后者是与总统弗拉基米尔·普京关系密切的乌克兰富商，最近在乌克兰被捕。
+翻译：Mttfly
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2230.png)
+据9NEWS报道，当地时间4月18日，澳大利亚消除了国际游客到访澳大利亚的主要障碍。海外旅客不再需要在起飞前提供阴性中共病毒测试报告。这意味着旅客可以避免原本需要在登机前3天内进行的RAT和昂贵的PCR测试。
 
-广播里没有说明这两个人被关押在哪里或被谁关押，是俄罗斯军队还是莫斯科在乌克兰东部的分离主义盟友。
+但是，国际旅客仍必须提供两针病毒中共疫苗接种证明，并且在国际航班上仍必须佩戴口罩。
 
-这段录音是俄罗斯国家广播公司VGTRK的记者安德烈·鲁登科（Andrei Rudenko）的采访。
+未接种疫苗的旅客可能需要在抵达澳大利亚后自费进行隔离。
 
-在这段视频中，鲁登科向两人展示了梅德韦丘克的妻子奥克萨娜·马尔琴科（Oksana Marchenko）上周发布的视频，她要求用她丈夫交换这两名英国人。
+澳洲政府取消这类入境限制，预示着游轮将返回澳大利亚港口。乘坐游轮抵达的旅客必须在下船前填写用来记录健康和其它信息海上旅行声明。现在由各州决定游轮是否可以进入。新南威尔士州、维多利亚州和昆士兰州将迎来船只，P&O的266 米长的太平洋探险家号将于今天早上停靠在悉尼。
 
-随后，被拘留者用英语要求换回这位商人。
+参考新闻：[Australia scraps COVID-19 testing for international arrivals](https://www.9news.com.au/national/covid-19-australia-stops-all-coronavirus-testing-for-international-arrivals/a01f0f72-27ab-40d3-a56e-9251b13cbabf)
 
-阿斯林的母亲在接受英国《每日电讯报》周五发表的采访时曾呼吁释放他。
+发布：tianzhihuan
 
-这位名叫安·伍德（Ang Wood）的女士说，她从俄罗斯的广播中认出了她28岁的儿子，因为他身上有独特的纹身。
-
-该报援引伍德的话说：“艾登是乌克兰武装部队的一名现役成员，因此是一名战俘，必须受到人道的对待。”
-
-在社交媒体上流传的带有克里姆林宫支持的广播公司RT标志的视频中，这名年轻人似乎暗示乌克兰正在延长战争冲突的时间。
-
-目前尚不清楚这些人在视频中是否被强迫说话。
-
-乌克兰总统沃洛基米尔·泽伦斯基曾提议用67岁的梅德韦楚克交换目前被关押在俄罗斯的乌克兰人。
-
-在上周被问及潜在的交换问题时，克里姆林宫发言人德米特里·佩斯科夫（Dmitry Peskov）强调，梅德韦丘克“不是俄罗斯公民”，并表示他不知道他是否希望莫斯科干预他的案件。
-
-周一，佩斯科夫承诺将“传达”普京对该想法的任何回应。
-
-信息来源：** **[**Russia broadcasts video of captured ‘Britons’ demanding UK PM negotiate their release**](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

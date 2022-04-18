@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 3:56 PM (UTC)`
+
+4月18号，《铁锁梦》MV在iTunes上线后，仅在1个半小时后迅速登榜澳洲区MV总榜第一名🥇，MV流行榜第一名🥇，万分感谢澳洲的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉<br/><br/>4/18/2022 Just after 1.5 hours of launching, Miles Guo’s latest MV the “Chained Dream” has hit No.1 🥇on Australia 🇦🇺 MV Top Music Video Charts and No.1 🥇on Australia 🇦🇺 MV Pop Music Video Charts ! Thanks to our brothers and sisters in Australia!🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉🎉
+![img](https://media.gettr.com/group22/getter/2022/04/18/15/480bc6c1-bb55-34c9-f7b9-e61482fe1d2f/891d9ee3df9282844b662c5039178df4.jpg)
+
+---
+
 `@miles 4/18/2022 2:19 PM (UTC)`
 
 4月18号：尊敬的战友们好，你说咋弄的咋弄的咋弄的．七哥不亲自己的腚．好意思吗？就是这么骄傲．就是这么牛叉……咋办吧……第二个将是田国立，还有人民银行的纪委书记周亮……新华保险的康典……都会被抓的，咱们走着看。【Oh my god<br/>七哥2020年4月8日直播，請戰友記住：田惠宇、陳峰一定會被抓，這就是習王斗的結果<br/>gettr.com/post/p15t6rvae…-】
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 【Ukraine Rescue】 04/15/22  The Israeli volunteer who is celebrating Passover in the tent of the NFSC expresses her gratitude to us. And, to her surprise, she is learning that just as the Jews often say 'next year in Jerusalem', the NFSC people have a similar saying 'see you next year in Pangu', heralding the Chinese people in China will be free, and we will be reunited with our brothers and sisters who are still in China struggling with Communism, and we're going to fight together and win!<br/><br/>【乌克兰救援】 04/15/22  在新中国联邦帐篷内庆祝逾越节的以色列志愿者向我们表示了感谢。而且，她惊喜地得知，如同犹太人常说的‘明年在耶路撒冷见’一样，新中国联邦人也有一个类似说法‘明年在盘古相见’，预示着我们中国人民将在中国获得自由，与仍在国内与共产主义作斗争的兄弟姐妹团聚，并取得胜利！
 ![img](https://media.gettr.com/group9/getter/2022/04/18/03/2a6c0c92-ee5c-e354-2e0a-f7503e5999fd/out.jpg)
-
----
-
-`@miles 4/18/2022 3:21 AM (UTC)`
-
-4/17/2022  Miles Guo: The Europe and the US are carrying out the strategy of "luring Russia into actions" and "luring the CCP into actions"; the Russia-Ukraine war is ultimate battle between justice and evil; the New Federal State of China fellow fighters on the rescue frontline in Ukraine are outstanding, they represent the image of new Chinese people; the so-called Chinese celebrities working as the CCP’s running dogs will not be pitied by the CCP, they will eventually go to the crematorium prepared for them by the CCP<br/><br/>4/17/2022 文贵直播：欧洲和美国正在进行“引俄出洞”和“引共出洞”的策略，俄务战争是正义和邪恶的终极大战；新中国联邦的战友在乌克兰救援前线的表现卓越，代表了新中国人的新形象；充当中共走狗的所谓中国各界名流不会被中共所怜悯，最终会走进中共给他们准备的火葬场<br/>
-![img](https://media.gettr.com/group7/getter/2022/04/18/03/6eff9ece-869d-61b5-a1a5-3a08ce6766f9/out.jpg)
 
 ---
 

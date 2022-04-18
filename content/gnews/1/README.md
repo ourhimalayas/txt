@@ -2,25 +2,27 @@
 ---
 
 
-## 2022年4月18日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2368761/)
+## 有声｜泽连斯基与国际货币基金组织讨论乌克兰的重建
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2368820/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1159-1.jpg)
+**2022-04-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-46.png)
+[路透社](https://www.reuters.com/world/europe/zelenskiy-imf-managing-director-discuss-ukraines-post-war-reconstruction-2022-04-17/)4月17日报道，泽连斯基周日表示，他与国际货币基金组织总裁格奥尔基耶娃，就乌克兰的金融稳定和战后重建进行了交谈。
 
-发稿：信心的选择
+泽伦斯基在推文中说，“与国际货币基金组织总裁格奥尔基耶娃讨论了确保乌克兰金融稳定和战后重建准备的工作。我们现在有明确的计划，以及对未来的展望。我相信国际货币基金组织和乌克兰将继续开展富有成效的合作”
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+格奥尔基耶娃在晚些时候的一条推文中回复泽连斯基说，“谢谢你，感谢你今天打来的非常好的电话，这将对重建乌克兰未来的竞争力奠定基础”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+乌克兰总理什米加尔早些时候表示，他将出席本周在华盛顿举行的国际货币基金组织和世界银行会议，为乌克兰寻求更多的财政援助。
 
+秘翻新闻 自由信仰编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

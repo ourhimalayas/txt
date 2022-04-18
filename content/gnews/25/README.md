@@ -2,27 +2,33 @@
 ---
 
 
-## 同济大学精准拉屎拉出新高度
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2368262/)
+## 澳大利亚法律专家团队加入俄罗斯侵略乌克兰战争罪的取证
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2368411/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-你拉个屎还需要预约。现在同济大学它是一个什么样情况？因为担心厕所垃圾会传染，把垃圾桶撤了让带回宿舍。担心水龙头会传染，他不让洗手，只能回寝室用酒精、湿纸巾擦。上完厕所后不让洗手。疫情期间不让洗手疫情期间不让洗手，天下还有这么荒谬的一个事情嘛？
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-371.jpg)[图片来源](https://www.google.com/search?q=%E5%90%8C%E6%B5%8E%E5%A4%A7%E5%AD%A6&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBuIpq6-4Z4bc7sfwbzjfBWMg55cbg:1650290821300&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiuyLex5J33AhWUQEEAHY8KCQ8Q_AUoAnoECAIQBA#imgrc=7HpIgzsJBISadM)
-哪个地方它是通过不让洗手的方式来进行一个防疫的，你们就说扯不扯，这是同济大学211，985哎一个重点高校哎。这是什么荒谬的一个小说里面才会有的一个情节，你做梦也想不到一个计划经济它能发展到计划拉屎的一个地步，我都不敢相信我们读书是为了什么，是知书达理，明是非。
+#### 澳洲新闻时事动态，尽在雅典娜
 
-大学里面能当领导和教授的都是什么人啊？高知啊高级知识分子啊。你们就搞出一个让学生连自由上厕所都要感到抱歉的一个政策，是不是？我读大学的时候的本科不够高级，我读的是三流大学，所以我无法了解到你们这种就是重点大学的一个脑回路。在我的知识体系里面，我觉得会做出这样的一个事情来的人，应该他是文盲或者是很无知的人，才会做出一个这样有为人伦的一个政策出来吧。但是评论区打开来我才发现，同济大学它不是第一个做这样事情的一个高校，在其他高校也有这样类似的一个规定，这种事情根本它就是滑天下之大稽离天下之大离谱，好不好？
+翻译：Mttfly
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2232.png)
+据澳大利亚人报当地时间2022年4月18日报道，一个澳大利亚法律专家小组加入了全球搜集俄罗斯在乌克兰的战争罪证的行动。该行动所取证据用以提交国际刑事法院。
 
-消息来源：
+墨尔本律师William Lye QC和其他九位专家正在对已抵达澳大利亚的近2500名乌克兰难民进行采访，并收集俄罗斯暴行的实物证据和受害者陈述等。Lye团队的调查结果将提交给国际刑事法庭首席检察官Karim Kahn QC，以构成正式调查的一部分。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+“我的办公室已经发现了合理的依据，认为发生了该法院管辖范围内的罪行，并且已经确定了可以受理的潜在案件”，Khan先生办公室的一份声明说。
+
+虽然乌克兰和俄罗斯都没有加入《国际刑事法院罗马规约》。然而，基辅已经授予国际刑事法院管辖权，以调查在乌克兰领土上发生的任何潜在的种族灭绝罪、反人类罪或战争罪。
+
+国际刑事法院的调查将审查俄罗斯从2013年开始在该地区的活动，包括俄罗斯于2014年吞并克里米亚一事。
+
+起诉普京将是一项复杂的任务，因为国际刑事法院不对被告进行缺席审判。Lye先生表示，更可行的目标可能包括较低级别的官员，如监督当地暴行的将军和军士。
+
+参考新闻：[澳大利亚法律专家团队加入为俄在乌犯下战争罪取证](https://cn.theaustralian.com.au/2022/04/18/65810/)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

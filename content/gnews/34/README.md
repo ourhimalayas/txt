@@ -2,46 +2,44 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月18日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2367974/)
+## 俄罗斯打击乌克兰各地目标，乌战斗人员在马里乌波尔坚守
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2368005/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-215448.jpg)
-**1、中共央行降准，释放资金约5300亿元 **
-![img](https://media.gettr.com/group46/origin/2022/04/18/02/82551fa1-73d0-0510-ca01-5fffa19c7273/fa2c548de68338c13a39275a95bb3474_500x0.png)
-中共央行决定于2022年4月25日下调金融机构存款准备金率0.25个百分点。对没有跨省经营的城商行和存款准备金率高于5%的农商行，在下调存款准备金率0.25个百分点的基础上，再额外多降0.25个百分点。本次下调后，金融机构加权平均存款准备金率为8.1%。此次降准共计释放长期资金约5300亿元。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午9.40.38.png)图片来源：互联网
+俄罗斯周一表示，它在一夜之间袭击了乌克兰的数百个军事目标，用空射导弹摧毁了指挥所，而西部城市利沃夫的当局则表示，该城市逃脱了猛烈的轰炸。导弹袭击造成七人死亡。
 
-链接 [https://finance.sina.com.cn/china/2022-04-18/doc-imcwiwst2428717.shtml](https://finance.sina.com.cn/china/2022-04-18/doc-imcwiwst2428717.shtml)
+俄罗斯国防部在一份声明中表示，它已经摧毁了位于哈尔科夫、扎波罗热、顿涅茨克和第聂伯罗彼得罗夫斯克地区以及该国南部和东部的 Mykolayiv 港的 16 处乌克兰军事设施。
 
-**2、周小川：数字人民币不是为了替代美元**
-![img](https://media.gettr.com/group49/origin/2022/04/18/02/4ca6b477-1e6c-df29-c276-b0a3147f95cf/d9cedb8d5088402558c7a16c46ab2283_500x0.png)
-2022清华五道口全球金融论坛，周小川发表演讲：“数字货币，至少中国的e—CNY设计是为了零售，为了百姓方便、商户方便，不是为了替代美元，当然我们不排除e—CNY未来可能有跨境支付的前景，但是我估计也是会注重于零售，跨境零售的应用，不是轻易地当做军事武器来使用的。”
+它补充说，俄罗斯空军对乌克兰军队集中的108个地区发动了打击，俄罗斯大炮一夜之间击中了315个乌克兰军事目标。
 
-财经G评：当下中共可以拿食物作为武器整治老百姓，人民币已经成为武器正在援助俄罗斯！如果中共数字人民币成功了，一定会成为武器来攻击民主国家！
+在北方的乌克兰抵抗力量的驱使下，俄罗斯军队将地面进攻的重点重新集中在被称为顿巴斯的两个东部省份，同时对包括首都基辅在内的其他目标发动远程打击。
 
-链接 [https://finance.sina.com.cn/jryx/2022-04-16/doc-imcwiwst2226573.shtml](https://finance.sina.com.cn/jryx/2022-04-16/doc-imcwiwst2226573.shtml)
+它现在正试图完全控制乌克兰港口城市马里乌波尔，该城市已被围困数周，这将是一个巨大的战略奖励，将东部亲俄分裂分子控制的领土与莫斯科于 2014 年吞并的克里米亚地区连接起来.
 
-**3、银行利用“白名单”高息揽储逃避监管**
-![img](https://media.gettr.com/group22/origin/2022/04/18/02/fbea9a64-bda6-9462-4802-199b0d995fcf/b2f4bca5e88945f3cbc314638fa6c7e9_500x0.png)
-有调查发现，一些民营银行通过线上点对点邀请开立Ⅱ类账户、添加“白名单”的方式向用户推出高息存款产品，最高存款年利率可达4.6%；这种行为变相突破了监管对于异地揽储的红线。一些民营银行并未停止发布高息存款产品的脚步，而是将此类揽储行为转向了“地下”。新安银行的存款利率非常高，最高能达到4.6%。
+乌克兰当局表示，导弹袭击了利沃夫的军事设施和汽车轮胎服务点，该地点距离波兰边境仅 60 公里（40 英里）。
 
-链接 [https://finance.sina.com.cn/stock/yjdt/2022-04-18/doc-imcwiwst2412254.shtml](https://finance.sina.com.cn/stock/yjdt/2022-04-18/doc-imcwiwst2412254.shtml)
+利沃夫市市长安德烈·萨多维（Andriy Sadoviy）说，有 7 人丧生，11 人受伤。他补充说，爆炸震碎了一家旅馆的窗户，该旅馆的住所是从该国其他地方撤离的乌克兰人。
 
-**4、2022年1—3月份中共国房地产开发投资增长创新低**
-![img](https://media.gettr.com/group48/origin/2022/04/18/03/7b920770-30b0-4b2f-b441-544104046e0f/fe188654be14c7d9805c478058d0ae40_500x0.png)
-1—3月份：全国房地产开发投资27765亿元，同比增长0.7%、商品房销售面积31046万平方米，同比下降13.8%、房地产开发企业到位资金38159亿元，同比下降19.6%。
+市长说：“七个和平的人有生活计划，但今天他们的生活停止了。”
 
-链接：[https://finance.sina.com.cn/china/gncj/2022-04-18/doc-imcwipii4929044.shtml](https://finance.sina.com.cn/china/gncj/2022-04-18/doc-imcwipii4929044.shtml)
+俄罗斯否认以平民为目标，并否认乌克兰所说的暴行证据，称乌克兰蓄意破坏和平谈判。莫斯科称其近两个月前发起的行动是一项特别军事行动，旨在使乌克兰非军事化并根除所谓的危险民族主义者。
 
-**5、3万比特币离开Coinbase**
-![img](https://media.gettr.com/group4/origin/2022/04/18/03/f4197bff-d733-850f-56d3-f31291fa6a67/510be30ef8788add525fd4deec5b6e40_500x0.png)
-来自美国交易所Coinbase的专业交易分支机构Coinbase Pro的数据，该数据证实，大量比特币继续离开其账簿。在本周的一天里，转移量总计达到3万枚比特币，这种情况并不是第一次出现，3月份也出现了类似的行为。正如Cointelegraph本周报道的那样，这一趋势在各个交易所都很明显，目前4月份的资金外流总量正试图赶上3月份。
+西方首都和基辅指责俄罗斯总统弗拉基米尔普京无端侵略。
 
-链接  [https://cointelegraphcn.com/news/bitcoin-institutional-buying-could-be-big-narrative-again-as-30k-btc-leaves-coinbase](https://cointelegraphcn.com/news/bitcoin-institutional-buying-could-be-big-narrative-again-as-30k-btc-leaves-coinbase)
+**马里乌波尔之战**
 
-制作：文勇
+乌克兰总理 Denys Shmyhal 表示，尽管俄罗斯要求投降，但周日，马里乌波尔港口的部队仍在战斗。
 
-排版上传：文勇
+“这座城市还没有倒下，”他告诉美国广播公司的本周节目，并补充说乌克兰士兵继续控制着东南部城市的一些地区。
+
+原文链接：
+
+【1】[Russia hits targets across Ukraine, fighters cling on in Mariupol](https://www.reuters.com/world/europe/ukraines-zelenskiy-condemns-shelling-bodies-line-streets-mariupol-2022-04-18/)
+
+* * *
+
+*编辑&发布：长岛开心*
 
  
 
