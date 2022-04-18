@@ -111,31 +111,31 @@
 ### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频文编|世界格局将大变，美国会是最大赢家，中俄必将解体，日本重新回到世界大国行列，联合国会重组](/content/gnews/33/README.md)
- ` KarmaLabs`
-
-### [美国及世界疫情简报（04-18-2022）](/content/gnews/34/README.md)
+### [美国及世界疫情简报（04-18-2022）](/content/gnews/33/README.md)
  ` 波士顿五月花农场`
 
-### [视频文编|喜币进入实体店，意义重大](/content/gnews/35/README.md)
- ` KarmaLabs`
-
-### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/36/README.md)
+### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频文编|所有中国飞机里面都装了一个额外的即时回传录音录像装置](/content/gnews/37/README.md)
+### [视频文编|所有中国飞机里面都装了一个额外的即时回传录音录像装置](/content/gnews/35/README.md)
  ` KarmaLabs`
 
-### [视频文编|新中国联邦两周年纪念活动正式启动！](/content/gnews/38/README.md)
+### [视频文编|新中国联邦两周年纪念活动正式启动！](/content/gnews/36/README.md)
  ` KarmaLabs`
 
-### [视频文编|美国有绝对的科技经济和军事实力碾压俄罗斯，对CCP更不在话下](/content/gnews/39/README.md)
+### [视频文编|美国有绝对的科技经济和军事实力碾压俄罗斯，对CCP更不在话下](/content/gnews/37/README.md)
  ` KarmaLabs`
 
-### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/40/README.md)
+### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/38/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [视频文编|中国政府不要脸 百姓如猪狗 请珍惜新中国联邦](/content/gnews/41/README.md)
+### [视频文编|中国政府不要脸 百姓如猪狗 请珍惜新中国联邦](/content/gnews/39/README.md)
+ ` KarmaLabs`
+
+### [视频文编|美国尝试了所有错误选项后 只剩下灭共成为唯一选择](/content/gnews/40/README.md)
+ ` KarmaLabs`
+
+### [视频文编|再次验证爆料革命有万佛万神的庇佑](/content/gnews/41/README.md)
  ` KarmaLabs`
 
 ### [印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/42/README.md)
