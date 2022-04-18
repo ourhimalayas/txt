@@ -2,75 +2,44 @@
 ---
 
 
-## 美国政要们祝大家复活节快乐
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2365967/)
+## 2022年4月17日郭先生盖特 — 视频1「9分26秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/2366165/)
 
-**参议员玛莎.布莱克本：**
- “天 使 对 妇 女 说 ， ‘不 要 害 怕 ， 我 知 道 你 们 是 寻 找 那 钉 十 字 架 的 耶 稣 。他 不 在 这 里 ， 照 他 所 说 的 ， 已 经 复 活 了 。 你 们 来 看 安 放 主 的 地 方 。’” ——马太福音 第28章 第5、6节
+听写：洛杉矶盘古农场 — 盘古小蚂蚁 & Antsee-GTV
 
+Video link: [https://gettr.com/post/p15pehy240a](https://gettr.com/post/p15pehy240a)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/52B26ABA-EEF3-498D-9840-CA1F43A1D92B.jpeg)
+尊敬的战友们好，4月17号。你看这外面的天气，你看看，你看看。哎呀～这绿茵茵的，到处是樱花，到处是迎春花，太漂亮了！
 
+美帝国主义咋这么漂亮啊？共产党天天骂美帝国主义，所有的私生子女，家人都送到美国来了。就像当年某军区司令员吃饭，问旁边人，“你那个小的哪的呀？”说小的在美国。“你那个妮儿在哪的呀？”「答说，」“俺那个妮儿在澳大利亚。”“唉～我记得你那个二哥还有一个双胞胎，你给弄哪去了？”「回答说，」“噢，新西兰。”…「再问」“为啥嘞？”人家笑着回答了。「司令员」哦，明白了 — 亲儿子送美国，闺女去澳大利亚，侄子侄女送新西兰。为什么嘴里面骂的天天要打的美帝国主义他却认为第一好，第二好是澳大利亚？为啥没去大英帝国呢？那个时候觉得英国太冷。
 
-> “But the angel said to the women, ‘Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay.’” — Matthew 28:5-6
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 17, 2022](https://twitter.com/MarshaBlackburn/status/1515692439897612296?ref_src=twsrc%5Etfw)
+这就所有共产党这帮流氓，这些老杂毛们，就是他们说的每句话你要相信了，那你就真的是这一辈子你受啥罪都活该。就像上海之前那个辟谣：“上海不可能隔离，上海不存在隔离，完全造谣…”「结果」哐叽，弄了个这！多少少男少女跳楼自杀，一个馒头睡一个大花姑娘…上海一下回到了石器时代；上海人的傲慢和骄傲一切都结束了。从吴国到今天，我觉得上海人和江浙人没像今天这么惨过。一个馒头睡一觉，是吧？男的整个就像个窝鳖一样待在家里面，任凭老爹老妈死去，有病不能看；自己老婆、女儿被人调戏，连个屁也不敢放。不是讲理吗，讲修养吗？修养在哪儿呢，理在哪儿呢？与牛谈琴那是你的错，那你说你要跟畜生讲理，那是你的无知…「现在」怎么样，怎么样？
 
+长春惨呐！西安又开始惨了吧？7哥在前天说青岛、大连、哈尔滨、海南这就要隔离；今天说了青岛已经有十八例了。兄弟姐妹们，在青岛的战友们，在大连的战友们，哈尔滨、海南的战友们，你们想想，有一个国家在冠状病毒来的时候城市是一条线的染上病毒的吗？它都是蹦着染。它也没法控制的东一个西一个；人的流动不是直线的流动的嘛。为啥共产党就这么会“选”呢？广州、上海、深圳、香港…然后就没北京！现在要开始北京了，然后现在沿着沿海：大连、青岛…兄弟姐妹们，我不需要你相信我，我只需要你行动行动，行不行？咱不要把家人困在那里行不行？不要饿死行不行？
 
+【🎵】“…你若不相信呐，咱们走走看…你若有本事，别被做核酸…”
 
-**前国务卿迈克·蓬佩奥： **
-蓬佩奥全家祝您复活节快乐！ [#他复活了](https://gettr.com/hashtag/%23%E4%BB%96%E5%A4%8D%E6%B4%BB%E4%BA%86) [#HeIsRisen](https://gettr.com/hashtag/%23HeIsRisen)
+你未来你想想；要不相信你7哥的，你就要被做核酸。这不是开玩笑的，真的是…哎，我这一唱还挺好听啊？！
 
+【🎵】“…你若有本事，别被做核酸…”
 
+哎呀，我得唱这个歌。这上来一蒙，发现7哥真是天才的音乐家，唱的真好！开玩笑哈，兄弟姐妹们。不管天、地有多黑暗，只要你能睁开眼睛，你还活着，你就是世界上最幸运的人；如果你没打疫苗，那你就是这个世界上被上天眷顾的人；如果你没打疫苗还有喜币，那你就是上天照顾了两回的人；如果你没打疫苗，还有币，然后你还是新中国联邦人 — 那你就是神人啦！
 
-> Happy Easter from the Pompeo family! [#HeIsRisen](https://twitter.com/hashtag/HeIsRisen?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xL9LzI8A6M](https://t.co/xL9LzI8A6M)
-> — Mike Pompeo (@mikepompeo) [April 17, 2022](https://twitter.com/mikepompeo/status/1515777707975614468?ref_src=twsrc%5Etfw)
+【🎵】“…你若不相信呐…别被做核酸…”哎呀，这歌儿好啊，这一蒙蒙出来了。好！
 
+乌克兰、俄罗斯，看到了吧？现在都在出杀器。俄罗斯现在目标就是打美国所谓的送武器的飞机 — 就是打住外援；然后欧盟，特别是英国和美国要的就是你这样，只要你出手，叫“引俄出动”，把俄罗斯给引出来 — 不是那吃的“鹅”，是俄罗斯，“引俄出动”！共产党现在是一火车一火车的往北方送武器，送弹药，送粮草…回去就拉「满了」石油。你觉得美国、欧洲查不出来是吗？这叫“引共出动”！
 
+大家走着看，你看反正这个东方和西方最大的分水岭就是“俄乌战争”；独裁和自由世界的战争就是这场战争。更重要的是什么，兄弟姐妹们？正义和邪恶的战争！就是一个国家到底几个家族控制，还是一个国家是人民说了算，对吧？那大家现在看得出来。谁能停止这场战争？没人，没人！
 
-**众议员兰斯·古登： **
-今天，当我们庆祝耶稣基督复活的同时，他也提醒了我们信仰和家庭的重要性。 复活节快乐！
+新中国联邦，现在此时此刻，你看看在那儿的帐篷，你看这帐篷！都在那儿给犹太人做复活节呢，看着战友们在那儿烤着那些牛排…这是在战争中啊，但战友们精心地为他们服务。你看我们的Nicole，这小妮子太厉害了！你看Nicole的采访；中央电视台能出来一个讲这样英文的吗，中央电视台有一个长这模样的人吗？啊？哎呀…【🎵】“你若不相信呐，你去走走看，中央电视台那么一个…”
 
+你看看咱们，远在乌克兰，在战场中，战友们讲着这么流利的英文、德文、意大利文、俄罗斯文，还有讲法文的，当然有讲中文的；给人家做着这样的牛排。这是多么伟大的…一个叫新中国人！人家犹太人说那些愚钝的被共产党洗脑的叫“Old Chinese” — 老中国人！
 
+你看刚才咱们的Rachel、威廉王；现在是威廉王和小新…年轻漂亮，浑身活力 — 这才叫新中国人！你像那些老杂毛门，一个个王八蛋的东西…不能想！想想长春，想想上海，想想现在中国到处抢粮食，想想中国人在家憋得半死，想想所有中国的名人所谓知识分子都聚集在上海，结果上海被困在家里，“爹死，娘死，自己饿的半死，闺女被人家一个馒头换去睡觉，老婆被人家拥抱…”是吧？这就是所谓的中国的知识界，中国的音乐界，中国的名人？
 
-> Today we are reminded of the importance of faith and family as we celebrate the resurrection of Jesus Christ.
-> 
-> Happy Easter!
-> — Lance Gooden (@Lancegooden) [April 18, 2022](https://twitter.com/Lancegooden/status/1515858659590422531?ref_src=twsrc%5Etfw)
+还有中国那些老板呢？董文标呢，王健林呢，史玉柱呢，马明哲呢，马云呢，Bruno Wu（吴征）呢，在哪儿呢？孙子唉，跟共产党混…跟着共产党走进火葬场！关键让你走进火场都是便宜你了；跟着共产党就让你在火葬场门口转悠，叫你死不了活不了！
 
-
-
-**美国国务院：** 
-许多人道主义组织正在向受乌克兰危机影响的人们提供紧急援助。无论您身在何处，都可以通过以下方式提供帮助：
-
-
-
-> Many humanitarian organizations are providing urgent assistance to those affected by the crisis in Ukraine. Here are some ways you can help from wherever you are: [https://t.co/1ANlO5M6f8](https://t.co/1ANlO5M6f8)
-> — Department of State (@StateDept) [April 18, 2022](https://twitter.com/StateDept/status/1515842545879764996?ref_src=twsrc%5Etfw)
-
-
-
-**众议员玛乔丽·泰勒·格林： **
-亨特·拜登的笔记本电脑(内容)。 
-就要发布了。 
-内容是一个比一个的吓人。 
-但可能更让我困惑的是那些掩盖真相的人，他们对这一切都装作没事。 
-你怎么能这么做？ 
-怎么会有人这么做？
-
-
-
-> Hunter Biden’s laptop.
-> 
-> It’s about to be released.
-> 
-> The contents are one horror after another.
-> 
-> But what bothers me maybe even more are all the people that covered it up and are ok with it all.
-> 
-> How could you do that?
-> 
-> How could anyone do that?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1515869385684049920?ref_src=twsrc%5Etfw)
-
-
+行了，啥不说了，兄弟姐妹们。明天不直播，后天星期二有个大直播 — “419”！“419”是有几年了，“419”这都…五年了！一晃就是五年了！啥都不说了，兄弟姐妹们，星期二早上九点「开始」大直播，一整天。姆该嗮，么～
 
  
 

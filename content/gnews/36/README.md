@@ -2,44 +2,76 @@
 ---
 
 
-## 早晨第一缕意识的思考
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2365606/)
+## 美国政要们祝大家复活节快乐
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2365967/)
 
-撰稿：AD KING
+**参议员玛莎.布莱克本：**
+ “天 使 对 妇 女 说 ， ‘不 要 害 怕 ， 我 知 道 你 们 是 寻 找 那 钉 十 字 架 的 耶 稣 。他 不 在 这 里 ， 照 他 所 说 的 ， 已 经 复 活 了 。 你 们 来 看 安 放 主 的 地 方 。’” ——马太福音 第28章 第5、6节
 
-波粒二象性，双缝干涉实验，来自未来的人，预言者看到的未来。 这些都说明了一个现象，用一个词总结，叠加态。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-16-at-11.18.50-PM.jpeg)图片来源：作者提供
-就是未来是叠加态的，发生过的过去也是叠加态的，这个有观察者的宇宙就是叠加态的，只有当下是固定的，这个固定状态是因为个体的感知，有感知的那一时刻才是有意义的存在。
 
-当下可以改变过去，也可以改变未来。
 
-时间是什么？时间就是感知。通过一些灵魂出体过的人讲述，以及濒死体验等这些现象证明了时间就是感知。据灵魂出体后的人描述，灵魂出体后的感觉特别的好。为什么会感觉特别好呢？因为在物理世界的感知，都是有限的存在，有限的生命-有限的时间-有限的感知；然而在高维空间里，感知是无限的，没有时间流失感、肉身束缚感等有限存在的感知。
+> “But the angel said to the women, ‘Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay.’” — Matthew 28:5-6
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 17, 2022](https://twitter.com/MarshaBlackburn/status/1515692439897612296?ref_src=twsrc%5Etfw)
 
-那么无论你是在物理世界还是高维空间，灵魂就是感知，感知就是意义。有感知有意义，无感知无意义。区别就是有限或无限的概念， 所以当下的感知可以改变过去，也可以改变未来。改变未来好理解，为什么还可以改变过去呢，因为感知只存在于当下，所以过去也是叠加态，宇宙就是叠加态。
 
-所有存在的意识，肉体，物体等等都是当下的相互作用力，都是互相被观察的对象，组成了当下。
 
-所有理论，宗教，风水，占星术等等，都是规范这个相互作用力朝着一个“好”的方向延展。
+**前国务卿迈克·蓬佩奥： **
+蓬佩奥全家祝您复活节快乐！ [#他复活了](https://gettr.com/hashtag/%23%E4%BB%96%E5%A4%8D%E6%B4%BB%E4%BA%86) [#HeIsRisen](https://gettr.com/hashtag/%23HeIsRisen)
 
-改变认知就是改变过去和未来的钥匙。不同的理解决定了不同的感知，决定了对过去和未来的理解。既是不同的体验，也是改变。
 
-不管是在有限还是无限的空间或时间里，至少证明时间是不存在的。感知就是一切。
 
-回到当下物理世界，从一个上帝视角看个体，一个人为什么会选择自杀，因为他(她）当下的感知否定了自己整个人生，并且突破不了自己的认知局限性，以为结束当下的感知体验就是结束一切。如果这时有个声音告诉他(她)，这并不是结束，你有可能还有无数次这样的经历，那么他(她)就会从改变认知的角度解决这个问题。那是不是真的有轮回，有天堂，地狱，高维，低维这些处在当下的你还没有感知到的事物呢？
+> Happy Easter from the Pompeo family! [#HeIsRisen](https://twitter.com/hashtag/HeIsRisen?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xL9LzI8A6M](https://t.co/xL9LzI8A6M)
+> — Mike Pompeo (@mikepompeo) [April 17, 2022](https://twitter.com/mikepompeo/status/1515777707975614468?ref_src=twsrc%5Etfw)
 
-肯定有，为什么？因为感知就是一切。有感知有意义，没感知没意义，因为有感知，所有那些东西肯定有。因为有，所以有。 所以，既然当下的感知才有意义。
 
-那么，处在物理世界，什么才是最高级别的感知体验呢？开悟。 像羞愧、有罪、冷漠、忧伤、恐惧、强烈的欲望、愤怒、傲慢、勇气、淡定、主动、宽容、理智、仁爱、喜悦、祥和等等是平等的，对这些感知的集合就是开悟。另外，处在当下，感知就是意义，感知什么才是有意义的？ 都有意义，不应该有层次之分。
 
-这不是一种追求，是认知。 感知是一切，认知是钥匙。 信仰就是造物主在不观察你的情况下，给你的一个方向。人在做，天不需要看。
+**众议员兰斯·古登： **
+今天，当我们庆祝耶稣基督复活的同时，他也提醒了我们信仰和家庭的重要性。 复活节快乐！
 
-感知当下是一切的意义。
 
-（本文内容皆为笔者个人观点，如有疑问欢迎探讨与指正）
 
-*审稿：Gradient*
-发布：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标-1.jpg)
+> Today we are reminded of the importance of faith and family as we celebrate the resurrection of Jesus Christ.
+> 
+> Happy Easter!
+> — Lance Gooden (@Lancegooden) [April 18, 2022](https://twitter.com/Lancegooden/status/1515858659590422531?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院：** 
+许多人道主义组织正在向受乌克兰危机影响的人们提供紧急援助。无论您身在何处，都可以通过以下方式提供帮助：
+
+
+
+> Many humanitarian organizations are providing urgent assistance to those affected by the crisis in Ukraine. Here are some ways you can help from wherever you are: [https://t.co/1ANlO5M6f8](https://t.co/1ANlO5M6f8)
+> — Department of State (@StateDept) [April 18, 2022](https://twitter.com/StateDept/status/1515842545879764996?ref_src=twsrc%5Etfw)
+
+
+
+**众议员玛乔丽·泰勒·格林： **
+亨特·拜登的笔记本电脑(内容)。 
+就要发布了。 
+内容是一个比一个的吓人。 
+但可能更让我困惑的是那些掩盖真相的人，他们对这一切都装作没事。 
+你怎么能这么做？ 
+怎么会有人这么做？
+
+
+
+> Hunter Biden’s laptop.
+> 
+> It’s about to be released.
+> 
+> The contents are one horror after another.
+> 
+> But what bothers me maybe even more are all the people that covered it up and are ok with it all.
+> 
+> How could you do that?
+> 
+> How could anyone do that?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1515869385684049920?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

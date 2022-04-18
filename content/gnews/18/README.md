@@ -2,58 +2,42 @@
 ---
 
 
-## 俄罗斯和中国的恶梦：英美科学家解密普京珍爱的战斗机
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2366050/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366282/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午12.40.12.png)图片：GETTY
-消息人士昨晚证实，英国和美国科学家正在分析俄罗斯最先进战斗机的秘密远程瞄准机制。
+整理：枳实
+美工：精灵蓝
 
-他们的发现可能会使西方与俄罗斯和中国进行空对空作战的方式发生 “巨大变化”。乌克兰军队两周前用短程导弹击落了苏-35S。乌克兰空军的专家们能够从其烧毁的残骸中找回重要的和迄今为止的机密内容，并通知英国情报部门。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
-这些系统被运到位于威尔特郡波顿唐的政府国防、科学和技术实验室（DSTL），那里的专家和来自美国空军的两名专家一起，花了十天时间对它们进行检查。
 
-初步评估被认为是非常有希望的，以至于这些系统现在已经飞往美国内华达州，进行更多的法医检查。
+雅典娜疫情更新（2022年 4月17日）
 
-这架被北约称为 “Flanker “的战斗机在4月3日在离乌克兰东部哈尔科夫约75英里的Izium附近被意外击落时，正在进行所谓的压制敌方防空（SEAD）行动。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-其飞行员在安全弹射后被俘。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2164.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2165.png)
+数据来源：
 
-Flanker相当于俄罗斯的F-35第五代多功能战斗机，目前由英国皇家空军和其他14个北约国家使用–尽管它不具备隐形技术。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-而北约大国得以能够检查其复杂的内部工作，将在俄罗斯的空军首长中引起惊愕，因为俄罗斯有47架。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-它也在中共国引起了震动，作为俄罗斯最大的国防伙伴，中共国现在拥有世界上第二大舰队，2015年与俄罗斯签署了一份价值20亿美元的24架战斗机的交易。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-尽管这架飞机被严重损坏，但消息人士称，目标系统的残留物足以进行详细分析。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-它不仅会使系统容易受到北约反措施的影响，而且还可能危及未来俄罗斯的武器销售–这是现金匮乏的俄罗斯的重要收入来源。
+[covidlive.com.au](https://covidlive.com.au/)
 
-DSTL的科学家们还在研究T-90坦克的残骸—这是俄罗斯最先进的作战坦克，安装了爆炸反应装甲和独特的防御性Shtora-1辅助系统—一个Buk导弹系统—2014年用于击落马来西亚航空公司MH17航班，以及一个Tor地对空导弹系统。
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-印度拥有2000架不同型号的T-90以及Buk，而伊朗在2020年1月使用Tor击落了乌克兰752航班。
+发布：tianzhihuan
 
-但最让人兴奋的还是那架价值5000万英镑的战斗机。
-
-RUSI智库的空中力量和技术专家Justin Bronk说。”任何检查被击落的苏-35上的雷达部件或电子战吊舱的潜在机会都是有价值的，因为即使被损坏，这些部件也可以证实或破坏现有的关于它们如何工作的情报评估。
-
-伦敦国王学院战争研究系的阿莱西奥-帕塔拉诺教授说：”SU-35S不是一个简单的无人机–它是一个复杂和非常先进的机器，花了几十年的时间来开发。一旦它的技术被盗，就不容易修复，你可以肯定，根据英国和美国的发现，俄罗斯将感到担忧。”
-
-他说，这种担忧将在莫斯科之外感受到。
-
-“检查这个系统不只是让NATO了解俄罗斯的能力。他补充说：”自从在乌克兰的行动开始以来，中国一直在担心，正是因为这可能发生。
-
-“由于中国对俄罗斯卖给它的所有东西都进行了逆向工程，它很可能将苏-35的元素纳入其其他本土的J级战斗机中，例如其优越的成都J-20。
-
-西方对中国的技术没有太多的了解，因此，在指挥和控制以及远程能力方面，这是一个独特的机会，有可能会产生巨大的差异。
-
-“例如，如果你知道一个系统运行的频率，你就可以破坏它。”
-
-原文链接：[Russia and China nightmare as UK scientists analyse secrets of Putin’s prized fighter jet](https://www.express.co.uk/news/science/1597094/Russia-fighter-jet-putin-latest)
-
-* * *
-
-*编辑&发布：长岛开心*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

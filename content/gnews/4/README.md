@@ -2,42 +2,34 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366282/)
+## 台湾军方无人机来自中共 暴露了台湾的系统问题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366508/)
 
-整理：枳实
-美工：精灵蓝
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
+作者：澳喜 – 追着曙光跑
 
 
-雅典娜疫情更新（2022年 4月17日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2164.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2165.png)
-数据来源：
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+4月16日，郭文贵先生在盖特直播中指出，他在14日爆料的中共把自己制造的无人机卖给台湾军方这一消息，在台湾引起了巨大震撼。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-145.jpg)
+郭先生继续明确宣布，他希望告诉美国政府、台湾的现任蔡英文政府以及所有台湾同胞，中国共产党先把无人机卖给了所谓的澳大利亚公司，然后澳大利公司又将其卖给了台湾军方。对此消息，他愿意承担一切法律责任。这事关台湾人民的安全，相关部门可以直接进行核实和确认。另外，中共的无人机能够卖给台湾军方，已经不单纯是无人机的问题，还暴露出台湾的整个系统出现了问题。 到目前为止，台湾的卖台贼仍然在不断地从中共政府谋取巨大的金钱和物质利益。我们需要让美国和全世界都知道卖台贼与中共的坑脏交易。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+参考链接：
+[4/16/2022 文贵直播：中共的目的是让李家超做香港特首，所以随着李家超的当选，香港的疫情会有所缓解；台湾军方能通过第三方购买中共的无人机，说明台湾的整个系统出了大问题。](https://gettr.com/post/p15lpv54fb7)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-[covidlive.com.au](https://covidlive.com.au/)
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-发布：tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

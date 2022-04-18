@@ -2,81 +2,42 @@
 ---
 
 
-## FDA和辉瑞知道新冠疫苗会导致免疫抑制（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2365968/)
+## 教皇感叹“战争的复活节”，马里乌波尔拒绝接受投降最后通牒
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366213/)
 
-翻译：Jenny Ball
+翻译：文扬
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2159.png)图片来源：Business Standard
+周日，乌克兰士兵抵制了俄罗斯发出的最后通牒——要求在马里乌波尔（Mariupol）被摧毁的港口放下武器，莫斯科称其军队几乎完全占领了该港口，这将是近两个月战争中最大的战利品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
+乌克兰总理丹尼斯·什米哈尔（Denys Shmyhal）表示，尽管俄罗斯要求在黎明前投降，但马里乌波尔的军队仍在战斗。
 
+他告诉美国广播公司的《本周》节目:“乌克兰士兵继续控制着乌克兰东南部城市的一些地区，该城市仍然没有沦陷。”
 
+俄罗斯周六表示，它控制了城市地区，一些乌克兰战士留在俯瞰亚速海的亚速斯塔尔钢铁厂(Azovstal)。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-191.png)Natali\_Mis/Shutterstock
+夺取顿巴斯地区的主要港口马里乌波尔将成为俄罗斯的一项战略奖励，它将东部亲俄分离主义分子控制的领土与莫斯科在2014年吞并的克里米亚地区连接起来。
 
-随着 2022 年 4 月 1 日发布的另一批 11,000 份辉瑞文件，过去的怀疑得到了新的支持。第一个重磅炸弹的启示是：自然免疫是有效的，辉瑞一直都知道这一点。
+在未能攻下北部的乌克兰抵抗之后，俄罗斯军方将其地面攻势重新集中在顿巴斯，同时保持对包括首都基辅在内的其它地方的远程打击。
 
-临床试验数据显示，既往感染过 COVID 的患者与接种疫苗的患者的结局没有差异。两组均未发生严重感染。
+自2月24日入侵开始以来，约有 400万乌克兰人逃离该国，城市被摧毁，数千人死亡。
 
-年轻人更容易出现副作用
+什米尔（Shmyhal）说经济损失也很严重，乌克兰的预算赤字每月约为50亿美元（68亿美元），并呼吁西方政府提供更多财政援助。
 
-第二个启示是，在 18 至 55 岁的年轻人中，注射的副作用比 55 岁及以上的人更严重。（副作用的风险也随着剂量的增加而增加，因此第二剂后的风险高于第一剂）
+沃洛季米尔·泽伦斯基（Volodymyr Zelensky） 总统在推特上表示，他已经与国际货币基金组织总裁克里斯塔利娜·格奥尔基耶娃（Kristalina Georgieva）讨论了确保乌克兰的金融稳定和战后重建的准备工作。
 
-正如“子栈”（Substack）上的“裸体皇帝”（The Naked Emperor）所指出的，“因为疫苗在年轻人中产生更频繁和更严重的反应和不良事件，所以，疫苗应该仅限于那些实际上有严重 COVID-19 风险的人。”
+早些时候，他在他的Telegram账户上发布了他所说的破坏图片，类似于第二次世界大战的“可怕时期”。
 
-辉瑞文件显示：心肌炎发病率高
+泽伦斯基说：“占领者将为他们在乌克兰所做的一切负责。”
 
-辉瑞的文件还包括被主流媒体和事实核查人员标记为错误信息或虚假信息的医疗信息。儿科同意书列出了几种可能的副作用，包括 100,000 人中有 10 人的心肌炎发生率——远高于之前报道的 50,000 人中有 1 人（即 100,000 人中有 2 人）的发病率。
+原文链接： [Russia-Ukraine war: Mariupol defies surrender ultimatum as Pope laments ‘Easter of war’ (afr.com)](https://www.afr.com/world/europe/mariupol-defies-surrender-ultimatum-as-pope-laments-easter-of-war-20220418-p5ae3y)
 
-我们还知道，心肌炎在年轻男性中更为常见，因此对他们来说，风险明显高于 10 万分之 10，因为他们构成了这些伤害的大部分。
+发布：tianzhihuan
 
-未排除抗体依赖性增强
-
-许多警告过 mRNA 注射可能导致抗体依赖性增强 (ADE) 的人——在这种情况下，你最终比其他情况更容易受到严重感染——被媒体抹黑和妖魔化，并被贴上虚假信息的标签。
-
-然而，辉瑞自己的同意书明确指出：“尽管迄今为止没有看到，但仍不能排除所研究的疫苗可以使后来的** COVID-19 **疾病更加严重。”如果 ADE 真的完全无关紧要，那么同意书就不会包括它。然而它就在那里。
-
-疫苗相关增强疾病 (VAED) 也被列为“重要的潜在风险”
-
-截至 2021 年 2 月 28 日，辉瑞有 138 例疑似 VAED 病例，其中 75 例严重，导致住院、残疾、危及生命的后果或死亡；共有 38 起案件被证明是致命的，65 起仍未恢复。
-
-此外，正如每日曝光（Daily Expose）所指出的，“第 3 阶段临床试验旨在在疫苗被批准使用之前发现频繁或严重的副作用，包括 ADE。但这就是问题所在，因为COVID-19 疫苗都没有完成 3 期试验。”
-
-辉瑞的 3 期试验将于 **2024 **年** 2 **月** 8 **日完成——距现在近两年！尽管如此，辉瑞在其 FDA 提交的文件中得出结论，“75 例病例中没有一个可以被明确视为 VAED。”
-
-换句话说，辉瑞公司知道，在注射后的第一周，所有年龄段的人都会在第一次注射后经历短暂的免疫抑制，或者换句话说，免疫系统会暂时减弱。
-
-正如艾弗森（Iversen ）所指出的，这可能导致感染率出现偏差，因为人们直到第一次注射后** 14 **天才被认为是部分接种了疫苗，而在第二次注射后两周才正式完全接种了疫苗。
-
-如果人们在第一周内容易感染，但在此期间被计为未接种疫苗，这使得看起来好像未接种疫苗的人更容易感染，但事实并非如此。辉瑞自己的试验表明，在接种疫苗后最初 7 天内，疫苗组的感染率明显高于安慰剂组——409 比 287。
-
-完全接种（Vaxxed）更有可能死于 COVID
-
-辉瑞公司和美国FDA意识到：注射导致免疫抑制的事实是有罪的，因为英国政府的数据显示，与未接种疫苗的人相比，接种两剂疫苗的人：
-
-- 被诊断为 COVID-19 的可能性高达三倍
-- 因 COVID-19 住院的可能性增加两倍
-- 死于 COVID-19 的可能性高出三倍
-
-
-更详细数据请见文章后半部分
-
-FDA和辉瑞知道新冠疫苗会导致免疫抑制（2/2）
-
-新闻来源：[fda and pfizer knew covid shot caused immunosuppression](https://www.theepochtimes.com/fda-and-pfizer-knew-covid-shot-caused-immunosuppression_4404366.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-04-17&amp;utm_medium=email&amp;est=GbeDZmebizITlf5TVKVNTuqfCxx4ju73cd1y%2FU1E%2Fczbs8JTBGXaZTYioWjx8scIvQkNSA%3D%3D)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

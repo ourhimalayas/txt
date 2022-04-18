@@ -2,12 +2,29 @@
 ---
 
 
-## 中共很清楚美国反对什么并制造了可能作为生物武器的病毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2365727/)
+## 特鲁多政府力推互联网审查制度
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365973/)
 
-04/15/2022 彼得·纳瓦罗博士：中国共产党很清楚我们反对的是什么，因为在托尼·福奇的资助下，中共在武汉病毒研究所制造了这种病毒，很可能是一种生物武器。
+采编：加拿大温哥华扬帆农场 – 文莱
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编译撰稿：加拿大温哥华扬帆农场 – 重生之鹰
+
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2155.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
+
+
+
+
+据加拿大《真北方》4月13日报道，在自由党政府长期推动的网络审查法案因特鲁多在2021年秋季的全国选举而被迫暂停后，目前又被当局重新提上了议会日程。
+
+报道称，特鲁多政府本次重新推出的最新网络审查法案包括C-11和C-18两项内容。在新的审查制度下，该国所有大型科技及社交媒体平台都将被迫推广政府所定义的有关加拿大的新闻内容，并为在互联网上分享的时事文章向主流媒体付费。
+
+有评论指出，该法案的出台不仅标志着加拿大的各网络平台都将成为政府的附庸和传声筒，而且该国所有自媒体也都将毫无自由和公正可言。因此，这是对加拿大宪法的恣意践踏。
+
+校对编辑：硫酸羟氯喹64
+
+新闻来源：[https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
 
  
 
