@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 11:13 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月17日第44天当日救援统计：<br/>Medyka救援站接待：约285人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12489人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 44 - Date: April 17, 2022 :<br/>Medyka Rescue Station Reception: about 285 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12489 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group14/getter/2022/04/18/23/2bca2553-36f0-fd47-0b1e-af2ed53f9f04/e117f7d208576342d15b58acdbfc8bd8.jpg)
+
+---
+
 `@miles 4/18/2022 11:02 PM (UTC)`
 
 2022.04.18 NFSC news  Ukraine Says Captain of Sunken Russian Warship Moskva ‘Killed in Explosion.’
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】04/15/2022 A couple from New Mexico in the US quit their job and come to the front line rescue with a lot of materials. They denounce Putin's atrocity to the Ukrainians and support our efforts to take down the CCP because the Chinese have been under the CCP’s oppression for so long. Also, China's a world power and the fate of Chinese people impacts the fate of all mankind.<br/><br/>【乌克兰救援】04/15/2022 一对来自美国新墨西哥州的夫妇辞去工作准备了大量物资来到前线救援，他们谴责了普京对乌克兰人的暴行，并支持我们推翻中共，因为中国人长期受到中共的压迫，中国是大国， 中国人的命运涉及到全人类的命运。
 ![img](https://media.gettr.com/group23/getter/2022/04/18/05/170ce88f-efc3-8f97-0ad1-41b22f66db14/out.jpg)
-
----
-
-`@miles 4/18/2022 5:07 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group48/origin/2022/04/18/05/f85b034f-adb5-61ab-08b6-87c369e13ceb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

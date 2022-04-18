@@ -2,24 +2,22 @@
 ---
 
 
-## 中共国将在有争议的东海和南海部署最先进战斗机
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2368987/)
+## 俄军突袭世界遗产名城利沃夫造成平民死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2369111/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-19-003242.jpg)
-据中共媒体《环球时报》报道，歼-20 隐形战斗机将开始部署， 作为训练课程 的一部分 。一位中共国上校说，这些部署确保了中共军队 “准备好了，有能力挥舞它的剑”。
+撰稿：西枫westca
 
-歼-20 最初是使用俄罗斯的发动机，后来在中共国进行了反向工程和改进。 这使得中共能够在国内生产这种飞机。它似乎是为了与美国的F-22和F-35相抗衡。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-2-1.jpg)图片来源：网络照片
+据《The Guardian》 4月18日报导，俄军突袭乌克兰东部城市利沃夫，目前统计已造成7人死亡、11人受伤。
 
-4月早些时候，中共向塞尔维亚交付新的导弹系统时也做了类似的努力。那次，六架中共军用飞机飞过北约领空。其中一些飞机去掉了它们的烟尘和信号弹反制装置，这帮助躲避导弹攻击的防御系统。很显然这是为了表明它们已经准备好参与俄乌冲突。
+利沃夫市长 Andriy Sadovyi 说，“侵略者正在实施种族灭绝行为。他们正在杀害无辜的平民” 。并表示乌克兰不再有任何“安全”或“不安全”的地区。市长还说，看看马里乌波尔发生了什么？数以千计的无辜者被杀害。俄军试图通过追捕平民来恐吓乌克兰，我们在布查和霍斯托梅尔已看到了极为恐怖的场面。
 
-然而，中国共产党的拍胸脯也不是没有风险。歼-20的部署可能意味着中共军队将进行更长时间的部署和更远距离的巡逻，这可能使他们与美国军队发生更多的亲密接触。
+四枚俄罗斯远程导弹击中乌克兰西部城市利沃夫，其中一枚击中利沃夫的一家车库和轮胎修理店。至少有 7 人丧生，11 人受伤，受害者中有一名儿童，设施遭到严重破坏。
 
-从反面看，这个机会也将为美国及其盟友提供机会收集关于歼-20的重要数据，从 而为发现其弱点提供宝贵的见解，并在必要时在战斗中最终击败它。
+利沃夫是一座被联合国教科文组织列为世界遗产的城市，以其巴洛克式和新古典主义建筑而闻名。 目前是乌克兰其他地区因战斗而流离失所的数十万人的临时住所。它也是西方通过波兰运送武器的后勤枢纽。这次袭击警告人们，即使俄军把战役重点重新集中在乌克兰东部，但是整个乌克兰仍将处在威胁之中。
 
-歼-20有那么牛叉吗？又一个打台湾的迹象。
-
-**新闻来源**：[https://www.theepochtimes.com/china-to-deploy-most-advanced-fighter-to-disputed-east-and-south-china-seas\_4406687.html](https://www.theepochtimes.com/china-to-deploy-most-advanced-fighter-to-disputed-east-and-south-china-seas_4406687.html)
+**新闻来源：**[Russia fires missile barrage at Ukraine in ‘softening up’ before eastern push | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/18/lviv-mayor-accuses-russia-genocide-missiles-strike-city-ukraine)
 
  
 
