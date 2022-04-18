@@ -2,21 +2,22 @@
 ---
 
 
-## 雅典娜时报-第266期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365207/)
+## 既然怎么努力战争也都不可避免了，那么，乌克兰的民众也只能从容面对。这位美丽可爱的乌克兰小女生在防空洞里唱起“Let it go”，以设法缓解压抑的气氛，安抚那些心情紧张的人们。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2365233/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+作者：东京樱花团小视频组
 
-#### 编辑：精灵蓝
-排版：0-0
-![圖片](https://media.discordapp.net/attachments/825592691433668612/965162838928814080/1_2.jpg)![圖片](https://media.discordapp.net/attachments/825592691433668612/965162839197233152/2_2.jpg)
-*发布：陶子*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
+
+
+
+
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
