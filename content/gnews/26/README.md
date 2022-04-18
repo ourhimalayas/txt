@@ -2,33 +2,42 @@
 ---
 
 
-## 喜联储创始人谈加密货币在危机中的巨大作用
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366274/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366282/)
 
-作者：麗子
+整理：枳实
+美工：精灵蓝
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
 
 
-4月17日，郭文贵先生在盖特中发布了一段视频，喜马拉雅交易所创始人之一余建明先生几天前接受了英国媒体GBNEWS的专访。
+雅典娜疫情更新（2022年 4月17日）
 
-余先生以加密货币在俄乌战争中救助乌克兰民众发挥的巨大作用为例，畅谈了在新的邪恶轴心势力日益猖獗的当下，以及各种危机频频发生的将来，加密货币如何有望成为帮助普通大众摆脱专政独裁政权有效工具。具体内容请观看以下视频。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-30.jpg)
-视频链接： [喜联储的创始人William Je余建明接受英国GB News的采访，关于虚拟货币是怎样有助于对乌克兰的救援活动。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。](https://gettr.com/post/p15odj40684)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2164.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2165.png)
+数据来源：
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
+[covidlive.com.au](https://covidlive.com.au/)
 
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

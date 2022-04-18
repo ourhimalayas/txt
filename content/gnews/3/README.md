@@ -2,31 +2,30 @@
 ---
 
 
-## 4.19 断播后续
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2366669/)
+## 乌克兰总统和国际货币基金组织总裁讨论“战后重建”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2366673/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_7-4.png)
+**翻译：文舞两道**
 
-2017.4.19， 断播引发灭共潮
-世人皆问他是谁，为何共匪陷恐慌
-汹汹涌涌人来聚，围绕文贵爆料忙
-爆料革命横出世，一呼百应声远扬
-转眼又到4.19 ， 时移事易出联邦
-英才迭出我辈人，正道主义响当当
-去日无多共产党，可曾悔断当日肠
+据路透社华盛顿17日消息，乌克兰总统泽连斯基在推特发文称，他与国际货币基金组织（IMF）总裁格奥尔基耶娃通电话，讨论确保乌克兰金融稳定和“为战后重建做准备”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8783034F-C875-4408-AA52-3A900ECADCA4.jpeg)
+泽连斯基说“我们有明确的计划和明确的前景，我们相信国际货币基金组织与乌克兰之间的合作将非常有意义”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+乌克兰总理 Denys Shmyhal 表示有意参加本周在华盛顿举行的国际货币基金组织和世界银行举行的会议，以请求进一步的财政援助。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+**信息来源：**
 
+[ウクライナ大統領、ＩＭＦ専務理事と「戦後復興」巡り協議](https://news.yahoo.co.jp/articles/a57ca824284ba9e6364e8b1f858afd365803e1ba)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220418
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
