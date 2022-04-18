@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|中共用中欧班列帮助普京
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368532/)
+## G系列媒体平台必须坚持做正义媒体
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2368627/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在4月15日的盖特直播中郭文贵先生透露，中共正在利用中欧班列运输战略物资和石油，帮助俄罗斯规避制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323100.jpg)
-郭先生介绍，近期中欧班列的频率明显提高，向俄罗斯运去他们需要的战略资源，并从俄罗斯运回石油。
+作者：文真
 
-分析人士指出，中共国近日调低成品油价格，表面的理由是美国释放战略石油储备，背后的原因是中共从俄罗斯进口了大量石油。
+郭文贵先生在2021年4月19日直播中，通过回顾爆料革命的“4.19”事件，特别强调媒体在当今国际政治、经济等领域的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-1-2.jpg)
+郭先生首先爆料，美国限制媒体交叉持股和垄断的法律完全失控，已经从过去的真正的自由灯塔，沦落为现如今的黑暗灯塔。黑暗灯塔第一个表现就是媒体和社交媒体，实际已经由五大家族完全控制。爆料革命开始以来，中共通过渗透收买西方媒体，不断造谣和抹黑郭文贵先生，操纵和控制了世界的法律和正义。
 
+郭先生强调，媒体拥有定义权和定价权，是比核武器强大的力量。历史上从来不存在“中立”媒体。G系列媒体平台——GNews、GTV和盖特，应势而生、应需而生，不仅是能让中国人自由发声的平台，而且是保障中国人在海外正义、安全和利益的唯一平台。G系列媒体平台要生存下去，必须坚持正义的媒体。
 
+随着人类进入最伟大的科技时代，G系列媒体平台将充分融合新一代高科技。让我们重温郭先生在去年“4.19”直播中，对G系列媒体平台的展望。
 
+参考链接：[全文字版2021年4月19日419断播四周年郭文贵先生G-TV直播](https://gnews.org/zh-hans/1125087/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-文字版原文：[中共用中欧班列帮助普京](https://gnews.org/zh-hans/2363827/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：文真
+编辑：Jack Li文阳
+审核：Ivy001
+校正/发稿：Fei797
 
  
 

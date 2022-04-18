@@ -2,47 +2,26 @@
 ---
 
 
-## 有声|俄罗斯在乌克兰的目标没有改变
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368501/)
+## 回顾“4.19”VOA断播事件 认清中共特务龚小夏
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2368517/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月17日，据《欧洲真理报》援引英国情报部门的消息报道，俄罗斯入侵的作战重心已经转移到乌克兰东部，但俄罗斯的最终目标没有改变。
-![](https://chinese.aljazeera.net/wp-content/uploads/2022/04/image-8-4.jpg?resize=770%2C513)
-俄罗斯军队继续将人员和军事装备从白俄罗斯转移到乌克兰东部。据英国情报机构称，这些地点包括哈尔科夫和北顿涅茨克附近的地点。
+作者：文真
 
-俄罗斯导弹继续袭击该国东部的乌克兰阵地，俄罗斯计划在那里恢复进攻。
+2017年4月19日，经VOA多次邀请之后，郭文贵先生接受了VOA中文部龚小夏团队的采访。在接受VOA采访前，中共高层多次警告和威胁郭先生，试图阻止他接受采访，并且，郭先生在国内的亲人和员工也因此再次遭到中共拘禁。 “4.19”之后，郭先生开启的灭共之战，正式登上了国际舞台。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-1-1.jpg)
+震惊中外的“4.19“VOA断播事件的策划者是中共特务龚小夏，她原本精心准备了采访，想钓鱼郭先生，企图打探到郭先生手上到底有多少中共高层，尤其是王岐山的大料。不料反被郭先生借力打力，成了爆料王岐山的绝好机会，眼看事情弄巧成拙的龚小夏，被迫终断直播，因此成就了爆料革命最早的里程碑——”4.19”断播事件。
 
-与此同时，虽然俄罗斯的作战重心已经转移到了乌克兰东部，但俄罗斯的最终目标却没有改变。
+“4.19“VOA断播事件把爆料革命和西方世界联系在一起，让西方世界开始重视中共的大外宣在西方媒体的渗透。“4.19“VOA断播事件撕下了海外伪民运”反共“的伪装，并暴露了中共在海外布置的沉默力量。
 
-英国国防部声明中说：“它试图迫使乌克兰放弃其欧洲-大西洋定位，并建立自己的地区主导地位。”
+参考链接：
+1. [起底伪类、中共特务龚小夏！](https://gettr.com/post/p157ncw263b)
+2. [VOA“419断播门”，龚小夏偷鸡不成蚀把米](https://gettr.com/post/p15nxgkb6fc)
 
-据报道，美国已敦促其盟国向乌克兰提供更多的导弹和弹药，预计未来几天俄罗斯将加强进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-
-
-
-
-
-
-文字版原文：[俄罗斯在乌克兰的目标没有改变](https://gnews.org/zh-hans/2363565/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：文真
+编辑/审核：Ivy001
+校正/发稿：Fei797
 
  
 

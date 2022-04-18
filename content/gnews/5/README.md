@@ -2,12 +2,24 @@
 ---
 
 
-## 世界各地的年轻人现在非常反对中共国的侵略
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2368741/)
+## 2022年4月18日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2368761/)
 
-【乌克兰救援】04/17/2022 这位记者说，中共正在用金钱控制一些非洲国家，购买他们的自由，年轻人非常痛恨中共，因此新中国联邦推翻共产党的理念一定会得到全世界，尤其是新生代的支持，他衷心希望新中国联邦能够取代中国共产党。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1159-1.jpg)
+
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
 
  
 

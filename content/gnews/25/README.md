@@ -2,33 +2,39 @@
 ---
 
 
-## 澳大利亚法律专家团队加入俄罗斯侵略乌克兰战争罪的取证
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2368411/)
+## 有声|新中国联邦的救援被全球越来越多人认识
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368432/)
 
-#### 澳洲新闻时事动态，尽在雅典娜
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月15日，一位来自巴西的自媒体人来到波兰前线新中国联邦救援营地的大帐篷中。当他知道我们能够在两天之内建起了整个营地最大、设施最完善的帐篷时，他惊叹于新中国联邦和法治基金的强大财力和义工们一流的素质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323101.jpg)
+看到他对中共的邪恶有所了解但并不深入，妮可战友向他详细介绍了中共和中国人的区别，告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起，中共不能代表中国人。还向他介绍了推特和Facebook在中共的控制下对新中国联邦的封杀，以及我们的新社交媒体——盖特。
 
-翻译：Mttfly
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2232.png)
-据澳大利亚人报当地时间2022年4月18日报道，一个澳大利亚法律专家小组加入了全球搜集俄罗斯在乌克兰的战争罪证的行动。该行动所取证据用以提交国际刑事法院。
+他表示，他一定会在巴西帮助传播新中国联邦。
 
-墨尔本律师William Lye QC和其他九位专家正在对已抵达澳大利亚的近2500名乌克兰难民进行采访，并收集俄罗斯暴行的实物证据和受害者陈述等。Lye团队的调查结果将提交给国际刑事法庭首席检察官Karim Kahn QC，以构成正式调查的一部分。
 
-“我的办公室已经发现了合理的依据，认为发生了该法院管辖范围内的罪行，并且已经确定了可以受理的潜在案件”，Khan先生办公室的一份声明说。
 
-虽然乌克兰和俄罗斯都没有加入《国际刑事法院罗马规约》。然而，基辅已经授予国际刑事法院管辖权，以调查在乌克兰领土上发生的任何潜在的种族灭绝罪、反人类罪或战争罪。
 
-国际刑事法院的调查将审查俄罗斯从2013年开始在该地区的活动，包括俄罗斯于2014年吞并克里米亚一事。
 
-起诉普京将是一项复杂的任务，因为国际刑事法院不对被告进行缺席审判。Lye先生表示，更可行的目标可能包括较低级别的官员，如监督当地暴行的将军和军士。
+文字版原文：[新中国联邦的救援被全球越来越多人认识](https://gnews.org/zh-hans/2363786/)
 
-参考新闻：[澳大利亚法律专家团队加入为俄在乌犯下战争罪取证](https://cn.theaustralian.com.au/2022/04/18/65810/)
-发布：tianzhihuan
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
