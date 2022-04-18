@@ -2,40 +2,25 @@
 ---
 
 
-## 有声|俄罗斯从莫斯科驱逐18名欧盟外交官
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368649/)
+## 有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2368578/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月15日外媒报道，俄罗斯于当日驱逐了18名欧盟外交官，以报复欧盟本月早些时候将19名俄罗斯人列入不受欢迎名单的决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323098.jpg)
-俄罗斯外交部发表声明表示，已召见欧盟驻俄罗斯大使马库斯·埃德勒，并向他递交了一封抗议信，指责欧盟应对数十年来形成的双边对话与合作架构的持续破坏负责，并要求欧盟外交官必须尽快离开俄罗斯。
+By:**秘翻新闻**
 
-欧盟驻俄罗斯代表团在一份声明中表示，它对俄罗斯毫无根据的举动表示遗憾，并指出俄罗斯选择的行动方针将使其在国际上更加孤立。
+**2022-04-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-51.png)
+据[中共媒体搜狐新闻](https://www.sogou.com/link?url=hedJjaC291Ok-E9WTygIKgF5Y3bVGKs-v_ReVQuCit4FdoHxUPW6pw)4月17日报道，日前，沈阳一位靠捡垃圾维生的拾荒人员，因在疫情期间翻捡垃圾而被当地城管处以罚款处罚。这是沈阳对翻捡垃圾行为开出的首张罚单。
 
+4月15日，沈阳市皇姑区执法分局北塔执法科执法人员在辽河街巡查中发现，有人正在辽河街15号一单元门前的垃圾堆中翻扒垃圾袋。执法人员依据《沈阳市城市垃圾管理规定》，以疫情期间翻扒垃圾易传播病毒为由，对当事人现场罚款20元。
 
+据悉，这位拾荒人员58岁，是沈阳市常住居民，常年在皇姑区辽河小区等园区翻捡垃圾、拣拾纸壳等物品。
 
+秘翻新闻 菜园子编译报道
 
+发布 : 恩典
 
-文字版原文：[俄罗斯从莫斯科驱逐18名欧盟外交官](https://gnews.org/zh-hans/2363900/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

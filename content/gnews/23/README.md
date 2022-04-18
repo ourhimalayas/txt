@@ -2,30 +2,33 @@
 ---
 
 
-## 美日等国善待从中共国上海出逃的人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2368931/)
+## 2022/04/18 文贵先生蓋特
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2368923/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/333.jpg)
-4月18日郭先生发布盖特视频。郭先生透露，中共在上海的暴力防疫发生之前，曾经提醒友人和战友迅速离开，但是他们依然留在上海，直到中共的大隔离政策让很多人的家人去世，才终于认清了中共国的丑恶面目，在上海大隔离期间打算出逃。据郭先生透露，有人为了出逃上海，花费了几百万人民币现金。其中还有一个我们的战友，花费一千万，帮助十个人出逃成功。目前到达日本的光是战友，数量都已经将近两千人了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6WQFWE5EUJEBXNVXTKRDOSXJLI6.jpg)
+链接：[https://gettr.com/post/p15wbxu0c9c](https://gettr.com/post/p15wbxu0c9c)
 
-从中共国上海出逃到达美国的人，有的人签证过期了，美国边境在了解情况以后准以放行，给予六个月的停留期。还有的家人在美国，入境后只需要填一个表，可以无限期留在美国。到达日本的上海人，也基本上允许入境。日本在上海一家小工厂的老板几乎将上海高管全部转移到了日本。而在中共国内的驻美和驻日大使馆内，美国人和日本人都没有食物，忍饥挨饿，生命垂危。美日等民主国家对待中国人的方式，和中共对待美国人和日本人的方式形成了强烈的比照。
+- 收到大连、海口、哈尔滨、青岛大量战友信息，类似的苦日子还会再来。中共将以“清零”为幌子，真正目的–打疫苗。
+- 前段时间高层内部战友透露–可能上海会解封，七哥预计上海不会解封，中共尚未计划好如何编制各种灾难数据，负责部门–清理管理委员会。
+- 习非常想折腾上海，针对韩正悄悄乘火车回上海探望江泽民和朱镕基等上海老同志，习不放心。
+- 上海有人（有权有钱）花几百万人民币现金出逃上海，多数逃往美国、英国、加拿大。某战友花1000万十人乘坐私人飞机逃到美国，虽签证过期依然放行允许呆6个月，重新认识中共的邪恶，凸显中美之间相互对待彼此差距巨大。
+- 上千计战友逃往日本，日本基本全部放行。某战友几乎带着全部员工“投靠”日本。
+- 中共公布的4.8%经济增长是假的，实际情况绝对负增长。各地清零政策–清除“累赘”人民。
+- 俄乌战局最终将100%导致俄罗斯解体–欧洲重建–中共打台–中共崩塌。
 
-新中国联邦站出来灭共，同时以身示范那些被救的中国人，不要再懦弱，要站着活。
 
-撰稿、发布：骄子
+*听写：call me uncle / PR: 樂禧禧*
 
 * * *
 
-欢迎订阅我们的GNews账号：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
