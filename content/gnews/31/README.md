@@ -2,40 +2,30 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（4月11日-4月17日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366322/)
+## 台湾网红全家确诊疑未通报学校引发校内家长强烈不满
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366465/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 【雅典娜快讯，紧贴时代脉搏】
 
+翻译：li yan li
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-23.png)
+4月17日，据台湾“中时新闻网”报道，岛内知名代购直播主“Halo-Mavis国际联机”夫妻档，本月13日开直播宣布确诊，而小孩随后也收到采检阳性通知。有学校家长怒指，夫妻俩早知全家确诊，却疑似延迟通报学校，使其他不知情的同学因此照常到校上课。如今疫情在该校扩散，引发许多家长不满。
 
+报道称，台湾直播主夫妻的孩子就读于台北市某贵族学校，该校家长爆料，早在本月13日夫妻俩就知道全家确诊，但似乎没有马上通知学校，导致隔天其他家长们还冒着大雨送小孩上学，校内也没清消，之后学校家长突然收到匡列通知，并且看了新闻报导才知直播主夫妻档跟小孩都确诊了，紧急冲去学校将孩子接回家隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+中共发布此类消息，恐有渲染明星和普通人仇恨的意味，以此转移民众视线。Halo-Mavis夫妻档14日开播，强调没人希望自己生病，更不希望自己生病还牵连别人生病。
 
+面对舆论，Halo-Mavis夫妻16日又开直播，坦言有需要致歉之处，毕竟因为自己的关系，不小心也牵连小孩确诊，孩子再去学校增加了风险，而后续包含停课等影响很大，夫妻俩都感到很对不起。 “我们每个人都是第一次，我们也没有遇到过这种紧急状况”，盼家长们能够理解。
 
+新闻链接：[台湾网红全家确诊疑未通报学校 引发校内家长强烈不满](https://www.huaxia.com/c/2022/04/17/1092165.shtml)
 
-过去一周，喜马拉雅币价格小幅回落至40美元左右，平均日交易量约9万枚喜币。喜币上市以来总交易量约3520万枚 ，占今年总发行量的仅约3.52%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11.1-1.jpg)
-最近美国财政部长耶伦发表了针对数字资产的讲话，其讲话的主要重点体现出美国政府对数字货币的监管政策与喜币的设计特征一一对应。本周二，比利时总理主动与新中国联邦战友合影，在外交上默认了新中国联邦消灭中国共产党的合法性。郭先生在盖特视频中透露，全球有越来越多的国家支持新中国联邦，未来喜币将成为全世界最流行、最早的数字法币。而人民币将在全世界被认定为犯罪的货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5e78632a0f4d6e383f12841691acc52b.jpg)
-另外，喜联储主席William先生近日接受英国GB NEWS采访表示，加密货币的发展趋势不可阻挡，虽然目前各国政府对加密货币的监管越来越严格，但对行业整体发展是有利的。加密货币转账方便快捷，在俄乌战争中救援中发挥了巨大作用，目前乌克兰已经收到了超过1亿美元的加密货币捐款。加密货币是人们逃离独裁统治压迫的重要手段，未来加密货币市场还会持续增长。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-31.jpg)
-参考链接：
-1. [喜币成为全世界最流行、最早的数字法币 PPT](https://gettr.com/post/p15gmbxc349)
-2. [2022年4月12日 #乌克兰救援 前线：比利时首相亚历山大·德克罗，听妮可战友介绍新中国联邦救援信息及消灭共产党等目标后，对新中国联邦的付出表示感谢并主动提出要与战友合影。](https://gettr.com/post/p14wtki4977)
-3. [4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](https://gettr.com/post/p14y3tsd6bc)
-4. [#HimalayaExchange’s founder, @WilliamJE\_Real , shares his thoughts on the role of #cryptocurrencies during the Ukraine-Russia conflict.](https://twitter.com/himalayaxchange/status/1514298532160753672)
-5. [喜交所官网：HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+发布：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,47 +2,44 @@
 ---
 
 
-## SpaceX火箭成功将第二颗美国间谍卫星送入轨道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366859/)
+## 上海学生微博发帖向求救 中共封控制造人道灾难
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2366981/)
 
-翻译：文乐
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午4.27.43.png)图片来源：互联网
+一位微博网友”救救上海学生“微博[发贴](https://weibo.com/7755232634/Lp0QWio9A)向社会求救：”救救我们SOS！！！“。（原博文已被删除）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
+根据博文描述，上海一批东华大学学生从3月28日至4月5日封闭在校隔离超过7天，接着4月5日晚突然接到通知被强制到江浙隔离，隔离命令由疾控中心下发，但并未告知学生原因，于4月6日凌晨五点到达浙江建德隔离点。
+
+从4月6日至4月20日期间，学生们每天凌晨4：30起床接受核酸检查，连续十四天全阴性，行程码不带“\*”。
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午4.32.16.png)图片来自微博网友“救救上海学生”
+**校方态度出尔反尔。**校方方面最初表示可以让学生回家（户籍不在上海），并于4月15日下发返乡备案文件，4月17日校方态度一百八十度大转弯，通知学生必须返回上海，学生积极沟通无果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-192.png)SpaceX的发射项目是2019年空军以2.97亿美元的总固定价格与SpaceX签订的三项合同之一
 
-官员证实，周日上午，美国国家侦察局(NRO)的一颗机密卫星用可重复使用的 SpaceX Falcon 9 火箭成功发射到太空。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午4.34.06.png)图片来自微博网友“救救上海学生”
+**学生质问校方**。第一、上海每天新增过两万，风险程度大家都看得出来，大部分学生户籍所在地也都不是上海，冒着再次密切接触感染的风险把学生接回上海是为了什么？
 
-NROL-85 卫星于当地时间上午 6 点 13 分从加利福尼亚州范登堡太空部队基地发射升空。[NRO在一份声明中说，](https://www.nro.gov/Portals/65/documents/news/press/2022/NROL-85%20%20Press%20Release_17April22.pdf)周日的发射是 NRO 首次重复使用之前发射到太空的火箭助推器。
+第二、学校物资紧缺，生活基本用品如卫生巾和药品得不到保障，在校十几人共用一个卫生间，交叉感染的可能性更大，在校隔离的同学甚至已经接近20天没有洗澡，现在遣返是为了什么？
 
-NRO 仅将 NROL-85 卫星描述为“关键的国家安全有效载荷”，这是今年与 Spacex 一起发射的第二颗卫星。
+第三、学生定义为流调筛查，甚至不是密接，在校隔离超过7天，在浙隔离满14天，作为一个健康阴性个体，要求返家而非返沪这一诉求不合理吗？
 
-[据埃隆·马斯克](https://www.spacex.com/vehicles/falcon-9/)的航空航天公司 Spacex 称，它总共发射了 147 枚 Falcon-9 火箭，其中 107 枚已经着陆。总共有 87 枚火箭被重新发射，其中包括 2017 年第二次使用的第一枚火箭。
+第四、没有接到相关政策的官方通知，我们了解信息的渠道甚至是酒店工作人员的微信，各部门踢皮球，上海市政府和地方政府口径不一，部门电话打不通，接通的甚至不了解学生情况，这就是政策透明吗？
 
-猎鹰的第一阶段飞回并降落在洛杉矶西北部的海边基地。
 
-这次发射是空军在 2019 年以 2.97 亿美元的总固定价格与 SpaceX 签订的三项合同之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午4.38.51.png)图片来自微博网友“救救上海学生”
+该博主还发布上海其他高校学生的反馈情况，[博文](https://weibo.com/7755232634/LoZeOzkVO)写道：”事实可能远比我们预想的更糟，部分学校甚至开始征用中小学教室，真的有足够多符合条件的单人间用来隔离吗？有同学是在接回学校的大巴上感染的，这就是所谓闭环管理吗？上海疫情防控发布会称支持有意愿返乡的人返乡，而我们有意愿也有条件可以返乡，为什么不行，大学生更好控制吗？
 
-NRO 是负责建造和发射美国卫星的政府机构，这些卫星向立法者、情报机构和国防部提供情报数据。
+对于评论区一些言论，我只想说鲁迅先生讲过：“做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟还有挣脱的希望；若是从奴隶生活中寻出美来，赞叹、陶醉，就是万劫不复的奴才了！”
 
-新闻来源：[spacex falcon-9 rocket successfully launches second us spy satellite into orbi](https://nypost.com/2022/04/18/spacex-falcon-9-rocket-successfully-launches-second-us-spy-satellite-into-orbit/)
+参考链接：
+
+【1】[North Korea tests new weapon ‘to improve tactical nukes’](https://www.bbc.com/news/world-asia-61133225)
 
 * * *
 
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+*编辑&发布：长岛开心*
 
  
 

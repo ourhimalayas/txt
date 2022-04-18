@@ -2,58 +2,59 @@
 ---
 
 
-## 俄罗斯和中国的恶梦：英美科学家解密普京珍爱的战斗机
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2366050/)
+## 哈尔滨封城如约而至,大连和青岛正进行封城前舆论预热
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2366054/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-下午12.40.12.png)图片：GETTY
-消息人士昨晚证实，英国和美国科学家正在分析俄罗斯最先进战斗机的秘密远程瞄准机制。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/青岛大连_副本.png)
+哈尔滨封城公告已经如约而至，那么青岛和大连的情况如何呢？
 
-他们的发现可能会使西方与俄罗斯和中国进行空对空作战的方式发生 “巨大变化”。乌克兰军队两周前用短程导弹击落了苏-35S。乌克兰空军的专家们能够从其烧毁的残骸中找回重要的和迄今为止的机密内容，并通知英国情报部门。
+据[大连今日开展全员核酸！不参加者将赋黄码！如果变成黄码了如何解除？](https://baijiahao.baidu.com/s?id=1730405783382539905&amp;wfr=spider&amp;for=pc)（大连本地宝官网发布时间: 2022-04-18 08:59）
 
-这些系统被运到位于威尔特郡波顿唐的政府国防、科学和技术实验室（DSTL），那里的专家和来自美国空军的两名专家一起，花了十天时间对它们进行检查。
+今天大连全域内要开展
 
-初步评估被认为是非常有希望的，以至于这些系统现在已经飞往美国内华达州，进行更多的法医检查。
+新一轮区域核酸筛查！
 
-这架被北约称为 “Flanker “的战斗机在4月3日在离乌克兰东部哈尔科夫约75英里的Izium附近被意外击落时，正在进行所谓的压制敌方防空（SEAD）行动。
+我们一定要
 
-其飞行员在安全弹射后被俘。
+响应号召、积极配合
 
-Flanker相当于俄罗斯的F-35第五代多功能战斗机，目前由英国皇家空军和其他14个北约国家使用–尽管它不具备隐形技术。
+做好防护、应检尽检
 
-而北约大国得以能够检查其复杂的内部工作，将在俄罗斯的空军首长中引起惊愕，因为俄罗斯有47架。
+对无正当理由、拒不配合
 
-它也在中共国引起了震动，作为俄罗斯最大的国防伙伴，中共国现在拥有世界上第二大舰队，2015年与俄罗斯签署了一份价值20亿美元的24架战斗机的交易。
+参加本轮区域核酸筛查的
 
-尽管这架飞机被严重损坏，但消息人士称，目标系统的残留物足以进行详细分析。
+将对其“辽事通健康码”赋“黄码”！
 
-它不仅会使系统容易受到北约反措施的影响，而且还可能危及未来俄罗斯的武器销售–这是现金匮乏的俄罗斯的重要收入来源。
+以及[刚刚！山东青岛市传来一个不好的据青岛卫健委通报、疫情最新情况](https://www.163.com/dy/article/H5801L2B055270Z7.html)（2022-04-18 11:32:31　来源: 无量风沙  ）
 
-DSTL的科学家们还在研究T-90坦克的残骸—这是俄罗斯最先进的作战坦克，安装了爆炸反应装甲和独特的防御性Shtora-1辅助系统—一个Buk导弹系统—2014年用于击落马来西亚航空公司MH17航班，以及一个Tor地对空导弹系统。
+青岛市，昨日疫情2022年4月17日0时~12时昨日新增本土确诊1例系青岛市城阳区报告新增本土无症状感染者18例均为青岛市城阳区报告以上人员均为支援外地工程建设返回人员，在管控中检测发现后续情况将继续跟进，敬请关注!疫情期间特别提醒关注防疫信息时刻保持警惕这波疫情病毒隐藏时间长不容易被发现部分人群没有前期的发烧感冒特征病毒传播速度快等特点大家出门一定要戴口罩、勤洗手、测体温、扫码登记、公共场合不要聚集人多的地方从目前看，国外疫情始终不断，国内必将受到牵连，防范疫情必将成为长期的一项任务，始终做到早发现、早提醒、早治疗避免更多人受到感染防范好自己的安全就是对朋友、对社会、对亲人最大的贡献坚持做好个人防护保持良好的生活习惯相信在大家的共同努力下我们最终会战胜疫情青岛加油！
 
-印度拥有2000架不同型号的T-90以及Buk，而伊朗在2020年1月使用Tor击落了乌克兰752航班。
+\*\*\*\*\*\*\*引用完毕\*\*\*\*\*\*\*
 
-但最让人兴奋的还是那架价值5000万英镑的战斗机。
+郭文贵先生2022年4月15日盖特直播发出青岛、大连、哈尔滨或海口的封城预警后，我们以非常矛盾地心情看到如约而至的哈尔滨封城公告，我们也在同样以非常矛盾地心情看着中共以疫情为名在对青岛和大连做封城前的媒体造势，青岛、大连乃至任何这片土地上的同胞们，你们备水、备粮、备生活物资了吗？留给我们的时间不多了！
 
-RUSI智库的空中力量和技术专家Justin Bronk说。”任何检查被击落的苏-35上的雷达部件或电子战吊舱的潜在机会都是有价值的，因为即使被损坏，这些部件也可以证实或破坏现有的关于它们如何工作的情报评估。
+编辑整理：喜马拉雅的肉夹馍；
 
-伦敦国王学院战争研究系的阿莱西奥-帕塔拉诺教授说：”SU-35S不是一个简单的无人机–它是一个复杂和非常先进的机器，花了几十年的时间来开发。一旦它的技术被盗，就不容易修复，你可以肯定，根据英国和美国的发现，俄罗斯将感到担忧。”
+校对整合：喜马拉雅的馍夹肉；
 
-他说，这种担忧将在莫斯科之外感受到。
+发布：Maarago；
 
-“检查这个系统不只是让NATO了解俄罗斯的能力。他补充说：”自从在乌克兰的行动开始以来，中国一直在担心，正是因为这可能发生。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“由于中国对俄罗斯卖给它的所有东西都进行了逆向工程，它很可能将苏-35的元素纳入其其他本土的J级战斗机中，例如其优越的成都J-20。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-西方对中国的技术没有太多的了解，因此，在指挥和控制以及远程能力方面，这是一个独特的机会，有可能会产生巨大的差异。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“例如，如果你知道一个系统运行的频率，你就可以破坏它。”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-原文链接：[Russia and China nightmare as UK scientists analyse secrets of Putin’s prized fighter jet](https://www.express.co.uk/news/science/1597094/Russia-fighter-jet-putin-latest)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-* * *
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*编辑&发布：长岛开心*
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
