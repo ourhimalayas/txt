@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 11:02 PM (UTC)`
+
+2022.04.18 NFSC news  Ukraine Says Captain of Sunken Russian Warship Moskva ‘Killed in Explosion.’
+![img](https://media.gettr.com/group36/origin/2022/03/09/23/c901f1fb-7d02-c544-d71c-8b645000a81b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/18/2022 10:03 PM (UTC)`
 
 “懦弱的代价...” 飞飞秀救援快报 2022-04-18<br/>For English：gettr.com/streaming/p15yy7w0449
@@ -144,13 +151,6 @@
 ---
 
 `@miles 4/18/2022 5:07 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group48/origin/2022/04/18/05/f85b034f-adb5-61ab-08b6-87c369e13ceb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 5:00 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group48/origin/2022/04/18/05/f85b034f-adb5-61ab-08b6-87c369e13ceb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
