@@ -2,49 +2,32 @@
 ---
 
 
-## 中共的帮凶很可能促成美国欧洲给普京大额许诺达成和解
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2369535/)
+## 基辅地区发现900多具平民尸体
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369581/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8818.40%EF%BC%89%E4%B8%AD%E5%85%B1%E7%9A%84%E5%B8%AE%E5%87%B6%E5%BE%88%E5%8F%AF%E8%83%BD%E4%BF%83%E6%88%90%E7%BE%8E%E5%9B%BD%E6%AC%A7%E6%B4%B2%E7%BB%99%E6%99%AE%E4%BA%AC%E5%A4%A7%E9%A2%9D%E8%AE%B8%E8%AF%BA%E8%BE%BE%E6%88%90%E5%92%8C%E8%A7%A3%E3%80%902022%E5%B9%B403%E6%9C%8817%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:5)
+##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、晨熹（编译）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-11.png)
 
-**郭文贵先生**：我现在可以告诉大家，我觉得俄乌战争，我觉得美国和欧洲在这次跟习见面以后，习叫杨洁篪跟沙利文明确表示坚决军事支持俄罗斯之后，这真的是我觉得是给美国送了个大礼，给欧洲送了个大礼。
+据【CTV NEWS】4月15日报道， 警方周五表示，俄罗斯撤军后在乌克兰首都周边地区发现了900多名平民尸体，其中大多数人被枪杀。
 
-据我所了解的，很有可能美国和欧洲会给普京做一个非常大的许诺：只要你达成和解，你的个人资产、你们的资产我全部给你解封，保证你的安全，绝不攻击你个人。
+大量的屠杀是在俄罗斯国防部誓言要加强对基辅导弹袭击和俄军旗舰“莫斯科号”被击沉后发生的。基辅附近的警察部队负责人安德烈·内比托夫说，每天在瓦砾下和乱葬坑中发现更多的尸体，公用事业工人在基辅郊区收集并掩埋尸体，而该地区仍处于俄罗斯控制之下。他还表示，俄军正在“追查”表达强烈亲乌克兰观点的人。
 
-这是今天七哥很明确地告诉大家，是我今天早上知道的，大概3点以前。我听到这个消息我就再也无法入睡了，我认为这对乌克兰人太好了，不能再杀害下去了，乌克兰快炸烂了。
+乌克兰总统泽连斯基指责俄军恐吓平民并追捕在乌克兰军队或政府服役的任何人。他说：“我们正在尽一切努力拯救我们的人民。”
 
-而且普京这回真认真地把他的女朋友接回到俄罗斯去了，本来是驱逐出去的从瑞士，他女朋友从瑞士准备是过境，她是过境从瑞士想到德国去，这个中间听说普京改换把她接回到俄罗斯。那三个孩子，你想想三个儿子，这牵着他的心呢，他闺女不一定牵着他的心，这些独裁都要自己的儿子、血脉。
+[原文链接](https://www.ctvnews.ca/world/more-than-900-civilian-bodies-found-in-kyiv-region-police-1.5863274)
 
-所以说这种可能性很大，所以说共产党的所谓帮凶，实际是真正地帮了乌克兰人，但愿能发生，祈祷吧！
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-字幕来源：[2022年3月17日《文贵大直播》全文字版](https://gnews.org/zh-hans/2187401/)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-编辑整理：海贼王M.D.LUFFY；
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

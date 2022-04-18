@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 8:45 PM (UTC)`
+
+2022.04.18  新中国联邦 | 喜健康   老药新用：探讨乙酰半胱氨酸治疗冠状病毒感染，解毒疫苗的可能性
+![img](https://media.gettr.com/group45/origin/2022/04/18/20/93a747d6-61b9-c02d-36b0-79f6aa417f55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 6:32 PM (UTC)`
 
 04.18.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -147,13 +154,6 @@
 
 Two volunteers from IOM and SSF think our coffee is the best. They are rooting for the Chinese people to take down the Chinese Communist Party.<br/><br/>两名分别来自IOM和SSF的志愿者认为我们有最好的咖啡。他们为中国人民推翻中国共产党加油。
 ![img](https://media.gettr.com/group49/origin/2022/04/18/04/daabc006-b571-c8b0-e435-96d1e5cf9c29/out.jpg)
-
----
-
-`@miles 4/18/2022 4:49 AM (UTC)`
-
-A Volunteer from Israel said he didn’t expect the Passover to be hosted in Medyka by such a nice group of people from the New Federal State of China. He supports our mission and he thinks if we keep on pushing it, we will achieve our goal of taking down the Chinese Communist Party (CCP).<br/><br/>一位来自以色列的志愿者说他没有想到在梅迪卡的逾越节会是由一群这么棒的新中国联邦人主办。他支持我们的使命并认为，如果我们坚持不懈，最终会实现消灭中共的目标。
-![img](https://media.gettr.com/group35/origin/2022/04/18/04/b01d124c-830d-2520-ffcf-a63de70d8e1c/out.jpg)
 
 ---
 
