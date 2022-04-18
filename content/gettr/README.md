@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 10:58 AM (UTC)`
+
+2022.04.18  新中国联邦 | 军情室 台海危机期间的东风15，沙特购买的东风导弹
+![img](https://media.gettr.com/group16/origin/2022/04/18/10/713dfc46-acf7-4a8b-6446-65192a419a7a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 10:09 AM (UTC)`
 
 【Ukraine Rescue】 04/15/22  Young Israel volunteer Jacob shares the NFSC’s Passover celebration livecasting link to his parents and grandmother in Israel. This is his first Passover in another country. He uses the Jewish people’s history of fighting for freedom to encourage all the fellow Chinese to keep fighting for freedom. Sometimes the road is tough, but keep fighting and keep moving forward! <br/><br/>【乌克兰救援】 04/15/22 来自以色列的年轻志愿者雅各布与父母和奶奶分享他在异国度过的第一个逾越节，他以犹太人争取自由的历史鼓励所有为自由而战的中国同胞：继续为自由而战，这条路也许会充满艰辛坎坷，但一定要继续战斗，继续向前！<br/>
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 “起来吧，饥寒交迫的奴隶！” 飞飞秀救援快报 2022-04-17<br/>For English：gettr.com/streaming/p15raah696d
 ![img](https://media.gettr.com/group33/origin/2022/04/17/22/cc7c98c3-323d-ba34-d79f-e92bb7ace4c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 9:11 PM (UTC)`
-
-4/17/2022 Miles Guo’s GETTR: The route of viral transmission should be random and non-linear. Why in Communist China all the locked down cities follow a line? Is it because the CCP is so clever that it can control the route of viral transmission? Our fellow fighters within mainland China should be prepared and take good care of your families; citizens of the New Federal State of China are not jabbed with COVID vaccines and own Himalaya Coins. We are blessed by God!<br/><br/>4/17/2022 文贵盖特：病毒的传播应该是随机的跳跃式的, 为何在中共国被封的城市是线性的，难道是共产党太聪明能够控制病毒传染途径？希望国内的战友们做好准备保护好自己和家人；新中国联邦人无苗有币，是上天眷顾的人！<br/>
-![img](https://media.gettr.com/group26/getter/2022/04/17/21/02a52bf2-0041-4344-03e4-1f71b280a4af/out.jpg)
 
 ---
 
