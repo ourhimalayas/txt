@@ -2,62 +2,40 @@
 ---
 
 
-## 希望香港人立刻马上原地暴毙的上海博主LLAP_草莓教授
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2366537/)
+## 俄罗斯军舰被炸毁：“莫斯科”号巡洋舰被乌克兰导弹击中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2366560/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/青岛_副本.png)
-新浪微博用户[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_) 是一个资深脑残粉红，她在2022年3月14日发出希望香港人立刻马上原地暴毙，以节省医疗资源的微博——
-![](https://assets.gnews.org/wp-content/uploads/2022/04/香港.png)
-香港同胞的大量死亡并没有天然地使得[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)得到更多的生活资源，所以在上海封城后作为孕妇的她既抢不到合适的生活物资，也没有得到更多的医疗资源，作为国际化大都市上海的一员，她和所有的人都进入了等死状态——
+评论：***普京导演的俄罗斯入侵乌克兰，并没有如他想像的闪电 结束战争并取得了绝对胜利，相反，让世界看到了在乌克兰国民的顽抵抗下，俄罗斯遭受了一次次的失败，现在连“莫斯科”号巡洋舰都被乌克兰导弹击中，打掉了普京的强人光环，真是赔了夫人又折兵。***
 
-据[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)[2022年4月2日 10:48](https://weibo.com/2259007220/Lmyuw1vZ6?from=page_1005052259007220_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+据《每日邮报》作者：Chris Pleasance，2022年4月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2178.png)俄罗斯黑海舰队的旗舰—苏联时代的导弹驱逐舰“莫斯科”号—在乌克兰声称用两枚反舰巡航导弹击中它之后，遭受了严重的损害，可能已经沉没。图片源自每日邮报
+在乌克兰声称用巡航导弹击中俄罗斯的黑海旗舰后，该旗舰已被严重损坏并可能已经沉没，这将是弗拉基米尔-普京的武装部队的又一次耻辱性损失。
 
-上海真实现状是什么样
-小区的政府防疫物资看不到。
-外卖快递全部停发，居民自己买菜买肉蛋奶没有渠道。
-叮咚买菜抢不到运力。
-今天小区附近盒马阳了一个，买的东西全部退款。
-一斤猪肉138元坐地起价。
-团购的蔬菜只能撑到下周。（而我一个妊糖送来的都是土豆 ）
-确诊阳性的隔了好几天才被拉走。
-在隔了好几天才被统计。
-医院人满为患普通应该得到救助的病人得不到救助。
-民生民生得不到解决，医疗资源医疗资源不够。
-上头天天开会不知道开了什么内容。
-这就是国际化大都市-上海
-所有人都等着死吧。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海.png)
-在上海封城半个月之后的4月17日，她两次亲身感受到了痛——
+据乌克兰政府称，莫斯科号是苏联时期的斯拉瓦级导弹巡洋舰，周三晚间被两枚海王星巡航导弹击中，这两枚导弹是从敖德萨海岸的一个海岸炮台发射的。
 
-据[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)[2022-04-17 16:10](https://weibo.com/2259007220/LoS0Pu20Z?from=page_1005052259007220_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+莫斯科承认船上发生了火灾，国家媒体称，当弹药爆炸并使船只“严重受损”时，510名船员被疏散–尽管它拒绝透露火灾的原因，只说正在对事件进行“调查”。
 
-真牛逼，我一孕晚期的孕妇，因为楼里有阳（已拉走）所以健康码是红的，要去产检，医院不收红码孕妇，有问题要拉去金山卫这种地方看 真牛逼真牛逼，我生你马勒戈壁的小孩。从今天我就是你们口中的“极端女权”，结个屁的婚，生个屁 的小孩，反正怀孕时候不被保障，生了国家也不帮养。 快点进入少子化吧，累了。[#上海疫情#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&amp;from=default)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/孕妇.png)
-在封城半月后作为一名晚期孕妇，她再度因为邻居红码而被赋予红码，并且让她的产检受到影响，是的，她是因为邻居的红码而受害，那她又何曾没有因为自己的脑残自干五而得到报应和轮回呢？全体上海人和十四亿同胞又何曾不是因为千千万万个[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)脑残和自干五的老少粉红们而在这个世界上受到另眼相看和歧视呢？
+但一个与俄罗斯军方有联系的Telegram频道声称，在乌克兰使用Bayraktar无人机分散其雷达预警系统的注意力后，该船被导弹击中。消息人士称，该船左舷被击中两次，翻了个身，并已沉没。俄罗斯国防部后来否认了这一说法，称该船仍有“浮力”。
 
-上海已经出现过孕妇因为收治不及时而一尸两命的惨剧，接下来我们衷心祝愿这位脑残粉红的晚期孕妇[LLAP\_草莓教授](https://weibo.com/575303337?refer_flag=1005055014_)能够母子平安，因为所有脑残粉红也都是我们的同类，因为每一个人的生命都应该得到尊重。
+乌克兰国防部顾问Anton Gerashchenko补充说，数百名水手可能已经在爆炸中死亡。反普京的俄罗斯政治家伊利亚-波诺马廖夫（Ilya Ponomarev）同意这一评估–他说，迄今为止，只有50名船员被确认获救。
 
-编辑整理：喜马拉雅的肉夹馍；
+如果得到证实，“莫斯科”号的损失将标志着乌克兰在战争期间对俄罗斯军队造成的迄今为止最大的一次伤亡，也是第二次世界大战结束以来在战斗中损失最大的船只之一。
 
-校对整合：喜马拉雅的馍夹肉；
+摧毁“莫斯科”号更具有象征意义，因为在战争初期，正是这艘军舰要求蛇岛上的13名乌克兰军队投降–得到了现在标志性的回应。’俄罗斯军舰，去死吧’。
 
-发布：Maarago；
+文章观点仅代表作者个人，与Gnews平台无关
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+文章来源:**[https://www.dailymail.co.uk/news/article-10717065/Go-f-Russian-warship-BLOWN-Cruiser-Moskva-hit-Ukrainian-missile.html](https://www.dailymail.co.uk/news/article-10717065/Go-f-Russian-warship-BLOWN-Cruiser-Moskva-hit-Ukrainian-missile.html)**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+评论：洛杉矶盘古农场 – 傻小子
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

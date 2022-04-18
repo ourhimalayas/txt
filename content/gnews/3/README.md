@@ -2,27 +2,31 @@
 ---
 
 
-## 视频|中共及即将对多个大城市实施大封锁隔离
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2366584/)
+## 4.19 断播后续
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2366669/)
 
-制作：香草山视频部
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_7-4.png)
 
-4月16日郭先生紧急直播，公开了中共即将对青岛、大连、哈尔滨或者海口等地实施大封锁、大隔离的计划。
+2017.4.19， 断播引发灭共潮
+世人皆问他是谁，为何共匪陷恐慌
+汹汹涌涌人来聚，围绕文贵爆料忙
+爆料革命横出世，一呼百应声远扬
+转眼又到4.19 ， 时移事易出联邦
+英才迭出我辈人，正道主义响当当
+去日无多共产党，可曾悔断当日肠
 
-郭先生爆料，随着中共对上海和长春的封锁，上海死亡人数可能已达到百万。上海战友及时的为当地战友提供政府实时情报，协助战友买到粮食、蔬菜以及药品，还有的战友用智慧的办法帮到了生病的战友家人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
 
-长春战友在郭先生的建议下积极行动，提前在外准备的基地、粮食以及医疗用品帮到了无数人度过了此次共产党的大隔离，完全体现出作为新中国联邦人的高素质，郭先生说，这在未来盘古相聚时会是辉煌的一页。
+- 审核/编辑/发稿:qiutian（邱甜）
 
-目前得到准确情报，中共接下来要对国内进行大隔离的城市有青岛、大连、哈尔滨或者海口，这些城市将会再现上海和长春以及广州的惨状，请战友提前准备。
-
-郭先生还提供了一些反抗策略，中共大隔离本身就是犯法，已经构成了正当防卫的条件。民众要合理利用家中的水、煤气、冰箱和汽车里的油，尤其是要团结周围单元楼的老百姓集体行动，勇气和智慧缺一不可。
-
-发稿：林礼
 
 **更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
