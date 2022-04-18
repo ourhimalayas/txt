@@ -2,39 +2,24 @@
 ---
 
 
-## 上海市民的怒吼：这是什么国家
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2365258/)
+## 安倍呼吁美国清晰表明对台战略
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2365566/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-～**对没有接受第三剂疫苗的人进行强制拘留**
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+4月17日，日本前首相安倍晋三在一场自由民主党的集会上举行演讲时，呼吁美国向世界清楚表明，当中共入侵时将保卫台湾。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-358.jpg)（图片来自TORU HANAI/REUTERS）
 
-～**饥饿的上海老太太跳楼自杀了**
+据《中央社》报道，安倍在演讲时谈及台湾问题，他以乌克兰战争为例，呼吁美国向世界清楚表明当中共国入侵台湾时将保卫台湾。他指出，美国长期以来对台湾采取战略模糊，但这是危险的。
 
-**她的丈夫在痛苦的哀嚎、怒吼……**
+另外，日前美国《洛杉矶时报》刊登了一篇安倍投稿的文章，文中比较台湾与乌克兰处境的异同，也提到美国对台政策的模糊立场已经过时，现在应该改变。
 
+参考链接：
+[https://www.cna.com.tw/news/aipl/202204170223.aspx](https://www.cna.com.tw/news/aipl/202204170223.aspx)
 
-
-～**今日上海，昨日香港！**
-
-**上海警察乱抓无辜市民**
-
-
-
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-1.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-1.png)
-
+总编：老孙
+校对发布：爱放飞
 
  
 

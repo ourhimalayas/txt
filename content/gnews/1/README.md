@@ -2,36 +2,35 @@
 ---
 
 
-## 乌克兰完成加入欧盟的调查问卷
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2365605/)
+## 美国特使在首尔就朝鲜导弹和核紧张局势进行会谈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365750/)
 
-翻译：冰糖葫芦喵
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-编辑与校对：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
-《路透社》4月18日报道，**乌克兰总统泽伦斯基办公室副主任伊霍尔·若夫克瓦（Ihor Zhovkva）表示，乌克兰已经完成了一份调查问卷，这将成为欧盟决定乌克兰加入欧盟的起点。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/RRNPPETTURMC5KCVJYGBQYA6AI-e1650247851842.jpg)乌克兰总统泽伦斯基与欧盟委员会主席冯德莱恩和波兰总统安杰伊-杜达在皇家拉齐恩基公园的岛屿宫殿远程参加题为 “为乌克兰站起来 “的全球活动时，在屏幕上看到了这一画面。（图片来源：路透社）
-据报道，**欧盟委员会主席乌尔苏拉·冯·德·莱恩在4月8日访问基辅期间，向泽伦斯基递交了这份调查问卷，承诺在俄罗斯入侵乌克兰后，加快乌克兰加入欧盟的进程。**
+翻译/编辑：小红帽
 
-周日，若夫克瓦晚间对乌克兰公共广播电台说，今天，我可以说，乌**克兰方面已经完成了这份文件。**他还说，欧盟委员会需要就乌克兰是否遵守必要的成员国标准提出建议，我们希望建议……然后球就会落到欧盟成员国这一边。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/yna1065624913651394_594.jpg)图片来源：www.m.k-odyssey.com
 
-**他补充说，乌克兰希望在6月的欧洲理事会会议上获得加入欧盟候选国的地位。**
 
-**若夫克瓦说，接下来，我们将需要启动入盟谈判。一旦我们举行这些会谈，我们就已经可以谈论乌克兰在欧盟正式成员国身份。**
+根据CNA 4月18日报道，美国朝鲜问题特使于周一抵达首尔，与韩国同行就如何解决平壤增加的导弹发射以及对可能恢复核试验的担忧进行会谈。
 
-**根据欧洲理事会网站上的日程安排，理事会将于6月23日至24日举行会议。**
+在为期五天的访问期间，美国特别代表Sung Kim及其副手Jung Pak将与包括核问题特使Noh Kyu-duk在内的韩国官员会面。
 
-新闻来源链接：
+一行人的到来恰逢美国和韩国军队开始为期9天的年度联合军事演习。韩国参谋长联席会议周日表示，此次演习是“使用计算机模拟进行的防御性指挥所训练”，不会涉及部队的实地演习。
 
-[Ukraine completes questionnaire for EU membership | Reuters](https://www.reuters.com/world/europe/ukraine-completes-questionnaire-eu-membership-official-2022-04-18/)
+朝鲜谴责联合演习是战争的预演。近年来，由于努力与平壤进行外交接触，并且由于新冠病毒的限制，此类演习已经缩减。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+周六，朝鲜试射了官方媒体所说的用于运送战术核武器的导弹。
 
+资料来源：[US envoy in Seoul for talks over North Korea missile, nuclear tensions](https://www.channelnewsasia.com/asia/us-envoy-north-korea-south-korea-missile-launch-nuclear-testing-2631101)
+
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

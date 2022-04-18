@@ -2,28 +2,37 @@
 ---
 
 
-## 俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364767/)
+## 乌克兰外长称俄罗斯仍试图攻占马里乌波尔
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2364996/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
-上一篇：[俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](https://gnews.org/zh-hans/2364753/)
+翻译：灭共文明
 
-对此，美国CNN报道，马里乌波尔的市长顾问17日通过通讯应用“电讯报”表明 “继续防卫”，拒绝投降的态度。关于俄军将部队关在钢铁厂内的说法他否认道“不属实”，并称在距离炼厂5公里的地方战斗仍在继续。俄国防部表示，“通过截获无线电得知(乌克兰政府)禁止投降交涉”，并表示，“如果进一步抵抗，就会全军覆没”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2133.png)图片来源网络
-16日晚，泽连斯基向电讯报发布讲话视频。虽然没有提到俄罗斯军队的投降要求，但认为俄军“正在试图摧毁所有在马里乌波尔的人”，并表示“很难找到解决办法”。
+编辑与校对：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《国会山》4月17日报道，**乌克兰外交部长德米特里·库莱巴（Dmytro Kuleba）周日预测，随着乌克兰东部战斗的加剧，俄罗斯将在未来几周攻占马里乌波尔。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/外交部长-e1650240802388.jpg)乌克兰外交部长德米特里·库莱巴（图片来源：国会山报）
+外交部长库莱巴说，**乌克兰东部、顿巴斯地区的激战加剧，俄罗斯在乌克兰地区的大规模攻势，以及俄罗斯军队的绝望企图，他们很有可能不惜一切代价攻占马里乌波尔。**他还说，对基辅和其他乌克兰城市的导弹袭击仍在继续。
 
-乌克兰副总理贝莱西丘克17日表示无法就提供平民从战斗地区撤离的“人道走廊”与俄罗斯达成协议，“今天不能设置”。
+白宫本月早些时候表示，**它认为俄罗斯正在重新部署其在乌克兰的军队，以便将其攻势集中在该国东部地区。**
 
-俄军的攻势似乎以包括马里乌波尔在内的乌克兰东部顿涅茨克、卢甘斯克两州为中心，但对首都基乌近郊和西部利比乌省的导弹袭击仍在继续。
+此前，俄罗斯表示，**将“大幅减少”乌克兰城市基辅和切尔尼夫附近的军事活动。然而，五角大楼表示，地位的改变只是“重新部署”，“不是真正的撤军”。**
 
-参考链接：[ロシア「抵抗なら全滅させる」　マリウポリで投降拒むウクライナに（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/70353d3af99e54f2bfa1d2ee7d7a3575bc9dfb0b)
+周日，乌克兰总理什米哈尔表示，**在乌克兰拒绝俄罗斯的最后通牒之后，马里乌波尔还没有落入俄罗斯军队手中。**
 
-* * *
+**总理什米哈尔还强调，我们不会投降。我们不会离开我们的国家，我们的家人，我们的土地。所以乌克兰准备战斗到底，赢得这场战争的胜利。**
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+新闻来源链接：
+
+[Ukrainian foreign minister: Russia will try to ‘finish with Mariupol’ | The Hill](https://thehill.com/news/sunday-talk-shows/3271041-ukrainian-foreign-minister-russia-will-try-to-finish-with-mariupol/)
+
+[Ukrainian official says Mariupol ‘still hasn’t fallen’ after deadline for surrender | The Hill](https://thehill.com/news/3271174-ukrainian-official-says-mariupol-still-hasnt-fallen-after-deadline-for-surrender/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

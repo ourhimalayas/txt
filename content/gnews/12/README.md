@@ -2,29 +2,35 @@
 ---
 
 
-## 上海抗疫 “掩耳到零”，民怨鼎沸“零容忍”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2365259/)
+## 乌克兰完成加入欧盟的调查问卷
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2365605/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-10.jpg)上海抗疫 “掩耳到零”，民怨鼎沸“零容忍” 网络图片
-据美国之音4月17日报道，中共国上海持续封城，丝毫未缓解。上海浦东新区政府16日发布“告浦东新区全体居民书”，坦承整个浦东新区已经封控了20天，但还要坚持。中共中央国务院副总理孙春兰和上海市委书记李强都表示，要继续贯彻落实习近平“动态清零”总方针。
+翻译：冰糖葫芦喵
 
-4月12日，上海政府强行征用浦东张江镇九幢公寓楼的39家住户作为集中隔离房，引发民怨以及与警察的对抗。互联网上充斥着上海居民的愤怒，民间的呐喊和抗议不绝于耳，政府充耳不闻。在拥有2600万人口的大都市，封城近一个月，次生灾难可想而知。期间民众饿死、病死、不堪忍受压力和疾病的痛苦而自杀的事件不时被爆出。
+编辑与校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《路透社》4月18日报道，**乌克兰总统泽伦斯基办公室副主任伊霍尔·若夫克瓦（Ihor Zhovkva）表示，乌克兰已经完成了一份调查问卷，这将成为欧盟决定乌克兰加入欧盟的起点。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/RRNPPETTURMC5KCVJYGBQYA6AI-e1650247851842.jpg)乌克兰总统泽伦斯基与欧盟委员会主席冯德莱恩和波兰总统安杰伊-杜达在皇家拉齐恩基公园的岛屿宫殿远程参加题为 “为乌克兰站起来 “的全球活动时，在屏幕上看到了这一画面。（图片来源：路透社）
+据报道，**欧盟委员会主席乌尔苏拉·冯·德·莱恩在4月8日访问基辅期间，向泽伦斯基递交了这份调查问卷，承诺在俄罗斯入侵乌克兰后，加快乌克兰加入欧盟的进程。**
 
-中共能封住全城，也能封住病毒吗？显而易见，动态清零是口号，是笑话。在病毒肆虐、强制接种毒疫苗的情况下，怎么可能病毒清零？掩耳到零吧，自己系个死疙瘩，自己再解开。民众的容忍远没有达到极限，否则中共的死期就在下一秒。
+周日，若夫克瓦晚间对乌克兰公共广播电台说，今天，我可以说，乌**克兰方面已经完成了这份文件。**他还说，欧盟委员会需要就乌克兰是否遵守必要的成员国标准提出建议，我们希望建议……然后球就会落到欧盟成员国这一边。
 
-新闻参考链接：[https://www.voachinese.com/a/shanghai-residents-struggle-under-xi-s-zero-covid-policies-20220416/6532360.html](https://www.voachinese.com/a/shanghai-residents-struggle-under-xi-s-zero-covid-policies-20220416/6532360.html)
+**他补充说，乌克兰希望在6月的欧洲理事会会议上获得加入欧盟候选国的地位。**
 
-* * *
+**若夫克瓦说，接下来，我们将需要启动入盟谈判。一旦我们举行这些会谈，我们就已经可以谈论乌克兰在欧盟正式成员国身份。**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**根据欧洲理事会网站上的日程安排，理事会将于6月23日至24日举行会议。**
 
+新闻来源链接：
 
-编辑：【英国伦敦喜庄园编辑部】
+[Ukraine completes questionnaire for EU membership | Reuters](https://www.reuters.com/world/europe/ukraine-completes-questionnaire-eu-membership-official-2022-04-18/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
 
 
  

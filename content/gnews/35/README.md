@@ -2,35 +2,30 @@
 ---
 
 
-## 2022/04/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2364478/)
+## 樱花时政┃美国盗贼团伙开始掠夺富人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2364879/)
 
-1. 4月10日，江苏无锡。在中共国家卫生健康委员会的要求下，各省市都在全面建设方舱医院。中共宣传机构镜头里用于宣传的方舱医院是这样的。
-2. 4月9日，上海。中共解放军陆军军医大学军医与护士进驻上海最大方舱医院，参与所谓医疗支援。
-3. 然而，大城市上海，镜头之外的方舱医院其实是这样的！
-4. 4月9日，吉林。被中共集中隔离关押的市民视频记录着“集中营”里放饭投喂瞬间！
-5. 4月4日，上海。被隔离市民吐槽隔离点基础设施简陋，如厕后无水清洗。质疑集中隔离的目的是什么？
-6. 4月9日，上海浦东新区集中隔离方舱医院。集中隔离市民不吃药不打针，隔离点内没救治医疗能力，质疑政府集中隔离的目的。
-7. 在中共政权各种荒唐政策指引下，中国大陆各地奇葩事件频发。工厂现纸棺材板式的隔离。
-8. 4月9日。上海。市民呼吁政府关注，疫情下睡在路边回不去家的那些人。#真实的上海
-9. 4月5日，上海。疫情下的浦东，睡在路边的外卖小哥们。
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+据警方称，十多个洛杉矶帮派正以一种新的、激进的方式瞄准该市一些最富有的居民，派出多辆汽车的工作人员寻找、跟踪和抢劫驾驶高端车辆或佩戴昂贵珠宝的人。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国盗贼团伙开始掠夺富人.jpg)[图片来源](https://assets.zerohedge.com/s3fs-public/styles/16_9_max_700/public/2022-04/Success-Pixabay.jpg?itok=SKM-OLDM)
 
-- *1，搜集：Free20200604、加油干吧总加速师 、Filon
- 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
-- *3，翻译：一切都是刚刚开始Miles#4229
- 4，PR：Seven-Star Ant*
+他们会偷走名牌手袋、镶钻手表和其他价值数万美元（甚至更多）的商品，然后将它们兜售给愿意对这些商品视而不见的黑市买家。警方说，潜在的暴力行为。据上尉乔纳森·蒂佩特(JonathanTippet)称，警方已经确定了至少17个参与其中的团伙，其中大多数位于南洛杉矶并独立运作。他说，2021年发生了165起此类抢劫案，今年迄今为止发生了56起，其中包括周末发生的几起。据当局称，在过去的48小时内又发生了5起。在纽约市犯罪率不断上升，2022年3月的地铁犯罪数量比2021年3月高出55%。
 
+随着中共病毒引发的通货膨胀，致使美国经济危机临近，激进的仇富情绪与日俱增。这种情况与中共的打土豪分田地时期类似，不知是否和中共暗中鼓动有关？但真实的情况显示社会治安正逐渐恶化。
 
-* * *
+消息来源：
+[A”RobinHoodMentality”EmergesOnAmerica’sStreetsAsGangsOfThievesStartToPreyUponTheRich](https://www.zerohedge.com/personal-finance/robin-hood-mentality-emerges-americas-streets-gangs-thieves-start-prey-upon-rich)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
