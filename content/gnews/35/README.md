@@ -2,81 +2,36 @@
 ---
 
 
-## FDA和辉瑞知道新冠疫苗会导致免疫抑制（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2365968/)
+## 新中国联邦人在梅迪卡营地与各国义工共庆复活节
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366073/)
 
-翻译：Jenny Ball
+**——我们是消灭邪恶中共的新中国联邦人！**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-33.jpg)
+撰稿、编辑：Candy
 
+波兰时间4月17日星期日，新中国联邦和法治基金在梅迪卡（Medyka）营地，继犹太人在周五的逾越节之后，再次主持了一个更大规模的聚会：邀请在营地的各个国家的国际救援组织的义工们，包括来到营地暂做休息的难民们，一起来吃烧烤，欢度复活节。
+![Image](https://media.discordapp.net/attachments/950448401529577502/965234654049337354/image0.jpg?width=901&amp;height=406)图片来源：LuRen
+负责烤肉的主厨是为战友们提供午餐的当地餐馆的老板夫妇，他们带来酱汁，现场腌制负责基金提供的鸡肉、牛排、三文鱼、香肠，还有各种饮料、大量的甜点等。义工们吃得津津有味，赞不绝口。很多义工为新中国联邦的战友们在营地的辛勤工作竖起大拇指，对战友们勇敢地站出来灭共佩服有加，还真心地祝愿新中国联邦人灭共成功！
+![Image](https://media.discordapp.net/attachments/950448401529577502/965221504033914930/image.png?width=541&amp;height=406)图片来源：吴佳
+当地的晚间时分，战友们又接待了一批由意大利救援组织刚刚从乌克兰营救出来的7-17岁的孩子22人，还有两位大人。他们经过长时间颠簸又冷又饿，身披毯子，但都表现得不急不躁有秩序。
+![Image](https://media.discordapp.net/attachments/950448401529577502/965339801224114267/image0.jpg?width=541&amp;height=406)图片来源：吴佳
+他们一进到大帐篷，马上得到新中国联邦的义工们的热情帮助。战友们为他们分发香喷喷的烤肉、热食、饮料，让他们在异地他乡感受了新中国联邦和法治基金的温暖，还与我们的战友们一起合影留念，度过了一个难忘的复活节。晚上10:30左右，他们又乘坐巴士离开，并将继续20小时的旅途，然后由意大利的“诺亚方舟”组织护送去意大利各个寄宿家庭。
 
+新中国联邦的战友们在梅迪卡营地任劳任怨的工作赢得了国际人士的认可，法治基金展示出来的强大实力令他们钦羡，对乌克兰难民们一批接一批热情的迎来送往，更让他们看到了我们的大爱。正如很多人所言：梅迪卡营地如果没有新中国联邦和法治基金，就不会像今天这个样成为世界关注的焦点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-191.png)Natali\_Mis/Shutterstock
+而我们新中国联邦是以此营地作为我们向全世界展示新中国联邦人良好形象的基地，要让世人看到，我们新中国联邦人完全不同于中共治下的中国人，我们是消灭邪恶中共的新中国联邦人！
 
-随着 2022 年 4 月 1 日发布的另一批 11,000 份辉瑞文件，过去的怀疑得到了新的支持。第一个重磅炸弹的启示是：自然免疫是有效的，辉瑞一直都知道这一点。
+参考来源：[https://www.gettr.com/post/p15ri0kee06](https://www.gettr.com/post/p15ri0kee06)
+[https://mega.nz/file/IAgRhSTS#9UwCZsNpnOk12AlidDBiDQI6a5xhs4HbnQJuMimK-DY](https://mega.nz/file/IAgRhSTS#9UwCZsNpnOk12AlidDBiDQI6a5xhs4HbnQJuMimK-DY)
+[https://mega.nz/file/wd4WmCRb#VCsSyjLTfocc6RmSuGufEmRm-Yx5LHFXP-V4qVt78hk](https://mega.nz/file/wd4WmCRb#VCsSyjLTfocc6RmSuGufEmRm-Yx5LHFXP-V4qVt78hk)
 
-临床试验数据显示，既往感染过 COVID 的患者与接种疫苗的患者的结局没有差异。两组均未发生严重感染。
+***发布：Candy***
 
-年轻人更容易出现副作用
-
-第二个启示是，在 18 至 55 岁的年轻人中，注射的副作用比 55 岁及以上的人更严重。（副作用的风险也随着剂量的增加而增加，因此第二剂后的风险高于第一剂）
-
-正如“子栈”（Substack）上的“裸体皇帝”（The Naked Emperor）所指出的，“因为疫苗在年轻人中产生更频繁和更严重的反应和不良事件，所以，疫苗应该仅限于那些实际上有严重 COVID-19 风险的人。”
-
-辉瑞文件显示：心肌炎发病率高
-
-辉瑞的文件还包括被主流媒体和事实核查人员标记为错误信息或虚假信息的医疗信息。儿科同意书列出了几种可能的副作用，包括 100,000 人中有 10 人的心肌炎发生率——远高于之前报道的 50,000 人中有 1 人（即 100,000 人中有 2 人）的发病率。
-
-我们还知道，心肌炎在年轻男性中更为常见，因此对他们来说，风险明显高于 10 万分之 10，因为他们构成了这些伤害的大部分。
-
-未排除抗体依赖性增强
-
-许多警告过 mRNA 注射可能导致抗体依赖性增强 (ADE) 的人——在这种情况下，你最终比其他情况更容易受到严重感染——被媒体抹黑和妖魔化，并被贴上虚假信息的标签。
-
-然而，辉瑞自己的同意书明确指出：“尽管迄今为止没有看到，但仍不能排除所研究的疫苗可以使后来的** COVID-19 **疾病更加严重。”如果 ADE 真的完全无关紧要，那么同意书就不会包括它。然而它就在那里。
-
-疫苗相关增强疾病 (VAED) 也被列为“重要的潜在风险”
-
-截至 2021 年 2 月 28 日，辉瑞有 138 例疑似 VAED 病例，其中 75 例严重，导致住院、残疾、危及生命的后果或死亡；共有 38 起案件被证明是致命的，65 起仍未恢复。
-
-此外，正如每日曝光（Daily Expose）所指出的，“第 3 阶段临床试验旨在在疫苗被批准使用之前发现频繁或严重的副作用，包括 ADE。但这就是问题所在，因为COVID-19 疫苗都没有完成 3 期试验。”
-
-辉瑞的 3 期试验将于 **2024 **年** 2 **月** 8 **日完成——距现在近两年！尽管如此，辉瑞在其 FDA 提交的文件中得出结论，“75 例病例中没有一个可以被明确视为 VAED。”
-
-换句话说，辉瑞公司知道，在注射后的第一周，所有年龄段的人都会在第一次注射后经历短暂的免疫抑制，或者换句话说，免疫系统会暂时减弱。
-
-正如艾弗森（Iversen ）所指出的，这可能导致感染率出现偏差，因为人们直到第一次注射后** 14 **天才被认为是部分接种了疫苗，而在第二次注射后两周才正式完全接种了疫苗。
-
-如果人们在第一周内容易感染，但在此期间被计为未接种疫苗，这使得看起来好像未接种疫苗的人更容易感染，但事实并非如此。辉瑞自己的试验表明，在接种疫苗后最初 7 天内，疫苗组的感染率明显高于安慰剂组——409 比 287。
-
-完全接种（Vaxxed）更有可能死于 COVID
-
-辉瑞公司和美国FDA意识到：注射导致免疫抑制的事实是有罪的，因为英国政府的数据显示，与未接种疫苗的人相比，接种两剂疫苗的人：
-
-- 被诊断为 COVID-19 的可能性高达三倍
-- 因 COVID-19 住院的可能性增加两倍
-- 死于 COVID-19 的可能性高出三倍
-
-
-更详细数据请见文章后半部分
-
-FDA和辉瑞知道新冠疫苗会导致免疫抑制（2/2）
-
-新闻来源：[fda and pfizer knew covid shot caused immunosuppression](https://www.theepochtimes.com/fda-and-pfizer-knew-covid-shot-caused-immunosuppression_4404366.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-04-17&amp;utm_medium=email&amp;est=GbeDZmebizITlf5TVKVNTuqfCxx4ju73cd1y%2FU1E%2Fczbs8JTBGXaZTYioWjx8scIvQkNSA%3D%3D)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

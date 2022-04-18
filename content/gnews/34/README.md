@@ -2,29 +2,36 @@
 ---
 
 
-## 特鲁多政府力推互联网审查制度
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365973/)
+## 前国务卿蓬佩奥呼吁台湾周边国家做好准备
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366085/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
-
-编译撰稿：加拿大温哥华扬帆农场 – 重生之鹰
+作者：日本方舟农场 – Andy5
 
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2155.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
 
 
+4月16日，美国前国务卿蓬佩奥先生在接受采访时，与郭文贵先生一样，再次重申习一定会侵略台湾，并呼吁台湾周边的文明国家做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1..jpg)
+蓬佩奥先生首先赞扬了中央情报局新任局长伯恩斯将中共国作为美国的最大威胁，并再次重申，无论普京对乌克兰的战争中受到怎样的挫败，习都不会改变自己侵略台湾的野心。他认为，习近平可能会花一点时间，调查是否有解放军的将军，如同俄罗斯将军一样对他撒谎，并且会稍微改变侵略台湾的战术，但最终它一定会发动将台湾纳入版图的战争。
 
-据加拿大《真北方》4月13日报道，在自由党政府长期推动的网络审查法案因特鲁多在2021年秋季的全国选举而被迫暂停后，目前又被当局重新提上了议会日程。
+蓬佩奥先生最后呼吁，拜登政府需要立即将台湾武装到牙齿，台湾周边的日本、韩国、澳大利亚等文明国家，也需要做好援助台湾的准备。这些文明国家还要像台湾一样，警惕中共在侵略台湾之后，对其他国家实施进一步侵略行动。
 
-报道称，特鲁多政府本次重新推出的最新网络审查法案包括C-11和C-18两项内容。在新的审查制度下，该国所有大型科技及社交媒体平台都将被迫推广政府所定义的有关加拿大的新闻内容，并为在互联网上分享的时事文章向主流媒体付费。
+参考链接：
+[20220416蓬佩奧國務卿再提習一定攻打台灣](https://www.gettr.com/post/p15nudq3ed1)
 
-有评论指出，该法案的出台不仅标志着加拿大的各网络平台都将成为政府的附庸和传声筒，而且该国所有自媒体也都将毫无自由和公正可言。因此，这是对加拿大宪法的恣意践踏。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-校对编辑：硫酸羟氯喹64
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
 
-新闻来源：[https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 
