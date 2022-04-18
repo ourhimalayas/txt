@@ -2,26 +2,52 @@
 ---
 
 
-## 【俄罗斯入侵乌克兰战局图片新闻】俄军摧毁了乌克兰城市无法摧毁乌克兰人民的意志-4
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2368149/)
+## 美国联邦法官宣称全国性禁令应该被“彻底消除”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2368321/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-2.png)
-入侵者将对他们在乌克兰所做的一切负责。对于他们对阵洋基队所做的一切。他们将负责Bucha，Kramatorsk，Volnovakha，Okhtyrka。作者：Gostomel 和 Borodianka。根据Izyum的说法，对于马里乌波尔和乌克兰的所有其他城市和社区，俄罗斯军队在80年前拒绝了这些城市和社区。在那个可怕的时刻，世界上的每个人和总是都说：“再也不会了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/13.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/14-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/17.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/19.jpeg)
-照片：Mykhail Dzhos，美联社照片，Rodrigo Abd，André Luís Alves。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6WQFWE5EUJEBXNVXTKRDOSXJLI4.jpg)图片来源于美国《华盛顿时报》
+来源于美国《华盛顿时报》网站2022年4月15日的报道，美国第六巡回上诉法院首席法官本周警告地区法院不要发布全国性的禁令，称它们应该被“彻底消除”。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴-1.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+布什任命的杰弗里·斯图尔特·萨顿(Jeffrey Stuart Sutton)法官并不是第一个批评使用国家禁令的人，在这种禁令中，一个美国地方法院可以在所有50个州阻止国家政府的政策。
+
+随着近年来全国性禁令的使用有所增加，这一直是法律界争论的话题。在奥巴马政府期间，法院发布了几项全国性禁令，法院也发布过针对前总统川普移民政策的全国性禁令。
+
+引发法官批评的案件是由三个州提出的挑战拜登政府关于驱逐非法移民的移民指南。一家下级法院阻止了拜登政府发布其政策，提出了驱逐非法移民的某些优先事项，或减少在美国的年龄和时间长短等因素。
+
+各州认为，非法移民最终可能会被释放到社区中，并成为该州的额外负担。位于辛辛那提的第六巡回法院推翻了下级法院的判决，并批准了政府解除禁令的请求。
+
+最高法院大法官克拉伦斯·托马斯(Clarence Thomas)也谴责了使用国家禁令的行为。在一份与川普的旅行禁令有关的意见中，这位高级法官表示：“普遍禁令在法律上和历史上都是可疑的。”
+
+托马斯大法官表示，高等法院将不得不介入，并解决下级法院越来越多地使用它们的问题。2018年，司法部的一份备忘录也警告说，不要使用国家禁令，称这些禁令超出了法官的权限。它还指出，历史上法院直到1963年才将它们用作补救措施。
+
+“在共和国的前175年里，学者们还没有发现任何法官发布这种极端补救措施的例子。前22项全国性禁令花了200多年的时间才发布；而最近，法院在短短一年多的时间里就发布了22项禁令。”备忘录中写道。
+
+保守派法律分析家盖尔·特罗特(Gayle Trotter)表示，是政治左派把针对川普的国家禁令“武器化”了。
+
+她说，最高法院“影子裁决”(shadow docket，指在极其紧迫的时间内和条件相当有限的情况下做出的判决)的批评者也应该对普遍禁令感到担忧，因为大法官在没有公开口头辩论的情况下发布命令和决定。
+
+她说：“任何对‘影子裁决’心存疑虑的人都需要面对近年来全国性禁令同时兴起，以及行政国家的扩张的现实。”
+
+**简评：**
+
+自新冠病毒疫情在全球爆发以来，世界各国都纷纷出台了针对疫情的全国性禁令。记忆犹新的是各国政府针对自己民众的新冠疫苗强制接种令；让人难忘的是2022年2月14日加拿大总理特鲁多为应对“自由车队”反对强制接种疫苗抗议活动而启动的国家《紧急状态法》，而该全国性法令是加拿大建国以来首次启用……
+
+本篇报道中也明确指出了为什么美国联邦法官希望全国范围内的禁令被“彻底消除”。是因为全国范围内的禁令没有进行公开口头辩论，看到的是去权力的寻租，及行政国家权力的扩展而导致对法治不利，可见法治在国家管理中是多么重要的一环。但我们也需要看到，当初左派把针对川普的国家禁令武器化，现如今部分州法院用禁令对抗拜登政府，却被开始质疑，并希望联邦大法官来控制并审查。左派的两套标准及两面性可见一斑。
+
+新闻链接：[Federal judge wants nationwide injunctions to be ‘eliminated root and branch’](https://m.washingtontimes.com/news/2022/apr/15/federal-judge-wants-nationwide-injunctions-be-elim/)
+
+翻译/简评：Brianchow / PR：Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

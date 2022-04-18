@@ -2,49 +2,46 @@
 ---
 
 
-## 樱花时政┃俄威胁英国首相 要求就为乌作战的“英国”战俘进行谈判
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2368155/)
+## 俄乌战争绝不可能发生:普京投降&amp;反击中共&amp;普京打核战争
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2368322/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-121.jpg)[图片来源](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
-俄罗斯国家电视台周一播放了一段视频，视频中是为乌克兰作战被俘的“英国人”，俄罗斯要求首相鲍里斯·约翰逊就释放他们进行谈判。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8802.40%EF%BC%89%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E7%BB%9D%E4%B8%8D%E5%8F%AF%E8%83%BD%E5%8F%91%E7%94%9F.%E6%99%AE%E4%BA%AC%E6%8A%95%E9%99%8D%E3%80%81%E5%8F%8D%E5%87%BB%E4%B8%AD%E5%85%B1%E3%80%81%E6%99%AE%E4%BA%AC%E6%89%93%E6%A0%B8%E6%88%98%E4%BA%89%E3%80%902022%E5%B9%B403%E6%9C%8817%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
 
-这两名面容憔悴的男子被确认为英国国民，他们是肖恩·平纳（Shaun Pinner）和艾登·阿斯林（Aiden Aslin），他们要求用维克多·梅德韦丘克（Viktor Medvedchuk）交换，后者是与总统弗拉基米尔·普京关系密切的乌克兰富商，最近在乌克兰被捕。
+**郭文贵先生：**我说实在的，大家这么多的对俄乌战场的评价当中，这是今天为啥我们要谈，我可以告诉大家，俄乌战场有三种实际上绝对不可能发生的：
 
-广播里没有说明这两个人被关押在哪里或被谁关押，是俄罗斯军队还是莫斯科在乌克兰东部的分离主义盟友。
+普京投降，还有反戈一击跟中共——这是绝对不可能发生的，大家想都不用想，这是纯属猜测，咱下面应该PPT写纯属猜测，因为它不具备这种可能性。第三个说打核战——它绝不可能，他想打他打不成，不可能！想都不用想！不管他怎么咋呼、怎么喊都是没用的！
 
-这段录音是俄罗斯国家广播公司VGTRK的记者安德烈·鲁登科（Andrei Rudenko）的采访。
+这三种东西以后不要再提，提它都丢人，就是没有常识！就是美国现在控制他打核战争的能力是什么概念呢？就是普京跟俄罗斯是在一个房子里边准备要放火，而美国和全世界的防核武的已经把房子外面大概500米、1000米、10公里之外都布置好了各种灭火器。
 
-在这段视频中，鲁登科向两人展示了梅德韦丘克的妻子奥克萨娜·马尔琴科（Oksana Marchenko）上周发布的视频，她要求用她丈夫交换这两名英国人。
+而且从天上专门有一个定点式的灭火器，你只要一点着、只要有火，我嘣就给你搁在这了，我把你闷死在屋里面去，我也不让你火出来，几乎不可能（出来）！什么核潜艇、我在你什么阿拉斯加转悠、你根本控制不了……也太小看美国了!
 
-随后，被拘留者用英语要求换回这位商人。
+字幕来源：[2022年3月17日《文贵大直播》全文字版](https://gnews.org/zh-hans/2187401/)
 
-阿斯林的母亲在接受英国《每日电讯报》周五发表的采访时曾呼吁释放他。
+编辑整理：海贼王M.D.LUFFY；
 
-这位名叫安·伍德（Ang Wood）的女士说，她从俄罗斯的广播中认出了她28岁的儿子，因为他身上有独特的纹身。
+字幕档制作：兵嫂；
 
-该报援引伍德的话说：“艾登是乌克兰武装部队的一名现役成员，因此是一名战俘，必须受到人道的对待。”
+视频制作及上传：Cindy；
 
-在社交媒体上流传的带有克里姆林宫支持的广播公司RT标志的视频中，这名年轻人似乎暗示乌克兰正在延长战争冲突的时间。
+G-News发布：海贼王M.D.LUFFY；
 
-目前尚不清楚这些人在视频中是否被强迫说话。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-乌克兰总统沃洛基米尔·泽伦斯基曾提议用67岁的梅德韦楚克交换目前被关押在俄罗斯的乌克兰人。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-在上周被问及潜在的交换问题时，克里姆林宫发言人德米特里·佩斯科夫（Dmitry Peskov）强调，梅德韦丘克“不是俄罗斯公民”，并表示他不知道他是否希望莫斯科干预他的案件。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-周一，佩斯科夫承诺将“传达”普京对该想法的任何回应。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-信息来源：** **[**Russia broadcasts video of captured ‘Britons’ demanding UK PM negotiate their release**](https://insiderpaper.com/russia-broadcasts-video-of-captured-britons-demanding-uk-pm-negotiate-their-release/)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

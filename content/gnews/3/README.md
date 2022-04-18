@@ -2,45 +2,30 @@
 ---
 
 
-## 有声|日媒解析普京侵略乌克兰的动机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368156/)
+## 澳大利亚取消对旅客入境前的中共病毒测试
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2368346/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月14日，一家日本媒体在节目中重点解析了普京侵略乌克兰的动机，认为与他从小接受到的苏联思想以及身为克格勃时的经历有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-40.png)
-首先，普京在2000年接任总统后，立即将俄罗斯国歌改回到了1977年以后苏联国歌的曲调，并在访问蒙古听到该国歌时流下了眼泪。这表明普京心中一直怀念苏联时代，并想以此曲调唤起俄罗斯人心中的大国情怀。
+#### 【澳洲热点】
 
-其次，普京废除了将11月7日的革命纪念日作为休息日，而将苏联战胜德国纳粹的5月9日，以及17世纪俄罗斯成功反击波兰的11月4日作为纪念日。并在2008年之后的5月9日举行过多次阅兵仪式。媒体分析，普京想通过这些向俄罗斯人灌输一种理念，俄罗斯是受到欺负就会反抗的国家。而此次俄罗斯侵略乌克兰，也是以乌克兰和西方会侵略俄罗斯的邪恶理论做基础的。
+翻译：Mttfly
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2230.png)
+据9NEWS报道，当地时间4月18日，澳大利亚消除了国际游客到访澳大利亚的主要障碍。海外旅客不再需要在起飞前提供阴性中共病毒测试报告。这意味着旅客可以避免原本需要在登机前3天内进行的RAT和昂贵的PCR测试。
 
-媒体还特别指出，普京废除11月7日的革命纪念日，就是因为身为克格勃的普京，亲眼见证了苏联的解体。一个强大的政权，竟在百姓的包围中瞬间消亡，让普京感到了极大的震撼和恐惧。
+但是，国际旅客仍必须提供两针病毒中共疫苗接种证明，并且在国际航班上仍必须佩戴口罩。
 
-分析人士称，郭文贵先生在2月底以来的数次大直播中都提到，一个人在幼年时的经历会影响他的世界观和判断力，越是在年少时缺失的他越想在成年后重新获得。而习近平和普京都是在各自的共产主义制度下，形成了反社会人格。日本媒体揭露的普京无比向往苏联时代的行为，恰好印证了郭先生这个观点。
+未接种疫苗的旅客可能需要在抵达澳大利亚后自费进行隔离。
 
+澳洲政府取消这类入境限制，预示着游轮将返回澳大利亚港口。乘坐游轮抵达的旅客必须在下船前填写用来记录健康和其它信息海上旅行声明。现在由各州决定游轮是否可以进入。新南威尔士州、维多利亚州和昆士兰州将迎来船只，P&O的266 米长的太平洋探险家号将于今天早上停靠在悉尼。
 
+参考新闻：[Australia scraps COVID-19 testing for international arrivals](https://www.9news.com.au/national/covid-19-australia-stops-all-coronavirus-testing-for-international-arrivals/a01f0f72-27ab-40d3-a56e-9251b13cbabf)
 
+发布：tianzhihuan
 
-
-
-
-文字版原文：[日媒解析普京侵略乌克兰的动机](https://gnews.org/zh-hans/2363023/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
