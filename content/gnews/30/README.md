@@ -2,24 +2,29 @@
 ---
 
 
-## 安倍呼吁美国清晰表明对台战略
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2365566/)
+## 加拿大年轻人染疫死亡率大幅上升
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365660/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+采编：加拿大温哥华扬帆农场 – 青青
 
-4月17日，日本前首相安倍晋三在一场自由民主党的集会上举行演讲时，呼吁美国向世界清楚表明，当中共入侵时将保卫台湾。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-358.jpg)（图片来自TORU HANAI/REUTERS）
 
-据《中央社》报道，安倍在演讲时谈及台湾问题，他以乌克兰战争为例，呼吁美国向世界清楚表明当中共国入侵台湾时将保卫台湾。他指出，美国长期以来对台湾采取战略模糊，但这是危险的。
 
-另外，日前美国《洛杉矶时报》刊登了一篇安倍投稿的文章，文中比较台湾与乌克兰处境的异同，也提到美国对台政策的模糊立场已经过时，现在应该改变。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2151.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
 
-参考链接：
-[https://www.cna.com.tw/news/aipl/202204170223.aspx](https://www.cna.com.tw/news/aipl/202204170223.aspx)
 
-总编：老孙
-校对发布：爱放飞
+据【CTV 新闻】4月14日报道，加拿大统计局最新数据显示，随着新冠病毒疫情在全国的再度蔓延，目前年轻人的超常规死亡率正悄然攀升。
+
+据悉，在2020年3月至次年11月期间，加拿大非正常死亡人数与去年同比增加了近29000人，高出常规数值约6%。其中，45岁以下男性的超常规死亡率约为19%，同龄女性的非常规死亡率约为13%，而且总体高于正常值15%左右。
+
+报道称，除因直接感染病毒致死外，其他疫情次生灾难包括：医疗延迟、药物使用过量等间接因素也导致了以上非正常死亡人数的大幅增加。以阿尔伯塔省为例，在奥米克戎新毒株肆虐期间，该省平均每周的非常规死亡人数多达150人，高出通常状况的25%。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
 
  
 

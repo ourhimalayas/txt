@@ -2,29 +2,40 @@
 ---
 
 
-## 加拿大年轻人染疫死亡率大幅上升
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365660/)
+## 俄中计划在太空合作，利用英国脱欧给欧洲带来灾难
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2365709/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-18-上午10.37.19.png)普京和习近平被认为将联手合作（图片：GETTY）
+据Express.co.uk独家获悉，俄罗斯和中共正计划在太空中合作，利用英国脱欧的一个致命弱点在欧洲造成混乱，这可能会给欧洲带来灾难。
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+这一警告来自国防特别委员会主席托比亚斯-埃尔伍德，此前一名美国空军官员表示，俄罗斯军队正在瞄准全球定位系统（GPS）卫星，这些探测器用于导航、制图和其他用途。据报道，克里姆林宫在乌克兰使用 “巴士大小 “的地面站，针对Navstar卫星群进行信号阻断。
 
+曾任英国陆军上尉的埃尔伍德先生认为，不久之后，这种情况就会在欧洲经常发生。
 
+他告诉Express.co.uk，这绝对是这场战争的走向， “它将挑战GPS，从军事角度来看，GPS是如此重要的基础设施–有这么多的武器和通信系统依靠它。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2151.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
+“俄罗斯的背后坐着中国，中国将用北斗支持格洛纳斯。
 
+俄罗斯有自己的独立系统，称为GLONASS，中国有一个称为北斗的系统。
 
-据【CTV 新闻】4月14日报道，加拿大统计局最新数据显示，随着新冠病毒疫情在全国的再度蔓延，目前年轻人的超常规死亡率正悄然攀升。
+与此同时被称为 “伽利略 “的欧洲系统仍未完全运行。
 
-据悉，在2020年3月至次年11月期间，加拿大非正常死亡人数与去年同比增加了近29000人，高出常规数值约6%。其中，45岁以下男性的超常规死亡率约为19%，同龄女性的非常规死亡率约为13%，而且总体高于正常值15%左右。
+同时也是伯恩茅斯东部议员的埃尔伍德先生警告说，欧盟和英国之间的分裂可能会被中国和俄罗斯所利用。
 
-报道称，除因直接感染病毒致死外，其他疫情次生灾难包括：医疗延迟、药物使用过量等间接因素也导致了以上非正常死亡人数的大幅增加。以阿尔伯塔省为例，在奥米克戎新毒株肆虐期间，该省平均每周的非常规死亡人数多达150人，高出通常状况的25%。
+“这是一个明显的被攻击目标。我们的日常生活绝对依赖于GPS。”
 
-校对编辑：硫酸羟氯喹64
+“伽利略是欧洲版的GPS，英国公司萨里卫星公司设计了该系统的 “大脑和心脏”，但该集团决定这一 “关键功能 “只对欧盟成员开放。它还没有正常运作，英国就被挤掉了。
 
-发稿：青青
+该系统于2026年投入使用，其特点是政府机构、武装部队和紧急服务机构可以使用公共监管服务（PRS）。
 
-原文链接： [https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
+现在，这种延迟可能将被证明是代价高昂的。
+
+参考链接：[Putin and Xi to exploit Brexit Achilles heel and spark ‘complete chaos’ in Europe](https://www.express.co.uk/news/science/1596572/putin-xi-brexit-news-gps-satellite-space-news-russia-ukraine-war-chaos-europe)
+
+* * *
+
+*编辑 &发布：长岛开心*
 
  
 

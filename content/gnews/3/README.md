@@ -2,75 +2,37 @@
 ---
 
 
-## 美国政要们祝大家复活节快乐
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2365967/)
+## 上海人的忍耐已经到了极限
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2366016/)
 
-**参议员玛莎.布莱克本：**
- “天 使 对 妇 女 说 ， ‘不 要 害 怕 ， 我 知 道 你 们 是 寻 找 那 钉 十 字 架 的 耶 稣 。他 不 在 这 里 ， 照 他 所 说 的 ， 已 经 复 活 了 。 你 们 来 看 安 放 主 的 地 方 。’” ——马太福音 第28章 第5、6节
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-10.jpg)资料图
+据微言微语4月17日报道，惨无人道的上海封城还在持续，解封遥遥无期。上海作家协会副主席陈村一篇《上海人的忍耐已经到了极限》的网文在疯转。七旬老作家日前因哮喘发作需急救，但从叫救护车到进入医院遭遇层层叠叠的阻碍，险些送命。老作家在文中斥责：“不知道是哪个昏官制定了这样一个丧尽天良、草营人命的规则。当一个人有病需要得到救助时，在这样的规则面前是不可能得到医治的。所有的专科医生都扑出去做永无止境的核酸检测，大部分医疗系统停摆，所有新冠以外的病人挣扎在生死线上，所有的病人都以自己的生命为十五万例仅有一例重症的奥密克戎让路，无数人因此离开人世，成为大局为重中的一粒尘埃。”
 
+一篇题为《上海逝者》的网文引发共鸣，文章将封城后上海死于防疫而非新冠的人名整理在案，网文留言区立刻变成上海哭墙，许多网友纷纷追加死亡案例，名单每天都在延长。每一个死者姓名背后都是一个生命的悲剧，每一个悲剧都源自习近平的独裁暴政。
 
+网友说：我们正在经历的上海事变清晰地展示出其残酷的性质：这是一场与公共卫生或防疫毫无关系的社会运动，精心设计、无情推行、坚定彻底，不在意任何社会、经济，乃至个体生命的代价。这一运动的理念来自体制源头，在香港等其他政策上再次成型，展示了其钢铁意志与毁灭性效果。上海被选作这样残酷战争的核心目标。
 
-> “But the angel said to the women, ‘Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay.’” — Matthew 28:5-6
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 17, 2022](https://twitter.com/MarshaBlackburn/status/1515692439897612296?ref_src=twsrc%5Etfw)
+正在进行的上海事变实际上已成为一场残酷程度不亚于甚至大于入侵乌克兰的征服战争，最令人痛惜的代价是无辜的人民。唯一区别是：外部世界并没有给予上海应有的关注。瞬间将几千万人置于战俘营式监管状态，这是超越任何规章的“超限战”，是一种1967式终结体制。
 
+上海浦东新区张江镇强征居民公寓做隔离方舱，爆发警民冲突。警察可以带警犬随意闯入民宅抓人去隔离，且拒绝出示被隔离者核酸检测报告，这种对人权的普遍践踏做实了新疆集中营管控模式的存在。
 
+给全球开药方的老中医习近平提出的动态清零政策，没把病毒饿死，武汉、上海、西安经他手饿死、病死、不堪忍受而自杀的老百姓不计其数。这股邪风正在刮向其他城市。上海人民的忍耐还没到极限，750万香港人能够200万人走上街头，用生命来抗争，也不愿饿死在家里。2600万上海人宁愿自己跳楼、全家跳楼也不抗争。上海的悲剧只是悲剧，最多换别人一捧眼泪；香港的悲剧也是悲剧，但是唤醒了前赴后继的勇士、为自由而战的抗战精神。
 
-**前国务卿迈克·蓬佩奥： **
-蓬佩奥全家祝您复活节快乐！ [#他复活了](https://gettr.com/hashtag/%23%E4%BB%96%E5%A4%8D%E6%B4%BB%E4%BA%86) [#HeIsRisen](https://gettr.com/hashtag/%23HeIsRisen)
+忍耐到了极限，就是鱼死网破；忍耐到了极限，就是你死我活。中共不可能派出200万警察或者部队，2600万人怎能坐以待毙？
 
+新闻参考链接：[https://www.rfi.fr/cn/专栏检索/微言微语/20220417-上海人的忍耐已经到了极限](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%BE%AE%E8%A8%80%E5%BE%AE%E8%AF%AD/20220417-%E4%B8%8A%E6%B5%B7%E4%BA%BA%E7%9A%84%E5%BF%8D%E8%80%90%E5%B7%B2%E7%BB%8F%E5%88%B0%E4%BA%86%E6%9E%81%E9%99%90)
 
+编辑：胖丁
 
-> Happy Easter from the Pompeo family! [#HeIsRisen](https://twitter.com/hashtag/HeIsRisen?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xL9LzI8A6M](https://t.co/xL9LzI8A6M)
-> — Mike Pompeo (@mikepompeo) [April 17, 2022](https://twitter.com/mikepompeo/status/1515777707975614468?ref_src=twsrc%5Etfw)
+* * *
 
-
-
-**众议员兰斯·古登： **
-今天，当我们庆祝耶稣基督复活的同时，他也提醒了我们信仰和家庭的重要性。 复活节快乐！
-
-
-
-> Today we are reminded of the importance of faith and family as we celebrate the resurrection of Jesus Christ.
-> 
-> Happy Easter!
-> — Lance Gooden (@Lancegooden) [April 18, 2022](https://twitter.com/Lancegooden/status/1515858659590422531?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**美国国务院：** 
-许多人道主义组织正在向受乌克兰危机影响的人们提供紧急援助。无论您身在何处，都可以通过以下方式提供帮助：
-
-
-
-> Many humanitarian organizations are providing urgent assistance to those affected by the crisis in Ukraine. Here are some ways you can help from wherever you are: [https://t.co/1ANlO5M6f8](https://t.co/1ANlO5M6f8)
-> — Department of State (@StateDept) [April 18, 2022](https://twitter.com/StateDept/status/1515842545879764996?ref_src=twsrc%5Etfw)
-
-
-
-**众议员玛乔丽·泰勒·格林： **
-亨特·拜登的笔记本电脑(内容)。 
-就要发布了。 
-内容是一个比一个的吓人。 
-但可能更让我困惑的是那些掩盖真相的人，他们对这一切都装作没事。 
-你怎么能这么做？ 
-怎么会有人这么做？
-
-
-
-> Hunter Biden’s laptop.
-> 
-> It’s about to be released.
-> 
-> The contents are one horror after another.
-> 
-> But what bothers me maybe even more are all the people that covered it up and are ok with it all.
-> 
-> How could you do that?
-> 
-> How could anyone do that?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1515869385684049920?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 
