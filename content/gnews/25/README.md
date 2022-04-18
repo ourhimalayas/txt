@@ -2,35 +2,28 @@
 ---
 
 
-## 美国特使在首尔就朝鲜导弹和核紧张局势进行会谈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365750/)
+## 秘翻在线： 俄罗斯国家电视台主播认为第三次世界大战已经开始
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2365783/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-359.jpg)图片来源：本文的链接
+俄罗斯国家电视台在报道“莫斯科”号沉没时，使用了第三次世界大战已经开始的表述。
 
-翻译/编辑：小红帽
+据英国《每日邮报》报道，5月15日（当地时间），俄罗斯国家电视台在“俄罗斯一号”的“60分钟”新闻节目中，主播奥尔加-斯卡贝耶娃说，“ 俄罗斯在乌克兰进行的特别军事行动已经推进到可以称为第三次世界大战的阶段，因为我们很显然是在与美国和北大西洋公约组织（NATO）作战。因为斯卡贝耶娃认为，美国和其他西方国家正在向乌克兰提供大规模武器支持”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/yna1065624913651394_594.jpg)图片来源：www.m.k-odyssey.com
+在节目中，还有人认为，必须对乌克兰发动大规模反击，以应对莫斯科号船的沉没。值得注意的是，节目中还有人向普京总统建议，对乌克兰首都基辅（Kyiv）使用核武器。
 
+在“俄罗斯一号”的其他节目中，还有人声称，西方正通过向乌克兰提供天文数字般的武器，使乌克兰政府走上血腥的道路。
 
-根据CNA 4月18日报道，美国朝鲜问题特使于周一抵达首尔，与韩国同行就如何解决平壤增加的导弹发射以及对可能恢复核试验的担忧进行会谈。
+该节目的另一主持人奥列西亚-洛塞娃声称，“西方认为俄罗斯是一个不值得在世界地图上存在的国家”，“在确认莫斯科号船沉没后的几个小时内，就有消息称必须将所有俄罗斯人从地球上抹去”。
 
-在为期五天的访问期间，美国特别代表Sung Kim及其副手Jung Pak将与包括核问题特使Noh Kyu-duk在内的韩国官员会面。
+关于“莫斯科”号的沉没，乌克兰方面声称该船是被两枚海王星巡航导弹击沉的，而俄方则将沉船原因归咎于火灾事故和恶劣的天气条件造成的。
 
-一行人的到来恰逢美国和韩国军队开始为期9天的年度联合军事演习。韩国参谋长联席会议周日表示，此次演习是“使用计算机模拟进行的防御性指挥所训练”，不会涉及部队的实地演习。
+然而，西方媒体的观点是，乌克兰的说法更可信，因为在莫斯科舰艇沉没后不久，俄罗斯袭击了基辅附近巴什尔基乌地区的一家导弹制造厂，这被认为是一次报复性袭击。
 
-朝鲜谴责联合演习是战争的预演。近年来，由于努力与平壤进行外交接触，并且由于新冠病毒的限制，此类演习已经缩减。
+信息来源：[https://korea-economics.jp/posts/22041702/](https://korea-economics.jp/posts/22041702/)
 
-周六，朝鲜试射了官方媒体所说的用于运送战术核武器的导弹。
-
-资料来源：[US envoy in Seoul for talks over North Korea missile, nuclear tensions](https://www.channelnewsasia.com/asia/us-envoy-north-korea-south-korea-missile-launch-nuclear-testing-2631101)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+责编：Eric Kim
 
  
 

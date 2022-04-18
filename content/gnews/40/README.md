@@ -2,33 +2,25 @@
 ---
 
 
-## 特鲁多完全认可俄罗斯在乌克兰的行为是“种族灭绝”
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2365067/)
+## 乌克兰救援前线的战友感动了欧洲某国国防高官
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2365268/)
 
-##### 作者：加拿大温哥华扬帆农场 -晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2157.png)图片来源：CBC NEWS
-据【国家邮报】4月14日报道， 继美国拜登总统明确表示俄罗斯在乌克兰的行为是一场种族灭绝后，加拿大总理特鲁多周三在魁北克拉瓦尔新闻发布会上表达了同样观点。
+撰稿：追着曙光跑
 
-曾担任国际法院律师的埃罗尔·门德斯教授认为，确认“种族灭绝”意味着可以采取进一步行动惩罚和孤立俄罗斯，以及对乌克兰额外支持的正当性。这包括进一步禁止购买俄罗斯石油和天然气，以及向乌克兰军队提供重型武器等。
+4月17日，郭先生盖特直播爆料，欧洲某国国防高官，刚从乌克兰前线回到欧洲的某国，请郭先生代他向所有在乌克兰救援的新中国联邦人表示感谢，以及将来有一天会去看望他们每一位。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-18-at-10.38.59-AM.jpeg)
+这位国防高官，当时是以普通人的身份，进入新中国联邦梅蒂卡救援的帐篷。他与战友们进行了交流，但战友们都没有认出他是谁。当时Nicole和战友们，非常礼貌、尊重、专业地问他，能不能拍照并接受采访，但是他由于任务在身拒绝了。
 
-拜登总统关于俄罗斯种族灭绝的指控得到乌克兰总统泽连斯基的赞扬和感谢，同时他希望美国能提供更多的重型武器来帮助乌克兰打击侵略者。
+看见战友们都在认真地工作，他非常感动。喝了两杯咖啡之后，跨过边防线进入乌克兰执行任务，然后坐军用飞机回到他的国家。
 
-新闻来源：[https://nationalpost.com/news/canada/trudeau-welcomes-talk-of-russias-action-in-ukraine-as-genocide](https://nationalpost.com/news/canada/trudeau-welcomes-talk-of-russias-action-in-ukraine-as-genocide)
+他还特别强调，新中国联邦救援的人当中，很多是对俄乌战争很关键人的家属。其中，与他军方合作的乌克兰某个关键人的家属，就是新中国联邦救援的。
 
-上传/发稿 – 【云起时】
-撰稿/翻译/听写 -【晨熹】
-素材/采编 -【文莱】
-校对/审核 -【云起时】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+郭先生最后指出，这位国防高官是他的好朋友，同时也是新中国联邦这几年在欧洲发展的战略合作伙伴，帮助新中国联邦，游说欧洲议会承认新中国联邦。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*发布：追着曙光跑*
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+信息来源：[2022-4-17 七哥来啦](https://gettr.com/post/p15op9j589b)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
