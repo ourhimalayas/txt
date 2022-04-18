@@ -15,35 +15,35 @@
 
 ---
 
-### [随着盖特的壮大和马斯克的推特收购，自由派变成进攻方](/content/gnews/1/README.md)
+### [美国参议员在台湾表示中共国必须为支持俄罗斯侵略付出代价](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [在俄日资企业 40%停止营业](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃人神共愤！俄军利用“移动火化装置”毁尸灭迹](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共印发《中央生态环境保护督察整改工作办法》](/content/gnews/4/README.md)
+ ` 儒为`
+
+### [随着盖特的壮大和马斯克的推特收购，自由派变成进攻方](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共将上海阳性病人抓走隔离，并捕杀他们的宠物](/content/gnews/2/README.md)
+### [中共将上海阳性病人抓走隔离，并捕杀他们的宠物](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海白卫兵拿棍棒打手无寸铁的市民](/content/gnews/3/README.md)
+### [上海白卫兵拿棍棒打手无寸铁的市民](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海学生微博发帖向求救 中共封控制造人道灾难](/content/gnews/4/README.md)
+### [上海学生微博发帖向求救 中共封控制造人道灾难](/content/gnews/8/README.md)
  ` 波士顿五月花农场金融部`
 
-### [COVID-19疫苗副作用集萃（2022.4.18E）打完辉瑞以后心肌炎了？？](/content/gnews/5/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.18E）打完辉瑞以后心肌炎了？？](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰灾难表明美国必须应对台湾问题明确表态](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳洲投票指南四：如何修改填错的选票](/content/gnews/7/README.md)
- ` 走进澳洲`
-
-### [2022/04/18英喜时事速递](/content/gnews/8/README.md)
+### [2022/04/18英喜时事速递](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲投票指南三：如何填写白色和绿色选票](/content/gnews/9/README.md)
- ` 走进澳洲`
-
-### [基辅市长：要给该市与俄罗斯有关的地标建筑改名](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [灾难中的私力救济](/content/gnews/11/README.md)
  ` 银河勇气之星`
