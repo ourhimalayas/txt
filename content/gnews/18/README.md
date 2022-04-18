@@ -2,35 +2,48 @@
 ---
 
 
-## 渥太华车队组织者帕特金保释听证因黑客袭击停止
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2364803/)
+## 文贵先生直播精要2022/04/17
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2365031/)
 
-##### 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2137.png)
-据【CTV NEWS】4月14日报道， 渥太华车队组织者帕特金面临两项新指控，但就在周三保释听证会开始后第二天，因其律师电脑被黑而突然意外停止。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/041009.jpg)[盖特直播链接](https://gettr.com/streaming/p15op9j589b)
 
-具体攻击细节因受法官禁令保护，不便公开。尽管今早已经解除了禁令，但部分证据和证词仍然无法分享。官方对金新指控包括：作伪证和妨碍司法公正。
+GETTR时间段： 00:22:10—-01:06:52
 
-目前尚不清楚这次袭击是否与金案有关，他的保释听证会将重新安排时间进行。
+**文贵先生：** 我就跟大家说，中国人没有问题，聪明、能干，是中国共产党出了问题。
 
-新闻来源：[https://www.ctvnews.ca/canada/pat-king-s-bail-review-halted-when-his-lawyer-s-computer-was-hacked-1.5862024](https://www.ctvnews.ca/canada/pat-king-s-bail-review-halted-when-his-lawyer-s-computer-was-hacked-1.5862024)
+刚刚接到一个电话，欧洲某国国防部高官曾经穿便服在波兰MEDYKA救援前线的新中国联邦帐篷里喝过咖啡。该人物请郭先生给前线参加救援的所有战友带话儿，说有朝一日他会亲自去看望每一位曾经在前线参加救援的新中国联邦人，并赞扬我们新中国联邦人非常专业、有礼貌。该高官请郭先生传达的第二个话儿就是：新中国联邦在MEDYKA前线拯救的人当中，很多是对俄乌战争非常关键的人物的家属。该高官合作的某个乌克兰关键人的家人就是被我们给拯救的。
 
-上传/发稿 – 【云起时】
-撰稿 -【晨熹】
-素材/采编 -【青青】
-校对/审核 -【云起时】
+这位高官多年来是我们新中国联邦在欧洲的战略合作伙伴，帮助我们游说欧洲议会承认新中国联邦。这个人是我多年的朋友，妻子是法国人。
+
+七哥秀G-FASHION新品，只有新中国联邦才有的迷彩服。这个蓝是来自西藏佛教的火焰，也是印度教中的梵。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2139.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2141.png)
+
+该欧洲高官在其国防部谈的最多的就是：新中国人和老中国人不同。他问为什么新中国人的素质那么高。
+
+再次感谢前线战友的一举一动给我们中华儿女挣来的荣誉。这位欧洲高官对前线战友的感激，必将汇集全世界的中国人，这对每一位中国同胞都至关重要。
+
+*听写： trustguo*
+
+*校对: 乐禧禧*
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

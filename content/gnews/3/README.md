@@ -2,35 +2,42 @@
 ---
 
 
-## 美韩开启联合军事演习，朝鲜强烈反对
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2365093/)
+## 最后通牒到期，乌克兰誓言在马里乌波尔战斗到底
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365250/)
 
-2022-04-17
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译： 文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/04/LYUZBIO254TG1MXSS1S.png)图片来源：https://www3.nhk.or.jp
-韩国与美国进行联合军事演习，目的是为朝鲜半岛的突发事件做准备
+翻译/编辑：小红帽
 
-4月17日，韩国武装部队参谋长联席会议宣布，将从明日4月18日起与美国军方进行联合军事演习，目的是为朝鲜半岛的突发事件做准备。朝鲜强烈反对美韩联合军演，表示 “损害朝鲜半岛和平的侵略者和挑衅者将要付出代价”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/mariupol-damage-rts_hpEmbed_20220404-020815_10x7_992.jpg)图片来源：ABC NEWS
 
-这次军演计划预计到本月28日结束，这次军演是一次在计算机上进行的防御性的演习，不涉及调动部队的实地演习，其主要目的是提高双方部队的作战执行能力。
 
-针对美韩军演，4月17日，朝鲜在与韩国的联络窗口祖国和平统一委员会的网站上发表声明说：”这是一次针对我国的先发制人攻击的核战争演习，无法保证意外的军事冲突不会升级为全面战争”。
+根据CNA 4月17日报道，乌克兰周日发誓要在马里乌波尔战斗到底，此前俄罗斯发出最后通牒，要求剩余部队在黑海港口城市投降。
 
-与此同时，朝鲜表示 “我们有强大的核威慑能力”，并说 ，”我们将确保损害朝鲜半岛和平的侵略者和挑衅者付出代价”，强烈反对美国和韩国的联合军演。
+“这座城市还没有沦陷，”乌克兰总理丹尼斯·什米哈尔说，在莫斯科要求投降的最后期限过去几个小时后，战士们躲在一个庞大的堡垒般的钢铁厂中。
 
-朝鲜认为美韩的军演是针对自己的敌对政策，多次要求美国和韩国停止联合军演。相关国家对朝鲜的弹道导弹发射和七次核试验保持高度警惕。
+“还有我们的军队，我们的士兵。他们会战斗到最后，”什米哈尔告诉美国广播公司。
 
-信息来源：
+莫斯科已将其军事重点转移到控制顿巴斯东部地区，并建立一条通往已经吞并的克里米亚的陆地走廊。
 
-[米韓 あすから合同軍事演習 北朝鮮は反発](https://www3.nhk.or.jp/news/html/20220417/k10013586361000.html)
+俄罗斯国防部表示，被包围的钢铁厂内有多达400名雇佣军，并呼吁里面的乌克兰军队“放下武器投降，以保全自己的生命”。
 
-编辑：LILY
-发布：肥鯮
+乌克兰总统泽连斯基表示，如果俄罗斯军队杀死了保卫该市的剩余部队，将结束和谈。
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+俄罗斯总统普京已经表示，会谈处于“死胡同”。
+
+乌克兰总理什米哈尔说，乌克兰希望通过外交途径解决问题，但如有必要，将战斗到底。
+
+资料来源：[Ukraine vows to fight to the end in Mariupol as ultimatum expires](https://www.channelnewsasia.com/world/ukrainian-forces-fight-end-ukraine-prime-minister-russia-invasion-2630721)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

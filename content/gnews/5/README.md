@@ -2,63 +2,48 @@
 ---
 
 
-## 俄罗斯战争掩盖了对西方最大的威胁—中共国的数字人民币
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2365080/)
+## 美国驻华大使馆：暂时免除赴美飞行前新冠病毒检测要求
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2365214/)
 
-翻译：sherryok (酷翻组)
-采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/041010.jpg)
+美国驻华大使馆和领事馆官网4月15日消息，允许美国公民、美国国民、合法永久居民及其配偶和子女离开中国上海前往美国，直至2022年5月11日，无需出境前新冠病毒检测或康复证明文件。
 
-![此图像的alt属性为空；文件名为G%E6%96%B0%E9%97%BB-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+美国疾病控制与预防中心(CDC)宣布，根据美国国务院的请求，CDC正在对其“[修正命令：所有抵达美国的航空公司乘客提供阴性新冠病毒检测结果或康复证明文件的要求](https://www.cdc.gov/quarantine/fr-proof-negative-test.html)”行使其执法自由裁量权，立即生效。疾控中心已确定，中国上海目前的紧急状况可能会阻止个人满足疾控中心修订后的检测命令的要求。这种执法自由裁量权的行使范围仅限于以下离开中国上海的个人：美国公民；美国国民、合法永久居民(LPR)；持有有效美国移民签证的非美国公民；以及与美国公民或合法永久居民一起旅行并持有允许他们前往美国的有效旅行证件的非美国公民的非移民。
+
+虽然疾控中心已确定，所有两岁或以上的航空乘客，除了有限的豁免情况外，从外国登机前往美国的航班必须符合修订后的检测命令的要求，但如果受此执法自由裁量权约束的个人不能在规定的时间内接受检测，航空公司可以在不满足阴性新冠病毒检测或没有康复证明文件的情况下，继续让这些人登机。此外，根据国际和国内公共卫生建议，以及疾控中心对国际旅行和国内公共卫生建议的建议，个人应采取一切必要和适当的措施，在旅行中保护自己和他人的健康，包括在飞行期间以及在公共交通、机场和其他交通枢纽中通过恰当佩戴合适的[口罩或呼吸器](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/types-of-masks.html)，保持鼻子和嘴被遮盖。这一执法自由裁量权的行使立即生效，并将于美国东部时间2022年5月11日23:59到期，但可能会进一步延长。
+
+此次行使执法自由裁量权所涵盖的个人将不需要在登上飞往美国的航班之前提供阴性新冠病毒检测结果的证明或康复证明文件，也无需填写《赴美旅客综合披露和证明表》第一节的证明。
+
+一些受此执法自由裁量权约束的个人，如配偶，可能是非美国公民的非移民，根据《关于在新冠病毒大流行期间推进全球旅行安全恢复的10294号总统公告》和疾控中心的修正命令：执行关于在新冠病毒大流行期间推进全球旅行安全恢复的总统公告，他们需要出示[疫苗接种证明](https://www.cdc.gov/coronavirus/2019-ncov/travelers/proof-of-vaccination.html#covid-vaccines)。未被认为完全接种了可接受的新冠病毒疫苗的个人，可以通过向最近的美国大使馆提交豁免请求来申请对疫苗接种要求的人道主义或紧急情况豁免。更多信息，请访问[新冠病毒信息-美国驻华大使领馆和领事馆](https://china.usembassy-china.org.cn/covid-19-information/)。
+
+如有紧急情况，请致电+(86)(10)8531-4000联系您所在领事区的大使馆或总领事馆。更多信息，请访问[https://china.usembassy-china.org.cn/contact/](https://china.usembassy-china.org.cn/contact/)，并可发送电子邮件至：
+北京大使馆：[\[email protected\]](/cdn-cgi/l/email-protection)
+广州总领事馆：广州[\[email protected\]](/cdn-cgi/l/email-protection)
+上海总领事馆：上海[\[email protected\]](/cdn-cgi/l/email-protection)
+沈阳总领事馆：沈阳[\[email protected\]](/cdn-cgi/l/email-protection)
+武汉总领事馆：武汉[\[email protected\]](/cdn-cgi/l/email-protection)
+
+**简评：**
+一想到美国，一般人的脑海中可能会浮现出枪战毒品的暴力混乱场景，但这都是好莱坞和美剧给人留下的关于美国的刻板印象。真实的美国社会可以从中共官员那里得到答案，因为他们都将自己的子女优先送到美国。相比其他国家，美国政府更自信，主要表现在他们允许民众的言论自由并给予美国公民合法的持枪权，与声称“绝对自信”的中共政权形成鲜明的对比。在此次疫情上海封城中，中共再次向世界展示了它们毫无底线、毫无人性的丑恶嘴脸。中共嘴里“万恶”的美帝国主义，决定采取非常手段，行使执法自由裁量权，帮助符合条件的相关人员撤离上海飞往美国，让人看到了危机之下急人民所急的典范。美国用行动证明自己是自由、文明、人权的捍卫者，而自二战之后，这个世界正是在美国的主导下才有了崭新的世界秩序，迎来了人类有史以来最长久的和平。中共的邪恶嘴脸将在美国这面正义的照妖镜下暴露无遗，中共政权也将随着全球性的排共、反共浪潮而走向灭亡。
+
+新闻链接：[HEALTH ALERT SHANGHAI: TEMPORARY WAIVER OF PRE-FLIGHT COVID TEST REQUIREMENT OR RECOVERY DOCUMENT](https://china.usembassy-china.org.cn/health-alert-shanghai-temporary-waiver-of-pre-flight-covid-test-requirement-or-recovery-document/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
 
-
-
-
-![](https://tse4.mm.bing.net/th?id=OIP.u2fUUoEZ3edCe_8XDSAkigHaE8&amp;pid=Api&amp;P=0&amp;w=232&amp;h=154)
-
-2022 年 4 月 17 日 大纪元英文网站报道了对美国冲基金经理凯尔巴斯（Kyle Bass）的警告：俄罗斯在乌克兰的战争正在掩盖中共政权构成的一个非常令人担忧的威胁：其无纸化货币系统。以下是采访中文翻译。
-
-“我认为，这是过去 50 年来对西方的最大威胁。而且它被俄罗斯入侵乌克兰所掩盖，”巴斯在最近接受 EpochTV 的[“美国思想领袖”节目](https://www-theepochtimes-com.translate.goog/kyle-bass-chinas-digital-currency-is-a-blackmail-weapon-beijing-facing-grave-financial-and-demographic-crisis_4397946.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)采访时说。
-
-中共国数字货币，也称为[数字人民币](https://www-theepochtimes-com.translate.goog/t-digital-yuan?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)、数字[人民币](https://www-theepochtimes-com.translate.goog/t-renminbi?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)、e-CYN 和 e-yuan，目前正由中共政权通过其中央银行开发。由于电子元由中国人民银行（PBOC）支持，它是一种中央银行数字货币（CBDC）或简称为中共国法定货币的数字版本。
-
-到目前为止，电子元的试点测试正在中共国 20 多个不同的城市进行，这笔钱在 2022 年北京冬奥会期间首次通过移动应用程序提供给来访的外国人。
-
-“这不是一个简单的数字支付应用程序。这是一个应用程序，它可以跟踪您的位置、您的姓名、您的社会安全号码是什么，[以及]您的所有标识符是什么。它具有地理定位能力，”他解释说。
-
-巴斯解释说，一旦中共国的数字货币完全开发并可供中国以外的所有人使用，中共政权可能会寻找某些电子元用户，例如陷入财务困境的用户，并对其进行腐败。
-
-“如果中共国政府能够接触到美国、欧洲和加拿大的每一位汤姆、迪克和哈利，想象一下，”他说。“想象一下，如果他们可以交叉运行一个算法，让我们寻找拥有 导火索 且资金短缺的美国政府雇员——也许他们已经结婚——我们可以立即腐蚀他们。”
-
-他补充说：“这让他们有机会腐蚀世界上任何可腐败的人，这是一个真正的国家安全问题。” “所以这是他们可以输出数字威权主义的一种方式。”
-
-巴斯说，中共国在全球推出电子人民币有一个非常具体的议程，那就是减少对美元的依赖。
-
-“中共国结算的全球交易中约有 87% 以美元结算，”他说。“他们极度缺乏能源，他们极度缺乏食物，他们极度缺乏基础材料，他们必须每天在世界各地购买这些东西，没有人相信他们的货币，他们仍然有不公开的资本帐户。”
-
-“那他们该怎么办？他们必须用他们的美元来做到这一点，”他说。
-
-根据总部位于华盛顿的智库大西洋理事会的[跟踪](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.atlanticcouncil.org/cbdctracker/)，包括美国在内的全球 80 多个国家正在探索发行 CBDC 。到目前为止，尼日利亚是推出数字货币形式的九个国家之一。
-
-3 月，白宫发布了乔·拜登总统关于数字资产的行政命令[大纲。](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/09/fact-sheet-president-biden-to-sign-executive-order-on-ensuring-responsible-innovation-in-digital-assets/)总统正在“紧急”研究和开发美国的 CBDC，并且发行一个“被认为符合国家利益”数字货币。
-
-几位美国立法者一直热衷于看到电子元构成的威胁得到妥善解决。去年 5 月，代表 French Hill (R-Ark.) 和 Jim Himes (D-Conn.)[提出](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://hill.house.gov/news/documentsingle.aspx?DocumentID%3D8494)了 21 世纪美元法案 ( [HR3506](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.congress.gov/bill/117th-congress/house-bill/3506/text?r%3D9%26s%3D1) )，该法案要求美国财政部在提交给国会的报告中包含任何风险对数字人民币构成的美元。
-
-3 月，参议员 Marsha Blackburn (R-Tenn.) 和她的八位共和党同事[介绍](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.blackburn.senate.gov/2022/3/blackburn-leads-effort-to-challenge-new-axis-of-evil-by-establishing-reporting-standards-for-china-s-digital-yuan)了《对丝绸之路说不法案》( [S.3784](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.congress.gov/bill/117th-congress/senate-bill/3784/cosponsors) )。如果获得通过，该立法将要求美国商务部和美国贸易代表办公室提交有关电子人民币的报告。
-
-此外，根据法案的文本，美国国务院将被要求在其网站上发布警告，警告前往中共国的美国公民“关于数字人民币的危险”。
-
-“在接下来的几周内，你会看到一些参议员将发起立法，禁止其使用。我相信，那些立法必须发生，”巴斯说。
-
-“西方需要召开会议，我们需要立即禁止它，”他补充说。“你不可能有一点点癌症，你要么有癌症，要么没有癌症。”
-
-新闻链接：
-[https://www.theepochtimes.com/chinas-digital-yuan-biggest-threat-to-the-west-is-overshadowed-by-russian-war-kyle-bass-warns\_4409010.html?welcomeuser=1](https://www.theepochtimes.com/chinas-digital-yuan-biggest-threat-to-the-west-is-overshadowed-by-russian-war-kyle-bass-warns_4409010.html?welcomeuser=1)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
 
  
 

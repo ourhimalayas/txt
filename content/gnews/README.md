@@ -15,140 +15,140 @@
 
 ---
 
-### [视频|自由欢乐的逾越节歌声，落在新中国联邦帐篷的时光里](/content/gnews/1/README.md)
- ` 爆料视频`
+### [上海抗疫 “掩耳到零”，民怨鼎沸“零容忍”](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频|痛着醒悟也有未来「非脱敏」](/content/gnews/2/README.md)
- ` 爆料视频`
+### [人民在CCP 的防疫下已经到了猪狗不如没有尊严的境地。](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [美韩开启联合军事演习，朝鲜强烈反对](/content/gnews/3/README.md)
+### [最后通牒到期，乌克兰誓言在马里乌波尔战斗到底](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [快饿死了，也只会选择跪着死去的民族，旁人冷漠麻木的看客心理，只会让主宰这个鬼家命运的魔鬼发出得意的笑，一切灾难根源都是CCP](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国驻华大使馆：暂时免除赴美飞行前新冠病毒检测要求](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [雅典娜时报-第266期](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [CCP故意整人民把准备发放的蔬菜堆在垃圾房中！：上海天台星城居委会小区有阳性病例，垃圾房作为生活垃圾的中转站，除了卫生问题，还可能有传播病毒的风险。](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [2022年4月18日《樱花快报》：消息人士称上海制定了“20号清零”目标](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [实名举报华大基因核酸检测被打成十级伤残，七根骨头已断！这辈子已经毁了！CCP 的罪恶又多了一笔血债！](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [因报复性空袭基辅市民被警告不要返回](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [宾州大学教授公开发表种族歧视言论遭质疑](/content/gnews/11/README.md)
+ ` 日本東京方舟農場`
+
+### [俄罗斯出现逃离普京政权的移民潮](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [Marine Le Pen玛丽勒庞在欧盟反欺诈办公室的一份新报告中涉嫌贪污公共资金](/content/gnews/4/README.md)
- ` 纽约香草山MOS02`
+### [视频|自由欢乐的逾越节歌声，落在新中国联邦帐篷的时光里](/content/gnews/13/README.md)
+ ` 爆料视频`
 
-### [俄罗斯战争掩盖了对西方最大的威胁—中共国的数字人民币](/content/gnews/5/README.md)
+### [视频|痛着醒悟也有未来「非脱敏」](/content/gnews/14/README.md)
+ ` 爆料视频`
+
+### [俄罗斯战争掩盖了对西方最大的威胁—中共国的数字人民币](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [原文转发:上海陈顺平之死—冷库已满,你们自己带走遗体！](/content/gnews/6/README.md)
+### [原文转发:上海陈顺平之死—冷库已满,你们自己带走遗体！](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币](/content/gnews/7/README.md)
+### [中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大年轻人超常规死亡率上升](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [文贵先生直播精要2022/04/17](/content/gnews/9/README.md)
+### [文贵先生直播精要2022/04/17](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [原文转发:上海没有日记，只有一封封自私的求助信……！](/content/gnews/10/README.md)
+### [乌克兰外长称俄罗斯仍试图攻占马里乌波尔](/content/gnews/19/README.md)
+ ` 蓝莲花农场`
+
+### [原文转发:上海没有日记，只有一封封自私的求助信……！](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [4/17/2022 文贵直播：欧洲某国国防部的一位高官参观了新中国联邦法治基金乌克兰救援的帐篷，他嘱托文贵向前线的所有兄弟姐妹们致以衷心的感谢](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022年3月27日 文贵大直播：世界政治地域文化经济彻底改；美国点明俄国非西方敌人普京；从普京必须离开看习近平的命；GClubs年会显天意人心遥相呼应](/content/gnews/12/README.md)
+### [2022年3月27日 文贵大直播：世界政治地域文化经济彻底改；美国点明俄国非西方敌人普京；从普京必须离开看习近平的命；GClubs年会显天意人心遥相呼应](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [樱花时政┃美国盗贼团伙开始掠夺富人](/content/gnews/13/README.md)
+### [西医在中国的发展（九）兴建教会学校-圣约翰大学](/content/gnews/22/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [樱花时政┃美国盗贼团伙开始掠夺富人](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4/17/2022 文贵盖特：共产党天天骂美国，但他们把所有的私生子女和家人都送到美国等西方国家](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/17/2022 文贵盖特：病毒的传播应该是随机的跳跃式的, 为何在中共国被封的城市是线性的，难道是共产党太聪明能够控制病毒传染途径？希望国内的战友们做好准备保护好自己和家人](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共对台湾的种族清洗计划](/content/gnews/16/README.md)
+### [中共对台湾的种族清洗计划](/content/gnews/24/README.md)
  ` mayflowertranslate`
 
-### [【粤语配音】2022年4月17日：俄罗斯和乌克兰双方出杀器，美国欧洲“引”俄罗斯和中共出手](/content/gnews/17/README.md)
- ` MOS香港部`
-
-### [渥太华车队组织者帕特金保释听证因黑客袭击停止](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [中共国殡仪馆工作人员急增睡在守灵间](/content/gnews/19/README.md)
+### [中共国殡仪馆工作人员急增睡在守灵间](/content/gnews/25/README.md)
  ` mayflowertranslate`
 
-### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）](/content/gnews/20/README.md)
+### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（下）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](/content/gnews/21/README.md)
+### [俄罗斯“抵抗就赶尽杀绝”在马里乌波尔拒绝投降的乌克兰（上）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月18日起韩美军演 朝鲜可能反制（下）](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [4月18日起韩美军演 朝鲜可能反制（上）](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [拒绝俄罗斯军队劝降，作誓死抵抗的架势 隐蔽在马里乌波尔Azovstari钢铁厂内的乌克兰士兵](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [喜马拉雅农场有偿征集中共军政情报](/content/gnews/25/README.md)
+### [喜马拉雅农场有偿征集中共军政情报](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [中共即将对多个大城市实施大封锁隔离](/content/gnews/26/README.md)
+### [中共即将对多个大城市实施大封锁隔离](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [班农称乌克兰前线救援创造历史性瞬间](/content/gnews/27/README.md)
+### [班农称乌克兰前线救援创造历史性瞬间](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [美国陆军以模拟的俄乌战争来训练士兵](/content/gnews/28/README.md)
+### [美国陆军以模拟的俄乌战争来训练士兵](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022/04/12 墙内世界](/content/gnews/29/README.md)
+### [2022/04/12 墙内世界](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国在约有1300万人口的西安市导入大规模的行动限制](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [上海名人被中共折磨致死](/content/gnews/31/README.md)
+### [上海名人被中共折磨致死](/content/gnews/33/README.md)
  ` 银河歌舞厅`
 
-### [截至4.17 俄乌战事汇总](/content/gnews/32/README.md)
+### [截至4.17 俄乌战事汇总](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共狙击美元的战略已经成功](/content/gnews/33/README.md)
+### [中共狙击美元的战略已经成功](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [二氧化氯，川普说的消毒剂，能抗击冠状病毒和毒疫苗吗？](/content/gnews/34/README.md)
+### [二氧化氯，川普说的消毒剂，能抗击冠状病毒和毒疫苗吗？](/content/gnews/36/README.md)
  ` 波士顿五月花农场`
 
-### [中共的外宣和上海的疫情走势](/content/gnews/35/README.md)
+### [中共的外宣和上海的疫情走势](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频文编|CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/36/README.md)
+### [视频文编|CCP还在催打疫苗，特别是老年人，就是在杀人](/content/gnews/38/README.md)
  ` KarmaLabs`
 
-### [欧盟将针对俄罗斯石油和银行领域实施第6轮制裁](/content/gnews/37/README.md)
+### [欧盟将针对俄罗斯石油和银行领域实施第6轮制裁](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [习近平与沙特王储共谋独裁战略关系](/content/gnews/38/README.md)
- ` NFSC News`
-
-### [视频文编|比利时总理和欧盟官方组织的相继到访开启了新中国联邦的外交默认](/content/gnews/39/README.md)
+### [视频文编|比利时总理和欧盟官方组织的相继到访开启了新中国联邦的外交默认](/content/gnews/40/README.md)
  ` KarmaLabs`
 
-### [北朝鲜试射 &#8220;新型战术制导武器 &#8221; 韩国军方证实有飞行物发射](/content/gnews/40/README.md)
+### [北朝鲜试射 &#8220;新型战术制导武器 &#8221; 韩国军方证实有飞行物发射](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜联储的创始人William Je 余建明接受英国GB News关于虚拟货币的采访](/content/gnews/41/README.md)
+### [喜联储的创始人William Je 余建明接受英国GB News关于虚拟货币的采访](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [4/17/2022国内经济财经周报：央行放水5300亿；银行下调交易限额；小麦价格持续飙涨](/content/gnews/42/README.md)
+### [4/17/2022国内经济财经周报：央行放水5300亿；银行下调交易限额；小麦价格持续飙涨](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [近百名犹太人在新中国联邦的七星大帐蓬共度逾越节](/content/gnews/43/README.md)
+### [近百名犹太人在新中国联邦的七星大帐蓬共度逾越节](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [美国及世界疫情简报（04-17-2022）](/content/gnews/44/README.md)
+### [美国及世界疫情简报（04-17-2022）](/content/gnews/45/README.md)
  ` 波士顿五月花农场`
-
-### [俄罗斯军方在日本海发射导弹，牵制日本的经济制裁](/content/gnews/45/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [台湾｜美前国安顾问吁美军驻台 郭文贵：美国将对台有一系列政策](/content/gnews/46/README.md)
  ` 關注組`

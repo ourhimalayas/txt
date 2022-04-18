@@ -2,30 +2,21 @@
 ---
 
 
-## 拒绝俄罗斯军队劝降，作誓死抵抗的架势 隐蔽在马里乌波尔Azovstari钢铁厂内的乌克兰士兵
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2364651/)
+## 中共对台湾的种族清洗计划
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2364843/)
 
-翻译：天天
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-34.jpg)
-在乌克兰东南部的马里乌波尔，虽然俄罗斯军队劝告躲在城里的乌克兰士兵投降，但乌克兰军队拒绝并作出了誓死抵抗的姿态。
+编辑：波士顿五月花—-思澈
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2129.png)图片来源：雅虎新闻
+**中共维护者曾是邓小平的翻译高志凯提出要对台湾进行种族清洗**
 
-俄罗斯军劝告藏身在马里乌波尔Azovstari钢铁厂内的乌克兰士兵投降，称如果他们在日本时间4月17日下午7点之前放下武器，就能保证他们的生命安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CF72609A-0680-4B8F-BBB2-CC552F1BC1D3.jpeg)
 
-据CNN报道，乌克兰军队表示拒绝投降，并将坚持继续保卫马里乌波尔市。
+中共国与全球化中心副主任高志凯曾是邓小平的翻译，一个激进的中共种族主义者公开发言支持在台湾开展种族政治清洗运动。他声称，10%的台湾人口是日本人的后裔，许多人是台独的支持者。如果中国获得对台湾的控制权，高志凯建议强迫每个有日本血统的台湾公民签署一份声明，支持与中共统一。根据高志凯的种族清洗计划，那些拒绝签字的人将被驱逐出境。
 
-与此同时，据报道，俄罗斯国防部截获了乌克兰军方的通讯，称乌克兰军方 “下令枪杀内部想要投降的士兵”。
+素材来源：[https://twitter.com/pybaubry/status/1447466780717289476?s=21&t=PWPgfoOCSnssP3IYrodIUA](https://twitter.com/pybaubry/status/1447466780717289476?s=21&amp;t=PWPgfoOCSnssP3IYrodIUA)
 
-除此之外，报道还称从投降的乌克兰士兵那里得到的信息，400名乌克兰士兵仍留在Azovstari钢铁厂。
+*发布：思澈*
 
-参考链接：[ロシア軍からの投降呼びかけ拒否、徹底抗戦の構え マリウポリのアゾフスタリ製鉄所に立てこもるウクライナ兵（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/aa49bc2dad4fdf7150f2b691ebc0b0c1ab471f36)
-
-* * *
-
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
 
 
  

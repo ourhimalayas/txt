@@ -2,29 +2,31 @@
 ---
 
 
-## 视频|自由欢乐的逾越节歌声，落在新中国联邦帐篷的时光里
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2365106/)
+## 上海抗疫 “掩耳到零”，民怨鼎沸“零容忍”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2365259/)
 
-【视频剪辑】文生
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-10.jpg)上海抗疫 “掩耳到零”，民怨鼎沸“零容忍” 网络图片
+据美国之音4月17日报道，中共国上海持续封城，丝毫未缓解。上海浦东新区政府16日发布“告浦东新区全体居民书”，坦承整个浦东新区已经封控了20天，但还要坚持。中共中央国务院副总理孙春兰和上海市委书记李强都表示，要继续贯彻落实习近平“动态清零”总方针。
 
-【文案编辑】 Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-犹太人在自由的新中国联梅迪卡前线救助邦帐篷里，庆祝以色列象征自由的“逾越节“
+4月12日，上海政府强行征用浦东张江镇九幢公寓楼的39家住户作为集中隔离房，引发民怨以及与警察的对抗。互联网上充斥着上海居民的愤怒，民间的呐喊和抗议不绝于耳，政府充耳不闻。在拥有2600万人口的大都市，封城近一个月，次生灾难可想而知。期间民众饿死、病死、不堪忍受压力和疾病的痛苦而自杀的事件不时被爆出。
 
-犹太人爱新中国联邦，支持你们为自由而战 ，几千年前，为了自由，犹太人说“明年相聚在耶路撒冷“；几千年后，为了自由，新中国联邦人说”明年相聚在盘古“「非脱敏」
+中共能封住全城，也能封住病毒吗？显而易见，动态清零是口号，是笑话。在病毒肆虐、强制接种毒疫苗的情况下，怎么可能病毒清零？掩耳到零吧，自己系个死疙瘩，自己再解开。民众的容忍远没有达到极限，否则中共的死期就在下一秒。
 
-【文案审核】爱米粒
+新闻参考链接：[https://www.voachinese.com/a/shanghai-residents-struggle-under-xi-s-zero-covid-policies-20220416/6532360.html](https://www.voachinese.com/a/shanghai-residents-struggle-under-xi-s-zero-covid-policies-20220416/6532360.html)
 
-【制作团队】大直播短视频组
+* * *
 
-发稿：qiutian（邱甜）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
