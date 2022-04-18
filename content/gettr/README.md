@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 6:32 PM (UTC)`
+
+04.18.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group10/origin/2022/04/18/18/28a1cc82-6bbc-81e0-0eb4-c36d598a70d7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/18/2022 3:56 PM (UTC)`
 
 4月18号，《铁锁梦》MV在iTunes上线后，仅在1个半小时后迅速登榜澳洲区MV总榜第一名🥇，MV流行榜第一名🥇，万分感谢澳洲的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉<br/><br/>4/18/2022 Just after 1.5 hours of launching, Miles Guo’s latest MV the “Chained Dream” has hit No.1 🥇on Australia 🇦🇺 MV Top Music Video Charts and No.1 🥇on Australia 🇦🇺 MV Pop Music Video Charts ! Thanks to our brothers and sisters in Australia!🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉🎉
@@ -147,13 +154,6 @@ Two volunteers from IOM and SSF think our coffee is the best. They are rooting f
 
 A Volunteer from Israel said he didn’t expect the Passover to be hosted in Medyka by such a nice group of people from the New Federal State of China. He supports our mission and he thinks if we keep on pushing it, we will achieve our goal of taking down the Chinese Communist Party (CCP).<br/><br/>一位来自以色列的志愿者说他没有想到在梅迪卡的逾越节会是由一群这么棒的新中国联邦人主办。他支持我们的使命并认为，如果我们坚持不懈，最终会实现消灭中共的目标。
 ![img](https://media.gettr.com/group35/origin/2022/04/18/04/b01d124c-830d-2520-ffcf-a63de70d8e1c/out.jpg)
-
----
-
-`@miles 4/18/2022 3:39 AM (UTC)`
-
-【Ukraine Rescue】 04/15/22  The Israeli volunteer who is celebrating Passover in the tent of the NFSC expresses her gratitude to us. And, to her surprise, she is learning that just as the Jews often say 'next year in Jerusalem', the NFSC people have a similar saying 'see you next year in Pangu', heralding the Chinese people in China will be free, and we will be reunited with our brothers and sisters who are still in China struggling with Communism, and we're going to fight together and win!<br/><br/>【乌克兰救援】 04/15/22  在新中国联邦帐篷内庆祝逾越节的以色列志愿者向我们表示了感谢。而且，她惊喜地得知，如同犹太人常说的‘明年在耶路撒冷见’一样，新中国联邦人也有一个类似说法‘明年在盘古相见’，预示着我们中国人民将在中国获得自由，与仍在国内与共产主义作斗争的兄弟姐妹团聚，并取得胜利！
-![img](https://media.gettr.com/group9/getter/2022/04/18/03/2a6c0c92-ee5c-e354-2e0a-f7503e5999fd/out.jpg)
 
 ---
 
