@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 5:59 AM (UTC)`
+
+【Ukraine Rescue】 04/16/2022  A Spanish mother and son who came to donate supplies asking for our vests because they feel the statement on the vest represents their heart, and asking our volunteers to take a picture together. Our vests have become a "hot commodity" at Medyka rescue center, and more than 200 have been given out.<br/><br/>【乌克兰救援】 04/16/2022  一对前来捐赠物资的西班牙母子向我们索要灭共马甲，因为他们认为马甲上的声明代表了他们的心声并主动要求合影。我们的马甲成了梅迪卡救援中心的“抢手货”，已经送出去200多件。
+![img](https://media.gettr.com/group22/getter/2022/04/18/05/cd59a53a-9d7c-2a68-051d-b9f33a6066eb/out.jpg)
+
+---
+
 `@miles 4/18/2022 5:49 AM (UTC)`
 
 【Ukraine Rescue】04/16/2022  Luka, a Spanish volunteer, is attracted to the slogan "Take down the Chinese Communist Party". He has a deep understanding of the CCP's treatment of Hong Kong, Xinjiang, suppression of press freedom and live organ harvesting. He calls for an end to mutual fighting and a joint effort against evil forces like Russia and the Chinese Communist Party.<br/><br/>【乌克兰救援】04/16/2022  西班牙的志願者卢卡(Luca)被“推翻中共”这一口号所吸引。他对中共的对待香港、新疆、压制新闻自由和活摘器官等罪行都有深刻认识。他呼吁停止互斗，共同对付像俄罗斯和中共这样的邪恶势力。
@@ -147,15 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 04.17.2022 俄乌战争战况播报<br/>
 ![img](https://media.gettr.com/group15/origin/2022/04/17/17/dac06d7f-4a7f-a65d-8a30-ed3cf7ae7595/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_designer 4/16/2022 10:18 PM (UTC)`
-
-什么是正道主义？<br/>要敬畏自然，遵守宇宙法则<br/>第一，这个国家的权力必须是属于人民，个人财富受到尊重和保护。<br/>第二，建立在法制基础上的对人权的尊重，信仰自由，言论自由。<br/>正道主义崇尚和平，坚持正道主义的新中国联邦将是一支和平的力量，将与世界上爱好和平的国家达成千年和平协议。<br/><br/>视频：蜂鸟战友创作-战友日常之正道基石<br/>#新中国联邦宣言 #漫画灭共 #正道主义
-![img](https://media.gettr.com/group23/origin/2022/04/16/22/55e0b6fb-9e14-f051-f715-896d4775e200/out.jpg)
 
 ---
 
