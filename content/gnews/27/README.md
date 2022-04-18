@@ -2,42 +2,40 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366282/)
+## 喜马拉雅币一周分析与总结（4月11日-4月17日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366322/)
 
-整理：枳实
-美工：精灵蓝
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-17.png)图片：雅典娜农场设计组 精灵蓝
+作者：纽约香草山金融部 – ILOVE战神
 
 
-雅典娜疫情更新（2022年 4月17日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2164.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2165.png)
-数据来源：
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+过去一周，喜马拉雅币价格小幅回落至40美元左右，平均日交易量约9万枚喜币。喜币上市以来总交易量约3520万枚 ，占今年总发行量的仅约3.52%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11.1-1.jpg)
+最近美国财政部长耶伦发表了针对数字资产的讲话，其讲话的主要重点体现出美国政府对数字货币的监管政策与喜币的设计特征一一对应。本周二，比利时总理主动与新中国联邦战友合影，在外交上默认了新中国联邦消灭中国共产党的合法性。郭先生在盖特视频中透露，全球有越来越多的国家支持新中国联邦，未来喜币将成为全世界最流行、最早的数字法币。而人民币将在全世界被认定为犯罪的货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5e78632a0f4d6e383f12841691acc52b.jpg)
+另外，喜联储主席William先生近日接受英国GB NEWS采访表示，加密货币的发展趋势不可阻挡，虽然目前各国政府对加密货币的监管越来越严格，但对行业整体发展是有利的。加密货币转账方便快捷，在俄乌战争中救援中发挥了巨大作用，目前乌克兰已经收到了超过1亿美元的加密货币捐款。加密货币是人们逃离独裁统治压迫的重要手段，未来加密货币市场还会持续增长。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-31.jpg)
+参考链接：
+1. [喜币成为全世界最流行、最早的数字法币 PPT](https://gettr.com/post/p15gmbxc349)
+2. [2022年4月12日 #乌克兰救援 前线：比利时首相亚历山大·德克罗，听妮可战友介绍新中国联邦救援信息及消灭共产党等目标后，对新中国联邦的付出表示感谢并主动提出要与战友合影。](https://gettr.com/post/p14wtki4977)
+3. [4月12日：尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！](https://gettr.com/post/p14y3tsd6bc)
+4. [#HimalayaExchange’s founder, @WilliamJE\_Real , shares his thoughts on the role of #cryptocurrencies during the Ukraine-Russia conflict.](https://twitter.com/himalayaxchange/status/1514298532160753672)
+5. [喜交所官网：HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-[covidlive.com.au](https://covidlive.com.au/)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
 
  
 

@@ -2,30 +2,50 @@
 ---
 
 
-## 乌克兰总统和国际货币基金组织总裁讨论“战后重建”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2366673/)
+## COVID-19疫苗副作用集萃(2022.4.18C) 摩德纳疫苗第三针全身骨头痛
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366919/)
 
-**翻译：文舞两道**
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-据路透社华盛顿17日消息，乌克兰总统泽连斯基在推特发文称，他与国际货币基金组织（IMF）总裁格奥尔基耶娃通电话，讨论确保乌克兰金融稳定和“为战后重建做准备”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8783034F-C875-4408-AA52-3A900ECADCA4.jpeg)
-泽连斯基说“我们有明确的计划和明确的前景，我们相信国际货币基金组织与乌克兰之间的合作将非常有意义”。
+**整理/编辑：禄森**
 
-乌克兰总理 Denys Shmyhal 表示有意参加本周在华盛顿举行的国际货币基金组织和世界银行举行的会议，以请求进一步的财政援助。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-29.png)图片来源：雅典娜设计组(614)
 
-**信息来源：**
 
-[ウクライナ大統領、ＩＭＦ専務理事と「戦後復興」巡り協議](https://news.yahoo.co.jp/articles/a57ca824284ba9e6364e8b1f858afd365803e1ba)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-**编辑：LILY**
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**发布：歪桑**
+**帖子原文**：
 
-20220418
+**博主: Mo**
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+摩德纳第三针
+
+就求别跟第二针一样。
+
+后续，昨天晚上没有高烧，一直低烧，还以为摩德纳副作用过去了，
+
+没想到早睡开始高烧、全身骨头疼。
+
+最最最后的后续，1号晚上十一点多睡到2号下午六点，2号晚上十二点多睡到3号早上十点，完美的度过了副作用
+
+**作者发布于2022-4-3**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-55.png)图片来源：小红书
+
+
+参考链接：[摩德纳疫苗第三针全身骨头痛](https://www.xiaohongshu.com/discovery/item/624659a20000000021037f67?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068313)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

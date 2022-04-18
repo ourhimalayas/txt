@@ -2,43 +2,52 @@
 ---
 
 
-## 美国前陆军中将认为莫斯科号沉没具有“战略意义”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366805/)
+## 基辅市长：要给该市与俄罗斯有关的地标建筑改名
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366939/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+翻译：wenwu
 
-**翻译：文扬
-编辑：jocozoner**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
 
 
-退役的美国陆军中将、前驻欧美军总司令马克·赫特林（Mark Hertling）认为，俄罗斯黑海舰队旗舰莫斯科号的沉没具有”战略意义”，加快了俄罗斯侵略行动的败亡速度。
 
-赫特林说，在放弃占领基辅后，俄罗斯开始将战略重心放在乌南部和东部，曾一度计划让莫斯科号在针对这些地区的作战中发挥关键的支援作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-362.jpg)图片来源：thehill.com
 
-在他发表的一共14条的系列推文中，赫特林分析，鉴于莫斯科号担负着整个舰队指挥与控制以及防空任务，并且会在计划中的敖德萨附近的两栖作战中输送海军陆战队，这艘主力舰艇的沉没将使俄罗斯的行动更加困难。
+基辅市长表示，随着俄罗斯继续入侵乌克兰，乌克兰首都与俄罗斯有关的地标性建筑将被更新名称。
 
-赫特林还回忆起战争第一周在基辅北部被歼灭的俄空降军第247近卫空中突击团，该部至少在这次战斗中国呢损失了7位将军和大量高级军官。
+“今天我提交了一份决定草案，将原基辅和莫斯科之间的友谊广场更名为马里乌波尔英雄广场。而议员们也支持这样的倡议，”基辅市长维塔利·克里琴科（Vitali Klitschko）周五在电报上发表声明说。
 
-赫特林还说，俄军阵亡人数越来越大，其中主要是应征入伍者。针对乌克兰方面统计的2万人这一伤亡数字，他认为 “可能是保守估计”。经他统计，在入侵乌克兰的前50天里，俄罗斯损失了700多辆坦克和数百辆其他类型的武装车辆。
+“今天，基辅市议会批准了一些城市设施的重新更新名称，关于这些设施的决定草案已经准备好并通过了必要的程序”。
 
-他还列举了乌克兰跨境作战取得的一些战绩，其中包括利用直升机对一个燃料及物资补给站的攻击，以及对俄罗斯境内其他关键后勤目标的特别行动袭击。
+他说，基辅的地铁站、街道、大道和其他地方仍有与俄罗斯有关的名称，官员们正在考虑为它们重新命名，并说“它们的重新命名是相关的”。
 
-对此，赫特林总结道：“我明白，敌人是永远不能低估的。但是，对于俄罗斯将军德沃尔尼科夫（Dvornikov）来说，要扭转这一局面将会非常困难。”
+他说，他们将在5月9日之前致力于重新命名这些地标性建筑，之后将在基辅市议会会议上对新名称做出“全面决定”。
 
-德沃尔尼科夫上周被任命为俄罗斯侵略军的最高指挥官。
+这一宣布是在莫斯科开始入侵以来，俄罗斯和乌克兰之间发生了50多天的冲突之后。
 
-**新闻链接**：[Moskva sinking is ‘strategically important’: former US general (afr.com)](https://www.afr.com/world/europe/moskva-sinking-is-strategically-important-former-us-general-20220416-p5adur)
+法国演员、俄罗斯总统普京的密友热拉尔·德帕迪约（Gérard Depardieu）上个月在接受法新社电话采访时称这场冲突为“自相残杀的战争”，他说乌克兰和俄罗斯“一直是兄弟国家。”
 
-发布：文武全才
+俄罗斯对其邻国的攻击受到了全世界的广泛谴责，乌克兰和西方官员指责莫斯科犯下了战争罪和种族灭绝罪。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelensky）周六警告说，如果俄罗斯军队在马里乌波尔杀死剩余的乌克兰军队，并继续实施像最近在基辅附近城市所发现的暴行，那么乌克兰和俄罗斯之间的谈判可能会完全结束。
 
+（文章仅代表作者观点与GNEWS无关）
 
+新闻来源：[Russia-associated landmarks in Kyiv to be renamed, mayor says](https://thehill.com/policy/international/3270818-russia-associated-landmarks-in-kyiv-to-be-renamed-mayor-says/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
 
  
 
