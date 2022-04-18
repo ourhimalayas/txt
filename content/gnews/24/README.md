@@ -2,41 +2,30 @@
 ---
 
 
-## 最后通牒到期，乌克兰誓言在马里乌波尔战斗到底
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365250/)
+## 上海抗疫 “掩耳到零”，民怨鼎沸“零容忍”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2365259/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-10.jpg)上海抗疫 “掩耳到零”，民怨鼎沸“零容忍” 网络图片
+据美国之音4月17日报道，中共国上海持续封城，丝毫未缓解。上海浦东新区政府16日发布“告浦东新区全体居民书”，坦承整个浦东新区已经封控了20天，但还要坚持。中共中央国务院副总理孙春兰和上海市委书记李强都表示，要继续贯彻落实习近平“动态清零”总方针。
 
-翻译/编辑：小红帽
+4月12日，上海政府强行征用浦东张江镇九幢公寓楼的39家住户作为集中隔离房，引发民怨以及与警察的对抗。互联网上充斥着上海居民的愤怒，民间的呐喊和抗议不绝于耳，政府充耳不闻。在拥有2600万人口的大都市，封城近一个月，次生灾难可想而知。期间民众饿死、病死、不堪忍受压力和疾病的痛苦而自杀的事件不时被爆出。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/mariupol-damage-rts_hpEmbed_20220404-020815_10x7_992.jpg)图片来源：ABC NEWS
+中共能封住全城，也能封住病毒吗？显而易见，动态清零是口号，是笑话。在病毒肆虐、强制接种毒疫苗的情况下，怎么可能病毒清零？掩耳到零吧，自己系个死疙瘩，自己再解开。民众的容忍远没有达到极限，否则中共的死期就在下一秒。
+
+新闻参考链接：[https://www.voachinese.com/a/shanghai-residents-struggle-under-xi-s-zero-covid-policies-20220416/6532360.html](https://www.voachinese.com/a/shanghai-residents-struggle-under-xi-s-zero-covid-policies-20220416/6532360.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-根据CNA 4月17日报道，乌克兰周日发誓要在马里乌波尔战斗到底，此前俄罗斯发出最后通牒，要求剩余部队在黑海港口城市投降。
+编辑：【英国伦敦喜庄园编辑部】
 
-“这座城市还没有沦陷，”乌克兰总理丹尼斯·什米哈尔说，在莫斯科要求投降的最后期限过去几个小时后，战士们躲在一个庞大的堡垒般的钢铁厂中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-“还有我们的军队，我们的士兵。他们会战斗到最后，”什米哈尔告诉美国广播公司。
 
-莫斯科已将其军事重点转移到控制顿巴斯东部地区，并建立一条通往已经吞并的克里米亚的陆地走廊。
-
-俄罗斯国防部表示，被包围的钢铁厂内有多达400名雇佣军，并呼吁里面的乌克兰军队“放下武器投降，以保全自己的生命”。
-
-乌克兰总统泽连斯基表示，如果俄罗斯军队杀死了保卫该市的剩余部队，将结束和谈。
-
-俄罗斯总统普京已经表示，会谈处于“死胡同”。
-
-乌克兰总理什米哈尔说，乌克兰希望通过外交途径解决问题，但如有必要，将战斗到底。
-
-资料来源：[Ukraine vows to fight to the end in Mariupol as ultimatum expires](https://www.channelnewsasia.com/world/ukrainian-forces-fight-end-ukraine-prime-minister-russia-invasion-2630721)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,35 +2,36 @@
 ---
 
 
-## 美国特使在首尔就朝鲜导弹和核紧张局势进行会谈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2365750/)
+## 樱花时政┃俄罗斯准备加大对马里乌波尔攻势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365840/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+马里乌波尔是乌克兰东部的战略要地，也是俄罗斯入侵的激烈的战场之一。现在俄罗斯军队要求乌克兰军队投降的最后期限已经过去，俄罗斯称其要求被忽视，准备加大进攻的攻势。人们担心平民的伤亡将进一步增加。
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯准备加大对马里乌波尔攻势.jpg)图片来源：本文链接
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/yna1065624913651394_594.jpg)图片来源：www.m.k-odyssey.com
+俄罗斯军队为全面控制马里乌波尔继续与乌克兰军队激战。17日俄罗斯向乌克兰方面发出“放下武器可保性命”的通牒，喊话乌克兰军队在日本时间17日晚上7点以前投降保命。
 
+对此，保卫马里乌波尔的乌克兰准军事组织亚速营指挥官马克西姆佐林17日在接受NHK采访时表示，“俄罗斯军队已经集结了14000多名士兵，占领了马里乌波尔50%以上的地方。”马克西姆佐林承认乌克兰军队处于劣势，但“我们将继续战斗，永不投降，”表现出了抵抗到底的决心。马克西姆佐林还透露驻首都基乌附近的部队将前去支援马里乌波尔。
 
-根据CNA 4月18日报道，美国朝鲜问题特使于周一抵达首尔，与韩国同行就如何解决平壤增加的导弹发射以及对可能恢复核试验的担忧进行会谈。
+与此同时，俄罗斯国防部发言人科纳申科夫还警告加入乌加入克兰军队的外国人士兵说，“如果继续抵抗将全部歼灭。”
 
-在为期五天的访问期间，美国特别代表Sung Kim及其副手Jung Pak将与包括核问题特使Noh Kyu-duk在内的韩国官员会面。
+随着俄罗斯设定的投降期限过去，在马里乌波尔的俄罗斯队长说，“我们的要求被忽视了”，俄罗斯国营通讯社表示准备对马里乌波尔加大攻势。
 
-一行人的到来恰逢美国和韩国军队开始为期9天的年度联合军事演习。韩国参谋长联席会议周日表示，此次演习是“使用计算机模拟进行的防御性指挥所训练”，不会涉及部队的实地演习。
+乌克兰副总理别列舒克17日在社交媒体上发文称，我们 “多次要求俄方在马里乌波尔建立疏散公民，特别是妇女和儿童的路线”，目前马里乌波尔仍有不少居民居住。人们担心战斗愈演愈烈，会造成市民的伤亡进一步增加。
 
-朝鲜谴责联合演习是战争的预演。近年来，由于努力与平壤进行外交接触，并且由于新冠病毒的限制，此类演习已经缩减。
+信息来源：
+[マリウポリ 降伏期限すぎる ロシア側は攻勢強める構え](https://www3.nhk.or.jp/news/html/20220418/k10013586721000.html)
 
-周六，朝鲜试射了官方媒体所说的用于运送战术核武器的导弹。
-
-资料来源：[US envoy in Seoul for talks over North Korea missile, nuclear tensions](https://www.channelnewsasia.com/asia/us-envoy-north-korea-south-korea-missile-launch-nuclear-testing-2631101)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

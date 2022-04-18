@@ -2,28 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2365523/)
+## 俄罗斯国家电视台宣布第三次世界大战已经开始
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2365690/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-104.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-17.png)
+04/16/2022 今日印度媒体：俄罗斯“莫斯科号”巡洋舰沉没后，俄罗斯国家电视台宣布，第三次世界大战已经开始。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p15qxgl69d8](https://gettr.com/post/p15qxgl69d8)
-访谈：[https://gettr.com/post/p15qu2j4e65](https://gettr.com/post/p15qu2j4e65)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
