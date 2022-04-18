@@ -2,32 +2,22 @@
 ---
 
 
-## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
+## 樱花时政┃意大利重开驻基辅大使馆 西班牙跟进
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369818/)
 
-撰稿：东京樱花团/asket
+撰稿：东京樱花团/加一颗稻草
 
-奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
-“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
+法新社罗马18日电，续法国和土耳其上周宣布，驻乌克兰大使馆将从利维夫迁回基辅后。意大利驻基辅的大使馆于今天重新开放。这是入侵乌克兰的俄罗斯军队撤出基辅地区后，又一个国家让外交官返回乌国首都。西班牙总理桑杰士（Pedro Sanchez）今天也表示，马德里将在未来几天重开驻基辅大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.jpg)[图片来源](https://www.google.com/search?q=%E5%9F%BA%E8%BE%85+%E6%84%8F%E5%A4%A7%E5%88%A9%E5%A4%A7%E4%BD%BF%E9%A6%86&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBu2IdEkJblP3oc5vt2Tv_pFNpSQdQ:1650304103541&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwikn_PulZ73AhW_QkEAHabXBPsQ_AUoA3oECAEQBQ#imgrc=06B_XWVEWPCQSM)
+俄军2月24日侵略乌克兰后，意大利、法国等将驻基辅外交官转移到乌西城市利维夫。西班牙使馆迁至波兰。土耳其一度将驻乌克兰大使馆迁移至靠近罗马尼亚边界的车尼夫契。近日在俄军撤离基辅周围和乌克兰北部后，各国使馆人员陆续返回乌国首都。
 
-“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
+俄军在乌克兰遭遇惨败后，各国对乌克兰的抵抗侵略的能力的信心增强。各国使馆迁回基辅，使得各国对乌克兰的军事和民生等援助更加快捷有效。
 
-内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
-
-这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
-
-内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
-
-虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
-
-信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
+消息来源：[义大利重开驻基辅大使馆 西班牙也快了](https://www.rfi.fr/cn/%E4%B9%89%E5%A4%A7%E5%88%A9%E9%87%8D%E5%BC%80%E9%A9%BB%E5%9F%BA%E8%BE%85%E5%A4%A7%E4%BD%BF%E9%A6%86-%E8%A5%BF%E7%8F%AD%E7%89%99%E4%B9%9F%E5%BF%AB%E4%BA%86)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

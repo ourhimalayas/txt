@@ -2,12 +2,30 @@
 ---
 
 
-## 4月18日乌克兰救援行动（图片1-10）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2369827/)
+## 郭先生盖特04.17:欧洲某国国防部的高官亲临新中国联邦在梅迪卡的帐篷
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2369926/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/98493817-2A67-41CC-A28D-60C79AE1A90C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2EE89382-B513-4FFB-BA66-296BC61BFC2D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/735B606F-34B4-4572-A9C6-673F0582A4B7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/85268A86-6458-435F-A26E-315A43DC99FC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CA6DCC4B-0E59-42EE-A3FC-6D9DAF987C88.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/64A27BAF-A214-4A32-AD34-29BF2F895B32.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/211E334F-55CB-4C86-BA80-1761D7646175.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DF4B3852-C2E2-4D32-9CC0-51C3851F3218.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2F9ED69F-ECC7-47DD-8EEF-C5DA81639EAC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2B3A25B6-083A-4F30-8422-3DA45322D5D1.png)
-发布：水涨船高
+撰稿: Grace
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-18-at-6.15.47-PM.jpeg)
+据郭先生4月17日的直播，欧洲某国国防部的一位高官亲临新中国联邦在乌克兰梅迪卡的帐篷，并且品尝了两杯新中国联邦咖啡。
+
+郭先生说：“这个人是某国的国防部的高官。。。他们是以最普通人的身份当时到了梅迪卡。到了咱营房帐篷里，进行了跟咱们战友们交流，咱战友傻乎乎地不知道人家是谁，是吧，人家在那喝了两杯咖啡，人家跨过这个了边防线，进了乌克兰，执行过人家的任务，坐人家军用飞机已回到了人家的国家了。”
+
+据郭先生透露，这位高官特别恳请郭先生转告战友们，有一天，他要去看望每一个在乌克兰战争当中，在梅迪卡救援乌克兰人的这些兄弟姐妹和朋友们。
+
+他告诉郭先生，他特别记得帐篷里的一位女士。 “就是就是大家的喜欢Nichole ，” 郭先生高兴地说道。
+
+这位高官还表示，当他看到了在帐篷里工作的几位新中国联邦的小伙子的工作后特别感动。他说，战友们非常专业地礼貌地问其是否愿意接受采访。
+
+郭先生估计，这是最起码一，两周以前的事。 “然后他现在回到他的国家，感动得不得了，” 郭先生说道。
+
+另外，这位高官还特别地提醒郭先生，乌克兰的战友们曾经救下了乌克兰军方的某个关键人的家人。
+
+“他一定要带上一句话。他说，你们去拯救的人当中，很多是俄乌战争中很关键人的家属，他说，他们合作的乌克兰军方的某个关键人的家人就是被我们所拯救的，”郭先生说道。
+
+接着，郭先生更是进一步地爆料道，“他是我们几年来新中国联邦的在欧洲的战略合作伙伴，帮助我们游说欧洲议会，承认新中国联邦。是我多年的朋友。”
+
+参考链接:  [https://gettr.com/streaming/p15op9j589b](https://gettr.com/streaming/p15op9j589b)
 
  
 
