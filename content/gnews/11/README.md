@@ -2,42 +2,52 @@
 ---
 
 
-## 欧洲某国国防部官员对新中国联邦的救援行动表示感谢
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2369275/)
+## 香港是东西方沟通的桥梁,台湾相当美国认养的第57个州
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2369594/)
 
-作者：纽约香草山-下午茶
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8826.40%EF%BC%89%E9%A6%99%E6%B8%AF%E6%98%AF%E4%B8%9C%E8%A5%BF%E6%96%B9%E6%B2%9F%E9%80%9A%E7%9A%84%E6%A1%A5%E6%A2%81%2C%E5%8F%B0%E6%B9%BE%E7%9B%B8%E5%BD%93%E7%BE%8E%E5%9B%BD%E8%AE%A4%E5%85%BB%E7%9A%84%E7%AC%AC57%E4%B8%AA%E5%B7%9E%E3%80%902022%E5%B9%B403%E6%9C%8817%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+**郭文贵先生：**现在你可以真正能看到这个世界上很大的变化，就是香港和大陆之间和爆料革命之间以及世界的形势有一个根本的质的变化。你可以看到香港人和大陆人之间这个仇恨逐渐从过去的爱到仇到现在，实际上大陆人冷静下来了，冷静到了什么程度？
 
+你可以看我最近在大陆的很多好多朋友，各界的人说，他说：真不至于把香港搞成这样了，香港搞成这样对谁都没好处。真就越来越觉得外国人说为什么你们要把一个下蛋的金鸡给掐死呢？它对你永远不会有威胁。
 
+而且不但如此，很多人觉得香港经济一旦完了，就这样下去，怎么可能大陆会好？而且香港的病毒现在这么高涨，会不会是放毒什么的？大家猜测很多，包括房地产的整个的情况。
 
+我想告诉你们，兄弟姐妹们，当你看到香港问题的时候，你一定要看到两个问题，你一定要记住的：香港问题绝对不是中国和台湾的问题。美国和西方为啥对台湾这么重视？你打了台湾，实际上台湾的所有的政治、经济、生产，还有拿着几十万美国护照的台湾人，你等于就是攻击了美国的一个私生子或者说一个养子。台湾就是美国的57个州，它就这么认为的，你攻台就是攻我了。
 
+那么对香港是怎么看待呢？香港在美国人和西方人眼里边是认为我和你中国和东方之间沟通的最重要的桥梁。毫不夸张地说，这是我和你之间的信任的基础、文化的桥梁、历史的一个见证，这里有我核心的利益。严格地说，西方人把香港当成在东方的情人，极为体贴，极为恩爱，而且是深爱。
 
-4月17日，根据郭文贵先生临时直播信息 ，受欧洲某国国防部重要官员委托，通过文贵先生向在梅迪卡参加救援的新中国联邦人致谢，并表示日后，他会亲自看望每一位在梅迪卡前线参加救援的战友。
+所以共产党把这个西方在东方你认可我的情人和我在你，你让我在各种条件下接受的这么一个养子，认养的孩子，56个州、57个州，你把他掐死，你把他弄死，我是接受不了的。所以说西方人在这个问题上是绝对妥协不了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-18-143914-1.png)
+跟乌克兰为啥不一样？乌克兰跟美国没半毛钱的关系。战略上我也没怎么着你，历史上我也不欠你的，我也没害你，都是你欧洲的鸟事，是吧？你想跟他好，你想加入欧洲是你俩的事儿，美国是完全站在国际警察上来帮助乌克兰。
 
-大约一至两周前，欧洲某国国防部重要官员以普通人身份参观了梅迪卡新中国联邦营地帐篷，受到了战友们专业而礼貌地接待，并享用了著名的战地咖啡。新中国联邦人的素质与尊重深深感动了他。
+字幕来源：[2022年3月17日《文贵大直播》全文字版](https://gnews.org/zh-hans/2187401/)
 
-他表示，新中国联邦人救援了很多俄乌战争中关键人物的家属，与他们合作的乌克兰军方的某个重要人的家人就是被新中国联邦拯救的。
+编辑整理：海贼王M.D.LUFFY；
 
-新闻链接：
-[https://gettr.com/post/p15op9j589b](https://gettr.com/post/p15op9j589b)
+字幕档制作：兵嫂；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+视频制作及上传：Cindy；
 
-编辑/校对/发稿：遍地开花
+G-News发布：海贼王M.D.LUFFY；
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

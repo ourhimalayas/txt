@@ -2,32 +2,29 @@
 ---
 
 
-## 基辅地区发现900多具平民尸体
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369581/)
+## 有声|台湾军方无人机来自中共 暴露了台湾的系统问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2369665/)
 
-##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-11.png)
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
-据【CTV NEWS】4月15日报道， 警方周五表示，俄罗斯撤军后在乌克兰首都周边地区发现了900多名平民尸体，其中大多数人被枪杀。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-大量的屠杀是在俄罗斯国防部誓言要加强对基辅导弹袭击和俄军旗舰“莫斯科号”被击沉后发生的。基辅附近的警察部队负责人安德烈·内比托夫说，每天在瓦砾下和乱葬坑中发现更多的尸体，公用事业工人在基辅郊区收集并掩埋尸体，而该地区仍处于俄罗斯控制之下。他还表示，俄军正在“追查”表达强烈亲乌克兰观点的人。
+4月16日，郭文贵先生在盖特直播中指出，他在14日爆料的中共把自己制造的无人机卖给台湾军方这一消息，在台湾引起了巨大震撼。
 
-乌克兰总统泽连斯基指责俄军恐吓平民并追捕在乌克兰军队或政府服役的任何人。他说：“我们正在尽一切努力拯救我们的人民。”
+郭先生继续明确宣布，他希望告诉美国政府、台湾的现任蔡英文政府以及所有台湾同胞，中国共产党先把无人机卖给了所谓的澳大利亚公司，然后澳大利公司又将其卖给了台湾军方。对此消息，他愿意承担一切法律责任。这事关台湾人民的安全，相关部门可以直接进行核实和确认。另外，中共的无人机能够卖给台湾军方，已经不单纯是无人机的问题，还暴露出台湾的整个系统出现了问题。 到目前为止，台湾的卖台贼仍然在不断地从中共政府谋取巨大的金钱和物质利益。我们需要让美国和全世界都知道卖台贼与中共的坑脏交易。
 
-[原文链接](https://www.ctvnews.ca/world/more-than-900-civilian-bodies-found-in-kyiv-region-police-1.5863274)
+文字版原文：[台湾军方无人机来自中共 暴露了台湾的系统问题](https://gnews.org/zh-hans/2366508/)
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+音频处理/发稿：Daxia
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
