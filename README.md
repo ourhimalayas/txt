@@ -15,101 +15,101 @@
 
 ---
 
-### [耶伦将只出席G20部分会议以示抗议俄罗斯](/content/gnews/1/README.md)
+### [无论普京是否收手,获得全世界支持的乌克兰都是大赢家](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [乌克兰人的英勇智慧和媒体控制让世界与乌克兰站在一起](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文耀牌咖啡机&amp;大卫的七分宣传不影响人心向新中国联邦](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [DC每日热点0418](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [耶伦将只出席G20部分会议以示抗议俄罗斯](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/2/README.md)
+### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/6/README.md)
  ` GTV News Talk`
 
-### [经济不景气 中共暂停推广 “共同富裕”](/content/gnews/3/README.md)
+### [经济不景气 中共暂停推广 “共同富裕”](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰总理：“马里乌波尔还未沦陷，我们将战斗到最后”（2/2）](/content/gnews/4/README.md)
+### [乌克兰总理：“马里乌波尔还未沦陷，我们将战斗到最后”（2/2）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰总理：“马里乌波尔还未沦陷，我们将战斗到最后”（1/2）](/content/gnews/5/README.md)
+### [乌克兰总理：“马里乌波尔还未沦陷，我们将战斗到最后”（1/2）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本首相谴责俄罗斯的“战争罪行”的言论，支持率达88%](/content/gnews/6/README.md)
+### [日本首相谴责俄罗斯的“战争罪行”的言论，支持率达88%](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美联储货币政策的狂热追随者](/content/gnews/7/README.md)
+### [美联储货币政策的狂热追随者](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/8/README.md)
+### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/9/README.md)
+### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [东航自其波音客机坠机惨剧后，现将该机型重新投入使用](/content/gnews/10/README.md)
+### [东航自其波音客机坠机惨剧后，现将该机型重新投入使用](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】4月16日新闻联播以3月31日旧视频制造上海清零盛世](/content/gnews/11/README.md)
+### [【G时新闻】4月16日新闻联播以3月31日旧视频制造上海清零盛世](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [白宫宣布于5月12日举行全球新冠疫情峰会](/content/gnews/12/README.md)
+### [白宫宣布于5月12日举行全球新冠疫情峰会](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普习两魔头的结盟及其给世界带来的灾难（七）](/content/gnews/13/README.md)
+### [普习两魔头的结盟及其给世界带来的灾难（七）](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [俄方号称击毁西方军援飞机，中共导弹难脱干系](/content/gnews/14/README.md)
+### [俄方号称击毁西方军援飞机，中共导弹难脱干系](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [2022年2月1-2日 郭文贵先生视频 节选整理](/content/gnews/15/README.md)
+### [2022年2月1-2日 郭文贵先生视频 节选整理](/content/gnews/19/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [🎉🎉🎉MV版《铁锁梦》4.19五周年纪念日全球上线](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/17/README.md)
+### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/20/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/18/README.md)
+### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/21/README.md)
  ` thedawn`
 
-### [外国首脑接连访日 岸田首相在危机中求取实绩](/content/gnews/19/README.md)
+### [外国首脑接连访日 岸田首相在危机中求取实绩](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/20/README.md)
+### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [多国首脑相继访日 岸田危机公关忙](/content/gnews/21/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [美日等国善待从中共国上海出逃的人](/content/gnews/22/README.md)
+### [美日等国善待从中共国上海出逃的人](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [2022/04/18 文贵先生蓋特](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声｜俄证实俄军少将被乌军击毙](/content/gnews/24/README.md)
+### [有声｜俄证实俄军少将被乌军击毙](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜马里乌波尔的乌克兰守军坚决不投降](/content/gnews/25/README.md)
+### [有声｜马里乌波尔的乌克兰守军坚决不投降](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022/04/13 墙内世界](/content/gnews/26/README.md)
+### [2022/04/13 墙内世界](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共以“清零”做掩护，实则用中共病毒疫苗杀人](/content/gnews/27/README.md)
+### [中共以“清零”做掩护，实则用中共病毒疫苗杀人](/content/gnews/28/README.md)
  ` 银河歌舞厅`
 
-### [数字货币发展进入法律规范化时代](/content/gnews/28/README.md)
+### [数字货币发展进入法律规范化时代](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [中共为大连和青岛大隔离做舆论准备](/content/gnews/29/README.md)
+### [中共为大连和青岛大隔离做舆论准备](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [Ezra Levant在Tucker Carlson Tonight上讨论特鲁多对新闻业的许可证计划](/content/gnews/30/README.md)
+### [Ezra Levant在Tucker Carlson Tonight上讨论特鲁多对新闻业的许可证计划](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/31/README.md)
+### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [新中国联邦俄乌战争正式走向国际舞台展示中国人新形象](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [美国及世界疫情简报（04-18-2022）](/content/gnews/33/README.md)
  ` 波士顿五月花农场`

@@ -2,49 +2,46 @@
 ---
 
 
-## 经济不景气 中共暂停推广 “共同富裕”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2369266/)
+## 文耀牌咖啡机&amp;大卫的七分宣传不影响人心向新中国联邦
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2369455/)
 
-日本共同社4月18日北京报道，一位熟悉此事的中共国消息人士周一表示，随着经济在疫情大流行中放缓，中共国已决定暂时停止全面推广习近平雄心勃勃的 “共同富裕 ”政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/C-4.jpg)mainichi.jp
-去年，习近平承诺追求共同繁荣，旨在通过对有利可图的行业，包括IT和金融业实施更多征收的政策法规来缩小国内的收入差距。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8813.40%EF%BC%89%E6%96%87%E8%80%80%E7%89%8C%E5%92%96%E5%95%A1%E6%9C%BA%E3%80%81%E5%A4%A7%E5%8D%AB%E7%9A%84%E4%B8%83%E5%88%86%E5%AE%A3%E4%BC%A0%E4%B8%8D%E5%BD%B1%E5%93%8D%E4%BA%BA%E5%BF%83%E5%90%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E3%80%902022%E5%B9%B403%E6%9C%8817%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:4)
 
-习近平推动实现共同繁荣，政府能够强制性地纠正经济不平等，这个目标可能会给富人带来沉重的负担。这已经引发人们担忧这世界上人口最多的国家将成为一个不太有吸引力的市场。
+**郭文贵先生：**唯一体现的就是刚才就像文耀把这咖啡机带的商标是吧，嫁给白人的中国美女，商标这个有点问题，一个颤颤抖抖的桌子是吧，这个文耀我得念她一辈子。
 
-消息人士说，这个世界第二大经济体在国家“清零政策”的背景下显示出失去增长势头的明显迹象，习近平得出结论，加强对公司的监控将进一步缩减企业活动。
+还有咱们现场有些不协调的战友有些，谁跟我，长岛哥跟我说了句，说我们这个上传的现场的视频，罗伊忘了加密了，结果欺民贼也上去了，说大卫说了句话：我们三分救援，七分宣传。这是大卫的话，我从来没有说过，我相信老班长、长岛哥也没说过。这是大卫的性格，不代表新中国联邦。
 
-执政的中国共产党将在今年秋季召开十年一次的大会，习近平将在大会上获得有争议的第三届国家领导人任期，在这次大会之前，中共国预计将集中精力稳定经济和社会发展。
+如果郭文贵要需要宣传,我们用跑那把他们送那宣传去吗？是吧？我们不需要这个。但是欺民贼就是天天在七哥屁股上拿着放大镜找屎吃，那一定让他吃够的，没有问题的。
 
-一些外交事务专家还表示，习近平在连任后可能会恢复实施各项措施，以实现其珍视的建立共同繁荣的目标。
+但我们不在乎这个，我们在乎的是谁？兄弟姐妹们，在乎共产党恐不恐惧，在乎共产党害不害怕。特别是全世界反华浪潮已经即将到来的时候，我们在乎人家是否认为我们代表正确的亚洲人，和共产党是否担心这么多有良知的中国人就像我说的，七哥这个太厉害了，就像曾庆红都佩服得五体投地呀，这个人心向郭改成人心向中国联邦。
 
-中国共产党领导的政府加强了对中国IT巨头的限制，以遏制它们的垄断行为和无序的资本扩张，引发了人们对中国高科技产业的创新将受到阻碍的担忧。
+字幕来源：[2022年3月17日《文贵大直播》全文字版](https://gnews.org/zh-hans/2187401/)
 
-2021年4月，中共国的市场监管机构对阿里巴巴集团控股有限公司处以罚款182亿元人民币（28.6亿美元），这显然是根据中共国的反垄断法征收的创纪录金额。
+编辑整理：海贼王M.D.LUFFY；
 
-此外，中共国的大企业和商业领袖被认为是被中央当局强迫采取可能有助于缩小收入差距的措施，例如捐款和提供社会支持。
+字幕档制作：兵嫂；
 
-但官方数据周一（4月18日）显示，1-3月期间，中共国经济仅比去年同期增长了4.8%，因为随着传染性极强的奥米克戎（Omicron）病毒变种的蔓延，几十个城市已被部分或全部封锁。
+视频制作及上传：Cindy；
 
-俄罗斯入侵乌克兰导致的全球供应链中断，也模糊了国家经济的前景，使中共国政府更难实现其约5.5%的国内生产总值目标。
+G-News发布：海贼王M.D.LUFFY；
 
-消息人士说，最终，负责经济和金融政策的副总理刘鹤向习近平提出，应暂停促进共同繁荣。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-同时，据官媒报道，3月份，中共国决定推迟更广泛的房产税试验，本来引入房产税可能作为“共同富裕”的象征。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**特评**：共同社一直在关注中共国防疫清零政策，这样的清零政策发挥的就是集中力量办大事的集权特点，过程中不顾老百姓死活，践踏人权的恶性事件层出不穷，对社会经济的负面影响一定是巨大的。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-郭先生今天盖特中爆料，他得到的情报显示，中共国的GDP一定是负增长，但现在公布1-3月比去年同期增长4.8%，除了统计数据一贯造假外，中共也在借封锁清零给人打疫苗，消除60岁以上老人，更包括老弱病残的，将社会资源消耗降下来，然后把GDP数据顶上去。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-郭先生说他一年前都不相信中共会这么干，现在没法不相信了，他们正在这么做，还要“净化民族”。太邪恶 ！
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-除了对内继续维持极权统治，他们也想通过封锁隔离打断世界供应链，给世界带来更大的灾难。台湾一定会打的。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-不灭中共，人类不能得拯救。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/316dccce0e13-china-suspends-promotion-of-common-prosperity-amid-economic-slump.html](https://english.kyodonews.net/news/2022/04/316dccce0e13-china-suspends-promotion-of-common-prosperity-amid-economic-slump.html)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+G-TV：日本银河系农场。
 
  
 
