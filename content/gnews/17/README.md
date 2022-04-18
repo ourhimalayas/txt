@@ -2,20 +2,47 @@
 ---
 
 
-## 乌克兰救援前线报道4.18.2022：NFSC营地的复活节烧烤活动
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2366650/)
+## SpaceX火箭成功将第二颗美国间谍卫星送入轨道
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366859/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-1-1.png)4月17日，NFSC营地举办复活节烧烤活动，一家印度媒体在现场报道。图片来源：NFSC news素材区
-4月17日是波兰当地的复活节，无情的战争打破了人们平静的生活，别无选择的乌克兰难民仍不断地涌入波兰边境，节日期间的运输巴士班次少了许多，唯有新中国联邦的大帐篷24小时对外敞开着大门。前线人员的每一份付出就像播下了一粒粒爱的种子，在梅迪卡的人们心里生根、发芽……，以下是来自前线的最新消息。
+翻译：文乐
 
-从15日救援团队在NFSC帐篷为犹太志愿者举办逾越节庆祝晚会开始，本周的NFSC帐篷内外就充满着节日的欢乐气氛，17日复活节当天，救援团队在营地准备了丰富的节日食物和户外烧烤，与所有身处异乡的难民和国际志愿者们一起庆祝这个对他们来说仅次于圣诞的重大节日。来自世界各地的国际志愿者和滞留在此的乌克兰难民们聚集在NFSC营地享受着咖啡和美食。一家印度媒体现场报道了NFSC营地的复活节烧烤活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-14.jpg)4月17日，NFSC营地的复活节烧烤活动。志愿者们（左下、右上）与乌克兰难民（右下）享受美食。图片来自NFSC news素材区
-郭文贵先生在[17日用直播](https://gettr.com/post/p15qxr76847)的方式，向梅迪卡前线的救援团队转告**一位欧洲某国国防部高级官员**的感谢。这位被郭先生形容“很猛很猛”的欧洲某国高官是郭先生多年的朋友，也**是负责游说欧洲议会承认新中国联邦的战略合作伙伴**。一、两周前，他**利用去乌克兰执行任务的机会私访NFSC帐篷并喝了咖啡**，因任务在身他拒绝了前线人员对他进行现场采访和拍照的征询，但**救援团队的表现与素养给他留下了深刻印象**。让他看到了新中国人的崭新形象。不仅如此，他还获悉**乌克兰军方某关键人员的家属，受到了新中国联邦大救援行动的救助**。这位雷厉风行的官员乘坐军用飞机刚刚回国。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-8.jpg)4月17日，郭文贵先生在Gettr平台上直播。图片来自Gettr
-天黑了，梅迪卡的夜非常寒冷，[22名乌克兰儿童](https://gettr.com/post/p15qwqs8cc2)走进温暖的NFSC帐篷，他们在意大利“诺亚方舟”的援助下刚从战区撤离，年龄约在 7-17岁左右。也许孩子们并不知道，与他们素不相识的新中国联邦团队早已准备了丰富的食物，BBQ炉一刻没停地供应着虾、鸡翅、牛肉等美味的烧烤，孩子们大概是又冷又饿，簇拥在桌前挑选美食。晚上10:30左右， “诺亚方舟”公益团队陪护孩子们乘坐巴士前往意大利的寄宿家庭。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-43.jpg)刚刚从乌克兰撤离的孩子们在NFSC帐篷里度过复活节。图片来自NFSC news素材区
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
 
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-192.png)SpaceX的发射项目是2019年空军以2.97亿美元的总固定价格与SpaceX签订的三项合同之一
+
+官员证实，周日上午，美国国家侦察局(NRO)的一颗机密卫星用可重复使用的 SpaceX Falcon 9 火箭成功发射到太空。
+
+NROL-85 卫星于当地时间上午 6 点 13 分从加利福尼亚州范登堡太空部队基地发射升空。[NRO在一份声明中说，](https://www.nro.gov/Portals/65/documents/news/press/2022/NROL-85%20%20Press%20Release_17April22.pdf)周日的发射是 NRO 首次重复使用之前发射到太空的火箭助推器。
+
+NRO 仅将 NROL-85 卫星描述为“关键的国家安全有效载荷”，这是今年与 Spacex 一起发射的第二颗卫星。
+
+[据埃隆·马斯克](https://www.spacex.com/vehicles/falcon-9/)的航空航天公司 Spacex 称，它总共发射了 147 枚 Falcon-9 火箭，其中 107 枚已经着陆。总共有 87 枚火箭被重新发射，其中包括 2017 年第二次使用的第一枚火箭。
+
+猎鹰的第一阶段飞回并降落在洛杉矶西北部的海边基地。
+
+这次发射是空军在 2019 年以 2.97 亿美元的总固定价格与 SpaceX 签订的三项合同之一。
+
+NRO 是负责建造和发射美国卫星的政府机构，这些卫星向立法者、情报机构和国防部提供情报数据。
+
+新闻来源：[spacex falcon-9 rocket successfully launches second us spy satellite into orbi](https://nypost.com/2022/04/18/spacex-falcon-9-rocket-successfully-launches-second-us-spy-satellite-into-orbit/)
+
+* * *
+
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
 
  
 
