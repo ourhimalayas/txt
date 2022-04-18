@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 9:23 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group13/origin/2022/04/18/09/1fb79489-7bbc-e42d-5bb5-b6b318d41893/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 6:10 AM (UTC)`
 
 2022.04.17  新中国联邦 | 喜健康   唐氏综合症在北美的医疗和教育
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 2022-4-17 跟着洋流环游世界🌎，#小小尼莫音乐会 🎼第七期，读万卷书，还要行万里路，音乐旅行出发啦⛵️
 ![img](https://media.gettr.com/group45/liveorigin/2022/04/17/19/b2a59783-b4a7-38b8-8255-74f32cc0200f/db77deaeeaadf94601c75dae84bb7948.jpg)
-
----
-
-`@miles 4/17/2022 6:25 PM (UTC)`
-
-2022-4-17 七哥来啦
-![img](https://media.gettr.com/group48/liveorigin/2022/04/17/18/e4ed94d3-ece5-bd1e-0d3d-189326716fb7/db77deaeeaadf94601c75dae84bb7948.jpg)
 
 ---
 
