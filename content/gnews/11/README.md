@@ -2,30 +2,26 @@
 ---
 
 
-## 澳大利亚取消对旅客入境前的中共病毒测试
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2368346/)
+## 回顾“4.19”VOA断播事件 认清中共特务龚小夏
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2368517/)
 
-#### 【澳洲热点】
+作者：文真
 
-翻译：Mttfly
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2230.png)
-据9NEWS报道，当地时间4月18日，澳大利亚消除了国际游客到访澳大利亚的主要障碍。海外旅客不再需要在起飞前提供阴性中共病毒测试报告。这意味着旅客可以避免原本需要在登机前3天内进行的RAT和昂贵的PCR测试。
+2017年4月19日，经VOA多次邀请之后，郭文贵先生接受了VOA中文部龚小夏团队的采访。在接受VOA采访前，中共高层多次警告和威胁郭先生，试图阻止他接受采访，并且，郭先生在国内的亲人和员工也因此再次遭到中共拘禁。 “4.19”之后，郭先生开启的灭共之战，正式登上了国际舞台。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-1-1.jpg)
+震惊中外的“4.19“VOA断播事件的策划者是中共特务龚小夏，她原本精心准备了采访，想钓鱼郭先生，企图打探到郭先生手上到底有多少中共高层，尤其是王岐山的大料。不料反被郭先生借力打力，成了爆料王岐山的绝好机会，眼看事情弄巧成拙的龚小夏，被迫终断直播，因此成就了爆料革命最早的里程碑——”4.19”断播事件。
 
-但是，国际旅客仍必须提供两针病毒中共疫苗接种证明，并且在国际航班上仍必须佩戴口罩。
+“4.19“VOA断播事件把爆料革命和西方世界联系在一起，让西方世界开始重视中共的大外宣在西方媒体的渗透。“4.19“VOA断播事件撕下了海外伪民运”反共“的伪装，并暴露了中共在海外布置的沉默力量。
 
-未接种疫苗的旅客可能需要在抵达澳大利亚后自费进行隔离。
+参考链接：
+1. [起底伪类、中共特务龚小夏！](https://gettr.com/post/p157ncw263b)
+2. [VOA“419断播门”，龚小夏偷鸡不成蚀把米](https://gettr.com/post/p15nxgkb6fc)
 
-澳洲政府取消这类入境限制，预示着游轮将返回澳大利亚港口。乘坐游轮抵达的旅客必须在下船前填写用来记录健康和其它信息海上旅行声明。现在由各州决定游轮是否可以进入。新南威尔士州、维多利亚州和昆士兰州将迎来船只，P&O的266 米长的太平洋探险家号将于今天早上停靠在悉尼。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-参考新闻：[Australia scraps COVID-19 testing for international arrivals](https://www.9news.com.au/national/covid-19-australia-stops-all-coronavirus-testing-for-international-arrivals/a01f0f72-27ab-40d3-a56e-9251b13cbabf)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+总编：文真
+编辑/审核：Ivy001
+校正/发稿：Fei797
 
  
 

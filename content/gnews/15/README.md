@@ -2,56 +2,56 @@
 ---
 
 
-## 有声|俄乌战场最新进展 04/17/2022
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368283/)
+## 美国打俄罗斯就像七哥上厕所撒泡尿功夫灭掉欺民贼一样
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2368375/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-截止当地时间4月16日，
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-9.02.14-PM.png)
-- 乌克兰总统办公室顾问称，是俄罗斯在乌克兰的领土上发动了一场无端的战争，故意大规模杀害平民，大规模破坏民用基础设施。因此，乌克兰的任何报复行动在道德上和法律上都是绝对合理的。
-- 在哈尔科夫和伊久姆，乌克兰继续炮击哈尔科夫的俄军，主要是西北军区的第6集团军和北方舰队的第14军团所部，俄军意图掩护伊久姆方向的补给线。
-4月15日，乌军击退了俄军在伊久姆发动的对巴文科伏和斯拉夫扬斯克的进攻。
-- 在顿涅茨克州和卢甘斯克州，俄军继续每天对波帕斯纳亚、鲁别日诺耶和马林卡展开攻势，并沿着前沿阵地进行猛烈炮击。然而截止4月15日，俄军没有取得任何成功推进。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8803.40%EF%BC%89%E7%BE%8E%E5%9B%BD%E6%89%93%E4%BF%84%E7%BD%97%E6%96%AF%E5%B0%B1%E5%83%8F%E4%B8%83%E5%93%A5%E4%B8%8A%E5%8E%95%E6%89%80%E6%92%92%E6%B3%A1%E5%B0%BF%E5%8A%9F%E5%A4%AB%E7%81%AD%E6%8E%89%E6%AC%BA%E6%B0%91%E8%B4%BC%E4%B8%80%E6%A0%B7%E3%80%902022%E5%B9%B403%E6%9C%8817%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
 
-乌克兰国防部4月15日表示，除了顿涅茨克共和国和卢甘斯克共和国的第1和第2军团外，第58和第8集团军是俄军在顿巴斯的主要军力。
+**郭文贵先生：**就这次在俄乌战争当中就能看出，美国人只把自己的已经在阿富汗战争、伊拉克都用完不用的所谓毒刺性导弹——便携式的，给到乌克兰去，就打你坦克、打你飞机、打你将军。
 
-俄军需要真正的休整，才有可能在正面战场上突破乌克兰防线。防空部队在乌克兰顿巴斯的上空击落了 6 架Orlan-10无人机。
-- 在马里乌波尔，俄军继续在马里乌波尔西南部和东部围攻乌克兰守军。乌克兰海军陆战队第36旅指挥官4月15日表示，马里乌波尔的局势正在恶化，但不会投降。
+在伊拉克的前期使用的所谓的电子干扰，啥叫电子干扰？很多是便携式的!严格讲咱们这些人到以色列就可以买，有的是，就把你的信号给你干扰得你就完全通不了信了。人家只是用了当年伊拉克战争中期的一些监听系统，一个全给你瘫痪掉了!通讯全给你拿回来了!
 
-马里乌波尔市市长顾问彼得罗-安德留申科说，俄军正在向伊利奇金属厂地区部署重武器和火炮，用以对亚速钢厂进行攻击。
+就是你根本现在的战争就是说：封你的眼，下你的枪，再不行就给你底下绊子，你找不着方向。人家美国人是用了都是老招才用的！
 
-乌克兰国防部报告说，4月15日，俄罗斯用远程轰炸机图-22M3对马里乌波尔进行了空袭，这是本次战争中的第一次使用这种战略轰炸机。由于地面攻击速度缓慢，俄军正在加强空袭和炮击。
-- 在南方战线，过去24小时内，赫尔松周围没有重大变化。俄军对赫尔松以西的乌克兰阵地进行了有限的攻击，并继续炮击尼古拉耶夫，但没有取得任何推进。
-- 乌克兰军事情报4月15日报道，国际制裁正日益扰乱俄罗斯的生产能力。
+严格讲就像七哥对付这欺民贼一样是吧？七哥在谈笑之间欺民贼已经是灰飞烟灭是吧？什么都没了！还战什么战呢？是不是？！七哥把当年对付林山寨拆迁人的招,还封上了村长，那些欺民贼都没了，哪能见得了。
 
+就像我们有一个很好的朋友，就是一直跟随爆料革命，说了一句话，说爆料革命的精彩的瞬间太多了。你们还记得历史上有做什么叫谷卓恒是吧？你还记得有这么个孙子将军？当时出来砸郭的，还有什么盲流子？
 
-世界上最大的坦克制造商、俄罗斯T-72主战坦克的生产商乌拉尔瓦贡扎沃德公司正面临着贷款利率上升，材料和部件，包括装甲钢，价格上涨，以及进口部件短缺的问题。俄罗斯的进口替代努力无法维持现有合同。
+我咋看文昌鱼跟盲流子亲兄弟俩似的，你俩没亲戚吗？你别笑！你别笑！是吧？盲流子是吧？你还见这人还存在吗？是吧？还有吗？
 
+但是我们对付他们的招都是轻描、清淡地就划掉他。你看那些记者写我们、骂我们，还有华尔街那孙子那叫什么玩意？写《习家资产》的，一个叫什么？傅什么玩意（傅才德）？知道吗墨镜？那叫傅啥？还把跟什么纸巾赵（赵岩）还老要见我，有上百次要见我，就是不见他，是吧？
 
+还有什么到我家门口抗议的事情，最后就被抓的抓，你还见梁冠军吗现在？你还见的什么周什么什么吗？你见什么博讯的韦石（孟维参）——韦屎，是吧？你看这帮孙子垃圾到什么程度？就是现在美国人对付他们这帮人就像我对付欺民贼一样——轻描淡写！你真的上厕所撒泡尿的时间这事就没了！
 
+挑战在哪里俄乌？我告诉大家，没多少人真正在乎乌克兰多少人死？也没多少人在乎这个国家有没有被打烂？在乎的是钱，西方国家在乎自己的是钱和经济。一旦资本市场的金融市场完了，所有政客都滚球蛋了；第二在乎是自己手中的权力。
 
+字幕来源：[2022年3月17日《文贵大直播》全文字版](https://gnews.org/zh-hans/2187401/)
 
+编辑整理：海贼王M.D.LUFFY；
 
+字幕档制作：兵嫂；
 
-文字版原文：[俄乌战场最新进展 04/17/2022](https://gnews.org/zh-hans/2363006/)
+视频制作及上传：Cindy；
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+G-News发布：海贼王M.D.LUFFY；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

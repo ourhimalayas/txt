@@ -15,128 +15,128 @@
 
 ---
 
-### [俄乌战争彻底改变世界的政局和政治,以后不会再有俄罗斯](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第15天位列3国iTunes音乐榜首](/content/gnews/2/README.md)
+### [世界各地的年轻人现在非常反对中共国的侵略](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [路大脑袋原价130万的房子现在以230万挂出被加价抢买](/content/gnews/3/README.md)
+### [新中国联邦俄乌战争正式走向国际舞台展示中国人新形象](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [谎言:中共全部撤出乌克兰侨民&amp;乌克兰人跪求普京统治](/content/gnews/4/README.md)
+### [曾庆红识人断事之:粮食&amp;金融&amp;俄乌战争&amp;海航陈峰王岐山](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声｜滴滴5月召开股东大会 就美国退市投票](/content/gnews/5/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [来自以色列的年轻志愿者与父母和奶奶分享他在异国度过的第一个逾越节](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [与天斗与地斗与人斗与世界斗死几千万毫不在乎的习近平](/content/gnews/6/README.md)
+### [曾庆红识人断事之:要没用的副部长干什么?活着,猫两年吧](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声｜乌克兰已向七国集团要求500亿美元弥补预算赤字](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [04/18/22 香港快讯 资审会已完成审查李家超候选人资格 裁定提名有效](/content/gnews/6/README.md)
+ ` 英喜-粵語組`
 
-### [澳大利亚法律专家团队加入俄罗斯侵略乌克兰战争罪的取证](/content/gnews/8/README.md)
- ` 走进澳洲`
-
-### [美国打俄罗斯就像七哥上厕所撒泡尿功夫灭掉欺民贼一样](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声｜过去四天哈尔科夫受炮击 18死逾100人受伤](/content/gnews/10/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [澳大利亚取消对旅客入境前的中共病毒测试](/content/gnews/11/README.md)
- ` 走进澳洲`
-
-### [美国联邦法官宣称全国性禁令应该被“彻底消除”](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声｜在投降最后期限过后 马里乌波尔的战斗仍在持续](/content/gnews/13/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [【秘翻时评】上海专家呼吁关注封城导致的额外死亡率](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声|俄乌战场最新进展 04/17/2022](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [同济大学精准拉屎拉出新高度](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国](/content/gnews/18/README.md)
- ` 秘密翻译组金融团队`
-
-### [军令状治国无能还是本事? 传上海基层被下“军令状”](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：中共擀面杖虚假经济和房产泡沫必将引发史诗级的金融灾难](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：韩国因新冠（中共病毒）抑郁症咨询猛增](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯打击乌克兰各地目标，乌战斗人员在马里乌波尔坚守](/content/gnews/22/README.md)
- ` 波士顿五月花农场金融部`
-
-### [秘翻在线：乌克兰拒绝俄罗斯向马里乌波尔发出的最后通牒](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新西兰财经G乐部2022年4月18日:财经新闻整理](/content/gnews/24/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [中共的清零政策造成上海地区移民搜索量暴增](/content/gnews/25/README.md)
- ` GTV News Talk`
-
-### [上海外企积极配合中共复工复产](/content/gnews/26/README.md)
- ` 银河歌舞厅`
-
-### [新编「國際歌」小區版。拋磚引玉，讓歌聲唱遍中華大地。](/content/gnews/27/README.md)
+### [改编了中共國國歌（小區版）抱砖引玉。唱起來，用音樂找回我們的勇氣！](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [美国产&#8221;重组蛋白疫苗&#8221;将在日本被批准使用](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [深圳龙岗派出所传唤要求停止强制疫苗女医生电话录音](/content/gnews/29/README.md)
+### [不管俄乌战争和围魏救赵啥结果,习都必须打台湾&amp;乱中东](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [7•24系列——中欧班列：中共援助俄罗斯的铁证](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
+### [乌军用英国最新防空导弹击落俄无人机](/content/gnews/9/README.md)
+ ` GTV News Talk`
 
-### [美国：超过了一百万人报告了COVID-19疫苗伤害，包括几乎27000人因此而死亡](/content/gnews/31/README.md)
- ` 喜马拉雅农场新西兰站`
+### [普京习近平一天两三通电话放不下的权力&amp;家人及私生子女](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [大埔林村河接连被严重污染 恐危及生态](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [回顾“4.19”VOA断播事件 认清中共特务龚小夏](/content/gnews/11/README.md)
+ ` NFSC News`
 
-### [郭先生的社会教育完胜中共国愚民的学校教育](/content/gnews/33/README.md)
- ` mayflowertranslate`
+### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/12/README.md)
+ ` 新西兰伊甸农场听写编辑组`
 
-### [“中共国悲句”26条（下）](/content/gnews/34/README.md)
- ` 澳喜特战旅Gnews`
+### [有声|新中国联邦的救援被全球越来越多人认识](/content/gnews/13/README.md)
+ ` MOSREC`
 
-### [美媒报道：中共国的疫情数据过好而不真实](/content/gnews/35/README.md)
- ` 澳喜农场`
+### [澳大利亚法律专家团队加入俄罗斯侵略乌克兰战争罪的取证](/content/gnews/14/README.md)
+ ` 走进澳洲`
 
-### [英媒报道：上海封城后中共国富裕阶层“用脚投票“出走](/content/gnews/36/README.md)
- ` 澳喜农场`
+### [美国打俄罗斯就像七哥上厕所撒泡尿功夫灭掉欺民贼一样](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [乌克兰导弹击中俄军旗舰（莫斯科号）被炸瘫痪](/content/gnews/37/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
+### [澳大利亚取消对旅客入境前的中共病毒测试](/content/gnews/16/README.md)
+ ` 走进澳洲`
 
-### [美国多州立法批准羟氯喹和伊维菌素用于治疗新冠肺炎](/content/gnews/38/README.md)
+### [有声|新中国联邦前线救援行为获犹太义工高度肯定](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [美国联邦法官宣称全国性禁令应该被“彻底消除”](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“莫斯科号”幸存者的母亲：舰上很多人受伤，很多断臂残肢](/content/gnews/39/README.md)
- ` 日本東京方舟農場`
+### [【秘翻时评】上海专家呼吁关注封城导致的额外死亡率](/content/gnews/19/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [上海学生微博发帖向求救 中共封控制造人道灾难](/content/gnews/40/README.md)
+### [有声|俄乌战场最新进展 04/17/2022](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [同济大学精准拉屎拉出新高度](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共从上到下皆摆拍，愚弄百姓没商量](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国](/content/gnews/23/README.md)
+ ` 秘密翻译组金融团队`
+
+### [军令状治国无能还是本事? 传上海基层被下“军令状”](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共擀面杖虚假经济和房产泡沫必将引发史诗级的金融灾难](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：韩国因新冠（中共病毒）抑郁症咨询猛增](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄罗斯打击乌克兰各地目标，乌战斗人员在马里乌波尔坚守](/content/gnews/27/README.md)
  ` 波士顿五月花农场金融部`
 
-### [台湾军方无人机来自中共 暴露了台湾的系统问题](/content/gnews/41/README.md)
- ` NFSC News`
+### [秘翻在线：乌克兰拒绝俄罗斯向马里乌波尔发出的最后通牒](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新西兰财经G乐部2022年4月18日:财经新闻整理](/content/gnews/29/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [中共的清零政策造成上海地区移民搜索量暴增](/content/gnews/30/README.md)
+ ` GTV News Talk`
+
+### [上海外企积极配合中共复工复产](/content/gnews/31/README.md)
+ ` 银河歌舞厅`
+
+### [美国产&#8221;重组蛋白疫苗&#8221;将在日本被批准使用](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [深圳龙岗派出所传唤要求停止强制疫苗女医生电话录音](/content/gnews/33/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [7•24系列——中欧班列：中共援助俄罗斯的铁证](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国：超过了一百万人报告了COVID-19疫苗伤害，包括几乎27000人因此而死亡](/content/gnews/35/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [大埔林村河接连被严重污染 恐危及生态](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭先生的社会教育完胜中共国愚民的学校教育](/content/gnews/37/README.md)
+ ` mayflowertranslate`
+
+### [美媒报道：中共国的疫情数据过好而不真实](/content/gnews/38/README.md)
+ ` 澳喜农场`
+
+### [美国多州立法批准羟氯喹和伊维菌素用于治疗新冠肺炎](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“莫斯科号”幸存者的母亲：舰上很多人受伤，很多断臂残肢](/content/gnews/40/README.md)
+ ` 日本東京方舟農場`
+
+### [上海学生微博发帖向求救 中共封控制造人道灾难](/content/gnews/41/README.md)
+ ` 波士顿五月花农场金融部`
 
 ### [世界银行：减少对中国的依赖“可能对每个人都有好处”](/content/gnews/42/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`

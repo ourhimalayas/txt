@@ -2,36 +2,23 @@
 ---
 
 
-## 上海外企积极配合中共复工复产
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2367938/)
+## 秘翻在线：韩国因新冠（中共病毒）抑郁症咨询猛增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2368031/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-18-at-22.29.25.png)
-当地时间4月18日，中共上海通知上海企业复工复产。据上海市发布的文件中做出了5项21条防控指引，这些指引都是纸上之谈，企业根本无法做到，比如要求企业在目前疫情及其严峻的情况下，要求复工员工七日内核酸为阴性，进行封闭式管理，要求生产线无接触工作。中共上海政府似乎又要企业复工，又要把疫情防控不得当的责任推给企业。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-36.jpg)图片来源：网络截图
+据韩媒《东亚日报》4月18日报道，根据韩国国立精神健康中心表示，国家创伤中心、各区域创伤中心、精神健康福利中心、相关部门实施的新冠病毒（中共病毒）相关抑郁咨询资料进行统计的结果显示，共583万件。新冠病毒（中共病毒）提供的相关信息件数为2513万件。
 
-此则文件发布不久以后，上海市外企3M、杜邦、BASF等拒绝了上海市政府的复工要求。网传外企要求政府修改关于复工的文件承诺书。
+政府在新冠肺炎（中共病毒）流行后，为了消除社会抑郁感，正在进行心理支援等措施。特别是保健福利部和国立精神健康中心、韩国创伤压力学会将从本月18日至22日进行2022创伤治愈周。治愈周期间将举行学术讨论会、增进对国民心理创伤认知的演讲、体验安心巴士、表彰有功者、媒体报导指南研讨会等。
 
-几个小时后，中共喉舌媒体马上发布了此事的辟谣文章。声称上海外企3M、杜邦、BASF目前正在积极配合上海市政府积极制定复工复产方案。三家企业不约而同说自己正在按照中共政府的指示做事，之前关于拒绝复工复产的新闻是谣言。
+保健福利部精神健康政策官郑恩英表示，希望通过此次心理创伤治愈周，能够探索心理创伤政策的发展方向，以此能成为让更多人感受到心理创伤治愈重要性的契机。
 
-reference：
+同时,他还强调：“政府也将加强灾难心理支援机关的力量，积极促进对心理创伤的认知提高的宣传，为实现系统、专业的心理支援而持续努力”。
 
-[https://www.cnfin.com/yw-lb/detail/20220418/3586240\_1.html](https://www.cnfin.com/yw-lb/detail/20220418/3586240_1.html)
+信息来源：[https://www.donga.com/news/article/all/20220418/112944169/2](https://www.donga.com/news/article/all/20220418/112944169/2)
 
-[https://udn.com/news/story/7333/6247990](https://udn.com/news/story/7333/6247990)
+责编：Eric Kim
 
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,40 @@
 ---
 
 
-## 有声｜在投降最后期限过后 马里乌波尔的战斗仍在持续
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2368315/)
+## 有声|新中国联邦的救援被全球越来越多人认识
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368432/)
 
-By:**秘翻新闻**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月15日，一位来自巴西的自媒体人来到波兰前线新中国联邦救援营地的大帐篷中。当他知道我们能够在两天之内建起了整个营地最大、设施最完善的帐篷时，他惊叹于新中国联邦和法治基金的强大财力和义工们一流的素质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8323101.jpg)
+看到他对中共的邪恶有所了解但并不深入，妮可战友向他详细介绍了中共和中国人的区别，告诉他西方大公司若想得到14亿中国人的巨大市场，必须切断与中共的关系，跟灭共的新中国联邦站在一起，中共不能代表中国人。还向他介绍了推特和Facebook在中共的控制下对新中国联邦的封杀，以及我们的新社交媒体——盖特。
 
-**2022-04-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/418-1.png)
-[《国会山》](https://thehill.com/news/3271174-ukrainian-official-says-mariupol-still-hasnt-fallen-after-deadline-for-surrender/)4月17日报道，周日，乌克兰总理丹尼斯·什米哈尔表示，在乌克兰拒绝俄罗斯的最后通牒之后，马里乌波尔还没有落入俄罗斯军队手中。
+他表示，他一定会在巴西帮助传播新中国联邦。
 
-总理什米哈尔还说，我们不会投降，我们不会离开我们的国家、我们的家人、我们的土地。所以我们将战斗到底，赢得这场战争的胜利。
 
-最后他重申，乌克兰准备通过外交手段结束这场战争，但他表示，乌克兰准备“战斗到底”。
 
-周日，乌克兰总统泽连斯基表示，乌克兰不会以放弃土地来换取和平协议。他还说，乌克兰人民非常清楚，我们不想要任何其他国家的领土，我们也不会放弃自己的领土。
 
-截至今日，在马里乌波尔还有许多平民在人道主义危机中受苦，他们没有水，没有食物，没有暖气，没有电。乌克兰呼吁所有合作伙伴提供支持和帮助，阻止马里乌波尔的这场人道主义灾难。
 
-（秘翻新闻 冰糖葫芦喵编译报导）
+文字版原文：[新中国联邦的救援被全球越来越多人认识](https://gnews.org/zh-hans/2363786/)
 
-发布 : 文橙
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
