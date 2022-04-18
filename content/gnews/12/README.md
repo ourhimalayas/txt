@@ -2,26 +2,29 @@
 ---
 
 
-## 乌克兰马里乌波尔抵抗者拒绝俄“或投降或死亡”的要求
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2365927/)
+## 特鲁多政府力推互联网审查制度
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2365973/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-143.jpg)
-图片来源：world.huanqiu.com
+采编：加拿大温哥华扬帆农场 – 文莱
 
-美联社4月17日报道，在马里乌波尔市一家钢铁厂进行抗击的乌克兰抵抗者不理睬俄罗斯周日发出的“或投降或死亡”的最后警告，坚持在这个重要的战略港口城市进行抵抗不愿被俄罗斯所抓捕。
-
-马里乌波尔经过了7周的俄罗斯的围攻后陷入沦陷，已经成为一片废墟，这也是莫斯科自入侵乌克兰以来最大的胜利。俄罗斯估计乌克兰在哈尔沁阿佐夫斯托钢铁厂有大约2500个克兰军人以及400个外国雇佣兵，占据着11平方公里土地，并有地下通道相连。
-
-莫斯科要求抵抗者必须在中午之前投降，并说只要放下武器，就会保证他们的生命，但乌克兰战士拒绝了，就像他们早前就宣布的。
-
-据乌克兰估计，俄罗斯在马里乌波尔的无情的炸弹和在街上的巷战已造成21000人死亡。俄罗斯在最初几周对该市妇婴医院和剧院的轰炸造成300个寻求庇护所的平民死亡。
-
-乌克兰国防部长说马里乌波尔是乌克兰的盾牌防御位置，教皇弗朗西斯在复活节周日痛苦地请求为乌克兰和平祷告，谴责“这种野蛮无情的战争”。
-
-#### 新闻来源： [Ukrainian defenders in Mariupol defy surrender-or-die demand](https://apnews.com/article/russia-ukraine-zelenskyy-kyiv-business-europe-893384be23cf0fc1c0b9e566de372046)
+编译撰稿：加拿大温哥华扬帆农场 – 重生之鹰
 
 
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2155.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
+
+
+
+
+据加拿大《真北方》4月13日报道，在自由党政府长期推动的网络审查法案因特鲁多在2021年秋季的全国选举而被迫暂停后，目前又被当局重新提上了议会日程。
+
+报道称，特鲁多政府本次重新推出的最新网络审查法案包括C-11和C-18两项内容。在新的审查制度下，该国所有大型科技及社交媒体平台都将被迫推广政府所定义的有关加拿大的新闻内容，并为在互联网上分享的时事文章向主流媒体付费。
+
+有评论指出，该法案的出台不仅标志着加拿大的各网络平台都将成为政府的附庸和传声筒，而且该国所有自媒体也都将毫无自由和公正可言。因此，这是对加拿大宪法的恣意践踏。
+
+校对编辑：硫酸羟氯喹64
+
+新闻来源：[https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/](https://tnc.news/2022/04/13/justin-trudeau-is-determined-to-censor-the-internet-feat-ezra-levant/)
 
  
 

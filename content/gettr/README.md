@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 5:07 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group48/origin/2022/04/18/05/f85b034f-adb5-61ab-08b6-87c369e13ceb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/18/2022 5:00 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group48/origin/2022/04/18/05/f85b034f-adb5-61ab-08b6-87c369e13ceb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 4:52 AM (UTC)`
 
 Two volunteers from IOM and SSF think our coffee is the best. They are rooting for the Chinese people to take down the Chinese Communist Party.<br/><br/>两名分别来自IOM和SSF的志愿者认为我们有最好的咖啡。他们为中国人民推翻中国共产党加油。
@@ -142,20 +156,6 @@ The biggest tent of the New Federal State of China hosted more than 10,000 Ukrai
 
 Two volunteers from Russia had an interview with us. They hate Putin and don’t agree with the war. One of them, his mother, was arrested in a peaceful demonstration in Russia, and all of his Russian friends are against the war. The other says he loves Chinese people very much but he hates the Chinese government. He hopes China and Russia will be free and people can enjoy freedom and democracy. The two volunteers agree that freedom loving people should unite and take down dictatorships together.<br/><br/>两名来自俄罗斯的志愿者接受了我们战友的采访。他们恨普京并且他们反对战争。其中一位的母亲，由于参加一次和平抗议，被警察逮捕，而且他的所有朋友都反对这场战争。另一位说他非常爱中国人民但是恨中国政府。他希望中(共)国和俄罗斯变成自由国度，并且人们能享有自由和民主。两名志愿者认同热爱自由的人们应该联合起来共同推翻独裁统治。
 ![img](https://media.gettr.com/group8/origin/2022/04/17/14/43148af2-7695-77da-5879-e8ce74ebf50d/out.jpg)
-
----
-
-`@miles 4/17/2022 2:26 PM (UTC)`
-
-Two Spaniards who came to the border to donate supplies visited the NFSC tents and asked for our "Take Down the CCP" vests. The front line volunteers asked why the guests wanted this vest, and they said: "We are going to wear this vest in Communist China, and we want to express our true voice and stance by wearing this vest."<br/>两位从西班牙来捐物资的西班牙人走进我们的帐篷，问我们要灭共马甲。我们问他们为什么要这个马甲，他们说，我们要穿着这个马甲去中共国，我们要用这件马甲表达我们的心声
-![img](https://media.gettr.com/group34/origin/2022/04/17/14/226ec85c-2916-93a4-c78c-2d27f818eb0b/out.jpg)
-
----
-
-`@miles 4/17/2022 2:17 PM (UTC)`
-
- 4月17号：尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！
-![img](https://media.gettr.com/group20/getter/2022/04/17/14/47171a3c-de24-013b-b374-c0228ac1f98f/out.jpg)
 
 ---
 

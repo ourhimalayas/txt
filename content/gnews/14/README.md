@@ -2,54 +2,75 @@
 ---
 
 
-## 樱花深度报道┃上海正在上演残酷的中共疫情封锁模式（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365914/)
+## 美国政要们祝大家复活节快乐
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2365967/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-【摘要】今天，上海人民正在遭受长达数周的封锁，食品短缺和对健康人的极端隔离。所有这些都是为了根除一种世界其它地区最终意识到肯定会成为地方病共存的病毒。中国共产党认为，通过大规模侵犯人权和人类自由，它可以解决病毒的问题。这可能意味着未来几年的连续封锁，以及必然带来的所有损害和政治不稳定。这肯定会对经济增长产生深远的影响，甚至可能对中共本身的信誉产生深远的影响。
+**参议员玛莎.布莱克本：**
+ “天 使 对 妇 女 说 ， ‘不 要 害 怕 ， 我 知 道 你 们 是 寻 找 那 钉 十 字 架 的 耶 稣 。他 不 在 这 里 ， 照 他 所 说 的 ， 已 经 复 活 了 。 你 们 来 看 安 放 主 的 地 方 。’” ——马太福音 第28章 第5、6节
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花深度报道┃上海正在上演残酷的中共疫情封锁模式（下）1.png)
 
-（图片说明）福克斯新闻主持人塔克·卡尔森 (Tucker Carlson) 谈上海的 COVID 封锁：“这是最清楚地展示地狱是什么样子的场景”
 
-直到今天，习近平肯定一直沐浴在这种发光赞美的温暖中。它向世界展示了中共的政策实力。在我写这篇文章的时候，雅虎报导了上海的情况：
+> “But the angel said to the women, ‘Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay.’” — Matthew 28:5-6
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 17, 2022](https://twitter.com/MarshaBlackburn/status/1515692439897612296?ref_src=twsrc%5Etfw)
 
-“中国国家主席习近平周五赞扬了该国‘经过实践检验的’清零战略，尽管上海当局在病例激增和公众愤怒日益加剧的情况下为COVID-19患者准备了近13万张环境肮脏的方舱医院病床。”
 
-我们只能凭直觉了解这里正在发生的事情。正如中共宣传的那样，对习近平来说，封锁是他最大的胜利。在两年前封锁似乎十分奏效。他赢得了全世界的“赞誉”，全世界都追随他的榜样。也许这让他和中共充满了难以置信的自豪感和信心。他们做对了，世界其它国家复制了这个理念，但是都没有像中国实施得那样完美。
 
-最终，政府可以说服自己相信自己的宣传。这似乎是中国发生的事情。这种错觉阻止了习近平和中共看到任何对病毒稍有了解的人显然都应该知道的事情：在一个正常运作的社会和市场中，病毒无论如何都会传播。正如维奈‧普拉萨德（Vinay Prasad）不断提醒我们的那样，每个人都会感染COVID。通过群体感染和群体免疫，我们终于超越了疫情大流行。
+**前国务卿迈克·蓬佩奥： **
+蓬佩奥全家祝您复活节快乐！ [#他复活了](https://gettr.com/hashtag/%23%E4%BB%96%E5%A4%8D%E6%B4%BB%E4%BA%86) [#HeIsRisen](https://gettr.com/hashtag/%23HeIsRisen)
 
-中国现在发生的事情与澳大利亚和新西兰“清零”的失败一样可以预测。
 
-这意味着中国的疫情远未停止。它们将蔓延到每个城市，每个城镇，每个乡村，直到14亿人中的许多人都感染为止。这可能意味着未来几年的连续封锁，以及必然带来的所有损害和政治不稳定。这肯定会对经济增长产生深远的影响，甚至可能对中共本身的信誉产生深远的影响。
 
-中共犯了一个极大的错误。世界上大多数地方都犯过类似的错误。美国的封锁不像上海那样可怕，但这只是一个程度的问题，因为美国也尝试了封锁理论。在政治民主国家，政客和官僚们大多试图淡化他们的严重错误，同时制造借口，不道歉地重新开放。许多人希望每个人都能忘记这整个灾难。
+> Happy Easter from the Pompeo family! [#HeIsRisen](https://twitter.com/hashtag/HeIsRisen?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xL9LzI8A6M](https://t.co/xL9LzI8A6M)
+> — Mike Pompeo (@mikepompeo) [April 17, 2022](https://twitter.com/mikepompeo/status/1515777707975614468?ref_src=twsrc%5Etfw)
 
-这在中国会发生吗？问题在于，对中共过去两年自我吹嘘的成就来说，封锁措施占有不可思议的中心地位。只要北京有权势的人真正相信封锁是正确的道路，而且没有反对党采取不同的观点，这种情况就可能会继续下去，从而引发关于这个国家政治和经济前景的质疑。
 
-事实证明，政治和经济自由的神奇结合并不是历史的终结。但中共式的独裁也不是终点，这是因为它没有纠正严重错误的运作机制。将美国从封锁恐怖中拯救出来的是政治多元化和联邦制。在中国，这两者都不存在。因此，智力错误导致了令人震惊的不道德结果。
 
-封锁绝不是解决致病传播的方法，这与世界卫生组织或英国或美国名人科学家的论证背道而驰。当世界各国政府试图通过向细胞生物学宣战来证明自己的能力时，他们终于遇到了他们的对手。无论一个国家多么强大，总有一些自然力量会胜过它。
+**众议员兰斯·古登： **
+今天，当我们庆祝耶稣基督复活的同时，他也提醒了我们信仰和家庭的重要性。 复活节快乐！
 
-（全文完）
 
-作者简介：
 
-杰弗里‧塔克（Jeffrey Tucker）是布朗斯通研究所（Brownstone Institute）的创始人兼总裁。他是五本书的作者，包括《右翼集体主义：对自由的其它威胁》（Right-Wing Collectivism: The Other Threat to Liberty）。
+> Today we are reminded of the importance of faith and family as we celebrate the resurrection of Jesus Christ.
+> 
+> Happy Easter!
+> — Lance Gooden (@Lancegooden) [April 18, 2022](https://twitter.com/Lancegooden/status/1515858659590422531?ref_src=twsrc%5Etfw)
 
-信息来源：
-*“*[*The China Model Unravels in Shanghai*](https://brownstone.org/articles/the-china-model-unravels-in-shanghai/)*”*
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+**美国国务院：** 
+许多人道主义组织正在向受乌克兰危机影响的人们提供紧急援助。无论您身在何处，都可以通过以下方式提供帮助：
+
+
+
+> Many humanitarian organizations are providing urgent assistance to those affected by the crisis in Ukraine. Here are some ways you can help from wherever you are: [https://t.co/1ANlO5M6f8](https://t.co/1ANlO5M6f8)
+> — Department of State (@StateDept) [April 18, 2022](https://twitter.com/StateDept/status/1515842545879764996?ref_src=twsrc%5Etfw)
+
+
+
+**众议员玛乔丽·泰勒·格林： **
+亨特·拜登的笔记本电脑(内容)。 
+就要发布了。 
+内容是一个比一个的吓人。 
+但可能更让我困惑的是那些掩盖真相的人，他们对这一切都装作没事。 
+你怎么能这么做？ 
+怎么会有人这么做？
+
+
+
+> Hunter Biden’s laptop.
+> 
+> It’s about to be released.
+> 
+> The contents are one horror after another.
+> 
+> But what bothers me maybe even more are all the people that covered it up and are ok with it all.
+> 
+> How could you do that?
+> 
+> How could anyone do that?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1515869385684049920?ref_src=twsrc%5Etfw)
+
+
 
  
 
