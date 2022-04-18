@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 4:52 AM (UTC)`
+
+Two volunteers from IOM and SSF think our coffee is the best. They are rooting for the Chinese people to take down the Chinese Communist Party.<br/><br/>两名分别来自IOM和SSF的志愿者认为我们有最好的咖啡。他们为中国人民推翻中国共产党加油。
+![img](https://media.gettr.com/group49/origin/2022/04/18/04/daabc006-b571-c8b0-e435-96d1e5cf9c29/out.jpg)
+
+---
+
+`@miles 4/18/2022 4:49 AM (UTC)`
+
+A Volunteer from Israel said he didn’t expect the Passover to be hosted in Medyka by such a nice group of people from the New Federal State of China. He supports our mission and he thinks if we keep on pushing it, we will achieve our goal of taking down the Chinese Communist Party (CCP).<br/><br/>一位来自以色列的志愿者说他没有想到在梅迪卡的逾越节会是由一群这么棒的新中国联邦人主办。他支持我们的使命并认为，如果我们坚持不懈，最终会实现消灭中共的目标。
+![img](https://media.gettr.com/group35/origin/2022/04/18/04/b01d124c-830d-2520-ffcf-a63de70d8e1c/out.jpg)
+
+---
+
 `@miles 4/18/2022 3:39 AM (UTC)`
 
 【Ukraine Rescue】 04/15/22  The Israeli volunteer who is celebrating Passover in the tent of the NFSC expresses her gratitude to us. And, to her surprise, she is learning that just as the Jews often say 'next year in Jerusalem', the NFSC people have a similar saying 'see you next year in Pangu', heralding the Chinese people in China will be free, and we will be reunited with our brothers and sisters who are still in China struggling with Communism, and we're going to fight together and win!<br/><br/>【乌克兰救援】 04/15/22  在新中国联邦帐篷内庆祝逾越节的以色列志愿者向我们表示了感谢。而且，她惊喜地得知，如同犹太人常说的‘明年在耶路撒冷见’一样，新中国联邦人也有一个类似说法‘明年在盘古相见’，预示着我们中国人民将在中国获得自由，与仍在国内与共产主义作斗争的兄弟姐妹团聚，并取得胜利！
@@ -142,22 +156,6 @@ Two Spaniards who came to the border to donate supplies visited the NFSC tents a
 
  4月17号：尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！
 ![img](https://media.gettr.com/group20/getter/2022/04/17/14/47171a3c-de24-013b-b374-c0228ac1f98f/out.jpg)
-
----
-
-`@miles 4/17/2022 1:31 PM (UTC)`
-
- 4月17号：尊敬的战友们好……青岛开始搞舆论准备了吧……你你看看共产党这些下作的流氓，黑社会手段太可悲了……
-![img](https://media.gettr.com/group29/getter/2022/04/17/13/4458f28a-1fea-2160-cd74-2e92e5fcf7b4/4a860e120f7a499e8d5d1d713c4ddfc9.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 4/17/2022 11:43 AM (UTC)`
-
-【中文同传】NFSC 乌克兰救援行动和国际救援组织共同庆祝复活节祈祷希望与和平⎢2022.04.17 EST
-![img](https://media.gettr.com/group25/origin/2022/04/17/11/e0f03b7a-88c9-1ad7-558b-264836119227/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
