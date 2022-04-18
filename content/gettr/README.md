@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 12:31 PM (UTC)`
+
+2022.04.18 早  新中国联邦 | 新闻    乌克兰救援前线团队与国际志愿者共同庆祝复活节；中共增加铁路货运班列援助俄罗斯
+![img](https://media.gettr.com/group13/origin/2022/04/18/12/7c4b2a00-16e7-a319-036e-807ebce8b46a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 11:59 AM (UTC)`
 
 2022.04.18 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 4/17/2022 Miles Guo: A senior official of the Ministry of Defense of a certain European country visited the tent of the NFSC & ROLF Ukraine rescue operation. He asked me to sincerely thank all our brothers and sisters at the front line! The world honors that our fellow fighters have earned for the Chinese and the gratitude this senior official has for us will benefit every Chinese!<br/><br/>4/17/2022 文贵直播：欧洲某国国防部的一位高官参观了新中国联邦法治基金乌克兰救援的帐篷，他嘱托文贵向前线的所有兄弟姐妹们致以衷心的感谢！战友们为中国人在全世界赢得的荣誉和这位高官对我们的感激将惠及每一个中国人！
 ![img](https://media.gettr.com/group28/getter/2022/04/17/23/94edf85f-30e3-13ef-0838-d51d44c00add/out.jpg)
-
----
-
-`@miles 4/17/2022 11:00 PM (UTC)`
-
-2022.04.17 NFSC news  Miles: The CCP Finally Launches Operation "Taiwan the Son."
-![img](https://media.gettr.com/group10/origin/2022/04/17/22/cd6f708d-a802-c395-be59-2990711c8e3c/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
