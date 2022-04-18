@@ -2,16 +2,10 @@
 ---
 
 
-## 实名举报华大基因核酸检测被打成十级伤残，七根骨头已断！这辈子已经毁了！CCP 的罪恶又多了一笔血债！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2365185/)
+## 快饿死了，也只会选择跪着死去的民族，旁人冷漠麻木的看客心理，只会让主宰这个鬼家命运的魔鬼发出得意的笑，一切灾难根源都是CCP
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2365232/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

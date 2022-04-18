@@ -2,63 +2,48 @@
 ---
 
 
-## 俄罗斯战争掩盖了对西方最大的威胁—中共国的数字人民币
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2365080/)
+## 因报复性空袭基辅市民被警告不要返回
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2365181/)
 
-翻译：sherryok (酷翻组)
-采集：玫瑰新闻组
+经过两周的相对平静后，莫斯科号军舰的沉没导致该市遭受报复性导弹袭击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-105.png)上周，基辅市中心的一座雕像受到沙袋的保护。照片：尼古拉·马尔菲西（Nicola Marfisi）/AGF/Rex
+据《守护者网》作者洛伦佐·通多（Lorenzo Tondo） 2022 年 4 月 17 日报道
 
-![此图像的alt属性为空；文件名为G%E6%96%B0%E9%97%BB-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+虽然基辅的街道似乎正在慢慢恢复生机，但本周末俄罗斯的一系列新空袭提醒人们，乌克兰首都的战争还远未结束。
 
+经过两周的相对平静后，周五俄罗斯军队摧毁了一家工厂，据称该工厂生产了一枚用于在黑海击沉莫斯科号军舰的导弹。这次袭击是俄罗斯旗舰沉没后克里姆林宫最大的报复性袭击。
 
+然后，在周六，据称俄罗斯火箭袭击了首都的达尔尼茨基区的一家军事硬件工厂。“他们让我们为摧毁莫斯科号付出代价，” 附近一家木材工厂的 47 岁老板安德烈·西佐夫 (Andrei Sizov) 告诉法新社。
 
+最近对乌克兰首都的袭击，是自入侵的俄罗斯军队开始从基辅周边地区撤退以来的第一次。这座城市一天天地试图恢复正常。许多商店开始重新营业，市民们开始重新走上街头。
 
+在俄入侵之前，大基辅地区拥有 350 万繁华的人口，街道上到处都是歌手和酒吧。但在第一次轰炸之后，首都看起来像座鬼城。
 
+到 3 月底，一半的基辅人口已经转移到西部。几个星期以来，伊尔平和布查等边远城镇被占领和轰炸，数千名平民丧生，数百人被埋在万人坑。但在四月初，俄军开始撤退。
 
+然而，俄入侵后离开的数千市民正准备返回时，市长维塔利·克里琴科（Vitali Klitschko）周六警告说，新的空袭意味着现在不是返回的时候。
 
-![](https://tse4.mm.bing.net/th?id=OIP.u2fUUoEZ3edCe_8XDSAkigHaE8&amp;pid=Api&amp;P=0&amp;w=232&amp;h=154)
+“我再次呼吁大家：请不要忽视空袭警报！” 克里琴科在他的官方 Telegram 频道上说。“还有，那些之前离开的已经准备返回的基辅人，我请你们不要回来，留在更安全的地方。”
 
-2022 年 4 月 17 日 大纪元英文网站报道了对美国冲基金经理凯尔巴斯（Kyle Bass）的警告：俄罗斯在乌克兰的战争正在掩盖中共政权构成的一个非常令人担忧的威胁：其无纸化货币系统。以下是采访中文翻译。
+事件的突然转折与乌克兰军队周三在黑海的一次战斗行动中，摧毁俄罗斯舰队的瑰宝密不可分——这对弗拉基米尔·普京（Vladimir Putin）的战争计划和他的军队威望造成了重大打击。起初，克里姆林宫试图淡化这一事件，声称是事故导致舰上起火。然后它说损坏已经得到控制，这艘船正被拖到位于塞瓦斯托波尔的港口。最终，周四晚些时候，该部（国防部）宣布该船沉没在 “波涛汹涌的大海”中。
 
-“我认为，这是过去 50 年来对西方的最大威胁。而且它被俄罗斯入侵乌克兰所掩盖，”巴斯在最近接受 EpochTV 的[“美国思想领袖”节目](https://www-theepochtimes-com.translate.goog/kyle-bass-chinas-digital-currency-is-a-blackmail-weapon-beijing-facing-grave-financial-and-demographic-crisis_4397946.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)采访时说。
+克里姆林宫没有透露莫斯科号 510 名船员可能伤亡的任何细节，也没有公布被毁船只或其幸存者的任何照片，但在俄罗斯电视上，主持人和权威人士在旗舰毁灭后激烈地谈到了消灭“乌克兰”。
 
-中共国数字货币，也称为[数字人民币](https://www-theepochtimes-com.translate.goog/t-digital-yuan?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)、数字[人民币](https://www-theepochtimes-com.translate.goog/t-renminbi?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)、e-CYN 和 e-yuan，目前正由中共政权通过其中央银行开发。由于电子元由中国人民银行（PBOC）支持，它是一种中央银行数字货币（CBDC）或简称为中共国法定货币的数字版本。
+但是，不仅基辅为莫斯科号的毁灭和俄罗斯的屈辱付出了代价。在旗舰 “重大象征性”沉没之后，整个乌克兰都在为来自俄罗斯的报复性袭击做准备。
 
-到目前为止，电子元的试点测试正在中共国 20 多个不同的城市进行，这笔钱在 2022 年北京冬奥会期间首次通过移动应用程序提供给来访的外国人。
+哈尔科夫、扎波罗热、顿涅茨克、克里沃罗格和第聂伯罗彼得罗夫斯克的空袭警报彻夜不停。西部城市利沃夫也听到了爆炸声，而东部的战争愈演愈烈，俄罗斯增派部队试图将乌克兰军队赶出顿巴斯。
 
-“这不是一个简单的数字支付应用程序。这是一个应用程序，它可以跟踪您的位置、您的姓名、您的社会安全号码是什么，[以及]您的所有标识符是什么。它具有地理定位能力，”他解释说。
+在俄罗斯对该国东部城市的彻夜空袭中，至少有两名乌克兰人丧生。官员报告了波尔塔瓦、北顿涅茨克和雷西昌斯克的死亡人数。俄罗斯表示，它还袭击了靠近南部前线的尼古拉耶夫的一家军用车辆修理厂。
 
-巴斯解释说，一旦中共国的数字货币完全开发并可供中国以外的所有人使用，中共政权可能会寻找某些电子元用户，例如陷入财务困境的用户，并对其进行腐败。
+总统弗拉基米尔·泽连斯基（Volodymyr Zelenskiy）表示，自普京于 2 月 24 日下令入侵乌克兰以来，已有多达 3,000 名乌克兰军人丧生，目前尚无平民伤亡总数。
 
-“如果中共国政府能够接触到美国、欧洲和加拿大的每一位汤姆、迪克和哈利，想象一下，”他说。“想象一下，如果他们可以交叉运行一个算法，让我们寻找拥有 导火索 且资金短缺的美国政府雇员——也许他们已经结婚——我们可以立即腐蚀他们。”
+与此同时，马里乌波尔的命运悬于一线。数周以来，这座位于乌克兰东南部的港口城市一直面临着一场人道灾难，俄罗斯坦克一小时又一小时地向城市中心推进，一次次的爆炸将沿途一切夷为平地。其控制权的争夺仍在继续。如果莫斯科占领了战前拥有 40 万人口的马里乌波尔，它将成为第一个沦陷的大城市。
 
-他补充说：“这让他们有机会腐蚀世界上任何可腐败的人，这是一个真正的国家安全问题。” “所以这是他们可以输出数字威权主义的一种方式。”
+周六，泽连斯基告诉乌克兰真理报新闻门户网站，马里乌波尔 “情况非常困难”。  “我们的士兵被封锁了；伤员被封锁了。存在人道主义危机……不过，这些人正在保卫自己。”
 
-巴斯说，中共国在全球推出电子人民币有一个非常具体的议程，那就是减少对美元的依赖。
+原文链接：[https://www.theguardian.com/world/2022/apr/17/kyiv-citizens-warned-not-to-return-due-to-revenge-airstrikes](https://www.theguardian.com/world/2022/apr/17/kyiv-citizens-warned-not-to-return-due-to-revenge-airstrikes)
 
-“中共国结算的全球交易中约有 87% 以美元结算，”他说。“他们极度缺乏能源，他们极度缺乏食物，他们极度缺乏基础材料，他们必须每天在世界各地购买这些东西，没有人相信他们的货币，他们仍然有不公开的资本帐户。”
-
-“那他们该怎么办？他们必须用他们的美元来做到这一点，”他说。
-
-根据总部位于华盛顿的智库大西洋理事会的[跟踪](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.atlanticcouncil.org/cbdctracker/)，包括美国在内的全球 80 多个国家正在探索发行 CBDC 。到目前为止，尼日利亚是推出数字货币形式的九个国家之一。
-
-3 月，白宫发布了乔·拜登总统关于数字资产的行政命令[大纲。](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/09/fact-sheet-president-biden-to-sign-executive-order-on-ensuring-responsible-innovation-in-digital-assets/)总统正在“紧急”研究和开发美国的 CBDC，并且发行一个“被认为符合国家利益”数字货币。
-
-几位美国立法者一直热衷于看到电子元构成的威胁得到妥善解决。去年 5 月，代表 French Hill (R-Ark.) 和 Jim Himes (D-Conn.)[提出](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://hill.house.gov/news/documentsingle.aspx?DocumentID%3D8494)了 21 世纪美元法案 ( [HR3506](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.congress.gov/bill/117th-congress/house-bill/3506/text?r%3D9%26s%3D1) )，该法案要求美国财政部在提交给国会的报告中包含任何风险对数字人民币构成的美元。
-
-3 月，参议员 Marsha Blackburn (R-Tenn.) 和她的八位共和党同事[介绍](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.blackburn.senate.gov/2022/3/blackburn-leads-effort-to-challenge-new-axis-of-evil-by-establishing-reporting-standards-for-china-s-digital-yuan)了《对丝绸之路说不法案》( [S.3784](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.congress.gov/bill/117th-congress/senate-bill/3784/cosponsors) )。如果获得通过，该立法将要求美国商务部和美国贸易代表办公室提交有关电子人民币的报告。
-
-此外，根据法案的文本，美国国务院将被要求在其网站上发布警告，警告前往中共国的美国公民“关于数字人民币的危险”。
-
-“在接下来的几周内，你会看到一些参议员将发起立法，禁止其使用。我相信，那些立法必须发生，”巴斯说。
-
-“西方需要召开会议，我们需要立即禁止它，”他补充说。“你不可能有一点点癌症，你要么有癌症，要么没有癌症。”
-
-新闻链接：
-[https://www.theepochtimes.com/chinas-digital-yuan-biggest-threat-to-the-west-is-overshadowed-by-russian-war-kyle-bass-warns\_4409010.html?welcomeuser=1](https://www.theepochtimes.com/chinas-digital-yuan-biggest-threat-to-the-west-is-overshadowed-by-russian-war-kyle-bass-warns_4409010.html?welcomeuser=1)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+翻译：JS709｜校对：Nick｜编辑&发布：小蜜蜂
 
  
 
