@@ -2,49 +2,89 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.18C) 摩德纳疫苗第三针全身骨头痛
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366919/)
+## 澳洲投票指南四：如何修改填错的选票
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2366963/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 了解澳洲生活点滴， 带您【走进澳洲】
 
-**整理/编辑：禄森**
+编辑/整理：小鱼儿
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-29.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-**博主: Mo**
-
-摩德纳第三针
-
-就求别跟第二针一样。
-
-后续，昨天晚上没有高烧，一直低烧，还以为摩德纳副作用过去了，
-
-没想到早睡开始高烧、全身骨头疼。
-
-最最最后的后续，1号晚上十一点多睡到2号下午六点，2号晚上十二点多睡到3号早上十点，完美的度过了副作用
-
-**作者发布于2022-4-3**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-55.png)图片来源：小红书
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2187.png)图片来源：雅典娜设计组&techwireasia
 
 
-参考链接：[摩德纳疫苗第三针全身骨头痛](https://www.xiaohongshu.com/discovery/item/624659a20000000021037f67?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068313)
+澳大利亚选举委员会（AEC）编写了本指南。我们以易于阅读的方式编写本指南。你可以请求帮助来阅读本指南。朋友、家人或协助人员可能会帮助你。
 
-发布：文武全才
+如果你在填写选票时需要帮助怎么办？
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+如果你在投票时需要帮助，你可以：
+
+带上家人或朋友一起去
+
+向选举官員求助。
+
+选举官员：
+
+可以协助你填写选票
+
+不能告诉你该投给谁
+
+对你的投票进行保密。
+
+如果你犯了错误怎么办？
+
+如果你在填写选票时犯了错误，请将选票带回给给你的选举官员。
+
+告诉选举官员：
+
+你犯了一个错误
+
+需要一张新的选票。
+
+选举官员会：
+
+收下有错误的选票
+
+给你一张新的选票。
+
+你可以拿着新的选票去填写。
+
+你可以在选举前练习投票吗？
+
+如果你想练习投票，你可以访问我们的网站。
+
+网站www.aec.gov.au/practice
+
+你的练习投票不算数。
+
+你仍然需要投票。
+
+在投票站或通过邮寄。
+
+你如何获得更多信息？
+
+如果你想了解更多关于投票的信息，我们还有另外两份指南，你可以阅读。
+
+如何报名参加投票
+
+如何通过邮寄投票。
+
+你可以在我们的网站上找到这些指南。
+
+网站：www.aec.gov.au/assistance
+
+我们的网站上还有为讲英语以外的语言的人提供的信息。
+
+（注：以上信息意为参考，更多的详细信息，请您参考官网）
+
+参考资料：[澳大利亚选举委员会（AEC）](https://www.aec.gov.au/About_AEC/Publications/easy-read/files/vote-polling-place-easy-eng.docx)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-
-
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,42 +2,27 @@
 ---
 
 
-## 樱花时政┃美参议院担心乌克兰可能 “变成叙利亚” 提出在乌克兰部署美国军队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2366111/)
+## 特鲁多附和拜登谴责俄军在乌克兰的种族灭绝
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2366144/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美参议院担心乌克兰可能-变成叙利亚-提出在乌克兰部署美国军队.jpg)[图片来源](https://www.dailyadvent.com/news/c01ee067cd2a915a39ce536d672d7f8d-Biden-ally-floats-idea-of-US-troops-in-Ukraine)
+采编：加拿大温哥华扬帆农场 -文莱
 
-被媒体称为乔-拜登总统最亲密的参议院盟友的美国参议员克里斯-库恩斯（D-Delaware）提出了在乌克兰部署美国军队打击俄罗斯人的想法，他说他担心这个前苏联共和国将 “变成东欧的叙利亚”。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-“美国人民不能对乌克兰的这场悲剧置之不理，”库恩斯周日在接受哥伦比亚广播公司新闻采访时说。”我认为，21世纪的历史取决于我们如何激烈地捍卫乌克兰的自由，只有当我们阻止他时，普京才会停止。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2158.png)图片来源：[https://nationalpost.com](https://nationalpost.com/news/canada/trudeau-welcomes-talk-of-russias-action-in-ukraine-as-genocide)
 
-当主持人玛格丽特-布伦南问及他最近呼吁美国领导人讨论向乌克兰部署部队的言论时，库恩斯说，决策者必须考虑俄罗斯军队表现出的 “残暴程度”。他称赞拜登将西方盟友拉到一起，对俄罗斯实施 “严厉的制裁”，但建议随着俄罗斯总统弗拉基米尔-普京提高赌注，可能需要采取更直接的行动。
 
-科恩斯说：”普京已经向我们展示了他的残忍，如果允许他继续屠杀平民，在整个乌克兰犯下战争罪行，而没有北约，没有西方更有力地帮助他，我深深担心接下来会发生什么，我们会看到乌克兰变成叙利亚。” 据推测，他的意思是说，美国和北约需要更有力地援助乌克兰。
+据加拿大【国家邮报】4月14日报道， 继美国总统拜登明确表示俄军在乌克兰犯下种族灭绝罪之后，加拿大总理特鲁多也随即于日前在魁北克的新闻发布会上表达了同样观点。
 
-20世纪90年代，库恩斯曾在拜登的参议院办公室担任实习生，并在2010年当选为拜登的前参议院议员。《纽约时报》将他描述为 “拜登在参议院的眼睛和耳朵”，而Politico称他是 “拜登的耳语者”。去年白宫派他去埃塞俄比亚执行外交任务后，媒体称他是 “影子国务卿”。
+拜登总统关于对俄罗斯种族灭绝的指控得到乌克兰总统泽连斯基的赞扬和感谢，并同时希望欧美能提供更多的重型武器来帮助乌克兰打击侵略者。
 
-与拜登一样，库恩斯此前也曾公开反对向乌克兰派遣美国军队。他很少（如果有的话）反驳拜登的观点，因此他的言辞变化引起了人们对这位总司令可能考虑的问题的关注。
+报道称，定义“种族灭绝”不仅意味着加拿大政府可以采取进一步行动惩罚和孤立俄罗斯，而且还明确了对乌克兰额外援助的合法正当性，包括禁止购买俄罗斯石油和天然气，以及向乌克兰军队提供军事装备等。
 
-这位参议员的最新评论是在他说拜登政府和美国立法者需要讨论向乌克兰部署部队的参数三天后发表的。他在密歇根大学的一个活动上发言时认为，如果排除了直接的军事参与，”我们就会招致普京的暴行再次升级”。
+校对编辑：硫酸羟氯喹64
 
-库恩斯补充说，”全世界的专制者”——从朝鲜到伊朗到中共——都在密切关注美国和北约对俄乌冲突的反应。他还称这场危机是 “1939年的时刻”，显然是在暗指纳粹德国在欧洲的早期征服。
+发稿：青青
 
-“在某些时候，我们将不得不面对这样一个现实：普京可能愿意升级，超出我们承担风险的意愿，”库斯说。”如果我们允许乌克兰成为东欧的叙利亚，我认为我们将辜负乌克兰人民和这个历史时刻。”
-
-信息来源：
-[**Biden ally floats idea of US troops in Ukraine**](https://www.bignewsnetwork.com/news/272490421/biden-ally-floats-idea-of-us-troops-in-ukraine)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+新闻来源： [https://nationalpost.com/news/canada/trudeau-welcomes-talk-of-russias-action-in-ukraine-as-genocide](https://nationalpost.com/news/canada/trudeau-welcomes-talk-of-russias-action-in-ukraine-as-genocide)
 
  
 

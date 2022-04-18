@@ -2,26 +2,47 @@
 ---
 
 
-## 视频|中共及即将对多个大城市实施大封锁隔离
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2366584/)
+## SpaceX火箭成功将第二颗美国间谍卫星送入轨道
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366859/)
 
-制作：香草山视频部
+翻译：文乐
 
-4月16日郭先生紧急直播，公开了中共即将对青岛、大连、哈尔滨或者海口等地实施大封锁、大隔离的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
 
-郭先生爆料，随着中共对上海和长春的封锁，上海死亡人数可能已达到百万。上海战友及时的为当地战友提供政府实时情报，协助战友买到粮食、蔬菜以及药品，还有的战友用智慧的办法帮到了生病的战友家人。
 
-长春战友在郭先生的建议下积极行动，提前在外准备的基地、粮食以及医疗用品帮到了无数人度过了此次共产党的大隔离，完全体现出作为新中国联邦人的高素质，郭先生说，这在未来盘古相聚时会是辉煌的一页。
 
-目前得到准确情报，中共接下来要对国内进行大隔离的城市有青岛、大连、哈尔滨或者海口，这些城市将会再现上海和长春以及广州的惨状，请战友提前准备。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-192.png)SpaceX的发射项目是2019年空军以2.97亿美元的总固定价格与SpaceX签订的三项合同之一
 
-郭先生还提供了一些反抗策略，中共大隔离本身就是犯法，已经构成了正当防卫的条件。民众要合理利用家中的水、煤气、冰箱和汽车里的油，尤其是要团结周围单元楼的老百姓集体行动，勇气和智慧缺一不可。
+官员证实，周日上午，美国国家侦察局(NRO)的一颗机密卫星用可重复使用的 SpaceX Falcon 9 火箭成功发射到太空。
 
-发稿：林礼
+NROL-85 卫星于当地时间上午 6 点 13 分从加利福尼亚州范登堡太空部队基地发射升空。[NRO在一份声明中说，](https://www.nro.gov/Portals/65/documents/news/press/2022/NROL-85%20%20Press%20Release_17April22.pdf)周日的发射是 NRO 首次重复使用之前发射到太空的火箭助推器。
+
+NRO 仅将 NROL-85 卫星描述为“关键的国家安全有效载荷”，这是今年与 Spacex 一起发射的第二颗卫星。
+
+[据埃隆·马斯克](https://www.spacex.com/vehicles/falcon-9/)的航空航天公司 Spacex 称，它总共发射了 147 枚 Falcon-9 火箭，其中 107 枚已经着陆。总共有 87 枚火箭被重新发射，其中包括 2017 年第二次使用的第一枚火箭。
+
+猎鹰的第一阶段飞回并降落在洛杉矶西北部的海边基地。
+
+这次发射是空军在 2019 年以 2.97 亿美元的总固定价格与 SpaceX 签订的三项合同之一。
+
+NRO 是负责建造和发射美国卫星的政府机构，这些卫星向立法者、情报机构和国防部提供情报数据。
+
+新闻来源：[spacex falcon-9 rocket successfully launches second us spy satellite into orbi](https://nypost.com/2022/04/18/spacex-falcon-9-rocket-successfully-launches-second-us-spy-satellite-into-orbit/)
+
+* * *
+
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
 
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
 
  
 
