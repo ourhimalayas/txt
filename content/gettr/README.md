@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 1:08 AM (UTC)`
+
+2022.04.17 晚  新中国联邦 | 新闻访谈   逾越节，复活节，斋戒月三大宗教节日同周登场
+![img](https://media.gettr.com/group4/origin/2022/04/13/01/812427ec-620c-a337-0328-1fa181ec0fbd/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/18/2022 12:30 AM (UTC)`
 
 2022.04.17 晚  新中国联邦 | 新闻   美国志愿者珍视在新中国联邦庆祝逾越节；乌克兰称被击沉莫斯科号舰长在爆炸中丧生
@@ -151,13 +158,6 @@ The founder of Himalaya Exchange, William Je, is interviewed by GB News about ho
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group24/origin/2022/04/17/08/6f9a293b-5f49-6ed5-cfea-c53aa86a579f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/17/2022 4:58 AM (UTC)`
-
-04.17.2022  俄乌战争战况播报
-![img](https://media.gettr.com/group42/origin/2022/04/17/04/ddd4e18e-dca0-c171-0857-3101fbfab318/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
