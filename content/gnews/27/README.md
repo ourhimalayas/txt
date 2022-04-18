@@ -2,47 +2,26 @@
 ---
 
 
-## SpaceX火箭成功将第二颗美国间谍卫星送入轨道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2366859/)
+## “莫斯科号”幸存者的母亲：舰上很多人受伤，很多断臂残肢
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2367287/)
 
-翻译：文乐
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
+据新欧洲报4月17日报道，据来自沉没的“莫斯科号”（Moskva）巡洋舰的水手的母亲透露，该舰遭到导弹袭击后引发军火二次爆炸，致使大量水手伤亡。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-15.png)巡洋舰“莫斯科”号的船员。俄罗斯联邦国防部发布的视频截图。（图片来自新欧洲报）
 
+据这位要求匿名报道的母亲讲述，她的儿子是“莫斯科号”导弹巡洋舰上的水手。她从儿子口中得知，该舰是被三枚陆基“海王星”导弹击中之后，引发舰载弹药二次爆炸后沉没的。初步估计大约有四十人死亡，数人失踪，还有大量人员受伤，舰上散落很多断臂残肢。她儿子在舰上找到自己的手机后，立即与母亲取得联系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-192.png)SpaceX的发射项目是2019年空军以2.97亿美元的总固定价格与SpaceX签订的三项合同之一
+到目前为止，俄罗斯国家的媒体，只对失去“莫斯克号”旗舰事件本身进行了口径一致的报道，而有关水手伤亡的消息仍被封锁。俄罗斯国防部报告船员“完全撤离”，但未提及伤亡情况。
 
-官员证实，周日上午，美国国家侦察局(NRO)的一颗机密卫星用可重复使用的 SpaceX Falcon 9 火箭成功发射到太空。
+4月14日，俄罗斯国防部报告说，黑海舰队的旗舰、俄罗斯海军最具传奇色彩的舰艇之一莫斯科号导弹巡洋舰的弹药被引爆，之后水手们被疏散，巡洋舰保持了浮力，但在被拖到塞瓦斯托波尔时沉没。然而，乌克兰方面报告说，俄罗斯旗舰是被乌克兰卢奇设计局（Luch Design Bureau）生产的“海王星”导弹所击中。
 
-NROL-85 卫星于当地时间上午 6 点 13 分从加利福尼亚州范登堡太空部队基地发射升空。[NRO在一份声明中说，](https://www.nro.gov/Portals/65/documents/news/press/2022/NROL-85%20%20Press%20Release_17April22.pdf)周日的发射是 NRO 首次重复使用之前发射到太空的火箭助推器。
+参考链接：
+[https://reurl.cc/ErKn9v](https://reurl.cc/ErKn9v)
 
-NRO 仅将 NROL-85 卫星描述为“关键的国家安全有效载荷”，这是今年与 Spacex 一起发射的第二颗卫星。
-
-[据埃隆·马斯克](https://www.spacex.com/vehicles/falcon-9/)的航空航天公司 Spacex 称，它总共发射了 147 枚 Falcon-9 火箭，其中 107 枚已经着陆。总共有 87 枚火箭被重新发射，其中包括 2017 年第二次使用的第一枚火箭。
-
-猎鹰的第一阶段飞回并降落在洛杉矶西北部的海边基地。
-
-这次发射是空军在 2019 年以 2.97 亿美元的总固定价格与 SpaceX 签订的三项合同之一。
-
-NRO 是负责建造和发射美国卫星的政府机构，这些卫星向立法者、情报机构和国防部提供情报数据。
-
-新闻来源：[spacex falcon-9 rocket successfully launches second us spy satellite into orbi](https://nypost.com/2022/04/18/spacex-falcon-9-rocket-successfully-launches-second-us-spy-satellite-into-orbit/)
-
-* * *
-
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-28.jpeg)
+总编： 老孙
+校对发布：Linda
 
  
 

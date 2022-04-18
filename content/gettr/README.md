@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 1:06 PM (UTC)`
+
+2022.04.18 早  新中国联邦 | 新闻访谈   普京现在不得不孤注一掷；今日俄罗斯，明日中国？欧洲对中国原材料的依赖有多危险 
+![img](https://media.gettr.com/group45/origin/2022/04/18/13/414c710e-7a40-93e7-ce05-4f4e47e98030/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/18/2022 12:50 PM (UTC)`
 
 【Ukraine Rescue】04/16/2022  A Jewish volunteer from Washington D.C has seen the demonstrations of NFSC in Washington D.C，but he hasn't guessed to see the refugee relief by the NFSC by the border of Poland. He thinks The refugee relief by the NFSC will be a memorial and the co-worked international organization and institutes will be lifetime allies. It is smart to create allies and show humanity by providing relief and support for others.<br/><br/>【乌克兰救援】04/16/2022  来自美国首都华盛顿DC的犹太裔义工在美国华盛顿DC见过新中国联邦参加的集会和游行，但是万万没想到会在波兰边境看到新中国联邦的救援行动。 他说，新中国联邦在波兰边境的人道救援行动将会被历史所铭记，与其并肩合作过的国际组织和救援机构将成为终身的盟友。 通过为他人提供救济和支持而展示人性来创建大联盟，这真是智慧！
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 2022.04.17 晚  新中国联邦 | 新闻访谈   逾越节，复活节，斋戒月三大宗教节日同周登场
 ![img](https://media.gettr.com/group4/origin/2022/04/13/01/812427ec-620c-a337-0328-1fa181ec0fbd/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/18/2022 12:30 AM (UTC)`
-
-2022.04.17 晚  新中国联邦 | 新闻   美国志愿者珍视在新中国联邦庆祝逾越节；乌克兰称被击沉莫斯科号舰长在爆炸中丧生
-![img](https://media.gettr.com/group12/origin/2022/04/18/00/67187d19-3582-0edc-b85a-c35ddfa6f9fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
