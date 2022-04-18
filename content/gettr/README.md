@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 10:03 PM (UTC)`
+
+“懦弱的代价...” 飞飞秀救援快报 2022-04-18<br/>For English：gettr.com/streaming/p15yy7w0449
+![img](https://media.gettr.com/group9/origin/2022/04/18/22/3ff9188f-4bc5-d3d7-7c4c-dfcaaa7da411/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 8:45 PM (UTC)`
 
 2022.04.18  新中国联邦 | 喜健康   老药新用：探讨乙酰半胱氨酸治疗冠状病毒感染，解毒疫苗的可能性
@@ -147,13 +154,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group48/origin/2022/04/18/05/f85b034f-adb5-61ab-08b6-87c369e13ceb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 4:52 AM (UTC)`
-
-Two volunteers from IOM and SSF think our coffee is the best. They are rooting for the Chinese people to take down the Chinese Communist Party.<br/><br/>两名分别来自IOM和SSF的志愿者认为我们有最好的咖啡。他们为中国人民推翻中国共产党加油。
-![img](https://media.gettr.com/group49/origin/2022/04/18/04/daabc006-b571-c8b0-e435-96d1e5cf9c29/out.jpg)
 
 ---
 
