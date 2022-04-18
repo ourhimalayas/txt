@@ -2,42 +2,75 @@
 ---
 
 
-## 教皇感叹“战争的复活节”，马里乌波尔拒绝接受投降最后通牒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366213/)
+## COVID-19疫苗副作用集萃（2022.4.18）撑不住了pfizer副作用进了急诊室
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2366229/)
 
-翻译：文扬
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2159.png)图片来源：Business Standard
-周日，乌克兰士兵抵制了俄罗斯发出的最后通牒——要求在马里乌波尔（Mariupol）被摧毁的港口放下武器，莫斯科称其军队几乎完全占领了该港口，这将是近两个月战争中最大的战利品。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-乌克兰总理丹尼斯·什米哈尔（Denys Shmyhal）表示，尽管俄罗斯要求在黎明前投降，但马里乌波尔的军队仍在战斗。
+#### 整理/编辑：机器猫
 
-他告诉美国广播公司的《本周》节目:“乌克兰士兵继续控制着乌克兰东南部城市的一些地区，该城市仍然没有沦陷。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-52.png)图片来源：雅典娜设计组(614)
 
-俄罗斯周六表示，它控制了城市地区，一些乌克兰战士留在俯瞰亚速海的亚速斯塔尔钢铁厂(Azovstal)。
 
-夺取顿巴斯地区的主要港口马里乌波尔将成为俄罗斯的一项战略奖励，它将东部亲俄分离主义分子控制的领土与莫斯科在2014年吞并的克里米亚地区连接起来。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-在未能攻下北部的乌克兰抵抗之后，俄罗斯军方将其地面攻势重新集中在顿巴斯，同时保持对包括首都基辅在内的其它地方的远程打击。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-自2月24日入侵开始以来，约有 400万乌克兰人逃离该国，城市被摧毁，数千人死亡。
+原文作者：木鱼花
 
-什米尔（Shmyhal）说经济损失也很严重，乌克兰的预算赤字每月约为50亿美元（68亿美元），并呼吁西方政府提供更多财政援助。
+**撑不住了pfizer副作用进了急诊室**
 
-沃洛季米尔·泽伦斯基（Volodymyr Zelensky） 总统在推特上表示，他已经与国际货币基金组织总裁克里斯塔利娜·格奥尔基耶娃（Kristalina Georgieva）讨论了确保乌克兰的金融稳定和战后重建的准备工作。
+帖子原文：
 
-早些时候，他在他的Telegram账户上发布了他所说的破坏图片，类似于第二次世界大战的“可怕时期”。
+昨天晚上难受到睡不着，怀疑是传说中的心肌炎中招，查了资料又感觉不是，决定还是爬起来去急诊室看看。
 
-泽伦斯基说：“占领者将为他们在乌克兰所做的一切负责。”
+梳理一下我第二针的状况：
 
-原文链接： [Russia-Ukraine war: Mariupol defies surrender ultimatum as Pope laments ‘Easter of war’ (afr.com)](https://www.afr.com/world/europe/mariupol-defies-surrender-ultimatum-as-pope-laments-easter-of-war-20220418-p5ae3y)
+8小时后手臂打针处开始酸痛，身体感觉疲惫，眼睛看电脑也累。
 
-发布：tianzhihuan
+第二天早上稍微有些不适，但能维持基本活动。
 
-更多资讯，请关注：
+第二天中/下午喀什身体有些痛，低烧37.3℃持续了大概3到4个小时，只能躺着，吃了泰诺后稍微好点。
+
+第三天感觉完全恢复，除打针处还有点痛以外没有不适。
+
+第四天一起床就头晕想吐，后脑勺特别晕，连着上半身背部肌肉和手臂肌肉一起痛，干呕好几次。下午人就不行了，请假躺在床上。睡了一小会，午觉起来没有一点好转，整个人都崩溃了，不管怎么躺都难受得想吐，胸闷，如同在船上呆了一个月的那种晕（其实老失眠患者理论上是不能睡午觉的，实在没办法）。我想起来睡前吃了米氮平+泰诺，以为这两种药不能一起吃，实际上不影响，也没想过是疫苗副作用，因为我昨天人恢复过来以为副作用就结束了。然后我又磕了一颗泰诺，40分钟后起作用稍微好点了。
+
+一到晚上又开始痛，吃了颗泰诺就去Mount Sinai emergency room 了。
+
+到了医院因为我报告了胸闷胸痛症状，triage给我拿了U的号。急诊室没几个人还是等了一个半小时，但是理论上U是排在R（regular）前的。
+
+医生量了基本生命体征之后测试了我手脚肌肉的活动力度，说是没生命危险，然后做了心电图，以防万一是疫苗引起的心肌炎或者别的心脏问题，结果也是正常的。说有可能是颈部肌肉紧绷或者睡眠质量太差引起的头痛，虽然我自己体感还是更相信是副作用。
+
+第五天早上起来人又精神了，后脑勺还是有点不适但不影响工作了。
+
+我现在也不能100%确定是什么引起的，但是隔一天才到的副作用也太迷幻了！
+
+后续第六天我没啥问题了！还早起去考了个驾照！
+
+谢谢评论区大家的鼓励，还没缓过来的小伙伴们也要多多保重，撑不住一定要去医院。因为耽误了麻烦更大！
+
+#辉瑞疫苗
+
+编辑于2021-12-26
+
+精选评论
+
+CERBERUSHYDRA：两针辉瑞，全程无感，第二针相对第一针感激倍棒！
+
+心悠然：快点好起来，我也打了第二针辉瑞，今天第四天，下午开始觉得右胸呼吸的时候有点痛，hopefully it goes away soon。
+
+欣心子：我也是心脏砰砰砰的跳、胸闷，我的经验是不能喝有咖啡因的饮品！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2162.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2161.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2160.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2163.png)图片来源：小红书
+参考链接：[撑不住了pfizer副作用进了急诊室](https://www.xiaohongshu.com/discovery/item/60e4737600000000010243a0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650199560)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
