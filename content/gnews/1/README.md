@@ -2,36 +2,53 @@
 ---
 
 
-## 全球疫情疫苗数据更新(2022.4.18)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2370168/)
+## 上海，正在醒来
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2370253/)
 
-**整理：枳实
-美工：精灵蓝**
+作者：加拿大温哥华扬帆农场-薇文
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2269.png)图片来源：thesundaily
 
 
-雅典娜疫情更新（2022年 4月18日）
+上海，因疫情从4月1日起封城，严格的疫情清零政策，以彰显中共管控民众的的制度优越性。但这座2600万人的国际化大都市，却因疫情封控，不断上演愈来愈严重的次生灾害。无数生命消失的生命，并非因为病毒感染，而是因为饥饿、抑郁、绝望和无法就医等原因。残酷的现实正唤醒民众，达到沸点的民怨以及人民的不服从让中共害怕。
 
-[往期《雅典娜疫情更新](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+* * *
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/418-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/419.jpg)
-数据来源：
-[谷歌](//www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](//ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](//www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](//www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](//covidlive.com.au/)
-[Coronavirus World Map](//www.nytimes.com/interactive/2021/world/covid-cases.html)
+上海，
 
-发布：文武全才
+淮海十里街，梧桐错虬干，
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
+可还有喧闹里弄浮世态？
+
+南京繁华路，傲娇压九垓，
+
+还能见竿旗穿市人聚散？
+
+外滩二百载， 钟声江海关，
+
+何时曾生殁鸣哀千转徊？
+
+租界生邪脉，百年尽楚害，
+
+莫不见万千微躯锁铁链？
+
+上海,
+
+四行英魂在，不弯曲膝盖，
+
+哪能以顺从哀求祭刀尖。
+
+虚嚣的麾盖，赤裸的拆白，
+
+怎掩饰朝迁市变羸枯骸。
+
+闪电已沓来，正道之燔柴，
+
+终烧筑邪共夷覆的幽台！
+
+* * *
+
+编辑发稿：硫酸羟氯喹64
 
  
 

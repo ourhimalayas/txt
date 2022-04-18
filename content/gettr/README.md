@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 11:51 PM (UTC)`
+
+4/18/2022 China Merchants Bank issued an announcement to remove Tian Huiyu’s duty as President and Director, which has verified the revelation I made on November 30, 2019. I said that Tian Huiyu, Tian Guoli, Zhou Liang, and Kang Dian would all be arrested, which would be the result of the fight between Xi Jinping and Wang Qishan. The Chinese Communist Party is just like a devil's meat grinder!<br/><br/> 4/18/2022 招商银行发布公告称免去田惠宇行长、董事职务，这验证了文贵在2019年11月30日的爆料 - 田惠宇、田国立、周亮、康典都会被抓，这是习王斗争的结果，中共就是一台魔鬼的绞肉机！<br/>
+![img](https://media.gettr.com/group8/getter/2022/04/18/23/487d0f18-4e32-091f-1d53-1e7c2bd99da4/out.jpg)
+
+---
+
+`@miles 4/18/2022 11:40 PM (UTC)`
+
+2022.04.18《The Fringe》 Episode 171<br/>中文同传：https://gettr.com/streaming/p15z0hkc63a
+![img](https://media.gettr.com/group38/origin/2022/04/18/23/befd62db-986f-5610-f98d-aecfe49aa43a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 11:38 PM (UTC)`
 
 4月18号，《铁锁梦》MV在iTunes上线后，迅速登榜台湾 🇹🇼， 香港🇭🇰，澳门🇲🇴，马来西亚🇲🇾，新加坡🇸🇬，泰国🇹🇭，MV总榜第一名🥇，MV流行曲榜第一名🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，澳门，马来西亚，新加坡，泰国的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>4/18/2022 Miles Guo’s latest MV “Chained Dream” hits iTunes No.1 🥇on Hong Kong 🇭🇰, Taiwan 🇹🇼, Macau 🇲🇴, Malaysia 🇲🇾, Singapore 🇸🇬, Thailand 🇹🇭 Top Music Video Charts and No.1 🥇Pop Music Video Charts ! <br/>🎉🎉🎉🎉🎉🎉🎉<br/>Thanks to our brothers and sisters in Hong Kong, Taiwan, Macau, Malaysia, Singapore, Thailand 🙏🙏🙏🙏🙏🙏🙏
@@ -140,20 +154,6 @@
 
 2022.04.17  新中国联邦 | 喜健康   唐氏综合症在北美的医疗和教育
 ![img](https://media.gettr.com/group34/origin/2022/04/18/06/de179296-0d05-5bf6-7761-bd58d861dc94/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 5:59 AM (UTC)`
-
-【Ukraine Rescue】 04/16/2022  A Spanish mother and son who came to donate supplies asking for our vests because they feel the statement on the vest represents their heart, and asking our volunteers to take a picture together. Our vests have become a "hot commodity" at Medyka rescue center, and more than 200 have been given out.<br/><br/>【乌克兰救援】 04/16/2022  一对前来捐赠物资的西班牙母子向我们索要灭共马甲，因为他们认为马甲上的声明代表了他们的心声并主动要求合影。我们的马甲成了梅迪卡救援中心的“抢手货”，已经送出去200多件。
-![img](https://media.gettr.com/group22/getter/2022/04/18/05/cd59a53a-9d7c-2a68-051d-b9f33a6066eb/out.jpg)
-
----
-
-`@miles 4/18/2022 5:49 AM (UTC)`
-
-【Ukraine Rescue】04/16/2022  Luka, a Spanish volunteer, is attracted to the slogan "Take down the Chinese Communist Party". He has a deep understanding of the CCP's treatment of Hong Kong, Xinjiang, suppression of press freedom and live organ harvesting. He calls for an end to mutual fighting and a joint effort against evil forces like Russia and the Chinese Communist Party.<br/><br/>【乌克兰救援】04/16/2022  西班牙的志願者卢卡(Luca)被“推翻中共”这一口号所吸引。他对中共的对待香港、新疆、压制新闻自由和活摘器官等罪行都有深刻认识。他呼吁停止互斗，共同对付像俄罗斯和中共这样的邪恶势力。
-![img](https://media.gettr.com/group8/getter/2022/04/18/05/46ca3840-5585-d236-4e9e-dcdf8ade0a7f/out.jpg)
 
 ---
 

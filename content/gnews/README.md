@@ -15,125 +15,125 @@
 
 ---
 
-### [全球疫情疫苗数据更新(2022.4.18)](/content/gnews/1/README.md)
+### [上海，正在醒来](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [全球疫情疫苗数据更新(2022.4.18)](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年4月18日：国内清零是掩护，疫苗打死你是真](/content/gnews/2/README.md)
+### [【粤语配音】2022年4月18日：国内清零是掩护，疫苗打死你是真](/content/gnews/4/README.md)
  ` MOS香港部`
 
-### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/3/README.md)
+### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [联合国秘书长：乌克兰危机或导致全球五分之一人口陷入贫困和饥饿](/content/gnews/4/README.md)
+### [联合国秘书长：乌克兰危机或导致全球五分之一人口陷入贫困和饥饿](/content/gnews/6/README.md)
  ` 加拿大温哥华英里农场`
 
-### [乌克兰称俄罗斯对利沃夫的打击造成至少7人死亡](/content/gnews/5/README.md)
+### [乌克兰称俄罗斯对利沃夫的打击造成至少7人死亡](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [每日快报：美国高级官员将访问所罗门群岛](/content/gnews/6/README.md)
+### [每日快报：美国高级官员将访问所罗门群岛](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国纽约市仇恨犯罪激增76%](/content/gnews/7/README.md)
- ` 加拿大温哥华英里农场`
+### [无症状感染者为何要集中隔离？看共匪如何强词夺理](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年4月17日 文贵带货大直播](/content/gnews/8/README.md)
+### [2022年4月17日 文贵带货大直播](/content/gnews/10/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/9/README.md)
+### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/10/README.md)
+### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [马斯克收购推特引发加拿大主流媒体的恐慌](/content/gnews/11/README.md)
+### [马斯克收购推特引发加拿大主流媒体的恐慌](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多政府力推互联网审查制度](/content/gnews/12/README.md)
+### [特鲁多政府力推互联网审查制度](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大政府计划对皮卡车加增新税](/content/gnews/13/README.md)
+### [加拿大政府计划对皮卡车加增新税](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [卫生部称单克隆抗体药物对病毒亚变体无效](/content/gnews/14/README.md)
+### [卫生部称单克隆抗体药物对病毒亚变体无效](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [单克隆抗体治疗可能对奥米克戎BA.2无效](/content/gnews/15/README.md)
+### [单克隆抗体治疗可能对奥米克戎BA.2无效](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/16/README.md)
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/17/README.md)
+### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/18/README.md)
+### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升](/content/gnews/19/README.md)
+### [中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [五月花简报（04/18/2022）](/content/gnews/20/README.md)
+### [五月花简报（04/18/2022）](/content/gnews/22/README.md)
  ` mayflowertranslate`
 
-### [美国FDA授权的中共病毒呼吸样本测试首度被使用](/content/gnews/21/README.md)
+### [美国FDA授权的中共病毒呼吸样本测试首度被使用](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/22/README.md)
+### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联邦法官阻止美CDC的旅行口罩强制令](/content/gnews/23/README.md)
+### [联邦法官阻止美CDC的旅行口罩强制令](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [耶伦将只出席G20部分会议以示抗议俄罗斯](/content/gnews/24/README.md)
+### [耶伦将只出席G20部分会议以示抗议俄罗斯](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/25/README.md)
+### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/27/README.md)
  ` GTV News Talk`
 
-### [美联储货币政策的狂热追随者](/content/gnews/26/README.md)
+### [美联储货币政策的狂热追随者](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/27/README.md)
+### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/28/README.md)
+### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普习两魔头的结盟及其给世界带来的灾难（七）](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/30/README.md)
+### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/31/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/31/README.md)
+### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/32/README.md)
  ` thedawn`
 
-### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/32/README.md)
+### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022/04/13 墙内世界](/content/gnews/33/README.md)
+### [2022/04/13 墙内世界](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频文编|六月鲜花战友讲述欧盟官员来新中国联邦帐篷的细节](/content/gnews/34/README.md)
+### [视频文编|六月鲜花战友讲述欧盟官员来新中国联邦帐篷的细节](/content/gnews/35/README.md)
  ` KarmaLabs`
 
-### [视频文编|六月鲜花战友讲述比利时总理来新中国联邦帐篷时的细节](/content/gnews/35/README.md)
+### [视频文编|六月鲜花战友讲述比利时总理来新中国联邦帐篷时的细节](/content/gnews/36/README.md)
  ` KarmaLabs`
 
-### [数字货币发展进入法律规范化时代](/content/gnews/36/README.md)
+### [数字货币发展进入法律规范化时代](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [中共为大连和青岛大隔离做舆论准备](/content/gnews/37/README.md)
+### [中共为大连和青岛大隔离做舆论准备](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/38/README.md)
+### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国及世界疫情简报（04-18-2022）](/content/gnews/39/README.md)
+### [美国及世界疫情简报（04-18-2022）](/content/gnews/40/README.md)
  ` 波士顿五月花农场`
-
-### [有声｜严禁翻垃圾废品 沈阳城管执法开出第一张罚单](/content/gnews/40/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [没有人权何来女权-赤裸裸的秋后算账](/content/gnews/41/README.md)
  ` 新西兰伊甸农场听写编辑组`
