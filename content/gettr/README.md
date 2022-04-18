@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 2:09 PM (UTC)`
+
+4月18日：尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！
+![img](https://media.gettr.com/group17/getter/2022/04/18/14/c13ac333-4f39-2434-db4f-49eb3b0153a7/out.jpg)
+
+---
+
 `@miles 4/18/2022 1:06 PM (UTC)`
 
 2022.04.18 早  新中国联邦 | 新闻访谈   普京现在不得不孤注一掷；今日俄罗斯，明日中国？欧洲对中国原材料的依赖有多危险 
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 2022.04.17 农场联盟工作汇报
 ![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 1:08 AM (UTC)`
-
-2022.04.17 晚  新中国联邦 | 新闻访谈   逾越节，复活节，斋戒月三大宗教节日同周登场
-![img](https://media.gettr.com/group4/origin/2022/04/13/01/812427ec-620c-a337-0328-1fa181ec0fbd/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,28 +2,45 @@
 ---
 
 
-## 樱花时政┃支持俄罗斯侵略者：在德国或被起诉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2367979/)
+## 有声|梅迪卡的最新时尚 亮丽的灭共马甲
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2368069/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-德国警方和检察机关迄今已承办140多个鼓吹俄侵乌克兰战争行为案。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上印有这一符号。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃支持俄罗斯侵略者：在德国或被起诉.jpg)图片来源于本文链接
-调查结果显示，仅在德东地区萨克森-安哈尔特州，自俄军侵入乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。该州国家内政部透露，相关案件中有17起涉及使用“Z”符号。 汉堡州司法机构也已着手调查17起声援俄侵略战争案，其中16起涉及使用“Z”符号；北莱茵-威斯特法伦州已知立案37起，其中22起涉及“Z”符号。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在波兰梅迪卡，一件小小的黄色马甲，正在成为梅迪卡最亮丽的风景线。这件马甲，是郭文贵先生特意为乌克兰救援行动设计的，上面印着“消灭中国共产党”，“我们是灭共的新中国联邦人”。
+![](https://cdn.discordapp.com/attachments/902205163622776852/965063473606303794/fa812f6e-cbd9-41f3-9939-e2e9c29aa4e3.JPG)
+饱受战火蹂躏的乌克兰难民，因为俄罗斯的侵略而深刻厌恶共产党政权，对同是共产政权的中共国也是一样的讨厌。看到前线战友的华人面孔时，她们的眼神都带着怀疑和戒备。当身穿这件灭共马甲的前线战友，向她们解释，我们是灭共的新中国联邦人，我们的信仰是消灭中国共产党。她们听完之后，全都放下戒备，换上真心的笑容。
 
-此外，另有一百多桩破坏财产行为，“Z”符号也在这些案件中扮演了角色。
+4月15日，前线战友妮可的消息：一位法国义工穿着灭共马甲说，灭共是他的信仰，我们一起来灭共。还有，台湾流浪作家王芮缇穿上灭共马甲，与前线救援战友一起在联邦大帐篷里工作了两周。
 
-信息来源：
-[支持俄罗斯侵略者：在德国或被起诉](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
+4月16日，前线战友正义小Sarah报道，两位从西班牙来捐物资的西班牙人走进我们的帐篷，问我们要灭共马甲。他们说，将来计划穿着这个马甲去中共国，用这件马甲来表达消灭中国共产党的心声。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+越来越多的人来到我们的救援大帐篷，想要一件和我们前线战友同款的灭共马甲。这件灭共马甲，就和新中国联邦大帐篷，以及新中国联邦咖啡一样，已经成为新中国联邦救援行动的标志。身穿灭共马甲的战友们，是梅迪卡最亮丽的风景线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-17-at-9.18.49-PM-768x467-1.png)
+
+
+
+
+
+
+文字版原文：[梅迪卡的最新时尚 亮丽的灭共马甲](https://gnews.org/zh-hans/2360418/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
