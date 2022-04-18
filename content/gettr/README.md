@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 6:10 AM (UTC)`
+
+2022.04.17  新中国联邦 | 喜健康   唐氏综合症在北美的医疗和教育
+![img](https://media.gettr.com/group34/origin/2022/04/18/06/de179296-0d05-5bf6-7761-bd58d861dc94/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/18/2022 5:59 AM (UTC)`
 
 【Ukraine Rescue】 04/16/2022  A Spanish mother and son who came to donate supplies asking for our vests because they feel the statement on the vest represents their heart, and asking our volunteers to take a picture together. Our vests have become a "hot commodity" at Medyka rescue center, and more than 200 have been given out.<br/><br/>【乌克兰救援】 04/16/2022  一对前来捐赠物资的西班牙母子向我们索要灭共马甲，因为他们认为马甲上的声明代表了他们的心声并主动要求合影。我们的马甲成了梅迪卡救援中心的“抢手货”，已经送出去200多件。
@@ -147,13 +154,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 2022-4-17 七哥来啦
 ![img](https://media.gettr.com/group48/liveorigin/2022/04/17/18/e4ed94d3-ece5-bd1e-0d3d-189326716fb7/db77deaeeaadf94601c75dae84bb7948.jpg)
-
----
-
-`@miles 4/17/2022 5:27 PM (UTC)`
-
-04.17.2022 俄乌战争战况播报<br/>
-![img](https://media.gettr.com/group15/origin/2022/04/17/17/dac06d7f-4a7f-a65d-8a30-ed3cf7ae7595/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
