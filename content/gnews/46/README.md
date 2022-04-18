@@ -2,34 +2,46 @@
 ---
 
 
-## 中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2365050/)
+## 新西兰财经G乐部2022年4月18日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2367974/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-对冲基金经理凯尔巴斯警告说，俄罗斯在乌克兰的战争正在掩盖中共政权构成的一个非常令人担忧的威胁：其无纸化货币系统。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-215448.jpg)
+**1、中共央行降准，释放资金约5300亿元 **
+![img](https://media.gettr.com/group46/origin/2022/04/18/02/82551fa1-73d0-0510-ca01-5fffa19c7273/fa2c548de68338c13a39275a95bb3474_500x0.png)
+中共央行决定于2022年4月25日下调金融机构存款准备金率0.25个百分点。对没有跨省经营的城商行和存款准备金率高于5%的农商行，在下调存款准备金率0.25个百分点的基础上，再额外多降0.25个百分点。本次下调后，金融机构加权平均存款准备金率为8.1%。此次降准共计释放长期资金约5300亿元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃凯尔巴斯：对西方构成最大威胁的中共国数字人民币.jpg)[图片来源](https://assets.zerohedge.com/s3fs-public/styles/16_9_max_700/public/2022-04/bass.jpg?itok=Qahrdrpy)
+链接 [https://finance.sina.com.cn/china/2022-04-18/doc-imcwiwst2428717.shtml](https://finance.sina.com.cn/china/2022-04-18/doc-imcwiwst2428717.shtml)
 
-“我认为，这是过去50年来对西方的最大威胁。而且它被俄罗斯入侵乌克兰所掩盖，”巴斯在最近接受EpochTV的“美国思想领袖”节目采访时说中共国数字货币，也称为数字人民币、数字人民币、e-CYN和e-yuan，目前正由中共政权通过其中央银行开发。由于电子元由中国人民银行（PBOC）支持，它是一种中央银行数字货币（CBDC）或简称为中共国法定货币的数字版本。
+**2、周小川：数字人民币不是为了替代美元**
+![img](https://media.gettr.com/group49/origin/2022/04/18/02/4ca6b477-1e6c-df29-c276-b0a3147f95cf/d9cedb8d5088402558c7a16c46ab2283_500x0.png)
+2022清华五道口全球金融论坛，周小川发表演讲：“数字货币，至少中国的e—CNY设计是为了零售，为了百姓方便、商户方便，不是为了替代美元，当然我们不排除e—CNY未来可能有跨境支付的前景，但是我估计也是会注重于零售，跨境零售的应用，不是轻易地当做军事武器来使用的。”
 
-到目前为止，电子元的试点测试正在中共国20多个不同的城市进行，这笔钱在2022年北京冬奥会期间首次通过移动应用程序提供给来访的外国人。“这不是一个简单的数字支付应用程序。这是一个应用程序，它可以跟踪您的位置、您的姓名、您的社会安全号码是什么，[以及]您的所有标识符是什么。它具有地理定位能力，”他解释说。巴斯解释说，一旦中共国的数字货币完全开发并可供中共国以外的所有人使用，中共政权可能会寻找某些电子元用户，例如陷入财务困境的用户，并对其进行腐败。“如果中共政府能够接触到美国、欧洲和加拿大的每一位汤姆、迪克和哈利，想象一下，”他说。“想象一下，如果他们可以交叉运行一个算法，让我们寻找拥有Tinder且资金短缺的美国政府雇员——也许他们已经结婚——我们可以立即腐蚀他们。”他补充说：“这让他们有机会腐蚀世界上任何可腐败的人，这是一个真正的国家安全问题。”“所以这是他们可以输出数字威权主义的一种方式。”巴斯说，中共国在全球推出电子人民币有一个非常具体的议程，那就是减少对美元的依赖。“中共国结算的全球交易中约有87%以美元结算，”他说。“他们极度缺乏能源，他们极度缺乏食物，他们极度缺乏基础材料，他们必须每天在世界各地购买这些东西，没有人相信他们的货币，他们仍然有封闭的资本帐户。”“那他们该怎么办？他们必须用他们的美元来做到这一点，”他说。
+财经G评：当下中共可以拿食物作为武器整治老百姓，人民币已经成为武器正在援助俄罗斯！如果中共数字人民币成功了，一定会成为武器来攻击民主国家！
 
-根据总部位于华盛顿的智库大西洋理事会的跟踪，包括美国在内的全球80多个国家正在探索发行CBDC。到目前为止，尼日利亚是推出数字货币形式的九个国家之一。3月，白宫发布了乔·拜登总统关于数字资产的行政命令大纲。总统正在“紧急”研究和开发美国的CBDC，并且发行一个“被认为符合国家利益”。几位美国立法者一直热衷于看到电子元构成的威胁得到妥善解决。去年5月，代表FrenchHill(R-Ark.)和JimHimes(D-Conns.)提出了21世纪美元法案(HR3506)，该法案要求美国财政部在提交给国会的报告中包含任何风险对数字人民币构成的美元。3月，参议员MarshaBlackburn(R-Tenn.)和她的八位共和党同事介绍了《对丝绸之路说不法案》(S.3784)。如果获得通过，该立法将要求美国商务部和美国贸易代表办公室提交有关电子人民币的报告。
+链接 [https://finance.sina.com.cn/jryx/2022-04-16/doc-imcwiwst2226573.shtml](https://finance.sina.com.cn/jryx/2022-04-16/doc-imcwiwst2226573.shtml)
 
-此外，根据法案的文本，美国国务院将被要求在其网站上发布警告，警告前往中共国的美国公民“关于数字人民币的危险”。“在接下来的几周内，你会看到一些参议员将发起立法，禁止其使用。我相信，那些立法必须发生，”巴斯说。“西方需要召开会议，我们需要立即禁止它，”他补充说。“你不可能有一点点癌症，你要么有癌症，要么没有癌症。”
+**3、银行利用“白名单”高息揽储逃避监管**
+![img](https://media.gettr.com/group22/origin/2022/04/18/02/fbea9a64-bda6-9462-4802-199b0d995fcf/b2f4bca5e88945f3cbc314638fa6c7e9_500x0.png)
+有调查发现，一些民营银行通过线上点对点邀请开立Ⅱ类账户、添加“白名单”的方式向用户推出高息存款产品，最高存款年利率可达4.6%；这种行为变相突破了监管对于异地揽储的红线。一些民营银行并未停止发布高息存款产品的脚步，而是将此类揽储行为转向了“地下”。新安银行的存款利率非常高，最高能达到4.6%。
 
-消息来源：
-[China’sDigitalYuan,BiggestThreatToTheWest,IsOvershadowedByRussianWar,KyleBassWarns](https://www.zerohedge.com/geopolitical/chinas-digital-yuan-biggest-threat-west-overshadowed-russian-war-kyle-bass-warns)
+链接 [https://finance.sina.com.cn/stock/yjdt/2022-04-18/doc-imcwiwst2412254.shtml](https://finance.sina.com.cn/stock/yjdt/2022-04-18/doc-imcwiwst2412254.shtml)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**4、2022年1—3月份中共国房地产开发投资增长创新低**
+![img](https://media.gettr.com/group48/origin/2022/04/18/03/7b920770-30b0-4b2f-b441-544104046e0f/fe188654be14c7d9805c478058d0ae40_500x0.png)
+1—3月份：全国房地产开发投资27765亿元，同比增长0.7%、商品房销售面积31046万平方米，同比下降13.8%、房地产开发企业到位资金38159亿元，同比下降19.6%。
+
+链接：[https://finance.sina.com.cn/china/gncj/2022-04-18/doc-imcwipii4929044.shtml](https://finance.sina.com.cn/china/gncj/2022-04-18/doc-imcwipii4929044.shtml)
+
+**5、3万比特币离开Coinbase**
+![img](https://media.gettr.com/group4/origin/2022/04/18/03/f4197bff-d733-850f-56d3-f31291fa6a67/510be30ef8788add525fd4deec5b6e40_500x0.png)
+来自美国交易所Coinbase的专业交易分支机构Coinbase Pro的数据，该数据证实，大量比特币继续离开其账簿。在本周的一天里，转移量总计达到3万枚比特币，这种情况并不是第一次出现，3月份也出现了类似的行为。正如Cointelegraph本周报道的那样，这一趋势在各个交易所都很明显，目前4月份的资金外流总量正试图赶上3月份。
+
+链接  [https://cointelegraphcn.com/news/bitcoin-institutional-buying-could-be-big-narrative-again-as-30k-btc-leaves-coinbase](https://cointelegraphcn.com/news/bitcoin-institutional-buying-could-be-big-narrative-again-as-30k-btc-leaves-coinbase)
+
+制作：文勇
+
+排版上传：文勇
 
  
 

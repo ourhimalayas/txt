@@ -2,31 +2,22 @@
 ---
 
 
-## 有声|中共防疫神药实为骗局 以岭药业一字跌停
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2369675/)
+## 樱花时政┃意大利重开驻基辅大使馆 西班牙跟进
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369818/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-墙内媒体4月18日报道称，莲花清瘟生产厂家以岭药业今日早盘一字跌停，封单超过10万单。据悉，自王思聪发微博称证监会应严格调查以岭药业事件后，该企业股票已连续两日跌停，市值蒸发逾60亿。
+撰稿：东京樱花团/加一颗稻草
 
-据了解，以岭药业创始人吴以岭自03年非典疫情发迹，其依靠所谓的抗SARS中药莲花清瘟一举成为亿万富翁和国家院士。而莲花清瘟自从上市以来，就连续18次获得国家级卫健委的官方推荐和背书。在中共疫情期间，该药更是成为预防中共病毒的中医代表，被大肆发放到墙内民众的手中。
+法新社罗马18日电，续法国和土耳其上周宣布，驻乌克兰大使馆将从利维夫迁回基辅后。意大利驻基辅的大使馆于今天重新开放。这是入侵乌克兰的俄罗斯军队撤出基辅地区后，又一个国家让外交官返回乌国首都。西班牙总理桑杰士（Pedro Sanchez）今天也表示，马德里将在未来几天重开驻基辅大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-9.jpg)[图片来源](https://www.google.com/search?q=%E5%9F%BA%E8%BE%85+%E6%84%8F%E5%A4%A7%E5%88%A9%E5%A4%A7%E4%BD%BF%E9%A6%86&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBu2IdEkJblP3oc5vt2Tv_pFNpSQdQ:1650304103541&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwikn_PulZ73AhW_QkEAHabXBPsQ_AUoA3oECAEQBQ#imgrc=06B_XWVEWPCQSM)
+俄军2月24日侵略乌克兰后，意大利、法国等将驻基辅外交官转移到乌西城市利维夫。西班牙使馆迁至波兰。土耳其一度将驻乌克兰大使馆迁移至靠近罗马尼亚边界的车尼夫契。近日在俄军撤离基辅周围和乌克兰北部后，各国使馆人员陆续返回乌国首都。
 
-然而，近期却不断有消息爆出称，莲花清瘟根本没有防疫功效，而正常人长期、大量服用还可能危及肝肾功能。同时，在面对王思聪的微博质疑，以岭药业亦不得不回应称，从未表示莲花清瘟是世卫组织推荐药物。该消息一出，舆论哗然。中共所鼓吹的莲花清瘟能防疫的官方谎言被无情揭穿，以岭药业借防疫之机大发国难财的真相亦浮出水面。
+俄军在乌克兰遭遇惨败后，各国对乌克兰的抵抗侵略的能力的信心增强。各国使馆迁回基辅，使得各国对乌克兰的军事和民生等援助更加快捷有效。
 
-文字版原文：[中共防疫神药实为骗局 以岭药业一字跌停](https://gnews.org/zh-hans/2367627/)
+消息来源：[义大利重开驻基辅大使馆 西班牙也快了](https://www.rfi.fr/cn/%E4%B9%89%E5%A4%A7%E5%88%A9%E9%87%8D%E5%BC%80%E9%A9%BB%E5%9F%BA%E8%BE%85%E5%A4%A7%E4%BD%BF%E9%A6%86-%E8%A5%BF%E7%8F%AD%E7%89%99%E4%B9%9F%E5%BF%AB%E4%BA%86)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-音频处理/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

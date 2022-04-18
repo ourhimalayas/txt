@@ -2,36 +2,46 @@
 ---
 
 
-## 中共增加铁路货运班列援助俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2366148/)
+## 4/18/2022国际财经快讯：中共希望欧洲公司在中共国上市受阻；全球投资者担心风险逃离中共国
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2368119/)
 
-作者：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-113.png)[图片来源](https://www.reuters.com)
+**1.** **IMF****前首席经济学家警告****：****美联储****紧缩货币政策抑制经济增长**
 
-4月15日，郭文贵先生爆料，因俄罗斯入侵乌克兰遭受国际制裁，中共的物资频繁地被运抵俄罗斯。中共援助俄罗斯的物资通过火车运输抵达。回程列车则满载俄罗斯的石油，并低价转手卖给多个国际基金。中共借此帮助俄罗斯逃避国际制裁。
+[4月18日华尔街日报报道，国际货币基金组织(IMF)前首席经济学家警告布兰查德说，美联储努力降低失控的通胀，需要继续提高利率，美国经济将因此放缓，并无可避免地给世界最大经济体带来“痛苦”。布兰查德说。“我看不出美联储如何能够在一段时间内保持经济增长保持当前水平，同时控制好通胀。”全球通胀因乌克兰战争而飙升，商品、食品、化肥和能源的价格前景仍不明朗。美国 3 月份的通货膨胀率达到 8.5%，欧元区达到 7.5%，英国达到 7%。美联储于 3 月启动紧缩周期，预计今年将再加息六次。但布兰查德表示，控制通胀的任务意味着美联储“仍落后于曲线”，通胀处于 40 年高位，通胀率是银行目标利率的四倍多。周四，美国前财政部长拉里萨默斯表示，美国经济衰退是未来两年美联储收紧货币政策“最有可能”的结果。](https://www.thetimes.co.uk/article/americans-will-have-to-pay-price-of-feds-fight-against-inflation-zczk67lxx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-18-at-11.20.42-AM.png)
+**2.**** 全球债券基金上周大量资金外流**
 
-近日，为了向俄罗斯运输物资，中共一带一路重要项目的中欧班列新添了多趟列车。
+[4月18日路透社报道，全球债券基金上周出现大量资金外流，因为投资者担心美联储将开始更积极地提升利率，这可能会减缓经济增长。全球投资者在报告的一周内减持了价值 145 亿美元的债券基金，其中，美国债券基金出现125.7亿美元的巨额资金流出。投资者还分别出售了 29.9 亿美元和 4.2 亿美元的欧洲和亚洲基金。投资者抛售了65.5亿美元的全球中短期债券基金，并退出了62.1亿美元的高收益债券基金，为两个月来最大的资金流出。与此同时，通胀保值基金连续第七周净买入 6.59 亿美元。全球股票基金在 4 周内首次出现每周净流出 110.4 亿美元。对 24,116 只新兴市场基金的分析显示，投资者转为股票和债券基金的净卖家，分别抛售 3.4 亿美元和 3.81 亿美元。](https://www.reuters.com/business/global-markets-flows-graphic-2022-04-18/)
 
-据中共国公开新闻显示，截止2022年1月29日，中欧班列累计开行5万列。中欧班列途径俄罗斯的三个出境口岸为阿拉山口、二连浩特、满洲里。截至4月15日，满洲里累计开行数量达到15,000列。霍尔果斯累计开行20,239列，而在3月19日，霍尔果斯口岸该项数字是19,526。在短短27天内，开行达到713列。往常每月大概是500列。这仅是霍尔果斯一个口岸的吞吐量。
+**3.** **沙特 2 月原油出口达两年高位**
 
-除了增加原有线路的开行次数，中共还增添了多条线路。在4月13日开通中豫号里海、黑海班列，当天五地六列班车齐发。直抵莫斯科的列车有，4月15日九江至莫斯科线路复航，4月6日赤峰至莫斯科首度开行。3月25日，咸宁至莫斯科首度开行。
+[4月18日路透社报道，沙特阿拉伯 2 月原油出口量升至 730.7 万桶/日，为 2020 年 4 月以来的最高水平。2 月份原油出口量较 1 月份报告的约 700 万桶/日增长 4.4%。全球最大的石油出口国 2 月原油产量也从上月的 1014.5 万桶/日升至近两年来的最高水平，为 1022.5 万桶/日。每月出口数据由利雅得和石油输出国组织 (OPEC) 的其他成员提供给联合组织数据倡议 (JODI)，并在其网站上发布。](https://www.investing.com/news/commodities-news/saudi-feb-crude-exports-hit-near-twoyear-high--jodi-2805282)
 
-中共是俄罗斯侵略乌克兰的背后支持者，帮助俄罗斯逃避国际制裁，已经严重违反了国际法。
+**4.** **中共希望欧洲公司在中共国上市受阻**
 
-参考链接：
-1. [4/15/2022 文贵直播](https://gettr.com/post/p15h9ro21b1)
-2. [全球连线｜新疆霍尔果斯口岸累计通行中欧班列超2万列](http://www.news.cn/world/2022-04/16/c_1128566580.htm)
-3.[https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm\_HF1s9g](https://baike.baidu.com/reference/15832643/69eemSVOjT5K2hmXQ2qi2juVkAbV0RvMdPaoYsilIdE8k0eMpfpZh5u787i91TP63CnEInFrT2WXos1aJCq0iRWbnQVTToZVT5RMRZTTtlvIJhK7fYm_HF1s9g)
-4.[https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn\_Mbv\_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo\_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA](https://baike.baidu.com/reference/15832643/c2f74YR5cWDZvHDiaUZkn_Mbv_g4PpsCmbe3Th5E3VJVXxtieTo5u9gZNQn7zbPWBCgKhwXqnbFpqdo_SnGLvWdRQ4529biu4az7LLif7y7Ggi8bBodenz3MJA)
-5. [https://baike.baidu.com/reference/15832643/c396syJUUu-jQ\_svfwIY9Wm-5ctVFeBDk3kN\_6RZgJ3VDcBTkKi\_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA](https://baike.baidu.com/reference/15832643/c396syJUUu-jQ_svfwIY9Wm-5ctVFeBDk3kN_6RZgJ3VDcBTkKi_Ozl1hVD-sgmDMO1cCMNylGrAVbiPRj3IEHE8xSpBZiG1vWQYmnpGMG4LtXztMP9vp7kWZA)
+[华尔街日报4月18日报道，今年2月份开始，中国证券市场监管机构表示，将扩大上海和伦敦证券交易所之间已有近三年历史的联系，包括德国、瑞士和深圳证券交易所。它还修改了规则，使欧洲公司能够出售新股并从中国大陆的投资者那里筹集资金，并简化了它们的财务报告和披露要求。在俄罗斯入侵乌克兰之后，西方对俄罗斯采取一系列贸易和金融制裁，中共并没有采取任何相关措施，导致欧洲公司对在中国金融市场的担忧。重要的是，中国监管机构没有解决欧洲公司最关心的问题：根据中国法律，上市公司的高管可能会因公司的不当行为而承担个人和刑事责任。该国历史上的年定罪率超过 99%。跨国银行汇丰控股和瑞银集团以及工业巨头巴斯夫、 西门子和大众汽车等 跨国公司曾认真考虑过中共国上市，但决定不采取行动。](https://www.wsj.com/articles/beijing-wants-european-companies-to-list-in-china-it-remains-a-tough-sell-11650277467?mod=markets_lead_pos3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+**5****.**** 日本央行****警告****日元****下跌危害****企业**
 
-总编：文真
-编辑：Jack Li文阳
-审核：文真
-校正/发稿：谐趣园
+[4月18日路透社报道，日本央行总裁黑田东彦周一表示，日元近期波动剧烈，可能损害企业的发展计划，就日元贬值带来的风险发出了最强烈​​的警告。黑田东彦表示，他的评估没有改变，即总体而言，日元疲软对经济有利，因为它提高了日本公司在海外赚取的利润的价值。但他表示，日元兑美元汇率从一个月前的约 115-116 日元跌至约 125-126 日元，波动性足以伤害企业。](https://www.reuters.com/world/asia-pacific/bojs-kuroda-warns-recent-yen-moves-quite-sharp-may-hurt-businesses-2022-04-18/)
+
+**6.**** 全球投资者担心风险逃离中共国**
+
+[4月18日彭博报道，习近平与普京的友谊使投资者对中共国更加不信任，随着共产党顽固地推行 Covid-Zero 战略和不可预测的政治运动来管理各个行业，投资者正在远离中共国。俄罗斯入侵乌克兰后，中共国股票、债券和共同基金的资金外流加速，第一季度投资中共国的美元私募股权基金仅筹集了 14 亿美元，这是自 2018 年同期以来的最低数字。自 2010 年以来，中国基准主权 10 年期票据首次不提供可比美国国债的结转。上个季度，中国高收益美元信贷市场的回报率是至少十年来最差的。](https://finance.yahoo.com/news/global-investors-flee-china-fearing-210000643.html)
+
+[全球基金已开始撤出，3 月份通过与香港的交易所联系出售了价值超过 70 亿美元的内地上市股票。过去两个月，他们还出售了 140 亿美元的中国政府债务，并减持了信贷持仓。3 月，德国法兰克福机场公司将其在西安机场的股份出售给当地买家，结束了在中国长达 14 年的工作。这家机场运营商表示，在努力扩大业务后，决定退出中国市场。其他人则在为中共国与西方脱钩做准备。据路透社上周报道，由于担心这些资产可能受到制裁，石油巨头中海油可能会退出在英国、加拿大和美国的业务。](https://finance.yahoo.com/news/global-investors-flee-china-fearing-210000643.html)
+
+**7.**** ****美国银行季度利润下降12%**
+
+[路透社4月18日报道，美国银行公司周一表示，其第一季度利润下降了 12%，这是自 2020 年以来的首次季度下降。这家美国第二大银行的收入为 70.7 亿美元，低于一年前的 80.5 亿美元。美国银行的业绩印证了银行业的利润下降趋势，上周，摩根大通 JPM-0.93% & Co., 花旗集团, Wells Fargo & Co., Goldman Sachs Group Inc. GS-0.10%摩根士丹利 和 摩根士丹利 都报告了较低的第一季度收益。银行业在 2021 年出现创纪录的利润后，今年已经开始出现下滑。消费银行业务最强大的利润领域之一，抵押贷款业务正在下降。与此同时，银行担心美联储通过加息来抑制通胀的尝试可能引发经济衰退。美联储的预期加息可能使商业银行从中受益。投资银行费用同比下降 33% 至 15.3 亿美元。第一季度，花旗集团的投资银行业务收入下降了 43%，摩根士丹利下降了 37%，高盛下降了 36%。](https://www.wsj.com/articles/bank-of-americas-quarterly-profit-falls-12-11650280110?mod=markets_lead_pos1)
+
+**8.****加拿大加密交易所WonderFi 计划收购 Coinberry**
+
+[加密新闻网站coindesk4月18日报道，加拿大加密交易所WonderFi 周一表示，继续巩固其在加拿大的业务，打算以 3060 万美元收购加拿大加密交易平台 Coinberry。总部位于温哥华的 WonderFi 最近完成了对 Bitbuy 的1.62 亿美元收购，Bitbuy是加拿大的加密交易平台，拥有超过 40 万用户。Coinberry 目前为超过 220,000 名注册的加拿大客户提供服务。WonderFi 预计 Coinberry 的全股票交易将在第二季度完成。WonderFi 还计划今年在全球扩张，同时提供多样化的数字资产产品。](https://www.coindesk.com/business/2022/04/18/wonderfi-bulks-up-further-with-planned-31m-acquisition-of-coinberry/)
+
+By 【秘密翻译组-金融组】
+作者：自由信仰
 
  
 
