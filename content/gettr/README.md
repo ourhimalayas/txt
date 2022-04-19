@@ -17,10 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/19/2022 6:55 AM (UTC)`
+`@miles 4/19/2022 7:16 AM (UTC)`
 
-【Ukraine Rescue】04/17/22 All volunteers in the Medyca rescue centre are celebrating Easter. Some volunteers from other relief organizations immediately recognize the NFSC volunteers and sincerely thank us for our dedication.<br/><br/>【乌克兰救援】04/17/22 Medyca救援营地世界各地的志愿者们一起庆祝复活节，一些来自其他救援组织的志愿者一眼就认出了新中国联邦的志愿者，并真诚地感谢我们的付出。
-![img](https://media.gettr.com/group20/getter/2022/04/19/06/f579c53d-b1e1-9248-f5d8-9e40beac869f/out.jpg)
+【乌克兰救援】04/18/2022  我们的老外战友采访一位韩国女士，她对在梅迪卡前线会出现中国人感到意外，她非常感激新中国人的救援行动。她知道上海现在发生的事，上海的恐怖与乌克兰的战争都是独裁共产党的罪行。<br/><br/>【Ukrainian Rescue】04/18/2022 Our foreign fellow fighter interviewed a Korean lady who was surprised by the presence of Chinese on the front line of Medyka. She appreciates the new Chinese for the rescue operation. She knows what was going on in Shanghai, the terror in Shanghai and the war in Ukraine were the crimes of the dictatorial Communist Party.
+![img](https://media.gettr.com/group50/getter/2022/04/19/07/63737b25-8bcb-d6f3-59ad-0b241e583e75/out.jpg)
+
+---
+
+`@miles 4/19/2022 7:15 AM (UTC)`
+
+【Ukraine Rescue】04/17/22 All volunteers in the Medyka rescue centre are celebrating Easter. Some volunteers from other relief organizations immediately recognize the NFSC volunteers and sincerely thank us for our dedication.<br/><br/>【乌克兰救援】04/17/22 Medyka救援营地世界各地的志愿者们一起庆祝复活节，一些来自其他救援组织的志愿者一眼就认出了新中国联邦的志愿者，并真诚地感谢我们的付出。
+![img](https://media.gettr.com/group48/getter/2022/04/19/07/c366c47d-6de1-c45a-2264-f75cd8cea40a/out.jpg)
 
 ---
 
@@ -146,13 +153,6 @@
 
 “懦弱的代价...” 飞飞秀救援快报 2022-04-18<br/>For English：gettr.com/streaming/p15yy7w0449
 ![img](https://media.gettr.com/group9/origin/2022/04/18/22/3ff9188f-4bc5-d3d7-7c4c-dfcaaa7da411/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 8:45 PM (UTC)`
-
-2022.04.18  新中国联邦 | 喜健康   老药新用：探讨乙酰半胱氨酸治疗冠状病毒感染，解毒疫苗的可能性
-![img](https://media.gettr.com/group45/origin/2022/04/18/20/93a747d6-61b9-c02d-36b0-79f6aa417f55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
