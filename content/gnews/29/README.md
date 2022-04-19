@@ -2,57 +2,50 @@
 ---
 
 
-## 美国特使誓言对朝鲜导弹和核紧张局势作出果断回应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2370812/)
+## 俄罗斯最后通牒，乌克兰誓在马里乌波尔战斗到底
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2371160/)
 
-![U.S. envoy for North Korea Sung Kim meets South Korean counterpart Noh Kyu-duk, in Seoul](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/CL5GLNGCRNN5TBPQAE5JGT647A.jpg)2021 年 10 月 24 日，美国朝鲜问题特别代表 Sung Kim 和韩国朝鲜半岛和平与安全事务特别代表 Noh Kyu-duk 在韩国首尔的一家酒店会晤后出席简报会。REUTERS
-据路透社首尔于4月18日报道——美国朝鲜问题特使表示，在一系列导弹试射引发人们对朝鲜准备恢复核试验的担忧之后，华盛顿将采取“负责任和果断”的行动来应对“局势的升级”。
+作者：雅典娜农场 – 小红帽
 
-美国特别代表金星容（Sung Kim）及其副手朴正铉（Jung Pak,）在周一早些时候抵达首尔进行为期五天的访问后，会见了包括核问题特使卢奎德（Noh Kyu-duk）在内的韩国官员。
-
-“当然，我们与你一样关注朝鲜的升级行动，我们将继续密切合作，负责任地、果断地应对挑衅行为，”金星容在他们的会谈开始时告诉卢奎德。
-
-金星容指的是朝鲜的正式名称，即朝鲜民主主义人民共和国。
-
-他补充说，他最近的行程 “表明我们决心并承诺在盟国之间就朝鲜的事态发展保持尽可能密切的协调”。
-
-金星容的抵达正值美国和韩国军队开展为期九天的年度联合军事演习。
-
-韩国参谋长联席会议周日表示，此次演习包括“使用计算机模拟的防御性指挥所训练”，不涉及部队的实地演习。
-
-朝鲜谴责联合演习是战争预演，近年来，由于努力让平壤参与外交活动，并由于中共病毒（COVID-19）的限制，这些演习已经缩减。
-
-上周六，朝鲜试射了国家媒体所说的用于运载战术核武器的导弹。
-
-美国特使表示，他愿意在任何时候无条件地与朝鲜进行会谈，但迄今为止平壤拒绝了这些提议，指责华盛顿维持制裁和军演等敌对政策。
-
-韩国媒体报道说，预计金星容还将与5月上任的新总统尹锡悦的过渡团队会面。
-
-该团队的一位发言人说，没有确认尹锡悦和金星容之间的会面，也无法立即核实特使是否会与其他过渡期官员会面。
-
-金星容在与卢奎德的会谈中还表示，华盛顿期待着与尹锡悦的团队密切合作。
-
-简评：
-
-民主国家都有的一个弊病就是行动效率缓慢，在面对独裁政权疯狂行径时，往往不能迅速作出回应。但这次俄罗斯入侵乌克兰，西方民主国家可以说在最短时间内给予普京政府最严厉的制裁。这次朝鲜又一次的挑衅，美国等西方国家同样将会做出快速的回应。加深与韩国的合作，可以很好的制约中共，维护东亚的和平。
-
-朝鲜的核技术，以及维持朝鲜金正恩家族的统治，中共起着决定性的作用。此次导弹的试验，与过去一样，都是中共希望利用朝鲜半岛的危机，转移视线，为中共逃避制裁，逃避中共发动生化战争（COVID-19）病毒溯源，以及为攻占台湾赢得准备时间。美国及其盟友应该明白，只有尽早推翻中共政权，世界上很多由来已久的问题将会迎刃而解，比如说朝鲜半岛问题。
-
-新闻链接:[https://www.reuters.com/world/asia-pacific/us-envoy-seoul-talks-over-nkorea-missile-nuclear-tensions-2022-04-18/](https://www.reuters.com/world/asia-pacific/us-envoy-seoul-talks-over-nkorea-missile-nuclear-tensions-2022-04-18/)
-
-翻译/简评:親愛的瑪嘉烈
-
-PR: 感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据CNA 4月17日报道，乌克兰周日发誓要在马里乌波尔战斗到底，此前俄罗斯发出最后通牒，要求乌剩余部队在黑海港口城市投降。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+“这座城市还没有沦陷，”乌克兰总理丹尼斯·什米哈尔说，在莫斯科要求投降的最后期限过去几个小时后，战士们躲在一个庞大的堡垒般的钢铁厂中。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-223203.jpg)图片来源：CNA
+
+
+“还有我们的军队，我们的士兵。他们会战斗到最后，”什米哈尔告诉美国广播公司。
+
+莫斯科已将其军事重点转移到控制顿巴斯东部地区，并建立一条通往已经吞并的克里米亚的陆地走廊。 俄罗斯国防部表示，被包围的钢铁厂内有多达400名雇佣军，并呼吁里面的乌克兰军队“放下武器投降，以保全自己的生命”。
+
+乌克兰总统泽连斯基表示，如果俄罗斯军队杀死了保卫该市的剩余部队，将结束和谈。
+
+俄罗斯总统普京已经表示，会谈处于“死胡同”。
+
+乌克兰总理什米哈尔说，乌克兰希望通过外交途径解决问题，但如有必要，将战斗到底，并表示，“我们不会投降”。
+
+自从俄罗斯2月24日入侵这个前苏联国家以来，马里乌波尔已成为乌克兰令人意料之外的勇敢抵抗的象征。
+
+新闻链接：
+[https://www.channelnewsasia.com/world/ukrainian-forces-fight-end-ukraine-prime-minister-russia-invasion-2630721](https://www.channelnewsasia.com/world/ukrainian-forces-fight-end-ukraine-prime-minister-russia-invasion-2630721)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+
+编辑/校对/发稿：H.B
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

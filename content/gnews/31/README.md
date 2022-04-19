@@ -2,25 +2,26 @@
 ---
 
 
-## 新中国联邦乌克兰前线救援：战地蓝莲花系列之“走到哪里传播到哪里”
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2370744/)
+## 泽连斯基重申对俄罗斯核武器的警告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371134/)
 
-视频制作：多伦多蓝莲花视频组laocai
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)2022年4月，波兰、梅迪卡，新中国联邦乌克兰前线救援。
-**2022年4月波兰梅迪卡，新中国联邦乌克兰前线救援还在继续，前线战友日夜忙碌，不图名利，只为帮助拯救更多的乌克兰人民。**
+作者：雅典娜农场-小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+据国外媒体4月17日报道，乌克兰总统泽连斯基16日在接受乌克兰新闻媒体采访时说，世界应该为俄罗斯可能使用核武器做好准备。他认为俄罗斯人可能使用任何武器，并对此深信不疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-38.jpg)
+泽连斯基认为，乌克兰现在就需要抗辐射药物和防空洞，不应该等到俄罗斯决定使用核武器的那一刻再有反应。
 
-**他们除了把爱与关怀传播出去，还把”TAKE THE CHINESE COMMUNITST PARTY “的信念，带到了他们所能达到的任何一个地方**。
+该采访由六家乌克兰新闻网站进行了转播，乌克兰总统府也已在Telegram上播出。
 
-编撰：冰糖葫芦喵
+参考链接：[Zelenskyy repeats warning over Russian nuclear weapons](https://www.hindustantimes.com/world-news/zelensky-repeats-warning-over-russian-nuclear-weapons-101650140575233.html)
 
-视频文案：芙洛拉
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
