@@ -2,11 +2,11 @@
 ---
 
 
-## 一切都是刚刚开始
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2373842/)
+## 中共的末日将临
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2374302/)
 
 美国之音419断播门五周年特别直播20220419
-![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-27.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-31.png)
 *发布：Theodosia*
 
  

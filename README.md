@@ -15,122 +15,122 @@
 
 ---
 
-### [2022年4月19日文贵大直播摘要及音讯—银河系农场](/content/gnews/1/README.md)
+### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/1/README.md)
+ ` 日本東京方舟農場`
+
+### [樱花FM｜中共政府无法无天，美国令驻沪领馆非紧急人员撤离](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [4/19/2022【419五周年】五年前，没人相信咱能灭共；但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，中共内部很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [樱花FM｜邪恶的清零政策 真正的官僚杀人](/content/gnews/4/README.md)
+ ` 樱花FM`
+
+### [男人随意买彩票中了7000万](/content/gnews/5/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [2022年4月19日文贵大直播摘要及音讯—银河系农场](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五月花简报（04/19/2022）](/content/gnews/2/README.md)
+### [五月花简报（04/19/2022）](/content/gnews/7/README.md)
  ` mayflowertranslate`
 
-### [樱花FM┃俄乌大战即将开始，或升级为俄中欧全面战争](/content/gnews/3/README.md)
+### [樱花FM┃俄乌大战即将开始，或升级为俄中欧全面战争](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [樱花FM┃上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/4/README.md)
+### [樱花FM┃上海清零现连坐制：居民若拒转运 小区不解封](/content/gnews/9/README.md)
  ` 樱花FM`
 
-### [诗歌《山海经：祖孙三代》](/content/gnews/5/README.md)
+### [诗歌《山海经：祖孙三代》](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM┃有法治的社会才能减少“仇恨”](/content/gnews/6/README.md)
+### [樱花FM┃有法治的社会才能减少“仇恨”](/content/gnews/11/README.md)
  ` 樱花FM`
 
-### [樱花FM┃郭文贵先生2022年4月13日盖特视频（6分03秒）全文字版](/content/gnews/7/README.md)
+### [樱花FM┃郭文贵先生2022年4月13日盖特视频（6分03秒）全文字版](/content/gnews/12/README.md)
  ` 樱花FM`
 
-### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/8/README.md)
+### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花FM┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？](/content/gnews/9/README.md)
+### [樱花FM┃俄罗斯将10万名乌克兰人强制移居到西伯利亚和北极圈等地？](/content/gnews/14/README.md)
  ` 樱花FM`
 
-### [樱花FM┃避难的乌克兰人在旭川市](/content/gnews/10/README.md)
+### [樱花FM┃避难的乌克兰人在旭川市](/content/gnews/15/README.md)
  ` 樱花FM`
 
-### [樱花FM┃普京的目的就是灭绝乌克兰人](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/12/README.md)
+### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM┃中共工商银行通知，暂停个人外汇业务](/content/gnews/13/README.md)
- ` 樱花FM`
-
-### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/14/README.md)
+### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/15/README.md)
+### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.19 俄乌战事汇总](/content/gnews/16/README.md)
+### [截至4.19 俄乌战事汇总](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/17/README.md)
+### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/20/README.md)
  ` 蓝莲花农场`
 
-### [来自上海人的心声：跟着共产党走进火葬场](/content/gnews/18/README.md)
+### [来自上海人的心声：跟着共产党走进火葬场](/content/gnews/21/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/19/README.md)
+### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/20/README.md)
+### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/21/README.md)
+### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/22/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/23/README.md)
+### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯反对联合国对布查战争罪指控进行调查](/content/gnews/24/README.md)
+### [俄罗斯反对联合国对布查战争罪指控进行调查](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年4月19日:财经新闻整理](/content/gnews/25/README.md)
+### [新西兰财经G乐部2022年4月19日:财经新闻整理](/content/gnews/28/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [俄军向马里乌波尔钢铁厂部署特种部队&#8230;&#8230;东顿巴斯地区有5万名士兵（1/2）](/content/gnews/26/README.md)
+### [俄军向马里乌波尔钢铁厂部署特种部队&#8230;&#8230;东顿巴斯地区有5万名士兵（1/2）](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争升级后中共中长期外汇储备外流](/content/gnews/27/README.md)
+### [俄乌战争升级后中共中长期外汇储备外流](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [欧美陆续报道儿童罕见肝病](/content/gnews/28/README.md)
+### [泽连斯基与国际货币基金组织讨论乌克兰重建](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [泽连斯基与国际货币基金组织讨论乌克兰重建](/content/gnews/29/README.md)
- ` NFSC News`
-
-### [《避风港Haven》（第三十七期）直播内容精选](/content/gnews/30/README.md)
+### [《避风港Haven》（第三十七期）直播内容精选](/content/gnews/32/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [2022.4.19大直播：2017.4.19开启灭共大门 2022.4.19我们再续传奇](/content/gnews/31/README.md)
+### [2022.4.19大直播：2017.4.19开启灭共大门 2022.4.19我们再续传奇](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国军事机构与中共间谍机构的非正常关系](/content/gnews/32/README.md)
+### [美国军事机构与中共间谍机构的非正常关系](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [担心中共军事影响力，美国拟派团游说印太三国](/content/gnews/33/README.md)
+### [担心中共军事影响力，美国拟派团游说印太三国](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [从上海封城看习近平动态清零是奴役百姓的杀器](/content/gnews/34/README.md)
+### [从上海封城看习近平动态清零是奴役百姓的杀器](/content/gnews/36/README.md)
  ` 波士顿五月花农场`
 
-### [造谣和辟谣，是共产党愚弄人民的手段](/content/gnews/35/README.md)
+### [造谣和辟谣，是共产党愚弄人民的手段](/content/gnews/37/README.md)
  ` 波士顿五月花农场`
 
-### [中共的末日将临](/content/gnews/36/README.md)
+### [中共的末日将临](/content/gnews/38/README.md)
  ` MilesGuoLivePPT`
 
-### [郭文贵先生419美国之音断播门事件回顾](/content/gnews/37/README.md)
+### [郭文贵先生419美国之音断播门事件回顾](/content/gnews/39/README.md)
  ` NFSC News`
-
-### [一切都是刚刚开始](/content/gnews/38/README.md)
- ` MilesGuoLivePPT`
-
-### [中共的恐惧是我们的武器](/content/gnews/39/README.md)
- ` MilesGuoLivePPT`
 
 ### [中共的恐惧是我们的武器](/content/gnews/40/README.md)
  ` MilesGuoLivePPT`

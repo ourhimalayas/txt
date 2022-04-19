@@ -2,28 +2,68 @@
 ---
 
 
-## 樱花FM┃有法治的社会才能减少“仇恨”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2375943/)
+## 2022年4月19日文贵大直播摘要及音讯—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2376053/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2382.png)
-今天探讨“仇恨”一词。这是个非常复杂而又危险的词汇，如果处理不当会被扣上，宣扬仇恨鼓励暴力的帽子。之所以谈及“仇恨”是因为看到中共国内各种极端事件频发引起的思考。这个问题过于复杂，在这里只做简单的解析。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/419.png)
+视频连接：[419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑](https://gettr.com/streaming/p161dm5929a)
 
-孔子说“以德报怨，何以报德。”圣经里有关复仇的记载“以眼还眼，以牙还牙。”佛教也有“嗔恨”的说法。仇恨的来源与人与人之间的合作有关，付出与回报不平衡时就会被激发出来。仇恨有能够积累的特性，取决于个体的控制能力。西方有研究者对能够有效控制仇恨的人的观察发现，他们的前额叶皮质出现了激活反应。这个区域是有重要的推理和抑制行动的功能。所以我总有个臆想，在中国古代就总结出“天庭饱满”的人表现的更聪明些。
+1、419断播未爆的料：就是当时对中国最大的威胁王岐山。王岐山旧金山财富和瑞士银行账号、和华尔街的关系、刘呈杰的爹，这些料都没有爆；
 
-仇恨与憎恨不同，仇恨是发生在自己以及亲近人身上的不公正或伤害。憎恨来源于世界观，可以作为旁观者为当事人所受到的不公正或伤害而产生的同理心。显然，在面对不公正或伤害所产生的仇恨是不可避免的。幸好现在有法律和警察能够让我们把复仇的计划外包出去。但是在没有法治的地方或法律没有能够使复仇的计划达到预期的时候，就不得不凭个体的能力进行报复。八十年代，我的一个朋友被老板克扣工资并殴打，由于那个时间段他的生活极其贫困，决定复仇。因为长得瘦小，三年后才得手。那老板因前轮意外脱落掉进深沟落下终身残疾。关于复仇，最经典的还是以色列人“摩萨德”追捕二战战犯的传奇故事。
+2、如今，习近平比王岐山还变态，但是习近平现在仍未动王岐山的财富；
 
-综上所述，抑制仇恨是个极其艰难的事，实施报复似乎也理所当然。但是全世界的政客都把“仇恨”与暴力、极端联系在一起，并对其讳莫如深不敢谈及。究其原因是有“政治正确”的氛围的约束罢了。之所以产生这样的氛围与人民和政府之间的信任度有关，这可能是另一个话题。
+3、文贵先生的郭七条不反习，但是要灭了习。不想灭王岐山，灭了钱找不回来，傅政华孙力军必须灭。李斯赵高的综合体是孟建柱；
 
-2014年在面对国内民众合理抗议的时候，乌克兰的警察跪下向饱受伤害的人民道歉。如果普京注意到这点会不会有所顾忌呢？因为这预示着乌克兰必将强大。 最后要谈的是仇恨的发泄渠道。中国有“放下屠刀，立地成佛”的至理名言。这句话正确的解释应该是：拥有屠刀并具备杀戮的能力，却选择了不去杀戮，就有了佛心。这里隐藏着不公平。情理上，有能力的人曾经的杀戮需要取得那些被害人的原谅。如果被害人没有得到这个权利，他并不会屈服，就会重复上面的事情面向比他更弱势的人实施上述过程。
+4、爆料革命是否真正触动到体制内高官？他们骨子里是不会相信的，不会跟着爆料革命，只会利用爆料革命，但是俄乌战争 上海封城后，体制内发生了本质的变化；
 
-在中共国仇恨的种子埋藏在每个人都心里，社会上充满爆戾之气。因为没有法治为他们伸张正义，自己也没有实施复仇的能力，就会出现把这个压力释放到无辜的人或更弱小的人身上。当灾难来临的时候，自暴自弃的想法几乎体现在每个人心里。只有一个法治上公平的社会才能消除这些戾气，共产党的统治造成了没有法治的环境，所以消灭共产党才能彻底拯救中国人。
+5、王沪宁和社科院的几个人是马克思主义的拥护者，习近平选这几个人做高参，对西方的技术不惜一切代价要偷抢骗，金融上击毁美元；
 
-文字版原文：[有法治的社会才能减少“仇恨”](https://gnews.org/zh-hans/2342081/)
+6、习近平搬进毛泽东故居，第一顿饭，就是请的张玉凤；
 
-*编辑：东京樱花团/小老虎
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+7、默克尔秘密坐吴小晖私人飞机到北京和习近平会面；
+
+8、莫德尔周期：
+
+1 ）习近平深信不疑，他是上天派来的神 来统治世界的 ；
+
+2）国际政治的演变模式是循环的周期约为120年，习近平认为莫德尔120年的周期到了，自己就是主导世界霸主的人；
+
+9、中共把无人机卖给台湾。是国内战友冒死递出的情报；
+
+10、北京正在准备大隔离，一定是极限测试，计划要弄死一部分老人；
+
+11、上海阳性反应的绝大多数都是注射了mRNA的疫苗反应；
+
+12、孟建柱最后悔就是没把习近平干掉，怕干掉习中国会乱；
+
+13、台湾不抵抗，中共和美国都会把台湾打烂，习近平使用核武器都是有可能的；
+
+**注：大直播音讯正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
