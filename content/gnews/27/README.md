@@ -2,20 +2,20 @@
 ---
 
 
-## 樱花时政┃日本宣布向乌克兰提供化武防护口罩和无人机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371563/)
+## 喜马拉雅币一周分析与总结（4月11日-4月17日）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2371531/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-46.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.defensenews.com%2Fresizer%2F0Sl7_-pD8XfHInpt1wfxWhoVi0M%3D%2F1024x0%2Ffilters%3Aformat%28jpg%29%3Aquality%2870%29%2Fcloudfront-us-east-1.images.arcpublishing.com%2Fmco%2FEQ4ETP3LUJEEPJL5UAZKPNMKBU.jpg&amp;imgre)
-日本防卫大臣岸信介在4月19日的内阁会议上宣布，应乌克兰的请求，将向乌克兰提供防止化学武器的防护用口罩以及无人机等，一旦准备就绪，将由民用飞机来实施运输。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-119.png)图片来自喜交所网站
+过去一周，喜马雅币价格小幅回落至40美元左右，平均日交易量约9万枚喜币。喜币上市以来总交易量约3520万枚 ，占今年总发行量的仅约3.52%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
 
-日本政府此前曾根据《国防装备转让三原则》向乌克兰方面提供了防弹衣和防寒服。
+最近美国财政部长耶伦发表了针对数字资产的讲话，其讲话的主要重点体现出，美国政府对数字货币的监管政策与喜币的设计特征一一对应。本周二，比利时总理主动与新中国联邦战友合影，在外交上默认了新中国联邦消灭中国共产党的合法性。郭先生在盖特视频中透露，全球有越来越多的国家支持新中国联邦，未来喜币将成为全世界最流行、最早的数字法币。而人民币将在全世界被认定为犯罪的货币。
 
-信息源：[【速報】化学兵器対応の防護マスクやドローンなどをウクライナに提供へ　岸防衛大臣](https://news.yahoo.co.jp/articles/0cf09a074df49ba1035788bc87e381b58437c623#:~:text=%E3%83%88%E3%83)
+另外，喜联储主席William先生近日接受英国GB NEWS采访表示，加密货币的发展趋势不可阻挡，虽然目前各国政府对加密货币的监管越来越严格，但对行业整体发展是有利的。加密货币转账方便快捷，在俄乌战争救援中发挥了巨大作用，目前乌克兰已经收到了超过1亿美元的加密货币捐款。加密货币是人们逃离独裁统治压迫的重要手段，未来加密货币市场还会持续增长。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+参考链接：[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
+
+作者：拉丁 |编辑&发布：小蜜蜂
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

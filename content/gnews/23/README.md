@@ -2,27 +2,30 @@
 ---
 
 
-## 中共对美国精英的俘获战略是成功的
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2371733/)
+## 中日财经爆┃封城阻塞供应链 特斯拉上海工厂被迫继续推迟复产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371585/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-38.jpg)
-《Red-Handed: 美国精英如何帮助中国致富 》书的作者彼得-施韦泽说中共加入世贸组织改变了全球经济结构，这在很大程度上是因为它实现了该政权控制美国精英阶层的战略，这样他们就会听从北京的命令。施韦泽将这一战略称为 “精英俘获”，而中共的计划是针对大科技、娱乐、教育、华尔街以及政治的最高层。
+撰稿：东京樱花团/asket
 
-“这将使[中共]对他们[精英阶层]产生影响力，因为一旦[中共]某种程度上触动了他们，使他们变得富有，或者如一些中共官员所说，他们尝到了所提供的蜂蜜，他们就不会想把它还回去，不会想放弃它，”施韦泽说。
+特斯拉本周计划在上海重新复产，因 “供应商的物流问题 “而推迟。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-15.png)[图片来源](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
+整个周末，关于特斯拉上海工厂如何最终在未来几天重新开业的文章都被报道出来。例如，路透社报道说，该公司在关闭3周后，正在 “拼命 “重新开放其上海工厂。
 
-任何与中共国纠缠在一起做生意的人，如果需要他们的好感来继续经营，最后基本上都会按照中共的要求去做，因为如果他们不这样做，中共就会摧毁他们的生意。”
+支持特斯拉的博客electrek也报道说，特斯拉的目标是 “在被关闭大约三周后，于4月18日星期一重新开始生产，但错过了超过4万辆电动车的生产”。
 
-施韦泽说，人工智能（AI）是科技发展的一个重要领域，有人说，谁在那里占主导地位，谁就会拥有全球经济和军事优势。
+“为了准备重启，特斯拉已经将工人召回上海工厂，根据中国的’闭环管理’程序，他们将需要住在现场，”两位消息人士告诉路透社。
 
-“我们最大和最聪明的公司，如谷歌和微软，实际上正在资助中共国的研究实验室，这些实验室与中共军方有联系，所以他们正在帮助他们与我们竞争。” 他称这是 “非同寻常 “和 “令人不安的”。
+但是根据Street Insider周一早上的报道，重启的希望可能几乎一出现就破灭了。该公司正准备在周一重新开业，但由于 “供应商的物流问题”，被迫将重启时间推迟一天。
 
-马斯克在中共国做生意也带来了国安的风险，因为特斯拉在其汽车中使用的一些技术与他的公司发射卫星上使用的技术软件相同。
+与此同时，竞争对手大众汽车公司据说已经在中国重启了生产。报道称，通用汽车也在考虑本周重新开工的计划。
 
-作者把七哥曾说的蓝金黄手段的例子都一一的写出了。但愿更多美国人对中共更了解，并把中共和中国老百姓给区分开。
+同时，中国继续在全国部分地区扩大封锁，不仅在国内造成混乱，而且对美国等高度依赖进口中国商品的国家的供应链造成另一个冲击。
 
-**新闻来源**：[https://www.theepochtimes.com/beijings-elite-capture-strategy-was-a-success-peter-schweizer\_4407071.html](https://www.theepochtimes.com/beijings-elite-capture-strategy-was-a-success-peter-schweizer_4407071.html)
+信息来源：** **[**Tesla’s Planned Shanghai Reopening For This Week Pushed Back Due To “Logistics Problems With Supplier”**](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
 
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

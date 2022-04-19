@@ -2,56 +2,40 @@
 ---
 
 
-## 中日财经爆┃马斯克欲将推特董事会成员工资削减到0美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2372083/)
+## 95%新冠患者的生命可以被拯救
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2372185/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃马斯克欲将推特董事会成员工资削减到0美元.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fnews.yahoo.com%2Felon-musk-threatens-cut-twitter-173926265.html&amp;psig=AOvVaw1gOmHWUPQ8o91CDRn4vg62&amp;ust=1650431610616000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjhxqFwoTCMDl4IKvn_cCFQAAAAAdAAAAABAD) （视频截图）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-19-at-08-29-33-战鹰团-HimalayaHawkSquad-on-GETTR-Dr.-Peter-McCulloug.png)
+GETTR视频链接：[https://gettr.com/post/p15dcgpe47f](https://gettr.com/post/p15dcgpe47f)
 
-当特斯拉CEO埃隆-马斯克在4月4日透露他对Twitter进行了近30亿美元的投资时，没有多少人会预料到即将开始的肥皂剧。
+**视频字幕**
 
-在短短几周内，马斯克从决定是否加入推特的董事会，到发起430亿美元的全面收购，以获得该公司的控制权。
+Dr. Peter McCullough(麦卡洛博士)：当我2020年11月在美国参议院做证时，现在被任命为白宫新的COVID协调员的少数民族证人，一位来自东海岸的年轻人，他一直说：你没有足够的证据做这些。我本人从COVID中康复，在参议院我拿着我的治疗方案。我说，我不是征求许可的，我正在这么做，我是在请求帮助，因为我们需要所有的医生，所有的好医生行动起来，开始治疗疾病已减少生命损失。
 
-推特的董事会成员周五（4月15日）对这一提议做出了回应，采取了所谓的“毒丸”政策，旨在阻止这位亿万富翁企业家完成收购，或者至少使整个过程变得不那么顺利。该“毒丸”被正式称为有限期限的股东权利计划，如果马斯克的出价被接受，将允许目前的Twitter股东以折扣价购买股票。
+2020年11月，那时候我估计，我们可以拯救50%的生命，因为学习如何治疗新冠是要花时间的。2021年3月，我在德克萨斯中心作证，我说85%的生命本可以被拯救。然后最近，几个月前的1月，我说95%的死亡是可以避免的，而且很容易避免住院。100万美国人失去生命，可能有1000万人住院。如果我们在华盛顿的领导者能够召集专家们，让专家们自愿付出时间促成建设性的对话，其中95%的死亡是可以避免的。我非常高兴这样做，来帮助美国和世界渡过COVID-19困境。
 
-马斯克对这一举措并不满意。
+**简评：**
 
-周一，在回应一条认为Twitter董事会的利益与股东不一致的推文时，马斯克说，如果他能够收购该公司，他将把董事会成员的工资削减到0美元。
+美国心脏病学家麦卡洛博士表示，新冠爆发以来，医生们需要时间学习如何治疗新冠。到2020年11月，可以拯救50%的患者生命。到2021年3月，可以拯救85%的生命。到2022年1月，95%的死亡可以避免，而且很容易避免住院。如果华盛顿的领导者能够召集自愿付出时间的专家们促成建设性的对话，95%的死亡可以避免的。麦卡洛博士希望与所有的医生共同行动，减少生命损失，帮助美国和世界渡过COVID-19困境。
 
-**他写道：****“如果我的竞标成功，董事会的工资将为0美元，这样一来，每年就节省了约3****百万****美元”****。**
+在全球医疗独裁的笼罩下，新冠夺去了100万美国人的生命，可能有1000万人住院。本来这是可以避免的，这个世界的堕落比新冠病毒更可怕。
 
-马斯克关于董事会成员工资的推文是表明他最初的收购Twitter的竞标已经转变为对该公司的公投的另一个迹象。
+- *字幕：Vekap*
+- *听写：云岭*
+- *翻译：Roberts*
+- *PR：nights*
+- *简评/文字整理/编辑：胖丁*
 
-马斯克在最近几条推文中批评了董事会的低水平所有权。他在周六写道：”客观地说，他们的经济利益与股东根本不一致”。
 
-特斯拉CEO并不孤单。推特联合创始人杰克-多西(Jack Dorsey)也一直在表达他对公司董事会越来越反感。上周六，这位前首席执行官在回应风险投资公司Initialized Capital联合创始人Garry Tan的帖子时说，董事会 “一直是公司的功能障碍”，他描述了公司早期的 “阴谋和政变”。
+* * *
 
-多西还回应了一条引用风险投资家弗雷德-德斯坦对公司董事会的批评的推文。”好的董事会不会创造出好的公司，但坏的董事会每次都会杀死一家公司。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-“这是个突出的事实，”这位布洛克首席执行官写道。
 
-董事会采取毒丸的举动甚至导致马斯克公开质疑它是否应该参与决定谁能收购该公司的过程。
+编辑：【英国伦敦喜庄园编辑部】
 
-上周四，马斯克在推特上发布了一项民意调查称，”以54.2美元的价格将Twitter私有化应该由股东决定，而不是董事会？”
-
-高达83.5%的受访者说是，这说明在马斯克的忠实追随者中，反董事会的情绪越来越强烈。
-
-周一，这位亿万富翁暗示可能向推特股东发出招标，以回应他们直接购买股票的公开请求。这可能使马斯克绕过董事会不愿意出售公司的问题。
-
-Wedbush的丹-艾夫斯（Dan Ives）在本周末的一份说明中说，这只是 “马斯克和Twitter董事会之间的高赌注扑克游戏 “的又一举措，如果历史是任何指南的话，这场游戏可能持续18个月。
-
-信息来源：** **
-[**Elon Musk threatens to cut Twitter board members’ salaries to $0 as his takeover bid morphs into a referendum on the company**](https://finance.yahoo.com/news/elon-musk-threatens-cut-twitter-173926265.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

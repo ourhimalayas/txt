@@ -2,21 +2,41 @@
 ---
 
 
-## 视频|新中国联邦和法治基金乌克兰国际人道救援行动仍在继续
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2372010/)
+## 【图片新闻】俄罗斯对乌克兰战争发展：第53天
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2372131/)
 
-制作：香草山视频部
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+以下是俄乌战争进入第53天以来的最新进展：
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-截至4月16日，新中国联邦和法治基金乌克兰救援行动进入第43天。米蒂卡救援站当天共接待216人，累计救援总计约12204人。救援巴士共发车39次，巴士救援难民达2009人。
-新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。中国共产党是全世界灾难的根源，我们和乌克兰人站在一起。只有消灭中国共产党才能拯救全人类。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+- 乌克兰地方当局说，在俄罗斯军队连夜炮击多个地点时，哈尔科夫东北地区至少有3人丧生，30多人受伤。
+- 俄罗斯国防部发言人说，基辅附近的一家弹药厂被摧毁。
+- 俄罗斯则声称，其军队已经“彻底清理”关键城市马里乌波尔，只有少数乌克兰军队留在一家钢铁厂内。
+- 俄罗斯发出“最后通牒”，要求马里乌波尔的乌克兰军队从莫斯科时间早上6点（格林威治标准时间3:00）开始放下武器投降。
+- 乌克兰总统泽连斯基称：如果马里乌波尔的乌克兰士兵被打死，他将退出与俄罗斯的和平谈判。
+- 他还称马里乌波尔的局势“不人道”并敦促盟国为乌克兰军队提供更多武器。
 
-发稿：qiutian（邱甜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image014-3-scaled.jpg)4 月17 日，俄罗斯军方和亲俄分裂分子控制下的马里乌波尔地区的人们。照片：Leon Klein/Anadolu Agency via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image016-3-scaled.jpg)马里乌波尔附近的俄罗斯军队。照片：Leon Klein/Anadolu Agency via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image018-1-scaled.jpg)4 月 17 日，在俄罗斯军方和亲俄分裂分子控制下的马里乌波尔地区受损的建筑物。照片：Leon Klein/Anadolu Agency via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image020-2-scaled.jpg)马里乌波尔居民于 4 月 14 日。照片：维克多/新华社通过盖蒂图片社![](https://assets.gnews.org/wp-content/uploads/2022/04/image022-2-scaled.jpg)4 月 12 日，随着俄罗斯军队加强袭击，马里乌波尔的鸟瞰图。照片：安德烈博尔杜林/法新社通过盖蒂图片社![](https://assets.gnews.org/wp-content/uploads/2022/04/image025-1.jpg)4 月 12 日，人们沿着马里乌波尔街走。照片：Alexander Nemenov/AFP via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image026-1-scaled.jpg)这张上个月被炸毁的马里乌波尔剧院拍摄的照片显示了 4 月 12 日马里乌波尔的中央大街。照片：Alexander Nemenov/AFP via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image028-1.jpg)4 月 17 日，一名男子在乌克兰南部港口城市马里乌波尔 (Mariupol) 一座被毁的住宅楼附近行走。 (Alexander Ermochenko/路透社)![](https://assets.gnews.org/wp-content/uploads/2022/04/image030-1.jpg)4 月 17 日，在乌克兰军队重新控制该地区后，乌克兰基辅地区 Moshun 村的建筑物遭到炮击。照片：Metin Aktas/Anadolu Agency via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image032-2.jpg)4 月 17 日，乌克兰东南部马里乌波尔的车辆和建筑物受损。该市市长估计，在俄罗斯军队围攻该市期间，已有 10,000 多人死亡。照片：Leon Klein/Anadolu Agency via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/04/image034.jpg)随着俄罗斯对乌克兰的袭击仍在继续，在乌克兰哈尔科夫，在一座被毁坏的建筑物外是俄罗斯袭击烧毁的汽车 (路透)![](https://assets.gnews.org/wp-content/uploads/2022/04/image036.jpg)俄罗斯炮击哈尔科夫后，一栋被毁建筑物外被烧毁的汽车 (路透)![](https://assets.gnews.org/wp-content/uploads/2022/04/image038.jpg)2022年4月15日，乌克兰南部港口城市马里乌波尔，伊利奇钢铁厂的大门在乌俄冲突中受损 (路透)![](https://assets.gnews.org/wp-content/uploads/2022/04/image040.jpg)数百万乌克兰人离开他们的国家以逃避俄罗斯战争 (路透)![](https://assets.gnews.org/wp-content/uploads/2022/04/image042.jpg)俄罗斯轰炸首都基辅造成的破坏 (阿纳多卢通讯社)![](https://assets.gnews.org/wp-content/uploads/2022/04/image044.jpg)马里乌波尔已被俄罗斯军队和亲俄分裂武装分子围困数周时间 (法国媒体)![](https://assets.gnews.org/wp-content/uploads/2022/04/image046.jpg)顿巴斯前线的乌克兰战士 (阿纳多卢通讯社)![](https://assets.gnews.org/wp-content/uploads/2022/04/image048.jpg)在乌克兰哈尔科夫受到的一次火炮袭击之后，紧急救援人员将41岁的当地居民谢尔盖的尸体从其被摧毁的公寓中抬出 (路透社)![](https://assets.gnews.org/wp-content/uploads/2022/04/image050.jpg)尽管乌克兰人对他们国家的战争情景评估有所不同，但他们一致认为这场战争的胜利代价高昂 (阿纳多卢通讯社)![](https://assets.gnews.org/wp-content/uploads/2022/04/image052.jpg)教皇方济各呼吁世界领导人在“战争中的复活节”期间倾听和平的呼声，包括来自饱受冲突蹂躏的乌克兰的呼声。
+在梵蒂冈庆祝复活节弥撒后，教皇弗朗西斯在圣彼得广场的教皇专车上向信徒致意时，波兰和乌克兰国旗在人群中飘扬 (路透)
 
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+
+[【援引连结】](https://www.axios.com/photos-inside-mariupol-ukraine-russia-invasion-41072c89-73ab-4951-b881-f489505881d0.html)
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+
 
  
 

@@ -2,109 +2,44 @@
 ---
 
 
-## 中共强摘器官令人震惊的得到证实
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2371356/)
+## 揭秘湖南道县大屠杀
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2371346/)
 
-**前国务次卿基思·克拉奇：**
- “我们首次表明，移植外科医生是刽子手 —— 即处决方式是器官摘取。” – [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 强摘器官令人震惊的得到证实。 中共国政府怎么能在任何问题上值得信任？ 【转medscape·com 网：有证明显示，中共国外科医生在脑死亡前摘取器官】
-
+作者：香草山写作组—静言
 
 
-> “We have shown for the first time that the transplant surgeons are the executioners — that the mode of execution is organ procurement.” – Shocking confirmation of forced organ harvesting in China. How can the Chinese government be trusted on any issue? [https://t.co/ZtFEjfK0dV](https://t.co/ZtFEjfK0dV)
-> — Keith J. Krach (@KeithJKrach) [April 18, 2022](https://twitter.com/KeithJKrach/status/1516071601925767174?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-1.png)
+湖南道县大屠杀事件，指在中共文革期间，在湖南道县附近10余个县市发生的大规模屠杀事件。由当地政府包括县人武部，县委及县政府策划支持，当地各级行政机构包括县人武部、县委、公社、区武装部、大队村干部、民兵等实施的大屠杀，包括枪杀、刀砍、沉水、身上放火药炸死、活埋、暴力打死、勒死、火烧熏死、摔死未成年婴幼儿等各种极其残无人道的手段。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/23-210211132423257.jpg)图源网络
+
+据接触到有关1967年湖南道县及其周围大屠杀的机密资料者爆料，从1967年8月13日到10月17日，共有7696人被杀，1397人被逼自杀，2146人被致残。死者绝大部分是被中共政权划分为“地主、富农、反革命、坏分子和右派的反革命份子3576人，以及子女4057人，贫下中农1049人、其他411人；其中未成年人826人，年纪最大的78岁，最小的10天，14000多人直接参与了这场大屠杀。然而十年，二十年以至三十年过去了，中共对此一直惊人地保持着沉默，似乎什么都没发生，一切只不过是一个遥远的传说。 有个事实可以证明此大屠杀之惨烈，1967年，商贩发现附近河里的鱼变得异常肥大，且经常有十几斤大的鱼翻白浮在水面上，原来这些鱼吃人肉撑死了。
+
+官方提供的材料记载，当地一个武器库被抢，一个农民和一个工人被杀，由此开始了“人民”和“反革命”的血战。也有一种分析，贫下中农起来进行第二次土改，保卫红色政权等。可据调查发现，被杀的9000多人里没有一个人是所谓“反革命”，没有一个人参加过所谓的“反革命”活动，也没有一个人反抗和为自己辩白。
+
+据民间记载，大屠杀刚开始，当地农场厕所里发现了一块毛主席语录牌，这在当时可是反革命恶攻伟大领袖的大罪。最后把犯人锁定在一农场医生11岁儿子身上，革命群众推理一定是“反革命”教唆儿子做的，群众决定把一家五口处死。自此杀开之后，当地便进入了一种不论男女老幼，不分亲红皂白，想杀就杀，想怎么杀就怎么杀的疯狂境地。有的在家装了有线收音机，被怀疑是搞特务活动的电台，有大队干部打漂亮女孩的主意遭到拒绝，便趁此大乱的机会诬告其是反革命组织头头， 与美蒋特务联系，企图搞军事暴动等等，据其中任何一条就能判人死罪。
+
+中共继承商鞅五术，发展出“枫桥经验”，利用基础政权，煽动策划和组织利用贫下中农协会与基干民兵队伍，对所谓四类分子及其子女进行大规模无差别杀戮。今天中共的防疫管控中“大白”对老百姓的残忍打压，为应对即将到来的国际制裁，经济困境，粮食饥荒，与社会动乱，中共必定延续它惯于利用群众斗群众的手段。这是独裁极权制度的结果，不但将其臣民变成刽子手的帮凶，而且直接把他们变成了刽子手。
+
+参考来源：
+1.[道县事件](https://zh.m.wikipedia.org/wiki/道县事件)
+2.[公元一九六七年夏末秋初湖南道县农村大屠杀纪实](http://ywang.uchicago.edu/history/daoxiandiaoca.htm)
+3.[发生在湖南道县的那场大屠杀](https://cn.nytimes.com/culture/20121108/cc08jiangfangzhou/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-14.jpg)
+
+编辑/校对/发稿：兰兰
+
+更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-1.png)
 
-**众议员马乔里·泰勒·格林： **
-民主党和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 热爱新冠。全都利用新冠突发事件当作他们 [#共产主义](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89) 风格的政策失败的借口。并不是新冠封锁在伤害 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD)，而是多年来为了刺激经济的巨大超支，制造了巨大的问题。但他们隐藏了这个原因。听起来是不是很相似？
-
-
-
-> Dems & China love covid🥰
-> 
-> Both use covid flare-ups as the excuse for their communist style policy failures.
-> 
-> It’s not covid lockdowns hurting China, it’s the years of massive overspending to inflate their economy that created BIG problems.
-> 
-> But they hide it.
-> 
-> Sound familiar?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1516046883214749698?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-在 [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 的帮助下，资金雄厚、运作复杂的贩毒集团，正在利用我们的移民政策，从贩毒和贩卖人口中赚取数十亿美元 —— 而拜登政府和大型媒体却对此置之不理。 【附华盛顿监察员网登载哈格蒂议员的文章：拜登的边境疏忽造成了国家安全和毒品危机】
-
-
-
-> Well-financed, operationally sophisticated drug cartels, with the help of the Chinese Communist Party, are exploiting our immigration policies to make billions from drug & human trafficking—and it's being ignored by the Biden Admin & the corporate media. [https://t.co/kJoWHLfK7z](https://t.co/kJoWHLfK7z)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 18, 2022](https://twitter.com/SenatorHagerty/status/1516128176467898368?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-随着第42条的结束，我确信 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 现在正在增加芬太尼的生产以运往墨西哥。墨西哥贩毒集团正在崛起。将有大量非法毒品涌入边境。 拜登总统@POTUS的这个错误将产生毁灭性的后果。
-
-
-
-> With Title 42 set to end, I'm sure the CCP is ramping up fentanyl production right now to ship to Mexico. The Mexican cartels are ramping up. There's going to be a flood of illegal drugs coming across the border.
-> 
-> This mistake by [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will have devastating consequences.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 19, 2022](https://twitter.com/SenatorHagerty/status/1516218773375700994?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室：** 
-霍利议员的法案“是在拜登政府批准向 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 提供 9500 万美元的武器计划后几天提出的，这是近几个月来的第二次，以帮助保卫台湾免遭 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的入侵。” 【转华盛顿自由灯塔报：霍利：美国必须“尽快”武装台湾 在美国批准武器计划后，中共国警告“灾难”即将来临】
-
-
-
-> Sen. Hawley’s bill “comes just days after the Biden administration approved a $95 million arms package to Taiwan, the second in recent months, to help defend the territory from a Chinese incursion."[https://t.co/rn4lBnUFLA](https://t.co/rn4lBnUFLA)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 18, 2022](https://twitter.com/SenHawleyPress/status/1516094493270974471?ref_src=twsrc%5Etfw)
-
-
-
-**美国务院发言人内德·普莱斯：** 
-美国祝贺台湾民主活动家李明哲获释和回归，他因倡导人权而在 [#中华人民共和国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD) 监狱被不公正关押五年。
-
-
-
-> The United States celebrates the release and homecoming of Taiwanese democracy activist Lee Ming-che after five years of unjust detainment in a People's Republic of China prison for human rights advocacy.
-> — Ned Price (@StateDeptSpox) [April 18, 2022](https://twitter.com/StateDeptSpox/status/1516111792317026314?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹： **
-暴虐的 #中共病毒 强制令需要结束！ 
-我长期以来一直支持结束对公共交通的强制口罩指令，我将继续战斗，直到这些指令永远消失。 【附美国国家电视台新闻：佛罗里达的一个联邦法官判定在飞机、火车、巴士及其他公共交通工具上实行的联邦口罩强制令非法】
-
-
-
-> The tyrannical COVID mandates need to end!
-> 
-> I’ve long supported an end to mask mandates on public transportation and I will continue to fight until these mandates are gone for good. [https://t.co/plrFK1mpcY](https://t.co/plrFK1mpcY)
-> — Senator Ted Cruz (@SenTedCruz) [April 19, 2022](https://twitter.com/SenTedCruz/status/1516205514945925125?ref_src=twsrc%5Etfw)
-
-
-
-**众议员布赖恩·马斯特: **
-**🚨**胜利了！佛罗里达州联邦中区地方法院驳回了疾病预防控制中心在飞机上的违宪的强制口罩要求。立即生效，这意味着航空公司将结束他们的口罩强制！让佛罗里达州为全国的自由铺平道路！
-
-
-
-> 🚨 Victory! The federal Middle District of Florida district court has struck down the CDC’s unconstitutional mask mandate on planes. That means airlines are ending their mandates effectively IMMEDIATELY! Leave it to Florida to pave the way for freedom across the country!
-> — Rep. Brian Mast (@RepBrianMast) [April 19, 2022](https://twitter.com/RepBrianMast/status/1516218105067974656?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院：** 
-普京的发言人德米特里·佩斯科夫在掩盖克里姆林宫最可怕的暴行的宣传和虚假信息活动中发挥了关键作用，包括使用化学武器和军事打击杀害平民。在这里了解更多信息：
-
-
-
-> Putin's spokesperson Dmitri Peskov has played a key role in propaganda and disinformation campaigns to cover up the Kremlin’s most horrific abuses including the use of chemical weapons and military strikes killing civilians. Learn more here: [https://t.co/8k3cLgLAk0](https://t.co/8k3cLgLAk0)
-> — Department of State (@StateDept) [April 19, 2022](https://twitter.com/StateDept/status/1516221280906670080?ref_src=twsrc%5Etfw)
 
 
 
