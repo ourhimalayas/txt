@@ -2,52 +2,64 @@
 ---
 
 
-## 梅迪卡营地新中国联邦主张深入人心
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372750/)
+## 方舱医院有人要跳楼,现场大白首先做的是阻止拍摄现场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2372904/)
 
-作者：奮鬥
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本-2.png)
+据[**野山**@naochashu](https://twitter.com/naochashu?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1516332197027803139%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fwp-admin%2Fpost.php%3Fpost%3D2369992action%3Dedit)于[4:25 PM · Apr 19, 2022](https://twitter.com/naochashu/status/1516332197027803139?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1516332197027803139%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fwp-admin%2Fpost.php%3Fpost%3D2369992action%3Dedit)发布的推文——
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/PPT-4.jpg)图片来源：前方记者猫本小哥
+方舱医院有人“跳楼”
 
 
-在墙内，中共决定了民众可以听到什么，或者说什么话。现在传到墙外能够让世界听到，一般都是对中共执政的溢美之词。如果想听不同的声音，听到真实的声音，一定要在远离中共控制的地方。
 
-在遥远的波兰前线边境口岸梅迪卡小镇，有一群新中国联邦人，他们来自世界各地，在帐篷里接待和帮助乌克兰难民，他们发出内心真实的声音：消灭中国共产党！让中国人得到真正的法治、民主、自由。
+> 方舱医院有人“跳楼” [pic.twitter.com/qhxRBfzINt](https://t.co/qhxRBfzINt)
+> — 野山🎗 (@naochashu) [April 19, 2022](https://twitter.com/naochashu/status/1516332197027803139?ref_src=twsrc%5Etfw)
 
-除了华人，在新中国联邦同样汇聚了不同国籍、不同肤色的人们，因为大家都着有共同信念。同时，在自由世界里，很多国家和地区的人们越来越看清中共的邪恶行径。越来越多地选择与新中国联邦人站在一起。
 
-一位叫Liberty的西人男士，他的妻子是华人。4月18日在梅迪卡救援中心里，Liberty先生作为新中国联邦记者对Pavo（帕沃）先生做了采访，帕沃先生为来自西班牙的小丑演出团体做翻译。
 
-在采访的过程中，Liberty表明了虽然自己不是中国人，但内心非常认可追求法治、民主、自由的中国人，并愿意为他们而战，要更广地传播真实中国人被压迫不能发声的真相。以下是一些精彩片段：
+**拍摄者：**方舱里有人要跳楼，就这种糟糕的环境终于有人承受不住了，性格像我这样的泼捍的去跟他们闹，然后性格懦弱又受不了现实的，就选择这种方法，把人忽悠进来，又什么都不给人家，女的没卫生巾、没内裤换，男的没厕纸用，有人在跟他说，你下来没有人会抓你。他不肯下来，他说我下来要被人抓走的。
 
-在谈到关于自己对新中国联邦理解的时候，Liberty先生说：
+（对阻止拍摄的大白说：）你们要有人去跟他谈判，问他有什么诉求。
 
-“事实上，**我们想推翻中共，我们想把中国人民从中国共产党手中解放出来，因为他们是跨国黑手党组织，渗透到世界各地，**也许你也知道。”
+**大白：**哎呀，你不用拍了呀，你拍有什么用呀？
 
-“所以这是我们的主要目标。当然，我们在这里最重要的目标是人道主义救援。你可以注意到，这里看不到中共的任何影子。他们甚至都没有（主动）出手帮助自己的国民。”
+**拍摄者：**那你们在这儿有什么用呀？你不让我拍有什么用啊？
 
-相反，**我们在这里向国际社会表明，我们的组织（新中国联邦），想要取代中国共产党。我们希望中国与国际社会和谐相处，在国际规则和标准下民主地生活。**
+**大白们：**不要拍，哎呀别拍了，你不要给他们添乱了。
 
-当谈到自己如何结缘并认可新中国联邦时，Liberty先生说到：
+**拍摄者：**不是我添乱，要上去一个人，需要有人上去跟他谈判，你们轻一点，要有人上去好声好气跟他说，要问清楚他要什么。你厉害，你声音太吵了，他怕的，你们越是哇啦哇啦，他越是怕，要温柔地跟他说。
 
-（虽然）我不是中国人，但在内心和精神上我是的，**我的妻子是中国人。我与这个组织的创始人（郭文贵）有交集，至少在2017年听了他的爆料。这是他的简短故事。他和他的兄弟在1989年去了天安门广场**。
+**大白：**你不用拍了呀。
 
-你可能听说过天安门广场。他经历了1989年，大家都知道是这一年。他的兄弟不幸被中共政权杀害，而他被关进监狱两年，受尽折磨。所以这就是他寻求推翻中国共产党的起源，也是推动全球这场运动的原因。
+**拍摄者：**去，去看他，管我们干什么呀？
 
-接受采访的的帕沃先生，对能在梅迪卡救援营地遇到反共的新中国联邦团体感到惊讶。他回应道：
+**大白：**你不要拍了呀，你拍有什么用呀？
 
-我在一个小丑演出团队当翻译，我们正在巡回演出，在波兰尽可能多地接触儿童。
+**拍摄者：**好像你们在这儿又有什么用一样的，你们有用的话，他怎么会想要爬那么高不肯下来。那么多天，那么多天，不关心，不关心他，就很冷漠地对待他，只知道把人抓进来，就没人去关心一下每个人的诉求，人家不闹就不问，就装傻，这个时候怕丢脸了？
 
-（以前）只听说过共产党，从没有听说过有（共产党的）反对派。现在政治上的局势非常紧张……因为你可以在全球范围内找到你（新中国联邦）的支持者，不仅在当地。我知道中国共产党是什么（货色），当然！
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
-视频来源：前方记者猫本小哥
- 发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

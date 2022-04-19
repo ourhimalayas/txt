@@ -2,38 +2,23 @@
 ---
 
 
-## 俄罗斯要求乌克兰军队在中午前交出 Azovstal 工厂
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373058/)
+## 俄罗斯在哈尔科夫造成26名儿童死亡，81名儿童受伤
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2373119/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：雄起（酷翻组）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3.png)
+据乌克兰某地区检察院新闻处报道，截至4月17日，俄罗斯联邦在哈尔科夫地区的武装侵略，导致26名儿童被杀害，另有81名儿童受伤。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+由于俄罗斯联邦武装部队的定期轰炸和炮击，哈尔科夫有182个教育机构遭到破坏，其中包括91所学校，78所幼儿园，10个校外教育机构，3个教育部门的建筑物，1所学校和3所幼儿园被完全摧毁。在该地区的领土上，由于炮击，37个教育机构被损坏，包括21所学校，16个学前教育机构。至少有三所学校和一所幼儿园被完全摧毁。
+
+执法人员继续收集和记录俄罗斯侵略者犯下的战争罪行的证据。
+
+原文链接：[Due to armed aggression of Russia in Kharkiv region, 26 children killed, 81 injured – prosecutor’s office](https://en.interfax.com.ua/news/general/824879.html)
+
+审核校对：Barry Jack
+上传排版：F
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ELTJ2HX5WJOL7I7X5UOYPUORIU.jpg)
-
-
-资料来源：路透社
-
-路透社 4 月 19 日（路透社） – 俄罗斯周二呼吁躲藏在乌克兰港口城市马里乌波尔的 Azovstal 冶金厂的乌克兰军队和外国武装分子，如果他们想活下去，请在莫斯科时间中午（格林威治标准时间 0900）之前放下武器。
-
-被俄罗斯军队包围数周的马里乌波尔经历了自俄罗斯于 2 月 24 日向乌克兰派兵以来最激烈的战斗和最全面的破坏。
-
-乌克兰当局周一表示，不少于 1,000 名平民躲在巨大的 Azovstal 工厂下方的地下避难所中，并补充说，俄罗斯正在向被围困城市的乌克兰控制的工厂投掷重型炸弹。
-
-俄罗斯国防部周二发表声明，呼吁乌克兰军队和境内的外国武装人员投降。
-
-国防部说：“所有放下武器的人都保证活着。”
-
-它呼吁军队在莫斯科时间 1400 至 1600 年间“无一例外，不带任何武器和弹药”从钢铁厂撤出。
-
-周二早些时候，俄罗斯支持的分离主义势力表示，他们正试图袭击亚速斯塔尔钢铁厂并尽快控制它。
-
-简评: 俄罗斯给乌克兰守护在马里乌波里的钢厂里的军队和平民发出了最后通牒， 要求他们放下武器， 才能活命。 我们在过去的50天已经看到了， 乌克兰的坚强抵抗和乌克兰军队的英勇， 他们一定不会交出武器的。
-
-🔗[https://www.reuters.com/world/europe/russia-tells-ukrainian-forces-surrender-azovstal-plant-by-noon-2022-04-19/](https://www.reuters.com/world/europe/russia-tells-ukrainian-forces-surrender-azovstal-plant-by-noon-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
 
  
 

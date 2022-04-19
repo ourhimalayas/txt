@@ -2,25 +2,29 @@
 ---
 
 
-## 蔡英文表示台湾坚守主权与民主的决心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371136/)
+## 俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2371564/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据4月16日台湾媒体消息，台湾总统蔡英文及副总统赖清德，当天以录像方式向“第11届海内外台湾国是会议”致辞，表达了台湾坚守主权与民主的立场。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-40.jpg)
-蔡英文说，本次大会的主题是维护台湾主权、联合印太同盟。在俄乌战争中，民主国家面对独裁国家威胁，在关心乌克兰的同时也高度关注台海局势。而台湾的立场就是坚持守护主权和民主，与理念相近的国家站在一起，互相协助、贡献自己的力量。近年来台湾各方面发展良好，有越来越多的国家在为台湾发声，支持台湾参与国际组织，相信台湾的未来一定会更好。
+**图/文｜CP**
+**发布时间｜19/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜美國鬆口-稱正研究將俄羅斯列為「恐怖主義支持國」.jpg)
 
-副总统赖清德表示，许多民主国家的峰会，包括G7、美日、美欧高峰会等，都将台海和平稳定列入了正式档当中。美国政府对台湾提出的各种法案，拜登总统特使团及前国务卿彭佩奥来访，都表达了对台湾的坚定支持。而台湾会确保自己的的前途将由台湾人民来决定，避免成为第二个乌克兰。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-参考链接：[從俄烏戰爭看台灣 總統：台灣堅守主權與民主](https://www.rti.org.tw/news/view/id/2130195)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+美国国务院发言人普萨基（Ned Price）18日接受媒体采访时表示，美国正在仔细研究将俄罗斯列为“恐怖主义支持国”的相关事实与法律规定。另有华府高级官员亦指称，美国国务院正在“寻找一切可用的方法”让俄罗斯为俄乌战争负责，包括可能将俄罗斯列为恐怖主义支持国，不过，最终决定可能需要数周时间才能达成。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+根据美国国务院的定义，恐怖主义支持国是指“一再为国际恐怖主义行为提供支持”的国家。自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支持国”。
+
+早前，有报导引述消息人士透露，乌克兰总统泽连斯基（Volodymyr Zelensky）在最近一次与美国总统拜登（Joe Biden）的通话中，请求美国将俄罗斯列为“恐怖主义支持国”，以加大国际社会对俄罗斯的谴责力度。不过，当时拜登并未就该请求作出承诺或采取具体行动，只表示愿意探讨一系列的建议。
+
+报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支持国”，意味着美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+
+來源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-new-04-18-22/h_379c2d3bc66d542de9433f5de32fc712)、[GNEWS](https://gnews.org/zh-hant/2356330/)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

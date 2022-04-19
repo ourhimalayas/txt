@@ -2,25 +2,27 @@
 ---
 
 
-## 泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371135/)
+## 台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2371473/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据多家媒体报导，4月16日，俄罗斯再度空袭基辅，并加强了对马里乌波尔的进攻。乌克兰总统泽连斯基发出警告，如果马里乌波尔最后一批守军阵亡，将会终止俄乌和谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-39.jpg)
-尽管俄罗斯对外宣称已经攻占马里乌波尔，但事实上当地乌军仍然在坚守一座炼钢厂。俄国防部发言人科纳申科夫称，乌军只有缴械投降才能免于被消灭。泽连斯基则明确警告，马里乌波尔的守军如果阵亡，将会摧毁本就陷入僵局的俄乌和谈。
+**港台前线 zhong｜2022-4-19**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-4.png)
+郭文贵于16日直播爆料，乌克兰将有大变化，上海将有重大政策，**下周美国将会对台湾有一系列的政策**。近日，台湾成为国际宠儿，外交关系上有所突破。
 
-在接受采访时，泽连斯基坚定地表示，不会拿国家领土和人民的生命作为谈判的筹码。
+台湾16日举行“海内外台湾国是会议”，美国前白宫顾问波顿（John Bolton）以录影方式参加，他与日本前首相安倍晋三皆呼吁美国应抛弃过去40年来对台的战略模糊政策，波顿更认为美军重新驻守台湾将符合美台双方利益。此外，总统蔡英文、副总统赖清德宣示“誓守台湾、避免台湾成为第二个乌克兰”等语，激起中共的愤怒。
 
-参考链接：[Ukraine-Russia peace talks will end if Moscow ‘eliminates’ Mariupol fighters](https://amp.theguardian.com/world/2022/apr/17/ukraine-russia-peace-talks-will-end-if-moscow-eliminates-mariupol-fighters-says-zelenskiy)
+国台办发言人马晓光4月18日应询表示，台湾是全中国人民的台湾，台湾的前途由全体中国人民共同决定，并强调民进党当局乞怜、勾结外部势力谋“独”，历史将会重演，直指谋独失败为历史铁律。中共已开始将国际的支持，抹黑为台湾谋独，为攻台进行铺垫。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+郭文贵于直播陆续透漏，中共已执行“台湾之子”行动，将有计划的通过供水、供电、运输及网路问题引起社会动乱，并通过卖台贼擅自代表台湾人民向中共喊话，希望中共接管台湾，为中共攻台制造理由并排除国际介入可能。此外，他还强调中共在上海、北京、广东等地实施压力测试的封控政策后，紧接着可能就是对台行动，预计会在5月发生。.
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+值得注意的是，安倍晋三及美国前白宫顾问波顿皆强调，台海战争必须在发生前阻止，对照上海目前面对的人道灾难，多国驻上海领事馆工作人员受封控断粮，再受到上海居民无私协助才解决断粮困境的前提，台海若发生战事国际社会是否会“即时”介入仍有疑问，只有台湾人可代表台湾人，台湾应自强。
+
+来源｜东方网
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,49 +2,58 @@
 ---
 
 
-## MetaMask警告说，iCloud用户可能面临失去资产的危险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372264/)
+## 民生集萃——疫情导致实体经济低迷（2022.4.19A）&#8211;奈雪的茶裁员
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372640/)
 
-翻译：文扬
-编辑：李易通
+#### 雅典娜情报组《民生灾难收集专栏》
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2310.png)图片来源：CoinGeek
+**整理/编辑：BENJ1**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-6.png)图片来源：雅典娜设计组(614)
 
 
-流行的数字货币钱包MetaMask警告用户，苹果的云存储存在安全漏洞。这些警告是在过去几天推特（Twitter）上出现被盗资金报告时发出的。
+#### 【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-事实证明，科技巨头苹果公司认为可以帮助MetaMask用户保存密码或时间的东西，可能是一个危及个人数字资产的安全漏洞。
+#  
 
-ConsenSys支持的数字货币钱包在推特上解释说，“应用数据的 iCloud备份”还将存储“您的密码加密的MetaMask保险库”的凭据
+### 帖子原文：
 
-“如果你的[iCloud]密码不够强大，而有人盗用你的iCloud凭证，这可能意味着资金被盗”，MetaMask周日在推特上说。
+#### 博主：Beihai cat.
 
-简单的缺陷导致了巨大的损失
+奈雪的茶
 
-此外，当一个名为“revive\_dom”的用户报告损失了6个不可伪造的代币（NFT），包括3个突变猿游艇俱乐部（MAYC）的收藏品，以及价值超过25万美元的猿币（APE）时，该数字货币钱包提供商在同一推特主题中指导用户关闭自动数据备份。
+奈雪的茶裁员啦
+而且是不通知那种
+直接变相不排班，让你上不了班（一周会上几天）
+恶心#奈雪的茶新品 #奈雪的茶 #又又又裁员了 #工作 #裁员
 
-根据DAPE和Sentinel创始人Serpent的说法，被盗的数字收藏品价值132.86以太坊（402980美元），被盗数字资产的总金额达到大约65万美元以上。
+评论选集：
+玖. 回复：
+是快倒闭了吗？奈雪的领导门槛好底 什么人都可以上，黑幕也多
 
-根据Serpent的说法，这个骗局是一种网络钓鱼攻击。 首先，欺诈者提出了几次密码重置请求，“以使受害者产生怀疑”。 在“来电显示欺骗者”的帮助下，诈骗者打电话给他们的猎物，声称是Apple客户服务，同时要求提供双因素认证（2FA）代码。
+养生小李 回复：
+我们也是，企微啥的都登陆不了。变相逼着我们自离！
 
-在获得2FA验证码后，钓鱼者能够控制受害者的iCloud账户，该账户有用户的MetaMask钱包密码。
+ヾ小諾 回复：
+想知道这有什么套路吗？最近全职离职最后一个月要转兼职。然后补12天工资
 
-行业中的黑客和诈骗
+Beihai cat.(作者) 回复 ：: 
+不让你上班，然后说给你15天赔偿，变相把赔偿金压低下来，减少损失。（劳动法满6个月以上不及一年按一年计算） 这样他就不用给那么多金额，而且把人开了可以减少人力资源。
 
-随着过去一年数字货币的兴起，诈骗和盗窃案也随之上升。一些黑客盗取了价值数亿美元的虚拟货币，导致仅在2021年就有超过140亿美元被盗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-59.png)图片来源：小红书
 
-根据CNBC的报告，去年的数字盗窃案比2020年上升了516%。另一方面，今年的情况也不是很好，因为黑客已经窃取了超过10亿美元的资金。
 
-根据雅虎财经的报告，2022年第一季度，骗子从数字货币投资者那里掠夺了12.2亿美元。大部分资金来自虫洞（Wormhole）3.25亿美元，以及罗宁桥（Ronin Bridge）6.15亿美元的黑客。
+参考链接:[奈雪的茶裁员](http://xhslink.com/VuI7Mg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
 
-原文链接： [iCloud users might be in danger losing their assets, MetaMask warns – CoinGeek](https://coingeek.com/icloud-users-might-be-in-danger-losing-their-assets-metamask-warns/)
+*发布：*文武全才
 
-发布：tianzhihuan
-
-更多资讯，请关注：
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
 
  
 

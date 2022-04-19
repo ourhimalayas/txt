@@ -2,27 +2,34 @@
 ---
 
 
-## 中共对美国精英的俘获战略是成功的
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2371733/)
+## 中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371902/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-38.jpg)
-《Red-Handed: 美国精英如何帮助中国致富 》书的作者彼得-施韦泽说中共加入世贸组织改变了全球经济结构，这在很大程度上是因为它实现了该政权控制美国精英阶层的战略，这样他们就会听从北京的命令。施韦泽将这一战略称为 “精英俘获”，而中共的计划是针对大科技、娱乐、教育、华尔街以及政治的最高层。
+撰稿：东京樱花团/asket
 
-“这将使[中共]对他们[精英阶层]产生影响力，因为一旦[中共]某种程度上触动了他们，使他们变得富有，或者如一些中共官员所说，他们尝到了所提供的蜂蜜，他们就不会想把它还回去，不会想放弃它，”施韦泽说。
+玉米十年来首次超过每蒲式耳8美元，原因是担心短缺。由于投资者担心供应减少，各种因素的结合使芝加哥的玉米期货达到十年来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fres.cloudinary.com%2Fgro-intelligence%2Fimage%2Fupload%2Fv1642021031%2Fnew-website%2Fcorn_Jan12_877a813691.jpg&amp;imgrefurl=https%3A%2F%2Fgro-intelligence.com%2Finsights%2Fusda-confirms-gro-s-forecasts-for)
+自2012年9月以来，玉米期货一直没有超过每蒲式耳8美元。当年，美国中西部地区发生了毁灭性的干旱，农作物受损。现在供应风险卷土重来，但原因完全不同。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-8.png)[图片来源](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+自俄罗斯在2月底开始入侵乌克兰以来，全球玉米供应前景急剧下降。这个饱受战争摧残的国家供应着全球五分之一的玉米，今年的产量可能会下降50%。
 
-任何与中共国纠缠在一起做生意的人，如果需要他们的好感来继续经营，最后基本上都会按照中共的要求去做，因为如果他们不这样做，中共就会摧毁他们的生意。”
+飙升的化肥成本迫使美国的一些农民在这个种植季节增加大豆的种植，而不是玉米，因为这种作物需要的养分较少。
 
-施韦泽说，人工智能（AI）是科技发展的一个重要领域，有人说，谁在那里占主导地位，谁就会拥有全球经济和军事优势。
+由于天然气成本上升和俄罗斯限制向 “不友好 “国家出口化肥，化肥价格达到了历史最高点。俄罗斯是全球最大的出口国之一 — 美国恰好是来自俄罗斯的氮肥和钾肥的大进口国。
 
-“我们最大和最聪明的公司，如谷歌和微软，实际上正在资助中共国的研究实验室，这些实验室与中共军方有联系，所以他们正在帮助他们与我们竞争。” 他称这是 “非同寻常 “和 “令人不安的”。
+而将玉米价格推向天际的最新情况是，拜登政府上周宣布采取紧急措施，扩大生物燃料销售，以遏制飙升的汽油价格。此举的问题在于，乙醇行业吸收了更大份额的玉米作物，这将遏制对粮食行业的供应。因此，最终会提高玉米价格。
 
-马斯克在中共国做生意也带来了国安的风险，因为特斯拉在其汽车中使用的一些技术与他的公司发射卫星上使用的技术软件相同。
+这种情形正在发生，因为3月份全球食品价格月度跃升了惊人的12.64%—几乎是之前月度激增记录的两倍！
 
-作者把七哥曾说的蓝金黄手段的例子都一一的写出了。但愿更多美国人对中共更了解，并把中共和中国老百姓给区分开。
+全球食品价格已经超过了仅在2010/11年通货膨胀暴乱期间（被称为 “阿拉伯之春”）出现的水平。
 
-**新闻来源**：[https://www.theepochtimes.com/beijings-elite-capture-strategy-was-a-success-peter-schweizer\_4407071.html](https://www.theepochtimes.com/beijings-elite-capture-strategy-was-a-success-peter-schweizer_4407071.html)
+投资者似乎正在对玉米短缺进行定价。现在是开始种植自己的花园的最好时机。
 
+信息来源：** **[**Corn Exceeds $8 A Bushel For First Time In Decade On Shortage Fears**](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

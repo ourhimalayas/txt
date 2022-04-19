@@ -2,16 +2,18 @@
 ---
 
 
-## 乌克兰称被击沉莫斯科号舰长在爆炸中丧生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371133/)
+## 泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371135/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月16日外媒报导，乌克兰内政部顾问安东·格拉申科在15日宣布，被击沉的莫斯科号导弹巡洋舰的舰长、44 岁的一等舰长长安东·库普林，死于莫斯科号的爆炸和火灾之中。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-37.jpg)
-但俄罗斯方面并没有立即确认安东·库普林的死讯，对莫斯科号其他船员的伤亡情况也没有公布，只声称船员已被疏散。事实上，自俄乌战争开打以来，俄罗斯一直没有公开证实过本国重要军事人员阵亡的详细情况。
+据多家媒体报导，4月16日，俄罗斯再度空袭基辅，并加强了对马里乌波尔的进攻。乌克兰总统泽连斯基发出警告，如果马里乌波尔最后一批守军阵亡，将会终止俄乌和谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-39.jpg)
+尽管俄罗斯对外宣称已经攻占马里乌波尔，但事实上当地乌军仍然在坚守一座炼钢厂。俄国防部发言人科纳申科夫称，乌军只有缴械投降才能免于被消灭。泽连斯基则明确警告，马里乌波尔的守军如果阵亡，将会摧毁本就陷入僵局的俄乌和谈。
 
-参考链接：[Captain of sunken Russian warship Moskva ‘killed in explosion’, says Ukraine](https://www.independent.co.uk/news/world/europe/moskva-captain-killed-russia-warship-b2058983.html?amp)
+在接受采访时，泽连斯基坚定地表示，不会拿国家领土和人民的生命作为谈判的筹码。
+
+参考链接：[Ukraine-Russia peace talks will end if Moscow ‘eliminates’ Mariupol fighters](https://amp.theguardian.com/world/2022/apr/17/ukraine-russia-peace-talks-will-end-if-moscow-eliminates-mariupol-fighters-says-zelenskiy)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
