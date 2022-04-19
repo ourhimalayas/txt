@@ -2,29 +2,26 @@
 ---
 
 
-## 加拿大违反《权利与自由宪章》最严重省份排行榜
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2372969/)
+## 73岁的芬兰总统新冠病毒检测呈阳性
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373084/)
 
-采编： 加拿大温哥华扬帆农场 – 青青
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2325.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据自媒体《真北方》4月17日报道，为纪念《权利和自由宪章》颁布四十周年，加拿大[宪政自由司法中心]对疫情期间违宪最严重的省份进行了排名，其中魁北克省被评为榜首。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2HSRJ6BJR5NJZKZDHFFVGVBSJY.jpg)
 
-报道称, 在过去两年中，联邦和各省政府都出现了大量严重违宪行为。尽管全国各地在疫情初期都采取了几乎相同的限制措施，但随着时间和各省对所谓“科学”的不同理解而造成了对疫情反应的巨大差异。因此导致了不同省份的加拿大人所遭受的侵害程度不尽相同。
 
-由于实施了极权宵禁、旅行限制，疫苗护照，强制接种以及对未接种疫苗者威胁征税等，魁省获得违宪最严重的称号，而BC省因强制医护人员接种疫苗及任意关闭礼拜场所名列第二；曼省、安省、大西洋四省及阿省分列第3至6名；萨省则因今年2月就率先宣布取消疫情封锁及其相对温和的防疫政策而排名最后。
+资料来源：路透社
 
-校对编辑：硫酸羟氯喹64
+赫尔辛基，4 月 19 日（路透社）——芬兰总统办公室在一份声明中说，现年 73 岁的芬兰总统绍利·尼尼斯托（Sauli Niinisto）周二的新冠病毒检测呈阳性。
 
-发稿：青青
+“尽管受到感染，尼尼斯托总统身体状况良好，并继续远程工作，”它说，并补充说他计划于 4 月 21 日至 22 日对挪威进行的正式访问将被推迟。
 
-原文链接： [https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
+🔗[https://www.reuters.com/world/europe/finlands-president-niinisto-73-tested-positive-covid-2022-04-19/](https://www.reuters.com/world/europe/finlands-president-niinisto-73-tested-positive-covid-2022-04-19/)
+
+责任编辑、发布： Shuizhuyu
 
  
 

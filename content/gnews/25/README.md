@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大科技行业人才流失日益加剧
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373091/)
+## 安大略省新冠病毒疫情最新简报
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373175/)
 
-作者：加拿大温哥华扬帆农场 – 活力人生
+作者：加拿大温哥华扬帆农场 – 文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2330.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/04-image-1.png)图片来源：网络
 
 
-据【环球新闻】4月15日报道，FaceBook母公司 Meta 近期宣布将在多伦多设立办公室，并计划在加拿大雇用 2,500 名工作人员。此举或将加剧本地科技行业人才向科技寡头的流失。
+据加拿大媒体【渥太华公民】4月18日报道，安大略省当天被确诊的新冠病毒感染人数为2219人，目前已有1301人因此而需要住院治疗，比上周高出约20%。
 
-报道称，加拿大科技行业已出现了全国性的劳动力短缺。本地小型企业不仅要与其他初创公司，还要与已拥有用户和市场的大公司竞争人才。但实际上，本地小企业提供的薪资水平根本无法阻止其科技人才流向大企业。
+报道称，安大略省在解除疫情限制后，约有22%的长期护理院都报告了疫情的再次爆发。同时，由于该省病毒检测的人员和设备严重不足，目前只能通过废水化验来预测出该省每天约有10万至12万感染病例。
 
-目前，越来越多的国际知名企业都将揽才目光瞄准加拿大。为此，在疫情期间，微软、谷歌、推特和Facebook等大型科技公司都在加拿大进行了大规模的招聘活动。而《纽约时报》则更是将多伦多定位为北美三大科技中心之一。
+此外，安省当天的病毒测试阳性率约为19%，而因感染“新冠病毒”进入医院重症监护室的患者人数比同期增加了约10%，从184人上升至202人，并有2人死亡。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
+新闻来源： https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14
 
  
 

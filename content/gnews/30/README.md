@@ -2,41 +2,25 @@
 ---
 
 
-## 乌克兰称俄罗斯在东线发动“顿巴斯之战”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2372980/)
+## 加拿大科技行业人才流失日益加剧
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373091/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：加拿大温哥华扬帆农场 – 活力人生
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/K5S4I72KPBMPXDF2HYV4OZCDZ4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2330.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
 
 
-资料来源：路透社
+据【环球新闻】4月15日报道，FaceBook母公司 Meta 近期宣布将在多伦多设立办公室，并计划在加拿大雇用 2,500 名工作人员。此举或将加剧本地科技行业人才向科技寡头的流失。
 
-利沃夫/基辅，4 月 19 日（路透社）周二，俄罗斯军队试图在乌克兰东部几乎整个前线突破乌克兰的防线，发动了总统泽连斯基所说的“顿巴斯之战”一场蓄谋已久的第二阶段的战争。
+报道称，加拿大科技行业已出现了全国性的劳动力短缺。本地小型企业不仅要与其他初创公司，还要与已拥有用户和市场的大公司竞争人才。但实际上，本地小企业提供的薪资水平根本无法阻止其科技人才流向大企业。
 
-“整个俄罗斯军队的很大一部分现在都集中在这次进攻上，”泽连斯基在一夜之间的视频讲话中说。 “无论他们派多少俄罗斯军队到那里，我们都会战斗。我们会保卫自己。”“相信我们的军队，它非常强大，”他说。
+目前，越来越多的国际知名企业都将揽才目光瞄准加拿大。为此，在疫情期间，微软、谷歌、推特和Facebook等大型科技公司都在加拿大进行了大规模的招聘活动。而《纽约时报》则更是将多伦多定位为北美三大科技中心之一。
 
-与此同时，在被围困、被毁坏的马里乌波尔市，俄罗斯向躲藏在巨型钢铁厂的最后一批乌克兰守军发出最后通牒，要么在中午（格林威治标准时间 0900）前投降，要么死亡。
+校对编辑：硫酸羟氯喹64
 
-俄罗斯国防部说：“所有放下武器的人都保证活着。”
+发稿：青青
 
-俄罗斯支持的分离主义者表示，亲莫斯科的部队正准备袭击 Azovstal 工厂，该工厂被认为是乌克兰军队在战争中最长、最残酷的围攻中幸存下来的最后一个基地。
-
-3 月，乌克兰军队在北部基辅的袭击中被乌克兰军队击退，俄罗斯已向东部派遣部队，重新集结在两个被称为顿巴斯的省份发动地面进攻。它还一直在对包括首都在内的其他目标发动远程打击。
-
-乌克兰最高安全官员奥列克西·丹尼洛夫（Oleksiy Danilov）表示，俄罗斯军队试图“沿着顿涅茨克、卢甘斯克和哈尔科夫地区的几乎整个前线”突破乌克兰的防线。
-
-乌克兰总参谋部表示，俄罗斯军队旨在全面控制顿涅茨克、卢甘斯克和赫尔松地区，同时加强对乌克兰西部的导弹袭击。
-
-泽连斯基的办公室表示，在卢甘斯克和顿涅茨克前线城镇和村庄的炮击或战斗中，至少有 8 人丧生，13 人受伤，包括克雷门纳亚、波帕斯纳、阿夫迪夫卡、马林卡、托列茨克、武勒达尔和莱曼斯克。
-
-顿巴斯以北的哈尔科夫省省长奥列·西内古波夫（Oleh Sinegubov）说，在过去的 24 小时内，那里有 5 人因炮击和 grad 导弹而丧生，17 人受伤。
-
-泽连斯基的顾问表示，俄罗斯在东部的新进攻注定要失败，因为莫斯科根本没有足够的军队来超越防御。
-
-🔗 [https://www.reuters.com/world/europe/ukraine-says-russia-launches-new-eastern-offensive-with-blasts-all-along-front-2022-04-19/](https://www.reuters.com/world/europe/ukraine-says-russia-launches-new-eastern-offensive-with-blasts-all-along-front-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
+原文链接： [https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
 
  
 
