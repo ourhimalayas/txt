@@ -2,28 +2,39 @@
 ---
 
 
-## 中共国高级外交官称中共国将加强与俄罗斯的协调
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373465/)
+## 中共威胁老百姓“小心你的嘴或面临惩罚”
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373606/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2348.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+（图片来自原文）
+
+新闻报道或社交媒体本应起到传播的作用，但中国共产党（CCP）却千方百计阻止疾病和真相信息的传播。
+
+当中共国百姓所住的地区不幸被封锁时，就会收到有一些令人毛骨悚然的警告标志或“指导方针”：
+
+- 不要在网上发布与流行病相关的消息。
+- 未经许可不得进出北京。
+- 间谍就在我们中间；泄漏可能会在瞬间发生。注意你的言语，否则面临惩罚。
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/457OROFDT5PEXOFLSCPGRH3L5Q.jpg)
+在一段来自上海的来电采访，让我们了解中共控制的中共国现在的情况。
 
+上海来电者：我很荣幸住在一个有很多外籍人士的社区。我们付给拥有“非常特殊的通行证“的人一大笔钱来给我们送一点水果和蔬菜。实际可用的东西非常非常少。
 
-资料来源：路透社
+戴夫（Dave）：你们是不是可能还没有准备好。政府有没有通知准备？
 
-路透北京4月19日 – 中共国外交部周二在一份声明中表示，中共国对俄罗斯表示，无论国际局势如何动荡，中共国将继续加强与俄罗斯的“战略协调”。
+上海来电者：猝不及防。只给了我们一天时间就完全封锁了。商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有存货，因为已经超过两周没有发货了。
 
-声明说，中共国外交部副部长乐玉成周一向俄罗斯驻华大使安德烈·杰尼索夫作出了这一保证。
+同时，我也有两个孩子要上网课。更令人震惊的是，当孩子出现新冠病毒检测呈阳性时，孩子会被从家里带走，在没有父母或监护人的情况下，被送进隔离营。
 
-简评：中共国是支持乌克兰，现在保证要和俄罗斯提供合作。 让我们继续观察吧， 我们就看着中共直接自己走到死胡同， 然后进入火葬场。
+请观看英文视频，了解更多关于中国人在中共政府手中面临着令人心碎的状况。在视频中，出于显而易见的原因，保护来电者，喜剧演员戴夫·兰道（Dave Landau）[采访的上海来电者由史蒂文·克劳德（Steven Crowder）代替，让我们了解现在中共国的情况](https://youtu.be/7tw4J-CLEAQ)。
 
-🔗 [https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/](https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/)
+新闻来源链接：[https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1)
 
-责任编辑、发布： Shuizhuyu
+本文作者：Rebecca (一切心皆不可得！) 
+上传排版：Hong
 
  
 
