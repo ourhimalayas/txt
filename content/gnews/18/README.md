@@ -2,25 +2,29 @@
 ---
 
 
-## 新中国联邦乌克兰前线救援：战地蓝莲花系列之“走到哪里传播到哪里”
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2370744/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2370788/)
 
-视频制作：多伦多蓝莲花视频组laocai
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)2022年4月，波兰、梅迪卡，新中国联邦乌克兰前线救援。
-**2022年4月波兰梅迪卡，新中国联邦乌克兰前线救援还在继续，前线战友日夜忙碌，不图名利，只为帮助拯救更多的乌克兰人民。**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-106.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-18.png)
 
-**他们除了把爱与关怀传播出去，还把”TAKE THE CHINESE COMMUNITST PARTY “的信念，带到了他们所能达到的任何一个地方**。
 
-编撰：冰糖葫芦喵
+校对：Stay文苑
 
-视频文案：芙洛拉
+编辑：Stay文苑
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p15z1t89c09](https://gettr.com/post/p15z1t89c09)
+访谈：[https://gettr.com/post/p15yomzca2d](https://gettr.com/post/p15yomzca2d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
