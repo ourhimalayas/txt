@@ -2,18 +2,16 @@
 ---
 
 
-## 泽连斯基重申对俄罗斯核武器的警告
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371134/)
+## 乌克兰称被击沉莫斯科号舰长在爆炸中丧生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371133/)
 
-作者：雅典娜农场-小红帽
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据国外媒体4月17日报道，乌克兰总统泽连斯基16日在接受乌克兰新闻媒体采访时说，世界应该为俄罗斯可能使用核武器做好准备。他认为俄罗斯人可能使用任何武器，并对此深信不疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-38.jpg)
-泽连斯基认为，乌克兰现在就需要抗辐射药物和防空洞，不应该等到俄罗斯决定使用核武器的那一刻再有反应。
+4月16日外媒报导，乌克兰内政部顾问安东·格拉申科在15日宣布，被击沉的莫斯科号导弹巡洋舰的舰长、44 岁的一等舰长长安东·库普林，死于莫斯科号的爆炸和火灾之中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-37.jpg)
+但俄罗斯方面并没有立即确认安东·库普林的死讯，对莫斯科号其他船员的伤亡情况也没有公布，只声称船员已被疏散。事实上，自俄乌战争开打以来，俄罗斯一直没有公开证实过本国重要军事人员阵亡的详细情况。
 
-该采访由六家乌克兰新闻网站进行了转播，乌克兰总统府也已在Telegram上播出。
-
-参考链接：[Zelenskyy repeats warning over Russian nuclear weapons](https://www.hindustantimes.com/world-news/zelensky-repeats-warning-over-russian-nuclear-weapons-101650140575233.html)
+参考链接：[Captain of sunken Russian warship Moskva ‘killed in explosion’, says Ukraine](https://www.independent.co.uk/news/world/europe/moskva-captain-killed-russia-warship-b2058983.html?amp)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

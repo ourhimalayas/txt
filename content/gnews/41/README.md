@@ -2,18 +2,18 @@
 ---
 
 
-## 泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371135/)
+## 泽连斯基重申对俄罗斯核武器的警告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371134/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：雅典娜农场-小红帽
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据多家媒体报导，4月16日，俄罗斯再度空袭基辅，并加强了对马里乌波尔的进攻。乌克兰总统泽连斯基发出警告，如果马里乌波尔最后一批守军阵亡，将会终止俄乌和谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-39.jpg)
-尽管俄罗斯对外宣称已经攻占马里乌波尔，但事实上当地乌军仍然在坚守一座炼钢厂。俄国防部发言人科纳申科夫称，乌军只有缴械投降才能免于被消灭。泽连斯基则明确警告，马里乌波尔的守军如果阵亡，将会摧毁本就陷入僵局的俄乌和谈。
+据国外媒体4月17日报道，乌克兰总统泽连斯基16日在接受乌克兰新闻媒体采访时说，世界应该为俄罗斯可能使用核武器做好准备。他认为俄罗斯人可能使用任何武器，并对此深信不疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-38.jpg)
+泽连斯基认为，乌克兰现在就需要抗辐射药物和防空洞，不应该等到俄罗斯决定使用核武器的那一刻再有反应。
 
-在接受采访时，泽连斯基坚定地表示，不会拿国家领土和人民的生命作为谈判的筹码。
+该采访由六家乌克兰新闻网站进行了转播，乌克兰总统府也已在Telegram上播出。
 
-参考链接：[Ukraine-Russia peace talks will end if Moscow ‘eliminates’ Mariupol fighters](https://amp.theguardian.com/world/2022/apr/17/ukraine-russia-peace-talks-will-end-if-moscow-eliminates-mariupol-fighters-says-zelenskiy)
+参考链接：[Zelenskyy repeats warning over Russian nuclear weapons](https://www.hindustantimes.com/world-news/zelensky-repeats-warning-over-russian-nuclear-weapons-101650140575233.html)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

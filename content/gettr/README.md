@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 8:39 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group18/origin/2022/04/19/08/6d6f7d90-341e-f393-0917-0456925ce4c3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/19/2022 7:16 AM (UTC)`
 
 【乌克兰救援】04/18/2022  我们的老外战友采访一位韩国女士，她对在梅迪卡前线会出现中国人感到意外，她非常感激新中国人的救援行动。她知道上海现在发生的事，上海的恐怖与乌克兰的战争都是独裁共产党的罪行。<br/><br/>【Ukrainian Rescue】04/18/2022 Our foreign fellow fighter interviewed a Korean lady who was surprised by the presence of Chinese on the front line of Medyka. She appreciates the new Chinese for the rescue operation. She knows what was going on in Shanghai, the terror in Shanghai and the war in Ukraine were the crimes of the dictatorial Communist Party.
@@ -146,13 +153,6 @@
 
 2022.04.18 NFSC news  Ukraine Says Captain of Sunken Russian Warship Moskva ‘Killed in Explosion.’
 ![img](https://media.gettr.com/group36/origin/2022/03/09/23/c901f1fb-7d02-c544-d71c-8b645000a81b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/18/2022 10:03 PM (UTC)`
-
-“懦弱的代价...” 飞飞秀救援快报 2022-04-18<br/>For English：gettr.com/streaming/p15yy7w0449
-![img](https://media.gettr.com/group9/origin/2022/04/18/22/3ff9188f-4bc5-d3d7-7c4c-dfcaaa7da411/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
