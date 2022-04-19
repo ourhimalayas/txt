@@ -2,32 +2,31 @@
 ---
 
 
-## 若早出售武器给乌克兰和台湾，或将避免战争的发生
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2368752/)
+## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2237.png)图片来源：每日邮报
-《纽约邮报》4月17日刊登文章，报道周日时，共和党众议院领袖凯文·麦卡锡（Kevin McCarthy）表示，如果拜登总统早些向乌克兰运送军事装备，俄罗斯总统普京“可能”会放弃入侵乌克兰。
+撰稿：东京樱花团/asket
 
-本月早些时候，麦卡锡是在战争中前往波兰的两党众议员代表团成员，他亲眼看到了乌克兰人民的“顽强”，以及俄罗斯在乌克兰造成的“破坏”，以及针对妇女和儿童所犯下的罪行。
+奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
+“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
 
-《福克斯新闻》驻华盛顿记者迈克·伊曼纽尔（Mike Emanuel）指出，拜登政府上周宣布向乌克兰提供8亿美元的额外军事援助，总额为26亿美元，他问麦卡锡，政府还应该做什么。
+“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
 
-他说：“如果我们早点采取这些（军事援助）行动，而不是等到俄罗斯入侵之后，他们可能永远不会入侵。”
+内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
 
-麦卡锡还认为，他相信普京并不害怕拜登和美国盟友在2月24日入侵前威胁要对俄罗斯实施的制裁。
+这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
 
-麦卡锡告诉伊曼纽尔，“乌克兰渴望有能力保护自己。如果我们早点把武器运到乌克兰，让他们能够自卫，就能挽救成千上万的生命，也可能让普京决定不进入乌克兰。然后在普京进入后，拜登总统告诉我们，‘好吧，制裁需要很长时间才能发挥作用’”。
+内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
 
-对于此点，麦卡锡引用台湾作为未来的案例，他说，“我们需要做的是从这里学习，向乌克兰提供武器，但也要着眼于中共正在做的事情的未来。台湾已经等了一年多的时间（购买和交付武器），他们已经购买武器来保卫自己。让民主国家来保卫自己”。
+虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
 
-报道指，本月早些时候，根据国防安全合作局的数据，国务院批准了可能向台湾出售价值9500万美元的军事装备，这是拜登政府自2021年1月上任以来的第三个（对外提供的）武器包。
+信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
 
-*责编：白夜*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-**新闻来源**
-
-[McCarthy: Putin ‘probably’ wouldn’t have invaded Ukraine if Biden sent arms sooner](https://nypost.com/2022/04/17/mccarthy-calls-out-bidens-response-to-putin-ukraine/)
 
  
 
