@@ -2,43 +2,50 @@
 ---
 
 
-## 有声|中共增加铁路货运班列援助俄罗斯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2374357/)
+## 比尔-马赫谈接种疫苗的人戴口罩：“你在做爱后还戴着避孕套吗？”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2374371/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月15日，郭文贵先生爆料，因俄罗斯入侵乌克兰遭受国际制裁，中共的物资频繁地被运抵俄罗斯。中共援助俄罗斯的物资通过火车运输抵达。回程列车则满载俄罗斯的石油，并低价转手卖给多个国际基金。中共借此帮助俄罗斯逃避国际制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-18-at-11.20.42-AM.png)
-近日，为了向俄罗斯运输物资，中共一带一路重要项目的中欧班列新添了多趟列车。
+***评论：**常识很重要，如果COVID-19的疫苗真的有用，打了疫苗的人摘下口罩感染病毒的机率很小，感染了也不会重症，那么上海接种COVID-19疫苗的人至少超过了半数，为何会突然间感染COVID-19病毒的人数剧增，导致整个封城，以至于让世界看到了以国际化都市著称的上海在以疫情为名封锁下的各种人道灾难频频发生…*
 
-据中共国公开新闻显示，截止2022年1月29日，中欧班列累计开行5万列。中欧班列途径俄罗斯的三个出境口岸为阿拉山口、二连浩特、满洲里。截至4月15日，满洲里累计开行数量达到15,000列。霍尔果斯累计开行20,239列，而在3月19日，霍尔果斯口岸该项数字是19,526。在短短27天内，开行达到713列。往常每月大概是500列。这仅是霍尔果斯一个口岸的吞吐量。
+据《dailycaller.com》作者：[David Hookstead](https://dailycaller.com/author/david.hookstead)，2022年4月16日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2354-e1650377879615.png)比尔-马赫（图片来源：Greg Endries/HBO）
+比尔-马赫在其新的喜剧特别节目中对仍然戴着口罩的人进行了抨击。
 
-除了增加原有线路的开行次数，中共还增添了多条线路。在4月13日开通中豫号里海、黑海班列，当天五地六列班车齐发。直抵莫斯科的列车有，4月15日九江至莫斯科线路复航，4月6日赤峰至莫斯科首度开行。3月25日，咸宁至莫斯科首度开行。
+周六一早，我在HBO电视台播放了“比尔-马赫：#当谈到强制带口罩时，他没有接受任何妥协。”
 
-中共是俄罗斯侵略乌克兰的背后支持者，帮助俄罗斯逃避国际制裁，已经严重违反了国际法。
+事实上，他是使用了绝杀。
+
+从一开始，马赫就批评了仍然戴着口罩的疫苗接种者，并问观众：“你在做爱后还戴着避孕套吗？”
+
+他还感谢粉丝们过上了自己的生活，没有永远呆在家里。
+
+马赫再一次成为房间里的理性之声。我以前说过，现在我还要说，当世界在左翼疯狂时，马赫作为有常识的人闪亮登场。
+
+我不想陷入关于COVID-19的巨大争论，因为在这一点上，那只是令人疲惫的，但仍在抱怨面具的人是绝对最糟糕的。
+
+我们明白。你想永远呆在里面，而地下室是你愿意度过余下日子的地方。让我们其他人独处。
+
+生活是关于做决定的，正如马赫在他的特别节目中的早期观点，你必须决定你是否还想活下去。
+
+就我个人而言，我想活下去，我愿意接受随之而来的任何风险！
+
+支持马赫保持真实，并确保在HBO上看到他的喜剧特别节目！
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源: [https://dailycaller.com/2022/04/16/bill-maher-masks-comedy-special-covid-19/](https://dailycaller.com/2022/04/16/bill-maher-masks-comedy-special-covid-19/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+评论：洛杉矶盘古农场 – 傻小子
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-文字版原文：[中共增加铁路货运班列援助俄罗斯](https://gnews.org/zh-hans/2366148/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

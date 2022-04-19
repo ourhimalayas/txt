@@ -2,29 +2,28 @@
 ---
 
 
-## 在加拿大的乌克兰难民面临生活挑战
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373588/)
+## 中共国高级外交官称中共国将加强与俄罗斯的协调
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373465/)
 
-作者：加拿大温哥华扬帆农场 – 文莱（采编）文所未闻（ 翻译编辑）
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2349.png)图片来源：网络
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据《多伦多太阳报》4月16日报道，尽管加拿大各地社区都在竭力接纳和安置来自乌克兰的难民，但是因为人数众多，难民的接待和后续安顿工作已面临挑战。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/457OROFDT5PEXOFLSCPGRH3L5Q.jpg)
 
-加拿大边境服务局的最新数据表明，约有17000名难民已抵达加拿大，并预计最终将有9万名乌克兰人定居加拿大。
 
-据悉，联邦政府的难民救援计划包括提供来加包机、六周的生活费用和两周的免费临时住宿等。同时，慷慨友善的加拿大人和各地社区也纷纷伸出援手。
+资料来源：路透社
 
-报道称，随着俄乌战争局势的持续恶化，申请来加拿大的乌克兰难民越来越多。但难民面临的最大问题是住房，由于95%的难民是妇女和儿童，因此协助他们找到合适工作和生活的地方成为各地政府的当务之急。
+路透北京4月19日 – 中共国外交部周二在一份声明中表示，中共国对俄罗斯表示，无论国际局势如何动荡，中共国将继续加强与俄罗斯的“战略协调”。
 
-校对编辑：硫酸羟氯喹64
+声明说，中共国外交部副部长乐玉成周一向俄罗斯驻华大使安德烈·杰尼索夫作出了这一保证。
 
-发稿：青青
+简评：中共国是支持乌克兰，现在保证要和俄罗斯提供合作。 让我们继续观察吧， 我们就看着中共直接自己走到死胡同， 然后进入火葬场。
 
-新闻来源： [https://torontosun.com/news/local-news/open-homes-wont-be-enough-for-refugees-fleeing-war-ukrainian-congress](https://torontosun.com/news/local-news/open-homes-wont-be-enough-for-refugees-fleeing-war-ukrainian-congress)
+🔗 [https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/](https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/)
+
+责任编辑、发布： Shuizhuyu
 
  
 

@@ -2,23 +2,37 @@
 ---
 
 
-## 郭文贵盖特音频2022.04.18
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2372064/)
+## 有声|泽连斯基称俄军炮击哈尔科夫在四天中造成18 人死亡数百人受伤
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2371943/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/out-15.jpg)
-### 视频链接：
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+据路透社4月18日报道，乌克兰总统泽连斯基周日晚间表示，过去四天在乌克兰东北部城市哈尔科夫发生的炮击事件造成18人死亡，100多人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image006-4.jpg)2022 年4 月16 日，在乌克兰哈尔科夫，随着俄罗斯对乌克兰的袭击仍在继续，俄罗斯炮击后一座被毁的建筑物外被烧毁的汽车。路透社/Alkis Konstantinidis
+地区州长奥列·辛耶胡波夫表示，周日，一枚导弹和炮火袭击了市中心和萨尔蒂夫卡郊区，造成 5 人死亡、20 人受伤。路透社无法独立核实遇难人数。
 
-[https://www.gettr.com/post/p15wbxu0c9c](https://www.gettr.com/post/p15wbxu0c9c)
+泽连斯基在晚间讲话中说，俄罗斯对哈尔科夫的炮击一直在持续。
 
-### 音频链接：
-
-
+辛耶胡波夫说，乌克兰武装部队成功地在哈尔科夫地区进行了反击，完全夺回了两个村庄，部分夺回另一个村庄。
 
 
 
-编辑发布：闪电训练
+[【援引连结】](https://www.reuters.com/world/europe/shelling-kills-five-injures-13-kharkiv-city-centre-report-2022-04-17/)
 
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

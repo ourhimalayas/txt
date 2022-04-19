@@ -2,30 +2,35 @@
 ---
 
 
-## 新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372113/)
+## 有声|泽连斯基与国际货币基金组织讨论乌克兰的重建
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2371944/)
 
-**图/文｜CP **
-**发布时间｜19/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新冠疫苗｜福奇指群體免疫不適用新冠病毒-暗示民眾需繼續打針.jpg)
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+【路透社4月17日报道】 乌克兰总统泽连斯基周日表示，他与国际货币基金组织总裁格奥尔基耶娃就乌克兰的金融稳定和该国战后重建，进行了交谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image008-4.jpg)2022 年2 月27 日在乌克兰基辅市中心拍摄的城市郊区炮击后升起的浓烟。路透社/伊拉克利格德尼泽
+泽连斯基在推文中表示：“与国际货币基金组织总裁格奥尔基耶娃讨论了确保乌克兰金融稳定和战后重建准备的工作。我们现在有明确的计划，以及对未来的展望。我相信国际货币基金组织和乌克兰将继续开展富有成效的合作”
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+乌克兰总理什米加尔早些时候表示，将出席本周在华盛顿举行的国际货币基金组织和世界银行会议，为乌克兰寻求更多的财政援助。
 
 
-美国国家传染病研究所所长福奇（Anthony Fauci）周五（15日）接受采访时表示，群体免疫的概念可能不适用于新冠病毒。
 
-早前，福奇联同多名医学专家为《传染病学期刊》撰写了一篇关于群体免疫的研究论文，对此，福奇在接受媒体访问时以美国曾经利用群体免疫战胜麻疹举例，指出当时之所以成功战胜麻疹基于三个重要性指标，包括绝对有效的疫苗、病毒不会随时间产生显著变异以及成功的儿童疫苗接种。
+[【援引连结】](https://www.reuters.com/world/europe/zelenskiy-imf-managing-director-discuss-ukraines-post-war-reconstruction-2022-04-17/)
 
-福奇指出，对照目前的新冠病毒来看，疫情爆发两年多以来，不断出现 Delta和Omicron等多种显著性变异毒株，加上疫苗接种率不足，因此认为，群体免疫概念可能不适用于新冠病毒。福奇强调，无论是接种疫苗诱发的免疫力，还是染疫后引起的免疫作用都并非终生，这意味着民众需要不断的接种新冠疫苗。
-
-有评论质疑，在福奇所列举的三大重要性指标中，“绝对有效的疫苗”居于首位，那么群体免疫不奏效的根本原因，应该率先考虑疫苗的有效性问题，而不是将群体免疫无效的症结点归结到疫苗接种率的问题上。再者，既然疫苗诱发的免疫力并非终生，那么是否值得为了短暂的免疫力而承担所可能引起的上千种疫苗副反应呢？归根结底，任何一个负责任的科学家，都不应该鼓励民众继续接种一个弊大于利的疫苗。
-
-来源｜[NJ](https://www.nj.com/coronavirus/2022/04/dr-anthony-fauci-says-herd-immunity-may-not-apply-to-covid.html)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
