@@ -2,55 +2,67 @@
 ---
 
 
-## 中共国透露将坚持“零感染”战略直至2022年底
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2375899/)
+## 2022年4月19日文贵大直播摘要及音讯—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2376053/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
-中共国已透露其打算在今年年底之前，维持其严格的“零感染”政策。届时，一个旨在改变领导层的重大政治事件可能反而会看到习近平获得前所未有的第三个任期。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/419.png)
+视频连接：[419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑](https://gettr.com/streaming/p161dm5929a)
 
-中共国国家卫生委员会主任马晓伟告诫全国人民和中国共产党党员不要自满，驳斥了关于与病毒共存的“错误想法”和关于Omicron变种成为流感的“误解”。
+1、419断播未爆的料：就是当时对中国最大的威胁王岐山。王岐山旧金山财富和瑞士银行账号、和华尔街的关系、刘呈杰的爹，这些料都没有爆；
 
-马在中共中央党校出版的《学习时报》上撰文，敦促卫生工作者发扬“斗争精神”，保持应急状态。他说，必须用中央政府的“国家剧本”来应对正在进行的大流行病，即习近平的“动态零COVID”战略。
+2、如今，习近平比王岐山还变态，但是习近平现在仍未动王岐山的财富；
 
-马呼吁国家“巩固来之不易的成果”，以便“迎接党的第二十次全国代表大会的成功召开”，这最清楚地表明，不容忍的做法–要求在上海和其他地方实行封锁–与中共十年一次的秋季活动密切相关，据说将在11月举行。预计大会将确认习近平的新任期。
+3、文贵先生的郭七条不反习，但是要灭了习。不想灭王岐山，灭了钱找不回来，傅政华孙力军必须灭。李斯赵高的综合体是孟建柱；
 
-2018年，习近平监督废除了中共国国家元首的任期限制，实际上允许他继续担任终身统治者。但他的治理的合法性仍然很重要；他将被要求在未来几个月进一步证明其合法性。
+4、爆料革命是否真正触动到体制内高官？他们骨子里是不会相信的，不会跟着爆料革命，只会利用爆料革命，但是俄乌战争 上海封城后，体制内发生了本质的变化；
 
-他的计划是“零COVID”–一个具有深远社会和经济成本的政治决定，他承担着完成这一计划的责任。这意味着在中共国主要城市的快速封锁可能永无止境，直到北京能够再次宣布战胜这一流行病。
+5、王沪宁和社科院的几个人是马克思主义的拥护者，习近平选这几个人做高参，对西方的技术不惜一切代价要偷抢骗，金融上击毁美元；
 
-马在《学习时报》上写道：“习近平总书记一直高度重视新型冠状病毒疫情的预防和控制，‘他继续’在每个关键时刻给予重要指导”。
+6、习近平搬进毛泽东故居，第一顿饭，就是请的张玉凤；
 
-他认为，在医疗资源分布不均的中国，放宽限制将威胁到包括有基础疾病的人、老人、儿童和孕妇的福祉。他说，这也将对经济和社会的稳定发展产生严重影响。
+7、默克尔秘密坐吴小晖私人飞机到北京和习近平会面；
 
-“人民不会同意的”，马写道。“党和政府绝不会允许这种情况发生。”
+8、莫德尔周期：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2376-edited.png)*2022年4月19日，在中国上海浦东区的一次封锁行动中，一名穿戴个人防护设备的卫生工作者在一个居民院落内进行COVID-19的拭子测试。中国国家卫生委员会主任马晓伟在4月18日发表在中国共产党中央党校期刊《学习时报》上的一篇评论文章中建议，中国可以将 “零COVID ”政策维持到今年年底。*
-*刘进/美联社通过盖蒂图片*
+1 ）习近平深信不疑，他是上天派来的神 来统治世界的 ；
 
-这位官员说，坚持不懈地预防流行病；限制病毒的传播；以及尽量减少感染、严重疾病和死亡是习近平指导意见的核心重点，他引用了中共国领导人对“科学、精确和动态的零COVID”的呼吁。
+2）国际政治的演变模式是循环的周期约为120年，习近平认为莫德尔120年的周期到了，自己就是主导世界霸主的人；
 
-该政策旨在确保病毒在社会中的零传播，同时积极隔离阳性病例（无论有无症状）和密切接触者。马在党报中说，这需要进一步分配隔离室和设施，以及建设更多的野战医院，这些工作需要加快。
+9、中共把无人机卖给台湾。是国内战友冒死递出的情报；
 
-截至星期二，中国上海的疫情仍占全国所有病例的95%，但4月18日的20416例感染病例是两周多以来的最低值。自3月28日以来，全市范围内的封锁一直在进行。
+10、北京正在准备大隔离，一定是极限测试，计划要弄死一部分老人；
 
-然而，尽管在这组病例中发现了30多万个阳性病例，上海已经报告了10名未接种疫苗的老年患者因潜在的健康状况而正式死亡。官员们说，还有21人仍处于严重状态。
+11、上海阳性反应的绝大多数都是注射了mRNA的疫苗反应；
 
-**新闻来源：**[China Reveals It Will Stick to ‘Zero-COVID’ Strategy Until End of 2022](https://www.newsweek.com/china-zero-covid-xi-jinping-leadership-politics-1698804)
+12、孟建柱最后悔就是没把习近平干掉，怕干掉习中国会乱；
 
-* * *
+13、台湾不抵抗，中共和美国都会把台湾打烂，习近平使用核武器都是有可能的；
 
-审核：Aries的星
-校对：信心满满
-发布：信心的选择
+**注：大直播音讯正在制作和上传中，敬请关注——**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**（大直播音频位置）**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

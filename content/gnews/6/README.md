@@ -2,68 +2,24 @@
 ---
 
 
-## 2022年4月19日文贵大直播摘要及音讯—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2376053/)
+## 樱花FM｜“出离”五浊恶世，开创新中国联邦“净土”
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2376156/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/419.png)
-视频连接：[419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑](https://gettr.com/streaming/p161dm5929a)
+**音频：东京樱花团**/**战友**520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16C68A26-BFD0-4B29-8E2A-71C68C9F099F.png)
+佛法中的“出离心”常被误解为远离人世或厌世的心态，这是望文生义的错误。所谓“出离心”和“菩提心”以及“空性见”并称为大乘佛法的核心。其中，“出离心”又是发起“菩提心”的基础，也是修行中最根本的根本。对于“出离心”含义的理解，根据见地的深度可以做深浅不等的解释。就佛法本义而言，是告诫修行人不要沉湎于人间五浊恶世的种种欲望，这属于佛法的基础教义，展开说篇幅太大了。对于常人而言，最通俗的理解“不贪恋名利情爱以及各种欲望的心态”就是“出离心”。可是，说易行难，滚滚红尘之中要是没有钱财人就无法安身立命，君不见“一分钱难倒英雄汉”吗？所以，看起来理想很高尚，但现实很骨感。
 
-1、419断播未爆的料：就是当时对中国最大的威胁王岐山。王岐山旧金山财富和瑞士银行账号、和华尔街的关系、刘呈杰的爹，这些料都没有爆；
+佛法，不是不食人间烟火的说教，佛法是大智慧，是无法用语言完整形容表达的大智慧，佛法智慧同样可以指导我们在这五浊恶世如何度过一生，为了更好地度过人生应该有超越五浊恶世的“出离心”，有了“出离心”就可以心明眼亮潇洒自如地酬度人生。那么，该如何酬度人生呢？佛法告诉我们“为一切所应为，心恒处无为”。
 
-2、如今，习近平比王岐山还变态，但是习近平现在仍未动王岐山的财富；
+佛法的“为一切所应为，心恒处无为”是人生的最高指导原则，对于提高人的生存质量和升华人的精神世界至关重要。通俗简单地理解，就是“做你该做的任何事，但内心不过分贪恋名利”。那么，什么是“该做的任何事”呢？既然生活在这个物欲的人间社会，你就必须“随顺众生”，如果你事事都特立独行，那么必然“木秀于林风必摧之，滩出于岸流必湍之”。所以，在人世间，该你赚的钱你就应该尽力去赚，该你争取的名闻利养你就应该努力去争取。只不过，在争取竞争的时候，内心里要清楚地认识到所有的五欲六尘都是身外之物，你可以有限利用五欲六尘，但不能有无限占有的妄想。至于对什么事努力到什么程度，这可不是哪个人能教授给你的秘诀，“法无定法”，全凭个人的感觉悟性自己拿捏。
 
-3、文贵先生的郭七条不反习，但是要灭了习。不想灭王岐山，灭了钱找不回来，傅政华孙力军必须灭。李斯赵高的综合体是孟建柱；
+面对当下的五浊恶世，一个有正知正见的人不可能逃避现实“与世无争”，而是尽自己的能力去做对人类社会有意义的事，也就是“善事”，天下悠悠大事唯有开创一个没有邪恶共产党的新世界最为重要。郭文贵先生就是天下所有正直诚实的人的楷模，郭先生真正是佛法说的“为一切所应为，心恒处无为”的伟大实践者，他竭尽毕生的心力、智力和财力坚韧不拔地在为五浊恶世“去共产党化”，然而他的内心则是坦荡无私，不为名不图利。如此胸怀、如此境界，非佛菩萨再来莫能为之！新中国联邦人跟随郭文贵先生必定会“出离”中共统治的五浊恶世，开创出民主、自由、富有的新中国联邦“净土”！阿弥陀佛！
 
-4、爆料革命是否真正触动到体制内高官？他们骨子里是不会相信的，不会跟着爆料革命，只会利用爆料革命，但是俄乌战争 上海封城后，体制内发生了本质的变化；
+**文字版原文：**[**谈古论今 | “出离”五浊恶世，开创新中国联邦“净土”**](https://gnews.org/zh-hans/2337175/)
 
-5、王沪宁和社科院的几个人是马克思主义的拥护者，习近平选这几个人做高参，对西方的技术不惜一切代价要偷抢骗，金融上击毁美元；
-
-6、习近平搬进毛泽东故居，第一顿饭，就是请的张玉凤；
-
-7、默克尔秘密坐吴小晖私人飞机到北京和习近平会面；
-
-8、莫德尔周期：
-
-1 ）习近平深信不疑，他是上天派来的神 来统治世界的 ；
-
-2）国际政治的演变模式是循环的周期约为120年，习近平认为莫德尔120年的周期到了，自己就是主导世界霸主的人；
-
-9、中共把无人机卖给台湾。是国内战友冒死递出的情报；
-
-10、北京正在准备大隔离，一定是极限测试，计划要弄死一部分老人；
-
-11、上海阳性反应的绝大多数都是注射了mRNA的疫苗反应；
-
-12、孟建柱最后悔就是没把习近平干掉，怕干掉习中国会乱；
-
-13、台湾不抵抗，中共和美国都会把台湾打烂，习近平使用核武器都是有可能的；
-
-**注：大直播音讯正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+编辑：东京樱花团/Calvin
+发布：东京樱花团/calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
