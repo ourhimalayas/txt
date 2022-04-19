@@ -15,59 +15,59 @@
 
 ---
 
-### [COVID-19疫苗副作用集萃（2022.4.19A）&#8211;打完辉瑞以后心肌炎了](/content/gnews/1/README.md)
+### [闲聊澳洲：田惠宇被免职验证七哥爆料的准确性](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜为应对中共 美国高级官员将访问所罗门群岛](/content/gnews/2/README.md)
+### [中共政权学舌普京政权的危险宣传](/content/gnews/2/README.md)
+ ` KarmaLabs`
+
+### [【G时新闻】特鲁多政府力推互联网审查制度](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [有声｜香港防疫政策使塑料垃圾堆积如山](/content/gnews/4/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [泽连斯基谴责俄军使用酷刑，恳请世界做出回应](/content/gnews/3/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.19A）&#8211;打完辉瑞以后心肌炎了](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声｜为应对中共 美国高级官员将访问所罗门群岛](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [泽连斯基谴责俄军使用酷刑，恳请世界做出回应](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [VOA“419断播门”事件掀起波澜壮阔的爆料革命新篇章](/content/gnews/4/README.md)
+### [VOA“419断播门”事件掀起波澜壮阔的爆料革命新篇章](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [为何中共国的封锁政策导致澳洲燃油价格跌落](/content/gnews/5/README.md)
+### [为何中共国的封锁政策导致澳洲燃油价格跌落](/content/gnews/9/README.md)
  ` 走进澳洲`
 
-### [民生集萃——疫情导致实体经济低迷（2022.4.19A）&#8211;奈雪的茶裁员](/content/gnews/6/README.md)
+### [民生集萃——疫情导致实体经济低迷（2022.4.19A）&#8211;奈雪的茶裁员](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [闲聊澳洲：4月18日其它信息摘要及评论](/content/gnews/7/README.md)
+### [闲聊澳洲：4月18日其它信息摘要及评论](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃乌克兰已经填好入盟申请表](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声｜泽连斯基称：乌克兰很快将成为欧盟候选国](/content/gnews/9/README.md)
+### [有声｜泽连斯基称：乌克兰很快将成为欧盟候选国](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【秘翻北美时评】回顾 4.19 VOA断播事件 认清中共特务龚小夏](/content/gnews/10/README.md)
+### [【秘翻北美时评】回顾 4.19 VOA断播事件 认清中共特务龚小夏](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜西方和东欧弹药的差异给援助和使用造成困难](/content/gnews/11/README.md)
+### [有声｜西方和东欧弹药的差异给援助和使用造成困难](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [计划经济 中共“白名单”制度](/content/gnews/12/README.md)
+### [计划经济 中共“白名单”制度](/content/gnews/15/README.md)
  ` 儒为`
 
-### [闲聊澳洲：郭先生4月18日盖特直播视频内容摘要及观后有感](/content/gnews/13/README.md)
+### [闲聊澳洲：郭先生4月18日盖特直播视频内容摘要及观后有感](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃究竟什么是“种族灭绝”？](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共官员5月将前往所罗门群岛签署协议](/content/gnews/15/README.md)
+### [中共官员5月将前往所罗门群岛签署协议](/content/gnews/17/README.md)
  ` 波士顿五月花农场金融部`
 
-### [mRNA疫苗产生的刺突蛋白可导致血栓、心脏炎症、癌症（1/2）](/content/gnews/16/README.md)
+### [mRNA疫苗产生的刺突蛋白可导致血栓、心脏炎症、癌症（1/2）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [【乌克兰救援】Medyca救援营地世界各地的志愿者们一起庆祝复活节](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【乌克兰救援】04/18/2022   新中国联邦的救援工作让韩国人刮目相看](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [樱花时政┃美国CDC解除疫苗接种条件，可以前往约90个国家和地区](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -99,44 +99,44 @@
 ### [美国警告：所罗门群岛与中国的协议将影响地区稳定](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/29/README.md)
+### [上海封城导致中共国的消费和就业受到冲击](/content/gnews/29/README.md)
+ ` 澳喜农场`
+
+### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/30/README.md)
  ` 關注組`
 
-### [郭文贵盖特音频2022.04.18](/content/gnews/30/README.md)
+### [郭文贵盖特音频2022.04.18](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [格雷厄姆参议员回应中共战狼陈卫华辱骂](/content/gnews/31/README.md)
+### [格雷厄姆参议员回应中共战狼陈卫华辱骂](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“田惠宇”（二）](/content/gnews/32/README.md)
+### [文•贵天成——文贵先生谈“田惠宇”（二）](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽连斯基：乌克兰可能在几周内成为欧盟候选国](/content/gnews/33/README.md)
+### [泽连斯基：乌克兰可能在几周内成为欧盟候选国](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元](/content/gnews/34/README.md)
+### [北京卫健委主任被抓 科兴疫苗高管突亡 中共的替罪羊与背锅侠](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [研究发现未接种疫苗的人比接种疫苗的人更健康](/content/gnews/35/README.md)
+### [研究发现未接种疫苗的人比接种疫苗的人更健康](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？](/content/gnews/36/README.md)
+### [中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共对美国精英的俘获战略是成功的](/content/gnews/37/README.md)
+### [中共对美国精英的俘获战略是成功的](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](/content/gnews/38/README.md)
+### [俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](/content/gnews/40/README.md)
  ` 關注組`
 
-### [以岭药业深陷泥潭，中共辟谣反遭质疑](/content/gnews/39/README.md)
- ` GTV News Talk`
-
-### [台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？](/content/gnews/40/README.md)
+### [台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？](/content/gnews/41/README.md)
  ` 關注組`
-
-### [郭文贵精品视频-台湾危也！](/content/gnews/41/README.md)
- ` cindy`
 
 ### [蔡英文表示台湾坚守主权与民主的决心](/content/gnews/42/README.md)
  ` NFSC News`
