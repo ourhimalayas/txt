@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 1:19 AM (UTC)`
+
+2022.04.18 晚  新中国联邦 | 新闻访谈   俄罗斯导弹轰炸利沃夫，距离新中国联邦梅迪卡救援营地仅80公里
+![img](https://media.gettr.com/group33/origin/2022/04/19/01/dda3165b-900f-2d39-9d66-7325f2669c13/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/19/2022 1:00 AM (UTC)`
 
 【Ukraine Rescue】04/17/2022  A Russian tells Nicole that his family and friends were in Russia opposing Putin's invasion of Ukraine and later fled to Poland for fear of danger. Russia is full of political propaganda, and Putin is following the CCP's example of "stability overrides everything." Putin cannot represent the Russian people, just as the CCP does not represent the Chinese. He thanks the NFSC for eliminating the CCP and removing a strong supporter of Putin for the Russian people.<br/><br/>【乌克兰救援】04/17/2022  一位俄罗斯人告诉妮可，他的家人和朋友在俄罗斯境内反对普京入侵乌克兰，后来因危险一起逃到波兰。俄罗斯都是虚假的政治宣传，普京在效仿中共“稳定压倒一切”。普京不能代表俄罗斯人民，正如中共不代表中国人。他感谢新中国联邦人灭共，为俄罗斯人民消除普京的强大支持者。<br/>
@@ -147,13 +154,6 @@
 
 2022.04.18 早  新中国联邦 | 新闻访谈   普京现在不得不孤注一掷；今日俄罗斯，明日中国？欧洲对中国原材料的依赖有多危险 
 ![img](https://media.gettr.com/group45/origin/2022/04/18/13/414c710e-7a40-93e7-ce05-4f4e47e98030/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/18/2022 12:50 PM (UTC)`
-
-【Ukraine Rescue】04/16/2022  A Jewish volunteer from Washington D.C has seen the demonstrations of NFSC in Washington D.C，but he hasn't guessed to see the refugee relief by the NFSC by the border of Poland. He thinks The refugee relief by the NFSC will be a memorial and the co-worked international organization and institutes will be lifetime allies. It is smart to create allies and show humanity by providing relief and support for others.<br/><br/>【乌克兰救援】04/16/2022  来自美国首都华盛顿DC的犹太裔义工在美国华盛顿DC见过新中国联邦参加的集会和游行，但是万万没想到会在波兰边境看到新中国联邦的救援行动。 他说，新中国联邦在波兰边境的人道救援行动将会被历史所铭记，与其并肩合作过的国际组织和救援机构将成为终身的盟友。 通过为他人提供救济和支持而展示人性来创建大联盟，这真是智慧！
-![img](https://media.gettr.com/group42/getter/2022/04/18/12/17ee3540-158e-3923-84d9-f25a2839552b/out.jpg)
 
 ---
 
