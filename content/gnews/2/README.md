@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：七哥深度解读VOA的前世今生
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374607/)
+## 20220419郭文贵大直播 ：爆料革命钓出美国之音中文部主任中共特务龚小夏
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2375007/)
 
 作者：东京樱花团小视频组
 

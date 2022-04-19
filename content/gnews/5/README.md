@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：七哥谈海航和孟宏伟
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374586/)
+## 20220419郭文贵大直播 ：五年前419没报的王岐山的秘密
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374948/)
 
 作者：东京樱花团小视频组
 
