@@ -2,25 +2,25 @@
 ---
 
 
-## 2022年4月19日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2373192/)
+## 【秘翻新视野】台湾危矣 台购入中共国制造的无人机
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2373212/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+**By:[秘翻新视野](https://gettr.com/post/p15y9610562)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1166.jpg)
+***[2022-04-19](https://gettr.com/post/p15y9610562)***
 
-发稿：信心的选择
+**今日内容：[台湾危矣](https://gettr.com/post/p15y9610562)**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**·台湾从澳洲购买的无人机是中共国制造**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+**·中共即将对台湾实施“台湾之子计划”**
 
+🔗Gettr链接：**[https://gettr.com/post/p15y9610562](https://gettr.com/post/p15y9610562)**
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

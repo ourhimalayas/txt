@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 4/19/2022 12:41 PM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢MR. MILES GUO'S LIVE BROADCAST on “419 VOA” 5TH ANNIVERSARY
+![img](https://media.gettr.com/group23/origin/2022/04/19/12/13fcd4bf-d580-9d01-d78b-70481b8eadc0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/19/2022 12:47 PM (UTC)`
+
+419五周年专场<br/>霹雳一声断播门<br/>文贵爆料惊鬼神<br/>五载星火燎原势<br/>喜马拉雅再昆仑
+![img](https://media.gettr.com/group29/origin/2022/04/19/12/43f0b6c5-feeb-c645-dabc-27d6da51d773/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/19/2022 12:19 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月18日第45天当日救援统计：<br/>Medyka救援站接待：约203人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12692人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 45 - Date: April 18, 2022 :<br/>Medyka Rescue Station Reception: about 203 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12692 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -139,20 +155,6 @@
 
 4/18/2022 China Merchants Bank issued an announcement to remove Tian Huiyu’s duty as President and Director, which has verified the revelation I made on November 30, 2019. I said that Tian Huiyu, Tian Guoli, Zhou Liang, and Kang Dian would all be arrested, which would be the result of the fight between Xi Jinping and Wang Qishan. The Chinese Communist Party is just like a devil's meat grinder!<br/><br/> 4/18/2022 招商银行发布公告称免去田惠宇行长、董事职务，这验证了文贵在2019年11月30日的爆料 - 田惠宇、田国立、周亮、康典都会被抓，这是习王斗争的结果，中共就是一台魔鬼的绞肉机！<br/>
 ![img](https://media.gettr.com/group8/getter/2022/04/18/23/487d0f18-4e32-091f-1d53-1e7c2bd99da4/out.jpg)
-
----
-
-`@miles 4/18/2022 11:40 PM (UTC)`
-
-2022.04.18《The Fringe》 Episode 171<br/>中文同传：https://gettr.com/streaming/p15z0hkc63a
-![img](https://media.gettr.com/group38/origin/2022/04/18/23/befd62db-986f-5610-f98d-aecfe49aa43a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 11:38 PM (UTC)`
-
-4月18号，《铁锁梦》MV在iTunes上线后，迅速登榜台湾 🇹🇼， 香港🇭🇰，澳门🇲🇴，马来西亚🇲🇾，新加坡🇸🇬，泰国🇹🇭，MV总榜第一名🥇，MV流行曲榜第一名🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，澳门，马来西亚，新加坡，泰国的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>4/18/2022 Miles Guo’s latest MV “Chained Dream” hits iTunes No.1 🥇on Hong Kong 🇭🇰, Taiwan 🇹🇼, Macau 🇲🇴, Malaysia 🇲🇾, Singapore 🇸🇬, Thailand 🇹🇭 Top Music Video Charts and No.1 🥇Pop Music Video Charts ! <br/>🎉🎉🎉🎉🎉🎉🎉<br/>Thanks to our brothers and sisters in Hong Kong, Taiwan, Macau, Malaysia, Singapore, Thailand 🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group22/getter/2022/04/18/23/1da8fa18-148f-3330-8d58-198f3b979e3e/95742d48404ff3736abff3b1ee4dc465.jpg)
 
 ---
 

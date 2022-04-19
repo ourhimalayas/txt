@@ -2,28 +2,25 @@
 ---
 
 
-## 6名美国议员令人惊喜地抵达台湾进行访问 中共发警告
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373466/)
+## 加拿大将成为能源和矿产资源重要国家
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373533/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-19-2015077.jpg)
-（图片来自原文）
+作者：加拿大温哥华扬帆农场 – 青青（采编）-文莱  （撰稿）
 
-2022年4月14日周四，一个由美国两党议员组成的代表团飞往台湾进行正式访问，无视中国共产党（CCP）伪政府的威胁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2347.png)图片来源：网络
 
-周三上午, 美参众两院议员抵达台湾，受到台湾总统蔡英文的热烈欢迎。
 
-参加访问的议员有南卡罗来纳州的共和党参议员林赛格雷厄姆（Lindsey Graham）、内布拉斯加州的本萨斯（Ben Sasse）、北卡罗来纳州的理查德伯尔（Richard Burr）和俄亥俄州的罗伯波特曼（Rob Portman）、德克萨斯州共和党众议员罗尼杰克逊（Ronny Jackson）和新泽西州民主党参议员鲍勃梅南德斯（Bob Menendez）。
+据【真北方】4月16日报道，全球疫情灾难和俄乌战争影响意外地促使加拿大成为国际能源和矿产资源的主要出口国和绿色产业的高级合作伙伴。
 
-这些议员是访问台湾的最高级别美国官员之一。
+报道称，俄乌战争暴露出安全、食物、住所和能源等的重要性，尤其是在能源等关键产品方面，加拿大需要结束对与其价值观相悖国家的依赖。中俄结盟及其一带一路政策对西伯利亚丰富资源的控制，促使加拿大在资源供应和环境开发中成为国际上的高级合作伙伴，并与欧美盟国一起，共同对抗中俄等极权国家的垄断。
 
-周四，中共政府很快发表声明谴责这次访问，认为台湾不是一个独立的国家。中共指责美国、台湾官员“玩火”，并将他们与乌克兰相提并论。
+据悉，目前有大量的外国资金流向加拿大各主要政治活动团体，以说服阻止魁北克液化天然气的大规模生产和出口。因此，加拿大至今仍无法帮助解决欧洲对俄罗斯天然气严重依赖的危机。但俄乌战争却使加拿大成为能保证其盟友能源和资源安全的可靠战略伙伴。
 
-近年来，由于中共对台湾的威胁日益加剧，包括空军频繁在台湾领空附近飞行。加之俄罗斯入侵乌克兰，可能会鼓励中共采取行动。人们对中共入侵台湾的担忧有所上升。
+校对编辑：硫酸羟氯喹64
 
-新闻来源链接：[https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham](https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham)
+发稿：青青
 
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
+新闻来源： [GUEST OP-ED: The Western world is looking to Canadian energy | True North (tnc.news)](https://tnc.news/2022/04/16/guest-op-ed-the-western-world-is-looking-to-canadian-energy/)
 
  
 

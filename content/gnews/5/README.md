@@ -2,28 +2,35 @@
 ---
 
 
-## 中共国高级外交官称中共国将加强与俄罗斯的协调
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373465/)
+## 2022/04/15 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2373508/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+1. 4月13日，上海。集中隔离者拍下的多个视频显示，号称国家级质量标准的上海南汇方舱医院多个房间漏雨，致使隔离者无法居住。
+2. 4月14日，上海。大雨过后，中共国家级样板方舱医院(上海国际会展中心方舱医院)，四处漏雨，污秽横流。
+3. 上海，疑似多名警察闯入民宅，强制抓市民去隔离集中营，期间动用了各种武器，最后使用电击枪才将人打倒。
+4. 4月13日，四川成都。市民拨打12345市长热线咨询中共防疫政策相关问题，质疑中共所谓“疫情防控指挥部”的合法性。
+5. 4月14日，上海。面对中共政府部门镜头前的虚伪视察宣传，男子路边隔空向官员喊话。
+6. 4月12日，上海宝山。2岁孩子发高烧却因中共疫情封控政策被困小区无法外出就医。
+7. 上海周家渡社区，同样是因为中共疫情封控政策，导致心脏病发病患者无法及时得到医生救助。
+8. 上海，被中共疫情封控政策困住的老人被逼无奈，翻越栅栏外出。
+9. 江苏苏州，中共奇葩疫情封控政策引导下，地方镇政府在江苏上海交界处设置瞭望塔，24小时监视“盯梢”，严防百姓跨省流动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon*
+- *2，听写：乐禧禧  | Filon*
+- *3，翻译：大头猫*
+- *4，PR：Seven Star Ant*
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/457OROFDT5PEXOFLSCPGRH3L5Q.jpg)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-资料来源：路透社
+编辑：【英国伦敦喜庄园编辑部】
 
-路透北京4月19日 – 中共国外交部周二在一份声明中表示，中共国对俄罗斯表示，无论国际局势如何动荡，中共国将继续加强与俄罗斯的“战略协调”。
-
-声明说，中共国外交部副部长乐玉成周一向俄罗斯驻华大使安德烈·杰尼索夫作出了这一保证。
-
-简评：中共国是支持乌克兰，现在保证要和俄罗斯提供合作。 让我们继续观察吧， 我们就看着中共直接自己走到死胡同， 然后进入火葬场。
-
-🔗 [https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/](https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

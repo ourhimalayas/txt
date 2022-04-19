@@ -2,26 +2,25 @@
 ---
 
 
-## 73岁的芬兰总统新冠病毒检测呈阳性
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373084/)
+## 加拿大科技行业人才流失日益加剧
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373091/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：加拿大温哥华扬帆农场 – 活力人生
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2HSRJ6BJR5NJZKZDHFFVGVBSJY.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2330.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
 
 
-资料来源：路透社
+据【环球新闻】4月15日报道，FaceBook母公司 Meta 近期宣布将在多伦多设立办公室，并计划在加拿大雇用 2,500 名工作人员。此举或将加剧本地科技行业人才向科技寡头的流失。
 
-赫尔辛基，4 月 19 日（路透社）——芬兰总统办公室在一份声明中说，现年 73 岁的芬兰总统绍利·尼尼斯托（Sauli Niinisto）周二的新冠病毒检测呈阳性。
+报道称，加拿大科技行业已出现了全国性的劳动力短缺。本地小型企业不仅要与其他初创公司，还要与已拥有用户和市场的大公司竞争人才。但实际上，本地小企业提供的薪资水平根本无法阻止其科技人才流向大企业。
 
-“尽管受到感染，尼尼斯托总统身体状况良好，并继续远程工作，”它说，并补充说他计划于 4 月 21 日至 22 日对挪威进行的正式访问将被推迟。
+目前，越来越多的国际知名企业都将揽才目光瞄准加拿大。为此，在疫情期间，微软、谷歌、推特和Facebook等大型科技公司都在加拿大进行了大规模的招聘活动。而《纽约时报》则更是将多伦多定位为北美三大科技中心之一。
 
-🔗[https://www.reuters.com/world/europe/finlands-president-niinisto-73-tested-positive-covid-2022-04-19/](https://www.reuters.com/world/europe/finlands-president-niinisto-73-tested-positive-covid-2022-04-19/)
+校对编辑：硫酸羟氯喹64
 
-责任编辑、发布： Shuizhuyu
+发稿：青青
+
+原文链接： [https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
 
  
 

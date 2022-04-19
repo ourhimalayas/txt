@@ -15,107 +15,107 @@
 
 ---
 
-### [加拿大将成为能源和矿产资源重要国家](/content/gnews/1/README.md)
+### [以抗疫验诚臣](/content/gnews/1/README.md)
+ ` 银河勇气之星`
+
+### [4/19/2022 银河快讯：外国领导人将陆续访问日本；日本银行黑田行长：&#8221;日元快速贬值将产生巨大的负面影响&#8221;](/content/gnews/2/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [封城之疯](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大将成为能源和矿产资源重要国家](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2022/04/15 墙内世界](/content/gnews/2/README.md)
+### [2022/04/15 墙内世界](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共不满BNO持有者享英国公民权益](/content/gnews/3/README.md)
+### [中共不满BNO持有者享英国公民权益](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [6名美国议员令人惊喜地抵达台湾进行访问 中共发警告](/content/gnews/4/README.md)
+### [6名美国议员令人惊喜地抵达台湾进行访问 中共发警告](/content/gnews/7/README.md)
  ` topnews`
 
-### [中共国高级外交官称中共国将加强与俄罗斯的协调](/content/gnews/5/README.md)
+### [中共国高级外交官称中共国将加强与俄罗斯的协调](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线：中共“抗疫神药”连花清瘟遭质疑的背后](/content/gnews/6/README.md)
+### [秘翻在线：中共“抗疫神药”连花清瘟遭质疑的背后](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [哈里斯：美国不再进行“直升式反卫星武器”测试](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [垃圾征费带动垃圾袋产业收割港人](/content/gnews/8/README.md)
+### [垃圾征费带动垃圾袋产业收割港人](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [高官子女海外升学 要DSE考生安于长期抗疫](/content/gnews/9/README.md)
+### [高官子女海外升学 要DSE考生安于长期抗疫](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年04月14日 七哥乱聊直播](/content/gnews/10/README.md)
+### [2022年04月14日 七哥乱聊直播](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [【G时新闻】印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/11/README.md)
+### [【G时新闻】印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/13/README.md)
  ` G-时新闻`
 
-### [【秘翻新视野】台湾危矣 台购入中共国制造的无人机](/content/gnews/12/README.md)
+### [【秘翻新视野】台湾危矣 台购入中共国制造的无人机](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【G时新闻】中共即将对多个大城市实施大封锁隔离](/content/gnews/13/README.md)
+### [【G时新闻】中共即将对多个大城市实施大封锁隔离](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [2022年4月19日，全球中共病毒疫情情况汇总](/content/gnews/14/README.md)
+### [2022年4月19日，全球中共病毒疫情情况汇总](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [塞尔维亚指责有关航空炸弹恶作剧](/content/gnews/15/README.md)
- ` Shuizhuyu`
-
-### [安大略省新冠病毒疫情最新简报](/content/gnews/16/README.md)
+### [安大略省新冠病毒疫情最新简报](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [《避风港Haven》直播内容精选（第三十六集）](/content/gnews/17/README.md)
+### [《避风港Haven》直播内容精选（第三十六集）](/content/gnews/18/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [秘翻在线：俄罗斯军队开始对乌克兰顿巴斯地区展开大攻势](/content/gnews/18/README.md)
+### [秘翻在线：俄罗斯军队开始对乌克兰顿巴斯地区展开大攻势](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/04/19 英喜时事速递](/content/gnews/19/README.md)
+### [2022/04/19 英喜时事速递](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：韩国医生团队表示癫痫患者感染新冠（中共病毒）时重症并发症的危险更高](/content/gnews/20/README.md)
+### [秘翻在线：韩国医生团队表示癫痫患者感染新冠（中共病毒）时重症并发症的危险更高](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大科技行业人才流失日益加剧](/content/gnews/21/README.md)
+### [加拿大科技行业人才流失日益加剧](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [73岁的芬兰总统新冠病毒检测呈阳性](/content/gnews/22/README.md)
+### [73岁的芬兰总统新冠病毒检测呈阳性](/content/gnews/23/README.md)
  ` Shuizhuyu`
 
-### [自由&#8212;-人性中最深刻的需要](/content/gnews/23/README.md)
+### [自由&#8212;-人性中最深刻的需要](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [COVID-19疫苗副作用集萃(2022.4.19B) 辉瑞疫苗第三针，人差点没了](/content/gnews/24/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.19B) 辉瑞疫苗第三针，人差点没了](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月19日战时快讯（1）](/content/gnews/25/README.md)
+### [2022年4月19日战时快讯（1）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰称俄罗斯在东线发动“顿巴斯之战”](/content/gnews/26/README.md)
+### [乌克兰称俄罗斯在东线发动“顿巴斯之战”](/content/gnews/27/README.md)
  ` Shuizhuyu`
 
-### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/27/README.md)
+### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [泽连斯基：乌克兰全境解放只是时间问题](/content/gnews/28/README.md)
+### [泽连斯基：乌克兰全境解放只是时间问题](/content/gnews/29/README.md)
  ` 波士顿五月花农场金融部`
 
-### [04/19每日播报｜社媒消息: 班农先生 罗伯特马龙博士](/content/gnews/29/README.md)
+### [04/19每日播报｜社媒消息: 班农先生 罗伯特马龙博士](/content/gnews/30/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾｜与美国贸易代表视讯会面 冀台美签署自由贸易协定](/content/gnews/30/README.md)
+### [台湾｜与美国贸易代表视讯会面 冀台美签署自由贸易协定](/content/gnews/31/README.md)
  ` 關注組`
 
-### [方舱医院有人要跳楼,现场大白首先做的是阻止拍摄现场](/content/gnews/31/README.md)
+### [方舱医院有人要跳楼,现场大白首先做的是阻止拍摄现场](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰外交部：16个外国外交使团在基辅重新开放](/content/gnews/32/README.md)
+### [乌克兰外交部：16个外国外交使团在基辅重新开放](/content/gnews/33/README.md)
  ` 波士顿五月花农场金融部`
 
-### [上海疫情：死亡人数引质疑网民批评声浪四起](/content/gnews/33/README.md)
+### [上海疫情：死亡人数引质疑网民批评声浪四起](/content/gnews/34/README.md)
  ` 日本東京方舟農場`
-
-### [意大利议会支持向乌克兰提供武器](/content/gnews/34/README.md)
- ` 波士顿五月花农场金融部`
 
 ### [mRNA 疫苗产生的刺突蛋白可导致血栓、心脏炎症、癌症（2/2）](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`

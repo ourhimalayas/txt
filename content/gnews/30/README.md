@@ -2,35 +2,69 @@
 ---
 
 
-## 台湾｜与美国贸易代表视讯会面 冀台美签署自由贸易协定
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372917/)
+## 04/19每日播报｜社媒消息: 班农先生 罗伯特马龙博士
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2372928/)
 
-**港台前线 zhong｜2022-4-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-5.png)
-14日晚间，美国重量级国会联邦参众议员访问团台湾，参院财政委员会成员的波特曼（Robert Portman）表示，台湾需要成为“印太经济架构”（IPEF）一员，但更重要的是美国和台湾应签署《自由贸易协定》（FTA）。
+**By：[秘翻新聞](https://gettr.com/post/p1611zr4c9c)**
 
-18日，通过台湾驻美代表萧美琴促成，行政院政务委员邓振中与美国贸易代表戴琪（Katherine Tai）进行视讯会议，双方讨论（2021年）第11届TIFA会议双边工作进展、WTO在内的多边组织合作议题，邓振中会中表达，台湾盼与美国签署双边贸易协定的目标。台湾媒体报导称，邓振中与戴琪均同意未来数月内，针对美台共同关心的议题保持联系。
+***[2022-04-19](https://gettr.com/post/p1611zr4c9c)***
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-388.jpg)
+**一、[The Vigilant Fox 4月18日在盖特发文：](https://gettr.com/post/p15rbnxdce6)**
 
-邓振中向媒体表示，谈话内容不方便透漏，但现在关心的事项都很正面，能通话都是正面的事。
+**小罗伯特肯尼迪表示：**默克公司知道他们生产的治疗头痛药物罗非昔布（Vioxx）会导致人们患上心脏病，并且有致死风险，但是他们没有告诉任何人，结果有多达50万人死于这种药物。疫苗是制药商唯一可以免责的领域，因为在美国，起诉疫苗公司是非法的。这些疫苗厂商就是连环杀手。
 
-同日，戴琪也在华府会晤新加坡下任总理、财政部长黄循财，并发布推特透漏两人讨论美星两国在印太经济架构（IPEF）的合作，但并未提及与台湾政务委员邓振中视讯是否触及印太经济架构议题。
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-157.jpg)
+**二、[班农先生4月18日在盖特发文：](https://gettr.com/post/p15r8v6dca8)**
 
+**CNN的这篇文章提到中共国的封城是全球经济面临的最大风险。这个话题《战斗室》节目早在六周前就与观众们讨论过了。 **
 
+【盖文转CNN报道，由于中共当局的清零政策，中国45个城市的近4亿人正处于完全或部分封锁状态。根据野村控股 (Nomura Holdings)的数据，这些城市的GDP总计7.2万亿美元，占中国40%。分析师们警告说，投资者没有正确评估这些长期隔离对全球经济可能造成的严重后果。“全球市场可能低估了这种影响，因为许多人的注意力仍然集中在俄乌冲突和美联储加息上。”
 
-> Great to meet with Singapore Finance Minister [@LawrenceWongST](https://twitter.com/LawrenceWongST?ref_src=twsrc%5Etfw) to discuss the Indo-Pacific Economic Framework and our ongoing regional cooperation. Thank you for your partnership in strengthening the U.S.-Singapore trade relationship. [pic.twitter.com/qaHnhv09MZ](https://t.co/qaHnhv09MZ)
-> — Ambassador Katherine Tai (@AmbassadorTai) [April 19, 2022](https://twitter.com/AmbassadorTai/status/1516207264931192836?ref_src=twsrc%5Etfw)
+中国最重要的制造和出口中心上海正处于无限期封锁，上海的港口现在基本上处于停滞状态，严重影响了入境出境货物的流通。由于供应链受到破坏，索尼、苹果供应商的工厂都处于闲置状态，特斯拉也关闭了其在上海的工厂。欧亚集团 (Eurasia Group)中国地区的负责人说：“封锁对中国的影响很大，全球经济也受到了相当大的冲击，至少在未来六个月，我们的经济及社会将出现更多波动和混乱。“】
 
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-141.jpg)
+**三、**[**娜塔莉温特斯4月19日在盖特发文：**](https://gettr.com/post/p15z12td8ac)
 
+**根据被删除的网页，美国国防大学的院长曾拜访了一所由中共运营的智库—上海社科院。美国联邦调查局FBI认定上海社科院为中共搜集情报以及招募海外间谍**。
 
-其实早在2021年7月14日，美前副总统彭斯（Mike Pence）就于华府智库传统基金会演讲表示，TIFA的贸易、投资也是FTA的核心议题，拜登政府应将目标改为与台湾签署“自由贸易协定”（FTA），借此展露对台的决心，且台美双方将受益，台美之间的自由贸易，更进一步加入印太经济体，成为一个正常国家，已是国际默而不宣的共识。
+【盖文转《国家脉动》报道，上海社科院的简讯显示，现在担任美国国防大学国家战争学院教务和学术事务院长的辛西娅·沃森（Cynthia Watson）在2005年5月16日带领一个12人的代表团拜访上海社科院，就中国和平崛起的内外部环境、亚太地区安全与稳定、中东民主化等问题进行了座谈。一些中共官员出席了该会议，包括上海社科院的副院长黄仁伟、外事处处长李轶海和副处长王健。
 
-来源｜[自由](https://ec.ltn.com.tw/article/breakingnews/3897971)、[中時](https://www.chinatimes.com/newspapers/20210716000093-260202?chdtv)、[經濟日報](https://money.udn.com/money/story/7307/6250007)、[會議紀要](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2022/april/readout-ambassador-katherine-tais-virtual-meeting-taiwan-minister-without-portfolio-john-deng)、[udn](https://udn.com/news/story/6656/6250367)
+鉴于沃森在国家战争学院的影响力，她的这次访问可能会构成利益冲突。上海社科院与中共国安部关系密切，中共用其员工监视和评估潜在的西方间谍。沃森还是中美交流基金会出版的《中美聚焦杂志》的撰稿人。在2020年6月的一次采访中，沃森抨击了川普政府的2017年国家安全战略，她认为该战略专门针对中共国。】
+
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-126.jpg)
+**四、[罗伯特马龙博士4月19日在盖特发文：](https://gettr.com/post/p15xthfbc33)**
+
+**瑞安·科尔（Ryan Cole）医生说，mRNA疫苗会永久地制造刺突蛋白，很可能会导致血栓、心脏炎症、癌症。 **
+
+【盖文转《大纪元》报道，病理学家科尔博士说，辉瑞和莫德纳新冠疫苗中的mRNA并不是真正的信使RNA，它会持续地制造刺突蛋白，会对接种者的健康造成严重损害，如异常血栓、心脏炎症或癌症。正常的mRNA通常在几分钟到一两个小时内被分解，但这种mRNA逃避了这个分解过程，也逃避了免疫反应。
+
+一些研究表明，疫苗制造的刺突蛋白在人体内至少存在60天。刺突蛋白会破坏细胞的DNA自我修复机制，使我们的免疫系统下降和被抑制，这不是一件好事，因为癌症、病毒等其它疾病会被唤醒。科尔还透露，疫苗制造商和政府卫生机构早就知道mRNA疫苗存在问题，但由于共同的利益他们隐瞒了这一点。美国食品药品监管局FDA近一半的收入来自制药公司，美国疾控中心有许多疫苗专利，你认为这些机构会说疫苗的坏话吗？当然不会。】
+
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-53.png)
+**五、**[**罗伯特马龙博士4月18日在盖特发文：**](https://gettr.com/post/p15vyih7b2d)
+
+**请登录这个真正的全球新冠疫情峰会**（Global COVID Summit）网站获取你们所需要的信息，坚决反对试图盗用我们名字的白宫倡议。
+
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-73.jpg)
+**六、[郭文贵先生在4月18日的盖特视频中说：](https://gettr.com/post/p15yvjq82be)**
+
+**中共高层的内部战友预计周五上海解封，却没有发生，只有七哥了解中共这个流氓组织的本质；习太阳想折腾上海，韩正偷坐火车回上海看望江泽民和朱镕基，引起了习近平的警觉。 **
+
+中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除；懦弱的台湾不敢面对自澳洲购买的无人机实为中共售卖的事实。
+
+逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本也是如此，日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又是如何对待困在上海的外国人的，这是多大的反差！那些还在骂美帝国主义的同胞们，该醒醒了！
+
+**秘翻新闻 巴拉克 编辑报道**
+
+发布：陸柒陸捌
 
 * * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
