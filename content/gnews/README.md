@@ -15,94 +15,94 @@
 
 ---
 
-### [樱花FM｜日本盐野义新冠药物动物实验出现胎儿骨骼异常，不建议孕妇使用！](/content/gnews/1/README.md)
- ` 樱花FM`
+### [COVID-19疫苗副作用集萃（2022.4.19）打疫苗真是开盲盒，真不知会有哪种不良反应](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [中共的疲民驭民术在通常和特殊时期的展现](/content/gnews/2/README.md)
+### [全球疫情疫苗数据更新（诡异频发的球星猝死和空难）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20220419郭文贵大直播 ：爆料革命左踩国际刑警组织 右踏美国之音](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [不受制约的权力是人类文明的威胁，邪恶至极的中共是世界灾难的根源](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [4/19/2022【419五周年】：419绝对是中国女权运动新的开始，中国这些年整个的堕落就是因为男性“举而不坚”](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [樱花FM｜美国SEC再将搜狐等12家中概股列入“预退市”清单](/content/gnews/4/README.md)
- ` 樱花FM`
-
-### [从上海封城看中共对全人类的危害](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [樱花FM｜“出离”五浊恶世，开创新中国联邦“净土”](/content/gnews/6/README.md)
- ` 樱花FM`
-
-### [樱花FM｜信仰是一种生活方式](/content/gnews/7/README.md)
- ` 樱花FM`
-
-### [普京向乌克兰边境派遣核轰炸机](/content/gnews/8/README.md)
+### [中共称已与所罗门正式签署安全协议](/content/gnews/5/README.md)
  ` 日本東京方舟農場`
 
-### [美国菲律宾防长会晤，确认防务合作抵御中共国](/content/gnews/9/README.md)
+### [樱花FM｜全球中共病毒感染人数累计超5亿](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [上海封城映射出中共的邪恶和人民的懦弱](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [樱花FM｜纽约州副州长因贿赂、欺诈和伪造记录罪名被捕](/content/gnews/10/README.md)
+### [樱花FM｜上海持续封锁 96%的感染者无症状](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [樱花FM｜郭文贵先生2022年4月12日盖特视频全文字版](/content/gnews/11/README.md)
+### [樱花FM｜日本盐野义新冠药物动物实验出现胎儿骨骼异常，不建议孕妇使用！](/content/gnews/9/README.md)
  ` 樱花FM`
 
-### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/12/README.md)
+### [上海下“军令状”实现社会面清零，专家：极端抗疫把经济搞垮](/content/gnews/10/README.md)
  ` 日本東京方舟農場`
 
-### [樱花FM｜中共政府无法无天，美国令驻沪领馆非紧急人员撤离](/content/gnews/13/README.md)
- ` 樱花FM`
-
-### [4/19/2022【419五周年】五年前，没人相信咱能灭共；但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，中共内部很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服](/content/gnews/14/README.md)
+### [4/19/2022【419五周年】：419绝对是中国女权运动新的开始，中国这些年整个的堕落就是因为男性“举而不坚”](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [樱花FM｜邪恶的清零政策 真正的官僚杀人](/content/gnews/15/README.md)
+### [樱花FM｜美国SEC再将搜狐等12家中概股列入“预退市”清单](/content/gnews/12/README.md)
  ` 樱花FM`
 
-### [2022年4月19日文贵大直播摘要及音讯—银河系农场](/content/gnews/16/README.md)
+### [从上海封城看中共对全人类的危害](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [普京向乌克兰边境派遣核轰炸机](/content/gnews/14/README.md)
+ ` 日本東京方舟農場`
+
+### [善待宠物体现文明与关爱](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/16/README.md)
+ ` 日本東京方舟農場`
+
+### [4/19/2022【419五周年】五年前，没人相信咱能灭共；但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，中共内部很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022年4月19日文贵大直播摘要及音讯—银河系农场](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五月花简报（04/19/2022）](/content/gnews/17/README.md)
+### [五月花简报（04/19/2022）](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/18/README.md)
+### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/19/README.md)
+### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/20/README.md)
+### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/21/README.md)
+### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.19 俄乌战事汇总](/content/gnews/22/README.md)
+### [截至4.19 俄乌战事汇总](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/23/README.md)
+### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/25/README.md)
  ` 蓝莲花农场`
 
-### [来自上海人的心声：跟着共产党走进火葬场](/content/gnews/24/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/25/README.md)
+### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/26/README.md)
+### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/27/README.md)
+### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/28/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯反对联合国对布查战争罪指控进行调查](/content/gnews/30/README.md)
+### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [新西兰财经G乐部2022年4月19日:财经新闻整理](/content/gnews/31/README.md)

@@ -2,28 +2,50 @@
 ---
 
 
-## 中共的疲民驭民术在通常和特殊时期的展现
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2376170/)
+## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376238/)
 
-**作者：卢卡斯**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/34BB7632-F477-4DE4-BD48-18CEB7C2275B.jpeg)图源：GNEWS.ORG
-通常时期，中共用沉重的赋税带给普通民众极大的痛苦，使得民众想方设法要加入中共体制享受特权，已经进去的天天担心被踢出去，使得体制内人士都会对领导更加忠诚。中共独裁政府也会关心一点社会大众的福利，也会提供公共产品，如公共设施、公共教育和公共卫生服务来收割人心。但在提供公共教育时，独裁者更偏好提供初等教育，使工人农民提高劳动生产率，但不会让他们具有独立思考能力而质疑政府权威。因此，中共独裁国尽管民生凋敝、腐败猖獗，政权却很难被推翻打破；并且中共独裁者一旦控制了局面，反而比民主政权的领导人坐的更稳定、长久。
+整理：枳实
+美工：精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2390.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 4月19日）
 
-中共严控社会，要把国人的日常生活管起来。如果人民离开中共还可以活下去，那么既然有活命空间，就不必受制于中共，就有造反的条件。中共认为，乱世蝼蚁，活命第一，中共只要狠狠勒住老百姓的脖子，他们就不敢乱说乱动，中共政府通过越来越多控制供应与物价的手段来达到这一目的。凡是自由的东西对中共来说都是危险的和难以控制的。因此中共要控制社会，就要扼住中国老百姓的咽喉，听话的就给饭吃，不听话的就饿肚皮。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-上海封城是习共对上海人的饥饿强化训练，目的是让他们彻底驯服、臣服，如果老百姓得知真相，习必然失败，他收获的将是仇恨、憎恶和鄙视。习共玩弄动态清零，病态清零，极端清零，反医学、反科学的政治清零来忽悠控制 老百姓。中共独裁者绝没有兴趣去改善人民生活，相反他们认为贫穷饥饿的人民没有精力推翻独裁者。贫困、贫富不均、瘟疫、自然灾害反而有助于巩固独裁体制，独裁者往往会夸大瘟疫、地震等自然灾害的程度，来巩固自己控制政治经济体系的权力，这就是中共的多难兴邦。因为处在社会底层的饥饿的普罗大众，根本没有心情起来造反，他们更关心如何填饱肚子。上海封城中几近饿毙的老百姓，甚至能被廉价发霉的食物所收买，任由中共爪牙驱使，因为活下去是他们最卑下的诉求，可以放下所有的尊严。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2388.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2389.png)
+**频繁的运动员心脏病和飞行事故**
 
-中共从未不在乎过人们苦不苦，它只在乎其江山稳不稳。中共集中权利让它非常容易办事（譬如迅速封控大上海），但是老百姓放弃权利就会滑向了万劫不复的深渊。今天的中共也正处于极度孱弱的时期，正面临着内忧外患的灭顶之灾，越来越失去它对人们的控制，因此它准备加速回到过去毛时代无产阶级专政的全面管控，才能保证中共邪恶政权的生存和延续。而这个特殊时期也成了爆料革命和新中国联邦联合国内外正义力量推翻邪共最好的时机。
+今日的澳洲新闻：板球明星心脏病发作生命垂危，以及一起致命空难，这两则新闻有一个共同特点，那就是诡异的重复，都是近来频繁发生的类似事件。
 
-**编辑：LILY**
+前澳大利亚板球明星坎贝尔（ Ryan Campbell）[因心脏病发作后在伦敦一家医院被收入重症监护病房抢救](https://7news.com.au/sport/cricket/former-australian-cricket-international-fighting-for-life-after-heart-attack-c-6493521)。他是在陪孩子在球场训练时忽然发病的。这已经是出现在新闻中的第三例发生心脏病的澳洲板球明星了。三月份，前澳洲板球名将Shane Warne在泰国度假时死于心脏病，而此前不到24小时，另一位澳大利亚板球传奇人物罗德·马什死于心脏病。
 
-**发布：歪桑**
+今天另一则澳洲新闻是在新南威尔士州，[一架轻型飞机飞行员死于飞行事故](https://7news.com.au/travel/air-aviation/vic-pilot-dies-in-light-plane-crash-c-5803935)，仅仅3天前，另[一位乘客在西澳死于小型空难](https://www.9news.com.au/national/plane-crash-wa-johnson-makuei-mangar-east-kimberley-nurse/75623a65-b962-4037-938d-bdc797006ec1)。而今年4月，我们已经编译报道了[澳洲发生今年第五起致命空难](https://gnews.org/zh-hans/2268374/)。
 
-20220419
+全民广泛注射毒疫苗以来，明星，运动员，议员等知名人士发生心脏病发作，猝死，晕厥等屡见不鲜，若飞行员飞行中发生这种病症，尤其是轻型飞机飞行员，其后果几乎无可避免将是致命的。全民注射毒疫苗，心脏病的流行，空难的频繁发生，这三者是否有因果关系呢？请读者自行判断。
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
