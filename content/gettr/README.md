@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 8:38 PM (UTC)`
+
+4/19/2022 【419 5th Anniversary】Meng Hongwei, the then president of Interpol, was very reluctant to issue the red notice to me. He was the first to tell me that the CCP was going to have the Interpol issue the red notice to me, begging me not to go against the CCP. He said exposing Wang Qishan’s dirt meant I would be doomed and that the moment I open my mouth in the live broadcast on April 19, 2017, would be the time of my whole family’s demise. The HNA arranged a mansion for Meng Hongwei to live in France, but he himself is finished.<br/><br/>4/19/2022【419五周年】时任国际刑警组织主席孟宏伟当时非常不情愿给文贵发红通，他最早告诉文贵中共要发红通，并恳求文贵不跟中共做对，他说爆王岐山的料就是万劫不复，在419直播一张开嘴就是文贵全家灭亡之时；海航曾给孟宏伟在法国安排大房子住，而他本人现已完蛋<br/>
+![img](https://media.gettr.com/group47/getter/2022/04/19/20/ea4c66b9-b03e-de85-8fd8-9feac3efa369/out.jpg)
+
+---
+
 `@miles 4/19/2022 8:17 PM (UTC)`
 
 4/19/2022 【419 5th Anniversary】 In Guo’s Seven Principles, the principle ‘Not against Xi’ is followed by an undeclared statement “but to destroy Xi”; Fu Zhenghua, Sun Lijun and Bruno Wu deserve the harshest punishment under law.<br/><br/>4/19/2022【419五周年】郭七条里的”不反习”其实是要灭了习；傅政华, 孙力军和吴征必须受到最严厉的法律制裁<br/>
@@ -146,13 +153,6 @@
 
 【Ukraine Rescue】04/17/2022 Young men from Spain say that they don't like communism because it is very bad. They assure that many people in Spain will support the New Federal State of China, and they will sign up for #GETTR to watch the live broadcast.<br/><br/>【乌克兰救援】04/17/2022 来自西班牙的年轻人说: 我们不喜欢共产主义，因为共产主义非常糟糕，我们保证在西班牙有很多人支持新中国联邦。他们表示会注册盖特看直播。<br/><br/><br/>
 ![img](https://media.gettr.com/group28/getter/2022/04/19/03/1ed18b87-f9b9-2603-c002-d46c7bf3f206/out.jpg)
-
----
-
-`@miles 4/19/2022 3:01 AM (UTC)`
-
-2022-4-18《鸡血王喜币大作战》 第一百六十九集 嘉宾：青藤、Nick
-![img](https://media.gettr.com/group45/origin/2022/04/17/03/04bc0ca2-7182-685b-4d4a-1a101636e85c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
