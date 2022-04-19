@@ -2,31 +2,12 @@
 ---
 
 
-## 郭文贵先生419美国之音断播门事件回顾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2374075/)
+## 一切都是刚刚开始
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2373842/)
 
-作者：香草山 马克文，朱丽叶
-
-2017年4月19日，郭文贵先生应美国之音邀请，进行原计划大约3个小时的采访。采访前，中共通过其控制的国际刑警组织，给郭先生发出了红色通告，企图阻挠采访。美国之音在直播采访到1个小时20分钟的时候，电视屏幕转向主持人，主持人出现了一个手指划过喉咙的动作，随后直播被中断。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-393.jpg)
-美国之音成立于1942年2月，是美国政府设立的国际广播电视台，由美国纳税人出资，美国国会拨款提供经费。事件发生后，美国之音被广泛质疑受到中共干扰，违反言论和新闻自由的精神，外界纷纷要求彻查美国之音。同时，事件震惊了世界，郭文贵先生也被大量海内外华人的关注和跟随。
-
-美国之音断播门事件是郭文贵先生引领的爆料革命一个重要转折点，它让全世界看到中共对西方民主国家的渗透和影响之深，已经到了令人难以置信的程度。此次事件改变了美国等西方国家对中共认知。
-
-2017年，郭文贵先生在美国开启了爆料革命 ，通过直播爆料中共高层腐败的真相，曝光中共“蓝金黄”、“灭白计划”、“13579”等邪恶计划，揭露中共搞乱世界、称霸世界的企图。郭先生推行正道主义，坚持唯真不破，坚持传播香港危机、病毒和疫苗真相。揭露中共及世界独裁者的邪恶本质，努力唤醒世界。爆料革命向世界证明了中共是世界万恶之源。
-
-2020年6月4日，郭文贵先生创建新中国联邦，又建立了Gnews、盖特等新闻社交媒体，还建立了喜联储、喜币。爆料革命唤醒了全球千千万万有正义、有良知的人士。新中国联邦在全球建立了二十多个农场，战友的队伍越来越壮大。郭文贵先生美国之音断播门事件是改变世界历史进程的触发点，是向全球战友吹响的集结号。
-
-参考链接：
-1.[美国之音 (美国之音)](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E4%B9%8B%E9%9F%B3_%28%E7%BE%8E%E5%9B%BD%E4%B9%8B%E9%9F%B3%29)
-2. [专访新闻焦点人物郭文贵](https://www.youtube.com/watch?v=C_N5IHj0Fy8)
-3. [观察：美国之音断播争议涉及间谍话题](https://www.bbc.com/zhongwen/simp/chinese-news-40051430)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：文恩
-编辑/审核：Jack Li文阳
-校正/发稿：Fei797
+美国之音419断播门五周年特别直播20220419
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-27.png)
+*发布：Theodosia*
 
  
 
