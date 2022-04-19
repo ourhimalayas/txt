@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月17日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2375419/)
+## 更多中国城市收紧封城
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2375442/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-4.jpg)
+采编：文莱                   编译：晨熹
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月17日晚](https://gnews.org/zh-hans/2365523/)
+据【CTV NEWS】4月16日报道， 上海周六报告了新增19例中共病毒感染者，随即中共国其他地区也加强了控制。该国一直在实施旨在消灭奥米克戎变体的所谓“动态清零”政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-44.png)图片来源：CTV NEWS
+据悉，在中共国中部的郑州和中共国西北部的西安，以及靠近上海的苏州都已经下指令，控制居民、避免外出。据称上海市的病例总数占全国病例绝大多数，尽管2500万居民中的大多数一直处于封锁状态。
 
-音频处理：Fei797
-发稿：Fei797
+虽然严厉的封锁导致食物短缺、家庭分离、工资损失和对零病毒政策的支持度降低，以及广泛的供应链中断会拖累该国今年的经济增长，但中共仍表示“动态清零”是“现阶段中国疫情的最佳选择”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/more-chinese-cities-tighten-controls-as-shanghai-covid-cases-rise-1.5864000](https://www.ctvnews.ca/health/coronavirus/more-chinese-cities-tighten-controls-as-shanghai-covid-cases-rise-1.5864000)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑/上传：文所未闻*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

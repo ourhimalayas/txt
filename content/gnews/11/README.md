@@ -2,31 +2,23 @@
 ---
 
 
-## 有声|欧洲某国国防部官员对新中国联邦的救援行动表示感谢
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2375374/)
+## 加防长称俄军在乌克兰为种族灭绝
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2375403/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-4月17日，根据郭文贵先生临时直播信息 ，受欧洲某国国防部重要官员委托，通过文贵先生向在梅迪卡参加救援的新中国联邦人致谢，并表示日后，他会亲自看望每一位在梅迪卡前线参加救援的战友。
+采编：文莱           编译：晨熹
 
-大约一至两周前，欧洲某国国防部重要官员以普通人身份参观了梅迪卡新中国联邦营地帐篷，受到了战友们专业而礼貌地接待，并享用了著名的战地咖啡。新中国联邦人的素质与尊重深深感动了他。
+据【CTV NEWS】4月16日报道， 加拿大国防部长安妮塔·阿南德表示，“强有力的证据”表明，俄罗斯在乌克兰的“暴行”相当于种族灭绝。
 
-他表示，新中国联邦人救援了很多俄乌战争中关键人物的家属，与他们合作的乌克兰军方的某个重要人的家人就是被新中国联邦拯救的。
+![图片来源：CTV NEWS](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-43.png)图片来源：CTV NEWS
 
-文字版原文：[欧洲某国国防部官员对新中国联邦的救援行动表示感谢](https://gnews.org/zh-hans/2369275/)
+加防长是在总理特鲁多本周公开表示，俄罗斯在乌克兰所犯罪行是种族灭绝一词“绝对正确”后，发表上述观点的。而特鲁多则是呼应美国总统乔·拜登之前的说法。
 
-音频处理：Fei797
-发稿：Fei797
+虽然美加政府官员的评论都没有收到直接行动后果，但得到了乌克兰总统沃拉迪米尔·泽连斯基的赞扬，称他们的说法“直击要害”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+新闻来源：[https://www.ctvnews.ca/politics/strong-argument-to-be-made-what-s-happening-in-ukraine-is-a-genocide-says-defence-minister-1.5862771](https://www.ctvnews.ca/politics/strong-argument-to-be-made-what-s-happening-in-ukraine-is-a-genocide-says-defence-minister-1.5862771)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑/上传：文所未闻*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
