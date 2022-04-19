@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 3:51 PM (UTC)`
+
+04/19/2022 on the 1st day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 23 countries Top Music Video Charts <br/>No.1 🥇 on 24 countries Pop Music Video Charts <br/>Miracle continuous……. 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in 🇭🇰 , USA 🇺🇸, UAE 🇦🇪, Macau 🇲🇴, Taiwan 🇹🇼, Singapore 🇸🇬, Malaysia 🇲🇾, New Zealand 🇳🇿, Australia 🇦🇺, Spain 🇪🇸, Netherlands 🇳🇱, Germany 🇩🇪, France 🇫🇷, Hungary 🇭🇺, Canada 🇨🇦, Japan 🇯🇵, Sweden 🇸🇪, UK 🇬🇧, Italy 🇮🇹, Thailand 🇹🇭, Cambodia 🇰🇭, Indonesia 🇮🇩, Vietnam 🇻🇳, Greece 🇬🇷 <br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2374623/
+
+---
+
 `@miles 4/19/2022 3:33 PM (UTC)`
 
 【419 5th Anniversary】Mr. Miles Guo: 419 is the most important day to Whistleblowers’ Movement & the NFSC, the most taboo day for the Communist Party; many fellow fighters came together because of the 419 event, determined to take down the Chinese Communist Party!<br/><br/>【419五周年】郭文贵先生：419是爆料革命、新中国联邦最重要的日子，是共产党最忌讳的日子；很多战友因419结缘走到一起，立志铲除中国共产党！<br/><br/>
@@ -148,13 +154,6 @@
 
 4/18/2022 Miles Guo’s GTTR: The staff at the US Customs were very sympathetic to the Shanghainese who escaped to the US. They were allowed to enter the country even though their visas expired. Similar things happened in Japan. One of the Japanese businesses in Shanghai evacuated almost all its management team to Japan upon the lockdown of Shanghai. Think about how the CCP treats its own people, and how it treats the foreigners trapped in Shanghai. What a contrast! Those fellow Chinese who are still cursing the American Imperialists, you’ve got to wake up!<br/><br/>4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本亦如此，日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差！那些还在骂美帝国主义的同胞们，该醒醒了！<br/>
 ![img](https://media.gettr.com/group11/getter/2022/04/19/00/16eecb7c-2607-6c77-681a-935d6d1915f8/out.jpg)
-
----
-
-`@miles 4/19/2022 12:13 AM (UTC)`
-
-4/18/2022 Miles Guo‘s GETTR：What the CCP is planing to do in Qingdao, Harbin, Dalian, and Haikou is to murder more people through vaccination with a disguise of “zero-COVID” policy; the CCP defines the people over 60-year old as social burden and wants to remove this population group as they don’t deserve to be alive; cowardly Taiwanese are afraid to acknowledge the fact that the drones purchased from Australia are actually sold by the CCP<br/><br/>4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除；懦弱的台湾不敢面对自澳洲购买的无人机实为中共售卖的事实 <br/>
-![img](https://media.gettr.com/group9/getter/2022/04/19/00/f841a3af-b037-33b3-f0d7-04e9358383db/out.jpg)
 
 ---
 
