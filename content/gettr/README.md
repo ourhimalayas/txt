@@ -17,17 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 12:46 AM (UTC)`
+
+2022.04.18 晚  新中国联邦 | 新闻   回顾419断播事件的重要意义；乌克兰救援感动了欧洲某国国防高官
+![img](https://media.gettr.com/group46/origin/2022/04/19/00/c770ecaa-7b90-04c6-59b9-ab6dbe06f116/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/19/2022 12:34 AM (UTC)`
 
 【Ukraine Rescue】04/17/22 A volunteer from Mexico thinks that we're working for a good cause,  because the dictatorial regime of the CCP should not exist in the 21st century. She also introduces Nicole to the psychiatric service dog who works with her and is able to help cope with the refugees' PTSD, anxiety, and stress crises.<br/><br/>【乌克兰救援】04/17/22 一位来自墨西哥的志愿者认为我们的工作非常有意义，因为中共国的独裁政权不应存在于21世纪。她还向妮可介绍了同她一起工作的精神治疗犬，她能够帮助应对难民的创伤后应激障碍、焦虑、压力危机。
 ![img](https://media.gettr.com/group8/getter/2022/04/19/00/fd2b309c-a3dd-7ec0-bfa6-efc4ab39ec46/out.jpg)
-
----
-
-`@miles 4/19/2022 12:32 AM (UTC)`
-
-2022.04.18 晚  新中国联邦 | 新闻   回顾419断播事件的重要意义；乌克兰救援感动了欧洲某国国防高官
-![img](https://media.gettr.com/group46/origin/2022/04/19/00/c770ecaa-7b90-04c6-59b9-ab6dbe06f116/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,16 +2,10 @@
 ---
 
 
-## 上海白卫兵暴力打人。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2370388/)
+## 来自法国的国际无疆界救援者（SSF）和来自意大利的IOM （国际移民组织）人员最爱NFSC咖啡、最支持新中国联邦灭共。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2370449/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

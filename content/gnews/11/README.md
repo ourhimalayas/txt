@@ -2,30 +2,18 @@
 ---
 
 
-## 今日盖特大V推荐 — 卡罗琳·德托尼（Caroline Rodrigues de Toni）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2370259/)
+## 同济大学的拉屎逻辑
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2370302/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ap3jv-pyshl-4.jpg)
-**盖特链接：** [https://gettr.com/user/caroldetoni](https://gettr.com/user/caroldetoni)
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/04/22-6.png)
+因为担心厕所垃圾会传染，把垃圾桶撤了让带回宿舍。担心水龙头会传染，他不让洗手，只能回寝室用酒精、湿纸巾擦。上完厕所后不让洗手。疫情期间不让洗手疫情期间不让洗手，天下还有这么荒谬的一个事情嘛？哪个地方它是通过不让洗手的方式来进行一个防疫的，你们就说扯不扯，这是同济大学211，985哎一个重点高校哎。这是什么荒谬的一个小说里面才会有的一个情节，你做梦也想不到一个计划经济它能发展到计划拉屎的一个地步。
 
-**卡罗琳·德托尼自述：**
+消息来源：
 
-圣卡塔琳娜州的联邦代表， 保守派， 反全球化主义者，亲生活，支持武器，反对马克思主义文化，支持更少的政府和更多的自由。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/llpvv-4.jpg)**图片来源：网络**
-**卡罗琳·德托尼简介：**
-
-卡罗琳·德托尼（Caroline Rodrigues de Toni，生于1986年9月1日）是巴西政治家和律师，沙佩科（SC）自由巴西运动（MBL）的前任主席。
-
-卡罗琳·德托尼自2016年到2018年代表巴西进步党任职。2018 年，她加入了社会自由党，成为圣卡塔琳娜州党支部的副领袖，自2019年以来一直在州议会任职。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

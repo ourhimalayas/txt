@@ -15,77 +15,77 @@
 
 ---
 
-### [上海白卫兵暴力打人。](/content/gnews/1/README.md)
+### [来自法国的国际无疆界救援者（SSF）和来自意大利的IOM （国际移民组织）人员最爱NFSC咖啡、最支持新中国联邦灭共。](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4月17日， 苏州102岁老人，自己一个人在家，自己每天下楼做核酸。](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
+### [连花清瘟胶囊的诞生和发迹史（2）](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
 
-### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/3/README.md)
+### [4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [连花清瘟胶囊的诞生和发迹史（1）](/content/gnews/4/README.md)
- ` 加拿大温哥华英里农场`
+### [中共国 上海 倒卖防疫物资。](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [同济大学的拉屎逻辑](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印度在俄乌局势中的举动：获取多利益和谈判筹码](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
-
-### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/9/README.md)
- ` MOS香港部`
-
-### [约翰逊将首访印度](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
-
-### [今日盖特大V推荐 — 卡罗琳·德托尼（Caroline Rodrigues de Toni）](/content/gnews/11/README.md)
+### [共匪惧怕众怒，把封城改为静态管理、静默管理](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海，正在醒来](/content/gnews/12/README.md)
+### [上海需要帮助的人，太多了，记住这所有的一切都是ccp造成的。](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [上海白卫兵暴力打人。](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4月17日， 苏州102岁老人，自己一个人在家，自己每天下楼做核酸。](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [连花清瘟胶囊的诞生和发迹史（1）](/content/gnews/10/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [同济大学的拉屎逻辑](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印度在俄乌局势中的举动：获取多利益和谈判筹码](/content/gnews/14/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/15/README.md)
+ ` MOS香港部`
+
+### [约翰逊将首访印度](/content/gnews/16/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [今日盖特大V推荐 — 卡罗琳·德托尼（Caroline Rodrigues de Toni）](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [上海，正在醒来](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/13/README.md)
+### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022年3月26日 2022年度CLUBS年會直播](/content/gnews/14/README.md)
+### [2022年3月26日 2022年度CLUBS年會直播](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [全球疫情疫苗数据更新(2022.4.18)](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【粤语配音】2022年4月18日：国内清零是掩护，疫苗打死你是真](/content/gnews/16/README.md)
- ` MOS香港部`
-
-### [埃及将首次进口印度小麦 旨在实现来源多元化](/content/gnews/17/README.md)
+### [埃及将首次进口印度小麦 旨在实现来源多元化](/content/gnews/21/README.md)
  ` 加拿大温哥华英里农场`
 
-### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/18/README.md)
+### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [无症状感染者为何要集中隔离？看共匪如何强词夺理](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2022年4月17日 文贵带货大直播](/content/gnews/20/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/21/README.md)
+### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/23/README.md)
  ` 蓝莲花农场`
 
-### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/22/README.md)
+### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/23/README.md)
- ` 扬帆枫叶快讯`
-
-### [单克隆抗体治疗可能对奥米克戎BA.2无效](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
