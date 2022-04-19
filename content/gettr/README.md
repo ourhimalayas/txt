@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 5:26 AM (UTC)`
+
+19/04/2022  VEVO- Miles Guo latest MV “ Chained Dream”(official Video) Live on YouTube 🎉🎉🎉🎉🎉🎉🎉<br/><br/>4月19号， VEVO- 《铁锁梦》官方视频正式上线YouTube 🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/><br/> <br/><br/>https://youtube.com/watch?v=gGYtbjsi4LM&feature=share
+
+---
+
 `@miles 4/19/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -147,13 +153,6 @@
 
 04.18.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group10/origin/2022/04/18/18/28a1cc82-6bbc-81e0-0eb4-c36d598a70d7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/18/2022 3:56 PM (UTC)`
-
-4月18号，《铁锁梦》MV在iTunes上线后，仅在1个半小时后迅速登榜澳洲区MV总榜第一名🥇，MV流行榜第一名🥇，万分感谢澳洲的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉<br/><br/>4/18/2022 Just after 1.5 hours of launching, Miles Guo’s latest MV the “Chained Dream” has hit No.1 🥇on Australia 🇦🇺 MV Top Music Video Charts and No.1 🥇on Australia 🇦🇺 MV Pop Music Video Charts ! Thanks to our brothers and sisters in Australia!🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉🎉
-![img](https://media.gettr.com/group22/getter/2022/04/18/15/480bc6c1-bb55-34c9-f7b9-e61482fe1d2f/891d9ee3df9282844b662c5039178df4.jpg)
 
 ---
 

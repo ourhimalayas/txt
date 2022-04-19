@@ -2,30 +2,45 @@
 ---
 
 
-## 中日财经爆┃封城阻塞供应链 特斯拉上海工厂被迫继续推迟复产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371585/)
+## 研究发现未接种疫苗的人比接种疫苗的人更健康
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2371855/)
 
-撰稿：东京樱花团/asket
+*评论：拒绝毒疫苗，任何让你接种毒疫苗的人都是‘杀人犯’*
 
-特斯拉本周计划在上海重新复产，因 “供应商的物流问题 “而推迟。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-15.png)[图片来源](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
-整个周末，关于特斯拉上海工厂如何最终在未来几天重新开业的文章都被报道出来。例如，路透社报道说，该公司在关闭3周后，正在 “拼命 “重新开放其上海工厂。
+据《newstarget.com》作者：Ethan Huff，2022年4月17日报道：
 
-支持特斯拉的博客electrek也报道说，特斯拉的目标是 “在被关闭大约三周后，于4月18日星期一重新开始生产，但错过了超过4万辆电动车的生产”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2299.png)图片来源：原文
 
-“为了准备重启，特斯拉已经将工人召回上海工厂，根据中国的’闭环管理’程序，他们将需要住在现场，”两位消息人士告诉路透社。
+疫苗是安全和有效的吗？根据美国卫生与公众服务部（HHS）2011年委托进行的一项研究，并非如此。
 
-但是根据Street Insider周一早上的报道，重启的希望可能几乎一出现就破灭了。该公司正准备在周一重新开业，但由于 “供应商的物流问题”，被迫将重启时间推迟一天。
+例如，像维生素K疫苗这样的疫苗并不像声称的那样能提供持久的免疫保护，而是实际上降低了免疫力，导致比不接种疫苗的人更糟糕的健康结果。
 
-与此同时，竞争对手大众汽车公司据说已经在中国重启了生产。报道称，通用汽车也在考虑本周重新开工的计划。
+事实上，未接种疫苗的人往往比接种疫苗的人更健康。这与西方人对疫苗的普遍看法背道而驰。
 
-同时，中国继续在全国部分地区扩大封锁，不仅在国内造成混乱，而且对美国等高度依赖进口中国商品的国家的供应链造成另一个冲击。
+在调查了美国政府的疫苗不良事件报告系统（VAERS）后，HHS的研究人员发现，“疫苗不良事件很常见”。同一份报告认为，“只有不到1%的疫苗副作用被报告过”。
 
-信息来源：** **[**Tesla’s Planned Shanghai Reopening For This Week Pushed Back Due To “Logistics Problems With Supplier”**](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
+你可能没有听说过这项研究，因为当然，它被广泛审查和忽视了。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+这篇论文被称为“对照组试验研究”，该组织的创始人乔伊-加纳（Joy Garner）是这样解释的。疫苗的营销口号‘安全’一直依赖于在提及副作用时被证实的形容词‘罕见’。在美国《侵权法重述（第二版）》402A（注释k）中，疫苗被正式归类为‘不可避免的不安全’。
+
+但我们被告知疫苗是‘安全的’。疫苗不仅不安全，而且是不可避免的。而且这些伤害很常见，至少比VAERS报告的要常见100倍。
+
+事实上，目前我们的法律被滥用，保护制药业不受这种欺诈行为的影响，也不受它所造成的伤害的影响，但这并没有改变字典上对欺诈一词的定义。很少有人会有如此严重的认知失调，以至于一旦意识到疫苗是‘不可避免的不安全’产品，通常会使人受伤、致残和死亡，他们仍然会相信疫苗是‘安全的’。
+
+* * *
+
+原文连接：[https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html](https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – HotPixel
+评论：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

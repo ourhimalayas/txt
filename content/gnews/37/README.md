@@ -2,55 +2,25 @@
 ---
 
 
-## 墨西哥总统有争议的电力改革被国会否决
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2371019/)
+## 蔡英文表示台湾坚守主权与民主的决心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371136/)
 
-翻译：噜噜咪
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+据4月16日台湾媒体消息，台湾总统蔡英文及副总统赖清德，当天以录像方式向“第11届海内外台湾国是会议”致辞，表达了台湾坚守主权与民主的立场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-40.jpg)
+蔡英文说，本次大会的主题是维护台湾主权、联合印太同盟。在俄乌战争中，民主国家面对独裁国家威胁，在关心乌克兰的同时也高度关注台海局势。而台湾的立场就是坚持守护主权和民主，与理念相近的国家站在一起，互相协助、贡献自己的力量。近年来台湾各方面发展良好，有越来越多的国家在为台湾发声，支持台湾参与国际组织，相信台湾的未来一定会更好。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
+副总统赖清德表示，许多民主国家的峰会，包括G7、美日、美欧高峰会等，都将台海和平稳定列入了正式档当中。美国政府对台湾提出的各种法案，拜登总统特使团及前国务卿彭佩奥来访，都表达了对台湾的坚定支持。而台湾会确保自己的的前途将由台湾人民来决定，避免成为第二个乌克兰。
 
+参考链接：[從俄烏戰爭看台灣 總統：台灣堅守主權與民主](https://www.rti.org.tw/news/view/id/2130195)
 
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-380.jpg)2022年4月17日，墨西哥首都墨西哥城，议员出席会议，就总统安德烈·曼努埃尔·洛佩兹·奥布拉多捍卫的电力部门宪法改革进行投票，他希望加强国家对电力市场的控制，牺牲私人运营商的利益。
-
-墨西哥城，4月18日（路透社）- 墨西哥总统安德烈·曼努埃尔·洛佩斯·奥布拉多加强国家对发电的控制的计划周日在议会被否决，因为反对党在对一项他们认为会损害投资和违反国际义务的法案时团结一致。
-
-他的国家复兴运动(MORENA)及其盟友在国会下院500个席位中距离所需的三分之二多数票还差近60票，在持续了12个多小时的喧闹会议后，只得到了275票。
-
-洛佩兹·奥布拉多试图推翻之前放宽电力市场的宪法改革，他提议的改革将取消国有联邦电力公司（CFE）首先出售最廉价电力的要求，允许其在其他电力公司之前出售自己的电力。
-
-根据该法案，联邦电力公司的发电量将至少占全国总发电量的54%，能源监管也将从独立机构转移到国家监管机构。
-
-这些有争议的提案面临来自商业团体和美国（墨西哥的最大贸易伙伴）以及其他盟友的大量批评，他们认为这将违反区域贸易协定，即《美国-墨西哥-加拿大协定》（USMCA）。
-
-洛佩兹·奥布拉多认为，该法案将保护消费者，并使该国的能源更加独立，他说该立法对他“改造”墨西哥的计划至关重要。
-
-虽然他的党派处于不利地位，但他在投票中寻求利用他在上周末关于其领导地位的公投中的胜利。
-
-反对党公民运动党的立法者豪尔赫·阿尔瓦雷斯·梅内斯在投票前说，如果颁布这些提案，将损害墨西哥。
-
-他补充说：“没有一个专家、学者、环保人士或活动家有一丝怀疑——这项法案将提高电价，减缓我国向（清洁）能源的过渡，并违反国际协议。”
-
-该法案还包含一项将锂资源国有化的规定。
-
-洛佩兹·奥布拉多本周表示，如果该法案被否决，他将于周一向国会提交另一项法案，旨在至少使拟议立法中的锂部分获得通过。
-
-新闻来源：[Mexico’s President’s Controversial Electricity Reforms Are Rejected by Congress](https://www.americasquarterly.org/article/mexico-china-the-us-a-changing-dynamic/)
-
-* * *
-
-素材:peacelv
-审核：文乐
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,30 +2,25 @@
 ---
 
 
-## 为保习近平连任，中共誓将“清零”防疫进行到底
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2370952/)
+## 泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371135/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-11.jpg)为保习近平连任，中共誓将“清零”防疫进行到底 网络图片
-据美国之音4月18日报道，中共当局严厉的“清零”防疫政策造成封城下的上海等地区民怨沸腾，许多人公开表达对中共不满。中共喉舌伪人民日报18日发表评论员文章，呼吁全民支持习近平提出的防疫政策。显示“清零”政策不会改变。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+据多家媒体报导，4月16日，俄罗斯再度空袭基辅，并加强了对马里乌波尔的进攻。乌克兰总统泽连斯基发出警告，如果马里乌波尔最后一批守军阵亡，将会终止俄乌和谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-39.jpg)
+尽管俄罗斯对外宣称已经攻占马里乌波尔，但事实上当地乌军仍然在坚守一座炼钢厂。俄国防部发言人科纳申科夫称，乌军只有缴械投降才能免于被消灭。泽连斯基则明确警告，马里乌波尔的守军如果阵亡，将会摧毁本就陷入僵局的俄乌和谈。
 
-这表明，中共已将“动态清零”的新冠防疫政策当作政治任务，与今年要召开的二十大挂钩。习近平将打破自江泽民以后中共最高领导人只连任两届的惯例，在二十大上连任第三届。习近平2018年已经修宪，取消国家主席两届任期的限制。
+在接受采访时，泽连斯基坚定地表示，不会拿国家领土和人民的生命作为谈判的筹码。
 
-获得永久和绝对的权利是习近平的目的，谁当中共领导人都是如此，这是中共邪恶的本质所决定的。动态清零只是借口，在习近平发动对台湾的战争之前，在国内不同的城市轮流测试百姓的压力承受能力，停水、停电，完全断绝生活物资。测试的目的是为管控，后方不乱，前方才能打仗。普京发动的战争导致俄罗斯遭全球制裁，习近平即将步普京后尘，因此提前让中共国老百姓尝试断水断粮。中共红魔一日不灭，中国人民的灾难永远不会停止。
+参考链接：[Ukraine-Russia peace talks will end if Moscow ‘eliminates’ Mariupol fighters](https://amp.theguardian.com/world/2022/apr/17/ukraine-russia-peace-talks-will-end-if-moscow-eliminates-mariupol-fighters-says-zelenskiy)
 
-新闻参考链接：[https://www.voachinese.com/a/party-urges-support-for-xi-as-anger-grows-in-china-over-lockdowns-20220418/6534190.html](https://www.voachinese.com/a/party-urges-support-for-xi-as-anger-grows-in-china-over-lockdowns-20220418/6534190.html)
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
-
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

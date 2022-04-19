@@ -2,112 +2,39 @@
 ---
 
 
-## 中共强摘器官令人震惊的得到证实
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2371356/)
+## 【两岸三地谈中国】第10篇 从旗舰“莫斯科号”被击沉谈俄乌战争反转及中共入侵台湾
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2371616/)
 
-**前国务次卿基思·克拉奇：**
- “我们首次表明，移植外科医生是刽子手 —— 即处决方式是器官摘取。” – [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 强摘器官令人震惊的得到证实。 中共国政府怎么能在任何问题上值得信任？ 【转medscape·com 网：有证明显示，中共国外科医生在脑死亡前摘取器官】
+作者：加拿大温哥华扬帆农场 – 空山新雨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/空山新雨.jpg)
+2022年4月14日是俄乌战争的Big Day，这一天俄罗斯引以自豪的导弹巡航舰“莫斯科号”在黑海被2枚导弹击沉，这是俄罗斯自2022年2月24日入侵乌克兰以来最大的战损，该舰价值7.5亿美元。具有反导弹能力的“莫斯科号”竟被导弹击沉，这不可思议！更悲催是俄罗斯不知道敌人是谁？他们相信乌克兰没有这个能力。
 
+据说普京听到战报后大发雷霆，暴怒，将办公室的水晶茶几和茶具及一切可以打碎的贵重摆设和灯具全部摔碎，是谁击沉了他的战舰？他“拔剑四顾心茫然”，不知敌人是谁。悲伤莫名的普京一夜未眠，身边的工作人员说从没有见过总统发这样的大火。
 
+莫斯科号巡洋舰排水量超过13000顿，船长186米，在冷战时期，“光荣级”导弹巡洋舰是苏联海军最锐利的反舰利器，因此被称之为旗舰。俄罗斯总统普京曾多次登上莫斯科号，并在该舰接待多位外国领袖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2284.png)图片来源：Twitter
+“莫斯科号”战舰被击沉，不但对俄罗斯部队士气和国家象征意义是沉重打击，更为严重的是它将导致整个俄乌战局反转。首先，“莫斯科号”被击沉，整个俄罗斯黑海舰队将会失去控制黑海的能力；其二，失去黑海舰队的保护，俄罗斯将会失去已占领的克里米亚半岛；其三，失去克里米亚半岛就会无法在乌克兰南部地区立足；其四，没有乌克兰南部的策应，乌克兰东部地区将会处于一个孤立无援的地位，一旦乌克兰东部失守，整个俄乌战争就会以俄罗斯入侵失败结束。
 
-> “We have shown for the first time that the transplant surgeons are the executioners — that the mode of execution is organ procurement.” – Shocking confirmation of forced organ harvesting in China. How can the Chinese government be trusted on any issue? [https://t.co/ZtFEjfK0dV](https://t.co/ZtFEjfK0dV)
-> — Keith J. Krach (@KeithJKrach) [April 18, 2022](https://twitter.com/KeithJKrach/status/1516071601925767174?ref_src=twsrc%5Etfw)
+奥地利总理卡尔·内哈默 (Karl Nehammer) 4月11日访问俄罗斯首都莫斯科，这是俄乌战争以来首位与普京会谈的外国领导人。奥地利总理对普京的“战争逻辑”持“悲观态度”，他说：““他现在沉浸在自己的世界里……”。
 
+中共国和俄罗斯是合作无上限全面伙伴关系，他们有战略同盟，即俄罗斯和中共国要同时与美国和西方国家叫板，要同时在世界上挑起2-3场战争。据郭文贵先生情报，中共一定要攻打台湾，挑起台海战争。习近平和普京一样也是活在自己的世界里，他信奉“一定要统一台湾！”这句口号，他是一个“不知天上宫阙，今夕是何年”的做梦人。
 
+台湾对美国的国家战略地位要远远超过乌克兰，而且美国与台湾之间有《台湾关系法》，所以，中共一旦入侵台湾，美国可能会武力干涉，而且美国跟日本有美日安保条约，一旦中美开战，日本也会加入对中共的战争，一旦开战，美国及盟友将会运用外太空，太空，空中，地下时间和空间三维四维立体作战，战略战术一定比俄“莫斯科号”战舰被击沉还要劲爆，更加不可思议，战略战术一定是中共从没有见识过的。中共的失败是毫无疑问的！
 
-**众议员马乔里·泰勒·格林： **
-民主党和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 热爱新冠。全都利用新冠突发事件当作他们 [#共产主义](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89) 风格的政策失败的借口。并不是新冠封锁在伤害 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD)，而是多年来为了刺激经济的巨大超支，制造了巨大的问题。但他们隐藏了这个原因。听起来是不是很相似？
+上传/发稿 – 【云起时】
+撰稿 -【空山新雨】
+素材/采编 -【空山新雨】
+校对/审核 -【云起时】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-> Dems & China love covid🥰
-> 
-> Both use covid flare-ups as the excuse for their communist style policy failures.
-> 
-> It’s not covid lockdowns hurting China, it’s the years of massive overspending to inflate their economy that created BIG problems.
-> 
-> But they hide it.
-> 
-> Sound familiar?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [April 18, 2022](https://twitter.com/RepMTG/status/1516046883214749698?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-在 [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 的帮助下，资金雄厚、运作复杂的贩毒集团，正在利用我们的移民政策，从贩毒和贩卖人口中赚取数十亿美元 —— 而拜登政府和大型媒体却对此置之不理。 【附华盛顿监察员网登载哈格蒂议员的文章：拜登的边境疏忽造成了国家安全和毒品危机】
-
-
-
-> Well-financed, operationally sophisticated drug cartels, with the help of the Chinese Communist Party, are exploiting our immigration policies to make billions from drug & human trafficking—and it's being ignored by the Biden Admin & the corporate media. [https://t.co/kJoWHLfK7z](https://t.co/kJoWHLfK7z)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 18, 2022](https://twitter.com/SenatorHagerty/status/1516128176467898368?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-随着第42条的结束，我确信 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 现在正在增加芬太尼的生产以运往墨西哥。墨西哥贩毒集团正在崛起。将有大量非法毒品涌入边境。 拜登总统@POTUS的这个错误将产生毁灭性的后果。
-
-
-
-> With Title 42 set to end, I'm sure the CCP is ramping up fentanyl production right now to ship to Mexico. The Mexican cartels are ramping up. There's going to be a flood of illegal drugs coming across the border.
-> 
-> This mistake by [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will have devastating consequences.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 19, 2022](https://twitter.com/SenatorHagerty/status/1516218773375700994?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利新闻办公室：** 
-霍利议员的法案“是在拜登政府批准向 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 提供 9500 万美元的武器计划后几天提出的，这是近几个月来的第二次，以帮助保卫台湾免遭 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的入侵。” 【转华盛顿自由灯塔报：霍利：美国必须“尽快”武装台湾 在美国批准武器计划后，中共国警告“灾难”即将来临】
-
-
-
-> Sen. Hawley’s bill “comes just days after the Biden administration approved a $95 million arms package to Taiwan, the second in recent months, to help defend the territory from a Chinese incursion."[https://t.co/rn4lBnUFLA](https://t.co/rn4lBnUFLA)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 18, 2022](https://twitter.com/SenHawleyPress/status/1516094493270974471?ref_src=twsrc%5Etfw)
-
-
-
-**美国务院发言人内德·普莱斯：** 
-美国祝贺台湾民主活动家李明哲获释和回归，他因倡导人权而在 [#中华人民共和国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD) 监狱被不公正关押五年。
-
-
-
-> The United States celebrates the release and homecoming of Taiwanese democracy activist Lee Ming-che after five years of unjust detainment in a People's Republic of China prison for human rights advocacy.
-> — Ned Price (@StateDeptSpox) [April 18, 2022](https://twitter.com/StateDeptSpox/status/1516111792317026314?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹： **
-暴虐的 #中共病毒 强制令需要结束！ 
-我长期以来一直支持结束对公共交通的强制口罩指令，我将继续战斗，直到这些指令永远消失。 【附美国国家电视台新闻：佛罗里达的一个联邦法官判定在飞机、火车、巴士及其他公共交通工具上实行的联邦口罩强制令非法】
-
-
-
-> The tyrannical COVID mandates need to end!
-> 
-> I’ve long supported an end to mask mandates on public transportation and I will continue to fight until these mandates are gone for good. [https://t.co/plrFK1mpcY](https://t.co/plrFK1mpcY)
-> — Senator Ted Cruz (@SenTedCruz) [April 19, 2022](https://twitter.com/SenTedCruz/status/1516205514945925125?ref_src=twsrc%5Etfw)
-
-
-
-**众议员布赖恩·马斯特: **
-**🚨**胜利了！佛罗里达州联邦中区地方法院驳回了疾病预防控制中心在飞机上的违宪的强制口罩要求。立即生效，这意味着航空公司将结束他们的口罩强制！让佛罗里达州为全国的自由铺平道路！
-
-
-
-> 🚨 Victory! The federal Middle District of Florida district court has struck down the CDC’s unconstitutional mask mandate on planes. That means airlines are ending their mandates effectively IMMEDIATELY! Leave it to Florida to pave the way for freedom across the country!
-> — Rep. Brian Mast (@RepBrianMast) [April 19, 2022](https://twitter.com/RepBrianMast/status/1516218105067974656?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院：** 
-普京的发言人德米特里·佩斯科夫在掩盖克里姆林宫最可怕的暴行的宣传和虚假信息活动中发挥了关键作用，包括使用化学武器和军事打击杀害平民。在这里了解更多信息：
-
-
-
-> Putin's spokesperson Dmitri Peskov has played a key role in propaganda and disinformation campaigns to cover up the Kremlin’s most horrific abuses including the use of chemical weapons and military strikes killing civilians. Learn more here: [https://t.co/8k3cLgLAk0](https://t.co/8k3cLgLAk0)
-> — Department of State (@StateDept) [April 19, 2022](https://twitter.com/StateDept/status/1516221280906670080?ref_src=twsrc%5Etfw)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,32 @@
 ---
 
 
-## 泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371135/)
+## 俄罗斯军队仍具有高达百分之八十五的军事能力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2371301/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据多家媒体报导，4月16日，俄罗斯再度空袭基辅，并加强了对马里乌波尔的进攻。乌克兰总统泽连斯基发出警告，如果马里乌波尔最后一批守军阵亡，将会终止俄乌和谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-39.jpg)
-尽管俄罗斯对外宣称已经攻占马里乌波尔，但事实上当地乌军仍然在坚守一座炼钢厂。俄国防部发言人科纳申科夫称，乌军只有缴械投降才能免于被消灭。泽连斯基则明确警告，马里乌波尔的守军如果阵亡，将会摧毁本就陷入僵局的俄乌和谈。
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2271.png)图片来源 ：商业内幕
+尽管俄罗斯入侵乌克兰以来的两个月内的战斗基本不成功，损失了超过2万名士兵，但据五角大楼称，他们仍然拥有“绝大部分”的战斗力。4月18日，《华盛顿观察家报》对此作了报道。
 
-在接受采访时，泽连斯基坚定地表示，不会拿国家领土和人民的生命作为谈判的筹码。
+周一，五角大楼发言人约翰·柯比（John Kirby）告诉记者，“我们的评估仍然认为，总的来说，他们（俄罗斯军队）拥有他们军事能力的绝大部分战斗力，从他们在秋季和初冬的几个月和几个星期里所集结的东西来看，他们仍然有很多战斗力可以集结使用。”
 
-参考链接：[Ukraine-Russia peace talks will end if Moscow ‘eliminates’ Mariupol fighters](https://amp.theguardian.com/world/2022/apr/17/ukraine-russia-peace-talks-will-end-if-moscow-eliminates-mariupol-fighters-says-zelenskiy)
+根据乌克兰国防部周一早些时候的说法，莫斯科也损失巨大，包括167架俄罗斯飞机、790辆坦克、8艘船和67套防空作战系统以及其他设备被摧毁。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+文章解释道，在俄罗斯于2月24日开始入侵时，他们从三条轴线（北部、南部和东部）进攻，但他们后来放弃了推翻首都基辅的努力，而这是他们当初的主要目标。自从放弃这一目标后，俄罗斯已将其注意力转向具有战略意义的港口城市马里乌波尔和顿巴斯地区，该地区有大量亲俄分离主义分子存在。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+因此，俄罗斯现在将更多的资源用于其在该地区的攻势，并进行了增援。这些增援以11个新的营级战术小组（BTG）的方式出现，从而使该地区的营级战术小组总数达到了76个。一位美国高级国防官员周一告诉记者，每个营级战术小组大约由800-1000名服役成员组成。
+
+这位美国高级国防官员4月8日告诉记者，俄罗斯还有80%-85%的军事能力。而科比周一在被问及时拒绝提供一个百分比数字。
+
+报道指出，上周末，美国总统乔·拜登（Joe Biden）又授权向乌克兰提供8亿美元的军事援助，包括11架米-17直升机、500枚标枪导弹和数千套其他反装甲系统、300套弹簧刀无人机系统等，使美国自入侵伊始提供的军事援助总额达到约26亿美元。
+
+文章称，美国提供的一些军事援助需要额外的培训，美国也将提供这些培训，而且应该只需要几天就能完成培训。
+
+*责编：白夜*
+
+**新闻来源**
+
+[Russia still has ‘vast majority’ of combat power available as invasion continues](https://www.washingtonexaminer.com/policy/defense-national-security/russia-still-has-vast-majority-of-combat-power-available-as-invasion-continues)
 
  
 

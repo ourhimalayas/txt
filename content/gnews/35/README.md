@@ -2,24 +2,73 @@
 ---
 
 
-## 美国志愿者珍视在新中国联邦庆祝逾越节
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371132/)
+## 与普京的会谈毫无进展 意大利总理表示这是“浪费时间”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2371171/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月15日，在前线犹太人于新中国联邦的大帐篷中庆祝他们象征自由的传统节日——逾越节——之际，Nicole战友采访了一位来自美国的志愿者艾米·卡兹，请她谈一谈过节的感受。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-36.jpg)
-艾米对于在梅迪卡和来自全世界的人们聚在一起庆祝这个重要节日，庆祝犹太人摆脱埃及人的奴役和统治，感到非常珍贵，并说，大家能在这里聚在一起，是因为所有人有着共同的使命和心愿：都想尽力帮助乌克兰人摆脱俄罗斯给他们带来的恐惧。Nicole战友同时表达了我们还有拯救被中共奴役的14亿中国人的使命，艾米频频点头表示赞同。
+翻译：噜噜咪
 
-参考链接：[我们有着共同的使命、信仰和心愿](https://gettr.com/post/p15nxf02081)
-
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
-
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-381.jpg)2022年2月24日，俄罗斯地面部队入侵乌克兰后，意大利总理马里奥·德拉吉在罗马的奇吉宫就乌克兰局势发表演讲后离开。
+
+意大利总理马里奥·德拉吉表示，到目前为止，与普京的会谈还没有取得成效。
+
+“我开始认为，那些人说‘跟他谈也没用，只是浪费时间’是对的，”德拉吉告诉意大利报《晚报》。
+
+德拉吉说，他一直觉得目前担任欧盟轮值主席国的法国总统埃马纽埃尔·马克龙“尝试一切可能的对话途径是正确的。”
+
+这位意大利领导人说：“但我的印象是，战争的恐怖与屠杀，以及他们对儿童和妇女的所作所为，完全跟他们所发表的言论和呼吁南辕北辙。”
+
+“到目前为止，普京的目标不是寻求和平，而是试图消灭乌克兰的抵抗力量，占领该国并将其委托给一个友好政府，”德拉吉继续说道。
+
+德拉吉在最近几天与普京谈到了实现和平的问题。
+
+我问他：“你什么时候会见（乌克兰总统）泽伦斯基？只有你们两个能解开这个结”。他回答说：“现在不是时候”。我坚持说：“那你做停火决定”。一样的答案：“不行，现在不是时候。”
+
+与冲突开始时的许多人一样，德拉吉曾认为俄罗斯人有可能迅速获胜。
+
+德拉吉说：“这并没有发生：胜利没有到来，我们不知道它是否会到来。乌克兰的抵抗很英勇。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-155.jpg)在最近被俄罗斯军队占领的乌克兰布查镇发现乱葬岗之后德拉吉发表了该评论
+
+“等待我们的是一场抵抗的战争，长期的暴力与破坏将持续下去。没有迹象表明乌克兰人民可以接受俄罗斯的占领”。
+
+说到布查的暴行，那里的平民被遗弃在街头，德拉吉对给俄罗斯军队在那里的行为贴上标签持谨慎态度——就像西班牙首相等其他欧洲领导人一样，他们认为乌克兰可能存在“种族灭绝”。
+
+“如果不是战争罪，我们该把在布查的恐怖行为称为什么？但我明白，像‘种族灭绝’或‘战争罪’这样的术语有确切的法律含义，”他说。
+
+“将有一种方法和时间来验证哪些词语最适合俄罗斯军队的非人道行为，”德拉吉补充说。
+
+德拉吉的评论是在意大利表示，将从周一开始重新开放其在基辅的乌克兰大使馆之后发表的。
+
+乌克兰战争引发了西方国家推动对莫斯科的制裁，包括大幅削减俄罗斯天然气采购的举措。
+
+意大利政府已经采取措施减少对俄罗斯的依赖，例如与阿尔及利亚签署天然气协议。
+
+德拉吉说，虽然对俄罗斯的经济制裁“对削弱侵略者至关重要”，但在短期内不一定能阻止战争。
+
+尽管如此，西方可以通过提供武器直接帮助乌克兰。
+
+“我们需要直接帮助乌克兰人，这就是我们正在做的事情。德拉吉说：“不这样做就等于告诉他们：投降，接受被奴役并屈服——这与我们欧洲的团结价值观相悖。
+
+新闻来源：[‘A waste of time’: Talks with Putin go nowhere, says Italy’s PM](https://www.thelocal.it/20220417/a-waste-of-time-talks-with-putin-go-nowhere-says-italys-pm/)
+
+* * *
+
+素材:peacelv
+审核：文乐   
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
 
  
 
