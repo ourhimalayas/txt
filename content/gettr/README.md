@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 6:55 AM (UTC)`
+
+【Ukraine Rescue】04/17/22 All volunteers in the Medyca rescue centre are celebrating Easter. Some volunteers from other relief organizations immediately recognize the NFSC volunteers and sincerely thank us for our dedication.<br/><br/>【乌克兰救援】04/17/22 Medyca救援营地世界各地的志愿者们一起庆祝复活节，一些来自其他救援组织的志愿者一眼就认出了新中国联邦的志愿者，并真诚地感谢我们的付出。
+![img](https://media.gettr.com/group20/getter/2022/04/19/06/f579c53d-b1e1-9248-f5d8-9e40beac869f/out.jpg)
+
+---
+
 `@miles 4/19/2022 5:26 AM (UTC)`
 
 19/04/2022  VEVO- Miles Guo latest MV “ Chained Dream”(official Video) Live on YouTube 🎉🎉🎉🎉🎉🎉🎉<br/><br/>4月19号， VEVO- 《铁锁梦》官方视频正式上线YouTube 🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/><br/> <br/><br/>https://youtube.com/watch?v=gGYtbjsi4LM&feature=share
@@ -146,13 +153,6 @@
 
 2022.04.18  新中国联邦 | 喜健康   老药新用：探讨乙酰半胱氨酸治疗冠状病毒感染，解毒疫苗的可能性
 ![img](https://media.gettr.com/group45/origin/2022/04/18/20/93a747d6-61b9-c02d-36b0-79f6aa417f55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 6:32 PM (UTC)`
-
-04.18.2022  新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group10/origin/2022/04/18/18/28a1cc82-6bbc-81e0-0eb4-c36d598a70d7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
