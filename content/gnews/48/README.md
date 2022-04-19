@@ -2,31 +2,25 @@
 ---
 
 
-## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
+## 泽连斯基重申对俄罗斯核武器的警告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371134/)
 
-撰稿：东京樱花团/asket
+作者：雅典娜农场-小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+据国外媒体4月17日报道，乌克兰总统泽连斯基16日在接受乌克兰新闻媒体采访时说，世界应该为俄罗斯可能使用核武器做好准备。他认为俄罗斯人可能使用任何武器，并对此深信不疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-38.jpg)
+泽连斯基认为，乌克兰现在就需要抗辐射药物和防空洞，不应该等到俄罗斯决定使用核武器的那一刻再有反应。
 
-奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
-“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
+该采访由六家乌克兰新闻网站进行了转播，乌克兰总统府也已在Telegram上播出。
 
-“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
+参考链接：[Zelenskyy repeats warning over Russian nuclear weapons](https://www.hindustantimes.com/world-news/zelensky-repeats-warning-over-russian-nuclear-weapons-101650140575233.html)
 
-内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
-
-内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
-
-虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
-
-信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

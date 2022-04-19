@@ -2,28 +2,25 @@
 ---
 
 
-## 有声｜ 俄罗斯导弹厂因制裁而关闭
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2372925/)
+## 加拿大科技行业人才流失日益加剧
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373091/)
 
-By:**秘翻新闻**
+作者：加拿大温哥华扬帆农场 – 活力人生
 
-**2022-04-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-47.png)
-据[Newsmax](https://www.newsmax.com/world/globaltalk/russia-missile-sanctions-plant/2022/04/18/id/1066129/) 4月18日报道，乌克兰情报部门周日声称，由于西方的制裁和对关键部件的进口限制，俄罗斯一家生产地对空导弹的工厂已经关闭。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2330.png)图片来源：[https://tnc.news/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
 
-据乌克兰情报局称，乌里扬诺夫斯克机械厂于20世纪60年代首次开业，由于缺乏材料而关闭。乌克兰情报局称，该厂的员工透露，在涉及电子元件时，几乎没有使用任何俄罗斯的东西，大部分来自德国。
 
-乌克兰情报局报告称，俄罗斯曾试图建立贯穿其他国家的供应线，但发现增加的成本会超出预算。
+据【环球新闻】4月15日报道，FaceBook母公司 Meta 近期宣布将在多伦多设立办公室，并计划在加拿大雇用 2,500 名工作人员。此举或将加剧本地科技行业人才向科技寡头的流失。
 
-报告还指出，工厂员工可以选择无薪休假或与军队签订合同，前往乌克兰作战。推荐岗位是布克导弹系统的发射操作员。预期工资是每月50,000卢布，或600美元。
+报道称，加拿大科技行业已出现了全国性的劳动力短缺。本地小型企业不仅要与其他初创公司，还要与已拥有用户和市场的大公司竞争人才。但实际上，本地小企业提供的薪资水平根本无法阻止其科技人才流向大企业。
 
-秘翻新闻 大树编译报道
+目前，越来越多的国际知名企业都将揽才目光瞄准加拿大。为此，在疫情期间，微软、谷歌、推特和Facebook等大型科技公司都在加拿大进行了大规模的招聘活动。而《纽约时报》则更是将多伦多定位为北美三大科技中心之一。
 
-发布 : 恩典
+校对编辑：硫酸羟氯喹64
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片.png)
+发稿：青青
 
+原文链接： [https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
 
  
 

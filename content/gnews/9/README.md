@@ -2,28 +2,22 @@
 ---
 
 
-## 俄罗斯外长称俄罗斯正在开始其乌克兰行动的新阶段
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373075/)
+## 秘翻在线：中共用金钱诱骗为数不多的未接种疫苗者做毒疫苗志愿者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2373208/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+**撰稿：葛大饼**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/33-5.jpg)
+从两则中共国内的新冠疫苗志愿者招募广告看出， 杭州和成都两地都试图用金钱补助来吸引更多的未接种毒疫苗的志愿者接种新冠疫苗。
 
+招募广告上注明此次新冠疫苗“实验小白鼠”人员需要分成两组，杭州地区的志愿者分为18—59周岁，另一组则需要60周岁以上，要求志愿者从未接种过任何新冠疫苗并且依从性要好，一定要按时回访。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/HHWCRZECLFJ2XPHR7L4NVO2ILQ.jpg)
+合格入选的志愿者将获得28100人民币的补助；而成都的新冠疫苗志愿者招募广告则要求报名人员需要在18—90周岁之间，也分两组进行人体实验，有13500 –24500不等的人民币补助，必须配合相应的回访工作，如因非安全性的原因退出，则会扣除相应的金额。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/44-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/55.jpg)
+中共的新冠疫苗人体实验招募翻译成白话就是：我给你们一些钱，过来给我死死看，打过疫苗的不要来，反正迟早都是死，没打疫苗的来，我看你们不顺眼，早点死给我减轻负担。
 
-
-资料来源：路透社
-
-路透4月19日 – 俄罗斯外交部长谢尔盖·拉夫罗夫周二表示，莫斯科正在开始其所谓的乌克兰特殊军事行动的新阶段，他预计这将是一项重大进展。
-
-拉夫罗夫在接受《今日印度》电视频道采访时说：“该行动的另一个阶段（在乌克兰东部）正在开始，我相信这将是整个特别行动的一个非常重要的时刻。”
-
-简评：俄罗斯的外长出来说话了， 证明了俄罗斯确实已经开始新一轮进攻。 一场残酷的战争等待着乌克兰人。
-
-🔗 [https://www.reuters.com/world/europe/russia-is-starting-new-phase-its-ukraine-operation-foreign-minister-2022-04-19/](https://www.reuters.com/world/europe/russia-is-starting-new-phase-its-ukraine-operation-foreign-minister-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
+郭文贵先生在最近直播也一针见血地指出：各地的病毒清零封城政策是服务于打疫苗的，中共要让更多人接种毒疫苗，淘汰老弱病残。中共新冠病毒清零政策是前菜，最终目的是诱惑人们打毒疫苗，达到减少人口的邪恶目的。
 
  
 

@@ -2,39 +2,28 @@
 ---
 
 
-## 俄罗斯要求乌克兰军队在中午前交出 Azovstal 工厂
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373058/)
+## 【G时新闻】中共即将对多个大城市实施大封锁隔离
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2373202/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+4月16日郭先生紧急直播，公开了中共即将对青岛、大连、哈尔滨或者海口等地实施大封锁、大隔离的计划。 郭先生爆料，随着中共对上海和长春的封锁，上海死亡人数可能已达到百万。上海战友及时的为当地战友提供政府实时情报，协助战友买到粮食、蔬菜以及药品，还有的战友用智慧的办法帮到了生病的战友家人。 长春战友在郭先生的建议下积极行动，提前在外准备的基地、粮食以及医疗用品帮到了无数人度过了此次共产党的大隔离，完全体现出作为新中国联邦人的高素质，郭先生说，这在未来盘古相聚时会是辉煌的一页。 目前得到准确情报，中共接下来要对国内进行大隔离的城市有青岛、大连、哈尔滨或者海口，这些城市将会再现上海和长春以及广州的惨状，请战友提前准备。 郭先生还提供了一些反抗策略，中共大隔离本身就是犯法，已经构成了正当防卫的条件。民众要合理利用家中的水、煤气、冰箱和汽车里的油，尤其是要团结周围单元楼的百姓集体行动，勇气和智慧缺一不可。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+盖特链接：[https://www.gettr.com/post/p15xqfv1b9f](https://www.gettr.com/post/p15xqfv1b9f)
 
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ELTJ2HX5WJOL7I7X5UOYPUORIU.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-资料来源：路透社
-
-路透社 4 月 19 日（路透社） – 俄罗斯周二呼吁躲藏在乌克兰港口城市马里乌波尔的 Azovstal 冶金厂的乌克兰军队和外国武装分子，如果他们想活下去，请在莫斯科时间中午（格林威治标准时间 0900）之前放下武器。
-
-被俄罗斯军队包围数周的马里乌波尔经历了自俄罗斯于 2 月 24 日向乌克兰派兵以来最激烈的战斗和最全面的破坏。
-
-乌克兰当局周一表示，不少于 1,000 名平民躲在巨大的 Azovstal 工厂下方的地下避难所中，并补充说，俄罗斯正在向被围困城市的乌克兰控制的工厂投掷重型炸弹。
-
-俄罗斯国防部周二发表声明，呼吁乌克兰军队和境内的外国武装人员投降。
-
-国防部说：“所有放下武器的人都保证活着。”
-
-它呼吁军队在莫斯科时间 1400 至 1600 年间“无一例外，不带任何武器和弹药”从钢铁厂撤出。
-
-周二早些时候，俄罗斯支持的分离主义势力表示，他们正试图袭击亚速斯塔尔钢铁厂并尽快控制它。
-
-简评: 俄罗斯给乌克兰守护在马里乌波里的钢厂里的军队和平民发出了最后通牒， 要求他们放下武器， 才能活命。 我们在过去的50天已经看到了， 乌克兰的坚强抵抗和乌克兰军队的英勇， 他们一定不会交出武器的。
-
-🔗[https://www.reuters.com/world/europe/russia-tells-ukrainian-forces-surrender-azovstal-plant-by-noon-2022-04-19/](https://www.reuters.com/world/europe/russia-tells-ukrainian-forces-surrender-azovstal-plant-by-noon-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
