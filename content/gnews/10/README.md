@@ -2,40 +2,49 @@
 ---
 
 
-## 95%新冠患者的生命可以被拯救
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2372185/)
+## MetaMask警告说，iCloud用户可能面临失去资产的危险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372264/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-19-at-08-29-33-战鹰团-HimalayaHawkSquad-on-GETTR-Dr.-Peter-McCulloug.png)
-GETTR视频链接：[https://gettr.com/post/p15dcgpe47f](https://gettr.com/post/p15dcgpe47f)
+翻译：文扬
+编辑：李易通
 
-**视频字幕**
-
-Dr. Peter McCullough(麦卡洛博士)：当我2020年11月在美国参议院做证时，现在被任命为白宫新的COVID协调员的少数民族证人，一位来自东海岸的年轻人，他一直说：你没有足够的证据做这些。我本人从COVID中康复，在参议院我拿着我的治疗方案。我说，我不是征求许可的，我正在这么做，我是在请求帮助，因为我们需要所有的医生，所有的好医生行动起来，开始治疗疾病已减少生命损失。
-
-2020年11月，那时候我估计，我们可以拯救50%的生命，因为学习如何治疗新冠是要花时间的。2021年3月，我在德克萨斯中心作证，我说85%的生命本可以被拯救。然后最近，几个月前的1月，我说95%的死亡是可以避免的，而且很容易避免住院。100万美国人失去生命，可能有1000万人住院。如果我们在华盛顿的领导者能够召集专家们，让专家们自愿付出时间促成建设性的对话，其中95%的死亡是可以避免的。我非常高兴这样做，来帮助美国和世界渡过COVID-19困境。
-
-**简评：**
-
-美国心脏病学家麦卡洛博士表示，新冠爆发以来，医生们需要时间学习如何治疗新冠。到2020年11月，可以拯救50%的患者生命。到2021年3月，可以拯救85%的生命。到2022年1月，95%的死亡可以避免，而且很容易避免住院。如果华盛顿的领导者能够召集自愿付出时间的专家们促成建设性的对话，95%的死亡可以避免的。麦卡洛博士希望与所有的医生共同行动，减少生命损失，帮助美国和世界渡过COVID-19困境。
-
-在全球医疗独裁的笼罩下，新冠夺去了100万美国人的生命，可能有1000万人住院。本来这是可以避免的，这个世界的堕落比新冠病毒更可怕。
-
-- *字幕：Vekap*
-- *听写：云岭*
-- *翻译：Roberts*
-- *PR：nights*
-- *简评/文字整理/编辑：胖丁*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2310.png)图片来源：CoinGeek
 
 
-* * *
+流行的数字货币钱包MetaMask警告用户，苹果的云存储存在安全漏洞。这些警告是在过去几天推特（Twitter）上出现被盗资金报告时发出的。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+事实证明，科技巨头苹果公司认为可以帮助MetaMask用户保存密码或时间的东西，可能是一个危及个人数字资产的安全漏洞。
 
+ConsenSys支持的数字货币钱包在推特上解释说，“应用数据的 iCloud备份”还将存储“您的密码加密的MetaMask保险库”的凭据
 
-编辑：【英国伦敦喜庄园编辑部】
+“如果你的[iCloud]密码不够强大，而有人盗用你的iCloud凭证，这可能意味着资金被盗”，MetaMask周日在推特上说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+简单的缺陷导致了巨大的损失
+
+此外，当一个名为“revive\_dom”的用户报告损失了6个不可伪造的代币（NFT），包括3个突变猿游艇俱乐部（MAYC）的收藏品，以及价值超过25万美元的猿币（APE）时，该数字货币钱包提供商在同一推特主题中指导用户关闭自动数据备份。
+
+根据DAPE和Sentinel创始人Serpent的说法，被盗的数字收藏品价值132.86以太坊（402980美元），被盗数字资产的总金额达到大约65万美元以上。
+
+根据Serpent的说法，这个骗局是一种网络钓鱼攻击。 首先，欺诈者提出了几次密码重置请求，“以使受害者产生怀疑”。 在“来电显示欺骗者”的帮助下，诈骗者打电话给他们的猎物，声称是Apple客户服务，同时要求提供双因素认证（2FA）代码。
+
+在获得2FA验证码后，钓鱼者能够控制受害者的iCloud账户，该账户有用户的MetaMask钱包密码。
+
+行业中的黑客和诈骗
+
+随着过去一年数字货币的兴起，诈骗和盗窃案也随之上升。一些黑客盗取了价值数亿美元的虚拟货币，导致仅在2021年就有超过140亿美元被盗。
+
+根据CNBC的报告，去年的数字盗窃案比2020年上升了516%。另一方面，今年的情况也不是很好，因为黑客已经窃取了超过10亿美元的资金。
+
+根据雅虎财经的报告，2022年第一季度，骗子从数字货币投资者那里掠夺了12.2亿美元。大部分资金来自虫洞（Wormhole）3.25亿美元，以及罗宁桥（Ronin Bridge）6.15亿美元的黑客。
+
+原文链接： [iCloud users might be in danger losing their assets, MetaMask warns – CoinGeek](https://coingeek.com/icloud-users-might-be-in-danger-losing-their-assets-metamask-warns/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
