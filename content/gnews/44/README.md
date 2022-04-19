@@ -2,30 +2,39 @@
 ---
 
 
-## 勇气和智慧能让墙内战友度过疫苗危机
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2373823/)
+## 中共威胁老百姓“小心你的嘴或面临惩罚”
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373606/)
 
-作者：香草山商业部–新希望
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-随着墙内中共病毒的肆虐，各地封城此起彼伏，上海封城已经发生了人道生存危机。郭先生也爆料，更可怕的是中共利用封城去继续推行全社会再次施打毒疫苗。也有战友反映受到了工作单位的再三催促，领导甚至是用威胁的语气和战友谈话。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2348.png)
 
-笔者认为，战友参加爆料革命是试炼，是修行，是创业，也能看做是冒险，像探古墓一样，出现一个问题就把问题解决掉，然后又会遇到新问题。鬼吹灯有句话：寻龙分金看缠山，一重缠是一重关。身在墙内不遇到类似情况是不可能的，郭先生说过实力是第一位的，作为战友，只有今天能保护自己和家人，才能在将来有能力揭竿而起。
+（图片来自原文）
 
-笔者认为，对付恶人就要用特别的方式，强者既能菩萨低眉，更可以金刚怒目，真善狠就可以用雷霆手段，战友与其抱怨，不妨单刀直入。不少战友在墙内都有工作，有的战友从去年就旗帜鲜明的说不打疫苗，拥有一个别人无法辩驳的理由就可以了，所以单位就没有如此无礼和野蛮的要求。很多战友的亲戚今年也开始认识到疫苗不能再打，能有今天的结果在于我们平时就要去灌输，去布道。今天的果源自昨天的因，昨天付诸行动才能在今天产生自己想要的结果。所有战友们，行动！行动！！行动！！！
+新闻报道或社交媒体本应起到传播的作用，但中国共产党（CCP）却千方百计阻止疾病和真相信息的传播。
 
-编辑/审核/发稿：Bronx Bombers
+当中共国百姓所住的地区不幸被封锁时，就会收到有一些令人毛骨悚然的警告标志或“指导方针”：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+- 不要在网上发布与流行病相关的消息。
+- 未经许可不得进出北京。
+- 间谍就在我们中间；泄漏可能会在瞬间发生。注意你的言语，否则面临惩罚。
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在一段来自上海的来电采访，让我们了解中共控制的中共国现在的情况。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+上海来电者：我很荣幸住在一个有很多外籍人士的社区。我们付给拥有“非常特殊的通行证“的人一大笔钱来给我们送一点水果和蔬菜。实际可用的东西非常非常少。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+戴夫（Dave）：你们是不是可能还没有准备好。政府有没有通知准备？
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上海来电者：猝不及防。只给了我们一天时间就完全封锁了。商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有存货，因为已经超过两周没有发货了。
+
+同时，我也有两个孩子要上网课。更令人震惊的是，当孩子出现新冠病毒检测呈阳性时，孩子会被从家里带走，在没有父母或监护人的情况下，被送进隔离营。
+
+请观看英文视频，了解更多关于中国人在中共政府手中面临着令人心碎的状况。在视频中，出于显而易见的原因，保护来电者，喜剧演员戴夫·兰道（Dave Landau）[采访的上海来电者由史蒂文·克劳德（Steven Crowder）代替，让我们了解现在中共国的情况](https://youtu.be/7tw4J-CLEAQ)。
+
+新闻来源链接：[https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1)
+
+本文作者：Rebecca (一切心皆不可得！) 
+上传排版：Hong
 
  
 

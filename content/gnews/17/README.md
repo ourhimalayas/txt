@@ -2,53 +2,35 @@
 ---
 
 
-## 西医在中国的发展（十）-医学教育泰斗 颜福庆
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2375557/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/颜医生个人照.jpg)耶鲁大学医学院毕业照（原件收藏于耶鲁大学图书馆）
-1882年7月28日，颜福庆出生於江苏省宝山县江灣鎮一个**牧师家庭** ,排行老二，兄弟姐妹五人。 颜福庆2岁的时候，从美国学习归来的父亲颜如松出任圣公会牧师，主持江湾地区的一个教堂，可惜颜福庆6岁时，父亲颜如松感染伤寒去世，留下了妻子吴氏和5个孩子。  從7歲起由伯父颜永京**(中國基督教聖公會的華人牧師，武昌文華書院和上海聖約翰書院的開創者之一**)撫養。 就讀於上海圣约翰中学。
+作者：香草山翻译部
 
-颜家是上海名人世家。伯父颜永京是中国最早留美人员之一。 少年时在南市的教会学堂读书。 1854年被**圣公会**送往美国留学，1861年毕业于俄亥俄州建阳神学院（keyens college ，1862年回国，担任上海英国领事馆翻译、公共租界工部局通事。 后转入教会工作，协助传教士韦廉臣前往湖北武昌传教，1870年被教会聘为牧师，为美国圣公会 鄂湘教区和**武昌文华书院 **（*The Boone Memorial School*，华中师范大学的前身）的开创者之一。 舅舅**吴虹玉**早年留学美国，回国后在虹口创办了同仁堂诊所** （同仁医院的前身，1896年成为圣约翰医学院的一部分）**。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
 
-颜永京有四子一女，其中四子颜惠庆（1877年-1950年）是中华民国外交家和政府总理，1926年段祺瑞辞职后接任，五子颜德庆（1878年-1942年）为铁路工程师;
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
 
-弟弟颜如松英年早逝， 收养资助其次子颜福庆（1882年-1970年）。
+文章仅代表作者本人观点，与Gnews无关
 
-当时上海民间有： “民国颜氏三杰”颜惠庆、颜德庆、颜福庆并称;  与当时的“ 宋氏三姐妹”相对应。
+视频参看：
+[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
+[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
 
-1903年圣约翰大学医学院毕业后，随即入其舅舅**吴虹玉创办的同仁医院**当实习医师，同年在上海与曹秀英结婚（二人育有5个子女）。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-1904年应召报名到南非多本金矿，担任矿医。 教会投资的产业, 雇佣中国劳工, 中国矿医。 **  这能解释为何西方教会资金雄厚,** 能够全世界传播福音和文明**的根本原因**: 有钱就有话语权。新中国联邦的奠基者郭文贵先生深谙其理, 也使我们这些追随者看到成功的希望。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
 
-2年后的1906年，颜福庆赴美国耶鲁大学医学院深造，1909年获得医学博士学位。 同年赴英国利物浦热带病学院，获得热带病学学位证书。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/耶鲁大学课堂.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/耶鲁毕业照.jpg)1907年颜福庆与耶鲁大学医学院1909届合影（后排左起第三人颜福庆）
-1910年，颜福庆接受美国雅礼会(Yale-China Association)的聘请，回国担任湖南长沙**雅礼医院**的外科医师。
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-在雅礼医院，颜福庆与另一位伟大的医学博士相遇, 两位杰出医生相遇, 一定会造就伟大的事业。  后来的事实证明了这一点。咱们下期避风港再继续了解颜福庆博士。
-
-[西医在中国的发展（一）](https://gnews.org/zh-hans/2230569/)
-
-[西医在中国的发展（二）](https://gnews.org/zh-hans/2247529/)
-
-[西医在中国的发展（三）](https://gnews.org/zh-hans/2266864/)
-
-[西医在中国的发展（四）](https://gnews.org/zh-hans/2300811/)
-
-[西医在中国的发展（五）](https://gnews.org/zh-hans/2329273/)
-
-[西医在中国的发展（六）](https://gnews.org/zh-hans/2329876/)
-
-[西医在中国的发展（七）](https://gnews.org/zh-hans/2330669/)
-
-[西医在中国的发展（八）](https://gnews.org/2364092/)
-
-[西医在中国的发展（九）](https://gnews.org/zh-hans/2364926/)
-
-撰稿：Eglise 医生
-
-编辑发布：Gloria
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
 
  
 

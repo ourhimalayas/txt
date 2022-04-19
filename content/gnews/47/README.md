@@ -2,39 +2,41 @@
 ---
 
 
-## 中共威胁老百姓“小心你的嘴或面临惩罚”
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373606/)
+## 乌克兰称俄罗斯在东线发动“顿巴斯之战”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2372980/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2348.png)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-（图片来自原文）
-
-新闻报道或社交媒体本应起到传播的作用，但中国共产党（CCP）却千方百计阻止疾病和真相信息的传播。
-
-当中共国百姓所住的地区不幸被封锁时，就会收到有一些令人毛骨悚然的警告标志或“指导方针”：
-
-- 不要在网上发布与流行病相关的消息。
-- 未经许可不得进出北京。
-- 间谍就在我们中间；泄漏可能会在瞬间发生。注意你的言语，否则面临惩罚。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/K5S4I72KPBMPXDF2HYV4OZCDZ4.jpg)
 
 
-在一段来自上海的来电采访，让我们了解中共控制的中共国现在的情况。
+资料来源：路透社
 
-上海来电者：我很荣幸住在一个有很多外籍人士的社区。我们付给拥有“非常特殊的通行证“的人一大笔钱来给我们送一点水果和蔬菜。实际可用的东西非常非常少。
+利沃夫/基辅，4 月 19 日（路透社）周二，俄罗斯军队试图在乌克兰东部几乎整个前线突破乌克兰的防线，发动了总统泽连斯基所说的“顿巴斯之战”一场蓄谋已久的第二阶段的战争。
 
-戴夫（Dave）：你们是不是可能还没有准备好。政府有没有通知准备？
+“整个俄罗斯军队的很大一部分现在都集中在这次进攻上，”泽连斯基在一夜之间的视频讲话中说。 “无论他们派多少俄罗斯军队到那里，我们都会战斗。我们会保卫自己。”“相信我们的军队，它非常强大，”他说。
 
-上海来电者：猝不及防。只给了我们一天时间就完全封锁了。商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有存货，因为已经超过两周没有发货了。
+与此同时，在被围困、被毁坏的马里乌波尔市，俄罗斯向躲藏在巨型钢铁厂的最后一批乌克兰守军发出最后通牒，要么在中午（格林威治标准时间 0900）前投降，要么死亡。
 
-同时，我也有两个孩子要上网课。更令人震惊的是，当孩子出现新冠病毒检测呈阳性时，孩子会被从家里带走，在没有父母或监护人的情况下，被送进隔离营。
+俄罗斯国防部说：“所有放下武器的人都保证活着。”
 
-请观看英文视频，了解更多关于中国人在中共政府手中面临着令人心碎的状况。在视频中，出于显而易见的原因，保护来电者，喜剧演员戴夫·兰道（Dave Landau）[采访的上海来电者由史蒂文·克劳德（Steven Crowder）代替，让我们了解现在中共国的情况](https://youtu.be/7tw4J-CLEAQ)。
+俄罗斯支持的分离主义者表示，亲莫斯科的部队正准备袭击 Azovstal 工厂，该工厂被认为是乌克兰军队在战争中最长、最残酷的围攻中幸存下来的最后一个基地。
 
-新闻来源链接：[https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1)
+3 月，乌克兰军队在北部基辅的袭击中被乌克兰军队击退，俄罗斯已向东部派遣部队，重新集结在两个被称为顿巴斯的省份发动地面进攻。它还一直在对包括首都在内的其他目标发动远程打击。
 
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
+乌克兰最高安全官员奥列克西·丹尼洛夫（Oleksiy Danilov）表示，俄罗斯军队试图“沿着顿涅茨克、卢甘斯克和哈尔科夫地区的几乎整个前线”突破乌克兰的防线。
+
+乌克兰总参谋部表示，俄罗斯军队旨在全面控制顿涅茨克、卢甘斯克和赫尔松地区，同时加强对乌克兰西部的导弹袭击。
+
+泽连斯基的办公室表示，在卢甘斯克和顿涅茨克前线城镇和村庄的炮击或战斗中，至少有 8 人丧生，13 人受伤，包括克雷门纳亚、波帕斯纳、阿夫迪夫卡、马林卡、托列茨克、武勒达尔和莱曼斯克。
+
+顿巴斯以北的哈尔科夫省省长奥列·西内古波夫（Oleh Sinegubov）说，在过去的 24 小时内，那里有 5 人因炮击和 grad 导弹而丧生，17 人受伤。
+
+泽连斯基的顾问表示，俄罗斯在东部的新进攻注定要失败，因为莫斯科根本没有足够的军队来超越防御。
+
+🔗 [https://www.reuters.com/world/europe/ukraine-says-russia-launches-new-eastern-offensive-with-blasts-all-along-front-2022-04-19/](https://www.reuters.com/world/europe/ukraine-says-russia-launches-new-eastern-offensive-with-blasts-all-along-front-2022-04-19/)
+
+责任编辑、发布： Shuizhuyu
 
  
 
