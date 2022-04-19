@@ -2,49 +2,38 @@
 ---
 
 
-## MetaMask警告说，iCloud用户可能面临失去资产的危险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372264/)
+## 7·24系列——澳广ABC充斥着伪类不实言论的报道
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372195/)
 
-翻译：文扬
-编辑：李易通
+**整理：**雅典娜情报组（翼族）
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-39.jpg)图片来源：ABC
+美国之音419断播门五周年的前一天，澳大利亚广播公司（ABC）发布了一篇题为[《郭文贵称喜币有助颠覆中国政权 多国金融监管机构展开调查》](https://www.abc.net.au/chinese/2022-04-18/guo-wengui-steve-bannon-back-hcoin-cryptocurrency/100994202)的不实报道，作者Echo Hui和Ariel Bogle。爆料革命五年来，每次对郭文贵先生的抹黑报道背后都有华人记者的影子，这次也不例外，Echo Hui是一位华人，Hui是粤语中“许”的发音。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2310.png)图片来源：CoinGeek
+Echo Hui，在澳广ABC新闻网站上的简介为“一名调查记者”，专注报道政治和社会问题，特别关注基层民主、开放社会和全球事务。2020年，Echo Hui因为报道香港民主斗争的“骚乱”和中国新疆大规模拘禁维吾尔人而入围澳大利亚[洛伊研究所](https://youtu.be/AnSfwfx1FS0)（LOWY INSTITUTE）2020年度媒体奖。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Echo-Hui.jpg)LOWY INSTITUTE
 
 
-流行的数字货币钱包MetaMask警告用户，苹果的云存储存在安全漏洞。这些警告是在过去几天推特（Twitter）上出现被盗资金报告时发出的。
+从其过往发表的报道来看，几乎都与香港、中国、缅甸和澳大利亚相关，据称曾为《财新》撰稿。在[QUARTZ网站](https://qz.com/author/echohui/)上，Echo Hui的简介为“驻香港的自由撰稿人”，报道政治和社会问题，特别关注基层民主、中国劳工运动和外交事务。在2014年上半年，Echo Hui为《[南华早报](https://www.scmp.com/author/echo-hui)》撰写了大量文章，但随后突然中止，直到2018年又在该报发表了两篇文章。
 
-事实证明，科技巨头苹果公司认为可以帮助MetaMask用户保存密码或时间的东西，可能是一个危及个人数字资产的安全漏洞。
+在ABC这篇最新的抹黑文章中，一位化名为陈丽莎（Lisa Chen）的女子称喜马拉雅交易所和喜马拉雅币是一场骗局。并且该文采用了“挺郭”多年没有得到一枚喜币奖励的邱岳首的不实言论，称“爆料革命运动与涉及新冠和拜登总统的虚假信息传播运动有着千丝万缕的联系”，试图将喜马拉雅币与“加密货币骗局”联系在一起。
 
-ConsenSys支持的数字货币钱包在推特上解释说，“应用数据的 iCloud备份”还将存储“您的密码加密的MetaMask保险库”的凭据
+而早在2020年的11月2日，Echo Hui就和Hagar Cohen在澳广新闻上发表了一篇题为《[曾为郭文贵和班农兜售虚假信息者首次公开发声](https://www.abc.net.au/chinese/2020-11-02/behind-the-scenes-of-the-guo-and-bannon-led-propaganda-machine/12840208)》的不实报道。在这篇文章中，狂蹭郭文贵先生热度并引来巨大关注和流量的潘林正（又称细思极恐、鸡腿潘）占有很大的篇幅。在ABC对他的采访中，潘林正对自己向郭先生借款一事绝口不提，却谎称是“在目睹了这一运动【编者注：爆料革命】所采取的危险战术之后，对运动的走向感到不舒服”而开始砸爆料革命。同时出现在这篇不实报道中的伪类，还有傅希秋和庄烈宏等。
 
-“如果你的[iCloud]密码不够强大，而有人盗用你的iCloud凭证，这可能意味着资金被盗”，MetaMask周日在推特上说。
+潘林正的油管频道“妄议热线”（英文名称：Oz Media）自三年前受到巨大关注以来，几乎每天都在更新，高峰期的每期观看量在2万以上，但随后降至5千左右。或许由于近期澳大利亚政府开始对中共间谍驱逐出境，潘林正的油管节目在2022年3月13日后戛然而止，至今没有更新。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-3.jpg)
+潘林正最近一次在推特上发推的日期是4月12日，内容与神奇“逃脱”中共迫害再次露脸直播的陈秋实相关：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/133-1.jpg)
+巧合的是，在澳大利亚广播公司以上两篇不实的报道里，都出现了对爆料革命和郭文贵先生“先挺后砸”的著名伪类的身影，并且这两篇看似公正而实际上非常片面不真实的报道的主笔都是这位名为Echo Hui的华人记者，她的背后是否有中共的背景不得而知，但是澳广ABC选在美国之音“419断播门”五周年的前夕予以发布，又何尝不是中共的故意安排呢？
 
-简单的缺陷导致了巨大的损失
+*发布：翼族*
 
-此外，当一个名为“revive\_dom”的用户报告损失了6个不可伪造的代币（NFT），包括3个突变猿游艇俱乐部（MAYC）的收藏品，以及价值超过25万美元的猿币（APE）时，该数字货币钱包提供商在同一推特主题中指导用户关闭自动数据备份。
-
-根据DAPE和Sentinel创始人Serpent的说法，被盗的数字收藏品价值132.86以太坊（402980美元），被盗数字资产的总金额达到大约65万美元以上。
-
-根据Serpent的说法，这个骗局是一种网络钓鱼攻击。 首先，欺诈者提出了几次密码重置请求，“以使受害者产生怀疑”。 在“来电显示欺骗者”的帮助下，诈骗者打电话给他们的猎物，声称是Apple客户服务，同时要求提供双因素认证（2FA）代码。
-
-在获得2FA验证码后，钓鱼者能够控制受害者的iCloud账户，该账户有用户的MetaMask钱包密码。
-
-行业中的黑客和诈骗
-
-随着过去一年数字货币的兴起，诈骗和盗窃案也随之上升。一些黑客盗取了价值数亿美元的虚拟货币，导致仅在2021年就有超过140亿美元被盗。
-
-根据CNBC的报告，去年的数字盗窃案比2020年上升了516%。另一方面，今年的情况也不是很好，因为黑客已经窃取了超过10亿美元的资金。
-
-根据雅虎财经的报告，2022年第一季度，骗子从数字货币投资者那里掠夺了12.2亿美元。大部分资金来自虫洞（Wormhole）3.25亿美元，以及罗宁桥（Ronin Bridge）6.15亿美元的黑客。
-
-原文链接： [iCloud users might be in danger losing their assets, MetaMask warns – CoinGeek](https://coingeek.com/icloud-users-might-be-in-danger-losing-their-assets-metamask-warns/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

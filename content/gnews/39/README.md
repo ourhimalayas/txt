@@ -2,34 +2,46 @@
 ---
 
 
-## 中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371902/)
+## 中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371805/)
 
 撰稿：东京樱花团/asket
 
-玉米十年来首次超过每蒲式耳8美元，原因是担心短缺。由于投资者担心供应减少，各种因素的结合使芝加哥的玉米期货达到十年来的最高水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fres.cloudinary.com%2Fgro-intelligence%2Fimage%2Fupload%2Fv1642021031%2Fnew-website%2Fcorn_Jan12_877a813691.jpg&amp;imgrefurl=https%3A%2F%2Fgro-intelligence.com%2Finsights%2Fusda-confirms-gro-s-forecasts-for)
-自2012年9月以来，玉米期货一直没有超过每蒲式耳8美元。当年，美国中西部地区发生了毁灭性的干旱，农作物受损。现在供应风险卷土重来，但原因完全不同。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-8.png)[图片来源](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
-自俄罗斯在2月底开始入侵乌克兰以来，全球玉米供应前景急剧下降。这个饱受战争摧残的国家供应着全球五分之一的玉米，今年的产量可能会下降50%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2292.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.tv9gujarati.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fus-debt-1.jpg&amp;imgrefurl=https%3A%2F%2Fpipanews.com%2Famerica-the-worlds-most-powerful-country-is-mired-in-debt-10-times-indias-gdp-america-deb)
 
-飙升的化肥成本迫使美国的一些农民在这个种植季节增加大豆的种植，而不是玉米，因为这种作物需要的养分较少。
+让我们问一下，增加的33万亿美元的债务和增加的9万亿美元的国内生产总值的 “好处”：对谁有利？
 
-由于天然气成本上升和俄罗斯限制向 “不友好 “国家出口化肥，化肥价格达到了历史最高点。俄罗斯是全球最大的出口国之一 — 美国恰好是来自俄罗斯的氮肥和钾肥的大进口国。
+我一直在思考，要让我们对大数字有一个清醒的认识是多么困难。技术分析师Sven Henrich（@NorthmanTrader）最近提供了一个方法来掌握埃隆-马斯克的巨大财富：如何成为像埃隆-马斯克一样的财富？很简单。每天获得100万美元的报酬。连续750年，你就可以了。
 
-而将玉米价格推向天际的最新情况是，拜登政府上周宣布采取紧急措施，扩大生物燃料销售，以遏制飙升的汽油价格。此举的问题在于，乙醇行业吸收了更大份额的玉米作物，这将遏制对粮食行业的供应。因此，最终会提高玉米价格。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2294.png)[图片来源](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
 
-这种情形正在发生，因为3月份全球食品价格月度跃升了惊人的12.64%—几乎是之前月度激增记录的两倍！
+我们如何才能掌握自2010年以来我们增加的33万亿美元的总债务？我们可以首先注意到，在大约十年内，债务增加了60%，而美国的人口却增加了7%。
 
-全球食品价格已经超过了仅在2010/11年通货膨胀暴乱期间（被称为 “阿拉伯之春”）出现的水平。
+我们比12年前的情况好了60%吗？我们如何衡量 “更好的生活”？国内生产总值也上升了60%，但我们是效率提高了60%还是生产力提高了60%？我们工资的购买力上升了60%吗？我们能用一天的收入多买60%的东西吗？
 
-投资者似乎正在对玉米短缺进行定价。现在是开始种植自己的花园的最好时机。
+我认为，对所有这些问题说 “不 “是公平的。我们已经增加了33万亿美元的债务。
 
-信息来源：** **[**Corn Exceeds $8 A Bushel For First Time In Decade On Shortage Fears**](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+如果说3.3亿美国人中的每一个人都有10万美元的债务，这是否能解释说明这33万亿美元？我们每个人都因为借了33万亿美元而增加了10万美元的收入吗？好吧，有几个人已经受益了。前400名最富有的人看到他们的财富飙升了数万亿美元，从2010年约占国内生产总值的8%–从1985年的微不足道的2.5%上升到约占国内生产总值的18%，现在是24万亿美元。这相当于4.3万亿美元。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+我认为可以说，超全球化和超金融化已经产生了超财富和超不平等。
+
+说到大数字，让我们看看底层的50%，大约6500万个家庭。如下图所示，这6500万个家庭拥有40多万亿美元的美国股票市场的0.6%。这还不到1%，或大约2400亿美元。在6500万个家庭中划分，这相当于每个家庭几千美元。
+
+底层50%家庭的股票所有权可能遵循与所有股票所有权相同的幂律分布曲线：这6500万家庭中的前1%拥有大部分的股票，除了一小部分被前5%的人拥有。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2296.png)[图片来源](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
+
+因此，现实情况是，绝大多数美国家庭在辉煌的美国股市的几十万亿，或债券市场的几十万亿，或私人持有的企业和商业/租赁房地产的几万亿中根本没有利益。
+
+因此，让我们问一下，增加的33万亿美元的债务和增加的9万亿美元的GDP的好处是什么：对谁有利？我认为可以这样说，利益是按照幂律分布的，其中前0.01%的人获得了大部分收益，前0.1%的人获得了第二大块收益，前1%的人获得了大部分剩余的收益，其余前5%的人（从1%到5%）获得了所有的收益，只有少数碎片落在前6%到10%的人身上。前10%至20%的人留下了一些碎屑，而在这以下的人，只留下了一些灰尘。
+
+我完全不确定是否有任何方法可以真正掌握超额财富和超额不平等或其后果。我们的公平感是很难量化的，但这并不意味着它不存在。在某些时候，合理化和分散注意力的压力锅会炸开，厨房将变得混乱不堪。
+
+信息来源：** **[**A Couple Of Thoughts On Big Numbers**](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

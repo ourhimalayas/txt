@@ -2,38 +2,29 @@
 ---
 
 
-## 7·24系列——澳广ABC充斥着伪类不实言论的报道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372195/)
+## 新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372113/)
 
-**整理：**雅典娜情报组（翼族）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-39.jpg)图片来源：ABC
-美国之音419断播门五周年的前一天，澳大利亚广播公司（ABC）发布了一篇题为[《郭文贵称喜币有助颠覆中国政权 多国金融监管机构展开调查》](https://www.abc.net.au/chinese/2022-04-18/guo-wengui-steve-bannon-back-hcoin-cryptocurrency/100994202)的不实报道，作者Echo Hui和Ariel Bogle。爆料革命五年来，每次对郭文贵先生的抹黑报道背后都有华人记者的影子，这次也不例外，Echo Hui是一位华人，Hui是粤语中“许”的发音。
+**图/文｜CP **
+**发布时间｜19/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新冠疫苗｜福奇指群體免疫不適用新冠病毒-暗示民眾需繼續打針.jpg)
 
-Echo Hui，在澳广ABC新闻网站上的简介为“一名调查记者”，专注报道政治和社会问题，特别关注基层民主、开放社会和全球事务。2020年，Echo Hui因为报道香港民主斗争的“骚乱”和中国新疆大规模拘禁维吾尔人而入围澳大利亚[洛伊研究所](https://youtu.be/AnSfwfx1FS0)（LOWY INSTITUTE）2020年度媒体奖。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Echo-Hui.jpg)LOWY INSTITUTE
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
-从其过往发表的报道来看，几乎都与香港、中国、缅甸和澳大利亚相关，据称曾为《财新》撰稿。在[QUARTZ网站](https://qz.com/author/echohui/)上，Echo Hui的简介为“驻香港的自由撰稿人”，报道政治和社会问题，特别关注基层民主、中国劳工运动和外交事务。在2014年上半年，Echo Hui为《[南华早报](https://www.scmp.com/author/echo-hui)》撰写了大量文章，但随后突然中止，直到2018年又在该报发表了两篇文章。
+美国国家传染病研究所所长福奇（Anthony Fauci）周五（15日）接受采访时表示，群体免疫的概念可能不适用于新冠病毒。
 
-在ABC这篇最新的抹黑文章中，一位化名为陈丽莎（Lisa Chen）的女子称喜马拉雅交易所和喜马拉雅币是一场骗局。并且该文采用了“挺郭”多年没有得到一枚喜币奖励的邱岳首的不实言论，称“爆料革命运动与涉及新冠和拜登总统的虚假信息传播运动有着千丝万缕的联系”，试图将喜马拉雅币与“加密货币骗局”联系在一起。
+早前，福奇联同多名医学专家为《传染病学期刊》撰写了一篇关于群体免疫的研究论文，对此，福奇在接受媒体访问时以美国曾经利用群体免疫战胜麻疹举例，指出当时之所以成功战胜麻疹基于三个重要性指标，包括绝对有效的疫苗、病毒不会随时间产生显著变异以及成功的儿童疫苗接种。
 
-而早在2020年的11月2日，Echo Hui就和Hagar Cohen在澳广新闻上发表了一篇题为《[曾为郭文贵和班农兜售虚假信息者首次公开发声](https://www.abc.net.au/chinese/2020-11-02/behind-the-scenes-of-the-guo-and-bannon-led-propaganda-machine/12840208)》的不实报道。在这篇文章中，狂蹭郭文贵先生热度并引来巨大关注和流量的潘林正（又称细思极恐、鸡腿潘）占有很大的篇幅。在ABC对他的采访中，潘林正对自己向郭先生借款一事绝口不提，却谎称是“在目睹了这一运动【编者注：爆料革命】所采取的危险战术之后，对运动的走向感到不舒服”而开始砸爆料革命。同时出现在这篇不实报道中的伪类，还有傅希秋和庄烈宏等。
+福奇指出，对照目前的新冠病毒来看，疫情爆发两年多以来，不断出现 Delta和Omicron等多种显著性变异毒株，加上疫苗接种率不足，因此认为，群体免疫概念可能不适用于新冠病毒。福奇强调，无论是接种疫苗诱发的免疫力，还是染疫后引起的免疫作用都并非终生，这意味着民众需要不断的接种新冠疫苗。
 
-潘林正的油管频道“妄议热线”（英文名称：Oz Media）自三年前受到巨大关注以来，几乎每天都在更新，高峰期的每期观看量在2万以上，但随后降至5千左右。或许由于近期澳大利亚政府开始对中共间谍驱逐出境，潘林正的油管节目在2022年3月13日后戛然而止，至今没有更新。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-3.jpg)
-潘林正最近一次在推特上发推的日期是4月12日，内容与神奇“逃脱”中共迫害再次露脸直播的陈秋实相关：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/133-1.jpg)
-巧合的是，在澳大利亚广播公司以上两篇不实的报道里，都出现了对爆料革命和郭文贵先生“先挺后砸”的著名伪类的身影，并且这两篇看似公正而实际上非常片面不真实的报道的主笔都是这位名为Echo Hui的华人记者，她的背后是否有中共的背景不得而知，但是澳广ABC选在美国之音“419断播门”五周年的前夕予以发布，又何尝不是中共的故意安排呢？
+有评论质疑，在福奇所列举的三大重要性指标中，“绝对有效的疫苗”居于首位，那么群体免疫不奏效的根本原因，应该率先考虑疫苗的有效性问题，而不是将群体免疫无效的症结点归结到疫苗接种率的问题上。再者，既然疫苗诱发的免疫力并非终生，那么是否值得为了短暂的免疫力而承担所可能引起的上千种疫苗副反应呢？归根结底，任何一个负责任的科学家，都不应该鼓励民众继续接种一个弊大于利的疫苗。
 
-*发布：翼族*
+来源｜[NJ](https://www.nj.com/coronavirus/2022/04/dr-anthony-fauci-says-herd-immunity-may-not-apply-to-covid.html)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

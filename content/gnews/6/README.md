@@ -2,30 +2,30 @@
 ---
 
 
-## 加拿大违反《权利与自由宪章》最严重省份排行榜
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2372969/)
+## 秘翻新闻｜美国联合国际机构商讨应对全球粮食危机
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2372985/)
 
-采编： 加拿大温哥华扬帆农场 – 青青
+**By:[秘翻新闻](https://gettr.com/post/p1611zr4c9c)**
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+*[2022-04-19](https://gettr.com/post/p1611zr4c9c)*
 
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2325.png)图片来源：[https://tnc.news](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
+**新闻内容:**
 
 
-据自媒体《真北方》4月17日报道，为纪念《权利和自由宪章》颁布四十周年，加拿大[宪政自由司法中心]对疫情期间违宪最严重的省份进行了排名，其中魁北克省被评为榜首。
+```
+1.上海保姆称：独居老人被饿死 曾吃大便充饥
+ 2.俄罗斯在乌克兰东部展开新攻势
+ 3.泽连斯基称：乌克兰很快将成为欧盟候选国
+ 4.俄乌冲突引发粮荒 恐有大批中美洲人涌进美国
+ 5.为应对中共 美国高级官员将访问所罗门群岛 
 
-报道称, 在过去两年中，联邦和各省政府都出现了大量严重违宪行为。尽管全国各地在疫情初期都采取了几乎相同的限制措施，但随着时间和各省对所谓“科学”的不同理解而造成了对疫情反应的巨大差异。因此导致了不同省份的加拿大人所遭受的侵害程度不尽相同。
+🔗Gettr链接：https://gettr.com/post/p1611zr4c9c
+发布:星星
+```
 
-由于实施了极权宵禁、旅行限制，疫苗护照，强制接种以及对未接种疫苗者威胁征税等，魁省获得违宪最严重的称号，而BC省因强制医护人员接种疫苗及任意关闭礼拜场所名列第二；曼省、安省、大西洋四省及阿省分列第3至6名；萨省则因今年2月就率先宣布取消疫情封锁及其相对温和的防疫政策而排名最后。
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/](https://tnc.news/2022/04/17/justice-centre-ranks-worst-charter-rights-violators-among-provinces/)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

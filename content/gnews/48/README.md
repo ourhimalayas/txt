@@ -2,22 +2,31 @@
 ---
 
 
-## 意大利总理德拉吉新冠检测呈阳性
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2369888/)
+## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
 
-#### 翻译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-18-alle-23.59.49.png)图片来源：ilmattino.it
-意大利总理德拉吉新冠检测结果呈阳性，是无症状患者。这是根据总理府的消息来源，预计将由外交部长迪马约和生态转型部部长辛格拉尼代表政府4月20日至21日赴安哥拉和刚果共和国访问。这是意大利政府确认的信息。德拉吉总理将缺席访问，因为新冠检测呈阳性。
+撰稿：东京樱花团/asket
 
-据意大利病毒学家皮莱里亚斯科分析可能是“奥米克隆3”型病毒导致的。这一消息引发了意大利反新冠疫苗者和反绿色护照者在社交媒体上的热议。有人对德拉吉劝民众打新冠疫苗的那番话仍然记忆犹新，不无嘲讽地说：“他曾说过谁得新冠，会死，现在我们要看结果”。还有人针对政府所采取过的措施写道，“得隔离，吃退烧药，警惕等待结果。十天后再做检测，谁知道他那时会在哪儿，也许会当着意大利人的面儿，去度个假。”在推特上，自德拉吉呈阳性的消息传出后，新冠，德拉吉，退烧药成为热搜词。还有人言词更激烈：“ 德拉吉会说如果他得了新冠并且是无症状患者，得感谢新冠疫苗。事实上这两年政客们有死于新冠病毒或最后在重症监护室的吗？没有，哪怕是在施打新冠疫苗之前，他们是一直在欺骗我们吗？”
+奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
+“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
 
-简评：新冠疫苗没有阻止病毒的传播，相反，新冠疫苗接种会催生出更多的变异病毒，这才是人类将面临的真正灾难。越来越多的民众也在觉醒。
+“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
 
-参考链接：
+内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
 
-[https://www.ilmattino.it/primopiano/politica/mario\_draghi\_positivo\_covid\_commenti\_novax\_ultime\_notizie-6635728.html](https://www.ilmattino.it/primopiano/politica/mario_draghi_positivo_covid_commenti_novax_ultime_notizie-6635728.html)
+这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
 
-编辑、上传： Xiao baige
+内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
+
+虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
+
+信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
 
  
 
