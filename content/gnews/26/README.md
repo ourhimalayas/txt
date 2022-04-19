@@ -2,30 +2,55 @@
 ---
 
 
-## 为保习近平连任，中共誓将“清零”防疫进行到底
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2370952/)
+## 墨西哥总统有争议的电力改革被国会否决
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2371019/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-11.jpg)为保习近平连任，中共誓将“清零”防疫进行到底 网络图片
-据美国之音4月18日报道，中共当局严厉的“清零”防疫政策造成封城下的上海等地区民怨沸腾，许多人公开表达对中共不满。中共喉舌伪人民日报18日发表评论员文章，呼吁全民支持习近平提出的防疫政策。显示“清零”政策不会改变。
+翻译：噜噜咪
 
-这表明，中共已将“动态清零”的新冠防疫政策当作政治任务，与今年要召开的二十大挂钩。习近平将打破自江泽民以后中共最高领导人只连任两届的惯例，在二十大上连任第三届。习近平2018年已经修宪，取消国家主席两届任期的限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
 
-获得永久和绝对的权利是习近平的目的，谁当中共领导人都是如此，这是中共邪恶的本质所决定的。动态清零只是借口，在习近平发动对台湾的战争之前，在国内不同的城市轮流测试百姓的压力承受能力，停水、停电，完全断绝生活物资。测试的目的是为管控，后方不乱，前方才能打仗。普京发动的战争导致俄罗斯遭全球制裁，习近平即将步普京后尘，因此提前让中共国老百姓尝试断水断粮。中共红魔一日不灭，中国人民的灾难永远不会停止。
 
-新闻参考链接：[https://www.voachinese.com/a/party-urges-support-for-xi-as-anger-grows-in-china-over-lockdowns-20220418/6534190.html](https://www.voachinese.com/a/party-urges-support-for-xi-as-anger-grows-in-china-over-lockdowns-20220418/6534190.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-380.jpg)2022年4月17日，墨西哥首都墨西哥城，议员出席会议，就总统安德烈·曼努埃尔·洛佩兹·奥布拉多捍卫的电力部门宪法改革进行投票，他希望加强国家对电力市场的控制，牺牲私人运营商的利益。
+
+墨西哥城，4月18日（路透社）- 墨西哥总统安德烈·曼努埃尔·洛佩斯·奥布拉多加强国家对发电的控制的计划周日在议会被否决，因为反对党在对一项他们认为会损害投资和违反国际义务的法案时团结一致。
+
+他的国家复兴运动(MORENA)及其盟友在国会下院500个席位中距离所需的三分之二多数票还差近60票，在持续了12个多小时的喧闹会议后，只得到了275票。
+
+洛佩兹·奥布拉多试图推翻之前放宽电力市场的宪法改革，他提议的改革将取消国有联邦电力公司（CFE）首先出售最廉价电力的要求，允许其在其他电力公司之前出售自己的电力。
+
+根据该法案，联邦电力公司的发电量将至少占全国总发电量的54%，能源监管也将从独立机构转移到国家监管机构。
+
+这些有争议的提案面临来自商业团体和美国（墨西哥的最大贸易伙伴）以及其他盟友的大量批评，他们认为这将违反区域贸易协定，即《美国-墨西哥-加拿大协定》（USMCA）。
+
+洛佩兹·奥布拉多认为，该法案将保护消费者，并使该国的能源更加独立，他说该立法对他“改造”墨西哥的计划至关重要。
+
+虽然他的党派处于不利地位，但他在投票中寻求利用他在上周末关于其领导地位的公投中的胜利。
+
+反对党公民运动党的立法者豪尔赫·阿尔瓦雷斯·梅内斯在投票前说，如果颁布这些提案，将损害墨西哥。
+
+他补充说：“没有一个专家、学者、环保人士或活动家有一丝怀疑——这项法案将提高电价，减缓我国向（清洁）能源的过渡，并违反国际协议。”
+
+该法案还包含一项将锂资源国有化的规定。
+
+洛佩兹·奥布拉多本周表示，如果该法案被否决，他将于周一向国会提交另一项法案，旨在至少使拟议立法中的锂部分获得通过。
+
+新闻来源：[Mexico’s President’s Controversial Electricity Reforms Are Rejected by Congress](https://www.americasquarterly.org/article/mexico-china-the-us-a-changing-dynamic/)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+素材:peacelv
+审核：文乐
+校对：信心满满
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
 
  
 
