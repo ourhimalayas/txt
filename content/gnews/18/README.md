@@ -2,30 +2,31 @@
 ---
 
 
-## 佛州联邦法官撤销乘坐公交的口罩佩戴令
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375345/)
+## 有声|欧洲某国国防部官员对新中国联邦的救援行动表示感谢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2375374/)
 
-作者：香草山农场 Wenfei
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+4月17日，根据郭文贵先生临时直播信息 ，受欧洲某国国防部重要官员委托，通过文贵先生向在梅迪卡参加救援的新中国联邦人致谢，并表示日后，他会亲自看望每一位在梅迪卡前线参加救援的战友。
 
-当地时间4月18日，佛罗里达州联邦法官米泽尔（Mizelle）宣布，美国疾控中心CDC将“乘坐公共交通工具的口罩强制令“延期至5月3日，这超出了CDC官员的权限，因此CDC延续该强制口罩佩戴政策的行为是无效的。
+大约一至两周前，欧洲某国国防部重要官员以普通人身份参观了梅迪卡新中国联邦营地帐篷，受到了战友们专业而礼貌地接待，并享用了著名的战地咖啡。新中国联邦人的素质与尊重深深感动了他。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.51.00-AM.png)
+他表示，新中国联邦人救援了很多俄乌战争中关键人物的家属，与他们合作的乌克兰军方的某个重要人的家人就是被新中国联邦拯救的。
 
-据悉，鉴于中共病毒奥米克戎BA.2变异毒株的流行，美国疾病控制和预防中心（CDC）最近将原定于 4月18日到期的乘坐公共交通工具需佩戴口罩的强制政策，延长至 5 月 3 日。
+文字版原文：[欧洲某国国防部官员对新中国联邦的救援行动表示感谢](https://gnews.org/zh-hans/2369275/)
 
-米泽尔法官在判决中表示，尽管法院接受CDC有关”佩戴口罩可限制中共病毒的传播“的言论，但是在感染病例急速下降的当下，CDC未能证明其口罩延长令的合理性。并且，CDC也未遵循《行政程序法》所规定的规则制定程序。据此，法院撤销了CDC对口罩延长令的授权，并将其发回至CDC。
+音频处理：Fei797
+发稿：Fei797
 
-一位航空公司的技术负责人表示，相比于口罩，现代飞机上配备的空气过滤系统，更能有效地降低病毒在飞行过程中人际传播的风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-耐人玩味的是：美国各州早已取消了餐馆、商店和其他室内环境中的口罩佩戴规定，而中共病毒奥米克戎变异毒株的感染率自1月中旬达到顶峰后，急剧下降，至今未见回升。
-
-参考链接：[TSA won’t enforce transit mask mandate for now after judge voids it](https://www.cbsnews.com/news/mask-mandate-public-transportation-federal-judge-florida/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编/编辑/审核：文恩
-校正/发稿：谐趣园
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

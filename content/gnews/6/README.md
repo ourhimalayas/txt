@@ -2,21 +2,27 @@
 ---
 
 
-## 更多中国城市收紧封城
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2375442/)
+## 拜登总统等同盟国紧急会议 岸田首相正在出席中
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2375547/)
 
-采编：文莱                   编译：晨熹
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+围绕战斗加剧的乌克兰局势担忧，在美国总统拜登的呼吁下，包括日本在内的同盟国首脑们开始了紧急会议。
+视频来源：FNN新闻
+紧急会议于日本时间19日晚11点前以在线形式举行。
 
-据【CTV NEWS】4月16日报道， 上海周六报告了新增19例中共病毒感染者，随即中共国其他地区也加强了控制。该国一直在实施旨在消灭奥米克戎变体的所谓“动态清零”政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-44.png)图片来源：CTV NEWS
-据悉，在中共国中部的郑州和中共国西北部的西安，以及靠近上海的苏州都已经下指令，控制居民、避免外出。据称上海市的病例总数占全国病例绝大多数，尽管2500万居民中的大多数一直处于封锁状态。
+参加的国家有法国、欧盟(欧洲联盟)和波兰等国，岸田总理与拜登总统等人一起参加。
 
-虽然严厉的封锁导致食物短缺、家庭分离、工资损失和对零病毒政策的支持度降低，以及广泛的供应链中断会拖累该国今年的经济增长，但中共仍表示“动态清零”是“现阶段中国疫情的最佳选择”。
+协议中除了对乌克兰的支持，以及追究俄罗斯的责任外，还讨论了俄罗斯军队对乌克兰东部的大规模攻击。
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/more-chinese-cities-tighten-controls-as-shanghai-covid-cases-rise-1.5864000](https://www.ctvnews.ca/health/coronavirus/more-chinese-cities-tighten-controls-as-shanghai-covid-cases-rise-1.5864000)
+参考链接：[【速報】バイデン大統領ら同盟国が緊急協議　岸田首相が出席中 (fnn.jp)](https://www.fnn.jp/articles/-/349362)
 
-*编辑/上传：文所未闻*
+* * *
 
+素材：宫米叶
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

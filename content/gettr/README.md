@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 6:47 PM (UTC)`
+
+【419 5th Anniversary】Mr. Miles Guo: The poison of the Chinese Communist Party is the poison from the most devilish power on earth, and it will not stop the harm until it is drained out completely.<br/><br/>【419五周年】郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的。<br/>
+![img](https://media.gettr.com/group40/getter/2022/04/19/18/99a9336d-6f3b-fdc9-7087-dd10671007d4/out.jpg)
+
+---
+
 `@miles 4/19/2022 5:36 PM (UTC)`
 
 4/19/2022 【419 5th Anniversary】Looking back to April 19, 2017, the top CCP cadres believed Miles Guo was that collapsing wall in the famous Chinese proverbs “a wise man will never stand by a collapsing wall”; however, after 5 years, Mr. Guo has proved by using his own experiences that the evil China Communist Party is that collapsing wall and the New Federal State of China is the reliable support and backup for our Chinese, therefore, you can turn into a wise or foolish person in one thought<br/><br/>4/19/2022【419五周年】回望五年前的419，中共高层认为文贵是“君子不立危墙之下“的危墙，而历经五年，文贵先生用亲身证明中共才是危墙，新中国联邦是中国人可依赖的靠山，智者和蠢者只在一线间！<br/>
@@ -146,13 +153,6 @@
 
 2022.04.18  新中国联邦 | 喜财经   粮食是人类的底线；俄概股回流；中共发布物流保障通知
 ![img](https://media.gettr.com/group44/origin/2022/04/19/02/e47456a3-408f-db4d-b5dd-780ca97329f9/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/19/2022 1:19 AM (UTC)`
-
-2022.04.18 晚  新中国联邦 | 新闻访谈   俄罗斯导弹轰炸利沃夫，距离新中国联邦梅迪卡救援营地仅80公里
-![img](https://media.gettr.com/group33/origin/2022/04/19/01/dda3165b-900f-2d39-9d66-7325f2669c13/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

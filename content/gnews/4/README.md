@@ -2,35 +2,22 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
+## 加拿大将成为资源高级合作伙伴
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2375568/)
 
-作者：香草山翻译部
+采编：青青 撰稿：文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+据【真北方】4月16日报道，近期国际形势的千变万化促使加拿大成为资源和环境的高级合作伙伴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-10.jpg)图片来源：True North
 
-文章仅代表作者本人观点，与Gnews无关
+报道称，俄罗斯入侵乌克兰暴露了安全对人们的必要性，中共不可避免地使用一带一路有效地控制西伯利亚的庞大资源。这一系列的变化重新点燃了加拿大对能源问题的探讨，然而有证据显示，拥有大量外国资金加拿大的有关团体，一直说服阻止魁北克液化天然气和天然气生产活动，因此加拿大目前为止还无法做到解决欧洲的天然气危机。
 
-视频参看：
-[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
-[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
+据悉，加拿大对此认为目前必须加强作为高级伙伴的地位，保证对环境负责的资源供应安全。不仅需要继续成为可再生资源的领导者，还需要成为新兴的万亿美元新碳技术市场的探路者。加拿大如果可以引领能源转型，这将使天然气等化石燃料与可再生能源竞争成为低排放能源。并且加拿大的挺身而出能够唤醒其他高级合作伙伴联合对抗俄罗斯。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+链接：[GUEST OP-ED: The Western world is looking to Canadian energy | True North (tnc.news)](https://tnc.news/2022/04/16/guest-op-ed-the-western-world-is-looking-to-canadian-energy/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+编辑/上传：文所未闻
 
  
 
