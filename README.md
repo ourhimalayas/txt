@@ -15,92 +15,92 @@
 
 ---
 
-### [樱花FM┃获得金球奖的著名足球运动员加入乌克兰军队](/content/gnews/1/README.md)
+### [樱花FM┃日本官房长官表示对俄制裁效果全部显现需要时间但现已开始显效](/content/gnews/1/README.md)
  ` 樱花FM`
 
-### [樱花FM┃德国总统的访乌计划遭拒绝](/content/gnews/2/README.md)
- ` 樱花FM`
+### [4月17日傍晚時分，黑龍江肇東出現奇異的紅太陽，視頻中稱「大家都說是異象 」；同時，4月17日5點50分許，吉林市和蛟河市的網友驚奇的發現天空中出現了紅太陽。](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [有声｜上海专家呼吁关注封城导致的额外死亡率](/content/gnews/3/README.md)
+### [有声｜中共国疫情封控 民众挨饿官员贪腐食材大发国难财](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [上海疫情亂象，生活物資進不來，連花清瘟藥卻暢通無阻，而且每戶發了好幾次。](/content/gnews/4/README.md)
+### [4月17日晚間，上海，小區居民每天晩上聚集抗議，要物資。已經習慣，大白叫他們要鬧早點鬧，老人家才能早點睡；上海浦東蔬菜種植基地，大量蔬菜爛在地裡，政府不讓出售。](/content/gnews/4/README.md)
  ` Tokyo Sakura Video Group`
 
-### [樱花FM┃经济产业大臣萩生田：最终目的是不进口俄罗斯煤炭 ﻿](/content/gnews/5/README.md)
+### [樱花FM┃中共病毒次生灾难体现在日本民生的各个角落直达婚姻动灭共进程（十四）](/content/gnews/5/README.md)
  ` 樱花FM`
 
-### [樱花FM┃NTT集团宣布 将停止使用俄罗斯软件](/content/gnews/6/README.md)
+### [樱花FM┃日本NTT考虑暂停与俄罗斯“卡巴斯基”的业务](/content/gnews/6/README.md)
  ` 樱花FM`
 
-### [樱花FM┃台湾如何应对中共渗透](/content/gnews/7/README.md)
+### [樱花FM┃G7禁止从俄罗斯进口煤炭 日本计划跟进制裁](/content/gnews/7/README.md)
  ` 樱花FM`
 
-### [樱花FM┃联合国大会将俄罗斯逐出人权理事会，93个国家同意，中共等24国反对！](/content/gnews/8/README.md)
+### [樱花FM┃ING预估若上海封城到4月底 GDP将损失6%](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [上海市奉賢區，居民們20多天買不到菜，卻在垃圾桶發現遼寧捐贈的蔬菜被有權有勢的人扔掉，居民不滿「這是什麼社會啊 」](/content/gnews/9/README.md)
+### [樱花FM┃获得金球奖的著名足球运动员加入乌克兰军队](/content/gnews/9/README.md)
+ ` 樱花FM`
+
+### [上海疫情亂象，生活物資進不來，連花清瘟藥卻暢通無阻，而且每戶發了好幾次。](/content/gnews/10/README.md)
  ` Tokyo Sakura Video Group`
 
-### [樱花FM┃日本首相岸田文雄：暂不使用刺激手段来推动疫苗接种](/content/gnews/10/README.md)
+### [樱花FM┃经济产业大臣萩生田：最终目的是不进口俄罗斯煤炭 ﻿](/content/gnews/11/README.md)
  ` 樱花FM`
 
-### [被视为乌克兰“避难所”的利沃夫遭导弹袭击](/content/gnews/11/README.md)
+### [上海市奉賢區，居民們20多天買不到菜，卻在垃圾桶發現遼寧捐贈的蔬菜被有權有勢的人扔掉，居民不滿「這是什麼社會啊 」](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [被视为乌克兰“避难所”的利沃夫遭导弹袭击](/content/gnews/13/README.md)
  ` 日本東京方舟農場`
 
-### [2022年4月19日《樱花快报》：北京也将以疫情为由“封城”](/content/gnews/12/README.md)
+### [2022年4月19日《樱花快报》：北京也将以疫情为由“封城”](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰马立波拒绝投降 奋战抵抗俄军](/content/gnews/13/README.md)
+### [乌克兰马立波拒绝投降 奋战抵抗俄军](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [连花清瘟胶囊的诞生和发迹史（4）](/content/gnews/14/README.md)
+### [连花清瘟胶囊的诞生和发迹史（4）](/content/gnews/16/README.md)
  ` 加拿大温哥华英里农场`
 
-### [利用宇宙射线：科学家发现了一种意想不到的方法来探测海啸](/content/gnews/15/README.md)
+### [利用宇宙射线：科学家发现了一种意想不到的方法来探测海啸](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [连花清瘟胶囊的诞生和发迹史（3）](/content/gnews/16/README.md)
+### [连花清瘟胶囊的诞生和发迹史（3）](/content/gnews/18/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中共洗腦下的國人，河北邯鄲某地村民，燒香祈求把病毒「攆到美國」](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
-
-### [连花清瘟胶囊的诞生和发迹史（2）](/content/gnews/18/README.md)
+### [连花清瘟胶囊的诞生和发迹史（2）](/content/gnews/19/README.md)
  ` 加拿大温哥华英里农场`
 
-### [4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差](/content/gnews/19/README.md)
+### [4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/20/README.md)
+### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [同济大学的拉屎逻辑](/content/gnews/21/README.md)
+### [同济大学的拉屎逻辑](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/22/README.md)
+### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/23/README.md)
+### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/24/README.md)
+### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/25/README.md)
  ` MOS香港部`
 
-### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/25/README.md)
+### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/26/README.md)
+### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/27/README.md)
+### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/28/README.md)
+### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
