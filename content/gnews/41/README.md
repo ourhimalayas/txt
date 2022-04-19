@@ -2,29 +2,42 @@
 ---
 
 
-## 新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372113/)
+## 有声| 捷克外长：欧盟应帮助被中共霸凌的台湾
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2371751/)
 
-**图/文｜CP **
-**发布时间｜19/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新冠疫苗｜福奇指群體免疫不適用新冠病毒-暗示民眾需繼續打針.jpg)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-2.png)
+【大纪元4月16日讯】 捷克外交部长利帕夫斯基表示，台湾是民主国家，是欧盟应帮助被中共霸凌的台湾的时候了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-9.jpg)**捷克外长利帕夫斯基（Jan Lipavsky）2022年4月13日表示，现在是欧盟帮助中共被霸凌的台湾的时候了。**
+据中央社报导，去年底上任的捷克外长利帕夫斯基13日接受欧洲政治新闻网站Politico访问时，指全球民主国家应该团结，其中包括台湾。对台湾“被中（共）国霸凌”表示理解，强调现在是欧盟尽可能帮助像台湾这样的民主国家的时候了。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+欧洲第一个以台湾为名的代表处“驻立陶宛台湾代表处”去年11月挂牌运作。
+
+报导说，外交人士预期，随着对北京友好的总统齐曼今年年底下台，捷克可能跟进立陶宛，将原本台湾的代表处更名为台湾。
+
+现年36岁的利帕夫斯基担任众议院外交委员会副主席时曾是“对华政策跨国议会联盟”（IPAC）成员，以对中共立场强硬闻名。
+
+今年7月，捷克将接任欧盟轮值主席国，主导欧盟下半年的议程。
 
 
-美国国家传染病研究所所长福奇（Anthony Fauci）周五（15日）接受采访时表示，群体免疫的概念可能不适用于新冠病毒。
 
-早前，福奇联同多名医学专家为《传染病学期刊》撰写了一篇关于群体免疫的研究论文，对此，福奇在接受媒体访问时以美国曾经利用群体免疫战胜麻疹举例，指出当时之所以成功战胜麻疹基于三个重要性指标，包括绝对有效的疫苗、病毒不会随时间产生显著变异以及成功的儿童疫苗接种。
+[【援引连结】](https://www.epochtimes.com/gb/22/4/16/n13713243.htm)
 
-福奇指出，对照目前的新冠病毒来看，疫情爆发两年多以来，不断出现 Delta和Omicron等多种显著性变异毒株，加上疫苗接种率不足，因此认为，群体免疫概念可能不适用于新冠病毒。福奇强调，无论是接种疫苗诱发的免疫力，还是染疫后引起的免疫作用都并非终生，这意味着民众需要不断的接种新冠疫苗。
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
 
-有评论质疑，在福奇所列举的三大重要性指标中，“绝对有效的疫苗”居于首位，那么群体免疫不奏效的根本原因，应该率先考虑疫苗的有效性问题，而不是将群体免疫无效的症结点归结到疫苗接种率的问题上。再者，既然疫苗诱发的免疫力并非终生，那么是否值得为了短暂的免疫力而承担所可能引起的上千种疫苗副反应呢？归根结底，任何一个负责任的科学家，都不应该鼓励民众继续接种一个弊大于利的疫苗。
-
-来源｜[NJ](https://www.nj.com/coronavirus/2022/04/dr-anthony-fauci-says-herd-immunity-may-not-apply-to-covid.html)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

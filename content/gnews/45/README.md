@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|清零指日可待？上海人呼吁当局勿误导
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2371749/)
+## 俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2371564/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
-【自由时报4月17日】 中共金融兼商业中心上海市，十五日本土新增3590例确诊病例和19923名无症状感染者，共23513人染疫，显示当地疫情仍在高点。中共国务院总理孙春兰十五日宣称，上海疫情传播指数由2.27降至现时的1.23，“早日实现社会面清零的目标指日可待”。上海医疗专家则呼吁，当局不要继续误导人民。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003-9.jpg)中共第一大城上海市的武汉肺炎疫情依然处于高点，当局祭出的「封城」令已重创上海此一中共经济的火车头。图为十六日上海一处住宅区的居民，正大排长龙做核酸检测
-当局坚持动态清零，中共国退休军医、前上海市第二军医大学长征医院副院长缪晓辉公开呼吁当局调整策略，甚至点名传染病专家梁万年和吴尊友，要他们不要继续误导国人，“你们俩有本事『清零』，我对着十四亿人割腕谢罪” 。缪晓辉抨击不赞成“清零”就是“躺平”的说法，指抗击疫情必须把科学、民生、政治、 经济和国际影响等通盘考虑，“科学第一，没有这个就没有其他”。
+**图/文｜CP**
+**发布时间｜19/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜美國鬆口-稱正研究將俄羅斯列為「恐怖主義支持國」.jpg)
 
-[【援引连结】](https://news.ltn.com.tw/news/life/paper/1512135)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+
+美国国务院发言人普萨基（Ned Price）18日接受媒体采访时表示，美国正在仔细研究将俄罗斯列为“恐怖主义支持国”的相关事实与法律规定。另有华府高级官员亦指称，美国国务院正在“寻找一切可用的方法”让俄罗斯为俄乌战争负责，包括可能将俄罗斯列为恐怖主义支持国，不过，最终决定可能需要数周时间才能达成。
+
+根据美国国务院的定义，恐怖主义支持国是指“一再为国际恐怖主义行为提供支持”的国家。自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支持国”。
+
+早前，有报导引述消息人士透露，乌克兰总统泽连斯基（Volodymyr Zelensky）在最近一次与美国总统拜登（Joe Biden）的通话中，请求美国将俄罗斯列为“恐怖主义支持国”，以加大国际社会对俄罗斯的谴责力度。不过，当时拜登并未就该请求作出承诺或采取具体行动，只表示愿意探讨一系列的建议。
+
+报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支持国”，意味着美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+
+來源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-new-04-18-22/h_379c2d3bc66d542de9433f5de32fc712)、[GNEWS](https://gnews.org/zh-hant/2356330/)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

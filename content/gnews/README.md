@@ -15,44 +15,44 @@
 
 ---
 
-### [20220419郭文贵大直播 ：如水回忆结识七哥加入爆料革命的契机](/content/gnews/1/README.md)
+### [佛州联邦法官撤销乘坐公交的口罩佩戴令](/content/gnews/1/README.md)
+ ` NFSC News`
+
+### [美国超算实验室提前终止与中共的技术合作](/content/gnews/2/README.md)
+ ` NFSC News`
+
+### [民主党重量级参议员力主派兵乌克兰](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [乌克兰哈尔科夫接连四天遭受炮击](/content/gnews/4/README.md)
+ ` NFSC News`
+
+### [一些上海人开始醒来对核酸检测骗局说NO](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [20220419郭文贵大直播 ：如水回忆结识七哥加入爆料革命的契机](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【G时新闻】中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/2/README.md)
+### [【G时新闻】中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [20220419郭文贵大直播 ：七哥回忆污蔑七哥的红通事件](/content/gnews/3/README.md)
- ` Tokyo Sakura Video Group`
+### [《避风港Haven》（第三十七期）直播内容精选](/content/gnews/8/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
-### [2022.4.19大直播：2017.4.19开启灭共大门 2022.4.19我们再续传奇](/content/gnews/4/README.md)
+### [2022.4.19大直播：2017.4.19开启灭共大门 2022.4.19我们再续传奇](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [20220419郭文贵大直播 ：七哥回忆与BBC采访被王岐山叫停 当时和其它媒体的合作](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
-
-### [文贵大直播 4/19 4.19断播： 划时代的一天 灭共之路今昔谈](/content/gnews/6/README.md)
+### [文贵大直播 4/19 4.19断播： 划时代的一天 灭共之路今昔谈](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [20220419郭文贵大直播 ：爆料革命钓出美国之音中文部主任中共特务龚小夏](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [日本向乌克兰提供防护面罩与无人机等应对化学武器攻击](/content/gnews/8/README.md)
+### [日本向乌克兰提供防护面罩与无人机等应对化学武器攻击](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [20220419郭文贵大直播 ：2015年文贵先生的媒体计划](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [【G时新闻】俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/10/README.md)
- ` G-时新闻`
-
-### [20220419郭文贵大直播 ：五年前419没报的王岐山的秘密](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|乌克兰救援前线团队与国际志愿者共同庆祝复活节](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [美国军事机构与中共间谍机构的非正常关系](/content/gnews/13/README.md)
+### [美国军事机构与中共间谍机构的非正常关系](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [中共政权就是霸凌政权](/content/gnews/13/README.md)
+ ` 纽约香草山MOS02`
 
 ### [担心中共军事影响力，美国拟派团游说印太三国](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
@@ -78,8 +78,8 @@
 ### [英国向普京展示武力：照片显示导弹被装载到直布罗陀的潜艇上](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法国检察官研究欧盟反欺诈机构关于勒庞的报告](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [20220419郭文贵大直播 ：回顾VOA断播的这5周年对我们的意义太大了！](/content/gnews/22/README.md)
+ ` Tokyo Sakura Video Group`
 
 ### [欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆](/content/gnews/23/README.md)
  ` NFSC News`
@@ -120,44 +120,44 @@
 ### [中共威胁老百姓“小心你的嘴或面临惩罚”](/content/gnews/35/README.md)
  ` topnews`
 
-### [在加拿大的乌克兰难民面临生活挑战](/content/gnews/36/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [2022/04/19 英喜时事速递](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大将成为能源和矿产资源重要国家](/content/gnews/37/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [秘翻在线：俄罗斯军队开始对乌克兰顿巴斯地区展开大攻势](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [传奇的419](/content/gnews/39/README.md)
+### [传奇的419](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
 
-### [MetaMask警告说，iCloud用户可能面临失去资产的危险](/content/gnews/40/README.md)
+### [MetaMask警告说，iCloud用户可能面临失去资产的危险](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/41/README.md)
+### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/39/README.md)
  ` 關注組`
 
-### [中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元](/content/gnews/42/README.md)
+### [中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 捷克外长：欧盟应帮助被中共霸凌的台湾](/content/gnews/43/README.md)
+### [有声| 捷克外长：欧盟应帮助被中共霸凌的台湾](/content/gnews/41/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|布查惨案扩大 基辅周边发现千尸](/content/gnews/44/README.md)
+### [有声|布查惨案扩大 基辅周边发现千尸](/content/gnews/42/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|清零指日可待？上海人呼吁当局勿误导](/content/gnews/45/README.md)
+### [有声|清零指日可待？上海人呼吁当局勿误导](/content/gnews/43/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|美加纽澳航班 旅客改唾液采检](/content/gnews/46/README.md)
+### [有声|美加纽澳航班 旅客改唾液采检](/content/gnews/44/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](/content/gnews/47/README.md)
+### [俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](/content/gnews/45/README.md)
  ` 關注組`
 
-### [台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？](/content/gnews/48/README.md)
+### [台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？](/content/gnews/46/README.md)
  ` 關注組`
+
+### [樱花FM｜冻结普京女儿等人资产 日本对俄罗斯实施追加制裁](/content/gnews/47/README.md)
+ ` 樱花FM`
+
+### [樱花FM｜来自乌克兰的64名避难学生在福冈县经济大学入学](/content/gnews/48/README.md)
+ ` 樱花FM`
 
 ### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
