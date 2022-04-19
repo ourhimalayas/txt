@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：到底谁是危墙，5年后的今天给了你答案
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374546/)
+## 20220419郭文贵大直播 ：木兰回忆419断播门和认识七哥的经历
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374573/)
 
 作者：东京樱花团小视频组
 

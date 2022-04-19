@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：2015年文贵先生的媒体计划
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374981/)
+## 20220419郭文贵大直播 ：七哥回忆与BBC采访被王岐山叫停 当时和其它媒体的合作
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2375031/)
 
 作者：东京樱花团小视频组
 
