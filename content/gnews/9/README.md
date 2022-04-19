@@ -2,36 +2,18 @@
 ---
 
 
-## 全球疫情疫苗数据更新(2022.4.18)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2370168/)
+## 【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2370285/)
 
-**整理：枳实
-美工：精灵蓝**
+紐約香草山-香港部
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+我收到了大量的信息啊,关于在海口的、大连的、哈尔滨的,包括青岛的战友们都给我发信息,你们问的问题答案只有一个,这样的苦日子还早的呢,不会是今天，也不会是明天,因为共产党内部有一套,就是每个城封完以后,怎么让大家死的人，不让人知道,病死的人，不让人家知道,医院的人怎么封口,特别是饿死的人、跳楼的人,不能让人知道，邻居家做工作,还有一个叫清零后的政策委员会.
 
+所以说共产党,你得了解这个流氓组织的本质,”习太阳”非常想折腾折腾上海,特别是韩正偷着坐火车回到上海,你想干啥？韩正？你觉得“习太阳”能放心吗？共产党，不就整人、整材料吗？是吧？
 
-雅典娜疫情更新（2022年 4月18日）
+我告诉大家，我现在不能具体说,有人是几百万的人民币现金,换着跑出了上海,可悲的事情,在全中国现在在骂美国的时候,上海人逃到美国、英国还有加拿大,大多都是有钱人和有权人的家人和孩子,吃苦的还是老百姓,其中一个咱战友,花了一千万带出来10个人,这10个人坐着一架私人飞机来了美国,人家美国一看这签证都已经是过期了,了解情况以后放行，给他六个月,另外两个来了以后就没有时间,说进来吧，说上海来的,傻了,这就是美国人对待上海人,说我们了解你们上海的惨状，进去吧,天知地知，美国人怎么对待中国人的,中国人你自己知道
 
-[往期《雅典娜疫情更新](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/418-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/419.jpg)
-数据来源：
-[谷歌](//www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](//ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](//www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](//www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](//covidlive.com.au/)
-[Coronavirus World Map](//www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：文武全才
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
+现在在上海的日本大使馆,美国大使馆快饿死个球的了,中国人怎么对待美国人的,怎么对待其他国家人的,人家怎么对待我们的,包括这些天多少人到了日本才知道,光咱们爆料革命都可以千计,已经快达到两千（人）了,到现在为止，跑到日本国去的,日本国基本上都是给放行,一个在上海开工厂的，一个很小的工厂的,一个包装盒厂，日本人的,几乎把他们的高管全给弄到日本去了,给日本人打工，关键时候救命,你给共产党打工，要你的命,这就是本质的不同.
 
  
 

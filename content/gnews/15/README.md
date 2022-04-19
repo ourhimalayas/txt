@@ -2,28 +2,36 @@
 ---
 
 
-## 美佛州法官判定CDC的公共交通口罩令违法并予以撤销
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2369938/)
+## 全球疫情疫苗数据更新(2022.4.18)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2370168/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16503213081.png)图片来源：纽约时报
-综合外媒4月19日报道，美国佛罗里达州中区联邦地区法院法官卡特琳·米泽尔（Kathryn Mizelle）本周一（4月18日）做出裁决，撤销了美疾控中心（CDC）要求公共交通运输工具上的乘客必须佩戴口罩的规定。
+**整理：枳实
+美工：精灵蓝**
 
-这起诉讼由保守派非营利组织“健康自由捍卫基金”（Health Freedom Defense Fund）以及多位航空旅客在2021年7月发起，起诉对象包括拜登总统、CDC和多位政府官员。由前总统川普任命的米泽尔在长达59页的裁决书中写道：“强制口罩令是非法的，因为它逾越了CDC的法定权限。CDC也没有为其强制令提供充分的理由，其口罩令的实施也违反了行政法。我们的制度不容许政府机构非法行事，即使是为了正当的目的。因此宣告口罩令违法并予以撤销。”
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
 
-目前尚不清楚这项裁决将如何马上影响到旅客，或者拜登政府的司法部是否会试图阻止这项裁决并提出上诉。
 
-由于美国的新冠病例增加，疾控中心最近已将其在2021年2月3日下达的口罩令延长到今年5月3日，民众搭乘飞机、地铁、火车和巴士等交通工具时必须佩戴口罩。
+雅典娜疫情更新（2022年 4月18日）
 
-白宫新闻秘书珍·普萨基 (Jen Psaki) 周一表示这项裁决“令人失望”，并说疾控中心仍在审查这一裁决，同时鼓励美国人在旅行时继续戴口罩。保守派共和党人则对这一裁决表示欢迎。佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis) 在裁决后发推说：“很高兴看到佛罗里达州的一名联邦法官遵守法律，拒绝了拜登政府的公共交通口罩令。航空公司员工和乘客都应该结束这种苦难。”
+[往期《雅典娜疫情更新](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-*责编：白夜*
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/418-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/419.jpg)
+数据来源：
+[谷歌](//www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](//ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](//www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](//www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](//covidlive.com.au/)
+[Coronavirus World Map](//www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-新闻来源：
+发布：文武全才
 
-[Federal judge strikes down CDC’s COVID mask mandate for air passengers, other mass travelers](https://americasvoice.news/justthenews/cdc-traveler-mask-mandate-struck-down-federal-judge/)
-
-[Federal judge strikes down mask mandate for planes](https://news.yahoo.com/federal-judge-plane-mask-mandate-mizelle-trump-appointee-195623323.html)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
 
  
 

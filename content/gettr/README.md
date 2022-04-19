@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 12:34 AM (UTC)`
+
+【Ukraine Rescue】04/17/22 A volunteer from Mexico thinks that we're working for a good cause,  because the dictatorial regime of the CCP should not exist in the 21st century. She also introduces Nicole to the psychiatric service dog who works with her and is able to help cope with the refugees' PTSD, anxiety, and stress crises.<br/><br/>【乌克兰救援】04/17/22 一位来自墨西哥的志愿者认为我们的工作非常有意义，因为中共国的独裁政权不应存在于21世纪。她还向妮可介绍了同她一起工作的精神治疗犬，她能够帮助应对难民的创伤后应激障碍、焦虑、压力危机。
+![img](https://media.gettr.com/group8/getter/2022/04/19/00/fd2b309c-a3dd-7ec0-bfa6-efc4ab39ec46/out.jpg)
+
+---
+
+`@miles 4/19/2022 12:32 AM (UTC)`
+
+2022.04.18 晚  新中国联邦 | 新闻   回顾419断播事件的重要意义；乌克兰救援感动了欧洲某国国防高官
+![img](https://media.gettr.com/group46/origin/2022/04/19/00/c770ecaa-7b90-04c6-59b9-ab6dbe06f116/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/19/2022 12:25 AM (UTC)`
+
+4/18/2022 Miles Guo’s GTTR: The staff at the US Customs were very sympathetic to the Shanghainese who escaped to the US. They were allowed to enter the country even though their visas expired. Similar things happened in Japan. One of the Japanese businesses in Shanghai evacuated almost all its management team to Japan upon the lockdown of Shanghai. Think about how the CCP treats its own people, and how it treats the foreigners trapped in Shanghai. What a contrast! Those fellow Chinese who are still cursing the American Imperialists, you’ve got to wake up!<br/><br/>4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本亦如此，日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差！那些还在骂美帝国主义的同胞们，该醒醒了！<br/>
+![img](https://media.gettr.com/group11/getter/2022/04/19/00/16eecb7c-2607-6c77-681a-935d6d1915f8/out.jpg)
+
+---
+
 `@miles 4/19/2022 12:13 AM (UTC)`
 
 4/18/2022 Miles Guo‘s GETTR：What the CCP is planing to do in Qingdao, Harbin, Dalian, and Haikou is to murder more people through vaccination with a disguise of “zero-COVID” policy; the CCP defines the people over 60-year old as social burden and wants to remove this population group as they don’t deserve to be alive; cowardly Taiwanese are afraid to acknowledge the fact that the drones purchased from Australia are actually sold by the CCP<br/><br/>4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除；懦弱的台湾不敢面对自澳洲购买的无人机实为中共售卖的事实 <br/>
@@ -133,27 +154,6 @@
 
 2022.04.18 早  新中国联邦 | 新闻    乌克兰救援前线团队与国际志愿者共同庆祝复活节；中共增加铁路货运班列援助俄罗斯
 ![img](https://media.gettr.com/group13/origin/2022/04/18/12/7c4b2a00-16e7-a319-036e-807ebce8b46a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 11:59 AM (UTC)`
-
-2022.04.18 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
-![img](https://media.gettr.com/group27/origin/2022/04/18/11/2290383a-37b2-f727-d591-1d027fb87dcf/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/18/2022 10:58 AM (UTC)`
-
-2022.04.18  新中国联邦 | 军情室 台海危机期间的东风15，沙特购买的东风导弹
-![img](https://media.gettr.com/group16/origin/2022/04/18/10/713dfc46-acf7-4a8b-6446-65192a419a7a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 10:09 AM (UTC)`
-
-【Ukraine Rescue】 04/15/22  Young Israel volunteer Jacob shares the NFSC’s Passover celebration livecasting link to his parents and grandmother in Israel. This is his first Passover in another country. He uses the Jewish people’s history of fighting for freedom to encourage all the fellow Chinese to keep fighting for freedom. Sometimes the road is tough, but keep fighting and keep moving forward! <br/><br/>【乌克兰救援】 04/15/22 来自以色列的年轻志愿者雅各布与父母和奶奶分享他在异国度过的第一个逾越节，他以犹太人争取自由的历史鼓励所有为自由而战的中国同胞：继续为自由而战，这条路也许会充满艰辛坎坷，但一定要继续战斗，继续向前！<br/>
-![img](https://media.gettr.com/group41/getter/2022/04/18/10/c65f1a87-12fb-f75e-abb1-6bf8ad6fec77/out.jpg)
 
 ---
 

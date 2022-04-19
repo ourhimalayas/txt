@@ -15,118 +15,118 @@
 
 ---
 
-### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/1/README.md)
+### [上海白卫兵暴力打人。](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4月17日， 苏州102岁老人，自己一个人在家，自己每天下楼做核酸。](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [连花清瘟胶囊的诞生和发迹史（1）](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [同济大学的拉屎逻辑](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度在俄乌局势中的举动：获取多利益和谈判筹码](/content/gnews/2/README.md)
+### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印度在俄乌局势中的举动：获取多利益和谈判筹码](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/3/README.md)
+### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/9/README.md)
  ` MOS香港部`
 
-### [约翰逊将首访印度](/content/gnews/4/README.md)
+### [约翰逊将首访印度](/content/gnews/10/README.md)
  ` 加拿大温哥华英里农场`
 
-### [今日盖特大V推荐 — 卡罗琳·德托尼（Caroline Rodrigues de Toni）](/content/gnews/5/README.md)
+### [今日盖特大V推荐 — 卡罗琳·德托尼（Caroline Rodrigues de Toni）](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海，正在醒来](/content/gnews/6/README.md)
+### [上海，正在醒来](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/7/README.md)
+### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022年3月26日 2022年度CLUBS年會直播](/content/gnews/8/README.md)
+### [2022年3月26日 2022年度CLUBS年會直播](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [全球疫情疫苗数据更新(2022.4.18)](/content/gnews/9/README.md)
+### [全球疫情疫苗数据更新(2022.4.18)](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年4月18日：国内清零是掩护，疫苗打死你是真](/content/gnews/10/README.md)
+### [【粤语配音】2022年4月18日：国内清零是掩护，疫苗打死你是真](/content/gnews/16/README.md)
  ` MOS香港部`
 
-### [埃及将首次进口印度小麦 旨在实现来源多元化](/content/gnews/11/README.md)
+### [埃及将首次进口印度小麦 旨在实现来源多元化](/content/gnews/17/README.md)
  ` 加拿大温哥华英里农场`
 
-### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/12/README.md)
+### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [无症状感染者为何要集中隔离？看共匪如何强词夺理](/content/gnews/13/README.md)
+### [无症状感染者为何要集中隔离？看共匪如何强词夺理](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年4月17日 文贵带货大直播](/content/gnews/14/README.md)
+### [2022年4月17日 文贵带货大直播](/content/gnews/20/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/15/README.md)
+### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/21/README.md)
+ ` 蓝莲花农场`
+
+### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/16/README.md)
+### [特鲁多附和拜登谴责俄军在乌克兰的种族灭绝](/content/gnews/23/README.md)
  ` 扬帆枫叶快讯`
 
-### [马斯克收购推特引发加拿大主流媒体的恐慌](/content/gnews/17/README.md)
- ` 扬帆枫叶快讯`
-
-### [特鲁多政府力推互联网审查制度](/content/gnews/18/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大政府计划对皮卡车加增新税](/content/gnews/19/README.md)
- ` 扬帆枫叶快讯`
-
-### [单克隆抗体治疗可能对奥米克戎BA.2无效](/content/gnews/20/README.md)
+### [单克隆抗体治疗可能对奥米克戎BA.2无效](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/21/README.md)
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/22/README.md)
+### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/23/README.md)
+### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升](/content/gnews/24/README.md)
+### [中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [五月花简报（04/18/2022）](/content/gnews/25/README.md)
+### [五月花简报（04/18/2022）](/content/gnews/29/README.md)
  ` mayflowertranslate`
 
-### [美国FDA授权的中共病毒呼吸样本测试首度被使用](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/27/README.md)
+### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联邦法官阻止美CDC的旅行口罩强制令](/content/gnews/28/README.md)
+### [联邦法官阻止美CDC的旅行口罩强制令](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/29/README.md)
+### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [美联储货币政策的狂热追随者](/content/gnews/30/README.md)
+### [美联储货币政策的狂热追随者](/content/gnews/33/README.md)
  ` 澳喜农场`
 
-### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/31/README.md)
+### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/32/README.md)
+### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/33/README.md)
+### [中共国将在有争议的东海和南海部署最先进战斗机](/content/gnews/36/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/34/README.md)
+### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/37/README.md)
  ` thedawn`
 
-### [有声｜ 山西太原快递传染链扩大 郑州封控升级](/content/gnews/35/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [2022/04/13 墙内世界](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [数字货币发展进入法律规范化时代](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [中共为大连和青岛大隔离做舆论准备](/content/gnews/38/README.md)
+### [数字货币发展进入法律规范化时代](/content/gnews/38/README.md)
  ` NFSC News`
 
 ### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/39/README.md)
