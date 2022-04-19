@@ -15,118 +15,118 @@
 
 ---
 
-### [为了人类千年和平](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯军队为海军登陆马里乌波尔做准备](/content/gnews/2/README.md)
- ` topnews`
-
-### [青岛还未封城的众生万象](/content/gnews/3/README.md)
- ` 纽约香草山MOS03`
-
-### [面对中共喉舌战狼谩骂，格雷厄姆幽默回应](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|俄黑海舰队旗舰被击沉没](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [4/19/2022国际财经快讯：台湾寻求加入印太经济与美国合作；美国加息在即，欧洲股市下跌](/content/gnews/6/README.md)
- ` 秘密翻译组金融团队`
-
-### [斯里兰卡危机背后的中国共产党的 &#8220;债务陷阱 外交“](/content/gnews/7/README.md)
- ` topnews`
-
-### [疫情封锁引发戒严、逮捕和自杀事件，上海沦为人间地狱](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共积极宣传，诱骗人们接种中共病毒疫苗](/content/gnews/9/README.md)
- ` 银河歌舞厅`
-
-### [中共威胁老百姓“小心你的嘴或面临惩罚”](/content/gnews/10/README.md)
- ` topnews`
-
-### [一位意大利人叙讲述在上海隔离营的生活](/content/gnews/11/README.md)
- ` xiaobaige`
-
-### [在加拿大的乌克兰难民面临生活挑战](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [数字货币在乌克兰人道救援中发挥独特作用](/content/gnews/13/README.md)
- ` GTV News Talk`
-
-### [以抗疫验诚臣](/content/gnews/14/README.md)
- ` 银河勇气之星`
-
-### [4/19/2022 银河快讯：外国领导人将陆续访问日本；日本银行黑田行长：&#8221;日元快速贬值将产生巨大的负面影响&#8221;](/content/gnews/15/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [封城之疯](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大将成为能源和矿产资源重要国家](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [2022/04/15 墙内世界](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [6名美国议员令人惊喜地抵达台湾进行访问 中共发警告](/content/gnews/19/README.md)
- ` topnews`
-
-### [中共国高级外交官称中共国将加强与俄罗斯的协调](/content/gnews/20/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线：中共“抗疫神药”连花清瘟遭质疑的背后](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年04月14日 七哥乱聊直播](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [【G时新闻】印度空军取消11亿美元48架俄罗斯Mi-17 V-5直升机订单](/content/gnews/23/README.md)
- ` G-时新闻`
-
-### [塞尔维亚指责有关航空炸弹恶作剧](/content/gnews/24/README.md)
- ` Shuizhuyu`
-
-### [安大略省新冠病毒疫情最新简报](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [《避风港Haven》直播内容精选（第三十六集）](/content/gnews/26/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [秘翻在线：俄罗斯军队开始对乌克兰顿巴斯地区展开大攻势](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022/04/19 英喜时事速递](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：韩国医生团队表示癫痫患者感染新冠（中共病毒）时重症并发症的危险更高](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大科技行业人才流失日益加剧](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [73岁的芬兰总统新冠病毒检测呈阳性](/content/gnews/31/README.md)
- ` Shuizhuyu`
-
-### [自由&#8212;-人性中最深刻的需要](/content/gnews/32/README.md)
+### [辟谣与造谣](/content/gnews/1/README.md)
  ` 澳喜特战旅Gnews`
 
-### [COVID-19疫苗副作用集萃(2022.4.19B) 辉瑞疫苗第三针，人差点没了](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
+### [中日财经爆┃中共已规划即将到来的粮荒做准备](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年4月19日战时快讯（1）](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
+### [有声|中共的清零政策造成上海地区移民搜索量暴增](/content/gnews/3/README.md)
+ ` MOSREC`
 
-### [乌克兰称俄罗斯在东线发动“顿巴斯之战”](/content/gnews/35/README.md)
- ` Shuizhuyu`
+### [美国及世界疫情简报（04-19-2022）](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
 
-### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/36/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [战争第53天：俄罗斯损失了20300名人员、773辆坦克和165架飞机](/content/gnews/5/README.md)
+ ` topnews`
 
-### [泽连斯基：乌克兰全境解放只是时间问题](/content/gnews/37/README.md)
+### [有声|泽连斯基表示已逮捕亲俄派政治领袖](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [俄罗斯军队正计划对白俄罗斯进行军事入侵](/content/gnews/7/README.md)
  ` 波士顿五月花农场金融部`
 
-### [乌克兰外交部：16个外国外交使团在基辅重新开放](/content/gnews/38/README.md)
+### [为了人类千年和平](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄罗斯军队为海军登陆马里乌波尔做准备](/content/gnews/9/README.md)
+ ` topnews`
+
+### [青岛还未封城的众生万象](/content/gnews/10/README.md)
+ ` 纽约香草山MOS03`
+
+### [面对中共喉舌战狼谩骂，格雷厄姆幽默回应](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|俄黑海舰队旗舰被击沉没](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [4/19/2022国际财经快讯：台湾寻求加入印太经济与美国合作；美国加息在即，欧洲股市下跌](/content/gnews/13/README.md)
+ ` 秘密翻译组金融团队`
+
+### [疫情封锁引发戒严、逮捕和自杀事件，上海沦为人间地狱](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共积极宣传，诱骗人们接种中共病毒疫苗](/content/gnews/15/README.md)
+ ` 银河歌舞厅`
+
+### [中共威胁老百姓“小心你的嘴或面临惩罚”](/content/gnews/16/README.md)
+ ` topnews`
+
+### [一位意大利人叙讲述在上海隔离营的生活](/content/gnews/17/README.md)
+ ` xiaobaige`
+
+### [在加拿大的乌克兰难民面临生活挑战](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [数字货币在乌克兰人道救援中发挥独特作用](/content/gnews/19/README.md)
+ ` GTV News Talk`
+
+### [以抗疫验诚臣](/content/gnews/20/README.md)
+ ` 银河勇气之星`
+
+### [4/19/2022 银河快讯：外国领导人将陆续访问日本；日本银行黑田行长：&#8221;日元快速贬值将产生巨大的负面影响&#8221;](/content/gnews/21/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [封城之疯](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大将成为能源和矿产资源重要国家](/content/gnews/23/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2022/04/15 墙内世界](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国高级外交官称中共国将加强与俄罗斯的协调](/content/gnews/25/README.md)
+ ` Shuizhuyu`
+
+### [2022年04月14日 七哥乱聊直播](/content/gnews/26/README.md)
+ ` 秘密翻译组-原创组`
+
+### [塞尔维亚指责有关航空炸弹恶作剧](/content/gnews/27/README.md)
+ ` Shuizhuyu`
+
+### [安大略省新冠病毒疫情最新简报](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [秘翻在线：俄罗斯军队开始对乌克兰顿巴斯地区展开大攻势](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/04/19 英喜时事速递](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：韩国医生团队表示癫痫患者感染新冠（中共病毒）时重症并发症的危险更高](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大科技行业人才流失日益加剧](/content/gnews/32/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [73岁的芬兰总统新冠病毒检测呈阳性](/content/gnews/33/README.md)
+ ` Shuizhuyu`
+
+### [自由&#8212;-人性中最深刻的需要](/content/gnews/34/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [COVID-19疫苗副作用集萃(2022.4.19B) 辉瑞疫苗第三针，人差点没了](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰称俄罗斯在东线发动“顿巴斯之战”](/content/gnews/36/README.md)
+ ` Shuizhuyu`
+
+### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/37/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [泽连斯基：乌克兰全境解放只是时间问题](/content/gnews/38/README.md)
  ` 波士顿五月花农场金融部`
 
 ### [为何中共国的封锁政策导致澳洲燃油价格跌落](/content/gnews/39/README.md)

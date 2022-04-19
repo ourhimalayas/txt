@@ -2,26 +2,24 @@
 ---
 
 
-## 73岁的芬兰总统新冠病毒检测呈阳性
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373084/)
+## 秘翻在线：韩国医生团队表示癫痫患者感染新冠（中共病毒）时重症并发症的危险更高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2373095/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-37.jpg)图片来源：本文链接
+据韩媒《newsis》4月19日报道，韩国龙仁severance医院神经科柳俊相、金镇权教授、梨花女子大学首尔大学医院神经科金智贤、宋泰镇教授组19日发表了一项研究结果。如果癫痫患者感染新冠病毒（中共病毒），发生重症并发症的危险就会增加。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+癫痫病是全世界有7千万以上患者患有的比较常见的神经学疾病。研究组以21万2678名新型冠状病毒（中共病毒）PCR检查者和其中伴有癫痫症的3919名为对象进行了分析，结果显示，癫痫病患者感染新冠病毒（中共病毒）时，严重并发症的发病率更高。
 
+在普通确诊患者中，7641名中有431名约5.64%的人出现了重症并发症，而在伴有癫痫症的确诊患者中，72名中的13名约18.06%的人出现了重症并发症。但是，在新冠病毒（中共病毒）感染危险和死亡率方面，尚未确认有无癫痫症的有意义差异。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2HSRJ6BJR5NJZKZDHFFVGVBSJY.jpg)
+研究组表示，此次研究是表明癫痫患者的新冠病毒（中共病毒）感染危险性和感染时预后的韩国国内首次大规模人口集体对象研究，因此具有重要意义。因癫痫患者发生新冠病毒（中共病毒）感染时，发生重症并发症的危险相对较高，因此有必要进行更加细致的管理。并表达了希望以此次研究结果为基础，在医疗现场对新冠病毒（中共病毒）感染癫痫患者采取更加积极的应对措施，降低重症并发症的危险。
 
+此次研究结果刊登在美国神经科学会学术杂志《神经学(Neurology)》3月刊上。
 
-资料来源：路透社
+信息来源：[https://newsis.com/view/?id=NISX20220419\_0001839088&cID=13101&pID=13100](https://newsis.com/view/?id=NISX20220419_0001839088&amp;cID=13101&amp;pID=13100)
 
-赫尔辛基，4 月 19 日（路透社）——芬兰总统办公室在一份声明中说，现年 73 岁的芬兰总统绍利·尼尼斯托（Sauli Niinisto）周二的新冠病毒检测呈阳性。
-
-“尽管受到感染，尼尼斯托总统身体状况良好，并继续远程工作，”它说，并补充说他计划于 4 月 21 日至 22 日对挪威进行的正式访问将被推迟。
-
-🔗[https://www.reuters.com/world/europe/finlands-president-niinisto-73-tested-positive-covid-2022-04-19/](https://www.reuters.com/world/europe/finlands-president-niinisto-73-tested-positive-covid-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
+责编：Eric Kim
 
  
 
