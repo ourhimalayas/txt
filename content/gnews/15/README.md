@@ -2,8 +2,8 @@
 ---
 
 
-## 上海需要帮助的人，太多了，记住这所有的一切都是ccp造成的。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2370389/)
+## 来自法国的国际无疆界救援者（SSF）和来自意大利的IOM （国际移民组织）人员最爱NFSC咖啡、最支持新中国联邦灭共。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2370449/)
 
 作者：东京樱花团小视频组
 

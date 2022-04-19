@@ -15,119 +15,119 @@
 
 ---
 
-### [美高官将率团访问三太平洋岛国](/content/gnews/1/README.md)
- ` 日本東京方舟農場`
-
-### [乌克兰马立波拒绝投降 奋战抵抗俄军](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [一位乌克兰妇女自述：上海隔离期间犹如罪犯](/content/gnews/3/README.md)
- ` 日本東京方舟農場`
-
-### [连花清瘟胶囊的诞生和发迹史（4）](/content/gnews/4/README.md)
- ` 加拿大温哥华英里农场`
-
-### [乌克兰总统泽连斯基：俄罗斯军队已展开“顿巴斯之战”](/content/gnews/5/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [樱花FM┃联大表决暂停俄人权理事会资格，中共投反对票](/content/gnews/6/README.md)
+### [樱花FM┃NTT集团宣布 将停止使用俄罗斯软件](/content/gnews/1/README.md)
  ` 樱花FM`
 
-### [利用宇宙射线：科学家发现了一种意想不到的方法来探测海啸](/content/gnews/7/README.md)
+### [樱花FM┃联合国大会将俄罗斯逐出人权理事会，93个国家同意，中共等24国反对！](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [被视为乌克兰“避难所”的利沃夫遭导弹袭击](/content/gnews/3/README.md)
+ ` 日本東京方舟農場`
+
+### [2022年4月19日《樱花快报》：北京也将以疫情为由“封城”](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美高官将率团访问三太平洋岛国](/content/gnews/5/README.md)
+ ` 日本東京方舟農場`
+
+### [乌克兰马立波拒绝投降 奋战抵抗俄军](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [连花清瘟胶囊的诞生和发迹史（3）](/content/gnews/8/README.md)
+### [一位乌克兰妇女自述：上海隔离期间犹如罪犯](/content/gnews/7/README.md)
+ ` 日本東京方舟農場`
+
+### [连花清瘟胶囊的诞生和发迹史（4）](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [来自法国的国际无疆界救援者（SSF）和来自意大利的IOM （国际移民组织）人员最爱NFSC咖啡、最支持新中国联邦灭共。](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
+### [乌克兰总统泽连斯基：俄罗斯军队已展开“顿巴斯之战”](/content/gnews/9/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [为22个小孩送行，來自救援前綫战友 中国联邦法治基金乌克兰人道救援行动。](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
+### [樱花FM┃中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑](/content/gnews/10/README.md)
+ ` 樱花FM`
 
-### [连花清瘟胶囊的诞生和发迹史（2）](/content/gnews/11/README.md)
+### [樱花FM┃联大表决暂停俄人权理事会资格，中共投反对票](/content/gnews/11/README.md)
+ ` 樱花FM`
+
+### [利用宇宙射线：科学家发现了一种意想不到的方法来探测海啸](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
+
+### [连花清瘟胶囊的诞生和发迹史（3）](/content/gnews/13/README.md)
  ` 加拿大温哥华英里农场`
 
-### [4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差](/content/gnews/12/README.md)
+### [中共洗腦下的國人，河北邯鄲某地村民，燒香祈求把病毒「攆到美國」](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [来自法国的国际无疆界救援者（SSF）和来自意大利的IOM （国际移民组织）人员最爱NFSC咖啡、最支持新中国联邦灭共。](/content/gnews/15/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [为22个小孩送行，來自救援前綫战友 中国联邦法治基金乌克兰人道救援行动。](/content/gnews/16/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [连花清瘟胶囊的诞生和发迹史（2）](/content/gnews/17/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [4/18/2022 文贵盖特：逃到美国的上海人得到美国海关的同情，虽签证过期也被放行。日本工厂在上海封城后将上海的员工接到日本。想想中共是如何对待自己的老百姓的，又如何对待困在上海的外国人的，这是多大的反差](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国 上海 倒卖防疫物资。](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [共匪惧怕众怒，把封城改为静态管理、静默管理](/content/gnews/14/README.md)
+### [共匪惧怕众怒，把封城改为静态管理、静默管理](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海需要帮助的人，太多了，记住这所有的一切都是ccp造成的。](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/16/README.md)
+### [4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [连花清瘟胶囊的诞生和发迹史（1）](/content/gnews/17/README.md)
- ` 加拿大温哥华英里农场`
-
-### [同济大学的拉屎逻辑](/content/gnews/18/README.md)
+### [同济大学的拉屎逻辑](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/19/README.md)
+### [上海市民质疑什么样的脑子设计出这么多死循环？](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/20/README.md)
+### [日本拟完善法律设置准难民制度 推进接收乌克兰难民](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/21/README.md)
+### [【粤语配音】2022年4月18日：国内战友成功逃到美国和日本等西方国家](/content/gnews/24/README.md)
  ` MOS香港部`
 
-### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/22/README.md)
+### [4月17日晚在上海华山路挂标语者18日凌晨被警方带走](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022年3月26日 2022年度CLUBS年會直播](/content/gnews/23/README.md)
- ` 秘密翻译组-原创组`
-
-### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/24/README.md)
+### [拜登将要求新的基础设施项目使用美国钢和铁](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/25/README.md)
+### [乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/26/README.md)
+### [美佛州法官判定CDC的公共交通口罩令违法并予以撤销](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/27/README.md)
+### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（二）](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/28/README.md)
+### [樱花时政┃意大利重开驻基辅大使馆 西班牙跟进](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/29/README.md)
+### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升](/content/gnews/30/README.md)
+### [中日财经爆┃世界银行下调全球经济增长前景 滞胀担忧飙升](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [五月花简报（04/18/2022）](/content/gnews/31/README.md)
+### [五月花简报（04/18/2022）](/content/gnews/33/README.md)
  ` mayflowertranslate`
 
-### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/32/README.md)
+### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联邦法官阻止美CDC的旅行口罩强制令](/content/gnews/33/README.md)
+### [联邦法官阻止美CDC的旅行口罩强制令](/content/gnews/35/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [欧洲某国国防部官员对新中国联邦的救援行动表示感谢](/content/gnews/34/README.md)
- ` GTV News Talk`
-
-### [美联储货币政策的狂热追随者](/content/gnews/35/README.md)
+### [美联储货币政策的狂热追随者](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/36/README.md)
+### [玛丽亚采访章家敦对上海的这次封锁有什么看法？这会结束吗？](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/37/README.md)
+### [俄军突袭世界遗产名城利沃夫造成平民死亡](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中共用清零政策做掩护，给人打毒疫苗才是目的](/content/gnews/38/README.md)
- ` thedawn`
 
 ### [若早出售武器给乌克兰和台湾，或将避免战争的发生](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
