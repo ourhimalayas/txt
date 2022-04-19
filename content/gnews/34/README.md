@@ -2,58 +2,61 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.19B) 辉瑞疫苗第三针，人差点没了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2373019/)
+## 传奇的419
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2373023/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+作者：香草山健身部-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2329.png)
 
-整理：禄森
-编辑：禄森
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)圖片來源：雅典娜設計組(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+2017年的419七哥遭遇了断播，
+![](https://assets.gnews.org/wp-content/uploads/2022/04/681F28D5-E913-4426-96D9-7C47D29DCF8D.jpeg)
+爆料革命却因为断播这一刻走上了世界的舞台，
+这是个历史性的一刻，
+是中共合一国之力打压七哥的铁证，
+也是爆料革命登上闪耀光芒的重要时刻，
+更是掀起灭共怒潮的起点。
+如今美国国会已关注直播美国之音中断事件，
+龚小夏、东方、杨晨被休假。
+ 2017年419直播专访文贵先生3小时的直播是美国之音批准的，
+并非其声明的原定1小时，
+此次中断事件暴露出中共对美国政府机构的渗透。
+ 中共外交部外媒处以郭文贵被大连以涉嫌行贿批捕，
+那么巧，明天要直播了，
+今天来一个莫须有……
+这是针对这次采访而采取的批捕行动，
+是中共驻美使馆致电美国之音纪锋，
+要求美国之音不能直播专访郭文贵。
+ 纪锋将中共的意见报告给张晶、龚小夏等人。
+妄图阻止七哥的直播专访，
+无耻的张晶又要求美国之音缩短节目，
+以至于三小时的直播被篡改。
+龚小夏 更是精心准备采访想对七哥实行钓鱼行动，
+以了解郭先生手上到底有多少中共高层尤其是 王岐山 的大料，
+不料反被郭先生钓鱼，
+成了爆料王岐山的绝好机会，弄巧成拙的龚小夏团队制造了震惊中外的“419断播门”。
+变相的推动了爆料革命前进的步伐，
+遇难呈祥的爆料革命几年来一路捷报频传，
+在七哥的引领下共创新中国联邦，
+几年来队伍日益扩大，英才齐聚豪气冲天，
+出良药救世人扬善不问结果，
+为世界提前预警减少灾难，
+乌克兰救援独当一面，
+大扬正道主义之善勇，
+我们是热爱和平的新中国联邦，
+我们是消灭中共的新中国联邦，
+我们的启发站就是419。
+消灭中共是正义的必须，
+每一年的419都叫共产党以滑车般的速度飞速冲向死亡之谷，
+2022年的419就是启动中共末日的倒计时
+![](https://assets.gnews.org/wp-content/uploads/2022/04/A0B7AD30-B8CE-4821-9FFF-DF3BF68D811A.jpeg)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-**博主: meow**
-
-辉瑞第三针,人差点没了
-
-昨天打完第三针，感觉除了胳膊酸痛没什么大问题, 结果到了深夜开始发烧，又冷又热，几乎一夜没睡 早上起来是又困又累又饿,问题是还吃不下东西,继续昏睡到现在，头痛欲裂，现在还加上胃痛，我想知道能吃药嘛做什么可以减缓我的痛楚
-
-**作者发布于2022-4-15**
-
-**评论选集:**
-
-长夜评论:
-
-我昨天打了一针莫德纳，今天发低烧
-
-没有底的深水潭评论:
-
-快去搜搜辉瑞的副作用吧，官方已经公布了
-
-在美三小孩的宝妈评论:
-
-我和你反应一样，唉，吃了两粒泰诺睡了两天复活了.唉
-
-无名评论:
-
-我昨天下午打的。 现在是啊手臂疼。还没有其他症状。担心。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2326.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2327.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2328.png)图片来源：小红书
-参考链接：
-
-[头痛，胃痛，胳膊酸痛，发烧](https://www.xiaohongshu.com/website-login/captcha?redirectPath=http%3A%2F%2Fwww.xiaohongshu.com%2Fdiscovery%2Fitem%2F62590dc8000000000102e49b%3Fshare_from_user_hidden%3Dtrue%26xhsshare%3DCopyLink%26appuid%3D62480ace0000000010005395%26apptime%3D1650068447)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,25 @@
 ---
 
 
-## 中共国高级外交官称中共国将加强与俄罗斯的协调
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2373465/)
+## 加拿大将成为能源和矿产资源重要国家
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2373533/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：加拿大温哥华扬帆农场 – 青青（采编）-文莱  （撰稿）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/457OROFDT5PEXOFLSCPGRH3L5Q.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2347.png)图片来源：网络
 
 
-资料来源：路透社
+据【真北方】4月16日报道，全球疫情灾难和俄乌战争影响意外地促使加拿大成为国际能源和矿产资源的主要出口国和绿色产业的高级合作伙伴。
 
-路透北京4月19日 – 中共国外交部周二在一份声明中表示，中共国对俄罗斯表示，无论国际局势如何动荡，中共国将继续加强与俄罗斯的“战略协调”。
+报道称，俄乌战争暴露出安全、食物、住所和能源等的重要性，尤其是在能源等关键产品方面，加拿大需要结束对与其价值观相悖国家的依赖。中俄结盟及其一带一路政策对西伯利亚丰富资源的控制，促使加拿大在资源供应和环境开发中成为国际上的高级合作伙伴，并与欧美盟国一起，共同对抗中俄等极权国家的垄断。
 
-声明说，中共国外交部副部长乐玉成周一向俄罗斯驻华大使安德烈·杰尼索夫作出了这一保证。
+据悉，目前有大量的外国资金流向加拿大各主要政治活动团体，以说服阻止魁北克液化天然气的大规模生产和出口。因此，加拿大至今仍无法帮助解决欧洲对俄罗斯天然气严重依赖的危机。但俄乌战争却使加拿大成为能保证其盟友能源和资源安全的可靠战略伙伴。
 
-简评：中共国是支持乌克兰，现在保证要和俄罗斯提供合作。 让我们继续观察吧， 我们就看着中共直接自己走到死胡同， 然后进入火葬场。
+校对编辑：硫酸羟氯喹64
 
-🔗 [https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/](https://www.reuters.com/world/china/china-russia-cooperation-is-resilient-says-senior-chinese-diplomat-2022-04-19/)
+发稿：青青
 
-责任编辑、发布： Shuizhuyu
+新闻来源： [GUEST OP-ED: The Western world is looking to Canadian energy | True North (tnc.news)](https://tnc.news/2022/04/16/guest-op-ed-the-western-world-is-looking-to-canadian-energy/)
 
  
 

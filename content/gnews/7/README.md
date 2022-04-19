@@ -2,47 +2,33 @@
 ---
 
 
-## 日本瑞士领导人会晤：同意继续对俄实施严厉制裁
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2374074/)
+## 教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（4/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2374280/)
 
-撰稿：Gradient Boost
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+[上一篇：教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（3/4）](https://gnews.org/zh-hans/2374073/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-392.jpg)National vector fabric wave flags of Japan and Switzerland isolated on white background. 1 to 2 proportion.
-网络图片
+►民众那被当作过耳之风的声音
 
-瑞士总统伊格纳齐奥·卡西斯周一表示，瑞士已加入国际社会，对俄罗斯入侵乌克兰实施严厉制裁，但这并不意味着它放弃了传统的中立性。
+只是再次被问到访问基乌的事情时教皇没有正面回答。只是在讨论中不断重申，“我有意愿做所有必要的事情”，同时也说，不知道访问是否可能，也不知道这是否是解决问题的最佳办法。听了这个说法，我想目前实现访问基乌的可能性应该相当低吧。
 
-日本外务省表示，卡西斯和日本岸田首相在东京的会谈中达成一致意见，认为俄罗斯必须对袭击乌克兰平民负责。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-96.jpg)图片来源：共同社
 
-岸田在会议的开场白中说，俄罗斯的入侵不仅破坏了欧洲的国际秩序基础，也破坏了亚洲的国际秩序基础。他表示： “现在是国际社会比以往任何时候都更加团结的时候。”
+但教皇在2019年11月在广岛市和平纪念公园所作的演讲中说：“我想抱着谦虚之情，成为那些即便嘶声呐喊也发不出声音的人们的声音。”饱受战争、不平等、不公正之苦却无法发声的人、即使发出声来声音也不被世界所听见的人，教皇表示自己会代言这些人的声音。
 
-兼任外交部长的卡西斯在另一场新闻发布会上表示，瑞士强烈谴责战争，并敦促俄罗斯立即停止入侵。他说，不属于欧盟的瑞士完全支持欧盟对俄罗斯的制裁，并于上周实施了第五轮措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-129.jpg)图片来源：共同社
 
-日本也迅速加入美国和欧盟的行列，对俄罗斯实施制裁——因为东京担心其入侵对东亚的影响，而中共国目前正在东亚推动自己的领土主张。
+即便在这样做的时候，乌克兰也有一个又一个无辜的平民被杀害。没有什么时候比现在更需要教皇的号召力了。
 
-日本冻结了数百名俄罗斯个人和团体的资产，并禁止新的投资和贸易，包括出口可用于军事目的的商品。日本还宣布了逐步停止进口俄罗斯煤炭的计划。卡西斯告诉记者，他通过与日本官员的会谈了解了日本当前严酷的安全环境。
+参考链接：[ローマ教皇がプーチン氏に激怒した　「キリストの代理人」、キーウ訪問の可能性は？（47NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5316a0d091cfeb876daffbae650a37ca88cb0005)
 
-*编辑：Gradient Boost*
+* * *
 
-*发布：疯狂的韭菜*
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/russia-ukraine-japan-asia-tokyo-europe-1da36af32fd16513d857143a29124b02)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-
-
-**更多信息，更多关注
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
-
+素材：Orpheus
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
