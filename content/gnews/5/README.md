@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：回顾VOA断播的这5周年对我们的意义太大了！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374522/)
+## 20220419郭文贵大直播 ：七哥谈海航和孟宏伟
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374586/)
 
 作者：东京樱花团小视频组
 

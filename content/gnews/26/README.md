@@ -2,40 +2,35 @@
 ---
 
 
-## 中共威胁老百姓“小心你的嘴或面临惩罚”
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373606/)
+## 教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（2/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2374069/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2348.png)
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+上一篇：[教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（1/4）](https://gnews.org/zh-hans/2373863/)
 
-（图片来自原文）
+►访问基乌“在桌案上”
 
-新闻报道或社交媒体本应起到传播的作用，但中国共产党（CCP）却千方百计阻止疾病和真相信息的传播。
+方济各教皇这次到访的国家是地中海岛国马耳他。现任教皇自2013年上任以来，走访了超过55个国家和地区，并呼吁和平的重要性。
 
-当中共国百姓所住的地区不幸被封锁时，就会收到有一些令人毛骨悚然的警告标志或“指导方针”：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-390.jpg)图片来源：共同社
 
-- 不要在网上发布与流行病相关的消息。
-- 未经许可不得进出北京。
-- 间谍就在我们中间；泄漏可能会在瞬间发生。注意你的言语，否则面临惩罚。
+方济各教皇在从罗马飞往马耳他的教皇专机中提到了基乌。当同行记者团就乌克兰总统泽连斯基请求教皇到达基乌并在该国与俄罗斯的谈判上从中调停一事提问时，他说：“(访问基乌)在桌案上”，并表示正在讨论中。只是这个发言不能明写教皇“要去访问”。
 
+方济各教皇还很早就表示了对因激进组织“伊斯兰国”(IS)等当时持续引发冲突的伊拉克的访问意向，但真正实现却是在2021年后。此时距伊拉克政府宣布完成扫荡IS已经有三年多的时间了。
 
-在一段来自上海的来电采访，让我们了解中共控制的中共国现在的情况。
+另一方面，教皇2019年1月访问巴拿马的时候，曾对在同行记者团中的我说 “(今年的)11月会去日本。请做好心理准备“，正如这句话，教皇10个月后实现了访日。
 
-上海来电者：我很荣幸住在一个有很多外籍人士的社区。我们付给拥有“非常特殊的通行证“的人一大笔钱来给我们送一点水果和蔬菜。实际可用的东西非常非常少。
+下一篇：[教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（3/4）](https://gnews.org/zh-hans/2374073/)
 
-戴夫（Dave）：你们是不是可能还没有准备好。政府有没有通知准备？
+参考链接：[ローマ教皇がプーチン氏に激怒した　「キリストの代理人」、キーウ訪問の可能性は？（47NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5316a0d091cfeb876daffbae650a37ca88cb0005)
 
-上海来电者：猝不及防。只给了我们一天时间就完全封锁了。商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有存货，因为已经超过两周没有发货了。
+* * *
 
-同时，我也有两个孩子要上网课。更令人震惊的是，当孩子出现新冠病毒检测呈阳性时，孩子会被从家里带走，在没有父母或监护人的情况下，被送进隔离营。
-
-请观看英文视频，了解更多关于中国人在中共政府手中面临着令人心碎的状况。在视频中，出于显而易见的原因，保护来电者，喜剧演员戴夫·兰道（Dave Landau）[采访的上海来电者由史蒂文·克劳德（Steven Crowder）代替，让我们了解现在中共国的情况](https://youtu.be/7tw4J-CLEAQ)。
-
-新闻来源链接：[https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1)
-
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
-
+素材：Orpheus
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

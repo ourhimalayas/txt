@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：到底谁是危墙，5年后的今天给了你答案
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374546/)
+## 20220419郭文贵大直播 ：七哥深度解读VOA的前世今生
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2374607/)
 
 作者：东京樱花团小视频组
 

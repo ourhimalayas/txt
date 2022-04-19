@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 3:33 PM (UTC)`
+
+【419 5th Anniversary】Mr. Miles Guo: 419 is the most important day to Whistleblowers’ Movement & the NFSC, the most taboo day for the Communist Party; many fellow fighters came together because of the 419 event, determined to take down the Chinese Communist Party!<br/><br/>【419五周年】郭文贵先生：419是爆料革命、新中国联邦最重要的日子，是共产党最忌讳的日子；很多战友因419结缘走到一起，立志铲除中国共产党！<br/><br/>
+![img](https://media.gettr.com/group8/getter/2022/04/19/15/30337489-19e0-f2d7-7cf6-7b2680f2554c/out.jpg)
+
+---
+
 `@miles 4/19/2022 1:03 PM (UTC)`
 
 【Ukraine Rescue】04/18/2022 A volunteer from South Carolina, USA, with World Central Kitchen loves NFSC’s coffee. He says the tent of the NFSC is like a home base there, and the NFSC’s service is impeccable.<br/><br/>【乌克兰救援】04/18/2022来自美国南卡罗莱纳州的“世界厨房”的志愿者喜爱新中国联邦的咖啡。他说新中国联邦的帐篷就像营地的大本营，那里的工作无可挑剔。
@@ -148,13 +155,6 @@
 
 4/18/2022 Miles Guo‘s GETTR：What the CCP is planing to do in Qingdao, Harbin, Dalian, and Haikou is to murder more people through vaccination with a disguise of “zero-COVID” policy; the CCP defines the people over 60-year old as social burden and wants to remove this population group as they don’t deserve to be alive; cowardly Taiwanese are afraid to acknowledge the fact that the drones purchased from Australia are actually sold by the CCP<br/><br/>4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除；懦弱的台湾不敢面对自澳洲购买的无人机实为中共售卖的事实 <br/>
 ![img](https://media.gettr.com/group9/getter/2022/04/19/00/f841a3af-b037-33b3-f0d7-04e9358383db/out.jpg)
-
----
-
-`@miles 4/18/2022 11:57 PM (UTC)`
-
-4/18/2022 Miles Guo’s GETTR: The removal of the restrictions in Shanghai on last Friday predicted by the insiders at the top level of the CCP did not happen. Only I understand the rogue nature of the CCP. “Xi the Sun” simply wants to make the people in Shanghai suffer, and Xi was alerted after he knew Han Zheng had secretly gone back to Shanghai by train.<br/><br/>4/18/2022 文贵盖特：CCP高层的内部战友预计周五上海解封，却没有发生；只有七哥了解中共这个流氓组织的本质；习太阳想折腾上海，韩正偷坐火车回上海看望江朱，引习警觉<br/>
-![img](https://media.gettr.com/group39/getter/2022/04/18/23/e4b03bea-6091-83c3-4d72-09eb5da5306c/out.jpg)
 
 ---
 

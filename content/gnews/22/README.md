@@ -2,33 +2,33 @@
 ---
 
 
-## 俄罗斯军队正计划对白俄罗斯进行军事入侵
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2373804/)
+## 教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（4/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2374280/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-19-下午9.08.59.png)图片来源：互联网
-乌克兰军事情报部门获得的文件证明，俄罗斯第 1 装甲集团军正在为入侵和占领白俄罗斯领土做准备。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+[上一篇：教皇被普京激怒 “耶稣的代理人”是否会访问基乌？（3/4）](https://gnews.org/zh-hans/2374073/)
 
-白俄罗斯总统选举造假后，俄罗斯联邦制定了入侵和镇压民众抗议的计划。
+►民众那被当作过耳之风的声音
 
-占领白俄罗斯的借口是避免俄罗斯“在欧洲大陆地区与西方的北约成员国发生区域性或大规模战争”。
+只是再次被问到访问基乌的事情时教皇没有正面回答。只是在讨论中不断重申，“我有意愿做所有必要的事情”，同时也说，不知道访问是否可能，也不知道这是否是解决问题的最佳办法。听了这个说法，我想目前实现访问基乌的可能性应该相当低吧。
 
-俄罗斯准备对邻国进行军事侵略的证据之一是“在任务区重组第1装甲军的部队和军事部队的计划的传说”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-96.jpg)图片来源：共同社
 
-以缩写形式发布。
+但教皇在2019年11月在广岛市和平纪念公园所作的演讲中说：“我想抱着谦虚之情，成为那些即便嘶声呐喊也发不出声音的人们的声音。”饱受战争、不平等、不公正之苦却无法发声的人、即使发出声来声音也不被世界所听见的人，教皇表示自己会代言这些人的声音。
 
-[以PDF格式查看](https://drive.google.com/file/d/1X-DbV-Y4Xliol0p-Kf8LIOmynM8u3Gc4/view)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-129.jpg)图片来源：共同社
 
+即便在这样做的时候，乌克兰也有一个又一个无辜的平民被杀害。没有什么时候比现在更需要教皇的号召力了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-19-下午9.13.48.png)
-原文链接：
-
-【1】[俄罗斯军队正计划对白俄罗斯进行军事入侵](https://gur.gov.ua/content/armiia-rosii-planuvala-viiskove-vtorhnennia-v-bilorus.html)
+参考链接：[ローマ教皇がプーチン氏に激怒した　「キリストの代理人」、キーウ訪問の可能性は？（47NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5316a0d091cfeb876daffbae650a37ca88cb0005)
 
 * * *
 
-*编辑&发布：长岛开心*
-
+素材：Orpheus
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
