@@ -2,32 +2,31 @@
 ---
 
 
-## 欧美陆续报道儿童罕见肝病
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375360/)
+## 有声|欧洲某国国防部官员对新中国联邦的救援行动表示感谢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2375374/)
 
-作者：香草山农场 Wenfei
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+4月17日，根据郭文贵先生临时直播信息 ，受欧洲某国国防部重要官员委托，通过文贵先生向在梅迪卡参加救援的新中国联邦人致谢，并表示日后，他会亲自看望每一位在梅迪卡前线参加救援的战友。
 
-4月15日，世界卫生组织和美国CDC的公共卫生官员表示，他们目前正在调查多起病因不明的儿童的严重急性肝炎。
+大约一至两周前，欧洲某国国防部重要官员以普通人身份参观了梅迪卡新中国联邦营地帐篷，受到了战友们专业而礼貌地接待，并享用了著名的战地咖啡。新中国联邦人的素质与尊重深深感动了他。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.57.46-AM.png)
+他表示，新中国联邦人救援了很多俄乌战争中关键人物的家属，与他们合作的乌克兰军方的某个重要人的家人就是被新中国联邦拯救的。
 
-这些病例见于13 岁以下的儿童，所有患儿在患病之前身体健康，无肝炎病史或相互接触史。患儿主诉腹泻、恶心和呕吐。部分患儿出现黄疸，血液检查肝酶升高。其中一些患儿病情非常严重，需要肝移植治疗，迄今未见死亡病例。
+文字版原文：[欧洲某国国防部官员对新中国联邦的救援行动表示感谢](https://gnews.org/zh-hans/2369275/)
 
-截止上周，英国和北爱尔兰报道该病病例 74 例，西班牙3例，美国阿拉巴马州9 例。
+音频处理：Fei797
+发稿：Fei797
 
-据世界卫生组织的消息，英国早期的 10 名患儿，有 9 位发病于 2022年1月至3 月，而美~~国的病例发生在 2021 年 10 月至 2022年2 月。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-急性肝炎一般由病毒感染导致。目前，接诊医生已排除甲、乙、丙、丁和戊型肝炎病毒感染的可能性。据阿拉巴马州的儿科医生推测，这种急性肝炎可能与41型腺病毒有关。然而，腺病毒作为上呼吸道病毒，感染后一般引发普通感冒，极少引发肝损伤。世卫组织和美国CDC目前正密切关注这一儿童急性肝炎的流行病学特征。
-
-目前，各国政府和药企正大力推广儿童接种试验性中共病毒疫苗。过去一年多的时间，各类有关中共病毒疫苗损害机体正常免疫机能的证据不断涌现。我们不得不警惕：在接种试验性中共病毒疫苗后，儿童免疫机能下降，可能诱发腺病毒在消化系统的机会性感染。
-
-参考链接：[Rare, severe liver damage reported in kids in U.S. and Europe](https://www.nbcnews.com/health/health-news/severe-hepatitis-kids-dozens-cases-reported-us-europe-rcna24553)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编/编辑/审核：Zion文恩
-校正/发稿：谐趣园
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

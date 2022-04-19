@@ -2,35 +2,10 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
+## 4/19/2022【419五周年】回望五年前419，中共高层认为文贵是“君子不立危墙之下“的危墙，而历经五年，文贵先生用亲身证明中共才是危墙，新中国联邦是中国人可依赖的靠山，智者和蠢者只在一线间
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2375497/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
-[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+秘密翻译组-北美组
 
  
 
