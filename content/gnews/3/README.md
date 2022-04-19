@@ -2,34 +2,47 @@
 ---
 
 
-## 台湾｜与美国贸易代表视讯会面 冀台美签署自由贸易协定
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372917/)
+## 2022年4月19日战时快讯（1）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372996/)
 
-**港台前线 zhong｜2022-4-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-5.png)
-14日晚间，美国重量级国会联邦参众议员访问团台湾，参院财政委员会成员的波特曼（Robert Portman）表示，台湾需要成为“印太经济架构”（IPEF）一员，但更重要的是美国和台湾应签署《自由贸易协定》（FTA）。
+#### 雅典娜情报组《战时快讯专栏》
 
-18日，通过台湾驻美代表萧美琴促成，行政院政务委员邓振中与美国贸易代表戴琪（Katherine Tai）进行视讯会议，双方讨论（2021年）第11届TIFA会议双边工作进展、WTO在内的多边组织合作议题，邓振中会中表达，台湾盼与美国签署双边贸易协定的目标。台湾媒体报导称，邓振中与戴琪均同意未来数月内，针对美台共同关心的议题保持联系。
+整理/编辑：围剿维尼熊
 
-邓振中向媒体表示，谈话内容不方便透漏，但现在关心的事项都很正面，能通话都是正面的事。
-
-同日，戴琪也在华府会晤新加坡下任总理、财政部长黄循财，并发布推特透漏两人讨论美星两国在印太经济架构（IPEF）的合作，但并未提及与台湾政务委员邓振中视讯是否触及印太经济架构议题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3546.jpg)图片来源：微博
 
 
+1—俄罗斯已经发动新攻势，准备攻占乌克兰东部。泽连斯基表示，会持续捍卫乌克兰领土。
 
-> Great to meet with Singapore Finance Minister [@LawrenceWongST](https://twitter.com/LawrenceWongST?ref_src=twsrc%5Etfw) to discuss the Indo-Pacific Economic Framework and our ongoing regional cooperation. Thank you for your partnership in strengthening the U.S.-Singapore trade relationship. [pic.twitter.com/qaHnhv09MZ](https://t.co/qaHnhv09MZ)
-> — Ambassador Katherine Tai (@AmbassadorTai) [April 19, 2022](https://twitter.com/AmbassadorTai/status/1516207264931192836?ref_src=twsrc%5Etfw)
+2—美国白宫周一（4月18日）公布，本周将派出高层官员访问所罗门群岛、斐济和巴布亚新几内亚三个太平洋国家。
 
+3—俄罗斯军队4月18日对利沃夫发动了五次导弹袭击，该市市长萨德耶伊（Andrij Sadowyj）表示，袭击造成了7人丧生。
 
+4—周一（4月18日），美国副总统Kamala Harris宣布，美国不会进行“直升式反卫星武器”（direct ascent anti-satellite）试验，以免造成大量的太空碎片。
 
-其实早在2021年7月14日，美前副总统彭斯（Mike Pence）就于华府智库传统基金会演讲表示，TIFA的贸易、投资也是FTA的核心议题，拜登政府应将目标改为与台湾签署“自由贸易协定”（FTA），借此展露对台的决心，且台美双方将受益，台美之间的自由贸易，更进一步加入印太经济体，成为一个正常国家，已是国际默而不宣的共识。
+5—周一美国公债收益率触及逾三年高位，因投资者预计美联储为试图遏制通胀将大幅升息。
 
-来源｜[自由](https://ec.ltn.com.tw/article/breakingnews/3897971)、[中時](https://www.chinatimes.com/newspapers/20210716000093-260202?chdtv)、[經濟日報](https://money.udn.com/money/story/7307/6250007)、[會議紀要](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2022/april/readout-ambassador-katherine-tais-virtual-meeting-taiwan-minister-without-portfolio-john-deng)、[udn](https://udn.com/news/story/6656/6250367)
+6—美国最新F-35战机高级试飞员表示，F-35具备优势，可以在类似俄乌战情况下取胜，获得制空权。
 
-* * *
+7—联合国人道事务负责人格里菲斯（Martin Griffiths）星期二将前往土耳其，继续努力实现乌克兰某种层级的人道停火。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+8—上海封城后，中共国歌的第一句歌词“起来，不愿做奴隶的人们”和其中的一些关键字成了网民批评政府时引用的语句。微博上有多个与此有关的热搜话题，都遭到封杀。
+
+9—上海封城引发各种乱象后，中国的移民中介表示，试图离开中国的上海富人数量激增。
+
+10—消息人士透露，中共当局担心其海外能源巨头 — 中国海洋石油集团有限公司（CNOOC，中海油）海外资产成为美欧制裁对象，正准备撤出英国、加拿大和美国。
+
+11—中共数据公布，第一季度中国经济同比增长4.8%，超过预期，环比增长1.3%。多家媒体直呼增长数据出人意料。
+
+以上讯息均来自于网络，仅供参考。
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

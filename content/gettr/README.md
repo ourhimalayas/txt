@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 10:59 AM (UTC)`
+
+美國之音419斷播門<br/>5周年特別直播<br/>即将开始💙💙
+![img](https://media.gettr.com/group34/origin/2022/04/19/10/605a6562-d2b0-b65d-5e1e-432a8d2ee0a8/87d6ddc512b455871bfc8eacf44ba8ee.jpg)
+
+---
+
 `@miles 4/19/2022 8:39 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -146,13 +153,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月17日第44天当日救援统计：<br/>Medyka救援站接待：约285人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12489人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 44 - Date: April 17, 2022 :<br/>Medyka Rescue Station Reception: about 285 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12489 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group14/getter/2022/04/18/23/2bca2553-36f0-fd47-0b1e-af2ed53f9f04/e117f7d208576342d15b58acdbfc8bd8.jpg)
-
----
-
-`@miles 4/18/2022 11:02 PM (UTC)`
-
-2022.04.18 NFSC news  Ukraine Says Captain of Sunken Russian Warship Moskva ‘Killed in Explosion.’
-![img](https://media.gettr.com/group36/origin/2022/03/09/23/c901f1fb-7d02-c544-d71c-8b645000a81b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
