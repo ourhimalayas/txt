@@ -2,34 +2,40 @@
 ---
 
 
-## 中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371902/)
+## 中共威胁老百姓“小心你的嘴或面临惩罚”
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373606/)
 
-撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2348.png)
 
-玉米十年来首次超过每蒲式耳8美元，原因是担心短缺。由于投资者担心供应减少，各种因素的结合使芝加哥的玉米期货达到十年来的最高水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fres.cloudinary.com%2Fgro-intelligence%2Fimage%2Fupload%2Fv1642021031%2Fnew-website%2Fcorn_Jan12_877a813691.jpg&amp;imgrefurl=https%3A%2F%2Fgro-intelligence.com%2Finsights%2Fusda-confirms-gro-s-forecasts-for)
-自2012年9月以来，玉米期货一直没有超过每蒲式耳8美元。当年，美国中西部地区发生了毁灭性的干旱，农作物受损。现在供应风险卷土重来，但原因完全不同。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-8.png)[图片来源](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
-自俄罗斯在2月底开始入侵乌克兰以来，全球玉米供应前景急剧下降。这个饱受战争摧残的国家供应着全球五分之一的玉米，今年的产量可能会下降50%。
+（图片来自原文）
 
-飙升的化肥成本迫使美国的一些农民在这个种植季节增加大豆的种植，而不是玉米，因为这种作物需要的养分较少。
+新闻报道或社交媒体本应起到传播的作用，但中国共产党（CCP）却千方百计阻止疾病和真相信息的传播。
 
-由于天然气成本上升和俄罗斯限制向 “不友好 “国家出口化肥，化肥价格达到了历史最高点。俄罗斯是全球最大的出口国之一 — 美国恰好是来自俄罗斯的氮肥和钾肥的大进口国。
+当中共国百姓所住的地区不幸被封锁时，就会收到有一些令人毛骨悚然的警告标志或“指导方针”：
 
-而将玉米价格推向天际的最新情况是，拜登政府上周宣布采取紧急措施，扩大生物燃料销售，以遏制飙升的汽油价格。此举的问题在于，乙醇行业吸收了更大份额的玉米作物，这将遏制对粮食行业的供应。因此，最终会提高玉米价格。
+- 不要在网上发布与流行病相关的消息。
+- 未经许可不得进出北京。
+- 间谍就在我们中间；泄漏可能会在瞬间发生。注意你的言语，否则面临惩罚。
 
-这种情形正在发生，因为3月份全球食品价格月度跃升了惊人的12.64%—几乎是之前月度激增记录的两倍！
 
-全球食品价格已经超过了仅在2010/11年通货膨胀暴乱期间（被称为 “阿拉伯之春”）出现的水平。
+在一段来自上海的来电采访，让我们了解中共控制的中共国现在的情况。
 
-投资者似乎正在对玉米短缺进行定价。现在是开始种植自己的花园的最好时机。
+上海来电者：我很荣幸住在一个有很多外籍人士的社区。我们付给拥有“非常特殊的通行证“的人一大笔钱来给我们送一点水果和蔬菜。实际可用的东西非常非常少。
 
-信息来源：** **[**Corn Exceeds $8 A Bushel For First Time In Decade On Shortage Fears**](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+戴夫（Dave）：你们是不是可能还没有准备好。政府有没有通知准备？
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+上海来电者：猝不及防。只给了我们一天时间就完全封锁了。商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有存货，因为已经超过两周没有发货了。
+
+同时，我也有两个孩子要上网课。更令人震惊的是，当孩子出现新冠病毒检测呈阳性时，孩子会被从家里带走，在没有父母或监护人的情况下，被送进隔离营。
+
+请观看英文视频，了解更多关于中国人在中共政府手中面临着令人心碎的状况。在视频中，出于显而易见的原因，保护来电者，喜剧演员戴夫·兰道（Dave Landau）[采访的上海来电者由史蒂文·克劳德（Steven Crowder）代替，让我们了解现在中共国的情况](https://youtu.be/7tw4J-CLEAQ)。
+
+新闻来源链接：[https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1)
+
+本文作者：Rebecca (一切心皆不可得！) 
+上传排版：Hong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,22 @@
 ---
 
 
-## 佛州联邦法官撤销乘坐公交的口罩佩戴令
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375345/)
+## 加防长称俄军在乌克兰为种族灭绝
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2375403/)
 
-作者：香草山农场 Wenfei
+采编：文莱           编译：晨熹
 
-当地时间4月18日，佛罗里达州联邦法官米泽尔（Mizelle）宣布，美国疾控中心CDC将“乘坐公共交通工具的口罩强制令“延期至5月3日，这超出了CDC官员的权限，因此CDC延续该强制口罩佩戴政策的行为是无效的。
+据【CTV NEWS】4月16日报道， 加拿大国防部长安妮塔·阿南德表示，“强有力的证据”表明，俄罗斯在乌克兰的“暴行”相当于种族灭绝。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.51.00-AM.png)
+![图片来源：CTV NEWS](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-43.png)图片来源：CTV NEWS
 
-据悉，鉴于中共病毒奥米克戎BA.2变异毒株的流行，美国疾病控制和预防中心（CDC）最近将原定于 4月18日到期的乘坐公共交通工具需佩戴口罩的强制政策，延长至 5 月 3 日。
+加防长是在总理特鲁多本周公开表示，俄罗斯在乌克兰所犯罪行是种族灭绝一词“绝对正确”后，发表上述观点的。而特鲁多则是呼应美国总统乔·拜登之前的说法。
 
-米泽尔法官在判决中表示，尽管法院接受CDC有关”佩戴口罩可限制中共病毒的传播“的言论，但是在感染病例急速下降的当下，CDC未能证明其口罩延长令的合理性。并且，CDC也未遵循《行政程序法》所规定的规则制定程序。据此，法院撤销了CDC对口罩延长令的授权，并将其发回至CDC。
+虽然美加政府官员的评论都没有收到直接行动后果，但得到了乌克兰总统沃拉迪米尔·泽连斯基的赞扬，称他们的说法“直击要害”。
 
-一位航空公司的技术负责人表示，相比于口罩，现代飞机上配备的空气过滤系统，更能有效地降低病毒在飞行过程中人际传播的风险。
+新闻来源：[https://www.ctvnews.ca/politics/strong-argument-to-be-made-what-s-happening-in-ukraine-is-a-genocide-says-defence-minister-1.5862771](https://www.ctvnews.ca/politics/strong-argument-to-be-made-what-s-happening-in-ukraine-is-a-genocide-says-defence-minister-1.5862771)
 
-耐人玩味的是：美国各州早已取消了餐馆、商店和其他室内环境中的口罩佩戴规定，而中共病毒奥米克戎变异毒株的感染率自1月中旬达到顶峰后，急剧下降，至今未见回升。
-
-参考链接：[TSA won’t enforce transit mask mandate for now after judge voids it](https://www.cbsnews.com/news/mask-mandate-public-transportation-federal-judge-florida/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编/编辑/审核：文恩
-校正/发稿：谐趣园
+*编辑/上传：文所未闻*
 
  
 

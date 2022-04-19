@@ -2,43 +2,26 @@
 ---
 
 
-## 疫苗接种导致了更多的COVID死亡，而不是更少&#8211;Peter McCullough博士
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2374627/)
+## 中共政权就是霸凌政权
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2374928/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-（COVID)疫情的第一年，即2020年的第一个整年。我们有25万人死亡，我们有原始（毒株的）疯狂爆发，这确实严重打击了纽约。然后我们有了后来的阿尔法变体，它几乎袭击了所有城市，并重袭达拉斯。因此，COVID实际上在2020年的时段更加严重，我们有25万人死亡。但当2021年到来时，我们不仅有COVID，我们实际上还有疫苗，两者都大量导致了死亡。因此在2021年，仅这一年就有75万人死亡。
+作者：香草山医疗组 击穿ccp-文华
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2360.png)
 
-因此，在接种疫苗后死于COVID的人数是接种疫苗前死亡人数的三倍。
+中共政权就是多数人的暴政，是少数人的集体霸凌政权。自从共产党来到中国就发起了无产阶级的斗争，说白了就是以耍地痞流氓手段來反社会和反人类的斗争，纠集无赖去烧杀抢掠，如有敢站出来说公道话的人一并消灭打击，並恐嚇、煽动隔离群众。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/DE83ED13-2738-41B8-A18A-66585ED566BD.jpeg)
+而由于他们从中谋取了暴利致恶勢力快速壮大，进一步加強控制人们。这是中囯共产党的本性，至始至终都是无本买卖，勒索完之后假惺惺的给你扔下一句话“都是为了你好，不然你会更惨！”，也就是这句话加上恐怖的威胁绑架了人们几十年。
 
-是的，所以现在有一个由Subramanian和Kumar在《欧洲流行病学杂志》（注：此处有口误及连读省略）发表的分析显示，我们接种的疫苗越多，COVID的死亡人数就越多。这在超过145个国家都有证明。因此，有一种关系存在，即继续大力接种疫苗将导致更多的COVID死亡。
+在共产党发起的各种事件中，煽动与诱惑人们相互举报，以各种犯罪分子名义打击抱团群众，沙化人们，以达到低成本无风险的控制百姓。现在的校园暴力就是共产党控制中华民族的形象缩影。其用心之邪恶。正义的人们谨慎小心，看清中囯共产党的假面具。
 
-注：
-欧洲流行病学杂志（2021）36:1237-1240
-https://doi.org/10.1007/s10654-021-00808-7
-在68个国家和美国的2947个县中，COVID-19的增加与疫苗接种水平无关
-S. V. Subramanian1,2 – Akhil Kumar3
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
 
-撰稿/翻译/听写 – 扬帆视频组
-上传/发稿 – 野草
-
-素材提供 – 文倩
-软件听写 – 小白咖啡馆
-听写校对 – 小白咖啡馆
-文稿翻译 – Mary Hao
-翻译校对 – 文倩
-字幕添加 – 杰尼龟
-最终审核 – 文倩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-2.png)
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,28 @@
 ---
 
 
-## 20220419郭文贵大直播 ：如水回忆结识七哥加入爆料革命的契机
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2375166/)
+## 泽连斯基与国际货币基金组织讨论乌克兰重建
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375343/)
 
-作者：东京樱花团小视频组
+作者：DC农场-自由信仰，香草山-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月17日，乌克兰总统泽连斯基表示，他与国际货币基金组织总裁格奥尔基耶娃进行了交谈，讨论了乌克兰的金融稳定和战后重建问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/SwUjoTWlt9Frdwqj1YE8aIyQKHyds1vChqM-m4ajPps.jpeg)西网
+据世界银行上周发布的报告，受战争影响，乌克兰今年的国内生产总值预计将下降 45.1%，如果战争持续，损失还会有所增加。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+泽连斯基表示，他和格奥尔基耶娃已经有了明确的合作计划，和对未来的展望，他相信国际货币基金组织和乌克兰之间的合作将取得丰硕成果。格奥尔基耶娃对推文进行了积极回应，并称乌克兰盟友持续的经济支持将为重建工作奠定基础。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+另外，乌克兰总理什米加尔早些时候表示，他将出席本周在华盛顿举行的国际货币基金组织和世界银行的会议，为乌克兰寻求更多的财政援助。
+
+参考链接：[Zelenskiy, IMF managing director discuss Ukraine’s ‘post-war reconstruction’](https://www.reuters.com/world/europe/zelenskiy-imf-managing-director-discuss-ukraines-post-war-reconstruction-2022-04-17/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+编辑：飞虹
+总编：文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

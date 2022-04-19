@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 5:36 PM (UTC)`
+
+4/19/2022 【419 5th Anniversary】Looking back to April 19, 2017, the top CCP cadres believed Miles Guo was that collapsing wall in the famous Chinese proverbs “a wise man will never stand by a collapsing wall”; however, after 5 years, Mr. Guo has proved by using his own experiences that the evil China Communist Party is that collapsing wall and the New Federal State of China is the reliable support and backup for our Chinese, therefore, you can turn into a wise or foolish person in one thought<br/><br/>4/19/2022【419五周年】回望五年前的419，中共高层认为文贵是“君子不立危墙之下“的危墙，而历经五年，文贵先生用亲身证明中共才是危墙，新中国联邦是中国人可依赖的靠山，智者和蠢者只在一线间！<br/>
+![img](https://media.gettr.com/group5/getter/2022/04/19/17/d4889dc0-e2f9-99e6-93d6-adaab5f2fb39/out.jpg)
+
+---
+
 `@miles 4/19/2022 5:21 PM (UTC)`
 
 4.19 美国之音采访郭文贵先生断播事件五周年纪念<br/>5th Anniversary of 4/19 VOA live interview with Mr. Miles Guo cut off incident <br/>
@@ -146,13 +153,6 @@
 
 2022.04.18 晚  新中国联邦 | 新闻访谈   俄罗斯导弹轰炸利沃夫，距离新中国联邦梅迪卡救援营地仅80公里
 ![img](https://media.gettr.com/group33/origin/2022/04/19/01/dda3165b-900f-2d39-9d66-7325f2669c13/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/19/2022 1:00 AM (UTC)`
-
-【Ukraine Rescue】04/17/2022  A Russian tells Nicole that his family and friends were in Russia opposing Putin's invasion of Ukraine and later fled to Poland for fear of danger. Russia is full of political propaganda, and Putin is following the CCP's example of "stability overrides everything." Putin cannot represent the Russian people, just as the CCP does not represent the Chinese. He thanks the NFSC for eliminating the CCP and removing a strong supporter of Putin for the Russian people.<br/><br/>【乌克兰救援】04/17/2022  一位俄罗斯人告诉妮可，他的家人和朋友在俄罗斯境内反对普京入侵乌克兰，后来因危险一起逃到波兰。俄罗斯都是虚假的政治宣传，普京在效仿中共“稳定压倒一切”。普京不能代表俄罗斯人民，正如中共不代表中国人。他感谢新中国联邦人灭共，为俄罗斯人民消除普京的强大支持者。<br/>
-![img](https://media.gettr.com/group17/getter/2022/04/19/00/f21fe6be-0686-d7c4-8f20-030ae4a31fa3/out.jpg)
 
 ---
 

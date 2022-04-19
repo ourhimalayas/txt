@@ -2,76 +2,43 @@
 ---
 
 
-## 英国向普京展示武力：照片显示导弹被装载到直布罗陀的潜艇上
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2374544/)
+## 疫苗接种导致了更多的COVID死亡，而不是更少&#8211;Peter McCullough博士
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2374627/)
 
-翻译：文乐
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+（COVID)疫情的第一年，即2020年的第一个整年。我们有25万人死亡，我们有原始（毒株的）疯狂爆发，这确实严重打击了纽约。然后我们有了后来的阿尔法变体，它几乎袭击了所有城市，并重袭达拉斯。因此，COVID实际上在2020年的时段更加严重，我们有25万人死亡。但当2021年到来时，我们不仅有COVID，我们实际上还有疫苗，两者都大量导致了死亡。因此在2021年，仅这一年就有75万人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+因此，在接种疫苗后死于COVID的人数是接种疫苗前死亡人数的三倍。
 
+是的，所以现在有一个由Subramanian和Kumar在《欧洲流行病学杂志》（注：此处有口误及连读省略）发表的分析显示，我们接种的疫苗越多，COVID的死亡人数就越多。这在超过145个国家都有证明。因此，有一种关系存在，即继续大力接种疫苗将导致更多的COVID死亡。
 
+注：
+欧洲流行病学杂志（2021）36:1237-1240
+https://doi.org/10.1007/s10654-021-00808-7
+在68个国家和美国的2947个县中，COVID-19的增加与疫苗接种水平无关
+S. V. Subramanian1,2 – Akhil Kumar3
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-394.jpg)新照片显示导弹正在装载到 HMS Audacious
+撰稿/翻译/听写 – 扬帆视频组
+上传/发稿 – 野草
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-161.jpg)这艘攻击潜艇目前停靠在直布罗陀
-
-新照片显示导弹被装载到英国最强大的核潜艇 HMS Audacious 上。
-
-这艘攻击潜艇目前停靠在[直布罗陀](https://www.express.co.uk/latest/gibraltar)，周六下午抵达。它是皇家海军的精明级动力潜艇之一，是有史以来建造的最先进的水下航行器之一。新潜艇正在逐渐取代已经服役近四年的特拉法加级潜艇。
-
-HMS Audacious 配备了强大的武器系统，包括战斧陆地攻击巡航导弹(TLAM) 和Spearfish重型鱼雷。
-
-在 Fotografiks 机构发布的新图片中，可以看到一台起重机将导弹装载到潜艇上。
-
-这艘船停靠在上周三抵达海军基地的乔治亚号航空母舰旁边。
-
-两艘潜艇并排的存在突显了直布罗陀作为英国军方及其盟国的海军后勤基地的作用越来越大。
-
-两艘潜艇同时在海军基地是极不寻常的。
-
-上一次发生这种情况是在 2019 年，当时 USS Olympia 和 HMS Talent 停靠在该港口。
-
-两艘潜艇的到来引发了西班牙和一个环保组织的抗议。
-
-马德里政府向美国提出抗议，抗议美国决定不将乔治亚号战舰派往西班牙的罗塔，美国在西班牙拥有永久海军基地。
-
-西班牙环保组织 Verdemar 也对两艘核动力船抵达直布罗陀感到不满。
-
-该组织表示，两艘潜艇的存在对直布罗陀湾周围的社区构成了风险。
-
-一位发言人说：“这些潜艇是真正的浮动炸弹，使我们的家庭和环境处于危险之中。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-144.jpg)该潜艇拥有战斧陆地攻击巡航导弹（TLAM）和Spearfish重量级鱼雷
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-131.jpg)它是皇家海军的精明级动力潜艇之一
-
-“我们不接受地中海的潜艇行动，我们致力于在所有与地中海接壤的国家谴责这些进入。”
-
-HMS Audacious 抵达直布罗陀是在伦敦和莫斯科之间的紧张局势加剧之后。
-
-上周，克里姆林宫禁止鲍里斯·约翰逊和其他高级部长进入俄罗斯，并指责英国煽动反俄歇斯底里。
-
-莫斯科在一份声明中说：“实质上，英国领导层是在故意加剧乌克兰周围的局势，向基辅政权注入致命武器，并协调北约方面的类似努力。”
-
-周一，俄罗斯国家电视台播放了两名英国士兵在乌克兰战斗的视频。
-
-新闻来源：[UK’s show of force to Putin – photos show missiles being loaded onto Navy sub in Gibraltar](https://www.express.co.uk/news/uk/1597577/Gibraltar-news-hms-audacious-nuclear-submarine-missiles-vladimir-putin-update)
-
+素材提供 – 文倩
+软件听写 – 小白咖啡馆
+听写校对 – 小白咖啡馆
+文稿翻译 – Mary Hao
+翻译校对 – 文倩
+字幕添加 – 杰尼龟
+最终审核 – 文倩
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
 * * *
 
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
