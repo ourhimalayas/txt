@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 12:13 AM (UTC)`
+
+4/18/2022 Miles Guo‘s GETTR：What the CCP is planing to do in Qingdao, Harbin, Dalian, and Haikou is to murder more people through vaccination with a disguise of “zero-COVID” policy; the CCP defines the people over 60-year old as social burden and wants to remove this population group as they don’t deserve to be alive; cowardly Taiwanese are afraid to acknowledge the fact that the drones purchased from Australia are actually sold by the CCP<br/><br/>4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除；懦弱的台湾不敢面对自澳洲购买的无人机实为中共售卖的事实 <br/>
+![img](https://media.gettr.com/group9/getter/2022/04/19/00/f841a3af-b037-33b3-f0d7-04e9358383db/out.jpg)
+
+---
+
 `@miles 4/18/2022 11:57 PM (UTC)`
 
 4/18/2022 Miles Guo’s GETTR: The removal of the restrictions in Shanghai on last Friday predicted by the insiders at the top level of the CCP did not happen. Only I understand the rogue nature of the CCP. “Xi the Sun” simply wants to make the people in Shanghai suffer, and Xi was alerted after he knew Han Zheng had secretly gone back to Shanghai by train.<br/><br/>4/18/2022 文贵盖特：CCP高层的内部战友预计周五上海解封，却没有发生；只有七哥了解中共这个流氓组织的本质；习太阳想折腾上海，韩正偷坐火车回上海看望江朱，引习警觉<br/>
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】 04/15/22  Young Israel volunteer Jacob shares the NFSC’s Passover celebration livecasting link to his parents and grandmother in Israel. This is his first Passover in another country. He uses the Jewish people’s history of fighting for freedom to encourage all the fellow Chinese to keep fighting for freedom. Sometimes the road is tough, but keep fighting and keep moving forward! <br/><br/>【乌克兰救援】 04/15/22 来自以色列的年轻志愿者雅各布与父母和奶奶分享他在异国度过的第一个逾越节，他以犹太人争取自由的历史鼓励所有为自由而战的中国同胞：继续为自由而战，这条路也许会充满艰辛坎坷，但一定要继续战斗，继续向前！<br/>
 ![img](https://media.gettr.com/group41/getter/2022/04/18/10/c65f1a87-12fb-f75e-abb1-6bf8ad6fec77/out.jpg)
-
----
-
-`@miles 4/18/2022 9:23 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group13/origin/2022/04/18/09/1fb79489-7bbc-e42d-5bb5-b6b318d41893/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

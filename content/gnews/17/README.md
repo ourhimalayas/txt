@@ -2,30 +2,17 @@
 ---
 
 
-## 单克隆抗体治疗可能对奥米克戎BA.2无效
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2369895/)
+## 马斯克收购推特引发加拿大主流媒体的恐慌
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2369936/)
 
-##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-15.png)
+加拿大温哥华扬帆农场    平民正道
 
-据【CTV NEWS】4月15日报道，加拿大卫生部周四报告称，由葛兰素史克和Vir生物技术生产的索托维单抗“不太可能保持对奥米克戎BA.2亚变体的疗效”，并表示该治疗对新亚变体表现出“活性降低”。但该机构同时表示，对于奥米克戎早期亚变体检测呈阳性的中共病毒患者，仍可使用索托维单抗。
+据【真北方】4月15日报道，在埃隆马斯克宣布计划以 430 亿美元收购主流社交媒体平台 Twitter后，加拿大的传统媒体纷纷对此表现出强烈的不安和反对。
 
-索托维单抗于去年7月被授权用于与疫情相关的紧急情况，用于治疗处于住院或死亡高风险的12岁或以上成人和青少年的轻度至中度中共病毒病例。 由于全国范围内 BA.2子变体病例的增加，美国食药局取消了对该疗法的授权，并于一周后发出警报。据悉，目前加拿大省级卫生机构也已停止或不鼓励这种治疗。
+据悉，在成为该公司最大股东后不久，马斯克日前提出以比4月1日报价高出38%，即每股54.20美元的价格进一步收购推特的计划，并表示如果能完全拥有推特，将会彻底释放该平台的“非凡潜力”。
 
-[原文链接](https://www.ctvnews.ca/health/coronavirus/health-canada-issues-treatment-failure-warning-for-covid-therapy-due-to-ba-2-subvariant-1.5863360)
+由于马斯克不仅在推特上直言不讳地抨击特鲁多，而且还多次发推文支持加拿大自由车队运动，并将特鲁多比作前纳粹独裁者希特勒。因此，来自加拿大[环球新闻]、[环球邮报]以及[多伦多星报]等主流媒体的记者和评论员都对这笔收购表示强烈的恐慌和不满，并表示将考虑转移和使用其他媒体平台。
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
