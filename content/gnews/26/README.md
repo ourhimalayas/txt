@@ -2,26 +2,40 @@
 ---
 
 
-## 中共对美国精英的俘获战略是成功的
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2371733/)
+## 泽连斯基：乌克兰可能在几周内成为欧盟候选国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2371970/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-38.jpg)
-《Red-Handed: 美国精英如何帮助中国致富 》书的作者彼得-施韦泽说中共加入世贸组织改变了全球经济结构，这在很大程度上是因为它实现了该政权控制美国精英阶层的战略，这样他们就会听从北京的命令。施韦泽将这一战略称为 “精英俘获”，而中共的计划是针对大科技、娱乐、教育、华尔街以及政治的最高层。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-“这将使[中共]对他们[精英阶层]产生影响力，因为一旦[中共]某种程度上触动了他们，使他们变得富有，或者如一些中共官员所说，他们尝到了所提供的蜂蜜，他们就不会想把它还回去，不会想放弃它，”施韦泽说。
+新闻素材：文泓
+翻译/编辑：伏而起之
 
-任何与中共国纠缠在一起做生意的人，如果需要他们的好感来继续经营，最后基本上都会按照中共的要求去做，因为如果他们不这样做，中共就会摧毁他们的生意。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2301.png)图片来源：rfa.com
 
-施韦泽说，人工智能（AI）是科技发展的一个重要领域，有人说，谁在那里占主导地位，谁就会拥有全球经济和军事优势。
 
-“我们最大和最聪明的公司，如谷歌和微软，实际上正在资助中共国的研究实验室，这些实验室与中共军方有联系，所以他们正在帮助他们与我们竞争。” 他称这是 “非同寻常 “和 “令人不安的”。
+周一（美东标准时间周二），乌克兰总统泽连斯基向一名特使正式提交了一份完整的欧盟成员国调查问卷，并称他相信此举会让他的国家在几周内获得候选国的地位。
 
-马斯克在中共国做生意也带来了国安的风险，因为特斯拉在其汽车中使用的一些技术与他的公司发射卫星上使用的技术软件相同。
+欧盟委会员主席乌苏拉-冯德莱恩在4月8日访问基辅时给了泽连斯基这份调查问卷，承诺在俄罗斯入侵乌克兰的背景下会加快乌克兰成为欧盟成员国的进程。
 
-作者把七哥曾说的蓝金黄手段的例子都一一的写出了。但愿更多美国人对中共更了解，并把中共和中国老百姓给区分开。
+泽连斯基政府会议发布的会议录像显示，泽连斯基向一位欧盟驻乌克兰特使提交了完整的文件。
 
-**新闻来源**：[https://www.theepochtimes.com/beijings-elite-capture-strategy-was-a-success-peter-schweizer\_4407071.html](https://www.theepochtimes.com/beijings-elite-capture-strategy-was-a-success-peter-schweizer_4407071.html)
+“我们坚信，这一程序（授予候选国地位）将在未来数周进行，鉴于我们的人民在通往独立和民主的道路上付出的代价，它会对我们人民的历史产生积极的影响。”这位乌克兰领导人在会议上如此说。
+
+泽连斯基办公室副主任周一早些时候表示，他预计乌克兰将在6月份举行的由欧盟成员国领导人组成的欧洲理事会会议上获得候选地位。
+
+他还说，欧盟执行机构欧盟委员会，将需要就乌克兰是否符合必要的入盟标准发布建议。
+
+作为候选国，乌克兰将会展开会谈，使其法律与欧盟的法律框架保持一致。
+
+新闻来源：**[Zelensky: Ukraine could become EU candidate within weeks](https://www.afr.com/world/europe/zelensky-ukraine-could-become-eu-candidate-within-weeks-20220419-p5aeag)**
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

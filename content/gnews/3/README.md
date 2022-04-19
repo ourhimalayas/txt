@@ -2,52 +2,31 @@
 ---
 
 
-## 乌克兰称马里乌波尔战斗激烈，基辅发生强烈爆炸
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2372525/)
+## 闲聊澳洲：4月18日其它信息摘要及评论
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372637/)
 
-作者：雅典娜农场-小红帽
+作者：顺其自然
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-122.png)图片来源：雅典娜设计组（614）
+4月18日其它方面的消息:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
+（1）俄罗斯给美国外交照会，警告美国若继续援助乌克兰会面临难以预料的后果。之后，美国当即宣布将向乌克兰提供令所有敌人闻风丧胆的MQ9死神无人机。通用公司随即宣布将与乌克兰合作，将这种集侦察、打击、斩首为一体的无人机迅速送往战场。
 
+（2）建设银行深圳分行行长王业、副行长张学庆等3人，在同一天的述职会上被同时带走，因为田惠宇以前在建行干过，估计又有一大批人家破人亡了。
 
+（3）北京科兴生物制品有限公司政府事务中心高级经理曹晓斌同志，因病医治无效于2022 年4月17日逝世，享年45岁，这是报应还是被灭口呢？
 
+（4）微博信息显示，复旦的张维为和沈逸最近也饿得不行，因为复旦附近的团长都不带这俩货团购，让他俩为党唱赞歌，最好饿死他俩。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-15t132153z_1_lynxnpei3e0cu_rtroptp_3_ukraine-crisis-mariupol-2.jpg)图片来源：Reuters/Alexander Ermochenko 
-根据CNA 4月16日报道，周五,乌克兰正试图打破俄罗斯军队对马里乌波尔的围困。在该市的伊利希钢铁厂和港口周围发生了激烈的战斗，而首都基辅发生了两周来最强烈的爆炸。
+（5）一位网友的微博称，疫情封在家里整整一个月了，也有收获，其中之一是平时没什么联系的邻居们在群里抢菜团购，已经非常熟络了。大家以物易物，番茄酱换黑胡椒，可乐换酱油……还发现了共同的爱好，比如交流如何种小葱才能长得更快，感觉回到了小时候邻居互帮互助的时代，就是你送我一盘饺子，我送你一个倭瓜的那个年代，这也算是疫情封控在家的收获吧。
 
-乌克兰总统泽连斯基表示，该国南部和东部的军事局势“仍然非常困难”，同时赞扬了其武装部队的工作。
+发布：tianzhihuan
 
-“我们的军队在战场上取得的成功非常重要，具有历史意义。但它们仍然不足以将我们的土地上的占领者清理干净。我们将进一步击败他们。”泽连斯基在视频讲话中说，他再次打电话给盟国要求派出更重型的武器和对俄罗斯石油实行国际禁运。
-
-俄罗斯表示，在一夜之间袭击了基辅的一家制造和维修反舰导弹的工厂，这显然是对莫斯科黑海舰队旗舰“莫斯科号”周四沉没的报复。
-
-乌克兰表示，它的一枚导弹导致“莫斯科”号沉没，这象征着乌克兰对武器更强大的敌人的抵抗。俄罗斯说，这艘船在弹药爆炸引起的火灾后，在暴风雨中被拖走时沉没的。
-
-美国一位高级官员周五表示，美国认为“莫斯科号”被两枚乌克兰导弹击中。俄罗斯有人员伤亡，但人数不清楚。
-
-俄罗斯此前曾表示，莫斯科号上的500多名船员在爆炸发生后被疏散了。
-
-然而，这一说法和美国的评估都无法得到独立核实。
-
-新闻链接：[https://www.channelnewsasia.com/world/ukraine-invasion-fighting-rages-around-mariupol-steel-plant-port-2628521](https://www.channelnewsasia.com/world/ukraine-invasion-fighting-rages-around-mariupol-steel-plant-port-2628521)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new.png)
-
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

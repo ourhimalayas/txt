@@ -2,50 +2,22 @@
 ---
 
 
-## MetaMask警告说，iCloud用户可能面临失去资产的危险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372264/)
+## 樱花时政┃美国CDC解除疫苗接种条件，可以前往约90个国家和地区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2372451/)
 
-翻译：文扬
-编辑：李易通
+撰稿：东京樱花团/立正道
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2310.png)图片来源：CoinGeek
+18日路透社，美国疾病控制中心(CDC)于18日宣布，为了预防新型冠状病毒感染，以接种疫苗为前提前往约90个国家和地区的条件解除了。对象是英国、日本、法国、以色列、土耳其、澳大利亚、希腊、香港、意大利、韩国、西班牙、俄罗斯等。继续要求未接种疫苗的人避免外出。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2314.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220419-00000043-reut-000-5-view.jpg?exp=10800)
 
-流行的数字货币钱包MetaMask警告用户，苹果的云存储存在安全漏洞。这些警告是在过去几天推特（Twitter）上出现被盗资金报告时发出的。
+其他包括瑞士、奥地利、比利时、保加利亚、中非共和国、智利、捷克、约旦、黎巴嫩、新西兰、挪威、葡萄牙、波兰、索马里、乌拉圭、越南等。美国国务院上周也宣布，将大幅减少要求美国公民不要前往目的地的数量。
 
-事实证明，科技巨头苹果公司认为可以帮助MetaMask用户保存密码或时间的东西，可能是一个危及个人数字资产的安全漏洞。
+消息来源：[米ＣＤＣ、約90カ国・地域への渡航の自粛要請をワクチン接種条件に解除（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/51ec8466bbc86cd1c66ba23ccc533e8b59116473)
 
-ConsenSys支持的数字货币钱包在推特上解释说，“应用数据的 iCloud备份”还将存储“您的密码加密的MetaMask保险库”的凭据
-
-“如果你的[iCloud]密码不够强大，而有人盗用你的iCloud凭证，这可能意味着资金被盗”，MetaMask周日在推特上说。
-
-简单的缺陷导致了巨大的损失
-
-此外，当一个名为“revive\_dom”的用户报告损失了6个不可伪造的代币（NFT），包括3个突变猿游艇俱乐部（MAYC）的收藏品，以及价值超过25万美元的猿币（APE）时，该数字货币钱包提供商在同一推特主题中指导用户关闭自动数据备份。
-
-根据DAPE和Sentinel创始人Serpent的说法，被盗的数字收藏品价值132.86以太坊（402980美元），被盗数字资产的总金额达到大约65万美元以上。
-
-根据Serpent的说法，这个骗局是一种网络钓鱼攻击。 首先，欺诈者提出了几次密码重置请求，“以使受害者产生怀疑”。 在“来电显示欺骗者”的帮助下，诈骗者打电话给他们的猎物，声称是Apple客户服务，同时要求提供双因素认证（2FA）代码。
-
-在获得2FA验证码后，钓鱼者能够控制受害者的iCloud账户，该账户有用户的MetaMask钱包密码。
-
-行业中的黑客和诈骗
-
-随着过去一年数字货币的兴起，诈骗和盗窃案也随之上升。一些黑客盗取了价值数亿美元的虚拟货币，导致仅在2021年就有超过140亿美元被盗。
-
-根据CNBC的报告，去年的数字盗窃案比2020年上升了516%。另一方面，今年的情况也不是很好，因为黑客已经窃取了超过10亿美元的资金。
-
-根据雅虎财经的报告，2022年第一季度，骗子从数字货币投资者那里掠夺了12.2亿美元。大部分资金来自虫洞（Wormhole）3.25亿美元，以及罗宁桥（Ronin Bridge）6.15亿美元的黑客。
-
-原文链接： [iCloud users might be in danger losing their assets, MetaMask warns – CoinGeek](https://coingeek.com/icloud-users-might-be-in-danger-losing-their-assets-metamask-warns/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

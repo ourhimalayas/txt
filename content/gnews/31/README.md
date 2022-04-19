@@ -2,27 +2,57 @@
 ---
 
 
-## 台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2371473/)
+## 以岭药业深陷泥潭，中共辟谣反遭质疑
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2371546/)
 
-**港台前线 zhong｜2022-4-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-4.png)
-郭文贵于16日直播爆料，乌克兰将有大变化，上海将有重大政策，**下周美国将会对台湾有一系列的政策**。近日，台湾成为国际宠儿，外交关系上有所突破。
+作者：日本方舟农场 – Andy5
 
-台湾16日举行“海内外台湾国是会议”，美国前白宫顾问波顿（John Bolton）以录影方式参加，他与日本前首相安倍晋三皆呼吁美国应抛弃过去40年来对台的战略模糊政策，波顿更认为美军重新驻守台湾将符合美台双方利益。此外，总统蔡英文、副总统赖清德宣示“誓守台湾、避免台湾成为第二个乌克兰”等语，激起中共的愤怒。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-国台办发言人马晓光4月18日应询表示，台湾是全中国人民的台湾，台湾的前途由全体中国人民共同决定，并强调民进党当局乞怜、勾结外部势力谋“独”，历史将会重演，直指谋独失败为历史铁律。中共已开始将国际的支持，抹黑为台湾谋独，为攻台进行铺垫。
 
-郭文贵于直播陆续透漏，中共已执行“台湾之子”行动，将有计划的通过供水、供电、运输及网路问题引起社会动乱，并通过卖台贼擅自代表台湾人民向中共喊话，希望中共接管台湾，为中共攻台制造理由并排除国际介入可能。此外，他还强调中共在上海、北京、广东等地实施压力测试的封控政策后，紧接着可能就是对台行动，预计会在5月发生。.
+当地时间4月13日，中共一社交平台发表要求证监会严查以岭药业，并查清“连花清瘟胶囊”是否是WHO推荐药物一文后，以岭药业股票大跌10%。中共连续两次辟谣称，从未宣传“连花清瘟胶囊”是WHO推荐药物，要诉诸法律捍卫权力。
 
-值得注意的是，安倍晋三及美国前白宫顾问波顿皆强调，台海战争必须在发生前阻止，对照上海目前面对的人道灾难，多国驻上海领事馆工作人员受封控断粮，再受到上海居民无私协助才解决断粮困境的前提，台海若发生战事国际社会是否会“即时”介入仍有疑问，只有台湾人可代表台湾人，台湾应自强。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-234416.jpg)图片来源：微博
 
-来源｜东方网
 
-* * *
+自中共病毒疫情爆发以来，中共在公开发布的病毒诊疗方案中，“连花清瘟胶囊”一直都被作为“推荐中成药”。中共喉舌媒体【新华社】曾在2021年3月发文称，“连花清瘟胶囊”在抗疫中发挥的作用得到国际社会的赞誉，并引用世界卫生组织对中共抗疫成绩的赞语给“连花清瘟胶囊”站台。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+在上周以岭药业股票大跌之后，中共发动社交平台大V为以岭药业发声，连所谓的数码博主都夸赞“连花清瘟胶囊”的效果。这种如电视购物般的虚假宣传，反而引发网友群嘲。有网友扒出“连花清瘟从胶囊”从研发到生产仅仅用了15天，远短于正常药物的研发周期。尽管“连花清瘟胶囊”于2015年在美国FDA的批准下开展了二期临床研究，然而6年多时间过去了，依旧没有临床试验结果和报告，但是却从2020年4月起，成为了中共所谓的“抗疫利器”。
+
+观察人士指出，在没有数据支撑与报告佐证的情况下，中共用谎言大肆渲染、鼓吹“连花清瘟胶囊”的抗疫功效，瞒骗百姓，直到如今被公开质疑、戳穿底裤，表明中共党内各方势力的内斗相当惨烈，围绕着疫情，利益争夺已经不计后果。
+
+新闻链接：
+
+1.[https://finance.sina.com.cn/chanjing/cyxw/2022-04-17/doc-imcwipii4751922.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-17/doc-imcwipii4751922.shtml)
+
+2.[https://finance.sina.com.cn/stock/observe/2022-04-15/doc-imcwiwst2013356.shtml](https://finance.sina.com.cn/stock/observe/2022-04-15/doc-imcwiwst2013356.shtml)
+
+3.[https://www.gettr.com/post/p15phsh5ac8](https://www.gettr.com/post/p15phsh5ac8)
+
+4.[https://finance.sina.com.cn/stock/s/2022-04-16/doc-imcwiwst2191180.shtml](https://finance.sina.com.cn/stock/s/2022-04-16/doc-imcwiwst2191180.shtml)
+
+5. [http://www.xinhuanet.com/health/2021-03/07/c\_1127179501.htm](http://www.xinhuanet.com/health/2021-03/07/c_1127179501.htm)
+
+6. [http://www.xinhuanet.com/health/2020-08/20/c\_1126391671.htm](http://www.xinhuanet.com/health/2020-08/20/c_1126391671.htm)
+
+7.[http://www.xinhuanet.com/health/20220402/45eb847a6f7843559d40a8c49fd9faec/c.html](http://www.xinhuanet.com/health/20220402/45eb847a6f7843559d40a8c49fd9faec/c.html)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+
+编辑/校对/发稿：H.B
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 
