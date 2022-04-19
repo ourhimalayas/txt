@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 8:17 PM (UTC)`
+
+4/19/2022 【419 5th Anniversary】 In Guo’s Seven Principles, the principle ‘Not against Xi’ is followed by an undeclared statement “but to destroy Xi”; Fu Zhenghua, Sun Lijun and Bruno Wu deserve the harshest punishment under law.<br/><br/>4/19/2022【419五周年】郭七条里的”不反习”其实是要灭了习；傅政华, 孙力军和吴征必须受到最严厉的法律制裁<br/>
+![img](https://media.gettr.com/group40/getter/2022/04/19/20/a6781b9d-e902-2b2a-4c46-cccd4ff8021a/out.jpg)
+
+---
+
 `@miles 4/19/2022 6:47 PM (UTC)`
 
 【419 5th Anniversary】Mr. Miles Guo: The poison of the Chinese Communist Party is the poison from the most devilish power on earth, and it will not stop the harm until it is drained out completely.<br/><br/>【419五周年】郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的。<br/>
@@ -146,13 +153,6 @@
 
 2022-4-18《鸡血王喜币大作战》 第一百六十九集 嘉宾：青藤、Nick
 ![img](https://media.gettr.com/group45/origin/2022/04/17/03/04bc0ca2-7182-685b-4d4a-1a101636e85c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/19/2022 2:05 AM (UTC)`
-
-2022.04.18  新中国联邦 | 喜财经   粮食是人类的底线；俄概股回流；中共发布物流保障通知
-![img](https://media.gettr.com/group44/origin/2022/04/19/02/e47456a3-408f-db4d-b5dd-780ca97329f9/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

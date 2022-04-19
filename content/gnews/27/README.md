@@ -2,28 +2,32 @@
 ---
 
 
-## 泽连斯基与国际货币基金组织讨论乌克兰重建
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375343/)
+## 欧美陆续报道儿童罕见肝病
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375360/)
 
-作者：DC农场-自由信仰，香草山-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月17日，乌克兰总统泽连斯基表示，他与国际货币基金组织总裁格奥尔基耶娃进行了交谈，讨论了乌克兰的金融稳定和战后重建问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SwUjoTWlt9Frdwqj1YE8aIyQKHyds1vChqM-m4ajPps.jpeg)西网
-据世界银行上周发布的报告，受战争影响，乌克兰今年的国内生产总值预计将下降 45.1%，如果战争持续，损失还会有所增加。
+作者：香草山农场 Wenfei
 
-泽连斯基表示，他和格奥尔基耶娃已经有了明确的合作计划，和对未来的展望，他相信国际货币基金组织和乌克兰之间的合作将取得丰硕成果。格奥尔基耶娃对推文进行了积极回应，并称乌克兰盟友持续的经济支持将为重建工作奠定基础。
+4月15日，世界卫生组织和美国CDC的公共卫生官员表示，他们目前正在调查多起病因不明的儿童的严重急性肝炎。
 
-另外，乌克兰总理什米加尔早些时候表示，他将出席本周在华盛顿举行的国际货币基金组织和世界银行的会议，为乌克兰寻求更多的财政援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.57.46-AM.png)
 
-参考链接：[Zelenskiy, IMF managing director discuss Ukraine’s ‘post-war reconstruction’](https://www.reuters.com/world/europe/zelenskiy-imf-managing-director-discuss-ukraines-post-war-reconstruction-2022-04-17/)
+这些病例见于13 岁以下的儿童，所有患儿在患病之前身体健康，无肝炎病史或相互接触史。患儿主诉腹泻、恶心和呕吐。部分患儿出现黄疸，血液检查肝酶升高。其中一些患儿病情非常严重，需要肝移植治疗，迄今未见死亡病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+截止上周，英国和北爱尔兰报道该病病例 74 例，西班牙3例，美国阿拉巴马州9 例。
 
-编辑：飞虹
-总编：文恩
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据世界卫生组织的消息，英国早期的 10 名患儿，有 9 位发病于 2022年1月至3 月，而美~~国的病例发生在 2021 年 10 月至 2022年2 月。
+
+急性肝炎一般由病毒感染导致。目前，接诊医生已排除甲、乙、丙、丁和戊型肝炎病毒感染的可能性。据阿拉巴马州的儿科医生推测，这种急性肝炎可能与41型腺病毒有关。然而，腺病毒作为上呼吸道病毒，感染后一般引发普通感冒，极少引发肝损伤。世卫组织和美国CDC目前正密切关注这一儿童急性肝炎的流行病学特征。
+
+目前，各国政府和药企正大力推广儿童接种试验性中共病毒疫苗。过去一年多的时间，各类有关中共病毒疫苗损害机体正常免疫机能的证据不断涌现。我们不得不警惕：在接种试验性中共病毒疫苗后，儿童免疫机能下降，可能诱发腺病毒在消化系统的机会性感染。
+
+参考链接：[Rare, severe liver damage reported in kids in U.S. and Europe](https://www.nbcnews.com/health/health-news/severe-hepatitis-kids-dozens-cases-reported-us-europe-rcna24553)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编/编辑/审核：Zion文恩
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

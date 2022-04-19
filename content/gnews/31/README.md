@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：七哥回忆污蔑七哥的红通事件
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2375122/)
+## 20220419郭文贵大直播 ：如水回忆结识七哥加入爆料革命的契机
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2375166/)
 
 作者：东京樱花团小视频组
 
