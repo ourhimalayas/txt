@@ -2,28 +2,38 @@
 ---
 
 
-## 6名美国议员令人惊喜地抵达台湾进行访问 中共发警告
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373466/)
+## 封城之疯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2373546/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-19-2015077.jpg)
-（图片来自原文）
+**作者：**敢想敢做
+**编辑：**无相
 
-2022年4月14日周四，一个由美国两党议员组成的代表团飞往台湾进行正式访问，无视中国共产党（CCP）伪政府的威胁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/156984468-1-scaled.jpg)雅典娜设计组（姐夫说说）
 
-周三上午, 美参众两院议员抵达台湾，受到台湾总统蔡英文的热烈欢迎。
 
-参加访问的议员有南卡罗来纳州的共和党参议员林赛格雷厄姆（Lindsey Graham）、内布拉斯加州的本萨斯（Ben Sasse）、北卡罗来纳州的理查德伯尔（Richard Burr）和俄亥俄州的罗伯波特曼（Rob Portman）、德克萨斯州共和党众议员罗尼杰克逊（Ronny Jackson）和新泽西州民主党参议员鲍勃梅南德斯（Bob Menendez）。
+从南到北他封城——他疯了吗？
+困饿哀呼他不应——他疯了吗？
+物流全断他不管——他疯了吗？
+不做核酸算犯法——他疯了吗？
+出门散步要拘留——他疯了吗？
 
-这些议员是访问台湾的最高级别美国官员之一。
+恍惚之间，
+睁开双眼，
+望望空旷的街道。
 
-周四，中共政府很快发表声明谴责这次访问，认为台湾不是一个独立的国家。中共指责美国、台湾官员“玩火”，并将他们与乌克兰相提并论。
+行色匆匆，
+四处寻食的人们。
+一念之间，
+恍然彻悟——那个人没疯！
+他是要把我们逼疯！
 
-近年来，由于中共对台湾的威胁日益加剧，包括空军频繁在台湾领空附近飞行。加之俄罗斯入侵乌克兰，可能会鼓励中共采取行动。人们对中共入侵台湾的担忧有所上升。
+*发布：翼族*
 
-新闻来源链接：[https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham](https://www.foxnews.com/politics/us-lawmakers-taiwan-china-visit-warning-lindsey-graham)
-
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,64 +2,74 @@
 ---
 
 
-## 方舱医院有人要跳楼,现场大白首先做的是阻止拍摄现场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2372904/)
+## 泽连斯基：乌克兰全境解放只是时间问题
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2372941/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本-2.png)
-据[**野山**@naochashu](https://twitter.com/naochashu?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1516332197027803139%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fwp-admin%2Fpost.php%3Fpost%3D2369992action%3Dedit)于[4:25 PM · Apr 19, 2022](https://twitter.com/naochashu/status/1516332197027803139?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1516332197027803139%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fwp-admin%2Fpost.php%3Fpost%3D2369992action%3Dedit)发布的推文——
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-19-下午6.18.08.png)图片来源：互联网
+据乌克兰国家通讯社（Ukrinform）报道，乌克兰总统 弗拉基米尔·泽连斯基（Volodymyr Zelensky）在周二（4月19日）关于战争第 54 天结果的[视频讲话](https://www.youtube.com/watch?v=lp4FcJazfKg&amp;t=16s)中这么说。
 
-方舱医院有人“跳楼”
+乌克兰人！
 
+我们的捍卫者！
 
+我们抵御俄国入侵的第 54 天即将结束。俄罗斯军队并没有放慢对乌克兰使用导弹的速度。尽管它应该意识到，即使已经实施了制裁，它也很难恢复导弹库。没有进口，他们甚至无法做到这一点。而当所有用来规避制裁的漏洞都被堵上，当实施更严厉的制裁时，恢复俄罗斯的导弹能力将是不现实的。也就是说，俄罗斯的导弹袭击只会导致一件事——俄罗斯联邦的导弹自我非军事化。
 
-> 方舱医院有人“跳楼” [pic.twitter.com/qhxRBfzINt](https://t.co/qhxRBfzINt)
-> — 野山🎗 (@naochashu) [April 19, 2022](https://twitter.com/naochashu/status/1516332197027803139?ref_src=twsrc%5Etfw)
+其他俄罗斯武器也在进行类似的过程。生产受制裁的新型火炮、飞机、新型直升机和巡洋舰对俄罗斯来说将是一项艰巨的任务。
 
+导弹袭击没有切实改变俄罗斯的局势。如果你一起评估它们，结论将是 – 这是战略上的废话。
 
+今天对利沃夫、第聂伯罗彼得罗夫斯克地区的罢工以及俄罗斯的任何其他罢工都只意味着一件事：我们、世界和历史将从俄罗斯获得的收益远远超过俄罗斯导弹从乌克兰获得的收益。每一个失去的生命都是乌克兰人和其他自由国家将俄罗斯完全视为一代又一代威胁的理由。任何基础设施都可以恢复。我们一定会做到的。
 
-**拍摄者：**方舱里有人要跳楼，就这种糟糕的环境终于有人承受不住了，性格像我这样的泼捍的去跟他们闹，然后性格懦弱又受不了现实的，就选择这种方法，把人忽悠进来，又什么都不给人家，女的没卫生巾、没内裤换，男的没厕纸用，有人在跟他说，你下来没有人会抓你。他不肯下来，他说我下来要被人抓走的。
+在我国的东部和南部，占领者最近正试图以比以前更深思熟虑的方式进行攻击。他们正在施加压力，寻找我们国家防御的薄弱环节，与主力一起去那里……
 
-（对阻止拍摄的大白说：）你们要有人去跟他谈判，问他有什么诉求。
+显然，习惯于忽略任何损失的俄罗斯将军已经杀死了如此多的俄罗斯军人，即使他们也必须更加小心，因为没有人可以攻击了。
 
-**大白：**哎呀，你不用拍了呀，你拍有什么用呀？
+但是，他们不应该希望这会对他们有所帮助。我国全境解放只是时间问题。现在可以说，俄罗斯军队已经开始了他们已经准备了很长时间的顿巴斯战役。整个俄罗斯军队的很大一部分现在都集中在这次进攻上。
 
-**拍摄者：**那你们在这儿有什么用呀？你不让我拍有什么用啊？
+不管有多少俄罗斯士兵被驱赶到那里，我们都会战斗。我们会为自己辩护。我们每天都会这样做。我们不会放弃任何乌克兰人，我们不需要不属于我们的东西。
 
-**大白们：**不要拍，哎呀别拍了，你不要给他们添乱了。
+我感谢我们所有的战士，感谢我们在顿巴斯的所有英雄城市，感谢马里乌波尔，也感谢哈尔科夫地区的城市，他们坚守着，捍卫着整个国家的命运，击退了入侵者的力量。Rubizhne、Popasna、Zolote、Lysychansk、Severodonetsk、Kramatorsk 以及所有这些年来一直与乌克兰在一起的人。
 
-**拍摄者：**不是我添乱，要上去一个人，需要有人上去跟他谈判，你们轻一点，要有人上去好声好气跟他说，要问清楚他要什么。你厉害，你声音太吵了，他怕的，你们越是哇啦哇啦，他越是怕，要温柔地跟他说。
+我与立陶宛共和国总统和我们国家的朋友吉塔纳斯·瑙塞（Gitanas Nausėda）达进行了交谈。我向他通报了战区的情况，尤其是马里乌波尔的情况。我们正在协调我们的行动，以增加俄罗斯对战争的责任。
 
-**大白：**你不用拍了呀。
+我还与保加利亚和克罗地亚的总理进行了交谈。关于俄罗斯对黑海自由航行的威胁，关于我们在欧盟层面的合作，关于对乌克兰的有效支持以及为恢复和平制定解决方案。
 
-**拍摄者：**去，去看他，管我们干什么呀？
+我今天就乌克兰战后重建与发展问题举行了重要会议。我们现在需要把所有细节都弄清楚，以便在战争结束时做好充分的准备。
 
-**大白：**你不要拍了呀，你拍有什么用呀？
+我们正在制定一项全面计划，以重建被摧毁的东西，实现国家结构的现代化，并最大限度地加速乌克兰的发展。这不仅仅是体力劳动的数量——建造住房、恢复企业、吸引新的企业来重建基础设施和恢复我国的经济关系。这也是对我们国家未来如何发展的重新思考。哪些行业可以成为战后增长的基础。需要什么解决方案和资源来提高乌克兰的加工水平并像以前一样停止销售原材料。哪些城市将成为经济和科技增长的火车头，拉动周边地区。
 
-**拍摄者：**好像你们在这儿又有什么用一样的，你们有用的话，他怎么会想要爬那么高不肯下来。那么多天，那么多天，不关心，不关心他，就很冷漠地对待他，只知道把人抓进来，就没人去关心一下每个人的诉求，人家不闹就不问，就装傻，这个时候怕丢脸了？
+到目前为止——如果你仔细听听我们国家在不同层面上关于战后重建的所有讨论——其中的主要话题实际上是关于金钱的。从战争中恢复需要什么财政方案？但我一直强调，钱不是国家发展的基础。想法，人——这是基础。当有想法时，当有我们的人时，你就会开始看到需要什么钱，需要多少钱。
 
-\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+我们需要对我们经济的这个或那个分支有一个清晰的认识，我们期望这个或那个城市的发展方向，这个或那个机构可以给整个国家带来的好处。
 
-撰稿：喜马拉雅的肉夹馍；
+当然，对于中小企业来说，我们必须提供最舒适、最自由的环境。在税收和行政关系方面。当然，数字化是重中之重。安全也是我们的重中之重。防守潜力必须达到一个新的水平。当然，司法、反腐等重要改革需要取得成果。
 
-审核：喜马拉雅的馍夹肉；
+但所有这一切都必须对乌克兰将是什么样子的一个具体愿景起作用。战后一年，战后5年，10年，20年后会是什么样子。究竟什么对我们的人民很重要。究竟什么对全球业务很重要。乌克兰人可以获得多少工作以及哪些行业。
 
-校对：Maarago；
+乌克兰加入欧盟是这一战略愿景的组成部分。在这种情况下，今天是一个历史性事件——我们正在经历加入欧盟之前的一个阶段。我们提供了对欧盟委员会主席乌苏拉·冯德莱恩和欧洲外交负责人约瑟夫·博雷尔的问卷调查的答案。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+每个加入欧盟的国家都对问卷进行了相同的程序。唯一的区别是他们花了好几年的时间，而我们只用了一个多星期就完成了。我们将很快提供答案的第二部分。我们希望欧洲能够迅速做出反应决定。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+欧盟成员国候选人的地位将为我们开启乌克兰恢复和现代化的历史上前所未有的机会。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+我们正在与各国和国际金融机构进行双边谈判，以支持我国的重建计划。当然，我们会尽可能地涉及全球业务。但我们主要感兴趣的是在乌克兰创造就业机会和增加价值。因此，本地化将继续是我们的一个重要过程。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+晚上，我签署了一项关于奖励我们英雄的传统法令。乌克兰武装部队的 192 名军人获得了国家奖励，其中 24 人被追授。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+所有为乌克兰牺牲的人的永恒记忆！
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+永远的荣耀给我们的每一位捍卫者！
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+荣耀归于乌克兰！
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文链接：
+
+【1】[Zelensky: Liberation of all of Ukraine is only a matter of time](https://www.ukrinform.net/rubric-ato/3461114-zelensky-liberation-of-all-of-ukraine-is-only-a-matter-of-time.html)
+
+* * *
+
+*编辑&发布：长岛开心*
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 1:03 PM (UTC)`
+
+【Ukraine Rescue】04/18/2022 A volunteer from South Carolina, USA, with World Central Kitchen loves NFSC’s coffee. He says the tent of the NFSC is like a home base there, and the NFSC’s service is impeccable.<br/><br/>【乌克兰救援】04/18/2022来自美国南卡罗莱纳州的“世界厨房”的志愿者喜爱新中国联邦的咖啡。他说新中国联邦的帐篷就像营地的大本营，那里的工作无可挑剔。
+![img](https://media.gettr.com/group32/getter/2022/04/19/13/aaa47553-f49b-416f-ea95-6795169de05c/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 4/19/2022 12:41 PM (UTC)`
@@ -148,13 +155,6 @@
 
 4/18/2022 Miles Guo’s GETTR: The removal of the restrictions in Shanghai on last Friday predicted by the insiders at the top level of the CCP did not happen. Only I understand the rogue nature of the CCP. “Xi the Sun” simply wants to make the people in Shanghai suffer, and Xi was alerted after he knew Han Zheng had secretly gone back to Shanghai by train.<br/><br/>4/18/2022 文贵盖特：CCP高层的内部战友预计周五上海解封，却没有发生；只有七哥了解中共这个流氓组织的本质；习太阳想折腾上海，韩正偷坐火车回上海看望江朱，引习警觉<br/>
 ![img](https://media.gettr.com/group39/getter/2022/04/18/23/e4b03bea-6091-83c3-4d72-09eb5da5306c/out.jpg)
-
----
-
-`@miles 4/18/2022 11:51 PM (UTC)`
-
-4/18/2022 China Merchants Bank issued an announcement to remove Tian Huiyu’s duty as President and Director, which has verified the revelation I made on November 30, 2019. I said that Tian Huiyu, Tian Guoli, Zhou Liang, and Kang Dian would all be arrested, which would be the result of the fight between Xi Jinping and Wang Qishan. The Chinese Communist Party is just like a devil's meat grinder!<br/><br/> 4/18/2022 招商银行发布公告称免去田惠宇行长、董事职务，这验证了文贵在2019年11月30日的爆料 - 田惠宇、田国立、周亮、康典都会被抓，这是习王斗争的结果，中共就是一台魔鬼的绞肉机！<br/>
-![img](https://media.gettr.com/group8/getter/2022/04/18/23/487d0f18-4e32-091f-1d53-1e7c2bd99da4/out.jpg)
 
 ---
 
