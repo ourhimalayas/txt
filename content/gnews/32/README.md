@@ -2,49 +2,33 @@
 ---
 
 
-## MetaMask警告说，iCloud用户可能面临失去资产的危险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372264/)
+## 澳洲联储警告可能提前加息
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2372268/)
 
-翻译：文扬
-编辑：李易通
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-23.jpg)图片来自The Australian
+截至澳大利亚东部标准时间下午 1 点，ASX 200 指数上涨 0.5% 至 7,565点，澳交所普通股指数上涨约 0.6% 至 7,867点。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2310.png)图片来源：CoinGeek
+大宗商品价格强劲，澳大利亚股市走高。铁矿石价格上涨，矿资源股上涨 2%，创历史新高。大型矿业公司力拓(Rio)、必和必拓(BHP)和 Fortescue Metals Group(FMG) 股价分别上涨 1.3% 至 2.1%之间。
 
+利比亚的停电引起投资者对全球能源供应紧张的担忧。随着油价上涨，能源股升高到两年高位。俄乌战争和世界经济通胀导致金价连续七个交易日上涨。
 
-流行的数字货币钱包MetaMask警告用户，苹果的云存储存在安全漏洞。这些警告是在过去几天推特（Twitter）上出现被盗资金报告时发出的。
+储备银行警告，可能提前加息。
 
-事实证明，科技巨头苹果公司认为可以帮助MetaMask用户保存密码或时间的东西，可能是一个危及个人数字资产的安全漏洞。
+澳洲联储 4 月政策会议纪要显示，由于通胀上升和工资增长，可能会提早加息。上个月美联储加息 25 个基点。预计美联储将在 5 月和 6 月加息 50 个基点，增加了其他央行跟进的压力。新西兰和加拿大的央行最近都加息了 50 个基点，理由是需要抑制通胀。
 
-ConsenSys支持的数字货币钱包在推特上解释说，“应用数据的 iCloud备份”还将存储“您的密码加密的MetaMask保险库”的凭据
+根据澳大利亚统计局 (ABS) 的数据，截至 2 月份的 12 个月中，澳洲家庭支出增长 7.7%。增幅最大的是服装（+20.2%）、娱乐和文化（+17.8%）以及酒店、咖啡馆和餐馆（+15.6%）。支出减少的是酒精饮料和烟草（-10.3%）和杂项商品和服务（-0.8%）。
 
-“如果你的[iCloud]密码不够强大，而有人盗用你的iCloud凭证，这可能意味着资金被盗”，MetaMask周日在推特上说。
+所有州和领地的家庭支出都有所上升。维多利亚州（+13.9%）和西澳大利亚州（+12.1%）的支出增长最为强劲。  北领地的涨幅最小（+0.6%）。
 
-简单的缺陷导致了巨大的损失
+参考资料：
+[澳洲联储警告可能提前加息](https://www.abc.net.au/news/2022-04-19/markets-wall-street-dow-jones-asx/100998186)
 
-此外，当一个名为“revive\_dom”的用户报告损失了6个不可伪造的代币（NFT），包括3个突变猿游艇俱乐部（MAYC）的收藏品，以及价值超过25万美元的猿币（APE）时，该数字货币钱包提供商在同一推特主题中指导用户关闭自动数据备份。
+*编辑：云彩*
 
-根据DAPE和Sentinel创始人Serpent的说法，被盗的数字收藏品价值132.86以太坊（402980美元），被盗数字资产的总金额达到大约65万美元以上。
+*发稿：云彩*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-2.jpg)
 
-根据Serpent的说法，这个骗局是一种网络钓鱼攻击。 首先，欺诈者提出了几次密码重置请求，“以使受害者产生怀疑”。 在“来电显示欺骗者”的帮助下，诈骗者打电话给他们的猎物，声称是Apple客户服务，同时要求提供双因素认证（2FA）代码。
-
-在获得2FA验证码后，钓鱼者能够控制受害者的iCloud账户，该账户有用户的MetaMask钱包密码。
-
-行业中的黑客和诈骗
-
-随着过去一年数字货币的兴起，诈骗和盗窃案也随之上升。一些黑客盗取了价值数亿美元的虚拟货币，导致仅在2021年就有超过140亿美元被盗。
-
-根据CNBC的报告，去年的数字盗窃案比2020年上升了516%。另一方面，今年的情况也不是很好，因为黑客已经窃取了超过10亿美元的资金。
-
-根据雅虎财经的报告，2022年第一季度，骗子从数字货币投资者那里掠夺了12.2亿美元。大部分资金来自虫洞（Wormhole）3.25亿美元，以及罗宁桥（Ronin Bridge）6.15亿美元的黑客。
-
-原文链接： [iCloud users might be in danger losing their assets, MetaMask warns – CoinGeek](https://coingeek.com/icloud-users-might-be-in-danger-losing-their-assets-metamask-warns/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

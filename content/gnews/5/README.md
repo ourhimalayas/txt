@@ -2,36 +2,64 @@
 ---
 
 
-## 上海疫情：死亡人数引质疑网民批评声浪四起
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2372877/)
+## 方舱医院有人要跳楼,现场大白首先做的是阻止拍摄现场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2372904/)
 
-**撰稿：日本东京方舟农场  子辰**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本-2.png)
+据[**野山**@naochashu](https://twitter.com/naochashu?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1516332197027803139%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fwp-admin%2Fpost.php%3Fpost%3D2369992action%3Dedit)于[4:25 PM · Apr 19, 2022](https://twitter.com/naochashu/status/1516332197027803139?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1516332197027803139%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fgnews.org%2Fwp-admin%2Fpost.php%3Fpost%3D2369992action%3Dedit)发布的推文——
 
-近期 ，上海疫情肆虐以来 ，上海本土感染人数已达数10万 例。最近官方公布了死亡人数 ，引发大量网民质疑和批评 。网民痛批上海官方造假并呼吁公布真实数据 。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-33.jpg)（图片来自大纪元）
-18日，上海官方公布，新增本土死亡病例7例，年龄从60岁到101岁，上述7人入院后病情加重，经抢救无效死亡，并称直接的死亡原因由基础疾病导致。17日，上海新增3例死亡病例；截至18日24时，重症患者有21例。
+方舱医院有人“跳楼”
 
-数据公布后，在互联网上引发热议。有关“上海新增本土死亡7例”的话题，一度登上微博和百度热搜榜第一名。这一数据和民间披露的真实案例相差悬殊，引发网友抨击，痛批政府造假。
 
-大量网友愤怒发声说，“上海政府的话一个字都不要信，都是假数据。”
 
-有网友问，“4月17日前，东海护理院、日月星养老院、爱以德联泰养老院、兰公馆老院等，那些感染上新冠来不及抢救或转运，甚至来不及确诊的，所有无辜的老人们，算什么？他们连一个数字都不是吗？”
+> 方舱医院有人“跳楼” [pic.twitter.com/qhxRBfzINt](https://t.co/qhxRBfzINt)
+> — 野山🎗 (@naochashu) [April 19, 2022](https://twitter.com/naochashu/status/1516332197027803139?ref_src=twsrc%5Etfw)
 
-有网友表示，“以前他们死死摁着，公布说零重症、零死亡。后来网上质疑声越来越强，慢慢的变成1重症、0死亡。可他们发现大家还不信，数字就变成了几个重症几个死亡。昨天的数字是重症16、死亡3。今天的数字是重症21、死亡7。我们揪心的不止是这个数字，而是那些隐瞒真实数据、误导抗疫大局的行为”。
 
-有网友说，“报一下因为新冠封城得不到及时医治而死的人有多少？我贡献已知身边确实发生存在的数据，2例。”
 
-4月15日，大陆微信公众号“此间纪”发表文章《上海，新增死亡+1》，记录了一位90多岁的老人在封城期间未能得到妥善照顾而丧生的故事，随后被作者删除。作者解释称，删文是因为采访对象受到压力。目前本文已被404，原因是“涉嫌违反相关法律法规和政策”。
+**拍摄者：**方舱里有人要跳楼，就这种糟糕的环境终于有人承受不住了，性格像我这样的泼捍的去跟他们闹，然后性格懦弱又受不了现实的，就选择这种方法，把人忽悠进来，又什么都不给人家，女的没卫生巾、没内裤换，男的没厕纸用，有人在跟他说，你下来没有人会抓你。他不肯下来，他说我下来要被人抓走的。
 
-还有此前，《华尔街日报》3月30日报导的，上海市东海老年护理医院爆发疫情，有护理人员亲眼目睹院内有几具尸体从医院移走，他们说，至少有100名老人的COVID-19检测结果呈阳性。但当时上海卫健委的数据显示，疫情中死亡病例为零。
+（对阻止拍摄的大白说：）你们要有人去跟他谈判，问他有什么诉求。
 
-大量网友及媒体曝出的死亡真实案例，都被中共第一时间下架封锁。面对如此巨大的反差结果，中共仍然坚持“动态清零”政策，引发的次生灾难已经远远超过疫情本身。而民众要求公布真实数据的呼声，也再次被中共打压和忽略。
+**大白：**哎呀，你不用拍了呀，你拍有什么用呀？
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/19/n13714992.htm](https://www.epochtimes.com/gb/22/4/19/n13714992.htm)
+**拍摄者：**那你们在这儿有什么用呀？你不让我拍有什么用啊？
 
-总编：老孙
-校对发布：Linda
+**大白们：**不要拍，哎呀别拍了，你不要给他们添乱了。
+
+**拍摄者：**不是我添乱，要上去一个人，需要有人上去跟他谈判，你们轻一点，要有人上去好声好气跟他说，要问清楚他要什么。你厉害，你声音太吵了，他怕的，你们越是哇啦哇啦，他越是怕，要温柔地跟他说。
+
+**大白：**你不用拍了呀。
+
+**拍摄者：**去，去看他，管我们干什么呀？
+
+**大白：**你不要拍了呀，你拍有什么用呀？
+
+**拍摄者：**好像你们在这儿又有什么用一样的，你们有用的话，他怎么会想要爬那么高不肯下来。那么多天，那么多天，不关心，不关心他，就很冷漠地对待他，只知道把人抓进来，就没人去关心一下每个人的诉求，人家不闹就不问，就装傻，这个时候怕丢脸了？
+
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
