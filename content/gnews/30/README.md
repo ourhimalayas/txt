@@ -2,36 +2,34 @@
 ---
 
 
-## 上海疫情：死亡人数引质疑网民批评声浪四起
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2372877/)
+## 台湾｜与美国贸易代表视讯会面 冀台美签署自由贸易协定
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372917/)
 
-**撰稿：日本东京方舟农场  子辰**
+**港台前线 zhong｜2022-4-19**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-5.png)
+14日晚间，美国重量级国会联邦参众议员访问团台湾，参院财政委员会成员的波特曼（Robert Portman）表示，台湾需要成为“印太经济架构”（IPEF）一员，但更重要的是美国和台湾应签署《自由贸易协定》（FTA）。
 
-近期 ，上海疫情肆虐以来 ，上海本土感染人数已达数10万 例。最近官方公布了死亡人数 ，引发大量网民质疑和批评 。网民痛批上海官方造假并呼吁公布真实数据 。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-33.jpg)（图片来自大纪元）
-18日，上海官方公布，新增本土死亡病例7例，年龄从60岁到101岁，上述7人入院后病情加重，经抢救无效死亡，并称直接的死亡原因由基础疾病导致。17日，上海新增3例死亡病例；截至18日24时，重症患者有21例。
+18日，通过台湾驻美代表萧美琴促成，行政院政务委员邓振中与美国贸易代表戴琪（Katherine Tai）进行视讯会议，双方讨论（2021年）第11届TIFA会议双边工作进展、WTO在内的多边组织合作议题，邓振中会中表达，台湾盼与美国签署双边贸易协定的目标。台湾媒体报导称，邓振中与戴琪均同意未来数月内，针对美台共同关心的议题保持联系。
 
-数据公布后，在互联网上引发热议。有关“上海新增本土死亡7例”的话题，一度登上微博和百度热搜榜第一名。这一数据和民间披露的真实案例相差悬殊，引发网友抨击，痛批政府造假。
+邓振中向媒体表示，谈话内容不方便透漏，但现在关心的事项都很正面，能通话都是正面的事。
 
-大量网友愤怒发声说，“上海政府的话一个字都不要信，都是假数据。”
+同日，戴琪也在华府会晤新加坡下任总理、财政部长黄循财，并发布推特透漏两人讨论美星两国在印太经济架构（IPEF）的合作，但并未提及与台湾政务委员邓振中视讯是否触及印太经济架构议题。
 
-有网友问，“4月17日前，东海护理院、日月星养老院、爱以德联泰养老院、兰公馆老院等，那些感染上新冠来不及抢救或转运，甚至来不及确诊的，所有无辜的老人们，算什么？他们连一个数字都不是吗？”
 
-有网友表示，“以前他们死死摁着，公布说零重症、零死亡。后来网上质疑声越来越强，慢慢的变成1重症、0死亡。可他们发现大家还不信，数字就变成了几个重症几个死亡。昨天的数字是重症16、死亡3。今天的数字是重症21、死亡7。我们揪心的不止是这个数字，而是那些隐瞒真实数据、误导抗疫大局的行为”。
 
-有网友说，“报一下因为新冠封城得不到及时医治而死的人有多少？我贡献已知身边确实发生存在的数据，2例。”
+> Great to meet with Singapore Finance Minister [@LawrenceWongST](https://twitter.com/LawrenceWongST?ref_src=twsrc%5Etfw) to discuss the Indo-Pacific Economic Framework and our ongoing regional cooperation. Thank you for your partnership in strengthening the U.S.-Singapore trade relationship. [pic.twitter.com/qaHnhv09MZ](https://t.co/qaHnhv09MZ)
+> — Ambassador Katherine Tai (@AmbassadorTai) [April 19, 2022](https://twitter.com/AmbassadorTai/status/1516207264931192836?ref_src=twsrc%5Etfw)
 
-4月15日，大陆微信公众号“此间纪”发表文章《上海，新增死亡+1》，记录了一位90多岁的老人在封城期间未能得到妥善照顾而丧生的故事，随后被作者删除。作者解释称，删文是因为采访对象受到压力。目前本文已被404，原因是“涉嫌违反相关法律法规和政策”。
 
-还有此前，《华尔街日报》3月30日报导的，上海市东海老年护理医院爆发疫情，有护理人员亲眼目睹院内有几具尸体从医院移走，他们说，至少有100名老人的COVID-19检测结果呈阳性。但当时上海卫健委的数据显示，疫情中死亡病例为零。
 
-大量网友及媒体曝出的死亡真实案例，都被中共第一时间下架封锁。面对如此巨大的反差结果，中共仍然坚持“动态清零”政策，引发的次生灾难已经远远超过疫情本身。而民众要求公布真实数据的呼声，也再次被中共打压和忽略。
+其实早在2021年7月14日，美前副总统彭斯（Mike Pence）就于华府智库传统基金会演讲表示，TIFA的贸易、投资也是FTA的核心议题，拜登政府应将目标改为与台湾签署“自由贸易协定”（FTA），借此展露对台的决心，且台美双方将受益，台美之间的自由贸易，更进一步加入印太经济体，成为一个正常国家，已是国际默而不宣的共识。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/19/n13714992.htm](https://www.epochtimes.com/gb/22/4/19/n13714992.htm)
+来源｜[自由](https://ec.ltn.com.tw/article/breakingnews/3897971)、[中時](https://www.chinatimes.com/newspapers/20210716000093-260202?chdtv)、[經濟日報](https://money.udn.com/money/story/7307/6250007)、[會議紀要](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2022/april/readout-ambassador-katherine-tais-virtual-meeting-taiwan-minister-without-portfolio-john-deng)、[udn](https://udn.com/news/story/6656/6250367)
 
-总编：老孙
-校对发布：Linda
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
