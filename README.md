@@ -15,74 +15,74 @@
 
 ---
 
-### [【粤语配音】2022年4月19日：419 “郭七条”不反习，但是要灭习](/content/gnews/1/README.md)
+### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [4/19/2022【419五周年】郭七条里的“不反习”其实是要灭了习；傅政华, 孙力军和吴征必须受到最严厉的法律制裁](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【粤语配音】2022年4月19日：419 “郭七条”不反习，但是要灭习](/content/gnews/3/README.md)
  ` MOS香港部`
 
-### [有声|泽连斯基重申对俄罗斯核武器的警告](/content/gnews/2/README.md)
+### [雅典娜时报-第268期](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|泽连斯基重申对俄罗斯核武器的警告](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [有声|泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈](/content/gnews/3/README.md)
+### [有声|泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|以岭药业深陷泥潭，中共辟谣反遭质疑](/content/gnews/4/README.md)
+### [有声|以岭药业深陷泥潭，中共辟谣反遭质疑](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [DC每日熱點0419](/content/gnews/5/README.md)
+### [DC每日熱點0419](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC每日热点0419](/content/gnews/6/README.md)
+### [DC每日热点0419](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [顿巴斯或爆发俄乌坦克大战](/content/gnews/7/README.md)
- ` 加拿大温哥华英里农场`
-
-### [加拿大生活美谈 2022-04-第五十一期](/content/gnews/8/README.md)
- ` canadalifetalk`
-
-### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/9/README.md)
+### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.19 俄乌战事汇总](/content/gnews/10/README.md)
+### [截至4.19 俄乌战事汇总](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/11/README.md)
+### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/12/README.md)
  ` 蓝莲花农场`
 
-### [来自上海人的心声：跟着共产党走进火葬场](/content/gnews/12/README.md)
+### [来自上海人的心声：跟着共产党走进火葬场](/content/gnews/13/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [419断播五周年直播要点：七哥与五位男战友（2022年4月19日）](/content/gnews/13/README.md)
+### [419断播五周年直播要点：七哥与五位男战友（2022年4月19日）](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [419断播五周年直播要点：七哥与五朵金花（2022年4月19日）](/content/gnews/14/README.md)
+### [419断播五周年直播要点：七哥与五朵金花（2022年4月19日）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/15/README.md)
+### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [西医在中国的发展（十）-医学教育泰斗 颜福庆](/content/gnews/16/README.md)
+### [西医在中国的发展（十）-医学教育泰斗 颜福庆](/content/gnews/17/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/17/README.md)
+### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/18/README.md)
+### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/19/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|中共统治中国的70多年里都干了些啥？](/content/gnews/20/README.md)
+### [有声|中共统治中国的70多年里都干了些啥？](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/21/README.md)
+### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯反对联合国对布查战争罪指控进行调查](/content/gnews/22/README.md)
+### [俄罗斯反对联合国对布查战争罪指控进行调查](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [有声新闻-新西兰财经G乐部2022年4月19日:财经新闻整理](/content/gnews/23/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
 
 ### [新西兰财经G乐部2022年4月19日:财经新闻整理](/content/gnews/24/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
