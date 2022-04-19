@@ -2,42 +2,35 @@
 ---
 
 
-## 樱花时政┃乌克兰称 &#8220;顿巴斯战役 &#8220;已经开始 俄罗斯在东部推进
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371816/)
+## 美国除提供武器 美军还将训练乌克兰军队使用榴弹炮
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2371933/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰称-顿巴斯战役-已经开始-俄罗斯在东部推进.png)[图片来源](https://www.reuters.com/business/aerospace-defense/ukraine-says-battle-donbas-has-begun-russia-pushing-east-2022-04-18/)
+来自新加坡早报 /
+2022年4月19日 12:06 PM 报导
+采集：玫瑰新闻组
 
-据路透社4月18日报道，乌克兰总统沃洛德姆-泽伦斯基和高级官员表示，俄罗斯军队周一沿着乌克兰东部大部分地区发起了新的攻势，”顿巴斯之战 “现在已经开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-自从莫斯科上月底从基辅附近和乌克兰北部撤军，以便集中力量进攻乌克兰的顿巴斯地区以来，乌克兰军队一直在为俄罗斯对其东侧的新攻击做准备。
 
-泽伦斯基在一次视频讲话中说：”我们现在可以说，俄罗斯军队已经开始了顿巴斯的战斗，他们为此准备了很长时间。
 
-乌克兰安全委员会秘书奥列克西-达尼洛夫（Oleksiy Danilov）在电视评论中说：”他们（俄罗斯军队）今天上午开始试图启动积极阶段。”
 
-他说：”今天上午，沿着（东部）顿涅茨克、卢甘斯克和哈尔科夫地区的几乎整个前线，占领者试图突破我们的防线。”
 
-俄罗斯一直在利用其从乌克兰北部和邻国白俄罗斯撤出的部队在乌克兰东部增兵，白俄罗斯是俄罗斯的亲密盟友。
 
-乌克兰武装部队指挥部在脸书上发文称，俄罗斯的主要军事力量正集中在控制整个顿涅茨克和卢甘斯克地区，这些地区构成了被称为顿巴斯的大片土地。
 
-“战争的第二阶段已经开始……相信我们的军队，它非常强大，”乌克兰总统的参谋长安德烈-耶尔马克（Andriy Yermak）在电报群Telegram消息应用程序上写道。
+![美国军方将在未来几天，在乌克兰境外开始培训乌军使用榴弹炮和雷达等一些最新武器。（法新社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202204/20220419/ukraine-russia-conflict-kharkiv-154416_1.jpg?itok=uAgHse9M)美国军方将在未来几天，在乌克兰境外开始培训乌军使用榴弹炮和雷达等一些最新武器。（法新社）
 
-俄罗斯的增援为一场旷日持久的战斗奠定了基础，军事分析家们说，随着俄罗斯人试图包围为保卫顿巴斯地区而挖掘的乌克兰战士，这场战斗肯定会给双方造成重大损失。
 
-信息来源：
-** **[**Ukraine says ‘Battle of Donbas’ has begun, Russia pushing in east**](https://www.reuters.com/business/aerospace-defense/ukraine-says-battle-donbas-has-begun-russia-pushing-east-2022-04-18/)
+以下原文内容：
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+（早报讯）综合外电报道，首批新的美国军援已在周末抵达乌克兰边境，即将移交给乌军。美国军方也将在未来几天，在乌克兰境外开始培训乌军使用榴弹炮和雷达等一些最新武器。
+
+俄军则在周一（4月18日）声称，已摧毁利沃夫一个物流中心内大批从美国和欧洲运抵乌克兰的武器。
+
+新闻链接：
+[美军除提供武器 将训练乌军使用榴弹炮](https://www.zaobao.com.sg/realtime/world/story20220419-1264213)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

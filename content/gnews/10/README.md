@@ -2,21 +2,34 @@
 ---
 
 
-## 股东们等待着马斯克的下一步行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2371809/)
+## 中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371902/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-383.jpg)
-图片来源： finance.sina.com.cn/
+撰稿：东京樱花团/asket
 
-美联社4月18日报道，推特在伊隆·马斯克想收购推特的行动面前设置了障碍，投资者们正在密切观察这位善变的特斯拉老板的下一步行动。
-这家社交媒体公司采用“毒丸”的防御措施以阻止马斯克或其他任何试图购买推特的投资人在没有获得董事会主席们同意之下收购推特。马斯克目前拥有推特9%的股份，上周他出价每股54.2美元或430亿美元收购推特。
-推特已经正式拒绝了马斯克的出价，虽然马斯克还有许多其他选项例如与董事会谈判，出价更高，甚至点燃推特的“毒丸”，这将对推特是灾难性的。这个“毒丸”要求股东在4月25日以前有权购买$210美元一股的优先股以匹配所拥有的普通股(每一千股普通股有一股优先股）以使任何想要收购推特15%或以上股份投资者获得董事会同意。
-马斯克很可能认为不值得购买，但他已经发出了政治信号以施压，现在所有人都在盯着看马斯克的下一步行动。
+玉米十年来首次超过每蒲式耳8美元，原因是担心短缺。由于投资者担心供应减少，各种因素的结合使芝加哥的玉米期货达到十年来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fres.cloudinary.com%2Fgro-intelligence%2Fimage%2Fupload%2Fv1642021031%2Fnew-website%2Fcorn_Jan12_877a813691.jpg&amp;imgrefurl=https%3A%2F%2Fgro-intelligence.com%2Finsights%2Fusda-confirms-gro-s-forecasts-for)
+自2012年9月以来，玉米期货一直没有超过每蒲式耳8美元。当年，美国中西部地区发生了毁灭性的干旱，农作物受损。现在供应风险卷土重来，但原因完全不同。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-8.png)[图片来源](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+自俄罗斯在2月底开始入侵乌克兰以来，全球玉米供应前景急剧下降。这个饱受战争摧残的国家供应着全球五分之一的玉米，今年的产量可能会下降50%。
 
-#### 新闻来源： [Shareholders await Musk’s next move in Twitter takeover bid](https://apnews.com/article/business-media-social-elon-musk-shareholder-rights-59049f55ee7553208084c3971ce425cd)
+飙升的化肥成本迫使美国的一些农民在这个种植季节增加大豆的种植，而不是玉米，因为这种作物需要的养分较少。
 
+由于天然气成本上升和俄罗斯限制向 “不友好 “国家出口化肥，化肥价格达到了历史最高点。俄罗斯是全球最大的出口国之一 — 美国恰好是来自俄罗斯的氮肥和钾肥的大进口国。
 
+而将玉米价格推向天际的最新情况是，拜登政府上周宣布采取紧急措施，扩大生物燃料销售，以遏制飙升的汽油价格。此举的问题在于，乙醇行业吸收了更大份额的玉米作物，这将遏制对粮食行业的供应。因此，最终会提高玉米价格。
+
+这种情形正在发生，因为3月份全球食品价格月度跃升了惊人的12.64%—几乎是之前月度激增记录的两倍！
+
+全球食品价格已经超过了仅在2010/11年通货膨胀暴乱期间（被称为 “阿拉伯之春”）出现的水平。
+
+投资者似乎正在对玉米短缺进行定价。现在是开始种植自己的花园的最好时机。
+
+信息来源：** **[**Corn Exceeds $8 A Bushel For First Time In Decade On Shortage Fears**](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

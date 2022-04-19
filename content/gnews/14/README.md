@@ -2,39 +2,44 @@
 ---
 
 
-## 乌克兰总统泽连斯基填妥加入欧盟问卷 递交欧盟大使
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2371765/)
+## 研究发现未接种疫苗的人比接种疫苗的人更健康
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2371855/)
 
-来自新加坡早报 /
-2022年4月19日 7:25 AM 报导
-采集：玫瑰新闻组
+*评论：拒绝毒疫苗，任何让你接种毒疫苗的人都是‘杀人犯’*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+据《newstarget.com》作者：Ethan Huff，2022年4月17日报道：
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2299.png)图片来源：原文
 
+疫苗是安全和有效的吗？根据美国卫生与公众服务部（HHS）2011年委托进行的一项研究，并非如此。
 
+例如，像维生素K疫苗这样的疫苗并不像声称的那样能提供持久的免疫保护，而是实际上降低了免疫力，导致比不接种疫苗的人更糟糕的健康结果。
 
+事实上，未接种疫苗的人往往比接种疫苗的人更健康。这与西方人对疫苗的普遍看法背道而驰。
 
+在调查了美国政府的疫苗不良事件报告系统（VAERS）后，HHS的研究人员发现，“疫苗不良事件很常见”。同一份报告认为，“只有不到1%的疫苗副作用被报告过”。
 
+你可能没有听说过这项研究，因为当然，它被广泛审查和忽视了。
 
-![泽连斯基（左）将填好的加入欧盟问卷递交马西卡斯（右）。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220419/2022-04-18t221706z144810467rc2ypt9gvkx45720722_0.jpg?VersionId=yBEnxI7cDOdWFt_qlzyYuZl90_gLFerD&amp;itok=NHzOnHBI)泽连斯基（左）将填好的加入欧盟问卷递交马西卡斯（右）。（路透社）
+这篇论文被称为“对照组试验研究”，该组织的创始人乔伊-加纳（Joy Garner）是这样解释的。疫苗的营销口号‘安全’一直依赖于在提及副作用时被证实的形容词‘罕见’。在美国《侵权法重述（第二版）》402A（注释k）中，疫苗被正式归类为‘不可避免的不安全’。
 
+但我们被告知疫苗是‘安全的’。疫苗不仅不安全，而且是不可避免的。而且这些伤害很常见，至少比VAERS报告的要常见100倍。
 
-以下原文内容：
+事实上，目前我们的法律被滥用，保护制药业不受这种欺诈行为的影响，也不受它所造成的伤害的影响，但这并没有改变字典上对欺诈一词的定义。很少有人会有如此严重的认知失调，以至于一旦意识到疫苗是‘不可避免的不安全’产品，通常会使人受伤、致残和死亡，他们仍然会相信疫苗是‘安全的’。
 
-（早报讯）综合外电报道，乌克兰总统泽连斯基已在周一（4月18日）将填妥的加入欧盟问卷递交欧盟驻乌克兰大使马西卡斯，这将成为乌克兰寻求“加速入欧盟”的第一步。
+* * *
 
-泽连斯基表示，相信数周内就会展开乌克兰加入欧盟的程序，而这对乌克兰的历史有正面影响。
+原文连接：[https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html](https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html)
 
-接下来，欧盟委员会将就乌克兰是否符合必要的标准提出建议。一般上，欧盟对是否接纳新成员国的决策需要好几年的时间。
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – HotPixel
+评论：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-不过[欧盟委员会主席冯德莱恩在4月8日访问基辅](https://www.zaobao.com.sg/realtime/world/story20220409-1260969)时，除了将这份问卷交给泽连斯基外，也承诺将加快乌克兰加入欧盟的进程。
-
-新闻链接：
-[泽连斯基填妥加盟问卷递交欧盟大使](https://www.zaobao.com.sg/realtime/world/story20220419-1264172)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,30 +2,32 @@
 ---
 
 
-## 中日财经爆┃封城阻塞供应链 特斯拉上海工厂被迫继续推迟复产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371585/)
+## 樱花FM┃日本首次确认“XE毒株” 感染者停留过美国
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2371804/)
 
-撰稿：东京樱花团/asket
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2297.png)
+国内机场检疫中首次确诊感染新型Corona Omicron毒株“XE”的人员
 
-特斯拉本周计划在上海重新复产，因 “供应商的物流问题 “而推迟。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-15.png)[图片来源](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
-整个周末，关于特斯拉上海工厂如何最终在未来几天重新开业的文章都被报道出来。例如，路透社报道说，该公司在关闭3周后，正在 “拼命 “重新开放其上海工厂。
+据厚生劳动省称，一名有留美史的30多岁女性被证实感染了一种名为“XE毒株”的新型变异株。
 
-支持特斯拉的博客electrek也报道说，特斯拉的目标是 “在被关闭大约三周后，于4月18日星期一重新开始生产，但错过了超过4万辆电动车的生产”。
+该女子于上月26日抵达成田机场，无症状，但新冠隔离检测呈阳性，随后的详细检测证实感染了“XE”。
 
-“为了准备重启，特斯拉已经将工人召回上海工厂，根据中国的’闭环管理’程序，他们将需要住在现场，”两位消息人士告诉路透社。
+“XE”是多种Omicron菌株的组合，在日本首次得到确认。
 
-但是根据Street Insider周一早上的报道，重启的希望可能几乎一出现就破灭了。该公司正准备在周一重新开业，但由于 “供应商的物流问题”，被迫将重启时间推迟一天。
+根据美国国家传染病研究所的数据，感染人数的增长速度比“BA.2”快12.6%。
 
-与此同时，竞争对手大众汽车公司据说已经在中国重启了生产。报道称，通用汽车也在考虑本周重新开工的计划。
+目前尚不清楚检测到的“XE”是否和英国流行的同一样毒株。
 
-同时，中国继续在全国部分地区扩大封锁，不仅在国内造成混乱，而且对美国等高度依赖进口中国商品的国家的供应链造成另一个冲击。
+在检疫中，还发现了另外两个被认为是重组Omicron毒株的标本，但与目前分类的毒株不对应，传染病研究所表示无法做出判断。
 
-信息来源：** **[**Tesla’s Planned Shanghai Reopening For This Week Pushed Back Due To “Logistics Problems With Supplier”**](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
+文字版原文：[日本首次确认“XE毒株” 感染者停留过美国](https://gnews.org/zh-hans/2329664/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+*编辑：东京樱花团/小老虎
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

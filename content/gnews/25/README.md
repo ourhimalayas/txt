@@ -2,38 +2,20 @@
 ---
 
 
-## 斯里兰卡请求国际货币基金组织提供快速融资援助
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2371476/)
+## 樱花时政┃日本宣布向乌克兰提供化武防护口罩和无人机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371563/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-46.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.defensenews.com%2Fresizer%2F0Sl7_-pD8XfHInpt1wfxWhoVi0M%3D%2F1024x0%2Ffilters%3Aformat%28jpg%29%3Aquality%2870%29%2Fcloudfront-us-east-1.images.arcpublishing.com%2Fmco%2FEQ4ETP3LUJEEPJL5UAZKPNMKBU.jpg&amp;imgre)
+日本防卫大臣岸信介在4月19日的内阁会议上宣布，应乌克兰的请求，将向乌克兰提供防止化学武器的防护用口罩以及无人机等，一旦准备就绪，将由民用飞机来实施运输。
 
-#### 翻译/编辑：小红帽
+日本政府此前曾根据《国防装备转让三原则》向乌克兰方面提供了防弹衣和防寒服。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1323683-2.jpg)图片来源：www.indianexpress.com
+信息源：[【速報】化学兵器対応の防護マスクやドローンなどをウクライナに提供へ　岸防衛大臣](https://news.yahoo.co.jp/articles/0cf09a074df49ba1035788bc87e381b58437c623#:~:text=%E3%83%88%E3%83)
 
-
-根据CNA 4月19日报道，斯里兰卡财政部长助理周二在推特上说，斯里兰卡已经向国际货币基金组织（IMF）提出了快速融资工具（RFI）支持的要求，以缓解供应链问题。
-
-然而，国际货币基金组织认为斯里兰卡不符合其标准，Shamir Zavahir说，IMF似乎对授予扩展基金融资机制（EFF）持积极态度。 印度洋岛国斯里兰卡上周二宣布，将暂时停止偿还所有外债，并请求国际货币基金组织（IMF）提供紧急财政援助，以应对国内70多年来最严重的经济危机。
-
-斯里兰卡财政部发布声明说：“自1948年独立以来，斯里兰卡一直保持着良好的外债偿还记录。然而，最近发生的事件，包括疫情持续蔓延和乌克兰危机的影响，已经侵蚀了斯里兰卡的财政状况，继续正常偿还外债已经变得不可能。”
-
-斯里兰卡的经济崩溃引发了大规模抗议活动，抗议的内容包括创纪录的通货膨胀、轮流停电以及药品和燃气等基本商品的严重短缺。
-
-4月9日，巴基斯坦总理Imran Khan下台，据CEIC的数据，巴基斯坦3月份的消费价格较上年同期上涨12.7%。
-
-资料来源：
-1、[Sri Lanka asks IMF for rapid financial assistance](https://www.channelnewsasia.com/business/sri-lanka-asks-imf-rapid-financial-assistance-2632931)
-2、斯里兰卡只是开始 发展中国家“债务风暴”来了
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：](https://twitter.com/HimalayaAthena1)HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr：](https://gettr.com/user/himalayaathena)himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)YouTube
-[澳大利亚墨尔本雅典娜农场](https://gettr.com/user/himalayaathena)Discord
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
