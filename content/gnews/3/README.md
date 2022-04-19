@@ -2,22 +2,23 @@
 ---
 
 
-## 樱花时政┃美联邦地方法院栽决，戴口罩义务是“违法”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2372409/)
+## 中共小弟巴基斯坦大停电
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2372424/)
 
-撰稿：东京樱花团/立正道
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-19-154422.jpg)
+巴基斯坦正在削减家庭和工业用电，因为这个现金紧张的国家再也无力从海外购买煤炭或天然气作为发电厂的燃料。
 
-华盛顿共同，美国主要航空公司于18日宣布，美国国内线和部分国际航班的旅客和乘务员停止要求戴口罩作为应对新型冠状病毒。同日，佛罗里达南部的联邦地方法院裁定，疾病控制中心(CDC)宣称的公共交通和机场等地佩戴口罩是义务违法，运输安全局(TSA)也解除了戴口罩是义务的措施。
+据已被新任总理谢巴兹-谢里夫选为财政部长的米夫塔赫-伊斯梅尔在推特上发布的消息，截至4月13日，价值约3500兆瓦的发电机已因燃料短缺而关闭。他说，由于技术故障，类似的数量也是离线的。卡拉奇Arif Habib有限公司研究主管塔希尔-阿巴斯（Tahir Abbas）表示，这7000多兆瓦几乎占总发电量的五分之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2312.png)[图片来源](https://static.tokyo-np.co.jp/image/article/size1/b/4/1/a/b41a925963ee7ba7af1fff9e1c6edd55_1.jpg)
+自斯里兰卡之后，巴基斯坦是另一个中共小弟没钱了。政局刚刚发生大转变，巴基斯坦就碰到经济灾难。如此一来，巴基斯坦的新总理会跟中共要援助金或转跟美国好呢？
 
-铁路和公交车上也有可能扩大停止佩戴的行为。政府正在讨论包括上诉在内的应对措施。总统发言人说:“虽然联邦地方法院的判定很遗憾，但CDC仍将鼓励继续戴口罩。”
+和阿富汗一样，中共又要掏钱解决问题。要不然，巴基斯坦就会翻脸不认人。中共还有多少钱来贴巴基斯坦？
 
-消息来源：[米航空各社、マスク着用を停止　連邦地裁、義務は「違法」：東京新聞 TOKYO Web](https://www.tokyo-np.co.jp/article/172634?rct=world)
+希望邪恶的势力一一的瓦解。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**新闻来源**： [https://www.bloomberg.com/news/articles/2022-04-18/cash-strapped-pakistan-cuts-power-to-households-on-fuel-shortage](https://www.bloomberg.com/news/articles/2022-04-18/cash-strapped-pakistan-cuts-power-to-households-on-fuel-shortage)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

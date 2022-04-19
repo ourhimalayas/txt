@@ -2,32 +2,22 @@
 ---
 
 
-## 新冠疫苗｜日本正式批准美国Novavax疫苗 供“新冠疫苗过敏者”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372407/)
+## 樱花时政┃美联邦地方法院栽决，戴口罩义务是“违法”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2372409/)
 
-**疫情关注组 zhong｜2022-4-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-10.png)
-日媒报导，厚生劳动省19日批准了美国Novavax公司（诺瓦瓦克斯）生产的Novavax新冠疫苗，该疫苗为重组蛋白疫苗，适用于18岁以上族群，为日本第四种新冠疫苗。该疫苗预计使用于对辉瑞、莫德纳、AZ新冠疫苗过敏者，有计划于5月下旬开始陆续交付（总共1.5亿剂）。Novavax疫苗将由武田药品工业株式会社制造，外媒分析称国内生产可稳定供应。
+撰稿：东京樱花团/立正道
 
-Novavax称，该疫苗已获得欧盟委员会和英国监管机构的有条件批准销售。疫苗副作用方面，日本厚生劳动省称Novavax疫苗在截至目前的临床实验，并未发现严重的过敏反应或产生血栓等副作用。（Novabacs于 2021 年 12 月 15 日在医学杂志《新英格兰医学杂志》上发表的数据称，较其他新冠疫苗的副作用少，且心肌炎或血栓的机率未证实有增加。）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-19-下午3.02.01.png)
-日本官方统计数据，18日新增24164例，自4月13日起每日确诊数有逐日下降的趋势，但仍处于第六波疫情高峰，而每日应住院治疗的患者数无显著变化（持平）。日本政府于4月12日至15日向冲绳县政府派出“联络小组”，疏通中央、地方的沟通，了解当地疫情，最终得出结论“政府呼吁接种第三剂疫苗”作为防疫措施。
+华盛顿共同，美国主要航空公司于18日宣布，美国国内线和部分国际航班的旅客和乘务员停止要求戴口罩作为应对新型冠状病毒。同日，佛罗里达南部的联邦地方法院裁定，疾病控制中心(CDC)宣称的公共交通和机场等地佩戴口罩是义务违法，运输安全局(TSA)也解除了戴口罩是义务的措施。
 
-- 13日新增：57687例
-- 14日新增：55210例
-- 15日新增：49711例
-- 16日新增：47543例
-- 17日新增：39214例
-- 18日新增：24164例
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2312.png)[图片来源](https://static.tokyo-np.co.jp/image/article/size1/b/4/1/a/b41a925963ee7ba7af1fff9e1c6edd55_1.jpg)
 
+铁路和公交车上也有可能扩大停止佩戴的行为。政府正在讨论包括上诉在内的应对措施。总统发言人说:“虽然联邦地方法院的判定很遗憾，但CDC仍将鼓励继续戴口罩。”
 
-来源｜[NHK](https://www3.nhk.or.jp/news/special/coronavirus/seventhwave/detail/detail_12.html)、[NHK](https://www3.nhk.or.jp/news/html/20220418/k10013588061000.html)
+消息来源：[米航空各社、マスク着用を停止　連邦地裁、義務は「違法」：東京新聞 TOKYO Web](https://www.tokyo-np.co.jp/article/172634?rct=world)
 
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

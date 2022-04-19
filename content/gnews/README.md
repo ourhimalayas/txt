@@ -15,152 +15,152 @@
 
 ---
 
-### [DC大中华时事：面临严峻国际环境考验，中共国一季度GDP数据严重造假](/content/gnews/1/README.md)
+### [【乌克兰救援】04/17/2022 来自西班牙的年轻人认为打倒中国共产党是件好事](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [DC大中华时事：面临严峻国际环境考验，中共国一季度GDP数据严重造假](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共小弟巴基斯坦大停电](/content/gnews/2/README.md)
+### [中共小弟巴基斯坦大停电](/content/gnews/3/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [樱花时政┃美联邦地方法院栽决，戴口罩义务是“违法”](/content/gnews/3/README.md)
+### [樱花时政┃美联邦地方法院栽决，戴口罩义务是“违法”](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新冠疫苗｜日本正式批准美国Novavax疫苗 供“新冠疫苗过敏者”](/content/gnews/4/README.md)
+### [新冠疫苗｜日本正式批准美国Novavax疫苗 供“新冠疫苗过敏者”](/content/gnews/5/README.md)
  ` 關注組`
 
-### [喜交所创始人余建明谈加密货币](/content/gnews/5/README.md)
+### [喜交所创始人余建明谈加密货币](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花深度报道┃中共对人权发起攻势（下）](/content/gnews/6/README.md)
+### [樱花深度报道┃中共对人权发起攻势（下）](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃中共对人权发起攻势（上）](/content/gnews/7/README.md)
+### [樱花深度报道┃中共对人权发起攻势（上）](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [泽连斯基：﻿加强制裁俄罗斯，打消其使用化学武器](/content/gnews/8/README.md)
+### [泽连斯基：﻿加强制裁俄罗斯，打消其使用化学武器](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联盟工作汇报文字版2022.4.17](/content/gnews/9/README.md)
+### [联盟工作汇报文字版2022.4.17](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [MetaMask警告说，iCloud用户可能面临失去资产的危险](/content/gnews/10/README.md)
+### [MetaMask警告说，iCloud用户可能面临失去资产的危险](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国警告：所罗门群岛与中国的协议将影响地区稳定](/content/gnews/11/README.md)
+### [美国警告：所罗门群岛与中国的协议将影响地区稳定](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [﻿新中国联邦前线采访比利时总理](/content/gnews/12/README.md)
+### [﻿新中国联邦前线采访比利时总理](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [95%新冠患者的生命可以被拯救](/content/gnews/13/README.md)
+### [95%新冠患者的生命可以被拯救](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/04/13 拜登指责普京在乌克兰实施种族灭绝](/content/gnews/14/README.md)
+### [2022/04/13 拜登指责普京在乌克兰实施种族灭绝](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/15/README.md)
+### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/16/README.md)
  ` 關注組`
 
-### [郭文贵盖特音频2022.04.18](/content/gnews/16/README.md)
+### [郭文贵盖特音频2022.04.18](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [格雷厄姆参议员回应中共战狼陈卫华辱骂](/content/gnews/17/README.md)
+### [格雷厄姆参议员回应中共战狼陈卫华辱骂](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“田惠宇”（二）](/content/gnews/18/README.md)
+### [文•贵天成——文贵先生谈“田惠宇”（二）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽连斯基：乌克兰可能在几周内成为欧盟候选国](/content/gnews/19/README.md)
+### [泽连斯基：乌克兰可能在几周内成为欧盟候选国](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北京卫健委主任被抓 科兴疫苗高管突亡 中共的替罪羊与背锅侠](/content/gnews/20/README.md)
+### [北京卫健委主任被抓 科兴疫苗高管突亡 中共的替罪羊与背锅侠](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元](/content/gnews/21/README.md)
+### [中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国最高法院再次拒绝审理纽约市教师上诉的疫苗接种强制案](/content/gnews/22/README.md)
+### [美国最高法院再次拒绝审理纽约市教师上诉的疫苗接种强制案](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [研究发现未接种疫苗的人比接种疫苗的人更健康](/content/gnews/23/README.md)
+### [研究发现未接种疫苗的人比接种疫苗的人更健康](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【速报】日本政府决定向乌克兰提供防护面具和无人机](/content/gnews/24/README.md)
+### [【速报】日本政府决定向乌克兰提供防护面具和无人机](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？](/content/gnews/25/README.md)
+### [中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共对美国精英的俘获战略是成功的](/content/gnews/26/README.md)
+### [中共对美国精英的俘获战略是成功的](/content/gnews/27/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](/content/gnews/27/README.md)
+### [俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](/content/gnews/28/README.md)
  ` 關注組`
 
-### [以岭药业深陷泥潭，中共辟谣反遭质疑](/content/gnews/28/README.md)
+### [以岭药业深陷泥潭，中共辟谣反遭质疑](/content/gnews/29/README.md)
  ` GTV News Talk`
 
-### [喜马拉雅币一周分析与总结（4月11日-4月17日）](/content/gnews/29/README.md)
+### [喜马拉雅币一周分析与总结（4月11日-4月17日）](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年4月18日郭先生盖特 — 视频1「10分00秒」](/content/gnews/30/README.md)
+### [2022年4月18日郭先生盖特 — 视频1「10分00秒」](/content/gnews/31/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？](/content/gnews/31/README.md)
+### [台湾｜国台办：台湾前途由全体中国人民共同决定 为攻台铺路？](/content/gnews/32/README.md)
  ` 關注組`
 
-### [中共强摘器官令人震惊的得到证实](/content/gnews/32/README.md)
+### [中共强摘器官令人震惊的得到证实](/content/gnews/33/README.md)
  ` 美国政要直译推`
 
-### [揭秘湖南道县大屠杀](/content/gnews/33/README.md)
+### [揭秘湖南道县大屠杀](/content/gnews/34/README.md)
  ` 历史组`
 
-### [俄罗斯军队仍具有高达百分之八十五的军事能力](/content/gnews/34/README.md)
+### [俄罗斯军队仍具有高达百分之八十五的军事能力](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [叙利亚战士准备加入下一阶段的乌克兰战争](/content/gnews/35/README.md)
+### [叙利亚战士准备加入下一阶段的乌克兰战争](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵精品视频-台湾危也！](/content/gnews/36/README.md)
+### [郭文贵精品视频-台湾危也！](/content/gnews/37/README.md)
  ` cindy`
 
-### [秘翻在线: 第三次大战不可避免?](/content/gnews/37/README.md)
+### [秘翻在线: 第三次大战不可避免?](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [与普京的会谈毫无进展 意大利总理表示这是“浪费时间”](/content/gnews/38/README.md)
+### [与普京的会谈毫无进展 意大利总理表示这是“浪费时间”](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蔡英文表示台湾坚守主权与民主的决心](/content/gnews/39/README.md)
+### [蔡英文表示台湾坚守主权与民主的决心](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈](/content/gnews/40/README.md)
+### [泽连斯基警告 若马里乌波尔守军阵亡将终结俄乌和谈](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [泽连斯基重申对俄罗斯核武器的警告](/content/gnews/41/README.md)
+### [泽连斯基重申对俄罗斯核武器的警告](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [乌克兰称被击沉莫斯科号舰长在爆炸中丧生](/content/gnews/42/README.md)
+### [乌克兰称被击沉莫斯科号舰长在爆炸中丧生](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [清零老弱病残](/content/gnews/43/README.md)
+### [清零老弱病残](/content/gnews/44/README.md)
  ` 银河勇气之星`
 
-### [墨西哥总统有争议的电力改革被国会否决](/content/gnews/44/README.md)
+### [墨西哥总统有争议的电力改革被国会否决](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文雍漫谈：不假思索的恶](/content/gnews/45/README.md)
+### [文雍漫谈：不假思索的恶](/content/gnews/46/README.md)
  ` 文雍`
 
-### [连花清瘟胶囊的诞生和发迹史（4）](/content/gnews/46/README.md)
+### [连花清瘟胶囊的诞生和发迹史（4）](/content/gnews/47/README.md)
  ` 加拿大温哥华英里农场`
 
-### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/47/README.md)
+### [樱花时政┃奥地利总理： 普京相信他正在赢得这场战争](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/48/README.md)
+### [加拿大省长荷兰议员对“大重置”的看法](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [04/18每日播報｜社媒消息: 娜塔莉温特斯 艾迪·贝特曼医生](/content/gnews/49/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [世界银行：减少对中国的依赖“可能对每个人都有好处”](/content/gnews/50/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
