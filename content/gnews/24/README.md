@@ -2,28 +2,31 @@
 ---
 
 
-## 泽连斯基与国际货币基金组织讨论乌克兰重建
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375343/)
+## 有声|欧洲某国国防部官员对新中国联邦的救援行动表示感谢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2375374/)
 
-作者：DC农场-自由信仰，香草山-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月17日，乌克兰总统泽连斯基表示，他与国际货币基金组织总裁格奥尔基耶娃进行了交谈，讨论了乌克兰的金融稳定和战后重建问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SwUjoTWlt9Frdwqj1YE8aIyQKHyds1vChqM-m4ajPps.jpeg)西网
-据世界银行上周发布的报告，受战争影响，乌克兰今年的国内生产总值预计将下降 45.1%，如果战争持续，损失还会有所增加。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+4月17日，根据郭文贵先生临时直播信息 ，受欧洲某国国防部重要官员委托，通过文贵先生向在梅迪卡参加救援的新中国联邦人致谢，并表示日后，他会亲自看望每一位在梅迪卡前线参加救援的战友。
 
-泽连斯基表示，他和格奥尔基耶娃已经有了明确的合作计划，和对未来的展望，他相信国际货币基金组织和乌克兰之间的合作将取得丰硕成果。格奥尔基耶娃对推文进行了积极回应，并称乌克兰盟友持续的经济支持将为重建工作奠定基础。
+大约一至两周前，欧洲某国国防部重要官员以普通人身份参观了梅迪卡新中国联邦营地帐篷，受到了战友们专业而礼貌地接待，并享用了著名的战地咖啡。新中国联邦人的素质与尊重深深感动了他。
 
-另外，乌克兰总理什米加尔早些时候表示，他将出席本周在华盛顿举行的国际货币基金组织和世界银行的会议，为乌克兰寻求更多的财政援助。
+他表示，新中国联邦人救援了很多俄乌战争中关键人物的家属，与他们合作的乌克兰军方的某个重要人的家人就是被新中国联邦拯救的。
 
-参考链接：[Zelenskiy, IMF managing director discuss Ukraine’s ‘post-war reconstruction’](https://www.reuters.com/world/europe/zelenskiy-imf-managing-director-discuss-ukraines-post-war-reconstruction-2022-04-17/)
+文字版原文：[欧洲某国国防部官员对新中国联邦的救援行动表示感谢](https://gnews.org/zh-hans/2369275/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+音频处理：Fei797
+发稿：Fei797
 
-编辑：飞虹
-总编：文恩
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
