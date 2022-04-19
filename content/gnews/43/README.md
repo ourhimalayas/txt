@@ -2,34 +2,30 @@
 ---
 
 
-## 中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371902/)
+## 新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372113/)
 
-撰稿：东京樱花团/asket
+**图/文｜CP **
+**发布时间｜19/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新冠疫苗｜福奇指群體免疫不適用新冠病毒-暗示民眾需繼續打針.jpg)
 
-玉米十年来首次超过每蒲式耳8美元，原因是担心短缺。由于投资者担心供应减少，各种因素的结合使芝加哥的玉米期货达到十年来的最高水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fres.cloudinary.com%2Fgro-intelligence%2Fimage%2Fupload%2Fv1642021031%2Fnew-website%2Fcorn_Jan12_877a813691.jpg&amp;imgrefurl=https%3A%2F%2Fgro-intelligence.com%2Finsights%2Fusda-confirms-gro-s-forecasts-for)
-自2012年9月以来，玉米期货一直没有超过每蒲式耳8美元。当年，美国中西部地区发生了毁灭性的干旱，农作物受损。现在供应风险卷土重来，但原因完全不同。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-8.png)[图片来源](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
-自俄罗斯在2月底开始入侵乌克兰以来，全球玉米供应前景急剧下降。这个饱受战争摧残的国家供应着全球五分之一的玉米，今年的产量可能会下降50%。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-飙升的化肥成本迫使美国的一些农民在这个种植季节增加大豆的种植，而不是玉米，因为这种作物需要的养分较少。
 
-由于天然气成本上升和俄罗斯限制向 “不友好 “国家出口化肥，化肥价格达到了历史最高点。俄罗斯是全球最大的出口国之一 — 美国恰好是来自俄罗斯的氮肥和钾肥的大进口国。
+美国国家传染病研究所所长福奇（Anthony Fauci）周五（15日）接受采访时表示，群体免疫的概念可能不适用于新冠病毒。
 
-而将玉米价格推向天际的最新情况是，拜登政府上周宣布采取紧急措施，扩大生物燃料销售，以遏制飙升的汽油价格。此举的问题在于，乙醇行业吸收了更大份额的玉米作物，这将遏制对粮食行业的供应。因此，最终会提高玉米价格。
+早前，福奇联同多名医学专家为《传染病学期刊》撰写了一篇关于群体免疫的研究论文，对此，福奇在接受媒体访问时以美国曾经利用群体免疫战胜麻疹举例，指出当时之所以成功战胜麻疹基于三个重要性指标，包括绝对有效的疫苗、病毒不会随时间产生显著变异以及成功的儿童疫苗接种。
 
-这种情形正在发生，因为3月份全球食品价格月度跃升了惊人的12.64%—几乎是之前月度激增记录的两倍！
+福奇指出，对照目前的新冠病毒来看，疫情爆发两年多以来，不断出现 Delta和Omicron等多种显著性变异毒株，加上疫苗接种率不足，因此认为，群体免疫概念可能不适用于新冠病毒。福奇强调，无论是接种疫苗诱发的免疫力，还是染疫后引起的免疫作用都并非终生，这意味着民众需要不断的接种新冠疫苗。
 
-全球食品价格已经超过了仅在2010/11年通货膨胀暴乱期间（被称为 “阿拉伯之春”）出现的水平。
+有评论质疑，在福奇所列举的三大重要性指标中，“绝对有效的疫苗”居于首位，那么群体免疫不奏效的根本原因，应该率先考虑疫苗的有效性问题，而不是将群体免疫无效的症结点归结到疫苗接种率的问题上。再者，既然疫苗诱发的免疫力并非终生，那么是否值得为了短暂的免疫力而承担所可能引起的上千种疫苗副反应呢？归根结底，任何一个负责任的科学家，都不应该鼓励民众继续接种一个弊大于利的疫苗。
 
-投资者似乎正在对玉米短缺进行定价。现在是开始种植自己的花园的最好时机。
+来源｜[NJ](https://www.nj.com/coronavirus/2022/04/dr-anthony-fauci-says-herd-immunity-may-not-apply-to-covid.html)
 
-信息来源：** **[**Corn Exceeds $8 A Bushel For First Time In Decade On Shortage Fears**](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+* * *
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,26 @@
 ---
 
 
-## 乌克兰哈尔科夫接连四天遭受炮击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375313/)
+## 欧美陆续报道儿童罕见肝病
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375360/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：香草山农场 Wenfei
 
-乌克兰总统泽连斯基17日晚间表示，过去四天在乌克兰东北部城市哈尔科夫发生的炮击事件造成18人死亡，100多人受伤。
+4月15日，世界卫生组织和美国CDC的公共卫生官员表示，他们目前正在调查多起病因不明的儿童的严重急性肝炎。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.44.24-AM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.57.46-AM.png)
 
-哈尔科夫州长奥列·辛耶胡博夫(Oleh Synyehubov)早些时候表示，周日，一枚导弹和炮火袭击了市中心和萨尔蒂夫卡郊区，造成 5 人死亡、20 人受伤。
+这些病例见于13 岁以下的儿童，所有患儿在患病之前身体健康，无肝炎病史或相互接触史。患儿主诉腹泻、恶心和呕吐。部分患儿出现黄疸，血液检查肝酶升高。其中一些患儿病情非常严重，需要肝移植治疗，迄今未见死亡病例。
 
-报道进一步表示，确切的遇难人数目前无法获得独立的核实。
+截止上周，英国和北爱尔兰报道该病病例 74 例，西班牙3例，美国阿拉巴马州9 例。
 
-泽连斯基在晚间讲话中说，俄罗斯对哈尔科夫的炮击一直在持续。他指责俄罗斯蓄意通过炮火攻击平民制造恐怖气氛。
+据世界卫生组织的消息，英国早期的 10 名患儿，有 9 位发病于 2022年1月至3 月，而美~~国的病例发生在 2021 年 10 月至 2022年2 月。
 
-辛耶胡博夫表示，乌克兰武装部队在哈尔科夫地区成功地进行了反击，完全夺回了两个村庄，另一个村庄也被部分夺回。
+急性肝炎一般由病毒感染导致。目前，接诊医生已排除甲、乙、丙、丁和戊型肝炎病毒感染的可能性。据阿拉巴马州的儿科医生推测，这种急性肝炎可能与41型腺病毒有关。然而，腺病毒作为上呼吸道病毒，感染后一般引发普通感冒，极少引发肝损伤。世卫组织和美国CDC目前正密切关注这一儿童急性肝炎的流行病学特征。
 
-参考链接：[Kharkiv shelling kills 18, injures scores over past four days, Zelenskiy says](https://www.reuters.com/world/europe/shelling-kills-five-injures-13-kharkiv-city-centre-report-2022-04-17/)
+目前，各国政府和药企正大力推广儿童接种试验性中共病毒疫苗。过去一年多的时间，各类有关中共病毒疫苗损害机体正常免疫机能的证据不断涌现。我们不得不警惕：在接种试验性中共病毒疫苗后，儿童免疫机能下降，可能诱发腺病毒在消化系统的机会性感染。
+
+参考链接：[Rare, severe liver damage reported in kids in U.S. and Europe](https://www.nbcnews.com/health/health-news/severe-hepatitis-kids-dozens-cases-reported-us-europe-rcna24553)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
