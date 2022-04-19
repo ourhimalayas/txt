@@ -2,25 +2,12 @@
 ---
 
 
-## 美日等国善待从中共国上海出逃的人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2374350/)
+## 爆料革命五年志——419断播五周年回顾
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2373833/)
 
-作者：银河系农场 骄子
-
-4月18日，郭先生盖特直播中揭露：在上海疫情“动态清零”的人道危机发生之前，郭先生根据多方情报，一再提醒友人和战友迅速离开，但未能得到重视。直到遍尝生离死别、贫病交加的苦楚，一些同胞才终于认清了现实准备出逃。据郭先生透露，有人为了逃出上海，花费了几百万人民币现金。其中一位战友，花费上千万帮助十几人成功出逃。目前成功出逃到达日本的战友数量已将近两千人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-160.jpg)
-从上海出逃到达美国的一位战友，尽管其美国签证过期，但美国国土安全部的官员在了解情况后准以放行，并给予他六个月的停留期。另有从上海出逃的一位战友，入境美国后将其个人在上海的遭逢向国土安全的官员如实报告后，获得长期在美国停留的权利。到达日本的上海人，也基本上允许入境。一位日籍企业负责人，将他身处上海的中国高管全部转移到了日本。而在中共国内的美领馆和日领馆大使馆内，美国人和日本人都没有食物，忍饥挨饿，生命垂危。美日等民主国家对待中国人的方式，和中共对待美国人和日本人的方式形成了强烈的参照。 新中国联邦呼吁那些被救的中国人，不要再懦弱，将你知道的真相告诉世界。
-
-参考链接：[4月18日：尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！](https://gettr.com/post/p15wbxu0c9c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：文恩
-编辑：百香果
-审核：Ivy001
-校正/发稿：Fei797
-
-
+美国之音419断播门五周年特别直播20220419
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-26.png)
+*发布：Theodosia*
 
  
 
