@@ -2,23 +2,16 @@
 ---
 
 
-## 日本向乌克兰提供防护面罩与无人机等应对化学武器攻击
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2375004/)
+## 20220419郭文贵大直播 ：七哥回忆与BBC采访被王岐山叫停 当时和其它媒体的合作
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2375031/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
-岸防卫大臣（#岸信夫）在19日的内阁会议上表示，应乌克兰方的请求，将提供应对化学武器用的新防护面罩和无人机等。一旦准备完成，将使用民用飞机进行运输。
-视频来源：雅虎新闻
-日本政府此前根据移送防卫装备的三个原则，已经向乌克兰方提供了防弹背心和防寒服等物资。
+作者：东京樱花团小视频组
 
-参考链接：[【速報】化学兵器対応の防護マスクやドローンなどをウクライナに提供へ　岸防衛大臣（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/0cf09a074df49ba1035788bc87e381b58437c623)
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
 * * *
-
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
