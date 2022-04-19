@@ -2,31 +2,28 @@
 ---
 
 
-## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
+## 美佛州法官判定CDC的公共交通口罩令违法并予以撤销
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2369938/)
 
-撰稿：东京樱花团/asket
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16503213081.png)图片来源：纽约时报
+综合外媒4月19日报道，美国佛罗里达州中区联邦地区法院法官卡特琳·米泽尔（Kathryn Mizelle）本周一（4月18日）做出裁决，撤销了美疾控中心（CDC）要求公共交通运输工具上的乘客必须佩戴口罩的规定。
 
-奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
-“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
+这起诉讼由保守派非营利组织“健康自由捍卫基金”（Health Freedom Defense Fund）以及多位航空旅客在2021年7月发起，起诉对象包括拜登总统、CDC和多位政府官员。由前总统川普任命的米泽尔在长达59页的裁决书中写道：“强制口罩令是非法的，因为它逾越了CDC的法定权限。CDC也没有为其强制令提供充分的理由，其口罩令的实施也违反了行政法。我们的制度不容许政府机构非法行事，即使是为了正当的目的。因此宣告口罩令违法并予以撤销。”
 
-“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
+目前尚不清楚这项裁决将如何马上影响到旅客，或者拜登政府的司法部是否会试图阻止这项裁决并提出上诉。
 
-内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
+由于美国的新冠病例增加，疾控中心最近已将其在2021年2月3日下达的口罩令延长到今年5月3日，民众搭乘飞机、地铁、火车和巴士等交通工具时必须佩戴口罩。
 
-这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
+白宫新闻秘书珍·普萨基 (Jen Psaki) 周一表示这项裁决“令人失望”，并说疾控中心仍在审查这一裁决，同时鼓励美国人在旅行时继续戴口罩。保守派共和党人则对这一裁决表示欢迎。佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis) 在裁决后发推说：“很高兴看到佛罗里达州的一名联邦法官遵守法律，拒绝了拜登政府的公共交通口罩令。航空公司员工和乘客都应该结束这种苦难。”
 
-内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
+*责编：白夜*
 
-虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
+新闻来源：
 
-信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
+[Federal judge strikes down CDC’s COVID mask mandate for air passengers, other mass travelers](https://americasvoice.news/justthenews/cdc-traveler-mask-mandate-struck-down-federal-judge/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+[Federal judge strikes down mask mandate for planes](https://news.yahoo.com/federal-judge-plane-mask-mandate-mizelle-trump-appointee-195623323.html)
 
  
 

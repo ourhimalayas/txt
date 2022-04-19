@@ -2,14 +2,12 @@
 ---
 
 
-## 谷歌地图开放俄罗斯所有战略要地的高像素卫星图像
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2370920/)
+## 黑龙江大庆疫情封控大量活鱼死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2370997/)
 
-编辑：文宝
+04/17/2022 黑龙江大庆肇源县北市场因疫情切封控14天，导致大量活鱼死亡，商户损失惨重，哭声一片。
 
-
-![谷歌地图开放俄罗斯所有战略要地的高像素卫星图像  ](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2022%2F0418%2Fa7379e3cp00raj9z400cvc000hs008ic.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-谷歌地图服务4月18日开始以最大分辨率提供俄罗斯所有军事和战略设施的卫星图像。目前，包括各种洲际弹道导弹发射井、指挥所、秘密试验场等在内的俄战略要地均可以每像素约0.5米的分辨率查看。
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

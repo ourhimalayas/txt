@@ -2,38 +2,39 @@
 ---
 
 
-## 美国正加速加密货币监管的步伐
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2370914/)
+## 支持俄罗斯侵略者，在德国或将面临牢狱之灾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2370963/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-**翻译/编辑：小红帽  **
+**整理/编辑：文泓**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/cryptocurrency-regulation-and-law-enforcement-in-us-during-2021-min-1200x675-1.jpg)图片来源：COINGEEK
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-117.png)图片来源：Newsweek & 雅典娜设计组
 
 
-#### 根据雅虎财经4月18日报道，Shark Tank star和O’s Shares投资顾问公司主席凯文·奥利里（Kevin O’Leary）预测，有一天区块链和加密货币将代表标准普尔500指数的第12个部门，并且“非常有信心”在大规模采用之前实施合理的政府加密货币监管。
+4月18日，据德国之声报道，**在德国多个联邦州，公开展示****“****Z****”****符号、声援俄罗斯侵乌战争被视为非法。**根据德国著名媒体编辑网络（RND）所作的一项调查，目前已有140多起相关诉讼案。
 
-#### “参议院两党委员会和国会提出的政策建议速度从未如此之快 ”凯文·奥利里在雅虎财经直播中说，“我们已经有了卢米斯（Lummis）法案。我们有关于稳定币的哈格蒂（Haggerty）法案和关于稳定币的图米（Toomey）法案。我们有美国总统的行政命令。所有这些都是在六个星期内发生的，大家都在讨论加密货币的未来。”
+根据德国编辑网络对联邦内政、司法部以及联邦各州刑事局所做的一项问讯调查结果，**德国警方和检察机关迄今已承办****140****多个鼓吹俄罗斯入侵乌克兰战争行为案。**其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上印有这一符号。
 
-#### “不同地域的监管机构在发布相关政策的不同阶段都有很多创新，我们在美国已经落后了，”奥利里说。
+调查结果显示，仅在德东地区萨克森·安哈尔特州，自俄军侵入乌克兰起，就记录有至少19起违反《刑法》第140条行为。**根据该条规定，美化、纵容犯罪的行为属于犯罪。**该州国家内政部透露，相关案件中有17起涉及使用“Z”符号。
 
-#### 美国证券交易委员会尚未对加密货币交易所进行监管，但美国证券交易委员会主席加里·根斯勒（Gary Gensler）希望在今年正式确定指导方针。
+汉堡州司法机构也已着手调查17起声援俄罗斯侵略战争案，其中16起涉及使用“Z”符号；北莱茵·威斯特法伦州已知立案37起，其中22起涉及“Z”符号。
 
-#### 同时，美联储发表了一份研究和分析白皮书，呼吁关注加密货币的价格波动、对交易吞吐量的限制和能源足迹的限制，这表明美联储可能倾向于中央银行数字货币或稳定币。                                                                                    
+此外，另有一百多桩破坏财产行为，“Z”符号也在这些案件中扮演了角色。
 
-#### 同时，加密货币的底层技术–区块链的好处被技术专家和金融部门所宣传。
+**在多个联邦州，使用该标志被视为是对俄侵略战争的支持，违反国际法，因而，属于非法。 **
 
-#### 摩根大通董事长兼首席执行官杰米·戴蒙历（Jamie Dimon）向来抨击比特币，但在其最新的年度股东信中，他说：“去中心化金融和区块链是真正的新技术，无论是否经过许可，都可以以公共和私人方式部署。”
-
-资料来源：[Kevin O’Leary on US crypto regulation: ‘We need to catch up with the rest of the world’](https://finance.yahoo.com/news/kevin-o-leary-on-us-crypto-regulation-we-need-to-catch-up-with-the-rest-of-the-world-153530069.html)
+参考链接：[支持俄罗斯侵略者：在德国或被起诉](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
 
 发布：文武全才
 
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
+
 
  
 
