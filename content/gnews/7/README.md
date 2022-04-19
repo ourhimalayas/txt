@@ -2,32 +2,46 @@
 ---
 
 
-## 俄罗斯军队正计划对白俄罗斯进行军事入侵
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2373804/)
+## 日本瑞士领导人会晤：同意继续对俄实施严厉制裁
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2374074/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-19-下午9.08.59.png)图片来源：互联网
-乌克兰军事情报部门获得的文件证明，俄罗斯第 1 装甲集团军正在为入侵和占领白俄罗斯领土做准备。
+撰稿：Gradient Boost
 
-白俄罗斯总统选举造假后，俄罗斯联邦制定了入侵和镇压民众抗议的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-392.jpg)National vector fabric wave flags of Japan and Switzerland isolated on white background. 1 to 2 proportion.
+网络图片
 
-占领白俄罗斯的借口是避免俄罗斯“在欧洲大陆地区与西方的北约成员国发生区域性或大规模战争”。
+瑞士总统伊格纳齐奥·卡西斯周一表示，瑞士已加入国际社会，对俄罗斯入侵乌克兰实施严厉制裁，但这并不意味着它放弃了传统的中立性。
 
-俄罗斯准备对邻国进行军事侵略的证据之一是“在任务区重组第1装甲军的部队和军事部队的计划的传说”。
+日本外务省表示，卡西斯和日本岸田首相在东京的会谈中达成一致意见，认为俄罗斯必须对袭击乌克兰平民负责。
 
-以缩写形式发布。
+岸田在会议的开场白中说，俄罗斯的入侵不仅破坏了欧洲的国际秩序基础，也破坏了亚洲的国际秩序基础。他表示： “现在是国际社会比以往任何时候都更加团结的时候。”
 
-[以PDF格式查看](https://drive.google.com/file/d/1X-DbV-Y4Xliol0p-Kf8LIOmynM8u3Gc4/view)
+兼任外交部长的卡西斯在另一场新闻发布会上表示，瑞士强烈谴责战争，并敦促俄罗斯立即停止入侵。他说，不属于欧盟的瑞士完全支持欧盟对俄罗斯的制裁，并于上周实施了第五轮措施。
+
+日本也迅速加入美国和欧盟的行列，对俄罗斯实施制裁——因为东京担心其入侵对东亚的影响，而中共国目前正在东亚推动自己的领土主张。
+
+日本冻结了数百名俄罗斯个人和团体的资产，并禁止新的投资和贸易，包括出口可用于军事目的的商品。日本还宣布了逐步停止进口俄罗斯煤炭的计划。卡西斯告诉记者，他通过与日本官员的会谈了解了日本当前严酷的安全环境。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[AP News](https://apnews.com/article/russia-ukraine-japan-asia-tokyo-europe-1da36af32fd16513d857143a29124b02)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-19-下午9.13.48.png)
-原文链接：
 
-【1】[俄罗斯军队正计划对白俄罗斯进行军事入侵](https://gur.gov.ua/content/armiia-rosii-planuvala-viiskove-vtorhnennia-v-bilorus.html)
+**更多信息，更多关注
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-* * *
-
-*编辑&发布：长岛开心*
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 
