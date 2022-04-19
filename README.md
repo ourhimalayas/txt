@@ -21,50 +21,50 @@
 ### [樱花深度报道┃中共对人权发起攻势（上）](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联盟工作汇报文字版2022.4.17](/content/gnews/3/README.md)
+### [泽连斯基：﻿加强制裁俄罗斯，打消其使用化学武器](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [联盟工作汇报文字版2022.4.17](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [深圳女医生投诉强制打疫苗遭警方传唤](/content/gnews/4/README.md)
+### [深圳女医生投诉强制打疫苗遭警方传唤](/content/gnews/5/README.md)
  ` 日本東京方舟農場`
 
-### [澳洲联储警告可能提前加息](/content/gnews/5/README.md)
+### [澳洲联储警告可能提前加息](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [MetaMask警告说，iCloud用户可能面临失去资产的危险](/content/gnews/6/README.md)
+### [MetaMask警告说，iCloud用户可能面临失去资产的危险](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国警告：所罗门群岛与中国的协议将影响地区稳定](/content/gnews/7/README.md)
+### [美国警告：所罗门群岛与中国的协议将影响地区稳定](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [﻿新中国联邦前线采访比利时总理](/content/gnews/8/README.md)
+### [﻿新中国联邦前线采访比利时总理](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [95%新冠患者的生命可以被拯救](/content/gnews/9/README.md)
+### [95%新冠患者的生命可以被拯救](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/04/13 拜登指责普京在乌克兰实施种族灭绝](/content/gnews/10/README.md)
+### [2022/04/13 拜登指责普京在乌克兰实施种族灭绝](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/11/README.md)
+### [新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针](/content/gnews/12/README.md)
  ` 關注組`
 
-### [郭文贵盖特音频2022.04.18](/content/gnews/12/README.md)
+### [郭文贵盖特音频2022.04.18](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [格雷厄姆参议员回应中共战狼陈卫华辱骂](/content/gnews/13/README.md)
+### [格雷厄姆参议员回应中共战狼陈卫华辱骂](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“田惠宇”（二）](/content/gnews/14/README.md)
+### [文•贵天成——文贵先生谈“田惠宇”（二）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|新中国联邦和法治基金乌克兰国际人道救援行动仍在继续](/content/gnews/15/README.md)
+### [视频|新中国联邦和法治基金乌克兰国际人道救援行动仍在继续](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [泽连斯基：乌克兰可能在几周内成为欧盟候选国](/content/gnews/16/README.md)
+### [泽连斯基：乌克兰可能在几周内成为欧盟候选国](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
-
-### [视频|上海名人被中共折磨致死](/content/gnews/17/README.md)
- ` MOSVIDEO`
 
 ### [北京卫健委主任被抓 科兴疫苗高管突亡 中共的替罪羊与背锅侠](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
