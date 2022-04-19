@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 11:57 PM (UTC)`
+
+4/18/2022 Miles Guo’s GETTR: The removal of the restrictions in Shanghai on last Friday predicted by the insiders at the top level of the CCP did not happen. Only I understand the rogue nature of the CCP. “Xi the Sun” simply wants to make the people in Shanghai suffer, and Xi was alerted after he knew Han Zheng had secretly gone back to Shanghai by train.<br/><br/>4/18/2022 文贵盖特：CCP高层的内部战友预计周五上海解封，却没有发生；只有七哥了解中共这个流氓组织的本质；习太阳想折腾上海，韩正偷坐火车回上海看望江朱，引习警觉<br/>
+![img](https://media.gettr.com/group39/getter/2022/04/18/23/e4b03bea-6091-83c3-4d72-09eb5da5306c/out.jpg)
+
+---
+
 `@miles 4/18/2022 11:51 PM (UTC)`
 
 4/18/2022 China Merchants Bank issued an announcement to remove Tian Huiyu’s duty as President and Director, which has verified the revelation I made on November 30, 2019. I said that Tian Huiyu, Tian Guoli, Zhou Liang, and Kang Dian would all be arrested, which would be the result of the fight between Xi Jinping and Wang Qishan. The Chinese Communist Party is just like a devil's meat grinder!<br/><br/> 4/18/2022 招商银行发布公告称免去田惠宇行长、董事职务，这验证了文贵在2019年11月30日的爆料 - 田惠宇、田国立、周亮、康典都会被抓，这是习王斗争的结果，中共就是一台魔鬼的绞肉机！<br/>
@@ -147,13 +154,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group13/origin/2022/04/18/09/1fb79489-7bbc-e42d-5bb5-b6b318d41893/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 6:10 AM (UTC)`
-
-2022.04.17  新中国联邦 | 喜健康   唐氏综合症在北美的医疗和教育
-![img](https://media.gettr.com/group34/origin/2022/04/18/06/de179296-0d05-5bf6-7761-bd58d861dc94/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
