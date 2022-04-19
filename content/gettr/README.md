@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 5:21 PM (UTC)`
+
+4.19 美国之音采访郭文贵先生断播事件五周年纪念<br/>5th Anniversary of 4/19 VOA live interview with Mr. Miles Guo cut off incident <br/>
+![img](https://media.gettr.com/group33/getter/2022/04/19/17/6703acf3-62bf-be9e-81a2-a0ab8ae086ad/out.jpg)
+
+---
+
 `@miles 4/19/2022 4:09 PM (UTC)`
 
 【419 5th Anniversary】Mr. Miles Guo expresses that all the whistleblowing that failed to end 5 years ago on 419 will gradually come to light in the future: whether it is Wang Qishan's money, Liu Chengjie's dad, and the relationship between the CCP and Wall Street.<br/><br/>【419五周年】郭文贵先生表示，5年前419未能结束的爆料未来都会逐渐曝光：无论是王岐山的钱、刘呈杰的爹，以及中共同华尔街的关系。<br/><br/>
@@ -146,13 +153,6 @@
 
 【Ukraine Rescue】04/17/2022  A Russian tells Nicole that his family and friends were in Russia opposing Putin's invasion of Ukraine and later fled to Poland for fear of danger. Russia is full of political propaganda, and Putin is following the CCP's example of "stability overrides everything." Putin cannot represent the Russian people, just as the CCP does not represent the Chinese. He thanks the NFSC for eliminating the CCP and removing a strong supporter of Putin for the Russian people.<br/><br/>【乌克兰救援】04/17/2022  一位俄罗斯人告诉妮可，他的家人和朋友在俄罗斯境内反对普京入侵乌克兰，后来因危险一起逃到波兰。俄罗斯都是虚假的政治宣传，普京在效仿中共“稳定压倒一切”。普京不能代表俄罗斯人民，正如中共不代表中国人。他感谢新中国联邦人灭共，为俄罗斯人民消除普京的强大支持者。<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/19/00/f21fe6be-0686-d7c4-8f20-030ae4a31fa3/out.jpg)
-
----
-
-`@miles 4/19/2022 12:46 AM (UTC)`
-
-2022.04.18 晚  新中国联邦 | 新闻   回顾419断播事件的重要意义；乌克兰救援感动了欧洲某国国防高官
-![img](https://media.gettr.com/group46/origin/2022/04/19/00/c770ecaa-7b90-04c6-59b9-ab6dbe06f116/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

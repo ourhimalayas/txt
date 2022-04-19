@@ -2,32 +2,31 @@
 ---
 
 
-## 美国超算实验室提前终止与中共的技术合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375344/)
+## 有声|欧洲某国国防部官员对新中国联邦的救援行动表示感谢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2375374/)
 
-作者：香草山农场-Wenfei
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月7日，据外媒消息披露，德州农工大学（TAMU）终止了一项与中共国家科研机构的超算技术共享合作计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/merlin_139238940_c27903b8-7369-45a7-a60b-a076799e6b0b-master1050.jpeg)纽约时报
-2018年，德克萨斯农工大学、科罗拉多州国家大气研究中心 和青岛海洋科学与技术试点国家实验室 合作创立“高分辨率地球系统预测国际实验室”。该实验室旨在三个机构之间共享超级计算资源和技术专长，运行复杂的气候建模模拟，提供准确的气候预测。这一合作原定于 2023 年结束，但德克萨斯农工大学因担心技术信息泄漏，已于2021年12月提前终止合作。目前该合作实验室的资金只能运行至2022年5月。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+4月17日，根据郭文贵先生临时直播信息 ，受欧洲某国国防部重要官员委托，通过文贵先生向在梅迪卡参加救援的新中国联邦人致谢，并表示日后，他会亲自看望每一位在梅迪卡前线参加救援的战友。
 
-德州农工大学的一位发言人表示，中共背景的青岛海洋科学与技术试点国家实验室违约，拒绝支付11个月合计 200 万美元的合作款项。
+大约一至两周前，欧洲某国国防部重要官员以普通人身份参观了梅迪卡新中国联邦营地帐篷，受到了战友们专业而礼貌地接待，并享用了著名的战地咖啡。新中国联邦人的素质与尊重深深感动了他。
 
-德州农工大学首席研究安全官凯文·加马切( Kevin Gamache)表示，该计划违背了德州农工大学的研究安全准则。该校系统地评估其与中国和俄罗斯的合作伙伴关系，就可能造成经济或军事利益被外国窃取的项目进行逐个审核并依次做出决定。
+他表示，新中国联邦人救援了很多俄乌战争中关键人物的家属，与他们合作的乌克兰军方的某个重要人的家人就是被新中国联邦拯救的。
 
-2022年2 月 8 日，参议员 Marco Rubio 致信包括德州农工大学在内的 22 所美国大学，呼吁他们终止与部分外国大学的合作伙伴关系。这些外国大学“诱捕”学者参与分享有价值信息的计划。中共军方通过与学者建立伙伴关系以窃取美国大学的知识产权。青岛海洋大学与中共海军深度合作，并成为一所中共国家级实验室。
+文字版原文：[欧洲某国国防部官员对新中国联邦的救援行动表示感谢](https://gnews.org/zh-hans/2369275/)
 
-德州农工大学在致卢比奥的公开信中，称其安全办公室与联邦调查局 (FBI) 进行严格、持续审查和合作，发现并消除了 200 余起涉及“外国人才招聘”的安全威胁事件。德州农工大学与青岛海洋大学的合作关系将不复存在。
+音频处理：Fei797
+发稿：Fei797
 
-参考链接：[Texas A&M Shut Down a Major Climate Change Modeling Center in February After a ‘Default’ by Its Chinese Partner](https://insideclimatenews.org/news/07042022/china-texas-am-climate-model-marco-rubio/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-编辑：文恩
-总编：文恩
-审核：文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,61 +2,40 @@
 ---
 
 
-## 传奇的419
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2373023/)
+## 中共威胁老百姓“小心你的嘴或面临惩罚”
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2373606/)
 
-作者：香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2329.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2348.png)
 
-2017年的419七哥遭遇了断播，
-![](https://assets.gnews.org/wp-content/uploads/2022/04/681F28D5-E913-4426-96D9-7C47D29DCF8D.jpeg)
-爆料革命却因为断播这一刻走上了世界的舞台，
-这是个历史性的一刻，
-是中共合一国之力打压七哥的铁证，
-也是爆料革命登上闪耀光芒的重要时刻，
-更是掀起灭共怒潮的起点。
-如今美国国会已关注直播美国之音中断事件，
-龚小夏、东方、杨晨被休假。
- 2017年419直播专访文贵先生3小时的直播是美国之音批准的，
-并非其声明的原定1小时，
-此次中断事件暴露出中共对美国政府机构的渗透。
- 中共外交部外媒处以郭文贵被大连以涉嫌行贿批捕，
-那么巧，明天要直播了，
-今天来一个莫须有……
-这是针对这次采访而采取的批捕行动，
-是中共驻美使馆致电美国之音纪锋，
-要求美国之音不能直播专访郭文贵。
- 纪锋将中共的意见报告给张晶、龚小夏等人。
-妄图阻止七哥的直播专访，
-无耻的张晶又要求美国之音缩短节目，
-以至于三小时的直播被篡改。
-龚小夏 更是精心准备采访想对七哥实行钓鱼行动，
-以了解郭先生手上到底有多少中共高层尤其是 王岐山 的大料，
-不料反被郭先生钓鱼，
-成了爆料王岐山的绝好机会，弄巧成拙的龚小夏团队制造了震惊中外的“419断播门”。
-变相的推动了爆料革命前进的步伐，
-遇难呈祥的爆料革命几年来一路捷报频传，
-在七哥的引领下共创新中国联邦，
-几年来队伍日益扩大，英才齐聚豪气冲天，
-出良药救世人扬善不问结果，
-为世界提前预警减少灾难，
-乌克兰救援独当一面，
-大扬正道主义之善勇，
-我们是热爱和平的新中国联邦，
-我们是消灭中共的新中国联邦，
-我们的启发站就是419。
-消灭中共是正义的必须，
-每一年的419都叫共产党以滑车般的速度飞速冲向死亡之谷，
-2022年的419就是启动中共末日的倒计时
-![](https://assets.gnews.org/wp-content/uploads/2022/04/A0B7AD30-B8CE-4821-9FFF-DF3BF68D811A.jpeg)
-**更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+（图片来自原文）
 
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
+新闻报道或社交媒体本应起到传播的作用，但中国共产党（CCP）却千方百计阻止疾病和真相信息的传播。
+
+当中共国百姓所住的地区不幸被封锁时，就会收到有一些令人毛骨悚然的警告标志或“指导方针”：
+
+- 不要在网上发布与流行病相关的消息。
+- 未经许可不得进出北京。
+- 间谍就在我们中间；泄漏可能会在瞬间发生。注意你的言语，否则面临惩罚。
+
+
+在一段来自上海的来电采访，让我们了解中共控制的中共国现在的情况。
+
+上海来电者：我很荣幸住在一个有很多外籍人士的社区。我们付给拥有“非常特殊的通行证“的人一大笔钱来给我们送一点水果和蔬菜。实际可用的东西非常非常少。
+
+戴夫（Dave）：你们是不是可能还没有准备好。政府有没有通知准备？
+
+上海来电者：猝不及防。只给了我们一天时间就完全封锁了。商店在封锁之前就关闭了，所以即使一些城市开始重新开放，杂货店也没有存货，因为已经超过两周没有发货了。
+
+同时，我也有两个孩子要上网课。更令人震惊的是，当孩子出现新冠病毒检测呈阳性时，孩子会被从家里带走，在没有父母或监护人的情况下，被送进隔离营。
+
+请观看英文视频，了解更多关于中国人在中共政府手中面临着令人心碎的状况。在视频中，出于显而易见的原因，保护来电者，喜剧演员戴夫·兰道（Dave Landau）[采访的上海来电者由史蒂文·克劳德（Steven Crowder）代替，让我们了解现在中共国的情况](https://youtu.be/7tw4J-CLEAQ)。
+
+新闻来源链接：[https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1](https://www.theblaze.com/shows/louder-with-crowder/ready-watch-your-own-mouth-or-face-punishment-ccp-threatens-citizens-as-china-remains-locked-down?rebelltitem=1#rebelltitem1)
+
+本文作者：Rebecca (一切心皆不可得！) 
+上传排版：Hong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
