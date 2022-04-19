@@ -2,57 +2,34 @@
 ---
 
 
-## 以岭药业深陷泥潭，中共辟谣反遭质疑
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2371546/)
+## 格雷厄姆参议员回应中共战狼陈卫华辱骂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372032/)
 
-作者：日本方舟农场 – Andy5
+#### 【雅典娜观察】和您一起洞察世界
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+翻译/编辑：文泓
 
-
-当地时间4月13日，中共一社交平台发表要求证监会严查以岭药业，并查清“连花清瘟胶囊”是否是WHO推荐药物一文后，以岭药业股票大跌10%。中共连续两次辟谣称，从未宣传“连花清瘟胶囊”是WHO推荐药物，要诉诸法律捍卫权力。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-234416.jpg)图片来源：微博
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2303.png)图片来源：Stars and Stripes & 雅典娜设计组
 
 
-自中共病毒疫情爆发以来，中共在公开发布的病毒诊疗方案中，“连花清瘟胶囊”一直都被作为“推荐中成药”。中共喉舌媒体【新华社】曾在2021年3月发文称，“连花清瘟胶囊”在抗疫中发挥的作用得到国际社会的赞誉，并引用世界卫生组织对中共抗疫成绩的赞语给“连花清瘟胶囊”站台。
+4月14日，由共和党参议员林赛·格雷厄姆率领美国国会代表团访台，中共官媒气急败坏进行谩骂，格雷厄姆对此给与了回应。
 
-在上周以岭药业股票大跌之后，中共发动社交平台大V为以岭药业发声，连所谓的数码博主都夸赞“连花清瘟胶囊”的效果。这种如电视购物般的虚假宣传，反而引发网友群嘲。有网友扒出“连花清瘟从胶囊”从研发到生产仅仅用了15天，远短于正常药物的研发周期。尽管“连花清瘟胶囊”于2015年在美国FDA的批准下开展了二期临床研究，然而6年多时间过去了，依旧没有临床试验结果和报告，但是却从2020年4月起，成为了中共所谓的“抗疫利器”。
+中共喉舌《人民日报》欧盟分社社长陈卫华在推特上对格雷厄姆先生进行人身攻击，辱骂他是一个“小丑”，说他仍然在美国政治中处于“聚光灯下”，这“令人费解”。
 
-观察人士指出，在没有数据支撑与报告佐证的情况下，中共用谎言大肆渲染、鼓吹“连花清瘟胶囊”的抗疫功效，瞒骗百姓，直到如今被公开质疑、戳穿底裤，表明中共党内各方势力的内斗相当惨烈，围绕着疫情，利益争夺已经不计后果。
+陈卫华以挑衅而尖刻的语言闻名，“战狼”特征明显。例如他曾谩骂田纳西州联邦参议员玛莎‧布莱克本为“最种族主义和最无知的美国参议员”。他的推特账户曾被暂停，因为他在推文中暗示，香港示威如果发生在美国的话，警察会开枪镇压。推特指责他“煽动暴力”。
 
-新闻链接：
+对此，格雷厄姆先生发推回应，“说起小丑和笑话……你听过中国共产党说过，中共国与中共病毒疫情无关的笑话吗？或者说维吾尔人都是在公费度假，并没有被关进集中营吧？”
+格雷厄姆说，称我为“小丑”是一种“高度赞扬”，因为这来自“中共的喉舌”。
+在台湾记者会上，格雷厄姆先生笑称，在促进美国对台支持方面，习近平做出的贡献比访问团成员还多，因为中共的恶行恶状反而促进美台关系的进一步提升。
 
-1.[https://finance.sina.com.cn/chanjing/cyxw/2022-04-17/doc-imcwipii4751922.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-17/doc-imcwipii4751922.shtml)
+参考链接：[面对中共喉舌战狼谩骂 格雷厄姆幽默回应](https://www.epochtimes.com/gb/22/4/18/n13714715.htm)
 
-2.[https://finance.sina.com.cn/stock/observe/2022-04-15/doc-imcwiwst2013356.shtml](https://finance.sina.com.cn/stock/observe/2022-04-15/doc-imcwiwst2013356.shtml)
-
-3.[https://www.gettr.com/post/p15phsh5ac8](https://www.gettr.com/post/p15phsh5ac8)
-
-4.[https://finance.sina.com.cn/stock/s/2022-04-16/doc-imcwiwst2191180.shtml](https://finance.sina.com.cn/stock/s/2022-04-16/doc-imcwiwst2191180.shtml)
-
-5. [http://www.xinhuanet.com/health/2021-03/07/c\_1127179501.htm](http://www.xinhuanet.com/health/2021-03/07/c_1127179501.htm)
-
-6. [http://www.xinhuanet.com/health/2020-08/20/c\_1126391671.htm](http://www.xinhuanet.com/health/2020-08/20/c_1126391671.htm)
-
-7.[http://www.xinhuanet.com/health/20220402/45eb847a6f7843559d40a8c49fd9faec/c.html](http://www.xinhuanet.com/health/20220402/45eb847a6f7843559d40a8c49fd9faec/c.html)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
-
-编辑/校对/发稿：H.B
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

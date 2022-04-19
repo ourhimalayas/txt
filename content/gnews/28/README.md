@@ -2,46 +2,38 @@
 ---
 
 
-## 中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371805/)
+## 美国警告：所罗门群岛与中国的协议将影响地区稳定
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372249/)
 
-撰稿：东京樱花团/asket
+翻译：文扬
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2292.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.tv9gujarati.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fus-debt-1.jpg&amp;imgrefurl=https%3A%2F%2Fpipanews.com%2Famerica-the-worlds-most-powerful-country-is-mired-in-debt-10-times-indias-gdp-america-deb)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2308.png)图片来源：Nikkei Asia & 雅典娜设计组
 
-让我们问一下，增加的33万亿美元的债务和增加的9万亿美元的国内生产总值的 “好处”：对谁有利？
 
-我一直在思考，要让我们对大数字有一个清醒的认识是多么困难。技术分析师Sven Henrich（@NorthmanTrader）最近提供了一个方法来掌握埃隆-马斯克的巨大财富：如何成为像埃隆-马斯克一样的财富？很简单。每天获得100万美元的报酬。连续750年，你就可以了。
+4月19日，美国警告说，所罗门群岛和中国拟议的安全条约可能会破坏这个太平洋岛国的稳定，并为该地区树立一个“令人担忧的先例”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2294.png)[图片来源](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
+国家安全委员会印太地区协调员库尔特·坎贝尔先生即将团出访所罗门群岛，代表团还将访问斐济和巴布亚新几内亚。
 
-我们如何才能掌握自2010年以来我们增加的33万亿美元的总债务？我们可以首先注意到，在大约十年内，债务增加了60%，而美国的人口却增加了7%。
+白宫发言人普莱斯表示，尽管所罗门群岛政府对此发表了评论，但**安全协议客观上为中共军队部署到所罗门群岛敞开了大门。签署协议可能会加剧本地区的不稳定，并将在广泛的太平洋岛屿地区树立一个令人担忧的先例。**
 
-我们比12年前的情况好了60%吗？我们如何衡量 “更好的生活”？国内生产总值也上升了60%，但我们是效率提高了60%还是生产力提高了60%？我们工资的购买力上升了60%吗？我们能用一天的收入多买60%的东西吗？
+今年美国将在霍尼亚拉重新设立大使馆，以对抗中共国在该地区的影响。
 
-我认为，对所有这些问题说 “不 “是公平的。我们已经增加了33万亿美元的债务。
+[美国太平洋舰队司令塞缪尔·帕帕罗上将批评中国和所罗门群岛之间的潜在安全协议，称其为一项“秘密”安排，令美国及其合作伙伴感到担忧。](https://www.abc.net.au/news/2022-04-05/us-admiral-lashes-solomon-islands-security-pact-china/100967110)
 
-如果说3.3亿美国人中的每一个人都有10万美元的债务，这是否能解释说明这33万亿美元？我们每个人都因为借了33万亿美元而增加了10万美元的收入吗？好吧，有几个人已经受益了。前400名最富有的人看到他们的财富飙升了数万亿美元，从2010年约占国内生产总值的8%–从1985年的微不足道的2.5%上升到约占国内生产总值的18%，现在是24万亿美元。这相当于4.3万亿美元。
+所罗门群岛总理马纳西·索加瓦雷坚称，他没有计划允许中国在距离昆士兰海岸不到2000公里的该国建立军事基地。
 
-我认为可以说，超全球化和超金融化已经产生了超财富和超不平等。
+然而，一份泄露的文件草案显示，中共政府可能被允许在那里驻扎海军舰艇和国防人员，以保护数十亿美元的中国基础设施投资。
 
-说到大数字，让我们看看底层的50%，大约6500万个家庭。如下图所示，这6500万个家庭拥有40多万亿美元的美国股票市场的0.6%。这还不到1%，或大约2400亿美元。在6500万个家庭中划分，这相当于每个家庭几千美元。
+原文链接： [China, Solomon Islands pact would set ‘concerning precedent’, United States warns – ABC News](https://www.abc.net.au/news/2022-04-19/china-solomon-islands-pact-create-precedent-america-warns/100998288)
+发布：tianzhihuan
 
-底层50%家庭的股票所有权可能遵循与所有股票所有权相同的幂律分布曲线：这6500万家庭中的前1%拥有大部分的股票，除了一小部分被前5%的人拥有。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2296.png)[图片来源](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
-
-因此，现实情况是，绝大多数美国家庭在辉煌的美国股市的几十万亿，或债券市场的几十万亿，或私人持有的企业和商业/租赁房地产的几万亿中根本没有利益。
-
-因此，让我们问一下，增加的33万亿美元的债务和增加的9万亿美元的GDP的好处是什么：对谁有利？我认为可以这样说，利益是按照幂律分布的，其中前0.01%的人获得了大部分收益，前0.1%的人获得了第二大块收益，前1%的人获得了大部分剩余的收益，其余前5%的人（从1%到5%）获得了所有的收益，只有少数碎片落在前6%到10%的人身上。前10%至20%的人留下了一些碎屑，而在这以下的人，只留下了一些灰尘。
-
-我完全不确定是否有任何方法可以真正掌握超额财富和超额不平等或其后果。我们的公平感是很难量化的，但这并不意味着它不存在。在某些时候，合理化和分散注意力的压力锅会炸开，厨房将变得混乱不堪。
-
-信息来源：** **[**A Couple Of Thoughts On Big Numbers**](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

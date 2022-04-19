@@ -2,73 +2,57 @@
 ---
 
 
-## 与普京的会谈毫无进展 意大利总理表示这是“浪费时间”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2371171/)
+## 以岭药业深陷泥潭，中共辟谣反遭质疑
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2371546/)
 
-翻译：噜噜咪
+作者：日本方舟农场 – Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+当地时间4月13日，中共一社交平台发表要求证监会严查以岭药业，并查清“连花清瘟胶囊”是否是WHO推荐药物一文后，以岭药业股票大跌10%。中共连续两次辟谣称，从未宣传“连花清瘟胶囊”是WHO推荐药物，要诉诸法律捍卫权力。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-18-234416.jpg)图片来源：微博
+
+
+自中共病毒疫情爆发以来，中共在公开发布的病毒诊疗方案中，“连花清瘟胶囊”一直都被作为“推荐中成药”。中共喉舌媒体【新华社】曾在2021年3月发文称，“连花清瘟胶囊”在抗疫中发挥的作用得到国际社会的赞誉，并引用世界卫生组织对中共抗疫成绩的赞语给“连花清瘟胶囊”站台。
+
+在上周以岭药业股票大跌之后，中共发动社交平台大V为以岭药业发声，连所谓的数码博主都夸赞“连花清瘟胶囊”的效果。这种如电视购物般的虚假宣传，反而引发网友群嘲。有网友扒出“连花清瘟从胶囊”从研发到生产仅仅用了15天，远短于正常药物的研发周期。尽管“连花清瘟胶囊”于2015年在美国FDA的批准下开展了二期临床研究，然而6年多时间过去了，依旧没有临床试验结果和报告，但是却从2020年4月起，成为了中共所谓的“抗疫利器”。
+
+观察人士指出，在没有数据支撑与报告佐证的情况下，中共用谎言大肆渲染、鼓吹“连花清瘟胶囊”的抗疫功效，瞒骗百姓，直到如今被公开质疑、戳穿底裤，表明中共党内各方势力的内斗相当惨烈，围绕着疫情，利益争夺已经不计后果。
+
+新闻链接：
+
+1.[https://finance.sina.com.cn/chanjing/cyxw/2022-04-17/doc-imcwipii4751922.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-17/doc-imcwipii4751922.shtml)
+
+2.[https://finance.sina.com.cn/stock/observe/2022-04-15/doc-imcwiwst2013356.shtml](https://finance.sina.com.cn/stock/observe/2022-04-15/doc-imcwiwst2013356.shtml)
+
+3.[https://www.gettr.com/post/p15phsh5ac8](https://www.gettr.com/post/p15phsh5ac8)
+
+4.[https://finance.sina.com.cn/stock/s/2022-04-16/doc-imcwiwst2191180.shtml](https://finance.sina.com.cn/stock/s/2022-04-16/doc-imcwiwst2191180.shtml)
+
+5. [http://www.xinhuanet.com/health/2021-03/07/c\_1127179501.htm](http://www.xinhuanet.com/health/2021-03/07/c_1127179501.htm)
+
+6. [http://www.xinhuanet.com/health/2020-08/20/c\_1126391671.htm](http://www.xinhuanet.com/health/2020-08/20/c_1126391671.htm)
+
+7.[http://www.xinhuanet.com/health/20220402/45eb847a6f7843559d40a8c49fd9faec/c.html](http://www.xinhuanet.com/health/20220402/45eb847a6f7843559d40a8c49fd9faec/c.html)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-381.jpg)2022年2月24日，俄罗斯地面部队入侵乌克兰后，意大利总理马里奥·德拉吉在罗马的奇吉宫就乌克兰局势发表演讲后离开。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
 
-意大利总理马里奥·德拉吉表示，到目前为止，与普京的会谈还没有取得成效。
-
-“我开始认为，那些人说‘跟他谈也没用，只是浪费时间’是对的，”德拉吉告诉意大利报《晚报》。
-
-德拉吉说，他一直觉得目前担任欧盟轮值主席国的法国总统埃马纽埃尔·马克龙“尝试一切可能的对话途径是正确的。”
-
-这位意大利领导人说：“但我的印象是，战争的恐怖与屠杀，以及他们对儿童和妇女的所作所为，完全跟他们所发表的言论和呼吁南辕北辙。”
-
-“到目前为止，普京的目标不是寻求和平，而是试图消灭乌克兰的抵抗力量，占领该国并将其委托给一个友好政府，”德拉吉继续说道。
-
-德拉吉在最近几天与普京谈到了实现和平的问题。
-
-我问他：“你什么时候会见（乌克兰总统）泽伦斯基？只有你们两个能解开这个结”。他回答说：“现在不是时候”。我坚持说：“那你做停火决定”。一样的答案：“不行，现在不是时候。”
-
-与冲突开始时的许多人一样，德拉吉曾认为俄罗斯人有可能迅速获胜。
-
-德拉吉说：“这并没有发生：胜利没有到来，我们不知道它是否会到来。乌克兰的抵抗很英勇。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-155.jpg)在最近被俄罗斯军队占领的乌克兰布查镇发现乱葬岗之后德拉吉发表了该评论
-
-“等待我们的是一场抵抗的战争，长期的暴力与破坏将持续下去。没有迹象表明乌克兰人民可以接受俄罗斯的占领”。
-
-说到布查的暴行，那里的平民被遗弃在街头，德拉吉对给俄罗斯军队在那里的行为贴上标签持谨慎态度——就像西班牙首相等其他欧洲领导人一样，他们认为乌克兰可能存在“种族灭绝”。
-
-“如果不是战争罪，我们该把在布查的恐怖行为称为什么？但我明白，像‘种族灭绝’或‘战争罪’这样的术语有确切的法律含义，”他说。
-
-“将有一种方法和时间来验证哪些词语最适合俄罗斯军队的非人道行为，”德拉吉补充说。
-
-德拉吉的评论是在意大利表示，将从周一开始重新开放其在基辅的乌克兰大使馆之后发表的。
-
-乌克兰战争引发了西方国家推动对莫斯科的制裁，包括大幅削减俄罗斯天然气采购的举措。
-
-意大利政府已经采取措施减少对俄罗斯的依赖，例如与阿尔及利亚签署天然气协议。
-
-德拉吉说，虽然对俄罗斯的经济制裁“对削弱侵略者至关重要”，但在短期内不一定能阻止战争。
-
-尽管如此，西方可以通过提供武器直接帮助乌克兰。
-
-“我们需要直接帮助乌克兰人，这就是我们正在做的事情。德拉吉说：“不这样做就等于告诉他们：投降，接受被奴役并屈服——这与我们欧洲的团结价值观相悖。
-
-新闻来源：[‘A waste of time’: Talks with Putin go nowhere, says Italy’s PM](https://www.thelocal.it/20220417/a-waste-of-time-talks-with-putin-go-nowhere-says-italys-pm/)
-
-* * *
-
-素材:peacelv
-审核：文乐   
-校对：信心满满
-发布：五通庙
+编辑/校对/发稿：H.B
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 
