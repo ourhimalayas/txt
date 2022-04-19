@@ -2,28 +2,28 @@
 ---
 
 
-## 被视为乌克兰“避难所”的利沃夫遭导弹袭击
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2370552/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2370788/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-106.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-18.png)
 
-4月18日，被视为乌克兰的避难所”——乌克兰西部城市利沃夫（Lviv）今日早晨遭5枚导弹袭击，一些民用设施被摧毁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-31.jpg)（图片来自Yuriy Dyachyshyn/AFP via Getty Images）
+校对：Stay文苑
 
-据《大纪元》报道，利沃夫市长萨多维在社交媒体上表示，有5枚导弹袭击了该市，紧急服务部门正在应对这些爆炸，随后将公布更多细节。
+编辑：Stay文苑
 
-另据国际记者们分享的画面，周一早晨该城的天际线上升起了浓烟。福克斯新闻的记者詹姆斯·莱文森（James Levinson）表示，导弹袭击了利沃夫火车站，目前还未确定伤亡人数，但可听到空袭警报和救护车的声音。
+发稿：Stay文苑
 
-据了解，与乌克兰其它地区相比，靠近波兰边境的利沃夫所受的影响较小，被认为是一个相对安全的避难所，也是国际人道物资的转运枢纽。
+新闻：[https://gettr.com/post/p15z1t89c09](https://gettr.com/post/p15z1t89c09)
+访谈：[https://gettr.com/post/p15yomzca2d](https://gettr.com/post/p15yomzca2d)
 
-此外，除了利沃夫，俄军也对基辅周边和其它地区进行了空袭，目的可能是为了报复上周乌克兰击沉其黑海旗舰“莫斯科号”（Moskva），并在东部全面开战前，进一步削弱乌克兰的军事能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-2.jpg)
 
-参考链接：
-[https://www.epochtimes.com/b5/22/4/18/n13714381.htm](https://www.epochtimes.com/b5/22/4/18/n13714381.htm)
-
-总编：青城道姑
-校对发布：Linda
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

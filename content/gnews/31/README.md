@@ -2,32 +2,41 @@
 ---
 
 
-## 樱花时政┃奥地利总理： 普京相信他正在赢得这场战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2369807/)
+## 乌东部战事告急 美国加紧培训乌使用远程重型榴弹炮
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2369965/)
 
-撰稿：东京樱花团/asket
+翻译：冰糖葫芦喵
 
-奥地利总理卡尔·内哈默在接受美国全国广播公司的“会见新闻界”采访时说，俄罗斯入侵乌克兰近两个月后，俄罗斯总统“相信他正在赢得这场战争”。内哈默说，俄罗斯领导人告诉他，战争是“必要的”，尽管西方制裁已经产生了影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.jpg)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.dw.com%2Fen%2Faustrian-chancellor-concludes-tough-talks-with-putin-in-moscow%2Fa-61433565&amp;psig=AOvVaw18W5hXiP0dYXkOzudpCqKt&amp;ust=1650380384930000&amp;source=images&amp;cd=vfe&amp;ved=0CAoQjhxqFwoTCKCVoaDwnfcCFQAAAAAdAAAAABAD)
-“（普京）认为战争对于俄罗斯联邦的安全保障是必要的，”内哈默说，“他不相信国际社会，他指责乌克兰人在顿巴斯地区的种族灭绝行为。”
+编辑与校对：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《路透社》华盛顿4月18日报道，**周一，美国国防部一位高级官员表示，美国军方预计，将在未来几天开始训练乌克兰教练员如何使用远距离重型榴弹炮和雷达等新一批武器，然后让教练员指导乌克兰境内的军人**。美国此前曾训练乌克兰军队使用弹簧刀无人机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/东部告急1-e1650326338826.jpg)在乌克兰克尔森地区与被俄罗斯吞并的克里米亚边境附近，乌克兰军人在炮兵和防空演习中使用2A65 Msta-B榴弹炮。（图片来源：路透社）
+消息称，**俄罗斯军队周一沿着已经乌克兰东部的大部分地区发起新的攻势，“顿巴斯之战”现已开始。**此前，**俄罗斯一直**在利用从乌克兰北部和邻国白俄罗斯撤出的军队，**在乌克兰东部重新集结，集中力量攻打顿巴斯地区。**
 
-“所以他现在在他的世界里，但我认为他知道现在乌克兰发生了什么。”
+据报道，此前，为了对抗俄罗斯未来对乌克兰东部发动更大范围的攻击，**美国政府提供了另外8亿美元的军事援助， 并且将援助扩大到重型火炮。**
 
-内哈默尔补充说，普京用德语告诉他，“战争早点结束比晚点结束好”，这使这位奥地利领导人相信俄罗斯总统“完全知道现在发生了什么”。
+到目前为止，**作为新援助计划的一部分，美国已经派出了四架飞机运送武器。一位不愿透露姓名的官员表示，榴弹炮训练将在乌克兰境外进行。**
 
-这位奥地利总理是入侵开始以来第一位与普京坐下来的西方领导人，因为他的国家与俄罗斯有着传统的密切关系，他强调有必要就所谓的战争罪行和在乌克兰建立人道主义走廊的必要性与普京对峙。内哈默尔此前访问了基辅，在那里他会见了乌克兰总统沃洛季米尔·泽伦斯基。
+乌克兰说，**俄罗斯星期一的导弹袭击在利沃夫造成7人死亡，这是该城市第一次平民被杀。**坚守在马里乌波尔的乌克兰军队指挥官向教皇求助。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/UkraineLviv.jpg)4月18日，在乌克兰利沃夫，消防队员正在扑灭被俄罗斯导弹击中的民用建筑的大火。（图片来源：盖蒂图片社)
+**美国国防部官员说，俄罗斯似乎是在瞄准利沃夫和北部首都基辅的军事目标。**由于俄罗斯最近几天似乎向乌克兰派遣了增援部队，马里乌波尔仍是被攻击的目标。
 
-内哈默尔还在“会见新闻界”节目中说，他不相信普京会使用核武器，并补充说俄罗斯领导人“知道这种武器的威胁”。
+这名官员还表示，在乌克兰南部和东部大约有76个俄罗斯营战术小组，最近几天又增加了约11个，至87个战术小组。
 
-虽然奥地利不是北约成员，但作为欧盟成员，它支持对俄罗斯的制裁。奥地利表示不希望加入北约，与芬兰和瑞典等其他目前中立的国家不同。
+周一，乌克兰安全委员会秘书丹尼洛夫在电视讲话中表示，**俄罗斯军队今天早上开始试图突破我们的防线，几乎贯穿了顿涅茨克州、卢甘斯克州和哈尔科夫地区的整个前线。**
 
-信息来源：[**Austrian Chancellor: Putin “Believes He Is Winning The War”**](https://www.zerohedge.com/military/austrian-chancellor-putin-believes-he-winning-war)
+新闻来源链接：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[U.S. to start training Ukrainians on howitzers in coming days -official | Reuters](https://www.reuters.com/world/us-set-start-training-ukrainians-howitzers-coming-days-official-2022-04-18/)
 
+[Ukraine says ‘Battle of Donbas’ has begun, Russia pushing in east | Reuters](https://www.reuters.com/business/aerospace-defense/ukraine-says-battle-donbas-has-begun-russia-pushing-east-2022-04-18/)
 
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

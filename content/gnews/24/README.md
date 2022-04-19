@@ -2,14 +2,8 @@
 ---
 
 
-## 日本拟完善法律设置准难民制度 推进接收乌克兰难民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2370290/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220419-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
- 
+## 4/18/2022 文贵盖特： 中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以”清零“为掩护，真正目的是给更多人打疫苗来消灭人口！中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2370345/)
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
