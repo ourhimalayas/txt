@@ -2,11 +2,16 @@
 ---
 
 
-## 日本拟完善法律设置准难民制度 推进接收乌克兰难民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2370290/)
+## 同济大学的拉屎逻辑
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2370302/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220419-scaled.jpg)
-*编辑：东京樱花团/简报小组
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/04/22-6.png)
+因为担心厕所垃圾会传染，把垃圾桶撤了让带回宿舍。担心水龙头会传染，他不让洗手，只能回寝室用酒精、湿纸巾擦。上完厕所后不让洗手。疫情期间不让洗手疫情期间不让洗手，天下还有这么荒谬的一个事情嘛？哪个地方它是通过不让洗手的方式来进行一个防疫的，你们就说扯不扯，这是同济大学211，985哎一个重点高校哎。这是什么荒谬的一个小说里面才会有的一个情节，你做梦也想不到一个计划经济它能发展到计划拉屎的一个地步。
+
+消息来源：
+
+*校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  

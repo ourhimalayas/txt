@@ -2,29 +2,25 @@
 ---
 
 
-## 被视为乌克兰“避难所”的利沃夫遭导弹袭击
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2370552/)
+## 新中国联邦乌克兰前线救援：战地蓝莲花系列之“走到哪里传播到哪里”
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2370744/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+视频制作：多伦多蓝莲花视频组laocai
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)2022年4月，波兰、梅迪卡，新中国联邦乌克兰前线救援。
+**2022年4月波兰梅迪卡，新中国联邦乌克兰前线救援还在继续，前线战友日夜忙碌，不图名利，只为帮助拯救更多的乌克兰人民。**
 
-4月18日，被视为乌克兰的避难所”——乌克兰西部城市利沃夫（Lviv）今日早晨遭5枚导弹袭击，一些民用设施被摧毁。
+**他们除了把爱与关怀传播出去，还把”TAKE THE CHINESE COMMUNITST PARTY “的信念，带到了他们所能达到的任何一个地方**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-31.jpg)（图片来自Yuriy Dyachyshyn/AFP via Getty Images）
+编撰：冰糖葫芦喵
 
-据《大纪元》报道，利沃夫市长萨多维在社交媒体上表示，有5枚导弹袭击了该市，紧急服务部门正在应对这些爆炸，随后将公布更多细节。
+视频文案：芙洛拉
 
-另据国际记者们分享的画面，周一早晨该城的天际线上升起了浓烟。福克斯新闻的记者詹姆斯·莱文森（James Levinson）表示，导弹袭击了利沃夫火车站，目前还未确定伤亡人数，但可听到空袭警报和救护车的声音。
-
-据了解，与乌克兰其它地区相比，靠近波兰边境的利沃夫所受的影响较小，被认为是一个相对安全的避难所，也是国际人道物资的转运枢纽。
-
-此外，除了利沃夫，俄军也对基辅周边和其它地区进行了空袭，目的可能是为了报复上周乌克兰击沉其黑海旗舰“莫斯科号”（Moskva），并在东部全面开战前，进一步削弱乌克兰的军事能力。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/4/18/n13714381.htm](https://www.epochtimes.com/b5/22/4/18/n13714381.htm)
-
-总编：青城道姑
-校对发布：Linda
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
