@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 10:32 PM (UTC)`
+
+4/19/2022 【419 5th Anniversary]】419 was absolutely a new start of the Chinese feminist movement, the moral corruption of Chinese society is definitely because the Chinese men are not strong enough.<br/><br/>4/19/2022【419五周年】：419绝对是中国女权运动新的开始，中国这些年整个的堕落就是因为男性“举而不坚”。<br/><br/>
+![img](https://media.gettr.com/group6/getter/2022/04/19/22/eb8ae261-490a-9675-55e2-b2609dfbafd5/out.jpg)
+
+---
+
+`@miles 4/19/2022 10:26 PM (UTC)`
+
+《只因远方有你》<br/><br/>只因远方有你 <br/>不惜跋涉千里<br/>追逐灭共的风景<br/>像月亮追着大地<br/>每天总是惦记<br/>关于你的消息<br/><br/>就像鱼儿离不开水<br/>相随甜甜蜜蜜<br/>不负韶华年纪<br/>为理想不曾歇息<br/>相知相携万里<br/>共许佳期<br/><br/>我敲过你敲过的钟<br/>只为一起灭共<br/>我走过你走过的路<br/>只为盘古相逢<br/><br/>在这命运的安排里<br/>我与你生死结义<br/>唯愿故乡芳草萋萋<br/>蓝莲花开遍大地<br/><br/>“Just Because You Behold Us Afar ”<br/><br/>Just because you behold us afar <br/>I tread thousands of miles <br/>to chase the journey of eliminating <br/>the Chinese Communist Party<br/>Like the moon trailing the earth<br/>Every day I am eager to hear <br/>any piece of news about you <br/><br/>Just like a fish live within water<br/>in a sweet and honeylike way<br/>Leave no regrets to the precious moments of our lives<br/>Spare no effort to achieve our ambitions<br/>Thousands of miles away,<br/>we still come to know each other with firm-holding hands <br/>and make a promise to meet at that best moment yet to come<br/>……….
+![img](https://media.gettr.com/group32/getter/2022/04/19/22/23bdd84e-a669-ee36-4637-4297141b8983/out.jpg)
+
+---
+
 `@miles 4/19/2022 10:05 PM (UTC)`
 
 4/19/2022 【419 5th Anniversary】Not many people believed that we could take down the Chinese Communist Party five years ago. However, since the start of the Russia-Ukraine war, fundamental changes have occurred in the CCP’s system such that many insiders of the CCP have now realized that the CCP is the falling wall that is bound to collapse, and so is Xi Jinping. The Whistleblowers’ Movement has convinced them with our strength!<br/><br/>4/19/2022【419五周年】五年前，没人相信咱能灭共；但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，中共内部很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服！<br/>
@@ -140,19 +154,6 @@
 
 【Ukraine Rescue】04/17/22 All volunteers in the Medyka rescue centre are celebrating Easter. Some volunteers from other relief organizations immediately recognize the NFSC volunteers and sincerely thank us for our dedication.<br/><br/>【乌克兰救援】04/17/22 Medyka救援营地世界各地的志愿者们一起庆祝复活节，一些来自其他救援组织的志愿者一眼就认出了新中国联邦的志愿者，并真诚地感谢我们的付出。
 ![img](https://media.gettr.com/group48/getter/2022/04/19/07/c366c47d-6de1-c45a-2264-f75cd8cea40a/out.jpg)
-
----
-
-`@miles 4/19/2022 5:26 AM (UTC)`
-
-19/04/2022  VEVO- Miles Guo latest MV “ Chained Dream”(official Video) Live on YouTube 🎉🎉🎉🎉🎉🎉🎉<br/><br/>4月19号， VEVO- 《铁锁梦》官方视频正式上线YouTube 🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/><br/> <br/><br/>https://youtube.com/watch?v=gGYtbjsi4LM&feature=share
-
----
-
-`@miles 4/19/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group26/origin/2022/04/19/04/82912e9a-9f91-a550-3cdc-5659cf970de0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
