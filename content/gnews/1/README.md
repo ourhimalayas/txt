@@ -2,24 +2,68 @@
 ---
 
 
-## 樱花FM┃俄乌大战即将开始，或升级为俄中欧全面战争
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2375961/)
+## 2022年4月19日文贵大直播摘要及音讯—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2376053/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2384.png)
-郭文贵先生在4月10日大直播中讲到：“俄罗斯和乌克兰正在准备一场大战，一场大战即将开始，欧洲已经开启了和中共、俄罗斯直接对战的形式，谁都无法避免，乌克兰的血腥战争将升级为俄、中、欧的全面战争”。同时，在4月13日，美国之音时事大家谈标题为——乌东血战在即，普京势在必得胜算几何？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/419.png)
+视频连接：[419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑](https://gettr.com/streaming/p161dm5929a)
 
-俄乌谈判已经有过几个回合，却没有达到各自预期！从以往战争来看，都是以一方惨败，完全被军事摧毁，被军事压制的没有抗衡能力，才能得出战争结果，但是现在俄军进攻严重受挫，不得已撤离基辅，但是仍然控制乌东部分地区，俄军损兵折将，占领和控制乌克兰的战争目的并没有实现！世界人民感受到乌克兰凝聚力和战斗意志的坚不可摧，越来越多国家在政治、经济和军事装备上支持乌克兰，让乌克兰有信心保卫自己的国家，将入侵者消灭，夺回乌东地区。所以，在几轮的谈判过程中，双方必将重新部署和调整军事力量，直到达到自己的军事和政治目的！
+1、419断播未爆的料：就是当时对中国最大的威胁王岐山。王岐山旧金山财富和瑞士银行账号、和华尔街的关系、刘呈杰的爹，这些料都没有爆；
 
-从联合国投票来看，世界都在支持乌克兰的抗争，近日，欧盟主席、英国首相直接在基辅和乌克兰总统会面，多国全力支持乌克兰，据4月10日郭文贵先生大直播中爆料，英国跟乌克兰站在一起，制裁会极为的残酷，然后英国的武器会倾囊而出。全人类的雇佣军最高级的技术兵是英国人，英国人建立雇佣兵的方式，6000—8000人参加乌克兰战场，指挥使用大型杀器，特别是反舰、反潜水艇。而俄罗斯背后的支持者中共，也不再含蓄而隐秘，除了在联合国会议上站在俄罗斯这一边，经济上支援，并用运20直接将导弹运到欧洲，“红旗导弹”系统送到塞尔维亚，包括中东、沙特、伊拉克、伊朗、也门、叙利亚，突尼斯这些地方；更要把东风-15系统大量的布置在这些地方，这是明显的控制中东能源，搞乱欧洲，威胁欧洲！以阻断欧洲无法对乌克兰的全力支持！
+2、如今，习近平比王岐山还变态，但是习近平现在仍未动王岐山的财富；
 
-俄乌战争关系到伟大的乌克兰人民的存亡和未来，关系到欧洲的安全，而普京政权在中共政权的支持下，或将再次发动大规模更为惨烈的进攻，这必将是一场血战。在新中国联邦和法治基金的支持下，无数义工积极参与俄乌战争救援，无数新中国联邦人慷慨捐款，郭文贵先生及时将这场战争元凶中共的动向通报世界，郭文贵先生4月10日再此向世界发出预警——俄罗斯和乌克兰正在准备一场大战，柴可切夫从叙利亚回来，冷酷无情，生化武器、围歼战、导弹、地面攻击会全上，而且一定是指东打西，说是打的是整个乌东，可能会打基辅。然后导弹会像雪雨一样过去，直奔泽连斯基本人！而中共在欧洲的军事动作，也已经触发了俄、中、欧的全面战争！
+3、文贵先生的郭七条不反习，但是要灭了习。不想灭王岐山，灭了钱找不回来，傅政华孙力军必须灭。李斯赵高的综合体是孟建柱；
 
-文字版原文：[樱花时政┃俄乌大战即将开始，或升级为俄中欧全面战争](https://gnews.org/zh-hans/2342408/)
+4、爆料革命是否真正触动到体制内高官？他们骨子里是不会相信的，不会跟着爆料革命，只会利用爆料革命，但是俄乌战争 上海封城后，体制内发生了本质的变化；
 
-*编辑：东京樱花团/小老虎
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+5、王沪宁和社科院的几个人是马克思主义的拥护者，习近平选这几个人做高参，对西方的技术不惜一切代价要偷抢骗，金融上击毁美元；
+
+6、习近平搬进毛泽东故居，第一顿饭，就是请的张玉凤；
+
+7、默克尔秘密坐吴小晖私人飞机到北京和习近平会面；
+
+8、莫德尔周期：
+
+1 ）习近平深信不疑，他是上天派来的神 来统治世界的 ；
+
+2）国际政治的演变模式是循环的周期约为120年，习近平认为莫德尔120年的周期到了，自己就是主导世界霸主的人；
+
+9、中共把无人机卖给台湾。是国内战友冒死递出的情报；
+
+10、北京正在准备大隔离，一定是极限测试，计划要弄死一部分老人；
+
+11、上海阳性反应的绝大多数都是注射了mRNA的疫苗反应；
+
+12、孟建柱最后悔就是没把习近平干掉，怕干掉习中国会乱；
+
+13、台湾不抵抗，中共和美国都会把台湾打烂，习近平使用核武器都是有可能的；
+
+**注：大直播音讯正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
