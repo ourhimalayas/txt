@@ -2,18 +2,18 @@
 ---
 
 
-## 泽连斯基重申对俄罗斯核武器的警告
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371134/)
+## 蔡英文表示台湾坚守主权与民主的决心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371136/)
 
-作者：雅典娜农场-小红帽
+作者：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据国外媒体4月17日报道，乌克兰总统泽连斯基16日在接受乌克兰新闻媒体采访时说，世界应该为俄罗斯可能使用核武器做好准备。他认为俄罗斯人可能使用任何武器，并对此深信不疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-38.jpg)
-泽连斯基认为，乌克兰现在就需要抗辐射药物和防空洞，不应该等到俄罗斯决定使用核武器的那一刻再有反应。
+据4月16日台湾媒体消息，台湾总统蔡英文及副总统赖清德，当天以录像方式向“第11届海内外台湾国是会议”致辞，表达了台湾坚守主权与民主的立场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-40.jpg)
+蔡英文说，本次大会的主题是维护台湾主权、联合印太同盟。在俄乌战争中，民主国家面对独裁国家威胁，在关心乌克兰的同时也高度关注台海局势。而台湾的立场就是坚持守护主权和民主，与理念相近的国家站在一起，互相协助、贡献自己的力量。近年来台湾各方面发展良好，有越来越多的国家在为台湾发声，支持台湾参与国际组织，相信台湾的未来一定会更好。
 
-该采访由六家乌克兰新闻网站进行了转播，乌克兰总统府也已在Telegram上播出。
+副总统赖清德表示，许多民主国家的峰会，包括G7、美日、美欧高峰会等，都将台海和平稳定列入了正式档当中。美国政府对台湾提出的各种法案，拜登总统特使团及前国务卿彭佩奥来访，都表达了对台湾的坚定支持。而台湾会确保自己的的前途将由台湾人民来决定，避免成为第二个乌克兰。
 
-参考链接：[Zelenskyy repeats warning over Russian nuclear weapons](https://www.hindustantimes.com/world-news/zelensky-repeats-warning-over-russian-nuclear-weapons-101650140575233.html)
+参考链接：[從俄烏戰爭看台灣 總統：台灣堅守主權與民主](https://www.rti.org.tw/news/view/id/2130195)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

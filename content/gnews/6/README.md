@@ -2,20 +2,22 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（4月11日-4月17日）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2371531/)
+## 樱花时政┃乌克兰总统宣布 俄军已发动对东部的大规模攻势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371579/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-119.png)图片来自喜交所网站
-过去一周，喜马雅币价格小幅回落至40美元左右，平均日交易量约9万枚喜币。喜币上市以来总交易量约3520万枚 ，占今年总发行量的仅约3.52%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
+撰稿：东京樱花团/百花李香
 
-最近美国财政部长耶伦发表了针对数字资产的讲话，其讲话的主要重点体现出，美国政府对数字货币的监管政策与喜币的设计特征一一对应。本周二，比利时总理主动与新中国联邦战友合影，在外交上默认了新中国联邦消灭中国共产党的合法性。郭先生在盖特视频中透露，全球有越来越多的国家支持新中国联邦，未来喜币将成为全世界最流行、最早的数字法币。而人民币将在全世界被认定为犯罪的货币。
+乌克兰总统泽连斯基4月18日宣布，俄罗斯军队在该国东部的顿巴斯地区开始了大规模攻势。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-15.jpg)[图片来源](https://www.google.com/search?q=Ukraine&amp;sxsrf=APq-WBuIHyJBZo0QAhnbONMFdzo_aKHN6g:1650332935396&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=RQ__JX0-3DYaIM%252C6RKCo5b7r_BTuM%252C_%253BLwsKOVmsw0i-1M%252CiN7SfeUBoO0eTM%252C_%253BOWU5zEYDeBM_uM%252CAny012al-K0poM%252)
+泽连斯基在短信应用软件Telegram上解释说，俄罗斯军方已经启动了一个准备已久的行动，以攻克顿巴斯。许多俄罗斯部队被分配到了这次攻势中。
 
-另外，喜联储主席William先生近日接受英国GB NEWS采访表示，加密货币的发展趋势不可阻挡，虽然目前各国政府对加密货币的监管越来越严格，但对行业整体发展是有利的。加密货币转账方便快捷，在俄乌战争救援中发挥了巨大作用，目前乌克兰已经收到了超过1亿美元的加密货币捐款。加密货币是人们逃离独裁统治压迫的重要手段，未来加密货币市场还会持续增长。
+卢甘斯克东部的州长谢尔盖·盖迪也在脸书投稿称，“几周前提到的攻势已经开始，在鲁比涅和波帕斯纳战斗仍在继续。战斗在其它和平城市也正在进行”。
 
-参考链接：[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
+信息源：[ロシア軍、東部攻勢を開始 ウクライナ大統領が発表](https://news.yahoo.co.jp/articles/120919977b1f2b79f78b0dd8074c3c94e63dfb13#:~:text=%E3%83%AD%)
 
-作者：拉丁 |编辑&发布：小蜜蜂
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

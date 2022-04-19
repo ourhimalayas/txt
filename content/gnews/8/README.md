@@ -2,37 +2,29 @@
 ---
 
 
-## 斯里兰卡请求国际货币基金组织提供快速融资援助
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2371476/)
+## 俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2371564/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文｜CP**
+**发布时间｜19/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜美國鬆口-稱正研究將俄羅斯列為「恐怖主義支持國」.jpg)
 
-#### 翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1323683-2.jpg)图片来源：www.indianexpress.com
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-根据CNA 4月19日报道，斯里兰卡财政部长助理周二在推特上说，斯里兰卡已经向国际货币基金组织（IMF）提出了快速融资工具（RFI）支持的要求，以缓解供应链问题。
+美国国务院发言人普萨基（Ned Price）18日接受媒体采访时表示，美国正在仔细研究将俄罗斯列为“恐怖主义支持国”的相关事实与法律规定。另有华府高级官员亦指称，美国国务院正在“寻找一切可用的方法”让俄罗斯为俄乌战争负责，包括可能将俄罗斯列为恐怖主义支持国，不过，最终决定可能需要数周时间才能达成。
 
-然而，国际货币基金组织认为斯里兰卡不符合其标准，Shamir Zavahir说，IMF似乎对授予扩展基金融资机制（EFF）持积极态度。 印度洋岛国斯里兰卡上周二宣布，将暂时停止偿还所有外债，并请求国际货币基金组织（IMF）提供紧急财政援助，以应对国内70多年来最严重的经济危机。
+根据美国国务院的定义，恐怖主义支持国是指“一再为国际恐怖主义行为提供支持”的国家。自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支持国”。
 
-斯里兰卡财政部发布声明说：“自1948年独立以来，斯里兰卡一直保持着良好的外债偿还记录。然而，最近发生的事件，包括疫情持续蔓延和乌克兰危机的影响，已经侵蚀了斯里兰卡的财政状况，继续正常偿还外债已经变得不可能。”
+早前，有报导引述消息人士透露，乌克兰总统泽连斯基（Volodymyr Zelensky）在最近一次与美国总统拜登（Joe Biden）的通话中，请求美国将俄罗斯列为“恐怖主义支持国”，以加大国际社会对俄罗斯的谴责力度。不过，当时拜登并未就该请求作出承诺或采取具体行动，只表示愿意探讨一系列的建议。
 
-斯里兰卡的经济崩溃引发了大规模抗议活动，抗议的内容包括创纪录的通货膨胀、轮流停电以及药品和燃气等基本商品的严重短缺。
+报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支持国”，意味着美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
 
-4月9日，巴基斯坦总理Imran Khan下台，据CEIC的数据，巴基斯坦3月份的消费价格较上年同期上涨12.7%。
+來源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-new-04-18-22/h_379c2d3bc66d542de9433f5de32fc712)、[GNEWS](https://gnews.org/zh-hant/2356330/)
 
-资料来源：
-1、[Sri Lanka asks IMF for rapid financial assistance](https://www.channelnewsasia.com/business/sri-lanka-asks-imf-rapid-financial-assistance-2632931)
-2、斯里兰卡只是开始 发展中国家“债务风暴”来了
+* * *
 
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：](https://twitter.com/HimalayaAthena1)HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr：](https://gettr.com/user/himalayaathena)himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)YouTube
-[澳大利亚墨尔本雅典娜农场](https://gettr.com/user/himalayaathena)Discord
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

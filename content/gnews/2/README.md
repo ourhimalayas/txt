@@ -2,22 +2,24 @@
 ---
 
 
-## 樱花时政┃乌克兰总统宣布 俄军已发动对东部的大规模攻势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371579/)
+## 樱花FM┃北约将进入亚太地区对抗中共
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2371645/)
 
-撰稿：东京樱花团/百花李香
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2281.png)
+来自零对冲消息，北大西洋公约组织（NATO）宣布，鉴于北京政权日益增长的影响力和胁迫力以及不愿意谴责俄罗斯对乌克兰的入侵，该组织将开始在实际和政治上参与亚太地区。
 
-乌克兰总统泽连斯基4月18日宣布，俄罗斯军队在该国东部的顿巴斯地区开始了大规模攻势。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-15.jpg)[图片来源](https://www.google.com/search?q=Ukraine&amp;sxsrf=APq-WBuIHyJBZo0QAhnbONMFdzo_aKHN6g:1650332935396&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=RQ__JX0-3DYaIM%252C6RKCo5b7r_BTuM%252C_%253BLwsKOVmsw0i-1M%252CiN7SfeUBoO0eTM%252C_%253BOWU5zEYDeBM_uM%252CAny012al-K0poM%252)
-泽连斯基在短信应用软件Telegram上解释说，俄罗斯军方已经启动了一个准备已久的行动，以攻克顿巴斯。许多俄罗斯部队被分配到了这次攻势中。
+北约秘书长延斯·斯托尔滕贝格表示中共不愿意谴责俄罗斯的侵略行为，并且已经与莫斯科站在一起。这对北约各国来说是一个严重的挑战。
 
-卢甘斯克东部的州长谢尔盖·盖迪也在脸书投稿称，“几周前提到的攻势已经开始，在鲁比涅和波帕斯纳战斗仍在继续。战斗在其它和平城市也正在进行”。
+为应对这种情况，北约及其亚太伙伴——澳大利亚、日本、新西兰和大韩民国在布鲁塞尔举行会议，讨论对乌克兰的国际支持。斯托尔滕贝格说，“北约和我们的亚太伙伴现在已经同意加强我们在几个领域的实际和政治合作，包括网络、新技术和打击虚假信息。”
 
-信息源：[ロシア軍、東部攻勢を開始 ウクライナ大統領が発表](https://news.yahoo.co.jp/articles/120919977b1f2b79f78b0dd8074c3c94e63dfb13#:~:text=%E3%83%AD%)
+文字版原文：[樱花时政┃北约将进入亚太地区对抗中共](https://gnews.org/zh-hans/2328907/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+*编辑：东京樱花团/小老虎
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

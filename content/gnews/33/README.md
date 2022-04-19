@@ -2,15 +2,18 @@
 ---
 
 
-## 美国志愿者珍视在新中国联邦庆祝逾越节
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371132/)
+## 泽连斯基重申对俄罗斯核武器的警告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371134/)
 
+作者：雅典娜农场-小红帽
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月15日，在前线犹太人于新中国联邦的大帐篷中庆祝他们象征自由的传统节日——逾越节——之际，Nicole战友采访了一位来自美国的志愿者艾米·卡兹，请她谈一谈过节的感受。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-36.jpg)
-艾米对于在梅迪卡和来自全世界的人们聚在一起庆祝这个重要节日，庆祝犹太人摆脱埃及人的奴役和统治，感到非常珍贵，并说，大家能在这里聚在一起，是因为所有人有着共同的使命和心愿：都想尽力帮助乌克兰人摆脱俄罗斯给他们带来的恐惧。Nicole战友同时表达了我们还有拯救被中共奴役的14亿中国人的使命，艾米频频点头表示赞同。
+据国外媒体4月17日报道，乌克兰总统泽连斯基16日在接受乌克兰新闻媒体采访时说，世界应该为俄罗斯可能使用核武器做好准备。他认为俄罗斯人可能使用任何武器，并对此深信不疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-38.jpg)
+泽连斯基认为，乌克兰现在就需要抗辐射药物和防空洞，不应该等到俄罗斯决定使用核武器的那一刻再有反应。
 
-参考链接：[我们有着共同的使命、信仰和心愿](https://gettr.com/post/p15nxf02081)
+该采访由六家乌克兰新闻网站进行了转播，乌克兰总统府也已在Telegram上播出。
+
+参考链接：[Zelenskyy repeats warning over Russian nuclear weapons](https://www.hindustantimes.com/world-news/zelensky-repeats-warning-over-russian-nuclear-weapons-101650140575233.html)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
@@ -18,8 +21,6 @@
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

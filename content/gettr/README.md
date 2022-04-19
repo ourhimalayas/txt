@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/19/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group26/origin/2022/04/19/04/82912e9a-9f91-a550-3cdc-5659cf970de0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/19/2022 3:19 AM (UTC)`
 
 【Ukraine Rescue】04/17/2022 Young men from Spain say that they don't like communism because it is very bad. They assure that many people in Spain will support the New Federal State of China, and they will sign up for #GETTR to watch the live broadcast.<br/><br/>【乌克兰救援】04/17/2022 来自西班牙的年轻人说: 我们不喜欢共产主义，因为共产主义非常糟糕，我们保证在西班牙有很多人支持新中国联邦。他们表示会注册盖特看直播。<br/><br/><br/>
@@ -147,13 +154,6 @@
 
 4月18号，《铁锁梦》MV在iTunes上线后，仅在1个半小时后迅速登榜澳洲区MV总榜第一名🥇，MV流行榜第一名🥇，万分感谢澳洲的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉<br/><br/>4/18/2022 Just after 1.5 hours of launching, Miles Guo’s latest MV the “Chained Dream” has hit No.1 🥇on Australia 🇦🇺 MV Top Music Video Charts and No.1 🥇on Australia 🇦🇺 MV Pop Music Video Charts ! Thanks to our brothers and sisters in Australia!🙏🙏🙏🙏🙏🙏🙏🎉🎉🎉🎉🎉🎉🎉🎉
 ![img](https://media.gettr.com/group22/getter/2022/04/18/15/480bc6c1-bb55-34c9-f7b9-e61482fe1d2f/891d9ee3df9282844b662c5039178df4.jpg)
-
----
-
-`@miles 4/18/2022 2:19 PM (UTC)`
-
-4月18号：尊敬的战友们好，你说咋弄的咋弄的咋弄的．七哥不亲自己的腚．好意思吗？就是这么骄傲．就是这么牛叉……咋办吧……第二个将是田国立，还有人民银行的纪委书记周亮……新华保险的康典……都会被抓的，咱们走着看。【Oh my god<br/>七哥2020年4月8日直播，請戰友記住：田惠宇、陳峰一定會被抓，這就是習王斗的結果<br/>gettr.com/post/p15t6rvae…-】
-![img](https://media.gettr.com/group38/getter/2022/04/18/14/4a96de4c-e673-c543-70cd-b4fb25df82b7/71cdb800d902dde09506ba89e8e4a0b5.jpg)
 
 ---
 
