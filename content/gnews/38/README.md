@@ -2,45 +2,34 @@
 ---
 
 
-## 研究发现未接种疫苗的人比接种疫苗的人更健康
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2371855/)
+## 中日财经爆┃供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371902/)
 
-*评论：拒绝毒疫苗，任何让你接种毒疫苗的人都是‘杀人犯’*
+撰稿：东京樱花团/asket
 
-据《newstarget.com》作者：Ethan Huff，2022年4月17日报道：
+玉米十年来首次超过每蒲式耳8美元，原因是担心短缺。由于投资者担心供应减少，各种因素的结合使芝加哥的玉米期货达到十年来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-7.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fres.cloudinary.com%2Fgro-intelligence%2Fimage%2Fupload%2Fv1642021031%2Fnew-website%2Fcorn_Jan12_877a813691.jpg&amp;imgrefurl=https%3A%2F%2Fgro-intelligence.com%2Finsights%2Fusda-confirms-gro-s-forecasts-for)
+自2012年9月以来，玉米期货一直没有超过每蒲式耳8美元。当年，美国中西部地区发生了毁灭性的干旱，农作物受损。现在供应风险卷土重来，但原因完全不同。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6-8.png)[图片来源](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
+自俄罗斯在2月底开始入侵乌克兰以来，全球玉米供应前景急剧下降。这个饱受战争摧残的国家供应着全球五分之一的玉米，今年的产量可能会下降50%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2299.png)图片来源：原文
+飙升的化肥成本迫使美国的一些农民在这个种植季节增加大豆的种植，而不是玉米，因为这种作物需要的养分较少。
 
-疫苗是安全和有效的吗？根据美国卫生与公众服务部（HHS）2011年委托进行的一项研究，并非如此。
+由于天然气成本上升和俄罗斯限制向 “不友好 “国家出口化肥，化肥价格达到了历史最高点。俄罗斯是全球最大的出口国之一 — 美国恰好是来自俄罗斯的氮肥和钾肥的大进口国。
 
-例如，像维生素K疫苗这样的疫苗并不像声称的那样能提供持久的免疫保护，而是实际上降低了免疫力，导致比不接种疫苗的人更糟糕的健康结果。
+而将玉米价格推向天际的最新情况是，拜登政府上周宣布采取紧急措施，扩大生物燃料销售，以遏制飙升的汽油价格。此举的问题在于，乙醇行业吸收了更大份额的玉米作物，这将遏制对粮食行业的供应。因此，最终会提高玉米价格。
 
-事实上，未接种疫苗的人往往比接种疫苗的人更健康。这与西方人对疫苗的普遍看法背道而驰。
+这种情形正在发生，因为3月份全球食品价格月度跃升了惊人的12.64%—几乎是之前月度激增记录的两倍！
 
-在调查了美国政府的疫苗不良事件报告系统（VAERS）后，HHS的研究人员发现，“疫苗不良事件很常见”。同一份报告认为，“只有不到1%的疫苗副作用被报告过”。
+全球食品价格已经超过了仅在2010/11年通货膨胀暴乱期间（被称为 “阿拉伯之春”）出现的水平。
 
-你可能没有听说过这项研究，因为当然，它被广泛审查和忽视了。
+投资者似乎正在对玉米短缺进行定价。现在是开始种植自己的花园的最好时机。
 
-这篇论文被称为“对照组试验研究”，该组织的创始人乔伊-加纳（Joy Garner）是这样解释的。疫苗的营销口号‘安全’一直依赖于在提及副作用时被证实的形容词‘罕见’。在美国《侵权法重述（第二版）》402A（注释k）中，疫苗被正式归类为‘不可避免的不安全’。
+信息来源：** **[**Corn Exceeds $8 A Bushel For First Time In Decade On Shortage Fears**](https://www.zerohedge.com/commodities/corn-exceeds-8-bushel-shortage-fears)
 
-但我们被告知疫苗是‘安全的’。疫苗不仅不安全，而且是不可避免的。而且这些伤害很常见，至少比VAERS报告的要常见100倍。
-
-事实上，目前我们的法律被滥用，保护制药业不受这种欺诈行为的影响，也不受它所造成的伤害的影响，但这并没有改变字典上对欺诈一词的定义。很少有人会有如此严重的认知失调，以至于一旦意识到疫苗是‘不可避免的不安全’产品，通常会使人受伤、致残和死亡，他们仍然会相信疫苗是‘安全的’。
-
-* * *
-
-原文连接：[https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html](https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – HotPixel
-评论：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

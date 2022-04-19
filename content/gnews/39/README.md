@@ -2,46 +2,45 @@
 ---
 
 
-## 中日财经爆┃美国33万亿美元的债务和9万亿的GDP对谁有利？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371805/)
+## 研究发现未接种疫苗的人比接种疫苗的人更健康
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2371855/)
 
-撰稿：东京樱花团/asket
+*评论：拒绝毒疫苗，任何让你接种毒疫苗的人都是‘杀人犯’*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2292.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.tv9gujarati.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fus-debt-1.jpg&amp;imgrefurl=https%3A%2F%2Fpipanews.com%2Famerica-the-worlds-most-powerful-country-is-mired-in-debt-10-times-indias-gdp-america-deb)
+据《newstarget.com》作者：Ethan Huff，2022年4月17日报道：
 
-让我们问一下，增加的33万亿美元的债务和增加的9万亿美元的国内生产总值的 “好处”：对谁有利？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2299.png)图片来源：原文
 
-我一直在思考，要让我们对大数字有一个清醒的认识是多么困难。技术分析师Sven Henrich（@NorthmanTrader）最近提供了一个方法来掌握埃隆-马斯克的巨大财富：如何成为像埃隆-马斯克一样的财富？很简单。每天获得100万美元的报酬。连续750年，你就可以了。
+疫苗是安全和有效的吗？根据美国卫生与公众服务部（HHS）2011年委托进行的一项研究，并非如此。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2294.png)[图片来源](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
+例如，像维生素K疫苗这样的疫苗并不像声称的那样能提供持久的免疫保护，而是实际上降低了免疫力，导致比不接种疫苗的人更糟糕的健康结果。
 
-我们如何才能掌握自2010年以来我们增加的33万亿美元的总债务？我们可以首先注意到，在大约十年内，债务增加了60%，而美国的人口却增加了7%。
+事实上，未接种疫苗的人往往比接种疫苗的人更健康。这与西方人对疫苗的普遍看法背道而驰。
 
-我们比12年前的情况好了60%吗？我们如何衡量 “更好的生活”？国内生产总值也上升了60%，但我们是效率提高了60%还是生产力提高了60%？我们工资的购买力上升了60%吗？我们能用一天的收入多买60%的东西吗？
+在调查了美国政府的疫苗不良事件报告系统（VAERS）后，HHS的研究人员发现，“疫苗不良事件很常见”。同一份报告认为，“只有不到1%的疫苗副作用被报告过”。
 
-我认为，对所有这些问题说 “不 “是公平的。我们已经增加了33万亿美元的债务。
+你可能没有听说过这项研究，因为当然，它被广泛审查和忽视了。
 
-如果说3.3亿美国人中的每一个人都有10万美元的债务，这是否能解释说明这33万亿美元？我们每个人都因为借了33万亿美元而增加了10万美元的收入吗？好吧，有几个人已经受益了。前400名最富有的人看到他们的财富飙升了数万亿美元，从2010年约占国内生产总值的8%–从1985年的微不足道的2.5%上升到约占国内生产总值的18%，现在是24万亿美元。这相当于4.3万亿美元。
+这篇论文被称为“对照组试验研究”，该组织的创始人乔伊-加纳（Joy Garner）是这样解释的。疫苗的营销口号‘安全’一直依赖于在提及副作用时被证实的形容词‘罕见’。在美国《侵权法重述（第二版）》402A（注释k）中，疫苗被正式归类为‘不可避免的不安全’。
 
-我认为可以说，超全球化和超金融化已经产生了超财富和超不平等。
+但我们被告知疫苗是‘安全的’。疫苗不仅不安全，而且是不可避免的。而且这些伤害很常见，至少比VAERS报告的要常见100倍。
 
-说到大数字，让我们看看底层的50%，大约6500万个家庭。如下图所示，这6500万个家庭拥有40多万亿美元的美国股票市场的0.6%。这还不到1%，或大约2400亿美元。在6500万个家庭中划分，这相当于每个家庭几千美元。
+事实上，目前我们的法律被滥用，保护制药业不受这种欺诈行为的影响，也不受它所造成的伤害的影响，但这并没有改变字典上对欺诈一词的定义。很少有人会有如此严重的认知失调，以至于一旦意识到疫苗是‘不可避免的不安全’产品，通常会使人受伤、致残和死亡，他们仍然会相信疫苗是‘安全的’。
 
-底层50%家庭的股票所有权可能遵循与所有股票所有权相同的幂律分布曲线：这6500万家庭中的前1%拥有大部分的股票，除了一小部分被前5%的人拥有。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2296.png)[图片来源](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
+原文连接：[https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html](https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html)
 
-因此，现实情况是，绝大多数美国家庭在辉煌的美国股市的几十万亿，或债券市场的几十万亿，或私人持有的企业和商业/租赁房地产的几万亿中根本没有利益。
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – HotPixel
+评论：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-因此，让我们问一下，增加的33万亿美元的债务和增加的9万亿美元的GDP的好处是什么：对谁有利？我认为可以这样说，利益是按照幂律分布的，其中前0.01%的人获得了大部分收益，前0.1%的人获得了第二大块收益，前1%的人获得了大部分剩余的收益，其余前5%的人（从1%到5%）获得了所有的收益，只有少数碎片落在前6%到10%的人身上。前10%至20%的人留下了一些碎屑，而在这以下的人，只留下了一些灰尘。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-我完全不确定是否有任何方法可以真正掌握超额财富和超额不平等或其后果。我们的公平感是很难量化的，但这并不意味着它不存在。在某些时候，合理化和分散注意力的压力锅会炸开，厨房将变得混乱不堪。
-
-信息来源：** **[**A Couple Of Thoughts On Big Numbers**](https://www.zerohedge.com/personal-finance/couple-thoughts-big-numbers)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
