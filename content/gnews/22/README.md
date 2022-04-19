@@ -2,30 +2,40 @@
 ---
 
 
-## 中日财经爆┃封城阻塞供应链 特斯拉上海工厂被迫继续推迟复产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371585/)
+## 乌克兰总统泽连斯基填妥加入欧盟问卷 递交欧盟大使
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2371765/)
 
-撰稿：东京樱花团/asket
+来自新加坡早报 /
+2022年4月19日 7:25 AM 报导
+采集：玫瑰新闻组
 
-特斯拉本周计划在上海重新复产，因 “供应商的物流问题 “而推迟。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-15.png)[图片来源](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
-整个周末，关于特斯拉上海工厂如何最终在未来几天重新开业的文章都被报道出来。例如，路透社报道说，该公司在关闭3周后，正在 “拼命 “重新开放其上海工厂。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-支持特斯拉的博客electrek也报道说，特斯拉的目标是 “在被关闭大约三周后，于4月18日星期一重新开始生产，但错过了超过4万辆电动车的生产”。
 
-“为了准备重启，特斯拉已经将工人召回上海工厂，根据中国的’闭环管理’程序，他们将需要住在现场，”两位消息人士告诉路透社。
 
-但是根据Street Insider周一早上的报道，重启的希望可能几乎一出现就破灭了。该公司正准备在周一重新开业，但由于 “供应商的物流问题”，被迫将重启时间推迟一天。
 
-与此同时，竞争对手大众汽车公司据说已经在中国重启了生产。报道称，通用汽车也在考虑本周重新开工的计划。
 
-同时，中国继续在全国部分地区扩大封锁，不仅在国内造成混乱，而且对美国等高度依赖进口中国商品的国家的供应链造成另一个冲击。
 
-信息来源：** **[**Tesla’s Planned Shanghai Reopening For This Week Pushed Back Due To “Logistics Problems With Supplier”**](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![泽连斯基（左）将填好的加入欧盟问卷递交马西卡斯（右）。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220419/2022-04-18t221706z144810467rc2ypt9gvkx45720722_0.jpg?VersionId=yBEnxI7cDOdWFt_qlzyYuZl90_gLFerD&amp;itok=NHzOnHBI)泽连斯基（左）将填好的加入欧盟问卷递交马西卡斯（右）。（路透社）
+
+
+以下原文内容：
+
+（早报讯）综合外电报道，乌克兰总统泽连斯基已在周一（4月18日）将填妥的加入欧盟问卷递交欧盟驻乌克兰大使马西卡斯，这将成为乌克兰寻求“加速入欧盟”的第一步。
+
+泽连斯基表示，相信数周内就会展开乌克兰加入欧盟的程序，而这对乌克兰的历史有正面影响。
+
+接下来，欧盟委员会将就乌克兰是否符合必要的标准提出建议。一般上，欧盟对是否接纳新成员国的决策需要好几年的时间。
+
+不过[欧盟委员会主席冯德莱恩在4月8日访问基辅](https://www.zaobao.com.sg/realtime/world/story20220409-1260969)时，除了将这份问卷交给泽连斯基外，也承诺将加快乌克兰加入欧盟的进程。
+
+新闻链接：
+[泽连斯基填妥加盟问卷递交欧盟大使](https://www.zaobao.com.sg/realtime/world/story20220419-1264172)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,30 @@
 ---
 
 
-## 俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2371564/)
+## 中日财经爆┃封城阻塞供应链 特斯拉上海工厂被迫继续推迟复产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2371585/)
 
-**图/文｜CP**
-**发布时间｜19/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜美國鬆口-稱正研究將俄羅斯列為「恐怖主義支持國」.jpg)
+撰稿：东京樱花团/asket
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+特斯拉本周计划在上海重新复产，因 “供应商的物流问题 “而推迟。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-15.png)[图片来源](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
+整个周末，关于特斯拉上海工厂如何最终在未来几天重新开业的文章都被报道出来。例如，路透社报道说，该公司在关闭3周后，正在 “拼命 “重新开放其上海工厂。
 
+支持特斯拉的博客electrek也报道说，特斯拉的目标是 “在被关闭大约三周后，于4月18日星期一重新开始生产，但错过了超过4万辆电动车的生产”。
 
-美国国务院发言人普萨基（Ned Price）18日接受媒体采访时表示，美国正在仔细研究将俄罗斯列为“恐怖主义支持国”的相关事实与法律规定。另有华府高级官员亦指称，美国国务院正在“寻找一切可用的方法”让俄罗斯为俄乌战争负责，包括可能将俄罗斯列为恐怖主义支持国，不过，最终决定可能需要数周时间才能达成。
+“为了准备重启，特斯拉已经将工人召回上海工厂，根据中国的’闭环管理’程序，他们将需要住在现场，”两位消息人士告诉路透社。
 
-根据美国国务院的定义，恐怖主义支持国是指“一再为国际恐怖主义行为提供支持”的国家。自1979年以来，不论是共和党还是民主党政府，美国都一直谨慎使用相关用语，目前只有北韩、古巴、伊朗和叙利亚被美国列为“恐怖主义支持国”。
+但是根据Street Insider周一早上的报道，重启的希望可能几乎一出现就破灭了。该公司正准备在周一重新开业，但由于 “供应商的物流问题”，被迫将重启时间推迟一天。
 
-早前，有报导引述消息人士透露，乌克兰总统泽连斯基（Volodymyr Zelensky）在最近一次与美国总统拜登（Joe Biden）的通话中，请求美国将俄罗斯列为“恐怖主义支持国”，以加大国际社会对俄罗斯的谴责力度。不过，当时拜登并未就该请求作出承诺或采取具体行动，只表示愿意探讨一系列的建议。
+与此同时，竞争对手大众汽车公司据说已经在中国重启了生产。报道称，通用汽车也在考虑本周重新开工的计划。
 
-报道指出，即使在冷战时代，莫斯科当局对被美方视为恐怖分子的组织提供支持，美国都未曾这样做。因为，一旦华府将俄罗斯列为“恐怖主义支持国”，意味着美国或需要对数十个持续与俄罗斯有业务往来的国家实施经济惩罚、冻结莫斯科所有在美资产，以及禁止各类具有商业和军事用途的物品出口。
+同时，中国继续在全国部分地区扩大封锁，不仅在国内造成混乱，而且对美国等高度依赖进口中国商品的国家的供应链造成另一个冲击。
 
-來源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-new-04-18-22/h_379c2d3bc66d542de9433f5de32fc712)、[GNEWS](https://gnews.org/zh-hant/2356330/)
+信息来源：** **[**Tesla’s Planned Shanghai Reopening For This Week Pushed Back Due To “Logistics Problems With Supplier”**](https://www.zerohedge.com/markets/teslas-planned-shanghai-reopening-week-pushed-back-due-logistics-problems-supplier)
 
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

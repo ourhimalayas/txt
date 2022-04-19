@@ -2,61 +2,56 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“田惠宇”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2372013/)
+## 中日财经爆┃马斯克欲将推特董事会成员工资削减到0美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2372083/)
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2214.png)图片来源：雅典娜设计组（614）
-**郭文贵先生2018年11月13日直播**
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃马斯克欲将推特董事会成员工资削减到0美元.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fnews.yahoo.com%2Felon-musk-threatens-cut-twitter-173926265.html&amp;psig=AOvVaw1gOmHWUPQ8o91CDRn4vg62&amp;ust=1650431610616000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjhxqFwoTCMDl4IKvn_cCFQAAAAAdAAAAABAD) （视频截图）
 
-●放心战友们，他们的好日子，王岐山、姚明珊、贯军、刘成杰、裴楠楠、田惠宇、啊这个田丁、田国立都长不了了，放心吧！
+当特斯拉CEO埃隆-马斯克在4月4日透露他对Twitter进行了近30亿美元的投资时，没有多少人会预料到即将开始的肥皂剧。
 
-**郭文贵先生2019年4月30日直播**
+在短短几周内，马斯克从决定是否加入推特的董事会，到发起430亿美元的全面收购，以获得该公司的控制权。
 
-**●为什么王岐山把田惠宇，田溯宁这些人放到银行去？洗钱！搞情报！**他在洛杉矶开一个分行，就是随便洗钱嘛。就这么简单么。现在他已经藏不住了。中国银行这几个分行，在世界各地的，没买保险的，做为间谍活动的，洗黑钱的，都将会查出来。
+推特的董事会成员周五（4月15日）对这一提议做出了回应，采取了所谓的“毒丸”政策，旨在阻止这位亿万富翁企业家完成收购，或者至少使整个过程变得不那么顺利。该“毒丸”被正式称为有限期限的股东权利计划，如果马斯克的出价被接受，将允许目前的Twitter股东以折扣价购买股票。
 
-**郭文贵先生2020年4月8日直播**
+马斯克对这一举措并不满意。
 
-●大家记住我今天说的话，一定会抓！**什么周亮，田惠宇，田国立都给他抓了，没有一点悬念，这就是习王斗争的结果，谁都别想安全。**
+周一，在回应一条认为Twitter董事会的利益与股东不一致的推文时，马斯克说，如果他能够收购该公司，他将把董事会成员的工资削减到0美元。
 
-共产党这个魔鬼的机器亲爹都不放过，亲爹当副主席，儿子都能给你变成刘少奇，这是体制造成的，跟道德感情没关系，不要拿着道德看政治，大家要是拿道德与人性去衡量共产党那你就错了，你要拿着畜生道，流氓道，黑道来看共产党那就对了！
+**他写道：****“如果我的竞标成功，董事会的工资将为0美元，这样一来，每年就节省了约3****百万****美元”****。**
 
-**郭文贵先生2020年11月20日直播**
+马斯克关于董事会成员工资的推文是表明他最初的收购Twitter的竞标已经转变为对该公司的公投的另一个迹象。
 
-**●我听说田国立也快进去了，还是已经进去了。田惠宇肯定是要双规的，等着吧，二田。**
+马斯克在最近几条推文中批评了董事会的低水平所有权。他在周六写道：”客观地说，他们的经济利益与股东根本不一致”。
 
-**郭文贵先生2021年12月29日直播**
+特斯拉CEO并不孤单。推特联合创始人杰克-多西(Jack Dorsey)也一直在表达他对公司董事会越来越反感。上周六，这位前首席执行官在回应风险投资公司Initialized Capital联合创始人Garry Tan的帖子时说，董事会 “一直是公司的功能障碍”，他描述了公司早期的 “阴谋和政变”。
 
-**●田惠宇是王岐山绝对马仔。**你看田惠宇能控制招行，招商就是共产党的几个大行:工、农、建、商，同时就是国开行，还有田惠宇，这是王岐山的秘书。
+多西还回应了一条引用风险投资家弗雷德-德斯坦对公司董事会的批评的推文。”好的董事会不会创造出好的公司，但坏的董事会每次都会杀死一家公司。”
 
-田惠宇还有他的董事长主席缪建民、付刚峰，还有付刚峰，这都是王岐山绝对的建行系统和他的马仔系统。这几个人是非常腐败的。
+“这是个突出的事实，”这位布洛克首席执行官写道。
 
-**郭文贵先生2022年1月9日直播**
+董事会采取毒丸的举动甚至导致马斯克公开质疑它是否应该参与决定谁能收购该公司的过程。
 
-●王滨是王岐山最牛的马仔之一，康典排老大，康典、田国立、田惠宇，然后就是王滨了，马明哲得往他后排。
+上周四，马斯克在推特上发布了一项民意调查称，”以54.2美元的价格将Twitter私有化应该由股东决定，而不是董事会？”
 
-资料来源：
+高达83.5%的受访者说是，这说明在马斯克的忠实追随者中，反董事会的情绪越来越强烈。
 
-[郭文贵先生2018年11月13日直播](https://www.youtube.com/watch?v=FcAeth-G6YQ)
+周一，这位亿万富翁暗示可能向推特股东发出招标，以回应他们直接购买股票的公开请求。这可能使马斯克绕过董事会不愿意出售公司的问题。
 
-[郭文贵先生2019年4月30日直播](https://youtu.be/GIApQBgvQ3Y)
+Wedbush的丹-艾夫斯（Dan Ives）在本周末的一份说明中说，这只是 “马斯克和Twitter董事会之间的高赌注扑克游戏 “的又一举措，如果历史是任何指南的话，这场游戏可能持续18个月。
 
-[郭文贵先生2020年4月8日直播](https://youtu.be/RwrEVe1L5os)
+信息来源：** **
+[**Elon Musk threatens to cut Twitter board members’ salaries to $0 as his takeover bid morphs into a referendum on the company**](https://finance.yahoo.com/news/elon-musk-threatens-cut-twitter-173926265.html)
 
-[郭文贵先生2021年12月29日直播](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
-
-[郭文贵先生2022年1月9日直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
-
-往期回顾：
-
-[文•贵天成——文贵先生谈“田惠宇”（一）](https://gnews.org/zh-hans/2367366/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

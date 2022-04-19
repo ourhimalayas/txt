@@ -2,20 +2,44 @@
 ---
 
 
-## 股东们等待着马斯克的下一步行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2371809/)
+## 研究发现未接种疫苗的人比接种疫苗的人更健康
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2371855/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-383.jpg)
-图片来源： finance.sina.com.cn/
+*评论：拒绝毒疫苗，任何让你接种毒疫苗的人都是‘杀人犯’*
 
-美联社4月18日报道，推特在伊隆·马斯克想收购推特的行动面前设置了障碍，投资者们正在密切观察这位善变的特斯拉老板的下一步行动。
-这家社交媒体公司采用“毒丸”的防御措施以阻止马斯克或其他任何试图购买推特的投资人在没有获得董事会主席们同意之下收购推特。马斯克目前拥有推特9%的股份，上周他出价每股54.2美元或430亿美元收购推特。
-推特已经正式拒绝了马斯克的出价，虽然马斯克还有许多其他选项例如与董事会谈判，出价更高，甚至点燃推特的“毒丸”，这将对推特是灾难性的。这个“毒丸”要求股东在4月25日以前有权购买$210美元一股的优先股以匹配所拥有的普通股(每一千股普通股有一股优先股）以使任何想要收购推特15%或以上股份投资者获得董事会同意。
-马斯克很可能认为不值得购买，但他已经发出了政治信号以施压，现在所有人都在盯着看马斯克的下一步行动。
+据《newstarget.com》作者：Ethan Huff，2022年4月17日报道：
 
-#### 新闻来源： [Shareholders await Musk’s next move in Twitter takeover bid](https://apnews.com/article/business-media-social-elon-musk-shareholder-rights-59049f55ee7553208084c3971ce425cd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2299.png)图片来源：原文
 
+疫苗是安全和有效的吗？根据美国卫生与公众服务部（HHS）2011年委托进行的一项研究，并非如此。
+
+例如，像维生素K疫苗这样的疫苗并不像声称的那样能提供持久的免疫保护，而是实际上降低了免疫力，导致比不接种疫苗的人更糟糕的健康结果。
+
+事实上，未接种疫苗的人往往比接种疫苗的人更健康。这与西方人对疫苗的普遍看法背道而驰。
+
+在调查了美国政府的疫苗不良事件报告系统（VAERS）后，HHS的研究人员发现，“疫苗不良事件很常见”。同一份报告认为，“只有不到1%的疫苗副作用被报告过”。
+
+你可能没有听说过这项研究，因为当然，它被广泛审查和忽视了。
+
+这篇论文被称为“对照组试验研究”，该组织的创始人乔伊-加纳（Joy Garner）是这样解释的。疫苗的营销口号‘安全’一直依赖于在提及副作用时被证实的形容词‘罕见’。在美国《侵权法重述（第二版）》402A（注释k）中，疫苗被正式归类为‘不可避免的不安全’。
+
+但我们被告知疫苗是‘安全的’。疫苗不仅不安全，而且是不可避免的。而且这些伤害很常见，至少比VAERS报告的要常见100倍。
+
+事实上，目前我们的法律被滥用，保护制药业不受这种欺诈行为的影响，也不受它所造成的伤害的影响，但这并没有改变字典上对欺诈一词的定义。很少有人会有如此严重的认知失调，以至于一旦意识到疫苗是‘不可避免的不安全’产品，通常会使人受伤、致残和死亡，他们仍然会相信疫苗是‘安全的’。
+
+* * *
+
+原文连接：[https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html](https://newstarget.com/2022-04-17-study-unvaccinated-people-healthier-than-vaccinated.html)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – HotPixel
+评论：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

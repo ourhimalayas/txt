@@ -2,35 +2,40 @@
 ---
 
 
-## 美国除提供武器 美军还将训练乌克兰军队使用榴弹炮
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2371933/)
+## 泽连斯基：乌克兰可能在几周内成为欧盟候选国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2371970/)
 
-来自新加坡早报 /
-2022年4月19日 12:06 PM 报导
-采集：玫瑰新闻组
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+新闻素材：文泓
+翻译/编辑：伏而起之
 
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2301.png)图片来源：rfa.com
 
 
+周一（美东标准时间周二），乌克兰总统泽连斯基向一名特使正式提交了一份完整的欧盟成员国调查问卷，并称他相信此举会让他的国家在几周内获得候选国的地位。
 
+欧盟委会员主席乌苏拉-冯德莱恩在4月8日访问基辅时给了泽连斯基这份调查问卷，承诺在俄罗斯入侵乌克兰的背景下会加快乌克兰成为欧盟成员国的进程。
 
-![美国军方将在未来几天，在乌克兰境外开始培训乌军使用榴弹炮和雷达等一些最新武器。（法新社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202204/20220419/ukraine-russia-conflict-kharkiv-154416_1.jpg?itok=uAgHse9M)美国军方将在未来几天，在乌克兰境外开始培训乌军使用榴弹炮和雷达等一些最新武器。（法新社）
+泽连斯基政府会议发布的会议录像显示，泽连斯基向一位欧盟驻乌克兰特使提交了完整的文件。
 
+“我们坚信，这一程序（授予候选国地位）将在未来数周进行，鉴于我们的人民在通往独立和民主的道路上付出的代价，它会对我们人民的历史产生积极的影响。”这位乌克兰领导人在会议上如此说。
 
-以下原文内容：
+泽连斯基办公室副主任周一早些时候表示，他预计乌克兰将在6月份举行的由欧盟成员国领导人组成的欧洲理事会会议上获得候选地位。
 
-（早报讯）综合外电报道，首批新的美国军援已在周末抵达乌克兰边境，即将移交给乌军。美国军方也将在未来几天，在乌克兰境外开始培训乌军使用榴弹炮和雷达等一些最新武器。
+他还说，欧盟执行机构欧盟委员会，将需要就乌克兰是否符合必要的入盟标准发布建议。
 
-俄军则在周一（4月18日）声称，已摧毁利沃夫一个物流中心内大批从美国和欧洲运抵乌克兰的武器。
+作为候选国，乌克兰将会展开会谈，使其法律与欧盟的法律框架保持一致。
 
-新闻链接：
-[美军除提供武器 将训练乌军使用榴弹炮](https://www.zaobao.com.sg/realtime/world/story20220419-1264213)
+新闻来源：**[Zelensky: Ukraine could become EU candidate within weeks](https://www.afr.com/world/europe/zelensky-ukraine-could-become-eu-candidate-within-weeks-20220419-p5aeag)**
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
