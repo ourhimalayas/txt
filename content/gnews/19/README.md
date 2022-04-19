@@ -2,36 +2,27 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
+## 拜登总统等同盟国紧急会议 岸田首相正在出席中
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2375547/)
 
-作者：香草山翻译部
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+围绕战斗加剧的乌克兰局势担忧，在美国总统拜登的呼吁下，包括日本在内的同盟国首脑们开始了紧急会议。
+视频来源：FNN新闻
+紧急会议于日本时间19日晚11点前以在线形式举行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+参加的国家有法国、欧盟(欧洲联盟)和波兰等国，岸田总理与拜登总统等人一起参加。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
+协议中除了对乌克兰的支持，以及追究俄罗斯的责任外，还讨论了俄罗斯军队对乌克兰东部的大规模攻击。
 
-文章仅代表作者本人观点，与Gnews无关
+参考链接：[【速報】バイデン大統領ら同盟国が緊急協議　岸田首相が出席中 (fnn.jp)](https://www.fnn.jp/articles/-/349362)
 
-视频参看：
-[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
-[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
-
+素材：宫米叶
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
