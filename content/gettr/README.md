@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 5:00 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group12/origin/2022/04/20/04/2cf6f561-a843-c0e7-c4e3-5d3870e6dccd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 3:10 AM (UTC)`
 
 【419 5th Anniversary】4/19/2022 Mr. Miles Guo revealed how he entrapped Sasha Gong, the CCP’s professional spy, 5 years ago. April 19, 2017, is the day that marked the advent of Mr. Guo on the world stage. With one foot stepping on the so-called Interpol and the other on the VOA, Mr. Guo soared up into the clouds to directly deal a fatal blow to the CCP’s power center - the Zhongnanhai Pit!<br/><br/>【419五周年】4/19/2022 郭先生回顾五年前419如何钓鱼中共专业特务龚小夏；2017年4月19日标志着文贵先生踏出江湖，脚踩所谓的国际刑警组织和美国之音、踏上云端直接干向中南坑！<br/>
@@ -147,13 +154,6 @@
 
 4.19 美国之音采访郭文贵先生断播事件五周年纪念<br/>5th Anniversary of 4/19 VOA live interview with Mr. Miles Guo cut off incident <br/>
 ![img](https://media.gettr.com/group33/getter/2022/04/19/17/6703acf3-62bf-be9e-81a2-a0ab8ae086ad/out.jpg)
-
----
-
-`@miles 4/19/2022 4:09 PM (UTC)`
-
-【419 5th Anniversary】Mr. Miles Guo expresses that all the whistleblowing that failed to end 5 years ago on 419 will gradually come to light in the future: whether it is Wang Qishan's money, Liu Chengjie's dad, and the relationship between the CCP and Wall Street.<br/><br/>【419五周年】郭文贵先生表示，5年前419未能结束的爆料未来都会逐渐曝光：无论是王岐山的钱、刘呈杰的爹，以及中共同华尔街的关系。<br/><br/>
-![img](https://media.gettr.com/group15/getter/2022/04/19/16/67cb0a4f-9ead-e101-223c-aebdfd83bcc4/out.jpg)
 
 ---
 
