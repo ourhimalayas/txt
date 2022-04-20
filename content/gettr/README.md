@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 10:59 AM (UTC)`
+
+2022.04.20  新中国联邦 | 军情室  烏東頓巴斯戰役打響，北約最新援烏武器，台灣購買中共無人機
+![img](https://media.gettr.com/group36/origin/2022/04/20/10/1689865c-6c49-488a-9df3-2dc6f459bfcd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 9:04 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -147,13 +154,6 @@
 
 4/19/2022 【419 5th Anniversary】Not many people believed that we could take down the Chinese Communist Party five years ago. However, since the start of the Russia-Ukraine war, fundamental changes have occurred in the CCP’s system such that many insiders of the CCP have now realized that the CCP is the falling wall that is bound to collapse, and so is Xi Jinping. The Whistleblowers’ Movement has convinced them with our strength!<br/><br/>4/19/2022【419五周年】五年前，没人相信咱能灭共；但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，中共内部很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服！<br/>
 ![img](https://media.gettr.com/group27/getter/2022/04/19/22/2432f667-e92e-6aed-7a35-b4f645291ea5/out.jpg)
-
----
-
-`@miles 4/19/2022 8:38 PM (UTC)`
-
-4/19/2022 【419 5th Anniversary】Meng Hongwei, the then president of Interpol, was very reluctant to issue the red notice to me. He was the first to tell me that the CCP was going to have the Interpol issue the red notice to me, begging me not to go against the CCP. He said exposing Wang Qishan’s dirt meant I would be doomed and that the moment I open my mouth in the live broadcast on April 19, 2017, would be the time of my whole family’s demise. The HNA arranged a mansion for Meng Hongwei to live in France, but he himself is finished.<br/><br/>4/19/2022【419五周年】时任国际刑警组织主席孟宏伟当时非常不情愿给文贵发红通，他最早告诉文贵中共要发红通，并恳求文贵不跟中共做对，他说爆王岐山的料就是万劫不复，在419直播一张开嘴就是文贵全家灭亡之时；海航曾给孟宏伟在法国安排大房子住，而他本人现已完蛋<br/>
-![img](https://media.gettr.com/group47/getter/2022/04/19/20/ea4c66b9-b03e-de85-8fd8-9feac3efa369/out.jpg)
 
 ---
 
