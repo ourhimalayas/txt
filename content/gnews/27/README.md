@@ -2,33 +2,48 @@
 ---
 
 
-## 中共国 “渗透”迎接香港人到英国的团体
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2379245/)
+## COVID-19疫苗副作用集萃（2022.4.20E）－打完疫苗心脏不舒服
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379284/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Biden_69010-625d37de51f76-768x4321-1.jpg)图片来源：www.thetimes.co.uk
-两个接受政府资助以迎接从香港迁往英国移民的团体被指控与中国共产党(CCP)有联系。这次可能揭示了人们担忧伯明翰华人社区中心(CCC-B)和南安普敦华人协会(CAS)被中共渗透。逃到英国的香港活动人士内森·劳尔(Nathan Lowe)和英国的香港外籍人士团体(HKB)对英国华人团体迎接香港公民表示担忧。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-伯明翰中心的两名董事曾参与一个英国华人项目，创立该计划的克里斯蒂娜·李(Christine Lee)律师曾警告军情五处，她曾试图代表中国共产党影响国会议员。该中心的赞助人詹姆斯·黄(James Wong)收到了34719英镑。
+整理/编辑：gardeniahu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-**简评：**
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-中共阴险的本性决定了其总是用卑鄙的手段实现自己的目的。从中共身上我们找不到一点贵族精神，只有下三滥。为了对香港人赶尽杀绝，竟然派人渗透到英国的香港人团体。仅仅派几个特务就可以给在英国的香港人产生巨大的影响，严重伤害香港人团体的声誉，其目的就是使在英国的香港人彼此隔阂，无法团结起来。
+帖子原文：
 
-同样的手段也被中共运用到国际外交中，中共通过对世界上有影响力人士展开“蓝金黄”，用贿赂、收买的办法扩大中共在国际上的影响力。虽然中共在这方面取得了巨大的成功，但这些行为都是卑鄙的，见不得光的。一旦真相被曝光，中共将被万人唾弃，千夫所指。一个国家真正的实力来自于对人的尊重，中共恰恰待人猪狗不如，因此中共想领导全世界的梦想是不可能成功的，随着病毒疫情和俄乌战争的发展，疫苗灾难和全球金融危机的到来，以及中共即将入侵台湾等一系列事件的发生，中共的灭亡已经进入了倒计时。
+博主：德国大羊要自律
 
-新闻链接: [China “infiltrates” groups welcoming Hong Kongers to Britain News](https://news.tahrir2day.com/2022/04/18/china-infiltrates-groups-welcoming-hong-kongers-to-britain-news/)
+读博日记 疫苗日 | 害怕心肌炎血栓的一天
 
-翻译/简评: kkoto(芬兰大灰狼) / PR: 感恩
+2021年10月14日－疫苗日。
 
-* * *
+今天完成了第二针辉瑞疫苗，给自己放了一天假。除了晚上跳了舞以外没有做任何自律的事情甚至连饭都懒得做了。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+打疫苗前看了很多负面消息不敢去打疫苗所以拖到周围所有人都打了我这才去。
 
+我还记得第一针的时候，大夫正从针管给我的胳膊输入液体的下一秒我就立马感到一阵晕眩。之后很累很累回到家睡了一觉，要知道我白天从来不睡觉的。过了几天后我心脏开始隐隐疼，我很怕心肌炎，就去诊所看病。大夫给我验血以及做心电图，说应该没事，之后我又觉得手指麻。但也不是很严重，我很担心血栓可是又很懒的去医院。所以，就默默忍受到现在为止倒也没什么大事。
 
-编辑：【英国伦敦喜庄园编辑部】
+今天第二针疫苗，我甚至昨晚只睡了四个小时，因为太紧张啦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+大夫问我心脏好了吗，我说没有。她很惊讶，但是还是说上次检查结果都没问题，所以应该没事。就给我打了第二针，这第二针疫苗不如第一针疼，打进去甚至没什么感觉。第一针我还手臂酸痛呢。这一次没有任何感觉，除了打了以后有点累以外，没什么感觉今天躺了一天后，也一点都不累了。晚上还生龙活虎的跳了舞，总之目前来讲没什么问题。
+
+没事几还是不要看负面消息了，给自己不好的心理暗示。
+
+发布于2021.10.15
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2464.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2465.png)图片来源：小红书
+素材来源：[打完疫苗心脏不舒服](https://www.xiaohongshu.com/discovery/item/61688fc20000000021038136?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650198437)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 12:42 PM (UTC)`
+
+2022.04.20 早  新中国联邦 | 新闻   中共是一切恐惧的根源；国际义工盛赞新中国联邦咖啡和救援帐篷
+![img](https://media.gettr.com/group47/origin/2022/04/20/12/e0ba3282-7dc5-b441-a933-fe096a52eb54/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 12:38 PM (UTC)`
 
  4月20号：尊敬的战友们好．共产党连流氓．土匪．这个名称都不配．任何一个团体和政府去剥夺人们的生存权．和自己创造财富支配的权利的时候，那就是必须被消灭的时候，只是时间和方式问题，没有人可以阻挡共产党的灭亡……
@@ -147,13 +154,6 @@
 
 2022.04.19 晚  新中国联邦 | 新闻访谈   419 断播逆增上缘爆料革命；新中国联邦即救华人也救世界；疫苗灾害即将到来，感染人数已经无法计数，为啥政府还在催打疫苗？
 ![img](https://media.gettr.com/group30/origin/2022/04/20/00/1403e01d-2e7f-7ba7-daa3-7ea3d6d7d2c5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/20/2022 12:05 AM (UTC)`
-
-【419 5th Anniversary】Mr. Miles Guo broke the news that then German Chancellor Angela Merkel flew on Wu Xiaohui's private jet to China for a secret meeting with Xi Jinping. This is one of the reasons why Wu Xiaohui must be taken out.<br/><br/>【419五周年】郭文贵先生爆料时任德国总理的默克尔搭乘吴小晖的私人飞机飞往中共国密会习近平。这也是为什么吴小晖必须被干掉的原因之一。<br/><br/>
-![img](https://media.gettr.com/group35/getter/2022/04/20/00/b6c95dd7-5508-812a-f8e6-fe9da2b74eb0/out.jpg)
 
 ---
 

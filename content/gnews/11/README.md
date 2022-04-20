@@ -2,43 +2,31 @@
 ---
 
 
-## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379563/)
+## 有声｜菲驻华大使被隔离死于黄山市 死因不明
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2379638/)
 
-**整理：枳实
-美工：精灵蓝**
+**By:秘翻新闻**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+***2022-04-20***
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-20-171855.jpg)
+[新唐人](https://www.ntdtv.com/gb/2022/04/19/a103404546.html)北京时间4月19日消息。中共极端防疫制造无数人道灾难，也波及外国驻华官员。菲律宾驻华大使日前在安徽省黄山市隔离期间去世，但官方未公布死因。
 
+4月19日，菲律宾外交部发表声明称，该国驻华大使罗玛纳在安徽省黄山市隔离期间过世，享年74岁。声明未提及死因。
 
-雅典娜疫情更新（2022年 4月20日）
+声明中表示，菲律宾驻华大使馆正与北京当局协调，将罗玛纳的遗体送回菲国。
 
-[往期《雅典娜疫情更新](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+据公开信息，3月31日到4月3日，中共外交部长王毅在黄山市屯溪区先后会晤到访的印尼、泰国、菲律宾和缅甸外长。罗玛纳当时陪同菲律宾外长出席会谈。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-418.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-171.jpg)
-数据来源：
-[谷歌](//www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](//ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统](//www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](//www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](//covidlive.com.au/)
-[Coronavirus World Map](//www.nytimes.com/interactive/2021/world/covid-cases.html)
+菲国外交部声明指，罗玛纳原定在黄山隔离期满后返回北京。
 
-发布：文武全才
+目前中共国多地疫情爆发，当局为保北京市“安全”，对进京人员采取严厉的限制措施。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
+（秘翻新闻 二丫编辑）
 
+发布:星星
 
-
-
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

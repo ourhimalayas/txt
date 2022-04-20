@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：让自己强大的唯一秘诀就是有信仰，我坚信我就是来灭共的！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2379506/)
+## 20220419郭文贵大直播 ：我们和共产党是战争状态，它会用一切手段让你痛！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2379550/)
 
 作者：东京樱花团小视频组
 

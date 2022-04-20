@@ -2,43 +2,22 @@
 ---
 
 
-## 俄罗斯石油公司罕见地发出招标以销售原油
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379602/)
+## 秘翻在线：乌克兰表示俄罗斯和马里乌波尔就平民撤离通道达成协议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2379672/)
 
-**翻译：文扬
-编辑：李易通**
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-40.jpg)图片来源：本文链接
+据韩媒《NEWSIS》4月20日的消息，根据美国有线电视新闻网（CNN）20日（当地时间）报道，乌克兰副总理伊琳娜·贝雷什克表示，就在被包围的马里乌波尔设置人道主义走廊问题已与俄罗斯达成了协议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3-148.jpg)图片来源：REUTERS/Sergei Karpukhin
+乌克兰副总理在telegram上写道：“我们达成了为女性、儿童、老人建立人道主义通道的事前协议”。
 
+据悉，预计当天下午2点（当地时间）民间人士将聚集起来躲避。护送车辆从马里乌波尔经过俄罗斯控制的别尔迪扬斯克，向北驶向乌克兰控制的扎波里贾。并强调了因非常困难的保安状况，在建设人道主义通道的过程中可能会发生变更事项，要遵从相关的官方信息。
 
-新加坡：贸易消息人士周三表示，俄罗斯最大的石油生产商俄罗斯石油公司（Rosneft）发布了一份罕见的招标书，向亚洲出售从萨哈林油田出口的索科尔原油，这是其供应增加导致紧急销售的迹象。
+据《卫报》等外媒报道，俄罗斯军队除了开设人道主义通道外，当天也向乌克兰军队坚持的最后基地阿佐斯塔尔钢铁厂的守卫队发出了投降的最后通牒。俄罗斯国防部要求乌克兰在莫斯科时间20日下午2时之前投降。
 
-他们说，该生产商提供了三批70万桶的货物，分别在5月7日-10日、14日-17日和5月27日-6月1日装船。
+信息来源：[http://news.tvchosun.com/site/data/html\_dir/2022/04/20/2022042090083.html](http://news.tvchosun.com/site/data/html_dir/2022/04/20/2022042090083.html)
 
-俄罗斯石油生产商在销售货物方面面临越来越多的困难，因为炼油厂和贸易公司因担心西方的制裁而避免与这些货物打交道，这些制裁是因俄罗斯入侵乌克兰而实施的，莫斯科称之为 “特别行动”。
-
-消息人士称，俄罗斯石油公司很少通过招标出售原油，因为其大部分石油已经根据长期融资计划承诺给维托尔和托克公司等贸易公司。
-
-他们说，由于亚洲炼油厂已经在上个月完成了5月份的原油采购，因此提供货物的时间很及时，超出了通常的交易周期。
-
-其中一位消息人士称，招标将于莫斯科时间4月21日下午2点（格林尼治标准时间11:00）结束，有效期至4月26日晚10点。
-
-交易员说，俄罗斯石油公司可能还发布了一个单独的招标，出售多达7批在5月装船的ESPO混合原油货物，尽管这无法得到独立核实。
-
-**原文链接**： [Rosneft issues rare tender to sell prompt Russian crude – sources (channelnewsasia.com)](//www.channelnewsasia.com/business/rosneft-issues-rare-tender-sell-prompt-russian-crude-sources-2635476)
-
-发布：文武全才
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
-
-
-
-
-
-
+责编：Eric Kim
 
  
 

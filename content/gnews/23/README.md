@@ -2,35 +2,43 @@
 ---
 
 
-## 俄罗斯宣布对马斯克的星链卫星发动太空战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379312/)
+## 2022年4月20日战时快讯（1）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379438/)
 
-#### 【雅典娜观察】，紧贴时代脉搏
+#### 雅典娜情报组《战时快讯专栏》
 
-翻译/编辑：文泓
+**整理/编辑：围剿维尼熊**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2467.png)图片来源：Republic World & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1B6B4284-E450-41FC-ACA4-F1F19C6CA15E.jpg)图片来源：百家号
 
 
-近日，马斯克Space X的星链(Starlink)互联网卫星激怒了俄罗斯，因为据报道，星链卫星被用来引导和转移黑海舰队旗舰巡洋舰莫斯科号的火力（攻击无人机），并最终导致其沉没。俄总参谋部的新数据揭示了这一点。
+1—俄罗斯国防部周二（4月19日）表示，已经开放了一条走廊，只要乌克兰军队同意交出武器，就能够离开。
 
-总理梅德韦杰夫下令摧毁位于俄罗斯联邦领土、军事特别行动区和黑海盆地上空的星链卫星，以确保所有参与对乌战争作战单位的安全。
+2—俄罗斯星期二(4月19日)表示将驱逐15名荷兰外交官，要求他们在两周内离境。
 
-他进一步表示，俄罗斯无意将外层空间军事化，但也不会允许其他国家这样做，这表明俄罗斯将对任何试图将外层空间军事化的人采取行动。梅德韦杰夫表示，黑海舰队司令奥西波夫四世将被免职。
+3—中国政府周二（4月19日）表示，已与所罗门群岛签署了一项安全协议。中索安全协议令美国及其盟国澳大利亚和新西兰，对于中国在这个传统上受其控制的地区日益扩张影响力感到担忧。
 
-另据《伦敦时报》报道，早些时候，埃隆·马斯克的星链卫星技术正在协助一支乌克兰精英无人机部队（Aerorozvidka）摧毁俄罗斯装备，这支部队专门从事空中侦察和无人机战争，使用配备红外摄像机的无人机在夜间观察俄罗斯军事装备，如坦克和指挥船。
+4—国际货币基金组织（IMF）周二（4月19日）发布《世界经济展望》报告，将中国2022年的经济增长预期再度下调至4.4%。
 
-“莫斯科号”的损失对俄罗斯军方来说是一个严重的打击，因为它是俄黑海舰队旗舰。莫斯科是一个浮动防空中心，拥有三层强大的防空武器，包括64枚远程S-300F导弹、40枚中程OSA-AM导弹和6个AK-630近距离武器系统。现在俄军在黑海的防空系统中留下了很大漏洞，敖德萨附近海域作业的所有俄罗斯船只均暴露。
+5—4月19日，推特上热传哥伦比亚大学撤销一名中国留学生的研究生录取资格的决定书，原因是这名学生在微信上多次发布“买枪轰死美国人”等言论。
 
-原文链接： [Russia announces space war on Elon Musk’s Starlink satellites, accepts Moskva was attacked (republicworld.com)](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-announces-space-war-on-elon-musks-starlink-satellites-accepts-moskva-was-attacked-articleshow.html)
+6—人权观察等60个人权团体星期二(4月19日)发表联合声明，呼吁联合国人权事务高级专员米歇尔·巴切莱特(Michelle Bachelet)对新疆的访问应当符合被视为可信的最低标准。
 
-发布：tianzhihuan
+7—以“颠覆国家政权罪”被中共当局判刑五年，并在日前服刑期满后安全返回台湾的非政府组织工作者李明哲星期二（4月19日）与妻子李净瑜共同发表声明，感谢美国政府和国会以实际行动维护台湾人权。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+8—英国首相鲍里斯·约翰逊(Boris Johnson)4月19日为在实行COVID-19防疫封闭措施期间参加被禁止的派对而道歉。
+
+以上讯息均来自于网络，仅供参考。
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+
 
  
 
