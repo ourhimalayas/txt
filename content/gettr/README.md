@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 11:27 AM (UTC)`
+
+【419 5th anniversary】04/19/2022 Mr. Miles Guo and the Whistleblowers’ Movement revealed the collusion between Terry Guo and Ko Wen-je and others with the Chinese Communist Party, which prevented the further fall of Taiwan.<br/><br/>【419五周年】04/19/2022 郭文贵先生及爆料革命揭示了郭台铭、柯文哲等人同中共的勾结，避免了台湾的进一步沦陷。<br/>
+![img](https://media.gettr.com/group20/getter/2022/04/20/11/b52493e4-f0fe-db2a-0a21-40dcee362fa6/out.jpg)
+
+---
+
 `@miles 4/20/2022 10:59 AM (UTC)`
 
 2022.04.20  新中国联邦 | 军情室  烏東頓巴斯戰役打響，北約最新援烏武器，台灣購買中共無人機
@@ -147,13 +154,6 @@
 
 《只因远方有你》<br/><br/>只因远方有你 <br/>不惜跋涉千里<br/>追逐灭共的风景<br/>像月亮追着大地<br/>每天总是惦记<br/>关于你的消息<br/><br/>就像鱼儿离不开水<br/>相随甜甜蜜蜜<br/>不负韶华年纪<br/>为理想不曾歇息<br/>相知相携万里<br/>共许佳期<br/><br/>我敲过你敲过的钟<br/>只为一起灭共<br/>我走过你走过的路<br/>只为盘古相逢<br/><br/>在这命运的安排里<br/>我与你生死结义<br/>唯愿故乡芳草萋萋<br/>蓝莲花开遍大地<br/><br/>“Just Because You Behold Us Afar ”<br/><br/>Just because you behold us afar <br/>I tread thousands of miles <br/>to chase the journey of eliminating <br/>the Chinese Communist Party<br/>Like the moon trailing the earth<br/>Every day I am eager to hear <br/>any piece of news about you <br/><br/>Just like a fish live within water<br/>in a sweet and honeylike way<br/>Leave no regrets to the precious moments of our lives<br/>Spare no effort to achieve our ambitions<br/>Thousands of miles away,<br/>we still come to know each other with firm-holding hands <br/>and make a promise to meet at that best moment yet to come<br/>……….
 ![img](https://media.gettr.com/group32/getter/2022/04/19/22/23bdd84e-a669-ee36-4637-4297141b8983/out.jpg)
-
----
-
-`@miles 4/19/2022 10:05 PM (UTC)`
-
-4/19/2022 【419 5th Anniversary】Not many people believed that we could take down the Chinese Communist Party five years ago. However, since the start of the Russia-Ukraine war, fundamental changes have occurred in the CCP’s system such that many insiders of the CCP have now realized that the CCP is the falling wall that is bound to collapse, and so is Xi Jinping. The Whistleblowers’ Movement has convinced them with our strength!<br/><br/>4/19/2022【419五周年】五年前，没人相信咱能灭共；但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，中共内部很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服！<br/>
-![img](https://media.gettr.com/group27/getter/2022/04/19/22/2432f667-e92e-6aed-7a35-b4f645291ea5/out.jpg)
 
 ---
 

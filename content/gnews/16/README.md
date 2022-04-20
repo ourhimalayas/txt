@@ -2,45 +2,46 @@
 ---
 
 
-## 港币终将被灭,若印尼和印度板块北移地震香港瞬间消失
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2378998/)
+## 谷歌否认在地图应用中提高俄军事基地的可见度
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2379077/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8839.40%EF%BC%89%E6%B8%AF%E5%B8%81%E7%BB%88%E5%B0%86%E8%A2%AB%E7%81%AD%2C%E8%8B%A5%E5%8D%B0%E5%B0%BC%E5%92%8C%E5%8D%B0%E5%BA%A6%E6%9D%BF%E5%9D%97%E5%8C%97%E7%A7%BB%E5%9C%B0%E9%9C%87%E9%A6%99%E6%B8%AF%E7%9E%AC%E9%97%B4%E6%B6%88%E5%A4%B1%E3%80%902022%E5%B9%B403%E6%9C%8817%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:d)
+翻译：噜噜咪
 
-**郭文贵先生**：那另外一个，今天我最后没有说完的，就香港经济形势和擀面杖子经济会走向何方？我告诉大家：香港港币最终一定会彻底灭掉。香港的房地产和经济会一塌糊涂。深圳和香港的这个地震——这一次，刚才没跟你说完的是，Day after，香港这个震是很吓人的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
 
-香港只要一地震，那就香港就成了死城了。但是这个地震原因在哪里，这肯定是自然现象。但是所有懂的地震专家都明白，你看到很多人已经发，已经发出了警告了，说：如果地球的这个西板块，也就是说昆仑山的这个中间这板块，也就叫印尼的，印尼和印度之间那个板块往北移的话，这可能是整个是人类的大劫难。那香港瞬间就没了。
+科技巨头谷歌周一否认了有关它已停止在其地图应用程序上“模糊”俄罗斯敏感军事基地图像的报道。
 
-昨天在东京的七点七级地震和深圳的地震，香港深度有感，真是我觉得是改天换地的时代。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2454-edited.png)一个人拿着智能手机，在莫斯科红场的地标背景上，运行谷歌地图应用程序。
 
-字幕来源：[2022年3月17日《文贵大直播》全文字版](https://gnews.org/zh-hans/2187401/)
+在社交媒体上的帖子坚称以前“模糊”的俄罗斯飞机、导弹和其他资产的卫星图像更加清晰可见后，谷歌发言人周一对俄罗斯政府新闻社说：“我们没有对我们在俄罗斯的卫星图像进行任何修改。”
+“现在每个人都可以看到各种俄罗斯发射器、洲际弹道导弹、指挥所和秘密填埋场，每个像素的分辨率约为0.5米，”乌克兰武装部队周一在Twitter上发帖，据称显示了俄罗斯飞机、导弹和船只的“未模糊”图像。
+根据《莫斯科时报》的报道，这些军事设施通常被“模糊”或以较低的像素显示，以保护“机密”地区的完整性。
+该新闻机构说，高质量的图像显然更清晰，因为始于2月24日入侵乌克兰后俄罗斯政府和谷歌之间的裂痕，该技术公司禁止俄罗斯广告。
+俄罗斯政府随后声称，谷歌拥有的YouTube通过禁止其媒体进入该平台开始了一场 “信息战争”。
+《每日邮报》在2016年报道说，谷歌地球因各种原因模糊了某些区域或使其无法辨认，包括敏感的军事区域甚至是个人住宅。
+《每日邮报》报道的其中一个被模糊的区域包括华盛顿州与俄勒冈州交界处附近的高频主动极光研究计划站点的可疑位置。
+根据2014年NBC新闻的报道，位于阿拉斯加的研究电离层中无线电波传输的设施被美国空军关闭，有人猜测该设施可能导致天气变化。
+据《每日邮报》报道，除了据称被谷歌模糊掉的更多阴谋性的地点外，另一个是菲律宾附近太平洋上的一个岛屿，据称是被用于核试验。
+ars Technica网站周一报道说，分辨率较高的俄罗斯基地图片包括利佩茨克空军基地，显示了被拆卸的米格飞机和几架苏霍伊战斗机。
 
-编辑整理：海贼王M.D.LUFFY；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2455.png)该网站报道说，一些图像还清楚地显示了在莫斯科附近的茹科夫斯基国际机场用于试飞的军用飞机。
 
-字幕档制作：兵嫂；
+该网站说，像这样的图像帮助“越来越多的公开来源的情报分析人员”。
 
-视频制作及上传：Cindy；
+素材链接： [Google Denies Making Russian Military Sites More Visible in Maps App](https://www.newsmax.com/newsfront/google-russia-ukraine-maps/2022/04/18/id/1066205/)
 
-G-News发布：海贼王M.D.LUFFY；
+* * *
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+审核：文乐
+校对：阿伯塔
+发布：花羽
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
