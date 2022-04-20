@@ -2,30 +2,26 @@
 ---
 
 
-## 俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378774/)
+## 朝鲜盗窃6.2亿美元加密货币
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2379083/)
 
-**港台前线 zhong｜2022-4-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-8.png)
-欧盟理事会主席查尔斯．米歇尔（Charles Michel）通过推特对外界传达（20日）他已抵达乌克兰首都基辅，并称“基辅是自由民主欧洲的中心”，外媒报导称他将与泽连斯基会面。米歇尔本次访问乌克兰形成，外界事前并不知悉。外媒有提及，米歇尔欧盟理事会主席的身分，代表着欧盟27成员国。
+编译：波士顿五月花—思澈
 
-此前，欧洲议会主席梅措拉（Roberta Metsola）4月1日[突然访问基辅](https://gnews.org/zh-hant/2273281/)，会面泽连斯基及乌克兰及国会议长。欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔于4月8日也访问了基辅。
+最大网络犯罪盗窃组织朝鲜使用被骇客的加密货币密钥盗取了数字货币6.2亿美元
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/DCC9F1B6-FA32-4779-9C22-17AB8B26BCAF.jpeg)
+
+经济危机法币继续超量发行的结果就是正如郭文贵先生所说【数字货币不久将成为全球金融体系不可或缺的一部分，数字货币的价值远超于法币。】从最大盗窃集团朝鲜不予余力所盗取的数字货币就可以看到数字货币未来的趋势。
+
+美国联邦调查局追踪调查出与朝鲜有关系的集团和组织骇客了网络游戏《Axie Infinity》的游戏玩家使用的网桥，该网桥可用于将游戏中的加密货币兑换成其他数字货币，朝鲜黑客入侵了该网桥盗取密钥提走了客户的数字货币。
+
+简评：密钥扮演着安全数字货币的重要角色，加密货币交易所的软件安全性最重要。喜马拉雅币交易平台的严格KYC管理制度就是保障用户的安全，加密货币的安全性越大其价值也越大。
+
+素材来源：[https://www.wiwo.de/politik/ausland/us-bundespolizei-fbi-nordkorea-hinter-massivem-millionendiebstahl-in-kryptowaehrungen/28256192.html](https://www.wiwo.de/politik/ausland/us-bundespolizei-fbi-nordkorea-hinter-massivem-millionendiebstahl-in-kryptowaehrungen/28256192.html)
+
+*发布：思澈*
 
 
-
-> In Kyiv today. 
-> 
-> In the heart of a free and democratic Europe. [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) [pic.twitter.com/7DxTeoxtMc](https://t.co/7DxTeoxtMc)
-> — Charles Michel (@eucopresident) [April 20, 2022](https://twitter.com/eucopresident/status/1516668856651165708?ref_src=twsrc%5Etfw)
-
-
-
-来源｜[POLITICO](https://www.politico.eu/article/charles-michel-visit-kyiv-ukraine-eu/)、[GNEWS](https://gnews.org/zh-hant/2273281/)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

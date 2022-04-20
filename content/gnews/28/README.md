@@ -2,39 +2,65 @@
 ---
 
 
-## 俄罗斯石油公司罕见地发出招标以销售原油
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379602/)
+## COVID-19疫苗副作用集萃（2022.4.20H）－辉瑞第一针，肺部栓塞
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379712/)
 
-**翻译：文扬
-编辑：李易通**
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3-148.jpg)图片来源：REUTERS/Sergei Karpukhin
+**整理/编辑：gardeniahu**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-29.png)图片来源：雅典娜设计组(614)
 
 
-新加坡：贸易消息人士周三表示，俄罗斯最大的石油生产商俄罗斯石油公司（Rosneft）发布了一份罕见的招标书，向亚洲出售从萨哈林油田出口的索科尔原油，这是其供应增加导致紧急销售的迹象。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-他们说，该生产商提供了三批70万桶的货物，分别在5月7日-10日、14日-17日和5月27日-6月1日装船。
+[副作用集萃 – GNEWS](//gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-俄罗斯石油生产商在销售货物方面面临越来越多的困难，因为炼油厂和贸易公司因担心西方的制裁而避免与这些货物打交道，这些制裁是因俄罗斯入侵乌克兰而实施的，莫斯科称之为 “特别行动”。
+帖子原文：
 
-消息人士称，俄罗斯石油公司很少通过招标出售原油，因为其大部分石油已经根据长期融资计划承诺给维托尔和托克公司等贸易公司。
+博主：A.
 
-他们说，由于亚洲炼油厂已经在上个月完成了5月份的原油采购，因此提供货物的时间很及时，超出了通常的交易周期。
+辉瑞第一针,心脏地震
 
-其中一位消息人士称，招标将于莫斯科时间4月21日下午2点（格林尼治标准时间11:00）结束，有效期至4月26日晚10点。
+我真的一整个无语住，第一针打完当天出现心率偏快以及心率不齐，在家休息一晚后症状逐步消失。
 
-交易员说，俄罗斯石油公司可能还发布了一个单独的招标，出售多达7批在5月装船的ESPO混合原油货物，尽管这无法得到独立核实。
+今天已经是第五天，早上起来准备洗漱，突然心脏剧烈疼痛，发紧，不敢呼吸，小口呼吸又吸不够气，整个人说不出话也无法移动。
 
-**原文链接**： [Rosneft issues rare tender to sell prompt Russian crude – sources (channelnewsasia.com)](//www.channelnewsasia.com/business/rosneft-issues-rare-tender-sell-prompt-russian-crude-sources-2635476)
+幸好iwatch戴在手上，立刻测心率，我老公过来看到这个起伏也是一整个说不出话。整个过程持续了有差不多两分钟，才慢慢缓解。
+
+所以这就是传说中的血栓？！准备马上出门买Q10 和Nitro spray。
+
+坐标多伦多，还有什么可以买的药快告诉我。
+
+～更新～
+
+从ER回来了，排除心肌炎，查血发现D-Dimmer数值1100+（正常应该&lt; 500），血红蛋白相关数值偏低但不离谱，CT结果确认肺部栓塞。
+
+医生开了拜瑞妥吃半年，还预约了后续检查，好累，等回复下精神再更新下进ER的过程吧。
+
+#辉瑞第一针 #辉瑞 #辉瑞疫苗副作用
+
+#iWatch #辉瑞副作用
+
+发布于01.29
+
+精选评论
+
+徐诗晴回复：心脏剧烈疼痛你应该去急诊。
+
+A.回复：已经进了ER确认血栓了…医生说还要进一步检查。无语了一天。
+
+神奇的海螺回复：你这个明显是干扰了或者测量失败，不是正确的心电图。可能是当时测的时候太紧张了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-419.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-172.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-149.jpg)图片来源：小红书
+素材来源：[辉瑞第一针肺部栓塞](//www.xiaohongshu.com/discovery/item/61f5561f000000000102cf3f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650198500)
 
 发布：文武全才
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
 
 

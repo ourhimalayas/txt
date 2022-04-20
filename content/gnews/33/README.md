@@ -2,35 +2,43 @@
 ---
 
 
-## 俄罗斯宣布对马斯克的星链卫星发动太空战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379312/)
+## 俄罗斯石油公司罕见地发出招标以销售原油
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379602/)
 
-#### 【雅典娜观察】，紧贴时代脉搏
+**翻译：文扬
+编辑：李易通**
 
-翻译/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2467.png)图片来源：Republic World & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3-148.jpg)图片来源：REUTERS/Sergei Karpukhin
 
 
-近日，马斯克Space X的星链(Starlink)互联网卫星激怒了俄罗斯，因为据报道，星链卫星被用来引导和转移黑海舰队旗舰巡洋舰莫斯科号的火力（攻击无人机），并最终导致其沉没。俄总参谋部的新数据揭示了这一点。
+新加坡：贸易消息人士周三表示，俄罗斯最大的石油生产商俄罗斯石油公司（Rosneft）发布了一份罕见的招标书，向亚洲出售从萨哈林油田出口的索科尔原油，这是其供应增加导致紧急销售的迹象。
 
-总理梅德韦杰夫下令摧毁位于俄罗斯联邦领土、军事特别行动区和黑海盆地上空的星链卫星，以确保所有参与对乌战争作战单位的安全。
+他们说，该生产商提供了三批70万桶的货物，分别在5月7日-10日、14日-17日和5月27日-6月1日装船。
 
-他进一步表示，俄罗斯无意将外层空间军事化，但也不会允许其他国家这样做，这表明俄罗斯将对任何试图将外层空间军事化的人采取行动。梅德韦杰夫表示，黑海舰队司令奥西波夫四世将被免职。
+俄罗斯石油生产商在销售货物方面面临越来越多的困难，因为炼油厂和贸易公司因担心西方的制裁而避免与这些货物打交道，这些制裁是因俄罗斯入侵乌克兰而实施的，莫斯科称之为 “特别行动”。
 
-另据《伦敦时报》报道，早些时候，埃隆·马斯克的星链卫星技术正在协助一支乌克兰精英无人机部队（Aerorozvidka）摧毁俄罗斯装备，这支部队专门从事空中侦察和无人机战争，使用配备红外摄像机的无人机在夜间观察俄罗斯军事装备，如坦克和指挥船。
+消息人士称，俄罗斯石油公司很少通过招标出售原油，因为其大部分石油已经根据长期融资计划承诺给维托尔和托克公司等贸易公司。
 
-“莫斯科号”的损失对俄罗斯军方来说是一个严重的打击，因为它是俄黑海舰队旗舰。莫斯科是一个浮动防空中心，拥有三层强大的防空武器，包括64枚远程S-300F导弹、40枚中程OSA-AM导弹和6个AK-630近距离武器系统。现在俄军在黑海的防空系统中留下了很大漏洞，敖德萨附近海域作业的所有俄罗斯船只均暴露。
+他们说，由于亚洲炼油厂已经在上个月完成了5月份的原油采购，因此提供货物的时间很及时，超出了通常的交易周期。
 
-原文链接： [Russia announces space war on Elon Musk’s Starlink satellites, accepts Moskva was attacked (republicworld.com)](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-announces-space-war-on-elon-musks-starlink-satellites-accepts-moskva-was-attacked-articleshow.html)
+其中一位消息人士称，招标将于莫斯科时间4月21日下午2点（格林尼治标准时间11:00）结束，有效期至4月26日晚10点。
 
-发布：tianzhihuan
+交易员说，俄罗斯石油公司可能还发布了一个单独的招标，出售多达7批在5月装船的ESPO混合原油货物，尽管这无法得到独立核实。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**原文链接**： [Rosneft issues rare tender to sell prompt Russian crude – sources (channelnewsasia.com)](//www.channelnewsasia.com/business/rosneft-issues-rare-tender-sell-prompt-russian-crude-sources-2635476)
+
+发布：文武全才
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
+
+
+
+
+
+
 
  
 

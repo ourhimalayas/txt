@@ -2,29 +2,48 @@
 ---
 
 
-## 台湾｜外媒忧台湾网路遭断 美前军事顾问：断开海缆、断开与世界的连结
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2379119/)
+## COVID-19疫苗副作用集萃（2022.4.20E）－打完疫苗心脏不舒服
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379284/)
 
-**港台前线 zhong｜2022-4-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-9.png)
-外媒18日报导，俄乌战争让台湾和一些亚太国家重新审视自身网路的脆弱程度，并担忧中共攻台会将台湾网路的海底电缆切断。前白宫军事顾问、现华府智库“战略与国际研究中心”（CSIS）高级顾问简以荣(Ivan Kanapathy)指出，北京可能透过乌克兰战事来判断攻台方针，断开台湾与世界的联系，将大幅提升自己的胜率，美媒点出，海底电缆将是中（共）国首要目标。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_2022-04-20-18.03.15.jpeg)
-俄乌战争中，乌克兰人通过网路反击莫斯科的虚假外宣，并成功争取到国际支持，该国总统连斯基(Volodymyr Zelensky)透过网路发出的为乌克兰提供武器的号召。与台湾不同的是，乌克兰坐拥陆路网路连接，虽然网路通讯基础设施受到俄罗斯的重击，但乌克兰大部分地区仍有网路连接，且马斯克亦提供星链服务。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-台湾95%的数据和语音流量通过海底光缆接收和发送。台湾官员表示，目前有约有14条光缆，在台湾海岸的四个位置连接到岛上。这些电缆在海里被潜艇或潜水员切断，或者防护薄弱的电缆登陆站被军事打击摧毁，那么台湾岛的大部分地区将断网。台湾网路资讯中心（TNIC）执行长黄胜雄也坦言，台湾在这方面非常脆弱。
+整理/编辑：gardeniahu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-此外，郭文贵直播爆料称中共已执行“[台湾之子行动](https://gnews.org/zh-hant/2355731/)”，该计划旨在台湾社会引起动乱（诱发台湾内部问题）后趁机拿下，从15日晚间开始，台湾将会接续面临水、电、交通、机场、网路等问题。与外媒报导相符合。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-此外，郭表示中共攻台某程度就等同于对美日宣战，美日别无选择一定会参战，但台湾必须先奋力反抗侵略，待联合国及国际完成外交应对后，国际方能介入。且习近平敢在台海使用核武器。
+帖子原文：
 
+博主：德国大羊要自律
 
+读博日记 疫苗日 | 害怕心肌炎血栓的一天
 
-来源｜[WSJ](https://www.wsj.com/articles/ukraine-war-stokes-concerns-in-taiwan-over-its-fragile-internet-links-11650285592)、[YAHOO](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E6%94%BB%E5%8F%B0%E9%A6%96%E8%A6%81%E7%9B%AE%E6%A8%99-%E7%BE%8E%E5%89%8D%E8%BB%8D%E4%BA%8B%E9%A1%A7%E5%95%8F-%E6%96%B7%E9%96%8B%E6%B5%B7%E7%BA%9C-%E6%96%B7%E9%96%8B%E8%88%87%E4%B8%96%E7%95%8C%E7%9A%84%E9%80%A3%E7%B5%90-101600365.html)、[GNEWS](https://gnews.org/zh-hant/2355731/)
+2021年10月14日－疫苗日。
 
-* * *
+今天完成了第二针辉瑞疫苗，给自己放了一天假。除了晚上跳了舞以外没有做任何自律的事情甚至连饭都懒得做了。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+打疫苗前看了很多负面消息不敢去打疫苗所以拖到周围所有人都打了我这才去。
+
+我还记得第一针的时候，大夫正从针管给我的胳膊输入液体的下一秒我就立马感到一阵晕眩。之后很累很累回到家睡了一觉，要知道我白天从来不睡觉的。过了几天后我心脏开始隐隐疼，我很怕心肌炎，就去诊所看病。大夫给我验血以及做心电图，说应该没事，之后我又觉得手指麻。但也不是很严重，我很担心血栓可是又很懒的去医院。所以，就默默忍受到现在为止倒也没什么大事。
+
+今天第二针疫苗，我甚至昨晚只睡了四个小时，因为太紧张啦。
+
+大夫问我心脏好了吗，我说没有。她很惊讶，但是还是说上次检查结果都没问题，所以应该没事。就给我打了第二针，这第二针疫苗不如第一针疼，打进去甚至没什么感觉。第一针我还手臂酸痛呢。这一次没有任何感觉，除了打了以后有点累以外，没什么感觉今天躺了一天后，也一点都不累了。晚上还生龙活虎的跳了舞，总之目前来讲没什么问题。
+
+没事几还是不要看负面消息了，给自己不好的心理暗示。
+
+发布于2021.10.15
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2464.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2465.png)图片来源：小红书
+素材来源：[打完疫苗心脏不舒服](https://www.xiaohongshu.com/discovery/item/61688fc20000000021038136?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650198437)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
