@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 3:28 PM (UTC)`
+
+4月20号，《铁锁梦》MV在全球上线第二天，登榜iTunes <br/>23国MV总榜第一名🥇<br/>23国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼， 新加坡🇸🇬， 马来西亚🇲🇾， 新西兰🇳🇿， 澳大利亚🇦🇺，西班牙🇪🇸，荷兰🇳🇱，德国🇩🇪，法国🇫🇷，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，瑞典🇸🇪，英国🇬🇧，意大利🇮🇹，泰国🇹🇭，柬埔寨🇰🇭，越南🇻🇳，希腊🇬🇷，丹麦🇩🇰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2380546/<br/>
+
+---
+
+`@miles 4/20/2022 3:26 PM (UTC)`
+
+04/20/2022 on the 2nd day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 23 countries Top Music Video Charts <br/>No.1 🥇 on 23 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰 , USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Malaysia🇲🇾, New Zealand🇳🇿, Australia🇦🇺, Spain🇪🇸, Netherlands🇳🇱, Germany🇩🇪, France🇫🇷, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Sweden🇸🇪, UK🇬🇧, Italy🇮🇹, Thailand🇹🇭, Cambodia🇰🇭, Vietnam🇻🇳, Greece🇬🇷 , Denmark🇩🇰🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2380661/<br/><br/>
+
+---
+
 `@miles 4/20/2022 2:26 PM (UTC)`
 
 【419 5th anniversary】04/19/2022 Mr. Miles Guo is not optimistic about Taiwan's defensive capabilities: everyone is counting on the US to come to their rescue, fearing for their lives; lack of experience in real combat and inability to counter a saturated attack from the CCP; internal corruption and even the purchasing of drones produced by the CCP. The people of Taiwan need to be mentally prepared.<br/><br/>【419五周年】04/19/2022 郭文贵先生对台湾的防御能力毫不乐观：所有人都指望美国前来解救，贪生怕死；缺乏实战经验，无力对抗来自中共的饱和性进攻；内部腐败，甚至购买产自中共的无人机。台湾人民需要做好心理准备。<br/>
@@ -140,20 +152,6 @@
 
 <br/>【419 5th Anniversary】 4/19/2022 April 19, 2017, was absolutely the real beginning of the Whistleblowers’ Movement. We have proved over the five years that we respect women and love our mothers. 70% of the fellow fighters of the Whistleblowers’ Movement are females, who have set a new image of the females of the new China in the world and will be the most wealthy, the most powerful, and the most influential. The past five years are the most spectacular years that we have spent together with all the conscientious Chinese.<br/><br/>【419五周年】4/19/2022 419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人；过去的5年是我们和中国有良知的人度过的最最伟大的5年！<br/>
 ![img](https://media.gettr.com/group34/getter/2022/04/20/02/2663306b-7bef-5ac7-a3cd-41ba573af9f8/out.jpg)
-
----
-
-`@miles 4/20/2022 2:02 AM (UTC)`
-
-2022.04.19  新中国联邦 | 喜财经  粮食危机各国端倪；战争最后的较量是金钱
-![img](https://media.gettr.com/group16/origin/2022/04/20/01/231fc08a-3672-3b68-bed2-4c743fc82cb8/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/20/2022 2:02 AM (UTC)`
-
-4/19/2022 【419 5th Anniversary】 Most of those who were tested positive for COVID-19 in Shanghai were due to the adverse reactions to the COVID vaccines. A Fellow fighter, an insider of the CCP’s system, revealed the CCP had gone so insane that it would implement a massive lockdown and test the limits of what people can tolerate. And the CCP would also take the opportunity to get rid of some older adults. Just having food and water is not enough to get through it.<br/><br/>4/19/2022【419五周年】上海绝大多数人核酸检测呈阳性是疫苗反应造成的。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这可不光是有粮食有水就行的！<br/>
-![img](https://media.gettr.com/group7/getter/2022/04/20/02/e461f0e1-e924-d92d-7730-96ac795c575d/out.jpg)
 
 ---
 

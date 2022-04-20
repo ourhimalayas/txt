@@ -2,30 +2,41 @@
 ---
 
 
-## 美国防部长请求与中共军方许其亮进行通话被降级对待
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2380252/)
+## 有声|日媒表示只有自己反抗才会获得他人帮助
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2380324/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-3-ee7c9d049a.jpg)图片来源：路透社
-4月20日，《新闻极限》引述美联社的文章，报道自国防部长劳埃德·奥斯汀（Lloyd Austin）成为五角大楼负责人一年多以来，周三，他第一次与中共军方人士进行了通话。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月15日，日本媒体在节目中分析了乌克兰保卫领土的反抗对台海局势的影响。
 
-文章称，之所以有此次通话，是因为美国官员担心北京可能为俄罗斯入侵乌克兰的战争提供军事支持。
+嘉宾指出，无论台湾对美国的援助相信与否，保卫本国领土是自己应该做的，就是像乌克兰一样，从开始就反抗。美国不会代替受害国参与战争，只有受害国开始反抗，美国才可能伸出援手。尽管台湾在芯片等高科技领域，处于世界上无可代替的地位，但一味地等待别人出手相助，是非常错误的想法。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-63.jpg)
+嘉宾还进一步指出，日本也处于同样的境地。尽管有日美同盟、日欧、日澳等同盟关系，可当日本面临战争的时候，也只有先站起来反抗，才会真正得到这些盟友的支持。
 
-美国军方几个月以来一直想与中共军方军衔最高的许其亮将军通话但均以失败告终，此次奥斯汀直接要求与许其亮将军进行电话会谈
+郭先生从去年就告诫过，台湾只要能坚持极短的时间，国际社会一定会进行支援。而灭共也同样如此，所有外国的帮助都是锦上添花，真正灭共的主力军是我们新中国联邦人。
 
-但是，虽然奥斯汀想与许其亮通话，但却被中共方面拒绝，代之的是级别较低的魏凤和与其进行通话。
 
-以前，奥斯汀的前任们通常都是与魏凤和交谈，最近一次是在2020年8月6日，当时的国防部长马克·埃斯珀（Mark Esper）向他提出了美国要求在中共病毒（Covid-19）的起源和其他问题上提高透明度的要求。
 
-一位高级国防官员说，在周三的电话中，奥斯汀回应了拜登关于管理美中战略竞争的重要性的信息，包括在核、太空和网络领域，以及改善全球大国之间的危机沟通。
 
-该官员说，针对中国对台湾进行的军事挑衅，奥斯汀提出了关切，还表达了美国对中国在南中国海和东中国海活动的关切，并提出了美国对朝鲜核武器计划的担忧。
 
-*责编：彩虹*
+文字版原文：[日媒表示只有自己反抗才会获得他人帮助](https://gnews.org/zh-hans/2377432/)
 
-**新闻来源**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[Defense Secretary Austin Speaks for 1st Time to Chinese Counterpart](https://www.newsmax.com/newsfront/united-states-lloyd-austin-military-pentagon/2022/04/20/id/1066442/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
