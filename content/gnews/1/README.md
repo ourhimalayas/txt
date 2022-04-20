@@ -2,48 +2,34 @@
 ---
 
 
-## 联合国难民署：俄乌战争难民人数已经超过500万
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2380637/)
+## 多伦多发生乘客被随机推下地铁事件
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380940/)
 
-撰稿：Gradient Boost
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-51.png)
+&lt;环球新闻&gt;4月18日报道，多伦多警方发布新闻，一名女子周日晚间被一名陌生人推下地铁站台，险些被地铁列车撞倒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-427.jpg)
-网络图片
+事件发生在市中心的Bloor-Yonge地铁站，时间是晚上9点左右。一名39岁的妇女被推下站台后摔成重伤，但幸运的是未被列车撞到，没有生命危险。这名妇女随后设法爬到了月台下面，以避免被穿行列车撞到。
 
-联合国难民署周三报道，随着乌克兰战争接近八周，自俄罗斯军队于 2 月 24 日入侵以来，已有超过 500 万人逃离该国。当 3 月 30 日这一数字达到 400 万时，外逃人数超过了常驻日内瓦的联合国难民事务高级专员对最坏情况的预测。
+警方称，嫌疑人和受害者并不认识，目前尚不清楚推人之前具体发生了什么，但警方表示，事件发生之前，二人之间并无发生任何争执。 嫌疑人被描述为一名金发女性，中等身材，身穿灰色Levis衬衫，黑色夹克，黑色裤子，白色鞋子，头戴粉灰色帽子。周一上午，警方公布了嫌疑人的照片，目前警方仍在寻找该名嫌犯中。
 
-随着俄罗斯在乌克兰东部发动全面攻势，欧洲自二战以来最大的难民危机进一步发酵。乌克兰在战前有 4400 万人口，联合国难民署表示，截至周三，乌克兰境内有超过 700 万人因冲突而流离失所，另有 503 万人流离失所。据该机构称，据信有1300万人被困在乌克兰受战争影响的地区。
+近期美加地区发生多起随机伤人事件，更有多宗专门针对亚裔团体仇恨事件发生，请广大战友出门多加小心。
 
-联合国难民署发言人沙比亚·曼图表示：“我们已经看到大约四分之一的乌克兰人口，总共超过 1200 万人被迫逃离家园，所以这是一个惊人的人数。”
+原文链接：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
 
-超过一半的难民，超过 280 万，至少在开始时逃到了波兰。他们有资格获得国民身份证号码，使他们有权工作、免费医疗保健、上学和有孩子的家庭的奖金。尽管其中许多人留在了那里，但未知数量的难民已经前往其他国家。
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-在南部，匈牙利已成为乌克兰难民的主要中转站。在抵达的 465,000 多人中，约有 16,400 人申请了受保护身份，这意味着他们想留下来。许多人是乌克兰的匈牙利少数民族成员。匈牙利政府表示，它已向几个慈善组织提供了大约 870 万美元，并正在向雇用获得庇护的乌克兰人的公司提供补贴。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-收容难民的欧洲国家表示，他们需要国际帮助来应对挑战，尤其是现在俄罗斯加强了对乌克兰东部顿巴斯地区的袭击。华沙市长 Rafal Trzaskowski 表示：“如果第二波难民潮来临，那么一个真正的问题就会出现，因为我们有足够的应对能力——我们不能接受更多。”
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-*编辑：Gradient Boost*
-
-*发布：疯狂的韭菜*
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/russia-ukraine-travel-poland-europe-united-nations-a4c14d4959daa171eb8152fd1766f7fd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-
-
-**更多信息，更多关注**
-
-[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

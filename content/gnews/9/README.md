@@ -2,25 +2,32 @@
 ---
 
 
-## 上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380522/)
+## 安大略省新冠疫情最新简报
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380563/)
 
-**撰稿：日本东京方舟农场  胖小哥**
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-50.png)
+据加拿大媒体【渥太华居民】4月18日报道，安大略省医院最新报告显示，目前有1301人因新冠疫情住院，比一周前高出约19%。
 
-据美国之音报道称，微博封杀中国国歌歌词，西方观察人士直呼“太虚幻了”。该报道说，这不是中国社媒第一次封杀国歌内容。2020年武汉疫情爆发初期，“吹哨人”李文亮医生之死触发了网民们对当局的愤怒。当时，豆瓣曾以“含有激进时政或意识形态“为由封杀了同一句国歌歌词。
+报道称，安大略省解封后近22%的长期护理院目前报告了活跃的新冠阳性病人，同时该省于4月18日还记录了两例新增新冠死亡病例。安大略省新冠顾问小组的科学主任表示，由于PCR检测受到限制，只能通过废水检测预测该省每天有10万至12万例新增病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-424.jpg)图片源自网络
+据悉，因新冠病毒而进入ICU的患者人数比同期增加了约10%，从184人上升至202人。此外，该省表示，超过10%的医院周末无法提供有关因新冠而住院治疗的数据。
 
-上海封城后，这句歌词和其中的一些关键字也成为了一些网民批评政府时引用的语句。上海说唱歌手方略Astro发布歌曲“New Slave”（新奴隶），批评政府滥用权力，忽视生命。他唱道，“当自由和思想意志被权力禁锢，当绿色的通道封锁上成为了禁路，当穿上了制服却只关心自己仕途，当生命当尊严都被他们视为粪土。”
+原文链接：[Ontario reports 1,301 people in hospital with COVID-19 and 202 in ICU | Ottawa Citizen](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14)
 
-他在视频中说，“我写这首歌的本意，是因为我看到了生命的逝去和我的无能为力。而我感到深切的悲伤。我都来源于我对这一切的爱，” 他在自己YouTube频道上的一份声明中写道。但他也表示“希望大家能理性发声”。
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 文莱
+素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-参考链接：
-[上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220420-%E4%B8%8A%E6%B5%B7%E6%9C%89%E4%BA%BA%E5%94%B1%E5%9B%BD%E6%AD%8C%E5%AE%A3%E6%B3%84%E5%AF%B9%E5%B0%81%E5%9F%8E%E4%B8%8D%E6%BB%A1-%E5%AE%98%E6%96%B9%E5%BE%84%E7%9B%B4%E5%B0%81%E7%A6%81-%E8%B5%B7%E6%9D%A5-%E8%AF%8D)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-总编：老孙
-校对发布：爱放飞
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

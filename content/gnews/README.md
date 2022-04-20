@@ -15,131 +15,131 @@
 
 ---
 
-### [联合国难民署：俄乌战争难民人数已经超过500万](/content/gnews/1/README.md)
- ` 澳喜特战旅Gnews`
-
-### [与中共国的动荡关系成为澳大利亚选前首场辩论的焦点](/content/gnews/2/README.md)
- ` 温哥华扬帆农场`
-
-### [抵加乌克兰难民面临艰巨挑战](/content/gnews/3/README.md)
+### [多伦多发生乘客被随机推下地铁事件](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [第二次全球新冠病毒峰会的主要议题仍旧是接种毒疫苗](/content/gnews/4/README.md)
+### [俄罗斯钢琴家的音乐会由于乌克兰作品被强行中止](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [04/20/22 香港快讯 「快必」发表煽动文字等11罪成 判囚3年4个月](/content/gnews/3/README.md)
+ ` 英喜-粵語組`
+
+### [日本一次驱逐的8名俄罗斯外交人员已离境](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [联合国难民署：俄乌战争难民人数已经超过500万](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美国及世界疫情简报（04-20-2022）](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
+
+### [抵加乌克兰难民面临艰巨挑战](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [第二次全球新冠病毒峰会的主要议题仍旧是接种毒疫苗](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚部分地区进一步放宽隔离政策](/content/gnews/5/README.md)
- ` 澳喜特战旅Gnews`
-
-### [安大略省新冠疫情最新简报](/content/gnews/6/README.md)
+### [安大略省新冠疫情最新简报](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [乌克兰情报局：俄军计划入侵白俄罗斯](/content/gnews/7/README.md)
+### [乌克兰情报局：俄军计划入侵白俄罗斯](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [为寻求一场胜利，俄罗斯已部署二万名雇佣兵](/content/gnews/8/README.md)
+### [MV版《铁锁梦》上线第2天位列23国iTunesMV榜首！](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [为寻求一场胜利，俄罗斯已部署二万名雇佣兵](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词](/content/gnews/9/README.md)
+### [上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [招行股价大跌 行长田惠宇就地免职](/content/gnews/10/README.md)
+### [招行股价大跌 行长田惠宇就地免职](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [欧米克隆国产疫苗获准在香港临床试验](/content/gnews/11/README.md)
+### [欧米克隆国产疫苗获准在香港临床试验](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [饿死的原理及其防治策略——大饥荒时代的生存指南](/content/gnews/12/README.md)
+### [饿死的原理及其防治策略——大饥荒时代的生存指南](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|郭文贵先生剖析俄乌战争的本质：独裁与自由之战](/content/gnews/13/README.md)
+### [有声|郭文贵先生剖析俄乌战争的本质：独裁与自由之战](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [数字货币简报（2022.4.19)](/content/gnews/14/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [中共在“清零”政策掩护下的毒疫苗杀人计划](/content/gnews/15/README.md)
+### [中共在“清零”政策掩护下的毒疫苗杀人计划](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [批「清零」被消音：专家钟南山、人大学者刘小兵文章被屏蔽](/content/gnews/16/README.md)
+### [批「清零」被消音：专家钟南山、人大学者刘小兵文章被屏蔽](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [大直播后记：共产主义和马克思思想把女性当奴隶](/content/gnews/17/README.md)
+### [大直播后记：共产主义和马克思思想把女性当奴隶](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [《我曾经最美的祖国》](/content/gnews/18/README.md)
+### [《我曾经最美的祖国》](/content/gnews/21/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [文贵先生“不反习”的智慧](/content/gnews/19/README.md)
+### [文贵先生“不反习”的智慧](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|日媒表示只有自己反抗才会获得他人帮助](/content/gnews/20/README.md)
+### [有声|日媒表示只有自己反抗才会获得他人帮助](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [秦刚在美《国家利益》撰文，粉饰中俄关系](/content/gnews/21/README.md)
+### [秦刚在美《国家利益》撰文，粉饰中俄关系](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
 
-### [有声|无惧俄威胁 马立波市奋战抗敌](/content/gnews/22/README.md)
+### [有声|无惧俄威胁 马立波市奋战抗敌](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [美国防部长请求与中共军方许其亮进行通话被降级对待](/content/gnews/23/README.md)
+### [美国防部长请求与中共军方许其亮进行通话被降级对待](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：孟宏伟和紅色通緝令](/content/gnews/24/README.md)
+### [大直播后记：孟宏伟和紅色通緝令](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [有声|欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆](/content/gnews/25/README.md)
+### [有声|欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [【粤语配音】2022年4月19日：爆料革命在逆增援中赢得共鸣](/content/gnews/26/README.md)
+### [【粤语配音】2022年4月19日：爆料革命在逆增援中赢得共鸣](/content/gnews/29/README.md)
  ` MOS香港部`
 
-### [中国人吃草的日子恐怕开始了](/content/gnews/27/README.md)
+### [中国人吃草的日子恐怕开始了](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [黑夜颂词｜愚蠢的人掌权后会有什么表现？](/content/gnews/28/README.md)
+### [黑夜颂词｜愚蠢的人掌权后会有什么表现？](/content/gnews/31/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [大直播后记：尝过权力滋味的人是停不下来的](/content/gnews/29/README.md)
+### [大直播后记：尝过权力滋味的人是停不下来的](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
-### [有声|乌克兰哈尔科夫接连四天遭受炮击](/content/gnews/30/README.md)
+### [有声|乌克兰哈尔科夫接连四天遭受炮击](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [20多名被救援的儿童，在NFSC大帐篷度过复活节](/content/gnews/31/README.md)
+### [20多名被救援的儿童，在NFSC大帐篷度过复活节](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [大直播后记：七哥和爆料革命是上帝的安排](/content/gnews/32/README.md)
+### [大直播后记：七哥和爆料革命是上帝的安排](/content/gnews/35/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19疫苗副作用集萃（2022.4.20J）－打完安徽智飞第三针手臂痒痛](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【粤语配音】2022年4月19日：文贵用五年时间证明谁是危墙，爆料革命改变中国](/content/gnews/34/README.md)
+### [【粤语配音】2022年4月19日：文贵用五年时间证明谁是危墙，爆料革命改变中国](/content/gnews/36/README.md)
  ` MOS香港部`
 
-### [民意调查显示，越来越多的瑞典人赞成加入北约](/content/gnews/35/README.md)
+### [民意调查显示，越来越多的瑞典人赞成加入北约](/content/gnews/37/README.md)
  ` Shuizhuyu`
 
-### [联合国机构说逃离乌克兰战争的难民人数超过500万](/content/gnews/36/README.md)
+### [联合国机构说逃离乌克兰战争的难民人数超过500万](/content/gnews/38/README.md)
  ` Shuizhuyu`
 
-### [香港法院判处民主人士成法律分水岭](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [尽管俄罗斯的最后通牒到期，马里乌波尔没有人投降](/content/gnews/38/README.md)
+### [尽管俄罗斯的最后通牒到期，马里乌波尔没有人投降](/content/gnews/39/README.md)
  ` Shuizhuyu`
 
-### [大直播后记——对“419断播”事件的感受](/content/gnews/39/README.md)
+### [大直播后记——对“419断播”事件的感受](/content/gnews/40/README.md)
  ` 雅典娜GNotes`
 
-### [俄乌战况：亚速钢铁厂地下的马里乌波尔保卫战](/content/gnews/40/README.md)
+### [俄乌战况：亚速钢铁厂地下的马里乌波尔保卫战](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [顿巴斯大战！英国防部：乌克兰已击退多次俄军攻势](/content/gnews/41/README.md)
+### [顿巴斯大战！英国防部：乌克兰已击退多次俄军攻势](/content/gnews/42/README.md)
  ` 蓝莲花农场`
-
-### [俄罗斯宣布对马斯克的星链卫星发动太空战](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中日财经爆┃日元贬值的元凶！疑日央行实行“指示性价格操作”](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

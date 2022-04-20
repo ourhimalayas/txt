@@ -2,28 +2,28 @@
 ---
 
 
-## 中共在“清零”政策掩护下的毒疫苗杀人计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2380409/)
+## 欧米克隆国产疫苗获准在香港临床试验
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380471/)
 
-作者：骄子，追着曙光跑
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-15.jpg)
+CTV NEWS 4月16日报道，国药控股和科兴生物技术公司周六表示，两家公司针对Omicron变种研发的新冠病毒候选疫苗已获批在香港进行临床试验。世界各地的科学家正在竞相研究针对Omicron的升级疫苗。因为数据表明，基于旧毒株的疫苗所产生的抗体在中和这种高度传染性的变种时表现出较弱的活性。两家公司在声明中表示，来自国药控股子公司中国生物技术集团(CNBG)的两种候选疫苗和来自中国科兴的候选疫苗含有灭活或“杀死”的冠状病毒，与两家公司在中国和海外供应的疫苗相似。CNBG表示，国药集团的候选疫苗将在已经接种了两到三剂疫苗的成人身上进行增强剂测试。
 
-4月18日，郭文贵先生在盖特视频中再次揭露了中共政府以疫情“清零”政策为掩护，实施毒疫苗杀人计划的丑恶行径。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-4.jpg)
-郭先生指出，虽然中共声称其在2022年第一季度的经济增长速度达到4.8%，但据内部战友爆料，2022年中共国内的各项经济指标全部都是负增长。为此，对于所有中共认为会消耗社会资源、占用医疗物资、对社会难有贡献或已经成为社会负担的人群，例如中共国内60岁以上的群体，共产党正在试图使用中共病毒疫苗大规模地清除这部分老龄人口。
+原文链接：[https://www.ctvnews.ca/health/coronavirus/omicron-specific-sinopharm-sinovac-covid-vaccine-candidates-cleared-for-clinical-trial-1.5864005](https://www.ctvnews.ca/health/coronavirus/omicron-specific-sinopharm-sinovac-covid-vaccine-candidates-cleared-for-clinical-trial-1.5864005)
 
-郭先生透露，目前在中共国内施行的防疫“清零”政策可以降低60%到70%的社会成本。与此同时，中共再使用毒疫苗杀人灭口，以此减轻自身负担，从而妄图继续巩固其邪恶统治。对此，郭先生补充，即将在青岛、大连、哈尔滨和海口实行的疫情“清零”政策正是中共这一杀人计划的幌子。
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 重生之鹰
+素材/采编 – 青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-郭先生也再次提醒墙内同胞，一定要认清中共在毒疫苗问题上的谎言：所有共产党的高层根本没有接种过中共病毒疫苗。因此，墙内的同胞务必真爱生命，远离中共病毒疫苗。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：[4月18日：尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！](https://gettr.com/post/p15wbxu0c9c)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：Irene木木
-编辑：Delilah小胖
-审核：Ivy001
-校正/发稿：Fei797
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

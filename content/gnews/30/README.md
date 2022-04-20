@@ -2,43 +2,28 @@
 ---
 
 
-## 有声|乌克兰哈尔科夫接连四天遭受炮击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2380199/)
+## 中国人吃草的日子恐怕开始了
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380217/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰总统泽连斯基17日晚间表示，过去四天在乌克兰东北部城市哈尔科夫发生的炮击事件造成18人死亡，100多人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.44.24-AM.png)
-哈尔科夫州长奥列·辛耶胡博夫(Oleh Synyehubov)早些时候表示，周日，一枚导弹和炮火袭击了市中心和萨尔蒂夫卡郊区，造成 5 人死亡、20 人受伤。
+**撰稿：日本东京方舟农场  胖小哥**
 
-报道进一步表示，确切的遇难人数目前无法获得独立的核实。
+随著中共在国内国外的环境趋向恶劣，包括计划经济与供销社在内多个已经被历史淘汰的政治经济制度开始借尸还魂。4月12日中共中央、国务院发布《关于加快建设全国统一大市场的意见》，19日网络传出视频指，北京一家供销社已经开始营业。人们担忧说，中国人吃草的日子恐怕开始了。
 
-泽连斯基在晚间讲话中说，俄罗斯对哈尔科夫的炮击一直在持续。他指责俄罗斯蓄意通过炮火攻击平民制造恐怖气氛。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/未标题-1-4.jpg)图片源自网络视频截图
 
-辛耶胡博夫表示，乌克兰武装部队在哈尔科夫地区成功地进行了反击，完全夺回了两个村庄，另一个村庄也被部分夺回。
+网民起底发现，这家供销社的地址在北京朝阳区东坝红松园小区。虽然供销社从没彻底消失，但这么正式的走向前台，还是非常罕见。
 
+供销社是标志性的计划经济产物。现在人们还记得，当年毛泽东一夜之间就完成了“公私合营”，上海市长陈毅曾逼得近千资本家及家属跳楼，他每晚坐在沙发上喝著茶听取秘书汇报时，总要悠闲地问上一句：“今天又有多少『空降兵』啊？”
 
+海外网友惊讶表示，这种模式居然不是从三、四线城市启动，“万万没想到是北京”。很快有人透露，其实在河北省也有小区门口出现了“供销社便利店”的牌子。
 
+有人担心说：“以后生活必须品、米、面、油等应该统购统销了…人民公社都会恢复，好日子真的要回来了！”
 
+参考链接：
+[中国人吃草的日子恐怕开始了 – 万维读者网 (creaders.net)](https://news.creaders.net/china/2022/04/19/2474854.html)
 
-文字版原文：[乌克兰哈尔科夫接连四天遭受炮击](https://gnews.org/zh-hans/2375313/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：老孙
+校对发布：爱放飞
 
  
 

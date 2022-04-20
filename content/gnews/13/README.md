@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|郭文贵先生剖析俄乌战争的本质：独裁与自由之战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2380417/)
+## 上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380522/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在17日上传的盖特视频中表示，他认为目前俄乌战争的本质，是独裁与自由之间的争斗，在俄乌冲突发生的同时，西方也密切关注着中共的一举一动，包括中共暗中对俄罗斯作出的支援。
+**撰稿：日本东京方舟农场  胖小哥**
 
-郭先生指出，俄乌战争成为了东方独裁政权与西方民主社会的分水岭，人类正面临正义和邪恶之间的战争考验，而战争的最终结果，将取决于人类，是想被独裁家族控制，还是想自己当家作主。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-77.jpg)
+据美国之音报道称，微博封杀中国国歌歌词，西方观察人士直呼“太虚幻了”。该报道说，这不是中国社媒第一次封杀国歌内容。2020年武汉疫情爆发初期，“吹哨人”李文亮医生之死触发了网民们对当局的愤怒。当时，豆瓣曾以“含有激进时政或意识形态“为由封杀了同一句国歌歌词。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-424.jpg)图片源自网络
 
+上海封城后，这句歌词和其中的一些关键字也成为了一些网民批评政府时引用的语句。上海说唱歌手方略Astro发布歌曲“New Slave”（新奴隶），批评政府滥用权力，忽视生命。他唱道，“当自由和思想意志被权力禁锢，当绿色的通道封锁上成为了禁路，当穿上了制服却只关心自己仕途，当生命当尊严都被他们视为粪土。”
 
+他在视频中说，“我写这首歌的本意，是因为我看到了生命的逝去和我的无能为力。而我感到深切的悲伤。我都来源于我对这一切的爱，” 他在自己YouTube频道上的一份声明中写道。但他也表示“希望大家能理性发声”。
 
+参考链接：
+[上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220420-%E4%B8%8A%E6%B5%B7%E6%9C%89%E4%BA%BA%E5%94%B1%E5%9B%BD%E6%AD%8C%E5%AE%A3%E6%B3%84%E5%AF%B9%E5%B0%81%E5%9F%8E%E4%B8%8D%E6%BB%A1-%E5%AE%98%E6%96%B9%E5%BE%84%E7%9B%B4%E5%B0%81%E7%A6%81-%E8%B5%B7%E6%9D%A5-%E8%AF%8D)
 
-
-文字版原文：[郭文贵先生剖析俄乌战争的本质：独裁与自由之战](https://gnews.org/zh-hans/2377897/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：老孙
+校对发布：爱放飞
 
  
 
