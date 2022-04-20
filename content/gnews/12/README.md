@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党在七哥身上的陷害，放在任何一个人身上都被撂趴下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377620/)
+## 我一辈子都感激马建
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377632/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

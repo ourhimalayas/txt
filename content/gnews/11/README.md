@@ -2,18 +2,14 @@
 ---
 
 
-## 单伟建、吴征，想家人给他收尸的机会都不会有
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377624/)
+## 4月19日勿忘香港（图片1-9）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2377652/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/04/14FA479F-0350-4BEB-A420-059232A3F10F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8D3082FA-D732-4BC6-A57C-E334C1BB3156.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D95F0AE2-6002-4D4F-8F43-B1DA2F5D91A4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FDA61FB8-3AF3-47B1-B430-7EA73898A5D3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7B312CBD-DCF9-469A-A4F4-C3689A5AE560.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/47D3D4D7-6405-4707-BDE1-B78631BF16A8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/818CADEC-A0E2-4E67-9C4E-D9B0A6336654.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3BF21137-6265-4F63-87F7-4626BF4E7EBC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E554F172-75D6-4373-8728-B7F889982E4E.png)
+发布：水涨船高
 
-发布：*陶子*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

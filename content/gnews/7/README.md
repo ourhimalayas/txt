@@ -2,13 +2,20 @@
 ---
 
 
-## 4月19日勿忘香港（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2377652/)
+## 樱花时政┃日本撤销对俄最惠国待遇暂定关税法成立
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377706/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/04/14FA479F-0350-4BEB-A420-059232A3F10F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8D3082FA-D732-4BC6-A57C-E334C1BB3156.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D95F0AE2-6002-4D4F-8F43-B1DA2F5D91A4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FDA61FB8-3AF3-47B1-B430-7EA73898A5D3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7B312CBD-DCF9-469A-A4F4-C3689A5AE560.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/47D3D4D7-6405-4707-BDE1-B78631BF16A8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/818CADEC-A0E2-4E67-9C4E-D9B0A6336654.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3BF21137-6265-4F63-87F7-4626BF4E7EBC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E554F172-75D6-4373-8728-B7F889982E4E.png)
-发布：水涨船高
+撰稿：东京樱花团/百花李香
 
+4月20日，日本参议院全体会议通过并颁布了关于撤销对俄罗斯的“最惠国待遇”的临时海关措施修订法。此修订法是针对对俄入侵乌克兰后加强经济制裁的一部分，俄罗斯鱼类和海产品及其它产品的关税将被提高到明年3月底。同时，还通过并颁布了修订后的《外汇和外贸法》，以此堵住对俄制裁的漏洞。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-25.jpg)[图片来源](https://www.google.com/search?q=Japan-Russia&amp;biw=1540&amp;bih=763&amp;sxsrf=APq-WBsXRC03TlUQcx7IuvPldVj_aUGlQA:1650431094569&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=aQ748C2uLqeT9M%252C1nNZZu-)
+随着对俄罗斯最惠国待遇的取消，从俄罗斯进口的产品将在适用优惠待遇之前受到关税税率的限制。鲑鱼的关税将从目前的3.5%提高到5%，螃蟹的关税从4%提高到6%。另一方面，原油以及液化天然气（LNG）和稀有金属钯等不会受到影响。
+
+信息来源：[ロシア最恵国待遇撤回法が成立　制裁強化、魚介類関税引き上げ](https://news.yahoo.co.jp/articles/822c12ce60a10a7fb249268768ea2d4460721d5f#:~:text=%E3%83%88%E3%)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
 
  
