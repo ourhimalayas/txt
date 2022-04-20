@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 2:04 PM (UTC)`
+
+<br/>【419 5th anniversary】04/19/2022 The CCP will not be able to shirk its responsibility for a series of crimes such as the vaccine, the virus, the Hong Kong humanitarian disaster, the Xinjiang massacre, etc. The world will surely go after them. And the NFSC will definitely win the ultimate victory and shine on the world stage.<br/><br/>【419五周年】04/19/2022 中国共产党将无法推脱掉疫苗、病毒、香港人道灾难、新疆大屠杀等一系列罪行的责任，全世界最终一定会跟它算账的。而新中国联邦必将获得最终胜利，闪亮登上世界舞台。
+![img](https://media.gettr.com/group30/getter/2022/04/20/14/e23bbc73-79f3-7ed3-979e-0eb29c8f1078/out.jpg)
+
+---
+
 `@miles 4/20/2022 1:40 PM (UTC)`
 
  4月20号：尊敬的战友们好……衷心地感谢国内所有战友昨天一整天的陪伴．观看直播……和给我发的信息，我不能一一回复．万分的抱歉，一切都已经开始！
@@ -147,13 +154,6 @@
 
 4/19/2022 【419 5th Anniversary】 According to the latest data, the number of total followers of mine on the Internet is 193 million. Only the New Federal State of China and I can have so many followers, and this is what the US president can’t even achieve. Think about what the number will be when all the Chinese people wake up.<br/><br/>4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字<br/>
 ![img](https://media.gettr.com/group25/getter/2022/04/20/02/40a77006-e5a8-1865-8e87-a2386a5f1302/out.jpg)
-
----
-
-`@miles 4/20/2022 1:56 AM (UTC)`
-
-4/19/2022 【419 5th Anniversary】 Teng Wensheng and Wang Huning proposed "the next 30 years of the CCP" when Xi was still Vice President. At that time, Xi wanted to turn Communist China into a maritime power and a labor exporting country. He wants to obtain the West’s technologies by stealing, robbing, and deceiving the Western enterprises and to take down the US dollar such that the CCP can lead the world!<br/><br/>4/19/2022【419五周年】滕文生和王沪宁在习还是副主席的时候就提出"中共未来30年"，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界<br/>
-![img](https://media.gettr.com/group12/getter/2022/04/20/01/2b6d46d5-bc6e-d54b-b6b1-b73a65037cb1/out.jpg)
 
 ---
 
