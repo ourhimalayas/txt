@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：共产党是所有灾难的根源，只有新中国联邦是安全之邦 可靠之墙
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377211/)
+## 20220419郭文贵大直播 ：习近平的旧仇新恨导致了上海的灾难
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377249/)
 
 作者：东京樱花团小视频组
 
