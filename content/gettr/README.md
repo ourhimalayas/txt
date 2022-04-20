@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 12:05 AM (UTC)`
+
+【419 5th Anniversary】Mr. Miles Guo broke the news that then German Chancellor Angela Merkel flew on Wu Xiaohui's private jet to China for a secret meeting with Xi Jinping. This is one of the reasons why Wu Xiaohui must be taken out.<br/><br/>【419五周年】郭文贵先生爆料时任德国总理的默克尔搭乘吴小晖的私人飞机飞往中共国密会习近平。这也是为什么吴小晖必须被干掉的原因之一。<br/><br/>
+![img](https://media.gettr.com/group35/getter/2022/04/20/00/b6c95dd7-5508-812a-f8e6-fe9da2b74eb0/out.jpg)
+
+---
+
 `@miles 4/19/2022 10:32 PM (UTC)`
 
 4/19/2022 【419 5th Anniversary]】419 was absolutely a new start of the Chinese feminist movement, the moral corruption of Chinese society is definitely because the Chinese men are not strong enough.<br/><br/>4/19/2022【419五周年】：419绝对是中国女权运动新的开始，中国这些年整个的堕落就是因为男性“举而不坚”。<br/><br/>
@@ -147,13 +154,6 @@
 
 【乌克兰救援】04/18/2022  我们的老外战友采访一位韩国女士，她对在梅迪卡前线会出现中国人感到意外，她非常感激新中国人的救援行动。她知道上海现在发生的事，上海的恐怖与乌克兰的战争都是独裁共产党的罪行。<br/><br/>【Ukrainian Rescue】04/18/2022 Our foreign fellow fighter interviewed a Korean lady who was surprised by the presence of Chinese on the front line of Medyka. She appreciates the new Chinese for the rescue operation. She knows what was going on in Shanghai, the terror in Shanghai and the war in Ukraine were the crimes of the dictatorial Communist Party.
 ![img](https://media.gettr.com/group50/getter/2022/04/19/07/63737b25-8bcb-d6f3-59ad-0b241e583e75/out.jpg)
-
----
-
-`@miles 4/19/2022 7:15 AM (UTC)`
-
-【Ukraine Rescue】04/17/22 All volunteers in the Medyka rescue centre are celebrating Easter. Some volunteers from other relief organizations immediately recognize the NFSC volunteers and sincerely thank us for our dedication.<br/><br/>【乌克兰救援】04/17/22 Medyka救援营地世界各地的志愿者们一起庆祝复活节，一些来自其他救援组织的志愿者一眼就认出了新中国联邦的志愿者，并真诚地感谢我们的付出。
-![img](https://media.gettr.com/group48/getter/2022/04/19/07/c366c47d-6de1-c45a-2264-f75cd8cea40a/out.jpg)
 
 ---
 
