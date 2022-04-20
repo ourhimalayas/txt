@@ -2,41 +2,28 @@
 ---
 
 
-## 美国“人民车队”自由抗议，加拿大“自由车队”遭秋后算账
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2377801/)
+## 中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377779/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-3-c786b65d55.jpg)图片来源：卫报
-根据《华盛顿观察家报》4月19日的报道，为抗议中共病毒（COVID-19）的系列强制政策，“人民车队（People’s Convoy）”团体本周开始在加州国会大厦举行为期三天的抗议活动。
+撰稿：东京樱花团/peterwong
 
-周一的时候，有100多名示威者来到加州萨克拉门托（Sacramento），周二也有类似规模的人群出现，呼吁该州取消剩余的中共病毒相关限制措施，并要求在未来避免颁布更多的强制规定。
+4月20日外汇市场上，日元汇率触及129日元兑1美元，这是日元自2002年4月以来的最弱水平。由于美国的长期利率上升导致广泛的日元抛售和美元买入，预计日本和美国之间的利率差距将扩大，日元继续快速贬值。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-164.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.j-cast.com%2Fkaisha%2Fimages%2Forigin%2F2022%2F04%2Fkaisha_20220410211142.jpg&amp;imgrefurl=https%3A%2F%2Fwww.newsdirectory3.com%2Fcontinued-depreciation-of-the-yen-against-the-dollar-will-the-us-streng)
+美联储官员对加快加息步伐表现出积极态度，美国长期利率连续第三天上升。日本方面，预计日本央行的货币宽松政策将维持低利率，而日美货币政策差异使得日元更容易被抛售。
 
-“人民车队”组织者迈克·兰迪斯（Mike Landis）说：“重要的是，没有人应该被迫做他们不想做的事情。”
+日元贬值也是由于进口燃料和原材料价格飙升以及日本进口商对美元结算的需求膨胀。市场有观点认为日元兑美元可能贬值至135日元水平（证券交易策略师），投机者试图抛售日元，导致日元快速贬值。
 
-抗议活动中，示威者在州议会大厦的台阶上高呼，而另一些与会者在附近的公路上开车鸣笛。
+美国财长耶伦与财长铃木的会晤定于20日在华盛顿举行的二十国集团财长和央行行长会议上举行。日方也想讨论汇率走势，遏制突发波动。
 
-根据报道，在这次抗议之前，该组织上周在洛杉矶市政厅外举行了类似的抗议活动，以抗议当地中共病毒相关强制规定。
+日元兑欧元、英镑、澳元等货币正在贬值，日元贬值的趋势更加突出。20日，日元兑欧元汇率为1欧元兑 139日元，为2015年6月以来约7年来的最低水平。
 
-目前，加利福尼亚州仍有几项中共病毒有关的强制政策。加文·纽森(Gavin Newsom)在2020年3月发布的紧急状态仍然有效，他的一些与中共病毒大流行病有关的行政命令也是如此。然而，据广播电台CapRadio报道，2月份，纽森宣布他将开始撤销其中的一些命令，其中31项命令将于6月31日到期。
+消息来源:
 
-据《萨克拉门托蜜蜂报》（Sacramento Bee）报道，在周三的车队抗议之后，本月余下的时间里没有再为车队发放许可证。
+[２０年ぶり１ドル＝１２９円台…日米金利差拡大で円売り加速](https://www.yomiuri.co.jp/economy/20220420-OYT1T50085/)
 
-上个月，“人民车队”来到华盛顿特区，抗议美国各地的中共病毒相关政策。该组织从抗议加拿大中共病毒政策的“自由车队（Freedom Convoy）”中获得了灵感。
-
-但是，据《国会山报》4月19日的文章内容，加拿大媒体报道，加拿大卡车司机“自由车队”抗议活动的组织者之一帕特·金（Pat King）遭到加拿大政府指控犯有伪证罪和妨碍司法公正罪及其他十项指控。
-
-帕特·金于2月18日被捕，2月25日被拒绝保释。
-
-对此，《大纪元时报》（Epoch Times）指出，帕特·金是最后一个被逮捕和指控的著名的加拿大抗议者。
-
-*责编：彩虹*
-
-**新闻来源**
-
-[‘People’s Convoy’ begins protests against COVID-19 rules in California](https://www.washingtonexaminer.com/news/peoples-convoy-begins-protests-against-covid-19-rules-in-california)
-
-[Canada’s ‘Freedom Convoy’ organizer charged with perjury, obstruction of justice](https://thehill.com/news/3273549-canadas-freedom-convoy-organizer-charged-with-perjury-obstruction-of-justice/)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

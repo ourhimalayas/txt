@@ -2,14 +2,37 @@
 ---
 
 
-## 现在疫情基本都是疫苗反应
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2381355/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2381191/)
 
-编辑：文宝
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-19.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.20早 《NFSC新闻》](https://gettr.com/streaming/p167rafa925)
+[2022.04.20早《NFSC新闻访谈》](https://gettr.com/streaming/p167difa50c)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-17.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
 
 
-
-你们为什么问自己呢？你们为啥染病呢？很多当地人没染病呢，人家开Party，爱干啥干啥，是吧？首先一点就是你们长期疲劳，挨冻、吃不好、睡不好，他就肯定是容易染上毒。另外一个现在是染上毒的，目前一会儿我给你们爆大料，你们染的绝对不是病毒。文紫我可以告诉你，几乎99%不是病毒。现在已经绝对的消息告诉大家，在上海、在长春、在深圳、在香港的绝大多数就是疫苗反应。这是已经肯定了的。昨天的下午和昨天的晚上，还有前天的晚上，我得到更多准确的情报：中共跟世界之间的所谓专家沟通，基本可以确定：所有香港和上海的就是疫苗反应，所以说测什么核糖核酸都是胡扯的事儿。那么你们接触的人当中很多都是打了疫苗的。所以说你们要注意，你身体弱，那疫苗反应就把你给染上了，就这么简单。要多注意，谢谢。
 
  
 
