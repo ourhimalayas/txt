@@ -2,8 +2,8 @@
 ---
 
 
-## 很多战友因419结缘，419是爆料革命最重要的一天，是共产党最忌讳的一天
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376593/)
+## 共产党去到哪里都是假骗偷，孟宏伟为什么当上国际刑警头子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376716/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

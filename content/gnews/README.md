@@ -15,98 +15,98 @@
 
 ---
 
-### [20220419郭文贵大直播 ：习近平相信莫德尔定律，更相信自己是上天派来的代表](/content/gnews/1/README.md)
- ` Tokyo Sakura Video Group`
+### [樱花FM┃日本对俄追加制裁，400人资产遭冻结](/content/gnews/1/README.md)
+ ` 樱花FM`
 
-### [乌克兰指挥官：俄军向亚速钢铁厂投下钻地弹](/content/gnews/2/README.md)
- ` 加拿大温哥华英里农场`
+### [樱花FM┃北欧两国可能与今夏加入NATO](/content/gnews/2/README.md)
+ ` 樱花FM`
 
-### [很多战友因419结缘，419是爆料革命最重要的一天，是共产党最忌讳的一天](/content/gnews/3/README.md)
+### [共产党去到哪里都是假骗偷，孟宏伟为什么当上国际刑警头子](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [20220419郭文贵大直播 ：为人父母一定要给孩子自由](/content/gnews/4/README.md)
+### [樱花FM┃形势危急，美国命令驻上海总领馆工作人员撤离](/content/gnews/4/README.md)
+ ` 樱花FM`
+
+### [2022年4月20日《樱花简报》：日本启动对俄罗斯追加制裁措施](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花FM┃联俄两线开火各取所需 中共加速全球自动灭共进程（十四）](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [七哥爆料，海航最重要的一张照片和木兰有关系](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国，上海疫情发布会，留言的人都想跑。](/content/gnews/8/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220419郭文贵大直播 ：台湾军方竟然买共产党的无人机这有多么的荒唐](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
+### [为什么当年共产党怕七哥，就是七哥说到了点子上，共产党成为了真正的危墙。](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [美军18门榴弹炮已运抵乌克兰边境](/content/gnews/6/README.md)
- ` 加拿大温哥华英里农场`
+### [前线战友代表新中国人的形象，震撼世界](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
 
-### [20220419郭文贵大直播 ：荒谬的马蕊案以及背后的PAG](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220419郭文贵大直播 ：PAG案子掺杂着众多偶然](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220419郭文贵大直播 ：4.19特别节目：太平联盟案例(PPT)](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [Robinhood 通过收购加密应用 Ziglu，2年后重新启动了在英国推出的计划](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文贵先生VOA断播直播大纲2022/04/19](/content/gnews/11/README.md)
+### [大连：对不检测33人赋黄码，纳入个人信用记录](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [20220419郭文贵大直播 ：习深信他是被莫德尔周期选中的人，必和俄站一起，必打台湾](/content/gnews/12/README.md)
+### [20220419郭文贵大直播 ：习近平相信莫德尔定律，更相信自己是上天派来的代表](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [今日盖特大V推荐 — 保罗·爱德华多·马丁斯（Paulo Eduardo Martins）](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [樱花FM┃美国驻华使团关于美国驻上海总领事馆命令撤离的声明](/content/gnews/13/README.md)
+ ` 樱花FM`
 
-### [COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）](/content/gnews/14/README.md)
+### [樱花FM┃传四名维吾尔人将被遣返，联合国不作为](/content/gnews/14/README.md)
+ ` 樱花FM`
+
+### [很多战友因419结缘，419是爆料革命最重要的一天，是共产党最忌讳的一天](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.19）打疫苗真是开盲盒，真不知会有哪种不良反应](/content/gnews/15/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.19）打疫苗真是开盲盒，真不知会有哪种不良反应](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情疫苗数据更新（诡异频发的球星猝死和空难）](/content/gnews/16/README.md)
+### [全球疫情疫苗数据更新（诡异频发的球星猝死和空难）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [从上海封城看中共对全人类的危害](/content/gnews/17/README.md)
+### [从上海封城看中共对全人类的危害](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [普京向乌克兰边境派遣核轰炸机](/content/gnews/18/README.md)
+### [普京向乌克兰边境派遣核轰炸机](/content/gnews/20/README.md)
  ` 日本東京方舟農場`
 
-### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/19/README.md)
+### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/21/README.md)
  ` 日本東京方舟農場`
 
-### [五月花简报（04/19/2022）](/content/gnews/20/README.md)
+### [五月花简报（04/19/2022）](/content/gnews/22/README.md)
  ` mayflowertranslate`
 
-### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/21/README.md)
+### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/22/README.md)
+### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/23/README.md)
+### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/24/README.md)
+### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.19 俄乌战事汇总](/content/gnews/25/README.md)
+### [截至4.19 俄乌战事汇总](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/26/README.md)
+### [美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/27/README.md)
+### [文贵爆料 4.19：俄乌战争、上海封城，令党心动荡](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/28/README.md)
+### [拜登总统等同盟国紧急会议 岸田首相正在出席中](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [三个因素将使即将到来的粮食短缺变得更严重](/content/gnews/29/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/30/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月19日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
-
-### [俄军向马里乌波尔钢铁厂部署特种部队……东顿巴斯地区有5万名士兵（2/2）](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [新西兰财经G乐部2022年4月19日:财经新闻整理](/content/gnews/32/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

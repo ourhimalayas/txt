@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：习深信他是被莫德尔周期选中的人，必和俄站一起，必打台湾
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376484/)
+## 20220419郭文贵大直播 ：习近平相信莫德尔定律，更相信自己是上天派来的代表
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376630/)
 
 作者：东京樱花团小视频组
 

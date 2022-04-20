@@ -2,46 +2,49 @@
 ---
 
 
-## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376238/)
+## COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376307/)
 
-整理：枳实
-美工：精灵蓝
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2390.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 4月19日）
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+整理/编辑：机器猫
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-53.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2388.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2389.png)
-**频繁的运动员心脏病和飞行事故**
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-今日的澳洲新闻：板球明星心脏病发作生命垂危，以及一起致命空难，这两则新闻有一个共同特点，那就是诡异的重复，都是近来频繁发生的类似事件。
+帖子原文：
 
-前澳大利亚板球明星坎贝尔（ Ryan Campbell）[因心脏病发作后在伦敦一家医院被收入重症监护病房抢救](https://7news.com.au/sport/cricket/former-australian-cricket-international-fighting-for-life-after-heart-attack-c-6493521)。他是在陪孩子在球场训练时忽然发病的。这已经是出现在新闻中的第三例发生心脏病的澳洲板球明星了。三月份，前澳洲板球名将Shane Warne在泰国度假时死于心脏病，而此前不到24小时，另一位澳大利亚板球传奇人物罗德·马什死于心脏病。
+原文作者：暖通小社畜
 
-今天另一则澳洲新闻是在新南威尔士州，[一架轻型飞机飞行员死于飞行事故](https://7news.com.au/travel/air-aviation/vic-pilot-dies-in-light-plane-crash-c-5803935)，仅仅3天前，另[一位乘客在西澳死于小型空难](https://www.9news.com.au/national/plane-crash-wa-johnson-makuei-mangar-east-kimberley-nurse/75623a65-b962-4037-938d-bdc797006ec1)。而今年4月，我们已经编译报道了[澳洲发生今年第五起致命空难](https://gnews.org/zh-hans/2268374/)。
+疫苗（安徽智飞生物）
 
-全民广泛注射毒疫苗以来，明星，运动员，议员等知名人士发生心脏病发作，猝死，晕厥等屡见不鲜，若飞行员飞行中发生这种病症，尤其是轻型飞机飞行员，其后果几乎无可避免将是致命的。全民注射毒疫苗，心脏病的流行，空难的频繁发生，这三者是否有因果关系呢？请读者自行判断。
+3月份打的第一针，打完之后就感觉自己像重感冒患者，一整天都是晕晕沉沉的，怎么睡也睡不够；还有打完疫苗的针眼周围一直温温柔柔的疼痛，衣服碰到了也痛，睡觉的时候碰到也痛，还好打的是左边手臂，因为我习惯向右侧卧睡的，就这样痛了一周，感觉第一针疫苗的副作用总算是结束了。
 
-数据来源：
+5月份的第二针，跟打第一针疫苗的时候有一个同样的症状，那就是针眼附近一直温温柔柔的疼痛，跟上次完全一样，持续疼痛维持了一周；不过这次没有重感冒症状，万幸！
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+6月份打的第三针，就是今天，没有重感冒症状，但是今天超级痛，护士一推进去的时候感觉就不好了，比之前两次打的时候都痛，可能是不是同一个护士的原因吧！今天给我打的是一个被临时安排过来支援的，打完回家之后就一直感觉痛感越来越强烈，不过还在能接受的状态，过了两小时之后发现有点肿痛还像发烧一样的烫，一直维持到现在。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+Ps:我在打完疫苗之后，都有洗澡，都是上午打的疫苗，然后晚上10点之后洗澡。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+#打新冠疫苗
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+发布于2021-06-11
 
-[covidlive.com.au](https://covidlive.com.au/)
+精选评论:
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+小时候童装实体dian 回复：打完第三针，整片红肿，疼。
+
+慢慢满满漫漫 回复：第三针打完回来好痛，抬不起来胳膊了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2392.png)图片来源：小红书
+素材来源：
+
+[疫苗（安徽智飞生物）](https://www.xiaohongshu.com/discovery/item/60c37e91000000002103ae87?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650198971)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

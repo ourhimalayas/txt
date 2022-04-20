@@ -2,10 +2,16 @@
 ---
 
 
-## 20220419郭文贵大直播 ：PAG案子掺杂着众多偶然
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376516/)
+## 中共国，上海疫情发布会，留言的人都想跑。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376674/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组
