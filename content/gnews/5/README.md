@@ -2,8 +2,8 @@
 ---
 
 
-## 习一定跟俄罗斯站在一起，必打台湾
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378700/)
+## 美国友人采访（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378878/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

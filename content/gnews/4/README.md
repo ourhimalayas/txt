@@ -2,19 +2,21 @@
 ---
 
 
-## 所有共产党的里面所有人的懦弱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378750/)
+## 有声｜芬兰总统尼尼斯托确诊中共病毒
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2378890/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+By:**秘翻新闻**
 
-发布：*陶子*
+**2022-04-20**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-27.png)
+[综合外媒](https://www.presidentti.fi/en/press-release/president-niinisto-has-tested-positive-for-coronavirus/%20https://www.usnews.com/news/world/articles/2022-04-19/finlands-president-niinisto-73-tested-positive-for-covid)4月19日消息，芬兰总统府发表声明指出，现年73岁的总统尼尼斯托当天确诊感染中共病毒，芬兰总统府在声明中称：尼尼斯托总统虽然染疫，但状况良好，可远距继续工作。声明表示，他原定4月21至22日前往挪威的官方访问将延期。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+秘翻新闻 明澈编辑报道
 
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 世界所有的好话都让欺民贼讲完了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378791/)
+## 美国友人采访（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378905/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
