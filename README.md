@@ -15,89 +15,89 @@
 
 ---
 
-### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（二）](/content/gnews/1/README.md)
+### [俄罗斯建立童子军](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [德国将在年底前停止进口俄罗斯石油](/content/gnews/2/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（二）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共屏蔽了一份在上海封城期间非正常死亡人员名单](/content/gnews/2/README.md)
+### [中共屏蔽了一份在上海封城期间非正常死亡人员名单](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（一）](/content/gnews/3/README.md)
+### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（一）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第65期](/content/gnews/4/README.md)
+### [七哥说—第65期](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月17日早](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [有声|喜马拉雅农场有偿征集中共军政情报](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [有声|班农称乌克兰前线救援创造历史性瞬间](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [中共国所犯下的错误 （二）](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国和印度正在为俄罗斯入侵输血](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [兵力不足 普京试图建立“儿童军队”](/content/gnews/10/README.md)
- ` NFSC News`
-
-### [中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/11/README.md)
- ` NFSC News`
-
-### [有声|习近平与沙特王储共谋独裁战略关系](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [有声|G系列媒体平台必须坚持做正义媒体](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [有声|喜马拉雅币一周分析与总结（4月11日-4月17日）](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|美分别与韩日举行海上联合军演](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|前国务卿蓬佩奥呼吁台湾周边国家做好准备](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|上海名人被中共折磨致死](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [桑切斯将前往基辅向泽伦斯基转达西班牙对乌克兰的支持](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [前香港政治犯指控惩教署通过去激化更生项目对抗争者进行洗脑](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [现在疫情基本都是疫苗反应](/content/gnews/20/README.md)
- ` 加拿大温哥华英里农场`
-
-### [习近平认为自己是重掌这世界的神](/content/gnews/21/README.md)
- ` 银河歌舞厅`
-
-### [【419五周年】4/19/2022 选择王沪宁等人作为智囊注定了习必然走极端的共产主义马克思主义路线](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [消息人士透露，美国准备向乌克兰追加1000亿日元的军事援助](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [截至4.20 俄乌战事汇总](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【419五周年】4/19/2022 孟建柱现在最后悔当时没有把习做掉。爆料革命毫无疑问百分之百地改变了中国！这一切归功于新中国联邦人，特别是在体制内默默无闻地奉献的战友们](/content/gnews/25/README.md)
- ` 秘密翻译组-北美组`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月20日早](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [台湾华视新闻惊现“新北市遭共军导弹击中”的字幕](/content/gnews/27/README.md)
+### [文贵视角4.19: 危墙&#8212;中国共产党](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [欧洲政府官员表示马里乌波尔可能在数日内沦陷 恐怕会出现更甚于布查的惨况](/content/gnews/28/README.md)
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月17日早](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [有声|喜马拉雅农场有偿征集中共军政情报](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|班农称乌克兰前线救援创造历史性瞬间](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [中共国所犯下的错误 （二）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国和印度正在为俄罗斯入侵输血](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [我们不能被共产党代表](/content/gnews/13/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [兵力不足 普京试图建立“儿童军队”](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/15/README.md)
+ ` NFSC News`
+
+### [有声|习近平与沙特王储共谋独裁战略关系](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [有声|G系列媒体平台必须坚持做正义媒体](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [有声|喜马拉雅币一周分析与总结（4月11日-4月17日）](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [有声|美分别与韩日举行海上联合军演](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|前国务卿蓬佩奥呼吁台湾周边国家做好准备](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|上海名人被中共折磨致死](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [桑切斯将前往基辅向泽伦斯基转达西班牙对乌克兰的支持](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [前香港政治犯指控惩教署通过去激化更生项目对抗争者进行洗脑](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [现在疫情基本都是疫苗反应](/content/gnews/24/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [习近平认为自己是重掌这世界的神](/content/gnews/25/README.md)
+ ` 银河歌舞厅`
+
+### [消息人士透露，美国准备向乌克兰追加1000亿日元的军事援助](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月20日早](/content/gnews/27/README.md)
+ ` 纽约香草山MOS01`
+
+### [台湾华视新闻惊现“新北市遭共军导弹击中”的字幕](/content/gnews/28/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [新中国联邦是可信赖之邦](/content/gnews/29/README.md)
  ` 银河歌舞厅`

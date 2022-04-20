@@ -2,49 +2,28 @@
 ---
 
 
-## 桑切斯将前往基辅向泽伦斯基转达西班牙对乌克兰的支持
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2381381/)
+## 有声|喜马拉雅币一周分析与总结（4月11日-4月17日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2381400/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-6.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pedro-sanchez-visita-un-centro-de-refugiados-ucranianos-en-barcelona-12-edited.jpeg)图片来源：herldo.es
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+过去一周，喜马拉雅币价格小幅回落至40美元左右，平均日交易量约9万枚喜币。喜币上市以来总交易量约3520万枚 ，占今年总发行量的仅约3.52%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
 
-出于安全考虑，桑切斯前往基辅的确切日期尚未透露，而且访问的细节仍在制定之中。
+最近美国财政部长耶伦发表了针对数字资产的讲话，其讲话的主要重点体现出美国政府对数字货币的监管政策与喜币的设计特征一一对应。本周二，比利时总理主动与新中国联邦战友合影，在外交上默认了新中国联邦消灭中国共产党的合法性。郭先生在盖特视频中透露，全球有越来越多的国家支持新中国联邦，未来喜币将成为全世界最流行、最早的数字法币。而人民币将在全世界被认定为犯罪的货币。
 
-政府消息人士通报了首相桑切斯将要进行的基辅之行，此前首相周一宣布西班牙将在“几天内”重开其驻乌克兰大使馆。
+另外，喜联储主席William先生近日接受英国GB NEWS采访表示，加密货币的发展趋势不可阻挡，虽然目前各国政府对加密货币的监管越来越严格，但对行业整体发展是有利的。加密货币转账方便快捷，在俄乌战争中救援中发挥了巨大作用，目前乌克兰已经收到了超过1亿美元的加密货币捐款。加密货币是人们逃离独裁统治压迫的重要手段，未来加密货币市场还会持续增长。
 
-他解释说，这一姿态表明了政府和西班牙社会对乌克兰人民的承诺。
+文字版原文：[喜马拉雅币一周分析与总结（4月11日-4月17日）](https://gnews.org/zh-hans/2366322/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-通过这次旅行，桑切斯将加入欧盟国家和欧盟机构其他领导人做出的同样姿态，例如C冯德莱恩。
-
-他们都表达了对乌克兰的支持，在冯德莱恩访问基辅期间，促进了乌克兰对欧盟成员国的申请。
-
-西班牙加入支持行列，桑切斯在4月5日众议院的一次活动中明确提到了这一点，乌克兰总统通过视频会议发表讲话。
-
-在那次活动中，桑切斯说，乌克兰在未来成为欧盟成员的转型道路上，能够依靠西班牙的支持。
-
-因此，桑切斯将追随近几周来不顾俄罗斯入侵而访问乌克兰的少数领导人的脚步。第一批亲自访问基辅的政治领导人是波兰的马特乌斯-莫拉维茨基、斯洛文尼亚的雅奈兹-扬萨和捷克共和国的彼得-菲亚拉，这些领导人都事先通知了欧盟后在3月中旬以个人身份旅行乌克兰。
-
-在欧盟机构方面，欧洲议会主席梅佐拉（Roberta Metsola）于3月31日率先出行，为欧盟委员会主席冯德莱恩（Ursula Von der Leyen）和欧盟外交政策高级代表博雷尔（Josep Borrell）铺平了道路。
-
-4月，斯洛伐克总理爱德华-黑格和奥地利总理卡尔-内哈默以及英国政府首脑鲍里斯-约翰逊也曾前往乌克兰首都。 最近几天，乌克兰总统泽伦斯基公开邀请美国和法国总统拜登和马克龙访问基辅。
-
-**新闻来源：[Sánchez viajará a Kiev para trasladar a Zelenski el apoyo de España a Ucrania](https://www.heraldo.es/noticias/internacional/2022/04/19/sanchez-preve-viajar-proximos-dias-kiev-reunirse-zelenski-1568215.html)**
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
