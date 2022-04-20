@@ -2,42 +2,22 @@
 ---
 
 
-## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379563/)
+## 秘翻在线：韩国预测新冠病毒（中共病毒）下半年有可能再次流行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2379646/)
 
-**整理：枳实
-美工：精灵蓝**
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-39.jpg)图片来源：本文链接
+据韩媒《TV CHOSUN》4月20日报道，韩国建国大学数学系教授郑恩玉今天（20日）下午在疾病管理厅主办的“科学防疫大数据应用研讨会”上介绍了有关今年秋天新型冠状病毒（中共病毒）有可能再次流行的预测。这是根据秋季再流行开始之前第4次接种的多少来计算的结果。郑教授组预测，在此期间，新冠肺炎（中共病毒）死亡人数最少为700人，最多将多达2700人。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组 精灵蓝
+郑教授表示，由于忌讳接种疫苗的犹豫现象可能会将流行的最大值提高5%~20%，因此尽量减少对疫苗接种的犹豫现象，并人与人之间保持距离是重要的变数。
 
+韩国嘉泉医科大学预防医学教室教授郑在勋表示，隐形奥密克戎在优势化后10~14周之后会出现新的变异，并有可能成为优势物种。
 
-雅典娜疫情更新（2022年 4月20日）
+韩国国内已经流入了奥密克戎重组变异的XL、XE、XM变异。
 
-[往期《雅典娜疫情更新](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](//gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+信息来源：[http://news.tvchosun.com/site/data/html\_dir/2022/04/20/2022042090083.html](http://news.tvchosun.com/site/data/html_dir/2022/04/20/2022042090083.html)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-418.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-171.jpg)
-数据来源：
-[谷歌](//www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](//ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统](//www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](//www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](//covidlive.com.au/)
-[Coronavirus World Map](//www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：文武全才
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
-
-
-
-
-
-
+责编：Eric Kim
 
  
 

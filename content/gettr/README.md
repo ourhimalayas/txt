@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 12:38 PM (UTC)`
+
+ 4月20号：尊敬的战友们好．共产党连流氓．土匪．这个名称都不配．任何一个团体和政府去剥夺人们的生存权．和自己创造财富支配的权利的时候，那就是必须被消灭的时候，只是时间和方式问题，没有人可以阻挡共产党的灭亡……
+![img](https://media.gettr.com/group6/getter/2022/04/20/12/fa08ba7f-7f1a-7c99-6dd6-cfb4860d08d2/out.jpg)
+
+---
+
 `@miles 4/20/2022 12:02 PM (UTC)`
 
 2022.04.20 NFSC news  Review of Miles Guo's "4-19 VOA Broadcast Cut-off" Gate Incident
@@ -147,13 +154,6 @@
 
 【419 5th Anniversary】Mr. Miles Guo broke the news that then German Chancellor Angela Merkel flew on Wu Xiaohui's private jet to China for a secret meeting with Xi Jinping. This is one of the reasons why Wu Xiaohui must be taken out.<br/><br/>【419五周年】郭文贵先生爆料时任德国总理的默克尔搭乘吴小晖的私人飞机飞往中共国密会习近平。这也是为什么吴小晖必须被干掉的原因之一。<br/><br/>
 ![img](https://media.gettr.com/group35/getter/2022/04/20/00/b6c95dd7-5508-812a-f8e6-fe9da2b74eb0/out.jpg)
-
----
-
-`@miles 4/19/2022 10:32 PM (UTC)`
-
-4/19/2022 【419 5th Anniversary]】419 was absolutely a new start of the Chinese feminist movement, the moral corruption of Chinese society is definitely because the Chinese men are not strong enough.<br/><br/>4/19/2022【419五周年】：419绝对是中国女权运动新的开始，中国这些年整个的堕落就是因为男性“举而不坚”。<br/><br/>
-![img](https://media.gettr.com/group6/getter/2022/04/19/22/eb8ae261-490a-9675-55e2-b2609dfbafd5/out.jpg)
 
 ---
 
