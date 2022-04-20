@@ -2,35 +2,47 @@
 ---
 
 
-## 中日财经爆|易居企业控股公告美元债违约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2378146/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2378312/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月18日晚间，易居企业控股发布公告称，公司一笔4月18日到期，年利率7.625%的美元债违约。该违约也触发了2023年票据契约项下的交叉违约，易居2023年票据于4月19日9时开始于香港联合交易所暂停买卖。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-166.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.thebambooworks.com%2Fwp-content%2Fuploads%2F2021%2F04%2FE-House-0428.jpg&amp;imgrefurl=https%3A%2F%2Fwww.thebambooworks.com%2Fcn%2F%25E4%25BF%259D%25E5%25AE%2588%25E7%259A%2584%25E6%2598%2593%25E5%25B1%2585%25E9%2580%259A%25E8%25BF%2587%25E5%25B0%258F%25E8%25A7%2584%25E6%25A8%25A1%25E6%2594%25B6%25E8%25B4%25AD%25E6%259D%25A5%25E4%25B8%25BA%25E8%2587%25AA%25E5%25B7%25B1%25E6%25B6%2582%25E8%2584%2582%25E6%258A%25B9%25E7%25B2%2589%2F&amp;tbnid=dp8NgHQHpYurkM&amp;vet=12ahUKEwjnv_2NlqL3AhUK_4UKHROXDX0QMygKegUIARC0AQ..i&amp;docid=VllXJM0OMWX8FM&amp;w=900&amp;h=600&amp;q=%E6%98%93%E5%B1%85&amp;ved=2ahUKEwjnv_2NlqL3AhUK_4UKHROXDX0QMygKegUIARC0AQ)
-据公开资料显示，易居企业控股此次违约的美元债发行于2019年10月，当期余额3亿美元，期限2.5年，应于2022年4月18日到期。
+翻译：土饭团
 
-根据易居企业控股发布的公告，公司未能于2022年4月18日偿付2022年票据，该违约构成票据契约下的违约事件。该事件进而导致可换股票据信托契约的交叉违约，从而触发2023年票据契约项下的交叉违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-43.jpg)
 
-易居企业控股称，此类交叉违约不会构成2023年票据的加速到期。根据相关条款，只有当公司收到至少占2023年票据总本金25%受托人或持有人发出的书面通知时，此类违约事件才会加速2023票据的到期。公司正在评估此次违约所造成的影响，并将根据相关条例对事件的最新情况进行公告。目前，2022年票据已到期，并从联交所除牌，易居企业控股2023年票据也已经暂停买卖。
+您若想了解全文报导内容，请点击标题链接
 
-与此同时，公告称，截至本公告日期，公司尚未收到任何加速2022年票据、2023年票据或可换股票据的要求。
+1.[McCarthy：乌克兰的入侵应该成为武装台湾的“教训”](https://www.foxnews.com/politics/mccarthy-ukraine-invasion-arming-taiwan)
 
-易居企业控股2021年净利润亏损88.93亿元，出现大幅亏损。其中，一手房代理服务收入19.76亿元，同比减少38.3%，房地产经纪网络服务收入25.09亿元，同比减少8.1%，房地产数据及咨询服务收入9.15亿元，同比减少7.3%。
+福克斯新闻4月17日电，众议院少数党领袖Kevin McCarthy表示，他认为Biden总统需要尽快采取行动加强台湾的军事力量，以便台湾能有更好的自卫机会。如果在武装乌克兰人的问题上更早采取行动，将“拯救成千上万人的生命”，并可能从一开始就阻止俄罗斯总统Vladimir Putin的入侵。在中共国决定对台湾采取军事行动的情况下，总统必须从他在乌克兰问题的错误中吸取教训。
 
-2月23日，国际评级机构标普将易居企业控股的长期发行人信用评级从“B”下调至“CCC”，以及公司未偿高级无抵押票据的长期发行评级从“B”下调至“CCC”。当时标普的报告中指出，易居企业控股在未来两个月内有相当大规模的债务到期，公司难以从陷入困境的开发商那里获得付款，现金水平有所降低，正面临着潜在的流动性紧缩。
+2.[美国陆军利用乌克兰战争的教训来帮助自己训练](https://www.foxnews.com/us/us-army-using-lessons-from-ukraine-war-to-aid-own-training)
 
-消息来源:**[易居企业控股外债违约，2023年票据暂停买卖](https://cj.sina.com.cn/articles/view/1893892941/70e2834d020017o61)**
+福克斯新闻4月17日电，在加利福尼亚沙漠中，美国陆军训练员已经在利用从俄罗斯对乌克兰的战争中吸取的经验教训，为士兵们今后与俄罗斯或中共国这样的主要对手作战做准备。陆军部长Christine Wormuth表示，现在整个军队在关注在乌克兰发生的事情，并努力吸取经验，这些经验教训包括从俄罗斯的设备和后勤问题到通信和互联网的使用。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+3.[Kilmeade警告美国别无选择，唯有领导全球打击邪恶](http://%28https://www.foxnews.com/media/kilmeade-america-global-fight-against-evil)
+
+福克斯新闻4月16日电，福克斯新闻主持人Brian Kilmeade在周六“One Nation”节目中告诉观众，美国在全球范围内有责任领导并成为我们的盟友为其自由而战的榜样。我们看到俄罗斯和中共国等超级大国的邪恶在我们面前如此透明，如果我们让他们领导，我们所知道的生活素质将在这个地球上的大多数地区结束。尽管美国过去有孤立主义，但我们必须成为世界的领导者，我们别无选择。
+
+4.[美国将密切关注中共国在乌克兰问题上对俄罗斯的支持程度](https://www.aninews.in/news/world/us/us-to-keep-careful-eye-on-chinas-level-of-support-for-russia-over-ukraine-issues20220419034251/)
+
+ANI 4月19日电，美国国务院发言人Ned Price周一（当地时间）表示，美国将继续密切关注中共国在乌克兰问题上可能对俄罗斯展示出的支持程度。如果中共国为俄罗斯在乌克兰的行动提供武器或物资，或者帮助莫斯科逃避西方的制裁，将会有严重的后果。与此同时，美国在周末已经向乌克兰派出了四架满载安全援助的飞机，并在周一又交付了一架。
+
+5.[美国警告说中共国有能力将太空技术军事化](https://www.aninews.in/news/world/asia/us-warned-of-chinese-ability-to-militarise-space-tech20220419044603/)
+
+ANI 4月19日电，据最近的报道，美国怀疑中共国正在制定一项计划，即在需要时利用太空技术来阻断美国的雷达和干扰尖端武器系统。美国国防情报局（DIA）提交了一份80页的报告，供Biden政府审议并采取行动。“解放军可能将反太空行动视为在区域军事冲突中威慑和反击美国干预的一种手段，”DIA在报告中写道。
+
+* * *
+
+审核：阿伯塔
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
+
 
  
 

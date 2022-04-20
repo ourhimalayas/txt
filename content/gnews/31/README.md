@@ -2,20 +2,24 @@
 ---
 
 
-## 中日财经爆|日本央行开展3月下旬以来首次限制国债利率操作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377769/)
+## 嗅觉障碍会增加死亡风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377771/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/立正道
 
-4月20日上午，日本央行宣布将开展“限价操作”，以固定收益率无限量购买国债。其目的是抑制长期利率的上升，以维持将长期利率控制在0%左右的大规模货币宽松政策。这将是自3月下旬以来的第一次此类行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-26.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fa.c-dn.net%2Fc%2Fcontent%2Fdam%2Fpublicsites%2Figcom%2Fuk%2Fimages%2FContentImage%2FBG_bank_of_japan_435435435555.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ig.com%2Fen-ch%2Fnews-and-trade-ideas%2Fbank-of-japan-pr)
-因应美国长期利率上升，20日上午东京债市新发行10年期国债收益率达到0.25%，并且已经达到了日本央行作为一种大规模货币宽松形式所操作的长期利率波动范围的上限。
+新加坡国立大学的研究团队进行了9项协和研究的元分析，认为嗅觉障碍与各种疾病和身体紊乱有关,报告称由于嗅觉障碍的感染,导致全死亡风险约增1.5倍。他们认为,阐明准确机制仍需要进一步的研究。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-408.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.medscape.com%2Fthumbnail_library%2Fdt_210107_anosmia_loss_of_smell_800x450.jpg&amp;imgrefurl=https%3A%2F%2Fwww.medscape.com%2Fviewarticle%2F972005&amp;tbnid=tTwv_po8k7WSSM&amp;vet=10CAkQMyjMAWoXChMI4Jivoomi9wIV)
+嗅觉障碍的罹患率很高,全年龄为19～24%,65～80岁超过50%,80岁以上80%。嗅觉障碍与神经退化、心血管疾病、营养障碍、免疫障碍等并发症有关,但与死亡的流行病学关联,结果不一致。
 
-日本央行将以每年0.25%的的年利率从金融机构无限购买10年期政府债券。当利率上升时，债券价格下降，没有金融机构以高于日本银行提供的利率水平出售政府债券，因此0.25%是事实上的上限。
+从数据库中提取了2021年4月13日前发表的相关研究。通过系统审查和元分析,探讨了18岁以上的嗅觉障碍患者与全死亡的关联,寻求危险比(HR) 研究汇集风险依据进行了复杂的统计学处理，全死亡风险上升52%。
 
-消息来源:
+研究团队又进行了1项反向观察研究和10项积极观察研究共2万1,601例系统审查。平均年龄为50～81岁,北美7件,欧洲2件,澳大利亚和中国各1件研究。10件偏差风险低,剩下的1件被判定为中等度的偏差风险。即使排除了这1件事,结论也没有改变。
 
-[日銀、３月以来の「指し値オペ」実施を通告…長期金利に０・２５％の上限設定](https://www.yomiuri.co.jp/economy/20220420-OYT1T50115/)
+11件中的9件纳入了元分析。在汇集后的数据中,嗅觉障碍与全死亡风险的显著上升有关(HR 1.52、95%CI 1.28～1.80)。 虽然各项研究之间的异质性很高(I2=82%),但根据元回归分析,异质性的91.3%是由于平均跟踪时间越长关系越弱。11件中有10件在嗅觉障碍的评价上使用客观指标,1件使用自我报告,但效果大小是同等的。通过trim-and-fill修正和Egger检定审查出偏差后,嗅觉障碍和死亡风险的关联也得以维持。总体证据的质量是中等的。
+
+Pong先生说:“据我们所知,关于嗅觉障碍与死亡的流行病学关联的系统性审查和元分析是第一次。嗅觉障碍暗示了与全死亡有关,可以成为健康度和老化的标记。虽然这次的研究不能确定因果关系。但是,附言说“要确立背景机制和干预的范围,需要进一步的研究”。 另外,关于伴随新型冠状病毒感染(COVID-19)的嗅觉障碍,“短期观察与死亡率下降有关,但长期关联目前不明”。
+
+信息来源：[嗅覚障害で全死亡リスク上昇](https://medical-tribune.co.jp/news/2022/0419545323/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220420)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
