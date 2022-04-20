@@ -2,26 +2,25 @@
 ---
 
 
-## 越来越多的俄罗斯精英开始质疑普京的入侵计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2381777/)
+## 加拿大各省疫情都已再度复苏
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381811/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16504814991-1.png)DW.com
-据福克斯新闻4月20日报道，有克里姆林宫的高层官员开始质疑普京对乌克兰开战的决定。但他的支持率仍然居高不下。
+作者：加拿大温哥华扬帆农场 – 文莱
 
-普京在俄罗斯精英中的支持率居高不下的原因是，许多人依然相信克林姆林宫的话；即俄罗斯不会受西方制裁太大的影响。尽管如此，越来越多的人认为，普京继续入侵将使俄罗斯孤立于世界。俄罗斯经济的瘫痪将影响到其全球影响力。
-
-消息人士说，入侵乌克兰的决定是由普京和俄罗斯国防部长谢尔盖·绍伊古 （Sergei Shoigu）、俄罗斯上将瓦莱里·格拉西莫夫（Valery Gerasimov）和俄罗斯安全理事会主席尼古拉·帕特鲁舍夫 （Nikolai Patrushev）等少数俄罗斯精英做出的。
-
-鉴于战争持续了近两个月，和经济制裁加剧，包括俄罗斯政府和国有企业在内的高层认为，入侵是一个灾难性的错误。这将使该国的经济 倒退很多年。
-
-随着俄罗斯军队的挫败，普京说，是西方让他 ”别无选择”，他只能攻打乌克兰。一些官员越来越担心在可能面临失败的情况下，普京可能会使用核武器。但目前普京对这些有关战争经济代价的警告毫不在意。
-
-*责编：白夜*
-
-[文章来源](https://www.foxnews.com/world/russian-officials-questioning-putins-decision-to-invade-ukraine-report)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504826321.png)图片来源：CTV News
 
 
+据加拿大【CTV新闻】4月19日报道，目前加拿大各地的医院都在忙于应对新冠病毒的再次来袭，而且疫情恶化的情况可能会持续一个月以上。
+
+加拿大公共卫生署最新数据显示，从4月4日至11日期间，加拿大各地因感染新冠病毒而住院的人数增加了约18%，从5109人增加到6020人。同时，大多数省份的重症监护人数也呈上升趋势。
+
+对此，艾伯塔省卫生部负责人表示，尽管目前该省正处于由奥密克戎BA.2子变体所引发的第六波疫情之中，但所导致的伤害程度并不像最初的奥密克戎所造成的那样剧烈。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
 
  
 
