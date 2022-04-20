@@ -2,40 +2,36 @@
 ---
 
 
-## COVID 疫苗的问题已经开始影响到常规免疫接种中
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377454/)
+## 台积电为美国新工厂筹集35亿美元债券
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377522/)
 
-翻译： Jenny Ball
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1617359183346071.jpg)图片来源：www.caixinglobal.com
 
 
+根据CNA 4月20日报道，根据一份条款清单显示，台湾芯片公司台积电为其在美国亚利桑那州的新工厂筹集了35亿美元的债券。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-401.jpg)图片来源：Chip Somodevilla/Getty Images
+台积电是苹果公司的主要供应商，也是全球最大的芯片代工制造商。去年在亚利桑那州的工厂开始建设，该公司计划斥资120亿美元建设一家计算机芯片工厂。
+早在3月底，有设备供应商消息传出，台积电美国亚利桑那州工厂将于明年第一季度开始进驻设备，主要目标是N5P（升级版5nm）和N4（4nm）制程，预计将于2024年上半年量产，第一阶段月产能约2万片。
 
-孩子们没有赶上他们在大流行期间错过的常规注射，许多疫苗接种支持者指出： COVID-19 疫苗犹豫是一个重要原因。
+业内指出，台积电N5制程量产快两年，N5P制程比N5制程性能提升5%，功耗下降10%，而N4则是N5的另一升级版，进一步提升性能、功耗和密度，美国工厂导入这两大制程更可满足客户需求。
 
-10 个州的公共卫生专家、儿科医生、学校护士、免疫倡导者和州官员告诉《政治客》，他们担心越来越多的家庭将他们对 COVID-19 疫苗的态度联系到麻疹、水痘、脑膜炎和其他疾病的疫苗上。
+资料来源：
 
-疫苗犹豫的蔓延也可能助长学龄儿童父母的宗教豁免请求增加，并使各州更难赶上在大流行初期因家庭不看医生而错过免疫接种的儿童，他们说。
+1. [Taiwan’s TSMC raises $3.5 billion in bonds for new US plant](https://www.channelnewsasia.com/business/taiwans-tsmc-raises-35-billion-bonds-new-us-plant-2634981)
+2. [传台积电美国工厂明年Q1进驻设备N5P、N4制程量产时程不变](https://www.laoyaoba.com/n/812822)
 
-儿科医生兼美国儿科学会乔治亚分会会长雨果·斯科尼克（Hugo Scornik），对去年在州立法机构提出的几项限制疫苗接种的法案感到震惊，其中包括一项将终止学校免疫要求的法案。几个州考虑过类似的立法，这些立法，要么取消或削减学校疫苗接种要求，但没有一个向前推进接种的。
 
-新闻来源：[Covid vaccine concerns are starting to spill over into routine immunizations](https://www.politico.com/news/2022/04/18/kids-are-behind-on-routine-immunizations-covid-vaccine-hesitancy-isnt-helping-00025503)
+发布：tianzhihuan
 
-* * *
-
-审核：文乐  
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

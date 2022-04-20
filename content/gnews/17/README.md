@@ -2,40 +2,18 @@
 ---
 
 
-## 专家说COVID疫苗并非旨在预防所有感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377339/)
+## 秘翻在线：日本著名喜剧人说日本的病毒防控措施比中共国的好
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2377450/)
 
-翻译： Jenny Ball
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-21.png)（图片源自本文链接）
+月日消息：20日，喜剧二人组“极乐蜻蜓”的加藤浩次（52岁），作为嘉宾出现在他任主持人的NTV的 “Sukkiri “节目中（周一至周五，上午8点播出）。谈了他自己对预防中共病毒(新冠病毒)感染的措施的想法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+该节目报道说，由于感染的蔓延，中共国上海自4月1日以来一直处于封锁状态。关于封锁具体地说，居民已被禁止离家，除医务工作者和快递员外，其他所有人都被禁止上班，公共交通和其它公共设施也已停用。加藤说，”我想了想，中共国从中共病毒蔓延开始以来采取的一直都是封锁政策。虽然死亡人数不多，但中共病毒已经被这种封锁所控制，每个人都被告知不要外出。在欧洲和美国，政策会稍微宽松一点，但感染者的数量还是迅速蔓延，有许多人死亡。在日本，每个人都戴着口罩，我们已经能够在一定程度上出行，但我们用紧急事态宣言等设法使死亡人数低于欧洲和美国”。
 
+加藤还补充说：我们看到了各种各样的中共病毒对策，但这次我们发现，即使用了中共国严厉的封锁政策也没能控制住病毒蔓延。当初，我想有很多人曾说过“日本也应该像中共国一样封锁才对”。 现在知道了，靠封锁并没有能控制住病毒感染的扩散。有很多人说“日本在做什么？” ，我也曾这样想过。虽然日本目前仍处在努力减少感染的过程中，但我认为日本采取的防控措施真的很好。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-399.jpg)图片来源：Viacheslav Lopatin/Shutterstock
-
-《今日美国》（USA Today）通过 MSN 报道：
-
-丹尼·米切尔(Denny Mitchell)不敢相信他在一月份的冠状病毒检测呈阳性。这位来自休斯敦的 45 岁的中年人从来没有不戴口罩出门，他不惜一切代价避免在室内用餐，最重要的是，他完全接种了疫苗，但他还是生病了。“我很惊讶，因为我采取了如此多的预防措施。”他说。
-
-听说有人感染 COVID-19 已不再罕见，即使他们已完全接种疫苗和加强免疫。然而，当这件事发生在他们身上时，许多美国人仍然感到震惊。
-
-到 2021 年 4 月，接种疫苗的人的感染人数如此普遍，以至于 CDC 停止跟踪他们。 但一些研究表明，这些所谓的突破性感染已经呈上升趋势。
-
-新闻来源：[COVID vaccines are not meant to prevent all infections, experts say](https://www.msn.com/en-us/news/us/covid-vaccines-are-not-meant-to-prevent-all-infections-experts-say-americans-need-to-reset-their-expectations/ar-AAWiz0D)
-
-* * *
-
-审核：文乐     
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+信息源：[加藤浩次 上海のロックダウン引き合いに「日本がやった感染対策はやっぱり良かったと思う」 (msn.com)](https://www.msn.com/ja-jp/news/opinion/%E5%8A%A0%E8%97%A4%E6%B5%A9%E6%AC%A1%20%E4%B8%8A%E6%B5%B7%E3%81%AE%E3%83%AD%E3%83%83%E3%82%AF%E3%83%80%E3%82%A6%E3%83%B3%E5%BC%95%E3%81%8D%E5%90%88%E3%81%84%E3%81%AB%E3%80%8C%E6%97%A5%E6%9C%AC%E3%81%8C%E3%82%84%E3%81%A3%E3%81%9F%E6%84%9F%E6%9F%93%E5%AF%BE%E7%AD%96%E3%81%AF%E3%82%84%E3%81%A3%E3%81%B1%E3%82%8A%E8%89%AF%E3%81%8B%E3%81%A3%E3%81%9F%E3%81%A8%E6%80%9D%E3%81%86%E3%80%8D/ar-AAWn5rW?ocid=msedgntp&amp;cvid=994e14361a4c42058bed6aafb37af9c4)
 
  
 

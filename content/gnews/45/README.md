@@ -2,27 +2,29 @@
 ---
 
 
-## 无惧俄威胁 马立波市奋战抗敌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371676/)
+## 新冠疫苗｜福奇指群体免疫不适用新冠病毒 暗示民众需继续打针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2372113/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据台媒4月17日报道，俄罗斯国防部扬言，限定乌克兰东南部马立波市军队当地时间17日清晨6时至下午1时弃械投降。总统泽连斯基强调，乌东领土寸土不让。
+**图/文｜CP **
+**发布时间｜19/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新冠疫苗｜福奇指群體免疫不適用新冠病毒-暗示民眾需繼續打針.jpg)
 
-泽连斯基表示，他不信任俄军与俄罗斯领导高层，若马立波的守军遭歼灭，乌俄间的任何谈判都将破局。据悉，该地也是连接乌东和乌南的必经之路。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-47.jpg)
-针对俄军宣称已几乎完全掌控马立波，乌国总理什米加尔同日表示，该市仍未沦陷，乌军仍奋战不懈，并控制市内几处地方。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-由于俄军围攻马立波已达两个多月，泽连斯基十六日指出，马立波当前处境极其严峻，他再次敦促西方国家立即提供更多重型武器，并呼吁西方团结拯救这座围城。
 
-参考链接：[不理俄通牒 馬立波奮戰拒降](https://news.ltn.com.tw/news/world/paper/1512215)
+美国国家传染病研究所所长福奇（Anthony Fauci）周五（15日）接受采访时表示，群体免疫的概念可能不适用于新冠病毒。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+早前，福奇联同多名医学专家为《传染病学期刊》撰写了一篇关于群体免疫的研究论文，对此，福奇在接受媒体访问时以美国曾经利用群体免疫战胜麻疹举例，指出当时之所以成功战胜麻疹基于三个重要性指标，包括绝对有效的疫苗、病毒不会随时间产生显著变异以及成功的儿童疫苗接种。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+福奇指出，对照目前的新冠病毒来看，疫情爆发两年多以来，不断出现 Delta和Omicron等多种显著性变异毒株，加上疫苗接种率不足，因此认为，群体免疫概念可能不适用于新冠病毒。福奇强调，无论是接种疫苗诱发的免疫力，还是染疫后引起的免疫作用都并非终生，这意味着民众需要不断的接种新冠疫苗。
+
+有评论质疑，在福奇所列举的三大重要性指标中，“绝对有效的疫苗”居于首位，那么群体免疫不奏效的根本原因，应该率先考虑疫苗的有效性问题，而不是将群体免疫无效的症结点归结到疫苗接种率的问题上。再者，既然疫苗诱发的免疫力并非终生，那么是否值得为了短暂的免疫力而承担所可能引起的上千种疫苗副反应呢？归根结底，任何一个负责任的科学家，都不应该鼓励民众继续接种一个弊大于利的疫苗。
+
+来源｜[NJ](https://www.nj.com/coronavirus/2022/04/dr-anthony-fauci-says-herd-immunity-may-not-apply-to-covid.html)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

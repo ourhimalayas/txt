@@ -2,86 +2,30 @@
 ---
 
 
-## 霍利参议员：阻止入侵就是要确保台湾拥有自卫所需的武器
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2377129/)
+## 欧盟主席：俄破产只是时间问题 乌终将胜利
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2377269/)
 
-**参议员霍利新闻办公室： **
-霍利参议员说，“阻止入侵就是要确保 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12·com网：霍利提出《台湾武器出口法》】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-12.jpg)欧盟主席：俄破产只是时间问题 乌终将胜利 网络图片
+据法国国际广播电台4月19日报道，欧盟执委会主席冯德莱恩针对乌克兰局势发表看法。她认为最坏的状况是战争可能持续数年。冯德莱恩表示，目前欧盟已为乌克兰提供了15亿欧元的物资，协助乌克兰在防御斗争中生存下来。欧盟对俄罗斯的制裁正在发挥作用，“对俄罗斯的出口下降了70%；700架俄罗斯飞机失去执照；数百家大公司和数千名专家正在抛弃俄国。俄罗斯国家破产只是时间问题，普京在摧毁他自己的国家和人民的未来。乌克兰终究会赢得胜利”。俄罗斯前总统梅德韦杰夫警告说，由于俄罗斯金融问题，欧洲可能面临经济困难。
 
+冯德莱恩坚信在乌克兰犯下战争罪的俄罗斯侵略者将受到国际法庭的惩罚。普京要对这场战争负责。欧盟将加速考虑乌克兰加入欧盟的请求，欧盟理事会将于6月23日和24日召集会议。乌克兰总统泽连斯基表示，届时乌克兰或可获得欧盟候选国的地位。
 
+俄乌战争已进入第54天。乌克兰东部的顿涅茨克和卢甘斯克地区遭到俄罗斯炮火的持续攻击，造成的经济损失超过850亿美元。乌克兰当局最近公布的数字显示，目前已有2.06万俄军死于俄乌战争；而西方保守估计的俄军死亡人数则介于7,000至1.5万人。而且，俄军在一线死亡的高阶军事指挥官的人数已达到35人。
 
-> Sen. Hawley says “deterring an invasion is ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.” [https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516492000048160773?ref_src=twsrc%5Etfw)
+俄罗斯对乌克兰发动的侵略战争导致了巨大的人道灾难，俄罗斯遭到了国际社会前所未有的严厉制裁。乌克兰上至总统，下至平民同仇敌忾对抗俄罗斯，国际社会也在持续援助乌克兰。正义必将战胜邪恶，乌克兰人民保家卫国的坚强意志也鼓励了全世界的正义力量共同加入对抗俄罗斯，乌克兰最终必将赢得战争，乌克兰人也会得到全世界的尊重，俄罗斯会因为普京的疯狂而一蹶不振，国家走向衰落。
 
+新闻参考链接：[https://www.rfi.fr/cn/欧洲/20220419-欧盟主席-俄破产只是时间问题-乌终将胜利](https://www.rfi.fr/cn/%25E6%25AC%25A7%25E6%25B4%25B2/20220419-%25E6%25AC%25A7%25E7%259B%259F%25E4%25B8%25BB%25E5%25B8%25AD-%25E4%25BF%2584%25E7%25A0%25B4%25E4%25BA%25A7%25E5%258F%25AA%25E6%2598%25AF%25E6%2597%25B6%25E9%2597%25B4%25E9%2597%25AE%25E9%25A2%2598-%25E4%25B9%258C%25E7%25BB%2588%25E5%25B0%2586%25E8%2583%259C%25E5%2588%25A9)
 
+* * *
 
-**参议员霍利新闻办公室： **
-霍利参议员提出的《台湾武器出口法》，将 “帮助美国尽快地将这些武器运往 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE)”。 【附参议院官网：霍利提出《台湾武器出口法》】
-
-
-
-> The legislation Senator Hawley introduced, the Taiwan Weapons Exports Act, will “help the United States get these weapons to Taiwan as quickly as possible.”[https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516511798471671809?ref_src=twsrc%5Etfw)
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**参议员霍利媒体办公室： **
-参议员霍利陈述，“…现在把快速武器进口到 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 实在太重要了，[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 仍有时间调整国防，并震慑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的入侵。“【转华盛顿信使，霍利说美国必须武装台湾，在一切都太迟之前】
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-> Senator Hawley states “…it is so important to fast-track weapons to Taiwan now while Taiwan still has time to marshal its defenses and deter a Chinese invasion.” [https://t.co/fEv61w8NfP](https://t.co/fEv61w8NfP)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516412882480775169?ref_src=twsrc%5Etfw)
-
-
-
-**前国务次卿基思·克拉奇： **
-在 [@SXMPOTUS](https://gettr.com/user/SXMPOTUS) 节目中，我和 [@SteveScully](https://gettr.com/user/SteveScully) 分享了一些从俄乌战争中可以应用到 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 和 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的教训。首先是侵略者在袭击下如何让人们失去合法性。同时，还需要有速度，有力量，能承诺的盟友。
-
-
-
-> On [@SXMPOTUS](https://twitter.com/SXMPOTUS?ref_src=twsrc%5Etfw) with [@SteveScully](https://twitter.com/SteveScully?ref_src=twsrc%5Etfw) I shared some lessons from [#UkraineRussiawar](https://twitter.com/hashtag/UkraineRussiawar?src=hash&amp;ref_src=twsrc%5Etfw) that can be applied to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) and [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw). First is how the aggressor delegitimizes the people under attack. There is also a need for speed, for strength, and committed allies. [https://t.co/G34o3izfZ0](https://t.co/G34o3izfZ0) [pic.twitter.com/qWvZjT4OxM](https://t.co/qWvZjT4OxM)
-> — Keith J. Krach (@KeithJKrach) [April 19, 2022](https://twitter.com/KeithJKrach/status/1516408776986877953?ref_src=twsrc%5Etfw)
-
-
-
-**众议员吉姆.班克斯： **
-这就是 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) [#CCP](https://gettr.com/hashtag/%23CCP) 如何回应（拜登政府的）软弱 【转路透社报道：中（共）国高级外交官称中（共）国将加强与俄罗斯的“弹性”战略协调】
-
-
-
-> This is how the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) responds to WEAKNESS [https://t.co/SZ4rPoIBas](https://t.co/SZ4rPoIBas)
-> — Jim Banks (@RepJimBanks) [April 19, 2022](https://twitter.com/RepJimBanks/status/1516457687931838464?ref_src=twsrc%5Etfw)
-
-
-
-**中华民国外交部: **
-我们衷心感谢美国的友谊和坚如磐石的支持。台湾**🇹🇼**将继续与其他力量合作，捍卫自由、民主和尊重人权等共同价值观，同时维护印太地区和世界各地基于规则的秩序。 【转美国务院发言人推文：大意是祝贺台湾民权活动家李明哲在中共国获释】
-
-
-
-> We sincerely thank the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw)🇺🇸 for its friendship & rock-solid support. [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼 will keep working with fellow forces for good in defending shared values like freedom, democracy & respect for human rights while upholding rules-based order in the [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) & around the world. [https://t.co/5UULE8fPsQ](https://t.co/5UULE8fPsQ)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [April 19, 2022](https://twitter.com/MOFA_Taiwan/status/1516233127261196288?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-我很高兴看到美国终于给乌克兰送上了这些武器，但我们应该在几周前，甚至几个月前赢得这场“竞赛”。 【附纽约时报文章：美国竞相用更重、更先进的武器武装乌克兰】
-
-
-
-> I’m glad we’re finally sending these weapons, but we should’ve won this “race” weeks ago, if not months. [https://t.co/Gt2BcNqELN](https://t.co/Gt2BcNqELN)
-> — Tom Cotton (@SenTomCotton) [April 19, 2022](https://twitter.com/SenTomCotton/status/1516562130429956096?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂： **
-参议员哈格蒂:在乌克兰战争和 #中共国 的挑衅中，美国对太平洋盟友的承诺更显重要 （附华盛顿时报的同题报道）
-
-
-
-> Sen. Hagerty: U.S. commitment to Pacific allies more vital amid Ukraine war, Chinese provocations | [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) [https://t.co/kg5BH8aSVY](https://t.co/kg5BH8aSVY)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 19, 2022](https://twitter.com/SenatorHagerty/status/1516447783372443663?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
 
 

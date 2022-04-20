@@ -2,38 +2,56 @@
 ---
 
 
-## 医疗监管机构董事会成员面临与制药公司联系的问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377392/)
+## COVID-19疫苗副作用集萃(2022.4.20A) 科兴疫苗第一针后身体副作用反应明显
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377508/)
 
-翻译： Jenny Ball
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+整理/编辑：禄森
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+**帖子原文**：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-400.jpg)图片来源：Nisha Dutta/Getty Images/iStockphoto
+**博主: 豆豆不爱胡萝卜**
 
-英国药品监管机构在发现其六名董事会成员正在接受制药行业的付款后，已被敦促加强其利益冲突政策。
+科兴第一针后症状
 
-参与监督监管机构“战略方向”的董事会成员，还拥有包括美国和沙特制药巨头在内的公司，以及有志打入英国医疗保健市场的公司的经济利益。根据官方透明度记录，一些提供咨询服务，而另一些则帮助经营或拥有药品和医疗器械公司的股份。
+朋友说她打疫苗没什么反应，可是我反应很明显，刚打进去的时候痛了大概十分钟左右，感觉比一般打针痛多了，然后不痛了，但是手臂觉得酸胀无力。
 
-调查结果引起了人们对药品和保健品监管机构 (MHRA) 高级官员之间的利益冲突的担忧，该机构是卫生和社会保健部的执行机构，负责监管药品和保健品，医疗设备并确保其安全。
+打了之后没敢吃辣，没敢洗澡。第二天的时候针孔附近肿了，稍微碰到或者拉扯到就觉得痛，而且觉得很困，乳腺胀痛，不知道是不是快来姨妈的原因，今天是第三天，头晕乎乎的，下午开始头痛。
 
-新闻来源：[Medical regulator faces questions over board members’ links to drug firms](https://www.theguardian.com/society/2022/apr/17/medical-regulator-faces-questions-over-board-members-links-to-drug-firms)
+希望明天一觉醒来一切不良反应都消失
 
-* * *
+**作者发布于2022-3-28**
 
-审核：文乐  
-校对：信心满满
-发布：五通庙
+**评论选集:**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+小太阳评论:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+我昨天下午打的科兴 打完困的不行 脑袋发懵 困到晚饭都不想吃 晚上睡一觉起来今天还是很困 感觉像脑袋外面有层罩子 对外界感知非常不敏感 晕晕乎乎的 我都不知道咋回事
+
+小橙子评论:
+
+我上个月打的长春生物 第二天开始咳嗽肺疼 不知道跟疫苗有没有关系 但是病好了之后过敏性鼻炎也跟着好了 因祸得福
+
+方小琪评论:
+
+我周六打的第一针科兴，当天完全没感觉，周日也还好，今天明显觉得有点疼。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2421.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2420.png)图片来源：小红书
+参考链接：
+
+[头痛，头昏，乳腺胀痛，手臂酸胀，乏力](https://www.xiaohongshu.com/discovery/item/6241895d0000000021038885?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650068467)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

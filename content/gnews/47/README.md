@@ -2,33 +2,25 @@
 ---
 
 
-## 乌克兰救援感动了欧洲某国国防高官
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371674/)
+## 西班牙志愿者被“推翻中共”的口号吸引
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371675/)
 
-作者：澳喜—追着曙光跑
+作者：纽约香草山农场-飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月17日，郭文贵先生在盖特直播中爆料，一位刚从乌克兰前线回到欧洲某国的国防高官，嘱托郭先生代他向所有参加前线救援的战友们致以衷心的感谢。并且表示，日后，他会亲自看望每一位在前线参加救援的战友。
+4月16日，在新中国联邦梅迪卡救援前线的大帐篷里，战友采访了一位来自西班牙的志愿者卢卡。卢卡还是一名在校大学生，是利用复活节假期来到这里做志愿者帮助乌克兰难民的。他对新中国联邦战友黄马甲上写着的“推翻中共”的口号很感兴趣。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-46.jpg)
+让我们惊喜的是，他对中共对待香港、新疆的屠杀和镇压，压制新闻自由和活摘器官等罪行，以及美欧与其深入勾兑等，都有深刻认识，并用自己的切身经历表达了他对共产主义的体会。
 
-该国防高官表示，他参观了新中国联邦法治基金乌克兰救援帐篷，与战友们进行了交谈，但当时大家并不知道他的真实身份。营地战友还非常礼貌地邀请他拍照、采访，由于有任务在身，他委婉地拒绝了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-43.jpg)
-看见战友们工作认真、专业，他非常感动。喝了两杯著名的前线咖啡之后，跨过边防线，进入乌克兰执行任务，然后搭乘军机回到自己的国家。
+最后，卢卡说他希望整个世界能够团结起来，停止互斗，共同对付像俄罗斯和中共这样的邪恶势力。
 
-这位高官还特别强调，被新中国联邦救助的人当中，有一些是俄乌战争重要人物的家属。其中，与他们军方合作的乌克兰某个关键人物的家人，就接受过新中国联邦的救援。
-
-郭先生最后指出，这位国防高官是他的好朋友，同时也是新中国联邦这几年在欧洲发展的战略合作伙伴，并多次游说欧洲议会承认新中国联邦。
-
-参考链接：[乌克兰救援感动了欧洲某国国防高官](https://gettr.com/post/p15op9j589b)
+参考链接：[西班牙的志願者卢卡(Luca)被“推翻中共”这一口号所吸引](https://gettr.com/post/p15sngce484)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编：DM
-编辑：熊嘟嘟
-审核：Jack Li文阳
+总编/编辑/审核：DM
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 
