@@ -2,22 +2,28 @@
 ---
 
 
-## 樱花时政┃日本撤销对俄最惠国待遇暂定关税法成立
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377706/)
+## 中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377779/)
 
-撰稿：东京樱花团/百花李香
+撰稿：东京樱花团/peterwong
 
-4月20日，日本参议院全体会议通过并颁布了关于撤销对俄罗斯的“最惠国待遇”的临时海关措施修订法。此修订法是针对对俄入侵乌克兰后加强经济制裁的一部分，俄罗斯鱼类和海产品及其它产品的关税将被提高到明年3月底。同时，还通过并颁布了修订后的《外汇和外贸法》，以此堵住对俄制裁的漏洞。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-25.jpg)[图片来源](https://www.google.com/search?q=Japan-Russia&amp;biw=1540&amp;bih=763&amp;sxsrf=APq-WBsXRC03TlUQcx7IuvPldVj_aUGlQA:1650431094569&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=aQ748C2uLqeT9M%252C1nNZZu-)
-随着对俄罗斯最惠国待遇的取消，从俄罗斯进口的产品将在适用优惠待遇之前受到关税税率的限制。鲑鱼的关税将从目前的3.5%提高到5%，螃蟹的关税从4%提高到6%。另一方面，原油以及液化天然气（LNG）和稀有金属钯等不会受到影响。
+4月20日外汇市场上，日元汇率触及129日元兑1美元，这是日元自2002年4月以来的最弱水平。由于美国的长期利率上升导致广泛的日元抛售和美元买入，预计日本和美国之间的利率差距将扩大，日元继续快速贬值。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-164.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.j-cast.com%2Fkaisha%2Fimages%2Forigin%2F2022%2F04%2Fkaisha_20220410211142.jpg&amp;imgrefurl=https%3A%2F%2Fwww.newsdirectory3.com%2Fcontinued-depreciation-of-the-yen-against-the-dollar-will-the-us-streng)
+美联储官员对加快加息步伐表现出积极态度，美国长期利率连续第三天上升。日本方面，预计日本央行的货币宽松政策将维持低利率，而日美货币政策差异使得日元更容易被抛售。
 
-信息来源：[ロシア最恵国待遇撤回法が成立　制裁強化、魚介類関税引き上げ](https://news.yahoo.co.jp/articles/822c12ce60a10a7fb249268768ea2d4460721d5f#:~:text=%E3%83%88%E3%)
+日元贬值也是由于进口燃料和原材料价格飙升以及日本进口商对美元结算的需求膨胀。市场有观点认为日元兑美元可能贬值至135日元水平（证券交易策略师），投机者试图抛售日元，导致日元快速贬值。
+
+美国财长耶伦与财长铃木的会晤定于20日在华盛顿举行的二十国集团财长和央行行长会议上举行。日方也想讨论汇率走势，遏制突发波动。
+
+日元兑欧元、英镑、澳元等货币正在贬值，日元贬值的趋势更加突出。20日，日元兑欧元汇率为1欧元兑 139日元，为2015年6月以来约7年来的最低水平。
+
+消息来源:
+
+[２０年ぶり１ドル＝１２９円台…日米金利差拡大で円売り加速](https://www.yomiuri.co.jp/economy/20220420-OYT1T50085/)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

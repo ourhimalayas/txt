@@ -2,19 +2,28 @@
 ---
 
 
-## 习二对莫德尔周期深信不疑（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377947/)
+## 【G时新闻】加拿大违反《权利与自由宪章》最严重省份排行榜
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2378111/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据自媒体《真北方》4月17日报道，为纪念《权利和自由宪章》颁布四十周年，加拿大[宪政自由司法中心]对疫情期间违宪最严重的省份进行了排名，其中魁北克省被评为榜首。 报道称, 在过去两年中，联邦和各省政府都出现了大量严重违宪行为。尽管全国各地在疫情初期都采取了几乎相同的限制措施，但随着时间和各省对所谓“科学”的不同理解而造成了对疫情反应的巨大差异。因此导致了不同省份的加拿大人所遭受的侵害程度不尽相同。 由于实施了极权宵禁、旅行限制，疫苗护照，强制接种以及对未接种疫苗者威胁征税等，魁省获得违宪最严重的称号，而BC省因强制医护人员接种疫苗及任意关闭礼拜场所名列第二；曼省、安省、大西洋四省及阿省分列第3至6名；萨省则因今年2月就率先宣布取消疫情封锁及其相对温和的防疫政策而排名最后。
 
-发布：*陶子*
+盖特链接：[https://gettr.com/post/p163dlk33af](https://gettr.com/post/p163dlk33af)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

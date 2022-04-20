@@ -2,18 +2,14 @@
 ---
 
 
-## 当爷们一定要有力量，嘴炮和眼泪解决不了事情
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377904/)
+## 图片：共产党的百年杀人史
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2378047/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+#### 制图：日本东京方舟农场 阿弥陀佛
 
-发布：*陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3.1-1.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
 
  
 

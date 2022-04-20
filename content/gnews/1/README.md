@@ -2,20 +2,21 @@
 ---
 
 
-## 原北京市财政部李爱庆（音）跟习打交道，习问他觉得自己手掌如何，后来进去了（被抓）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378031/)
+## 视频|泽连斯基与国际货币基金组织讨论乌克兰重建
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2378164/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+制作：香草山视频部
 
-发布：*陶子*
+4月17日，乌克兰总统泽连斯基表示，他与国际货币基金组织总裁格奥尔基耶娃进行了交谈，讨论了乌克兰的金融稳定和战后重建问题。
+据世界银行上周发布的报告，受战争影响，乌克兰今年的国内生产总值预计将下降 45.1%，如果战争持续，损失还会有所增加。
+泽连斯基表示，他和格奥尔基耶娃已经有了明确的合作计划，和对未来的展望，他相信国际货币基金组织和乌克兰之间的合作将取得丰硕成果。格奥尔基耶娃对推文进行了积极回应，并称乌克兰盟友持续的经济支持将为重建工作奠定基础。
+另外，乌克兰总理什米加尔早些时候表示，他将出席本周在华盛顿举行的国际货币基金组织和世界银行的会议，为乌克兰寻求更多的财政援助。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+发稿：qiutian（邱甜）
 
-
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

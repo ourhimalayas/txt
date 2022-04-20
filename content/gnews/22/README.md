@@ -2,28 +2,41 @@
 ---
 
 
-## 嗅觉障碍会增加死亡风险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377771/)
+## 美国“人民车队”自由抗议，加拿大“自由车队”遭秋后算账
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2377801/)
 
-撰稿：东京樱花团/立正道
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-3-c786b65d55.jpg)图片来源：卫报
+根据《华盛顿观察家报》4月19日的报道，为抗议中共病毒（COVID-19）的系列强制政策，“人民车队（People’s Convoy）”团体本周开始在加州国会大厦举行为期三天的抗议活动。
 
-新加坡国立大学的研究团队进行了9项协和研究的元分析，认为嗅觉障碍与各种疾病和身体紊乱有关,报告称由于嗅觉障碍的感染,导致全死亡风险约增1.5倍。他们认为,阐明准确机制仍需要进一步的研究。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-408.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.medscape.com%2Fthumbnail_library%2Fdt_210107_anosmia_loss_of_smell_800x450.jpg&amp;imgrefurl=https%3A%2F%2Fwww.medscape.com%2Fviewarticle%2F972005&amp;tbnid=tTwv_po8k7WSSM&amp;vet=10CAkQMyjMAWoXChMI4Jivoomi9wIV)
-嗅觉障碍的罹患率很高,全年龄为19～24%,65～80岁超过50%,80岁以上80%。嗅觉障碍与神经退化、心血管疾病、营养障碍、免疫障碍等并发症有关,但与死亡的流行病学关联,结果不一致。
+周一的时候，有100多名示威者来到加州萨克拉门托（Sacramento），周二也有类似规模的人群出现，呼吁该州取消剩余的中共病毒相关限制措施，并要求在未来避免颁布更多的强制规定。
 
-从数据库中提取了2021年4月13日前发表的相关研究。通过系统审查和元分析,探讨了18岁以上的嗅觉障碍患者与全死亡的关联,寻求危险比(HR) 研究汇集风险依据进行了复杂的统计学处理，全死亡风险上升52%。
+“人民车队”组织者迈克·兰迪斯（Mike Landis）说：“重要的是，没有人应该被迫做他们不想做的事情。”
 
-研究团队又进行了1项反向观察研究和10项积极观察研究共2万1,601例系统审查。平均年龄为50～81岁,北美7件,欧洲2件,澳大利亚和中国各1件研究。10件偏差风险低,剩下的1件被判定为中等度的偏差风险。即使排除了这1件事,结论也没有改变。
+抗议活动中，示威者在州议会大厦的台阶上高呼，而另一些与会者在附近的公路上开车鸣笛。
 
-11件中的9件纳入了元分析。在汇集后的数据中,嗅觉障碍与全死亡风险的显著上升有关(HR 1.52、95%CI 1.28～1.80)。 虽然各项研究之间的异质性很高(I2=82%),但根据元回归分析,异质性的91.3%是由于平均跟踪时间越长关系越弱。11件中有10件在嗅觉障碍的评价上使用客观指标,1件使用自我报告,但效果大小是同等的。通过trim-and-fill修正和Egger检定审查出偏差后,嗅觉障碍和死亡风险的关联也得以维持。总体证据的质量是中等的。
+根据报道，在这次抗议之前，该组织上周在洛杉矶市政厅外举行了类似的抗议活动，以抗议当地中共病毒相关强制规定。
 
-Pong先生说:“据我们所知,关于嗅觉障碍与死亡的流行病学关联的系统性审查和元分析是第一次。嗅觉障碍暗示了与全死亡有关,可以成为健康度和老化的标记。虽然这次的研究不能确定因果关系。但是,附言说“要确立背景机制和干预的范围,需要进一步的研究”。 另外,关于伴随新型冠状病毒感染(COVID-19)的嗅觉障碍,“短期观察与死亡率下降有关,但长期关联目前不明”。
+目前，加利福尼亚州仍有几项中共病毒有关的强制政策。加文·纽森(Gavin Newsom)在2020年3月发布的紧急状态仍然有效，他的一些与中共病毒大流行病有关的行政命令也是如此。然而，据广播电台CapRadio报道，2月份，纽森宣布他将开始撤销其中的一些命令，其中31项命令将于6月31日到期。
 
-信息来源：[嗅覚障害で全死亡リスク上昇](https://medical-tribune.co.jp/news/2022/0419545323/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220420)
+据《萨克拉门托蜜蜂报》（Sacramento Bee）报道，在周三的车队抗议之后，本月余下的时间里没有再为车队发放许可证。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+上个月，“人民车队”来到华盛顿特区，抗议美国各地的中共病毒相关政策。该组织从抗议加拿大中共病毒政策的“自由车队（Freedom Convoy）”中获得了灵感。
+
+但是，据《国会山报》4月19日的文章内容，加拿大媒体报道，加拿大卡车司机“自由车队”抗议活动的组织者之一帕特·金（Pat King）遭到加拿大政府指控犯有伪证罪和妨碍司法公正罪及其他十项指控。
+
+帕特·金于2月18日被捕，2月25日被拒绝保释。
+
+对此，《大纪元时报》（Epoch Times）指出，帕特·金是最后一个被逮捕和指控的著名的加拿大抗议者。
+
+*责编：彩虹*
+
+**新闻来源**
+
+[‘People’s Convoy’ begins protests against COVID-19 rules in California](https://www.washingtonexaminer.com/news/peoples-convoy-begins-protests-against-covid-19-rules-in-california)
+
+[Canada’s ‘Freedom Convoy’ organizer charged with perjury, obstruction of justice](https://thehill.com/news/3273549-canadas-freedom-convoy-organizer-charged-with-perjury-obstruction-of-justice/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

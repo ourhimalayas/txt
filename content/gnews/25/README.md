@@ -2,60 +2,28 @@
 ---
 
 
-## 新西兰政府宣布对俄罗斯金融机构的新制裁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377661/)
+## 嗅觉障碍会增加死亡风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377771/)
 
-翻译： Jenny Ball
+撰稿：东京樱花团/立正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+新加坡国立大学的研究团队进行了9项协和研究的元分析，认为嗅觉障碍与各种疾病和身体紊乱有关,报告称由于嗅觉障碍的感染,导致全死亡风险约增1.5倍。他们认为,阐明准确机制仍需要进一步的研究。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-408.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.medscape.com%2Fthumbnail_library%2Fdt_210107_anosmia_loss_of_smell_800x450.jpg&amp;imgrefurl=https%3A%2F%2Fwww.medscape.com%2Fviewarticle%2F972005&amp;tbnid=tTwv_po8k7WSSM&amp;vet=10CAkQMyjMAWoXChMI4Jivoomi9wIV)
+嗅觉障碍的罹患率很高,全年龄为19～24%,65～80岁超过50%,80岁以上80%。嗅觉障碍与神经退化、心血管疾病、营养障碍、免疫障碍等并发症有关,但与死亡的流行病学关联,结果不一致。
 
+从数据库中提取了2021年4月13日前发表的相关研究。通过系统审查和元分析,探讨了18岁以上的嗅觉障碍患者与全死亡的关联,寻求危险比(HR) 研究汇集风险依据进行了复杂的统计学处理，全死亡风险上升52%。
 
+研究团队又进行了1项反向观察研究和10项积极观察研究共2万1,601例系统审查。平均年龄为50～81岁,北美7件,欧洲2件,澳大利亚和中国各1件研究。10件偏差风险低,剩下的1件被判定为中等度的偏差风险。即使排除了这1件事,结论也没有改变。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-208.png)纳奈亚·马胡塔，外交部长
+11件中的9件纳入了元分析。在汇集后的数据中,嗅觉障碍与全死亡风险的显著上升有关(HR 1.52、95%CI 1.28～1.80)。 虽然各项研究之间的异质性很高(I2=82%),但根据元回归分析,异质性的91.3%是由于平均跟踪时间越长关系越弱。11件中有10件在嗅觉障碍的评价上使用客观指标,1件使用自我报告,但效果大小是同等的。通过trim-and-fill修正和Egger检定审查出偏差后,嗅觉障碍和死亡风险的关联也得以维持。总体证据的质量是中等的。
 
-新西兰外交部长娜娜亚·马胡塔（Nanaia Mahuta）宣布了政府对俄罗斯的最新一轮制裁，针对与普京政权有密切联系的主要银行和金融机构。
+Pong先生说:“据我们所知,关于嗅觉障碍与死亡的流行病学关联的系统性审查和元分析是第一次。嗅觉障碍暗示了与全死亡有关,可以成为健康度和老化的标记。虽然这次的研究不能确定因果关系。但是,附言说“要确立背景机制和干预的范围,需要进一步的研究”。 另外,关于伴随新型冠状病毒感染(COVID-19)的嗅觉障碍,“短期观察与死亡率下降有关,但长期关联目前不明”。
 
-新一轮制裁针对三个核心政府金融机构，包括俄罗斯央行和一个关键投资基金。
+信息来源：[嗅覚障害で全死亡リスク上昇](https://medical-tribune.co.jp/news/2022/0419545323/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220420)
 
-它针对俄罗斯最大的八家银行和其他七家银行，政府称这些银行和寡头与俄罗斯国防部门和克里米亚的吞并有关。
-
-“新西兰正在对 18 家金融实体实施制裁，包括俄罗斯中央银行、主权财富基金和该国最大的金融机构。这些主要机构约占俄罗斯银行总资产的 80%，”马胡塔说。
-
-制裁禁止与被点名的机构进行任何交易。
-
-随着俄罗斯对乌克兰的入侵在两个月后接近尾声，俄罗斯军队在乌克兰东部的顿巴斯地区发动了新的军事攻势，这一轮制裁是预计每两周一次的新措施中的最新一轮。
-
-两周来，政府一直在努力制定制裁措施。4 月 8 日，马胡塔确认他们将在尽职调查完成后公布。
-
-“这些制裁旨在施加经济和政治成本，特别针对资助继续入侵乌克兰的组织。随着最新一轮的制裁，新西兰正在加入世界各国的行列，这些国家对普京总统和资助他非法入侵的系统实施了重罚，”马胡塔说。
-
-马胡塔还支持国际刑事法院调查普京政权“在乌克兰犯下的暴行”。
-
-这些措施是过去一个月宣布的一系列制裁措施中的最新措施。制裁大致遵循其他安全伙伴宣布的制裁，针对的是普京和他的安全理事会；与该政权有关联的政客、寡头、国防公司和民兵。
-
-两周前，新西兰还对包括伏特加在内的俄罗斯进口产品征收了 35% 的关税。
-
-禁令涵盖的公司的完整名单
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-120.png)
-
-
-新闻来源：[Government announces new Russia sanctions targeted at financial institutions](https://www.stuff.co.nz/national/politics/opinion/128400268/government-announces-new-russia-sanctions-targeted-at-financial-institutions)
-
-* * *
-
-素材： peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
