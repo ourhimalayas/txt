@@ -2,8 +2,8 @@
 ---
 
 
-## 河北省邯鄲市雞澤縣：領導命令，街上有人，拿磚頭就拍。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376947/)
+## 大陸疫情亂象。視頻者：隔離點男女混住，像牲口一樣被趕在這個里面就完了。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376968/)
 
 作者：东京樱花团小视频组
 

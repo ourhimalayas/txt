@@ -2,10 +2,16 @@
 ---
 
 
-## 網友：上海複工複産，想都別想。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376891/)
+## 上海疫情下，女子帶著行李箱住在取款機房裡。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376907/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

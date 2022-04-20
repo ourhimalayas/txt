@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 2:38 AM (UTC)`
+
+<br/>【419 5th Anniversary】 4/19/2022 April 19, 2017, was absolutely the real beginning of the Whistleblowers’ Movement. We have proved over the five years that we respect women and love our mothers. 70% of the fellow fighters of the Whistleblowers’ Movement are females, who have set a new image of the females of the new China in the world and will be the most wealthy, the most powerful, and the most influential. The past five years are the most spectacular years that we have spent together with all the conscientious Chinese.<br/><br/>【419五周年】4/19/2022 419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人；过去的5年是我们和中国有良知的人度过的最最伟大的5年！<br/>
+![img](https://media.gettr.com/group34/getter/2022/04/20/02/2663306b-7bef-5ac7-a3cd-41ba573af9f8/out.jpg)
+
+---
+
 `@miles 4/20/2022 2:02 AM (UTC)`
 
 2022.04.19  新中国联邦 | 喜财经  粮食危机各国端倪；战争最后的较量是金钱
@@ -35,13 +42,6 @@
 
 4/19/2022 【419 5th Anniversary】 According to the latest data, the number of total followers of mine on the Internet is 193 million. Only the New Federal State of China and I can have so many followers, and this is what the US president can’t even achieve. Think about what the number will be when all the Chinese people wake up.<br/><br/>4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字<br/>
 ![img](https://media.gettr.com/group25/getter/2022/04/20/02/40a77006-e5a8-1865-8e87-a2386a5f1302/out.jpg)
-
----
-
-`@miles 4/20/2022 1:58 AM (UTC)`
-
-4/19/2022 【419 5th Anniversary】 April 19, 2017, is absolutely the real beginning of the Whistleblowers’ Movement. We have proved over the five years that we respect women and love our mothers. 70% of the fellow fighters of the Whistleblowers’ Movement are females, who have set a new image of the females of the new China in the world and will be the most wealthy, the most powerful, and the most influential. The past five years are the most spectacular years that we have spent together with all the conscientious Chinese.<br/><br/>4/19/2022【419五周年】419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人；过去的5年是我们和中国有良知的人度过的最最伟大的5年！<br/>
-![img](https://media.gettr.com/group18/getter/2022/04/20/00/e29ded87-5243-b171-aebc-ede88e76d135/out.jpg)
 
 ---
 

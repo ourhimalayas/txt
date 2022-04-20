@@ -2,18 +2,10 @@
 ---
 
 
-## 龚小夏知道七哥419当天爆料内容，龚小夏是共产党的专业特务
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376794/)
+## 4/19/2022【419五周年】滕文生和王沪宁在习还是副主席的时候就提出&#8221;中共未来30年&#8221;，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2376811/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-发布：*陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+秘密翻译组-北美组
 
  
 
