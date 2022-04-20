@@ -2,44 +2,36 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月19日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2375392/)
+## 美国军事机构与中共间谍机构的非正常关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2374933/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-20-010743.jpg)
-**1、中共央行上缴6000亿结存利润**
-![img](https://media.gettr.com/group38/origin/2022/04/19/02/189d455d-ab98-488b-8817-e63021335c7a/a1bc9ecb2142e3ae36fda8cedf79c82f_500x0.png)
-中共央行透露，今年已向中央财政上缴结存利润6000亿元，相当于投放基础货币6000亿元，和全面降准0.25个百分点基本相当。全年央行将总计上缴1.1万多亿元结存利润，与其他货币政策操作相互配合，有力保持流动性合理充裕。
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image001-3.jpg)图片来源：日本时报
+4月18日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布报告称，一份被删除的新闻通讯显示，美国国防大学的一名院长曾率领一个代表团前往被FBI（联邦调查局）标记为“中国情报收集和海外间谍招募前沿组织”的中共智囊团。
 
-链接 [https://www.stcn.com/xw/sd/202204/t20220419\_4379331.html](https://www.stcn.com/xw/sd/202204/t20220419_4379331.html)
+美国国防大学位于华盛顿特区，于1976年成立。
 
-**2、招商田惠宇被免 2天市值蒸发超千亿元**
-![img](https://media.gettr.com/group50/origin/2022/04/19/03/f5d0f0ea-135c-865d-05e8-c9e5eee618ab/b8aaf5f54e3302a82b3a8529333d2c70_500x0.png)
-4月19日早盘，招商银行再度下跌。截至发稿报41.93元，跌3.36%，成交金额已达35亿元。截至发稿，招商银行港股报52.55港元，跌12.05%。昨日，招商银行大跌7.35%，全天成交金额高达103亿元。至此，招商银行本周两个交易日累计跌幅已逾10%，蒸发市值超千亿元。
+文章指出，上海社会科学院（SASS）2005年的《海外学术交流通讯》显示，“5月16日，以辛西娅·沃森为首的国防大学国家战争学院一行12人访问并讨论了中国和平崛起的内部和外部环境，亚太地区的安全和稳定，以及中东地区的民主化”
 
-链接 [https://finance.sina.com.cn/jjxw/2022-04-19/doc-imcwipii5138668.shtml](https://finance.sina.com.cn/jjxw/2022-04-19/doc-imcwipii5138668.shtml)
+辛西娅·沃森现在担任国防大学国家战争学院的教务和学术事务院长，她于1992年8月加入该学院教职。
 
-**3、宁德时代市值蒸发5600亿**
-![img](https://media.gettr.com/group47/origin/2022/04/19/03/813b2eda-fc3e-efb7-c741-1bbfa23557f3/92e69f307a9ee1ef0e447c0c64fdf5da_500x0.png)
-4月18日，宁德时代报收451元/股，涨幅0.03%，总市值1.1万亿元。二级市场数据显示，自4月7日失守500元大关以来，宁德时代不断走低，至今跌幅8.93%。自2021年12月3日触及历史高点692元/股，宁德时代便震荡下行，最高跌去近四成，市值蒸发5600亿元。
+《国家脉动》指出，上海社会科学院与中共最高间谍机构国家安全部的密切关系早已被FBI标记出来。
 
-链接：[https://www.stcn.com/xw/sd/202204/t20220419\_4379358.html](https://www.stcn.com/xw/sd/202204/t20220419_4379358.html)
+根据FBI的说法，中国共产党依靠上海社会科学院的员工来充当潜在西方间谍的“监视者和评估”，而国家安全部官员也“利用上海科学院的关系作为身份掩护”。
 
-**4、蚂蚁集团将收购支付平台2C2P的多数股权**
-![img](https://media.gettr.com/group43/origin/2022/04/19/04/2e2bcabd-5d13-0c6c-6c72-73feeb10373d/7de86a5f8953fcc6e64338ffd6551d03_500x0.png)
-4月18日，蚂蚁集团宣布和全球支付平台2C2P达成战略合作伙伴关系。据了解，作为东南亚支付行业的市场领导者之一，2C2P连接了泰国、新加坡、马来西亚等地区250种支付方式，为电子商务、金融服务、航空公司、旅游、酒店和零售等垂直行业的商家，提供支付结算以及其他增值服务。该公司总部位于新加坡，其布局包括线上支付、移动设备和线下实体支付，覆盖线下40万个支付地点。同时，2C2P还提供发行、3D安全、账单支付和数字商品等增值服务，以满足各种业务需求。
+根据公开信息，上海社会科学院是2019年一名退休CIA（中央情报局）特工向中共出售美国国防机密文件的刑事案件中的关键角色。
 
-链接： [https://www.163.com/dy/article/H59ENMBM0539LWQ1.html](https://www.163.com/dy/article/H59ENMBM0539LWQ1.html)
+《国家脉动》认为，鉴于沃森在国家战争学院的影响力，她对上海社会科学院的访问可能构成了利益冲突。
 
-**5、美国 SEC 指控 16 名被告参与国际“拉高抛售”**
-![img](https://media.gettr.com/group15/origin/2022/04/19/03/c711d4a1-d562-62d5-11bd-93e0c9043f6f/afe87adfa814b724a6554c458c0125b1_500x0.png)
-美国证券交易委员会（SEC）周一表示，已指控16名被告参与一个持续多年的垃圾股（penny stock）“拉高出货”骗局，获取了超过1.94亿美元的非法收入。SEC表示，这一国际骗局的被告分布在巴哈马、英属维尔京群岛、保加利亚、加拿大、开曼群岛、摩纳哥、西班牙、土耳其和英国。
+同时，值得注意的是，沃森还为中美交流基金会（CUSEF）出版的《中美聚焦》杂志撰稿，但是，中美交流基金会是中共政府最重要的对外游说团体之一。在2020年6月的一次采访中，沃森似乎批评了特朗普政府的2017年国家安全战略，她认为该战略不应该是“以中国为中心的”。
 
-链接 [https://www.reuters.com/business/us-sec-charges-16-defendants-international-pump-dump-plots-2022-04-18/](https://www.reuters.com/business/us-sec-charges-16-defendants-international-pump-dump-plots-2022-04-18/)
+文章披露，《国家脉动》正在深入挖掘相关美国政府的高级人员与上海社会科学院的关系，包括监督国家安全局招聘过程的个人，于是，美国主要军事教育机构与上海社会科学院的关系被发掘出来。并且，美国西点军校也与中共的游说团体有关系。
 
-海报：润玉
+责编：彩虹
 
-排版上传：文勇
+**新闻来源**
+
+[Deleted Web Pages Reveal Dean of National Defense University Visit with Chinese Communist-Run Think Tank](https://thenationalpulse.com/2022/04/18/deleted-web-pages-reveal-dean-of-national-defense-university-visit-with-chinese-communist-run-think-tank/)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 我们今天所做的灭共所有的一切，都基于实力
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377617/)
+## 我一辈子都感激马建
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377632/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,8 +2,8 @@
 ---
 
 
-## 4.19,11.20，包括新闻发布会，都像核按钮一样
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377610/)
+## 共产党打出郭文贵是间谍是很歹毒的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377625/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
