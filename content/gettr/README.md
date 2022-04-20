@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 4:04 PM (UTC)`
+
+【419 5th Anniversary】4/19/2022 With Wang Huning etc chosen as head of the CCP’s think tank, Xi is destined to go on the journey of extreme Communism and Marxism; Marxism is an evil ideology of ruling mankind and enslaving mankind; in the eyes of Marxists and the CCP, as said by Mao’s mistress Zhang Yufeng, women are nothing but their urinals.<br/><br/>【419五周年】4/19/2022 选择王沪宁等人作为智囊注定了习必然走极端的共产主义马克思主义路线。马克思思想是统治人类奴隶人类的魔鬼思想，在对待女性问题上，正如毛泽东的情妇张玉凤所说，在共产党眼里，女人不过是他们的尿壶。<br/>
+![img](https://media.gettr.com/group6/getter/2022/04/20/16/289fa9ad-731c-633b-1f97-f6d5cb030878/out.jpg)
+
+---
+
 `@miles 4/20/2022 3:51 PM (UTC)`
 
 【419 5th Anniversary】4/19/2022 Meng Jianzhu regretted very much that he did not get rid of Xi promptly; there is no doubt that the Whistleblowers’ Movement completely changed the course of China! The credit goes to citizens of the New Federal State of China, particularly those anonymous fellow fighters within the CCP who have been making contributions silently.<br/><br/>【419五周年】4/19/2022 孟建柱现在最后悔当时没有把习做掉。爆料革命毫无疑问百分之百地改变了中国！这一切归功于新中国联邦人，特别是在体制内默默无闻地奉献的战友们！<br/>
@@ -145,13 +152,6 @@
 
 【419 5th Anniversary】4/19/2022 Mr. Miles Guo revealed how he entrapped Sasha Gong, the CCP’s professional spy, 5 years ago. April 19, 2017, is the day that marked the advent of Mr. Guo on the world stage. With one foot stepping on the so-called Interpol and the other on the VOA, Mr. Guo soared up into the clouds to directly deal a fatal blow to the CCP’s power center - the Zhongnanhai Pit!<br/><br/>【419五周年】4/19/2022 郭先生回顾五年前419如何钓鱼中共专业特务龚小夏；2017年4月19日标志着文贵先生踏出江湖，脚踩所谓的国际刑警组织和美国之音、踏上云端直接干向中南坑！<br/>
 ![img](https://media.gettr.com/group40/getter/2022/04/20/03/3497e0c7-a466-553c-1ce6-8b97e8f140ea/out.jpg)
-
----
-
-`@miles 4/20/2022 3:01 AM (UTC)`
-
-2022-4-19《鸡血王喜币大作战》 第一百七十集 嘉宾：无双柳薇薇、文空
-![img](https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
