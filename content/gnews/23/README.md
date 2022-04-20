@@ -2,42 +2,26 @@
 ---
 
 
-## 对于 mRNA来说 COVID疫苗只是一个开始
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377219/)
+## 樱花时政┃菲律宾大使在中国隔离期间死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377287/)
 
-翻译： Jenny Ball
+撰稿：东京樱花团/加一颗稻草
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2417.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rappler.com%2Ftachyon%2F2022%2F04%2F212432016_10159195533161830_6317706541089817669_n.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.rappler.com%2Fnation%2Fphilippine-diplomat-chito-sta-romana-dies%2F&amp;tbnid=K0mlA)
 
+菲律宾外交部证实，该国驻中国大使罗马纳（Jose Santiago L. Sta. Romana）去世。台湾中央社在报道中称，罗马纳的家属表示，罗马纳本月18日在安徽省黄山市进行隔离期间去世，但没有给出具体死因。
 
+19日中共外交部发言人汪文斌答记者问：据了解，菲律宾驻华大使罗马纳于4月18日在华不幸病逝。中方对此有何评论？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-206.png)
+答：中方对罗马纳大使不幸病逝深表哀痛。罗马纳大使是菲律宾著名“中国通”，曾长期在华工作生活，是我们的老朋友，也是好朋友。2017年出任驻华大使后，积极勤勉工作，为推动双边关系发展和中菲人民友谊作出了重要贡献。中方对他的辞世表示深切哀悼和惋惜，向他的亲属表示诚挚同情和慰问。我们将会同大使的亲属和菲律宾驻华使馆处理好后续事宜并尽可能提供便利。
 
-目前正在针对新形式的 mRNA 疫苗进行数十项临床试验——针对从疟疾到寨卡病毒、疱疹病毒和巨细胞病毒的各种疾病。上个月，成立于 2014 年旨在探索 mRNA 的潜力的莫德纳，宣布已开始对两种基于 mRNA 的 HIV 疫苗进行 I 期临床试验。“使用 mRNA 平台可以实现的时间表要好得多，”负责监督这些试验的美国国立卫生研究院（NIH）艾滋病部主任卡尔·迪芬巴赫（Carl Dieffenbach）说。
+众所周知，由于中共的极端防疫政策造成的人道灾难层出不穷。在上海的美、日驻华使馆均被爆发生食品短缺。医疗延误致使病人死亡案例比比皆是。此次菲律宾大使于隔离期间死亡是不是对中共老朋友的特殊处理方式尤未可知。
 
-在大流行之前就发生了一些关于 mRNA 的工作——例如，莫德纳花了数年时间研究疫苗中包裹 mRNA 链的脂质包膜。“就像所有一夜之间的成功一样，mRNA 已经开发了很长时间，”流行病防范创新联盟的理查德·哈切特（Richard Hatchett） 说。 CEPI 在 2016 年为寨卡病毒投资了一种 mRNA 疫苗，但发现随着疫情消退，“紧迫性逐渐减弱”。
+信息来源：[上海官宣7人死於疫情 菲律賓駐華大使死亡](https://m.ntdtv.com/b5/2022/04/19/a103404909.html)
 
-还曾尝试为其他冠状病毒（例如中东呼吸综合征 MERS）开发 mRNA 平台，这些工作在 COVID 爆发时被证明是至关重要的。莫德纳能够针对这种新疾病调整其 MERS 疫苗，这意味着其 COVID 疫苗在 SARS-CoV-2 的基因序列公布后仅 66 天就进入了临床试验。
-
-评论： 官方至今都没能承认中共武汉病毒实验室是Covid－19的病毒起源，至今都不敢公布发现了0号病人，如何在刚一公布武汉病毒爆发就有了SARS-CoV-2 的基因序列？而且竟然在66天内已经完成了实验室和动物实验，进入了疫苗开发的第三期临床试验？
-
-新闻来源：[For mRNA, Covid Vaccines Are Just the Beginning](https://www.wired.com/story/for-mrna-vaccines-covid-was-just-the-beginning/)
-
-* * *
-
-评论： Jenny Ball
-审核：文乐       
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

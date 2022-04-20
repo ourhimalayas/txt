@@ -2,10 +2,18 @@
 ---
 
 
-## 【419五周年】4/19/2022郭先生回顾五年前419如何钓鱼中共专业特务龚小夏；2017年4月19日标志着文贵先生踏出江湖，脚踩所谓的国际刑警组织和美国之音、踏上云端直接干向中南坑
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2377316/)
+## 中国女性是民族国家的基石，未来新中国联邦人的代表形象
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377340/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+发布：*陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

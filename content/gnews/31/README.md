@@ -2,10 +2,28 @@
 ---
 
 
-## 4/19/2022【419五周年】419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2376863/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2376911/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-19.png)
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p164b5eae12](https://gettr.com/post/p164b5eae12)
+访谈：[https://gettr.com/post/p164sn3d67c](https://gettr.com/post/p164sn3d67c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
