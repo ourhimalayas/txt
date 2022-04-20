@@ -2,46 +2,30 @@
 ---
 
 
-## 拜登已告诉奥巴马他将再次参选
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2378438/)
+## 俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378774/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-20-下午4.39.19.png)图片来源：互联网
-两位消息人士告诉《国会山报》，拜登总统已经告诉前总统奥巴马，他正计划在2024年竞选连任。
+**港台前线 zhong｜2022-4-20**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-8.png)
+欧盟理事会主席查尔斯．米歇尔（Charles Michel）通过推特对外界传达（20日）他已抵达乌克兰首都基辅，并称“基辅是自由民主欧洲的中心”，外媒报导称他将与泽连斯基会面。米歇尔本次访问乌克兰形成，外界事前并不知悉。外媒有提及，米歇尔欧盟理事会主席的身分，代表着欧盟27成员国。
 
-上个月在布鲁塞尔举行的新闻发布会上，拜登告诉记者，他将 “非常幸运 “地在2020年大选中与他的竞争对手、前总统特朗普竞选。
+此前，欧洲议会主席梅措拉（Roberta Metsola）4月1日[突然访问基辅](https://gnews.org/zh-hant/2273281/)，会面泽连斯基及乌克兰及国会议长。欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔于4月8日也访问了基辅。
 
-“[拜登]想参选，他明确地让大家知道，”熟悉奥巴马和拜登之间对话的两个消息来源之一说。
 
-该消息人士还表示，尽管拜登的支持率不断下滑，但他仍然是最有可能击败特朗普的民主党候选人。
 
-“我相信他认为他是唯一能击败特朗普的人。我认为他不认为民主党内有任何人可以击败特朗普，这是最大的因素，”熟悉奥巴马-拜登会谈的消息人士说。
+> In Kyiv today. 
+> 
+> In the heart of a free and democratic Europe. [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) [pic.twitter.com/7DxTeoxtMc](https://t.co/7DxTeoxtMc)
+> — Charles Michel (@eucopresident) [April 20, 2022](https://twitter.com/eucopresident/status/1516668856651165708?ref_src=twsrc%5Etfw)
 
-除了坎坷的政治风云和糟糕的支持率，拜登的年龄也助长了对其未来的质疑。
 
-拜登现年79岁，是78岁时上任的最年长的总统，如果他成功地寻求第二任期，那么他在第二任期开始时将是82岁。
 
-拜登曾在多个场合公开表示，他计划寻求连任，但他明确表示，这些计划可能会被 “命运 “打乱。
-
-“我非常尊重命运，”拜登在12月接受美国广播公司大卫-穆尔的采访时说。”命运已经在我的生活中干预了很多很多次。如果我现在的健康状况，如果我的健康状况良好，那么事实上我会再次竞选。”
-
-最近在一次新闻发布会上，拜登还肯定了副总统哈里斯将成为他的竞选伙伴。
-
-尽管如此，盟友们表示，他们对拜登目前的地位感到担忧。
-
-一一些人对如果拜登不参选，能够参选的民主党人数量稀少表示担忧。
-
-这位熟悉拜登和奥巴马会谈的消息人士说，与此同时，许多民主党人对哈里斯在2024年获胜的机会持怀疑态度。”人们认为她没有机会，这不得不让他继续做这个人。”
-
-哈里斯在年初接受美国全国广播公司采访时说，她对有关2024年的 “高级八卦 “不感兴趣，此前她还表示，她和拜登没有谈论过下届总统选举，而是选择专注于眼前的问题。
-
-一位长期以来的拜登盟友说，总统一直都很清楚自己的意图。
-
-参考链接：[Biden has told Obama he’s running again](https://thehill.com/news/administration/3272281-biden-has-told-obama-hes-running-again/)
+来源｜[POLITICO](https://www.politico.eu/article/charles-michel-visit-kyiv-ukraine-eu/)、[GNEWS](https://gnews.org/zh-hant/2273281/)
 
 * * *
 
-*编辑&发布：长岛开心*
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
