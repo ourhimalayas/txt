@@ -2,27 +2,38 @@
 ---
 
 
-## 日本一次驱逐的8名俄罗斯外交人员已离境
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380653/)
+## 支持俄罗斯侵略者，在德国或将面临牢狱之灾
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2380986/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+作者: 雅典娜农场—文泓
 
-4月20日，日本此前宣布一次驱逐的8名俄罗斯外交人员离开了日本。
 
-据《自由时报》报道，日本政府在本月8日宣布驱逐8名俄罗斯驻日外交人员，这8人于20日中午，透过俄罗斯准备的撤侨班机从羽田机场离境，同机撤离者还有俄罗斯通商代表部职员以及其他相关工作人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+近日，在德国多个联邦州，公开展示“Z”符号、声援俄罗斯入侵乌克兰战争被视为非法。根据德国著名媒体编辑部网络（RND）所做的一项调查，目前已有140多起相关诉讼案。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/61293291_303.jpeg)图片来源: 网络
+根据德国编辑部网络对联邦内政、司法部以及联邦各州刑事局所做的一项问讯调查，结果显示德国警方和检察机关迄今已承办140多件鼓吹俄罗斯入侵乌克兰战争行为的相关案件。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上都印有这一符号。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-428.jpg)（图片来源：法新社）
+调查结果显示，仅在德东地区萨克森·安哈尔特州，自俄军入侵乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。
 
-报导称，据知情人士透露，这8人疑似在为俄罗斯情报部门服务，被驱逐者中包含了中坚干部等级以及被日本警方标记为重要人物的人员。
+在多个联邦州，使用该标志被视为是对俄侵略战争的支持，违反国际法，属于非法。
 
-报导指出，日本一次驱逐复数外交官相当不寻常，预计俄罗斯将采取反制措施，但具体细节尚不明。
+新闻链接: [https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
 
-参考链接：
-[https://news.ltn.com.tw/news/world/breakingnews/3899002](https://news.ltn.com.tw/news/world/breakingnews/3899002)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
-编辑：海星
-总编：青城道姑
-校对发布：爱放飞
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

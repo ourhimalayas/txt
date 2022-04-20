@@ -2,22 +2,13 @@
 ---
 
 
-## 中共国大白欺负百姓习惯了，为这个勇士点赞！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2381143/)
+## 数百万中共国居民因中共病毒被迫封城，群情激愤，而习仍继续坚持其强硬的清零政策
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2381272/)
 
-作者：东京樱花团小视频组
+04/18/2022 福克斯新闻：习的清零政策使得上海数百万人被隔离家中，缺乏食物、药物。警察粗暴对待民众引发众怒！
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-
-
-
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

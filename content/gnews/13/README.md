@@ -2,12 +2,24 @@
 ---
 
 
-## 2022/4/19VOA断播五周年特别直播（图片1-8）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2381089/)
+## 台湾华视新闻惊现“新北市遭共军导弹击中”的字幕
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2381168/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6AEB1A38-1F62-4A90-B582-C2F16446F988-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/BBE61064-62C2-4707-B666-CCB5D2EDAFD6-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5A2F20F7-DB04-4FA4-9570-EC3B615F10D1-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/99EA60A4-19D9-47E2-AC8F-BF9696FFF331-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B3C1BC84-FE6D-40AC-92A0-3F5085582CE4-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/C7D05812-8772-488F-9A8D-4953FCF69A60-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4007F608-68AC-4E6E-BA4F-F21B9BE2FCDF-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/737573A5-ECCC-432D-B471-B2DB13F11EB0-scaled.jpeg)
-发布：水涨船高
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/04/bf2d8d4cc466f0f6e15ee2ae519bc71f.png)图片来源：https://www.stnn.cc/
+4月20日，台湾华视早间新闻播报气象的时段，其屏幕下方“最新消息”栏目的滚动字幕突然显示:“新北市遭共军导弹袭击”、“台北港舰艇爆炸、设施、船舶损毁”、“板桥车站疑似遭纵火施放爆炸物”以及“泰山出现7级大地震”，甚至出现“台发布紧急命令，3月6日8时起生效”等字条。
+
+这一串字幕滚动播放时长近10分钟，民众反映后，该电视台紧急撤销。随后，华视刊登道歉公告声称：滚动字幕的内容是“昨日为新北消防局录制的防灾影片，今日因路径设定错误，误放影片内容，请民众不要恐慌！特此澄清、道歉！”华视表示将严惩造成疏失的工作人员。
+
+有网友指出，这个事件造成的恐慌比前些时候的大停电还恐怖。对此，国民党高雄市议员参选人吕謦炜在脸书指责执政党政府袒护华视新闻，之前中天新闻因误报“封台倒数6天”被撤销照，被华视占用原中天的52频道，如今却发生更离谱的误报事件，引起许多民众恐慌。“铁证俱在,若对华视不开罚、不撤照,那么NCC(台湾通讯传播委员会)与民进党政府一起双标,只会让越来越多的民众看得更加清楚。”吕謦炜说。
+
+**郭文贵先生于4月15日在Gettr平台上发出警报，中共的“台湾之子”行动即日开启，该行动会通过台湾的供电、供水、网络、交通、机场等环节制造混乱，目的是借机攻下台湾**。郭先生叹息卖台贼将是最大的台湾危机，他说中共早已向卖台贼们许诺好，开战后其家人的安置以及攻下台湾后的土地分配事宜，台湾军方甚至采购经澳大利亚中转，实则中国大陆制造的大量无人机。
+
+在极为紧绷的台海局势当前，台湾华视新闻绝非简单的误报事件，事件发生的第一时间即显现出台湾当局一味安抚民众的麻痹机制和极易激化的两党矛盾，充分暴露出有人企图挑起两党派之间的冲突，去弱化对中共警觉性的倾向。
+
+参考链接：
+
+[“共军打过来了？”台媒今晨现重大播出事故 – 台湾 – 星岛环球网 (stnn.cc)](https://www.stnn.cc/c/2022/0420/3715742.shtml)
 
  
 

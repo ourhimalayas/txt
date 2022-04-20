@@ -2,34 +2,29 @@
 ---
 
 
-## 多伦多发生乘客被随机推下地铁事件
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380940/)
+## 俄罗斯反战教师遭到当局文字狱陷害
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2381067/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-51.png)
-&lt;环球新闻&gt;4月18日报道，多伦多警方发布新闻，一名女子周日晚间被一名陌生人推下地铁站台，险些被地铁列车撞倒。
+作者：在远方
 
-事件发生在市中心的Bloor-Yonge地铁站，时间是晚上9点左右。一名39岁的妇女被推下站台后摔成重伤，但幸运的是未被列车撞到，没有生命危险。这名妇女随后设法爬到了月台下面，以避免被穿行列车撞到。
+据相关媒体当地时间4月19日报道，在俄罗斯联邦萨哈共和国涅留恩格里市，一名38岁的历史教师被莫斯科当局以所谓的“散布关于乌克兰战争的虚假信息”为由，提起诉讼。目前，这名教师已经被迫辞职，并遭到了当地法院判处的罚款和联邦安全局的窃听。
 
-警方称，嫌疑人和受害者并不认识，目前尚不清楚推人之前具体发生了什么，但警方表示，事件发生之前，二人之间并无发生任何争执。 嫌疑人被描述为一名金发女性，中等身材，身穿灰色Levis衬衫，黑色夹克，黑色裤子，白色鞋子，头戴粉灰色帽子。周一上午，警方公布了嫌疑人的照片，目前警方仍在寻找该名嫌犯中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-20-at-11.08.10-AM.png)
 
-近期美加地区发生多起随机伤人事件，更有多宗专门针对亚裔团体仇恨事件发生，请广大战友出门多加小心。
+据了解，这名历史教师表示，近年来，他越来越怀疑俄罗斯政府公开宣称的民主价值观，尤其是近期官方提供的有关乌克兰战争的教材。为此，他拒绝向学生教授这些课程，同时，他也明确告知学生不应该在俄罗斯军队服役。该教师也强调，他反对乌克兰战争，并认为普京政府才是真正的法西斯主义者。然而，该教师的这一举动随后被学生家长向当局检举。
 
-原文链接：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
+报道提及，当地警方和联邦安全局在接到消息后传讯了这位教师，并在其后判处该教师缴纳3万5千卢布的罚款。眼下，这名教师在辞职后选择离开俄罗斯。
 
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 自由法兰西🇫🇷
-素材/采编 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+另据相关消息表明，俄罗斯各地的教师近日都接到了政府下发的新一版教学指南。当中，莫斯科当局强制将对乌克兰侵略的宣传攻势扩大到学校，而这也导致许多反战教师都将面临罚款、起诉和被解雇的现状：根据普京签署的法律，他们或将面临最高15年的监禁处罚。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+参考链接：[俄羅斯掀文字獄 反戰教師被迫辭職還被罰款](https://news.ltn.com.tw/news/world/breakingnews/3897635)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+总编/审核：Irene木木
+编辑：熊嘟嘟
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
