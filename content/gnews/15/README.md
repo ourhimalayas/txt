@@ -2,16 +2,10 @@
 ---
 
 
-## 河北省邯鄲市雞澤縣：領導命令，街上有人，拿磚頭就拍。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376947/)
+## 20220419郭文贵大直播 ：共产党是所有灾难的根源，只有新中国联邦是安全之邦 可靠之墙
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377211/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

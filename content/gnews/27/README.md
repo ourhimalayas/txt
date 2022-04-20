@@ -2,15 +2,10 @@
 ---
 
 
-## 共产党的恐惧从派出龚小夏可见一斑，419是对爆料革命的天赐礼物
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376830/)
+## 4/19/2022【419五周年】419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2376863/)
 
-发布：*陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+秘密翻译组-北美组
 
  
 

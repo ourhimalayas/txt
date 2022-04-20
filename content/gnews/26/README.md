@@ -2,18 +2,10 @@
 ---
 
 
-## 4.19没爆的料有两个，王岐山是个骨子里的变态，对习的威胁最大
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376844/)
+## 4/19/2022【419五周年】上海绝大多数人核酸检测呈阳性是疫苗反应造成的。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这可不光是有粮食有水就行的！
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2376898/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-发布：*陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+秘密翻译组-北美组
 
  
 

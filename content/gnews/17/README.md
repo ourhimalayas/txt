@@ -2,16 +2,10 @@
 ---
 
 
-## 上海方艙隔離點裡的抗議。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376929/)
+## 20220419郭文贵大直播 ：稳定、安全的社会就是人不被陷害、有财富和尊严
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377176/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

@@ -2,35 +2,30 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
+## 文贵爆料 4.19：俄乌战争、上海封城，令党心动荡
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2375576/)
 
-作者：香草山翻译部
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/04/db2d815a-1bff-4690-a863-00acd96abaec.jpg)
+上海封城令人人自危、人心惶惶，而乌克兰熊熊的战火，更是让世界的格局发生了裂变。常言道，君子不立于危墙之下，中共高层已深切地感受到了天地变、大厦将倾。郭文贵先生在4月19日的直播中说，俄乌战争是一场地狱之火，共产党是危墙，习更是危墙，且其命运不可挽回。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+没有一个人相信我们能灭了共，也没有人愿意跟我们灭共，但他们很佩服我们，这是事实。但是今天不一样了，郭先生说，什么时候开始的？我告诉大家，自从俄乌战争开始，体制内发生了本质性的变化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
+君子不立于危墙之下。共产党是危墙，习是危墙。
 
-文章仅代表作者本人观点，与Gnews无关
+你知道上海人有什么幻想吗？上海人以为共产党起源于上海，这些年都是上海人领导中国，上海人很牛。
 
-视频参看：
-[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
-[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
+郭先生解释说，习全家最大的打击都来自上海，早年就是康生和江青这两个上海人整他们全家。习近平骨子里痛恨上海人，他要上海人尝尝吃茄子，听到茄子害怕的滋味。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+俄乌战争后，普京的时代绝对结束了。而习近平把共产党和中国人的命运压到俄乌战争上。而俄乌战争是一场百分之百的地狱之火。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
+而且中国共产党一定最后打台湾，他们知道打台湾的结果会比俄罗斯还惨，会遭到美国更严厉的制裁。
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+郭先生说，现在党内人更加知道，中国人以后走出全世界了，绝对是过街老鼠。而且共产党员及其家族，想在海外拥有安全的财富，是不可能的。事实上，习近平已经输了，而且不可挽回的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+参考链接：
+
+[2022年4月1](https://gettr.com/streaming/p161dm5929a)9[日 文贵直播](https://gettr.com/streaming/p161dm5929a)
 
  
 
