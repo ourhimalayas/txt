@@ -2,38 +2,35 @@
 ---
 
 
-## 日媒表示只有自己反抗才会获得他人帮助
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2377432/)
+## 上海警方让死于中共病毒老年患者的家属闭嘴
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377534/)
 
-作者：日本方舟农场 – Andy5
+#### 【雅典娜观察】和您一起洞察世界
 
+翻译/编辑：文泓
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-4月15日，日本媒体在节目中分析了乌克兰保卫领土的反抗对台海局势的影响。
-
-嘉宾指出，无论台湾对美国的援助相信与否，保卫本国领土是自己应该做的，就是像乌克兰一样，从开始就反抗。美国不会代替受害国参与战争，只有受害国开始反抗，美国才可能伸出援手。尽管台湾在芯片等高科技领域，处于世界上无可代替的地位，但一味地等待别人出手相助，是非常错误的想法。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-63.jpg)
-嘉宾还进一步指出，日本也处于同样的境地。尽管有日美同盟、日欧、日澳等同盟关系，可当日本面临战争的时候，也只有先站起来反抗，才会真正得到这些盟友的支持。
-
-郭先生从去年就告诫过，台湾只要能坚持极短的时间，国际社会一定会进行支援。而灭共也同样如此，所有外国的帮助都是锦上添花，真正灭共的主力军是我们新中国联邦人。
-
-参考链接： 
-[20220415日媒分析烏克蘭和台海](https://gettr.com/post/p15sxz9f789)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2423.png)图片来源：Voa & 雅典娜设计组
 
 
+4月19日，据自由亚洲电台报道，封城期间上海当局让死于中共病毒的老年人家属闭嘴，因为近期奥米克戎疫情席卷了该市至少一家医院，造成的死亡人数不详。
+在浦东新区东海医院至少有27名老年人死于中共病毒，还有很多人被怀疑因工作人员和患者之间爆发疫情而死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+一位与家属交流过的人士告诉记者，一些家庭拒绝将亲人遗体火化，而浦东网警警告，家属们不能与外国媒体交谈，否则承担法律后果。
 
+在东海医院因疫情入院后死亡的几个老年人家庭称，该医院已经报告了死于这种疾病的患者人数有27人。根据家属们的说法，那里仍在发生死亡事件。
 
+由于医院人手不足，至少有80%的工作人员被派往其他地方进行疾病控制和预防工作，老人认为在那里没有得到适当的照顾和治疗。
+
+27人死亡的数字不包括死于中共病毒以外的其他原因的人。大量感染病毒的老年患者被送往临时方舱医院，有些人甚至可能因忽视或饥饿而死亡。
+
+原文链接：[Shanghai police warn bereaved families of elderly COVID-19 patients not to speak out — Radio Free Asia (rfa.org)](https://www.rfa.org/english/news/china/elderly-04192022142219.html)
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

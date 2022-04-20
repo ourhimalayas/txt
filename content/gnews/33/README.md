@@ -2,26 +2,21 @@
 ---
 
 
-## 日本第四剂疫苗接种对象包括有基础疾病人群和老年人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377619/)
+## 樱花时政┃日本撤销对俄最惠国待遇暂定关税法成立
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377706/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/日本第四剂疫苗接种对象包括有基础疾病人群和老年人.png)（图片源自本文链接）
-4月20日共同通信社消息：19日对相关人士的采访显示，日本政府打算重点针对老年人和有基础疾病的人接种第四剂中共病毒(新冠病毒)疫苗。厚生省将于27日召开疫苗问题小组委员会会议，欲在最后确定结论之前听取专家的意见。一些专家建议，医疗专业人员也应该被列入专家组，政府对此建议将作进一步考虑。
+撰稿：东京樱花团/百花李香
 
-缩小目标群体的原因是，据报道，第四剂疫苗接种对年轻人的效果较差，其它国家也是以老年人为重点接种对象。已被推广用于广泛的年龄组的电晕疫苗接种的性质，可能会随着第四剂量而发生显著变化。迄今为止的针对更广泛年龄层的接种方针，将在第四剂接种期间发生很大变化。
+4月20日，日本参议院全体会议通过并颁布了关于撤销对俄罗斯的“最惠国待遇”的临时海关措施修订法。此修订法是针对对俄入侵乌克兰后加强经济制裁的一部分，俄罗斯鱼类和海产品及其它产品的关税将被提高到明年3月底。同时，还通过并颁布了修订后的《外汇和外贸法》，以此堵住对俄制裁的漏洞。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-25.jpg)[图片来源](https://www.google.com/search?q=Japan-Russia&amp;biw=1540&amp;bih=763&amp;sxsrf=APq-WBsXRC03TlUQcx7IuvPldVj_aUGlQA:1650431094569&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=aQ748C2uLqeT9M%252C1nNZZu-)
+随着对俄罗斯最惠国待遇的取消，从俄罗斯进口的产品将在适用优惠待遇之前受到关税税率的限制。鲑鱼的关税将从目前的3.5%提高到5%，螃蟹的关税从4%提高到6%。另一方面，原油以及液化天然气（LNG）和稀有金属钯等不会受到影响。
 
-信息来源：
- [ワクチン4回目、高齢者ら限定　接種対象、持病ある人も（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a1b42b48cb71b8ea77ddb69f9059d32308d3a2af)
+信息来源：[ロシア最恵国待遇撤回法が成立　制裁強化、魚介類関税引き上げ](https://news.yahoo.co.jp/articles/822c12ce60a10a7fb249268768ea2d4460721d5f#:~:text=%E3%83%88%E3%)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
 
  
 
