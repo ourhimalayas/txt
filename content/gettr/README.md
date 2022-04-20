@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 8:58 PM (UTC)`
+
+2022.04.20  新中国联邦 | 喜健康   毒疫苗导致的家庭关系，人际关系冲突/沟通技巧与和解之道
+![img](https://media.gettr.com/group45/origin/2022/04/20/20/a6469969-4406-4ccc-bb57-97a4052eed26/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 8:44 PM (UTC)`
 
 A Volunteer from France likes our vest of “Take down the Chinese Communist Party” and supports the New Federal State of China. <br/><br/>一名来自法国的志愿者喜欢我们“消灭中共”的背心并且支持新中国联邦。<br/><br/>#ukrainerescue  #nfsc新中国联邦  #nfscukrainerescue
@@ -147,13 +154,6 @@ MILES GUO Livestream 2022-04-20
 
 2022.04.20 NFSC news  Review of Miles Guo's "4-19 VOA Broadcast Cut-off" Gate Incident
 ![img](https://media.gettr.com/group14/origin/2022/04/20/12/1028de0f-4d22-2952-62bd-19c021923579/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/20/2022 11:27 AM (UTC)`
-
-【419 5th anniversary】04/19/2022 Mr. Miles Guo and the Whistleblowers’ Movement revealed the collusion between Terry Guo and Ko Wen-je and others with the Chinese Communist Party, which prevented the further fall of Taiwan.<br/><br/>【419五周年】04/19/2022 郭文贵先生及爆料革命揭示了郭台铭、柯文哲等人同中共的勾结，避免了台湾的进一步沦陷。<br/>
-![img](https://media.gettr.com/group20/getter/2022/04/20/11/b52493e4-f0fe-db2a-0a21-40dcee362fa6/out.jpg)
 
 ---
 
