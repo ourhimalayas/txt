@@ -2,25 +2,29 @@
 ---
 
 
-## 加拿大民调显示病毒感染者存在长期后遗症
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381870/)
+## 加拿大央行利用量子计算确认数字货币应用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381910/)
 
-作者：加拿大温哥华扬帆农场 – 青青（采编）-文莱  （撰稿）
+作者：加拿大温哥华扬帆农场 – 活力人生
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504833981.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504846851.png)图片来源：金融邮报
 
 
-据【CTV新闻】4月19日报道，最新民调显示，大约25%的加拿大受访者承认他们感染过新冠病毒，该感染率明显高于官方数据水平。同时，调查结果不仅让人们看到了病毒感染的长期风险与症状，而且还认识到疫情仍远未结束。
+据【金融邮报】4月18日报道，由于数字资产领域超出了传统计算机可以处理的范围，加拿大央行正在尝试利用量子计算以解决包括数字货币在内的一系列复杂金融问题。
 
-在这项4月初对近1600名加拿大人进行的在线调查中，30%的18至34岁受访者表示他们感染过新冠病毒，55岁及以上的受访者中则为12%。同时，社交活动越频繁，例如经常去餐馆、酒吧和聚会的人更容易被病毒感染。
+加拿大央行最近与量子软件公司[多元宇宙]合作，在模拟了非金融公司采用数字货币作为支付手段的各种情况之后发现：数字资产最终将与传统的银行转账和现金工具一起参与支付市场。
 
-调查还显示，60%的感染者表示他们有轻微的症状，而34%的人表示他们有严重的症状，例如极度疲劳，肌肉和关节长期性疼痛，甚至无法卧床等。此外，尽管与事实相反，但超过50%的受访者表示，疫情最严重的时期已经过去，而且情况正在好转。
+据悉，[多元宇宙公司]使用量子计算机的“量子退火”技术，从大量潜在方案中确定最佳解决途径。由于加密货币市场的不稳定性，该技术将使中央银行能够准确预测监管的最终效果。
+
+加拿大银行多年来都在探索加密货币以及发行中央银行数字货币的可能性。为此，联邦政府将在五年内拨款 1770 万加元，用于由财政部负责的对数字加元的立法审查。同时，在研究加密货币和稳定币等数字货币的应用之外，还在需要时扩大中央银行数字货币发行的可能性。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
+新闻来源：[https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems](https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems)
+
+
 
  
 

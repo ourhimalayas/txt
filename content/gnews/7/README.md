@@ -2,27 +2,25 @@
 ---
 
 
-## 通货膨胀使部分加拿大人陷入债务危机
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381771/)
+## 加拿大各省疫情都已再度复苏
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381811/)
 
-作者：加拿大温哥华扬帆农场 – 硫酸羟氯喹64（采编）-重生之鹰  （撰稿）
+作者：加拿大温哥华扬帆农场 – 文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504817261.png)图片来源：后千禧一代
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504826321.png)图片来源：CTV News
 
 
-据加拿大《后千禧年》4月18日报道，最新民意调查显示：在疫情期间，部分加拿大人的收入已不足以负担其各项生活费用。
+据加拿大【CTV新闻】4月19日报道，目前加拿大各地的医院都在忙于应对新冠病毒的再次来袭，而且疫情恶化的情况可能会持续一个月以上。
 
-据悉，在本次于3月9日至15日进行的民调中，共有2,000名加拿大人参加，其中约31%受访者的收入不足以支付他们的账单，53%的人已处在随时破产的边缘。
+加拿大公共卫生署最新数据显示，从4月4日至11日期间，加拿大各地因感染新冠病毒而住院的人数增加了约18%，从5109人增加到6020人。同时，大多数省份的重症监护人数也呈上升趋势。
 
-此外，25%的加拿大人认为，疫情和俄乌战争加剧了通货膨胀，由于食品、汽油和日常用品价格都在上涨，他们背负了更多的债务。其中20%的人表示，他们甚至动用了应急储蓄来度过难关。
-
-报道称，随着加拿大央行持续上调基准利率，那些拥有房屋或计划续借抵押贷款的人将面临更高的支出，而这些意外的债务，将使部分加拿大人难以承受。
+对此，艾伯塔省卫生部负责人表示，尽管目前该省正处于由奥密克戎BA.2子变体所引发的第六波疫情之中，但所导致的伤害程度并不像最初的奥密克戎所造成的那样剧烈。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://thepostmillennial.com/53-percent-of-canadians-just-200-away-from-insolvency-31-percent-cant-pay-bills-survey](https://thepostmillennial.com/53-percent-of-canadians-just-200-away-from-insolvency-31-percent-cant-pay-bills-survey)
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
 
  
 
