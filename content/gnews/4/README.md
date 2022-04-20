@@ -2,16 +2,13 @@
 ---
 
 
-## 20220419郭文贵大直播 ：陶晶这号人佩服我们，但不相信咱能灭了共，不会跟我们在一起
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376378/)
+## 郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2376477/)
 
-作者：东京樱花团小视频组
+【419五周年】郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

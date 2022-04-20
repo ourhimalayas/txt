@@ -15,77 +15,77 @@
 
 ---
 
-### [20220419郭文贵大直播 ：4.19五周年新中国联邦门户网站正式推出](/content/gnews/1/README.md)
+### [20220419郭文贵大直播 ：4.19特别节目：太平联盟案例(PPT)](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220419郭文贵大直播 ：任何一个高速火车，飞机，电厂，指挥中心，交管所都会成为中共的（死海之神）](/content/gnews/2/README.md)
+### [Robinhood 通过收购加密应用 Ziglu，2年后重新启动了在英国推出的计划](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20220419郭文贵大直播 ：习深信他是被莫德尔周期选中的人，必和俄站一起，必打台湾](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220419郭文贵大直播 ：自从俄乌战争 上海封城开始，体制内出现重大转变](/content/gnews/3/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220419郭文贵大直播 ：陶晶这号人佩服我们，但不相信咱能灭了共，不会跟我们在一起](/content/gnews/4/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220419郭文贵大直播 ：党内开始觉得新中国联邦真的可以玩动国际游戏](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|乌克兰称被击沉莫斯科号舰长在爆炸中丧生](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [有声|美国志愿者珍视在新中国联邦庆祝逾越节](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|俄罗斯最后通牒，乌克兰誓在马里乌波尔战斗到底](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [法国总统候选人勒庞与欧盟的“恩怨录”](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
-
-### [有声|蔡英文表示台湾坚守主权与民主的决心](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [美国志愿者高度评价新中国联邦的救援工作](/content/gnews/11/README.md)
+### [郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
+### [今日盖特大V推荐 — 保罗·爱德华多·马丁斯（Paulo Eduardo Martins）](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [20220419郭文贵大直播 ：上海人有100%的自卫权利，因为你面临生死问题](/content/gnews/13/README.md)
+### [20220419郭文贵大直播 ：习深信自己是佛祖在世，深信莫德尔周期，用世界大战掌控全球](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
 
-### [COVID-19疫苗副作用集萃（2022.4.19）打疫苗真是开盲盒，真不知会有哪种不良反应](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220419郭文贵大直播 ：灭共需要用好离间计，七哥不反习，但灭习。王岐山，孟建柱必须被依法审判并追回钱财 还原历史](/content/gnews/15/README.md)
+### [20220419郭文贵大直播 ：七哥海外全网粉丝1.93亿](/content/gnews/7/README.md)
  ` Tokyo Sakura Video Group`
 
-### [全球疫情疫苗数据更新（诡异频发的球星猝死和空难）](/content/gnews/16/README.md)
+### [郭文贵先生表示，5年前419未能结束的爆料未来都会逐渐曝光](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [20220419郭文贵大直播 ：是爆料革命的开始，是里程碑](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220419郭文贵大直播 ：中国男性举而不坚！419 是中国女权运动的开始，中国女性是最美最强大的](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [419是爆料革命、新中国联邦最重要的日子](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [20220419郭文贵大直播 ：助共为虐、恶有恶报，419群丑图（PPT)](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220419郭文贵大直播 ：4.19五周年新中国联邦门户网站正式推出](/content/gnews/13/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [今日盖特大V推荐 — 卡洛斯·乔迪（Carlos Jordy）](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [从上海封城看中共对全人类的危害](/content/gnews/17/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.19）打疫苗真是开盲盒，真不知会有哪种不良反应](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球疫情疫苗数据更新（诡异频发的球星猝死和空难）](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [从上海封城看中共对全人类的危害](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [普京向乌克兰边境派遣核轰炸机](/content/gnews/18/README.md)
+### [普京向乌克兰边境派遣核轰炸机](/content/gnews/19/README.md)
  ` 日本東京方舟農場`
 
-### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/19/README.md)
+### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/20/README.md)
  ` 日本東京方舟農場`
 
-### [五月花简报（04/19/2022）](/content/gnews/20/README.md)
+### [五月花简报（04/19/2022）](/content/gnews/21/README.md)
  ` mayflowertranslate`
 
-### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/21/README.md)
+### [卢比奥：中共对美大学的渗透是”赶超计划”的一部分](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/22/README.md)
+### [中共国透露将坚持“零感染”战略直至2022年底](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/23/README.md)
+### [4月19日乌克兰救援行动（图片1-6）](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
-
-### [法国总统候选人勒庞突遭欺诈指控](/content/gnews/24/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [顿巴斯之战：俄罗斯将其战争机器转移到乌克兰东部的3个原因](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`

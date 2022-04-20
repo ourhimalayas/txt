@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：上海人有100%的自卫权利，因为你面临生死问题
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376306/)
+## 20220419郭文贵大直播 ：4.19五周年新中国联邦门户网站正式推出
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376418/)
 
 作者：东京樱花团小视频组
 
