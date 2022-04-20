@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：上海人有100%的自卫权利，因为你面临生死问题
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376306/)
+## 20220419郭文贵大直播 ：陶晶这号人佩服我们，但不相信咱能灭了共，不会跟我们在一起
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376378/)
 
 作者：东京樱花团小视频组
 

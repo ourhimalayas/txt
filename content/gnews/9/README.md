@@ -2,49 +2,50 @@
 ---
 
 
-## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376238/)
+## 法国总统候选人勒庞与欧盟的“恩怨录”
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2376353/)
 
-整理：枳实
-美工：精灵蓝
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2390.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 4月19日）
+编辑：文宝
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2388.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2389.png)
-**频繁的运动员心脏病和飞行事故**
 
-今日的澳洲新闻：板球明星心脏病发作生命垂危，以及一起致命空难，这两则新闻有一个共同特点，那就是诡异的重复，都是近来频繁发生的类似事件。
+勒庞4月11日在参加一场竞选活动时强调“脱欧”不是她的政治目标。勒庞在2012年参选时明确支持法国退出欧盟，当她2017年再次参选时转而表示希望法国退出欧元区。2017年之后，勒庞扭转了“脱欧”立场，不再呼吁法国脱离欧盟或欧元区。
 
-前澳大利亚板球明星坎贝尔（ Ryan Campbell）[因心脏病发作后在伦敦一家医院被收入重症监护病房抢救](https://7news.com.au/sport/cricket/former-australian-cricket-international-fighting-for-life-after-heart-attack-c-6493521)。他是在陪孩子在球场训练时忽然发病的。这已经是出现在新闻中的第三例发生心脏病的澳洲板球明星了。三月份，前澳洲板球名将Shane Warne在泰国度假时死于心脏病，而此前不到24小时，另一位澳大利亚板球传奇人物罗德·马什死于心脏病。
+尽管勒庞此次的竞选纲领不再提及“脱欧”，但她提出的经济、社会和移民等政策，被认为处处与欧盟政策相悖。
 
-今天另一则澳洲新闻是在新南威尔士州，[一架轻型飞机飞行员死于飞行事故](https://7news.com.au/travel/air-aviation/vic-pilot-dies-in-light-plane-crash-c-5803935)，仅仅3天前，另[一位乘客在西澳死于小型空难](https://www.9news.com.au/national/plane-crash-wa-johnson-makuei-mangar-east-kimberley-nurse/75623a65-b962-4037-938d-bdc797006ec1)。而今年4月，我们已经编译报道了[澳洲发生今年第五起致命空难](https://gnews.org/zh-hans/2268374/)。
+勒庞希望在欧盟内部恢复国家边境，以对移民和货物进口进行控制；勒庞提出一项有关“公民身份和移民”的拟议法案，旨在让法国公民在国内的就业、社会保障福利和公共住房方面享有优先权。这些做法与欧盟的“一体化”观念和自由流动政策不相符。
 
-全民广泛注射毒疫苗以来，明星，运动员，议员等知名人士发生心脏病发作，猝死，晕厥等屡见不鲜，若飞行员飞行中发生这种病症，尤其是轻型飞机飞行员，其后果几乎无可避免将是致命的。全民注射毒疫苗，心脏病的流行，空难的频繁发生，这三者是否有因果关系呢？请读者自行判断。
+在勒庞主打的“家庭购买力”政策方面，她希望降低燃油税，这与欧盟的应对气候变化政策相悖。另外，勒庞还希望减少法国对欧盟预算的贡献，并不再承认欧盟法律高于法国国内法。
 
-数据来源：
+勒庞4月12日在接受法国国际电台采访时表示，“大多数法国人不再希望欧盟继续像今天这样存在。”她指责欧盟以“完全反民主的方式”运行，并称欧盟可以从内部改变。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+![当地时间4月16日，法国巴黎出现了同时反对马克龙和勒庞两位候选人的抗议活动。图/IC photo](https://n.sinaimg.cn/sinakd20220419s/177/w1080h697/20220419/9886-9e4076dd88f8d4f1608fb7e667e19925.jpg)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+当地时间4月16日，法国巴黎出现了同时反对马克龙和勒庞两位候选人的抗议活动。图/IC photo
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+勒庞的反对者和一些评论人士把她的策略称为“不叫‘脱欧’的‘脱欧’”——尽管不让法国退出欧盟，但是让法国与欧盟的关系陷入僵局。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+美国咨询公司欧亚集团的分析人士穆杰塔巴•拉赫曼称：“勒庞的政策是‘留在大巴上，但把这辆大巴驶下悬崖’，这将从内部摧毁欧盟。”英国《卫报》称勒庞若当选，对欧盟将意味着一场灾难。
 
-[covidlive.com.au](https://covidlive.com.au/)
+欧盟委员会前贸易专员帕斯卡尔·拉米表示，如果勒庞胜选，将（给欧盟）带来比英国“脱欧”和特朗普当选更大的冲击。勒庞的“主权主义、保护主义和民族主义”色彩将“完全违背法国对欧洲一体化的承诺”，并“完全违反法国所签署的条约”。
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+崔洪建表示，如果勒庞当选，可能诉诸公投来反对欧盟或欧元区的政策。欧盟此前在英国“脱欧”公投上已经吃了亏，如果勒庞在法国发起公投，可能引发更多欧盟国家效仿，这让欧盟非常紧张。
 
-发布：tianzhihuan
+法国是欧盟目前的轮值主席国，也是欧盟的创始成员国、第二大经济体。法国还是欧盟唯一的军事大国，唯一的核武器拥有国，欧盟在联合国安理会唯一的常任理事国。法国对欧盟的重要性不言而喻。javascript:'&lt;html&gt;&lt;body style=background:transparent;&gt;&lt;/body&gt;&lt;/html&gt;’
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+除了欧盟外，同样对勒庞可能当选感到紧张的还有北约。勒庞在竞选中呼吁法国退出北约军事指挥体系，“我不会把我们的军队置于北约统一指挥之下，也不会置于未来的欧洲指挥之下”，“以便不再被卷入不属于我们的冲突”。
+
+法国有脱离北约指挥体系的传统。1966年，法国退出北约一体化军事指挥体系，但继续保持北约成员国身份，直到2009年，法国才重新加入北约军事指挥体系。
+
+对于仍在持续的俄乌冲突，勒庞表示：“一旦俄乌冲突结束并签署和平条约，我将呼吁北约与俄罗斯实现战略和解。”
+
+勒庞此前与俄罗斯总统普京关系密切。在2017年竞选之前，勒庞与普京会面，并接受了俄罗斯为她的政党提供的贷款。勒庞还对俄罗斯此前在克里米亚地区的行动表示支持，她因此被乌克兰禁止入境。勒庞近日表示“不后悔”在克里米亚问题上对俄罗斯的支持。
+
+美国咨询机构大西洋理事会4月10日在其官网刊文指出，考虑到勒庞可能当选的情形，以及她与普京的关系，“如果法国退出制裁俄罗斯的行动，那将是对西方的沉重打击。”
+
+原文链接：[https://news.sina.com.cn/w/2022-04-19/doc-imcwipii5245512.shtml](https://news.sina.com.cn/w/2022-04-19/doc-imcwipii5245512.shtml)
+
+
 
  
 
