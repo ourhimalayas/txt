@@ -2,18 +2,18 @@
 ---
 
 
-## 视频|台湾政务委员与美国贸易代表视像会面 盼台美签双边贸易协定
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2378596/)
+## 世界所有的好话都让欺民贼讲完了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378791/)
 
-制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-台湾行政院政务委员邓振中与美国贸易代表戴琪，在台北时间18日晚间举行视像会议，讨论双边贸易的进展，以及台美共同关心的议题，邓振中表示，台湾期盼与美国签署双边贸易协定。
+发布：*陶子*
 
-根据美国贸易代表办公室公布的对话纪要显示，戴琪与邓振中一起检视了自去年6月召开的第11届美台“贸易暨投资架构协定”会议以来，双边贸易议题的持续进展，并讨论了双方共同关心的议题，包括在区域与世界贸易组织等多边组织的合作，两人同意在未来数个月内就这些议题继续保持联系。
-
-不过，本次会谈内容仍然未有触及台湾能否参与美国正在筹备的印太经济架构（IPEF）的问题。虽然台湾方面早前已表达希望参与的意愿，但美国方面到目前为止还没有作出任何决定。
-
-发稿：木香
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

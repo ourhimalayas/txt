@@ -2,16 +2,40 @@
 ---
 
 
-## 20220419郭文贵大直播 ：中共走狗吴小晖 叶简明 傅政华的下场
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377264/)
+## 上海外企积极配合中共复工复产
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2377427/)
 
-作者：东京樱花团小视频组
+作者：银河系农场 – 骄子
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
+4月18日，中共上海市通知多家企业复工复产。据其发布的文件中做出了5项21条防控指引，企业根本无法做到，纯属纸上谈兵。
+
+其中，有要求企业在目前疫情严峻的情况下，复工者七日内核酸为阴性、封闭式管理，以及要求生产线无接触工作。上海似乎又要把疫情防控不当的责任推给企业。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-42.jpg)
+此文件发布不久，外企3M、杜邦、BASF等拒绝了该复工要求。网传外企要当局修改关于复工的文件承诺书。
+
+几个小时后，中共喉舌媒体发文，声称外企3M、杜邦、BASF目前正在配合市政府积极制定复工复产方案。据悉，三家企业均已表示，正在按照中共政府的指示做事，之前拒绝复工复产的新闻是谣言。
+
+参考链接： 
+1. [上海多家外企积极制定复工方案 网传“拒绝复工”不实](https://www.cnfin.com/yw-lb/detail/20220418/3586240_1.html)
+2. [上海通知多家企業復工 3M、杜邦、BASF等外企拒絕](https://udn.com/news/story/7333/6247990)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+审核/总编/编辑：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,57 +2,70 @@
 ---
 
 
-## 纪念419断播门
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2378495/)
+## 英国向普京展示武力：照片显示导弹被装载到直布罗陀的潜艇上
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2378568/)
 
-BY:银兴系农场|冬立风雪烈
-![此图像的alt属性为空；文件名为%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-16.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-16.png)
-风起青萍末
+翻译：文乐
 
-潮生天际外
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
 
-断播“419”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2438.png)新照片显示导弹正在装载到 HMS Audacious（图片：摄影）
 
-爆料春汛来
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2439.png)这艘攻击潜艇目前停靠在直布罗陀（图片：摄影）
 
-大智开直播
+新照片显示导弹被装载到英国最强大的核潜艇 HMS Audacious 上。
 
-声称保命财
+这艘攻击潜艇目前停靠在直布罗陀，周六下午抵达。它是皇家海军的精明级动力潜艇之一，是有史以来建造的最先进的水下航行器之一。新潜艇正在逐渐取代已经服役近四年的特拉法加级潜艇。
 
-每每平安报
+HMS Audacious 配备了强大的武器系统，包括战斧陆地攻击巡航导弹(TLAM) 和Spearfish重型鱼雷。
 
-盗国有鬼怪
+在 Fotografiks 机构发布的新图片中，可以看到一台起重机将导弹装载到潜艇上。
 
-一切刚开始
+这艘船停靠在上周三抵达海军基地的乔治亚号航空母舰旁边。
 
-创启新时代
+两艘潜艇并排的存在突显了直布罗陀作为英国军方及其盟国的海军后勤基地的作用越来越大。
 
-“蚂蚁”万千众
+两艘潜艇同时在海军基地是极不寻常的。
 
-追随心智开
+上一次发生这种情况是在 2019 年，当时 USS Olympia 和 HMS Talent 停靠在该港口。
 
-美洲蝶扇翅
+两艘潜艇的到来引发了西班牙和一个环保组织的抗议。
 
-巨浪掀南海
+马德里政府向美国提出抗议，抗议美国决定不将乔治亚号战舰派往西班牙的罗塔，美国在西班牙拥有永久海军基地。
 
-五载验证多少事
+西班牙环保组织 Verdemar 也对两艘核动力船抵达直布罗陀感到不满。
 
-罪恶中共人类灾
+该组织表示，两艘潜艇的存在对直布罗陀湾周围的社区构成了风险。
 
-唤醒世界同敌忾
+一位发言人说：“这些潜艇是真正的浮动炸弹，使我们的家庭和环境处于危险之中。”
 
-必将尽把红魔埋
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2441.png)该潜艇拥有战斧陆地攻击巡航导弹（TLAM）和Spearfish重量级鱼雷。（图片：摄影）
 
-诺亚方舟G系列
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2443.png)它是皇家海军的精明级动力潜艇之一（图片：摄影）
 
-联邦新人喜开怀
+“我们不接受地中海的潜艇行动，我们致力于在所有与地中海接壤的国家谴责这些进入。
 
-作者：冬立风雪烈
+HMS Audacious 抵达直布罗陀是在伦敦和莫斯科之间的紧张局势加剧之后。
 
-发布：天雷滚滚
+上周，克里姆林宫禁止鲍里斯·约翰逊和其他高级部长进入俄罗斯，并指责英国煽动反俄歇斯底里。
 
-日本[银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![此图像的alt属性为空；文件名为Untitled_Project3.gif](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled_Project3.gif)
+莫斯科在一份声明中说：“实质上，英国领导层是在故意加剧乌克兰周围的局势，向基辅政权注入致命武器，并协调北约方面的类似努力。”
+周一，俄罗斯国家电视台播放了两名英国士兵在乌克兰战斗的视频。
+
+链接：[UK’s show of force to Putin – photos show missiles being loaded onto Navy sub in Gibraltar](https://www.express.co.uk/news/uk/1597577/Gibraltar-news-hms-audacious-nuclear-submarine-missiles-vladimir-putin-update)
+
+* * *
+
+审核：Bryan W
+校对：阿伯塔
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
