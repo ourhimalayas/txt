@@ -2,38 +2,35 @@
 ---
 
 
-## 医疗监管机构董事会成员面临与制药公司联系的问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377392/)
+## 上海警方让死于中共病毒老年患者的家属闭嘴
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377534/)
 
-翻译： Jenny Ball
+#### 【雅典娜观察】和您一起洞察世界
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
+翻译/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2423.png)图片来源：Voa & 雅典娜设计组
 
 
+4月19日，据自由亚洲电台报道，封城期间上海当局让死于中共病毒的老年人家属闭嘴，因为近期奥米克戎疫情席卷了该市至少一家医院，造成的死亡人数不详。
+在浦东新区东海医院至少有27名老年人死于中共病毒，还有很多人被怀疑因工作人员和患者之间爆发疫情而死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-400.jpg)图片来源：Nisha Dutta/Getty Images/iStockphoto
+一位与家属交流过的人士告诉记者，一些家庭拒绝将亲人遗体火化，而浦东网警警告，家属们不能与外国媒体交谈，否则承担法律后果。
 
-英国药品监管机构在发现其六名董事会成员正在接受制药行业的付款后，已被敦促加强其利益冲突政策。
+在东海医院因疫情入院后死亡的几个老年人家庭称，该医院已经报告了死于这种疾病的患者人数有27人。根据家属们的说法，那里仍在发生死亡事件。
 
-参与监督监管机构“战略方向”的董事会成员，还拥有包括美国和沙特制药巨头在内的公司，以及有志打入英国医疗保健市场的公司的经济利益。根据官方透明度记录，一些提供咨询服务，而另一些则帮助经营或拥有药品和医疗器械公司的股份。
+由于医院人手不足，至少有80%的工作人员被派往其他地方进行疾病控制和预防工作，老人认为在那里没有得到适当的照顾和治疗。
 
-调查结果引起了人们对药品和保健品监管机构 (MHRA) 高级官员之间的利益冲突的担忧，该机构是卫生和社会保健部的执行机构，负责监管药品和保健品，医疗设备并确保其安全。
+27人死亡的数字不包括死于中共病毒以外的其他原因的人。大量感染病毒的老年患者被送往临时方舱医院，有些人甚至可能因忽视或饥饿而死亡。
 
-新闻来源：[Medical regulator faces questions over board members’ links to drug firms](https://www.theguardian.com/society/2022/apr/17/medical-regulator-faces-questions-over-board-members-links-to-drug-firms)
+原文链接：[Shanghai police warn bereaved families of elderly COVID-19 patients not to speak out — Radio Free Asia (rfa.org)](https://www.rfa.org/english/news/china/elderly-04192022142219.html)
+发布：tianzhihuan
 
-* * *
-
-审核：文乐  
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

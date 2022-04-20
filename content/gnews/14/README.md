@@ -2,12 +2,18 @@
 ---
 
 
-## 【419五周年】郝董叶女侠分享身边俄罗斯人在西班牙银行账户被封、找工作被拒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2377487/)
+## 我们今天所做的灭共所有的一切，都基于实力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377617/)
 
-【419五周年】04/19/2022 郝董叶女侠分享身边俄罗斯人在西班牙银行账户被封、找工作被拒。七哥分享美国和欧洲对所有中共和俄罗斯的政府工作人员的名单百分之百掌握，共产党未来在全世界肯定比俄罗斯还惨。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发布：*陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,36 +2,26 @@
 ---
 
 
-## 台积电为美国新工厂筹集35亿美元债券
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377522/)
+## 日本第四剂疫苗接种对象包括有基础疾病人群和老年人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377619/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/日本第四剂疫苗接种对象包括有基础疾病人群和老年人.png)（图片源自本文链接）
+4月20日共同通信社消息：19日对相关人士的采访显示，日本政府打算重点针对老年人和有基础疾病的人接种第四剂中共病毒(新冠病毒)疫苗。厚生省将于27日召开疫苗问题小组委员会会议，欲在最后确定结论之前听取专家的意见。一些专家建议，医疗专业人员也应该被列入专家组，政府对此建议将作进一步考虑。
 
-翻译/编辑：小红帽
+缩小目标群体的原因是，据报道，第四剂疫苗接种对年轻人的效果较差，其它国家也是以老年人为重点接种对象。已被推广用于广泛的年龄组的电晕疫苗接种的性质，可能会随着第四剂量而发生显著变化。迄今为止的针对更广泛年龄层的接种方针，将在第四剂接种期间发生很大变化。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1617359183346071.jpg)图片来源：www.caixinglobal.com
+信息来源：
+ [ワクチン4回目、高齢者ら限定　接種対象、持病ある人も（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a1b42b48cb71b8ea77ddb69f9059d32308d3a2af)
 
-
-根据CNA 4月20日报道，根据一份条款清单显示，台湾芯片公司台积电为其在美国亚利桑那州的新工厂筹集了35亿美元的债券。
-
-台积电是苹果公司的主要供应商，也是全球最大的芯片代工制造商。去年在亚利桑那州的工厂开始建设，该公司计划斥资120亿美元建设一家计算机芯片工厂。
-早在3月底，有设备供应商消息传出，台积电美国亚利桑那州工厂将于明年第一季度开始进驻设备，主要目标是N5P（升级版5nm）和N4（4nm）制程，预计将于2024年上半年量产，第一阶段月产能约2万片。
-
-业内指出，台积电N5制程量产快两年，N5P制程比N5制程性能提升5%，功耗下降10%，而N4则是N5的另一升级版，进一步提升性能、功耗和密度，美国工厂导入这两大制程更可满足客户需求。
-
-资料来源：
-
-1. [Taiwan’s TSMC raises $3.5 billion in bonds for new US plant](https://www.channelnewsasia.com/business/taiwans-tsmc-raises-35-billion-bonds-new-us-plant-2634981)
-2. [传台积电美国工厂明年Q1进驻设备N5P、N4制程量产时程不变](https://www.laoyaoba.com/n/812822)
-
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
