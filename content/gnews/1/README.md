@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：4.19特别节目：太平联盟案例(PPT)
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376502/)
+## 20220419郭文贵大直播 ：习近平相信莫德尔定律，更相信自己是上天派来的代表
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376630/)
 
 作者：东京樱花团小视频组
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：是爆料革命的开始，是里程碑
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376456/)
+## 20220419郭文贵大直播 ：4.19特别节目：太平联盟案例(PPT)
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376502/)
 
 作者：东京樱花团小视频组
 

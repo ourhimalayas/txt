@@ -2,13 +2,16 @@
 ---
 
 
-## 郭文贵先生表示，5年前419未能结束的爆料未来都会逐渐曝光
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2376464/)
+## 20220419郭文贵大直播 ：PAG案子掺杂着众多偶然
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376516/)
 
-04/19/2022 【419五周年】郭文贵先生表示，5年前419未能结束的爆料未来都会逐渐曝光：无论是王岐山的钱、刘呈杰的爹，以及中共同华尔街的关系。
+作者：东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

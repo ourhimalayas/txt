@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：七哥海外全网粉丝1.93亿
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376465/)
+## 20220419郭文贵大直播 ：荒谬的马蕊案以及背后的PAG
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376533/)
 
 作者：东京樱花团小视频组
 

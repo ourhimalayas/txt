@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：助共为虐、恶有恶报，419群丑图（PPT)
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376432/)
+## 20220419郭文贵大直播 ：习深信他是被莫德尔周期选中的人，必和俄站一起，必打台湾
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376484/)
 
 作者：东京樱花团小视频组
 

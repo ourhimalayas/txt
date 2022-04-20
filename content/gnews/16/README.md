@@ -2,49 +2,46 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.19）打疫苗真是开盲盒，真不知会有哪种不良反应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376287/)
+## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376238/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+整理：枳实
+美工：精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2390.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 4月19日）
 
-整理/编辑：机器猫
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2388.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2389.png)
+**频繁的运动员心脏病和飞行事故**
 
-帖子原文：
+今日的澳洲新闻：板球明星心脏病发作生命垂危，以及一起致命空难，这两则新闻有一个共同特点，那就是诡异的重复，都是近来频繁发生的类似事件。
 
-博主：干大事儿会搞钱的马紫维
+前澳大利亚板球明星坎贝尔（ Ryan Campbell）[因心脏病发作后在伦敦一家医院被收入重症监护病房抢救](https://7news.com.au/sport/cricket/former-australian-cricket-international-fighting-for-life-after-heart-attack-c-6493521)。他是在陪孩子在球场训练时忽然发病的。这已经是出现在新闻中的第三例发生心脏病的澳洲板球明星了。三月份，前澳洲板球名将Shane Warne在泰国度假时死于心脏病，而此前不到24小时，另一位澳大利亚板球传奇人物罗德·马什死于心脏病。
 
-打疫苗真是开盲盒，针不知会有哪种不良反应
+今天另一则澳洲新闻是在新南威尔士州，[一架轻型飞机飞行员死于飞行事故](https://7news.com.au/travel/air-aviation/vic-pilot-dies-in-light-plane-crash-c-5803935)，仅仅3天前，另[一位乘客在西澳死于小型空难](https://www.9news.com.au/national/plane-crash-wa-johnson-makuei-mangar-east-kimberley-nurse/75623a65-b962-4037-938d-bdc797006ec1)。而今年4月，我们已经编译报道了[澳洲发生今年第五起致命空难](https://gnews.org/zh-hans/2268374/)。
 
-开个贴问一下，大家打完疫苗之后有什么反应吗？
+全民广泛注射毒疫苗以来，明星，运动员，议员等知名人士发生心脏病发作，猝死，晕厥等屡见不鲜，若飞行员飞行中发生这种病症，尤其是轻型飞机飞行员，其后果几乎无可避免将是致命的。全民注射毒疫苗，心脏病的流行，空难的频繁发生，这三者是否有因果关系呢？请读者自行判断。
 
-昨天打完第一针，我感觉到肝不舒服，真的要吓死了，我以为我爸疫苗之后脑梗发作是因为年龄大了，没想到我昨天打完，自己感觉肝疼。
+数据来源：
 
-有没有热心专业的医护小姐姐解答一下，我这种不良反应是不是应该上医院查一下肝？
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-盲盒，疫苗真比盲盒还盲盒，媒体不报道的不良反应是千奇百怪，谁都不知道自己会轮上哪一种！
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-我不敢打第二针了，感觉要打得话，得去寺庙上一柱香才行。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-#新冠疫苗
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-评论选集：
+[covidlive.com.au](https://covidlive.com.au/)
 
-鲸鱼 回复：体检肝功能两项过标，老头6天脑梗现在生活不能自理百度贴吧的评论都被屏蔽删除你们懂得。
-
-姐姐不吃鱼 回复：我是打完后便秘三天了而且胃胀！用了八只开塞露没效果！现在正在吃乳果糖！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2391.png)图片来源：小红书
-素材来源：
-
-[打疫苗真的是开盲盒，真不知会有哪种不良反应](https://www.xiaohongshu.com/discovery/item/610df83d000000000102526c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650199320)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
