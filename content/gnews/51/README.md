@@ -2,29 +2,16 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2376911/)
+## 20220419郭文贵大直播 ：中共走狗吴小晖 叶简明 傅政华的下场
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377264/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-19.png)
+作者：东京樱花团小视频组
 
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p164b5eae12](https://gettr.com/post/p164b5eae12)
-访谈：[https://gettr.com/post/p164sn3d67c](https://gettr.com/post/p164sn3d67c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

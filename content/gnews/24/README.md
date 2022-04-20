@@ -2,31 +2,31 @@
 ---
 
 
-## 有声｜上海强硬封城惹民怨 微博封杀《国际歌》歌词
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2378681/)
+## 俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378774/)
 
-By:**秘翻新闻**
+**港台前线 zhong｜2022-4-20**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-8.png)
+欧盟理事会主席查尔斯．米歇尔（Charles Michel）通过推特对外界传达（20日）他已抵达乌克兰首都基辅，并称“基辅是自由民主欧洲的中心”，外媒报导称他将与泽连斯基会面。米歇尔本次访问乌克兰形成，外界事前并不知悉。外媒有提及，米歇尔欧盟理事会主席的身分，代表着欧盟27成员国。
 
-**2022-04-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-17.png)
-[综合媒体](https://www.epochtimes.com/gb/22/4/19/n13715089.htm%20https://www.nownews.com/news/5780049)4月19日报道，上海疫情未熄，强硬的封城措施引发海量民怨。众多民众通过社群媒体表达对物资短缺和对中共政府的不满。其中反响最大的是很多网友以自己的方式翻唱国际歌，却遭到网络封杀。
+此前，欧洲议会主席梅措拉（Roberta Metsola）4月1日[突然访问基辅](https://gnews.org/zh-hant/2273281/)，会面泽连斯基及乌克兰及国会议长。欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔于4月8日也访问了基辅。
 
-上海封城不久，极端的封控措施引来了网络里的一片怨声载道，网友们翻唱国际歌的各种版本迅即传开。
 
-国际歌是国际共产主义运动的颂歌，歌词第一句就是“起来，不愿做奴隶的人们”。这句歌词同为中共国国歌《义勇军进行曲》的歌词。
 
-上周，这句歌词的相关热搜话题遭到微博审查，相关搜寻结果无法显示，微博对此也并未表态。网友们的各种翻唱版本也消失不见。
+> In Kyiv today. 
+> 
+> In the heart of a free and democratic Europe. [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) [pic.twitter.com/7DxTeoxtMc](https://t.co/7DxTeoxtMc)
+> — Charles Michel (@eucopresident) [April 20, 2022](https://twitter.com/eucopresident/status/1516668856651165708?ref_src=twsrc%5Etfw)
 
-据了解，2020年武汉疫情爆发初期，吹哨人李文亮医生之死引发网友对中共的愤怒。当时豆瓣就曾封杀了“起来，不愿做奴隶的人们”这句歌词，原因是“含有激进时政或意识形态”。
 
-评论认为，中共的起家靠的就是欺骗，利用一些底层民众对社会的不满，靠欺骗这些人起来造反。现在中共不想让民众觉悟，就想让民众保持愚昧状态，所以它就要严格控制宣传手段，这是它一贯使用的手段。
 
-秘翻新闻 明澈编译报道
-
-发布 : 恩典
+来源｜[POLITICO](https://www.politico.eu/article/charles-michel-visit-kyiv-ukraine-eu/)、[GNEWS](https://gnews.org/zh-hant/2273281/)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片.png)
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

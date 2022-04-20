@@ -2,39 +2,26 @@
 ---
 
 
-## 上海外企积极配合中共复工复产
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2377427/)
+## 日本第四剂疫苗接种对象包括有基础疾病人群和老年人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377619/)
 
-作者：银河系农场 – 骄子
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/日本第四剂疫苗接种对象包括有基础疾病人群和老年人.png)（图片源自本文链接）
+4月20日共同通信社消息：19日对相关人士的采访显示，日本政府打算重点针对老年人和有基础疾病的人接种第四剂中共病毒(新冠病毒)疫苗。厚生省将于27日召开疫苗问题小组委员会会议，欲在最后确定结论之前听取专家的意见。一些专家建议，医疗专业人员也应该被列入专家组，政府对此建议将作进一步考虑。
 
+缩小目标群体的原因是，据报道，第四剂疫苗接种对年轻人的效果较差，其它国家也是以老年人为重点接种对象。已被推广用于广泛的年龄组的电晕疫苗接种的性质，可能会随着第四剂量而发生显著变化。迄今为止的针对更广泛年龄层的接种方针，将在第四剂接种期间发生很大变化。
 
+信息来源：
+ [ワクチン4回目、高齢者ら限定　接種対象、持病ある人も（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a1b42b48cb71b8ea77ddb69f9059d32308d3a2af)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-4月18日，中共上海市通知多家企业复工复产。据其发布的文件中做出了5项21条防控指引，企业根本无法做到，纯属纸上谈兵。
-
-其中，有要求企业在目前疫情严峻的情况下，复工者七日内核酸为阴性、封闭式管理，以及要求生产线无接触工作。上海似乎又要把疫情防控不当的责任推给企业。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-42.jpg)
-此文件发布不久，外企3M、杜邦、BASF等拒绝了该复工要求。网传外企要当局修改关于复工的文件承诺书。
-
-几个小时后，中共喉舌媒体发文，声称外企3M、杜邦、BASF目前正在配合市政府积极制定复工复产方案。据悉，三家企业均已表示，正在按照中共政府的指示做事，之前拒绝复工复产的新闻是谣言。
-
-参考链接： 
-1. [上海多家外企积极制定复工方案 网传“拒绝复工”不实](https://www.cnfin.com/yw-lb/detail/20220418/3586240_1.html)
-2. [上海通知多家企業復工 3M、杜邦、BASF等外企拒絕](https://udn.com/news/story/7333/6247990)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-审核/总编/编辑：DM
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
