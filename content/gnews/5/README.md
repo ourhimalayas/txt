@@ -2,11 +2,11 @@
 ---
 
 
-## 2022年4月20日《樱花简报》：日本启动对俄罗斯追加制裁措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2376685/)
+## 2022年4月20日《樱花快报》：美国决定5月份召开第二次全球应对中共病毒疫情峰会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2376849/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220420简报-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220420快报.jpg)
 
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/老黑*

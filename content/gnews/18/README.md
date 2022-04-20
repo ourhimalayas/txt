@@ -2,50 +2,26 @@
 ---
 
 
-## 全球疫情疫苗数据更新（诡异频发的球星猝死和空难）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2376238/)
+## 樱花FM｜比利时首相到访新中国联邦救援帐篷 开启历史新篇章!
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2376555/)
 
-整理：枳实
-美工：精灵蓝
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2390.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 4月19日）
+**音频：东京樱花团**/**战友**520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/F1082824-4D8A-4F6B-BD4F-7C5297AF8B86.jpeg)
+2022年4月12日是新中国联邦建国以来，第一次世界上首位在任国家元首的主动到访。现任比利时首相亚历山大·德克罗的到访对新中国联邦救援中心帐篷意义重大，他带着保镖及护卫部队主动走到乌克兰新中国联邦的帐篷前面，指着新中国联邦的记者妮可，高兴的接受了他的采访，妮可向他介绍了我们的救援工作，并赢得了他的赞许。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+德克罗说，作为人类，我们需要互相帮助，这是最重要的事情，非常高兴听到你们对难民施以援手！德克罗还主动邀请穿着take down the chinese Chinese Communist Party 妮可照相！这一张照片意义非凡，等同于外交默认！
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2388.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2389.png)
-**频繁的运动员心脏病和飞行事故**
+比利时是一个君主立宪国家，国王是名义上的国家元首，实权掌握在首相手中。欧盟总部、北约总部、国际原子能机构等组织都设在比利时。比利时现任首相是一个未来欧洲之星，他是最早反对马克思主义人之一。
 
-今日的澳洲新闻：板球明星心脏病发作生命垂危，以及一起致命空难，这两则新闻有一个共同特点，那就是诡异的重复，都是近来频繁发生的类似事件。
+默克尔、萨尔奇过去所提倡的让欧洲同俄罗斯、中国做贸易，通过贸易改变他们策略将一去不复返，这将是欧洲的一个巨大的转折！事实证明通过贸易让中国和俄罗斯改变就是一个骗局，德国和法国拿着美国的军费保护自己的安全，和共产党和俄罗斯做生意，享受着免费的气和油几乎是，然后占领了中国的汽车市场，却培养出了残酷、邪恶的独裁者习近平和普京！最终导致了新疆的种族大屠杀集中营、香港的人权大屠杀和乌克兰的种族大屠杀……
 
-前澳大利亚板球明星坎贝尔（ Ryan Campbell）[因心脏病发作后在伦敦一家医院被收入重症监护病房抢救](https://7news.com.au/sport/cricket/former-australian-cricket-international-fighting-for-life-after-heart-attack-c-6493521)。他是在陪孩子在球场训练时忽然发病的。这已经是出现在新闻中的第三例发生心脏病的澳洲板球明星了。三月份，前澳洲板球名将Shane Warne在泰国度假时死于心脏病，而此前不到24小时，另一位澳大利亚板球传奇人物罗德·马什死于心脏病。
+在过去的几十年，中共和俄罗斯这样的流氓政权，欺骗了世界、欺骗了欧洲、欺骗了美国的所有一切，究其根本原因是他们共同崇尚马克思主义邪教！比利时首相亚历山大·德克罗先生、太太及家人是个全家极端的反马克思主义者！未来美国、日本和英国、波兰、乌克兰、比利时等欧洲正义联盟和我们新中国联邦在一起将这残忍的、冷酷的邪教彻底消灭！！
 
-今天另一则澳洲新闻是在新南威尔士州，[一架轻型飞机飞行员死于飞行事故](https://7news.com.au/travel/air-aviation/vic-pilot-dies-in-light-plane-crash-c-5803935)，仅仅3天前，另[一位乘客在西澳死于小型空难](https://www.9news.com.au/national/plane-crash-wa-johnson-makuei-mangar-east-kimberley-nurse/75623a65-b962-4037-938d-bdc797006ec1)。而今年4月，我们已经编译报道了[澳洲发生今年第五起致命空难](https://gnews.org/zh-hans/2268374/)。
+**文字版原文：**[**樱花时政｜比利时首相到访新中国联邦救援帐篷，开启历史新篇章!**](https://gnews.org/zh-hans/2338881/)
 
-全民广泛注射毒疫苗以来，明星，运动员，议员等知名人士发生心脏病发作，猝死，晕厥等屡见不鲜，若飞行员飞行中发生这种病症，尤其是轻型飞机飞行员，其后果几乎无可避免将是致命的。全民注射毒疫苗，心脏病的流行，空难的频繁发生，这三者是否有因果关系呢？请读者自行判断。
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+编辑：东京樱花团/Calvin
+发布：东京樱花团/calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

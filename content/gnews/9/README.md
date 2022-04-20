@@ -2,8 +2,8 @@
 ---
 
 
-## 为什么当年共产党怕七哥，就是七哥说到了点子上，共产党成为了真正的危墙。
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376657/)
+## VOA团队的采访让七哥看到中国人最肮脏窝囊的一面
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376828/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥爆料，海航最重要的一张照片和木兰有关系
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376681/)
+## 4.19没爆的料有两个，王岐山是个骨子里的变态，对习的威胁最大
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376844/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

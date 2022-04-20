@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：习近平相信莫德尔定律，更相信自己是上天派来的代表
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376630/)
+## 中共国 西安 墙内目前的景象都差不多：排队抢菜中…抢完菜排队结算中
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376796/)
 
 作者：东京樱花团小视频组
 
@@ -12,6 +12,8 @@
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
