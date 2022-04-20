@@ -39,68 +39,68 @@
 ### [自2016年以来没未有过如此多的移民涌入欧洲](/content/gnews/8/README.md)
  ` xiaobaige`
 
-### [樱花时政┃乌克兰议会感谢台湾的支持](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共利用“疫情清零”政策来消灭过剩人口](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [加拿大央行利用量子计算确认数字货币应用](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [多伦多发生乘客被推下地铁事件](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [加拿大各省疫情都已再度复苏](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [越来越多的俄罗斯精英开始质疑普京的入侵计划](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [辉瑞和FDA知道自然免疫非常有效仍“编造”疫苗数据](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯建立童子军](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国和印度正在为俄罗斯入侵输血](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [兵力不足 普京试图建立“儿童军队”](/content/gnews/22/README.md)
- ` NFSC News`
-
-### [中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/23/README.md)
- ` NFSC News`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月20日早](/content/gnews/24/README.md)
- ` 纽约香草山MOS01`
-
-### [共产党杀人体制的本质](/content/gnews/25/README.md)
- ` 银河歌舞厅`
-
-### [文贵先生蓋特精要- 2022/04/20](/content/gnews/26/README.md)
+### [VOA断播5周年文贵先生直播精要2022/04/19](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如何智慧地应对共产党的大隔离](/content/gnews/27/README.md)
+### [樱花时政┃乌克兰议会感谢台湾的支持](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共利用“疫情清零”政策来消灭过剩人口](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大央行利用量子计算确认数字货币应用](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [多伦多发生乘客被推下地铁事件](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/17/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大各省疫情都已再度复苏](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [越来越多的俄罗斯精英开始质疑普京的入侵计划](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [辉瑞和FDA知道自然免疫非常有效仍“编造”疫苗数据](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯建立童子军](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国和印度正在为俄罗斯入侵输血](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [兵力不足 普京试图建立“儿童军队”](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月20日早](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
+
+### [共产党杀人体制的本质](/content/gnews/26/README.md)
  ` 银河歌舞厅`
 
-### [22%长期护理院爆发病毒，安省每天感染超十万](/content/gnews/28/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [文贵先生蓋特精要- 2022/04/20](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国及世界疫情简报（04-20-2022）](/content/gnews/29/README.md)
- ` 波士顿五月花农场`
+### [如何智慧地应对共产党的大隔离](/content/gnews/28/README.md)
+ ` 银河歌舞厅`
+
+### [22%长期护理院爆发病毒，安省每天感染超十万](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
@@ -150,25 +150,25 @@
 ### [中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频文编|财富成了统治人民的最重要的工具（1）](/content/gnews/46/README.md)
+### [视频文编|因为大部分中国人的无知无信仰且没有分辨真假善恶的能力，才导致被海外伪民运欺民賊欺骗](/content/gnews/46/README.md)
  ` KarmaLabs`
 
-### [视频文编|财富成了统治人民的最重要的工具（2）](/content/gnews/47/README.md)
+### [视频文编|近期CCP发动各种海外力量跟踪威胁爆料革命战友，过去多年也屡见不鲜](/content/gnews/47/README.md)
  ` KarmaLabs`
 
-### [视频文编|中国人到海外不待见中国人是因为奴性文化教育所致](/content/gnews/48/README.md)
+### [视频文编|现在的病毒是三针疫苗和Omicron和COVID19的综合结果](/content/gnews/48/README.md)
  ` KarmaLabs`
 
-### [视频文编|因为大部分中国人的无知无信仰且没有分辨真假善恶的能力，才导致被海外伪民运欺民賊欺骗](/content/gnews/49/README.md)
+### [视频文编|这个世界很疯狂，正与邪都看不清，真的连猪狗都不如！](/content/gnews/49/README.md)
  ` KarmaLabs`
 
-### [视频文编|近期CCP发动各种海外力量跟踪威胁爆料革命战友，过去多年也屡见不鲜](/content/gnews/50/README.md)
+### [视频文编|俄乌之战是世界政客对军事 科技与认知的大暴露](/content/gnews/50/README.md)
  ` KarmaLabs`
 
-### [视频文编|现在的病毒是三针疫苗和Omicron和COVID19的综合结果](/content/gnews/51/README.md)
+### [视频文编|俄乌之战全世界将认为中国人是元凶](/content/gnews/51/README.md)
  ` KarmaLabs`
 
-### [视频文编|这个世界很疯狂，正与邪都看不清，真的连猪狗都不如！](/content/gnews/52/README.md)
+### [视频文编|俄乌战争后中国未来几十年与西方军事抗衡的可能性几乎是零](/content/gnews/52/README.md)
  ` KarmaLabs`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
