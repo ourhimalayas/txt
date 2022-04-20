@@ -2,27 +2,27 @@
 ---
 
 
-## 多伦多发生乘客被推下地铁事件
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381883/)
+## 加拿大央行利用量子计算确认数字货币应用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381910/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
+作者：加拿大温哥华扬帆农场 – 活力人生
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504841611.png)图片来源：Global News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504846851.png)图片来源：金融邮报
 
 
-据&lt;环球新闻&gt;4月18日报道，多伦多警方当天宣称，一名女子日前晚间被另一名陌生女性推下地铁站台，险些被来往的地铁列车撞倒。
+据【金融邮报】4月18日报道，由于数字资产领域超出了传统计算机可以处理的范围，加拿大央行正在尝试利用量子计算以解决包括数字货币在内的一系列复杂金融问题。
 
-据悉，事件发生在多伦多市中心的地铁站，时间是晚上9点左右。一名39岁的妇女被故意推下站台后摔成重伤，但幸运的是未被列车撞到，暂无生命危险。
+加拿大央行最近与量子软件公司[多元宇宙]合作，在模拟了非金融公司采用数字货币作为支付手段的各种情况之后发现：数字资产最终将与传统的银行转账和现金工具一起参与支付市场。
 
-警方对此表示，目前仍然在逃的犯罪嫌疑人为一名金发女性，与受害者并不认识，且事件发生之前，二人之间也并无发生任何争执，警方目前已公布了嫌疑人的照片。
+据悉，[多元宇宙公司]使用量子计算机的“量子退火”技术，从大量潜在方案中确定最佳解决途径。由于加密货币市场的不稳定性，该技术将使中央银行能够准确预测监管的最终效果。
 
-近期美加地区已发生多起随机故意伤人致死案件，更有多宗专门针对亚裔人群仇恨暴力事件发生，请广大战友们对此多加小心。
+加拿大银行多年来都在探索加密货币以及发行中央银行数字货币的可能性。为此，联邦政府将在五年内拨款 1770 万加元，用于由财政部负责的对数字加元的立法审查。同时，在研究加密货币和稳定币等数字货币的应用之外，还在需要时扩大中央银行数字货币发行的可能性。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
+新闻来源：[https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems](https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems)
 
 
 

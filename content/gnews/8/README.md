@@ -2,12 +2,27 @@
 ---
 
 
-## 4月20日乌克兰救援行动（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2381887/)
+## 中共利用“疫情清零”政策来消灭过剩人口
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381922/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9FAF0A0C-3AC7-43E5-9380-60FE382FFA2A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/122790E7-8B48-453A-A686-CD2D0064F2B6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7E1711CB-0147-4B5E-80C1-C8B6DB1FBC35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/591D80A9-D260-42E1-919D-1B0F411C478F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/48D0B954-20FB-408E-9428-613931950F9D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4EA01A1E-2300-4F14-A128-934DE0ADC3A3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/30135C78-39CF-4DD4-A4C6-EB53088DCB0C.png)
-发布：水涨船高
+作者：加拿大温哥华扬帆农场 – 晨熹
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504851431.png)图片来源：Gettr
+
+
+据4月18日文贵先生盖特消息，习近平政权目前在上海实施的疫情清零封锁政策，已经导致大量居民死亡。对此，中共成立“清管委”，专门对死者家属及其邻居进行封口维稳工作，以此掩盖死亡人数。
+
+据悉，继上海之后，青岛、大连、海口和哈尔滨等重要沿海城市都将相继被封锁。中共还以防疫为借口强推六十岁以上人群的疫苗接种，通过消灭老龄人口来降低社会成本，以此节省70%左右的水电和粮食等消耗，并将省下的开支算作中共的经济增长。
+
+此外，中共刚公布的4.8%经济增长率绝对造假,该数字是中共高层的硬性要求，实际上中共国经济绝对已经是负增长状态。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://gettr.com/post/p15wbxu0c9c](https://gettr.com/post/p15wbxu0c9c)
+
+
 
  
 
