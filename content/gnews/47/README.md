@@ -2,27 +2,28 @@
 ---
 
 
-## 日本第四剂疫苗接种对象包括有基础疾病人群和老年人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377619/)
+## 嗅觉障碍会增加死亡风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377771/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/日本第四剂疫苗接种对象包括有基础疾病人群和老年人.png)（图片源自本文链接）
-4月20日共同通信社消息：19日对相关人士的采访显示，日本政府打算重点针对老年人和有基础疾病的人接种第四剂中共病毒(新冠病毒)疫苗。厚生省将于27日召开疫苗问题小组委员会会议，欲在最后确定结论之前听取专家的意见。一些专家建议，医疗专业人员也应该被列入专家组，政府对此建议将作进一步考虑。
+撰稿：东京樱花团/立正道
 
-缩小目标群体的原因是，据报道，第四剂疫苗接种对年轻人的效果较差，其它国家也是以老年人为重点接种对象。已被推广用于广泛的年龄组的电晕疫苗接种的性质，可能会随着第四剂量而发生显著变化。迄今为止的针对更广泛年龄层的接种方针，将在第四剂接种期间发生很大变化。
+新加坡国立大学的研究团队进行了9项协和研究的元分析，认为嗅觉障碍与各种疾病和身体紊乱有关,报告称由于嗅觉障碍的感染,导致全死亡风险约增1.5倍。他们认为,阐明准确机制仍需要进一步的研究。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-408.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.medscape.com%2Fthumbnail_library%2Fdt_210107_anosmia_loss_of_smell_800x450.jpg&amp;imgrefurl=https%3A%2F%2Fwww.medscape.com%2Fviewarticle%2F972005&amp;tbnid=tTwv_po8k7WSSM&amp;vet=10CAkQMyjMAWoXChMI4Jivoomi9wIV)
+嗅觉障碍的罹患率很高,全年龄为19～24%,65～80岁超过50%,80岁以上80%。嗅觉障碍与神经退化、心血管疾病、营养障碍、免疫障碍等并发症有关,但与死亡的流行病学关联,结果不一致。
 
-信息来源：
- [ワクチン4回目、高齢者ら限定　接種対象、持病ある人も（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a1b42b48cb71b8ea77ddb69f9059d32308d3a2af)
+从数据库中提取了2021年4月13日前发表的相关研究。通过系统审查和元分析,探讨了18岁以上的嗅觉障碍患者与全死亡的关联,寻求危险比(HR) 研究汇集风险依据进行了复杂的统计学处理，全死亡风险上升52%。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+研究团队又进行了1项反向观察研究和10项积极观察研究共2万1,601例系统审查。平均年龄为50～81岁,北美7件,欧洲2件,澳大利亚和中国各1件研究。10件偏差风险低,剩下的1件被判定为中等度的偏差风险。即使排除了这1件事,结论也没有改变。
 
+11件中的9件纳入了元分析。在汇集后的数据中,嗅觉障碍与全死亡风险的显著上升有关(HR 1.52、95%CI 1.28～1.80)。 虽然各项研究之间的异质性很高(I2=82%),但根据元回归分析,异质性的91.3%是由于平均跟踪时间越长关系越弱。11件中有10件在嗅觉障碍的评价上使用客观指标,1件使用自我报告,但效果大小是同等的。通过trim-and-fill修正和Egger检定审查出偏差后,嗅觉障碍和死亡风险的关联也得以维持。总体证据的质量是中等的。
+
+Pong先生说:“据我们所知,关于嗅觉障碍与死亡的流行病学关联的系统性审查和元分析是第一次。嗅觉障碍暗示了与全死亡有关,可以成为健康度和老化的标记。虽然这次的研究不能确定因果关系。但是,附言说“要确立背景机制和干预的范围,需要进一步的研究”。 另外,关于伴随新型冠状病毒感染(COVID-19)的嗅觉障碍,“短期观察与死亡率下降有关,但长期关联目前不明”。
+
+信息来源：[嗅覚障害で全死亡リスク上昇](https://medical-tribune.co.jp/news/2022/0419545323/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220420)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

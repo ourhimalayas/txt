@@ -2,24 +2,36 @@
 ---
 
 
-## 樱花FM┃日媒把习太阳的所为所言拿来当笑话报道
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2379149/)
+## 中共疫情及管控措施重创境内旅游业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379279/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2459.png)
-4月14日朝日电视新闻消息：中共国每天感染中共病毒(新冠病毒Covid-19)的人数接近3万人，创下历史新高。习近平强调，“必须坚持清零政策”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-13日，中共国大陆创纪录的29,317人被确认感染。其中，90%被确诊为无症状感染。在上海、长春等地封锁继续进行的情况下，习近平强调，必须在“克服大意和厌战情绪，坚持科学和精确的清零政策的前提下，增强对变异病毒的应对能力。”
+整理/编辑：围剿维尼熊
 
-“同时，还要提高认识，考虑到实施严厉管控措施带来的负面影响，必须最大限度地减少对经济和社会发展的影响。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/031D8A5A-8CBC-426A-94C6-9A9D35BCC1C4.jpg)图片来源：百家号
 
-简直是国耻！这明摆着就是日媒把习太阳的所为所言拿来当笑话报道啊！
 
-文字版原文：[日媒把习太阳的所为所言拿来当笑话报道](https://gnews.org/zh-hans/2345635/)
+根据美国之音4月19日报道，随着奥密克戎变异株疫情的蔓延以及中国政府推出严厉的“清零”政策，中国国内旅游业持续遭受重创，一些严重依赖旅游收入的省市收入暴跌。
 
-*编辑：东京樱花团/小老虎
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+随着奥密克戎变异株的广泛传播，最近几个月旅游业更是雪上加霜，出现了疫情爆发以来最糟糕的情况。与新冠病毒疫情相关的封城、跨省旅行禁令、频繁的大规模核酸检测等封控措施，令旅游业的暴跌一直持续至今。
+
+路透社援引一位经济学家的分析说，如果端午节假期，跨省旅游仍被禁止的话，那全年的旅游及相关的消费将陷入混乱。如果旅游业的封冻不解除，对GDP的贡献将减少至少0.5%。
+
+另外一个人们不愿出行的因素是航班锐减和随意取消。
+
+官方数据还显示，今年清明节假期，中国旅游景点的跨省游客只占5%。
+
+参考链接：[严厉的疫情防控重创中国旅游业 各地自救鼓励省内旅游](https://www.voachinese.com/a/as-china-s-travel-chill-deepens-tourist-starved-regions-struggle-to-get-by-041922/6535939.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
