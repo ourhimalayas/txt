@@ -17,6 +17,41 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 2:02 AM (UTC)`
+
+2022.04.19  新中国联邦 | 喜财经  粮食危机各国端倪；战争最后的较量是金钱
+![img](https://media.gettr.com/group16/origin/2022/04/20/01/231fc08a-3672-3b68-bed2-4c743fc82cb8/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/20/2022 2:02 AM (UTC)`
+
+4/19/2022 【419 5th Anniversary】 Most of those who were tested positive for COVID-19 in Shanghai were due to the adverse reactions to the COVID vaccines. A Fellow fighter, an insider of the CCP’s system, revealed the CCP had gone so insane that it would implement a massive lockdown and test the limits of what people can tolerate. And the CCP would also take the opportunity to get rid of some older adults. Just having food and water is not enough to get through it.<br/><br/>4/19/2022【419五周年】上海绝大多数人核酸检测呈阳性是疫苗反应造成的。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这可不光是有粮食有水就行的！<br/>
+![img](https://media.gettr.com/group7/getter/2022/04/20/02/e461f0e1-e924-d92d-7730-96ac795c575d/out.jpg)
+
+---
+
+`@miles 4/20/2022 2:00 AM (UTC)`
+
+4/19/2022 【419 5th Anniversary】 According to the latest data, the number of total followers of mine on the Internet is 193 million. Only the New Federal State of China and I can have so many followers, and this is what the US president can’t even achieve. Think about what the number will be when all the Chinese people wake up.<br/><br/>4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字<br/>
+![img](https://media.gettr.com/group25/getter/2022/04/20/02/40a77006-e5a8-1865-8e87-a2386a5f1302/out.jpg)
+
+---
+
+`@miles 4/20/2022 1:58 AM (UTC)`
+
+4/19/2022 【419 5th Anniversary】 April 19, 2017, is absolutely the real beginning of the Whistleblowers’ Movement. We have proved over the five years that we respect women and love our mothers. 70% of the fellow fighters of the Whistleblowers’ Movement are females, who have set a new image of the females of the new China in the world and will be the most wealthy, the most powerful, and the most influential. The past five years are the most spectacular years that we have spent together with all the conscientious Chinese.<br/><br/>4/19/2022【419五周年】419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人；过去的5年是我们和中国有良知的人度过的最最伟大的5年！<br/>
+![img](https://media.gettr.com/group18/getter/2022/04/20/00/e29ded87-5243-b171-aebc-ede88e76d135/out.jpg)
+
+---
+
+`@miles 4/20/2022 1:56 AM (UTC)`
+
+4/19/2022 【419 5th Anniversary】 Teng Wensheng and Wang Huning proposed "the next 30 years of the CCP" when Xi was still Vice President. At that time, Xi wanted to turn Communist China into a maritime power and a labor exporting country. He wants to obtain the West’s technologies by stealing, robbing, and deceiving the Western enterprises and to take down the US dollar such that the CCP can lead the world!<br/><br/>4/19/2022【419五周年】滕文生和王沪宁在习还是副主席的时候就提出"中共未来30年"，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界<br/>
+![img](https://media.gettr.com/group12/getter/2022/04/20/01/2b6d46d5-bc6e-d54b-b6b1-b73a65037cb1/out.jpg)
+
+---
+
 `@miles 4/20/2022 1:52 AM (UTC)`
 
 【419 5th Anniversary】Mr. Miles Guo reveals his conversation with Ye Jianming and concludes that looking back, if he made one single mistake, he and the Whistleblower Movement would be destroyed by the CCP.<br/><br/>【419五周年】郭先生爆料叶简明与他的接触过程，并总结一路走来只要有一件事做错，就会被共产党灭掉。<br/><br/>
@@ -117,43 +152,6 @@
 `@miles 4/19/2022 3:51 PM (UTC)`
 
 04/19/2022 on the 1st day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 23 countries Top Music Video Charts <br/>No.1 🥇 on 24 countries Pop Music Video Charts <br/>Miracle continuous……. 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in 🇭🇰 , USA 🇺🇸, UAE 🇦🇪, Macau 🇲🇴, Taiwan 🇹🇼, Singapore 🇸🇬, Malaysia 🇲🇾, New Zealand 🇳🇿, Australia 🇦🇺, Spain 🇪🇸, Netherlands 🇳🇱, Germany 🇩🇪, France 🇫🇷, Hungary 🇭🇺, Canada 🇨🇦, Japan 🇯🇵, Sweden 🇸🇪, UK 🇬🇧, Italy 🇮🇹, Thailand 🇹🇭, Cambodia 🇰🇭, Indonesia 🇮🇩, Vietnam 🇻🇳, Greece 🇬🇷 <br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2374623/
-
----
-
-`@miles 4/19/2022 3:33 PM (UTC)`
-
-【419 5th Anniversary】Mr. Miles Guo: 419 is the most important day to Whistleblowers’ Movement & the NFSC, the most taboo day for the Communist Party; many fellow fighters came together because of the 419 event, determined to take down the Chinese Communist Party!<br/><br/>【419五周年】郭文贵先生：419是爆料革命、新中国联邦最重要的日子，是共产党最忌讳的日子；很多战友因419结缘走到一起，立志铲除中国共产党！<br/><br/>
-![img](https://media.gettr.com/group8/getter/2022/04/19/15/30337489-19e0-f2d7-7cf6-7b2680f2554c/out.jpg)
-
----
-
-`@miles 4/19/2022 1:03 PM (UTC)`
-
-【Ukraine Rescue】04/18/2022 A volunteer from South Carolina, USA, with World Central Kitchen loves NFSC’s coffee. He says the tent of the NFSC is like a home base there, and the NFSC’s service is impeccable.<br/><br/>【乌克兰救援】04/18/2022来自美国南卡罗莱纳州的“世界厨房”的志愿者喜爱新中国联邦的咖啡。他说新中国联邦的帐篷就像营地的大本营，那里的工作无可挑剔。
-![img](https://media.gettr.com/group32/getter/2022/04/19/13/aaa47553-f49b-416f-ea95-6795169de05c/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 4/19/2022 12:41 PM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢MR. MILES GUO'S LIVE BROADCAST on “419 VOA” 5TH ANNIVERSARY
-![img](https://media.gettr.com/group23/origin/2022/04/19/12/13fcd4bf-d580-9d01-d78b-70481b8eadc0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/19/2022 12:47 PM (UTC)`
-
-419五周年专场<br/>霹雳一声断播门<br/>文贵爆料惊鬼神<br/>五载星火燎原势<br/>喜马拉雅再昆仑
-![img](https://media.gettr.com/group29/origin/2022/04/19/12/43f0b6c5-feeb-c645-dabc-27d6da51d773/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/19/2022 12:19 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月18日第45天当日救援统计：<br/>Medyka救援站接待：约203人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12692人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 45 - Date: April 18, 2022 :<br/>Medyka Rescue Station Reception: about 203 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12692 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group9/getter/2022/04/19/12/22e752ba-3b5d-b95d-ef10-b23e1e723984/7f4ebf63b56da14f48f855097eff55d1.jpg)
 
 ---
 
