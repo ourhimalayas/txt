@@ -2,41 +2,22 @@
 ---
 
 
-## 有声|泽连斯基与国际货币基金组织讨论乌克兰重建
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2379960/)
+## 秘翻在线：北京银行只挂名不出资导致京医通停运
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2380011/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月17日，乌克兰总统泽连斯基表示，他与国际货币基金组织总裁格奥尔基耶娃进行了交谈，讨论了乌克兰的金融稳定和战后重建问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SwUjoTWlt9Frdwqj1YE8aIyQKHyds1vChqM-m4ajPps.jpeg)西网
-据世界银行上周发布的报告，受战争影响，乌克兰今年的国内生产总值预计将下降 45.1%，如果战争持续，损失还会有所增加。
+**撰稿：葛大饼**
 
-泽连斯基表示，他和格奥尔基耶娃已经有了明确的合作计划，和对未来的展望，他相信国际货币基金组织和乌克兰之间的合作将取得丰硕成果。格奥尔基耶娃对推文进行了积极回应，并称乌克兰盟友持续的经济支持将为重建工作奠定基础。
+**责编：人间四月**
 
-另外，乌克兰总理什米加尔早些时候表示，他将出席本周在华盛顿举行的国际货币基金组织和世界银行的会议，为乌克兰寻求更多的财政援助。
+2022年4月13日北京怡和春天有限公司发布了一则公告：京医通线上系统将于2022年4月20日正式停运。京医通平台包括积水潭医院、北京友谊医院等三甲医院在内的29家北京市市属医院。京医通平台服务涵盖：挂号、取号、缴费、打印检验报告、查询检验报告、在线导诊咨询、体检预约等，不但极大方便北京的患者，对于外地患者更是非常重要，仅2018年外地挂号量就达590万。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/77-2.jpg)
+据悉北京银行作为出资方却一再拒绝履行出资义务，北京怡和春天只好独自负担了整个项目数亿元开支长达七年之久，导致公司弹尽粮绝，虽然公司和政府以及北京银行都反应过困境，但目前没有任何进展。在不堪重负之下，公司只能遗憾发布公告，停运京医通线上系统。在发文截稿时间为止，由于卫健委出面协调，该系统将在20日暂时继续运营，但是双方均未披露出资纠纷的原因。
+
+郭文贵先生曾爆料，孙立军被抓后，又抓了北京银行的闫冰竹，而刘彦怕平的女儿就是北京银行的总会计师，是闫冰竹的最好的朋友，闫冰竹被抓后交代了很多事，北京银行是一个大雷。
+
+中共国就没有一个不是雷的银行和企业。
 
 
-
-
-
-文字版原文：[泽连斯基与国际货币基金组织讨论乌克兰重建](https://gnews.org/zh-hans/2375343/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 2:26 PM (UTC)`
+
+【419 5th anniversary】04/19/2022 Mr. Miles Guo is not optimistic about Taiwan's defensive capabilities: everyone is counting on the US to come to their rescue, fearing for their lives; lack of experience in real combat and inability to counter a saturated attack from the CCP; internal corruption and even the purchasing of drones produced by the CCP. The people of Taiwan need to be mentally prepared.<br/><br/>【419五周年】04/19/2022 郭文贵先生对台湾的防御能力毫不乐观：所有人都指望美国前来解救，贪生怕死；缺乏实战经验，无力对抗来自中共的饱和性进攻；内部腐败，甚至购买产自中共的无人机。台湾人民需要做好心理准备。<br/>
+![img](https://media.gettr.com/group25/getter/2022/04/20/14/a64145fe-0ae8-7f21-457c-d9113c0a9f84/out.jpg)
+
+---
+
 `@miles 4/20/2022 2:04 PM (UTC)`
 
 <br/>【419 5th anniversary】04/19/2022 The CCP will not be able to shirk its responsibility for a series of crimes such as the vaccine, the virus, the Hong Kong humanitarian disaster, the Xinjiang massacre, etc. The world will surely go after them. And the NFSC will definitely win the ultimate victory and shine on the world stage.<br/><br/>【419五周年】04/19/2022 中国共产党将无法推脱掉疫苗、病毒、香港人道灾难、新疆大屠杀等一系列罪行的责任，全世界最终一定会跟它算账的。而新中国联邦必将获得最终胜利，闪亮登上世界舞台。
@@ -147,13 +154,6 @@
 
 4/19/2022 【419 5th Anniversary】 Most of those who were tested positive for COVID-19 in Shanghai were due to the adverse reactions to the COVID vaccines. A Fellow fighter, an insider of the CCP’s system, revealed the CCP had gone so insane that it would implement a massive lockdown and test the limits of what people can tolerate. And the CCP would also take the opportunity to get rid of some older adults. Just having food and water is not enough to get through it.<br/><br/>4/19/2022【419五周年】上海绝大多数人核酸检测呈阳性是疫苗反应造成的。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这可不光是有粮食有水就行的！<br/>
 ![img](https://media.gettr.com/group7/getter/2022/04/20/02/e461f0e1-e924-d92d-7730-96ac795c575d/out.jpg)
-
----
-
-`@miles 4/20/2022 2:00 AM (UTC)`
-
-4/19/2022 【419 5th Anniversary】 According to the latest data, the number of total followers of mine on the Internet is 193 million. Only the New Federal State of China and I can have so many followers, and this is what the US president can’t even achieve. Think about what the number will be when all the Chinese people wake up.<br/><br/>4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字<br/>
-![img](https://media.gettr.com/group25/getter/2022/04/20/02/40a77006-e5a8-1865-8e87-a2386a5f1302/out.jpg)
 
 ---
 

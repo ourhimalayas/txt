@@ -2,28 +2,48 @@
 ---
 
 
-## 中国人吃草的日子恐怕开始了
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380217/)
+## 战友日常之-419五周年
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2380321/)
 
-**撰稿：日本东京方舟农场  胖小哥**
+作者：纽约香草山设计部 – 蜂鸟
 
-随著中共在国内国外的环境趋向恶劣，包括计划经济与供销社在内多个已经被历史淘汰的政治经济制度开始借尸还魂。4月12日中共中央、国务院发布《关于加快建设全国统一大市场的意见》，19日网络传出视频指，北京一家供销社已经开始营业。人们担忧说，中国人吃草的日子恐怕开始了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/未标题-1-4.jpg)图片源自网络视频截图
 
-网民起底发现，这家供销社的地址在北京朝阳区东坝红松园小区。虽然供销社从没彻底消失，但这么正式的走向前台，还是非常罕见。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-供销社是标志性的计划经济产物。现在人们还记得，当年毛泽东一夜之间就完成了“公私合营”，上海市长陈毅曾逼得近千资本家及家属跳楼，他每晚坐在沙发上喝著茶听取秘书汇报时，总要悠闲地问上一句：“今天又有多少『空降兵』啊？”
 
-海外网友惊讶表示，这种模式居然不是从三、四线城市启动，“万万没想到是北京”。很快有人透露，其实在河北省也有小区门口出现了“供销社便利店”的牌子。
 
-有人担心说：“以后生活必须品、米、面、油等应该统购统销了…人民公社都会恢复，好日子真的要回来了！”
 
-参考链接：
-[中国人吃草的日子恐怕开始了 – 万维读者网 (creaders.net)](https://news.creaders.net/china/2022/04/19/2474854.html)
 
-总编：老孙
-校对发布：爱放飞
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/39419-scaled.jpg)
+* * *
+
+
+
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-42.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

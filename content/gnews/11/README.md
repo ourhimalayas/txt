@@ -2,43 +2,27 @@
 ---
 
 
-## 有声|欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2380240/)
+## 文贵先生“不反习”的智慧
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380325/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台湾中央社4月18日的报道，自从俄军2月24日入侵乌克兰之后，各个国家的大使馆从基辅迁移。但在俄军撤离基辅周围和乌克兰北部后，欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-1-2.jpg)
-意大利驻基辅的大使馆18日重新开放，意大利将驻基辅外交官转移到乌西城市利维夫。
+作者：加拿大温哥华扬帆农场-晨熹
 
-西班牙总理桑切斯在接受Antena3电视网采访时指出，将在不久之后重新开放西班牙驻乌克兰基辅的大使馆。西班牙使馆人员先前迁移至波兰。
-
-土耳其一度将驻乌克兰大使馆迁移至靠近罗马尼亚边界的车尼夫契，现已迁回基辅。
-
-法国上周宣布，驻乌克兰大使馆将从利维夫迁回基辅。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2484.png)
 
 
+据文贵先生在4月19日美国之音断播五周年直播中透露，最初提出“郭七条”中“不反习”最重要的原因：不反习，是要灭掉习！
 
+文贵先生还透露自己曾经和习近平本人有过很多次接触，对其家人都很熟悉，对习本人的个性也非常了解。不灭习，习会灭掉全世界，会灭掉全中国人！
 
+断播门后，文贵先生提出了以“反对以黑治国，反对以警治国，反对以贪反贪，反对以黑反贪；不反国家，不反民族，不反习主席”为内容的“郭七条”，一度曾饱受争议。
 
-文字版原文：[欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆](https://gnews.org/zh-hans/2374512/)
+五年后事实再次验证，文贵先生“郭七条”蕴藏的大智慧：不仅成功救出家人，而且成功离间了习近平和王岐山、孟建柱以及和上海帮之间的关系。加大他们之间的互相怀疑，利用政治角斗灭掉对手。如今只剩习近平一家独大，内外交困，“不反习，而是要灭掉习”的时机已经成熟。文贵先生揭开“郭七条”最终的秘密，也意味着五年的爆料革命已经进入到决战决胜的阶段。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+新闻来源：[https://gettr.com/streaming/p161dm5929a](https://gettr.com/streaming/p161dm5929a)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑发稿：硫酸羟氯喹64
 
  
 

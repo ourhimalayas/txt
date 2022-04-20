@@ -2,35 +2,26 @@
 ---
 
 
-## 俄罗斯宣布对马斯克的星链卫星发动太空战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379312/)
+## 视频|419断播门事件五周年
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2379523/)
 
-#### 【雅典娜观察】，紧贴时代脉搏
+制作：香草山视频部
 
-翻译/编辑：文泓
+今天是2022年4月19日，五年前的今天，在万众瞩目下，郭文贵先生接受了美国之音的采访。在预计三小时的直播专访中，郭先生本打算抛出关于中国共产党的重磅丑闻。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2467.png)图片来源：Republic World & 雅典娜设计组
+值得关注的是，就在直播的前一天，也就是2017年4月18日，时任国际刑警组织主席孟宏伟向郭先生发出红色通缉令，这意味着，第二天就要接受美国之音直播专访的郭文贵先生变成了一名通缉犯。
 
+尽管美国之音仍然按原定计划直播，但当节目进行到大约1小时20分钟时，镜头突然转向另一名主持人，比划出手指划过喉咙的动作后，直播中断。郭先生第二天在推特上解释道，“断播是中共外交部和情报部安插在美国之音的联络人，以多种非正当手段屡次施压和破坏所导致的。”但美国之音方面宣称断播是因为停电。
 
-近日，马斯克Space X的星链(Starlink)互联网卫星激怒了俄罗斯，因为据报道，星链卫星被用来引导和转移黑海舰队旗舰巡洋舰莫斯科号的火力（攻击无人机），并最终导致其沉没。俄总参谋部的新数据揭示了这一点。
+断播门后，中共官方利用境内外各种媒体对郭文贵先生发起了污名化的宣传攻势。北京《新京报》网站发表了关于郭文贵的长篇调查报道，其中引述了”独家获得”的前国安部副部长马建描述自己跟郭文贵之间经历的钱权交易；YouTube 上也同时出现一条与之呼应的实况影片。共产党用史无前例的猛烈攻势打击郭文贵先生。
 
-总理梅德韦杰夫下令摧毁位于俄罗斯联邦领土、军事特别行动区和黑海盆地上空的星链卫星，以确保所有参与对乌战争作战单位的安全。
+不过，随着事件发酵，419断播门的后续发展明显超出了共产党的控制范围，不仅美国国会启动了相关调查，并开始审视对华政策，对华立场是否该作出些根本性转变，MilesGuo这个名字也开始走入美国乃至全世界人的视野，同時，让无数的海内外华人找到了集结灭共的正确方向。
 
-他进一步表示，俄罗斯无意将外层空间军事化，但也不会允许其他国家这样做，这表明俄罗斯将对任何试图将外层空间军事化的人采取行动。梅德韦杰夫表示，黑海舰队司令奥西波夫四世将被免职。
+发稿：Daxia
 
-另据《伦敦时报》报道，早些时候，埃隆·马斯克的星链卫星技术正在协助一支乌克兰精英无人机部队（Aerorozvidka）摧毁俄罗斯装备，这支部队专门从事空中侦察和无人机战争，使用配备红外摄像机的无人机在夜间观察俄罗斯军事装备，如坦克和指挥船。
-
-“莫斯科号”的损失对俄罗斯军方来说是一个严重的打击，因为它是俄黑海舰队旗舰。莫斯科是一个浮动防空中心，拥有三层强大的防空武器，包括64枚远程S-300F导弹、40枚中程OSA-AM导弹和6个AK-630近距离武器系统。现在俄军在黑海的防空系统中留下了很大漏洞，敖德萨附近海域作业的所有俄罗斯船只均暴露。
-
-原文链接： [Russia announces space war on Elon Musk’s Starlink satellites, accepts Moskva was attacked (republicworld.com)](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-announces-space-war-on-elon-musks-starlink-satellites-accepts-moskva-was-attacked-articleshow.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
