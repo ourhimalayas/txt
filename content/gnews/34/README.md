@@ -2,36 +2,35 @@
 ---
 
 
-## 台积电为美国新工厂筹集35亿美元债券
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377522/)
+## 上海警方让死于中共病毒老年患者的家属闭嘴
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2377534/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜观察】和您一起洞察世界
 
-翻译/编辑：小红帽
+翻译/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1617359183346071.jpg)图片来源：www.caixinglobal.com
-
-
-根据CNA 4月20日报道，根据一份条款清单显示，台湾芯片公司台积电为其在美国亚利桑那州的新工厂筹集了35亿美元的债券。
-
-台积电是苹果公司的主要供应商，也是全球最大的芯片代工制造商。去年在亚利桑那州的工厂开始建设，该公司计划斥资120亿美元建设一家计算机芯片工厂。
-早在3月底，有设备供应商消息传出，台积电美国亚利桑那州工厂将于明年第一季度开始进驻设备，主要目标是N5P（升级版5nm）和N4（4nm）制程，预计将于2024年上半年量产，第一阶段月产能约2万片。
-
-业内指出，台积电N5制程量产快两年，N5P制程比N5制程性能提升5%，功耗下降10%，而N4则是N5的另一升级版，进一步提升性能、功耗和密度，美国工厂导入这两大制程更可满足客户需求。
-
-资料来源：
-
-1. [Taiwan’s TSMC raises $3.5 billion in bonds for new US plant](https://www.channelnewsasia.com/business/taiwans-tsmc-raises-35-billion-bonds-new-us-plant-2634981)
-2. [传台积电美国工厂明年Q1进驻设备N5P、N4制程量产时程不变](https://www.laoyaoba.com/n/812822)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2423.png)图片来源：Voa & 雅典娜设计组
 
 
+4月19日，据自由亚洲电台报道，封城期间上海当局让死于中共病毒的老年人家属闭嘴，因为近期奥米克戎疫情席卷了该市至少一家医院，造成的死亡人数不详。
+在浦东新区东海医院至少有27名老年人死于中共病毒，还有很多人被怀疑因工作人员和患者之间爆发疫情而死亡。
+
+一位与家属交流过的人士告诉记者，一些家庭拒绝将亲人遗体火化，而浦东网警警告，家属们不能与外国媒体交谈，否则承担法律后果。
+
+在东海医院因疫情入院后死亡的几个老年人家庭称，该医院已经报告了死于这种疾病的患者人数有27人。根据家属们的说法，那里仍在发生死亡事件。
+
+由于医院人手不足，至少有80%的工作人员被派往其他地方进行疾病控制和预防工作，老人认为在那里没有得到适当的照顾和治疗。
+
+27人死亡的数字不包括死于中共病毒以外的其他原因的人。大量感染病毒的老年患者被送往临时方舱医院，有些人甚至可能因忽视或饥饿而死亡。
+
+原文链接：[Shanghai police warn bereaved families of elderly COVID-19 patients not to speak out — Radio Free Asia (rfa.org)](https://www.rfa.org/english/news/china/elderly-04192022142219.html)
 发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

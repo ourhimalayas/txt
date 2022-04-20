@@ -2,40 +2,27 @@
 ---
 
 
-## 美国“人民车队”自由抗议，加拿大“自由车队”遭秋后算账
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2377801/)
+## 台海危机｜报多区遭解放军导弹击中 台湾华视道歉称失误所致
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2377850/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-3-c786b65d55.jpg)图片来源：卫报
-根据《华盛顿观察家报》4月19日的报道，为抗议中共病毒（COVID-19）的系列强制政策，“人民车队（People’s Convoy）”团体本周开始在加州国会大厦举行为期三天的抗议活动。
+**图/文｜CP **
+**发布时间｜20/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/台海危機｜報多區遭解放軍導彈擊中-台灣華視道歉稱失誤所致.jpg)
 
-周一的时候，有100多名示威者来到加州萨克拉门托（Sacramento），周二也有类似规模的人群出现，呼吁该州取消剩余的中共病毒相关限制措施，并要求在未来避免颁布更多的强制规定。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-“人民车队”组织者迈克·兰迪斯（Mike Landis）说：“重要的是，没有人应该被迫做他们不想做的事情。”
 
-抗议活动中，示威者在州议会大厦的台阶上高呼，而另一些与会者在附近的公路上开车鸣笛。
+台湾华视新闻今早（20日）快讯画面上，突然出现“新北市遭共军导弹击中”、“台北港舰艇爆炸、涉事船舶损毁”、“板桥车站疑似遭特工纵火施放爆裂物”等涉及台海战争的内容，连串消息一度引发社会恐慌，令人误以为两岸战争就此打响。
 
-根据报道，在这次抗议之前，该组织上周在洛杉矶市政厅外举行了类似的抗议活动，以抗议当地中共病毒相关强制规定。
+事后华视新闻紧急发布道歉声明，澄清相关新闻快讯内容，是为新北消防局防灾演练而录制的，因设定错误而播出，对造成社会恐慌郑重道歉，将会展开内部调查，并惩罚相关工作人员。
 
-目前，加利福尼亚州仍有几项中共病毒有关的强制政策。加文·纽森(Gavin Newsom)在2020年3月发布的紧急状态仍然有效，他的一些与中共病毒大流行病有关的行政命令也是如此。然而，据广播电台CapRadio报道，2月份，纽森宣布他将开始撤销其中的一些命令，其中31项命令将于6月31日到期。
+台湾国防部长邱国正表示，他看到有关讯息时亦感惊讶，指军方已经第一时间查证并作出回应，情监侦系统畅通。立法院国民党团则炮轰华视公然制造战争恐慌，要求台湾国家通讯传播委员会（NCC）须为事件咎责。
 
-据《萨克拉门托蜜蜂报》（Sacramento Bee）报道，在周三的车队抗议之后，本月余下的时间里没有再为车队发放许可证。
+來源｜[udn](https://stars.udn.com/star/story/10088/6252248)
 
-上个月，“人民车队”来到华盛顿特区，抗议美国各地的中共病毒相关政策。该组织从抗议加拿大中共病毒政策的“自由车队（Freedom Convoy）”中获得了灵感。
+* * *
 
-但是，据《国会山报》4月19日的文章内容，加拿大媒体报道，加拿大卡车司机“自由车队”抗议活动的组织者之一帕特·金（Pat King）遭到加拿大政府指控犯有伪证罪和妨碍司法公正罪及其他十项指控。
-
-帕特·金于2月18日被捕，2月25日被拒绝保释。
-
-对此，《大纪元时报》（Epoch Times）指出，帕特·金是最后一个被逮捕和指控的著名的加拿大抗议者。
-
-*责编：彩虹*
-
-**新闻来源**
-
-[‘People’s Convoy’ begins protests against COVID-19 rules in California](https://www.washingtonexaminer.com/news/peoples-convoy-begins-protests-against-covid-19-rules-in-california)
-
-[Canada’s ‘Freedom Convoy’ organizer charged with perjury, obstruction of justice](https://thehill.com/news/3273549-canadas-freedom-convoy-organizer-charged-with-perjury-obstruction-of-justice/)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

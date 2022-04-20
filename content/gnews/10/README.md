@@ -2,36 +2,28 @@
 ---
 
 
-## 中日财经爆|阳光城又一笔中期票据违约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2378049/)
+## 【G时新闻】加拿大违反《权利与自由宪章》最严重省份排行榜
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2378111/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月19日，阳光城集团股份有限公司公告称，“21阳光城MTN001”违反交叉保护条款未获得豁免。这是继3月15日“20阳光城MTN001”后，又一笔中期票据违约，此前阳光城称公司可动用现金已枯竭。
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据自媒体《真北方》4月17日报道，为纪念《权利和自由宪章》颁布四十周年，加拿大[宪政自由司法中心]对疫情期间违宪最严重的省份进行了排名，其中魁北克省被评为榜首。 报道称, 在过去两年中，联邦和各省政府都出现了大量严重违宪行为。尽管全国各地在疫情初期都采取了几乎相同的限制措施，但随着时间和各省对所谓“科学”的不同理解而造成了对疫情反应的巨大差异。因此导致了不同省份的加拿大人所遭受的侵害程度不尽相同。 由于实施了极权宵禁、旅行限制，疫苗护照，强制接种以及对未接种疫苗者威胁征税等，魁省获得违宪最严重的称号，而BC省因强制医护人员接种疫苗及任意关闭礼拜场所名列第二；曼省、安省、大西洋四省及阿省分列第3至6名；萨省则因今年2月就率先宣布取消疫情封锁及其相对温和的防疫政策而排名最后。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/阳光城又一笔中期票据违约.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimgcdn.yicai.com%2Fuppics%2Fimages%2F2018%2F10%2Fb07ba2dc608ad71d552f2625801130d9.jpg&amp;imgrefurl=https%3A%2F%2Fm.yicai.com%2Fnews%2F100047856.html&amp;tbnid=_7VGsMD3WvciBM&amp;vet=12ahUKEwinsIXYkaL3AhUL8hoKHb-RD8sQMygGegUIARCzAQ..i&amp;docid=Rd4zHX31S_VBwM&amp;w=640&amp;h=360&amp;q=%E9%98%B3%E5%85%89%E5%9F%8E&amp;ved=2ahUKEwinsIXYkaL3AhUL8hoKHb-RD8sQMygGegUIARCzAQ)
+盖特链接：[https://gettr.com/post/p163dlk33af](https://gettr.com/post/p163dlk33af)
 
-公告称，截至本公告出具之日，公司未能按期足额偿付“21阳光城MTN001”本息。此前，根据《阳光城集团股份有限公司2021年度第一期中期票据募集说明书》中约定，“21阳光城MTN001”应于持有人会议表决截止日次一日（即2022年4月19日）立即到期应付。
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-资料显示，“21阳光城MTN001”发行金额5.8亿元人民币，当期利率6.92%。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-就在上个月3月16日，建行公告，阳光城规模6亿的中期票据“20阳光城MTN001”3月15日到期应付，但发行人未能按期足额支付利息或兑付本金，构成实质性违约。同一天，公司控股股东阳光集团公告，存续金额1.06亿美元的境外债券“YANGOG 12.5 02/20/22”本息实质违约，存续金额3亿美金的“YANGOG 12.5 01/04/24”利息实质违约，应付利息金额1875万美元。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-未来一年内，阳光城几乎每个月都有债券到期，控股股东阳光集团情况也类似，而且到期日更为集中。此前阳光城在回复深交所问询函中称，公司可动用资金占账面资金比例不足1%，现金已经枯竭。
-
-消息来源:
-[未能按期足额偿付本息 阳光城一笔中期票据违约](https://cj.sina.com.cn/articles/view/3164957712/bca56c1002001wlkn)
-[太惨！千亿房企境内境外同时爆雷](https://www.sohu.com/a/530432299_465270)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
