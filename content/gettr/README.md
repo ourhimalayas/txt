@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 8:44 PM (UTC)`
+
+A Volunteer from France likes our vest of “Take down the Chinese Communist Party” and supports the New Federal State of China. <br/><br/>一名来自法国的志愿者喜欢我们“消灭中共”的背心并且支持新中国联邦。<br/><br/>#ukrainerescue  #nfsc新中国联邦  #nfscukrainerescue
+![img](https://media.gettr.com/group27/origin/2022/04/20/20/72bfea8e-cea8-32bc-758d-231f6b16246e/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@globalalliance 4/19/2022 8:45 PM (UTC)`
@@ -147,13 +154,6 @@ MILES GUO Livestream 2022-04-20
 
 【419 5th anniversary】04/19/2022 Mr. Miles Guo and the Whistleblowers’ Movement revealed the collusion between Terry Guo and Ko Wen-je and others with the Chinese Communist Party, which prevented the further fall of Taiwan.<br/><br/>【419五周年】04/19/2022 郭文贵先生及爆料革命揭示了郭台铭、柯文哲等人同中共的勾结，避免了台湾的进一步沦陷。<br/>
 ![img](https://media.gettr.com/group20/getter/2022/04/20/11/b52493e4-f0fe-db2a-0a21-40dcee362fa6/out.jpg)
-
----
-
-`@miles 4/20/2022 10:59 AM (UTC)`
-
-2022.04.20  新中国联邦 | 军情室  烏東頓巴斯戰役打響，北約最新援烏武器，台灣購買中共無人機
-![img](https://media.gettr.com/group36/origin/2022/04/20/10/1689865c-6c49-488a-9df3-2dc6f459bfcd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
