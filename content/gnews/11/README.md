@@ -2,12 +2,29 @@
 ---
 
 
-## 4月20日乌克兰救援行动（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2381887/)
+## 加拿大央行利用量子计算确认数字货币应用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381910/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9FAF0A0C-3AC7-43E5-9380-60FE382FFA2A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/122790E7-8B48-453A-A686-CD2D0064F2B6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7E1711CB-0147-4B5E-80C1-C8B6DB1FBC35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/591D80A9-D260-42E1-919D-1B0F411C478F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/48D0B954-20FB-408E-9428-613931950F9D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4EA01A1E-2300-4F14-A128-934DE0ADC3A3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/30135C78-39CF-4DD4-A4C6-EB53088DCB0C.png)
-发布：水涨船高
+作者：加拿大温哥华扬帆农场 – 活力人生
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504846851.png)图片来源：金融邮报
+
+
+据【金融邮报】4月18日报道，由于数字资产领域超出了传统计算机可以处理的范围，加拿大央行正在尝试利用量子计算以解决包括数字货币在内的一系列复杂金融问题。
+
+加拿大央行最近与量子软件公司[多元宇宙]合作，在模拟了非金融公司采用数字货币作为支付手段的各种情况之后发现：数字资产最终将与传统的银行转账和现金工具一起参与支付市场。
+
+据悉，[多元宇宙公司]使用量子计算机的“量子退火”技术，从大量潜在方案中确定最佳解决途径。由于加密货币市场的不稳定性，该技术将使中央银行能够准确预测监管的最终效果。
+
+加拿大银行多年来都在探索加密货币以及发行中央银行数字货币的可能性。为此，联邦政府将在五年内拨款 1770 万加元，用于由财政部负责的对数字加元的立法审查。同时，在研究加密货币和稳定币等数字货币的应用之外，还在需要时扩大中央银行数字货币发行的可能性。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems](https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems)
+
+
 
  
 

@@ -2,47 +2,26 @@
 ---
 
 
-## 辉瑞和FDA知道自然免疫非常有效仍“编造”疫苗数据
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2381722/)
+## 俄罗斯建立童子军
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2381702/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2501.png)图片来源: lifesitenews.com
+#### 选材/编译 ：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16504781121.png)[一名十几岁的少年女子正在利沃夫接受冲锋枪射击训练](http://Dailymail.co.uk)
+据英国明镜网4月17日报道，俄罗斯被一个人权组织指控用 “童子军” 来支援他们在乌克兰东部的军队。人权官员称，在普京的军队遭受重大损失后，他从俄罗斯爱国俱乐部强迫青少年参加入侵乌克兰的战斗
 
-生活新闻(LifeSiteNews) – 根据信息自由法 (FOIA) 诉讼，3 月 24 日和 4 月 1 日CDC发布的超过 11,000 页文件显示，COIVD mRNA 疫苗制造商辉瑞公司已经清楚地意识到天然免疫对新型冠状病毒有效，不利于年轻人，他们对实验性注射的反应更加频繁和严重，而注射对生育能力的影响是“未知的”。
+在遭受比预期的更大损失后，俄罗斯集中军力旨在东部发起新的“顿巴斯之战”。
 
-在《国会山》（The Hill）的一份报告中，记者金·艾弗森（Kim Iversen）分解了这份文件中披露的“重磅炸弹”，该文件是由一个名为公共卫生和医疗专业人员透明度 (PHMPT) 的组织获得的，该组织去年向美国食品药品监督管理局 (FDA) 提起了 FOIA 诉讼 )，要求发布在授权辉瑞-生物科技COVID 疫苗之前审查的文件。
+由俄罗斯爱国俱乐部青少年组成的 “童子军” 被要求参加战斗。这些16岁左右的轻少年将替换死、伤或俘虏的大约3万名士兵，被迫加入入侵行动。
 
-据艾弗森称，这份文件的“第一个重磅炸弹”是“自然免疫有效，辉瑞公司知道这一点。”
+乌克兰官员呼吁联合国调查俄罗斯涉嫌非法部署儿童兵的行为。人权组织称，这些轻少年被招募加入爱国俱乐部。2014年，这些被称为 “灌输中心” 的俱乐部在俄罗斯占领的乌克兰东部地区兴起。作为弘扬俄罗斯在卢甘斯克和顿涅茨克文化运动的一部分。
 
-“临床试验数据显示，以前感染过 COVID 的人与接种疫苗的人相比，结果没有差异。在有限的试验中，接种疫苗的人和以前感染过的人，都没有导致 FDA 或 CDC 定义的严重疾病，”她说。
+据说他们正在接受军事训练，并随时被送往前线。他们中的一些人已经被投入行动，并在战斗中牺牲。在乌克兰的战场上发现了俄罗斯军校学员的徽章。他们本不应该被部署到战区。
 
-“然而，与其说‘具有自然免疫力的人似乎不需要疫苗’，”艾弗森继续说，“辉瑞反而转而得出结论说，“最终疗效结果表明，[疫苗] 为有或没有先前感染过 SARS-COV2的参与者提供了针对 COVID-19 的保护。”
+俄罗斯将儿童送上战场，违反了1949年《保护平民和儿童权利日内瓦公约》规定的国际战争法和惯例。
 
-文件中的第二个启示是“[对注射的]不良反应在年轻[年龄]组中更频繁、更严重。”其中一份文件内容如下：
+*责编：白夜*
 
-与年轻组相比，老年组参与者的反应原性和不良事件通常较轻且较少发生，并且，总体上倾向于随着[疫苗]剂量的增加而不良反应增加。
-
-“因此，**55 ****岁以下的人的副作用更频繁、更严重，尽管我们知道你越年轻，你患严重 ****COVID ****的可能性就越小**，”艾弗森解释说。
-
-第三，辉瑞注射液的儿童临床试验同意书将心肌炎列为可能的不良后果，其发生率大约是先前报道的五倍。而且由于大多数这些伤害发生在年轻男性身上，当根据年龄和性别进行调整时，这一人群的风险甚至会大大增加。
-
-最后，同一份同意书还指出，“**COVID-19 疫苗对精子、妊娠、胎儿或哺乳儿童的影响尚不清楚。**”
-
-素材链接：[Documents show Pfizer, FDA ‘spun’ the vax data despite knowing natural immunity was highly effective](https://www.lifesitenews.com/news/documents-show-pfizer-fda-spun-the-vax-data-despite-knowing-natural-immunity-was-highly-effective/)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
-
+[文章来源](https://www.mirror.co.uk/news/world-news/putin-building-kids-army-after-26741075)
 
  
 
