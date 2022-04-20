@@ -21,71 +21,71 @@
 ### [俄罗斯测试新型洲际弹道导弹](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯建立童子军](/content/gnews/3/README.md)
+### [能源驱动的卢布反弹不会拯救俄罗斯](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯建立童子军](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德国将在年底前停止进口俄罗斯石油](/content/gnews/4/README.md)
+### [德国将在年底前停止进口俄罗斯石油](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（二）](/content/gnews/5/README.md)
+### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（二）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普习两魔头的结盟及其给世界带来的灾难（九）](/content/gnews/6/README.md)
+### [普习两魔头的结盟及其给世界带来的灾难（九）](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [中共屏蔽了一份在上海封城期间非正常死亡人员名单](/content/gnews/7/README.md)
+### [中共屏蔽了一份在上海封城期间非正常死亡人员名单](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（一）](/content/gnews/8/README.md)
+### [克里姆林宫内部人士对乌克兰战争造成的严重后果感到震惊（一）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第65期](/content/gnews/9/README.md)
+### [七哥说—第65期](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵视角4.19: 危墙&#8212;中国共产党](/content/gnews/10/README.md)
+### [文贵视角4.19: 危墙&#8212;中国共产党](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月17日早](/content/gnews/11/README.md)
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月17日早](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅农场有偿征集中共军政情报](/content/gnews/12/README.md)
+### [有声|喜马拉雅农场有偿征集中共军政情报](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|班农称乌克兰前线救援创造历史性瞬间](/content/gnews/13/README.md)
+### [有声|班农称乌克兰前线救援创造历史性瞬间](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中共国所犯下的错误 （二）](/content/gnews/14/README.md)
+### [中共国所犯下的错误 （二）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国和印度正在为俄罗斯入侵输血](/content/gnews/15/README.md)
+### [中共国和印度正在为俄罗斯入侵输血](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我们不能被共产党代表](/content/gnews/16/README.md)
+### [我们不能被共产党代表](/content/gnews/17/README.md)
  ` 加拿大温哥华英里农场`
 
-### [兵力不足 普京试图建立“儿童军队”](/content/gnews/17/README.md)
+### [兵力不足 普京试图建立“儿童军队”](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/18/README.md)
+### [中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [有声|习近平与沙特王储共谋独裁战略关系](/content/gnews/19/README.md)
+### [有声|习近平与沙特王储共谋独裁战略关系](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|G系列媒体平台必须坚持做正义媒体](/content/gnews/20/README.md)
+### [有声|G系列媒体平台必须坚持做正义媒体](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅币一周分析与总结（4月11日-4月17日）](/content/gnews/21/README.md)
+### [有声|喜马拉雅币一周分析与总结（4月11日-4月17日）](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|美分别与韩日举行海上联合军演](/content/gnews/22/README.md)
+### [有声|美分别与韩日举行海上联合军演](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|前国务卿蓬佩奥呼吁台湾周边国家做好准备](/content/gnews/23/README.md)
+### [有声|前国务卿蓬佩奥呼吁台湾周边国家做好准备](/content/gnews/24/README.md)
  ` MOSREC`
-
-### [桑切斯将前往基辅向泽伦斯基转达西班牙对乌克兰的支持](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [前香港政治犯指控惩教署通过去激化更生项目对抗争者进行洗脑](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
