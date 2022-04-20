@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：宗教与信仰的区别
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377367/)
+## 20220419郭文贵大直播 ：忘记新中国联邦将会失去币 失去一切
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377384/)
 
 作者：东京樱花团小视频组
 

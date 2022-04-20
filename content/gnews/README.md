@@ -15,77 +15,77 @@
 
 ---
 
-### [信仰与宗教](/content/gnews/1/README.md)
+### [共产党在七哥身上的陷害，放在任何一个人身上都被撂趴下](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [我们今天所做的灭共所有的一切，都基于实力](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [4.19,11.20，包括新闻发布会，都像核按钮一样](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [中国小城市的房地产业萧条让家庭财富受到冲击](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [信仰与宗教](/content/gnews/5/README.md)
  ` 银河勇气之星`
 
-### [美英加承诺为乌克兰提供大炮](/content/gnews/2/README.md)
+### [美英加承诺为乌克兰提供大炮](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新州密接者无需隔离，未打新冠疫苗旅客也无需酒店隔离](/content/gnews/3/README.md)
+### [新州密接者无需隔离，未打新冠疫苗旅客也无需酒店隔离](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [香港的新冠清零政策导致堆积如山的塑料垃圾](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [每日快报：俄罗斯全面发动“地狱般的”第二阶段进攻，顿巴斯战役如火如荼](/content/gnews/5/README.md)
+### [每日快报：俄罗斯全面发动“地狱般的”第二阶段进攻，顿巴斯战役如火如荼](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州取消新冠密接者隔离规定与疫苗护照](/content/gnews/6/README.md)
+### [维州取消新冠密接者隔离规定与疫苗护照](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [上海警方让死于中共病毒老年患者的家属闭嘴](/content/gnews/7/README.md)
+### [上海警方让死于中共病毒老年患者的家属闭嘴](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰称俄罗斯在乌克兰东部发动了“顿巴斯之战”](/content/gnews/8/README.md)
+### [乌克兰称俄罗斯在乌克兰东部发动了“顿巴斯之战”](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台积电为美国新工厂筹集35亿美元债券](/content/gnews/9/README.md)
+### [台积电为美国新工厂筹集35亿美元债券](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4.19断播五周年特别直播（上）](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [中日财经爆┃国际制裁导致莫斯科20万人面临失业](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [COVID-19疫苗副作用集萃(2022.4.20A) 科兴疫苗第一针后身体副作用反应明显](/content/gnews/12/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.20A) 科兴疫苗第一针后身体副作用反应明显](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【419五周年】郝董叶女侠分享身边俄罗斯人在西班牙银行账户被封、找工作被拒](/content/gnews/13/README.md)
+### [【419五周年】郝董叶女侠分享身边俄罗斯人在西班牙银行账户被封、找工作被拒](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国媒体报道中共国清零对全球经济造成巨大冲击](/content/gnews/14/README.md)
+### [美国媒体报道中共国清零对全球经济造成巨大冲击](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭先生爆料叶简明与他的接触过程，并总结一路走来只要有一件事做错，就会被共产党灭掉](/content/gnews/15/README.md)
+### [郭先生爆料叶简明与他的接触过程，并总结一路走来只要有一件事做错，就会被共产党灭掉](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID 疫苗的问题已经开始影响到常规免疫接种中](/content/gnews/16/README.md)
+### [COVID 疫苗的问题已经开始影响到常规免疫接种中](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：日本著名喜剧人说日本的病毒防控措施比中共国的好](/content/gnews/17/README.md)
+### [秘翻在线：日本著名喜剧人说日本的病毒防控措施比中共国的好](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【419五周年】04/19/2022 吴小晖必须被干掉的原因之一](/content/gnews/18/README.md)
+### [【419五周年】04/19/2022 吴小晖必须被干掉的原因之一](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医疗监管机构董事会成员面临与制药公司联系的问题](/content/gnews/19/README.md)
+### [医疗监管机构董事会成员面临与制药公司联系的问题](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [20220419郭文贵大直播 ：忘记新中国联邦将会失去币 失去一切](/content/gnews/20/README.md)
+### [20220419郭文贵大直播 ：忘记新中国联邦将会失去币 失去一切](/content/gnews/21/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220419郭文贵大直播 ：宗教与信仰的区别](/content/gnews/21/README.md)
+### [20220419郭文贵大直播 ：宗教与信仰的区别](/content/gnews/22/README.md)
  ` Tokyo Sakura Video Group`
 
-### [中国女性是民族国家的基石，未来新中国联邦人的代表形象](/content/gnews/22/README.md)
+### [七哥在国外拥有1.93亿粉丝](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃日本通货膨胀明显 日元涨势不会持续](/content/gnews/23/README.md)
+### [中日财经爆┃日本通货膨胀明显 日元涨势不会持续](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [张玉凤掌控毛泽东，习也最佩服张玉凤](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
 
 ### [【419五周年】4/19/2022郭先生回顾五年前419如何钓鱼中共专业特务龚小夏；2017年4月19日标志着文贵先生踏出江湖，脚踩所谓的国际刑警组织和美国之音、踏上云端直接干向中南坑](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
