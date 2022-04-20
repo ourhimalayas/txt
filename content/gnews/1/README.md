@@ -2,25 +2,23 @@
 ---
 
 
-## 有声｜俄罗斯第9位将领阵亡
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2379969/)
+## 视频|中共在上海的“清零政策“和封城的疯狂行为表现出的心理变态 「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2380111/)
 
-**By:秘翻新闻**
+【视频剪辑】文果
 
-***2022-04-20***
-![](https://assets.gnews.org/wp-content/uploads/2022/04/420-11.png)
-[综合外媒](https://wikiofnerds.com/another-russian-colonol-dies-in-fiery-shelling-bringing-toll-upto-ten/)4月19日报道，俄军第49防空飞弹旅指挥官葛里辛上校因为腹部遭弹片击伤，在乌克兰东部城市哈尔科夫附近身亡。这是自俄罗斯入侵乌克兰以来，俄方失去的第九名将领。
+【文案编辑】文敏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【制作团队】大直播短视频组
 
-根据乌克兰武装部队参谋总部说法，俄军在这场战争中的阵亡人数已经达到2万零600人；数天前，俄国才刚埋葬了在这场战争中失去的第8名将领。
+发稿：qiutian（邱甜）
 
-圣彼得堡市长贝格洛夫16日发布声明，指俄军第8联合兵种部队副司令佛罗洛夫少将本周稍早于战斗时死亡，16日下葬在圣彼得堡。
-
-（编译：明澈）
-
-发布:文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER-1.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

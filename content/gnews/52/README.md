@@ -2,89 +2,28 @@
 ---
 
 
-## 霍利参议员：阻止入侵就是要确保台湾拥有自卫所需的武器
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2377129/)
+## 中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377779/)
 
-**参议员霍利新闻办公室： **
-霍利参议员说，“阻止入侵就是要确保 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12·com网：霍利提出《台湾武器出口法》】
+撰稿：东京樱花团/peterwong
 
+4月20日外汇市场上，日元汇率触及129日元兑1美元，这是日元自2002年4月以来的最弱水平。由于美国的长期利率上升导致广泛的日元抛售和美元买入，预计日本和美国之间的利率差距将扩大，日元继续快速贬值。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-164.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.j-cast.com%2Fkaisha%2Fimages%2Forigin%2F2022%2F04%2Fkaisha_20220410211142.jpg&amp;imgrefurl=https%3A%2F%2Fwww.newsdirectory3.com%2Fcontinued-depreciation-of-the-yen-against-the-dollar-will-the-us-streng)
+美联储官员对加快加息步伐表现出积极态度，美国长期利率连续第三天上升。日本方面，预计日本央行的货币宽松政策将维持低利率，而日美货币政策差异使得日元更容易被抛售。
 
+日元贬值也是由于进口燃料和原材料价格飙升以及日本进口商对美元结算的需求膨胀。市场有观点认为日元兑美元可能贬值至135日元水平（证券交易策略师），投机者试图抛售日元，导致日元快速贬值。
 
-> Sen. Hawley says “deterring an invasion is ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.” [https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516492000048160773?ref_src=twsrc%5Etfw)
+美国财长耶伦与财长铃木的会晤定于20日在华盛顿举行的二十国集团财长和央行行长会议上举行。日方也想讨论汇率走势，遏制突发波动。
 
+日元兑欧元、英镑、澳元等货币正在贬值，日元贬值的趋势更加突出。20日，日元兑欧元汇率为1欧元兑 139日元，为2015年6月以来约7年来的最低水平。
 
+消息来源:
 
-**参议员霍利新闻办公室： **
-霍利参议员提出的《台湾武器出口法》，将 “帮助美国尽快地将这些武器运往 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE)”。 【附参议院官网：霍利提出《台湾武器出口法》】
+[２０年ぶり１ドル＝１２９円台…日米金利差拡大で円売り加速](https://www.yomiuri.co.jp/economy/20220420-OYT1T50085/)
 
-
-
-> The legislation Senator Hawley introduced, the Taiwan Weapons Exports Act, will “help the United States get these weapons to Taiwan as quickly as possible.”[https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516511798471671809?ref_src=twsrc%5Etfw)
-
-
-
-**参议员霍利媒体办公室： **
-参议员霍利陈述，“…现在把快速武器进口到 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 实在太重要了，[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 仍有时间调整国防，并震慑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的入侵。“【转华盛顿信使，霍利说美国必须武装台湾，在一切都太迟之前】
-
-
-
-> Senator Hawley states “…it is so important to fast-track weapons to Taiwan now while Taiwan still has time to marshal its defenses and deter a Chinese invasion.” [https://t.co/fEv61w8NfP](https://t.co/fEv61w8NfP)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516412882480775169?ref_src=twsrc%5Etfw)
-
-
-
-**前国务次卿基思·克拉奇： **
-在 [@SXMPOTUS](https://gettr.com/user/SXMPOTUS) 节目中，我和 [@SteveScully](https://gettr.com/user/SteveScully) 分享了一些从俄乌战争中可以应用到 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 和 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的教训。首先是侵略者在袭击下如何让人们失去合法性。同时，还需要有速度，有力量，能承诺的盟友。
-
-
-
-> On [@SXMPOTUS](https://twitter.com/SXMPOTUS?ref_src=twsrc%5Etfw) with [@SteveScully](https://twitter.com/SteveScully?ref_src=twsrc%5Etfw) I shared some lessons from [#UkraineRussiawar](https://twitter.com/hashtag/UkraineRussiawar?src=hash&amp;ref_src=twsrc%5Etfw) that can be applied to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) and [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw). First is how the aggressor delegitimizes the people under attack. There is also a need for speed, for strength, and committed allies. [https://t.co/G34o3izfZ0](https://t.co/G34o3izfZ0) [pic.twitter.com/qWvZjT4OxM](https://t.co/qWvZjT4OxM)
-> — Keith J. Krach (@KeithJKrach) [April 19, 2022](https://twitter.com/KeithJKrach/status/1516408776986877953?ref_src=twsrc%5Etfw)
-
-
-
-**众议员吉姆.班克斯： **
-这就是 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) [#CCP](https://gettr.com/hashtag/%23CCP) 如何回应（拜登政府的）软弱 【转路透社报道：中（共）国高级外交官称中（共）国将加强与俄罗斯的“弹性”战略协调】
-
-
-
-> This is how the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) responds to WEAKNESS [https://t.co/SZ4rPoIBas](https://t.co/SZ4rPoIBas)
-> — Jim Banks (@RepJimBanks) [April 19, 2022](https://twitter.com/RepJimBanks/status/1516457687931838464?ref_src=twsrc%5Etfw)
-
-
-
-**中华民国外交部: **
-我们衷心感谢美国的友谊和坚如磐石的支持。台湾**🇹🇼**将继续与其他力量合作，捍卫自由、民主和尊重人权等共同价值观，同时维护印太地区和世界各地基于规则的秩序。 【转美国务院发言人推文：大意是祝贺台湾民权活动家李明哲在中共国获释】
-
-
-
-> We sincerely thank the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw)🇺🇸 for its friendship & rock-solid support. [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼 will keep working with fellow forces for good in defending shared values like freedom, democracy & respect for human rights while upholding rules-based order in the [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) & around the world. [https://t.co/5UULE8fPsQ](https://t.co/5UULE8fPsQ)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [April 19, 2022](https://twitter.com/MOFA_Taiwan/status/1516233127261196288?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-我很高兴看到美国终于给乌克兰送上了这些武器，但我们应该在几周前，甚至几个月前赢得这场“竞赛”。 【附纽约时报文章：美国竞相用更重、更先进的武器武装乌克兰】
-
-
-
-> I’m glad we’re finally sending these weapons, but we should’ve won this “race” weeks ago, if not months. [https://t.co/Gt2BcNqELN](https://t.co/Gt2BcNqELN)
-> — Tom Cotton (@SenTomCotton) [April 19, 2022](https://twitter.com/SenTomCotton/status/1516562130429956096?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂： **
-参议员哈格蒂:在乌克兰战争和 #中共国 的挑衅中，美国对太平洋盟友的承诺更显重要 （附华盛顿时报的同题报道）
-
-
-
-> Sen. Hagerty: U.S. commitment to Pacific allies more vital amid Ukraine war, Chinese provocations | [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) [https://t.co/kg5BH8aSVY](https://t.co/kg5BH8aSVY)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 19, 2022](https://twitter.com/SenatorHagerty/status/1516447783372443663?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
