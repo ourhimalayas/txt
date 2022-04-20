@@ -2,22 +2,26 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年4月17日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2381499/)
+## 七哥说—第65期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2381531/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-16.png)
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年4月17日早](https://gnews.org/zh-hans/2364085/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+制作：Inzaghi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-20_8.43.42.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-20_8.58.10.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+发稿：信心满满
 
 **更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
