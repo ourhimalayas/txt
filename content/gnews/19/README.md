@@ -2,28 +2,30 @@
 ---
 
 
-## 乌克兰情报局：俄军计划入侵白俄罗斯
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380552/)
+## 22%长期护理院爆发病毒，安省每天感染超十万
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380970/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-52.png)
+《渥太华公民报》4月18日报道，安省今日报告有1301人因CCP病毒感染住院，比一周前高出约19%；重症监护室病人数量同比上升约10%，从184人上升到202人；两人死于病毒。然而报告同时显示，有超过10%的医院并未提供周末的病毒感染住院数据。
 
-4月19日，乌克兰国防部情报总局（GUR）表示，俄罗斯军队正计划对白俄罗斯进行军事入侵行动。
+省内今天报告有2219名新增病毒感染，但由于获得PCR测试机会受限，该数字可能并不准确。安省病毒顾问小组科学主任说，废水监测表明，该省实际每天有10万至12万个新增病毒感染病例。目前省内近22%的长期护理院报告爆发疫情感染 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-425.jpg)（图片来源：路透社）
+原文链接：[https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14)
 
-据《自由时报》报道，乌克兰国防部情报总局在官方脸书上贴出的多页文件显示，在操纵白俄罗斯的总统选举后，俄军制定了一项入侵该国并镇压广泛抗议活动的计划，俄罗斯第1装甲集团军也正在为入侵占领白俄罗斯领土做军事准备。
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-根据乌克兰的情报，俄军占领白俄罗斯的借口是为了避免俄罗斯在欧洲地区与西方的北约成员国发生区域性或大规模战争。外界则猜测，俄军如今在乌克兰的战事连连受挫，可能是打算转移目标攻下白俄罗斯来给普京一个交代。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-报导指出，俄军日前已接获指令称，必须在俄罗斯庆祝二战战胜德国的“胜利日”，即5月9日前结束战争。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-参考链接：
-[https://news.ltn.com.tw/news/world/breakingnews/3898637](https://news.ltn.com.tw/news/world/breakingnews/3898637)
-
-编辑：海星
-总编：青城道姑
-校对发布：爱放飞
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,38 @@
 ---
 
 
-## 支持俄罗斯侵略者，在德国或将面临牢狱之灾
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2380986/)
+## 【G时新闻】俄军损失惨重 普京正组建“儿童军队”
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2381026/)
 
-作者: 雅典娜农场—文泓
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+4月18日，人权组织官员表示，俄军在乌克兰遭受巨大损失后，普京（Vladimir Putin）开始强迫青少年参军以弥补兵力不足。
 
+据《Mirror》镜子新闻网报导，由于俄罗斯部队在乌克兰遭受的损失超出预期，因而普京一直在所谓的“爱国俱乐部”中征召16岁年轻人，并强迫他们参军，以弥补3万名在战争中被杀，受伤或被俘的士兵缺口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
-近日，在德国多个联邦州，公开展示“Z”符号、声援俄罗斯入侵乌克兰战争被视为非法。根据德国著名媒体编辑部网络（RND）所做的一项调查，目前已有140多起相关诉讼案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/61293291_303.jpeg)图片来源: 网络
-根据德国编辑部网络对联邦内政、司法部以及联邦各州刑事局所做的一项问讯调查，结果显示德国警方和检察机关迄今已承办140多件鼓吹俄罗斯入侵乌克兰战争行为的相关案件。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上都印有这一符号。
+报导称，这些年轻人正在接受军事训练，并被派往前线。有些人已经在战斗中死亡。此外，在乌克兰战场上还发现了本不应被部署到战区的俄罗斯军事学员的徽章。
 
-调查结果显示，仅在德东地区萨克森·安哈尔特州，自俄军入侵乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。
+对此，乌克兰议会人权专员柳德米拉·丹尼索娃（Lyudmyla Denisova）表示，俄罗斯这种行为明显违反了1949年《日内瓦公约》中关于保护平民与儿童权利的战争法和惯例。
 
-在多个联邦州，使用该标志被视为是对俄侵略战争的支持，违反国际法，属于非法。
+她补充说，普京不仅动员俱乐部中的青少年参加军事训练，还在促进平民以及临时占领区的青少年加入军队。
 
-新闻链接: [https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
+据悉，乌克兰官员已向联合国呼吁调查普京涉嫌非法部署童军的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+盖特链接：[https://gettr.com/post/p1668mzb1f9](https://gettr.com/post/p1668mzb1f9)
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
