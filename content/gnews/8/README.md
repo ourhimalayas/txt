@@ -2,28 +2,18 @@
 ---
 
 
-## 中日财经爆|日本3月份对俄出口下降 但进口不降反升
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377775/)
+## 这五年来七哥最痛的不是一句话能说清楚的，最痛的是中国人的麻木、自私和懦弱。
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377939/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/日本3月份对俄出口下降-但进口不降反升.png)[图片来源](https://asia.nikkei.com/Politics/Ukraine-war/Asia-s-exports-to-Russia-plunge-amid-Ukraine-war)
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-4月20日，日本财政部公布的3月份初步贸易统计数据显示，贸易逆差额为4124亿日元，赤字已连续8个月，对俄出口下降，对俄进口却不降反升。
+发布：*陶子*
 
-对入侵乌克兰的俄罗斯出口额为509亿日元，同比下降31.5%。俄罗斯商业和经济制裁日益增长的不确定性似乎产生了影响。汽车零部件（下降 74.5%）和电机（下降 72.0%）下降明显。受原油价格高企的影响，从俄罗斯的进口额增加了 89.6% 至 1,875 亿日元。
-
-消息来源:
-[昨年度の貿易収支、５兆３７４９億円の赤字…３月のロシアからの輸入額は９割増](https://www.yomiuri.co.jp/economy/20220420-OYT1T50090/)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

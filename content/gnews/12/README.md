@@ -2,8 +2,8 @@
 ---
 
 
-## 习对上海人的旧仇新恨，韩正的下场会很惨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377746/)
+## 当爷们一定要有力量，嘴炮和眼泪解决不了事情
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377904/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

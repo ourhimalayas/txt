@@ -2,38 +2,41 @@
 ---
 
 
-## 中日财经爆┃日本通货膨胀明显 日元涨势不会持续
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377338/)
+## COVID 疫苗的问题已经开始影响到常规免疫接种中
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377454/)
 
-撰稿：东京樱花团/asket
+翻译： Jenny Ball
 
-编者按：日元汇率连续13天下跌，彭博社常驻外汇专家Mark Cudmore4月20日在《零对冲》撰文对日本通货膨胀和日元的走势进行了分析。过去一周，彭博商品现货指数以日元计算上涨了8.2%。自2月底以来，该指数上涨了29%，全年上涨了48%以上，过去两年上涨了177%。随着日本央行坚持其异常宽松的政策，日元的实际负收益率将进一步加深。加之，日本庞大的主权债务堆积，意味着更高的利率会产生新的问题，而压力的出口将再次可能是货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-47.jpg)[图片来源](https://cn.nytimes.com/business/20210716/inflation-us-japan/)
-随着日本货币以前所未有的速度内爆，连续13天下滑，这是历史上从未出现过的不间断的连跌，对于日本央行和现代货币理论（MMT）的疯子般的信徒来说，事情开始变得可怕了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-26.jpg)[图片来源](https://www.zerohedge.com/markets/these-are-incredible-moves-yens-problem-japan-will-also-see-inflation-2022)
-对日本央行来说，不幸的是，正如彭博社常驻外汇专家Mark Cudmore所写的那样，日元在2022年还有很多下行空间，因为日本央行是又一个在通胀问题上被哄骗到错位自满的央行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-7.jpg)
 
-以下，Cudmore解释了为什么对于任何剩余的日元多头来说，情况会变得更加糟糕。
 
-还记得2021年 “通货膨胀是短暂的 “这一观点吗？那是很可笑的。日本在2022年不会出现高于目标的通货膨胀的想法也是如此。问题是，在这个问题上有太多的人相信经济学家，尽管我们从过去一年中唯一知道的是，从总体上看，经济学家，在全球，尤其是在日本，在预测通货膨胀方面非常糟糕。
 
-当我们在去年12月提出日本的消费者价格通胀是一个需要注意的2022年黑天鹅时，人们的反应是非常不屑的。当时，对全年通胀的一致预测是0.7%。现在它已经跃升至1.5%，并将继续被追逐趋势的经济学家修正得更高，而不是看他们周围的真实世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-401.jpg)图片来源：Chip Somodevilla/Getty Images
 
-我被告知，在一个长期没有通货膨胀的国家，日本公司很难提高产品价格。我明白这一点。但现实会超越他们的认识，迫使每个人都去适应，因为铁的事实是，日本的投入价格正在呈抛物线上升，而且达到了不能再忽视的程度。
+孩子们没有赶上他们在大流行期间错过的常规注射，许多疫苗接种支持者指出： COVID-19 疫苗犹豫是一个重要原因。
 
-在过去一周里，彭博商品现货指数以日元计算上涨了8.2%。自2月底以来，该指数上涨了29%，全年上涨了48%以上，过去两年上涨了177%（均以日元计算）。这些都是令人难以置信的举措。
+10 个州的公共卫生专家、儿科医生、学校护士、免疫倡导者和州官员告诉《政治客》，他们担心越来越多的家庭将他们对 COVID-19 疫苗的态度联系到麻疹、水痘、脑膜炎和其他疾病的疫苗上。
 
-随着日本央行坚持其异常宽松的政策，日元的实际负收益率将进一步加深。而央行被困住了，因为该国庞大的主权债务堆积，意味着更高的利率会产生新的问题，而压力的出口将再次可能是货币。
+疫苗犹豫的蔓延也可能助长学龄儿童父母的宗教豁免请求增加，并使各州更难赶上在大流行初期因家庭不看医生而错过免疫接种的儿童，他们说。
 
-这篇文章并没有对短期价格走势做出任何特别的判断，但是，正如上周所概述的那样，如果没有全球增长的冲击，2022年的任何日元涨势都不会持续。
+儿科医生兼美国儿科学会乔治亚分会会长雨果·斯科尼克（Hugo Scornik），对去年在州立法机构提出的几项限制疫苗接种的法案感到震惊，其中包括一项将终止学校免疫要求的法案。几个州考虑过类似的立法，这些立法，要么取消或削减学校疫苗接种要求，但没有一个向前推进接种的。
 
-信息来源：
+新闻来源：[Covid vaccine concerns are starting to spill over into routine immunizations](https://www.politico.com/news/2022/04/18/kids-are-behind-on-routine-immunizations-covid-vaccine-hesitancy-isnt-helping-00025503)
 
-[**“These Are Incredible Moves” – Yen’s Problem Is That Japan Will Also See Inflation In 2022**](https://www.zerohedge.com/markets/these-are-incredible-moves-yens-problem-japan-will-also-see-inflation-2022)
+* * *
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+审核：文乐  
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

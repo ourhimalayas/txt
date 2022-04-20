@@ -2,27 +2,36 @@
 ---
 
 
-## 救援团队与逃出乌克兰的20多个孩子 共度复活节
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2371673/)
+## 美国军事机构与中共间谍机构的非正常关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2374933/)
 
-作者：雅典娜农场-Candy
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-波兰时间4月17日，新中国联邦法治基金梅迪卡救援站接待了刚从乌克兰被营救的24人，他们在营地与难民及义工们一起吃美味烧烤，共同度过了一个难忘的复活节。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-45.jpg)
-当晚，一批由意大利救援组织刚从乌克兰营救出来的7-17岁的孩子22人及两位成人，他们身披毯子，又冷又饿。进入温暖的大帐篷后，他们马上得到了义工们的热情帮助，战友们为他们分发香喷喷的烤肉、热食、饮料，这让刚刚获救的人们在异地他乡感受到了新中国联邦和法治基金的温暖。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-44.jpg)
-晚上10:30左右，一行24人乘坐巴士离开，并将继续20小时的旅途，然后由意大利的“诺亚方舟”组织护送去意大利各个寄宿家庭。
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image001-3.jpg)图片来源：日本时报
+4月18日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布报告称，一份被删除的新闻通讯显示，美国国防大学的一名院长曾率领一个代表团前往被FBI（联邦调查局）标记为“中国情报收集和海外间谍招募前沿组织”的中共智囊团。
 
-当日，包括各个国际救援组织的义工们，以及来营地暂做休息的难民一起，共同度过了难忘的节日。他们对营地战友的辛勤工作竖起大拇指，并真心地祝愿新中国联邦人灭共成功。
+美国国防大学位于华盛顿特区，于1976年成立。
 
-参考链接：[救援团队与逃出乌克兰的20多个孩子 共度复活节](https://www.gettr.com/post/p15ri0kee06)
+文章指出，上海社会科学院（SASS）2005年的《海外学术交流通讯》显示，“5月16日，以辛西娅·沃森为首的国防大学国家战争学院一行12人访问并讨论了中国和平崛起的内部和外部环境，亚太地区的安全和稳定，以及中东地区的民主化”
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+辛西娅·沃森现在担任国防大学国家战争学院的教务和学术事务院长，她于1992年8月加入该学院教职。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+《国家脉动》指出，上海社会科学院与中共最高间谍机构国家安全部的密切关系早已被FBI标记出来。
+
+根据FBI的说法，中国共产党依靠上海社会科学院的员工来充当潜在西方间谍的“监视者和评估”，而国家安全部官员也“利用上海科学院的关系作为身份掩护”。
+
+根据公开信息，上海社会科学院是2019年一名退休CIA（中央情报局）特工向中共出售美国国防机密文件的刑事案件中的关键角色。
+
+《国家脉动》认为，鉴于沃森在国家战争学院的影响力，她对上海社会科学院的访问可能构成了利益冲突。
+
+同时，值得注意的是，沃森还为中美交流基金会（CUSEF）出版的《中美聚焦》杂志撰稿，但是，中美交流基金会是中共政府最重要的对外游说团体之一。在2020年6月的一次采访中，沃森似乎批评了特朗普政府的2017年国家安全战略，她认为该战略不应该是“以中国为中心的”。
+
+文章披露，《国家脉动》正在深入挖掘相关美国政府的高级人员与上海社会科学院的关系，包括监督国家安全局招聘过程的个人，于是，美国主要军事教育机构与上海社会科学院的关系被发掘出来。并且，美国西点军校也与中共的游说团体有关系。
+
+责编：彩虹
+
+**新闻来源**
+
+[Deleted Web Pages Reveal Dean of National Defense University Visit with Chinese Communist-Run Think Tank](https://thenationalpulse.com/2022/04/18/deleted-web-pages-reveal-dean-of-national-defense-university-visit-with-chinese-communist-run-think-tank/)
 
  
 
