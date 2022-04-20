@@ -2,31 +2,28 @@
 ---
 
 
-## 欧美各国出现原因不明的儿童肝炎
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377695/)
+## 中日财经爆|日本3月份对俄出口下降 但进口不降反升
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377775/)
 
-撰稿：东京樱花团/立正道
+撰稿：东京樱花团/peterwong
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-406.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.leparisien.fr%2Fresizer%2Ft-_lYq9bS6vuhR8r46yePM0nQ-I%3D%2F1200x675%2Fcloudfront-eu-central-1.images.arcpublishing.com%2Fleparisien%2FOHP472RKUYWSOVKN3RJI4OMBC4.jpg&amp;imgrefurl=https%3A%2F%2Fpilatesse)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日本3月份对俄出口下降-但进口不降反升.png)[图片来源](https://asia.nikkei.com/Politics/Ukraine-war/Asia-s-exports-to-Russia-plunge-amid-Ukraine-war)
 
-欧洲疾病控制与预防中心(ECDC)于4月19日宣布,英国儿童首次确认了原因不明的肝炎，在欧洲4个国家和美国也报告。
+4月20日，日本财政部公布的3月份初步贸易统计数据显示，贸易逆差额为4124亿日元，赤字已连续8个月，对俄出口下降，对俄进口却不降反升。
 
-根据ECDC报道,丹麦、爱尔兰、荷兰、西班牙均有确诊病例,美国阿拉巴马州也报告了9例疑似病例。世界卫生组织(WHO)15日,随后5天英国既有报告了84起严重的急性肝炎,预计病例今后会进一步有所增加。英国患者中有6人因为症状恶化接受了肝脏移植。
+对入侵乌克兰的俄罗斯出口额为509亿日元，同比下降31.5%。俄罗斯商业和经济制裁日益增长的不确定性似乎产生了影响。汽车零部件（下降 74.5%）和电机（下降 72.0%）下降明显。受原油价格高企的影响，从俄罗斯的进口额增加了 89.6% 至 1,875 亿日元。
 
-患者主要是10岁以下的儿童,症状有黄疸、腹泻、呕吐、腹痛等。患者没有检测到传统的A～E型肝炎病毒,英国卫生当局正在调查一般病毒和新型冠状病毒的关联性,以及传染病、环境因素等导致的可能性。
+消息来源:
+[昨年度の貿易収支、５兆３７４９億円の赤字…３月のロシアからの輸入額は９割増](https://www.yomiuri.co.jp/economy/20220420-OYT1T50090/)
 
-ECDC在各国进行了调查,说明准确原因不明。是否与新型冠状病毒疫苗有关也未能确认,患者的问诊结果显示没有饮食和习惯的共同点。据说目前最有可能的原因是传染病。
-
-信息来源：[原因不明の小児肝炎、欧州諸国や米国でも症例報告](https://news.yahoo.co.jp/articles/3bdeb08ca8f260ecaf493e038832de4976f3c07b)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

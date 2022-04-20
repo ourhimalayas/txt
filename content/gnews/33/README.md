@@ -2,89 +2,38 @@
 ---
 
 
-## 霍利参议员：阻止入侵就是要确保台湾拥有自卫所需的武器
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2377129/)
+## 中日财经爆┃日本通货膨胀明显 日元涨势不会持续
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377338/)
 
-**参议员霍利新闻办公室： **
-霍利参议员说，“阻止入侵就是要确保 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 拥有自卫所需的武器，包括水雷、反坦克导弹、便携式防空系统、和其他非对称防御能力。” 【转kfvs12·com网：霍利提出《台湾武器出口法》】
+撰稿：东京樱花团/asket
 
+编者按：日元汇率连续13天下跌，彭博社常驻外汇专家Mark Cudmore4月20日在《零对冲》撰文对日本通货膨胀和日元的走势进行了分析。过去一周，彭博商品现货指数以日元计算上涨了8.2%。自2月底以来，该指数上涨了29%，全年上涨了48%以上，过去两年上涨了177%。随着日本央行坚持其异常宽松的政策，日元的实际负收益率将进一步加深。加之，日本庞大的主权债务堆积，意味着更高的利率会产生新的问题，而压力的出口将再次可能是货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-47.jpg)[图片来源](https://cn.nytimes.com/business/20210716/inflation-us-japan/)
+随着日本货币以前所未有的速度内爆，连续13天下滑，这是历史上从未出现过的不间断的连跌，对于日本央行和现代货币理论（MMT）的疯子般的信徒来说，事情开始变得可怕了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-26.jpg)[图片来源](https://www.zerohedge.com/markets/these-are-incredible-moves-yens-problem-japan-will-also-see-inflation-2022)
+对日本央行来说，不幸的是，正如彭博社常驻外汇专家Mark Cudmore所写的那样，日元在2022年还有很多下行空间，因为日本央行是又一个在通胀问题上被哄骗到错位自满的央行。
 
+以下，Cudmore解释了为什么对于任何剩余的日元多头来说，情况会变得更加糟糕。
 
-> Sen. Hawley says “deterring an invasion is ensuring Taiwan has the weapons it needs to defend itself, including naval mines, anti-tank missiles, man-portable air defense systems, and other asymmetric defense capabilities.” [https://t.co/fd1CGi6jKJ](https://t.co/fd1CGi6jKJ)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516492000048160773?ref_src=twsrc%5Etfw)
+还记得2021年 “通货膨胀是短暂的 “这一观点吗？那是很可笑的。日本在2022年不会出现高于目标的通货膨胀的想法也是如此。问题是，在这个问题上有太多的人相信经济学家，尽管我们从过去一年中唯一知道的是，从总体上看，经济学家，在全球，尤其是在日本，在预测通货膨胀方面非常糟糕。
 
+当我们在去年12月提出日本的消费者价格通胀是一个需要注意的2022年黑天鹅时，人们的反应是非常不屑的。当时，对全年通胀的一致预测是0.7%。现在它已经跃升至1.5%，并将继续被追逐趋势的经济学家修正得更高，而不是看他们周围的真实世界。
 
+我被告知，在一个长期没有通货膨胀的国家，日本公司很难提高产品价格。我明白这一点。但现实会超越他们的认识，迫使每个人都去适应，因为铁的事实是，日本的投入价格正在呈抛物线上升，而且达到了不能再忽视的程度。
 
-**参议员霍利新闻办公室： **
-霍利参议员提出的《台湾武器出口法》，将 “帮助美国尽快地将这些武器运往 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE)”。 【附参议院官网：霍利提出《台湾武器出口法》】
+在过去一周里，彭博商品现货指数以日元计算上涨了8.2%。自2月底以来，该指数上涨了29%，全年上涨了48%以上，过去两年上涨了177%（均以日元计算）。这些都是令人难以置信的举措。
 
+随着日本央行坚持其异常宽松的政策，日元的实际负收益率将进一步加深。而央行被困住了，因为该国庞大的主权债务堆积，意味着更高的利率会产生新的问题，而压力的出口将再次可能是货币。
 
+这篇文章并没有对短期价格走势做出任何特别的判断，但是，正如上周所概述的那样，如果没有全球增长的冲击，2022年的任何日元涨势都不会持续。
 
-> The legislation Senator Hawley introduced, the Taiwan Weapons Exports Act, will “help the United States get these weapons to Taiwan as quickly as possible.”[https://t.co/cjfcnSGSKI](https://t.co/cjfcnSGSKI)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516511798471671809?ref_src=twsrc%5Etfw)
+信息来源：
 
+[**“These Are Incredible Moves” – Yen’s Problem Is That Japan Will Also See Inflation In 2022**](https://www.zerohedge.com/markets/these-are-incredible-moves-yens-problem-japan-will-also-see-inflation-2022)
 
-
-**参议员霍利媒体办公室： **
-参议员霍利陈述，“…现在把快速武器进口到 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 实在太重要了，[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 仍有时间调整国防，并震慑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的入侵。“【转华盛顿信使，霍利说美国必须武装台湾，在一切都太迟之前】
-
-
-
-> Senator Hawley states “…it is so important to fast-track weapons to Taiwan now while Taiwan still has time to marshal its defenses and deter a Chinese invasion.” [https://t.co/fEv61w8NfP](https://t.co/fEv61w8NfP)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 19, 2022](https://twitter.com/SenHawleyPress/status/1516412882480775169?ref_src=twsrc%5Etfw)
-
-
-
-**前国务次卿基思·克拉奇： **
-在 [@SXMPOTUS](https://gettr.com/user/SXMPOTUS) 节目中，我和 [@SteveScully](https://gettr.com/user/SteveScully) 分享了一些从俄乌战争中可以应用到 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 和 [#台湾](https://gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 的教训。首先是侵略者在袭击下如何让人们失去合法性。同时，还需要有速度，有力量，能承诺的盟友。
-
-
-
-> On [@SXMPOTUS](https://twitter.com/SXMPOTUS?ref_src=twsrc%5Etfw) with [@SteveScully](https://twitter.com/SteveScully?ref_src=twsrc%5Etfw) I shared some lessons from [#UkraineRussiawar](https://twitter.com/hashtag/UkraineRussiawar?src=hash&amp;ref_src=twsrc%5Etfw) that can be applied to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) and [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw). First is how the aggressor delegitimizes the people under attack. There is also a need for speed, for strength, and committed allies. [https://t.co/G34o3izfZ0](https://t.co/G34o3izfZ0) [pic.twitter.com/qWvZjT4OxM](https://t.co/qWvZjT4OxM)
-> — Keith J. Krach (@KeithJKrach) [April 19, 2022](https://twitter.com/KeithJKrach/status/1516408776986877953?ref_src=twsrc%5Etfw)
-
-
-
-**众议员吉姆.班克斯： **
-这就是 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) [#CCP](https://gettr.com/hashtag/%23CCP) 如何回应（拜登政府的）软弱 【转路透社报道：中（共）国高级外交官称中（共）国将加强与俄罗斯的“弹性”战略协调】
-
-
-
-> This is how the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) responds to WEAKNESS [https://t.co/SZ4rPoIBas](https://t.co/SZ4rPoIBas)
-> — Jim Banks (@RepJimBanks) [April 19, 2022](https://twitter.com/RepJimBanks/status/1516457687931838464?ref_src=twsrc%5Etfw)
-
-
-
-**中华民国外交部: **
-我们衷心感谢美国的友谊和坚如磐石的支持。台湾**🇹🇼**将继续与其他力量合作，捍卫自由、民主和尊重人权等共同价值观，同时维护印太地区和世界各地基于规则的秩序。 【转美国务院发言人推文：大意是祝贺台湾民权活动家李明哲在中共国获释】
-
-
-
-> We sincerely thank the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw)🇺🇸 for its friendship & rock-solid support. [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼 will keep working with fellow forces for good in defending shared values like freedom, democracy & respect for human rights while upholding rules-based order in the [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) & around the world. [https://t.co/5UULE8fPsQ](https://t.co/5UULE8fPsQ)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [April 19, 2022](https://twitter.com/MOFA_Taiwan/status/1516233127261196288?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-我很高兴看到美国终于给乌克兰送上了这些武器，但我们应该在几周前，甚至几个月前赢得这场“竞赛”。 【附纽约时报文章：美国竞相用更重、更先进的武器武装乌克兰】
-
-
-
-> I’m glad we’re finally sending these weapons, but we should’ve won this “race” weeks ago, if not months. [https://t.co/Gt2BcNqELN](https://t.co/Gt2BcNqELN)
-> — Tom Cotton (@SenTomCotton) [April 19, 2022](https://twitter.com/SenTomCotton/status/1516562130429956096?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂： **
-参议员哈格蒂:在乌克兰战争和 #中共国 的挑衅中，美国对太平洋盟友的承诺更显重要 （附华盛顿时报的同题报道）
-
-
-
-> Sen. Hagerty: U.S. commitment to Pacific allies more vital amid Ukraine war, Chinese provocations | [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) [https://t.co/kg5BH8aSVY](https://t.co/kg5BH8aSVY)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 19, 2022](https://twitter.com/SenatorHagerty/status/1516447783372443663?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

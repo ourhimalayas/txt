@@ -2,8 +2,8 @@
 ---
 
 
-## 医疗监管机构董事会成员面临与制药公司联系的问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377392/)
+## COVID 疫苗的问题已经开始影响到常规免疫接种中
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2377454/)
 
 翻译： Jenny Ball
 
@@ -11,15 +11,17 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-400.jpg)图片来源：Nisha Dutta/Getty Images/iStockphoto
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-401.jpg)图片来源：Chip Somodevilla/Getty Images
 
-英国药品监管机构在发现其六名董事会成员正在接受制药行业的付款后，已被敦促加强其利益冲突政策。
+孩子们没有赶上他们在大流行期间错过的常规注射，许多疫苗接种支持者指出： COVID-19 疫苗犹豫是一个重要原因。
 
-参与监督监管机构“战略方向”的董事会成员，还拥有包括美国和沙特制药巨头在内的公司，以及有志打入英国医疗保健市场的公司的经济利益。根据官方透明度记录，一些提供咨询服务，而另一些则帮助经营或拥有药品和医疗器械公司的股份。
+10 个州的公共卫生专家、儿科医生、学校护士、免疫倡导者和州官员告诉《政治客》，他们担心越来越多的家庭将他们对 COVID-19 疫苗的态度联系到麻疹、水痘、脑膜炎和其他疾病的疫苗上。
 
-调查结果引起了人们对药品和保健品监管机构 (MHRA) 高级官员之间的利益冲突的担忧，该机构是卫生和社会保健部的执行机构，负责监管药品和保健品，医疗设备并确保其安全。
+疫苗犹豫的蔓延也可能助长学龄儿童父母的宗教豁免请求增加，并使各州更难赶上在大流行初期因家庭不看医生而错过免疫接种的儿童，他们说。
 
-新闻来源：[Medical regulator faces questions over board members’ links to drug firms](https://www.theguardian.com/society/2022/apr/17/medical-regulator-faces-questions-over-board-members-links-to-drug-firms)
+儿科医生兼美国儿科学会乔治亚分会会长雨果·斯科尼克（Hugo Scornik），对去年在州立法机构提出的几项限制疫苗接种的法案感到震惊，其中包括一项将终止学校免疫要求的法案。几个州考虑过类似的立法，这些立法，要么取消或削减学校疫苗接种要求，但没有一个向前推进接种的。
+
+新闻来源：[Covid vaccine concerns are starting to spill over into routine immunizations](https://www.politico.com/news/2022/04/18/kids-are-behind-on-routine-immunizations-covid-vaccine-hesitancy-isnt-helping-00025503)
 
 * * *
 

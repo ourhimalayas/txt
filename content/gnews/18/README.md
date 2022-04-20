@@ -2,8 +2,8 @@
 ---
 
 
-## 4.19,11.20，包括新闻发布会，都像核按钮一样
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377610/)
+## 单伟建、吴征，想家人给他收尸的机会都不会有
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377624/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

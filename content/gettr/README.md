@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 7:19 AM (UTC)`
+
+【419 5th anniversary】04/19/2022 Although there are traitors in Taiwan, the Whistleblowers’ Movement and the world are protecting it. Mr. Miles Guo will share intel with the west about the whereabouts of the CCP’s submarines to help them destroy the submarines with underwater lasers.<br/><br/>【419五周年】04/19/2022 虽然台湾有卖台贼，但爆料革命和国际社会都在保护台湾。郭先生将会向西方提供中共潜水艇方位的情报帮助西方使用水下镭射将其消灭。<br/>
+![img](https://media.gettr.com/group47/getter/2022/04/20/07/10bd299f-be81-2a01-e47d-97ad13750e1e/out.jpg)
+
+---
+
 `@miles 4/20/2022 6:39 AM (UTC)`
 
 【419 5th Anniversary】04/19/2022 A fellow fighter risked his life to provide the intelligence of Taiwan drones because he saw the Taiwanese are willing to participate in the Whistleblowers’ Movement.<br/><br/>【419五周年】04/19/2022 战友因为看到台湾人愿意参加爆料革命，冒生命危险提供台湾无人机情报。<br/><br/>
@@ -147,13 +154,6 @@
 
 4/19/2022 【419 5th Anniversary】 In Guo’s Seven Principles, the principle ‘Not against Xi’ is followed by an undeclared statement “but to destroy Xi”; Fu Zhenghua, Sun Lijun and Bruno Wu deserve the harshest punishment under law.<br/><br/>4/19/2022【419五周年】郭七条里的”不反习”其实是要灭了习；傅政华, 孙力军和吴征必须受到最严厉的法律制裁<br/>
 ![img](https://media.gettr.com/group40/getter/2022/04/19/20/a6781b9d-e902-2b2a-4c46-cccd4ff8021a/out.jpg)
-
----
-
-`@miles 4/19/2022 6:47 PM (UTC)`
-
-【419 5th Anniversary】Mr. Miles Guo: The poison of the Chinese Communist Party is the poison from the most devilish power on earth, and it will not stop the harm until it is drained out completely.<br/><br/>【419五周年】郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的。<br/>
-![img](https://media.gettr.com/group40/getter/2022/04/19/18/99a9336d-6f3b-fdc9-7087-dd10671007d4/out.jpg)
 
 ---
 
