@@ -2,19 +2,30 @@
 ---
 
 
-## 美国友人采访（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2378905/)
+## 秘翻新闻｜中共与所罗门正式签署安全协议
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2378939/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**By:[秘翻新闻](https://gettr.com/post/p1662bf5cf0)**
 
-发布：*陶子*
+***[2022-04-20](https://gettr.com/post/p1662bf5cf0)***
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+**新闻内容:**
 
+
+```
+1. 中共审查因上海封锁而死亡的人员名单
+ 2. 菲驻华大使被隔离死于黄山市 死因不明
+ 3. 五角大楼称乌军已经获得空战军事援助
+ 4. 日本将向乌克兰运送口罩和防毒服
+ 5. 日本将参加北约网络防御演习
+
+ 🔗Gettr链接：https://gettr.com/post/p1662bf5cf0
+发布:星星
+```
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

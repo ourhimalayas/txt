@@ -15,56 +15,56 @@
 
 ---
 
-### [港币终将被灭,若印尼和印度板块北移地震香港瞬间消失](/content/gnews/1/README.md)
+### [虽然台湾有卖台贼，但爆料革命和国际社会都在保护台湾](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [战友冒生命危险提供台湾无人机情报](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [愿万佛万神保佑染病的战友们早日解除共产党病毒的侵害](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [纽约最大的“全电动”摩天大楼计划揭晓](/content/gnews/2/README.md)
+### [习的自信来自于迷信](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声｜乌军马里乌波尔指挥官讲述战争的真实情况](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [港币终将被灭,若印尼和印度板块北移地震香港瞬间消失](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [纽约最大的“全电动”摩天大楼计划揭晓](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|前线采访：中共对上海的恐怖手段和乌克兰战争都是独裁者的罪行](/content/gnews/3/README.md)
+### [视频|前线采访：中共对上海的恐怖手段和乌克兰战争都是独裁者的罪行](/content/gnews/8/README.md)
  ` MOSVIDEO`
 
-### [樱花时政┃瑞典政客焚烧《古兰经》引发严重骚乱](/content/gnews/4/README.md)
+### [樱花时政┃瑞典政客焚烧《古兰经》引发严重骚乱](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜ 中共与所罗门正式签署安全协议](/content/gnews/5/README.md)
+### [有声｜ 中共与所罗门正式签署安全协议](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [李嘉诚 李小加 成龙等加入支持香港特首唯一候选人李家超](/content/gnews/6/README.md)
+### [李嘉诚 李小加 成龙等加入支持香港特首唯一候选人李家超](/content/gnews/11/README.md)
  ` 波士顿五月花农场金融部`
 
-### [症能量](/content/gnews/7/README.md)
+### [症能量](/content/gnews/12/README.md)
  ` SpicyWorld`
 
-### [秘翻新闻｜中共与所罗门正式签署安全协议](/content/gnews/8/README.md)
+### [秘翻新闻｜中共与所罗门正式签署安全协议](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频|福奇称群体免疫对中共病毒不适用 暗示民众应继续接种疫苗](/content/gnews/9/README.md)
+### [视频|福奇称群体免疫对中共病毒不适用 暗示民众应继续接种疫苗](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [中共国的安全新政将美国的主要盟友置于危险境地](/content/gnews/10/README.md)
+### [中共国的安全新政将美国的主要盟友置于危险境地](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国友人采访（五）](/content/gnews/11/README.md)
+### [美国友人采访（五）](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [一美国父亲谴责美政府在芬太尼问题上对中共太软弱](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国友人采访（四）](/content/gnews/13/README.md)
+### [美国友人采访（四）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
-
-### [美国友人采访（三）](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜芬兰总统尼尼斯托确诊中共病毒](/content/gnews/15/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国友人采访（二）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [前线战友的付出和与新中国联邦及战友们站在一起的明道](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [“希特勒手册”](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
