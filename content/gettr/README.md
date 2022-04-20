@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 1:12 PM (UTC)`
+
+2022.04.20 早  新中国联邦 | 新闻访谈   P2P网贷老大哥遭审查起诉；招行行长田惠宇被免职
+![img](https://media.gettr.com/group8/origin/2022/04/04/13/a104f907-69b3-5d6f-d964-f5c4c78acd5d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/20/2022 1:04 PM (UTC)`
 
 【419 5th anniversary】04/19/2022 Five years ago Wang Qishan and Zhou Liang sent Ma Yun, Wu Zheng, Liu Yanping, Sun Lijun, Sasha Gong, Zhang Xin, Pan Shiyi and others around April 19th in an attempt to silence Mr. Miles Guo by a series of kidnapping, threat, assassination, planted evidence and other nasty tactics.<br/><br/>【419五周年】04/19/2022 王岐山、周亮为了灭掉郭文贵先生，在419前后先后派出了马云、吴征，刘彦平、孙力军、火鸡龚，张欣、潘石屹等人轮流登场，出演了一系列绑架、威胁、暗杀、栽赃等龌龊手段，试图灭口郭先生。<br/>
@@ -147,13 +154,6 @@
 
 【419 5th Anniversary】Mr. Miles Guo reveals his conversation with Ye Jianming and concludes that looking back, if he made one single mistake, he and the Whistleblower Movement would be destroyed by the CCP.<br/><br/>【419五周年】郭先生爆料叶简明与他的接触过程，并总结一路走来只要有一件事做错，就会被共产党灭掉。<br/><br/>
 ![img](https://media.gettr.com/group45/getter/2022/04/20/01/154048ea-502a-6c65-3453-ca15aadd34ec/out.jpg)
-
----
-
-`@miles 4/20/2022 1:51 AM (UTC)`
-
-【419 5th Anniversary】Mr. Hao Haidong and Ms. Ye Zhaoying shared that the Russians around them have bank accounts closed by Spanish banks and can’t find jobs. Mr. Guo shared that the United States and Europe have 100% control over the list of all CCP and Russian government officials. The future of the CCP in the world will definitely be more miserable than that of Russia.<br/><br/>【419五周年】郝董叶女侠分享身边俄罗斯人在西班牙银行账户被封、找工作被拒。七哥分享美国和欧洲对所有中共和俄罗斯的政府工作人员的名单百分之百掌握，共产党未来在全世界肯定比俄罗斯还惨。<br/>
-![img](https://media.gettr.com/group3/getter/2022/04/20/01/f93452dd-637a-8c79-9e09-9e6d3cc520f2/out.jpg)
 
 ---
 

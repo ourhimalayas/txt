@@ -2,30 +2,98 @@
 ---
 
 
-## 俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378774/)
+## 法国大选：法国决选前欧盟担心勒庞获胜
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2379051/)
 
-**港台前线 zhong｜2022-4-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-8.png)
-欧盟理事会主席查尔斯．米歇尔（Charles Michel）通过推特对外界传达（20日）他已抵达乌克兰首都基辅，并称“基辅是自由民主欧洲的中心”，外媒报导称他将与泽连斯基会面。米歇尔本次访问乌克兰形成，外界事前并不知悉。外媒有提及，米歇尔欧盟理事会主席的身分，代表着欧盟27成员国。
+翻译: 里奇
 
-此前，欧洲议会主席梅措拉（Roberta Metsola）4月1日[突然访问基辅](https://gnews.org/zh-hant/2273281/)，会面泽连斯基及乌克兰及国会议长。欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔于4月8日也访问了基辅。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
 
-> In Kyiv today. 
-> 
-> In the heart of a free and democratic Europe. [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) [pic.twitter.com/7DxTeoxtMc](https://t.co/7DxTeoxtMc)
-> — Charles Michel (@eucopresident) [April 20, 2022](https://twitter.com/eucopresident/status/1516668856651165708?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-412.jpg)
 
+欧盟官员在享受了一个温暖的银行假期后于周二重返工作岗位。但是，就在边境之外，法国总统大选意味着对欧盟未来命运的争夺。
 
+极右翼候选人玛丽娜·勒庞坚称她没有秘密的“脱欧”议程。
 
-来源｜[POLITICO](https://www.politico.eu/article/charles-michel-visit-kyiv-ukraine-eu/)、[GNEWS](https://gnews.org/zh-hant/2273281/)
+但反对者声称她的政策将使法国在欧盟的地位处于危险之中。
+
+支持者认为，布鲁塞尔未能从英国退欧中吸取教训。
+
+选民将在周日在勒庞女士和现任领导中间派运动 La République En Marche（移动中的共和国）的现任总统埃马纽埃尔·马克龙（Emmanuel Macron）之间做出选择。
+
+Rassemblement National（全国拉力赛）的负责人勒庞在这次选举中明显淡化了她对欧盟的态度。
+
+2017 年，她的宣言承诺就欧盟成员国身份进行公投，此前六个月的谈判试图从根本上改革欧盟。
+
+但翻阅今年的文件“法国的22条措施”，它甚至没有直接提及欧盟。
+
+将法国从单一货币欧元中拉出来的说法也已经一去不复返了。
+
+法国政府部长、En Marche 成员让-巴蒂斯特·勒莫因认为，她的温和立场是因为她渴望“征服总统职位”。
+
+“但她质疑欧盟的一些基本面” 他说。
+
+无可争议的是，勒庞的胜利将在布鲁塞尔引发冲击波。
+
+与英国不同，法国是欧盟最终成形的创始成员，现在是欧盟第二大财政支持国。
+
+玛丽娜·勒庞希望削减法国对欧盟的贡献，加强边境管制，并就停止“不受控制的”移民举行全民公投。
+
+这将包括优先考虑法国人民获得福利、社会住房和工作的机会。
+
+这些政策似乎与自由流动​​和欧盟法律的首要地位直接矛盾。
+
+皇家联合服务研究所 (Rusi) 智囊团副主任乔纳森·埃亚尔说，这是对“点菜”会员资格的追求。
+
+他说，如果波兰和匈牙利等其他成员国与法国联手试图遏制欧盟委员会的权力，她的计划可能会导致欧盟“瘫痪”。
+
+这个想法看起来更像是“一群国家，而不是一个统一的概念”。
+
+欧盟的新生还是永久革命？
+
+但是，勒庞的一位支持者表示，更松散的国家联盟或“选择加入，选择退出”系统将为欧盟注入“新活力”。
+
+来自 Abbeville 的全国拉力赛议员 Patricia Chagnon 表示，勒庞希望将成员国从“大型官僚机器”中得到“解脱”。
+
+而且，她认为，正是那些“不同意改革欧盟”的人将勒庞的政策描述为后门式法国脱欧。
+
+“玛丽娜·勒庞赞成尊重每个成员国的主权和独立”，同时意识到“密切合作”的重要性，她说。
+
+伊曼纽尔·马克龙将周日的投票描述为“欧洲公投”。
+
+法国日报《世界报》的编辑主任西尔维·考夫曼说，马琳·勒庞的胜利对欧盟来说确实是一场“地震”。
+
+然而，她指出马克龙先生在民意调查中的持续领先以及这样一个事实，即如果玛丽娜勒庞无视目前的赔率，她还将面临在 6 月议会选举中获得多数席位的挑战。
+
+即便如此，乔纳森·埃亚尔（Jonathan Eyal）表示，勒庞担任总统可能会对西方造成极大的破坏。
+
+他说，她将与欧盟和西方军事联盟北约一起“处于永久革命状态”。
+
+作为欧洲议会的前成员，玛丽娜·勒庞对与布鲁塞尔的冲突并不陌生。
+
+周一，她回击了有关欧盟反腐败机构奥拉夫指控她和高级同事在担任欧洲议会议员期间贪污超过 60 万欧元（50 万英镑）的报道。
+
+她将其描述为“来自欧盟的不合理打击，距离第二轮选举仅几天……我绝对否认这些指控，我甚至不知道这些指控”。
+
+在周日的投票之前，布鲁塞尔的所有人现在都将目光投向了周三两个竞争对手之间至关重要的电视直播辩论。
+
+新闻来源:[French elections: EU apprehensive of Le Pen ahead of French run-off vote](https://www.bbc.com/news/world-europe-61144679)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
 
  
 

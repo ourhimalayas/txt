@@ -2,36 +2,22 @@
 ---
 
 
-## 忧中共渗透太平洋岛国 美高官将出访所罗门群岛
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2377901/)
+## 英国援助乌克兰5.21亿美元，并愿作为世界银行的贷款担保人
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2378306/)
 
-作者：纽约香草山-文希
+**撰稿：日本东京方舟农场 北极**
 
+据乌克兰今天4月20日报道，英国常驻联合国代表芭芭拉·伍德沃德（Barbara Woodward）表示，该国已向乌克兰提供了4亿英镑的财政援助（约合5.21亿美元）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-17.png)英国常驻联合国代表芭芭拉·伍德沃德。（图片来自乌克兰今天）
+伍德沃德在纽约联合国安理会上报告说，伦敦还将向接受和帮助乌克兰难民的国家提供2.2亿英镑（2.866亿美元）用于人道主义需求，同时承诺做为世界银行对乌克兰提供10亿美元贷款的担保人。
 
+早些时候有报道称，世界银行正在为乌克兰准备一揽子援助计划，金额为15亿美元。世界银行和国际货币基金组织的负责人将于4月21日与乌克兰总理丹尼斯·什米加尔（Denys Shmyhal）和财政部部长谢尔盖·马尔琴科（Sergey Malchenko）进行会晤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+参考链接：
+[https://reurl.cc/VD65mn](https://reurl.cc/VD65mn)
 
-
-
-白宫4月18日发布简报，称印太事务协调员柯尔特·坎贝尔，将与美国负责东亚和太平洋事务的助理国务卿康达一起，率领美国政府官员代表团，对斐济、巴布亚新几内亚和所罗门群岛这三个太平洋岛国进行访问。
-
-简报称，代表团将包括来自国家安全委员会、国务院、国防部和美国国际开发署的代表，寻求进一步深化美国与该地区的持久联系，并推动一个自由、开放和有弹性的印度洋-太平洋地区。在三个岛国，代表团将与高级政府官员会面。另外，他们还将会见太平洋岛屿论坛的代表，讨论对整个太平洋具有重要意义的问题。 根据一些媒体的分析，事实上美国的此次出访，最主要的议题是针对中共和所罗门群岛3月底草签的一份所谓安全框架协议，根据该协议，中共可以在所罗门群岛派驻军事力量，谋求优势战略地位。美国此行极有可能会力争废除该协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-51.jpg)
-参考链接： 
-1. [力争废掉“中国功夫” 美高官本周访太平洋三国](https://news.creaders.net/us/2022/04/18/2474176.html)
-2. [Statement by NSC Spokesperson Adrienne Watson on Senior Administration Travel to Hawaii, Fiji, Papua New Guinea, and the Solomon Islands](https://www.whitehouse.gov/briefing-room/statements-releases/2022/04/18/statement-by-nsc-spokesperson-adrienne-watson-on-senior-administration-travel-to-hawaii-fiji-papua-new-guinea-and-the-solomon-islands/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-总编：天滅中共
-审核/编辑：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+总编： 青城道姑
+校对发布：Linda
 
  
 
