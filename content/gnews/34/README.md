@@ -2,22 +2,35 @@
 ---
 
 
-## 2022.4.19大直播：2017.4.19开启灭共大门 2022.4.19我们再续传奇
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2375106/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-19-at-9.07.38-PM.jpeg)
-郭文贵先生在2022年4月19日“VOA断播五周年”直播中谈到，很多战友都是因为419与爆料革命结缘。419可以说是爆料革命新中国联邦最重要的日子，也是中国共产党最忌讳的日子。五年前的419断播开启了共产党的灭亡的大门。
+作者：香草山翻译部
 
-郭先生还谈到今天爆料革命新中国联邦在乌克兰前线的救援，他表示前线战友马甲上“take down the chinese communist party”的口号已经成为了世界上政治家们无法回避的，想探索的、想了解的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
 
-郭先生简要回顾了爆料革命新中国联邦的发展历程，指出新中国联邦曾经面对的是由共产党操纵的世界上各大主流媒体发起的一系列超国家级的舆论超限战。而如今爆料革命新中国联邦有了自己的媒体平台，有越来越多的战友参与直播传播真相，这是战友行动的结果，是一个正义战胜邪恶的结果，是一个艰难的历程。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
 
-郭先生表示，今天的419五周年大直播是新中国联邦爆料革命一个巨大成功的里程碑。法制基金新中国联邦发起的乌克兰救援是中国人第一次参与的国际人道救援，前线战友们向全世界展示了中国人如此高尚、如此高标准、如此伟大的形象，震撼了世界。
+文章仅代表作者本人观点，与Gnews无关
 
-他希望战友们在4.19这个幸福、美好的日子，继续我们的传奇。
+视频参看：
+[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
+[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
 
-参考链接：[2022年4月19日“VOA断播五周年”大直播](https://gettr.com/streaming/p161dm5929a)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
 
  
 

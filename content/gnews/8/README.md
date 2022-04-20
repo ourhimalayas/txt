@@ -2,8 +2,11 @@
 ---
 
 
-## 共产党的恐惧从派出龚小夏可见一斑，419是对爆料革命的天赐礼物
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376830/)
+## 郭七条为什么不反习，不反习要灭习
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376887/)
+
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
 发布：*陶子*
 

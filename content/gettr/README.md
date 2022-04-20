@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 1:52 AM (UTC)`
+
+【419 5th Anniversary】Mr. Miles Guo reveals his conversation with Ye Jianming and concludes that looking back, if he made one single mistake, he and the Whistleblower Movement would be destroyed by the CCP.<br/><br/>【419五周年】郭先生爆料叶简明与他的接触过程，并总结一路走来只要有一件事做错，就会被共产党灭掉。<br/><br/>
+![img](https://media.gettr.com/group45/getter/2022/04/20/01/154048ea-502a-6c65-3453-ca15aadd34ec/out.jpg)
+
+---
+
+`@miles 4/20/2022 1:51 AM (UTC)`
+
+【419 5th Anniversary】Mr. Hao Haidong and Ms. Ye Zhaoying shared that the Russians around them have bank accounts closed by Spanish banks and can’t find jobs. Mr. Guo shared that the United States and Europe have 100% control over the list of all CCP and Russian government officials. The future of the CCP in the world will definitely be more miserable than that of Russia.<br/><br/>【419五周年】郝董叶女侠分享身边俄罗斯人在西班牙银行账户被封、找工作被拒。七哥分享美国和欧洲对所有中共和俄罗斯的政府工作人员的名单百分之百掌握，共产党未来在全世界肯定比俄罗斯还惨。<br/>
+![img](https://media.gettr.com/group3/getter/2022/04/20/01/f93452dd-637a-8c79-9e09-9e6d3cc520f2/out.jpg)
+
+---
+
 `@miles 4/20/2022 1:00 AM (UTC)`
 
 2022.04.19 晚  新中国联邦 | 新闻访谈   419 断播逆增上缘爆料革命；新中国联邦即救华人也救世界；疫苗灾害即将到来，感染人数已经无法计数，为啥政府还在催打疫苗？
@@ -140,20 +154,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月18日第45天当日救援统计：<br/>Medyka救援站接待：约203人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12692人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 45 - Date: April 18, 2022 :<br/>Medyka Rescue Station Reception: about 203 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12692 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group9/getter/2022/04/19/12/22e752ba-3b5d-b95d-ef10-b23e1e723984/7f4ebf63b56da14f48f855097eff55d1.jpg)
-
----
-
-`@miles 4/19/2022 10:59 AM (UTC)`
-
-美國之音419斷播門<br/>5周年特別直播<br/>即将开始💙💙
-![img](https://media.gettr.com/group34/origin/2022/04/19/10/605a6562-d2b0-b65d-5e1e-432a8d2ee0a8/87d6ddc512b455871bfc8eacf44ba8ee.jpg)
-
----
-
-`@miles 4/19/2022 8:39 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group18/origin/2022/04/19/08/6d6f7d90-341e-f393-0917-0456925ce4c3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,8 +2,8 @@
 ---
 
 
-## VOA的采访是在七哥的计划中
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376880/)
+## 公安部是共产党的打手，陶晶对七哥判断，骨子里全是共毒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376921/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

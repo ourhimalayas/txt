@@ -2,8 +2,8 @@
 ---
 
 
-## 王岐山抓的人并不都是坏人，很多都是挡他路的人，习现在还没有动王岐山
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376862/)
+## 我们并不会真正冲击到共产党里的坏人（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376903/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

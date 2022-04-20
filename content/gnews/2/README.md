@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥对现在的我们自己的媒体平台并不满意
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376875/)
+## 我们并不会真正冲击到共产党里的坏人（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376913/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
