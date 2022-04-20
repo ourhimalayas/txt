@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 3:51 PM (UTC)`
+
+【419 5th Anniversary】4/19/2022 Meng Jianzhu regretted very much that he did not get rid of Xi promptly; there is no doubt that the Whistleblowers’ Movement completely changed the course of China! The credit goes to citizens of the New Federal State of China, particularly those anonymous fellow fighters within the CCP who have been making contributions silently.<br/><br/>【419五周年】4/19/2022 孟建柱现在最后悔当时没有把习做掉。爆料革命毫无疑问百分之百地改变了中国！这一切归功于新中国联邦人，特别是在体制内默默无闻地奉献的战友们！<br/>
+![img](https://media.gettr.com/group23/getter/2022/04/20/15/c5fea8b5-5d6b-c597-5456-f65c06c471a1/out.jpg)
+
+---
+
 `@miles 4/20/2022 3:28 PM (UTC)`
 
 4月20号，《铁锁梦》MV在全球上线第二天，登榜iTunes <br/>23国MV总榜第一名🥇<br/>23国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼， 新加坡🇸🇬， 马来西亚🇲🇾， 新西兰🇳🇿， 澳大利亚🇦🇺，西班牙🇪🇸，荷兰🇳🇱，德国🇩🇪，法国🇫🇷，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，瑞典🇸🇪，英国🇬🇧，意大利🇮🇹，泰国🇹🇭，柬埔寨🇰🇭，越南🇻🇳，希腊🇬🇷，丹麦🇩🇰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2380546/<br/>
@@ -145,13 +152,6 @@
 
 2022-4-19《鸡血王喜币大作战》 第一百七十集 嘉宾：无双柳薇薇、文空
 ![img](https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 2:38 AM (UTC)`
-
-<br/>【419 5th Anniversary】 4/19/2022 April 19, 2017, was absolutely the real beginning of the Whistleblowers’ Movement. We have proved over the five years that we respect women and love our mothers. 70% of the fellow fighters of the Whistleblowers’ Movement are females, who have set a new image of the females of the new China in the world and will be the most wealthy, the most powerful, and the most influential. The past five years are the most spectacular years that we have spent together with all the conscientious Chinese.<br/><br/>【419五周年】4/19/2022 419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人；过去的5年是我们和中国有良知的人度过的最最伟大的5年！<br/>
-![img](https://media.gettr.com/group34/getter/2022/04/20/02/2663306b-7bef-5ac7-a3cd-41ba573af9f8/out.jpg)
 
 ---
 
