@@ -15,110 +15,110 @@
 
 ---
 
-### [COVID-19疫苗副作用集萃（2022.4.20D)](/content/gnews/1/README.md)
+### [419五周年：郭文贵先生谈如何钓鱼中共特务龚小夏](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20220419郭文贵大直播 ：NICK 讲述跟随爆料革命的真实经历](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
+### [视频|台湾政务委员与美国贸易代表视像会面 盼台美签双边贸易协定](/content/gnews/2/README.md)
+ ` MOSVIDEO`
 
-### [“负增长”，专家称中共国的最新经济报告是在吹牛](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [据报道，埃隆马斯克在 10 天内为 Twitter 设置了行动](/content/gnews/4/README.md)
- ` 波士顿五月花农场金融部`
-
-### [樱花FM｜暴涨的疫情病例戳穿中共谎言（下）](/content/gnews/5/README.md)
- ` 樱花FM`
-
-### [专家：中共扩充核武库是为了“统治全球 ”](/content/gnews/6/README.md)
- ` 日本東京方舟農場`
-
-### [受制裁的俄罗斯寡头叩问与乌克兰的 “疯狂战争 ”](/content/gnews/7/README.md)
- ` 波士顿五月花农场金融部`
-
-### [2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密](/content/gnews/8/README.md)
- ` 秘密翻译组-原创组`
-
-### [樱花FM｜暴涨的疫情病例戳穿中共谎言（上）](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [俄乌战争｜日本今驱逐8名俄罗斯外交人员](/content/gnews/10/README.md)
- ` 關注組`
-
-### [樱花FM｜乌克兰两枚反舰导弹重创俄海军旗舰“莫斯科”号](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花FM｜英国泽西岛法院下令冻结阿布拉莫维奇70亿美元资产](/content/gnews/13/README.md)
- ` 樱花FM`
-
-### [英国援助乌克兰5.21亿美元，并愿作为世界银行的贷款担保人](/content/gnews/14/README.md)
- ` 日本東京方舟農場`
-
-### [樱花FM｜拒绝称俄罗斯入侵为“种族灭绝”，马克龙言论引起乌克兰愤怒](/content/gnews/15/README.md)
- ` 樱花FM`
-
-### [樱花FM｜北欧2国积极加入北约，欧洲安全框架将发生重大变化](/content/gnews/16/README.md)
- ` 樱花FM`
-
-### [工党抨击莫里森：所罗门与中共的安全协议是二战以来最糟糕的政策失误](/content/gnews/17/README.md)
- ` 日本東京方舟農場`
-
-### [拜登政府要求将美国制造的钢铁用于基础设施建设](/content/gnews/18/README.md)
+### [2022/04/20 英喜时事速递](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [爆料革命最终留下5%就不错了,七哥从不在乎别人怎么看](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
+### [视频|美日等国善待从中共国上海出逃的人](/content/gnews/4/README.md)
+ ` MOSVIDEO`
 
-### [关于香港台湾目前的现状](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [李明哲夫妇感谢美国维护台湾人权，助其返台](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [台湾之子｜台湾华视“误报”共军导弹袭台 国民党立委“慎重”看待](/content/gnews/21/README.md)
+### [视频|郭文贵先生419美国之音断播门事件回顾](/content/gnews/6/README.md)
+ ` MOSVIDEO`
+
+### [樱花FM┃俄乌大战在即，美将提供大量重武器援助乌军](/content/gnews/7/README.md)
+ ` 樱花FM`
+
+### [以网治国 习近平主持召开深改委第二十五次会议](/content/gnews/8/README.md)
+ ` 儒为`
+
+### [视频|郭文贵先生剖析俄乌战争的本质：独裁与自由之战](/content/gnews/9/README.md)
+ ` MOSVIDEO`
+
+### [纪念419断播门](/content/gnews/10/README.md)
+ ` 银河勇气之星`
+
+### [20220419郭文贵大直播 ：NICK 讲述跟随爆料革命的真实经历](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [拜登已告诉奥巴马他将再次参选](/content/gnews/12/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [据报道，埃隆马斯克在 10 天内为 Twitter 设置了行动](/content/gnews/13/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [受制裁的俄罗斯寡头叩问与乌克兰的 “疯狂战争 ”](/content/gnews/14/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密](/content/gnews/15/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄乌战争｜日本今驱逐8名俄罗斯外交人员](/content/gnews/16/README.md)
  ` 關注組`
 
-### [乌克兰凸显了俄罗斯和中共国危险的战略“地图”](/content/gnews/22/README.md)
+### [樱花FM｜日本首个技能签转永居由中国籍男性获得](/content/gnews/17/README.md)
+ ` 樱花FM`
+
+### [樱花FM｜习包子仍坚持“清零政策”](/content/gnews/18/README.md)
+ ` 樱花FM`
+
+### [英国援助乌克兰5.21亿美元，并愿作为世界银行的贷款担保人](/content/gnews/19/README.md)
+ ` 日本東京方舟農場`
+
+### [樱花FM｜郭文贵先生2022年4月13日第二条盖特视频全文字版](/content/gnews/20/README.md)
+ ` 樱花FM`
+
+### [工党抨击莫里森：所罗门与中共的安全协议是二战以来最糟糕的政策失误](/content/gnews/21/README.md)
+ ` 日本東京方舟農場`
+
+### [拜登政府要求将美国制造的钢铁用于基础设施建设](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [台湾之子｜台湾华视“误报”共军导弹袭台 国民党立委“慎重”看待](/content/gnews/23/README.md)
+ ` 關注組`
+
+### [乌克兰凸显了俄罗斯和中共国危险的战略“地图”](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前线采访：中共对上海的恐怖手段和乌克兰战争都是独裁者的罪行](/content/gnews/23/README.md)
+### [前线采访：中共对上海的恐怖手段和乌克兰战争都是独裁者的罪行](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [忧中共渗透太平洋岛国 美高官将出访所罗门群岛](/content/gnews/24/README.md)
+### [忧中共渗透太平洋岛国 美高官将出访所罗门群岛](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [郭文贵先生剖析俄乌战争的本质：独裁与自由之战](/content/gnews/25/README.md)
+### [郭文贵先生剖析俄乌战争的本质：独裁与自由之战](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [谈古论今 | 从红卫兵到白卫兵——民族性的癌症](/content/gnews/26/README.md)
+### [谈古论今 | 从红卫兵到白卫兵——民族性的癌症](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台海危机｜报多区遭解放军导弹击中 台湾华视道歉称失误所致](/content/gnews/27/README.md)
+### [台海危机｜报多区遭解放军导弹击中 台湾华视道歉称失误所致](/content/gnews/29/README.md)
  ` 關注組`
 
-### [美国“人民车队”自由抗议，加拿大“自由车队”遭秋后算账](/content/gnews/28/README.md)
+### [美国“人民车队”自由抗议，加拿大“自由车队”遭秋后算账](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆|网商银行4月21日起将逐步暂停支付宝提现](/content/gnews/29/README.md)
+### [中日财经爆|网商银行4月21日起将逐步暂停支付宝提现](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平](/content/gnews/30/README.md)
+### [中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [嗅觉障碍会增加死亡风险](/content/gnews/31/README.md)
+### [嗅觉障碍会增加死亡风险](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日本央行开展3月下旬以来首次限制国债利率操作](/content/gnews/32/README.md)
+### [中日财经爆|日本央行开展3月下旬以来首次限制国债利率操作](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共攻台前奏：台湾报告“首例儿童死亡”或促全员核酸](/content/gnews/33/README.md)
+### [中共攻台前奏：台湾报告“首例儿童死亡”或促全员核酸](/content/gnews/35/README.md)
  ` 战云长天时评`
-
-### [樱花时政┃日本撤销对俄最惠国待遇暂定关税法成立](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新西兰政府宣布对俄罗斯金融机构的新制裁](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [中共体制内的人能捞就捞的心态自害而害人](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
