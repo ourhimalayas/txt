@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 3:10 AM (UTC)`
+
+【419 5th Anniversary】4/19/2022 Mr. Miles Guo revealed how he entrapped Sasha Gong, the CCP’s professional spy, 5 years ago. April 19, 2017, is the day that marked the advent of Mr. Guo on the world stage. With one foot stepping on the so-called Interpol and the other on the VOA, Mr. Guo soared up into the clouds to directly deal a fatal blow to the CCP’s power center - the Zhongnanhai Pit!<br/><br/>【419五周年】4/19/2022 郭先生回顾五年前419如何钓鱼中共专业特务龚小夏；2017年4月19日标志着文贵先生踏出江湖，脚踩所谓的国际刑警组织和美国之音、踏上云端直接干向中南坑！<br/>
+![img](https://media.gettr.com/group40/getter/2022/04/20/03/3497e0c7-a466-553c-1ce6-8b97e8f140ea/out.jpg)
+
+---
+
+`@miles 4/20/2022 3:01 AM (UTC)`
+
+2022-4-19《鸡血王喜币大作战》 第一百七十集 嘉宾：无双柳薇薇、文空
+![img](https://media.gettr.com/group40/origin/2022/04/20/03/40421ae3-bc67-2942-4ee5-8e337b6c3ebf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 2:38 AM (UTC)`
 
 <br/>【419 5th Anniversary】 4/19/2022 April 19, 2017, was absolutely the real beginning of the Whistleblowers’ Movement. We have proved over the five years that we respect women and love our mothers. 70% of the fellow fighters of the Whistleblowers’ Movement are females, who have set a new image of the females of the new China in the world and will be the most wealthy, the most powerful, and the most influential. The past five years are the most spectacular years that we have spent together with all the conscientious Chinese.<br/><br/>【419五周年】4/19/2022 419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人；过去的5年是我们和中国有良知的人度过的最最伟大的5年！<br/>
@@ -140,18 +154,6 @@
 
 【419 5th Anniversary】Mr. Miles Guo expresses that all the whistleblowing that failed to end 5 years ago on 419 will gradually come to light in the future: whether it is Wang Qishan's money, Liu Chengjie's dad, and the relationship between the CCP and Wall Street.<br/><br/>【419五周年】郭文贵先生表示，5年前419未能结束的爆料未来都会逐渐曝光：无论是王岐山的钱、刘呈杰的爹，以及中共同华尔街的关系。<br/><br/>
 ![img](https://media.gettr.com/group15/getter/2022/04/19/16/67cb0a4f-9ead-e101-223c-aebdfd83bcc4/out.jpg)
-
----
-
-`@miles 4/19/2022 3:55 PM (UTC)`
-
-4月19号，《铁锁梦》MV在全球上线第一天，登榜iTunes <br/>23国MV总榜第一名🥇<br/>24国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门 🇲🇴，台湾 🇹🇼， 新加坡 🇸🇬， 马来西亚🇲🇾， 新西兰 🇳🇿， 澳大利亚🇦🇺，西班牙🇪🇸，荷兰🇳🇱，德国🇩🇪，法国🇫🇷，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，瑞典🇸🇪，英国🇬🇧，意大利🇮🇹，泰国🇹🇭，柬埔寨🇰🇭，印度尼西亚🇮🇩，越南🇻🇳，希腊🇬🇷的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2374622/<br/>
-
----
-
-`@miles 4/19/2022 3:51 PM (UTC)`
-
-04/19/2022 on the 1st day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 23 countries Top Music Video Charts <br/>No.1 🥇 on 24 countries Pop Music Video Charts <br/>Miracle continuous……. 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in 🇭🇰 , USA 🇺🇸, UAE 🇦🇪, Macau 🇲🇴, Taiwan 🇹🇼, Singapore 🇸🇬, Malaysia 🇲🇾, New Zealand 🇳🇿, Australia 🇦🇺, Spain 🇪🇸, Netherlands 🇳🇱, Germany 🇩🇪, France 🇫🇷, Hungary 🇭🇺, Canada 🇨🇦, Japan 🇯🇵, Sweden 🇸🇪, UK 🇬🇧, Italy 🇮🇹, Thailand 🇹🇭, Cambodia 🇰🇭, Indonesia 🇮🇩, Vietnam 🇻🇳, Greece 🇬🇷 <br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2374623/
 
 ---
 
