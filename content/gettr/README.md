@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 5:20 PM (UTC)`
+
+MILES GUO 直播 2022-04-20
+![img](https://media.gettr.com/group1/liveorigin/2022/04/20/17/5b7b9a69-7cfc-ead5-a432-3273e87abc2f/db77deaeeaadf94601c75dae84bb7948.jpg)
+
+---
+
+`@miles 4/20/2022 5:15 PM (UTC)`
+
+MILES GUO Livestream 2022-04-20
+![img](https://media.gettr.com/group9/getter/2022/04/20/17/56fd9d7f-339b-3e15-f494-56f09902dc91/269f7b0af235fc925082f2145d64e0c7.jpg)
+
+---
+
 `@miles 4/20/2022 4:04 PM (UTC)`
 
 【419 5th Anniversary】4/19/2022 With Wang Huning etc chosen as head of the CCP’s think tank, Xi is destined to go on the journey of extreme Communism and Marxism; Marxism is an evil ideology of ruling mankind and enslaving mankind; in the eyes of Marxists and the CCP, as said by Mao’s mistress Zhang Yufeng, women are nothing but their urinals.<br/><br/>【419五周年】4/19/2022 选择王沪宁等人作为智囊注定了习必然走极端的共产主义马克思主义路线。马克思思想是统治人类奴隶人类的魔鬼思想，在对待女性问题上，正如毛泽东的情妇张玉凤所说，在共产党眼里，女人不过是他们的尿壶。<br/>
@@ -138,20 +152,6 @@
 
 【419 5th Anniversary】04/19/2022 Xi’s confidence comes from superstitions. He believes he is the reincarnated Buddha and he is the next chosen ruler of the world according to the Modelski’s Long Cycle Theory.<br/><br/>【419五周年】04/19/2022 习的自信来自于迷信，认为自己就是活佛转世，是莫德尔周期所说的下一个统治者。
 ![img](https://media.gettr.com/group13/getter/2022/04/20/06/0b0234df-5ac0-3de4-d3df-9ab712d811d0/out.jpg)
-
----
-
-`@miles 4/20/2022 5:00 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group12/origin/2022/04/20/04/2cf6f561-a843-c0e7-c4e3-5d3870e6dccd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 3:10 AM (UTC)`
-
-【419 5th Anniversary】4/19/2022 Mr. Miles Guo revealed how he entrapped Sasha Gong, the CCP’s professional spy, 5 years ago. April 19, 2017, is the day that marked the advent of Mr. Guo on the world stage. With one foot stepping on the so-called Interpol and the other on the VOA, Mr. Guo soared up into the clouds to directly deal a fatal blow to the CCP’s power center - the Zhongnanhai Pit!<br/><br/>【419五周年】4/19/2022 郭先生回顾五年前419如何钓鱼中共专业特务龚小夏；2017年4月19日标志着文贵先生踏出江湖，脚踩所谓的国际刑警组织和美国之音、踏上云端直接干向中南坑！<br/>
-![img](https://media.gettr.com/group40/getter/2022/04/20/03/3497e0c7-a466-553c-1ce6-8b97e8f140ea/out.jpg)
 
 ---
 
