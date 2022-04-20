@@ -2,22 +2,35 @@
 ---
 
 
-## 俄乌战争升级后中共中长期外汇储备外流
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2375378/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
 
-作者：香草山金融部 箐苹
+作者：香草山翻译部
 
-自2月份起，中共国外资流出的趋势逐渐明显。境外机构在投资基本面和趋势未发生逆转的情况下，3月继续大规模减持中共国债券资产。中债登托管数据显示，2022年2月和3月境外机构减持债券资产规模分别为669.1亿元人民币和981.6亿元人民币，合计减持人民币债券1650.7亿元，折合美元约260亿。中共外汇管理局在3月18日公布的2022年2月份银行代客结售汇顺差额数据显示，2022年2月份结售汇顺差从2021年12月份的517亿美元和2022年1月份的352亿，迅速下滑至2月份的26亿美元，两月分别环比下滑42% 和92.6%，该数据的公布引发了中共国资本外流的担忧。另外，2月银行代客涉外证券投资收付款从1月的72亿美元逆向转为负值-323亿美元，单月赤字超过中共病毒爆发初期引发的全球美元流动性危机的-314亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-12.04.03-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
 
-俄乌冲突升级引发欧亚地缘政治风险。国际社会对俄罗斯的金融和贸易制裁，加剧了境外资本短期的避险情绪。中共在俄乌战争爆发后，依然维持与俄罗斯的贸易关系，更冒天下之大不韪公然反对国际制裁俄罗斯的政治立场。以上种种，可能是引发本轮资本外流的主要原因。同时，中共国一线城市疫情频发，动态清零的政策导致管控升级，经济滞涨，也可能进一步加剧中长期资本的外流。
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+视频参看：
+[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
+[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
 
-总编：文恩
-编辑/审核：飞虹
-校正/发稿：谐趣园
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
 
  
 

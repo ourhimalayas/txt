@@ -2,15 +2,28 @@
 ---
 
 
-## 共产党的恐惧从派出龚小夏可见一斑，419是对爆料革命的天赐礼物
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376830/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2376911/)
 
-发布：*陶子*
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-19.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p164b5eae12](https://gettr.com/post/p164b5eae12)
+访谈：[https://gettr.com/post/p164sn3d67c](https://gettr.com/post/p164sn3d67c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

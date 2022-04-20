@@ -2,35 +2,46 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2375481/)
+## 美联储经济学家：把通胀目标提高到3%加密货币和黄金价格将飚升
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2375720/)
 
-作者：香草山翻译部
+#### 加拿大多伦多蓝莲花农场 丁过
+![埃里安对美国“生活成本危机”提出警告称美联储加息可能导致经济衰退- 多空信号网](https://www.atmforex.com.cn/wp-content/uploads/2022/03/%E5%9F%83%E9%87%8C%E5%AE%89%EF%BC%9A%E9%95%BF%E6%9C%9F%E8%82%A1%E7%A5%A8%E6%8A%95%E8%B5%84%E8%80%85%E4%BB%8D%E7%84%B6%E4%B8%8D%E5%BA%94%E8%AF%A5%E8%B4%AD%E4%B9%B0%E4%B8%8B%E8%B7%8C%E7%9A%84%E8%82%A1%E7%A5%A8-%E4%BD%86%E5%AF%B9%E4%BA%8E%E4%B8%93%E4%B8%9A%E4%BA%A4%E6%98%93%E5%91%98%E6%9D%A5%E8%AF%B4%E8%BF%99%E6%98%AF%E4%B8%80%E4%B8%AA%E5%85%85%E6%BB%A1%E6%9C%BA%E4%BC%9A%E7%9A%84%E7%8E%AF%E5%A2%83.jpg)来源：stocks （穆罕默德.埃利安）
+在中共病毒肆虐全球之前，美国的通胀率大都在2%以下徘徊，由于长期大量进口中共国等落后经济体的廉价商品，美国一直处于输入性通缩状态，即使长期超发美元，资本泛滥成灾，仍然出现这样的奇观：以美元计价的国际大宗商品价格长期低迷，美国的通胀率长期低迷。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+但中共病毒疫情和乌克兰战争点燃了通货膨胀的火箭，美元与美联储面临前所未有的严峻挑战与通胀压力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-2.png)
+据美国《商业内幕》4月18日报道， 美联储经济学家、安联首席经济学家穆罕默德.埃利安Mohamed El-Erian周一在接受CNBC采访时透露，美联储计划将长期通胀目标由2%提高到3%，到时加密货币和黄金价格将飚升。
 
-文章仅代表作者本人观点，与Gnews无关
+埃利安说（大意），迫使美联储改变并提高通胀目标的原因，是实际通胀率早已高于此前（2012年）制定的2%控制目标，今年3月份的通胀率更高达8.5%，而且还有继续上升的趋势，而美联储好象无所作为，其信誉已经受到了质疑和损害。
 
-视频参看：
-[2022.04.19早 《NFSC新闻》](https://gettr.com/streaming/p16125pdda9)
-[2022.04.19早《NFSC新闻访谈》](https://gettr.com/streaming/p161rhd8d27)
+但埃利安为美联储进行了辩护，他说，联储官员是因为担心如果对通胀的刹车太猛，可能短期内导致经济脱离正常运行轨道，引发经济危机及长期衰退。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+显然，埃利安是在告诉市场，未来的经济将在高通胀率之下运行，而且是长期的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-15.jpeg)
+埃利安认为，美联储提高通胀目标，对加密货币和黄金都有利，但加密货币将有更好的前景：
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+黄金是货币贬值的传统对冲工具，但缺乏流动性，而加密货币能够在通货膨胀时期吸引大量资金，是因为具有流动性方面的优势。埃利亚尔强调，流动性因素将让加密货币在未来竞争中胜出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-52.png)
+市场的一个共识是，不管美联储动用任何政策工具，都不能阻止经济危机和长期衰退的最终到来，而由私人竞争性发行并逐步取代主权货币的加密货币时代已经开启。
+
+![Hcoin to the Moon - YouTube](https://i.ytimg.com/vi/vgof8s0ahxE/maxresdefault.jpg)来源：GG nG neG newG newsGnews
+
+其底层逻辑是：
+
+诺贝尔经济学奖得主哈耶克认为，通货膨胀的唯一原因是货币投放过多，而货币滥发的根源是政府垄断了货币发行权。通货膨胀给社会带来的严重危害不是物价上涨造成的社会动荡和人心不安等，最严重的后果是对市场机制的破坏。
+
+在哈耶克看来，只要货币数量不增加，无论是较高的工资，还是较高的石油、粮食价格等，都不能抬高商品的总体价格水平。
+
+所以，恶性通胀与经济危机的循环发生，和货币垄断有直接的因果关系：当政客们手握唯一的货币发行权并且面对各种诱惑和复杂局面时，希望他们理性地抑制住发钞冲动是不可能的。
+
+因此，民主国家的政府治理科学进步，首当其冲是对现行货币发行制度的彻底改革，即使困难重重。
+
+新中国联邦创始人郭文贵先生早就洞见了货币垄断对人类社会的扭曲和危害，并且把准了危机大周期的重要节点，适时推出了货币之王Gcoin。在当前全球危机加深、未来消灭中共等邪恶力量乃至新世界重建的过程中，Gcoin和G系列将在全球范围内一直担当引领者的历史重任。
+
+参考：
+
+[Crypto and gold prices will go higher if the Fed is forced to raise its inflation target to 3%, says Mohamed El-Erian](https://markets.businessinsider.com/news/currencies/gold-crypto-prices-inflation-target-fed-interest-rates-el-erian-2022-4)
 
  
 

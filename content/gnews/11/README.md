@@ -2,8 +2,8 @@
 ---
 
 
-## 上海居民：我要進方艙，方艙有飯吃。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376910/)
+## 上海方艙隔離點裡的抗議。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376929/)
 
 作者：东京樱花团小视频组
 
