@@ -2,8 +2,8 @@
 ---
 
 
-## 美国发现中共现在正大量隐藏他们的财富，比以往增加70倍以上
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377274/)
+## 中国是阴盛阳衰，4.19到今天是中国女权运动新的开始
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377311/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

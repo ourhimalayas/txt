@@ -2,8 +2,8 @@
 ---
 
 
-## 中国是阴盛阳衰，4.19到今天是中国女权运动新的开始
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377311/)
+## 中国女性是民族国家的基石，未来新中国联邦人的代表形象
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2377340/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
