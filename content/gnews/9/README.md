@@ -2,8 +2,8 @@
 ---
 
 
-## 一個上海家政服務員的真實敘述。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376881/)
+## 上海居民：我要進方艙，方艙有飯吃。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376910/)
 
 作者：东京樱花团小视频组
 

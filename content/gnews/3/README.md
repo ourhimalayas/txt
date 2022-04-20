@@ -2,8 +2,8 @@
 ---
 
 
-## 上海疫情下，女子帶著行李箱住在取款機房裡。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376907/)
+## 河北省邯鄲市雞澤縣：領導命令，街上有人，拿磚頭就拍。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376947/)
 
 作者：东京樱花团小视频组
 

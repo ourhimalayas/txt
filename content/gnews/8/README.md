@@ -2,8 +2,8 @@
 ---
 
 
-## 郭七条为什么不反习，不反习要灭习
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376887/)
+## 我们并不会真正冲击到共产党里的坏人（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376913/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

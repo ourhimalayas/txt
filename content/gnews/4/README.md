@@ -2,18 +2,10 @@
 ---
 
 
-## 我们并不会真正冲击到共产党里的坏人（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376903/)
+## 4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2376946/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-发布：*陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+秘密翻译组-北美组
 
  
 

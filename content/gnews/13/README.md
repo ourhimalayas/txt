@@ -2,10 +2,20 @@
 ---
 
 
-## 4/19/2022【419五周年】滕文生和王沪宁在习还是副主席的时候就提出&#8221;中共未来30年&#8221;，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2376811/)
+## 2022年4月20日《樱花快报》：美国决定5月份召开第二次全球应对中共病毒疫情峰会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2376849/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220420快报.jpg)
+
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

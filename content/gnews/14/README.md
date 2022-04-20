@@ -2,11 +2,8 @@
 ---
 
 
-## 龚小夏知道七哥419当天爆料内容，龚小夏是共产党的专业特务
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376794/)
-
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+## 共产党的恐惧从派出龚小夏可见一斑，419是对爆料革命的天赐礼物
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2376830/)
 
 发布：*陶子*
 
