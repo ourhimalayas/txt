@@ -2,28 +2,28 @@
 ---
 
 
-## 文贵先生“不反习”的智慧
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380325/)
+## 欧米克隆国产疫苗获准在香港临床试验
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380471/)
 
-作者：加拿大温哥华扬帆农场-晨熹
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-15.jpg)
+CTV NEWS 4月16日报道，国药控股和科兴生物技术公司周六表示，两家公司针对Omicron变种研发的新冠病毒候选疫苗已获批在香港进行临床试验。世界各地的科学家正在竞相研究针对Omicron的升级疫苗。因为数据表明，基于旧毒株的疫苗所产生的抗体在中和这种高度传染性的变种时表现出较弱的活性。两家公司在声明中表示，来自国药控股子公司中国生物技术集团(CNBG)的两种候选疫苗和来自中国科兴的候选疫苗含有灭活或“杀死”的冠状病毒，与两家公司在中国和海外供应的疫苗相似。CNBG表示，国药集团的候选疫苗将在已经接种了两到三剂疫苗的成人身上进行增强剂测试。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2484.png)
+原文链接：[https://www.ctvnews.ca/health/coronavirus/omicron-specific-sinopharm-sinovac-covid-vaccine-candidates-cleared-for-clinical-trial-1.5864005](https://www.ctvnews.ca/health/coronavirus/omicron-specific-sinopharm-sinovac-covid-vaccine-candidates-cleared-for-clinical-trial-1.5864005)
 
-
-据文贵先生在4月19日美国之音断播五周年直播中透露，最初提出“郭七条”中“不反习”最重要的原因：不反习，是要灭掉习！
-
-文贵先生还透露自己曾经和习近平本人有过很多次接触，对其家人都很熟悉，对习本人的个性也非常了解。不灭习，习会灭掉全世界，会灭掉全中国人！
-
-断播门后，文贵先生提出了以“反对以黑治国，反对以警治国，反对以贪反贪，反对以黑反贪；不反国家，不反民族，不反习主席”为内容的“郭七条”，一度曾饱受争议。
-
-五年后事实再次验证，文贵先生“郭七条”蕴藏的大智慧：不仅成功救出家人，而且成功离间了习近平和王岐山、孟建柱以及和上海帮之间的关系。加大他们之间的互相怀疑，利用政治角斗灭掉对手。如今只剩习近平一家独大，内外交困，“不反习，而是要灭掉习”的时机已经成熟。文贵先生揭开“郭七条”最终的秘密，也意味着五年的爆料革命已经进入到决战决胜的阶段。
-
-新闻来源：[https://gettr.com/streaming/p161dm5929a](https://gettr.com/streaming/p161dm5929a)
-
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 重生之鹰
+素材/采编 – 青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-编辑发稿：硫酸羟氯喹64
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

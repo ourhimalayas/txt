@@ -2,43 +2,27 @@
 ---
 
 
-## 有声|欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2380240/)
+## 中共在“清零”政策掩护下的毒疫苗杀人计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2380409/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台湾中央社4月18日的报道，自从俄军2月24日入侵乌克兰之后，各个国家的大使馆从基辅迁移。但在俄军撤离基辅周围和乌克兰北部后，欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-1-2.jpg)
-意大利驻基辅的大使馆18日重新开放，意大利将驻基辅外交官转移到乌西城市利维夫。
+作者：骄子，追着曙光跑
 
-西班牙总理桑切斯在接受Antena3电视网采访时指出，将在不久之后重新开放西班牙驻乌克兰基辅的大使馆。西班牙使馆人员先前迁移至波兰。
+4月18日，郭文贵先生在盖特视频中再次揭露了中共政府以疫情“清零”政策为掩护，实施毒疫苗杀人计划的丑恶行径。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-4.jpg)
+郭先生指出，虽然中共声称其在2022年第一季度的经济增长速度达到4.8%，但据内部战友爆料，2022年中共国内的各项经济指标全部都是负增长。为此，对于所有中共认为会消耗社会资源、占用医疗物资、对社会难有贡献或已经成为社会负担的人群，例如中共国内60岁以上的群体，共产党正在试图使用中共病毒疫苗大规模地清除这部分老龄人口。
 
-土耳其一度将驻乌克兰大使馆迁移至靠近罗马尼亚边界的车尼夫契，现已迁回基辅。
+郭先生透露，目前在中共国内施行的防疫“清零”政策可以降低60%到70%的社会成本。与此同时，中共再使用毒疫苗杀人灭口，以此减轻自身负担，从而妄图继续巩固其邪恶统治。对此，郭先生补充，即将在青岛、大连、哈尔滨和海口实行的疫情“清零”政策正是中共这一杀人计划的幌子。
 
-法国上周宣布，驻乌克兰大使馆将从利维夫迁回基辅。
+郭先生也再次提醒墙内同胞，一定要认清中共在毒疫苗问题上的谎言：所有共产党的高层根本没有接种过中共病毒疫苗。因此，墙内的同胞务必真爱生命，远离中共病毒疫苗。
 
+参考链接：[4月18日：尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！](https://gettr.com/post/p15wbxu0c9c)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-
-
-文字版原文：[欧洲多个国家陆续重新开放驻乌克兰基辅的大使馆](https://gnews.org/zh-hans/2374512/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：Irene木木
+编辑：Delilah小胖
+审核：Ivy001
+校正/发稿：Fei797
 
  
 

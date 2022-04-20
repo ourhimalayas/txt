@@ -2,43 +2,27 @@
 ---
 
 
-## 有声|乌克兰哈尔科夫接连四天遭受炮击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2380199/)
+## 文贵先生“不反习”的智慧
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380325/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰总统泽连斯基17日晚间表示，过去四天在乌克兰东北部城市哈尔科夫发生的炮击事件造成18人死亡，100多人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-11.44.24-AM.png)
-哈尔科夫州长奥列·辛耶胡博夫(Oleh Synyehubov)早些时候表示，周日，一枚导弹和炮火袭击了市中心和萨尔蒂夫卡郊区，造成 5 人死亡、20 人受伤。
+作者：加拿大温哥华扬帆农场-晨熹
 
-报道进一步表示，确切的遇难人数目前无法获得独立的核实。
-
-泽连斯基在晚间讲话中说，俄罗斯对哈尔科夫的炮击一直在持续。他指责俄罗斯蓄意通过炮火攻击平民制造恐怖气氛。
-
-辛耶胡博夫表示，乌克兰武装部队在哈尔科夫地区成功地进行了反击，完全夺回了两个村庄，另一个村庄也被部分夺回。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2484.png)
 
 
+据文贵先生在4月19日美国之音断播五周年直播中透露，最初提出“郭七条”中“不反习”最重要的原因：不反习，是要灭掉习！
 
+文贵先生还透露自己曾经和习近平本人有过很多次接触，对其家人都很熟悉，对习本人的个性也非常了解。不灭习，习会灭掉全世界，会灭掉全中国人！
 
+断播门后，文贵先生提出了以“反对以黑治国，反对以警治国，反对以贪反贪，反对以黑反贪；不反国家，不反民族，不反习主席”为内容的“郭七条”，一度曾饱受争议。
 
-文字版原文：[乌克兰哈尔科夫接连四天遭受炮击](https://gnews.org/zh-hans/2375313/)
+五年后事实再次验证，文贵先生“郭七条”蕴藏的大智慧：不仅成功救出家人，而且成功离间了习近平和王岐山、孟建柱以及和上海帮之间的关系。加大他们之间的互相怀疑，利用政治角斗灭掉对手。如今只剩习近平一家独大，内外交困，“不反习，而是要灭掉习”的时机已经成熟。文贵先生揭开“郭七条”最终的秘密，也意味着五年的爆料革命已经进入到决战决胜的阶段。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+新闻来源：[https://gettr.com/streaming/p161dm5929a](https://gettr.com/streaming/p161dm5929a)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑发稿：硫酸羟氯喹64
 
  
 

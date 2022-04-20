@@ -2,44 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.20J）－打完安徽智飞第三针手臂痒痛
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2380058/)
+## 美国防部长请求与中共军方许其亮进行通话被降级对待
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2380252/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-3-ee7c9d049a.jpg)图片来源：路透社
+4月20日，《新闻极限》引述美联社的文章，报道自国防部长劳埃德·奥斯汀（Lloyd Austin）成为五角大楼负责人一年多以来，周三，他第一次与中共军方人士进行了通话。
 
-整理/编辑：gardeniahu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-53.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+文章称，之所以有此次通话，是因为美国官员担心北京可能为俄罗斯入侵乌克兰的战争提供军事支持。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+美国军方几个月以来一直想与中共军方军衔最高的许其亮将军通话但均以失败告终，此次奥斯汀直接要求与许其亮将军进行电话会谈
 
-帖子原文：
+但是，虽然奥斯汀想与许其亮通话，但却被中共方面拒绝，代之的是级别较低的魏凤和与其进行通话。
 
-博主：Miss.晴
+以前，奥斯汀的前任们通常都是与魏凤和交谈，最近一次是在2020年8月6日，当时的国防部长马克·埃斯珀（Mark Esper）向他提出了美国要求在中共病毒（Covid-19）的起源和其他问题上提高透明度的要求。
 
-安徽智飞真要命
+一位高级国防官员说，在周三的电话中，奥斯汀回应了拜登关于管理美中战略竞争的重要性的信息，包括在核、太空和网络领域，以及改善全球大国之间的危机沟通。
 
-之前小红书看了N多关于不同疫苗的优点，发现科兴和智飞给人最棒的感觉。到大家都接种科兴疫苗的时候，我正好碰上治牙吃了消炎药，想说等几天吧。结果就只有智飞和生物了，选了智飞，毕竟可以防那啥病毒。第一针没不良反应，第二针就有点痒，痒了一周，谁知第三针，手肿的要炸裂的感觉，又肿又痛还痒。。从手臂到手指，胀痛到睡不着。。有种想切肉的感觉。
+该官员说，针对中国对台湾进行的军事挑衅，奥斯汀提出了关切，还表达了美国对中国在南中国海和东中国海活动的关切，并提出了美国对朝鲜核武器计划的担忧。
 
-#安徽智飞
+*责编：彩虹*
 
-发布于2021.08.13
+**新闻来源**
 
-精选评论
-
-七喜胖嘟嘟回复:第一针没有反应，第二针第三针就是这样，我觉得痛到是无所谓，关键痒的受不住，恨不得胳膊不要了。
-
-辜回复：我也是巨肿巨痒，可以买丹皮酚药膏涂，可以消的！才十块钱亲测有用！还是当时去药店医生也是疫苗过敏，自己涂好了，冲冲冲，第二针涂好了，第三针又肿了，涂两天涂好了，好感动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2482.png)图片来源：小红书
-素材来源：[打完安徽智飞第三针手臂痒痛](https://www.xiaohongshu.com/discovery/item/61168b61000000000102cdba?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650198714)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[Defense Secretary Austin Speaks for 1st Time to Chinese Counterpart](https://www.newsmax.com/newsfront/united-states-lloyd-austin-military-pentagon/2022/04/20/id/1066442/)
 
  
 

@@ -2,39 +2,35 @@
 ---
 
 
-## 樱花时政┃中共国家广电总局：播音员主持人要严守底线，不碰红线
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2379163/)
+## 俄罗斯宣布对马斯克的星链卫星发动太空战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379312/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月19日，国家广电总局召开播音员主持人工作座谈会。会议强调，播音员主持人要与正道同向，坚持明德敬业，做清风正气的引领者。要自觉践行社会主义核心价值观，讲品味、讲格调、讲责任，反对低俗、庸俗、媚俗。要把职业道德作为立身之本，不断提升职业道德水平，坚持正确的义利观，加强思想自律和行为约束，看淡名利，抵制诱惑，净化“交际圈、朋友圈”，遵守法律法规，遵循公序良俗，严守底线，不碰红线。要大力弘扬文明风尚，履行社会责任，努力做到言为士则、行为规范，激励人们向上向善。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-415.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg1.gtimg.com%2Ftech%2Fpics%2Fhv1%2F97%2F49%2F1798%2F116927542.jpg&amp;imgrefurl=https%3A%2F%2Ftech.qq.com%2Fa%2F20150305%2F000007.htm&amp;tbnid=iefn1vjLvQcq_M&amp;vet=12ahUKEwi1no3yuqL3AhUNvBQKHTTECncQMygFegUIARCOAQ..i&amp;docid=1CZbIBADRbXbsM&amp;w=640&amp;h=360&amp;q=%E7%9C%9F%E5%AE%9E%E6%80%A7&amp;ved=2ahUKEwi1no3yuqL3AhUNvBQKHTTECncQMygFegUIARCOAQ)
-中共习惯用“讲品味、讲格调、讲责任，反对低俗、庸俗、媚俗”这样的虚词来形成法律法规。作为一项规定，最怕的是这种虚词。从来不跟你解释啥东西才叫叫“有底线”的品味，啥东西叫有格调，啥东西才不庸俗？而且从行文上来看，似乎庸俗是一种罪？这正是中共国法律形同虚设的根本原因。
+#### 【雅典娜观察】，紧贴时代脉搏
 
-中共国素有头痛医头、脚痛医脚的传统。此次发布的这项规定有网友猜测起因是，(据大纪元报道)近日辽宁省著名主持人朱霞在个人短视频平台账号上直播，在与粉丝互动聊天时，有人问到沈阳疫情的情况，朱霞可能对“内部消息”有所了解，在直播间里呼吁沈阳市民保护自己。朱霞说，“皇姑区的朋友，你们听我的，啊，我不能说为什么，也不能说原因和理由，你们就听我的就完了，皇姑区的朋友一定一定要做好个人的防护再出去，啊。”她还提到，“下午的核酸是区域核酸。大家伙儿都人人自危，很害怕，皇姑区你们都比较危险，你们明白吗？你们一定一定要做好个人防护，啊。”遭到了停职处理。
+翻译/编辑：文泓
 
-这样的规定使人不得不提出疑问，新闻工作者最基本的职业操守是什么？原香港新闻工作者的理念可以借鉴，我们确信言论自由是一项基本人权。我们确信新闻自由是言论自由的具体呈现，获基本法保障。我们确信新闻从业员应竭力维护新闻自由，以公众利益为依归。我们确信新闻从业员须遵循真实、客观、公正的原则。我们认为传媒机构拥有者及新闻行政人员，更有责任鼓励和要求员工信守这些理念。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2467.png)图片来源：Republic World & 雅典娜设计组
 
-操守守则：
 
-1、新闻从业员应以求真、公平、客观、不偏不倚和全面的态度处理新闻材料，确保报道正确无误，没有断章取义或曲解新闻材料的原意，不致误导大众。
+近日，马斯克Space X的星链(Starlink)互联网卫星激怒了俄罗斯，因为据报道，星链卫星被用来引导和转移黑海舰队旗舰巡洋舰莫斯科号的火力（攻击无人机），并最终导致其沉没。俄总参谋部的新数据揭示了这一点。
 
-2、若报道失实、误导或歪曲原意，应让当事人回应，尽快更正。
+总理梅德韦杰夫下令摧毁位于俄罗斯联邦领土、军事特别行动区和黑海盆地上空的星链卫星，以确保所有参与对乌战争作战单位的安全。
 
-3、新闻从业员在处理新…
+他进一步表示，俄罗斯无意将外层空间军事化，但也不会允许其他国家这样做，这表明俄罗斯将对任何试图将外层空间军事化的人采取行动。梅德韦杰夫表示，黑海舰队司令奥西波夫四世将被免职。
 
-在中共国作为新闻工作者非常不容易，明知是谎言还要把帮凶的工作做好，骗人不能露馅知道是假新闻也要一本正经的说。精神压力巨大，每时每刻都要承受良知与邪恶的考验，如果没有强大的承受能力绝对会精神分裂。
+另据《伦敦时报》报道，早些时候，埃隆·马斯克的星链卫星技术正在协助一支乌克兰精英无人机部队（Aerorozvidka）摧毁俄罗斯装备，这支部队专门从事空中侦察和无人机战争，使用配备红外摄像机的无人机在夜间观察俄罗斯军事装备，如坦克和指挥船。
 
-消息来源：[国家广电总局：播音员主持人要严守底线不碰红线](http://www.xhby.net/index/202204/t20220420_7510435.shtml)
+“莫斯科号”的损失对俄罗斯军方来说是一个严重的打击，因为它是俄黑海舰队旗舰。莫斯科是一个浮动防空中心，拥有三层强大的防空武器，包括64枚远程S-300F导弹、40枚中程OSA-AM导弹和6个AK-630近距离武器系统。现在俄军在黑海的防空系统中留下了很大漏洞，敖德萨附近海域作业的所有俄罗斯船只均暴露。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+原文链接： [Russia announces space war on Elon Musk’s Starlink satellites, accepts Moskva was attacked (republicworld.com)](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-announces-space-war-on-elon-musks-starlink-satellites-accepts-moskva-was-attacked-articleshow.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
