@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 6:39 AM (UTC)`
+
+【419 5th Anniversary】04/19/2022 A fellow fighter risked his life to provide the intelligence of Taiwan drones because he saw the Taiwanese are willing to participate in the Whistleblowers’ Movement.<br/><br/>【419五周年】04/19/2022 战友因为看到台湾人愿意参加爆料革命，冒生命危险提供台湾无人机情报。<br/><br/>
+![img](https://media.gettr.com/group28/getter/2022/04/20/06/8befaadd-560f-c318-9426-3bf00aa7bdb0/out.jpg)
+
+---
+
+`@miles 4/20/2022 6:33 AM (UTC)`
+
+【419 5th Anniversary】04/19/2022 Xi’s confidence comes from superstitions. He believes he is the reincarnated Buddha and he is the next chosen ruler of the world according to the Modelski’s Long Cycle Theory.<br/><br/>【419五周年】04/19/2022 习的自信来自于迷信，认为自己就是活佛转世，是莫德尔周期所说的下一个统治者。
+![img](https://media.gettr.com/group13/getter/2022/04/20/06/0b0234df-5ac0-3de4-d3df-9ab712d811d0/out.jpg)
+
+---
+
 `@miles 4/20/2022 5:00 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -140,20 +154,6 @@
 
 【419 5th Anniversary】Mr. Miles Guo: The poison of the Chinese Communist Party is the poison from the most devilish power on earth, and it will not stop the harm until it is drained out completely.<br/><br/>【419五周年】郭文贵先生：中共的毒就像人间最魔鬼的力量的魔水，不把它排出去，它是停不了的。<br/>
 ![img](https://media.gettr.com/group40/getter/2022/04/19/18/99a9336d-6f3b-fdc9-7087-dd10671007d4/out.jpg)
-
----
-
-`@miles 4/19/2022 5:36 PM (UTC)`
-
-4/19/2022 【419 5th Anniversary】Looking back to April 19, 2017, the top CCP cadres believed Miles Guo was that collapsing wall in the famous Chinese proverbs “a wise man will never stand by a collapsing wall”; however, after 5 years, Mr. Guo has proved by using his own experiences that the evil China Communist Party is that collapsing wall and the New Federal State of China is the reliable support and backup for our Chinese, therefore, you can turn into a wise or foolish person in one thought<br/><br/>4/19/2022【419五周年】回望五年前的419，中共高层认为文贵是“君子不立危墙之下“的危墙，而历经五年，文贵先生用亲身证明中共才是危墙，新中国联邦是中国人可依赖的靠山，智者和蠢者只在一线间！<br/>
-![img](https://media.gettr.com/group5/getter/2022/04/19/17/d4889dc0-e2f9-99e6-93d6-adaab5f2fb39/out.jpg)
-
----
-
-`@miles 4/19/2022 5:21 PM (UTC)`
-
-4.19 美国之音采访郭文贵先生断播事件五周年纪念<br/>5th Anniversary of 4/19 VOA live interview with Mr. Miles Guo cut off incident <br/>
-![img](https://media.gettr.com/group33/getter/2022/04/19/17/6703acf3-62bf-be9e-81a2-a0ab8ae086ad/out.jpg)
 
 ---
 
