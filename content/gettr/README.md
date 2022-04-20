@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 9:04 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group5/origin/2022/04/20/07/2d284326-9927-1502-e2b8-9c2b90433392/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 7:19 AM (UTC)`
 
 【419 5th anniversary】04/19/2022 Although there are traitors in Taiwan, the Whistleblowers’ Movement and the world are protecting it. Mr. Miles Guo will share intel with the west about the whereabouts of the CCP’s submarines to help them destroy the submarines with underwater lasers.<br/><br/>【419五周年】04/19/2022 虽然台湾有卖台贼，但爆料革命和国际社会都在保护台湾。郭先生将会向西方提供中共潜水艇方位的情报帮助西方使用水下镭射将其消灭。<br/>
@@ -147,13 +154,6 @@
 
 4/19/2022 【419 5th Anniversary】Meng Hongwei, the then president of Interpol, was very reluctant to issue the red notice to me. He was the first to tell me that the CCP was going to have the Interpol issue the red notice to me, begging me not to go against the CCP. He said exposing Wang Qishan’s dirt meant I would be doomed and that the moment I open my mouth in the live broadcast on April 19, 2017, would be the time of my whole family’s demise. The HNA arranged a mansion for Meng Hongwei to live in France, but he himself is finished.<br/><br/>4/19/2022【419五周年】时任国际刑警组织主席孟宏伟当时非常不情愿给文贵发红通，他最早告诉文贵中共要发红通，并恳求文贵不跟中共做对，他说爆王岐山的料就是万劫不复，在419直播一张开嘴就是文贵全家灭亡之时；海航曾给孟宏伟在法国安排大房子住，而他本人现已完蛋<br/>
 ![img](https://media.gettr.com/group47/getter/2022/04/19/20/ea4c66b9-b03e-de85-8fd8-9feac3efa369/out.jpg)
-
----
-
-`@miles 4/19/2022 8:17 PM (UTC)`
-
-4/19/2022 【419 5th Anniversary】 In Guo’s Seven Principles, the principle ‘Not against Xi’ is followed by an undeclared statement “but to destroy Xi”; Fu Zhenghua, Sun Lijun and Bruno Wu deserve the harshest punishment under law.<br/><br/>4/19/2022【419五周年】郭七条里的”不反习”其实是要灭了习；傅政华, 孙力军和吴征必须受到最严厉的法律制裁<br/>
-![img](https://media.gettr.com/group40/getter/2022/04/19/20/a6781b9d-e902-2b2a-4c46-cccd4ff8021a/out.jpg)
 
 ---
 
