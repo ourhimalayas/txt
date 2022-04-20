@@ -2,20 +2,16 @@
 ---
 
 
-## 多伦多发生乘客被随机推下地铁事件
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380940/)
+## 22%长期护理院爆发病毒，安省每天感染超十万
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380970/)
 
 ##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-51.png)
-&lt;环球新闻&gt;4月18日报道，多伦多警方发布新闻，一名女子周日晚间被一名陌生人推下地铁站台，险些被地铁列车撞倒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-52.png)
+《渥太华公民报》4月18日报道，安省今日报告有1301人因CCP病毒感染住院，比一周前高出约19%；重症监护室病人数量同比上升约10%，从184人上升到202人；两人死于病毒。然而报告同时显示，有超过10%的医院并未提供周末的病毒感染住院数据。
 
-事件发生在市中心的Bloor-Yonge地铁站，时间是晚上9点左右。一名39岁的妇女被推下站台后摔成重伤，但幸运的是未被列车撞到，没有生命危险。这名妇女随后设法爬到了月台下面，以避免被穿行列车撞到。
+省内今天报告有2219名新增病毒感染，但由于获得PCR测试机会受限，该数字可能并不准确。安省病毒顾问小组科学主任说，废水监测表明，该省实际每天有10万至12万个新增病毒感染病例。目前省内近22%的长期护理院报告爆发疫情感染 。
 
-警方称，嫌疑人和受害者并不认识，目前尚不清楚推人之前具体发生了什么，但警方表示，事件发生之前，二人之间并无发生任何争执。 嫌疑人被描述为一名金发女性，中等身材，身穿灰色Levis衬衫，黑色夹克，黑色裤子，白色鞋子，头戴粉灰色帽子。周一上午，警方公布了嫌疑人的照片，目前警方仍在寻找该名嫌犯中。
-
-近期美加地区发生多起随机伤人事件，更有多宗专门针对亚裔团体仇恨事件发生，请广大战友出门多加小心。
-
-原文链接：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
+原文链接：[https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14)
 
 上传/发稿 – 大废墙
 撰稿/翻译/听写 – 自由法兰西🇫🇷

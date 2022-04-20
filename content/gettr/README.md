@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@globalalliance 4/19/2022 8:45 PM (UTC)`
+
+2022.04.19 新中国联邦 | 喜健康 兽药伊维菌素，青蒿琥酯，中药抗击“中共病毒”经历分享
+![img](https://media.gettr.com/group35/origin/2022/04/19/20/5a134600-a097-ce62-2d7c-d47ce5bb7535/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/20/2022 6:00 PM (UTC)`
+
+2022-04-20 俄乌战争战况播报
+![img](https://media.gettr.com/group39/origin/2022/04/20/17/fec696d5-d3a9-b475-2410-6ac392445ec5/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/20/2022 5:49 PM (UTC)`
 
  4月20号：尊敬的战友们好！刚刚的直播断掉了，我要去开会了，就不继续了，非常的抱歉。
@@ -138,20 +154,6 @@ MILES GUO Livestream 2022-04-20
 
 2022.04.20  新中国联邦 | 军情室  烏東頓巴斯戰役打響，北約最新援烏武器，台灣購買中共無人機
 ![img](https://media.gettr.com/group36/origin/2022/04/20/10/1689865c-6c49-488a-9df3-2dc6f459bfcd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 9:04 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group5/origin/2022/04/20/07/2d284326-9927-1502-e2b8-9c2b90433392/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 7:19 AM (UTC)`
-
-【419 5th anniversary】04/19/2022 Although there are traitors in Taiwan, the Whistleblowers’ Movement and the world are protecting it. Mr. Miles Guo will share intel with the west about the whereabouts of the CCP’s submarines to help them destroy the submarines with underwater lasers.<br/><br/>【419五周年】04/19/2022 虽然台湾有卖台贼，但爆料革命和国际社会都在保护台湾。郭先生将会向西方提供中共潜水艇方位的情报帮助西方使用水下镭射将其消灭。<br/>
-![img](https://media.gettr.com/group47/getter/2022/04/20/07/10bd299f-be81-2a01-e47d-97ad13750e1e/out.jpg)
 
 ---
 

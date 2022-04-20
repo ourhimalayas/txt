@@ -2,38 +2,39 @@
 ---
 
 
-## 支持俄罗斯侵略者，在德国或将面临牢狱之灾
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2380986/)
+## 文贵先生蓋特精要- 2022/04/20
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2381022/)
 
-作者: 雅典娜农场—文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Biden_69010-625d37de51f76-768x4324-1.jpg)
+链接：[https://gettr.com/post/p167ju85091](https://gettr.com/post/p167ju85091)
 
+4.19直播七哥头疼已经恢复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
-近日，在德国多个联邦州，公开展示“Z”符号、声援俄罗斯入侵乌克兰战争被视为非法。根据德国著名媒体编辑部网络（RND）所做的一项调查，目前已有140多起相关诉讼案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/61293291_303.jpeg)图片来源: 网络
-根据德国编辑部网络对联邦内政、司法部以及联邦各州刑事局所做的一项问讯调查，结果显示德国警方和检察机关迄今已承办140多件鼓吹俄罗斯入侵乌克兰战争行为的相关案件。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上都印有这一符号。
+国内战友看4.19直播哭声一片，感叹中共国现状如七哥所说一样。生存权、财务权、基本人权全部丧失。
 
-调查结果显示，仅在德东地区萨克森·安哈尔特州，自俄军入侵乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。
+新中国联邦五年创国并建立金融系统。
 
-在多个联邦州，使用该标志被视为是对俄侵略战争的支持，违反国际法，属于非法。
+因Hpay近期升级，使用有困难。Hpay未来将是代替Swift系统的加密货币支付方式。
 
-新闻链接: [https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
+法币是政府“捆绑”人民的工具，数字货币接受怀疑和挑战，值得信赖，越信价值越高。Swift系统原本是“金融界信仰”，却被政府控制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+俄乌战场使用大杀器，本质为谈判“讲数”–保证各方利益和安全。
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+台湾没有任何希望，香港、日本、澳大利亚处境类似，人类需要正道主义政治体系。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中国处于大变前夜，中共“清零管控”是死亡前挣扎。中共不可能有二十大党代会，中国土地归还人民，海外财产归还人民。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*听写：call me uncle / PR: 樂禧禧*
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 
