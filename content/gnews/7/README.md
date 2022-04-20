@@ -2,10 +2,16 @@
 ---
 
 
-## 4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2381961/)
+## 五月花简报（04/20/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2382078/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3D0D6F73-73BD-41C1-8369-2E68A1F38BF4.jpeg)
+
+*发布：思澈*
+
+
 
  
 

@@ -2,25 +2,29 @@
 ---
 
 
-## 加拿大各省疫情都已再度复苏
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381811/)
+## 加拿大央行利用量子计算确认数字货币应用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381910/)
 
-作者：加拿大温哥华扬帆农场 – 文莱
+作者：加拿大温哥华扬帆农场 – 活力人生
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504826321.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504846851.png)图片来源：金融邮报
 
 
-据加拿大【CTV新闻】4月19日报道，目前加拿大各地的医院都在忙于应对新冠病毒的再次来袭，而且疫情恶化的情况可能会持续一个月以上。
+据【金融邮报】4月18日报道，由于数字资产领域超出了传统计算机可以处理的范围，加拿大央行正在尝试利用量子计算以解决包括数字货币在内的一系列复杂金融问题。
 
-加拿大公共卫生署最新数据显示，从4月4日至11日期间，加拿大各地因感染新冠病毒而住院的人数增加了约18%，从5109人增加到6020人。同时，大多数省份的重症监护人数也呈上升趋势。
+加拿大央行最近与量子软件公司[多元宇宙]合作，在模拟了非金融公司采用数字货币作为支付手段的各种情况之后发现：数字资产最终将与传统的银行转账和现金工具一起参与支付市场。
 
-对此，艾伯塔省卫生部负责人表示，尽管目前该省正处于由奥密克戎BA.2子变体所引发的第六波疫情之中，但所导致的伤害程度并不像最初的奥密克戎所造成的那样剧烈。
+据悉，[多元宇宙公司]使用量子计算机的“量子退火”技术，从大量潜在方案中确定最佳解决途径。由于加密货币市场的不稳定性，该技术将使中央银行能够准确预测监管的最终效果。
+
+加拿大银行多年来都在探索加密货币以及发行中央银行数字货币的可能性。为此，联邦政府将在五年内拨款 1770 万加元，用于由财政部负责的对数字加元的立法审查。同时，在研究加密货币和稳定币等数字货币的应用之外，还在需要时扩大中央银行数字货币发行的可能性。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
+新闻来源：[https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems](https://financialpost.com/fp-finance/cryptocurrency/bank-of-canada-taps-quantum-computing-startup-to-tackle-complex-financial-problems)
+
+
 
  
 

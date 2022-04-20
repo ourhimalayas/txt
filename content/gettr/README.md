@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 11:00 PM (UTC)`
+
+2022.04.20 NFSC news  Putin believes Western sanctions on Russia have failed
+![img](https://media.gettr.com/group38/origin/2022/04/20/22/1f8b4429-6e5e-afbc-9982-ad1c101e2bfd/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/20/2022 10:13 PM (UTC)`
 
 “习神的裸鸡...” 飞飞秀救援快报 2022-04-20<br/>For English：gettr.com/streaming/p169om5577f
@@ -147,13 +154,6 @@ MILES GUO Livestream 2022-04-20
 
 2022.04.20 早  新中国联邦 | 新闻   中共是一切恐惧的根源；国际义工盛赞新中国联邦咖啡和救援帐篷
 ![img](https://media.gettr.com/group47/origin/2022/04/20/12/e0ba3282-7dc5-b441-a933-fe096a52eb54/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 12:38 PM (UTC)`
-
- 4月20号：尊敬的战友们好．共产党连流氓．土匪．这个名称都不配．任何一个团体和政府去剥夺人们的生存权．和自己创造财富支配的权利的时候，那就是必须被消灭的时候，只是时间和方式问题，没有人可以阻挡共产党的灭亡……
-![img](https://media.gettr.com/group6/getter/2022/04/20/12/fa08ba7f-7f1a-7c99-6dd6-cfb4860d08d2/out.jpg)
 
 ---
 
