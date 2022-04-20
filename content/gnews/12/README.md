@@ -2,30 +2,25 @@
 ---
 
 
-## 欲练其功必先自宫 中共微博封杀国歌歌词引发西方热评
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2379973/)
+## 有声｜中共审查因上海封锁而死亡的人员名单
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2380039/)
 
-撰稿/配图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-看中国2022年4月19日讯，上海封城引发民怨，大批民众纷纷通过社交媒体表达对于因封城造成的物资短缺，记录了上海疫情期间死者名单的网文《上海逝者》等事的看法，以及对中共政府的不满。过去几天，微博封杀了多个与此有关的热搜话题，其中还包括了中共国歌《义勇军进行曲》的首句歌词“起来，不愿做奴隶的人们”。
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-420.jpg)
+***2022-04-20***
+![](https://assets.gnews.org/wp-content/uploads/2022/04/420-14.jpg)
+据[布莱特巴特新闻网](https://www.breitbart.com/asia/2022/04/19/report-china-censors-lists-of-people-dying-of-suicide-negligence-in-shanghai-lockdown/)4月19日报道，中共审查人员周一删除了一篇社交媒体帖子，其中列出了150多名据称因上海疫情封锁而死亡的人。死者不是因为病毒本身死亡，而是因为他们无法获得治疗的其他疾病，或者因为他们自杀。
 
-美国之音19日报导，这并非中共社媒第一次封杀《义勇军进行曲》的内容。像在2020年武汉疫情爆发初期，最早公开疫情的“吹哨人”李文亮医生的死亡，触发了网友对中共当局的怒火。豆瓣当时曾经以“含有激进时政或意识形态”为由，跟这次一样封杀了第一句国歌歌词。在上个周末里，热搜话题“起来，不愿做奴隶的人们”在微博上遭到审查，导致相关搜索结果无法显示，而微博并未说明理由。
+据报道，中共特工从中共国社交媒体上删除了这份死亡名单，但总部位于旧金山、受区块链保护的云协作服务 Airtable 保留了一份他们无法触及的副本。审查人员不得不接受阻止中文搜索 Airtable 副本的 URL。
 
-中共就是个变态狂，中共控制人民的魔幻神功就源自于他的狠，敢于对自己下毒手。欲练其功，必先自宫，中共早就是个非男非女没有人性的虐待狂，没有原则，没有信仰，只有胜负。为了所谓的成功和胜利，中共呕心沥血，苦苦钻营不计成本不计代价，不要脸面，干尽天下所有坏事成就一部东方之葵花宝典。
+根据郭文贵先生近期在直播中的爆料，上海在封锁期间，其所有死亡人数已近百万。这其中，又有多少是因为封锁而导致的死亡呢？
 
-消息来源： [微博封杀中国国歌歌词 引发西方热评(组图)](https://m.secretchina.com/news/gb/2022/04/19/1003980.html)
+（编译：Milojai）
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+发布:文橙
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

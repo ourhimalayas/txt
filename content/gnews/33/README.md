@@ -2,33 +2,35 @@
 ---
 
 
-## 中共国 “渗透”迎接香港人到英国的团体
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2379245/)
+## 俄罗斯宣布对马斯克的星链卫星发动太空战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2379312/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Biden_69010-625d37de51f76-768x4321-1.jpg)图片来源：www.thetimes.co.uk
-两个接受政府资助以迎接从香港迁往英国移民的团体被指控与中国共产党(CCP)有联系。这次可能揭示了人们担忧伯明翰华人社区中心(CCC-B)和南安普敦华人协会(CAS)被中共渗透。逃到英国的香港活动人士内森·劳尔(Nathan Lowe)和英国的香港外籍人士团体(HKB)对英国华人团体迎接香港公民表示担忧。
+#### 【雅典娜观察】，紧贴时代脉搏
 
-伯明翰中心的两名董事曾参与一个英国华人项目，创立该计划的克里斯蒂娜·李(Christine Lee)律师曾警告军情五处，她曾试图代表中国共产党影响国会议员。该中心的赞助人詹姆斯·黄(James Wong)收到了34719英镑。
+翻译/编辑：文泓
 
-**简评：**
-
-中共阴险的本性决定了其总是用卑鄙的手段实现自己的目的。从中共身上我们找不到一点贵族精神，只有下三滥。为了对香港人赶尽杀绝，竟然派人渗透到英国的香港人团体。仅仅派几个特务就可以给在英国的香港人产生巨大的影响，严重伤害香港人团体的声誉，其目的就是使在英国的香港人彼此隔阂，无法团结起来。
-
-同样的手段也被中共运用到国际外交中，中共通过对世界上有影响力人士展开“蓝金黄”，用贿赂、收买的办法扩大中共在国际上的影响力。虽然中共在这方面取得了巨大的成功，但这些行为都是卑鄙的，见不得光的。一旦真相被曝光，中共将被万人唾弃，千夫所指。一个国家真正的实力来自于对人的尊重，中共恰恰待人猪狗不如，因此中共想领导全世界的梦想是不可能成功的，随着病毒疫情和俄乌战争的发展，疫苗灾难和全球金融危机的到来，以及中共即将入侵台湾等一系列事件的发生，中共的灭亡已经进入了倒计时。
-
-新闻链接: [China “infiltrates” groups welcoming Hong Kongers to Britain News](https://news.tahrir2day.com/2022/04/18/china-infiltrates-groups-welcoming-hong-kongers-to-britain-news/)
-
-翻译/简评: kkoto(芬兰大灰狼) / PR: 感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2467.png)图片来源：Republic World & 雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+近日，马斯克Space X的星链(Starlink)互联网卫星激怒了俄罗斯，因为据报道，星链卫星被用来引导和转移黑海舰队旗舰巡洋舰莫斯科号的火力（攻击无人机），并最终导致其沉没。俄总参谋部的新数据揭示了这一点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+总理梅德韦杰夫下令摧毁位于俄罗斯联邦领土、军事特别行动区和黑海盆地上空的星链卫星，以确保所有参与对乌战争作战单位的安全。
+
+他进一步表示，俄罗斯无意将外层空间军事化，但也不会允许其他国家这样做，这表明俄罗斯将对任何试图将外层空间军事化的人采取行动。梅德韦杰夫表示，黑海舰队司令奥西波夫四世将被免职。
+
+另据《伦敦时报》报道，早些时候，埃隆·马斯克的星链卫星技术正在协助一支乌克兰精英无人机部队（Aerorozvidka）摧毁俄罗斯装备，这支部队专门从事空中侦察和无人机战争，使用配备红外摄像机的无人机在夜间观察俄罗斯军事装备，如坦克和指挥船。
+
+“莫斯科号”的损失对俄罗斯军方来说是一个严重的打击，因为它是俄黑海舰队旗舰。莫斯科是一个浮动防空中心，拥有三层强大的防空武器，包括64枚远程S-300F导弹、40枚中程OSA-AM导弹和6个AK-630近距离武器系统。现在俄军在黑海的防空系统中留下了很大漏洞，敖德萨附近海域作业的所有俄罗斯船只均暴露。
+
+原文链接： [Russia announces space war on Elon Musk’s Starlink satellites, accepts Moskva was attacked (republicworld.com)](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-announces-space-war-on-elon-musks-starlink-satellites-accepts-moskva-was-attacked-articleshow.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

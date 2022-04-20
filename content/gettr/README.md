@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 1:40 PM (UTC)`
+
+ 4月20号：尊敬的战友们好……衷心地感谢国内所有战友昨天一整天的陪伴．观看直播……和给我发的信息，我不能一一回复．万分的抱歉，一切都已经开始！
+![img](https://media.gettr.com/group43/getter/2022/04/20/13/e34eb488-ded3-6040-4e8a-09d9df8dcdb6/out.jpg)
+
+---
+
 `@miles 4/20/2022 1:12 PM (UTC)`
 
 2022.04.20 早  新中国联邦 | 新闻访谈   P2P网贷老大哥遭审查起诉；招行行长田惠宇被免职
@@ -147,13 +154,6 @@
 
 4/19/2022 【419 5th Anniversary】 Teng Wensheng and Wang Huning proposed "the next 30 years of the CCP" when Xi was still Vice President. At that time, Xi wanted to turn Communist China into a maritime power and a labor exporting country. He wants to obtain the West’s technologies by stealing, robbing, and deceiving the Western enterprises and to take down the US dollar such that the CCP can lead the world!<br/><br/>4/19/2022【419五周年】滕文生和王沪宁在习还是副主席的时候就提出"中共未来30年"，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界<br/>
 ![img](https://media.gettr.com/group12/getter/2022/04/20/01/2b6d46d5-bc6e-d54b-b6b1-b73a65037cb1/out.jpg)
-
----
-
-`@miles 4/20/2022 1:52 AM (UTC)`
-
-【419 5th Anniversary】Mr. Miles Guo reveals his conversation with Ye Jianming and concludes that looking back, if he made one single mistake, he and the Whistleblower Movement would be destroyed by the CCP.<br/><br/>【419五周年】郭先生爆料叶简明与他的接触过程，并总结一路走来只要有一件事做错，就会被共产党灭掉。<br/><br/>
-![img](https://media.gettr.com/group45/getter/2022/04/20/01/154048ea-502a-6c65-3453-ca15aadd34ec/out.jpg)
 
 ---
 
