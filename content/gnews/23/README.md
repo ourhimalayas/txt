@@ -2,28 +2,34 @@
 ---
 
 
-## 日本一次驱逐的8名俄罗斯外交人员已离境
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2380653/)
+## 多伦多发生乘客被随机推下地铁事件
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380940/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-51.png)
+&lt;环球新闻&gt;4月18日报道，多伦多警方发布新闻，一名女子周日晚间被一名陌生人推下地铁站台，险些被地铁列车撞倒。
 
-4月20日，日本此前宣布一次驱逐的8名俄罗斯外交人员离开了日本。
+事件发生在市中心的Bloor-Yonge地铁站，时间是晚上9点左右。一名39岁的妇女被推下站台后摔成重伤，但幸运的是未被列车撞到，没有生命危险。这名妇女随后设法爬到了月台下面，以避免被穿行列车撞到。
 
-据《自由时报》报道，日本政府在本月8日宣布驱逐8名俄罗斯驻日外交人员，这8人于20日中午，透过俄罗斯准备的撤侨班机从羽田机场离境，同机撤离者还有俄罗斯通商代表部职员以及其他相关工作人员。
+警方称，嫌疑人和受害者并不认识，目前尚不清楚推人之前具体发生了什么，但警方表示，事件发生之前，二人之间并无发生任何争执。 嫌疑人被描述为一名金发女性，中等身材，身穿灰色Levis衬衫，黑色夹克，黑色裤子，白色鞋子，头戴粉灰色帽子。周一上午，警方公布了嫌疑人的照片，目前警方仍在寻找该名嫌犯中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-428.jpg)（图片来源：法新社）
+近期美加地区发生多起随机伤人事件，更有多宗专门针对亚裔团体仇恨事件发生，请广大战友出门多加小心。
 
-报导称，据知情人士透露，这8人疑似在为俄罗斯情报部门服务，被驱逐者中包含了中坚干部等级以及被日本警方标记为重要人物的人员。
+原文链接：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
 
-报导指出，日本一次驱逐复数外交官相当不寻常，预计俄罗斯将采取反制措施，但具体细节尚不明。
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-参考链接：
-[https://news.ltn.com.tw/news/world/breakingnews/3899002](https://news.ltn.com.tw/news/world/breakingnews/3899002)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-编辑：海星
-总编：青城道姑
-校对发布：爱放飞
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
