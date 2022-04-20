@@ -2,39 +2,30 @@
 ---
 
 
-## 支持俄罗斯侵略者，在德国或将面临牢狱之灾
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2380986/)
+## 新中国联邦是可信赖之邦
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2381125/)
 
-作者: 雅典娜农场—文泓
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-429.jpg)
+419断播五周年大直播中，郭先生谈起中共国党内是如何看待不同阶段的爆料革命灭共事业。
 
+一开始，那些曾经和郭先生有过深层交往的体制内人士和商界人士，在看到爆料革命进行的灭共事业，纷纷表示君子不立危墙，他们认为爆料革命就是那堵危墙，谁立危墙谁就会被共产党疯狂追杀。这五年来，爆料革命讲出的话都是可以验证的真话，越来越多的人在听了郭先生直播以后逃离中共国，无法离开的人加入了爆料革命，很多人一次次冒着生命危险提供了重要情报。无数个家庭因为相信爆料革命而得救，无数次验证共产党才是那个危墙，新中国联邦是最能保护中国人的力量，是可信赖之墙。郭先生也因为灭共事业而被体制内多数人佩服，但只停留在佩服，他们中有的也相信共产党会被灭掉，但觉得那个人应该是别人，现下只要多捞钱得过且过精致利己就好了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
-近日，在德国多个联邦州，公开展示“Z”符号、声援俄罗斯入侵乌克兰战争被视为非法。根据德国著名媒体编辑部网络（RND）所做的一项调查，目前已有140多起相关诉讼案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/61293291_303.jpeg)图片来源: 网络
-根据德国编辑部网络对联邦内政、司法部以及联邦各州刑事局所做的一项问讯调查，结果显示德国警方和检察机关迄今已承办140多件鼓吹俄罗斯入侵乌克兰战争行为的相关案件。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上都印有这一符号。
+俄乌战争爆发以后，尤其是习近平对上海的大隔离造成的人道灾难，让这种情况发生了本质性的转变，体制内绝大多数人都开始相信，新中国联邦爆料革命是唯一一个灭掉共产党的组织，这种使命是上天的招呼，独一无二，坚定不移。梅迪卡前线的救援更让世界上所有人认识有这样的一群灭共的中国人，扭转了以往共产党所代表的懦弱自私贪婪的中国人形象。鉴于俄乌战争经济制裁的效仿，共产党海外的家人正在受到影响。体制内后知后觉的感叹，不是郭文贵赢了，是共产党输了。
 
-调查结果显示，仅在德东地区萨克森·安哈尔特州，自俄军入侵乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。
+撰稿、发布：骄子
 
-在多个联邦州，使用该标志被视为是对俄侵略战争的支持，违反国际法，属于非法。
+* * *
 
-新闻链接: [https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
+欢迎订阅我们的GNews账号：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 5:26 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月19日第46天当日救援统计：<br/>Medyka救援站接待：约379人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13071人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 46 - Date: April 19, 2022 :<br/>Medyka Rescue Station Reception: about 379 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13071 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group13/getter/2022/04/20/17/1fc0613f-ff47-c159-90b9-28e9d39a60fd/1ff187b272120222dcb21fe1d2fb78d8.jpg)
+
+---
+
 `@miles 4/20/2022 5:20 PM (UTC)`
 
 MILES GUO 直播 2022-04-20
@@ -145,13 +152,6 @@ MILES GUO Livestream 2022-04-20
 
 【419 5th Anniversary】04/19/2022 A fellow fighter risked his life to provide the intelligence of Taiwan drones because he saw the Taiwanese are willing to participate in the Whistleblowers’ Movement.<br/><br/>【419五周年】04/19/2022 战友因为看到台湾人愿意参加爆料革命，冒生命危险提供台湾无人机情报。<br/><br/>
 ![img](https://media.gettr.com/group28/getter/2022/04/20/06/8befaadd-560f-c318-9426-3bf00aa7bdb0/out.jpg)
-
----
-
-`@miles 4/20/2022 6:33 AM (UTC)`
-
-【419 5th Anniversary】04/19/2022 Xi’s confidence comes from superstitions. He believes he is the reincarnated Buddha and he is the next chosen ruler of the world according to the Modelski’s Long Cycle Theory.<br/><br/>【419五周年】04/19/2022 习的自信来自于迷信，认为自己就是活佛转世，是莫德尔周期所说的下一个统治者。
-![img](https://media.gettr.com/group13/getter/2022/04/20/06/0b0234df-5ac0-3de4-d3df-9ab712d811d0/out.jpg)
 
 ---
 
