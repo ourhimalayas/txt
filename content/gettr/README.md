@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 10:13 PM (UTC)`
+
+“习神的裸鸡...” 飞飞秀救援快报 2022-04-20<br/>For English：gettr.com/streaming/p169om5577f
+![img](https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 8:58 PM (UTC)`
 
 2022.04.20  新中国联邦 | 喜健康   毒疫苗导致的家庭关系，人际关系冲突/沟通技巧与和解之道
@@ -147,13 +154,6 @@ MILES GUO Livestream 2022-04-20
 
  4月20号：尊敬的战友们好．共产党连流氓．土匪．这个名称都不配．任何一个团体和政府去剥夺人们的生存权．和自己创造财富支配的权利的时候，那就是必须被消灭的时候，只是时间和方式问题，没有人可以阻挡共产党的灭亡……
 ![img](https://media.gettr.com/group6/getter/2022/04/20/12/fa08ba7f-7f1a-7c99-6dd6-cfb4860d08d2/out.jpg)
-
----
-
-`@miles 4/20/2022 12:02 PM (UTC)`
-
-2022.04.20 NFSC news  Review of Miles Guo's "4-19 VOA Broadcast Cut-off" Gate Incident
-![img](https://media.gettr.com/group14/origin/2022/04/20/12/1028de0f-4d22-2952-62bd-19c021923579/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

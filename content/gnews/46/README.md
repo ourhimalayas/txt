@@ -2,36 +2,28 @@
 ---
 
 
-## 台湾之子｜台湾华视“误报”共军导弹袭台 国民党立委“慎重”看待
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2377949/)
+## 中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377779/)
 
-**港台前线 zhong｜2022-4-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-6.png)
-郭文贵先前爆料，台湾情资部门、军队大量被中共买通，引起台湾重视，郭表示台湾议员质询军方遭军方拒绝调查，该无人机在台海战争可能反过来攻击台湾。又中共已开始执行[“台湾之子”行动](https://gnews.org/zh-hant/2355731/)，該計畫旨在台灣社會引起動亂（誘發台灣內部問題）後趁機拿下，從15日晚間開始，台灣將會接續面臨水、電、交通、機場、網路等問題。
+撰稿：东京樱花团/peterwong
 
-20日上午7时，台湾老牌电视台“华视”快讯发布“新北市遭共军导弹击中，台北港舰艇爆炸、设施、船舶损毁”、“板桥车站疑似遭特攻纵火施放爆裂物”等虚假消息，事后华视公司辩称“误播放与新北市消防局的防灾演练录制画面”。
+4月20日外汇市场上，日元汇率触及129日元兑1美元，这是日元自2002年4月以来的最弱水平。由于美国的长期利率上升导致广泛的日元抛售和美元买入，预计日本和美国之间的利率差距将扩大，日元继续快速贬值。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-164.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.j-cast.com%2Fkaisha%2Fimages%2Forigin%2F2022%2F04%2Fkaisha_20220410211142.jpg&amp;imgrefurl=https%3A%2F%2Fwww.newsdirectory3.com%2Fcontinued-depreciation-of-the-yen-against-the-dollar-will-the-us-streng)
+美联储官员对加快加息步伐表现出积极态度，美国长期利率连续第三天上升。日本方面，预计日本央行的货币宽松政策将维持低利率，而日美货币政策差异使得日元更容易被抛售。
 
-此外，除恶意误报台海战争之外，还包含“受战争影响，各地爆发民生用品抢购潮，卖场货架全空”“新北市泰山发生规模7，深度10公里的地震，最大震度6弱”等，华视与新北消防局合作的防灾预录影片，意图引起社会动乱的意味十分浓厚。
+日元贬值也是由于进口燃料和原材料价格飙升以及日本进口商对美元结算的需求膨胀。市场有观点认为日元兑美元可能贬值至135日元水平（证券交易策略师），投机者试图抛售日元，导致日元快速贬值。
 
-值得注意的是，本次华视恶意出包，国民党多立委纷纷挞伐，于20日上午开记者会，要求国家通讯委员会（NCC）查办。华视“误报”事件于上午7时发生，多位国民党籍立委“立即反应”要求国家权责单位彻查，反应十分迅速。
+美国财长耶伦与财长铃木的会晤定于20日在华盛顿举行的二十国集团财长和央行行长会议上举行。日方也想讨论汇率走势，遏制突发波动。
 
-- [![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-20-下午3.04.02.png)](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-20-下午3.04.02.png)點擊放大
-- [![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-20-下午3.03.54.png)](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-20-下午3.03.54.png)點擊放大
+日元兑欧元、英镑、澳元等货币正在贬值，日元贬值的趋势更加突出。20日，日元兑欧元汇率为1欧元兑 139日元，为2015年6月以来约7年来的最低水平。
 
+消息来源:
 
-- [![](https://assets.gnews.org/wp-content/uploads/2022/04/S2GPF5SXK5G2HNRFPOR2JECNOY.jpeg)](https://assets.gnews.org/wp-content/uploads/2022/04/S2GPF5SXK5G2HNRFPOR2JECNOY.jpeg)點擊放大
-- [![](https://assets.gnews.org/wp-content/uploads/2022/04/UT2T3MGOEJBYPPKT4MS5X36HBA.jpeg)](https://assets.gnews.org/wp-content/uploads/2022/04/UT2T3MGOEJBYPPKT4MS5X36HBA.jpeg)點擊放大
+[２０年ぶり１ドル＝１２９円台…日米金利差拡大で円売り加速](https://www.yomiuri.co.jp/economy/20220420-OYT1T50085/)
 
-
-中午，华视也发出道歉声明：“华视新闻于4月20日7点晨间新闻，因相关工作人员误将新闻快讯内容误植为由新北消防局委托提供之防灾演练讯息文字，该防灾影片系于昨日由新北消防局委托华视录制。此严重疏失造成社会大众恐慌及相关单位困扰，华视在此郑重道歉。第一时间除主播紧急向观众澄清并致歉外，华视并于各频道以快讯方式跑马并澄清道歉，华视亦同步展开内部疏失调查，也将紧急召开自律委员会，检讨此重大疏失并严惩相关工作人员。华视新闻身为公广媒体，不容许此等错失，再次郑重向社会大众致歉。”
-
-来源｜[中時](https://www.chinatimes.com/realtimenews/20220420002345-260407?chdtv3)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

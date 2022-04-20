@@ -2,40 +2,30 @@
 ---
 
 
-## 文贵先生蓋特精要- 2022/04/20
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2381022/)
+## 22%长期护理院爆发病毒，安省每天感染超十万
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380970/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Biden_69010-625d37de51f76-768x4324-1.jpg)
-链接：[https://gettr.com/post/p167ju85091](https://gettr.com/post/p167ju85091)
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-52.png)
+《渥太华公民报》4月18日报道，安省今日报告有1301人因CCP病毒感染住院，比一周前高出约19%；重症监护室病人数量同比上升约10%，从184人上升到202人；两人死于病毒。然而报告同时显示，有超过10%的医院并未提供周末的病毒感染住院数据。
 
-4.19直播七哥头疼已经恢复。
+省内今天报告有2219名新增病毒感染，但由于获得PCR测试机会受限，该数字可能并不准确。安省病毒顾问小组科学主任说，废水监测表明，该省实际每天有10万至12万个新增病毒感染病例。目前省内近22%的长期护理院报告爆发疫情感染 。
 
-国内战友看4.19直播哭声一片，感叹中共国现状如七哥所说一样。生存权、财务权、基本人权全部丧失。
+原文链接：[https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14)
 
-新中国联邦五年创国并建立金融系统。
-
-因Hpay近期升级，使用有困难。Hpay未来将是代替Swift系统的加密货币支付方式。
-
-法币是政府“捆绑”人民的工具，数字货币接受怀疑和挑战，值得信赖，越信价值越高。Swift系统原本是“金融界信仰”，却被政府控制。
-
-俄乌战场使用大杀器，本质为谈判“讲数”–保证各方利益和安全。
-
-台湾没有任何希望，香港、日本、澳大利亚处境类似，人类需要正道主义政治体系。
-
-中国处于大变前夜，中共“清零管控”是死亡前挣扎。中共不可能有二十大党代会，中国土地归还人民，海外财产归还人民。
-
-*听写：call me uncle / PR: 樂禧禧*
-
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

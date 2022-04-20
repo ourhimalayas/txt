@@ -2,13 +2,22 @@
 ---
 
 
-## 4月20日勿忘香港（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2382004/)
+## 樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2382049/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2C2A1CDB-20FC-4214-8FE2-C0D0AB8C47A0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9DC6C24D-262C-4AAE-AE41-5D0854AFC5F6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/B5E336C4-D7B2-4297-B0CE-1870FB1CC060.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/B2E2004E-1C93-49B4-BFE0-0CDA95C328C7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/657997CA-1404-4B5A-A5E4-E05AB97F0313.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/119E160A-5551-4BEB-8295-2A41B9CCF6C9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8BEC45A3-66B8-4C87-80C8-33E37A085E5E.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/F2139645-230B-429F-95AE-15E0364AD388.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/AE1B0307-C83B-46FB-9E9C-C253FB1E9831.png)
-发布：水涨船高
+撰稿：东京樱花团/深藏不露
 
+2022年4月19日郭先生盖特大直播爆料说：俄乌战争和上海封城后，越来越多体制内的人感觉中共靠不住了，今天一直强调体制内战友的巨大作用，新中国联邦会记住这些战友冒着生命危险送出来的重要情报。习近平知道国际一定不会放过他，将来一定会对习近平进行清算，病毒、疫苗、新疆、香港，所以习近平没有退路，只有一条路攻打台湾！习近平攻打台湾，某种程度上就等同于与美国和日本开战。美、日将别无选择，为了自己的命脉一定会参战！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-5.png)
+台湾一定要反抗，只要能顶住三小时，国际社会就有一定会出手。如果台湾不抵抗，国际社会将在台湾被打得差不多的时候才会出手。普京不一定敢动核武器，但习近平会有胆子放核武器的！习近平的心理就是我得不到就毁了它！
+
+在很久以前习近平就选了王沪宁做高参，要联俄灭美，妄图把中国变成海洋大国，对外劳动力输出，并对西方的技术不惜一切代价要偷抢骗，金融上击毁美元，称霸世界！为了个人利益，丧心病狂的习近平和普京两个人联合在一起把两国人民都绑架了，幻想俄取乌克兰灭欧，习近平取台湾拿下亚洲、中东，再一起灭掉美国称霸世界！但请习近平别忘了，虽然台湾有卖台贼，但是我们也有护台神队,相信中共这个邪恶势力一定会在正义力量的打击下永远的在地球上消失！
+
+信息来源：2022年4月19日郭先生盖特大直播
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

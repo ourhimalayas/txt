@@ -2,29 +2,12 @@
 ---
 
 
-## 多伦多发生乘客被推下地铁事件
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381883/)
+## 4月20日乌克兰救援行动（图片1-7）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2381887/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504841611.png)图片来源：Global News
-
-
-据&lt;环球新闻&gt;4月18日报道，多伦多警方当天宣称，一名女子日前晚间被另一名陌生女性推下地铁站台，险些被来往的地铁列车撞倒。
-
-据悉，事件发生在多伦多市中心的地铁站，时间是晚上9点左右。一名39岁的妇女被故意推下站台后摔成重伤，但幸运的是未被列车撞到，暂无生命危险。
-
-警方对此表示，目前仍然在逃的犯罪嫌疑人为一名金发女性，与受害者并不认识，且事件发生之前，二人之间也并无发生任何争执，警方目前已公布了嫌疑人的照片。
-
-近期美加地区已发生多起随机故意伤人致死案件，更有多宗专门针对亚裔人群仇恨暴力事件发生，请广大战友们对此多加小心。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
-
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9FAF0A0C-3AC7-43E5-9380-60FE382FFA2A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/122790E7-8B48-453A-A686-CD2D0064F2B6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7E1711CB-0147-4B5E-80C1-C8B6DB1FBC35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/591D80A9-D260-42E1-919D-1B0F411C478F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/48D0B954-20FB-408E-9428-613931950F9D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4EA01A1E-2300-4F14-A128-934DE0ADC3A3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/30135C78-39CF-4DD4-A4C6-EB53088DCB0C.png)
+发布：水涨船高
 
  
 

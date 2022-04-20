@@ -2,23 +2,27 @@
 ---
 
 
-## 俄乌战争｜日本今驱逐8名俄罗斯外交人员
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378361/)
+## 台海危机｜报多区遭解放军导弹击中 台湾华视道歉称失误所致
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2377850/)
 
-**港台前线 zhong｜2022-4-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-7.png)
-日本政府今（20日）正式驱逐8名俄罗斯驻日外交官员出境，其中包括大使馆外交官及俄罗斯贸易代表处工作人员。日媒引述知情人士消息称，这八人主要负责日本境内的情报工作，其中不乏日本警方重点关注人物、俄军总参谋部情报总局（GRU）与对外情报局（SVR）的人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-20-16.10.42.jpg)
-据报导所述，日本政府一次驱逐多名外交人员实属极不寻常，日本内阁官房副长官矶崎仁彦对驱逐俄外交人员一事表态“鉴于事务性质，不予回覆”。此外，日本配合西方步调对俄罗斯采取一系列的经济制裁、进口禁令，媒体关心俄罗斯实施反制措施的可能，对此日官方表示“尽最大努力保护在俄罗斯的日本国民、企业”。
+**图/文｜CP **
+**发布时间｜20/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/台海危機｜報多區遭解放軍導彈擊中-台灣華視道歉稱失誤所致.jpg)
+
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+台湾华视新闻今早（20日）快讯画面上，突然出现“新北市遭共军导弹击中”、“台北港舰艇爆炸、涉事船舶损毁”、“板桥车站疑似遭特工纵火施放爆裂物”等涉及台海战争的内容，连串消息一度引发社会恐慌，令人误以为两岸战争就此打响。
 
-来源｜[YAHOO](https://news.yahoo.co.jp/articles/bcebba4d0f49b08f59c3a5fd80bc355ba24a7e49)
+事后华视新闻紧急发布道歉声明，澄清相关新闻快讯内容，是为新北消防局防灾演练而录制的，因设定错误而播出，对造成社会恐慌郑重道歉，将会展开内部调查，并惩罚相关工作人员。
+
+台湾国防部长邱国正表示，他看到有关讯息时亦感惊讶，指军方已经第一时间查证并作出回应，情监侦系统畅通。立法院国民党团则炮轰华视公然制造战争恐慌，要求台湾国家通讯传播委员会（NCC）须为事件咎责。
+
+來源｜[udn](https://stars.udn.com/star/story/10088/6252248)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

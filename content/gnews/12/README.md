@@ -2,25 +2,29 @@
 ---
 
 
-## 加拿大民调显示病毒感染者存在长期后遗症
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381870/)
+## 多伦多发生乘客被推下地铁事件
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381883/)
 
-作者：加拿大温哥华扬帆农场 – 青青（采编）-文莱  （撰稿）
+作者：加拿大温哥华扬帆农场 – 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504833981.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504841611.png)图片来源：Global News
 
 
-据【CTV新闻】4月19日报道，最新民调显示，大约25%的加拿大受访者承认他们感染过新冠病毒，该感染率明显高于官方数据水平。同时，调查结果不仅让人们看到了病毒感染的长期风险与症状，而且还认识到疫情仍远未结束。
+据&lt;环球新闻&gt;4月18日报道，多伦多警方当天宣称，一名女子日前晚间被另一名陌生女性推下地铁站台，险些被来往的地铁列车撞倒。
 
-在这项4月初对近1600名加拿大人进行的在线调查中，30%的18至34岁受访者表示他们感染过新冠病毒，55岁及以上的受访者中则为12%。同时，社交活动越频繁，例如经常去餐馆、酒吧和聚会的人更容易被病毒感染。
+据悉，事件发生在多伦多市中心的地铁站，时间是晚上9点左右。一名39岁的妇女被故意推下站台后摔成重伤，但幸运的是未被列车撞到，暂无生命危险。
 
-调查还显示，60%的感染者表示他们有轻微的症状，而34%的人表示他们有严重的症状，例如极度疲劳，肌肉和关节长期性疼痛，甚至无法卧床等。此外，尽管与事实相反，但超过50%的受访者表示，疫情最严重的时期已经过去，而且情况正在好转。
+警方对此表示，目前仍然在逃的犯罪嫌疑人为一名金发女性，与受害者并不认识，且事件发生之前，二人之间也并无发生任何争执，警方目前已公布了嫌疑人的照片。
+
+近期美加地区已发生多起随机故意伤人致死案件，更有多宗专门针对亚裔人群仇恨暴力事件发生，请广大战友们对此多加小心。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
+新闻来源：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
+
+
 
  
 
