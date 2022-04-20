@@ -2,8 +2,8 @@
 ---
 
 
-## 20220419郭文贵大直播 ：稳定、安全的社会就是人不被陷害、有财富和尊严
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377176/)
+## 20220419郭文贵大直播 ：中共走狗吴小晖 叶简明 傅政华的下场
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2377264/)
 
 作者：东京樱花团小视频组
 
