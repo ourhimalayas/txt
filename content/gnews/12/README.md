@@ -2,10 +2,16 @@
 ---
 
 
-## 【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2381974/)
+## 五月花简报（04/20/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2382078/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3D0D6F73-73BD-41C1-8369-2E68A1F38BF4.jpeg)
+
+*发布：思澈*
+
+
 
  
 

@@ -2,25 +2,29 @@
 ---
 
 
-## 加拿大各省疫情都已再度复苏
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381811/)
+## 多伦多发生乘客被推下地铁事件
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381883/)
 
-作者：加拿大温哥华扬帆农场 – 文莱
+作者：加拿大温哥华扬帆农场 – 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504826321.png)图片来源：CTV News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504841611.png)图片来源：Global News
 
 
-据加拿大【CTV新闻】4月19日报道，目前加拿大各地的医院都在忙于应对新冠病毒的再次来袭，而且疫情恶化的情况可能会持续一个月以上。
+据&lt;环球新闻&gt;4月18日报道，多伦多警方当天宣称，一名女子日前晚间被另一名陌生女性推下地铁站台，险些被来往的地铁列车撞倒。
 
-加拿大公共卫生署最新数据显示，从4月4日至11日期间，加拿大各地因感染新冠病毒而住院的人数增加了约18%，从5109人增加到6020人。同时，大多数省份的重症监护人数也呈上升趋势。
+据悉，事件发生在多伦多市中心的地铁站，时间是晚上9点左右。一名39岁的妇女被故意推下站台后摔成重伤，但幸运的是未被列车撞到，暂无生命危险。
 
-对此，艾伯塔省卫生部负责人表示，尽管目前该省正处于由奥密克戎BA.2子变体所引发的第六波疫情之中，但所导致的伤害程度并不像最初的奥密克戎所造成的那样剧烈。
+警方对此表示，目前仍然在逃的犯罪嫌疑人为一名金发女性，与受害者并不认识，且事件发生之前，二人之间也并无发生任何争执，警方目前已公布了嫌疑人的照片。
+
+近期美加地区已发生多起随机故意伤人致死案件，更有多宗专门针对亚裔人群仇恨暴力事件发生，请广大战友们对此多加小心。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
+新闻来源：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
+
+
 
  
 

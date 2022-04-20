@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 11:32 PM (UTC)`
+
+2022.04.20《The Fringe》 Episode 173<br/>中文同传：https://gettr.com/streaming/p16a8ppc77d
+![img](https://media.gettr.com/group27/origin/2022/04/20/23/aa237c68-9e7a-18fd-81da-9289d722dd89/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 11:00 PM (UTC)`
 
 2022.04.20 NFSC news  Putin believes Western sanctions on Russia have failed
@@ -147,13 +154,6 @@ MILES GUO Livestream 2022-04-20
 
 【419 5th anniversary】04/19/2022 Five years ago Wang Qishan and Zhou Liang sent Ma Yun, Wu Zheng, Liu Yanping, Sun Lijun, Sasha Gong, Zhang Xin, Pan Shiyi and others around April 19th in an attempt to silence Mr. Miles Guo by a series of kidnapping, threat, assassination, planted evidence and other nasty tactics.<br/><br/>【419五周年】04/19/2022 王岐山、周亮为了灭掉郭文贵先生，在419前后先后派出了马云、吴征，刘彦平、孙力军、火鸡龚，张欣、潘石屹等人轮流登场，出演了一系列绑架、威胁、暗杀、栽赃等龌龊手段，试图灭口郭先生。<br/>
 ![img](https://media.gettr.com/group44/getter/2022/04/20/13/c44a9050-4bbe-b742-9fb0-17551503dd54/out.jpg)
-
----
-
-`@miles 4/20/2022 12:42 PM (UTC)`
-
-2022.04.20 早  新中国联邦 | 新闻   中共是一切恐惧的根源；国际义工盛赞新中国联邦咖啡和救援帐篷
-![img](https://media.gettr.com/group47/origin/2022/04/20/12/e0ba3282-7dc5-b441-a933-fe096a52eb54/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
