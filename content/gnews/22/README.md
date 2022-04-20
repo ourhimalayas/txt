@@ -2,37 +2,10 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2381191/)
+## 【419五周年】4/19/2022 孟建柱现在最后悔当时没有把习做掉。爆料革命毫无疑问百分之百地改变了中国！这一切归功于新中国联邦人，特别是在体制内默默无闻地奉献的战友们
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2381271/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-19.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.20早 《NFSC新闻》](https://gettr.com/streaming/p167rafa925)
-[2022.04.20早《NFSC新闻访谈》](https://gettr.com/streaming/p167difa50c)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-17.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
-
-
+秘密翻译组-北美组
 
  
 

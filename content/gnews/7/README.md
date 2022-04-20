@@ -2,29 +2,27 @@
 ---
 
 
-## 有声|G系列媒体平台必须坚持做正义媒体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2381401/)
+## 兵力不足 普京试图建立“儿童军队”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2381428/)
 
-配音：香草山教育部 – Rose
+作者：Miyali7768(文玉）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-郭文贵先生在2021年4月19日直播中，通过回顾爆料革命的“4.19”事件，特别强调媒体在当今国际政治、经济等领域的重要性。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-1-2.jpg)
-郭先生首先爆料，美国限制媒体交叉持股和垄断的法律完全失控，已经从过去的真正的自由灯塔，沦落为现如今的黑暗灯塔。黑暗灯塔第一个表现就是媒体和社交媒体，实际已经由五大家族完全控制。爆料革命开始以来，中共通过渗透收买西方媒体，不断造谣和抹黑郭文贵先生，操纵和控制了世界的法律和正义。
+当地时间4月19日，据相关媒体消息显示，由于俄罗斯军队在乌克兰遭受了重大的损失，普京正在试图从“爱国俱乐部”中招募年仅16岁的俄罗斯青少年组成“儿童军队”，用以填补俄军超过三万名在战争中被杀、受伤或被俘的士兵缺口。
 
-郭先生强调，媒体拥有定义权和定价权，是比核武器强大的力量。历史上从来不存在“中立”媒体。G系列媒体平台——GNews、GTV和盖特，应势而生、应需而生，不仅是能让中国人自由发声的平台，而且是保障中国人在海外正义、安全和利益的唯一平台。G系列媒体平台要生存下去，必须坚持正义的媒体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20141117215627_9864.jpeg)
 
-随着人类进入最伟大的科技时代，G系列媒体平台将充分融合新一代高科技。让我们重温郭先生在去年“4.19”直播中，对G系列媒体平台的展望。
+报道提及，这些被招募的年轻人正在接受相关的军事训练。随后，他们将被莫斯科当局强迫派往对乌克兰的入侵前线。目前，他们之中的部分人已经被投入战争并于战场上阵亡。据悉，有乌克兰士兵在交战中发现了不应该被部署到战区的俄罗斯军事学员的徽章。
 
-文字版原文：[G系列媒体平台必须坚持做正义媒体](https://gnews.org/zh-hans/2368627/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+对此，乌克兰议会人权专员柳德米拉-丹尼索娃表示，俄罗斯境内参加所谓“爱国俱乐部”的儿童正在被普京政府动员成为非法武装组织。同时，有官员已经向联合国发出呼吁，要求调查普京涉嫌非法部署儿童兵的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+参考链接：[Vladimir Putin building ‘kid’s army’ from after-school clubs to cover for Russian losses](https://www.mirror.co.uk/news/world-news/putin-building-kids-army-after-26741075)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+编辑：飞虹
+总编：Irene木木
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 

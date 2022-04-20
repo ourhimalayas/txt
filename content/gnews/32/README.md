@@ -2,30 +2,39 @@
 ---
 
 
-## 22%长期护理院爆发病毒，安省每天感染超十万
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380970/)
+## 支持俄罗斯侵略者，在德国或将面临牢狱之灾
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2380986/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-52.png)
-《渥太华公民报》4月18日报道，安省今日报告有1301人因CCP病毒感染住院，比一周前高出约19%；重症监护室病人数量同比上升约10%，从184人上升到202人；两人死于病毒。然而报告同时显示，有超过10%的医院并未提供周末的病毒感染住院数据。
+作者: 雅典娜农场—文泓
 
-省内今天报告有2219名新增病毒感染，但由于获得PCR测试机会受限，该数字可能并不准确。安省病毒顾问小组科学主任说，废水监测表明，该省实际每天有10万至12万个新增病毒感染病例。目前省内近22%的长期护理院报告爆发疫情感染 。
 
-原文链接：[https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
+近日，在德国多个联邦州，公开展示“Z”符号、声援俄罗斯入侵乌克兰战争被视为非法。根据德国著名媒体编辑部网络（RND）所做的一项调查，目前已有140多起相关诉讼案。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/61293291_303.jpeg)图片来源: 网络
+根据德国编辑部网络对联邦内政、司法部以及联邦各州刑事局所做的一项问讯调查，结果显示德国警方和检察机关迄今已承办140多件鼓吹俄罗斯入侵乌克兰战争行为的相关案件。其中，多数案件涉及使用“Z”符号。侵乌俄军在坦克、车辆等物体上都印有这一符号。
 
-上传/发稿 – 大废墙
-撰稿/翻译/听写 – 自由法兰西🇫🇷
-素材/采编 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+调查结果显示，仅在德东地区萨克森·安哈尔特州，自俄军入侵乌克兰起，就记录有至少19起违反《刑法》第140条行为。根据该条规定，美化、纵容犯罪的行为属于犯罪。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+在多个联邦州，使用该标志被视为是对俄侵略战争的支持，违反国际法，属于非法。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+新闻链接: [https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643](https://www.dw.com/zh/%E6%94%AF%E6%8C%81%E4%BF%84%E7%BD%97%E6%96%AF%E4%BE%B5%E7%95%A5%E8%80%85%E5%9C%A8%E5%BE%B7%E5%9B%BD%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89/a-61502643)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/20/2022 5:49 PM (UTC)`
+
+ 4月20号：尊敬的战友们好！刚刚的直播断掉了，我要去开会了，就不继续了，非常的抱歉。
+![img](https://media.gettr.com/group33/getter/2022/04/20/17/06423f7a-efe3-57f2-0053-4fde8261dcb4/fa04cee8558e69337a1cd627ec637adc.jpg)
+
+---
+
 `@miles 4/20/2022 5:26 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月19日第46天当日救援统计：<br/>Medyka救援站接待：约379人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13071人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 46 - Date: April 19, 2022 :<br/>Medyka Rescue Station Reception: about 379 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13071 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -145,13 +152,6 @@ MILES GUO Livestream 2022-04-20
 
 【419 5th anniversary】04/19/2022 Although there are traitors in Taiwan, the Whistleblowers’ Movement and the world are protecting it. Mr. Miles Guo will share intel with the west about the whereabouts of the CCP’s submarines to help them destroy the submarines with underwater lasers.<br/><br/>【419五周年】04/19/2022 虽然台湾有卖台贼，但爆料革命和国际社会都在保护台湾。郭先生将会向西方提供中共潜水艇方位的情报帮助西方使用水下镭射将其消灭。<br/>
 ![img](https://media.gettr.com/group47/getter/2022/04/20/07/10bd299f-be81-2a01-e47d-97ad13750e1e/out.jpg)
-
----
-
-`@miles 4/20/2022 6:39 AM (UTC)`
-
-【419 5th Anniversary】04/19/2022 A fellow fighter risked his life to provide the intelligence of Taiwan drones because he saw the Taiwanese are willing to participate in the Whistleblowers’ Movement.<br/><br/>【419五周年】04/19/2022 战友因为看到台湾人愿意参加爆料革命，冒生命危险提供台湾无人机情报。<br/><br/>
-![img](https://media.gettr.com/group28/getter/2022/04/20/06/8befaadd-560f-c318-9426-3bf00aa7bdb0/out.jpg)
 
 ---
 
