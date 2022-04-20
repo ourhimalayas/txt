@@ -15,104 +15,104 @@
 
 ---
 
-### [中日财经爆┃“统一大市场”加速中共灭亡](/content/gnews/1/README.md)
+### [美方认为尚无迹象表明俄罗斯要使用核武器对付乌克兰](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [20220419郭文贵大直播 ：让共产党直奔太阳吧](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220419郭文贵大直播 ：德国是马克思极左思想的国家](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共政治影响了世卫组织关于COVID起源的报告（2/2）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【 蓝枫法律 】 第五十期 金融税务及区块链专题 &#8211; 全文听写](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [樱花时政┃遭日本驱逐的８名俄罗斯外交官等今离日](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共政治影响了世卫组织关于COVID起源的报告（1/2）](/content/gnews/2/README.md)
+### [中日财经爆┃“统一大市场”加速中共灭亡](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共政治影响了世卫组织关于COVID起源的报告（1/2）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [数学家告诉肯尼迪：官员操纵COVID数据夸大危机](/content/gnews/3/README.md)
+### [数学家告诉肯尼迪：官员操纵COVID数据夸大危机](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在39.180 HDO](/content/gnews/4/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在39.180 HDO](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [救援前线饺子情](/content/gnews/5/README.md)
+### [救援前线饺子情](/content/gnews/11/README.md)
  ` 华盛顿DC-Russian`
 
-### [2022年04月19日断播门五周年特别直播（第一部分）](/content/gnews/6/README.md)
+### [2022年04月19日断播门五周年特别直播（第一部分）](/content/gnews/12/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [恐惧、无助、期待、忍耐 上海封城折射人性善恶](/content/gnews/7/README.md)
+### [恐惧、无助、期待、忍耐 上海封城折射人性善恶](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大陸疫情亂象。視頻者：隔離點男女混住，像牲口一樣被趕在這個里面就完了。](/content/gnews/8/README.md)
+### [大陸疫情亂象。視頻者：隔離點男女混住，像牲口一樣被趕在這個里面就完了。](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [河北省邯鄲市雞澤縣：領導命令，街上有人，拿磚頭就拍。](/content/gnews/9/README.md)
+### [河北省邯鄲市雞澤縣：領導命令，街上有人，拿磚頭就拍。](/content/gnews/15/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字](/content/gnews/10/README.md)
+### [4/19/2022【419五周年】最新数据显示，文贵在全网的粉丝共计1.93亿（不含国内），只有文贵和新中国联邦才有这么多粉丝，美国总统也做不到；当中国人都醒来的时候，这将是多大的数字](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [上海方艙隔離點裡的抗議。](/content/gnews/11/README.md)
+### [上海方艙隔離點裡的抗議。](/content/gnews/17/README.md)
  ` Tokyo Sakura Video Group`
 
-### [公安部是共产党的打手，陶晶对七哥判断，骨子里全是共毒](/content/gnews/12/README.md)
+### [公安部是共产党的打手，陶晶对七哥判断，骨子里全是共毒](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [上海战“疫”24小时，中共谎言治国的典范宣传文](/content/gnews/13/README.md)
+### [上海战“疫”24小时，中共谎言治国的典范宣传文](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我们并不会真正冲击到共产党里的坏人（二）](/content/gnews/14/README.md)
+### [我们并不会真正冲击到共产党里的坏人（二）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](/content/gnews/15/README.md)
+### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [上海居民：我要進方艙，方艙有飯吃。](/content/gnews/16/README.md)
+### [上海居民：我要進方艙，方艙有飯吃。](/content/gnews/22/README.md)
  ` Tokyo Sakura Video Group`
 
-### [上海疫情下，女子帶著行李箱住在取款機房裡。](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
-
-### [4/19/2022【419五周年】上海绝大多数人核酸检测呈阳性是疫苗反应造成的。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这可不光是有粮食有水就行的！](/content/gnews/18/README.md)
+### [4/19/2022【419五周年】上海绝大多数人核酸检测呈阳性是疫苗反应造成的。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这可不光是有粮食有水就行的！](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/19/2022【419五周年】419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人](/content/gnews/19/README.md)
+### [4/19/2022【419五周年】419是爆料革命真正的开始！5年来，证明了我们尊敬女性、爱自己的母亲；女性占爆料革命战友的七成，在全世界树立了新中国女性的新形象，她们将成为最有钱、权力和影响力的人](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年4月20日《樱花快报》：美国决定5月份召开第二次全球应对中共病毒疫情峰会](/content/gnews/20/README.md)
+### [2022年4月20日《樱花快报》：美国决定5月份召开第二次全球应对中共病毒疫情峰会](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4.19没爆的料有两个，王岐山是个骨子里的变态，对习的威胁最大](/content/gnews/21/README.md)
+### [4.19没爆的料有两个，王岐山是个骨子里的变态，对习的威胁最大](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [共产党的恐惧从派出龚小夏可见一斑，419是对爆料革命的天赐礼物](/content/gnews/22/README.md)
+### [共产党的恐惧从派出龚小夏可见一斑，419是对爆料革命的天赐礼物](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [网易揭露科兴疫苗的四点信号](/content/gnews/23/README.md)
+### [网易揭露科兴疫苗的四点信号](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [4/19/2022【419五周年】滕文生和王沪宁在习还是副主席的时候就提出&#8221;中共未来30年&#8221;，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [因担心风险超过回报，全球投资者纷纷逃离中共国](/content/gnews/25/README.md)
+### [因担心风险超过回报，全球投资者纷纷逃离中共国](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大连：对不检测33人赋黄码，纳入个人信用记录](/content/gnews/26/README.md)
+### [大连：对不检测33人赋黄码，纳入个人信用记录](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花FM｜石破惊天，一学校禁止言论](/content/gnews/27/README.md)
- ` 樱花FM`
-
-### [樱花FM｜谎言连篇的中共宣传机器（下）](/content/gnews/28/README.md)
- ` 樱花FM`
-
-### [COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）](/content/gnews/29/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.19D）&#8211;疫苗（安徽智飞生物）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [从上海封城看中共对全人类的危害](/content/gnews/30/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [普京向乌克兰边境派遣核轰炸机](/content/gnews/31/README.md)
+### [普京向乌克兰边境派遣核轰炸机](/content/gnews/32/README.md)
  ` 日本東京方舟農場`
 
-### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/32/README.md)
+### [俄军损失惨重 普京正组建“儿童军队”](/content/gnews/33/README.md)
  ` 日本東京方舟農場`
-
-### [五月花简报（04/19/2022）](/content/gnews/33/README.md)
- ` mayflowertranslate`
 
 ### [截至4.19 俄乌战事汇总](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`

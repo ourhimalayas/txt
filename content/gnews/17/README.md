@@ -2,8 +2,8 @@
 ---
 
 
-## 上海疫情下，女子帶著行李箱住在取款機房裡。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376907/)
+## 上海方艙隔離點裡的抗議。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2376929/)
 
 作者：东京樱花团小视频组
 
