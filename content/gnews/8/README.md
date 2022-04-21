@@ -2,36 +2,36 @@
 ---
 
 
-## 抗议俄侵略 美英加G20会议集体离席
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2383588/)
+## 日本撤销俄罗斯最惠国待遇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383752/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-俄罗斯侵略乌克兰仍在继续，21日的G20财长会议上，英国、美国和加拿大的高阶官员当着俄罗斯代表面前离席，许多成员也发言谴责俄罗斯对乌克兰发动的军事行动，不过会议内也有国家未加入抵制行列，显示世界主要经济体集团内部的出现分歧意见。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ea1dc235-aa2b-491a-913b-9728adcd0316.jpg)图片来源：AP Direct
+整理/编辑：围剿维尼熊
 
-G20财长会议20日在美国华府以视讯方式举行，今年由印尼担任主席国，会议成员包括美国、中共国、印度、巴西、日本和欧洲数国等世界主要经济体，针对债务攀高、以及可能爆发的粮食危机等全球挑战协商因应对策。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3F6EFDC0-F269-4130-A681-6C100BCDD4C0.jpg)图片来源：百度
 
-根据外媒报导，会议中当俄罗斯代表发言时，不少出席会议的部长和央行行长纷纷关闭视讯会议的镜头，包含美国财政部长叶伦（Janet Yellen）、乌克兰财政部长马尔琴科（Serhiy Marchenko）、英格兰银行总裁贝利（Andrew Bailey）和加拿大副总理兼财长方慧兰（Chrystia Freeland）等人。
 
-知情人士称，美国财长叶伦强烈反对俄国官员出席G20会议，也会尽量避免在会议中与俄方接触，先前叶伦表示，俄国在全球经济中「不会照常运作」，美国总统拜登也说，俄国不应继续担任G20的成员。
+估计美国之音4月21日报道，日本星期三正式撤销俄罗斯的最惠国贸易地位，加紧对俄罗斯因入侵乌克兰所实施的制裁。
 
-加拿大副总理兼财长方慧兰表示，「面对俄国持续不断的侵略与战争罪行，世界上的民主国家不会袖手旁观」，她强调，本周举行的会议关乎支持世界经济，但俄国非法入侵乌国是对全球经济的严重威胁，俄国不应参加，或被包含在这些会议中。
+取消俄罗斯最惠国贸易地位将对所有俄罗斯进口商品提升关税。在此之前，美国和7国集团其它成员国决定采取这个行动。
 
-民主国家不会对俄罗斯的侵略行为袖手旁观，只是根据战争程度的大小来采取不同的策略，在可控范围内采取不同的措施来限制俄罗斯援助乌克兰。乌克兰背后站的是整个民主世界，而俄罗斯虽然与中共有唇亡齿寒的关系，但也相互的提防。
+日本国会星期三的决定还包括修正一项外汇兑换法律，防止那些被冻结资产的国家转让持有的虚拟货币。
 
-中共作为俄乌战争背后的元凶，想联合俄罗斯在民主世界扩张进而为独裁的政府续命，俄罗斯已经在乌克兰吃了瘪，中共侵略台湾的计划虽然有所调整改变，俄罗斯作为前车之鉴中共也绝不会成功，俄罗斯今天的局面就是中共的明天。
+日本还冻结数百名俄罗斯人和团体的资产，禁止新投资和贸易，包括可能被用于军事目的的商品出口。日本还宣布计划逐渐停止进口俄罗斯的煤炭。
 
-新闻来源：[https://news.ttv.com.tw/news/11104210000700W](https://news.ttv.com.tw/news/11104210000700W)
+不过日本也面临俄罗斯的报复。莫斯科最近宣布停止与东京的和平条约谈判，包括对于前苏联二战结束时占领日本岛屿的谈判。
 
-撰稿/发布：一叶知秋
+参考链接：[日本正式撤销俄罗斯最惠国贸易地位](https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

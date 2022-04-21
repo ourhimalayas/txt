@@ -2,113 +2,96 @@
 ---
 
 
-## 德国人电话中骂中共国和政府是一坨屎的录音已全网删除
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2383248/)
+## 众议员迈克·沃尔兹：习近平也有建帝国的野心，习从普京的错误中学到了很多。
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2383343/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001_副本-1.png)
-新浪微博上关于德国人与居委会录音的讨论非常热，但是想在新浪微博或者国内的网上听到这段录音却似乎变得不可能，因为中共已经全网删除了这段录音，为了让我们共同铭记，现将该录音照录如下——
+**众议员迈克·沃尔兹： **
+中国共产党不仅注意到了俄罗斯在乌克兰的失败，习也在密切关注拜登的反应。 别被愚弄了，习和普京也有重建他们以前的帝国的野心。习从普京的错误中学到了很多。 （转美联社：中共国希望从俄罗斯在乌克兰的失败中吸取教训）
 
-**翻译：**你好，你是罗斯吗？
 
-**罗斯：**是的。
 
-**翻译：**你好，我是居委会。你知道，你是阳性对吗？
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s not only taking notes of Russia's failures in Ukraine but Xi's watching Biden's response closely.
+> 
+> Don't be fooled, Xi & Putin have similar ambitions to reconstitute their former empires. Xi's learning a lot from Putin's mistakes.[https://t.co/98ZllgBpJQ](https://t.co/98ZllgBpJQ)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 20, 2022](https://twitter.com/michaelgwaltz/status/1516825924704124936?ref_src=twsrc%5Etfw)
 
-**罗斯：**我不是阳性，疾控中心两天前打电话要来给我做测试，但是他们从未来做过测试，我12天前是阳性，我不可能还是阳性，所以我要求做新的测试。
 
-**翻译：**你觉得自己是阴性的？
 
-**罗斯：**我知道我是阴性的。
+**众议员迈克·沃尔兹： **
+仅去年一年，中（共）国和俄罗斯的贸易就增长了30%，达383亿美元。 现在，在俄罗斯摧毁乌克兰的同时，他们却致力于发展两国关系。中国共产党又一次把钱包放在了人权之前。
 
-**翻译：**是的，但是现在的政策规定是你必须去方舱。
 
-**罗斯：**没有适当的政策。疾控中心两天前打电话给我说，他们要过来，但是一直没有人过来做测试，所以这不是我的问题，叫疾控中心的人过来做个检查，然后我们再谈。我真的不在乎你们的政策，因为你们的体制是TM的一团糟（BECAUSE YOUR SYSTEM IS REALLY FUCKED UP.），它不解决问题，我已经去过方舱了，他们不想要我，他们把我送回家了。这是荒谬的，这对你们、对政府、对上海、对中国来说都是耻辱，这是个天大的笑话，所以叫疾控中心的人过来做个检查，如果我是阳性，然后我们再谈。
 
-**翻译：**我知道，我知道问题所在。
+> China & Russia have increased trade by THIRTY percent just in the last year. That's $38.3 BILLION.
+> 
+> Now they've committed to growing a relationship all while Russia's destroying Ukraine. Once again the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s putting its pocketbook ahead of human rights. [https://t.co/yZqCgUsphd](https://t.co/yZqCgUsphd)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 20, 2022](https://twitter.com/michaelgwaltz/status/1516808068776042498?ref_src=twsrc%5Etfw)
 
-**罗斯：**但那不是我的问题，那是你们的问题，是你们政府的问题，不是我的。因此，解决问题，派人过来检测，我要在中心大干一场。别担心，我会让所有媒体都参与进来。这将是非常轰动的，请你理解我。只要给我做个测试，我不需要你们的借口，我真的不在乎。把疾控中心的人派到这儿，做个测试，我将是阴性的，我们都好。
 
-**翻译：**请听我说，我不是政府人员，我只是帮他们翻译，因为他们说你不懂中文。
 
-**罗斯：**是的，把我的信息翻译给他们。
+**参议员霍利新闻办公室： **
+“中共 暴徒以真正的暴力威胁和搪塞来回应任何保护台湾免受入侵的企图。” 参议员霍利提出一项立法，帮助台湾抵御来自中（共）国的攻击。 （转大全新闻： 霍利参议员:美国必须尽快武装台湾）
 
-**翻译：**是的，但他们想让我告诉你，今晚会有人带你去方舱，不管你怎么说。
 
-**罗斯：**你知道，如果你是翻译，你必须翻译两边，对吧？这是正确的吗？所以你也会翻译给他们对吧？或者你只是把中文翻译成英文，或者你能同时把英文翻译成中文吗？
 
-**翻译：**是的，我会把你说的话告诉他们的。但是他们只是想让我告诉你，你必须去方舱。
+> “In true form, CCP goons respond to any attempt to protect Taiwan from invasion with violent threats and prevarications.”
+>  
+> Senator Hawley introduced legislation to help Taiwan defend itself against an attack from China. [https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 20, 2022](https://twitter.com/SenHawleyPress/status/1516831348476059654?ref_src=twsrc%5Etfw)
 
-**罗斯：**你可以用中文告诉他们吗？我TM的不在乎（I DO NOT FUCKING CARE），我需要疾控中心到我这儿来做个测试，这个政府太操蛋了（THIS GOVERNMENT IS REALLY FUCK UP.），没有任何组织，我已经去过中心了，他们把我送回来了，我和我妻子已经到过那儿，我妻子在这里，她是阴性，这里的每个人都是阴性，所以如果没有人给我做测试，我绝对不在乎，（I DO NOT REALLY FUCKING CARE）。找警察过来，让他们过来做检测，请向你的上级报告，派警察过来，给我做个测试，然后我们再讨论其他的。我是阳性，我在4月3日TM的测试阳性，你听我说，他们把我们放在这里十二天，然后他们决定把我们带走，接着他们把我们留在寒冷的地方五个小时后，再把我们送回家来，这太TM的荒谬了（THIS IS FUCKING RIDICULOUS），这是疯狂的，很抱歉把你夹在中间，但是这太荒唐了。告诉你的上级，我说他烂透了，告诉他，这个体制烂透了，让他派疾控中心的人过来，来给我做TM一次新测试，然后我们再谈其他的。疾控中心两天前给我打过电话，他们让我呆在家里等待测试，但他们并没有派人过来，我有这段录音。所以你们的体制是我此生经历过的最荒谬的体制，我孩子在幼儿园的时候都比这更有条理，你可以向你的上级转达我的良好问候。
 
-**翻译：**我明白你的意思。
 
-**罗斯：**你不懂我的意思，你不明白我的意思，我在这个鬼地方已经花了六千块人民币才把我的猫救出来，因为你们的政府就是一坨屎，你不知道发生了什么，你什么也不知道，你一点也不知道，叫疾控中心的人过来，做个检查，如果是阳性，我无比乐意去。但不可能是阳性的，所以叫TM的疾控中心的人过来，然后我们再谈，但事情必须这样办。如果不行，让你上级带警察过来，我们的大使馆已经在全程关注此事，所以这件事会引起轰动，这真TM是个天大的笑话，你知道的，你根本不理解，很抱歉让你夹在中间，这是你的工作，所以把我说的话翻译给你的上级，告诉他，这个政策糟透了，告诉他，这个政策不灵，这是彻头彻尾的乱局，这TM的就像小孩儿玩过家家，你要准确无误地告诉他。我们说明白了吗？
+**国务卿安东尼.布林肯： **
+美国谴责俄罗斯及其代理人在乌克兰犯下的暴行。 作为回应并促进问责制，我们对 655 名俄罗斯和白俄罗斯官员、代理当局和其他个人实施了签证限制。
 
-**翻译：**我会转告他们你说的话。
 
-**罗斯：**疾控中心两天前给我打过电话，他们说他们会过来做测试， 他们没有过来，我在静安的一个朋友也经历了同样的事情，这TM的太可笑了，这是荒谬的，这是这个国家和你们政府的耻辱。我只能说这么多，你们成了TM全世界的笑话。现在，这个国家就是个笑话。这真是个冷笑话，这是你要告诉你上级的话。如果他们必须组织起来，那没有问题。他们把我们八个阳性的人丢在这里整整他妈15天，我们都好了，然后他们决定带走我们，这是多么荒谬的规定。这太荒谬了，这是没有逻辑的。这完全是随机的，所以你要理解。
 
-**翻译：**是的，我理解，可能我会稍后再打过去。
+> The United States condemns the atrocities perpetrated by Russia and its proxies in Ukraine. In response and to promote accountability, we imposed visa restrictions on 655 Russian and Belarusian officials, proxy authorities, and other individuals.
+> — Secretary Antony Blinken (@SecBlinken) [April 20, 2022](https://twitter.com/SecBlinken/status/1516858126917677063?ref_src=twsrc%5Etfw)
 
-**罗斯：**不是可能，你转达给你上级，然后给我打回来。然后我将不得不再给我们的大使馆打电话，然后这件事会再次出现在美国。
 
-**翻译：**好的，我知道怎么跟他们说，我会跟他们说的。
 
-**罗斯：**好的，给我回电话，给疾控中心打电话，因为我们不能联系上疾控中心，疾控中心根本不能正常工作，他们用随机的号码给我们打电话，他们在凌晨两点给我们打电话，他们在凌晨三点给我们打电话，我们打不通疾控中心的电话，我们回不了电话，这是个耻辱——中国的耻辱。因此，给疾控中心打电话，让他们给我回电话，让他们TM的过来做测试，如果我是阳性，他们可以带走我吗？没问题，我很好，如果我是阴性的，我就在这里呆着。
+**参议员比尔·哈格蒂：**
+ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在无情地试图通过窃取美国企业的信息和技术来欺骗美国企业，以助长其专制政权并与我们竞争。我很高兴能通过立法阻止拜登政府做出这一错误决定。 【附华盛顿观察者文章：共和党推动法律恢复被拜登政府破坏的“中共倡议”】
 
-**翻译：**明白。
 
-**罗斯：**你不明白，你不要说你明白，你根本不了解，你根本TM的不了解到底发生了什么，我知道你居中翻译，对不起，但是你所在的这个体制，你所支持的这个体制就是一坨屎。一坨屎，这不是工作。 这完全是随机的、无意义的。人们害怕被驱赶甚于感染，这TM的是个笑话，你根本不懂，所以不要跟我说你明白，把我说的话转告你的上级，叫疾控中心的人过来，然后给我回电话。
 
-**翻译：**好的。
+> The CCP is relentlessly trying to cheat American businesses by stealing their information & technology to fuel its repressive regime & compete against us. Pleased to introduce legislation that would prevent this misguided decision by the Biden Admin.[https://t.co/HaZVZryHLr](https://t.co/HaZVZryHLr)
+> — Senator Bill Hagerty (@SenatorHagerty) [April 20, 2022](https://twitter.com/SenatorHagerty/status/1516919138475782146?ref_src=twsrc%5Etfw)
 
-**罗斯：**我哪儿也不去，我就在家里，我也跑不了，因此叫疾控中心的人过来，如果他们派不了人做测试，那就不是我的问题了，那是你们TM的问题，那是你们上级他们的问题，那是疾控中心TM的问题，那是中国共产党TM的问题，那不是我的问题。所以带着你们的问题去别的地方去吧，别把这些问题加到我身上来，把事情解决了，然后我们再谈。
 
-**翻译：**好的。
 
-**罗斯：**我会做同样的事情、同样的场景，我很好。我将在方舱度过一段愉快的时光，这对你们这些人来说很可笑。我已经爱上这样的经历了，我已经和德国媒体打成一片了，这件事正在变得越来越可爱了。（女主人：我来自中国，全球的荣誉。）这是这个国家的耻辱。任何第三世界的国家都会做得比这个要好，这太可耻了。给我回电话，告诉我疾控中心什么时候来检查。
+**参议员比尔·哈格蒂： **
+我们每天都在看到我们家乡南部边境危机的结果——芬太尼导致的死亡。[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 现在又在墨西哥与主要的贩毒集团合作，他们正在杀死美国的孩子们。
 
-**翻译：**好的，我会的，我会和他们谈并且告诉你他们什么时候过去，好吧？
 
-**罗斯：**谁要什么时候过来？
 
-**翻译：**医生们给你发信息。
+> We're seeing the results of the crisis at the southern border in our home state every day—deaths by fentanyl. The Chinese Communist Party is back in business now with the major cartels down in Mexico, and they're killing our kids.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 21, 2022](https://twitter.com/SenatorHagerty/status/1516942290853400577?ref_src=twsrc%5Etfw)
 
-**罗斯：**谢谢。
 
-**翻译：**我会跟他们说的。
 
-**罗斯：**谢谢，再见。
+**参议员马可·卢比奥：** 
+迪士尼对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的独裁统治只字未提，因为那将会影响他们数十亿美元的收入。 但他们毫无顾忌地利用自己的公司权力对佛罗里达州 [#Florida](https://twitter.com/hashtag/Florida?src=hashtag_click) 民选议员通过的法律撒谎。
 
-\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
-中共是一坨屎，这是个不争的事实，但是这坨屎在谎言的包装之下曾经是金玉其外败絮其中的一坨屎，所以这个世界和十四亿中国人民会被它光鲜的外表迷惑而忘记中共和这个极权是一坨屎的事实。
 
-而今在伟大领袖习猪头不作不死的带领下，在全社会动态清零的所谓疫情管控之下，十四亿中国人民和这个世界更清晰地看到了中共和这个极权是一坨屎的事实。
+> Disney doesn’t say a word about the dictatorship in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) because it would cost them billions of $’s 
+> 
+> But they have no problem using their corporate power to lie about laws passed by democratically elected legislators in [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/aURQrl9mQ9](https://t.co/aURQrl9mQ9)
+> — Marco Rubio (@marcorubio) [April 21, 2022](https://twitter.com/marcorubio/status/1516969534435266561?ref_src=twsrc%5Etfw)
 
-是谁造就了中共和它的极权体制这一坨屎？是这个世界和十四亿中国人民一起造就了这一坨屎。是世界的绥靖和一代又一代中国人的屈就、服从、忍让使中共这一坨屎一点一点套上金玉的外衣，并且因为套上金玉的外衣而内里愈发其臭，现在是我们这一代中国人和这个世界彻底铲除这一坨屎的时候，因为它的存在对所有中国人和这个世界都是个耻辱，只有铲除中共和它的极权才能洗清我们中国人的原罪，才能洗脱我们中国人的耻辱。
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
+**参议员马可·卢比奥： **
+拜登将诉诸法庭，再次迫使所有人在飞机上戴口罩，因为(拜登)这些人喜欢用权力控制所有人。
 
-校对：Maarago；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+> Biden is going to court to force everyone to wear masks on planes again because these people love having power over everyone
+> — Marco Rubio (@marcorubio) [April 21, 2022](https://twitter.com/marcorubio/status/1516932829912911872?ref_src=twsrc%5Etfw)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

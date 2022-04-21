@@ -2,27 +2,29 @@
 ---
 
 
-## 加拿大坚持交通出行的口罩授权政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383336/)
+## 419五周年:美国志愿者为美国媒体的堕落感到羞愧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383520/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+整理/编辑：小红帽
 
-撰稿：加拿大温哥华扬帆农场 – 文莱
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2548.png)图片来源：[CTV News](https://www.ctvnews.ca/health/coronavirus/no-plans-to-change-masking-policy-on-planes-trains-in-canada-as-u-s-drops-mandate-alghabra-1.5867020)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_from_2022-04-21_11-46-31.png)图片来源：郭文贵先生4月21日盖文视频
 
 
-据【CTV新闻】4月19日报道，加拿大交通部长当天表示，虽然美国已取消在交通旅行场所内强制配戴口罩的措施， 但加拿大仍将执行在飞机，火车和公共汽车等交通工具内必须配戴口罩的规定。
+2022年4月19日，在波兰梅迪卡难民中心，美国志愿者告诉新中国联邦和法治基金志愿者妮可，他们为美国媒体的堕落感到羞愧，并呼吁人们不要被恐惧和威胁所吓倒。
 
-报道称，美国最高法院日前取消了联邦政府对在公共交通工具内强制配戴口罩的授权。而与此同时，加拿大仍有超过600万人因该规定而无法自由出行。
+美国志愿者说：“我确实感到羞愧的是，美国愿意接受中共国对大众媒体的资助，而不是在关乎独立的问题上坚决坚持事实。现在美国人身上全是问题。我们美国绝对有问题，每个国家都有。从刚果到荷兰，每个国家都有自己的秘密，其下隐藏着邪恶。我们都有自己的问题，重要的是我们不要被恐惧或威胁所吓倒。不被吓倒是很重要的。”
 
-交通部长对此认为，政府将根据疫情的变化而对现行卫生措施不断进行重新评估，但目前仍需坚持以上口罩授权政策。
+美国志愿者呼吁，所有愿意殉道的人，你们走到哪里都必须相信你们所认为正确的事情。
 
-校对编辑：硫酸羟氯喹64
+资料来源：[郭文贵先生4月21日盖文](https://gettr.com/post/p16agbtcf77)
 
-发稿：青青
+发布：tianzhihuan
 
-新闻来源： [Mask mandate: Transport minister weighs in on U.S. court ruling | CTV News](https://www.ctvnews.ca/health/coronavirus/no-plans-to-change-masking-policy-on-planes-trains-in-canada-as-u-s-drops-mandate-alghabra-1.5867020)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

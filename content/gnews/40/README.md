@@ -2,26 +2,23 @@
 ---
 
 
-## 越来越多的俄罗斯精英开始质疑普京的入侵计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2381777/)
+## 加拿大通胀率失控再创新高
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383214/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16504814991-1.png)DW.com
-据福克斯新闻4月20日报道，有克里姆林宫的高层官员开始质疑普京对乌克兰开战的决定。但他的支持率仍然居高不下。
+采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-普京在俄罗斯精英中的支持率居高不下的原因是，许多人依然相信克林姆林宫的话；即俄罗斯不会受西方制裁太大的影响。尽管如此，越来越多的人认为，普京继续入侵将使俄罗斯孤立于世界。俄罗斯经济的瘫痪将影响到其全球影响力。
-
-消息人士说，入侵乌克兰的决定是由普京和俄罗斯国防部长谢尔盖·绍伊古 （Sergei Shoigu）、俄罗斯上将瓦莱里·格拉西莫夫（Valery Gerasimov）和俄罗斯安全理事会主席尼古拉·帕特鲁舍夫 （Nikolai Patrushev）等少数俄罗斯精英做出的。
-
-鉴于战争持续了近两个月，和经济制裁加剧，包括俄罗斯政府和国有企业在内的高层认为，入侵是一个灾难性的错误。这将使该国的经济 倒退很多年。
-
-随着俄罗斯军队的挫败，普京说，是西方让他 ”别无选择”，他只能攻打乌克兰。一些官员越来越担心在可能面临失败的情况下，普京可能会使用核武器。但目前普京对这些有关战争经济代价的警告毫不在意。
-
-*责编：白夜*
-
-[文章来源](https://www.foxnews.com/world/russian-officials-questioning-putins-decision-to-invade-ukraine-report)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2547.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
 
 
+据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国3月份通货膨胀率已接近7%，是自1991年1月以来消费价格指数同比增长最快的一年。
+
+据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同期相比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年2月以来的最大涨幅。
+
+报道称，尽管目前平均工资增长了3.4%，但仍然远低于持续上升的通胀率，而最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
+
+校对编辑：硫酸羟氯喹64
+
+新闻来源： [https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
 
  
 

@@ -2,41 +2,30 @@
 ---
 
 
-## 俄罗斯试射可携带核弹头的新型洲际弹道导弹
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2383041/)
+## 香港公务员辞职创新高 投考须国安法测试合格
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2383282/)
 
-翻译：多伦多蓝莲花农场- 灭共文明
+![香港公务员事务局局长聂德权在个人官方脸书网页上介绍有关新政策](https://gdb.voanews.com/04f30000-0aff-0242-f27e-08da2313a8eb_w1023_r1_s.png)香港公务员事务局局长聂德权在个人官方脸书网页上介绍有关新政策
+据美国之音4月21日报道，香港公务员辞职潮再创新高，港府宣布从4月20日开始，欲应征今年7月1日起的公务员职位招聘，需持有大学或以上学历，还必须在新推出的《基本法及香港国安法 》测试中取得及格成绩，方获考虑聘用。
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》伦敦4月20日报道，在俄乌战争两个月后，**周三，俄罗斯试射了一枚可携带核弹头的新型洲际弹道导弹。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Putin-Sarmat-missile.jpg)俄罗斯总统普京和新型萨尔马特弹道导弹试验的组合照片（图片来源：法新社/俄罗斯国防部）
-**俄罗斯此举为了威慑美国和西方各国**。** 俄罗斯国防部周三表示，在俄罗斯西北部的普列谢茨克首次试射“萨尔马特”导弹，击中了近6000公里外的堪察加半岛的目标。**
+这个名为“《基本法及香港国安法》测试 (学位/专业程度职系)”是一张设有中英文版本的选择题试卷，共有20题，考生须于30分钟内完成。申请人如在20题中答对10题或以上，将被视作及格，成绩可用于日后申请所有公务员职位。有不少网民对此负评，“祖国好、爱国爱党、听党话跟党走”便是模范标准答案。还有网民说不需考试，“只要懂得像狗吠便会考试合格”。
 
-据报道，这次的导弹测试并没有让西方感到意外。八周前，**普京在宣布入侵俄罗斯时，就提到了俄罗斯的核力量，并警告西方，任何企图阻挡它的入侵，都将导致严重后果。**
+香港近年公务员和政务职系(AO)辞职者人数趋增，两者同为香港主权移交中共国以来的新高。香港作为圣城一般的存在，是中国人民抵抗暴政的一盏灯塔，虽然“东方之珠”已经在中共的镇压下失去了往日的光彩，但是三年来，香港人从来没有后退，从来没有屈服。所谓“饿死事小，失节事大”，香港人宁愿放弃优越的公务员职位，宁愿扶老携幼背井离乡，也不愿意充当中共的走狗。一份份辞职报告表达了香港人对民主、自由和正义的捍卫。今日的离开是为了积蓄力量准备明日的回归，香港是人民的香港，是民主自由的天堂，不可能永远沦为中共的后花园。消灭中共！荣光回归香港！
 
-几天后，他就下令俄罗斯的核力量进入高度戒备状态。**联合国秘书长**安东尼奥·古特雷斯(Antonio Guterres)上个月还表示，**曾经不可想象的核冲突前景现在又回到了可能的范围。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/古特雷斯.jpg)联合国秘书长安东尼奥·古特雷斯（图片来源：网络）
-塔斯社援引**俄罗斯航天局局长**德米特里·罗戈津(Dmitry Rogozin)周三的话说，**一旦测试完成，俄罗斯的核力量将在今年秋季开始接受新型导弹的交付。**
+新闻参考链接：[https://www.voachinese.com/a/passage-of-national-security-law-test-a-new-requirement-for-hong-kong-civil-servants-applicants-20220420/6538097.html](https://www.voachinese.com/a/passage-of-national-security-law-test-a-new-requirement-for-hong-kong-civil-servants-applicants-20220420/6538097.html)
 
-国际战略研究所军事航空航天高级研究员道格拉斯•巴里(Douglas Barrie)表示，由于资金问题和设计挑战，此次发射经历了多年的拖延。他还说，俄罗斯需要进行更多的测试，才能真正部署这种导弹，取代“远远超过保质期”的陈旧的SS-18和SS-19导弹。
+编辑：胖丁
 
-伦敦智库RUSI的杰克•沃特林(Jack Watling)表示，在距离一年一度的“胜利日”阅兵不到三周的时间里，**俄罗斯将展示其最新武器，其显示威慑和象征性的意义**。
+* * *
 
-沃特林还表示，这次试验的时机反映出，俄罗斯人希望在“胜利日”前夕展示一些技术成就，为了提振士气，挽回“莫斯号”沉没带来的损失，但是他们的很多技术还没有达到所希望的结果。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新闻来源链接：
 
-[https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/](https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/)
+编辑：【英国伦敦喜庄园编辑部】
 
-校对与发布：飞花逐月
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

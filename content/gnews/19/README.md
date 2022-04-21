@@ -2,96 +2,34 @@
 ---
 
 
-## 众议员迈克·沃尔兹：习近平也有建帝国的野心，习从普京的错误中学到了很多。
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2383343/)
+## 2022年4月20日郭先生盖特 — 视频1「9分12秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/2383603/)
 
-**众议员迈克·沃尔兹： **
-中国共产党不仅注意到了俄罗斯在乌克兰的失败，习也在密切关注拜登的反应。 别被愚弄了，习和普京也有重建他们以前的帝国的野心。习从普京的错误中学到了很多。 （转美联社：中共国希望从俄罗斯在乌克兰的失败中吸取教训）
+听写：洛杉矶盘古农场 — 盘古小蚂蚁 & Antsee-GTV
 
+Video link: [https://gettr.com/post/p167ju85091](https://gettr.com/post/p167ju85091)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5B0D7D1B-95CA-459F-8D70-71BC40BC0DC1.jpeg)
+尊敬的战友们好，4月20号。“419”的大直播 — 哇噻，昨天是我直播有史以来最累的一次！昨天一直头疼，昨晚睡了一觉今天早上都好了。但是昨天是最累的一次 — “419”直播 — 特别特别累。头痛，然后最后还是播了七八个小时。真不容易！“419”五年过去了；真的是时间、时代，真的是一切都变了！
 
+昨天晚上我收到了很多国内战友的太多信息了；没法回。都是国内翻墙看昨天“419”五年的大直播。大家都感触很深，都是跟了爆料革命跟了这几年了。哎呀～哭声一片呐，说现在整个中共国真的就像当年7哥说的一样，说老百姓的生存权、财务权，还有起码的人权 — 就甭说民主了 — 真像猪狗一样被对待着。真的是太可怕了！
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s not only taking notes of Russia's failures in Ukraine but Xi's watching Biden's response closely.
-> 
-> Don't be fooled, Xi & Putin have similar ambitions to reconstitute their former empires. Xi's learning a lot from Putin's mistakes.[https://t.co/98ZllgBpJQ](https://t.co/98ZllgBpJQ)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 20, 2022](https://twitter.com/michaelgwaltz/status/1516825924704124936?ref_src=twsrc%5Etfw)
+但是昨天的直播真的是感谢特别多的战友辛苦地准备的各种文件和加入！像在台湾的战友和亚洲的战友都等了整整一夜。前天我觉得我是有点感冒了，这家伙的一夜没睡觉，再加上国内老通电话，通视频…哎呀，昨天真是头痛欲裂呀，迷迷糊糊地做了一天八小时的大直播，你说这…
 
+今天我早上醒来；一切都好了。然后看到国内那么多战友的这种感动，感激…7哥觉得是值得的！咱们用了五年；爆料革命、新中国联邦创建了一个国，搞了一个世界的金融集团。战友们现在都是从过去猪狗不如的茅粪坑里爬出来，拥有了希望和未来…值！咱值啊，兄弟姐妹们！俺骄傲！这些老杂毛们现在看到我们这样子，共产党知道他们的末日已经到了！我们在做着一个拯救人类，拯救所有中国同胞的一个伟大事业 — 累点算啥呢，是不是？
 
+这两天Himalaya Pay好像是升级，不是故障是升级；很难升级，这个…几天了，估计也有技术问题，升级的问题 — 不能用。哇塞，一不能用好多战友就抓耳挠腮了，因为大家都懂的，H-Pay实际上是很多很多方面都能用的。H-Pay未来路长着呢，H-Pay绝对未来是代替美国的SWIFT一个最安全的，加密的数字货币的一个支付方式。
 
-**众议员迈克·沃尔兹： **
-仅去年一年，中（共）国和俄罗斯的贸易就增长了30%，达383亿美元。 现在，在俄罗斯摧毁乌克兰的同时，他们却致力于发展两国关系。中国共产党又一次把钱包放在了人权之前。
+昨天很多话都没说完。别看八个小时；很多话没说完。比如说我们现在或未来的生活中就是“法币”就叫“宗教” — 不能怀疑，不能挑战，也没有任何所谓的不确定性；唯一不确定的就是这个政府被灭了，那你就当奴隶吧。你只要它会这么干，法币就是剥夺你的；数字货币是可怀疑可挑战的，是吧？但是你绝对可相信，绝对可信赖。坚定不移 — 你越信，它有价值；越信，它越好！SWIFT在西方是一个被政府控制的，被利益集团控制的这么一个支付系统。如果SWIFT不是一个政府控制的支付系统，它就是一个“信仰”，金融的“信仰”。我们的H-Pay就是未来的金融的“信仰”，再加上躺平币；“去中心化货币“和“中心化货币”加在一起，加上支付系统 — 那就是金融界的“信仰”。
 
+另外，看到现在俄乌大战，7哥一星期前说了吧？我说，“下周…” — 我说也就是这一周 — “…一定会大战！”大战的目的是什么？要“讲数”，谈判！另外，这里面有很多的政治原因：谁来保普京的安全；谁来保这些家族的钱的安全；谁保证把钱还回来…那我不打了，是吧？这都在讲…
 
+关于台湾问题，我昨天已经说了，台湾是没有任何希望的。现在越了解台湾的越感到恐怖 — 这个事情让人太多深思了！还有种族的问题、文化的问题，还有政治系统的问题…太可怕，太可怕了！再看看香港，再看看现在的日本、澳大利亚；人类确实需要一个正道主义的政治体系诞生了。这非常非常重要，但绝对不是“莫德尔周期”，别扯淡的事儿！讲是“莫德尔周期”的这疯子简直是。
 
-> China & Russia have increased trade by THIRTY percent just in the last year. That's $38.3 BILLION.
-> 
-> Now they've committed to growing a relationship all while Russia's destroying Ukraine. Once again the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s putting its pocketbook ahead of human rights. [https://t.co/yZqCgUsphd](https://t.co/yZqCgUsphd)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 20, 2022](https://twitter.com/michaelgwaltz/status/1516808068776042498?ref_src=twsrc%5Etfw)
+整个中国可以说现在处在了大变的前夜；谁都挡不住！共产党必被灭！所谓的“清零管控”就是共产党最后死亡前的挣扎，最后的一次政治操作，不可能再有“二十大”！如果中国还有“二十大”，中国人民就该活遭死罪了。我们对挣钱半点兴趣没感；给我们真的万万万亿让我们去当那什么“总书记”、“皇帝”…我们都不去！但中国人必须有“一人一票”的选举制度；必须中国人要活得像人一样有尊严；中国人必须自己的钱自己说了算；中国的土地必须归还给中国人民，永远归还人民；中国人买的房必须是永久产权。
 
+被共产党剥夺了几十年的信用卡、房贷…都得撤销！因为你共产党把钱全给骗走了。海外的钱必须回去，弥补这几十年剥削的老百姓的所谓的“房贷”、“车贷”、“信用卡贷” — 就这么简单！你像回去把北京城给我当我的客厅我都不去住，那就是上帝吐了口痰，想想北京那个脏乎乎的样子我都烦。中国有几个地方还适合人居住啊？没出过国的人你在屋里边儿你就是“吃不到葡萄说葡萄酸”；是个国家都比中共国美丽、自然、健康。你没出过国，你可不就自己在那儿嘚瑟，觉得自己哪都好？问问中国有钱有名的人，让他们选择 — 拿美国护照还是中国护照，美元和人民币，甚至欧洲国家或澳大利亚…选择哪儿？都选择人家；不选择自己。这不就完了嘛！
 
-
-**参议员霍利新闻办公室： **
-“中共 暴徒以真正的暴力威胁和搪塞来回应任何保护台湾免受入侵的企图。” 参议员霍利提出一项立法，帮助台湾抵御来自中（共）国的攻击。 （转大全新闻： 霍利参议员:美国必须尽快武装台湾）
-
-
-
-> “In true form, CCP goons respond to any attempt to protect Taiwan from invasion with violent threats and prevarications.”
->  
-> Senator Hawley introduced legislation to help Taiwan defend itself against an attack from China. [https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 20, 2022](https://twitter.com/SenHawleyPress/status/1516831348476059654?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼.布林肯： **
-美国谴责俄罗斯及其代理人在乌克兰犯下的暴行。 作为回应并促进问责制，我们对 655 名俄罗斯和白俄罗斯官员、代理当局和其他个人实施了签证限制。
-
-
-
-> The United States condemns the atrocities perpetrated by Russia and its proxies in Ukraine. In response and to promote accountability, we imposed visa restrictions on 655 Russian and Belarusian officials, proxy authorities, and other individuals.
-> — Secretary Antony Blinken (@SecBlinken) [April 20, 2022](https://twitter.com/SecBlinken/status/1516858126917677063?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：**
- [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在无情地试图通过窃取美国企业的信息和技术来欺骗美国企业，以助长其专制政权并与我们竞争。我很高兴能通过立法阻止拜登政府做出这一错误决定。 【附华盛顿观察者文章：共和党推动法律恢复被拜登政府破坏的“中共倡议”】
-
-
-
-> The CCP is relentlessly trying to cheat American businesses by stealing their information & technology to fuel its repressive regime & compete against us. Pleased to introduce legislation that would prevent this misguided decision by the Biden Admin.[https://t.co/HaZVZryHLr](https://t.co/HaZVZryHLr)
-> — Senator Bill Hagerty (@SenatorHagerty) [April 20, 2022](https://twitter.com/SenatorHagerty/status/1516919138475782146?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂： **
-我们每天都在看到我们家乡南部边境危机的结果——芬太尼导致的死亡。[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 现在又在墨西哥与主要的贩毒集团合作，他们正在杀死美国的孩子们。
-
-
-
-> We're seeing the results of the crisis at the southern border in our home state every day—deaths by fentanyl. The Chinese Communist Party is back in business now with the major cartels down in Mexico, and they're killing our kids.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 21, 2022](https://twitter.com/SenatorHagerty/status/1516942290853400577?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥：** 
-迪士尼对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的独裁统治只字未提，因为那将会影响他们数十亿美元的收入。 但他们毫无顾忌地利用自己的公司权力对佛罗里达州 [#Florida](https://twitter.com/hashtag/Florida?src=hashtag_click) 民选议员通过的法律撒谎。
-
-
-
-> Disney doesn’t say a word about the dictatorship in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) because it would cost them billions of $’s 
-> 
-> But they have no problem using their corporate power to lie about laws passed by democratically elected legislators in [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/aURQrl9mQ9](https://t.co/aURQrl9mQ9)
-> — Marco Rubio (@marcorubio) [April 21, 2022](https://twitter.com/marcorubio/status/1516969534435266561?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥： **
-拜登将诉诸法庭，再次迫使所有人在飞机上戴口罩，因为(拜登)这些人喜欢用权力控制所有人。
-
-
-
-> Biden is going to court to force everyone to wear masks on planes again because these people love having power over everyone
-> — Marco Rubio (@marcorubio) [April 21, 2022](https://twitter.com/marcorubio/status/1516932829912911872?ref_src=twsrc%5Etfw)
-
-
+【🎵】“你若不相信呐，请往未来看…” — 下句是啥？不会唱了 — “…你若有本事，别被试核酸…” 行了，找时间再直播；么～
 
  
 
