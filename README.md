@@ -93,43 +93,43 @@
 ### [美国宣布接纳乌克兰难民的计划](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文编|俄罗斯中将莫德韦切夫被击毙意味着普京已经被打到穷困潦倒](/content/gnews/27/README.md)
- ` KarmaLabs`
-
-### [世界上最大的金条价值飙升](/content/gnews/28/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文编|在中国英雄无好结果 开国将军也不例外](/content/gnews/29/README.md)
- ` KarmaLabs`
-
-### [普京宣布占领马里乌波尔](/content/gnews/30/README.md)
+### [普京宣布占领马里乌波尔](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/31/README.md)
+### [美国及世界疫情简报（04-21-2022）](/content/gnews/29/README.md)
  ` 波士顿五月花农场`
 
-### [文编|乌克兰前线救援行动是对新中国联邦人的人格，道德，人性的一场考试！](/content/gnews/32/README.md)
+### [文编|波音737广西坠机真相](/content/gnews/30/README.md)
  ` KarmaLabs`
 
-### [文编|波音737广西坠机真相](/content/gnews/33/README.md)
+### [文编|美国人要动手了，卖股票的朱镕基家](/content/gnews/31/README.md)
  ` KarmaLabs`
 
-### [文编|美国人要动手了，卖股票的朱镕基家](/content/gnews/34/README.md)
+### [文编|傅政华，孙力军之前转移的钱财](/content/gnews/32/README.md)
  ` KarmaLabs`
 
-### [文编|傅政华，孙力军之前转移的钱财](/content/gnews/35/README.md)
- ` KarmaLabs`
-
-### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/36/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/37/README.md)
+### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文编|习近平的反腐“割”命](/content/gnews/38/README.md)
+### [文编|习近平的反腐“割”命](/content/gnews/35/README.md)
  ` KarmaLabs`
 
-### [文编|战争打得都是钱 将来俄罗斯、中国一定被肢解](/content/gnews/39/README.md)
+### [文编|战争打得都是钱 将来俄罗斯、中国一定被肢解](/content/gnews/36/README.md)
+ ` KarmaLabs`
+
+### [文编|疫苗灾难导致互害的报复社会行为将越来越多](/content/gnews/37/README.md)
+ ` KarmaLabs`
+
+### [文编|躺平币就是让全球穷人能购买水和食物](/content/gnews/38/README.md)
+ ` KarmaLabs`
+
+### [文编|躺平币逐步过渡到第三代质变的数字货币](/content/gnews/39/README.md)
  ` KarmaLabs`
 
 ### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/40/README.md)
