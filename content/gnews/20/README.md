@@ -2,28 +2,27 @@
 ---
 
 
-## 俄乌战局最新消息汇总（4.21）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2387697/)
+## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387716/)
 
-作者：文斌
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-截止当地时间4月20日，俄罗斯军队继续炮击乌克兰哈尔科夫州的平民定居点，并对哈尔科夫市周边的多个村镇采取了封锁限制。同时，俄军在基辅和乌克兰东北部地区的进攻再度打响：俄方的战略主要是在炮火和空中轰炸的支援下，对该地区进行一些小规模的地面进攻。而在马里乌波尔市，乌克兰守军在俄罗斯部队的狂轰滥炸中顽强地维持了他们在工厂的阵地，而俄乌双方在该市中心区域的巷战仍在持续。另一方面，俄罗斯军队也加强了其在顿涅茨克州和卢甘斯克州的进攻行动：波帕斯纳亚、鲁别日诺耶、利西昌斯克和北顿涅斯克等多个地方目前依然遭受着俄军的炮火攻击，且部分俄军还在阿瓦迪夫卡和马林卡附近进行整合。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0ffd110d89e547018e77ced43e90c301.jpeg)
-但据乌克兰方的消息显示，乌克兰守军成功击退了俄罗斯入侵阿瓦迪夫卡、波帕斯纳亚和鲁别日诺耶的企图。此外，俄军向伊久姆南部发动的攻势也在乌克兰的反击中失败。且由于乌克兰的强力攻势，俄军不得不重新在扎波罗热州中部的波洛伊进行集结，用以阻止当地乌军的反击行动。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-5.jpg)
 
-消息人士则透露，未来几天内，俄军或将从三个方向发起大规模的地面进攻，即伊久姆向东南，克里米纳和波帕斯纳亚向西，以及顿涅茨克市经阿瓦迪夫卡向北。在此情况下，俄军试图从伊久姆到顿涅茨克一带对乌克兰军队进行一次大范围或一系列小范围的包围作战。然而，鉴于乌克兰的持续抵抗，这个包围圈的效果或许难以达到俄军的预期。
+文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](https://gnews.org/zh-hans/2376911/)
 
-更多消息，请持续关注本节目的后续报道。
+音频处理：Fei797
+发稿：Fei797
 
-参考链接：[Ukraine Interactive map](https://liveuamap.com/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-编辑：Irene木木
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

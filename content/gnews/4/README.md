@@ -2,10 +2,46 @@
 ---
 
 
-## 4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2388062/)
+## 装置作品《成都双年展作品（一）》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2388106/)
 
-秘密翻译组-北美组
+整理：vale
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2682.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2673.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2674.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2675.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2676.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2677.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2678.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2679.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2680.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2681.png)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-32.jpeg)
 
  
 

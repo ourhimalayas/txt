@@ -2,27 +2,54 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387716/)
+## SpaceX阻止俄罗斯的电磁战攻击而受到美国军方关注
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2387826/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Boeing-scaled1.jpg)2020年1月29日，猎鹰9号星链火箭在佛罗里达州卡纳维拉尔角空军基地的40号停机坪成功升空。星链 “迅速粉碎了俄罗斯在乌克兰干扰其能力的努力，五角大楼官员希望效仿其快速反应。(图片来源：美国空军)
+据美国《国防新闻周刊》于2022年4月21日华盛顿报道，五角大楼专家周三表示，俄罗斯停止在乌克兰开展电磁战表明，快速反应并立即制止此类攻击是多么的重要。
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](https://gnews.org/zh-hans/2376911/)
+但他们在周三的C4ISRNET会议上表示，美国需要在自身的电磁战快速反应方面做得更好，并且可以从私营机构如何处理这些情况中学到很多东西。
 
-音频处理：Fei797
-发稿：Fei797
+空军电磁频谱优势局局长塔德·克拉克准将表示，现代战争将越来越多地涉及电磁战，尤其是在冲突开始时的战场准备中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+国防部长办公室电子战主任戴夫·特雷珀指出，SpaceX上个月有能力迅速阻止俄罗斯干扰其星链卫星宽带服务的图谋，该服务使乌克兰与互联网保持连接。SpaceX创始人埃隆·马斯克在一位官员向他发送推文，请求帮助其被围困的国家保持在线后，将数千个星链终端送达乌克兰。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“（在有关俄罗斯实施干扰的报道传到媒体之后的）第二天，星链已经抛出了一行代码并修复了它，” 特雷珀说。“瞬间（俄罗斯的干扰攻击）就失效了。从一个电子战技术专家的角度来看，这太棒了……他们是如何做到的真让我大吃一惊。”
+
+反观在政府方面，则需要有一个“漫长的时间线来进行这些类型的修复”，因为它对所发生的事情要先进行分析，然后再决定如何修复它并签订修复合同。
+
+“我们亟需拥有这种敏捷性，” 特雷珀说。“我们需要改变对待电磁战的态度，以便能够非常动态地改变我们正在尝试做的事情，并且不会在此过程中失去能力。”
+
+特雷珀还表示，备份冗余也很关键，因此如果电子战攻击成功地击溃了一个系统，美国可以继续在另一个系统上运行。
+
+克拉克则表示，在建造新的电子战设备方面，美国需要进行更多创新思考。仅仅采购旧系统的升级是不够的，美国必须实现新的系统，以实现更大的抗性和速度。
+
+他们说，俄罗斯入侵乌克兰让美国学到了很多关于俄罗斯装备的复杂性和可靠性，以及他们的部队以同步方式执行任务的能力。
+
+特雷珀表示，五角大楼预计俄罗斯将展示“更强大”的电子战，但他警告说，这并不是说俄罗斯的所有努力都失败了。
+
+简评：
+
+自俄乌战争爆发以来，马斯克的星链系统帮助乌克兰成功得阻止了俄罗斯的入侵，并且让俄军遭受了非常重大的损失。近期的新闻还爆出俄军黑海舰队旗舰莫斯科号也是在星链的帮助下实施定位跟踪，才成功地被乌军使用并非最先进的导弹击沉。
+
+星链系统无疑已经成为俄军最为忌惮的系统，必然会动用最先进的采用电子战科技对其进行攻击。本文报道出SpaceX 迅速对俄发动的电子战进行了反击，并且在极短的时间内就发布了代码，恢复了受到攻击的系统。
+
+数周前马斯克曾经公开向独裁者普京挑战，而郭文贵先生也在直播中数次提到了星链系统有能力阻止俄罗斯的战略核武器发射。作为一个私人企业，Space X 可以在电子战中成功对抗世界第二大军事强国和航空大国的俄罗斯确实是一个令人振奋的消息。这也是美国国防部的高级官员也对SpaceX大家赞赏并且表示要学习其成功的经验。我们期待马斯克和他的星链系统能够在乌俄战争中和即将爆发的中共侵略台湾的战争中始终站在正义的一方，在消灭以习近平和普京为首的邪恶共产主义独裁体制中发挥更大的作用。
+
+新闻链接：[SpaceX shut down a Russian electromagnetic warfare attack in Ukraine last month — and the Pentagon is taking notes](https://www.defensenews.com/air/2022/04/20/spacex-shut-down-a-russian-electromagnetic-warfare-attack-in-ukraine-last-month-and-the-pentagon-is-taking-notes/)
+
+翻译/简评：新街口 / PR：村民彼得潘
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
