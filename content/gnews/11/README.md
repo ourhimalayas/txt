@@ -2,39 +2,57 @@
 ---
 
 
-## 地缘政治专家弗里德曼：中俄之间不存在同盟关系，双方经济都很弱
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383724/)
+## 俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（3/6）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383761/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：噜噜咪
 
-整理/编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/56E1024B-8B2C-4C5E-9C82-F74B4019CC29.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
-根据美国之音4月21日报道，俄罗斯发动对乌克兰发动侵略战争以来，俄罗斯不仅未能如其所预期的迅速征服乌克兰，反而其“战斗民族”的标签被彻底戳穿。
 
-中国原本寄希望于通过不断强化与俄罗斯的关系来抗衡美国的压力。但俄军在战场上的拙劣表现使俄罗斯不仅没能成为中国的战略资产，反而成了中国的包袱。
 
-知名地缘政治专家、国际关系分析师乔治·弗里德曼(George Friedman)认为，俄乌战争仍有悬念，包括美国是否直接参与，但这要取决于俄军在战场上的行为。但无论结局如何，俄罗斯世界三流国家的本色一览无余。和俄罗斯一样，中国也在自我削弱，在很多方面，中国的敌人是自己。
 
-至于美中关系恶化的主要原因在于习近平个人，修复美中关系全在一念之间。因为，美中之间存在很多共同利益，经贸联系紧密，这与美俄关系有本质上的不同。
+**[接上篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（2/6）](https://gnews.org/zh-hans/2383535/)**
 
-乔治·弗里德曼说，首先中俄之间不存在同盟关系。同盟需要有实质内容，即一旦发生战争，彼此会提供安全保障。中国在这场战争中几乎没做什么。它确实说了几句话，但只是说说而已。重要的是，俄罗斯很弱，而中国在经济上也是一天比一天弱。毕竟中国的西部地区非常贫穷。习近平已承诺让他们富裕起来，但在这种情况下，他无法让西部富裕起来。所以说，现在在欧亚大陆上有两个极其脆弱的大国—俄罗斯和中国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-438.jpg)俄罗斯声称，随着弗拉基米尔·普京的军队在乌克兰东部的顿巴斯地区发起新的攻势，它已经用导弹、空袭和大炮打击了1200多个乌克兰目标，并爆发了巷战。图为周二，俄罗斯在米科拉耶夫的轰炸后的情景
 
-乔治·弗里德曼认为，中国多年来做了许多不必要的威胁，但中国也是在自我削弱。作为美国的最大客户，中国一直在系统地疏远美国，如果你做生意，你应该知道不要疏远你最大的客户。因此，中国的问题是，中国的内部削弱与它的经济成长方式有很大关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-177.jpg)图为周二，在离乌克兰基辅不远的Zalisia村，一所受损的幼儿园。
 
-乔治·弗里德曼表示，中国需要面对的现实是并不存在什么东、西的问题，而是中国与美国的问题。美国是世界唯一个能够以如此规模进口中国商品的国家，这是非常重要的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-154.jpg)星期二在乌克兰东部的一个未知地点，俄罗斯对乌克兰的攻击仍在继续，乌克兰军人坐在一辆装甲战车上
 
-参考链接：[专访地缘政治专家弗里德曼：在很多方面中国的敌人是自己](https://www.voachinese.com/a/voa-interview-with-george-friedman-20220420/6538597.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-139.jpg)周二，内政部工兵在伊尔平与俄罗斯军队最近的战斗后拆除雷场上的地雷。
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-101.jpg)周二，在伊尔平的一个公墓里，掘墓人在为一名在俄军炮击中死亡的男子举行葬礼时填平坟墓。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+乌克兰当局周一表示，不少于1000名平民躲在马里乌波尔巨大的亚速钢铁厂的地下掩体中，并补充说俄罗斯正在向被围困城市中乌克兰控制的工厂投掷重型炸弹。
+
+俄罗斯车臣地区领导人、俄罗斯总统普京的盟友拉姆赞·卡德罗夫说，俄罗斯军队将在星期二完全接管亚速钢铁厂。
+
+卡迪罗夫在他的Telegram上的音频信息中说：“今天，在万能的主的帮助下，我们将……完全接管亚速钢铁厂”。
+
+在东部城市克雷明纳，地区长官说，俄罗斯军队在“将一切夷为平地”后控制了那里。他说，乌克兰军队已经撤退，重新集结并继续战斗，因为他警告说，从该市疏散平民是不可能的。
+
+海迪省长说：“站在一个地方，为大家牺牲，而不给敌人造成重大损失，这根本没有意义”。
+
+**接下篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（4/6）**
+
+新闻来源：[‘Russia continues failing to achieve its aims as quickly as it would like’: MoD says Ukrainian forces are ‘repelling numerous attempted advances’ as Russian shelling ‘increases’ in Donbas](https://www.dailymail.co.uk/news/article-10732907/MoD-says-Ukraine-repelling-numerous-attempted-advances-Russian-forces-Donbas.html)
+
+* * *
+
+素材:peacelv
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 

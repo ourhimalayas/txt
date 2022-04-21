@@ -2,41 +2,65 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.21C) 新冠疫苗副作用对身体太摧残了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383824/)
+## 俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（4/6）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383876/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：噜噜咪
 
-整理/编辑：禄森
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-52.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**帖子原文**：
 
-**博主: 7月檐角的猫ly**
+**[接上篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（3/6）](https://gnews.org/zh-hans/2383761/)**
 
-从凌晨四点到现在，我一直都是全身发烫，头疼，全身无力，这就是第三针疫苗的副作用吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-439-edited.jpg)周二，在离基辅附近的布罗瓦里小城不远的一条道路上，躺着一辆被损坏的俄罗斯坦克的零件。
 
-真的太难受了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-178.jpg)俄罗斯声称，它在乌克兰用导弹、空袭和大炮打击了1200多个乌克兰目标。图为俄罗斯导弹的部件落在了米科拉伊夫的动物园里。
 
-**作者发布于2022-4-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2564.png)图片来源：微博
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-155.jpg)周二，在俄罗斯的炮击下，俄罗斯导弹的部件落在了米科拉夫的动物园里。
 
-[全身发烫，无力，头疼](https://m.weibo.cn/status/LoYdqxNLm?refer_flag=1001030103_%3Frefer_flag%3D1001030103_&amp;jumpfrom=weibocom)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-140.jpg)周二，在乌克兰东部，一名乌克兰军人沿着道路行走，他的战友坐在一辆装甲战车上。
 
-*发布：tianzhihuan*
+同时，乌克兰总统沃洛基米尔·泽伦斯基的一名助手今天表示，俄罗斯在乌克兰东部的新攻势进行得“非常谨慎”，并将失败，因为莫斯科的部队缺乏突破乌克兰防线的力量。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+总统顾问奥列克西·阿雷斯托维奇说，俄罗斯军队正试图找到乌克兰防御的“敏感点”，但他补充说：“他们的攻势将失败——我给你一个99%的保证——他们根本没有足够的实力。”
+
+“顿巴斯的战斗已经打响，而且显然是昨天开始的，正在进行中，进展非常谨慎。这场战斗对俄罗斯不会有利，”他在国家电视台说。
+
+俄罗斯军队加强了对顿巴斯地区的全面攻击，因为乌克兰东部的城市和城镇昨晚被新的爆炸声震撼了。
+
+在对基辅的进攻处处受挫的数周后，普京的指挥官们现在将他们的努力重新集中在顿涅茨克和卢甘斯克领土以及乌克兰东翼的其他地区，乌克兰总统沃洛基米尔·泽伦斯基昨天称之为“顿巴斯之战”。
+
+乌克兰媒体和Telegram频道报道了顿涅茨克地区前线发生的一系列爆炸，马林卡、斯拉维扬斯克和克拉马托斯克在整个晚上都发生了炮击。
+
+当地官员和媒体还说，在乌克兰东北部的哈尔科夫、南部的米科拉耶夫和东南部的扎波罗热都听到了爆炸声。
+
+哈尔科夫州州长奥列赫·辛尼胡波夫周二表示，俄罗斯的炮击造成5名平民死亡，17人受伤。
+
+泽伦斯基在昨晚的每日总统讲话中说：“我们现在可以确认，俄罗斯军队已经开始了对顿巴斯的战斗，他们已经准备了很长时间。俄罗斯军队的很大一部分现在都致力于这次攻势。”
+
+“不管有多少俄罗斯士兵被带到这里，我们都会战斗。我们将保卫自己。我感谢我们所有的战士，感谢我们在顿巴斯、马里乌波尔的所有英雄城市，以及哈尔科夫地区被占领的城市。”
+
+**接下篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（5/6）**
+
+新闻来源：[‘Russia continues failing to achieve its aims as quickly as it would like’: MoD says Ukrainian forces are ‘repelling numerous attempted advances’ as Russian shelling ‘increases’ in Donbas](https://www.dailymail.co.uk/news/article-10732907/MoD-says-Ukraine-repelling-numerous-attempted-advances-Russian-forces-Donbas.html)
+
+* * *
+
+素材：peacelv
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 

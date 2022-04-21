@@ -2,41 +2,36 @@
 ---
 
 
-## 台湾正式批准老年人接种第四针新冠疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2383683/)
+## 日本撤销俄罗斯最惠国待遇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383752/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-437.jpg)图片来自网络
-《路透社》近日报道，台湾政府已经批准为65岁及以上的人注射第二剂新冠疫苗加强针，并为免疫力低下的人注射第三剂加强针，因为它希望加强对国内感染高峰的打击。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-虽然台湾正在应对本地病例的增加，但总体数字仍然很小，自1月1日以来有13,164人感染，而且只有4人死亡，99%以上的感染者报告说症状轻微或没有症状。
+整理/编辑：围剿维尼熊
 
-台湾疾病控制中心周三晚些时候说，它已经批准为老年人以及长期护理设施的居民进行第四针新冠疫苗注射。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3F6EFDC0-F269-4130-A681-6C100BCDD4C0.jpg)图片来源：百度
 
-它补充说，免疫系统受损的人，包括透析病人和接受器官移植的人，被批准进行第三剂加强针。
 
-它说，那些接受第二次或第三次加强针的人应该在最后一次接种新冠疫苗后至少5个月接受注射，并且可以选择莫德纳、辉瑞/BioNTech、台湾产Medigen（高端新冠肺炎疫苗）或Novavax（诺瓦瓦克斯）品牌。
+估计美国之音4月21日报道，日本星期三正式撤销俄罗斯的最惠国贸易地位，加紧对俄罗斯因入侵乌克兰所实施的制裁。
 
-台湾还没有收到任何Novavax（诺瓦瓦克斯）的新冠疫苗。
+取消俄罗斯最惠国贸易地位将对所有俄罗斯进口商品提升关税。在此之前，美国和7国集团其它成员国决定采取这个行动。
 
-韩国已经批准为60岁以上的人注射第二剂加强针，新加坡表示计划为80岁以上的人注射第二剂加强针。
+日本国会星期三的决定还包括修正一项外汇兑换法律，防止那些被冻结资产的国家转让持有的虚拟货币。
 
-台湾2300万人口中约有80%的人现在已经接种了两剂新冠疫苗，超过一半的人已经接种了加强针，同时继续执行戴口罩的规定。
+日本还冻结数百名俄罗斯人和团体的资产，禁止新投资和贸易，包括可能被用于军事目的的商品出口。日本还宣布计划逐渐停止进口俄罗斯的煤炭。
 
-政府警告说，在传染性更强的奥米克戎变体的推动下，预计病例会进一步增加。
+不过日本也面临俄罗斯的报复。莫斯科最近宣布停止与东京的和平条约谈判，包括对于前苏联二战结束时占领日本岛屿的谈判。
 
-目前台湾每日新增再创新高，这正是大规模施打新冠疫苗的结果，台湾政府为何还在不管不顾的催针啊？再这么打下去即使中共不对台湾动武，台湾百姓也要被毒疫苗给折磨死了。
+参考链接：[日本正式撤销俄罗斯最惠国贸易地位](https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html)
 
-参考链接：
+*发布：tianzhihuan*
 
-[https://www.reuters.com/world/asia-pacific/taiwan-approves-second-covid-booster-shot-elderly-2022-04-21/](https://www.reuters.com/world/asia-pacific/taiwan-approves-second-covid-booster-shot-elderly-2022-04-21/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[https://www.edh.tw/article/23379](https://www.edh.tw/article/23379)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
