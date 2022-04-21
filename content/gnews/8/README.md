@@ -2,58 +2,74 @@
 ---
 
 
-## 删除的网页揭露：美国国防大学院长曾访问中共智库
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2385918/)
+## COVID-19疫苗副作用集萃（2022.4.21）－打完康希诺第三针发烧心悸
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2385968/)
 
-编译：wenwu
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+**整理:/编辑：gardeniahu**
 
-据《国家脉动》披露，一份被删除的通讯显示，由美国国防大学的一名院长率领的代表团曾前往一个被联邦调查局（FBI）标记为“中共国情报收集和海外间谍招募的前沿组织”的中共智库。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2636-edited.png)
 
-华盛顿特区的高等教育机构自1976年以来一直在运作。
+# 【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-2005年访问的细节被张贴在上海社会科学院（SASS）的网站上，该学院因与中共最高间谍机构：国家安全部（the Ministry of State Security）关系密切而被联邦调查局（FBI）标记出来。
+[副作用集萃 – GNEWS](//gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-美国联邦调查局称，中国共产党依赖 SASS 的员工来充当潜在西方间谍的“监视者和评估者”。国家安全部官员——被联邦调查局描述，为热衷于“影响其他国家的外交政策”——也“利用 SASS 的关系作为掩护身份。”
+帖子原文：
 
-SASS——联邦调查局明确标示它为“中共国情报收集和海外间谍招募的幌子”——是2019年涉及一名退休的中央情报局（CIA）特工，向中国共产党出售美国国防机密文件的刑事案件中的关键角色。
+博主：南方有嘉树
 
-在2005年5月下旬记录的中共智库《海外学术交流简讯》（Overseas Academic Ex-change Newsletter）显示，辛西娅·沃森（Cynthia Watson）——现担任美国国防大学国家战争学院教务处处长——曾率领一个12人的代表团到上海访问 SASS。
+新冠疫苗康希诺第三针的第二天=废人
 
-“在5月16日，以辛西娅·沃森为首的美国国防大学国家战争学院一行12人，访问并讨论了中共国和平崛起的内部和外部环境，亚太地区的安全与稳定，以及中东的民主化，”SASS 在其现已删除的简讯中解释道。
+睡觉之前觉得冷
 
-一些中共官员也曾出席了会议，包括上海社科院副院长黄仁伟、外事办公处处长李轶海和副处长王健。
+睡醒之后觉得浑身发烫热的得把四肢露出被子找凉。换了3个温度计都显示38℃ 。发烧了。
 
-鉴于沃森在美国国家战争学院的影响力，她对上海社科院的访问可能构成利益冲突；美国国家战争学院的使命是“教育武装部队、国务院和其他文职机构的未来领导人履行高级政策、指挥和参谋职责”。
+还不止发烧，一整天心悸，小腹疼的好像来姨妈，恶心想yue，没胃口吃不下饭，头疼。
 
-沃森于1992年8月加入该学院的教职。
+心律90以上，从床上起来的那一瞬间直接140，动一下就100 +。
 
-沃森还为中美交流基金会（CUSEF）出版的《中共国-美国焦点》（China U.S. Focus）杂志撰稿，中美交流基金会是中共国政权最重要的对外影响团体之一。在2020年6月的一次采访中，沃森似乎批评了川普政府的2017年国家安全战略，她认为该战略是“以中共国为中心的”。
+只能躺床上感觉心律好一些。
 
-“我想说的是，现在在这个城市不太受欢迎，我认为，当你看到国际体系中的挑战时，你需要认识到，这些挑战不只是因为中共政权，”她在提到中国共产党时说。
+中午就西红柿炒鸡蛋下饭，一碗米饭没吃完直接想yue。
 
-“换句话说，你需要问的是，无论挑战是为了看清国家本身——看清一个人民和一个国家的本质——人民在世界上起了作用，还是成了一个政权；我认为我们常常假设政权的改变会解决这些事情，我认为在大多数情况下它们不会改变，”她继续说道。
+头疼的好像有人在给我用吸星大法。废人一个一整天。
 
-在《国家脉动》报道美国白宫的高级人员——包括监督国家安全局招聘过程的个人——如何与 SASS 有联系之后，美国主要军事教育机构之间的关系被发掘出来。美国西点军校也与中共的影响团体有联系。
+一直到晚上十点半温度才降下来。37.4℃。现在已经是第三天了。彻底退烧了。36.4℃。
 
-（文章仅代表作者观点与GNEWS无关）
+但还是感觉心跳的快。偶尔间歇性的头阵痛。
 
-新闻来源：[Deleted Web Pages Reveal Dean of National Defense University Visit with Chinese Communist-Run Think Tank.](https://thenationalpulse.com/2022/04/18/deleted-web-pages-reveal-dean-of-national-defense-university-visit-with-chinese-communist-run-think-tank/) |
+谢谢你，康希诺，你真的太猛了。
 
-* * *
+#新冠疫苗第三针 #康希诺 #新冠疫苗的副作用 #新冠疫苗
 
-审核：文乐
-校对/发布：花羽
+发布于04.18
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
+精选评论
+
+沫小冉回复：我也是，但是我晚上睡觉出了一身汗，现在只是有点热，但是头不疼了，也没吐了，昨天又吐又晕。
+
+55555回复：跟你一摸一样。
+
+Disappear回复：打完已经一天一夜了，还在发烧，浑身疼，头疼，嗓子疼，高烧接近四十度。这会儿刚降下来一些，简直快废了。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/92b02b0038856c0f.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/92b02rewrb0038856c0f.jpg)图片来源：小红书
+
+
+素材来源：[打完康希诺第三针发烧心悸](//www.xiaohongshu.com/discovery/item/625cf243000000002103afa8?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650519333)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

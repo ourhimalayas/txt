@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 1:00 PM (UTC)`
+
+4月21日：尊敬的战友们好．看共产党流氓，这些所谓的辟谣，真的很让人无语，共产党真的是把14亿中国人民当成猪了……，否则他们不可能总是一贯的．用这种掩耳盗铃．愚蠢无知的宣传……谎言来欺骗这么多老百姓．可恨至极……新中国联邦将彻底消灭中国共产党！
+![img](https://media.gettr.com/group32/getter/2022/04/21/13/d19f2b0a-a2a5-a4c5-ba17-591734aa73e3/fc6c989cf320788fe6f764aa1661f28c.jpg)
+
+---
+
+`@miles 4/21/2022 12:59 PM (UTC)`
+
+2022.04.21早  新中国联邦 | 新闻访谈
+![img](https://media.gettr.com/group8/origin/2022/04/21/12/5bd5e3c8-f2f3-e5c4-ae56-c69aa69d7e30/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/21/2022 12:30 PM (UTC)`
 
 2022.04.21 早 新中国联邦 | 新闻 “灭共背心”风靡救援营地；郭先生回顾419采访的始末；419“知蒋干、用蒋干”之策；针对王岐山的爆料仍未完结；郭先生再提“郭七条”的意义
@@ -142,20 +156,6 @@
 
 【419 5th Anniversary】 4/19/2022 A young American volunteer interviewed by Nicole at the front line of the NFSC & ROLF Ukraine rescue operation said that the VOA broadcast disruption incident on April 19, 2017, wrenches out the soul. He also said the US, a symbol of freedom and democracy, had been twisted by foreign interests, and that many influence groups and big businesses had sacrificed the American value of freedom to make profits in Communist China.<br/><br/>【419五周年】4/19/2022 Nicole战友救援前线采访的美国青年义工说美国之音419断播令人伤透了心！他还说，作为自由民主象征的美国竟被外国利益集团操纵，有影响力的组织和大公司为了在中共国获利而牺牲了美国的自由价值观<br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/21/00/ca6a88d9-620c-9d27-52ed-9699cf30267f/out.jpg)
-
----
-
-`@miles 4/21/2022 12:32 AM (UTC)`
-
-2022.04.20 晚  新中国联邦 | 新闻   乌军指挥官讲述马里乌波尔战争的真实情况；美、英、加承诺为乌克兰提供更多武器
-![img](https://media.gettr.com/group43/origin/2022/04/21/00/85a38fd5-6ec2-8452-1bd9-c72369c1641f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 11:32 PM (UTC)`
-
-2022.04.20《The Fringe》 Episode 173<br/>中文同传：https://gettr.com/streaming/p16a8ppc77d
-![img](https://media.gettr.com/group27/origin/2022/04/20/23/aa237c68-9e7a-18fd-81da-9289d722dd89/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

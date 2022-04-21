@@ -2,56 +2,42 @@
 ---
 
 
-## 福奇的德州实验室与武汉同事签署过一项“保密”协议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2385633/)
+## 印度可能以折扣价从俄罗斯进口煤炭
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2385744/)
 
-编译：wenwu
+编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
 
-加尔维斯顿国家实验室（The Galveston National Laboratory）有一个安东尼·福奇（Anthony Fauci）的国家过敏和传染病研究所（NIAID）的项目。这个项目与武汉病毒研究所签订了一份谅解备忘录，其授予中共国武汉实验室的美国同行“销毁和/或归还没有任何备份的秘密文件、材料和设备”的权利。
+由于巨大的折扣，俄罗斯越来越成为印度主要商品的首选目的地。以前是原油，现在是煤炭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2618.png)安东尼·福奇（Anthony Fauci）
+与澳大利亚纽卡斯尔的动力煤相比，印度得到了俄罗斯煤炭每公吨约10美元的折扣。然而，付款机制、时间和交付正在谈判之中。
 
-《国家脉动》之前已经揭露了这个位于德州的实验室与武汉病毒研究所的多年合作关系，包括主办交流项目和在加尔维斯顿国家实验室的生物安全四级（BSL）设施中培训研究人员。来自武汉实验室和加尔维斯顿国家实验室的主任承认在2018年与“世界上最危险的病原体”一起工作，该实验室自称是“使用[福奇的]国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2622.png)图片来源：路透社
 
-这一消息是在安东尼·福奇在资助武汉病毒研究所的蝙蝠冠状病毒研究中的作用引发争议的情况下发布的——新发现的文件似乎显示这种关系超出了美国合作夥伴，如彼得·达扎克的“生态健康联盟”。根据许多公共卫生和情报专家的说法，武汉实验室也被认为是 COVID-19（中共病毒）的来源。
+随着全球煤炭价格在乌克兰战争后翻倍，印度买家一直在争夺俄罗斯有利可图的报价。印度大约70%的电力都是用煤来生产的。
 
-除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织美国知情权（USRTK）获得的新的内部文件证实了该项目的存在，并对两个实验室之间的协议提供了更多见解。
+俄罗斯是世界第三大煤炭出口国。然而，欧盟和日本对俄罗斯煤炭的禁令已经扰乱了供应。
 
-USRTK 获得了一份正式合同的副本，巩固了武汉和加尔维斯顿在2017年的夥伴关系：“中共国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录。”
+澳大利亚联邦银行矿业和能源商品研究主任Vivek Dhar说：“市场怀疑印度和中共国可能会增加从俄罗斯的煤炭进口，抵消欧盟正式禁令的一些影响。印度计划将其进口的俄罗斯炼焦煤增加一倍，用于制造钢铁。”
 
-该协议的第16节—保密—显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备。”
+**印度的煤炭库存很低**
 
-“所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息，”协议补充说（如下图）。
+截至4月19日，印度发电厂的煤炭库存为2226万公吨，仅够9天使用，而标准是17-26天。这表明在炙热的夏季需求、昂贵的进口以及供应中断的情况下，能源危机迫在眉睫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2619.png)
+全印度电力工程师联合会主席Shailendra Dubey在一份声明中说：“各邦的电力需求已经增加，其中许多邦无法弥补需求和供应之间的差距。”
 
-该协议还概述了两个实验室之间的“合作目标”，包括“加强双方的学术和人才交流”和“促进中共国和美国在控制传染病方面的研究合作”。
+此外，制造商还面临着化石燃料的供应紧缺，野村研究公司称。“这可能成为另一个滞胀冲击”，它在一份研究报告中说。
 
-这份谅解备忘录还允许双方实验室“严格为科学研究目的交换病毒资源”。
-
-该协议似乎是由加尔维斯顿实验室的高级副总裁兼总顾问 Carolee King 和主任 James LeDuc 签署的。
-
-尽管福奇试图与武汉病毒研究所保持距离，但美国国立卫生研究院（NIH）之前在其网站上，被列为武汉病毒研究所的合作夥伴，然后在2021年初被删除。
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With
- Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
+新闻来源：[https://qz.com/india/2157402/india-may-have-imported-coal-from-russia-at-a-discount/](https://qz.com/india/2157402/india-may-have-imported-coal-from-russia-at-a-discount/)
 
 * * *
 
-审核：文乐
-校对/发布：花羽
+审核：Aries的星
+校对：阿伯塔
+发布：小东
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
-
 
  
 
