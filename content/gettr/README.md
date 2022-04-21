@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 12:32 AM (UTC)`
+
+2022.04.20 晚  新中国联邦 | 新闻   乌军指挥官讲述马里乌波尔战争的真实情况；美、英、加承诺为乌克兰提供更多武器
+![img](https://media.gettr.com/group43/origin/2022/04/21/00/85a38fd5-6ec2-8452-1bd9-c72369c1641f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/20/2022 11:32 PM (UTC)`
 
 2022.04.20《The Fringe》 Episode 173<br/>中文同传：https://gettr.com/streaming/p16a8ppc77d
@@ -147,13 +154,6 @@ MILES GUO Livestream 2022-04-20
 
 2022.04.20 早  新中国联邦 | 新闻访谈   P2P网贷老大哥遭审查起诉；招行行长田惠宇被免职
 ![img](https://media.gettr.com/group8/origin/2022/04/04/13/a104f907-69b3-5d6f-d964-f5c4c78acd5d/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/20/2022 1:04 PM (UTC)`
-
-【419 5th anniversary】04/19/2022 Five years ago Wang Qishan and Zhou Liang sent Ma Yun, Wu Zheng, Liu Yanping, Sun Lijun, Sasha Gong, Zhang Xin, Pan Shiyi and others around April 19th in an attempt to silence Mr. Miles Guo by a series of kidnapping, threat, assassination, planted evidence and other nasty tactics.<br/><br/>【419五周年】04/19/2022 王岐山、周亮为了灭掉郭文贵先生，在419前后先后派出了马云、吴征，刘彦平、孙力军、火鸡龚，张欣、潘石屹等人轮流登场，出演了一系列绑架、威胁、暗杀、栽赃等龌龊手段，试图灭口郭先生。<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/20/13/c44a9050-4bbe-b742-9fb0-17551503dd54/out.jpg)
 
 ---
 

@@ -15,29 +15,29 @@
 
 ---
 
-### [大直播后记：419断播让无数人觉醒](/content/gnews/1/README.md)
+### [大直播后记：跟随爆料革命变富人](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：做大事的简单办法](/content/gnews/2/README.md)
+### [大直播后记：由VOA断播和疫苗开始转变相信七哥](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中国人只要站起来反抗，外国人就会出自本能给予帮助](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [大直播后记：习太阳和普大帝要会师](/content/gnews/4/README.md)
+### [大直播后记：不灭共中国人在西方比俄罗斯还惨](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：中国女性是世界上最美的女性](/content/gnews/5/README.md)
+### [419五周年大直播后记：爆料革命的核武器就是实力，终将成为打扫战场的人](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [419五周年大直播后记： 七哥精心计划直播，断播后超预期](/content/gnews/6/README.md)
+### [大直播后记：BBC大佬彭定康如何被中共威胁毙掉七哥采访](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19疫苗副作用集萃（2022.4.20H）－打完安徽智飞第三针手肿变形](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
+### [大直播后记：七哥谈VOA的历史重要性](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
 
-### [国际移民组织报告500万乌克兰难民出国避难](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [大直播后记：419断播让无数人觉醒](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [来自俄罗斯的小伙子和非洲莫桑比克共的义工支持新中国联邦灭共](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [拜登主持美欧日盟友首脑会议，岸田首相宣布追加2亿美元贷款](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`

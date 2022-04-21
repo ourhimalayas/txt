@@ -2,27 +2,28 @@
 ---
 
 
-## 大直播后记：中国女性是世界上最美的女性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2382697/)
+## 大直播后记：BBC大佬彭定康如何被中共威胁毙掉七哥采访
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2382756/)
 
-整理：清水冷香、铁血丹心
-编辑：Kelly
+整理：Lucy 、红红火火
+编辑：Mohegayer K. Simon
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-6.png)图片来源：墨尔本雅典娜农场设计组
+如水：我想问，当时七哥是否知道在VOA的爆料会引来后面一系列的轰动？谢谢七哥。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片24-10.png)配图：雅典娜设计组～614
-
-
-我觉得中国男人走到世界上，几乎是，要么傲慢的无知，要么就完全的不自信。我觉得中国女性真的是世界上最美的，包括我身高一米五几的母亲，我认为我母亲是最强大的、是最漂亮的。今天在座五位咱们的女性战友面前，包括过去五年我都这么说。
-
-我们的虎妈说过最震撼的一句话：“我把孩子都带上来了！我都跟你玩命了！”这句话震撼了墙内很多人。安红是一个体制内的家庭出来的，放弃了一切，她也是个母亲；悟空后来带着孩子冲出来，跟共产党决一死战，几乎二十四小时每天都在爆料革命当中；卡丽熙老战友，经历了多少事，从来没有犹豫过。当然也要看到，就像今天Rachel讲的，（对爆料革命）从怀疑、知道、了解到加入，是一个非常人性科学的心态。最近这个喜币上去以后，好多人就没了，你们没注意到，很多人都没啦。你们这五位美女，没喜币之前你们都加入进来了。
+七哥：简单的说，VOA直播之前实际上采访的是BBC，我给大家在直播中讲过，BBC那时找到我，简直动静大到不行。回去以后就是台长彭定康被共产党给威胁，BBC的老大就是彭定康，就是香港最后的特首，跟我也很熟。王岐山亲自打电话，“你必须把他拿下”， 一下就让我兴奋了，他把我请到BBC去给我道歉，到了总裁办公室，还把我领到外面那个角落，还怕人录音。然后说，“Miles，不好意思啊，这个不能播，王岐山亲自打电话了”。另外，我觉得这个事情很夸张，还有当时一个中国人，一个德国的两个战友也找我做了个采访，也是很棒的两个人，他俩是到我家做了视频采访，我从来没告诉他们，曾经在他们之前有了BBC的采访被取消了，到现在他俩都不知道。但是他俩来找我采访的时候，竟然不知道BBC找我采访过，在我的儿子家采访完了又被毙掉了。这让我更兴奋了，证实了我了解到的情报，这些世界上的大媒体全都被共产党控制了。
 
 资料来源：[4.19断播五周年特别直播速记精萃](https://gnews.org/zh-hans/2377516/)
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+|   发布：tianzhihuan |
+| --- |
+
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
