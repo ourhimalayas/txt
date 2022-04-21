@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 8:14 PM (UTC)`
+
+Volunteers at the Medyka rescue center joined us talking about the meaning of the VOA’s 419 interruption incident. Nicole introduced that VOA, a US taxpayers funded international broadcast which is owned by the US government, abruptly shut down an interview with Mr. Miles Guo after receiving an order from some Chinese Communist Party (CCP) high officials. One of the volunteers said it’s heartbreaking to hear such an incident happening in the United States, which is supposed to be a symbol of freedom and democracy. Another volunteer said people need the truth and not be dissuaded by fear or threats.<br/>在梅迪卡营救中心的几位义工加入我们谈论关于美国之音419断播事件的意义。妮可介绍了美国之音，一家由美国纳税人资助的隶属美国政府的国际广播，在采访郭文贵先生过程中收到了来自中共高层的命令，突然中断了采访。其中一名义工说听到这个事件在美国这样一个代表自由和民主的国家发生，是令人心碎的。另一名义工说人们需要了解真相，并且不被恐惧和威胁吓倒。
+![img](https://media.gettr.com/group42/origin/2022/04/21/20/954d258b-fe9a-3e3b-f4af-95260bb6baf6/out.jpg)
+
+---
+
 `@miles 4/21/2022 7:04 PM (UTC)`
 
 2022-4-21《避风港》(38) 疫苗改变DNA，导致流产率增加16633%
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 4/20/2022 Miles Guo’s GETTR: Intense battles are expected to happen this week in the Russia-Ukraine war, and Putin is going to gain leverage through the battles for negotiations; the Taiwan issue involves multiple aspects, and the complicated situation brings little hope for Taiwan; the CCP’s “zero-Covid” control across the country is just its end-of-life rally<br/><br/>4/20/2022 文贵盖特： 俄乌战场本周将有大战，背后的目的就是普京要借此要挟和世界讲数；台湾问题涉及很多方面，情况复杂希望渺茫；中共的“清零”管控是其灭亡前的最后挣扎<br/>
 ![img](https://media.gettr.com/group35/getter/2022/04/21/03/9fbc825c-557f-4acd-880e-374865068b2d/out.jpg)
-
----
-
-`@miles 4/21/2022 2:26 AM (UTC)`
-
-4/20/2022 Miles Guo: I reminded everyone that it would be impossible to withdraw money from the banks in Communist China. Some fellow fighters followed my advice and withdrew cash such that they managed to leave Shanghai by spending large sums of money. The evil of the CCP’s system is that the CCP is always going to sacrifice the lives, security, and wealth of 99% of the Chinese people to safeguard the safety and interests of the 1%. The CCP is the slave owner, with 99% of the Chinese being the slaves.<br/><br/>4/20/2022 文贵直播：文贵几个月前提醒大家在中共国银行存的钱会取不出来，上海有战友信了文贵的话并取了现金，在封城期间花重金成功离开上海；中共体制的邪恶在于永远要牺牲99%的人的生命、安全和财富来保障1%的人的安全和利益；中共是奴隶主，99%的中国人是奴隶<br/>
-![img](https://media.gettr.com/group18/getter/2022/04/21/02/cfe7549a-9aaf-0f7a-9298-bd8cb02b611a/out.jpg)
 
 ---
 

@@ -15,125 +15,125 @@
 
 ---
 
-### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/3/README.md)
- ` NFSC News`
-
-### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/4/README.md)
- ` NFSC News`
-
-### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/5/README.md)
- ` NFSC News`
-
-### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [装置作品《成都双年展作品（一）》](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [20220415-文贵先生盖特直播总结](/content/gnews/8/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/9/README.md)
- ` 银河歌舞厅`
-
-### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [Nancy Pelosi将于4月26日访问台湾](/content/gnews/11/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/12/README.md)
- ` G-时新闻`
-
-### [DC大中华时事：中国高校毕业生首破千万 就业压力空前大](/content/gnews/13/README.md)
+### [DC每日热点0421](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为了释放金融储蓄中共国推出非公有制养老金](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
+### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [郭先生在大使馆临时直播要点（2022年4月21日）](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
+### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [截至4.21 俄乌战事汇总](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/17/README.md)
- ` G-时新闻`
-
-### [美国向乌克兰提供13亿美元的额外援助](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [武毒所与美方的合作协议显示允许其销毁“机密文件”](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|回顾419断播事件的重要意义](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [SpaceX阻止俄罗斯的电磁战攻击而受到美国军方关注](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国防高官：俄军吸取失败教训并疯狂反扑](/content/gnews/23/README.md)
- ` 蓝莲花农场`
-
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月21日早](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/26/README.md)
+### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/4/README.md)
  ` NFSC News`
 
-### [南希·佩洛西4月26日访台](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/5/README.md)
+ ` NFSC News`
 
-### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/28/README.md)
- ` 蓝莲花农场`
+### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/6/README.md)
+ ` NFSC News`
 
-### [普习两魔头的结盟及其给世界带来的灾难（十）](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
+### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/8/README.md)
+ ` 银河歌舞厅`
 
-### [中共国，CCP造假摆拍防疫就诊](/content/gnews/31/README.md)
- ` Tokyo Sakura Video Group`
+### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
 
-### [美国宣布接纳乌克兰难民的计划](/content/gnews/32/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [Nancy Pelosi将于4月26日访问台湾](/content/gnews/10/README.md)
+ ` 银河歌舞厅`
 
-### [韩国学者以垃圾为宝研究朝鲜人们的生活](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/11/README.md)
+ ` G-时新闻`
 
-### [世界上最大的金条价值飙升](/content/gnews/34/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [为了释放金融储蓄中共国推出非公有制养老金](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [普京宣布占领马里乌波尔](/content/gnews/35/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [截至4.21 俄乌战事汇总](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/36/README.md)
- ` 波士顿五月花农场`
+### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/14/README.md)
+ ` G-时新闻`
 
-### [新西兰财经G乐部2022年4月21日:财经新闻整理](/content/gnews/37/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
+### [美国向乌克兰提供13亿美元的额外援助](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/38/README.md)
+### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/39/README.md)
+### [武毒所与美方的合作协议显示允许其销毁“机密文件”](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|回顾419断播事件的重要意义](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [美国防高官：俄军吸取失败教训并疯狂反扑](/content/gnews/19/README.md)
+ ` 蓝莲花农场`
+
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/21/README.md)
+ ` NFSC News`
+
+### [南希·佩洛西4月26日访台](/content/gnews/22/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/23/README.md)
+ ` 蓝莲花农场`
+
+### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国，CCP造假摆拍防疫就诊](/content/gnews/25/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国宣布接纳乌克兰难民的计划](/content/gnews/26/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [韩国学者以垃圾为宝研究朝鲜人们的生活](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文编|数字货币躺平币去中心化 零成本支付 全球无差别交易](/content/gnews/28/README.md)
+ ` KarmaLabs`
+
+### [世界上最大的金条价值飙升](/content/gnews/29/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [文编|莫德韦切夫将军被干掉，对中共的影响有多大](/content/gnews/30/README.md)
+ ` KarmaLabs`
+
+### [文编|在中国英雄无好结果 开国将军也不例外](/content/gnews/31/README.md)
+ ` KarmaLabs`
+
+### [普京宣布占领马里乌波尔](/content/gnews/32/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美国及世界疫情简报（04-21-2022）](/content/gnews/33/README.md)
+ ` 波士顿五月花农场`
+
+### [新西兰财经G乐部2022年4月21日:财经新闻整理](/content/gnews/34/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [文编|未来的欧洲是乌克兰的欧洲 中国人将是被世界最恨的人](/content/gnews/35/README.md)
+ ` KarmaLabs`
+
+### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文编|战争演变 地中海（波罗的海）三国一定会参与战争](/content/gnews/40/README.md)
+### [文编|圣彼得堡的阴谋](/content/gnews/38/README.md)
  ` KarmaLabs`
+
+### [文编|战争演变 地中海（波罗的海）三国一定会参与战争](/content/gnews/39/README.md)
+ ` KarmaLabs`
+
+### [六月的鲜花和文科战友采访了两个来自俄罗斯的救援义工](/content/gnews/40/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/41/README.md)
  ` 经济小组`
