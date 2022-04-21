@@ -2,31 +2,27 @@
 ---
 
 
-## 闲聊澳洲：中国地产代理巨头易居宣布爆雷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2385292/)
+## 专家称快速检测试剂或对新毒株无效
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2386029/)
 
-#### 作者：顺其自然
-编辑：李易通
+采编：加拿大温哥华扬帆农场 – 硫酸氢氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2599.png)图片来源：易居官网
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-
-第一财经4月21日报道，易居企业控股4月18日公告称，于2022年到期的7.625%优先票据未能在到期日（4月18日）偿还，已构成2022年票据契约项下的违约事件。该事件进而触发2023年票据契约项下的交叉违约。伴随房地产行业深度调整，上游开发商面临的流动性和债务风险，正在传导致下游企业。
-
-在易居企业控股的26个股东中，过半股东正遭遇流动性困难；由于与地产商深度绑定，易居企业控股也深陷美元债违约风险。2022年票据及2023年票据的未偿付金额分别为2.98亿美元和3亿美元。公开资料显示，易居企业控股代理销售的主要业务合作伙伴有恒大、万科、碧桂园、融创、富力、雅居乐等，2020年来自前五大客户营业收入占比达35%。易居控股是中国地产代理巨头。中国四大地产代理行业上市公司分别为世联行、易居企业控股、合富辉煌、贝壳，从它们公布的2021年度业绩来看，无一例外均出现由盈转亏。
-
-中国现在的经济和疫情封控形势，除了核算检测和疫苗相关产业，不知哪个产业会好，现在是病毒没清零，老百姓的钱包到要清零了。如果老百姓没钱，就是有再多的利好政策，人们也不会再去买房了，房地产企业不好，代理房地产的企业当然也不会好。
-
-没有了接盘侠，就像一堆燃烧的柴火，在没有新的木柴往里扔的情况下，这大火肯定会渐渐熄灭，新的买房人就是木柴，现在各地无论是新房还是二手房成交量都在下降，老百姓手里又没钱，最后房价肯定会下跌，以现在疫情防控形势，即使上海解封了，接下来还有北京、大连、青岛，物流快递都不会恢复正常，没有物流就没有制造业和商业，老百姓就会没钱，都没钱了，谁还买房子，所以2022年底中共国房地产泡沫必将破灭。
-
-发布：*陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2649.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
 
+据【CTV 新闻】4月17日报道，加拿大人两年来首次在几乎没有防疫限制的情况下庆祝复活节和逾越节。但公共卫生专家仍呼吁公众保持谨慎，特别是需要多次使用快速抗原自我检测方式来确认是否被病毒感染。
+
+对此，安大略省医生朱尼认为，由于目前对奥米克戎BA.2亚变体缺乏了解，现有的快速检测试剂很难保证绝对有效，因此建议加拿大人在聚会活动前至少进行两次间隔24小时的快速自我检测，并在没有任何症状下才参加社交活动。
+
+据悉，尽管加拿大的奥米克戎BA.2亚变体最初的传播速度似乎相对缓慢，但目前该变体已是曼尼托巴省和安大略省最主要的新冠病毒传播种类。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
  
 

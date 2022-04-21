@@ -2,58 +2,30 @@
 ---
 
 
-## 华视新闻误报中共袭击事件后道歉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384310/)
+## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
 
-**翻译：噜噜咪**
+撰稿:彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
+4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
 
+除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
 
+根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-445.jpg)台湾华视新闻台上午新闻画面的跑马快讯，误播“中共备战频繁，总统发布紧急命令”、“新北市遭共军导弹击中”等错误讯息，引发社会大眾恐慌。（图片截取自华视新闻电视画面）
+该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
 
-路透社台北4月20日电——在与北京的军事关系日益紧张的情况下，一家台湾政府支持的电视台在周三错误地报道了中共国在台北的袭击事件后道歉并敦促人们不要惊慌。
+该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
 
-据当地媒体报道，在周三上午的新闻直播中，华视新闻错误地在屏幕下方显示了关于台北附近的军舰和重要基础设施被中共导弹击中的新闻提示。
+报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
 
-这些警报包括诸如“战争可能爆发”、台北的一个主要火车站被“中共特工”放火以及台湾总统宣布进入紧急状态等信息。
+*责编：彩虹*
 
-“国人们，请不要过度恐慌。我们在此澄清信息并表示歉意，”一名主播在上午10点的网络新闻公告中说。
+**新闻来源**
 
-她说，这些警报是为周二新北市消防局的演习准备的，但由于技术上的错误，在周三上午被错误地显示出来。
-
-在意外的公告发布后，台北没有明显的恐慌迹象。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-183.jpg)民进党立委王美惠20日怒批，华视隶属于公广集团，是面临重大事件时，政府发布讯息的重要媒体，发布“共军攻打过来”的假讯息，实在是“日防夜防、家贼难防”。（摘自脸书）
-
-中共从未放弃使用武力将台湾置于其控制之下，并在过去两年中加强了附近的军事活动，以迫使该岛接受北京的主权要求。
-
-自俄罗斯入侵乌克兰以来，台湾提高了警戒级别，警惕中共国采取类似行动，尽管政府没有报告任何攻击即将发生的迹象。
-
-被俄罗斯称为“特殊军事行动”的乌克兰战争引发了关于对台湾的影响以及加强准备工作的方法的讨论，例如对预备役人员的培训进行改革。
-
-上周，台湾军方首次发布了一份民防手册，为公民提供战争情况下的生存指导。
-
-**评论：**文贵先生4.15直播中警告道：中共今天开始执行“台湾之子”行动，让台湾内部乱，趁乱拿下台湾。这次所谓的“新闻乌龙事件”再次验证文贵先生情报的准确性。
-
-新闻来源：[Taiwan TV station apologises after mistakenly reporting Chinese attack](https://www.reuters.com/world/asia-pacific/taiwan-tv-station-apologises-after-mistakenly-reporting-chinese-attack-2022-04-20/)
-
-* * *
-
-素材:peacelv
-评论：噜噜咪
-审核：文乐   
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
 
  
 

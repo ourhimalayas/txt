@@ -2,45 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.21 O) 接种第三针疫苗后身体反应太大了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2386860/)
+## 山下良美成为有史以来首位负责亚洲冠军联赛女裁判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2386949/)
 
-整理/编辑：禄森
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/山下良美成为有史以来首位负责亚洲冠军联赛女裁判.jpg)[图片来源](https://web.gekisaka.jp/news/detail/?357093-357093-fl#:~:text=%E5%8C%97%E4%B9%9D%E5%B7%9E%E3%81%8CMF%E5%89%8D%E5%B7%9D%E5%A4%A7%E6%)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+亚洲足球联和会（AFC）4月21日宣布，山下良美成为有史以来第一位负责亚洲冠军联赛（ACL）比赛的女裁判。她将与同为日本人的坊薗真琴和手代木直美两位副裁判一起，在同一天于泰国曼谷举行的G组第三轮墨尔本城与全南龙队的比赛中上场。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-8.png)
-图片来源：雅典娜设计组(614)
+山下在2012年被注册为女子一级裁判，也是2019年女子世界杯上出场的女裁判。同年5月，山下被任命为亚足联杯的首席裁判，成为在亚足联组织的国际赛事历史上第一位负责男子比赛的女性裁判。也是在同年12月，她被认定为可执掌联赛的一级裁判，并在去年5月作为J联赛的第一位女裁判首次亮相。迄今为止，山下已经主持了九场J3联赛的比赛，为女性成为裁判在不懈的努力。
 
+信息源：
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+[北九州がMF前川大河の入籍を発表「サッカーを頑張れているのは、彼女のサポートがあっての事」](https://web.gekisaka.jp/news/detail/?357093-357093-fl#:~:text=%E5%8C%97%E4%B9%9D%E5%B7%9E%E3%81%8CMF%E5%89%8D%E5%B7%9D%E5%)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
-
-**帖子原文**：
-
-**博主: 宇儿**
-
-第三针疫苗
-
-妥妥的，发烧了38度，这次虽然比第二针温度低一点，但是浑身酸痛，从头到脚，酸胀疼痛，无力，晚上睡觉一会冷一会热，打针的胳膊巨疼，不能动，带着肩胛骨都疼，今早开始腋窝淋巴也开始有点肿，疼打针的胳膊也有点肿这也太受罪了
-
-**作者发布于2022-4-21**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2663.png) 图片来源：小红书
-
-
-参考链接：
-
-[发烧，浑身酸痛，乏力，腋下淋巴肿大](https://www.xiaohongshu.com/discovery/item/6260b570000000000102f120?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650519299)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

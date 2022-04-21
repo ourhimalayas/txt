@@ -2,29 +2,30 @@
 ---
 
 
-## 英国对俄罗斯实施26项新制裁
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2386133/)
+## 加拿大制裁普京家属及其政权幕僚
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2386416/)
 
-撰稿：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-06-at-12.37.15-AM.jpeg)图片来源：原新闻
-据路透社4月21日的报道，英国周四（21日）在其对俄罗斯的制裁名单上增加了26项新的指定，包括对军事人物和国防公司的制裁，以寻求加大俄罗斯普京入侵乌克兰的压力。
+采编：   加拿大温哥华扬帆农场 – 文莱
 
-英国试图在西方对俄罗斯入侵乌克兰的反应中发挥关键作用，已经制定了数百项制裁措施，如对俄罗斯知名的亿万富翁和包括普京在内的政治家实施资产冻结和旅行禁令。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-在政府网站上公布的最新制裁名单中，包括担任俄罗斯军队第一副总参谋长职务的博格达诺夫斯基、制造商军事工业公司和工业集团Promtech-Dubna。
 
-另外，美国拜登总统19日与加拿大、法国、德国、英国、日本、意大利、欧盟、北约等11位领袖，就俄乌局势进行了通话。白宫表示，各方讨论向俄罗斯普京施加进一步制裁，并重申会继续向乌克兰提供安全、经济和人道主义救助。
 
-以美国为首的西方民主国家，通过不断地对俄罗斯普京政府实施经济制裁，让普京尽快停止战争。但是，对乌克兰发动战争是俄罗斯普京一方的意志，想要结束战争就得双方都同意。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2658.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-据郭文贵先生4月21日的盖特视频，本周普京将对乌克兰大战，以获得谈判机会。如果普京通过大战的方式获得谈判，只会给乌克兰带来更深的伤害，乌克兰会同意谈判吗？不管乌克兰同意与否，伤害已造成！
 
-*上传：追着曙光跑*
+据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄罗斯总统普京关系密切的亲属和幕僚。
 
-信息来源：
-[UK sets out 26 new sanctions against Russia](https://www.reuters.com/world/uk/uk-sets-out-26-new-sanctions-against-russia-2022-04-21/)
-[4/20/2022 文贵盖特： 俄乌战场本周将有大战](https://gettr.com/post/p16b3qgdaf5)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
+报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
+
+加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。此外，特鲁多当天将与北约和欧盟领导人出席由美国拜登总统召开的视频会议。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

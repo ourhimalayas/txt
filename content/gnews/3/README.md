@@ -2,32 +2,39 @@
 ---
 
 
-## 泽连斯基与南非总统讨论粮食危机威胁
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2386870/)
+## 有声|招行股价大跌 行长田惠宇就地免职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2386950/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-21-下午10.15.36.png)图片来源：互联网
-据乌克兰国家通讯社（Ukrinform）周四（4月21日）报道，乌克兰总统泽连斯基与南非共和国总统西里尔·拉马福萨讨论了全球粮食危机的威胁。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间4月18日，据中共国内相关媒体报道，A股招商银行当天开盘后无故大幅下挫，最大跌幅达8.65%，单日市值预计蒸发一千零二十亿元人民币。同时，受招行大跌的影响，墙内其他银行股票亦全线报跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-1-4.jpg)
+据了解，招商银行股价巨幅震动的原因或在于其行长田惠宇在上周末被爆出的不利传言。为此，当天晚间，招商银行发布公告表示，银行董事会已经同意免去田惠宇作为银行行长和董事的职务。然而，消息人士透露，招商银行原计划于本月23日公布其2022年第一季度的相关报告，但该行作为上市公司却在重大公告前免职银行行长，此举引人深思。
 
-泽伦斯基在他的推特账户上写了[这件事](https://twitter.com/ZelenskyyUa?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1516865834085453831%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.ukrinform.ua/rubric-economy/3463099-zelenskij-obgovoriv-iz-prezidentom-par-zagrozu-prodovolcoi-krizi.html)。
+另一方面，自2017年起，郭文贵先生屡次将田惠宇作为爆料的重点人物之一：其与田国立、陈峰，以及在法国普罗旺斯被谋害的王健同为王岐山盗国集团的核心成员。郭先生透露，中共盗国贼集团通过控制墙内的银行系统，将老百姓的血汗钱盗为己用。对此，郭先生也在早先的直播中爆料称，作为中共党内习王斗争的牺牲品，田惠宇必将难逃牢狱之灾。
 
-“与西里尔·拉马福萨（Cyril Ramaphosa）进行了电话交谈。讲述了我们对俄罗斯侵略的抵抗。讨论了全球粮食危机的威胁，深化与南非共和国的关系以及国际组织内的合作，”泽伦斯基写道。
 
-据报道，据人权观察报道，俄罗斯入侵乌克兰加速了中东和北非的粮食危机。
 
-特别是，黎巴嫩 80% 的小麦来自乌克兰；埃及购买小麦和大量石油；利比亚从乌克兰进口超过 40% 的小麦；也门进口不少于27%。此外，叙利亚西北部当局向该地区提供通过土耳其购买的小麦和面粉，土耳其还从乌克兰进口 90% 的小麦。
 
-拉马福萨在推特账户[写道](https://twitter.com/CyrilRamaphosa/status/1517082375611895809?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1517082375611895809%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.timeslive.co.za/politics/2022-04-21-ukraines-zelensky-discusses-threat-of-a-global-food-crisis-with-ramaphosa/)，他于泽连斯基总统讨论了“乌克兰的冲突和其悲惨的人类代价，以及其全球影响。”
 
-拉马福萨此前曾通过推特证实，他​​已与俄罗斯总统弗拉基米尔·普京、中国（中共国）国家主席习近平和美国总统乔·拜登进行了电话交谈，周四证实了这一电话。
+文字版原文：[招行股价大跌 行长田惠宇就地免职](https://gnews.org/zh-hans/2380508/)
 
-参考链接：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-【1】[Zelensky discusses with South Africa’s president threat of food crisis](https://www.ukrinform.net/rubric-ato/3463119-zelensky-discusses-with-south-africas-president-threat-of-food-crisis.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*编辑&发布：长岛开心*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
