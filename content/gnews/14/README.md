@@ -2,18 +2,35 @@
 ---
 
 
-## 文贵突然直播 4/21 惊爆：南希.佩洛西即将访台 中共或铲平台湾
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2387695/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月21日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2387701/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/04/SharedScreenshot-2.jpg)图片来源 GETTR
-4月21日爆料革命发起人郭文贵先生在GETTR上突然直播，惊爆：美国众议院议长南希.佩洛西即将于4月26日访台，中共紧急开会并对美国此举表达严重关注，台湾战事一触即发。
+作者：香草山翻译部
 
-郭先生透露，美国对中共的关注并未理睬，而中共态度也极其强硬。文贵先生现场再次断言，习近平不打台湾的可能性已经没有。如果俄罗斯在乌克兰战场不能配合中共犯台，使欧美两线作战，习甚至会不惜把台湾夷为平地。由此，台湾已经进入高度紧张状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
 
-台湾人民危矣。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-20.png)
 
-【来源链接】https://gettr.com/streaming/p16cfisc410
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+新闻视频：[https://gettr.com/streaming/p16d6qicf0c](https://gettr.com/streaming/p16d6qicf0c)
+访谈视频​​：[https://gettr.com/streaming/p16d6qo0a1e](https://gettr.com/streaming/p16d6qo0a1e)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
 
  
 
