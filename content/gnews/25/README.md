@@ -2,63 +2,55 @@
 ---
 
 
-## 俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（2/6）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383535/)
+## COVID-19疫苗副作用集萃（2022.4.21E）第三针加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383851/)
 
-翻译：噜噜咪
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+整理/编辑：红红火火
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-52.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+**博主:  KK**
 
-**[接上篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（1/6）](https://gnews.org/zh-hans/2383451/)**
+**帖子原文:**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-433.jpg)随着俄罗斯在东部的攻势开始，俄罗斯连夜向乌克兰东部发动了一连串的炮击，部队占领了克雷明纳村。但乌克兰也在哈尔科夫以东和伊久姆附近发动了反击，以切断俄罗斯的供应线。
+**一针辉瑞+两针摩德纳还是没扛住**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-176.jpg)周二，俄罗斯军队从该地区撤退后，在离乌克兰基辅不远的扎利西亚村的一条道路附近看到一辆受损的俄罗斯坦克。
+小心翼翼防护了两年，一顿饭全毁了
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-153.jpg)周二，乌克兰内政部工兵在乌克兰基辅附近的莫仕春村雷区附近的一个洞里收集炸药，准备引爆它们。
+嗓子奇疼：感冒跟它比完全不是一个层级的疼！就像一个电锯24小时不间断在锯你的嗓子，连着耳朵一起锯的那种。
 
-基辅周二表示，俄罗斯在乌克兰东部的新攻势将失败，因为莫斯科的部队缺乏突破乌克兰防线的实力。
+发高烧：今天是有症状的第三天，断断续续烧了3天，都在38°往上。
 
-占地约11平方公里（超过4平方英里）的亚速钢铁厂是乌克兰在亚速海战略港口城市马里乌波尔的最后一块主要抵抗区。
+无法入睡：嗓子疼到真的睡不着，每天夜里能睡俩钟头算不错了。可能因为没法好好睡觉，也会影响恢复吧。
 
-马里乌波尔已被俄罗斯军队包围数周，自2月24日俄罗斯派兵进入乌克兰以来，这里发生了最激烈的战斗和最全面的破坏。
+吃了泰诺，完全没有用，盖着被子也不发汗，不过还在坚持吃。每天也开始喝vc了，希望早点好吧！！！
 
-在乌克兰军队的英勇抵抗行动之前，俄罗斯声称，随着普京的军队在乌克兰东部的顿巴斯地区发起新的攻势，它已经用导弹、空袭和大炮打击了1200多个乌克兰目标。
+**#****新冠疫苗****  #****疫苗加强针**** #嗓子疼#高烧**
 
-俄罗斯军队在经过数小时的无情轰炸后，成功控制了东部城市克雷米纳，普京的人与正在战斗的乌克兰军队之间的枪战仍在继续。
+**发布于 2022-04-19**
 
-克雷明纳市的控制权已经丧失，正在发生街头巷战，”卢甘斯克州州长谢尔盖·海达伊说，乌克兰总统沃洛基米尔·泽伦斯基说俄罗斯已经开始“顿巴斯之战”。
+**精选评论**
 
-唐宁街被警告说，这场战斗可能需要“几个月”，鲍里斯·约翰逊在今天的内阁会议上说，乌克兰的局势是“危险的”，普京打算“不考虑人的代价”来取得胜利。
+泳池里的阿甘:
 
-俄罗斯国防部周二表示，“高精度空基导弹”袭击了顿巴斯地区部分地区的13个乌克兰阵地，包括斯拉维扬斯克市，而空袭则打击了60个军事目标。
+目前只能靠自身免疫力。染上后自身免疫力强的可自行恢复阴性，只能说你依靠错了对象
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2568.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2569.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2570.png)图片来源：小红书
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
-总的来说，俄罗斯声称它在一夜的轰炸中打击了1260个乌克兰军事资产，一架乌克兰米格-29战斗机在顿巴斯地区的马利诺夫卡附近被击落。
+*发布：tianzhihuan*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-138.jpg)周二俄罗斯对乌克兰南部的米科拉伊夫地区进行轰炸后的场景
-
-**接下篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（3/6）**
-
-新闻来源：[‘Russia continues failing to achieve its aims as quickly as it would like’: MoD says Ukrainian forces are ‘repelling numerous attempted advances’ as Russian shelling ‘increases’ in Donbas](https://www.dailymail.co.uk/news/article-10732907/MoD-says-Ukraine-repelling-numerous-attempted-advances-Russian-forces-Donbas.html)
-
-* * *
-
-素材:peacelv
-审核：文乐
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,41 +2,47 @@
 ---
 
 
-## 俄罗斯试射可携带核弹头的新型洲际弹道导弹
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2383041/)
+## 上海封城与新冠病毒无关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
 
-翻译：多伦多蓝莲花农场- 灭共文明
+翻译： Jenny Ball
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》伦敦4月20日报道，在俄乌战争两个月后，**周三，俄罗斯试射了一枚可携带核弹头的新型洲际弹道导弹。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Putin-Sarmat-missile.jpg)俄罗斯总统普京和新型萨尔马特弹道导弹试验的组合照片（图片来源：法新社/俄罗斯国防部）
-**俄罗斯此举为了威慑美国和西方各国**。** 俄罗斯国防部周三表示，在俄罗斯西北部的普列谢茨克首次试射“萨尔马特”导弹，击中了近6000公里外的堪察加半岛的目标。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-据报道，这次的导弹测试并没有让西方感到意外。八周前，**普京在宣布入侵俄罗斯时，就提到了俄罗斯的核力量，并警告西方，任何企图阻挡它的入侵，都将导致严重后果。**
 
-几天后，他就下令俄罗斯的核力量进入高度戒备状态。**联合国秘书长**安东尼奥·古特雷斯(Antonio Guterres)上个月还表示，**曾经不可想象的核冲突前景现在又回到了可能的范围。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/古特雷斯.jpg)联合国秘书长安东尼奥·古特雷斯（图片来源：网络）
-塔斯社援引**俄罗斯航天局局长**德米特里·罗戈津(Dmitry Rogozin)周三的话说，**一旦测试完成，俄罗斯的核力量将在今年秋季开始接受新型导弹的交付。**
 
-国际战略研究所军事航空航天高级研究员道格拉斯•巴里(Douglas Barrie)表示，由于资金问题和设计挑战，此次发射经历了多年的拖延。他还说，俄罗斯需要进行更多的测试，才能真正部署这种导弹，取代“远远超过保质期”的陈旧的SS-18和SS-19导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
 
-伦敦智库RUSI的杰克•沃特林(Jack Watling)表示，在距离一年一度的“胜利日”阅兵不到三周的时间里，**俄罗斯将展示其最新武器，其显示威慑和象征性的意义**。
+约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
 
-沃特林还表示，这次试验的时机反映出，俄罗斯人希望在“胜利日”前夕展示一些技术成就，为了提振士气，挽回“莫斯号”沉没带来的损失，但是他们的很多技术还没有达到所希望的结果。
+在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
 
-新闻来源链接：
+莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
 
-[https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/](https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/)
+“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
 
-校对与发布：飞花逐月
+更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
+
+因为，上海封城最可能的原因与新冠病毒无关！
+
+新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

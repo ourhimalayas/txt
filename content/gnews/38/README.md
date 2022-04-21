@@ -2,46 +2,36 @@
 ---
 
 
-## 上海封城与新冠病毒无关
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
+## 美国对俄罗斯银行、寡头、加密矿商BitRiver实施新制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2383419/)
 
-翻译： Jenny Ball
+翻译：多伦多蓝莲花- 灭共文明
+编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《路透社》华盛顿4月20日报道，周三，美国财政部表示，**针对俄罗斯逃避现有制裁的行动，美国对俄数十家实体和个人实施制裁，其中包括一家俄罗斯商业银行和一家虚拟货币挖矿公司**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美国财政部-e1650506983710.jpg)美国财政部大楼（图片来源：华尔街日报）
 
+报道称，**俄罗斯虚拟货币矿业**是世界第三大虚拟货币矿业公司。周三的制裁措施针对的是**位于莫斯科的比特币矿业公司BitRiver**，该公司在西伯利亚运营数据中心，并在俄罗斯有10家子公司。
 
+美国财政部表示，这是首次制裁虚拟货币采矿公司，**同时美国指定制裁了俄罗斯寡头马洛费耶夫领导的40多人和实体**。**冻结了这些人在美国的所有资产，并禁止美国人与他们进行交易**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
+据报道，美国当局长期以来一直指责**马洛费耶夫是俄罗斯人在克里米亚推动分裂主义的主要资金提供者**。本月早些时候，美国司法部指控马洛费耶夫违反了对俄罗斯实施的制裁。
 
-约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/比特币矿业公司BitRiver-e1650506535615.jpg)比特币矿业公司BitRiver在西伯利亚运营数据中心（图片来源: 网络）
 
-在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
+美国财政部负责恐怖主义和金融情报的副部长布莱恩·纳尔逊(Brian Nelson)在一份声明中表示，财政部将会把目标对准那些**逃避、试图逃避或帮助逃避美国对俄罗斯制裁的人**，因为他们正在帮助支持普京发动的残酷战争。
 
-莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
+纳尔逊还说，美国将努力确保对俄罗斯的制裁，与国际伙伴密切合作，削弱俄罗斯的投射力量和入侵的能力。
 
-“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
+据报道，自俄罗斯入侵乌克兰以来，美国及其盟友已经对俄实施了几轮制裁，**包括针对该国最大的贷款机构、普京本人以及他的两个女儿**。
 
-更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
+美国财政部还**对俄罗斯商业银行Transkapitalbank实施了制裁**。财政部说，Transkapitalbank银行为包括中共国在内的亚洲和中东的几家银行提供服务。
 
-但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
+美国国务卿布林肯在一份声明中说，**美国国务院还对600多人实施签证限制，以促进对侵犯人权行为的问责，禁止他们前往美国**。布林肯说，我们将利用一切手段，对侵犯人权和违反国际人道主义法的行为进行追责。
 
-因为，上海封城最可能的原因与新冠病毒无关！
-
-新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+校对与发布：夏之木
+新闻来源链接：[New U.S. sanctions for Russian bank, oligarchs, crypto miner BitRiver](https://www.reuters.com/world/europe/us-imposes-new-russia-related-sanctions-2022-04-20/)
 
  
 

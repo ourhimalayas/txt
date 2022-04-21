@@ -2,25 +2,28 @@
 ---
 
 
-## 樱花时政┃岸田首相、靖国神社真榊奉纳
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384338/)
+## 樱花时政┃古特雷斯提出邀请希望与普京和泽连斯基面谈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384362/)
 
-撰稿：东京樱花团/立正道
+撰稿：东京樱花团/上善若水
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-岸田文雄首相21日，向东京九段北的靖国神社供奉了祭具真榊，开始的春季例大祭。真榊奉纳意味着参加神事，到22日为止，首相预计不亲自前往参拜。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-126.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220421-00000029-jij-000-12-view.jpg?exp=10800)
-在岸田内阁中，后藤茂之厚生劳动部长也奉纳了真榊。此外，自民党前首相安倍晋三、高市早苗政调会长亲自去参拜了。 真榊是祭坛左右竖立在祭祀场所的祭具。在绿色、黄色、红色、白色、蓝色的五色绸缎旗的尖端竖起榊，挂着至古以来统治着日本的三大神器。左侧挂剑，右侧挂镜子和勾玉。整体成为真榊台。
+联合国秘书长发言人杜雅里克指出，在乌战火肆虐之际，古特雷斯已致函普京及泽连斯基，对他们提出见面的邀请。古特雷斯在星期二发出的信中，试图促进俄乌对话以终止这场战争。
 
-消息来源：[岸田首相、靖国に真榊奉納　春季例大祭始まる（時事通信） – Yahoo!ニュース﻿](https://news.yahoo.co.jp/articles/b89f81445e3ef54be5595c8a3de7a9ed8555f7c2)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃古特雷斯提出邀请希望与普京和泽连斯基面谈.png)图片来源于本文链接
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
+杜雅里克指称，古特雷斯希望讨论在乌克兰实现和平的紧急措施。古特雷斯20日敦促双方从4月21日起停火，一直到4月24日复活节。他说：“五天后，乌克兰人和俄罗斯人将庆祝复活节。这是俄乌的东正教徒以及乌克兰的天主教徒共同庆祝的节日。复活节是重新开始、复活和希望的季节。它是反思苦难、牺牲、死亡和重生的意义的时候。它还是一个团结的时刻。”
+
+信息来源： 
+[联合国秘书长提出与普京和泽连斯基面谈](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220420-%E8%81%94%E5%90%88%E5%9B%BD%E7%A7%98%E4%B9%A6%E9%95%BF%E6%8F%90%E5%87%BA%E4%B8%8E%E6%99%AE%E4%BA%AC%E5%92%8C%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA%E9%9D%A2%E8%B0%88)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

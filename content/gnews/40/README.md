@@ -2,23 +2,29 @@
 ---
 
 
-## 加拿大通胀率失控再创新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383214/)
+## 香港公务员辞职创新高 投考须国安法测试合格
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2383282/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+![香港公务员事务局局长聂德权在个人官方脸书网页上介绍有关新政策](https://gdb.voanews.com/04f30000-0aff-0242-f27e-08da2313a8eb_w1023_r1_s.png)香港公务员事务局局长聂德权在个人官方脸书网页上介绍有关新政策
+据美国之音4月21日报道，香港公务员辞职潮再创新高，港府宣布从4月20日开始，欲应征今年7月1日起的公务员职位招聘，需持有大学或以上学历，还必须在新推出的《基本法及香港国安法 》测试中取得及格成绩，方获考虑聘用。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2547.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+这个名为“《基本法及香港国安法》测试 (学位/专业程度职系)”是一张设有中英文版本的选择题试卷，共有20题，考生须于30分钟内完成。申请人如在20题中答对10题或以上，将被视作及格，成绩可用于日后申请所有公务员职位。有不少网民对此负评，“祖国好、爱国爱党、听党话跟党走”便是模范标准答案。还有网民说不需考试，“只要懂得像狗吠便会考试合格”。
+
+香港近年公务员和政务职系(AO)辞职者人数趋增，两者同为香港主权移交中共国以来的新高。香港作为圣城一般的存在，是中国人民抵抗暴政的一盏灯塔，虽然“东方之珠”已经在中共的镇压下失去了往日的光彩，但是三年来，香港人从来没有后退，从来没有屈服。所谓“饿死事小，失节事大”，香港人宁愿放弃优越的公务员职位，宁愿扶老携幼背井离乡，也不愿意充当中共的走狗。一份份辞职报告表达了香港人对民主、自由和正义的捍卫。今日的离开是为了积蓄力量准备明日的回归，香港是人民的香港，是民主自由的天堂，不可能永远沦为中共的后花园。消灭中共！荣光回归香港！
+
+新闻参考链接：[https://www.voachinese.com/a/passage-of-national-security-law-test-a-new-requirement-for-hong-kong-civil-servants-applicants-20220420/6538097.html](https://www.voachinese.com/a/passage-of-national-security-law-test-a-new-requirement-for-hong-kong-civil-servants-applicants-20220420/6538097.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国3月份通货膨胀率已接近7%，是自1991年1月以来消费价格指数同比增长最快的一年。
+编辑：【英国伦敦喜庄园编辑部】
 
-据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同期相比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年2月以来的最大涨幅。
-
-报道称，尽管目前平均工资增长了3.4%，但仍然远低于持续上升的通胀率，而最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
-
-校对编辑：硫酸羟氯喹64
-
-新闻来源： [https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

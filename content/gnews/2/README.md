@@ -2,34 +2,51 @@
 ---
 
 
-## 俄羅斯試射可以搭載核彈頭的導彈以威脅敵人
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2384354/)
+## COVID-19疫苗副作用集萃（2022.4.21F）新冠疫苗副作用非常明显
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2384387/)
 
-普京吹噓新的新洲際彈道武器會讓敵人三思。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-25.png)俄羅斯在普列謝茨克試驗場試射“薩爾馬特”洲際彈道導彈。俄羅斯國防部/法新社/蓋蒂圖片社
-據《守護者報》引用路透社2022 年 4 月 20 日報道：
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-俄羅斯表示，它已經試射了薩馬特（Sarmat）洲際彈道導彈，這是其核武庫的新成員，弗拉基米爾·普京（Vladimir Putin）表示，這將使莫斯科的敵人有所顧慮。
+**整理/编辑：红红火火**
 
-電視上顯示，軍方告訴俄羅斯總統，這枚導彈從西北部的普列謝茨克（Plesetsk）發射，擊中了遠東堪察加半島（Kamchatka）的幾個目標。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
 
-普京說：“新系統具有極高的戰術和技術特性，能夠克服所有現代反導彈防禦手段。世界上沒有導彈可以與之匹敵，而且在很長一段時間內也不會有”。
 
-“這種真正獨特的武器將增強我們武裝部隊的戰鬥力，可靠地確保俄羅斯的安全免受外部威脅，並讓那些用瘋狂的攻擊性言論威脅我們國家的人有所顧慮。”
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-五角大樓週三表示，俄羅斯已在試射前正常地進行了通知，並補充說他們認為這次試射是例行公事，而不是對美國的威脅。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-據美國國會研究局稱，預計俄羅斯將在每枚“薩爾馬特”導彈上部署 10 枚或更多的彈頭。
+**博主:  玛丽艳美容顾问-武武**
 
-它已經研發了多年，因此它的試射對西方來說並不意外，但時機敏感：正值俄羅斯對烏克蘭的戰爭導致地緣政治極端緊張的時刻。
+**帖子原文:**
 
-原文鏈接：[https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon](https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon)
+新冠第三针荨麻疹
 
-翻譯：Nick｜校對：JS709｜編輯&發佈：小蜜蜂
+打第一针后的第21天本来准备要打第二针了，结果荨麻疹全身，晚上特别睡觉热的时候就起，吃完美清调补调理一星期才好。
+
+然后就去打第二针，第二针没事。一直犹豫纠结要不要打第三针，因为听说第三针比较厉害
+
+昨天信誓旦旦的去打第三针，结果晚上就又起荨麻疹了，特别痒，起了擦芦荟胶自己消，然后又在别的地方起，白天就自然消失看不见，晚上一睡觉就起，还有点呼吸不过来，赶紧起来吃点完美牌维生素C片。
+
+希望接下来的日子不要闹了
+
+**#荨麻疹 #新冠第三针**
+
+**发布于 2022-04-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.212.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4.232312.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/REWRE12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/RWER.212.jpg)图片来源：小红书
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
 
  
 
-免責聲明：本文內容僅代表作者個人觀點，平台不承擔任何法律風險。
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
 - [ROL Foundation](https://rolfoundation.org/)
 - [ROL Society](https://rolsociety.org/)
