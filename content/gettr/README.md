@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 2:26 AM (UTC)`
+
+4/20/2022 Miles Guo: I reminded everyone that it would be impossible to withdraw money from the banks in Communist China. Some fellow fighters followed my advice and withdrew cash such that they managed to leave Shanghai by spending large sums of money. The evil of the CCP’s system is that the CCP is always going to sacrifice the lives, security, and wealth of 99% of the Chinese people to safeguard the safety and interests of the 1%. The CCP is the slave owner, with 99% of the Chinese being the slaves.<br/><br/>4/20/2022 文贵直播：文贵几个月前提醒大家在中共国银行存的钱会取不出来，上海有战友信了文贵的话并取了现金，在封城期间花重金成功离开上海；中共体制的邪恶在于永远要牺牲99%的人的生命、安全和财富来保障1%的人的安全和利益；中共是奴隶主，99%的中国人是奴隶<br/>
+![img](https://media.gettr.com/group18/getter/2022/04/21/02/cfe7549a-9aaf-0f7a-9298-bd8cb02b611a/out.jpg)
+
+---
+
 `@miles 4/21/2022 2:01 AM (UTC)`
 
 2022.04.20  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百七十一集 嘉宾：Nick、封神榜
@@ -149,13 +156,6 @@ A Volunteer from France likes our vest of “Take down the Chinese Communist Par
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月19日第46天当日救援统计：<br/>Medyka救援站接待：约379人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13071人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 46 - Date: April 19, 2022 :<br/>Medyka Rescue Station Reception: about 379 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13071 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group13/getter/2022/04/20/17/1fc0613f-ff47-c159-90b9-28e9d39a60fd/1ff187b272120222dcb21fe1d2fb78d8.jpg)
-
----
-
-`@miles 4/20/2022 5:20 PM (UTC)`
-
-MILES GUO 直播 2022-04-20
-![img](https://media.gettr.com/group1/liveorigin/2022/04/20/17/5b7b9a69-7cfc-ead5-a432-3273e87abc2f/db77deaeeaadf94601c75dae84bb7948.jpg)
 
 ---
 
