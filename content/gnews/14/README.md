@@ -2,25 +2,20 @@
 ---
 
 
-## 加拿大媒体报道法治基金乌克兰救援行动
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2383022/)
+## 2022年4月21日《樱花快报》：台湾新增中共病毒确诊连续4天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383049/)
 
-作者：加拿大温哥华扬帆农场-文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421快报.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2543.png)图片来源：多伦多太阳报
-
-
-据《多伦多太阳报》4月19日报道，自俄乌战争以来，已有数百万乌克兰人被迫逃离家园，许多人首先抵达波兰边境小镇梅迪卡。因此，众多非政府组织和宗教团体都在该地搭建临时帐篷为难民提供服务。其中，穿黄色服务背心的[法治基金]志愿者随处可见，引人注目。
-
-报道称，在所有临时建立的服务设施中，由[法治基金]的华裔美国人经营的帐篷是其中最大和最有组织的一个。其中名为Feather的自愿者是一名来自加拿大多伦多大学，今年才19岁的大学生。
-
-Feather在采访中对媒体表示：能够帮助到一位既不会说英语也不会说波兰语的乌克兰老妇人与她在多伦多的儿子最终团聚，是让她和所有法治基金救援团队成员都感到非常自豪的一件事。
-
-* * *
-
-原文链接：https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html
-
-采编：坐看云起时， 校对编辑，发稿：硫酸羟氯喹64
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
