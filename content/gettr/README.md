@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 11:00 PM (UTC)`
+
+2022.04.21 NFSC news  Mariupol Commander Describes the State of War inside Mariupol Plant
+![img](https://media.gettr.com/group28/origin/2022/04/21/22/d4963eaa-b118-8d59-9dd8-57ecb004238a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/21/2022 10:02 PM (UTC)`
 
 “中共！还钱！” 飞飞秀救援快报 2022-04-21<br/>For English：gettr.com/streaming/p16hjrrc080
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 【419 5th Anniversary】04/19/2022 Don't believe the so-called polls. If you are quiet, you are complicit, and you are allowing other people to take control of your lives.<br/><br/>【419五周年】04/19/2022 不要相信所谓的民调。一旦你选择沉默，那么你就变成了同谋，允许别人控制你的生活。<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/21/09/b39fabba-9a7f-9395-ddae-c335bf83d592/out.jpg)
-
----
-
-`@miles 4/21/2022 8:56 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group21/origin/2022/04/21/08/4dcb8fcb-bbd1-b273-4fdc-02ba2c206307/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
