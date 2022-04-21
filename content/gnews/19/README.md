@@ -2,44 +2,46 @@
 ---
 
 
-## 捷克公司修复受损的乌克兰坦克
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2385931/)
+## COVID-19疫苗副作用集萃（2022.4.21N）第三针加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2386079/)
 
-翻译：里奇
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
+整理/编辑：红红火火
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-8.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-布拉格，4 月 19 日（路透社）——捷克国防部周二表示，捷克国防公司将修理在战斗中受损或在长期储存后需要维修的乌克兰坦克和其他军用车辆。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-捷克共和国一直是最积极支持乌克兰军队的国家之一，捐赠和出售武器和弹药，包括运送苏联时代的坦克、多管火箭发射器、榴弹炮、步兵战车和防空武器。
+**博主:王不温柔**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-20-625fcd2e4bb80-780x519-512341-1-edited.jpg)图片来源：新唐人亚太台
+**帖子原文：**
 
-“小故障或战斗损坏将由乌克兰军队和乌克兰国防工业自行修复” 该部表示。
+**打完第三针新冠加强针之后，例假严重不调**
 
-“捷克的援助将利用捷克国防工业公司的能力进行更广泛的工作，包括大修和将长期储存的设备投入使用。”
+今年1月份打的第三针疫苗，身体倒是没太大反应，胳膊不痛，其他不舒服也没有，但是例假出现严重不调，2月份的例假推迟4天，量特别少！3月份的例假迟来8天，我甚至怀疑我又怀孕了，查了血hcg和b超，没怀孕，例假来的量也超级少，一个姨妈巾一天都OK的那种、这种状态要持续多久呢
 
-它说，第一份合同将包括修理数量不详的苏联时代 T-64 坦克。
+**#****新冠疫苗****  #****疫苗加强针**** #月经不调**
 
-它表示，T-64坦克将在私营军火贸易和生产公司捷克斯洛伐克集团进行维修，这也是发往乌克兰的设备来源之一。
+**发布于 2022-04-6**
 
-该部表示，维修工作将在捷克公司位于捷克共和国和斯洛伐克的工厂进行。
+**精选评论**
 
-乌克兰一再呼吁西方提供重型装备和弹药，以帮助其抵抗俄罗斯的袭击。
+yiyi:我也是这样，好几个月都不准，去看妇科，医生说是普遍现象
 
-俄罗斯在 2 月袭击了乌克兰，称其为特别行动，意在使乌克兰去军事化。
+王不温柔(作者) : 看着大家一样的状态，我就安心多了，曾一度认为自己卵巢早衰了
 
-西方国家和乌克兰指责俄罗斯总统普京的无端侵略。
+🌱 一样低智儿8要和我抬杠 : 我流了一个半月的血去查B超 查白带常规 好的很 医生说“不排除”疫苗的原因 反正真的很多人都这样
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2642.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2643.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2644.png)图片来源：小红书
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
-新闻来源: 路透社[https://www.reuters.com/world/europe/czech-companies-repair-damaged-ukrainian-tanks-2022-04-19/](https://www.reuters.com/world/europe/czech-companies-repair-damaged-ukrainian-tanks-2022-04-19/)
+*发布：tianzhihuan*
 
-* * *
-
-审核：文乐
-校对：花羽
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 2:05 PM (UTC)`
+
+叶钊颖-郝海东-飞飞 《大实话·第十八场》： “民以食为天”   2022-04-21
+![img](https://media.gettr.com/group3/origin/2022/04/21/14/84924837-41c8-8f53-5f5b-1fd91374b125/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 1:51 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月20日第47天当日救援统计：<br/>Medyka救援站接待：约288人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13359人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 47 - Date: April 20, 2022 :<br/>Medyka Rescue Station Reception: about 288 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13359 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@
 
 【419 5th Anniversary】4/19/2022 Faith has a nature of uncertainty, is inclusive and can be questioned. Religion, on the other hand, is never-changing, exclusive and cannot be challenged; people of the New Federal State of China should have faith, and adhere to “Only Truth Prevails”!<br/><br/>【419五周年】4/19/2022 信仰是不确定的，是包容的，是让你怀疑的；宗教是一成不变的，排他的，不容质疑的；新中国联邦人要有信仰，坚持唯真不破！<br/>
 ![img](https://media.gettr.com/group10/getter/2022/04/21/01/128b983b-3254-def5-6c7c-b5c5e3eaed58/out.jpg)
-
----
-
-`@miles 4/21/2022 1:00 AM (UTC)`
-
-【419 5th Anniversary】4/19/2022 A young American volunteer interviewed by Nocole at the front line said something very touching at the end of his interview:  “Truth never hurts democracy, it only hurts those who are currently in power of a democracy! I would rather die a good man in a corrupt world than a bad guy in a good world”<br/><br/>【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，采访结尾时美国义工令人感动地说: “真相永远不会伤害民主、它只会伤害企图控制民主的掌权人。我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”<br/>
-![img](https://media.gettr.com/group22/getter/2022/04/21/01/7cb66a57-34d5-0c07-7ef3-ebfbeb502da2/out.jpg)
 
 ---
 

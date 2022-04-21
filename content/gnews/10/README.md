@@ -2,48 +2,30 @@
 ---
 
 
-## 法国极右翼领导人呼吁在立法选举之前建立联盟
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2386151/)
+## 加拿大制裁普京家属及其政权幕僚
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2386416/)
 
-翻译：里奇
+采编：   加拿大温哥华扬帆农场 – 文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-39.jpg)
-
-4 月 20 日（路透社） – 由在第一轮法国总统选举中被淘汰的极右翼候选人埃里克·泽莫尔（Eric Zemmour）创立的政党领导人呼吁右翼和极右翼政党在六月议会投票前结盟。
-
-泽莫尔重新征服党的执行副主席在《费加罗报》上表示，他们愿意与马琳·勒庞的全国拉力党进行联合谈判，后者将在第二轮决选中挑战总统埃马纽埃尔·马克龙，以及共和党和共和国崛起党派。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2651-edited.png)法国极右翼评论员、极右翼政党领袖埃里克·泽莫尔
-图片来源：路透社
-
-“这种选择不会质疑我们路线和战略的独特性，这在政治光谱图中的其他任何地方都找不到的” Marion Marechal、Guillaume Peltier 和 Nicolas Bay 在一份联合声明中说。
-
-他们说他们担心选举“正在左翼立场上进行”。
-
-
-```
-曾经提议假若当选会驱逐失业移民并阻止汇款的泽莫尔表示，透过俄罗斯入侵乌克兰和极右翼选民聚集在2017年大选中对决马克龙的勒庞周围这两件事，他看到民意调查的支持率崩溃。
-```
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
 
 
-```
-勒庞的侄女马雷夏尔在 BFM 电视台发表讲话说，如果马克龙赢得总统选举，选举勒庞担任总理是“一个选项”。
-```
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2658.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
 
-马雷夏尔上个月正式加入了泽莫尔的竞选团队——这对勒庞的竞选团队来说是一个打击，勒庞的竞选团队已经出现了几次倒戈。
+据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄罗斯总统普京关系密切的亲属和幕僚。
 
-在周日的决选之前，马克龙的民调领先优势已经扩大，但不能保证他一定会获胜。两位候选人都在讨好在第一轮投票中支持极左翼领袖让-卢克·梅朗雄的选民，他们中的许多人可能弃权或将选票留空。
+报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
 
-梅朗雄周二敦促选民在 6 月的国民议会投票中选举他为总理，此前他在第一轮总统选举中以 22% 的得票率落后于勒庞的 23%，以微弱优势获得第三名。
+加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。此外，特鲁多当天将与北约和欧盟领导人出席由美国拜登总统召开的视频会议。
 
-新闻来源: 路透社[https://www.reuters.com/world/europe/french-extreme-right-leaders-call-coalition-ahead-legislative-elections-2022-04-20/](https://www.reuters.com/world/europe/french-extreme-right-leaders-call-coalition-ahead-legislative-elections-2022-04-20/)
+校对编辑：硫酸羟氯喹64
 
-审核：文乐
-校对：阿伯塔
-发布：小东
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-30.jpeg)
+发稿：青青
+
+新闻来源： [https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

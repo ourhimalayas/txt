@@ -2,30 +2,29 @@
 ---
 
 
-## 加拿大制裁普京家属及其政权幕僚
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2386416/)
+## 有声｜美国对俄实施新制裁 涉及加密矿业公司
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2386658/)
 
-采编：   加拿大温哥华扬帆农场 – 文莱
+**By:秘翻新闻**
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+**2022-04-21**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/421-7.jpg)
+[路透社](https://www.reuters.com/world/europe/us-imposes-new-russia-related-sanctions-2022-04-20/)4月20日报道，美国周三对俄罗斯实施了新制裁，包括商业银行和加密货币矿业公司等数十名个人和实体。
 
+周三美国财政部财政部副部长尼尔森表示，这轮是首次制裁一家俄罗斯加密货币矿业公司BitRiver，据称该公司是世界第三大加密货币矿业公司，该公司在西伯利亚运营数据中心，并在俄罗斯控股10家子公司。
 
+财政部的制裁还包括俄罗斯商业银行Transkapitalbank，据称该银行为包括中共国和中东在内的亚洲几家银行提供服务，并曾设计逃避国际制裁的方案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2658.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+美国国务卿布林肯在一份声明中称，美国国务院还对俄罗斯和白俄罗斯的600多人实施签证限制，以加强对侵犯人权行为的责任追究，禁止他们前往美国。
 
+布林肯表示：我们将使用一切工具来追究对乌克兰侵犯人权和违反国际人道主义法的责任。
 
-据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄罗斯总统普京关系密切的亲属和幕僚。
+（秘翻新闻 自由信仰 编译报道）
 
-报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
+发布:文橙
 
-加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。此外，特鲁多当天将与北约和欧盟领导人出席由美国拜登总统召开的视频会议。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
