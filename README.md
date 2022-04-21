@@ -15,115 +15,115 @@
 
 ---
 
-### [4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争），唯一的变数就是习近平会铤而走险、毁灭台湾](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [灭共者之郭氏情报站（51）2022/04/19 文贵大直播摘要](/content/gnews/2/README.md)
- ` MOS Designer香草山设计部`
-
-### [七哥提醒战友要有反抗得智慧和善用反抗的工具](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [五月花简报（04/21/2022）](/content/gnews/5/README.md)
- ` mayflowertranslate`
-
-### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/8/README.md)
- ` NFSC News`
-
-### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/9/README.md)
- ` NFSC News`
-
-### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/10/README.md)
- ` NFSC News`
-
-### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/12/README.md)
- ` 银河歌舞厅`
-
-### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/13/README.md)
- ` 秘密翻译组-北美组`
-
-### [Nancy Pelosi将于4月26日访问台湾](/content/gnews/14/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/15/README.md)
- ` G-时新闻`
-
-### [为了释放金融储蓄中共国推出非公有制养老金](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [截至4.21 俄乌战事汇总](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/18/README.md)
- ` G-时新闻`
-
-### [美国向乌克兰提供13亿美元的额外援助](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [武毒所与美方的合作协议显示允许其销毁“机密文件”](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国防高官：俄军吸取失败教训并疯狂反扑](/content/gnews/22/README.md)
- ` 蓝莲花农场`
-
-### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/23/README.md)
- ` NFSC News`
-
-### [南希·佩洛西4月26日访台](/content/gnews/24/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/25/README.md)
- ` 蓝莲花农场`
-
-### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国，CCP造假摆拍防疫就诊](/content/gnews/27/README.md)
- ` Tokyo Sakura Video Group`
-
-### [美国宣布接纳乌克兰难民的计划](/content/gnews/28/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [文编|中美战争正式开始 中共2%的人掌握96%的比特币，比特币去中心化是最大骗局](/content/gnews/29/README.md)
- ` KarmaLabs`
-
-### [世界上最大的金条价值飙升](/content/gnews/30/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [普京宣布占领马里乌波尔](/content/gnews/31/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [文编|战友的安全与健康排第一](/content/gnews/32/README.md)
- ` KarmaLabs`
-
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/33/README.md)
+### [2022/4/19VOA断播五周年特别直播（图片9-17）](/content/gnews/1/README.md)
  ` 波士顿五月花农场`
 
-### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/34/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文编|战争打得都是钱 将来俄罗斯、中国一定被肢解](/content/gnews/35/README.md)
+### [上海隔离期间的死亡人数及造成死亡的主要原因](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/4/README.md)
+ ` YALUN 亚伦`
+
+### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争），唯一的变数就是习近平会铤而走险、毁灭台湾](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [灭共者之郭氏情报站（51）2022/04/19 文贵大直播摘要](/content/gnews/7/README.md)
+ ` MOS Designer香草山设计部`
+
+### [七哥提醒战友要有反抗得智慧和善用反抗的工具](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [五月花简报（04/21/2022）](/content/gnews/10/README.md)
+ ` mayflowertranslate`
+
+### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/15/README.md)
+ ` NFSC News`
+
+### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/17/README.md)
+ ` 银河歌舞厅`
+
+### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [Nancy Pelosi将于4月26日访问台湾](/content/gnews/19/README.md)
+ ` 银河歌舞厅`
+
+### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/20/README.md)
+ ` G-时新闻`
+
+### [为了释放金融储蓄中共国推出非公有制养老金](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [截至4.21 俄乌战事汇总](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/23/README.md)
+ ` G-时新闻`
+
+### [美国向乌克兰提供13亿美元的额外援助](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [南希·佩洛西4月26日访台](/content/gnews/27/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/28/README.md)
+ ` 蓝莲花农场`
+
+### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国，CCP造假摆拍防疫就诊](/content/gnews/30/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国宣布接纳乌克兰难民的计划](/content/gnews/31/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [文编|中美战争正式开始 中共2%的人掌握96%的比特币，比特币去中心化是最大骗局](/content/gnews/32/README.md)
  ` KarmaLabs`
 
-### [文编|疫苗灾难导致互害的报复社会行为将越来越多](/content/gnews/36/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/33/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [普京宣布占领马里乌波尔](/content/gnews/34/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [文编|战友的安全与健康排第一](/content/gnews/35/README.md)
  ` KarmaLabs`
 
-### [文编|躺平币就是让全球穷人能购买水和食物](/content/gnews/37/README.md)
+### [美国及世界疫情简报（04-21-2022）](/content/gnews/36/README.md)
+ ` 波士顿五月花农场`
+
+### [文编|疫苗灾难导致互害的报复社会行为将越来越多](/content/gnews/37/README.md)
  ` KarmaLabs`
 
 ### [文编|躺平币逐步过渡到第三代质变的数字货币](/content/gnews/38/README.md)
