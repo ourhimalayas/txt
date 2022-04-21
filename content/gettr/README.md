@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 6:45 PM (UTC)`
+
+4/21/2022 Miles Guo: Please shout it out! A large number of CCP's armed police have been deployed to at least a dozen of locations in Beijing, which is a sign of a proposed commencement of shutdown in Beijing; shutdown policy in Shanghai might be lifted soon, but the CCP will for sure hold those who have “leaked” information to outside for reprisal or retaliation; the CCP's so-called “Clean Internet” and “Searching Internet” is related to 419 special broadcast, which has a huge impact inside of the CCP China<br/><br/>4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算；419大直播在墙内影响巨大，所谓的净网、搜网活动与之有关<br/>
+![img](https://media.gettr.com/group11/getter/2022/04/21/18/6827e201-f23b-e393-d66a-9163282ef4ee/out.jpg)
+
+---
+
 `@miles 4/21/2022 6:04 PM (UTC)`
 
 4/21/2022 Miles Guo: The US House Speaker Nancy Pelosi will visit Taiwan on April 26. What will happen to Taiwan? This time the US totally ignored the “Grave Concerns” of the CCP. April 26 will be a watershed moment for China-US relations.<br/><br/>4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭！<br/>
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 2022.04.20  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百七十一集 嘉宾：Nick、封神榜
 ![img](https://media.gettr.com/group4/origin/2022/04/21/02/b2f93456-ecc1-a5ad-d721-cf4fb67fa317/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/21/2022 1:47 AM (UTC)`
-
-【419 5th Anniversary】04/19/2022  American volunteer feels embarrassed by the corruption of American media and calls for people not to be dissuaded by fear and threat<br/><br/>【419五周年】04/19/2022  美国志愿者为美国媒体的堕落感到羞愧，呼吁人们不要被恐惧和威胁所吓倒
-![img](https://media.gettr.com/group21/getter/2022/04/21/01/862dca40-4eed-fd47-a595-88e4b702854b/out.jpg)
 
 ---
 
