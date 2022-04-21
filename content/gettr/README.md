@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 2:01 AM (UTC)`
+
+2022.04.20  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百七十一集 嘉宾：Nick、封神榜
+![img](https://media.gettr.com/group4/origin/2022/04/21/02/b2f93456-ecc1-a5ad-d721-cf4fb67fa317/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/21/2022 1:47 AM (UTC)`
 
 【419 5th Anniversary】04/19/2022  American volunteer feels embarrassed by the corruption of American media and calls for people not to be dissuaded by fear and threat<br/><br/>【419五周年】04/19/2022  美国志愿者为美国媒体的堕落感到羞愧，呼吁人们不要被恐惧和威胁所吓倒
@@ -149,13 +156,6 @@ A Volunteer from France likes our vest of “Take down the Chinese Communist Par
 
 MILES GUO 直播 2022-04-20
 ![img](https://media.gettr.com/group1/liveorigin/2022/04/20/17/5b7b9a69-7cfc-ead5-a432-3273e87abc2f/db77deaeeaadf94601c75dae84bb7948.jpg)
-
----
-
-`@miles 4/20/2022 5:15 PM (UTC)`
-
-MILES GUO Livestream 2022-04-20
-![img](https://media.gettr.com/group9/getter/2022/04/20/17/56fd9d7f-339b-3e15-f494-56f09902dc91/269f7b0af235fc925082f2145d64e0c7.jpg)
 
 ---
 

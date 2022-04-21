@@ -15,74 +15,74 @@
 
 ---
 
-### [中日财经爆┃HPay就是未来金融界的信仰](/content/gnews/1/README.md)
+### [2022年4月21日《樱花快报》：台湾新增中共病毒确诊连续4天创新高](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【419五周年】4/19/2022 Nicole战友救援前线采访的美国青年义工说美国之音419断播令人伤透了心](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [加拿大魁省疫情毫无减弱趋势](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [郭文贵先生2022年4月20日盖特视频（9分12秒）全文字版](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [4/20/2022 文贵盖特：法币是宗教，数字货币才是信仰；SWIFT如果不是被政府和利益集团控制理应也是金融的信仰](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [419五周年大直播：郝海东和叶钊颖谈认识爆料革命](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [2022月04日17日 文贵展示G-fashion直播](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共纳粹式防疫](/content/gnews/8/README.md)
- ` 澳喜农场`
-
-### [Nicole采访来自美国首都华盛顿DC的犹太裔义工](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [大直播后记：跟随爆料革命变富人](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [《把这个世界还给我们》—动漫剧场](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [拜登主持美欧日盟友首脑会议，岸田首相宣布追加2亿美元贷款](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文贵爆料4.19：习进平,共产党是危墙，新中国联邦是中国的唯一的诺亚方舟](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [被日本驱逐的俄罗斯外交官已于20日离境](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃台媒华视误播台海开战](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美医生因治疗新冠受到立法机构表彰 却遭卫生部门调查](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [零售商警告说，中共对上海的野蛮封锁加剧全球供应链危机](/content/gnews/17/README.md)
+### [美中防长首通话，双方再次各说各话？](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [停泊在希腊的俄罗斯原油油轮被扣押…70万桶货物不在对象范围内](/content/gnews/18/README.md)
+### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [七哥直播之共产党的本质](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃HPay就是未来金融界的信仰](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【419五周年】4/19/2022 Nicole战友救援前线采访的美国青年义工说美国之音419断播令人伤透了心](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大魁省疫情毫无减弱趋势](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [郭文贵先生2022年4月20日盖特视频（9分12秒）全文字版](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/20/2022 文贵盖特：法币是宗教，数字货币才是信仰；SWIFT如果不是被政府和利益集团控制理应也是金融的信仰](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [419五周年大直播：郝海东和叶钊颖谈认识爆料革命](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [2022月04日17日 文贵展示G-fashion直播](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共纳粹式防疫](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [Nicole采访来自美国首都华盛顿DC的犹太裔义工](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [《把这个世界还给我们》—动漫剧场](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [拜登主持美欧日盟友首脑会议，岸田首相宣布追加2亿美元贷款](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [文贵爆料4.19：习进平,共产党是危墙，新中国联邦是中国的唯一的诺亚方舟](/content/gnews/16/README.md)
+ ` 秘密翻译组-原创组`
+
+### [被日本驱逐的俄罗斯外交官已于20日离境](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃台媒华视误播台海开战](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美医生因治疗新冠受到立法机构表彰 却遭卫生部门调查](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安大略省新冠病毒疫情最新简报](/content/gnews/19/README.md)
+### [零售商警告说，中共对上海的野蛮封锁加剧全球供应链危机](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [安大略省新冠病毒疫情最新简报](/content/gnews/21/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/20/README.md)
+### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/22/README.md)
  ` 扬帆枫叶快讯`
 
-### [通货膨胀已严重影响加拿大民生](/content/gnews/21/README.md)
+### [通货膨胀已严重影响加拿大民生](/content/gnews/23/README.md)
  ` 扬帆枫叶快讯`
-
-### [美日欧紧急会议 日本向乌克兰追加2亿美元贷款](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [五月花简报（04/20/2022）](/content/gnews/23/README.md)
- ` mayflowertranslate`
 
 ### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

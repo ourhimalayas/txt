@@ -2,27 +2,25 @@
 ---
 
 
-## 加拿大魁省疫情毫无减弱趋势
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2382960/)
+## 加拿大媒体报道法治基金乌克兰救援行动
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2383022/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+作者：加拿大温哥华扬帆农场-文所未闻
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2539.png)图片来源：[https://montreal.ctvnews.ca](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2543.png)图片来源：多伦多太阳报
 
 
-据[CTV新闻]4月19日报道，官方最新数据显示，加拿大魁北克省当天因感染新冠病毒而住院的人数上升至2281人，因此而死亡的总人数目前已接近15000人。
+据《多伦多太阳报》4月19日报道，自俄乌战争以来，已有数百万乌克兰人被迫逃离家园，许多人首先抵达波兰边境小镇梅迪卡。因此，众多非政府组织和宗教团体都在该地搭建临时帐篷为难民提供服务。其中，穿黄色服务背心的[法治基金]志愿者随处可见，引人注目。
 
-报道称，由于受疫情影响，包括因感染病毒而隔离和等待病毒检测结果等，已有超过1万名医护人员被迫暂停工作。同时，该省当天确诊了约2000例新增病毒感染，但卫生部承认，实际感染数字可能要高出10倍。
+报道称，在所有临时建立的服务设施中，由[法治基金]的华裔美国人经营的帐篷是其中最大和最有组织的一个。其中名为Feather的自愿者是一名来自加拿大多伦多大学，今年才19岁的大学生。
 
-到目前为止，已有91%的魁北克人接种了新冠病毒疫苗，其中，54%的人口已注射了三剂疫苗。
+Feather在采访中对媒体表示：能够帮助到一位既不会说英语也不会说波兰语的乌克兰老妇人与她在多伦多的儿子最终团聚，是让她和所有法治基金救援团队成员都感到非常自豪的一件事。
 
-校对编辑：硫酸羟氯喹64
+* * *
 
-发稿：青青
+原文链接：https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html
 
-原文链接： [https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+采编：坐看云起时， 校对编辑，发稿：硫酸羟氯喹64
 
  
 
