@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 5:52 PM (UTC)`
+
+In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s owner tests positive for nucleic acid and is forcibly quarantined, their pet at home would face the prospect of being abused and killed. During the lockdown in Shanghai, there are many videos showing large numbers of pets such as cats and dogs being dumped onto the street. When neighborhoods were blocked off and food supplies were cut off, even pet cats and dogs were killed for food. The CCP's evil system has devoured human nature, and all living beings have suffered with it. The only way to save humanity is to destroy the CCP.在中共国，当中共病毒疫情爆发时，一旦宠物的主人核酸检测呈阳性被强制隔离，家中宠物就会面临被虐杀的结局。上海封城的期间，有视频显示，大量宠物猫狗被抛尸街头。在小区封锁和食物断供时，更有甚者，杀死宠物猫和狗来食用。中共的邪恶体制侵吞了人性，万物生灵也跟着遭殃。唯有灭共才能拯救苍生。<br/>#ukrainerescue  #nfsc新中国联邦
+![img](https://media.gettr.com/group17/origin/2022/04/21/17/8ba2716a-305f-2b81-6176-8ac53c864095/out.jpg)
+
+---
+
+`@miles 4/21/2022 5:47 PM (UTC)`
+
+04.21.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group41/origin/2022/04/21/17/20179cd3-2294-32fd-c87d-6db67b00f211/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 4:16 PM (UTC)`
 
 04.21.2022 七哥乱聊直播
@@ -141,20 +155,6 @@
 
 【419 5th anniversary】04/19/2022 VOA, Wall Street and many corporations have huge financial ties with the CCP, the No.1 enemy of the American people. They're making deals with the devil.<br/><br/>【419五周年】04/19/2022 美国之音、华尔街和许多公司都与美国人民的头号敌人——中共，存在巨大利益联系； 他们正在与魔鬼做交易。
 ![img](https://media.gettr.com/group20/getter/2022/04/21/01/739686e0-9c59-74b9-a999-da002d829ec6/out.jpg)
-
----
-
-`@miles 4/21/2022 1:08 AM (UTC)`
-
-4/20/2022 Miles Guo’s GETTR: Fiat currency is like a religion, while digital currency is faith. If SWIFT were not controlled by governments or interest groups, it would also become the faith of finance. The Himalaya Coin, the "Tang Ping (lying flat) Coin", and the Himalaya Pay will be the faith of the financial sector in the future.<br/><br/>4/20/2022 文贵盖特：法币是宗教，数字货币才是信仰；SWIFT如果不是被政府和利益集团控制理应也是金融的信仰；喜币、躺平币加上H-Pay将会是未来的金融界的信仰<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/21/01/f9990b54-a838-3f9f-544f-062bb8c8b49c/out.jpg)
-
----
-
-`@miles 4/21/2022 1:04 AM (UTC)`
-
-4/20/2022 Miles Guo’s GETTR: Response to our fellow fighters inside Communist China - so many fellow fighters were touched by yesterday’s 8-hour long broadcast and expressed their feelings and appreciations; our New Federal State of China is undertaking the great cause of saving our fellow Chinese and the entire humanity, while the Chinese Communist Party is aware that its days are numbered.<br/><br/>4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了<br/>
-![img](https://media.gettr.com/group8/getter/2022/04/21/01/bed178fd-824c-1ce1-cd16-f396fe5579d7/out.jpg)
 
 ---
 
