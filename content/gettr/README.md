@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 1:51 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月20日第47天当日救援统计：<br/>Medyka救援站接待：约288人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13359人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 47 - Date: April 20, 2022 :<br/>Medyka Rescue Station Reception: about 288 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13359 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group50/getter/2022/04/21/13/7b7f37f6-f17e-f270-768d-b2840442998b/5377e32cfbe365e092dba5370f4be817.jpg)
+
+---
+
 `@miles 4/21/2022 1:00 PM (UTC)`
 
 4月21日：尊敬的战友们好．看共产党流氓，这些所谓的辟谣，真的很让人无语，共产党真的是把14亿中国人民当成猪了……，否则他们不可能总是一贯的．用这种掩耳盗铃．愚蠢无知的宣传……谎言来欺骗这么多老百姓．可恨至极……新中国联邦将彻底消灭中国共产党！
@@ -149,13 +156,6 @@
 
 【419 5th Anniversary】4/19/2022 A young American volunteer interviewed by Nocole at the front line said something very touching at the end of his interview:  “Truth never hurts democracy, it only hurts those who are currently in power of a democracy! I would rather die a good man in a corrupt world than a bad guy in a good world”<br/><br/>【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，采访结尾时美国义工令人感动地说: “真相永远不会伤害民主、它只会伤害企图控制民主的掌权人。我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”<br/>
 ![img](https://media.gettr.com/group22/getter/2022/04/21/01/7cb66a57-34d5-0c07-7ef3-ebfbeb502da2/out.jpg)
-
----
-
-`@miles 4/21/2022 12:57 AM (UTC)`
-
-【419 5th Anniversary】 4/19/2022 A young American volunteer interviewed by Nicole at the front line of the NFSC & ROLF Ukraine rescue operation said that the VOA broadcast disruption incident on April 19, 2017, wrenches out the soul. He also said the US, a symbol of freedom and democracy, had been twisted by foreign interests, and that many influence groups and big businesses had sacrificed the American value of freedom to make profits in Communist China.<br/><br/>【419五周年】4/19/2022 Nicole战友救援前线采访的美国青年义工说美国之音419断播令人伤透了心！他还说，作为自由民主象征的美国竟被外国利益集团操纵，有影响力的组织和大公司为了在中共国获利而牺牲了美国的自由价值观<br/>
-![img](https://media.gettr.com/group14/getter/2022/04/21/00/ca6a88d9-620c-9d27-52ed-9699cf30267f/out.jpg)
 
 ---
 
