@@ -2,21 +2,18 @@
 ---
 
 
-## 外企纷纷撤出 莫斯科20万人面临失业
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388177/)
+## 普京认为西方对俄罗斯发起的“经济闪电战”已经失败
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388178/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：台湾宝岛农场 – 港台前線
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-49.jpg)
-莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
+俄罗斯总统普京4月18日在与高级经济官员的视频通话中表示，西方正试图透过经济制裁，造成俄罗斯银行体系崩溃以及货物短缺，但最终俄罗斯顶住了这前所未有的压力，西方发动的“经济闪电战”已经失败。
 
-由于欧美及其他地区陆续祭出制裁，拖垮了俄罗斯经济，并将其推向了外债违约的边缘，造成俄罗斯通货膨胀一路飙升，有经济学家预测，俄罗斯经济将陷入严重衰退。
+在西方制裁的影响下，俄罗斯国内商品价格上涨，截至4月8日，俄罗斯通胀率为17.5%。但普京坚称，目前卢布汇率已经稳定，外汇也已经回流俄罗斯银行，国内的通胀正在趋于稳定。在普京看来，制裁对发动者本身也是有代价的，西方对俄罗斯祭出制裁措施将导致西方经济走向恶化。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-50.jpg)
+早前，奥地利总理内哈默在与普京会面结束后，向媒体表示，普京似乎对自己在乌克兰的军事行动相当有信心，相信自己“正在胜出这场战争”。内哈默指出，对于俄军在乌克兰犯下的罪行指控，普京套用自己的战争逻辑，反指乌克兰在顿巴斯（Donbas）地区进行种族灭绝。内哈默认为，他确信普京“知道现在发生的事”，西方领袖需要“用在乌克兰看到的事实”直接对抗普京的逻辑。
 
-参考链接：
-1. [Vladimir Putin’s nuclear bomber planes called ‘Bears’ fly in Ukraine striking distance](https://www.mirror.co.uk/news/world-news/vladimir-putins-nuclear-bomber-planes-26735218)
-2. [Mariupol’s defenders dig in for last stand as Russia threatens to ‘filter’ out men](https://edition.cnn.com/2022/04/18/europe/ukraine-russia-mariupol-monday-intl/index.html)
-3. [Russia begins large-scale offensive in eastern Ukraine](https://www.axios.com/ukraine-battle-donbas-eastern-ukraine-russia-df048eb8-688a-4163-a9a2-34bda799b9ab.html)
+参考链接：[俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](https://gnews.org/zh-hans/2371564/)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
