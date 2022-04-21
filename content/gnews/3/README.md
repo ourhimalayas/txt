@@ -2,29 +2,33 @@
 ---
 
 
-## 有声｜非营利组织向乌克兰发送婴儿保温箱
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2386690/)
+## 泽连斯基与南非总统讨论粮食危机威胁
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2386870/)
 
-**By:秘翻新闻**
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-21-下午10.15.36.png)图片来源：互联网
+据乌克兰国家通讯社（Ukrinform）周四（4月21日）报道，乌克兰总统泽连斯基与南非共和国总统西里尔·拉马福萨讨论了全球粮食危机的威胁。
 
-**2022-04-21**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/421-8.png)
-据[《福克斯新闻》](https://www.foxnews.com/us/nonprofit-sending-incubators-babies-ukraine)4月20日报道，非营利组织向乌克兰的防空洞和医院发送保温箱以拯救早产婴儿。
+泽伦斯基在他的推特账户上写了[这件事](https://twitter.com/ZelenskyyUa?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1516865834085453831%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.ukrinform.ua/rubric-economy/3463099-zelenskij-obgovoriv-iz-prezidentom-par-zagrozu-prodovolcoi-krizi.html)。
 
-报道称，一个全球性的非营利组织正在向乌克兰的防空洞和医院发送便携式孵化器，以帮助拯救早产新生儿的生命。
+“与西里尔·拉马福萨（Cyril Ramaphosa）进行了电话交谈。讲述了我们对俄罗斯侵略的抵抗。讨论了全球粮食危机的威胁，深化与南非共和国的关系以及国际组织内的合作，”泽伦斯基写道。
 
-Embrace的联合创始人简·陈表示，2月底战争开始时，乌克兰估计有26万名妇女已经怀孕。每天有超过1000名妇女分娩，其中100多名婴儿需要某种新生儿重症监护。如果不好好照顾这些早产儿，早产儿，他们长大后可能会有终身的健康并发症。
+据报道，据人权观察报道，俄罗斯入侵乌克兰加速了中东和北非的粮食危机。
 
-陈表示，2008年，她与一群工程师合作，经过多年的研究和开发，该组织的保温箱于2012年投放市场。这种看起来像睡袋的孵化器能够在不需要电力的情况下保持完全相同的温度长达八个小时，成本大约为300美元，而不是2万多美元。
+特别是，黎巴嫩 80% 的小麦来自乌克兰；埃及购买小麦和大量石油；利比亚从乌克兰进口超过 40% 的小麦；也门进口不少于27%。此外，叙利亚西北部当局向该地区提供通过土耳其购买的小麦和面粉，土耳其还从乌克兰进口 90% 的小麦。
 
-据报道，Embrace已经在与联合国国际儿童紧急救援基金和世界卫生组织合作，已经为乌克兰当地的各种非营利组织申请了3000个保温箱。
+拉马福萨在推特账户[写道](https://twitter.com/CyrilRamaphosa/status/1517082375611895809?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1517082375611895809%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.timeslive.co.za/politics/2022-04-21-ukraines-zelensky-discusses-threat-of-a-global-food-crisis-with-ramaphosa/)，他于泽连斯基总统讨论了“乌克兰的冲突和其悲惨的人类代价，以及其全球影响。”
 
-（秘翻新闻Grace编辑报道）
+拉马福萨此前曾通过推特证实，他​​已与俄罗斯总统弗拉基米尔·普京、中国（中共国）国家主席习近平和美国总统乔·拜登进行了电话交谈，周四证实了这一电话。
 
-发布:文橙
+参考链接：
+
+【1】[Zelensky discusses with South Africa’s president threat of food crisis](https://www.ukrinform.net/rubric-ato/3463119-zelensky-discusses-with-south-africas-president-threat-of-food-crisis.html)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

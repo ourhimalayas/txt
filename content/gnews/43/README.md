@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|以色列国防部将采购防护装备提供给乌克兰救援和应急组织
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2383052/)
+## 有声|美财政部长就中俄结盟问题发出严厉警告
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2381539/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
-【AXIOS 4月19日报道】 以色列国防部长本尼·甘茨在周二告诉乌克兰外长，以色列将为乌克兰医疗队和急救人员提供头盔和防弹背心。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image009-3.jpg)以色列国防部长本尼甘茨。照片：亚历克斯·王/盖蒂图片社
-自战争开始以来，乌克兰就要求以色列提供防护装备，但以色列一再拒绝，因担心会遭到俄罗斯的强烈反对。虽然该政策现在已经改变，但以色列仍然没有提供基辅要求的先进武器系统。
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月13日，美国财政部长珍妮特·耶伦在大西洋理事会智库的演讲中，针对中共与俄罗斯“没有上限”的伙伴关系，态度强硬地发出警告。
 
-甘茨在一份声明中说，他告诉乌克兰国防部长奥列克西·雷兹尼科夫，以色列国防部将采购防护装备，提供给乌克兰救援和应急组织。声明还说“部长们还讨论了以色列在总理领导下的作用，以及为了结束战争的国际努力。”
+耶伦指出，习近平妄图将中共的威权制度作为全球新兴国家和发展中国家的典范，国际秩序正处于危险之中。随后，耶伦措辞严厉地强调，如果在关键时刻不尊重主权和领土完整的原则，中共国就不能指望全球社会在未来尊重它对这些原则的诉求。
 
-[【援引连结】](https://www.axios.com/)
+耶伦在问答环节还表示，美国需要避免出现两极的全球金融体系，即市场驱动的民主国家与政府驱动的专制国家形成的两大经济阵营。但分析人士认为，耶伦的演讲是在下周国际货币基金组织和世界银行成员国，将在华盛顿召开春季会议的前几天发表的，勾勒出一个新的国际金融和经济架构的轮廓，可能正在为两大阵营的对垒做准备，因此具有“里程碑”式的意义。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+文字版原文：[美财政部长就中俄结盟问题发出严厉警告](https://gnews.org/zh-hans/2352852/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

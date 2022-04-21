@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|华府智库专家警告 不要低估中共扩充核武库的威胁
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2383050/)
+## 有声|创造历史，新中国联邦人获波兰颁发工作证
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2381536/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
-【大纪元4月20日讯】 据一位专家透露，中共正在扩充核武库，试图以此削弱西方，并且，按照自己的想法建立新的国际秩序。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image011-2.jpg)专家称，在世界核俱乐部及联合国安理会常任理事国中，唯有中共隐藏核武库信息。图为导弹模型。
-华府智库安全政策中心的美国核战略论坛主任彼得·普瑞说：“我认为中共是为了统治全球（global domination），而不断加强核力量。”。他表示，根据中共建造新洲际弹道导弹（ICBM）、发射井以及生产铀的速度，他预计到了2030年，中共国核弹头的实际数量将达到4,000枚左右。
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月14日，来自波兰前线梅迪卡的消息。波兰当地有关救援机构为新中国联邦人颁发了志愿者工作证，该证受当地警察、军人、各国际组织的认可，并有通行权力，凭此工作证可在波兰当地申请签证延期。工作证上直接写的是：新中国联邦。
 
-普瑞警告，美国在核武库现代化上已放了一个“30年的长假”，使中俄有时间发展得以抗衡或超越美国防御系统的战略能力。例如，中共在去年7月测试了一个具有核能力的高超音速武器系统。
+经历40天的乌克兰救援，新中国联邦人在梅迪卡的救援站累计接待了1万多乌克兰难民。在梅迪卡的前线战友们，对救援工作的认真热忱和无私奉献，获得越来越多的认可和支持，新中国联邦在国际上的知名度日渐扩大。
 
-[【援引连结】](https://www.epochtimes.com/gb/22/4/20/n13715671.htm)
+新中国联邦人在梅迪卡前线，向来到救援帐篷的人展现了不同于中国共产党的崭新中国人的面貌。一些外国记者、其他机构的救援人员、以及被救援的灾民初与我们前行的战友接触时，常常会误以为是中共派出的人员，他们很多人露出了反感的表情。经过战友的解释，表明自己是消灭中国共产党的新中国联邦人，他们马上放下了防备之心，与战友热情交流，很多人还主动要求与身穿灭共马甲的战友合照。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+梅迪卡救援前线的战友们积极向世界展示新中国联邦的灭共理念，一些国家的政要陆续来到新中国联邦的大帐篷，向世界表明了对新中国联邦的认同，同时展现了对中共说不的勇气。新中国联邦人每天都在创造历史。
 
+文字版原文：[创造历史，新中国联邦人获波兰颁发工作证](https://gnews.org/zh-hans/2351938/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

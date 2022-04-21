@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|伦敦法院同意将阿桑奇引渡至美国
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2383053/)
+## 有声|出于对俄罗斯和中共的担忧，日本加强与意大利的军事合作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2381540/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
-【俄罗斯卫星通讯社4月20日报道】 伦敦威斯敏斯特地方法院签发了关于将维基解密创始人朱利安·阿桑奇引渡到美国的引渡令，他在美国将面临175年监禁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-5.jpg)© Sputnik / Justin Griffiths-Williams 
-维基解密发推文称：“英国法官下令把阿桑奇引渡到美国，他或将面临最高175年监禁。”
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据共同社4月13日消息报道，日本防卫相岸信夫12日晚在防卫省与意大利国防部长洛伦佐·盖里尼（Lorenzo Guerini）举行了视频会谈，因日本担心俄罗斯入侵乌克兰及其对亚洲的影响而扩大与欧州的安全关系。
 
-有关引渡的决定是4月2日作出的。现在引渡令需要得到英国内政大臣普丽蒂·帕特尔的批准。阿桑奇的辩护人可在5月18日之前提出上诉。
+双方围绕俄罗斯进攻乌克兰的局势展开讨论。岸信夫谴责俄军在乌克兰的暴行称杀害平民是严重违反国际人道法的行为绝不容忍，意大利是七国集团（G7）和北大西洋公约组织（NATO）成员国，两位防长都一致认为，俄罗斯入侵乌克兰破坏了欧洲以及亚洲的国际秩序基础，是“绝对不能允许的”，拥有共同基本价值观的国家，必须团结一致，坚决采取行动。”双方都同意加强安全关系，并讨论了在发展国防设备方面的可能合作。
 
-先前阿桑奇为避免因性侵案遭引渡瑞典受审，曾窝居厄瓜多尔驻伦敦大使馆7年，2019年在英国被捕。
+岸信夫表示，中共在印太地区日益强势的军事活动加剧了紧张局势，近年来，日本大幅扩大了与美国及其他亚太地区和欧洲伙伴的安全会谈和联合演习，这些国家与日本一样对中共在亚太地区的领土主张表示担忧。
 
-关于阿桑奇被引渡到美国的听证会于2019年5月2日开始。此后不久，美国政府宣布他们对阿桑奇提出了新的指控，指控他犯下了违反间谍法和机密信息泄密的17项罪名。如果被引渡到美国，阿桑奇将面临最高175年的监禁。
+该地区拥有全球最繁忙的一些海上通道。尤其担心中共军队和海警在东中国海日本控制的尖阁诸岛附近的活动，中共把这组无人居住的小岛称为钓鱼岛，并声称对其拥有主权。
 
-[【援引连结】](https://sputniknews.cn/20220420/1041003119.html)
+文字版原文：[出于对俄罗斯和中共的担忧，日本加强与意大利的军事合作](https://gnews.org/zh-hans/2354579/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
