@@ -17,6 +17,29 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 4/21/2022 9:00 AM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.04.21 ET
+![img](https://media.gettr.com/group10/origin/2022/04/21/08/1d2b84ea-8cc9-a7fa-4e19-ffd1d7052deb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/21/2022 9:15 AM (UTC)`
+
+【419 5th Anniversary】 4/19/2022 If the CCP invades Taiwan, the US and Japan will have no choice but to go to war provided that Taiwan resists the CCP's attack. If Taiwan does not fight back, the US, Japan, and other allied forces will wait until Taiwan is almost finished before joining the war to annihilate the CCP's troops. Xi definitely has the ball to use strategic nuclear weapons against Taiwan. Xi believes that it will be necessary to make it impossible for anyone to take Taiwan if he can't take it.<br/><br/>【419五周年】4/19/2022 如果中共打台湾，美日将别无选择地参战，前提是台湾要反抗中共进攻；若台湾不反抗，美日等盟军则会等台湾快完蛋的时候参战并灭掉共军；习绝对敢对台湾使用战略核武器，习觉得如果他得不到台湾，那就让谁都得不到！<br/>
+![img](https://media.gettr.com/group42/getter/2022/04/21/09/f2391ce0-bf28-f7f2-643b-16c8424174ed/out.jpg)
+
+---
+
+`@miles 4/21/2022 9:10 AM (UTC)`
+
+【419 5th Anniversary】04/19/2022 Don't believe the so-called polls. If you are quiet, you are complicit, and you are allowing other people to take control of your lives.<br/><br/>【419五周年】04/19/2022 不要相信所谓的民调。一旦你选择沉默，那么你就变成了同谋，允许别人控制你的生活。<br/>
+![img](https://media.gettr.com/group17/getter/2022/04/21/09/b39fabba-9a7f-9395-ddae-c335bf83d592/out.jpg)
+
+---
+
 `@miles 4/21/2022 8:56 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -133,29 +156,6 @@
 
 “习神的裸鸡...” 飞飞秀救援快报 2022-04-20<br/>For English：gettr.com/streaming/p169om5577f
 ![img](https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 8:58 PM (UTC)`
-
-2022.04.20  新中国联邦 | 喜健康   毒疫苗导致的家庭关系，人际关系冲突/沟通技巧与和解之道
-![img](https://media.gettr.com/group45/origin/2022/04/20/20/a6469969-4406-4ccc-bb57-97a4052eed26/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 8:44 PM (UTC)`
-
-A Volunteer from France likes our vest of “Take down the Chinese Communist Party” and supports the New Federal State of China. <br/><br/>一名来自法国的志愿者喜欢我们“消灭中共”的背心并且支持新中国联邦。<br/><br/>#ukrainerescue  #nfsc新中国联邦  #nfscukrainerescue
-![img](https://media.gettr.com/group27/origin/2022/04/20/20/72bfea8e-cea8-32bc-758d-231f6b16246e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@globalalliance 4/19/2022 8:45 PM (UTC)`
-
-2022.04.19 新中国联邦 | 喜健康 兽药伊维菌素，青蒿琥酯，中药抗击“中共病毒”经历分享
-![img](https://media.gettr.com/group35/origin/2022/04/19/20/5a134600-a097-ce62-2d7c-d47ce5bb7535/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

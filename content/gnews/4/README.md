@@ -2,10 +2,10 @@
 ---
 
 
-## 一辆乌克兰坦克开火穿过一座被炸毁的建筑，一炮将另一侧的俄罗斯装甲运兵车干掉
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2384653/)
+## 上海防疫人员在屠杀宠物
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2384684/)
 
-04/19/2022 令人难以置信的时刻，一辆乌克兰坦克开火穿过一座被炸毁的建筑，一炮将另一侧的俄罗斯装甲运兵车干掉。
+04/11/2022 上海防疫人员在屠杀宠物
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

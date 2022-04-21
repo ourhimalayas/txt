@@ -2,27 +2,34 @@
 ---
 
 
-## 俄罗斯对车诺比的攻击被看作是核威胁的“恶梦”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384585/)
+## 台湾报告11架中共国军机侵入防空识别区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384586/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-446.jpg)
-图片来源： news.un.org
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2590.png)图片来源:taiwannews.com.tw
 
-美联社4月20日报道，在世界上最具放射性的地方，入侵乌克兰的俄罗斯士兵挖了壕沟，乌克兰官员警告说，他们在为自己挖坟墓。
+据台湾国防部（MND）称，中共国周三（20日）派出11架军机进入台湾防空识别区（ADIZ），包括两架轰炸机进入其东南部区域。
 
-在俄罗斯二月份入侵乌克兰时，上千辆坦克和军人冲入到已成森林的车诺比无人区，搅动了自1986年切尔诺贝利核事故后世界上最高度核污染的泥土。
+七架沈阳 J-16 战斗机，一架陕西 Y-8EW 电子战飞机，以及一架陕西 KJ-500 空中预警和控制飞机，它们出现在台湾防空识别区的西南角，大多数中共国战机都是在这里被发现的。
 
-一些俄罗斯士兵在该处挖土，并在枪口下迫使仍然在那里工作的人员经历了一个多月的不得不在那里的工作台上睡觉，一天只能吃两餐。现在虽然俄军已离开几个星期，该厂的主要安全工程师说：“我必须让自己平静下来，我害怕他们安装什么东西并损害整个系统。”
+然而，据 [CNA](https://www.cna.com.tw/news/aipl/202204200330.aspx) 报道，两架西安 H-6 战略轰炸机继续其在台湾南部的航行，然后在东南部重新进入台湾的 ADIZ。
 
-俄罗斯入侵者甚至曾造成该核电站断电，这是非常危险的，因为该厂的发电机用于循环水的冷却。欧洲议会环境保护组织前主席说：“这是恶梦般的场景，因为核电厂可被用于作为核炸弹。”
+周三，由于俄罗斯入侵乌克兰的紧张局势持续，中共国军机的入侵次数是4月来最高的。台湾国防部派出飞机，发出无线电警告，并部署防空导弹系统来追踪这11架中共国飞机。
 
-当俄罗斯军队于3月31日离开该地区，将150名乌克兰国民卫队成员押往白俄罗斯，当他们离开核电厂时，他们让该厂管理员们选择，或者签署证明说士兵们保护了核电厂，管理员们签署没有怨言，不然就要被带到白俄罗斯，所以他们签了。
+新闻来源：[taiwannews.com.tw] [Taiwan reports ADIZ incursions by 11 military aircraft from China](https://www.taiwannews.com.tw/en/news/4513624) |发布时间：2022年04月20日
 
-#### 新闻来源： [Russia’s Chernobyl seizure seen as nuclear risk ‘nightmare’](https://apnews.com/article/russia-ukraine-business-health-europe-accidents-edcd5bc0e6bde3cbf6d7300bebc9343f)
+* * *
 
-
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
