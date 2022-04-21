@@ -2,28 +2,47 @@
 ---
 
 
-## 新中国联邦可能会在乌克兰和波兰建立大使馆
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2388068/)
+## 装置作品《成都双年展作品（一）》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2388106/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111111.jpg)
-4月22日直播中，郭先生提到，目前普京由于战事上的节节败退，对西方发出了和解信号，谈判结果可能在6月中旬或者下旬定下来。如若普京交枪投降，那么我们在前线对乌克兰的救援行动可能会有一个大的改变，我们也许会在当地置办一个固定的物业，和当地政府商量，建立第一个大使馆，称为新中国联邦驻梅迪卡战地大使馆。另外我们也会深入到乌克兰基辅，建立新中国联邦驻基辅大使馆。随即也会派出新中国联邦的大使。
+整理：vale
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2682.png)
 
-新中国联邦在前线的救援行动，已经将乌克兰人、犹太组织和我们的命运紧紧连在一起。尽管救援行动开始之前我们和联合国谈论的合作因对方迫于对中共的恐惧而未展示书面形式，但谈论合作本身就给新中国联邦奠定了国际关系交流的基础，目前新中国联邦在网路的搜索量已经从过去的千万级增加到了十几亿级。并且乌克兰可能会成立一个小北约，届时会把新中国联邦也加入。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2673.png)
 
-撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2674.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2675.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2676.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2677.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2678.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2679.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2680.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2681.png)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-32.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
