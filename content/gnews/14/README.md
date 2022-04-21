@@ -2,55 +2,25 @@
 ---
 
 
-## 自由之光
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2385457/)
+## 有声｜五角大楼认为俄罗斯核导弹试验不会产生威胁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2385683/)
 
-**作者：**敢想敢做
-**编辑：**翼族
+**By:秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/0f50dd96daf4cc1d.jpg)雅典娜设计组（新世界）
+**2022-04-21**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-21-173702.jpg)
+[Newsmax](https://www.newsmax.com/world/globaltalk/russia-ukraine-war-the-latest/2022/04/20/id/1066530/)4月20日报道，五角大楼新闻秘书约翰-柯比对俄罗斯发射新型洲际弹道导弹一事并不太在意，而克里姆林宫正指望这种导弹成为其核战略的核心。
 
+俄罗斯总统普京称，这种萨尔马特导弹具有穿透反导弹防御系统的独特能力。而俄罗斯航天局局长德米特里-罗戈津挑衅性地称，周三的试飞是给北约的礼物。
 
-我们记得祖宗的智慧，
-我们记得祖先的心血，
-我们记得祖上的文明，
-我们记得祖先用 鲜血 换来的土地——
+但柯比对此则表示，并不认为这次试验将对美国或其盟国产生威胁。
 
-如今 恶棍 屠城香港 血洗西藏 屠尽新疆，
-（控制思想，祸害世界！）
-我们将为 祖宗 荣耀 而战！
-（中共 是我们 国人的羞辱！）
-我们 将反抗 黑暗 ！
-反击邪恶！
-（打击腐败！）
-反扑独裁！
-（反攻绝望！）
+（秘翻新闻 大树 编译报道）
 
-我们将 高唱 自由！
-(歌颂 民主！)
-称颂慈爱！
-高唱光明！ ！ ！
+发布:星星
 
-死亡与邪恶 不停 召唤，
-独裁 与腐败 充斥着世界，
-痛苦 和悲伤 在世界上 滋生，
-来吧！战友们！醒来吧！
-是时候 该 正眼 对待 这世界！
-（我想从 这抹 黑雾 中 逃走！）
-但总是让内心 崩溃！
-振作起来！
-（我们 看到了 黑暗中的 光！）
-（我们 追逐着 这抹 光芒！）
-黑雾 即将 散去，
-我们终将 重新看到 明亮的阳——光！
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
