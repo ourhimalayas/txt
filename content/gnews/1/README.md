@@ -2,27 +2,33 @@
 ---
 
 
-## 樱花时政┃芬兰议会今启加入北约辩论
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384521/)
+## 声明—加拿大对俄罗斯总统普京的女儿们实施制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2384600/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-在2月24日俄乌战争之前，芬兰议会的200名成员在这个问题上长期存在分歧，在夏季可能进行的投票中，赞成加入的成员占明显多数。根据芬兰媒体的统计，其中约有100人已经决定投票支持加入，而只有12人表示反对。其他人在等待辩论，以表明他们的立场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/YOP4264IFZLD3EG64SBGGYYXNE.jpg)圣彼得堡国际经济论坛(SPIEF) REUTERS/Evgenia Novozhenina/File Photo
+路透社渥太华4月19日电–根据加拿大外交部的一份声明，加拿大周二表示，它正在对俄罗斯政权中的14名个人实施定向制裁，包括对俄罗斯总统普京的两个成年女儿。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-64.png)图片来源于本文链接
+本月早些时候，美国和英国都宣布对普京的女儿–卡捷琳娜·弗拉基米罗夫娜·季霍诺娃(Katerina Vladimirovna Tikhonova)和玛丽亚·弗拉基米罗夫娜·沃龙佐娃(Maria Vladimirovna Vorontsova)进行制裁，因为他们说她们被认为正在隐藏普京的财富。
 
-据芬兰官方白皮书说，对于与俄罗斯有1300公里边界的北欧国家来说，加入这个由30个成员组成联盟的北约将对这个邪恶邻国的攻击提供“相当大的”威慑力。芬兰欧盟事务部长Tytti Tuppurainen周五承认，芬兰“非常有可能”成为候选国，但她表示尚未作出决定。她说：芬兰人现在似乎已经下定决心，已经有绝大多数人赞成加入北约。民意调查显示，550万芬兰人中几乎有三分之二的人现在赞成加入，几乎是俄乌战争前的三倍。
+**简评：**
 
-信息来源： [芬兰议会今启加入北约辩论](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220420-%E8%8A%AC%E5%85%B0%E8%AE%AE%E4%BC%9A%E4%BB%8A%E5%90%AF%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6%E8%BE%A9%E8%AE%BA)
+普京为了巩固自己的权力向乌克兰开战，把无数的俄罗斯年轻的士兵送去战场，却把自己的情人和子女送去他自己称之为万恶的西方国家。这种行径不禁让人想到了中共高官，他们同样是骂着西方，却把子女都送去西方国家，看来独裁者政权都是相似的。与普京形成鲜明对比的是乌克兰总统泽连斯基，不但自己留在基辅，指挥全国统一抗击俄军，连自己的妻子和子女也同样留在乌克兰。所以从他们的个人选择中，我们可以看明白，普京认为俄罗斯必败，而泽连斯基则认为乌克兰必胜。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+独裁者的另一个特点就是把钱都放在西方国家，因为他们也知道自己的钱放在本国是不安全的。中共的权贵与俄罗斯的寡头都把子女送出海外，都把财富藏在海外，他们都不想让大家知道真相。消灭独裁，人人有责。
+
+新闻链接: [Canada imposes sanctions on Russian president Putin’s daughters – statement](https://www.reuters.com/world/canada-imposes-sanctions-russian-president-putins-daughters-statement-2022-04-19/)
+
+*翻译/简评: kkoto(芬兰大灰狼) / PR: 感恩*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

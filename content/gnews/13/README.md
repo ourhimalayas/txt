@@ -2,25 +2,28 @@
 ---
 
 
-## 樱花时政┃乌克兰军队得到美英军机和新空战武器的支援
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384351/)
+## 樱花时政┃古特雷斯提出邀请希望与普京和泽连斯基面谈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384362/)
 
 撰稿：东京樱花团/上善若水
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-五角大楼发言人科比19日在新闻发布会上提到，乌克兰已收到一批额外军机，另有零件可供修复受损的飞机重返战场，可运作的战斗机甚至超过2周前的数量。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-91.png)图片来源于本文链接
-科比说，“乌接收了额外的军机和零件，让乌军能有更多飞机在空中飞行”、“我们的确协助了这批额外备品的运送，来满足他们的军机需求。”自从2月24日俄罗斯入侵乌克兰以来，美国已提供乌超过30亿美元军援，包括取自美军库存的标枪防空飞弹和武装无人机。两周前，英国防部向乌军展示了13吨重“风暴者”导弹发射车，并将可以在几天内将装甲车由C-17运输机运送到乌克兰。这些装备是迄今为止送往乌克兰的最好的装备，它会让俄军瑟瑟发抖。
+联合国秘书长发言人杜雅里克指出，在乌战火肆虐之际，古特雷斯已致函普京及泽连斯基，对他们提出见面的邀请。古特雷斯在星期二发出的信中，试图促进俄乌对话以终止这场战争。
 
-信息来源： [乌克兰军队得到军机和新空战武器的支援](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E8%A6%81%E9%97%BB%E5%88%86%E6%9E%90/20220420-%E4%B9%8C%E5%85%8B%E5%85%B0%E5%86%9B%E9%98%9F%E5%BE%97%E5%88%B0%E5%86%9B%E6%9C%BA%E5%92%8C%E6%96%B0%E7%A9%BA%E6%88%98%E6%AD%A6%E5%99%A8%E7%9A%84%E6%94%AF%E6%8F%B4)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃古特雷斯提出邀请希望与普京和泽连斯基面谈.png)图片来源于本文链接
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
+杜雅里克指称，古特雷斯希望讨论在乌克兰实现和平的紧急措施。古特雷斯20日敦促双方从4月21日起停火，一直到4月24日复活节。他说：“五天后，乌克兰人和俄罗斯人将庆祝复活节。这是俄乌的东正教徒以及乌克兰的天主教徒共同庆祝的节日。复活节是重新开始、复活和希望的季节。它是反思苦难、牺牲、死亡和重生的意义的时候。它还是一个团结的时刻。”
+
+信息来源： 
+[联合国秘书长提出与普京和泽连斯基面谈](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220420-%E8%81%94%E5%90%88%E5%9B%BD%E7%A7%98%E4%B9%A6%E9%95%BF%E6%8F%90%E5%87%BA%E4%B8%8E%E6%99%AE%E4%BA%AC%E5%92%8C%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA%E9%9D%A2%E8%B0%88)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,27 +2,34 @@
 ---
 
 
-## 樱花时政┃俄乌战争乌克兰难民今突破500万
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384502/)
+## 台湾报告11架中共国军机侵入防空识别区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384586/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-联合国在日内瓦难民署的数据，自俄罗斯入侵开始以来，已有5,034,439名乌克兰人离开他们的国家，比周二公布的数字多了53,850人。据联合国难民机构副高级专员凯利·克莱门茨说：“经过八周的冲突，我们统计的数字已经达到500万，而且还在不断增加，这是500万个关于损失和创伤的悲惨故事。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄乌战争乌克兰难民今突破500万.png)图片来源于本文链接
-国际移民组织(IOM)表示，超过21.8万名非乌克兰人，主要是学生和移民工人，也已经离开乌克兰前往邻国，这意味着自战争开始以来，总共有超过525万人逃离了乌克兰。
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2590.png)图片来源:taiwannews.com.tw
 
-信息来源： 
-[乌战难民今过500万](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220420-%E4%B9%8C%E6%88%98%E9%9A%BE%E6%B0%91%E4%BB%8A%E8%BF%87500%E4%B8%87)
+据台湾国防部（MND）称，中共国周三（20日）派出11架军机进入台湾防空识别区（ADIZ），包括两架轰炸机进入其东南部区域。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+七架沈阳 J-16 战斗机，一架陕西 Y-8EW 电子战飞机，以及一架陕西 KJ-500 空中预警和控制飞机，它们出现在台湾防空识别区的西南角，大多数中共国战机都是在这里被发现的。
+
+然而，据 [CNA](https://www.cna.com.tw/news/aipl/202204200330.aspx) 报道，两架西安 H-6 战略轰炸机继续其在台湾南部的航行，然后在东南部重新进入台湾的 ADIZ。
+
+周三，由于俄罗斯入侵乌克兰的紧张局势持续，中共国军机的入侵次数是4月来最高的。台湾国防部派出飞机，发出无线电警告，并部署防空导弹系统来追踪这11架中共国飞机。
+
+新闻来源：[taiwannews.com.tw] [Taiwan reports ADIZ incursions by 11 military aircraft from China](https://www.taiwannews.com.tw/en/news/4513624) |发布时间：2022年04月20日
+
+* * *
+
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
