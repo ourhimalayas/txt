@@ -2,41 +2,46 @@
 ---
 
 
-## 有声|中共在“清零”政策掩护下的毒疫苗杀人计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2386917/)
+## 新西兰财经G乐部2022年4月21日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2387019/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月18日，郭文贵先生在盖特视频中再次揭露了中共政府以疫情“清零”政策为掩护，实施毒疫苗杀人计划的丑恶行径。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-4.jpg)
-郭先生指出，虽然中共声称其在2022年第一季度的经济增长速度达到4.8%，但据内部战友爆料，2022年中共国内的各项经济指标全部都是负增长。为此，对于所有中共认为会消耗社会资源、占用医疗物资、对社会难有贡献或已经成为社会负担的人群，例如中共国内60岁以上的群体，共产党正在试图使用中共病毒疫苗大规模地清除这部分老龄人口。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-21-232939.jpg)
+**1、产连花清瘟的上市公司，以岭药业市值蒸发逾230亿**
+![img](https://media.gettr.com/group22/origin/2022/04/21/03/834547d1-d457-c3c6-06d5-d31e155192c0/1fef973564f552e38bce06aba2137024_500x0.png)
+以岭药业7个交易日市值蒸发逾230亿， 股价跌超三成。4月14日，王思聪在微博转发一则有关连花清瘟的视频，并配文称“证监会应严查以岭药业”。 4月17日，丁香医生公众号发文《不要吃连花清瘟预防新冠》，同一天，“饶议科学”公众号发文《疫情期间：不容假药趁火打劫，不宜强行派送未经证明的中药》。4月18日上午，以岭药业开市一字跌停。当日以岭药业书面回应连花清瘟六大质疑。19日，王思聪微博账号提示因违反相关法律法规被禁言。
 
-郭先生透露，目前在中共国内施行的防疫“清零”政策可以降低60%到70%的社会成本。与此同时，中共再使用毒疫苗杀人灭口，以此减轻自身负担，从而妄图继续巩固其邪恶统治。对此，郭先生补充，即将在青岛、大连、哈尔滨和海口实行的疫情“清零”政策正是中共这一杀人计划的幌子。
+链接 [https://cj.sina.com.cn/articles/view/1838672663/6d97eb17027019cmw?from=health](https://cj.sina.com.cn/articles/view/1838672663/6d97eb17027019cmw?from=health)
 
-郭先生也再次提醒墙内同胞，一定要认清中共在毒疫苗问题上的谎言：所有共产党的高层根本没有接种过中共病毒疫苗。因此，墙内的同胞务必真爱生命，远离中共病毒疫苗。
+**2、女子16年前存3万，现被告知余额为0**
 
+武汉的张女士近日向记者反映称，她2006年在中国银行武汉新华家园支行存了3万元定期，但她今年4月14日前往银行欲将钱取出时，被告知余额为0。
 
+![img](https://media.gettr.com/group11/origin/2022/04/21/03/eb7c508c-7dec-0547-d3b4-3451d650941f/de75b3786decc98b256db1ada46b1b8e_500x0.png)
 
+银行出具的《存款证明》复印件 受访者供图
 
+新华家园支行工作人员4月18日回应称，已了解到此事，目前正在调查。
 
-文字版原文：[中共在“清零”政策掩护下的毒疫苗杀人计划](https://gnews.org/zh-hans/2380409/)
+财经G评：人活着钱被银行吞了，那些疫情下死去的人们的存款被谁吞了？
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+链接 [https://finance.sina.com.cn/roll/2022-04-20/doc-imcwiwst2898097.shtml](https://finance.sina.com.cn/roll/2022-04-20/doc-imcwiwst2898097.shtml)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**3、“造假王”康美药业又陷内幕交易风波 广药集团多名高管参与**
+![img](https://media.gettr.com/group46/origin/2022/04/21/03/91592142-482d-ba07-4e3f-4e337447c3ba/08e1f955b92a6d51040d48047c940cb0_500x0.png)
+曾因“300亿财务造假案”备受市场关注的康美药业，如今又陷内幕交易风波。近日，广东证监局官网连发三份行政处罚书显示，四名有关康美药业重整的内幕知情人因内幕交易各被罚款50万元。其中三名是广药集团一名为家属，四人违法行为均涉康美药业被托管导致公司控制权发生变化的内幕交易。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+链接：[https://finance.sina.com.cn/jjxw/2022-04-21/doc-imcwiwst3093307.shtml](https://finance.sina.com.cn/jjxw/2022-04-21/doc-imcwiwst3093307.shtml)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**4、易居中国暴雷净亏88.93亿！**
+![img](https://media.gettr.com/group25/origin/2022/04/21/03/2a8087e5-f60f-473c-3b1c-1153dcad2bdd/d09b56ad906d5a87e9dc9188962de093_500x0.png)
+易居企业控股当天到期3亿美元两笔票据于到期日无法偿还，发生2022年票据契约项下的违约事件。同时触发2023年票据契约项下的交叉违约，2023年票据也暂停买卖。据公开资料，易居的上述美元债发行于2019年10月，当期余额3亿美元，期限2.5年，应于2022年4月18日到期。　值得注意的是，2020年易居企业控股净利润3.04亿元，2021年开始亏损。归母净利润却亏损了约88.93亿元。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-04-21/doc-imcwipii5481071.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-04-21/doc-imcwipii5481071.shtml)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+海报：润玉
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+排版上传：文勇
 
  
 
