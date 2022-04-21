@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 12:30 PM (UTC)`
+
+2022.04.21 早 新中国联邦 | 新闻 “灭共背心”风靡救援营地；郭先生回顾419采访的始末；419“知蒋干、用蒋干”之策；针对王岐山的爆料仍未完结；郭先生再提“郭七条”的意义
+![img](https://media.gettr.com/group29/origin/2022/04/21/12/7f1cc9d1-b8af-c5a9-e170-de8180b299cf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 12:00 PM (UTC)`
 
 2022.04.21 NFSC news    Daily Rescue Data Update； The CCP Is the Root of All Fear
@@ -149,13 +156,6 @@
 
 2022.04.20《The Fringe》 Episode 173<br/>中文同传：https://gettr.com/streaming/p16a8ppc77d
 ![img](https://media.gettr.com/group27/origin/2022/04/20/23/aa237c68-9e7a-18fd-81da-9289d722dd89/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 11:00 PM (UTC)`
-
-2022.04.20 NFSC news  Putin believes Western sanctions on Russia have failed
-![img](https://media.gettr.com/group38/origin/2022/04/20/22/1f8b4429-6e5e-afbc-9982-ad1c101e2bfd/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

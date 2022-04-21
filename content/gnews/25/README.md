@@ -2,25 +2,34 @@
 ---
 
 
-## 西媒头条 — 第206期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2385328/)
+## 组图：乌克兰第二大城市再遭袭击
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2385475/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+**撰稿：日本东京方舟农场  子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西媒头条206.jpeg)
+4月19日，俄罗斯军队攻势转向乌克兰东部之后，第二大城哈尔科夫（Kharkiv）再度遭到袭击。俄军攻击造成至少7人死亡、21人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-41.jpg)（图片来自大纪元）
+哈尔科夫是乌克兰的第二大城，在俄军入侵之前有近150万居民，与俄军进攻后发生了激烈的战斗，但始终处于乌克兰的控制之下。
 
-* * *
+哈尔科夫市长伊戈尔‧捷列霍夫（Igor Terekhov）表示，目前已有7人死亡21人受伤，其中有3名紧急服务人员在拆解未爆弹时不幸身亡。
 
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/00.jpg)
 
+2022年4月18日，乌克兰哈尔科夫（Kharkiv），俄罗斯发动攻击后，民宅车库发生大火。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/000-1.jpg)
+
+2022年4月19日，乌克兰哈尔科夫（Kharkiv），俄罗斯发动攻击后，造成当地居民死伤。图为公园里的一具尸体。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0000.jpg)
+
+2022年4月19日，乌克兰哈尔科夫（Kharkiv），俄罗斯发动攻击后，造成当地居民死伤。图为一具尸体倒卧在商店外。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/20/n13715945.htm](https://www.epochtimes.com/gb/22/4/20/n13715945.htm)
+
+总编：老孙
+校对发布：Linda
 
  
 

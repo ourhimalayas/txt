@@ -2,30 +2,23 @@
 ---
 
 
-## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
+## 樱花时政┃中共官宣对傅政华进行逮捕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384782/)
 
-撰稿:彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
-4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+中共政协社会和法制委员会原副主任傅政华涉嫌受贿、徇私枉法一案，由中共国家监察委员会调查终结，移送检察机关审查起诉。日前，中共最高人民检察院依法以涉嫌受贿罪、徇私枉法罪对傅政华作出逮捕决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0ee7-8d39ec8d71737e5c25592e1c199006ce.jpg)[图片来源](https://news.sina.com.cn/o/2022-04-21/doc-imcwipii5617339.shtml#/)
+傅政华曾任北京市公安局刑侦处大要案队队长，刑侦处副处长兼大要案队队长；公安部刑侦局副局长；北京市公安局党委委员、副局长，市禁毒委副主任；北京市公安局党委副书记、副局长、司法部部长、党组副书记、全国政协社会和法制委员会副主任。2021年10月免职，中共开始调查傅政华。2022年3月31日，傅政华被双开，4月1日上午，给予傅政华开除党籍、开除公职处分的决定。4月21日终于公开发布了逮捕傅政华的决定。
 
-之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
+郭文贵先生419五周年大直播刚过，中共即逮捕傅政华，不知中共是应对郭先生的直播内容，为日后倒台增加些许的示好，还是中共的体制绞肉机体制必然要处理傅政华，或者习近平的继续踩油门，让我们继续关注中共倒台前的中共大事件。
 
-除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
+消息来源：[傅政华被逮捕](https://baijiahao.baidu.com/s?id=1730699417062198057)
 
-根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 
-该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
-
-该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
-
-报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
-
-*责编：彩虹*
-
-**新闻来源**
-
-[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
 
  
 
