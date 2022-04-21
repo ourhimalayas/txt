@@ -2,25 +2,41 @@
 ---
 
 
-## 针对王岐山的爆料仍未完结
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2387082/)
+## 有声|中共喉舌公然造假 谎称支援上海千万吨物资
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387253/)
 
-作者：Andy5
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月15日，一则由中共喉舌电视台放送的新闻引发了墙内民众的强烈抨击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0504c7d2394131c65c9aca7b118e052d-600x338-1.jpeg)
+据了解，中共通过其惯用的宣传手段声称，在上海封城期间，盐城一地支援上海的蔬菜包达到37.1万份，累计销往上海的蔬菜、鸡蛋、大米等农副产品高达两千五百多万吨。
 
-而郭文贵先生在大直播中还提到，419涉及的有关王岐山的爆料目前仍然没有被完全公布，包括王岐山在瑞士银行的账号、刘呈杰亲生父亲的信息，以及王岐山和美国华尔街的真正关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-3-1.jpg)
-郭先生透露，王岐山及其家族在海外藏匿了巨量的财富，有些甚至无法以金钱衡量，且这些财产至今不为习近平所知。另一方面，经年来，王岐山在中共内部大行党同伐异之事，又屡次借所谓的“反腐”之名肆意杀掠党内的异己或知情人士。然而，习近平至今没有针对王岐山及其财富做出任何举措。
+针对这一数据，中共国内的民众一片哗然：有网友计算，上海总计拥有不到两千五百万居住人口，按照中共政府给出的这一数据，理应当地每人平均得到超过一顿的粮食物资。然而，据上海居民反馈，当地民众的真实生存情况堪忧：食物匮乏问题屡见不鲜，挨饿已经成为当地人的日常生活，物资严重缺乏正在导致上海人不得不回到以物易物的时代。
 
-对此，郭先生认为，不论是五年前，还是现在，王岐山依然是对美国、中国，甚至是习近平本人而言的最大威胁。
+对此，有评论人士表示，中共公然造假的行为已然超出了正常人的思维；但另一当面，随着科技的发展，墙内的民众正逐渐看清中共的真面目，为此，这也预示着其必将被消灭的宿命。
 
-参考链接：[**419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑**](https://gettr.com/streaming/p161dm5929a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编：Irene木木
-编辑：玫瑰圓
-审核：Ivy001
-校正/发稿：Fei797
+
+
+文字版原文：[中共喉舌公然造假 谎称支援上海千万吨物资](https://gnews.org/zh-hans/2381427/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

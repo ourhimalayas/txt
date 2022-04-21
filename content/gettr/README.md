@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 4:16 PM (UTC)`
+
+04.21.2022 七哥乱聊直播
+![img](https://media.gettr.com/group22/liveorigin/2022/04/21/16/a223bfe2-9161-b414-7bb0-5bb6188b2245/db77deaeeaadf94601c75dae84bb7948.jpg)
+
+---
+
 `@miles 4/21/2022 3:39 PM (UTC)`
 
 04/21/2022 on the 3rd day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 11 countries Top Music Video Charts <br/>No.1 🥇 on 12 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Malaysia🇲🇾, New Zealand🇳🇿, Australia🇦🇺, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Sweden🇸🇪,  Cambodia🇰🇭, Greece🇬🇷<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月21号，《铁锁梦》MV在全球上线第三天，登榜iTunes <br/>11国MV总榜第一名🥇<br/>12国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，马来西亚🇲🇾，新西兰🇳🇿，澳大利亚🇦🇺，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，瑞典🇸🇪，柬埔寨🇰🇭，希腊🇬🇷的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2387106/
@@ -148,13 +155,6 @@
 
 4/20/2022 Miles Guo’s GETTR: Response to our fellow fighters inside Communist China - so many fellow fighters were touched by yesterday’s 8-hour long broadcast and expressed their feelings and appreciations; our New Federal State of China is undertaking the great cause of saving our fellow Chinese and the entire humanity, while the Chinese Communist Party is aware that its days are numbered.<br/><br/>4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了<br/>
 ![img](https://media.gettr.com/group8/getter/2022/04/21/01/bed178fd-824c-1ce1-cd16-f396fe5579d7/out.jpg)
-
----
-
-`@miles 4/21/2022 1:04 AM (UTC)`
-
-2022.04.20 晚  新中国联邦 | 新闻访谈   VOA 419断播门五周年；核酸疫苗揭开黑幕一角
-![img](https://media.gettr.com/group19/origin/2022/04/21/01/83e2fe57-3645-4af8-2f4f-569e4c73e0ae/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

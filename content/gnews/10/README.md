@@ -2,8 +2,8 @@
 ---
 
 
-## 全国房价 跌破万元大关！47个城市 房价回到一年前！CCP 借助疫情封控偷偷的把你的房子价值蒸发！很多中国人会说因为疫情影响房子跌了！没人会想到是CCP 让你这样想的
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2387347/)
+## 中共国，寻目击证人，寻4月13日中午一点左右在景盛小区与新建交界路口处，三辆交警车围堵一男子骑摩托车造成死亡交通事故过程的目击者
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2387419/)
 
 作者：东京樱花团小视频组
 

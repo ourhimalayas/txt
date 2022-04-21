@@ -2,27 +2,41 @@
 ---
 
 
-## 419“知蒋干、用蒋干”之策
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2387034/)
+## 有声|兵力不足 普京试图建立“儿童军队”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387144/)
 
-作者：Andy5
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月19日，据相关媒体消息显示，由于俄罗斯军队在乌克兰遭受了重大的损失，普京正在试图从“爱国俱乐部”中招募年仅16岁的俄罗斯青少年组成“儿童军队”，用以填补俄军超过三万名在战争中被杀、受伤或被俘的士兵缺口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20141117215627_9864.jpeg)
+报道提及，这些被招募的年轻人正在接受相关的军事训练。随后，他们将被莫斯科当局强迫派往对乌克兰的入侵前线。目前，他们之中的部分人已经被投入战争并于战场上阵亡。据悉，有乌克兰士兵在交战中发现了不应该被部署到战区的俄罗斯军事学员的徽章。
 
-至于接受VOA的采访，郭文贵先生也指出，这是爆料革命首次采用“知蒋干、用蒋干”的战略。至此，郭先生以国际刑警组织和VOA为跳板，让爆料革命一炮而红并逐步走向国际。同时，此次采访也拉开了爆料革命与中共之间国家实力级别较量的大幕。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-3.jpg)
-郭先生提到，龚小夏本来就是中共有特定编号的挂牌特务。为此，在与VOA确认过直播时长不低于3小时后，郭先生专门要求龚小夏参与直播采访。
+对此，乌克兰议会人权专员柳德米拉-丹尼索娃表示，俄罗斯境内参加所谓“爱国俱乐部”的儿童正在被普京政府动员成为非法武装组织。同时，有官员已经向联合国发出呼吁，要求调查普京涉嫌非法部署儿童兵的行为。
 
-据郭先生透露，在采访日的两天前，龚小夏特意向他索要了所有的爆料文件并仔细阅读，当中也包括王岐山的银行账单以及海航的股权结构等重要信息。随后，龚小夏使用三部手机分别向VOA台长、中共情报部门人员和海外伪类们传递相关消息。而在之后的采访中，鉴于前期大规模的宣传，龚小夏只能在中共的多番催促下截断了419的直播。
 
-对此，郭先生表示，419的断播恰恰成为爆料革命最好的广告，这也是上天送给新中国联邦最好的礼物。
 
-参考链接：[**419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑**](https://gettr.com/streaming/p161dm5929a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编：Irene木木
-编辑：玫瑰圓
-审核：Ivy001
-校正/发稿：Fei797
+
+
+文字版原文：[兵力不足 普京试图建立“儿童军队”](https://gnews.org/zh-hans/2381428/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

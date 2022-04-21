@@ -2,41 +2,37 @@
 ---
 
 
-## 有声|兵力不足 普京试图建立“儿童军队”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387144/)
+## 世界上最大的金条价值飙升
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387279/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月19日，据相关媒体消息显示，由于俄罗斯军队在乌克兰遭受了重大的损失，普京正在试图从“爱国俱乐部”中招募年仅16岁的俄罗斯青少年组成“儿童军队”，用以填补俄军超过三万名在战争中被杀、受伤或被俘的士兵缺口。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20141117215627_9864.jpeg)
-报道提及，这些被招募的年轻人正在接受相关的军事训练。随后，他们将被莫斯科当局强迫派往对乌克兰的入侵前线。目前，他们之中的部分人已经被投入战争并于战场上阵亡。据悉，有乌克兰士兵在交战中发现了不应该被部署到战区的俄罗斯军事学员的徽章。
+共同社4月21日报道称，由于乌克兰危机加剧了不稳定并导致商品价格暴涨，世界上最大的金条的价值已经增加到超过22亿日元（1710万美元），是其2005年首次在日本中部一个主题公园展出时价值的五倍多。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G-4.jpg)mainichi.jp
+这根重达250公斤的金条在静冈县伊豆市的东井金矿（Toi Gold Mine ）主题公园展出。这根金条是由公园运营商的母公司在2005年冶炼的，吉尼斯世界纪录在同一年将其认证为世界上最大的金条。
 
-对此，乌克兰议会人权专员柳德米拉-丹尼索娃表示，俄罗斯境内参加所谓“爱国俱乐部”的儿童正在被普京政府动员成为非法武装组织。同时，有官员已经向联合国发出呼吁，要求调查普京涉嫌非法部署儿童兵的行为。
+该金条于2005年7月公开展示，当时它的价值约为4亿日元。
 
+据金条制造商田中机工株式会社 （Tanaka Kikinzoku Kogyo K.K.）称，截至周三，1克黄金的含税价值为8,969日元。
 
+黄金通常被视为危机时期的避险财富储备，在疫情大流行和俄罗斯在乌克兰的战争造成的不稳定中，黄金的价值已经上升。
 
+由于日元对美元最近的疲软，该金条的价值也有所上升，而美元是全球交易金属的国际指数。
 
+东井金矿在1965年结束了采矿作业，在其生命周期内是日本产量最高的矿场之一。
 
+旧址上的主题公园向游客介绍了该矿的历史，并为他们提供了探索其部分隧道和淘金的机会。
 
+游客可以通过亚克力展示柜上的一个洞触摸金条。该公园在社交媒体的宣传中抓住了价值上升的机会，在宣传中声称触摸金条会增加游客的财运。
 
-文字版原文：[兵力不足 普京试图建立“儿童军队”](https://gnews.org/zh-hans/2381428/)
+**快评：**按照这篇新闻所言，这根世界上最大的金条已经比2005年首次展出时增加了5倍多价值。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+听郭先生爆料的人都知道，法币超发，黄金也没有体现其真正的价值，黄金价格一直被人为控制和打压。如果黄金价格翻一倍，世界经济就会完全崩塌。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+尽管如此，相比之下这根金条还是升值5倍多，可见法币超发加日元兑美元贬值都已经到了何其惊人的地步？世界经济崩塌的时刻就要到来。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：
+[https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html](https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
