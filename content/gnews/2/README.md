@@ -2,34 +2,41 @@
 ---
 
 
-## 台湾报告11架中共国军机侵入防空识别区
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384586/)
+## 美驻联合国大使会晤被中共集中营关押的新疆维族人家属
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2384671/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2590.png)图片来源:taiwannews.com.tw
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-据台湾国防部（MND）称，中共国周三（20日）派出11架军机进入台湾防空识别区（ADIZ），包括两架轰炸机进入其东南部区域。
+**整理：li yan li
+编辑：李易通**
 
-七架沈阳 J-16 战斗机，一架陕西 Y-8EW 电子战飞机，以及一架陕西 KJ-500 空中预警和控制飞机，它们出现在台湾防空识别区的西南角，大多数中共国战机都是在这里被发现的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
 
-然而，据 [CNA](https://www.cna.com.tw/news/aipl/202204200330.aspx) 报道，两架西安 H-6 战略轰炸机继续其在台湾南部的航行，然后在东南部重新进入台湾的 ADIZ。
 
-周三，由于俄罗斯入侵乌克兰的紧张局势持续，中共国军机的入侵次数是4月来最高的。台湾国防部派出飞机，发出无线电警告，并部署防空导弹系统来追踪这11架中共国飞机。
+4月20日，华盛顿美国常驻联合国代表琳达·托马斯·格林菲尔德(Linda Thomas-Greenfield)大使星期三会晤了被中共当局关押的维吾尔族医生古丽仙·阿巴斯（Gulshan Abbas）的家人并谴责中共当局对维吾尔等少数民族的“暴行”。
 
-新闻来源：[taiwannews.com.tw] [Taiwan reports ADIZ incursions by 11 military aircraft from China](https://www.taiwannews.com.tw/en/news/4513624) |发布时间：2022年04月20日
+古丽仙·阿巴斯是中国的一名退休医生，她在2019年被中共当局拘留并判处20年有期徒刑。
+ 
+ 跨党派的美国国际宗教自由委员会委员(USCIRF)说，中共政府经常利用海外维吾尔人的亲属作为人质来恐吓和压制活动人士。古丽仙的妹妹茹仙·阿巴斯（Rushan Abbas）是总部设在华盛顿的权益组织“维吾尔运动”(Campaign for Uyghurs)的执行主任。她2021年接受美国之音采访时说，她姐姐被监禁是对她在美国的活动的报复。
 
-* * *
+ 近年来，包括联合国人权官员和专家在内的国际人士指责中共当局以打击极端主义和反恐的名义，在新疆将100万以上的维吾尔人和其他少数民族穆斯林关押到“再教育营。中共先是否认这些再教育营的存在，后又辩称是“职业技能教育培训中心”。
 
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
+ 美国政府以及一些西方国家的议会已认定中共政府在新疆的镇压措施构成了“种族灭绝罪”。美国国会也通过了一系列涉及新疆的法案。
+
+ 联合国人权事务高级专员米歇尔·巴切莱特(Michelle Bachelet)今年3月宣布她计划5月访问中国，包括新疆地区。
+
+新闻链接：[美驻联合国大使会晤被中共集中营关押的新疆维族人家属](//www.voachinese.com/a/us-china-uyghur-20220420/6538128.html)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

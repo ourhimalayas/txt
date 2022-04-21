@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 8:56 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group21/origin/2022/04/21/08/4dcb8fcb-bbd1-b273-4fdc-02ba2c206307/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -149,13 +156,6 @@ A Volunteer from France likes our vest of “Take down the Chinese Communist Par
 
 2022.04.19 新中国联邦 | 喜健康 兽药伊维菌素，青蒿琥酯，中药抗击“中共病毒”经历分享
 ![img](https://media.gettr.com/group35/origin/2022/04/19/20/5a134600-a097-ce62-2d7c-d47ce5bb7535/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/20/2022 6:00 PM (UTC)`
-
-2022-04-20 俄乌战争战况播报
-![img](https://media.gettr.com/group39/origin/2022/04/20/17/fec696d5-d3a9-b475-2410-6ac392445ec5/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
