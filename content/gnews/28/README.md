@@ -2,48 +2,34 @@
 ---
 
 
-## 2022年4月21日战时快讯（1）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2384352/)
+## 台湾报告11架中共国军机侵入防空识别区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384586/)
 
-#### 雅典娜情报组《战时快讯专栏》
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2590.png)图片来源:taiwannews.com.tw
 
-**整理/编辑：围剿维尼熊**
+据台湾国防部（MND）称，中共国周三（20日）派出11架军机进入台湾防空识别区（ADIZ），包括两架轰炸机进入其东南部区域。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/25DA27F8-BDDB-427B-A7BA-929066D7BB15.jpg)图片来源：红星新闻
+七架沈阳 J-16 战斗机，一架陕西 Y-8EW 电子战飞机，以及一架陕西 KJ-500 空中预警和控制飞机，它们出现在台湾防空识别区的西南角，大多数中共国战机都是在这里被发现的。
 
+然而，据 [CNA](https://www.cna.com.tw/news/aipl/202204200330.aspx) 报道，两架西安 H-6 战略轰炸机继续其在台湾南部的航行，然后在东南部重新进入台湾的 ADIZ。
 
-1—俄罗斯星期三(4月20日)对马里乌波尔发动了新的进攻。俄军袭击了亚速钢厂，乌克兰最后的守卫者仍困守在钢厂。
+周三，由于俄罗斯入侵乌克兰的紧张局势持续，中共国军机的入侵次数是4月来最高的。台湾国防部派出飞机，发出无线电警告，并部署防空导弹系统来追踪这11架中共国飞机。
 
-2—俄罗斯星期三(4月20日)对乌克兰港口城市马里乌波尔发动新的攻击之际，美国总统拜登召集军事领导层开会，对俄乌局势进行最新评估。
+新闻来源：[taiwannews.com.tw] [Taiwan reports ADIZ incursions by 11 military aircraft from China](https://www.taiwannews.com.tw/en/news/4513624) |发布时间：2022年04月20日
 
-3—英国首相约翰逊把乌克兰同俄罗斯总统普京的谈判比喻成与鳄鱼谈判。约翰逊表示有关乌克兰的任何和谈都可能失败，西方继续武装乌克兰，至关重要。
+* * *
 
-4—美国、加拿大和英国的高级领导人星期三在20国集团会议上离场，抗议俄罗斯与会。
-
-5—日本星期三正式撤销俄罗斯的最惠国贸易地位，加紧对俄罗斯因入侵乌克兰所实施的制裁。
-
-6—俄乌战争正在给全球粮食供应带来巨大压力，推升食品价格。但多名专家表示，美国不会遭遇食品短缺。
-
-7—俄罗斯寡头丁科夫日前对莫斯科当局提出了尖锐的批评。他在社交媒体上发帖称，克里姆林宫的领导层都是一群白痴，俄军在乌克兰的行径则无异于屠杀。
-
-8—中国海关总署最新发布的数据显示，今年3月中国从俄罗斯进口煤炭的数量从去年同期的440万吨暴跌到312万吨，跌幅高达29%。
-
-9—美国常驻联合国代表Linda Thomas-Greenfield大使星期三会晤了被中国当局关押的维吾尔族医生古丽仙·阿巴斯的家人并谴责中共当局对维吾尔等少数民族的暴行。
-
-10—高级官员们在美国和古巴本星期就移民关切举行会谈之前说，美国将探讨恢复与古巴移民协定的可能性。
-
-以上讯息均来自于网络，仅供参考。
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
-
-
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
