@@ -2,35 +2,49 @@
 ---
 
 
-## 日本撤销俄罗斯最惠国待遇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383752/)
+## 泄露的录音：阿斯利康CEO称免疫力低下的人不能接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2384062/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-12.58.00-PM.jpg)[视频链接](https://www.youtube.com/watch?v=Lk0OJwZwE5g&amp;t=22s)
+门户专家（The Gateway Pundit）2022年4月19日的报道，《真相工程》(Project Veritas)周二公布了一份2020年泄露的录音，录音中阿斯利康(AstraZeneca)首席执行官帕斯卡尔·索里奥特(Pascal Soriot)说：“数百万（免疫力低下）的人不能接种疫苗……抗体（治疗）有巨大的潜力。”
 
-整理/编辑：围剿维尼熊
+索里奥特在2020年12月的一次全公司Zoom会议上说：“比如，如果你有免疫性疾病、狼疮或其他一些免疫性疾病，或多发性硬化症，你不能接种疫苗。因此，世界上有数百万人需要一种疫苗无法提供的保护。因此，更长效的抗体具有巨大的潜力。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3F6EFDC0-F269-4130-A681-6C100BCDD4C0.jpg)图片来源：百度
+他说：“长效抗体是相当独特的，因为这是唯一可能会持续6个月以上的组合，可能多达12个月，并长期保护人们。”
+
+《真相工程》报道：
+
+*制药巨头阿斯利康的一位消息人士向《真相工程》提供了一份2020年全公司内部Zoom电话录音，其中首席执行官帕斯卡尔·索里奥特关于疫苗兼容性的声明与世界卫生组织等卫生机构和组织的指导相矛盾。*
+
+*众所周知，单克隆抗体治疗在中共病毒大流行的早期就相对有效，美国的一些州迅速采取行动，将其作为一线治疗措施。然而，联邦政府积极反对使用这些治疗方法，转而支持接种疫苗。*
+
+*在周二下午发布的一段视频中，“真相工程”创始人詹姆斯·奥基夫(James O’Keefe)问道：“如果世界上最大的制药公司之一的首席执行官早在2020年就意识到，抗体治疗对于免疫力低下的人来说是必要的，那为什么世界各国的政府在数百万人会因接种疫苗面临危险的情况下强制要求接种疫苗？”*
+
+*在2022年3月16日的一份健康咨询中，世界卫生组织重申了其立场，即阿斯利康疫苗对免疫力低下的人是安全的。咨询意见说：“应该指出，这种疫苗的全两剂方案被认为比单剂疫苗更能预防令人担忧的变种。此外，SAGE[免疫战略专家咨询小组]建议为严重和中度免疫功能低下的人提供额外剂量的疫苗”。*
+
+**简评：**
+中共病毒表面的刺突蛋白是高致病抗原，毒疫苗所包含的刺突蛋白脱落能诱发大量血栓，对人体造成毁灭性伤害，另外也有大量医学界人士和一线医务工作者爆出中共病毒和毒疫苗的其他副作用。中共病毒是中共政府实验室制造的生化武器，任何人相信一种生化武器会有疫苗都是愚蠢的。
+
+在疫情初期，爆料革命就宣传硫酸羟氯喹加锌可以有效预防中共病毒感染，但主流媒体和医疗机构都没有公开承认它的有效性，反而大肆宣传并污名化羟氯喹、伊维菌素等有效药物。这些诡异的事情不禁让人深思，如果黑暗组织能把解药描述成毒药，那么也意味着它们能将毒药描述为解药。中共病毒疫苗就是被描述为解药的毒药。控制全球各大制药公司，通过医疗垄断，媒体垄断来实施的这场全球性的疫苗接种运动是一种公然的种族灭绝行为。可惜绝大多数人都失去了独立思考能力，无法看清这一切，并且都自愿去接种疫苗，这一现实更值得我们深思。我们都活在一个充满谎言的世界，看似光鲜亮丽，实则是另一个真实的“楚门的世界”。这场全球性的病毒和疫苗灾难，中国共产党是主要的推手，它不仅仅释放了病毒，也在全世界推广毒疫苗。中共的恶，罄竹难书。世人如果想要回归安宁，只有彻底消灭中国共产党。
+
+新闻链接：[LEAKED RECORDING: AstraZeneca CEO: Millions of Immunocompromised People Can’t Be Vaccinated… Antibody Treatment Has Enormous Potential (VIDEO)](https://www.thegatewaypundit.com/2022/04/leaked-recording-astrazeneca-ceo-millions-immunocompromised-people-cant-vaccinated-antibody-treatment-enormous-potential-video/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-估计美国之音4月21日报道，日本星期三正式撤销俄罗斯的最惠国贸易地位，加紧对俄罗斯因入侵乌克兰所实施的制裁。
+编辑：【英国伦敦喜庄园编辑部】
 
-取消俄罗斯最惠国贸易地位将对所有俄罗斯进口商品提升关税。在此之前，美国和7国集团其它成员国决定采取这个行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-日本国会星期三的决定还包括修正一项外汇兑换法律，防止那些被冻结资产的国家转让持有的虚拟货币。
 
-日本还冻结数百名俄罗斯人和团体的资产，禁止新投资和贸易，包括可能被用于军事目的的商品出口。日本还宣布计划逐渐停止进口俄罗斯的煤炭。
-
-不过日本也面临俄罗斯的报复。莫斯科最近宣布停止与东京的和平条约谈判，包括对于前苏联二战结束时占领日本岛屿的谈判。
-
-参考链接：[日本正式撤销俄罗斯最惠国贸易地位](https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

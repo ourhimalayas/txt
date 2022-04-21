@@ -2,10 +2,10 @@
 ---
 
 
-## 不要相信所谓的民调。一旦你沉默了，那你就变成了同谋，你就允许他人控制你的生活
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2384619/)
+## 上海防疫人员在屠杀宠物
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2384684/)
 
-【419五周年】04/19/2022 不要相信所谓的民调。一旦你沉默了，那你就变成了同谋，你就允许他人控制你的生活。
+04/11/2022 上海防疫人员在屠杀宠物
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

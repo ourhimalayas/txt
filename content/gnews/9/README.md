@@ -2,66 +2,46 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.21H)三针摩德纳疫苗对身体产生严重副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2384783/)
+## COVID疫苗伤害的赔偿系统失败了（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384813/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+素材翻译： Jenny Ball
 
-**整理/编辑：禄森**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
+正如玛丽安娜·德玛西（Maryanne Demasi）博士在《英国医学杂志》上的所报道的那样，国家赔偿 COVID-19 疫苗受伤的系统没有支付任何索赔。
 
+《反措施伤害赔偿计划》 (CICP) 旨在解决在大流行或生物威胁事件期间与疫苗和其他对策相关的疫苗伤害。人们不能就疫苗或其他列为对策的产品造成的伤害起诉制造商，他们只能通过提出索赔向CICP索赔。令人震惊的是，美国政府通过 CICP 只批准了一项索赔，尚未向任何疫苗受伤的人支付哪怕一美元，或向死者支付死亡抚恤金。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2594-edited.png)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+上表来自 VAERS 截止到 2022 年 4 月 8 日的 COVID-19 疫苗摘要。它显示了报告的广泛的疫苗伤害和死亡。政府很快指出，这些是向美国政府报告的伤亡情况，CDC不会对此进行全面调查，因此无法核实……
+当 2020 年宣布突发公共卫生事件时，2005 年《公众准备和应急准备法》生效。这意味着疫苗造成的任何伤害或死亡都必须提交给反措施伤害赔偿计划 (CICP)，而不是按照通常的途径提交给美国的国家疫苗伤害赔偿计划 (VICP)。
 
-**帖子原文**：
+据《英国医学杂志》报道，从那时起，已有数千起因疫苗受伤/死亡的人提出索赔，但没有一个人获得任何赔偿。根据国家疫苗计划 (VICP)，自 1988 年以来,已支付约 47 亿美元的 24 ,909 件索赔中，36% 已获得赔偿。
 
-**博主: 咖啡重度爱好者**
+CICP 的赔付仅限于最严重的伤害和死亡。索赔必须在接种疫苗后一年内提出，而且该计划的举证责任比 VICP 高得多。CICP 下的收入损失限制为每年 50,000 美元，并且不包括因疼痛或情绪困扰（或律师费）而造成的赔偿。在传统的疫苗伤害计划下，对工资损失的赔偿没有上限，对痛苦和痛苦的赔偿要高得多。
 
-打了第三针疫苗
+值得关注的是，立案必须在一年内完成，但至少有一个人将她的立案电子立案记录在案，但后来发现CICP没有她的立案记录。有人担心，由于提交的时间限制，这些被撤销的案件将无法重新提交。积压的案件现在看起来如此之多，过程如此不透明，以至于 CICP 系统似乎无法挽回地崩溃。
 
-三针全是摩德纳，第一针没反应，第二针烧到39.4，人没任何不适，第三针，体温最高37.4，手臂疼，头痛欲裂。
+华盛顿特区乔治·华盛顿大学法学院名誉教授彼得·迈耶斯(Peter Meyers)说，CICP 是一个“可怕的项目”。“ 你基本上提交了你的赔偿申请，然后被秘密处理，你没有权利让该计划支付律师费。你没有权利要求听证。我们不知道这些案件是如何处理的。 该计划缺乏透明度，令人恐惧。” （《英国医学杂志》报道）
 
-今天是打完后的第二天，体温正常，脑袋微痛，手臂微痛，在正常上班了
+【下接:[COVID疫苗伤害的赔偿系统失败了（2/2）](https://gnews.org/zh-hans/2384696/)】
 
-然而昨晚得到消息说第四针已经安排上日程了，我就……wtf？
+素材链接：[The Vaccine Injury Compensation System for COVID has Failed](https://rwmalonemd.substack.com/p/the-vaccine-injury-compensation-system?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTI1Mzc4MzAsIl8iOiJsdGFHKyIsImlhdCI6MTY1MDQ3NDAyMiwiZXhwIjoxNjUwNDc3NjIyLCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.EoqAmi-JU-8IHBvS1d68dZXhhkb8kTc9Ed3ESgQqrfw&amp;s=r)
 
-这啥时候是头，这把我十几年的针都打了啊
+* * *
 
-**作者发布于2022-3-25**
+审核：文乐
+校对：阿伯塔
+发布：花羽
 
-**评论选集**
-
-LazarAngelov评论:
-
-打完第三针十几年来第一次发烧到39度感觉我已经懵逼了
-
-shellync评论:
-
-我今天才去第三针准备回去躺尸两天，还第四针直接备棺材么，以后是不是要出个疫苗假期啊，不然谁扛得住每次都要被送走一样
-
-二狗子你为什么不穿秋裤呢评论:
-
-我刚刚看见一个国内打三针、国外打三针，一共6针的人一样感染真是太猛了。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/27e393b74fabd19c-7-2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/45674fabd19c-7.jpg)图片来源：小红书
-
-
-参考链接：[发烧，手臂痛，头痛欲裂](https://www.xiaohongshu.com/discovery/item/623d03410000000021038ba2?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650518564)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
