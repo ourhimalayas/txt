@@ -2,31 +2,46 @@
 ---
 
 
-## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
+## COVID疫苗伤害的赔偿系统失败了（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384813/)
 
-撰稿:彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
-4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
+素材翻译： Jenny Ball
 
-之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
+正如玛丽安娜·德玛西（Maryanne Demasi）博士在《英国医学杂志》上的所报道的那样，国家赔偿 COVID-19 疫苗受伤的系统没有支付任何索赔。
 
-根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
+《反措施伤害赔偿计划》 (CICP) 旨在解决在大流行或生物威胁事件期间与疫苗和其他对策相关的疫苗伤害。人们不能就疫苗或其他列为对策的产品造成的伤害起诉制造商，他们只能通过提出索赔向CICP索赔。令人震惊的是，美国政府通过 CICP 只批准了一项索赔，尚未向任何疫苗受伤的人支付哪怕一美元，或向死者支付死亡抚恤金。
 
-该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2594-edited.png)
 
-该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
+上表来自 VAERS 截止到 2022 年 4 月 8 日的 COVID-19 疫苗摘要。它显示了报告的广泛的疫苗伤害和死亡。政府很快指出，这些是向美国政府报告的伤亡情况，CDC不会对此进行全面调查，因此无法核实……
+当 2020 年宣布突发公共卫生事件时，2005 年《公众准备和应急准备法》生效。这意味着疫苗造成的任何伤害或死亡都必须提交给反措施伤害赔偿计划 (CICP)，而不是按照通常的途径提交给美国的国家疫苗伤害赔偿计划 (VICP)。
 
-报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
+据《英国医学杂志》报道，从那时起，已有数千起因疫苗受伤/死亡的人提出索赔，但没有一个人获得任何赔偿。根据国家疫苗计划 (VICP)，自 1988 年以来,已支付约 47 亿美元的 24 ,909 件索赔中，36% 已获得赔偿。
 
-*责编：彩虹*
+CICP 的赔付仅限于最严重的伤害和死亡。索赔必须在接种疫苗后一年内提出，而且该计划的举证责任比 VICP 高得多。CICP 下的收入损失限制为每年 50,000 美元，并且不包括因疼痛或情绪困扰（或律师费）而造成的赔偿。在传统的疫苗伤害计划下，对工资损失的赔偿没有上限，对痛苦和痛苦的赔偿要高得多。
 
-**新闻来源**
+值得关注的是，立案必须在一年内完成，但至少有一个人将她的立案电子立案记录在案，但后来发现CICP没有她的立案记录。有人担心，由于提交的时间限制，这些被撤销的案件将无法重新提交。积压的案件现在看起来如此之多，过程如此不透明，以至于 CICP 系统似乎无法挽回地崩溃。
 
-[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
+华盛顿特区乔治·华盛顿大学法学院名誉教授彼得·迈耶斯(Peter Meyers)说，CICP 是一个“可怕的项目”。“ 你基本上提交了你的赔偿申请，然后被秘密处理，你没有权利让该计划支付律师费。你没有权利要求听证。我们不知道这些案件是如何处理的。 该计划缺乏透明度，令人恐惧。” （《英国医学杂志》报道）
 
+【下接:[COVID疫苗伤害的赔偿系统失败了（2/2）](https://gnews.org/zh-hans/2384696/)】
+
+素材链接：[The Vaccine Injury Compensation System for COVID has Failed](https://rwmalonemd.substack.com/p/the-vaccine-injury-compensation-system?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTI1Mzc4MzAsIl8iOiJsdGFHKyIsImlhdCI6MTY1MDQ3NDAyMiwiZXhwIjoxNjUwNDc3NjIyLCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.EoqAmi-JU-8IHBvS1d68dZXhhkb8kTc9Ed3ESgQqrfw&amp;s=r)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

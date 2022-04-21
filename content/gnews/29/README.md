@@ -2,42 +2,31 @@
 ---
 
 
-## 台湾新闻台误播中共国入侵的“突发新闻”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384691/)
+## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2592.png)图片来源: taiwannews.com.tw
+撰稿:彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
+4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
 
-周三（20日）上午，华视（CTS）新闻频道播出的关于台湾和中共国之间爆发战争的消息，并惊动了公众。后来该消息被证实是“错误”发布的。
+之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
 
-一个流行的在线论坛 [PTT](https://www.ptt.cc/bbs/Gossiping/M.1650409909.A.422.html) 上的用户分享了华视新闻广播在早上7点11分的截图，问道：“我们台湾与中共国开始战争了吗？” 在截图中，底部的新闻爬行显示了“新北市被中共国导弹击中，台北港军舰爆炸，设施、船只受损”、“战争一触即发”、“中共国频频出手备战，总统发布紧急法令”、“特务涉嫌在板桥车站放火并放置爆炸物”等信息。
+除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
 
-网民们注意到其他错误信息，包括“泰山地区发生7级地震”和“第二核电站事件”。据报道，一些信息被播放了近10分钟。
+根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
 
-尽管一开始很困惑，但评论员们很快意识到，这些信息的显示要么是由于“可笑的错误”，要么是“恶意的恶作剧”，要么是由“吸了毒的新闻编辑”写的（译者注：是华视听命于中共）。还有人愤怒地称华视是“社会混乱的根源”和“谣言的传播者”，应该被国家通信委员会（NCC）罚款。
+该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
 
-华视在其公告栏和社交媒体页面上发布了，更正通知和公开道歉。“在4月20日早上7点的新闻播报中，由于相关工作人员的失误，将新北市消防局提供的灾难演习信息文本错误地显示为新闻内容。华视是受新北市消防局委托录制防灾视频的，”道歉声明中写道。
+该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
 
-“华视公司对造成公众恐慌和相关部门不必要的问题的严重疏忽，表示郑重道歉。随即，除了主播的紧急澄清和道歉外，华视还在各频道通过新闻抓取进行了澄清和道歉。同时，华视已开始进行内部监督调查，并将紧急召开自律委员会会议，对重大失误进行检讨，对涉事工作人员作出严厉处罚。”
+报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
 
-华视电视台还说：“作为台湾广播系统的一员，华视电视台不会轻视这类错误，再次向公众道歉。”
+*责编：彩虹*
 
-文化部也发表了道歉声明，说它将立即要求华视提供有关这一事件的报告。同时，台湾国防部长邱国正说，如果国防部收到有争议的情报，它将立即作出反应并进行调查以确认其准确性。邱国正还说，这一事件对媒体来说是一个很好的教训，并敦促公众在发表评论前核实信息。
+**新闻来源**
 
-新闻来源：[taiwannews.com.tw] [Taiwanese news station mistakenly broadcasts ‘breaking news’ of Chinese invasion](https://www.taiwannews.com.tw/en/news/4513019) | 发布时间：2022年04月20日
+[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
 
-* * *
-
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
