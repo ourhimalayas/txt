@@ -2,32 +2,27 @@
 ---
 
 
-## 泽连斯基与南非总统讨论粮食危机威胁
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2386870/)
+## 419“知蒋干、用蒋干”之策
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2387034/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-21-下午10.15.36.png)图片来源：互联网
-据乌克兰国家通讯社（Ukrinform）周四（4月21日）报道，乌克兰总统泽连斯基与南非共和国总统西里尔·拉马福萨讨论了全球粮食危机的威胁。
+作者：Andy5
 
-泽伦斯基在他的推特账户上写了[这件事](https://twitter.com/ZelenskyyUa?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1516865834085453831%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.ukrinform.ua/rubric-economy/3463099-zelenskij-obgovoriv-iz-prezidentom-par-zagrozu-prodovolcoi-krizi.html)。
+至于接受VOA的采访，郭文贵先生也指出，这是爆料革命首次采用“知蒋干、用蒋干”的战略。至此，郭先生以国际刑警组织和VOA为跳板，让爆料革命一炮而红并逐步走向国际。同时，此次采访也拉开了爆料革命与中共之间国家实力级别较量的大幕。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-3.jpg)
+郭先生提到，龚小夏本来就是中共有特定编号的挂牌特务。为此，在与VOA确认过直播时长不低于3小时后，郭先生专门要求龚小夏参与直播采访。
 
-“与西里尔·拉马福萨（Cyril Ramaphosa）进行了电话交谈。讲述了我们对俄罗斯侵略的抵抗。讨论了全球粮食危机的威胁，深化与南非共和国的关系以及国际组织内的合作，”泽伦斯基写道。
+据郭先生透露，在采访日的两天前，龚小夏特意向他索要了所有的爆料文件并仔细阅读，当中也包括王岐山的银行账单以及海航的股权结构等重要信息。随后，龚小夏使用三部手机分别向VOA台长、中共情报部门人员和海外伪类们传递相关消息。而在之后的采访中，鉴于前期大规模的宣传，龚小夏只能在中共的多番催促下截断了419的直播。
 
-据报道，据人权观察报道，俄罗斯入侵乌克兰加速了中东和北非的粮食危机。
+对此，郭先生表示，419的断播恰恰成为爆料革命最好的广告，这也是上天送给新中国联邦最好的礼物。
 
-特别是，黎巴嫩 80% 的小麦来自乌克兰；埃及购买小麦和大量石油；利比亚从乌克兰进口超过 40% 的小麦；也门进口不少于27%。此外，叙利亚西北部当局向该地区提供通过土耳其购买的小麦和面粉，土耳其还从乌克兰进口 90% 的小麦。
+参考链接：[**419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑**](https://gettr.com/streaming/p161dm5929a)
 
-拉马福萨在推特账户[写道](https://twitter.com/CyrilRamaphosa/status/1517082375611895809?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1517082375611895809%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.timeslive.co.za/politics/2022-04-21-ukraines-zelensky-discusses-threat-of-a-global-food-crisis-with-ramaphosa/)，他于泽连斯基总统讨论了“乌克兰的冲突和其悲惨的人类代价，以及其全球影响。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-拉马福萨此前曾通过推特证实，他​​已与俄罗斯总统弗拉基米尔·普京、中国（中共国）国家主席习近平和美国总统乔·拜登进行了电话交谈，周四证实了这一电话。
-
-参考链接：
-
-【1】[Zelensky discusses with South Africa’s president threat of food crisis](https://www.ukrinform.net/rubric-ato/3463119-zelensky-discusses-with-south-africas-president-threat-of-food-crisis.html)
-
-* * *
-
-*编辑&发布：长岛开心*
+总编：Irene木木
+编辑：玫瑰圓
+审核：Ivy001
+校正/发稿：Fei797
 
  
 

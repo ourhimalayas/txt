@@ -2,30 +2,24 @@
 ---
 
 
-## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
+## 秘翻在线：中共国表示无论国际形势如何变化都将与俄罗斯继续加强战略合作的关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2385574/)
 
-撰稿:彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
-4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-41.jpg)图片来源：本文的链接
+据CNN报道，中共国外交部副部长乐玉成表示，无论未来国际形势如何演变，中共国都将与俄罗斯‘继续加强战略合作关系’。
 
-之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
+这是他与俄罗斯驻华大使安德烈-杰尼索夫会谈时传达的观点。 他还表示将确保有利于双方的合作，捍卫共同利益，建立新形式的国际关系。
 
-除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
+乐玉成称，今年第一季度（1-3月），中俄之间的贸易总额比去年同期增长了30%，达到约382亿美元，这充分显示了两国之间合作具有重大的意义。
 
-根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
+中共国外交部没有详细说明会谈的细节，但表示乌克兰局势和共同关心的地域问题都在会议的议程上。
 
-该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
+自俄罗斯入侵乌克兰以来，中共国没有在公开声明中或在国际外交舞台上表明自己的立场，既没有谴责俄罗斯的行动，也没有为实现和平调解人的角色。然而，它表现出与干预俄罗斯经济保持距离的立场，由于美国、欧洲以及其他国家在入侵乌克兰后实施的经济制裁，俄罗斯经济正在减弱。另一方面，它也反对把对俄罗斯的制裁作为解决乌克兰危机的有效手段。
 
-该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
+信息来源：[https://www.cnn.co.jp/photo/l/1063003.html](https://www.cnn.co.jp/photo/l/1063003.html)
 
-报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
-
-*责编：彩虹*
-
-**新闻来源**
-
-[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
+责编：Eric Kim
 
  
 

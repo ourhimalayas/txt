@@ -2,29 +2,98 @@
 ---
 
 
-## 山下良美成为有史以来首位负责亚洲冠军联赛女裁判
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2386949/)
+## MV版《铁锁梦》上线第3天位列12国iTunesMV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2387105/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/山下良美成为有史以来首位负责亚洲冠军联赛女裁判.jpg)[图片来源](https://web.gekisaka.jp/news/detail/?357093-357093-fl#:~:text=%E5%8C%97%E4%B9%9D%E5%B7%9E%E3%81%8CMF%E5%89%8D%E5%B7%9D%E5%A4%A7%E6%)
+4/21/2022 郭文贵先生的歌曲《铁锁梦》MV版视频上线第3天位列12国iTunesMV榜榜首！
 
-亚洲足球联和会（AFC）4月21日宣布，山下良美成为有史以来第一位负责亚洲冠军联赛（ACL）比赛的女裁判。她将与同为日本人的坊薗真琴和手代木直美两位副裁判一起，在同一天于泰国曼谷举行的G组第三轮墨尔本城与全南龙队的比赛中上场。
+* * *
 
-山下在2012年被注册为女子一级裁判，也是2019年女子世界杯上出场的女裁判。同年5月，山下被任命为亚足联杯的首席裁判，成为在亚足联组织的国际赛事历史上第一位负责男子比赛的女性裁判。也是在同年12月，她被认定为可执掌联赛的一级裁判，并在去年5月作为J联赛的第一位女裁判首次亮相。迄今为止，山下已经主持了九场J3联赛的比赛，为女性成为裁判在不懈的努力。
+[【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-信息源：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
 
-[北九州がMF前川大河の入籍を発表「サッカーを頑張れているのは、彼女のサポートがあっての事」](https://web.gekisaka.jp/news/detail/?357093-357093-fl#:~:text=%E5%8C%97%E4%B9%9D%E5%B7%9E%E3%81%8CMF%E5%89%8D%E5%B7%9D%E5%)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_68.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_69.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_70.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_72.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_73.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_89.jpg)
+
+
+[【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Thursday-21-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
