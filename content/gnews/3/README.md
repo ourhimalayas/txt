@@ -2,22 +2,26 @@
 ---
 
 
-## 樱花时政┃俄罗斯国防研究机构发生大型致命火灾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388405/)
+## 上海检测出的阳性绝大多数是疫苗反应 北京正在准备极限大隔离
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2388425/)
 
-撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+\*在上海，被检测出新冠阳性的案例，绝大多数实际上是因为疫苗mRNA的反应；
 
-2022年4月21日星期四晚上10:15，俄罗斯媒体报道，俄罗斯国防部位于特维尔市的研究设施在神秘情况下发生大火。该地点位于莫斯科西北约 110 英里处。鉴于RT报道有两人死亡和至少20人受伤，并且航拍画面显示该地区出现巨大的火焰和浓烟，因此可能发生了爆炸。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-133.png)图片来源于本文链接
-紧急救援人员正在现场。据说大楼的上层属于政府的中央航空航天防御部队研究与发展研究所。“火灾发生在行政大楼二楼的一个房间里。”俄罗斯媒体报道说：“根据初步数据，大火面积达数千平方米，导致屋顶部分倒塌。”有报道称俄罗斯各地的森林大火有所增加，但目前尚不清楚或不清楚周四大火背后的原因。
+\*北京的战友警告，北京正在准备大隔离。这次将会是更加残酷的极限测试，同时乘机消除，如老人，残疾人，病人等“累赘人口”。简单储备食品和物资，并不足够，要做好准备。
 
-消息来源：
+视频来源: 20220419—郭先生大直播
+视频制作: 文星光
+文案:文星光
 
-[Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**更多资讯，更多关注**
+[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
