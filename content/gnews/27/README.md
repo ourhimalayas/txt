@@ -2,41 +2,37 @@
 ---
 
 
-## 有声|中共喉舌公然造假 谎称支援上海千万吨物资
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387253/)
+## 世界上最大的金条价值飙升
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387279/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月15日，一则由中共喉舌电视台放送的新闻引发了墙内民众的强烈抨击。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0504c7d2394131c65c9aca7b118e052d-600x338-1.jpeg)
-据了解，中共通过其惯用的宣传手段声称，在上海封城期间，盐城一地支援上海的蔬菜包达到37.1万份，累计销往上海的蔬菜、鸡蛋、大米等农副产品高达两千五百多万吨。
+共同社4月21日报道称，由于乌克兰危机加剧了不稳定并导致商品价格暴涨，世界上最大的金条的价值已经增加到超过22亿日元（1710万美元），是其2005年首次在日本中部一个主题公园展出时价值的五倍多。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G-4.jpg)mainichi.jp
+这根重达250公斤的金条在静冈县伊豆市的东井金矿（Toi Gold Mine ）主题公园展出。这根金条是由公园运营商的母公司在2005年冶炼的，吉尼斯世界纪录在同一年将其认证为世界上最大的金条。
 
-针对这一数据，中共国内的民众一片哗然：有网友计算，上海总计拥有不到两千五百万居住人口，按照中共政府给出的这一数据，理应当地每人平均得到超过一顿的粮食物资。然而，据上海居民反馈，当地民众的真实生存情况堪忧：食物匮乏问题屡见不鲜，挨饿已经成为当地人的日常生活，物资严重缺乏正在导致上海人不得不回到以物易物的时代。
+该金条于2005年7月公开展示，当时它的价值约为4亿日元。
 
-对此，有评论人士表示，中共公然造假的行为已然超出了正常人的思维；但另一当面，随着科技的发展，墙内的民众正逐渐看清中共的真面目，为此，这也预示着其必将被消灭的宿命。
+据金条制造商田中机工株式会社 （Tanaka Kikinzoku Kogyo K.K.）称，截至周三，1克黄金的含税价值为8,969日元。
 
+黄金通常被视为危机时期的避险财富储备，在疫情大流行和俄罗斯在乌克兰的战争造成的不稳定中，黄金的价值已经上升。
 
+由于日元对美元最近的疲软，该金条的价值也有所上升，而美元是全球交易金属的国际指数。
 
+东井金矿在1965年结束了采矿作业，在其生命周期内是日本产量最高的矿场之一。
 
+旧址上的主题公园向游客介绍了该矿的历史，并为他们提供了探索其部分隧道和淘金的机会。
 
-文字版原文：[中共喉舌公然造假 谎称支援上海千万吨物资](https://gnews.org/zh-hans/2381427/)
+游客可以通过亚克力展示柜上的一个洞触摸金条。该公园在社交媒体的宣传中抓住了价值上升的机会，在宣传中声称触摸金条会增加游客的财运。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+**快评：**按照这篇新闻所言，这根世界上最大的金条已经比2005年首次展出时增加了5倍多价值。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+听郭先生爆料的人都知道，法币超发，黄金也没有体现其真正的价值，黄金价格一直被人为控制和打压。如果黄金价格翻一倍，世界经济就会完全崩塌。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+尽管如此，相比之下这根金条还是升值5倍多，可见法币超发加日元兑美元贬值都已经到了何其惊人的地步？世界经济崩塌的时刻就要到来。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：
+[https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html](https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

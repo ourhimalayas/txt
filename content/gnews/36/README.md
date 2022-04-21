@@ -2,45 +2,32 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.21 O) 接种第三针疫苗后身体反应太大了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2386860/)
+## 泽连斯基与南非总统讨论粮食危机威胁
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2386870/)
 
-整理/编辑：禄森
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-21-下午10.15.36.png)图片来源：互联网
+据乌克兰国家通讯社（Ukrinform）周四（4月21日）报道，乌克兰总统泽连斯基与南非共和国总统西里尔·拉马福萨讨论了全球粮食危机的威胁。
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+泽伦斯基在他的推特账户上写了[这件事](https://twitter.com/ZelenskyyUa?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1516865834085453831%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.ukrinform.ua/rubric-economy/3463099-zelenskij-obgovoriv-iz-prezidentom-par-zagrozu-prodovolcoi-krizi.html)。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-8.png)
-图片来源：雅典娜设计组(614)
+“与西里尔·拉马福萨（Cyril Ramaphosa）进行了电话交谈。讲述了我们对俄罗斯侵略的抵抗。讨论了全球粮食危机的威胁，深化与南非共和国的关系以及国际组织内的合作，”泽伦斯基写道。
 
+据报道，据人权观察报道，俄罗斯入侵乌克兰加速了中东和北非的粮食危机。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+特别是，黎巴嫩 80% 的小麦来自乌克兰；埃及购买小麦和大量石油；利比亚从乌克兰进口超过 40% 的小麦；也门进口不少于27%。此外，叙利亚西北部当局向该地区提供通过土耳其购买的小麦和面粉，土耳其还从乌克兰进口 90% 的小麦。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+拉马福萨在推特账户[写道](https://twitter.com/CyrilRamaphosa/status/1517082375611895809?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1517082375611895809%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://www.timeslive.co.za/politics/2022-04-21-ukraines-zelensky-discusses-threat-of-a-global-food-crisis-with-ramaphosa/)，他于泽连斯基总统讨论了“乌克兰的冲突和其悲惨的人类代价，以及其全球影响。”
 
-**帖子原文**：
-
-**博主: 宇儿**
-
-第三针疫苗
-
-妥妥的，发烧了38度，这次虽然比第二针温度低一点，但是浑身酸痛，从头到脚，酸胀疼痛，无力，晚上睡觉一会冷一会热，打针的胳膊巨疼，不能动，带着肩胛骨都疼，今早开始腋窝淋巴也开始有点肿，疼打针的胳膊也有点肿这也太受罪了
-
-**作者发布于2022-4-21**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2663.png) 图片来源：小红书
-
+拉马福萨此前曾通过推特证实，他​​已与俄罗斯总统弗拉基米尔·普京、中国（中共国）国家主席习近平和美国总统乔·拜登进行了电话交谈，周四证实了这一电话。
 
 参考链接：
 
-[发烧，浑身酸痛，乏力，腋下淋巴肿大](https://www.xiaohongshu.com/discovery/item/6260b570000000000102f120?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650519299)
+【1】[Zelensky discusses with South Africa’s president threat of food crisis](https://www.ukrinform.net/rubric-ato/3463119-zelensky-discusses-with-south-africas-president-threat-of-food-crisis.html)
 
-发布：Frank2021
+* * *
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+*编辑&发布：长岛开心*
 
  
 
