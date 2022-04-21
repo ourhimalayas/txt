@@ -16,6 +16,8 @@
 ---
 ## 頁面 12/42 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [42](/content/README-42.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版2020年12月14日郭先生GTV直播](/content/2020/12/20201214-672368.md)
+
 [文字版2020年12月11日郭先生GTV直播](/content/2020/12/20201211-672238.md)
 
 [文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
@@ -63,8 +65,6 @@
 [文字版：2020年11月8日郭文贵先生连线大卫](/content/2020/11/20201123-2602096722999962648.md)
 
 [文字版：2020年11月7日郭文贵先生直播视频](/content/2020/11/20201123-5742734290856122606.md)
-
-[文字版：2020年10月7日郭先生GTV直播](/content/2020/10/20201018-3690547876023765465.md)
 
 
 ## 頁面 12/42 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [42](/content/README-42.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
