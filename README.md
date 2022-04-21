@@ -15,110 +15,110 @@
 
 ---
 
-### [白俄罗斯抓捕维权人士和独立记者](/content/gnews/1/README.md)
- ` 日本東京方舟農場`
+### [习近平提出“全球安全倡议”，但未提供细节](/content/gnews/1/README.md)
+ ` Shuizhuyu`
 
-### [COVID疫苗伤害的赔偿系统失败了（2/2）](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
 
-### [台湾新闻台误播中共国入侵的“突发新闻”](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [上海防疫人员在屠杀宠物](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美驻联合国大使会晤被中共集中营关押的新疆维族人家属](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共从俄乌克兰战争吸取哪些教训？](/content/gnews/6/README.md)
+### [武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一辆乌克兰坦克开火穿过一座被炸毁的建筑，一炮将另一侧的俄罗斯装甲运兵车干掉](/content/gnews/7/README.md)
+### [中日财经爆┃中共在岸人民币兑美元触及6.45关口，日内下跌逾300点](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [白俄罗斯抓捕维权人士和独立记者](/content/gnews/5/README.md)
+ ` 日本東京方舟農場`
+
+### [COVID疫苗伤害的赔偿系统失败了（2/2）](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [台湾新闻台误播中共国入侵的“突发新闻”](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [上海防疫人员在屠杀宠物](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不要相信所谓的民调。一旦你沉默了，那你就变成了同谋，你就允许他人控制你的生活](/content/gnews/8/README.md)
+### [美驻联合国大使会晤被中共集中营关押的新疆维族人家属](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共从俄乌克兰战争吸取哪些教训？](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [一辆乌克兰坦克开火穿过一座被炸毁的建筑，一炮将另一侧的俄罗斯装甲运兵车干掉](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻新闻｜美正耗尽弹药储备 中共国粮食危机](/content/gnews/9/README.md)
+### [不要相信所谓的民调。一旦你沉默了，那你就变成了同谋，你就允许他人控制你的生活](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻新闻｜美正耗尽弹药储备 中共国粮食危机](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾报告11架中共国军机侵入防空识别区](/content/gnews/10/README.md)
+### [台湾报告11架中共国军机侵入防空识别区](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯对车诺比的攻击被看作是核威胁的“恶梦”](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [沃尔夫博士谈辉瑞疫苗案调查中的惊人发现](/content/gnews/12/README.md)
+### [沃尔夫博士谈辉瑞疫苗案调查中的惊人发现](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国和印度正在将俄罗斯从经济崩溃中拯救出来](/content/gnews/13/README.md)
+### [中共国和印度正在将俄罗斯从经济崩溃中拯救出来](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：习近平崇拜莫德尔周期理论，深信自己是统治世界的神](/content/gnews/14/README.md)
+### [大直播后记：习近平崇拜莫德尔周期理论，深信自己是统治世界的神](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [2022年4月20日郭文贵先生临时直播 全文字版](/content/gnews/15/README.md)
+### [2022年4月20日郭文贵先生临时直播 全文字版](/content/gnews/18/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [中共驻美大使警告：勿用“乌克兰危机”搞乱中美关系](/content/gnews/16/README.md)
+### [中共驻美大使警告：勿用“乌克兰危机”搞乱中美关系](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共继续扩充核武妄图称霸全球](/content/gnews/17/README.md)
+### [中共继续扩充核武妄图称霸全球](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [立陶宛向乌克兰移交了一批重型迫击炮](/content/gnews/18/README.md)
+### [立陶宛向乌克兰移交了一批重型迫击炮](/content/gnews/21/README.md)
  ` 日本東京方舟農場`
 
-### [樱花时政┃古特雷斯提出邀请希望与普京和泽连斯基面谈](/content/gnews/19/README.md)
+### [樱花时政┃古特雷斯提出邀请希望与普京和泽连斯基面谈](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从“不反习”到“灭掉习”，都是为了消灭中国共产党](/content/gnews/20/README.md)
+### [从“不反习”到“灭掉习”，都是为了消灭中国共产党](/content/gnews/23/README.md)
  ` thedawn`
 
-### [2022年4月21日战时快讯（1）](/content/gnews/21/README.md)
+### [2022年4月21日战时快讯（1）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃岸田首相、靖国神社真榊奉纳](/content/gnews/22/README.md)
+### [樱花时政┃岸田首相、靖国神社真榊奉纳](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯试射可以搭载核弹头的导弹以威胁敌人](/content/gnews/23/README.md)
+### [俄罗斯试射可以搭载核弹头的导弹以威胁敌人](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登在白宫召集美军高级将领聚会](/content/gnews/24/README.md)
- ` 日本東京方舟農場`
-
-### [华视新闻误报中共袭击事件后道歉](/content/gnews/25/README.md)
+### [华视新闻误报中共袭击事件后道歉](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [京东“自杀式物流”赴上海遇阻](/content/gnews/26/README.md)
+### [京东“自杀式物流”赴上海遇阻](/content/gnews/28/README.md)
  ` 日本東京方舟農場`
 
-### [新闻述评：习近平发布“台籍兵”当天华视传出开战假讯](/content/gnews/27/README.md)
+### [新闻述评：习近平发布“台籍兵”当天华视传出开战假讯](/content/gnews/29/README.md)
  ` 战云长天时评`
 
-### [疫情｜台湾官方预估“4月底单日确诊破万”规划第四剂](/content/gnews/28/README.md)
+### [疫情｜台湾官方预估“4月底单日确诊破万”规划第四剂](/content/gnews/30/README.md)
  ` 關注組`
 
-### [俄罗斯准备启动针对欧盟和美国进行网络攻击](/content/gnews/29/README.md)
- ` 日本東京方舟農場`
-
-### [每日快报：美中防长通话时中方警告“台湾是中共国一部分”](/content/gnews/30/README.md)
+### [每日快报：美中防长通话时中方警告“台湾是中共国一部分”](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（6/6）](/content/gnews/31/README.md)
+### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（6/6）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [核酸检测的棉签有毒吗？请用唾液替代！](/content/gnews/32/README.md)
+### [核酸检测的棉签有毒吗？请用唾液替代！](/content/gnews/33/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [泄露的录音：阿斯利康CEO称免疫力低下的人不能接种疫苗](/content/gnews/33/README.md)
+### [泄露的录音：阿斯利康CEO称免疫力低下的人不能接种疫苗](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国财政部制裁支持侵略战争的俄罗斯虚拟货币采矿公司](/content/gnews/34/README.md)
+### [美国财政部制裁支持侵略战争的俄罗斯虚拟货币采矿公司](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：我和共产党有血海深仇，我生来就是灭共的！](/content/gnews/35/README.md)
- ` 雅典娜GNotes`
 
 ### [日本撤销俄罗斯最惠国待遇](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`

@@ -2,29 +2,49 @@
 ---
 
 
-## 美国财政部制裁支持侵略战争的俄罗斯虚拟货币采矿公司
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383926/)
+## 泄露的录音：阿斯利康CEO称免疫力低下的人不能接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2384062/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-221.png)（图片源自本文链接）
-4月21日IT媒体新闻消息：美国财政部外国资产管制处（OFAC）4月20日（当地时间）宣布，已将BitRiver等俄罗斯虚拟货币开采公司列入特别指定国民（SDN）名单。 这是该局第一次制裁采矿公司。报告指出，俄罗斯的虚拟货币开采业务据说是世界第三大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-19-at-12.58.00-PM.jpg)[视频链接](https://www.youtube.com/watch?v=Lk0OJwZwE5g&amp;t=22s)
+门户专家（The Gateway Pundit）2022年4月19日的报道，《真相工程》(Project Veritas)周二公布了一份2020年泄露的录音，录音中阿斯利康(AstraZeneca)首席执行官帕斯卡尔·索里奥特(Pascal Soriot)说：“数百万（免疫力低下）的人不能接种疫苗……抗体（治疗）有巨大的潜力。”
 
-SDN名单，是一份登记并公布美国总统认为对美国国家安全或威胁国家安全的经济政策构成威胁的国家、法律实体和自然人的名簿（来自JETRO的网站）。所列受制裁实体在美国持有的资产会被冻结。
+索里奥特在2020年12月的一次全公司Zoom会议上说：“比如，如果你有免疫性疾病、狼疮或其他一些免疫性疾病，或多发性硬化症，你不能接种疫苗。因此，世界上有数百万人需要一种疫苗无法提供的保护。因此，更长效的抗体具有巨大的潜力。”
 
-财政部在一份公告中说，将把那些支持普京的残酷（并非不可避免）和支持选择性战争的人，以及帮助这些人逃避美国的制裁任作为目标。
+他说：“长效抗体是相当独特的，因为这是唯一可能会持续6个月以上的组合，可能多达12个月，并长期保护人们。”
 
-BitRiver成立于2017年，并在2021年将其资产的合法所有权转让给一家瑞士控股公司。 财政部已将BitRiver及其10家子公司列入SND名单。
+《真相工程》报道：
 
-信息来源： [米財務省、ロシアの仮想通貨マイニング企業に制裁　「プーチンの残忍な戦争を支援しているため」（ITmedia NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c8c23ee19bebcc58ffb96e1fa9647079f0a86cea)
+*制药巨头阿斯利康的一位消息人士向《真相工程》提供了一份2020年全公司内部Zoom电话录音，其中首席执行官帕斯卡尔·索里奥特关于疫苗兼容性的声明与世界卫生组织等卫生机构和组织的指导相矛盾。*
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+*众所周知，单克隆抗体治疗在中共病毒大流行的早期就相对有效，美国的一些州迅速采取行动，将其作为一线治疗措施。然而，联邦政府积极反对使用这些治疗方法，转而支持接种疫苗。*
+
+*在周二下午发布的一段视频中，“真相工程”创始人詹姆斯·奥基夫(James O’Keefe)问道：“如果世界上最大的制药公司之一的首席执行官早在2020年就意识到，抗体治疗对于免疫力低下的人来说是必要的，那为什么世界各国的政府在数百万人会因接种疫苗面临危险的情况下强制要求接种疫苗？”*
+
+*在2022年3月16日的一份健康咨询中，世界卫生组织重申了其立场，即阿斯利康疫苗对免疫力低下的人是安全的。咨询意见说：“应该指出，这种疫苗的全两剂方案被认为比单剂疫苗更能预防令人担忧的变种。此外，SAGE[免疫战略专家咨询小组]建议为严重和中度免疫功能低下的人提供额外剂量的疫苗”。*
+
+**简评：**
+中共病毒表面的刺突蛋白是高致病抗原，毒疫苗所包含的刺突蛋白脱落能诱发大量血栓，对人体造成毁灭性伤害，另外也有大量医学界人士和一线医务工作者爆出中共病毒和毒疫苗的其他副作用。中共病毒是中共政府实验室制造的生化武器，任何人相信一种生化武器会有疫苗都是愚蠢的。
+
+在疫情初期，爆料革命就宣传硫酸羟氯喹加锌可以有效预防中共病毒感染，但主流媒体和医疗机构都没有公开承认它的有效性，反而大肆宣传并污名化羟氯喹、伊维菌素等有效药物。这些诡异的事情不禁让人深思，如果黑暗组织能把解药描述成毒药，那么也意味着它们能将毒药描述为解药。中共病毒疫苗就是被描述为解药的毒药。控制全球各大制药公司，通过医疗垄断，媒体垄断来实施的这场全球性的疫苗接种运动是一种公然的种族灭绝行为。可惜绝大多数人都失去了独立思考能力，无法看清这一切，并且都自愿去接种疫苗，这一现实更值得我们深思。我们都活在一个充满谎言的世界，看似光鲜亮丽，实则是另一个真实的“楚门的世界”。这场全球性的病毒和疫苗灾难，中国共产党是主要的推手，它不仅仅释放了病毒，也在全世界推广毒疫苗。中共的恶，罄竹难书。世人如果想要回归安宁，只有彻底消灭中国共产党。
+
+新闻链接：[LEAKED RECORDING: AstraZeneca CEO: Millions of Immunocompromised People Can’t Be Vaccinated… Antibody Treatment Has Enormous Potential (VIDEO)](https://www.thegatewaypundit.com/2022/04/leaked-recording-astrazeneca-ceo-millions-immunocompromised-people-cant-vaccinated-antibody-treatment-enormous-potential-video/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
 
  
 
