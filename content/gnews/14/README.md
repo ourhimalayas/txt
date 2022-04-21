@@ -2,144 +2,36 @@
 ---
 
 
-## 《把这个世界还给我们》—动漫剧场
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2382795/)
+## 郭文贵先生2022年4月20日盖特视频（9分12秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2382931/)
 
-```
-By:秘翻大剧场 
-2022-04-21
-```
+听写整理编辑：东京樱花团/Peterwong
 
+啊，啊哇塞，尊敬的战友们好，4月20号，“4.19大直播”，哇塞，啊，昨天是我直播有史以来，最累的一次。唉，昨天一直头疼，今天，昨晚睡了一觉，今天早上都好了。但是昨天是最累的一次“4.19直播”，特别特别累，啊头痛，然后呢最后还是播了七八个小时啊，真不容易。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-217.png)
+啊这“4.19”五年过去了，真的是时间、时代啊，真的是一切都变了。昨天晚上，这我收到了很多国内战友的，这个太多信息了，没法回，都是昨天国内翻墙看这个昨天的“4.19”五年的这个大直播啊，大家都是感触很深，都是跟了爆料革命，跟了这几年了，哎呀哭声一片呐，说现在整个中共国真的就像当年七哥说的一样啊，他说老百姓的生存权，啊财务权，还有一个起码的人权，就甭说是民主了，啊，真像猪狗一样，被对待着，哎呀真的是太可怕了。但是昨天的直播真的是感谢特别多的战友的，辛苦的，准备的各种文件和加入，像在台湾的战友，亚洲的战友，都是整，等了整整一个，一夜啊。
 
+我是前天我觉得我是有点感冒了啊，这加一夜没睡觉啊，再加一国内老通电话，视频，哎呀，昨天真是头痛欲裂呀，啊迷迷糊糊的做了一个一天的八小时大直播，你说这玩意儿啊？但是是今天，我早上醒来一切都好了，然后看到国内那么多战友的这种感动，感激，七哥觉得是值的。咱们用了五年爆料革命，新中国联邦，创建了一个国，搞了一个世界的金融集团。战友们现在都是，从过去猪狗不如的毛粪坑里爬出来，拥有了希望和未来。值!咱值啊，兄弟姐妹们，是吧？俺骄傲，俺骄傲，是吧？这老杂毛们，这个现在他看到我们这个样子，共产党他们知道他们的末日已经到了，啊，我们做了一个拯救人类，拯救所有中国人同胞的，啊这么一个伟大事业，累点算啥呢？是不是？累点算啥呢？
 
-```
-《把这个世界还给我们》
-  《Give Us Back The World》
+这两天H-pay好像是这个升级啊,升级啊，不是故障,升级很难,升级啊，这个升了几天了,估计也有技术问题,升级的问题不能用,哇塞,一不能用好多战友就抓耳挠腮了,因为大家都懂得H-pay实际上是很多很多方面都能用的, H-pay啊未来那路长着呢,啊H-pay绝对未来是代替SWIFT, SWIFT美国SWIFT的一个最安全的,加密的数字货币,啊货币的这么一个支付方式。
 
-  编剧/审核：文姝
- Scriptwriter/Verify: Wenshu
- 动漫制作：坚强的泡沫
- Animation:Jianqiang De Paomo
- 视频制作：坚强的泡沫 爱爆彩蛋
- Video production:Jianqiang De Paomo and Ai Baocaidan
- 监制：文姝
- Supervisor: Wenshu
- 朗诵：文姝
- Recite：Wenshu
- 音乐：《铁锁梦》
- 《Chained woman’s dream》
- 演唱：Miles Guo
- Singer： Miles Guo
- 字幕：XO
- Subtitle: XO
- 包装：茶乌龙
- Visual effect:Cha Wulong
-  
- 翻譯： Annabelle
- Translator: Annabelle
- 校稿：蓮花/向日葵
- Edit: lotus/sunflower 
+昨天很多话都没说完啊,就是别看八小时，很多话没说完啊,比如说我们现在未来的生活当中，就是法币就叫宗教，不能怀疑，不能挑战，也没有任何所谓的不确定性，唯一不确定的啊就是这个政府被灭了，啊你就当奴隶吧。你知道他会干啥，法币就剥夺你了。啊数字货币就是信仰，是吧？可怀疑、可挑战，啊但是你绝对可相信，绝对可信赖，坚定不移，你越信他有价值，越信他越好。啊这就是SWIFT，SWIFT在西方它是一个被政府控制的一个，啊被这个利益集团控制的这么一个支付系统，如果SWIFT是一个不是政府控制呃支付系统，它就是一个信仰，金融的信仰。我们的H-pay就是未来的金融的信仰，再加上躺平币，去中心化货币和不去中心化货币啊，可中心化的货币啊，咱们加在一起，加上支付系统，那就是金融界的信仰。
 
- 你是否知道自己从哪里来
- Do you know where you are coming from?
- 你可记得
- Do you still remember?
- 母亲那温暖的笑容
- Mum’s warm smile
- 父亲那压弯了的背脊
- Papa’s bent spine
- 你可听到
- Can you hear
- 母亲那失魂的呼唤
- Mum’s calling out
- 父亲那捶胸的痛哭
-  Papa’s sorrowfully crying
+啊另外一个看到现在俄乌大战，七哥一星期前说了吧，我说这就下个周啊，我这也就这一周，啊一定会大战。大战的目的就是要什么？要讲数，啊谈判，是吧？另外一个，这里边有很多的政治原因，是吧？谁来保普京的安全呢？谁来保证家族的钱的安全呢？谁保证把钱还回来呀？那我不打了是吧，这都得讲。
 
- 你是否知道自己为什么在这里
- Do you know why you are here
- 你可记得
- Do you remember
- 那一天被捆绑卖到这里
- That day you were kidnapped and sold here
- 那一群野兽围住你
- The bunch of beasts surrounded you
- 指指点点
- Pointed at you
- 几张毛大头买走了你的一生
-  
- Your entire life has been sold cheaply
- 你被带到了这个被诅咒的家
- You were brought to this cursed family
-  
- 那一夜 
- That night
+啊关于台湾问题，我昨天我已经说了，台湾是没有任何希望，就现在越了解台湾你越感到恐怖，这这这个事情真是让人太多深思了，还有种族的问题，文化的问题，还有政治系统的问题，太可怕，太可怕了。再看看香港，再看看现在的日本，澳大利亚，人类确实需要一个正道主义的政治体系诞生，啊这个是非常非常重要的啊，但绝对不是“莫德尔周期”，别扯淡的事，想“莫德尔周期”这疯子简直是。
 
- 那个野兽夺走了你的一切
- The beast took everything from you
- 你发疯的反抗
- You madly resisted
- 不，这不是你的命运
- No, this is not your fate
- 你呼喊你撕咬你挣扎
- You screamed, bit and struggled
-  
- 你拼尽了所有的力气
- Used up all your strength
-  
- 从此你和亲人生死相隔
- You and your be loved never met since then
+咱们现在整个中国可以说现在处在了一个大变的前夜，谁都挡不住，共产党必被灭。所谓的“清零管控”就是共产党最后，最后的死亡前的挣扎，最后的一次政治操作，不可能再有“二十大”，如果中国还有“二十大”话，那中国人民就该活遭死罪啊，我们对挣钱半点兴趣不感啊，你给，你给我们真的万万万亿让我们去当你那个什么总书记皇帝，我们都不去。啊但是中国人必须有“一人一票”的选举制度，必须中国人要活得像人一样的有尊严啊，中国人必须自己的钱自己说了算，中国的土地必须归还给中国人民，永远归还人民。中国人买的房子必须是永久产权。现在被共产党剥夺几十年的信用卡、房贷都得撤销，因为你共产党把钱全给骗走了，海外的钱必须回去，弥补这几十年剥削的老百姓的所谓的房贷、车贷、信用卡贷，就这么简单，就这么简单。
 
- 再也听不见母亲的呼唤
- Never heard your mum’s voice
- 再也看不见父亲的笑脸
- Never saw your papa’s smile
-  
- 殴打、蹂躏、生娃、绝望
- Been Beated, tortured, despairing and gave births
- 你被铁锁囚禁二十四年
-  
- Have been chained for 24 years
- 你被投进围栏
- Have been locked in a cage
- 与鸡鸭共栖
-  
- Living with poultry
- 与猪狗同命
- Same fate as pigs and dogs
- 你恨
- You hate
-  
- “这个世界不要我了”
- 【七哥演唱：这个世界不要我了，声音坚强】
-  This world abandoned me
- 我恨
- I hate
- 是谁夺走了你的命运
- Who took my fortune
- 是谁践踏了你的人生
- Who ruined your life
- 是谁把这个世界变成地狱
-  
- Who turned this world to the hell
- 是谁让中国人戴上了铁锁
- Who put the iron lock on Chinese people
- 我们要砸碎这铁锁
- We must smash the iron lock
- 推翻这恶党
- Perish this evil Party
- 把这个世界还给我们
-  
- Give us back the world
- 把这个世界还给我们 
- Give us back the world
- 
-发布:星星
-更多精彩尽在秘翻大剧场，敬请关注@GTGrandTheatre，最新播出消息发布。
-```
+你想你回去你把北京城给我，当我的客厅，我都不去住，那就是上帝吐了口痰。想想北京那个脏乎乎的那个样子我都烦啊。中国有几个地方适合人居住啊？没出过国的人你在屋里边你就是吃不着葡萄说葡萄酸，是个国家都比中共国美丽、自然、健康。你没出过国你可不自己在这儿得瑟，觉得自己哪都好，啊问问中国有钱、有名的人，让他出国选择，让他拿到美国护照、中国护照、美元和人民币，啊甚至欧国、澳大利亚，选择，选择哪都选择，人家不选择自己，这不就完了吗？“你若不相信呐，请往未来看”。啊下一句话是啥呀？不会唱了，“你若有本事，别被试核酸”。行了，找时间再直播吧。
 
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
+[郭文贵先生2022年4月20日盖特视频](https://gettr.com/post/p167ju85091)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

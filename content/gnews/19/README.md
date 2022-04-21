@@ -2,43 +2,38 @@
 ---
 
 
-## 美医生因治疗新冠受到立法机构表彰 却遭卫生部门调查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2382624/)
+## 拜登主持美欧日盟友首脑会议，岸田首相宣布追加2亿美元贷款
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2382665/)
 
-素材翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
-弗吉尼亚州的一名医生，因其在替代 COVID 治疗方面的努力而获得州立法机构的表彰，但几天后，该州的医疗许可委员会通知他接受这些相同治疗的调查。
+**翻译：文明志**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2528-edited.png)Dr. Paul E Marik
+2022年4月14日美国总统乔-拜登在美国北卡罗来纳州，图片来源美联社。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9F8E00CD-EB5F-4DBF-AE4C-699DD4CA87C6.jpeg)
+据每日新闻4月20日消息称，美国总统拜登于4月19日与日本和欧洲领导人举行了一次在线会议，一致同意加强对正在遭受俄罗斯军事侵略的乌克兰的军事、经济和人道主义援助。此外，还讨论了对俄罗斯的制裁，美国政府对追加的额外制裁作出了解释。日本岸田文雄首相宣布了一项新的2亿美元的贷款，作为对乌克兰的经济援助。
 
-2022 年 3 月 11 日，弗吉尼亚州众议院表彰前线COVID-19 重症监护联盟 (FLCCC) 的创始人保罗·马利克（Paul Marik）博士“对 COVID-19 重症患者的勇敢治疗”， 该决议获得一致通过。然而，在 3 月 15 日，弗吉尼亚州卫生专业部给马利克发了一封信，通知他，他们正在对他的 COVID-19 治疗的医疗实践进行调查。
+这次会议由美国总统拜登主持，七国集团（G7）主要经济体、欧盟、波兰和罗马尼亚的领导人以及北大西洋公约组织（NATO）秘书长斯托尔滕贝格参加了此次会议，会议持续了约1小时20分钟。
 
-调查声称是基于诺福克的森塔拉健康保健（Sentara Healthcare）的投诉，马利克在那里指导重症监护室，直到他于 2021 年 11 月 18 日被停职，因为他开了伊维菌素和其他替代瑞德西韦的 COVID-19 处方。卫生部还声称，调查的依据是一名 COVID 患者的指控，他指控马利克给他用的伊维菌素对他造成了伤害。
+首脑们解释了各自的外交努力和对俄罗斯的制裁举措的情况。他们对乌克兰东南部重镇马里乌波尔的平民伤亡不断增加表示关切，并确认他们对乌克兰政府和公民的声援。他们还就加强对俄罗斯的制裁交换了意见。
 
-日本制药公司发现，伊维菌素对 Omicron 和其他 COVID 变体具有“抗病毒作用”
+在会议上，日本岸田首相强调，”我们正处于结束俄罗斯残暴侵略和维护和平与秩序的关键时刻”。他宣布，将把对乌克兰的1亿美元贷款增加到总额3亿美元，这是他在俄罗斯入侵前的2月15日宣布的。他还解释了日本接收难民，向乌克兰邻国提供紧急人道主义援助，以及向乌克兰提供自卫队装备，包括防护面罩和无人机的情况。
 
-马利克在谈到该州的表彰时告诉《大纪元》：“弗吉尼亚州立法机关的表彰令我感到荣幸和个人深受感动。这对我来说是一段非常艰难的旅程，我为此付出了巨大的代价。”
+这是继2月底的会议之后，在同一框架下的第二次由美国召集的盟友首脑会议。拜登政府强调与盟友合作应对俄罗斯，而各国领导人也重申了彼此的合作。
 
-在他最近与 COVID-19 患者合作之前，马利克在败血症治疗方面的进步得到了国际认可，在传统方案下这可能是致命的。
+**新闻来源：**
 
-马利克通过 FLCCC 为 COVID-19 开发了两种方案治疗：MATH+ 和 I-MASK，这两种药物组合用于预防或早期治疗 COVID-19。除了公开提供这些方案外，FLCCC 还提供了伊维菌素治疗 COVID-19 有效性的临床试验证据的医学摘要。
+[米欧日がウクライナ支援強化で一致　岸田首相、2億ドル借款追加表明](https://news.yahoo.co.jp/articles/085fb2d807d0800ff87454a0caf05324006e7e77)
 
-弗吉尼亚州立法机构在其决议中赞扬马利克：“尽管面临持续的挑战和障碍，但仍将重新利用经FDA批准的仿制药作为降低大流行死亡率的战略”。
+**编辑：LILY**
 
-素材链接： [Virginia doctor honored by legislature for COVID treatments, targeted by health dept.](https://www.lifesitenews.com/news/virginia-doctor-honored-by-legislature-for-covid-treatments-targeted-by-health-dept/)
+**发布：歪桑**
 
-* * *
+20220421
 
-审核：文乐
-校对：信心满满
-发布：花羽
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-29.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

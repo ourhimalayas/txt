@@ -2,27 +2,20 @@
 ---
 
 
-## 加拿大魁省疫情毫无减弱趋势
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2382960/)
+## 2022年4月21日《樱花快报》：台湾新增中共病毒确诊连续4天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383049/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421快报.jpg)
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2539.png)图片来源：[https://montreal.ctvnews.ca](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
-
-
-据[CTV新闻]4月19日报道，官方最新数据显示，加拿大魁北克省当天因感染新冠病毒而住院的人数上升至2281人，因此而死亡的总人数目前已接近15000人。
-
-报道称，由于受疫情影响，包括因感染病毒而隔离和等待病毒检测结果等，已有超过1万名医护人员被迫暂停工作。同时，该省当天确诊了约2000例新增病毒感染，但卫生部承认，实际感染数字可能要高出10倍。
-
-到目前为止，已有91%的魁北克人接种了新冠病毒疫苗，其中，54%的人口已注射了三剂疫苗。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

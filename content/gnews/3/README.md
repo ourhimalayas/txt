@@ -2,25 +2,61 @@
 ---
 
 
-## 加拿大媒体报道法治基金乌克兰救援行动
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2383022/)
+## 诗歌《写问》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383142/)
 
-作者：加拿大温哥华扬帆农场-文所未闻
+整理：vale
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2543.png)图片来源：多伦多太阳报
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
-据《多伦多太阳报》4月19日报道，自俄乌战争以来，已有数百万乌克兰人被迫逃离家园，许多人首先抵达波兰边境小镇梅迪卡。因此，众多非政府组织和宗教团体都在该地搭建临时帐篷为难民提供服务。其中，穿黄色服务背心的[法治基金]志愿者随处可见，引人注目。
 
-报道称，在所有临时建立的服务设施中，由[法治基金]的华裔美国人经营的帐篷是其中最大和最有组织的一个。其中名为Feather的自愿者是一名来自加拿大多伦多大学，今年才19岁的大学生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-414.jpg)
 
-Feather在采访中对媒体表示：能够帮助到一位既不会说英语也不会说波兰语的乌克兰老妇人与她在多伦多的儿子最终团聚，是让她和所有法治基金救援团队成员都感到非常自豪的一件事。
+**《写问》**
+作者：俞心樵
+
+前生来世，不要忘记这一生
+
+是最后一根稻草生下了我们
+
+有时候，我们管遮住太阳的乌云叫母亲
+
+当然，这有什么错？是乌云带来了雨水
+
+等鸡犬升天，于是我们的一生被淋成了落汤鸡
+
+我们痛打落水狗，就好像落水狗不是我们自己
+
+从中国的情况来看，不信上帝是行不通的
+
+但如果信了上帝，你说说，会不会更荒唐
+
+傲慢披上了谦卑的外衣
+
+当然，这是更大的傲慢
+
+我问你，门怎么写，不是为了写门
+
+而是为了写闪电的闪，然后再写问
+
+2020.8.18.简言居
 
 * * *
 
-原文链接：https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html
+审核：Aries的星
+校对：花羽
+发布：五通庙
 
-采编：坐看云起时， 校对编辑，发稿：硫酸羟氯喹64
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 
