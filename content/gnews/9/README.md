@@ -2,46 +2,29 @@
 ---
 
 
-## 上海封城与新冠病毒无关
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
+## 香港公务员辞职创新高 投考须国安法测试合格
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2383282/)
 
-翻译： Jenny Ball
+![香港公务员事务局局长聂德权在个人官方脸书网页上介绍有关新政策](https://gdb.voanews.com/04f30000-0aff-0242-f27e-08da2313a8eb_w1023_r1_s.png)香港公务员事务局局长聂德权在个人官方脸书网页上介绍有关新政策
+据美国之音4月21日报道，香港公务员辞职潮再创新高，港府宣布从4月20日开始，欲应征今年7月1日起的公务员职位招聘，需持有大学或以上学历，还必须在新推出的《基本法及香港国安法 》测试中取得及格成绩，方获考虑聘用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+这个名为“《基本法及香港国安法》测试 (学位/专业程度职系)”是一张设有中英文版本的选择题试卷，共有20题，考生须于30分钟内完成。申请人如在20题中答对10题或以上，将被视作及格，成绩可用于日后申请所有公务员职位。有不少网民对此负评，“祖国好、爱国爱党、听党话跟党走”便是模范标准答案。还有网民说不需考试，“只要懂得像狗吠便会考试合格”。
 
+香港近年公务员和政务职系(AO)辞职者人数趋增，两者同为香港主权移交中共国以来的新高。香港作为圣城一般的存在，是中国人民抵抗暴政的一盏灯塔，虽然“东方之珠”已经在中共的镇压下失去了往日的光彩，但是三年来，香港人从来没有后退，从来没有屈服。所谓“饿死事小，失节事大”，香港人宁愿放弃优越的公务员职位，宁愿扶老携幼背井离乡，也不愿意充当中共的走狗。一份份辞职报告表达了香港人对民主、自由和正义的捍卫。今日的离开是为了积蓄力量准备明日的回归，香港是人民的香港，是民主自由的天堂，不可能永远沦为中共的后花园。消灭中共！荣光回归香港！
 
+新闻参考链接：[https://www.voachinese.com/a/passage-of-national-security-law-test-a-new-requirement-for-hong-kong-civil-servants-applicants-20220420/6538097.html](https://www.voachinese.com/a/passage-of-national-security-law-test-a-new-requirement-for-hong-kong-civil-servants-applicants-20220420/6538097.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
-
-约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
-
-在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
-
-莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
-
-“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
-
-更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
-
-但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
-
-因为，上海封城最可能的原因与新冠病毒无关！
-
-新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
+编辑：胖丁
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

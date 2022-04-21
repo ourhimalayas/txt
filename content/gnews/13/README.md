@@ -2,31 +2,46 @@
 ---
 
 
-## 樱花时政┃七国集团在制裁俄罗斯问题上团结一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383216/)
+## 上海封城与新冠病毒无关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七国集团在制裁俄罗斯问题上团结一致.png)
+翻译： Jenny Ball
 
-由日本、美国和欧洲组成的七国集团（G7）工业化国家4月20日在美国华盛顿特区举行了一次财政部长和中央银行行长会议。他们确认在处理俄罗斯问题上团结一致，包括经济制裁，并发表声明说，他们将 “合作防止制裁出现漏洞”。他们还强调，他们将 “密切关注 “俄罗斯入侵乌克兰后国际金融市场的不稳定发展，并明确表示，他们将在必要时合作，以确保市场稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-就在由七国集团、俄罗斯、中国和其他新兴经济体组成的20国集团（G20）的一次会议暴露了与会国之间的裂痕之后，七国集团已经表明它愿意采取团结行动，阻止俄罗斯的军事侵略行为。
 
-正如郭文贵先生说的，世界格局随着俄乌战争完全改变，邪恶的中共，俄罗斯这样的独裁国家已经被世界抛弃。代表中国人的新中国联邦终将会站上世界舞台。
 
-信息来源：
-[Ｇ７、ロシア制裁で結束　金融市場の動向注視―財務相・中銀総裁会議](https://www.jiji.com/jc/article?k=2022042100176&amp;g=pol)
-[图片链接](https://wedge.ismedia.jp/articles/-/23362)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
+
+在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
+
+莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
+
+“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
+
+更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
+
+但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
+
+因为，上海封城最可能的原因与新冠病毒无关！
+
+新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 

@@ -2,86 +2,96 @@
 ---
 
 
-## 数据显示大多数COVID死亡发生在疫苗推出之后
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383288/)
+## 众议员迈克·沃尔兹：习近平也有建帝国的野心，习从普京的错误中学到了很多。
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2383343/)
 
-翻译： Jenny Ball
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
-
+**众议员迈克·沃尔兹： **
+中国共产党不仅注意到了俄罗斯在乌克兰的失败，习也在密切关注拜登的反应。 别被愚弄了，习和普京也有重建他们以前的帝国的野心。习从普京的错误中学到了很多。 （转美联社：中共国希望从俄罗斯在乌克兰的失败中吸取教训）
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-220.png)图片来源：Shutterstock
 
-仅在 2021 年，就有超过 61,000 名千禧一代创纪录数量的死亡，在 Covid 疫苗被誉为奇迹推出之后，在今年最后一个季度出现了前所未有的死亡率。
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s not only taking notes of Russia's failures in Ukraine but Xi's watching Biden's response closely.
+> 
+> Don't be fooled, Xi & Putin have similar ambitions to reconstitute their former empires. Xi's learning a lot from Putin's mistakes.[https://t.co/98ZllgBpJQ](https://t.co/98ZllgBpJQ)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 20, 2022](https://twitter.com/michaelgwaltz/status/1516825924704124936?ref_src=twsrc%5Etfw)
 
-前贝莱德（ Blackrock ）投资组合经理爱德华·多德（ Edward Dowd ）在 3 月的“班农作战室”（ War Room ）一集中告诉布赖特巴特（Breitbart ）的史蒂夫·班农（Steve Bannon），年龄在 25 至 40 岁之间的千禧一代，仅在 2021 年秋季的死亡率超额增加了惊人的 84%。多德将其描述为“我认为历史上最严重的超额死亡率”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-124.png)
 
-一年内的这些死亡人数，超过了整个越南战争的死亡人数。同时，这发生在** 2021 **年** 8 **月强制接种疫苗和加强注射的高峰期。
+**众议员迈克·沃尔兹： **
+仅去年一年，中（共）国和俄罗斯的贸易就增长了30%，达383亿美元。 现在，在俄罗斯摧毁乌克兰的同时，他们却致力于发展两国关系。中国共产党又一次把钱包放在了人权之前。
 
-“杀戮”
 
-多德说，这些数据是根据来自CDC的数据进行的分析，还表明千禧的上一代（年龄在 40-55 岁左右）的情况并没有好转，导致了对他们的“大屠杀， ”或政府资助的对大量人口的谋杀。
 
-2021 年大多数“大流行”死亡人数
+> China & Russia have increased trade by THIRTY percent just in the last year. That's $38.3 BILLION.
+> 
+> Now they've committed to growing a relationship all while Russia's destroying Ukraine. Once again the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s putting its pocketbook ahead of human rights. [https://t.co/yZqCgUsphd](https://t.co/yZqCgUsphd)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 20, 2022](https://twitter.com/michaelgwaltz/status/1516808068776042498?ref_src=twsrc%5Etfw)
 
-约翰斯霍普金斯大学最近发布的一份工作文件证实，过去两年紧急大流行卫生政策的死亡高峰发生在** 2021 **年** 1 **月，几乎是 2020 年 4 月所谓严重的“第一波”死亡高峰的两倍 。应用经济学教授吉纳维芙·布里昂（ Genevieve Briand ）的研究，着眼于美国从 1999 年到 2021 年的月度死亡数据。
 
-第二波意外死亡浪潮主要发生在 2021 年 9 月的年轻人中，同时美国各地的雇主和机构强制实施强制接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-90.png)
+**参议员霍利新闻办公室： **
+“中共 暴徒以真正的暴力威胁和搪塞来回应任何保护台湾免受入侵的企图。” 参议员霍利提出一项立法，帮助台湾抵御来自中（共）国的攻击。 （转大全新闻： 霍利参议员:美国必须尽快武装台湾）
 
-“与 2020 年 4 月的峰值相比，2020 年 4 月的峰值低于 2021 年 1 月的峰值，幅度大于2018 年 1 月的峰值，而 2021 年 9 月的峰值几乎与 2020 年 4 月的峰值一样高，这一事实进一步说明了理由是，令人担忧的 2020 年 4 月峰值并不像人们认为的那样令人担忧，” 布里昂表示。
 
-布里昂的论文指出，事实上，在最脆弱的老年人群体中，因流感和肺炎导致的呼吸系统疾病死亡人数为数千人，2020 年 4 月“第一波**”**高峰时的死亡率低于过去几年（包括 2018 年、2015 年和 2013 年）流感死亡高峰时的水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-63.png)
+> “In true form, CCP goons respond to any attempt to protect Taiwan from invasion with violent threats and prevarications.”
+>  
+> Senator Hawley introduced legislation to help Taiwan defend itself against an attack from China. [https://t.co/gFlS84I0Y0](https://t.co/gFlS84I0Y0)
+> — Senator Hawley Press Office (@SenHawleyPress) [April 20, 2022](https://twitter.com/SenHawleyPress/status/1516831348476059654?ref_src=twsrc%5Etfw)
 
-呼吸系统疾病占死亡人数的百分比，自 1999 年以来一直徘徊在所有死亡人数的 8.8% 和 9.3% 之间，到 2020 年和 2021 年分别下降到仅占死亡人数的 7.4% 和 6.6%。
 
-布里昂指出，“COVID-19 死亡人数被夸大了”，如果没有创建一个特殊的新诊断 COVID-19 类别，“所有这些死亡都会在其他死因类别中找到归宿”。 没有什么比呼吸系统疾病死亡人数减少更明显需要“重新分类”了。
 
-其他原因造成的死亡人数下降
+**国务卿安东尼.布林肯： **
+美国谴责俄罗斯及其代理人在乌克兰犯下的暴行。 作为回应并促进问责制，我们对 655 名俄罗斯和白俄罗斯官员、代理当局和其他个人实施了签证限制。
 
-其他三种主要死因——心脏病、癌症和脑血管疾病——的死亡人数也（在大流行统计期间）消失了，每一组在大流行期间都经历了前所未有的低点，这再次表明，死因标签发生了变化，而不是成千上万，而循环系统疾病和癌症受害者根本就没有死亡人数。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-57.png)
 
-对于心脏病，看起来似乎在 2020 年和 2021 年，体弱老人的数据结束了通常的死亡率高峰。 布里安德写道，“就好像山尖被切断了一样”。同样，这种无与伦比的统计数据表明，人们并没有停止以创纪录的数字死于心脏病，而是根据新的诊断标签， COVID-19 被指定了他们的死亡原因。
+> The United States condemns the atrocities perpetrated by Russia and its proxies in Ukraine. In response and to promote accountability, we imposed visa restrictions on 655 Russian and Belarusian officials, proxy authorities, and other individuals.
+> — Secretary Antony Blinken (@SecBlinken) [April 20, 2022](https://twitter.com/SecBlinken/status/1516858126917677063?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-49.png)
 
-虽然 2021 年 1 月成年人的死亡人数空前，但这些死亡人数主要集中在老年人身上，并且，在 2020 年 12 月开始推出主要针对老年人和医护人员的疫苗的同时或之后不久。
 
-与此同时，45-54、35-44 和 25-34 岁的年轻人死亡人数创历史新高，在 2021 年 9 月达到顶峰。布里昂表示，9 月份年轻人死亡人数的激增是“闻所未闻的”。
+**参议员比尔·哈格蒂：**
+ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在无情地试图通过窃取美国企业的信息和技术来欺骗美国企业，以助长其专制政权并与我们竞争。我很高兴能通过立法阻止拜登政府做出这一错误决定。 【附华盛顿观察者文章：共和党推动法律恢复被拜登政府破坏的“中共倡议”】
 
-疫苗造成的超额死亡
 
-这些死亡高峰与拜登政府推动并由雇主、医院和其他机构强制执行的疫苗任务相对应。同样在 9 月，来自 CDC 的死亡数据显示，65-74 岁之间的死亡人数比 75 岁及以上的人数多，而 45-54 岁之间死于 COVID-19 的人数也与85岁以上的人一样高。
 
-“从 1999 年到 2019 年，呼吸系统疾病导致的死亡从未发生过这种情况，” 布里昂 说，但是“与疫苗死亡假设一致”。
+> The CCP is relentlessly trying to cheat American businesses by stealing their information & technology to fuel its repressive regime & compete against us. Pleased to introduce legislation that would prevent this misguided decision by the Biden Admin.[https://t.co/HaZVZryHLr](https://t.co/HaZVZryHLr)
+> — Senator Bill Hagerty (@SenatorHagerty) [April 20, 2022](https://twitter.com/SenatorHagerty/status/1516919138475782146?ref_src=twsrc%5Etfw)
 
-更多数据，特别是来自被迫接种疫苗的武装部队成员等群体的数据，将证实这一证据。布里安德认为，医院数据也将说明这个故事的很大一部分。 “如果这些疫苗会导致死亡，那么，它们肯定会导致需要住院治疗的情况，”她说。
 
-“因此，还可以通过查看与此类记录条件相关的住院数据来进一步检验这一假设。”
 
-新闻来源：[Data shows most COVID deaths occurred after the rollout of vaccines](https://www.lifesitenews.com/news/most-covid-deaths-happened-after-jabs-and-mandates/)
+**参议员比尔·哈格蒂： **
+我们每天都在看到我们家乡南部边境危机的结果——芬太尼导致的死亡。[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 现在又在墨西哥与主要的贩毒集团合作，他们正在杀死美国的孩子们。
 
-* * *
 
-审核：文乐    
-校对：信心满满
-发布：五通庙
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+> We're seeing the results of the crisis at the southern border in our home state every day—deaths by fentanyl. The Chinese Communist Party is back in business now with the major cartels down in Mexico, and they're killing our kids.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 21, 2022](https://twitter.com/SenatorHagerty/status/1516942290853400577?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+
+
+**参议员马可·卢比奥：** 
+迪士尼对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的独裁统治只字未提，因为那将会影响他们数十亿美元的收入。 但他们毫无顾忌地利用自己的公司权力对佛罗里达州 [#Florida](https://twitter.com/hashtag/Florida?src=hashtag_click) 民选议员通过的法律撒谎。
+
+
+
+> Disney doesn’t say a word about the dictatorship in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) because it would cost them billions of $’s 
+> 
+> But they have no problem using their corporate power to lie about laws passed by democratically elected legislators in [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/aURQrl9mQ9](https://t.co/aURQrl9mQ9)
+> — Marco Rubio (@marcorubio) [April 21, 2022](https://twitter.com/marcorubio/status/1516969534435266561?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥： **
+拜登将诉诸法庭，再次迫使所有人在飞机上戴口罩，因为(拜登)这些人喜欢用权力控制所有人。
+
+
+
+> Biden is going to court to force everyone to wear masks on planes again because these people love having power over everyone
+> — Marco Rubio (@marcorubio) [April 21, 2022](https://twitter.com/marcorubio/status/1516932829912911872?ref_src=twsrc%5Etfw)
+
+
 
  
 

@@ -2,25 +2,32 @@
 ---
 
 
-## 加拿大强制疫苗政策加剧军队人员短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383020/)
+## 樱花时政┃普京指责西方制裁违反世贸组织原则
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383156/)
 
-采编/撰稿：  加拿大温哥华扬帆农场 – 活力人生
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃普京指责西方制裁违反世贸组织原则.png)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans#pv=g%3D10626480%2Fp%3D10626366)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2544.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248)
+俄罗斯总统普京4月20日批评称，西方国家对俄罗斯企业的“非法”限制违反了世界贸易组织（WTO）的规则。他已指示政府对世贸组织改变国家战略（没有叙述）。
 
+“最近，俄罗斯公司受到外国的非法监管。 不仅禁止出口最终产品，还禁止进口钢材生产所需的轧材、钢板和配件等零部件。”
 
-据【CTV新闻】4月19日报道，由于新兵招募和培训因疫情而被迫中断，加拿大军队目前已出现兵员持续短缺的现象。而联邦政府针对服役人员的强制疫苗政策使以上情况变得更加严重。
+“欧洲国家一再坚持遵守世贸组织原则，但这些措施与这些原则背道而驰。”
 
-据悉，国防部去年命令所有军人必须在 12 月中旬之前完全接种疫苗。该命令到期后，军方已向近 1,000 名拒绝接种者发出警告，同时对 445 名违抗疫苗接种令的成员进行了正式审查。
+“在这方面，我已指示政府对西方各国决定的合法性进行全面检查。” 他还下令对世贸组织进行战略变革。
 
-国防部发言人当天称，自 去年12 月以来，已有 39 人因违反接种令被军队开除，206 人正在被开除的过程中，另有94 人自行辞职。而目前加拿大军队距离人员满编则缺少大约 10,000 名军人。
+信息来源：
+[「西側制裁はWTOの原則に違反」、戦略変更を示唆＝プーチン大統領](https://news.yahoo.co.jp/articles/830c528a485e3bf622261e09933563f166b8af99)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248](https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

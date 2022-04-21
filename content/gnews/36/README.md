@@ -2,28 +2,30 @@
 ---
 
 
-## 兵力不足 普京试图建立“儿童军队”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2381428/)
+## 多伦多发生乘客被推下地铁事件
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2381883/)
 
-作者：Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月19日，据相关媒体消息显示，由于俄罗斯军队在乌克兰遭受了重大的损失，普京正在试图从“爱国俱乐部”中招募年仅16岁的俄罗斯青少年组成“儿童军队”，用以填补俄军超过三万名在战争中被杀、受伤或被俘的士兵缺口。
+作者：加拿大温哥华扬帆农场 – 自由法兰西
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20141117215627_9864.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16504841611.png)图片来源：Global News
 
-报道提及，这些被招募的年轻人正在接受相关的军事训练。随后，他们将被莫斯科当局强迫派往对乌克兰的入侵前线。目前，他们之中的部分人已经被投入战争并于战场上阵亡。据悉，有乌克兰士兵在交战中发现了不应该被部署到战区的俄罗斯军事学员的徽章。
 
-对此，乌克兰议会人权专员柳德米拉-丹尼索娃表示，俄罗斯境内参加所谓“爱国俱乐部”的儿童正在被普京政府动员成为非法武装组织。同时，有官员已经向联合国发出呼吁，要求调查普京涉嫌非法部署儿童兵的行为。
+据&lt;环球新闻&gt;4月18日报道，多伦多警方当天宣称，一名女子日前晚间被另一名陌生女性推下地铁站台，险些被来往的地铁列车撞倒。
 
-参考链接：[Vladimir Putin building ‘kid’s army’ from after-school clubs to cover for Russian losses](https://www.mirror.co.uk/news/world-news/putin-building-kids-army-after-26741075)
+据悉，事件发生在多伦多市中心的地铁站，时间是晚上9点左右。一名39岁的妇女被故意推下站台后摔成重伤，但幸运的是未被列车撞到，暂无生命危险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+警方对此表示，目前仍然在逃的犯罪嫌疑人为一名金发女性，与受害者并不认识，且事件发生之前，二人之间也并无发生任何争执，警方目前已公布了嫌疑人的照片。
 
-编辑：飞虹
-总编：Irene木木
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+近期美加地区已发生多起随机故意伤人致死案件，更有多宗专门针对亚裔人群仇恨暴力事件发生，请广大战友们对此多加小心。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/](https://globalnews.ca/news/8766511/ttc-subway-woman-pushed-tracks-bloor-yonge-station/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

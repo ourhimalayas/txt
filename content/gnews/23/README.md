@@ -2,29 +2,25 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2383091/)
+## 视频|集中力量办大事，究竟是办谁的大事 「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2383168/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-20.png)
+【文案编辑】爱米粒 
+【文案线索】菜园子112~尕虎 
+【文案审核】北评2025 
+【制作团队】大直播短视频组 
+【视频剪辑】文果
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】[https://discord.com/channels/895274776606699583/941690610681798716/964169554404188182](https://discord.com/channels/895274776606699583/941690610681798716/964169554404188182)
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p16a2eo8df8](https://gettr.com/post/p16a2eo8df8)
-访谈：[https://gettr.com/post/p16a19y4d37](https://gettr.com/post/p16a19y4d37)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
