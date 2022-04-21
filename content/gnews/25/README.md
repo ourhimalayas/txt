@@ -2,55 +2,87 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.21E）第三针加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383851/)
+## 俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（6/6）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2384130/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：噜噜咪
 
-整理/编辑：红红火火
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-52.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**博主:  KK**
 
-**帖子原文:**
+**[接上篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（5/6）](https://gnews.org/zh-hans/2383987/)**
 
-**一针辉瑞+两针摩德纳还是没扛住**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-444.jpg)周二，在基辅附近的Zalisia村，志愿者们向当地人分发人道主义援助。
 
-小心翼翼防护了两年，一顿饭全毁了
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-182.jpg)周二，在乌克兰哈尔科夫，一名妇女在俄罗斯轰炸后走到一栋被毁坏的建筑物旁。
 
-嗓子奇疼：感冒跟它比完全不是一个层级的疼！就像一个电锯24小时不间断在锯你的嗓子，连着耳朵一起锯的那种。
+正如基辅周围的攻势停滞不前一样，俄罗斯的失败将使其占领军容易受到乌克兰的反击，并可能促使其撤退到叛军控制的顿涅茨克和卢甘斯克地区，以及克里米亚。
 
-发高烧：今天是有症状的第三天，断断续续烧了3天，都在38°往上。
+取决于乌克兰在战后还剩下多少部队，这也可能为攻击这些先前被占领的地区提供可能性，目的是让它们回到乌克兰的控制之下——泽伦斯基曾说这是他的目标之一。
 
-无法入睡：嗓子疼到真的睡不着，每天夜里能睡俩钟头算不错了。可能因为没法好好睡觉，也会影响恢复吧。
+这样的灾难性损失，即使是普京政权也很难向俄罗斯人民解释，而且他是否能在反击中幸存下来也有待商榷。
 
-吃了泰诺，完全没有用，盖着被子也不发汗，不过还在坚持吃。每天也开始喝vc了，希望早点好吧！！！
+同时，乌克兰的主要谈判代表说，由于俄罗斯对马里乌波尔的轰炸，很难预测何时能恢复和平谈判。
 
-**#****新冠疫苗****  #****疫苗加强针**** #嗓子疼#高烧**
+自3月29日以来，基辅和莫斯科没有举行过面对面的会谈，而且由于乌克兰指控俄罗斯军队在基辅附近的布查镇实施了暴行，气氛已经变坏。
 
-**发布于 2022-04-19**
+乌克兰最高谈判代表米哈伊洛·波多利亚克说，对马里乌波尔的持续围困以及为疏散被困的乌克兰平民安排安全通道的尝试一再失败，也使事情变得复杂。
 
-**精选评论**
+“很明显，在马里乌波尔悲剧的背景下，谈判进程变得更加复杂，”他说。
 
-泳池里的阿甘:
+“当涉及到某些人道主义走廊时，俄罗斯公然放弃了任何人性和人道主义的表现。特别是当我们谈到马里乌波尔时。”
 
-目前只能靠自身免疫力。染上后自身免疫力强的可自行恢复阴性，只能说你依靠错了对象
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2568.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2569.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2570.png)图片来源：小红书
-参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
+双方都指责对方破坏了和平谈判，以及关于平民安全走廊的谈判失败。
 
-*发布：tianzhihuan*
+波多利亚克说，正在网上继续进行一些接触，以“清理”就未来保障乌克兰安全所达成的协议，确保它们符合国际法的规定。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+他说：“很难说何时能够进行下一轮面对面的谈判，因为俄罗斯人正认真地押注于（在）所谓的“第二阶段的特别行动”中取得成果。
+
+当地政府称，在围攻马里乌波尔的过程中，有超过2万人被杀，俄罗斯已经向躲在钢铁厂里的最后一批乌克兰守军发出了最后通牒，要求他们投降或死亡。波多利亚克说，俄罗斯为了“内部宣传”的目的，想粉碎马里乌波尔的最后一批战士。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-158.jpg)乌克兰总统沃洛基米尔·泽伦斯基周一表示，俄罗斯在东部顿巴斯地区的大规模攻势已经开始。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-143.jpg)2022年4月17日，在乌克兰南部港口城市马里乌波尔，一名男子在一栋在乌俄冲突中被摧毁的住宅楼附近行走。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-104.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-83.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-68.jpg)
+
+泽伦斯基的参谋长安德烈·叶尔马克称俄罗斯的新攻击是“战争的第二阶段”，并向乌克兰人保证他们的部队可以抵挡住进攻。
+
+“相信我们的军队，它非常强大，”他说。
+
+在泽伦斯基讲话前不久，东部卢甘斯克地区的州长谢尔盖·盖达伊也宣布俄罗斯开始了备受关注的进攻。
+
+“这就是地狱。进攻已经开始，我们已经谈论了数周。鲁比兹内和波帕斯纳不断发生战斗，其他和平城市也在战斗，”他在脸书上说。
+
+据地方当局称，俄罗斯的炮击周一在乌克兰东部造成至少8名平民死亡。
+
+盖达伊说，有四人在试图逃离卢甘斯克的克雷明纳市时死亡，俄罗斯军队周一占领了该市。
+
+在邻近的顿涅茨克州，州长帕夫洛·基里连科说，在俄罗斯的轰炸之后，还有四名平民死亡，而在哈尔科夫，一名男子和一名妇女也因炮弹击中一栋居民楼附近的游乐场而身亡。
+
+新闻来源：[‘Russia continues failing to achieve its aims as quickly as it would like’: MoD says Ukrainian forces are ‘repelling numerous attempted advances’ as Russian shelling ‘increases’ in Donbas](https://www.dailymail.co.uk/news/article-10732907/MoD-says-Ukraine-repelling-numerous-attempted-advances-Russian-forces-Donbas.html)
+
+* * *
+
+素材:peacelv
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 

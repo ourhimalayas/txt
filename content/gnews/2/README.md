@@ -2,47 +2,26 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.21F）新冠疫苗副作用非常明显
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2384387/)
+## 樱花时政┃俄乌战争乌克兰难民今突破500万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384502/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+联合国在日内瓦难民署的数据，自俄罗斯入侵开始以来，已有5,034,439名乌克兰人离开他们的国家，比周二公布的数字多了53,850人。据联合国难民机构副高级专员凯利·克莱门茨说：“经过八周的冲突，我们统计的数字已经达到500万，而且还在不断增加，这是500万个关于损失和创伤的悲惨故事。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄乌战争乌克兰难民今突破500万.png)图片来源于本文链接
+国际移民组织(IOM)表示，超过21.8万名非乌克兰人，主要是学生和移民工人，也已经离开乌克兰前往邻国，这意味着自战争开始以来，总共有超过525万人逃离了乌克兰。
 
-**整理/编辑：红红火火**
+信息来源： 
+[乌战难民今过500万](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220420-%E4%B9%8C%E6%88%98%E9%9A%BE%E6%B0%91%E4%BB%8A%E8%BF%87500%E4%B8%87)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**博主:  玛丽艳美容顾问-武武**
-
-**帖子原文:**
-
-新冠第三针荨麻疹
-
-打第一针后的第21天本来准备要打第二针了，结果荨麻疹全身，晚上特别睡觉热的时候就起，吃完美清调补调理一星期才好。
-
-然后就去打第二针，第二针没事。一直犹豫纠结要不要打第三针，因为听说第三针比较厉害
-
-昨天信誓旦旦的去打第三针，结果晚上就又起荨麻疹了，特别痒，起了擦芦荟胶自己消，然后又在别的地方起，白天就自然消失看不见，晚上一睡觉就起，还有点呼吸不过来，赶紧起来吃点完美牌维生素C片。
-
-希望接下来的日子不要闹了
-
-**#荨麻疹 #新冠第三针**
-
-**发布于 2022-04-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.212.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4.232312.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/REWRE12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/RWER.212.jpg)图片来源：小红书
-参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

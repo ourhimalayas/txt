@@ -2,38 +2,20 @@
 ---
 
 
-## 多户住宅单位激增，3月房屋开工和许可数量上升
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2383841/)
+## 视频|俄乌战局最新消息汇总
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2384128/)
 
-据《Zerohedge》记者：Tyler Durden，2022年4月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2566-e1650521745641.png)图片来源：Forbes
-随着抵押贷款利率上升、房屋建筑商情绪下滑以及房屋销售疲软，分析师曾预计 3月份房屋许可和开工数环比下降，但由于2月份数据的向下修正，房屋开工数令人惊讶的环比增长0.3%（对比 -1.6% 环比预期) 和房屋建造许可环比增长 0.4%(对比 -2.4% 环比预期)…
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2567.png)资料来源：《彭博社》
-新屋开工率升至2006年以来的最高SAAR…
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2571.png)资料来源：《彭博社》
-许可证和开工大幅增长的部分原因为多户单位作为单户单位进行建设推动。
+制作：香草山视频部
 
-随着单户住宅开工回落，多户住宅的开工率飙升（分别为-.7%SAAR和 +7.5%SAAR）。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2572.png)资料来源：《彭博社》
-同样，单户住宅许可证下降，而多户住宅许可证上升（分别为-4.8% SAAR和 +10.9% SAAR）。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2573.png)资料来源：《彭博社》
-然而这些都无助于单户库存的惨淡，因此也无助于提升负担能力。
+截止当地时间4月19日，俄罗斯军队再次开始了在乌克兰东部的新阶段大规模进攻行动。在重炮支援下，俄军的这次进攻主要着重于波帕斯纳亚、鲁别日诺耶和马林卡方向。目前，俄军侵入了鲁别日诺耶正西北的克雷明纳地区，而为了进一步推进，该地区的俄罗斯部队正在试图打散当地的乌克兰守军。但消息人士认为，俄军的进攻行动很难真正取得任何重大进展。与此同时，俄罗斯军队仍在使用战略轰炸机和重炮继续猛烈攻击马里乌波尔市亚速工厂周围的乌克兰防御阵地。据悉，马里乌波尔的乌克兰守军当前已经成功牵制住了当地的俄罗斯侵略军，但为了使得其他地区的战事不受影响，乌克兰海军陆战队第36旅的指挥官正在呼吁美国和欧盟向乌克兰部队提供更多的重型武器。
+另据乌克兰方的消息显示，乌克兰军队在哈尔科夫东南部发起的反击行动全数取得了胜利。当前，乌军已经重新夺回了巴扎利夫卡、列比亚兹和库图兹夫卡，以及伊久姆附近的几个村庄。此外，乌克兰军队成功控制了M03公路的部分路段，以此截断了俄军从哈尔科夫郊区直达伊久姆的线路。有消息称，未来几天内，鉴于乌克兰守军的猛烈攻势，俄军可能不得不抽出一些原计划用于伊久姆前线的兵力，用以确保其在哈尔科夫周边设置的补给线。至于基辅和乌克兰东北部，以及赫尔松以西的奥列克桑德利夫卡，俄乌双方的交战仍在继续。
+另一方面，乌克兰军情局在一份报告中指出，拒绝参战的俄罗斯士兵的数量正在不断增长，这当中包含了俄罗斯第8集团军和第150摩步师在乌克兰东部主战部队的60%到70%的合同兵。但乌克兰军情局也透露，莫斯科当局正在以家人和莫须有的犯罪记录威胁这些拒绝参战的士兵。另外，知情人士也提到，俄罗斯正企图在罗斯托夫和克里米亚组建更多的部队，用以形成第二梯队，以便控制占领区的行政大楼和其他重要基础设施。
 
-文章来源：[h](https://www.zerohedge.com/personal-finance/multi-family-unit-surge-spraks-rise-housing-starts-permits-march)[ttps://www.zerohedge.com/personal-finance/multi-family-unit-surge-spraks-rise-housing-starts-permits-march](//www.zerohedge.com/personal-finance/multi-family-unit-surge-spraks-rise-housing-starts-permits-march)
+发稿：qiutian（邱甜）
 
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

@@ -2,23 +2,25 @@
 ---
 
 
-## 疫情｜台湾官方预估“4月底单日确诊破万”规划第四剂
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2384194/)
+## 樱花时政┃乌克兰军队得到美英军机和新空战武器的支援
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384351/)
 
-**港台前线 zhong｜2022-4-21**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-11.png)
-台湾今（21）日本土新增2969例，再创历史新高，连续六天破千例，确诊成长十分迅速，台湾疫情预计会大规模发生。防疫指挥官陈时中20日记者会称，预估4月底单日确诊可能破万例，建议（若对生活限制不大）疫苗打好打满，但不强制。（目前，台湾新冠疫苗覆盖率：第一剂84.24%；第二剂79.49%；第三剂56.84%）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6300352-scaled.jpeg)**衛福部推估台灣確診趨勢**/行政院提供
-此外，若台湾单日确诊突破十万例，陈时中表示不希望拉升，但有相应准备（药物），将以香港、纽西兰、澳洲、日本、韩国等地经验做好准备。目前，台湾多县市以采取“轻症居家照护、不公布疫调足迹”模式，明显为模仿日韩等国，为保留医疗量能。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-21-下午2.24.01.png)
-卫生福利部传染病防治谘询会预防接种组(ACIP)20日召开，通过优先上“年长者、安养机构、免疫力低下族群”优先接种第四剂，一般民众暂不用；莫德纳疫苗可适用于6至11岁儿童；青少年（12-17岁）第三剂也获共识。（目前，台湾新冠疫苗覆盖率：第一剂84.24%；第二剂79.49%；第三剂56.84%）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_2022-04-21-15.09.38.jpeg)
-来源｜[自由](https://news.ltn.com.tw/news/life/breakingnews/3899602)、[ETTODAY](https://www.ettoday.net/news/20220420/2234157.htm)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+五角大楼发言人科比19日在新闻发布会上提到，乌克兰已收到一批额外军机，另有零件可供修复受损的飞机重返战场，可运作的战斗机甚至超过2周前的数量。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-91.png)图片来源于本文链接
+科比说，“乌接收了额外的军机和零件，让乌军能有更多飞机在空中飞行”、“我们的确协助了这批额外备品的运送，来满足他们的军机需求。”自从2月24日俄罗斯入侵乌克兰以来，美国已提供乌超过30亿美元军援，包括取自美军库存的标枪防空飞弹和武装无人机。两周前，英国防部向乌军展示了13吨重“风暴者”导弹发射车，并将可以在几天内将装甲车由C-17运输机运送到乌克兰。这些装备是迄今为止送往乌克兰的最好的装备，它会让俄军瑟瑟发抖。
 
-* * *
+信息来源： [乌克兰军队得到军机和新空战武器的支援](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E8%A6%81%E9%97%BB%E5%88%86%E6%9E%90/20220420-%E4%B9%8C%E5%85%8B%E5%85%B0%E5%86%9B%E9%98%9F%E5%BE%97%E5%88%B0%E5%86%9B%E6%9C%BA%E5%92%8C%E6%96%B0%E7%A9%BA%E6%88%98%E6%AD%A6%E5%99%A8%E7%9A%84%E6%94%AF%E6%8F%B4)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

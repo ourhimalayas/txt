@@ -2,29 +2,30 @@
 ---
 
 
-## 日本官房长官表示关注“中国所罗门安全协议”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384140/)
+## 俄罗斯试射可以搭载核弹头的导弹以威胁敌人
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2384329/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-125.png)（图片源自本文链接）
+普京吹嘘新的新洲际弹道武器会让敌人三思。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-25.png)俄罗斯在普列谢茨克试验场试射“萨尔马特”洲际弹道导弹。俄罗斯国防部/法新社/盖蒂图片社
+据《守护者报》引用路透社2022 年 4 月 20 日报道：
 
-4月21日产经新闻消息：内阁官房长官松野博一在21日的新闻发布会上说，中共国宣布与南太平洋所罗门群岛达成安全合作协议，可能对整个太平洋地区的安全产生影响。我们正在密切关注着事态发展。
+俄罗斯表示，它已经试射了萨马特（Sarmat）洲际弹道导弹，这是其核武库的新成员，弗拉基米尔·普京（Vladimir Putin）表示，这将使莫斯科的敌人有所顾虑。
 
-松野先生说，协议的细节仍在确认中，就包括安全问题在内的太平洋和岛国地区的问题，将继续与有关国家密切合作加以解决。
+电视上显示，军方告诉俄罗斯总统，这枚导弹从西北部的普列谢茨克（Plesetsk）发射，击中了远东堪察加半岛（Kamchatka）的几个目标。
 
-关于21日岸田文雄首相和新西兰总理阿德恩的峰会，他表示”将会坚定的围绕实现自由和开放的印度洋-太平洋这条线进行”。
+普京说：“新系统具有极高的战术和技术特性，能够克服所有现代反导弹防御手段。世界上没有导弹可以与之匹敌，而且在很长一段时间内也不会有”。
 
-信息来源： [官房長官、中ソロモン安保協定「懸念もって注視」（産経新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/db24c71425aba0c5741969a223b5911b7fed0bc1)
+“这种真正独特的武器将增强我们武装部队的战斗力，可靠地确保俄罗斯的安全免受外部威胁，并让那些用疯狂的攻击性言论威胁我们国家的人有所顾虑。”
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+五角大楼周三表示，俄罗斯已在试射前正常地进行了通知，并补充说他们认为这次试射是例行公事，而不是对美国的威胁。
+
+据美国国会研究局称，预计俄罗斯将在每枚“萨尔马特”导弹上部署 10 枚或更多的弹头。
+
+它已经研发了多年，因此它的试射对西方来说并不意外，但时机敏感：正值俄罗斯对乌克兰的战争导致地缘政治极端紧张的时刻。
+
+原文链接：[https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon](https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon)
+
+翻译：Nick｜校对：JS709｜编辑&发布：小蜜蜂
 
  
 
