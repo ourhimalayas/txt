@@ -2,21 +2,30 @@
 ---
 
 
-## 俄罗斯准备启动针对欧盟和美国进行网络攻击
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2384136/)
+## 俄罗斯试射可以搭载核弹头的导弹以威胁敌人
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2384329/)
 
-#### 撰稿：日本东京方舟农场 北极
+普京吹嘘新的新洲际弹道武器会让敌人三思。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-25.png)俄罗斯在普列谢茨克试验场试射“萨尔马特”洲际弹道导弹。俄罗斯国防部/法新社/盖蒂图片社
+据《守护者报》引用路透社2022 年 4 月 20 日报道：
 
-据乌克兰今天网站4月21日报道，本周三，五眼联盟成员国的情报机构在美国网络安全局（CISA）网站联合发表声明称，俄罗斯正在谋划对支持和资助乌克兰的国家发动一系列大规模网络攻击。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/22-9.png)网络安全专家示意图。（图片来自乌克兰今天）
-五眼联盟成员国的情报机构包括：美国网络安全和基础设施安全局（CISA）、联邦调查局（FBI）、国家安全局（NSA）、澳大利亚网络安全中心（ACSC）、加拿大网络安全（CCCS）、新西兰国家网络安全中心 （NZ NCSC）和英国国家网络安全中心（NCSC-UK）和国家犯罪局（NCA）。
+俄罗斯表示，它已经试射了萨马特（Sarmat）洲际弹道导弹，这是其核武库的新成员，弗拉基米尔·普京（Vladimir Putin）表示，这将使莫斯科的敌人有所顾虑。
 
-参考链接：
-1:[https://reurl.cc/NAjmYp](https://reurl.cc/NAjmYp) 
-2:[https://reurl.cc/8oGZDX](https://reurl.cc/8oGZDX)
+电视上显示，军方告诉俄罗斯总统，这枚导弹从西北部的普列谢茨克（Plesetsk）发射，击中了远东堪察加半岛（Kamchatka）的几个目标。
 
-总编： 青城道姑
-发布：土清风
+普京说：“新系统具有极高的战术和技术特性，能够克服所有现代反导弹防御手段。世界上没有导弹可以与之匹敌，而且在很长一段时间内也不会有”。
+
+“这种真正独特的武器将增强我们武装部队的战斗力，可靠地确保俄罗斯的安全免受外部威胁，并让那些用疯狂的攻击性言论威胁我们国家的人有所顾虑。”
+
+五角大楼周三表示，俄罗斯已在试射前正常地进行了通知，并补充说他们认为这次试射是例行公事，而不是对美国的威胁。
+
+据美国国会研究局称，预计俄罗斯将在每枚“萨尔马特”导弹上部署 10 枚或更多的弹头。
+
+它已经研发了多年，因此它的试射对西方来说并不意外，但时机敏感：正值俄罗斯对乌克兰的战争导致地缘政治极端紧张的时刻。
+
+原文链接：[https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon](https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon)
+
+翻译：Nick｜校对：JS709｜编辑&发布：小蜜蜂
 
  
 

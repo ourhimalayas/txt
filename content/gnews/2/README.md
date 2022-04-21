@@ -2,27 +2,34 @@
 ---
 
 
-## 疫情｜台湾官方预估“4月底单日确诊破万”规划第四剂
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2384194/)
+## 俄羅斯試射可以搭載核彈頭的導彈以威脅敵人
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2384354/)
 
-**港台前线 zhong｜2022-4-21**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-11.png)
-台湾今（21）日本土新增2969例，再创历史新高，连续六天破千例，确诊成长十分迅速，台湾疫情预计会大规模发生。防疫指挥官陈时中20日记者会称，预估4月底单日确诊可能破万例，建议（若对生活限制不大）疫苗打好打满，但不强制。（目前，台湾新冠疫苗覆盖率：第一剂84.24%；第二剂79.49%；第三剂56.84%）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6300352-scaled.jpeg)**衛福部推估台灣確診趨勢**/行政院提供
-此外，若台湾单日确诊突破十万例，陈时中表示不希望拉升，但有相应准备（药物），将以香港、纽西兰、澳洲、日本、韩国等地经验做好准备。目前，台湾多县市以采取“轻症居家照护、不公布疫调足迹”模式，明显为模仿日韩等国，为保留医疗量能。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-21-下午2.24.01.png)
-卫生福利部传染病防治谘询会预防接种组(ACIP)20日召开，通过优先上“年长者、安养机构、免疫力低下族群”优先接种第四剂，一般民众暂不用；莫德纳疫苗可适用于6至11岁儿童；青少年（12-17岁）第三剂也获共识。（目前，台湾新冠疫苗覆盖率：第一剂84.24%；第二剂79.49%；第三剂56.84%）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_2022-04-21-15.09.38.jpeg)
-来源｜[自由](https://news.ltn.com.tw/news/life/breakingnews/3899602)、[ETTODAY](https://www.ettoday.net/news/20220420/2234157.htm)
+普京吹噓新的新洲際彈道武器會讓敵人三思。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-25.png)俄羅斯在普列謝茨克試驗場試射“薩爾馬特”洲際彈道導彈。俄羅斯國防部/法新社/蓋蒂圖片社
+據《守護者報》引用路透社2022 年 4 月 20 日報道：
 
-* * *
+俄羅斯表示，它已經試射了薩馬特（Sarmat）洲際彈道導彈，這是其核武庫的新成員，弗拉基米爾·普京（Vladimir Putin）表示，這將使莫斯科的敵人有所顧慮。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+電視上顯示，軍方告訴俄羅斯總統，這枚導彈從西北部的普列謝茨克（Plesetsk）發射，擊中了遠東堪察加半島（Kamchatka）的幾個目標。
+
+普京說：“新系統具有極高的戰術和技術特性，能夠克服所有現代反導彈防禦手段。世界上沒有導彈可以與之匹敵，而且在很長一段時間內也不會有”。
+
+“這種真正獨特的武器將增強我們武裝部隊的戰鬥力，可靠地確保俄羅斯的安全免受外部威脅，並讓那些用瘋狂的攻擊性言論威脅我們國家的人有所顧慮。”
+
+五角大樓週三表示，俄羅斯已在試射前正常地進行了通知，並補充說他們認為這次試射是例行公事，而不是對美國的威脅。
+
+據美國國會研究局稱，預計俄羅斯將在每枚“薩爾馬特”導彈上部署 10 枚或更多的彈頭。
+
+它已經研發了多年，因此它的試射對西方來說並不意外，但時機敏感：正值俄羅斯對烏克蘭的戰爭導致地緣政治極端緊張的時刻。
+
+原文鏈接：[https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon](https://www.theguardian.com/world/2022/apr/20/russia-tests-nuclear-missile-putin-intercontinental-ballistic-weapon)
+
+翻譯：Nick｜校對：JS709｜編輯&發佈：小蜜蜂
 
  
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+免責聲明：本文內容僅代表作者個人觀點，平台不承擔任何法律風險。
 
 - [ROL Foundation](https://rolfoundation.org/)
 - [ROL Society](https://rolsociety.org/)
