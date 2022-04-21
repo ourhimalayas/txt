@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 8:48 PM (UTC)`
+
+2022.04.21  新中国联邦 | 喜健康   病毒满视野，我们该吃啥？
+![img](https://media.gettr.com/group27/origin/2022/04/21/20/7b7b1da2-2865-3b39-20ba-69f0e60f739d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 8:14 PM (UTC)`
 
 Volunteers at the Medyka rescue center joined us talking about the meaning of the VOA’s 419 interruption incident. Nicole introduced that VOA, a US taxpayers funded international broadcast which is owned by the US government, abruptly shut down an interview with Mr. Miles Guo after receiving an order from some Chinese Communist Party (CCP) high officials. One of the volunteers said it’s heartbreaking to hear such an incident happening in the United States, which is supposed to be a symbol of freedom and democracy. Another volunteer said people need the truth and not be dissuaded by fear or threats.<br/>在梅迪卡营救中心的几位义工加入我们谈论关于美国之音419断播事件的意义。妮可介绍了美国之音，一家由美国纳税人资助的隶属美国政府的国际广播，在采访郭文贵先生过程中收到了来自中共高层的命令，突然中断了采访。其中一名义工说听到这个事件在美国这样一个代表自由和民主的国家发生，是令人心碎的。另一名义工说人们需要了解真相，并且不被恐惧和威胁吓倒。
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group4/origin/2022/04/21/04/e9844c4d-b3fd-d90c-f4f0-13b2f979b4ca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 3:03 AM (UTC)`
-
-4/20/2022 Miles Guo’s GETTR: Intense battles are expected to happen this week in the Russia-Ukraine war, and Putin is going to gain leverage through the battles for negotiations; the Taiwan issue involves multiple aspects, and the complicated situation brings little hope for Taiwan; the CCP’s “zero-Covid” control across the country is just its end-of-life rally<br/><br/>4/20/2022 文贵盖特： 俄乌战场本周将有大战，背后的目的就是普京要借此要挟和世界讲数；台湾问题涉及很多方面，情况复杂希望渺茫；中共的“清零”管控是其灭亡前的最后挣扎<br/>
-![img](https://media.gettr.com/group35/getter/2022/04/21/03/9fbc825c-557f-4acd-880e-374865068b2d/out.jpg)
 
 ---
 

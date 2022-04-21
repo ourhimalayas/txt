@@ -15,8 +15,8 @@
 
 ---
 
-### [DC每日热点0421](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [五月花简报（04/21/2022）](/content/gnews/2/README.md)
  ` mayflowertranslate`
@@ -75,68 +75,68 @@
 ### [美国防高官：俄军吸取失败教训并疯狂反扑](/content/gnews/20/README.md)
  ` 蓝莲花农场`
 
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月19日晚](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/22/README.md)
+### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [南希·佩洛西4月26日访台](/content/gnews/23/README.md)
+### [南希·佩洛西4月26日访台](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/24/README.md)
+### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/23/README.md)
  ` 蓝莲花农场`
 
-### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/25/README.md)
+### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国，CCP造假摆拍防疫就诊](/content/gnews/26/README.md)
+### [中共国，CCP造假摆拍防疫就诊](/content/gnews/25/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国宣布接纳乌克兰难民的计划](/content/gnews/27/README.md)
+### [美国宣布接纳乌克兰难民的计划](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [韩国学者以垃圾为宝研究朝鲜人们的生活](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文编|俄罗斯中将莫德韦切夫被击毙意味着普京已经被打到穷困潦倒](/content/gnews/29/README.md)
+### [文编|俄罗斯中将莫德韦切夫被击毙意味着普京已经被打到穷困潦倒](/content/gnews/27/README.md)
  ` KarmaLabs`
 
-### [世界上最大的金条价值飙升](/content/gnews/30/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文编|莫德韦切夫将军被干掉，对中共的影响有多大](/content/gnews/31/README.md)
+### [文编|在中国英雄无好结果 开国将军也不例外](/content/gnews/29/README.md)
  ` KarmaLabs`
 
-### [文编|在中国英雄无好结果 开国将军也不例外](/content/gnews/32/README.md)
- ` KarmaLabs`
-
-### [普京宣布占领马里乌波尔](/content/gnews/33/README.md)
+### [普京宣布占领马里乌波尔](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/34/README.md)
+### [美国及世界疫情简报（04-21-2022）](/content/gnews/31/README.md)
  ` 波士顿五月花农场`
 
-### [文编|乌克兰前线救援行动是对新中国联邦人的人格，道德，人性的一场考试！](/content/gnews/35/README.md)
+### [文编|乌克兰前线救援行动是对新中国联邦人的人格，道德，人性的一场考试！](/content/gnews/32/README.md)
  ` KarmaLabs`
 
-### [文编|波音737广西坠机真相](/content/gnews/36/README.md)
+### [文编|波音737广西坠机真相](/content/gnews/33/README.md)
  ` KarmaLabs`
 
-### [文编|未来的欧洲是乌克兰的欧洲 中国人将是被世界最恨的人](/content/gnews/37/README.md)
+### [文编|美国人要动手了，卖股票的朱镕基家](/content/gnews/34/README.md)
  ` KarmaLabs`
 
-### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/38/README.md)
+### [文编|傅政华，孙力军之前转移的钱财](/content/gnews/35/README.md)
+ ` KarmaLabs`
+
+### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/39/README.md)
+### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [六月的鲜花和文科战友采访了两个来自俄罗斯的救援义工](/content/gnews/40/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [文编|习近平的反腐“割”命](/content/gnews/38/README.md)
+ ` KarmaLabs`
 
-### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/41/README.md)
+### [文编|战争打得都是钱 将来俄罗斯、中国一定被肢解](/content/gnews/39/README.md)
+ ` KarmaLabs`
+
+### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/40/README.md)
  ` 经济小组`
+
+### [郭文贵精品视频-习近平搞核糖核酸“一剑四雕”](/content/gnews/41/README.md)
+ ` cindy`
 
 ### [4/21/2022 国际财经快讯：美国经济在高通胀和乌克兰战争影响下温和增长; 特斯拉第一财季利润达到创纪录的33亿美元](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`

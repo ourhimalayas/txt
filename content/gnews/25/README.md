@@ -2,13 +2,22 @@
 ---
 
 
-## 在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2387548/)
+## 中共国，CCP造假摆拍防疫就诊
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2387462/)
 
-04/20/2022 在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”
+作者：东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
+
+
+
+
+
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
