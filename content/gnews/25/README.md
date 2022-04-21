@@ -2,35 +2,24 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2381191/)
+## 越来越多的俄罗斯精英开始质疑普京的入侵计划
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2381777/)
 
-作者：香草山翻译部
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16504814991-1.png)DW.com
+据福克斯新闻4月20日报道，有克里姆林宫的高层官员开始质疑普京对乌克兰开战的决定。但他的支持率仍然居高不下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
+普京在俄罗斯精英中的支持率居高不下的原因是，许多人依然相信克林姆林宫的话；即俄罗斯不会受西方制裁太大的影响。尽管如此，越来越多的人认为，普京继续入侵将使俄罗斯孤立于世界。俄罗斯经济的瘫痪将影响到其全球影响力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-19.png)
+消息人士说，入侵乌克兰的决定是由普京和俄罗斯国防部长谢尔盖·绍伊古 （Sergei Shoigu）、俄罗斯上将瓦莱里·格拉西莫夫（Valery Gerasimov）和俄罗斯安全理事会主席尼古拉·帕特鲁舍夫 （Nikolai Patrushev）等少数俄罗斯精英做出的。
 
-文章仅代表作者本人观点，与Gnews无关
+鉴于战争持续了近两个月，和经济制裁加剧，包括俄罗斯政府和国有企业在内的高层认为，入侵是一个灾难性的错误。这将使该国的经济 倒退很多年。
 
-视频参看：
-[2022.04.20早 《NFSC新闻》](https://gettr.com/streaming/p167rafa925)
-[2022.04.20早《NFSC新闻访谈》](https://gettr.com/streaming/p167difa50c)
+随着俄罗斯军队的挫败，普京说，是西方让他 ”别无选择”，他只能攻打乌克兰。一些官员越来越担心在可能面临失败的情况下，普京可能会使用核武器。但目前普京对这些有关战争经济代价的警告毫不在意。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+*责编：白夜*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-17.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-53.png)
+[文章来源](https://www.foxnews.com/world/russian-officials-questioning-putins-decision-to-invade-ukraine-report)
 
 
 

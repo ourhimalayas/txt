@@ -2,11 +2,13 @@
 ---
 
 
-## 【419五周年】4/19/2022 信仰是不确定的，是包容的，是让你怀疑的；宗教是一成不变的，排他的，不容质疑的；新中国联邦人要有信仰，坚持唯真不破
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2382234/)
+## 被日本驱逐的俄罗斯外交官已于20日离境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2382629/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

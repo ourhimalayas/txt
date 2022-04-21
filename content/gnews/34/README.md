@@ -2,45 +2,30 @@
 ---
 
 
-## 尽管俄罗斯的最后通牒到期，马里乌波尔没有人投降
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2379873/)
+## 22%长期护理院爆发病毒，安省每天感染超十万
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2380970/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-52.png)
+《渥太华公民报》4月18日报道，安省今日报告有1301人因CCP病毒感染住院，比一周前高出约19%；重症监护室病人数量同比上升约10%，从184人上升到202人；两人死于病毒。然而报告同时显示，有超过10%的医院并未提供周末的病毒感染住院数据。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+省内今天报告有2219名新增病毒感染，但由于获得PCR测试机会受限，该数字可能并不准确。安省病毒顾问小组科学主任说，废水监测表明，该省实际每天有10万至12万个新增病毒感染病例。目前省内近22%的长期护理院报告爆发疫情感染 。
 
+原文链接：[https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/ontario-reports-1301-people-in-hospital-with-covid-19-and-202-in-icu/wcm/130df02b-1111-4a77-a942-4cc1777eed14)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SPOCS6QIYVJUHNBTA7VS7LOPU4.jpg)
+上传/发稿 – 大废墙
+撰稿/翻译/听写 – 自由法兰西🇫🇷
+素材/采编 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-资料来源：路透社
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-4 月 20 日（路透社）俄罗斯对马里乌波尔的乌克兰军队投降或死亡的最后通牒于周三下午到期，没有大规模投降，但据信在被围困城市坚守的部队指挥官表示，他的部队只能存活几天或小时。
-
-在大炮和火箭弹幕的支持下，成千上万的俄罗斯军队正试图在乌克兰官员所说的顿巴斯战役中向其他地方推进——莫斯科推动占领它代表分离主义者声称的两个东部省份。
-
-在一段视频中，乌克兰第 36 海军陆战旅（据信是最后一批在马里乌波尔坚守的部队之一）的指挥官请求国际帮助以逃离围困。
-
-“这是我们对世界的呼吁。这可能是我们的最后一次。我们可能只剩下几天或几个小时了，”Serhiy Volyna 少校在上传到 Facebook 的视频中说。 “敌方单位比我们大几十倍，他们在空中、火炮、地面部队、装备和坦克方面都占据主导地位。”
-
-Volyna 曾说妇女和儿童被困在植物下的地窖中，她在听起来像拥挤的房间的一堵白砖墙前讲话。路透社无法核实视频是在何时何地拍摄的，或者还有谁可能在房间里。
-
-基辅说，在战争最激烈的战斗和最严重的人道主义灾难的地点马里乌波尔的废墟中，俄罗斯正在用地堡炸弹袭击乌克兰最后一个主要据点亚速斯塔尔钢铁厂。
-
-总统顾问米哈伊洛·波多利亚克在推特上写道：“全世界都在关注网上谋杀儿童的事件，并保持沉默。”
-
-自战争开始以来，俄罗斯一直试图完全控制马里乌波尔。占领它将是一项重大的战略奖励，将东部亲俄分裂分子控制的领土与莫斯科于 2014 年吞并的克里米亚地区联系起来。
-
-俄罗斯支持的分离主义者在下午 2 点前不久表示。 （格林威治标准时间 1100）周三截止日期只有五人投降。前一天，俄罗斯表示没有人回应类似的投降要求。
-
-乌克兰宣布计划派出 90 辆公共汽车从马里乌波尔撤离 6,000 名平民，称已与俄罗斯就安全走廊达成“初步协议”，这是数周以来的首次。但这些早期的协议都没有真正在实地取得成功，莫斯科封锁了所有车队。
-
-简评： 俄罗斯入侵乌克兰已经进入了新的阶段， 最后的焦点就是在东部地区。 俄罗斯要求在马里乌波尔的军队投降， 并设定最后期限。 期限到期了，但是没有大批的投降迹象。 军队将领还表示， 他们绝不投降，但是请求援助， 他们只能坚持几天甚至几小时。 战争就是如此残酷， 每时每刻都在生死挑战中。
-
-[马里乌波尔没有人投降](https://www.reuters.com/world/middle-east/new-surrender-deadline-mariupol-west-promises-ukraine-more-arms-2022-04-19/)
-
-责任编辑、发布： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

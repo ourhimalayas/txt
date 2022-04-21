@@ -2,28 +2,31 @@
 ---
 
 
-## 中日财经爆|日元加速贬值至129日元兑1美元 创20年来最弱水平
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2377779/)
+## 俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378774/)
 
-撰稿：东京樱花团/peterwong
+**港台前线 zhong｜2022-4-20**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-8.png)
+欧盟理事会主席查尔斯．米歇尔（Charles Michel）通过推特对外界传达（20日）他已抵达乌克兰首都基辅，并称“基辅是自由民主欧洲的中心”，外媒报导称他将与泽连斯基会面。米歇尔本次访问乌克兰形成，外界事前并不知悉。外媒有提及，米歇尔欧盟理事会主席的身分，代表着欧盟27成员国。
 
-4月20日外汇市场上，日元汇率触及129日元兑1美元，这是日元自2002年4月以来的最弱水平。由于美国的长期利率上升导致广泛的日元抛售和美元买入，预计日本和美国之间的利率差距将扩大，日元继续快速贬值。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-164.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.j-cast.com%2Fkaisha%2Fimages%2Forigin%2F2022%2F04%2Fkaisha_20220410211142.jpg&amp;imgrefurl=https%3A%2F%2Fwww.newsdirectory3.com%2Fcontinued-depreciation-of-the-yen-against-the-dollar-will-the-us-streng)
-美联储官员对加快加息步伐表现出积极态度，美国长期利率连续第三天上升。日本方面，预计日本央行的货币宽松政策将维持低利率，而日美货币政策差异使得日元更容易被抛售。
+此前，欧洲议会主席梅措拉（Roberta Metsola）4月1日[突然访问基辅](https://gnews.org/zh-hant/2273281/)，会面泽连斯基及乌克兰及国会议长。欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔于4月8日也访问了基辅。
 
-日元贬值也是由于进口燃料和原材料价格飙升以及日本进口商对美元结算的需求膨胀。市场有观点认为日元兑美元可能贬值至135日元水平（证券交易策略师），投机者试图抛售日元，导致日元快速贬值。
 
-美国财长耶伦与财长铃木的会晤定于20日在华盛顿举行的二十国集团财长和央行行长会议上举行。日方也想讨论汇率走势，遏制突发波动。
 
-日元兑欧元、英镑、澳元等货币正在贬值，日元贬值的趋势更加突出。20日，日元兑欧元汇率为1欧元兑 139日元，为2015年6月以来约7年来的最低水平。
+> In Kyiv today. 
+> 
+> In the heart of a free and democratic Europe. [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) [pic.twitter.com/7DxTeoxtMc](https://t.co/7DxTeoxtMc)
+> — Charles Michel (@eucopresident) [April 20, 2022](https://twitter.com/eucopresident/status/1516668856651165708?ref_src=twsrc%5Etfw)
 
-消息来源:
 
-[２０年ぶり１ドル＝１２９円台…日米金利差拡大で円売り加速](https://www.yomiuri.co.jp/economy/20220420-OYT1T50085/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+来源｜[POLITICO](https://www.politico.eu/article/charles-michel-visit-kyiv-ukraine-eu/)、[GNEWS](https://gnews.org/zh-hant/2273281/)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
