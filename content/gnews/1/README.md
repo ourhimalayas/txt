@@ -2,13 +2,26 @@
 ---
 
 
-## 2022/4/19VOA断播五周年特别直播（图片9-17）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2388323/)
+## 上海检测出的阳性绝大多数是疫苗反应 北京正在准备极限大隔离
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2388425/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/A5D63A52-25E4-4749-A3A2-9DDA08589B52-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/61AFBF00-6175-4FE5-AAD2-E3BFED624C73-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/57FCC223-C51A-4BA3-AD69-3F51DEE06532-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/CAB63F8B-42A8-4C7A-8803-3E0E419145F0-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/01B34C52-3A12-440B-B464-4BDF5957B135-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8F6BF8AA-47C7-4411-B705-B1B6C9162A40-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B919EC21-1AB6-4E37-BADF-CB582F7144BF-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/FD71A8B1-2519-44FF-B37E-38AF715AB697-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B0B4F00E-DB0D-44F5-867D-034302C2B64F-scaled.jpeg)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+\*在上海，被检测出新冠阳性的案例，绝大多数实际上是因为疫苗mRNA的反应；
 
+\*北京的战友警告，北京正在准备大隔离。这次将会是更加残酷的极限测试，同时乘机消除，如老人，残疾人，病人等“累赘人口”。简单储备食品和物资，并不足够，要做好准备。
+
+视频来源: 20220419—郭先生大直播
+视频制作: 文星光
+文案:文星光
+
+**更多资讯，更多关注**
+[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

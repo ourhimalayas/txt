@@ -15,143 +15,143 @@
 
 ---
 
-### [2022/4/19VOA断播五周年特别直播（图片9-17）](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
+### [上海检测出的阳性绝大多数是疫苗反应 北京正在准备极限大隔离](/content/gnews/1/README.md)
+ ` 焦點20分`
 
-### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/2/README.md)
+### [4/21/2022 文贵直播：习近平目前的三个难处：1，经济已经崩塌； 2，党内政治斗争已经接近极限；3，仍然幻想干掉美国和美元](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海隔离期间的死亡人数及造成死亡的主要原因](/content/gnews/3/README.md)
+### [习近平深信自己是习一神 也迷信莫德尔周期定律](/content/gnews/5/README.md)
+ ` 焦點20分`
+
+### [4月21日勿忘香港（图片1-10）](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
+
+### [2022/4/19VOA断播五周年特别直播（图片9-17）](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [上海隔离期间的死亡人数及造成死亡的主要原因](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/4/README.md)
+### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/10/README.md)
  ` YALUN 亚伦`
 
-### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/5/README.md)
+### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争），唯一的变数就是习近平会铤而走险、毁灭台湾](/content/gnews/6/README.md)
+### [4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争），唯一的变数就是习近平会铤而走险、毁灭台湾](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [灭共者之郭氏情报站（51）2022/04/19 文贵大直播摘要](/content/gnews/7/README.md)
- ` MOS Designer香草山设计部`
-
-### [七哥提醒战友要有反抗得智慧和善用反抗的工具](/content/gnews/8/README.md)
+### [七哥提醒战友要有反抗得智慧和善用反抗的工具](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/9/README.md)
+### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（04/21/2022）](/content/gnews/10/README.md)
+### [五月花简报（04/21/2022）](/content/gnews/15/README.md)
  ` mayflowertranslate`
 
-### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/11/README.md)
+### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/12/README.md)
+### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/13/README.md)
+### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/14/README.md)
+### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/15/README.md)
+### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/16/README.md)
+### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/17/README.md)
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/22/README.md)
  ` 银河歌舞厅`
 
-### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/18/README.md)
+### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [Nancy Pelosi将于4月26日访问台湾](/content/gnews/19/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/20/README.md)
+### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/24/README.md)
  ` G-时新闻`
 
-### [为了释放金融储蓄中共国推出非公有制养老金](/content/gnews/21/README.md)
+### [截至4.21 俄乌战事汇总](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [截至4.21 俄乌战事汇总](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/23/README.md)
+### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/26/README.md)
  ` G-时新闻`
 
-### [美国向乌克兰提供13亿美元的额外援助](/content/gnews/24/README.md)
+### [美国向乌克兰提供13亿美元的额外援助](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/25/README.md)
+### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/26/README.md)
+### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [南希·佩洛西4月26日访台](/content/gnews/27/README.md)
+### [南希·佩洛西4月26日访台](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/28/README.md)
+### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/31/README.md)
  ` 蓝莲花农场`
 
-### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/29/README.md)
+### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国，CCP造假摆拍防疫就诊](/content/gnews/30/README.md)
+### [中共国，CCP造假摆拍防疫就诊](/content/gnews/33/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国宣布接纳乌克兰难民的计划](/content/gnews/31/README.md)
+### [美国宣布接纳乌克兰难民的计划](/content/gnews/34/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文编|中美战争正式开始 中共2%的人掌握96%的比特币，比特币去中心化是最大骗局](/content/gnews/32/README.md)
- ` KarmaLabs`
-
-### [世界上最大的金条价值飙升](/content/gnews/33/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/35/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [普京宣布占领马里乌波尔](/content/gnews/34/README.md)
+### [普京宣布占领马里乌波尔](/content/gnews/36/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [文编|战友的安全与健康排第一](/content/gnews/35/README.md)
- ` KarmaLabs`
-
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/36/README.md)
- ` 波士顿五月花农场`
 
 ### [文编|疫苗灾难导致互害的报复社会行为将越来越多](/content/gnews/37/README.md)
  ` KarmaLabs`
 
-### [文编|躺平币逐步过渡到第三代质变的数字货币](/content/gnews/38/README.md)
- ` KarmaLabs`
-
-### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/39/README.md)
+### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/38/README.md)
  ` 经济小组`
 
-### [郭文贵精品视频-习近平搞核糖核酸“一剑四雕”](/content/gnews/40/README.md)
+### [郭文贵精品视频-习近平搞核糖核酸“一剑四雕”](/content/gnews/39/README.md)
  ` cindy`
 
-### [4/21/2022 国际财经快讯：美国经济在高通胀和乌克兰战争影响下温和增长; 特斯拉第一财季利润达到创纪录的33亿美元](/content/gnews/41/README.md)
+### [4/21/2022 国际财经快讯：美国经济在高通胀和乌克兰战争影响下温和增长; 特斯拉第一财季利润达到创纪录的33亿美元](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料](/content/gnews/42/README.md)
+### [武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰第一季度通胀达三十年来最高](/content/gnews/43/README.md)
+### [新西兰第一季度通胀达三十年来最高](/content/gnews/42/README.md)
  ` 澳喜农场`
 
-### [国际货币基金组织警告澳洲因其债务高企](/content/gnews/44/README.md)
+### [国际货币基金组织警告澳洲因其债务高企](/content/gnews/43/README.md)
  ` 澳喜农场`
 
-### [2022年4月19日4.19断播5周年大直播第二部分全文听写](/content/gnews/45/README.md)
+### [2022年4月19日4.19断播5周年大直播第二部分全文听写](/content/gnews/44/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/46/README.md)
+### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党正藏匿和转移大量财富 美欧就俄罗斯和中共国政府人员的信息进行了交流](/content/gnews/46/README.md)
+ ` 焦點20分`
 
 ### [台湾｜外媒忧台湾网路遭断 美前军事顾问：断开海缆、断开与世界的连结](/content/gnews/47/README.md)
  ` 關注組`
