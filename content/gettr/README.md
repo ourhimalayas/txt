@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 10:02 PM (UTC)`
+
+“中共！还钱！” 飞飞秀救援快报 2022-04-21<br/>For English：gettr.com/streaming/p16hjrrc080
+![img](https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 8:48 PM (UTC)`
 
 2022.04.21  新中国联邦 | 喜健康   病毒满视野，我们该吃啥？
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group21/origin/2022/04/21/08/4dcb8fcb-bbd1-b273-4fdc-02ba2c206307/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group4/origin/2022/04/21/04/e9844c4d-b3fd-d90c-f4f0-13b2f979b4ca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
