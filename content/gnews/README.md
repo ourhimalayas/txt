@@ -15,38 +15,38 @@
 
 ---
 
-### [王岐山家族依旧在美国藏有巨额财富 迄今习近平还未动王岐山](/content/gnews/1/README.md)
- ` 焦點20分`
-
-### [攻台等同与美国和日本开战 台湾不反抗 只有被毁灭一个下场](/content/gnews/2/README.md)
- ` 焦點20分`
-
-### [上海检测出的阳性绝大多数是疫苗反应 北京正在准备极限大隔离](/content/gnews/3/README.md)
- ` 焦點20分`
-
-### [4/21/2022 文贵直播：习近平目前的三个难处：1，经济已经崩塌； 2，党内政治斗争已经接近极限；3，仍然幻想干掉美国和美元](/content/gnews/4/README.md)
+### [4/21/2022 文贵直播：习不打台湾的可能性已经没有了！习只有两个选择，经济上打垮台湾或者用战略核武器摧毁台湾](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [习近平深信自己是习一神 也迷信莫德尔周期定律](/content/gnews/7/README.md)
+### [王岐山家族依旧在美国藏有巨额财富 迄今习近平还未动王岐山](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [4月21日勿忘香港（图片1-10）](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
+### [攻台等同与美国和日本开战 台湾不反抗 只有被毁灭一个下场](/content/gnews/3/README.md)
+ ` 焦點20分`
 
-### [2022/4/19VOA断播五周年特别直播（图片9-17）](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
+### [上海检测出的阳性绝大多数是疫苗反应 北京正在准备极限大隔离](/content/gnews/4/README.md)
+ ` 焦點20分`
 
-### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/10/README.md)
+### [4/21/2022 文贵直播：习近平目前的三个难处：1，经济已经崩塌； 2，党内政治斗争已经接近极限；3，仍然幻想干掉美国和美元](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信](/content/gnews/7/README.md)
+ ` NFSC News`
+
+### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海隔离期间的死亡人数及造成死亡的主要原因](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [习近平深信自己是习一神 也迷信莫德尔周期定律](/content/gnews/9/README.md)
+ ` 焦點20分`
+
+### [4月21日勿忘香港（图片1-10）](/content/gnews/10/README.md)
+ ` 波士顿五月花农场`
+
+### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/12/README.md)
  ` YALUN 亚伦`
@@ -54,38 +54,38 @@
 ### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争），唯一的变数就是习近平会铤而走险、毁灭台湾](/content/gnews/14/README.md)
+### [中共魔头习要用核武器毁灭台湾](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争），唯一的变数就是习近平会铤而走险、毁灭台湾](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/15/README.md)
+### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（04/21/2022）](/content/gnews/16/README.md)
+### [五月花简报（04/21/2022）](/content/gnews/17/README.md)
  ` mayflowertranslate`
 
-### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/17/README.md)
+### [4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/18/README.md)
+### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/19/README.md)
+### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/20/README.md)
+### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/21/README.md)
+### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/22/README.md)
+### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/23/README.md)
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/24/README.md)
  ` 银河歌舞厅`
-
-### [4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
 
 ### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/25/README.md)
  ` G-时新闻`

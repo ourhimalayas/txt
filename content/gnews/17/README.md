@@ -2,10 +2,16 @@
 ---
 
 
-## 4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2388200/)
+## 五月花简报（04/21/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2388226/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/E4F3A04D-97FC-429F-81E8-1EC122070FDA.jpeg)
+
+*发布：思澈*
+
+
 
  
 
