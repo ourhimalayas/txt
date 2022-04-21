@@ -2,25 +2,18 @@
 ---
 
 
-## 俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378774/)
+## 俄乌战争｜日本今驱逐8名俄罗斯外交人员
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2378361/)
 
 **港台前线 zhong｜2022-4-20**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-8.png)
-欧盟理事会主席查尔斯．米歇尔（Charles Michel）通过推特对外界传达（20日）他已抵达乌克兰首都基辅，并称“基辅是自由民主欧洲的中心”，外媒报导称他将与泽连斯基会面。米歇尔本次访问乌克兰形成，外界事前并不知悉。外媒有提及，米歇尔欧盟理事会主席的身分，代表着欧盟27成员国。
-
-此前，欧洲议会主席梅措拉（Roberta Metsola）4月1日[突然访问基辅](https://gnews.org/zh-hant/2273281/)，会面泽连斯基及乌克兰及国会议长。欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔于4月8日也访问了基辅。
-
-
-
-> In Kyiv today. 
-> 
-> In the heart of a free and democratic Europe. [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) [pic.twitter.com/7DxTeoxtMc](https://t.co/7DxTeoxtMc)
-> — Charles Michel (@eucopresident) [April 20, 2022](https://twitter.com/eucopresident/status/1516668856651165708?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-7.png)
+日本政府今（20日）正式驱逐8名俄罗斯驻日外交官员出境，其中包括大使馆外交官及俄罗斯贸易代表处工作人员。日媒引述知情人士消息称，这八人主要负责日本境内的情报工作，其中不乏日本警方重点关注人物、俄军总参谋部情报总局（GRU）与对外情报局（SVR）的人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-20-16.10.42.jpg)
+据报导所述，日本政府一次驱逐多名外交人员实属极不寻常，日本内阁官房副长官矶崎仁彦对驱逐俄外交人员一事表态“鉴于事务性质，不予回覆”。此外，日本配合西方步调对俄罗斯采取一系列的经济制裁、进口禁令，媒体关心俄罗斯实施反制措施的可能，对此日官方表示“尽最大努力保护在俄罗斯的日本国民、企业”。
 
 
 
-来源｜[POLITICO](https://www.politico.eu/article/charles-michel-visit-kyiv-ukraine-eu/)、[GNEWS](https://gnews.org/zh-hant/2273281/)
+来源｜[YAHOO](https://news.yahoo.co.jp/articles/bcebba4d0f49b08f59c3a5fd80bc355ba24a7e49)
 
 * * *
 

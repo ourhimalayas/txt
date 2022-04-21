@@ -2,16 +2,26 @@
 ---
 
 
-## 秘翻在线：印度拒绝援助乌克兰的日本自卫队运输机过境
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2383280/)
+## 樱花时政┃日本正式撤销俄罗斯最惠国贸易地位
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383293/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-22.png)（图片源自本文链接）
-4月21日每日新闻记者藤渕志保发布的消息：在21日上午举行的党的政策委员会会议上，自民党政策研究委员会会长高市早苗透露，原定被派去给乌克兰难民运送援助物资的自卫队运输机，被过境国印度拒绝过境。政府曾计划根据《联合国维持和平行动合作法》，将毛毯等物品从印度孟买的难民署仓库运往波兰和罗马尼亚。
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃日本正式撤销俄罗斯最惠国贸易地位.png)
+2022年4月20日，日本正式撤销俄罗斯的最惠国贸易地位，加紧了对俄罗斯因入侵乌克兰所实施的制裁，意味着日本将对所有俄罗斯进口商品提升关税。这是日本首相岸田文雄上月宣布对俄罗斯制裁措施的一部分，措施还包括驱逐8名俄罗斯外交官和贸易官员。
 
-这个疯狂的世界，不仅求和平难，援助难民也会受阻！
+现在，日本正步调一致的紧密配合西方正义国家对邪恶的俄罗斯采取一系列的经济制裁、进口禁令，彰显了日本对乌克兰的绝对支持！此次，日本还冻结数百名俄罗斯人和团体的资产，禁止新投资和贸易，包括可能被用于军事目的的商品出口。另外日本还宣布计划逐渐停止进口俄罗斯的煤炭。8名被驱逐的俄罗斯外交官星期三搭乘巴士离开俄罗斯驻东京使馆，前往机场乘坐一架俄罗斯政府飞机返回俄罗斯。
 
-信息源：[ウクライナ支援の自衛隊機、経由地のインドが受け入れ拒否 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E6%94%AF%E6%8F%B4%E3%81%AE%E8%87%AA%E8%A1%9B%E9%9A%8A%E6%A9%9F-%E7%B5%8C%E7%94%B1%E5%9C%B0%E3%81%AE%E3%82%A4%E3%83%B3%E3%83%89%E3%81%8C%E5%8F%97%E3%81%91%E5%85%A5%E3%82%8C%E6%8B%92%E5%90%A6/ar-AAWqL9g?ocid=msedgntp&amp;cvid=e323ad8e25ca412284f8cbbc4e0c26b9)
+信息来源：
+[日本正式撤销俄罗斯最惠国贸易地位](https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

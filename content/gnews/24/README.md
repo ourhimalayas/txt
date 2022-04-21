@@ -2,46 +2,16 @@
 ---
 
 
-## 上海封城与新冠病毒无关
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
+## 秘翻在线：印度拒绝援助乌克兰的日本自卫队运输机过境
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2383280/)
 
-翻译： Jenny Ball
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-22.png)（图片源自本文链接）
+4月21日每日新闻记者藤渕志保发布的消息：在21日上午举行的党的政策委员会会议上，自民党政策研究委员会会长高市早苗透露，原定被派去给乌克兰难民运送援助物资的自卫队运输机，被过境国印度拒绝过境。政府曾计划根据《联合国维持和平行动合作法》，将毛毯等物品从印度孟买的难民署仓库运往波兰和罗马尼亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+这个疯狂的世界，不仅求和平难，援助难民也会受阻！
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
-
-约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
-
-在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
-
-莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
-
-“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
-
-更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
-
-但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
-
-因为，上海封城最可能的原因与新冠病毒无关！
-
-新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+信息源：[ウクライナ支援の自衛隊機、経由地のインドが受け入れ拒否 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E6%94%AF%E6%8F%B4%E3%81%AE%E8%87%AA%E8%A1%9B%E9%9A%8A%E6%A9%9F-%E7%B5%8C%E7%94%B1%E5%9C%B0%E3%81%AE%E3%82%A4%E3%83%B3%E3%83%89%E3%81%8C%E5%8F%97%E3%81%91%E5%85%A5%E3%82%8C%E6%8B%92%E5%90%A6/ar-AAWqL9g?ocid=msedgntp&amp;cvid=e323ad8e25ca412284f8cbbc4e0c26b9)
 
  
 

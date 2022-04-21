@@ -2,25 +2,24 @@
 ---
 
 
-## 视频|集中力量办大事，究竟是办谁的大事 「非脱敏」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2383168/)
+## 加拿大通胀率失控再创新高
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383214/)
 
-【文案编辑】爱米粒 
-【文案线索】菜园子112~尕虎 
-【文案审核】北评2025 
-【制作团队】大直播短视频组 
-【视频剪辑】文果
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【新闻来源】[https://discord.com/channels/895274776606699583/941690610681798716/964169554404188182](https://discord.com/channels/895274776606699583/941690610681798716/964169554404188182)
+采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-发稿：Daxia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2547.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国3月份通货膨胀率已接近7%，是自1991年1月以来消费价格指数同比增长最快的一年。
+
+据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同期相比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年2月以来的最大涨幅。
+
+报道称，尽管目前平均工资增长了3.4%，但仍然远低于持续上升的通胀率，而最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
+
+校对编辑：硫酸羟氯喹64
+
+新闻来源： [https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

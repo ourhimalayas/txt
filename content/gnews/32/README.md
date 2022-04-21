@@ -2,22 +2,30 @@
 ---
 
 
-## 视频|煎、煮、烧、烤CCP;砍、剁、切、削习近平。「非脱敏」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2383119/)
+## 俄罗斯试射新洲际弹道导弹
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2383193/)
 
-【文案作者】Miyali7768(文玉）
-【文案审核】 爱米粒 
-【制作团队】大直播短视频组 
-【视频剪辑】文果
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-发稿：Daxia
+**撰稿：日本东京方舟农场  子辰**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月20日，俄罗斯国防部宣布，俄罗斯已经试射了一枚新的洲际弹道导弹。美国官员表示，事先已知，并做了密切跟踪，对俄方的新核武并不担心。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯试射新洲际弹道导弹.jpg)（图片来自大纪元）
+
+该导弹于莫斯科时间下午3点12分从位于俄罗斯北部阿尔汉格尔斯克地区（Arkhangelsk）的普列谢茨克国家试验航天器发射场（Plesetsk State Test Cosmodrome）射向俄罗斯远东堪察加半岛的库拉（Kura）试验场。
+
+导弹发射后，俄罗斯总统普京对军队表示，“我祝贺你们成功发射了萨尔马特洲际弹道导弹，这种真正独一无二的武器将加强我们武装部队的战斗力，可靠地确保俄罗斯的安全，使其免受外部威胁。”
+
+据悉，萨尔马特是世界上威力最大、摧毁目标范围最远的导弹之一。该核武估计有11,000英里射程，可携带多达10个重型弹头。被西方称之为撒旦-2（Satan-2），也是俄罗斯核武库中最大的“猛兽”。
+
+援引CNN报导，两位美国官员说，美方在俄罗斯进行新的弹道导弹试验前已得到通知，并做了密切跟踪。因为根据现有国际协议，俄罗斯和美国在测试前都会通知其它国家，以免发生意外。
+
+参考链接：
+
+[https://www.epochtimes.com/gb/22/4/20/n13716260.htm](https://www.epochtimes.com/gb/22/4/20/n13716260.htm)
+
+总编：青城道姑
+校对发布：wenxia16
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
