@@ -2,28 +2,47 @@
 ---
 
 
-## Nancy Pelosi将于4月26日访问台湾
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2388055/)
+## 装置作品《成都双年展作品（一）》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2388106/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/cd0770ae1c3a4f1baf4958bf83de0ea3.jpg)
-4月21日直播中，郭先生爆大料：美国众议院长Nancy Pelosi将于4月26日访问台湾。此前Nancy Pelosi的访台行程因美国的多方考虑而未成行，尽管此次访台计划也很快遭到了中共的威胁，但美国方面直言，此行必成。
+整理：vale
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2682.png)
 
-郭先生坦言，中共习近平准备了许久的打台湾计划，极有可能以美国访台作为必然开战的时间点。中共支持的普京入侵乌克兰的战争已经全面失利，普京已经和西方发出了和解的信号。当年普京和习近平约定的一个打乌克兰一个打台湾，就是在赌注美国不可能同时进行两场战争。现在普京对西方的态度转变，中共国内都在套钱跑路，经济一塌糊涂，习近平还想在二十大继续连任并想着干掉美元的大计，而如果Nancy Pelosi访台之后习近平没有任何动作，那接下来就是美国总统拜登访台，再然后台湾独立，那时候根本不是习不存在了，是共产党都结束了。这一切内外相交的因素，只会促使习近平更加疯狂地铲平台湾，把台湾移为平地。在Nancy Pelosi访台的4.26—5.6日期间，对台湾来说都是最危险的时刻。中共只要打台湾，香港经济和国内经济都会直接垮掉，国内情况更会惨不忍睹。郭先生告知战友，能离开的都尽快离开。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2673.png)
 
-撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2674.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2675.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2676.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2677.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2678.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2679.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2680.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2681.png)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-32.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
