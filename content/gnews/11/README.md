@@ -2,37 +2,28 @@
 ---
 
 
-## 【G时新闻】抗议俄侵略 美英加G20会议集体离席
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2388034/)
+## Nancy Pelosi将于4月26日访问台湾
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2388055/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-##### 播  报：加拿大温哥华扬帆农场** **-【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/cd0770ae1c3a4f1baf4958bf83de0ea3.jpg)
+4月21日直播中，郭先生爆大料：美国众议院长Nancy Pelosi将于4月26日访问台湾。此前Nancy Pelosi的访台行程因美国的多方考虑而未成行，尽管此次访台计划也很快遭到了中共的威胁，但美国方面直言，此行必成。
 
-俄罗斯侵略乌克兰仍在继续，21日的G20财长会议上，英国、美国和加拿大的高阶官员当着俄罗斯代表面前离席，许多成员也发言谴责俄罗斯对乌克兰发动的军事行动。
+郭先生坦言，中共习近平准备了许久的打台湾计划，极有可能以美国访台作为必然开战的时间点。中共支持的普京入侵乌克兰的战争已经全面失利，普京已经和西方发出了和解的信号。当年普京和习近平约定的一个打乌克兰一个打台湾，就是在赌注美国不可能同时进行两场战争。现在普京对西方的态度转变，中共国内都在套钱跑路，经济一塌糊涂，习近平还想在二十大继续连任并想着干掉美元的大计，而如果Nancy Pelosi访台之后习近平没有任何动作，那接下来就是美国总统拜登访台，再然后台湾独立，那时候根本不是习不存在了，是共产党都结束了。这一切内外相交的因素，只会促使习近平更加疯狂地铲平台湾，把台湾移为平地。在Nancy Pelosi访台的4.26—5.6日期间，对台湾来说都是最危险的时刻。中共只要打台湾，香港经济和国内经济都会直接垮掉，国内情况更会惨不忍睹。郭先生告知战友，能离开的都尽快离开。
 
-G20财长会议在美国华府以视讯方式举行，根据外媒报导，会议中当俄罗斯代表发言时，不少出席会议的部长和央行行长纷纷关闭视讯会议的镜头，包含美国财政部长叶伦（Janet Yellen）、乌克兰财政部长马尔琴科（Serhiy Marchenko）、英格兰银行总裁贝利（Andrew Bailey）和加拿大副总理兼财长方慧兰（Chrystia Freeland）等人。
+撰稿、发布：骄子
 
-知情人士称，美国财长叶伦强烈反对俄国官员出席G20会议，也会尽量避免在会议中与俄方接触，先前叶伦表示，俄国在全球经济中「不会照常运作」，美国总统拜登也说，俄国不应继续担任G20的成员。
-加拿大副总理兼财长方慧兰表示，「面对俄国持续不断的侵略与战争罪行，世界上的民主国家不会袖手旁观」，她强调，本周举行的会议关乎支持世界经济，但俄国非法入侵乌国是对全球经济的严重威胁，俄国不应参加，或被包含在这些会议中。
-乌克兰背后站的是整个民主世界，而俄罗斯虽然与中共有唇亡齿寒的关系，但也相互的提防。
-
-中共作为俄乌战争背后的元凶，想联合俄罗斯在民主世界扩张进而为独裁的政府续命，中共侵略台湾的计划也绝不会成功，俄罗斯今天的局面就是中共的明天。
-
-盖特链接：https://gettr.com/post/p16bqom01ef
-
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
