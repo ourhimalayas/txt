@@ -15,128 +15,128 @@
 
 ---
 
-### [美、澳、日、新重提印太风险](/content/gnews/1/README.md)
- ` NFSC News`
+### [南希·佩洛西4月26日访台](/content/gnews/1/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [针对王岐山的爆料仍未完结](/content/gnews/2/README.md)
- ` NFSC News`
+### [聚焦：4.19断播门事件对建构全球正道主义政治秩序有里程碑意义](/content/gnews/2/README.md)
+ ` 蓝莲花农场`
 
-### [美国继续向乌克兰人提供武器和弹药是非常关键的](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【G时新闻】如何智慧地应对共产党的大隔离](/content/gnews/4/README.md)
+### [【G时新闻】停泊在希腊的俄罗斯原油油轮被扣押…70万桶货物不在对象范围内](/content/gnews/3/README.md)
  ` G-时新闻`
 
-### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/5/README.md)
+### [对虱子习以为常的中国人VS再穷都化妆出门的俄罗斯人](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美、澳、日、新重提印太风险](/content/gnews/5/README.md)
+ ` NFSC News`
+
+### [针对王岐山的爆料仍未完结](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [美国继续向乌克兰人提供武器和弹药是非常关键的](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [谨防中共国媒体放大俄罗斯的虚假宣传](/content/gnews/6/README.md)
+### [【G时新闻】如何智慧地应对共产党的大隔离](/content/gnews/8/README.md)
+ ` G-时新闻`
+
+### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [谨防中共国媒体放大俄罗斯的虚假宣传](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国，CCP造假摆拍防疫就诊](/content/gnews/7/README.md)
+### [中共国，CCP造假摆拍防疫就诊](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [中共国，那个在电话里骂上海政府的德国人还是被抓去了集中营，电话录音上网后，被放回家了，在庆祝和继续骂CCP](/content/gnews/8/README.md)
+### [中共国，那个在电话里骂上海政府的德国人还是被抓去了集中营，电话录音上网后，被放回家了，在庆祝和继续骂CCP](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国宣布接纳乌克兰难民的计划](/content/gnews/9/README.md)
+### [美国宣布接纳乌克兰难民的计划](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G时新闻】美日欧紧急会议 日本向乌克兰追加2亿美元贷款](/content/gnews/10/README.md)
+### [【G时新闻】美日欧紧急会议 日本向乌克兰追加2亿美元贷款](/content/gnews/14/README.md)
  ` G-时新闻`
 
-### [韩国学者以垃圾为宝研究朝鲜人们的生活](/content/gnews/11/README.md)
+### [韩国学者以垃圾为宝研究朝鲜人们的生活](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国，寻目击证人，寻4月13日中午一点左右在景盛小区与新建交界路口处，三辆交警车围堵一男子骑摩托车造成死亡交通事故过程的目击者](/content/gnews/12/README.md)
+### [中共国，寻目击证人，寻4月13日中午一点左右在景盛小区与新建交界路口处，三辆交警车围堵一男子骑摩托车造成死亡交通事故过程的目击者](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [西藏Thubten喇嘛拜访梅迪卡的新中国联邦救援前线帐篷](/content/gnews/13/README.md)
+### [西藏Thubten喇嘛拜访梅迪卡的新中国联邦救援前线帐篷](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [串珠663:最烂的伪君子朱镕基给他八脑袋也不敢反习](/content/gnews/14/README.md)
+### [串珠663:最烂的伪君子朱镕基给他八脑袋也不敢反习](/content/gnews/18/README.md)
  ` 郭爆料串珠`
 
-### [串珠662:美军打了疫苗美军就没了，共产党就赢了](/content/gnews/15/README.md)
- ` 郭爆料串珠`
-
-### [全国房价 跌破万元大关！47个城市 房价回到一年前！CCP 借助疫情封控偷偷的把你的房子价值蒸发！很多中国人会说因为疫情影响房子跌了！没人会想到是CCP 让你这样想的](/content/gnews/16/README.md)
+### [全国房价 跌破万元大关！47个城市 房价回到一年前！CCP 借助疫情封控偷偷的把你的房子价值蒸发！很多中国人会说因为疫情影响房子跌了！没人会想到是CCP 让你这样想的](/content/gnews/19/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|支持俄罗斯侵略者，在德国或将面临牢狱之灾](/content/gnews/17/README.md)
+### [有声|支持俄罗斯侵略者，在德国或将面临牢狱之灾](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [世界上最大的金条价值飙升](/content/gnews/18/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/19/README.md)
+### [有声|中共喉舌公然造假 谎称支援上海千万吨物资](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [中日财经爆┃现金极度紧张的中共地方政府又面临着新的挑战](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭先生直播中说：中共若攻台，新中国联邦将宣布台湾独立。](/content/gnews/21/README.md)
+### [郭先生直播中说：中共若攻台，新中国联邦将宣布台湾独立。](/content/gnews/23/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|兵力不足 普京试图建立“儿童军队”](/content/gnews/22/README.md)
+### [有声|兵力不足 普京试图建立“儿童军队”](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [针对王岐山的爆料仍未完结](/content/gnews/23/README.md)
+### [针对王岐山的爆料仍未完结](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [普京宣布占领马里乌波尔](/content/gnews/24/README.md)
+### [普京宣布占领马里乌波尔](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/25/README.md)
+### [美国及世界疫情简报（04-21-2022）](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [419“知蒋干、用蒋干”之策](/content/gnews/26/README.md)
+### [419“知蒋干、用蒋干”之策](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [新西兰财经G乐部2022年4月21日:财经新闻整理](/content/gnews/27/README.md)
+### [新西兰财经G乐部2022年4月21日:财经新闻整理](/content/gnews/29/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [乌克兰前总理劝说印度不要首鼠两端](/content/gnews/28/README.md)
+### [乌克兰前总理劝说印度不要首鼠两端](/content/gnews/30/README.md)
  ` 温哥华扬帆农场`
 
-### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/29/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/30/README.md)
+### [【秘翻时评】中共是奴隶主, 99%的中国人是奴隶](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [泽连斯基与南非总统讨论粮食危机威胁](/content/gnews/31/README.md)
+### [泽连斯基与南非总统讨论粮食危机威胁](/content/gnews/33/README.md)
  ` 波士顿五月花农场金融部`
 
-### [COVID-19疫苗副作用集萃(2022.4.21 O) 接种第三针疫苗后身体反应太大了](/content/gnews/32/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.21 O) 接种第三针疫苗后身体反应太大了](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭先生回顾419采访的始末](/content/gnews/33/README.md)
+### [郭先生回顾419采访的始末](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [4/21/2022 银河快讯：日本撤销对俄最惠国待遇；俄罗斯外交官离开日本](/content/gnews/34/README.md)
+### [4/21/2022 银河快讯：日本撤销对俄最惠国待遇；俄罗斯外交官离开日本](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [反亚裔招生政策：维州学校董事会误导最高法院](/content/gnews/35/README.md)
+### [反亚裔招生政策：维州学校董事会误导最高法院](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共大肆“蓝金黄”台湾军方及情报人员](/content/gnews/36/README.md)
+### [中共大肆“蓝金黄”台湾军方及情报人员](/content/gnews/38/README.md)
  ` 澳喜农场`
 
-### [欧盟委员会主席将访问印度，推动经济、安全和互联互通议程](/content/gnews/37/README.md)
+### [欧盟委员会主席将访问印度，推动经济、安全和互联互通议程](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/38/README.md)
+### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/40/README.md)
  ` 经济小组`
 
-### [加沙暴力加剧，耶路撒冷冲突再起](/content/gnews/39/README.md)
+### [加沙暴力加剧，耶路撒冷冲突再起](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [法国极右翼领导人呼吁在立法选举之前建立联盟](/content/gnews/40/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [英国对俄罗斯实施26项新制裁](/content/gnews/41/README.md)
- ` thedawn`
 
 ### [4/21/2022 国际财经快讯：美国经济在高通胀和乌克兰战争影响下温和增长; 特斯拉第一财季利润达到创纪录的33亿美元](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`

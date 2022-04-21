@@ -2,27 +2,41 @@
 ---
 
 
-## 普京宣布占领马里乌波尔
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387075/)
+## 有声|兵力不足 普京试图建立“儿童军队”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2387144/)
 
-共同社4月21日报道，普京总统周四表示，俄罗斯军队已经有效地夺取了对马里乌波尔（Mariupol）的控制权，这是乌克兰东部顿巴斯地区的一个关键地区，同时他取消了冲击东南港口城市内一家钢铁厂的计划，那里仍有数千名乌克兰人藏身。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/P-1.jpg)yahoo.com
-普京宣布军事行动 “成功”，命令他的国防部长谢尔盖·绍伊古取消冲击亚速（Azovstal）钢铁厂的计划，因为这 “没有必要”，但要求继续封锁。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月19日，据相关媒体消息显示，由于俄罗斯军队在乌克兰遭受了重大的损失，普京正在试图从“爱国俱乐部”中招募年仅16岁的俄罗斯青少年组成“儿童军队”，用以填补俄军超过三万名在战争中被杀、受伤或被俘的士兵缺口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20141117215627_9864.jpeg)
+报道提及，这些被招募的年轻人正在接受相关的军事训练。随后，他们将被莫斯科当局强迫派往对乌克兰的入侵前线。目前，他们之中的部分人已经被投入战争并于战场上阵亡。据悉，有乌克兰士兵在交战中发现了不应该被部署到战区的俄罗斯军事学员的徽章。
 
-攻占马里乌波尔标志着俄罗斯夺取包含亲俄分裂分子的乌克兰东部两个地区控制权这一目标的一个重要转折点。
+对此，乌克兰议会人权专员柳德米拉-丹尼索娃表示，俄罗斯境内参加所谓“爱国俱乐部”的儿童正在被普京政府动员成为非法武装组织。同时，有官员已经向联合国发出呼吁，要求调查普京涉嫌非法部署儿童兵的行为。
 
-俄罗斯呼吁在钢铁厂做最后抵抗的志愿准军事民兵 “亚速营 ”和其他人投降。
 
-为了疏散估计躲在工厂里的大约1000名平民，乌克兰政府周三提议与俄罗斯在马里乌波尔举行谈判，并表示它准备立即无条件前往。
 
-俄罗斯的回应尚未得到确认，这加剧了人们对人道主义危机可能继续恶化的担忧。
 
-**快评**：俄乌战争正在走向更残酷的阶段，普京不会主动停止战争的。
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/22e6fb1f131e-putin-declares-mariupol-captured-cancels-plan-to-storm-steel-plant.html](https://english.kyodonews.net/news/2022/04/22e6fb1f131e-putin-declares-mariupol-captured-cancels-plan-to-storm-steel-plant.html)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+
+文字版原文：[兵力不足 普京试图建立“儿童军队”](https://gnews.org/zh-hans/2381428/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

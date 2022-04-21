@@ -2,8 +2,8 @@
 ---
 
 
-## 中共国，寻目击证人，寻4月13日中午一点左右在景盛小区与新建交界路口处，三辆交警车围堵一男子骑摩托车造成死亡交通事故过程的目击者
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2387419/)
+## 中共国，那个在电话里骂上海政府的德国人还是被抓去了集中营，电话录音上网后，被放回家了，在庆祝和继续骂CCP
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2387448/)
 
 作者：东京樱花团小视频组
 

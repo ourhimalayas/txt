@@ -2,71 +2,46 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2386908/)
+## 新西兰财经G乐部2022年4月21日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2387019/)
 
-整理/编辑：禄森
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-21-232939.jpg)
+**1、产连花清瘟的上市公司，以岭药业市值蒸发逾230亿**
+![img](https://media.gettr.com/group22/origin/2022/04/21/03/834547d1-d457-c3c6-06d5-d31e155192c0/1fef973564f552e38bce06aba2137024_500x0.png)
+以岭药业7个交易日市值蒸发逾230亿， 股价跌超三成。4月14日，王思聪在微博转发一则有关连花清瘟的视频，并配文称“证监会应严查以岭药业”。 4月17日，丁香医生公众号发文《不要吃连花清瘟预防新冠》，同一天，“饶议科学”公众号发文《疫情期间：不容假药趁火打劫，不宜强行派送未经证明的中药》。4月18日上午，以岭药业开市一字跌停。当日以岭药业书面回应连花清瘟六大质疑。19日，王思聪微博账号提示因违反相关法律法规被禁言。
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+链接 [https://cj.sina.com.cn/articles/view/1838672663/6d97eb17027019cmw?from=health](https://cj.sina.com.cn/articles/view/1838672663/6d97eb17027019cmw?from=health)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-8.png)
-图片来源：雅典娜设计组(614)
+**2、女子16年前存3万，现被告知余额为0**
 
+武汉的张女士近日向记者反映称，她2006年在中国银行武汉新华家园支行存了3万元定期，但她今年4月14日前往银行欲将钱取出时，被告知余额为0。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![img](https://media.gettr.com/group11/origin/2022/04/21/03/eb7c508c-7dec-0547-d3b4-3451d650941f/de75b3786decc98b256db1ada46b1b8e_500x0.png)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+银行出具的《存款证明》复印件 受访者供图
 
-**帖子原文**：
+新华家园支行工作人员4月18日回应称，已了解到此事，目前正在调查。
 
-**博主: 吃鱼的猫**
+财经G评：人活着钱被银行吞了，那些疫情下死去的人们的存款被谁吞了？
 
-打疫苗后为啥每天都犯荨麻疹！！！
+链接 [https://finance.sina.com.cn/roll/2022-04-20/doc-imcwiwst2898097.shtml](https://finance.sina.com.cn/roll/2022-04-20/doc-imcwiwst2898097.shtml)
 
-加强针以后就开始基本上每天都有荨麻疹，有无同款
+**3、“造假王”康美药业又陷内幕交易风波 广药集团多名高管参与**
+![img](https://media.gettr.com/group46/origin/2022/04/21/03/91592142-482d-ba07-4e3f-4e337447c3ba/08e1f955b92a6d51040d48047c940cb0_500x0.png)
+曾因“300亿财务造假案”备受市场关注的康美药业，如今又陷内幕交易风波。近日，广东证监局官网连发三份行政处罚书显示，四名有关康美药业重整的内幕知情人因内幕交易各被罚款50万元。其中三名是广药集团一名为家属，四人违法行为均涉康美药业被托管导致公司控制权发生变化的内幕交易。
 
-**作者发布于2022-4-14**
+链接：[https://finance.sina.com.cn/jjxw/2022-04-21/doc-imcwiwst3093307.shtml](https://finance.sina.com.cn/jjxw/2022-04-21/doc-imcwiwst3093307.shtml)
 
-**评论选集**
+**4、易居中国暴雷净亏88.93亿！**
+![img](https://media.gettr.com/group25/origin/2022/04/21/03/2a8087e5-f60f-473c-3b1c-1153dcad2bdd/d09b56ad906d5a87e9dc9188962de093_500x0.png)
+易居企业控股当天到期3亿美元两笔票据于到期日无法偿还，发生2022年票据契约项下的违约事件。同时触发2023年票据契约项下的交叉违约，2023年票据也暂停买卖。据公开资料，易居的上述美元债发行于2019年10月，当期余额3亿美元，期限2.5年，应于2022年4月18日到期。　值得注意的是，2020年易居企业控股净利润3.04亿元，2021年开始亏损。归母净利润却亏损了约88.93亿元。
 
-H评论:
+链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-04-21/doc-imcwipii5481071.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-04-21/doc-imcwipii5481071.shtml)
 
-超级后悔，最后悔的事情
+海报：润玉
 
-橙子柚评论:
-
-我也是，开始是过敏，后面就变成荨麻疹了
-
-兔斯基评论:
-
-我爸也得了荨麻疹，以前以为是免疫力低，最近问又打了第三针，说现在痒得不行了，网上一查挺多打完得荨麻疹，没得上新冠，倒是被荨麻疹折腾的不行
-
-阿丢评论:
-
-我也是姊妹 我是打完第三针疫苗得了寻麻疹，至今一个月了，当时半夜皮肤痒的不行，去急诊打屁股针，后来住院用酸钙，甘片，vc，8天没好转。lge66，补体3偏低，出院吃氯雷，还有西利嗪片，防风通圣，湿毒清，vc，酸钙，酸锌，都买了，每天晚上还是发作，只能吃西利嗪片压制，不然没法睡觉。洗个澡 指甲长划一下，洗完澡，全身红印子，像被鞭打了一顿。姊妹你是遇热还是遇冷发寻麻疹呢。是抓痕性的寻麻疹吗
-
-自由赚钱评论:
-
-我也是，咋说呢，这种和其他的荨麻疹还不一样就是你吃的穿的都没影响，反正就是突然就起来了，莫名其妙，而且好几天就又复发，也不知道为什么…所以我现在已经不管了，真后悔打疫苗
-
-初遇评论:
-
-荨麻疹还好  我们打完疫苗确诊白血病了
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2666.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2665.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2664.png)图片来源：小红书
-
-
-参考链接：
-
-[接种新冠疫苗后患寻麻疹](https://www.xiaohongshu.com/discovery/item/6258340f000000002103d5f7?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650519368)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+排版上传：文勇
 
  
 
