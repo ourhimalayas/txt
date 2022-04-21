@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 11:52 PM (UTC)`
+
+4/21/2022 Miles Guo: There is zero chance that Xi Jinping won’t invade Taiwan! The only choice left for Xi is either to bring down Taiwan’s economy or devastate Taiwan by using strategic nuclear weapons. It was the first time for the U.S. to diplomatically disregard the CCP’s furious protest against Nancy Pelosi’s plan to visit Taiwan. The CCP will fight the US to the end.<br/><br/>4/21/2022 文贵直播：习不打台湾的可能性已经没有了！习只有两个选择，经济上打垮台湾或者用战略核武器摧毁台湾；美方第一次明确在外交上表示不在乎中共对佩洛西计划访台的跳脚抗议，而中共将跟美国干到底<br/>
+![img](https://media.gettr.com/group12/getter/2022/04/21/23/f5261ac9-4838-5e54-2adc-0ffe455e101a/out.jpg)
+
+---
+
+`@miles 4/21/2022 11:50 PM (UTC)`
+
+4/21/2022 Miles Guo: Xi Jinping currently has three difficulties: 1. China's economy has collapsed already; 2. The political struggle within the CCP is approaching its limit; 3. He still fantasizes about killing the United States and the dollar; it’s terrifying that Xi Jinping sincerely believed that only by attacking and destroying Taiwan, all their problems will be solved<br/><br/>4/21/2022 文贵直播：习近平目前的三个难处：1，经济已经崩塌； 2，党内政治斗争已经接近极限；3，仍然幻想干掉美国和美元；可怕的是习被周边人忽悠得相信打台湾和灭掉台湾才能解决所有的问题<br/>
+![img](https://media.gettr.com/group23/getter/2022/04/21/23/e433255c-9e83-dd13-99e6-47aac235c34c/out.jpg)
+
+---
+
+`@miles 4/21/2022 11:48 PM (UTC)`
+
+4/21/2022 Miles Guo: If the CCP takes action against Taiwan between April 26th and May 6th, martial law will certainly be imposed in Beijing, and the situation in Shanghai will be even worse. Putin has started to cozy up to the US, breaking the promise between him and “Xi the Sun”, who has bet that the US wouldn’t fight two wars at the same time. The only uncertainty is whether Xi would make the desperate move of destroying Taiwan.<br/><br/>4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争）；唯一的变数就是习近平会铤而走险、毁灭台湾<br/>
+![img](https://media.gettr.com/group12/getter/2022/04/21/23/35438e72-c6f6-f89e-f0f6-3cc9be9bc5dd/out.jpg)
+
+---
+
+`@miles 4/21/2022 11:41 PM (UTC)`
+
+2022.04.21《The Fringe》 Episode 174<br/>中文同传：https://gettr.com/streaming/p16hvg99070
+![img](https://media.gettr.com/group31/origin/2022/04/21/23/52965f55-4937-5d5f-69d7-1729db8e5407/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 11:00 PM (UTC)`
 
 2022.04.21 NFSC news  Mariupol Commander Describes the State of War inside Mariupol Plant
@@ -125,36 +153,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 2022.04.21 早 新中国联邦 | 新闻 “灭共背心”风靡救援营地；郭先生回顾419采访的始末；419“知蒋干、用蒋干”之策；针对王岐山的爆料仍未完结；郭先生再提“郭七条”的意义
 ![img](https://media.gettr.com/group29/origin/2022/04/21/12/7f1cc9d1-b8af-c5a9-e170-de8180b299cf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 12:00 PM (UTC)`
-
-2022.04.21 NFSC news    Daily Rescue Data Update； The CCP Is the Root of All Fear
-![img](https://media.gettr.com/group33/origin/2022/04/21/11/cc33f5ab-0317-f530-01a2-6e276cfc6edd/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 4/21/2022 9:00 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.04.21 ET
-![img](https://media.gettr.com/group10/origin/2022/04/21/08/1d2b84ea-8cc9-a7fa-4e19-ffd1d7052deb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 9:15 AM (UTC)`
-
-【419 5th Anniversary】 4/19/2022 If the CCP invades Taiwan, the US and Japan will have no choice but to go to war provided that Taiwan resists the CCP's attack. If Taiwan does not fight back, the US, Japan, and other allied forces will wait until Taiwan is almost finished before joining the war to annihilate the CCP's troops. Xi definitely has the ball to use strategic nuclear weapons against Taiwan. Xi believes that it will be necessary to make it impossible for anyone to take Taiwan if he can't take it.<br/><br/>【419五周年】4/19/2022 如果中共打台湾，美日将别无选择地参战，前提是台湾要反抗中共进攻；若台湾不反抗，美日等盟军则会等台湾快完蛋的时候参战并灭掉共军；习绝对敢对台湾使用战略核武器，习觉得如果他得不到台湾，那就让谁都得不到！<br/>
-![img](https://media.gettr.com/group42/getter/2022/04/21/09/f2391ce0-bf28-f7f2-643b-16c8424174ed/out.jpg)
-
----
-
-`@miles 4/21/2022 9:10 AM (UTC)`
-
-【419 5th Anniversary】04/19/2022 Don't believe the so-called polls. If you are quiet, you are complicit, and you are allowing other people to take control of your lives.<br/><br/>【419五周年】04/19/2022 不要相信所谓的民调。一旦你选择沉默，那么你就变成了同谋，允许别人控制你的生活。<br/>
-![img](https://media.gettr.com/group17/getter/2022/04/21/09/b39fabba-9a7f-9395-ddae-c335bf83d592/out.jpg)
 
 ---
 
