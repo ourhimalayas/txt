@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 12:00 PM (UTC)`
+
+2022.04.21 NFSC news    Daily Rescue Data Update； The CCP Is the Root of All Fear
+![img](https://media.gettr.com/group33/origin/2022/04/21/11/cc33f5ab-0317-f530-01a2-6e276cfc6edd/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 4/21/2022 9:00 AM (UTC)`
@@ -149,13 +156,6 @@
 
 2022.04.20 NFSC news  Putin believes Western sanctions on Russia have failed
 ![img](https://media.gettr.com/group38/origin/2022/04/20/22/1f8b4429-6e5e-afbc-9982-ad1c101e2bfd/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/20/2022 10:13 PM (UTC)`
-
-“习神的裸鸡...” 飞飞秀救援快报 2022-04-20<br/>For English：gettr.com/streaming/p169om5577f
-![img](https://media.gettr.com/group20/origin/2022/04/20/22/340ded9d-cf09-6f6b-bfe8-04a7da687024/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

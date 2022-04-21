@@ -2,35 +2,29 @@
 ---
 
 
-## 日本撤销俄罗斯最惠国待遇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383752/)
+## 美国财政部制裁支持侵略战争的俄罗斯虚拟货币采矿公司
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383926/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-221.png)（图片源自本文链接）
+4月21日IT媒体新闻消息：美国财政部外国资产管制处（OFAC）4月20日（当地时间）宣布，已将BitRiver等俄罗斯虚拟货币开采公司列入特别指定国民（SDN）名单。 这是该局第一次制裁采矿公司。报告指出，俄罗斯的虚拟货币开采业务据说是世界第三大。
 
-整理/编辑：围剿维尼熊
+SDN名单，是一份登记并公布美国总统认为对美国国家安全或威胁国家安全的经济政策构成威胁的国家、法律实体和自然人的名簿（来自JETRO的网站）。所列受制裁实体在美国持有的资产会被冻结。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3F6EFDC0-F269-4130-A681-6C100BCDD4C0.jpg)图片来源：百度
+财政部在一份公告中说，将把那些支持普京的残酷（并非不可避免）和支持选择性战争的人，以及帮助这些人逃避美国的制裁任作为目标。
 
+BitRiver成立于2017年，并在2021年将其资产的合法所有权转让给一家瑞士控股公司。 财政部已将BitRiver及其10家子公司列入SND名单。
 
-估计美国之音4月21日报道，日本星期三正式撤销俄罗斯的最惠国贸易地位，加紧对俄罗斯因入侵乌克兰所实施的制裁。
+信息来源： [米財務省、ロシアの仮想通貨マイニング企業に制裁　「プーチンの残忍な戦争を支援しているため」（ITmedia NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c8c23ee19bebcc58ffb96e1fa9647079f0a86cea)
 
-取消俄罗斯最惠国贸易地位将对所有俄罗斯进口商品提升关税。在此之前，美国和7国集团其它成员国决定采取这个行动。
-
-日本国会星期三的决定还包括修正一项外汇兑换法律，防止那些被冻结资产的国家转让持有的虚拟货币。
-
-日本还冻结数百名俄罗斯人和团体的资产，禁止新投资和贸易，包括可能被用于军事目的的商品出口。日本还宣布计划逐渐停止进口俄罗斯的煤炭。
-
-不过日本也面临俄罗斯的报复。莫斯科最近宣布停止与东京的和平条约谈判，包括对于前苏联二战结束时占领日本岛屿的谈判。
-
-参考链接：[日本正式撤销俄罗斯最惠国贸易地位](https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
