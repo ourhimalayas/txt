@@ -15,77 +15,77 @@
 
 ---
 
-### [Nicole采访来自美国首都华盛顿DC的犹太裔义工](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中日财经爆┃HPay就是未来金融界的信仰](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：跟随爆料革命变富人](/content/gnews/2/README.md)
+### [【419五周年】4/19/2022 Nicole战友救援前线采访的美国青年义工说美国之音419断播令人伤透了心](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大魁省疫情毫无减弱趋势](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [郭文贵先生2022年4月20日盖特视频（9分12秒）全文字版](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/20/2022 文贵盖特：法币是宗教，数字货币才是信仰；SWIFT如果不是被政府和利益集团控制理应也是金融的信仰](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [419五周年大直播：郝海东和叶钊颖谈认识爆料革命](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [《把这个世界还给我们》—动漫剧场](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [大直播后记：由VOA断播和疫苗开始转变相信七哥](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：不灭共中国人在西方比俄罗斯还惨](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [419五周年大直播后记：爆料革命的核武器就是实力，终将成为打扫战场的人](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：BBC大佬彭定康如何被中共威胁毙掉七哥采访](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [来自俄罗斯的小伙子和非洲莫桑比克共的义工支持新中国联邦灭共](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [拜登主持美欧日盟友首脑会议，岸田首相宣布追加2亿美元贷款](/content/gnews/9/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文贵爆料4.19：习进平,共产党是危墙，新中国联邦是中国的唯一的诺亚方舟](/content/gnews/10/README.md)
+### [2022月04日17日 文贵展示G-fashion直播](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [被日本驱逐的俄罗斯外交官已于20日离境](/content/gnews/11/README.md)
+### [中共纳粹式防疫](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [Nicole采访来自美国首都华盛顿DC的犹太裔义工](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：跟随爆料革命变富人](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [《把这个世界还给我们》—动漫剧场](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [拜登主持美欧日盟友首脑会议，岸田首相宣布追加2亿美元贷款](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [文贵爆料4.19：习进平,共产党是危墙，新中国联邦是中国的唯一的诺亚方舟](/content/gnews/13/README.md)
+ ` 秘密翻译组-原创组`
+
+### [被日本驱逐的俄罗斯外交官已于20日离境](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃台媒华视误播台海开战](/content/gnews/12/README.md)
+### [樱花时政┃台媒华视误播台海开战](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美医生因治疗新冠受到立法机构表彰 却遭卫生部门调查](/content/gnews/13/README.md)
+### [美医生因治疗新冠受到立法机构表彰 却遭卫生部门调查](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [零售商警告说，中共对上海的野蛮封锁加剧全球供应链危机](/content/gnews/14/README.md)
+### [零售商警告说，中共对上海的野蛮封锁加剧全球供应链危机](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [停泊在希腊的俄罗斯原油油轮被扣押…70万桶货物不在对象范围内](/content/gnews/15/README.md)
+### [停泊在希腊的俄罗斯原油油轮被扣押…70万桶货物不在对象范围内](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安大略省新冠病毒疫情最新简报](/content/gnews/16/README.md)
+### [安大略省新冠病毒疫情最新简报](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/17/README.md)
+### [加拿大违反《权利与自由宪章》最严重省份排行榜](/content/gnews/20/README.md)
  ` 扬帆枫叶快讯`
 
-### [通货膨胀已严重影响加拿大民生](/content/gnews/18/README.md)
+### [通货膨胀已严重影响加拿大民生](/content/gnews/21/README.md)
  ` 扬帆枫叶快讯`
 
-### [【419五周年】4/19/2022 信仰是不确定的，是包容的，是让你怀疑的；宗教是一成不变的，排他的，不容质疑的；新中国联邦人要有信仰，坚持唯真不破](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [美日欧紧急会议 日本向乌克兰追加2亿美元贷款](/content/gnews/20/README.md)
+### [美日欧紧急会议 日本向乌克兰追加2亿美元贷款](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（04/20/2022）](/content/gnews/21/README.md)
+### [五月花简报（04/20/2022）](/content/gnews/23/README.md)
  ` mayflowertranslate`
 
-### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/22/README.md)
+### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
 
 ### [多伦多发生乘客被推下地铁事件](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
@@ -117,50 +117,50 @@
 ### [如何智慧地应对共产党的大隔离](/content/gnews/34/README.md)
  ` 银河歌舞厅`
 
-### [22%长期护理院爆发病毒，安省每天感染超十万](/content/gnews/35/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词](/content/gnews/36/README.md)
+### [上海有人唱国歌宣泄对封城不满 官方径直封禁“起来”词](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [招行股价大跌 行长田惠宇就地免职](/content/gnews/37/README.md)
+### [招行股价大跌 行长田惠宇就地免职](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [秦刚在美《国家利益》撰文，粉饰中俄关系](/content/gnews/38/README.md)
+### [秦刚在美《国家利益》撰文，粉饰中俄关系](/content/gnews/37/README.md)
  ` 波士顿五月花农场`
 
-### [20多名被救援的儿童，在NFSC大帐篷度过复活节](/content/gnews/39/README.md)
+### [20多名被救援的儿童，在NFSC大帐篷度过复活节](/content/gnews/38/README.md)
  ` 波士顿五月花农场`
 
-### [尽管俄罗斯的最后通牒到期，马里乌波尔没有人投降](/content/gnews/40/README.md)
+### [尽管俄罗斯的最后通牒到期，马里乌波尔没有人投降](/content/gnews/39/README.md)
  ` Shuizhuyu`
 
-### [COVID-19疫苗副作用集萃（2022.4.20H）－辉瑞第一针，肺部栓塞](/content/gnews/41/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.20H）－辉瑞第一针，肺部栓塞](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记——对“419断播”事件的感受](/content/gnews/42/README.md)
+### [大直播后记——对“419断播”事件的感受](/content/gnews/41/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃日元贬值的元凶！疑日央行实行“指示性价格操作”](/content/gnews/43/README.md)
+### [中日财经爆┃日元贬值的元凶！疑日央行实行“指示性价格操作”](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾｜外媒忧台湾网路遭断 美前军事顾问：断开海缆、断开与世界的连结](/content/gnews/44/README.md)
+### [台湾｜外媒忧台湾网路遭断 美前军事顾问：断开海缆、断开与世界的连结](/content/gnews/43/README.md)
  ` 關注組`
 
-### [特首选举｜李家超YouTube竞选频道遭停用 Google：执行美国制裁令](/content/gnews/45/README.md)
+### [特首选举｜李家超YouTube竞选频道遭停用 Google：执行美国制裁令](/content/gnews/44/README.md)
  ` 關注組`
 
-### [俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面](/content/gnews/46/README.md)
+### [俄乌战争｜欧盟理事会主席突访基辅 计划与泽连斯基会面](/content/gnews/45/README.md)
  ` 關注組`
 
-### [新西兰财经G乐部2022年4月20日:财经新闻整理](/content/gnews/47/README.md)
+### [新西兰财经G乐部2022年4月20日:财经新闻整理](/content/gnews/46/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [俄乌战争｜日本今驱逐8名俄罗斯外交人员](/content/gnews/48/README.md)
+### [俄乌战争｜日本今驱逐8名俄罗斯外交人员](/content/gnews/47/README.md)
  ` 關注組`
 
-### [台湾之子｜台湾华视“误报”共军导弹袭台 国民党立委“慎重”看待](/content/gnews/49/README.md)
+### [台湾之子｜台湾华视“误报”共军导弹袭台 国民党立委“慎重”看待](/content/gnews/48/README.md)
  ` 關注組`
+
+### [2022年04月19日断播门五周年特别直播速记（第二部分）](/content/gnews/49/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
 ### [台海危机｜报多区遭解放军导弹击中 台湾华视道歉称失误所致](/content/gnews/50/README.md)
  ` 關注組`

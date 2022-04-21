@@ -2,144 +2,28 @@
 ---
 
 
-## 《把这个世界还给我们》—动漫剧场
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2382795/)
+## 加拿大魁省疫情毫无减弱趋势
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2382960/)
 
-```
-By:秘翻大剧场 
-2022-04-21
-```
+采编：加拿大温哥华扬帆农场 – 文莱
 
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-
-```
-《把这个世界还给我们》
-  《Give Us Back The World》
-
-  编剧/审核：文姝
- Scriptwriter/Verify: Wenshu
- 动漫制作：坚强的泡沫
- Animation:Jianqiang De Paomo
- 视频制作：坚强的泡沫 爱爆彩蛋
- Video production:Jianqiang De Paomo and Ai Baocaidan
- 监制：文姝
- Supervisor: Wenshu
- 朗诵：文姝
- Recite：Wenshu
- 音乐：《铁锁梦》
- 《Chained woman’s dream》
- 演唱：Miles Guo
- Singer： Miles Guo
- 字幕：XO
- Subtitle: XO
- 包装：茶乌龙
- Visual effect:Cha Wulong
-  
- 翻譯： Annabelle
- Translator: Annabelle
- 校稿：蓮花/向日葵
- Edit: lotus/sunflower 
-
- 你是否知道自己从哪里来
- Do you know where you are coming from?
- 你可记得
- Do you still remember?
- 母亲那温暖的笑容
- Mum’s warm smile
- 父亲那压弯了的背脊
- Papa’s bent spine
- 你可听到
- Can you hear
- 母亲那失魂的呼唤
- Mum’s calling out
- 父亲那捶胸的痛哭
-  Papa’s sorrowfully crying
-
- 你是否知道自己为什么在这里
- Do you know why you are here
- 你可记得
- Do you remember
- 那一天被捆绑卖到这里
- That day you were kidnapped and sold here
- 那一群野兽围住你
- The bunch of beasts surrounded you
- 指指点点
- Pointed at you
- 几张毛大头买走了你的一生
-  
- Your entire life has been sold cheaply
- 你被带到了这个被诅咒的家
- You were brought to this cursed family
-  
- 那一夜 
- That night
-
- 那个野兽夺走了你的一切
- The beast took everything from you
- 你发疯的反抗
- You madly resisted
- 不，这不是你的命运
- No, this is not your fate
- 你呼喊你撕咬你挣扎
- You screamed, bit and struggled
-  
- 你拼尽了所有的力气
- Used up all your strength
-  
- 从此你和亲人生死相隔
- You and your be loved never met since then
-
- 再也听不见母亲的呼唤
- Never heard your mum’s voice
- 再也看不见父亲的笑脸
- Never saw your papa’s smile
-  
- 殴打、蹂躏、生娃、绝望
- Been Beated, tortured, despairing and gave births
- 你被铁锁囚禁二十四年
-  
- Have been chained for 24 years
- 你被投进围栏
- Have been locked in a cage
- 与鸡鸭共栖
-  
- Living with poultry
- 与猪狗同命
- Same fate as pigs and dogs
- 你恨
- You hate
-  
- “这个世界不要我了”
- 【七哥演唱：这个世界不要我了，声音坚强】
-  This world abandoned me
- 我恨
- I hate
- 是谁夺走了你的命运
- Who took my fortune
- 是谁践踏了你的人生
- Who ruined your life
- 是谁把这个世界变成地狱
-  
- Who turned this world to the hell
- 是谁让中国人戴上了铁锁
- Who put the iron lock on Chinese people
- 我们要砸碎这铁锁
- We must smash the iron lock
- 推翻这恶党
- Perish this evil Party
- 把这个世界还给我们
-  
- Give us back the world
- 把这个世界还给我们 
- Give us back the world
- 
-发布:星星
-更多精彩尽在秘翻大剧场，敬请关注@GTGrandTheatre，最新播出消息发布。
-```
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2539.png)图片来源：[https://montreal.ctvnews.ca](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
+据[CTV新闻]4月19日报道，官方最新数据显示，加拿大魁北克省当天因感染新冠病毒而住院的人数上升至2281人，因此而死亡的总人数目前已接近15000人。
+
+报道称，由于受疫情影响，包括因感染病毒而隔离和等待病毒检测结果等，已有超过1万名医护人员被迫暂停工作。同时，该省当天确诊了约2000例新增病毒感染，但卫生部承认，实际感染数字可能要高出10倍。
+
+到目前为止，已有91%的魁北克人接种了新冠病毒疫苗，其中，54%的人口已注射了三剂疫苗。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
