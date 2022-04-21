@@ -2,48 +2,42 @@
 ---
 
 
-## 揭开地主刘文彩的真相
-` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2383355/)
+## 樱花时政┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383377/)
 
-作者：香草山写作组—静言
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯成功试射萨尔马特洲际弹道导弹-普京继续恐吓西方.png)[图片来源](https://www.zerohedge.com/geopolitical/russia-tests-new-intercontinental-ballistic-missile-putin-warns-enemies-its-food) （图为“萨尔马特”洲际弹道飞弹）
 
+在向乌克兰发起新一轮猛攻之际，俄罗斯周三（4月20日）测试了核能力洲际弹道导弹，普京直言要让西方好好掂量掂量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-4.png)
-刘文彩1887年生于四川大邑县，是中共宣传的“臭名昭著”的大地主，被塑造为旧社会地主阶级压迫平民阶级的典型代表，四大恶霸地主之一，其他三位虚构的人物是周扒皮，南霸天，黄世仁。1949年10月17日，刘文彩因病而逝，也有说被中共逼迫吓死。
+据国际文传电讯社Interfax援引俄罗斯国防部的话说，在针对西方的一个新的 “信息 “中，俄罗斯周三试射了一枚新的萨尔马特（Sarmat）洲际弹道导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/27CHINALANDLORD-web1-master1050.jpg)图源网络
+普京在宣布的一份声明中说，新的萨尔马特导弹将为 “那些试图威胁俄罗斯的人提供思考的机会”。他对武装部队的成功试射表示祝贺。根据另一个翻译，他说萨尔马特将 “让那些试图威胁俄罗斯的疯子们思考”。
 
-中共为了宣传刘文彩如何压迫贫下中农，特意在刘文彩庄园里建水牢模型，仿制铁囚笼、三角钉等刑具，以及血水、血手印，建成“水牢”，对社会开放作宣传教育素材欺骗民众，为阶级斗争理论，发动群众起来批判揪斗地主，专门塑造地主剥削农民而树立的一个典型反面形象。在小学课本与艺术舞台上，到处充斥着“收租院”、“恶霸地主刘文彩”等虚假素材。据当时声称曾被打进水牢的人后来透露，是县委教她讲假话的。
+“萨尔马特 “是世界上最强大的导弹，具有最大的打击范围。它将大大加强俄罗斯战略核武装力量的战斗力，”俄罗斯国防部说。
 
-刘文彩有个军阀弟弟刘文辉是川军旅长，借着这层关系，刘文彩官运财运畅通，开银行商号、做信用贷、高利贷、办加工作坊、近代工业企业，成为富甲一方大富豪。用今天的话来讲，刘文彩实际是“实业兴国”的大企业家。
+试验发生在俄罗斯的最北部，据说是在位于莫斯科以北约800公里的普列谢茨克(Plesetsk)航天港进行的。
 
-晚年，刘文彩个人出资2.5亿元，按照当时汇率，折合美元为200多万美元，兴办了当时全四川师资设备最好的文彩中学，后变更为安仁中学；他兴修万成堰水利工程，造福当地百姓；又出资修建公路等，也做过许多让当地百姓可称之为善举的事。
+根据国家媒体的描述，”该导弹是作为ICBM R-36M2（北约报告名称SS-18 Satan）的替代品而开发的。预计它能有效地以动能冲击能量摧毁全球各地的敌方战略目标，而且不需要使用核弹头”。
 
-因其弟刘文辉与当时的中共组织有联系，中共地下党司令部就设在刘家庄园里，刘文彩曾多次资助过地下党活动。
+克里姆林宫发布了周三发射 “撒旦 “(SS-18 Satan)的录像…
 
-与许多有产阶层家庭一样，因惧怕共产党上台后会没收他们的财产，刘家当时也计划逃往香港。但已与中共走在同一条路上的刘文辉，极力劝刘家人留在大陆，以为作为中共长久以来的朋友会被善待。但在中共掌权的数十年里，在一系列政治运动中，刘氏家族房产被没收，刘家人频频成为挨整的对象，中共过河拆桥，翻脸不认人。 今天的中共国里，无数曾经风光不可一世的富人，企业家及白手套们，还做着发财美梦，看看刘文彩的经历，该梦醒了。
+最近，人们普遍猜测普京是否会 “愿意 “在乌克兰使用战术核弹——外交部长拉夫罗夫在周二的声明中明确拒绝了这一点。
 
-参考来源：
-1.[刘文彩](https://zh.m.wikipedia.org/wiki/刘文彩)
-2.[大地主刘文彩是怎么死的？有人说是被吓死的，真相到底是什么呢？](https://3g.163.com/dy/article/G5EMTISN0543K6D6.html?referFrom=&amp;spss=adap_dy)
-3.[为祖父证明：大地主刘文彩之孙的孤军奋战](https://cn.nytimes.com/china/20160811/cc11chinalandlord/)
+周二，外交部长谢尔盖-拉夫罗夫在接受《今日印度》采访时被问及使用核武器的可能性，他回答说俄罗斯只会在乌克兰使用常规武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-16.jpg)
+信息来源：** **
+[**Russia Tests Nuclear-Capable ICBM As Putin Warns Enemies It’s “Food For Thought”**](https://www.zerohedge.com/geopolitical/russia-tests-new-intercontinental-ballistic-missile-putin-warns-enemies-its-food)
 
-编辑/校对/发稿：兰兰
-
-更多资讯，更多关注
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-4.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

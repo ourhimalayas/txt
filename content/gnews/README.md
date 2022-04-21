@@ -21,47 +21,47 @@
 ### [2022年4月20日郭先生盖特 — 视频1「9分12秒」](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中日财经爆┃中共国内正处于重大粮食危机边缘](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上海市民打12339国家安全热线举报核酸检测有图谋](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（2/6）](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [419五周年:美国志愿者为美国媒体的堕落感到羞愧](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花时政┃联合国秘书长 有意访问俄罗斯和乌克兰](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃习近平的疫苗阴谋是现实版“人类清除计划”](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [要实现清洁能源，美国可以选择摆脱对中共依赖的替代方案](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭先生临时直播要点（2022年4月20日）](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（1/6）](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：日本安全部门例数俄罗斯间谍罪状](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国对俄罗斯银行、寡头、加密矿商BitRiver实施新制裁](/content/gnews/13/README.md)
+### [抗议俄侵略 美英加G20会议集体离席](/content/gnews/3/README.md)
  ` 蓝莲花农场`
 
-### [大直播后记：七哥揭秘接受VOA419直播采访的过程](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [樱花时政┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方](/content/gnews/15/README.md)
+### [中日财经爆┃中共国内正处于重大粮食危机边缘](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭开地主刘文彩的真相](/content/gnews/16/README.md)
- ` 历史组`
+### [上海市民打12339国家安全热线举报核酸检测有图谋](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（2/6）](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [419五周年:美国志愿者为美国媒体的堕落感到羞愧](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花时政┃联合国秘书长 有意访问俄罗斯和乌克兰](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃习近平的疫苗阴谋是现实版“人类清除计划”](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [要实现清洁能源，美国可以选择摆脱对中共依赖的替代方案](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭先生临时直播要点（2022年4月20日）](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（1/6）](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：日本安全部门例数俄罗斯间谍罪状](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国对俄罗斯银行、寡头、加密矿商BitRiver实施新制裁](/content/gnews/14/README.md)
+ ` 蓝莲花农场`
+
+### [大直播后记：七哥揭秘接受VOA419直播采访的过程](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花时政┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [众议员迈克·沃尔兹：习近平也有建帝国的野心，习从普京的错误中学到了很多。](/content/gnews/17/README.md)
  ` 美国政要直译推`

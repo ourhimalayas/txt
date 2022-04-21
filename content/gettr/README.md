@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group4/origin/2022/04/21/04/e9844c4d-b3fd-d90c-f4f0-13b2f979b4ca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 3:03 AM (UTC)`
 
 4/20/2022 Miles Guo’s GETTR: Intense battles are expected to happen this week in the Russia-Ukraine war, and Putin is going to gain leverage through the battles for negotiations; the Taiwan issue involves multiple aspects, and the complicated situation brings little hope for Taiwan; the CCP’s “zero-Covid” control across the country is just its end-of-life rally<br/><br/>4/20/2022 文贵盖特： 俄乌战场本周将有大战，背后的目的就是普京要借此要挟和世界讲数；台湾问题涉及很多方面，情况复杂希望渺茫；中共的“清零”管控是其灭亡前的最后挣扎<br/>
@@ -149,13 +156,6 @@ A Volunteer from France likes our vest of “Take down the Chinese Communist Par
 
 2022-04-20 俄乌战争战况播报
 ![img](https://media.gettr.com/group39/origin/2022/04/20/17/fec696d5-d3a9-b475-2410-6ac392445ec5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/20/2022 5:49 PM (UTC)`
-
- 4月20号：尊敬的战友们好！刚刚的直播断掉了，我要去开会了，就不继续了，非常的抱歉。
-![img](https://media.gettr.com/group33/getter/2022/04/20/17/06423f7a-efe3-57f2-0053-4fde8261dcb4/fa04cee8558e69337a1cd627ec637adc.jpg)
 
 ---
 
