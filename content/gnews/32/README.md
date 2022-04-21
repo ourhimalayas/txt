@@ -2,47 +2,30 @@
 ---
 
 
-## 2022年4月21日战时快讯（1）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2384352/)
+## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
 
-#### 雅典娜情报组《战时快讯专栏》
+撰稿:彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
+4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
 
-**整理/编辑：围剿维尼熊**
+之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/25DA27F8-BDDB-427B-A7BA-929066D7BB15.jpg)图片来源：红星新闻
+除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
 
+根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
 
-1—俄罗斯星期三(4月20日)对马里乌波尔发动了新的进攻。俄军袭击了亚速钢厂，乌克兰最后的守卫者仍困守在钢厂。
+该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
 
-2—俄罗斯星期三(4月20日)对乌克兰港口城市马里乌波尔发动新的攻击之际，美国总统拜登召集军事领导层开会，对俄乌局势进行最新评估。
+该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
 
-3—英国首相约翰逊把乌克兰同俄罗斯总统普京的谈判比喻成与鳄鱼谈判。约翰逊表示有关乌克兰的任何和谈都可能失败，西方继续武装乌克兰，至关重要。
+报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
 
-4—美国、加拿大和英国的高级领导人星期三在20国集团会议上离场，抗议俄罗斯与会。
+*责编：彩虹*
 
-5—日本星期三正式撤销俄罗斯的最惠国贸易地位，加紧对俄罗斯因入侵乌克兰所实施的制裁。
+**新闻来源**
 
-6—俄乌战争正在给全球粮食供应带来巨大压力，推升食品价格。但多名专家表示，美国不会遭遇食品短缺。
-
-7—俄罗斯寡头丁科夫日前对莫斯科当局提出了尖锐的批评。他在社交媒体上发帖称，克里姆林宫的领导层都是一群白痴，俄军在乌克兰的行径则无异于屠杀。
-
-8—中国海关总署最新发布的数据显示，今年3月中国从俄罗斯进口煤炭的数量从去年同期的440万吨暴跌到312万吨，跌幅高达29%。
-
-9—美国常驻联合国代表Linda Thomas-Greenfield大使星期三会晤了被中国当局关押的维吾尔族医生古丽仙·阿巴斯的家人并谴责中共当局对维吾尔等少数民族的暴行。
-
-10—高级官员们在美国和古巴本星期就移民关切举行会谈之前说，美国将探讨恢复与古巴移民协定的可能性。
-
-以上讯息均来自于网络，仅供参考。
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](//discord.gg/76QVRChsgU)
-
-
+[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
 
  
 

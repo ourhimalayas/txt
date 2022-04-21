@@ -2,54 +2,34 @@
 ---
 
 
-## 自由之光
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2385457/)
+## 组图：乌克兰第二大城市再遭袭击
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2385475/)
 
-**作者：**敢想敢做
-**编辑：**翼族
+**撰稿：日本东京方舟农场  子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/0f50dd96daf4cc1d.jpg)雅典娜设计组（新世界）
+4月19日，俄罗斯军队攻势转向乌克兰东部之后，第二大城哈尔科夫（Kharkiv）再度遭到袭击。俄军攻击造成至少7人死亡、21人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-41.jpg)（图片来自大纪元）
+哈尔科夫是乌克兰的第二大城，在俄军入侵之前有近150万居民，与俄军进攻后发生了激烈的战斗，但始终处于乌克兰的控制之下。
 
+哈尔科夫市长伊戈尔‧捷列霍夫（Igor Terekhov）表示，目前已有7人死亡21人受伤，其中有3名紧急服务人员在拆解未爆弹时不幸身亡。
 
-我们记得祖宗的智慧，
-我们记得祖先的心血，
-我们记得祖上的文明，
-我们记得祖先用 鲜血 换来的土地——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/00.jpg)
 
-如今 恶棍 屠城香港 血洗西藏 屠尽新疆，
-（控制思想，祸害世界！）
-我们将为 祖宗 荣耀 而战！
-（中共 是我们 国人的羞辱！）
-我们 将反抗 黑暗 ！
-反击邪恶！
-（打击腐败！）
-反扑独裁！
-（反攻绝望！）
+2022年4月18日，乌克兰哈尔科夫（Kharkiv），俄罗斯发动攻击后，民宅车库发生大火。
 
-我们将 高唱 自由！
-(歌颂 民主！)
-称颂慈爱！
-高唱光明！ ！ ！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/000-1.jpg)
 
-死亡与邪恶 不停 召唤，
-独裁 与腐败 充斥着世界，
-痛苦 和悲伤 在世界上 滋生，
-来吧！战友们！醒来吧！
-是时候 该 正眼 对待 这世界！
-（我想从 这抹 黑雾 中 逃走！）
-但总是让内心 崩溃！
-振作起来！
-（我们 看到了 黑暗中的 光！）
-（我们 追逐着 这抹 光芒！）
-黑雾 即将 散去，
-我们终将 重新看到 明亮的阳——光！
+2022年4月19日，乌克兰哈尔科夫（Kharkiv），俄罗斯发动攻击后，造成当地居民死伤。图为公园里的一具尸体。
 
-*发布：翼族*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0000.jpg)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+2022年4月19日，乌克兰哈尔科夫（Kharkiv），俄罗斯发动攻击后，造成当地居民死伤。图为一具尸体倒卧在商店外。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/20/n13715945.htm](https://www.epochtimes.com/gb/22/4/20/n13715945.htm)
+
+总编：老孙
+校对发布：Linda
 
  
 
