@@ -2,12 +2,38 @@
 ---
 
 
-## 美国之音、华尔街和许多公司都与中共存在巨大利益联系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2383327/)
+## 樱花时政┃五角大楼：乌克兰已收到美国盟友提供的战斗机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383438/)
 
-【419五周年】04/19/2022 美国之音、华尔街和许多公司都与美国人民的头号敌人——中共，存在巨大利益联系； 他们正在与魔鬼做交易。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃五角大楼：乌克兰已收到美国盟友提供的战斗机.png)[图片来源](https://www.zerohedge.com/geopolitical/ukraine-has-received-fighter-planes-unnamed-us-ally-pentagon-confirms) 
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+自俄罗斯入侵乌克兰开始以来，五角大楼周二（4月19日）首次隐晦地确认，乌克兰已经收到了战斗机。在一次新闻发布会上，发言人约翰-柯比（John Kirby）小心翼翼地表示，不是美国派送的。
+
+他没有具体说明送来的是什么类型的飞机，只是说乌克兰部队 “现在可以使用的固定翼战斗机比两周前多”。柯比描述说：”不谈其他国家提供什么，他们（乌克兰部队）已经收到额外的平台和部件，能够增加他们的机队规模。”
+
+“对这些类型的飞机有经验的其他国家已经能够帮助他们获得更多的飞机并运行，”柯比补充说。至于美国的作用，他只具体说明了在运输一些零部件方面给予的援助，但美国 “没有输送整架飞机”。
+
+乌克兰总统泽连斯基数周来一直在游说西方国家首都 “关闭天空”，或设立禁飞区，这将导致俄罗斯与北约的直接战争。虽然他最近稍有放弃此言论，但他采取的策略是，如果他的西方支持者不准备承诺设立禁飞区，那么他们至少可以提供飞机。
+
+至于五角大楼最近承认的战机被转移到基辅，关于哪个国家是幕后者，仍有几种可能性。上个月，波兰提出了一项协议，如果华盛顿通过用美国战斗机升级来补充其损失掉的供应，华沙就会将其近20架米格机交给乌克兰。五角大楼显然对这一举措措手不及，拒绝了它。
+
+斯洛伐克是另一种可能，因为它向乌克兰发送了一套S—300系统和导弹，美国同意向该国提供“爱国者”的补给。斯洛伐克随后提出在美国派遣升级版美国飞机进行补给的基础上，派遣米格喷气机进行类似配置。
+
+很可能，这些东欧或波罗的海北约国家之一提供了科比周二提到的飞机。就在乔-拜登据说准备批准向乌克兰提供另一个8亿美元的武器包之际，这一消息的披露使自战争开始以来给予的军事援助总额超过了30亿美元。
+
+信息来源：
+** **[**Ukraine Has Received Fighter Jets From Unnamed US Ally: Pentagon**](https://www.zerohedge.com/geopolitical/ukraine-has-received-fighter-planes-unnamed-us-ally-pentagon-confirms)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

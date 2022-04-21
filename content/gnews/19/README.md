@@ -2,23 +2,46 @@
 ---
 
 
-## 加拿大通胀率失控再创新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383214/)
+## 上海封城与新冠病毒无关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+翻译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2547.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
-据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国3月份通货膨胀率已接近7%，是自1991年1月以来消费价格指数同比增长最快的一年。
 
-据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同期相比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年2月以来的最大涨幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
 
-报道称，尽管目前平均工资增长了3.4%，但仍然远低于持续上升的通胀率，而最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
+约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
 
-校对编辑：硫酸羟氯喹64
+在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
 
-新闻来源： [https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
+
+“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
+
+更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
+
+但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
+
+因为，上海封城最可能的原因与新冠病毒无关！
+
+新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 
