@@ -15,101 +15,101 @@
 
 ---
 
-### [要实现清洁能源，美国可以选择摆脱对中共依赖的替代方案](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭先生临时直播要点（2022年4月20日）](/content/gnews/2/README.md)
- ` 波士顿五月花农场`
-
-### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（1/6）](/content/gnews/3/README.md)
+### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（2/6）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：日本安全部门例数俄罗斯间谍罪状](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [COVID-19疫苗副作用集萃(2022.4.21A) 疫苗混打带来的心理恐惧和身体后遗症](/content/gnews/5/README.md)
+### [419五周年:美国志愿者为美国媒体的堕落感到羞愧](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃五角大楼：乌克兰已收到美国盟友提供的战斗机](/content/gnews/6/README.md)
+### [樱花时政┃联合国秘书长 有意访问俄罗斯和乌克兰](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国对俄罗斯银行、寡头、加密矿商BitRiver实施新制裁](/content/gnews/7/README.md)
- ` 蓝莲花农场`
-
-### [大直播后记：七哥揭秘接受VOA419直播采访的过程](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [樱花时政┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方](/content/gnews/9/README.md)
+### [樱花时政┃习近平的疫苗阴谋是现实版“人类清除计划”](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭开地主刘文彩的真相](/content/gnews/10/README.md)
- ` 历史组`
-
-### [众议员迈克·沃尔兹：习近平也有建帝国的野心，习从普京的错误中学到了很多。](/content/gnews/11/README.md)
- ` 美国政要直译推`
-
-### [美国志愿者为美国媒体的堕落感到羞愧](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大坚持交通出行的口罩授权政策](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [美国之音、华尔街和许多公司都与中共存在巨大利益联系](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [樱花时政┃日本正式撤销俄罗斯最惠国贸易地位](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [数据显示大多数COVID死亡发生在疫苗推出之后](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [香港公务员辞职创新高 投考须国安法测试合格](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：印度拒绝援助乌克兰的日本自卫队运输机过境](/content/gnews/18/README.md)
+### [要实现清洁能源，美国可以选择摆脱对中共依赖的替代方案](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《太阳报》记者展示了哈尔科夫被俄报复性轰炸后的现场](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [郭先生临时直播要点（2022年4月20日）](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
 
-### [目前的推特无药可救，它必须被拆解](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [上海封城与新冠病毒无关](/content/gnews/21/README.md)
+### [俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（1/6）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [德国人电话中骂中共国和政府是一坨屎的录音已全网删除](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
+### [秘翻在线：日本安全部门例数俄罗斯间谍罪状](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃G20俄罗斯发言美英等国离席抗议](/content/gnews/23/README.md)
+### [樱花时政┃五角大楼：乌克兰已收到美国盟友提供的战斗机](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本正式撤销俄罗斯最惠国贸易地位](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [美国对俄罗斯银行、寡头、加密矿商BitRiver实施新制裁](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
 
-### [樱花时政┃七国集团在制裁俄罗斯问题上团结一致](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [419五周年大直播后记：爆料革命激发内心的勇气](/content/gnews/26/README.md)
+### [大直播后记：七哥揭秘接受VOA419直播采访的过程](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大通胀率失控再创新高](/content/gnews/27/README.md)
+### [樱花时政┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [揭开地主刘文彩的真相](/content/gnews/13/README.md)
+ ` 历史组`
+
+### [众议员迈克·沃尔兹：习近平也有建帝国的野心，习从普京的错误中学到了很多。](/content/gnews/14/README.md)
+ ` 美国政要直译推`
+
+### [美国志愿者为美国媒体的堕落感到羞愧](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大坚持交通出行的口罩授权政策](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯试射新洲际弹道导弹](/content/gnews/28/README.md)
- ` 日本東京方舟農場`
+### [美国之音、华尔街和许多公司都与中共存在巨大利益联系](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [研究人员警告：口罩可能会导致婴儿语言发育迟缓](/content/gnews/29/README.md)
+### [樱花时政┃日本正式撤销俄罗斯最惠国贸易地位](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [数据显示大多数COVID死亡发生在疫苗推出之后](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|集中力量办大事，究竟是办谁的大事 「非脱敏」](/content/gnews/30/README.md)
+### [香港公务员辞职创新高 投考须国安法测试合格](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：印度拒绝援助乌克兰的日本自卫队运输机过境](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [《太阳报》记者展示了哈尔科夫被俄报复性轰炸后的现场](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [目前的推特无药可救，它必须被拆解](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [上海封城与新冠病毒无关](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [德国人电话中骂中共国和政府是一坨屎的录音已全网删除](/content/gnews/25/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [日本正式撤销俄罗斯最惠国贸易地位](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花时政┃七国集团在制裁俄罗斯问题上团结一致](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [419五周年大直播后记：爆料革命激发内心的勇气](/content/gnews/28/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大通胀率失控再创新高](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄罗斯试射新洲际弹道导弹](/content/gnews/30/README.md)
+ ` 日本東京方舟農場`
+
+### [视频|集中力量办大事，究竟是办谁的大事 「非脱敏」](/content/gnews/31/README.md)
  ` 爆料视频`
 
-### [视频|煎、煮、烧、烤CCP;砍、剁、切、削习近平。「非脱敏」](/content/gnews/31/README.md)
+### [视频|煎、煮、烧、烤CCP;砍、剁、切、削习近平。「非脱敏」](/content/gnews/32/README.md)
  ` 爆料视频`
-
-### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](/content/gnews/32/README.md)
- ` 纽约香草山MOS01`
 
 ### [俄罗斯试射可携带核弹头的新型洲际弹道导弹](/content/gnews/33/README.md)
  ` 蓝莲花农场`

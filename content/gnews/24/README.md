@@ -2,29 +2,46 @@
 ---
 
 
-## 日本正式撤销俄罗斯最惠国贸易地位
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2383227/)
+## 上海封城与新冠病毒无关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
 
-![日本首相岸田文雄在东京宣布对俄罗斯实施新的制裁（2022年2月25日）](https://gdb.voanews.com/02280000-0aff-0242-92a4-08da01658571_w1023_r1_s.jpg)日本首相岸田文雄在东京宣布对俄罗斯实施新的制裁（2022年2月25日）
-据美国之音4月21日报道，日本正式撤销俄罗斯的最惠国贸易地位，对所有俄罗斯的进口商品提升关税。日本还冻结了数百名俄罗斯人和团体的资产，禁止新投资和贸易，包括可能被用于军事目的的商品出口。日本还计划逐渐停止进口俄罗斯的煤炭。此前，日本还驱逐了8名俄罗斯外交官和贸易官员。
+翻译： Jenny Ball
 
-日本在制裁俄罗斯方面发挥了更大的作用，因为担心这次入侵对东亚产生影响。俄罗斯入侵乌克兰之后，遭到了世界各国的制裁。只有中共国拒不谴责，一直保持与俄罗斯的通商，在联合国和国际社会公开站台俄罗斯，并且背后提供支持。作为俄罗斯的长期盟友，中共军方对台湾、对东亚地区的威胁咄咄逼人，日本感到危险临近。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-日本已经面临俄罗斯的报复。莫斯科最近宣布停止与东京的和平条约谈判，包括对于前苏联二战结束时占领日本岛屿的谈判。俄罗斯侵占了中国大片土地，中共才是真正的卖国贼和盗国贼，也是对整个世界的灾难负有全部责任的罪魁祸首。消灭中共就是解决了世界灾难。
 
-新闻参考链接：[https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html](https://www.voachinese.com/a/japan-revokes-russia-mfn-status-20220420/6537891.html)
 
-编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
+
+约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
+
+在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
+
+莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
+
+“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
+
+更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
+
+但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
+
+因为，上海封城最可能的原因与新冠病毒无关！
+
+新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 

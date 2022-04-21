@@ -2,23 +2,31 @@
 ---
 
 
-## 加拿大通胀率失控再创新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383214/)
+## 樱花时政┃七国集团在制裁俄罗斯问题上团结一致
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383216/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七国集团在制裁俄罗斯问题上团结一致.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2547.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+由日本、美国和欧洲组成的七国集团（G7）工业化国家4月20日在美国华盛顿特区举行了一次财政部长和中央银行行长会议。他们确认在处理俄罗斯问题上团结一致，包括经济制裁，并发表声明说，他们将 “合作防止制裁出现漏洞”。他们还强调，他们将 “密切关注 “俄罗斯入侵乌克兰后国际金融市场的不稳定发展，并明确表示，他们将在必要时合作，以确保市场稳定。
 
+就在由七国集团、俄罗斯、中国和其他新兴经济体组成的20国集团（G20）的一次会议暴露了与会国之间的裂痕之后，七国集团已经表明它愿意采取团结行动，阻止俄罗斯的军事侵略行为。
 
-据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国3月份通货膨胀率已接近7%，是自1991年1月以来消费价格指数同比增长最快的一年。
+正如郭文贵先生说的，世界格局随着俄乌战争完全改变，邪恶的中共，俄罗斯这样的独裁国家已经被世界抛弃。代表中国人的新中国联邦终将会站上世界舞台。
 
-据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同期相比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年2月以来的最大涨幅。
+信息来源：
+[Ｇ７、ロシア制裁で結束　金融市場の動向注視―財務相・中銀総裁会議](https://www.jiji.com/jc/article?k=2022042100176&amp;g=pol)
+[图片链接](https://wedge.ismedia.jp/articles/-/23362)
 
-报道称，尽管目前平均工资增长了3.4%，但仍然远低于持续上升的通胀率，而最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
-
-校对编辑：硫酸羟氯喹64
-
-新闻来源： [https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
