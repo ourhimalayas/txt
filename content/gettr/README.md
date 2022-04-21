@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 1:39 AM (UTC)`
+
+【419 5th anniversary】04/19/2022 VOA, Wall Street and many corporations have huge financial ties with the CCP, the No.1 enemy of the American people. They're making deals with the devil.<br/><br/>【419五周年】04/19/2022 美国之音、华尔街和许多公司都与美国人民的头号敌人——中共，存在巨大利益联系； 他们正在与魔鬼做交易。
+![img](https://media.gettr.com/group20/getter/2022/04/21/01/739686e0-9c59-74b9-a999-da002d829ec6/out.jpg)
+
+---
+
 `@miles 4/21/2022 1:08 AM (UTC)`
 
 4/20/2022 Miles Guo’s GETTR: Fiat currency is like a religion, while digital currency is faith. If SWIFT were not controlled by governments or interest groups, it would also become the faith of finance. The Himalaya Coin, the "Tang Ping (lying flat) Coin", and the Himalaya Pay will be the faith of the financial sector in the future.<br/><br/>4/20/2022 文贵盖特：法币是宗教，数字货币才是信仰；SWIFT如果不是被政府和利益集团控制理应也是金融的信仰；喜币、躺平币加上H-Pay将会是未来的金融界的信仰<br/>
@@ -149,13 +156,6 @@ MILES GUO Livestream 2022-04-20
 
 【419 5th Anniversary】4/19/2022 With Wang Huning etc chosen as head of the CCP’s think tank, Xi is destined to go on the journey of extreme Communism and Marxism; Marxism is an evil ideology of ruling mankind and enslaving mankind; in the eyes of Marxists and the CCP, as said by Mao’s mistress Zhang Yufeng, women are nothing but their urinals.<br/><br/>【419五周年】4/19/2022 选择王沪宁等人作为智囊注定了习必然走极端的共产主义马克思主义路线。马克思思想是统治人类奴隶人类的魔鬼思想，在对待女性问题上，正如毛泽东的情妇张玉凤所说，在共产党眼里，女人不过是他们的尿壶。<br/>
 ![img](https://media.gettr.com/group6/getter/2022/04/20/16/289fa9ad-731c-633b-1f97-f6d5cb030878/out.jpg)
-
----
-
-`@miles 4/20/2022 3:51 PM (UTC)`
-
-【419 5th Anniversary】4/19/2022 Meng Jianzhu regretted very much that he did not get rid of Xi promptly; there is no doubt that the Whistleblowers’ Movement completely changed the course of China! The credit goes to citizens of the New Federal State of China, particularly those anonymous fellow fighters within the CCP who have been making contributions silently.<br/><br/>【419五周年】4/19/2022 孟建柱现在最后悔当时没有把习做掉。爆料革命毫无疑问百分之百地改变了中国！这一切归功于新中国联邦人，特别是在体制内默默无闻地奉献的战友们！<br/>
-![img](https://media.gettr.com/group23/getter/2022/04/20/15/c5fea8b5-5d6b-c597-5456-f65c06c471a1/out.jpg)
 
 ---
 
