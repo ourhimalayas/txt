@@ -2,36 +2,67 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.21D) 新冠疫苗副作用非常明显
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383836/)
+## 俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（5/6）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383987/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：噜噜咪
 
-整理/编辑：禄森
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-52.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**帖子原文**：
 
-**博主: 为美好世界送上祝福**
 
-睡到半夜，疫苗第三针副作用反应明显。一个人在国外这时候最想家，最希望有人关心，但是害怕家里人担心又不敢说，只能起床喝片止痛药，补口水，多拿出一床被子盖上，瑟瑟发抖中在没人看的微博里抒发一下心里的难过，睡了…
 
-**作者发布于2022-4-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2565.png)图片来源：微博
-参考链接：
+**[接上篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（4/6）](https://gnews.org/zh-hans/2383876/)**
 
-[接种第三针疫苗后全身难受，发冷](https://weibo.com/5494708418/LoVpUffcv?refer_flag=1001030103_)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-442.jpg)周二，在乌克兰东部，一名乌克兰军人坐在一辆装甲战车上面。
 
-*发布：tianzhihuan*
+即将到来的战斗被视为决定乌克兰——或许也是俄罗斯——最终命运的关键所在。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+两个多星期前，俄罗斯在夺取首都失败后从基辅撤退，并在此后的日子里在东部集结部队，试图重新开始其失败的入侵并取得其第一个重大战场胜利。
+
+大多数部队都聚集在伊久姆，这是一座横跨顿涅茨河的城市，距哈尔科夫以南约70英里，预计将向南推进到马里乌波尔。
+
+如果马里乌波尔落入俄军之手——预计将在未来几周内发生——这些部队可能会开始向北推进，以钳形运动的方式与伊久姆部队汇合。
+
+其目的是包围在老顿巴斯前线战壕里的乌克兰士兵，他们自2014年以来一直在那里与俄罗斯支持的顿涅茨克和卢甘斯克的分离主义分子作战。
+
+如果俄罗斯人能够完成这一推演，那么这些部队——被称为联合部队行动(JFO)，被认为包括乌克兰军队的一大部分——将被切断供应，容易投降。
+
+如果俄罗斯成功包围并迫使JFO部队投降，那么这将为克里姆林宫和其既定的战争目标之一——从乌克兰控制下“解放”顿巴斯提供巨大的宣传动力。
+
+根据俄罗斯在此过程中损失的军队数量，这场胜利还可能促使普京重新部署军队，对乌克兰西部的城市——哈尔科夫、第聂伯罗、扎波罗热、尼古拉耶夫以及可能的敖德萨和基辅进行新的攻击。
+
+此举将使战争拖延数月——可能是数年——并使乌克兰作为一个主权国家的生存受到威胁。
+
+但是，如果乌克兰取得胜利，它将给俄罗斯的入侵计划带来沉重打击，并使普京失去任何可以想象的胜利途径。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-180.jpg)周一，在马里乌波尔的伊利奇钢铁厂冶金厂被毁的部分看到被烧毁的车辆。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-156.jpg)周二，在乌克兰基辅附近的伊尔平，一名内政部工兵在最近的战斗后拆除了雷场上的地雷。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-141.jpg)周二，在伊尔平，一名男子看着在俄罗斯对乌克兰的攻击中被摧毁的汽车，这些汽车是从不同地方收集的。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-102.jpg)周二，在离乌克兰基辅不远的Zalisia村，一辆被毁坏的俄罗斯坦克出现在一条公路旁。
+
+**[接下篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（6/6）](https://gnews.org/zh-hans/2384130/)**
+
+新闻来源：[‘Russia continues failing to achieve its aims as quickly as it would like’: MoD says Ukrainian forces are ‘repelling numerous attempted advances’ as Russian shelling ‘increases’ in Donbas](https://www.dailymail.co.uk/news/article-10732907/MoD-says-Ukraine-repelling-numerous-attempted-advances-Russian-forces-Donbas.html)
+
+* * *
+
+素材:peacelv
+审核：文乐   
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
 
  
 

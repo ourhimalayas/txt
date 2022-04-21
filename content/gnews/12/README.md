@@ -2,24 +2,38 @@
 ---
 
 
-## 视频|中共在“清零”政策掩护下的毒疫苗杀人计划
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2383766/)
+## 多户住宅单位激增，3月房屋开工和许可数量上升
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2383841/)
 
-制作：香草山视频部
+据《Zerohedge》记者：Tyler Durden，2022年4月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2566-e1650521745641.png)图片来源：Forbes
+随着抵押贷款利率上升、房屋建筑商情绪下滑以及房屋销售疲软，分析师曾预计 3月份房屋许可和开工数环比下降，但由于2月份数据的向下修正，房屋开工数令人惊讶的环比增长0.3%（对比 -1.6% 环比预期) 和房屋建造许可环比增长 0.4%(对比 -2.4% 环比预期)…
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2567.png)资料来源：《彭博社》
+新屋开工率升至2006年以来的最高SAAR…
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2571.png)资料来源：《彭博社》
+许可证和开工大幅增长的部分原因为多户单位作为单户单位进行建设推动。
 
-4月18日，郭文贵先生在盖特视频中再次揭露了中共政府以疫情“清零”政策为掩护，实施毒疫苗杀人计划的丑恶行径。
+随着单户住宅开工回落，多户住宅的开工率飙升（分别为-.7%SAAR和 +7.5%SAAR）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2572.png)资料来源：《彭博社》
+同样，单户住宅许可证下降，而多户住宅许可证上升（分别为-4.8% SAAR和 +10.9% SAAR）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2573.png)资料来源：《彭博社》
+然而这些都无助于单户库存的惨淡，因此也无助于提升负担能力。
 
-郭先生指出，虽然中共声称其在2022年第一季度的经济增长速度达到4.8%，但据内部战友爆料，2022年中共国内的各项经济指标全部都是负增长。为此，对于所有中共认为会消耗社会资源、占用医疗物资、对社会难有贡献或已经成为社会负担的人群，例如中共国内60岁以上的群体，共产党正在试图使用中共病毒疫苗大规模地清除这部分老龄人口。
+文章来源：[h](https://www.zerohedge.com/personal-finance/multi-family-unit-surge-spraks-rise-housing-starts-permits-march)[ttps://www.zerohedge.com/personal-finance/multi-family-unit-surge-spraks-rise-housing-starts-permits-march](//www.zerohedge.com/personal-finance/multi-family-unit-surge-spraks-rise-housing-starts-permits-march)
 
-郭先生透露，目前在中共国内施行的防疫“清零”政策可以降低60%到70%的社会成本。与此同时，中共再使用毒疫苗杀人灭口，以此减轻自身负担，从而妄图继续巩固其邪恶统治。对此，郭先生补充，即将在青岛、大连、哈尔滨和海口实行的疫情“清零”政策正是中共这一杀人计划的幌子。
+翻译：洛杉矶盘古农场 – Raul
 
-郭先生也再次提醒墙内同胞，一定要认清中共在毒疫苗问题上的谎言：所有共产党的高层根本没有接种过中共病毒疫苗。因此，墙内的同胞务必真爱生命，远离中共病毒疫苗。
+校对：洛杉矶盘古农场 – Mike Li
 
-发稿：林礼
+编辑：洛杉矶盘古农场 – WenXiong
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,42 +2,36 @@
 ---
 
 
-## 樱花时政┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2383377/)
+## 美国对俄罗斯银行、寡头、加密矿商BitRiver实施新制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2383419/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯成功试射萨尔马特洲际弹道导弹-普京继续恐吓西方.png)[图片来源](https://www.zerohedge.com/geopolitical/russia-tests-new-intercontinental-ballistic-missile-putin-warns-enemies-its-food) （图为“萨尔马特”洲际弹道飞弹）
+翻译：多伦多蓝莲花- 灭共文明
+编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-2.jpg)
+《路透社》华盛顿4月20日报道，周三，美国财政部表示，**针对俄罗斯逃避现有制裁的行动，美国对俄数十家实体和个人实施制裁，其中包括一家俄罗斯商业银行和一家虚拟货币挖矿公司**。
 
-在向乌克兰发起新一轮猛攻之际，俄罗斯周三（4月20日）测试了核能力洲际弹道导弹，普京直言要让西方好好掂量掂量。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美国财政部-e1650506983710.jpg)美国财政部大楼（图片来源：华尔街日报）
 
-据国际文传电讯社Interfax援引俄罗斯国防部的话说，在针对西方的一个新的 “信息 “中，俄罗斯周三试射了一枚新的萨尔马特（Sarmat）洲际弹道导弹。
+报道称，**俄罗斯虚拟货币矿业**是世界第三大虚拟货币矿业公司。周三的制裁措施针对的是**位于莫斯科的比特币矿业公司BitRiver**，该公司在西伯利亚运营数据中心，并在俄罗斯有10家子公司。
 
-普京在宣布的一份声明中说，新的萨尔马特导弹将为 “那些试图威胁俄罗斯的人提供思考的机会”。他对武装部队的成功试射表示祝贺。根据另一个翻译，他说萨尔马特将 “让那些试图威胁俄罗斯的疯子们思考”。
+美国财政部表示，这是首次制裁虚拟货币采矿公司，**同时美国指定制裁了俄罗斯寡头马洛费耶夫领导的40多人和实体**。**冻结了这些人在美国的所有资产，并禁止美国人与他们进行交易**。
 
-“萨尔马特 “是世界上最强大的导弹，具有最大的打击范围。它将大大加强俄罗斯战略核武装力量的战斗力，”俄罗斯国防部说。
+据报道，美国当局长期以来一直指责**马洛费耶夫是俄罗斯人在克里米亚推动分裂主义的主要资金提供者**。本月早些时候，美国司法部指控马洛费耶夫违反了对俄罗斯实施的制裁。
 
-试验发生在俄罗斯的最北部，据说是在位于莫斯科以北约800公里的普列谢茨克(Plesetsk)航天港进行的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/比特币矿业公司BitRiver-e1650506535615.jpg)比特币矿业公司BitRiver在西伯利亚运营数据中心（图片来源: 网络）
 
-根据国家媒体的描述，”该导弹是作为ICBM R-36M2（北约报告名称SS-18 Satan）的替代品而开发的。预计它能有效地以动能冲击能量摧毁全球各地的敌方战略目标，而且不需要使用核弹头”。
+美国财政部负责恐怖主义和金融情报的副部长布莱恩·纳尔逊(Brian Nelson)在一份声明中表示，财政部将会把目标对准那些**逃避、试图逃避或帮助逃避美国对俄罗斯制裁的人**，因为他们正在帮助支持普京发动的残酷战争。
 
-克里姆林宫发布了周三发射 “撒旦 “(SS-18 Satan)的录像…
+纳尔逊还说，美国将努力确保对俄罗斯的制裁，与国际伙伴密切合作，削弱俄罗斯的投射力量和入侵的能力。
 
-最近，人们普遍猜测普京是否会 “愿意 “在乌克兰使用战术核弹——外交部长拉夫罗夫在周二的声明中明确拒绝了这一点。
+据报道，自俄罗斯入侵乌克兰以来，美国及其盟友已经对俄实施了几轮制裁，**包括针对该国最大的贷款机构、普京本人以及他的两个女儿**。
 
-周二，外交部长谢尔盖-拉夫罗夫在接受《今日印度》采访时被问及使用核武器的可能性，他回答说俄罗斯只会在乌克兰使用常规武器。
+美国财政部还**对俄罗斯商业银行Transkapitalbank实施了制裁**。财政部说，Transkapitalbank银行为包括中共国在内的亚洲和中东的几家银行提供服务。
 
-信息来源：** **
-[**Russia Tests Nuclear-Capable ICBM As Putin Warns Enemies It’s “Food For Thought”**](https://www.zerohedge.com/geopolitical/russia-tests-new-intercontinental-ballistic-missile-putin-warns-enemies-its-food)
+美国国务卿布林肯在一份声明中说，**美国国务院还对600多人实施签证限制，以促进对侵犯人权行为的问责，禁止他们前往美国**。布林肯说，我们将利用一切手段，对侵犯人权和违反国际人道主义法的行为进行追责。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+校对与发布：夏之木
+新闻来源链接：[New U.S. sanctions for Russian bank, oligarchs, crypto miner BitRiver](https://www.reuters.com/world/europe/us-imposes-new-russia-related-sanctions-2022-04-20/)
 
  
 
