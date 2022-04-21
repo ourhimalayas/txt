@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 7:04 PM (UTC)`
+
+2022-4-21《避风港》(38) 疫苗改变DNA，导致流产率增加16633%
+![img](https://media.gettr.com/group4/origin/2022/04/21/19/1493f420-edd6-f585-e3e2-ebc5b10d8e56/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/21/2022 6:45 PM (UTC)`
 
 4/21/2022 Miles Guo: Please shout it out! A large number of CCP's armed police have been deployed to at least a dozen of locations in Beijing, which is a sign of a proposed commencement of shutdown in Beijing; shutdown policy in Shanghai might be lifted soon, but the CCP will for sure hold those who have “leaked” information to outside for reprisal or retaliation; the CCP's so-called “Clean Internet” and “Searching Internet” is related to 419 special broadcast, which has a huge impact inside of the CCP China<br/><br/>4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算；419大直播在墙内影响巨大，所谓的净网、搜网活动与之有关<br/>
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 4/20/2022 Miles Guo: I reminded everyone that it would be impossible to withdraw money from the banks in Communist China. Some fellow fighters followed my advice and withdrew cash such that they managed to leave Shanghai by spending large sums of money. The evil of the CCP’s system is that the CCP is always going to sacrifice the lives, security, and wealth of 99% of the Chinese people to safeguard the safety and interests of the 1%. The CCP is the slave owner, with 99% of the Chinese being the slaves.<br/><br/>4/20/2022 文贵直播：文贵几个月前提醒大家在中共国银行存的钱会取不出来，上海有战友信了文贵的话并取了现金，在封城期间花重金成功离开上海；中共体制的邪恶在于永远要牺牲99%的人的生命、安全和财富来保障1%的人的安全和利益；中共是奴隶主，99%的中国人是奴隶<br/>
 ![img](https://media.gettr.com/group18/getter/2022/04/21/02/cfe7549a-9aaf-0f7a-9298-bd8cb02b611a/out.jpg)
-
----
-
-`@miles 4/21/2022 2:01 AM (UTC)`
-
-2022.04.20  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百七十一集 嘉宾：Nick、封神榜
-![img](https://media.gettr.com/group4/origin/2022/04/21/02/b2f93456-ecc1-a5ad-d721-cf4fb67fa317/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
