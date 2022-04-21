@@ -17,6 +17,48 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 1:08 AM (UTC)`
+
+4/20/2022 Miles Guo’s GETTR: Fiat currency is like a religion, while digital currency is faith. If SWIFT were not controlled by governments or interest groups, it would also become the faith of finance. The Himalaya Coin, the "Tang Ping (lying flat) Coin", and the Himalaya Pay will be the faith of the financial sector in the future.<br/><br/>4/20/2022 文贵盖特：法币是宗教，数字货币才是信仰；SWIFT如果不是被政府和利益集团控制理应也是金融的信仰；喜币、躺平币加上H-Pay将会是未来的金融界的信仰<br/>
+![img](https://media.gettr.com/group44/getter/2022/04/21/01/f9990b54-a838-3f9f-544f-062bb8c8b49c/out.jpg)
+
+---
+
+`@miles 4/21/2022 1:04 AM (UTC)`
+
+4/20/2022 Miles Guo’s GETTR: Response to our fellow fighters inside Communist China - so many fellow fighters were touched by yesterday’s 8-hour long broadcast and expressed their feelings and appreciations; our New Federal State of China is undertaking the great cause of saving our fellow Chinese and the entire humanity, while the Chinese Communist Party is aware that its days are numbered.<br/><br/>4/20/2022 文贵盖特：文贵统一回复国内战友们，昨天8小时的直播有太多感动、感慨和震撼了，新中国联邦在做着拯救人类和中国同胞这样的伟大事业，共产党知道它的末日到了<br/>
+![img](https://media.gettr.com/group8/getter/2022/04/21/01/bed178fd-824c-1ce1-cd16-f396fe5579d7/out.jpg)
+
+---
+
+`@miles 4/21/2022 1:04 AM (UTC)`
+
+2022.04.20 晚  新中国联邦 | 新闻访谈   VOA 419断播门五周年；核酸疫苗揭开黑幕一角
+![img](https://media.gettr.com/group19/origin/2022/04/21/01/83e2fe57-3645-4af8-2f4f-569e4c73e0ae/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/21/2022 1:02 AM (UTC)`
+
+【419 5th Anniversary】4/19/2022 Faith has a nature of uncertainty, is inclusive and can be questioned. Religion, on the other hand, is never-changing, exclusive and cannot be challenged; people of the New Federal State of China should have faith, and adhere to “Only Truth Prevails”!<br/><br/>【419五周年】4/19/2022 信仰是不确定的，是包容的，是让你怀疑的；宗教是一成不变的，排他的，不容质疑的；新中国联邦人要有信仰，坚持唯真不破！<br/>
+![img](https://media.gettr.com/group10/getter/2022/04/21/01/128b983b-3254-def5-6c7c-b5c5e3eaed58/out.jpg)
+
+---
+
+`@miles 4/21/2022 1:00 AM (UTC)`
+
+【419 5th Anniversary】4/19/2022 A young American volunteer interviewed by Nocole at the front line said something very touching at the end of his interview:  “Truth never hurts democracy, it only hurts those who are currently in power of a democracy! I would rather die a good man in a corrupt world than a bad guy in a good world”<br/><br/>【419五周年】4/19/2022 Nicole战友救援现场采访美国青年义工，采访结尾时美国义工令人感动地说: “真相永远不会伤害民主、它只会伤害企图控制民主的掌权人。我宁愿在一个贪腐世界中作为好人死去，也不愿意在一个美好世界中当坏人”<br/>
+![img](https://media.gettr.com/group22/getter/2022/04/21/01/7cb66a57-34d5-0c07-7ef3-ebfbeb502da2/out.jpg)
+
+---
+
+`@miles 4/21/2022 12:57 AM (UTC)`
+
+【419 5th Anniversary】 4/19/2022 A young American volunteer interviewed by Nicole at the front line of the NFSC & ROLF Ukraine rescue operation said that the VOA broadcast disruption incident on April 19, 2017, wrenches out the soul. He also said the US, a symbol of freedom and democracy, had been twisted by foreign interests, and that many influence groups and big businesses had sacrificed the American value of freedom to make profits in Communist China.<br/><br/>【419五周年】4/19/2022 Nicole战友救援前线采访的美国青年义工说美国之音419断播令人伤透了心！他还说，作为自由民主象征的美国竟被外国利益集团操纵，有影响力的组织和大公司为了在中共国获利而牺牲了美国的自由价值观<br/>
+![img](https://media.gettr.com/group14/getter/2022/04/21/00/ca6a88d9-620c-9d27-52ed-9699cf30267f/out.jpg)
+
+---
+
 `@miles 4/21/2022 12:32 AM (UTC)`
 
 2022.04.20 晚  新中国联邦 | 新闻   乌军指挥官讲述马里乌波尔战争的真实情况；美、英、加承诺为乌克兰提供更多武器
@@ -114,46 +156,6 @@ MILES GUO Livestream 2022-04-20
 
 【419 5th Anniversary】4/19/2022 Meng Jianzhu regretted very much that he did not get rid of Xi promptly; there is no doubt that the Whistleblowers’ Movement completely changed the course of China! The credit goes to citizens of the New Federal State of China, particularly those anonymous fellow fighters within the CCP who have been making contributions silently.<br/><br/>【419五周年】4/19/2022 孟建柱现在最后悔当时没有把习做掉。爆料革命毫无疑问百分之百地改变了中国！这一切归功于新中国联邦人，特别是在体制内默默无闻地奉献的战友们！<br/>
 ![img](https://media.gettr.com/group23/getter/2022/04/20/15/c5fea8b5-5d6b-c597-5456-f65c06c471a1/out.jpg)
-
----
-
-`@miles 4/20/2022 3:28 PM (UTC)`
-
-4月20号，《铁锁梦》MV在全球上线第二天，登榜iTunes <br/>23国MV总榜第一名🥇<br/>23国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼， 新加坡🇸🇬， 马来西亚🇲🇾， 新西兰🇳🇿， 澳大利亚🇦🇺，西班牙🇪🇸，荷兰🇳🇱，德国🇩🇪，法国🇫🇷，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，瑞典🇸🇪，英国🇬🇧，意大利🇮🇹，泰国🇹🇭，柬埔寨🇰🇭，越南🇻🇳，希腊🇬🇷，丹麦🇩🇰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/2380546/<br/>
-
----
-
-`@miles 4/20/2022 3:26 PM (UTC)`
-
-04/20/2022 on the 2nd day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 23 countries Top Music Video Charts <br/>No.1 🥇 on 23 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰 , USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Malaysia🇲🇾, New Zealand🇳🇿, Australia🇦🇺, Spain🇪🇸, Netherlands🇳🇱, Germany🇩🇪, France🇫🇷, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Sweden🇸🇪, UK🇬🇧, Italy🇮🇹, Thailand🇹🇭, Cambodia🇰🇭, Vietnam🇻🇳, Greece🇬🇷 , Denmark🇩🇰🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2380661/<br/><br/>
-
----
-
-`@miles 4/20/2022 2:26 PM (UTC)`
-
-【419 5th anniversary】04/19/2022 Mr. Miles Guo is not optimistic about Taiwan's defensive capabilities: everyone is counting on the US to come to their rescue, fearing for their lives; lack of experience in real combat and inability to counter a saturated attack from the CCP; internal corruption and even the purchasing of drones produced by the CCP. The people of Taiwan need to be mentally prepared.<br/><br/>【419五周年】04/19/2022 郭文贵先生对台湾的防御能力毫不乐观：所有人都指望美国前来解救，贪生怕死；缺乏实战经验，无力对抗来自中共的饱和性进攻；内部腐败，甚至购买产自中共的无人机。台湾人民需要做好心理准备。<br/>
-![img](https://media.gettr.com/group25/getter/2022/04/20/14/a64145fe-0ae8-7f21-457c-d9113c0a9f84/out.jpg)
-
----
-
-`@miles 4/20/2022 2:04 PM (UTC)`
-
-<br/>【419 5th anniversary】04/19/2022 The CCP will not be able to shirk its responsibility for a series of crimes such as the vaccine, the virus, the Hong Kong humanitarian disaster, the Xinjiang massacre, etc. The world will surely go after them. And the NFSC will definitely win the ultimate victory and shine on the world stage.<br/><br/>【419五周年】04/19/2022 中国共产党将无法推脱掉疫苗、病毒、香港人道灾难、新疆大屠杀等一系列罪行的责任，全世界最终一定会跟它算账的。而新中国联邦必将获得最终胜利，闪亮登上世界舞台。
-![img](https://media.gettr.com/group30/getter/2022/04/20/14/e23bbc73-79f3-7ed3-979e-0eb29c8f1078/out.jpg)
-
----
-
-`@miles 4/20/2022 1:40 PM (UTC)`
-
- 4月20号：尊敬的战友们好……衷心地感谢国内所有战友昨天一整天的陪伴．观看直播……和给我发的信息，我不能一一回复．万分的抱歉，一切都已经开始！
-![img](https://media.gettr.com/group43/getter/2022/04/20/13/e34eb488-ded3-6040-4e8a-09d9df8dcdb6/out.jpg)
-
----
-
-`@miles 4/20/2022 1:12 PM (UTC)`
-
-2022.04.20 早  新中国联邦 | 新闻访谈   P2P网贷老大哥遭审查起诉；招行行长田惠宇被免职
-![img](https://media.gettr.com/group8/origin/2022/04/04/13/a104f907-69b3-5d6f-d964-f5c4c78acd5d/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -15,25 +15,25 @@
 
 ---
 
-### [大直播后记：跟随爆料革命变富人](/content/gnews/1/README.md)
+### [Nicole采访来自美国首都华盛顿DC的犹太裔义工](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：跟随爆料革命变富人](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：由VOA断播和疫苗开始转变相信七哥](/content/gnews/2/README.md)
+### [《把这个世界还给我们》—动漫剧场](/content/gnews/3/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [大直播后记：由VOA断播和疫苗开始转变相信七哥](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：不灭共中国人在西方比俄罗斯还惨](/content/gnews/3/README.md)
+### [大直播后记：不灭共中国人在西方比俄罗斯还惨](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [419五周年大直播后记：爆料革命的核武器就是实力，终将成为打扫战场的人](/content/gnews/4/README.md)
+### [419五周年大直播后记：爆料革命的核武器就是实力，终将成为打扫战场的人](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：BBC大佬彭定康如何被中共威胁毙掉七哥采访](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：七哥谈VOA的历史重要性](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：419断播让无数人觉醒](/content/gnews/7/README.md)
+### [大直播后记：BBC大佬彭定康如何被中共威胁毙掉七哥采访](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
 ### [来自俄罗斯的小伙子和非洲莫桑比克共的义工支持新中国联邦灭共](/content/gnews/8/README.md)

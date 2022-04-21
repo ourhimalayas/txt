@@ -2,31 +2,144 @@
 ---
 
 
-## 大直播后记：不灭共中国人在西方比俄罗斯还惨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2382775/)
+## 《把这个世界还给我们》—动漫剧场
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2382795/)
 
-整理：GHope、铁血丹心
-编辑：Mohegayer K. Simon
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-8.png)图片来源：墨尔本雅典娜农场设计组
-叶钊颖：找工作没有人要，所有的这些事情他们都发生了，中共国党内的那些朋友，你们就想想，你们的孩子也是在西方这些国家，一旦动手了，你们的这些家人们，全都是一样的待遇。
-
-郝海东：只要是俄罗斯的都不要啊，一个俄罗斯孩子20多岁，现在就在西班牙实习，准备去读master，跟我女儿一块儿。她就告诉我，她爸爸全部卡钱都被冻结了，去实习的的材料，人家一看你是俄罗斯的就不要，没有任何解释的机会。共产党你们这帮孙子这时候你们再不起来，最后未来你们和你们的孩子的结果就是一样的，马上就会面临这些。
-
-七哥：这不叫爆料吧，就刚才，美国和欧洲已经在进行，对所有的中国和俄罗斯的政府工作人员的名单，他们都100%掌握的，没有任何99%，是100%掌握。他们进行了所谓的信息交流，包括反洗钱，他们利用反洗钱的这个系统来做的。就我说的rub原来就是监控美金的，一年1200万亿在全世界的周转的量，每一毛钱都在监控之中。其中有一个人告诉我说，他说Miles郭先生，我们现在发现共产党现在干的最多事情就是大量的藏匿它的财富，转移它的财富。很多中国女的和美国人结婚拿身份，现在中外婚姻增长，就是去存钱嘛。而且非常夸张的是信托公司在过去的6个月，来自中国的增加了将近70多倍，就是东弟颖妹妹刚才说的那个问题，实际上就一定会发生的，中国人到了很多地方，你根本没得去，就不让你去。我今天直播前，我们日本的一个战友告诉我，他要去做广告，结果人家说了因为你们是灭共的中国人，就容许你们做。然后呢，咱们另外一个日本战友说，他带着在国内跑出来的家人去银行，开完账号在回来的路上，银行打电话说我们查出来你们家里边有中国共产党干部，你的银行账号和钱都给你封了，你也不许动，然后找警察去报道。这就是今天最现实的，只有新中国联邦那个马甲可以救你，只有新中国联邦和法制基金，法治社会可以救你，在全世界共产党的未来绝对是比俄罗斯还惨。
-
-资料来源：[4.19断播五周年特别直播速记精萃](https://gnews.org/zh-hans/2377516/)
+```
+By:秘翻大剧场 
+2022-04-21
+```
 
 
-|   发布：tianzhihuan |
-| --- |
+
+```
+《把这个世界还给我们》
+  《Give Us Back The World》
+
+  编剧/审核：文姝
+ Scriptwriter/Verify: Wenshu
+ 动漫制作：坚强的泡沫
+ Animation:Jianqiang De Paomo
+ 视频制作：坚强的泡沫 爱爆彩蛋
+ Video production:Jianqiang De Paomo and Ai Baocaidan
+ 监制：文姝
+ Supervisor: Wenshu
+ 朗诵：文姝
+ Recite：Wenshu
+ 音乐：《铁锁梦》
+ 《Chained woman’s dream》
+ 演唱：Miles Guo
+ Singer： Miles Guo
+ 字幕：XO
+ Subtitle: XO
+ 包装：茶乌龙
+ Visual effect:Cha Wulong
+  
+ 翻譯： Annabelle
+ Translator: Annabelle
+ 校稿：蓮花/向日葵
+ Edit: lotus/sunflower 
+
+ 你是否知道自己从哪里来
+ Do you know where you are coming from?
+ 你可记得
+ Do you still remember?
+ 母亲那温暖的笑容
+ Mum’s warm smile
+ 父亲那压弯了的背脊
+ Papa’s bent spine
+ 你可听到
+ Can you hear
+ 母亲那失魂的呼唤
+ Mum’s calling out
+ 父亲那捶胸的痛哭
+  Papa’s sorrowfully crying
+
+ 你是否知道自己为什么在这里
+ Do you know why you are here
+ 你可记得
+ Do you remember
+ 那一天被捆绑卖到这里
+ That day you were kidnapped and sold here
+ 那一群野兽围住你
+ The bunch of beasts surrounded you
+ 指指点点
+ Pointed at you
+ 几张毛大头买走了你的一生
+  
+ Your entire life has been sold cheaply
+ 你被带到了这个被诅咒的家
+ You were brought to this cursed family
+  
+ 那一夜 
+ That night
+
+ 那个野兽夺走了你的一切
+ The beast took everything from you
+ 你发疯的反抗
+ You madly resisted
+ 不，这不是你的命运
+ No, this is not your fate
+ 你呼喊你撕咬你挣扎
+ You screamed, bit and struggled
+  
+ 你拼尽了所有的力气
+ Used up all your strength
+  
+ 从此你和亲人生死相隔
+ You and your be loved never met since then
+
+ 再也听不见母亲的呼唤
+ Never heard your mum’s voice
+ 再也看不见父亲的笑脸
+ Never saw your papa’s smile
+  
+ 殴打、蹂躏、生娃、绝望
+ Been Beated, tortured, despairing and gave births
+ 你被铁锁囚禁二十四年
+  
+ Have been chained for 24 years
+ 你被投进围栏
+ Have been locked in a cage
+ 与鸡鸭共栖
+  
+ Living with poultry
+ 与猪狗同命
+ Same fate as pigs and dogs
+ 你恨
+ You hate
+  
+ “这个世界不要我了”
+ 【七哥演唱：这个世界不要我了，声音坚强】
+  This world abandoned me
+ 我恨
+ I hate
+ 是谁夺走了你的命运
+ Who took my fortune
+ 是谁践踏了你的人生
+ Who ruined your life
+ 是谁把这个世界变成地狱
+  
+ Who turned this world to the hell
+ 是谁让中国人戴上了铁锁
+ Who put the iron lock on Chinese people
+ 我们要砸碎这铁锁
+ We must smash the iron lock
+ 推翻这恶党
+ Perish this evil Party
+ 把这个世界还给我们
+  
+ Give us back the world
+ 把这个世界还给我们 
+ Give us back the world
+ 
+发布:星星
+更多精彩尽在秘翻大剧场，敬请关注@GTGrandTheatre，最新播出消息发布。
+```
 
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/POSTER.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
