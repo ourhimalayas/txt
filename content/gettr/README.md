@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 3:39 PM (UTC)`
+
+04/21/2022 on the 3rd day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 11 countries Top Music Video Charts <br/>No.1 🥇 on 12 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Malaysia🇲🇾, New Zealand🇳🇿, Australia🇦🇺, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Sweden🇸🇪,  Cambodia🇰🇭, Greece🇬🇷<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月21号，《铁锁梦》MV在全球上线第三天，登榜iTunes <br/>11国MV总榜第一名🥇<br/>12国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，马来西亚🇲🇾，新西兰🇳🇿，澳大利亚🇦🇺，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，瑞典🇸🇪，柬埔寨🇰🇭，希腊🇬🇷的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2387106/
+
+---
+
 `@miles 4/21/2022 2:05 PM (UTC)`
 
 叶钊颖-郝海东-飞飞 《大实话·第十八场》： “民以食为天”   2022-04-21
@@ -149,13 +155,6 @@
 
 2022.04.20 晚  新中国联邦 | 新闻访谈   VOA 419断播门五周年；核酸疫苗揭开黑幕一角
 ![img](https://media.gettr.com/group19/origin/2022/04/21/01/83e2fe57-3645-4af8-2f4f-569e4c73e0ae/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/21/2022 1:02 AM (UTC)`
-
-【419 5th Anniversary】4/19/2022 Faith has a nature of uncertainty, is inclusive and can be questioned. Religion, on the other hand, is never-changing, exclusive and cannot be challenged; people of the New Federal State of China should have faith, and adhere to “Only Truth Prevails”!<br/><br/>【419五周年】4/19/2022 信仰是不确定的，是包容的，是让你怀疑的；宗教是一成不变的，排他的，不容质疑的；新中国联邦人要有信仰，坚持唯真不破！<br/>
-![img](https://media.gettr.com/group10/getter/2022/04/21/01/128b983b-3254-def5-6c7c-b5c5e3eaed58/out.jpg)
 
 ---
 

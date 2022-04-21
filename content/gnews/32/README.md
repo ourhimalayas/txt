@@ -2,24 +2,29 @@
 ---
 
 
-## 秘翻在线：德国外长表示到今年年底为止将停止进口俄罗斯原油
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2386012/)
+## 加拿大制裁普京家属及其政权幕僚
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2386416/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-42.jpg)图片来源：本文链接
-据韩媒《NEWSIS》4月21日的消息，20日(当地时间)BBC等外媒报道说，德国外长安娜莱娜·贝尔伯克表示，到今年夏天为止，德国将减少一半的俄罗斯产原油进口，年末将达到零，其次是天然气。
+采编：   加拿大温哥华扬帆农场 – 文莱
 
-德国政府还表示，目前原油进口的四分之一、天然气进口的40%都依赖于俄罗斯，如果突然中断供应，德国有可能面临经济萧条。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-美国已经禁止进口俄罗斯产原油，英国也在计划今年年末停止进口。
 
-贝尔伯克外长表示，德国也将遵循欧洲发展蓝图，分阶段中断俄罗斯产原油和天然气进口。
 
-德国已经为反对俄罗斯入侵乌克兰，全面中断了连接俄罗斯和德国的天然气管‘北流2’项目。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2658.png)图片来源：[https://torontosun.com](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-信息来源：[https://newsis.com/view/?id=NISX20220421\_0001841797&cID=10101&pID=10100](https://newsis.com/view/?id=NISX20220421_0001841797&amp;cID=10101&amp;pID=10100)
 
-责编：Eric Kim
+据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄罗斯总统普京关系密切的亲属和幕僚。
+
+报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
+
+加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。此外，特鲁多当天将与北约和欧盟领导人出席由美国拜登总统召开的视频会议。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
  
 

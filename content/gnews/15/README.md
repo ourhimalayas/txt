@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|西班牙志愿者被“推翻中共”的口号吸引
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2386888/)
+## 普京宣布占领马里乌波尔
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387075/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月16日，在新中国联邦梅迪卡救援前线的大帐篷里，战友采访了一位来自西班牙的志愿者卢卡。卢卡还是一名在校大学生，是利用复活节假期来到这里做志愿者帮助乌克兰难民的。他对新中国联邦战友黄马甲上写着的“推翻中共”的口号很感兴趣。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-46.jpg)
-让我们惊喜的是，他对中共对待香港、新疆的屠杀和镇压，压制新闻自由和活摘器官等罪行，以及美欧与其深入勾兑等，都有深刻认识，并用自己的切身经历表达了他对共产主义的体会。
+共同社4月21日报道，普京总统周四表示，俄罗斯军队已经有效地夺取了对马里乌波尔（Mariupol）的控制权，这是乌克兰东部顿巴斯地区的一个关键地区，同时他取消了冲击东南港口城市内一家钢铁厂的计划，那里仍有数千名乌克兰人藏身。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/P-1.jpg)yahoo.com
+普京宣布军事行动 “成功”，命令他的国防部长谢尔盖·绍伊古取消冲击亚速（Azovstal）钢铁厂的计划，因为这 “没有必要”，但要求继续封锁。
 
-最后，卢卡说他希望整个世界能够团结起来，停止互斗，共同对付像俄罗斯和中共这样的邪恶势力。
+攻占马里乌波尔标志着俄罗斯夺取包含亲俄分裂分子的乌克兰东部两个地区控制权这一目标的一个重要转折点。
 
+俄罗斯呼吁在钢铁厂做最后抵抗的志愿准军事民兵 “亚速营 ”和其他人投降。
 
+为了疏散估计躲在工厂里的大约1000名平民，乌克兰政府周三提议与俄罗斯在马里乌波尔举行谈判，并表示它准备立即无条件前往。
 
+俄罗斯的回应尚未得到确认，这加剧了人们对人道主义危机可能继续恶化的担忧。
 
+**快评**：俄乌战争正在走向更残酷的阶段，普京不会主动停止战争的。
 
-文字版原文：[西班牙志愿者被“推翻中共”的口号吸引](https://gnews.org/zh-hans/2371675/)
+参考链接：
+[https://english.kyodonews.net/news/2022/04/22e6fb1f131e-putin-declares-mariupol-captured-cancels-plan-to-storm-steel-plant.html](https://english.kyodonews.net/news/2022/04/22e6fb1f131e-putin-declares-mariupol-captured-cancels-plan-to-storm-steel-plant.html)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

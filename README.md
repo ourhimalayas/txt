@@ -15,143 +15,143 @@
 
 ---
 
-### [世界上最大的金条价值飙升](/content/gnews/1/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [串珠663:最烂的伪君子朱镕基给他八脑袋也不敢反习](/content/gnews/1/README.md)
+ ` 郭爆料串珠`
 
-### [中日财经爆┃现金极度紧张的中共地方政府又面临着新的挑战](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [串珠662:美军打了疫苗美军就没了，共产党就赢了](/content/gnews/2/README.md)
+ ` 郭爆料串珠`
 
-### [【G叻睇真D】中共国已与所罗门群岛签署了安全协议](/content/gnews/3/README.md)
+### [七哥说](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【G时新闻】新西兰政府宣布对俄罗斯金融机构的新制裁](/content/gnews/4/README.md)
  ` G-时新闻`
 
-### [MV版《铁锁梦》上线第3天位列12国iTunesMV榜首](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [针对王岐山的爆料仍未完结](/content/gnews/5/README.md)
- ` NFSC News`
-
-### [普京宣布占领马里乌波尔](/content/gnews/6/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [美国及世界疫情简报（04-21-2022）](/content/gnews/7/README.md)
- ` 波士顿五月花农场`
-
-### [419“知蒋干、用蒋干”之策](/content/gnews/8/README.md)
- ` NFSC News`
-
-### [上海市民吃不上饭，開始質疑现场，领导哑口无言](/content/gnews/9/README.md)
+### [全国房价 跌破万元大关！47个城市 房价回到一年前！CCP 借助疫情封控偷偷的把你的房子价值蒸发！很多中国人会说因为疫情影响房子跌了！没人会想到是CCP 让你这样想的](/content/gnews/5/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|招行股价大跌 行长田惠宇就地免职](/content/gnews/10/README.md)
- ` MOSREC`
+### [俄测试新洲际弹道导弹，普京警告这是反俄敌人的：“精神食粮”](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [山下良美成为有史以来首位负责亚洲冠军联赛女裁判](/content/gnews/11/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/7/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中日财经爆┃现金极度紧张的中共地方政府又面临着新的挑战](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共在“清零”政策掩护下的毒疫苗杀人计划](/content/gnews/12/README.md)
+### [郭先生直播中说：中共若攻台，新中国联邦将宣布台湾独立。](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|兵力不足 普京试图建立“儿童军队”](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [乌克兰前总理劝说印度不要首鼠两端](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
+### [【G叻睇真D】中共国已与所罗门群岛签署了安全协议](/content/gnews/11/README.md)
+ ` G-时新闻`
 
-### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
+### [MV版《铁锁梦》上线第3天位列12国iTunesMV榜首](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|西班牙志愿者被“推翻中共”的口号吸引](/content/gnews/15/README.md)
+### [有声|俄罗斯反战教师遭到当局文字狱陷害](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [泽连斯基与南非总统讨论粮食危机威胁](/content/gnews/16/README.md)
- ` 波士顿五月花农场金融部`
-
-### [COVID-19疫苗副作用集萃(2022.4.21 O) 接种第三针疫苗后身体反应太大了](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郭先生回顾419采访的始末](/content/gnews/18/README.md)
+### [针对王岐山的爆料仍未完结](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [从科学角度证明新冠病毒疫苗不可靠](/content/gnews/19/README.md)
- ` Himalaya 77 G-Engineers`
+### [普京宣布占领马里乌波尔](/content/gnews/15/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [“不反习”是文贵先生高超的智慧](/content/gnews/20/README.md)
+### [美国及世界疫情简报（04-21-2022）](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [04/21每日播報｜社媒消息: 娜塔莉温特斯 罗伯特马龙博士](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [419“知蒋干、用蒋干”之策](/content/gnews/17/README.md)
+ ` NFSC News`
 
-### [在七哥心中，每一位战友都平等重要](/content/gnews/22/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月21日:财经新闻整理](/content/gnews/18/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [新西兰财经G乐部2022年4月21日:财经新闻整理](/content/gnews/19/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [上海市民吃不上饭，開始質疑现场，领导哑口无言](/content/gnews/20/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|中共在“清零”政策掩护下的毒疫苗杀人计划](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [乌克兰前总理劝说印度不要首鼠两端](/content/gnews/22/README.md)
+ ` 温哥华扬帆农场`
+
+### [COVID-19疫苗副作用集萃(2022.4.21 P) 第三针加强针每天都有寻麻疹](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [泽连斯基与南非总统讨论粮食危机威胁](/content/gnews/24/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [COVID-19疫苗副作用集萃(2022.4.21 O) 接种第三针疫苗后身体反应太大了](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭先生回顾419采访的始末](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [从科学角度证明新冠病毒疫苗不可靠](/content/gnews/27/README.md)
+ ` Himalaya 77 G-Engineers`
+
+### [在七哥心中，每一位战友都平等重要](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/21/2022 银河快讯：日本撤销对俄最惠国待遇；俄罗斯外交官离开日本](/content/gnews/23/README.md)
+### [4/21/2022 银河快讯：日本撤销对俄最惠国待遇；俄罗斯外交官离开日本](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [反亚裔招生政策：维州学校董事会误导最高法院](/content/gnews/24/README.md)
+### [反亚裔招生政策：维州学校董事会误导最高法院](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大制裁普京家属及其政权幕僚](/content/gnews/25/README.md)
+### [中共大肆“蓝金黄”台湾军方及情报人员](/content/gnews/31/README.md)
+ ` 澳喜农场`
+
+### [加拿大制裁普京家属及其政权幕僚](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟委员会主席将访问印度，推动经济、安全和互联互通议程](/content/gnews/26/README.md)
+### [欧盟委员会主席将访问印度，推动经济、安全和互联互通议程](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/04/21 英喜时事速递](/content/gnews/27/README.md)
+### [2022/04/21 英喜时事速递](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加沙暴力加剧，耶路撒冷冲突再起](/content/gnews/28/README.md)
+### [加沙暴力加剧，耶路撒冷冲突再起](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法国极右翼领导人呼吁在立法选举之前建立联盟](/content/gnews/29/README.md)
+### [法国极右翼领导人呼吁在立法选举之前建立联盟](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国对俄罗斯实施26项新制裁](/content/gnews/30/README.md)
+### [英国对俄罗斯实施26项新制裁](/content/gnews/37/README.md)
  ` thedawn`
 
-### [中共全国各地自4月21日起通过健康码变相强制全员核酸](/content/gnews/31/README.md)
+### [中共全国各地自4月21日起通过健康码变相强制全员核酸](/content/gnews/38/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：德国外长表示到今年年底为止将停止进口俄罗斯原油](/content/gnews/32/README.md)
+### [秘翻在线：德国外长表示到今年年底为止将停止进口俄罗斯原油](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国表示无论国际形势如何变化都将与俄罗斯继续加强战略合作的关系](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [4/21/2022 国际财经快讯：美国经济在高通胀和乌克兰战争影响下温和增长; 特斯拉第一财季利润达到创纪录的33亿美元](/content/gnews/34/README.md)
+### [4/21/2022 国际财经快讯：美国经济在高通胀和乌克兰战争影响下温和增长; 特斯拉第一财季利润达到创纪录的33亿美元](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [闲聊澳洲：中国地产代理巨头易居宣布爆雷](/content/gnews/35/README.md)
+### [闲聊澳洲：中国地产代理巨头易居宣布爆雷](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：习近平向全世界喊话 这个世界不能不要我](/content/gnews/36/README.md)
+### [秘翻在线：习近平向全世界喊话 这个世界不能不要我](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜政治清零误春耕 中共国粮食危机再受关注](/content/gnews/37/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料](/content/gnews/38/README.md)
+### [武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年4月21日战时快讯（1）](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [京东“自杀式物流”赴上海遇阻](/content/gnews/40/README.md)
- ` 日本東京方舟農場`
-
-### [新西兰第一季度通胀达三十年来最高](/content/gnews/41/README.md)
+### [新西兰第一季度通胀达三十年来最高](/content/gnews/44/README.md)
  ` 澳喜农场`
 
-### [国际货币基金组织警告澳洲因其债务高企](/content/gnews/42/README.md)
- ` 澳喜农场`
-
-### [2022年4月19日4.19断播5周年大直播第二部分全文听写](/content/gnews/43/README.md)
+### [2022年4月19日4.19断播5周年大直播第二部分全文听写](/content/gnews/45/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/44/README.md)
+### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月16日晚](/content/gnews/45/README.md)
- ` MOSREC`
-
-### [有声|七哥谈喜币](/content/gnews/46/README.md)
- ` MOSREC`
 
 ### [文贵视角4.19: 危墙&#8212;中国共产党](/content/gnews/47/README.md)
  ` 秘密翻译组-原创组`
