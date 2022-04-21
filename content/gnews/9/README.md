@@ -2,44 +2,27 @@
 ---
 
 
-## 捷克公司修复受损的乌克兰坦克
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2385931/)
+## 专家称快速检测试剂或对新毒株无效
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2386029/)
 
-翻译：里奇
+采编：加拿大温哥华扬帆农场 – 硫酸氢氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-8.jpg)
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-布拉格，4 月 19 日（路透社）——捷克国防部周二表示，捷克国防公司将修理在战斗中受损或在长期储存后需要维修的乌克兰坦克和其他军用车辆。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2649.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
-捷克共和国一直是最积极支持乌克兰军队的国家之一，捐赠和出售武器和弹药，包括运送苏联时代的坦克、多管火箭发射器、榴弹炮、步兵战车和防空武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-20-625fcd2e4bb80-780x519-512341-1-edited.jpg)图片来源：新唐人亚太台
+据【CTV 新闻】4月17日报道，加拿大人两年来首次在几乎没有防疫限制的情况下庆祝复活节和逾越节。但公共卫生专家仍呼吁公众保持谨慎，特别是需要多次使用快速抗原自我检测方式来确认是否被病毒感染。
 
-“小故障或战斗损坏将由乌克兰军队和乌克兰国防工业自行修复” 该部表示。
+对此，安大略省医生朱尼认为，由于目前对奥米克戎BA.2亚变体缺乏了解，现有的快速检测试剂很难保证绝对有效，因此建议加拿大人在聚会活动前至少进行两次间隔24小时的快速自我检测，并在没有任何症状下才参加社交活动。
 
-“捷克的援助将利用捷克国防工业公司的能力进行更广泛的工作，包括大修和将长期储存的设备投入使用。”
+据悉，尽管加拿大的奥米克戎BA.2亚变体最初的传播速度似乎相对缓慢，但目前该变体已是曼尼托巴省和安大略省最主要的新冠病毒传播种类。
 
-它说，第一份合同将包括修理数量不详的苏联时代 T-64 坦克。
+校对编辑：硫酸羟氯喹64
 
-它表示，T-64坦克将在私营军火贸易和生产公司捷克斯洛伐克集团进行维修，这也是发往乌克兰的设备来源之一。
+发稿：青青
 
-该部表示，维修工作将在捷克公司位于捷克共和国和斯洛伐克的工厂进行。
-
-乌克兰一再呼吁西方提供重型装备和弹药，以帮助其抵抗俄罗斯的袭击。
-
-俄罗斯在 2 月袭击了乌克兰，称其为特别行动，意在使乌克兰去军事化。
-
-西方国家和乌克兰指责俄罗斯总统普京的无端侵略。
-
-新闻来源: 路透社[https://www.reuters.com/world/europe/czech-companies-repair-damaged-ukrainian-tanks-2022-04-19/](https://www.reuters.com/world/europe/czech-companies-repair-damaged-ukrainian-tanks-2022-04-19/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-5.jpeg)
+新闻来源： [https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
  
 
