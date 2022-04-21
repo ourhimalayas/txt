@@ -2,57 +2,47 @@
 ---
 
 
-## 俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（3/6）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383761/)
+## COVID-19疫苗副作用集萃(2022.4.21B) 接种新冠疫苗后心理负担加重
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2383782/)
 
-翻译：噜噜咪
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+整理/编辑：禄森
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-52.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+**帖子原文**：
 
-**[接上篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（2/6）](https://gnews.org/zh-hans/2383535/)**
+**博主: 够不够久67160**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-438.jpg)俄罗斯声称，随着弗拉基米尔·普京的军队在乌克兰东部的顿巴斯地区发起新的攻势，它已经用导弹、空袭和大炮打击了1200多个乌克兰目标，并爆发了巷战。图为周二，俄罗斯在米科拉耶夫的轰炸后的情景
+新冠之后反应：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-177.jpg)图为周二，在离乌克兰基辅不远的Zalisia村，一所受损的幼儿园。
+胳膊起了明泡，破裂后结痂，疤很痒，联动心脏也痒痒的，偶尔心慌不舒服，怕落疤中…
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-154.jpg)星期二在乌克兰东部的一个未知地点，俄罗斯对乌克兰的攻击仍在继续，乌克兰军人坐在一辆装甲战车上
+九价之后的反应:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-139.jpg)周二，内政部工兵在伊尔平与俄罗斯军队最近的战斗后拆除雷场上的地雷。
+胳膊痛痛，肚子两侧痛痛 脑袋晕晕……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-101.jpg)周二，在伊尔平的一个公墓里，掘墓人在为一名在俄军炮击中死亡的男子举行葬礼时填平坟墓。
+疫苗副作用代言人
 
-乌克兰当局周一表示，不少于1000名平民躲在马里乌波尔巨大的亚速钢铁厂的地下掩体中，并补充说俄罗斯正在向被围困城市中乌克兰控制的工厂投掷重型炸弹。
+**作者发布于2022-4-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2563.png)图片来源：微博
+参考链接：
 
-俄罗斯车臣地区领导人、俄罗斯总统普京的盟友拉姆赞·卡德罗夫说，俄罗斯军队将在星期二完全接管亚速钢铁厂。
+[心慌，胳膊打针处起泡](https://weibo.com/5838034897/LoHDMwWUe?refer_flag=1001030103_)
 
-卡迪罗夫在他的Telegram上的音频信息中说：“今天，在万能的主的帮助下，我们将……完全接管亚速钢铁厂”。
+*发布：tianzhihuan*
 
-在东部城市克雷明纳，地区长官说，俄罗斯军队在“将一切夷为平地”后控制了那里。他说，乌克兰军队已经撤退，重新集结并继续战斗，因为他警告说，从该市疏散平民是不可能的。
-
-海迪省长说：“站在一个地方，为大家牺牲，而不给敌人造成重大损失，这根本没有意义”。
-
-**接下篇俄狂轰滥炸顿巴斯欲快速拿下 遇乌军誓死抵抗未能如愿（4/6）**
-
-新闻来源：[‘Russia continues failing to achieve its aims as quickly as it would like’: MoD says Ukrainian forces are ‘repelling numerous attempted advances’ as Russian shelling ‘increases’ in Donbas](https://www.dailymail.co.uk/news/article-10732907/MoD-says-Ukraine-repelling-numerous-attempted-advances-Russian-forces-Donbas.html)
-
-* * *
-
-素材:peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-4.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
