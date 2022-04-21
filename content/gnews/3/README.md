@@ -2,30 +2,30 @@
 ---
 
 
-## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
+## 乌克兰哈尔科夫市长称城市正遭受猛烈轰炸
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2384910/)
 
-撰稿:彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
-4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
 
-根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/DBUJ7QCWOVMCLKDBB6IQINN73U.jpg)
 
-该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
 
-该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
+资料来源：路透社
 
-报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
+路透4月21日 – 乌克兰第二大城市哈尔科夫周四遭到猛烈轰炸，市长伊霍尔捷列霍夫说。
 
-*责编：彩虹*
+“巨大的爆炸声，俄罗斯联邦正在疯狂轰炸这座城市，”捷列霍夫在电视讲话中说。
 
-**新闻来源**
+他说，东北部城市仍有约100万人，约30%的人口已撤离，他们主要是妇女、儿童和老人。
 
-[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
+简评：乌克兰的第二大城市还在不停遭受俄罗斯的猛烈轰炸， 是不是该到了设置禁飞区的时候了， 西方和欧洲最重要的北约， 你们该动手了， 该到了制止疯狂战争犯普京的时候了。
+
+[乌克兰哈尔科夫市长称城市正遭受猛烈轰炸](乌克兰哈尔科夫市长称城市正遭受猛烈轰炸)
+
+责任编辑、发布： Shuizhuyu
 
  
 

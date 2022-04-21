@@ -2,25 +2,20 @@
 ---
 
 
-## 樱花时政┃岸田首相、靖国神社真榊奉纳
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2384338/)
+## 从“不反习”到“灭掉习”，都是为了消灭中国共产党
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2384355/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-岸田文雄首相21日，向东京九段北的靖国神社供奉了祭具真榊，开始的春季例大祭。真榊奉纳意味着参加神事，到22日为止，首相预计不亲自前往参拜。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-126.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220421-00000029-jij-000-12-view.jpg?exp=10800)
-在岸田内阁中，后藤茂之厚生劳动部长也奉纳了真榊。此外，自民党前首相安倍晋三、高市早苗政调会长亲自去参拜了。 真榊是祭坛左右竖立在祭祀场所的祭具。在绿色、黄色、红色、白色、蓝色的五色绸缎旗的尖端竖起榊，挂着至古以来统治着日本的三大神器。左侧挂剑，右侧挂镜子和勾玉。整体成为真榊台。
+撰稿：追着曙光跑
 
-消息来源：[岸田首相、靖国に真榊奉納　春季例大祭始まる（時事通信） – Yahoo!ニュース﻿](https://news.yahoo.co.jp/articles/b89f81445e3ef54be5595c8a3de7a9ed8555f7c2)
+4月19日，在VOA断播5周年大直播上，郭先生解释了2017年的郭七条里的“不反习”的原因。一是为了救出家人，二是利用离间计，让中共内部两派政治势力互相猜疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-21-at-4.53.41-PM.jpeg)
+由于家人被中共抓捕，了解中共对异议人士及家属使用的凶残手段，以及根据以往和习近平经常接触的经验，了解他的为人处事方式，首要任务是要救出家人。因此，郭七条里提出“不反习”。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+另外，在习近平和江派之间使用真的离间计，让当权者之间互相猜疑、斗争，达到瓦解两派的势力。互相收集政治对手的黑材料打击对手，是中共内部斗争的惯用手法。郭先生的“不反习”，加剧了上海帮的曾庆红、王岐山和孟建柱等与习近平之间的斗争。
+
+郭先生最后明确指出，以前“不反习”，但现在要“灭掉习”。2017年的“不反习”，不代表对习近平不做其他事情。如果不把习近平灭掉，那么他就要灭掉中国和世界。
+
+信息来源：[419五周年专场](https://gettr.com/streaming/p161dm5929a)
 
  
 
