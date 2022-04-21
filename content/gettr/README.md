@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 1:47 AM (UTC)`
+
+【419 5th Anniversary】04/19/2022  American volunteer feels embarrassed by the corruption of American media and calls for people not to be dissuaded by fear and threat<br/><br/>【419五周年】04/19/2022  美国志愿者为美国媒体的堕落感到羞愧，呼吁人们不要被恐惧和威胁所吓倒
+![img](https://media.gettr.com/group21/getter/2022/04/21/01/862dca40-4eed-fd47-a595-88e4b702854b/out.jpg)
+
+---
+
 `@miles 4/21/2022 1:39 AM (UTC)`
 
 【419 5th anniversary】04/19/2022 VOA, Wall Street and many corporations have huge financial ties with the CCP, the No.1 enemy of the American people. They're making deals with the devil.<br/><br/>【419五周年】04/19/2022 美国之音、华尔街和许多公司都与美国人民的头号敌人——中共，存在巨大利益联系； 他们正在与魔鬼做交易。
@@ -149,13 +156,6 @@ MILES GUO 直播 2022-04-20
 
 MILES GUO Livestream 2022-04-20
 ![img](https://media.gettr.com/group9/getter/2022/04/20/17/56fd9d7f-339b-3e15-f494-56f09902dc91/269f7b0af235fc925082f2145d64e0c7.jpg)
-
----
-
-`@miles 4/20/2022 4:04 PM (UTC)`
-
-【419 5th Anniversary】4/19/2022 With Wang Huning etc chosen as head of the CCP’s think tank, Xi is destined to go on the journey of extreme Communism and Marxism; Marxism is an evil ideology of ruling mankind and enslaving mankind; in the eyes of Marxists and the CCP, as said by Mao’s mistress Zhang Yufeng, women are nothing but their urinals.<br/><br/>【419五周年】4/19/2022 选择王沪宁等人作为智囊注定了习必然走极端的共产主义马克思主义路线。马克思思想是统治人类奴隶人类的魔鬼思想，在对待女性问题上，正如毛泽东的情妇张玉凤所说，在共产党眼里，女人不过是他们的尿壶。<br/>
-![img](https://media.gettr.com/group6/getter/2022/04/20/16/289fa9ad-731c-633b-1f97-f6d5cb030878/out.jpg)
 
 ---
 
