@@ -2,53 +2,38 @@
 ---
 
 
-## 诗歌《写问》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383142/)
+## 上海封城与新冠病毒无关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2383252/)
 
-整理：vale
+翻译： Jenny Ball
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-414.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-219.png)
 
-**《写问》**
-作者：俞心樵
+约翰-亨利（John-Henry）与作家兼中国专家史蒂文·莫舍（Steven Mosher）坐下来讨论上海 COVID 暴政的可怕场景，以及中共可能再次封锁其主要城市之一的真正原因。
 
-前生来世，不要忘记这一生
+在今天（4月19日）的“ 约翰-亨利.韦斯顿秀” （The John-Henry Westen Show ）节目中，我与作家兼中国专家史蒂文·莫舍，就上海这个世界上人口最多的城市之一的可怕场景进行了交谈。
 
-是最后一根稻草生下了我们
+莫舍与我观看了视频的尖叫、哭声、无人机、身穿防护服的警察，和 COVID 隔离营的可怕场景的详细信息。
 
-有时候，我们管遮住太阳的乌云叫母亲
+“那些站在阳台上半夜尖叫的人，不仅仅是在进行一种原始的尖叫，他们在黑暗中尖叫，毫无内容的声音，”莫舍说，“你实际上可以听到他们说，‘我们快死了！我们好久没吃饭了！我们需要食物，请帮助我们！’真令人心碎。”
 
-当然，这有什么错？是乌云带来了雨水
+更重要的是，中共几乎控制着每栋建筑物，因此，他们可以驱逐人，并已经将人们驱逐出了他们的公寓，因为官员们认为家里是一个“不赖的隔离中心”，所以，驱使这些不幸的居民实际上无家可归了。
 
-等鸡犬升天，于是我们的一生被淋成了落汤鸡
+但这些封锁的目的究竟是什么？中国人是否仍然对 COVID 感到极度恐惧？而其他国家的人都开始对此有所了解了，或者这是中共为了控制人口和展示共产党政权的力量而精心策划的举措？
 
-我们痛打落水狗，就好像落水狗不是我们自己
+因为，上海封城最可能的原因与新冠病毒无关！
 
-从中国的情况来看，不信上帝是行不通的
-
-但如果信了上帝，你说说，会不会更荒唐
-
-傲慢披上了谦卑的外衣
-
-当然，这是更大的傲慢
-
-我问你，门怎么写，不是为了写门
-
-而是为了写闪电的闪，然后再写问
-
-2020.8.18.简言居
+新闻来源：[The most likely reason for the lockdowns in Shanghai has nothing to do with COVID](https://www.lifesitenews.com/blogs/the-most-likely-reason-for-the-lockdowns-in-shanghai-has-nothing-to-do-with-covid/)
 
 * * *
 
-审核：Aries的星
-校对：花羽
+审核：文乐
+校对：阿伯塔
 发布：五通庙
-
-当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)

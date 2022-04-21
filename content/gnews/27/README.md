@@ -2,26 +2,27 @@
 ---
 
 
-## 越来越多的俄罗斯精英开始质疑普京的入侵计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2381777/)
+## 加拿大魁省疫情毫无减弱趋势
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2382960/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16504814991-1.png)DW.com
-据福克斯新闻4月20日报道，有克里姆林宫的高层官员开始质疑普京对乌克兰开战的决定。但他的支持率仍然居高不下。
+采编：加拿大温哥华扬帆农场 – 文莱
 
-普京在俄罗斯精英中的支持率居高不下的原因是，许多人依然相信克林姆林宫的话；即俄罗斯不会受西方制裁太大的影响。尽管如此，越来越多的人认为，普京继续入侵将使俄罗斯孤立于世界。俄罗斯经济的瘫痪将影响到其全球影响力。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-消息人士说，入侵乌克兰的决定是由普京和俄罗斯国防部长谢尔盖·绍伊古 （Sergei Shoigu）、俄罗斯上将瓦莱里·格拉西莫夫（Valery Gerasimov）和俄罗斯安全理事会主席尼古拉·帕特鲁舍夫 （Nikolai Patrushev）等少数俄罗斯精英做出的。
-
-鉴于战争持续了近两个月，和经济制裁加剧，包括俄罗斯政府和国有企业在内的高层认为，入侵是一个灾难性的错误。这将使该国的经济 倒退很多年。
-
-随着俄罗斯军队的挫败，普京说，是西方让他 ”别无选择”，他只能攻打乌克兰。一些官员越来越担心在可能面临失败的情况下，普京可能会使用核武器。但目前普京对这些有关战争经济代价的警告毫不在意。
-
-*责编：白夜*
-
-[文章来源](https://www.foxnews.com/world/russian-officials-questioning-putins-decision-to-invade-ukraine-report)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2539.png)图片来源：[https://montreal.ctvnews.ca](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
 
+据[CTV新闻]4月19日报道，官方最新数据显示，加拿大魁北克省当天因感染新冠病毒而住院的人数上升至2281人，因此而死亡的总人数目前已接近15000人。
+
+报道称，由于受疫情影响，包括因感染病毒而隔离和等待病毒检测结果等，已有超过1万名医护人员被迫暂停工作。同时，该省当天确诊了约2000例新增病毒感染，但卫生部承认，实际感染数字可能要高出10倍。
+
+到目前为止，已有91%的魁北克人接种了新冠病毒疫苗，其中，54%的人口已注射了三剂疫苗。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
  
 

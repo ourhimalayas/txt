@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 3:03 AM (UTC)`
+
+4/20/2022 Miles Guo’s GETTR: Intense battles are expected to happen this week in the Russia-Ukraine war, and Putin is going to gain leverage through the battles for negotiations; the Taiwan issue involves multiple aspects, and the complicated situation brings little hope for Taiwan; the CCP’s “zero-Covid” control across the country is just its end-of-life rally<br/><br/>4/20/2022 文贵盖特： 俄乌战场本周将有大战，背后的目的就是普京要借此要挟和世界讲数；台湾问题涉及很多方面，情况复杂希望渺茫；中共的“清零”管控是其灭亡前的最后挣扎<br/>
+![img](https://media.gettr.com/group35/getter/2022/04/21/03/9fbc825c-557f-4acd-880e-374865068b2d/out.jpg)
+
+---
+
 `@miles 4/21/2022 2:26 AM (UTC)`
 
 4/20/2022 Miles Guo: I reminded everyone that it would be impossible to withdraw money from the banks in Communist China. Some fellow fighters followed my advice and withdrew cash such that they managed to leave Shanghai by spending large sums of money. The evil of the CCP’s system is that the CCP is always going to sacrifice the lives, security, and wealth of 99% of the Chinese people to safeguard the safety and interests of the 1%. The CCP is the slave owner, with 99% of the Chinese being the slaves.<br/><br/>4/20/2022 文贵直播：文贵几个月前提醒大家在中共国银行存的钱会取不出来，上海有战友信了文贵的话并取了现金，在封城期间花重金成功离开上海；中共体制的邪恶在于永远要牺牲99%的人的生命、安全和财富来保障1%的人的安全和利益；中共是奴隶主，99%的中国人是奴隶<br/>
@@ -149,13 +156,6 @@ A Volunteer from France likes our vest of “Take down the Chinese Communist Par
 
  4月20号：尊敬的战友们好！刚刚的直播断掉了，我要去开会了，就不继续了，非常的抱歉。
 ![img](https://media.gettr.com/group33/getter/2022/04/20/17/06423f7a-efe3-57f2-0053-4fde8261dcb4/fa04cee8558e69337a1cd627ec637adc.jpg)
-
----
-
-`@miles 4/20/2022 5:26 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月19日第46天当日救援统计：<br/>Medyka救援站接待：约379人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13071人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 46 - Date: April 19, 2022 :<br/>Medyka Rescue Station Reception: about 379 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13071 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group13/getter/2022/04/20/17/1fc0613f-ff47-c159-90b9-28e9d39a60fd/1ff187b272120222dcb21fe1d2fb78d8.jpg)
 
 ---
 

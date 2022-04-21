@@ -2,25 +2,29 @@
 ---
 
 
-## 加拿大强制疫苗政策加剧军队人员短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2383020/)
+## 俄罗斯试射新洲际弹道导弹
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2383193/)
 
-采编/撰稿：  加拿大温哥华扬帆农场 – 活力人生
+**撰稿：日本东京方舟农场  子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2544.png)图片来源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248)
+4月20日，俄罗斯国防部宣布，俄罗斯已经试射了一枚新的洲际弹道导弹。美国官员表示，事先已知，并做了密切跟踪，对俄方的新核武并不担心。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯试射新洲际弹道导弹.jpg)（图片来自大纪元）
 
-据【CTV新闻】4月19日报道，由于新兵招募和培训因疫情而被迫中断，加拿大军队目前已出现兵员持续短缺的现象。而联邦政府针对服役人员的强制疫苗政策使以上情况变得更加严重。
+该导弹于莫斯科时间下午3点12分从位于俄罗斯北部阿尔汉格尔斯克地区（Arkhangelsk）的普列谢茨克国家试验航天器发射场（Plesetsk State Test Cosmodrome）射向俄罗斯远东堪察加半岛的库拉（Kura）试验场。
 
-据悉，国防部去年命令所有军人必须在 12 月中旬之前完全接种疫苗。该命令到期后，军方已向近 1,000 名拒绝接种者发出警告，同时对 445 名违抗疫苗接种令的成员进行了正式审查。
+导弹发射后，俄罗斯总统普京对军队表示，“我祝贺你们成功发射了萨尔马特洲际弹道导弹，这种真正独一无二的武器将加强我们武装部队的战斗力，可靠地确保俄罗斯的安全，使其免受外部威胁。”
 
-国防部发言人当天称，自 去年12 月以来，已有 39 人因违反接种令被军队开除，206 人正在被开除的过程中，另有94 人自行辞职。而目前加拿大军队距离人员满编则缺少大约 10,000 名军人。
+据悉，萨尔马特是世界上威力最大、摧毁目标范围最远的导弹之一。该核武估计有11,000英里射程，可携带多达10个重型弹头。被西方称之为撒旦-2（Satan-2），也是俄罗斯核武库中最大的“猛兽”。
 
-校对编辑：硫酸羟氯喹64
+援引CNN报导，两位美国官员说，美方在俄罗斯进行新的弹道导弹试验前已得到通知，并做了密切跟踪。因为根据现有国际协议，俄罗斯和美国在测试前都会通知其它国家，以免发生意外。
 
-发稿：青青
+参考链接：
 
-原文链接： [https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248](https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248)
+[https://www.epochtimes.com/gb/22/4/20/n13716260.htm](https://www.epochtimes.com/gb/22/4/20/n13716260.htm)
+
+总编：青城道姑
+校对发布：wenxia16
 
  
 
