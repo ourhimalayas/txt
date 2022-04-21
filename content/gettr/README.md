@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/21/2022 6:04 PM (UTC)`
+
+4/21/2022 Miles Guo: The US House Speaker Nancy Pelosi will visit Taiwan on April 26. What will happen to Taiwan? This time the US totally ignored the “Grave Concerns” of the CCP. April 26 will be a watershed moment for China-US relations.<br/><br/>4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭！<br/>
+![img](https://media.gettr.com/group43/getter/2022/04/21/18/75a258e7-2816-0d1a-9753-5db0b883a16b/out.jpg)
+
+---
+
 `@miles 4/21/2022 5:52 PM (UTC)`
 
 In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s owner tests positive for nucleic acid and is forcibly quarantined, their pet at home would face the prospect of being abused and killed. During the lockdown in Shanghai, there are many videos showing large numbers of pets such as cats and dogs being dumped onto the street. When neighborhoods were blocked off and food supplies were cut off, even pet cats and dogs were killed for food. The CCP's evil system has devoured human nature, and all living beings have suffered with it. The only way to save humanity is to destroy the CCP.在中共国，当中共病毒疫情爆发时，一旦宠物的主人核酸检测呈阳性被强制隔离，家中宠物就会面临被虐杀的结局。上海封城的期间，有视频显示，大量宠物猫狗被抛尸街头。在小区封锁和食物断供时，更有甚者，杀死宠物猫和狗来食用。中共的邪恶体制侵吞了人性，万物生灵也跟着遭殃。唯有灭共才能拯救苍生。<br/>#ukrainerescue  #nfsc新中国联邦
@@ -148,13 +155,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 【419 5th Anniversary】04/19/2022  American volunteer feels embarrassed by the corruption of American media and calls for people not to be dissuaded by fear and threat<br/><br/>【419五周年】04/19/2022  美国志愿者为美国媒体的堕落感到羞愧，呼吁人们不要被恐惧和威胁所吓倒
 ![img](https://media.gettr.com/group21/getter/2022/04/21/01/862dca40-4eed-fd47-a595-88e4b702854b/out.jpg)
-
----
-
-`@miles 4/21/2022 1:39 AM (UTC)`
-
-【419 5th anniversary】04/19/2022 VOA, Wall Street and many corporations have huge financial ties with the CCP, the No.1 enemy of the American people. They're making deals with the devil.<br/><br/>【419五周年】04/19/2022 美国之音、华尔街和许多公司都与美国人民的头号敌人——中共，存在巨大利益联系； 他们正在与魔鬼做交易。
-![img](https://media.gettr.com/group20/getter/2022/04/21/01/739686e0-9c59-74b9-a999-da002d829ec6/out.jpg)
 
 ---
 
