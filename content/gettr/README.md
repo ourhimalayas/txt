@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 10:17 PM (UTC)`
+
+4/22/2022 Miles Guo’s GETTR: The war in the Taiwan Strait can happen at any moment! The CCP is serious about invading or blockading Taiwan! Once Taiwan fights back, Shanghai and Hong Kong will be targeted, and Fujian province will be the first to suffer from the war. The military bases in Dalian and Qingdao will be the most dangerous places! The world is full of chaos. Fellow fighters, please keep working out, take care of your health, and stay away from the CCP virus.<br/><br/>4/22/2022 七哥盖特：台海战争一触即发！中共这次很认真地想要攻打或封锁台湾！上海、香港一定会成为台湾反击的目标，福建将成为第一个受害者，大连、青岛的军事基地也将十分危险！世界处在混沌中，请战友们多锻炼，注意健康，防病毒！<br/>
+![img](https://media.gettr.com/group20/getter/2022/04/22/22/76ce65e5-8c0c-bf6d-dda6-c3084e016fc6/out.jpg)
+
+---
+
+`@miles 4/22/2022 10:10 PM (UTC)`
+
+4/22/2022 Miles Guo’s GETTR: Both the Hong Kong dollar and Hong Kong's economy are doomed. Nothing good will happen in Hong Kong unless the CCP is taken down. PAG will certainly go bankrupt in the future. Anyone who follows the CCP will walk into crematoriums, no matter how evil or rich they are.<br/><br/>4/22/2022 七哥盖特：港币和香港的经济都完蛋了！除非共产党被消灭，香港不会发生任何的好事！PAG未来一定破产！不管你多有邪恶或有多少钱，跟着共产党，走进火葬场！<br/>
+![img](https://media.gettr.com/group36/getter/2022/04/22/22/00716d9c-0437-862f-fa40-cc1ad8a1a2e3/out.jpg)
+
+---
+
 `@miles 4/22/2022 10:05 PM (UTC)`
 
 4/22/2022 Ukraine Rescue: The New Federal State of China just received a gratitude email from the Embassy of Ukraine in the Republic of Singapore, Brunei and New Zealand; the representative expresses Ukrainian people’s gratitude to the New Federal State of China and the Rule of Law Foundation for our support and assistance<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦收到来自乌克兰驻新西兰、新加坡和文莱大使馆的感谢邮件，向新中国联邦和法治基金对乌克兰的救援和支持表示衷心的感谢<br/>
@@ -136,20 +150,6 @@ A French volunteer has been to China 12 times and he loves China very much. Nico
 ---
 
 `@miles 4/22/2022 4:10 AM (UTC)`
-
-2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
-![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 3:38 AM (UTC)`
-
-4月22号：尊敬的战友们好．这个运动看上去容易，其实非常的危险，大家务必要小心哦……【七哥，他為了向你學習，學成這樣了。】
-![img](https://media.gettr.com/group4/getter/2022/04/22/03/7fb888ec-bb56-248f-28b3-da4575d5db45/out.jpg)
-
----
-
-`@miles 4/22/2022 3:02 AM (UTC)`
 
 2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
 ![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)

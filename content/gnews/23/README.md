@@ -2,51 +2,34 @@
 ---
 
 
-## 世界银行：战争给乌克兰造成重大损失
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2393749/)
+## 近四分之一加拿大人感染了COVID-19
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393974/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2800.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
 
 
+据CTV news 4月19日报道，在一项新的在线调查中，近四分之一的加拿大受访者表示他们已经感染了COVID-19，而约四分之三的人没有感染。随着该国努力应对第六波COVID-19大流行，与公众共享的数据越来越少。加拿大最大的市场研究和分析公司莱热（Leger）执行副总裁克里斯蒂安•布尔克(Christian Bourque)表示，值得注意的是，报告的感染率高于官方数据显示的水平。
 
-据[福克斯商业](https://www.foxbusiness.com/economy/ukraine-physical-damage-russia-invasion-billions-world-bank-estimates)4月22日报道，世界银行行长大卫·马尔帕斯 (David Malpass) 周四表示，俄罗斯的入侵对乌克兰建筑和基础设施造成的物质损失目前已达到约600亿美元。
+这项在线调查于4月8日至10日进行，共有1538名加拿大人参加。由于网络调查不被认为是随机抽样，因此无法确定误差范围。在18岁至34岁的受访者中，30%的人表示自己感染了COVID-19，而在55岁及以上的受访者中，12%的人感染了这种疾病。“真正引人注目的是年龄方面的差异，”布尔克说，“这似乎与我们看到的模式相吻合，你去餐馆、酒吧和音乐会的社交活动越多，你就越容易感染这种疾病。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-50.jpg)
+原文链接：[https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
 
-乌克兰总理Denys Shmyhal说，乌克兰的国内生产总值可能下降30%至50%，迄今为止，造成的直接和间接损失已达5600亿美元。
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-乌克兰战争和通货膨胀给世界经济蒙上阴影，国际货币基金组织IMF已下调全球增长预期。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-联合国（U.N.）人权负责人在周五的一份声明中说，俄罗斯武装部队不分青红皂白地炮击和轰炸居民区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

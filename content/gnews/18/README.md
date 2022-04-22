@@ -2,10 +2,10 @@
 ---
 
 
-## 南昌将在全市实施较大范围区域的静态管理
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2394040/)
+## 上海一女孩在封锁期间被饿死
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2394051/)
 
-04/21/2022 自4月22日起，南昌将在全市实施较大范围区域的静态管理。
+04/20/2022 上海一女孩在封锁期间被饿死，其母痛不欲生。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
