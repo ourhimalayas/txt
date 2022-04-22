@@ -2,34 +2,38 @@
 ---
 
 
-## 樱花时政┃俄罗斯国防研究机构突发火灾 多人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390093/)
+## 国际社会制裁，让俄罗斯寡头公然与普京翻脸
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390163/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯国防研究机构突发火灾-多人死亡.png)[图片来源](https://www.theguardian.com/world/2022/apr/22/die-in-fire-at-russia-defence-institute) 
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-4月21日，俄罗斯新闻机构援引当地政府的话说，在莫斯科西北约160公里（100英里）的特维尔市的一个国防研究所发生大火，6人死亡（也有称7人死亡）。
+整理：等风来
+编辑：文泓
 
-俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2742.png)图片来源：纽约时报 & 雅典娜设计组
 
-当局说有27人受伤。塔斯社援引紧急服务报道说，至少有10人失踪。
 
-俄罗斯社交媒体上流传的现场录像显示，研究所的窗户上冒着浓烟和火焰。关于火灾的原因，没有官方消息。
+随着俄乌战争的深入，国际社会对俄罗斯总统普京跟他亲信的经济制裁日益加码，现在制裁展现效果，一名俄罗斯寡头日前就在自己的社群网站上，痛批普京发动一场疯狂的战争，也是一场大屠杀。
 
-据俄罗斯国防部网站报道，该研究所从事航空航天研究，包括为前苏联共和国的独联体集团建立统一的防空系统。
+俄罗斯富豪丁科夫在战争爆发后，他成为英国的制裁对象，财富缩水到1/10。4月19日，他在**Instagram**发帖。
 
-信息来源：
-** **[**Six killed in fire at Russian defence research institute – reports**](\Users\HP%20User\Documents\桌面\投稿NEWS\Six%20killed%20in%20fire%20at%20Russian%20defence%20research%20institute%20-%20reports)
+丁科夫說，90%的俄罗斯人都反对這场战争，呼吁西方国家给普京一个台阶下，让他結束这场大屠杀。有媒体分析，他是少数点名名骂普京的俄罗斯寡头。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+另一位寡头列昂尼德·涅夫兹林也说，我不接受俄罗斯公民身分，这个国家由法西斯分子普京操控。
+
+专家们认为，一直以来最支持普京的俄罗斯富豪开始反目，最主要原因，是他們在海外傲人的私人飞机和游艇纷纷遭到制裁沒收。
+
+哈德逊色究所研究員表示，沒收游艇豪宅和金融资产，对旅居海外的俄罗斯寡头，施加越来越大的压力，所以他们用这种方式发声。
+
+参考链接：[經濟制裁會痛！ 俄羅斯寡頭发贴嗆普欽](https://tw.news.yahoo.com/%E7%B6%93%E6%BF%9F%E5%88%B6%E8%A3%81%E6%9C%83%E7%97%9B-%E4%BF%84%E7%BE%85%E6%96%AF%E5%AF%A1%E9%A0%ADpo%E6%96%87%E5%97%86%E6%99%AE%E6%AC%BD-074757028.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

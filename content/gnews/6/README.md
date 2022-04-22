@@ -2,22 +2,23 @@
 ---
 
 
-## 日本新泻县：中共病毒疫苗已致20人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390117/)
+## 中共如何改造香港自由民主人士
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2390215/)
 
-撰稿：东京樱花团/立正道
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/22-13.jpg)
+两名前囚犯告诉VOA，香港惩教署正在使用 “洗脑 “措施来 “去激进化 “那里被监禁的民主抗议者。“去激进化 ” 这一术语和策略类似于中共当局在新疆的做法，那里有100万维吾尔人和其他主要是穆斯林的少数民族被关押在拘留营中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2741.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fglobalnews.ca%2Fwp-content%2Fuploads%2F2021%2F08%2FGettyImages-1234409927.jpg%3Fquality%3D85%26strip%3Dall%26w%3D1200&amp;imgrefurl=https%3A%2F%2Fglobalnews.ca%2Fnews%2F8084268%2Fjapan-pandemic-new-phase%2F)
+这些曾被关押的香港人告诉VOA，在服刑期间，当局强迫他们观看赞扬中共国的视频片段，政府的社会工作者试图改变他们的政治观点。这些措施类似于在新疆使用的措施，目的是阻止人们反对或批评政府的行为。维权人士说，如果国际社会不关切，这些手段的使用将继续下去。
 
-据雅虎日本4月20日报道，截止3月20日，日本新泻县已向国家卫生部门报告218个中共病毒疫苗（新冠病毒疫苗）副作用案例，其中严重后遗症8例，死亡20人。死亡人数只能是以接种疫苗的因果关系不明公布。
+香港惩教署署长黄国兴在4月14日给香港立法会的答复中说，该署将在“去激进化”过程中确定每个囚犯的特殊需要，并为每个囚犯匹配合适的康复计划，以帮助囚犯重新建立正确的价值观，取代 “激进思想和行为”。
 
-这份报告也报道了很多与疫苗有关还是其他原因导致的案例，并且呼吁“如果有疑似副反应的健康损害，请咨询相关部门”。
+该计划将根据3个重点康复方向，即了解中共国历史和国民教育、心理重建和重建价值观、生活规划和重建家庭关系，为囚犯 “匹配适当的康复方案，以便为他们逐步实现去激进化设定阶段性目标”，根据答案。
 
-信息来源：[新型コロナウイルスのワクチン接種後に２０人死亡　「因果関係は不明」　新潟県が公表](https://news.yahoo.co.jp/articles/6f46e234f79c954826026ead364b9d179416da87)
+中共在香港实行的假政策一定会被打脸的。希望香港独立和恢复以往繁华的景象，让每个香港人都有房子住。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**新闻来源**：[https://www.voanews.com/a/hong-kong-authorities-brainwashing-convicted-pro-democracy-activists-/6534809.html](https://www.voanews.com/a/hong-kong-authorities-brainwashing-convicted-pro-democracy-activists-/6534809.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

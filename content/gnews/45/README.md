@@ -2,34 +2,34 @@
 ---
 
 
-## 俄罗斯绝密军事研究所爆发严重火灾
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2389335/)
+## 加拿大制裁普京女儿在内的14名俄罗斯人
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389373/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2712.png)图片来源：[https://torontosun.com/](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-4月21日，俄罗斯一个绝密军事研究所爆发严重火灾，摧毁大楼。该研究所致力于开发俄罗斯最新的弹道导弹，以及苏-27（Su-27）战机和图-160（Tu-160）轰炸机等先进武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯绝密军事研究所爆发严重火灾.jpg)图为2022年2月19日，俄罗斯试射伊斯坎德尔弹道导弹。（图片来自Handout/Russian Defence Ministry/AFP）
+&lt;多伦多太阳报&gt;4曰19日报道，加拿大联邦政府今日发布对俄新的制裁措施，制裁名单涵盖14名与俄罗斯总统普京关系密切的俄罗斯人，包括他的两个成年女儿，36岁的玛丽亚-沃隆佐娃和她35岁的妹妹卡捷琳娜-蒂霍诺娃。
 
-据《大纪元》报道，俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
+联邦政府表示，这14人是普京的亲信，也是俄罗斯无理入侵乌克兰的同谋。包括美国在内的盟国将这对姐妹和其他普京家族成员作为制裁目标，是因为他们帮助隐匿了普京的个人资产。 总理特鲁多在一条推文中表示，加拿大政府不会放弃追究普京身边人在俄罗斯入侵乌克兰战争中的共犯责任。制裁发布当天，特鲁多将与北约和欧洲领导人出席由美国拜登总统召开的视频会议。
 
-俄罗斯通讯社援引未具名官员的话表示，一场大火将市中心笼罩在黑烟中，持续数小时，至少有5人丧生，30人受伤。
+原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-当局说有27人受伤。塔斯社援引紧急服务部门人员的话说，至少有10人失踪。
+上传/发稿 – 【青青】
+撰稿/翻译 -【自由法兰西】
+采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-此外，有目击者看到有几个人从着火大楼的窗户跳下。在消防员派出直升机扑灭大火后，屋顶倒塌，建筑物继续闷烧到深夜。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-目前尚不清楚建筑物中存放的什么东西引发如此猛烈的大火。当局没有立即给出火灾原因，但塔斯社援引一名不愿透露姓名官员的话说，旧电线在二楼一间上锁的办公室着火了。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-据英国《每日电讯报》报导，该研究所成立于1930年代在苏联时代克里米亚，为苏联红军服务并开发导弹防御系统。近年来，该所的科学家一直在开发一些俄罗斯最先进的武器，包括伊斯坎德尔短程弹道导弹（Iskander short-range ballistic missiles）以及苏-27战机和图-160隐形战略轰炸机。
-
-参考链接：
-
-[https://www.epochtimes.com/b5/22/4/21/n13717142.htm](https://www.epochtimes.com/b5/22/4/21/n13717142.htm)
-
-总编：老孙
-校对发布：wenxia16
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

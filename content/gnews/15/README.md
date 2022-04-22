@@ -2,30 +2,35 @@
 ---
 
 
-## 官房长官松野对发生在马里乌波尔的人道主义危机深表震惊
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390044/)
+## 因担心受制裁，中国银联拒绝与俄银行合作
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390100/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/官房长官松野对发生在马里乌波尔的人道主义危机深表震惊.png)（图片源自本文链接）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-4月22日每日新闻消息：在22日上午的新闻发布会上，内阁官房长官松野博一表示：对发生在俄罗斯已经宣布”实施控制”的，乌克兰东南部马里乌波尔的人道主义危机之严重性和纯粹的破坏感到强烈震惊！
+整理/编辑：围剿维尼熊
 
-他强烈抗议说：我们最强烈地谴责俄罗斯的残暴和野蛮行为，呼吁俄罗斯立即停止攻击，撤出其部队，不要干涉对马里乌波尔和其它城市的人道主义援助。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/EACD961F-5620-4EEC-ACB6-32BA8EB67A40.jpg)图片来源：百度
 
-在马里乌波尔，乌克兰军队一直躲在一家钢铁厂里，处于防御状态。松野先生还表示，他 “深切关注宣布对马里乌波尔市的控制，为俄罗斯进行进一步侵略和进一步恶化乌克兰人道主义危机提供了机会这一事实”。
 
-信息来源： 
-[「人道危機の深刻さに衝撃」マリウポリ情勢、官房長官がロシア批判（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dac3cc7c7e98ebe555e7478b9cdf9a8fead9e8d9)
+根据美国之音4月22日报道，中国银联(UnionPay)因为担心会成为制裁目标而拒绝与俄罗斯的银行合作，从而切断了俄罗斯一个可能的替代选项。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+俄罗斯新闻机构俄罗斯商业咨询(RBC)星期三(4月20日)报道说，银联的决定影响到俄罗斯最大的商业银行俄罗斯联邦储蓄银行(Sberbank)和一些较小的机构。
+
+俄罗斯联邦储蓄银行和另一家银行廷科夫银行(Tinkoff Bank)此前宣布，它们正在考虑转向中国银联。银联是全球最大的支付平台之一，但其几乎所有业务都在中国。
+
+美国官员警告说，试图破坏制裁的政府或公司将面临后果。RBC表示，银联希望避免这种“次级制裁”。
+
+中国政府称俄罗斯为“最重要的紧密邻邦和战略伙伴”，并批评了西方对俄罗斯的制裁。不过，中国的企业和银行正在遵守贸易和金融方面对俄罗斯施加的限制。
+
+参考链接：[俄媒：中国的信用卡处理商拒绝与俄银行合作](https://www.voachinese.com/a/russia-credit-card-china-sanctions-20220421/6539666.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

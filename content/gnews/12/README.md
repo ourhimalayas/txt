@@ -2,22 +2,31 @@
 ---
 
 
-## 钟南山与南华早报公开挑战习近平“动态清零”政策
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2390081/)
+## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-45.jpg)
-据《南华早报》报道，本周一媒体发表的一篇文章在周二被删除，其中中共国顶级冠状病毒专家钟南山认为，中共需要放弃”零感染 “政策，与世界其他国家一起 “重新开放”，过上后疫情的生活。
+**图/文｜CP **
+**发布时间｜22/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
 
-总部设在香港的《南华早报》在详述中国共产党4月19日的明显审查行为时提到，顶尖的Covid-19[冠状病毒]专家钟南山说，中共国不能长期追求 “动态零感染”，应该重新开放，使社会和经济发展恢复正常，并适应全球重新开放。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-题为 “中国即将到来的Covid-19时代再开放战略 “的社论于4月6日发表在英文的 《国家科学评论》杂志上。该文章的中文译本已于周一在大陆新闻网站上发表，但后来被删除。
 
-“中国需要重新开放，以便使社会经济发展正常化，适应全球的重新开放。长时间的动态清零是不可能的，”钟南山和广州呼吸疾病国家重点实验室副研究员关伟杰共同写道。
+美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
 
-钟南山与南华早报和习近平的对抗很明显。他们的配合是不是要引发群众集体抗议？很显然大多数中国人是懦弱的，很难激起那愤怒的感觉，但是在内部问责的时候还是有效用的 （宫廷政治）。
+涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-**新闻来源：**[https://www.scmp.com/news/china/science/article/3174751/coronavirus-chinas-top-expert-writes-eventual-return-normal](https://www.scmp.com/news/china/science/article/3174751/coronavirus-chinas-top-expert-writes-eventual-return-normal)
+SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
+
+根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
+
+另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
+
+來源｜[SEC](https://www.sec.gov/hfcaa)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
