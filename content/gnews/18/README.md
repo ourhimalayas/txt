@@ -2,46 +2,45 @@
 ---
 
 
-## 高盛将摩根士丹利的大宗交易报告给香港证监会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2390546/)
+## 有声|郭先生回顾419采访的始末
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390776/)
 
-翻译: 里奇
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月19日，郭文贵先生在纪念VOA断播五周年的大直播中透露，在美国之音VOA断播事件发生之前，英国广播公司BBC也曾计划采访郭先生。在得知消息后，王岐山亲自致电BBC的老板，即前香港特首彭定康，威胁他取消这一采访计划。与此同时，另外两场类似的采访也均在中共的直接干预下被全然屏蔽。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-1-2.jpg)
+此时，郭先生一方面意识到，世界各国的媒体都已经被中共操控，但另一方面郭先生也认为，他无论如何都需要向世界发声。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+据郭先生回忆，与VOA同期发出采访邀请的还有某台湾电视台、澳大利亚第七电视台和美国旧金山的一家电视台。由于郭先生彼时已经明确地判断出，不论哪个采访，其都不可能按照原计划被顺利地直播放送，因此，在多方考量下，郭先生选择了被认为是“美国和世界其他国家自由灯塔”的VOA。
+
+郭先生解释道，作为最理想的选择，VOA但凡出现停播事件，其必将引起世界的关注，且该事件的影响也将是历史性的。加之VOA在采访前已经将郭先生的宣传视频大量播放，为此，该采访已经达到了郭先生预期中的效果。
+
+郭先生也指出，VOA在419一反常态的断播事件将中共“蓝金黄”民主国家媒体的行为赤裸裸地展现在世界面前；同时，该断播事件还成为了爆料革命诞生的起点，且新中国联邦和G系列也在其后几年间应运而生。目前，聚集了上亿灭共战友的爆料革命和新中国联邦已经在乌克兰救援行动中被越来越多的国家赞扬与肯定。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-466.jpg)2021 年 5 月 26 日，星期三，中国香港的国际金融中心二期（左）和其他建筑物。香港的失业率在 4 月份连续第二个月下降，因为该市逐渐摆脱了由经济衰退引发的长期低迷。流行病和社会动荡。摄影师：Paul Yeung/Bloomberg，彭博社
 
-彭博社 – 据英国《金融时报》援引知情人士的话报道，高盛集团在三年前就其竞争对手摩根士丹利的一系列大宗交易报告给香港金融监管机构。
 
-英国《金融时报》称，高盛向证券及期货事务监察委员会发出警报，这是在摩根士丹利将大宗股票推向市场前不久就一些香港上市公司股票价格进行“非正式”讨论的一部分。该报称，包括无锡生物开曼公司股票在内的交易都在报告内容之列，目前尚不清楚香港当局是否调查了高盛个体投资者的索赔。
 
-高盛和摩根士丹利的发言人拒绝置评。证券及期货事务监察委员会没有立即回应置评请求。
 
-摩根士丹利在 2 月份披露，监管机构和检察官正在调查其大宗交易业务的各个方面，并承认该公司本身正在接受审查。近年来，摩根士丹利超越高盛，成为该行业最大的大宗交易商。
+文字版原文：[郭先生回顾419采访的始末](https://gnews.org/zh-hans/2386859/)
 
-美国调查人员一直在收集涉及多家银行员工和已知在机密发行中收购大量股票的外部资金经理的通讯信息。作为调查的一部分，当局正试图确定是否有任何交易撮合者不正当地向投资者提示了进行足以推动股价上涨的交易。
-
-英国《金融时报》援引彭博数据报道称，摩根士丹利在 2020 年至 2021 年期间为无锡执行了 9 次大宗交易。无锡没有任何不当行为的迹象。这家中国公司没有回应该报的置评请求。
-
-中国证券监管机构早些时候要求摩根士丹利的中国企业提供信息并就有关这家美国银行大宗交易业务正在接受美国证券交易委员会调查的媒体报道做出解释。
-
-新闻来源:[Goldman Flagged Morgan Stanley Block Trades to H.K.’s SFC: FT](https://www.bnnbloomberg.ca/goldman-flagged-morgan-stanley-block-trades-to-h-k-s-sfc-ft-1.1754766)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-31.jpeg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

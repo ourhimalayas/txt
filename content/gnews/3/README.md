@@ -2,31 +2,29 @@
 ---
 
 
-## 樱花时政┃乌克兰重建需要6000亿美元 总理什米加尔呼吁IMF成员国援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390787/)
+## 上海疫情｜中共宣布今起开展九大“清零”攻坚行动 民众斥“没完没了，解封无望”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390952/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-乌克兰总理什米加尔4月21日表示，被俄罗斯侵略破坏的乌克兰的重建将需要6000亿美元（约77万亿日元），他呼吁国际货币基金组织（IMF）成员国将特别提款权（SDR）的10%用于重建援助。
+**图/文｜CP **
+**发布时间｜22/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中共宣布今起開展九大「清零」攻堅行動-民眾斥「沒完沒了，解封無望」.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-190.jpg)[图片来源](https://www.google.com/search?q=Ukraine&amp;sxsrf=APq-WBscVf3gCQD1PLQhyYuclcOQKKMgA:1650614703671&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=LwsKOVmsw0i#:~:text=%E3%81%A6%E3%81%8F%E3%81%A0%E3%81%95%E3%81%84%E3%80%82-,The%20Atlantic,A%20Ukrainian%20Win%20Is%20the%20Only%20Acceptable%20Endgame%20%2D%20The%20Atlantic,-%E8%A1%A8%E7%A4%BA)
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-什米加尔总理在国际货币基金组织-世界银行春季会为支持乌克兰举行的部长级圆桌会议上表示，乌克兰在短期内每月需要40-50亿美元。从长远来看，需要一个类似于二战后支持欧洲的重建的美国(马歇尔计划)。
 
-什米加尔总理透露，他已经向伙伴国家发出信函，希望提供10%的特别提款权。并且表示，乌克兰正在制定一项重建计划，其中包括加入欧盟。他呼吁提供武器和弹药，对俄罗斯施加额外的制裁压力。
+上海周四新增新冠病毒本土确认个案17629宗，另再报多11人死亡。虽然确认数字连续第五天回落，惟部分上海民众已展现绝望情绪，不少人发出“解封无望，准备封控至死”的消极评论。
 
-去年，国际货币基金组织向其190个成员国发放了创记录的价值6500亿美元的新特别提款权拨款，以帮助受中共病毒（新冠病毒covid-19）传播影响的国家。国际货币基金组织预计，乌克兰的经济今年将达到35%的负增长。
+中共当局宣布，为力争早日实现社会面清零。上海将于今日（22日）起，开展九大攻坚行动，包括开展社区管控行动、检测筛查行动、流调排查行动、转运隔离行动、腾换扩容行动、中医药干预行动、清洁消毒行动、“拔点”行动、防外溢行动。
 
-信息源：[ウクライナ復興には77兆円必要－首相がＩＭＦ加盟国に支援訴え](https://news.yahoo.co.jp/articles/e824bbc51a83f240e89de5ee88c1b70ad01107e7#:~:text=%E3%82%A6%E)
+另外今日起，将再次开展全市核酸检测筛查行动，采取分区、分级检测推进模式，封控区每天开展一轮核酸筛查，管控区就采用每三天一次抗原及每两天一次核酸检测的组合筛查方式。有市民怒斥，“核酸检测没完没了，但解封之日就遥遥无期。”
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+上海市副市长张为表示，一周以来，市内重点企业已有七成，即666家开始“封闭式”复工复产。
+
+來源｜[人民网](http://sh.people.com.cn/n2/2022/0422/c134768-35234859.html)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

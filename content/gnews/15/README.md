@@ -2,22 +2,31 @@
 ---
 
 
-## 乌克兰呼吁将被冻结的俄资产用于重建，美财长耶伦对此保持谨慎
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390573/)
+## 樱花时政┃乌克兰重建需要6000亿美元 总理什米加尔呼吁IMF成员国援助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390787/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌克兰总理什米加尔4月21日表示，被俄罗斯侵略破坏的乌克兰的重建将需要6000亿美元（约77万亿日元），他呼吁国际货币基金组织（IMF）成员国将特别提款权（SDR）的10%用于重建援助。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-12.jpg)图片来源：美联社
-据《新闻极限》（Newsmax）4月21日报道，俄罗斯的持续入侵对乌克兰造成的经济损失越来越大，美国政府本周四（4月21日）宣布再向乌克兰提供价值8亿美元的额外军事援助和5亿美元直接经济援助。美财政部长珍妮特·耶伦（Janet Yellen）承认，乌克兰的重建成本将是巨大的，这只是开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-190.jpg)[图片来源](https://www.google.com/search?q=Ukraine&amp;sxsrf=APq-WBscVf3gCQD1PLQhyYuclcOQKKMgA:1650614703671&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=LwsKOVmsw0i#:~:text=%E3%81%A6%E3%81%8F%E3%81%A0%E3%81%95%E3%81%84%E3%80%82-,The%20Atlantic,A%20Ukrainian%20Win%20Is%20the%20Only%20Acceptable%20Endgame%20%2D%20The%20Atlantic,-%E8%A1%A8%E7%A4%BA)
 
-世界银行行长大卫·马尔帕斯（David Malpass）说，俄乌战争已经对乌克兰的建筑和基础设施造成了超过600亿美元的损失。而国际货币基金组织在其最新的世界经济展望中指出，乌克兰今明两年的经济将萎缩35%。
+什米加尔总理在国际货币基金组织-世界银行春季会为支持乌克兰举行的部长级圆桌会议上表示，乌克兰在短期内每月需要40-50亿美元。从长远来看，需要一个类似于二战后支持欧洲的重建的美国(马歇尔计划)。
 
-随着战争的人力和财政成本的增加，使用被冻结的俄央行资金来重建乌克兰的呼声也越来越高。乌克兰总统泽连斯基21日在对国际货币基金组织和世界银行发表线上讲话时呼吁，需要对战争征收特别税，将遭受制裁的俄罗斯资产和俄央行资金用于补偿乌克兰的损失。他补充说，乌克兰需要每月70亿美元的资金以支持其重建工作及经济损失。乌克兰总理什米加尔更是报价称，乌克兰重建需要耗资6000亿美元。美国向乌克兰提供的最新5亿美元财政援助，将用于乌克兰在抵御俄罗斯入侵时的工资、养老金和其他政府项目。耶伦说：“我们计划尽快向乌克兰部署这些直接援助，用于最紧迫的需求。”
+什米加尔总理透露，他已经向伙伴国家发出信函，希望提供10%的特别提款权。并且表示，乌克兰正在制定一项重建计划，其中包括加入欧盟。他呼吁提供武器和弹药，对俄罗斯施加额外的制裁压力。
 
-然而，清算俄罗斯被冻结的中央银行资产以及其他被制裁的财产并不容易，可能需要国会采取行动。耶伦表示：“无论如何，我认为我们应该寻求让俄罗斯为乌克兰的重建提供帮助。但是目前尚不清楚是否可以在未经国会授权的情况下没收俄罗斯资产，这必须与美国的盟友和伙伴达成共识。这是非常重要的一步，我们在进行之前需要仔细考虑后果。我不会轻易这么做。”
+去年，国际货币基金组织向其190个成员国发放了创记录的价值6500亿美元的新特别提款权拨款，以帮助受中共病毒（新冠病毒covid-19）传播影响的国家。国际货币基金组织预计，乌克兰的经济今年将达到35%的负增长。
 
-新闻来源：[Yellen Weighs Costs of War on Russia’s Frozen Assets](https://www.newsmax.com/newsfront/russia-ukraine-war-yellen/2022/04/21/id/1066737/)
+信息源：[ウクライナ復興には77兆円必要－首相がＩＭＦ加盟国に支援訴え](https://news.yahoo.co.jp/articles/e824bbc51a83f240e89de5ee88c1b70ad01107e7#:~:text=%E3%82%A6%E)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

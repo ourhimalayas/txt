@@ -2,32 +2,27 @@
 ---
 
 
-## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
+## 美国宣布对俄实施新制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390413/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
+作者：华盛顿DC农场 – 自由信仰
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+4月20日，美国宣布对数十名俄罗斯个人和实体实施新的制裁措施，其中包括俄罗斯商业银行Transkapitalbank、和世界第三大加密货币矿业公司BitRiver。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-28.png)
+此外，布林肯国务卿还在声明中表示，美国国务院正在对俄罗斯和白俄罗斯的600多人实施签证限制，以惩罚其侵犯人权的行为。他还表示，美国将使用一切工具，向侵犯人权和违反国际人道主义法的行为问责。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+参考链接：
+
+- [New U.S. sanctions imposed for Russian bank, oligarchs, crypto miner BitRiver](https://www.reuters.com/world/europe/us-imposes-new-russia-related-sanctions-2022-04-20/)
 
 
-美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
-
-SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
-
-根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
-
-另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
-
-來源｜[SEC](https://www.sec.gov/hfcaa)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+总编：雪梨
+编辑：雪梨/熊嘟嘟
+审核：飞虹
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

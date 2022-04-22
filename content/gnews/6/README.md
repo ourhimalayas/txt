@@ -2,45 +2,27 @@
 ---
 
 
-## 有声|郭先生回顾419采访的始末
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390776/)
+## 樱花时政┃拜登宣布向乌追加援助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390916/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月19日，郭文贵先生在纪念VOA断播五周年的大直播中透露，在美国之音VOA断播事件发生之前，英国广播公司BBC也曾计划采访郭先生。在得知消息后，王岐山亲自致电BBC的老板，即前香港特首彭定康，威胁他取消这一采访计划。与此同时，另外两场类似的采访也均在中共的直接干预下被全然屏蔽。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-1-2.jpg)
-此时，郭先生一方面意识到，世界各国的媒体都已经被中共操控，但另一方面郭先生也认为，他无论如何都需要向世界发声。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+美国总统拜登4月21日在华府与乌克兰总理什米加尔会晤后，宣布向乌追加8亿美元军事援助，与5亿美元直接经济援助。同时，宣布禁止俄船只停靠美国港口。
 
-据郭先生回忆，与VOA同期发出采访邀请的还有某台湾电视台、澳大利亚第七电视台和美国旧金山的一家电视台。由于郭先生彼时已经明确地判断出，不论哪个采访，其都不可能按照原计划被顺利地直播放送，因此，在多方考量下，郭先生选择了被认为是“美国和世界其他国家自由灯塔”的VOA。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-130.png)（图片来源于本文链接）
 
-郭先生解释道，作为最理想的选择，VOA但凡出现停播事件，其必将引起世界的关注，且该事件的影响也将是历史性的。加之VOA在采访前已经将郭先生的宣传视频大量播放，为此，该采访已经达到了郭先生预期中的效果。
+拜登表示，将再提供8亿美元军事援助给乌以对抗企图入侵乌东部顿巴斯地区的俄军其中包括重型火炮武器、数十枚榴弹炮14万4000发弹药与战术无人机。除了军事援助外，美国也将再提供5亿美元的人道与经济援助。拜登同时宣布，任何悬挂俄国旗或是由俄所拥有或经营的船舶都将不得停靠美国港口或进入美国海岸。
 
-郭先生也指出，VOA在419一反常态的断播事件将中共“蓝金黄”民主国家媒体的行为赤裸裸地展现在世界面前；同时，该断播事件还成为了爆料革命诞生的起点，且新中国联邦和G系列也在其后几年间应运而生。目前，聚集了上亿灭共战友的爆料革命和新中国联邦已经在乌克兰救援行动中被越来越多的国家赞扬与肯定。
+信息来源： [拜登宣布向乌克兰追加援助](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220421-%E6%8B%9C%E7%99%BB%E5%AE%A3%E5%B8%83%E5%90%91%E4%B9%8C%E5%85%8B%E5%85%B0%E8%BF%BD%E5%8A%A0%E6%8F%B4%E5%8A%A9)
 
-
-
-
-
-
-
-文字版原文：[郭先生回顾419采访的始末](https://gnews.org/zh-hans/2386859/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

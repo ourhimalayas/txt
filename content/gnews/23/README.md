@@ -2,63 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.22N）&#8211;康希诺｜猛男疫苗的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390489/)
+## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+**图/文｜CP **
+**发布时间｜22/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
 
-整理/编辑：机器猫
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-59.png)图片来源：雅典娜设计组(614)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
 
-帖子原文：
+目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
 
-原文作者：Mia
+国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
 
-康希诺｜猛男疫苗的副作用
+來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
 
-周一打的第三针，现场工作人员建议打康希诺。扎完上小红书才知道副作用最猛。
+* * *
 
-0~5h下午三点扎完针，留观都没啥问题。状态如常。
-
-5~24h晚上8点开始出现低烧症状，整个人都提不起劲儿。早上睡醒两手臂抬起来很费劲。
-
-24~48h第三天没有低烧症状了，但是出现了嗜睡。平时7点半能起，楞是睡到9点半。即使是喝了咖啡，半小时内又犯困睡着了。
-
-截至今天，依然是容易犯困的状态，偶尔还会头疼，食欲也比平时低了。针口肿块已经下去了，手臂也恢复正常。
-
-医生也有告知打完针要多喝水，出现发烧是正常的。
-
-就是没想到副作用会这么累人！
-
-#第三针#康希诺疫苗#新冠疫苗副作用
-
-评论选集：
-
-喵了个咪 回复：
-
-我周三扎的1小时内感觉整个人巨热三小时后感觉特冷，胳膊疼到不能碰,乏力。第二天低烧乏力胳膊疼全身痒嘴里发苦，第三天现在这会腰酸痛到爆炸，睡那感觉不能动弹了。
-
-Joy 回复：
-
-星期四早上10点打了第三针康希诺，晚上10点开始不舒服，头晕，发热，全身酸痛，怎么躺都睡不着
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2758.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2759.png)图片来源：小红书
-素材来源：
-
-[康希诺｜猛男疫苗的副作用](https://www.xiaohongshu.com/discovery/item/625842e70000000021035a2a?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650520088)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

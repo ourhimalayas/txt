@@ -2,29 +2,44 @@
 ---
 
 
-## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
+## 有声|中共魔头习要用核武器毁灭台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390829/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据盖特21日消息，郭文贵先生在紧急直播中告诉世界，习近平会在内外交困情况下，对台湾进行毁灭性打击。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+郭先生根据美方最新情報，美国国会议长南希.佩洛西，将在本月26日访问台湾。並說，如果成行以后，美囯总统拜登也有可能去访台。台湾将宣布独立。中共向美国政府表迏严重抗议，並放狠話“4月26日將是分水岭的日子”。
+
+另一俄烏战爭巨大变数，普京在侵乌战争中的惨败，已经向美国及西方准备讲和。
+习还想在中共20大继续掌权，面对国内经济崩塌，国际社会施圧病毒溯源的追责，中美关系即将全面脱钩困境下。习准备多年的侵台计划，会改变局部战争计划，用战略性核武器毁灭台湾。习的疯狂野心，是在保不住自己家族的千秋万代延续，也不惜要绑架中国同胞和台湾同胞一起陪葬。同胞们要清醒，战争就在眼前。
+
+郭先生2021年7月31日大直播讲到，中共侵台的开战一刻，就是新中国联邦接管中共伪政权的一刻。但我们不希望用更多的同胞牺牲来换取和平，只有尽快灭了习近平，和中南坑老雜毛，海峡两岸才能避免战火屠灵。
 
 
-世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123724288_b016a2e9-b0b2-4993-8bdd-dc42e569f35c.jpg)
 
-马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
 
-目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
 
-国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
 
-來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
+文字版原文：[中共魔头习要用核武器毁灭台湾](https://gnews.org/zh-hans/2388284/)
 
-* * *
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
