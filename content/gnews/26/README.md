@@ -2,20 +2,24 @@
 ---
 
 
-## 樱花时政┃日本跨党派议员联盟超100人集体参拜靖国神社
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391210/)
+## 加拿大媒体报导新中国联邦乌克兰救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391236/)
 
-撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+4月19日，《多伦多星报》报导新中国联邦、法治基金乌克兰前线的救援情况，称赞新中国联邦的帐篷是波兰边境最大、组织最完善的难民帐篷营，并对新中国联邦人Feather进行采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15960802826568.jpg)
+在采访中，Feather身穿印有Take down the Chinese Communist Party标语的醒目的黄马甲。被问及自愿前往波兰救援前线的动因时，Feather表示主要缘于好朋友的家人被困马里乌波尔（Mariupol）。
 
-4月22日上午，日本跨党派议员联盟“大家一起参拜靖国神社国会议员之会”（会长尾辻秀久）成员集体参拜了位于东京九段北的靖国神社。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-193.jpg)图片来源于本文链接
-靖国神社21日开始举行春季例行大祭。据事务局表示，共有103人参加此次参拜。日本政府方面，环境副大臣务台俊介、外务政务官三宅伸吾等7人在列。据事务局表示，日本自民党选举对策委员长远藤利明和国会对策委员长高木毅等官员进行了参拜。此外，立宪民主党、日本维新会、“保护国民免受NHK侵害党”和无党派议员也参加了此次参拜。日本首相岸田文雄4月21日供奉了被称为“真榊”的供品，本人没有实施参拜。
+在随后的一次救援行动中，Feather全程帮助一位乌克兰老妇人，从购买手机、与远在加拿大的亲人取得联系，到计划核酸检测行程，预定机票。最后，这位老妇人顺利与亲人在加拿大团聚。
 
-信息来源：[日本跨党派议员联盟逾百人集体参拜靖国神社](https://china.kyodonews.net/news/2022/04/7104e294b875.html)
+参考链接：[What I learned volunteering in refugee camps in Poland and Ukraine](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-191.jpg)
+
+总编：雪梨
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

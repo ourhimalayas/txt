@@ -2,12 +2,18 @@
 ---
 
 
-## 丹麦总理和西班牙首相承诺向乌克兰运送更多武器
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391596/)
+## 从穷人变富人（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2391803/)
 
-04/21/2022 丹麦总理和西班牙首相梅特·弗雷德里克森和佩德罗·桑切斯在访问基辅期间承诺向乌克兰运送更多武器，他们在基辅会见了总统沃洛基米尔·泽伦斯基，以示支持。
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：40-11：50-001-1.jpg)
+发布：tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

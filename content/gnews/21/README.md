@@ -2,29 +2,37 @@
 ---
 
 
-## 有声｜上海多个行政区突然封路
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2391261/)
+## 两天2起，俄罗斯寡头遭灭门
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2391414/)
 
-By:**秘翻新闻**
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-22-下午7.33.02.png)图片来源：互联网
+西班牙当地时间4月19日星期二，千万富翁俄罗斯天然气主管被发现在西班牙的别墅中被绞死，他的妻子和18岁的女儿被砍死。
 
-**2022-04-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-18.png)
-据《[自由亚洲电台](https://www.rfa.org/cantonese/news/shanghai-04212022062354.html)》4月21日报道，正当中共国副总理孙春兰和上海市卫健委官员先后表示，疫情清零目标指日可待和疫情呈下降趋势之际，本周二和周三，上海浦东、浦西等地突然封路，加建全新防护铁丝网，甚至包括人行道路。官方并未公开解释缘由。
+55岁的（Sergei Protosenya）被发现吊死在他在西班牙的度假屋的院子里，他的妻子娜塔莉亚和他们18岁的女儿被发现在里面被谋杀。
 
-网民提供的多条短片显示，施工人员正在架设铁丝网，浦东及浦西等地的大部分马路被铁丝网封锁。
+据报道，警方正在努力假设他在自杀前杀死了她们，然而，报告显示，证据并不确凿。
 
-根据百度地图和上海现场信息反馈显示，除了长宁区、黄浦区和徐汇区大部分地区外，其他十多个区均出现封路。上海周浦一名市民说，上月底铺设的铁丝网已被全新的铁网取代。
+此前一天，另一位51岁的俄罗斯商人弗拉迪斯拉夫-阿瓦耶夫（Vladislav Avayev）被发现在莫斯科公寓死亡，他的妻子叶莲娜（47岁）和他们的小女儿玛丽亚也被发现死亡，这对夫妇的成年女儿阿纳斯塔西娅发现了这些尸体都有枪伤。
 
-上海闵行居民冯恩浩说：现在连警车都开不了，军警也走不了，我觉得这个不像是防疫。他还表示，这是全市统一行动，而且在一夜之间完成，包括普陀区、闵行区、嘉定区都封路了。没封的路段基本上是党政机关。
+在这两起案件中，这些人都与俄罗斯天然气公司有联系–自从弗拉基米尔-普京发动对乌克兰的入侵以来，其中许多公司面临西方的制裁。
 
-据报道，此前，黄浦区多条街道小区居民已被大巴车转移至杭州。
+普洛纳森亚（Protosenya）拥有超过3.3亿英镑的财富，曾担任天然气公司Novatek董事会副主席7年。
 
-秘翻新闻 Milojai编辑报道
+阿瓦耶夫（Avayev）曾是Gazprombank（一家为俄罗斯天然气巨头Gazprom服务的银行）的副总裁，也曾是克里姆林宫官员。
 
-发布 : 恩典
+这位商人和他53岁的妻子娜塔莉亚有两个孩子，18岁的受害者和一个十几岁的儿子，据称杀人事件发生时他们正在法国。
+
+这个十几岁的儿子在周二打电话给加泰罗尼亚警方，因为他无法联系到任何家庭成员。警察对别墅进行了检查，发现Protosenya显然是自杀后死在院子里。
+
+警方随后在屋内发现了他妻子和十几岁女儿的尸体。
+
+参考链接：[Mystery as multi-millionaire Russian gas executive is found hanged and his wife and daughter, 18, hacked to death in their Spanish villa days after ex Gazprombank official and his family were discovered dead in Moscow flat](https://www.dailymail.co.uk/news/article-10739821/Russian-gas-exec-hanged-wife-daughter-hacked-death-Spanish-villa.html)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-9.png)
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

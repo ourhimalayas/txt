@@ -2,35 +2,64 @@
 ---
 
 
-## 中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390441/)
+## 中日财经爆┃美国半导体巨头关闭上海全球配送中心 中共芯片供应链加速崩溃
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390522/)
 
 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中共间谍企业波场TRON宣布将上线稳定币USDD.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://storage.googleapis.com/image.blocktempo.com/2022/03/11111111111111111111111111.jpg&amp;imgrefurl=https://www.blocktempo.com/the-verge-make-a-accusations-to-justin-sun-about-poloniex-and-tron-scam/&amp;tbnid=ahEX2-6xIGayHM&amp;vet=12ahUKEwigv6C106b3AhUBEqYKHWRdAJsQMygQegUIARDFAQ..i&amp;docid=qG1r45QSSXQf6M&amp;w=1409&amp;h=842&amp;q=%E6%B3%A2%E5%9C%BATRON%E5%AD%99%E5%AE%87%E6%99%A8&amp;hl=zh-CN&amp;ved=2ahUKEwigv6C106b3AhUBEqYKHWRdAJsQMygQegUIARDFAQ)
 
-4月21日，波场TRON创始人孙宇晨通过推特发布公开信称：波场宣布正式进军去中心化稳定币，上线USDD（Decentralized USD）。同时，波场DAO将联合区块链行业的主流机构发起成立波场DAO储备（TRONDAO Reserve），以数学与算法实现人类的金融自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2761.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://media.kjzz.org/s3fs-public/20210303_120001.jpg&amp;imgrefurl=https://kjzz.org/content/1680232/semiconductor-reports-record-revenue-catches-microchip-demand&amp;tbnid=cIClO5io_teyxM&amp;vet=12ahUKEwj7v7eOzKb3AhVVS_UHHaSWBxcQMyhOegQIARB4..i&amp;docid=n9my3OTpgrBKXM&amp;w=4032&amp;h=2268&amp;q=Onsemi&amp;hl=zh-CN&amp;ved=2ahUKEwj7v7eOzKb3AhVVS_UHHaSWBxcQMyhOegQIARB4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD2.png)
+美国Onsemi安森美半导体公司宣布，受上海疫情影响，安森美将关闭其位于上海的中国全球配送中心。
 
-按照公开的白皮书显示，USDD将首先以TRC的形式发行在波场TRON网络，将由波场联合储备以公开透明的方式进行发行和储备金的管理工作。波场联合储备成立之初将保存与托管区块链行业发起人所筹集的100亿美元高流动性资产作为早期储备，所有储备将在未来6-12个月进入波场联合储备。未来将持续吸纳更多流动性资产作为金融储备。
+安森美表示，“目前，我们的情况没有任何变化，我们也没有收到任何关于可能解除封闭的通知。”关闭后，上海配送将转至新加坡和菲律宾。
 
-孙宇晨与币安创始人赵长鹏一样，是一位声名狼藉的中共权贵白手套和间谍，一面是媒体上塑造年轻企业家的形象，另一面却是利用区块链和数字货币收割韭菜的嗜血大鳄。他是波场TRON、陪我APP创始人兼CEO、BitTorrent CEO。1990年生人，2019年6月，以最高成交价456.7万美元投得与巴菲特共进午餐的机会，由此获得巨大的关注度，但随后引发广泛争议。
+安森美上海全球配送中心承担着深圳、苏州和乐山三大工厂的货物分发。
 
-3月10日，美国科技媒体The Verge报道称，目前美国国税局、FBI等政府部门正在调查孙宇晨在波场期间涉嫌内幕交易，在Poloniex期间涉嫌欺诈、洗钱等犯罪行为。
+安森美官网资料显示，安森美上海解决方案工程中心（SEC）成立于2010年，着重开发电源管理方案，聚焦汽车应用，并提供开发平台。随后，安森美深圳制造工厂于2011年建成，主要用于封装及测试，占地面积近2千平米。
 
-信息来源：
-[波场TRON创始人孙宇晨宣布将正式上线去中心化稳定币USDD – 知乎](https://zhuanlan.zhihu.com/p/502694665)
+另外，早在2006年，安森美已建设了台北解决方案工程中心，主要用于计算机和电源供应或转换市场。
+
+封控下的安排
+
+4月18日，安森美发布通知函表示，“随着政府加强封闭措施，特别是在上海，其中国全球配送中心被迫关闭，从而影响业务。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2763.png)
+
+安森美执行副总裁Mike Balow在信件中表示，除了深圳、苏州和乐山的封控，其它城市的控制或进城限制，也给工厂生产造成了影响。
+
+安森美公司是全球领先的智能电源和传感技术的半导体制造商，其产品系列包括电源和信号管理、逻辑、分立及定制器件，广泛用于汽车、通信、计算机、消费电子、工业、LED照明、医疗、军事/航空及电源应用等领域。此次安森美全面关闭上海全球配送中心，实质就是在退出中国市场，其影响之深之广，将在后续快速显现，这对于目前已经处于极度“缺芯”、几近崩溃的中共供应链而言，无疑又是一记重击，同时将加速形成国际半导体企业跟进撤离的示范效应。
+
+以下是信函全文翻译：
+
+安森美业务更新回复: 新冠疫情关闭
+
+2022年4月18日
+
+亲爱的尊贵客户：
+
+安森美将继续监测全球新冠肺炎疫情，密切关注亚太地区的最新发展。随着政府加强封锁，特别是在上海，我们的中国全球配送中心被迫关闭，因此影响了业务。
+
+目前，我们的状况没有任何变化，我们也没有收到任何关于可能放开封控的进展通知。我们公司在任何情况下都优先考虑员工的安全，并尽其所能减轻封控对我们客户造成的影响。
+
+除了深圳、苏州和乐山的封控，影响了我们在那里的经营之外，我们同样认为，较小的城市已经开始实施封控，或加强了进城限制，尤其是对外部制造厂地造成了影响。我们同样对中国方面的材料、设备、服务供应商的中断事宜作出密切安排。
+
+团队继续专注于为客户提供关键设备，并尽最大努力以最快的方式将产品交付出去。作为这项工作的一部分，我们已经开始向公司其它地点转移，例如安森美新加坡和马尼拉配送中心，以缓解产能限制，并帮助减少影响。
+
+尽管，我们为应对这一不可抗力事件作出了许多努力，包括重新安排其它备用工厂，采取更加快速的运输方法，如Next Flight Out举措，简称NFO，但是，我们仍无力交付足够的材料来满足所有客户的需求。
+
+我们正在努力加强一项计划，以应对进一步延长时间的封控。情况每天都在变化，必要时，我们将监测和调整我们的方式。
+
+当我们度过这段困难时期，我们感谢你们持续的耐心和伙伴关系。
+
+问候你的Mike Balow
+
+安森美半导体销售执行副总裁
+
+信息来源：[刚刚！安森美上海全球配送中心被迫关闭，将转移至新加坡和马尼拉](http://finance.sina.com.cn/tech/csj/2022-04-21/doc-imcwipii5596868.shtml)
 
 *编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
