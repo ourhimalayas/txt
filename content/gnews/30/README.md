@@ -2,32 +2,35 @@
 ---
 
 
-## G20会议上美欧等代表离场抗议俄罗斯
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2388988/)
+## 加拿大新冠疫情大流行再复苏
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389359/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+##### 作者：加拿大温哥华扬帆农场 -【文莱】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2703.png)图片来源：[CTV News](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
 
-4月20日，20国集团（G20）会议上出现了罕见的一幕：当俄罗斯代表开始准备讲话的时候，多个国家的财长走出了会议室，以此来抗议莫斯科入侵乌克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G20会议上美欧等代表离场抗议俄罗斯.jpg)（图片来自Government of Canada/AFP）
+据加拿大媒体【CTV新闻】4月19日报道，加拿大各地的医院正经历新冠病毒疫情的再复苏，业内人士分析此情况可能会持续恶化一个月。
 
-据《大纪元》报道，美国财长耶伦、英国财相苏纳克（Rishi Sunak）、加拿大副总理兼财政部长方慧兰（Chrystia Freeland）、乌克兰财长马尔琴科（Sergii Marchenko）和欧洲央行行长拉加德（Christine Lagarde）在俄罗斯代表发言时集体退席，以谴责俄罗斯对乌克兰的战争。
+报道称，加拿大公共卫生署最新数据显示，加拿大各地因新冠疫情而住院的人数增加了约18%，从5109人增加到6020人。，一些省份的重症监护人数也略有上升。此外，部分地区正处于由奥密克戎的BA.2亚变体所导致的第六波大流行，但官方处理的方式却不并不像当初奥密克戎那样引人注目。反而之是以此推动新冠疫苗计划。
 
-加拿大副总理和财政部长方慧兰在推特上写道，面对俄罗斯持续的侵略和战争罪行，世界民主国家不会袖手旁观。
+对此，本台记者认为加拿大部分地区业内人士的分析将再次伤害群众，因为新冠疫苗的灾难即将到来。
 
-她在推特上发布了一张离开会议的官员的照片，其中包括耶伦、美联储主席鲍威尔和欧洲央行行长拉加德。
+原文链接：[COVID: Provinces experience rise in hospitalizations | CTV News](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
 
-英国财政大臣苏纳克（Rishi Sunak）也发推文表示，各国代表团结一致，持续推动国际行动惩罚俄罗斯。
+上传/发稿 – 【青青】
+撰稿-【文莱】
+采编 -【文莱】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
+* * *
 
-另外，美国财政部还在20日当天，宣布了对俄罗斯的新一轮制裁行动。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[https://www.epochtimes.com/b5/22/4/21/n13716869.htm](https://www.epochtimes.com/b5/22/4/21/n13716869.htm)
-
-总编：老孙
-校对发布：wenxia16
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

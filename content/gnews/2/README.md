@@ -2,36 +2,36 @@
 ---
 
 
-## 中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389551/)
+## 拜登宣布向乌克兰再提供 8 亿美元的军事援助
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2389727/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆SEC预摘牌名单再添17家公司-中概股集体暴跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
-4月21日，美国证劵交易委员会（SEC）再将理想汽车、百世集团和贝壳等17家公司加入“预摘牌名单”，这是自今年3月以来第五批被纳入名单的中概股公司，这些公司或将在2024年初立即退市。
+撰稿：Gradient Boost
 
-具体名单为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。SEC声称，上述17家公司提交申辩的截止时间为当地时间5月12日。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/213.jpg)图片来自网络
+据一位白宫官员称，美国总统拜登将宣布计划再提供 8 亿美元的军事援助，以帮助乌克兰反击俄罗斯的入侵。
 
-当日热门中概股集体重挫，腾讯概念跌幅居前，爱奇艺跌14.89%，贝壳跌超7%，拼多多、斗鱼跌近7%，哔哩哔哩、蘑菇街跌超5%。
+这位未获授权公开发表评论并要求匿名的官员表示，拜登将利用周四上午在白宫的讲话，详细说明在其政府已经批准的大约 26 亿美元的军事援助计划。预计新的一揽子计划将包括乌克兰军队在乌克兰东部顿巴斯地区不断升级的战斗中急需的重型火炮和弹药。
 
-新能源汽车股中，法拉第未来跌近13%，蔚来汽车跌超5%，理想汽车、小鹏汽车跌超4%。
+本周早些时候，加拿大总理特鲁多表示，加拿大将向乌克兰派遣重型火炮。荷兰首相马克·吕特告诉乌克兰总统泽连斯基，荷兰将派出更多重型武器，包括装甲车。
 
-在4月21日博鳌论坛上，中共国证监会副主席方星海演讲时表示，近期中概股下跌严重的情况，重要原因在于中美审计监管合作谈判。
+一名美国高级国防官员说，乌克兰以外的一个欧洲国家已经开始对乌克兰人员进行美国 155 毫米榴弹炮的培训。
 
-据悉，此前百度、爱奇艺、搜狐等中概股公司也被列入“预摘牌”名单，根据SEC公布的《外国公司问责法》，被列入“确定摘牌名单”的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。
+周三，拜登称赞美国军方官员在武装乌克兰方面所做的工作，他召集了美国的军方高层，参加了他担任总统期间的首次面对面的白宫小组会议。国防部长劳埃德·奥斯汀、副国防部长凯瑟琳·希克斯、参谋长联席会议和作战指挥官均参加了此次会晤。商谈的中心话题自然是俄罗斯已经延续近两个月的入侵行径。
 
-如果“确定摘牌名单”中的公司没有提交或提交的文件不符合SEC要求，将会在披露2023年年报后（2024年初）面临立即退市。
+*编辑：Gradient Boost*
 
-消息来源:
-[**又有17家公司被美列入“预摘牌名单”，中概股重挫**](https://www.stcn.com/xw/sd/202204/t20220422_4404525.html)
+*发稿：mgjxs*
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+新闻参考链接：[AP News](https://apnews.com/article/russia-ukraine-zelenskyy-biden-mark-rutte-justin-trudeau-e78a7db76215a84f86586bb56122cd04)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
  
 

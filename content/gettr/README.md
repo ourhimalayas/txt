@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 4:10 AM (UTC)`
+
+2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
+![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/22/2022 3:38 AM (UTC)`
 
 4月22号：尊敬的战友们好．这个运动看上去容易，其实非常的危险，大家务必要小心哦……【七哥，他為了向你學習，學成這樣了。】
@@ -146,13 +153,6 @@ Volunteers at the Medyka rescue center joined us talking about the meaning of th
 
 In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s owner tests positive for nucleic acid and is forcibly quarantined, their pet at home would face the prospect of being abused and killed. During the lockdown in Shanghai, there are many videos showing large numbers of pets such as cats and dogs being dumped onto the street. When neighborhoods were blocked off and food supplies were cut off, even pet cats and dogs were killed for food. The CCP's evil system has devoured human nature, and all living beings have suffered with it. The only way to save humanity is to destroy the CCP.在中共国，当中共病毒疫情爆发时，一旦宠物的主人核酸检测呈阳性被强制隔离，家中宠物就会面临被虐杀的结局。上海封城的期间，有视频显示，大量宠物猫狗被抛尸街头。在小区封锁和食物断供时，更有甚者，杀死宠物猫和狗来食用。中共的邪恶体制侵吞了人性，万物生灵也跟着遭殃。唯有灭共才能拯救苍生。<br/>#ukrainerescue  #nfsc新中国联邦
 ![img](https://media.gettr.com/group17/origin/2022/04/21/17/8ba2716a-305f-2b81-6176-8ac53c864095/out.jpg)
-
----
-
-`@miles 4/21/2022 5:47 PM (UTC)`
-
-04.21.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group41/origin/2022/04/21/17/20179cd3-2294-32fd-c87d-6db67b00f211/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

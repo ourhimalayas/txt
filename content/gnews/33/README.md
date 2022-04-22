@@ -2,16 +2,10 @@
 ---
 
 
-## 法国发现两例不明原因肝炎，欧洲近日已报告多例。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2388949/)
+## 中共国，上海宝山给人民发马桶，没有吃的，CCP让人民只出不进。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2389271/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

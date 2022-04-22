@@ -2,56 +2,40 @@
 ---
 
 
-## 樱花时政┃普京命令严密封锁亚速钢铁厂 宣布马里乌波尔 &#8220;解放&#8221;
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389405/)
+## 澳洲反对党领袖在竞选活动期间确诊新冠
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2389688/)
 
-撰稿、图片：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/普京命令严密封锁亚速钢铁厂-宣布马里乌波尔-解放.png)
+撰稿：Gradient Boost
 
-几周前，俄罗斯军队开始占领并围困乌克兰东南部港口城市马里乌波尔的大部分地区。在过去的几天里，估计有几千名阿佐夫（Azov）战士被包围并藏匿在大型、空旷的阿佐夫钢铁厂，据说还包括一些平民，造成了一种对峙的局面，里面的人正在迅速耗尽物资。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/212.jpg)图片来自网络
+澳大利亚反对党领袖Anthony Albanese周四对外宣布，周四他的CCP病毒检测出现阳性。这位59 岁的中左翼工党领导称他感觉良好，并将在悉尼的家中隔离一周——而澳洲的大选目前被定在一个月后的5月21日。
 
-此前，人们认为俄罗斯军队正准备冲击这个庞大的建筑群，但在周四，弗拉基米尔-普京向他的国防部长谢尔盖-绍伊古表示，必须放弃这一行动方案，并完全封锁该工厂。
+Albanese 表示：“在家里，我将继续履行我作为替代总理的职责，并将为所有澳大利亚人的更美好未来而奋斗。”
 
-普京进一步宣布，在入侵前拥有约45万人口的马里乌波尔现在已经 “解放”，并就这一军事 “成功 “向国防部长表示祝贺。此时此刻，俄罗斯已经发起了更广泛的重大攻势，以占领整个顿巴斯。
+这一诊断对他的政党来说是一个挫折，该政党正在寻求自 2010 年以来的首次选举胜利。最近几个月，工党在民意调查中一直领先于总理斯科特·莫里森 (Scott Morrison) 的保守政府。
 
-普京是在回应绍伊古本人向其总司令所作的通报时说出这番话的，该通报在国家电视台播出。
+就在前一天，澳洲总理Morrison和Albanese共同参加了在布里斯班举行的首次电视转播领导人辩论。在选举活动中他们握手并合影留念。当被问及总理是否也会因为与他的密切接触而被暂时排除在竞选活动之外时，莫里森的办公室没有立即做出回应。
 
-俄罗斯国防部长谢尔盖-绍伊古在一次电视会议上告诉普京：”马里乌波尔已经被解放了。”剩余的民族主义份子在亚速（Azovstal）工厂的工业区避难”。
+莫里森在推特上向Albanese表示慰问：“每个人对新冠病毒的体验都不一样，随着工党的竞选活动继续进行，我希望他不会出现任何严重的症状。”
 
-至于该工厂，普京说，它应该与里面的人一起被封锁，**“这样，连一只苍蝇都无法逃脱”****。**
+在检测呈阳性前几个小时，Albanese 曾在悉尼南部沿海城镇 Nowra 的 Symons House 退休村与居民交谈，当时他有配戴口罩。
 
-“我们应该始终考虑，特别是在这种情况下，拯救我们士兵和官员的生命和健康。”普京说：”没有必要爬进这些地下墓穴。”
+澳大利亚周四报告了最近 24 小时内 54,137 例新的冠状病毒感染，同时有 50 人因为感染CCP病毒而不幸离世。
 
-他继续说：”封锁这个工业区，使之连一只苍蝇都无法逃脱。”
+*编辑：Gradient Boost*
 
-普京说，那些被困在工厂里的人将有机会投降，他们可以保留自己的生命并得到 “有尊严的待遇”。
+*发稿：mgjxs*
 
-此前，该地区的一名乌克兰官员给那些仍在钢铁厂内的人 “几天或几小时 “的时间来坚持——因为他们不仅被切断了所有的逃生路线，而且像食物、水和可能的弹药这样的基本供应正在耗尽。
+新闻参考链接：[AP News](https://apnews.com/article/covid-health-sydney-campaigns-scott-morrison-304984005070cd3333aa46cce470c6fa)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-一位美国退休的军事官员丹尼尔-L-戴维斯中校向CNN解释说，从战略角度来看，普京的战略可这样解释。
-
-“在那个迷宫般的建筑群中，没有必要对每个人都进行攻击，也没有必要进去……没有理由这样做。他们所要做的只是把最后一块封锁起来，实际上这个城市已经是他们的了。”
-
-然而，一些学者从中看到了俄罗斯部队疲惫不堪的迹象。
-
-从星期二开始，剩余的平民开始离开工厂。俄罗斯军队建立了一个 “人道主义走廊”，大约120人被安全疏散。今日俄罗斯（RT）电视台当天晚些时候播放了乌克兰平民被护送出该地区的画面。
-
-俄罗斯军队一直在扬声器上大声疾呼，要求亚速战斗人员放下武器，离开该建筑群，”否则”……
-
-俄罗斯军队认为黑海港口城市对于完成一座陆桥至关重要，这座陆桥将已经在其控制下的领土连接到克里米亚。
-
-信息来源：** **
-[**“So Not Even A Fly Can Escape”: Putin Declares Mariupol ‘Liberated’ – Orders Besieged Steel Plant Sealed Off**](https://www.zerohedge.com/geopolitical/so-not-even-fly-can-escape-putin-declares-mariupol-liberated-orders-besieged-steel)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
  
 

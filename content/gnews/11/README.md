@@ -2,29 +2,37 @@
 ---
 
 
-## 中共国大学生短诗比赛 不准涉及疫情及铁链女
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2389375/)
+## 魁省超万名医护人员因病毒原因离岗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16505962741.png)资料图
-据法国国际广播电台4月21日报道，中共国上海交通大学举办的“2022全球华语大学生短诗大赛”，由中央美术学院的学生朱皓月所创的入围作品“非必要离校“，描述在疫情防控期间，学生们期待能在“非必要”状况下离开校园。全文仅146字，但却引发全网共鸣。这首短诗很快在主办单位的微博被屏蔽。
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-除了“非必要离校”这首短诗，谈及疫情“吹哨人”、已经离世的前武汉中心医院眼科医师李文亮，编号640、作品名称为“史记”；谈及徐州八孩妈铁链女事件，编号626、作品名称为“他的床头长出一个女人”等也遭屏蔽。有网民留言：“626和640，像无数女人和历史一样消失了”。
 
-已经完全洗脑了国内民众，并且掌控了所有的媒体，狂妄得还想称霸全球的中共，几首短诗刚一刊登即遭封杀，中共是怕什么还是想掩盖什么呢？疫情封国封城，铁链女人尽皆知，短诗并没有谈到中共国鬼都不知道的病毒感染和死亡数字，也没有谈到铁链女如今身在何方，中共还怕什么呢？只能理解为，平生做尽亏心事，生怕随时鬼敲门。堵住老百姓的眼、耳还不够，还要捂住眼睛，生怕老百姓从只言片语中明白自己的处境。中共一天不灭，人人都可能在下一秒成为李文亮或者铁链女，无声无息地被消失。
+加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
 
-新闻参考链接：[https://www.rfi.fr/cn/中国/20220421-中国大学生短诗比赛-不准写疫情及铁链女](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220421-%E4%B8%AD%E5%9B%BD%E5%A4%A7%E5%AD%A6%E7%94%9F%E7%9F%AD%E8%AF%97%E6%AF%94%E8%B5%9B-%E4%B8%8D%E5%87%86%E5%86%99%E7%96%AB%E6%83%85%E5%8F%8A%E9%93%81%E9%93%BE%E5%A5%B3)
+该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
 
-编辑：胖丁
+到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
 
+原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【自由法兰西】
+素材/采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 
