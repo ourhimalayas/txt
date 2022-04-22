@@ -2,10 +2,10 @@
 ---
 
 
-## 习近平在2022年博鳌亚洲论坛会议开幕式上发表讲话
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391837/)
+## 杰森·米勒指出必须改革230法案
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391895/)
 
-04/21/2022 习近平在2022年博鳌亚洲论坛会议开幕式上发表讲话
+04/20/2022 盖特首席执行官杰森·米勒在接受Newsmax采访时指出，如果社交媒体平台想继续拥有豁免权，就必须改革230法案。埃隆·马斯克宣布接管推特后会恢复推特的言论自由
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

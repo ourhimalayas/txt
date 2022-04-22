@@ -2,18 +2,12 @@
 ---
 
 
-## 世界需要清零中共
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2391818/)
+## 《在线安全法案》会对美国的言论自由权利产生巨大的直接影响
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391874/)
 
-文贵大直播20220422
+04/20/2022 盖特首席执行官杰森·米勒在接受Newsmax采访时预计，正在立法方面取得进展的《在线安全法案》会对美国的言论自由权利产生巨大的直接影响，同时会在全世界产生真正的潮汐效应。网飞股票下跌20%后，埃隆·马斯克指责“觉醒思想病毒”使得网飞的节目没法看
 
-撰稿：坐看云起时（扬帆）童媚（澳喜）禄森（澳雅）
-
-书法：沙漠之花（香草山）
-
-美工：Bobby（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-30.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

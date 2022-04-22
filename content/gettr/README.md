@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 2:31 PM (UTC)`
+
+【Ukraine Rescue】 04/21/2022 Two volunteers from England enjoy our NFSC coffee and they agree that the NFSC represents the voice of Chinese. They also support the NFSC’s fight for human rights and freedom of the Chinese people and taking down the evil CCP.<br/><br/>【乌克兰救援】 04/21/2022 两个英国义工喜欢我们的新中国联邦咖啡。他们说，新中国联邦人代表了中国人的声音，代表了人权，他们支持新中国联邦为中国人争取人权和自由，打倒邪恶的中国共产党。<br/>
+![img](https://media.gettr.com/group26/getter/2022/04/22/14/7ac56918-a65d-12ee-8ec9-8a4c1350487c/out.jpg)
+
+---
+
+`@miles 4/22/2022 2:28 PM (UTC)`
+
+ 4月22号：尊敬的战友们好．对中国共产党的经济和金融市场，包括香港．有任何幻想的人．那绝对是噩梦，你将失去一切！醒来吧，被欺骗了百年的同胞们！
+![img](https://media.gettr.com/group15/getter/2022/04/22/14/a73fe19f-dfdf-aa5b-5260-9e9f037c30a0/out.jpg)
+
+---
+
 `@miles 4/22/2022 2:04 PM (UTC)`
 
 04/22/2022 on the 4th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 8 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Cambodia🇰🇭<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月22号，《铁锁梦》MV在全球上线第四天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>8国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，柬埔寨🇰🇭的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2392030/
@@ -138,20 +152,6 @@ https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
 
 4/21/2022 Miles Guo: Xi Jinping currently has three difficulties: 1. China's economy has collapsed already; 2. The political struggle within the CCP is approaching its limit; 3. He still fantasizes about killing the United States and the dollar; it’s terrifying that Xi Jinping sincerely believed that only by attacking and destroying Taiwan, all their problems will be solved<br/><br/>4/21/2022 文贵直播：习近平目前的三个难处：1，经济已经崩塌； 2，党内政治斗争已经接近极限；3，仍然幻想干掉美国和美元；可怕的是习被周边人忽悠得相信打台湾和灭掉台湾才能解决所有的问题<br/>
 ![img](https://media.gettr.com/group23/getter/2022/04/21/23/e433255c-9e83-dd13-99e6-47aac235c34c/out.jpg)
-
----
-
-`@miles 4/21/2022 11:48 PM (UTC)`
-
-4/21/2022 Miles Guo: If the CCP takes action against Taiwan between April 26th and May 6th, martial law will certainly be imposed in Beijing, and the situation in Shanghai will be even worse. Putin has started to cozy up to the US, breaking the promise between him and “Xi the Sun”, who has bet that the US wouldn’t fight two wars at the same time. The only uncertainty is whether Xi would make the desperate move of destroying Taiwan.<br/><br/>4/21/2022 文贵直播：如果4月26号到5月6号台湾有动作，北京一定戒严、上海会更糟糕；普京向美国示好，这打破了普大帝和习太阳当年的约定（赌美国不会同时打两场战争）；唯一的变数就是习近平会铤而走险、毁灭台湾<br/>
-![img](https://media.gettr.com/group12/getter/2022/04/21/23/35438e72-c6f6-f89e-f0f6-3cc9be9bc5dd/out.jpg)
-
----
-
-`@miles 4/21/2022 11:41 PM (UTC)`
-
-2022.04.21《The Fringe》 Episode 174<br/>中文同传：https://gettr.com/streaming/p16hvg99070
-![img](https://media.gettr.com/group31/origin/2022/04/21/23/52965f55-4937-5d5f-69d7-1729db8e5407/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

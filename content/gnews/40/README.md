@@ -2,27 +2,29 @@
 ---
 
 
-## 中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391069/)
+## 中日财经爆┃日本邮政停发中共国境内包裹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391295/)
 
-撰稿：东京樱花团/上善若水
+撰稿：东京樱花团/peterwong
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-世界银行行长马尔帕斯4月21日在华盛顿与乌总理什米加尔等召开了圆桌会议。世界银行发布评估称，战争造成的建筑物及基础设施等直接经济损失大约为600亿美元。世行还宣布，乌已通过融资等从包括日本在内的各国筹集了30亿美元资金。
+4月21日，日本邮政公司在官网发布消息称，受中共病毒（新冠病毒Covid-19）疫情影响，决定从4月22日起，暂停发往中共国（港澳台地区除外）的EMS服务、航空及海运包裹服务。寄往中共国的书信类仍将继续正常受理。EMS等服务的恢复时间暂未公布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-167.jpg)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃日本邮政停发中共国境内包裹.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2Ftransform%2F123%2Fw550h373%2F20210930%2Fcb52-ceba224c4e61126221cb92752532f35d.jpg&amp;imgrefurl=http%3A%2F%2Ftags.finance.sina.com.cn%2F%25E6%2597%25A5%25E6%259C%25AC%25E9%2582%25AE%25E6%2594%25BF&amp;tbnid=nD2qXv8KqS9hRM&amp;vet=12ahUKEwiXs4vEqqf3AhUVNxoKHVBnCTQQMygVegUIARDTAQ..i&amp;docid=43Yi48qg-4XxsM&amp;w=550&amp;h=373&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E9%82%AE%E6%94%BF&amp;ved=2ahUKEwiXs4vEqqf3AhUVNxoKHVBnCTQQMygVegUIARDTAQ)
 
-什米加尔表示今后需要3个阶段的资金，分别是“战争持续期间的金融和财政支援”、“和平后6～8个月的核心基础设施重建”、“中长期的城市和家庭重建”。马尔帕斯指出需要长期对乌的预算作出支持。以线上方式出席会议的泽连斯基表示俄军破坏了车站及食品销售店等生活基础，强调了经济支援的必要性。什米加尔提出分析称，包括间接损失在内，经济损失已达5600亿美元。
+通知指出，一览中的国家/地区依然暂停接受发自国外的国际邮件，并且还未确保十分运力，将继续暂停受理。同时，已经受理的国际邮件中，无法发至国外的，担任派送的邮局正在顺次进行退回工作。上述措施前受理的寄往中国的邮件不退回至寄件人，我司将利用已确保的舱位进行运输。
 
-信息来源： [世行:俄乌冲突给乌克兰造成600亿美元直接损失](https://cn.nikkei.com/politicsaeconomy/epolitics/48347-2022-04-22-15-16-43.html)
+消息来源:
+[22日起生效！日本郵政停發中國大陸包裹 恢複時間尚未公布](https://news.fx168news.com/politics/jp/2204/5836839.shtml)
+[国际邮件的发送可否速览表（截至2022年4月22日）](https://www.post.japanpost.jp/int/information/overview_cn.html)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

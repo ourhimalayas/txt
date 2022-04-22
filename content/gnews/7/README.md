@@ -2,11 +2,11 @@
 ---
 
 
-## 战友们分享对4.19的感受（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2392261/)
+## 习近平崇拜莫德尔周期理论，疯狂深信自己是神（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2392333/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/13：10-13：20-001-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/13：50-14：00-004-1.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：
