@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 12:26 PM (UTC)`
+
+新中国联邦和法治基金收到来自乌克兰驻新西兰\新加坡\文莱大使馆的感谢信<br/>The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand<br/>#ukrainerescue  #nfsc新中国联邦 #乌克兰救援nfsc
+![img](https://media.gettr.com/group14/origin/2022/04/22/12/795c66d7-c3ff-deef-84bb-12209586723a/out.jpg)
+
+---
+
 `@miles 4/22/2022 10:58 AM (UTC)`
 
 2022.04.22  新中国联邦 | 军情室  从对内镇压到对外渗透  谈中共武警部队在武力犯台时的作用
@@ -146,13 +153,6 @@ https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
 
 “中共！还钱！” 飞飞秀救援快报 2022-04-21<br/>For English：gettr.com/streaming/p16hjrrc080
 ![img](https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 8:48 PM (UTC)`
-
-2022.04.21  新中国联邦 | 喜健康   病毒满视野，我们该吃啥？
-![img](https://media.gettr.com/group27/origin/2022/04/21/20/7b7b1da2-2865-3b39-20ba-69f0e60f739d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
