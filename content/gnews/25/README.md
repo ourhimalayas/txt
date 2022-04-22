@@ -2,45 +2,22 @@
 ---
 
 
-## 俄罗斯将驱逐36名欧洲外交官
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2388315/)
+## 樱花时政┃俄罗斯国防研究机构发生大型致命火灾
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388405/)
 
-***评论：**当地时间3月29日，比利时宣布驱逐21名俄罗斯外交人员。且在随后的4月12日，比利时现任首相亚历山大·德克鲁（Alexander De Croo）总理出现在波-乌边境梅迪卡营地的新中国联邦救援中心，成为第一位默认新中国联邦的国家元首。而号称与俄保持了近300年友好关系的荷兰，也于3月29号宣布将驱逐17名俄罗斯外交官。此外，荷兰首相马克·吕特周二表示，荷兰将向乌克兰运送“更重的物资”，“包括装甲车”。俄罗斯在末日独裁者普京的领导下，已经内忧外困，即将陷入万丈深渊。*
+撰稿：东京樱花团/加一颗稻草
 
-据《Insider Paper》转《法新社》，2022年4月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2688-e1650578182233.png)图片来源：Pixabay
-俄罗斯周二表示，将驱逐来自两个欧洲国家的 36 名外交官，以报复两国因克里姆林宫在乌克兰的军事行动而针对俄罗斯外国特使所采取的类似措施。
+2022年4月21日星期四晚上10:15，俄罗斯媒体报道，俄罗斯国防部位于特维尔市的研究设施在神秘情况下发生大火。该地点位于莫斯科西北约 110 英里处。鉴于RT报道有两人死亡和至少20人受伤，并且航拍画面显示该地区出现巨大的火焰和浓烟，因此可能发生了爆炸。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-133.png)图片来源于本文链接
+紧急救援人员正在现场。据说大楼的上层属于政府的中央航空航天防御部队研究与发展研究所。“火灾发生在行政大楼二楼的一个房间里。”俄罗斯媒体报道说：“根据初步数据，大火面积达数千平方米，导致屋顶部分倒塌。”有报道称俄罗斯各地的森林大火有所增加，但目前尚不清楚或不清楚周四大火背后的原因。
 
-俄罗斯外交部表示，已宣布来自比利时的 21 名外交官和来自荷兰的 15 名外交官为“不受欢迎的人”，给他们两周的时间离开。
+消息来源：
 
-莫斯科还召见了卢森堡的大使，警告他，俄罗斯可能决定对这个欧洲小国驱逐莫斯科大使的行为采取对等措施。
+[Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
 
-俄罗斯总统弗拉基米尔·普京(Vladimir Putin) 2月24日决定在乌克兰发动军事行动后，莫斯科与西方国家之间发生了一系列驱逐事件，这是最新的一起。
-
-这次攻势使俄罗斯陷入国际孤立，并破坏了它与西方的许多经济联系。
-
-俄罗斯外交部称荷兰3月29日驱逐18名莫斯科特使的决定“毫无根据”。
-
-它称比利时采取的类似举措“具有挑衅性”，而卢森堡的决定是“没有动机和不友好的举措”。
-
-文章来源：[https://insiderpaper.com/russia-expelling-36-european-diplomats-foreign-ministry/](https://insiderpaper.com/russia-expelling-36-european-diplomats-foreign-ministry/)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – 钢蛋儿
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 –子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

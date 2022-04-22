@@ -2,22 +2,39 @@
 ---
 
 
-## 樱花时政┃俄罗斯国防研究机构发生大型致命火灾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388405/)
+## 2022年4月22日《樱花快报》：台湾新增中共病毒确诊连续5天创历史新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388831/)
 
-撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422快报.jpg)
 
-2022年4月21日星期四晚上10:15，俄罗斯媒体报道，俄罗斯国防部位于特维尔市的研究设施在神秘情况下发生大火。该地点位于莫斯科西北约 110 英里处。鉴于RT报道有两人死亡和至少20人受伤，并且航拍画面显示该地区出现巨大的火焰和浓烟，因此可能发生了爆炸。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-133.png)图片来源于本文链接
-紧急救援人员正在现场。据说大楼的上层属于政府的中央航空航天防御部队研究与发展研究所。“火灾发生在行政大楼二楼的一个房间里。”俄罗斯媒体报道说：“根据初步数据，大火面积达数千平方米，导致屋顶部分倒塌。”有报道称俄罗斯各地的森林大火有所增加，但目前尚不清楚或不清楚周四大火背后的原因。
+2022年4月22日《樱花快报》新闻：
 
-消息来源：
+◆香港21日晚间公布，截至当日午夜，单日新增确诊628人，较前一日减少40人。
 
-[Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
+◇台湾21日宣布，国内新增中共病毒感染病例2969例，连续五天创历史新高。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+◆钟南山指出，中共国清零政策不能长期推行，国际社会已经开始放松管制，他说要顺应世界，呼吁改变政策。
+
+◇马斯克21日表示，如果他对推特的竞标成功，他将消除垃圾邮件机器人，只有真人才能使用此社交平台。
+
+◆中共国今年1-2月手机出货量仅为4788.6万部，同比下降22.6%。
+
+◇21日，英国为女王伊丽莎白庆祝96岁生日与在位70周年，但由于感染中共病毒和缺席重大活动，她的健康状况受到了关注。
+
+◆普京21日宣称取得马里乌波尔之战的胜利。中共驻俄大使称，中俄关系前所未有地好，“合作无止境”。
+
+◇21日，俄罗斯一个绝密军事研究所爆发致命火灾，摧毁大楼。该所致力于开发俄罗斯最新的弹道导弹，以及苏-27战机和图-160轰炸机等先进武器。
+
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

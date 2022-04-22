@@ -15,130 +15,130 @@
 
 ---
 
-### [COVID-19疫苗副作用集萃（2022.4.22B）－打完康希诺发烧](/content/gnews/1/README.md)
+### [习近平被身边的人忽悠，相信打台湾能解决一切问题](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.22A）&#8211;打新冠疫苗后情绪超级差](/content/gnews/2/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.22C）&#8211;甲状腺癌与疫苗](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马里乌波尔守军指挥官请求撤离亚速钢铁厂内的士兵和平民](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰富豪通知乌军：“向我的豪宅开炮！”](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [G20会议上美欧等代表离场抗议俄罗斯](/content/gnews/5/README.md)
- ` 日本東京方舟農場`
-
-### [二十一世纪之人间惨状](/content/gnews/6/README.md)
- ` 纽约香草山MOS02`
-
-### [疫情當下，外地打工人的艱難，回不去家，沒有飯吃，沒有工作，政府不聞不問。](/content/gnews/7/README.md)
+### [近日，上海徐匯區淩云街道梅隴九村，很多陽性和無症狀病人沒有轉走，小區陽性病人越來越多，有陽性的樓道挨棟用圍擋封閉。](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [上海桃浦镇，一家老年醫院隔離中心，新建成未開張，缺物資和配套設備，老人得不到照顧，微博上求助。](/content/gnews/8/README.md)
+### [众议院议长南希·佩洛西欢迎乌克兰总理杰尼斯·什米加尔来访](/content/gnews/4/README.md)
+ ` 美国政要直译推`
+
+### [上海，幾位老人隔著小區的柵欄，請求路過的送團購貨車司機，給他們幾條魚，現金支付，不用找零錢了；上海，路邊丟棄的白菜，附近人去撿；4月16日山東出廠 ，4月17日上海居委會發給居民。](/content/gnews/5/README.md)
  ` Tokyo Sakura Video Group`
 
-### [2022年4月21日七哥乱聊直播摘要及音讯—银河系农场](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [法国发现两例不明原因肝炎，欧洲近日已报告多例。](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共国，棺材封条！这ccp充当了道士的角色。](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [南希·佩洛西月底访台，中共将跟美国干到底](/content/gnews/12/README.md)
+### [民生集萃——失业了（2022.4.22）&#8211;公司倒闭了](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [温布尔登网球锦标赛禁止俄罗斯和白俄罗斯运动员参加](/content/gnews/13/README.md)
- ` 日本東京方舟農場`
-
-### [大量武警进驻北京为封城大隔离做预备，习为解困攻打台湾](/content/gnews/14/README.md)
- ` YALUN 亚伦`
-
-### [COVID-19疫苗副作用集萃（2022.4.22A）&#8211;打了新冠第三针，大姨妈来了不走！](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [多国网络安全机构警告：俄罗斯将实施“恶意网络行动”](/content/gnews/16/README.md)
- ` 日本東京方舟農場`
-
-### [2022年4月22日《樱花快报》：台湾新增中共病毒确诊连续5天创历史新高](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [岸田文雄向靖国神社供奉“真榊”祭品](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全球粮食危机:国际货币基金组织警告粮食供应短缺引发动荡](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [4/21/2022 文贵直播：乌克兰救援行动尚不会撤，救援营地可能会升级成新中国联邦驻梅迪卡大使馆或驻基辅大使馆！加拿大首次正面报道新中国联邦，新中国联邦的搜索量从几千万迅速达到十几亿](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵直播音频2022.04.21](/content/gnews/21/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在39.333 HDO](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [【粤语配音】2022年4月21日：新中国联邦将在乌克兰前线建立大使馆](/content/gnews/8/README.md)
+ ` MOS香港部`
 
-### [有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信](/content/gnews/23/README.md)
- ` NFSC News`
-
-### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/26/README.md)
- ` YALUN 亚伦`
-
-### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
-
-### [五月花简报（04/21/2022）](/content/gnews/29/README.md)
- ` mayflowertranslate`
-
-### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/31/README.md)
- ` NFSC News`
-
-### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/32/README.md)
- ` NFSC News`
-
-### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/34/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/35/README.md)
- ` G-时新闻`
-
-### [截至4.21 俄乌战事汇总](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国，CCP造假摆拍防疫就诊](/content/gnews/39/README.md)
+### [上海，居民和做核酸檢測者起爭執：做核酸，提前拆開棉簽包裝有交叉傳染的可能。](/content/gnews/9/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国宣布接纳乌克兰难民的计划](/content/gnews/40/README.md)
+### [杭州亚运会可能延期](/content/gnews/10/README.md)
+ ` 日本東京方舟農場`
+
+### [](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [普京下令停止突击亚速钢铁厂，而是将钢铁厂完全封锁](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [COVID-19疫苗副作用集萃（2022.4.22B）－打完康希诺发烧](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年04月21日七哥乱聊直播](/content/gnews/14/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [普京取消猛攻马里乌波尔钢铁厂的计划而是选择将其封锁](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [马里乌波尔守军指挥官请求撤离亚速钢铁厂内的士兵和平民](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [G20会议上美欧等代表离场抗议俄罗斯](/content/gnews/17/README.md)
+ ` 日本東京方舟農場`
+
+### [2022年4月21日七哥乱聊直播摘要及音讯—银河系农场](/content/gnews/18/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [南希·佩洛西月底访台，中共将跟美国干到底](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大量武警进驻北京为封城大隔离做预备，习为解困攻打台湾](/content/gnews/20/README.md)
+ ` YALUN 亚伦`
+
+### [多国网络安全机构警告：俄罗斯将实施“恶意网络行动”](/content/gnews/21/README.md)
+ ` 日本東京方舟農場`
+
+### [2022年4月22日《樱花快报》：台湾新增中共病毒确诊连续5天创历史新高](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [岸田文雄向靖国神社供奉“真榊”祭品](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵直播音频2022.04.21](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/27/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/29/README.md)
+ ` YALUN 亚伦`
+
+### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/31/README.md)
+ ` 秘密翻译组-原创组`
+
+### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/32/README.md)
+ ` NFSC News`
+
+### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/33/README.md)
+ ` NFSC News`
+
+### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/34/README.md)
+ ` NFSC News`
+
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/35/README.md)
+ ` 银河歌舞厅`
+
+### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/36/README.md)
+ ` G-时新闻`
+
+### [截至4.21 俄乌战事汇总](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [濒临破产 中共银行无故阻挠客户取款](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [在中共国的某个地方，封控下的居民向居委会干部喊道“我们快饿死了！”](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国，CCP造假摆拍防疫就诊](/content/gnews/40/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国宣布接纳乌克兰难民的计划](/content/gnews/41/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [世界上最大的金条价值飙升](/content/gnews/41/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [普京宣布占领马里乌波尔](/content/gnews/42/README.md)
+### [世界上最大的金条价值飙升](/content/gnews/42/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [从俄乌战争看台海情势、国际态势三分，CCP图谋什么？](/content/gnews/43/README.md)
@@ -150,14 +150,14 @@
 ### [武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰第一季度通胀达三十年来最高](/content/gnews/46/README.md)
- ` 澳喜农场`
-
-### [2022年4月19日4.19断播5周年大直播第二部分全文听写](/content/gnews/47/README.md)
+### [2022年4月20日郭文贵先生临时直播 全文字版](/content/gnews/46/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [【每日聚焦】俄乌战事4月21日简要](/content/gnews/48/README.md)
- ` 蓝莲花农场`
+### [新西兰第一季度通胀达三十年来最高](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [2022年4月19日4.19断播5周年大直播第二部分全文听写](/content/gnews/48/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
 ### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
