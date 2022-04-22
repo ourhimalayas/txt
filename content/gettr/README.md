@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 3:42 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月21日第48天当日救援统计：<br/>Medyka救援站接待：约252人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13611人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 48 - Date: April 21, 2022 :<br/>Medyka Rescue Station Reception: about 252 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13611 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group24/getter/2022/04/22/15/12fc97ca-f34c-7305-12eb-61d515393130/2b16e8aba7de9c270a683436ffa1ac90.jpg)
+
+---
+
 `@miles 4/22/2022 3:27 PM (UTC)`
 
 <br/>【Ukraine Rescue】 04/22/2022 A volunteer from Brazil excitedly took a picture in front of the poster of the NFSC and says, “I love it! Well done guys!“<br/><br/>【乌克兰救援】 04/22/2022 一位来自巴西的志愿者兴奋地站在新中国联邦的海报前合影，她表示：我爱死这个海报了！你们太棒了！
@@ -145,13 +152,6 @@ A French volunteer has been to China 12 times and he loves China very much. Nico
 `@miles 4/22/2022 12:15 AM (UTC)`
 
 https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
-
----
-
-`@miles 4/21/2022 11:52 PM (UTC)`
-
-4/21/2022 Miles Guo: There is zero chance that Xi Jinping won’t invade Taiwan! The only choice left for Xi is either to bring down Taiwan’s economy or devastate Taiwan by using strategic nuclear weapons. It was the first time for the U.S. to diplomatically disregard the CCP’s furious protest against Nancy Pelosi’s plan to visit Taiwan. The CCP will fight the US to the end.<br/><br/>4/21/2022 文贵直播：习不打台湾的可能性已经没有了！习只有两个选择，经济上打垮台湾或者用战略核武器摧毁台湾；美方第一次明确在外交上表示不在乎中共对佩洛西计划访台的跳脚抗议，而中共将跟美国干到底<br/>
-![img](https://media.gettr.com/group12/getter/2022/04/21/23/f5261ac9-4838-5e54-2adc-0ffe455e101a/out.jpg)
 
 ---
 

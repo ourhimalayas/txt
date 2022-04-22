@@ -2,36 +2,48 @@
 ---
 
 
-## 专家建议在聚会等计划前需多次病毒检测
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392523/)
+## 美、英、加代表集体离席G20会议，共同抵制俄罗斯
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2392527/)
 
-##### 作者：加拿大温哥华扬帆农场 -【硫酸羟氯喹64/晨熹】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2788.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5778.jpg)据路透社报道，美国财政部长珍妮特-耶伦(Janet Yellen)告诉与会者，她不赞成一名俄罗斯高级官员出席。照片。Chip Somodevilla/Getty Images
+英国《卫报》4月20日报道，英国、美国和加拿大在20国集团(G20)会议上一起退场，抗议俄罗斯入侵乌克兰，目前，世界上主要国家之间越来越大的分歧对世界经济造成冲击。
 
+当俄罗斯代表在华盛顿的会议上发言时，这三个国家的代表离开了会议。消息人士称，英格兰银行行长安德鲁·贝利（Andrew Bailey）和一名财政部高级官员是离开会谈的人之一。
 
-据【CTV NEWS】4月17日报道，两年来人第一次庆祝复活节和逾越节时面临很少的公共卫生限制，但专家提醒大家仍需保持谨慎，这意味要更多的使用到快速抗原检测 (RAT)。
+国际货币基金组织负责人克里斯塔琳娜·格奥尔基耶娃（Kristalina Georgieva）在抗议活动前不久发表的评论中警告说，75年的发展成果因国际合作的分裂正在受到威胁。
 
-但安大略省科学家皮特·朱尼认为，由于目前对奥米克戎的BA.2亚变体缺乏了解，用RAT很难检测到。他建议加拿大人在聚会等计划前至少进行两次快速检测，间隔24小时，没有任何症状才可以。”朱尼还建议聚集需限制人数，避免拥挤，确保通风。
+作为世界上主要经济体的G20集团包括美国、英国、法国和德国，也包括中国、巴西和印度等强大的发展中国家。在此次退席发生之际，西方领导人正在质疑俄罗斯在G20经济体中的成员资格。
 
-据悉，奥米克戎BA.2亚变体最初在加拿大的传播似乎相对缓慢，然而现在已是曼省和安省社区间传播的最主要菌株。
+英国财政大臣里希·苏纳克（Rishi Sunak）在推特上说，英国代表已经退出了会议。他说：“我们一致谴责俄罗斯对乌克兰的战争，并将推动加强国际协作来惩罚俄罗斯。”消息人士称，英国、美国和其他西方国家正在推动就俄罗斯G20成员资格的延续达成共识，并对克里姆林宫代表的出席提出质疑。
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+据路透社报道，美国财政部长珍妮特·耶伦（Janet Yellen）告诉与会者，她不赞成有俄罗斯高级官员出席。美国财政部周三早些时候说，耶伦会见了印度尼西亚财政部长英卓华（Sri Mulyani Indrawati）——该国目前是G20的轮值主席国——强调“俄罗斯在全球经济中不会如往常一样了”。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【晨熹】
-素材/采编 -【硫酸羟氯喹64】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+国际货币基金组织前副主任、现任英国剑桥大学皇后学院院长的穆罕默德·埃利安(Mohamed El-Erian)说，这场冲突表明G20没有作为一个国际机构发挥作用。
+
+“在我们最需要多边主义的时候，多边主义的未来正处于危险之中。”埃利安说，他呼吁各国政府继续通过其他方式进行合作。他说，“G20过于分裂，而且缺乏连续性。我一直困惑为什么它没有秘书处。一个接一个地担任主席国——每次都在变化，所以很少做事情。”
+
+国际货币基金组织周二表示，由于俄罗斯在乌克兰的战争推动了通货膨胀，全球经济的风险正在增加。这家总部位于华盛顿的基金组织说，这场战争增加了全球经济更持久地分裂为地缘政治集团的风险。它说，这种“构造转变”将给全球经济带来高昂的调整成本。
+
+**简评：**
+
+美国、英国和加拿大退出G20会议，就是在向独裁国家中共和普京政权表明一种态度，自由民主和独裁专制不能共处于同一屋檐下。西方不能继续再被这些独裁国家愚弄，所谓的“合作”不过是滋养了这些独裁政权，膨胀了他们的野心，此次入侵乌克兰就是最好的证明。
+
+如果不彻底消灭此次俄乌战争背后的中共政权，通货膨胀在因为中共的作恶导致的世界经济大崩溃以及基于规则的世界秩序被破坏面前是微不足道的。开战之初由于西方的制裁，导致俄罗斯卢布价格暴跌，但最近让人震惊的是价格有所回升，在几近最严苛制裁下还能回升，可以说中共背后帮助绕过制裁起着根本的作用。西方各国应该加深合作，从军事上围堵中共，给予台湾更多的支持，面对中共更加强硬，如制裁俄罗斯那样甚至更严厉的制裁中共。因为中共政权的消亡将意味着可以同时结束世界上多处的战乱，意味着可以让整个世界回归文明发展的轨道。
+
+新闻链接: [US, UK and Canada walk out of G20 meeting over war in Ukraine](https://www.theguardian.com/world/2022/apr/20/us-uk-and-canada-walk-out-g20-meeting-war-in-ukraine-russia)
+
+翻译/简评:親愛的瑪嘉烈 / PR: Harvey（叶知秋）
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
