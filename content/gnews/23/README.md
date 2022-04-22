@@ -2,27 +2,17 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393312/)
+## 喜币是一个稳定价值的数字化
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2393496/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-6.jpg)
+**听写：叮叮    编辑：文宝**
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](https://gnews.org/zh-hans/2383091/)
+CDN就是今天网络数据的创始人、数字货币的大佬，你任何数字货币你不用CDN你活不下去的，世界上60%的流量是人家CDN的数据给的，写了一篇HCN喜币的文章。他写到好的我都不好意思看了你知道吗？是吧？哪有写得这么好的文章啊，是吧？我以为是咱战友在里边儿呢，但是CDN不会听任何人的话。“这是一个稳定的，保证喜币一个稳定价值的一个数字化，尝试革命性的”，哇塞！这个词儿，比特币从来没享受过这个殊荣。比特币是99.9都是在诈骗、欺骗、犯罪工具这些语言中长大的，我们现在被人家突然说好话，有点儿不好意思。所以说我分了好几段看完，看得我心里边儿，老扑扑腾腾的是吧？
 
-音频处理：Fei797
-发稿：Fei797
+Q大哥鼓掌，你看Q大哥鼓掌咋鼓了吗？有没有常委的范儿？这样，这样鼓掌（学领导鼓掌的样子），一般中央领导鼓掌，为啥这样鼓你知道吗？这叫身份，常委哪有这样鼓的）？都“路大脑袋”傻货，这样鼓是吧？人家Q大哥（学Q大哥鼓掌）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

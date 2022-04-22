@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 8:45 PM (UTC)`
+
+2022.04.22  新中国联邦 | 喜健康   唤醒.危机时刻的传播心理学
+![img](https://media.gettr.com/group12/origin/2022/04/22/20/ce9c91b9-105e-0b15-a035-25f207f36b62/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/22/2022 5:34 PM (UTC)`
 
 2022-4-22 俄乌战争战况播报
@@ -146,13 +153,6 @@ A French volunteer has been to China 12 times and he loves China very much. Nico
 
 2022.04.21 晚  新中国联邦 | 新闻访谈   俄罗斯经济只会越来越差；陈顺平的死亡和华山路的标语
 ![img](https://media.gettr.com/group37/origin/2022/04/22/01/579a583c-3318-70ba-68ef-83955168faec/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/22/2022 12:30 AM (UTC)`
-
-2022.04.21 晚  新中国联邦 | 新闻   中共政权岌岌可危 新中国联邦拯救中国人；习近平迷信莫德尔周期，中共自取灭亡
-![img](https://media.gettr.com/group43/origin/2022/04/22/00/b7505bc6-624c-672b-8d59-4a873dc00072/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
