@@ -2,11 +2,11 @@
 ---
 
 
-## 从穷人变富人（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2391803/)
+## 爆料革命战友是一道靓丽的风景线（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2391955/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：40-11：50-001-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：50-13：00-003-1.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

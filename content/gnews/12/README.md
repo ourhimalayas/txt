@@ -2,14 +2,12 @@
 ---
 
 
-## 志愿者们跟我们一起高喊“消灭中共”
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2391623/)
+## 习近平在2022年博鳌亚洲论坛会议开幕式上发表讲话
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391837/)
 
-* * *
+04/21/2022 习近平在2022年博鳌亚洲论坛会议开幕式上发表讲话
 
-*翻译/字幕：Rock小哥
-校对：茶奶奶(文茶)
-编辑/发布：霹雳鼠年*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

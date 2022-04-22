@@ -2,14 +2,18 @@
 ---
 
 
-## 去过中国12次的法国志愿者祝福所有新中国联邦人
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2391797/)
+## 爆料革命战友是一道靓丽的风景线（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2391953/)
 
-* * *
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：50-13：00-002-1.jpg)
+发布：tianzhihuan
 
-*翻译/字幕: Rock小哥
-校对：茶奶奶(文茶)
-编辑/发布：霹雳鼠年*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

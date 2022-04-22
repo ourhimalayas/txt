@@ -15,125 +15,125 @@
 
 ---
 
-### [嘉宾及七哥谈对4.19断播的认识及感想（二）](/content/gnews/1/README.md)
+### [有声｜上海变身“集中营” 人们失去姓名只认门牌号](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [爆料革命战友是一道靓丽的风景线（四）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [嘉宾及七哥谈对4.19断播的认识及感想（一）](/content/gnews/2/README.md)
+### [樱花时政┃英国驻基辅大使馆将于下周重新开放](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [爆料革命战友是一道靓丽的风景线（三）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [从穷人变富人（二）](/content/gnews/3/README.md)
+### [有声｜新版大饥荒：中共国老人深夜抓铁门哭喊救命](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [爆料革命战友是一道靓丽的风景线（二）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [从穷人变富人（一）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
+### [俄罗斯亿万富翁抨击普京的入侵行为](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [飞飞分享：由VOA断播和疫苗开始转变相信七哥（二）](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
+### [樱花时政┃北京用火龙果当替罪羊，展开封城措施！](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [去过中国12次的法国志愿者祝福所有新中国联邦人](/content/gnews/6/README.md)
- ` 波士顿五月花农场`
+### [杰森·米勒指出必须改革230法案](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国需要立法禁止任何联邦和地方政府向中共国输送资金](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
+### [《在线安全法案》会对美国的言论自由权利产生巨大的直接影响](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：韩国新增新冠（中共病毒）确诊人数连续两天低于10万人](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
+### [中日财经爆┃中共离岸人民币兑美元日内跌超600点](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [志愿者加入讨论“美国之音419断播事件”](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
+### [习近平在2022年博鳌亚洲论坛会议开幕式上发表讲话](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：乌克兰总理表示乌克兰重建费用为6000亿美元](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
+### [梅迪卡营地竖起六米高的液晶显示屏](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [加拿大军队强制疫苗政策加剧军人短缺](/content/gnews/11/README.md)
+### [中共即将面临树倒猢狲散的局面](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [志愿者们跟我们一起高喊“消灭中共”](/content/gnews/12/README.md)
- ` 波士顿五月花农场`
-
-### [丹麦总理和西班牙首相承诺向乌克兰运送更多武器](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [上海老人被白卫兵抱摔后死亡](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰救援前线报道4.22.2022：前线建立首个新中国联邦大使馆指日可待](/content/gnews/15/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共删除了钟南山发表的“放弃清零政策”的社论](/content/gnews/16/README.md)
+### [2022/04/22 英喜时事速递](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾危矣](/content/gnews/17/README.md)
+### [美国需要立法禁止任何联邦和地方政府向中共国输送资金](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：韩国新增新冠（中共病毒）确诊人数连续两天低于10万人](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：乌克兰总理表示乌克兰重建费用为6000亿美元](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大军队强制疫苗政策加剧军人短缺](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [乌克兰救援前线报道4.22.2022：前线建立首个新中国联邦大使馆指日可待](/content/gnews/20/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共删除了钟南山发表的“放弃清零政策”的社论](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [台湾危矣](/content/gnews/22/README.md)
  ` 祁明`
 
-### [2022年4月22日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
+### [2022年4月22日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [04/22每日播报｜社媒消息: 罗伯特马龙博士 郭文贵先生](/content/gnews/19/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [VOA断播的意义](/content/gnews/20/README.md)
+### [VOA断播的意义](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [两天2起，俄罗斯寡头遭灭门](/content/gnews/21/README.md)
+### [两天2起，俄罗斯寡头遭灭门](/content/gnews/25/README.md)
  ` 波士顿五月花农场金融部`
 
-### [全球疫情疫苗数据更新](/content/gnews/22/README.md)
+### [全球疫情疫苗数据更新](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜上海多个行政区突然封路](/content/gnews/23/README.md)
+### [有声｜上海多个行政区突然封路](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【转】被“和谐”的微博文章《上海是可以预示未来一百年的大河》](/content/gnews/24/README.md)
+### [【转】被“和谐”的微博文章《上海是可以预示未来一百年的大河》](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃震惊！中共白手套刑鞭卢旺达工人被判重刑](/content/gnews/25/README.md)
+### [樱花时政┃震惊！中共白手套刑鞭卢旺达工人被判重刑](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/26/README.md)
+### [加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [秘翻在线：“地产代理航母”易居企业控股因美债违约爆雷](/content/gnews/27/README.md)
+### [秘翻在线：“地产代理航母”易居企业控股因美债违约爆雷](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃日本跨党派议员联盟超100人集体参拜靖国神社](/content/gnews/28/README.md)
+### [樱花时政┃日本跨党派议员联盟超100人集体参拜靖国神社](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢](/content/gnews/29/README.md)
+### [乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [peter mccullough 博士称有报告显示，2020一整年的疫情袭击，死亡25万，强制疫苗后的一年扩大到75万](/content/gnews/30/README.md)
+### [peter mccullough 博士称有报告显示，2020一整年的疫情袭击，死亡25万，强制疫苗后的一年扩大到75万](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [航班熔断机制进一步打击香港枢纽地位](/content/gnews/31/README.md)
+### [航班熔断机制进一步打击香港枢纽地位](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命联合西方成就护台神队](/content/gnews/32/README.md)
+### [爆料革命联合西方成就护台神队](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [中日财经爆┃物价上涨，日本拟向低收户每孩子发5万日元](/content/gnews/33/README.md)
+### [中日财经爆┃物价上涨，日本拟向低收户每孩子发5万日元](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平迷信莫德尔周期，中共自取灭亡](/content/gnews/34/README.md)
+### [习近平迷信莫德尔周期，中共自取灭亡](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆┃几内亚:俄乌战争导致面粉价格上涨](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共政权岌岌可危 新中国联邦拯救中国人](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [2022年4月22日战时快讯（1）](/content/gnews/38/README.md)
+### [2022年4月22日战时快讯（1）](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/39/README.md)
+### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/40/README.md)
  ` 關注組`
-
-### [美SEC再将17家中企列入准除牌名单](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [在掩盖中共病毒起源方面起关键作用的科学家受谷歌资助](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`

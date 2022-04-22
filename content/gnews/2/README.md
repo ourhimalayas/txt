@@ -2,11 +2,11 @@
 ---
 
 
-## 嘉宾及七哥谈对4.19断播的认识及感想（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2391809/)
+## 爆料革命战友是一道靓丽的风景线（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2391981/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12：30-12：40-001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：50-13：00-004-1.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

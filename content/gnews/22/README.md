@@ -2,42 +2,28 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391391/)
+## 台湾危矣
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2391539/)
 
-#### **整理：枳实**
-**美工：精灵蓝**
+韩国正道农场
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-12.png)图片：雅典娜农场设计组 精灵蓝
+撰稿人：灭共匪
 
+校对上传：祁明
 
-雅典娜疫情更新（2022年 4月21日）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-2-30.jpg)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2704.jpg)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+台湾危矣，2022年4月15日文贵先生紧急直播，再次警告台湾当局及人民。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-64.png)图片：雅典娜农场设计组 精灵蓝
+先生得到了最新情报，从五个渠道证实了。
 
+中共自4月15日起开始“台湾之子行动”，随时攻击台湾的供电、供水、交通、网络等系统，制造大规模混乱，企图一举拿下台湾。以习近平代表的中共，几十年来对台湾一直虎视眈眈，用尽各种卑劣的手段在国际上打压台湾外交，对台湾内部进行蓝金黄渗透和瓦解，挑拨离间台湾民众，各种表演破坏层岀不穷……由此中共在台湾培养了一大批卖台贼，随时为中共卖命，获取利益。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-22.png)图片：雅典娜农场设计组 精灵蓝
+先生多次警告蔡英文台湾当局，不要轻视中共对台湾无死角的渗透，不要忽视拿下台湾后共匪的残暴毁坏，就像毁掉圣城香港一样，甚至更糟，杀人抢劫，反抗的台湾人都会被杀掉！先生还爆料，不久前美国前国务卿蓬佩奥访问访台，台湾停电，就是中共干的。包括台湾、日本刚发出对中共不利的言行，这两个国家和地区，就莫名其妙的地震，震幅都是6级多。先生说这可能也是中共干的，他们在岛屿附近搞核爆炸，妄图震垮台湾和日本。
 
-
-数据来源：
-|[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+习近平收复台湾被他视为政治理想和抱负，他要做到毛祖宗没做到的雄伟大业。其次，他为了转嫁国内经济垮塌的危机，他别无选择，只有发动战争。一箭多雕，既显得习神是真神，不是浪得虚名，又在党内站稳脚跟，确保习天下传承，实现打败美帝做世界老大的梦想！
 
  
 
