@@ -15,101 +15,101 @@
 
 ---
 
-### [一个合理的财富分配制度和安全的财富拥有方式](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [4月21日文贵临时直播要点（图片1-4）](/content/gnews/2/README.md)
- ` 波士顿五月花农场`
-
-### [七哥爆料习近平与王沪宁一顿饭上谈的内容](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [唯有铲除中共，世界才能恢复光明](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|疫情乱像](/content/gnews/5/README.md)
- ` 爆料视频`
-
-### [可悲的中国境内人的生死, 竟由一身印着共产党突击队员的白衣服决定](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/8/README.md)
- ` 扬帆枫叶快讯`
-
-### [中共利用“疫情清零”政策来消灭过剩人口](/content/gnews/9/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大央行利用量子计算确认数字货币应用](/content/gnews/10/README.md)
- ` 扬帆枫叶快讯`
-
-### [多伦多发生乘客被推下地铁事件](/content/gnews/11/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/12/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大各省疫情都已再度复苏](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
-
-### [通货膨胀使部分加拿大人陷入债务危机](/content/gnews/14/README.md)
- ` 扬帆枫叶快讯`
-
-### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/15/README.md)
+### [岸田文雄向靖国神社供奉“真榊”祭品](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信](/content/gnews/16/README.md)
- ` NFSC News`
+### [4/21/2022 文贵直播：乌克兰救援行动尚不会撤，救援营地可能会升级成新中国联邦驻梅迪卡大使馆或驻基辅大使馆！加拿大首次正面报道新中国联邦，新中国联邦的搜索量从几千万迅速达到十几亿](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/17/README.md)
+### [【粤语配音】2022年4月21日：4月26日南希·佩洛西访问台湾，将是中美关系的分水岭](/content/gnews/3/README.md)
+ ` MOS香港部`
+
+### [口罩与保护公众免受COVID的影响总是关系不大](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/18/README.md)
+### [一个合理的财富分配制度和安全的财富拥有方式](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/19/README.md)
- ` YALUN 亚伦`
+### [4月21日文贵临时直播要点（图片1-4）](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
 
-### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
+### [七哥爆料习近平与王沪宁一顿饭上谈的内容](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/21/README.md)
+### [唯有铲除中共，世界才能恢复光明](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频|疫情乱像](/content/gnews/9/README.md)
+ ` 爆料视频`
+
+### [可悲的中国境内人的生死, 竟由一身印着共产党突击队员的白衣服决定](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（04/21/2022）](/content/gnews/22/README.md)
- ` mayflowertranslate`
+### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/12/README.md)
+ ` 扬帆枫叶快讯`
 
-### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/23/README.md)
+### [中共利用“疫情清零”政策来消灭过剩人口](/content/gnews/13/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加拿大央行利用量子计算确认数字货币应用](/content/gnews/14/README.md)
+ ` 扬帆枫叶快讯`
+
+### [多伦多发生乘客被推下地铁事件](/content/gnews/15/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/16/README.md)
+ ` 扬帆枫叶快讯`
+
+### [樱花时政┃俄罗斯国防研究机构发生大型致命火灾](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信](/content/gnews/18/README.md)
+ ` NFSC News`
+
+### [乌克兰情报部门认为俄罗斯军火生产步履蹒跚](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/24/README.md)
- ` NFSC News`
-
-### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/26/README.md)
- ` NFSC News`
-
-### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/27/README.md)
+### [俄罗斯将驱逐36名欧洲外交官](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/28/README.md)
- ` 银河歌舞厅`
+### [美众院议长佩洛西敲定最新访台行程，普京的和解信号推动习孤注一掷](/content/gnews/21/README.md)
+ ` YALUN 亚伦`
 
-### [Nancy Pelosi将于4月26日访问台湾](/content/gnews/29/README.md)
- ` 银河歌舞厅`
-
-### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/30/README.md)
- ` G-时新闻`
-
-### [截至4.21 俄乌战事汇总](/content/gnews/31/README.md)
+### [秘翻在线: 三级管控至三级城市-义乌封城](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G时新闻】台湾正式批准老年人接种第四针新冠疫苗](/content/gnews/32/README.md)
+### [文贵爆料4.21：北京等地很快将极限封城，最坏推测及应对准备](/content/gnews/23/README.md)
+ ` 秘密翻译组-原创组`
+
+### [五月花简报（04/21/2022）](/content/gnews/24/README.md)
+ ` mayflowertranslate`
+
+### [土耳其在伊拉克北部发动新的地面和空中攻势](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕](/content/gnews/28/README.md)
+ ` NFSC News`
+
+### [关于制裁不遵守世卫组织大流行应对规则的国家的建议](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/30/README.md)
+ ` 银河歌舞厅`
+
+### [【G时新闻】抗议俄侵略 美英加G20会议集体离席](/content/gnews/31/README.md)
  ` G-时新闻`
+
+### [截至4.21 俄乌战事汇总](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [前线大帐蓬里安装了大屏幕电视，再次升级！](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
