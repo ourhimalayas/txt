@@ -2,28 +2,22 @@
 ---
 
 
-## 樱花时政┃拜登宣布向乌追加援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390916/)
+## 中共政权岌岌可危 新中国联邦拯救中国人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390951/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国总统拜登4月21日在华府与乌克兰总理什米加尔会晤后，宣布向乌追加8亿美元军事援助，与5亿美元直接经济援助。同时，宣布禁止俄船只停靠美国港口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+在419五周年大直播中，在谈到五年爆料革命的发展对中共体制的影响时，郭文贵先生表示，自俄乌战争开始起，中共党内很多人士已经意识到，中共政权岌岌可危。中共党内人士清楚地知道，习近平坚定地与普京合作，就是自取灭亡。上海封城事件，让更多体制内人士认识到中共的邪恶本质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364044.jpg)
+郭先生称，西方世界已掌握所有在中共机关任职人员的相关信息。中共党内人士清楚地知道，一旦攻打台湾，中共将面临更加严厉的国际制裁，与中共有关的海外资产将被查封。 所谓“君子不立于危墙之下”，实际上是中共之墙危在旦夕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-130.png)（图片来源于本文链接）
+参考链接：[4/19/2022【419五周年】](https://gettr.com/post/p16446n7800)
 
-拜登表示，将再提供8亿美元军事援助给乌以对抗企图入侵乌东部顿巴斯地区的俄军其中包括重型火炮武器、数十枚榴弹炮14万4000发弹药与战术无人机。除了军事援助外，美国也将再提供5亿美元的人道与经济援助。拜登同时宣布，任何悬挂俄国旗或是由俄所拥有或经营的船舶都将不得停靠美国港口或进入美国海岸。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-188.jpg)
 
-信息来源： [拜登宣布向乌克兰追加援助](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220421-%E6%8B%9C%E7%99%BB%E5%AE%A3%E5%B8%83%E5%90%91%E4%B9%8C%E5%85%8B%E5%85%B0%E8%BF%BD%E5%8A%A0%E6%8F%B4%E5%8A%A9)
+总编：雪梨
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,19 @@
 ---
 
 
-## 乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391206/)
+## 加拿大媒体报导新中国联邦乌克兰救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391236/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+4月19日，《多伦多星报》报导新中国联邦、法治基金乌克兰前线的救援情况，称赞新中国联邦的帐篷是波兰边境最大、组织最完善的难民帐篷营，并对新中国联邦人Feather进行采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15960802826568.jpg)
+在采访中，Feather身穿印有Take down the Chinese Communist Party标语的醒目的黄马甲。被问及自愿前往波兰救援前线的动因时，Feather表示主要缘于好朋友的家人被困马里乌波尔（Mariupol）。
 
+在随后的一次救援行动中，Feather全程帮助一位乌克兰老妇人，从购买手机、与远在加拿大的亲人取得联系，到计划核酸检测行程，预定机票。最后，这位老妇人顺利与亲人在加拿大团聚。
 
-美东时间4月20日，全球喜马拉雅农场联盟委员会主席老班长发出盖文，乌克兰驻新西兰、新加坡和文莱大使馆首席贸易官奥莱娜·费莱纽克向新中国联邦和法治基金发来感谢信。感谢新中国联邦战友克服重重困难，调整航线，帮助Kyrylo Kucherov 先生一家三口顺利抵达新西兰，感谢新中国联邦对离开家园的乌克兰人民提供的帮助。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364041.jpg)
-下面是感谢信的详细内容：
+参考链接：[What I learned volunteering in refugee camps in Poland and Ukraine](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
 
-亲爱的新中国联邦和法治基金负责人：
-
-非常高兴与您分享，尽管飞行航线改变，行程艰难，Kyrylo Kucherov先生一家三口终于顺利抵达新西兰奥克兰（原定机票行程和修改后行程请参见附件）。
-
-感谢新中国联邦和法治基金对俄罗斯入侵后、离开家园的乌克兰人提供的支持和援助。
-
-谢谢！
-
-奥莱娜·费莱纽克
-
-乌克兰驻新西兰、新加坡和文莱大使馆-首席贸易官
-
-参考链接：[新中国联邦乌克兰国际人道救援行动](https://gettr.com/post/p167tk235f4)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-189.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-191.jpg)
 
 总编：雪梨
 
