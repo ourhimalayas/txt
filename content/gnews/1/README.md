@@ -2,10 +2,10 @@
 ---
 
 
-## 上海老人被白卫兵抱摔后死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391571/)
+## 丹麦总理和西班牙首相承诺向乌克兰运送更多武器
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391596/)
 
-04/20/2022 上海老人被白卫兵抱摔后死亡。
+04/21/2022 丹麦总理和西班牙首相梅特·弗雷德里克森和佩德罗·桑切斯在访问基辅期间承诺向乌克兰运送更多武器，他们在基辅会见了总统沃洛基米尔·泽伦斯基，以示支持。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

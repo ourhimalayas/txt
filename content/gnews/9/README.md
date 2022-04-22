@@ -2,22 +2,12 @@
 ---
 
 
-## 视频|加拿大媒体报导新中国联邦乌克兰的救援
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2391494/)
+## 【乌克兰救援】 犹太义工感谢新中国联邦的帮助并祝早日成功灭共
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391521/)
 
-制作：香草山视频部
+【乌克兰救援】 04/21/2022  美国犹太机构JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务，他祝愿新中国联邦早日成功灭共。
 
-4月19日，《多伦多星报》报导新中国联邦、法治基金乌克兰前线的救援情况，称赞新中国联邦的帐篷是波兰边境最大、组织最完善的难民帐篷营，并对新中国联邦人Feather进行采访。
-
-在采访中，Feather身穿印有Take down the Chinese Communist Party标语的醒目的黄马甲。被问及自愿前往波兰救援前线的动因时，Feather表示主要缘于好朋友的家人被困马里乌波尔（Mariupol）。
-
-在随后的一次救援行动中，Feather全程帮助一位乌克兰老妇人，从购买手机、与远在加拿大的亲人取得联系，到计划核酸检测行程，预定机票。最后，这位老妇人顺利与亲人在加拿大团聚。
-
-发稿：Daxia
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

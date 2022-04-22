@@ -2,53 +2,34 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.22I) 混打三针疫苗后对身体影响太大
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391373/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391391/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### **整理：枳实**
+**美工：精灵蓝**
 
-#### 整理/编辑：禄森
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-64.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-博主: 圈圈不想睡
-
-第三针让我彻夜难眠
-
-本来是没时间去，后来是因为打了HPV，第三针时间拖了又拖。昨天刚好走到这个接种点。因为疫情我没办法短时间去打HPV，我就想着先把第三针打了。
-
-第三针我们这边是说生物的都缺货，只有智飞。因为工作人员说可以混打，没有关系。我就把我的手伸过去了。
-
-好家伙！！！这玩意是真的疼，我感觉我手臂被打了一针酒精，刺痛刺痛。打完了之后缓过神倒是没啥感觉。
-
-我照常吃饭喝水，到了睡觉的时候！睡着了之后，我只要翻边压到左手，就会被痛醒。让我整晚都在翻滚。
-
-作者发布于2022-3-26
-
-**评论选集**
-
-michelle\_sama评论:
-
-23日打的，今天手臂还是红肿，隔了几天又酸疼的睡不了了
-
-剁椒鱼头不放剁椒评论:
-
-我三针都是安徽智飞的，不过我是去年打的，我打的时候第三针也好痛，胳膊好几天抬不起来
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-63.png)图片来源：小红书
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-12.png)图片：雅典娜农场设计组 精灵蓝
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-21.png)图片来源：小红书
+雅典娜疫情更新（2022年 4月21日）
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-64.png)图片：雅典娜农场设计组 精灵蓝
 
 
-参考链接：[高烧，全身酸痛，昏睡](https://www.xiaohongshu.com/discovery/item/62404b6000000000010253e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650611085)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-22.png)图片：雅典娜农场设计组 精灵蓝
+
+
+数据来源：
+|[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
 发布：*wenly*
 
