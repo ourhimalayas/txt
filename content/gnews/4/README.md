@@ -2,34 +2,24 @@
 ---
 
 
-## 东航空难 30天 中方发布调查报告
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2390577/)
+## 美SEC再将17家中企列入准除牌名单
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390602/)
 
-**撰稿：日本东京方舟农场  子辰**
+#### 翻译/撰稿：zzballack
 
-4月20日，中国民航局（CAAC）在国际规定需在事故发生一个月内出具初步事故调查报告的截止日前，终于公布了关于东航MU5735航班空难的初步调查结果，但此报告令众人感到失望。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2-3.jpg)图片来源：路透社
+据《Bloomberg Tax》4月22日报道，美国证券交易委员会（SEC）4月21日再将17家中企添加到其《外国公司问责法案》(HFCAA) 的临时名单中。这是3月份以来的第5批，名单上的公司面临在美国被摘牌的风险。SEC称，基于《外国公司问责法案》，如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，不配合上市公司会计监督委员会（PCAOB）的审计检查要求，SEC有权将其从交易所摘牌。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-43.jpg)（图片来自大纪元）
+这批被SEC列入HFCAA临时名单的中企包括知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-中国民航局在此报告中表示，3月21日在广西梧州失事的东航MU5735航班空难，机上共乘载132人，未发现生还者。已寻获的两个黑匣子，“驾驶舱语音记录器”（CVR）与“飞行数据记录器”（FDR）因受损严重，相关单位仍在解析内容，尚未破译。
+上述17家公司可于5月12日前向SEC提交证据，证明不具备被除牌的条件。目前，前3批的11家公司已由临时名单转移至确定名单，第4批的12家公司可于5月3日前向SEC提交证据。
 
-报告说，该架波音737-800NG的飞机维修、设备、携带物品都没有问题；该日天气以及飞行机组、客舱机组和维修放行人员的资质均符合要求。
+新闻来源：
 
-对于这份初步结果，大陆网民纷纷发表意见，批评中国民航局“说了跟没说一样”，或是抨击官方“目前啥也没查出来”。
+[Luckin Coffee, Li Auto Among 17 Firms Added to SEC’s HFCAA List](https://news.bloombergtax.com/financial-accounting/luckin-coffee-li-auto-among-17-firms-added-to-secs-hfcaa-list)
 
-目前除了中方组成的调查小组外，美国国家运输安全委员会（NTSB）也在中方的同意及邀请下协助调查。美国运安会表示，华盛顿的实验室正在协助中方下载该架失事客机两个黑匣子的数据，美方派出的7人工作小组，也于4月初抵达中共国参与失事调查。
-
-此外，美国航校的教练和学员们在讨论东航空难后认为，该事件无论从机械或人为因素推测失事原因，都存在许多不合理之处。但中国民航局的报告完全是避重就轻，表面上的确是按部就班排除了各种失事的可能，但却没有针对关键问题进行调查，即使调查了，中共方面也是虚有其表毫无实质意义。
-
-有分析人士认为 ，在中共扭曲的社会环境中，中国人活得非常非常累，在那样的环境下，无论你是高薪行业还是其他，所背负的压力都是难以想象的。
-
-在中共丑恶扭曲的所谓党文化体制下，从这份报告看出，不过是再次显示中共官方一贯敷衍和愚弄民众的态度。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/21/n13717262.htm](https://www.epochtimes.com/gb/22/4/21/n13717262.htm)
-
-总编：青城道姑
-校对发布：Linda
+[Li Auto, Luckin Coffee Added as US Delisting Candidates](https://www.asiafinancial.com/li-auto-luckin-coffee-added-as-us-delisting-candidates)
 
  
 

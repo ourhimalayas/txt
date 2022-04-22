@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 8:53 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group25/origin/2022/04/22/08/61f989c0-a9d7-a900-2360-49538a7c3d08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/22/2022 5:00 AM (UTC)`
 
 A French volunteer has been to China 12 times and he loves China very much. Nicole told him that the Chinese Communist Party (CCP) created many disasters for people both inside China and worldwide, including this pandemic, which is caused by the CCP virus, (should) not (be called) the Chinese virus. He blesses all the people from the New Federal State of China (NFSC) and supports us to take down the CCP.<br/><br/>一位来自法国的志愿者说他去过中国12次，而且他非常喜爱中国。妮可告诉他中国共产党不仅给中共国内的人民制造灾难，而且给全世界的人制造灾难，包括这次疫情，是由中共病毒引起的，而不（应该）是（被称为）中国人病毒。他祝福所有新中国联邦人，并且支持我们推翻中共。
@@ -146,13 +153,6 @@ Volunteers at the Medyka rescue center joined us talking about the meaning of th
 
 2022-4-21《避风港》(38) 疫苗改变DNA，导致流产率增加16633%
 ![img](https://media.gettr.com/group4/origin/2022/04/21/19/1493f420-edd6-f585-e3e2-ebc5b10d8e56/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 6:45 PM (UTC)`
-
-4/21/2022 Miles Guo: Please shout it out! A large number of CCP's armed police have been deployed to at least a dozen of locations in Beijing, which is a sign of a proposed commencement of shutdown in Beijing; shutdown policy in Shanghai might be lifted soon, but the CCP will for sure hold those who have “leaked” information to outside for reprisal or retaliation; the CCP's so-called “Clean Internet” and “Searching Internet” is related to 419 special broadcast, which has a huge impact inside of the CCP China<br/><br/>4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算；419大直播在墙内影响巨大，所谓的净网、搜网活动与之有关<br/>
-![img](https://media.gettr.com/group11/getter/2022/04/21/18/6827e201-f23b-e393-d66a-9163282ef4ee/out.jpg)
 
 ---
 

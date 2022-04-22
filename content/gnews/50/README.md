@@ -2,33 +2,30 @@
 ---
 
 
-## 俄罗斯绝密军事研究所爆发严重火灾
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2389335/)
+## 樱花时政┃日本2022年《外交蓝皮书》出台 对俄立场发生重大改变
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389665/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃日本2022年《外交蓝皮书》出台-对俄立场发生重大改变.png)[图片来源](https://www.google.com/search?q=Four+islands+north+of+Japan&amp;sxsrf=APq-WBuMpkOs3rUH9ewxzDIG2ySRo0m3rg:1650600803823&amp;tbm=isch&amp;source=iu&amp;ictx=1)
+有关日本外交政策的2022年版《外交蓝皮书》已经完出台。日本对俄罗斯的外交立场已经发生了重大变化。
 
-4月21日，俄罗斯一个绝密军事研究所爆发严重火灾，摧毁大楼。该研究所致力于开发俄罗斯最新的弹道导弹，以及苏-27（Su-27）战机和图-160（Tu-160）轰炸机等先进武器。
+在今天的内阁会议上报告的《外交蓝皮书》中，严厉谴责俄罗斯入侵乌克兰，称这是对国际秩序基础的挑战，绝对不可原谅，并将其定位为“历史上的一个重大转折点”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯绝密军事研究所爆发严重火灾.jpg)图为2022年2月19日，俄罗斯试射伊斯坎德尔弹道导弹。（图片来自Handout/Russian Defence Ministry/AFP）
+另外，它还改变了对俄罗斯的立场，阐明了日本在北方领土问题上的原则立场，即“这是日本固有的领土，目前被俄罗斯非法占领”。
 
-据《大纪元》报道，俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
+这是自2003年版以来第一次使用“非法占领”一词，也是自2011年版以来第一次使用“日本固有领土”，并指出与俄罗斯的北方领土谈判不在可以谈论前景的情况下”。
 
-俄罗斯通讯社援引未具名官员的话表示，一场大火将市中心笼罩在黑烟中，持续数小时，至少有5人丧生，30人受伤。
+信息源：
+[【速報】北方領土は「不法占拠」「日本固有の領土」 ロシアへの融和姿勢転換　2022年版「外交青書」](text=%E3%80%)
 
-当局说有27人受伤。塔斯社援引紧急服务部门人员的话说，至少有10人失踪。
-
-此外，有目击者看到有几个人从着火大楼的窗户跳下。在消防员派出直升机扑灭大火后，屋顶倒塌，建筑物继续闷烧到深夜。
-
-目前尚不清楚建筑物中存放的什么东西引发如此猛烈的大火。当局没有立即给出火灾原因，但塔斯社援引一名不愿透露姓名官员的话说，旧电线在二楼一间上锁的办公室着火了。
-
-据英国《每日电讯报》报导，该研究所成立于1930年代在苏联时代克里米亚，为苏联红军服务并开发导弹防御系统。近年来，该所的科学家一直在开发一些俄罗斯最先进的武器，包括伊斯坎德尔短程弹道导弹（Iskander short-range ballistic missiles）以及苏-27战机和图-160隐形战略轰炸机。
-
-参考链接：
-
-[https://www.epochtimes.com/b5/22/4/21/n13717142.htm](https://www.epochtimes.com/b5/22/4/21/n13717142.htm)
-
-总编：老孙
-校对发布：wenxia16
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
