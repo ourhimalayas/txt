@@ -2,22 +2,12 @@
 ---
 
 
-## 秘翻在线 :前总统川普的Truth 社交媒体将加入Rumble云基础平台
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2393079/)
+## 我们在一起珍惜这个缘分
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2393154/)
 
-**撰稿：William**
+**听写：叮叮    编辑：文宝**
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/33-7.jpg)图片来源：yournews.com
-根据Just the News的报导,社群平台Truth Social已经完成转移到视频巨头 Rumble的大规模云计算基础设施上，以加速用户来加入前总统唐纳德·川普（Donald Trump)所创建的社交平台。本周美国两个新兴言论自由平台之间的合作意味着 Truth Social 将结束其 Beta 测试和受控帐户创建，并迅速采取行动来消化等待数周加入该平台的大量用户。
-
-Rumble 已迅速成为言论自由在线视频的竞争对手，并与受到更严格监管的 YouTube 竞争，Rumble称赞Truth Social的迁入是一个重要的里程碑，因为 Truth Social是第一个加入Rumble云服务业务的重要客户。
-
-“我们很高兴与互联网上发展最快的社交媒体公司之一合作，”Rumble CEO克里斯·帕尔沃斯基(Chris Pavlovski)说 ：“提供一流的云基础设施至关重要，Truth Social 用户将立即开始看到我们努力的成果。”
-
-报导中表示Truth Social 在 2 月份推出后限制了新用户的加入，专注于延长测试期以测试平台并完成向 Rumble 云的迁移。尽管有控制地推出，但 Truth Social 平台上的早期影响者报告说，与 Twitter 和 Instagram 等平台相比，Truth Social目前的关注者更少，但参与度更高。
-
-**新闻来源**：[https://justthenews.com/nation/free-speech/truth-social-migrates-rumble-cloud-ready-onboard-millions](https://justthenews.com/nation/free-speech/truth-social-migrates-rumble-cloud-ready-onboard-millions)
+“九指妖”让战友写遗书是“为了战友好，是为了真理、保护战友钱”这个事情是多么的荒唐！就像共产党说的：“我弄死你是为了你好，把你送到北朝鲜那是你的荣耀，让在越南死人…….” 就是越南前线当年死人的家属们…….我昨天还跟你七嫂说这话，回来以后，所有人给家属开会说：“恭喜你们终于成为了你们骄傲的烈士，把烈士牌以后挂在你家门牌上。” 今天任何一个人，糊涂仙、Q大哥，想想，凡是挂着越战烈士牌的人你想想有多可悲！他从来没想过为什么被送到前线？为什么打越战？就像今天乌克兰战争一样，今天大家看到我们爆料革命战友当中有多少个是这样？你去想想我们的每时每刻面对着什么？就是真假善恶。真假善恶之间唯一的可以告诉你的东西就是缘分，有没有缘。所以说战友们不要担心任何事情，我们在一起珍惜这个缘分，坚持唯真不破，提高辨别真假善恶的能力，这就是我们最大的善良。谢谢！
 
  
 

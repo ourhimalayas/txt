@@ -2,40 +2,36 @@
 ---
 
 
-## 人民币下跌和中共国内大恐慌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2392719/)
+## 【G时新闻】美国正在耗尽弹药储备且几年内难以补足
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2392727/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/e5ixq2b8Aa89TptxxgfIV4_Sy-l9tnogkbCGbpGwhm4.jpg)
-当地时间4月22日，离岸人民币兑美元跌破6.5，这是自2021年8月23日以来新低。在岸人民币跌破6.47。同一天中共国家外汇管理局召开2022第一季度外汇收支数据发布会，公布了一些假数据以稳定市场。
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+《目标新闻》4月20日报道，因俄乌冲突，美国弹药储备量正在极具减少。
 
-自中共在上海以疫情为名开始人道灾难大封锁以来，“移民”成为微信搜索次数最频繁的词汇。而郭先生此前曾经提到最近在国外突然出现了很多基金公司，大量资金和人口都在转移。根据某数据统计，过去两个月中共国内债券市场创下最大数额资金外流，同时外资大量抛售中共国股票，因此人民币创下汇率新低。中共国内也开始了更加严格的外汇管制，如工商银行此前发布的关于停止外汇买卖的通知。
+五角大楼官员称，基辅每天都要用掉大量的反坦克弹药，同时缺少可用的飞机。目前在马里乌波尔和其他地区弹药变得稀缺。这给西方国家带来了一个严峻的选择，是向乌克兰提供更多的物资，还是用于本国的防御。
 
-中共习近平最近正壮志筹谋准备入侵台湾，中共国内股市都在套钱跑路，国内经济岌岌可危，一旦习近平对台湾动手，国内经济和香港经济都会直接垮塌，人民币可能会消失。
+重建武器库存需要数年时间，并且这些武器系统中有许多极难补充，需要多年的制造才能恢复供应。例如，数以千计的标枪导弹已被送往乌克兰，但目前美国每年只能制造大约1000枚。
 
-reference：
+令人震惊的是，供应链的崩溃似乎正在迅速蔓延，这使得武器制造商很难甚至不可能获得材料和部件。更糟糕的是，单一来源的供应商中有许多是中共国或台湾。
 
-[https://finance.sina.com.cn/money/forex/forexroll/2022-04-22/doc-imcwiwst3359492.shtml](https://finance.sina.com.cn/money/forex/forexroll/2022-04-22/doc-imcwiwst3359492.shtml)
+美国的工业能力在过去20年里急剧下降，再加上很少有美国人愿意从事类似工作，这使得美国无力重复二战时的生产速度。
 
-[https://finance.sina.com.cn/zt\_d/subject-1650590338/](https://finance.sina.com.cn/zt_d/subject-1650590338/)
+盖特链接：[https://gettr.com/post/p16h7pu3edc](https://gettr.com/post/p16h7pu3edc)
 
-[https://baijiahao.baidu.com/s?id=1730796063743027482&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1730796063743027482&amp;wfr=spider&amp;for=pc)
-
-[https://baijiahao.baidu.com/s?id=1730800531148561066&wfr=spider&for=pchttps://ec.ltn.com.tw/article/breakingnews/3900771](https://baijiahao.baidu.com/s?id=1730800531148561066&amp;wfr=spider&amp;for=pchttps://ec.ltn.com.tw/article/breakingnews/3900771)
-
-撰稿、发布：骄子
-
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-欢迎订阅我们的GNews账号：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

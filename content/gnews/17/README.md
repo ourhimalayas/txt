@@ -2,30 +2,43 @@
 ---
 
 
-## 新中国联邦的品牌无价
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2392788/)
+## 消息人士称拜登将宣布对乌克兰的另一项大型军事援助计划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2392860/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-01.jpg)
-梅迪卡救援前线时间4月20日，新中国联邦帐篷内布置了一个超大液晶电视，全天播放关于新中国联邦和法治基金的介绍，对于来往的乌克兰人和各个国家以及国际组织的媒体工作者来说，这是最方便快捷的渠道去认识新中国联邦。另外在乌克兰难民出境的必经之路上，我们也布置了一个户外超大LED擎天柱显示屏，建成以后，这个LED上面也会将循环播放新中国联邦以及当地救援机构的一些广告画面，方便难民寻求帮助。
+***评论：**近段时间以来，美国、英国、捷克和荷兰等盟国均已增加交付给乌克兰的重型武器数量。而德国也因为拒绝向乌克兰输送重型武器而受到抨击，作为回应，德国表示愿提供东欧各国先进的装甲车，换取这些国家援助乌克兰坦克，抵抗俄军的侵略。在乌克兰人民的顽强抵抗的感染下，我们也看到美国和欧洲抵抗俄罗斯侵略的决心，而俄罗斯要么投降示好，要么注定被打到溃不成军，期待普京被审判和俄罗斯被肢解，期待独裁统治下的俄罗斯人民回到民主的怀抱。*
 
-自新中国联邦在梅迪卡展开救援以来，我们的周边愈来愈丰富，比如灭共马甲深受欢迎，气球，咖啡，也都非常抢手。每天几场接连不断的直播，介绍当地的情况并连线战友。除了我们自己的出品，当地政府发放的工作牌上直接使用新中国联邦，路牌指示上面也标注了新中国联邦的国旗。
+据《路透社》作者：Patricia Zengerle, Steve Holland, Idrees Ali and Jonathan Landay，2022年4月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2789-e1650643247148.png)2022年3月21日，在美国华盛顿举行的商业圆桌会议CEO季度会议上，美国总统乔·拜登讨论了美国对俄罗斯入侵乌克兰的反应，并警告CEO们注意来自俄罗斯的潜在网络攻击。图片来源：REUTERS/Leah Millis/资料图片
+华盛顿，4月19日（路透社）–熟悉此事的多个消息来源周二表示，美国总统拜登预计将在未来几天内宣布另一项针对乌克兰的军事援助计划，其规模与上周宣布的8亿美元的计划大致相同。
 
-更重要的是我们的战友在前线无私辛勤地付出，与国际友人交流灭共的理念。世界上有诸多大品牌，其展示和路演方式琳琅满目，但像新中国联邦这样无私无我本着最朴素的救人信念去到战争前线，恐怕古往今来，只此一家。新中国联邦无意间成为这个时代最无价的品牌。
+一位不愿透露姓名的美国官员说，预计新方案的规模将与之前的方案大致相同，但细节仍在制定中。
 
-撰稿、发布：骄子
+上述最新方案首先由美国全国广播公司新闻网（NBC News）报道。
 
-* * *
+拜登政府上周宣布了8亿美元的额外援助，包括火炮系统、炮弹、装甲运兵车和无人驾驶的海岸防御船，扩大了送往基辅的物资范围，包括新型重型装备。
 
-欢迎订阅我们的GNews账号：
+如果本周的援助计划与预期的一样大，这将使美国自2月份俄罗斯入侵乌克兰以来对乌克兰的军事援助总额超过30亿美元。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+文章观点仅代表作者个人，与Gnews平台无关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+文章来源: [https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA](https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 钢蛋儿
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

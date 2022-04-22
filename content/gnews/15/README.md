@@ -2,8 +2,8 @@
 ---
 
 
-## 20220422郭文贵大直播 ：中共资助的俄乌战争带来了新中国联邦的春天
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392884/)
+## 20220422郭文贵大直播 ：雅各谈基督教圣经启示录总结了邪恶特质
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392912/)
 
 作者：东京樱花团小视频组
 
