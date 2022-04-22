@@ -2,29 +2,28 @@
 ---
 
 
-## 中日财经爆┃日本邮政停发中共国境内包裹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391295/)
+## 台湾危矣
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2391539/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月21日，日本邮政公司在官网发布消息称，受中共病毒（新冠病毒Covid-19）疫情影响，决定从4月22日起，暂停发往中共国（港澳台地区除外）的EMS服务、航空及海运包裹服务。寄往中共国的书信类仍将继续正常受理。EMS等服务的恢复时间暂未公布。
+韩国正道农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃日本邮政停发中共国境内包裹.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2Ftransform%2F123%2Fw550h373%2F20210930%2Fcb52-ceba224c4e61126221cb92752532f35d.jpg&amp;imgrefurl=http%3A%2F%2Ftags.finance.sina.com.cn%2F%25E6%2597%25A5%25E6%259C%25AC%25E9%2582%25AE%25E6%2594%25BF&amp;tbnid=nD2qXv8KqS9hRM&amp;vet=12ahUKEwiXs4vEqqf3AhUVNxoKHVBnCTQQMygVegUIARDTAQ..i&amp;docid=43Yi48qg-4XxsM&amp;w=550&amp;h=373&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E9%82%AE%E6%94%BF&amp;ved=2ahUKEwiXs4vEqqf3AhUVNxoKHVBnCTQQMygVegUIARDTAQ)
+撰稿人：灭共匪
 
-通知指出，一览中的国家/地区依然暂停接受发自国外的国际邮件，并且还未确保十分运力，将继续暂停受理。同时，已经受理的国际邮件中，无法发至国外的，担任派送的邮局正在顺次进行退回工作。上述措施前受理的寄往中国的邮件不退回至寄件人，我司将利用已确保的舱位进行运输。
+校对上传：祁明
 
-消息来源:
-[22日起生效！日本郵政停發中國大陸包裹 恢複時間尚未公布](https://news.fx168news.com/politics/jp/2204/5836839.shtml)
-[国际邮件的发送可否速览表（截至2022年4月22日）](https://www.post.japanpost.jp/int/information/overview_cn.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-2-30.jpg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2704.jpg)
+
+台湾危矣，2022年4月15日文贵先生紧急直播，再次警告台湾当局及人民。
+
+先生得到了最新情报，从五个渠道证实了。
+
+中共自4月15日起开始“台湾之子行动”，随时攻击台湾的供电、供水、交通、网络等系统，制造大规模混乱，企图一举拿下台湾。以习近平代表的中共，几十年来对台湾一直虎视眈眈，用尽各种卑劣的手段在国际上打压台湾外交，对台湾内部进行蓝金黄渗透和瓦解，挑拨离间台湾民众，各种表演破坏层岀不穷……由此中共在台湾培养了一大批卖台贼，随时为中共卖命，获取利益。
+
+先生多次警告蔡英文台湾当局，不要轻视中共对台湾无死角的渗透，不要忽视拿下台湾后共匪的残暴毁坏，就像毁掉圣城香港一样，甚至更糟，杀人抢劫，反抗的台湾人都会被杀掉！先生还爆料，不久前美国前国务卿蓬佩奥访问访台，台湾停电，就是中共干的。包括台湾、日本刚发出对中共不利的言行，这两个国家和地区，就莫名其妙的地震，震幅都是6级多。先生说这可能也是中共干的，他们在岛屿附近搞核爆炸，妄图震垮台湾和日本。
+
+习近平收复台湾被他视为政治理想和抱负，他要做到毛祖宗没做到的雄伟大业。其次，他为了转嫁国内经济垮塌的危机，他别无选择，只有发动战争。一箭多雕，既显得习神是真神，不是浪得虚名，又在党内站稳脚跟，确保习天下传承，实现打败美帝做世界老大的梦想！
 
  
 

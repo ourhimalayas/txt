@@ -2,20 +2,27 @@
 ---
 
 
-## 秘翻在线：韩国新增新冠（中共病毒）确诊人数连续两天低于10万人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2391684/)
+## 梅迪卡营地竖起六米高的液晶显示屏
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391816/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-45.jpg)图片来源：本文链接
-据《韩国经济》4月22日的速报，韩国新型冠状病毒（中共病毒）感染症新增确诊病例8万1058例。危重症患者为833人，死亡者为206人。连续两天保持在10万名以下，保持着持续减少的趋势。
+**整理报道：**翼族
 
-韩国中央防疫对策本部表示，以当天0时为准，新增确诊患者8万1058人，累计达到1675万5005人。地区发病人数为8万1043人，境外输入人数为15人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/b242076f-a2bb-4a4f-8c02-07e832591a96.jpg)图片提供：文科
 
-死亡人数增加了206人，累计达到2万1873人。致命率为0.13%。危重症患者比前一天减少了13人，为833人。
 
-信息来源：[https://www.hankyung.com/society/article/2022042246067](https://www.hankyung.com/society/article/2022042246067)
+4月22日，雨，波兰梅迪卡的温度大约为8摄氏度，新中国联邦的营地上竖起了一座约六米高的“擎天柱”，这是一块又高大又显眼的液晶显示屏。
 
-责编：Eric Kim
+所有来到梅迪卡的乌克兰难民和救援人员，也包括来到梅迪卡营地里的每一个人，第一眼就可以看到这块非常醒目的液晶显示屏，显示屏上有英文和乌克兰文，滚动播放着新中国联邦的灭共理念和信息、救援班车的信息以及营地里其它救援组织的联系信息等。
+
+这座六米高的“擎天柱”，是新中国联邦前线战友们继大帐篷、现磨咖啡和灭共马甲之后的又一杰作，它将24小时不间断地向全世界的人们展示新中国联邦人热爱和平的形象——我们是消灭中国共产党的新中国联邦人！
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

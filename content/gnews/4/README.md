@@ -2,47 +2,44 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.22L）－扎了第三针疫苗后的扎后感
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2392349/)
+## 4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2392529/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-143.png)[图片来源](https://www.reuters.com/)
+**1.乌克兰冲突、芯片危机削弱雷诺第一季度销量**
 
-#### 整理/编辑:  gardeniahu
+[这家对俄罗斯市场影响最大的西方汽车制造商报告称，由于乌克兰战争和半导体短缺，第一季度收入下降，但部分被价格上涨和电动汽车(EV)销售增长所抵消。该集团还生产达契亚和拉达品牌汽车，周五表示其收入同比下降2.7%至97.48亿欧元（106亿美元）。不包括Avtovaz和Renault Russia的活动，下降1.1%至89亿欧元。上个月，雷诺表示将暂停其莫斯科工厂的运营，同时评估其在俄罗斯第一大汽车制造商Avtovaz(AVAZI\_p.MM)的多数股权的选择权。周五，这家法国汽车制造商表示，与Avtovaz就俄罗斯业务未来的谈判“正在进行并取得进展”。](https://www.reuters.com/business/autos-transportation/renaults-q1-sales-fall-ukraine-conflict-semiconductor-crisis-hit-market-2022-04-22/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-69.png)图片来源：雅典娜设计组(614)
+**2.SAP收入增长超过预期**
 
+[德国商业软件集团SAP(SAPG.DE)周五报告称，第一季度收入增长11%，超过其云业务增长的预期。本周早些时候，该公司表示计划完全退出俄罗斯，以应对莫斯科对乌克兰的入侵。SAP表示，其年度调整后利润将下降近3.5亿欧元，并将承担约8000万至1亿欧元的重组费用。尽管对其俄罗斯业务产生了影响，但SAP确认其2022年的云收入预测为115.5亿欧元至118.5亿欧元（按固定汇率计算）。](https://www.reuters.com/business/sap-revenue-growth-beats-estimates-flags-hit-russia-exit-2022-04-22/)
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+**3.Snap警告通货膨胀可能会影响收入增长，预测用户数量增加**
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+[Snap Inc(SNAP.N)周四预测其Snapchat应用的用户增长前景乐观，但表示供应链中断和通胀可能继续损害广告需求。公布结果后，Snap的股价立即下跌了10%，但随着投资者消化了喜忧参半的结果，随后收复了跌幅。Snap预测第二季度每日活跃用户在3.43亿至3.45亿之间，高于华尔街估计的3.4亿。然而，该公司警告称，通货膨胀、劳动力短缺和其他经济挑战可能会给收入带来压力。它预测第二季度的收入将比上年增长20%至25%。到目前为止，本季度的增长率为30%。](https://www.reuters.com/technology/snap-misses-revenue-estimates-warns-that-inflation-could-hit-growth-2022-04-21/)
 
-帖子原文：
+**4.Gap下调了季度销售预测**
 
-博主：里纱
+[Gap Inc(GPS.N)周四下调了季度销售额预期，将其归咎于Old Navy品牌的执行挑战和“宏观经济动态”，导致该零售商股价在延长交易中下跌12%。Gap还表示，其Old Navy品牌的负责人Nancy Green将于本周离开公司，公司首席执行官Sonia Syngal将领导团队，直到聘请继任者。由于供应链障碍延迟发货，包括Gap在内的几家服装连锁店一直在努力跟上不断增长的需求并管理库存。这家将于5月26日公布第一季度业绩的零售商表示，它必须采取“积极的方式”来平衡库存，从而导致营销促销活动增加，尤其是在Old Navy。](https://www.reuters.com/business/retail-consumer/gap-cuts-quarterly-sales-forecast-challenges-old-navy-brand-head-departs-2022-04-21/)
 
-扎了第三针的扎后感
+**5.封锁影响开云集团第一季度的销售**
 
-3月上旬收到了第三针的预约单子，马上预约了之前去的医院，比想象中的好预约。29号下午三点去的医院，到了才告知第三针是摩德纳，因为前两针是辉瑞，听说摩德纳副作用很厉害。心里害怕，不过已经在医院了。不能怂啊，也担心不打以后影响回国什么的，只能硬着头皮上，下午一直只有打针的针孔附近有微微异样感。还没有开始疼，晚上7点多开始胳膊有点疼的感觉，脖子也有点疼，睡觉的时候更疼。就贴了膏药，儿子正好还睡在我打针的一边、，超级担心他睡迷糊了撞过来。就这样睡了一晚早起居然感觉我还可以，没有发烧，没有浑身无力起不来。只是脖子和后背疼，因为平时经常会这样，所以还庆幸了一把。测了体温37.3度，但是感觉良好，起床准备了早饭还洗了被单被套枕套，忙活到10点半左右坐下来休息了一下。突然开始觉得颈椎连着脖子和后背都好痛，好像淋巴系统有问题的样子。我自己捏捏揉揉都毫无改善，后面就废了，躺在沙发上连午饭都不想动了，还好孩他爸担心副作用太强在家办公。准备了午饭，测量体温37.5度。我吃完饭就带孩子去睡了一觉，醒来还是疼。晚饭体温降至36.8度了，但是那种胳膊连着脖子连着后背的疼，一直持续到晚上睡觉前，睡着了就不知道了。第三天早起就只是轻微的胳膊疼，还带孩子去了公园。中午之前好像就突然不疼了，整体来说我除了被熊孩子扑上来要抱抱的几次被他撞到胳膊疼的当时差点去世以外，其他都还好。只是废了一天而已，不过这个疼跟发烧我还是愿意发烧，这个疼形容不明白，你哪哪都不舒服。连发根都疼，就是脖子附近的一片发根很疼，像头发扎久了突然松开的那种疼。听说第四针已经在路上了、真的是……没完没了了
+[尽管该集团指出美国和西欧对其高端时装和皮革制品的持续需求，但中国COVID-19封锁造成的中断给周四Gucci所有者Kering的第一季度销售预测蒙上了一层阴影。截至3月份的三个月集团销售额达到49.6亿欧元（54亿美元），增长21%，略高于花旗分析师Thomas Chauvet引用的46.9亿欧元的普遍预期。Kering SA(PRTP.PA)的明星品牌Gucci占法国奢侈品集团年销售额的一半以上，在美国、西欧和日本表现强劲，而COVID封锁扰乱了中国大陆的业务。这一数字低于Chauvet预计的23%的增长，并且与上一季度相比有所放缓。](https://www.reuters.com/business/retail-consumer/kering-q1-sales-lifted-by-us-europe-2022-04-21/)
 
-#第三针  #新冠疫苗  #摩德纳  #副作用  #日本
+**6.随着预订量回升，美国航空公司听起来很乐观**
 
-发布于04.02
+[美国航空集团(AAL.O)、联合航空(UAL.O)和阿拉斯加航空集团(ALK.N)周四表示，由于今年年初该病毒的Omicron变种受挫，旅行需求回升。他们本季度的收入将超过大流行前的水平，尽管他们的产能仍低于2019年的水平。因此，他们都希望在截至6月的季度实现盈利。上周，竞争对手达美航空(DAL.N)也预测季度利润将恢复，理由是“历史性的”高预订量。CFRA Research副总裁科林·斯卡罗拉(Colin Scarola)表示：“航空旅行被压抑的需求浪潮正在消除主要航空公司的长期悲观情绪。”](https://www.reuters.com/business/aerospace-defense/american-airlines-reports-smaller-loss-pickup-travel-offsets-omicron-blip-2022-04-21/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-68.png)图片来源：小红书
+**7.黑石集团第一季度收益飙升63%**
 
+[黑石公司(BX.N)周四表示，其第一季度可分配收益跃升63%，原因是其房地产和信贷业务的强劲表现抵消了其对冲基金部门的疲软表现。这家全球最大的另类资产管理公司的可分配收益（代表用于向股东支付股息的现金）从一年前的12亿美元增至19亿美元。这导致每股可分配收益为1.55美元，超过了Refinitiv编制的分析师平均估计的每股1.06美元。黑石表示，它改变了其房地产收入信托业务与费用相关的业绩收入的核算方式，按季度而不是按年度计入此类收益。这有助于提高其整体收益，超出分析师的预期。](https://www.reuters.com/business/finance/blackstones-first-quarter-earnings-surge-63-2022-04-21/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-25.png)图片来源：小红书
+**8.墨西哥银行机构Banorte与Citibanamex-Banorte首席执行官进行谈判**
 
+[Banorte首席执行官Marcos Ramirez Miguel周四表示，墨西哥银行机构Banorte(GFNORTEO.MX)正在与花旗集团(C.N)的墨西哥消费者银行业务Citibanamex就出售其资产进行谈判。Ramirez Miguel在公司第一季度业绩公布后的电话中表示，感兴趣的各方已开始与Citibanamex进行对话，但仍在收集有关其在墨西哥业务的信息。拉米雷斯米格尔补充说，这个过程可能持续至少五个月。](https://www.reuters.com/business/finance/mexico-banking-institution-banorte-talks-with-citibanamex-banorte-ceo-2022-04-21/)
 
-素材来源：[扎了第三针的扎后感](https://www.xiaohongshu.com/discovery/item/624852240000000001025355?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650611342)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+By 【秘密翻译组-金融组】
+作者：小海星
 
  
 
