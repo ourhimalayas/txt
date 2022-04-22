@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（04/22/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2394022/)
+## 4/22/2022 文贵盖特：新中国联邦第一任务是唤醒和拯救更多的同胞和同类，让更多的人加入我们排第二位
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2394094/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E6CE9C8-69F1-487F-893D-F7A167A0BDE8.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

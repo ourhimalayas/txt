@@ -2,34 +2,25 @@
 ---
 
 
-## 近四分之一加拿大人感染了COVID-19
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393974/)
+## 佩洛西访台飞机或许只能降去日本，大量资金外逃激化两阵营搏斗
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2394063/)
 
-##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2800.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
+
+4月22日，郭文贵先生于Gettr视频中透露，美众议院议长南希·佩洛西4月26日的访台飞机或许只得降落在日本，如果中共对台有动作台湾也会反击，并表示，大量资金外逃中共国激化两大阵营的殊死搏斗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif.com-gif-maker-9.jpg)图片来源REDDIT
 
 
-据CTV news 4月19日报道，在一项新的在线调查中，近四分之一的加拿大受访者表示他们已经感染了COVID-19，而约四分之三的人没有感染。随着该国努力应对第六波COVID-19大流行，与公众共享的数据越来越少。加拿大最大的市场研究和分析公司莱热（Leger）执行副总裁克里斯蒂安•布尔克(Christian Bourque)表示，值得注意的是，报告的感染率高于官方数据显示的水平。
+4月26日佩洛西的访问台湾将是个重大事件，但中共的强烈反应，或有封锁台湾或者攻打台湾的过激动作，可能导致佩罗西的访台飞机最终只会降落在日本。对于中共的直接威胁甚至军事攻击，台湾方面一定也会有军事反击。那时，福建省、上海、香港肯定是首当其冲，而且这些地方一定会处于断电、断水状态。大连、青岛因为有军事基地，也成为最危险的区域之一。
 
-这项在线调查于4月8日至10日进行，共有1538名加拿大人参加。由于网络调查不被认为是随机抽样，因此无法确定误差范围。在18岁至34岁的受访者中，30%的人表示自己感染了COVID-19，而在55岁及以上的受访者中，12%的人感染了这种疾病。“真正引人注目的是年龄方面的差异，”布尔克说，“这似乎与我们看到的模式相吻合，你去餐馆、酒吧和音乐会的社交活动越多，你就越容易感染这种疾病。”
+俄乌战争持续进行，中共对台战争一触即发，新冠病毒肆虐世界的同时疫苗灾难已经开始，世界经济处于崩塌边缘。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Z1-qCScSk8o.jpg)图片来源Google
 
-原文链接：[https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【重生之鹰】
-素材/采编 -【青青】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+各国股市、债市忽上忽下，根据公开在册的基金统计出3 月境外投资者净卖出了近180 亿美元的中共国债券，然而这也只是资金外流的冰山一角。比如，与中共沆瀣一气的PAG（太盟投资集团）在中共国投资达几百亿美元，最近也想撤资逃离但发现根本无法实现，投资款早就被王岐山等中共高层家族瓜分殆尽，这也是PAG不敢公开自己投资组合的原因。PAG的诈骗行为影响的不只是自己，这些投资款涉及美国、加拿大等国家的养老基金、教育基金，PAG未来的结局只能是破产。跟着共产党走进火葬场适用于任何人也包括PAG本身，即便PAG曾大力协助中共做恶勾兑，但最终一定会被法律严惩，PAG事件一定成为中美之间、世界所有金融机构和司法机构最大的丑闻之一（制造假文件、作假证、收买律师）。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+共产主义和亲共产主义者试图征服世界，世界自由民主主义正在与共产主义殊死搏斗，处于危机之中但也充满了前所未有的生机。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,34 @@
 ---
 
 
-## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（5/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393685/)
+## 近四分之一加拿大人感染了COVID-19
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393974/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
-上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（4/5）](https://gnews.org/zh-hans/2393628/)
+##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2800.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
 
-&lt;解说&gt;普京或许会改变马里乌波尔的计划 原因是……–保罗•亚当斯外交事务编辑委员
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-367.jpeg)图片来源：BBC新闻
-俄军是停止轰炸阿佐夫斯塔利钢铁厂、作战方式改为彻底封锁，还是按照普京总统的发言，希望看到今后的发展再相信。
 
-但是，若是如此，为什么要改变作战（计划）呢？
+据CTV news 4月19日报道，在一项新的在线调查中，近四分之一的加拿大受访者表示他们已经感染了COVID-19，而约四分之三的人没有感染。随着该国努力应对第六波COVID-19大流行，与公众共享的数据越来越少。加拿大最大的市场研究和分析公司莱热（Leger）执行副总裁克里斯蒂安•布尔克(Christian Bourque)表示，值得注意的是，报告的感染率高于官方数据显示的水平。
 
-普京总统希望尽快推进在乌东部顿巴斯地区的大攻势。
+这项在线调查于4月8日至10日进行，共有1538名加拿大人参加。由于网络调查不被认为是随机抽样，因此无法确定误差范围。在18岁至34岁的受访者中，30%的人表示自己感染了COVID-19，而在55岁及以上的受访者中，12%的人感染了这种疾病。“真正引人注目的是年龄方面的差异，”布尔克说，“这似乎与我们看到的模式相吻合，你去餐馆、酒吧和音乐会的社交活动越多，你就越容易感染这种疾病。”
 
-除马里乌波尔攻防战使俄罗斯损失宝贵的资源外，许多俄军部队钉在此处，无法腾身执行其他作战目标。
+原文链接：[https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
 
-被卡米乌斯河与马里乌波尔市中心隔开的钢铁厂，应该易于孤立，但如果真的要像普京所言“一只苍蝇也别想跑”那样封锁，还是需要留下相当多军队的。
-
-再加上泽连斯基总统发誓，如果马里乌波尔守军全军覆没，和平谈判就没有可能。这意味着，普京可能希望保留外交处置，至少有外交处置的外表。
-
-甚至可能与经济因素有关。
-
-阿佐夫斯塔利是欧洲最大的钢铁厂。即使在惨遭持续数周的破坏之后，俄罗斯政府或许仍在期待着什么有价值的东西存在。
-
-参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
-
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-素材：宫米叶
-审核：Bryan
-校对：zicoround
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

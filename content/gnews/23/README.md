@@ -2,36 +2,51 @@
 ---
 
 
-## 加拿大制裁普京家属及其政权幕僚
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393633/)
+## 世界银行：战争给乌克兰造成重大损失
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2393749/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506550841.png)图片来源：多伦多太阳报
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄总统普京关系密切的亲属和幕僚。
 
-报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
 
-加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。
 
-原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+据[福克斯商业](https://www.foxbusiness.com/economy/ukraine-physical-damage-russia-invasion-billions-world-bank-estimates)4月22日报道，世界银行行长大卫·马尔帕斯 (David Malpass) 周四表示，俄罗斯的入侵对乌克兰建筑和基础设施造成的物质损失目前已达到约600亿美元。
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-50.jpg)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+乌克兰总理Denys Shmyhal说，乌克兰的国内生产总值可能下降30%至50%，迄今为止，造成的直接和间接损失已达5600亿美元。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+乌克兰战争和通货膨胀给世界经济蒙上阴影，国际货币基金组织IMF已下调全球增长预期。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+联合国（U.N.）人权负责人在周五的一份声明中说，俄罗斯武装部队不分青红皂白地炮击和轰炸居民区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
