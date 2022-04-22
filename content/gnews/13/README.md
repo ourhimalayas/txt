@@ -2,22 +2,21 @@
 ---
 
 
-## 日本新泻县：中共病毒疫苗已致20人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390117/)
+## 乌克兰不会放弃东部领土以结束与俄罗斯的战争
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2390339/)
 
-撰稿：东京樱花团/立正道
+翻译：Cici
+发稿：中华联邦公民
+德国纽伦堡正义农场
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-22-153302.png)
+泽伦斯基周五在基辅总统办公室接受CNN杰克·塔珀（Jake Tapper）的独家采时说：乌克兰不愿意放弃该国东部的领土以结束与俄罗斯的战争，乌克兰军方准备在顿巴斯地区与莫斯科军队作战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2741.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fglobalnews.ca%2Fwp-content%2Fuploads%2F2021%2F08%2FGettyImages-1234409927.jpg%3Fquality%3D85%26strip%3Dall%26w%3D1200&amp;imgrefurl=https%3A%2F%2Fglobalnews.ca%2Fnews%2F8084268%2Fjapan-pandemic-new-phase%2F)
+乌克兰总统泽伦斯基说，他和拜登总统有同样的看法，看看在布查发生了什么。很明显，这甚至不是一场战争，而是一场种族灭绝。俄罗斯部队只是杀人。不是士兵，而是平民，他们只是在街上向人们开枪。那些人只是骑自行车、乘坐公共汽车或只是走在街上。街道上两旁都是尸体。
 
-据雅虎日本4月20日报道，截止3月20日，日本新泻县已向国家卫生部门报告218个中共病毒疫苗（新冠病毒疫苗）副作用案例，其中严重后遗症8例，死亡20人。死亡人数只能是以接种疫苗的因果关系不明公布。
+原文出处：[Exclusive: Zelensky says Ukraine won’t give up territory in the east to end war with Russia](https://edition.cnn.com/2022/04/17/politics/zelensky-russia-war-tapper-interview-cnntv/index.html)
 
-这份报告也报道了很多与疫苗有关还是其他原因导致的案例，并且呼吁“如果有疑似副反应的健康损害，请咨询相关部门”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
 
-信息来源：[新型コロナウイルスのワクチン接種後に２０人死亡　「因果関係は不明」　新潟県が公表](https://news.yahoo.co.jp/articles/6f46e234f79c954826026ead364b9d179416da87)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

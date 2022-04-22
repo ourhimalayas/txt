@@ -2,24 +2,23 @@
 ---
 
 
-## 在基辅地区发现900具平民尸体
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2390018/)
+## 台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390162/)
 
-翻译：Cici
-发稿：中华联邦公民
-德国纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/900-1.jpg)
-BBC 15.04:  乌克兰当局继续在首都基辅周围发现更多尸体，基辅地区警察局局长安德烈·内比托夫在一次简报会上说已经找到了900名死者的尸体，并将其移交给法医专家，超过350具尸体是从布查找到的 。拆除Borodyanka和Makarov的瓦砾仍在进行中，“瓦砾下仍将有死者的尸体，被杀害者是平民，与军事编队无关。
+**港台前线 zhong｜2022-4-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-10.png)
+4月21日台湾晚间郭文贵直播爆料，美国众议院议长裴洛西（Nancy Pelosi）原定4月10日访问台湾因确诊新冠后延期，4月26日她将访问台湾，且郭说到“我相信这次估计不会再有任何阳性的借口不去台湾了”。此外，郭表示中共在他直播爆裴洛西访台的料前几小时紧急开会，向美国表达严重关切（裴访台），美国回应将不会再理会中共所谓的严重关切，中共则称“4月26日将会是（中美关系）分水岭的日子”。
 
-BBC无法独立核实这些具体说法，但BBC记者在基辅郊外的道路上看到了身穿便服的尸体，并记录了在布查收集和识别死者的大规模行动。
+郭分析认为4月26日至5月6日期间台湾极其危险，只要中共攻台，香港经济完蛋、大陆经济也完蛋，北京一定戒严，上海将会面临更严峻的情形。此外，俄乌战争局势也有大变化，普京开始向西方释出和解信号，原因有四，其一为俄罗斯自豪的莫斯科号遭击沉，其二为俄国巨无霸轰炸机王牌飞行员遭炸死，三为俄罗斯久战未成功夺取程式，四为俄国内部有强烈反战声浪。除此之外，欧盟态度十分强硬，不惜核战也将跟俄国抗争下去。
 
-这是集权普京的俄军在乌克兰的暴行的证据，也是导致对俄罗斯军队的战争罪指控的证据。世界人们呼吁俄罗斯应停止对乌克兰人道灾难的战争，世界需要和平。
+郭表示，过去中共与俄罗斯认为美国无法再世界上同时应付两场战争，故俄罗斯攻打乌克兰、中共攻打台湾，但目前普京向西方或向美国示好，中共不仅会攻台，习近平已准备好消灭台湾（将台湾铲平）。
 
-原文出处：[Ukraine war latest news: Russia promises to hit Kyiv after losing iconic warship – BBC News](https://www.bbc.com/news/live/world-europe-61101906?ns_mchannel=social&amp;ns_source=twitter&amp;ns_campaign=bbc_live&amp;ns_linkname=62598d75b1e16c43aefe645a%26900%20civilian%20bodies%20found%20in%20Kyiv%20region%20-%20police%20chief%262022-04-15T17%3A40%3A30.096Z&amp;ns_fee=0&amp;pinned_post_locator=urn:asset:22c25c1e-ac50-43ae-a0ef-0f01bbf45ff6&amp;pinned_post_asset_id=62598d75b1e16c43aefe645a&amp;pinned_post_type=share)
+此外，中共不打台湾的可能性，郭认为已经没有了，原因在于裴洛西26日访台若习不攻打台湾，习在20大之前一定会被灭，习过去长时间的准备就是攻打台湾。而他更进一步认为，裴洛西访台后中共未动作，紧接着拜登总统很可能就访台，台湾就独立了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德国农场 Discord 二维码
+* * *
 
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,30 +2,37 @@
 ---
 
 
-## 武汉病毒研究所有权要求福奇建立的国家实验室销毁任何秘密资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2384734/)
+## 世界上最大的金条价值飙升
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387279/)
 
-撰稿:彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-447.jpg)图片来源：NBC News
-4月20日,《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发表调查文章，指安东尼·福奇（Anthony Fauci）资助建立的加尔维斯顿国家实验室（Galveston National Laboratory）与武汉病毒研究所签署了一份谅解备忘录，“授予武汉病毒研究所要求美国同行销毁和/或归还没有任何备份的秘密文件、材料和设备”的权力。
+共同社4月21日报道称，由于乌克兰危机加剧了不稳定并导致商品价格暴涨，世界上最大的金条的价值已经增加到超过22亿日元（1710万美元），是其2005年首次在日本中部一个主题公园展出时价值的五倍多。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G-4.jpg)mainichi.jp
+这根重达250公斤的金条在静冈县伊豆市的东井金矿（Toi Gold Mine ）主题公园展出。这根金条是由公园运营商的母公司在2005年冶炼的，吉尼斯世界纪录在同一年将其认证为世界上最大的金条。
 
-之前，《国家脉动》曾揭露过位于得克萨斯州的这家实验室与武汉病毒研究所的多年合作关系。来自武汉实验室和加尔维斯顿国家实验室的主任们也承认在2018年与“世界上最危险的病原体”一起工作，而加尔维斯顿国家实验室也自称是“根据（福奇的）国家过敏和传染病研究所（NIAID）授予的补助金建造的”。
+该金条于2005年7月公开展示，当时它的价值约为4亿日元。
 
-除了《国家脉动》获得的福奇的私人电子邮件外，政府监督组织“（U.S. Right to Know  – USRTK）”获得的新的内部文件证实了该事情的存在，并对两个实验室之间的协议进行了更多的分析。
+据金条制造商田中机工株式会社 （Tanaka Kikinzoku Kogyo K.K.）称，截至周三，1克黄金的含税价值为8,969日元。
 
-根据“美国知情权”组织获得了一份正式合同的副本，更加确证了武汉病毒研究所和加尔维斯顿国家实验室在2017年的伙伴关系。该合同名称为：“中国科学院武汉病毒研究所与德克萨斯大学加尔维斯顿分校医学部之间的合作谅解备忘录（ Memorandum Of Understanding Of Cooperation Between Wuhan Institute Of Virology, Chinese Academy Of Sciences, And The University Of Texas Medical Branch At Galveston）”。
+黄金通常被视为危机时期的避险财富储备，在疫情大流行和俄罗斯在乌克兰的战争造成的不稳定中，黄金的价值已经上升。
 
-该合同的第16节（保密）显示，武汉病毒研究所可以要求加尔维斯顿实验室“销毁和/或归还没有任何备份的秘密文件、材料和设备…… 所有的合作和交流、文件、数据、细节和材料都应被双方视为机密信息”。
+由于日元对美元最近的疲软，该金条的价值也有所上升，而美元是全球交易金属的国际指数。
 
-该谅解备忘录还允许两个实验室“严格为科学研究目的交换病毒资源”。
+东井金矿在1965年结束了采矿作业，在其生命周期内是日本产量最高的矿场之一。
 
-报道指出，该合同似乎是由加尔维斯顿实验室的高级副总裁兼总顾问卡洛尔·金（Carolee King）和主任詹姆斯·勒杜克（James LeDuc）签署的。
+旧址上的主题公园向游客介绍了该矿的历史，并为他们提供了探索其部分隧道和淘金的机会。
 
-*责编：彩虹*
+游客可以通过亚克力展示柜上的一个洞触摸金条。该公园在社交媒体的宣传中抓住了价值上升的机会，在宣传中声称触摸金条会增加游客的财运。
 
-**新闻来源**
+**快评：**按照这篇新闻所言，这根世界上最大的金条已经比2005年首次展出时增加了5倍多价值。
 
-[REVEALED: Fauci’s Texas Lab Signed a ‘Confidential’ Deal With Wuhan Colleagues Enabling ‘Destroying Secret Files, Materials.’](https://thenationalpulse.com/2022/04/20/fauci-funded-galveston-entered-into-secret-agreement-with-wuhan/)
+听郭先生爆料的人都知道，法币超发，黄金也没有体现其真正的价值，黄金价格一直被人为控制和打压。如果黄金价格翻一倍，世界经济就会完全崩塌。
+
+尽管如此，相比之下这根金条还是升值5倍多，可见法币超发加日元兑美元贬值都已经到了何其惊人的地步？世界经济崩塌的时刻就要到来。
+
+参考链接：
+[https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html](https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

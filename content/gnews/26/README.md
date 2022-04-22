@@ -2,30 +2,39 @@
 ---
 
 
-## 泽伦斯基：将透过军事手段解除马立波的封锁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2389846/)
+## 香港放松疫情管控 重新开放主题公园和夜间餐厅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390071/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-俄罗斯入侵乌克兰，俄罗斯总统普京昨日要求俄军封锁马立波的「亚速钢铁厂」，乌克兰总统泽伦斯基昨日表示，将会透过军事手段解除俄军对马立波的封锁。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpVNFSQv.jpg)图片来源：路透
+整理/编辑：围剿维尼熊
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3576.jpg)
+根据美国之音4月22日报道，香港周四（4月21日）放松了对疫情的限制，迪士尼乐园和博物馆重新开放，夜间餐厅恢复营业。
 
-西班牙总理桑切斯与丹麦总理佛瑞德里克森21日抵达乌克兰首都基辅热切的关注俄乌局势，泽伦斯基在与他们的联合简报会议上表示，乌克兰正准备透过军事手段解除俄军对马立波的封锁。泽伦斯基说，有一种是军事手段，这对我们来说很难，我们必须做好准备，并变得强大，所以需要合作伙伴们的帮助。第二种是可以快速使用的外交和人道主义。
+在香港，海洋公园和M+博物馆等景点周四重新开放。健身房、美容院、按摩院也被允许恢复营业。客户必须至少接种过一剂新冠疫苗，并在进入时扫描二维码以进行接触者追踪。
 
-俄罗斯昨日宣布攻下了乌克兰南部重要港口城市马立波，俄军声称仅剩「亚速钢铁厂」还在抵抗，普京下令针对钢铁厂采取围而不攻的战术，亚速营对此宣称尽管情况极其艰困，但亚速营还是有打出成果，在过去两天内摧毁俄军3辆战车、2辆步兵战车和1辆装甲运兵车。面对乌克兰军队的顽强反抗，俄罗斯尚在与乌克兰军队周旋。
+被禁止在下午6点后提供堂吃服务的餐馆，可以在晚上重新开放，尽管每张桌子最多只能接待4名客人。
 
-俄罗斯侵略乌克兰马上满两个月了，俄罗斯根本没有能力按计划迅速拿下乌克兰，只有集中力量来攻其一点，作为俄罗斯的将领久战而无功令普京颜面扫地，继续打一场有成果的战役来向普京交差。面对俄军的猛烈攻势，泽伦斯基正在组织下一轮的反击，在国际支援的帮助下，俄军暂时的猛攻左右不了最后惨败的结果。
+主题公园现在可以开放50%的容量，游客必须出示疫苗接种证明。迪士尼员工高举标语，提醒人们保持社交距离。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3901654](https://news.ltn.com.tw/news/world/breakingnews/3901654)
+随着香港第五波冠状病毒流行，主题公园在1月份被勒令关闭。在不到4个月的时间里，740万人口的香港有近120万人感染，近9000人死亡。
 
-撰稿/发布：一叶知秋
+放宽限制之前，官员们承认，人们对这些措施感到失望，必须在抗击疫情和恢复正常活动之间取得平衡。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+香港周四报告了603例本地感染病例，较3月份3万多人的峰值下降了99%以上。
+
+在香港的新冠肺炎病例清零之前放松措施，标志着香港与内地对任何疫情的清零战略的转变。此前，当局不愿放松措施，直到疫情被明显控制。
+
+参考链接：[香港放松疫情管控 迪斯尼重新开放 上海死亡病例增加](https://www.voachinese.com/a/hong-kong-disney-opens-as-covid-19-eases-shanghai-deaths-rise-20220422/6540416.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

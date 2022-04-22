@@ -2,23 +2,158 @@
 ---
 
 
-## 台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390162/)
+## 台湾大部分军方已被收买，台湾无人机来自中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390379/)
 
-**港台前线 zhong｜2022-4-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-10.png)
-4月21日台湾晚间郭文贵直播爆料，美国众议院议长裴洛西（Nancy Pelosi）原定4月10日访问台湾因确诊新冠后延期，4月26日她将访问台湾，且郭说到“我相信这次估计不会再有任何阳性的借口不去台湾了”。此外，郭表示中共在他直播爆裴洛西访台的料前几小时紧急开会，向美国表达严重关切（裴访台），美国回应将不会再理会中共所谓的严重关切，中共则称“4月26日将会是（中美关系）分水岭的日子”。
+第二个现在我们要谈一下这个
+El segundo que hablaremos ahora
 
-郭分析认为4月26日至5月6日期间台湾极其危险，只要中共攻台，香港经济完蛋、大陆经济也完蛋，北京一定戒严，上海将会面临更严峻的情形。此外，俄乌战争局势也有大变化，普京开始向西方释出和解信号，原因有四，其一为俄罗斯自豪的莫斯科号遭击沉，其二为俄国巨无霸轰炸机王牌飞行员遭炸死，三为俄罗斯久战未成功夺取程式，四为俄国内部有强烈反战声浪。除此之外，欧盟态度十分强硬，不惜核战也将跟俄国抗争下去。
+关于台湾的问题
+Acerca del problema de Taiwán
 
-郭表示，过去中共与俄罗斯认为美国无法再世界上同时应付两场战争，故俄罗斯攻打乌克兰、中共攻打台湾，但目前普京向西方或向美国示好，中共不仅会攻台，习近平已准备好消灭台湾（将台湾铲平）。
+台湾的情报部门
+El Departamento de Inteligencia de Taiwán
 
-此外，中共不打台湾的可能性，郭认为已经没有了，原因在于裴洛西26日访台若习不攻打台湾，习在20大之前一定会被灭，习过去长时间的准备就是攻打台湾。而他更进一步认为，裴洛西访台后中共未动作，紧接着拜登总统很可能就访台，台湾就独立了。
+台湾的军队绝大多数
+La mayoría del ejército de Taiwán
+
+都已经被收买了
+Fueron sobornados
+
+仗一开打
+Una vez que la guerra comience
+
+台湾这一定
+Taiwán de seguro
+
+第一个卖老百姓的
+El primero que venderá al pueblo taiwanés
+
+一定是台湾的军方和情资部门
+Absolutamente será la agencia militar y el Departamento de Inteligencia de Taiwán
+
+台湾最近买了很多这个无人机
+Recientemente, Taiwán compró muchos drones
+
+无人机你知道是哪儿造的吗
+Sabes ¿de dónde fueron fabricados estos drones?
+
+无人机都是大陆造的
+Fabricados por China
+
+记住七哥今天说的话
+Recuerda lo que dije hoy
+
+记住啊
+Recuerda
+
+4月14号郭文贵说的
+Lo que dijo Wengui Guo el 14 de abril
+
+台湾买的无人机都是大陆造的
+Los drones comprados por Taiwán son fabricados en China
+
+大陆把无人机卖哪儿了
+Y a dónde los vendió China
+
+卖给澳大利亚
+Se los vendió a Australia
+
+台湾的军人再从澳大利亚
+Luego los soldados de Taiwán desde Australia
+
+把无人机买回去, 买回到台湾
+Compraron los drones para Taiwán
+
+你打什么仗
+¿Con qué vas a pelear?
+
+现在大陆, 上海
+Ahora China, Shanghai
+
+光给台湾的美金, 现金
+Los dólares en efectivos dados a Taiwán
+
+包括黄金
+Incluyendo el oro
+
+现在是大批量地给
+Ahora les están dando en gran cantidad
+
+给到他们上海的家人
+A sus familiares que están en Shanghai
+
+有些是给到这个台湾
+Algunos se los han dado en Taiwán
+
+不但如此
+No sólo esto
+
+而且向他们许诺一旦开战
+También les prometió, una vez que la guerra inicie
+
+就会把他们家人安置好
+Cuidarán de sus familias
+
+战后呢, 拿回来台湾
+Luego de la guerra, vuelven a Taiwán
+
+土地都分好了
+Ya los terrenos están divididos
+
+什么人有, 什么人有
+Fulano tiene, mengano tiene
+
+台湾危也
+Taiwán está en peligro
+
+我今天说的话大家走着看
+Verán lo que dije hoy
+
+我向全世界政府
+Informo a los gobiernos de todo el mundo
+
+我向他们保证, 郭文贵承担责任的
+Les prometo que Wengui Guo asume la responsabilidad
+
+台湾的无人机是来自中国共产党的
+Los drones de Taiwán provienen del PCCh
+
+所以说美国人到时候得气死
+Por eso los estadounidenses se enojarán después
+
+发现帮台湾打仗
+Se darán cuenta que ayudar a Taiwán a luchar
+
+结果台湾的无人机是买自大陆的
+Pero resulta ser que los drones son comprados en China
+
+走着看啊走着看
+Verán
+
+所以台湾危也了吧
+Por eso Taiwán está en peligro
+
+日期：04/20/2022
+原视频标题：台湾大部分军方已被收买，台湾无人机来自中共
+La mayor parte del ejército de Taiwán ha sido sobornada y sus drones provienen del PCCh
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+原视频日期：04/18/2022
+原视频网址：[**https://gettr.com/post/p15rcx69960**](https://gettr.com/post/p15rcx69960)
+任务编号：KC495（4281）
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
