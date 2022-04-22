@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 10:41 PM (UTC)`
+
+【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
+![img](https://media.gettr.com/group9/getter/2022/04/22/22/77bc97aa-1d8c-d7a1-9035-9e61508fa82b/out.jpg)
+
+---
+
 `@miles 4/22/2022 10:17 PM (UTC)`
 
 4/22/2022 Miles Guo’s GETTR: The war in the Taiwan Strait can happen at any moment! The CCP is serious about invading or blockading Taiwan! Once Taiwan fights back, Shanghai and Hong Kong will be targeted, and Fujian province will be the first to suffer from the war. The military bases in Dalian and Qingdao will be the most dangerous places! The world is full of chaos. Fellow fighters, please keep working out, take care of your health, and stay away from the CCP virus.<br/><br/>4/22/2022 七哥盖特：台海战争一触即发！中共这次很认真地想要攻打或封锁台湾！上海、香港一定会成为台湾反击的目标，福建将成为第一个受害者，大连、青岛的军事基地也将十分危险！世界处在混沌中，请战友们多锻炼，注意健康，防病毒！<br/>
@@ -146,13 +153,6 @@ A French volunteer has been to China 12 times and he loves China very much. Nico
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group24/origin/2022/04/22/04/5d6ed0f6-a75c-16a8-6a7a-18553d810898/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 4:10 AM (UTC)`
-
-2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
-![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
