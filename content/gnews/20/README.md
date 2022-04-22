@@ -2,20 +2,24 @@
 ---
 
 
-## 航班熔断机制进一步打击香港枢纽地位
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391140/)
+## 加拿大媒体报导新中国联邦乌克兰救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391236/)
 
-作者：东京樱花团︱阿恩
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+4月19日，《多伦多星报》报导新中国联邦、法治基金乌克兰前线的救援情况，称赞新中国联邦的帐篷是波兰边境最大、组织最完善的难民帐篷营，并对新中国联邦人Feather进行采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15960802826568.jpg)
+在采访中，Feather身穿印有Take down the Chinese Communist Party标语的醒目的黄马甲。被问及自愿前往波兰救援前线的动因时，Feather表示主要缘于好朋友的家人被困马里乌波尔（Mariupol）。
 
-现时航班熔断机制显示，如果同一抵港民航客机，有3名乘客确诊，相关航空公司由同一地点抵港客机航线，将禁止来港一星期。旅游界议员表示，现行熔断机制太易触发，过去20日就有超过20班航班被熔断。消息指，港府考虑将门坎放宽至5名乘客，最快今日宣布，并在大约10日后实施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-341.jpeg)
-香港国际机场曾经是国际航空枢纽，机场飞机起降量在2016年创下记录达41.2万架，经过两年闭关锁港的强制防疫，2021年香港国际机场的飞机起降量仅剩14.8万架，今年三月份飞机起降量只有9870架，相比2016同期有3.3万架。香港国际机场繁华不再，港府施行的航班熔断机制根本就是在气若游丝的航空业上再插上一把刀，连累旅游界复苏无望，虽然迫于立法会议员的压力，港府仍不放弃航班熔断机制，仅考虑稍微放宽确诊乘客的人数，看不出来中共有恢复香港繁荣的迹象。爆料革命郭文贵先生在本周四的紧急直播中揭露，中共政权很可能会以攻台回应美国政要访台，否则独裁统治将无以为继。早前IATA直指香港已失去国际航空枢纽地位，一些国际航空公司也表示拒绝复飞香港，近日香港特首换届引来国际社交媒体的制裁，种种迹象印证中共已失去国际地位，骑虎难下的中共难保不会做出丧心病狂行动，香港也将成为中共疯狂的牺牲品。
+在随后的一次救援行动中，Feather全程帮助一位乌克兰老妇人，从购买手机、与远在加拿大的亲人取得联系，到计划核酸检测行程，预定机票。最后，这位老妇人顺利与亲人在加拿大团聚。
 
-资料来源：[政府研究放寬航班熔斷機制門檻　由最少3名抵港乘客確診改為5名](https://hk.on.cc/hk/bkn/cnt/news/20220422/bkn-20220422122227722-0422_00822_001.html)
+参考链接：[What I learned volunteering in refugee camps in Poland and Ukraine](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-191.jpg)
+
+总编：雪梨
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
