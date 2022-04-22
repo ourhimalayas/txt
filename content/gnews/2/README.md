@@ -2,51 +2,36 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.22C）&#8211;甲状腺癌与疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389198/)
+## 樱花时政┃美国禁止俄罗斯船只进入美国港口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389374/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国禁止俄罗斯船只进入美国港口.png)[图片来源](https://gcaptain.com/canada-moving-to-ban-russian-ships-from-its-ports-and-waters/) 
 
-整理/编辑：机器猫
+据路透社4月21日报道，美国总统拜登周四宣布，美国将加入加拿大和欧洲国家的行列，禁止隶属于俄罗斯的船只进入美国港口，这是就俄罗斯入侵乌克兰一事向其施压的最新举措。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-58.png)图片来源：雅典娜设计组(614)
+白宫将发布一份公告，提供更多细节。路透社周四首次报道了拜登的行动计划，而在3月初报道了白宫正在考虑这项禁令。
 
+“这意味着任何船只，任何悬挂俄罗斯国旗或由俄罗斯实体拥有或经营的船只将不被允许停靠在美国港口或进入我们的海岸。”拜登周四说。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+消息人士说，在2021年，俄罗斯船只约有1800次访问，在整体交通中只占很小的比例。这个问题促使拜登政府进行了广泛的审查，以确保对俄罗斯船只的禁令不会严重影响美国的供应链。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+加拿大在3月1日对俄罗斯拥有的船只关闭了港口，并禁止它们进入加拿大水域，许多欧洲国家也采取了同样的措施。
 
-帖子原文：
+美国此前禁止俄罗斯飞机进入美国领空，与加拿大和欧洲国家一起采取了这一行动，并禁止俄罗斯石油进口，这些石油占此前俄罗斯船只运往美国的大部分。
 
-原文作者：清新立立
+信息来源：** **
+[Biden Bans Russian Ships From US Ports](https://gcaptain.com/biden-bans-russian-ships-from-us-ports/)
 
-甲状腺癌与疫苗
-
-五月底查出甲状腺癌，不足一厘米，自己选择观察，还没去手术，紧接着一直被催打疫苗，虽然甲癌不算重疾，但也属于恶性肿瘤，我很抗拒打疫苗，很害怕，据说不想打可以去找医生开证明，就算有了证明，每次单位巡查都要告知我得癌了，不想闹得整个单位都知道，被人议论纷纷，现在实在顶不知压力了，今天打了第一针。
-
-不知道后续如何。
-
-精选评论：
-
-果汁软糖 回复：
-
-很多人打完疫苗查出来病了。不能说跟疫苗一定有关系，但是除了疫苗也找不到别的原因。
-
-#### 娜娜 回复：
-
-我甲状腺全切……我的复诊医生讲不可以打！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2711.png)图片来源：小红书
-素材来源：
-
-[甲状腺癌与疫苗](https://www.xiaohongshu.com/discovery/item/613468ca0000000021034a93?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650588427)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

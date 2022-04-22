@@ -2,20 +2,28 @@
 ---
 
 
-## 郭文贵直播音频2022.04.21
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2388787/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2389088/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/db77deaeeaadf94601c75dae84bb7948_500x0.jpg)
-### 视频链接：
-
-[https://gettr.com/post/p16cfisc410](https://gettr.com/post/p16cfisc410)
-
-### 音频链接：
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-146.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-21.png)
 
 
+校对：Stay文苑
 
-编辑发布：闪电训练
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p16ivl7de6b](https://gettr.com/post/p16ivl7de6b)
+访谈：[https://gettr.com/post/p16isj0fc7a](https://gettr.com/post/p16isj0fc7a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

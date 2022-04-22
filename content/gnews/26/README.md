@@ -2,34 +2,31 @@
 ---
 
 
-## 有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388401/)
+## G20会议上美欧等代表离场抗议俄罗斯
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2388988/)
 
-作者：Skagen
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-英文翻译，播报：Kevin
+4月20日，20国集团（G20）会议上出现了罕见的一幕：当俄罗斯代表开始准备讲话的时候，多个国家的财长走出了会议室，以此来抗议莫斯科入侵乌克兰。
 
-新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G20会议上美欧等代表离场抗议俄罗斯.jpg)（图片来自Government of Canada/AFP）
 
-今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
+据《大纪元》报道，美国财长耶伦、英国财相苏纳克（Rishi Sunak）、加拿大副总理兼财政部长方慧兰（Chrystia Freeland）、乌克兰财长马尔琴科（Sergii Marchenko）和欧洲央行行长拉加德（Christine Lagarde）在俄罗斯代表发言时集体退席，以谴责俄罗斯对乌克兰的战争。
 
-奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+加拿大副总理和财政部长方慧兰在推特上写道，面对俄罗斯持续的侵略和战争罪行，世界民主国家不会袖手旁观。
 
-非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
+她在推特上发布了一张离开会议的官员的照片，其中包括耶伦、美联储主席鲍威尔和欧洲央行行长拉加德。
 
-从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
+英国财政大臣苏纳克（Rishi Sunak）也发推文表示，各国代表团结一致，持续推动国际行动惩罚俄罗斯。
 
-The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
-Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
-Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
-It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
-As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
+另外，美国财政部还在20日当天，宣布了对俄罗斯的新一轮制裁行动。
 
-校对/发稿：serena
-![](https://assets.gnews.org/wp-content/uploads/2022/04/f48b7291-3cb5-4969-a2ad-9574ab25b4a7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-186.jpg)
+参考链接：
 
+[https://www.epochtimes.com/b5/22/4/21/n13716869.htm](https://www.epochtimes.com/b5/22/4/21/n13716869.htm)
 
+总编：老孙
+校对发布：wenxia16
 
  
 

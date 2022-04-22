@@ -2,26 +2,13 @@
 ---
 
 
-## 普京认为西方对俄罗斯发起的“经济闪电战”已经失败
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388178/)
+## 岸田文雄向靖国神社供奉“真榊”祭品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388802/)
 
-作者：台湾宝岛农场 – 港台前線
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-俄罗斯总统普京4月18日在与高级经济官员的视频通话中表示，西方正试图透过经济制裁，造成俄罗斯银行体系崩溃以及货物短缺，但最终俄罗斯顶住了这前所未有的压力，西方发动的“经济闪电战”已经失败。
-
-在西方制裁的影响下，俄罗斯国内商品价格上涨，截至4月8日，俄罗斯通胀率为17.5%。但普京坚称，目前卢布汇率已经稳定，外汇也已经回流俄罗斯银行，国内的通胀正在趋于稳定。在普京看来，制裁对发动者本身也是有代价的，西方对俄罗斯祭出制裁措施将导致西方经济走向恶化。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-50.jpg)
-早前，奥地利总理内哈默在与普京会面结束后，向媒体表示，普京似乎对自己在乌克兰的军事行动相当有信心，相信自己“正在胜出这场战争”。内哈默指出，对于俄军在乌克兰犯下的罪行指控，普京套用自己的战争逻辑，反指乌克兰在顿巴斯（Donbas）地区进行种族灭绝。内哈默认为，他确信普京“知道现在发生的事”，西方领袖需要“用在乌克兰看到的事实”直接对抗普京的逻辑。
-
-参考链接：[俄乌战争｜美国松口 称正研究将俄罗斯列为“恐怖主义支持国”](https://gnews.org/zh-hans/2371564/)
-
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
-
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

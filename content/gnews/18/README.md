@@ -2,65 +2,19 @@
 ---
 
 
-## 2022年4月21日七哥乱聊直播摘要及音讯—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2388960/)
+## 【粤语配音】2022年4月21日：新中国联邦将在乌克兰前线建立大使馆
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2389149/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421_副本.png)
-视频连接：[04.21.2022 七哥乱聊直播](https://gettr.com/streaming/p16cfisc410)
+紐約香草山-香港部
 
-1、北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；
+我觉得6，4是肯定前线不能撤了，如果六月中下旬普京缴枪了，是吧？达成和解了，咱不但不撤，可能就地我们要考虑可能在当地，要置办个什么固定的物业，要建一个新中国联邦第一个战地大使馆，第二个可能直接就到基辅去了，新中国联邦驻基辅大使馆，那是一定的，是吧？这是肯定的。
 
-2、上海即将解封，但要秋后算账清算，所谓的净网、搜网活动和419大直播有关，在墙内影响巨大；
+我相信全世界人民，除了共产党之外没人反对，我们在基辅建大使馆吧，对吧？，没人反对我们在波兰建大使馆吧？是吧，那我们建大使馆，那就是我们要派出大使，我们也可能到乌东，也建一个我们的领事馆，我们新中国联邦的命运跟基辅，跟乌克兰已经紧密地连在一起了，跟犹太人已经紧密地连在一起了，跟犹太组织紧密连在一起，这已经是不争的事实，不但如此兄弟姐妹们，你们还能看到更重要的现象，联合国这一次被吓得半死的，最后就是没敢让我们用联合国这个title，虽然没赶让用，但是我们在联合国铺下的关系，他们已经了解我们了。
 
-3、美国众议院议长南希·佩洛西将于4月26日访问台湾！！
+这就是人生的成功的前提，你不要以为一件事成功了，是对你最好的，可能这件事情没成功，奠定了下一次更大的成功，最起码联合国所有的组织都知道，新中国联邦要到乌克兰前线救援，最起码加拿大从来没有正面报道过，我们新中国联邦，第一次正面报道，新中国联邦的前线救援啊，而且在社交媒体上新中国联邦这个词，大家可以看一看，从过去的千万级，迅速达到十几亿级的搜索量，只要谈咱就赢了
+别人最近码花5亿美元到10亿美元，买个联合国的入场证，现在联合国可能都倒闭了球了，可能要完蛋了，人家乌克兰肯定第一个要灭你联合国，对吧？美国肯定第一个就要灭你联合国呀，可能是人家乌克兰要成立小北约，那一定带我们新中国联邦进去 对吧？
 
-4、这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭；
-
-5、4月26日-5月6日将是台湾大日子，共产党一定会有所行动！
-
-6、俄罗斯损失惨重，普京向欧美释放和解信号；
-
-7、习近平的3个绝境：
-
-1）.国内经济崩塌；
-
-2）.病毒隔离极限施压，政治斗争已经到极限了；
-
-3）.被世界政治孤立。
-
-习认为解决所有问题的核心是拿下台湾；
-
-8、4.26-5.6期间，是世界分水岭了。中方，习各方面，经济垮塌找出口，20大没东西交差，内部死定，而佩洛西一去，接着可能拜登要去，台湾就可能独立了，对习更不利，他没路了，打是必须打台湾，就看是打残还是直接抹平，都拿不到；
-
-9、如果6月中下旬普京达成和解或者缴枪了，前线我们可能就不撤退了，甚至直接波兰前线购置物业，在波兰成立第一个新中国联邦战地大使馆，甚至直接去基辅建立新中国联邦大使馆；
-
-10、Nicole和Rachel肯定是第一任驻基辅和波兰大使；
-
-11、新中国联邦的命运已经和乌克兰及犹太人紧密的连在一起
-
-**注：大直播音讯——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+6月份我们就决定会回来建长期大使馆，还是我们继续保持现在的，救援队的那个基地，但是我们从今天起，肯定是从更长远角度来考虑了。
 
  
 
