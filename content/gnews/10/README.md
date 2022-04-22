@@ -2,158 +2,95 @@
 ---
 
 
-## 台湾大部分军方已被收买，台湾无人机来自中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390379/)
+## Netflix订阅困境暗示消费者对价格的抵制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2390435/)
 
-第二个现在我们要谈一下这个
-El segundo que hablaremos ahora
+翻译: 里奇
 
-关于台湾的问题
-Acerca del problema de Taiwán
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-台湾的情报部门
-El Departamento de Inteligencia de Taiwán
 
-台湾的军队绝大多数
-La mayoría del ejército de Taiwán
 
-都已经被收买了
-Fueron sobornados
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-465.jpg)对于 Netflix，还有其他一些因素在起作用，例如来自其他流媒体服务的竞争。 照片：法新社
 
-仗一开打
-Una vez que la guerra comience
+纽约（彭博社，路透社）——爱情可能是盲目的，但消费者不是——至少在价格上涨时如此。
 
-台湾这一定
-Taiwán de seguro
+每月多花几美元通常不足以改变现状，但当美国人面临 40 年来最快的通货膨胀时，有些事情必须做出一些让步。对于美国和加拿大的 600,000 人来说，这需要让步的就是他们对 Netflix 的订阅。
 
-第一个卖老百姓的
-El primero que venderá al pueblo taiwanés
+到目前为止，消费者支出是美国经济的最大贡献者，经济学家们正在敏锐地寻找价格上涨开始削弱需求的任何迹象。Netflix 的最新季度业绩将《Love Is Blind》和《Bridgerton》等电视节目列为其最热门的电视剧，这可能提供一些证据表明它已经在行动。
 
-一定是台湾的军方和情资部门
-Absolutamente será la agencia militar y el Departamento de Inteligencia de Taiwán
+“这是一个非常早期的信号” 全球数据的董事总经理尼尔·桑德斯先生说，“随着通货膨胀的影响，人们最肯定希望削减的一件事是那些月复一月的经常性付款，这显然包括流媒体。”
 
-台湾最近买了很多这个无人机
-Recientemente, Taiwán compró muchos drones
+财报季刚刚开始，在经济的其他领域，消费者正在推高价格。 Bed Bath & Beyond 等零售商将销售放缓部分归咎于通货膨胀损害了消费者的信心，而随着食品账单飙升，杂货连锁店 Albertsons 正准备减少低收入客户的支出。
 
-无人机你知道是哪儿造的吗
-Sabes ¿de dónde fueron fabricados estos drones?
+对于 Netflix，还有其他一些因素在起作用。来自 Hulu 和 Disney+ 等其他流媒体服务的竞争正在升温，随着世界恢复正常，人们渴望离开沙发重新开始正常生活。
 
-无人机都是大陆造的
-Fabricados por China
+这将如何在其他公司收益中发挥作用还有待观察。随着 Covid-19 限制的解除，经济学家一直期望消费者将更多的支出从家居用品和汽车等商品转移到包括旅行和外出就餐在内的服务上。但随着通货膨胀对薪水的影响更大，购买必需品以外的实际可自由支配收入减少了。
 
-记住七哥今天说的话
-Recuerda lo que dije hoy
+“很明显，生活成本危机将迫使许多美国人重新考虑他们的支出决定” Oanda 高级市场分析师 Craig Erlam 先生说。“虽然可能仍有一些多余的储蓄，但家庭看到成本上升而考虑可以削减的地方是很自然的。”
 
-记住啊
-Recuerda
+**定价权**
 
-4月14号郭文贵说的
-Lo que dijo Wengui Guo el 14 de abril
+到目前为止，公司在降低材料和劳动力成本方面取得了相当大的成功。供应短缺和需求回升普遍推高了整个经济的价格，而数以万亿计的政府财政救济和低借贷成本在使需求保持长期高涨方面发挥了作用。
 
-台湾买的无人机都是大陆造的
-Los drones comprados por Taiwán son fabricados en China
+但公司也必须认识到价格上涨对其销售的影响。
 
-大陆把无人机卖哪儿了
-Y a dónde los vendió China
+Rakuten Rewards是一家为消费者提供来自零售商的优惠和奖励的购物平台，其总裁 Kristen Gall 女士说，对于经营实体店的零售商来说，提高价格需要时间，而且他们必须考虑自己的策略。这可能不会在第一季度出现，需等到今年晚些时候。那时消费者可能会特别感受到压力。
 
-卖给澳大利亚
-Se los vendió a Australia
+“我认为零售商仍然有能力提高价格，而且没什么问题”Gall女士说。“问题是，他们中的任何一个是否会过度调高价格，这实际上会让客户远离他们的品牌。”
 
-台湾的军人再从澳大利亚
-Luego los soldados de Taiwán desde Australia
+这是一个难以实现的平衡，尽管消费者在面对数十年的高通胀时仍然坚持不懈，但他们仍然对价格敏感。上周来自零售销售和消费者信心的数据提供了一些安慰，即美国人还没有准备好大规模缩减支出。
 
-把无人机买回去, 买回到台湾
-Compraron los drones para Taiwán
+但从 Netflix 的价格仅上涨 1 美元左右就可以看出，让某些人跨越这个边界并不需要太多。
 
-你打什么仗
-¿Con qué vas a pelear?
+“一旦你开始触及价格，它就彻底改变了格局”零售战略集团的负责人兼创始人 Liza Amlani 女士说。“人们不会为他们看不到价值的东西买单。”
 
-现在大陆, 上海
-Ahora China, Shanghai
+**密码共享**
 
-光给台湾的美金, 现金
-Los dólares en efectivos dados a Taiwán
+与此同时，投资者对 Netflix 打击账户共享的计划持怀疑态度。
 
-包括黄金
-Incluyendo el oro
+它在帐户共享方面采取强硬措施的计划未能让华尔街放心，这家全球最大的流媒体视频公司已经找到了激发新增长的方法。
 
-现在是大批量地给
-Ahora les están dando en gran cantidad
+Netflix 股价周三（4 月 20 日）暴跌 35%，市值缩水逾 500 亿美元（680 亿新元），此前一天，该公司表示将要求与家庭以外的人共享账户的订户付款更多。它部分归咎于密码共享未能达到用户增长目标。
 
-给到他们上海的家人
-A sus familiares que están en Shanghai
+共享账户的规模——估计全球有 1 亿个，其中包括美国和加拿大的 3000 万个——本身就是一个警告信号。
 
-有些是给到这个台湾
-Algunos se los han dado en Taiwán
+媒体分析师迈克尔·内森森（Michael Nathanson）写道，对密码共享的打击表明 Netflix 认为其 2.216 亿订户正在“碰壁”。“任何拥有大量年度订户和（收入）目标的公司今天都应该更加紧张” 他写道。
 
-不但如此
-No sólo esto
+Netflix 首席运营官 Gregory Peters 周二告诉投资者，该公司不会阻止订阅者与姐妹分享。“但我们会要求你多付一点钱才能与她分享，这样她才能获得服务的好处和价值，而我们也会获得与观看相关的收入。”
 
-而且向他们许诺一旦开战
-También les prometió, una vez que la guerra inicie
+Netflix 两年来一直在研究这个问题并进行测试。3 月，Netflix 开始向智利、哥斯达黎加和秘鲁的用户收取额外费用，以便与最多两人共享帐户。周二，该公司表示计划在一年内在全球范围内推出新的密码共享费用。
 
-就会把他们家人安置好
-Cuidarán de sus familias
+“我们认为这一策略不会成为一些投资者在过去几年中概述的灵丹妙药”晨星分析师尼尔·麦克尔说。 “Netflix 或许能够从一些主要家庭中多榨出几美元，但我们认为其他家庭会将新的共享费视为又一次涨价而取消订阅。”
 
-战后呢, 拿回来台湾
-Luego de la guerra, vuelven a Taiwán
+其他人只是嘲笑密码共享导致 Netflix 在第一季度失去 200,000 名用户的想法，并预测它将在春季失去更多会员。
 
-土地都分好了
-Ya los terrenos están divididos
 
-什么人有, 什么人有
-Fulano tiene, mengano tiene
+```
+“这似乎更像是表现不佳的借口，” 中央银行 (DZ bank) 分析师曼努埃尔·穆尔 (Manuel Muhl) 表示。 
+“密码共享多年来一直是个问题。这不能作为令人失望的用户增长的正当理由。”
+```
 
-台湾危也
-Taiwán está en peligro
 
-我今天说的话大家走着看
-Verán lo que dije hoy
 
-我向全世界政府
-Informo a los gobiernos de todo el mundo
+```
+新闻来源:Netflix subscriber woes hint at consumer pushback on prices
+```
 
-我向他们保证, 郭文贵承担责任的
-Les prometo que Wengui Guo asume la responsabilidad
-
-台湾的无人机是来自中国共产党的
-Los drones de Taiwán provienen del PCCh
-
-所以说美国人到时候得气死
-Por eso los estadounidenses se enojarán después
-
-发现帮台湾打仗
-Se darán cuenta que ayudar a Taiwán a luchar
-
-结果台湾的无人机是买自大陆的
-Pero resulta ser que los drones son comprados en China
-
-走着看啊走着看
-Verán
-
-所以台湾危也了吧
-Por eso Taiwán está en peligro
-
-日期：04/20/2022
-原视频标题：台湾大部分军方已被收买，台湾无人机来自中共
-La mayor parte del ejército de Taiwán ha sido sobornada y sus drones provienen del PCCh
 
 * * *
 
-原视频日期：04/18/2022
-原视频网址：[**https://gettr.com/post/p15rcx69960**](https://gettr.com/post/p15rcx69960)
-任务编号：KC495（4281）
-视频时间段：0:00-1:54
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-31.jpeg)
 
  
 

@@ -2,34 +2,46 @@
 ---
 
 
-## 中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390441/)
+## 台湾国防实施澎湖实弹射击训练
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390521/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中共间谍企业波场TRON宣布将上线稳定币USDD.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://storage.googleapis.com/image.blocktempo.com/2022/03/11111111111111111111111111.jpg&amp;imgrefurl=https://www.blocktempo.com/the-verge-make-a-accusations-to-justin-sun-about-poloniex-and-tron-scam/&amp;tbnid=ahEX2-6xIGayHM&amp;vet=12ahUKEwigv6C106b3AhUBEqYKHWRdAJsQMygQegUIARDFAQ..i&amp;docid=qG1r45QSSXQf6M&amp;w=1409&amp;h=842&amp;q=%E6%B3%A2%E5%9C%BATRON%E5%AD%99%E5%AE%87%E6%99%A8&amp;hl=zh-CN&amp;ved=2ahUKEwigv6C106b3AhUBEqYKHWRdAJsQMygQegUIARDFAQ)
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-4月21日，波场TRON创始人孙宇晨通过推特发布公开信称：波场宣布正式进军去中心化稳定币，上线USDD（Decentralized USD）。同时，波场DAO将联合区块链行业的主流机构发起成立波场DAO储备（TRONDAO Reserve），以数学与算法实现人类的金融自由。
+**整理：等风来
+编辑：李易通**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
 
-按照公开的白皮书显示，USDD将首先以TRC的形式发行在波场TRON网络，将由波场联合储备以公开透明的方式进行发行和储备金的管理工作。波场联合储备成立之初将保存与托管区块链行业发起人所筹集的100亿美元高流动性资产作为早期储备，所有储备将在未来6-12个月进入波场联合储备。未来将持续吸纳更多流动性资产作为金融储备。
 
-孙宇晨与币安创始人赵长鹏一样，是一位声名狼藉的中共权贵白手套和间谍，一面是媒体上塑造年轻企业家的形象，另一面却是利用区块链和数字货币收割韭菜的嗜血大鳄。他是波场TRON、陪我APP创始人兼CEO、BitTorrent CEO。1990年生人，2019年6月，以最高成交价456.7万美元投得与巴菲特共进午餐的机会，由此获得巨大的关注度，但随后引发广泛争议。
+2022年04月21日讯，对于中共为转移危机可能攻占[台湾离岛](https://www.epochtimes.com/b5/tag/%e5%8f%b0%e7%81%a3%e9%9b%a2%e5%b3%b6.html)，台湾国防部长邱国正表示，中共打不打外岛或是打不打本岛，国军主要任务就是战训本务。
 
-3月10日，美国科技媒体The Verge报道称，目前美国国税局、FBI等政府部门正在调查孙宇晨在波场期间涉嫌内幕交易，在Poloniex期间涉嫌欺诈、洗钱等犯罪行为。
+21日台湾外岛澎湖实施实弹射击训练，展现防区精实战力。
 
-信息来源：
-[波场TRON创始人孙宇晨宣布将正式上线去中心化稳定币USDD – 知乎](https://zhuanlan.zhihu.com/p/502694665)
+中华民国立法院外交及国防委员会20日上午审查国防部主管非营业基金，国防部长邱国正等人列席。邱国正会前接受媒体联访。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+台媒报导熟悉两岸事务的台湾官员示警，习近平可能在连任后，为转移国内压力，占领[金门](https://www.epochtimes.com/b5/tag/%e9%87%91%e9%96%80.html)、[马祖](https://www.epochtimes.com/b5/tag/%e9%a6%ac%e7%a5%96.html)等[台湾离岛](https://www.epochtimes.com/b5/tag/%e5%8f%b0%e7%81%a3%e9%9b%a2%e5%b3%b6.html)。
+
+日媒指出，中共评估俄罗斯打乌克兰陷入苦战，可能被迫修改武统台湾剧本。
+
+邱国正表示，俄乌战争给各国都带来启示，包含台湾，敌方也不例外，所以国军要持续再来密切注意。我之前也说过，各国的相关案例都是很好的学习机会，我们也把握这个机会。
+
+据中央社报导，澎湖第一作战区21日实施「外离岛防卫作战」实弹射击训练，各式火砲与机枪，轰隆大响，场面震撼，展现防区精实战力。
+
+澎湖实弹射击训练，澎湖防卫部指挥官刘协庆中将亲自视导，并未对外开放，仅安排军事训练役男实地观摩火砲射击，深刻体验国家守护家园的决心。
+
+刘协庆表示，目前疫情严峻，但防区战备训练不可松懈，在恪遵防疫与训练安全下，持续精实训练，达到「处处皆战场、时时都训练」的目标，展现作战区官兵「同岛一命、寸土不让」的决心。
+
+参考链接：[台湾国防实施澎湖实弹射击训练展现卫岛决心](https://www.epochtimes.com/b5/22/4/21/n13716905.htm)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+
 
  
 

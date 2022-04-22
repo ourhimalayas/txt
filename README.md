@@ -15,161 +15,161 @@
 
 ---
 
-### [一位在上海的德国人大骂中共防疫政策](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD](/content/gnews/2/README.md)
+### [中日财经爆┃美国半导体巨头关闭上海全球配送中心 中共芯片供应链加速崩溃](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19疫苗副作用集萃(2022.4.22L) 接种疫苗加强针后尿失禁](/content/gnews/3/README.md)
+### [台湾国防实施澎湖实弹射击训练](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共诱骗贩通过将中共加入共同通基金并提供有限选项，导致退休储蓄计划中的钱流向中共](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [2022年4月21日 郭文贵先生和长岛哥、Rachel临时直播](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [美国要认真对待习对台湾的威胁，给台湾装备强大武器](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/6/README.md)
- ` 關注組`
-
-### [平民是俄罗斯军事行动的2号目标](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [COVID-19疫苗副作用集萃（2022.4.22K）－辉瑞bosster副作用](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [每日快报：中国军方在中美防务领导人会谈前测试新型高超音速导弹](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/10/README.md)
+### [乔·罗根支持马斯克收购推特](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19疫苗副作用集萃(2022.4.22J) 第三针疫苗副作用身体反应太大了，整个人都不舒服](/content/gnews/11/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.22N）&#8211;康希诺｜猛男疫苗的副作用](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《历史的今天》 2022.04.22](/content/gnews/12/README.md)
+### [俄罗斯寡头妻子和女儿被发现死亡：24小时内第二例](/content/gnews/6/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [COVID-19疫苗副作用集萃（2022.4.22M）－摩德纳第三针轻轻地把人送走](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [一位在上海的德国人大骂中共防疫政策](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Netflix订阅困境暗示消费者对价格的抵制](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [COVID-19疫苗副作用集萃(2022.4.22L) 接种疫苗加强针后尿失禁](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻新闻｜上海多个行政区突然封路](/content/gnews/12/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共诱骗贩通过将中共加入共同通基金并提供有限选项，导致退休储蓄计划中的钱流向中共](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国要认真对待习对台湾的威胁，给台湾装备强大武器](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/15/README.md)
+ ` 關注組`
+
+### [平民是俄罗斯军事行动的2号目标](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [COVID-19疫苗副作用集萃（2022.4.22K）－辉瑞bosster副作用](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [《历史的今天》 2022.04.22](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰不会放弃东部领土以结束与俄罗斯的战争](/content/gnews/13/README.md)
+### [乌克兰不会放弃东部领土以结束与俄罗斯的战争](/content/gnews/20/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [文•贵天成——文贵先生谈“习近平”（五）](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [国内未来面临的惨局是无法想象](/content/gnews/15/README.md)
+### [国内未来面临的惨局是无法想象](/content/gnews/21/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美议员访问巴管控克什米尔地区 引发印方不满](/content/gnews/16/README.md)
+### [美议员访问巴管控克什米尔地区 引发印方不满](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [吴尊友：要准备迎战可能发生的规模化毒疫苗发作疫情](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](/content/gnews/18/README.md)
+### [乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际社会制裁，让俄罗斯寡头公然与普京翻脸](/content/gnews/19/README.md)
+### [【秘翻北美时评】美议长佩洛西4月26日访台 台海之战一触即发](/content/gnews/24/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [国际社会制裁，让俄罗斯寡头公然与普京翻脸](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/20/README.md)
+### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/26/README.md)
  ` 關注組`
 
-### [中共国警方开始没收护照](/content/gnews/21/README.md)
+### [中共国警方开始没收护照](/content/gnews/27/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”](/content/gnews/22/README.md)
+### [财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”](/content/gnews/28/README.md)
  ` 關注組`
 
-### [世界避开莫斯科，中国从俄罗斯购买廉价焦煤](/content/gnews/23/README.md)
+### [世界避开莫斯科，中国从俄罗斯购买廉价焦煤](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [因担心受制裁，中国银联拒绝与俄银行合作](/content/gnews/24/README.md)
+### [因担心受制裁，中国银联拒绝与俄银行合作](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [风林往事——天黑村里静悄悄](/content/gnews/25/README.md)
+### [风林往事——天黑村里静悄悄](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港放松疫情管控 重新开放主题公园和夜间餐厅](/content/gnews/26/README.md)
+### [香港放松疫情管控 重新开放主题公园和夜间餐厅](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃日美财长就日元贬值问题举行会谈](/content/gnews/27/README.md)
+### [新中国联邦网站4月19日正式上线](/content/gnews/33/README.md)
+ ` NFSC News`
+
+### [中日财经爆┃日美财长就日元贬值问题举行会谈](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国政府在准备着给中共的二级制裁](/content/gnews/28/README.md)
- ` 加拿大温哥华英里农场`
-
-### [文贵先生直播精要 2022/04/21](/content/gnews/29/README.md)
+### [文贵先生直播精要 2022/04/21](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日元和人民币受到美联储加息影响](/content/gnews/30/README.md)
+### [日元和人民币受到美联储加息影响](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [习近平重申他反对西方国家对俄罗斯的制裁](/content/gnews/31/README.md)
+### [习近平重申他反对西方国家对俄罗斯的制裁](/content/gnews/37/README.md)
  ` 澳喜农场`
 
-### [食品和杂货制造商选择将增加的成本 &#8220;转嫁给他们的客户”](/content/gnews/32/README.md)
+### [食品和杂货制造商选择将增加的成本 &#8220;转嫁给他们的客户”](/content/gnews/38/README.md)
  ` 澳喜农场`
 
-### [2020年4月22日-俄乌战事综合战况](/content/gnews/33/README.md)
+### [2020年4月22日-俄乌战事综合战况](/content/gnews/39/README.md)
  ` 军情启示录`
 
-### [秘翻在线：日本自民党宣传部部长河野太郎就中共入侵台湾敲响警钟](/content/gnews/34/README.md)
+### [秘翻在线：日本自民党宣传部部长河野太郎就中共入侵台湾敲响警钟](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃中美防务领导人会谈前 中共测试新型高超音速导弹](/content/gnews/35/README.md)
+### [樱花时政┃中美防务领导人会谈前 中共测试新型高超音速导弹](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄罗斯关闭三个波罗的海国家领事馆](/content/gnews/36/README.md)
+### [樱花时政┃俄罗斯关闭三个波罗的海国家领事馆](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本正式撤销俄罗斯“最惠国”地位](/content/gnews/37/README.md)
+### [日本正式撤销俄罗斯“最惠国”地位](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|台海兵凶战危 外媒忧台湾网路遭断后與世界失联](/content/gnews/38/README.md)
- ` MOSVIDEO`
-
-### [CCP魔厦正在倒塌](/content/gnews/39/README.md)
+### [CCP魔厦正在倒塌](/content/gnews/44/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [视频|针对王岐山的爆料仍未完结](/content/gnews/40/README.md)
- ` MOSVIDEO`
-
-### [拜登宣布向乌克兰再提供 8 亿美元的军事援助](/content/gnews/41/README.md)
+### [拜登宣布向乌克兰再提供 8 亿美元的军事援助](/content/gnews/45/README.md)
  ` 澳喜特战旅Gnews`
 
-### [普京测试 “世上最致命武器”](/content/gnews/42/README.md)
+### [普京测试 “世上最致命武器”](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [魁省超万名医护人员因病毒原因离岗](/content/gnews/43/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [秘翻在线：中华电视公司（CTS）播出系列假信息其意何在?](/content/gnews/44/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [樱花时政┃日本2022年《外交蓝皮书》出台 对俄立场发生重大改变](/content/gnews/45/README.md)
+### [樱花时政┃日本2022年《外交蓝皮书》出台 对俄立场发生重大改变](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌](/content/gnews/46/README.md)
+### [中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大制裁普京女儿在内的14名俄罗斯人](/content/gnews/47/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [俄罗斯绝密军事研究所爆发严重火灾](/content/gnews/48/README.md)
+### [俄罗斯绝密军事研究所爆发严重火灾](/content/gnews/49/README.md)
  ` 日本東京方舟農場`
 
-### [上海民调：中共非人道封城让上海的半数外国人决定离去](/content/gnews/49/README.md)
+### [上海民调：中共非人道封城让上海的半数外国人决定离去](/content/gnews/50/README.md)
  ` thedawn`
 
-### [德国将为东欧各国提供先进装甲车以补偿其援助乌克兰](/content/gnews/50/README.md)
+### [德国将为东欧各国提供先进装甲车以补偿其援助乌克兰](/content/gnews/51/README.md)
  ` 日本東京方舟農場`
 
-### [多国网络安全机构警告：俄罗斯将实施“恶意网络行动”](/content/gnews/51/README.md)
+### [多国网络安全机构警告：俄罗斯将实施“恶意网络行动”](/content/gnews/52/README.md)
  ` 日本東京方舟農場`
-
-### [世界上最大的金条价值飙升](/content/gnews/52/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

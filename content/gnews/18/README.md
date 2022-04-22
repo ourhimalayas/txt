@@ -2,36 +2,158 @@
 ---
 
 
-## 乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390282/)
+## 台湾大部分军方已被收买，台湾无人机来自中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390379/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+第二个现在我们要谈一下这个
+El segundo que hablaremos ahora
 
-翻译：li yan li
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-25.png)
-4月21日，据CNN报道，乌克兰官员周二确定了被围困的乌克兰港口城市马里乌波尔外的清晰的乱葬岗的位置。Maxar Technologies收集和分析的卫星图像公开支持了这一说法。
+关于台湾的问题
+Acerca del problema de Taiwán
 
-周四，马里乌波尔市长的顾问彼得罗·安德里申科在Telegram上发帖写道：“经过长时间的搜索，我们找到了马里乌波尔居民死亡的集体埋葬地点，确定了在曼胡什村安排和集体埋葬马里乌波尔居民的事实。”
+台湾的情报部门
+El Departamento de Inteligencia de Taiwán
 
-安德里乌申科——他不在马里乌波尔，但作为被围困城市内部的信息交流中心——在Telegram上发布了坐标，说俄罗斯军队在曼胡什挖了几个乱葬坑，每个坑长约30米（约100英尺），该镇在马里乌波尔西部约12英里（约19公里）。
+台湾的军队绝大多数
+La mayoría del ejército de Taiwán
 
-他说：“卡车运来了死者的尸体，事实上，只是把他们扔在堤坝上。这是战争罪的直接证据，他们想要试图掩盖这些罪行。”
+都已经被收买了
+Fueron sobornados
 
-马克萨周二公布了对卫星图像的分析，显示了曼胡什西北边缘一个新坟墓地点的的证据。
+仗一开打
+Una vez que la guerra comience
 
-根据最近的媒体报道，俄罗斯士兵一直在把在马里乌波尔被杀的人的尸体带到这个地方。这些坟墓以四段线性排列（每段测量约85米），包含200多个新坟墓。
+台湾这一定
+Taiwán de seguro
 
-马里乌波尔市市长博伊琴科周四也称，俄罗斯军队在曼胡什的万人坑中埋藏了尸体。而乌克兰官员声称，在数周的轰炸中，有多达2万人死亡。
+第一个卖老百姓的
+El primero que venderá al pueblo taiwanés
 
-新闻链接：[乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-21-22/h_809055ac961cce5e1e6770653c7c62b2)
+一定是台湾的军方和情资部门
+Absolutamente será la agencia militar y el Departamento de Inteligencia de Taiwán
 
-发布：tianzhihuan
+台湾最近买了很多这个无人机
+Recientemente, Taiwán compró muchos drones
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+无人机你知道是哪儿造的吗
+Sabes ¿de dónde fueron fabricados estos drones?
+
+无人机都是大陆造的
+Fabricados por China
+
+记住七哥今天说的话
+Recuerda lo que dije hoy
+
+记住啊
+Recuerda
+
+4月14号郭文贵说的
+Lo que dijo Wengui Guo el 14 de abril
+
+台湾买的无人机都是大陆造的
+Los drones comprados por Taiwán son fabricados en China
+
+大陆把无人机卖哪儿了
+Y a dónde los vendió China
+
+卖给澳大利亚
+Se los vendió a Australia
+
+台湾的军人再从澳大利亚
+Luego los soldados de Taiwán desde Australia
+
+把无人机买回去, 买回到台湾
+Compraron los drones para Taiwán
+
+你打什么仗
+¿Con qué vas a pelear?
+
+现在大陆, 上海
+Ahora China, Shanghai
+
+光给台湾的美金, 现金
+Los dólares en efectivos dados a Taiwán
+
+包括黄金
+Incluyendo el oro
+
+现在是大批量地给
+Ahora les están dando en gran cantidad
+
+给到他们上海的家人
+A sus familiares que están en Shanghai
+
+有些是给到这个台湾
+Algunos se los han dado en Taiwán
+
+不但如此
+No sólo esto
+
+而且向他们许诺一旦开战
+También les prometió, una vez que la guerra inicie
+
+就会把他们家人安置好
+Cuidarán de sus familias
+
+战后呢, 拿回来台湾
+Luego de la guerra, vuelven a Taiwán
+
+土地都分好了
+Ya los terrenos están divididos
+
+什么人有, 什么人有
+Fulano tiene, mengano tiene
+
+台湾危也
+Taiwán está en peligro
+
+我今天说的话大家走着看
+Verán lo que dije hoy
+
+我向全世界政府
+Informo a los gobiernos de todo el mundo
+
+我向他们保证, 郭文贵承担责任的
+Les prometo que Wengui Guo asume la responsabilidad
+
+台湾的无人机是来自中国共产党的
+Los drones de Taiwán provienen del PCCh
+
+所以说美国人到时候得气死
+Por eso los estadounidenses se enojarán después
+
+发现帮台湾打仗
+Se darán cuenta que ayudar a Taiwán a luchar
+
+结果台湾的无人机是买自大陆的
+Pero resulta ser que los drones son comprados en China
+
+走着看啊走着看
+Verán
+
+所以台湾危也了吧
+Por eso Taiwán está en peligro
+
+日期：04/20/2022
+原视频标题：台湾大部分军方已被收买，台湾无人机来自中共
+La mayor parte del ejército de Taiwán ha sido sobornada y sus drones provienen del PCCh
+
+* * *
+
+原视频日期：04/18/2022
+原视频网址：[**https://gettr.com/post/p15rcx69960**](https://gettr.com/post/p15rcx69960)
+任务编号：KC495（4281）
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

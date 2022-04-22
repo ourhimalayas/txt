@@ -2,36 +2,57 @@
 ---
 
 
-## 中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389551/)
+## 普京测试 “世上最致命武器”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389687/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆SEC预摘牌名单再添17家公司-中概股集体暴跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
-4月21日，美国证劵交易委员会（SEC）再将理想汽车、百世集团和贝壳等17家公司加入“预摘牌名单”，这是自今年3月以来第五批被纳入名单的中概股公司，这些公司或将在2024年初立即退市。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-具体名单为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。SEC声称，上述17家公司提交申辩的截止时间为当地时间5月12日。
+翻译：文扬
+编辑：伏而起之
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2718.png)
+弗拉基米尔·普京（Vladimir Putin）吹嘘说，他首次成功测试了一种被称为“撒旦二号”的新核导弹，该导弹携带十几个弹头，可用于打击世界各地的敌人。
 
-当日热门中概股集体重挫，腾讯概念跌幅居前，爱奇艺跌14.89%，贝壳跌超7%，拼多多、斗鱼跌近7%，哔哩哔哩、蘑菇街跌超5%。
+克里姆林宫称，这枚200吨级的洲际弹道导弹是 “送给北约的礼物”，它将使莫斯科的敌人 “三思而行”。
 
-新能源汽车股中，法拉第未来跌近13%，蔚来汽车跌超5%，理想汽车、小鹏汽车跌超4%。
+普京的剑拔弩张恰逢俄罗斯入侵乌克兰下一阶段的开始，军队开始对顿巴斯东部地区发起进攻。
 
-在4月21日博鳌论坛上，中共国证监会副主席方星海演讲时表示，近期中概股下跌严重的情况，重要原因在于中美审计监管合作谈判。
+鲍里斯·约翰逊（Boris Johnson）说，在这个冲突的时刻，很难看到乌克兰人能够与俄罗斯总统进行谈判的可能。他说：“鳄鱼咬着你的腿，你怎么能与它谈判？”
 
-据悉，此前百度、爱奇艺、搜狐等中概股公司也被列入“预摘牌”名单，根据SEC公布的《外国公司问责法》，被列入“确定摘牌名单”的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。
+该导弹的正式名称为“萨尔马特”，从普列谢茨克发射，并将训练弹头运送到俄罗斯远东地区堪察加半岛 3725 英里（5994 公里）外的试验场。
 
-如果“确定摘牌名单”中的公司没有提交或提交的文件不符合SEC要求，将会在披露2023年年报后（2024年初）面临立即退市。
+普京先生在国家电视台说，“它能够克服所有现代反导弹防御手段”。
 
-消息来源:
-[**又有17家公司被美列入“预摘牌名单”，中概股重挫**](https://www.stcn.com/xw/sd/202204/t20220422_4404525.html)
+他补充说：“这种真正独特的武器将加强我们武装部队的战斗潜力，可靠地确保俄罗斯的安全免受外部威胁，并让那些在狂热的侵略性言论中试图威胁我国的人好好惦量惦量。”
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据信该导弹的射程为11,000英里，能以高超音速发射10至15枚核弹头。
+
+战略与国际研究中心智囊团研究员伊恩·威廉姆斯（Ian Williams）告诉《电讯报》：“这可能是地球上最具破坏性的单一武器。”
+
+他说：“它可以用一枚导弹摧毁10座城市，因为它携带的弹头可以独立瞄准。”
+
+据一位军事分析家说，如果它设在俄罗斯的最西部，它可以在几分钟内到达伦敦。据俄罗斯新闻机构称，该导弹将在2022年底才部署。
+
+俄罗斯《国防》杂志主编伊戈尔·科罗琴科（Igor Korotchenko）说，这表明莫斯科有能力进行 “粉碎性的报复，将结束任何国家的历史”。
+
+但在华盛顿，前国防部副部长助理吉姆·汤森（Jim Townsend）说：“这是他们沮丧的表现，是他们感觉不安全的表现，而不是警告我们未来会发生这种情况。”
+
+议会情报和安全委员会主席朱利安·刘易斯（Julian Lewis）说：“自从俄罗斯和西方核国家在60多年前获得战略核轰炸机，然后是洲际弹道导弹以来，它们就有能力相互消灭对方。
+
+“普京在其原有的‘过度杀伤’能力上增加这种新导弹，对我们的三叉戟核威慑潜艇的效力完全没有影响。”
+
+五角大楼表示，已提前收到有关试射的通知。 美国官员试图平息局势，称他们认为这次测试是“例行公事”，对美国不构成威胁。
+
+据说克里姆林宫内部人士越来越相信，在过去两个月在乌克兰遭受毁灭性的军事挫折后，普京先生可能会有限地使用核武器。
+
+原文链接： [Russia-Ukraine war: Sarmat Vladimir Putin tests ‘world’s deadliest weapon’ (afr.com)](https://www.afr.com/world/europe/putin-tests-world-s-deadliest-weapon-20220421-p5af2y)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
