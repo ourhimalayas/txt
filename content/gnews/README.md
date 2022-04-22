@@ -15,29 +15,29 @@
 
 ---
 
-### [新乌东战争开打，乌克兰获更多重要军援](/content/gnews/1/README.md)
+### [中国百姓还能再坚持？](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/2/README.md)
+### [新乌东战争开打，乌克兰获更多重要军援](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/3/README.md)
  ` 關注組`
 
-### [英国将协助印度建造战机 让其减少对俄依赖](/content/gnews/3/README.md)
+### [英国将协助印度建造战机 让其减少对俄依赖](/content/gnews/4/README.md)
  ` 日本東京方舟農場`
 
-### [美SEC再将17家中企列入准除牌名单](/content/gnews/4/README.md)
+### [美SEC再将17家中企列入准除牌名单](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国际｜台湾为“全球跨境隐私规则论坛”创始会员 开创多边合作新时代](/content/gnews/5/README.md)
+### [国际｜台湾为“全球跨境隐私规则论坛”创始会员 开创多边合作新时代](/content/gnews/6/README.md)
  ` 關注組`
 
-### [若推特竞标成功 马斯克誓言将打击垃圾邮件机器人](/content/gnews/6/README.md)
+### [若推特竞标成功 马斯克誓言将打击垃圾邮件机器人](/content/gnews/7/README.md)
  ` 日本東京方舟農場`
 
-### [DC大中华时事：台驻斯洛伐克代表处捐赠250万美元助安置乌克兰难民](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [乌克兰呼吁将被冻结的俄资产用于重建，美财长耶伦对此保持谨慎](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
+### [新闻述评：中共称美国以“共同交战国” 身份避免向俄军宣战](/content/gnews/8/README.md)
+ ` 战云长天时评`
 
 ### [在掩盖中共病毒起源方面起关键作用的科学家受谷歌资助](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
@@ -84,44 +84,44 @@
 ### [中共诱骗贩通过将中共加入共同通基金并提供有限选项，导致退休储蓄计划中的钱流向中共](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国要认真对待习对台湾的威胁，给台湾装备强大武器](/content/gnews/24/README.md)
+### [HPay、喜币、躺平币是未来金融界的信仰](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [多国继续强力军援乌克兰](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [美国要认真对待习对台湾的威胁，给台湾装备强大武器](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/25/README.md)
+### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/27/README.md)
  ` 關注組`
 
-### [平民是俄罗斯军事行动的2号目标](/content/gnews/26/README.md)
+### [平民是俄罗斯军事行动的2号目标](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/27/README.md)
+### [台湾大部分军方已被收买，台湾无人机来自中共](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国内未来面临的惨局是无法想象](/content/gnews/28/README.md)
+### [国内未来面临的惨局是无法想象](/content/gnews/30/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美议员访问巴管控克什米尔地区 引发印方不满](/content/gnews/29/README.md)
+### [美议员访问巴管控克什米尔地区 引发印方不满](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](/content/gnews/30/README.md)
+### [乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻北美时评】美议长佩洛西4月26日访台 台海之战一触即发](/content/gnews/31/README.md)
+### [【秘翻北美时评】美议长佩洛西4月26日访台 台海之战一触即发](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [国际社会制裁，让俄罗斯寡头公然与普京翻脸](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/33/README.md)
+### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/34/README.md)
  ` 關注組`
 
-### [中共国警方开始没收护照](/content/gnews/34/README.md)
+### [中共国警方开始没收护照](/content/gnews/35/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”](/content/gnews/35/README.md)
+### [财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”](/content/gnews/36/README.md)
  ` 關注組`
-
-### [世界避开莫斯科，中国从俄罗斯购买廉价焦煤](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [风林往事——天黑村里静悄悄](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`

@@ -2,38 +2,36 @@
 ---
 
 
-## 国际社会制裁，让俄罗斯寡头公然与普京翻脸
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390163/)
+## 乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390282/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-整理：等风来
-编辑：文泓
+翻译：li yan li
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-25.png)
+4月21日，据CNN报道，乌克兰官员周二确定了被围困的乌克兰港口城市马里乌波尔外的清晰的乱葬岗的位置。Maxar Technologies收集和分析的卫星图像公开支持了这一说法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2742.png)图片来源：纽约时报 & 雅典娜设计组
+周四，马里乌波尔市长的顾问彼得罗·安德里申科在Telegram上发帖写道：“经过长时间的搜索，我们找到了马里乌波尔居民死亡的集体埋葬地点，确定了在曼胡什村安排和集体埋葬马里乌波尔居民的事实。”
 
+安德里乌申科——他不在马里乌波尔，但作为被围困城市内部的信息交流中心——在Telegram上发布了坐标，说俄罗斯军队在曼胡什挖了几个乱葬坑，每个坑长约30米（约100英尺），该镇在马里乌波尔西部约12英里（约19公里）。
 
-随着俄乌战争的深入，国际社会对俄罗斯总统普京跟他亲信的经济制裁日益加码，现在制裁展现效果，一名俄罗斯寡头日前就在自己的社群网站上，痛批普京发动一场疯狂的战争，也是一场大屠杀。
+他说：“卡车运来了死者的尸体，事实上，只是把他们扔在堤坝上。这是战争罪的直接证据，他们想要试图掩盖这些罪行。”
 
-俄罗斯富豪丁科夫在战争爆发后，他成为英国的制裁对象，财富缩水到1/10。4月19日，他在**Instagram**发帖。
+马克萨周二公布了对卫星图像的分析，显示了曼胡什西北边缘一个新坟墓地点的的证据。
 
-丁科夫說，90%的俄罗斯人都反对這场战争，呼吁西方国家给普京一个台阶下，让他結束这场大屠杀。有媒体分析，他是少数点名名骂普京的俄罗斯寡头。
+根据最近的媒体报道，俄罗斯士兵一直在把在马里乌波尔被杀的人的尸体带到这个地方。这些坟墓以四段线性排列（每段测量约85米），包含200多个新坟墓。
 
-另一位寡头列昂尼德·涅夫兹林也说，我不接受俄罗斯公民身分，这个国家由法西斯分子普京操控。
+马里乌波尔市市长博伊琴科周四也称，俄罗斯军队在曼胡什的万人坑中埋藏了尸体。而乌克兰官员声称，在数周的轰炸中，有多达2万人死亡。
 
-专家们认为，一直以来最支持普京的俄罗斯富豪开始反目，最主要原因，是他們在海外傲人的私人飞机和游艇纷纷遭到制裁沒收。
+新闻链接：[乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-21-22/h_809055ac961cce5e1e6770653c7c62b2)
 
-哈德逊色究所研究員表示，沒收游艇豪宅和金融资产，对旅居海外的俄罗斯寡头，施加越来越大的压力，所以他们用这种方式发声。
+发布：tianzhihuan
 
-参考链接：[經濟制裁會痛！ 俄羅斯寡頭发贴嗆普欽](https://tw.news.yahoo.com/%E7%B6%93%E6%BF%9F%E5%88%B6%E8%A3%81%E6%9C%83%E7%97%9B-%E4%BF%84%E7%BE%85%E6%96%AF%E5%AF%A1%E9%A0%ADpo%E6%96%87%E5%97%86%E6%99%AE%E6%AC%BD-074757028.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

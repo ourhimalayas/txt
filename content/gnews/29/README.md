@@ -2,40 +2,158 @@
 ---
 
 
-## 美议员访问巴管控克什米尔地区 引发印方不满
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390291/)
+## 台湾大部分军方已被收买，台湾无人机来自中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390379/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+第二个现在我们要谈一下这个
+El segundo que hablaremos ahora
 
-整理/编辑：围剿维尼熊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9500AB9A-01A1-4872-A59B-4D2A77B0107B.jpg)图片来源：百度
-根据美国之音4月22日报道，美国众议员伊尔汗·奥马尔(Ilhan Omar)星期四(4月21日)访问了巴基斯坦管控的克什米尔地区，并保证推动华盛顿对这处有争议地区给予更多的关注。这是美国国会议员对该地区的罕见访问。
+关于台湾的问题
+Acerca del problema de Taiwán
 
-新德里迅速谴责了奥马尔对巴管克什米尔的访问。
+台湾的情报部门
+El Departamento de Inteligencia de Taiwán
 
-印度否认长期以来一直就有的印度在其控制的克什米尔地区侵犯人权的指称。印度对包括联合国人员在内的外国观察人士进入克什米尔实行严格控制。
+台湾的军队绝大多数
+La mayoría del ejército de Taiwán
 
-位于喜马拉雅山区的克什米尔地区的三分之二由印度控制，另外三分之一由巴基斯坦控制。两国都声称对整个克什米尔拥有主权。印度在2019年终止了印管克什米尔持续了几十年的自治地位，将其分为两处联邦政府直辖区。
+都已经被收买了
+Fueron sobornados
 
-伊斯兰堡谴责了这一举措并要求新德里收回成命。巴基斯坦说，一项持续已久的联合国决议禁止两国单方面改变该地区现状。
+仗一开打
+Una vez que la guerra comience
 
-目前克什米尔仍然是印巴军事紧张关系的主要原因。
+台湾这一定
+Taiwán de seguro
 
-本月早些时候，奥马尔在美国国会发表讲话时对她所说的美国政府不愿批评印度总理纳伦德拉·莫迪(Minister Narendra)政府的人权问题发出质问。她警告说，莫迪正在把“在印度做一名穆斯林的行为定为刑事犯罪”。
+第一个卖老百姓的
+El primero que venderá al pueblo taiwanés
 
-几天之后，美国国务卿安东尼·布林肯(Antony Blinken)说，美国正在关注他所说的某些印度政府、警察和监狱官员践踏人权事例的上升。
+一定是台湾的军方和情资部门
+Absolutamente será la agencia militar y el Departamento de Inteligencia de Taiwán
 
-这是华盛顿罕见地公开批评新德里的人权纪录。
+台湾最近买了很多这个无人机
+Recientemente, Taiwán compró muchos drones
 
-参考链接：[美议员罕见访问巴管克什米尔 印度表示不满](https://www.voachinese.com/a/us-lawmaker-s-rare-trip-to-kashmir-upsets-india-20220421/6539749.html)
+无人机你知道是哪儿造的吗
+Sabes ¿de dónde fueron fabricados estos drones?
 
-*发布：tianzhihuan*
+无人机都是大陆造的
+Fabricados por China
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+记住七哥今天说的话
+Recuerda lo que dije hoy
+
+记住啊
+Recuerda
+
+4月14号郭文贵说的
+Lo que dijo Wengui Guo el 14 de abril
+
+台湾买的无人机都是大陆造的
+Los drones comprados por Taiwán son fabricados en China
+
+大陆把无人机卖哪儿了
+Y a dónde los vendió China
+
+卖给澳大利亚
+Se los vendió a Australia
+
+台湾的军人再从澳大利亚
+Luego los soldados de Taiwán desde Australia
+
+把无人机买回去, 买回到台湾
+Compraron los drones para Taiwán
+
+你打什么仗
+¿Con qué vas a pelear?
+
+现在大陆, 上海
+Ahora China, Shanghai
+
+光给台湾的美金, 现金
+Los dólares en efectivos dados a Taiwán
+
+包括黄金
+Incluyendo el oro
+
+现在是大批量地给
+Ahora les están dando en gran cantidad
+
+给到他们上海的家人
+A sus familiares que están en Shanghai
+
+有些是给到这个台湾
+Algunos se los han dado en Taiwán
+
+不但如此
+No sólo esto
+
+而且向他们许诺一旦开战
+También les prometió, una vez que la guerra inicie
+
+就会把他们家人安置好
+Cuidarán de sus familias
+
+战后呢, 拿回来台湾
+Luego de la guerra, vuelven a Taiwán
+
+土地都分好了
+Ya los terrenos están divididos
+
+什么人有, 什么人有
+Fulano tiene, mengano tiene
+
+台湾危也
+Taiwán está en peligro
+
+我今天说的话大家走着看
+Verán lo que dije hoy
+
+我向全世界政府
+Informo a los gobiernos de todo el mundo
+
+我向他们保证, 郭文贵承担责任的
+Les prometo que Wengui Guo asume la responsabilidad
+
+台湾的无人机是来自中国共产党的
+Los drones de Taiwán provienen del PCCh
+
+所以说美国人到时候得气死
+Por eso los estadounidenses se enojarán después
+
+发现帮台湾打仗
+Se darán cuenta que ayudar a Taiwán a luchar
+
+结果台湾的无人机是买自大陆的
+Pero resulta ser que los drones son comprados en China
+
+走着看啊走着看
+Verán
+
+所以台湾危也了吧
+Por eso Taiwán está en peligro
+
+日期：04/20/2022
+原视频标题：台湾大部分军方已被收买，台湾无人机来自中共
+La mayor parte del ejército de Taiwán ha sido sobornada y sus drones provienen del PCCh
+
+* * *
+
+原视频日期：04/18/2022
+原视频网址：[**https://gettr.com/post/p15rcx69960**](https://gettr.com/post/p15rcx69960)
+任务编号：KC495（4281）
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

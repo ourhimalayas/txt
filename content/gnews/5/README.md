@@ -2,23 +2,24 @@
 ---
 
 
-## 国际｜台湾为“全球跨境隐私规则论坛”创始会员 开创多边合作新时代
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390597/)
+## 美SEC再将17家中企列入准除牌名单
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390602/)
 
-**港台前线 zhong｜2022-4-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-11.png)
-台湾外交部21日新闻稿表示，台湾以“创始会员”（中华台北名义）身分，与美国、加拿大、日本、韩国、新加坡及菲律宾共7个“亚太经济合作”（APEC）会员，于2022年4月21日共同发布“全球跨境隐私规则宣言”（Global Cross-Border Privacy Rules Declaration），成立“全球跨境隐私规则论坛”（Global Cross-Border Privacy Rules Forum）。此论坛成立宗旨为促进国际间不同资料隐私保护监管方法的调和与相容，开放予符合相关条件的司法管辖权实体（jurisdiction）申请加入。
+#### 翻译/撰稿：zzballack
 
-全球跨境隐私规则论坛，前身为美国在APEC力推之“跨境隐私规则”（Cross-Border Privacy Rules, CBPR）体系，美国2020年将CBPR扩大至APEC区域外，为纳入更多参与成员。台湾参与全球跨境隐私规则论坛各项协商及筹备工作。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2-3.jpg)图片来源：路透社
+据《Bloomberg Tax》4月22日报道，美国证券交易委员会（SEC）4月21日再将17家中企添加到其《外国公司问责法案》(HFCAA) 的临时名单中。这是3月份以来的第5批，名单上的公司面临在美国被摘牌的风险。SEC称，基于《外国公司问责法案》，如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，不配合上市公司会计监督委员会（PCAOB）的审计检查要求，SEC有权将其从交易所摘牌。
 
-美国商务部发表成立声明， CBPR成立反映了多边合作新时代的开始，促进现代经济所必须的可信赖全球数据流， CBPR 论坛旨在建立全球跨境隐私规则 (CBPR) 和处理器隐私识别 (PRP) 系统，这是首创的数据隐私认证，可帮助公司证明符合国际公认的数据隐私标准。
+这批被SEC列入HFCAA临时名单的中企包括知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-来源｜台湾外交部、美国商务部
+上述17家公司可于5月12日前向SEC提交证据，证明不具备被除牌的条件。目前，前3批的11家公司已由临时名单转移至确定名单，第4批的12家公司可于5月3日前向SEC提交证据。
 
-* * *
+新闻来源：
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+[Luckin Coffee, Li Auto Among 17 Firms Added to SEC’s HFCAA List](https://news.bloombergtax.com/financial-accounting/luckin-coffee-li-auto-among-17-firms-added-to-secs-hfcaa-list)
+
+[Li Auto, Luckin Coffee Added as US Delisting Candidates](https://www.asiafinancial.com/li-auto-luckin-coffee-added-as-us-delisting-candidates)
 
  
 

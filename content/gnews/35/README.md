@@ -2,31 +2,22 @@
 ---
 
 
-## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
+## 中共国警方开始没收护照
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2390148/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-22-145713.jpg)
+据自由亚洲电台（RFA）周三（4月20日）报道，中共国湖南省警方正命令居民交出他们的护照，直到 “疫情结束”才返回，这是为了防止民众在冠状病毒的奥米克戎变体扩散和残酷的 “清零 “封锁行动加强时逃离中国。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+一名湖南警官周三说护照很快将在全国范围内被没收。这位警官说：“根据官方要求，由于疫情的严重情况，[护照]必须上交。” “到处都是这样，不仅仅是湖南，全国都是如此。任何拥有护照的人都必须交出护照。” 官员还补充说， “如果人们不交出护照……那么他们就必须期待被调查。”
 
+在2021年8月的德尔塔冠状病毒疫情期间，中共国就停止向其公民发放新的护照，并在2月随着奥米克戎变种疫情的蔓延而暂停护照的更新，但此次没收现有护照的新举措似乎在变本加厉。
 
-美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
+以防病毒扩散的名义限制出境了。墙内同胞的真正灾难时刻要开始了，请做好充分的准备，
 
-涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
+七哥说过只有有钱人才可能逃出中共国。
 
-SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
-
-根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
-
-另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
-
-來源｜[SEC](https://www.sec.gov/hfcaa)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+**新闻来源：**https://www.breitbart.com/asia/2022/04/21/report-chinese-police-confiscating-passports-until-after-the-pandemic/
 
  
 

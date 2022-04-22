@@ -2,24 +2,30 @@
 ---
 
 
-## 美SEC再将17家中企列入准除牌名单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390602/)
+## 英国将协助印度建造战机 让其减少对俄依赖
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2390612/)
 
-#### 翻译/撰稿：zzballack
+**撰稿：日本东京方舟农场  子辰**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2-3.jpg)图片来源：路透社
-据《Bloomberg Tax》4月22日报道，美国证券交易委员会（SEC）4月21日再将17家中企添加到其《外国公司问责法案》(HFCAA) 的临时名单中。这是3月份以来的第5批，名单上的公司面临在美国被摘牌的风险。SEC称，基于《外国公司问责法案》，如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，不配合上市公司会计监督委员会（PCAOB）的审计检查要求，SEC有权将其从交易所摘牌。
+英国首相约翰逊表示，英国将向印度提供建造战斗机的技术，并加快国防设备交付的许可，从而达到使印度降低对俄罗斯的战略依赖的目标。
 
-这批被SEC列入HFCAA临时名单的中企包括知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-45.jpg)（图片来自大纪元）
 
-上述17家公司可于5月12日前向SEC提交证据，证明不具备被除牌的条件。目前，前3批的11家公司已由临时名单转移至确定名单，第4批的12家公司可于5月3日前向SEC提交证据。
+4月21日，约翰逊访问了莫迪的家乡古吉拉特邦（Gujarat）后，发表声明说：“世界面临着来自专制国家日益增长的威胁，这些国家试图破坏民主，扼杀自由和公平贸易，践踏主权。”他将在首访新德里后，和莫迪着重讨论“对印度设计和制造的新战斗机的支持，提供英国在制造战机方面的最佳技术”。
 
-新闻来源：
+据悉，英国将向印度发放“开放概括出口许可证”（open general export licence），这可缩短国防物品的交付时间。约翰逊的发言人表示，目前只有欧盟和美国拥有这项许可证。
 
-[Luckin Coffee, Li Auto Among 17 Firms Added to SEC’s HFCAA List](https://news.bloombergtax.com/financial-accounting/luckin-coffee-li-auto-among-17-firms-added-to-secs-hfcaa-list)
+自俄罗斯入侵乌克兰以来，美国和其盟友一直努力说服印度减少对莫斯科的依赖。虽然莫迪政府呼吁俄罗斯结束暴力，但是一直未对俄罗斯的入侵行为进行谴责。同时，印度也继续购买俄罗斯石油。
 
-[Li Auto, Luckin Coffee Added as US Delisting Candidates](https://www.asiafinancial.com/li-auto-luckin-coffee-added-as-us-delisting-candidates)
+美国为了让印度远离俄罗斯，向新德里提供了更多国防和能源销售。
+
+英国外交大臣利兹·特拉斯（Liz Truss）与两周前访问印度时表示，将在贸易、国防、能源和食品安全方面进行更密切的合作。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/22/n13717338.htm](https://www.epochtimes.com/gb/22/4/22/n13717338.htm)
+
+总编：老孙
+校对发布：Linda
 
  
 
