@@ -15,26 +15,26 @@
 
 ---
 
-### [4月21日文贵临时直播要点（图片1-4）](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
-
-### [七哥爆料习近平与王沪宁一顿饭上谈的内容](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [唯有铲除中共，世界才能恢复光明](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|疫情乱像](/content/gnews/4/README.md)
- ` 爆料视频`
-
-### [可悲的中国境内人的生死, 竟由一身印着共产党突击队员的白衣服决定](/content/gnews/5/README.md)
+### [一个合理的财富分配制度和安全的财富拥有方式](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
+### [4月21日文贵临时直播要点（图片1-4）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
 
-### [“宣传”是中共奴役百姓、扰乱世界的第一武器](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [七哥爆料习近平与王沪宁一顿饭上谈的内容](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [唯有铲除中共，世界才能恢复光明](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频|疫情乱像](/content/gnews/5/README.md)
+ ` 爆料视频`
+
+### [可悲的中国境内人的生死, 竟由一身印着共产党突击队员的白衣服决定](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难](/content/gnews/7/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/8/README.md)
  ` 扬帆枫叶快讯`
