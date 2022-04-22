@@ -2,34 +2,49 @@
 ---
 
 
-## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（4/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393628/)
+## 世界银行：战争给乌克兰造成重大损失
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2393749/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
-上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（3/5）](https://gnews.org/zh-hans/2393591/)
+作者：纽约香草山农场 – 四季
 
-&lt;解说&gt;俄政府宣传机器全开–珍妮•希尔(莫斯科)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-克里姆林宫(俄罗斯政府)的宣传机器全面运转。普京总统与国防部长绍伊格一起出现在电视上，宣布俄罗斯掌控了马里乌波尔。
-视频来源：BBC新闻
-但实际上，这几天没有发生过特别实质性的变化，乌军士兵仍在阿佐夫斯塔利钢铁厂中。这是俄政府战略的一环，旨在告诉俄罗斯人民，一切都是按部就班地推进。
 
-国营电视台连日来用轻快的调子宣传，俄军如何前进、如何攻击乌军事目标、如何“解放”各城镇和地区。
 
-另一方面，国防部长绍伊古并未频频出境，因此据猜测，侵略乌克兰的情况不顺，可能引起了普京总统的不悦。但就是这位绍伊古，却在当天现身屏幕，向老板汇报喜讯。
 
-下一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（5/5）](https://gnews.org/zh-hans/2393685/)
 
-参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
+据[福克斯商业](https://www.foxbusiness.com/economy/ukraine-physical-damage-russia-invasion-billions-world-bank-estimates)4月22日报道，世界银行行长大卫·马尔帕斯 (David Malpass) 周四表示，俄罗斯的入侵对乌克兰建筑和基础设施造成的物质损失目前已达到约600亿美元。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-50.jpg)
 
-素材：宫米叶
-审核：Bryan
-校对：zicoround
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+乌克兰总理Denys Shmyhal说，乌克兰的国内生产总值可能下降30%至50%，迄今为止，造成的直接和间接损失已达5600亿美元。
+
+乌克兰战争和通货膨胀给世界经济蒙上阴影，国际货币基金组织IMF已下调全球增长预期。
+
+联合国（U.N.）人权负责人在周五的一份声明中说，俄罗斯武装部队不分青红皂白地炮击和轰炸居民区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
 
 
  

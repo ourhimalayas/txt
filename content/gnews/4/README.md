@@ -2,36 +2,37 @@
 ---
 
 
-## 专家称快速检测试剂或对新毒株无效
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393584/)
+## 俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2393707/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506543521.png)图片来源：CTV新闻
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据【CTV 新闻】近日报道，加拿大人两年来首次在没有限制的情况下庆祝复活节和逾越节。但公共卫生专家仍呼吁公众保持谨慎，特别是需要多次使用快速抗原自我检测方式来确认是否被病毒感染。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/HHWCRZECLFJ2XPHR7L4NVO2ILQ-1.jpg)
 
-对此，安大略省医生朱尼认为，由于目前对奥米克戎BA.2亚变体缺乏了解，现有的快速检测试剂很难保证绝对有效，因此建议加拿大人在聚会活动前至少进行两次间隔24小时的快速自我检测，并在没有任何症状下才参加社交活动。
 
-尽管加拿大的奥米克戎亚变体最初的传播速度相对缓慢，但目前该变体已是曼尼托巴省和安大略省最主要的新冠病毒传播种类。
+图片来源：路透社
 
-原文链接：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+路透4月22日 – 莫斯科代表团团长表示，俄罗斯和乌克兰的谈判代表周五进行了讨论，但俄罗斯外交部长谢尔盖拉夫罗夫表示，结束战争的外交努力仍然停滞不前。
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【晨熹 】
-素材/采编 -【硫酸氢氯喹64】
-校对/审核 -【硫酸氢氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+俄罗斯首席谈判代表弗拉基米尔·梅丁斯基证实了塔斯社的新闻报道，称已经进行了“几次长时间的对话”，但他没有透露细节。本周早些时候，克里姆林宫表示俄罗斯已经提交了一份新的书面提案，但乌克兰总统泽连斯基表示，他既没有看到也没有听说过。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+在俄罗斯发动对乌克兰的入侵八周后，双方能否重振他们摇摇欲坠的和平努力仍不清楚。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+在周五的单独评论中，此前曾指责基辅拖延和平进程的拉夫罗夫对和平谈判表达了悲观的态度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+拉夫罗夫在简报会上说：“他们现在停滞不前，因为我们在大约五天前提交给乌克兰谈判代表并考虑到我们从他们那里收到的评论后制定的最新提案仍未得到答复。”
+
+俄罗斯总统普京周五早些时候在电话中告诉欧洲理事会主席查尔斯·米歇尔，基辅表明它还没有准备好寻求双方都能接受的解决方案，他指责乌克兰方面在谈判中“不一致”。
+
+在 3 月份取得一些明显进展之后，和平谈判的气氛因乌克兰指责俄罗斯军队在撤离该地区时在基辅附近的一个城镇实施暴行而恶化。
+
+[俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”](俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

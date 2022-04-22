@@ -2,40 +2,36 @@
 ---
 
 
-## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（3/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393591/)
+## 加拿大参与拯救乌克兰数字资产的全球行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393732/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
-上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（2/5）](https://gnews.org/zh-hans/2393563/)
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506559551.png)图片来源：CTV新闻
 
-总攻钢铁厂在军事上对俄罗斯而言没必要–前英军总司令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-366.jpeg)图片来源：BBC新闻
+据[CTV新闻]4月19日报道，加拿大人最近参与了一项由多国组织发起的，通过数字资产和数据来在线保护乌克兰文化遗产的国际合作任务。
 
-英军联合司令部前司令理查德•巴隆兹爵士(Richard Barons)谈及俄政府的宣布表示，完全消灭困在钢铁厂的乌克兰士兵的战斗“对双方来说都必将造成巨大的损失”，付诸实施对俄罗斯来说应该是“相当困难”的事情。
+由于俄罗斯发动的入侵战争严重破坏了乌克兰的数字文化财产，因此，一个名为[在线拯救乌克兰文化财产]的国际组织汇集了全球1300多名图书档案管理员、研究员和程序员等专业人士，通过识别乌克兰重要网站的数据，并将其存档于国外大学、图书馆、博物馆和画廊的服务器上。
 
-港口城市马里乌波尔，因为连接着俄罗斯通往克里米亚半岛的道路，据认为，对俄军来说压制此地极为关键。
+据悉，该组织目前已从乌克兰的3500多个网站保存了超过30tb的扫描文件、艺术品和其他重要信息。此外，加拿大阿尔伯塔大学的乌克兰研究所也参与了名为“档案救援队”的平行项目。
 
-但巴隆兹前司令指出，马里乌波里攻防战的胜负已经“不再那么重要了”。他解释道，俄政府目前宣布“已经压制”马里乌波尔，大概是为了在俄罗斯东正教的复活节即将到来之际向国民宣布取得“一定的成果”的需要。
+原文链接：[https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
-“此外，在围绕军事上并不重要的钢铁厂的战斗中，军队不必耗费更多的装备和兵员。因此，到了现在，他们可以专注于真正重要的顿巴斯战役”，前司令说。
-
-关于俄乌战争的现状对哪边更有利的问题，巴隆兹回答说：“这是一个非常微妙的平衡。”
-
-下一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（4/5）](https://gnews.org/zh-hans/2393628/)
-
-参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
-
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-素材：宫米叶
-审核：Bryan
-校对：zicoround
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
