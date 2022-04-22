@@ -2,32 +2,36 @@
 ---
 
 
-## 星链在乌克兰击退了俄罗斯的干扰攻击
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2393332/)
+## 加拿大强制疫苗政策加剧军队人员短缺
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393461/)
 
-NEWSMAX 4月22日报道，据五角大楼的一名官员称，SpaceX公司的卫星互联网部门星链（Starlink）成功抵御了俄罗斯在乌克兰的干扰攻击。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S-5.jpg)newsgroove.co.uk
-国防部长办公室电子战主任戴夫·特伦佩尔（Dave Tremper）周三（4月20日）在C4ISRNET会议上详细介绍了这次攻击。
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506516691.png)图片来源：CTV新闻
 
-根据C4ISRNET网站上的一份报告，特伦佩尔指出，星链上个月能够迅速挫败俄罗斯干扰卫星宽带服务的努力。该服务一直让乌克兰与互联网保持连接。
 
-据路透社报道，SpaceX公司的亿万富翁伊隆·马斯克在俄罗斯入侵乌克兰几天后表示，该公司的星链服务在乌克兰可用，SpaceX公司正在向该国发送更多终端，该国的互联网已经被战争破坏。
+据【CTV新闻】4月19日报道，由于新兵招募和培训因疫情而被迫中断，加拿大军队目前已出现兵员持续短缺的现象。而联邦政府针对服役人员的强制疫苗政策使以上情况变得更加严重。
 
-“星链现在可以在乌克兰提供服务，更多的终端正在路上。”马斯克在回应一位乌克兰政府官员的推文，该官员要求马斯克为这个陷入困境的国家提供星链站点时宣布。
+据悉，国防部去年命令所有军人必须在 12 月中旬之前完全接种疫苗。该命令到期后，军方已向近 1,000 名拒绝接种者发出警告，同时对 445 名违抗接种令的成员进行了正式审查。
 
-但在俄罗斯干扰攻击的消息流传开来后，“星链已经甩出一行代码并修复了它。” 特伦佩尔说，“突然间，[俄罗斯的干扰攻击]就不再有效了。”
+国防部发言人当天称，自去年12 月以来，已有 39 人因违反接种令被军队开除，206 人正在被开除的过程中，另有94 人自行辞职。而目前加拿大军队距离人员满编则缺少大约 10,000 名军人。
 
-他说星链抵御攻击的能力 “非常好”。
+原文链接：[https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248](https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248)
 
-据Insider报道，特伦佩尔补充说：“有一个非常有趣的案例研究，看看星链解决这个问题的能力有多敏捷。当威胁出现时，星链能够有升级的方式，我们需要这种敏捷性。”
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【活力人生】
+素材/采编 -【活力人生】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-**快评**：我们乐见马斯克的星链这样的成功。我们在波兰前线的救援中心的WIFI仰仗的就是星链服务啊，给12000多已经得到救助的难民和营地里各救援机构提供免费WIFI和新中国联邦现磨的咖啡已经成了招牌。感谢星链给力。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：
-[https://www.newsmax.com/newsfront/starlink-russia-jamming-attack-elon-musk/2022/04/22/id/1066816/](https://www.newsmax.com/newsfront/starlink-russia-jamming-attack-elon-musk/2022/04/22/id/1066816/)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

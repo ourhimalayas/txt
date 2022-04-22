@@ -2,17 +2,36 @@
 ---
 
 
-## 喜币是一个稳定价值的数字化
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2393496/)
+## 专家称快速检测试剂或对新毒株无效
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393584/)
 
-**听写：叮叮    编辑：文宝**
-
-CDN就是今天网络数据的创始人、数字货币的大佬，你任何数字货币你不用CDN你活不下去的，世界上60%的流量是人家CDN的数据给的，写了一篇HCN喜币的文章。他写到好的我都不好意思看了你知道吗？是吧？哪有写得这么好的文章啊，是吧？我以为是咱战友在里边儿呢，但是CDN不会听任何人的话。“这是一个稳定的，保证喜币一个稳定价值的一个数字化，尝试革命性的”，哇塞！这个词儿，比特币从来没享受过这个殊荣。比特币是99.9都是在诈骗、欺骗、犯罪工具这些语言中长大的，我们现在被人家突然说好话，有点儿不好意思。所以说我分了好几段看完，看得我心里边儿，老扑扑腾腾的是吧？
-
-Q大哥鼓掌，你看Q大哥鼓掌咋鼓了吗？有没有常委的范儿？这样，这样鼓掌（学领导鼓掌的样子），一般中央领导鼓掌，为啥这样鼓你知道吗？这叫身份，常委哪有这样鼓的）？都“路大脑袋”傻货，这样鼓是吧？人家Q大哥（学Q大哥鼓掌）。
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506543521.png)图片来源：CTV新闻
 
 
+据【CTV 新闻】近日报道，加拿大人两年来首次在没有限制的情况下庆祝复活节和逾越节。但公共卫生专家仍呼吁公众保持谨慎，特别是需要多次使用快速抗原自我检测方式来确认是否被病毒感染。
 
+对此，安大略省医生朱尼认为，由于目前对奥米克戎BA.2亚变体缺乏了解，现有的快速检测试剂很难保证绝对有效，因此建议加拿大人在聚会活动前至少进行两次间隔24小时的快速自我检测，并在没有任何症状下才参加社交活动。
+
+尽管加拿大的奥米克戎亚变体最初的传播速度相对缓慢，但目前该变体已是曼尼托巴省和安大略省最主要的新冠病毒传播种类。
+
+原文链接：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【晨熹 】
+素材/采编 -【硫酸氢氯喹64】
+校对/审核 -【硫酸氢氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

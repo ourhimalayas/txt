@@ -2,27 +2,19 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393312/)
+## 财富已经成了统治人类的最重要的工具
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2393459/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-6.jpg)
+**听写：叮叮    编辑：文宝**
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](https://gnews.org/zh-hans/2383091/)
+大家看到喜币的时候，我再重申一遍：不管过去人类多少年，还有未来人类还有多少年，任何币，不管是数字币、还是说法币，你这个人家挣了钱，人家劳动力的交换的结果，现在你…谁都可以决定不让他花钱，财富已经成了统治人类的最重要的工具，记住这个词儿啊——最重要的工具。你看加拿大的这个“土豆”了吗？大卡车你不走是吧？老子先把你账号封了，捐款——我给你没收了。你再看在美国这么伟大的国家，你到银行开个户、你转个钱，你看看在那个美国银行，我们战友的钱直接给没收了。就是美国国土安全部未经开会，竟然签署文件，把战友的钱给没收了。就是因为“九指妖”给他做假证，说战友全是共产党员，然后国土安全部的人就威胁战友做假证，然后他就敢把这个文件给签了，你说这个混蛋到了什么程度？无法无天！
 
-音频处理：Fei797
-发稿：Fei797
+你以为共产党就是世界上最坏的吗？如果西方的法治没有一个控制的话，它比共产党还坏。人类本身需要法律，这就是任何没有法律的国家你都不会安全，你看“土豆”，他整个把大家给封掉了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+我告诉你们，谁都没有意识到对你最大的威胁、世界上你最安全的：第一个：你手里面作为老百姓来讲，一个工薪阶层来讲你手里就有钱，钱是唯一让你吃下去、活下去、住房子的、生孩子的、养病的，信用卡就是金融系统。如果没有这个，你连个奴隶你都不是，在美国、在中国、在北朝鲜都一样，你跟死人没啥两样，不如死了呢。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,43 @@
 ---
 
 
-## 加拿大魁省疫情毫无减弱趋势
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393242/)
+## 马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（下）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393382/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506482411-1.png)图片来源：CTV新闻
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-39.jpg)
+上一篇：[马里乌波尔钢铁厂的乌克兰军队”最后一次向世界呼救”，寻求援助营救平民（中）](https://gnews.org/zh-hans/2393368/)
 
+乌克兰伊琳娜・韦列舒克副总理在电报（Telegram）说，因为俄罗斯对本国部队“不能控制”，导致人道主义走廊未按计划起作用。
 
-据[CTV新闻]4月19日报道，最新数据显示，加拿大魁省当天因感染新冠病毒而住院的人数上升至2281人，因此而死亡的总人数现已接近15000人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-362.jpeg)图片来源：BBC新闻
 
-由于受疫情影响，包括因感染病毒而隔离以及等待病毒检测结果等原因，已有超过1万名医护人员被迫暂停工作。同时，魁省当天确诊了约2000例新增病毒感染，但卫生部承认，实际感染数字可能要高出10倍。
+据说，只有数十人能够疏散到扎波罗热。
 
-目前，已有91%的魁北克人接种了新冠病毒疫苗，其中，54%的人已注射了三剂。
+韦列舒克说，疏散行动将于4月21日恢复，并补充道“我们将为你们每个人而战”。
 
-原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+建议就马里乌波尔进行“无条件”谈判
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+率团与俄罗斯谈判的乌克兰总统顾问米哈伊洛・波多利亚克说，准备就被俄军包围的马里乌波尔举行不附加条件“特别谈判”。
+
+波多利亚克在推特上发文说，该建议是为了“营救我们的朋友、亚速（营）、部队与平民、儿童以及幸存者和伤员”。
+
+俄罗斯说它已经成功地测试了一枚洲际弹道导弹的发射
+
+在此背景下，俄国防部宣布“萨尔马特”洲际弹道导弹的成功试射，并公布了试验视频。
+
+普京总统说，这将使那些试图威胁俄罗斯的人重新考虑。
+
+美国国防部说，这次试验是“例行公事”，事先已接到通报。
+
+参考链接：[マリウポリ製鉄所のウクライナ軍、民間人救出の支援求める　「世界への最後の訴え」 – BBCニュース](https://www.bbc.com/japanese/61158260)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+发稿：宫米叶
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

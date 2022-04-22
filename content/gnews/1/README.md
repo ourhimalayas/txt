@@ -2,37 +2,22 @@
 ---
 
 
-## 加拿大通胀率失控再创新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393519/)
+## 马里乌波尔的万人坑：多达 9000 具尸体被掩埋
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2393599/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506529781.png)图片来源：CTV新闻
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04226.jpg)图片来自today.it
+卫星捕捉到的图像似乎证实了乌克兰马里乌波尔郊区不断扩大的万人坑，这座城市数周以来一直处于俄罗斯在乌克兰猛烈进攻的中心。在位于马里乌波尔以西约 10 公里的一个村庄附近挖了数百个坑。根据《纽约时报》的分析，这些是在 3 月至 4 月的两周内挖出的坑。屠杀的人数正按小时上升，有多达9000人死亡。
 
+来自美国卫星图像提供商 Maxar Technologies 显示，截至 4 月 6 日，坑的数量大幅增加，大约有 200 个新坑是新挖的。
 
-据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国目前的通胀率已接近7%，并达到自1991年以来消费价格指数同比增幅的最高水平。
+该市市长瓦迪姆·博伊申科（Vadym Boishenko）今天表示，俄罗斯通过将在爆炸中丧生的平民尸体埋在一个新的万人坑中，隐藏了其在马里乌波尔犯下野蛮战争罪行的证据。一些俄罗斯卡车收集了尸体，随后被秘密地扔进了万人坑。
 
-据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年以来的最大涨幅。
+市长估计，自俄罗斯军队在普京入侵的头几天开始袭击该市以来，已有超过 20,000 名马里乌波尔居民丧生。他说，现在大部分尸体已被运走，而有些尸体则被丢弃在移动火葬场。马里乌波尔市议会说，俄罗斯人在曼胡什附近建立了一个集体墓地。
 
-报道称，尽管平均工资增长了3.4%，但仍然远低于持续上升的通胀率，并最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
+原文链接: [https://www.today.it/mondo/fosse-comuni-mariupol-foto-oggi-guerra-in-ucraina.html](https://www.today.it/mondo/fosse-comuni-mariupol-foto-oggi-guerra-in-ucraina.html)
 
-原文链接：[https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
-
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【自由法兰西】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

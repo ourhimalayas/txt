@@ -2,36 +2,27 @@
 ---
 
 
-## 【G时新闻】加拿大民调显示病毒感染者存在长期后遗症
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2393232/)
+## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393312/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据【CTV新闻】4月19日报道，最新民调显示，大约25%的加拿大受访者承认他们感染过新冠病毒，该感染率明显高于官方数据水平。同时，调查结果不仅让人们看到了病毒感染的长期风险与症状，而且还认识到疫情仍远未结束。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-6.jpg)
 
-在这项4月初对近1600名加拿大人进行的在线调查中，30%的18至34岁受访者表示他们感染过新冠病毒，55岁及以上的受访者中则为12%。
+文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](https://gnews.org/zh-hans/2383091/)
 
-同时，社交活动越频繁，例如经常去餐馆、酒吧和聚会的人更容易被病毒感染。
+音频处理：Fei797
+发稿：Fei797
 
-调查还显示，60%的感染者表示他们有轻微的症状，而34%的人表示他们有严重的症状，例如极度疲劳，肌肉和关节长期疼痛，甚至无法卧床等。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-此外，尽管与事实相反，但超过50%的受访者表示，疫情最严重的时期已经过去，而且情况正在好转。
-
-盖特链接：[https://gettr.com/post/p16jqm30983](https://gettr.com/post/p16jqm30983)
-
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,36 @@
 ---
 
 
-## 新中国联邦在援乌前线新建的室外显示屏遭破坏
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2392851/)
+## 中共对上海大隔离期间网路言论进行清算
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2393049/)
 
-撰稿、编辑：Candy
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/03gao-master1050.jpg)
+4月21日直播时郭先生提到上海的大隔离可能很快就结束了，但接下来就是进行隔离后的网络言论审查与清算。当地时间4月22日，郭先生在盖特视频中爆料，上海大隔离期间，发布出上海老人因为没有食物饿到吃粪便致死这件事的义工，被中共定义为国外势力操纵的对共产党造成巨大伤害的舆论攻击行为，郭先生笑言，这个义工简直就是创造了历史。
 
-波兰时间4月22日，前线记者猫本小哥传来视频：新中国联邦和法治基金刚刚在室外成功竖起的LED显示屏遭到破坏，被人剪断电线，造成显示新中国联邦和法治基金信息的显示屏停止工作，不能显示任何文字图像。
-视频来源：猫本小哥
-这个巨大室外显示屏，昨天刚刚在梅迪卡营地竖立起来，而且正常工作。为了保证巨大显示屏不受风力影响，保证过路人等的安全，施工人员和战友们冒雨艰难地拖运近一吨的专用水箱，放置到大屏幕的旁边。当地消防车又特意运来两吨水，灌注在这两只水箱里。
-视频来源：小小酥视频来源：小小酥
-这组巨大的液晶显示屏高六米，由两块各朝一方的LED屏幕组成，远远就能看到，俨然一组“擎天柱”。它的清晰度很好，其中一块屏幕显示着新中国联邦和法治基金的文字、标识等；另一块屏幕显示着营地其它国际救援组织的信息。
+而中共自己发出的新闻也证实了郭先生的爆料。中共喉舌文章发表消息称对所谓传播谣言的30个网路群组封禁，对23名发布谣言的国内微信个人用户进行处罚。在网路热传的上海人道大灾难中，上海民警背假人，孕妇早产死亡、援助物资无人接收、蔬菜烂在地里卖不掉，这些都是老百姓身边发生的真实事件，中共将这些都定义为谣言，还进行了辟谣，把天下人当傻子一样戏耍。
 
-它的建成，迅速引来营地志愿者及难民们的关注，很多人兴奋地竖起大拇指，并与大屏幕合影。
-视频来源：Nicole![Image](https://media.discordapp.net/attachments/950448401529577502/967064311619006524/image0.jpg?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/967064936901640272/IMG_0696.png?width=598&amp;height=369)图片来源：Nicoel
-然而，今天早间传来消息，显示新中国联邦和法治基金的这块显示屏已经停止工作，因为它的电线已经被人剪断，警察正在现场进行调查。
+reference：
 
-这种低级下作的破坏手段，不要说，大家也能猜出来是谁做的，是谁在背后指使做出来的。让我们拭目以待。中共一贯在世界各个角落上演这种见不得人的丑恶行径，不灭中共，世界就不得安宁。消灭中国共产党！
+[https://gettr.com/post/p16mdd865c9](https://gettr.com/post/p16mdd865c9)
 
-相关资讯：[https://gnews.org/zh-hans/2391816/](https://gnews.org/zh-hans/2391816/)
+[https://china.huanqiu.com/article/47hGPtPxqqJ](https://china.huanqiu.com/article/47hGPtPxqqJ)
 
-***发布：Candy***
+撰稿、发布：骄子
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+* * *
 
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
