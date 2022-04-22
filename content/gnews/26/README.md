@@ -2,29 +2,40 @@
 ---
 
 
-## 有声｜拜登禁止俄船进入美港
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2390953/)
+## 有声|普京认为西方对俄罗斯发起的“经济闪电战”已经失败
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2391026/)
 
-By:**秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯总统普京4月18日在与高级经济官员的视频通话中表示，西方正试图透过经济制裁，造成俄罗斯银行体系崩溃以及货物短缺，但最终俄罗斯顶住了这前所未有的压力，西方发动的“经济闪电战”已经失败。
 
-**2022-04-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-165639.jpg)
-[Newsmax](https://www.newsmax.com/newsfront/ships/2022/04/21/id/1066713/)4月21日报道，美国总统拜登周四宣布，美国将禁止附属于俄罗斯的船只进入美国港口。这是美国与加拿大和欧洲国家一道，就俄罗斯入侵乌克兰一事向其施压的最新措施。
+在西方制裁的影响下，俄罗斯国内商品价格上涨，截至4月8日，俄罗斯通胀率为17.5%。但普京坚称，目前卢布汇率已经稳定，外汇也已经回流俄罗斯银行，国内的通胀正在趋于稳定。在普京看来，制裁对发动者本身也是有代价的，西方对俄罗斯祭出制裁措施将导致西方经济走向恶化。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-50.jpg)
+早前，奥地利总理内哈默在与普京会面结束后，向媒体表示，普京似乎对自己在乌克兰的军事行动相当有信心，相信自己“正在胜出这场战争”。内哈默指出，对于俄军在乌克兰犯下的罪行指控，普京套用自己的战争逻辑，反指乌克兰在顿巴斯（Donbas）地区进行种族灭绝。内哈默认为，他确信普京“知道现在发生的事”，西方领袖需要“用在乌克兰看到的事实”直接对抗普京的逻辑。
 
-拜登说，任何悬挂俄罗斯国旗或由俄罗斯实体拥有或经营的船只，都不允许停靠在美国港口或进入美国的海岸。
 
-消息人士说，在2021年，俄罗斯船只对美国港口进行了大约1800次访问，这还不到所有交通的3%。其中近90%的运输量是石油进口，而美国此前已经禁止了这种运输。
 
-该命令旨在防止俄罗斯船只进入美国，并不禁止所有俄罗斯货物的运输。
 
-美国此前禁止俄罗斯飞机进入美国领空，加拿大和欧洲国家一起采取了这一行动。
 
-（ 秘翻新闻 大树  编译报道）
+文字版原文：[普京认为西方对俄罗斯发起的“经济闪电战”已经失败](https://gnews.org/zh-hans/2388178/)
 
-发布:星星
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

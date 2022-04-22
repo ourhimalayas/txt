@@ -2,27 +2,35 @@
 ---
 
 
-## 中日财经爆┃几内亚:俄乌战争导致面粉价格上涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390955/)
+## 美国空军为乌克兰开发了“幽灵”无人机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391031/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-俄乌战争造成全球粮食供应紧张。在濒临大西洋的西非国家几内亚，面包在过去十年中，成为了一种主食。如今，连面粉厂都感受到了全球小麦价格的压力。因为，几内亚消费的小麦完全依赖进口。
+#### 【雅典娜快讯】，紧贴时代脉博
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-94.png)图片来源于本文链接
+**整理/编辑：文泓**
 
-在几内亚，小麦价格被纳入社会稳定的指标。涨价会引起民怨。整个行业因俄乌战争而面临非常大压力。小麦价格上涨有可能造成严重的社会经济后果。每个大约5000非洲法郎（相当于0.5欧元）的面包，可供4-5人食用。而一盘米饭的价格超过5000非洲法郎。Sonoco集团的总裁（PDG）在采访中解释说，在几年间，法式长棍面包成了穷人的食品。现已不能随意改变价格。因为，它成了一种政治产品，并已决定斋月期间不提价。当前亏损经营是企业做出的一项重大决策，为了几内亚民众和政府。小麦价格在不到一年里，每吨提价超过200美元。唯一的解决办法就是消费者得支付多一点。小幅度的提价在消费者层面将不会造成问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/f51503b914590f7c.jpg)图片来源：The Financial Express & 雅典娜设计组
 
-信息来源： [几内亚:俄乌冲突影响到面粉厂](https://www.rfi.fr/cn/%E9%9D%9E%E6%B4%B2/20220421-rfi-%E6%B3%95%E5%B9%BF-%E5%B0%BC%E5%8F%A4%E6%8B%89-%E9%9D%9E%E6%B4%B2-%E5%87%A0%E5%86%85%E4%BA%9A-%E4%BF%84%E4%B9%8C%E5%86%B2%E7%AA%81%E5%BD%B1%E5%93%8D%E5%88%B0%E9%9D%A2%E7%B2%89%E5%8E%82)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+4月21日，美国国防部发言人柯比表示，作为给乌克兰8亿美元军事援助的一部分，美国空军为乌克兰开发了“幽灵”无人机，乌克兰军队将有能力从空中打击俄罗斯军队和装备，不一定需要像地面武器那样接近目标。
+
+这些无人机的详细信息，包括射程或确切作战能力，外界所知甚少。同日白宫表示，作为新一波对乌军事援助的一部分，美国将向乌克兰提供超过121架幽灵无人机系统。
+
+美国国防部称，目前只有不到十名乌克兰人在美国接受了操作“弹簧刀无人机”（Switchblade）的培训，这种一次性武器飞向目标后，会在撞击时引爆。
+
+柯比说，“幽灵”无人机“专为战术行动而设计”,“主要但不限于攻击目标。它与几乎所有无人机系统一样，具有光学系统，它的主要焦点是攻击，也是一款自杀性无人机”。
+
+原文链接：[美国空军为乌克兰开放“幽灵”无人机](//www.dw.com/zh/%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E7%A8%B1%E7%83%8F%E6%9D%B1%E5%9F%8E%E5%B8%82%E5%B0%9A%E6%9C%AA%E6%B7%AA%E9%99%B7-%E7%BE%8E%E6%8F%90%E4%BE%9B%E7%83%8F%E5%85%8B%E8%98%AD%E7%84%A1%E4%BA%BA%E6%A9%9F/a-61552455)
+
+发布：文武全才
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
+
+
 
  
 

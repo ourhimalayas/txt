@@ -15,143 +15,143 @@
 
 ---
 
-### [有声｜上海多个行政区突然封路](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [COVID-19疫苗副作用集萃(2022.4.22I) 混打三针疫苗后对身体影响太大](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【转】被“和谐”的微博文章《上海是可以预示未来一百年的大河》](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
+### [COVID-19疫苗副作用集萃（2022.4.22H）－打完辉瑞加强针迅速身体虚弱](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [樱花时政┃震惊！中共白手套刑鞭卢旺达工人被判重刑](/content/gnews/3/README.md)
+### [中共银行系统开始崩塌](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [荒唐！李毅神论之啊Q正传之美、日、欧制裁](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/4/README.md)
- ` NFSC News`
+### [制裁开始严重伤害俄罗斯](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [秘翻在线：“地产代理航母”易居企业控股因美债违约爆雷](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
+### [COVID-19疫苗副作用集萃(2022.4.22G) 三针疫苗后身体副作用明显](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [樱花时政┃日本跨党派议员联盟超100人集体参拜靖国神社](/content/gnews/6/README.md)
+### [樱花时政┃不想送死！俄年轻人放火烧征兵处资料库](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢](/content/gnews/7/README.md)
- ` NFSC News`
+### [中日财经爆┃日本邮政停发中共国境内包裹](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜最新民调显示逾6成日本人主张对中共强硬](/content/gnews/8/README.md)
+### [有声｜普京命令部队封死亚速钢铁厂](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [peter mccullough 博士称有报告显示，2020一整年的疫情袭击，死亡25万，强制疫苗后的一年扩大到75万](/content/gnews/9/README.md)
+### [有声｜上海多个行政区突然封路](/content/gnews/10/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【转】被“和谐”的微博文章《上海是可以预示未来一百年的大河》](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花时政┃震惊！中共白手套刑鞭卢旺达工人被判重刑](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [秘翻在线：“地产代理航母”易居企业控股因美债违约爆雷](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花时政┃日本跨党派议员联盟超100人集体参拜靖国神社](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢](/content/gnews/16/README.md)
+ ` NFSC News`
+
+### [有声｜最新民调显示逾6成日本人主张对中共强硬](/content/gnews/17/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [peter mccullough 博士称有报告显示，2020一整年的疫情袭击，死亡25万，强制疫苗后的一年扩大到75万](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [航班熔断机制进一步打击香港枢纽地位](/content/gnews/10/README.md)
+### [航班熔断机制进一步打击香港枢纽地位](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命联合西方成就护台神队](/content/gnews/11/README.md)
+### [爆料革命联合西方成就护台神队](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [第四剂新冠疫苗加强针无人去打](/content/gnews/12/README.md)
- ` xiaobaige`
-
-### [美罗德岛议员提议对未接种疫苗孩子的父母加倍征收所得税](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中日财经爆┃物价上涨，日本拟向低收户每孩子发5万日元](/content/gnews/14/README.md)
+### [中日财经爆┃物价上涨，日本拟向低收户每孩子发5万日元](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港铁票价话语权将被共产](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声｜ 上海民调：半数外国人准备离开 还有四成待定](/content/gnews/16/README.md)
+### [有声｜ 上海民调：半数外国人准备离开 还有四成待定](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [习近平迷信莫德尔周期，中共自取灭亡](/content/gnews/17/README.md)
+### [习近平迷信莫德尔周期，中共自取灭亡](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失](/content/gnews/18/README.md)
+### [中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国空军为乌克兰开发了“幽灵”无人机](/content/gnews/19/README.md)
+### [美国空军为乌克兰开发了“幽灵”无人机](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜卫星图像现马里乌波尔乱坟岗](/content/gnews/20/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声|普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/21/README.md)
+### [有声|普京认为西方对俄罗斯发起的“经济闪电战”已经失败](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [澳州记者怀疑中共用其做幌子在所罗门群岛实施间谍和贿赂活动](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文·贵天成——文贵先生谈“习近平”（六）](/content/gnews/23/README.md)
+### [文·贵天成——文贵先生谈“习近平”（六）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯军事研究院在最大的化工厂被吞没后几小时神秘起火](/content/gnews/24/README.md)
+### [俄罗斯军事研究院在最大的化工厂被吞没后几小时神秘起火](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆┃几内亚:俄乌战争导致面粉价格上涨](/content/gnews/25/README.md)
+### [中日财经爆┃几内亚:俄乌战争导致面粉价格上涨](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜拜登禁止俄船进入美港](/content/gnews/26/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [中共政权岌岌可危 新中国联邦拯救中国人](/content/gnews/30/README.md)
+ ` NFSC News`
 
-### [上海疫情｜中共宣布今起开展九大“清零”攻坚行动 民众斥“没完没了，解封无望”](/content/gnews/27/README.md)
+### [有声|针对王岐山的爆料仍未完结](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [期盼已久的解封未现却惊见铁丝网封路 上海是在防疫吗](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花时政┃拜登宣布向乌追加援助](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本东京樱花团 中文新闻播报第55期](/content/gnews/34/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [2022年4月22日战时快讯（1）](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/36/README.md)
  ` 關注組`
 
-### [中共政权岌岌可危 新中国联邦拯救中国人](/content/gnews/28/README.md)
- ` NFSC News`
-
-### [有声|针对王岐山的爆料仍未完结](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [期盼已久的解封未现却惊见铁丝网封路 上海是在防疫吗](/content/gnews/30/README.md)
+### [美SEC再将17家中企列入准除牌名单](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃拜登宣布向乌追加援助](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|美、澳、日、新重提印太风险](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [2022年4月22日战时快讯（1）](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [白宫官员：证据显示共军正帮助俄军](/content/gnews/34/README.md)
- ` 蓝莲花农场`
-
-### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/35/README.md)
- ` 關注組`
-
-### [美SEC再将17家中企列入准除牌名单](/content/gnews/36/README.md)
+### [在掩盖中共病毒起源方面起关键作用的科学家受谷歌资助](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [在掩盖中共病毒起源方面起关键作用的科学家受谷歌资助](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [G20会议:尽管战争，俄罗斯仍参加在华盛顿举行的财长会议](/content/gnews/38/README.md)
+### [G20会议:尽管战争，俄罗斯仍参加在华盛顿举行的财长会议](/content/gnews/39/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [高盛将摩根士丹利的大宗交易报告给香港证监会](/content/gnews/39/README.md)
+### [高盛将摩根士丹利的大宗交易报告给香港证监会](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [埃隆-马斯克“愿意用个人财产投资多达150亿美元”，将Twitter私有化](/content/gnews/40/README.md)
+### [埃隆-马斯克“愿意用个人财产投资多达150亿美元”，将Twitter私有化](/content/gnews/41/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆┃美国半导体巨头关闭上海全球配送中心 中共芯片供应链加速崩溃](/content/gnews/41/README.md)
+### [中日财经爆┃美国半导体巨头关闭上海全球配送中心 中共芯片供应链加速崩溃](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年4月21日 郭文贵先生和长岛哥、Rachel临时直播](/content/gnews/42/README.md)
+### [2022年4月21日 郭文贵先生和长岛哥、Rachel临时直播](/content/gnews/43/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD](/content/gnews/43/README.md)
+### [中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害](/content/gnews/44/README.md)
+### [调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/45/README.md)
+### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/46/README.md)
  ` 關注組`
-
-### [【每日聚焦】俄乌战事4月22日简要](/content/gnews/46/README.md)
- ` 蓝莲花农场`
 
 ### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/47/README.md)
  ` 關注組`

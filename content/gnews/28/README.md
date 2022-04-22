@@ -2,22 +2,25 @@
 ---
 
 
-## 中共政权岌岌可危 新中国联邦拯救中国人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390951/)
+## 俄罗斯军事研究院在最大的化工厂被吞没后几小时神秘起火
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390966/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
-在419五周年大直播中，在谈到五年爆料革命的发展对中共体制的影响时，郭文贵先生表示，自俄乌战争开始起，中共党内很多人士已经意识到，中共政权岌岌可危。中共党内人士清楚地知道，习近平坚定地与普京合作，就是自取灭亡。上海封城事件，让更多体制内人士认识到中共的邪恶本质。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364044.jpg)
-郭先生称，西方世界已掌握所有在中共机关任职人员的相关信息。中共党内人士清楚地知道，一旦攻打台湾，中共将面临更加严厉的国际制裁，与中共有关的海外资产将被查封。 所谓“君子不立于危墙之下”，实际上是中共之墙危在旦夕。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-150.jpg)
+图片来源： www.sohu.com
 
-参考链接：[4/19/2022【419五周年】](https://gettr.com/post/p16446n7800)
+零对冲网4月21日报道，据俄罗斯国立电视台塔斯社报告，周四位于特维尔市的俄罗斯国防部研究院突发大火，目前已造成7人死亡，消防人员下午一直在努力灭火。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-188.jpg)
+目前起火的原因或者还不清楚，或者不被俄罗斯所披露，但是人们提出了很多问题，这是发生在俄罗斯在特维尔的最大的化工厂大火后的几小时，已有150名化工厂工人紧急撤离该厂。后者已吞灭了位于该化工厂的天空防御部队的秘密研发中心。
 
-总编：雪梨
+英国媒体报道最新的秘密大火是这一天的第二次大火。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+西方主流媒体安全分析师们正在分析同一天出现两次大火是否是主动破坏。
+
+俄罗斯媒体报道了发生在特维尔的俄罗斯国防部研究院的神秘大火，该地点位于莫斯科西北部110公里，那里很可能有爆炸。
+
+#### 新闻来源： [Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
