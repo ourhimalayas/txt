@@ -2,57 +2,158 @@
 ---
 
 
-## 风林往事——天黑村里静悄悄
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390083/)
+## 台湾大部分军方已被收买，台湾无人机来自中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390379/)
 
-作者：在天为风在地为林
-编辑：伏而起之
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2738.png)图片来源：pxhere.com
-狗拿耗子多管闲事，这是一句骂人的话，但曾经狗确实是抓老鼠的主力军。童年时期，我经常看到狗嘴里叼着老鼠，村里的狗基本一个样，要想吃到肉就得抓老鼠。那个时候，人们一年最多也就吃一两次肉，谁家有肉给狗吃？
+第二个现在我们要谈一下这个
+El segundo que hablaremos ahora
 
-一九七七年，文化大革命虽然结束了，但我们农村的生活没什么太大的变化。集体的土地产出那点可怜的粮食依然交到国家粮库去，家里喂的“任务猪”也要交到公社食品公司去，自家能留下一颗猪头就很美啦。公社、学校和村里，到处刷着“节约粮食”的标语，老人们也私下叨叨着：不会再有一次六零年代的饿死人吧？
+关于台湾的问题
+Acerca del problema de Taiwán
 
-村里家家都有狗，多的三、四条，少也有一、两条。我们生活的地方水位高，盐碱含量高。当时没有经济条件使用砖，只能用土块砌低矮的墻，高了自然倒。狗成了家家户户看门的主力，平常里最糙的麸皮、高粱皮，加上一些玉米面是狗狗的美味伙食。
+台湾的情报部门
+El Departamento de Inteligencia de Taiwán
 
-这一年的春天，村里来了打狗队，说是为了响应“节约粮食”的号召要彻底捕杀村里的狗，做到一只不留、藏狗坐牢等等。村里大喇叭喊着，场面（当地人秋季收粮食，人工脱麦粒的地方，当地人叫场面）
+台湾的军队绝大多数
+La mayoría del ejército de Taiwán
 
-上枪声不断，村里可怜的狗狗哀嚎连连。
+都已经被收买了
+Fueron sobornados
 
-当时，打狗队用一种半自动步枪把拴在木桩上的狗狗全部都给打死了。打狗队十几个人要回大队部了，走的时候拉着村里最肥的两条狗，说是回队部吃，得要吊死了吃，不能用枪打，说这样吃肉香。
+仗一开打
+Una vez que la guerra comience
 
-村里孩子们一片哭声，胆大的也骂，但到最后村里人把自家的狗各自拖回去吃了。由于民族信仰和习惯，我家把三条狗悄悄埋在村东的柳树林里。
+台湾这一定
+Taiwán de seguro
 
-快六十岁的我老能梦见这三只狗，前几年回去看看，树林子早已不在，都被开成了地。我站在那里吸了两支烟，哎，真的伤神啊！狗狗的生命，主人无权保护，是谁造成的？
+第一个卖老百姓的
+El primero que venderá al pueblo taiwanés
 
-再看一下我们现在的处境，和那年的狗狗有什么区别？那时全国打狗，现在我们是全国清零，到处封城，饿死的、自杀的还少吗？这些天，物流中断，百业萧条，没完没了的核酸检测，人们和那些无助的狗儿有什么区别？
+一定是台湾的军方和情资部门
+Absolutamente será la agencia militar y el Departamento de Inteligencia de Taiwán
 
-同胞们啊！快醒来吧，我们毕竟是人啊！大家团结一次吧！我们没有勇气和这个邪恶的体制拼命，但有一点点不配合总行吧？全国人民都不配合，他们就不可能像杀狗一样把我们都杀了吧？
+台湾最近买了很多这个无人机
+Recientemente, Taiwán compró muchos drones
 
-杀狗之后，村里便安静了，夜间路过牛棚你能听到牛儿反刍的声音。这是夜里最黑的时候，村里到处静悄悄，人们依然睡得很死。
+无人机你知道是哪儿造的吗
+Sabes ¿de dónde fueron fabricados estos drones?
 
-往期回顾：
+无人机都是大陆造的
+Fabricados por China
 
-[风林往事——“外来户，想落户，见了支书脱裤裤”](https://gnews.org/zh-hans/2314590/)
+记住七哥今天说的话
+Recuerda lo que dije hoy
 
-[风林往事——你要吃老鼠吗](https://gnews.org/zh-hans/2316109/)
+记住啊
+Recuerda
 
-[风林往事——父亲的驼背](https://gnews.org/zh-hans/2315134/)
+4月14号郭文贵说的
+Lo que dijo Wengui Guo el 14 de abril
 
-[风林往事——牛叉的马车官](https://gnews.org/zh-hans/2333278/)
+台湾买的无人机都是大陆造的
+Los drones comprados por Taiwán son fabricados en China
 
-[风林往事——小小反动派](https://gnews.org/zh-hans/2320407/)
+大陆把无人机卖哪儿了
+Y a dónde los vendió China
 
-[风林往事——悲鸣的孤雁](https://gnews.org/zh-hans/2325413/)
+卖给澳大利亚
+Se los vendió a Australia
 
-[风林往事——两捆皮筋](https://gnews.org/zh-hant/2350383/)绳
+台湾的军人再从澳大利亚
+Luego los soldados de Taiwán desde Australia
 
-*发布：tianzhihuan*
+把无人机买回去, 买回到台湾
+Compraron los drones para Taiwán
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+你打什么仗
+¿Con qué vas a pelear?
+
+现在大陆, 上海
+Ahora China, Shanghai
+
+光给台湾的美金, 现金
+Los dólares en efectivos dados a Taiwán
+
+包括黄金
+Incluyendo el oro
+
+现在是大批量地给
+Ahora les están dando en gran cantidad
+
+给到他们上海的家人
+A sus familiares que están en Shanghai
+
+有些是给到这个台湾
+Algunos se los han dado en Taiwán
+
+不但如此
+No sólo esto
+
+而且向他们许诺一旦开战
+También les prometió, una vez que la guerra inicie
+
+就会把他们家人安置好
+Cuidarán de sus familias
+
+战后呢, 拿回来台湾
+Luego de la guerra, vuelven a Taiwán
+
+土地都分好了
+Ya los terrenos están divididos
+
+什么人有, 什么人有
+Fulano tiene, mengano tiene
+
+台湾危也
+Taiwán está en peligro
+
+我今天说的话大家走着看
+Verán lo que dije hoy
+
+我向全世界政府
+Informo a los gobiernos de todo el mundo
+
+我向他们保证, 郭文贵承担责任的
+Les prometo que Wengui Guo asume la responsabilidad
+
+台湾的无人机是来自中国共产党的
+Los drones de Taiwán provienen del PCCh
+
+所以说美国人到时候得气死
+Por eso los estadounidenses se enojarán después
+
+发现帮台湾打仗
+Se darán cuenta que ayudar a Taiwán a luchar
+
+结果台湾的无人机是买自大陆的
+Pero resulta ser que los drones son comprados en China
+
+走着看啊走着看
+Verán
+
+所以台湾危也了吧
+Por eso Taiwán está en peligro
+
+日期：04/20/2022
+原视频标题：台湾大部分军方已被收买，台湾无人机来自中共
+La mayor parte del ejército de Taiwán ha sido sobornada y sus drones provienen del PCCh
+
+* * *
+
+原视频日期：04/18/2022
+原视频网址：[**https://gettr.com/post/p15rcx69960**](https://gettr.com/post/p15rcx69960)
+任务编号：KC495（4281）
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

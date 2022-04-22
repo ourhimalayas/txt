@@ -2,46 +2,23 @@
 ---
 
 
-## 高盛将摩根士丹利的大宗交易报告给香港证监会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2390546/)
+## 国际｜台湾为“全球跨境隐私规则论坛”创始会员 开创多边合作新时代
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390597/)
 
-翻译: 里奇
+**港台前线 zhong｜2022-4-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-11.png)
+台湾外交部21日新闻稿表示，台湾以“创始会员”（中华台北名义）身分，与美国、加拿大、日本、韩国、新加坡及菲律宾共7个“亚太经济合作”（APEC）会员，于2022年4月21日共同发布“全球跨境隐私规则宣言”（Global Cross-Border Privacy Rules Declaration），成立“全球跨境隐私规则论坛”（Global Cross-Border Privacy Rules Forum）。此论坛成立宗旨为促进国际间不同资料隐私保护监管方法的调和与相容，开放予符合相关条件的司法管辖权实体（jurisdiction）申请加入。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+全球跨境隐私规则论坛，前身为美国在APEC力推之“跨境隐私规则”（Cross-Border Privacy Rules, CBPR）体系，美国2020年将CBPR扩大至APEC区域外，为纳入更多参与成员。台湾参与全球跨境隐私规则论坛各项协商及筹备工作。
 
+美国商务部发表成立声明， CBPR成立反映了多边合作新时代的开始，促进现代经济所必须的可信赖全球数据流， CBPR 论坛旨在建立全球跨境隐私规则 (CBPR) 和处理器隐私识别 (PRP) 系统，这是首创的数据隐私认证，可帮助公司证明符合国际公认的数据隐私标准。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-466.jpg)2021 年 5 月 26 日，星期三，中国香港的国际金融中心二期（左）和其他建筑物。香港的失业率在 4 月份连续第二个月下降，因为该市逐渐摆脱了由经济衰退引发的长期低迷。流行病和社会动荡。摄影师：Paul Yeung/Bloomberg，彭博社
-
-彭博社 – 据英国《金融时报》援引知情人士的话报道，高盛集团在三年前就其竞争对手摩根士丹利的一系列大宗交易报告给香港金融监管机构。
-
-英国《金融时报》称，高盛向证券及期货事务监察委员会发出警报，这是在摩根士丹利将大宗股票推向市场前不久就一些香港上市公司股票价格进行“非正式”讨论的一部分。该报称，包括无锡生物开曼公司股票在内的交易都在报告内容之列，目前尚不清楚香港当局是否调查了高盛个体投资者的索赔。
-
-高盛和摩根士丹利的发言人拒绝置评。证券及期货事务监察委员会没有立即回应置评请求。
-
-摩根士丹利在 2 月份披露，监管机构和检察官正在调查其大宗交易业务的各个方面，并承认该公司本身正在接受审查。近年来，摩根士丹利超越高盛，成为该行业最大的大宗交易商。
-
-美国调查人员一直在收集涉及多家银行员工和已知在机密发行中收购大量股票的外部资金经理的通讯信息。作为调查的一部分，当局正试图确定是否有任何交易撮合者不正当地向投资者提示了进行足以推动股价上涨的交易。
-
-英国《金融时报》援引彭博数据报道称，摩根士丹利在 2020 年至 2021 年期间为无锡执行了 9 次大宗交易。无锡没有任何不当行为的迹象。这家中国公司没有回应该报的置评请求。
-
-中国证券监管机构早些时候要求摩根士丹利的中国企业提供信息并就有关这家美国银行大宗交易业务正在接受美国证券交易委员会调查的媒体报道做出解释。
-
-新闻来源:[Goldman Flagged Morgan Stanley Block Trades to H.K.’s SFC: FT](https://www.bnnbloomberg.ca/goldman-flagged-morgan-stanley-block-trades-to-h-k-s-sfc-ft-1.1754766)
+来源｜台湾外交部、美国商务部
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-31.jpeg)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

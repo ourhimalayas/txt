@@ -2,29 +2,31 @@
 ---
 
 
-## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
+## 樱花时政┃乌克兰重建需要6000亿美元 总理什米加尔呼吁IMF成员国援助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390787/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌克兰总理什米加尔4月21日表示，被俄罗斯侵略破坏的乌克兰的重建将需要6000亿美元（约77万亿日元），他呼吁国际货币基金组织（IMF）成员国将特别提款权（SDR）的10%用于重建援助。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-190.jpg)[图片来源](https://www.google.com/search?q=Ukraine&amp;sxsrf=APq-WBscVf3gCQD1PLQhyYuclcOQKKMgA:1650614703671&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=LwsKOVmsw0i#:~:text=%E3%81%A6%E3%81%8F%E3%81%A0%E3%81%95%E3%81%84%E3%80%82-,The%20Atlantic,A%20Ukrainian%20Win%20Is%20the%20Only%20Acceptable%20Endgame%20%2D%20The%20Atlantic,-%E8%A1%A8%E7%A4%BA)
 
+什米加尔总理在国际货币基金组织-世界银行春季会为支持乌克兰举行的部长级圆桌会议上表示，乌克兰在短期内每月需要40-50亿美元。从长远来看，需要一个类似于二战后支持欧洲的重建的美国(马歇尔计划)。
 
-世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
+什米加尔总理透露，他已经向伙伴国家发出信函，希望提供10%的特别提款权。并且表示，乌克兰正在制定一项重建计划，其中包括加入欧盟。他呼吁提供武器和弹药，对俄罗斯施加额外的制裁压力。
 
-马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
+去年，国际货币基金组织向其190个成员国发放了创记录的价值6500亿美元的新特别提款权拨款，以帮助受中共病毒（新冠病毒covid-19）传播影响的国家。国际货币基金组织预计，乌克兰的经济今年将达到35%的负增长。
 
-目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
+信息源：[ウクライナ復興には77兆円必要－首相がＩＭＦ加盟国に支援訴え](https://news.yahoo.co.jp/articles/e824bbc51a83f240e89de5ee88c1b70ad01107e7#:~:text=%E3%82%A6%E)
 
-国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
-
-來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

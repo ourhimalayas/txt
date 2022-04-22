@@ -2,51 +2,24 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.22M）－摩德纳第三针轻轻地把人送走
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390467/)
+## 新冠病毒感染引起的嗅觉、味觉障碍治疗需长期化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390523/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/立正道
 
-整理/编辑：gardeniahu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-59.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+日本耳鼻喉科头颈部外科学会声明，随着新型冠状病毒感染(COVID-19)的流行持续，恢复后发现有倦怠感、呼吸短促、认知功能障碍等后遗症。被称为长线病毒，症状有迁延化，影响着日常生活。由于有嗅觉、味觉障碍、头晕、耳鸣、听力障碍、耳鼻喉科来诊疗的例子，日本耳鼻喉科头颈部外科学会于4月11日发表了关于医生应对患有嗅觉、味觉障碍的患者的声明。要向患者说明治疗需要很长时间，并且进行包括精神方面支援在内的诊疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2764.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.pref.osaka.lg.jp.c.agb.hpcn.transer-cn.com%2Fattach%2F23711%2F00408295%2Fkouisyo.jpg&amp;imgrefurl=https%3A%2F%2Fwww.pref.osaka.lg.jp.c.agb.hpcn.transer-cn.com%2Firyo%2Fosakakansensho%2Fkouisyo.html&amp;tbnid=7nZtruE8r_bMEM&amp;vet=12ahUKEwii9LDMmKf3AhUQ_RoKHb3rCYUQMygBegUIARCHAQ..i&amp;docid=71FQlL9RT91OSM&amp;w=400&amp;h=300&amp;q=COVID%20%E5%90%8E%E9%81%97%E7%97%87&amp;ved=2ahUKEwii9LDMmKf3AhUQ_RoKHb3rCYUQMygBegUIARCHAQ)
+嗅觉障碍为24%，味觉障碍为16%。围绕COVID-19罹患的后遗症，厚生劳动省向医务人员展示了症状种类、不同症状的治疗方法、注意点等公布了《 罹患后症状管理，COVID-19诊疗指南》 根据指南，代表性的罹患症状有，1、全身症状(倦怠感、关节痛、肌肉痛)，2、呼吸系统症状(咳嗽、喀痰、呼吸短促、胸痛)，3、精神、神经症状(记忆障碍、集中力下降、失眠、头痛、抑郁)，4、其他症状嗅觉障碍、味觉障碍、心悸、腹泻、腹痛。 另外，海外在45件、9,751例系统审查和元分析中，按频率出现的症状包括倦怠感(40%)、呼吸短促(36%)、嗅觉障碍(24%)、不安(22%)、咳嗽(17%)、味觉障碍(16%)、抑郁(15%) 嗅觉、味觉障碍的症状是1、嗅觉失灵或者嗅觉不敏感，2、味觉与以前不同(咖啡味感觉汽油味等)，3、无味觉，4、味弱，5、食物无味，6、味道与过去不一样感，7、经常感到嘴里苦、甜等诉求。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+味觉障碍大多伴有嗅觉障碍，单独发病味觉障碍的频率很低。治疗方法尚未确立，以对症治疗为主。日本耳鼻喉科头颈部外科学会指出，呼吁嗅觉、味觉障碍的例子大多是“意识到异嗅症状、异味症状，从食欲下降到身体、精神方面的不适”。 对长期持续的嗅觉、味觉障碍的治疗目前方法尚未确立，以对症治疗方法为主。
 
-帖子原文：
+据悉，1、付鼻窦炎存在时，可以通过类固醇的全身或局部注射等改善，2、付鼻腔没有发现异常时，作为嗅神经性嗅觉障碍，按照正常感冒后嗅觉障碍治疗，当归芍药散或嗅觉刺激疗法可能有效，3、味觉障碍患者中血清锌显示低值时，可以用锌制剂治疗。
 
-博主：bym21\_
+消息来源：[コロナ、嗅覚・味覚障害で治療長期化](https://medical-tribune.co.jp/news/2022/0413545254/)
 
-摩德纳第三针真是轻轻地把人送走
-
-想着五六月要去127蛋巡，所以还是抓紧打了加强针，我们区的接种会场第三针都是摩德纳，没得选就直接去打了。
-
-下午三点多打的，当时倒是没什么感觉，回家以后眯了一小会几就整晚没睡着，浑身发热，手臂痛得不能侧躺。早上五点多感觉头都有点昏昏沉沉，起来一量体温38度。
-
-吃了药很快体温就降下去了，不过还是36.7度这样正常体温范围内偏高的那边。另外手臂痛了两天，连着三天每天都很困，甚至等不到金道英发泡泡跟我说晚安。
-
-话说回来我打辉瑞第二针的时候也发烧到38度了，可能本来就是对疫苗反应比较大的体质…
-
-#摩德纳第三针  #日本生活  #日本疫苗
-
-发布于04.20
-
-精选评论
-
-呦呵yoho喂回复:第一二针打辉瑞都没什么事的我第三针的摩德纳真的要给我送走呢，一度烧到39度以上。烧了一宿。我感觉得了也不过如此。
-
-布丁果冻回复：我也是，烧到39.6度感觉快死了，辉瑞也是38.6度。快把我送走了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2756.png)图片来源：小红书
-素材来源：[摩德纳第三针轻轻地把人送走](https://www.xiaohongshu.com/discovery/item/625f6a42000000000102d10c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650611003)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

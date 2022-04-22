@@ -2,37 +2,38 @@
 ---
 
 
-## 乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390282/)
+## 多国继续强力军援乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390414/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+作者：纽约香草山教育部 – Naughty(文行)；磐石农场 – 在远方
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+据外媒综合报道，美国、德国、挪威、罗马尼亚等国进入陆续宣布，继续加大对乌克兰的军事援助，其中包括防空导弹、前苏联库存武器，以及从其他国家采购的武器等装备。
 
-翻译：li yan li
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-02-02-下午10.11.59-25.png)
-4月21日，据CNN报道，乌克兰官员周二确定了被围困的乌克兰港口城市马里乌波尔外的清晰的乱葬岗的位置。Maxar Technologies收集和分析的卫星图像公开支持了这一说法。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-47.png)
 
-周四，马里乌波尔市长的顾问彼得罗·安德里申科在Telegram上发帖写道：“经过长时间的搜索，我们找到了马里乌波尔居民死亡的集体埋葬地点，确定了在曼胡什村安排和集体埋葬马里乌波尔居民的事实。”
+4月19日，美国表示，乌克兰军方已收到额外的飞机和领部件，维修受损的飞机。此外，美国还宣布计划将曾准备运往阿富汗的直升机转运到乌克兰。
 
-安德里乌申科——他不在马里乌波尔，但作为被围困城市内部的信息交流中心——在Telegram上发布了坐标，说俄罗斯军队在曼胡什挖了几个乱葬坑，每个坑长约30米（约100英尺），该镇在马里乌波尔西部约12英里（约19公里）。
+当天，德国总理萧兹表示，虽然德国军队的武器库存不足，但德国将出资与军火商和盟友合作，为乌克兰提供反战车及防空武器。
 
-他说：“卡车运来了死者的尸体，事实上，只是把他们扔在堤坝上。这是战争罪的直接证据，他们想要试图掩盖这些罪行。”
+罗马尼亚政府也于当天宣布，制定了相关紧急草案，表示可以向北约的潜在伙伴提供武器。除了会库存武器外，罗马尼亚还可能将一批前苏联制造的库存武器提供给乌克兰。
 
-马克萨周二公布了对卫星图像的分析，显示了曼胡什西北边缘一个新坟墓地点的的证据。
+20日，挪威国防部长格拉姆表示，在已经援助2000件M72反战车武器，以及通过世界银行向乌克兰政府捐赠2000万欧元的基础上，再捐赠100枚西北风防空导弹，据悉，这些武器已经从挪威运出。
 
-根据最近的媒体报道，俄罗斯士兵一直在把在马里乌波尔被杀的人的尸体带到这个地方。这些坟墓以四段线性排列（每段测量约85米），包含200多个新坟墓。
+参考链接：
 
-马里乌波尔市市长博伊琴科周四也称，俄罗斯军队在曼胡什的万人坑中埋藏了尸体。而乌克兰官员声称，在数周的轰炸中，有多达2万人死亡。
+- [UPDATE 1 Ukraine’s military boosts aircraft thanks to spare parts, Pentagon says](https://www.reuters.com/world/europe/ukraines-military-gets-more-aircraft-parts-repair-others-pentagon-says-2022-04-19/)
+- [已經出貨！ 挪威宣布軍援烏克蘭100枚「西北風」防空飛彈](https://news.ltn.com.tw/news/world/breakingnews/3899639)
+- [再獲北約成員國支援！ 羅馬尼亞將交付軍備給烏軍](https://news.ltn.com.tw/news/world/breakingnews/3899505)
+- [德國已無庫存武器支援烏克蘭 蕭茲：改成出錢幫買武器](https://news.ltn.com.tw/news/world/breakingnews/3898928)
 
-新闻链接：[乌克兰官员和卫星图像指出马里乌波尔外的乱葬岗证据](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-21-22/h_809055ac961cce5e1e6770653c7c62b2)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+总编：雪梨
+编辑：飞虹/雪梨
+审核：Irene木木
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

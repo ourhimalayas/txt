@@ -2,149 +2,35 @@
 ---
 
 
-## 乔·罗根支持马斯克收购推特
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390493/)
+## G20会议:尽管战争，俄罗斯仍参加在华盛顿举行的财长会议
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2390552/)
 
-Jackie DeAngelis (Fox Business Network)
-杰基·迪安吉利斯（福克斯商业网络）
+**20国集团财政部长正在华盛顿开会。西方的大问题是：俄罗斯仍会参加。有可能将其排除在外吗？**
 
-Time for the Hot Topic buzz the battle over Twitter heating up
-热门话题的时间到了，关于推特之战在升温
+作者：Liudmila Kotlyarova/ 原文发布于2022年4月20日 – 17:56(CET) 
+翻译：蔚蓝的天/校对: Wenbin
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-13.jpg)图片：2013年在圣彼得堡举行的G20峰会上，东道主普京还处处受到的欢迎。
 
-as one of the world’s largest buyout firms Apollo Global Management
-作为全球最大的收购公司之一，阿波罗全球管理公司
+西方国家元首和政府首脑暂时不必与普京坐在一起，因为他只会在11月份在印度尼西亚举行的G20峰会上出现。然而本周三，这些国家的财政部长和中央银行行长将按原计划在华盛顿举行会议，讨论全球经济状况和新冠疫情流行病的控制。俄罗斯财政部长Anton Siluanow也将出席 — 但只是通过视频方式，因为他在美国的制裁名单上。
 
-thinking of backing the possible deal
-考虑支持可能的交易
+鉴于乌克兰战争俄罗斯财政部长还怎么能参加这个会议呢？东道国印度尼西亚在战前就已经向所有G20成员发出了邀请函。然而，美国财政部长珍妮特·耶伦想稍后抵制与俄罗斯官员的约见，以抗议俄罗斯对乌克兰的入侵。据路透社报道，英国财政部长里希·苏纳克计划参加“只有少数”在白天举行的会议。苏纳克谴责俄罗斯的侵略行为，并计划在会上推动对俄罗斯实施更有力的制裁。
 
-It comes as comedian and podcast host Joe Rogan voices his support for Elon Musk spin
-喜剧演员和播客主持人乔·罗根表达了他对埃隆·马斯克尝试的支持
+**“俄罗斯侵略战争的直接后果”**
+德国政府如何看待这个问题？“尽管俄罗斯代表可能在场，我们还是希望参加会议，以避免让俄罗斯间接破坏重要的多边工作，”德国财政部发言人Justin Firrell代表部长克里斯蒂安·林德纳（自民党）告诉《柏林日报》。然而，俄罗斯方面的 “谎言和宣传 ”不会被置之不理，而是会被点名批评。费雷尔表示，因为当前世界面临的挑战，例如能源或食品价格上涨，会导致经济萧条甚至饥荒，这些都是俄罗斯侵略乌克兰战争的直接后果。
 
-Joe Rogan
-乔·罗根
+德国联邦财政部认为在目前情况下，与俄罗斯的联合最终声明不难理解是“难以想象”的。令人欣慰的是，印度尼西亚作为20国集团轮值主席国只计划提交主席国的任期总结。德国政府没有明确要求将俄罗斯排除在G20之外。美国总统乔·拜登希望踢走普京，用他自己的话来说，普京是 “战争罪犯”。澳大利亚和英国也发出了类似的声音。但事情有那么简单吗？
 
-We look to like powerful leaders
-我们喜欢强大的领导者
+**排除俄罗斯并不那么容易**
+尽管俄罗斯入侵了乌克兰，但是个别举措还不足以将其排除在全球G20会议之外。因为不仅是东道国印度尼西亚，而且最重要的是中国、印度和巴西都不同意这个计划。这三个国家也没有加入西方对俄罗斯的制裁，尽管它们与美国的关系因此而紧张。尽管巴西对俄罗斯侵略乌克兰进行了谴责。但巴西外交部长Carlos Franca周二表示，目前排除俄罗斯不会帮助 “我们”找到 “这场冲突”的解决方案。中国外交部在3月底已经对这些要求进行了评论, 俄罗斯是G20国集团的一个重要成员。G20国集团的任何成员都无权将其排除在外。
 
-like that’s why me included, everyone is so excited that Elon Musk is trying to buy Twitter
-就像，那是包括我在内的原因，每个人都很兴奋埃隆·马斯克试图收购推特
+德国总理奥拉夫·舒尔茨（社民党）在3月底对波兰要求将俄罗斯排除在G20之外发表了评论，称这是一个应该由成员共同讨论的问题，“而不是单独和个别的决定”。据路透社的消息，在G20圈子里，预计中国、印度或沙特阿拉伯等重要成员也会行使否决权。而如果普京在11月坐到会议桌前— 据俄罗斯驻印度尼西亚大使说，他已经考虑这样做 — 那么很明显，西方工业国家届时会略过一些G20会议。
 
-like yes, the great one
-就像是的，伟大的领导者
+在此之前，俄罗斯财政部长Siluanow自己独自抵制周三的经济会议，因为与以往的会议不同，俄罗斯央行行长Elvira Nabiullina并未出席。Nabiullina被认为是卢布走强的幕后推手，据说她在战争开始时就想辞职，转而加入国际货币基金组织，但据说普京拒绝了她的辞职提议。周二，这位58岁的女士宣布，她将在国际法庭挑战冻结俄罗斯价值约3000亿美元的黄金和外汇储备。
 
-He seems to be like a guy that if you had a movie character
-他似乎就像一个有电影角色的人
-
-and the movie character was like super billionaire
-而这个电影角色就像一个超级亿万富翁
-
-and he was really genuinely working to save humanity
-他真的是在努力地拯救人类
-
-Jackie DeAngelis
-杰基·迪安吉利斯
-
-Joe Rogan pointing to Musk’s ethics and also his morals for
-乔·罗根指出马斯克的道德和也是他自己的道德
-
-why he and many others are excited for his efforts to take the social media platform
-为什么他和许多其他人为他在社交媒体平台上所做的努力感到兴奋
-
-and make it a better haven for free speech
-并使其成为言论自由的更好避风港
-
-Jonathan your reaction
-乔纳森，你的回应
-
-Jonathan
-乔纳森
-
-you know, I agree with Joe Rogan he should be a movie character
-你知道，我同意乔·罗根的观点，他应该成为一个电影角色
-
-You know he’s done enough to earn his spot in any case
-你知道他在任何情况下都做得足以赢得他的位置
-
-but I will say this you know, we need people like Joe Rogan stepping up and
-但我会这么说，你知道，我们需要像乔·罗根这样的人挺身而出
-
-and speaking truth to power here and representing the conservative voice
-在这里向权力说真话并代表保守派的声音
-
-we support Elon Musk
-我们支持埃隆·马斯克
-
-I mean, it’s interesting, you know
-我的意思是，这很有趣，你知道
-
-Twitter, it advocates for something called content moderation I was reading
-推特，它提倡所谓的内容审核，我在阅读时发现
-
-and it’s really just a soft term that actually means censorship by its application
-它实际上只是一个软术语，实际上意味着通过其应用进行审查
-
-and what we’ve seen in silencing conservative voices
-以及我们在压制保守派声音方面所看到的情况
-
-So you know, we reject that and we advocate for for actual free speech
-所以你知道，我们拒绝这个，并且我们提倡真正的言论自由
-
-just like Elon Musk
-就像埃隆·马斯克一样
-
-Jackie DeAngelis
-杰基·迪安吉利斯
-
-but it’s not just about silencing the conservative voices
-但这不仅仅是压制保守的声音
-
-for example, kicking President Trump off Twitter, Ryan, that’s one example
-例如，将特朗普总统踢出推特, 瑞恩，这就是一个例子
-
-The other thing that we’ve seen is
-我们看到的另一件事是
-
-for example, silencing media outlets The New York Post reporting
-例如沉默媒体《纽约邮报》的报道
-
-before the election on Hunter Biden’s laptop
-在选举前关于亨特·拜登的笔记本电脑的事情
-
-and social media, including Twitter, completely squashing that
-和包括推特在内的社交媒体完全压制了这一点
-
-that could have been a huge game changer for the election
-这可能会极大地改变选举的游戏规则
-
-and now we find out over a year later
-现在我们发现一年多后
-
-it’s a true story, it’s real
-这是一个真实的故事，它是真实的
-
-There was a lot of there there but they just didn’t want people to know about it
-那里有很多的东西，但他们只是不想让人们知道
-
-* * *
-
-Date:04/20/2022
-原视频标题: Joe Rogan rallies behind Musk’s Twitter takeover
-乔·罗根支持马斯克收购推特
-原视频日期：2022/04/19
-原视频链接**[https://www.youtube.com/watch?v=o0F4-TeTI1w](https://www.youtube.com/watch?v=o0F4-TeTI1w)**
-任务编号：Ke485（4285）
-视频时间段 : 0:00-2:04
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+原文链接：[https://www.berliner-zeitung.de/wirtschaft-verantwortung/g20-treffen-russland-trotz-krieg-in-washington-dabei-ausschluss-unmoeglich-li.223402](https://www.berliner-zeitung.de/wirtschaft-verantwortung/g20-treffen-russland-trotz-krieg-in-washington-dabei-ausschluss-unmoeglich-li.223402)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

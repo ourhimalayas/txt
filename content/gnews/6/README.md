@@ -2,23 +2,45 @@
 ---
 
 
-## 国际｜台湾为“全球跨境隐私规则论坛”创始会员 开创多边合作新时代
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390597/)
+## 有声|郭先生回顾419采访的始末
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390776/)
 
-**港台前线 zhong｜2022-4-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-11.png)
-台湾外交部21日新闻稿表示，台湾以“创始会员”（中华台北名义）身分，与美国、加拿大、日本、韩国、新加坡及菲律宾共7个“亚太经济合作”（APEC）会员，于2022年4月21日共同发布“全球跨境隐私规则宣言”（Global Cross-Border Privacy Rules Declaration），成立“全球跨境隐私规则论坛”（Global Cross-Border Privacy Rules Forum）。此论坛成立宗旨为促进国际间不同资料隐私保护监管方法的调和与相容，开放予符合相关条件的司法管辖权实体（jurisdiction）申请加入。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月19日，郭文贵先生在纪念VOA断播五周年的大直播中透露，在美国之音VOA断播事件发生之前，英国广播公司BBC也曾计划采访郭先生。在得知消息后，王岐山亲自致电BBC的老板，即前香港特首彭定康，威胁他取消这一采访计划。与此同时，另外两场类似的采访也均在中共的直接干预下被全然屏蔽。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-1-2.jpg)
+此时，郭先生一方面意识到，世界各国的媒体都已经被中共操控，但另一方面郭先生也认为，他无论如何都需要向世界发声。
 
-全球跨境隐私规则论坛，前身为美国在APEC力推之“跨境隐私规则”（Cross-Border Privacy Rules, CBPR）体系，美国2020年将CBPR扩大至APEC区域外，为纳入更多参与成员。台湾参与全球跨境隐私规则论坛各项协商及筹备工作。
+据郭先生回忆，与VOA同期发出采访邀请的还有某台湾电视台、澳大利亚第七电视台和美国旧金山的一家电视台。由于郭先生彼时已经明确地判断出，不论哪个采访，其都不可能按照原计划被顺利地直播放送，因此，在多方考量下，郭先生选择了被认为是“美国和世界其他国家自由灯塔”的VOA。
 
-美国商务部发表成立声明， CBPR成立反映了多边合作新时代的开始，促进现代经济所必须的可信赖全球数据流， CBPR 论坛旨在建立全球跨境隐私规则 (CBPR) 和处理器隐私识别 (PRP) 系统，这是首创的数据隐私认证，可帮助公司证明符合国际公认的数据隐私标准。
+郭先生解释道，作为最理想的选择，VOA但凡出现停播事件，其必将引起世界的关注，且该事件的影响也将是历史性的。加之VOA在采访前已经将郭先生的宣传视频大量播放，为此，该采访已经达到了郭先生预期中的效果。
 
-来源｜台湾外交部、美国商务部
+郭先生也指出，VOA在419一反常态的断播事件将中共“蓝金黄”民主国家媒体的行为赤裸裸地展现在世界面前；同时，该断播事件还成为了爆料革命诞生的起点，且新中国联邦和G系列也在其后几年间应运而生。目前，聚集了上亿灭共战友的爆料革命和新中国联邦已经在乌克兰救援行动中被越来越多的国家赞扬与肯定。
 
-* * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
+
+
+
+
+文字版原文：[郭先生回顾419采访的始末](https://gnews.org/zh-hans/2386859/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
