@@ -2,36 +2,34 @@
 ---
 
 
-## 专家建议在聚会等计划前需多次病毒检测
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392523/)
+## 中共无人性清零管控是最后的挣扎
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2392624/)
 
-##### 作者：加拿大温哥华扬帆农场 -【硫酸羟氯喹64/晨熹】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2788.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+作者：在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月20日，郭文贵先生发布盖特视频，对近期几个热点时事做了简短的评论。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/article-6246c225d64ed.jpeg)图片来自网络
 
-据【CTV NEWS】4月17日报道，两年来人第一次庆祝复活节和逾越节时面临很少的公共卫生限制，但专家提醒大家仍需保持谨慎，这意味要更多的使用到快速抗原检测 (RAT)。
+郭先生说，俄乌战争的局势验证了一周前的爆料，即普京发动乌克兰东部决战，是以此为要挟，与西方民主世界讲数和谈判。另外，也包括一些政治原因，比如普京的安全保卫、俄罗斯官员和富豪家族的财产安全等问题。
 
-但安大略省科学家皮特·朱尼认为，由于目前对奥米克戎的BA.2亚变体缺乏了解，用RAT很难检测到。他建议加拿大人在聚会等计划前至少进行两次快速检测，间隔24小时，没有任何症状才可以。”朱尼还建议聚集需限制人数，避免拥挤，确保通风。
+对于当前台海形势，郭先生认为，由于种族、文化和政治系统等原因，目前台湾的安危让人担忧。印太地区的局势说明，人类确实需要诞生一个正道主义的新政治体系。
 
-据悉，奥米克戎BA.2亚变体最初在加拿大的传播似乎相对缓慢，然而现在已是曼省和安省社区间传播的最主要菌株。
+郭先生指出，中共国目前处在巨变的前夜，没有力量能够阻止，而中共的灭亡也是历史必然。所谓的“清零”管控，就是共产党死亡前的垂死挣扎，最后的一次政治操作，不可能再有中共的二十大。
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+郭先生指出，当前中共国已经被全面污染，任何一个国家都比中共国美丽、自然、健康。而中共的权贵们，在条件允许的情况下，无一例外都会选择出国。新中国联邦的使命，就是推翻邪恶的中国共产党，搭建自由民主法治的制度框架。新中国人必须一人一票，必须要活得像人一样有尊严，中国人的财富必须自己说了算，中国的土地必须永远归还给人民，中国人买的房子必须是永久产权，中共盗国贼转移到海外的巨额财产必须要被追缴，以补偿老百姓被中共剥削了几十年的，所谓的房贷、车贷和信用卡贷。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【晨熹】
-素材/采编 -【硫酸羟氯喹64】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+郭先生强调，中共国目前处在巨变的前夜，没有力量能够阻止，而中共的灭亡已是历史必然。其丧心病狂的“清零”管控，就是中共死亡前的垂死挣扎，是最后的一次政治操作，今年不可能再有中共的二十大了。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+参考链接：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：熊嘟嘟
+总编：宁文静
+审核：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

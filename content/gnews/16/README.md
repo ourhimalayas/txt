@@ -2,17 +2,36 @@
 ---
 
 
-## 【粤语配音】2022年4月21日：习近平为了政绩只能打台湾
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2392245/)
+## 专家建议在聚会等计划前需多次病毒检测
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392523/)
 
-紐約香草山-香港部
+##### 作者：加拿大温哥华扬帆农场 -【硫酸羟氯喹64/晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2788.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
-习现在所有过去的战略准备，就是一定要打台湾，他打台湾就是一个所谓的叫“台湾大福”，他还梦想着就像普京一样，我到乌克兰全部列队欢迎，他以为我只要是卖台贼一忽悠，普京那边弄乌克兰，我这边一去台湾就投降了，现在是一切都变了，他准备那么长时间，他不打台湾的可能性已经没了，为什么没了呢？南希·佩洛西来了
 
-4月26号登陆了，你咋办？就是习不打台湾，习二十大绝对完了 肯定被灭，那么习要是不打台湾，南希·佩洛西去完以后，可能拜登就去了，台湾真可能宣布独立了，他就完了，共产党就完了 ，已经不是习完了，共产党就彻底完了，那习就是反正如此我一定搏一把，就不管普京前线战场打到什么样，两种可能，一个是所谓的打台湾，就是死很少的人，经济上给你打垮它。
+据【CTV NEWS】4月17日报道，两年来人第一次庆祝复活节和逾越节时面临很少的公共卫生限制，但专家提醒大家仍需保持谨慎，这意味要更多的使用到快速抗原检测 (RAT)。
 
-另外一种它就是放战略性核武器，或者摧毁式地对台湾，我(习)不是打台湾我会把台湾消灭了，打台湾和消灭台湾的本质就在这，所以说现在国内的咱们那个体制内的战友就说，目前看来就是各种形式逼着习去消灭台湾，就是打烂了，我可能登陆不了台湾了，我登陆不了了，我占有不了了 我拿不回来了，我觉得习现在有三个难处，我们可以理解的，经济上已经崩塌了，他不找个出口他自己完了，共产党完了，第二这个病毒还有隔离措施，所谓的社会极限试压，包括政治斗争也到了极限了，第三个就是中美之间，现在就是还幻想着，什么的所有的要当世界领导人，包括他现在搞金砖国的这些所谓的，新的代替美元的支付系统和干掉美元的这种野心，还什么莫德尔的周期，这都是已经被周边人忽悠大了，关键是习现在有一个最大的问题，他认为我不拿下台湾，我什么都解决不了，拿下台湾什么都能解决，就周边认为打了台湾，或打烂台湾或占领台湾，什么问题都解决，这是一个错误的认知，包括他对美国对国际社会的认知，所以说战友们这时候真得我们要做好，更坏的更长期的准备，这对我们才是有利的。
+但安大略省科学家皮特·朱尼认为，由于目前对奥米克戎的BA.2亚变体缺乏了解，用RAT很难检测到。他建议加拿大人在聚会等计划前至少进行两次快速检测，间隔24小时，没有任何症状才可以。”朱尼还建议聚集需限制人数，避免拥挤，确保通风。
 
+据悉，奥米克戎BA.2亚变体最初在加拿大的传播似乎相对缓慢，然而现在已是曼省和安省社区间传播的最主要菌株。
+
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【晨熹】
+素材/采编 -【硫酸羟氯喹64】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
