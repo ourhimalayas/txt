@@ -24,13 +24,6 @@
 
 ---
 
-`@miles 4/22/2022 5:33 PM (UTC)`
-
-2022-4-22 俄乌战争战况播报
-![img](https://media.gettr.com/group11/origin/2022/04/22/17/1c9da350-e956-a5d1-4f5f-df1f21f4b62a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
 `@miles 4/22/2022 3:42 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月21日第48天当日救援统计：<br/>Medyka救援站接待：约252人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13611人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 48 - Date: April 21, 2022 :<br/>Medyka Rescue Station Reception: about 252 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13611 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -153,6 +146,13 @@ A French volunteer has been to China 12 times and he loves China very much. Nico
 
 2022.04.21 晚  新中国联邦 | 新闻访谈   俄罗斯经济只会越来越差；陈顺平的死亡和华山路的标语
 ![img](https://media.gettr.com/group37/origin/2022/04/22/01/579a583c-3318-70ba-68ef-83955168faec/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/22/2022 12:30 AM (UTC)`
+
+2022.04.21 晚  新中国联邦 | 新闻   中共政权岌岌可危 新中国联邦拯救中国人；习近平迷信莫德尔周期，中共自取灭亡
+![img](https://media.gettr.com/group43/origin/2022/04/22/00/b7505bc6-624c-672b-8d59-4a873dc00072/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
