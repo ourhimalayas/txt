@@ -2,33 +2,26 @@
 ---
 
 
-## 中日财经爆┃俄罗斯公布数字卢布计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2392772/)
+## 美国想让波兰军队成为欧洲最强大的军队之一
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2392891/)
 
-撰稿、图片：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-196.jpg)
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04224.jpg)图片来自today.it
+武装东欧人口最多的国家，确保整个地区的稳定。这是美国宣布的目标，它与波兰达成了多项军事供应协议。
 
-俄罗斯中央银行计划在2023年前推出数字卢布，并扩大其米尔（MIR）支付卡的使用范围。
+波兰国防部长Mariusz Blaszcak 亲自前往华盛顿与他的美国国防部长劳埃德奥斯汀会面，并最终敲定了交易。美国国防部发言人约翰·柯比说，双方已同意共同努力，帮助波兰军队成为欧洲最强大的军队之一。
 
-俄罗斯银行周四（4月21日）宣布，它计划在明年之前准备好数字卢布，并能够进行国际支付。俄罗斯还旨在扩大接受俄罗斯米尔银行卡的国家数。
+[《波兰笔记](https://notesfrompoland.com/2022/04/21/us-pledges-to-make-polish-army-one-of-the-most-capable-in-europe-amid-talks-on-new-arms-deals/)》报道，奥斯汀和布拉什扎克讨论了加快交付已经购买的军事装备的可能性。在华沙和华盛顿最近签署的各种合同中包含爱国者防空系统、希马尔火箭发射器、F-35 战斗机和多达 250 辆艾布拉姆斯坦克的合同。
 
-“数字卢布是优先项目之一，”中央银行行长纳比乌林娜（Elvira Nabiullina）告诉议会下院。”我们已经相当迅速地创建了一个原型……现在我们正在与银行举行测试，明年我们将逐步进行试点交易。”
+波兰新闻社 Pap 称，布拉什扎克还公开表示，波兰行政部门将启动订购更多军事装备的正式程序。国防部长说，这些新订单将包括攻击直升机、无人机和其他多用途飞机，以及额外交付的希马尔火箭发射器和爱国者导弹。
 
-俄罗斯银行在2020年底公布了国家数字货币的概念。这种新的货币形式预计将与现金和非现金卢布共存。据称，与比特币等虚拟货币不同，数字卢布预计会带来最小的风险，因为它将由国家货币监管机构发行并由传统货币支持。
+波兰部长说，由于上个月推出的新国防计划，华沙的军费开支将增加到 GDP 的 3%，这是北约联盟的最高水平之一。
 
-纳比乌林娜还表示，莫斯科的目标是扩大接受米尔银行卡的国家数，此前国际公司维萨和万事达已加入西方制裁，暂停了在俄罗斯的业务。俄罗斯国家支付系统Mir是由俄中央银行在2015年推出的。
+在美国的第二天，波兰政府的代表正计划与美国军工界的大腕们举行一系列会议。其中包括 F-35 战斗机的母公司洛克希德马丁公司、坦克制造商艾布拉姆斯公司、通用动力公司和波音公司。
 
-信息来源：[**Russia unveils plans for digital ruble, domestic payment system**](https://www.rt.com/business/554315-russia-digital-ruble-credit-card/)
+原文链接:[https://europa.today.it/attualita/usa-esercito-polacco-potenti-europa.html#\_ga=2.243964229.1513997545.1650266042-1444427197.1644869074](https://europa.today.it/attualita/usa-esercito-polacco-potenti-europa.html#_ga=2.243964229.1513997545.1650266042-1444427197.1644869074)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

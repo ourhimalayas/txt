@@ -2,44 +2,72 @@
 ---
 
 
-## 4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2392529/)
+## 普京露面视频加剧了它患有癌症和帕金森氏症的猜测
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2392530/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-143.png)[图片来源](https://www.reuters.com/)
-**1.乌克兰冲突、芯片危机削弱雷诺第一季度销量**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-[这家对俄罗斯市场影响最大的西方汽车制造商报告称，由于乌克兰战争和半导体短缺，第一季度收入下降，但部分被价格上涨和电动汽车(EV)销售增长所抵消。该集团还生产达契亚和拉达品牌汽车，周五表示其收入同比下降2.7%至97.48亿欧元（106亿美元）。不包括Avtovaz和Renault Russia的活动，下降1.1%至89亿欧元。上个月，雷诺表示将暂停其莫斯科工厂的运营，同时评估其在俄罗斯第一大汽车制造商Avtovaz(AVAZI\_p.MM)的多数股权的选择权。周五，这家法国汽车制造商表示，与Avtovaz就俄罗斯业务未来的谈判“正在进行并取得进展”。](https://www.reuters.com/business/autos-transportation/renaults-q1-sales-fall-ukraine-conflict-semiconductor-crisis-hit-market-2022-04-22/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-**2.SAP收入增长超过预期**
+独裁者都喜欢以強人形象展示在公众面前。
 
-[德国商业软件集团SAP(SAPG.DE)周五报告称，第一季度收入增长11%，超过其云业务增长的预期。本周早些时候，该公司表示计划完全退出俄罗斯，以应对莫斯科对乌克兰的入侵。SAP表示，其年度调整后利润将下降近3.5亿欧元，并将承担约8000万至1亿欧元的重组费用。尽管对其俄罗斯业务产生了影响，但SAP确认其2022年的云收入预测为115.5亿欧元至118.5亿欧元（按固定汇率计算）。](https://www.reuters.com/business/sap-revenue-growth-beats-estimates-flags-hit-russia-exit-2022-04-22/)
+中共国习太阳以200斤十里山路不换肩博得“200斤”雅号；踩着油门绝不刹车，亲自部署、亲自指挥发动COVID-19生化武器战争，“习总加速师”实至“名”归。
 
-**3.Snap警告通货膨胀可能会影响收入增长，预测用户数量增加**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shi-li-shan-lu-bu-huan-jian.jpg)
 
-[Snap Inc(SNAP.N)周四预测其Snapchat应用的用户增长前景乐观，但表示供应链中断和通胀可能继续损害广告需求。公布结果后，Snap的股价立即下跌了10%，但随着投资者消化了喜忧参半的结果，随后收复了跌幅。Snap预测第二季度每日活跃用户在3.43亿至3.45亿之间，高于华尔街估计的3.4亿。然而，该公司警告称，通货膨胀、劳动力短缺和其他经济挑战可能会给收入带来压力。它预测第二季度的收入将比上年增长20%至25%。到目前为止，本季度的增长率为30%。](https://www.reuters.com/technology/snap-misses-revenue-estimates-warns-that-inflation-could-hit-growth-2022-04-21/)
+金三胖在有着东北亚第一神山称号的白头山上骑着高大的白马，奔驰在雪原上，时刻在向朝鲜韭菜们暗示自己纯正的白头山“血统”。
 
-**4.Gap下调了季度销售预测**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-22_22-32-20.png)
 
-[Gap Inc(GPS.N)周四下调了季度销售额预期，将其归咎于Old Navy品牌的执行挑战和“宏观经济动态”，导致该零售商股价在延长交易中下跌12%。Gap还表示，其Old Navy品牌的负责人Nancy Green将于本周离开公司，公司首席执行官Sonia Syngal将领导团队，直到聘请继任者。由于供应链障碍延迟发货，包括Gap在内的几家服装连锁店一直在努力跟上不断增长的需求并管理库存。这家将于5月26日公布第一季度业绩的零售商表示，它必须采取“积极的方式”来平衡库存，从而导致营销促销活动增加，尤其是在Old Navy。](https://www.reuters.com/business/retail-consumer/gap-cuts-quarterly-sales-forecast-challenges-old-navy-brand-head-departs-2022-04-21/)
+普京的强人形象，中共国媒体也常有渲染，包括他骑马打猎、赤膊上阵的照片，他像男模一样走出克里姆林宫，登上专车，日理万机的短片，在全世界广泛流传，被不少网民称为普京大帝。中共国中央电视台甚至为了宣传这位独裁者的强人形象，甚至专门制作了电视专题片《[有一种“网红”叫普京](https://www.google.com/url?sa=i&amp;url=http%3A%2F%2Fnews.cctv.com%2F2018%2F06%2F06%2FARTIAYAFJj3dY52iKmdIGNxb180606.shtml&amp;psig=AOvVaw2uNw3pBTLx9BHxmQ1pCF_L&amp;ust=1650724532113000&amp;source=images&amp;cd=vfe&amp;ved=2ahUKEwiv4JGc8qf3AhUfTPUHHclBCREQr4kDegUIARCsAQ)》。
 
-**5.封锁影响开云集团第一季度的销售**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/112107rroangzte0iigjju.jpeg)
 
-[尽管该集团指出美国和西欧对其高端时装和皮革制品的持续需求，但中国COVID-19封锁造成的中断给周四Gucci所有者Kering的第一季度销售预测蒙上了一层阴影。截至3月份的三个月集团销售额达到49.6亿欧元（54亿美元），增长21%，略高于花旗分析师Thomas Chauvet引用的46.9亿欧元的普遍预期。Kering SA(PRTP.PA)的明星品牌Gucci占法国奢侈品集团年销售额的一半以上，在美国、西欧和日本表现强劲，而COVID封锁扰乱了中国大陆的业务。这一数字低于Chauvet预计的23%的增长，并且与上一季度相比有所放缓。](https://www.reuters.com/business/retail-consumer/kering-q1-sales-lifted-by-us-europe-2022-04-21/)
+到底是戏谑还是出于真心的崇拜，或者两者兼而有之，不得而知。
 
-**6.随着预订量回升，美国航空公司听起来很乐观**
+尽管独裁者塑造自己的强人形象手段各异，但可以肯定的是，独裁者的虚伪和无耻，无论是200斤的习神经，抑或白头山“纯种”金三胖，还是“强”如普大帝，却都是共有的。
 
-[美国航空集团(AAL.O)、联合航空(UAL.O)和阿拉斯加航空集团(ALK.N)周四表示，由于今年年初该病毒的Omicron变种受挫，旅行需求回升。他们本季度的收入将超过大流行前的水平，尽管他们的产能仍低于2019年的水平。因此，他们都希望在截至6月的季度实现盈利。上周，竞争对手达美航空(DAL.N)也预测季度利润将恢复，理由是“历史性的”高预订量。CFRA Research副总裁科林·斯卡罗拉(Colin Scarola)表示：“航空旅行被压抑的需求浪潮正在消除主要航空公司的长期悲观情绪。”](https://www.reuters.com/business/aerospace-defense/american-airlines-reports-smaller-loss-pickup-travel-offsets-omicron-blip-2022-04-21/)
+2022年2月20日，郭文贵先生在直播中说，普京本人身体你看得出都是打针打出来的，他一直打那肉毒菌素，普京的身体最近非常的不好。所以普京在防止疫苗上他是全世界领导人中最害怕的。普京在短暂停留9小时，参加完习太阳的冬奥会开幕式回到俄罗斯以后，他身边的人发现了普京的变化，突然间少言寡语。本来过去的两年，普京已经整个性情大变，因为他脸要打针，保持那个容颜。
 
-**7.黑石集团第一季度收益飙升63%**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2017-1.png)
 
-[黑石公司(BX.N)周四表示，其第一季度可分配收益跃升63%，原因是其房地产和信贷业务的强劲表现抵消了其对冲基金部门的疲软表现。这家全球最大的另类资产管理公司的可分配收益（代表用于向股东支付股息的现金）从一年前的12亿美元增至19亿美元。这导致每股可分配收益为1.55美元，超过了Refinitiv编制的分析师平均估计的每股1.06美元。黑石表示，它改变了其房地产收入信托业务与费用相关的业绩收入的核算方式，按季度而不是按年度计入此类收益。这有助于提高其整体收益，超出分析师的预期。](https://www.reuters.com/business/finance/blackstones-first-quarter-earnings-surge-63-2022-04-21/)
+在今天流出的普京和国防部长谢尔盖·绍伊古（Sergei Shoigu）会面的12分钟视频中，普京脸色臃肿，显得“虚弱无力，几乎无法直立”，懒散地坐在椅子上，无精打采，右手死死地抓着桌子的边缘，他的手指撑在桌子下面，而他的拇指则在桌面上抽搐着，不停地敲着他的脚，他看上去凌乱、痛苦和心烦意乱，这加剧了他患有癌症和帕金森氏症的猜测。
 
-**8.墨西哥银行机构Banorte与Citibanamex-Banorte首席执行官进行谈判**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-22_22-25-00.png)
 
-[Banorte首席执行官Marcos Ramirez Miguel周四表示，墨西哥银行机构Banorte(GFNORTEO.MX)正在与花旗集团(C.N)的墨西哥消费者银行业务Citibanamex就出售其资产进行谈判。Ramirez Miguel在公司第一季度业绩公布后的电话中表示，感兴趣的各方已开始与Citibanamex进行对话，但仍在收集有关其在墨西哥业务的信息。拉米雷斯米格尔补充说，这个过程可能持续至少五个月。](https://www.reuters.com/business/finance/mexico-banking-institution-banorte-talks-with-citibanamex-banorte-ceo-2022-04-21/)
+社交媒体上的一些专家观察员也关注了普京的奇怪行为，这可能是他迄今为止健康状况最明显的表现之一。
 
-By 【秘密翻译组-金融组】
-作者：小海星
+英国前保守党议员路易丝·门施（Louise Mensch）曾报道过普京潜在的健康问题，她认为，普京患有帕金森病，在这里你可以看到他抓着桌子，虽然看不见他颤抖的手，但他无法控制他的脚不断敲击。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-22_22-25-49.png)
+
+有专家指出，普京在最近的公开露面中看起来“臃肿”和“虚弱”，甚至看过专门治疗甲状腺癌的医生。
+
+已经被俄罗斯政府强行关闭的调查性媒体Proekt曾报道，莫斯科中央临床医院的外科医生叶夫根尼·塞利瓦诺夫(Yevgeny Selivanov)专门飞往普京喜欢的黑海度假胜地索契 (Sochi)不少于35次。这位受人尊敬的医生的专长是甲状腺癌，他的专业领域是“老年和老年甲状腺癌患者的诊断和手术治疗的特点”。这一发现支持了人们最近的猜测，即普京向俄罗斯人民隐藏健康问题。
+
+瑞典经济学家、前乌克兰和俄罗斯顾问安德斯·阿斯伦德（Anders Aslund）表示，视频显示普京和绍伊古都“情绪低落，健康状况不佳”。
+
+德克萨斯理工大学肢体语言专家埃里克·布西（Erik Bucy）教授认为，与我们几年前观察到的那个人相比，这不是一个健康的普京的形象，而是一个看起来越来越虚弱，几乎无法在一张小会议桌面前坐直的人，普京身体的弱化程度令人吃惊。
+
+早在2020年11月，政治分析家瓦列里·索洛维(Valery Solovei)就透露了普京可能患有癌症和帕金森氏病症，索洛维声称普京需要进行紧急手术。
+
+他在谈到普京的健康问题时说，一个是心理神经问题，另一个是癌症问题。如果有人对确切的诊断感兴趣，我不是医生，我没有道德义务去揭露这些问题。普京的第二次诊断比第一次诊断要严重得多，尽管帕金森氏症不会威胁到身体状况，但限制了公众露面的机会。索洛维还透露，从其它渠道获悉，普京接受了腹部癌症手术。
+
+除了甲状腺癌专家叶夫根尼·塞利瓦诺夫之外，另一位神经外科医生阿列克谢·谢格洛夫博士（Alexey Shcheglov）如影随行地跟着普京，甚至他在公共活动中与普京合影。谢格洛夫博士被视为是“可以率先发现甲状腺问题（包括肿瘤问题）的医生”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-22_22-27-00.png)
+
+参考数据：
+
+[Russia’s ailing command: ‘Bloated and slouching’ Putin is seen gripping a table amid cancer battle rumours as he meets ‘slurring’ defence minister Shoigu – who needs to read from notes ‘following heart attack’](https://www.dailymail.co.uk/news/article-10742521/Putin-seen-gripping-table-amid-cancer-battle-rumours-meets-slurring-defence-minister.html)
+
+[TREMBLING TYRANT Bloated Putin seen ‘gripping table, slouching and constantly tapping foot’ fuelling Parkinson’s rumours](https://www.thesun.co.uk/news/18333382/putin-parkinsons-rumours-seen-gripping-table/)
+
+[TERMINAL TYRANT Chilling new clues Putin may have THYROID CANCER or Parkinson’s as mystery surrounds tyrant’s health](https://www.thesun.co.uk/news/18133008/chilling-new-clues-putin-thyroid-cancer-parkinsons/)
+
+[VLAD SHOCK Putin is battling CANCER as well as Parkinson’s and had emergency surgery in February, source claims](https://www.thesun.co.uk/news/13253481/putin-cancer-parkinsons-emergency-surgery/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

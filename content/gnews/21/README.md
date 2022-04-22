@@ -2,34 +2,28 @@
 ---
 
 
-## 中共无人性清零管控是最后的挣扎
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2392624/)
+## 樱花时政┃普京发言人反驳日本 称北方四岛为俄领土
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2392653/)
 
-作者：在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月20日，郭文贵先生发布盖特视频，对近期几个热点时事做了简短的评论。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-471.jpg)[图片来源](https://www.google.com/search?q=Russian+Presidential+Spokesperson&amp;sxsrf=APq-WBsD944QA0BDeDFXQT85RSknyOI1VQ:1650638286108&amp;tbm=isch&amp;source=iu&amp;ictx=)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/article-6246c225d64ed.jpeg)图片来自网络
+4月22日，俄罗斯总统发言人佩斯科夫对日本2022年外交蓝皮书明确表明北方领土“是日本固有的，但目前被俄罗斯非法占领”做出回应，称“所有四个岛屿都是俄罗斯不可分割的领土。”
 
-郭先生说，俄乌战争的局势验证了一周前的爆料，即普京发动乌克兰东部决战，是以此为要挟，与西方民主世界讲数和谈判。另外，也包括一些政治原因，比如普京的安全保卫、俄罗斯官员和富豪家族的财产安全等问题。
+关于与日本的和平条约谈判，他声称，“现在日本已经成为一个不友好的国家，并加入了对俄罗斯的众多敌对行动，要继续谈判是非常困难的。”
 
-对于当前台海形势，郭先生认为，由于种族、文化和政治系统等原因，目前台湾的安危让人担忧。印太地区的局势说明，人类确实需要诞生一个正道主义的新政治体系。
+信息源：[北方領土不法占拠」にロシア反発](https://news.yahoo.co.jp/articles/29d22a6317779245ec4a21affdc3cd7e7b757d1e#:~:text=%E3%83%)
 
-郭先生指出，中共国目前处在巨变的前夜，没有力量能够阻止，而中共的灭亡也是历史必然。所谓的“清零”管控，就是共产党死亡前的垂死挣扎，最后的一次政治操作，不可能再有中共的二十大。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-郭先生指出，当前中共国已经被全面污染，任何一个国家都比中共国美丽、自然、健康。而中共的权贵们，在条件允许的情况下，无一例外都会选择出国。新中国联邦的使命，就是推翻邪恶的中国共产党，搭建自由民主法治的制度框架。新中国人必须一人一票，必须要活得像人一样有尊严，中国人的财富必须自己说了算，中国的土地必须永远归还给人民，中国人买的房子必须是永久产权，中共盗国贼转移到海外的巨额财产必须要被追缴，以补偿老百姓被中共剥削了几十年的，所谓的房贷、车贷和信用卡贷。
-
-郭先生强调，中共国目前处在巨变的前夜，没有力量能够阻止，而中共的灭亡已是历史必然。其丧心病狂的“清零”管控，就是中共死亡前的垂死挣扎，是最后的一次政治操作，今年不可能再有中共的二十大了。
-
-参考链接：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-编辑：熊嘟嘟
-总编：宁文静
-审核：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

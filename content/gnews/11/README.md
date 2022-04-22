@@ -2,8 +2,8 @@
 ---
 
 
-## 20220422郭文贵大直播 ： “三朝帝师”王沪不宁（PPT）
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392726/)
+## 20220422郭文贵大直播 ：致新中国联邦乌克兰救援队的一封感谢信
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392846/)
 
 作者：东京樱花团小视频组
 

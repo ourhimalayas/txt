@@ -2,37 +2,16 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2392699/)
+## 共产党想尽一切办法黑七哥
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2392830/)
 
-作者：香草山翻译部
+**听写：叮叮    编辑：文宝**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-57.png)
+到今天为止，习近平从来没改过。整个俄罗斯、乌克兰的战争发生之后，咱内部的战友说习喜出望外，并且说：“俄乌战争在前，给我们提供了很好的样板，我们好好研究，更证明了我们要快打狠打，不惜一切代价的。” 我是本人和习本人有接触，他家人我都很熟大家都知道，他的个性我很清楚的。就你想想你了解的，你不会相信“路大脑袋”他会走出来说像你们一样地生活。“路大脑袋”就每天在家里边早中晚只直播，看着自己18岁的女儿露着腚在屋里跑。他每天唯一的出去就是跟“蛇妖闫”约会去、吸痰去，是吧？就像“九指妖”，你相信“九指妖”会守法吗？昨天你看到长岛哥，我不能说啊，人家律师不让我说呢。人家长岛哥告他，她竟然不到庭，陈其生也不到庭，你想过一个天天给你们“上帝”、“正义”、“自由”、“民主”的人跟她的男朋友陈其生……陈其生带着女儿跟她儿子谈，陈其生的女婿，前女婿，竟然拿走1600万还是1800万买房地产，他也不到庭，而且是所谓的教授啊，给中国外交部还当翻译的教授。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-21.png)
+Q大哥、糊涂仙、微微、Eglise，你能想想，你在美国你明知法庭给你传票你竟然不到庭，在美国你不尊重法庭，总统你也得进监狱你知道吗？你只有愚蠢到死了你才藐视法庭呢。
 
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.22早 《NFSC新闻》](https://gettr.com/streaming/p16lvbsf359)
-[2022.04.22早《NFSC新闻访谈》](https://gettr.com/streaming/p16lpus6ec2)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-57.png)
-
-
+共产党黑你七哥就是要想尽一切办法，不要钱，就像PAG太平联盟一样，我就想想办法给郭文贵定上一个藐视法庭的罪，你发现了吗？这几年五年的官司，想尽一切办法就让你藐视法庭，只要定上藐视法庭，我就有权抓你了。你说你七哥挣扎了五年就不要碰这个红线，你想想“九指妖”还有陈其生他竟然就不接状、不到庭，完全不配合，你这不就彻底找死呢吗？
 
  
 

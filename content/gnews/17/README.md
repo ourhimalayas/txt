@@ -2,20 +2,26 @@
 ---
 
 
-## 樱花时政┃普京发言人反驳日本 称北方四岛为俄领土
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2392653/)
+## 中日财经爆┃俄罗斯公布数字卢布计划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2392772/)
 
-撰稿：东京樱花团/百花李香
+撰稿、图片：东京樱花团/asket
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-471.jpg)[图片来源](https://www.google.com/search?q=Russian+Presidential+Spokesperson&amp;sxsrf=APq-WBsD944QA0BDeDFXQT85RSknyOI1VQ:1650638286108&amp;tbm=isch&amp;source=iu&amp;ictx=)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-196.jpg)
 
-4月22日，俄罗斯总统发言人佩斯科夫对日本2022年外交蓝皮书明确表明北方领土“是日本固有的，但目前被俄罗斯非法占领”做出回应，称“所有四个岛屿都是俄罗斯不可分割的领土。”
+俄罗斯中央银行计划在2023年前推出数字卢布，并扩大其米尔（MIR）支付卡的使用范围。
 
-关于与日本的和平条约谈判，他声称，“现在日本已经成为一个不友好的国家，并加入了对俄罗斯的众多敌对行动，要继续谈判是非常困难的。”
+俄罗斯银行周四（4月21日）宣布，它计划在明年之前准备好数字卢布，并能够进行国际支付。俄罗斯还旨在扩大接受俄罗斯米尔银行卡的国家数。
 
-信息源：[北方領土不法占拠」にロシア反発](https://news.yahoo.co.jp/articles/29d22a6317779245ec4a21affdc3cd7e7b757d1e#:~:text=%E3%83%)
+“数字卢布是优先项目之一，”中央银行行长纳比乌林娜（Elvira Nabiullina）告诉议会下院。”我们已经相当迅速地创建了一个原型……现在我们正在与银行举行测试，明年我们将逐步进行试点交易。”
 
-编辑：东京樱花团/知了知了
+俄罗斯银行在2020年底公布了国家数字货币的概念。这种新的货币形式预计将与现金和非现金卢布共存。据称，与比特币等虚拟货币不同，数字卢布预计会带来最小的风险，因为它将由国家货币监管机构发行并由传统货币支持。
+
+纳比乌林娜还表示，莫斯科的目标是扩大接受米尔银行卡的国家数，此前国际公司维萨和万事达已加入西方制裁，暂停了在俄罗斯的业务。俄罗斯国家支付系统Mir是由俄中央银行在2015年推出的。
+
+信息来源：[**Russia unveils plans for digital ruble, domestic payment system**](https://www.rt.com/business/554315-russia-digital-ruble-credit-card/)
+
+编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****

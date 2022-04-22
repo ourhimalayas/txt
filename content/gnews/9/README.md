@@ -2,8 +2,8 @@
 ---
 
 
-## 20220422郭文贵大直播 ：大根分享两位墙内战友的案例
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392742/)
+## 20220422郭文贵大直播 ：致救援队的感谢信是在政治和外交上认可新中国联邦
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392870/)
 
 作者：东京樱花团小视频组
 

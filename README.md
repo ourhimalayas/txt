@@ -15,95 +15,95 @@
 
 ---
 
-### [20220422郭文贵大直播 ：致新中国联邦乌克兰救援队的一封感谢信](/content/gnews/1/README.md)
- ` Tokyo Sakura Video Group`
+### [看一个人的个性你就知道这个人的未来](/content/gnews/1/README.md)
+ ` 加拿大温哥华英里农场`
 
-### [中共国与所罗门群岛安全条约的背后是什么](/content/gnews/2/README.md)
+### [拜登：与基辅一起直到胜利](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [20220422郭文贵大直播 ：中国缺少反抗的土壤](/content/gnews/3/README.md)
+### [20220422郭文贵大直播 ：大根介绍王沪宁的来头](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [习近平暴露自己的目标](/content/gnews/4/README.md)
- ` 加拿大温哥华英里农场`
-
-### [最担心台湾的卖台贼](/content/gnews/5/README.md)
- ` 加拿大温哥华英里农场`
-
-### [20220422郭文贵大直播 ：对比香港抗争与俄乌战争和当下的上海封城的死亡 数字对比让人触目惊心！](/content/gnews/6/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中日财经爆┃俄罗斯公布数字卢布计划](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [尽其所能愉悦地去尝试帮别人](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
-
-### [20220422郭文贵大直播 ：大根分享两位墙内战友的案例](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [接下来的饥荒，粮食大灾难](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
-
-### [20220422郭文贵大直播 ： “三朝帝师”王沪不宁（PPT）](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [人民币下跌和中共国内大恐慌](/content/gnews/12/README.md)
- ` 银河歌舞厅`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月22日早](/content/gnews/13/README.md)
- ` 纽约香草山MOS01`
-
-### [文·贵天成——文贵先生谈“习近平”（六）](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220422郭文贵大直播 ：世界需要清零中共(PPT)](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [新中国联邦或将在波兰和乌克兰设立大使馆](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [樱花时政┃普京发言人反驳日本 称北方四岛为俄领土](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [北京将被封锁上海解封后要政治清算](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [上海假冒伪劣保供物资引发百姓强烈不满](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [美志愿者为美国公司与中共深度勾连而羞愧](/content/gnews/20/README.md)
- ` NFSC News`
-
-### [中共无人性清零管控是最后的挣扎](/content/gnews/21/README.md)
- ` NFSC News`
-
-### [20220422郭文贵大直播 ：佩洛西将于4月26日正式访台（PPT）](/content/gnews/22/README.md)
- ` Tokyo Sakura Video Group`
-
-### [普京已向西方发出和解信号](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [美国会议长南希·佩罗西即将防台](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [西媒头条 — 第207期](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [普京露面视频加剧了它患有癌症和帕金森氏症的猜测](/content/gnews/26/README.md)
- ` 温哥华扬帆农场`
-
-### [4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期](/content/gnews/27/README.md)
- ` 秘密翻译组金融团队`
-
-### [美国及世界疫情简报（04-22-2022）](/content/gnews/28/README.md)
+### [4月22日乌克兰救援行动（图片1-13）](/content/gnews/4/README.md)
  ` 波士顿五月花农场`
 
-### [专家建议在聚会等计划前需多次病毒检测](/content/gnews/29/README.md)
+### [20220422郭文贵大直播 ：雅各谈基督教圣经启示录总结了邪恶特质](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国应该立法停止再向中共国注入投资](/content/gnews/6/README.md)
+ ` 银河歌舞厅`
+
+### [美国想让波兰军队成为欧洲最强大的军队之一](/content/gnews/7/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [20220422郭文贵大直播 ：中共资助的俄乌战争带来了新中国联邦的春天](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220422郭文贵大直播 ：致救援队的感谢信是在政治和外交上认可新中国联邦](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [消息人士称拜登将宣布对乌克兰的另一项大型军事援助计划](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [20220422郭文贵大直播 ：致新中国联邦乌克兰救援队的一封感谢信](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共国与所罗门群岛安全条约的背后是什么](/content/gnews/12/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [共产党想尽一切办法黑七哥](/content/gnews/13/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [20220422郭文贵大直播 ：中国缺少反抗的土壤](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [习近平暴露自己的目标](/content/gnews/15/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [新中国联邦的品牌无价](/content/gnews/16/README.md)
+ ` 银河歌舞厅`
+
+### [中日财经爆┃俄罗斯公布数字卢布计划](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [人民币下跌和中共国内大恐慌](/content/gnews/18/README.md)
+ ` 银河歌舞厅`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月22日早](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [新中国联邦或将在波兰和乌克兰设立大使馆](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美国警告中共勿对俄支持 承诺对印度提供武器帮助](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
+### [樱花时政┃普京发言人反驳日本 称北方四岛为俄领土](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [北京将被封锁上海解封后要政治清算](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [上海假冒伪劣保供物资引发百姓强烈不满](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [美志愿者为美国公司与中共深度勾连而羞愧](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [中共无人性清零管控是最后的挣扎](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [普京已向西方发出和解信号](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [普京露面视频加剧了它患有癌症和帕金森氏症的猜测](/content/gnews/27/README.md)
+ ` 温哥华扬帆农场`
+
+### [4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期](/content/gnews/28/README.md)
+ ` 秘密翻译组金融团队`
+
+### [美国及世界疫情简报（04-22-2022）](/content/gnews/29/README.md)
+ ` 波士顿五月花农场`
+
+### [专家建议在聚会等计划前需多次病毒检测](/content/gnews/30/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [2022年3月国际社会对中共的打击制裁汇总](/content/gnews/31/README.md)
  ` NFSC News`

@@ -2,40 +2,21 @@
 ---
 
 
-## 人民币下跌和中共国内大恐慌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2392719/)
+## 中共国与所罗门群岛安全条约的背后是什么
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2392841/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/e5ixq2b8Aa89TptxxgfIV4_Sy-l9tnogkbCGbpGwhm4.jpg)
-当地时间4月22日，离岸人民币兑美元跌破6.5，这是自2021年8月23日以来新低。在岸人民币跌破6.47。同一天中共国家外汇管理局召开2022第一季度外汇收支数据发布会，公布了一些假数据以稳定市场。
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04223-1.jpg)图片来自today.it
+中共国与所罗门群岛之间的安全框架协议引发了不满，加剧了印太地区的紧张局势。双边协定于 4 月 19 日正式签署。该协议开启了北京应霍尼亚拉要求派遣安全部队以确保该岛国“社会秩序”的可能性。然而，最令美国和澳大利亚感到紧张和担忧的方面是担心中共将在太平洋建立海军基地。
 
-自中共在上海以疫情为名开始人道灾难大封锁以来，“移民”成为微信搜索次数最频繁的词汇。而郭先生此前曾经提到最近在国外突然出现了很多基金公司，大量资金和人口都在转移。根据某数据统计，过去两个月中共国内债券市场创下最大数额资金外流，同时外资大量抛售中共国股票，因此人民币创下汇率新低。中共国内也开始了更加严格的外汇管制，如工商银行此前发布的关于停止外汇买卖的通知。
+近年来，由于所罗门群岛选择与中共国建立正式外交关系，北京与霍尼亚拉之间出现了明显的和睦关系，并与台湾断绝了关系。所罗门群岛总理已经提出推迟明年选举的（违宪）意图，由于中共国警察部队的存在，该协议保证了他在民众抗议时的安全。与此同时，中共国在太平洋群岛获得了一个重要基地，可以用来控制和封锁航运路线。因此，北京有机会巩固其在印太地区的存在。
 
-中共习近平最近正壮志筹谋准备入侵台湾，中共国内股市都在套钱跑路，国内经济岌岌可危，一旦习近平对台湾动手，国内经济和香港经济都会直接垮塌，人民币可能会消失。
+中共国还获得了通往所罗门群岛的门户，以防发生动荡，以保护其投资。正如英国《[金融时报》](https://www.ft.com/content/c0c49cd7-a4d9-4e4d-be6b-41f5fc3080cb)最近报道的那样，几家中共国公司正试图在该国购买大片土地，特别关注战略位置，例如靠近美国军事设施的地区，或主要海上交通路线沿线的岛屿。这家英国报纸强调，中共国投资者的行为往往不是私人商业扩张的表现，而是与中共国政府合作的一部分。
 
-reference：
+原文链接: [https://www.today.it/mondo/patto-sicurezza-cina-isole-salomone.html](https://www.today.it/mondo/patto-sicurezza-cina-isole-salomone.html)
 
-[https://finance.sina.com.cn/money/forex/forexroll/2022-04-22/doc-imcwiwst3359492.shtml](https://finance.sina.com.cn/money/forex/forexroll/2022-04-22/doc-imcwiwst3359492.shtml)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
-[https://finance.sina.com.cn/zt\_d/subject-1650590338/](https://finance.sina.com.cn/zt_d/subject-1650590338/)
-
-[https://baijiahao.baidu.com/s?id=1730796063743027482&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1730796063743027482&amp;wfr=spider&amp;for=pc)
-
-[https://baijiahao.baidu.com/s?id=1730800531148561066&wfr=spider&for=pchttps://ec.ltn.com.tw/article/breakingnews/3900771](https://baijiahao.baidu.com/s?id=1730800531148561066&amp;wfr=spider&amp;for=pchttps://ec.ltn.com.tw/article/breakingnews/3900771)
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

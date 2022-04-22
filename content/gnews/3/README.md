@@ -2,8 +2,8 @@
 ---
 
 
-## 20220422郭文贵大直播 ：中国缺少反抗的土壤
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392814/)
+## 20220422郭文贵大直播 ：大根介绍王沪宁的来头
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392968/)
 
 作者：东京樱花团小视频组
 
