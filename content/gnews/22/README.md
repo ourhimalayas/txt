@@ -2,14 +2,47 @@
 ---
 
 
-## 五月花简报（04/22/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2394022/)
+## 蜂鸟手绘-战友日常之心之向往
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2394039/)
 
-编辑：波士顿五月花—-冲天一怒
+作者：纽约香草山设计部 – 蜂鸟
+视频制作：佩奇
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E6CE9C8-69F1-487F-893D-F7A167A0BDE8.jpeg)
 
-*发布：思澈*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-156-scaled.jpg)
+* * *
+
+
+
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-42.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 
