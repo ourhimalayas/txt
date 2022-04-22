@@ -2,38 +2,30 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2392699/)
+## 新中国联邦的品牌无价
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2392788/)
 
-作者：香草山翻译部
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-01.jpg)
+梅迪卡救援前线时间4月20日，新中国联邦帐篷内布置了一个超大液晶电视，全天播放关于新中国联邦和法治基金的介绍，对于来往的乌克兰人和各个国家以及国际组织的媒体工作者来说，这是最方便快捷的渠道去认识新中国联邦。另外在乌克兰难民出境的必经之路上，我们也布置了一个户外超大LED擎天柱显示屏，建成以后，这个LED上面也会将循环播放新中国联邦以及当地救援机构的一些广告画面，方便难民寻求帮助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-57.png)
+自新中国联邦在梅迪卡展开救援以来，我们的周边愈来愈丰富，比如灭共马甲深受欢迎，气球，咖啡，也都非常抢手。每天几场接连不断的直播，介绍当地的情况并连线战友。除了我们自己的出品，当地政府发放的工作牌上直接使用新中国联邦，路牌指示上面也标注了新中国联邦的国旗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-21.png)
+更重要的是我们的战友在前线无私辛勤地付出，与国际友人交流灭共的理念。世界上有诸多大品牌，其展示和路演方式琳琅满目，但像新中国联邦这样无私无我本着最朴素的救人信念去到战争前线，恐怕古往今来，只此一家。新中国联邦无意间成为这个时代最无价的品牌。
 
-文章仅代表作者本人观点，与Gnews无关
+撰稿、发布：骄子
 
-视频参看：
-[2022.04.22早 《NFSC新闻》](https://gettr.com/streaming/p16lvbsf359)
-[2022.04.22早《NFSC新闻访谈》](https://gettr.com/streaming/p16lpus6ec2)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+欢迎订阅我们的GNews账号：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-57.png)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,43 @@
 ---
 
 
-## 人民币下跌和中共国内大恐慌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2392719/)
+## 消息人士称拜登将宣布对乌克兰的另一项大型军事援助计划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2392860/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/e5ixq2b8Aa89TptxxgfIV4_Sy-l9tnogkbCGbpGwhm4.jpg)
-当地时间4月22日，离岸人民币兑美元跌破6.5，这是自2021年8月23日以来新低。在岸人民币跌破6.47。同一天中共国家外汇管理局召开2022第一季度外汇收支数据发布会，公布了一些假数据以稳定市场。
+***评论：**近段时间以来，美国、英国、捷克和荷兰等盟国均已增加交付给乌克兰的重型武器数量。而德国也因为拒绝向乌克兰输送重型武器而受到抨击，作为回应，德国表示愿提供东欧各国先进的装甲车，换取这些国家援助乌克兰坦克，抵抗俄军的侵略。在乌克兰人民的顽强抵抗的感染下，我们也看到美国和欧洲抵抗俄罗斯侵略的决心，而俄罗斯要么投降示好，要么注定被打到溃不成军，期待普京被审判和俄罗斯被肢解，期待独裁统治下的俄罗斯人民回到民主的怀抱。*
 
-自中共在上海以疫情为名开始人道灾难大封锁以来，“移民”成为微信搜索次数最频繁的词汇。而郭先生此前曾经提到最近在国外突然出现了很多基金公司，大量资金和人口都在转移。根据某数据统计，过去两个月中共国内债券市场创下最大数额资金外流，同时外资大量抛售中共国股票，因此人民币创下汇率新低。中共国内也开始了更加严格的外汇管制，如工商银行此前发布的关于停止外汇买卖的通知。
+据《路透社》作者：Patricia Zengerle, Steve Holland, Idrees Ali and Jonathan Landay，2022年4月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2789-e1650643247148.png)2022年3月21日，在美国华盛顿举行的商业圆桌会议CEO季度会议上，美国总统乔·拜登讨论了美国对俄罗斯入侵乌克兰的反应，并警告CEO们注意来自俄罗斯的潜在网络攻击。图片来源：REUTERS/Leah Millis/资料图片
+华盛顿，4月19日（路透社）–熟悉此事的多个消息来源周二表示，美国总统拜登预计将在未来几天内宣布另一项针对乌克兰的军事援助计划，其规模与上周宣布的8亿美元的计划大致相同。
 
-中共习近平最近正壮志筹谋准备入侵台湾，中共国内股市都在套钱跑路，国内经济岌岌可危，一旦习近平对台湾动手，国内经济和香港经济都会直接垮塌，人民币可能会消失。
+一位不愿透露姓名的美国官员说，预计新方案的规模将与之前的方案大致相同，但细节仍在制定中。
 
-reference：
+上述最新方案首先由美国全国广播公司新闻网（NBC News）报道。
 
-[https://finance.sina.com.cn/money/forex/forexroll/2022-04-22/doc-imcwiwst3359492.shtml](https://finance.sina.com.cn/money/forex/forexroll/2022-04-22/doc-imcwiwst3359492.shtml)
+拜登政府上周宣布了8亿美元的额外援助，包括火炮系统、炮弹、装甲运兵车和无人驾驶的海岸防御船，扩大了送往基辅的物资范围，包括新型重型装备。
 
-[https://finance.sina.com.cn/zt\_d/subject-1650590338/](https://finance.sina.com.cn/zt_d/subject-1650590338/)
+如果本周的援助计划与预期的一样大，这将使美国自2月份俄罗斯入侵乌克兰以来对乌克兰的军事援助总额超过30亿美元。
 
-[https://baijiahao.baidu.com/s?id=1730796063743027482&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1730796063743027482&amp;wfr=spider&amp;for=pc)
+文章观点仅代表作者个人，与Gnews平台无关
 
-[https://baijiahao.baidu.com/s?id=1730800531148561066&wfr=spider&for=pchttps://ec.ltn.com.tw/article/breakingnews/3900771](https://baijiahao.baidu.com/s?id=1730800531148561066&amp;wfr=spider&amp;for=pchttps://ec.ltn.com.tw/article/breakingnews/3900771)
+文章来源: [https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA](https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA)
 
-撰稿、发布：骄子
+翻译：洛杉矶盘古农场 – Mike Li
 
-* * *
+校对：洛杉矶盘古农场 – 钢蛋儿
 
-欢迎订阅我们的GNews账号：
+评论：洛杉矶盘古农场 – 钢蛋儿
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+编辑：洛杉矶盘古农场 – 傻小子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
