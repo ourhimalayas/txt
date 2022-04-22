@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 2:04 PM (UTC)`
+
+04/22/2022 on the 4th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 8 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Cambodia🇰🇭<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月22号，《铁锁梦》MV在全球上线第四天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>8国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，柬埔寨🇰🇭的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2392030/
+
+---
+
 `@miles 4/22/2022 12:56 PM (UTC)`
 
 2022年4月22日 文贵大直播：墙内封城疫苗灾难核酸检测最新信息；美人权斗士佩罗西访台与习直接交锋
@@ -146,13 +152,6 @@ https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
 
 2022.04.21《The Fringe》 Episode 174<br/>中文同传：https://gettr.com/streaming/p16hvg99070
 ![img](https://media.gettr.com/group31/origin/2022/04/21/23/52965f55-4937-5d5f-69d7-1729db8e5407/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 11:00 PM (UTC)`
-
-2022.04.21 NFSC news  Mariupol Commander Describes the State of War inside Mariupol Plant
-![img](https://media.gettr.com/group28/origin/2022/04/21/22/d4963eaa-b118-8d59-9dd8-57ecb004238a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
