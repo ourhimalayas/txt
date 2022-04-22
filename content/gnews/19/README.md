@@ -2,36 +2,42 @@
 ---
 
 
-## 加拿大制裁普京家属及其政权幕僚
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393633/)
+## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（5/5）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393685/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506550841.png)图片来源：多伦多太阳报
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（4/5）](https://gnews.org/zh-hans/2393628/)
 
+&lt;解说&gt;普京或许会改变马里乌波尔的计划 原因是……–保罗•亚当斯外交事务编辑委员
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-367.jpeg)图片来源：BBC新闻
+俄军是停止轰炸阿佐夫斯塔利钢铁厂、作战方式改为彻底封锁，还是按照普京总统的发言，希望看到今后的发展再相信。
 
-据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄总统普京关系密切的亲属和幕僚。
+但是，若是如此，为什么要改变作战（计划）呢？
 
-报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
+普京总统希望尽快推进在乌东部顿巴斯地区的大攻势。
 
-加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。
+除马里乌波尔攻防战使俄罗斯损失宝贵的资源外，许多俄军部队钉在此处，无法腾身执行其他作战目标。
 
-原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+被卡米乌斯河与马里乌波尔市中心隔开的钢铁厂，应该易于孤立，但如果真的要像普京所言“一只苍蝇也别想跑”那样封锁，还是需要留下相当多军队的。
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+再加上泽连斯基总统发誓，如果马里乌波尔守军全军覆没，和平谈判就没有可能。这意味着，普京可能希望保留外交处置，至少有外交处置的外表。
+
+甚至可能与经济因素有关。
+
+阿佐夫斯塔利是欧洲最大的钢铁厂。即使在惨遭持续数周的破坏之后，俄罗斯政府或许仍在期待着什么有价值的东西存在。
+
+参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+素材：宫米叶
+审核：Bryan
+校对：zicoround
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

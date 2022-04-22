@@ -2,16 +2,12 @@
 ---
 
 
-## 五月花简报（04/22/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2394022/)
+## 南昌将在全市实施较大范围区域的静态管理
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2394040/)
 
-编辑：波士顿五月花—-冲天一怒
+04/21/2022 自4月22日起，南昌将在全市实施较大范围区域的静态管理。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E6CE9C8-69F1-487F-893D-F7A167A0BDE8.jpeg)
-
-*发布：思澈*
-
-
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
