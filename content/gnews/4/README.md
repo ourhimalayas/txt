@@ -2,39 +2,36 @@
 ---
 
 
-## 李家超油管账户被封 谷歌称遵守美国制裁法
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2389390/)
+## 中日财经爆|俄媒报道：银联担心被制裁 拒绝与俄银行合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389522/)
 
-![前香港政务司司长李家超到选举事务司提交参选特首提名。（2022年4月13日）](https://gdb.voanews.com/03a80000-0aff-0242-64ca-08da1d4a5e3e_cx0_cy4_cw0_w1023_r1_s.jpg)前香港政务司司长李家超到选举事务司提交参选特首提名。（2022年4月13日）
-据美国之音4月21日报道，香港行政长官选举的唯一候选人李家超自宣布参选后一直通过脸书、Instagram及YouTube（油管）三个社交平台进行直播或分享影片作为宣传。从4月20日开始，李家超的YouTube链接突然消失。YouTube母公司谷歌表示，李家超的账户违反了美国出口及制裁政策，需要终止使用。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄媒报道：银联担心被制裁-拒绝与俄银行合作.png)[图片来源](https://www.opindia.com/2022/03/as-visa-mastercard-leave-russia-russian-banks-switch-to-chinese-unionpay/)
 
-目前李家超仍然可以继续使用脸书专页和Instagram账户，但不能使用任何收费服务。由于Meta是美国公司，营运受美国法例约束，当识别到账户持有人被美国政府列入管控名单，公司有法律责任对相关账户采取一定措施。
+俄罗斯商业咨询(RBC) 4月20日报道，中国银联因为担心会成为制裁目标而拒绝与俄罗斯的银行合作，从而切断了俄罗斯一个可能的替代选项。此前， Visa和万事达停止了为俄罗斯银行提供服务。俄罗斯因为入侵乌克兰而受到西方民主国家的金融制裁。
 
-2020年8月，美国财政部根据川普总统颁布的行政命令，按照香港人权及民主法案及香港自治法案，对香港特首林郑月娥、时任保安局长李家超等11名官员实施制裁。被美国制裁已经超过一年的李家超表示，该事件对他参选特首不会构成影响。
+RBC星期三报道说，银联的决定影响到俄罗斯最大的商业银行俄罗斯联邦储蓄银行和一些较小的机构。
 
-香港资讯科技商会荣誉会长方保侨表示，与脸书和Instagram相比，YouTube显然是对李家超的账户“一刀切”。全国港澳研究会副会长刘兆佳表示，相信这次是美国的政治表态。刘兆佳质疑谷歌受到美国政府施压力才停止李家超的频道，他估计美方会对香港和中共国大陆采取更多的遏制措施。
+在美国和其他政府因俄罗斯军事入侵乌克兰而对其实施贸易和金融制裁后，万事达和Visa暂停了在俄罗斯的业务。
 
-香港民意研究所副行政总裁钟剑华表示，李家超根本不适合当香港特首。没有人会认真看待他们，也没有人会邀请他们出访。香港领导人将彻底失去在国际舞台的空间。就算李家超当选为特首，他根本不会受到国际社会的认可。他又如何能代表香港呢？这将加快香港与国际社会脱钩。
+俄罗斯联邦储蓄银行和另一家银行廷科夫银行(Tinkoff Bank)此前宣布，它们正在考虑转向中国银联。银联由中共国国有银行运营，是全球最大的支付平台之一，但其几乎所有业务都在中国。
 
-中共外叫部狂犬发言人汪文斌表示，香港社会各界对外国势力公然干预香港选举的恶劣行径予以一致谴责，要求美国社交平台公司尊重香港特区行政长官选举的公平公正。
+美国官员已经警告说，试图破坏制裁的政府或公司将面临后果。RBC表示，银联希望避免这种“次级制裁”。
 
-中共的厚颜无耻和残暴血腥在香港反送中事件上展露无遗。谁会遭到谴责，如果在香港公开民意测验？是中共。谁在破坏香港行政长官选举的公平公正？是中共。李家超不是香港民意推举的候选人，他只是中共的一条走狗。他代表的是中共，不是代表香港。
+RBC提到的其他银行包括阿尔法银行(Alfa Bank)、俄罗斯外贸银行(VTB)、俄罗斯最大的商业银行之一Otkrytie以及俄罗斯工业通信银行(Promsvyazbank)。
 
-香港曾经是经济繁荣、高度发达的国际化大都市，是自由、民主、法治的昌盛之地。自从香港回归之后，在中共的重拳打击之下，香港已经不复当年的繁荣兴旺，拒绝舔共的企业无法生存，外企纷纷撤离，经济一蹶不振，曾经的“东方之珠”变成了埋葬香港年轻人抗议暴政的杀人之都。但是，暴政越严厉，抗争越持续，香港人没有放弃，公平公正的选举、民主自由的社会必将重回香港。
+消息来源：
+[**俄媒：中国的信用卡处理商拒绝与俄银行合作**](https://www.voachinese.com/a/russia-credit-card-china-sanctions-20220421/6539666.html)
 
-新闻参考链接：[https://www.voachinese.com/a/youtube-shuts-campaign-channel-of-hong-kong-s-leadership-candidate-20220421/6538826.html](https://www.voachinese.com/a/youtube-shuts-campaign-channel-of-hong-kong-s-leadership-candidate-20220421/6538826.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

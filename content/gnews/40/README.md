@@ -2,37 +2,29 @@
 ---
 
 
-## 【G时新闻】抗议俄侵略 美英加G20会议集体离席
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2388034/)
+## 外企纷纷撤出 莫斯科20万人面临失业
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388177/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-##### 播  报：加拿大温哥华扬帆农场** **-【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-49.jpg)
+莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
 
-俄罗斯侵略乌克兰仍在继续，21日的G20财长会议上，英国、美国和加拿大的高阶官员当着俄罗斯代表面前离席，许多成员也发言谴责俄罗斯对乌克兰发动的军事行动。
+由于欧美及其他地区陆续祭出制裁，拖垮了俄罗斯经济，并将其推向了外债违约的边缘，造成俄罗斯通货膨胀一路飙升，有经济学家预测，俄罗斯经济将陷入严重衰退。
 
-G20财长会议在美国华府以视讯方式举行，根据外媒报导，会议中当俄罗斯代表发言时，不少出席会议的部长和央行行长纷纷关闭视讯会议的镜头，包含美国财政部长叶伦（Janet Yellen）、乌克兰财政部长马尔琴科（Serhiy Marchenko）、英格兰银行总裁贝利（Andrew Bailey）和加拿大副总理兼财长方慧兰（Chrystia Freeland）等人。
+参考链接：
+1. [Vladimir Putin’s nuclear bomber planes called ‘Bears’ fly in Ukraine striking distance](https://www.mirror.co.uk/news/world-news/vladimir-putins-nuclear-bomber-planes-26735218)
+2. [Mariupol’s defenders dig in for last stand as Russia threatens to ‘filter’ out men](https://edition.cnn.com/2022/04/18/europe/ukraine-russia-mariupol-monday-intl/index.html)
+3. [Russia begins large-scale offensive in eastern Ukraine](https://www.axios.com/ukraine-battle-donbas-eastern-ukraine-russia-df048eb8-688a-4163-a9a2-34bda799b9ab.html)
 
-知情人士称，美国财长叶伦强烈反对俄国官员出席G20会议，也会尽量避免在会议中与俄方接触，先前叶伦表示，俄国在全球经济中「不会照常运作」，美国总统拜登也说，俄国不应继续担任G20的成员。
-加拿大副总理兼财长方慧兰表示，「面对俄国持续不断的侵略与战争罪行，世界上的民主国家不会袖手旁观」，她强调，本周举行的会议关乎支持世界经济，但俄国非法入侵乌国是对全球经济的严重威胁，俄国不应参加，或被包含在这些会议中。
-乌克兰背后站的是整个民主世界，而俄罗斯虽然与中共有唇亡齿寒的关系，但也相互的提防。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-中共作为俄乌战争背后的元凶，想联合俄罗斯在民主世界扩张进而为独裁的政府续命，中共侵略台湾的计划也绝不会成功，俄罗斯今天的局面就是中共的明天。
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-盖特链接：https://gettr.com/post/p16bqom01ef
-
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

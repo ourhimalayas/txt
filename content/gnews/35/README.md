@@ -2,34 +2,29 @@
 ---
 
 
-## 有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388401/)
+## 多国网络安全机构警告：俄罗斯将实施“恶意网络行动”
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2388853/)
 
-作者：Skagen
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-英文翻译，播报：Kevin
+4月20日，多国网络安全机构发布联合公告表示，俄罗斯将在未来几天或几周内执行恶意网络行动，即对关键基础设施进行网络攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰成功拦截俄罗斯黑客攻击-企图破坏电网（海星）-1.jpg)（图片来源：路透社）
+据《NEWSMAX》报导，美国三家联邦机构和一些世界性的合作伙伴在发布的联合声明中警告称，俄罗斯联邦安全局（FSB）、俄罗斯对外情报局（SVR）、俄罗斯总参谋部主要情报局（GRU）和俄罗斯国防部、中央化学和机械科学研究所的犯罪者可能在未来几天或几周内执行”恶意网络行动”，对关键基础设施进行全面网络攻击，而且不仅限于乌克兰，可能会波及向乌克兰提供物质支持的国家或组织。
 
-新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
+报导称，这份联合声明共同签署者包括美国网络安全和基础设施安全局（CISA）、联邦调查局和国家安全局，以及澳大利亚网络安全中心、加拿大网络安全中心、新西兰国家网络安全中心、英国国家网络安全中心。
 
-今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
+美国CISA主任Jen Easterly指出，这份声明显示俄罗斯支持的以及与俄罗斯结盟的网络犯罪集团对美国国土安全的威胁日趋增强。她强调说，“恶意网络行动”一直是俄罗斯的拿手好戏，俄罗斯还在探索针对美国关键基础设施进行网络攻击的可行选项。
 
-奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+对此，CISA及其合作伙伴建议各组织和公司升级安全网络，特别是认证和远程桌面协议，并加强终端用户意识培训。
 
-非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
+参考链接：
 
-从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
-
-The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
-Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
-Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
-It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
-As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
-
-校对/发稿：serena
-![](https://assets.gnews.org/wp-content/uploads/2022/04/f48b7291-3cb5-4969-a2ad-9574ab25b4a7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-186.jpg)
+1. [https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/](https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/)
 
 
+编辑：海星
+总编：老孙
+校对发布：wenxia16
 
  
 

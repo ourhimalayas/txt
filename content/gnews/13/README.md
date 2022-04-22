@@ -2,32 +2,35 @@
 ---
 
 
-## 德国将为东欧各国提供先进装甲车以补偿其援助乌克兰
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2389265/)
+## 加拿大新冠疫情大流行再复苏
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389359/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+##### 作者：加拿大温哥华扬帆农场 -【文莱】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2703.png)图片来源：[CTV News](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
 
-据《自由时报》4月22日报道，德国将提供东欧各国先进的装甲车，以补偿这些国家援助乌克兰战车，抵抗俄军的侵略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德国将为东欧各国提供先进装甲车以补偿其援助乌克兰.jpg)（图片来自欧新社）
+据加拿大媒体【CTV新闻】4月19日报道，加拿大各地的医院正经历新冠病毒疫情的再复苏，业内人士分析此情况可能会持续恶化一个月。
 
-据报道，德国国防部长兰布雷特（Christine Lambrecht）表示，战事目前进入关键阶段，必须尽快援助乌克兰武器、尤其是乌克兰士兵能马上操作的武器。
+报道称，加拿大公共卫生署最新数据显示，加拿大各地因新冠疫情而住院的人数增加了约18%，从5109人增加到6020人。，一些省份的重症监护人数也略有上升。此外，部分地区正处于由奥密克戎的BA.2亚变体所导致的第六波大流行，但官方处理的方式却不并不像当初奥密克戎那样引人注目。反而之是以此推动新冠疫苗计划。
 
-她证实，德国已与“北大西洋公约组织”（NATO）盟国达成共识，几个东欧国家未来几天将把前苏联时期的战车和装甲车交给乌克兰，德国计划提供先进的武器补偿这些国家。
+对此，本台记者认为加拿大部分地区业内人士的分析将再次伤害群众，因为新冠疫苗的灾难即将到来。
 
-昨日，德国外长贝尔伯克（Annalena Baerbock）在拉脱维亚访问时也指出，短期内德国无法提供乌克兰重型武器，因此与盟邦讲好先由对方提供，德国之后再补偿。
+原文链接：[COVID: Provinces experience rise in hospitalizations | CTV News](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
 
-她强调，对德国来说，提供重型武器给乌克兰“不是禁忌”，不过没有解释为何德国不愿直接供应乌克兰战车和装甲车。
+上传/发稿 – 【青青】
+撰稿-【文莱】
+采编 -【文莱】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
+* * *
 
-此前，乌克兰要求德国供应战车，但德国政府至今没有点头，在国内外受到批评。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[https://news.ltn.com.tw/news/world/breakingnews/3901437](https://news.ltn.com.tw/news/world/breakingnews/3901437)
-
-总编：老孙
-校对发布：wenxia16
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

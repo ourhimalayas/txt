@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 3:38 AM (UTC)`
+
+4月22号：尊敬的战友们好．这个运动看上去容易，其实非常的危险，大家务必要小心哦……【七哥，他為了向你學習，學成這樣了。】
+![img](https://media.gettr.com/group4/getter/2022/04/22/03/7fb888ec-bb56-248f-28b3-da4575d5db45/out.jpg)
+
+---
+
 `@miles 4/22/2022 3:02 AM (UTC)`
 
 2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
@@ -146,13 +153,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 04.21.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group41/origin/2022/04/21/17/20179cd3-2294-32fd-c87d-6db67b00f211/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 4:16 PM (UTC)`
-
-04.21.2022 七哥乱聊直播
-![img](https://media.gettr.com/group22/liveorigin/2022/04/21/16/a223bfe2-9161-b414-7bb0-5bb6188b2245/db77deaeeaadf94601c75dae84bb7948.jpg)
 
 ---
 
