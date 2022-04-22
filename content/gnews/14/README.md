@@ -2,22 +2,108 @@
 ---
 
 
-## 加拿大央行利用量子计算确认数字货币应用
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2388574/)
+## 可悲的中国境内人的生死, 竟由一身印着共产党突击队员的白衣服决定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2388641/)
 
-加拿大温哥华扬帆农场    平民正道
+现在中国人没有信仰
+Los chinos de ahora no tienen una creencia
 
-据【金融邮报】4月18日报道，由于数字资产领域超出了传统计算机可以处理的范围，加拿大央行正在尝试利用量子计算以解决包括数字货币在内的一系列复杂金融问题。
+奴才当了主人那个感觉
+El sentimiento de convertirse de un esclavo a un amo
 
-加拿大央行最近与量子软件公司[多元宇宙]合作，在模拟了非金融公司采用数字货币作为支付手段的各种情况之后发现：数字资产最终将与传统的银行转账和现金工具一起参与支付市场。
+大家都体会到了
+Todos lo han sentido
 
-据悉，[多元宇宙公司]使用量子计算机的“量子退火”技术，从大量潜在方案中确定最佳解决途径。由于加密货币市场的不稳定性，该技术将使中央银行能够准确预测监管的最终效果。
+我们人一生都是怕的是, 怀疑的是
+Todo lo que nosotros tememos y dudamos en esta vida es
 
-加拿大银行多年来都在探索加密货币以及发行中央银行数字货币的可能性。为此，联邦政府将在五年内拨款 1770 万加元，用于由财政部负责的对数字加元的立法审查。同时，在研究加密货币和稳定币等数字货币的应用之外，还在需要时扩大中央银行数字货币发行的可能性。
+解决就是生死问题
+Resolver el problema de la vida y muerte
 
-* * *
+一个叫阴间, 一个叫阳间
+Uno se llama inframundo, uno se llama mundo
 
-编辑： 平民正道    发布：平民正道
+今天的中国已经把整个中国
+China de hoy en día ha dejado que todo el país
+
+变成了一个活着的阴间和阳间
+Se convirtiera en un inframundo y un mundo vivo
+
+我让你活成活人直接到阴间去
+Te dejo como persona viva sobrevivir directo al inframundo
+
+我就把你变成阳性
+Te convierto en positivo
+
+我让你就是待在里边
+Hago que te quedes adentro de
+
+已经确定阳性所谓的方舱
+El supuesto Hospital arca de Noé que ha sido identificada como positivo
+
+就等死的地方
+El lugar donde esperas para morir
+
+我让你变成阴性
+Te convertiré en negativo
+
+生死一线间, 阴间和阳间之分
+La línea entre la vida y la muerte, entre el inframundo y el mundo
+
+就是一个大白的一套衣裳
+Es un gran traje blanco
+
+还有写上共产党突击队员
+Donde dice comandos comunistas
+
+整个中国没有第三间, 没有第三
+No hay un tercer sitio en toda China, no lo hay
+
+就是阴间和阳间
+Sólo el inframundo y el mundo
+
+而且你在活着的
+Y si estás vivo
+
+在阴间阳间的权利
+El derecho de estar en el inframundo y el mundo
+
+就是你身边那个曾经熟悉
+Es el que solía ser conocido y estar al lado tuyo
+
+很认识的街道委员会和居委会
+Los conocidos comités de calle y comités de vecinos
+
+和你可能跟上一次床
+Y con quien tengas las relaciones sexuales
+
+能换来的就能决定
+Por el intercambio de tomar decisión
+
+你是阴间还是阳间
+Si estar en el inframundo o en el mundo
+
+**原视频网址**：[https://gettr.com/post/p156mhrfcb6](https://gettr.com/post/p156mhrfcb6)
+
+日期：04/19/2022
+原视频标题：可悲的中国境内人的生死, 竟由一身印着共产党突击队员的白衣服决定
+Tristemente, la vida y muerte de la gente en China la deciden las personas con las ropas blancas estampadas con la frase “comandos del PCCh”
+
+原视频日期：04/14/2021
+原视频网址：https://gettr.com/post/p156mhrfcb6
+任务编号： KC493（4252）
+视频时间段：0:00-1:23
+
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布: 洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

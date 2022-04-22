@@ -2,12 +2,20 @@
 ---
 
 
-## 4月21日文贵临时直播要点（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2388691/)
+## 郭文贵直播音频2022.04.21
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2388787/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5EBF1D1D-AAC7-4DDA-B002-9DF0E01191CD-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/E8E3379F-4A56-448B-8B30-A19039949F75-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9954F205-0998-4145-93CB-9F271A3F2C6E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2F9A692E-694F-4929-9FEF-A69002BE7663-scaled.jpeg)
-发布：水涨船高
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/db77deaeeaadf94601c75dae84bb7948_500x0.jpg)
+### 视频链接：
+
+[https://gettr.com/post/p16cfisc410](https://gettr.com/post/p16cfisc410)
+
+### 音频链接：
+
+
+
+编辑发布：闪电训练
 
  
 

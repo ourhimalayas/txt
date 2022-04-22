@@ -2,32 +2,28 @@
 ---
 
 
-## 【秘翻时评】中共是奴隶主, 99%的中国人是奴隶
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2386904/)
+## 普京宣布占领马里乌波尔
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387075/)
 
-By:**[秘翻时评](https://gettr.com/post/p16d6ps3aa5)**
+共同社4月21日报道，普京总统周四表示，俄罗斯军队已经有效地夺取了对马里乌波尔（Mariupol）的控制权，这是乌克兰东部顿巴斯地区的一个关键地区，同时他取消了冲击东南港口城市内一家钢铁厂的计划，那里仍有数千名乌克兰人藏身。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/P-1.jpg)yahoo.com
+普京宣布军事行动 “成功”，命令他的国防部长谢尔盖·绍伊古取消冲击亚速（Azovstal）钢铁厂的计划，因为这 “没有必要”，但要求继续封锁。
 
-***[2022-04-21](https://gettr.com/post/p16d6ps3aa5)***
+攻占马里乌波尔标志着俄罗斯夺取包含亲俄分裂分子的乌克兰东部两个地区控制权这一目标的一个重要转折点。
 
-**新闻内容:**
+俄罗斯呼吁在钢铁厂做最后抵抗的志愿准军事民兵 “亚速营 ”和其他人投降。
 
+为了疏散估计躲在工厂里的大约1000名平民，乌克兰政府周三提议与俄罗斯在马里乌波尔举行谈判，并表示它准备立即无条件前往。
 
-```
-1.俄罗斯盟友称今天将夺取马里乌波尔
- 2.中俄军舰现身日本周边海域
- 3.习近平博鳌论坛演讲称 西方经济脱钩行不通
+俄罗斯的回应尚未得到确认，这加剧了人们对人道主义危机可能继续恶化的担忧。
 
- 时评内容：
- *中共国粮食危机再受关注
- *中共是奴隶主，99%的中国人是奴隶
+**快评**：俄乌战争正在走向更残酷的阶段，普京不会主动停止战争的。
 
- 🔗Gettr链接：https://gettr.com/post/p16d6ps3aa5 
- 发布:星星
-```
+参考链接：
+[https://english.kyodonews.net/news/2022/04/22e6fb1f131e-putin-declares-mariupol-captured-cancels-plan-to-storm-steel-plant.html](https://english.kyodonews.net/news/2022/04/22e6fb1f131e-putin-declares-mariupol-captured-cancels-plan-to-storm-steel-plant.html)
 
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

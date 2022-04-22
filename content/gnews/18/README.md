@@ -2,34 +2,22 @@
 ---
 
 
-## 有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388401/)
+## 加拿大央行利用量子计算确认数字货币应用
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2388574/)
 
-作者：Skagen
+加拿大温哥华扬帆农场    平民正道
 
-英文翻译，播报：Kevin
+据【金融邮报】4月18日报道，由于数字资产领域超出了传统计算机可以处理的范围，加拿大央行正在尝试利用量子计算以解决包括数字货币在内的一系列复杂金融问题。
 
-新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
+加拿大央行最近与量子软件公司[多元宇宙]合作，在模拟了非金融公司采用数字货币作为支付手段的各种情况之后发现：数字资产最终将与传统的银行转账和现金工具一起参与支付市场。
 
-今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
+据悉，[多元宇宙公司]使用量子计算机的“量子退火”技术，从大量潜在方案中确定最佳解决途径。由于加密货币市场的不稳定性，该技术将使中央银行能够准确预测监管的最终效果。
 
-奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+加拿大银行多年来都在探索加密货币以及发行中央银行数字货币的可能性。为此，联邦政府将在五年内拨款 1770 万加元，用于由财政部负责的对数字加元的立法审查。同时，在研究加密货币和稳定币等数字货币的应用之外，还在需要时扩大中央银行数字货币发行的可能性。
 
-非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
+* * *
 
-从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
-
-The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
-Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
-Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
-It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
-As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
-
-校对/发稿：serena
-![](https://assets.gnews.org/wp-content/uploads/2022/04/f48b7291-3cb5-4969-a2ad-9574ab25b4a7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-186.jpg)
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

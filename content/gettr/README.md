@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 1:12 AM (UTC)`
+
+2022.04.21 晚  新中国联邦 | 新闻访谈   俄罗斯经济只会越来越差；陈顺平的死亡和华山路的标语
+![img](https://media.gettr.com/group37/origin/2022/04/22/01/579a583c-3318-70ba-68ef-83955168faec/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/22/2022 12:30 AM (UTC)`
 
 2022.04.21 晚  新中国联邦 | 新闻   中共政权岌岌可危 新中国联邦拯救中国人；习近平迷信莫德尔周期，中共自取灭亡
@@ -145,13 +152,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月20日第47天当日救援统计：<br/>Medyka救援站接待：约288人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13359人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 47 - Date: April 20, 2022 :<br/>Medyka Rescue Station Reception: about 288 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13359 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group50/getter/2022/04/21/13/7b7f37f6-f17e-f270-768d-b2840442998b/5377e32cfbe365e092dba5370f4be817.jpg)
-
----
-
-`@miles 4/21/2022 1:00 PM (UTC)`
-
-4月21日：尊敬的战友们好．看共产党流氓，这些所谓的辟谣，真的很让人无语，共产党真的是把14亿中国人民当成猪了……，否则他们不可能总是一贯的．用这种掩耳盗铃．愚蠢无知的宣传……谎言来欺骗这么多老百姓．可恨至极……新中国联邦将彻底消灭中国共产党！
-![img](https://media.gettr.com/group32/getter/2022/04/21/13/d19f2b0a-a2a5-a4c5-ba17-591734aa73e3/fc6c989cf320788fe6f764aa1661f28c.jpg)
 
 ---
 
