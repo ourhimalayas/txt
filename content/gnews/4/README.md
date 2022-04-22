@@ -2,148 +2,34 @@
 ---
 
 
-## 乔·罗根支持马斯克收购推特
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390493/)
+## 东航空难 30天 中方发布调查报告
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2390577/)
 
-Jackie DeAngelis (Fox Business Network)
-杰基·迪安吉利斯（福克斯商业网络）
+**撰稿：日本东京方舟农场  子辰**
 
-Time for the Hot Topic buzz the battle over Twitter heating up
-热门话题的时间到了，关于推特之战在升温
+4月20日，中国民航局（CAAC）在国际规定需在事故发生一个月内出具初步事故调查报告的截止日前，终于公布了关于东航MU5735航班空难的初步调查结果，但此报告令众人感到失望。
 
-as one of the world’s largest buyout firms Apollo Global Management
-作为全球最大的收购公司之一，阿波罗全球管理公司
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-43.jpg)（图片来自大纪元）
 
-thinking of backing the possible deal
-考虑支持可能的交易
+中国民航局在此报告中表示，3月21日在广西梧州失事的东航MU5735航班空难，机上共乘载132人，未发现生还者。已寻获的两个黑匣子，“驾驶舱语音记录器”（CVR）与“飞行数据记录器”（FDR）因受损严重，相关单位仍在解析内容，尚未破译。
 
-It comes as comedian and podcast host Joe Rogan voices his support for Elon Musk spin
-喜剧演员和播客主持人乔·罗根表达了他对埃隆·马斯克尝试的支持
+报告说，该架波音737-800NG的飞机维修、设备、携带物品都没有问题；该日天气以及飞行机组、客舱机组和维修放行人员的资质均符合要求。
 
-Joe Rogan
-乔·罗根
+对于这份初步结果，大陆网民纷纷发表意见，批评中国民航局“说了跟没说一样”，或是抨击官方“目前啥也没查出来”。
 
-We look to like powerful leaders
-我们喜欢强大的领导者
+目前除了中方组成的调查小组外，美国国家运输安全委员会（NTSB）也在中方的同意及邀请下协助调查。美国运安会表示，华盛顿的实验室正在协助中方下载该架失事客机两个黑匣子的数据，美方派出的7人工作小组，也于4月初抵达中共国参与失事调查。
 
-like that’s why me included, everyone is so excited that Elon Musk is trying to buy Twitter
-就像，那是包括我在内的原因，每个人都很兴奋埃隆·马斯克试图收购推特
+此外，美国航校的教练和学员们在讨论东航空难后认为，该事件无论从机械或人为因素推测失事原因，都存在许多不合理之处。但中国民航局的报告完全是避重就轻，表面上的确是按部就班排除了各种失事的可能，但却没有针对关键问题进行调查，即使调查了，中共方面也是虚有其表毫无实质意义。
 
-like yes, the great one
-就像是的，伟大的领导者
+有分析人士认为 ，在中共扭曲的社会环境中，中国人活得非常非常累，在那样的环境下，无论你是高薪行业还是其他，所背负的压力都是难以想象的。
 
-He seems to be like a guy that if you had a movie character
-他似乎就像一个有电影角色的人
+在中共丑恶扭曲的所谓党文化体制下，从这份报告看出，不过是再次显示中共官方一贯敷衍和愚弄民众的态度。
 
-and the movie character was like super billionaire
-而这个电影角色就像一个超级亿万富翁
+参考链接：
+[https://www.epochtimes.com/gb/22/4/21/n13717262.htm](https://www.epochtimes.com/gb/22/4/21/n13717262.htm)
 
-and he was really genuinely working to save humanity
-他真的是在努力地拯救人类
-
-Jackie DeAngelis
-杰基·迪安吉利斯
-
-Joe Rogan pointing to Musk’s ethics and also his morals for
-乔·罗根指出马斯克的道德和也是他自己的道德
-
-why he and many others are excited for his efforts to take the social media platform
-为什么他和许多其他人为他在社交媒体平台上所做的努力感到兴奋
-
-and make it a better haven for free speech
-并使其成为言论自由的更好避风港
-
-Jonathan your reaction
-乔纳森，你的回应
-
-Jonathan
-乔纳森
-
-you know, I agree with Joe Rogan he should be a movie character
-你知道，我同意乔·罗根的观点，他应该成为一个电影角色
-
-You know he’s done enough to earn his spot in any case
-你知道他在任何情况下都做得足以赢得他的位置
-
-but I will say this you know, we need people like Joe Rogan stepping up and
-但我会这么说，你知道，我们需要像乔·罗根这样的人挺身而出
-
-and speaking truth to power here and representing the conservative voice
-在这里向权力说真话并代表保守派的声音
-
-we support Elon Musk
-我们支持埃隆·马斯克
-
-I mean, it’s interesting, you know
-我的意思是，这很有趣，你知道
-
-Twitter, it advocates for something called content moderation I was reading
-推特，它提倡所谓的内容审核，我在阅读时发现
-
-and it’s really just a soft term that actually means censorship by its application
-它实际上只是一个软术语，实际上意味着通过其应用进行审查
-
-and what we’ve seen in silencing conservative voices
-以及我们在压制保守派声音方面所看到的情况
-
-So you know, we reject that and we advocate for for actual free speech
-所以你知道，我们拒绝这个，并且我们提倡真正的言论自由
-
-just like Elon Musk
-就像埃隆·马斯克一样
-
-Jackie DeAngelis
-杰基·迪安吉利斯
-
-but it’s not just about silencing the conservative voices
-但这不仅仅是压制保守的声音
-
-for example, kicking President Trump off Twitter, Ryan, that’s one example
-例如，将特朗普总统踢出推特, 瑞恩，这就是一个例子
-
-The other thing that we’ve seen is
-我们看到的另一件事是
-
-for example, silencing media outlets The New York Post reporting
-例如沉默媒体《纽约邮报》的报道
-
-before the election on Hunter Biden’s laptop
-在选举前关于亨特·拜登的笔记本电脑的事情
-
-and social media, including Twitter, completely squashing that
-和包括推特在内的社交媒体完全压制了这一点
-
-that could have been a huge game changer for the election
-这可能会极大地改变选举的游戏规则
-
-and now we find out over a year later
-现在我们发现一年多后
-
-it’s a true story, it’s real
-这是一个真实的故事，它是真实的
-
-There was a lot of there there but they just didn’t want people to know about it
-那里有很多的东西，但他们只是不想让人们知道
-
-* * *
-
-Date:04/20/2022
-原视频标题: Joe Rogan rallies behind Musk’s Twitter takeover
-乔·罗根支持马斯克收购推特
-原视频日期：2022/04/19
-原视频链接**[https://www.youtube.com/watch?v=o0F4-TeTI1w](https://www.youtube.com/watch?v=o0F4-TeTI1w)**
-任务编号：Ke485（4285）
-视频时间段 : 0:00-2:04
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编：青城道姑
+校对发布：Linda
 
  
 

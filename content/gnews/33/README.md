@@ -2,37 +2,31 @@
 ---
 
 
-## 新中国联邦网站4月19日正式上线
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390046/)
+## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
 
-作者：纽约香草山农场 -飞虹
+**图/文｜CP **
+**发布时间｜22/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-2022年4月19日，是郭文贵先生发生美国之音VOA419断播、爆料革命开启新征程的5周年纪念日。这一天，新中国联邦官方网站正式公布并投入使用，以纪念这个重要的日子，展示新中国联邦、新中国人的新形象。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-46.jpg)
-联邦官网是新中国联邦的门户网站，目前有中英文两种语言，内容除与郭先生有关的各项信息及新闻链接外，还包括法治基金、各农场服务器和G系列各项具体内容的链接引流，以及拥有我们自己定义权的新中国联邦辞典和自主开发的搜索功能，风格倾向于简单，大方。
-
-联邦网站是爆料革命、新中国联邦所有农场服务器和G系列的入口，可以起到重要的宣传作用。另外，网站还开通了一对一、安全的客户服务功能，战友们可以通过文字进行沟通投诉，或者爆料。未来，网站还将承接战友认证等功能。
-
-参考链接： 
-[New Federal State of China 官网](https://nfsc.global/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-审核/总编：zhong
-编辑：DM
-校对/发稿：为真不破20
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
+SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
 
+根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
+
+另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
+
+來源｜[SEC](https://www.sec.gov/hfcaa)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

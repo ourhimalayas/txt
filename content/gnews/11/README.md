@@ -2,56 +2,24 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.22L) 接种疫苗加强针后尿失禁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390429/)
+## 新冠病毒感染引起的嗅觉、味觉障碍治疗需长期化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390523/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/立正道
 
-整理/编辑：禄森
+日本耳鼻喉科头颈部外科学会声明，随着新型冠状病毒感染(COVID-19)的流行持续，恢复后发现有倦怠感、呼吸短促、认知功能障碍等后遗症。被称为长线病毒，症状有迁延化，影响着日常生活。由于有嗅觉、味觉障碍、头晕、耳鸣、听力障碍、耳鼻喉科来诊疗的例子，日本耳鼻喉科头颈部外科学会于4月11日发表了关于医生应对患有嗅觉、味觉障碍的患者的声明。要向患者说明治疗需要很长时间，并且进行包括精神方面支援在内的诊疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2764.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.pref.osaka.lg.jp.c.agb.hpcn.transer-cn.com%2Fattach%2F23711%2F00408295%2Fkouisyo.jpg&amp;imgrefurl=https%3A%2F%2Fwww.pref.osaka.lg.jp.c.agb.hpcn.transer-cn.com%2Firyo%2Fosakakansensho%2Fkouisyo.html&amp;tbnid=7nZtruE8r_bMEM&amp;vet=12ahUKEwii9LDMmKf3AhUQ_RoKHb3rCYUQMygBegUIARCHAQ..i&amp;docid=71FQlL9RT91OSM&amp;w=400&amp;h=300&amp;q=COVID%20%E5%90%8E%E9%81%97%E7%97%87&amp;ved=2ahUKEwii9LDMmKf3AhUQ_RoKHb3rCYUQMygBegUIARCHAQ)
+嗅觉障碍为24%，味觉障碍为16%。围绕COVID-19罹患的后遗症，厚生劳动省向医务人员展示了症状种类、不同症状的治疗方法、注意点等公布了《 罹患后症状管理，COVID-19诊疗指南》 根据指南，代表性的罹患症状有，1、全身症状(倦怠感、关节痛、肌肉痛)，2、呼吸系统症状(咳嗽、喀痰、呼吸短促、胸痛)，3、精神、神经症状(记忆障碍、集中力下降、失眠、头痛、抑郁)，4、其他症状嗅觉障碍、味觉障碍、心悸、腹泻、腹痛。 另外，海外在45件、9,751例系统审查和元分析中，按频率出现的症状包括倦怠感(40%)、呼吸短促(36%)、嗅觉障碍(24%)、不安(22%)、咳嗽(17%)、味觉障碍(16%)、抑郁(15%) 嗅觉、味觉障碍的症状是1、嗅觉失灵或者嗅觉不敏感，2、味觉与以前不同(咖啡味感觉汽油味等)，3、无味觉，4、味弱，5、食物无味，6、味道与过去不一样感，7、经常感到嘴里苦、甜等诉求。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-59.png)图片来源：雅典娜设计组(614)
+味觉障碍大多伴有嗅觉障碍，单独发病味觉障碍的频率很低。治疗方法尚未确立，以对症治疗为主。日本耳鼻喉科头颈部外科学会指出，呼吁嗅觉、味觉障碍的例子大多是“意识到异嗅症状、异味症状，从食欲下降到身体、精神方面的不适”。 对长期持续的嗅觉、味觉障碍的治疗目前方法尚未确立，以对症治疗方法为主。
 
+据悉，1、付鼻窦炎存在时，可以通过类固醇的全身或局部注射等改善，2、付鼻腔没有发现异常时，作为嗅神经性嗅觉障碍，按照正常感冒后嗅觉障碍治疗，当归芍药散或嗅觉刺激疗法可能有效，3、味觉障碍患者中血清锌显示低值时，可以用锌制剂治疗。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+消息来源：[コロナ、嗅覚・味覚障害で治療長期化](https://medical-tribune.co.jp/news/2022/0413545254/)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-**博主: 张小承不吃胡萝卜**
-
-新冠疫苗加强针的不良反应
-
-我是5号下午去打的新冠加强针，打的是安徽智飞，之前两针都是生物，医生说现在第三针都是智飞。
-
-从6号下午开始，我上厕所就有一点尿失禁，我一有尿意就马上起来去厕所，还是弄到了短裤上，再就是尿不完，一直想尿，可是坐在马桶上很久也就一滴这样，然后洗了个澡，有一阵子没上厕所，后来起来上，还是弄到了短裤上，也是只有一点点，到今天早上也是一样的情况
-
-我最近在家养腿伤，一直都是一只脚跳着去厕所的，打疫苗之前也没有出现过这个情况，之前的量比这多多了，也没有出现过尿失禁的状况
-
-**作者发布于2022-4-7**
-
-**评论选集**
-
-**想减肥的胖纸评论:**
-
-**打完第三针尿频尿急的来了，我也是第三针安徽智飞，前两针毫无反应，以前会尿急但是和这次感觉不一样的**
-
-**飞鸟和鱼评论:**
-
-**我第三针是康诺希。打完就感觉很口渴，一直口渴，一直喝水，一直喝水一直渴，所以不停的跑厕所**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2754.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2753.png)图片来源：小红书
-参考链接：
-
-[接种疫苗加强针后尿失禁](https://www.xiaohongshu.com/discovery/item/624e3b2d000000000102ec82?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650610982)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

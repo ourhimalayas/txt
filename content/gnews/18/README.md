@@ -2,158 +2,34 @@
 ---
 
 
-## 台湾大部分军方已被收买，台湾无人机来自中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390379/)
+## 中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390441/)
 
-第二个现在我们要谈一下这个
-El segundo que hablaremos ahora
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中共间谍企业波场TRON宣布将上线稳定币USDD.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://storage.googleapis.com/image.blocktempo.com/2022/03/11111111111111111111111111.jpg&amp;imgrefurl=https://www.blocktempo.com/the-verge-make-a-accusations-to-justin-sun-about-poloniex-and-tron-scam/&amp;tbnid=ahEX2-6xIGayHM&amp;vet=12ahUKEwigv6C106b3AhUBEqYKHWRdAJsQMygQegUIARDFAQ..i&amp;docid=qG1r45QSSXQf6M&amp;w=1409&amp;h=842&amp;q=%E6%B3%A2%E5%9C%BATRON%E5%AD%99%E5%AE%87%E6%99%A8&amp;hl=zh-CN&amp;ved=2ahUKEwigv6C106b3AhUBEqYKHWRdAJsQMygQegUIARDFAQ)
 
-关于台湾的问题
-Acerca del problema de Taiwán
+4月21日，波场TRON创始人孙宇晨通过推特发布公开信称：波场宣布正式进军去中心化稳定币，上线USDD（Decentralized USD）。同时，波场DAO将联合区块链行业的主流机构发起成立波场DAO储备（TRONDAO Reserve），以数学与算法实现人类的金融自由。
 
-台湾的情报部门
-El Departamento de Inteligencia de Taiwán
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃中共间谍企业波场TRON宣布将上线稳定币USDD2.png)
 
-台湾的军队绝大多数
-La mayoría del ejército de Taiwán
+按照公开的白皮书显示，USDD将首先以TRC的形式发行在波场TRON网络，将由波场联合储备以公开透明的方式进行发行和储备金的管理工作。波场联合储备成立之初将保存与托管区块链行业发起人所筹集的100亿美元高流动性资产作为早期储备，所有储备将在未来6-12个月进入波场联合储备。未来将持续吸纳更多流动性资产作为金融储备。
 
-都已经被收买了
-Fueron sobornados
+孙宇晨与币安创始人赵长鹏一样，是一位声名狼藉的中共权贵白手套和间谍，一面是媒体上塑造年轻企业家的形象，另一面却是利用区块链和数字货币收割韭菜的嗜血大鳄。他是波场TRON、陪我APP创始人兼CEO、BitTorrent CEO。1990年生人，2019年6月，以最高成交价456.7万美元投得与巴菲特共进午餐的机会，由此获得巨大的关注度，但随后引发广泛争议。
 
-仗一开打
-Una vez que la guerra comience
+3月10日，美国科技媒体The Verge报道称，目前美国国税局、FBI等政府部门正在调查孙宇晨在波场期间涉嫌内幕交易，在Poloniex期间涉嫌欺诈、洗钱等犯罪行为。
 
-台湾这一定
-Taiwán de seguro
+信息来源：
+[波场TRON创始人孙宇晨宣布将正式上线去中心化稳定币USDD – 知乎](https://zhuanlan.zhihu.com/p/502694665)
 
-第一个卖老百姓的
-El primero que venderá al pueblo taiwanés
-
-一定是台湾的军方和情资部门
-Absolutamente será la agencia militar y el Departamento de Inteligencia de Taiwán
-
-台湾最近买了很多这个无人机
-Recientemente, Taiwán compró muchos drones
-
-无人机你知道是哪儿造的吗
-Sabes ¿de dónde fueron fabricados estos drones?
-
-无人机都是大陆造的
-Fabricados por China
-
-记住七哥今天说的话
-Recuerda lo que dije hoy
-
-记住啊
-Recuerda
-
-4月14号郭文贵说的
-Lo que dijo Wengui Guo el 14 de abril
-
-台湾买的无人机都是大陆造的
-Los drones comprados por Taiwán son fabricados en China
-
-大陆把无人机卖哪儿了
-Y a dónde los vendió China
-
-卖给澳大利亚
-Se los vendió a Australia
-
-台湾的军人再从澳大利亚
-Luego los soldados de Taiwán desde Australia
-
-把无人机买回去, 买回到台湾
-Compraron los drones para Taiwán
-
-你打什么仗
-¿Con qué vas a pelear?
-
-现在大陆, 上海
-Ahora China, Shanghai
-
-光给台湾的美金, 现金
-Los dólares en efectivos dados a Taiwán
-
-包括黄金
-Incluyendo el oro
-
-现在是大批量地给
-Ahora les están dando en gran cantidad
-
-给到他们上海的家人
-A sus familiares que están en Shanghai
-
-有些是给到这个台湾
-Algunos se los han dado en Taiwán
-
-不但如此
-No sólo esto
-
-而且向他们许诺一旦开战
-También les prometió, una vez que la guerra inicie
-
-就会把他们家人安置好
-Cuidarán de sus familias
-
-战后呢, 拿回来台湾
-Luego de la guerra, vuelven a Taiwán
-
-土地都分好了
-Ya los terrenos están divididos
-
-什么人有, 什么人有
-Fulano tiene, mengano tiene
-
-台湾危也
-Taiwán está en peligro
-
-我今天说的话大家走着看
-Verán lo que dije hoy
-
-我向全世界政府
-Informo a los gobiernos de todo el mundo
-
-我向他们保证, 郭文贵承担责任的
-Les prometo que Wengui Guo asume la responsabilidad
-
-台湾的无人机是来自中国共产党的
-Los drones de Taiwán provienen del PCCh
-
-所以说美国人到时候得气死
-Por eso los estadounidenses se enojarán después
-
-发现帮台湾打仗
-Se darán cuenta que ayudar a Taiwán a luchar
-
-结果台湾的无人机是买自大陆的
-Pero resulta ser que los drones son comprados en China
-
-走着看啊走着看
-Verán
-
-所以台湾危也了吧
-Por eso Taiwán está en peligro
-
-日期：04/20/2022
-原视频标题：台湾大部分军方已被收买，台湾无人机来自中共
-La mayor parte del ejército de Taiwán ha sido sobornada y sus drones provienen del PCCh
-
-* * *
-
-原视频日期：04/18/2022
-原视频网址：[**https://gettr.com/post/p15rcx69960**](https://gettr.com/post/p15rcx69960)
-任务编号：KC495（4281）
-视频时间段：0:00-1:54
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
