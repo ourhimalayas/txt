@@ -2,32 +2,36 @@
 ---
 
 
-## 拜登称 &#8220;没有证据&#8221; 证明马里乌波尔已被占领
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2392473/)
+## 专家建议在聚会等计划前需多次病毒检测
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392523/)
 
-翻译：温哥华圆成农场 文明志
+##### 作者：加拿大温哥华扬帆农场 -【硫酸羟氯喹64/晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2788.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
-摘要：美国总统乔-拜登对俄罗斯声称已占领马里乌波尔表示怀疑，说 “没有证据”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-142.png) 图片来源：FNN online
-据4月22日富士电视台新闻专题节目报道，美国总统乔-拜登对俄罗斯声称已占领马里乌波尔表示怀疑，说 “没有证据”。
 
-拜登总统4月21日说，”没有证据 “表明马里乌波尔已被俄罗斯攻陷，并指责普京 “应该确保平民的避难通道，这才是普京应该做的”。
+据【CTV NEWS】4月17日报道，两年来人第一次庆祝复活节和逾越节时面临很少的公共卫生限制，但专家提醒大家仍需保持谨慎，这意味要更多的使用到快速抗原检测 (RAT)。
 
-拜登总统还宣布向乌克兰提供额外的军事援助，金额为8亿美元，包括远程火炮和无人机。
+但安大略省科学家皮特·朱尼认为，由于目前对奥米克戎的BA.2亚变体缺乏了解，用RAT很难检测到。他建议加拿大人在聚会等计划前至少进行两次快速检测，间隔24小时，没有任何症状才可以。”朱尼还建议聚集需限制人数，避免拥挤，确保通风。
 
-拜登总统会见了正在美国访问的乌克兰总理什米哈伊，解释了一系列援助措施，并承诺将继续追究俄罗斯的责任。
+据悉，奥米克戎BA.2亚变体最初在加拿大的传播似乎相对缓慢，然而现在已是曼省和安省社区间传播的最主要菌株。
 
-新闻来源：[https://news.yahoo.co.jp/articles/072a4bc24dbdea758a1807d221e0795b0f065ca2](https://news.yahoo.co.jp/articles/072a4bc24dbdea758a1807d221e0795b0f065ca2)
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
 
-编辑：LILY
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【晨熹】
+素材/采编 -【硫酸羟氯喹64】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-发布：面包飞上天
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-20220422
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/農場文宣-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

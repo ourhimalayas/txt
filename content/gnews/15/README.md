@@ -2,47 +2,44 @@
 ---
 
 
-## 美、英、加代表集体离席G20会议，共同抵制俄罗斯
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2392527/)
+## 4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2392529/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5778.jpg)据路透社报道，美国财政部长珍妮特-耶伦(Janet Yellen)告诉与会者，她不赞成一名俄罗斯高级官员出席。照片。Chip Somodevilla/Getty Images
-英国《卫报》4月20日报道，英国、美国和加拿大在20国集团(G20)会议上一起退场，抗议俄罗斯入侵乌克兰，目前，世界上主要国家之间越来越大的分歧对世界经济造成冲击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-143.png)[图片来源](https://www.reuters.com/)
+**1.乌克兰冲突、芯片危机削弱雷诺第一季度销量**
 
-当俄罗斯代表在华盛顿的会议上发言时，这三个国家的代表离开了会议。消息人士称，英格兰银行行长安德鲁·贝利（Andrew Bailey）和一名财政部高级官员是离开会谈的人之一。
+[这家对俄罗斯市场影响最大的西方汽车制造商报告称，由于乌克兰战争和半导体短缺，第一季度收入下降，但部分被价格上涨和电动汽车(EV)销售增长所抵消。该集团还生产达契亚和拉达品牌汽车，周五表示其收入同比下降2.7%至97.48亿欧元（106亿美元）。不包括Avtovaz和Renault Russia的活动，下降1.1%至89亿欧元。上个月，雷诺表示将暂停其莫斯科工厂的运营，同时评估其在俄罗斯第一大汽车制造商Avtovaz(AVAZI\_p.MM)的多数股权的选择权。周五，这家法国汽车制造商表示，与Avtovaz就俄罗斯业务未来的谈判“正在进行并取得进展”。](https://www.reuters.com/business/autos-transportation/renaults-q1-sales-fall-ukraine-conflict-semiconductor-crisis-hit-market-2022-04-22/)
 
-国际货币基金组织负责人克里斯塔琳娜·格奥尔基耶娃（Kristalina Georgieva）在抗议活动前不久发表的评论中警告说，75年的发展成果因国际合作的分裂正在受到威胁。
+**2.SAP收入增长超过预期**
 
-作为世界上主要经济体的G20集团包括美国、英国、法国和德国，也包括中国、巴西和印度等强大的发展中国家。在此次退席发生之际，西方领导人正在质疑俄罗斯在G20经济体中的成员资格。
+[德国商业软件集团SAP(SAPG.DE)周五报告称，第一季度收入增长11%，超过其云业务增长的预期。本周早些时候，该公司表示计划完全退出俄罗斯，以应对莫斯科对乌克兰的入侵。SAP表示，其年度调整后利润将下降近3.5亿欧元，并将承担约8000万至1亿欧元的重组费用。尽管对其俄罗斯业务产生了影响，但SAP确认其2022年的云收入预测为115.5亿欧元至118.5亿欧元（按固定汇率计算）。](https://www.reuters.com/business/sap-revenue-growth-beats-estimates-flags-hit-russia-exit-2022-04-22/)
 
-英国财政大臣里希·苏纳克（Rishi Sunak）在推特上说，英国代表已经退出了会议。他说：“我们一致谴责俄罗斯对乌克兰的战争，并将推动加强国际协作来惩罚俄罗斯。”消息人士称，英国、美国和其他西方国家正在推动就俄罗斯G20成员资格的延续达成共识，并对克里姆林宫代表的出席提出质疑。
+**3.Snap警告通货膨胀可能会影响收入增长，预测用户数量增加**
 
-据路透社报道，美国财政部长珍妮特·耶伦（Janet Yellen）告诉与会者，她不赞成有俄罗斯高级官员出席。美国财政部周三早些时候说，耶伦会见了印度尼西亚财政部长英卓华（Sri Mulyani Indrawati）——该国目前是G20的轮值主席国——强调“俄罗斯在全球经济中不会如往常一样了”。
+[Snap Inc(SNAP.N)周四预测其Snapchat应用的用户增长前景乐观，但表示供应链中断和通胀可能继续损害广告需求。公布结果后，Snap的股价立即下跌了10%，但随着投资者消化了喜忧参半的结果，随后收复了跌幅。Snap预测第二季度每日活跃用户在3.43亿至3.45亿之间，高于华尔街估计的3.4亿。然而，该公司警告称，通货膨胀、劳动力短缺和其他经济挑战可能会给收入带来压力。它预测第二季度的收入将比上年增长20%至25%。到目前为止，本季度的增长率为30%。](https://www.reuters.com/technology/snap-misses-revenue-estimates-warns-that-inflation-could-hit-growth-2022-04-21/)
 
-国际货币基金组织前副主任、现任英国剑桥大学皇后学院院长的穆罕默德·埃利安(Mohamed El-Erian)说，这场冲突表明G20没有作为一个国际机构发挥作用。
+**4.Gap下调了季度销售预测**
 
-“在我们最需要多边主义的时候，多边主义的未来正处于危险之中。”埃利安说，他呼吁各国政府继续通过其他方式进行合作。他说，“G20过于分裂，而且缺乏连续性。我一直困惑为什么它没有秘书处。一个接一个地担任主席国——每次都在变化，所以很少做事情。”
+[Gap Inc(GPS.N)周四下调了季度销售额预期，将其归咎于Old Navy品牌的执行挑战和“宏观经济动态”，导致该零售商股价在延长交易中下跌12%。Gap还表示，其Old Navy品牌的负责人Nancy Green将于本周离开公司，公司首席执行官Sonia Syngal将领导团队，直到聘请继任者。由于供应链障碍延迟发货，包括Gap在内的几家服装连锁店一直在努力跟上不断增长的需求并管理库存。这家将于5月26日公布第一季度业绩的零售商表示，它必须采取“积极的方式”来平衡库存，从而导致营销促销活动增加，尤其是在Old Navy。](https://www.reuters.com/business/retail-consumer/gap-cuts-quarterly-sales-forecast-challenges-old-navy-brand-head-departs-2022-04-21/)
 
-国际货币基金组织周二表示，由于俄罗斯在乌克兰的战争推动了通货膨胀，全球经济的风险正在增加。这家总部位于华盛顿的基金组织说，这场战争增加了全球经济更持久地分裂为地缘政治集团的风险。它说，这种“构造转变”将给全球经济带来高昂的调整成本。
+**5.封锁影响开云集团第一季度的销售**
 
-**简评：**
+[尽管该集团指出美国和西欧对其高端时装和皮革制品的持续需求，但中国COVID-19封锁造成的中断给周四Gucci所有者Kering的第一季度销售预测蒙上了一层阴影。截至3月份的三个月集团销售额达到49.6亿欧元（54亿美元），增长21%，略高于花旗分析师Thomas Chauvet引用的46.9亿欧元的普遍预期。Kering SA(PRTP.PA)的明星品牌Gucci占法国奢侈品集团年销售额的一半以上，在美国、西欧和日本表现强劲，而COVID封锁扰乱了中国大陆的业务。这一数字低于Chauvet预计的23%的增长，并且与上一季度相比有所放缓。](https://www.reuters.com/business/retail-consumer/kering-q1-sales-lifted-by-us-europe-2022-04-21/)
 
-美国、英国和加拿大退出G20会议，就是在向独裁国家中共和普京政权表明一种态度，自由民主和独裁专制不能共处于同一屋檐下。西方不能继续再被这些独裁国家愚弄，所谓的“合作”不过是滋养了这些独裁政权，膨胀了他们的野心，此次入侵乌克兰就是最好的证明。
+**6.随着预订量回升，美国航空公司听起来很乐观**
 
-如果不彻底消灭此次俄乌战争背后的中共政权，通货膨胀在因为中共的作恶导致的世界经济大崩溃以及基于规则的世界秩序被破坏面前是微不足道的。开战之初由于西方的制裁，导致俄罗斯卢布价格暴跌，但最近让人震惊的是价格有所回升，在几近最严苛制裁下还能回升，可以说中共背后帮助绕过制裁起着根本的作用。西方各国应该加深合作，从军事上围堵中共，给予台湾更多的支持，面对中共更加强硬，如制裁俄罗斯那样甚至更严厉的制裁中共。因为中共政权的消亡将意味着可以同时结束世界上多处的战乱，意味着可以让整个世界回归文明发展的轨道。
+[美国航空集团(AAL.O)、联合航空(UAL.O)和阿拉斯加航空集团(ALK.N)周四表示，由于今年年初该病毒的Omicron变种受挫，旅行需求回升。他们本季度的收入将超过大流行前的水平，尽管他们的产能仍低于2019年的水平。因此，他们都希望在截至6月的季度实现盈利。上周，竞争对手达美航空(DAL.N)也预测季度利润将恢复，理由是“历史性的”高预订量。CFRA Research副总裁科林·斯卡罗拉(Colin Scarola)表示：“航空旅行被压抑的需求浪潮正在消除主要航空公司的长期悲观情绪。”](https://www.reuters.com/business/aerospace-defense/american-airlines-reports-smaller-loss-pickup-travel-offsets-omicron-blip-2022-04-21/)
 
-新闻链接: [US, UK and Canada walk out of G20 meeting over war in Ukraine](https://www.theguardian.com/world/2022/apr/20/us-uk-and-canada-walk-out-g20-meeting-war-in-ukraine-russia)
+**7.黑石集团第一季度收益飙升63%**
 
-翻译/简评:親愛的瑪嘉烈 / PR: Harvey（叶知秋）
+[黑石公司(BX.N)周四表示，其第一季度可分配收益跃升63%，原因是其房地产和信贷业务的强劲表现抵消了其对冲基金部门的疲软表现。这家全球最大的另类资产管理公司的可分配收益（代表用于向股东支付股息的现金）从一年前的12亿美元增至19亿美元。这导致每股可分配收益为1.55美元，超过了Refinitiv编制的分析师平均估计的每股1.06美元。黑石表示，它改变了其房地产收入信托业务与费用相关的业绩收入的核算方式，按季度而不是按年度计入此类收益。这有助于提高其整体收益，超出分析师的预期。](https://www.reuters.com/business/finance/blackstones-first-quarter-earnings-surge-63-2022-04-21/)
 
-* * *
+**8.墨西哥银行机构Banorte与Citibanamex-Banorte首席执行官进行谈判**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[Banorte首席执行官Marcos Ramirez Miguel周四表示，墨西哥银行机构Banorte(GFNORTEO.MX)正在与花旗集团(C.N)的墨西哥消费者银行业务Citibanamex就出售其资产进行谈判。Ramirez Miguel在公司第一季度业绩公布后的电话中表示，感兴趣的各方已开始与Citibanamex进行对话，但仍在收集有关其在墨西哥业务的信息。拉米雷斯米格尔补充说，这个过程可能持续至少五个月。](https://www.reuters.com/business/finance/mexico-banking-institution-banorte-talks-with-citibanamex-banorte-ceo-2022-04-21/)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+By 【秘密翻译组-金融组】
+作者：小海星
 
  
 

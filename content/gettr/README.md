@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 3:27 PM (UTC)`
+
+<br/>【Ukraine Rescue】 04/22/2022 A volunteer from Brazil excitedly took a picture in front of the poster of the NFSC and says, “I love it! Well done guys!“<br/><br/>【乌克兰救援】 04/22/2022 一位来自巴西的志愿者兴奋地站在新中国联邦的海报前合影，她表示：我爱死这个海报了！你们太棒了！
+![img](https://media.gettr.com/group46/getter/2022/04/22/15/940caed3-ae58-f81d-d85a-cc4453543c9b/out.jpg)
+
+---
+
 `@miles 4/22/2022 2:31 PM (UTC)`
 
 【Ukraine Rescue】 04/21/2022 Two volunteers from England enjoy our NFSC coffee and they agree that the NFSC represents the voice of Chinese. They also support the NFSC’s fight for human rights and freedom of the Chinese people and taking down the evil CCP.<br/><br/>【乌克兰救援】 04/21/2022 两个英国义工喜欢我们的新中国联邦咖啡。他们说，新中国联邦人代表了中国人的声音，代表了人权，他们支持新中国联邦为中国人争取人权和自由，打倒邪恶的中国共产党。<br/>
@@ -145,13 +152,6 @@ https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
 
 4/21/2022 Miles Guo: There is zero chance that Xi Jinping won’t invade Taiwan! The only choice left for Xi is either to bring down Taiwan’s economy or devastate Taiwan by using strategic nuclear weapons. It was the first time for the U.S. to diplomatically disregard the CCP’s furious protest against Nancy Pelosi’s plan to visit Taiwan. The CCP will fight the US to the end.<br/><br/>4/21/2022 文贵直播：习不打台湾的可能性已经没有了！习只有两个选择，经济上打垮台湾或者用战略核武器摧毁台湾；美方第一次明确在外交上表示不在乎中共对佩洛西计划访台的跳脚抗议，而中共将跟美国干到底<br/>
 ![img](https://media.gettr.com/group12/getter/2022/04/21/23/f5261ac9-4838-5e54-2adc-0ffe455e101a/out.jpg)
-
----
-
-`@miles 4/21/2022 11:50 PM (UTC)`
-
-4/21/2022 Miles Guo: Xi Jinping currently has three difficulties: 1. China's economy has collapsed already; 2. The political struggle within the CCP is approaching its limit; 3. He still fantasizes about killing the United States and the dollar; it’s terrifying that Xi Jinping sincerely believed that only by attacking and destroying Taiwan, all their problems will be solved<br/><br/>4/21/2022 文贵直播：习近平目前的三个难处：1，经济已经崩塌； 2，党内政治斗争已经接近极限；3，仍然幻想干掉美国和美元；可怕的是习被周边人忽悠得相信打台湾和灭掉台湾才能解决所有的问题<br/>
-![img](https://media.gettr.com/group23/getter/2022/04/21/23/e433255c-9e83-dd13-99e6-47aac235c34c/out.jpg)
 
 ---
 

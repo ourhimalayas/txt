@@ -2,20 +2,27 @@
 ---
 
 
-## 北京将被封锁上海解封后要政治清算
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392628/)
+## 樱花时政┃普京发言人反驳日本 称北方四岛为俄领土
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2392653/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2787.png)
-据文贵先生4月21日盖特直播报道，北京在五环、七环以及六环至七环间，已部署大量武警，这是该市即将大隔离的前奏。另外上海即将解封。解封后的上海，要在政治上清算。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-471.jpg)[图片来源](https://www.google.com/search?q=Russian+Presidential+Spokesperson&amp;sxsrf=APq-WBsD944QA0BDeDFXQT85RSknyOI1VQ:1650638286108&amp;tbm=isch&amp;source=iu&amp;ictx=)
 
-中共要在媒体上找出反党的，有其他用心的，以及给海外反共组织传递信息的人，进行清算。目前中共在国内开展了所谓的“净网行动”，就是通过网络大搜索找出与新中国联邦“4·19”大直播相关的消息。
+4月22日，俄罗斯总统发言人佩斯科夫对日本2022年外交蓝皮书明确表明北方领土“是日本固有的，但目前被俄罗斯非法占领”做出回应，称“所有四个岛屿都是俄罗斯不可分割的领土。”
 
-据悉，新中国联邦的“4·19断播门五周年特别直播”在国内影响巨大，让中共非常恐慌，风声鹤唳。继北京之后，哈尔滨、大连、青岛、海口等城市也将相继被中共封锁，且情况会更为糟糕。
+关于与日本的和平条约谈判，他声称，“现在日本已经成为一个不友好的国家，并加入了对俄罗斯的众多敌对行动，要继续谈判是非常困难的。”
 
-新闻来源：[https://gettr.com/streaming/p16cfisc410](https://gettr.com/streaming/p16cfisc410)
+信息源：[北方領土不法占拠」にロシア反発](https://news.yahoo.co.jp/articles/29d22a6317779245ec4a21affdc3cd7e7b757d1e#:~:text=%E3%83%)
 
-编辑发稿：硫酸羟氯喹64
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
