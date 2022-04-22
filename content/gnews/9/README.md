@@ -2,18 +2,21 @@
 ---
 
 
-## 秘翻在线：日本自民党宣传部部长河野太郎就中共入侵台湾敲响警钟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2389821/)
+## 雅典娜时报-第269期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389903/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-25.png)（图片源自本文链接）
-4月22日日本广播消息：自民党宣传部部长河野太郎于4月22日星期五出现在日本广播的 “饭田浩司的OK！惬意！”节目中。他说，”我们需要设想一下，如果中共国入侵台湾会发生什么”。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-河野太郎说：”我想，习近平可能是最认真看待乌克兰局势的人。当俄罗斯入侵乌克兰时，国际社会的反应如何？中共国经济是否能承受得住？再看看中共国的公众舆论是什么样子？”。
+#### 编辑：精灵蓝
+排版：0-0
+![圖片](https://media.discordapp.net/attachments/825592691433668612/966312486192168990/1.jpg?width=838&amp;height=1185)![圖片](https://media.discordapp.net/attachments/825592691433668612/966312486578032680/2.jpg?width=838&amp;height=1185)
+*發布：陶子*
 
-关于中共国以统一台湾为目的入侵台湾，河野先生用一下发言为日本敲响了警钟：我们对俄罗斯实施了经济制裁，（日本）也受到一定影响，但没有欧洲受到的影响大，因为欧洲的能源依赖他们。但是就中共国而言，日本经济对中共国可是有非常大的依赖。那时，与其说是还击，不如说我们也会受伤，也许还不只是受伤。我们需要假设一下，在中共国已经有空军战斗机和其它飞机进入台湾防空识别区的时候，会发生什么。如果中共从经济战开始，我们需要认真考虑它将对日本经济产生多大的影响。
-
-信息源：[「中国に経済制裁をした場合、 日本への打撃は甚大」自民・河野太郎氏、中国が台湾侵略した場合の想定の必要性を語る（ニッポン放送） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1ffe24953a8acc366bb4dd6851f733abced0374b)
+**更多資訊，請關注：**
+[澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亞墨爾本雅典娜農場Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亞墨爾本雅典娜農場YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亞墨爾本雅典娜農場Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

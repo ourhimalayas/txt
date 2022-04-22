@@ -2,44 +2,58 @@
 ---
 
 
-## 2022年4月20日*州新民生村镇银行拒绝兑付和查证存款
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2389401/)
+## 樱花深度报道┃中共无法战胜病毒 更不要说战争（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389489/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/米州新民生村镇银行_副本.png)
-据[历史铭记NFSC](https://twitter.com/Lsmj67890)[@Lsmj67890](https://twitter.com/Lsmj67890)于[8:57 AM · Apr 22, 2022](https://twitter.com/Lsmj67890/status/1517306634414227456)发布的推文——
+编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+【摘要】上海的疫情封锁似乎展示了中国共产党令人印象深刻的力量。但当局正在加倍实施糟糕的政策，这表明在任何潜在的战争中，他们将会遇到供应和士气问题。上海的封锁对被困在那里的人们来说是可怕的。他们是过时政策的受害者，这种政策完全行不通。他们也是这个政权的受害者，这个政权不回应人民的意愿。上海的封锁表明，中共在战争中无法为军队提供补给，更重要的是，它辜负了人民的信任和效忠。
 
-在墙内不要说把钱转出来，现在银行连查账的机会都不给你，开始防挤兑明抢钱了！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花深度报道┃中共无法战胜病毒-更不要说战争（下）1.png)上海静安区，一名身穿防护装备的工人守卫着一个处于封锁状态的社区入口，从一名送货员手里接收食物。摄于2022年3月29日。(Hector Retamal/AFP via Getty Images)
 
+**供应链**
 
+上海的封锁使整个城市陷入混乱。这是一项政府计划，你可能会认为最高当局会预见到并准备应对其政策的影响，例如将大量食物送递到平民手中。
 
-> 在墙内不要说把钱转出来，现在银行连查账的机会都不给你，开始防挤兑明抢钱了！ [pic.twitter.com/kgvXaubthW](https://t.co/kgvXaubthW)
-> — 历史铭记🌻NFSC🌻 (@Lsmj67890) [April 22, 2022](https://twitter.com/Lsmj67890/status/1517306634414227456?ref_src=twsrc%5Etfw)
+但这些没有发生。公民被困在室内，该政权提供的劣质食物数量不稳定。受感染的儿童与父母分离，公民乞求当局让他们寻找食物。没有受到审查的西方观察者报告说，中国人被迫在居家的阳台上尖叫着寻求帮助和补给。
 
+战时政策提醒人们，冲突不仅仅是武器系统和部队像棋子一样四处移动。在战争时期，运送食物、燃料和兵力更不是一件容易的事。中共甚至不能保障在和平时期向大城市输送所需的食物。这可是和平时期！人民、政府和军队没有受到轰炸，也没有战争的混乱。
 
+然而，尽管中共官员可能事先知道他们的计划，但他们未能为此做好充分的准备。就像俄罗斯的巨型卡车经常因缺乏燃料而停滞不前一样，很难想像中共在战争中表现得更好。
 
-事情发生在2022年4月20日，由于视频拍摄角度无法查证银行全称，故只以\*州新民生村镇银行代称，中共银行系统早已崩塌，墙内的同胞们，如果有可能，请马上取出你在中共各大银行的存款，留给大家的时间不多了！
+**公民**
 
-撰稿：喜马拉雅的肉夹馍；
+此外，压迫性的封锁措施无法帮助中共官员讨好自己的公民。上海人民生活在残酷的独裁统治之下。他们经常在社交媒体上受到审查，但西方分析人士已经传递了他们的不满。
 
-审核：喜马拉雅的馍夹肉；
+此外，早在中国的战国时期，中国古典文学就讨论了独裁统治的局限性。威权政府可以指挥下属。他们可以把人锁在室内，在社交媒体上把网球明星彭帅锁起来，压迫维吾尔人。但他们无法赢得人民的心。
 
-校对：Maarago；
+这意味着中共比许多西方分析人士所认为的要脆弱。更少的人会自愿参军。如果被强行征召入伍，他们不会奋力作战。平民，即使在独裁政权中，也会抗议政府。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+在疫情期间，上海人民被迫为食物而战，他们不会更有动力在炮火中冲进海滩的堡垒。他们更有可能拒绝中共。任何潜在的战争都只会暴露人民对党的不信任。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+就像中国历史上的起义和苏联的垮台一样，中共外表上显得强大，一旦露出破绽，就会突然崩溃。正如毛泽东本人在反对强势政府的革命时所说的那样，“星星之火可以燎原”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**结论**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+上海的封锁对被困在那里的人们来说是可怕的。他们是过时政策的受害者，这种政策完全行不通。他们也是这个政权的受害者，这个政权不回应人民的意愿。上海的封锁表明，中共在战争中无法为军队提供补给，更重要的是，它辜负了人民的信任和效忠。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+（全文完）
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+作者简介：
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+摩根‧迪恩（Morgan Deane）是前美国海军陆战队员，军事历史学家和自由撰稿人。他曾在伦敦国王学院（Kings College London）和诺里奇大学（Norwich University）学习军事历史。摩根在美国公立大学（the American Public University）担任军事史教授。他是一位多产的作家，著有《中国历史上的决战》（Decisive Battles in Chinese History）、《龙爪脚下的黏土：中国现代战略入门》（Dragon’s Claws with Feet of Clay: A Primer on Modern Chinese Strategy），以及即将出版的《超越孙子：有关战争与政府的中国古典辩论》（Beyond Sunzi: Classical Chinese Debates on War and Government）。他的军事分析发表在《真正清晰的防御》（Real Clear Defense）和《战略桥》（Strategy Bridge）等出版物上。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+信息来源：
+“[China Can’t Fight a Virus Let Alone a War](https://www.theepochtimes.com/china-cant-fight-a-virus-let-alone-a-war_4399834.html)”
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
