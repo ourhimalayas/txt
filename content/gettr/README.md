@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 10:05 PM (UTC)`
+
+4/22/2022 Ukraine Rescue: The New Federal State of China just received a gratitude email from the Embassy of Ukraine in the Republic of Singapore, Brunei and New Zealand; the representative expresses Ukrainian people’s gratitude to the New Federal State of China and the Rule of Law Foundation for our support and assistance<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦收到来自乌克兰驻新西兰、新加坡和文莱大使馆的感谢邮件，向新中国联邦和法治基金对乌克兰的救援和支持表示衷心的感谢<br/>
+![img](https://media.gettr.com/group14/getter/2022/04/22/22/5ba9e615-99dd-68b3-30be-4dac133597c8/out.jpg)
+
+---
+
+`@miles 4/22/2022 10:03 PM (UTC)`
+
+“STOP TOUCHING HER! 别碰她！” 飞飞秀救援快报 2022-04-22<br/>For English：gettr.com/streaming/p16o9nd9be9
+![img](https://media.gettr.com/group41/origin/2022/04/22/22/4f57735b-f5e6-8a68-83ad-db82df07f0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/22/2022 10:02 PM (UTC)`
+
+4/22/2022 Miles Guo’s GETTR: The caregiver exposing the true story of a Shanghai senior who had to eat poop and died from it has been classified by the Communist Party as a “narrative attack” manipulated by foreigners causing devastating damage!  The top priority of the New Federal State of China is to awaken and save more Chinese fellows as well as humanity and having more people join us is only secondary<br/><br/>4/22/2022 文贵盖特：直播说上海有老人吃屎吃死了的义工已被中共定位为外国人操纵的且具有巨大杀伤力的舆论攻击！新中国联邦第一任务是唤醒和拯救更多的同胞和同类，让更多的人加入我们排第二位<br/>
+![img](https://media.gettr.com/group38/getter/2022/04/22/22/82175298-9a9d-4564-d687-f34b44142cb0/out.jpg)
+
+---
+
 `@miles 4/22/2022 8:45 PM (UTC)`
 
 2022.04.22  新中国联邦 | 喜健康   唤醒.危机时刻的传播心理学
@@ -132,27 +153,6 @@ A French volunteer has been to China 12 times and he loves China very much. Nico
 
 2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
 ![img](https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 2:55 AM (UTC)`
-
-4月21号：尊敬的战友们好。【中国的老百姓，就因为吃一口饱饭．被共产党像养鸡一样，这样控制着．中国人吃草的时代，马上到来。】
-![img](https://media.gettr.com/group11/getter/2022/04/22/02/e42c49b7-6583-bec0-d7df-9408c5f32316/out.jpg)
-
----
-
-`@miles 4/22/2022 2:04 AM (UTC)`
-
-2022.04.21  新中国联邦 | 喜财经  中国房地产骗局 解密与应对
-![img](https://media.gettr.com/group15/origin/2022/04/22/02/c1765424-d702-e511-e336-0be62eacc66e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/22/2022 1:12 AM (UTC)`
-
-2022.04.21 晚  新中国联邦 | 新闻访谈   俄罗斯经济只会越来越差；陈顺平的死亡和华山路的标语
-![img](https://media.gettr.com/group37/origin/2022/04/22/01/579a583c-3318-70ba-68ef-83955168faec/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
