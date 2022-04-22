@@ -2,31 +2,36 @@
 ---
 
 
-## 习近平被身边的人忽悠，相信打台湾能解决一切问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389239/)
+## 樱花时政┃美国禁止俄罗斯船只进入美国港口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389374/)
 
-整理/编辑：小红帽
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国禁止俄罗斯船只进入美国港口.png)[图片来源](https://gcaptain.com/canada-moving-to-ban-russian-ships-from-its-ports-and-waters/) 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_from_2022-04-22_10-11-17.png)图片来源：郭文贵先生4月22日盖特视频
+据路透社4月21日报道，美国总统拜登周四宣布，美国将加入加拿大和欧洲国家的行列，禁止隶属于俄罗斯的船只进入美国港口，这是就俄罗斯入侵乌克兰一事向其施压的最新举措。
 
+白宫将发布一份公告，提供更多细节。路透社周四首次报道了拜登的行动计划，而在3月初报道了白宫正在考虑这项禁令。
 
-2022年4月21日，郭文贵先生在直播中提到，习近平目前面临的三个难处。习近平被周边的人忽悠，相信打台湾和灭掉台湾才能解决所有的问题。
+“这意味着任何船只，任何悬挂俄罗斯国旗或由俄罗斯实体拥有或经营的船只将不被允许停靠在美国港口或进入我们的海岸。”拜登周四说。
 
-郭先生在直播中提出，习近平面临着三个难处。第一，经济上已经崩盘。他不找个出口，自己就完了，共产党完了。第二，这个新冠病毒，还有隔离措施，所谓的社会极限试压，包括政治斗争，也到了极限了。第三，中美之间，习近平现在还幻想着所谓要当世界领导人。包括习近平现在搞的这个金砖国。
+消息人士说，在2021年，俄罗斯船只约有1800次访问，在整体交通中只占很小的比例。这个问题促使拜登政府进行了广泛的审查，以确保对俄罗斯船只的禁令不会严重影响美国的供应链。
 
-郭先生补充道：“金砖国这些所谓的，新的，代替美元的支付系统和干掉美元的这种野心，还有什么莫德尔的周期，都是胡扯的事情。习近平已经被周边的人忽悠大了。关键是习现在有一个最大的问题，他认为要是不拿下台湾，什么都解决不了。如果拿下台湾，什么都能解决。”
+加拿大在3月1日对俄罗斯拥有的船只关闭了港口，并禁止它们进入加拿大水域，许多欧洲国家也采取了同样的措施。
 
-“习近平周边的人认为，打了台湾，打烂台湾或者占领台湾，那什么问题都解决了。这是一个错误的认知。包括习近平对美国、对国际社会的认知。这个时候我们要做好更坏的，更长期的准备，这对我们才是有利的。”郭先生强调。
+美国此前禁止俄罗斯飞机进入美国领空，与加拿大和欧洲国家一起采取了这一行动，并禁止俄罗斯石油进口，这些石油占此前俄罗斯船只运往美国的大部分。
 
-资料来源：[郭文贵先生4月22日盖文](https://gettr.com/post/p16i9ow6828)
+信息来源：** **
+[Biden Bans Russian Ships From US Ports](https://gcaptain.com/biden-bans-russian-ships-from-us-ports/)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

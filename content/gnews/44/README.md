@@ -2,37 +2,28 @@
 ---
 
 
-## 世界上最大的金条价值飙升
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387279/)
+## 外企纷纷撤出 莫斯科20万人面临失业
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388177/)
 
-共同社4月21日报道称，由于乌克兰危机加剧了不稳定并导致商品价格暴涨，世界上最大的金条的价值已经增加到超过22亿日元（1710万美元），是其2005年首次在日本中部一个主题公园展出时价值的五倍多。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G-4.jpg)mainichi.jp
-这根重达250公斤的金条在静冈县伊豆市的东井金矿（Toi Gold Mine ）主题公园展出。这根金条是由公园运营商的母公司在2005年冶炼的，吉尼斯世界纪录在同一年将其认证为世界上最大的金条。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-49.jpg)
+莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
 
-该金条于2005年7月公开展示，当时它的价值约为4亿日元。
-
-据金条制造商田中机工株式会社 （Tanaka Kikinzoku Kogyo K.K.）称，截至周三，1克黄金的含税价值为8,969日元。
-
-黄金通常被视为危机时期的避险财富储备，在疫情大流行和俄罗斯在乌克兰的战争造成的不稳定中，黄金的价值已经上升。
-
-由于日元对美元最近的疲软，该金条的价值也有所上升，而美元是全球交易金属的国际指数。
-
-东井金矿在1965年结束了采矿作业，在其生命周期内是日本产量最高的矿场之一。
-
-旧址上的主题公园向游客介绍了该矿的历史，并为他们提供了探索其部分隧道和淘金的机会。
-
-游客可以通过亚克力展示柜上的一个洞触摸金条。该公园在社交媒体的宣传中抓住了价值上升的机会，在宣传中声称触摸金条会增加游客的财运。
-
-**快评：**按照这篇新闻所言，这根世界上最大的金条已经比2005年首次展出时增加了5倍多价值。
-
-听郭先生爆料的人都知道，法币超发，黄金也没有体现其真正的价值，黄金价格一直被人为控制和打压。如果黄金价格翻一倍，世界经济就会完全崩塌。
-
-尽管如此，相比之下这根金条还是升值5倍多，可见法币超发加日元兑美元贬值都已经到了何其惊人的地步？世界经济崩塌的时刻就要到来。
+由于欧美及其他地区陆续祭出制裁，拖垮了俄罗斯经济，并将其推向了外债违约的边缘，造成俄罗斯通货膨胀一路飙升，有经济学家预测，俄罗斯经济将陷入严重衰退。
 
 参考链接：
-[https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html](https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html)
+1. [Vladimir Putin’s nuclear bomber planes called ‘Bears’ fly in Ukraine striking distance](https://www.mirror.co.uk/news/world-news/vladimir-putins-nuclear-bomber-planes-26735218)
+2. [Mariupol’s defenders dig in for last stand as Russia threatens to ‘filter’ out men](https://edition.cnn.com/2022/04/18/europe/ukraine-russia-mariupol-monday-intl/index.html)
+3. [Russia begins large-scale offensive in eastern Ukraine](https://www.axios.com/ukraine-battle-donbas-eastern-ukraine-russia-df048eb8-688a-4163-a9a2-34bda799b9ab.html)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

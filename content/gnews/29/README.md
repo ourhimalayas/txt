@@ -2,34 +2,37 @@
 ---
 
 
-## 加拿大制裁普京女儿在内的14名俄罗斯人
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389373/)
+## 中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389551/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2712.png)图片来源：[https://torontosun.com/](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆SEC预摘牌名单再添17家公司-中概股集体暴跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
+4月21日，美国证劵交易委员会（SEC）再将理想汽车、百世集团和贝壳等17家公司加入“预摘牌名单”，这是自今年3月以来第五批被纳入名单的中概股公司，这些公司或将在2024年初立即退市。
 
+具体名单为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。SEC声称，上述17家公司提交申辩的截止时间为当地时间5月12日。
 
-&lt;多伦多太阳报&gt;4曰19日报道，加拿大联邦政府今日发布对俄新的制裁措施，制裁名单涵盖14名与俄罗斯总统普京关系密切的俄罗斯人，包括他的两个成年女儿，36岁的玛丽亚-沃隆佐娃和她35岁的妹妹卡捷琳娜-蒂霍诺娃。
+当日热门中概股集体重挫，腾讯概念跌幅居前，爱奇艺跌14.89%，贝壳跌超7%，拼多多、斗鱼跌近7%，哔哩哔哩、蘑菇街跌超5%。
 
-联邦政府表示，这14人是普京的亲信，也是俄罗斯无理入侵乌克兰的同谋。包括美国在内的盟国将这对姐妹和其他普京家族成员作为制裁目标，是因为他们帮助隐匿了普京的个人资产。 总理特鲁多在一条推文中表示，加拿大政府不会放弃追究普京身边人在俄罗斯入侵乌克兰战争中的共犯责任。制裁发布当天，特鲁多将与北约和欧洲领导人出席由美国拜登总统召开的视频会议。
+新能源汽车股中，法拉第未来跌近13%，蔚来汽车跌超5%，理想汽车、小鹏汽车跌超4%。
 
-原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+在4月21日博鳌论坛上，中共国证监会副主席方星海演讲时表示，近期中概股下跌严重的情况，重要原因在于中美审计监管合作谈判。
 
-上传/发稿 – 【青青】
-撰稿/翻译 -【自由法兰西】
-采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+据悉，此前百度、爱奇艺、搜狐等中概股公司也被列入“预摘牌”名单，根据SEC公布的《外国公司问责法》，被列入“确定摘牌名单”的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+如果“确定摘牌名单”中的公司没有提交或提交的文件不符合SEC要求，将会在披露2023年年报后（2024年初）面临立即退市。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+消息来源:
+[**又有17家公司被美列入“预摘牌名单”，中概股重挫**](https://www.stcn.com/xw/sd/202204/t20220422_4404525.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

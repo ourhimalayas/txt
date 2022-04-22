@@ -2,37 +2,26 @@
 ---
 
 
-## 魁省超万名医护人员因病毒原因离岗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
+## 视频|郭先生回顾419采访的始末
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2389707/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+制作：香草山视频部
 
+4月19日，郭文贵先生在纪念VOA断播五周年的大直播中透露，在美国之音VOA断播事件发生之前，英国广播公司BBC也曾计划采访郭先生。在得知消息后，王岐山亲自致电BBC的老板，即前香港特首彭定康，威胁他取消这一采访计划。与此同时，另外两场类似的采访也均在中共的直接干预下被全然屏蔽。
 
-加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
+此时，郭先生一方面意识到，世界各国的媒体都已经被中共操控，但另一方面郭先生也认为，他无论如何都需要向世界发声。
 
-该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
+据郭先生回忆，与VOA同期发出采访邀请的还有某台湾电视台、澳大利亚第七电视台和美国旧金山的一家电视台。由于郭先生彼时已经明确地判断出，不论哪个采访，其都不可能按照原计划被顺利地直播放送，因此，在多方考量下，郭先生选择了被认为是“美国和世界其他国家自由灯塔”的VOA。
 
-到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
+郭先生解释道，作为最理想的选择，VOA但凡出现停播事件，其必将引起世界的关注，且该事件的影响也将是历史性的。加之VOA在采访前已经将郭先生的宣传视频大量播放，为此，该采访已经达到了郭先生预期中的效果。
 
-原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+郭先生也指出，VOA在419一反常态的断播事件将中共“蓝金黄”民主国家媒体的行为赤裸裸地展现在世界面前；同时，该断播事件还成为了爆料革命诞生的起点，且新中国联邦和G系列也在其后几年间应运而生。目前，聚集了上亿灭共战友的爆料革命和新中国联邦已经在乌克兰救援行动中被越来越多的国家赞扬与肯定。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+发稿：林礼
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
