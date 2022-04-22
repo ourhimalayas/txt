@@ -2,40 +2,29 @@
 ---
 
 
-## 有声|普京认为西方对俄罗斯发起的“经济闪电战”已经失败
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2391026/)
+## 习近平迷信莫德尔周期，中共自取灭亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391071/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俄罗斯总统普京4月18日在与高级经济官员的视频通话中表示，西方正试图透过经济制裁，造成俄罗斯银行体系崩溃以及货物短缺，但最终俄罗斯顶住了这前所未有的压力，西方发动的“经济闪电战”已经失败。
+撰稿：骄子 、马克文、百合观察
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+419大直播中，郭文贵先生提到莫德尔周期，爆料习近平迷信莫德尔周期理论（全称也叫做莫德尔斯基国际政治长周期理论）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364043.jpg)
+根据莫德尔周期理论，世界权力体系需要一位领导者，而世界政治权力的演变是循环、更迭的，以100-120年为一个周期，新的世界领导者往往在战争中产生，海权是世界领导者的必备条件。
 
-在西方制裁的影响下，俄罗斯国内商品价格上涨，截至4月8日，俄罗斯通胀率为17.5%。但普京坚称，目前卢布汇率已经稳定，外汇也已经回流俄罗斯银行，国内的通胀正在趋于稳定。在普京看来，制裁对发动者本身也是有代价的，西方对俄罗斯祭出制裁措施将导致西方经济走向恶化。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-50.jpg)
-早前，奥地利总理内哈默在与普京会面结束后，向媒体表示，普京似乎对自己在乌克兰的军事行动相当有信心，相信自己“正在胜出这场战争”。内哈默指出，对于俄军在乌克兰犯下的罪行指控，普京套用自己的战争逻辑，反指乌克兰在顿巴斯（Donbas）地区进行种族灭绝。内哈默认为，他确信普京“知道现在发生的事”，西方领袖需要“用在乌克兰看到的事实”直接对抗普京的逻辑。
+郭先生表示，因为深信莫德尔周期理论，习近平错误地认定自己将成为莫德尔周期的下一任霸主。香港的沦落，习近平对此更加自信，甚至将莫德尔周期理论运用到对上海、乃至全国多地的大隔离，进行人道灾难压力测试，趁机侵占湾。郭先生还说道，习近平还将和普京一起对抗美国，对抗世界。而这终将导致中共的灭亡。
 
+参考链接：[【419五周年】04/19/2022 習的自信來自於迷信，認為自己就是活佛轉世，是莫德爾週期所說的下一個統治者](https://gettr.com/post/p166yi20b20)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-187.jpg)
 
+总编：雪梨
 
+编辑：Jack Li文阳、雪梨
 
-文字版原文：[普京认为西方对俄罗斯发起的“经济闪电战”已经失败](https://gnews.org/zh-hans/2388178/)
+审核：Ivy001
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

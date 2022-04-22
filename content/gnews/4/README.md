@@ -2,27 +2,24 @@
 ---
 
 
-## 有声｜最新民调显示逾6成日本人主张对中共强硬
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2391187/)
+## 加拿大媒体报导新中国联邦乌克兰救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391236/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+4月19日，《多伦多星报》报导新中国联邦、法治基金乌克兰前线的救援情况，称赞新中国联邦的帐篷是波兰边境最大、组织最完善的难民帐篷营，并对新中国联邦人Feather进行采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15960802826568.jpg)
+在采访中，Feather身穿印有Take down the Chinese Communist Party标语的醒目的黄马甲。被问及自愿前往波兰救援前线的动因时，Feather表示主要缘于好朋友的家人被困马里乌波尔（Mariupol）。
 
-**2022-04-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-165640.jpg)
-据日本[《每日新闻》](https://mainichi.jp/english/articles/20220421/p2g/00m/0na/012000c)4月21日报道，日本外务省4月20日公布的一项民调结果显示，有超过6成受访者认为，对中共入侵领海等行为，日本应采取强硬态度应对。
+在随后的一次救援行动中，Feather全程帮助一位乌克兰老妇人，从购买手机、与远在加拿大的亲人取得联系，到计划核酸检测行程，预定机票。最后，这位老妇人顺利与亲人在加拿大团聚。
 
-外务省这项有关外交政策的民调是在今年3月17日至22日间以电话方式进行，目标人群是日本全国年满18岁以上男女性共1000人。59%的受访者确实认为近年来围绕东亚地区的安全环境变得愈发严峻。
+参考链接：[What I learned volunteering in refugee camps in Poland and Ukraine](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
 
-在中日关系的重点问题上，有61.6%的人选择对于中共入侵领海等行为应采取强硬态度；50.7%的受访者选择应该要求中共尊重人权、自由、民主、法治；仅有28.2%人选择有关地区及国际社会应加强合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-191.jpg)
 
-日本外务省发言人小野日子20日在例行记者会上就民调结果表示，日中之间存在各种悬而未决的问题，而这就反映在这项民调结果中。对于中共船只多次到钓鱼岛海域航行，小野日子说，那是违反国际法的行为，日本绝对不容许。
+总编：雪梨
 
-（秘翻新闻 巴拉克 编译报道）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

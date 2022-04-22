@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 10:58 AM (UTC)`
+
+2022.04.22  新中国联邦 | 军情室  从对内镇压到对外渗透  谈中共武警部队在武力犯台时的作用
+![img](https://media.gettr.com/group8/origin/2022/04/22/10/ebc448ce-0910-e533-2d37-9f495dc83b53/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/22/2022 10:56 AM (UTC)`
+
+【Ukraine Rescue】 04/21/2022  A Polish volunteer from the American Jewish agency JDC thanks the ROLF and the NFSC for their thoughtful services in helping refugees. He hopes the NFSC can take down the CCP soon.<br/><br/>【乌克兰救援】 04/21/2022  美国犹太机构JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务，他祝愿新中国联邦早日成功灭共。
+![img](https://media.gettr.com/group13/getter/2022/04/22/10/4e83297e-7a75-9fbe-217c-77e3f4600228/out.jpg)
+
+---
+
 `@miles 4/22/2022 8:53 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -139,20 +153,6 @@ https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
 
 2022.04.21  新中国联邦 | 喜健康   病毒满视野，我们该吃啥？
 ![img](https://media.gettr.com/group27/origin/2022/04/21/20/7b7b1da2-2865-3b39-20ba-69f0e60f739d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/21/2022 8:14 PM (UTC)`
-
-Volunteers at the Medyka rescue center joined us talking about the meaning of the VOA’s 419 interruption incident. Nicole introduced that VOA, a US taxpayers funded international broadcast which is owned by the US government, abruptly shut down an interview with Mr. Miles Guo after receiving an order from some Chinese Communist Party (CCP) high officials. One of the volunteers said it’s heartbreaking to hear such an incident happening in the United States, which is supposed to be a symbol of freedom and democracy. Another volunteer said people need the truth and not be dissuaded by fear or threats.<br/>在梅迪卡营救中心的几位义工加入我们谈论关于美国之音419断播事件的意义。妮可介绍了美国之音，一家由美国纳税人资助的隶属美国政府的国际广播，在采访郭文贵先生过程中收到了来自中共高层的命令，突然中断了采访。其中一名义工说听到这个事件在美国这样一个代表自由和民主的国家发生，是令人心碎的。另一名义工说人们需要了解真相，并且不被恐惧和威胁吓倒。
-![img](https://media.gettr.com/group42/origin/2022/04/21/20/954d258b-fe9a-3e3b-f4af-95260bb6baf6/out.jpg)
-
----
-
-`@miles 4/21/2022 7:04 PM (UTC)`
-
-2022-4-21《避风港》(38) 疫苗改变DNA，导致流产率增加16633%
-![img](https://media.gettr.com/group4/origin/2022/04/21/19/1493f420-edd6-f585-e3e2-ebc5b10d8e56/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
