@@ -2,33 +2,32 @@
 ---
 
 
-## 中日财经爆┃俄罗斯公布数字卢布计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2392772/)
+## 新中国联邦在援乌前线新建的室外显示屏遭破坏
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2392851/)
 
-撰稿、图片：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-196.jpg)
+撰稿、编辑：Candy
 
-俄罗斯中央银行计划在2023年前推出数字卢布，并扩大其米尔（MIR）支付卡的使用范围。
+波兰时间4月22日，前线记者猫本小哥传来视频：新中国联邦和法治基金刚刚在室外成功竖起的LED显示屏遭到破坏，被人剪断电线，造成显示新中国联邦和法治基金信息的显示屏停止工作，不能显示任何文字图像。
+视频来源：猫本小哥
+这个巨大室外显示屏，昨天刚刚在梅迪卡营地竖立起来，而且正常工作。为了保证巨大显示屏不受风力影响，保证过路人等的安全，施工人员和战友们冒雨艰难地拖运近一吨的专用水箱，放置到大屏幕的旁边。当地消防车又特意运来两吨水，灌注在这两只水箱里。
+视频来源：小小酥视频来源：小小酥
+这组巨大的液晶显示屏高六米，由两块各朝一方的LED屏幕组成，远远就能看到，俨然一组“擎天柱”。它的清晰度很好，其中一块屏幕显示着新中国联邦和法治基金的文字、标识等；另一块屏幕显示着营地其它国际救援组织的信息。
 
-俄罗斯银行周四（4月21日）宣布，它计划在明年之前准备好数字卢布，并能够进行国际支付。俄罗斯还旨在扩大接受俄罗斯米尔银行卡的国家数。
+它的建成，迅速引来营地志愿者及难民们的关注，很多人兴奋地竖起大拇指，并与大屏幕合影。
+视频来源：Nicole![Image](https://media.discordapp.net/attachments/950448401529577502/967064311619006524/image0.jpg?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/967064936901640272/IMG_0696.png?width=598&amp;height=369)图片来源：Nicoel
+然而，今天早间传来消息，显示新中国联邦和法治基金的这块显示屏已经停止工作，因为它的电线已经被人剪断，警察正在现场进行调查。
 
-“数字卢布是优先项目之一，”中央银行行长纳比乌林娜（Elvira Nabiullina）告诉议会下院。”我们已经相当迅速地创建了一个原型……现在我们正在与银行举行测试，明年我们将逐步进行试点交易。”
+这种低级下作的破坏手段，不要说，大家也能猜出来是谁做的，是谁在背后指使做出来的。让我们拭目以待。中共一贯在世界各个角落上演这种见不得人的丑恶行径，不灭中共，世界就不得安宁。消灭中国共产党！
 
-俄罗斯银行在2020年底公布了国家数字货币的概念。这种新的货币形式预计将与现金和非现金卢布共存。据称，与比特币等虚拟货币不同，数字卢布预计会带来最小的风险，因为它将由国家货币监管机构发行并由传统货币支持。
+相关资讯：[https://gnews.org/zh-hans/2391816/](https://gnews.org/zh-hans/2391816/)
 
-纳比乌林娜还表示，莫斯科的目标是扩大接受米尔银行卡的国家数，此前国际公司维萨和万事达已加入西方制裁，暂停了在俄罗斯的业务。俄罗斯国家支付系统Mir是由俄中央银行在2015年推出的。
+***发布：Candy***
 
-信息来源：[**Russia unveils plans for digital ruble, domestic payment system**](https://www.rt.com/business/554315-russia-digital-ruble-credit-card/)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
