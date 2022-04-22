@@ -2,30 +2,25 @@
 ---
 
 
-## 【秘翻时评】 美国SEC再将17家中概股列入预摘牌名单
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2392205/)
+## 西媒头条 — 第207期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2392531/)
 
-By:**[秘翻时评](https://gettr.com/post/p16lhbyb3b4)**
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-**[2022‑04‑22](https://gettr.com/post/p16lhbyb3b4)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220422.001.jpeg)
 
-**秘翻晚间新闻：**
+发稿：信心的选择
 
-1.美国SEC再将17家中概股列入预摘牌名单
-2.台海局势紧张 中共海军陆战队进行抢滩登陆练习
-3.日本逾百跨党派国会议员赴靖国神社参拜
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-**时评内容：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-32.jpeg)
 
-\*上海多个行政区突然封路
-\*习已无退路，必打台湾
-
-Gettr链接：[**https://gettr.com/post/p16lhbyb3b4**](https://gettr.com/post/p16lhbyb3b4)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

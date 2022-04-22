@@ -2,36 +2,30 @@
 ---
 
 
-## 专家建议在聚会等计划前需多次病毒检测
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392523/)
+## 上海假冒伪劣保供物资引发百姓强烈不满
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2392626/)
 
-##### 作者：加拿大温哥华扬帆农场 -【硫酸羟氯喹64/晨熹】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2788.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+作者：Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4月21日，严厉的疫情封控措施之下，上海市民不断爆料，保供物资品质无法得到保证。除了发现各种假冒伪劣产品，甚至还出现大量过期及霉变食品，健康隐患实在堪忧。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/phpriyxt6.jpeg)新唐人
 
-据【CTV NEWS】4月17日报道，两年来人第一次庆祝复活节和逾越节时面临很少的公共卫生限制，但专家提醒大家仍需保持谨慎，这意味要更多的使用到快速抗原检测 (RAT)。
+社交平台的爆料显示，获得中共特批的保供物资中，有些是三无产品或假冒伪劣产品。例如，在4月19日发放的物资中竟然出现当天山东生产的食用油，无法与工业盐区分的三无产品盐，早在两年前就注销的厂商所生产的粉丝，高仿包装袋大米，以及引起部分居民食物中毒的过期叫花鸡、霉变酱鸭等等。
 
-但安大略省科学家皮特·朱尼认为，由于目前对奥米克戎的BA.2亚变体缺乏了解，用RAT很难检测到。他建议加拿大人在聚会等计划前至少进行两次快速检测，间隔24小时，没有任何症状才可以。”朱尼还建议聚集需限制人数，避免拥挤，确保通风。
+对此，中共市场监管部门只是呼吁居民拨打12315投诉，并未解释在保供物资中出现如此众多的假冒伪劣产品的原因，更没有解决方案替代居民手中这些根本不能食用的物资。而据市民反映，这些官方投诉电话根本无法接通。
 
-据悉，奥米克戎BA.2亚变体最初在加拿大的传播似乎相对缓慢，然而现在已是曼省和安省社区间传播的最主要菌株。
+分析人士指出，上海乱象不仅体现中共愚蠢的政治清零，不顾百姓死活的邪恶本质，也凸显出墙内老百姓即将面临生存威胁的悲惨现状。
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+参考链接：
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【晨熹】
-素材/采编 -【硫酸羟氯喹64】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：静言
+总编：宁文静
+审核：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

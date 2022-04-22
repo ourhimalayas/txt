@@ -2,14 +2,10 @@
 ---
 
 
-## 20220422郭文贵大直播 ：佩洛西将于4月26日正式访台（PPT）
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392596/)
+## 20220422郭文贵大直播 ： “三朝帝师”王沪不宁（PPT）
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392726/)
 
 作者：东京樱花团小视频组
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

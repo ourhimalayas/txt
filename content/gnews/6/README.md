@@ -2,8 +2,8 @@
 ---
 
 
-## 20220422郭文贵大直播 ：2022年4月22日波兰梅迪卡乌克兰前线救援现场播报
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392633/)
+## 20220422郭文贵大直播 ：对比香港抗争与俄乌战争和当下的上海封城的死亡 数字对比让人触目惊心！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392777/)
 
 作者：东京樱花团小视频组
 

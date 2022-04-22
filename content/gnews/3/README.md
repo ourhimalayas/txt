@@ -2,8 +2,8 @@
 ---
 
 
-## 20220422郭文贵大直播 ：世界需要清零中共(PPT)
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392661/)
+## 20220422郭文贵大直播 ：中国缺少反抗的土壤
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2392814/)
 
 作者：东京樱花团小视频组
 

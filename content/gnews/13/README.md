@@ -2,23 +2,37 @@
 ---
 
 
-## 美国会议长南希·佩罗西即将防台
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392555/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2392699/)
 
-作者：加拿大温哥华扬帆农场-晨熹
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2787.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-57.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-21.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.22早 《NFSC新闻》](https://gettr.com/streaming/p16lvbsf359)
+[2022.04.22早《NFSC新闻访谈》](https://gettr.com/streaming/p16lpus6ec2)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-57.png)
 
 
-据文贵先生4月21日盖特直播报道，美国国会议长南希·佩罗西已确定4月26日到访台湾。此消息一出，给台湾未来4月26日至5月6日前这段时间的安全形势带来极大不确定性。
-
-对此，中共召开紧急会议，并向美方表达严重关切。美方则严厉回应，表示在中共支持俄罗斯入侵乌克兰问题上，美也曾向中共表达严重关切，中共置若罔闻。国会议长南希·佩罗西的访问行程，美国务院无权干涉。中共强硬通知美方，若如此，4月26日这个时间点，将是台湾的分水岭。
-
-据文贵先生透露，习近平过去已经做好了所有攻台准备，已无回头路。美议长防台，习若再不动手，二十大必被中共内部灭掉。加之普京战争失利，求和心切，以及国内疫情防控导致民怨沸腾，经济临近崩溃等各种形势逼迫，让习选择拼死一搏，陷入最后疯狂，若拿不下台湾，就会灭掉台湾。
-
-新闻来源：[https://gettr.com/streaming/p16cfisc410](https://gettr.com/streaming/p16cfisc410)
-
-编辑发稿：硫酸羟氯喹64
 
  
 
