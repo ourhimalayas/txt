@@ -2,36 +2,36 @@
 ---
 
 
-## 专家称快速检测试剂或对新毒株无效
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393584/)
+## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（4/5）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393628/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506543521.png)图片来源：CTV新闻
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（3/5）](https://gnews.org/zh-hans/2393591/)
 
+&lt;解说&gt;俄政府宣传机器全开–珍妮•希尔(莫斯科)。
 
-据【CTV 新闻】近日报道，加拿大人两年来首次在没有限制的情况下庆祝复活节和逾越节。但公共卫生专家仍呼吁公众保持谨慎，特别是需要多次使用快速抗原自我检测方式来确认是否被病毒感染。
+克里姆林宫(俄罗斯政府)的宣传机器全面运转。普京总统与国防部长绍伊格一起出现在电视上，宣布俄罗斯掌控了马里乌波尔。
+视频来源：BBC新闻
+但实际上，这几天没有发生过特别实质性的变化，乌军士兵仍在阿佐夫斯塔利钢铁厂中。这是俄政府战略的一环，旨在告诉俄罗斯人民，一切都是按部就班地推进。
 
-对此，安大略省医生朱尼认为，由于目前对奥米克戎BA.2亚变体缺乏了解，现有的快速检测试剂很难保证绝对有效，因此建议加拿大人在聚会活动前至少进行两次间隔24小时的快速自我检测，并在没有任何症状下才参加社交活动。
+国营电视台连日来用轻快的调子宣传，俄军如何前进、如何攻击乌军事目标、如何“解放”各城镇和地区。
 
-尽管加拿大的奥米克戎亚变体最初的传播速度相对缓慢，但目前该变体已是曼尼托巴省和安大略省最主要的新冠病毒传播种类。
+另一方面，国防部长绍伊古并未频频出境，因此据猜测，侵略乌克兰的情况不顺，可能引起了普京总统的不悦。但就是这位绍伊古，却在当天现身屏幕，向老板汇报喜讯。
 
-原文链接：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+下一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（5/5）](https://gnews.org/zh-hans/2393685/)
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【晨熹 】
-素材/采编 -【硫酸氢氯喹64】
-校对/审核 -【硫酸氢氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+素材：宫米叶
+审核：Bryan
+校对：zicoround
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

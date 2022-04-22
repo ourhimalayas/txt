@@ -2,36 +2,37 @@
 ---
 
 
-## 阿斯利康会议记录揭示免疫功能低下者不能接种中共病毒疫苗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393664/)
+## 俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2393707/)
 
-##### 作者：加拿大温哥华扬帆农场 -【UCool 优酷/晨熹】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2799.png)图片来源：[https://creativedestructionmedia.com](https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-据【CD Media】4月19日报道，美国非政府组织维里塔 斯日前获得2020年12月阿斯利康公司的电话会议记录。其中首席执行官帕斯卡尔·索里奥与世卫组织等卫生官员讨论了与中共病毒疫苗宣传内容相反的并发症问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/HHWCRZECLFJ2XPHR7L4NVO2ILQ-1.jpg)
 
-会议中，索里奥谈到有基础免疫疾病的人不能接种疫苗。世界上将有数百万人因此需要疫苗无法给予的保护，而抗体疗法具有巨大潜力。单克隆抗体治疗在中共病毒流行初期就显示良好的效果，美国一些州把它用作一线抗病毒治疗。然而，联邦政府却非常反对此疗法，相反支持疫苗推广。
 
-维里塔斯的创始人詹姆斯·奥基夫认为，既然制药巨头阿斯利康首席执行官2020年就意识到抗体治疗是免疫功能低下人的首选方案，为什么世界各国政府却要故意将这些人置于疫苗危险之中？而3月16日世卫组织又再次重申阿斯利康疫苗对免疫功能低下的个体是安全的。
+图片来源：路透社
 
-新闻来源：[https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/](https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/)
+路透4月22日 – 莫斯科代表团团长表示，俄罗斯和乌克兰的谈判代表周五进行了讨论，但俄罗斯外交部长谢尔盖拉夫罗夫表示，结束战争的外交努力仍然停滞不前。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【晨曦】
-素材/采编 -【UCool 优酷】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+俄罗斯首席谈判代表弗拉基米尔·梅丁斯基证实了塔斯社的新闻报道，称已经进行了“几次长时间的对话”，但他没有透露细节。本周早些时候，克里姆林宫表示俄罗斯已经提交了一份新的书面提案，但乌克兰总统泽连斯基表示，他既没有看到也没有听说过。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+在俄罗斯发动对乌克兰的入侵八周后，双方能否重振他们摇摇欲坠的和平努力仍不清楚。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+在周五的单独评论中，此前曾指责基辅拖延和平进程的拉夫罗夫对和平谈判表达了悲观的态度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+拉夫罗夫在简报会上说：“他们现在停滞不前，因为我们在大约五天前提交给乌克兰谈判代表并考虑到我们从他们那里收到的评论后制定的最新提案仍未得到答复。”
+
+俄罗斯总统普京周五早些时候在电话中告诉欧洲理事会主席查尔斯·米歇尔，基辅表明它还没有准备好寻求双方都能接受的解决方案，他指责乌克兰方面在谈判中“不一致”。
+
+在 3 月份取得一些明显进展之后，和平谈判的气氛因乌克兰指责俄罗斯军队在撤离该地区时在基辅附近的一个城镇实施暴行而恶化。
+
+[俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”](俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

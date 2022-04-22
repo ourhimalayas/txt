@@ -2,23 +2,36 @@
 ---
 
 
-## 马里乌波尔的万人坑：多达 9000 具尸体被掩埋
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2393599/)
+## 阿斯利康会议记录揭示免疫功能低下者不能接种中共病毒疫苗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393664/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04226.jpg)图片来自today.it
-卫星捕捉到的图像似乎证实了乌克兰马里乌波尔郊区不断扩大的万人坑，这座城市数周以来一直处于俄罗斯在乌克兰猛烈进攻的中心。在位于马里乌波尔以西约 10 公里的一个村庄附近挖了数百个坑。根据《纽约时报》的分析，这些是在 3 月至 4 月的两周内挖出的坑。屠杀的人数正按小时上升，有多达9000人死亡。
+##### 作者：加拿大温哥华扬帆农场 -【UCool 优酷/晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2799.png)图片来源：[https://creativedestructionmedia.com](https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/)
 
-来自美国卫星图像提供商 Maxar Technologies 显示，截至 4 月 6 日，坑的数量大幅增加，大约有 200 个新坑是新挖的。
 
-该市市长瓦迪姆·博伊申科（Vadym Boishenko）今天表示，俄罗斯通过将在爆炸中丧生的平民尸体埋在一个新的万人坑中，隐藏了其在马里乌波尔犯下野蛮战争罪行的证据。一些俄罗斯卡车收集了尸体，随后被秘密地扔进了万人坑。
+据【CD Media】4月19日报道，美国非政府组织维里塔 斯日前获得2020年12月阿斯利康公司的电话会议记录。其中首席执行官帕斯卡尔·索里奥与世卫组织等卫生官员讨论了与中共病毒疫苗宣传内容相反的并发症问题。
 
-市长估计，自俄罗斯军队在普京入侵的头几天开始袭击该市以来，已有超过 20,000 名马里乌波尔居民丧生。他说，现在大部分尸体已被运走，而有些尸体则被丢弃在移动火葬场。马里乌波尔市议会说，俄罗斯人在曼胡什附近建立了一个集体墓地。
+会议中，索里奥谈到有基础免疫疾病的人不能接种疫苗。世界上将有数百万人因此需要疫苗无法给予的保护，而抗体疗法具有巨大潜力。单克隆抗体治疗在中共病毒流行初期就显示良好的效果，美国一些州把它用作一线抗病毒治疗。然而，联邦政府却非常反对此疗法，相反支持疫苗推广。
 
-原文链接: [https://www.today.it/mondo/fosse-comuni-mariupol-foto-oggi-guerra-in-ucraina.html](https://www.today.it/mondo/fosse-comuni-mariupol-foto-oggi-guerra-in-ucraina.html)
+维里塔斯的创始人詹姆斯·奥基夫认为，既然制药巨头阿斯利康首席执行官2020年就意识到抗体治疗是免疫功能低下人的首选方案，为什么世界各国政府却要故意将这些人置于疫苗危险之中？而3月16日世卫组织又再次重申阿斯利康疫苗对免疫功能低下的个体是安全的。
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+新闻来源：[https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/](https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/)
 
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【晨曦】
+素材/采编 -【UCool 优酷】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

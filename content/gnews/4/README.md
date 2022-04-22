@@ -2,36 +2,50 @@
 ---
 
 
-## 俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2393707/)
+## 世界银行：战争给乌克兰造成重大损失
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2393749/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/HHWCRZECLFJ2XPHR7L4NVO2ILQ-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-图片来源：路透社
 
-路透4月22日 – 莫斯科代表团团长表示，俄罗斯和乌克兰的谈判代表周五进行了讨论，但俄罗斯外交部长谢尔盖拉夫罗夫表示，结束战争的外交努力仍然停滞不前。
 
-俄罗斯首席谈判代表弗拉基米尔·梅丁斯基证实了塔斯社的新闻报道，称已经进行了“几次长时间的对话”，但他没有透露细节。本周早些时候，克里姆林宫表示俄罗斯已经提交了一份新的书面提案，但乌克兰总统泽连斯基表示，他既没有看到也没有听说过。
 
-在俄罗斯发动对乌克兰的入侵八周后，双方能否重振他们摇摇欲坠的和平努力仍不清楚。
+据[福克斯商业](https://www.foxbusiness.com/economy/ukraine-physical-damage-russia-invasion-billions-world-bank-estimates)4月22日报道，世界银行行长大卫·马尔帕斯 (David Malpass) 周四表示，俄罗斯的入侵对乌克兰建筑和基础设施造成的物质损失目前已达到约600亿美元。
 
-在周五的单独评论中，此前曾指责基辅拖延和平进程的拉夫罗夫对和平谈判表达了悲观的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-50.jpg)
 
-拉夫罗夫在简报会上说：“他们现在停滞不前，因为我们在大约五天前提交给乌克兰谈判代表并考虑到我们从他们那里收到的评论后制定的最新提案仍未得到答复。”
+乌克兰总理Denys Shmyhal说，乌克兰的国内生产总值可能下降30%至50%，迄今为止，造成的直接和间接损失已达5600亿美元。
 
-俄罗斯总统普京周五早些时候在电话中告诉欧洲理事会主席查尔斯·米歇尔，基辅表明它还没有准备好寻求双方都能接受的解决方案，他指责乌克兰方面在谈判中“不一致”。
+乌克兰战争和通货膨胀给世界经济蒙上阴影，国际货币基金组织IMF已下调全球增长预期。
 
-在 3 月份取得一些明显进展之后，和平谈判的气氛因乌克兰指责俄罗斯军队在撤离该地区时在基辅附近的一个城镇实施暴行而恶化。
+联合国（U.N.）人权负责人在周五的一份声明中说，俄罗斯武装部队不分青红皂白地炮击和轰炸居民区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。
 
-[俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”](俄罗斯谈判代表证实与乌克兰方面进行了“几次长时间的对话”)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
 
-编辑发表： Shuizhuyu
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
