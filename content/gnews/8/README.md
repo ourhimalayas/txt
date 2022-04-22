@@ -2,29 +2,44 @@
 ---
 
 
-## 中日财经爆┃日本邮政停发中共国境内包裹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391295/)
+## COVID-19疫苗副作用集萃(2022.4.22G) 三针疫苗后身体副作用明显
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391302/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月21日，日本邮政公司在官网发布消息称，受中共病毒（新冠病毒Covid-19）疫情影响，决定从4月22日起，暂停发往中共国（港澳台地区除外）的EMS服务、航空及海运包裹服务。寄往中共国的书信类仍将继续正常受理。EMS等服务的恢复时间暂未公布。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃日本邮政停发中共国境内包裹.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2Ftransform%2F123%2Fw550h373%2F20210930%2Fcb52-ceba224c4e61126221cb92752532f35d.jpg&amp;imgrefurl=http%3A%2F%2Ftags.finance.sina.com.cn%2F%25E6%2597%25A5%25E6%259C%25AC%25E9%2582%25AE%25E6%2594%25BF&amp;tbnid=nD2qXv8KqS9hRM&amp;vet=12ahUKEwiXs4vEqqf3AhUVNxoKHVBnCTQQMygVegUIARDTAQ..i&amp;docid=43Yi48qg-4XxsM&amp;w=550&amp;h=373&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E9%82%AE%E6%94%BF&amp;ved=2ahUKEwiXs4vEqqf3AhUVNxoKHVBnCTQQMygVegUIARDTAQ)
+#### 整理/编辑：禄森
 
-通知指出，一览中的国家/地区依然暂停接受发自国外的国际邮件，并且还未确保十分运力，将继续暂停受理。同时，已经受理的国际邮件中，无法发至国外的，担任派送的邮局正在顺次进行退回工作。上述措施前受理的寄往中国的邮件不退回至寄件人，我司将利用已确保的舱位进行运输。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-60.png)图片来源：雅典娜设计组(614)
 
-消息来源:
-[22日起生效！日本郵政停發中國大陸包裹 恢複時間尚未公布](https://news.fx168news.com/politics/jp/2204/5836839.shtml)
-[国际邮件的发送可否速览表（截至2022年4月22日）](https://www.post.japanpost.jp/int/information/overview_cn.html)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+博主: 秋秋
+
+第三针的渡劫又来了
+
+前两针辉瑞，第三针只约到了摩德纳，一直安慰自己这样搭配效果才最好，过程还和前两次一样很快就结束了，想着应该没那么快有反应，和小伙伴逛了一下午4点多开始胳膊疼，半夜2点多热醒测了一下37.9赶紧吃了一包感冒药，又睡过去了，早上起来就过了38度全身酸痛行动艰难，为了吃药硬塞了点东西，然后就开始了一天的昏睡，感觉清醒的时候一共也没有多少，烧了一天晚上才降下来，晚饭吃了很多吃完药继续睡，一觉睡到第二天，早上起来状态完全不一样了，烧退了一身轻松胳膊都不疼了，还出门陪小伙伴去了原宿，渡劫彻底结束
+
+过去了以后再想，感觉我还算幸运的，没有烧到太高，结束的也算快了，只希望疫情快点结束吧
+
+作者发布于2022-3-27
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-59.png)图片来源：小红书
+
+
+参考链接：[高烧，全身酸痛，昏睡](https://www.xiaohongshu.com/discovery/item/62404b6000000000010253e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650611085)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

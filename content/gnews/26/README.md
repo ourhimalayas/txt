@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|普京认为西方对俄罗斯发起的“经济闪电战”已经失败
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2391026/)
+## 美国空军为乌克兰开发了“幽灵”无人机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391031/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俄罗斯总统普京4月18日在与高级经济官员的视频通话中表示，西方正试图透过经济制裁，造成俄罗斯银行体系崩溃以及货物短缺，但最终俄罗斯顶住了这前所未有的压力，西方发动的“经济闪电战”已经失败。
+#### 【雅典娜快讯】，紧贴时代脉博
 
-在西方制裁的影响下，俄罗斯国内商品价格上涨，截至4月8日，俄罗斯通胀率为17.5%。但普京坚称，目前卢布汇率已经稳定，外汇也已经回流俄罗斯银行，国内的通胀正在趋于稳定。在普京看来，制裁对发动者本身也是有代价的，西方对俄罗斯祭出制裁措施将导致西方经济走向恶化。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-50.jpg)
-早前，奥地利总理内哈默在与普京会面结束后，向媒体表示，普京似乎对自己在乌克兰的军事行动相当有信心，相信自己“正在胜出这场战争”。内哈默指出，对于俄军在乌克兰犯下的罪行指控，普京套用自己的战争逻辑，反指乌克兰在顿巴斯（Donbas）地区进行种族灭绝。内哈默认为，他确信普京“知道现在发生的事”，西方领袖需要“用在乌克兰看到的事实”直接对抗普京的逻辑。
+**整理/编辑：文泓**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/f51503b914590f7c.jpg)图片来源：The Financial Express & 雅典娜设计组
 
 
+4月21日，美国国防部发言人柯比表示，作为给乌克兰8亿美元军事援助的一部分，美国空军为乌克兰开发了“幽灵”无人机，乌克兰军队将有能力从空中打击俄罗斯军队和装备，不一定需要像地面武器那样接近目标。
+
+这些无人机的详细信息，包括射程或确切作战能力，外界所知甚少。同日白宫表示，作为新一波对乌军事援助的一部分，美国将向乌克兰提供超过121架幽灵无人机系统。
+
+美国国防部称，目前只有不到十名乌克兰人在美国接受了操作“弹簧刀无人机”（Switchblade）的培训，这种一次性武器飞向目标后，会在撞击时引爆。
+
+柯比说，“幽灵”无人机“专为战术行动而设计”,“主要但不限于攻击目标。它与几乎所有无人机系统一样，具有光学系统，它的主要焦点是攻击，也是一款自杀性无人机”。
+
+原文链接：[美国空军为乌克兰开放“幽灵”无人机](//www.dw.com/zh/%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E7%A8%B1%E7%83%8F%E6%9D%B1%E5%9F%8E%E5%B8%82%E5%B0%9A%E6%9C%AA%E6%B7%AA%E9%99%B7-%E7%BE%8E%E6%8F%90%E4%BE%9B%E7%83%8F%E5%85%8B%E8%98%AD%E7%84%A1%E4%BA%BA%E6%A9%9F/a-61552455)
+
+发布：文武全才
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
 
 
-
-文字版原文：[普京认为西方对俄罗斯发起的“经济闪电战”已经失败](https://gnews.org/zh-hans/2388178/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,40 +2,41 @@
 ---
 
 
-## 期盼已久的解封未现却惊见铁丝网封路 上海是在防疫吗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390926/)
+## 有声|针对王岐山的爆料仍未完结
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390943/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-166.jpg)
-上海市的许多道路一夜之间被铁丝网阻断（图片来自网络）
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在大直播中还提到，419涉及的有关王岐山的爆料目前仍然没有被完全公布，包括王岐山在瑞士银行的账号、刘呈杰亲生父亲的信息，以及王岐山和美国华尔街的真正关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-21-at-11.17.16-AM.png)
+郭先生透露，王岐山及其家族在海外藏匿了巨量的财富，有些甚至无法以金钱衡量，且这些财产至今不为习近平所知。另一方面，经年来，王岐山在中共内部大行党同伐异之事，又屡次借所谓的“反腐”之名肆意杀掠党内的异己或知情人士。然而，习近平至今没有针对王岐山及其财富做出任何举措。
 
-近日，各路消息都传全面封城已近四周的上海即将开始逐步解封。然而，到目前为止，绝大多数居民仍然被封在家中。不仅如此，上海大多数区的许多道路还在一夜之间突然被铁丝网阻断。
-
-据《希望之声》4月22日报道，中共副总理孙春兰和上海市卫健委官员日前先后表示，上海的疫情已呈下降趋势，清零目标指日可待。上海人因此都在期盼传说中的“解封即将到来”。
-
-然而，在4月19日晚到20日，仅仅一夜之间，上海浦东、浦西等地的大部分马路突然遭铁丝网封路，人行道路也一并被封锁。
-
-据上海居民反映，这是全市统一行动，并且是在一夜之间完成。普陀区、闵行区和嘉定区的道路都被封住了，只有“党政机关”的路段未封。封路铁丝网的支柱都打进马路地面下了，并且，由于道路被铁丝网阻断，就连警车都开不了，军警也走不了。
-
-据百度地图和现场反馈信息显示，除了长宁区、黄埔区和徐汇区的大部分地区以外，其他十多个区均出现封路。此外，上海周浦区居民还表示，3月28日才铺设的铁丝网已被全新的铁网取代。
-
-上海居民冯恩浩在接受媒体采访时表示，既然已经声称抗击疫情取得成效，那么上海多个区域为何又突然封路？这个行动非常怪异，根本不像防疫。
-
-虽然上海官方之前声称很快将会解封，但眼下的迹象似乎正相反。对此，中共官方并未公开给出解释，而上海民众期盼已久的解封怕是要再度落空了。
-
-新闻链接：
-
-[https://www.soundofhope.org/post/614408](https://www.soundofhope.org/post/614408)
+对此，郭先生认为，不论是五年前，还是现在，王岐山依然是对美国、中国，甚至是习近平本人而言的最大威胁。
 
 
 
-> 接到好几位朋友反应浦东好多处用铁丝网封路了。
-> 今天下午骑车出去一圈，所有商店全部关闭，看来上海解封必须全国解封，否则没用，物价会飞涨，商品难以流动。 [pic.twitter.com/J8aWSTXeOr](https://t.co/J8aWSTXeOr)
-> — XZGLBBS (@fQe5apcIKaajT6I) [April 20, 2022](https://twitter.com/fQe5apcIKaajT6I/status/1516793142191980547?ref_src=twsrc%5Etfw)
 
 
 
-* * *
+
+文字版原文：[针对王岐山的爆料仍未完结](https://gnews.org/zh-hans/2387623/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

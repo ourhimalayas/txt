@@ -2,24 +2,29 @@
 ---
 
 
-## 美SEC再将17家中企列入准除牌名单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390602/)
+## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
 
-#### 翻译/撰稿：zzballack
+**图/文｜CP **
+**发布时间｜22/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2-3.jpg)图片来源：路透社
-据《Bloomberg Tax》4月22日报道，美国证券交易委员会（SEC）4月21日再将17家中企添加到其《外国公司问责法案》(HFCAA) 的临时名单中。这是3月份以来的第5批，名单上的公司面临在美国被摘牌的风险。SEC称，基于《外国公司问责法案》，如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，不配合上市公司会计监督委员会（PCAOB）的审计检查要求，SEC有权将其从交易所摘牌。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-这批被SEC列入HFCAA临时名单的中企包括知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-上述17家公司可于5月12日前向SEC提交证据，证明不具备被除牌的条件。目前，前3批的11家公司已由临时名单转移至确定名单，第4批的12家公司可于5月3日前向SEC提交证据。
+世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
 
-新闻来源：
+马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
 
-[Luckin Coffee, Li Auto Among 17 Firms Added to SEC’s HFCAA List](https://news.bloombergtax.com/financial-accounting/luckin-coffee-li-auto-among-17-firms-added-to-secs-hfcaa-list)
+目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
 
-[Li Auto, Luckin Coffee Added as US Delisting Candidates](https://www.asiafinancial.com/li-auto-luckin-coffee-added-as-us-delisting-candidates)
+国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
+
+來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
