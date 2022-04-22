@@ -2,45 +2,22 @@
 ---
 
 
-## 有声|中共魔头习要用核武器毁灭台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390829/)
+## 中共政权岌岌可危 新中国联邦拯救中国人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390951/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据盖特21日消息，郭文贵先生在紧急直播中告诉世界，习近平会在内外交困情况下，对台湾进行毁灭性打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+在419五周年大直播中，在谈到五年爆料革命的发展对中共体制的影响时，郭文贵先生表示，自俄乌战争开始起，中共党内很多人士已经意识到，中共政权岌岌可危。中共党内人士清楚地知道，习近平坚定地与普京合作，就是自取灭亡。上海封城事件，让更多体制内人士认识到中共的邪恶本质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364044.jpg)
+郭先生称，西方世界已掌握所有在中共机关任职人员的相关信息。中共党内人士清楚地知道，一旦攻打台湾，中共将面临更加严厉的国际制裁，与中共有关的海外资产将被查封。 所谓“君子不立于危墙之下”，实际上是中共之墙危在旦夕。
 
-郭先生根据美方最新情報，美国国会议长南希.佩洛西，将在本月26日访问台湾。並說，如果成行以后，美囯总统拜登也有可能去访台。台湾将宣布独立。中共向美国政府表迏严重抗议，並放狠話“4月26日將是分水岭的日子”。
+参考链接：[4/19/2022【419五周年】](https://gettr.com/post/p16446n7800)
 
-另一俄烏战爭巨大变数，普京在侵乌战争中的惨败，已经向美国及西方准备讲和。
-习还想在中共20大继续掌权，面对国内经济崩塌，国际社会施圧病毒溯源的追责，中美关系即将全面脱钩困境下。习准备多年的侵台计划，会改变局部战争计划，用战略性核武器毁灭台湾。习的疯狂野心，是在保不住自己家族的千秋万代延续，也不惜要绑架中国同胞和台湾同胞一起陪葬。同胞们要清醒，战争就在眼前。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-188.jpg)
 
-郭先生2021年7月31日大直播讲到，中共侵台的开战一刻，就是新中国联邦接管中共伪政权的一刻。但我们不希望用更多的同胞牺牲来换取和平，只有尽快灭了习近平，和中南坑老雜毛，海峡两岸才能避免战火屠灵。
+总编：雪梨
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123724288_b016a2e9-b0b2-4993-8bdd-dc42e569f35c.jpg)
-
-
-
-
-文字版原文：[中共魔头习要用核武器毁灭台湾](https://gnews.org/zh-hans/2388284/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

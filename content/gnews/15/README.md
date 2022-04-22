@@ -2,31 +2,43 @@
 ---
 
 
-## 樱花时政┃乌克兰重建需要6000亿美元 总理什米加尔呼吁IMF成员国援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390787/)
+## 有声|美、澳、日、新重提印太风险
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390910/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-乌克兰总理什米加尔4月21日表示，被俄罗斯侵略破坏的乌克兰的重建将需要6000亿美元（约77万亿日元），他呼吁国际货币基金组织（IMF）成员国将特别提款权（SDR）的10%用于重建援助。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据相关媒体4月20日报道，在美国、澳大利亚、日本和新西兰19日于夏威夷召开的会议上，出于对所罗门群岛与中共签署双边安全合作协议的担忧，美国提出将与太平洋岛国建立更加密切的合作伙伴关系，用以维护印太地区的安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-21-at-11.23.43-AM.png)
+美国白宫国安会发言人华森在一份声明中表示，联邦政府决心增强在太平洋地区的参与度，以期与该地区岛国共同应对包括海上安全、经济发展、气候变迁及中共病毒疫情等方面的挑战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-190.jpg)[图片来源](https://www.google.com/search?q=Ukraine&amp;sxsrf=APq-WBscVf3gCQD1PLQhyYuclcOQKKMgA:1650614703671&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=LwsKOVmsw0i#:~:text=%E3%81%A6%E3%81%8F%E3%81%A0%E3%81%95%E3%81%84%E3%80%82-,The%20Atlantic,A%20Ukrainian%20Win%20Is%20the%20Only%20Acceptable%20Endgame%20%2D%20The%20Atlantic,-%E8%A1%A8%E7%A4%BA)
+报道也提及，近日，中共外交部长王毅与索罗门群岛外交部长马内列正式签署了中索政府间的双边安全合作框架协议。然而，这份协议加重了美、日、澳、新四国对印太地区严重风险的担忧。
 
-什米加尔总理在国际货币基金组织-世界银行春季会为支持乌克兰举行的部长级圆桌会议上表示，乌克兰在短期内每月需要40-50亿美元。从长远来看，需要一个类似于二战后支持欧洲的重建的美国(马歇尔计划)。
+对此，澳大利亚外交部长潘恩表示，澳洲政府对中索安全协议的签订深感失望，同时，澳方希望可以进一步厘清协议的具体内容。潘恩强调，各国都在担心该协议的制定过程缺乏透明度，且这份协议或将破坏相关区域的和平与稳定。
 
-什米加尔总理透露，他已经向伙伴国家发出信函，希望提供10%的特别提款权。并且表示，乌克兰正在制定一项重建计划，其中包括加入欧盟。他呼吁提供武器和弹药，对俄罗斯施加额外的制裁压力。
 
-去年，国际货币基金组织向其190个成员国发放了创记录的价值6500亿美元的新特别提款权拨款，以帮助受中共病毒（新冠病毒covid-19）传播影响的国家。国际货币基金组织预计，乌克兰的经济今年将达到35%的负增长。
 
-信息源：[ウクライナ復興には77兆円必要－首相がＩＭＦ加盟国に支援訴え](https://news.yahoo.co.jp/articles/e824bbc51a83f240e89de5ee88c1b70ad01107e7#:~:text=%E3%82%A6%E)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
+
+文字版原文：[美、澳、日、新重提印太风险](https://gnews.org/zh-hans/2387630/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

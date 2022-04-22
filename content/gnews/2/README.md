@@ -2,24 +2,35 @@
 ---
 
 
-## 俄罗斯军事研究院在最大的化工厂被吞没后几小时神秘起火
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390966/)
+## 美国空军为乌克兰开发了“幽灵”无人机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391031/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-150.jpg)
-图片来源： www.sohu.com
+#### 【雅典娜快讯】，紧贴时代脉博
 
-零对冲网4月21日报道，据俄罗斯国立电视台塔斯社报告，周四位于特维尔市的俄罗斯国防部研究院突发大火，目前已造成7人死亡，消防人员下午一直在努力灭火。
+**整理/编辑：文泓**
 
-目前起火的原因或者还不清楚，或者不被俄罗斯所披露，但是人们提出了很多问题，这是发生在俄罗斯在特维尔的最大的化工厂大火后的几小时，已有150名化工厂工人紧急撤离该厂。后者已吞灭了位于该化工厂的天空防御部队的秘密研发中心。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/f51503b914590f7c.jpg)图片来源：The Financial Express & 雅典娜设计组
 
-英国媒体报道最新的秘密大火是这一天的第二次大火。
 
-西方主流媒体安全分析师们正在分析同一天出现两次大火是否是主动破坏。
+4月21日，美国国防部发言人柯比表示，作为给乌克兰8亿美元军事援助的一部分，美国空军为乌克兰开发了“幽灵”无人机，乌克兰军队将有能力从空中打击俄罗斯军队和装备，不一定需要像地面武器那样接近目标。
 
-俄罗斯媒体报道了发生在特维尔的俄罗斯国防部研究院的神秘大火，该地点位于莫斯科西北部110公里，那里很可能有爆炸。
+这些无人机的详细信息，包括射程或确切作战能力，外界所知甚少。同日白宫表示，作为新一波对乌军事援助的一部分，美国将向乌克兰提供超过121架幽灵无人机系统。
 
-#### 新闻来源： [Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
+美国国防部称，目前只有不到十名乌克兰人在美国接受了操作“弹簧刀无人机”（Switchblade）的培训，这种一次性武器飞向目标后，会在撞击时引爆。
+
+柯比说，“幽灵”无人机“专为战术行动而设计”,“主要但不限于攻击目标。它与几乎所有无人机系统一样，具有光学系统，它的主要焦点是攻击，也是一款自杀性无人机”。
+
+原文链接：[美国空军为乌克兰开放“幽灵”无人机](//www.dw.com/zh/%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E7%A8%B1%E7%83%8F%E6%9D%B1%E5%9F%8E%E5%B8%82%E5%B0%9A%E6%9C%AA%E6%B7%AA%E9%99%B7-%E7%BE%8E%E6%8F%90%E4%BE%9B%E7%83%8F%E5%85%8B%E8%98%AD%E7%84%A1%E4%BA%BA%E6%A9%9F/a-61552455)
+
+发布：文武全才
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
+
+
 
  
 

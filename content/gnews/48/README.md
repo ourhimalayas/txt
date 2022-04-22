@@ -2,31 +2,38 @@
 ---
 
 
-## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
+## 香港放松疫情管控 重新开放主题公园和夜间餐厅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390071/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+整理/编辑：围剿维尼熊
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3576.jpg)
+根据美国之音4月22日报道，香港周四（4月21日）放松了对疫情的限制，迪士尼乐园和博物馆重新开放，夜间餐厅恢复营业。
 
+在香港，海洋公园和M+博物馆等景点周四重新开放。健身房、美容院、按摩院也被允许恢复营业。客户必须至少接种过一剂新冠疫苗，并在进入时扫描二维码以进行接触者追踪。
 
-美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
+被禁止在下午6点后提供堂吃服务的餐馆，可以在晚上重新开放，尽管每张桌子最多只能接待4名客人。
 
-涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
+主题公园现在可以开放50%的容量，游客必须出示疫苗接种证明。迪士尼员工高举标语，提醒人们保持社交距离。
 
-SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
+随着香港第五波冠状病毒流行，主题公园在1月份被勒令关闭。在不到4个月的时间里，740万人口的香港有近120万人感染，近9000人死亡。
 
-根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
+放宽限制之前，官员们承认，人们对这些措施感到失望，必须在抗击疫情和恢复正常活动之间取得平衡。
 
-另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
+香港周四报告了603例本地感染病例，较3月份3万多人的峰值下降了99%以上。
 
-來源｜[SEC](https://www.sec.gov/hfcaa)
+在香港的新冠肺炎病例清零之前放松措施，标志着香港与内地对任何疫情的清零战略的转变。此前，当局不愿放松措施，直到疫情被明显控制。
 
-* * *
+参考链接：[香港放松疫情管控 迪斯尼重新开放 上海死亡病例增加](https://www.voachinese.com/a/hong-kong-disney-opens-as-covid-19-eases-shanghai-deaths-rise-20220422/6540416.html)
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

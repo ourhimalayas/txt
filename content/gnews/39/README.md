@@ -2,30 +2,28 @@
 ---
 
 
-## 秘翻新闻｜上海多个行政区突然封路
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2390427/)
+## 《铁锁梦》MV荣登多国iTunes榜首
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390430/)
 
-**By:[秘翻新闻](https://gettr.com/post/p16la088416)**
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+继《灭共的雪》和《铁锁梦》两首单曲同时上榜，且连续多日占领多个国家和地区iTunes排行榜前列，震撼中共和世界音乐界，《铁锁梦》MV版本于4月19日当天正式上榜。
 
-**[2022-4-22](https://gettr.com/post/p16la088416)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-31.png)
 
-**新闻内容:**
+截至4月20日，《铁锁梦》MV已荣登美国、加拿大、日本、英国、香港等23个国家和地区MV总榜、MV流行曲榜第一名。
 
+让我们再接再厉，努力打榜，以歌灭共！
 
-```
-1.新版大饥荒: 中共国老人深夜抓铁门哭喊救命
- 2.上海变身“集中营” 人们失去姓名只认门牌号
- 3.卫星图像现马里乌波尔乱坟岗
- 4.美财政部长权衡将俄罗斯冻结资产用以战争耗费
- 5.最新民调显示逾6成日本人主张对中共强硬
+参考链接：
 
- 🔗Gettr链接：https://gettr.com/post/p16la088416 
-发布:星星
-```
+- [4月20号，《铁锁梦》MV在全球上线第二天，登榜iTunes](https://gettr.com/post/p1688sk34f8)
 
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+
+总编：雪梨
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

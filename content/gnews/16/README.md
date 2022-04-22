@@ -2,37 +2,30 @@
 ---
 
 
-## 泽连斯基称乌东城市尚未沦陷，普京下台举行双边会谈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390779/)
+## 美证交会再将知乎、贝壳等17只中概股列入预摘牌名单
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390909/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-191.jpg)
+（资料图片来自网络）
 
-**整理/编辑：文泓**
+美国证券交易委员会4月21日宣布将包括知乎、贝壳、理想汽车等在内的17只中概股列入预摘牌名单。这已是自3月以来的第五批名单。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/fd9e9e293fe2ece3.jpg)图片来源：GMK Center & 雅典娜设计组
+据《阿波罗新闻网》4月22日报道，美国证交会（SEC）21日宣布，再将17家中企添加到其《外国公司控股责任法案》（HFCAA）临时名单中。这意味这批公司将面临在美国被摘牌的风险。
 
+这是自3月以来第5批被SEC列入预摘牌名单的中概股。名单中包括知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-4月21日，当俄罗斯总统普京宣称“已解放”乌东城市马里乌波尔后，乌克兰总统泽连斯基对此提出异议，称该城市尚未完全沦陷。
+上述这17家公司必须于5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
 
-泽连斯基表示，目前情况很困难，但仍有方法可以“解放”该市。我们正在为一种军事方案做准备，该方案需要西方的帮助。
+据报道，在此之前，首3批共计11家中共国公司已由预摘牌名单转为确定摘牌名单；而第4批的12家公司则须在5月3日前向SEC提交证据。
 
-他说，另一条解决途径将是透过外交和人道主义途径，并列出了基辅已经向莫斯科提出的几个方案，其中包括交换囚犯。
+SEC官网信息显示，目前已列入确定摘牌名单的11只中概股是：百胜中国、和黄医药、微博、富途控股、爱奇艺、百度、百济神州、再鼎医药、盛美半导体、凯信远达医药和Nocera。
 
-有报道称，据信有数百名平民与乌克兰战士一起被困在亚速钢铁厂内。俄罗斯总统普京21日表示，俄罗斯军队不会攻入该工厂，而是打算将其封锁。
+新闻链接：
 
-同日，有记者看到三辆巴士载满了从马里乌波尔被撤离的人员，人员被疏散至扎波罗热地区。此前，因乌克兰境内的激烈战斗，试图从马里乌波尔建立人道主义走廊多次失败。
+[https://www.aboluowang.com/2022/0422/1738592.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0422/1738592.html?utm_source=dlvr.it&amp;utm_medium=twitter)
 
-泽连斯基告诉媒体，目前不会前往莫斯科与俄罗斯领导人就结束战争进行直接会谈。在莫斯科有不同的统治者时，任何情况都有可能发生。
-
-原文链接：[泽连斯基称乌东城市尚未沦陷](//www.dw.com/zh/%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E7%A8%B1%E7%83%8F%E6%9D%B1%E5%9F%8E%E5%B8%82%E5%B0%9A%E6%9C%AA%E6%B7%AA%E9%99%B7-%E7%BE%8E%E6%8F%90%E4%BE%9B%E7%83%8F%E5%85%8B%E8%98%AD%E7%84%A1%E4%BA%BA%E6%A9%9F/a-61552455)
- 
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+* * *
 
  
 

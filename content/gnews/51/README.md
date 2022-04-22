@@ -2,36 +2,33 @@
 ---
 
 
-## 中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389551/)
+## 俄罗斯绝密军事研究所爆发严重火灾
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2389335/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆SEC预摘牌名单再添17家公司-中概股集体暴跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
-4月21日，美国证劵交易委员会（SEC）再将理想汽车、百世集团和贝壳等17家公司加入“预摘牌名单”，这是自今年3月以来第五批被纳入名单的中概股公司，这些公司或将在2024年初立即退市。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-具体名单为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。SEC声称，上述17家公司提交申辩的截止时间为当地时间5月12日。
+4月21日，俄罗斯一个绝密军事研究所爆发严重火灾，摧毁大楼。该研究所致力于开发俄罗斯最新的弹道导弹，以及苏-27（Su-27）战机和图-160（Tu-160）轰炸机等先进武器。
 
-当日热门中概股集体重挫，腾讯概念跌幅居前，爱奇艺跌14.89%，贝壳跌超7%，拼多多、斗鱼跌近7%，哔哩哔哩、蘑菇街跌超5%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯绝密军事研究所爆发严重火灾.jpg)图为2022年2月19日，俄罗斯试射伊斯坎德尔弹道导弹。（图片来自Handout/Russian Defence Ministry/AFP）
 
-新能源汽车股中，法拉第未来跌近13%，蔚来汽车跌超5%，理想汽车、小鹏汽车跌超4%。
+据《大纪元》报道，俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
 
-在4月21日博鳌论坛上，中共国证监会副主席方星海演讲时表示，近期中概股下跌严重的情况，重要原因在于中美审计监管合作谈判。
+俄罗斯通讯社援引未具名官员的话表示，一场大火将市中心笼罩在黑烟中，持续数小时，至少有5人丧生，30人受伤。
 
-据悉，此前百度、爱奇艺、搜狐等中概股公司也被列入“预摘牌”名单，根据SEC公布的《外国公司问责法》，被列入“确定摘牌名单”的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。
+当局说有27人受伤。塔斯社援引紧急服务部门人员的话说，至少有10人失踪。
 
-如果“确定摘牌名单”中的公司没有提交或提交的文件不符合SEC要求，将会在披露2023年年报后（2024年初）面临立即退市。
+此外，有目击者看到有几个人从着火大楼的窗户跳下。在消防员派出直升机扑灭大火后，屋顶倒塌，建筑物继续闷烧到深夜。
 
-消息来源:
-[**又有17家公司被美列入“预摘牌名单”，中概股重挫**](https://www.stcn.com/xw/sd/202204/t20220422_4404525.html)
+目前尚不清楚建筑物中存放的什么东西引发如此猛烈的大火。当局没有立即给出火灾原因，但塔斯社援引一名不愿透露姓名官员的话说，旧电线在二楼一间上锁的办公室着火了。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据英国《每日电讯报》报导，该研究所成立于1930年代在苏联时代克里米亚，为苏联红军服务并开发导弹防御系统。近年来，该所的科学家一直在开发一些俄罗斯最先进的武器，包括伊斯坎德尔短程弹道导弹（Iskander short-range ballistic missiles）以及苏-27战机和图-160隐形战略轰炸机。
+
+参考链接：
+
+[https://www.epochtimes.com/b5/22/4/21/n13717142.htm](https://www.epochtimes.com/b5/22/4/21/n13717142.htm)
+
+总编：老孙
+校对发布：wenxia16
 
  
 
