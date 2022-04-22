@@ -2,27 +2,13 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393312/)
+## 打台湾是要打垮美国供应链
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2393444/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-6.jpg)
+**听写：叮叮    编辑：文宝**
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](https://gnews.org/zh-hans/2383091/)
+我们被大家推荐为世界第一负责任大国，以后重组联合国了，我说了算了。你不服？油不行、气不行、欧洲完蛋了、美元没人用了、我是人民币美元、数字人民币，你再制裁不了我了。你美国制裁的人都到我这儿来。你不制裁它，最后弱国也到我这儿来，所有独裁国家都变成流氓，都到我这儿来。包括在民主国家当总统，当两届满，还想当是吧？到我这儿来，不要担心美国制裁。”这是核心。习近平咋会为了你俄罗斯打仗乌克兰，他就不打台湾了呢？打台湾是要芯片、要技术，把美国整个供应链给打垮，美国的技术供应链打垮，中东的天然气和石油打垮了，欧洲的天然气、石油打垮了。世界的金融系统整个未来，就会人类上走了粮食危机、金融市场崩盘、社会秩序崩盘、所有供应链崩断。那你宗教上有大量的这种事件发生、否定当中基本消失。那你告诉我人类上面临什么？
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

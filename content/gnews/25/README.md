@@ -2,32 +2,33 @@
 ---
 
 
-## 【G叻睇真D】加拿大制裁多名与普京关系密切的亲属和幕僚
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2392759/)
+## 新中国联邦在援乌前线新建的室外显示屏遭破坏
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2392851/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄罗斯总统普京关系密切的亲属和幕僚。
+撰稿、编辑：Candy
 
-报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
+波兰时间4月22日，前线记者猫本小哥传来视频：新中国联邦和法治基金刚刚在室外成功竖起的LED显示屏遭到破坏，被人剪断电线，造成显示新中国联邦和法治基金信息的显示屏停止工作，不能显示任何文字图像。
+视频来源：猫本小哥
+这个巨大室外显示屏，昨天刚刚在梅迪卡营地竖立起来，而且正常工作。为了保证巨大显示屏不受风力影响，保证过路人等的安全，施工人员和战友们冒雨艰难地拖运近一吨的专用水箱，放置到大屏幕的旁边。当地消防车又特意运来两吨水，灌注在这两只水箱里。
+视频来源：小小酥视频来源：小小酥
+这组巨大的液晶显示屏高六米，由两块各朝一方的LED屏幕组成，远远就能看到，俨然一组“擎天柱”。它的清晰度很好，其中一块屏幕显示着新中国联邦和法治基金的文字、标识等；另一块屏幕显示着营地其它国际救援组织的信息。
 
-加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。此外，特鲁多当天将与北约和欧盟领导人出席由美国拜登总统召开的视频会议。
+它的建成，迅速引来营地志愿者及难民们的关注，很多人兴奋地竖起大拇指，并与大屏幕合影。
+视频来源：Nicole![Image](https://media.discordapp.net/attachments/950448401529577502/967064311619006524/image0.jpg?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/967064936901640272/IMG_0696.png?width=598&amp;height=369)图片来源：Nicoel
+然而，今天早间传来消息，显示新中国联邦和法治基金的这块显示屏已经停止工作，因为它的电线已经被人剪断，警察正在现场进行调查。
 
-盖特链接：[https://gettr.com/post/p16h16ee347](https://gettr.com/post/p16h16ee347)
+这种低级下作的破坏手段，不要说，大家也能猜出来是谁做的，是谁在背后指使做出来的。让我们拭目以待。中共一贯在世界各个角落上演这种见不得人的丑恶行径，不灭中共，世界就不得安宁。消灭中国共产党！
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+相关资讯：[https://gnews.org/zh-hans/2391816/](https://gnews.org/zh-hans/2391816/)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+***发布：Candy***
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

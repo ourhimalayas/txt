@@ -15,53 +15,53 @@
 
 ---
 
-### [馬里烏波爾鋼鐵廠的烏克蘭軍隊&#8221;最後一次向世界呼救&#8221;，尋求援助營救平民（上）](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（下）](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（中）](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [从博鳌亚洲论坛演讲看习近平的恐惧](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
-
-### [莫德尔周期与习近平](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [星链在乌克兰击退了俄罗斯的干扰攻击](/content/gnews/6/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [郭先生健身直播要点（2022年4月22日）](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [普习两魔头的结盟及其给世界带来的灾难（十一）](/content/gnews/9/README.md)
- ` 纽约香草山MOS02`
-
-### [中共想在这个乱世当中控制中东的能源](/content/gnews/10/README.md)
+### [以“反恐为名”把整个美国各金融机构控制、威胁](/content/gnews/1/README.md)
  ` 加拿大温哥华英里农场`
 
-### [将会发生多方面的灾难](/content/gnews/11/README.md)
+### [DC每日热点0422](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [一旦剥夺钱的使用权力，你跟死人没啥两样](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [有声|普习两魔头的结盟及其给世界带来的灾难（九）](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [圣彼得堡的阴谋](/content/gnews/13/README.md)
- ` 加拿大温哥华英里农场`
-
-### [加拿大魁省疫情毫无减弱趋势](/content/gnews/14/README.md)
+### [加拿大强制疫苗政策加剧军队人员短缺](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（上）](/content/gnews/15/README.md)
+### [财富已经成了统治人类的最重要的工具](/content/gnews/5/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [地中海三国最后一定参与战争](/content/gnews/6/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [打台湾是要打垮美国供应链](/content/gnews/7/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（下）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年04月22日文贵大直播速记](/content/gnews/16/README.md)
- ` Mr. Miles Guo's News Briefing`
+### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（中）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [星链在乌克兰击退了俄罗斯的干扰攻击](/content/gnews/10/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [普习两魔头的结盟及其给世界带来的灾难（十一）](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共想在这个乱世当中控制中东的能源](/content/gnews/13/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [有声|普习两魔头的结盟及其给世界带来的灾难（九）](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [加拿大魁省疫情毫无减弱趋势](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（上）](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [【G时新闻】加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/17/README.md)
  ` G-时新闻`
@@ -75,44 +75,44 @@
 ### [有声新闻-新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/20/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [【G时新闻】加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/21/README.md)
+### [法国总统选举 马克龙的主导地位在辩论后没有改变](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【G时新闻】加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/22/README.md)
  ` G-时新闻`
 
-### [截至4.22 俄乌战事汇总](/content/gnews/22/README.md)
+### [截至4.22 俄乌战事汇总](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共对上海大隔离期间网路言论进行清算](/content/gnews/23/README.md)
+### [中共对上海大隔离期间网路言论进行清算](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [新中国联邦在援乌前线新建的室外显示屏遭破坏](/content/gnews/24/README.md)
+### [新中国联邦在援乌前线新建的室外显示屏遭破坏](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【G叻睇真D】加拿大制裁多名与普京关系密切的亲属和幕僚](/content/gnews/25/README.md)
+### [【G叻睇真D】加拿大制裁多名与普京关系密切的亲属和幕僚](/content/gnews/26/README.md)
  ` G-时新闻`
 
-### [【G时新闻】美国正在耗尽弹药储备且几年内难以补足](/content/gnews/26/README.md)
+### [【G时新闻】美国正在耗尽弹药储备且几年内难以补足](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月22日早](/content/gnews/27/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月22日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [上海假冒伪劣保供物资引发百姓强烈不满](/content/gnews/28/README.md)
+### [上海假冒伪劣保供物资引发百姓强烈不满](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [美志愿者为美国公司与中共深度勾连而羞愧](/content/gnews/29/README.md)
+### [美志愿者为美国公司与中共深度勾连而羞愧](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [中共无人性清零管控是最后的挣扎](/content/gnews/30/README.md)
+### [中共无人性清零管控是最后的挣扎](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [普京露面视频加剧了它患有癌症和帕金森氏症的猜测](/content/gnews/31/README.md)
+### [普京露面视频加剧了它患有癌症和帕金森氏症的猜测](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期](/content/gnews/32/README.md)
+### [4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
-
-### [专家建议在聚会等计划前需多次病毒检测](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [有声｜上海变身“集中营” 人们失去姓名只认门牌号](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
