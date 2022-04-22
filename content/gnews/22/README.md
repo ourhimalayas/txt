@@ -2,29 +2,42 @@
 ---
 
 
-## 有声｜美财政部长权衡将俄罗斯冻结资产用以战争耗费
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2390726/)
+## 有声|针对王岐山的爆料仍未完结
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390943/)
 
-**By:秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在大直播中还提到，419涉及的有关王岐山的爆料目前仍然没有被完全公布，包括王岐山在瑞士银行的账号、刘呈杰亲生父亲的信息，以及王岐山和美国华尔街的真正关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-21-at-11.17.16-AM.png)
+郭先生透露，王岐山及其家族在海外藏匿了巨量的财富，有些甚至无法以金钱衡量，且这些财产至今不为习近平所知。另一方面，经年来，王岐山在中共内部大行党同伐异之事，又屡次借所谓的“反腐”之名肆意杀掠党内的异己或知情人士。然而，习近平至今没有针对王岐山及其财富做出任何举措。
 
-**2022-04-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-165642.jpg)
-[Newsmax](https://www.newsmax.com/newsfront/russia-ukraine-war-yellen/2022/04/21/id/1066737/)4月21日报道，俄罗斯的持续轰炸对乌克兰造成的经济损失越来越大，美国及其盟友加快了对乌的数十亿美元援助，同时也在寻找包括俄罗斯在内的其他来源。
+对此，郭先生认为，不论是五年前，还是现在，王岐山依然是对美国、中国，甚至是习近平本人而言的最大威胁。
 
-美国财政部长耶伦周四表示，向俄罗斯本身寻求重建乌克兰的资金，”是我们应该追求的事情”。
 
-乌克兰总统沃洛季米尔·泽连斯基在对国际货币基金组织和世界银行领导人的视频讲话中说，”需要对战争征收特别税”。他呼吁用俄罗斯被制裁的财产和中央银行储备的收益来补偿乌克兰的损失。
 
-随着战争的人力和财政成本的增加，使用被冻结的俄罗斯中央银行资金来重建乌克兰的呼声也越来越高。此外，向乌克兰提供援助的政府必须应对本国的通胀上升。
 
-然而，清算俄罗斯被冻结的中央银行资产以及其他被制裁的财产并不容易，可能需要美国国会行动。
 
-（秘翻新闻 大树 编译报道）
 
-发布:星星
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
+文字版原文：[针对王岐山的爆料仍未完结](https://gnews.org/zh-hans/2387623/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

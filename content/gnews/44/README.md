@@ -2,30 +2,27 @@
 ---
 
 
-## 国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390405/)
+## 美国宣布对俄实施新制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390413/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022年日本外交藍皮書出爐：世界已正式進入中美競爭時代.jpg)
+作者：华盛顿DC农场 – 自由信仰
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+4月20日，美国宣布对数十名俄罗斯个人和实体实施新的制裁措施，其中包括俄罗斯商业银行Transkapitalbank、和世界第三大加密货币矿业公司BitRiver。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-28.png)
+此外，布林肯国务卿还在声明中表示，美国国务院正在对俄罗斯和白俄罗斯的600多人实施签证限制，以惩罚其侵犯人权的行为。他还表示，美国将使用一切工具，向侵犯人权和违反国际人道主义法的行为问责。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+参考链接：
+
+- [New U.S. sanctions imposed for Russian bank, oligarchs, crypto miner BitRiver](https://www.reuters.com/world/europe/us-imposes-new-russia-related-sanctions-2022-04-20/)
 
 
-日本外相林芳正在4月22日的内阁会议上正式公布2022年版《外交蓝皮书》（以下简称蓝皮书）的内容。蓝皮书首次声称，随着美国的国力相对下降，世界“已经进入中美竞争时代”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-蓝皮书认为，“在之前的时代，美国凭藉压倒性的政治、经济、军事力发挥主导能力，确保国际社会的稳定与繁荣。”，但“（随着）中国等新兴国家存在感变强，（现在）已经进入中美竞争、国家间竞争的时代”。
-
-针对中共频密的军事活动问题，蓝皮书将其定位为“包括日本在内的地区及国际社会在安全方面的强烈关切”。蓝皮书指出，中共与俄罗斯仍然维持紧密关系，并且，中共在日本周边的军事活动正在扩大并变得活跃，成为日本安全保障方面上的强烈关切事项。
-
-蓝皮书强调，冷战后的“唯一的超级大国”美国的国力则相对下降，而日本需要“进一步强化日美同盟的威慑力和应对能力，确保日本的和平与安全”。
-
-來源｜[NHK](https://www3.nhk.or.jp/nhkworld/en/news/20220422_18/)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+总编：雪梨
+编辑：雪梨/熊嘟嘟
+审核：飞虹
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

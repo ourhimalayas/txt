@@ -2,29 +2,43 @@
 ---
 
 
-## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
+## 有声|美、澳、日、新重提印太风险
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390910/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据相关媒体4月20日报道，在美国、澳大利亚、日本和新西兰19日于夏威夷召开的会议上，出于对所罗门群岛与中共签署双边安全合作协议的担忧，美国提出将与太平洋岛国建立更加密切的合作伙伴关系，用以维护印太地区的安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-21-at-11.23.43-AM.png)
+美国白宫国安会发言人华森在一份声明中表示，联邦政府决心增强在太平洋地区的参与度，以期与该地区岛国共同应对包括海上安全、经济发展、气候变迁及中共病毒疫情等方面的挑战。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+报道也提及，近日，中共外交部长王毅与索罗门群岛外交部长马内列正式签署了中索政府间的双边安全合作框架协议。然而，这份协议加重了美、日、澳、新四国对印太地区严重风险的担忧。
+
+对此，澳大利亚外交部长潘恩表示，澳洲政府对中索安全协议的签订深感失望，同时，澳方希望可以进一步厘清协议的具体内容。潘恩强调，各国都在担心该协议的制定过程缺乏透明度，且这份协议或将破坏相关区域的和平与稳定。
 
 
-世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
 
-马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
 
-目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
 
-国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
 
-來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
 
-* * *
+文字版原文：[美、澳、日、新重提印太风险](https://gnews.org/zh-hans/2387630/)
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

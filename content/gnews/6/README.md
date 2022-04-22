@@ -2,25 +2,20 @@
 ---
 
 
-## 俄罗斯军事研究院在最大的化工厂被吞没后几小时神秘起火
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390966/)
+## 中日财经爆┃物价上涨，日本拟向低收户每孩子发5万日元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391102/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-150.jpg)
-图片来源： www.sohu.com
+撰稿：东京樱花团/上善若水
 
-零对冲网4月21日报道，据俄罗斯国立电视台塔斯社报告，周四位于特维尔市的俄罗斯国防部研究院突发大火，目前已造成7人死亡，消防人员下午一直在努力灭火。
+在4月20日获悉了日本政府4月内制定的物价上涨对策草案的内容。日本政府将探讨以低收入育儿家庭为对象，向每个孩子支付5万日元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-469.jpg)（图片来源于本文链接）
+考虑的补贴对象为领取儿童扶养津贴的单亲家庭和免征居民税的双亲家庭。这项草案将与自民党和公明党两党协商后正式确定。还将向2022年度新免征居民税的家庭发放10万日元。草案内还包括对中小企业的扶持政策。关于对受新冠疫情影响而销售额减少的企业实际提供无息无担保融资的政策，将把期限延长3个月，持续到9月底。
 
-目前起火的原因或者还不清楚，或者不被俄罗斯所披露，但是人们提出了很多问题，这是发生在俄罗斯在特维尔的最大的化工厂大火后的几小时，已有150名化工厂工人紧急撤离该厂。后者已吞灭了位于该化工厂的天空防御部队的秘密研发中心。
+信息来源：[物价上涨，日本拟向低收户每个孩子发5万日元](https://cn.nikkei.com/politicsaeconomy/politicsasociety/48329-2022-04-21-10-22-45.html)
 
-英国媒体报道最新的秘密大火是这一天的第二次大火。
-
-西方主流媒体安全分析师们正在分析同一天出现两次大火是否是主动破坏。
-
-俄罗斯媒体报道了发生在特维尔的俄罗斯国防部研究院的神秘大火，该地点位于莫斯科西北部110公里，那里很可能有爆炸。
-
-#### 新闻来源： [Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

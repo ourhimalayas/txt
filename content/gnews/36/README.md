@@ -2,50 +2,47 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.22M）－摩德纳第三针轻轻地把人送走
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390467/)
+## 埃隆-马斯克“愿意用个人财产投资多达150亿美元”，将Twitter私有化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2390539/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+据《每日邮报》转载路透社文章，2022年4月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4296.png)图片源自TED
+据称，埃隆-马斯克正计划用自己的150亿美元现金将Twitter私有化，并将在10天内发起第二次收购要约。
 
-整理/编辑：gardeniahu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-59.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+据《纽约邮报》报道，这位亿万富翁是Twitter的第二大股东，拥有9.1%的股份，他已经委托摩根士丹利筹集100亿美元的债务，并将在一周半内提出下一个收购要约。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+据《纽约邮报》报道，这位目前拥有2,730亿美元的世界首富的特斯拉首席执行官还希望用他现有的9.2%的公司股份进行借贷，这可能意味着他要多出几十亿美元来进行收购。
 
-帖子原文：
+在下午的交易中，该社交媒体应用程序的股价下跌了近5%，至46.16美元，与马斯克上周对该平台的首次出价54.30美元相比，有很大折扣。
 
-博主：bym21\_
+该公司在2021年2月创下的最高股价为77.06美元。
 
-摩德纳第三针真是轻轻地把人送走
+Twitter不愿对这一威胁发表评论，而作为该公司第二大股东的马斯克也没有回应评论请求。
 
-想着五六月要去127蛋巡，所以还是抓紧打了加强针，我们区的接种会场第三针都是摩德纳，没得选就直接去打了。
+这家社交媒体公司的董事会上周批准了一项“毒丸计划”防御措施，以防止这家硅谷巨头对该公司提出430亿美元的收购要约。
 
-下午三点多打的，当时倒是没什么感觉，回家以后眯了一小会几就整晚没睡着，浑身发热，手臂痛得不能侧躺。早上五点多感觉头都有点昏昏沉沉，起来一量体温38度。
+根据该计划，如果有人在未经董事会同意的情况下收购公司15%的普通股，其他股东可以以折扣价买入额外的股票，从而稀释股价。该计划的有效期至2023年4月14日。
 
-吃了药很快体温就降下去了，不过还是36.7度这样正常体温范围内偏高的那边。另外手臂痛了两天，连着三天每天都很困，甚至等不到金道英发泡泡跟我说晚安。
+根据董事会的声明，“权利计划将减少任何实体、个人或团体在未向所有股东支付适当控制权溢价的情况下，通过公开市场积累获得推特控制权的可能性。”
 
-话说回来我打辉瑞第二针的时候也发烧到38度了，可能本来就是对疫苗反应比较大的体质…
+马斯克对该计划叫苦不迭，暗示此举可能会使他们在证券交易委员会那里遇到麻烦。
 
-#摩德纳第三针  #日本生活  #日本疫苗
+“如果目前的推特董事会采取违背股东利益的行动，他们将违反他们的信托责任，”他在推特上说。
 
-发布于04.20
+推特董事会由一些科技界的精英组成，包括商业软件公司Salesforce的联合首席执行官Bret Taylor，万事达卡的老板Mimi Alemayehou，斯坦福大学教授李飞飞，1st Dibs首席执行官David Rosenblatt等人。
 
-精选评论
+文章观点仅代表作者个人，与Gnews平台无关
 
-呦呵yoho喂回复:第一二针打辉瑞都没什么事的我第三针的摩德纳真的要给我送走呢，一度烧到39度以上。烧了一宿。我感觉得了也不过如此。
+文章来源:[**https://www.dailymail.co.uk/news/article-10732693/Elon-Musk-willing-invest-15-billion-money-Twitter-private.html**](https://www.dailymail.co.uk/news/article-10732693/Elon-Musk-willing-invest-15-billion-money-Twitter-private.html)
 
-布丁果冻回复：我也是，烧到39.6度感觉快死了，辉瑞也是38.6度。快把我送走了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2756.png)图片来源：小红书
-素材来源：[摩德纳第三针轻轻地把人送走](https://www.xiaohongshu.com/discovery/item/625f6a42000000000102d10c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650611003)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – HotPixel
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
