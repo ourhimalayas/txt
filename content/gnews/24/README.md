@@ -2,35 +2,21 @@
 ---
 
 
-## 加拿大人参与拯救乌克兰数字历史的全球努力
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394092/)
+## 国防专家吁加拿大政府要担心导弹威胁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394220/)
 
-##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2802.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
+作者：加拿大温哥华扬帆农场-重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2811.png)图片来源：TNH
+来自《真北方》TRUE NORTH网站4月19日的消息称，曼尼托巴大学国防与安全研究中心副主任詹姆斯·弗格森4月4日告诉下议院公共安全委员会，来自中共国和俄罗斯的虚假信息构成的威胁被过分强调了，我认为我们在这件事上制造了太多的恐慌，政府试图审查感知到的虚假信息肯定会适得其反。
 
+弗格森表示，国防优先事项应该集中在遏制第一打击核能力和加强现有系统，如NORAD。已经存在了十多年的北美防空司令部的能力有重要的空白和漏洞。因此加拿大应该能够检测这些威胁,提高区分、跟踪和提示拦截得能力。
 
-据CTV NEWS 4月19日报道，加拿大人参与了一项保护乌克兰文化遗产数字内容和数据的全球任务。俄罗斯不分青红皂白的轰炸对乌克兰的数字内容和数据构成了威胁。这个名为“拯救乌克兰文化遗产在线”(save Ukrainian Cultural Heritage Online)的组织拥有1300多名专业人员，包括图书管理员、档案管理员、研究人员和程序员，他们自愿识别并存档乌克兰重要网站，并把这些网站的数据存放在大学、图书馆、博物馆和画廊的服务器上。到目前为止，该组织已经从3500多个网站保存了超过30tb的扫描文件、艺术品和其他材料。
+包括西蒙弗雷泽大学助理教授艾哈迈德·阿尔·拉维博士在内的其他人则持不同观点，称中共国和俄罗斯的虚假信息运动对加拿大构成了威胁。在他看来，这种信息操作策略背后的主要原因是播下分裂的种子，制造紧张，混淆人们的真假。
 
-阿尔伯塔大学的加拿大乌克兰研究所(Canadian Institute of Ukraine Studies)也参与了一个名为“档案救援队”(Archives Rescue Team)的平行项目，该项目正在帮助支持尚未发表的研究。
+新闻链接：[https://tnc.news/2022/04/19/defence-expert-tells-government-to-worry-about-missiles-not-disinformation/](https://tnc.news/2022/04/19/defence-expert-tells-government-to-worry-about-missiles-not-disinformation/)
 
-原文链接：[https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
+采编：文莱， 编辑发稿：硫酸羟氯喹64
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【重生之鹰】
-素材/采编 -【青青】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

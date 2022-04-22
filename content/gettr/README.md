@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 11:48 PM (UTC)`
+
+【Ukraine Rescue】 04/22/2022 The LED billboard that NFSC has just set up at the Medyka Rescue Center is deliberately vandalized by someone who cut the cable. Moreover, someone is attacking our volunteers with filthy language and preventing French volunteer from taking pictures with our billboard and even tried to attack Little Sarah. The police have now stepped in to investigate. The purpose and supporters behind these violent acts of vandalism will soon be revealed.<br/><br/>【乌克兰救援】 04/22/2022 新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆。不仅如此，有人还阻止法国志愿者在广告牌下拍照并污言秽语攻击他们，甚至试图对小Sara动手。目前警方已经介入调查，这些暴力破坏行为背后的目的和支持者究竟是谁，相信很快就会水落石出。<br/>
+![img](https://media.gettr.com/group22/getter/2022/04/22/23/ff372759-392c-0fc0-f633-1800a9f004cb/out.jpg)
+
+---
+
+`@miles 4/22/2022 11:44 PM (UTC)`
+
+2022.04.22《The Fringe》 Episode 175<br/>中文同传：https://gettr.com/streaming/p16op0823dc
+![img](https://media.gettr.com/group44/origin/2022/04/22/23/39e12762-42c9-548a-6f24-a4202306b4c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/22/2022 11:40 PM (UTC)`
 
 【Ukraine Rescue】 04/21/2022 A volunteer from France applauds the idea of eliminating the CCP. He says: We should help the Chinese people to fight against the dictatorship of the CCP, maybe having coffee with you is a way to show our support!<br/><br/>【乌克兰救援】 04/21/2022 一位来自法国的志愿者为我们铲除中共的理念鼓掌叫好。他表示：所有人都应当帮助中国人民来反对中共的独裁统治，也许和你们共饮咖啡是一种表示支持的方式！<br/>
@@ -139,20 +153,6 @@
 `@miles 4/22/2022 2:04 PM (UTC)`
 
 04/22/2022 on the 4th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 8 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Cambodia🇰🇭<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月22号，《铁锁梦》MV在全球上线第四天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>8国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，柬埔寨🇰🇭的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2392030/
-
----
-
-`@miles 4/22/2022 12:56 PM (UTC)`
-
-2022年4月22日 文贵大直播：墙内封城疫苗灾难核酸检测最新信息；美人权斗士佩罗西访台与习直接交锋
-![img](https://media.gettr.com/group24/origin/2022/04/22/12/06919127-5156-3a59-a8f6-1b2a628f9524/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 12:26 PM (UTC)`
-
-新中国联邦和法治基金收到来自乌克兰驻新西兰\新加坡\文莱大使馆的感谢信<br/>The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand<br/>#ukrainerescue  #nfsc新中国联邦 #乌克兰救援nfsc
-![img](https://media.gettr.com/group14/origin/2022/04/22/12/795c66d7-c3ff-deef-84bb-12209586723a/out.jpg)
 
 ---
 

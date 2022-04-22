@@ -2,11 +2,24 @@
 ---
 
 
-## 4/22/2022 七哥盖特：港币和香港的经济都完蛋了！除非共产党被消灭，香港不会发生任何的好事！PAG未来一定破产
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2394299/)
+## 视频|砸，砸出人的尊严
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2394549/)
 
-秘密翻译组-北美组
+【文案编辑】新世界的一员 
+【文案审核】爱米粒 
+【制作团队】大直播短视频组 
+【视频剪辑】不疑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】 [https://discord.com/channels/895274776606699583/948790187322908692/966634255826448444](https://discord.com/channels/895274776606699583/948790187322908692/966634255826448444)
 
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,51 +2,35 @@
 ---
 
 
-## 世界银行：战争给乌克兰造成重大损失
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2393749/)
+## 加拿大人参与拯救乌克兰数字历史的全球努力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394092/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2802.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
 
+据CTV NEWS 4月19日报道，加拿大人参与了一项保护乌克兰文化遗产数字内容和数据的全球任务。俄罗斯不分青红皂白的轰炸对乌克兰的数字内容和数据构成了威胁。这个名为“拯救乌克兰文化遗产在线”(save Ukrainian Cultural Heritage Online)的组织拥有1300多名专业人员，包括图书管理员、档案管理员、研究人员和程序员，他们自愿识别并存档乌克兰重要网站，并把这些网站的数据存放在大学、图书馆、博物馆和画廊的服务器上。到目前为止，该组织已经从3500多个网站保存了超过30tb的扫描文件、艺术品和其他材料。
 
-据[福克斯商业](https://www.foxbusiness.com/economy/ukraine-physical-damage-russia-invasion-billions-world-bank-estimates)4月22日报道，世界银行行长大卫·马尔帕斯 (David Malpass) 周四表示，俄罗斯的入侵对乌克兰建筑和基础设施造成的物质损失目前已达到约600亿美元。
+阿尔伯塔大学的加拿大乌克兰研究所(Canadian Institute of Ukraine Studies)也参与了一个名为“档案救援队”(Archives Rescue Team)的平行项目，该项目正在帮助支持尚未发表的研究。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-50.jpg)
+原文链接：[https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
-乌克兰总理Denys Shmyhal说，乌克兰的国内生产总值可能下降30%至50%，迄今为止，造成的直接和间接损失已达5600亿美元。
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-乌克兰战争和通货膨胀给世界经济蒙上阴影，国际货币基金组织IMF已下调全球增长预期。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-联合国（U.N.）人权负责人在周五的一份声明中说，俄罗斯武装部队不分青红皂白地炮击和轰炸居民区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

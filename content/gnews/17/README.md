@@ -2,36 +2,27 @@
 ---
 
 
-## 加拿大媒体报道法治基金乌克兰救援行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2394230/)
+## 强硬清零误春耕 缺种缺肥陷困境 中国恐现粮荒？
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2394479/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506658531.png)图片来源：多伦多太阳报
+# **撰稿：日本东京方舟农场 胖小哥**
 
+资料照：新冠疫情中的北京新发地农产品批发市场。（2020年9月6日）
 
-据《多伦多太阳报》4月19日报道，俄乌战争已导致数百万乌克兰人被迫逃离家园，许多人首先抵达波兰边境小镇梅迪卡。因此，众多非政府组织和宗教团体都在该地搭建临时帐篷为难民提供服务。其中，穿黄色服务背心的[法治基金]志愿者随处可见，引人注目。
+中国各省进入春耕播种期，但各地动辄封城的强硬清零措施已对农耕工作带来挑战。其中，吉林、辽宁及黑龙江东北三省是中国玉米、大豆和水稻的主要产区，疫情较为严峻的吉林省尤其面临务农人力不足、种子短缺和肥料涨价等挑战。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-46.jpg)（图片取自美国之音）
+中国国家统计局去年12月初统计显示，东北三省2021全年产近1.5万吨粮食，占全中国产量两成以上。因此，东北地区的春耕若受到耽误将严重冲击到中国今年的粮安。
 
-报道称，在所有临时建立的服务设施中，由[法治基金]的华裔美国人所经营的帐篷是其中最大和最有组织的一个。其中名为Feather的自愿者是一名来自加拿大多伦多大学，今年才19岁的大学生。
+上海疫情严峻之际，中国国家主席习近平4月10日就特别前往一家位于海南三亚的种子实验室考察，他特别强调“种源自主可控”对粮安的重要性。他说：“只有用自己的手攥紧中国种子，才能端稳中国饭碗，才能实现粮食安全。”
 
-Feather在采访中对媒体表示：能够帮助到一位既不会说英语也不会说波兰语的乌克兰老妇人与她在多伦多的儿子最终团聚，是让她和所有法治基金救援团队成员都感到非常自豪的一件事。
+中国农村农业部统计显示，中国今年第一季农产品进口额达528亿美元，同比增长6.2%；2021年的农产品进口额则达2,198.2亿美元，年增28.6%。
 
-原文链接：[https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
+参考链接：
+[强硬清零误春耕 缺种缺肥陷困境 中国恐现粮荒？ (voachinese.com)](https://www.voachinese.com/a/are-china-s-strict-zero-covid-restrictions-risking-food-shortages-20220418/6534401.html)
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【文所未闻】
-素材/采编 -【坐看云起时】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+总编： 老孙
+校对发布：Linda
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

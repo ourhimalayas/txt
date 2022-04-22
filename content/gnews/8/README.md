@@ -2,24 +2,28 @@
 ---
 
 
-## 视频|砸，砸出人的尊严
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2394549/)
+## 中共实施极端防疫措施 强制上海部分社区集体搬迁隔离
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2394594/)
 
-【文案编辑】新世界的一员 
-【文案审核】爱米粒 
-【制作团队】大直播短视频组 
-【视频剪辑】不疑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【新闻来源】 [https://discord.com/channels/895274776606699583/948790187322908692/966634255826448444](https://discord.com/channels/895274776606699583/948790187322908692/966634255826448444)
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-发稿：Daxia
+近期，中共以疫情扩散为由，在上海实施极端防疫措施，强制部分社区集体搬迁隔离。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-49.jpg)（图片来源：GETTY IMAGES）
+据《BBC》报导，中共声称为减少病毒传播风险实现所谓的“清零”政策，强制上海部分社区集体搬迁隔离。日前，上海平望街道为配合“清零”政策，发出通知要求居民集体搬迁到160公里以外邻近的浙江省隔离一周。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+报导称，不久前，上海政府在浦东北蔡镇也实施了搬迁措施，强迫至少1000名居民连夜从他们的家中迁出搬到临时住所，并要求他们将家门打开，让防疫人员进入屋内进行消毒。
+
+报导指出，自从中共国务院副总理孙春兰访问当地城镇后，当地政府便有意开始采取集体搬迁大量人口的极端手段来控制疫情。
+
+据悉，不仅是上海实施迁移城镇全体居民的极端防疫措施，在河北省有十几个城镇约2万人也遭受了如此待遇。今年早些时候，杭州附近的两个小区大约9000名居民同样也被强迫转移到了所谓的“集中隔离场所”。
+
+参考链接：
+[https://www.bbc.com/zhongwen/simp/chinese-news-61173288](https://www.bbc.com/zhongwen/simp/chinese-news-61173288)
+
+编辑：海星
+总编：老孙
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
