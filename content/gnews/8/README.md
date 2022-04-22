@@ -2,48 +2,54 @@
 ---
 
 
-## 口罩与保护公众免受COVID的影响总是关系不大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2388766/)
+## COVID-19疫苗副作用集萃（2022.4.22A）&#8211;打了新冠第三针，大姨妈来了不走！
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2388910/)
 
-**据《www.lifesitenews.com》作者：AnneMarie Schieber，2022年4月20日报道：**
-**起初，他们试图用科学作为在公共交通上实行口罩规定的依据，当科学不成立时，他们转而采取全面的独裁主义。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/acook-0dcis-1.jpg)
-**剖析**
-(LifeSiteNews) – 随着槌子的敲击，联邦法院法官推翻了拜登政府的交通口罩任务，该任务将延长两周至5月。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-美国地区法官凯瑟琳-金博尔-米泽尔在她4月18日的裁决中写道，“戴上口罩并不能净化什么，最多它可以捕获病毒飞沫。但它既没有使戴口罩的人‘消毒’，也没有使运输工具’消毒’。”
+#### 整理/编辑: 机器猫
 
-米泽尔说，疾病控制和预防中心（CDC）超越了《公共卫生服务法》规定的权限，该法允许采取“检查、熏蒸、消毒、卫生、消灭害虫、销毁……和其他措施”来保护公众。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-58.png)图片来源：雅典娜设计组(614)
 
-判决后，多家航空公司立即宣布他们将不再要求在飞机上戴口罩。Uber和Lyft虽然是私营公司，但也紧随其后，表示他们将不再要求用户和司机在乘车时戴口罩。
-司法部周二宣布，它将对联邦法院的裁决提出上诉。
 
-**突破法律限制**
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-自从乔-拜登总统上任后不久就通过行政命令强制执行口罩任务以来，航空公司、其员工和乘客都很愤怒。口罩是4000多起不守规矩的乘客投诉的一个因素，运输安全局对不遵守规定的乘客处以60多万美元的罚款。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-该命令还催生了几起诉讼，包括航空公司飞行员、21个州的诉讼，以及健康保护自由基金向米泽尔法官提出的诉讼。
+**帖子原文：**
 
-周一的裁决是公民自由的胜利，医学博士查德-萨维奇说，他是YourChoice Direct Care的创始人，DPC Action的主席，Heartland Institute的政策顾问，以及Docs 4 Patient Care Foundation的政策研究员。
+原文作者：33
 
-萨维奇说：“然而，可悲的是，我们的公共卫生当局一再需要被法院约束，他们对我们的自由的侵犯被那些滥用权力的人放纵而不承担后果。我们的政府不应该处于不断测试他们可以侵犯多少自由以及侵犯多久的界限的地位。我们需要负责任、有节制的治理，尊重我们的建国原则”。
+打了新冠疫苗第三针，大姨妈来了不走！！！
 
-公民言论自由组织（CFFS）是一个公民自由行动组织，自成立以来一直在与旅行限制作斗争。
+打完第三针，第一次来大姨妈，7天了，本来感觉都结束了，都换了护垫，中午突然流血，开始痛经，腰疼肚子也疼，又开始来姨妈了。#大姨妈#新冠疫苗#第三针
 
-CFFS执行董事帕特里克-伍德在一份新闻稿中说：“起初，他们试图用科学作为在公共交通工具上设置这些口罩的依据，当科学不成立时，他们转而采取全面的独裁主义。CDC承认布质口罩对冠状病毒毫无用处，但他们继续公然滥用权力，强迫人们遵守规定。”
+#大姨妈#第三针#新冠疫苗
 
-***文章观点仅代表作者个人，与Gnews平台无关。***
+发布于04-15
 
-**原文连接：**[https://www.lifesitenews.com/news/masks-have-always-had-very-little-to-do-with-protecting-the-public-from-covid/](https://www.lifesitenews.com/news/masks-have-always-had-very-little-to-do-with-protecting-the-public-from-covid/)
+精选评论：
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – HotPixel
-编辑：洛杉矶盘古农场 –傻小子
-发布: 洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+小红薯5FC16A89 回复：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+我也是 来了整整一个月才走呢！
+
+33 回复：
+
+姐妹们，就是说，有什么办法吗？
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-58.png)图片来源：小红书
+
+
+素材来源：[打了新冠第三针，大姨妈来了不走！！！](https://www.xiaohongshu.com/discovery/item/625963fa000000002103b61b?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650520243)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

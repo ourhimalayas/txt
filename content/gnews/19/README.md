@@ -2,22 +2,25 @@
 ---
 
 
-## 樱花时政┃俄罗斯国防研究机构发生大型致命火灾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388405/)
+## 视频|疫情乱像
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2388675/)
 
-撰稿：东京樱花团/加一颗稻草
+【文案编辑】@ Miyali7768(文玉） 
+【文案线索】菜园子112~尕虎 
+【文案审核】爱米粒 
+【制作团队】大直播短视频组 
+【视频剪辑】不疑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】 [https://discord.com/channels/895274776606699583/948790187322908692/966265351606251560](https://discord.com/channels/895274776606699583/948790187322908692/966265351606251560)
 
-2022年4月21日星期四晚上10:15，俄罗斯媒体报道，俄罗斯国防部位于特维尔市的研究设施在神秘情况下发生大火。该地点位于莫斯科西北约 110 英里处。鉴于RT报道有两人死亡和至少20人受伤，并且航拍画面显示该地区出现巨大的火焰和浓烟，因此可能发生了爆炸。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-133.png)图片来源于本文链接
-紧急救援人员正在现场。据说大楼的上层属于政府的中央航空航天防御部队研究与发展研究所。“火灾发生在行政大楼二楼的一个房间里。”俄罗斯媒体报道说：“根据初步数据，大火面积达数千平方米，导致屋顶部分倒塌。”有报道称俄罗斯各地的森林大火有所增加，但目前尚不清楚或不清楚周四大火背后的原因。
+发稿：Daxia
 
-消息来源：
-
-[Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
