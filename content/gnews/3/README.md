@@ -2,38 +2,37 @@
 ---
 
 
-## 联合国秘书长将于周二访问莫斯科会见普京
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2393796/)
+## 有声|HPay、喜币、躺平币是未来金融界的信仰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393936/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月20日，郭文贵先生在盖特视频中谈到，H Pay未来将代替SWIFT，成为最安全的、数字货币支付方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-51.png)
+郭先生将法币比喻为宗教，SWIFT是被政府、西方利益集团控制的系统；而数字货币是信仰，喜币、躺平币、H Pay因为其去中心化的、可被质疑、可被挑战的性质，值得信赖。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1163.jpg)
 
 
-图片来源：路透社
+文字版原文：[HPay、喜币、躺平币是未来金融界的信仰](https://gnews.org/zh-hans/2390415/)
 
-路透4月22日 – 联合国秘书长发言人表示，联合国秘书长安东尼奥·古特雷斯将于周二访问莫斯科，会见普京。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-古特雷斯还将与俄罗斯外交部长谢尔盖·拉夫罗夫举行工作会议并共进午餐，古特雷斯的副发言人埃里·金科周五在纽约举行的新闻发布会上说。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-金科说：“他希望谈论可以做些什么来紧急给乌克兰带来和平，秘书长办公室还在与乌克兰政府合作，安排和准备访问俄罗斯南部邻国。”
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-古特雷斯周二要求普京在莫斯科接见他，并要求乌克兰总统泽连斯基在基辅接见他，这封信分别交给各自国家的常驻联合国代表团。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-古特雷斯周二还呼吁从周四开始在乌克兰的战斗中进行为期四天的东正教复活节人道主义暂停，以允许平民从冲突地区安全通行，并将人道主义援助运送到受灾严重的地区。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-莫斯科对乌克兰的入侵是自 1945 年以来对欧洲国家的最大袭击，造成数千人死亡或受伤。古特雷斯说，今天乌克兰有超过 1200 万人需要人道主义援助。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-自从启动所谓的乌克兰非军事化特别行动以来，俄罗斯已将城市轰炸成废墟，在其部队撤离后，在城镇中发现了数百具平民尸体。它否认针对平民，并在没有证据的情况下表示，暴行的迹象已经上演。
-
-西方国家和乌克兰指责普京无端侵略。
-
-[联合国秘书长将于周二访问莫斯科会见普京](联合国秘书长将于周二访问莫斯科会见普京)
-
-编辑发表： Shuizhuyu
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

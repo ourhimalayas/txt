@@ -2,40 +2,36 @@
 ---
 
 
-## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（2/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393563/)
+## 加拿大制裁普京家属及其政权幕僚
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393633/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-39.jpg)
-上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（1/5）](https://gnews.org/zh-hans/2393547/)
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506550841.png)图片来源：多伦多太阳报
 
-绍伊古在此之前曾报告，约有2000名乌克兰士兵固守在钢铁厂内。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-365.jpeg)图片来源：BBC新闻
+据&lt;多伦多太阳报&gt;4曰19日报道，加拿大当天公布了对俄罗斯新的制裁措施，制裁对象包括多名与俄总统普京关系密切的亲属和幕僚。
 
-驻留在拥有庞大地下掩体的该钢铁厂内的还有乌海军陆战队和与极右组织有联系的阿佐夫营。乌克兰沃洛迪米尔•泽连斯基总统赞扬在遭受俄罗斯攻势的同时，仍继续保卫马里乌波尔的士兵们。
+报道指出：被制裁的14名俄罗斯人，除了普京两个成年女儿之外，大部分都是其最信任的近臣以及入侵乌克兰的同谋。欧美各国此前就以“帮助普京藏匿个人资产”为由，对以上人员实施了制裁。
 
-要求平民和伤兵逃离–乌克兰副总理
+加拿大政府对此表示，将不会放弃追究普京政权的高官们在俄罗斯入侵乌克兰战争中的共犯罪责。
 
-在普京下令封锁阿佐夫斯塔利钢铁厂后，乌克兰副总理伊利娜•韦列舒克在社交媒体上表示，钢铁厂“约有1000名平民和500名伤兵。必须在今天之内让所有人撤离阿佐夫斯塔利”，呼吁俄方立即承诺设置避难用的人道主义走廊。
+原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-4月20日，驻守在钢铁厂内的乌海军陆战队司令官对BBC说，受困伤兵在无医药品的状态下“（伤口）不断腐坏”，有必要让部下们撤离出国。
-
-在乌克兰采访的BBC记者乔•英伍德指出，俄政府似乎决定不是完全靠自己实力压制攻下马里乌波尔，而是让余下的乌克兰守军和市民陷入饥饿状态，迫使他们投降。
-
-下一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（3/5）](https://gnews.org/zh-hans/2393591/)
-
-参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
-
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【自由法兰西】
+素材/采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-素材：宫米叶
-审核：Bryan
-校对：zicoround
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,39 @@
 ---
 
 
-## 下周将在德国举行的有关乌克兰的会谈
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2393734/)
+## 有声|美国宣布对俄实施新制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393881/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月20日，美国宣布对数十名俄罗斯个人和实体实施新的制裁措施，其中包括俄罗斯商业银行Transkapitalbank、和世界第三大加密货币矿业公司BitRiver。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-28.png)
+此外，布林肯国务卿还在声明中表示，美国国务院正在对俄罗斯和白俄罗斯的600多人实施签证限制，以惩罚其侵犯人权的行为。他还表示，美国将使用一切工具，向侵犯人权和违反国际人道主义法的行为问责。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/X3DTCIF76FK3ZPYOEXP6HB6HWI.jpg)
 
 
-图片来源：路透社
 
-华盛顿，4 月 22 日（路透社）五角大楼周五表示，美国军方预计将有 20 多个国家参加将于下周在德国举行的以乌克兰为重点的防务会谈，会谈将部分关注基辅的长期防务需求。
 
-五角大楼发言人约翰·柯比在 4 月 26 日的会谈中似乎淡化了对宣布长期援助的预期，他说：“我们不会在这里预先设定好结局。”
+文字版原文：[美国宣布对俄实施新制裁](https://gnews.org/zh-hans/2390413/)
 
-他补充说，约有 40 个国家被邀请参加会谈，这些国家不仅是北约联盟的国家，，其中包括非北约国家。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-简评：五角大楼今天说， 将有将近40多个国家被邀请参加4月26日在德国举行的有关乌克兰的会议， 会议不会预设结局。 4月26日又是非常敏感的日子， 这一天美国的议长佩罗西要访问台湾。 这是巧合吗？这一天可能是改变世界格局的一天， 很多决定都会做出。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[下周将在德国举行的有关乌克兰的会谈](下周将在德国举行的有关乌克兰的会谈)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑发表： Shuizhuyu
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
