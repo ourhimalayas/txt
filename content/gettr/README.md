@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 12:15 AM (UTC)`
+
+https://himoney.press/foreign-investors-dump-chinese-debt-at-record-pace/
+
+---
+
 `@miles 4/21/2022 11:52 PM (UTC)`
 
 4/21/2022 Miles Guo: There is zero chance that Xi Jinping won’t invade Taiwan! The only choice left for Xi is either to bring down Taiwan’s economy or devastate Taiwan by using strategic nuclear weapons. It was the first time for the U.S. to diplomatically disregard the CCP’s furious protest against Nancy Pelosi’s plan to visit Taiwan. The CCP will fight the US to the end.<br/><br/>4/21/2022 文贵直播：习不打台湾的可能性已经没有了！习只有两个选择，经济上打垮台湾或者用战略核武器摧毁台湾；美方第一次明确在外交上表示不在乎中共对佩洛西计划访台的跳脚抗议，而中共将跟美国干到底<br/>
@@ -146,13 +152,6 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 
 2022.04.21早  新中国联邦 | 新闻访谈
 ![img](https://media.gettr.com/group8/origin/2022/04/21/12/5bd5e3c8-f2f3-e5c4-ae56-c69aa69d7e30/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/21/2022 12:30 PM (UTC)`
-
-2022.04.21 早 新中国联邦 | 新闻 “灭共背心”风靡救援营地；郭先生回顾419采访的始末；419“知蒋干、用蒋干”之策；针对王岐山的爆料仍未完结；郭先生再提“郭七条”的意义
-![img](https://media.gettr.com/group29/origin/2022/04/21/12/7f1cc9d1-b8af-c5a9-e170-de8180b299cf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

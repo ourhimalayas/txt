@@ -2,28 +2,53 @@
 ---
 
 
-## 外企纷纷撤出 莫斯科20万人面临失业
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388177/)
+## 土耳其在伊拉克北部发动新的地面和空中攻势
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2388188/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-49.jpg)
-莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
+据《ABCnews》 转载美联社文章，2022年4月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2685-e1650568576867.png)土耳其在伊拉克北部发动新的地面和空中攻势
+图片来源：网络
+土耳其安卡拉 — 土耳其国防部长周一表示，土耳其对伊拉克北部的库尔德武装分子发动了新的地面和空中跨界攻势，至少造成19名疑似库尔德叛乱分子死亡，至少有4名土耳其士兵受伤。
 
-由于欧美及其他地区陆续祭出制裁，拖垮了俄罗斯经济，并将其推向了外债违约的边缘，造成俄罗斯通货膨胀一路飙升，有经济学家预测，俄罗斯经济将陷入严重衰退。
+国防部长Hulusi Akar在国防部网站上发布的一段视频中说，土耳其喷气机和大炮打击了疑似库尔德工人党的目标，突击队在直升机和无人机的支持下随后通过陆地进入该地区或由直升机空运。
 
-参考链接：
-1. [Vladimir Putin’s nuclear bomber planes called ‘Bears’ fly in Ukraine striking distance](https://www.mirror.co.uk/news/world-news/vladimir-putins-nuclear-bomber-planes-26735218)
-2. [Mariupol’s defenders dig in for last stand as Russia threatens to ‘filter’ out men](https://edition.cnn.com/2022/04/18/europe/ukraine-russia-mariupol-monday-intl/index.html)
-3. [Russia begins large-scale offensive in eastern Ukraine](https://www.axios.com/ukraine-battle-donbas-eastern-ukraine-russia-df048eb8-688a-4163-a9a2-34bda799b9ab.html)
+Hulusi Akar说，喷气机成功地打击了属于库尔德工人党的庇护所、掩体、洞穴、隧道、弹药库和总部。该组织在伊拉克北部设有基地，并利用该领土对土耳其进行攻击。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+该部说，在这次进攻中，至少有19名武装分子被打死，4名土耳其军人受伤。库尔德武装组织没有立即对这次入侵发表评论，国防部的声明也无法得到独立核实。
 
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+过去几十年来，土耳其对库尔德工人党进行了多次跨境空中和地面行动。最新的攻势被命名为“爪锁行动”，其中心是伊拉克北部的梅蒂纳、扎普和阿瓦辛-巴桑地区。
+
+没有关于参与最新入侵行动的部队和喷气机数量的信息。
+
+Hulusi Akar在第二段视频中说：“我们英勇的突击队员和栗色贝雷帽–在攻击直升机、无人机、武装无人机的支持下–从陆地和空中抵达现场，并捕获了确定的目标。许多恐怖分子被消灭了。”
+
+他说：“在这一点上，我们已经达到了，所有计划中的目标都已被占领。”
+
+国防部说，新的攻势是在确定武装分子正在重新集结并准备进行“大规模攻击”后发起的。
+
+该部补充说，这次进攻是与土耳其的“朋友和盟友”协调进行的，但没有详细说明。上周，土耳其总统雷杰普-塔伊普-埃尔多安会见了伊拉克库尔德自治区的总理马斯鲁尔-巴尔扎尼，该地区控制着被攻击的地区。
+
+土耳其部长说，入侵的目标是“恐怖分子”，并显示出“最大的敏感性”，以避免对平民以及文化和宗教结构造成损害。
+
+自1984年被美国和欧盟指定为恐怖组织的库尔德工人党在土耳其东南部库尔德人占多数的地区开始叛乱以来，已有数万人被杀害。
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://abcnews.go.com/International/wireStory/turkey-launches-ground-air-offensive-northern-iraq-84139888](https://abcnews.go.com/International/wireStory/turkey-launches-ground-air-offensive-northern-iraq-84139888)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – HotPixel
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

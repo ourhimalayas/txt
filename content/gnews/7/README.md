@@ -2,203 +2,59 @@
 ---
 
 
-## 塔克·卡尔森：埃隆·马斯克冒着他所拥有的一切的风险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2388492/)
+## “宣传”是中共奴役百姓、扰乱世界的第一武器
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2388601/)
 
-Tucker Carlson (Fox News host)
-塔克·卡尔森 (福克斯新闻主持人）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220226094718776-1.jpg)网络图片
 
-Must then made it clear he has no confidence
-然后必须明确，他对目前经营
+**作者**：英喜文獾
 
-whatsoever the people who currently run Twitter
-推特的人没有任何信心
+宣传部（Propaganda department），这是独裁国家特有的洗脑民众的部门。共匪的宣传，就是无耻地说别人的坏话，不要脸地说自己的好话，睁着眼睛说瞎话，还要禁止别人说实话，听起来说的是神话，实质上全是鬼话。宣传部，更是一个万恶的部门，就像前苏联的真理部无真理一样，宣传部里也没有真相。民主国家没有宣传部，就是杜绝政府给人民洗脑，美国之音、法广等都是对外不对内，民主政府只有新闻发言人。专制政权，由于缺乏民意基础，政权没有合法性来源，为了维系统治，就必须强化宣传。所以，这些专制独裁国家无一例外地控制媒体，限制言论自由和出版自由，实行新闻垄断，封闭或过滤外部世界的信息，并控制文化教育各个领域的信息。
 
-including its pro-censorship CEO
-包括其亲审查的首席执行官
+纳粹宣传部长戈培尔有一些邪恶的有关政治宣传的言论：
+*“宣传的基本原则就是不断重复有效论点，谎言要一再传播并装扮得令人相信。”
+“宣传只有一个目标：征服群众。所有为这个目标服务的手段都是好的。”
+“让我控制媒体，我可以让任何一个民族变成一群猪。”*
+*“人民大多数比我们想象的要蒙昧得多，所以宣传的本质就是坚持简单和重复。”*
 
-quote, “if this deal doesn’t work, given that I have no confidence in management
-引用，“如果这笔交易不起作用，鉴于我对管理层没有信心
+奥威尔说，政治语言的设计就是为了让谎言听上去象真话，让谋杀听上去值得尊敬，让一阵清风变得象坚实的固体。
 
-or do I believe I can drive the necessary change in the public market
-还是我相信我可以推动公开市场的必要变革
+郭文贵先生20年11月7日直播说：共产党所信奉的哲学和所有他们所遵循的规则和手段，在过去你都看到了。社交媒体和媒体是他们的第一武器，宣传是共产党宣传机构获得国家权力的最重要手段。
 
-I would need to reconsider my position as a shareholder”
-我需要重新考虑我作为股东的地位”
+中共是搞宣传起家的，他们的祖师爷“毛賊东”就是做过国民党中央宣传部部长。1925年10月，毛从湖南到广州，不久即代行国民党中央宣传部部长职务。关于“毛賊东”这一职务问题，1936年毛泽东与斯诺谈话时说：“我到广州不久，便任国民党宣传部部长（实际上是代理部长）和中央候补委员……”毛賊东利用这一重要职务作了大量的宣传工作。中共窃政70年，从来就不讳言他们就是在搞宣传。他们控制一切信息获得和传播的方式都是为了宣传、控制舆论、心理维稳，中共国所有的官办媒体，无不扮演着这样两种角色：先代表党给人民洗脑，再代表人民感谢党。
 
-That means if Twitter’s board rejects Elon Musk’s offer
-这意味着如果推特的董事会拒绝伊隆·马斯克的提议
+2016年12月《卫报》指出纳瓦罗曾用这样的单词形容中共国政府：中共政府是一个卑鄙的、寄生的、残酷的、铁腕的、粗鲁的、无情的、不道德的、残忍的、完全极权的帝制强权，它统治着世界领先的癌症工厂、无所不能的宣传机器、地球上最大的警察国家和监狱。中共国现在有2800多个宣传部，3600多所党校，有4000多个电视台，这些都是用纳税人的钱为党派服务，特别是电视台，除了歌颂党，给偏远贫困山区洗脑，就是放抗日神剧拉广告，谈养生再卖药。
 
-they will need to explain why to their shareholders
-他们需要向股东们解释原因
+宣传，这是一个贬义词，但70年来，在中共的语境里，俨然已经褪去蛇皮，变成了如花似玉的美女。中共统治下的人民在这种颠倒是非的环境里，也早已积非成是，不以为异了。大多数中国人已经认为宣传不是什么不好的东西了，他们把“宣传”当作正面、积极的词在用，到处都有宣传，自己宣传自己，也宣传别人。中共在中国是非常“成功”的骗子，以说谎为生，谎言才是他们的政权基础，他们一直在撒谎，他们在所有事情上撒谎，70年来无不如此，谎言重复一千遍就成了真理，中共戴着漂亮的面具，硬是把它重复了一千万遍，一亿遍，很多被骗的人已经成了他们的拥护者。中国历史上愚民统治的最高境界就是中共独裁统治的这70年，民不知被愚，也不在乎被愚，出神入化，甚至开始自愚自乐。中共为了让谎言成真，它设置了中国人跳不上去的天花板，动用一切军警宪特来扼杀不同的声音，不让真相戳破他们的谎言。谎言和暴力是一对孪生兄妹，暴力杀人，谎言洗地，形影不离。
 
-They turned out a deal that would make the shareholders much richer
-他们拒绝了一项会让股东变得更富有的交易
+法国社会学家雅克·埃吕指出，从来没有得到说理机会的人们习惯了别人怎么说，自己就跟着怎么相信。在自由思想和独立判断不被允许的环境中长大的人们非常容易接受宣传，他们最怕的就是与众人、与集体、与领导不合拍或意见不同。发生这种情况时，他们会本能地感觉到“孤立”和“不安全”，觉得“可能会招惹麻烦”。宣传利用的就是他们的这种焦虑和害怕的感觉。在没有言论自由的地方，人民的思考能力逐渐萎缩，在长期单一的垄断的声音的灌输下，统治者的思想就成了全体国民的思想，统治者的目标也就成了全体国民的目标，这一现象再扩展至一切精神领域：科学、法律、历史、文学……
 
-So by doing this, Elon Musk is putting everything on the line
-因此，通过这样做，伊隆·马斯克将一切都置于危险之中
+严格讲，中共国没有什么真正的新闻，所有的所谓新闻都服务于一个目的，就是让政权更稳固，让人民更驯服。美国有10000家新闻机构，每天可以产生10000条新闻；中共国无论有多少家新闻机构，都只能产生一条新闻，连标点符号都不带有差别的。
 
-He knows how important Twitter is to the people who run our system
-他知道推特对运行我们系统（言论自由）的人有多么重要
+华盛顿新闻博物馆陈列了世界各国2001年9月12日报纸头版。人民日报的头版头条是“九运会火炬传递”，是陈列品中唯一没有用头条位置报道9/11袭击的报纸（新闻排在第五条）
 
-who run the global system
-运行全球系统（言论自由）的人
+別国的新闻媒体总是习惯于把灾难放在头条，那是因为在他们眼里生命是第一位的。中共的宣传机构却总是习惯于把领导放在头条，那是因为在它们眼里权力是第一位的。中共国的新闻只有一个目的，那就是宣传，就是统一口径，就是愚民，报喜不报忧，丧事当喜事办。中共的宣传就是愚弄人民，把人民当猪狗。然后利用网络防火墙将中国人民与世界隔绝，这样就让中国人看不到不能统一口径的媒体，建立严密的监控系统和信息牢笼，确保中国人被宣传成功。
 
-For them, censorship and propaganda is not a feature of their rule
-对他们来说，审查和宣传不是他们统治的特征
+有的人分不清新闻和宣传的意义和区别。直到有一天我二大爷告诉我：宣传工作必须丧尽天良厚颜无耻地做，拼了命地抹黑别人，不要脸地猛夸自己，黑白颠倒地描述事实，一屁两谎眼睛不能眨巴一下，放屁时必须瞅着别人，让观众以为是别人散发的臭气，必须气定神闲，如果你能做到，你就是优秀的宣传工作者，否则党不会要你……
 
-Their rule depends on censorship and propaganda
-他们的统治取决于审查和宣传
+一个中国人出生以后，就被灌输各种谎言，中共给中国人喂了太多狼奶，当他觉醒的时候，他所做的第一件事就是呕吐，把这些谎言都呕吐出来，这个过程是痛苦的，但是必须做的，不然终生都是中共的奴隶！
 
-If you are offering policies that really benefit nobody but yourself
-如果您提供的政策真正有益于除您自己之外的任何人
+“爆料革命”是由郭文贵先生于2017年发起的一场消灭中共的运动，顾名思义，就是通过公布和传播中共盗国贼家族鲜为人知的、不可告人的真实信息和资料，戳穿中共奴役百姓的卑劣行径，告诫世人中共是当今世界一切罪恶的根源；唯真不破是爆料革命运动一直坚守的准则。历史上，凡是依赖虚假宣传手段维系权力的独裁统治者都难逃覆灭的结局，作恶多端的中共也终将难逃灭亡的宿命。
 
-you have to lie about them
-你必须对他们撒谎
+*校对：仙女儿-文善|审核：文明明*
 
-and you must prevent anyone from complaining about it
-而且你必须阻止任何人抱怨它
+* * *
 
-So censorship and propaganda are at the very heart of neoliberalism
-所以审查和宣传是新自由主义的核心
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-and Elon Musk is challenging all of that directly
-伊隆·马斯克正在直接挑战所有这些
 
-He’s the richest man in the world
-他是世界上最富有的人
+编辑：【英国伦敦喜庄园编辑部】
 
-He’s not trying to make more money
-他不是想赚更多的钱
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-He’s not donating to a foreign charity
-他没有向外国慈善机构捐赠（避税）
 
-or crating a tax shelter for himself, at least in this case
-或为自己搭建避税天堂，至少在这种情况下
-
-He’s using his money to allow at least potentially Americans to speak freely
-他用他的钱让至少有可能让美国人自由的发言
-
-Is it distressing that our own democratic system isn’t working
-我们自己的民主制度行不通，这是否令人痛心？
-
-that you would need some rich guy to swoop in deus ex machina to save of free speech of United States?
-你需要一些有钱人来突如其来拯救美国的言论自由吗？
-
-Of course it is
-当然确实是
-
-Is it sad that we’re all desperate for Elon Musk to save us?
-我们都渴望伊隆·马斯克来拯救我们，这是否令人难过？
-
-Yes, it is, but who else is gonna save us?
-是的，是的，但还有谁会拯救我们？
-
-Nobody at this point
-暂时没有人
-
-So of course, corporate media
-当然，大媒体
-
-which exists to stifle the views of individual Americans hates the idea
-为了扼杀美国人个人的观点而存在的人讨厌这个想法
-
-and their first move is to mock it, watch!
-他们的第一步就是嘲笑这笔收购意向，请看！
-
-Brian Stelter (CNN Chief Media Correspondent)
-布赖恩·斯泰尔特（CNN首席媒体记者）
-
-He says he wants to pay $54.20 a share to buy up the rest of Twitter
-他说他想以每股 54.20 美元的价格收购推特的其余部分
-
-that he doesn’t have, of course 5420
-他没有那些钱，当然54.20
-
-That’s 420 that’s a code for marijuana which he very much enjoys
-那是 420 这是他非常喜欢的大麻的代码
-
-So is this all a troll or is this very real?
-那么这一切都是魔幻还是非常真实？
-
-John Berman (CNN anchor)
-约翰·伯曼（CNN 主播）
-
-it’s so bizarre
-太奇怪了
-
-Brian Stelter (CNN Chief Media Correspondent)
-布赖恩·斯泰尔特
-
-right, I mean, the 420 coding and everything
-对，我的意思是 420 代码
-
-Christine Romans (CNN Chief Business Correspondent)
-克里斯汀·罗曼斯（CNN首席商业记者）
-
-or is it just a troll?
-或者它只是一个魔幻？
-
-He’s not gonna negotiate, he says this is this is my best and final last and final offer
-他不会谈判，他说这是我最好的, 也是最后的和最后的报价
-
-I’m not going to negotiate here
-“我不打算在这里谈判”
-
-Is this just some sort of games for that?
-这只是某种游戏吗？
-
-Brian Stelter (CNN Chief Media Correspondent)
-布赖恩·斯泰尔特
-
-He’s doing this for the lost?
-他这样做是为了赔钱吗？
-
-Tucker Carlson
-塔克·卡尔森
-
-It can’t really be real
-这不可能是真的
-
-Well think it through for a second by challenging the monopoly on speech
-好好想一想，挑战言论垄断
-
-not just the United States but globally on Twitter
-不仅在美国，而且在全球范围内都在推特上
-
-on this central platform for ideas
-在这个思想的中心平台上
-
-Elon Musk is risking everything that he has
-伊隆·马斯克冒着他所拥有的一切
-
-his many businesses intersect with governments around the world
-他的许多业务与世界各地的政府有交集
-
-They’re not for this, they could crash even suggesting it
-他们不赞成这样做，他们甚至可以摧毁这笔收购
-
-**原视频链接:**[** **https://video.foxnews.com/v/6303980391001?playlist\_id=5198073478001#sp=show-clips](https://video.foxnews.com/v/6303980391001?playlist_id=5198073478001#sp=show-clips)
-
-Date:04/19/2022
-原视频标题: Tucker Carlson: Elon Musk is risking everything he has
-塔克·卡尔森：埃隆·马斯克冒着他所拥有的一切的风险
-原视频日期：2022/04/18
-原视频链接https://video.foxnews.com/v/6303980391001?playlist\_id=5198073478001#sp=show-clips
-任务编号：KE484（4282）
-视频时间段 : 1:58-4:31
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-天涯行
-审片: 洛杉矶盘古农场-银龙
-发布: 洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

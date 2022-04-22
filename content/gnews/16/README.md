@@ -2,20 +2,32 @@
 ---
 
 
-## 秘翻在线: 三级管控至三级城市-义乌封城
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2388292/)
+## 有声播报：乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388401/)
 
-#### 撰稿：西枫westca|校对：沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/04/s2204041407048187649.jpg)图片来源：www.yw.gov.cn
-据《联合新闻网》4月21日报导，中共国义乌地区21日晚开始三级防控。
+作者：Skagen
 
-因4月21日发现一例阳性感染，浙江疫情防控办马上采取最严行动，公布封控区、管控区和防范区通告。封控区实施最严防控，区域封闭、足不出户采取隔离封控，卡口实行24小时值守，仅允许保障生活物资、医疗防护车辆进出。
+英文翻译，播报：Kevin
 
-义乌地区有“世界工厂”、“全球最大批发商场之称”。海关数据显示，2020年第一季度义乌的贸易出口达534.9亿元，虽然义乌的主要产品没有核心竞争力，但在海外民众日常生活市场上还是占了很大比重。 此时封城对已经接近断裂的供应链必定造成更大影响。
+新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
 
-在全世界各国都在解封之际，中共却借疫情迅速升温为由，把封城运动从大、中城市，如上海、西安、长春、深圳开始向小城市蔓延，其目的一是“压力测试”，看民众到底能忍受多少；二是检验自身控制系统如何能更好地严控社会。 一旦台海开战，这就是控制民众的最好手段。
+今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
 
-新闻来源**：**[「世界工廠」義烏也淪陷 今宣布三級防控](https://udn.com/news/story/7333/6257660?from=udn-ch1_breaknews-1-0-news)
+奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+
+非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
+
+从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
+
+The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
+Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
+Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
+It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
+As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
+
+校对/发稿：serena
+![](https://assets.gnews.org/wp-content/uploads/2022/04/f48b7291-3cb5-4969-a2ad-9574ab25b4a7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-186.jpg)
 
 
 
