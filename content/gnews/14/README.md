@@ -2,40 +2,45 @@
 ---
 
 
-## 澳洲反对党领袖在竞选活动期间确诊新冠
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2389688/)
+## Covid通过切断中共国开发商的现金流来打击他们
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2389699/)
 
-撰稿：Gradient Boost
+据《www.bloomberg.com》，2022年4月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2720.png)4月18日，在上海的一次封锁期间，居民们参加了一轮Covid-19测试。图片来源：沈启来/布隆伯格
+- 7月房屋销售量创下债务危机加剧以来的最大跌幅
+- 建筑商需要从销售中获得现金以资助债券的支付
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/212.jpg)图片来自网络
-澳大利亚反对党领袖Anthony Albanese周四对外宣布，周四他的CCP病毒检测出现阳性。这位59 岁的中左翼工党领导称他感觉良好，并将在悉尼的家中隔离一周——而澳洲的大选目前被定在一个月后的5月21日。
 
-Albanese 表示：“在家里，我将继续履行我作为替代总理的职责，并将为所有澳大利亚人的更美好未来而奋斗。”
+中共国两年来最严重的Covid-19疫情正在延长该国的房地产低迷，使压力巨大的开发商缺乏现金，并拖累经济。
 
-这一诊断对他的政党来说是一个挫折，该政党正在寻求自 2010 年以来的首次选举胜利。最近几个月，工党在民意调查中一直领先于总理斯科特·莫里森 (Scott Morrison) 的保守政府。
+仅仅几周前，在政府承诺防止无序的崩溃之后，被打击的房地产行业的情况还很好。现在，该行业正在与包括上海在内的主要城市的封锁相抗衡，这些封锁使潜在的购房者远离。
 
-就在前一天，澳洲总理Morrison和Albanese共同参加了在布里斯班举行的首次电视转播领导人辩论。在选举活动中他们握手并合影留念。当被问及总理是否也会因为与他的密切接触而被暂时排除在竞选活动之外时，莫里森的办公室没有立即做出回应。
+周二的官方数据显示，中共国的房地产行业连续第三个季度出现收缩。3月份新房销售下降了29%，是自去年7月开始下降以来最大的一次。七个月的房价下跌让人更加痛苦。
 
-莫里森在推特上向Albanese表示慰问：“每个人对新冠病毒的体验都不一样，随着工党的竞选活动继续进行，我希望他不会出现任何严重的症状。”
+大华继显驻吉隆坡的分析师Ziv Ang说：“随着Covid的爆发，很难说是市场底部。”他之前预计房屋销售将在5月左右陷入低谷。
 
-在检测呈阳性前几个小时，Albanese 曾在悉尼南部沿海城镇 Nowra 的 Symons House 退休村与居民交谈，当时他有配戴口罩。
+这对负债累累的开发商来说是一个新的挫折，他们一直希望销售反弹，以帮助他们在融资枯竭和更多债券到期时抵御流动性危机。这也给政策制定者增加了压力，以支撑面临消费支出减弱和自大流行病早期几个月以来最高失业率的经济。
 
-澳大利亚周四报告了最近 24 小时内 54,137 例新的冠状病毒感染，同时有 50 人因为感染CCP病毒而不幸离世。
+偿还的挑战
 
-*编辑：Gradient Boost*
+中共国开发商的债券到期量将在未来几个月内攀升。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2721.png)图片来源：彭博社
+封锁正冲击着中共国最强大的一些经济带，从东部的长江三角洲地区的制造业中心到南部的珠江三角洲贸易中心。根据房地产咨询公司Tospur上周的研究，在一线城市中最大的住房市场——上海，有十几个原定上市的新房项目因大流行而被推迟了。
 
-*发稿：mgjxs*
+麦格理集团(Macquarie Group Ltd.)的中国经济主管Larry Hu说：“在封锁中，一个主要的输家是房地产行业，现在正处于最黑暗的时刻，有很多违约和整合。在国家层面，需要更多的政策支持，以使该行业转好。”
 
-新闻参考链接：[AP News](https://apnews.com/article/covid-health-sydney-campaigns-scott-morrison-304984005070cd3333aa46cce470c6fa)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+* * *
 
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+原文连接：[https://www.bloomberg.com/news/articles/2022-04-18/covid-hammers-china-s-developers-by-starving-them-of-cash-flow](https://www.bloomberg.com/news/articles/2022-04-18/covid-hammers-china-s-developers-by-starving-them-of-cash-flow)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,30 +2,18 @@
 ---
 
 
-## 中日财经爆┃日本若撤出“库页岛2号项目”，中俄将受益并推高油价！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389606/)
+## 视频|新中国联邦和法治基金乌克兰救援的最新数据
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2389656/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃日本若撤出库页岛2号项目，中俄将受益并推高油价！.png)[图片来源](https://news.yahoo.co.jp/articles/41fc12feddb53dfd02d9b0489022e9f186c38e26/images/000)
+制作：香草山视频部
 
-4月22日，日本内阁官房长官松野博一在新闻发布会上表示，英国石油巨头壳牌公司已就俄
+2022年3月5日到3月19日期间，从乌克兰到波兰克拉科夫的救援大巴累计发车39台，共计救助两千零九名难民，当中包括乌克兰的妇女、儿童以及中国同胞。截止4月19日，波兰梅蒂卡前线救援帐篷当天接待379余名难民，自救援开始总计接待难民人数超过一万三千零七十一人。
 
-罗斯远东地区库页岛沿岸的天然气业务“库页岛2号”的股权出售正在和中国企业进行谈判。
+发稿：林礼
 
-松野强调，如果日本退出日本贸易公司参与的项目，俄罗斯和第三国将获得“特许权”，最终会导致资源价格进一步上涨，使俄罗斯受益。
-
-信息源：
-[サハリン2撤退はロシア利する　松野官房長官](text=%E3%82%B5%E3%83%8)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

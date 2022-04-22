@@ -2,37 +2,20 @@
 ---
 
 
-## 魁省超万名医护人员因病毒原因离岗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
+## 视频|濒临破产 中共银行无故阻挠客户取款
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2389686/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+制作：香草山视频部
 
+4月20日，据郭文贵先生发布的一则盖特消息显示，墙内有民众近日为了购房在中共工商银行某营业部取款时，被银行以所谓的“客户无社区证明”为由，拒绝服务。对此，该民众难以理解之下不得不在网络上发布评论表示，自己的合法存款竟然无故被工商银行扣押，该银行百般阻挠储户取款自由的做饭纯属土匪黑店的作为。
+据郭先生早先多次爆料，中共国内的金融市场已经濒临破产境地，为了防止墙内储户挤兑现金，中共各大银行已经采取了严格的审查措施，用以限制客户的正常取款。近期，墙内多家银行先后发布声明表示，将下调个人线上交易限额，从而限制个人电子转账交易业务。
+而郭先生则指出，中共金融机构长期以来任意剥夺和限制人民支配财富的权利，此举无疑证实了中共作为非法流氓政权的本质。
 
-加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
+发稿：qiutian（邱甜）
 
-该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
-
-到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
-
-原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
-
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

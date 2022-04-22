@@ -2,44 +2,42 @@
 ---
 
 
-## 2022年4月20日*州新民生村镇银行拒绝兑付和查证存款
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2389401/)
+## 4/22/2022 银河快讯：支持乌克兰的自卫队飞机被印度拒绝过境；日本邮政从22日开始停止受理发往中共国的邮政特快专递
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2389420/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/米州新民生村镇银行_副本.png)
-据[历史铭记NFSC](https://twitter.com/Lsmj67890)[@Lsmj67890](https://twitter.com/Lsmj67890)于[8:57 AM · Apr 22, 2022](https://twitter.com/Lsmj67890/status/1517306634414227456)发布的推文——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421-06014227-jnn-000-1-thumb.jpeg)
+[图片来源](https://news.yahoo.co.jp/articles/8727349a898523c305ed0bf452e105cc25588479)
 
-在墙内不要说把钱转出来，现在银行连查账的机会都不给你，开始防挤兑明抢钱了！
-
-
-
-> 在墙内不要说把钱转出来，现在银行连查账的机会都不给你，开始防挤兑明抢钱了！ [pic.twitter.com/kgvXaubthW](https://t.co/kgvXaubthW)
-> — 历史铭记🌻NFSC🌻 (@Lsmj67890) [April 22, 2022](https://twitter.com/Lsmj67890/status/1517306634414227456?ref_src=twsrc%5Etfw)
+1. **支持乌克兰的自卫队飞机被印度拒绝过境**
 
 
+[据每日新闻4月21号报道，在自民党的政策委员会会议上，自民党政策研究委员会主席透露，自卫队的运输机原定被派往向乌克兰的难民运送援助物资，但被过境国印度拒绝。日本政府曾计划根据《联合国维持和平行动合作法》，将毛毯和其他物品从印度孟买的难民署储备仓库运往波兰和罗马尼亚。 政府官员将此归咎于缺乏协调。](https://news.yahoo.co.jp/articles/a100f5aec7946992b465a874ccecc172af47b07a)
 
-事情发生在2022年4月20日，由于视频拍摄角度无法查证银行全称，故只以\*州新民生村镇银行代称，中共银行系统早已崩塌，墙内的同胞们，如果有可能，请马上取出你在中共各大银行的存款，留给大家的时间不多了！
+**2. 日本邮政从22日开始停止受理发往中共国的邮政特快专递**
 
-撰稿：喜马拉雅的肉夹馍；
+[据NHK 4月21号报道，由于中共病毒（新冠病毒COVID-19）蔓延导致上海的航空交通持续受到限制，日本邮政宣布从22日开始，暂时停止接受发往中共国的EMS。另一方面，日本邮政将继续接受空运和海运的信件、明信片和重量不超过2公斤的包裹，但预计这将被大大推迟。](https://www3.nhk.or.jp/news/html/20220421/k10013592951000.html)
 
-审核：喜马拉雅的馍夹肉；
+**3. 自民党提议在五年内将国防开支控制在GDP的2%**
 
-校对：Maarago；
+[据时事通讯社4月21号报道，自民党安全研究委员会（由前国防部长小野寺五典担任会长）在21日的会议上基本批准了国家安全战略的修订提案草案。该提案保持了日本的专属防御，不仅包括导弹基地，还包括与指挥和控制有关的功能，作为攻击的目标。 该提案包括在五年内增加国防开支，目标为国内生产总值的2%。该提案草案没有使用“敌方基地攻击”一词，而是说国家应该“拥有、阻止和应对针对日本的武装攻击，包括弹道导弹攻击的反击能力”。](https://news.yahoo.co.jp/articles/fb30bbf67cfaf9a1a393b6579c1ebcd190ee2485)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**4.** **4,098用电家电力困难的企业，比去年增加6倍**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[据朝日新闻4月21号报道，由于俄罗斯入侵乌克兰导致燃料价格上涨，主要和新的电力公司都在努力避免亏本卖电。 无法找到合同伙伴的公司的“最终保证供应”案例已经上升到4,098个（截至4月15日），几乎是去年同期的7倍。这相当于日本所有企业电力合同的0.5%左右。经济产业部的电力和天然气交易监督委员会在21日的专家会议上公布了这一信息。尽管如果与大型输配电公司签订合同，就不能停止供电，因为根据《电力业务法》，配电公司有义务提供“最后手段”，但很多公司都依赖这种不寻常的情况。](https://news.yahoo.co.jp/articles/08b4d26dbb3cac915f39f9873425a1b433e1ae87)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**5. 蓄电池产量“到2030年将增加20倍”**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+[据读卖新闻4月21号报道，日本政府计划在2030年达到600吉瓦时的产能，是2020年高出20倍。政府将增加补贴，以鼓励私营部门的投资，并保持其在世界的市场份额（市场占有率），期望在采购原材料方面获得优势。 到目前为止，目标是100千兆瓦时的容量，并考虑到汽车应用。其余的450千兆瓦时设想用于海外生产。如果在日本建立一条车内使用的生产线，6千兆瓦时将需要大约1000亿日元的投资。 为了实现这一目标，简单的计算表明，总共需要10万亿日元的资金。](https://news.yahoo.co.jp/articles/2ccb3e03cbf72911e0225dbd15bde1b31d42a455)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**6. 日本大型商社丸红宣布了冻结与俄罗斯有关的新交易的政策**
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[据NHK 4月21号报道，丸红将缩减在俄罗斯从事的轮胎、橡胶制品和化学品贸易等业务。同时，丸红也有股份的SODECO-萨哈林油气开发公司正在参与俄罗斯远东萨哈林岛的石油和天然气开发项目——萨哈林1号，该公司表示将就该项目“与政府和其他相关方协商考虑采取适当措施”。](https://www3.nhk.or.jp/news/html/20220421/k10013593081000.html)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**【日本银河系农场-阿尔法星球】**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+作者：Totoro
+
+校对：帆間知津
 
  
 

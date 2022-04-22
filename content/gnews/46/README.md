@@ -2,37 +2,29 @@
 ---
 
 
-## 世界上最大的金条价值飙升
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2387279/)
+## 俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388176/)
 
-共同社4月21日报道称，由于乌克兰危机加剧了不稳定并导致商品价格暴涨，世界上最大的金条的价值已经增加到超过22亿日元（1710万美元），是其2005年首次在日本中部一个主题公园展出时价值的五倍多。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G-4.jpg)mainichi.jp
-这根重达250公斤的金条在静冈县伊豆市的东井金矿（Toi Gold Mine ）主题公园展出。这根金条是由公园运营商的母公司在2005年冶炼的，吉尼斯世界纪录在同一年将其认证为世界上最大的金条。
+作者：日本东京方舟农场-Miyali7768(文玉)/纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+乌克兰总统泽连斯基18日在发表讲话时指出，“俄军已经正式打响他们准备已久的顿巴斯战役”，因为俄罗斯军队自本周一早上开始，就对顿涅茨克州（Donetsk）、卢甘斯克州（Luhansk）和哈尔科夫州（Kharkiv）等乌东地区，几乎整条前线发起新一轮攻势，企图突破乌克兰防线。乌克兰总统幕僚长耶尔马克（Andriy Yermak）表示，战争的第二阶段已经启动，呼吁国民相信军方有能力抵抗。
 
-该金条于2005年7月公开展示，当时它的价值约为4亿日元。
+综合外媒报道，俄军上月撤出基辅一带等乌北地区后，就一直在乌东地区集结。留守在马里乌波尔地区的亚速营指挥官普罗科彭科(Prokopenko)周一表示，俄罗斯军队正在向马里乌波尔的亚速斯塔尔（Azovstal ）钢铁厂开火，目前有包括妇女、儿童在内的近千人正身处其中，因为这座钢铁厂是附近唯一可用的避难所。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-48.jpg)
+普罗科彭科怒斥俄军在明知有平民的情况下，依然主动对着工厂作无差别军事攻击，使用自由落体炸弹、掩体炸弹等各种丧心病狂的武器将马里乌波尔变成人间地狱。
 
-据金条制造商田中机工株式会社 （Tanaka Kikinzoku Kogyo K.K.）称，截至周三，1克黄金的含税价值为8,969日元。
+同日，乌克兰国防部发言人马兹亚尼克(Oleksandr Motuzyanyk)也证实，发现俄罗斯Tu-22M3战略轰炸机出现在乌克兰东部上空，并且对受围困的港口城市马立波(Mariupol)投放炸弹。不仅如此，乌克兰军方还在莫斯科和乌克兰边境之间的卡卢加地区上空发现了可携带核武器的俄罗斯重型战略轰炸机TU-95。这无疑印证了泽连斯基（Volodymyr Zelensky）早前一再重申的警告，指俄罗斯有可能使用核武器，并呼吁“世界上所有国家”都应该为俄罗斯总统普京，可能在针对乌克兰行动中使用战术核武器做好准备。
 
-黄金通常被视为危机时期的避险财富储备，在疫情大流行和俄罗斯在乌克兰的战争造成的不稳定中，黄金的价值已经上升。
+对此，美国驻联合国大使认为，普京正在“以不可接受的方式升级这场战争。另外，有军事分析指出，俄军现在正试图包围死守顿巴斯的乌军，顿巴斯战役必会令双方伤亡惨重。
 
-由于日元对美元最近的疲软，该金条的价值也有所上升，而美元是全球交易金属的国际指数。
+参考链接：[VOA“419断播门”事件掀起波澜壮阔的爆料革命新篇章](https://gnews.org/zh-hans/2372648/)
 
-东井金矿在1965年结束了采矿作业，在其生命周期内是日本产量最高的矿场之一。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-旧址上的主题公园向游客介绍了该矿的历史，并为他们提供了探索其部分隧道和淘金的机会。
-
-游客可以通过亚克力展示柜上的一个洞触摸金条。该公园在社交媒体的宣传中抓住了价值上升的机会，在宣传中声称触摸金条会增加游客的财运。
-
-**快评：**按照这篇新闻所言，这根世界上最大的金条已经比2005年首次展出时增加了5倍多价值。
-
-听郭先生爆料的人都知道，法币超发，黄金也没有体现其真正的价值，黄金价格一直被人为控制和打压。如果黄金价格翻一倍，世界经济就会完全崩塌。
-
-尽管如此，相比之下这根金条还是升值5倍多，可见法币超发加日元兑美元贬值都已经到了何其惊人的地步？世界经济崩塌的时刻就要到来。
-
-参考链接：
-[https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html](https://english.kyodonews.net/news/2022/04/35daeaf15474-worlds-largest-gold-bar-in-japan-surges-in-value-amid-ukraine-crisis.html)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

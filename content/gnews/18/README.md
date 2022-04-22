@@ -2,28 +2,37 @@
 ---
 
 
-## 秘翻在线：中华电视公司（CTS）播出系列假信息其意何在?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2389680/)
+## 魁省超万名医护人员因病毒原因离岗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-24.png)（图片源自本文链接）
-4月22日CNN台北消息：20日，台湾公共广播公司和中华电视公司（CTS），播出了一系列关于中共国已经入侵台湾的虚假报道。台湾政府已宣布正在调查此事。
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-20日上午的一个新闻节目中， CTS播出了 “共产党导弹击中新北市 “、 “台北港爆炸，设施和船只受损”、 “敌方特工在板桥车站放火并埋设炸弹 “、 “中国共产党加速战争准备 “、 ” (台湾)总统发布了一项紧急命令”等系列「速报」。
 
-继俄罗斯军事入侵乌克兰之后，台湾政府越来越担心中国军事入侵台湾。
+加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
 
-4月21日，CTS为一系列错误警报正式道歉，并解释说，有关公告是为消防培训而制作的，本来没打算向公众播放。负责人和责任人已经受到了惩罚。
+该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
 
-CTS还播出了其它关于军事冲突后台湾各地恐慌性购买，以及新北市发生7级地震等「速报」。这些错误信息已在社交网络上传播，有人呼吁对CTS进行调查。
+到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
 
-台湾国家通讯与广播委员会发表声明，指出CTS涉嫌违法和扰乱公共秩序。并透露已经对此事展开了调查。
+原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-目前已收到10名观众的投诉，CTS可能被责令支付高达200万新台币的罚款。
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【自由法兰西】
+素材/采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-文贵大直播曾透露，中共早已收买了大批卖台贼，配合中共搞乱台湾，显得台湾渴望中共去帮助治理台湾，以使中共乱中收复台湾。这个背景下，中华电视（CTS）作为专业媒体，发出如此令人担心的假消息，其意何在？
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-信息源：[「中国が台湾侵攻」　テレビ局が誤報続発、台湾当局が捜査（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/20c4fbfb1f29cc3f97562018b0ee1773a28c0edc)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+
 
  
 

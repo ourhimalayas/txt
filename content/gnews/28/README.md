@@ -2,51 +2,32 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.12D）&#8211;是否巧合。
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389570/)
+## 中日财经爆|今年前4个月中共国内理财产品骤减近5000只
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389588/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆今年前4个月中共国内理财产品骤减近5000只.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.toutiaoimg.com%2Forigin%2Ftos-cn-i-qvj2lq49k0%2F4e6422e9ba7f4df8a8d275772db394ea%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fwww.ansbabe.com%2Fnews%2F233785.html&amp;tbnid=2jYGQrcs7quE8M&amp;vet=12ahUKEwiFza_93Kb3Ah)
 
-整理/编辑：机器猫
+中国理财网截至4月21日数据显示，中共国内存续的银行理财产品共31328只，今年前4个月，市场上存续的理财产品就减少了近5000只。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-59.png)图片来源：雅典娜设计组(614)
+银行业理财登记托管中心发布的《中国银行业理财市场年度报告（2021年）》，截至2021年底，全国共有301家银行机构和21家理财公司有存续的理财产品，存续产品共有3.63万只。
 
+多家银行表示，主要原因在于，一是去年底资管新规过渡期最后一年，银行集中清理关闭了一批保本老产品；二是今年以来资本市场动荡造成的发行端减速；三是理财公司主动策略调整，理财产品单只规模上升，发行数量相应减少。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+理财产品数量减少的一个重要原因在于市场波动频繁，贯彻净值化要求之后原先的客户难以接受产品破净，眼睁睁看着“固收+”变成“固收-”，理财产品破净对于客户的心态影响巨大，一季度多家理财公司遭遇了巨额赎回。银行也只能被动调整发行策略
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+消息来源:
+[**今年银行理财产品骤减5000只：老产品集中关闭新发产品提规模降数量**](https://finance.sina.com.cn/roll/2022-04-22/doc-imcwipii5698832.shtml)
 
-帖子原文：
-
-原文作者：永远18该多好
-
-是否巧合
-
-#新冠疫苗  我发现很多打了新冠疫苗都发现出了问题。不知道是否巧合，昨天有个小姐姐一年前乳腺增生，一年就4a还是恶性，还是厉害的那种。还有个是子宫肌瘤癌，我问是不是去年打了疫苗，她说真的打了，怎么会这样，当然大多数应该没事，只是小概率吧，我也不知道去年漏诊还是打了2针疫苗就这样了，可是已经结果这样了，我只是担心家里人，都打了疫苗，而且3针，又不觉得害怕起来！
-
-#新冠疫苗
-
-评论选集：
-
-开森 回复：
-
-主要是这个药并没有临床试验，我打完以后乳腺增生肺结节甲状腺结节宫颈病变我都崩溃了，我第三针反正不去打了。
-
-橙子＿ 回复：
-
-我也是，打了后宫颈最开始的感染短短一年到病变，胸部很多增生那个疼！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2714.png)图片来源：小红书
-素材来源：
-
-[是否巧合](https://www.xiaohongshu.com/discovery/item/62354108000000000102ba3d?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650588389)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

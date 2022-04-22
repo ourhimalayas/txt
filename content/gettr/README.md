@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 5:00 AM (UTC)`
+
+A French volunteer has been to China 12 times and he loves China very much. Nicole told him that the Chinese Communist Party (CCP) created many disasters for people both inside China and worldwide, including this pandemic, which is caused by the CCP virus, (should) not (be called) the Chinese virus. He blesses all the people from the New Federal State of China (NFSC) and supports us to take down the CCP.<br/><br/>一位来自法国的志愿者说他去过中国12次，而且他非常喜爱中国。妮可告诉他中国共产党不仅给中共国内的人民制造灾难，而且给全世界的人制造灾难，包括这次疫情，是由中共病毒引起的，而不（应该）是（被称为）中国人病毒。他祝福所有新中国联邦人，并且支持我们推翻中共。
+![img](https://media.gettr.com/group39/origin/2022/04/22/05/4b663130-a81c-8bcd-ec0e-20cfb10d439e/out.jpg)
+
+---
+
+`@miles 4/22/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group24/origin/2022/04/22/04/5d6ed0f6-a75c-16a8-6a7a-18553d810898/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/22/2022 4:10 AM (UTC)`
 
 2022-4-21《鸡血王喜币大作战》 第一百七十二集 嘉宾：Tex、无双柳薇薇
@@ -139,20 +153,6 @@ Volunteers at the Medyka rescue center joined us talking about the meaning of th
 
 4/21/2022 Miles Guo: Please shout it out! A large number of CCP's armed police have been deployed to at least a dozen of locations in Beijing, which is a sign of a proposed commencement of shutdown in Beijing; shutdown policy in Shanghai might be lifted soon, but the CCP will for sure hold those who have “leaked” information to outside for reprisal or retaliation; the CCP's so-called “Clean Internet” and “Searching Internet” is related to 419 special broadcast, which has a huge impact inside of the CCP China<br/><br/>4/21/2022文贵直播：请战友们广泛传播，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；上海即将解封，但要秋后算账清算；419大直播在墙内影响巨大，所谓的净网、搜网活动与之有关<br/>
 ![img](https://media.gettr.com/group11/getter/2022/04/21/18/6827e201-f23b-e393-d66a-9163282ef4ee/out.jpg)
-
----
-
-`@miles 4/21/2022 6:04 PM (UTC)`
-
-4/21/2022 Miles Guo: The US House Speaker Nancy Pelosi will visit Taiwan on April 26. What will happen to Taiwan? This time the US totally ignored the “Grave Concerns” of the CCP. April 26 will be a watershed moment for China-US relations.<br/><br/>4/21/2022 文贵直播：美国众议院议长佩洛西将于4月26日访台，台湾将何去何从？这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭！<br/>
-![img](https://media.gettr.com/group43/getter/2022/04/21/18/75a258e7-2816-0d1a-9753-5db0b883a16b/out.jpg)
-
----
-
-`@miles 4/21/2022 5:52 PM (UTC)`
-
-In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s owner tests positive for nucleic acid and is forcibly quarantined, their pet at home would face the prospect of being abused and killed. During the lockdown in Shanghai, there are many videos showing large numbers of pets such as cats and dogs being dumped onto the street. When neighborhoods were blocked off and food supplies were cut off, even pet cats and dogs were killed for food. The CCP's evil system has devoured human nature, and all living beings have suffered with it. The only way to save humanity is to destroy the CCP.在中共国，当中共病毒疫情爆发时，一旦宠物的主人核酸检测呈阳性被强制隔离，家中宠物就会面临被虐杀的结局。上海封城的期间，有视频显示，大量宠物猫狗被抛尸街头。在小区封锁和食物断供时，更有甚者，杀死宠物猫和狗来食用。中共的邪恶体制侵吞了人性，万物生灵也跟着遭殃。唯有灭共才能拯救苍生。<br/>#ukrainerescue  #nfsc新中国联邦
-![img](https://media.gettr.com/group17/origin/2022/04/21/17/8ba2716a-305f-2b81-6176-8ac53c864095/out.jpg)
 
 ---
 

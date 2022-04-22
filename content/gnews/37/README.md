@@ -2,26 +2,25 @@
 ---
 
 
-## 加拿大新冠疫情大流行再复苏
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389359/)
+## 加拿大制裁普京女儿在内的14名俄罗斯人
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389373/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2703.png)图片来源：[CTV News](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2712.png)图片来源：[https://torontosun.com/](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
 
-据加拿大媒体【CTV新闻】4月19日报道，加拿大各地的医院正经历新冠病毒疫情的再复苏，业内人士分析此情况可能会持续恶化一个月。
+&lt;多伦多太阳报&gt;4曰19日报道，加拿大联邦政府今日发布对俄新的制裁措施，制裁名单涵盖14名与俄罗斯总统普京关系密切的俄罗斯人，包括他的两个成年女儿，36岁的玛丽亚-沃隆佐娃和她35岁的妹妹卡捷琳娜-蒂霍诺娃。
 
-报道称，加拿大公共卫生署最新数据显示，加拿大各地因新冠疫情而住院的人数增加了约18%，从5109人增加到6020人。，一些省份的重症监护人数也略有上升。此外，部分地区正处于由奥密克戎的BA.2亚变体所导致的第六波大流行，但官方处理的方式却不并不像当初奥密克戎那样引人注目。反而之是以此推动新冠疫苗计划。
+联邦政府表示，这14人是普京的亲信，也是俄罗斯无理入侵乌克兰的同谋。包括美国在内的盟国将这对姐妹和其他普京家族成员作为制裁目标，是因为他们帮助隐匿了普京的个人资产。 总理特鲁多在一条推文中表示，加拿大政府不会放弃追究普京身边人在俄罗斯入侵乌克兰战争中的共犯责任。制裁发布当天，特鲁多将与北约和欧洲领导人出席由美国拜登总统召开的视频会议。
 
-对此，本台记者认为加拿大部分地区业内人士的分析将再次伤害群众，因为新冠疫苗的灾难即将到来。
-
-原文链接：[COVID: Provinces experience rise in hospitalizations | CTV News](https://www.ctvnews.ca/health/coronavirus/hospitals-across-canada-seeing-a-resurgence-of-patients-with-covid-19-1.5866638)
+原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
 上传/发稿 – 【青青】
-撰稿-【文莱】
+撰稿/翻译 -【自由法兰西】
 采编 -【文莱】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
 更多加拿大温哥华扬帆农场的频道，请关注：

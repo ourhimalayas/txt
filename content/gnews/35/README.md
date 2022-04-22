@@ -2,36 +2,44 @@
 ---
 
 
-## 樱花时政┃美国禁止俄罗斯船只进入美国港口
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389374/)
+## 2022年4月20日*州新民生村镇银行拒绝兑付和查证存款
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2389401/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国禁止俄罗斯船只进入美国港口.png)[图片来源](https://gcaptain.com/canada-moving-to-ban-russian-ships-from-its-ports-and-waters/) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/米州新民生村镇银行_副本.png)
+据[历史铭记NFSC](https://twitter.com/Lsmj67890)[@Lsmj67890](https://twitter.com/Lsmj67890)于[8:57 AM · Apr 22, 2022](https://twitter.com/Lsmj67890/status/1517306634414227456)发布的推文——
 
-据路透社4月21日报道，美国总统拜登周四宣布，美国将加入加拿大和欧洲国家的行列，禁止隶属于俄罗斯的船只进入美国港口，这是就俄罗斯入侵乌克兰一事向其施压的最新举措。
+在墙内不要说把钱转出来，现在银行连查账的机会都不给你，开始防挤兑明抢钱了！
 
-白宫将发布一份公告，提供更多细节。路透社周四首次报道了拜登的行动计划，而在3月初报道了白宫正在考虑这项禁令。
 
-“这意味着任何船只，任何悬挂俄罗斯国旗或由俄罗斯实体拥有或经营的船只将不被允许停靠在美国港口或进入我们的海岸。”拜登周四说。
 
-消息人士说，在2021年，俄罗斯船只约有1800次访问，在整体交通中只占很小的比例。这个问题促使拜登政府进行了广泛的审查，以确保对俄罗斯船只的禁令不会严重影响美国的供应链。
+> 在墙内不要说把钱转出来，现在银行连查账的机会都不给你，开始防挤兑明抢钱了！ [pic.twitter.com/kgvXaubthW](https://t.co/kgvXaubthW)
+> — 历史铭记🌻NFSC🌻 (@Lsmj67890) [April 22, 2022](https://twitter.com/Lsmj67890/status/1517306634414227456?ref_src=twsrc%5Etfw)
 
-加拿大在3月1日对俄罗斯拥有的船只关闭了港口，并禁止它们进入加拿大水域，许多欧洲国家也采取了同样的措施。
 
-美国此前禁止俄罗斯飞机进入美国领空，与加拿大和欧洲国家一起采取了这一行动，并禁止俄罗斯石油进口，这些石油占此前俄罗斯船只运往美国的大部分。
 
-信息来源：** **
-[Biden Bans Russian Ships From US Ports](https://gcaptain.com/biden-bans-russian-ships-from-us-ports/)
+事情发生在2022年4月20日，由于视频拍摄角度无法查证银行全称，故只以\*州新民生村镇银行代称，中共银行系统早已崩塌，墙内的同胞们，如果有可能，请马上取出你在中共各大银行的存款，留给大家的时间不多了！
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,34 +2,37 @@
 ---
 
 
-## 加拿大制裁普京女儿在内的14名俄罗斯人
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389373/)
+## 樱花时政┃美国禁止俄罗斯船只进入美国港口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389374/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2712.png)图片来源：[https://torontosun.com/](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国禁止俄罗斯船只进入美国港口.png)[图片来源](https://gcaptain.com/canada-moving-to-ban-russian-ships-from-its-ports-and-waters/) 
 
+据路透社4月21日报道，美国总统拜登周四宣布，美国将加入加拿大和欧洲国家的行列，禁止隶属于俄罗斯的船只进入美国港口，这是就俄罗斯入侵乌克兰一事向其施压的最新举措。
 
-&lt;多伦多太阳报&gt;4曰19日报道，加拿大联邦政府今日发布对俄新的制裁措施，制裁名单涵盖14名与俄罗斯总统普京关系密切的俄罗斯人，包括他的两个成年女儿，36岁的玛丽亚-沃隆佐娃和她35岁的妹妹卡捷琳娜-蒂霍诺娃。
+白宫将发布一份公告，提供更多细节。路透社周四首次报道了拜登的行动计划，而在3月初报道了白宫正在考虑这项禁令。
 
-联邦政府表示，这14人是普京的亲信，也是俄罗斯无理入侵乌克兰的同谋。包括美国在内的盟国将这对姐妹和其他普京家族成员作为制裁目标，是因为他们帮助隐匿了普京的个人资产。 总理特鲁多在一条推文中表示，加拿大政府不会放弃追究普京身边人在俄罗斯入侵乌克兰战争中的共犯责任。制裁发布当天，特鲁多将与北约和欧洲领导人出席由美国拜登总统召开的视频会议。
+“这意味着任何船只，任何悬挂俄罗斯国旗或由俄罗斯实体拥有或经营的船只将不被允许停靠在美国港口或进入我们的海岸。”拜登周四说。
 
-原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
+消息人士说，在2021年，俄罗斯船只约有1800次访问，在整体交通中只占很小的比例。这个问题促使拜登政府进行了广泛的审查，以确保对俄罗斯船只的禁令不会严重影响美国的供应链。
 
-上传/发稿 – 【青青】
-撰稿/翻译 -【自由法兰西】
-采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+加拿大在3月1日对俄罗斯拥有的船只关闭了港口，并禁止它们进入加拿大水域，许多欧洲国家也采取了同样的措施。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+美国此前禁止俄罗斯飞机进入美国领空，与加拿大和欧洲国家一起采取了这一行动，并禁止俄罗斯石油进口，这些石油占此前俄罗斯船只运往美国的大部分。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+信息来源：** **
+[Biden Bans Russian Ships From US Ports](https://gcaptain.com/biden-bans-russian-ships-from-us-ports/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
