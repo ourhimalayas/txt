@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登宣布8亿美元军援乌克兰，并禁止俄船停靠美港口
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391547/)
+## 上海老人被白卫兵抱摔后死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391571/)
 
-04/21/2022 美国总统乔·拜登宣布向乌克兰提供8亿美元的军事援助，并且禁止与俄罗斯有关联的船只停靠美国港口。
+04/20/2022 上海老人被白卫兵抱摔后死亡。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

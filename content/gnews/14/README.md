@@ -2,20 +2,24 @@
 ---
 
 
-## 视频|爆料革命联合西方成就护台神队
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2391461/)
+## 2022年4月22日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2391477/)
 
-制作：香草山视频部
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-4月19日大直播中，郭文贵先生谈到，虽然卖台贼与中共勾兑，陷台湾于危险的境地，但爆料革命联合西方世界成就护台神队，保护台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1267.jpg)
 
-郭先生谈到保护台湾的两个要点，保护台湾的领空，和遏制中共的潜水艇。在台湾军方购入中共无人机的情报被揭露后，全世界已经警觉。当天的直播中，郭先生表示，爆料革命将向西方军情界提供中共潜水艇的具体方位，助力西方使用水下镭射将其一举歼灭。
-
-发稿：Daxia
+发稿：信心的选择
 
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-32.jpeg)
 
  
 

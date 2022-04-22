@@ -2,35 +2,24 @@
 ---
 
 
-## 秘翻在线：“地产代理航母”易居企业控股因美债违约爆雷
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2391220/)
+## 加拿大媒体报导新中国联邦乌克兰救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391236/)
 
-**撰稿：葛大饼**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+4月19日，《多伦多星报》报导新中国联邦、法治基金乌克兰前线的救援情况，称赞新中国联邦的帐篷是波兰边境最大、组织最完善的难民帐篷营，并对新中国联邦人Feather进行采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/15960802826568.jpg)
+在采访中，Feather身穿印有Take down the Chinese Communist Party标语的醒目的黄马甲。被问及自愿前往波兰救援前线的动因时，Feather表示主要缘于好朋友的家人被困马里乌波尔（Mariupol）。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/22-11.png)图片来源：看中国
-根据2022年4月21日港交所公开信息显示， 易居企业控股因美元债违约，确认暴雷。
+在随后的一次救援行动中，Feather全程帮助一位乌克兰老妇人，从购买手机、与远在加拿大的亲人取得联系，到计划核酸检测行程，预定机票。最后，这位老妇人顺利与亲人在加拿大团聚。
 
-号称“地产代理航母”的易居控股现状如何**：**数据显示易居这笔违约的债券票面利率为7.625%，原定于4月18日到期，该笔债券的未偿付本金为2.982亿美元，进而导致一笔可换股票据交叉违约、触发一笔2023年到期的票据交叉违约，该笔可换股票据未偿付金额为10.32亿港元，阿里巴巴是该笔可换股票据的唯一持有人。
+参考链接：[What I learned volunteering in refugee camps in Poland and Ukraine](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
 
-易居企业控股在上述债券违约的公告中称，为尽量保留更多流动资金，将暂停向海外财务债权人支付所有款项。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-191.jpg)
 
-根据易居企业控股2021年的财报，公司归母净利润亏损88.93亿元！易居企业控股在港股IPO时， 恒大、碧桂园、万科等26家房企入股成为股东，而目前这些股东过半都遭遇到流动性困难，由于“个别房企”客户的信贷质素恶化，该公司预期信贷损失的金融资产亏损拨备（扣除拨回）从2020年的约1.73亿元增加3765.7%至约66.7亿元。
+总编：雪梨
 
-2021年开始中共国房地产行业进入寒冬， 多家地产开发商出现信用危机，加上企业流动性危机持续，易居爆雷是必然。
-
-恒大、碧桂园、万科等26家房企都是易居的股东，阿里巴巴还是其可换股票据的唯一持有人， 中共盗国贼们的白手套们都是盘根错节，这一两年各种爆雷新闻，反正最后一个爆的就是中国共产党！
-
-**[新闻来源](https://k.sina.cn/article_5786355125_158e4c5b501900ygqg.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
-
-
-
-#  
-
-摘要：
-
-港交所公开信息显示， 易居企业控股因美元债违约，确认暴雷！并同时触发2023年票据契约项下的交叉违约，2023年票据也暂停买卖。
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,27 @@
 ---
 
 
-## 美国空军为乌克兰开发了“幽灵”无人机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2391031/)
+## 中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391069/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+世界银行行长马尔帕斯4月21日在华盛顿与乌总理什米加尔等召开了圆桌会议。世界银行发布评估称，战争造成的建筑物及基础设施等直接经济损失大约为600亿美元。世行还宣布，乌已通过融资等从包括日本在内的各国筹集了30亿美元资金。
 
-**整理/编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-167.jpg)图片来源于本文链接
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/f51503b914590f7c.jpg)图片来源：The Financial Express & 雅典娜设计组
+什米加尔表示今后需要3个阶段的资金，分别是“战争持续期间的金融和财政支援”、“和平后6～8个月的核心基础设施重建”、“中长期的城市和家庭重建”。马尔帕斯指出需要长期对乌的预算作出支持。以线上方式出席会议的泽连斯基表示俄军破坏了车站及食品销售店等生活基础，强调了经济支援的必要性。什米加尔提出分析称，包括间接损失在内，经济损失已达5600亿美元。
 
+信息来源： [世行:俄乌冲突给乌克兰造成600亿美元直接损失](https://cn.nikkei.com/politicsaeconomy/epolitics/48347-2022-04-22-15-16-43.html)
 
-4月21日，美国国防部发言人柯比表示，作为给乌克兰8亿美元军事援助的一部分，美国空军为乌克兰开发了“幽灵”无人机，乌克兰军队将有能力从空中打击俄罗斯军队和装备，不一定需要像地面武器那样接近目标。
-
-这些无人机的详细信息，包括射程或确切作战能力，外界所知甚少。同日白宫表示，作为新一波对乌军事援助的一部分，美国将向乌克兰提供超过121架幽灵无人机系统。
-
-美国国防部称，目前只有不到十名乌克兰人在美国接受了操作“弹簧刀无人机”（Switchblade）的培训，这种一次性武器飞向目标后，会在撞击时引爆。
-
-柯比说，“幽灵”无人机“专为战术行动而设计”,“主要但不限于攻击目标。它与几乎所有无人机系统一样，具有光学系统，它的主要焦点是攻击，也是一款自杀性无人机”。
-
-原文链接：[美国空军为乌克兰开放“幽灵”无人机](//www.dw.com/zh/%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E7%A8%B1%E7%83%8F%E6%9D%B1%E5%9F%8E%E5%B8%82%E5%B0%9A%E6%9C%AA%E6%B7%AA%E9%99%B7-%E7%BE%8E%E6%8F%90%E4%BE%9B%E7%83%8F%E5%85%8B%E8%98%AD%E7%84%A1%E4%BA%BA%E6%A9%9F/a-61552455)
-
-发布：文武全才
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场](//twitter.com/HimalayaAthena1)[Twitter](//twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](//www.gettr.com/user/himalayaathena)[Gettr](//www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](//youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](//discord.gg/KQQVvwBNvm)[Discord](//discord.gg/KQQVvwBNvm)
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

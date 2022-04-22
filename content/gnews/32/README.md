@@ -2,28 +2,29 @@
 ---
 
 
-## 中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391069/)
+## 习近平迷信莫德尔周期，中共自取灭亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391071/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-世界银行行长马尔帕斯4月21日在华盛顿与乌总理什米加尔等召开了圆桌会议。世界银行发布评估称，战争造成的建筑物及基础设施等直接经济损失大约为600亿美元。世行还宣布，乌已通过融资等从包括日本在内的各国筹集了30亿美元资金。
+撰稿：骄子 、马克文、百合观察
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+419大直播中，郭文贵先生提到莫德尔周期，爆料习近平迷信莫德尔周期理论（全称也叫做莫德尔斯基国际政治长周期理论）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364043.jpg)
+根据莫德尔周期理论，世界权力体系需要一位领导者，而世界政治权力的演变是循环、更迭的，以100-120年为一个周期，新的世界领导者往往在战争中产生，海权是世界领导者的必备条件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-167.jpg)图片来源于本文链接
+郭先生表示，因为深信莫德尔周期理论，习近平错误地认定自己将成为莫德尔周期的下一任霸主。香港的沦落，习近平对此更加自信，甚至将莫德尔周期理论运用到对上海、乃至全国多地的大隔离，进行人道灾难压力测试，趁机侵占湾。郭先生还说道，习近平还将和普京一起对抗美国，对抗世界。而这终将导致中共的灭亡。
 
-什米加尔表示今后需要3个阶段的资金，分别是“战争持续期间的金融和财政支援”、“和平后6～8个月的核心基础设施重建”、“中长期的城市和家庭重建”。马尔帕斯指出需要长期对乌的预算作出支持。以线上方式出席会议的泽连斯基表示俄军破坏了车站及食品销售店等生活基础，强调了经济支援的必要性。什米加尔提出分析称，包括间接损失在内，经济损失已达5600亿美元。
+参考链接：[【419五周年】04/19/2022 習的自信來自於迷信，認為自己就是活佛轉世，是莫德爾週期所說的下一個統治者](https://gettr.com/post/p166yi20b20)
 
-信息来源： [世行:俄乌冲突给乌克兰造成600亿美元直接损失](https://cn.nikkei.com/politicsaeconomy/epolitics/48347-2022-04-22-15-16-43.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-187.jpg)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+总编：雪梨
 
+编辑：Jack Li文阳、雪梨
+
+审核：Ivy001
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
