@@ -15,35 +15,35 @@
 
 ---
 
-### [中国有两派：亲苏派和亲美派](/content/gnews/1/README.md)
+### [我们在一起珍惜这个缘分](/content/gnews/1/README.md)
  ` 加拿大温哥华英里农场`
 
-### [秘翻在线 :前总统川普的Truth 社交媒体将加入Rumble云基础平台](/content/gnews/2/README.md)
+### [亲苏派是谁？](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [中国有两派：亲苏派和亲美派](/content/gnews/3/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [秘翻在线 :前总统川普的Truth 社交媒体将加入Rumble云基础平台](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯富豪及家人的死亡层出不穷](/content/gnews/3/README.md)
+### [俄罗斯富豪及家人的死亡层出不穷](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/04/22 文贵先生盖特精要](/content/gnews/4/README.md)
+### [2022/04/22 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我们在一起珍惜这个缘分](/content/gnews/5/README.md)
+### [我们在一起珍惜这个缘分](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [日本在与俄罗斯的领土争端中立场转强硬](/content/gnews/6/README.md)
+### [日本在与俄罗斯的领土争端中立场转强硬](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共对上海大隔离期间网路言论进行清算](/content/gnews/7/README.md)
+### [中共对上海大隔离期间网路言论进行清算](/content/gnews/9/README.md)
  ` 银河歌舞厅`
 
-### [“中国没给俄罗斯提供武器”的意思是什么？](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
-
-### [【G时新闻】濒临破产 中共银行无故阻挠客户取款](/content/gnews/9/README.md)
+### [【G时新闻】濒临破产 中共银行无故阻挠客户取款](/content/gnews/10/README.md)
  ` G-时新闻`
-
-### [习近平这个人是有点浑不吝的](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [德国表示愿意向乌克兰运送重型武器](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -57,32 +57,32 @@
 ### [20220422郭文贵大直播 ：雅各谈基督教圣经启示录总结了邪恶特质](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国应该立法停止再向中共国注入投资](/content/gnews/15/README.md)
- ` 银河歌舞厅`
-
-### [20220422郭文贵大直播 ：中共资助的俄乌战争带来了新中国联邦的春天](/content/gnews/16/README.md)
+### [20220422郭文贵大直播 ：中共资助的俄乌战争带来了新中国联邦的春天](/content/gnews/15/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220422郭文贵大直播 ：致救援队的感谢信是在政治和外交上认可新中国联邦](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
-
-### [消息人士称拜登将宣布对乌克兰的另一项大型军事援助计划](/content/gnews/18/README.md)
+### [消息人士称拜登将宣布对乌克兰的另一项大型军事援助计划](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [20220422郭文贵大直播 ：致新中国联邦乌克兰救援队的一封感谢信](/content/gnews/19/README.md)
- ` Tokyo Sakura Video Group`
-
-### [新中国联邦的品牌无价](/content/gnews/20/README.md)
+### [新中国联邦的品牌无价](/content/gnews/17/README.md)
  ` 银河歌舞厅`
 
-### [中日财经爆┃俄罗斯公布数字卢布计划](/content/gnews/21/README.md)
+### [中日财经爆┃俄罗斯公布数字卢布计划](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人民币下跌和中共国内大恐慌](/content/gnews/22/README.md)
+### [【G叻睇真D】加拿大制裁多名与普京关系密切的亲属和幕僚](/content/gnews/19/README.md)
+ ` G-时新闻`
+
+### [【G时新闻】美国正在耗尽弹药储备且几年内难以补足](/content/gnews/20/README.md)
+ ` G-时新闻`
+
+### [人民币下跌和中共国内大恐慌](/content/gnews/21/README.md)
  ` 银河歌舞厅`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月22日早](/content/gnews/23/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月22日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
+
+### [【G时新闻】 南希·佩洛西4月26日访台](/content/gnews/23/README.md)
+ ` G-时新闻`
 
 ### [新中国联邦或将在波兰和乌克兰设立大使馆](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`

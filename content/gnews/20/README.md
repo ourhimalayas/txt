@@ -2,30 +2,36 @@
 ---
 
 
-## 新中国联邦的品牌无价
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2392788/)
+## 【G时新闻】美国正在耗尽弹药储备且几年内难以补足
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2392727/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-01.jpg)
-梅迪卡救援前线时间4月20日，新中国联邦帐篷内布置了一个超大液晶电视，全天播放关于新中国联邦和法治基金的介绍，对于来往的乌克兰人和各个国家以及国际组织的媒体工作者来说，这是最方便快捷的渠道去认识新中国联邦。另外在乌克兰难民出境的必经之路上，我们也布置了一个户外超大LED擎天柱显示屏，建成以后，这个LED上面也会将循环播放新中国联邦以及当地救援机构的一些广告画面，方便难民寻求帮助。
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+《目标新闻》4月20日报道，因俄乌冲突，美国弹药储备量正在极具减少。
 
-自新中国联邦在梅迪卡展开救援以来，我们的周边愈来愈丰富，比如灭共马甲深受欢迎，气球，咖啡，也都非常抢手。每天几场接连不断的直播，介绍当地的情况并连线战友。除了我们自己的出品，当地政府发放的工作牌上直接使用新中国联邦，路牌指示上面也标注了新中国联邦的国旗。
+五角大楼官员称，基辅每天都要用掉大量的反坦克弹药，同时缺少可用的飞机。目前在马里乌波尔和其他地区弹药变得稀缺。这给西方国家带来了一个严峻的选择，是向乌克兰提供更多的物资，还是用于本国的防御。
 
-更重要的是我们的战友在前线无私辛勤地付出，与国际友人交流灭共的理念。世界上有诸多大品牌，其展示和路演方式琳琅满目，但像新中国联邦这样无私无我本着最朴素的救人信念去到战争前线，恐怕古往今来，只此一家。新中国联邦无意间成为这个时代最无价的品牌。
+重建武器库存需要数年时间，并且这些武器系统中有许多极难补充，需要多年的制造才能恢复供应。例如，数以千计的标枪导弹已被送往乌克兰，但目前美国每年只能制造大约1000枚。
 
-撰稿、发布：骄子
+令人震惊的是，供应链的崩溃似乎正在迅速蔓延，这使得武器制造商很难甚至不可能获得材料和部件。更糟糕的是，单一来源的供应商中有许多是中共国或台湾。
 
+美国的工业能力在过去20年里急剧下降，再加上很少有美国人愿意从事类似工作，这使得美国无力重复二战时的生产速度。
+
+盖特链接：[https://gettr.com/post/p16h7pu3edc](https://gettr.com/post/p16h7pu3edc)
+
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-欢迎订阅我们的GNews账号：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

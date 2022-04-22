@@ -2,40 +2,23 @@
 ---
 
 
-## 2022/04/22 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2393071/)
+## 秘翻在线 :前总统川普的Truth 社交媒体将加入Rumble云基础平台
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2393079/)
 
-[![](https://express.adobe.com/page/ywl6CMlOrdb7r/images/fb8993bb-83d8-4fdb-baa0-841307bde209.png?asset_id=97800632-b696-4958-a988-e847d8e2b190&amp;img_etag=%227d2fd84928499b2b4343ebeb1042c489%22&amp;size=2560)](https://express.adobe.com/page/ywl6CMlOrdb7r/images/fb8993bb-83d8-4fdb-baa0-841307bde209.png?asset_id=97800632-b696-4958-a988-e847d8e2b190&amp;img_etag=%227d2fd84928499b2b4343ebeb1042c489%22&amp;size=1024)
-视频链接：[https://gettr.com/post/p16mdd865c9](https://gettr.com/post/p16mdd865c9)
+**撰稿：William**
 
-• 中共国所谓富豪全是骗贷款。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/33-7.jpg)图片来源：yournews.com
+根据Just the News的报导,社群平台Truth Social已经完成转移到视频巨头 Rumble的大规模云计算基础设施上，以加速用户来加入前总统唐纳德·川普（Donald Trump)所创建的社交平台。本周美国两个新兴言论自由平台之间的合作意味着 Truth Social 将结束其 Beta 测试和受控帐户创建，并迅速采取行动来消化等待数周加入该平台的大量用户。
 
-• 七哥边健身边看《七哥大直播》，战友表现优秀。
+Rumble 已迅速成为言论自由在线视频的竞争对手，并与受到更严格监管的 YouTube 竞争，Rumble称赞Truth Social的迁入是一个重要的里程碑，因为 Truth Social是第一个加入Rumble云服务业务的重要客户。
 
-• 国内隔离情况太惨，中央定义国内义工直播老年人吃屎至吃死事件为–海外操作舆论攻击。
+“我们很高兴与互联网上发展最快的社交媒体公司之一合作，”Rumble CEO克里斯·帕尔沃斯基(Chris Pavlovski)说 ：“提供一流的云基础设施至关重要，Truth Social 用户将立即开始看到我们努力的成果。”
 
-• 俄罗斯内部超90%反战厌战，希望普京尽快撑不住。中共国内部情况相似。
+报导中表示Truth Social 在 2 月份推出后限制了新用户的加入，专注于延长测试期以测试平台并完成向 Rumble 云的迁移。尽管有控制地推出，但 Truth Social 平台上的早期影响者报告说，与 Twitter 和 Instagram 等平台相比，Truth Social目前的关注者更少，但参与度更高。
 
-• 战友们继续行动，让自己保持强大，才是关键。新中国联邦使命–唤醒更多人、救人。
+**新闻来源**：[https://justthenews.com/nation/free-speech/truth-social-migrates-rumble-cloud-ready-onboard-millions](https://justthenews.com/nation/free-speech/truth-social-migrates-rumble-cloud-ready-onboard-millions)
 
-• 佩罗西访问台湾是大事，若不能降落台湾可能直奔日本。中共严格对待（封锁、攻打台湾），后果对沿海一带和各军事基地将不堪设想（断水、断电）。
-
-•疫苗灾难爆发，癌症高发。各国股市忽上忽下，全球经济存不确定性。
-
-• 中国人对经济充满幻想，香港经济注定完蛋。香港公开在册基金赎回一百八十亿，未公开数据将更大。
-
-• PAG依仗管理费疯狂攻击对其有威胁者，PAG事件将成为金融和司法界现象级丑闻。包含制造虚假证据、收买律师、提供假证词。
-
-• 星期天可能参加《七哥大直播》。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*听写：call me uncle|PR: 乐禧禧| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://express.adobe.com/page/ywl6CMlOrdb7r/images/7985748d-b99b-41ce-a9c5-bc7ea719e24c.jpg?asset_id=b7082805-f817-46fe-b3e8-985a9c53862d&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/ywl6CMlOrdb7r/images/7985748d-b99b-41ce-a9c5-bc7ea719e24c.jpg?asset_id=b7082805-f817-46fe-b3e8-985a9c53862d&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
