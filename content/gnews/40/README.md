@@ -2,29 +2,27 @@
 ---
 
 
-## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
+## 中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391069/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+世界银行行长马尔帕斯4月21日在华盛顿与乌总理什米加尔等召开了圆桌会议。世界银行发布评估称，战争造成的建筑物及基础设施等直接经济损失大约为600亿美元。世行还宣布，乌已通过融资等从包括日本在内的各国筹集了30亿美元资金。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-167.jpg)图片来源于本文链接
 
+什米加尔表示今后需要3个阶段的资金，分别是“战争持续期间的金融和财政支援”、“和平后6～8个月的核心基础设施重建”、“中长期的城市和家庭重建”。马尔帕斯指出需要长期对乌的预算作出支持。以线上方式出席会议的泽连斯基表示俄军破坏了车站及食品销售店等生活基础，强调了经济支援的必要性。什米加尔提出分析称，包括间接损失在内，经济损失已达5600亿美元。
 
-世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
+信息来源： [世行:俄乌冲突给乌克兰造成600亿美元直接损失](https://cn.nikkei.com/politicsaeconomy/epolitics/48347-2022-04-22-15-16-43.html)
 
-马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
-
-目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
-
-国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
-
-來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

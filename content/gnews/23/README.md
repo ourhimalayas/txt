@@ -2,24 +2,18 @@
 ---
 
 
-## 2022年4月22日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2391477/)
+## “三朝帝师”王沪不宁——兼谈“莫德尔斯基长周期理论”
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2391817/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+文贵大直播20220422
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1267.jpg)
+撰稿：三票先生（DC）文复（达芬奇）
 
-发稿：信心的选择
+书法：沙漠之花（香草山）
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-32.jpeg)
+美工：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片9-13.png)
+*发布：Theodosia*
 
  
 

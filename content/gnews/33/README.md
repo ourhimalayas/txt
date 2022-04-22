@@ -2,36 +2,37 @@
 ---
 
 
-## 乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2391206/)
+## 两天2起，俄罗斯寡头遭灭门
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2391414/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-22-下午7.33.02.png)图片来源：互联网
+西班牙当地时间4月19日星期二，千万富翁俄罗斯天然气主管被发现在西班牙的别墅中被绞死，他的妻子和18岁的女儿被砍死。
 
+55岁的（Sergei Protosenya）被发现吊死在他在西班牙的度假屋的院子里，他的妻子娜塔莉亚和他们18岁的女儿被发现在里面被谋杀。
 
-美东时间4月20日，全球喜马拉雅农场联盟委员会主席老班长发出盖文，乌克兰驻新西兰、新加坡和文莱大使馆首席贸易官奥莱娜·费莱纽克向新中国联邦和法治基金发来感谢信。感谢新中国联邦战友克服重重困难，调整航线，帮助Kyrylo Kucherov 先生一家三口顺利抵达新西兰，感谢新中国联邦对离开家园的乌克兰人民提供的帮助。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364041.jpg)
-下面是感谢信的详细内容：
+据报道，警方正在努力假设他在自杀前杀死了她们，然而，报告显示，证据并不确凿。
 
-亲爱的新中国联邦和法治基金负责人：
+此前一天，另一位51岁的俄罗斯商人弗拉迪斯拉夫-阿瓦耶夫（Vladislav Avayev）被发现在莫斯科公寓死亡，他的妻子叶莲娜（47岁）和他们的小女儿玛丽亚也被发现死亡，这对夫妇的成年女儿阿纳斯塔西娅发现了这些尸体都有枪伤。
 
-非常高兴与您分享，尽管飞行航线改变，行程艰难，Kyrylo Kucherov先生一家三口终于顺利抵达新西兰奥克兰（原定机票行程和修改后行程请参见附件）。
+在这两起案件中，这些人都与俄罗斯天然气公司有联系–自从弗拉基米尔-普京发动对乌克兰的入侵以来，其中许多公司面临西方的制裁。
 
-感谢新中国联邦和法治基金对俄罗斯入侵后、离开家园的乌克兰人提供的支持和援助。
+普洛纳森亚（Protosenya）拥有超过3.3亿英镑的财富，曾担任天然气公司Novatek董事会副主席7年。
 
-谢谢！
+阿瓦耶夫（Avayev）曾是Gazprombank（一家为俄罗斯天然气巨头Gazprom服务的银行）的副总裁，也曾是克里姆林宫官员。
 
-奥莱娜·费莱纽克
+这位商人和他53岁的妻子娜塔莉亚有两个孩子，18岁的受害者和一个十几岁的儿子，据称杀人事件发生时他们正在法国。
 
-乌克兰驻新西兰、新加坡和文莱大使馆-首席贸易官
+这个十几岁的儿子在周二打电话给加泰罗尼亚警方，因为他无法联系到任何家庭成员。警察对别墅进行了检查，发现Protosenya显然是自杀后死在院子里。
 
-参考链接：[新中国联邦乌克兰国际人道救援行动](https://gettr.com/post/p167tk235f4)
+警方随后在屋内发现了他妻子和十几岁女儿的尸体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-189.jpg)
+参考链接：[Mystery as multi-millionaire Russian gas executive is found hanged and his wife and daughter, 18, hacked to death in their Spanish villa days after ex Gazprombank official and his family were discovered dead in Moscow flat](https://www.dailymail.co.uk/news/article-10739821/Russian-gas-exec-hanged-wife-daughter-hacked-death-Spanish-villa.html)
 
-总编：雪梨
+* * *
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-4.png)
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

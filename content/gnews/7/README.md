@@ -2,12 +2,18 @@
 ---
 
 
-## 俄罗斯亿万富翁抨击普京的入侵行为
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2391943/)
+## 战友们分享对4.19的感受（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2392261/)
 
-04/20/2022 俄罗斯亿万富翁奥列格·廷科夫抨击乌克兰战争，批评俄罗斯总统普京及其克里姆林宫官员，同时称这场战争‘很疯狂’。但他也表示，西方应该为普京总统找到一条可以保全面子的出路。
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/13：10-13：20-001-1.jpg)
+发布：tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
