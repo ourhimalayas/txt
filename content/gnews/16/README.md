@@ -2,44 +2,85 @@
 ---
 
 
-## 民生集萃——失业了（2022.4.22）&#8211;公司倒闭了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389155/)
+## 众议院议长南希·佩洛西欢迎乌克兰总理杰尼斯·什米加尔来访
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2389179/)
 
-雅典娜情报组《民生灾难收集专栏》
+**众议院议长南希·佩洛西：** 
+作为议长，我今天荣幸地欢迎乌克兰总理杰尼斯·什米加尔@Denys\_Shmyhal 来到美国国会大厦参加双边会议。我代表国会，表达了我们对乌克兰人民在俄罗斯残酷侵略面前捍卫民主的勇气的极大钦佩和尊重。我们讨论了国会如何与拜登总统 [@POTUS](https://gettr.com/user/POTUS) 一起，能够通过安全、经济和人道主义援助继续支持乌克兰。 今天、以及每一天，国会都坚定不移地履行我们两党、两院对于乌克兰的承诺、和坚定追究俄罗斯责任的决心。
 
-整理/编辑：gardeniahu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2709.png)图片来源：雅典娜设计组(614)
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-帖子原文：
 
-公司倒闭了
+> As Speaker, it was my official honor to welcome Prime Minister [@Denys\_Shmyhal](https://twitter.com/Denys_Shmyhal?ref_src=twsrc%5Etfw) of Ukraine to the United States Capitol today for a bilateral meeting. [pic.twitter.com/BSXyYx2SkD](https://t.co/BSXyYx2SkD)
+> — Nancy Pelosi (@SpeakerPelosi) [April 21, 2022](https://twitter.com/SpeakerPelosi/status/1517211884671356929?ref_src=twsrc%5Etfw)
 
-1、老板随便给了一张纸，签了字，我已经回家了。
 
-2、公司10名员工，无合同无社保，基本全部去年入职，（面试行政和主管说入职3－6个月交社保，）入职第三天没签合同，说过段时间签。
 
-3、平时一片祥和，工资从我去也准时发了，单双轮休，5点30准时下班，就因为这个我才没辞职，结果最后被骗。
+**拜登总统： **
+今天，我宣布了提供另外的 8 亿美元，以进一步增强乌克兰在东部的作战能力。 这个(援助)包将包括重型火炮武器、数十门榴弹炮、和14.4万发弹药。 它还包括更多的战术无人机。
 
-4、现在老板处于躺平状态，身份证复印件也给了，但是始终坚持没钱，说大家钱不要的话可以尽情闹。
 
-5、总觉得老板是有预谋的计划着让我们来这个公司，他对外称李总，昨天才知道他姓韩，他了解每一个人的家庭状况，家是哪的做啥的。
 
-发布于04·18
+> Today, I am announcing another $800 million to further augment Ukraine’s ability to fight in the East.
+>  
+> This package will include heavy artillery weapons, dozens of howitzers, and 144,000 rounds of ammunition to go with them. It also includes more tactical drones.
+> — President Biden (@POTUS) [April 21, 2022](https://twitter.com/POTUS/status/1517167525708111873?ref_src=twsrc%5Etfw)
 
-精选评论
 
-记录精简生活回复：看啥拿走能用，能卖，直接拿走。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2710.png)图片来源：小红书
-参考链接：[公司倒闭了](https://www.xiaohongshu.com/discovery/item/625d487b0000000021037643?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650587893)
 
-*发布：tianzhihuan*
+**拜登总统： **
+随着俄罗斯继续对乌克兰施暴，普京指望美国会失去兴趣(或利益)。他押赌西方的团结会破裂。 
+我们将再次证明他错了。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
+> As Russia continues to grind out brutalities against Ukraine, Putin is banking on us losing interest. He is betting that Western unity will crack.
+>  
+> Once again, we will prove him wrong.
+> — President Biden (@POTUS) [April 21, 2022](https://twitter.com/POTUS/status/1517288322875502593?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克·蓬佩奥：** 
+很自豪地支持迈克·加拉格尔 (Mike Gallagher) 连任！他是发出必须抗击 [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 的主要声音，曾服役于海军陆战队并在服役期间两次被部署到伊拉克，他是一位强大的保守派领导人，将会在国内捍卫美国价值观！ 【图中文字：“在对抗 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 挑战的必要性方面，他是一个值得信赖和领导性声音，他在 众议院军事委员会 和 中国问题特别工作组 的服务就证明了这一点”】
+
+
+
+> Proud to endorse Mike Gallagher for reelection! He is a leading voice on the need to confront the Chinese Communist Party, and having served in the Marines during two deployments to Iraq, he is a strong conservative leader who will champion American values here at home! [pic.twitter.com/NwuFIBb9DJ](https://t.co/NwuFIBb9DJ)
+> — Mike Pompeo (@mikepompeo) [April 21, 2022](https://twitter.com/mikepompeo/status/1517201623680004097?ref_src=twsrc%5Etfw)
+
+
+
+**美国务卿安东尼·布林肯： **
+今天，我们自豪地支持通过了美洲国家组织 [@OAS\_official](https://gettr.com/user/OAS_official) 的决议，暂停俄罗斯常驻观察员地位，这是因为普京对乌克兰的残酷侵略战争。 该决议强调，世界与乌克兰站在一起。
+
+
+
+> Today, we proudly support the adoption of the [@OAS\_official](https://twitter.com/OAS_official?ref_src=twsrc%5Etfw) resolution suspending Russia's Permanent Observer status for Putin’s brutal war of aggression against Ukraine. The resolution underscores that the world stands with Ukraine.
+> — Secretary Antony Blinken (@SecBlinken) [April 21, 2022](https://twitter.com/SecBlinken/status/1517240609093861376?ref_src=twsrc%5Etfw)
+
+
+
+**众议院共和党武装委员会： **
+俄罗斯和中（共）国继续以极快的速度现代化其核武库，而拜登总统正在扼杀美国的核现代化计划，以安抚极左势力。 （转推说：在五角大楼因担心与莫斯科的紧张关系升级，而取消洲际弹道导弹试验几天后，俄罗斯试射了洲际弹道导弹）
+
+
+
+> Russia and China continue to modernize their nuclear arsenals at a breakneck pace, while President Biden is killing U.S. nuclear modernization programs to appease the far left. [https://t.co/7NLagvzgEr](https://t.co/7NLagvzgEr)
+> — Armed Services GOP (@HASCRepublicans) [April 21, 2022](https://twitter.com/HASCRepublicans/status/1517108064243048450?ref_src=twsrc%5Etfw)
+
+
+
+**国防部长劳埃德·奥斯汀三世： **
+今天，我迎接乌克兰总理丹尼斯·什米尔@Denys\_Shmyhal 来五角大楼。我重申，随着俄罗斯军队在乌克兰东部发动新的攻势，我们将坚定不移地、持久地支持乌克兰武装部队，其中就包括今天宣布的新的8亿美元一揽子援助计划。
+
+
+
+> Today, I welcomed with Ukrainian Prime Minister [@Denys\_Shmyhal](https://twitter.com/Denys_Shmyhal?ref_src=twsrc%5Etfw) to the Pentagon. I reiterated our unwavering and enduring support for Ukraine’s Armed Forces as Russian forces launch a renewed offensive in eastern Ukraine, including the new $800m aid package announced today. [pic.twitter.com/iFWNKFpf0F](https://t.co/iFWNKFpf0F)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 21, 2022](https://twitter.com/SecDef/status/1517291734753062914?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

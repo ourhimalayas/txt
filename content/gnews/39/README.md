@@ -2,21 +2,22 @@
 ---
 
 
-## 外企纷纷撤出 莫斯科20万人面临失业
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388177/)
+## 俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388176/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本东京方舟农场-Miyali7768(文玉)/纽约香草山教育部-Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-49.jpg)
-莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
+乌克兰总统泽连斯基18日在发表讲话时指出，“俄军已经正式打响他们准备已久的顿巴斯战役”，因为俄罗斯军队自本周一早上开始，就对顿涅茨克州（Donetsk）、卢甘斯克州（Luhansk）和哈尔科夫州（Kharkiv）等乌东地区，几乎整条前线发起新一轮攻势，企图突破乌克兰防线。乌克兰总统幕僚长耶尔马克（Andriy Yermak）表示，战争的第二阶段已经启动，呼吁国民相信军方有能力抵抗。
 
-由于欧美及其他地区陆续祭出制裁，拖垮了俄罗斯经济，并将其推向了外债违约的边缘，造成俄罗斯通货膨胀一路飙升，有经济学家预测，俄罗斯经济将陷入严重衰退。
+综合外媒报道，俄军上月撤出基辅一带等乌北地区后，就一直在乌东地区集结。留守在马里乌波尔地区的亚速营指挥官普罗科彭科(Prokopenko)周一表示，俄罗斯军队正在向马里乌波尔的亚速斯塔尔（Azovstal ）钢铁厂开火，目前有包括妇女、儿童在内的近千人正身处其中，因为这座钢铁厂是附近唯一可用的避难所。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-48.jpg)
+普罗科彭科怒斥俄军在明知有平民的情况下，依然主动对着工厂作无差别军事攻击，使用自由落体炸弹、掩体炸弹等各种丧心病狂的武器将马里乌波尔变成人间地狱。
 
-参考链接：
-1. [Vladimir Putin’s nuclear bomber planes called ‘Bears’ fly in Ukraine striking distance](https://www.mirror.co.uk/news/world-news/vladimir-putins-nuclear-bomber-planes-26735218)
-2. [Mariupol’s defenders dig in for last stand as Russia threatens to ‘filter’ out men](https://edition.cnn.com/2022/04/18/europe/ukraine-russia-mariupol-monday-intl/index.html)
-3. [Russia begins large-scale offensive in eastern Ukraine](https://www.axios.com/ukraine-battle-donbas-eastern-ukraine-russia-df048eb8-688a-4163-a9a2-34bda799b9ab.html)
+同日，乌克兰国防部发言人马兹亚尼克(Oleksandr Motuzyanyk)也证实，发现俄罗斯Tu-22M3战略轰炸机出现在乌克兰东部上空，并且对受围困的港口城市马立波(Mariupol)投放炸弹。不仅如此，乌克兰军方还在莫斯科和乌克兰边境之间的卡卢加地区上空发现了可携带核武器的俄罗斯重型战略轰炸机TU-95。这无疑印证了泽连斯基（Volodymyr Zelensky）早前一再重申的警告，指俄罗斯有可能使用核武器，并呼吁“世界上所有国家”都应该为俄罗斯总统普京，可能在针对乌克兰行动中使用战术核武器做好准备。
+
+对此，美国驻联合国大使认为，普京正在“以不可接受的方式升级这场战争。另外，有军事分析指出，俄军现在正试图包围死守顿巴斯的乌军，顿巴斯战役必会令双方伤亡惨重。
+
+参考链接：[VOA“419断播门”事件掀起波澜壮阔的爆料革命新篇章](https://gnews.org/zh-hans/2372648/)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

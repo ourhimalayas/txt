@@ -2,22 +2,22 @@
 ---
 
 
-## 上海，居民和做核酸檢測者起爭執：做核酸，提前拆開棉簽包裝有交叉傳染的可能。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2389146/)
+## 中共国官媒声称：2500万吨吃的运到上海
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2389147/)
 
-作者：东京樱花团小视频组
-
-
-
-
-
-
-
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴-1.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

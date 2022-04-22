@@ -2,24 +2,65 @@
 ---
 
 
-## 大量武警进驻北京为封城大隔离做预备，习为解困攻打台湾
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2388932/)
+## 2022年4月21日七哥乱聊直播摘要及音讯—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2388960/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421_副本.png)
+视频连接：[04.21.2022 七哥乱聊直播](https://gettr.com/streaming/p16cfisc410)
 
-4月21日，郭文贵先生于Gettr直播中透露得到的确切情报，中共已部署大量武警在首都北京5环内、6环和7环之间，这是北京封城、大隔离的前奏，并表示，虽说上海解封在即但由于习近平的一系列内外“加速”举动只能让民众的生活更加糟糕。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/merlin_167848140_c1362baf-294c-4b8a-b2fb-4df974e4f174-master1050-1.jpg)图片来源Getty Image
+1、北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；
 
+2、上海即将解封，但要秋后算账清算，所谓的净网、搜网活动和419大直播有关，在墙内影响巨大；
 
-目前，中共突然部署大量武警在北京5环以内、6环和7环之间的十几个据点，为北京的封城、大隔离措施做预备。接下来，哈尔滨、青岛、大连、海口的封城、隔离措施会造成更大的社会混乱。
+3、美国众议院议长南希·佩洛西将于4月26日访问台湾！！
 
-当然，中共表面雷厉风行的隔离政策对有钱阶级来说都是空架子，有人在上海封城期间花费200万人民币现金（银行转账遭限制），得以乘坐救护车把全家人运送机场，搭乘私人飞机出国；上海某富豪花600万人民币让女儿和儿子乘坐警车直达机场，搭乘私人飞机出国。有本事、有现金，了解中共的游戏运作，谁也挡不住。而目前报道出来无食物可吃最终吃屎吃死的，只能是穷人。
+4、这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭；
 
-虽说上海解封在即，中共内已决定要在政治上做事后清算，要清查出在上海隔离期间各类社交媒体的反党言论，以及清算那些给海外媒体“递刀子”（传递真相）的人，美其名为“净网行动”。
+5、4月26日-5月6日将是台湾大日子，共产党一定会有所行动！
 
-如今，习近平的困局主要体现在3个方面，1.国内虚假而羸弱的经济，迫在眉睫的粮食危机；2.新冠病毒和极端隔离措施、政治斗争都已经到达极限；3.不可逆的中美矛盾。所以，一切问题的交点被汇集在对台作战，习错误的认知攻占或者毁灭台湾是解决一切问题的根源。
+6、俄罗斯损失惨重，普京向欧美释放和解信号；
 
-从最近中共的股市来看，中共高层都在忙于在股市中洗劫穷人的钱和傻富人的钱套现出逃。同时，中共对台入侵战争随时打响，香港、国内的经济随时崩塌。若美众议长佩罗西4月26日的访台达成，北京将戒严，而上海的状况也只能更糟糕。
+7、习近平的3个绝境：
+
+1）.国内经济崩塌；
+
+2）.病毒隔离极限施压，政治斗争已经到极限了；
+
+3）.被世界政治孤立。
+
+习认为解决所有问题的核心是拿下台湾；
+
+8、4.26-5.6期间，是世界分水岭了。中方，习各方面，经济垮塌找出口，20大没东西交差，内部死定，而佩洛西一去，接着可能拜登要去，台湾就可能独立了，对习更不利，他没路了，打是必须打台湾，就看是打残还是直接抹平，都拿不到；
+
+9、如果6月中下旬普京达成和解或者缴枪了，前线我们可能就不撤退了，甚至直接波兰前线购置物业，在波兰成立第一个新中国联邦战地大使馆，甚至直接去基辅建立新中国联邦大使馆；
+
+10、Nicole和Rachel肯定是第一任驻基辅和波兰大使；
+
+11、新中国联邦的命运已经和乌克兰及犹太人紧密的连在一起
+
+**注：大直播音讯——**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
