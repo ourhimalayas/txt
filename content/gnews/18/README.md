@@ -2,37 +2,25 @@
 ---
 
 
-## 魁省超万名医护人员因病毒原因离岗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
+## 视频|台海兵凶战危 外媒忧台湾网路遭断后與世界失联
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2389769/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+制作：香草山视频部
 
+俄乌战争中，乌克兰人通过网路反击莫斯科的虚假外宣，并成功争取到国际支持，该国总统连斯基也透过网路发出的为乌克兰提供武器的号召。
 
-加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
+外媒18日报导，俄乌战争让台湾和一些亚太国家重新审视自身网路的脆弱程度，并担忧中共攻台会将台湾网路的海底电缆切断。前白宫军事顾问、现华府智库“战略与国际研究中心”（CSIS）高级顾问简以荣指出，北京可能透过乌克兰战事来判断攻台方针，断开台湾与世界的联系，将大幅提升自己的胜率，外媒点出，海底电缆将是中（共）国首要目标。
 
-该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
+台湾95%的数据和语音流量通过海底光缆接收和发送。台湾官员表示，目前有约有14条光缆，在台湾海岸的四个位置连接到岛上。这些电缆在海里被潜艇或潜水员切断，或者防护薄弱的电缆登陆站被军事打击摧毁，那么台湾岛的大部分地区将断网。台湾网路资讯中心（TNIC）执行长黄胜雄也坦言，台湾在这方面非常脆弱。
 
-到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
+此前，郭文贵先生爆料中共已开始台湾之子行动，断网便是其中一个环节，中共攻台某程度就等同于对美日宣战，美日别无选择一定会参战，但台湾必须先奋力反抗侵略，待联合国及国际完成外交应对后，国际方能介入，同时习近平敢在台海使用核武器。
 
-原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+发稿：呼吸的雾霾（文小呼吸）
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

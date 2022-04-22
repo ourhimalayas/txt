@@ -15,92 +15,92 @@
 
 ---
 
-### [银行限制转款取现是为战争做准备 国内未来两年三样最重要](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [日元和人民币受到美联储加息影响](/content/gnews/1/README.md)
+ ` 澳喜农场`
 
-### [秘翻在线：日本自民党宣传部部长河野太郎就中共入侵台湾敲响警钟](/content/gnews/2/README.md)
+### [中国站出来的时候只有两个结局](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [纽日会晤表示将联手继续对俄施压](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [乌克兰精神会成为欧洲精神](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [习近平重申他反对西方国家对俄罗斯的制裁](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [食品和杂货制造商选择将增加的成本 &#8220;转嫁给他们的客户”](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [这场战争的主导者不是普京](/content/gnews/7/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [秘翻在线：日本自民党宣传部部长河野太郎就中共入侵台湾敲响警钟](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花时政┃中美防务领导人会谈前 中共测试新型高超音速导弹](/content/gnews/3/README.md)
+### [樱花时政┃中美防务领导人会谈前 中共测试新型高超音速导弹](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄罗斯关闭三个波罗的海国家领事馆](/content/gnews/4/README.md)
+### [樱花时政┃俄罗斯关闭三个波罗的海国家领事馆](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本正式撤销俄罗斯“最惠国”地位](/content/gnews/5/README.md)
+### [日本正式撤销俄罗斯“最惠国”地位](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP魔厦正在倒塌](/content/gnews/6/README.md)
+### [视频|新中国联邦乌克兰救援行动仍在继续](/content/gnews/12/README.md)
+ ` MOSVIDEO`
+
+### [视频|《铁锁梦》MV荣登多国iTunes榜首](/content/gnews/13/README.md)
+ ` MOSVIDEO`
+
+### [视频|调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害](/content/gnews/14/README.md)
+ ` MOSVIDEO`
+
+### [视频|日本正式取消俄罗斯最惠国待遇](/content/gnews/15/README.md)
+ ` MOSVIDEO`
+
+### [视频|美国宣布对俄实施新制裁](/content/gnews/16/README.md)
+ ` MOSVIDEO`
+
+### [视频|多国继续强力军援乌克兰](/content/gnews/17/README.md)
+ ` MOSVIDEO`
+
+### [视频|台海兵凶战危 外媒忧台湾网路遭断后與世界失联](/content/gnews/18/README.md)
+ ` MOSVIDEO`
+
+### [CCP魔厦正在倒塌](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美国免除4万笔学生贷款，并向360万名学生提供援助](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [视频|针对王岐山的爆料仍未完结](/content/gnews/8/README.md)
+### [视频|针对王岐山的爆料仍未完结](/content/gnews/20/README.md)
  ` MOSVIDEO`
 
-### [拜登宣布向乌克兰再提供 8 亿美元的军事援助](/content/gnews/9/README.md)
+### [拜登宣布向乌克兰再提供 8 亿美元的军事援助](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [视频|419“知蒋干、用蒋干”之策](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/11/README.md)
- ` MOSVIDEO`
-
-### [视频|郭先生回顾419采访的始末](/content/gnews/12/README.md)
- ` MOSVIDEO`
-
-### [视频|俄乌战局最新消息汇总](/content/gnews/13/README.md)
- ` MOSVIDEO`
-
-### [Covid通过切断中共国开发商的现金流来打击他们](/content/gnews/14/README.md)
+### [Covid通过切断中共国开发商的现金流来打击他们](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳洲反对党领袖在竞选活动期间确诊新冠](/content/gnews/15/README.md)
- ` 澳喜特战旅Gnews`
-
-### [普京测试 “世上最致命武器”](/content/gnews/16/README.md)
+### [普京测试 “世上最致命武器”](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|濒临破产 中共银行无故阻挠客户取款](/content/gnews/17/README.md)
- ` MOSVIDEO`
-
-### [魁省超万名医护人员因病毒原因离岗](/content/gnews/18/README.md)
+### [魁省超万名医护人员因病毒原因离岗](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [秘翻在线：中华电视公司（CTS）播出系列假信息其意何在?](/content/gnews/19/README.md)
+### [秘翻在线：中华电视公司（CTS）播出系列假信息其意何在?](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共将对台湾有动作，打台湾不行就铲平](/content/gnews/20/README.md)
+### [中共将对台湾有动作，打台湾不行就铲平](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃日本2022年《外交蓝皮书》出台 对俄立场发生重大改变](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频|美、澳、日、新重提印太风险](/content/gnews/22/README.md)
- ` MOSVIDEO`
-
-### [视频|新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/23/README.md)
- ` MOSVIDEO`
-
-### [内斗加速 中共内蒙高法前院长胡毅峰落马](/content/gnews/24/README.md)
+### [内斗加速 中共内蒙高法前院长胡毅峰落马](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃日本若撤出“库页岛2号项目”，中俄将受益并推高油价！](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [剖析一季度统计数据，中共国经济恶化已不可避免](/content/gnews/26/README.md)
+### [剖析一季度统计数据，中共国经济恶化已不可避免](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [亚裔美国人正在决绝地放弃民主党而转向共和党](/content/gnews/27/README.md)
+### [亚裔美国人正在决绝地放弃民主党而转向共和党](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中日财经爆|今年前4个月中共国内理财产品骤减近5000只](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频|郭先生再提“郭七条”的意义](/content/gnews/29/README.md)
- ` MOSVIDEO`
 
 ### [COVID-19疫苗副作用集萃（2022.4.12D）&#8211;是否巧合。](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
