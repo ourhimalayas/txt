@@ -2,65 +2,39 @@
 ---
 
 
-## 2022年4月21日七哥乱聊直播摘要及音讯—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2388960/)
+## COVID-19疫苗副作用集萃（2022.4.22A）&#8211;打新冠疫苗后情绪超级差
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389057/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220421_副本.png)
-视频连接：[04.21.2022 七哥乱聊直播](https://gettr.com/streaming/p16cfisc410)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-1、北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏；
+整理/编辑：机器猫
 
-2、上海即将解封，但要秋后算账清算，所谓的净网、搜网活动和419大直播有关，在墙内影响巨大；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-59.png)图片来源：雅典娜设计组(614)
 
-3、美国众议院议长南希·佩洛西将于4月26日访问台湾！！
 
-4、这次美方对于中共的“严重关切”不予理睬。中共撂狠话，4月26日将是一个中美关系的分水岭；
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-5、4月26日-5月6日将是台湾大日子，共产党一定会有所行动！
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-6、俄罗斯损失惨重，普京向欧美释放和解信号；
+帖子原文：
 
-7、习近平的3个绝境：
+原文作者：海魂归顾里
 
-1）.国内经济崩塌；
+打完新冠疫苗后情绪超级差
 
-2）.病毒隔离极限施压，政治斗争已经到极限了；
+因为去年做了甲状腺手术，本来不想打新冠疫苗，害怕身体会出现问题。然后现在是全民必须疫苗，金融单位员工在七月底前必须完成接种，除非有证据可以不打。去医院打证明，癌症手术只有半年内的可以不打，半年外的也必须打，所以今天就去打了。打完之后，头晕得厉害，一整天都头晕恶心，然后回家后，心情开始低落，情绪超级崩溃，感觉生活一点都不美好，眼泪止不住地掉。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2704.png)图片来源：小红书
+素材来源：
 
-3）.被世界政治孤立。
+[打新冠疫苗后情绪超级差](https://www.xiaohongshu.com/discovery/item/6101476e000000002103ab6c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650588491)
 
-习认为解决所有问题的核心是拿下台湾；
+*发布：tianzhihuan*
 
-8、4.26-5.6期间，是世界分水岭了。中方，习各方面，经济垮塌找出口，20大没东西交差，内部死定，而佩洛西一去，接着可能拜登要去，台湾就可能独立了，对习更不利，他没路了，打是必须打台湾，就看是打残还是直接抹平，都拿不到；
-
-9、如果6月中下旬普京达成和解或者缴枪了，前线我们可能就不撤退了，甚至直接波兰前线购置物业，在波兰成立第一个新中国联邦战地大使馆，甚至直接去基辅建立新中国联邦大使馆；
-
-10、Nicole和Rachel肯定是第一任驻基辅和波兰大使；
-
-11、新中国联邦的命运已经和乌克兰及犹太人紧密的连在一起
-
-**注：大直播音讯——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

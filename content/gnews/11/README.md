@@ -2,13 +2,22 @@
 ---
 
 
-## 岸田文雄向靖国神社供奉“真榊”祭品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388802/)
+## 中共国，棺材封条！这ccp充当了道士的角色。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2388948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+作者：东京樱花团小视频组
+
+
+
+
+
+
+
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

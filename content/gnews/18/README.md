@@ -2,13 +2,13 @@
 ---
 
 
-## 4月21日文贵临时直播要点（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2388691/)
+## 岸田文雄向靖国神社供奉“真榊”祭品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2388802/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5EBF1D1D-AAC7-4DDA-B002-9DF0E01191CD-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/E8E3379F-4A56-448B-8B30-A19039949F75-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9954F205-0998-4145-93CB-9F271A3F2C6E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2F9A692E-694F-4929-9FEF-A69002BE7663-scaled.jpeg)
-发布：水涨船高
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

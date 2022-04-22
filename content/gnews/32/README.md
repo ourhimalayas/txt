@@ -2,28 +2,29 @@
 ---
 
 
-## 新中国联邦可能会在乌克兰和波兰建立大使馆
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2388068/)
+## 外企纷纷撤出 莫斯科20万人面临失业
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388177/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111111.jpg)
-4月22日直播中，郭先生提到，目前普京由于战事上的节节败退，对西方发出了和解信号，谈判结果可能在6月中旬或者下旬定下来。如若普京交枪投降，那么我们在前线对乌克兰的救援行动可能会有一个大的改变，我们也许会在当地置办一个固定的物业，和当地政府商量，建立第一个大使馆，称为新中国联邦驻梅迪卡战地大使馆。另外我们也会深入到乌克兰基辅，建立新中国联邦驻基辅大使馆。随即也会派出新中国联邦的大使。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-49.jpg)
+莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
 
-新中国联邦在前线的救援行动，已经将乌克兰人、犹太组织和我们的命运紧紧连在一起。尽管救援行动开始之前我们和联合国谈论的合作因对方迫于对中共的恐惧而未展示书面形式，但谈论合作本身就给新中国联邦奠定了国际关系交流的基础，目前新中国联邦在网路的搜索量已经从过去的千万级增加到了十几亿级。并且乌克兰可能会成立一个小北约，届时会把新中国联邦也加入。
+由于欧美及其他地区陆续祭出制裁，拖垮了俄罗斯经济，并将其推向了外债违约的边缘，造成俄罗斯通货膨胀一路飙升，有经济学家预测，俄罗斯经济将陷入严重衰退。
 
-撰稿、发布：骄子
+参考链接：
+1. [Vladimir Putin’s nuclear bomber planes called ‘Bears’ fly in Ukraine striking distance](https://www.mirror.co.uk/news/world-news/vladimir-putins-nuclear-bomber-planes-26735218)
+2. [Mariupol’s defenders dig in for last stand as Russia threatens to ‘filter’ out men](https://edition.cnn.com/2022/04/18/europe/ukraine-russia-mariupol-monday-intl/index.html)
+3. [Russia begins large-scale offensive in eastern Ukraine](https://www.axios.com/ukraine-battle-donbas-eastern-ukraine-russia-df048eb8-688a-4163-a9a2-34bda799b9ab.html)
 
-* * *
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-欢迎订阅我们的GNews账号：
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
