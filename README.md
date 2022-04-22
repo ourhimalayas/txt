@@ -15,68 +15,68 @@
 
 ---
 
-### [以“反恐为名”把整个美国各金融机构控制、威胁](/content/gnews/1/README.md)
+### [加拿大通胀率失控再创新高](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [喜联储的KYC不容易过](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [DC每日热点0422](/content/gnews/2/README.md)
+### [喜币是一个稳定价值的数字化](/content/gnews/3/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [以“反恐为名”把整个美国各金融机构控制、威胁](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [DC每日热点0422](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一旦剥夺钱的使用权力，你跟死人没啥两样](/content/gnews/3/README.md)
+### [一旦剥夺钱的使用权力，你跟死人没啥两样](/content/gnews/6/README.md)
  ` 加拿大温哥华英里农场`
 
-### [加拿大强制疫苗政策加剧军队人员短缺](/content/gnews/4/README.md)
+### [加拿大强制疫苗政策加剧军队人员短缺](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [财富已经成了统治人类的最重要的工具](/content/gnews/5/README.md)
+### [财富已经成了统治人类的最重要的工具](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [地中海三国最后一定参与战争](/content/gnews/6/README.md)
+### [地中海三国最后一定参与战争](/content/gnews/9/README.md)
  ` 加拿大温哥华英里农场`
 
-### [打台湾是要打垮美国供应链](/content/gnews/7/README.md)
+### [打台湾是要打垮美国供应链](/content/gnews/10/README.md)
  ` 加拿大温哥华英里农场`
 
-### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（下）](/content/gnews/8/README.md)
+### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（下）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（中）](/content/gnews/9/README.md)
+### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（中）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [星链在乌克兰击退了俄罗斯的干扰攻击](/content/gnews/10/README.md)
+### [星链在乌克兰击退了俄罗斯的干扰攻击](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](/content/gnews/11/README.md)
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月20日晚](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [普习两魔头的结盟及其给世界带来的灾难（十一）](/content/gnews/12/README.md)
- ` 纽约香草山MOS02`
-
-### [中共想在这个乱世当中控制中东的能源](/content/gnews/13/README.md)
- ` 加拿大温哥华英里农场`
-
-### [有声|普习两魔头的结盟及其给世界带来的灾难（九）](/content/gnews/14/README.md)
+### [有声|普习两魔头的结盟及其给世界带来的灾难（九）](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [加拿大魁省疫情毫无减弱趋势](/content/gnews/15/README.md)
+### [加拿大魁省疫情毫无减弱趋势](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（上）](/content/gnews/16/README.md)
+### [马里乌波尔钢铁厂的乌克兰军队&#8221;最后一次向世界呼救&#8221;，寻求援助营救平民（上）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G时新闻】加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/17/README.md)
+### [【G时新闻】加拿大民调显示病毒感染者存在长期后遗症](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [英国将于下周重启驻基辅大使馆](/content/gnews/18/README.md)
+### [英国将于下周重启驻基辅大使馆](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/19/README.md)
+### [新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/20/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声新闻-新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/20/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/21/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [法国总统选举 马克龙的主导地位在辩论后没有改变](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【G时新闻】加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/22/README.md)
  ` G-时新闻`

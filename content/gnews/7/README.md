@@ -2,13 +2,36 @@
 ---
 
 
-## 打台湾是要打垮美国供应链
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2393444/)
+## 加拿大强制疫苗政策加剧军队人员短缺
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2393461/)
 
-**听写：叮叮    编辑：文宝**
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506516691.png)图片来源：CTV新闻
 
-我们被大家推荐为世界第一负责任大国，以后重组联合国了，我说了算了。你不服？油不行、气不行、欧洲完蛋了、美元没人用了、我是人民币美元、数字人民币，你再制裁不了我了。你美国制裁的人都到我这儿来。你不制裁它，最后弱国也到我这儿来，所有独裁国家都变成流氓，都到我这儿来。包括在民主国家当总统，当两届满，还想当是吧？到我这儿来，不要担心美国制裁。”这是核心。习近平咋会为了你俄罗斯打仗乌克兰，他就不打台湾了呢？打台湾是要芯片、要技术，把美国整个供应链给打垮，美国的技术供应链打垮，中东的天然气和石油打垮了，欧洲的天然气、石油打垮了。世界的金融系统整个未来，就会人类上走了粮食危机、金融市场崩盘、社会秩序崩盘、所有供应链崩断。那你宗教上有大量的这种事件发生、否定当中基本消失。那你告诉我人类上面临什么？
 
+据【CTV新闻】4月19日报道，由于新兵招募和培训因疫情而被迫中断，加拿大军队目前已出现兵员持续短缺的现象。而联邦政府针对服役人员的强制疫苗政策使以上情况变得更加严重。
+
+据悉，国防部去年命令所有军人必须在 12 月中旬之前完全接种疫苗。该命令到期后，军方已向近 1,000 名拒绝接种者发出警告，同时对 445 名违抗接种令的成员进行了正式审查。
+
+国防部发言人当天称，自去年12 月以来，已有 39 人因违反接种令被军队开除，206 人正在被开除的过程中，另有94 人自行辞职。而目前加拿大军队距离人员满编则缺少大约 10,000 名军人。
+
+原文链接：[https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248](https://www.ctvnews.ca/health/coronavirus/national-defence-says-fewer-unvaccinated-troops-kicked-out-of-military-than-reported-1.5867248)
+
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【活力人生】
+素材/采编 -【活力人生】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
