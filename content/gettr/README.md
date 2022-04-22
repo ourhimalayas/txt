@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 10:57 PM (UTC)`
+
+【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
+![img](https://media.gettr.com/group34/getter/2022/04/22/22/d47979df-30f5-bf74-7f9b-ecd23072b98d/out.jpg)
+
+---
+
 `@miles 4/22/2022 10:41 PM (UTC)`
 
 【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
@@ -146,13 +153,6 @@
 
 A French volunteer has been to China 12 times and he loves China very much. Nicole told him that the Chinese Communist Party (CCP) created many disasters for people both inside China and worldwide, including this pandemic, which is caused by the CCP virus, (should) not (be called) the Chinese virus. He blesses all the people from the New Federal State of China (NFSC) and supports us to take down the CCP.<br/><br/>一位来自法国的志愿者说他去过中国12次，而且他非常喜爱中国。妮可告诉他中国共产党不仅给中共国内的人民制造灾难，而且给全世界的人制造灾难，包括这次疫情，是由中共病毒引起的，而不（应该）是（被称为）中国人病毒。他祝福所有新中国联邦人，并且支持我们推翻中共。
 ![img](https://media.gettr.com/group39/origin/2022/04/22/05/4b663130-a81c-8bcd-ec0e-20cfb10d439e/out.jpg)
-
----
-
-`@miles 4/22/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group24/origin/2022/04/22/04/5d6ed0f6-a75c-16a8-6a7a-18553d810898/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
