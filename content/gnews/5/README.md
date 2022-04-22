@@ -2,11 +2,25 @@
 ---
 
 
-## 4/22/2022 七哥盖特：台海战争一触即发！中共这次很认真地想要攻打或封锁台湾！上海、香港一定会成为台湾反击的目标，福建将成为第一个受害者，大连、青岛的军事基地也将十分危险
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2394383/)
+## 视频|疫情乱像
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2394562/)
 
-秘密翻译组-北美组
+【文案编辑】@ Miyali7768(文玉） 
+【文案线索】菜园子112~尕虎 
+【文案审核】爱米粒 
+【制作团队】大直播短视频组 
+【视频剪辑】不疑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】 [https://discord.com/channels/895274776606699583/948790187322908692/966633464789078036](https://discord.com/channels/895274776606699583/948790187322908692/966633464789078036)
 
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

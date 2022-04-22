@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 11:40 PM (UTC)`
+
+【Ukraine Rescue】 04/21/2022 A volunteer from France applauds the idea of eliminating the CCP. He says: We should help the Chinese people to fight against the dictatorship of the CCP, maybe having coffee with you is a way to show our support!<br/><br/>【乌克兰救援】 04/21/2022 一位来自法国的志愿者为我们铲除中共的理念鼓掌叫好。他表示：所有人都应当帮助中国人民来反对中共的独裁统治，也许和你们共饮咖啡是一种表示支持的方式！<br/>
+![img](https://media.gettr.com/group19/getter/2022/04/22/23/1b92a24c-38d1-1389-de3a-f24d5c33cb46/out.jpg)
+
+---
+
+`@miles 4/22/2022 11:27 PM (UTC)`
+
+【Ukraine Rescue】 04/21/2022 International volunteer from the UK says she will have people in her circle download Gettr and GNews and spread the truth. She also hopes the voice of NFSC can be heard by many people.<br/><br/>【乌克兰救援】 04/21/2022 来自英国的国际志愿者表示，她会让她的圈子里的人下载盖特和 GNews并传播真相。她也希望新中国联邦的声音能被更多人听到。
+![img](https://media.gettr.com/group46/getter/2022/04/22/23/e2041ba7-9aa1-3c73-a06a-6a86519d96df/out.jpg)
+
+---
+
 `@miles 4/22/2022 11:13 PM (UTC)`
 
 【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案
@@ -139,20 +153,6 @@
 
 新中国联邦和法治基金收到来自乌克兰驻新西兰\新加坡\文莱大使馆的感谢信<br/>The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand<br/>#ukrainerescue  #nfsc新中国联邦 #乌克兰救援nfsc
 ![img](https://media.gettr.com/group14/origin/2022/04/22/12/795c66d7-c3ff-deef-84bb-12209586723a/out.jpg)
-
----
-
-`@miles 4/22/2022 10:58 AM (UTC)`
-
-2022.04.22  新中国联邦 | 军情室  从对内镇压到对外渗透  谈中共武警部队在武力犯台时的作用
-![img](https://media.gettr.com/group8/origin/2022/04/22/10/ebc448ce-0910-e533-2d37-9f495dc83b53/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 10:56 AM (UTC)`
-
-【Ukraine Rescue】 04/21/2022  A Polish volunteer from the American Jewish agency JDC thanks the ROLF and the NFSC for their thoughtful services in helping refugees. He hopes the NFSC can take down the CCP soon.<br/><br/>【乌克兰救援】 04/21/2022  美国犹太机构JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务，他祝愿新中国联邦早日成功灭共。
-![img](https://media.gettr.com/group13/getter/2022/04/22/10/4e83297e-7a75-9fbe-217c-77e3f4600228/out.jpg)
 
 ---
 

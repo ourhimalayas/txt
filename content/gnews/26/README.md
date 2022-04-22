@@ -2,34 +2,29 @@
 ---
 
 
-## 近四分之一加拿大人感染了COVID-19
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393974/)
+## 郭文贵4.21：北京大隔离即将到来
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2394045/)
 
-##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2800.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-22-at-21.39.31.png)
+4月21日，郭文贵先生突然直播，他说，中共武警已经部署到北京至少十几个地方，这是拟大隔离的前奏。
 
+据郭先生的消息透露，美国众议院议长南希佩洛西将于4月26日访问台湾，而且不会变了。
 
-据CTV news 4月19日报道，在一项新的在线调查中，近四分之一的加拿大受访者表示他们已经感染了COVID-19，而约四分之三的人没有感染。随着该国努力应对第六波COVID-19大流行，与公众共享的数据越来越少。加拿大最大的市场研究和分析公司莱热（Leger）执行副总裁克里斯蒂安•布尔克(Christian Bourque)表示，值得注意的是，报告的感染率高于官方数据显示的水平。
+中共与美方举行紧急会晤，并向美方表达了所谓的“严重关切”。然而，这次美方对于中共的“严重关切”不予理睬，认为中方没有关切俄罗斯入侵乌克兰事件，现在中方关切什么呢？而且南希佩洛西是议长，三权分立的美国，政府管不了议长的日程。
 
-这项在线调查于4月8日至10日进行，共有1538名加拿大人参加。由于网络调查不被认为是随机抽样，因此无法确定误差范围。在18岁至34岁的受访者中，30%的人表示自己感染了COVID-19，而在55岁及以上的受访者中，12%的人感染了这种疾病。“真正引人注目的是年龄方面的差异，”布尔克说，“这似乎与我们看到的模式相吻合，你去餐馆、酒吧和音乐会的社交活动越多，你就越容易感染这种疾病。”
+之后，中共撂狠话，称—4月26日将是一个中美关系的分水岭！
 
-原文链接：[https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636](https://www.ctvnews.ca/health/coronavirus/almost-one-in-four-canadians-have-been-infected-with-covid-19-poll-1.5866636)
+根据郭先生获得的准确情报，北京五环以内及六环和七环之间有十几个点大量进驻武警。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【重生之鹰】
-素材/采编 -【青青】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+郭先生预计，“这应该是北京大隔离的前奏，如果中共在4月26日至5月6日之间对台湾采取行动，北京肯定会实施戒严，上海的局势将更糟糕”。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+因此，郭先生呼吁北京的战友为大规模隔离做好充分准备。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+[Miles Guo Getter](https://gettr.com/post/p16cfisc410)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

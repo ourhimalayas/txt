@@ -2,21 +2,36 @@
 ---
 
 
-## 加拿大通胀率失控再创新高
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2394177/)
+## 加拿大媒体报道法治基金乌克兰救援行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2394230/)
 
-加拿大温哥华扬帆农场    平民正道
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506658531.png)图片来源：多伦多太阳报
 
-据[CTV新闻]4月20日报道，加拿大统计局最新报告显示，该国目前的通胀率已接近7%，并达到自1991年以来消费价格指数同比增幅的最高水平。
 
-据悉，3月份消费指数上升的主要原因包括居高不下的房地产市场、疫情及俄乌战争所导致的供应链限制等。其中汽油价格升幅最大，与去年同比上涨了约40%，新屋价格同比增长13%；此外，乳制品，鸡蛋，面粉和谷物以及日常用品等价格，都创自1983年以来的最大涨幅。
+据《多伦多太阳报》4月19日报道，俄乌战争已导致数百万乌克兰人被迫逃离家园，许多人首先抵达波兰边境小镇梅迪卡。因此，众多非政府组织和宗教团体都在该地搭建临时帐篷为难民提供服务。其中，穿黄色服务背心的[法治基金]志愿者随处可见，引人注目。
 
-报道称，尽管平均工资增长了3.4%，但仍然远低于持续上升的通胀率，并最终导致加拿大人的实际购买力显著下降。为减缓恶性通胀影响，加拿大银行最近已将基准利率上调至1%，并警告还会有更多的加息措施。
+报道称，在所有临时建立的服务设施中，由[法治基金]的华裔美国人所经营的帐篷是其中最大和最有组织的一个。其中名为Feather的自愿者是一名来自加拿大多伦多大学，今年才19岁的大学生。
 
+Feather在采访中对媒体表示：能够帮助到一位既不会说英语也不会说波兰语的乌克兰老妇人与她在多伦多的儿子最终团聚，是让她和所有法治基金救援团队成员都感到非常自豪的一件事。
+
+原文链接：[https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
+
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【文所未闻】
+素材/采编 -【坐看云起时】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-编辑： 平民正道    发布：平民正道
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

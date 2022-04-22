@@ -2,21 +2,38 @@
 ---
 
 
-## 过半加拿大人正与经济困难作斗争
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394184/)
+## 世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394440/)
 
-作者：加拿大温哥华扬帆农场-重生之鹰
+##### 作者：加拿大温哥华扬帆农场 -【文莱/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2821.png)图片来源：[https://thehill.com/](https://thehill.com/policy/healthcare/3272919-almost-150-attacks-reported-against-health-care-facilities-in-ukraine-who/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-77.png)图片来源：TNH
 
+据《国会山报》The Hill 4月19日报道，世界卫生组织总干事谭德塞周二表示，迄今为止，世卫组织已核实147起针对乌克兰医疗设施的袭击事件，其中73人死亡，53人受伤。并再次呼吁俄罗斯结束战争。
 
-《真北方》TRUE NORTH网站报道：据一项新的民意调查显示，加拿大全国半数以上的人正在努力解决个人财务问题，有些人甚至说他们接近崩溃。根据The Hub委托的一项于4月8日至11日进行的公共广场研究(Public Square Research)调查，51%的受访者表示，他们的钱包有问题。随着国家摆脱大流行，经济问题已超过COVID-19成为加拿大人最关心的问题。37%的受访者将生活成本列为首要问题。通胀紧随其后，为13%。
+今年3月，乌克兰官员指责俄罗斯轰炸了马里乌波尔一所妇产医院，造成3人死亡，十几人受伤，被毁的照片广为流传。
 
-周一，在经济学家等待加拿大统计局(Statistics Canada)公布最新国内通胀数据之际，加元下跌了0.07%。上个月，通货膨胀率达到30年来的最高点，消费者价格指数为5.7%。根据加拿大政策替代中心的一项研究发现，大多数加拿大人的工资只增长了2.7%，而通胀率每年增长3.4%，通货膨胀对加拿大人打击很大。益普索最近的另一项调查发现，近三分之一的加拿大人离破产只有200美元之遥。生活成本已成为加拿大保守党领导人竞选的中心议题，国会议员皮埃尔·波里耶夫(Pierre Poilievre)将其作为竞选的中心议题。
+乌克兰官员还指责俄罗斯袭击了乌克兰南部城市米克莱夫的一家癌症医院和其他几栋建筑。美国上个月认定，俄罗斯在乌克兰犯下了战争罪。美国国务卿安东尼·布林肯(Antony Blinken)在宣布正式评估报告时，指出了俄罗斯军队袭击医院等行为。拜登总统和前总统特朗普也声称俄罗斯在乌克兰犯下了种族灭绝罪。
 
-链接：[https://tnc.news/2022/04/19/over-half-of-canadians-struggling-with-financial-difficulties/](https://tnc.news/2022/04/19/over-half-of-canadians-struggling-with-financial-difficulties/)
+原文链接：[https://thehill.com/policy/healthcare/3272919-almost-150-attacks-reported-against-health-care-facilities-in-ukraine-who/](https://thehill.com/policy/healthcare/3272919-almost-150-attacks-reported-against-health-care-facilities-in-ukraine-who/)
 
-采编：文莱， 编辑发稿：硫酸羟氯喹64
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+
 
  
 
