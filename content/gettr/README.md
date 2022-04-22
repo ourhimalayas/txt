@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 11:13 PM (UTC)`
+
+【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案
+![img](https://media.gettr.com/group8/getter/2022/04/22/23/8aaae5a9-060d-b995-7e72-050cf7f5df0f/out.jpg)
+
+---
+
+`@miles 4/22/2022 11:10 PM (UTC)`
+
+2022.04.22  NFSC news  Canadian Media Covers NFSC’s Ukrainian Rescue Operation
+![img](https://media.gettr.com/group3/origin/2022/04/22/22/cac28c05-7dde-5795-4ec1-37596e58a683/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/22/2022 10:57 PM (UTC)`
 
 【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
@@ -139,20 +153,6 @@
 
 【Ukraine Rescue】 04/21/2022  A Polish volunteer from the American Jewish agency JDC thanks the ROLF and the NFSC for their thoughtful services in helping refugees. He hopes the NFSC can take down the CCP soon.<br/><br/>【乌克兰救援】 04/21/2022  美国犹太机构JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务，他祝愿新中国联邦早日成功灭共。
 ![img](https://media.gettr.com/group13/getter/2022/04/22/10/4e83297e-7a75-9fbe-217c-77e3f4600228/out.jpg)
-
----
-
-`@miles 4/22/2022 8:53 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group25/origin/2022/04/22/08/61f989c0-a9d7-a900-2360-49538a7c3d08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 5:00 AM (UTC)`
-
-A French volunteer has been to China 12 times and he loves China very much. Nicole told him that the Chinese Communist Party (CCP) created many disasters for people both inside China and worldwide, including this pandemic, which is caused by the CCP virus, (should) not (be called) the Chinese virus. He blesses all the people from the New Federal State of China (NFSC) and supports us to take down the CCP.<br/><br/>一位来自法国的志愿者说他去过中国12次，而且他非常喜爱中国。妮可告诉他中国共产党不仅给中共国内的人民制造灾难，而且给全世界的人制造灾难，包括这次疫情，是由中共病毒引起的，而不（应该）是（被称为）中国人病毒。他祝福所有新中国联邦人，并且支持我们推翻中共。
-![img](https://media.gettr.com/group39/origin/2022/04/22/05/4b663130-a81c-8bcd-ec0e-20cfb10d439e/out.jpg)
 
 ---
 

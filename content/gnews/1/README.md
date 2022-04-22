@@ -2,48 +2,28 @@
 ---
 
 
-## 装置作品《成都双年展作品（二）》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2394384/)
+## 河北首富疑为大午集团新东家，观察人士称魏家勾结当权者发不义横财
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2394512/)
 
-整理：vale
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
-作品名称：成都双年展作品
-作者：王钟
-材质：装置作品
+# **撰稿：日本东京方舟农场 胖小哥**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2812.png)
+河北高碑店市法院4月15日将大午集团旗下的所有资产，以6.861亿人民币(约合1.1亿美元)的低价拍卖给河北保定芮溪科技有限公司。若以大午资产51亿人民币的帐面价值计算，获利空间至少44亿人民币起跳。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2813.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-47.jpg)大午集团推特图 （大午集团推特截图）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2814.png)
+根据网上公开注册信息显示，保定芮溪是2022年4月12日才新成立的公司，认缴、而非实缴的资本额是7亿人民币，法定负责人是赵安东，监事为刘玉婷，被质疑是针对拍卖成立的“白手套”纸上公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2815.png)
+根据不具名的知情人士向美国之音透露，保定芮溪得标后，本周前来办理交接的团队都是长城汽车集团的人马，包括前长城高管、现挂名保定市长城智能科技有限公司负责人的俞伟娜。另外，有100多名长城的员工在大午温泉度假村盘点库存，但“库盘两日没盘完，后来不来了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2816.png)
+这位知情人士说:“长城有很多关联公司……交接的那天，俞伟娜在场，盘点人员私下承认是长城员工，赵安东是魏建军妹妹的儿子。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2817.png)
+著有《投资中国:你必须知道的陷阱》一书的高为邦说，中国法治不彰，商人赚到钱不转到国外，只要得罪中共或当权者，资产被掠夺一空，司空见惯，而且根本没有翻案的机会，因为中共不可能认错。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2818.png)
+参考链接：
+[河北首富疑为大午集团新东家，观察人士:魏家勾结当权者发不义横财 (voachinese.com)](https://www.voachinese.com/a/great-wall-motor-is-believed-to-collude-with-those-in-power-to-reap-gains-from-dawu-s-assets-20220421/6539477.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2819.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2820.png)
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：信心的选择
-
-当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+总编： 老孙
+校对发布：Linda
 
  
 
