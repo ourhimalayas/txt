@@ -2,36 +2,63 @@
 ---
 
 
-## 专家建议在聚会等计划前需多次病毒检测
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392523/)
+## 美国及世界疫情简报（04-22-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2392528/)
 
-##### 作者：加拿大温哥华扬帆农场 -【硫酸羟氯喹64/晨熹】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2788.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
+整理：波士顿五月花 老枪6
+![](https://assets.gnews.org/wp-content/uploads/2022/04/202204.jpg)
+今天是2022年4月22号，星期五。
+以下是美国及世界昨日的疫情简报。
+
+**1．美国疫情**
+
+美国新增新冠患者68,781人，总确诊80,801,713人。新增死亡877人，总死亡 990,208人。
+
+康州新增新冠感染1,010人，新增死亡12人。
+
+纽约州新增新冠感染7,614人；新增死亡26人。
+
+新泽西州新增病例2,245人；新增死亡7人。
+
+马萨诸塞州新增新冠患者1,986人；新增死亡27人。
+
+马里兰州新增新冠感染636人；新增死亡5人。
+
+**2．世界疫情**
+
+1）亚洲疫情
+
+印度新增新冠患者2,380人；日本新增47,829人；菲律宾新增365人；孟加拉新增28人；土耳其新增3,668人；韩国新增90,825人；中国新增30,440人。
+
+2）非洲疫情
+
+南非新增新冠患者2,842人；埃塞俄比亚新增47人；摩洛哥新增40人。
+
+3）拉美疫情
+
+巴西新增新冠患者36,750人；哥伦比亚新增248人；智利新增2,885人；墨西哥新增1,290人。
+
+4）欧洲疫情
+
+俄罗斯新增新冠患者9,078人；德国新增186,325人；法国新增155,783人；英国新增27,321人；意大利新增100,440人。
+
+**5）全球新冠总感染人数为507,885,835人，总死亡人数为6,211,633人。**
+
+**3．新闻简报**
+
+1、尽管最近有所缓解，但由于 Covid-19 的封锁，中国对石油的需求大幅减少。
+2、Anthony Fauci 博士曾表示，我们“绝不可能”对导致COVID19 的呼吸系统综合症 SARS-CoV-2的病毒清零。
+3、据悉，4月21日，香港新增新冠病例为628宗，七天平均值为714宗。香港确诊新冠患者总数为1,200,628人，死亡总数为9,238人。
+4、据中共上海市卫健委通报：4月21日，新增本土新冠肺炎确诊病例1,931例和无症状感染者15,698例，其中143例确诊病例为此前无症状感染者转归，1,685例确诊病例和15,551例无症状感染者在隔离管控中发现，其余在相关风险人群排查中发现。
 
 
-据【CTV NEWS】4月17日报道，两年来人第一次庆祝复活节和逾越节时面临很少的公共卫生限制，但专家提醒大家仍需保持谨慎，这意味要更多的使用到快速抗原检测 (RAT)。
 
-但安大略省科学家皮特·朱尼认为，由于目前对奥米克戎的BA.2亚变体缺乏了解，用RAT很难检测到。他建议加拿大人在聚会等计划前至少进行两次快速检测，间隔24小时，没有任何症状才可以。”朱尼还建议聚集需限制人数，避免拥挤，确保通风。
-
-据悉，奥米克戎BA.2亚变体最初在加拿大的传播似乎相对缓慢，然而现在已是曼省和安省社区间传播的最主要菌株。
-
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661](https://www.ctvnews.ca/health/coronavirus/don-t-trust-rapid-tests-expert-advises-canadians-to-test-more-than-once-before-making-plans-1.5864661)
-
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【晨熹】
-素材/采编 -【硫酸羟氯喹64】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*封面：霹雳鼠年*
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+*编辑 /发布：郭郊玉米地*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
