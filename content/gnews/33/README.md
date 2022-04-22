@@ -2,37 +2,36 @@
 ---
 
 
-## 魁省超万名医护人员因病毒原因离岗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
+## 拜登宣布向乌克兰再提供 8 亿美元的军事援助
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2389727/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+撰稿：Gradient Boost
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/213.jpg)图片来自网络
+据一位白宫官员称，美国总统拜登将宣布计划再提供 8 亿美元的军事援助，以帮助乌克兰反击俄罗斯的入侵。
 
-加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
+这位未获授权公开发表评论并要求匿名的官员表示，拜登将利用周四上午在白宫的讲话，详细说明在其政府已经批准的大约 26 亿美元的军事援助计划。预计新的一揽子计划将包括乌克兰军队在乌克兰东部顿巴斯地区不断升级的战斗中急需的重型火炮和弹药。
 
-该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
+本周早些时候，加拿大总理特鲁多表示，加拿大将向乌克兰派遣重型火炮。荷兰首相马克·吕特告诉乌克兰总统泽连斯基，荷兰将派出更多重型武器，包括装甲车。
 
-到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
+一名美国高级国防官员说，乌克兰以外的一个欧洲国家已经开始对乌克兰人员进行美国 155 毫米榴弹炮的培训。
 
-原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+周三，拜登称赞美国军方官员在武装乌克兰方面所做的工作，他召集了美国的军方高层，参加了他担任总统期间的首次面对面的白宫小组会议。国防部长劳埃德·奥斯汀、副国防部长凯瑟琳·希克斯、参谋长联席会议和作战指挥官均参加了此次会晤。商谈的中心话题自然是俄罗斯已经延续近两个月的入侵行径。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+*编辑：Gradient Boost*
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*发稿：mgjxs*
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+新闻参考链接：[AP News](https://apnews.com/article/russia-ukraine-zelenskyy-biden-mark-rutte-justin-trudeau-e78a7db76215a84f86586bb56122cd04)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
  
 

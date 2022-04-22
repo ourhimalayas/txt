@@ -2,39 +2,37 @@
 ---
 
 
-## 中共将对台湾有动作，打台湾不行就铲平
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389670/)
+## 魁省超万名医护人员因病毒原因离岗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
 
-整理/编辑：小红帽
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_from_2022-04-22_11-12-50.png)图片来源：郭文贵先生4月22日盖特视频
 
+加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
 
-2022年4月21日，郭文贵先生在直播中提到，如果4月26号到5月6号中共对台湾有动作，北京一定戒严、上海会更糟糕。普京向美国示好，这打破了普京和习近平当年的约定–赌美国不会同时打两场战争。现在唯一的变数就是习近平会铤而走险，毁灭台湾。
+该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
 
-郭先生说：“从共产党这几天的股市，就能看出来，都在套钱。套完穷人的钱，剩下就是这帮傻子在里面。另外一个，只要台湾有事，香港经济完蛋，国内经济完蛋。”
+到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
 
-郭先生提醒大家要做好心理准备。如果4月26日到5月6日中共对台湾有所行动的话，北京一定戒严。上海会更糟糕，已经不是戒严了。能跑出来的，赶快跑。
+原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-郭先生发现，4月20日到21日的大宗商品市场，黄金价格突破，以及有一个很重要的信号，据说普京向西方发出了和解的信号。因为普京的“两条腿”都被“打断”了。第一个就是莫斯科号，战略导弹舰，已经给击沉了，全员皆亡。这是确定的。第二，所谓的空中巨无霸轰炸机，几个飞行员全被炸死了。在地上就被炸没了。能开这几个飞机的人，三分之二就没了。这已经不是炸俄罗斯的飞机，是炸开飞机的人。而且，欧联盟很强硬地告诉普京：“你就是放核弹，老子也跟你玩下去。”
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【自由法兰西】
+素材/采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-4月21日早上，郭先生听到这个消息的时候，感觉这几件事加在一起，这是个天大的事。欧洲告诉普京，绝对不妥协。普京放核武器，欧洲也不妥协。普京炸欧洲的军队，欧洲也不妥协。特别欧洲是把俄罗斯飞行队里面的王牌飞行员给炸掉了，这绝对对普京心理是个重大打击。再加上莫斯科号被炸毁，这是另一个重大的打击。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-另外，俄罗斯目前在前线的那几个地方，在马里马波尔那块根本没打赢，这可把俄罗斯给打惨了。俄罗斯甚至没有拿下整个乌东的任何一个城市。而且俄罗斯内部，现在是一片要停战的声音和反战的声音。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-现在普京跟西方的示好，就打破了当年普京和习近平约定的，所谓我们要赌美国人不可能同时参加两场战争。习近平说，你打乌克兰，我打台湾，美国总得放弃一个，甚至美国两个都不敢参与。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
 
-郭先生认为，如果普京在这种情况下，给美国人示好了，交枪了，政治妥协了，台湾的问题就会有很大的变数。那习近平可能就不是打台湾了，而是把台湾给消灭。郭先生听说，习近平已经准备好了。如果打台湾不行，就把台湾给铲平。
-
-资料来源：[郭文贵先生4月22日盖文](https://gettr.com/post/p16i70a7d66)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

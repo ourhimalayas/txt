@@ -2,38 +2,34 @@
 ---
 
 
-## 香港放松疫情管控 重新开放主题公园和夜间餐厅
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390071/)
+## 樱花时政┃俄罗斯国防研究机构突发火灾 多人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390093/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯国防研究机构突发火灾-多人死亡.png)[图片来源](https://www.theguardian.com/world/2022/apr/22/die-in-fire-at-russia-defence-institute) 
 
-整理/编辑：围剿维尼熊
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3576.jpg)
-根据美国之音4月22日报道，香港周四（4月21日）放松了对疫情的限制，迪士尼乐园和博物馆重新开放，夜间餐厅恢复营业。
+4月21日，俄罗斯新闻机构援引当地政府的话说，在莫斯科西北约160公里（100英里）的特维尔市的一个国防研究所发生大火，6人死亡（也有称7人死亡）。
 
-在香港，海洋公园和M+博物馆等景点周四重新开放。健身房、美容院、按摩院也被允许恢复营业。客户必须至少接种过一剂新冠疫苗，并在进入时扫描二维码以进行接触者追踪。
+俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
 
-被禁止在下午6点后提供堂吃服务的餐馆，可以在晚上重新开放，尽管每张桌子最多只能接待4名客人。
+当局说有27人受伤。塔斯社援引紧急服务报道说，至少有10人失踪。
 
-主题公园现在可以开放50%的容量，游客必须出示疫苗接种证明。迪士尼员工高举标语，提醒人们保持社交距离。
+俄罗斯社交媒体上流传的现场录像显示，研究所的窗户上冒着浓烟和火焰。关于火灾的原因，没有官方消息。
 
-随着香港第五波冠状病毒流行，主题公园在1月份被勒令关闭。在不到4个月的时间里，740万人口的香港有近120万人感染，近9000人死亡。
+据俄罗斯国防部网站报道，该研究所从事航空航天研究，包括为前苏联共和国的独联体集团建立统一的防空系统。
 
-放宽限制之前，官员们承认，人们对这些措施感到失望，必须在抗击疫情和恢复正常活动之间取得平衡。
+信息来源：
+** **[**Six killed in fire at Russian defence research institute – reports**](\Users\HP%20User\Documents\桌面\投稿NEWS\Six%20killed%20in%20fire%20at%20Russian%20defence%20research%20institute%20-%20reports)
 
-香港周四报告了603例本地感染病例，较3月份3万多人的峰值下降了99%以上。
-
-在香港的新冠肺炎病例清零之前放松措施，标志着香港与内地对任何疫情的清零战略的转变。此前，当局不愿放松措施，直到疫情被明显控制。
-
-参考链接：[香港放松疫情管控 迪斯尼重新开放 上海死亡病例增加](https://www.voachinese.com/a/hong-kong-disney-opens-as-covid-19-eases-shanghai-deaths-rise-20220422/6540416.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,42 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.22E) 接种第一针新冠疫苗就感受到对身体的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390022/)
+## 官房长官松野对发生在马里乌波尔的人道主义危机深表震惊
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390044/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/官房长官松野对发生在马里乌波尔的人道主义危机深表震惊.png)（图片源自本文链接）
 
-整理/编辑：禄森
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-59.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+4月22日每日新闻消息：在22日上午的新闻发布会上，内阁官房长官松野博一表示：对发生在俄罗斯已经宣布”实施控制”的，乌克兰东南部马里乌波尔的人道主义危机之严重性和纯粹的破坏感到强烈震惊！
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+他强烈抗议说：我们最强烈地谴责俄罗斯的残暴和野蛮行为，呼吁俄罗斯立即停止攻击，撤出其部队，不要干涉对马里乌波尔和其它城市的人道主义援助。
 
-**帖子原文**：
+在马里乌波尔，乌克兰军队一直躲在一家钢铁厂里，处于防御状态。松野先生还表示，他 “深切关注宣布对马里乌波尔市的控制，为俄罗斯进行进一步侵略和进一步恶化乌克兰人道主义危机提供了机会这一事实”。
 
-**博主: 默认关系**
+信息来源： 
+[「人道危機の深刻さに衝撃」マリウポリ情勢、官房長官がロシア批判（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dac3cc7c7e98ebe555e7478b9cdf9a8fead9e8d9)
 
-第一次打疫苗有不良反应
-
-真的很难受，整个人从内到外的烫，脸颊都烫的发紫，还会把你本身的疼痛放。
-
-换言之，当了两天的废人。
-
-要不是我最近没有乱跑，真的会担心凉了的程度
-
-**作者发布于2022-4-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2729.png)
-参考链接：
-
-[浑身疼痛，整个人从内到外全身滚烫](https://weibo.com/7633503105/LpcCMqDTR)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
