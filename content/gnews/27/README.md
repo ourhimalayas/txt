@@ -2,31 +2,40 @@
 ---
 
 
-## 中日财经爆┃美副国务卿严厉警告中共 若援俄将面临全面制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390810/)
+## 期盼已久的解封未现却惊见铁丝网封路 上海是在防疫吗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390926/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月21日，美国副国务卿舍曼严厉警告中共国，如果中共国为俄罗斯入侵乌克兰的战争提供“物资支持”，将面临全面的制裁和出口管制。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-225.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.rfi.fr%2Fmedia%2Fdisplay%2Fbebfe94e-bff0-11ec-a0b4-005056bfb2b6%2Fw%3A1280%2Fp%3A16x9%2FCapture-1189.PNG&amp;imgrefurl=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E5%259B%25BD%25E9%2599%2585%2F20220419-%25E7%25BE%258E%25E5%2589%25AF%25E5%259B%25BD%25E5%258A%25A1%25E5%258D%25BF%25E8%25B5%25B4%25E5%25B8%2583%25E9%25B2%2581%25E5%25A1%259E%25E5%25B0%2594%25E5%258F%2582%25E5%258A%25A0%25E7%25BE%258E%25E6%25AC%25A7%25E5%25B0%25B1%25E4%25B8%25AD%25E5%259B%25BD%25E5%258F%258A%25E5%258D%25B0%25E5%25A4%25AA%25E9%2597%25AE%25E9%25A2%2598%25E9%25AB%2598%25E5%25B1%2582%25E4%25BC%259A%25E8%25AE%25AE&amp;tbnid=YrDPp_o0spvkuM&amp;vet=12ahUKEwjQlcSNraf3AhUGWhoKHVTSCFIQMygAegUIARCpAQ..i&amp;docid=P3rNuGTGA0eUQM&amp;w=1280&amp;h=720&amp;q=%E7%BE%8E%E5%9B%BD%E5%89%AF%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%88%8D%E6%9B%BC%20%E5%B8%83%E9%B2%81%E5%A1%9E%E5%B0%94&amp;ved=2ahUKEwjQlcSNraf3AhUGWhoKHVTSCFIQMygAegUIARCpAQ)
-舍曼周四在布鲁塞尔的一场活动上说，中共国放大俄罗斯虚假信息活动等做法无助于乌克兰的局势。希望中共能从俄乌战争中吸取“正确的教训”。中共国已经看到西方在制裁、出口管制等对俄罗斯的行动，因此应该能让他们了解，如果中共确实要提供物资支持，可能面临到什么。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-166.jpg)
+上海市的许多道路一夜之间被铁丝网阻断（图片来自网络）
 
-舍曼还谴责了中共国的人权记录，对立陶宛和H&M等欧洲公司的“经济欺凌”。
+近日，各路消息都传全面封城已近四周的上海即将开始逐步解封。然而，到目前为止，绝大多数居民仍然被封在家中。不仅如此，上海大多数区的许多道路还在一夜之间突然被铁丝网阻断。
 
-中共国本周表示，北京计划继续加强与俄罗斯的战略关系，这表明，尽管国际对俄军犯下的战争罪担忧日益增加，中俄两国关系仍牢固。
+据《希望之声》4月22日报道，中共副总理孙春兰和上海市卫健委官员日前先后表示，上海的疫情已呈下降趋势，清零目标指日可待。上海人因此都在期盼传说中的“解封即将到来”。
 
-中共国驻俄罗斯大使张汉晖本周表示，中俄关系达到前所未有的高水平。张汉晖强调，中俄合作发展没有止境。
+然而，在4月19日晚到20日，仅仅一夜之间，上海浦东、浦西等地的大部分马路突然遭铁丝网封路，人行道路也一并被封锁。
 
-消息来源:**[中美最新消息！美國副國務卿舍曼嚴厲警告中國 若援助俄羅斯將面臨全面制裁](https://news.fx168news.com/politics/us/2204/5839307.shtml)**
+据上海居民反映，这是全市统一行动，并且是在一夜之间完成。普陀区、闵行区和嘉定区的道路都被封住了，只有“党政机关”的路段未封。封路铁丝网的支柱都打进马路地面下了，并且，由于道路被铁丝网阻断，就连警车都开不了，军警也走不了。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+据百度地图和现场反馈信息显示，除了长宁区、黄埔区和徐汇区的大部分地区以外，其他十多个区均出现封路。此外，上海周浦区居民还表示，3月28日才铺设的铁丝网已被全新的铁网取代。
+
+上海居民冯恩浩在接受媒体采访时表示，既然已经声称抗击疫情取得成效，那么上海多个区域为何又突然封路？这个行动非常怪异，根本不像防疫。
+
+虽然上海官方之前声称很快将会解封，但眼下的迹象似乎正相反。对此，中共官方并未公开给出解释，而上海民众期盼已久的解封怕是要再度落空了。
+
+新闻链接：
+
+[https://www.soundofhope.org/post/614408](https://www.soundofhope.org/post/614408)
+
+
+
+> 接到好几位朋友反应浦东好多处用铁丝网封路了。
+> 今天下午骑车出去一圈，所有商店全部关闭，看来上海解封必须全国解封，否则没用，物价会飞涨，商品难以流动。 [pic.twitter.com/J8aWSTXeOr](https://t.co/J8aWSTXeOr)
+> — XZGLBBS (@fQe5apcIKaajT6I) [April 20, 2022](https://twitter.com/fQe5apcIKaajT6I/status/1516793142191980547?ref_src=twsrc%5Etfw)
+
+
+
+* * *
 
  
 

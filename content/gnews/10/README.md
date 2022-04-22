@@ -2,28 +2,20 @@
 ---
 
 
-## 中日财经爆┃世行：俄乌战争给乌造成600亿美元直接损失
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391069/)
+## 中日财经爆┃物价上涨，日本拟向低收户每孩子发5万日元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391102/)
 
 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-世界银行行长马尔帕斯4月21日在华盛顿与乌总理什米加尔等召开了圆桌会议。世界银行发布评估称，战争造成的建筑物及基础设施等直接经济损失大约为600亿美元。世行还宣布，乌已通过融资等从包括日本在内的各国筹集了30亿美元资金。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-167.jpg)图片来源于本文链接
+在4月20日获悉了日本政府4月内制定的物价上涨对策草案的内容。日本政府将探讨以低收入育儿家庭为对象，向每个孩子支付5万日元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-469.jpg)（图片来源于本文链接）
+考虑的补贴对象为领取儿童扶养津贴的单亲家庭和免征居民税的双亲家庭。这项草案将与自民党和公明党两党协商后正式确定。还将向2022年度新免征居民税的家庭发放10万日元。草案内还包括对中小企业的扶持政策。关于对受新冠疫情影响而销售额减少的企业实际提供无息无担保融资的政策，将把期限延长3个月，持续到9月底。
 
-什米加尔表示今后需要3个阶段的资金，分别是“战争持续期间的金融和财政支援”、“和平后6～8个月的核心基础设施重建”、“中长期的城市和家庭重建”。马尔帕斯指出需要长期对乌的预算作出支持。以线上方式出席会议的泽连斯基表示俄军破坏了车站及食品销售店等生活基础，强调了经济支援的必要性。什米加尔提出分析称，包括间接损失在内，经济损失已达5600亿美元。
+信息来源：[物价上涨，日本拟向低收户每个孩子发5万日元](https://cn.nikkei.com/politicsaeconomy/politicsasociety/48329-2022-04-21-10-22-45.html)
 
-信息来源： [世行:俄乌冲突给乌克兰造成600亿美元直接损失](https://cn.nikkei.com/politicsaeconomy/epolitics/48347-2022-04-22-15-16-43.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

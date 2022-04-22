@@ -2,25 +2,29 @@
 ---
 
 
-## 俄罗斯军事研究院在最大的化工厂被吞没后几小时神秘起火
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390966/)
+## 有声｜卫星图像现马里乌波尔乱坟岗
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2391027/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-150.jpg)
-图片来源： www.sohu.com
+By:**秘翻新闻**
 
-零对冲网4月21日报道，据俄罗斯国立电视台塔斯社报告，周四位于特维尔市的俄罗斯国防部研究院突发大火，目前已造成7人死亡，消防人员下午一直在努力灭火。
+**2022-04-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-19.png)
+[Newsmax](https://www.newsmax.com/world/globaltalk/russia-ukraine-mariupol-mass-graves/2022/04/21/id/1066723/)4月21日报道，Maxar技术公司发布的五张日期为3月19日至4月3日的照片显示，在距离马里乌波尔10多英里外的曼胡什市，人们沿着一条道路的下侧逐渐挖出了大坑。据称可能有多达9000具尸体。
 
-目前起火的原因或者还不清楚，或者不被俄罗斯所披露，但是人们提出了很多问题，这是发生在俄罗斯在特维尔的最大的化工厂大火后的几小时，已有150名化工厂工人紧急撤离该厂。后者已吞灭了位于该化工厂的天空防御部队的秘密研发中心。
+马里乌波尔市长发言人彼得罗·安德鲁申科在他的电报账户上说：”占领军已经挖了……一些万人坑。”“每个坟墓都有100英尺宽，100英尺长。俄罗斯人正在用卡车运送尸体倾倒。”
 
-英国媒体报道最新的秘密大火是这一天的第二次大火。
+他写道，”21世纪在马里乌波尔发生的最严重罪行。这是新的巴比亚尔。”巴比亚尔位于基辅附近，二战期间德国人在那里屠杀了超过33000人。
 
-西方主流媒体安全分析师们正在分析同一天出现两次大火是否是主动破坏。
+根据最保守的报告，马里乌波尔有超过5000名平民死亡。
 
-俄罗斯媒体报道了发生在特维尔的俄罗斯国防部研究院的神秘大火，该地点位于莫斯科西北部110公里，那里很可能有爆炸。
+安德鲁申科还声称，俄罗斯已经夺取的地区的官员正在限制谁可以被埋葬。
 
-#### 新闻来源： [Russia’s Largest Chemical Plant Engulfed In Flames Hours After Mystery Fire At Military Research Facility](https://www.zerohedge.com/geopolitical/large-deadly-fire-breaks-out-russian-defense-research-facility)
+秘翻新闻 大树编译报道
 
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-9.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

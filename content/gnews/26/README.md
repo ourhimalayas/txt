@@ -2,30 +2,41 @@
 ---
 
 
-## 美证交会再将知乎、贝壳等17只中概股列入预摘牌名单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2390909/)
+## 有声|针对王岐山的爆料仍未完结
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2390943/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-191.jpg)
-（资料图片来自网络）
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在大直播中还提到，419涉及的有关王岐山的爆料目前仍然没有被完全公布，包括王岐山在瑞士银行的账号、刘呈杰亲生父亲的信息，以及王岐山和美国华尔街的真正关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-21-at-11.17.16-AM.png)
+郭先生透露，王岐山及其家族在海外藏匿了巨量的财富，有些甚至无法以金钱衡量，且这些财产至今不为习近平所知。另一方面，经年来，王岐山在中共内部大行党同伐异之事，又屡次借所谓的“反腐”之名肆意杀掠党内的异己或知情人士。然而，习近平至今没有针对王岐山及其财富做出任何举措。
 
-美国证券交易委员会4月21日宣布将包括知乎、贝壳、理想汽车等在内的17只中概股列入预摘牌名单。这已是自3月以来的第五批名单。
+对此，郭先生认为，不论是五年前，还是现在，王岐山依然是对美国、中国，甚至是习近平本人而言的最大威胁。
 
-据《阿波罗新闻网》4月22日报道，美国证交会（SEC）21日宣布，再将17家中企添加到其《外国公司控股责任法案》（HFCAA）临时名单中。这意味这批公司将面临在美国被摘牌的风险。
 
-这是自3月以来第5批被SEC列入预摘牌名单的中概股。名单中包括知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-上述这17家公司必须于5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
 
-据报道，在此之前，首3批共计11家中共国公司已由预摘牌名单转为确定摘牌名单；而第4批的12家公司则须在5月3日前向SEC提交证据。
 
-SEC官网信息显示，目前已列入确定摘牌名单的11只中概股是：百胜中国、和黄医药、微博、富途控股、爱奇艺、百度、百济神州、再鼎医药、盛美半导体、凯信远达医药和Nocera。
 
-新闻链接：
 
-[https://www.aboluowang.com/2022/0422/1738592.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0422/1738592.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+文字版原文：[针对王岐山的爆料仍未完结](https://gnews.org/zh-hans/2387623/)
 
-* * *
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

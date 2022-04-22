@@ -2,25 +2,26 @@
 ---
 
 
-## 美国宣布对俄实施新制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390413/)
+## 《铁锁梦》MV荣登多国iTunes榜首
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390430/)
 
-作者：华盛顿DC农场 – 自由信仰
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
-4月20日，美国宣布对数十名俄罗斯个人和实体实施新的制裁措施，其中包括俄罗斯商业银行Transkapitalbank、和世界第三大加密货币矿业公司BitRiver。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-28.png)
-此外，布林肯国务卿还在声明中表示，美国国务院正在对俄罗斯和白俄罗斯的600多人实施签证限制，以惩罚其侵犯人权的行为。他还表示，美国将使用一切工具，向侵犯人权和违反国际人道主义法的行为问责。
+继《灭共的雪》和《铁锁梦》两首单曲同时上榜，且连续多日占领多个国家和地区iTunes排行榜前列，震撼中共和世界音乐界，《铁锁梦》MV版本于4月19日当天正式上榜。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-31.png)
+
+截至4月20日，《铁锁梦》MV已荣登美国、加拿大、日本、英国、香港等23个国家和地区MV总榜、MV流行曲榜第一名。
+
+让我们再接再厉，努力打榜，以歌灭共！
 
 参考链接：
 
-- [New U.S. sanctions imposed for Russian bank, oligarchs, crypto miner BitRiver](https://www.reuters.com/world/europe/us-imposes-new-russia-related-sanctions-2022-04-20/)
+- [4月20号，《铁锁梦》MV在全球上线第二天，登榜iTunes](https://gettr.com/post/p1688sk34f8)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
 总编：雪梨
-编辑：雪梨/熊嘟嘟
-审核：飞虹
 校正/发稿：海阔天空1
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
