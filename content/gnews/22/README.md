@@ -2,36 +2,36 @@
 ---
 
 
-## 普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（4/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2393628/)
+## 阿斯利康会议记录揭示免疫功能低下者不能接种中共病毒疫苗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2393664/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
-上一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（3/5）](https://gnews.org/zh-hans/2393591/)
+##### 作者：加拿大温哥华扬帆农场 -【UCool 优酷/晨熹】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2799.png)图片来源：[https://creativedestructionmedia.com](https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/)
 
-&lt;解说&gt;俄政府宣传机器全开–珍妮•希尔(莫斯科)。
 
-克里姆林宫(俄罗斯政府)的宣传机器全面运转。普京总统与国防部长绍伊格一起出现在电视上，宣布俄罗斯掌控了马里乌波尔。
-视频来源：BBC新闻
-但实际上，这几天没有发生过特别实质性的变化，乌军士兵仍在阿佐夫斯塔利钢铁厂中。这是俄政府战略的一环，旨在告诉俄罗斯人民，一切都是按部就班地推进。
+据【CD Media】4月19日报道，美国非政府组织维里塔 斯日前获得2020年12月阿斯利康公司的电话会议记录。其中首席执行官帕斯卡尔·索里奥与世卫组织等卫生官员讨论了与中共病毒疫苗宣传内容相反的并发症问题。
 
-国营电视台连日来用轻快的调子宣传，俄军如何前进、如何攻击乌军事目标、如何“解放”各城镇和地区。
+会议中，索里奥谈到有基础免疫疾病的人不能接种疫苗。世界上将有数百万人因此需要疫苗无法给予的保护，而抗体疗法具有巨大潜力。单克隆抗体治疗在中共病毒流行初期就显示良好的效果，美国一些州把它用作一线抗病毒治疗。然而，联邦政府却非常反对此疗法，相反支持疫苗推广。
 
-另一方面，国防部长绍伊古并未频频出境，因此据猜测，侵略乌克兰的情况不顺，可能引起了普京总统的不悦。但就是这位绍伊古，却在当天现身屏幕，向老板汇报喜讯。
+维里塔斯的创始人詹姆斯·奥基夫认为，既然制药巨头阿斯利康首席执行官2020年就意识到抗体治疗是免疫功能低下人的首选方案，为什么世界各国政府却要故意将这些人置于疫苗危险之中？而3月16日世卫组织又再次重申阿斯利康疫苗对免疫功能低下的个体是安全的。
 
-下一篇：[普京下令终止马里乌波尔钢铁厂的总攻、实施彻底封锁（5/5）](https://gnews.org/zh-hans/2393685/)
+新闻来源：[https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/](https://creativedestructionmedia.com/news/2022/04/19/astrazeneca-source-recording-from-2020-shows-ceo-pascal-soriot-saying-millions-of-immunocompromised-people-cant-be-vaccinatedantibody-treatment-has-enormous-potential/)
 
-参考链接：[プーチン氏、マリウポリの製鉄所の総攻撃中止と徹底封鎖を命じる – BBCニュース](https://www.bbc.com/japanese/61175971)
-
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【晨曦】
+素材/采编 -【UCool 优酷】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-素材：宫米叶
-审核：Bryan
-校对：zicoround
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

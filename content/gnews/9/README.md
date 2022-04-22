@@ -2,12 +2,49 @@
 ---
 
 
-## 两个英国义工喜欢我们的新中国联邦咖啡。他们说，新中国联邦人代表了中国人的声音，代表了人权，他们支持新中国联邦为中国人争取人权和自由，打倒邪恶的中国共产党
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2394024/)
+## 蜂鸟手绘-战友日常之心之向往
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2394039/)
 
-【乌克兰救援】 04/21/2022 两个英国义工喜欢我们的新中国联邦咖啡。他们说，新中国联邦人代表了中国人的声音，代表了人权，他们支持新中国联邦为中国人争取人权和自由，打倒邪恶的中国共产党。
+作者：纽约香草山设计部 – 蜂鸟
+视频制作：佩奇
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-156-scaled.jpg)
+* * *
+
+
+
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-42.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

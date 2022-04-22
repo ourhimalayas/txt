@@ -2,16 +2,12 @@
 ---
 
 
-## 五月花简报（04/22/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2394022/)
+## 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2394037/)
 
-编辑：波士顿五月花—-冲天一怒
+【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7E6CE9C8-69F1-487F-893D-F7A167A0BDE8.jpeg)
-
-*发布：思澈*
-
-
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

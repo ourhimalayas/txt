@@ -2,28 +2,20 @@
 ---
 
 
-## 有声|日本正式取消俄罗斯最惠国待遇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393809/)
+## 有声|HPay、喜币、躺平币是未来金融界的信仰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2393936/)
 
 配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-鉴于目前俄乌局势，日本于4月20日正式通过取消俄罗斯“最惠国待遇”法案。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-34.png)
-随着最惠国待遇被取消，俄罗斯进商品的关税税率将提升至优待措施之前的水平，并将持续到明年3月底。
-
-同时，按照日本政府修订的《外汇法》规定，被制裁一方将被限制将虚拟货币转入第三方账户，堵塞俄罗斯企图通过加密资产交易逃避经济制裁的路径。
-
-此外，俄罗斯驻日大使馆在任外交官、俄驻日贸易代表处职员等总计8人已被日本政府驱逐出境。
+4月20日，郭文贵先生在盖特视频中谈到，H Pay未来将代替SWIFT，成为最安全的、数字货币支付方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-51.png)
+郭先生将法币比喻为宗教，SWIFT是被政府、西方利益集团控制的系统；而数字货币是信仰，喜币、躺平币、H Pay因为其去中心化的、可被质疑、可被挑战的性质，值得信赖。
 
 
 
 
 
-
-
-文字版原文：[日本正式取消俄罗斯最惠国待遇](https://gnews.org/zh-hans/2390412/)
+文字版原文：[HPay、喜币、躺平币是未来金融界的信仰](https://gnews.org/zh-hans/2390415/)
 
 音频处理：Tom Li
 发稿：Tom Li
