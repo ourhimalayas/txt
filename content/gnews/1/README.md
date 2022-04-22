@@ -2,29 +2,34 @@
 ---
 
 
-## 中日财经爆┃日美财长就日元贬值问题举行会谈
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390045/)
+## 樱花时政┃俄罗斯国防研究机构突发火灾 多人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390093/)
 
-撰稿：东京樱花团/文小白
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯国防研究机构突发火灾-多人死亡.png)[图片来源](https://www.theguardian.com/world/2022/apr/22/die-in-fire-at-russia-defence-institute) 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2735.png)图片来源：本文链接
+4月21日，俄罗斯新闻机构援引当地政府的话说，在莫斯科西北约160公里（100英里）的特维尔市的一个国防研究所发生大火，6人死亡（也有称7人死亡）。
 
-据4月22日NHK新闻消息，正在华盛顿访问的铃木财政大臣与美国珍妮特耶伦财政部长举行了会谈，就近期日元在外汇市场贬值的问题进行了沟通。
+俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
 
-正在华盛顿出席20个主要国家财长和央行行长会议（G20）的日本财务大臣铃木，于日本时间22日凌晨会见了美国财长珍妮特耶伦。会后，接受媒体采访的财务大臣铃木表示，与财政部长珍妮特耶伦讨论了外汇市场近期的趋势。
+当局说有27人受伤。塔斯社援引紧急服务报道说，至少有10人失踪。
 
-此外，铃木大臣表示：“从外汇市场来看，近期日元贬值幅度仍然很大。在维持G7和G20的外汇协议的同时，日本和美国在外汇问题上已明确表示要密切合作。”
+俄罗斯社交媒体上流传的现场录像显示，研究所的窗户上冒着浓烟和火焰。关于火灾的原因，没有官方消息。
 
-对于乌克兰局势，铃木大臣表示，“我们强烈谴责俄罗斯入侵乌克兰，日美将继续与G7等国密切合作，稳步实施对俄罗斯的制裁。”在参加了一系列国际会议之后，铃木财务大臣接受采访时宣布了增加对乌克兰的联合融资。在世界银行和国际货币基金组织会议上日本将对乌克兰的联合融资从1亿美元增加到3亿美元。
+据俄罗斯国防部网站报道，该研究所从事航空航天研究，包括为前苏联共和国的独联体集团建立统一的防空系统。
 
-此外，铃木大臣还会见了出席会议的乌克兰财政部长马尔琴科。并向马尔琴科财政部长表达了对乌克兰增加到3亿日元的追加支援以及表明对乌克兰抵抗侵略战争的支持不会改变。马尔琴科财政部长向铃木大臣表达了感谢之意。
+信息来源：
+** **[**Six killed in fire at Russian defence research institute – reports**](\Users\HP%20User\Documents\桌面\投稿NEWS\Six%20killed%20in%20fire%20at%20Russian%20defence%20research%20institute%20-%20reports)
 
-信息来源：[鈴木財務相 米イエレン財務長官と会談「円安 日米で意思疎通」](https://www3.nhk.or.jp/news/html/20220422/k10013593541000.html)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

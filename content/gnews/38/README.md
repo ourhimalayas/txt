@@ -2,27 +2,27 @@
 ---
 
 
-## 樱花时政┃美国禁止俄罗斯船只进入美国港口
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389374/)
+## 中日财经爆|SEC“预摘牌名单”再添17家公司 中概股集体暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2389551/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国禁止俄罗斯船只进入美国港口.png)[图片来源](https://gcaptain.com/canada-moving-to-ban-russian-ships-from-its-ports-and-waters/) 
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆SEC预摘牌名单再添17家公司-中概股集体暴跌.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.globaltimes.cn%2FPortals%2F0%2Fattachment%2F2021%2F2021-05-05%2F96d1e5e5-48e0-4521-95ec-516cfe008f36.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.globaltimes.cn%2Fpage%2F202203%2F1254638.shtml&amp;tbnid=Vy6ikWr0dJH)
+4月21日，美国证劵交易委员会（SEC）再将理想汽车、百世集团和贝壳等17家公司加入“预摘牌名单”，这是自今年3月以来第五批被纳入名单的中概股公司，这些公司或将在2024年初立即退市。
 
-据路透社4月21日报道，美国总统拜登周四宣布，美国将加入加拿大和欧洲国家的行列，禁止隶属于俄罗斯的船只进入美国港口，这是就俄罗斯入侵乌克兰一事向其施压的最新举措。
+具体名单为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。SEC声称，上述17家公司提交申辩的截止时间为当地时间5月12日。
 
-白宫将发布一份公告，提供更多细节。路透社周四首次报道了拜登的行动计划，而在3月初报道了白宫正在考虑这项禁令。
+当日热门中概股集体重挫，腾讯概念跌幅居前，爱奇艺跌14.89%，贝壳跌超7%，拼多多、斗鱼跌近7%，哔哩哔哩、蘑菇街跌超5%。
 
-“这意味着任何船只，任何悬挂俄罗斯国旗或由俄罗斯实体拥有或经营的船只将不被允许停靠在美国港口或进入我们的海岸。”拜登周四说。
+新能源汽车股中，法拉第未来跌近13%，蔚来汽车跌超5%，理想汽车、小鹏汽车跌超4%。
 
-消息人士说，在2021年，俄罗斯船只约有1800次访问，在整体交通中只占很小的比例。这个问题促使拜登政府进行了广泛的审查，以确保对俄罗斯船只的禁令不会严重影响美国的供应链。
+在4月21日博鳌论坛上，中共国证监会副主席方星海演讲时表示，近期中概股下跌严重的情况，重要原因在于中美审计监管合作谈判。
 
-加拿大在3月1日对俄罗斯拥有的船只关闭了港口，并禁止它们进入加拿大水域，许多欧洲国家也采取了同样的措施。
+据悉，此前百度、爱奇艺、搜狐等中概股公司也被列入“预摘牌”名单，根据SEC公布的《外国公司问责法》，被列入“确定摘牌名单”的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。
 
-美国此前禁止俄罗斯飞机进入美国领空，与加拿大和欧洲国家一起采取了这一行动，并禁止俄罗斯石油进口，这些石油占此前俄罗斯船只运往美国的大部分。
+如果“确定摘牌名单”中的公司没有提交或提交的文件不符合SEC要求，将会在披露2023年年报后（2024年初）面临立即退市。
 
-信息来源：** **
-[Biden Bans Russian Ships From US Ports](https://gcaptain.com/biden-bans-russian-ships-from-us-ports/)
+消息来源:
+[**又有17家公司被美列入“预摘牌名单”，中概股重挫**](https://www.stcn.com/xw/sd/202204/t20220422_4404525.html)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*

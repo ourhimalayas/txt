@@ -2,37 +2,22 @@
 ---
 
 
-## 魁省超万名医护人员因病毒原因离岗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
+## CCP魔厦正在倒塌
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389739/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
+加拿大温哥华扬帆农场- Quitman
+![](https://m.faz.net/media1/ppmedia/aktuell/feuilleton/1317507145/1.7916579/mmobject-still_full/strenge-kontrollen-polizisten.jpg)图片来源：faz.net
+郭文贵先生在大直播中不止一次的陈述CCP的魔厦已经开始崩塌，甚至都听到了崩塌的声音。他在“VOA419” 断播五周年纪念直播中再次指出习近平独统的CCP正在加速奔向灭亡。
 
+首先，俄乌战争的爆发彻底改变了世界。各国对待俄乌的态度是个试金石，将谁是正义、谁是邪恶明确分开。习近平带领CCP公开支持普京入侵乌克兰，CCP的外交部副部长——乐玉成公开表示支持俄罗斯。习近平告诉世界CCP与俄罗斯的合作无上限。习本人和CCP集团崇尚专治与独裁，他们毫不掩饰地支持普京这个独裁者；现在，普京发动入侵乌克兰的战争，俄罗斯军人在乌克兰屠杀许多妇幼、老人和平民。大量的影像资料在全世界传送，普京所犯下的战犯罪和种族灭绝罪全方位暴露给世界人民。 另外，习近平和CCP在中国的新疆和西藏也犯下了种族灭绝罪。因此他和普京是好朋友，一同与世界正义力量为敌、与人类文明为敌、与民主法制自由为敌。
 
-加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
+其次，CCP在国内倒行逆施，在西安、长春、深圳和上海等地实施封城，打着病毒清零的旗号，对其治下的人民大施淫威，无视人的生命，肆无忌惮地践踏人权，将千百万人困在居所，使他们失去自由 ，让无数人处在断供的状态。“封城”严重地危机了人最基本的生存权。由于缺少食物和医药，许多老人和体弱多病者失去了生命，CCP再一次对中国人们犯下了不可饶恕的罪行。笔者相信CCP倒行逆施的种种恶行会唤醒国人和CCP内部有良知人士，他们亲身的经历会使他们深刻认识到CCP罪恶的本质。现在，多数国际投资者已经不再与CCP合作，许多仁人志士开始离开CCP控制的国家。
 
-该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
+再有，新中国联邦人的爆料革命不断地向世界揭露CCP邪教集团的本质。CCP不仅绑架、压迫和奴役中国人民，而且是世界和平与次序的最大破坏者。CCP病毒给世界带来的伤害不断地呈现在世人面前。大瘟疫的追根朔源一定会让CCP认罪，中国人民和世界爱好和平的人民一定会同将CCP送到审判台。CCP在中国70年建立的魔厦一定会土崩瓦解，彻底消灭CCP的日子正在来临！
 
-到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
-
-原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
-
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【自由法兰西】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
-
+编辑、上传：月亮之上
 
  
 
