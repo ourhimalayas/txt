@@ -2,32 +2,34 @@
 ---
 
 
-## 德国将为东欧各国提供先进装甲车以补偿其援助乌克兰
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2389265/)
+## 加拿大制裁普京女儿在内的14名俄罗斯人
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389373/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2712.png)图片来源：[https://torontosun.com/](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-据《自由时报》4月22日报道，德国将提供东欧各国先进的装甲车，以补偿这些国家援助乌克兰战车，抵抗俄军的侵略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德国将为东欧各国提供先进装甲车以补偿其援助乌克兰.jpg)（图片来自欧新社）
+&lt;多伦多太阳报&gt;4曰19日报道，加拿大联邦政府今日发布对俄新的制裁措施，制裁名单涵盖14名与俄罗斯总统普京关系密切的俄罗斯人，包括他的两个成年女儿，36岁的玛丽亚-沃隆佐娃和她35岁的妹妹卡捷琳娜-蒂霍诺娃。
 
-据报道，德国国防部长兰布雷特（Christine Lambrecht）表示，战事目前进入关键阶段，必须尽快援助乌克兰武器、尤其是乌克兰士兵能马上操作的武器。
+联邦政府表示，这14人是普京的亲信，也是俄罗斯无理入侵乌克兰的同谋。包括美国在内的盟国将这对姐妹和其他普京家族成员作为制裁目标，是因为他们帮助隐匿了普京的个人资产。 总理特鲁多在一条推文中表示，加拿大政府不会放弃追究普京身边人在俄罗斯入侵乌克兰战争中的共犯责任。制裁发布当天，特鲁多将与北约和欧洲领导人出席由美国拜登总统召开的视频会议。
 
-她证实，德国已与“北大西洋公约组织”（NATO）盟国达成共识，几个东欧国家未来几天将把前苏联时期的战车和装甲车交给乌克兰，德国计划提供先进的武器补偿这些国家。
+原文链接：[https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians](https://torontosun.com/news/national/canada-sanctions-putins-daughters-among-14-russians)
 
-昨日，德国外长贝尔伯克（Annalena Baerbock）在拉脱维亚访问时也指出，短期内德国无法提供乌克兰重型武器，因此与盟邦讲好先由对方提供，德国之后再补偿。
+上传/发稿 – 【青青】
+撰稿/翻译 -【自由法兰西】
+采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-她强调，对德国来说，提供重型武器给乌克兰“不是禁忌”，不过没有解释为何德国不愿直接供应乌克兰战车和装甲车。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-此前，乌克兰要求德国供应战车，但德国政府至今没有点头，在国内外受到批评。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-参考链接：
-
-[https://news.ltn.com.tw/news/world/breakingnews/3901437](https://news.ltn.com.tw/news/world/breakingnews/3901437)
-
-总编：老孙
-校对发布：wenxia16
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

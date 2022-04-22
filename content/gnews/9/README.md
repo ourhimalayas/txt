@@ -2,23 +2,27 @@
 ---
 
 
-## 官房长官松野对发生在马里乌波尔的人道主义危机深表震惊
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390044/)
+## 樱花时政┃俄罗斯国防研究机构突发火灾 多人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390093/)
 
-撰稿：东京樱花团/待命（文晓）
+撰稿：东京樱花团/asket
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/官房长官松野对发生在马里乌波尔的人道主义危机深表震惊.png)（图片源自本文链接）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯国防研究机构突发火灾-多人死亡.png)[图片来源](https://www.theguardian.com/world/2022/apr/22/die-in-fire-at-russia-defence-institute) 
 
-4月22日每日新闻消息：在22日上午的新闻发布会上，内阁官房长官松野博一表示：对发生在俄罗斯已经宣布”实施控制”的，乌克兰东南部马里乌波尔的人道主义危机之严重性和纯粹的破坏感到强烈震惊！
+4月21日，俄罗斯新闻机构援引当地政府的话说，在莫斯科西北约160公里（100英里）的特维尔市的一个国防研究所发生大火，6人死亡（也有称7人死亡）。
 
-他强烈抗议说：我们最强烈地谴责俄罗斯的残暴和野蛮行为，呼吁俄罗斯立即停止攻击，撤出其部队，不要干涉对马里乌波尔和其它城市的人道主义援助。
+俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
 
-在马里乌波尔，乌克兰军队一直躲在一家钢铁厂里，处于防御状态。松野先生还表示，他 “深切关注宣布对马里乌波尔市的控制，为俄罗斯进行进一步侵略和进一步恶化乌克兰人道主义危机提供了机会这一事实”。
+当局说有27人受伤。塔斯社援引紧急服务报道说，至少有10人失踪。
 
-信息来源： 
-[「人道危機の深刻さに衝撃」マリウポリ情勢、官房長官がロシア批判（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dac3cc7c7e98ebe555e7478b9cdf9a8fead9e8d9)
+俄罗斯社交媒体上流传的现场录像显示，研究所的窗户上冒着浓烟和火焰。关于火灾的原因，没有官方消息。
 
-*校对：东京樱花团/喜马拉雅的微尘
+据俄罗斯国防部网站报道，该研究所从事航空航天研究，包括为前苏联共和国的独联体集团建立统一的防空系统。
+
+信息来源：
+** **[**Six killed in fire at Russian defence research institute – reports**](\Users\HP%20User\Documents\桌面\投稿NEWS\Six%20killed%20in%20fire%20at%20Russian%20defence%20research%20institute%20-%20reports)
+
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**

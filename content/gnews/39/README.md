@@ -2,34 +2,37 @@
 ---
 
 
-## 内斗加速 中共内蒙高法前院长胡毅峰落马
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2389642/)
+## 魁省超万名医护人员因病毒原因离岗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2389685/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 作者：加拿大温哥华扬帆农场 -【文莱/自由法兰西】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2719.png)图片来源：[https://montreal.ctvnews.ca/](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2187cfdac68e473ba2a0e1071f0649a1.jpeg)
-4月22日，中共中央纪委国家监委网站发布， 中共**内蒙古自治区高级人民法院原党组书记、院长胡毅峰涉嫌严重违纪违法，目前正接受中共中央纪委国家监委纪律审查和监察调查。**
 
-现年68岁的胡毅峰，中共二级大法官，长期在内蒙任职，从1992年6月起，先后任内蒙古自治区乌兰察布盟盟委副书记兼察右前旗旗委书记；巴彦淖尔盟盟委副书记、盟长；2003年1月至2008年1月，内蒙古自治区党委政法委副书记、常务副书记、法学会副会长。
+加拿大CTV新闻4月19日报道，魁省因感染CCP病毒住院人数周二升至2281人，并有超过1万名医护人员因病毒原因离岗，包括隔离和等待病毒检测结果等。魁省与CCP病毒相关的死亡人数上升至14,714人。
 
-中共官方通报指胡毅峰涉嫌“严重违纪违法”被调查，但说明其落马原因。
+该省还通过PCR检测报告了1783例新增病毒感染，但政府公共卫生官员承认，实际感染数字可能要高出10倍。
 
-根据中共大陆媒体2021年统计，内蒙古有多达52名厅级官员被查。被查官员里，其中有15名官员来自政法系统。
+到目前为止，魁省已有91%的人口注射了一针疫苗，87%的人注射了两针疫苗，54%的人口注射了三针疫苗。
 
-参考链接：
+原文链接：[https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947](https://montreal.ctvnews.ca/covid-19-hospitalizations-rise-to-2-281-in-quebec-10-636-health-care-workers-absent-due-to-virus-1.5866947)
 
-[内蒙古高级法院前院长胡毅峰落马](https://www.epochtimes.com/gb/22/4/22/n13717342.htm)
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【自由法兰西】
+素材/采编 -【文莱】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-[内蒙古自治区高院原院长胡毅峰，被查](https://www.sohu.com/a/540073098_114988)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-*发布：tianzhihuan*
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+
 
  
 

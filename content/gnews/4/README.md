@@ -2,34 +2,22 @@
 ---
 
 
-## 樱花时政┃俄罗斯国防研究机构突发火灾 多人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390093/)
+## 中共国警方开始没收护照
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2390148/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯国防研究机构突发火灾-多人死亡.png)[图片来源](https://www.theguardian.com/world/2022/apr/22/die-in-fire-at-russia-defence-institute) 
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-22-145713.jpg)
+据自由亚洲电台（RFA）周三（4月20日）报道，中共国湖南省警方正命令居民交出他们的护照，直到 “疫情结束”才返回，这是为了防止民众在冠状病毒的奥米克戎变体扩散和残酷的 “清零 “封锁行动加强时逃离中国。
 
-4月21日，俄罗斯新闻机构援引当地政府的话说，在莫斯科西北约160公里（100英里）的特维尔市的一个国防研究所发生大火，6人死亡（也有称7人死亡）。
+一名湖南警官周三说护照很快将在全国范围内被没收。这位警官说：“根据官方要求，由于疫情的严重情况，[护照]必须上交。” “到处都是这样，不仅仅是湖南，全国都是如此。任何拥有护照的人都必须交出护照。” 官员还补充说， “如果人们不交出护照……那么他们就必须期待被调查。”
 
-俄罗斯航空航天防御力量中央研究所（Central Research Institute of the Aerospace Defence Forces）位于莫斯科和圣彼得堡之间的特维尔市（Tver）。该研究所一个木制附楼中爆发大火，吞没了这座四层楼建筑。
+在2021年8月的德尔塔冠状病毒疫情期间，中共国就停止向其公民发放新的护照，并在2月随着奥米克戎变种疫情的蔓延而暂停护照的更新，但此次没收现有护照的新举措似乎在变本加厉。
 
-当局说有27人受伤。塔斯社援引紧急服务报道说，至少有10人失踪。
+以防病毒扩散的名义限制出境了。墙内同胞的真正灾难时刻要开始了，请做好充分的准备，
 
-俄罗斯社交媒体上流传的现场录像显示，研究所的窗户上冒着浓烟和火焰。关于火灾的原因，没有官方消息。
+七哥说过只有有钱人才可能逃出中共国。
 
-据俄罗斯国防部网站报道，该研究所从事航空航天研究，包括为前苏联共和国的独联体集团建立统一的防空系统。
-
-信息来源：
-** **[**Six killed in fire at Russian defence research institute – reports**](\Users\HP%20User\Documents\桌面\投稿NEWS\Six%20killed%20in%20fire%20at%20Russian%20defence%20research%20institute%20-%20reports)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**新闻来源：**https://www.breitbart.com/asia/2022/04/21/report-chinese-police-confiscating-passports-until-after-the-pandemic/
 
  
 

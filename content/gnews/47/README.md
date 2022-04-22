@@ -2,29 +2,31 @@
 ---
 
 
-## 俄军全面进攻乌东地区， 泽连斯基称顿巴斯战役已经揭幕
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2388176/)
+## 德国将为东欧各国提供先进装甲车以补偿其援助乌克兰
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2389265/)
 
-作者：日本东京方舟农场-Miyali7768(文玉)/纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-乌克兰总统泽连斯基18日在发表讲话时指出，“俄军已经正式打响他们准备已久的顿巴斯战役”，因为俄罗斯军队自本周一早上开始，就对顿涅茨克州（Donetsk）、卢甘斯克州（Luhansk）和哈尔科夫州（Kharkiv）等乌东地区，几乎整条前线发起新一轮攻势，企图突破乌克兰防线。乌克兰总统幕僚长耶尔马克（Andriy Yermak）表示，战争的第二阶段已经启动，呼吁国民相信军方有能力抵抗。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-综合外媒报道，俄军上月撤出基辅一带等乌北地区后，就一直在乌东地区集结。留守在马里乌波尔地区的亚速营指挥官普罗科彭科(Prokopenko)周一表示，俄罗斯军队正在向马里乌波尔的亚速斯塔尔（Azovstal ）钢铁厂开火，目前有包括妇女、儿童在内的近千人正身处其中，因为这座钢铁厂是附近唯一可用的避难所。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-48.jpg)
-普罗科彭科怒斥俄军在明知有平民的情况下，依然主动对着工厂作无差别军事攻击，使用自由落体炸弹、掩体炸弹等各种丧心病狂的武器将马里乌波尔变成人间地狱。
+据《自由时报》4月22日报道，德国将提供东欧各国先进的装甲车，以补偿这些国家援助乌克兰战车，抵抗俄军的侵略。
 
-同日，乌克兰国防部发言人马兹亚尼克(Oleksandr Motuzyanyk)也证实，发现俄罗斯Tu-22M3战略轰炸机出现在乌克兰东部上空，并且对受围困的港口城市马立波(Mariupol)投放炸弹。不仅如此，乌克兰军方还在莫斯科和乌克兰边境之间的卡卢加地区上空发现了可携带核武器的俄罗斯重型战略轰炸机TU-95。这无疑印证了泽连斯基（Volodymyr Zelensky）早前一再重申的警告，指俄罗斯有可能使用核武器，并呼吁“世界上所有国家”都应该为俄罗斯总统普京，可能在针对乌克兰行动中使用战术核武器做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德国将为东欧各国提供先进装甲车以补偿其援助乌克兰.jpg)（图片来自欧新社）
 
-对此，美国驻联合国大使认为，普京正在“以不可接受的方式升级这场战争。另外，有军事分析指出，俄军现在正试图包围死守顿巴斯的乌军，顿巴斯战役必会令双方伤亡惨重。
+据报道，德国国防部长兰布雷特（Christine Lambrecht）表示，战事目前进入关键阶段，必须尽快援助乌克兰武器、尤其是乌克兰士兵能马上操作的武器。
 
-参考链接：[VOA“419断播门”事件掀起波澜壮阔的爆料革命新篇章](https://gnews.org/zh-hans/2372648/)
+她证实，德国已与“北大西洋公约组织”（NATO）盟国达成共识，几个东欧国家未来几天将把前苏联时期的战车和装甲车交给乌克兰，德国计划提供先进的武器补偿这些国家。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+昨日，德国外长贝尔伯克（Annalena Baerbock）在拉脱维亚访问时也指出，短期内德国无法提供乌克兰重型武器，因此与盟邦讲好先由对方提供，德国之后再补偿。
 
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+她强调，对德国来说，提供重型武器给乌克兰“不是禁忌”，不过没有解释为何德国不愿直接供应乌克兰战车和装甲车。
+
+此前，乌克兰要求德国供应战车，但德国政府至今没有点头，在国内外受到批评。
+
+参考链接：
+
+[https://news.ltn.com.tw/news/world/breakingnews/3901437](https://news.ltn.com.tw/news/world/breakingnews/3901437)
+
+总编：老孙
+校对发布：wenxia16
 
  
 

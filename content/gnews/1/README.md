@@ -2,22 +2,40 @@
 ---
 
 
-## 日本新泻县：中共病毒疫苗已致20人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390117/)
+## COVID-19疫苗副作用集萃(2022.4.22G) 接种三针疫苗，每次打完针整个人都不好了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2390183/)
 
-撰稿：东京樱花团/立正道
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2741.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fglobalnews.ca%2Fwp-content%2Fuploads%2F2021%2F08%2FGettyImages-1234409927.jpg%3Fquality%3D85%26strip%3Dall%26w%3D1200&amp;imgrefurl=https%3A%2F%2Fglobalnews.ca%2Fnews%2F8084268%2Fjapan-pandemic-new-phase%2F)
+整理/编辑：禄森
 
-据雅虎日本4月20日报道，截止3月20日，日本新泻县已向国家卫生部门报告218个中共病毒疫苗（新冠病毒疫苗）副作用案例，其中严重后遗症8例，死亡20人。死亡人数只能是以接种疫苗的因果关系不明公布。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-59.png)图片来源：雅典娜设计组(614)
 
-这份报告也报道了很多与疫苗有关还是其他原因导致的案例，并且呼吁“如果有疑似副反应的健康损害，请咨询相关部门”。
 
-信息来源：[新型コロナウイルスのワクチン接種後に２０人死亡　「因果関係は不明」　新潟県が公表](https://news.yahoo.co.jp/articles/6f46e234f79c954826026ead364b9d179416da87)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+**博主: 安哥拉狮头兔**
+
+今天打了第三针疫苗，手臂很酸痛，头有点不舒服，周身乏力，感觉很睏。之前第一针头痛了一个星期，第二针高烧了一个星期，我应该不适合打疫苗吧！还是早点睡觉，怕怕
+
+**作者发布于2022-4-17**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2743.png)图片来源：微博
+参考链接：
+
+[头昏脑涨，周身乏力，手臂酸痛](https://weibo.com/2199554747/LoTNo5h4Q)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
