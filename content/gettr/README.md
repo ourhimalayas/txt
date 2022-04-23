@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 10:24 PM (UTC)`
+
+4/23/2022 Miles Guo: All the banks in Communist China are under the CCP’s control. These banks will restrict cash withdrawals and transfers and will regulate accounts with large amounts. The banks and bankers in Communist China will be the new victims of the CCP, including Dong Wenbiao, Zhang Hongwei, Bruno Wu, Jack Ma, and others.<br/><br/>4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号，中共国的银行和银行家都是共产党的新的牺牲品，包括董文标、张宏伟、吴征、马云等等<br/><br/>
+![img](https://media.gettr.com/group10/getter/2022/04/23/22/5e0c217a-564f-9559-17c8-223cbddc03e0/out.jpg)
+
+---
+
+`@miles 4/23/2022 10:20 PM (UTC)`
+
+4/23/2022 Miles Guo: Nancy Pelosi may not be able to visit Taiwan on April 26th. The CCP hired many agents in the US in an attempt to delay Pelosi’s Taiwan visit till July or August. Xi Jinping is anticipating chaos in the US after midterm elections. Xi plans to take advantage of the chaos to defeat the US, occupy Taiwan, and advance his own RMB financial system to the entire world.<br/><br/>4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七八月份访台，习近平寄希望于美国中期选举的“大乱”而进入美国，拿下台湾，并在全世界推广人民币金融系统。<br/>
+![img](https://media.gettr.com/group18/getter/2022/04/23/22/17aedeb4-89e8-f42a-108c-dbe726998dd5/out.jpg)
+
+---
+
+`@miles 4/23/2022 10:12 PM (UTC)`
+
+4/23/2022 Miles Guo: Never happened ever since 1949! Within 2 weeks over 60,000 armed police were deployed and stationed in Beijing! Communist China is in the early phase of outbreak of COVID vaccine adverse effects and disasters; the cities of Beijing, Shanghai, Guangzhou and Shenzhen etc will be quarantined over and over again; quarantine and internet control are the CCP's measures under the so-called "State Management Model of the New Era".<br/><br/>4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队！ 大陆现在就是疫苗灾难、疫苗反应的最早期；北上广深等城还会有无数次隔离，隔离和网控等手段就是中共所谓新时代的国家管理模式<br/>
+![img](https://media.gettr.com/group9/getter/2022/04/23/22/7b8cd301-d4ca-7c79-d322-a7137ee9c92b/out.jpg)
+
+---
+
 `@miles 4/23/2022 10:05 PM (UTC)`
 
 4/23/2022 Miles Guo: I can tell you it is 100% sure that Beijing will be quarantined! Not 99% but 100% sure! The CCP has been aware that if they let Chinese people live well, Chinese people will be making difficult for them.<br/><br/>4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子！<br/>
@@ -132,27 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 2022-4-22《鸡血王喜币大作战》 第一百七十三集 嘉宾：青藤、文空、风雨之中
 ![img](https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 2:05 AM (UTC)`
-
-2022.04.22  新中国联邦 | 喜财经   馬斯克開嗆札克伯格：Meta完全被他控制
-![img](https://media.gettr.com/group20/origin/2022/04/23/02/5edd2aaa-8379-17c7-1261-f349754f94d7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/23/2022 1:00 AM (UTC)`
-
-2022.04.22 晚  新中国联邦 | 新闻访谈   4月26日Nancy Pelosi 访台，台湾面临中共毁岛命运
-![img](https://media.gettr.com/group50/origin/2022/04/23/00/5889189c-79f6-a9d5-e631-8ec8213191ef/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/23/2022 12:30 AM (UTC)`
-
-2022.04.22 晚  新中国联邦 | 新闻   中共计划所谓的“未来30年”；中共杀人体制的危害
-![img](https://media.gettr.com/group17/origin/2022/04/23/00/9bce90ba-8e31-5dc8-be90-32684764ecf4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

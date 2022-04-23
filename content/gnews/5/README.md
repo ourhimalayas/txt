@@ -2,35 +2,31 @@
 ---
 
 
-## 加拿大启动Aeroplan基金帮助乌克兰人赴加
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400556/)
+## 上海新冠病毒隔离营中绝望的野营床
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2400832/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-《多伦多太阳报》4月20日报道，加拿大人现在可以捐赠现金或Aeroplan航空里程积分，帮助乌克兰人逃离战火，飞抵加拿大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2956.png)
-加拿大政府早些时候宣布接受乌克兰难民，并允许他们以临时居民身份在加拿大居住最多3年，已有超过54,000名乌克兰人获批。但目前当务之急是如何尽快帮助已逃离到欧洲各地的乌克兰人踏上前往加拿大的旅程。
+#### 编译 意大利达芬奇农场 小白鸽
 
-移民部长弗雷泽表示，该项基金可以帮助至少1万名乌克兰人及其家人赴加。负责管理基金的Miles4Migrants慈善机构专门利用捐赠的飞行里程来帮助有合法旅行许可但囊中羞涩的难民逃离战火。
+在中国上海的这个新冠病毒检疫设施中，人们躺在一排排相隔不到一臂之距的野营床上……他们的手提箱和其他个人物品散落在他们旁边。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-23-alle-22.22.46.png)图片来源：eventiavversinews.it
+数百名新冠病毒检测呈阳性的人聚集在该设施中，由于中国以令人难以置信的社会经济成本推行的荒谬的清零政策，这只是该市数十个被改建为检疫中心的地方之一。
 
-加航已率先为该项基金捐赠了1亿积分，约合200万美元；美国夏皮罗基金会宣布它将匹配捐赠最高不超过5000万积分的加拿大人捐款，约合100万美元。人们可以捐赠与Miles4Migrants合作的所有航空公司的里程积分，大多伦多犹太基金会则负责现金募捐。
+医疗保健专业人员试图阻止人们自杀，被拍摄成为头条新闻。
 
-原文链接：[https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada](https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada)
+中国强迫无辜公民生活在屈辱的条件下。他们必须以牺牲市场经济为代价，让刚刚开始摆脱贫困的人们屈服，他们必须产生一种无能为力的感觉而且缺乏自由感。
 
-上传/发稿 – 文永
-撰稿/翻译/听写 – 自由法兰西
-素材/采编 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+人类巧妙地制造危机。上海居民饿死，仓库里的粮食腐烂，商业被摧毁。物资无法运送到被迫关闭的商店和市场。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+疫情清零是一项失败、疯狂和残酷的政策。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+文贵先生在4月份的大直播中透露：习近平让中国人没电、没水、没冰箱、没吃品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿；中共最终要制造经济灾难从而干掉美国。清零政策达到了非常重要的目的：整个经济要闭关锁国、增加社会承受能力。由此可见：中共不灭，灾难不断。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+参考链接：
+
+[https://www.eventiavversinews.it/lettini-da-campo-disperazione-e-pane-semplice-nei-campi-di-quarantena-covid-di-shanghai/](https://www.eventiavversinews.it/lettini-da-campo-disperazione-e-pane-semplice-nei-campi-di-quarantena-covid-di-shanghai/)
+
+编辑、上传: Xiao baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

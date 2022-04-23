@@ -2,22 +2,22 @@
 ---
 
 
-## G20加拿大和盟友抵制俄罗斯
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400731/)
+## 安省劳工仲裁员为企业解雇未打疫苗员工开绿灯
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400894/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：青青、撰稿：文所未闻
+##### 作者：加拿大温哥华扬帆农场 – 薇文
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大《CTV新闻》4月21日报道，周三在华盛顿举行的G20集团财长和央行行长会议上会议上，当俄罗斯财政部长在G20会议上发言时，加拿大财政部长联同其他盟友集体退场，以抗议俄罗斯对乌克兰的武力入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2996.png)
-据悉，加拿大财政部长表示，俄罗斯非法入侵乌克兰是对全球经济的严重威胁。俄罗斯不应该被允许参加G20会议。面对俄罗斯的持续侵略和战争罪行，世界上的民主国家不会袖手旁观。
+加拿大[生活网站新闻]21日报道，安大略省的劳工仲裁员最近裁定，允许一大型肉类包装商解雇不接受病毒实验性疫苗的员工。理由是很难预测、辨别何时安全地减少和消除病毒预防措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3006.png)
+尽管加拿大所有省份都已放弃口罩和疫苗强制政策，但这家“枫叶食品公司”，却要求其在安省布兰特福德鸡肉工厂的员工出示疫苗证明，否则将被解雇或无薪停职。
 
-得道多助，失道寡助。全球对俄罗斯的经济制裁日益加深，俄罗斯从全球事务中被踢出局已成事实。而背后的金主“中共”更是难逃其责。
+尽管雇员工会强烈质疑，认为工人有疫苗接种状况隐私权，并保留不接种疫苗的自主权。但仲裁员却裁定不打疫苗或以个人隐私为由抗议的员工“不能继续工作”，他声称员工并没有被“强迫注射”，而是“被要求决定”是否接种疫苗并“接受后果”。
 
-原文链接：[https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864](https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864)
+强制疫苗已分裂了加拿大社会，疫苗副作用甚至影响到儿童和胎儿流产。研究表明COVID病毒存在于在大多数群体中，而且自然免疫力远优于疫苗免疫。
+
+新闻链接：[Large Canadian meatpacker given green light to potentially fire unvaccinated employees](https://www.lifesitenews.com/news/large-canadian-meatpacker-given-green-light-to-potentially-fire-unvaccinated-employees/)
 
 上传/发稿 – 文永
-撰稿/翻译/听写 – 文所未闻
-素材/采编 – 青青
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
