@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 5:44 PM (UTC)`
+
+04.23.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group39/origin/2022/04/23/17/fb68a364-a7f6-1142-b406-3c53a1019f2e/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/23/2022 4:34 PM (UTC)`
 
 The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
@@ -146,13 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 【Ukraine Rescue】 04/21/2022 A volunteer from France applauds the idea of eliminating the CCP. He says: We should help the Chinese people to fight against the dictatorship of the CCP, maybe having coffee with you is a way to show our support!<br/><br/>【乌克兰救援】 04/21/2022 一位来自法国的志愿者为我们铲除中共的理念鼓掌叫好。他表示：所有人都应当帮助中国人民来反对中共的独裁统治，也许和你们共饮咖啡是一种表示支持的方式！<br/>
 ![img](https://media.gettr.com/group19/getter/2022/04/22/23/1b92a24c-38d1-1389-de3a-f24d5c33cb46/out.jpg)
-
----
-
-`@miles 4/22/2022 11:27 PM (UTC)`
-
-【Ukraine Rescue】 04/21/2022 International volunteer from the UK says she will have people in her circle download Gettr and GNews and spread the truth. She also hopes the voice of NFSC can be heard by many people.<br/><br/>【乌克兰救援】 04/21/2022 来自英国的国际志愿者表示，她会让她的圈子里的人下载盖特和 GNews并传播真相。她也希望新中国联邦的声音能被更多人听到。
-![img](https://media.gettr.com/group46/getter/2022/04/22/23/e2041ba7-9aa1-3c73-a06a-6a86519d96df/out.jpg)
 
 ---
 

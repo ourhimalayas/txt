@@ -2,24 +2,30 @@
 ---
 
 
-## 北京连夜召开发布会宣布疫情
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2399428/)
+## 中共打算在美国中期选举之时大闹世界
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399524/)
 
-**作者：意大利罗马达芬奇农场 Vanessa**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/B-5.jpg)sg,news.yahoo.com
-据北京日报客户端消息，4月22日晚，在北京市新冠病毒肺炎疫情防控工作第311场新闻发布会上，北京市疾控中心副主任、全国新冠病毒肺炎专家组成员庞星火介绍，4月22日16时至22时，北京新增本土新冠肺炎病毒感染者4例，均为确诊病例：朝阳区2例、顺义区2例。另有1例核酸复核阳性人员及9例核酸初筛阳性人员，共13例。初判传播风险高！北京本起疫情涉老年旅游团、装修人员及在校生。截止到23日，北京新增本土新冠肺炎感染者已增加到15例。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6977e9aeb30118ee2971c920b76ffd42.jpg)
+4月23日郭先生在直播中提到，美国内部所有的问题都会在11月份中期大选之后发生大的改变，尤其政治上会有一些大行动。而共产党习近平认为可以趁此次中期大选期间美国的动乱，来做一切想做的事情。
 
-笔者观察到此次疫情宣布时间选择在22日晚23点30分，此时大部分北京居民已经休息，无法作出快速反应，且爆发点在旅游团和学校，均为易于迅速传播的渠道。
+习近平所迷信的莫德尔周期即他认为自己是重掌这世界的神，他认为可以在11、12月期间趁着美国中期选举大乱，收复台湾、控制亚洲、向世界大力推广人民币和金砖国的金融系统，并打算将金砖组织和上海金融推广到全世界，形成替代美国的方案。为了实现此方案，目前中共国内已经实施戒严，控制老百姓的粮食和财富，人禁足在家里，钱禁足在银行，以所谓的防疫为名，不允许日常吃饭，不允许大额汇款和取现。中国人有的会因为中共疫苗灾难死去，没有死去的中国人可能会把所有的财富乃至未来近千年的利益都拱手交给亚非拉国家，只为了共产党要推广自己的人民币系统，只为了习近平疯狂地实现他所臆想的莫德尔周期定律。中共认为要么成功，要么让全世界陪葬。
 
-文贵先生早在21日的临时直播中就已经爆料，接下来会对北京实施隔离管控，共产党一定是以疫情为借口对北京采取行动。共产党的一切都按照写好的剧本在进行，只不过这次的演员从2600万的上海市居民，转移到了2100多万的北京市居民，悲剧在一个个上演，犹如一部巨型灾难片，中共不灭，灾难不止！
+郭先生提到，人民币不是贬值，是直接变成垃圾。港股目前在两万浮动，只要跌到一万八，港币马上消失。以上中共的美梦，只会更快地让自己走向灭亡。
 
-新闻来源：
-[https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&mod=pcpager\_china&loc=15&r=0&rfunc=10&tj=cxvertical\_pc\_pager\_spt&tr=174#/](https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&amp;mod=pcpager_china&amp;loc=15&amp;r=0&amp;rfunc=10&amp;tj=cxvertical_pc_pager_spt&amp;tr=174#/)
+撰稿、发布：骄子
 
-[https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/](https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/)
+* * *
 
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
