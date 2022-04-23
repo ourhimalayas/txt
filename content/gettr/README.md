@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 11:00 AM (UTC)`
+
+【Ukraine Rescue】 04/22/2022 Three volunteers from France express their support for the new Chinese people of the NFSC to overthrow the communist regime. Communism is not beneficial to the Chinese people, nor to the people of the world. It is a difficult task, but with the support of the whole world and with God, anything is possible.<br/><br/>【乌克兰救援】 04/22/2022 三位来自法国的志愿者表达了他们对于新中国联邦的新中国人推翻共产党统治的支持，共产主义对中国人民、对全世界人都没有好处。这是一项艰巨的任务，但有全世界的支持，有上帝在，一切皆有可能。
+![img](https://media.gettr.com/group4/getter/2022/04/23/11/28c43d28-7e0f-7c98-79c2-cb8f50bac2bb/out.jpg)
+
+---
+
 `@miles 4/23/2022 10:17 AM (UTC)`
 
 【Ukraine Rescue】 04/20/2022 Tibetan Lama says in front of the big tent of the NFSC & ROLF Ukraine Rescue: Don't have hatred against the Chinese people. The only one who makes the problem is the CCP. They always tells lies to the world, they take away the freedom of the people, and they conduct genocide and destroy the nature. And recently, they destroyed many big statues of Tibet. The Chinese government buys everything. If they continue to do bad things, they will suffer and pay.<br/><br/>【乌克兰救援】 04/20/2022 西藏喇嘛在新中国联邦和法治基金乌克兰救援大帐篷前说：不要恨中国人，唯一要恨的是中国共产党，他们总是向世界撒弥天大谎、剥夺人民的自​​由、种族灭绝、破坏自然。最近，他们毁坏了许多西藏大佛像。中共国政府收买一切。如果他们继续作恶多端，他们就会万劫不复。<br/>
@@ -147,13 +154,6 @@
 
 4/22/2022 Ukraine Rescue: The New Federal State of China just received a gratitude email from the Embassy of Ukraine in the Republic of Singapore, Brunei and New Zealand; the representative expresses Ukrainian people’s gratitude to the New Federal State of China and the Rule of Law Foundation for our support and assistance<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦收到来自乌克兰驻新西兰、新加坡和文莱大使馆的感谢邮件，向新中国联邦和法治基金对乌克兰的救援和支持表示衷心的感谢<br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/22/22/5ba9e615-99dd-68b3-30be-4dac133597c8/out.jpg)
-
----
-
-`@miles 4/22/2022 10:03 PM (UTC)`
-
-“STOP TOUCHING HER! 别碰她！” 飞飞秀救援快报 2022-04-22<br/>For English：gettr.com/streaming/p16o9nd9be9
-![img](https://media.gettr.com/group41/origin/2022/04/22/22/4f57735b-f5e6-8a68-83ad-db82df07f0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

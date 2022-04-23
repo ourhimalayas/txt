@@ -2,40 +2,37 @@
 ---
 
 
-## 有声|调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397564/)
+## 【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397616/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-在4月18日的战斗室节目中，娜欧米·沃尔夫博士表示，国会议员和律师正努力通过司法途径，迫使辉瑞曝光所有与疫苗相关的资料。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-18.png)
-根据调查发现，早在2021年8月，辉瑞公司和美国食品和药物管理局已经知道，疫苗临床试验失败，疫苗既无效，而且非常危险。
+**By：[秘翻北美时评](https://gettr.com/post/p16o2xv17ee)**
 
-辉瑞内部数据显示，疫苗会破坏和抑制人体淋巴细胞，而且会引发肌肉、关节、心脏等方面的疾病。更有甚者，早在2021年5月，在接种疫苗一周后，约35位青少年出现永久性心脏损伤。美国食品和药物管理局明知疫苗的危害性，却仍宣布要求对青少年接种毒疫苗。
+***[2022-04-23](https://gettr.com/post/p16o2xv17ee)***
 
 
 
 
 
-文字版原文：[调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害](https://gnews.org/zh-hans/2390431/)
+**今日主题：**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+**1.上海22日起开展社会全面清零攻坚九大行动 **
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**2.上海666家龙头企业70%本周复工复产 **
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**3.朝鲜因防疫射杀3名中国人 **
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**4.世界正式进入中美竞争时代 **
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**5.全球粮食危机或带来“人类大灾难” **
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**6.普京脸部浮肿再爆犯癌**
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+🔗链接：[https://gettr.com/post/p16o2xv17ee](https://gettr.com/post/p16o2xv17ee)
 
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

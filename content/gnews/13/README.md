@@ -2,30 +2,24 @@
 ---
 
 
-## 俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2397512/)
+## 秘翻在线：患有基础疾病的英国新冠（中共病毒）患者持续阳性16个月以上
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2397556/)
 
-**港台前线 zhong｜2022-4-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-13.png)
-欧洲理事会主席米歇尔（Charles Michel）20日突访乌克兰外，曾与俄罗斯总统普京电话会谈90分钟，米歇尔呼吁俄停火。此外，他敦促俄乌双方领导人进行直接会谈，对此俄罗斯总统则表示双方直接会谈取决于停火协商的进展。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-48.jpg)图片来源：本文链接
+据韩联社4月23日的消息，英国广播公司(BBC)等媒体22日(当地时间)报道说，英国一名患者在2020年初患上新型冠状病毒（中共病毒）感染症后，连续505天以上保持了感染状态。
 
-联合国方面，秘书长安东尼奥·古特雷斯（ Antonio Guterres）将于周二前往莫斯科与俄罗斯总统普京会面，周四前往乌克兰与总统泽连斯基、外交部长库莱巴（Dmytro Kuleba）会谈。
+英国圣托马斯医院的研究人员在欧洲医学学会发表有事例表示，该患者是迄今为止被确认感染时间最长的患者。该患者虽然接受了抗病毒剂处方，但病毒感染并没有消失，直至去年死亡。根据研究组对基因分析的结果，该患者不是多次感染，而是持续感染。这与感染消失后持续出现后遗症不同。
 
+在此次发表中，出现了8周以上新冠病毒（中共病毒）呈阳性的9名患者的事例。他们因器官移植、癌症等，免疫系统处于弱化状态。平均感染时间为73天，2人感染1年以上。
 
+其中5人存活了下来，2人在没有治疗的情况下痊愈，2人治疗后痊愈，1人仍然处于感染状态。研究组表示，他们没有发生新的危险突变，也没有向其他人传播病毒的证据。
 
-> Next week, I will meet with President Vladimir Putin in Russia and President Volodymyr Zelenskyy in Ukraine.
-> 
-> We need urgent steps to save lives, end the human suffering and bring about peace in Ukraine.
-> — António Guterres (@antonioguterres) [April 23, 2022](https://twitter.com/antonioguterres/status/1517687237525352449?ref_src=twsrc%5Etfw)
+美联社称：“此次研究结果表明，保护新冠病毒脆弱人群非常重要。”
 
+信息来源：[https://www.fnnews.com/news/202204231058277126](https://www.fnnews.com/news/202204231058277126)
 
-
-来源｜[NHK](https://www3.nhk.or.jp/nhkworld/en/news/20220423_12/)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+责编：Eric Kim
 
  
 

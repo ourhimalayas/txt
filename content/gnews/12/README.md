@@ -2,27 +2,40 @@
 ---
 
 
-## 有声｜乌克兰最高检察官指控俄罗斯预谋屠杀平民
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397523/)
+## 有声|调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397564/)
 
-By:**秘翻新闻**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在4月18日的战斗室节目中，娜欧米·沃尔夫博士表示，国会议员和律师正努力通过司法途径，迫使辉瑞曝光所有与疫苗相关的资料。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-18.png)
+根据调查发现，早在2021年8月，辉瑞公司和美国食品和药物管理局已经知道，疫苗临床试验失败，疫苗既无效，而且非常危险。
 
-**2022-04-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-19.png)
-[天空新闻](https://news.sky.com/story/ukraine-war-countrys-top-prosecutor-accuses-russia-of-pre-planning-mass-murder-torture-and-rape-12596074)4月22日报道，乌克兰最高检察官表示，俄罗斯预先制定了一个计划，让其军队在乌克兰对投降的平民进行酷刑、强奸和处决。
+辉瑞内部数据显示，疫苗会破坏和抑制人体淋巴细胞，而且会引发肌肉、关节、心脏等方面的疾病。更有甚者，早在2021年5月，在接种疫苗一周后，约35位青少年出现永久性心脏损伤。美国食品和药物管理局明知疫苗的危害性，却仍宣布要求对青少年接种毒疫苗。
 
-日前，乌克兰检察总长维涅迪克托瓦在基辅接受采访时表示，她和她的团队正在处理来自乌克兰各地近8000起战争罪案件，包括处决、性暴力和强行将儿童驱逐到俄罗斯。并且案件的数量每天都在增加，同时证据的数量也在增加。
 
-她透露，有大量的案件仅仅是因为俄军不喜欢乌克兰人而杀害他们。她还表示，俄军认为城市应该立即投降，如果拒绝，就意味着必须最大限度地恐吓人们。对其实施杀戮、强奸、酷刑，以及其他残忍的事情。
 
-最后她表示，必须确保普京最终出庭接受审判，是乌克兰检察官的首要任务。
 
-秘翻新闻 Julia编译报道
 
-发布 : 恩典
+文字版原文：[调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害](https://gnews.org/zh-hans/2390431/)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
