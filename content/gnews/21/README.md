@@ -2,42 +2,41 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2398467/)
+## 乌克兰救援前线报道4.23.2022：绝非偶然的新中国联邦相关多起突发事件
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2398692/)
 
-#### **整理：枳实****
-****美工：精灵蓝**
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_4723-e1650661985921.png)4月22日，一名男子突然攻击正义小Sarah。事后小Sarah说，如果当时她没有往后退一步，那只手就打到自己的脸了。图片来自https://himoney.press/
+梅迪卡前线救援团队在23日的连线直播中介绍了昨天的N起不寻常的突发事件，遭受陌生人攻击的正义小Sarah在直播中讲述了她昨天的经历。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
+昨天（22日）早上，梅迪卡难民营地矗立起一座6米高的巨型灯箱，灯箱正反两个方向的LED屏幕上滚动的是难民中心的班车时刻表、新中国联邦营地的服务信息，还有与新中国联邦灭共马甲一样醒目的标语——“消灭邪恶的中国共产党”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-4.png)志愿者纷纷在LED灯箱下拍照。图片来自NFSC news素材区
+紧挨着新中国联邦LED灯箱的是国际移民组织IOM 和国际中央厨房Central World Kitchen两个公益机构的帐篷，连接灯箱电源的主要线路都在IOM帐篷里。巨型的LED灯箱从当天点亮起就吸引了众人的目光，正当一些志愿者们纷纷来灯箱旁拍照的时候，几个不同寻常的人也在定位准备攻击的目标。
+
+根据前线发来的视频和不同救援团队成员的回忆，22日当天，三位新中国联邦的女性志愿者分别遭到来自同一位不明身份的美国人的辱骂和攻击。同一天，新中国联邦的巨型LED灯箱遭到了人为破坏。
+
+- 上午11点多，一名身穿志愿者背心的男士无理由地对着刚走出移动洗手间的新中国联邦志愿者[Mia](https://gettr.com/post/p16onme8142)爆粗口，他夹带着F开头的脏字，冲着正返回NFSC帐篷的Mia一直大声吼道：“你们在这里搞政治、搞宣传, 无耻！” 事后，新中国联邦志愿者文疯而动询问他身份的时候，他只是晃晃自己的胸牌。
+- 还是同一人，对着站在灯箱旁的前线记者Nicole大声吼着和Mia同样的话，Nicole当即拿出手机对准他拍摄，他一边试图抢夺Nicole的手机，一边命令她删掉视频。完全不顾旁边另一位新中国联邦志愿者鬼五大哥的劝说，“这是在波兰，我们有表达自己观点的权利……”
+- 第三位新中国联邦女性志愿者[正义小Sarah](https://gettr.com/post/p16nplb631a)听闻吵闹来到现场，这位准备走进Central World Kichen帐篷的人，突然一转身，反手一掌对准正用手机拍摄的正义小Sarah猛地挥过去，他的手几乎碰到小Sarah的脸，Nicole大声呵斥道，“不许碰她……”，事后小Sarah说，如果当时她没有往后退一步，那只手就打到自己的脸了。
+- 就在3位新中国联邦女性志愿者遭到同一人主动攻击后的1个小时左右，新中国联邦的巨型LED灯箱有一面不亮了，经文科战友检查后发现，IOM帐篷里连接灯箱电源的电线被人为剪断，他立即报警，波兰警察已经[立案调查](https://gettr.com/post/p16oo8y930d)。
+- 攻击三位新中国联邦女性志愿者的[肇事人](https://gettr.com/post/p16nplb631a)正准备与他的两名同伴乘坐巴士离开，当地的波兰人与新中国联邦救援团队一起阻止他们的逃离，那位肇事人突然佯装被推倒，脑袋猛地后仰撞向巴士，这个明显自导自演的一幕，被目击者全程记录下来。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-16.jpg)IOM帐篷里LED灯箱的电源线被人为剪断（左）、一男子攻击正义小Sarah（右上）、该男子在巴士旁自导自演“碰瓷”（右下）图片来自Gettr
+小Sarah在今天的连线直播中说，波兰警察询问她当时是否害怕时，她告诉警察，被突然攻击，自己受到了很大的惊吓。文疯而动战友说，经波兰的警察证实，在人身受到威胁时的拍摄取证是完全合法的，因此当肇事男子向波兰警察投诉中国女孩对着自己拍摄时，波兰警察明确地回复他，这里是波兰不是美国（波兰警察已确认他的美国身份）。
+
+新中国联邦的巨幅LED灯箱在波兰警察勘察现场结束后就已重新点亮，目前还没直接证据证明灯箱的线路破坏与攻击新中国联邦志愿者的美国人有关，但波兰警察表示会调用附近的摄像头找寻更多证据。根据Nicole最新的消息，攻击新中国联邦志愿者的人与他的同伴，向当地警察投诉新中国联邦LED灯箱的灭共标语，他们正试图影响梅迪卡营地的组织机构将标语消除掉。
+
+攻击事发之后，一位法国人主动告诉救援团队说，他曾用手机拍摄LED灯箱，那位攻击小Sarah的人试图阻止他，并轰他离开，他表示不理解此人有什么权利在公共场合阻止他；另一位法国志愿者对小Sarah说，“这个美国人的做法是错的，我不明白他为什么这样做，他竟然认为中国共产党好？”；还有一位法国老年志愿者用翻译器说她对此事的看法，她说：“我想他是在嫉妒你们所做的一切，他害怕你们。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-8.jpg)一位法国老年志愿者用手机翻译软件说出心里话（左）、法国志愿者告诉小Sarah那个人的做法是错误的（右上），拍摄LED灯箱时同样受到驱赶的另一位法国人（右下）图片来自NFSC news素材区
+也许22日同一天发生的几起事件并不能马上得出结果，但笔者认为，这些蓄意的人身攻击与LED灯箱同时发生的巧合性，以及发生这些事件背后的原因绝非单纯的个人行为。这几个人明确而强烈地针对灭共的举动与前段时间同样质疑大救援行动有政治企图的彭博社性质一样，彭博社的假采访真诋毁新中国联邦最后以失败告终，而这群人以志愿者身份进入到梅迪卡，在志愿者及其各国际组织之间制造事端只是刚刚开始。
+
+正常逻辑下，在一个人道救援的大环境内，同为世界和平、救助乌克兰难民的志愿者，如果仅仅是出自个人的反感灭共标语，直接向梅迪卡难民中心主办方表达个人诉求即可，为什么要主动攻击“同行”，制造志愿者之间的混乱和支援团队之间的矛盾？如果是单纯的人身攻击，没有做其他破坏行为，当时为什么要离开？为什么要上演“碰瓷”的动作？如果确认他们是国际救援组织的志愿者，那么他们志愿者之外的职业究竟是什么……
+
+参考链接：
+
+[新中国联邦法治基金乌克兰人道救援行动–波兰救援基地前线报导 (gettr.com)](https://gettr.com/streaming/p16ptj8edb1)
 
 
-雅典娜疫情更新（2022年 4月22日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-95.png)图片：雅典娜农场设计组 精灵蓝
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-32.png)图片：雅典娜农场设计组 精灵蓝
-
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[ovidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

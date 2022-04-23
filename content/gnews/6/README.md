@@ -2,24 +2,46 @@
 ---
 
 
-## 马里乌波尔钢铁厂的内部影像 俄罗斯军队入侵 平民避难 普京“健康不安说”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2398994/)
+## 欧盟主席公开表明乌克兰即欧州自由民主的核心
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2399169/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-4月2日，俄军宣布控制了乌克兰东南部的要冲马里乌波尔。
-视频来源：FNN新闻
-乌克兰军队固守的阿佐夫斯塔利钢铁厂内，现在很多没有及时撤离的孩子们的状况被公开了。
+作者: 东京樱花团 – 麗子
 
-参考链接：[マリウポリ製鉄所の内部映像　ロシア軍侵攻 市民ら避難　プーチン大統領には“健康不安説” (fnn.jp)](https://www.fnn.jp/articles/-/351251)
 
-* * *
 
-发稿：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
+
+
+
+
+4月20日，欧州理事会主席米歇尔访问了乌克兰首都基辅，对正在遭遇俄罗斯入侵的乌克兰表示声援。而后欧盟主席在自己的推特上写道：”今天我在基辅，它是欧洲自由民主的核心”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/23-04-2022.jpg)
+
+图片来源网络
+
+此前欧盟高层也多次访问乌克兰。其中，欧洲议会主席梅佐拉于本月1日访问了基辅。8日，欧盟委员会主席冯德莱恩也协同外交安全事务高级代表博雷尔一起前往基辅，并会见了泽伦斯基总统，同时还访问了基辅附近、平民惨遭俄军杀害的布查地区。
+
+郭文贵先生也曾在盖特直播中指出，乌克兰的政治文明与民主社会体制让普京产生了恐惧，普京的疯狂入侵与乌克兰人民的英勇反抗必定会成就乌克兰在欧盟的核心地位。而欧盟主席今日推文所言进一步证实了爆料革命对时局发展的精准预测。
+
+
+
+相关链接:
+
+[https://news.yahoo.co.jp/articles/8c88ef4b7e163cc2b7ed45bcc2841985d3c93411](https://news.yahoo.co.jp/articles/8c88ef4b7e163cc2b7ed45bcc2841985d3c93411)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
  
 

@@ -2,41 +2,24 @@
 ---
 
 
-## 樱花时政┃四月之声被封杀，上海人疯传，微信圈成孤岛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2398855/)
+## 马里乌波尔钢铁厂的内部影像 俄罗斯军队入侵 平民避难 普京“健康不安说”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2398994/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-《四月之声》的视频制作人，余刚，今天被相关部门以煽动颠覆为由带走！所谓的煽动颠覆就是无理由把你关押！
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+4月2日，俄军宣布控制了乌克兰东南部的要冲马里乌波尔。
+视频来源：FNN新闻
+乌克兰军队固守的阿佐夫斯塔利钢铁厂内，现在很多没有及时撤离的孩子们的状况被公开了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃四月之声被封杀，上海人疯传，微信圈成孤岛.jpg)
+参考链接：[マリウポリ製鉄所の内部映像　ロシア軍侵攻 市民ら避難　プーチン大統領には“健康不安説” (fnn.jp)](https://www.fnn.jp/articles/-/351251)
 
-这个视频，很温和地叙述了上海封城以来发生的事，不带立场，没有说那些更极端的事，这样的作者也被抓，六个自信呢？
+* * *
 
-就因为多年前几个上海人整了一个陕西人，就因为一个大人物回上海老家一趟，上海人无端端炼狱走了一圈，苟延残喘之余竟然不能平和讲出自己经历！
+发稿：宫米叶
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
-上海人也疯了！发了封，封了发，倒着发，镜面发，侧面发，各种发……
-
-愚昧中共命令腾讯公司紧急开发 “同城”朋友圈。外地用户看不到上海用户的朋友圈了……这通神操作……
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃四月之声被封杀，上海人疯传，微信圈成孤岛2.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃四月之声被封杀，上海人疯传，微信圈成孤岛3.jpg)
-
-只信服暴力征服愚蠢的无脑儿们只会做这些掩耳盗铃的事，网络时代信息传输如此发达，你把上海人的微信圈变成孤岛一座，信息就完全封闭了吗？这只能引起人们更大的愤慨！
-
-经过这一波波的切肤之痛，我想上海人应该能明白了给他们带来深重灾难的不是病毒而是这个邪恶政权！坏事做尽还不许你说话！
-
-马方老师说人没有叫醒的只有痛醒的，如今的上海已经成为人们心中抹不去的殇城，希望这场灾难能叫醒更多人！
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
