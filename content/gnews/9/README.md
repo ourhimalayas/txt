@@ -2,39 +2,36 @@
 ---
 
 
-## 德国央行警告俄天然气禁运将带来严重危机
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2400240/)
+## 装置作品《成都双年展作品（三）》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400246/)
 
-零对冲4月23日报道，欧盟官员正在考虑对俄罗斯天然气进口实施全面禁运，并可能在近期内提交给布鲁塞尔审查。据英国《金融时报》报道，关于这种禁令的警告引发了德国最高银行的担忧，该银行在周五发布的一份新的月度公告中指出，立即全面禁止俄罗斯天然气进口可能会加剧滞胀的威胁，并导致破坏性的经济衰退。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/G-5.jpg)todayuknews.com
-德国央行Bundesbank警告说，对俄罗斯天然气的禁运将使其经济在今年损失1800亿欧元的产出，因为能源产品的价格将飙升到难以想象的水平，并使经济陷入多年来最深的衰退之一。
+作者：王钟
 
-“在严重的危机情况下，与2021年相比，今年的实际国内生产总值将下降近2%。此外，通货膨胀率将在更长的时间内大幅提高。”德国央行说。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
 
-德国央行指出，欧盟的经济复苏已经在俄罗斯入侵乌克兰的影响下摇摇欲坠。外来的冲击可能会引发经济衰退。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2937-edited-1.png)
 
-关于全面禁运俄罗斯天然气的讨论已经引起了在德国大的制造业中心运营的公司的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2938-edited.png)
 
-化工集团BASF的首席执行官马丁·布鲁德穆勒（Martin Brudermüller）说，天然气禁运将使其德国业务陷入 “第二次世界大战以来最严重的危机”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2939-edited.png)
 
-德国是欧盟27国中经济规模最大的国家，大力反对禁止俄罗斯能源进口，而是选择了逐步淘汰俄罗斯能源产品的战略。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2940-edited.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2941-edited-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2942-edited.png)
 
-美联社本周援引BDA雇主集团和DGB工会联合会主席的话说：“快速的天然气禁运将导致德国的生产损失、停工、进一步的去工业化和长期的工作岗位损失。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2943.png)
 
-欧盟多达40%的天然气和25%的石油都依赖俄罗斯，主要是通过管道运输。德国能源消费总量的三分之一依赖于俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2944-edited.png)
 
-关于欧洲禁止俄罗斯原油，摩根大通商品策略师娜塔莎·卡涅瓦（Natasha Kaneva）本周写道：“全面、立即的禁令可能会使布伦特原油价格达到185美元/桶，因为超过400万桶的俄罗斯石油供应将被取代，既没有空间也没有时间把它们重新输送到中（共）国、印度或其他潜在的替代买家。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2945-edited.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2946-edited.png)
+审核：Aries的星
+校对：阿伯塔
+发布：小东
 
-德国的顶级银行对潜在的天然气禁令感到震惊，这可能会迅速破坏欧洲顶级经济体的稳定。话说回来，另一场经济危机会给欧洲央行提供另一个借口，让其再次推出印钞机并扭转紧缩路线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
-**快评**：这些德国央行、大企业及摩根大通等的反对立即全面实施对俄罗斯石油和天然气制裁的理由就是油价要涨上天，经济要崩塌。
 
-事实上，没有这个制裁也无法避免这次的经济崩塌。这些言论都在为即将到来的经济崩塌找出口，当然也可能是在替俄、中共发声。相信这些烂账最终都将算在普京和习太阳的头上，那些帮凶能苟延残喘下去吗？
-
-参考链接：
-[https://www.zerohedge.com/markets/bundesbank-warns-severe-crisis-scenario-upon-russian-gas-embargo](https://www.zerohedge.com/markets/bundesbank-warns-severe-crisis-scenario-upon-russian-gas-embargo)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

@@ -2,35 +2,55 @@
 ---
 
 
-## 《权利和自由宪章》纪念会议以尖锐的言辞结束
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400367/)
+## “上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400368/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unknown.jpg)图片来源：新华社
 
-《真北方》TRUENORTH网站4月19日报道，当天在渥太华举行了《权利与自由宪章》(Charter of Rights and freedom) 40周年纪念会议。会议开始半小时后，Blacklock记者汤姆•考斯基问道: “为什么没有人讨论政府在2月14日实施的《紧急状态法》？对于这个小组来说，这似乎是一个奇怪的遗漏。我想知道为什么？”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2948.png)
-这名记者在会上对反仇恨活动人士法里德·汗(Fareed Khan)表示不满，因为他称自由车队抗议者为“人渣”，并表示支持卡车司机的议员应该在支持人权的情况下被逮捕。
+【接上篇：[“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](https://gnews.org/zh-hans/2400358/)】
 
-考斯基指出，加拿大公民自由协会(CCLA)和15个民权组织都在寻求让特鲁多政府承担责任。他认为援引《紧急状态法》是非同寻常的政治反应，因为人权的核心是反对权力的过度滥用等，
+4月17日星期日晚上11点，黛米又接到一个电话，宣布她将在两小时后被接走，并要求她通知她的室友“贝尼特斯小姐”也做好准备。
 
-法院应该有机会对此发表意见。他认为这是我们民主主义的本质。
+“凌晨3点，他们把黛米接走了，但我告诉他们我不去”，尤利说。
 
-马尼托巴州参议员Marilou McPhedran补充说，已经有相当数量的参议员和议员，包括一些自由党人，发起了一场签名运动，要求提出结束宣布《紧急状态法案》。她说，当特鲁多在2月23日自愿撤销该法案时，政府已经知道了这一行动。
+“我的领事馆曾建议我不要去，因为从未亲自通知我将被从我的家中带走，这是不公平的。”
 
-链接：[https://tnc.news/2022/04/19/government-charter-of-rights-conference-concludes-with-sharp-words-for-panelists/](https://tnc.news/2022/04/19/government-charter-of-rights-conference-concludes-with-sharp-words-for-panelists/)
+**一切似乎都是一种形式**
 
+他们离开了，但半小时后他们又开始敲门。警察带着录像机出现，给她看了一张纸条，说如果她不遵守规则，就会有法律纠纷。这些官员只讲普通话，但向尤利承诺，检疫中心有讲英语的人。她很快就会发现，这个承诺并不真实。就这样，她被送上了巴士。
 
+“我开始哭，我感到非常沮丧”。她解释说：“我知道我已经是阴性了”。她说，巴士上的每个人看起来都很悲伤、沮丧，“没有人看起来生病”。她补充说，在到达那里的20分钟里，她没有听到任何人咳嗽。她说：“这一切似乎都是一种形式，似乎当局只是想证明建造所有这些医院的合理性”。
 
-上传/发稿 – 文永
-素材/采编 – 文莱
+**唯一的外国人**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+这位哥伦比亚人说她很幸运，因为她被送往的医院并不像她想象的那样糟糕。“一切都是新的。唯一困难的是睡觉”。她说：“我昨晚很难受，因为灯光总是亮着，一天24小时都有很多噪音”。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+她估计，在她所在的隔离中心，“大约有600人”，他们经常在同一时间交谈，播放音乐，并调高音量观看系列节目。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+尤里和黛米声称自己是这个地方仅有的两个外国人，这里“没有人说英语”。“我设法用中文要求在靠近窗户的隔间里提供两张床，幸运的是我们争取到了。”尤里补充说。
+
+尤里注意到，最近几天，中国人已经没有耐心了。她说：“上海人民受够了，甚至中国人也越来越多地抗议，贴出传单，说这是死亡的禁锢，人们正在死亡”。“这也是超级悲哀的，因为许多宠物都死于饥饿或被遗弃在主人的家里”。
+
+【接下篇：“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）】
+
+**新闻来源：**[‘La gente en Shanghái está harta’: el testimonio de una colombiana en China](https://www.eltiempo.com/mundo/asia/shanghai-testimonio-de-una-colombiana-en-china-666308)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
