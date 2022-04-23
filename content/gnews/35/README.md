@@ -2,62 +2,37 @@
 ---
 
 
-## 埃隆-马斯克可能将特斯拉、SpaceX和Twitter合并为新的“超级公司”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2395212/)
+## 乌克兰放弃大疆无人机改用美国设备
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2395888/)
 
-编译：七叶之芒
+**撰稿：日本东京方舟农场  子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
+乌克兰近日指控中共国大疆无人机扰乱其防务，宣布不再使用其无人机改用美国初创公司设备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2832-edited.png)*埃隆-马斯克以“X控股公司”的名义成立了三家新公司。*
-*TED Conferences, LLC/AFP via Get*
+乌克兰官员称，中共国最大无人机制造商大疆创新科技有限公司（简称大疆）的产品对乌军和平民构成安全风险。大疆提供给乌克兰的产品会出现技术故障，而提供给俄罗斯的产品却完全没有任何问题。他们认为，这可能是大疆在有意破坏乌克兰防务。
 
-埃隆-马斯克可能正在为将特斯拉、SpaceX和Twitter合并成一家新的超级公司奠定基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-26.jpg)（图片来自大纪元）
 
-随着这位世界首富继续讨伐Twitter，马斯克周二在特拉华州的税收优惠政策下注册了三家新公司，名称为“X控股”。
+乌克兰政府官员和无人机经销商表示，一些大疆公司的“航空镜”（AeroScopes）屡次出现故障，这些无人机探测系统原本可以识别和跟踪其它无人机及其飞行员。乌克兰政府官员表示，在战争开始时，这些设备无法启动，大疆数据遭到了篡改。
 
-这三家新公司似乎是作为马斯克竞购Twitter的一部分而进行的财务操作。
+大疆公司承认航空镜出现故障，并表示在进行修复，但否认公司对其产品进行过篡改。
 
-据彭博社报道，第一家公司X Holdings I Inc.将马斯克列为总裁、财务主管和秘书，如果这位亿万富翁的竞标成功，该公司将成为Twitter的母公司，彭博社首先发现了这些填充物。
+对此，乌克兰官员反驳称，俄罗斯已经成功地使用了相同的航空镜系统来瞄准乌克兰的无人机和飞行员。并且根据乌克兰国家特殊通信和信息保护局的一份报告显示，大疆公司“帮助俄罗斯进行了攻击”。
 
-另一家实体公司X Holdings II Inc.将与Twitter合并，作为收购的一部分，而X Holdings III LLC将被用来帮助资助这项交易，该媒体报道。
+电子产品远端连线软体公司Blynk IoT Platform共同创办人沃拉迪米尔‧希曼斯基（Volodymyr Shymanskyy）在推特上揭露，大疆限制了乌克兰军队使用“航空镜”技术的能力，让俄罗斯入侵者获得了重要的空中侦察优势。
 
-但这些文件也重新引发了人们对马斯克是否计划将他的所有企业–特斯拉、SpaceX、Neuralink、Boring Company以及可能的Twitter–合并成一个超级集团的猜测。
+乌克兰副总理米哈伊洛‧费多罗夫（Mykhailo Fedorov）3月中旬曾在推特上发布的一封公开信，敦促大疆停止与俄罗斯的生意。他说，俄军“正在乌克兰境内使用大疆的产品，为导弹导航，杀害平民”。
 
-2020年12月，一位名叫戴夫-李的投资者和马斯克的支持者在Twitter上写道，马斯克应该“成立一家名为X的控股公司”，成为 “特斯拉、SpaceX、Neuralink和Boring Company的母公司”，“任务是确保人类生存和进步”。
+鉴于此，乌克兰放弃了大疆无人机转而使用美国设备，BRINC Drones和Skydio等美国初创公司成为填补乌克兰市场空缺的重要企业。截止目前，已有超过六家美国初创公司表示，他们已经向乌克兰捐赠或出售了无人机和无人机防御系统。
 
-“好主意”，马斯克回应说。
+此外，大疆在乌克兰的争议事件，加剧了美国对这家中共国公司安全性的担忧。从而促使共和党议员提出一项法案。该法案将把大疆添加到美国联邦通信委员会（FCC）的实体名单中，为禁止该公司的飞机使用美国通信基础设施铺路。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2833.png)
+参考链接：
+[https://www.epochtimes.com/gb/22/4/22/n13717883.htm](https://www.epochtimes.com/gb/22/4/22/n13717883.htm)
 
-但马斯克上周似乎也给组建超级公司的想法泼了冷水，指责华尔街投资者的短期思维。
+总编：老孙
+校对发布：文曦
 
-“作为一家上市公司，你只是不断地被起诉”，马斯克在一次TED采访中说。“要把这些东西结合起来并不那么容易”。
-
-投资者加里-布莱克（Gary Black）周四在报道了新的“X控股”实体后，抨击了这位大亨合并其公司的想法，这显然证实了马斯克的保留。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2834.png)
-
-布莱克写道：“如果这样做是为了让@elonmusk能够合并他的股权，为个人竞购$TWTR提供资金，那是没有问题的。”他通常是特斯拉的牛人，是投资公司the Future Fund的管理合伙人。
-
-“如果$TSLA将SpaceX和Boring Co.纳入其集团旗下，这是一个糟糕的想法。”
-
-“投资者讨厌企业集团”，布莱克补充说，他认为，如果这些公司合并，特斯拉令人印象深刻的利润率将被马斯克的其他企业所稀释。
-
-来源：[Elon Musk may combine Tesla, SpaceX and Twitter into new ‘super company’](https://nypost.com/2022/04/22/x-holdings/)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

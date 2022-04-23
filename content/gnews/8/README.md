@@ -2,8 +2,8 @@
 ---
 
 
-## 人权斗士佩洛西
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2396057/)
+## 世界需要清零中共（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2396161/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,8 +2,8 @@
 ---
 
 
-## Medyka救援营地被蓄谋恶意攻击，已取证并交给警方版）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2396037/)
+## 我们新中国联邦绝不忍气吞声放过坏人(字幕版）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2396150/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

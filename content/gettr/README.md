@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 5:00 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group26/origin/2022/04/23/04/9f2c0094-5192-9487-741d-bffd0664c9af/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 3:03 AM (UTC)`
 
 2022-4-22《鸡血王喜币大作战》 第一百七十三集 嘉宾：青藤、文空、风雨之中
@@ -147,13 +154,6 @@
 
 2022.04.22  新中国联邦 | 喜健康   唤醒.危机时刻的传播心理学
 ![img](https://media.gettr.com/group12/origin/2022/04/22/20/ce9c91b9-105e-0b15-a035-25f207f36b62/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 5:34 PM (UTC)`
-
-2022-4-22 俄乌战争战况播报
-![img](https://media.gettr.com/group11/origin/2022/04/22/17/1c9da350-e956-a5d1-4f5f-df1f21f4b62a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

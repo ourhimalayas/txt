@@ -2,28 +2,40 @@
 ---
 
 
-## 台湾援助乌克兰并表示双方都在抵挡威权主义的最前线
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396086/)
+## 南澳取消密接隔离要求
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396176/)
 
 翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-487.jpg)图片来自网络
-《海峡时报》近日报道，台湾外长周五（4月22日）在宣布向基辅和乌克兰医疗机构捐赠800万美元（1100万新元）时，告诉乌克兰首都市长，他们的民主国家站在 “抵抗 “大型专制邻国的第一线。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-493.jpg)图片来自网络
+《News AU》近日报道，南澳大利亚州将在下周废除其新冠密切接触者隔离规则，使其限制与东部各州保持一致。
 
-乌克兰战争在台湾获得了广泛的同情，许多人认为俄罗斯的入侵（莫斯科称之为特别军事行动）与中共国的军事压力有相似之处，中共国一直以来将民主自由的台湾视为自己的领土。
+州长彼得-马利奥斯卡斯周五晚上宣布，这些变化将于4月30日凌晨12点01分生效。
 
-台湾已经谴责了俄罗斯的入侵，加入了西方主导的制裁，并为乌克兰难民捐赠了2000万美元，这些资金主要来自于台湾民众。中共国没有谴责俄罗斯，只捐赠了1500万人民币（320万新元）的人道主义援助。
+这意味着感染病例的密切接触者将不再需要隔离7天。
 
-外交部长吳釗燮通过视频会议向基辅市长维塔利-克里奇科表示，台湾和乌克兰都是民主国家，”站在抵制威权主义扩张的第一线”，吴先生的部门援引他的话说。
+但他们离开家时需要戴上口罩，在七天内完成五次快速抗原测试，并被禁止进入医院和老年护理机构等高风险环境。
 
-“台湾政府和人民也面临着来自台湾海峡两岸威权政权的高度威胁，因此对乌克兰目前所面临的局势感同身受，”吴先生补充说，“威权政权”指的是中共国。
+如果密切接触者出现症状，他们必须进行核酸检测，并在收到结果之前进行隔离。
 
-台湾以前没有宣布过台湾和乌克兰高级官员之间的会谈。
+检测结果呈阳性的人仍需隔离7天。
 
-台湾与乌克兰没有外交关系，与许多欧洲国家的首都不同，台湾甚至没有在基辅设立代表处。
+“尽管这对我们社区的许多人来说是一种解脱，但我们可以向其他人保证，这是以一种安全的方式进行的， “马利奥斯卡斯先生说。
+
+“这对全州的小企业主和工人来说将是一个很大的安慰。”
+
+马利奥斯卡斯先生说，那些在截止日期前任何时候被认为是密切接触者的人仍然需要隔离，但在下周五规则改变后就可以离开。
+
+他们还需要提供一份阴性结果的自测盒。
+
+首席公共卫生官员尼古拉-斯普雷尔敦促密切接触者在可能的情况下在家工作，并在离开家和在其他人身边时尽量小心谨慎。
+
+“当你不必被隔离时，你需要非常注意你可能会发生感染，”她说。
+
+本周早些时候，新南威尔士州、维多利亚州和昆士兰州都取消了他们的密切接触规则。
 
 参考链接：
 
-[https://www.straitstimes.com/asia/east-asia/taiwan-offers-aid-to-kyiv-tells-mayor-they-are-both-on-frontline-resisting-authoritarianism](https://www.straitstimes.com/asia/east-asia/taiwan-offers-aid-to-kyiv-tells-mayor-they-are-both-on-frontline-resisting-authoritarianism)
+[https://www.news.com.au/lifestyle/health/south-australia-removes-close-contact-isolation-requirement/news-story/462be08b44274065cf6b652460552bdf](https://www.news.com.au/lifestyle/health/south-australia-removes-close-contact-isolation-requirement/news-story/462be08b44274065cf6b652460552bdf)
 
 *编辑：金生水*
 

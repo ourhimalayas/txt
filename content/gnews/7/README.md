@@ -2,33 +2,23 @@
 ---
 
 
-## 荷兰表示将致力于在年底结束俄罗斯的能源进口
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396061/)
+## 三家中共能源公司正试图下注购买壳牌公司
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2396163/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-486.jpg)图片来自网络
-《CNN》近日报道，荷兰气候和能源政策部长罗布-杰腾周五表示，荷兰 “坚定地致力于 “在今年年底前停止进口俄罗斯的石油和天然气。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-492.jpg)
+图片来源： 6do.news
 
-荷兰经济事务和气候政策部发言人皮特-腾-布鲁根凯特周五告诉CNN，荷兰政府将为能源公司提供补贴，以便在年底前将其伯格梅尔天然气储存设施填充到70%的容量。
+商业内部新闻网4月22日援引布隆伯格新闻报道，据内部知情人士透露，中共三家能源公司正在与壳牌公司谈判，试图购买壳牌27.5%的俄罗斯天然气出口项目的股份。
 
-腾-布鲁根凯特说，补贴是必要的，以激励在目前的价格水平上进口天然气，并补充说，荷兰将提供约6.23亿欧元（约6.72亿美元）。
+这三家能源公司分别为中海油(CNOOC),中国石油(CNPC)和中石化(SINOPEC), 三家公司正联合与英国荷兰石油天燃气巨头谈判，以试图获得萨哈林2号液化石油气的风险投资，据说谈判涉及出售股票给这三家公司中的一家，二家或所有三家公司，目前还处于早期阶段，壳牌公司对于中共国以外的潜在购买者也持开放态度。
 
-腾-布鲁根凯特补充说，如果补贴计划不够，国有能源公司荷兰能源管理将补足剩余产能。
+壳牌公司说萨哈林2号项目供应全球液化天然气市场的4%，主要包括日本，韩国，和中共国。俄罗斯国有能源巨头——俄罗斯天然气工业股份公司拥有该风险投资的50%，日本三井物产占12.5%，日本三菱集团占10%。
 
-欧洲乃至全球各国之间都是打断骨头还连着筋的，或多或少而已，脱钩也不可能完完全全井水不犯河水，制裁等同于完全断开经济联系的可能性不大。
+壳牌2月28日宣布通过分散联合风险投资以限制与俄罗斯国有能源公司做生意，并撤销北溪2线天然气项目。
 
-如果真的是往着世界和平目标去的，制裁脱钩和保持输送联系只能是一个寻找平衡的关系，每一个国家都要在自己能够最大限度延续的基础上对对手施加足够压力迫使对方让步。
+#### 新闻来源： [Three Chinese energy firms are in talks to buy Shell’s stake in a huge Russian natural gas export project, a report says](https://www.businessinsider.com/russia-china-natural-gas-energy-export-sakhalin-ukraine-invasion-sanction-2022-4?utm_source=facebook&amp;utm_medium=news_tab)
 
-当然，并不是每一个国家的外交政策都能够掌握的恰到好处。至少这次荷兰有态度有担待，值得鼓励，但仍需各方监督，确保制裁能够真正的执行下去。
-
-参考链接：
-
-[https://edition.cnn.com/europe/live-news/russia-ukraine-war-news-04-22-22/h\_a62aea68a2ec64ae6309d3cd01bf266d](https://edition.cnn.com/europe/live-news/russia-ukraine-war-news-04-22-22/h_a62aea68a2ec64ae6309d3cd01bf266d)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

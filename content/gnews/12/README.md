@@ -2,42 +2,55 @@
 ---
 
 
-## 今年有769名运动员在比赛中倒下 怎么回事？（1/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396021/)
+## 美国土安全部延长了非美籍旅行者的新冠疫苗接种要求
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2396125/)
 
-翻译： Jenny Ball
+![美国国土安全部编辑类库存图片. 图片包括有荒地, 犯罪, 机柜, 家园, 警察, 社论, 安全性- 112692909](https://thumbs.dreamstime.com/b/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%9C%9F%E5%AE%89%E5%85%A8%E9%83%A8-112692909.jpg)美国国土安全部LOGO（资料图）
+《美国国土安全部官网》2022年4月21日发布，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+今天，国土安全部(DHS)宣布，将延长临时的第19条规定，并继续要求通过美国-墨西哥和美国-加拿大的陆路入境口岸和渡轮码头进入美国的、非美籍旅客，全面接种新冠疫苗，并按要求提供相关的疫苗接种证明。这些要求将继续适用于出于必要和非必要原因旅行的非美籍旅行者，但不适用于美国公民、合法永久居民或美国侨民。
 
+这些要求是与美国疾病控制和预防中心（CDC）及其它几个联邦机构协商后延长的。根据疾控中心的说法，疫苗仍然是保护人们免受新冠肺炎重症或死亡、减缓新冠病毒传播、减少新的新冠病毒变种出现的可能性的最有效的公共卫生措施。
 
+“拜登-哈里斯政府致力于保护公众健康，同时促进合法贸易和旅行，这对我们的经济安全至关重要，”国土安全部部长亚历杭德罗·N·马约卡斯（Alejandro N. Mayorkas）说。 “这就是为什么在与疾控中心和其它联邦机构搓商后，国土安全部将继续要求，通过陆路入境口岸和渡轮码头进入美国的非美籍个人，全面接种新冠疫苗，并按要求提供相关的疫苗接种证明。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-230.png)
+通过陆地入境口岸和渡轮码头进入美国的非美籍旅客，无论是出于必要还是非必要的原因，都必须继续：
 
-在 2021 年 3 月至 2022 年 3 月的一场比赛中，超过 769 名运动员倒在了赛场上。
+·口头证明其新冠疫苗接种情况；
 
-One America News Network (OAN)披露了这一令人震惊的统计数据，该网络还发现，心脏骤停运动员的平均年龄仅为 23 岁。
+·应要求提供疾控中心批准的新冠疫苗接种证明，如疾控中心网站上所述；
 
-由调查人员、新闻编辑、记者和“寻求真相的人”组成的团队“好科学”（Good Sciencing ）的最新报告，详细介绍了运动员在 COVID-19 注射后发生的 890 次心脏骤停和其他严重问题，包括 579 人死亡。
+·出示符合西半球交通运输倡议（WHTI）的合规文件，如有效护照、可信赖的旅行者计划卡或增强型部落卡；以及
 
-随着此类情况变得不可忽视，甚至澳大利亚的主流媒体体育频道都推测，健康问题可能与 COVID-19 注射有关，其中一位主持人承认，多名球员在 COVID-19加强剂注射后患有心脏问题和贝尔麻痹。
+·准备出示美国海关和边境保护局（CBP）官员在边境检查时要求的任何其它相关文件。
 
-接下篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）
+通过陆地入境口岸或轮渡码头进入美国不需要进行新冠病毒检测。
 
-新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
+继续执行这些要求，有助于保护边境人员和其他旅客，以及美国目的地社区的健康和安全，并确保管理陆路旅行的公共卫生措施，与管理入境国际航空旅行的公共卫生措施保持一致。国土安全部将密切监控所有相关情况，包括这些要求的效果，并可能随时修改或撤销这些要求。在确定是否以及何时撤销该命令时，国土安全部预计将考虑对非美籍航空旅客的疫苗接种要求是否仍然保留。本公告不影响对乘飞机进入美国的要求。
+
+为了帮助减少等待时间和排长队，我们鼓励从空中、陆地或海上入境口岸抵达或离开的旅客，使用简化入境（Simplified Arrival）或移动护照控制（ Mobile Passport Control） 移动应用程序，这些应用程序使用面部识别技术，进行更便捷的处理。有证件的非公民也可以通过美国海关和边境保护局移动应用程序（CBP OneTM），申请和管理他们的抵达/离开（I-94）记录，这是一个访问美国海关和边境保护局移动应用程序和服务的单一门户。
+
+简评：
+
+新中国联邦的创立者——郭文贵先生根据所掌握的情报，一再向全世界呼吁新冠疫苗对人体的危害，以及会造成次生灾难；有良知的科学家、医生们也采集了大量临床数据，说明新冠疫苗危害人体的各种副作用，甚至致死。可悲的是，至今全世界各国政府还在疯狂地“追捧”新冠疫苗，用各种方法漠视、甚至掩盖正在发生的和即将到来的疫苗灾难。因此，为了我们的家人、朋友乃至全人类的未来，我们要积极广泛传播新冠疫苗的危害，尽可能挽救更多的人。
+
+新闻链接：
+
+[https://www.dhs.gov/news/2022/04/21/dhs-extends-covid-19-vaccination-requirements-non-us-travelers-entering-united](https://www.dhs.gov/news/2022/04/21/dhs-extends-covid-19-vaccination-requirements-non-us-travelers-entering-united)
+
+翻译/简评：xiaofeimao
+
+PR：Julia Win
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 
