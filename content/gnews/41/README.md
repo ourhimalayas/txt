@@ -2,29 +2,35 @@
 ---
 
 
-## 郭文贵4.21：北京大隔离即将到来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2394045/)
+## 加拿大人参与拯救乌克兰数字历史的全球努力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394092/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-22-at-21.39.31.png)
-4月21日，郭文贵先生突然直播，他说，中共武警已经部署到北京至少十几个地方，这是拟大隔离的前奏。
+##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2802.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
-据郭先生的消息透露，美国众议院议长南希佩洛西将于4月26日访问台湾，而且不会变了。
 
-中共与美方举行紧急会晤，并向美方表达了所谓的“严重关切”。然而，这次美方对于中共的“严重关切”不予理睬，认为中方没有关切俄罗斯入侵乌克兰事件，现在中方关切什么呢？而且南希佩洛西是议长，三权分立的美国，政府管不了议长的日程。
+据CTV NEWS 4月19日报道，加拿大人参与了一项保护乌克兰文化遗产数字内容和数据的全球任务。俄罗斯不分青红皂白的轰炸对乌克兰的数字内容和数据构成了威胁。这个名为“拯救乌克兰文化遗产在线”(save Ukrainian Cultural Heritage Online)的组织拥有1300多名专业人员，包括图书管理员、档案管理员、研究人员和程序员，他们自愿识别并存档乌克兰重要网站，并把这些网站的数据存放在大学、图书馆、博物馆和画廊的服务器上。到目前为止，该组织已经从3500多个网站保存了超过30tb的扫描文件、艺术品和其他材料。
 
-之后，中共撂狠话，称—4月26日将是一个中美关系的分水岭！
+阿尔伯塔大学的加拿大乌克兰研究所(Canadian Institute of Ukraine Studies)也参与了一个名为“档案救援队”(Archives Rescue Team)的平行项目，该项目正在帮助支持尚未发表的研究。
 
-根据郭先生获得的准确情报，北京五环以内及六环和七环之间有十几个点大量进驻武警。
+原文链接：[https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
-郭先生预计，“这应该是北京大隔离的前奏，如果中共在4月26日至5月6日之间对台湾采取行动，北京肯定会实施戒严，上海的局势将更糟糕”。
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-因此，郭先生呼吁北京的战友为大规模隔离做好充分准备。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-来源：
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-[Miles Guo Getter](https://gettr.com/post/p16cfisc410)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

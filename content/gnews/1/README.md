@@ -2,8 +2,8 @@
 ---
 
 
-## 浙江嘉興水果市場封閉20天多後，水果幾乎已經壞完了。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395748/)
+## 上海，租客不讓進租屋，在外面流浪，居委不管。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395862/)
 
 作者：东京樱花团小视频组
 

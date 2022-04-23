@@ -2,44 +2,52 @@
 ---
 
 
-## 4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2392529/)
+## 新西兰财经G乐部2022年4月22日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2393219/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-143.png)[图片来源](https://www.reuters.com/)
-**1.乌克兰冲突、芯片危机削弱雷诺第一季度销量**
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-23-012307.jpg)
+1、恒大、融创多家头部房企年报难产或有退市风险
+![img](https://media.gettr.com/group30/origin/2022/04/22/02/aed34795-bb45-a401-870f-41134c307dfe/21771b6c343c397690d92508e69aa445_500x0.png)
+截至4月21日，距离A股上市公司2021年年报披露收官期还有9天时间从Wind 获悉，66家上市房企还未发布年报，包括此前已经公布债务违约的多家“千亿元阵营”房企。A股房企尚有一周多的时间，但港股部分上市房企已经过了年报披露收官期仍未公布经审计的年报，包括中国恒大、融创中国、世茂集团三大头部房企在内，合计共9家房企年报仍旧难产，从4月1日至今，这些企业仍处在停牌状态中。
 
-[这家对俄罗斯市场影响最大的西方汽车制造商报告称，由于乌克兰战争和半导体短缺，第一季度收入下降，但部分被价格上涨和电动汽车(EV)销售增长所抵消。该集团还生产达契亚和拉达品牌汽车，周五表示其收入同比下降2.7%至97.48亿欧元（106亿美元）。不包括Avtovaz和Renault Russia的活动，下降1.1%至89亿欧元。上个月，雷诺表示将暂停其莫斯科工厂的运营，同时评估其在俄罗斯第一大汽车制造商Avtovaz(AVAZI\_p.MM)的多数股权的选择权。周五，这家法国汽车制造商表示，与Avtovaz就俄罗斯业务未来的谈判“正在进行并取得进展”。](https://www.reuters.com/business/autos-transportation/renaults-q1-sales-fall-ukraine-conflict-semiconductor-crisis-hit-market-2022-04-22/)
+财经G评：发布了财报股票价格暴跌，拖时间造假，熬一天是一天！
 
-**2.SAP收入增长超过预期**
+链接 [https://finance.sina.com.cn/roll/2022-04-22/doc-imcwiwst3268475.shtml](https://finance.sina.com.cn/roll/2022-04-22/doc-imcwiwst3268475.shtml)
 
-[德国商业软件集团SAP(SAPG.DE)周五报告称，第一季度收入增长11%，超过其云业务增长的预期。本周早些时候，该公司表示计划完全退出俄罗斯，以应对莫斯科对乌克兰的入侵。SAP表示，其年度调整后利润将下降近3.5亿欧元，并将承担约8000万至1亿欧元的重组费用。尽管对其俄罗斯业务产生了影响，但SAP确认其2022年的云收入预测为115.5亿欧元至118.5亿欧元（按固定汇率计算）。](https://www.reuters.com/business/sap-revenue-growth-beats-estimates-flags-hit-russia-exit-2022-04-22/)
+2、中共加强：对非法集资保持严打态势 紧盯养老、投融资领域
+![img](https://media.gettr.com/group24/origin/2022/04/22/03/7bec49cd-589b-add9-55af-574c0bf19b1a/621f54da6bd0aee2d98be78914aa7e80_500x0.png)
+2022年处置非法集资部际联席会议4月19日召开。银保监会主席郭树清出席并讲话，扎实推进《防范和处置非法集资条例》落地见效，严厉打击非法集资违法犯罪活动，2022年打非处非工作要提高政治站位，消化存量、管控变量。继续对非法集资保持严打态势，形成有力震慑，紧盯养老、投融资等重点领域，稳妥有序出清风险。
 
-**3.Snap警告通货膨胀可能会影响收入增长，预测用户数量增加**
+财经G评：金融领域严打运动！管控老百姓的钱袋子，想逃离中共国的资金，时间窗口正在消失！如果爆发对台战争，现在就是最后的机会！
 
-[Snap Inc(SNAP.N)周四预测其Snapchat应用的用户增长前景乐观，但表示供应链中断和通胀可能继续损害广告需求。公布结果后，Snap的股价立即下跌了10%，但随着投资者消化了喜忧参半的结果，随后收复了跌幅。Snap预测第二季度每日活跃用户在3.43亿至3.45亿之间，高于华尔街估计的3.4亿。然而，该公司警告称，通货膨胀、劳动力短缺和其他经济挑战可能会给收入带来压力。它预测第二季度的收入将比上年增长20%至25%。到目前为止，本季度的增长率为30%。](https://www.reuters.com/technology/snap-misses-revenue-estimates-warns-that-inflation-could-hit-growth-2022-04-21/)
+链接 [https://news.cnstock.com/news,bwkx-202204-4866853.htm](https://news.cnstock.com/news,bwkx-202204-4866853.htm)
 
-**4.Gap下调了季度销售预测**
+3、银保监会将以更大力度促进银行保险业对外开放
+![img](https://media.gettr.com/group6/origin/2022/04/22/03/b2cbba05-0f59-9f46-6c24-8e76eb77bc2d/7b654f00fa4fe287ba0d69c9d902a945_500x0.png)
+银保监会副主席梁涛谈下一步银行保险业对外开放：将取消境外金融机构作为中资商业银行法人机构的发起人或战略投资者总资产不少于100亿美元的要求，明确境内外资银行投资入股中资商业银行的持股比例不受限制；取消外资银行发行一般金融债券的审批；加强对疫情风险、气候风险、科技风险等新型风险的研究，做好海外突发风险事件的应对准备。
 
-[Gap Inc(GPS.N)周四下调了季度销售额预期，将其归咎于Old Navy品牌的执行挑战和“宏观经济动态”，导致该零售商股价在延长交易中下跌12%。Gap还表示，其Old Navy品牌的负责人Nancy Green将于本周离开公司，公司首席执行官Sonia Syngal将领导团队，直到聘请继任者。由于供应链障碍延迟发货，包括Gap在内的几家服装连锁店一直在努力跟上不断增长的需求并管理库存。这家将于5月26日公布第一季度业绩的零售商表示，它必须采取“积极的方式”来平衡库存，从而导致营销促销活动增加，尤其是在Old Navy。](https://www.reuters.com/business/retail-consumer/gap-cuts-quarterly-sales-forecast-challenges-old-navy-brand-head-departs-2022-04-21/)
+财经G评：中共治国的伎俩是：儒表法里。在金融领域亦是如此，对内加强管控，对外招商引资，这个时候把内部经济风险与外资绑起来，正所谓你中有我，我中有你！外资是不是要思考一下：为什么在这个时候中共对外资开放呢？
 
-**5.封锁影响开云集团第一季度的销售**
+链接：[https://finance.sina.com.cn/chanjing/cyxw/2022-04-22/doc-imcwiwst3301599.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-22/doc-imcwiwst3301599.shtml)
 
-[尽管该集团指出美国和西欧对其高端时装和皮革制品的持续需求，但中国COVID-19封锁造成的中断给周四Gucci所有者Kering的第一季度销售预测蒙上了一层阴影。截至3月份的三个月集团销售额达到49.6亿欧元（54亿美元），增长21%，略高于花旗分析师Thomas Chauvet引用的46.9亿欧元的普遍预期。Kering SA(PRTP.PA)的明星品牌Gucci占法国奢侈品集团年销售额的一半以上，在美国、西欧和日本表现强劲，而COVID封锁扰乱了中国大陆的业务。这一数字低于Chauvet预计的23%的增长，并且与上一季度相比有所放缓。](https://www.reuters.com/business/retail-consumer/kering-q1-sales-lifted-by-us-europe-2022-04-21/)
+4、又一批中概股上美“预摘牌名单”包含知乎、理想汽车等17家公司
+![img](https://media.gettr.com/group15/origin/2022/04/22/03/9607e62d-5d9e-f8e8-02cd-00d232db6d66/eccb5cdad52047ace11dff5ae694f27a_500x0.png)
+4月22日电 根据美国证劵交易委员会（SEC）网站最新披露，知乎、理想汽车等公司加入“预摘牌名单”。SEC网站披露的具体名单显示，知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳均被纳入。
 
-**6.随着预订量回升，美国航空公司听起来很乐观**
+链接：[https://finance.sina.com.cn/chanjing/gsnews/2022-04-22/doc-imcwipii5747409.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-04-22/doc-imcwipii5747409.shtml)
 
-[美国航空集团(AAL.O)、联合航空(UAL.O)和阿拉斯加航空集团(ALK.N)周四表示，由于今年年初该病毒的Omicron变种受挫，旅行需求回升。他们本季度的收入将超过大流行前的水平，尽管他们的产能仍低于2019年的水平。因此，他们都希望在截至6月的季度实现盈利。上周，竞争对手达美航空(DAL.N)也预测季度利润将恢复，理由是“历史性的”高预订量。CFRA Research副总裁科林·斯卡罗拉(Colin Scarola)表示：“航空旅行被压抑的需求浪潮正在消除主要航空公司的长期悲观情绪。”](https://www.reuters.com/business/aerospace-defense/american-airlines-reports-smaller-loss-pickup-travel-offsets-omicron-blip-2022-04-21/)
+5、币安要求从加密货币骗局的诉讼中移除
+![img](https://media.gettr.com/group37/origin/2022/04/22/03/3ecdcafa-1361-f12c-5d4d-10a5ecd38ac3/2f334dfa38c7a99312eb998e388b37c2_500x0.png)
+币安Binance 周四要求德克萨斯州的一名联邦法官免于一项价值 800 万美元的诉讼，该诉讼声称该加密货币交易所“协助和教唆”了一场局。原告 Divya Gadasalli 正在联邦民事法院起诉这家开曼群岛公司，指控币安在该计划中的作用，她说这涉及兑现她在 Coinbase (COIN) 上购买的加密货币。Gadasalli 还起诉 TD 银行、Abacus 联邦储蓄银行和 Poloniex 加密货币交易所等。
 
-**7.黑石集团第一季度收益飙升63%**
+链接 ：[https://www.coindesk.com/policy/2022/04/21/binance-asks-to-be-removed-from-crypto-romance-scam-lawsuit/](https://www.coindesk.com/policy/2022/04/21/binance-asks-to-be-removed-from-crypto-romance-scam-lawsuit/)
 
-[黑石公司(BX.N)周四表示，其第一季度可分配收益跃升63%，原因是其房地产和信贷业务的强劲表现抵消了其对冲基金部门的疲软表现。这家全球最大的另类资产管理公司的可分配收益（代表用于向股东支付股息的现金）从一年前的12亿美元增至19亿美元。这导致每股可分配收益为1.55美元，超过了Refinitiv编制的分析师平均估计的每股1.06美元。黑石表示，它改变了其房地产收入信托业务与费用相关的业绩收入的核算方式，按季度而不是按年度计入此类收益。这有助于提高其整体收益，超出分析师的预期。](https://www.reuters.com/business/finance/blackstones-first-quarter-earnings-surge-63-2022-04-21/)
+海报：润玉
 
-**8.墨西哥银行机构Banorte与Citibanamex-Banorte首席执行官进行谈判**
+配图：文双
 
-[Banorte首席执行官Marcos Ramirez Miguel周四表示，墨西哥银行机构Banorte(GFNORTEO.MX)正在与花旗集团(C.N)的墨西哥消费者银行业务Citibanamex就出售其资产进行谈判。Ramirez Miguel在公司第一季度业绩公布后的电话中表示，感兴趣的各方已开始与Citibanamex进行对话，但仍在收集有关其在墨西哥业务的信息。拉米雷斯米格尔补充说，这个过程可能持续至少五个月。](https://www.reuters.com/business/finance/mexico-banking-institution-banorte-talks-with-citibanamex-banorte-ceo-2022-04-21/)
-
-By 【秘密翻译组-金融组】
-作者：小海星
+上传排版：文勇
 
  
 

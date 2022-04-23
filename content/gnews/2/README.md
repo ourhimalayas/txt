@@ -2,10 +2,16 @@
 ---
 
 
-## 西方公布莫斯科号被导弹击中视频，俄罗斯“失误”说不攻自破。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395703/)
+## 上海寶山區，網友曬現在上海物價，平民真的吃不起。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395849/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

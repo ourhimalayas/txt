@@ -2,8 +2,8 @@
 ---
 
 
-## 格鲁吉亚志愿军阵亡在乌战场，当地居民到第比利斯机场迎接两位勇士遗体回家。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395661/)
+## 上海浦東新區蘆潮港海鮮批發點一誌願者發聲：發現有公職人員開公車去那裏弄海鮮，他因為堅持原則竟被解職。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395795/)
 
 作者：东京樱花团小视频组
 

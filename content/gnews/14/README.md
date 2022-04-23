@@ -2,12 +2,19 @@
 ---
 
 
-## 4月22日文贵大直播要点（图片1-5）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2395493/)
+## 三朝帝师 王沪不宁（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2395693/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5859294E-54C4-4336-A992-215FBD487D7E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/47B60CE3-4480-49B9-9CE3-A8F994696601-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/FA5F3445-06C4-494E-AE82-ABAAAF6341F5-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/BF9C19B4-8913-48C6-B053-E54B58264EB8-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31C2DB1F-7599-4E65-BCDA-471DD6188183-scaled.jpeg)
-发布：水涨船高
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+*发布：陶子*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
