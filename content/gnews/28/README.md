@@ -2,34 +2,62 @@
 ---
 
 
-## 若推特收购成功 马斯克誓言消灭「这群人」
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2395033/)
+## 埃隆-马斯克可能将特斯拉、SpaceX和Twitter合并为新的“超级公司”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2395212/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-马斯克22日在推特上表示，一旦推特收购成功，他将消灭所有「垃圾邮件机器人」，让这个社交平台上只剩下真实的人类。
+编译：七叶之芒
 
-《FOX BUSINESS》报导，此前马斯克就针对加密机器人在推特上发布诈骗推文感到担忧。并于4月14日在TED演讲上表示，若每个加密骗局里都有1个狗狗币或以上，那么至少有1000亿个狗狗币流落在外。马斯克表示，他的首要任务就是消灭这些垃圾、诈骗邮件，以及推特上的机器人大军。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-36.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpgjE08U.jpg)图片来源：法新社
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2832-edited.png)*埃隆-马斯克以“X控股公司”的名义成立了三家新公司。*
+*TED Conferences, LLC/AFP via Get*
 
-目前这位亿万富翁宣称，已筹足465亿美元的资金来收购推特，并发扬他的「言论绝对自由」理念，打造他理想中的社交平台。
+埃隆-马斯克可能正在为将特斯拉、SpaceX和Twitter合并成一家新的超级公司奠定基础。
 
-言论自由是一切自由的基石，当言论自由被权力与金钱控制时，就沦为了为利益团体服务的工具，甚至成为了为邪恶助纣为虐的武器。当今的互联网时代媒体已经成为了“第一权力”，掌控人们的认知就可以左右人们的思想，一个强大的社交平台甚至可以引导人们群体的行为。
+随着这位世界首富继续讨伐Twitter，马斯克周二在特拉华州的税收优惠政策下注册了三家新公司，名称为“X控股”。
 
-中共全世界蓝金黄第一要拿下的就是媒体，推特作为世界媒体的大平台，曾为中共助纣为虐打压爆料革命犯下了不少罪责，被独裁政府所利用封杀言论自由的后果就是谋财害命。马斯克收购特推，倡导绝对言论自由的理念可谓回归自由价值的壮举，言论自由就是空气，空气被污染了，生存环境就会变得脏了。
+这三家新公司似乎是作为马斯克竞购Twitter的一部分而进行的财务操作。
 
-盖特的横空出世很大原因就是推特曾经的言论封杀，作为刺穿言论封锁的利器，盖特作为自由言论的平台正在迅速的成长。马斯克收购推特进行改良，又一个言论自由的平台正在诞生。当越来越多的言论自由的平台百花齐放时，一切谎言的邪恶将无所遁形，真相自然水落石出，当绝对的言论自由回归时，世界会慢慢变得美好起来。
+据彭博社报道，第一家公司X Holdings I Inc.将马斯克列为总裁、财务主管和秘书，如果这位亿万富翁的竞标成功，该公司将成为Twitter的母公司，彭博社首先发现了这些填充物。
 
-新闻来源：[https://ec.ltn.com.tw/article/breakingnews/3902485](https://ec.ltn.com.tw/article/breakingnews/3902485)
+另一家实体公司X Holdings II Inc.将与Twitter合并，作为收购的一部分，而X Holdings III LLC将被用来帮助资助这项交易，该媒体报道。
 
-撰稿/发布：一叶知秋
+但这些文件也重新引发了人们对马斯克是否计划将他的所有企业–特斯拉、SpaceX、Neuralink、Boring Company以及可能的Twitter–合并成一个超级集团的猜测。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+2020年12月，一位名叫戴夫-李的投资者和马斯克的支持者在Twitter上写道，马斯克应该“成立一家名为X的控股公司”，成为 “特斯拉、SpaceX、Neuralink和Boring Company的母公司”，“任务是确保人类生存和进步”。
+
+“好主意”，马斯克回应说。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2833.png)
+
+但马斯克上周似乎也给组建超级公司的想法泼了冷水，指责华尔街投资者的短期思维。
+
+“作为一家上市公司，你只是不断地被起诉”，马斯克在一次TED采访中说。“要把这些东西结合起来并不那么容易”。
+
+投资者加里-布莱克（Gary Black）周四在报道了新的“X控股”实体后，抨击了这位大亨合并其公司的想法，这显然证实了马斯克的保留。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2834.png)
+
+布莱克写道：“如果这样做是为了让@elonmusk能够合并他的股权，为个人竞购$TWTR提供资金，那是没有问题的。”他通常是特斯拉的牛人，是投资公司the Future Fund的管理合伙人。
+
+“如果$TSLA将SpaceX和Boring Co.纳入其集团旗下，这是一个糟糕的想法。”
+
+“投资者讨厌企业集团”，布莱克补充说，他认为，如果这些公司合并，特斯拉令人印象深刻的利润率将被马斯克的其他企业所稀释。
+
+来源：[Elon Musk may combine Tesla, SpaceX and Twitter into new ‘super company’](https://nypost.com/2022/04/22/x-holdings/)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

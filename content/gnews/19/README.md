@@ -2,16 +2,10 @@
 ---
 
 
-## 中共国，上海，那些流落街头人们，一切灾难都是ccp造成的。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395600/)
+## CCP 故意饿人民：这样无助的呐喊，让人很心酸，花费巨额款项采购各种物资，到头来老百姓却不能满足基本需求。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395638/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

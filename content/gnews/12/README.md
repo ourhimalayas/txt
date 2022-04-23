@@ -2,17 +2,11 @@
 ---
 
 
-## 浙江嘉興水果市場封閉20天多後，水果幾乎已經壞完了。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395748/)
+## 疫情下的上海。美團沒發工資，員工抗議；打工人以地為床；中建八局 ，吃不飽，打工人搶食；正在撿食，集中隔離點的生活垃圾。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395781/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/SS20220422-10-横屏-疫情下的上海。美團沒發工資，員工抗議；打工人以地為床；中建八局-，吃不飽，打工人搶食；正在撿食，集中隔離點的生活垃圾_Moment.jpg)
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组
 

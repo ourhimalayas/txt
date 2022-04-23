@@ -2,8 +2,8 @@
 ---
 
 
-## 上海寶山區，網友曬現在上海物價，平民真的吃不起。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395849/)
+## 上海，大量的外援蔬菜當垃圾丟棄，不給百姓吃。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395895/)
 
 作者：东京樱花团小视频组
 
