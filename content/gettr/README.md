@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 10:17 AM (UTC)`
+
+【Ukraine Rescue】 04/20/2022 Tibetan Lama says in front of the big tent of the NFSC & ROLF Ukraine Rescue: Don't have hatred against the Chinese people. The only one who makes the problem is the CCP. They always tells lies to the world, they take away the freedom of the people, and they conduct genocide and destroy the nature. And recently, they destroyed many big statues of Tibet. The Chinese government buys everything. If they continue to do bad things, they will suffer and pay.<br/><br/>【乌克兰救援】 04/20/2022 西藏喇嘛在新中国联邦和法治基金乌克兰救援大帐篷前说：不要恨中国人，唯一要恨的是中国共产党，他们总是向世界撒弥天大谎、剥夺人民的自​​由、种族灭绝、破坏自然。最近，他们毁坏了许多西藏大佛像。中共国政府收买一切。如果他们继续作恶多端，他们就会万劫不复。<br/>
+![img](https://media.gettr.com/group17/getter/2022/04/23/10/baddfdb4-9788-d938-81cc-9f8c97d81566/out.jpg)
+
+---
+
 `@miles 4/23/2022 8:09 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -147,13 +154,6 @@
 
 “STOP TOUCHING HER! 别碰她！” 飞飞秀救援快报 2022-04-22<br/>For English：gettr.com/streaming/p16o9nd9be9
 ![img](https://media.gettr.com/group41/origin/2022/04/22/22/4f57735b-f5e6-8a68-83ad-db82df07f0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/22/2022 10:02 PM (UTC)`
-
-4/22/2022 Miles Guo’s GETTR: The caregiver exposing the true story of a Shanghai senior who had to eat poop and died from it has been classified by the Communist Party as a “narrative attack” manipulated by foreigners causing devastating damage!  The top priority of the New Federal State of China is to awaken and save more Chinese fellows as well as humanity and having more people join us is only secondary<br/><br/>4/22/2022 文贵盖特：直播说上海有老人吃屎吃死了的义工已被中共定位为外国人操纵的且具有巨大杀伤力的舆论攻击！新中国联邦第一任务是唤醒和拯救更多的同胞和同类，让更多的人加入我们排第二位<br/>
-![img](https://media.gettr.com/group38/getter/2022/04/22/22/82175298-9a9d-4564-d687-f34b44142cb0/out.jpg)
 
 ---
 
