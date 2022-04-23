@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 12:30 AM (UTC)`
+
+2022.04.22 晚  新中国联邦 | 新闻   中共计划所谓的“未来30年”；中共杀人体制的危害
+![img](https://media.gettr.com/group17/origin/2022/04/23/00/9bce90ba-8e31-5dc8-be90-32684764ecf4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 12:22 AM (UTC)`
 
 4/22/2022 Ukraine Rescue: The big tent of the New Federal State of China has the largest LED TV screen in the region to show the footage of our rescue operations. A 6-meter-high billboard was established to display the information about the New Federal State of China, other rescue organizations, and shuttle buses. Some people attacked our fellow fighters as it seems they were not happy with the cause of the New Federal State of China to take down the CCP. We will hold these people accountable for their actions. Heavy rain will be detrimental to the Russian troops!<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦的大帐篷用当地最大的液晶电视来播放救援画面，还竖立了6米高的展示新中国联邦、各救援组织和班车信息的“擎天柱”；有人看新中国联邦灭共不爽而攻击战友，我们会对他们的行为追究到底！天降大雨将对俄军不利！<br/>
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】 04/21/2022 Two volunteers from England enjoy our NFSC coffee and they agree that the NFSC represents the voice of Chinese. They also support the NFSC’s fight for human rights and freedom of the Chinese people and taking down the evil CCP.<br/><br/>【乌克兰救援】 04/21/2022 两个英国义工喜欢我们的新中国联邦咖啡。他们说，新中国联邦人代表了中国人的声音，代表了人权，他们支持新中国联邦为中国人争取人权和自由，打倒邪恶的中国共产党。<br/>
 ![img](https://media.gettr.com/group26/getter/2022/04/22/14/7ac56918-a65d-12ee-8ec9-8a4c1350487c/out.jpg)
-
----
-
-`@miles 4/22/2022 2:28 PM (UTC)`
-
- 4月22号：尊敬的战友们好．对中国共产党的经济和金融市场，包括香港．有任何幻想的人．那绝对是噩梦，你将失去一切！醒来吧，被欺骗了百年的同胞们！
-![img](https://media.gettr.com/group15/getter/2022/04/22/14/a73fe19f-dfdf-aa5b-5260-9e9f037c30a0/out.jpg)
 
 ---
 
