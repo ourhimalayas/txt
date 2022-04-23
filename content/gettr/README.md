@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 12:32 PM (UTC)`
+
+2022.04.23早  新中国联邦 | 新闻  
+![img](https://media.gettr.com/group18/origin/2022/04/23/12/fea60e16-7539-cefc-bf19-3d72f747fd4a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/23/2022 12:26 PM (UTC)`
+
+4月23号：尊敬的战友们好……是什么原因，把这样的老百姓，逼成了这样不堪入目的情形！【七哥您好! 这视频一开始看搞笑，笑着笑着，听到那句：这女子说今天怎么样也要赚到这50块钱。心都颤了。🙏🙏🙏🙏这女子还能到处走，还能买吃的，为了50块钱就这样，看介绍她以前可不是卖的。那些被封闭的，饿了几天，还能用什么办法求生？还有人不相信在封闭的地方，一个馒头换一个良家女人吗？】
+![img](https://media.gettr.com/group45/getter/2022/04/23/12/6bb5bcb7-98cf-e827-b23e-d10eaf70c559/out.jpg)
+
+---
+
 `@miles 4/23/2022 12:02 PM (UTC)`
 
 2022.04.23  AM NFSC news   Nancy Pelosi to visit Taiwan on April 26th, CCP threats as "watershed" 
@@ -140,20 +154,6 @@
 
 【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
 ![img](https://media.gettr.com/group9/getter/2022/04/22/22/77bc97aa-1d8c-d7a1-9035-9e61508fa82b/out.jpg)
-
----
-
-`@miles 4/22/2022 10:17 PM (UTC)`
-
-4/22/2022 Miles Guo’s GETTR: The war in the Taiwan Strait can happen at any moment! The CCP is serious about invading or blockading Taiwan! Once Taiwan fights back, Shanghai and Hong Kong will be targeted, and Fujian province will be the first to suffer from the war. The military bases in Dalian and Qingdao will be the most dangerous places! The world is full of chaos. Fellow fighters, please keep working out, take care of your health, and stay away from the CCP virus.<br/><br/>4/22/2022 七哥盖特：台海战争一触即发！中共这次很认真地想要攻打或封锁台湾！上海、香港一定会成为台湾反击的目标，福建将成为第一个受害者，大连、青岛的军事基地也将十分危险！世界处在混沌中，请战友们多锻炼，注意健康，防病毒！<br/>
-![img](https://media.gettr.com/group20/getter/2022/04/22/22/76ce65e5-8c0c-bf6d-dda6-c3084e016fc6/out.jpg)
-
----
-
-`@miles 4/22/2022 10:10 PM (UTC)`
-
-4/22/2022 Miles Guo’s GETTR: Both the Hong Kong dollar and Hong Kong's economy are doomed. Nothing good will happen in Hong Kong unless the CCP is taken down. PAG will certainly go bankrupt in the future. Anyone who follows the CCP will walk into crematoriums, no matter how evil or rich they are.<br/><br/>4/22/2022 七哥盖特：港币和香港的经济都完蛋了！除非共产党被消灭，香港不会发生任何的好事！PAG未来一定破产！不管你多有邪恶或有多少钱，跟着共产党，走进火葬场！<br/>
-![img](https://media.gettr.com/group36/getter/2022/04/22/22/00716d9c-0437-862f-fa40-cc1ad8a1a2e3/out.jpg)
 
 ---
 
