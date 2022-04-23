@@ -2,31 +2,38 @@
 ---
 
 
-## 美国犹太组织JDC的义工祝愿新中国联邦早日灭共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2396965/)
+## 昆士兰解除密切接触者及未接种疫苗旅客的隔离规定
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2396982/)
 
-#### 整理/编辑：小红帽
+撰稿：Gradient Boost
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-85.png)图片来源：郭文贵先生4月22日盖文视频
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.22-B.jpg)网络图片
+昆士兰州是澳大利亚又一个取消对 COVID-19 密切接触者和未接种疫苗的国际入境者隔离要求的地区。从下周四开始，过去强制性的七天隔离条件将不再适用于任何一类人。尽管如此，一些其它规定仍然适用于密切接触者。
 
+自4 月 28 日下午 6 点以后，任何无症状的密切接触者都可以继续他们的日常生活，这也包括重返工作岗位。如果密切接触者出现了症状——即使他们的检测结果为阴性——他们仍应在家进行自主隔离。因此确定隔离与否的条件似乎从是否阳性转变为是否出现症状。
 
-2022年4月21日，在波兰梅迪卡难民救援中心，美国犹太组织JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务并祝愿新中国联邦早日灭共。
+不过另一方面，对于密切接触者的病毒检测要求并没有完全解除。如果一位居民被认定为密切接触者，那么他仍需要每隔一天进行一次检测——即便是在无症状的情况下。同时密切接触者也需要在外出时佩戴口罩。
 
-来自犹太分发委员会（JDC），名叫Derick的波兰义工告诉法治基金和新中国联邦的义工妮可，他们非常感谢法治基金的乌克兰救援行动和义工们的帮忙。Derick多次跟新中国联邦的义工一起工作并且感到非常愉快。他不停地称赞法治基金和新中国联邦的义工们非常棒。
+另外，密切接触者在发现自己是密切接触者后7天内不可以访问“脆弱环境”，包括医院及养老院等。
 
-Derick说，他已经带了好几批难民到法治基金的大帐篷。他知道法治基金的义工是来自新中国联邦的新中国人。他也认识法治基金和新中国联邦的标志，认识法治基金帐篷里面的义工们。对于义工的周到服务，他觉得非常高兴和感激。
+目前，昆士兰州对Isolation和Quarantine的这两个单词给予了不同解释，尽管这两个词在中文语境里都可以理解为隔离。在昆士兰，Quarantine是指远离他人以防您感染 COVID-19，而Isolation是指在您知道自己感染 COVID-19 时远离他人。
 
-最后，Derick祝愿中国共产党很快被消灭。妮可也表示，对灭共的目标充满了信心。
+*编辑：Gradient Boost*
 
-资料来源：[郭文贵先生4月22日盖文](https://gettr.com/post/p16lqcx1b36)
+*发布：Gradient Boost*
 
-发布：*wenly*
+新闻参考链接：
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[9 News](https://www.9news.com.au/national/queensland-covid19-close-contact-rule-changes-explained/efbdb634-2c44-4333-9960-5235f0f247ba)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+**更多信息，更多关注
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
  
 

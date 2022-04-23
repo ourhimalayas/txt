@@ -15,95 +15,95 @@
 
 ---
 
-### [美国CDC宣布临时豁免 从上海前往美国的乘客免核酸检测](/content/gnews/1/README.md)
+### [世界银行估算 乌克兰遭受入侵的损失金额约为7.7万亿日元](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|南希·佩洛西将于4月26日访问台湾 中共威胁必现“分水岭”](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|4·21突发直播中的重要信息](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [美国CDC宣布临时豁免 从上海前往美国的乘客免核酸检测](/content/gnews/4/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [妮可采访西藏议会成员：Thubten Wangchen](/content/gnews/2/README.md)
+### [妮可采访西藏议会成员：Thubten Wangchen](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [乌克兰会议将在德国的拉姆施泰因美国空军基地举行](/content/gnews/3/README.md)
+### [乌克兰会议将在德国的拉姆施泰因美国空军基地举行](/content/gnews/6/README.md)
  ` mayflowertranslate`
 
-### [【全文字幕】2022年04月11日 文贵试直播](/content/gnews/4/README.md)
+### [【全文字幕】2022年04月11日 文贵试直播](/content/gnews/7/README.md)
  ` 文贵视频字幕全集`
 
-### [有声|2022年3月国际社会对中共的打击制裁汇总](/content/gnews/5/README.md)
+### [有声|2022年3月国际社会对中共的打击制裁汇总](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|多国财长和央行行长在俄罗斯发言时退出 G20 会议](/content/gnews/6/README.md)
+### [有声|多国财长和央行行长在俄罗斯发言时退出 G20 会议](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|上海封控民众质问核酸检测黑幕](/content/gnews/7/README.md)
+### [有声|上海封控民众质问核酸检测黑幕](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [图片：419断播事件（5周年）直播系列三](/content/gnews/8/README.md)
- ` 日本東京方舟農場`
-
-### [有声|加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/9/README.md)
+### [有声|加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [乌克兰境内流离失所者继续增加超过了770万](/content/gnews/10/README.md)
+### [乌克兰境内流离失所者继续增加超过了770万](/content/gnews/12/README.md)
  ` mayflowertranslate`
 
-### [有声|爆料革命联合西方成就护台神队](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动](/content/gnews/12/README.md)
+### [【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [印尼忧危机宣布棕榈油出口禁令 中共国棕榈油进口新低](/content/gnews/13/README.md)
+### [印尼忧危机宣布棕榈油出口禁令 中共国棕榈油进口新低](/content/gnews/14/README.md)
  ` 波士顿五月花农场金融部`
 
-### [秘翻在线：患有基础疾病的英国新冠（中共病毒）患者持续阳性16个月以上](/content/gnews/14/README.md)
+### [秘翻在线：患有基础疾病的英国新冠（中共病毒）患者持续阳性16个月以上](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：德国央行称如果中断俄罗斯产天然气进口，经济将陷入停滞](/content/gnews/15/README.md)
+### [秘翻在线：德国央行称如果中断俄罗斯产天然气进口，经济将陷入停滞](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统](/content/gnews/16/README.md)
+### [俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统](/content/gnews/17/README.md)
  ` 關注組`
 
-### [联合国：俄军在布查“杀害”50人 甚至有地区达到300人（下）](/content/gnews/17/README.md)
+### [联合国：俄军在布查“杀害”50人 甚至有地区达到300人（下）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠患者3成有后遗症](/content/gnews/18/README.md)
+### [新冠患者3成有后遗症](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联合国：俄军在布查“杀害”50人 甚至有地区达到300人（上）](/content/gnews/19/README.md)
+### [联合国：俄军在布查“杀害”50人 甚至有地区达到300人（上）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中日财经爆| 印尼宣布禁止食用油出口 对中共国杀伤力巨大](/content/gnews/20/README.md)
+### [中日财经爆| 印尼宣布禁止食用油出口 对中共国杀伤力巨大](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter](/content/gnews/21/README.md)
+### [中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际｜ 中索安全协议签约 美高级官员团赶赴所罗门群岛](/content/gnews/22/README.md)
+### [国际｜ 中索安全协议签约 美高级官员团赶赴所罗门群岛](/content/gnews/23/README.md)
  ` 關注組`
 
-### [消灭中共是拯救香港的唯一办法，PAG未来必定破产](/content/gnews/23/README.md)
+### [消灭中共是拯救香港的唯一办法，PAG未来必定破产](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海“清零”运动天怒人怨再证中共政权的无耻邪恶](/content/gnews/24/README.md)
+### [上海“清零”运动天怒人怨再证中共政权的无耻邪恶](/content/gnews/25/README.md)
  ` 战云长天时评`
 
-### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(四)](/content/gnews/25/README.md)
+### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(四)](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022/04/18 墙内世界](/content/gnews/26/README.md)
+### [2022/04/18 墙内世界](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声｜上海母亲带孩子求医4天无果 整夜苦等后怒吼](/content/gnews/27/README.md)
+### [有声｜上海母亲带孩子求医4天无果 整夜苦等后怒吼](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [昆士兰解除密切接触者及未接种疫苗旅客的隔离规定](/content/gnews/28/README.md)
+### [昆士兰解除密切接触者及未接种疫苗旅客的隔离规定](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国犹太组织JDC的义工祝愿新中国联邦早日灭共](/content/gnews/29/README.md)
+### [美国犹太组织JDC的义工祝愿新中国联邦早日灭共](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
-
-### [大多数欧盟国家几乎取消了“中共病毒”防疫措施](/content/gnews/30/README.md)
- ` mayflowertranslate`
 
 ### [日本东京樱花团 中文新闻播报第56期](/content/gnews/31/README.md)
  ` Tokyo Sakura Video Group`

@@ -2,37 +2,27 @@
 ---
 
 
-## 【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397616/)
+## 乌克兰境内流离失所者继续增加超过了770万
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2397691/)
 
-**By：[秘翻北美时评](https://gettr.com/post/p16o2xv17ee)**
+编译：波士顿五月花—思澈
 
-***[2022-04-23](https://gettr.com/post/p16o2xv17ee)***
+自战争开始至今乌克兰境内流离失所者占该国人口17%，流离失所者中的15%计划返乡。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/68105313-5A03-47E8-BF88-E3FBCB91F99B.jpeg)
+
+据联合国移民机构称，自2月24日俄乌战争开始以来，境内流离失所者的总数攀升至超过770万，占该国人口的17%，逃离乌克兰的人数超过500万，其中280多万人去了波兰。
+
+目前在国内流离失所者中，15%的人计划在未来两周内返回家园，主要前往基辅和该国北部，有8%的人报告说他们的房屋受到了袭击的破坏。超过一半的境内流离失所者主要是来自乌克兰东部，据报告他们缺乏一些食品。
+
+据报告目前儿童获得足够食品的问题有所缓解，从最初的28%下降到现在的25%。
+
+素材来源：[https://www.aa.com.tr/en/russia-ukraine-war/un-1-in-6-people-internally-displaced-in-ukraine-after-russia-launched-war/2569686](https://www.aa.com.tr/en/russia-ukraine-war/un-1-in-6-people-internally-displaced-in-ukraine-after-russia-launched-war/2569686)
+
+*发布：思澈*
 
 
 
-
-
-**今日主题：**
-
-**1.上海22日起开展社会全面清零攻坚九大行动 **
-
-**2.上海666家龙头企业70%本周复工复产 **
-
-**3.朝鲜因防疫射杀3名中国人 **
-
-**4.世界正式进入中美竞争时代 **
-
-**5.全球粮食危机或带来“人类大灾难” **
-
-**6.普京脸部浮肿再爆犯癌**
-
-🔗链接：[https://gettr.com/post/p16o2xv17ee](https://gettr.com/post/p16o2xv17ee)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

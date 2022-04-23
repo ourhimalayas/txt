@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 12:02 PM (UTC)`
+
+2022.04.23  AM NFSC news   Nancy Pelosi to visit Taiwan on April 26th, CCP threats as "watershed" 
+![img](https://media.gettr.com/group38/origin/2022/04/23/11/7f1d08f6-038f-39f3-9a28-e9fbfcb48642/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/23/2022 11:00 AM (UTC)`
 
 【Ukraine Rescue】 04/22/2022 Three volunteers from France express their support for the new Chinese people of the NFSC to overthrow the communist regime. Communism is not beneficial to the Chinese people, nor to the people of the world. It is a difficult task, but with the support of the whole world and with God, anything is possible.<br/><br/>【乌克兰救援】 04/22/2022 三位来自法国的志愿者表达了他们对于新中国联邦的新中国人推翻共产党统治的支持，共产主义对中国人民、对全世界人都没有好处。这是一项艰巨的任务，但有全世界的支持，有上帝在，一切皆有可能。
@@ -147,13 +154,6 @@
 
 4/22/2022 Miles Guo’s GETTR: Both the Hong Kong dollar and Hong Kong's economy are doomed. Nothing good will happen in Hong Kong unless the CCP is taken down. PAG will certainly go bankrupt in the future. Anyone who follows the CCP will walk into crematoriums, no matter how evil or rich they are.<br/><br/>4/22/2022 七哥盖特：港币和香港的经济都完蛋了！除非共产党被消灭，香港不会发生任何的好事！PAG未来一定破产！不管你多有邪恶或有多少钱，跟着共产党，走进火葬场！<br/>
 ![img](https://media.gettr.com/group36/getter/2022/04/22/22/00716d9c-0437-862f-fa40-cc1ad8a1a2e3/out.jpg)
-
----
-
-`@miles 4/22/2022 10:05 PM (UTC)`
-
-4/22/2022 Ukraine Rescue: The New Federal State of China just received a gratitude email from the Embassy of Ukraine in the Republic of Singapore, Brunei and New Zealand; the representative expresses Ukrainian people’s gratitude to the New Federal State of China and the Rule of Law Foundation for our support and assistance<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦收到来自乌克兰驻新西兰、新加坡和文莱大使馆的感谢邮件，向新中国联邦和法治基金对乌克兰的救援和支持表示衷心的感谢<br/>
-![img](https://media.gettr.com/group14/getter/2022/04/22/22/5ba9e615-99dd-68b3-30be-4dac133597c8/out.jpg)
 
 ---
 
