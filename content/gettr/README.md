@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 8:45 PM (UTC)`
+
+2022.04.23  新中国联邦 | 喜健康   如斯医生专访
+![img](https://media.gettr.com/group45/origin/2022/04/18/20/93a747d6-61b9-c02d-36b0-79f6aa417f55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 7:03 PM (UTC)`
 
 2022-4-23《避风港》(39) WHO发布肝炎全球警告；疫苗是罪魁祸首
@@ -146,13 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 【Ukraine Rescue】 04/22/2022 The LED billboard that NFSC has just set up at the Medyka Rescue Center is deliberately vandalized by someone who cut the cable. Moreover, someone is attacking our volunteers with filthy language and preventing French volunteer from taking pictures with our billboard and even tried to attack Little Sarah. The police have now stepped in to investigate. The purpose and supporters behind these violent acts of vandalism will soon be revealed.<br/><br/>【乌克兰救援】 04/22/2022 新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆。不仅如此，有人还阻止法国志愿者在广告牌下拍照并污言秽语攻击他们，甚至试图对小Sara动手。目前警方已经介入调查，这些暴力破坏行为背后的目的和支持者究竟是谁，相信很快就会水落石出。<br/>
 ![img](https://media.gettr.com/group22/getter/2022/04/22/23/ff372759-392c-0fc0-f633-1800a9f004cb/out.jpg)
-
----
-
-`@miles 4/22/2022 11:44 PM (UTC)`
-
-2022.04.22《The Fringe》 Episode 175<br/>中文同传：https://gettr.com/streaming/p16op0823dc
-![img](https://media.gettr.com/group44/origin/2022/04/22/23/39e12762-42c9-548a-6f24-a4202306b4c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
