@@ -2,50 +2,40 @@
 ---
 
 
-## 我们为什么钦佩弗拉基米尔·泽连斯基？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2396826/)
+## 随着原始Omicron的消失 这些是BA.2次变种的主要区别
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396950/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+翻译： Jenny Ball
 
-**翻译：文扬
-编辑：文泓**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-145.png)图片来源：Infobae & 雅典娜设计组
-
-
-**我们钦佩泽连斯基，**在不对等的“赔率”面前，这位乌克兰总统坚持自己的立场。他证明了“一个人有勇气，就会让多数人有勇气”这句格言的真实性；他表明，荣誉和爱国是我们不畏风险的美德；他掌握了个人榜样和身体力行的力量；他知道语言是如何激励行动，而行动反过来证明语言的意义。
-
-**我们钦佩泽连斯基，**他提醒我们，西方的政治家中，这些特质已经变得多么罕见。
-
-西方政坛充斥着扮演政治家的人，领导人擅长告诉人们他们想听的东西。而泽连斯基一直强调要告诉人民真实情况，战争的走势可能会变得更糟糕。
-
-**我们钦佩泽连斯基**，因为他将自由世界的理念恢复到了应有的位置：**自由世界的****国家都****赞同国家权力首先存在于保护个人权利这一概念****；****自由世界的责任是援助和支持任何受到入侵和暴政威胁的成员。乌克兰的情况如此，我们其他****（国家）****人最终也会如此。**
-
-**我们钦佩泽连斯基，**因为他敢于斗争。因为世界并不总是文明的，遇到一些不好的事情，如果他们不愿意灭亡，文明人和国家必须准备战斗。
-
-**泽连斯基和乌克兰人民****唤醒****了自由世界，一个被其公民视为理所当然的自由和民主遗产有被敌人随意夺取的风险。**
-
-**我们钦佩泽连斯基，**因为他唤醒了我们良知中美好的天使。**他的****出现，****使乔·拜登成为更好的总统，让德国成为更好的国家，让北约成为更好的联盟****；**使美国大部分地区摆脱了孤立主义；促使欧洲的政治和商业阶层不再对俄罗斯的法西斯主义堕落选择视而不见。
-
-**我们钦佩泽连斯基，**因为他塑造了一个男人应该有的样子：**令人印象深刻而不是气势磅礴；自信而不自负；聪明而不假装无懈可击；真诚而不是愤世嫉俗；勇敢不是因为他无所畏惧，而是因为他问心无愧。**
-
-**我们钦佩泽连斯基，因为他为我们自己陷入困境的民主国家带来了希望，**这些国家可能会选出能够激励、荣誉、甚至拯救我们的领导人。也许我们能够做到这一点，因为对于乌克兰人民和他们不屈不挠的领导人来说，现在的时间还不算太晚。
-
-原文链接： [Russia-Ukraine war: Why we admire Volodomyr Zelensky (afr.com)](https://www.afr.com/world/europe/why-we-admire-volodomyr-zelensky-20220421-p5af1i)
-
-发布：文武全才
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-499.jpg)
 
+[NBC报道：](https://www.nbcnews.com/health/health-news/omicron-ba-2-variant-symptoms-covid-rcna25069)
 
+自去年 12 月以来，冠状病毒的 Omicron 变体一直在美国占据主导地位，但在冬季导致重大感染激增的 Omicron 变体，现在仅占新病例的不到 7%。
 
+一个更易传播的Omicron次变体 BA.2 约占美国病例的3/4，而BA.2 也产生了自己的子系 BA.2.12.1，它似乎正在获得动力：从 4 月初的美国病例的 7% 上升到上周的 19%。 纽约州卫生局上周表示，BA.2.12.1 最有可能导致该州病例数上升。
+
+到目前为止，新版本的 Omicron 与之前在美国大行其道的版本之间的主要区别在于可传播性。 白宫首席医学顾问福奇博士估计，BA.2 的传染性比最初的 Omicron 谱系高 50%。
+
+新闻来源：[As Original Omicron Disappears, These Are the BA.2 Subvariant’s Key Differences](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
  
 

@@ -2,40 +2,42 @@
 ---
 
 
-## 随着原始Omicron的消失 这些是BA.2次变种的主要区别
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396950/)
+## “俄方应承担乌克兰重建资金”的呼声持续走高
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2397004/)
 
-翻译： Jenny Ball
+撰稿：Gradient Boost
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.22-C.jpg)网络图片
+俄罗斯持续的轰炸对乌克兰造成的经济损失越来越大，美国及其盟国加速向陷入困境的国家提供数十亿美元的援助——同时也在寻找其他现金来源，包括俄罗斯本身。
 
+在美国周四宣布向乌克兰提供 13 亿美元的新经济援助和军事援助后，财政部长耶伦承认，“这只是帮助乌克兰重建的开始”。
 
+世界银行行长戴维·马尔帕斯说，俄罗斯的侵略战争已经对建筑和基础设施造成了超过 600 亿美元的损失。而国际货币基金组织在其最新的世界经济展望中表示，乌克兰经济今明两年将萎缩35%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-499.jpg)
+而“谁将支付乌克兰的战争重建资金”的问题也迫在眉睫，越来越多的人们将目光转向了俄罗斯政府。耶伦周四表示，向俄罗斯本身寻求资金重建乌克兰“是我们应该追求的”。
 
-[NBC报道：](https://www.nbcnews.com/health/health-news/omicron-ba-2-variant-symptoms-covid-rcna25069)
+当在新闻发布会上被问及使用冻结的俄罗斯中央银行资金支持乌克兰重建的可能性时，耶伦说：“我不想轻易这样做”，并补充说这必须与美国盟友和伙伴达成共识.
 
-自去年 12 月以来，冠状病毒的 Omicron 变体一直在美国占据主导地位，但在冬季导致重大感染激增的 Omicron 变体，现在仅占新病例的不到 7%。
+乌克兰总统泽连斯基在对国际货币基金组织和世界银行领导人的线上会晤中表示，“需要对战争征收特别税”。他呼吁将受制裁的财产和俄方中央银行准备金收益用于补偿乌克兰的损失。
 
-一个更易传播的Omicron次变体 BA.2 约占美国病例的3/4，而BA.2 也产生了自己的子系 BA.2.12.1，它似乎正在获得动力：从 4 月初的美国病例的 7% 上升到上周的 19%。 纽约州卫生局上周表示，BA.2.12.1 最有可能导致该州病例数上升。
+随着战争的人力和财力成本不断增加，使用冻结的中央银行资金重建乌克兰的呼声越来越高。此外，自愿向乌克兰提供赠款和援助的政府必须努力应对影响本国食品和能源价格的通胀上升。
 
-到目前为止，新版本的 Omicron 与之前在美国大行其道的版本之间的主要区别在于可传播性。 白宫首席医学顾问福奇博士估计，BA.2 的传染性比最初的 Omicron 谱系高 50%。
+*编辑：Gradient Boost*
 
-新闻来源：[As Original Omicron Disappears, These Are the BA.2 Subvariant’s Key Differences](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
+*发布：Gradient Boost*
 
-* * *
+新闻参考链接：
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+[AP News](https://apnews.com/article/russia-ukraine-biden-business-world-bank-wally-adeyemo-e471f2542b0a02836cc4a5b3c92507e7)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+**更多信息，更多关注
+**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
 
  
 

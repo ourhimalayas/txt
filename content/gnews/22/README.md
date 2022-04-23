@@ -2,40 +2,21 @@
 ---
 
 
-## 每周报告显示突破性病例占 COVID 感染的 47%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396746/)
+## 视频|2022年3月国际社会对中共的打击制裁汇总
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2396762/)
 
-翻译： Jenny Ball
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+据不完全统计，在2022年3月份，国际社会对中共的打击制裁次数有10次，全部由美国发起。被制裁和将要被制裁的范围涵盖部分中共官员和中共在美国的代理人，以及中共的通信、贸易、体育、科技、生物制药等领域。
+三月份，国际社会对中共的打击制裁主要有五种形式：第一，议会提案2次，包括美国国会参众两院议员分别提出《中国贸易关系法案》；第二，议会决议1次，即美国参议院通过修正版《美国竞争法》；第三，对中共企业实施的具体制裁4次；第四，对中共官员实施的具体制裁1次；第五，对中共代理人发起的法律诉讼1次。
+在整个三月份国际社会对中共的打击制裁中，最具影响力的法案是《美国竞争法》。法案内容显示，美国计划提供520亿美元补贴和投资美国的半导体制造设施；将授权在未来五年内为国家科学基金会提供约800亿美元资金；将为国务院的全球参与中心提供资金，为抗击外国虚假信息注入资源；将协商保留中国人权条款。
+从三月份的这一系列行动可以看到：美国国会参众两院、美国政府和美国司法部等正在对中共的官员、企业、美国代理人进行全方位打击制裁。
 
+发稿：qiutian（邱甜）
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-18.jpeg)
-
-《在线纪事》报道：
-
-随着俄勒冈州对 COVID-19 的担忧消退，以及广泛的疫苗接种推动失去动力，出现了新的数据显示疫苗的功效低于先前的预期。在俄勒冈州卫生局的最新报告中，疫苗突破病例占俄勒冈州 COVID-19 病例的近一半。
-
-俄勒冈州卫生局 4 月 7 日的 COVID-19 突破报告显示，在 3 月 27 日至 4 月 2 日期间， 报告的 2,035 例 COVID-19 病例中，有960疫苗突破病例 (47.2%)。这个数字可能甚至比数据显示的还要高，因为数据包括向公共卫生部门报告的阳性检测结果，而不是在家中检测出的阳性结果。
-
-该机构关于疫苗接种突破性死亡的最新报告揭示了类似的趋势。在 3 月份，46.4% 报告的 COVID-19 死亡病例发生在完全接种疫苗的人群中。
-
-新闻来源：[COVID: Breakthrough Cases Made up 47% of COVID Infections, Weekly Report Shows](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
-
-* * *
-
-审核：文乐  
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

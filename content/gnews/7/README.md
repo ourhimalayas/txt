@@ -2,77 +2,46 @@
 ---
 
 
-## 美联储大幅加息箭在弦上 美元反弹或近“临界点”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396842/)
+## 战争中的家庭悲剧-父亲因买面包而死
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2396962/)
 
-翻译：噜噜咪
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+作者：纽约香草山农场教育部—马克文、朱丽叶
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-497.jpg)
 
-4月22日（路透社） – 根据美元在过去紧缩周期中的交易模式，随着美联储准备部署更多的加息措施，美元长达数月的涨势可能已经达到顶峰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-4.png)
+亚娜·巴切克（Yana Bachek），一名英文老师，居住在乌克兰哈尔科夫。当俄军炮击开始时，她正准备线上课程。亚娜·巴切克立刻接到了她母亲用颤抖的声音打来电话，说她父亲出去买面包了，还没回来。亚娜·巴切克马上想冲出去，被她的搭档阻止。她立即给父亲打电话，没人接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/b35c5158fc06aca8.jpg)[图源网络](https://www.reuters.com/world/europe/picture-its-story-daughters-shock-trip-buy-bread-ends-her-fathers-life-2022-04-21/)
+跟随救护车赶到现场的摄影记者捕捉到亚娜·巴切克站在她父亲尸体旁痛苦的表情以及她母亲的哀嚎。亚娜·巴切克的父亲，一位79岁的车队经理，因为出门买面包被俄军炮弹炸死。
 
-过去一年，美元兑一篮子货币上涨了约7%，达到了2020年3月以来的最高水平，部分原因是预期美联储准备采用强有力的加息措施来抑制近40年来的最严重通胀。
+俄罗斯否认在俄乌战争中以平民为目标，并否认乌克兰所说的暴行证据，称乌克兰蓄意破坏和平谈判。随着基辅附近布查的大屠杀和港口城市马里乌波尔的破坏，对哈尔科夫等城市的不分青红皂白的炮击已成为克里姆林宫所谓的在乌克兰的“特殊军事行动”的象征。
 
-这些涨幅与美元在过去四个加息周期的行为基本一致，在央行开始加息前的12个月，美元平均攀升2.2%。
+自从俄罗斯入侵乌克兰以后，哈尔科夫几乎每天都受到轰炸。她的父亲是当天被炸至死的人员之一，在战争中，死后也不能正常埋葬。那个沾满了父亲鲜血的面包放在门口走廊的桌上，每次她走到门口时，都会暂短的触摸一下，因为它是父亲手中最后的一件东西。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-135.png)美元指数在过去一年半里稳步攀升
+参考来源：
+[A picture and its story: A daughter’s shock as a trip to buy bread ends her father’s life](https://www.reuters.com/world/europe/picture-its-story-daughters-shock-trip-buy-bread-ends-her-fathers-life-2022-04-21/)
 
-然而，根据路透社对Refinitiv数据的分析，在过去四次加息周期中的三次，美元指数继续收窄其部分涨幅，在第一次和最后一次加息之间平均损失了1.4%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-17.jpg)
 
-摩根士丹利财富管理公司的首席投资官丽莎·沙利特说：“美元完全有可能在高位超跌，重温我们在8-9年前看到的水平，但我们认为我们已经非常接近一个临界点了。”
+编辑/校对/发稿：兰兰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-99.png)
+更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
 
-高盛的分析师写道，目前对美联储收紧政策的预测与1994-1995年央行的利率路径相当，当时决策者将利率提高了300个基点，这是几十年来最陡峭的加息周期。美联储在3月份将利率提高了25个基点，投资者预测到明年2月将有近260个基点的累计加息。
 
-高盛的分析师在最近的一份报告中说，虽然美元在1994年首次加息前的几个月里走强，但到美联储加息结束时，美元下跌了8.4%，因为其他全球央行的加息缩小了美国收益率与其他货币收益率之间的差距。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-70.png)美元指数
 
-尽管最近几周美债收益率与外国国债收益率之间的差距有所扩大，但如果其他央行的货币政策越来越激进，或者美国数据显示增长开始放缓，这种态势可能会发生变化。
 
-千禧年全球投资公司的联合首席投资官理查德·本森说：“当市场适当地嗅到美联储在美国数据放缓的背景下完成了他们的鹰派行为时，那么美元将下跌，我们可以回过头看利率差异的问题。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-62.png)与欧元和日元相比，美元继续享有明显的收益率优势
 
-欧洲政策制定者最近加强了鹰派的言论。德国联邦银行行长约阿希姆·纳格尔周四表示，欧洲央行可能在第三季度初加息。
 
-如果法国总统马克龙周日在选举中战胜极右翼候选人玛丽·勒庞，也可能减少对欧元的不利影响，今年欧元兑美元汇率下跌了4.7%。与此同时，日元对美元汇率创下二十年来的新低。
 
-然而，就目前而言，势头似乎是站在美元的一边。美元指数在4月份上涨了2.3%，有望创下2021年6月以来的最佳月份。该指数也有望实现连续第四个月的上涨，这是两年来最长的连涨。
-
-美元持续走强对投资者、企业和政府来说可能各有利弊。虽然强势美元可能有助于美联储抑制通货膨胀，但它可能加剧货币疲软的经济体的价格上涨。
-
-强势美元还可能对那些从国外获得收入并需要将其兑换成美元的美国公司的利润造成压力。宝洁公司和菲利普·莫里斯国际公司是在本季财报中提到货币逆风的公司之一。
-
-摩根士丹利的沙利特说：“我们认为，我们已经非常接近这一点，企业将不得不开始承认，美元走强正在损害其收益的转换，并损害国际竞争力。”
-
-不过，如果美元熊市是正确的，企业面临的压力可能是暂时的。
-
-渣打银行全球G10外汇研究和北美宏观策略主管史蒂夫·英格兰特认为，美元在未来几个月可能会继续上涨，但在美联储加息周期过程中可能会回撤，特别是如果其他央行越来越鹰派。
-
-然而，“这是今年下半年，甚至是2023年的故事”他说。
-
-新闻来源：[Analysis: Dollar’s rally may be nearing ‘tipping point’ as Fed readies big hikes](https://www.reuters.com/business/dollars-rally-may-be-nearing-tipping-point-fed-readies-big-hikes-2022-04-22/)
-
-* * *
-
-素材：peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
  
 

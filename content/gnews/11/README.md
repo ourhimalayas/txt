@@ -2,27 +2,41 @@
 ---
 
 
-## 有声｜股票债券汇率集体暴跌 中共国市场陷入痛苦期
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2396809/)
+## 一女子在 20 天内两次感染新冠病毒 创下新纪录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396912/)
 
-**By:秘翻新闻**
+翻译： Jenny Ball
 
-**2022-04-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-23-141106.jpg)
-[大纪元](https://www.epochtimes.com/gb/22/4/22/n13717964.htm)4月23日报导，中共国金融市场刚经历痛苦的一周，因投资者对中共清零政策的担忧越来越大，本周股票、债券以及汇率市场集体出现暴跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-香港恒生指数本周的表现在全球垫底。加上离岸人民币扩大跌幅，达到一年来的最低水平。高收益美元债券也是自3月以来最大的一次周跌幅。
 
-由于清零政策导致的封城、停工，进一步减缓了中共国的经济增长，而官方的刺激政策也未能达到投资者的预期，市场对中共国资产的投资热情恶化。到目前为止，中共国股票的市值损失近2.7万亿美元。
 
-国际货币基金组织周二发布最新报告，再度下调中共国全年经济增长至4.4%，远低于年初中共国设下的目标。与此同时，该组织警告全球通货膨胀情况恐比预期更糟。这是该机构在三个月内第二度下调对中共国的经济增长预期。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-498.jpg)
 
-（秘翻新闻 二丫编辑）
+[据CNBC报导:](https://www.cnbc.com/2022/04/21/woman-caught-covid-twice-in-20-days-marking-a-new-record.html)
 
-发布:星星
+据西班牙研究人员称，据报道，一名医护人员在感染由 Delta 变体引起的感染后，仅 20 天就检测出 Omicron 冠状病毒株呈阳性。
+
+研究人员将于下周末在葡萄牙举行的今年欧洲临床微生物学和传染病大会上，介绍对这名 31 岁女性的案例研究，她已完全接种疫苗，并注射了加强免疫针。
+
+感染之间的 20 天间隔是已知最短的。
+
+新闻来源：[Woman Catches COVID Twice Within 20 Days, Marking a New Record](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
+
+审核：文乐    
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

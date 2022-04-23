@@ -2,41 +2,25 @@
 ---
 
 
-## 一女子在 20 天内两次感染新冠病毒 创下新纪录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396912/)
+## 有声｜上海母亲带孩子求医4天无果 整夜苦等后怒吼
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2396993/)
 
-翻译： Jenny Ball
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+**2022-04-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-23-141110.jpg)
+[新唐人](https://www.ntdtv.com/gb/2022/04/22/a103407570.html)4月23日报道，中共上海当局把大部分医疗资源投入“政治清零”行动，致大量其他病患求医无门，最终导致死亡。视频显示，一名母亲带着孩子四天四夜求医无果后，在医院外怒吼控诉。
 
+4月22日传出的视频显示，一名妈妈在上海同济医院发热门诊外搭建的露天医疗棚内，一边用手机拍摄，一边大声控诉，称自己带身患肿瘤的孩子四天四夜求医，辗转多家医院，始终得不到任何治疗。她带着孩子在这里吹风苦等一整晚，到了中午才被医生告知现在什么病都看不了。
 
+上海封城后，官方一再强调“保障非染疫病患的治疗”。但疯狂的“清零政策”几乎占用了所有的医疗资源，全市大部分医院瘫痪停诊。很多救护车拉到病人后无处可送。上海不断有病患失救死亡的消息传出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-498.jpg)
+（秘翻新闻 二丫编辑）
 
-[据CNBC报导:](https://www.cnbc.com/2022/04/21/woman-caught-covid-twice-in-20-days-marking-a-new-record.html)
-
-据西班牙研究人员称，据报道，一名医护人员在感染由 Delta 变体引起的感染后，仅 20 天就检测出 Omicron 冠状病毒株呈阳性。
-
-研究人员将于下周末在葡萄牙举行的今年欧洲临床微生物学和传染病大会上，介绍对这名 31 岁女性的案例研究，她已完全接种疫苗，并注射了加强免疫针。
-
-感染之间的 20 天间隔是已知最短的。
-
-新闻来源：[Woman Catches COVID Twice Within 20 Days, Marking a New Record](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
+发布:星星
 
 * * *
-
-审核：文乐    
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
