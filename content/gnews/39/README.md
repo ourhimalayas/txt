@@ -2,22 +2,36 @@
 ---
 
 
-## 喜币KYC流程详解
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2395265/)
+## 乌克兰放弃大疆无人机改用美国设备
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2395888/)
 
-作者：香草山商业部–天情老人情早
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-481.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-203.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-174.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-158.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-70.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-42.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-49.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-29.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/1314.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/17-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/19-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/20-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/21-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/22-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/23-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/25-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/29-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/30-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3233.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/34-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/35-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/36-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/37-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/38-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3940.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/40-2.jpg)
-编辑/审核/发稿：Bronx Bombers
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
-**更多资讯，更多关注**
+**撰稿：日本东京方舟农场  子辰**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+乌克兰近日指控中共国大疆无人机扰乱其防务，宣布不再使用其无人机改用美国初创公司设备。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+乌克兰官员称，中共国最大无人机制造商大疆创新科技有限公司（简称大疆）的产品对乌军和平民构成安全风险。大疆提供给乌克兰的产品会出现技术故障，而提供给俄罗斯的产品却完全没有任何问题。他们认为，这可能是大疆在有意破坏乌克兰防务。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-26.jpg)（图片来自大纪元）
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+乌克兰政府官员和无人机经销商表示，一些大疆公司的“航空镜”（AeroScopes）屡次出现故障，这些无人机探测系统原本可以识别和跟踪其它无人机及其飞行员。乌克兰政府官员表示，在战争开始时，这些设备无法启动，大疆数据遭到了篡改。
+
+大疆公司承认航空镜出现故障，并表示在进行修复，但否认公司对其产品进行过篡改。
+
+对此，乌克兰官员反驳称，俄罗斯已经成功地使用了相同的航空镜系统来瞄准乌克兰的无人机和飞行员。并且根据乌克兰国家特殊通信和信息保护局的一份报告显示，大疆公司“帮助俄罗斯进行了攻击”。
+
+电子产品远端连线软体公司Blynk IoT Platform共同创办人沃拉迪米尔‧希曼斯基（Volodymyr Shymanskyy）在推特上揭露，大疆限制了乌克兰军队使用“航空镜”技术的能力，让俄罗斯入侵者获得了重要的空中侦察优势。
+
+乌克兰副总理米哈伊洛‧费多罗夫（Mykhailo Fedorov）3月中旬曾在推特上发布的一封公开信，敦促大疆停止与俄罗斯的生意。他说，俄军“正在乌克兰境内使用大疆的产品，为导弹导航，杀害平民”。
+
+鉴于此，乌克兰放弃了大疆无人机转而使用美国设备，BRINC Drones和Skydio等美国初创公司成为填补乌克兰市场空缺的重要企业。截止目前，已有超过六家美国初创公司表示，他们已经向乌克兰捐赠或出售了无人机和无人机防御系统。
+
+此外，大疆在乌克兰的争议事件，加剧了美国对这家中共国公司安全性的担忧。从而促使共和党议员提出一项法案。该法案将把大疆添加到美国联邦通信委员会（FCC）的实体名单中，为禁止该公司的飞机使用美国通信基础设施铺路。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/22/n13717883.htm](https://www.epochtimes.com/gb/22/4/22/n13717883.htm)
+
+总编：老孙
+校对发布：文曦
 
  
 

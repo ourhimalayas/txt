@@ -2,40 +2,24 @@
 ---
 
 
-## 每周报告显示突破性病例占 COVID 感染的 47%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396746/)
+## 秘翻在线：五名俄罗斯寡头在杀死家人后身亡涉嫌谋杀
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2396755/)
 
-翻译： Jenny Ball
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-46.jpg)图片来源：本文的链接
+在俄罗斯持续入侵乌克兰之后，一连串的俄罗斯寡头（新兴企业集团）及其家人的死亡，被人怀疑是暗杀。 据美国媒体报道，天然气巨头诺瓦泰克公司前副董事长谢尔盖-普罗托森哈1月19日被发现与他的妻子和女儿在西班牙的一个度假胜地身亡，当地警方认为他可能是在杀害家人后自杀的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+据当地媒体报道，他被发现吊死在加泰罗尼亚的公寓里，在房间里还发现了他的妻子和女儿尸体，身上都有刺伤的痕迹。 他们一家主要居住在法国，并在复活节假期访问西班牙。 诺瓦泰克公司称他是热爱家庭的好男人，并对谋杀的说法表示怀疑，虽然没有证据表明有谋杀嫌疑，但被认为这很可能是一场伪装谋杀的事件。
 
+前一天，俄罗斯主要银行之一Gazprombank的前副总裁弗拉迪斯拉夫·阿巴耶夫也被发现与他的妻子和女儿在莫斯科的家中被枪杀身亡。 据俄罗斯媒体报道，由于阿巴耶夫的亲戚几天来一直无法与他家人取得联系，直接上门找他，房子上了锁，阿巴耶夫手里握着枪，因此被认为是自杀事件。
 
+然而，两名寡头在24小时内相继杀死自己的家人，然后自己自杀，这不得不让人们质疑，网上有人指出，他们可能是被谋杀的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-18.jpeg)
+与此同时，自2月24日入侵乌克兰以来，《新闻周刊》报道说，至少还有三名寡头在杀害家人后自杀，也有人指责是西方国家的经济制裁造成的。
 
-《在线纪事》报道：
+信息来源：[https://www.nikkansports.com/general/nikkan/news/202204230000148.html](https://www.nikkansports.com/general/nikkan/news/202204230000148.html)
 
-随着俄勒冈州对 COVID-19 的担忧消退，以及广泛的疫苗接种推动失去动力，出现了新的数据显示疫苗的功效低于先前的预期。在俄勒冈州卫生局的最新报告中，疫苗突破病例占俄勒冈州 COVID-19 病例的近一半。
-
-俄勒冈州卫生局 4 月 7 日的 COVID-19 突破报告显示，在 3 月 27 日至 4 月 2 日期间， 报告的 2,035 例 COVID-19 病例中，有960疫苗突破病例 (47.2%)。这个数字可能甚至比数据显示的还要高，因为数据包括向公共卫生部门报告的阳性检测结果，而不是在家中检测出的阳性结果。
-
-该机构关于疫苗接种突破性死亡的最新报告揭示了类似的趋势。在 3 月份，46.4% 报告的 COVID-19 死亡病例发生在完全接种疫苗的人群中。
-
-新闻来源：[COVID: Breakthrough Cases Made up 47% of COVID Infections, Weekly Report Shows](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
-
-* * *
-
-审核：文乐  
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+责编：Eric Kim
 
  
 

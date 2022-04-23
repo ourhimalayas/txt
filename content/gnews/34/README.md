@@ -2,52 +2,35 @@
 ---
 
 
-## 美国CDC就儿童不明原因肝炎病例发出全国性警报
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2396016/)
+## 新加坡将在下周取消大部分新冠限制
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396036/)
 
-翻译：多伦多蓝莲花- 灭共文明
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-485.jpg)图片来自网络
+《路透社》近日报道，新加坡卫生部周五表示，为了应对每日新感染病例的减少，新加坡将从4月26日起取消大部分剩余的新冠限制，并放宽对旅行者的入境要求。
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-《零对冲》4月22日报道，**在阿拉巴马州的儿童被发现有腺病毒和肝炎感染后，美国疾控中心发布了一个健康警报。**
+这些措施包括取消对团体人数的限制，允许员工完全返回工作场所，同时自该大流行病开始以来首次降低东南亚金融中心的警戒级别。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CDC.jpg)美国疾控中心（图片来源：路透社）
+当局还宣布取消已接种新冠疫苗的旅行者在出发前往新加坡之前进行新冠测试的要求。
 
-此前，该州一家大型医院的临床医生向疾控中心报告，有一群**儿童同时感染了肝炎和腺病毒。** 美国疾控中心称，医院报告了五名有**明显肝损伤的儿科患者**，包括三名**急性肝衰竭患者**，他们的**腺病毒检测结果也呈阳性**，并补充说，这些孩子以前是健康的，没有人感染过中共病毒。
+“财政部长兼政府冠状病毒工作组联合主席劳伦斯-黄说：”经过两年非常艰难的抗击病毒的过程，情况终于有了变化，我们现在可以有一个当之无愧的喘息机会。
 
-疾控中心还指出，五名儿童患有**41型腺病毒**，**通常表现为腹泻、呕吐和发烧，而且它往往可以伴随着呼吸道症状。**
+“但是让我们永远记住，我们越来越接近终点，但比赛还没有结束，大流行病肯定没有结束。”
 
-据报道，该医院的病例调查工作还发现了另外四名患有肝炎和腺病毒感染的儿科病人，从2021年10月到2022年2月，总共有九名病人入院。其中两名患者需要进行肝脏移植。
+然而，一些限制规则将继续存在，例如在室内公共场合和公共交通工具上必须戴口罩。
 
-据《**美国国立生物技术信息中心**》NCBI 2021年7月8日在线发表了一篇关于《**2019年冠状病毒病后发生的自身免疫性肝炎的诱因**》的文章中，强调了**新冠病毒mRNA疫苗可能增加患者自身免疫疾病的风险，包括吉兰-巴雷综合征和原发性胆管炎**。
+然而，许多限制将继续适用于未接种新冠疫苗的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001-7.jpg)儿童正在接种疫苗（图片来源：网络）
+新加坡为其550万人口中的93%接种了新冠疫苗，是世界上接种率最高的国家之一。它也是新冠死亡率最低的国家之一。
 
-美国卫生部门官员告诉当地媒体，除阿拉巴马州的9个病例外，北卡罗来纳州也发现了两个病例。
+参考链接：
 
-当局目前正在调查小儿肝炎和腺病毒病例之间的联系。该机构还要求临床医生和州公共卫生官员，如果发现10岁以下儿童的天门冬氨酸氨基转移酶或丙氨酸氨基转移酶升高，表明肝脏有问题，就要报告。
+[https://www.reuters.com/world/asia-pacific/singapore-remove-most-covid-restrictions-next-week-2022-04-22/](https://www.reuters.com/world/asia-pacific/singapore-remove-most-covid-restrictions-next-week-2022-04-22/)
 
-报道指出，本月早些时候，**英国报告了A、B、C、D和E型肝炎病毒检测阴性的儿童小儿肝炎病例，其中包括一些腺病毒感染者**。
+*编辑：金生水*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/002-6.jpg)
-新冠病毒（图片来源：网络）
-
-英国当局表示，**在英国至少有100名10岁以下的儿童被诊断出患有原因不明的急性肝炎。**
-
-据**欧洲疾控中心**在星期二的**公告中称，丹麦、西班牙和荷兰也发现了类似病例。**
-
-新闻来源链接：
-
-[https://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-childrenhttps://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-children](https://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-childrenhttps://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-children)
-
-校对与发布：飞花逐月
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
