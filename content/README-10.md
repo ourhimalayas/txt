@@ -16,6 +16,10 @@
 ---
 ## 頁面 10/42 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [42](/content/README-42.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年7月14日郭文贵先生G-TV直播](/content/2021/07/20210714-1397682.md)
+
+[全文字版2021年7月5日郭文贵先生与班农先生G-TV直播](/content/2021/07/20210705-1378459.md)
+
 [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/content/2021/07/20210704-1376105.md)
 
 [全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/content/2021/07/20210704-1375674.md)
@@ -61,10 +65,6 @@
 [全文字版2021年5月16日郭文贵先生G-TV直播](/content/2021/05/20210516-1250674.md)
 
 [全文字版2021年5月13日郭文贵先生G-TV直播](/content/2021/05/20210513-1240690.md)
-
-[全文字版2021年5月10日郭文贵先生生日G-TV直播](/content/2021/05/20210510-1208900.md)
-
-[全文字版2021年5月9日郭文贵先生G-TV直播](/content/2021/05/20210509-1198433.md)
 
 
 ## 頁面 10/42 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [42](/content/README-42.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

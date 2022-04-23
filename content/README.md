@@ -16,7 +16,11 @@
 ---
 ## 頁面 1/42 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [42](/content/README-42.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[郭文贵先生2022年4月22日盖特视频（9分49秒）全文字版](/content/2022/04/20220422-2395900.md)
+
 [2022年4月20日郭文贵先生临时直播 全文字版](/content/2022/04/20220420-2384437.md)
+
+[2022年4月19日 “4.19”VOA断播 5周年《文贵大直播》全文字版（上）](/content/2022/04/20220419-2383661.md)
 
 [郭文贵先生2022年4月17日盖特视频（9分26秒）全文字版](/content/2022/04/20220417-2365685.md)
 
@@ -61,10 +65,6 @@
 [郭文贵先生2022年3月16日盖特视频（9分20秒）全文字版](/content/2022/03/20220316-2177746.md)
 
 [2022年3月15日 《文贵大直播》全文字版](/content/2022/03/20220315-2176468.md)
-
-[郭文贵先生2022年3月14日盖特视频（9分28秒）全文字版](/content/2022/03/20220314-2166160.md)
-
-[2022年3月11日 《文贵大直播》全文字版](/content/2022/03/20220311-2152872.md)
 
 
 ## 頁面 1/42 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [42](/content/README-42.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

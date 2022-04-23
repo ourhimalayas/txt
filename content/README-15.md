@@ -16,6 +16,10 @@
 ---
 ## 頁面 15/42 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [42](/content/README-42.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：郭先生7月4号GTV直播](/content/2020/07/20200709-6898409063046022191.md)
+
+[文字版:郭先生2020年7月2日直播](/content/2020/07/20200706-7619698888838221948.md)
+
 [文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招](/content/2020/07/20200702-4895298173760578203.md)
 
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
@@ -61,10 +65,6 @@
 [文字版:5月23日郭先生第一次GTV直播](/content/2020/05/20200528-4447173668011122398.md)
 
 [文字版:郭先生5月22日GTV直播](/content/2020/05/20200525-8248369863817556998.md)
-
-[文字版:郭先生5月21日GTV直播](/content/2020/05/20200525-8500785424702761303.md)
-
-[文字版:郭先生5月19日GTV直播](/content/2020/05/20200524-8312018362582702518.md)
 
 
 ## 頁面 15/42 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [42](/content/README-42.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
