@@ -2,72 +2,39 @@
 ---
 
 
-## 马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（4/4）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2397670/)
+## 有声|多国财长和央行行长在俄罗斯发言时退出 G20 会议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397788/)
 
-**翻译：噜噜咪**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2871-edited.png)在国防部长绍伊古（图右）告诉弗拉基米尔·普京（图左），俄罗斯军队控制了该市——除了亚速钢铁厂之外——俄罗斯总统为马里乌波尔的“成功解放”欢呼。
-
-
-
-与此同时，英国外交大臣莉·特拉斯今天针对被认为是帮助俄罗斯战争的个人和公司宣布了一系列新的制裁措施，并将马里乌波尔的残暴行为作为俄罗斯在乌克兰犯罪的明确证据。
-
-“我们坚持不懈地支持乌克兰，”特拉斯说。
-
-“俄罗斯对乌克兰人民的攻击的卑劣性是有目共睹的。”
-
-“他们故意针对马里乌波尔及其他地区的医院、学校和交通枢纽，就像他们在车臣和叙利亚所做的那样。”
-
-英国外交部在一份声明中说：“自2022年3月10日以来，俄罗斯轰炸机多次向民用基础设施投掷弹药，包括民用政府大楼、医院、学校和交通节点。”
-
-“英国政府的结论是，根据所打击的民用目标的类型、打击的频率、弹药的数量以及连续几天重复针对同一地点的情况，这是蓄意的目标攻击。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2873.png)俄罗斯在入侵开始后几天就对马里乌波尔发动了野蛮的空中和导弹攻击——自那以后，其部队一直在继续采取这种战术，没有任何缓和。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在4月20日召开的国际货币基金组织和世界银行会议中，当俄罗斯官员发言，強调莫斯科在入侵乌克兰后处于孤立狀态時，财政部长珍妮特·耶伦和其他全球金融领导人以离开会议室或关掉屏幕的形式，即时退出了 G20 会议，以示“战争与合作不相容”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-47.jpg)
+法国经济部长布鲁诺·勒梅尔在 G20 会议开幕式上宣称，请俄罗斯“放弃参加 G20 会议”。加拿大财政部长弗里兰在社交媒体上表示：面对俄罗斯持续的侵略和战争罪行，世界民主国家不会袖手旁观。她补充说，本周在华盛顿举行的会议旨在支持全球经济，俄罗斯非法入侵乌克兰对全球经济构成严重威胁，因此，俄罗斯不应该参加这些会议。
+自俄罗斯入侵乌克兰后，美国及其盟友对俄罗斯实施了全面制裁，不但阻止了莫斯科动用其外汇储备，还禁止进口俄罗斯石油。英国则针对居住在那里的一些俄罗斯富裕精英实施了制裁。英国财政大臣里希·苏纳克说：我们要团结一致谴责俄罗斯对乌克兰的非法战争，并加强国际协调合作，继续惩罚侵略者。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2875.png)总统弗拉基米尔·普京周四命令俄罗斯军方取消冲进马里乌波尔钢铁厂的计划。最近在社交媒体上发布的无人机视频中获得的这张静止图片中，乌克兰马里乌波尔的亚速钢铁厂上空烟雾缭绕。
 
 
+文字版原文：[多国财长和央行行长在俄罗斯发言时退出 G20 会议](https://gnews.org/zh-hans/2392334/)
 
-周三，一名据信藏匿在钢铁厂的乌克兰海军陆战队员在脸书上发布了一段视频，敦促世界各国领导人帮助疏散工作。
-
-这名自称是海军陆战队第36旅的谢尔盖·沃伦的男子说：“我们有500多名受伤的士兵和数百名平民在一起，包括妇女和儿童。这可能是我们最后的呼吁，我们可能只剩下几天或几小时了。”
-
-该视频的真实性无法得到独立验证。
-
-同时，普京的部队被命令，如果平民不在衣服上佩戴白丝带，就向他们开枪。
-
-俄罗斯被指控强迫平民佩戴象征俄罗斯军队的白丝带，以便他们成为乌克兰狙击手的“诱饵”——反过来帮助普京的手下找到狙击手的藏身之处。
-
-马里乌波尔市市长的顾问彼得罗·安德里申科在Telegram上说。占领者不再“温和地”建议平民佩戴白丝带来标明自己的身份——他们转而直接威胁要向在街上看到的没有佩戴这种丝带的人开火。
-
-“俄罗斯人正逐渐将城市变成乌克兰人真正的贫民窟，同时利用平民作为诱饵来探测热点。”
-
-这一令人不安的事态发展是在泽伦斯基说他准备用俄罗斯战俘换取留在马里乌波尔的平民和乌克兰军队的安全通行时发生的。”
-
-据信，总体上有超过10万人被困在马里乌波尔，几乎没有任何食物、水、药品或暖气。该市战前的人口为40万。
-
-泽伦斯基的顾问米哈伊洛·波多利亚克在推特上说，他和其他乌克兰谈判代表准备无条件举行会谈，以拯救被困的马里乌波尔保卫者和平民的生命。俄罗斯方面没有立即作出回应。
-
-**素材:peacelv**
-
-**素材链接：**[Mass graves for the thousands of Mariupol victims ‘liberated’ by Russia: Satellite images show extent of Putin’s carnage as he orders troops to seal soldiers and civilians in steelworks and starve them to death](https://www.dailymail.co.uk/news/article-10740519/Satellite-images-extent-Putins-carnage-Mariupol.html)
-
-[马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（3/4）](https://gnews.org/zh-hans/2397441/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

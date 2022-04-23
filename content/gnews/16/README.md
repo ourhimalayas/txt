@@ -2,30 +2,30 @@
 ---
 
 
-## 联合国：俄军在布查“杀害”50人 甚至有地区达到300人（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2397491/)
+## 俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2397512/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-上一篇：[联合国：俄军在布查“杀害”50人 甚至有地区达到300人（上）](https://gnews.org/zh-hans/2397469/)
+**港台前线 zhong｜2022-4-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-13.png)
+欧洲理事会主席米歇尔（Charles Michel）20日突访乌克兰外，曾与俄罗斯总统普京电话会谈90分钟，米歇尔呼吁俄停火。此外，他敦促俄乌双方领导人进行直接会谈，对此俄罗斯总统则表示双方直接会谈取决于停火协商的进展。
 
-据估计，由于对医院的攻击导致医疗被切断的影响，至少有3000人因得不到适当的医疗而死亡。据称有75起性侵犯的亲告。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2862.png)图片来源：产经新闻
-据称，俄军拘留平民，包括地方公职人员、记者和人权积极分子，并施以酷刑或不给他们食物和水。
+联合国方面，秘书长安东尼奥·古特雷斯（ Antonio Guterres）将于周二前往莫斯科与俄罗斯总统普京会面，周四前往乌克兰与总统泽连斯基、外交部长库莱巴（Dmytro Kuleba）会谈。
 
-俄军士兵统率的紊乱似乎也加剧了犯罪行为，如掠夺和对妇女的粗暴等报告层出不穷。乌克兰军方情报机构透露，撤离乌克兰北邻白俄罗斯的俄军士兵开了一家经营掠夺品的摊位，推销冰箱、汽车和珠宝首饰等。据报道，在从前苏联组成国格鲁吉亚单方面宣布独立的南奥塞梯自治州和其他国家增派的俄军士兵中，约有300人“逃脱”。
 
-22日公布的联合国数据显示，被杀害的平民有2435人，包括184名儿童。平民受伤2946人，包括286名儿童。巴切雷说：“军队指挥官必须向战斗人员明确表示，犯有违规行为的人将被承担责任。”
 
-参考链接：[露軍ブチャで５０人を「殺害」　３００人疑いの地域も　国連 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220423-DFPGE44TUFPT3LRJPA4EER6LTY/)
+> Next week, I will meet with President Vladimir Putin in Russia and President Volodymyr Zelenskyy in Ukraine.
+> 
+> We need urgent steps to save lives, end the human suffering and bring about peace in Ukraine.
+> — António Guterres (@antonioguterres) [April 23, 2022](https://twitter.com/antonioguterres/status/1517687237525352449?ref_src=twsrc%5Etfw)
+
+
+
+来源｜[NHK](https://www3.nhk.or.jp/nhkworld/en/news/20220423_12/)
 
 * * *
 
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

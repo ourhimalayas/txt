@@ -2,37 +2,38 @@
 ---
 
 
-## 【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397616/)
+## 有声|爆料革命联合西方成就护台神队
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397656/)
 
-**By：[秘翻北美时评](https://gettr.com/post/p16o2xv17ee)**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月19日大直播中，郭文贵先生谈到，虽然卖台贼与中共勾兑，陷台湾于危险的境地，但爆料革命联合西方世界成就护台神队，保护台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364042.jpg)
+郭先生谈到保护台湾的两个要点，保护台湾的领空，和遏制中共的潜水艇。在台湾军方购入中共无人机的情报被揭露后，全世界已经警觉。当天的直播中，郭先生表示，爆料革命将向西方军情界提供中共潜水艇的具体方位，助力西方使用水下镭射将其一举歼灭。
 
-***[2022-04-23](https://gettr.com/post/p16o2xv17ee)***
 
 
 
 
+文字版原文：[爆料革命联合西方成就护台神队](https://gnews.org/zh-hans/2391139/)
 
-**今日主题：**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-**1.上海22日起开展社会全面清零攻坚九大行动 **
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**2.上海666家龙头企业70%本周复工复产 **
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**3.朝鲜因防疫射杀3名中国人 **
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**4.世界正式进入中美竞争时代 **
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**5.全球粮食危机或带来“人类大灾难” **
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**6.普京脸部浮肿再爆犯癌**
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-🔗链接：[https://gettr.com/post/p16o2xv17ee](https://gettr.com/post/p16o2xv17ee)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
