@@ -15,74 +15,74 @@
 
 ---
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-1）](/content/gnews/1/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-1）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4.19断播五周年特别直播速记精萃（下）](/content/gnews/2/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-3）](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-2）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-1）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [4.19断播五周年特别直播速记精萃（下）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（A）](/content/gnews/3/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（A）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十九）](/content/gnews/4/README.md)
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十九）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈孟建柱（五十一）](/content/gnews/5/README.md)
+### [文·贵天成——文贵先生谈孟建柱（五十一）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声](/content/gnews/6/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十八）](/content/gnews/7/README.md)
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十八）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国军管开始了](/content/gnews/8/README.md)
+### [中共国军管开始了](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/9/README.md)
+### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本密切关注中共在太平洋岛屿地区的行动](/content/gnews/10/README.md)
+### [日本密切关注中共在太平洋岛屿地区的行动](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [樱花时政┃日本熊本举行亚太水务峰会，岸田首相会见三国总理](/content/gnews/11/README.md)
+### [樱花时政┃日本熊本举行亚太水务峰会，岸田首相会见三国总理](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/12/README.md)
+### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月23日，全球中共病毒疫情情况汇总](/content/gnews/13/README.md)
+### [2022年4月23日，全球中共病毒疫情情况汇总](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [印尼财政部长、世界银行前COO加入呼吁世行改革的行列](/content/gnews/14/README.md)
+### [印尼财政部长、世界银行前COO加入呼吁世行改革的行列](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [串珠667:习家仇人在上海,习骨子里是要报复上海人](/content/gnews/15/README.md)
- ` 郭爆料串珠`
-
-### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/16/README.md)
+### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/18/README.md)
  ` 经济小组`
 
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/17/README.md)
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [网路热传普京身体出问题的视频](/content/gnews/18/README.md)
- ` 银河歌舞厅`
-
-### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/19/README.md)
+### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [不可逆转的心理和生活习惯](/content/gnews/20/README.md)
+### [不可逆转的心理和生活习惯](/content/gnews/21/README.md)
  ` 加拿大温哥华英里农场`
 
-### [2022年4月23日七哥乱聊直播文字版](/content/gnews/21/README.md)
+### [2022年4月23日七哥乱聊直播文字版](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/22/README.md)
+### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/23/README.md)
  ` NFSC News`
-
-### [欧盟官员拟议实行比特币交易禁令](/content/gnews/23/README.md)
- ` 银河歌舞厅`
 
 ### [加拿大证实：死亡加速与疫苗有关](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
@@ -117,8 +117,8 @@
 ### [美欧日经济周报（4月18日～4月22日）](/content/gnews/34/README.md)
  ` 经济小组`
 
-### [俄罗斯将在秋季前部署萨尔马特导弹进行“历史性”核升级](/content/gnews/35/README.md)
- ` 波士顿五月花农场金融部`
+### [【G时新闻】加拿大参与拯救乌克兰数字资产的全球行动](/content/gnews/35/README.md)
+ ` G-时新闻`
 
 ### [《四月之声》何罪?](/content/gnews/36/README.md)
  ` 银河勇气之星`
