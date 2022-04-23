@@ -2,29 +2,36 @@
 ---
 
 
-## 取消迪士尼优惠税制 或是批评佛罗里达州的报复
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400220/)
+## 习近平为何决心打台湾
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2400228/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-美国佛罗里达州对热门主题公园“迪士尼世界”的优惠税制将被取消。这被认为是一种报复措施，批评关于性别认同辩论的保守国家法律。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+习近平为何决心打台湾？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2936.png)图片来源：FNN新闻
+1.对习一神的自信，对莫德尔周期的迷信；
 
-位于美国佛罗里达州的“迪士尼世界”自20世纪60年代以来，一直在税制等方面得到优惠措施，佛罗里达州州长德桑蒂斯22日签署了废除其“特区”制度的法案。
+2.20大后能连任掌权的需要；
 
-这被认为是对迪士尼方面对即将在佛罗里达州实施的有关性教育的保守州法表示反对立场的“报复措施”。
+3.美国高官访台后，台湾宣布独立的可能性；
 
-共和党保守派州长德桑蒂斯提出了“在小学等地禁止关于性身份的讨论”的政策，受到LGBT的人们和自由派的强烈反对，美国的政治分裂看起来相当复杂。
+4.国内经济危机，面临崩塌；
 
-参考链接：[ディズニー優遇税制を廃止　米フロリダ州、批判に報復か (fnn.jp)](https://www.fnn.jp/articles/-/351224)
+5.国内因疫情，隔离封锁，社会压力，政治斗争，均已到达极限；
 
-* * *
+6.中共国和西方世界在政治经济上的对立。 最关键的是，习近平认为拿下台湾是解决所有问题的根本。
 
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xixi.jpeg)
+视频来源: 20220421—郭先生大直播
+视频制作: 文星光
+文案:文星光
+
+**更多资讯，更多关注**
+[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
