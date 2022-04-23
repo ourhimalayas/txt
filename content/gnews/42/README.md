@@ -2,27 +2,63 @@
 ---
 
 
-## 中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397515/)
+## 代表抗议俄罗斯参会G20混淆视听
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2398270/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，荷兰法院宣布，俄罗斯拥有的阿姆斯特丹贸易银行(Amsterdam Trade Bank)破产，主要因这家银行卷入有关乌克兰战争制裁的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-137.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpreview.redd.it%2Fdq12d56xc4v81.png%3Fwidth%3D640%26crop%3Dsmart%26auto%3Dwebp%26s%3D9dd306d51a83569b59e50aa5845b1ef05c8f08ee&amp;imgrefurl=https%3A%2F%2Fwww.reddit.com%2Fr%2Fukraine%2Fcomments%2Fu9kkzx%2Famsterdam_trade_bank_a_subsidiary_of_russias_alfa%2F&amp;tbnid=eOJeu1nyjnXw3M&amp;vet=12ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ..i&amp;docid=HOcmNfkrEGbSnM&amp;w=640&amp;h=320&amp;itg=1&amp;q=Amsterdam%20Trade%20Bank&amp;ved=2ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ)
-阿姆斯特丹地方法院周五裁定，俄罗斯最大民营商业银行阿尔法银行(Alfa Bank)所属的阿姆斯特丹贸易银行破产，且获得荷兰中央银行证实。荷兰央行指出，阿姆斯特丹贸易银行成立于1994年，拥有约23000名客户。
+据《路透社》作者：安德里亚·沙拉尔和大卫·劳德(Andrea Shalal and David Lawder)，2022年4月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2887-e1650715724108.png)俄罗斯财政部长安东·西卢阿诺夫于2021年10月30日抵达意大利罗马参加G20领导人峰会。
+图片来源：路透社/古列尔莫·曼贾帕内/档案照片
+华盛顿，4 月 19 日（路透社）——西方国家官员表示，西方国家正准备周三于华盛顿举行的 G20 财长会议上进行协调缺席和其他外交冷落，以抗议俄罗斯入侵乌克兰。
 
-美国4月6日针对俄罗斯联邦储蓄银行(Sberbank)与阿尔法银行等俄罗斯银行实施严苛制裁，冻结其与美国金融体系有关的所有资产，阿姆斯特丹贸易银行也受到英国制裁的影响。
+尽管一些西方国家人士认为俄罗斯的行动意味着它应该完全被排除在全球会议之外，但这并不是 20 国集团（G20）中其他主要经济体的观点，包括今年担任该集团主席的中共国和印度尼西亚。
 
-消息来源:[俄羅斯不敵制裁！俄屬阿姆斯特丹貿易銀行宣告“破產” 北約法律顧問：須再認定種族屠殺罪行](https://news.fx168news.com/politics/2204/5841375.shtml)
+莫斯科周二证实，财政部长安东·西卢阿诺夫(Anton Siluanov)将率领俄罗斯代表团参加会谈。尽管西方外交官一再抗议称，在数千名平民被俄罗斯军队轰炸丧生的战争期间，他们不可以像往常一样参加会谈。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+“在会议期间和会议之后，我们肯定会发出强烈的信息，而且我们不是孤军奋战。”一位德国政府消息人士称，并指责俄罗斯引发了一场冲突，这也导致世界食品和能源价格飙升。
+
+美国财政部长珍妮特·耶伦(Janet Yellen)计划避免俄罗斯官员在国际货币基金组织和世界银行会议间隙参加 G20 会议。 但一位美国财政部官员表示，无论俄罗斯是否参与，耶伦都将出席一个与乌克兰战争相关活动的开幕式。
+
+一位英国政府消息人士告诉路透社，英国财政部长里希·苏纳克( Rishi Sunak) 也不会出席某些 G20 会议。
+
+与此同时，一位法国财政部官员预计，七国集团的一些部长将在俄罗斯同行发言时离开座位。
+
+因乌克兰战争而扩大的分歧引发了人们对 G20 作为世界首要经济政策论坛未来的质疑。
+
+大西洋理事会地缘经济中心主任、前国际货币基金组织顾问乔什·利普斯基(Josh Lipsky)说：“G20面临解体的风险，本周至关重要。”
+
+利普斯基 (Lipsky) 说，如果西方民主国家允许该集团衰落，转而支持 G7 或其他集团，这将把重要的经济影响力拱手让给中共国。
+
+他说：“俄罗斯可以与中国结盟。我认为从俄罗斯的角度来看这是一个很好的结果。实际上这给了他们比在 G20 这样的机构中更大的影响力。”
+
+法国和德国官员都表示，在会议结束时不会达成一致的公报。 该会议最初是为了讨论全球经济状况以及致力于协调疫苗和其他大流行病。
+
+除了 G7 国家——美国、加拿大、日本、英国、法国、德国和意大利——G20 还包括新兴经济体，包括中共国、印度和巴西。它们对全球经济应该如何运作有着截然不同的看法。
+
+俄罗斯入侵乌克兰，以及一些 G20 国家选择不遵循西方对俄罗斯的制裁这一事实只是对建立一套全球贸易和金融规则努力的最新挑战。
+
+美国和中共国长期以来一直指责贸易保护主义，而世界贸易增长速度慢于全球经济整体这一事实引发了人们对全球化未来的质疑。
+
+在 G20 会议之前，国际货币基金组织的一位高级官员警告说，全球经济存在分裂的风险。
+
+国际货币基金组织首席经济学家皮埃尔-奥利维尔·古林查斯对记者说：“一种情况是，我们划分了彼此交易不多、标准不同的集团. 这对全球经济来说将是一场灾难。”
+
+另外，IMF将全球经济增长预测下调了近一个百分点，理由是俄罗斯在乌克兰的战争，并警告通胀对许多国家来说是一个“明显而现实的危险”。
+
+原文链接：[https://www.reuters.com/world/delegate-protests-over-russia-upstage-g20-meeting-2022-04-19/](https://www.reuters.com/world/delegate-protests-over-russia-upstage-g20-meeting-2022-04-19/)
+
+翻译：康州盘古农场 – Freeearth
+
+校对：康州盘古农场 – Mike Li
+
+编辑：康州盘古农场 – WenXiong
+
+发布：康州盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

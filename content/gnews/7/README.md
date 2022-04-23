@@ -2,30 +2,34 @@
 ---
 
 
-## 中共打算在美国中期选举之时大闹世界
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399524/)
+## 中日财经爆┃西宁以疫情之名延迟养老金发放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2399577/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6977e9aeb30118ee2971c920b76ffd42.jpg)
-4月23日郭先生在直播中提到，美国内部所有的问题都会在11月份中期大选之后发生大的改变，尤其政治上会有一些大行动。而共产党习近平认为可以趁此次中期大选期间美国的动乱，来做一切想做的事情。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-237.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http://5b0988e595225.cdn.sohucs.com/images/20190905/29f03ba8921346629fa0b949cb372d06.jpeg&amp;imgrefurl=http://www.sohu.com/a/338805794_115362&amp;tbnid=c5gKZpCkc12bBM&amp;vet=12ahUKEwjoqMjxsKr3AhWiNaYKHZLoDzwQMygAegUIARCvAQ..i&amp;docid=oPGIF4A9cQDY2M&amp;w=1920&amp;h=1280&amp;q=%E5%85%BB%E8%80%81%E9%87%91&amp;hl=zh-CN&amp;ved=2ahUKEwjoqMjxsKr3AhWiNaYKHZLoDzwQMygAegUIARCvAQ)
 
-习近平所迷信的莫德尔周期即他认为自己是重掌这世界的神，他认为可以在11、12月期间趁着美国中期选举大乱，收复台湾、控制亚洲、向世界大力推广人民币和金砖国的金融系统，并打算将金砖组织和上海金融推广到全世界，形成替代美国的方案。为了实现此方案，目前中共国内已经实施戒严，控制老百姓的粮食和财富，人禁足在家里，钱禁足在银行，以所谓的防疫为名，不允许日常吃饭，不允许大额汇款和取现。中国人有的会因为中共疫苗灾难死去，没有死去的中国人可能会把所有的财富乃至未来近千年的利益都拱手交给亚非拉国家，只为了共产党要推广自己的人民币系统，只为了习近平疯狂地实现他所臆想的莫德尔周期定律。中共认为要么成功，要么让全世界陪葬。
+青海省西宁市人社局4月22日发布通告称，近期，因西宁市新冠肺炎疫情防控形势严峻，自4月15日以来全市主城区均实行静态管理，且由于21号确诊病例行动轨迹涉及市民中心，根据4月19日市疫情防控处置工作指挥部相关工作要求，市民中心全封闭，工作人员严格实行7天居家隔离和健康监测，目前无法按时发放四月份企业职工养老保险退（离）休人员养老金。
 
-郭先生提到，人民币不是贬值，是直接变成垃圾。港股目前在两万浮动，只要跌到一万八，港币马上消失。以上中共的美梦，只会更快地让自己走向灭亡。
+根据郭文贵先生爆料，中共通过极端封锁的疫情防控政策来削减各种社会成本。疫情防控已成解决问题最好的抓手和借口。
 
-撰稿、发布：骄子
+长期以来，由于中共各级官员的挪用、贪污和投资失败等种种监守自盗的行为，使得社保基金严重亏空。加之当前中共经济已经进入崩盘阶段，地方政府实质破产已成普遍现实，拆东墙补西墙已成常态。企业养老金涉及广大的普通老百姓，影响面广，直接延发或拒发，在当前还是显得比较突兀，但是以疫情之名延迟发放一切就看似合理了。
 
-* * *
+中共国现行的养老金制度，正式启动于1997年，中共国务院颁布了《关于建立统一的企业职工基本养老保险制度的决定》；2005年12月开始全面推广，中共国务院发布了《关于完善企业职工基本养老保险制度的决定》，此后，不断强制企业和个人参与，并不断提高缴费的标准。根据中共中央政府公开数据，截至2021年底，全国基本养老保险参保人数达10.3亿人，其中企业职工基本养老保险参保人数为4.2亿人。
 
-欢迎订阅我们的GNews账号：
+作为西北省会的西宁以疫情之名延缓养老金发放，或许接下来很多城市都会效仿。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+信息来源：[https://weibo.com/39297060/LpEdurbws?refer\_flag=1001030103\_](https://weibo.com/39297060/LpEdurbws?refer_flag=1001030103_)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

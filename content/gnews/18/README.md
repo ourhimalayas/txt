@@ -2,30 +2,22 @@
 ---
 
 
-## 4月26号南西-佩洛西将访台 共军极可能即将攻台
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2399347/)
+## 北京连夜召开发布会宣布疫情
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2399428/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-\*美国众议院议长南西-裴洛西将于4月26号访问台湾！
+**作者：意大利罗马达芬奇农场 Vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/B-5.jpg)sg,news.yahoo.com
+据北京日报客户端消息，4月22日晚，在北京市新冠病毒肺炎疫情防控工作第311场新闻发布会上，北京市疾控中心副主任、全国新冠病毒肺炎专家组成员庞星火介绍，4月22日16时至22时，北京新增本土新冠肺炎病毒感染者4例，均为确诊病例：朝阳区2例、顺义区2例。另有1例核酸复核阳性人员及9例核酸初筛阳性人员，共13例。初判传播风险高！北京本起疫情涉老年旅游团、装修人员及在校生。截止到23日，北京新增本土新冠肺炎感染者已增加到15例。
 
-\* 台海危机加剧。 4月26到5月6，是关键的时间点，中共恐发起攻台军事行动。
+笔者观察到此次疫情宣布时间选择在22日晚23点30分，此时大部分北京居民已经休息，无法作出快速反应，且爆发点在旅游团和学校，均为易于迅速传播的渠道。
 
-\* 中共近期利用股市疯狂套钱。
+文贵先生早在21日的临时直播中就已经爆料，接下来会对北京实施隔离管控，共产党一定是以疫情为借口对北京采取行动。共产党的一切都按照写好的剧本在进行，只不过这次的演员从2600万的上海市居民，转移到了2100多万的北京市居民，悲剧在一个个上演，犹如一部巨型灾难片，中共不灭，灾难不止！
 
-如台海战争爆发，大陆和香港经济崩溃，北京必封锁戒严，更不用说几个关键省市。能离开的，尽快离开！
+新闻来源：
+[https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&mod=pcpager\_china&loc=15&r=0&rfunc=10&tj=cxvertical\_pc\_pager\_spt&tr=174#/](https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&amp;mod=pcpager_china&amp;loc=15&amp;r=0&amp;rfunc=10&amp;tj=cxvertical_pc_pager_spt&amp;tr=174#/)
 
-视频来源: 20220421—郭先生大直播
-视频制作: 文星光
-文案:文星光
+[https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/](https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/)
 
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
 
 
  
