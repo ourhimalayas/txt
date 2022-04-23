@@ -2,41 +2,36 @@
 ---
 
 
-## 泽伦斯基警告俄罗斯不仅盯上乌克兰南部还有其它国家
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2395284/)
+## “法治基金” 乌克兰救援备受瞩目
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2395311/)
 
-翻译：多伦多蓝莲花- 灭共文明
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-《路透社》基辅/马里乌波尔4月23日报道，乌克兰总统泽伦斯基警告称，俄罗斯入侵乌克兰只是一个开始，俄罗斯还打算占领其它国家。此前，一名俄罗斯将军表示，希望完全控制乌克兰南部。
+##### 作者：加拿大温哥华扬帆农场 -【坐看云起时/文所未闻】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2828.png)图片来源：GETTR
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-478.jpg)2022年4月22日，一位79岁的父亲出门买面包的途中被俄军的炮火炸死，女儿听闻噩耗痛不欲生（图片来源：路透社）
 
-俄罗斯中央军区副指挥官鲁斯塔姆•明尼卡耶夫表示，完全控制乌克兰南部将使其能够进入德涅斯特河沿岸地区。该地区是俄罗斯占领的摩尔多瓦西部的一个分离地区。这将切断乌克兰的整个海岸线，意味着俄军将越过现有防线向西推进数百英里，越过乌克兰主要沿海城市米克莱夫和敖德萨。
+加拿大《多伦多太阳报》4月19日署名文章，报道了在乌克兰难民营志愿者的故事，其中包括来自多伦多、代表“法治基金”和“新中国联邦”的Feather战友。
 
-乌克兰国防部在推特上表示，明尼卡耶夫的声明表明俄罗斯不再隐藏其意图。
+文章称，自俄乌战争以来，大约有500万乌克兰人被迫逃离家园。许多人首先抵达梅迪卡，这个位于波兰边境小镇的人口激增，众多非政府组织和宗教团体提供的临时帐篷为许多的难民提供服务。服务黄色服务背心的志愿者随处可见。
 
-周五晚些时候，泽伦斯基在视频讲话中表示，所有相信生命战胜死亡的国家都必须和我们一起战斗。他们必须帮助我们，因为我们是第一个，下一个将会是你们。
+文章提到，在所有的临时帐篷和服务中，由华裔美国人组织的 “法治基金会”（Rule of Law Foundation）经营的帐篷恰好是其中最大和最有组织的一个。其中自愿者之一Feather是一名大学生，今年19岁，能够帮到乌克兰老妇人与她在多伦多的儿子团聚，是让Feather及其自豪的一件事。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-201.jpg)2022年4月22日，在马里乌波尔，一名男子在乌克兰-俄罗斯冲突过程中受损的建筑物附近行走（图片来源：路透社）
+文章同时也呼吁更多的可持续性的国际社会和主权国家来帮助解决乌克兰难民危机。
 
-报道称，美国国务卿安东尼·布林肯在华盛顿会见乌克兰总理丹尼斯·希米哈尔时，泽伦斯基表示，盟国终于交付了基辅要求的武器。
+原文链接：https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html
 
-周四，美国总统拜登表示，他已授权向乌克兰提供8亿美元的军事援助，包括重型火炮、弹药和战术无人机。加拿大周五表示，已经向乌克兰提供了更多重型火炮。
+上传/发稿 – 【青青】撰稿/翻译/听写 -【文所未闻】素材/采编 -【坐看云起时】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-报道指出，乌克兰估计有数万名平民在俄罗斯对马里乌波尔的围困中死亡，并称有10万名平民仍在那里，需要全面撤离。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-172.jpg)2022年4月20日，乌克兰哈尔科夫地区，一名乌克兰士兵在马拉罗汉村的郊外跳下一辆被摧毁的俄罗斯坦克（图片来源：路透社）
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-周五，乌克兰副总理韦列舒克（Iryna Vereshchuk）表示，有可能 在周六开辟一条离开马里乌波尔的人道主义走廊。
-
-据报道，联合国秘书长安东尼奥-古特雷斯将于周二访问莫斯科，讨论紧急为乌克兰带来和平，一位发言人说，古特雷斯还可能访问基辅。
-
-五角大楼表示，20多个国家将参加美国下周在德国主办的防务会谈，以考虑乌克兰在战争结束后的长期防务关系。
-
-校对与发布：夏至木木
-新闻来源链接：[‘And who will come next?’ warns Zelenskiy after Russian general eyes southern Ukraine](https://www.reuters.com/world/and-who-will-come-next-warns-zelenskiy-after-russian-general-eyes-southern-2022-04-22/)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

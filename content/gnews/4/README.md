@@ -2,12 +2,12 @@
 ---
 
 
-## 【乌克兰救援】来自英国的国际志愿者说她会传播真相，希望更多的人听到新中国联邦的声音
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2395458/)
+## 4月22日文贵大直播要点（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2395493/)
 
-【乌克兰救援】 04/21/2022 来自英国的国际志愿者表示，她会让她的圈子里的人下载盖特和 GNews并传播真相。她也希望新中国联邦的声音能被更多人听到。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5859294E-54C4-4336-A992-215FBD487D7E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/47B60CE3-4480-49B9-9CE3-A8F994696601-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/FA5F3445-06C4-494E-AE82-ABAAAF6341F5-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/BF9C19B4-8913-48C6-B053-E54B58264EB8-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31C2DB1F-7599-4E65-BCDA-471DD6188183-scaled.jpeg)
+发布：水涨船高
 
  
 
