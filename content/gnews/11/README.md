@@ -2,51 +2,26 @@
 ---
 
 
-## “普京总统违反一切国际法”俄罗斯人的反战之声（D-2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400201/)
+## 普京向西方发出和解信号 习普联盟破裂 习近平将毁了台湾
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2400216/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-上一篇：[“普京总统违反一切国际法”俄罗斯人的反战之声（D-1）](https://gnews.org/zh-hans/2400169/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+俄军在海、陆两栖军事作战上的挫败，以及欧联盟不惧爆发核战的可能。对俄强硬的态度，和俄罗斯国内高涨的停战反战呼声，普京终于开始服软。
 
-(3)发出抗议的声音有什么风险？
-禁止将战争称为战争，制定了将说出真相作为扩散谎言的法律。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-442.jpeg)图片来源网络
-尊重自由意愿和表达自由，要求和平，对政府发出抗议，将被处以3万卢布罚款至15年徒刑或监禁。
+习近平和普京的联盟即将破裂，如果普京完全向西方妥协，那么习近平不仅仅只是攻台，而是极有可能直接毁灭台湾！
 
-(4)虽然有风险，但为什么要说话？
+视频来源: 20220421—郭先生大直播
+视频制作: 文星光
+文案:文星光
 
-这样的东西不是人生。我对正在发生的事情感到痛心，为政府的行动感到羞愧。最糟糕的是，对此我什么也改变不了。
-
-我正在磨擦神经。
-我不能像什么都没发生一样忽略不计。
-我担心自己的孩子。今后，我的儿子被动员到战争中，可能会被认为是逃跑了。
-
-我害怕孩子的将来会挂上铁幕，我不希望孩子们像我一样痛苦。这就是我有承担风险的准备的原因。
-
-我宁愿自由地死去，而不是因为谎言而痛苦。
-
-我想告诉世界，俄罗斯有一个耿直的、明智的、能够为实现和平而合作的人，而这仅仅靠自己的力量是做不到的。
-
-(5)你怎么看待现在的政权？
-我希望普京总统能公开弹劾和审判，而且之前的舞弊。然后要求政府将从市民手中夺回的东西取回。
-
-采访链接：
-[采访说明 “普京总统违反一切国际法” 俄罗斯人的反战之声](https://gnews.org/zh-hans/2400004/)
-[受访人A：“我不能不发出声音”](https://gnews.org/zh-hans/2400041/)
-[受访人B：“总统让世界陷入混乱”](https://gnews.org/zh-hans/2400068/)
-[受访人C：“特别是我不希望孩子被杀”](https://gnews.org/zh-hans/2400093/)
-
-参考链接：[「プーチン大統領はあらゆる国際法に違反」ロシア人反戦の声 | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220421/k10013589841000.html)
-
-* * *
-
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![此图像的alt属性为空；文件名为GNEWS_CH.-1-3-6.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
-
+**更多资讯，更多关注**
+[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

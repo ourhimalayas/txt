@@ -2,29 +2,31 @@
 ---
 
 
-## 取消迪士尼优惠税制 或是批评佛罗里达州的报复
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400220/)
+## 有声|《铁锁梦》MV荣登多国iTunes榜首
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2400221/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-美国佛罗里达州对热门主题公园“迪士尼世界”的优惠税制将被取消。这被认为是一种报复措施，批评关于性别认同辩论的保守国家法律。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+继《灭共的雪》和《铁锁梦》两首单曲同时上榜，且连续多日占领多个国家和地区iTunes排行榜前列，震撼中共和世界音乐界，《铁锁梦》MV版本于4月19日当天正式上榜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2936.png)图片来源：FNN新闻
+截至4月20日，《铁锁梦》MV已荣登美国、加拿大、日本、英国、香港等23个国家和地区MV总榜、MV流行曲榜第一名。
 
-位于美国佛罗里达州的“迪士尼世界”自20世纪60年代以来，一直在税制等方面得到优惠措施，佛罗里达州州长德桑蒂斯22日签署了废除其“特区”制度的法案。
+让我们再接再厉，努力打榜，以歌灭共！
 
-这被认为是对迪士尼方面对即将在佛罗里达州实施的有关性教育的保守州法表示反对立场的“报复措施”。
+文字版原文：[《铁锁梦》MV荣登多国iTunes榜首](https://gnews.org/zh-hans/2390430/)
 
-共和党保守派州长德桑蒂斯提出了“在小学等地禁止关于性身份的讨论”的政策，受到LGBT的人们和自由派的强烈反对，美国的政治分裂看起来相当复杂。
+音频处理：Fei797
+发稿：Fei797
 
-参考链接：[ディズニー優遇税制を廃止　米フロリダ州、批判に報復か (fnn.jp)](https://www.fnn.jp/articles/-/351224)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-* * *
-
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xixi.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
