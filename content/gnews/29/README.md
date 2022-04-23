@@ -2,45 +2,63 @@
 ---
 
 
-## 南澳取消密接隔离要求
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396176/)
+## 今年有769名运动员在比赛中倒下 怎么回事？（3/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396284/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-493.jpg)图片来自网络
-《News AU》近日报道，南澳大利亚州将在下周废除其新冠密切接触者隔离规则，使其限制与东部各州保持一致。
+翻译： Jenny Ball
 
-州长彼得-马利奥斯卡斯周五晚上宣布，这些变化将于4月30日凌晨12点01分生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-这意味着感染病例的密切接触者将不再需要隔离7天。
 
-但他们离开家时需要戴上口罩，在七天内完成五次快速抗原测试，并被禁止进入医院和老年护理机构等高风险环境。
 
-如果密切接触者出现症状，他们必须进行核酸检测，并在收到结果之前进行隔离。
 
-检测结果呈阳性的人仍需隔离7天。
 
-“尽管这对我们社区的许多人来说是一种解脱，但我们可以向其他人保证，这是以一种安全的方式进行的， “马利奥斯卡斯先生说。
+[接上篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）](https://gnews.org/zh-hans/2396169/)
 
-“这对全州的小企业主和工人来说将是一个很大的安慰。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-494.jpg)
 
-马利奥斯卡斯先生说，那些在截止日期前任何时候被认为是密切接触者的人仍然需要隔离，但在下周五规则改变后就可以离开。
+一份“非详尽且持续增长的主要年轻运动员名单，这些运动员在在 2021/2022 年接种一种或多种 COVID 疫苗后，出现重大医疗问题”，并指出：
 
-他们还需要提供一份阴性结果的自测盒。
+“这么多主要是年轻运动员在参加运动时心脏骤停或死亡，绝对不正常，但今年这种情况正在发生。许多心脏问题和死亡都是在他们接种 COVID 疫苗后不久发生的。虽然这可能发生在没有接种 COVID 疫苗的人身上，但绝对数字清楚地表明了疫苗是唯一明显的原因。
 
-首席公共卫生官员尼古拉-斯普雷尔敦促密切接触者在可能的情况下在家工作，并在离开家和在其他人身边时尽量小心谨慎。
+“……最初，其中许多没有被报道。我们知道许多人被告知不要告诉任何人他们的不良反应，而媒体也没有报道他们。在第一次 COVID 疫苗接种后，它们开始发生，并逐渐增加。
 
-“当你不必被隔离时，你需要非常注意你可能会发生感染，”她说。
+“主流媒体的报道仍然不多，但体育新闻不能忽视足球运动员和其他球星在比赛中途因心脏骤停而倒下的事实。其中超过 50%的人已死亡。
 
-本周早些时候，新南威尔士州、维多利亚州和昆士兰州都取消了他们的密切接触规则。
+“我们还注意到，Facebook、Instagram、Twitter、论坛和新闻报道中的许多帖子正在被删除。所以现在我们收到一些消息，说没有不良事件或疫苗接种状态的证据。这部分原因是因为这些信息被隐藏了。”
 
-参考链接：
+拥有近二十年职业生涯的职业足球运动员加里·登普西（Gary Dempsey）也在推特上发布了近期运动员心脏事件浪潮的不寻常之处：
 
-[https://www.news.com.au/lifestyle/health/south-australia-removes-close-contact-isolation-requirement/news-story/462be08b44274065cf6b652460552bdf](https://www.news.com.au/lifestyle/health/south-australia-removes-close-contact-isolation-requirement/news-story/462be08b44274065cf6b652460552bdf)
+“从事专业工作近 20 年。从 1996 年开始，打了近 500 场比赛，俱乐部和国际比赛，从未有过 1 次心脏骤停。无论是在人群中，还是在球员中。真吓人。”
 
-*编辑：金生水*
+随着这种情况变得无法忽视，“周日足球秀”小组推测，健康问题可能与 COVID-19 疫苗注射有关，其中一位主持人承认，多名球员在 COVID-19 加强注射后患有心脏问题和贝尔麻痹。“病房里挤满了遭受同样问题的人”他说。
 
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
+最近被诊断出患有贝尔麻痹的前职业足球运动员马修劳埃德说：“自从加强针和 COVID疫苗问题出现以来，心脏问题和贝尔麻痹已经达到顶峰。”
+
+劳埃德还说，他听说过许多类似于温斯的心脏问题的案例。”我们请来了体育记者米开朗基罗-鲁奇……他说，有一间病房里住满了与奥利-温斯症状相似的人，恶心、心脏问题，所以这里面一定有更多的东西。”
+
+众所周知，注射 COVID-19 后，有毒的刺突蛋白会在您的体内循环，从而对细胞、组织和器官造成损害。
+
+在激烈的体育活动中，随着您的心跳加快，刺突蛋白能够更快地在您的全身循环，这表明了许多运动员在场上崩溃的潜在原因。
+
+听到这些故事很重要，因此，如果您或您所爱的人因注射 COVID-19 而受伤，请与我们分享您的故事，并鼓励您也分享他们的故事。
+
+新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

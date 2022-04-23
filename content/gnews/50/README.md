@@ -2,24 +2,24 @@
 ---
 
 
-## 美、英、加承诺为乌克兰提供更多武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390051/)
+## 日本援助乌克兰防护用品和无人机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390052/)
 
-作者：华盛顿DC农场 自由信仰
+作者：纽约香草山教育部-Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-4月19日外媒报道，由于俄罗斯对乌克兰东部再次发动进攻，美国总统拜登、英国首相约翰逊、加拿大总理特鲁多和其他盟国领导人当天针对最新的战事进行了90分钟的视频通话，讨论如何进一步加强军事援乌行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-52.jpg)
-拜登总统预计将在未来几天内宣布对乌克兰的另一项军事援助计划。英国首相约翰逊表示将给予乌克兰更多炮兵支持，而加拿大总理特鲁多则表示，除了重型火炮支援外，承诺提供更多物资给乌克兰。
+日本国防部19日公布，将向乌克兰提供防护口罩、防化服，和商用无人机等支援，国防部长岸信夫向媒体解释，此支援是回应乌克兰政府的要求，一旦物资准备就绪，将通过商业航班运送。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-53.jpg)
+岸信夫说，在运往乌克兰的最新物资中，只有防护口罩和防护服是防御设备，日本上个月已经向乌克兰提供了防弹背心、头盔和冬季作战服等防御装备。此外，提供给乌克兰的商用无人机是监控设备，不具备杀伤力。
 
-白宫新闻秘书普萨基表示，在该视频通话中，将协调七国集团、欧盟和北约让俄罗斯承担更重的经济压力。此外，乌克兰战争关系到全世界，不仅仅是欧洲或西方的问题，因此该会议也讨论到如何让欧盟及G7以外的国家意识到援乌的重要性。
+日本提供乌克兰防卫性装备外，19日正式对俄罗斯的38种商品实施进口禁令，其中包括伏特加和一些木材产品，作为对俄罗斯新一轮的经济制裁。
 
-参考链接：[U.S., Britain, Canada pledge artillery for Ukraine](https://www.reuters.com/world/biden-allies-hold-video-call-ukraine-2022-04-19/)
+参考链接：[Japan to offer protective masks, clothing, drones to Ukraine](https://english.kyodonews.net/news/2022/04/00e4cd64dc1c-japan-to-offer-protective-masks-clothing-drones-to-ukraine.html)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
 总编：zhong
-编辑：飞虹
-审核：飞虹
+编辑：熊嘟嘟
+审核：Irene木木
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

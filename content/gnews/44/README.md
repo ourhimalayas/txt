@@ -2,29 +2,44 @@
 ---
 
 
-## 粮食危机｜世行警告：俄乌战争或引发“人类大灾难”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390616/)
+## 4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2392529/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/糧食危機｜世行警告：俄烏戰爭或引發「人類大災難」.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-143.png)[图片来源](https://www.reuters.com/)
+**1.乌克兰冲突、芯片危机削弱雷诺第一季度销量**
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+[这家对俄罗斯市场影响最大的西方汽车制造商报告称，由于乌克兰战争和半导体短缺，第一季度收入下降，但部分被价格上涨和电动汽车(EV)销售增长所抵消。该集团还生产达契亚和拉达品牌汽车，周五表示其收入同比下降2.7%至97.48亿欧元（106亿美元）。不包括Avtovaz和Renault Russia的活动，下降1.1%至89亿欧元。上个月，雷诺表示将暂停其莫斯科工厂的运营，同时评估其在俄罗斯第一大汽车制造商Avtovaz(AVAZI\_p.MM)的多数股权的选择权。周五，这家法国汽车制造商表示，与Avtovaz就俄罗斯业务未来的谈判“正在进行并取得进展”。](https://www.reuters.com/business/autos-transportation/renaults-q1-sales-fall-ukraine-conflict-semiconductor-crisis-hit-market-2022-04-22/)
 
+**2.SAP收入增长超过预期**
 
-世界银行行长马尔帕斯（David Malpass）周三（20日）接受媒体采访时警告，世界将面临一场“人类大灾难”。马尔帕斯指出，俄罗斯和乌克兰是小麦出口大国，俄乌战争打乱了原本的稳定供应，加上作为氮肥关键成分的天然气成本激增，导致粮食价格创纪录飙升，将影响了大多数国家的粮食生产，尤其是严重依赖化肥进口的主要粮食生产国和出口国。
+[德国商业软件集团SAP(SAPG.DE)周五报告称，第一季度收入增长11%，超过其云业务增长的预期。本周早些时候，该公司表示计划完全退出俄罗斯，以应对莫斯科对乌克兰的入侵。SAP表示，其年度调整后利润将下降近3.5亿欧元，并将承担约8000万至1亿欧元的重组费用。尽管对其俄罗斯业务产生了影响，但SAP确认其2022年的云收入预测为115.5亿欧元至118.5亿欧元（按固定汇率计算）。](https://www.reuters.com/business/sap-revenue-growth-beats-estimates-flags-hit-russia-exit-2022-04-22/)
 
-马尔斯帕认为，这将是一场“人类大灾难”，“对于一些对控制价格无能为力的政府来说，这成为了一个政治难题。他们不是导致此现象的祸源，但他们却要眼睁睁地承受上涨的价格。”根据早前世界银行的估计，食品价格可能会出现37%的“巨大”涨幅，而对贫困国家来说，该涨幅可能会被进一步放大。他们将 “吃得更少，花在学校教育和其他任何事情上的钱也更少。因此，这确实是一种不公平的危机，它对贫穷的人打击最大。”
+**3.Snap警告通货膨胀可能会影响收入增长，预测用户数量增加**
 
-目前多达60%的最贫困国家不是正处于债务困境，就是将处于陷入债务困境的高风险之中。马尔帕斯担忧，在食品和能源价格上涨的情况下，一些发展中国家无力偿还其由于疫情导致的钜额债务，从而引发了“危机中的危机”。
+[Snap Inc(SNAP.N)周四预测其Snapchat应用的用户增长前景乐观，但表示供应链中断和通胀可能继续损害广告需求。公布结果后，Snap的股价立即下跌了10%，但随着投资者消化了喜忧参半的结果，随后收复了跌幅。Snap预测第二季度每日活跃用户在3.43亿至3.45亿之间，高于华尔街估计的3.4亿。然而，该公司警告称，通货膨胀、劳动力短缺和其他经济挑战可能会给收入带来压力。它预测第二季度的收入将比上年增长20%至25%。到目前为止，本季度的增长率为30%。](https://www.reuters.com/technology/snap-misses-revenue-estimates-warns-that-inflation-could-hit-growth-2022-04-21/)
 
-国际货币基金组织周三（4月20日）表示，愿意向面临粮食安全问题的国家提供紧急融资。
+**4.Gap下调了季度销售预测**
 
-來源｜[BS](https://www.business-standard.com/article/international/world-faces-human-catastrophe-due-to-russia-ukraine-war-david-malpass-122042100165_1.html)
+[Gap Inc(GPS.N)周四下调了季度销售额预期，将其归咎于Old Navy品牌的执行挑战和“宏观经济动态”，导致该零售商股价在延长交易中下跌12%。Gap还表示，其Old Navy品牌的负责人Nancy Green将于本周离开公司，公司首席执行官Sonia Syngal将领导团队，直到聘请继任者。由于供应链障碍延迟发货，包括Gap在内的几家服装连锁店一直在努力跟上不断增长的需求并管理库存。这家将于5月26日公布第一季度业绩的零售商表示，它必须采取“积极的方式”来平衡库存，从而导致营销促销活动增加，尤其是在Old Navy。](https://www.reuters.com/business/retail-consumer/gap-cuts-quarterly-sales-forecast-challenges-old-navy-brand-head-departs-2022-04-21/)
 
-* * *
+**5.封锁影响开云集团第一季度的销售**
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+[尽管该集团指出美国和西欧对其高端时装和皮革制品的持续需求，但中国COVID-19封锁造成的中断给周四Gucci所有者Kering的第一季度销售预测蒙上了一层阴影。截至3月份的三个月集团销售额达到49.6亿欧元（54亿美元），增长21%，略高于花旗分析师Thomas Chauvet引用的46.9亿欧元的普遍预期。Kering SA(PRTP.PA)的明星品牌Gucci占法国奢侈品集团年销售额的一半以上，在美国、西欧和日本表现强劲，而COVID封锁扰乱了中国大陆的业务。这一数字低于Chauvet预计的23%的增长，并且与上一季度相比有所放缓。](https://www.reuters.com/business/retail-consumer/kering-q1-sales-lifted-by-us-europe-2022-04-21/)
+
+**6.随着预订量回升，美国航空公司听起来很乐观**
+
+[美国航空集团(AAL.O)、联合航空(UAL.O)和阿拉斯加航空集团(ALK.N)周四表示，由于今年年初该病毒的Omicron变种受挫，旅行需求回升。他们本季度的收入将超过大流行前的水平，尽管他们的产能仍低于2019年的水平。因此，他们都希望在截至6月的季度实现盈利。上周，竞争对手达美航空(DAL.N)也预测季度利润将恢复，理由是“历史性的”高预订量。CFRA Research副总裁科林·斯卡罗拉(Colin Scarola)表示：“航空旅行被压抑的需求浪潮正在消除主要航空公司的长期悲观情绪。”](https://www.reuters.com/business/aerospace-defense/american-airlines-reports-smaller-loss-pickup-travel-offsets-omicron-blip-2022-04-21/)
+
+**7.黑石集团第一季度收益飙升63%**
+
+[黑石公司(BX.N)周四表示，其第一季度可分配收益跃升63%，原因是其房地产和信贷业务的强劲表现抵消了其对冲基金部门的疲软表现。这家全球最大的另类资产管理公司的可分配收益（代表用于向股东支付股息的现金）从一年前的12亿美元增至19亿美元。这导致每股可分配收益为1.55美元，超过了Refinitiv编制的分析师平均估计的每股1.06美元。黑石表示，它改变了其房地产收入信托业务与费用相关的业绩收入的核算方式，按季度而不是按年度计入此类收益。这有助于提高其整体收益，超出分析师的预期。](https://www.reuters.com/business/finance/blackstones-first-quarter-earnings-surge-63-2022-04-21/)
+
+**8.墨西哥银行机构Banorte与Citibanamex-Banorte首席执行官进行谈判**
+
+[Banorte首席执行官Marcos Ramirez Miguel周四表示，墨西哥银行机构Banorte(GFNORTEO.MX)正在与花旗集团(C.N)的墨西哥消费者银行业务Citibanamex就出售其资产进行谈判。Ramirez Miguel在公司第一季度业绩公布后的电话中表示，感兴趣的各方已开始与Citibanamex进行对话，但仍在收集有关其在墨西哥业务的信息。拉米雷斯米格尔补充说，这个过程可能持续至少五个月。](https://www.reuters.com/business/finance/mexico-banking-institution-banorte-talks-with-citibanamex-banorte-ceo-2022-04-21/)
+
+By 【秘密翻译组-金融组】
+作者：小海星
 
  
 
