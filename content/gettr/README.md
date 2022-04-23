@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 12:22 AM (UTC)`
+
+4/22/2022 Ukraine Rescue: The big tent of the New Federal State of China has the largest LED TV screen in the region to show the footage of our rescue operations. A 6-meter-high billboard was established to display the information about the New Federal State of China, other rescue organizations, and shuttle buses. Some people attacked our fellow fighters as it seems they were not happy with the cause of the New Federal State of China to take down the CCP. We will hold these people accountable for their actions. Heavy rain will be detrimental to the Russian troops!<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦的大帐篷用当地最大的液晶电视来播放救援画面，还竖立了6米高的展示新中国联邦、各救援组织和班车信息的“擎天柱”；有人看新中国联邦灭共不爽而攻击战友，我们会对他们的行为追究到底！天降大雨将对俄军不利！<br/>
+![img](https://media.gettr.com/group42/getter/2022/04/23/00/d44ed067-2d37-ec95-82bb-9cf47bee25c2/out.jpg)
+
+---
+
 `@miles 4/22/2022 11:48 PM (UTC)`
 
 【Ukraine Rescue】 04/22/2022 The LED billboard that NFSC has just set up at the Medyka Rescue Center is deliberately vandalized by someone who cut the cable. Moreover, someone is attacking our volunteers with filthy language and preventing French volunteer from taking pictures with our billboard and even tried to attack Little Sarah. The police have now stepped in to investigate. The purpose and supporters behind these violent acts of vandalism will soon be revealed.<br/><br/>【乌克兰救援】 04/22/2022 新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆。不仅如此，有人还阻止法国志愿者在广告牌下拍照并污言秽语攻击他们，甚至试图对小Sara动手。目前警方已经介入调查，这些暴力破坏行为背后的目的和支持者究竟是谁，相信很快就会水落石出。<br/>
@@ -147,12 +154,6 @@
 
  4月22号：尊敬的战友们好．对中国共产党的经济和金融市场，包括香港．有任何幻想的人．那绝对是噩梦，你将失去一切！醒来吧，被欺骗了百年的同胞们！
 ![img](https://media.gettr.com/group15/getter/2022/04/22/14/a73fe19f-dfdf-aa5b-5260-9e9f037c30a0/out.jpg)
-
----
-
-`@miles 4/22/2022 2:04 PM (UTC)`
-
-04/22/2022 on the 4th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 8 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Japan🇯🇵, Cambodia🇰🇭<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月22号，《铁锁梦》MV在全球上线第四天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>8国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，日本🇯🇵，柬埔寨🇰🇭的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2392030/
 
 ---
 

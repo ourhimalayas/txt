@@ -2,50 +2,25 @@
 ---
 
 
-## 世界银行：战争给乌克兰造成重大损失
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2393749/)
+## 加拿大SunWing航班因骇客攻击延误
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2392686/)
 
-作者：纽约香草山农场 – 四季
+作者：加拿大温哥华扬帆农场-活力人生
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2801.png)图片来源：yahoo
 
 
+据【CBC新闻】4月19日报道，由于航空公司使用的第三方服务提供商遭到网络入侵，致使加拿大太阳之翼航空公司大批航班延误，数千名乘客滞留。
 
-据[福克斯商业](https://www.foxbusiness.com/economy/ukraine-physical-damage-russia-invasion-billions-world-bank-estimates)4月22日报道，世界银行行长大卫·马尔帕斯 (David Malpass) 周四表示，俄罗斯的入侵对乌克兰建筑和基础设施造成的物质损失目前已达到约600亿美元。
+从周日开始该公司几乎所有航班都受到影响。此次网络攻击导致该公司值机系统无法工作，值机人员只能人工处理航班信息并手动填写登机牌。该事故导致太阳之翼航空公司连续四天航班停飞或长时间延误，数千名乘客滞留在多伦多皮尔逊国际机场，另有部分乘客滞留国外无法按时返回加拿大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-50.jpg)
+遭受攻击的 Airline Choice 是一家总部位于美国的公司，并与多家航空公司有业务往来，因此此次事故也波及到全球多家航空公司。太阳之翼是唯一受到影响的加拿大公司。
 
-乌克兰总理Denys Shmyhal说，乌克兰的国内生产总值可能下降30%至50%，迄今为止，造成的直接和间接损失已达5600亿美元。
+新闻链接：
 
-乌克兰战争和通货膨胀给世界经济蒙上阴影，国际货币基金组织IMF已下调全球增长预期。
+[https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728](https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728)
 
-联合国（U.N.）人权负责人在周五的一份声明中说，俄罗斯武装部队不分青红皂白地炮击和轰炸居民区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑发稿：硫酸羟氯喹64
 
  
 
