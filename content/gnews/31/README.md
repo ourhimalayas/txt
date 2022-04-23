@@ -2,26 +2,35 @@
 ---
 
 
-## 樱花时政┃法国向乌提供凯撒车载炮和米兰反坦克导弹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2398906/)
+## 【G时新闻】加拿大参与拯救乌克兰数字资产的全球行动
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2399420/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-法国已向乌提供了米兰号反坦克导弹。但法国政府直到4月中旬承认向乌送去了一亿多欧元军火，同时宣布将帮助乌军持续提升“军事能力”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-235.png)图片来源于本文链接
-从法军武库中提取的米兰反坦克导弹早已送抵乌克兰，而“凯撒车载炮”将在“未来几天送达。”同时，四十几名乌军人从周六起在法国接受培训，以熟练掌握这一火炮系统的运用。该系统机动性极高，可快速部署，且操作方便，五个人就足以操纵，作战时用激光指示器扫描目标，自动传送坐标然后可以开炮了。凯撒炮每分发射六发炮弹，射毕随即离开，以躲避敌方炮击。凯撒炮口径为155毫米，安装在全地形卡车上。射程40公里.现已装备沙特阿拉伯、丹麦和捷克共和国的军队。
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据[CTV新闻]4月19日报道，加拿大人最近参与了一项由多国组织发起的，通过数字资产和数据来在线保护乌克兰文化遗产的国际合作任务。
 
-信息来源： [法国向乌克兰提供凯撒车载炮和米兰反坦克导弹](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220422-%E6%B3%95%E5%9B%BD%E5%90%91%E4%B9%8C%E5%85%8B%E5%85%B0%E6%8F%90%E4%BE%9B%E5%87%AF%E6%92%92%E8%BD%A6%E8%BD%BD%E7%82%AE%E5%92%8C%E7%B1%B3%E5%85%B0%E5%8F%8D%E5%9D%A6%E5%85%8B%E5%AF%BC%E5%BC%B9)
+由于俄罗斯发动的入侵战争严重破坏了乌克兰的数字文化财产，因此，一个名为[在线拯救乌克兰文化财产]的国际组织汇集了全球1300多名图书档案管理员、研究员和程序员等专业人士，通过识别乌克兰重要网站的数据，并将其存档于国外大学、图书馆、博物馆和画廊的服务器上。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+据悉，该组织目前已从乌克兰的3500多个网站保存了超过30tb的扫描文件、艺术品和其他重要信息。
 
+此外，加拿大阿尔伯塔大学的乌克兰研究所也参与了名为“档案救援队”的平行项目。
+
+盖特链接：[https://gettr.com/post/p16pjuw9b3c](https://gettr.com/post/p16pjuw9b3c)
+
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

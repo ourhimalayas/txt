@@ -2,38 +2,30 @@
 ---
 
 
-## 对利率上升的担忧恶化，周五美国股市下跌2.8%
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398391/)
+## 五角大楼：预计乌克兰战争将长期化
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2398423/)
 
-撰稿：Gradient Boost
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-1-3da0902a29.jpg)图片来源：时代
+4月22日，《华盛顿观察家报》报道说，五角大楼发言人约翰·科比（John Kirby）在周五的简报中表示，预计乌克兰战争将“长期化”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/235.jpg)图片来自网络
-本周五，华尔街股市出现跳水，标普 500 指数创下近七周来最大单日跌幅，其原因在于投资者对利率飙升和美联储努力对抗通胀的担忧正在逐步加深。同时一些公司令人失望的利润报告也动摇了市场的主要支柱。
+科比说，“我们预计战争在几天内，甚至在未来几周内不会结束，我们认为它有可能比这更久。”
 
-标准普尔 500 指数下跌 2.8%，连续第三周下跌。道琼斯工业平均指数下跌 2.8%，创下 18 个月以来的最大跌幅，此前曾短暂下跌逾 1,000 点。纳斯达克指数也出现了近七周以来最糟糕的一天，收盘下跌 2.6%。人们对几十年来最高通胀、乌克兰战争和冠状病毒的担忧仍在蔓延。
+文章报道，周五，俄罗斯高级指挥官鲁斯塔姆·明尼卡耶夫（Rustam Minnekayev）声称，除了东部的顿巴斯地区，莫斯科现在还想“完全控制”乌克兰南部。
 
-此前，美联储已经上调了一次关键隔夜利率，这是自 2018 年以来的首次上调，因为它寻求主动取消大流行期间持续的经济援助，它还准备采取其他措施对长期利率施加上行压力。
+俄罗斯本周一直在增加其在顿巴斯地区的兵力。他们的增援是以增加四个BTG(营级战术小组)的方式进行的，这使得该地区的BTG总数大约达到了80个，一位美国高级国防官员本周早些时候告诉记者，每个BTG大约由800-1000名军人组成。
 
-通过提高企业和家庭的借贷成本，更高的利率意味着经济放缓，这有望阻止几代人以来最严重的通货膨胀。但它们同时却也可能引发经济衰退，同时给大多数类型的投资带来下行压力。
+这位官员还说，五角大楼认为，相对于开始入侵时的实力，俄罗斯目前还拥有大约75%的能力。
 
-Commonwealth Financial Network 投资管理主管布赖恩·普赖斯 (Brian Price) 表示：“经过多年的非常宽松，美联储已经明确表示，在可预见的未来，政策将会收紧……他们的强硬立场让投资者不得不暂停观望，因为许多人需要评估对未来利润率和（股票）倍数的影响。”
+发言人科比说，“因为俄罗斯人现在把他们的目标集中在一块较小的地理区域，一个他们现在已经与乌克兰武装部队战斗了八年的区域，而且在许多情况下一直在非法占领，（所以）我们会预计战斗可能会延长。”
 
-规模较小的公司股票也大幅下跌，罗素 2000 指数下跌 50.80 点，或 2.6%，达到 1,940.66。
+报道说，美国和许多西方国家一样，向乌克兰提供军事装备以战斗。拜登政府迄今提供的八个军事包的资金量将近35亿美元，最近的两个军事包是专门为适应乌克兰人在顿巴斯地区作战的需要而制作的，其中一些需要有限的培训。
 
-*编辑：Gradient Boost*
+*责编：彩虹*
 
-*发稿：mgjxs*
+**新闻来源**
 
-新闻参考链接：[AP News](https://apnews.com/article/business-japan-asia-financial-markets-prices-0575e0bba40355e305493d204ea54c40)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+[Pentagon doesn’t anticipate war in Ukraine will end in the ‘coming weeks’](https://www.washingtonexaminer.com/policy/defense-national-security/pentagon-doesnt-anticipate-war-in-ukraine-will-end-in-the-coming-weeks)
 
  
 

@@ -15,137 +15,137 @@
 
 ---
 
-### [2022年4月23日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [印尼财政部长、世界银行前COO加入呼吁世行改革的行列](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [串珠667:习家仇人在上海,习骨子里是要报复上海人](/content/gnews/3/README.md)
- ` 郭爆料串珠`
-
-### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/4/README.md)
- ` 经济小组`
-
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/5/README.md)
- ` NFSC News`
-
-### [网路热传普京身体出问题的视频](/content/gnews/6/README.md)
- ` 银河歌舞厅`
-
-### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/7/README.md)
- ` 温哥华扬帆农场`
-
-### [2022年4月23日七哥乱聊直播文字版](/content/gnews/8/README.md)
+### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠666:我要灭了习，拯救中国，拯救世界！](/content/gnews/9/README.md)
- ` 郭爆料串珠`
-
-### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/10/README.md)
- ` NFSC News`
-
-### [欧盟官员拟议实行比特币交易禁令](/content/gnews/11/README.md)
- ` 银河歌舞厅`
-
-### [加拿大证实：死亡加速与疫苗有关](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [樱花灭共诗——换鸟](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共派出流氓袭击新中国联邦梅迪卡救援中心](/content/gnews/14/README.md)
- ` 波士顿五月花农场`
-
-### [俄乌战争之后体制内多数人相信新中国联邦能够灭共](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [中日财经爆┃西宁以疫情之名延迟养老金发放](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/17/README.md)
- ` thedawn`
-
-### [北上广深军管戒严，用中共病毒掩盖疫苗灾难](/content/gnews/18/README.md)
- ` 银河歌舞厅`
-
-### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/19/README.md)
- ` 秘密翻译组金融团队`
-
-### [上海封城究竟死了多少人？](/content/gnews/20/README.md)
- ` 波士顿五月花农场`
-
-### [中共打算在美国中期选举之时大闹世界](/content/gnews/21/README.md)
- ` 银河歌舞厅`
-
-### [南希·佩洛西访台 促使中共侵台 与美国对抗到底](/content/gnews/22/README.md)
- ` NFSC News`
-
-### [美国青年志愿者震惊于419美国之音断播事件](/content/gnews/23/README.md)
- ` NFSC News`
-
-### [【G时新闻】世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件](/content/gnews/24/README.md)
- ` G-时新闻`
-
-### [北京连夜召开发布会宣布疫情](/content/gnews/25/README.md)
+### [日本密切关注中共在太平洋岛屿地区的行动](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美欧日经济周报（4月18日～4月22日）](/content/gnews/26/README.md)
- ` 经济小组`
-
-### [【G时新闻】加拿大参与拯救乌克兰数字资产的全球行动](/content/gnews/27/README.md)
- ` G-时新闻`
-
-### [俄罗斯将在秋季前部署萨尔马特导弹进行“历史性”核升级](/content/gnews/28/README.md)
- ` 波士顿五月花农场金融部`
-
-### [《四月之声》何罪?](/content/gnews/29/README.md)
- ` 银河勇气之星`
-
-### [马里乌波尔钢铁厂的内部影像 俄罗斯军队入侵 平民避难 普京“健康不安说”](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花时政┃法国向乌提供凯撒车载炮和米兰反坦克导弹](/content/gnews/31/README.md)
+### [樱花时政┃日本熊本举行亚太水务峰会，岸田首相会见三国总理](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|心酸的写真漫画](/content/gnews/32/README.md)
- ` 爆料视频`
-
-### [秘翻新闻｜股票债券汇率集体暴跌 中共国市场陷入痛苦期](/content/gnews/33/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [樱花时政┃美欧联合警告中共国：支持俄需承担后果](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰救援前线报道4.23.2022：绝非偶然的新中国联邦相关多起突发事件](/content/gnews/35/README.md)
- ` 秘密翻译组-原创组`
-
-### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/36/README.md)
+### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|李家超YouTube账户被停用](/content/gnews/37/README.md)
+### [2022年4月23日，全球中共病毒疫情情况汇总](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [印尼财政部长、世界银行前COO加入呼吁世行改革的行列](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [串珠667:习家仇人在上海,习骨子里是要报复上海人](/content/gnews/7/README.md)
+ ` 郭爆料串珠`
+
+### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/8/README.md)
+ ` 经济小组`
+
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/9/README.md)
+ ` NFSC News`
+
+### [网路热传普京身体出问题的视频](/content/gnews/10/README.md)
+ ` 银河歌舞厅`
+
+### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/11/README.md)
+ ` 温哥华扬帆农场`
+
+### [2022年4月23日七哥乱聊直播文字版](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [串珠666:我要灭了习，拯救中国，拯救世界！](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [欧盟官员拟议实行比特币交易禁令](/content/gnews/15/README.md)
+ ` 银河歌舞厅`
+
+### [加拿大证实：死亡加速与疫苗有关](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [樱花灭共诗——换鸟](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共派出流氓袭击新中国联邦梅迪卡救援中心](/content/gnews/18/README.md)
+ ` 波士顿五月花农场`
+
+### [俄乌战争之后体制内多数人相信新中国联邦能够灭共](/content/gnews/19/README.md)
+ ` NFSC News`
+
+### [中日财经爆┃西宁以疫情之名延迟养老金发放](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/21/README.md)
+ ` thedawn`
+
+### [北上广深军管戒严，用中共病毒掩盖疫苗灾难](/content/gnews/22/README.md)
+ ` 银河歌舞厅`
+
+### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/23/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共打算在美国中期选举之时大闹世界](/content/gnews/24/README.md)
+ ` 银河歌舞厅`
+
+### [南希·佩洛西访台 促使中共侵台 与美国对抗到底](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [美国青年志愿者震惊于419美国之音断播事件](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [串珠665:备(粮水药战现金战)远离军事基地](/content/gnews/27/README.md)
+ ` 郭爆料串珠`
+
+### [【G时新闻】世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件](/content/gnews/28/README.md)
+ ` G-时新闻`
+
+### [北京连夜召开发布会宣布疫情](/content/gnews/29/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美欧日经济周报（4月18日～4月22日）](/content/gnews/30/README.md)
+ ` 经济小组`
+
+### [【G时新闻】加拿大参与拯救乌克兰数字资产的全球行动](/content/gnews/31/README.md)
+ ` G-时新闻`
+
+### [俄罗斯将在秋季前部署萨尔马特导弹进行“历史性”核升级](/content/gnews/32/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [马里乌波尔钢铁厂的内部影像 俄罗斯军队入侵 平民避难 普京“健康不安说”](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频|心酸的写真漫画](/content/gnews/34/README.md)
+ ` 爆料视频`
+
+### [秘翻新闻｜股票债券汇率集体暴跌 中共国市场陷入痛苦期](/content/gnews/35/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [乌克兰救援前线报道4.23.2022：绝非偶然的新中国联邦相关多起突发事件](/content/gnews/36/README.md)
+ ` 秘密翻译组-原创组`
+
+### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|李家超YouTube账户被停用](/content/gnews/38/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|研究表明疫情封锁无效 有害无益](/content/gnews/38/README.md)
+### [有声|研究表明疫情封锁无效 有害无益](/content/gnews/39/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|上海防疫新模式被指玩数字游戏](/content/gnews/39/README.md)
+### [有声|上海防疫新模式被指玩数字游戏](/content/gnews/40/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|加入北约近了？芬兰国会表态支持](/content/gnews/40/README.md)
+### [有声|加入北约近了？芬兰国会表态支持](/content/gnews/41/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/41/README.md)
+### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [五角大楼：预计乌克兰战争将长期化](/content/gnews/42/README.md)
+### [五角大楼：预计乌克兰战争将长期化](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [对利率上升的担忧恶化，周五美国股市下跌2.8%](/content/gnews/43/README.md)
+### [对利率上升的担忧恶化，周五美国股市下跌2.8%](/content/gnews/44/README.md)
  ` 澳喜特战旅Gnews`
-
-### [代表抗议俄罗斯参会G20混淆视听](/content/gnews/44/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

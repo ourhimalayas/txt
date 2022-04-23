@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 4:34 PM (UTC)`
+
+The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
+![img](https://media.gettr.com/group36/origin/2022/04/23/16/2b5970e2-a9eb-eb93-bc61-cb5c26f76478/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 2:29 PM (UTC)`
 
 新中国联邦｜真人真事 第50期  华盛顿DC农场 Longwood大根<br/>同传English: https://gettr.com/streaming/p16rd9t2713
@@ -146,13 +153,6 @@
 
 【Ukraine Rescue】 04/21/2022 International volunteer from the UK says she will have people in her circle download Gettr and GNews and spread the truth. She also hopes the voice of NFSC can be heard by many people.<br/><br/>【乌克兰救援】 04/21/2022 来自英国的国际志愿者表示，她会让她的圈子里的人下载盖特和 GNews并传播真相。她也希望新中国联邦的声音能被更多人听到。
 ![img](https://media.gettr.com/group46/getter/2022/04/22/23/e2041ba7-9aa1-3c73-a06a-6a86519d96df/out.jpg)
-
----
-
-`@miles 4/22/2022 11:13 PM (UTC)`
-
-【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案
-![img](https://media.gettr.com/group8/getter/2022/04/22/23/8aaae5a9-060d-b995-7e72-050cf7f5df0f/out.jpg)
 
 ---
 
