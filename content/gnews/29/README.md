@@ -2,43 +2,46 @@
 ---
 
 
-## 有声|上海假冒伪劣保供物资引发百姓强烈不满
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2398127/)
+## 美国CDC宣布临时豁免 从上海前往美国的乘客免核酸检测
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2398027/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月21日，严厉的疫情封控措施之下，上海市民不断爆料，保供物资品质无法得到保证。除了发现各种假冒伪劣产品，甚至还出现大量过期及霉变食品，健康隐患实在堪忧。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpriyxt6.jpeg)新唐人
-社交平台的爆料显示，获得中共特批的保供物资中，有些是三无产品或假冒伪劣产品。例如，在4月19日发放的物资中竟然出现当天山东生产的食用油，无法与工业盐区分的三无产品盐，早在两年前就注销的厂商所生产的粉丝，高仿包装袋大米，以及引起部分居民食物中毒的过期叫花鸡、霉变酱鸭等等。
+翻译：幸运草
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
-对此，中共市场监管部门只是呼吁居民拨打12315投诉，并未解释在保供物资中出现如此众多的假冒伪劣产品的原因，更没有解决方案替代居民手中这些根本不能食用的物资。而据市民反映，这些官方投诉电话根本无法接通。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/tittle04232.png)
 
-分析人士指出，上海乱象不仅体现中共愚蠢的政治清零，不顾百姓死活的邪恶本质，也凸显出墙内老百姓即将面临生存威胁的悲惨现状。
+美国疾病控制与预防中心(CDC) 4月15日宣布，鉴于上海当前的紧急情况，应美国国务院的要求，所有美国公民(U.S. Citizens)、美国国民(U.S. Nationals)、合法永久居民等离开上海到美国时，无需提供之前要求的起飞前核酸检测。即日起生效，到5月11日结束，也可能延期。
 
+本执行裁量权的行使仅限于以下离开中国上海的个人：美国公民；美国国民，合法永久居民(LPR)；持有有效美国移民签证的非公民；以及与美国公民或合法永久居民一起旅行并持有允许他们前往美国的有效旅行证件的非公民非移民。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/web0423.png)
 
+（来源：美国驻华大使馆官网）
 
+针对从国际目的地飞往美国的所有航班乘客的出发前测试规则已经实施了一年多，到目前为止，尽管旅游和航空行业对此普遍批评，但拜登政府没有表现出放松甚至完全放弃当前政策的兴趣。
 
+旅行者必须在前往美国的一天内获得批准的检测，但上海长达数周的严格封锁，使得美国公民几乎不可能遵守这一要求。自3月以来，上海部分地区已被封锁，以遏制感染病例的激增，但每天的病例数继续刷新纪录。
 
+在上海明显无力控制最新疫情后，美国国务院直接提出要求，决定放宽对来自上海的游客的政策。
 
-文字版原文：[上海假冒伪劣保供物资引发百姓强烈不满](https://gnews.org/zh-hans/2392626/)
+美国驻华大使馆在周五的一份声明中说:“美国疾病控制与预防中心已经确定，中国上海目前的紧急情况可能使个人无法满足美国疾病控制与预防中心修订后的检测令的要求。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+该声明还表示:“如果行使执法自由裁量权的个人不能在规定的时间内接受检测，航空公司可以在不满足新冠检测呈阴性或新冠康复证明要求的情况下，继续让这些人登机。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+航空业希望完全取消起飞前的测试规则，就像欧洲、英国等所做的那样。就连澳大利亚也计划在本月晚些时候取消离境前的测试规定。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+游说团体Airlines for America最近在给白宫的一封公开信中写道:“出发前检测不再是保护美国免受新冠病毒感染的有效措施。”该组织代表了美国航空(American Airlines)、达美航空(Delta)和联合航空(United Airlines)等公司。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+信中还说:“这一要求几乎没有提供健康福利，但却会增加额外的费用，并担心被困在海外，从而阻碍了旅行。”“对入境美国的国际航空旅客保持起飞前测试的要求不再符合逻辑”。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+白宫表示，目前还没有放弃该政策的计划。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+原文出处：[HEALTH ALERT SHANGHAI: TEMPORARY WAIVER OF PRE-FLIGHT COVID TEST REQUIREMENT OR RECOVERY DOCUMENT](https://china.usembassy-china.org.cn/health-alert-shanghai-temporary-waiver-of-pre-flight-covid-test-requirement-or-recovery-document/)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[The CDC Has Just Loosened Pre-Departure Test Rules For Travelers From Shanghai Despite Surging COVID-19 Cases in China’s Financial Capital](https://www.paddleyourownkanoo.com/2022/04/15/the-cdc-has-just-loosened-pre-departure-test-rules-for-travelers-from-shanghai-despite-surging-covid-19-cases-in-chinas-financial-capital/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
 
  
 

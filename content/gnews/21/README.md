@@ -2,22 +2,31 @@
 ---
 
 
-## 法治基金梅迪卡广告牌遭不明身份者破坏
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2398323/)
+## 西澳州长的孩子因感染中共病毒重症入院
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2398377/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2889.png)图片来源：盖特
-据文贵先生4月22日盖特报道， 4月22日上午，法治基金梅迪卡救援中心营地外侧刚刚设立的，带有灭共标识及救援巴士时刻表的巨大广告牌，在设立不满半天的时间里就被人为剪断电缆，导致一侧无法正常显示。
+**整理报道：**翼族
 
-此外，营地还出现了三个讲英语的不明身份者，辱骂并企图阻止他人对广告牌拍照，用污言秽语辱骂新中国联邦救援义工，还说“真可耻，你们不应该把这个广告牌立在这里，不应该在这里传达这种信息，这是政治信息”。当义工小莎拉用手机拍摄记录整个被攻击现场时，该不明身份者突然跳起并试图武力攻击小莎拉。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/fda790c7953bce92c265d2d2675124eb5c1987d3-16x9-x0y226w4341h2442.jpg)Sound Telegraph
 
-截止发稿时，当地警方在接到新中国联邦救援义工报警后已到达现场对整个事件展开调查。后续记者将继续对此进行跟踪报道。
 
-新闻来源：[https://gettr.com/post/p16o4lc30fe](https://gettr.com/post/p16o4lc30fe)
+自中共病毒（COVID-19）疫情以来，西澳大利亚州政府一直推行疫苗强制政策。2022年一月份，西澳州长麦高恩（Mark McGowan）在新闻发布会上公布了疫苗接种的最新规则，要求西澳州16岁及以上的人在一些公共场所和工作场所必须提供接种两剂的疫苗接种证明，除非获得疫苗接种豁免。
 
-* * *
+虽然西澳州的接种率一直在增加，但是西澳州的确诊病例却并没有减少。西澳大利亚州于过去的24小时记录了8777例新病例和5例新增死亡病例。目前该州有42613例活跃病例，258人住院，其中9人在重症监护室。
 
-编辑发稿：硫酸羟氯喹64
+本周五（4月22日）麦高恩州长办公室证实州长的核酸检测PCR结果呈阳性，后来州长办公室透露麦高恩州长三个孩子中的一个因病重而入院。州长办公室的该份声明中写到：“**这位孩子已完全接种疫苗，但由于感染而病情严重。**孩子仍在医院接受治疗。在这个困难时期，麦高恩家庭要求就该事项予以保密。”
+
+据悉，麦高恩州长有三个孩子——两个儿子和一个女儿。
+
+*发布：翼族*
+
+参考链接：[WA Premier Mark McGowan’s child admitted to hospital in serious condition with COVID-19](https://amp.abc.net.au/article/101008148)
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

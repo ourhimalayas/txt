@@ -2,46 +2,30 @@
 ---
 
 
-## 在加人权组织的压力下，渥太华大学放弃COVID疫苗强制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2398372/)
+## 五角大楼：预计乌克兰战争将长期化
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2398423/)
 
-据《LifeSite》作者，2022年4月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2890-e1650716773205.png)图片来源：lifesite
-宪法自由司法中心一再呼吁该大学结束其滥用和歧视性的做法。
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-1-3da0902a29.jpg)图片来源：时代
+4月22日，《华盛顿观察家报》报道说，五角大楼发言人约翰·科比（John Kirby）在周五的简报中表示，预计乌克兰战争将“长期化”。
 
-渥太华 （JCCF）——在多次呼吁渥太华大学（U of O）结束其滥用和歧视性做法后， 司法中心很高兴地宣布，该大学已表示将从2022年5月1日起取消对学生的强制性疫苗政策。
+科比说，“我们预计战争在几天内，甚至在未来几周内不会结束，我们认为它有可能比这更久。”
 
-司法中心代表一名怀孕的学生，她在决定不接种COVID疫苗后被停学。她的医生告诉她，由于与COVID无关的原因，她的怀孕处于高风险状态，并建议她虚拟完成她的强制性实习，这是课程允许的。
+文章报道，周五，俄罗斯高级指挥官鲁斯塔姆·明尼卡耶夫（Rustam Minnekayev）声称，除了东部的顿巴斯地区，莫斯科现在还想“完全控制”乌克兰南部。
 
-然而，渥太华大学拒绝接纳她，谎称她正试图规避疫苗接种政策，并且没有地方可用于虚拟实习。
+俄罗斯本周一直在增加其在顿巴斯地区的兵力。他们的增援是以增加四个BTG(营级战术小组)的方式进行的，这使得该地区的BTG总数大约达到了80个，一位美国高级国防官员本周早些时候告诉记者，每个BTG大约由800-1000名军人组成。
 
-学生声称，在整个过程中，渥太华大学几乎没有努力寻找双方都能接受的解决方案，并拒绝根据案件事实证明其决定的合理性。
+这位官员还说，五角大楼认为，相对于开始入侵时的实力，俄罗斯目前还拥有大约75%的能力。
 
-“很明显，渥太华大学不打算遵循加拿大最高法院在15多年前制定的‘合理便利’基本标准。” 魁北克省司法中心的高级外部法律顾问塞缪尔·巴昌德（Samuel Bachand）指出。
+发言人科比说，“因为俄罗斯人现在把他们的目标集中在一块较小的地理区域，一个他们现在已经与乌克兰武装部队战斗了八年的区域，而且在许多情况下一直在非法占领，（所以）我们会预计战斗可能会延长。”
 
-在与司法中心的律师协商讨论后，该学生自己找到了合适的虚拟实习位置，最终获得了大学的批准。
+报道说，美国和许多西方国家一样，向乌克兰提供军事装备以战斗。拜登政府迄今提供的八个军事包的资金量将近35亿美元，最近的两个军事包是专门为适应乌克兰人在顿巴斯地区作战的需要而制作的，其中一些需要有限的培训。
 
-“大学在这件事上的厚颜无耻和不诚实令人震惊。很明显，在当权者中，有一些官僚愿意为了不合理的健康问题而牺牲他们机构的使命。”巴尚先生评论道。
+*责编：彩虹*
 
-“科学界普遍认为，Covid疫苗不能预防病毒的感染或传播。鉴于接种疫苗不会赋予特殊地位或保护，因此渥太华大学或任何其他高等教育机构的疫苗强制令没有任何依据。” 巴昌德先生总结道。
+**新闻来源**
 
-本文转载Lifesite News经JCCF许可重新发布的文章。
-
-文章来源：[https://www.lifesitenews.com/news/university-of-ottawa-drops-covid-jab-mandate-after-pressure-from-canadian-rights-group/](https://www.lifesitenews.com/news/university-of-ottawa-drops-covid-jab-mandate-after-pressure-from-canadian-rights-group/)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 –子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Pentagon doesn’t anticipate war in Ukraine will end in the ‘coming weeks’](https://www.washingtonexaminer.com/policy/defense-national-security/pentagon-doesnt-anticipate-war-in-ukraine-will-end-in-the-coming-weeks)
 
  
 
