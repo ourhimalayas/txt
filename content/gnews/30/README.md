@@ -2,30 +2,28 @@
 ---
 
 
-## 五角大楼：预计乌克兰战争将长期化
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2398423/)
+## 樱花时政┃美欧联合警告中共国：支持俄需承担后果
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2398800/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-1-3da0902a29.jpg)图片来源：时代
-4月22日，《华盛顿观察家报》报道说，五角大楼发言人约翰·科比（John Kirby）在周五的简报中表示，预计乌克兰战争将“长期化”。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+拜登政府外交事务第二号人物谢尔曼此次率团访问布鲁塞尔，与欧盟有关方面就俄乌战争、中共国以及印太战略等议题展开多方会谈。
 
-科比说，“我们预计战争在几天内，甚至在未来几周内不会结束，我们认为它有可能比这更久。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美欧联合警告中共国：支持俄需承担后果.png)（图片来源于本文链接）
 
-文章报道，周五，俄罗斯高级指挥官鲁斯塔姆·明尼卡耶夫（Rustam Minnekayev）声称，除了东部的顿巴斯地区，莫斯科现在还想“完全控制”乌克兰南部。
+针对已经持续两个月的俄乌战争，谢尔曼与欧盟外交事务部秘书长桑尼诺22日在联合发表的声明中表示，美欧将继续敦促中共国不要帮助俄规避制裁，不要破坏制裁。声明重申，这种对俄的支持将会影响中共与欧盟、中共国与美国之间的关系。在此之前，美国和欧盟都曾各自对中共国在俄乌战争中的立场发出警告。欧委会主席冯德莱恩4月1日在中欧视讯峰会上，呼吁北京推动俄罗斯停止战争。她强调，任何支持俄缓冲制裁损失与压力的行动，都将影响中欧关系。
 
-俄罗斯本周一直在增加其在顿巴斯地区的兵力。他们的增援是以增加四个BTG(营级战术小组)的方式进行的，这使得该地区的BTG总数大约达到了80个，一位美国高级国防官员本周早些时候告诉记者，每个BTG大约由800-1000名军人组成。
+信息来源：
+[美歐聯合警告中國：支持俄羅斯需承擔後果](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20220423-%E7%BE%8E%E6%AD%90%E8%81%AF%E5%90%88%E8%AD%A6%E5%91%8A%E4%B8%AD%E5%9C%8B-%E6%94%AF%E6%8C%81%E4%BF%84%E7%BE%85%E6%96%AF%E9%9C%80%E6%89%BF%E6%93%94%E5%BE%8C%E6%9E%9C)
 
-这位官员还说，五角大楼认为，相对于开始入侵时的实力，俄罗斯目前还拥有大约75%的能力。
-
-发言人科比说，“因为俄罗斯人现在把他们的目标集中在一块较小的地理区域，一个他们现在已经与乌克兰武装部队战斗了八年的区域，而且在许多情况下一直在非法占领，（所以）我们会预计战斗可能会延长。”
-
-报道说，美国和许多西方国家一样，向乌克兰提供军事装备以战斗。拜登政府迄今提供的八个军事包的资金量将近35亿美元，最近的两个军事包是专门为适应乌克兰人在顿巴斯地区作战的需要而制作的，其中一些需要有限的培训。
-
-*责编：彩虹*
-
-**新闻来源**
-
-[Pentagon doesn’t anticipate war in Ukraine will end in the ‘coming weeks’](https://www.washingtonexaminer.com/policy/defense-national-security/pentagon-doesnt-anticipate-war-in-ukraine-will-end-in-the-coming-weeks)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

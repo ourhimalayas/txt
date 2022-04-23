@@ -2,24 +2,24 @@
 ---
 
 
-## 櫻花FM｜澳大利亚追加制裁14家俄罗斯国企
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2399190/)
+## 北京连夜召开发布会宣布疫情
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2399428/)
 
-音頻：東京櫻花團/戰友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E6C20B03-C257-4224-A5C7-C11618AD195B.png)
-4月14日，澳大利亚对14家俄罗斯国有企业实施针对性金融制裁，包括卡车制造商KAMAZ等国防相关实体，以及造船企业SEVMASH和联合造船公司（United Shipbuilding Corp）。
+**作者：意大利罗马达芬奇农场 Vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/B-5.jpg)sg,news.yahoo.com
+据北京日报客户端消息，4月22日晚，在北京市新冠病毒肺炎疫情防控工作第311场新闻发布会上，北京市疾控中心副主任、全国新冠病毒肺炎专家组成员庞星火介绍，4月22日16时至22时，北京新增本土新冠肺炎病毒感染者4例，均为确诊病例：朝阳区2例、顺义区2例。另有1例核酸复核阳性人员及9例核酸初筛阳性人员，共13例。初判传播风险高！北京本起疫情涉老年旅游团、装修人员及在校生。截止到23日，北京新增本土新冠肺炎感染者已增加到15例。
 
-澳大利亚外交部长潘恩（Marise Payne）在声明中说，鉴于俄罗斯入侵乌克兰，制裁范围也将扩及负责生产俄国约8成电子零件的Ruselectronics公司，以及国营俄罗斯铁路（Russian Railways）。
+笔者观察到此次疫情宣布时间选择在22日晚23点30分，此时大部分北京居民已经休息，无法作出快速反应，且爆发点在旅游团和学校，均为易于迅速传播的渠道。
 
-澳洲现已制裁大约600个实体和个人，包括俄罗斯大部分银行业者和所有负责俄国主权债务的机构。
+文贵先生早在21日的临时直播中就已经爆料，接下来会对北京实施隔离管控，共产党一定是以疫情为借口对北京采取行动。共产党的一切都按照写好的剧本在进行，只不过这次的演员从2600万的上海市居民，转移到了2100多万的北京市居民，悲剧在一个个上演，犹如一部巨型灾难片，中共不灭，灾难不止！
 
-澳洲也已提供国防装备和人道物资给乌克兰，同时禁止对俄出口氧化铝和铝矿，包括铝土矿。
+新闻来源：
+[https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&mod=pcpager\_china&loc=15&r=0&rfunc=10&tj=cxvertical\_pc\_pager\_spt&tr=174#/](https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&amp;mod=pcpager_china&amp;loc=15&amp;r=0&amp;rfunc=10&amp;tj=cxvertical_pc_pager_spt&amp;tr=174#/)
 
-**文字版原文：**[**中日财经爆┃澳大利亚追加制裁14家俄罗斯国企**](https://gnews.org/zh-hans/2348853/)
+[https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/](https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/)
 
-**编辑：东京樱花团/Calvin**
-**发佈：东京樱花团/Calvin**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

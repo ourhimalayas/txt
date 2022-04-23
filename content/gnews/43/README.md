@@ -2,33 +2,34 @@
 ---
 
 
-## 沪指再度失守3100 人民币汇率创6个月新低
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395950/)
+## 中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397415/)
 
-作者：香草山教育部-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-综合媒体4月21日报道，随着上海中共疫情封锁的继续，沪指再度失守3100点，中共国内和香港股价均跌至四周低点；人民币对美元即期汇率亦连续两日大跌，创六个月以来新低。
+撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/b-3.png)图片源自网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04233.png)[图片来源](https://www.bullfrag.com/stripe-and-twitter-to-test-crypto-payments-feature-with-connect-and-usdc/)
 
-据了解，中共股市三大指数今日收盘跌幅均超出了2%，各个板块几乎全线下跌。其中，沪指再度失守3100点，两市逾百股跌停，超4400股下跌。与此同时，人民币对美元汇率在在岸市场连续两日大跌，跌幅超过1%。，而更多反映国际投资者预期的离岸人民币对美元汇率亦同样出现暴跌，人民币跌至六个月来的最低点。
+4月22日，数字支付处理服务商Stripe 宣布将允许企业通过加密货币向其用户付款，Twitter将是第一家客户，这是数字金融公司对数字资产抱有热情的最新迹象。
 
-据相关机构分析，美联储加息在即，能源价格亦在高位攀升，加之上海疫情的扩散和封锁政策的延续，种种原因均促使了外资对中共经济的前景丧失信心。同时，中共党魁习近平在今日的博鳌论坛上公然发表反对西方制裁的演讲，尤其是对中俄“友谊”的肯定亦使投资人们纷纷对中共失去信任，从而加速了股票、债券市场的资金外流，进一步导致了人民币的汇率增大。股市与人民币汇率的接连失守或正意味着中共经济已岌岌可危。
+Stripe是一家金融服务和软件即服务（SaaS）公司，该公司主要为电子商务网站和移动应用程序提供支付处理软件和应用编程接口，目前市值950亿美元，
 
-【新闻来源】[http://stock.jrj.com.cn/2022/04/21150236418689.shtml](http://stock.jrj.com.cn/2022/04/21150236418689.shtml) [https://finance.sina.com.cn/stock/roll/2022-04-21/doc-imcwiwst3192864.shtml](https://finance.sina.com.cn/stock/roll/2022-04-21/doc-imcwiwst3192864.shtml) [https://tw.news.yahoo.com/博鰲亞洲論壇登場-人民幣跌破6-41探5個月低點-鏡新聞-074735155.html](https://tw.news.yahoo.com/%E5%8D%9A%E9%B0%B2%E4%BA%9E%E6%B4%B2%E8%AB%96%E5%A3%87%E7%99%BB%E5%A0%B4-%E4%BA%BA%E6%B0%91%E5%B9%A3%E8%B7%8C%E7%A0%B46-41%E6%8E%A25%E5%80%8B%E6%9C%88%E4%BD%8E%E9%BB%9E-%E9%8F%A1%E6%96%B0%E8%81%9E-074735155.html) [https://www.asiafinan](https://www.asiafinancial.com/china-hong-kong-stocks-sink-on-supply-chain-slowdown-fears)
+Stripe表示，它将开始通过加密货币公司Circle发行的稳定币USDC，为商家提供以加密货币支付的能力。稳定币是与法定货币挂钩的代币，以维持稳定的价格。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+在Stripe的技术支持下，Twitter将是第一家整合新支付方式的公司。从周五开始，这个社交媒体平台将让一定数量的创作者从其付费的Ticketed Spaces和Super Follows功能中获得USDC的收入。
 
-编辑/校对/发稿：Daxia
+Stripe表示：“我们计划随着时间的推移增加对其他轨道和支付货币的支持。”
 
-**更多资讯，更多关注**
+这是自四年前放弃对比特币的支持以来，Stripe首次大幅推动加密货币的发展。Stripe于2018年1月停止接受比特币支付，理由是数字硬币因价格波动和日常交易效率低下。在去年11月，Stripe联合创始人约翰-科里森(John Collison)暗示，该公司可能很快再次提供加密货币支持。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+Stripe周五在一篇博文中说：“虽然加密货币的‘价值存储’方面通常受到最多关注，但我们认为‘开放的全球金融轨道’的前景至少同样引人注目。因此，我们一直在探索如何利用基于加密货币的平台来解锁更广泛的访问。”
 
+Stripe不是唯一一家向数字货币开放其平台的数字金融公司，事实上，该公司可以说是姗姗来迟。维萨(Visa)、万事达(Mastercard)和贝宝(PayPal)以及其他主要支付处理商都已经宣布了自己在该领域的行动，当时数字货币还处于上涨的行情中。
 
+消息来源：[支付公司Stripe支持稳定币！从推特公司开始 创作者获得USDC收入](https://ca.fx168news.com/cryptocurrency/2204/5840916.shtml)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,23 @@
 ---
 
 
-## 4月26号南西-佩洛西将访台 共军极可能即将攻台
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2399347/)
+## 南希·佩洛西访台 促使中共侵台 与美国对抗到底
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2399516/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-\*美国众议院议长南西-裴洛西将于4月26号访问台湾！
+撰稿：雅典娜农场-小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.29.38-PM.png)
+2022年4月21日，郭文贵先生在直播中提到，美国众议院议长南希·佩洛西准备4月26号登陆台湾，同时美方第一次在外交上明确表示，不在乎中共对佩洛西访台计划的严重关切和抗议，让习近平不打台湾的可能性已经没有了。习如果不进攻台湾，一方面可能被党内其他势力消灭，另一方面，台湾可能一步步走向独立，中共就会彻底灭亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388615.jpg)
+目前各种形势都在逼迫习近平攻打甚至摧毁台湾，中共同时表示，佩洛西访台将成为中美之间关系，甚至世界形势的一个分水岭，表明中共已经下定决心跟美国对抗到底了。
 
-\* 台海危机加剧。 4月26到5月6，是关键的时间点，中共恐发起攻台军事行动。
+参考链接：[4/21/2022 文贵直播：习不打台湾的可能性已经没有了](https://gettr.com/post/p16iabd492b)
 
-\* 中共近期利用股市疯狂套钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-206.jpg)
 
-如台海战争爆发，大陆和香港经济崩溃，北京必封锁戒严，更不用说几个关键省市。能离开的，尽快离开！
+编辑/总编/审核：飞虹
 
-视频来源: 20220421—郭先生大直播
-视频制作: 文星光
-文案:文星光
-
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.29.38-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
