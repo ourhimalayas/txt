@@ -15,61 +15,61 @@
 
 ---
 
-### [BBC报道中共删除上海“四月之声”视频](/content/gnews/1/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-1）](/content/gnews/2/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子](/content/gnews/3/README.md)
+### [BBC报道中共删除上海“四月之声”视频](/content/gnews/2/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-1）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-3）](/content/gnews/4/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-3）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-2）](/content/gnews/5/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-2）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-1）](/content/gnews/6/README.md)
+### [2022/04/23 英喜时事速递](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-1）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-3）](/content/gnews/7/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-3）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-2）](/content/gnews/8/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-2）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-1）](/content/gnews/9/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（B-1）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4.19断播五周年特别直播速记精萃（下）](/content/gnews/10/README.md)
+### [4.19断播五周年特别直播速记精萃（下）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（A）](/content/gnews/11/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（A）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十九）](/content/gnews/12/README.md)
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十九）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈孟建柱（五十一）](/content/gnews/13/README.md)
+### [文·贵天成——文贵先生谈孟建柱（五十一）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声](/content/gnews/14/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十八）](/content/gnews/15/README.md)
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（四十八）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国军管开始了](/content/gnews/16/README.md)
+### [中共国军管开始了](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本密切关注中共在太平洋岛屿地区的行动](/content/gnews/18/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [樱花时政┃日本熊本举行亚太水务峰会，岸田首相会见三国总理](/content/gnews/19/README.md)
+### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/20/README.md)
