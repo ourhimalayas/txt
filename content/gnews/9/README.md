@@ -2,33 +2,19 @@
 ---
 
 
-## 调查显示加拿大保守派人士更加反对政府监控
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400663/)
+## 摔落的共军战机为何有外国飞行员？
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2400871/)
 
-##### 作者：加拿大温哥华扬帆农场 – 活力人生
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据【卡尔加里先驱报】4月21日报导，由 Modus Research 进行的一项民意调查显示，意识形态偏右的加拿大人比左翼人士更加反对政府对民众的监控。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2968.png)
-总体而言，有 47% 的受访者表示，他们高度关注政府对加拿大人的监控。根据政治派别细分，右倾的加拿大人中关注此问题的比例达到 76%，而中间派和左派的比例分别为 48% 和 35%。
+今天在中共国河南商丘市虞城县镇里固乡，一架战斗机坠毁！飞机上的两名飞行员成功跳伞。最令人震惊的是其中一名飞行员居然是外国人！
 
-受访者还被问及他们反对何种政府监控形式。参与调查的大多数加拿大人均反对任何形式的政府监控，只有公共场所的视频监控获得了少数人的支持。调查还发现性别、教育程度都会影响受访者的选择，但总体而言政治观点在人们的反应中起到了最大的影响。
+郭文贵先生是最早向全世界爆料中共的战机雇佣外国飞行员。在航母上起飞舰载机的是个巨大的挑战。因为中共仿冒的发动机功率不够，推力不足以在航母上短距离起飞，中共国自己培养的飞行员不足以驾驭这样高难度的飞行。中共为了对国内民众洗脑，宣扬自己军队威威、不可一世，雇佣了很多俄罗斯飞行员来协助共军，甚至连舰载机也是直接租用俄罗斯的。
 
-新闻链接：
+今日坠击机事件又一次证明郭文贵先生爆料的真实性和郭文贵情报的精准性！！这也再一次验证了爆料革命告诉全世界的中共是纸老虎，中共军队的无能和共产党的找爹文化本质！！自己的军人无能需要找外国人帮忙？！这不就是共产党的找俄爹的本性吗？
 
-[https://calgaryherald.com/news/canada/canadian-conservatives-more-opposed-to-government-surveillance-than-the-left-poll](https://calgaryherald.com/news/canada/canadian-conservatives-more-opposed-to-government-surveillance-than-the-left-poll)
+这次摔落的飞机从影像资料上看，很像中共的歼-15NA战轰机。它是中共在3个月前专门为航母而升级的舰载版本，其原型机也称歼-17，其定位接近于俄罗斯的苏-34，也是两名飞行员，这符合现场为什么会出现两名飞行员的情况。
 
-上传/发稿 – 文永
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+关于事件进一步进展和揭秘，敬请期待郭先生更多精彩爆料。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
