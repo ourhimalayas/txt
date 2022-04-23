@@ -2,51 +2,31 @@
 ---
 
 
-## “普京总统违反一切国际法”俄罗斯人的反战之声（C-2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400101/)
+## 有声|《铁锁梦》MV荣登多国iTunes榜首
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2400221/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-上一篇：[“普京总统违反一切国际法”俄罗斯人的反战之声（C-1）](https://gnews.org/zh-hans/2400093/)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+继《灭共的雪》和《铁锁梦》两首单曲同时上榜，且连续多日占领多个国家和地区iTunes排行榜前列，震撼中共和世界音乐界，《铁锁梦》MV版本于4月19日当天正式上榜。
 
-普京总统的宣传通过国营电视台不断增加。反对战争和普京总统政策的人开始被逮捕。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-439-scaled.jpeg)图片来源网络
-(3)发出抗议的声音有什么风险？
+截至4月20日，《铁锁梦》MV已荣登美国、加拿大、日本、英国、香港等23个国家和地区MV总榜、MV流行曲榜第一名。
 
-只要被处以高额罚款就可以了。在最坏的情况下，我会被拘留和伤害我的亲属。而且，在最坏的情况下，我也会被击杀吧。
+让我们再接再厉，努力打榜，以歌灭共！
 
-我只希望不会那样。
+文字版原文：[《铁锁梦》MV荣登多国iTunes榜首](https://gnews.org/zh-hans/2390430/)
 
-(4)虽然有风险，但为什么要说话？
+音频处理：Fei797
+发稿：Fei797
 
-因为我反对战争。我希望生活在一个自由和民主的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-我不希望平民被杀，特别是孩子被杀。
-
-一般，不喜欢有常识的俄罗斯人在世界上被排挤。而且，“俄罗斯”这个词和“战争和支配者”这个词联系在一起是很讨厌的。
-
-(5)你怎么看待现在的政权？
-
-大约20年前，我和我的朋友说：“普京总统打算把我们拉回1937年。”这正在发生。因为那是斯大林开始抑郁的一年。
-
-下一篇：[“普京总统违反一切国际法”俄罗斯人的反战之声（C-3）](https://gnews.org/zh-hans/2400150/)
-
-采访链接：
-[采访说明 “普京总统违反一切国际法” 俄罗斯人的反战之声](https://gnews.org/zh-hans/2400004/)
-[受访人A：“我不能不发出声音”](https://gnews.org/zh-hans/2400041/)
-[受访人B：“总统让世界陷入混乱”](https://gnews.org/zh-hans/2400068/)
-[受访人D：“我为政府的行为感到羞愧”](https://gnews.org/zh-hans/2400169/)
-
-参考链接：[「プーチン大統領はあらゆる国際法に違反」ロシア人反戦の声 | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220421/k10013589841000.html)
-
-* * *
-
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
