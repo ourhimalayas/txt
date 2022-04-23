@@ -2,22 +2,23 @@
 ---
 
 
-## 櫻花FM｜苏州或成为下一个“动态清零”的城市
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2395062/)
+## 喜币KYC流程详解
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2395265/)
 
-**音頻：東京櫻花團/戰友520**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5769F62F-5549-4058-91DF-AC103F8A570D.jpeg)
-4月14日每日经济报报道，苏州市召开中共病毒（新冠病毒Covid-19）疫情防控新闻发布会。苏州市委常委、市政府常务副市长顾海东通报：根据当前疫情防控形势，近几日苏州市持续组织开展了大规模的全员核酸检测，4月12日苏州市核酸采样1042.7万人次，4月13日核酸采样757.4万人次。今天（4月14日）继续开展重点区域核酸检测，截至15时，苏州全市重点区域核酸采样772万人次。苏州市本轮疫情累计追踪排查在苏州密接19163人，次密接33150人。苏州全市现有封控区138个、管控区100个、防范区14个。
+作者：香草山商业部–天情老人情早
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-481.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-203.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-174.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-158.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-70.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-42.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-49.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-29.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/1314.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/17-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/19-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/20-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/21-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/22-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/23-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/25-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/29-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/30-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3233.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/34-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/35-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/36-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/37-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/38-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3940.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/40-2.jpg)
+编辑/审核/发稿：Bronx Bombers
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
+**更多资讯，更多关注**
 
-4月14日0时至15时，苏州全市新增阳性感染者16例，涉及7个县级市（区），截至2020年11月1日，苏州市常住人口为12748262人，与2010年第六次全国人口普查的10459890人相比，十年共增加2288372人，增长21.88%，年平均增长率为2.0%，截至2019年，苏州市实现地区生产总值（GDP）19235.80亿元，按可比价格计算，比上年同期增长5.6%。分产业看，2019年第一、二、三产业分别实现增加值196.70亿元、9130.18亿元、9908.92亿元，增速分别为-6.5%、5.1%和6.3%。2020年8月，名列上半年中共国GDP十强。这将是继武汉，香港，深证，长春，上海后，又一个因中共病毒和疫苗后遗症导致中共采取将要封城的城市。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-中共当前的所谓的“动态清零”疫情防控政策，不仅会造成大规模人道灾难，还在客观上顺应了全世界遏制中共国的大战略部署，包括像特区的深圳，直辖市的上海，苏州等核心工业区全面停工停产，高速全面封路等，造成的结果是封断供应链，将海外订单赶走，打击国内企业信心，逼迫企业外迁，吓退外来投资，然后流失掉众多人才……中共天天洗脑宣传世界要处心积虑围堵中共，最后却让中共自己促成围堵遏制自己。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**文字版原文：**[**樱花时政┃苏州或成为下一个“动态清零”的城市**](https://gnews.org/zh-hans/2347687/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**編輯：東京櫻花團/Calvin**
-**發佈：東京櫻花團/Calvin**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

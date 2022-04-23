@@ -2,27 +2,20 @@
 ---
 
 
-## 中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397515/)
+## 秘翻在线：德国央行称如果中断俄罗斯产天然气进口，经济将陷入停滞
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2397528/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，荷兰法院宣布，俄罗斯拥有的阿姆斯特丹贸易银行(Amsterdam Trade Bank)破产，主要因这家银行卷入有关乌克兰战争制裁的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-137.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpreview.redd.it%2Fdq12d56xc4v81.png%3Fwidth%3D640%26crop%3Dsmart%26auto%3Dwebp%26s%3D9dd306d51a83569b59e50aa5845b1ef05c8f08ee&amp;imgrefurl=https%3A%2F%2Fwww.reddit.com%2Fr%2Fukraine%2Fcomments%2Fu9kkzx%2Famsterdam_trade_bank_a_subsidiary_of_russias_alfa%2F&amp;tbnid=eOJeu1nyjnXw3M&amp;vet=12ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ..i&amp;docid=HOcmNfkrEGbSnM&amp;w=640&amp;h=320&amp;itg=1&amp;q=Amsterdam%20Trade%20Bank&amp;ved=2ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ)
-阿姆斯特丹地方法院周五裁定，俄罗斯最大民营商业银行阿尔法银行(Alfa Bank)所属的阿姆斯特丹贸易银行破产，且获得荷兰中央银行证实。荷兰央行指出，阿姆斯特丹贸易银行成立于1994年，拥有约23000名客户。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-47.jpg)图片来源：本文链接
+据韩媒《金融新闻》4月23日的消息，根据英国《卫报》22日（当地时间）报道，德国中央银行在最近的报告书中预测，如果欧盟（EU）立即切断俄罗斯产天然气进口，今年德国将蒙受1650亿欧元的损失。因此，预计国内生产总值(GDP)将比前一年减少2%，陷入停滞状态。
 
-美国4月6日针对俄罗斯联邦储蓄银行(Sberbank)与阿尔法银行等俄罗斯银行实施严苛制裁，冻结其与美国金融体系有关的所有资产，阿姆斯特丹贸易银行也受到英国制裁的影响。
+乌克兰战争开始前，俄罗斯天然气占德国使用量的55%。其中约三分之一用于钢铁和化学等产业生产。报告中也表达了担心，短期内很难替代俄罗斯天然气，“天然气价格也有可能上涨至最高”，物价上涨率在更长时间内也会相当高。
 
-消息来源:[俄羅斯不敵制裁！俄屬阿姆斯特丹貿易銀行宣告“破產” 北約法律顧問：須再認定種族屠殺罪行](https://news.fx168news.com/politics/2204/5841375.shtml)
+德国经济部长罗伯特·哈贝克警告说：“如果停止进口俄罗斯的原油和天然气，不仅会造成大量失业和贫困，还会出现无法在家取暖、汽油不足的人”。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+信息来源：[https://www.fnnews.com/news/202204231058277126](https://www.fnnews.com/news/202204231058277126)
+
+责编：Eric Kim
 
  
 

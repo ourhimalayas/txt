@@ -2,29 +2,40 @@
 ---
 
 
-## 西澳州长的孩子因感染中共病毒重症入院
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2398377/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2398467/)
 
-**整理报道：**翼族
+#### **整理：枳实****
+****美工：精灵蓝**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/fda790c7953bce92c265d2d2675124eb5c1987d3-16x9-x0y226w4341h2442.jpg)Sound Telegraph
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
 
 
-自中共病毒（COVID-19）疫情以来，西澳大利亚州政府一直推行疫苗强制政策。2022年一月份，西澳州长麦高恩（Mark McGowan）在新闻发布会上公布了疫苗接种的最新规则，要求西澳州16岁及以上的人在一些公共场所和工作场所必须提供接种两剂的疫苗接种证明，除非获得疫苗接种豁免。
+雅典娜疫情更新（2022年 4月22日）
 
-虽然西澳州的接种率一直在增加，但是西澳州的确诊病例却并没有减少。西澳大利亚州于过去的24小时记录了8777例新病例和5例新增死亡病例。目前该州有42613例活跃病例，258人住院，其中9人在重症监护室。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-本周五（4月22日）麦高恩州长办公室证实州长的核酸检测PCR结果呈阳性，后来州长办公室透露麦高恩州长三个孩子中的一个因病重而入院。州长办公室的该份声明中写到：“**这位孩子已完全接种疫苗，但由于感染而病情严重。**孩子仍在医院接受治疗。在这个困难时期，麦高恩家庭要求就该事项予以保密。”
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
 
-据悉，麦高恩州长有三个孩子——两个儿子和一个女儿。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-95.png)图片：雅典娜农场设计组 精灵蓝
 
-*发布：翼族*
 
-参考链接：[WA Premier Mark McGowan’s child admitted to hospital in serious condition with COVID-19](https://amp.abc.net.au/article/101008148)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-32.png)图片：雅典娜农场设计组 精灵蓝
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[ovidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 

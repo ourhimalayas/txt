@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 2:29 PM (UTC)`
+
+新中国联邦｜真人真事 第50期  华盛顿DC农场 Longwood大根<br/>同传English: https://gettr.com/streaming/p16rd9t2713
+![img](https://media.gettr.com/group20/origin/2022/04/23/13/75a7f04c-6c8a-e769-09e5-9b5eecfecd0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 1:41 PM (UTC)`
 
 04/23/2022 on the 5th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 9 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月23号，《铁锁梦》MV在全球上线第五天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>9国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2398694/
@@ -146,13 +153,6 @@
 
 【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案
 ![img](https://media.gettr.com/group8/getter/2022/04/22/23/8aaae5a9-060d-b995-7e72-050cf7f5df0f/out.jpg)
-
----
-
-`@miles 4/22/2022 11:10 PM (UTC)`
-
-2022.04.22  NFSC news  Canadian Media Covers NFSC’s Ukrainian Rescue Operation
-![img](https://media.gettr.com/group3/origin/2022/04/22/22/cac28c05-7dde-5795-4ec1-37596e58a683/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
