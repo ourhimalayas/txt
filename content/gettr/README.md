@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 11:36 PM (UTC)`
+
+2022.04.23 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+![img](https://media.gettr.com/group9/origin/2022/04/23/23/d0d017b2-1964-27a6-de7a-a12c2eaaf0ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 11:00 PM (UTC)`
 
 2022.04.23  PM NFSC news  NFSC may Establish Embassies in Ukraine and Poland
@@ -146,13 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 2022.04.23早  新中国联邦 | 新闻  
 ![img](https://media.gettr.com/group18/origin/2022/04/23/12/fea60e16-7539-cefc-bf19-3d72f747fd4a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 12:02 PM (UTC)`
-
-2022.04.23  AM NFSC news   Nancy Pelosi to visit Taiwan on April 26th, CCP threats as "watershed" 
-![img](https://media.gettr.com/group38/origin/2022/04/23/11/7f1d08f6-038f-39f3-9a28-e9fbfcb48642/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

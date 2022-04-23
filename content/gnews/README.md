@@ -15,95 +15,95 @@
 
 ---
 
-### [灭共漫画——习屠夫](/content/gnews/1/README.md)
+### [谈古论今 | 修成菩萨相——女性的最高境界](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20220423郭文贵乱聊直播 ：北京绝对会被隔离未来将进行全国性的压力测试](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4月23日乌克兰救援行动（图片1-15）](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
+
+### [20220423郭文贵乱聊直播 ：4月26日佩罗西访台不一定成功](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [制裁打击俄罗斯经济，尽管普京不这么说](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [20220423郭文贵乱聊直播 ：北京实行军管 掩盖疫苗造成的大量人员死亡](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [灭共漫画——习屠夫](/content/gnews/7/README.md)
  ` MOS Designer香草山设计部`
 
-### [评《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》](/content/gnews/2/README.md)
+### [评《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种](/content/gnews/3/README.md)
+### [疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月23日早](/content/gnews/4/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月23日早](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [2022年4月23日七哥临时直播摘要及音频—银河系农场](/content/gnews/5/README.md)
+### [2022年4月23日七哥临时直播摘要及音频—银河系农场](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [哪些国家在 2021 年获得了最多的加密货币收益？](/content/gnews/6/README.md)
+### [世界医学协会力挺台湾参加世界卫生大会](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [哪些国家在 2021 年获得了最多的加密货币收益？](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [安省劳工仲裁员为企业解雇未打疫苗员工开绿灯](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [大卡车运动期间，大部分对渥太华警方的投诉被驳回](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [摔落的共军战机为何有外国飞行员？](/content/gnews/9/README.md)
+### [摔落的共军战机为何有外国飞行员？](/content/gnews/14/README.md)
  ` 蓝莲花农场`
 
-### [上海新冠病毒隔离营中绝望的野营床](/content/gnews/10/README.md)
+### [上海新冠病毒隔离营中绝望的野营床](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [最新报告显示，疫苗接种后出现史无前例的运动员晕倒和死亡案例](/content/gnews/11/README.md)
+### [最新报告显示，疫苗接种后出现史无前例的运动员晕倒和死亡案例](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/12/README.md)
+### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/04/23 文贵先生盖特精要](/content/gnews/13/README.md)
+### [2022/04/23 文贵先生盖特精要](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国外长和防长将于周日到访基辅](/content/gnews/14/README.md)
+### [美国外长和防长将于周日到访基辅](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号](/content/gnews/15/README.md)
+### [4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/16/README.md)
+### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/17/README.md)
+### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/18/README.md)
- ` MOS香港部`
-
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/19/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.23 俄乌战事汇总](/content/gnews/20/README.md)
+### [截至4.23 俄乌战事汇总](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/21/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/23/README.md)
+### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海即将解封 之后将进行政治清算](/content/gnews/24/README.md)
- ` 焦點20分`
-
-### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/25/README.md)
+### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/26/README.md)
+### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/27/README.md)
+### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/28/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [BBC报道中共删除上海“四月之声”视频](/content/gnews/29/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [2022/04/23 英喜时事速递](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中共国军管开始了](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`

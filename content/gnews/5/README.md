@@ -2,61 +2,70 @@
 ---
 
 
-## 2022年4月23日七哥临时直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2401044/)
+## 制裁打击俄罗斯经济，尽管普京不这么说
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2401250/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220423_副本.png)
-视频连接：[2022年4月23日 七哥乱聊](https://gettr.com/streaming/p16qngm5663)
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1128492268_16479357587771n-edited.jpg)图片来自网络
 
-1 、北京真正的感染情况是，每天至少一万到两万；
+在俄乌战争爆发近两个月后，克里姆林宫采取了非同寻常的措施来阻挡西方的经济反击。虽然俄罗斯可以宣称取得了一些象征性的胜利，但西方制裁的全部影响已经开始以非常真实的方式体现出来。
 
-2、现在在北京，过去两周内，已经进驻的部队有6万多人。而且是“驻扎式的进入”；
+随着西方国家切断俄罗斯的外汇储备，限制关键技术的进口并采取其他限制性行动，克里姆林宫采取了一些严厉的措施来保护经济。这些措施包括将利率提高到20%，实行资本控制，并迫使俄罗斯企业将其利润兑换成卢布。
 
-3 、现在所谓的“阳性”，几乎全部是疫苗导致的；
+结果，卢布的价值在最初的暴跌之后有所恢复，上周中央银行撤销了部分加息。俄罗斯总统弗拉基米尔-普京感到有恃无恐，并宣称–唤起二战的想象–该国经受住了西方制裁的“闪电战”。
 
-4、国内战友，冒着生命的危险和代价，一次次的送出消息；
+印第安纳大学经济学教授迈克尔-阿列克谢耶夫（Michael Alexeev）说：“政府想描绘出这样一幅画面：事情没有实际情况那么糟糕。”他研究了苏联解体后转型期的俄罗斯经济。
 
-5、共产党非常清楚，这次上海，北京，就是疫苗灾难的最早期阶段、上海还会有N次隔离！
+然而，仔细观察就会发现，制裁正在对俄罗斯的经济造成伤害：
 
-6、上海，广州，苏州，杭州，深圳，北京，武汉，郑州，大连，青岛，会有无数次隔离。理由是，这些城市的疫苗普及率太高，洋疫苗打得也太多；
+- 该国正在经受二十年来最严重的通货膨胀袭击。国家的经济统计机构Rosstat说，上个月的通货膨胀率达到17.3%，是2002年以来的最高水平。相比之下，国际货币基金组织预计今年发展中国家的消费价格将从去年的5.9%上升到8.7%。
+- 一些俄罗斯公司已经被迫停业。多份报告称，一家坦克制造商由于缺乏零部件而不得不停止生产。美国官员指出，拉达汽车厂的关闭–这是俄罗斯公司Avtovaz生产的品牌，由法国汽车制造商雷诺公司控股–是制裁产生影响的一个迹象。
+- 莫斯科市长说，由于外国公司关闭业务，该市将损失20万个就业机会。300多家公司已经撤出，在集装箱公司马士基、UPS、DHL和其他运输公司退出俄罗斯后，国际供应链已基本关闭。
+- 俄罗斯正面临着历史性的债券违约，这可能会使该国在几年内被冻结在债务市场之外。
 
-7、这是一次全国性的所谓压力测试，这叫 新时代的国家管理模式，  网络控制，防火墙，建立供销社，建立粮食通道，垄断网上交易，关闭支付宝，彻底控制微信；
 
-8、建议战友能不动就别动。但要保证有网络，水，药，粮食，能源；
+同时，财政部官员和大多数经济学家敦促耐心等待，制裁需要几个月的时间才能产生全面效果。如果俄罗斯在一段时间内无法获得适当数量的资本、零部件或供应品，这将导致更多的工厂和企业关闭，导致失业率上升。
 
-9、估计北京会隔离1-2个月，不会太长，但是解封后还会再隔离，反反复复搞几次；
+在俄罗斯因2014年夺取乌克兰克里米亚半岛而受到制裁后，其经济数据花了近一整年时间才显示出困境的迹象，如通货膨胀率上升、工业生产下降和经济增长放缓。
 
-10、 所有银行都是共产党控制，会限制额度，限制取现。特别是企业的大额交易都不允许；
+“坦率地说，我们应该寻找的东西，以了解制裁是否有效，现在还不容易看到”，弗吉尼亚州威廉和玛丽学院的经济学教授大卫-费尔德曼说。“我们要看的是商品的价格，他们生产的商品数量和商品的质量。最后一项是最难看到的，也可能是最后出现的”。
 
-11、美国所有的问题将集中在中期大选期间，政治上会有一系列大行动；
+关于制裁如何影响俄罗斯经济的透明度是有限的，这主要是因为克里姆林宫采取了非同寻常的手段来支撑它，其最大的部门–石油和天然气–由于欧洲、中共国和印度对俄罗斯能源的依赖而基本没有受到影响。
 
-12、习近平相信莫德尔周期，会趁美国混乱 拿下台湾，拿下亚洲，推广人民币和金砖国的金融系统，把上合组织推广为替代美国的组织；
+国际金融研究所的经济学家Benjamin Hilgenstock和Elina Ribakova在上个月发布的一份报告中估计，如果欧盟、英国和美国禁止俄罗斯的石油和天然气，俄罗斯经济今年可能收缩20%以上。目前的预测是收缩15%。
 
-13、4月26日，南希佩罗西能否顺利访台，现在来看，不一定。
+虽然欧盟已经同意在8月前禁止俄罗斯的煤炭，并正在讨论对石油的制裁，但到目前为止，27个国家在停止石油和天然气方面还没有达成共识。欧洲对俄罗斯供应的依赖程度远远超过英国和美国，这两个国家已经禁止或正在逐步淘汰俄罗斯石油。同时，俄罗斯用石油和天然气每天从欧洲获得8.5亿美元。
 
-**注：大直播音频——**
+这并不是俄罗斯第一次全力维护卢布的价值，将其作为抵抗西方的象征。在整个20世纪70年代和80年代，苏联的官方汇率是1卢布约等于1.35美元，而黑市汇率则接近1美元兑4卢布。1990年代末的俄罗斯债务危机也部分是由克里姆林宫积极维护货币价值造成的。
 
-编辑整理：柚子；
+美国财政部官员否定了卢布复苏的意义。
 
-发布：黎明之前；
+财政部长珍妮特-耶伦(Janet Yellen)说：“俄罗斯经济确实因我们实施的制裁而陷入困境，卢布的价值因中央银行的干预而被人为地抬高。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+如果俄罗斯赢得这场经济战争，以及如何赢得这场经济战争，将取决于克里姆林宫是否能在西方国家推动分裂，使制裁变得零散和不那么有效。同时，俄罗斯将有时间为其无法再获得的商品开发替代品，这一概念被称为进口替代。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+回顾2014年的制裁，美国国会研究服务部在1月份说，对俄罗斯的影响不大，只是因为美国有效地单独行动。这一次，有多个国际参与者。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+但印第安纳大学教授Alexeev认为有一个明显的差距。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+“只要俄罗斯能够继续出售石油和天然气，他们就会蒙混过关”，他说。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+**新闻来源：**[Sanctions hit Russian economy, although Putin says otherwise](https://fortune.com/2022/04/23/sanctions-hit-russian-economy-although-putin-says-otherwise/)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+* * *
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+审核：Aries的星
+校对：阿伯塔
+发布：信心的选择
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
  
 
