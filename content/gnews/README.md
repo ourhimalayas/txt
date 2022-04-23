@@ -15,137 +15,137 @@
 
 ---
 
-### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/1/README.md)
- ` MOS香港部`
-
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [截至4.23 俄乌战事汇总](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [《权利和自由宪章》纪念会议以尖锐的言辞结束](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [上海即将解封 之后将进行政治清算](/content/gnews/10/README.md)
- ` 焦點20分`
-
-### [装置作品《成都双年展作品（三）》](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/12/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [习近平为何决心打台湾](/content/gnews/13/README.md)
- ` 焦點20分`
-
-### [有声|《铁锁梦》MV荣登多国iTunes榜首](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [普京向西方发出和解信号 习普联盟破裂 习近平将毁了台湾](/content/gnews/16/README.md)
- ` 焦點20分`
-
-### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/17/README.md)
- ` 秘密翻译组-原创组`
-
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [BBC报道中共删除上海“四月之声”视频](/content/gnews/19/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-1）](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子](/content/gnews/21/README.md)
+### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-3）](/content/gnews/22/README.md)
+### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [泽连斯基向美国寻求重型武器](/content/gnews/3/README.md)
+ ` Shuizhuyu`
+
+### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/4/README.md)
+ ` MOS香港部`
+
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-2）](/content/gnews/23/README.md)
+### [截至4.23 俄乌战事汇总](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生寄语NFSC乌克兰救援活动展望中国人的未来](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
-
-### [2022/04/23 英喜时事速递](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-1）](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国军管开始了](/content/gnews/27/README.md)
+### [《权利和自由宪章》纪念会议以尖锐的言辞结束](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|普习两魔头的结盟及其给世界带来的灾难（十）](/content/gnews/28/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/29/README.md)
+### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|乌克兰驻新西兰大使馆官员向新中国联邦、法治基金表示感谢](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [上海即将解封 之后将进行政治清算](/content/gnews/13/README.md)
+ ` 焦點20分`
+
+### [装置作品《成都双年展作品（三）》](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/15/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [习近平为何决心打台湾](/content/gnews/16/README.md)
+ ` 焦點20分`
+
+### [有声|《铁锁梦》MV荣登多国iTunes榜首](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [普京向西方发出和解信号 习普联盟破裂 习近平将毁了台湾](/content/gnews/19/README.md)
+ ` 焦點20分`
+
+### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/20/README.md)
+ ` 秘密翻译组-原创组`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [BBC报道中共删除上海“四月之声”视频](/content/gnews/22/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-1）](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-3）](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（C-2）](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭先生寄语NFSC乌克兰救援活动展望中国人的未来](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022/04/23 英喜时事速递](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国军管开始了](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|普习两魔头的结盟及其给世界带来的灾难（十）](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/30/README.md)
+### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/31/README.md)
+### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/32/README.md)
  ` 经济小组`
 
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/32/README.md)
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/33/README.md)
+### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/34/README.md)
  ` 温哥华扬帆农场`
 
-### [2022年4月23日七哥乱聊直播文字版](/content/gnews/34/README.md)
+### [2022年4月23日七哥乱聊直播文字版](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/35/README.md)
+### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [俄乌战争之后体制内多数人相信新中国联邦能够灭共](/content/gnews/36/README.md)
+### [俄乌战争之后体制内多数人相信新中国联邦能够灭共](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/37/README.md)
+### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/38/README.md)
  ` thedawn`
-
-### [北上广深军管戒严，用中共病毒掩盖疫苗灾难](/content/gnews/38/README.md)
- ` 银河歌舞厅`
 
 ### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共打算在美国中期选举之时大闹世界](/content/gnews/40/README.md)
- ` 银河歌舞厅`
-
-### [美欧日经济周报（4月18日～4月22日）](/content/gnews/41/README.md)
+### [美欧日经济周报（4月18日～4月22日）](/content/gnews/40/README.md)
  ` 经济小组`
 
-### [秘翻新闻｜股票债券汇率集体暴跌 中共国市场陷入痛苦期](/content/gnews/42/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/43/README.md)
+### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/44/README.md)
+### [有声|研究表明疫情封锁无效 有害无益](/content/gnews/42/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
+
+### [五角大楼：预计乌克兰战争将长期化](/content/gnews/44/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
