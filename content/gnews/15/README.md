@@ -2,38 +2,40 @@
 ---
 
 
-## 中日财经爆| 印尼宣布禁止食用油出口 对中共国杀伤力巨大
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397423/)
+## 新冠患者3成有后遗症
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397474/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-175.jpg)[图片来源](https://www.dw.com/en/indonesia-bans-palm-oil-exports/a-61566183)
-4月22日，印尼总统佐科·维多多(Joko Widodo)宣布停止食用油及其原材料的出口，以控制不断飙升的国内价格，从4月28日起，印尼将实际上禁止棕榈油出口，直至另行通知。
+撰稿：东京樱花团/立正道
 
-数据显示，2021年中共国内超过70%的棕榈油进口来自印尼，印尼的出口对中共国内棕榈油市场的重要性不言而喻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2865.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fthehill.com%2Fwp-content%2Fuploads%2Fsites%2F2%2F2022%2F03%2Fmr_covidvaccine_092721_ap-seth-wenig.jpg%3Fw%3D1280&amp;imgrefurl=https%3A%2F%2Fthehill.com%2Fpolicy%2Fhealthcare%2F3459664-quarter-of-us-covid-1)
 
-印尼此前在1月底出台了限制棕榈油出口的举措，后来在3月份取消了这一举措，限制措施一度将全球棕榈油价格推至历史高位。
+近日，美国研究机构数据表明，中共病毒（新冠病毒）患者中有3成患有后遗症。该项研究结果由美国UCLA的Sun M.Yoo等人针对感染后急性后遗症(PASC)相关的研究而得出的结论。
 
-印尼的食用油主要来自棕榈油，而印尼是全球最大的棕榈油生产国和出口国。印尼为保证国内供应而采取的措施令全球市场感到不安。
+**症状持续60天以上**
 
-在一个简短的视频广播中，维多多说，这项政策的目的是确保国内食品的供应。他说:“我将监督和评估这一政策的执行情况，这样国内市场的食用油供应就会变得充足和实惠。”
+在美国，老年人、少数民族、社会弱者中COVID-19导致的死亡率很高，但是对称为Long COVID和PASC的关系一无所知。因此，Yoo等人对症状性COVID-19患者进行了PASC相关的研究。
 
-印尼宣布禁令后，美国豆油期货上涨超过3%，达到每磅84.03美分的历史新高；棕榈油期货快速拉升，涨超7%。
+**倦怠感最多**
 
-夜盘开盘，由于印尼食用油及原料出口禁令，中共国内油脂商品多数上涨，棕榈、豆油主力合约涨近3%，菜油涨近2%，跌幅方面，甲醇主力合约跌超2%。
+调查的结果显示，住院患者800例中246例(30.8%)，外来患者238例中63例(26.5%)，整体1,038例中309例(29.8%)被认定为PASC（后遗症）。
 
-消息来源:[突發！全球最大棕櫚油出口國禁止食用油出口 油脂商品大漲、今後恐連油也吃不起了？](https://news.fx168news.com/politics/international/2204/5841120.shtml)
+出院/门诊30天后的调查报告，急性COVID-19感染者症状中,最频繁的是倦怠感73.2%。其次,呼吸短促63.6%,发热、寒51.5%,肌肉痛50.6%。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+出院/门诊60-90天后发现PASC的患者中，最多的症状是倦怠感(31.4%)，接着是呼吸短促(13.9%),味觉/嗅觉障碍(9.8%)。发热(1.9%)和疹子(不到1%)很少。
 
+根据出院/门诊患者的不同，看PASC症状,两群的倦怠感最多，住院患者的呼吸短(15.4%)，外来患者的味觉/嗅觉障碍(15.9%)是第二多。
 
+年龄、种族/民族、SVI、有无基础代谢病与PASC的发病无关。
 
+Yoo先生表示:“这次我们的研究显示,每10名COVID-19患者中有3人出现与PASC的症状,最频繁的是倦怠感。作为与PASC相关的独立因子,通过COVID-19提取了住院、糖尿病、BMI高值。但是,与COVID-19重症及死亡、高龄、少数民族、社会弱者, 与PASC没有关联。
+
+此外，“这项研究了解Long COVID的轨迹,现有并存疾病、社会人口统计学因素、疫苗接种情况、病毒变异型等个别因素，以及是如何影响Long COVID症状的种类和持久性。因为患者仍末完全健康，有必要长期地追踪各种患者。
+
+信息来源：[コロナ患者の3割が後遺症を発症](https://medical-tribune.co.jp/news/2022/0421545347/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220422)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

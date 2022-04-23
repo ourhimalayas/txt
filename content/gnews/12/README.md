@@ -2,32 +2,30 @@
 ---
 
 
-## 联合国：俄军在布查“杀害”50人 甚至有地区达到300人（上）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2397469/)
+## 俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2397512/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
-联合国驻巴切雷人权事务高级专员22日在一份声明中宣布，俄罗斯军队入侵并暂时占领的乌克兰首都基乌(基辅)近郊布贾，通过“处决”等违法手段，约50名平民被杀。还调查了在其他被占领土上有300多名平民被屠杀的指控。巴切雷指责说：“在入侵开始后的两个月里，国际人道主义法被抛弃了。”
+**港台前线 zhong｜2022-4-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-13.png)
+欧洲理事会主席米歇尔（Charles Michel）20日突访乌克兰外，曾与俄罗斯总统普京电话会谈90分钟，米歇尔呼吁俄停火。此外，他敦促俄乌双方领导人进行直接会谈，对此俄罗斯总统则表示双方直接会谈取决于停火协商的进展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2862.png)图片来源：产经新闻
+联合国方面，秘书长安东尼奥·古特雷斯（ Antonio Guterres）将于周二前往莫斯科与俄罗斯总统普京会面，周四前往乌克兰与总统泽连斯基、外交部长库莱巴（Dmytro Kuleba）会谈。
 
-巴切雷先生说明了管辖的联合国乌克兰人权监测团(HRMMU)实地调查的情况。300多人涉嫌被杀害，包括北部切尔尼希乌和东部的哈尔科夫、斯穆伊等。俄军于2月下旬至3月初占领。
 
-在布查，监测团人员听说了几乎所有的居民都说了亲属和邻居们的死亡。他说：“我们需要继续调查，以挖掘实际情况。”
 
-声明明确表示，俄军对人口密集地区、医院、学校和民用设施进行了“不分青红皂白的攻击”。可能是“战争罪行”，60名平民遇害的本月8日对东部顿涅茨克州克拉马托尔斯克火车站的攻击是“象征性的”。
+> Next week, I will meet with President Vladimir Putin in Russia and President Volodymyr Zelenskyy in Ukraine.
+> 
+> We need urgent steps to save lives, end the human suffering and bring about peace in Ukraine.
+> — António Guterres (@antonioguterres) [April 23, 2022](https://twitter.com/antonioguterres/status/1517687237525352449?ref_src=twsrc%5Etfw)
 
-下一篇：联合国：[俄军在布查“杀害”50人 甚至有地区达到300人（下）](https://gnews.org/zh-hans/2397491/)
 
-参考链接：[露軍ブチャで５０人を「殺害」　３００人疑いの地域も　国連 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220423-DFPGE44TUFPT3LRJPA4EER6LTY/)
+
+来源｜[NHK](https://www3.nhk.or.jp/nhkworld/en/news/20220423_12/)
 
 * * *
 
-素材：宫米叶
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

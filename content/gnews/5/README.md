@@ -2,38 +2,37 @@
 ---
 
 
-## 日本外交报告书称北部争议岛屿“被俄罗斯非法占领”
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2397513/)
+## 有声|中共政权岌岌可危 新中国联邦拯救中国人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397589/)
 
-撰稿：Gradient Boost
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在419五周年大直播中，在谈到五年爆料革命的发展对中共体制的影响时，郭文贵先生表示，自俄乌战争开始起，中共党内很多人士已经意识到，中共政权岌岌可危。中共党内人士清楚地知道，习近平坚定地与普京合作，就是自取灭亡。上海封城事件，让更多体制内人士认识到中共的邪恶本质。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364044.jpg)
+郭先生称，西方世界已掌握所有在中共机关任职人员的相关信息。中共党内人士清楚地知道，一旦攻打台湾，中共将面临更加严厉的国际制裁，与中共有关的海外资产将被查封。 所谓“君子不立于危墙之下”，实际上是中共之墙危在旦夕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/233.jpg)图片来自网络
-日本在周五发布的最新外交报告中将与俄罗斯有领土争议的四个岛屿描述为“被俄罗斯非法占领”——较先前版本的言语更加强烈——并强调俄罗斯入侵乌克兰后两国之间急剧降温的关系。
 
-外务省发布的关于日本外交政策年度报告《2022 年外交蓝皮书》中有关争议岛屿的描述可以说是近 20 年来最严厉的。日本正在努力改善与莫斯科的关系以重新控制千岛群岛，东京称其为北部领土，此前曾以较温和的语气描述这场争端。
 
-如今该报告直接写到：“北方领土是日本拥有主权的一组岛屿，是日本领土不可分割的一部分，但目前它们被俄罗斯非法占领。”
 
-该报告上一次使用类似的表述是在 2003 年，后来措辞稍有缓和，将岛屿争端描述为“日本和俄罗斯之间最大的担忧”，但仍然指出“日本对这些岛屿拥有主权”。
 
-日本与其他七国集团国家一道，对俄罗斯实施了一系列制裁。东京在针对俄罗斯的国际行动中发挥了更大的作用，因为它担心其势力对于东亚的影响。作为回应，俄罗斯最近宣布暂停与东京的和平条约谈判，其中包括就争议岛屿进行谈判。
+文字版原文：[中共政权岌岌可危 新中国联邦拯救中国人](https://gnews.org/zh-hans/2390951/)
 
-另一方面，中共国军队在东亚的活动也开始变得越来越频繁。日本因此也在寻求加强其国防能力和预算，这或将在今年晚些时候成为对日本国家安全战略进行重大修订的一个部分。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-*编辑：**Gradient Boost*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*发稿：**mgjxs*
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新闻参考链接：[AP News](https://apnews.com/article/russia-ukraine-europe-japan-tokyo-moscow-70d175af0c1ff116555d74a636ad3a87)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

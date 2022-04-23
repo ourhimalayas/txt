@@ -2,30 +2,38 @@
 ---
 
 
-## 俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2397512/)
+## 风林往事——骗拆强拆二十年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2397583/)
 
-**港台前线 zhong｜2022-4-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-13.png)
-欧洲理事会主席米歇尔（Charles Michel）20日突访乌克兰外，曾与俄罗斯总统普京电话会谈90分钟，米歇尔呼吁俄停火。此外，他敦促俄乌双方领导人进行直接会谈，对此俄罗斯总统则表示双方直接会谈取决于停火协商的进展。
+#### 作者：在天为风在地为林
+编辑：伏而起之
 
-联合国方面，秘书长安东尼奥·古特雷斯（ Antonio Guterres）将于周二前往莫斯科与俄罗斯总统普京会面，周四前往乌克兰与总统泽连斯基、外交部长库莱巴（Dmytro Kuleba）会谈。
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-91.png)图片来源：pxhere.com
 
 
-> Next week, I will meet with President Vladimir Putin in Russia and President Volodymyr Zelenskyy in Ukraine.
-> 
-> We need urgent steps to save lives, end the human suffering and bring about peace in Ukraine.
-> — António Guterres (@antonioguterres) [April 23, 2022](https://twitter.com/antonioguterres/status/1517687237525352449?ref_src=twsrc%5Etfw)
+基层拆迁占地二十年多年，可以分三个阶段来讲述。
 
+我们北方的发展要比南方发达地区慢很多，1995年左右，开始有第一次中小规模的房地产拆迁。那个时候，房子也不值几个钱，每平方米补800元左右，旧城区私搭的偏房每平方米补500元，院内占地不算钱。如果拆除户回迁换房，两平米旧房子换一平方米新楼房。这些搞拆迁的干部，油水主要来自旧房子换新楼吃的回扣，当时就是万把块，一个小区下来，领头的弄个几十万。
 
+二零年到二零一几年，那可是大疯狂。由于房价一直上涨，土地收储中心的挂地价动辄几百万每亩，拆除价格也水涨船高。旧房子一平米换一平米再平常不过，有的地段换一点五平米。连搭建的偏房也按正房算，院子的土地也能算上好价钱，一户旧大院迁个千万很正常。城边村百万、千万富翁太多了，这些暴发户都买豪车、名表，几乎都换了老婆，到现在人们都还幻想着再来一把，这个时期是腐败和黑势力最赚钱的一段时间。
 
-来源｜[NHK](https://www3.nhk.or.jp/nhkworld/en/news/20220423_12/)
+政府官员和黑社会人员相互勾结，大量的黑钱落入这些人口袋。他们选好城边或城中村，先封锁信息，让一些社会人员进村大量买下旧城穷人或农民的房子，还在村里设赌场拿下很多穷人的房子，然后买通当地城市综合执法局人员，开始大肆搭建，等拆迁通知一出，他们大赚一笔。这时，很多农民和穷市民才知道上当受骗，他们上访告状，可有几个能告得赢？那些社会人员和政府拆迁办都是一伙的！还有一些演艺行业女性，她们出卖肉体傍上拆迁办的头头脑脑，也提前买下一些旧房，或是在一些空地上私建。全国拆迁几乎一个样，就是官匪相互勾结，侵吞贫苦底层的财富。
 
-* * *
+这几年就更绝了，主要靠抢。前些年房价高，拆除费用高，造成城市周边的人们不同程度私建了一些房屋，给这个邪恶组织有了抢劫的理由。不管你私建了多少，这些房子都会被白白拆掉，老百姓连一分钱都拿不到，几十年积累的一点财富一夜之间烟消云散，这也造成了大量访民。政府和黑社会人员继续喝着这些低收入家庭的血，他们每年向政府土地收储中心申请大量的动迁费用，光在机械费用上，虚报百倍都不止，全国上下因暴力拆迁伤亡数字一定是百万级的，可我们能看到几起呀？
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+昨天的骗拆、强拆让国内百姓生活在炼狱般的世界，今天更是雪上加霜，全国重点地区“动态清零”，银行开始抢劫百姓存款。我祈祷万神万佛的正义之剑早日落下，让我们这些生活在魔鬼统治下的奴隶早一点解放！
+
+往期回顾：
+[风林往事——两捆皮筋绳](https://gnews.org/zh-hant/2350383/)
+[风林往事——悲鸣的孤雁](https://gnews.org/zh-hans/2325413/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
