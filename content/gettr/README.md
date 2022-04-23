@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 11:00 PM (UTC)`
+
+2022.04.23  PM NFSC news  NFSC may Establish Embassies in Ukraine and Poland
+![img](https://media.gettr.com/group46/origin/2022/04/23/22/18167c12-f591-4db7-b475-251068d2ff7a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/23/2022 10:56 PM (UTC)`
+
+【Ukraine Rescue】 04/22/2022  An Irish volunteer interviewed by Nicole says: When money talks, truth dies. The mainstream media strictly censors people's speech out of financial interests, so the voice of the New Federal State of China and the true voice of the mainland Chinese people cannot be spread out.<br/><br/>【乌克兰救援】 04/22/2022 妮可采访爱尔兰义工，他说：金钱至上，真相就会死亡。主流媒体出于经济利益严格审查人们的言论，新中国联邦的声音发不出去，国内人民真实的心声发不出去。
+![img](https://media.gettr.com/group21/getter/2022/04/23/22/9cde61cc-8c26-ac99-747d-1c39d9665f83/out.jpg)
+
+---
+
 `@miles 4/23/2022 10:50 PM (UTC)`
 
 【Ukraine Rescue】 04/22/2022 The suspected spy of the Chinese Communist Party cut the billboard wire of our New Federal State of China in the United Nations Migration Agency tent.<br/><br/>【乌克兰救援】 04/22/2022 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
@@ -139,20 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 2022.04.23  AM NFSC news   Nancy Pelosi to visit Taiwan on April 26th, CCP threats as "watershed" 
 ![img](https://media.gettr.com/group38/origin/2022/04/23/11/7f1d08f6-038f-39f3-9a28-e9fbfcb48642/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/23/2022 11:00 AM (UTC)`
-
-【Ukraine Rescue】 04/22/2022 Three volunteers from France express their support for the new Chinese people of the NFSC to overthrow the communist regime. Communism is not beneficial to the Chinese people, nor to the people of the world. It is a difficult task, but with the support of the whole world and with God, anything is possible.<br/><br/>【乌克兰救援】 04/22/2022 三位来自法国的志愿者表达了他们对于新中国联邦的新中国人推翻共产党统治的支持，共产主义对中国人民、对全世界人都没有好处。这是一项艰巨的任务，但有全世界的支持，有上帝在，一切皆有可能。
-![img](https://media.gettr.com/group4/getter/2022/04/23/11/28c43d28-7e0f-7c98-79c2-cb8f50bac2bb/out.jpg)
-
----
-
-`@miles 4/23/2022 10:17 AM (UTC)`
-
-【Ukraine Rescue】 04/20/2022 Tibetan Lama says in front of the big tent of the NFSC & ROLF Ukraine Rescue: Don't have hatred against the Chinese people. The only one who makes the problem is the CCP. They always tells lies to the world, they take away the freedom of the people, and they conduct genocide and destroy the nature. And recently, they destroyed many big statues of Tibet. The Chinese government buys everything. If they continue to do bad things, they will suffer and pay.<br/><br/>【乌克兰救援】 04/20/2022 西藏喇嘛在新中国联邦和法治基金乌克兰救援大帐篷前说：不要恨中国人，唯一要恨的是中国共产党，他们总是向世界撒弥天大谎、剥夺人民的自​​由、种族灭绝、破坏自然。最近，他们毁坏了许多西藏大佛像。中共国政府收买一切。如果他们继续作恶多端，他们就会万劫不复。<br/>
-![img](https://media.gettr.com/group17/getter/2022/04/23/10/baddfdb4-9788-d938-81cc-9f8c97d81566/out.jpg)
 
 ---
 
