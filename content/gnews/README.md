@@ -15,26 +15,26 @@
 
 ---
 
-### [G20加拿大和盟友抵制俄罗斯](/content/gnews/1/README.md)
+### [大卡车运动期间，大部分对渥太华警方的投诉被驳回](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [调查显示加拿大保守派人士更加反对政府监控](/content/gnews/2/README.md)
+### [G20加拿大和盟友抵制俄罗斯](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/3/README.md)
+### [调查显示加拿大保守派人士更加反对政府监控](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大启动Aeroplan基金帮助乌克兰人赴加](/content/gnews/4/README.md)
+### [加拿大启动Aeroplan基金帮助乌克兰人赴加](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [英国确认向乌克兰提供车辆、无人机和反坦克武器](/content/gnews/5/README.md)
+### [英国确认向乌克兰提供车辆、无人机和反坦克武器](/content/gnews/6/README.md)
  ` Shuizhuyu`
 
-### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/6/README.md)
+### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [不列颠哥伦比亚省医疗护工短缺依然严重](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [2022/04/23 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

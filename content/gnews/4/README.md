@@ -2,35 +2,65 @@
 ---
 
 
-## 加拿大启动Aeroplan基金帮助乌克兰人赴加
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400556/)
+## 调查显示85%的在沪外国人重新思考他们在中共国的未来
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2400594/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-《多伦多太阳报》4月20日报道，加拿大人现在可以捐赠现金或Aeroplan航空里程积分，帮助乌克兰人逃离战火，飞抵加拿大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2956.png)
-加拿大政府早些时候宣布接受乌克兰难民，并允许他们以临时居民身份在加拿大居住最多3年，已有超过54,000名乌克兰人获批。但目前当务之急是如何尽快帮助已逃离到欧洲各地的乌克兰人踏上前往加拿大的旅程。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/042201.jpg)@thatsmags.com
 
-移民部长弗雷泽表示，该项基金可以帮助至少1万名乌克兰人及其家人赴加。负责管理基金的Miles4Migrants慈善机构专门利用捐赠的飞行里程来帮助有合法旅行许可但囊中羞涩的难民逃离战火。
+ThatsMags 4月19日报道：
 
-加航已率先为该项基金捐赠了1亿积分，约合200万美元；美国夏皮罗基金会宣布它将匹配捐赠最高不超过5000万积分的加拿大人捐款，约合100万美元。人们可以捐赠与Miles4Migrants合作的所有航空公司的里程积分，大多伦多犹太基金会则负责现金募捐。
+最近在上海进行的一项在线调查中，85%的外国人表示，目前这一轮的封城让他们重新考虑在中共国的未来。
 
-原文链接：[https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada](https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada)
+根据调查，在未来一年里，上海的外国社区将减少一半，48%的受访者说，即便不马上走，他们也计划在未来12个月内离开，而37%的人说他们想等等，看情况是否会改善。
 
-上传/发稿 – 文永
-撰稿/翻译/听写 – 自由法兰西
-素材/采编 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+在接受调查的人中，31%的人说他们计划回到自己的国家，其次是22%的人说他们会去亚洲的其他地方，12%的人去欧洲，5%的人去美洲，14%的人去其他地方。
+
+谈到工作，44%的受访者是从业于教育行业，所以看起来泰国和越南即将有大量的教育专业人员涌入!
+
+这些人的出走也几乎可以肯定会留下大量的教师职位空缺。这对那些经受住新冠病毒考验的人来说可能是个好消息，因为市场将推动工资上涨。
+
+最后，在中国的外国人是一群受过教育的人，55%的受访者拥有研究生以上的学位。
+
+**调查结果如下…**
+
+1. 您在中国居住了多久？
+A. 少于3年 （12.3%） B. 3-5年（27.9%）C. 5-10年（32.4%）D. 10年以上（27.4%）
+2. 您做什么行业？
+A. 除英语之外的教师（24.2%） B. 英语教师（20%）C. 创造性领域 (11.5%) D. 科技（9%）E. 食品及饮料（3.9%） F. 金融及银行（3.1%）G. 其他行业（28.3%）
+3. 您当前的就业状态如何？
+A. 全职工作（79%）B. 自雇/经营公司（14%）C. 无业（5%）D. 兼职（2%）
+4. 本轮封城是否让您重新考虑在中国的未来？
+A. 是的，会尽快离开（22%）B. 是的，未来6-12个月离开（26%）C. 是的，但还想先观望一下，看情况能否改善（37%）D. 不会，将会长期居留（15%）
+5. 如果您打算离开中国，那打算去哪儿呢？
+A. 回到自己国家（31%）B. 将去到亚洲、欧洲及美洲之外的地方（14%）
+6. 您的学历？
+A 本科（44%）B 研究生（9%）C 硕士（40%）D 博士（7%）
+
+
+**简评:**
+中共窃政以来，中国人的大规模逃离中共国在历史上不断发生。君子不立危墙之下，人们离开的原因很多，空气污染，财富安全，子女教育，民主自由等等。现在又多了一个重要原因：疯狂的封城和所谓的清零政策。这一切的根源都是邪恶的中共，只要中共存在，就会不断破坏我们的家园，让中国越来越不适合人居住。
+
+外国人在中共国通常是享受超国民待遇的，他们可能没有感受到共产主义的铁拳。这次大规模封城给这些外国人上了一课。只有亲身经历中共对人权和生命的践踏，才会知道自己处在一个怎样的环境中。或许有些人还对中共报有幻想，但现实会不断的教育他们。
+
+新闻链接：[SURVEY: 85% of Shanghai Expats Rethinking Their Future in China](https://www.thatsmags.com/beijing/post/34336/survey-85-of-foreigners-rethinking-their-future-in-china)
+
+*翻译/简评: Victory(木先生)*
+
+*校对: 感恩*
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
