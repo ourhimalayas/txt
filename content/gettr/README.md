@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 1:00 AM (UTC)`
+
+2022.04.22 晚  新中国联邦 | 新闻访谈   4月26日Nancy Pelosi 访台，台湾面临中共毁岛命运
+![img](https://media.gettr.com/group50/origin/2022/04/23/00/5889189c-79f6-a9d5-e631-8ec8213191ef/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/23/2022 12:30 AM (UTC)`
 
 2022.04.22 晚  新中国联邦 | 新闻   中共计划所谓的“未来30年”；中共杀人体制的危害
@@ -147,13 +154,6 @@
 
 <br/>【Ukraine Rescue】 04/22/2022 A volunteer from Brazil excitedly took a picture in front of the poster of the NFSC and says, “I love it! Well done guys!“<br/><br/>【乌克兰救援】 04/22/2022 一位来自巴西的志愿者兴奋地站在新中国联邦的海报前合影，她表示：我爱死这个海报了！你们太棒了！
 ![img](https://media.gettr.com/group46/getter/2022/04/22/15/940caed3-ae58-f81d-d85a-cc4453543c9b/out.jpg)
-
----
-
-`@miles 4/22/2022 2:31 PM (UTC)`
-
-【Ukraine Rescue】 04/21/2022 Two volunteers from England enjoy our NFSC coffee and they agree that the NFSC represents the voice of Chinese. They also support the NFSC’s fight for human rights and freedom of the Chinese people and taking down the evil CCP.<br/><br/>【乌克兰救援】 04/21/2022 两个英国义工喜欢我们的新中国联邦咖啡。他们说，新中国联邦人代表了中国人的声音，代表了人权，他们支持新中国联邦为中国人争取人权和自由，打倒邪恶的中国共产党。<br/>
-![img](https://media.gettr.com/group26/getter/2022/04/22/14/7ac56918-a65d-12ee-8ec9-8a4c1350487c/out.jpg)
 
 ---
 
