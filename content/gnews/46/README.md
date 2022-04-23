@@ -2,23 +2,24 @@
 ---
 
 
-## 喜币KYC流程详解
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2395265/)
+## 櫻花FM｜中共的严厉封城造成巨大灾难
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2394872/)
 
-作者：香草山商业部–天情老人情早
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-481.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-203.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-174.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-158.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-70.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-42.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-49.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-29.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/1314.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/17-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/19-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/20-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/21-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/22-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/23-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/25-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/29-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/30-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3233.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/34-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/35-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/36-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/37-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/38-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3940.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/40-2.jpg)
-编辑/审核/发稿：Bronx Bombers
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
-**更多资讯，更多关注**
+**音頻：東京櫻花團/戰友520**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3425C330-9CCB-4184-A688-ED53975706D8.jpeg)
+美驻中共国大使馆于4月12日宣布，美国已下令其驻上海领事馆的所有非紧急状态的美官员、雇员及其家属，立即离开上海。美国大使馆认为，美国公民在上海可能面临被“任意执行”抗疫措施的风险。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共国的经济首都上海正遭遇自新冠疫情爆发以来最强烈的病例激增，当局把上海的2500万居民几乎全数封控，并将检测呈阳性的人安置在方舱隔离中心。中共国卫生部周二报告上海新增超过2万3千例新的阳性病例。中共国是世界上最后几个仍然在实施严格“清零战略”的国家之一。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+中共国的严格清零战略包括以下几个方面：一旦出现少数几个病例就要封城、将检测呈阳性的人与其他人群隔离、挤牙膏似地对外国人发放签证、从境外入境的人在抵达中国领土时要进行隔离、甚至追踪入境者的行动轨迹。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+上海2500万居民中几乎所有人仍然被封控在家中，其中非常多人难以获取食物。被封控的人和动物因为之前没有囤积食品，面临食物短缺，缺医少药，心理焦虑抑郁，出现生理或精神疾病，有一部分人因为无法忍受环境变化而选择自杀。因此，在中共国，我们可以预见是会出现一场社会人道灾难的。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**文字版原文：**[**樱花时政┃中共的严厉封城造成巨大灾难**](https://gnews.org/zh-hans/2347633/)
 
+**編輯：東京櫻花團/Calvin**
+**發佈：東京櫻花團/Calvin**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/18B09338-07A4-435B-8396-FBF30C5ECE94.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

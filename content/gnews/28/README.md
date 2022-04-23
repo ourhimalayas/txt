@@ -2,34 +2,22 @@
 ---
 
 
-## 中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397415/)
+## 樱花时政┃中共媒体开始转向北京疫情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2398175/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/Garrettw
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04233.png)[图片来源](https://www.bullfrag.com/stripe-and-twitter-to-test-crypto-payments-feature-with-connect-and-usdc/)
+4月23日，北京召开第312场疫情防控新闻发布会。北京新增15例确诊病例，涉朝阳、顺义、房山,含9名学生、1名外卖快递配送员；4月22日以来累计报告20例感染者，目前已隐匿传播一周。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-505.jpg)[**图片来源**](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg-issue.yunnan.cn%2Fuploadfile%2Ftest%2F2022%2F0317%2F202203170914133511.jpg&amp;imgrefurl=https%3A%2F%2Fm.yunnan.cn%2Fsystem%2F2022%2F03%2F17%2F031974629.shtml&amp;tbnid=CQNLDfojCciw5M&amp;vet=12ahUKEwiixtnDkKr3AhUBdRQKHYREBlgQMygAegUIARCDAQ..i&amp;docid=pDVym5k8X60RPM&amp;w=2829&amp;h=1992&amp;q=%E5%8C%97%E4%BA%AC%E7%96%AB%E6%83%85%E9%80%9A%E6%8A%A5%E4%BC%9A&amp;ved=2ahUKEwiixtnDkKr3AhUBdRQKHYREBlgQMygAegUIARCDAQ)
+其他中共的宣传媒体也提及此次疫情已隐匿传播了一周，如环球时报，中共的青年报，好看视频等，而且还登上百度热搜的前三；中共的此次发布的北京疫情涉及了，朝阳，顺义，房山等区域，涉及学校、旅行团及多个家庭。对接下来的所有的相关人员及各类产所开始核算封锁了，进而整个北京封锁。中共向来就是如此忽悠老百姓，事出有因，干什么都是对的。同时中共的假恶丑，都是爆料革命新中国联邦的武器，也再次验证郭文贵先生于4月22日在Gettr的紧急直播中说的：北京一定会戒严，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏。
 
-4月22日，数字支付处理服务商Stripe 宣布将允许企业通过加密货币向其用户付款，Twitter将是第一家客户，这是数字金融公司对数字资产抱有热情的最新迹象。
+希望北京的普通百姓尽快尽早离开。一切都已经开始了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-140.png)图片来源：百度
+消息来源：[北京疫情开始了](https://baijiahao.baidu.com/s?id=1730894465697550892&amp;wfr=spider&amp;for=pc)
 
-Stripe是一家金融服务和软件即服务（SaaS）公司，该公司主要为电子商务网站和移动应用程序提供支付处理软件和应用编程接口，目前市值950亿美元，
-
-Stripe表示，它将开始通过加密货币公司Circle发行的稳定币USDC，为商家提供以加密货币支付的能力。稳定币是与法定货币挂钩的代币，以维持稳定的价格。
-
-在Stripe的技术支持下，Twitter将是第一家整合新支付方式的公司。从周五开始，这个社交媒体平台将让一定数量的创作者从其付费的Ticketed Spaces和Super Follows功能中获得USDC的收入。
-
-Stripe表示：“我们计划随着时间的推移增加对其他轨道和支付货币的支持。”
-
-这是自四年前放弃对比特币的支持以来，Stripe首次大幅推动加密货币的发展。Stripe于2018年1月停止接受比特币支付，理由是数字硬币因价格波动和日常交易效率低下。在去年11月，Stripe联合创始人约翰-科里森(John Collison)暗示，该公司可能很快再次提供加密货币支持。
-
-Stripe周五在一篇博文中说：“虽然加密货币的‘价值存储’方面通常受到最多关注，但我们认为‘开放的全球金融轨道’的前景至少同样引人注目。因此，我们一直在探索如何利用基于加密货币的平台来解锁更广泛的访问。”
-
-Stripe不是唯一一家向数字货币开放其平台的数字金融公司，事实上，该公司可以说是姗姗来迟。维萨(Visa)、万事达(Mastercard)和贝宝(PayPal)以及其他主要支付处理商都已经宣布了自己在该领域的行动，当时数字货币还处于上涨的行情中。
-
-消息来源：[支付公司Stripe支持稳定币！从推特公司开始 创作者获得USDC收入](https://ca.fx168news.com/cryptocurrency/2204/5840916.shtml)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

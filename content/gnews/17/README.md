@@ -2,30 +2,30 @@
 ---
 
 
-## 澳洲CCP病毒死亡人数再次出现上升
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398316/)
+## 对利率上升的担忧恶化，周五美国股市下跌2.8%
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398391/)
 
 撰稿：Gradient Boost
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/234-1.jpg)图片来自网络
-在过去 24 小时内，澳大利亚又有 39名CCP病毒感染患者不幸离世，这使得最近两周的七日平均CCP病毒死亡数字持续处于攀升状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/235.jpg)图片来自网络
+本周五，华尔街股市出现跳水，标普 500 指数创下近七周来最大单日跌幅，其原因在于投资者对利率飙升和美联储努力对抗通胀的担忧正在逐步加深。同时一些公司令人失望的利润报告也动摇了市场的主要支柱。
 
-新南威尔士州在过去 24 小时内记录了 16 例死亡和 12,633 例 CCP病毒阳性检测，相较昨天的新增病例数量有所下降。该州目前有 1632 名感染者住院，其中 62 人正在接受重症监护。同时，该州的七日平均新增感染数整个四月都处于下滑状态。
+标准普尔 500 指数下跌 2.8%，连续第三周下跌。道琼斯工业平均指数下跌 2.8%，创下 18 个月以来的最大跌幅，此前曾短暂下跌逾 1,000 点。纳斯达克指数也出现了近七周以来最糟糕的一天，收盘下跌 2.6%。人们对几十年来最高通胀、乌克兰战争和冠状病毒的担忧仍在蔓延。
 
-在维多利亚州，今日已发现 8120 例新的CCP病毒感染病例，同时有13 人在不幸因病毒感染而离世。目前维州有 449 人在医院接受治疗，其中 35 人在重症监护室，8 人需要呼吸机，该州的七日平均新增感染从三月开始便在持续缓慢增长。
+此前，美联储已经上调了一次关键隔夜利率，这是自 2018 年以来的首次上调，因为它寻求主动取消大流行期间持续的经济援助，它还准备采取其他措施对长期利率施加上行压力。
 
-在昆士兰州，过去的 24小时内又发生了六起与CCP病毒相关的死亡事件。同时，昆士兰州又记录了 7212 例新增CCP病毒感染病例。该州有 47,391 例活跃病例，513 人因感染该病毒而住院——其中15人在重症监护室。该州已经于近日宣布，将放宽密切接触者的隔离要求与规则。
+通过提高企业和家庭的借贷成本，更高的利率意味着经济放缓，这有望阻止几代人以来最严重的通货膨胀。但它们同时却也可能引发经济衰退，同时给大多数类型的投资带来下行压力。
+
+Commonwealth Financial Network 投资管理主管布赖恩·普赖斯 (Brian Price) 表示：“经过多年的非常宽松，美联储已经明确表示，在可预见的未来，政策将会收紧……他们的强硬立场让投资者不得不暂停观望，因为许多人需要评估对未来利润率和（股票）倍数的影响。”
+
+规模较小的公司股票也大幅下跌，罗素 2000 指数下跌 50.80 点，或 2.6%，达到 1,940.66。
 
 *编辑：Gradient Boost*
 
 *发稿：mgjxs*
 
-新闻参考链接：
-
-[9 News](https://www.9news.com.au/national/coronavirus-update-australia-covid19-numbers-infections-deaths-nsw-victoria-queensland/9e8f0384-615e-4f88-8f33-30da950f1aca)
-
-[谷歌统计信息](https://www.google.com/search?q=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E7%96%AB%E6%83%85%E6%AD%BB%E4%BA%A1%E4%BA%BA%E6%95%B0&amp;ei=_t9jYs7jJpeYseMPsNyl4Ao&amp;oq=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A+%E7%96%AB%E6%83%85%E6%AD%BB%E4%BA%A1&amp;gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQgAQQDDoHCAAQRxCwAzoKCAAQsQMQgwEQQzoECAAQQzoNCC4QsQMQgwEQ1AIQQzoNCC4QsQMQxwEQowIQQzoECC4QQzoHCC4QsQMQQzoFCAAQgAQ6CAgAEIAEELEDOgUILhCABDoLCC4QgAQQxwEQ0QM6CwguEIAEEMcBEK8BOgcIABCABBAKOhAILhCxAxCDARDHARCvARAKOgcIABCxAxAKOg0ILhCxAxCDARCxAxAKOgoILhCxAxDUAhAKOgcILhCxAxAKOgQIABAKOggIABCxAxCDAToECAAQHjoGCAAQChAeSgQIQRgASgQIRhgAUOEKWJhCYPhRaAFwAXgAgAHzA4gB80WSAQgyLTEuMTQuOJgBAKABAcgBCsABAQ&amp;sclient=gws-wiz)
+新闻参考链接：[AP News](https://apnews.com/article/business-japan-asia-financial-markets-prices-0575e0bba40355e305493d204ea54c40)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
