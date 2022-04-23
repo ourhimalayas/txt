@@ -2,16 +2,19 @@
 ---
 
 
-## 秘翻在线：英国政府修改了法律禁止使用中共国新疆的医疗产品
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2395509/)
+## 三朝帝师 王沪不宁（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2395693/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/画像1-27.png)（图片源自本文链接）
-4月23日共同通信社伦敦消息：英国政府22日宣布，将修改法律，禁止国家卫生服务系统（NHS）使用 “涉及奴役和贩卖人口的医疗用品和服务”。尽管政府回避了指名道姓，但英国媒体报道说，来自中共国新疆维吾尔自治区等地的进口产品将成为受限对象。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据《每日电讯报》报道，在中共病毒(新冠病毒)爆发期间，英国从一家被怀疑与新疆自治区侵犯人权有关的中共国公司购买了约1.5亿英镑的防护设备。报道指出，大量维吾尔族人被拘留，并被迫在自治区内从事强制劳动。
+*发布：陶子*
 
-信息源：[英、中国新疆の医療品を禁止へ　現地報道、政府が法改正で（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/d3a1b42604c975cff7d3f4ead280aa561b7c9409)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

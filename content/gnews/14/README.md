@@ -2,12 +2,12 @@
 ---
 
 
-## 新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2395315/)
+## 4月22日文贵大直播要点（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2395493/)
 
-【乌克兰救援】 04/22/2022 新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆。不仅如此，有人还阻止法国志愿者在广告牌下拍照并污言秽语攻击他们，甚至试图对小Sara动手。目前警方已经介入调查，这些暴力破坏行为背后的目的和支持者究竟是谁，相信很快就会水落石出。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5859294E-54C4-4336-A992-215FBD487D7E-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/47B60CE3-4480-49B9-9CE3-A8F994696601-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/FA5F3445-06C4-494E-AE82-ABAAAF6341F5-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/BF9C19B4-8913-48C6-B053-E54B58264EB8-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31C2DB1F-7599-4E65-BCDA-471DD6188183-scaled.jpeg)
+发布：水涨船高
 
  
 

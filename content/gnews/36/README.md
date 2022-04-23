@@ -2,37 +2,49 @@
 ---
 
 
-## 世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394440/)
+## 梅迪卡营地有声报道，新中国联邦设备被恶意破坏，战友被威胁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2394252/)
 
-##### 作者：加拿大温哥华扬帆农场 -【文莱/重生之鹰】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2821.png)图片来源：[https://thehill.com/](https://thehill.com/policy/healthcare/3272919-almost-150-attacks-reported-against-health-care-facilities-in-ukraine-who/)
+作者：Nicole
+
+编辑/英文报道：风中风中
 
 
-据《国会山报》The Hill 4月19日报道，世界卫生组织总干事谭德塞周二表示，迄今为止，世卫组织已核实147起针对乌克兰医疗设施的袭击事件，其中73人死亡，53人受伤。并再次呼吁俄罗斯结束战争。
 
-今年3月，乌克兰官员指责俄罗斯轰炸了马里乌波尔一所妇产医院，造成3人死亡，十几人受伤，被毁的照片广为流传。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-413.png)
 
-乌克兰官员还指责俄罗斯袭击了乌克兰南部城市米克莱夫的一家癌症医院和其他几栋建筑。美国上个月认定，俄罗斯在乌克兰犯下了战争罪。美国国务卿安东尼·布林肯(Antony Blinken)在宣布正式评估报告时，指出了俄罗斯军队袭击医院等行为。拜登总统和前总统特朗普也声称俄罗斯在乌克兰犯下了种族灭绝罪。
 
-原文链接：[https://thehill.com/policy/healthcare/3272919-almost-150-attacks-reported-against-health-care-facilities-in-ukraine-who/](https://thehill.com/policy/healthcare/3272919-almost-150-attacks-reported-against-health-care-facilities-in-ukraine-who/)
+风中播报
+4月22日早上，法治基金新中国联邦在梅迪卡营地的擎天柱（Billboard)刚刚闪亮登场，就吸引了人们的关注，很多人来拍照、摄影、竖大拇指， 擎天柱上的大字“消灭邪恶的中国共产党“ 也也引发了一系列的国际事件。
 
-上传/发稿 – 【青青】
-撰稿/翻译/听写 -【重生之鹰】
-素材/采编 -【文莱】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+上午11点多，一个讲英语的男人在外面看到Mia姐姐（她身上穿着灭共马甲）从厕所出来，就追着她骂 “Shame on you! Shame on you” 一直追到咱们大帐篷，大声用英文，其中骂人的脏字F。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+然后我正好走到擎天柱旁边，这个人看到我（我也穿着灭共马甲）他就指着擎天柱大声对我说话，我拿出手机录他（取证）他就试图抢我手机，要我删掉我录的视频。
+我们告诉这个人，这是在波兰，不是在中共国，，我们为擎天柱上的字感到骄傲。
+小Sarah赶到现场，听到对方骂人，立刻拿出手机来录，结果这个人跳到小Sarah面前要打人，他的手都快碰到小Sarah的脸了，我们喊“不许碰她，不许碰她“
+战友们去叫警察，我们叫他们不要跑，这个人就骂脏字（F）
+后来过了大概一个小时，我们发现擎天柱一面不亮了，文科发现擎天柱的电缆线被人剪掉了，这明显是有人蓄意搞破坏，就报了警，警察已经立案调查。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+这三个人后来想坐巴士跑掉，当场被波兰人拦住，不让他们上车，我们叫警察， 男战友拦住他们不让他们跑掉，那个人假装用头撞巴士，想碰瓷、讹我们，我们告诉他，我们正在录像，他就装不下去了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+我们也采访了另外一个法国义工，他觉得不可思议，他说“这个美国人的做法是错的，我不明白他为什么这样做，他竟然认为中国共产党好？
+
+“ 还有 一位法国老年义工用翻译器告诉我们她对此事的看法（关于那个骂我们的男人试图抢小Sarah手机的粗暴行为） 企图对这次事件作证 。 还有更多其他国家义工采访，我们会持续关注，继续报道。
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-183020.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-183041.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-183046.jpg)这位法国老年义工用翻译器告诉我们她对此事的看法（关于那个骂我们的男人试图抢小Sarah手机的粗暴行为）
+邪不胜正，波兰美女老板看到小Sarah妹妹和Mia姐姐受到坏人的辱骂，就买了甜点和鲜花来到大帐篷送给小Sarah和Mia姐姐。 这个世界还是好人多，永远保持善良。
+了不起的前线新中国联邦人
+校对/发稿：夕夜
+
+所有内容来自前线真实拍摄
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-192.jpg)
+
 
 
  

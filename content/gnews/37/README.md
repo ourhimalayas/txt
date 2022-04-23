@@ -2,51 +2,36 @@
 ---
 
 
-## 梅迪卡营地有声报道，新中国联邦设备被恶意破坏，战友被威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2394252/)
+## 加拿大媒体报道法治基金乌克兰救援行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2394230/)
 
-作者：Nicole
-
-编辑/英文报道：风中风中
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-413.png)
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16506658531.png)图片来源：多伦多太阳报
 
 
-风中播报
-4月22日早上，法治基金新中国联邦在梅迪卡营地的擎天柱（Billboard)刚刚闪亮登场，就吸引了人们的关注，很多人来拍照、摄影、竖大拇指， 擎天柱上的大字“消灭邪恶的中国共产党“ 也也引发了一系列的国际事件。
+据《多伦多太阳报》4月19日报道，俄乌战争已导致数百万乌克兰人被迫逃离家园，许多人首先抵达波兰边境小镇梅迪卡。因此，众多非政府组织和宗教团体都在该地搭建临时帐篷为难民提供服务。其中，穿黄色服务背心的[法治基金]志愿者随处可见，引人注目。
 
-上午11点多，一个讲英语的男人在外面看到Mia姐姐（她身上穿着灭共马甲）从厕所出来，就追着她骂 “Shame on you! Shame on you” 一直追到咱们大帐篷，大声用英文，其中骂人的脏字F。
+报道称，在所有临时建立的服务设施中，由[法治基金]的华裔美国人所经营的帐篷是其中最大和最有组织的一个。其中名为Feather的自愿者是一名来自加拿大多伦多大学，今年才19岁的大学生。
 
-然后我正好走到擎天柱旁边，这个人看到我（我也穿着灭共马甲）他就指着擎天柱大声对我说话，我拿出手机录他（取证）他就试图抢我手机，要我删掉我录的视频。
-我们告诉这个人，这是在波兰，不是在中共国，，我们为擎天柱上的字感到骄傲。
-小Sarah赶到现场，听到对方骂人，立刻拿出手机来录，结果这个人跳到小Sarah面前要打人，他的手都快碰到小Sarah的脸了，我们喊“不许碰她，不许碰她“
-战友们去叫警察，我们叫他们不要跑，这个人就骂脏字（F）
-后来过了大概一个小时，我们发现擎天柱一面不亮了，文科发现擎天柱的电缆线被人剪掉了，这明显是有人蓄意搞破坏，就报了警，警察已经立案调查。
+Feather在采访中对媒体表示：能够帮助到一位既不会说英语也不会说波兰语的乌克兰老妇人与她在多伦多的儿子最终团聚，是让她和所有法治基金救援团队成员都感到非常自豪的一件事。
 
-这三个人后来想坐巴士跑掉，当场被波兰人拦住，不让他们上车，我们叫警察， 男战友拦住他们不让他们跑掉，那个人假装用头撞巴士，想碰瓷、讹我们，我们告诉他，我们正在录像，他就装不下去了。
+原文链接：[https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html)
 
-我们也采访了另外一个法国义工，他觉得不可思议，他说“这个美国人的做法是错的，我不明白他为什么这样做，他竟然认为中国共产党好？
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【文所未闻】
+素材/采编 -【坐看云起时】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-“ 还有 一位法国老年义工用翻译器告诉我们她对此事的看法（关于那个骂我们的男人试图抢小Sarah手机的粗暴行为） 企图对这次事件作证 。 还有更多其他国家义工采访，我们会持续关注，继续报道。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-183020.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-183041.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-22-183046.jpg)这位法国老年义工用翻译器告诉我们她对此事的看法（关于那个骂我们的男人试图抢小Sarah手机的粗暴行为）
-邪不胜正，波兰美女老板看到小Sarah妹妹和Mia姐姐受到坏人的辱骂，就买了甜点和鲜花来到大帐篷送给小Sarah和Mia姐姐。 这个世界还是好人多，永远保持善良。
-了不起的前线新中国联邦人
-校对/发稿：夕夜
-
-所有内容来自前线真实拍摄
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-192.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
