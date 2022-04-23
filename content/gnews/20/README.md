@@ -2,44 +2,34 @@
 ---
 
 
-## 有声|诱骗老人接种丧心病狂 核酸疫苗揭开黑幕一角
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397391/)
+## 中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397415/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间4月19日，中共国家卫健委称，要特别加快为老年人接种中共病毒疫苗。此前传出北京市卫健委主任于鲁明亦因涉嫌严重违纪违法，被中纪委调查。时隔一天，与其有深度利益纠葛的科兴公司经理曹晓斌传出可疑死讯。
+撰稿：东京樱花团/peterwong
 
-此次国家卫健委不但加强了虚假宣传攻势，更以高额金钱诱惑人们接种。据成都市的一则招募实验性中共病毒疫苗接种的广告显示，每个参与实验的人补贴金额高达13500-24500元人民币不等。杭州市还把接种试验明确划分了年龄段，18-59岁是一个组，60岁以上是一个组，补贴金额高达28100元。中共还哄骗诱惑老年人接种，某社区60岁以上奖500元，80岁以上奖800元，动用国家机器消除老龄人口。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-46.jpg)
-中共国内大规模开展核酸检测和疫苗接种的利益链，开始显露冰山一角。北京卫健委主任被曝与医疗集团重大利益勾结，借职权收取核酸检测提成。 有消息人士指出，于鲁明刚被抓仅一天，北京科兴政府事务中心高级经理曹晓斌即宣告因病医治无效去世，年仅45岁。这似乎不只是巧合，背后的中共医药黑幕让人细思极恐。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04233.png)[图片来源](https://www.bullfrag.com/stripe-and-twitter-to-test-crypto-payments-feature-with-connect-and-usdc/)
 
-网上一段谈话录音提及中共搞“清零”防疫背后涉及中共高官白手套和家属的敛财黑幕，据其称国内某集团仅靠核酸检测一项就赚了6,700亿人民币。这段录音还指出，全世界没有一个国家采取中共的方式进行防疫。中共的核酸检测、强制疫苗实际上都是为利益集团输送利益。只有全民都去做核酸、打疫苗，中共高层们才能借此攫取巨额的财富。
+4月22日，数字支付处理服务商Stripe 宣布将允许企业通过加密货币向其用户付款，Twitter将是第一家客户，这是数字金融公司对数字资产抱有热情的最新迹象。
 
+Stripe是一家金融服务和软件即服务（SaaS）公司，该公司主要为电子商务网站和移动应用程序提供支付处理软件和应用编程接口，目前市值950亿美元，
 
+Stripe表示，它将开始通过加密货币公司Circle发行的稳定币USDC，为商家提供以加密货币支付的能力。稳定币是与法定货币挂钩的代币，以维持稳定的价格。
 
+在Stripe的技术支持下，Twitter将是第一家整合新支付方式的公司。从周五开始，这个社交媒体平台将让一定数量的创作者从其付费的Ticketed Spaces和Super Follows功能中获得USDC的收入。
 
+Stripe表示：“我们计划随着时间的推移增加对其他轨道和支付货币的支持。”
 
-文字版原文：[诱骗老人接种丧心病狂 核酸疫苗揭开黑幕一角](https://gnews.org/zh-hans/2390556/)
+这是自四年前放弃对比特币的支持以来，Stripe首次大幅推动加密货币的发展。Stripe于2018年1月停止接受比特币支付，理由是数字硬币因价格波动和日常交易效率低下。在去年11月，Stripe联合创始人约翰-科里森(John Collison)暗示，该公司可能很快再次提供加密货币支持。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+Stripe周五在一篇博文中说：“虽然加密货币的‘价值存储’方面通常受到最多关注，但我们认为‘开放的全球金融轨道’的前景至少同样引人注目。因此，我们一直在探索如何利用基于加密货币的平台来解锁更广泛的访问。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Stripe不是唯一一家向数字货币开放其平台的数字金融公司，事实上，该公司可以说是姗姗来迟。维萨(Visa)、万事达(Mastercard)和贝宝(PayPal)以及其他主要支付处理商都已经宣布了自己在该领域的行动，当时数字货币还处于上涨的行情中。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+消息来源：[支付公司Stripe支持稳定币！从推特公司开始 创作者获得USDC收入](https://ca.fx168news.com/cryptocurrency/2204/5840916.shtml)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
