@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 10:05 PM (UTC)`
+
+4/23/2022 Miles Guo: I can tell you it is 100% sure that Beijing will be quarantined! Not 99% but 100% sure! The CCP has been aware that if they let Chinese people live well, Chinese people will be making difficult for them.<br/><br/>4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子！<br/>
+![img](https://media.gettr.com/group24/getter/2022/04/23/22/980700f3-e919-8574-07b4-5ebd8532c27a/out.jpg)
+
+---
+
+`@miles 4/23/2022 10:03 PM (UTC)`
+
+“麦田里的俄爹...” 飞飞秀救援快报 2022-04-23<br/>For English：gettr.com/streaming/p16sxf58827
+![img](https://media.gettr.com/group8/origin/2022/04/23/22/f408fafc-23a1-4cfe-de8b-daa8f1b2e665/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 8:45 PM (UTC)`
 
 2022.04.23  新中国联邦 | 喜健康   如斯医生专访
@@ -139,20 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 2022.04.22 晚  新中国联邦 | 新闻   中共计划所谓的“未来30年”；中共杀人体制的危害
 ![img](https://media.gettr.com/group17/origin/2022/04/23/00/9bce90ba-8e31-5dc8-be90-32684764ecf4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 12:22 AM (UTC)`
-
-4/22/2022 Ukraine Rescue: The big tent of the New Federal State of China has the largest LED TV screen in the region to show the footage of our rescue operations. A 6-meter-high billboard was established to display the information about the New Federal State of China, other rescue organizations, and shuttle buses. Some people attacked our fellow fighters as it seems they were not happy with the cause of the New Federal State of China to take down the CCP. We will hold these people accountable for their actions. Heavy rain will be detrimental to the Russian troops!<br/><br/>4/22/2022 乌克兰救援连线：新中国联邦的大帐篷用当地最大的液晶电视来播放救援画面，还竖立了6米高的展示新中国联邦、各救援组织和班车信息的“擎天柱”；有人看新中国联邦灭共不爽而攻击战友，我们会对他们的行为追究到底！天降大雨将对俄军不利！<br/>
-![img](https://media.gettr.com/group42/getter/2022/04/23/00/d44ed067-2d37-ec95-82bb-9cf47bee25c2/out.jpg)
-
----
-
-`@miles 4/22/2022 11:48 PM (UTC)`
-
-【Ukraine Rescue】 04/22/2022 The LED billboard that NFSC has just set up at the Medyka Rescue Center is deliberately vandalized by someone who cut the cable. Moreover, someone is attacking our volunteers with filthy language and preventing French volunteer from taking pictures with our billboard and even tried to attack Little Sarah. The police have now stepped in to investigate. The purpose and supporters behind these violent acts of vandalism will soon be revealed.<br/><br/>【乌克兰救援】 04/22/2022 新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆。不仅如此，有人还阻止法国志愿者在广告牌下拍照并污言秽语攻击他们，甚至试图对小Sara动手。目前警方已经介入调查，这些暴力破坏行为背后的目的和支持者究竟是谁，相信很快就会水落石出。<br/>
-![img](https://media.gettr.com/group22/getter/2022/04/22/23/ff372759-392c-0fc0-f633-1800a9f004cb/out.jpg)
 
 ---
 
