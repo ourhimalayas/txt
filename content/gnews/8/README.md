@@ -2,26 +2,31 @@
 ---
 
 
-## 普京向西方发出和解信号 习普联盟破裂 习近平将毁了台湾
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2400216/)
+## 有声|《铁锁梦》MV荣登多国iTunes榜首
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2400221/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-俄军在海、陆两栖军事作战上的挫败，以及欧联盟不惧爆发核战的可能。对俄强硬的态度，和俄罗斯国内高涨的停战反战呼声，普京终于开始服软。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+继《灭共的雪》和《铁锁梦》两首单曲同时上榜，且连续多日占领多个国家和地区iTunes排行榜前列，震撼中共和世界音乐界，《铁锁梦》MV版本于4月19日当天正式上榜。
 
-习近平和普京的联盟即将破裂，如果普京完全向西方妥协，那么习近平不仅仅只是攻台，而是极有可能直接毁灭台湾！
+截至4月20日，《铁锁梦》MV已荣登美国、加拿大、日本、英国、香港等23个国家和地区MV总榜、MV流行曲榜第一名。
 
-视频来源: 20220421—郭先生大直播
-视频制作: 文星光
-文案:文星光
+让我们再接再厉，努力打榜，以歌灭共！
+
+文字版原文：[《铁锁梦》MV荣登多国iTunes榜首](https://gnews.org/zh-hans/2390430/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
 **更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
