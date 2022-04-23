@@ -2,34 +2,41 @@
 ---
 
 
-## 网路热传普京身体出问题的视频
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399675/)
+## 印尼财政部长、世界银行前COO加入呼吁世行改革的行列
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2399759/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-23.33.56.png)
-当地时间4月21日，一则网路视频在社交媒体广泛传播。视频里是普京和自己的外交部长正在开会的画面，只见普京脸色发白，双脚抖动，右手紧紧抓着桌角，该视频中虽然使用了快速播放，将10分钟的视频压缩至几十秒内，但不难看出普京的痛苦表情。
+#### 【雅典娜快讯，紧贴时代脉搏】
 
-自郭先生爆料普京身体出问题后，各个大媒体都试图拍摄普京身体异样的画面，但独裁政府的特点决定了国家领导的身体是最高机密。俄乌战争以后，有普京出现的电视画面都经过了后期处理。4月21日郭先生透露普京正在积极和西方和谈，随即这则普京身体出问题的视频热传。
+#### 翻译：li yan li
+编辑：李易通
 
-从独裁国家的政治需求来看，普京若有继续战争的决定，身体问题不可能会大量披露，这则视频的发布侧面验证郭先生关于普京正在与西方和谈的爆料讯息，普京也可能正在用此举向西方略表诚意，毕竟俄罗斯假新闻也层出不穷。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-66.png)图片来源：雅典娜设计组
 
-reference：
 
-[https://gettr.com/post/p16l8ey85d0](https://gettr.com/post/p16l8ey85d0)
+4月22日，华盛顿，印度尼西亚财政部长Sri Mulyani Indrawati周五加入了越来越多的官员行列，呼吁世界银行进行改革，以便更好地装备世界银行，应对气候变化和客户性质变化等日益严峻的全球挑战。
 
-撰稿、发布：骄子
+美国财政部长珍妮特·耶伦和白宫的一位高级顾问也呼吁世界银行进行重大改革。
 
-* * *
+耶伦和白宫顾问认为，这个有着70年历史的机构现在不是为解决多重的全球危机而建立的，面对包括COVID-19大流行病、俄罗斯在乌克兰的战争和气候变化等问题世行没有任何作为。
 
-欢迎订阅我们的GNews账号：
+今年20国集团财政官员的主席英德拉瓦蒂说，世界银行需要进行改革，以确保它拥有解决无数全球危机所需的规模和资源，并在危机出现时作出更迅速的反应。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+民间社会团体、发展中国家和学术界也在呼吁对“布雷顿森林”机构进行全面改革，这里指的是1941年在新罕布什尔州的那个小镇举行的会议，该会议促使了国际货币基金组织和世界银行的成立。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+周四呼吁进行改革的公共和私人团体还表示，需要注入更多的私人资本，以解决目前使2.5亿人重新陷入极端贫困的多重的危机。
+
+世界银行在2021财年的贷款总额为990亿美元，但专家估计需要数万亿美元来帮助各国适应不断变化的气候条件，解决日益严重的贫困问题，并为未来的大流行病做好准备。
+
+新闻链接：[印尼财政部长、世界银行前首席运营官加入呼吁世界银行改革的行列](https://discord.com/channels/825592690954731551/825592691433668613/967282814947037206)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

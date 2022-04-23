@@ -2,28 +2,28 @@
 ---
 
 
-## 秘翻新闻｜股票债券汇率集体暴跌 中共国市场陷入痛苦期
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2398801/)
+## 【秘翻时评】 联合国秘书长将访俄乌 分别会晤普京与泽连斯基
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2399186/)
 
-**By:[秘翻新闻](https://gettr.com/post/p16q9em1fca)**
+By:**[秘翻时评](https://gettr.com/post/p16rbijb297)**
 
-**[2022-04-23](https://gettr.com/post/p16q9em1fca)**
+**[2022‑04‑23](https://gettr.com/post/p16rbijb297)**
 
-**新闻内容:**
+**秘翻晚间新闻：**
+
+1. 西班牙、丹麦总理访问基辅 最大规模军援已上路
+2. 联合国秘书长将访俄乌 分别会晤普京与泽连斯基
+3. 虎牙斗鱼大裁员 部门裁员比例高达7成
 
 
-```
-1.诉上海封城惨状 短片《四月之声》遭全网删除
- 2.上海母亲带孩子求医4天无果 整夜苦等后怒吼
- 3.美国警告索罗门群岛勿让中共建军事基地
- 4.俄罗斯阿姆斯特丹贸易银行宣布破产
- 5.新加坡宣布将大幅放宽疫苗差异化政策
+**时评内容：**
 
-🔗Gettr链接：https://gettr.com/post/p16q9em1fca 
+\*中共国多家银行网点提现难
+\*诉上海封城惨状 短片《四月之声》遭全网删除
 
-发布:星星
-```
+Gettr链接：[**https://gettr.com/post/p16rbijb297**](https://gettr.com/post/p16rbijb297)
 
+发布 : 恩典
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)

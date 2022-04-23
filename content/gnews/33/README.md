@@ -2,35 +2,24 @@
 ---
 
 
-## 【G时新闻】加拿大参与拯救乌克兰数字资产的全球行动
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2399420/)
+## 北京连夜召开发布会宣布疫情
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2399428/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据[CTV新闻]4月19日报道，加拿大人最近参与了一项由多国组织发起的，通过数字资产和数据来在线保护乌克兰文化遗产的国际合作任务。
+**作者：意大利罗马达芬奇农场 Vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/B-5.jpg)sg,news.yahoo.com
+据北京日报客户端消息，4月22日晚，在北京市新冠病毒肺炎疫情防控工作第311场新闻发布会上，北京市疾控中心副主任、全国新冠病毒肺炎专家组成员庞星火介绍，4月22日16时至22时，北京新增本土新冠肺炎病毒感染者4例，均为确诊病例：朝阳区2例、顺义区2例。另有1例核酸复核阳性人员及9例核酸初筛阳性人员，共13例。初判传播风险高！北京本起疫情涉老年旅游团、装修人员及在校生。截止到23日，北京新增本土新冠肺炎感染者已增加到15例。
 
-由于俄罗斯发动的入侵战争严重破坏了乌克兰的数字文化财产，因此，一个名为[在线拯救乌克兰文化财产]的国际组织汇集了全球1300多名图书档案管理员、研究员和程序员等专业人士，通过识别乌克兰重要网站的数据，并将其存档于国外大学、图书馆、博物馆和画廊的服务器上。
+笔者观察到此次疫情宣布时间选择在22日晚23点30分，此时大部分北京居民已经休息，无法作出快速反应，且爆发点在旅游团和学校，均为易于迅速传播的渠道。
 
-据悉，该组织目前已从乌克兰的3500多个网站保存了超过30tb的扫描文件、艺术品和其他重要信息。
+文贵先生早在21日的临时直播中就已经爆料，接下来会对北京实施隔离管控，共产党一定是以疫情为借口对北京采取行动。共产党的一切都按照写好的剧本在进行，只不过这次的演员从2600万的上海市居民，转移到了2100多万的北京市居民，悲剧在一个个上演，犹如一部巨型灾难片，中共不灭，灾难不止！
 
-此外，加拿大阿尔伯塔大学的乌克兰研究所也参与了名为“档案救援队”的平行项目。
+新闻来源：
+[https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&mod=pcpager\_china&loc=15&r=0&rfunc=10&tj=cxvertical\_pc\_pager\_spt&tr=174#/](https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&amp;mod=pcpager_china&amp;loc=15&amp;r=0&amp;rfunc=10&amp;tj=cxvertical_pc_pager_spt&amp;tr=174#/)
 
-盖特链接：[https://gettr.com/post/p16pjuw9b3c](https://gettr.com/post/p16pjuw9b3c)
+[https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/](https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/)
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
