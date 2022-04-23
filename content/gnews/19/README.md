@@ -2,29 +2,34 @@
 ---
 
 
-## 中共派出流氓袭击新中国联邦梅迪卡救援中心
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2399589/)
+## 欧盟官员拟议实行比特币交易禁令
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399621/)
 
-作者：波士顿五月花 2020灭共必胜
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220423.jpg)
-近两个月的乌克兰前线救援，新中国联邦帮助了大量乌克兰难民，得到了世界人民的一致好评，让世界人民知道了中国共产党的邪恶，也让大家知道中国共产党不代表中国人民，中国人民是善良、是爱好和平的。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/yIZOhuI8p1srFarOxzvUC28xeDcCQ_t1OC15bTgteW0.jpg)
+当地时间4月22日，欧盟官员在禁止使用工作证明算法采矿来获取数字资产的辩论中提出了禁止比特币交易的方案。欧盟官员甚至建议全面禁止比特币交易以遏制其巨大的能源消耗。
 
-郭文贵先生一再提醒，中共一定会去梅迪卡前线破坏救援。果然4月22号，中共坐不住了，在新中国联邦竖起崭新、醒目的LED巨型屏幕后，派了一群白色皮肤外国人来到梅迪卡帐篷，它们在当地散播谣言，用污言秽语侮辱新中国联邦战友，更是故意找茬借机动手攻击了小sara战友。幸好小sara战友无大碍。
+欧盟官员在与瑞典金融监管机构、环保机构的会面中提出，监管机构应向比特币施压，要求其改善目前的能源密集型消耗工作机制。据剑桥大学的数据，比特币每年用于采矿的电力为139太瓦时，而整个英国在2021年的全年电力仅为265太瓦时。欧盟最近正在投票禁止比特币采矿的工作机制。瑞波联合创始人也在与绿色环保组织合作，向比特币施压。欧盟同时认为应该保护可持续的数字加密货币。
 
-打人的一个小时后，战友们发现刚安装好的LED大屏幕不亮了，原来是屏幕电缆线被人故意剪断。当这群人干完坏事想坐巴士逃离时，被热心的当地波兰市民给拦住。就在这群人狡辩时，动手男子还故意假装被战友推倒，头部碰撞汽车来碰瓷讹诈战友。这种恶劣行径简直和流氓耍无赖的中共一模一样。
+知情人士称，欧盟完全可以合理地全面禁止使用能源密集型采矿算法的数字加密货币资产，比特币首当其冲。
 
-这件事证明中共除了下三滥的阴招外，根本就是黔驴技穷，完全靠暴力和谎言欺骗统治老百姓。这也间接证明了新中国联邦前线工作非常成功，取得巨大的国际影响力，让中共在国际上如丧家之犬，人人喊打。
+reference：
 
-中共治国从来不解决老百姓的问题，它们只解决提出问题的人，把人抓起来。梅迪卡袭击也是如此，有本事中共你做的比我们更好，让世界人民相信你，不要搞一些下三滥的小动作，自己做不到还不让别人做！其实这么多年罪恶行径已经让中共掉入了塔西佗陷进，无论你怎么破坏都是徒劳的，相反只会帮助新中国联邦逆增上缘，让更多的国际友人和我们站在一起。
+[https://cointelegraph.com/news/eu-officials-considered-bitcoin-trading-ban-to-enforce-proposed-mining-ban/amp](https://cointelegraph.com/news/eu-officials-considered-bitcoin-trading-ban-to-enforce-proposed-mining-ban/amp)
+
+撰稿、发布：骄子
 
 * * *
 
-*编辑：文合*
+欢迎订阅我们的GNews账号：
 
-*封面：霹雳鼠年*
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-*发布：吐纳*
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

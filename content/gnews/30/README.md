@@ -2,24 +2,35 @@
 ---
 
 
-## 北京连夜召开发布会宣布疫情
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2399428/)
+## 【G时新闻】世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2399457/)
 
-**作者：意大利罗马达芬奇农场 Vanessa**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/B-5.jpg)sg,news.yahoo.com
-据北京日报客户端消息，4月22日晚，在北京市新冠病毒肺炎疫情防控工作第311场新闻发布会上，北京市疾控中心副主任、全国新冠病毒肺炎专家组成员庞星火介绍，4月22日16时至22时，北京新增本土新冠肺炎病毒感染者4例，均为确诊病例：朝阳区2例、顺义区2例。另有1例核酸复核阳性人员及9例核酸初筛阳性人员，共13例。初判传播风险高！北京本起疫情涉老年旅游团、装修人员及在校生。截止到23日，北京新增本土新冠肺炎感染者已增加到15例。
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据《国会山报》The Hill 4月19日报道，世界卫生组织总干事谭德塞周二表示，迄今为止，世卫组织已核实147起针对乌克兰医疗设施的袭击事件，其中73人死亡，53人受伤。并再次呼吁俄罗斯结束战争。
 
-笔者观察到此次疫情宣布时间选择在22日晚23点30分，此时大部分北京居民已经休息，无法作出快速反应，且爆发点在旅游团和学校，均为易于迅速传播的渠道。
+今年3月，乌克兰官员指责俄罗斯轰炸了马里乌波尔一所妇产医院，造成3人死亡，十几人受伤，被毁的现场照片广泛流传。
 
-文贵先生早在21日的临时直播中就已经爆料，接下来会对北京实施隔离管控，共产党一定是以疫情为借口对北京采取行动。共产党的一切都按照写好的剧本在进行，只不过这次的演员从2600万的上海市居民，转移到了2100多万的北京市居民，悲剧在一个个上演，犹如一部巨型灾难片，中共不灭，灾难不止！
+乌克兰官员还指责俄罗斯袭击了乌克兰南部城市米克莱夫的一家癌症医院和其他几栋建筑。美国上个月认定，俄罗斯在乌克兰犯下了战争罪。
 
-新闻来源：
-[https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&mod=pcpager\_china&loc=15&r=0&rfunc=10&tj=cxvertical\_pc\_pager\_spt&tr=174#/](https://news.sina.com.cn/c/2022-04-22/doc-imcwipii5902445.shtml?cre=tianyi&amp;mod=pcpager_china&amp;loc=15&amp;r=0&amp;rfunc=10&amp;tj=cxvertical_pc_pager_spt&amp;tr=174#/)
+美国国务卿安东尼·布林肯(Antony Blinken)在宣布正式评估报告时，指出了俄罗斯军队袭击医院等行为。拜登总统和前总统特朗普也声称俄罗斯在乌克兰犯下了种族灭绝罪。
 
-[https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/](https://news.sina.com.cn/c/2022-04-23/doc-imcwipii6016865.shtml#/)
+盖特链接：[https://gettr.com/post/p16phse937e](https://gettr.com/post/p16phse937e)
 
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
