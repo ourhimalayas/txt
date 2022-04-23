@@ -2,37 +2,15 @@
 ---
 
 
-## 【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397616/)
+## 图片：419断播事件（5周年）直播系列二
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2397655/)
 
-**By：[秘翻北美时评](https://gettr.com/post/p16o2xv17ee)**
+#### 制图：日本东京方舟农场 S戰友
 
-***[2022-04-23](https://gettr.com/post/p16o2xv17ee)***
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5.1-1.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5.2.jpg)
 
-
-
-
-**今日主题：**
-
-**1.上海22日起开展社会全面清零攻坚九大行动 **
-
-**2.上海666家龙头企业70%本周复工复产 **
-
-**3.朝鲜因防疫射杀3名中国人 **
-
-**4.世界正式进入中美竞争时代 **
-
-**5.全球粮食危机或带来“人类大灾难” **
-
-**6.普京脸部浮肿再爆犯癌**
-
-🔗链接：[https://gettr.com/post/p16o2xv17ee](https://gettr.com/post/p16o2xv17ee)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

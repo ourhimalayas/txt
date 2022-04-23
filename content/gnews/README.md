@@ -15,41 +15,41 @@
 
 ---
 
-### [图片：419断播事件（5周年）直播系列三](/content/gnews/1/README.md)
- ` 日本東京方舟農場`
+### [【全文字幕】2022年04月11日 文贵试直播](/content/gnews/1/README.md)
+ ` 文贵视频字幕全集`
 
-### [有声|加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/2/README.md)
+### [有声|上海封控民众质问核酸检测黑幕](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [乌克兰境内流离失所者继续增加超过了770万](/content/gnews/3/README.md)
+### [图片：419断播事件（5周年）直播系列三](/content/gnews/3/README.md)
+ ` 日本東京方舟農場`
+
+### [有声|加拿大媒体报导新中国联邦乌克兰救援](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [乌克兰境内流离失所者继续增加超过了770万](/content/gnews/5/README.md)
  ` mayflowertranslate`
 
-### [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（4/4）](/content/gnews/4/README.md)
+### [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（4/4）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [皇帝新装 习近平全票当选广西出席党的二十大代表](/content/gnews/5/README.md)
+### [皇帝新装 习近平全票当选广西出席党的二十大代表](/content/gnews/7/README.md)
  ` 儒为`
 
-### [有声|爆料革命联合西方成就护台神队](/content/gnews/6/README.md)
+### [有声|爆料革命联合西方成就护台神队](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [图片：419断播事件（5周年）直播系列二](/content/gnews/7/README.md)
+### [图片：419断播事件（5周年）直播系列二](/content/gnews/9/README.md)
  ` 日本東京方舟農場`
 
-### [有声|习近平迷信莫德尔周期，中共自取灭亡](/content/gnews/8/README.md)
+### [有声|习近平迷信莫德尔周期，中共自取灭亡](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动](/content/gnews/9/README.md)
+### [【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [印尼忧危机宣布棕榈油出口禁令 中共国棕榈油进口新低](/content/gnews/10/README.md)
+### [印尼忧危机宣布棕榈油出口禁令 中共国棕榈油进口新低](/content/gnews/12/README.md)
  ` 波士顿五月花农场金融部`
-
-### [有声|中共政权岌岌可危 新中国联邦拯救中国人](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [有声|调查发现，辉瑞和FDA早在2021年已知疫苗无效且有害](/content/gnews/12/README.md)
- ` MOSREC`
 
 ### [秘翻在线：患有基础疾病的英国新冠（中共病毒）患者持续阳性16个月以上](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
@@ -105,8 +105,8 @@
 ### [大多数欧盟国家几乎取消了“中共病毒”防疫措施](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [文贵视角:419事件是新中国联邦女权运动的开始](/content/gnews/31/README.md)
- ` 秘密翻译组-原创组`
+### [日本东京樱花团 中文新闻播报第56期](/content/gnews/31/README.md)
+ ` Tokyo Sakura Video Group`
 
 ### [一家钢铁厂变成马里乌波尔最后的堡垒和据点](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`

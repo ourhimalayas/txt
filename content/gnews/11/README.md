@@ -2,38 +2,37 @@
 ---
 
 
-## 有声|中共政权岌岌可危 新中国联邦拯救中国人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397589/)
+## 【秘翻北美时评】上海22日起开展社会全面清零攻坚九大行动
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397616/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-在419五周年大直播中，在谈到五年爆料革命的发展对中共体制的影响时，郭文贵先生表示，自俄乌战争开始起，中共党内很多人士已经意识到，中共政权岌岌可危。中共党内人士清楚地知道，习近平坚定地与普京合作，就是自取灭亡。上海封城事件，让更多体制内人士认识到中共的邪恶本质。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8364044.jpg)
-郭先生称，西方世界已掌握所有在中共机关任职人员的相关信息。中共党内人士清楚地知道，一旦攻打台湾，中共将面临更加严厉的国际制裁，与中共有关的海外资产将被查封。 所谓“君子不立于危墙之下”，实际上是中共之墙危在旦夕。
+**By：[秘翻北美时评](https://gettr.com/post/p16o2xv17ee)**
+
+***[2022-04-23](https://gettr.com/post/p16o2xv17ee)***
 
 
 
 
 
-文字版原文：[中共政权岌岌可危 新中国联邦拯救中国人](https://gnews.org/zh-hans/2390951/)
+**今日主题：**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+**1.上海22日起开展社会全面清零攻坚九大行动 **
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**2.上海666家龙头企业70%本周复工复产 **
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**3.朝鲜因防疫射杀3名中国人 **
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**4.世界正式进入中美竞争时代 **
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**5.全球粮食危机或带来“人类大灾难” **
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**6.普京脸部浮肿再爆犯癌**
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+🔗链接：[https://gettr.com/post/p16o2xv17ee](https://gettr.com/post/p16o2xv17ee)
 
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
