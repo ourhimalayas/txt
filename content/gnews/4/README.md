@@ -2,28 +2,30 @@
 ---
 
 
-## 加拿大通脹又創新高
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394973/)
+## 2022年4月23日《樱花简报》：民调显示40%日本民众支持加强对俄制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2395000/)
 
-##### 作者：加拿大溫哥華揚帆農場 -【自由法兰西】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2825.png)圖片來源：[https://www.ctvnews.ca/](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220423简报-scaled.jpg)
 
+2022年4月23日《樱花简报》新闻：
 
-加拿大CTV新聞4月20日報道，加拿大統計局報告，加拿大3月份通貨膨脹率高達6.7%，是1991年1月以來消費價格指數同比增長最快的一年。
+◆日本新增确诊中共病毒4万7131例 4月22日，日本通报新增中共病毒确诊4万7131例，新增染疫死亡50例。
 
-其中油價一枝獨秀，與去年同期相比上漲39.8%；此外，3月份價格壓力還主要來自於居高不下的房產市場、供應鏈限制以及俄烏戰爭。新屋價格3月份同比增長12.9%；由於乳制品和雞蛋價格創1983年2月以來最大漲幅，商品雜貨價格同比上漲8.7%；受俄烏戰爭影響，面粉和谷物價格也大幅跳升。
+◆东京都宣布延长“严防疫情反弹期” 东京都政府4月21日表示，为了防止中共病毒疫情再度扩散，决定将4月24日到期的“严防疫情反弹期”延长约1个月，到5月22日为止。
 
-由於3月份物價增長較快，雖然每小時平均工資增長了3.4%，但仍然導致消費者最終購買力下降。有跡象表明，加拿大通脹率將長期維持高位，令經濟學家和銀行家們感到恐慌，上周，加拿大銀行將關鍵政策利率提高了半個百分點，將基準利率提高到1%，並警告今年還會有更多加息。其中，愛德華王子島的通脹幅度最為明顯，為8.9%，安省7%，魁省6.7%，BC省6%。
+◆日本将发放乌克兰避难民证明 为了让前来日本避难的乌克兰人顺利获得援助，日本出入国在留管理厅决定向他们颁发避难民证明。证明除了脸部照片，还将记载入境日期和日本政府指定的证明号码等信息。
 
-原文鏈接：[https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214](https://www.ctvnews.ca/business/canada-s-annual-rate-of-inflation-highest-since-1991-statcan-1.5868214)
+◆外务省民调：4成民众支持加强对俄制裁 日本外务省以国内民众为对象，围绕乌克兰局势等外交问题进行了民意调查。约65%的民众回答应与七国集团等国际社会合作，加强对俄罗斯制裁。
 
-上傳/發稿 – 【青青】
-撰稿/翻譯/聽寫 -【自由法兰西】
-素材/采編 -【自由法兰西】
-校對/審核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-3.png)
-* * *
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

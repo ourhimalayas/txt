@@ -2,25 +2,35 @@
 ---
 
 
-## 佩洛西访台飞机或许只能降去日本，大量资金外逃激化两阵营搏斗
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2394063/)
+## 加拿大人参与拯救乌克兰数字历史的全球努力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394092/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
-
-4月22日，郭文贵先生于Gettr视频中透露，美众议院议长南希·佩洛西4月26日的访台飞机或许只得降落在日本，如果中共对台有动作台湾也会反击，并表示，大量资金外逃中共国激化两大阵营的殊死搏斗。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif.com-gif-maker-9.jpg)图片来源REDDIT
-
-
-4月26日佩洛西的访问台湾将是个重大事件，但中共的强烈反应，或有封锁台湾或者攻打台湾的过激动作，可能导致佩罗西的访台飞机最终只会降落在日本。对于中共的直接威胁甚至军事攻击，台湾方面一定也会有军事反击。那时，福建省、上海、香港肯定是首当其冲，而且这些地方一定会处于断电、断水状态。大连、青岛因为有军事基地，也成为最危险的区域之一。
-
-俄乌战争持续进行，中共对台战争一触即发，新冠病毒肆虐世界的同时疫苗灾难已经开始，世界经济处于崩塌边缘。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Z1-qCScSk8o.jpg)图片来源Google
+##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2802.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
 
-各国股市、债市忽上忽下，根据公开在册的基金统计出3 月境外投资者净卖出了近180 亿美元的中共国债券，然而这也只是资金外流的冰山一角。比如，与中共沆瀣一气的PAG（太盟投资集团）在中共国投资达几百亿美元，最近也想撤资逃离但发现根本无法实现，投资款早就被王岐山等中共高层家族瓜分殆尽，这也是PAG不敢公开自己投资组合的原因。PAG的诈骗行为影响的不只是自己，这些投资款涉及美国、加拿大等国家的养老基金、教育基金，PAG未来的结局只能是破产。跟着共产党走进火葬场适用于任何人也包括PAG本身，即便PAG曾大力协助中共做恶勾兑，但最终一定会被法律严惩，PAG事件一定成为中美之间、世界所有金融机构和司法机构最大的丑闻之一（制造假文件、作假证、收买律师）。
+据CTV NEWS 4月19日报道，加拿大人参与了一项保护乌克兰文化遗产数字内容和数据的全球任务。俄罗斯不分青红皂白的轰炸对乌克兰的数字内容和数据构成了威胁。这个名为“拯救乌克兰文化遗产在线”(save Ukrainian Cultural Heritage Online)的组织拥有1300多名专业人员，包括图书管理员、档案管理员、研究人员和程序员，他们自愿识别并存档乌克兰重要网站，并把这些网站的数据存放在大学、图书馆、博物馆和画廊的服务器上。到目前为止，该组织已经从3500多个网站保存了超过30tb的扫描文件、艺术品和其他材料。
 
-共产主义和亲共产主义者试图征服世界，世界自由民主主义正在与共产主义殊死搏斗，处于危机之中但也充满了前所未有的生机。
+阿尔伯塔大学的加拿大乌克兰研究所(Canadian Institute of Ukraine Studies)也参与了一个名为“档案救援队”(Archives Rescue Team)的平行项目，该项目正在帮助支持尚未发表的研究。
 
+原文链接：[https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
+
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
