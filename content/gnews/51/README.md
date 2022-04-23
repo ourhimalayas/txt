@@ -2,31 +2,29 @@
 ---
 
 
-## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
+## 乌军指挥官讲述马里乌波尔战争的真实情况
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390050/)
 
-**图/文｜CP **
-**发布时间｜22/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
+作者：华盛顿DC农场 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+4月19日，乌克兰第 36 独立海军陆战队少校沃利纳，在马里乌波尔仅剩的亚速钢铁厂阵地，通过视频向媒体介绍了当地的战争状况。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+在俄军的猛烈轰炸下，亚速钢铁厂成为当地留守军民的最后堡垒，容纳有乌克兰国民警卫队下属的亚速尔军团成员、警察和边防警卫，以及包括妇女儿童在内的上千名平民。截至目前，俄军仍试图在坦克和步兵战车的掩护下进行突击行动，以突破乌克兰的防御。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-51.jpg)
+该钢铁厂与外界隔绝，军民目前居钢铁厂的一个地下隧道系统中，以免于受到战火波及，在隧道内仅提供最低限度的医疗服务。而奋力抵抗的士兵们，沃利纳少校表示每天只能在潮湿的地下室睡两到三小时，但士气没有受到影响，少校表示俄军屡次失信，他们不会只会奋斗到底，不会相信俄罗斯人，即便俄军曾多次要求他们投降并祭出最后投降期限。
 
+最后，沃利纳少校呼吁各国领导人，尤其是拜登总统，希望能够保障这里的军人和平民安全“撤离”。
 
-美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
+参考链接：[Surrounded by Russians, commander describes life inside Mariupol plant](https://www.washingtonpost.com/world/2022/04/19/ukraine-mariupol-serhiy-volyna-azovstal-factory/)
 
-涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
-
-根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
-
-另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
-
-來源｜[SEC](https://www.sec.gov/hfcaa)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+总编：zhong
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

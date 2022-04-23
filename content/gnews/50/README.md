@@ -2,23 +2,27 @@
 ---
 
 
-## 台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390162/)
+## 美、英、加承诺为乌克兰提供更多武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390051/)
 
-**港台前线 zhong｜2022-4-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-10.png)
-4月21日台湾晚间郭文贵直播爆料，美国众议院议长裴洛西（Nancy Pelosi）原定4月10日访问台湾因确诊新冠后延期，4月26日她将访问台湾，且郭说到“我相信这次估计不会再有任何阳性的借口不去台湾了”。此外，郭表示中共在他直播爆裴洛西访台的料前几小时紧急开会，向美国表达严重关切（裴访台），美国回应将不会再理会中共所谓的严重关切，中共则称“4月26日将会是（中美关系）分水岭的日子”。
+作者：华盛顿DC农场 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+4月19日外媒报道，由于俄罗斯对乌克兰东部再次发动进攻，美国总统拜登、英国首相约翰逊、加拿大总理特鲁多和其他盟国领导人当天针对最新的战事进行了90分钟的视频通话，讨论如何进一步加强军事援乌行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-52.jpg)
+拜登总统预计将在未来几天内宣布对乌克兰的另一项军事援助计划。英国首相约翰逊表示将给予乌克兰更多炮兵支持，而加拿大总理特鲁多则表示，除了重型火炮支援外，承诺提供更多物资给乌克兰。
 
-郭分析认为4月26日至5月6日期间台湾极其危险，只要中共攻台，香港经济完蛋、大陆经济也完蛋，北京一定戒严，上海将会面临更严峻的情形。此外，俄乌战争局势也有大变化，普京开始向西方释出和解信号，原因有四，其一为俄罗斯自豪的莫斯科号遭击沉，其二为俄国巨无霸轰炸机王牌飞行员遭炸死，三为俄罗斯久战未成功夺取程式，四为俄国内部有强烈反战声浪。除此之外，欧盟态度十分强硬，不惜核战也将跟俄国抗争下去。
+白宫新闻秘书普萨基表示，在该视频通话中，将协调七国集团、欧盟和北约让俄罗斯承担更重的经济压力。此外，乌克兰战争关系到全世界，不仅仅是欧洲或西方的问题，因此该会议也讨论到如何让欧盟及G7以外的国家意识到援乌的重要性。
 
-郭表示，过去中共与俄罗斯认为美国无法再世界上同时应付两场战争，故俄罗斯攻打乌克兰、中共攻打台湾，但目前普京向西方或向美国示好，中共不仅会攻台，习近平已准备好消灭台湾（将台湾铲平）。
+参考链接：[U.S., Britain, Canada pledge artillery for Ukraine](https://www.reuters.com/world/biden-allies-hold-video-call-ukraine-2022-04-19/)
 
-此外，中共不打台湾的可能性，郭认为已经没有了，原因在于裴洛西26日访台若习不攻打台湾，习在20大之前一定会被灭，习过去长时间的准备就是攻打台湾。而他更进一步认为，裴洛西访台后中共未动作，紧接着拜登总统很可能就访台，台湾就独立了。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+总编：zhong
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -102,71 +102,71 @@
 ### [美国CDC就儿童不明原因肝炎病例发出全国性警报](/content/gnews/29/README.md)
  ` 蓝莲花农场`
 
-### [联合国表示 逾770万乌克兰人在国内流离失所](/content/gnews/30/README.md)
+### [国际货币基金组织因俄乌战争下调全球增长预测](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [国际社会继续制裁俄罗斯 援助乌克兰](/content/gnews/31/README.md)
+### [日本高层呼吁民众不要歧视在日本的俄罗斯人](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [国际货币基金组织因俄乌战争下调全球增长预测](/content/gnews/32/README.md)
- ` NFSC News`
-
-### [日本高层呼吁民众不要歧视在日本的俄罗斯人](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [温布尔登网球锦标赛禁止俄罗斯和白俄罗斯运动员参加](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [沪指再度失守3100 人民币汇率创6个月新低](/content/gnews/35/README.md)
+### [沪指再度失守3100 人民币汇率创6个月新低](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [安徽蕪湖封城，市民半夜搶菜。](/content/gnews/36/README.md)
+### [安徽蕪湖封城，市民半夜搶菜。](/content/gnews/33/README.md)
  ` Tokyo Sakura Video Group`
 
-### [乌克兰放弃大疆无人机改用美国设备](/content/gnews/37/README.md)
- ` 日本东京方舟农场`
-
-### [上海，租客不讓進租屋，在外面流浪，居委不管。](/content/gnews/38/README.md)
- ` Tokyo Sakura Video Group`
-
-### [上海寶山區，網友曬現在上海物價，平民真的吃不起。](/content/gnews/39/README.md)
- ` Tokyo Sakura Video Group`
-
-### [泽伦斯基警告俄罗斯不仅盯上乌克兰南部还有其它国家](/content/gnews/40/README.md)
- ` 蓝莲花农场`
-
-### [三家中共国能源公司正在谈判购买壳牌在俄罗斯天然气出口项目中的股份](/content/gnews/41/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [埃隆-马斯克可能将特斯拉、SpaceX和Twitter合并为新的“超级公司”](/content/gnews/42/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [参议员泰德·克鲁兹：美国对中共国的依赖是严重的国家安全风险](/content/gnews/43/README.md)
- ` 美国政要直译推`
-
-### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/44/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [共产独裁的恶行出现在波兰梅迪卡](/content/gnews/45/README.md)
+### [新中国联邦大帐篷添置新设备方便难民了解救援信息](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/46/README.md)
+### [乌克兰放弃大疆无人机改用美国设备](/content/gnews/35/README.md)
+ ` 日本东京方舟农场`
+
+### [上海，租客不讓進租屋，在外面流浪，居委不管。](/content/gnews/36/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [上海寶山區，網友曬現在上海物價，平民真的吃不起。](/content/gnews/37/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [三家中共国能源公司正在谈判购买壳牌在俄罗斯天然气出口项目中的股份](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [埃隆-马斯克可能将特斯拉、SpaceX和Twitter合并为新的“超级公司”](/content/gnews/39/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [参议员泰德·克鲁兹：美国对中共国的依赖是严重的国家安全风险](/content/gnews/40/README.md)
+ ` 美国政要直译推`
+
+### [共产独裁的恶行出现在波兰梅迪卡](/content/gnews/41/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期](/content/gnews/47/README.md)
+### [4/22/2022国际财经快讯：乌克兰冲突、芯片危机削弱雷诺第一季度销量；SAP收入增长超过预期](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/48/README.md)
+### [粮食危机｜世行警告：俄乌战争或引发“人类大灾难”](/content/gnews/44/README.md)
  ` 關注組`
 
-### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/49/README.md)
+### [国际｜2022年日本外交蓝皮书出炉：世界已正式进入中美竞争时代](/content/gnews/45/README.md)
  ` 關注組`
 
-### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/50/README.md)
+### [台海危机｜爆料裴洛西26日将访台 中美关系或由此进入分水岭](/content/gnews/46/README.md)
  ` 關注組`
 
-### [财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”](/content/gnews/51/README.md)
+### [财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”](/content/gnews/47/README.md)
  ` 關注組`
+
+### [遭日本驱逐的8名俄罗斯外交人员已离境](/content/gnews/48/README.md)
+ ` NFSC News`
+
+### [日本援助乌克兰防护用品和无人机](/content/gnews/49/README.md)
+ ` NFSC News`
+
+### [美、英、加承诺为乌克兰提供更多武器](/content/gnews/50/README.md)
+ ` NFSC News`
+
+### [乌军指挥官讲述马里乌波尔战争的真实情况](/content/gnews/51/README.md)
+ ` NFSC News`
 
 ### [中日财经爆┃日美财长就日元贬值问题举行会谈](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
