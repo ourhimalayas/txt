@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 3:03 AM (UTC)`
+
+2022-4-22《鸡血王喜币大作战》 第一百七十三集 嘉宾：青藤、文空、风雨之中
+![img](https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 2:05 AM (UTC)`
 
 2022.04.22  新中国联邦 | 喜财经   馬斯克開嗆札克伯格：Meta完全被他控制
@@ -147,13 +154,6 @@
 
 2022-4-22 俄乌战争战况播报
 ![img](https://media.gettr.com/group11/origin/2022/04/22/17/1c9da350-e956-a5d1-4f5f-df1f21f4b62a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/22/2022 3:42 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月21日第48天当日救援统计：<br/>Medyka救援站接待：约252人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13611人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 48 - Date: April 21, 2022 :<br/>Medyka Rescue Station Reception: about 252 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13611 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group24/getter/2022/04/22/15/12fc97ca-f34c-7305-12eb-61d515393130/2b16e8aba7de9c270a683436ffa1ac90.jpg)
 
 ---
 
