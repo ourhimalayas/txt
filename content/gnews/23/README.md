@@ -2,40 +2,36 @@
 ---
 
 
-## 一女子在 20 天内两次感染新冠病毒 创下新纪录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396912/)
+## 2022/04/18 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2397176/)
 
-翻译： Jenny Ball
+1. 4月15日，上海。疑似一位老人核酸检测阳性后，被医护人员从其住宅处强制拉走隔离。
+2. 4月17日， 江苏苏州。102岁独居老人，自己一个人在家，按照中共疫情防控政策却需要每天下楼做核酸检测。
+3. 某地居民爬出中共政府设置的隔离封锁线后，被无处不在的监控人员呵斥返家。
+4. 4月17日，江苏南通第三人民医院发现新冠病毒阳性确诊病例后，医院附近周边立即被进入大面积管控状态。
+5. 4月16日，上海。新冠病毒阳性患者转阴后，仍被当地社区要求拉去集中隔离点观察。患者深夜哭诉，惹周围群众不满。
+6. 4月16日，上海。中共疫情隔离区，方舱医院下的隔离生活。
+7. 4月17日，上海。疫情下的疾控中心权力大无边，要求你隔离你就得隔离。隔离中转点九十多岁的老人也无法例外，坐等一夜等待被集中隔离。
+8. 4月17日，上海宝山区顾村中学。来不及建方舱医院，阳性患者被就地取材安置在顾村中学的一个临时隔离点。
+9. 4月10日，安徽阜阳市。男子在阜阳颖州区中共疫情管控区内，碰到一位年轻人夜晚在垃圾桶里翻找吃的。
+10. 疫情下的中国大陆，一边物资奇缺多少人饿死，一边物资却又会人为原因的导致被大量浪费。共产主义统治下的社会总是会反复出现大量饿死人的人祸惨案
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon
+ 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
+- *3，翻译：一切都是刚刚开始Miles#4229
+ 4，PR：Seven-Star Ant*
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-498.jpg)
-
-[据CNBC报导:](https://www.cnbc.com/2022/04/21/woman-caught-covid-twice-in-20-days-marking-a-new-record.html)
-
-据西班牙研究人员称，据报道，一名医护人员在感染由 Delta 变体引起的感染后，仅 20 天就检测出 Omicron 冠状病毒株呈阳性。
-
-研究人员将于下周末在葡萄牙举行的今年欧洲临床微生物学和传染病大会上，介绍对这名 31 岁女性的案例研究，她已完全接种疫苗，并注射了加强免疫针。
-
-感染之间的 20 天间隔是已知最短的。
-
-新闻来源：[Woman Catches COVID Twice Within 20 Days, Marking a New Record](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
 
 * * *
 
-审核：文乐    
-校对：信心满满
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

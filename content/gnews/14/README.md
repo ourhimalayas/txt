@@ -2,28 +2,39 @@
 ---
 
 
-## 中日财经爆┃乌克兰央行禁止法币购买比特币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397122/)
+## 有声|日媒揭露疫情下中共国经济真相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397345/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，乌克兰国家银行宣布禁止使用格里夫尼亚(乌克兰货币)购买比特币，并将每月使用外币购买比特币的上限定为3300美元。该央行表示，这些措施对于防止资本外流和减轻外汇储备压力是必要的。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃乌克兰央行禁止法币购买比特币.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwzimg.fx994.com%2Ftest%2Fguoji%2F2021-07-12%2F637616948778214267%2FART637616948778214267_258118.jpg_bitdefault&amp;imgrefurl=https%3A%2F%2Fwww.wikibit.uk%2F202107124954483115.html&amp;tbnid=9QJdrQ8jLqGILM&amp;vet=12ahUKEwi5sJrO3qn3AhXRxoUKHf_bDnMQMygEegUIARCxAQ..i&amp;docid=ep6WlIW_OK1QGM&amp;w=990&amp;h=556&amp;itg=1&amp;q=%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%BD%E5%AE%B6%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwi5sJrO3qn3AhXRxoUKHf_bDnMQMygEegUIARCxAQ)
-乌克兰国家银行并不是乌克兰第一家禁止比特币购买的机构。今年3月，该国最大的商业银行PirvatBank停止客户使用乌克兰货币购买比特币。此举正值俄罗斯入侵乌克兰，破坏了双方经济之际。本月早些时候，世界银行估计乌克兰的国内生产总值今年将下降45%。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月18日，郭先生盖特视频中爆料，中共国所谓的2022年第一季度GDP上涨4.8%，是一贯的弄虚作假，真实数据一定是负数。
 
-在乌克兰提出新的加密货币限制之前，该国通过数字代币获得了大量捐赠款项。为了支持其与俄罗斯间的对抗，乌克兰通过加密货币捐款筹集资金，3月份设定的目标是2亿美元，目前已经获得了近6700万美元。
+日媒在当天揭露了墙内经济的真实状况。记者走访了一家北京市内由恒大公司投资运营的购物中心。整个中心门可罗雀，大部分店面甚至连装修都没有，待租的店面挂出8折入驻的字样，想要吸引商铺签约，只有为数不多的商铺还在营业。据商户们反映，造成购物中心经营惨淡的原因，不是恒大地产的暴雷，而是持续两年多的中共病毒疫情。自病毒爆发以来，他们的生意就一直处于下坡的状态。整个购物中心渐渐地人去楼空，宛如废墟。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-39.jpg)
+郭先生还指出，中共内部人士透露，高层早已定调今年所有跟GDP相关数字，必须维持在4%以上。同时，强制清零政策的目的就是为了降低近七成的社会成本，省下的这些社会成本，就会成为中共口中GDP增长的基石。他强调，这表明中共根本不是市场经济，而是政治经济。
 
-消息来源:
-[【比特日报】币安陷俄监管风暴！比特币跌破4万大关 乌克兰突宣布：限买加密货币防资本外逃](https://ca.fx168news.com/cryptocurrency/2204/5841551.shtml)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+
+
+
+文字版原文：[日媒揭露疫情下中共国经济真相](https://gnews.org/zh-hans/2390530/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

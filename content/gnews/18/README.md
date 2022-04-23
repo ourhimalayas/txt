@@ -2,38 +2,41 @@
 ---
 
 
-## 昆士兰解除密切接触者及未接种疫苗旅客的隔离规定
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2396982/)
+## 有声|新中国联邦网站4月19日正式上线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397271/)
 
-撰稿：Gradient Boost
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2022年4月19日，是郭文贵先生发生美国之音VOA419断播、爆料革命开启新征程的5周年纪念日。这一天，新中国联邦官方网站正式公布并投入使用，以纪念这个重要的日子，展示新中国联邦、新中国人的新形象。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-46.jpg)
+联邦官网是新中国联邦的门户网站，目前有中英文两种语言，内容除与郭先生有关的各项信息及新闻链接外，还包括法治基金、各农场服务器和G系列各项具体内容的链接引流，以及拥有我们自己定义权的新中国联邦辞典和自主开发的搜索功能，风格倾向于简单，大方。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.22-B.jpg)网络图片
-昆士兰州是澳大利亚又一个取消对 COVID-19 密切接触者和未接种疫苗的国际入境者隔离要求的地区。从下周四开始，过去强制性的七天隔离条件将不再适用于任何一类人。尽管如此，一些其它规定仍然适用于密切接触者。
+联邦网站是爆料革命、新中国联邦所有农场服务器和G系列的入口，可以起到重要的宣传作用。另外，网站还开通了一对一、安全的客户服务功能，战友们可以通过文字进行沟通投诉，或者爆料。未来，网站还将承接战友认证等功能。
 
-自4 月 28 日下午 6 点以后，任何无症状的密切接触者都可以继续他们的日常生活，这也包括重返工作岗位。如果密切接触者出现了症状——即使他们的检测结果为阴性——他们仍应在家进行自主隔离。因此确定隔离与否的条件似乎从是否阳性转变为是否出现症状。
 
-不过另一方面，对于密切接触者的病毒检测要求并没有完全解除。如果一位居民被认定为密切接触者，那么他仍需要每隔一天进行一次检测——即便是在无症状的情况下。同时密切接触者也需要在外出时佩戴口罩。
 
-另外，密切接触者在发现自己是密切接触者后7天内不可以访问“脆弱环境”，包括医院及养老院等。
 
-目前，昆士兰州对Isolation和Quarantine的这两个单词给予了不同解释，尽管这两个词在中文语境里都可以理解为隔离。在昆士兰，Quarantine是指远离他人以防您感染 COVID-19，而Isolation是指在您知道自己感染 COVID-19 时远离他人。
 
-*编辑：Gradient Boost*
 
-*发布：Gradient Boost*
 
-新闻参考链接：
+文字版原文：[新中国联邦网站4月19日正式上线](https://gnews.org/zh-hans/2390046/)
 
-[9 News](https://www.9news.com.au/national/queensland-covid19-close-contact-rule-changes-explained/efbdb634-2c44-4333-9960-5235f0f247ba)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-**更多信息，更多关注
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
