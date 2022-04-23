@@ -2,31 +2,46 @@
 ---
 
 
-## 西澳州长的孩子因感染中共病毒重症入院
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2398377/)
+## 在加人权组织的压力下，渥太华大学放弃COVID疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2398372/)
 
-**整理报道：**翼族
+据《LifeSite》作者，2022年4月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2890-e1650716773205.png)图片来源：lifesite
+宪法自由司法中心一再呼吁该大学结束其滥用和歧视性的做法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/fda790c7953bce92c265d2d2675124eb5c1987d3-16x9-x0y226w4341h2442.jpg)Sound Telegraph
+渥太华 （JCCF）——在多次呼吁渥太华大学（U of O）结束其滥用和歧视性做法后， 司法中心很高兴地宣布，该大学已表示将从2022年5月1日起取消对学生的强制性疫苗政策。
+
+司法中心代表一名怀孕的学生，她在决定不接种COVID疫苗后被停学。她的医生告诉她，由于与COVID无关的原因，她的怀孕处于高风险状态，并建议她虚拟完成她的强制性实习，这是课程允许的。
+
+然而，渥太华大学拒绝接纳她，谎称她正试图规避疫苗接种政策，并且没有地方可用于虚拟实习。
+
+学生声称，在整个过程中，渥太华大学几乎没有努力寻找双方都能接受的解决方案，并拒绝根据案件事实证明其决定的合理性。
+
+“很明显，渥太华大学不打算遵循加拿大最高法院在15多年前制定的‘合理便利’基本标准。” 魁北克省司法中心的高级外部法律顾问塞缪尔·巴昌德（Samuel Bachand）指出。
+
+在与司法中心的律师协商讨论后，该学生自己找到了合适的虚拟实习位置，最终获得了大学的批准。
+
+“大学在这件事上的厚颜无耻和不诚实令人震惊。很明显，在当权者中，有一些官僚愿意为了不合理的健康问题而牺牲他们机构的使命。”巴尚先生评论道。
+
+“科学界普遍认为，Covid疫苗不能预防病毒的感染或传播。鉴于接种疫苗不会赋予特殊地位或保护，因此渥太华大学或任何其他高等教育机构的疫苗强制令没有任何依据。” 巴昌德先生总结道。
+
+本文转载Lifesite News经JCCF许可重新发布的文章。
+
+文章来源：[https://www.lifesitenews.com/news/university-of-ottawa-drops-covid-jab-mandate-after-pressure-from-canadian-rights-group/](https://www.lifesitenews.com/news/university-of-ottawa-drops-covid-jab-mandate-after-pressure-from-canadian-rights-group/)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
 
 
-自中共病毒（COVID-19）疫情以来，西澳大利亚州政府一直推行疫苗强制政策。2022年一月份，西澳州长麦高恩（Mark McGowan）在新闻发布会上公布了疫苗接种的最新规则，要求西澳州16岁及以上的人在一些公共场所和工作场所必须提供接种两剂的疫苗接种证明，除非获得疫苗接种豁免。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-虽然西澳州的接种率一直在增加，但是西澳州的确诊病例却并没有减少。西澳大利亚州于过去的24小时记录了8777例新病例和5例新增死亡病例。目前该州有42613例活跃病例，258人住院，其中9人在重症监护室。
-
-本周五（4月22日）麦高恩州长办公室证实州长的核酸检测PCR结果呈阳性，后来州长办公室透露麦高恩州长三个孩子中的一个因病重而入院。州长办公室的该份声明中写到：“**这位孩子已完全接种疫苗，但由于感染而病情严重。**孩子仍在医院接受治疗。在这个困难时期，麦高恩家庭要求就该事项予以保密。”
-
-据悉，麦高恩州长有三个孩子——两个儿子和一个女儿。
-
-*发布：翼族*
-
-参考链接：[WA Premier Mark McGowan’s child admitted to hospital in serious condition with COVID-19](https://amp.abc.net.au/article/101008148)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

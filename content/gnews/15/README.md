@@ -2,20 +2,18 @@
 ---
 
 
-## 有声｜新加坡宣布将大幅放宽疫苗差异化政策
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2398413/)
+## 有声｜美路易斯安那州众议院通过禁止强制疫苗法案
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2398395/)
 
 By:**秘翻新闻**
 
 **2022-04-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/423-4.jpg)
-据[《海峡时报》](https://www.straitstimes.com/singapore/health/tracetogether-no-longer-required-in-most-settings-from-april-26)4月22日报道，从4月26日起，新加坡大多数地方将不再区分接种者和未接种者，但风险较高的场所除外，如大型活动、餐饮店和夜生活场所。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/423-3.jpg)
+据[《大纪元》](https://www.theepochtimes.com/louisiana-house-passes-bill-to-ban-state-local-covid-19-vaccine-mandates_4419947.html)4月21日报道，本周三，美国路易斯安那州众议院以64票赞成、31票反对通过了一项有关中共病毒的立法。该法案禁止州政府和地方政府要求人们必须接种中共病毒疫苗才能进入公共区域和私人企业。
 
-这意味着大多数场馆将不再要求公众使用TraceTogether应用程序进行登记，但仍需进行突击疫苗接种状态检查。
+该法案将提交给该州参议院进行表决。
 
-然而，公众依然被强烈鼓励将继续应用该程序，以应对将来或会发生的病毒突变情况。
-
-(秘翻新闻 Stephanie 编译报道)
+（秘翻新闻 Stephanie 编译报道）
 
 发布 : 文橙
 

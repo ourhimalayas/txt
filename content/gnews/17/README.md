@@ -2,38 +2,31 @@
 ---
 
 
-## 对利率上升的担忧恶化，周五美国股市下跌2.8%
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398391/)
+## 西澳州长的孩子因感染中共病毒重症入院
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2398377/)
 
-撰稿：Gradient Boost
+**整理报道：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/235.jpg)图片来自网络
-本周五，华尔街股市出现跳水，标普 500 指数创下近七周来最大单日跌幅，其原因在于投资者对利率飙升和美联储努力对抗通胀的担忧正在逐步加深。同时一些公司令人失望的利润报告也动摇了市场的主要支柱。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/fda790c7953bce92c265d2d2675124eb5c1987d3-16x9-x0y226w4341h2442.jpg)Sound Telegraph
 
-标准普尔 500 指数下跌 2.8%，连续第三周下跌。道琼斯工业平均指数下跌 2.8%，创下 18 个月以来的最大跌幅，此前曾短暂下跌逾 1,000 点。纳斯达克指数也出现了近七周以来最糟糕的一天，收盘下跌 2.6%。人们对几十年来最高通胀、乌克兰战争和冠状病毒的担忧仍在蔓延。
 
-此前，美联储已经上调了一次关键隔夜利率，这是自 2018 年以来的首次上调，因为它寻求主动取消大流行期间持续的经济援助，它还准备采取其他措施对长期利率施加上行压力。
+自中共病毒（COVID-19）疫情以来，西澳大利亚州政府一直推行疫苗强制政策。2022年一月份，西澳州长麦高恩（Mark McGowan）在新闻发布会上公布了疫苗接种的最新规则，要求西澳州16岁及以上的人在一些公共场所和工作场所必须提供接种两剂的疫苗接种证明，除非获得疫苗接种豁免。
 
-通过提高企业和家庭的借贷成本，更高的利率意味着经济放缓，这有望阻止几代人以来最严重的通货膨胀。但它们同时却也可能引发经济衰退，同时给大多数类型的投资带来下行压力。
+虽然西澳州的接种率一直在增加，但是西澳州的确诊病例却并没有减少。西澳大利亚州于过去的24小时记录了8777例新病例和5例新增死亡病例。目前该州有42613例活跃病例，258人住院，其中9人在重症监护室。
 
-Commonwealth Financial Network 投资管理主管布赖恩·普赖斯 (Brian Price) 表示：“经过多年的非常宽松，美联储已经明确表示，在可预见的未来，政策将会收紧……他们的强硬立场让投资者不得不暂停观望，因为许多人需要评估对未来利润率和（股票）倍数的影响。”
+本周五（4月22日）麦高恩州长办公室证实州长的核酸检测PCR结果呈阳性，后来州长办公室透露麦高恩州长三个孩子中的一个因病重而入院。州长办公室的该份声明中写到：“**这位孩子已完全接种疫苗，但由于感染而病情严重。**孩子仍在医院接受治疗。在这个困难时期，麦高恩家庭要求就该事项予以保密。”
 
-规模较小的公司股票也大幅下跌，罗素 2000 指数下跌 50.80 点，或 2.6%，达到 1,940.66。
+据悉，麦高恩州长有三个孩子——两个儿子和一个女儿。
 
-*编辑：Gradient Boost*
+*发布：翼族*
 
-*发稿：mgjxs*
+参考链接：[WA Premier Mark McGowan’s child admitted to hospital in serious condition with COVID-19](https://amp.abc.net.au/article/101008148)
 
-新闻参考链接：[AP News](https://apnews.com/article/business-japan-asia-financial-markets-prices-0575e0bba40355e305493d204ea54c40)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

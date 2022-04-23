@@ -2,55 +2,31 @@
 ---
 
 
-## 一家钢铁厂变成马里乌波尔最后的堡垒和据点
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2396866/)
+## 沪指再度失守3100 人民币汇率创6个月新低
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395950/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+综合媒体4月21日报道，随着上海中共疫情封锁的继续，沪指再度失守3100点，中共国内和香港股价均跌至四周低点；人民币对美元即期汇率亦连续两日大跌，创六个月以来新低。
 
-**翻译：文扬
-编辑：李易通**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-64.png)
-一家拥有地下掩体的苏联时代的庞大钢铁厂成为乌克兰在饱受蹂躏的马里乌波尔市的最后一个堡垒，俄罗斯军队为完全控制该市而进行的战斗似乎正在进入最后阶段。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/b-3.png)图片源自网络
 
-乌克兰官员说，俄罗斯指挥官周二表示，他们正在开始对亚速（Azovstal）钢铁厂进行攻击。保卫这座被围困的港口城市的剩余乌克兰士兵以及1000多名平民依然在顽强抵抗俄军。俄罗斯人发动了新一轮炮击，并向工厂里的战士们发出了一系列最后通牒，要求他们投降。
+据了解，中共股市三大指数今日收盘跌幅均超出了2%，各个板块几乎全线下跌。其中，沪指再度失守3100点，两市逾百股跌停，超4400股下跌。与此同时，人民币对美元汇率在在岸市场连续两日大跌，跌幅超过1%。，而更多反映国际投资者预期的离岸人民币对美元汇率亦同样出现暴跌，人民币跌至六个月来的最低点。
 
-但是，亚速钢铁厂是一座强大的堡垒，一个巨大的工业综合体，由厚厚的混凝土和墙壁、钢门和加固的地下沃伦组成。扬·加金（Yan Gagin）自称是顿涅茨克人民共和国的俄罗斯顾问，顿涅茨克人民共和国是乌克兰东部一个由克里姆林宫支持的自封政府，他在广播报道中表示，这家钢铁厂的设计目的是抵御核战争。
+据相关机构分析，美联储加息在即，能源价格亦在高位攀升，加之上海疫情的扩散和封锁政策的延续，种种原因均促使了外资对中共经济的前景丧失信心。同时，中共党魁习近平在今日的博鳌论坛上公然发表反对西方制裁的演讲，尤其是对中俄“友谊”的肯定亦使投资人们纷纷对中共失去信任，从而加速了股票、债券市场的资金外流，进一步导致了人民币的汇率增大。股市与人民币汇率的接连失守或正意味着中共经济已岌岌可危。
 
-他说：“这基本上是一座城下之城”，他承认，俄罗斯夺取该厂的行动因连接该厂地下各层的复杂通道、房间和通信系统网络而受到很大阻碍。
+【新闻来源】[http://stock.jrj.com.cn/2022/04/21150236418689.shtml](http://stock.jrj.com.cn/2022/04/21150236418689.shtml) [https://finance.sina.com.cn/stock/roll/2022-04-21/doc-imcwiwst3192864.shtml](https://finance.sina.com.cn/stock/roll/2022-04-21/doc-imcwiwst3192864.shtml) [https://tw.news.yahoo.com/博鰲亞洲論壇登場-人民幣跌破6-41探5個月低點-鏡新聞-074735155.html](https://tw.news.yahoo.com/%E5%8D%9A%E9%B0%B2%E4%BA%9E%E6%B4%B2%E8%AB%96%E5%A3%87%E7%99%BB%E5%A0%B4-%E4%BA%BA%E6%B0%91%E5%B9%A3%E8%B7%8C%E7%A0%B46-41%E6%8E%A25%E5%80%8B%E6%9C%88%E4%BD%8E%E9%BB%9E-%E9%8F%A1%E6%96%B0%E8%81%9E-074735155.html) [https://www.asiafinan](https://www.asiafinancial.com/china-hong-kong-stocks-sink-on-supply-chain-slowdown-fears)
 
-拥有工厂的Metinvest公司的一位发言人说，工厂下面是个地堡。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-“自从第一次入侵以来，我们一直保持掩体的良好秩序，并提供食物和水”，Metinvest公司国际通讯主管加利娜·亚瑟拉（Galina Yatsura）说，这些掩体可容纳4000人，并储备了足够维持三个星期的食物和水。
+编辑/校对/发稿：Daxia
 
-据俄罗斯国家媒体报道，俄罗斯国防部要求周三在该厂区停火，以允许平民离开。然而，之前暂停战斗的尝试都失败了。
+**更多资讯，更多关注**
 
-该工厂占地4平方英里，是一个由建筑物、烟囱、高炉以及卷钢和钢板组成的综合体，它在亚速海有自己的港口设施。
-
-据乌克兰首富、亿万富翁里纳特·阿赫梅托夫（Rinat Akhmetov）拥有的钢铁和矿业集团Metinvest称，作为欧洲最大的金属厂之一，在俄罗斯入侵之前，它每年生产约430万吨钢铁，其中大部分通过船只运往欧洲的客户。
-
-据Metinvest公司称，这些地下通道和房间的网络现在对躲藏的士兵和平民的生存至关重要，最初是为了在建筑物之间运输设备和进入地面机械的底部进行维修而建造的。
-
-该公司说，战前没有计划将这些隧道用于军事用途。
-
-乌克兰指挥官丹尼斯·普罗科佩科(Denys Prokopenko)中校周一在工厂录制的一段视频中说：“这家钢铁厂一直在遭受猛烈的轰炸。他们使用自由落体炸弹、火箭弹、掩体炸弹、各种火炮，包括地面和海上的火炮，进行无差别攻击。”
-
-马里乌波尔的另一名乌克兰军官谢尔盖·沃利纳（Sergiy Volyna）少校在Telegram上写道：“我们准备战斗到最后一滴血。” 沃尔尼亚呼吁美国及其欧洲盟友向乌克兰军队提供更多重型武器。 “我们必须知道，世界已经为此做了一切可能的事情。”
-
-该工厂最初由苏联在20世纪30年代建立，并在第二次世界大战后重建。它是一个由铁路系统、车间、高炉和仓库组成的迷宫，许多建筑物由厚厚的混凝土制成，旨在承受高温。
-
-如果俄罗斯成功地将建筑群夷为平地，目前还不清楚有多少蜷缩在地下的人可能活下来。不过，他们最终会耗尽物资，而且乌克兰人一再警告说，俄罗斯人可能会使用化学武器迫使他们离开或杀死他们。
-
-在围困的混乱中，很难清楚地了解工厂内部发生的事情。但据逸仙（Yatsura）称，仍有一些员工留在那里。入侵开始后，他们留下来准备建筑物的防空洞并消除危险材料。
-
-原文链接： [Last Ukrainian stronghold in Mariupol is a sprawling steel plant turned fortress | World News,The Indian Express](https://indianexpress.com/article/world/last-ukrainian-stronghold-in-mariupol-is-a-sprawling-steel-plant-turned-fortress-7877648/)
-
-发布：文武全才
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
 
 
  

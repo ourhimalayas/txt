@@ -2,34 +2,32 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2398467/)
+## 闲聊澳洲：郭先生4月22日盖特视频内容摘要
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2398521/)
 
-#### **整理：枳实****
-****美工：精灵蓝**
+#### 作者：顺其自然
+编辑：李易通
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
-
-
-雅典娜疫情更新（2022年 4月22日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-95.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-96.png)图片来源：雅典娜设计组（614）
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-32.png)图片：雅典娜农场设计组 精灵蓝
+在美国时间的4月22日，郭先生发了一个盖特小视频，在视频中郭先生主要讲了以下内容：
 
+（1）纽约中央公园的房子花一个亿装修的人们是真有钱，而国内的富豪多数是靠骗贷款获取财富，是假有钱。
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[ovidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+（2）爆出老人吃屎并且最后老人还死掉的那个曾服务于老人的家政人员，被中共中央定义为外国人操纵的、具有巨大伤害力的舆论攻击，这个家政人员创造历史了。
+
+（3）俄罗斯内部超过90%的人在反战、厌战，很多俄罗斯人希望普京的身体撑不住才好呢。相信中共国很多人也是希望习近平的身体越快的撑不住越好。这些都是希望，都是懦弱，最终带给你的都是失望。关键还是要自己强大，如果自己不强大啥用都没有。只有咱们自己强大了，共匪才能被消灭。
+
+（4）战友们一定要传播真相，唤醒更多的人，救助更多的人。
+
+（5）南希·佩罗西4月26日访问台湾是个大事，佩罗西可能降落不了台湾，而只能降落到日本，因为中共可能会封锁攻打台湾。若中共攻打台湾，台湾反击肯定会打上海、香港，那么上海、香港和福建就完了。而且这些地方一定是断水断电，大连、青岛等军事基地肯定是最危险的。
+
+（6）还没到5月份，癌症患者数量就在全世界暴增，而且很多患癌者还是年轻人。疫苗灾难即将到来，俄乌战争正在进行中，台海战争一触即发，股市、债市忽上忽下，亲共产主义的人试图要征服世界。民主主义阵营正在跟共产主义独裁进行殊死的较量，今天的世界是混沌、混乱的世界，当然也充满了机会。
+
+（7）香港的经济和港币完蛋了，只要中共不被消灭，香港经济就不会变好。PAG投资了几百个亿到中共国，最近想撤，能撤走吗？这些钱都被王岐山等共产党家族瓜分了，就是骗美国养老保险的钱，PAG敢向世界公布它的钱都投到哪了吗？未来它一定破产，PAG最终一定会成为中美金融机构和司法机构最大的丑闻之一。它制造假文件、假证词，收买律师，使得美国律师严重违背职业道德，甚至涉嫌犯罪。
+
+资料来源：[郭先生4月22日盖特视频](https://gettr.com/post/p16mdd865c9)
 
 发布：*wenly*
 
