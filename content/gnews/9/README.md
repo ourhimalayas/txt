@@ -2,37 +2,59 @@
 ---
 
 
-## 2022/04/18 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2397176/)
+## 马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（2/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2397185/)
 
-1. 4月15日，上海。疑似一位老人核酸检测阳性后，被医护人员从其住宅处强制拉走隔离。
-2. 4月17日， 江苏苏州。102岁独居老人，自己一个人在家，按照中共疫情防控政策却需要每天下楼做核酸检测。
-3. 某地居民爬出中共政府设置的隔离封锁线后，被无处不在的监控人员呵斥返家。
-4. 4月17日，江苏南通第三人民医院发现新冠病毒阳性确诊病例后，医院附近周边立即被进入大面积管控状态。
-5. 4月16日，上海。新冠病毒阳性患者转阴后，仍被当地社区要求拉去集中隔离点观察。患者深夜哭诉，惹周围群众不满。
-6. 4月16日，上海。中共疫情隔离区，方舱医院下的隔离生活。
-7. 4月17日，上海。疫情下的疾控中心权力大无边，要求你隔离你就得隔离。隔离中转点九十多岁的老人也无法例外，坐等一夜等待被集中隔离。
-8. 4月17日，上海宝山区顾村中学。来不及建方舱医院，阳性患者被就地取材安置在顾村中学的一个临时隔离点。
-9. 4月10日，安徽阜阳市。男子在阜阳颖州区中共疫情管控区内，碰到一位年轻人夜晚在垃圾桶里翻找吃的。
-10. 疫情下的中国大陆，一边物资奇缺多少人饿死，一边物资却又会人为原因的导致被大量浪费。共产主义统治下的社会总是会反复出现大量饿死人的人祸惨案
+**翻译：噜噜咪**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2848-edited.png)2022年4月19日，在乌克兰南部港口城市马里乌波尔，一名当地居民推着婴儿车里的狗经过一栋在乌俄战争中被摧毁的建筑。
 
 
-- *1，搜集：Free20200604、加油干吧总加速师 、Filon
- 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
-- *3，翻译：一切都是刚刚开始Miles#4229
- 4，PR：Seven-Star Ant*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2850.png)2022年4月21日，在乌克兰南部港口城市马里乌波尔，应急管理专家正在运送一名在乌俄战争中遇难者的尸体。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2852.png)2022年3月9日，星期三，乌克兰马里乌波尔郊区的遇难者尸体被放入一个万人坑，由于俄罗斯军队的猛烈炮击，人们无法埋葬死者。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2854.png)普京今天残酷地指示他的国防部长谢尔盖·绍伊古指挥部队封锁离开亚速钢铁厂的所有出路——这实际上是让被困在里面的乌克兰战士和平民因口渴、饥饿和疲惫而缓慢而痛苦地死去。
+
+
+
+3月19日拍摄的一张卫星图片显示，马里乌波尔郊区的一大片土地完全裸露，然而仅仅一周后的3月26日，似乎又挖出了几个坟墓。
+
+4月3日拍摄的第三张照片显示，几排新挖的坟墓横跨整个场地，揭示俄罗斯在乌克兰的战争的残酷性和平民伤亡的巨大程度。
+
+在4月初俄罗斯军队撤退时发现布查和基辅以北其他城镇的恐怖惨状之前数周，马里乌波尔的市民已经被迫挖掘大片土地来清理街道上的尸体。
+
+入侵开始几天后，俄罗斯就对马里乌波尔发动了一场野蛮的空中和导弹攻击——从那时起，俄罗斯军队一直在继续采取这种策略，没有任何缓和。
+
+该港口的战略意义意味着它在战争初期迅速成为俄罗斯的一个高度优先目标。
+
+马里乌波尔是亚速海上最大的乌克兰城市，也是为乌克兰东部工业和农业服务的主要港口。
+
+在战争前夕，它是乌克兰当局在卢甘斯克或顿涅茨克地区仍然控制的最大城市，这两个东部省份被称为顿巴斯，莫斯科要求乌克兰将其割让给亲俄分离主义分子。
+
+**素材:peacelv**
+
+**素材链接：**[Mass graves for the thousands of Mariupol victims ‘liberated’ by Russia: Satellite images show extent of Putin’s carnage as he orders troops to seal soldiers and civilians in steelworks and starve them to death](https://www.dailymail.co.uk/news/article-10740519/Satellite-images-extent-Putins-carnage-Mariupol.html)
+
+- [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（1/4）](https://gnews.org/zh-hans/2397021/)
 
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

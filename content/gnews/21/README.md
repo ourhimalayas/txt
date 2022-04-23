@@ -2,26 +2,40 @@
 ---
 
 
-## 文贵视角:419事件是新中国联邦女权运动的开始
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2396881/)
+## 随着原始Omicron的消失 这些是BA.2次变种的主要区别
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396950/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/圖片1-2-4.png)
-**419 美国之音断播事件是女权运动的一个里程碑**
+翻译： Jenny Ball
 
-“419 美国之音断播事件是新中国联邦爆料革命女权运动的一个里程碑，爆料革命的女性战友占七成，我们用五年的时间证明我们尊重女性，更要解放中国所有的女性。”郭文贵先生谈及新中国联邦女权运动真正的开始，”美国之音曾是中国人最崇拜的西方自由灯塔，我们利用419事件，证明美国之音已被中共蓝金黄。我们顺势踩着西方自由灯塔直接上来国际的舞台，然后直指中南坑，重塑中国女人的新形象。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-**共产党将女人视为玩物**
 
-“当年北京天安门，挂着马恩列斯的照片，有哪一个不是玩弄女人？共产党认为女人就是个尿壶，只需要让女人感受到这个尿壶的重要性，而且谎称房间里就一个尿壶，骨子里是玩弄女性。共产党认为女人是体现权力的最好方式之一，马克思主义认为给领导送女人是符合逻辑的，不仅是中共，俄罗斯也是这样。”文贵先生说出中共对女性的迫害。
 
-“极端的马克思主义是泯灭人性的，马克思把女性当奴隶，认为女性就是赢得战争的战利品，是战争的发酵剂，马克思根本不把女人看在眼里。马克思思想就是奴役人类的思想，何况女人? 马克思主义表面上是让人民夺权，实质上就是极少数人拥有绝对的权力。”文贵先生说。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-499.jpg)
 
-**新中国联邦女性拥有财富及权力**
+[NBC报道：](https://www.nbcnews.com/health/health-news/omicron-ba-2-variant-symptoms-covid-rcna25069)
 
-“今年爆料革命所属的G系列，G Fashion，我认为展现的女性服装是最美的。中国女性从未有过这样世界级的衣服。同时G Club、包括喜币以及未来的新平台，新中国联邦所有的财富都会被新中国联邦的女性所控制。”文贵先生说出新中国联邦女性无限美好，”未来会出现无数个像你们这样的新中国女性，遍布全球，上海、江浙、香港….。”
+自去年 12 月以来，冠状病毒的 Omicron 变体一直在美国占据主导地位，但在冬季导致重大感染激增的 Omicron 变体，现在仅占新病例的不到 7%。
 
-“我们树立的新中国女性的形象，未来会是最有钱、最有权力、最有影响力的一批人。接下来，我相信，爆二代、爆三代很快就要出来了。等俄乌战争结束之后，新中国联邦派驻乌克兰及波兰的大使首先必须是女性。”文贵先生期许的说。
+一个更易传播的Omicron次变体 BA.2 约占美国病例的3/4，而BA.2 也产生了自己的子系 BA.2.12.1，它似乎正在获得动力：从 4 月初的美国病例的 7% 上升到上周的 19%。 纽约州卫生局上周表示，BA.2.12.1 最有可能导致该州病例数上升。
+
+到目前为止，新版本的 Omicron 与之前在美国大行其道的版本之间的主要区别在于可传播性。 白宫首席医学顾问福奇博士估计，BA.2 的传染性比最初的 Omicron 谱系高 50%。
+
+新闻来源：[As Original Omicron Disappears, These Are the BA.2 Subvariant’s Key Differences](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
  
 

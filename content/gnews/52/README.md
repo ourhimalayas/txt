@@ -2,29 +2,27 @@
 ---
 
 
-## 中日财经爆┃日美财长就日元贬值问题举行会谈
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2390045/)
+## 美、英、加承诺为乌克兰提供更多武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390051/)
 
-撰稿：东京樱花团/文小白
+作者：华盛顿DC农场 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+4月19日外媒报道，由于俄罗斯对乌克兰东部再次发动进攻，美国总统拜登、英国首相约翰逊、加拿大总理特鲁多和其他盟国领导人当天针对最新的战事进行了90分钟的视频通话，讨论如何进一步加强军事援乌行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-52.jpg)
+拜登总统预计将在未来几天内宣布对乌克兰的另一项军事援助计划。英国首相约翰逊表示将给予乌克兰更多炮兵支持，而加拿大总理特鲁多则表示，除了重型火炮支援外，承诺提供更多物资给乌克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2735.png)图片来源：本文链接
+白宫新闻秘书普萨基表示，在该视频通话中，将协调七国集团、欧盟和北约让俄罗斯承担更重的经济压力。此外，乌克兰战争关系到全世界，不仅仅是欧洲或西方的问题，因此该会议也讨论到如何让欧盟及G7以外的国家意识到援乌的重要性。
 
-据4月22日NHK新闻消息，正在华盛顿访问的铃木财政大臣与美国珍妮特耶伦财政部长举行了会谈，就近期日元在外汇市场贬值的问题进行了沟通。
+参考链接：[U.S., Britain, Canada pledge artillery for Ukraine](https://www.reuters.com/world/biden-allies-hold-video-call-ukraine-2022-04-19/)
 
-正在华盛顿出席20个主要国家财长和央行行长会议（G20）的日本财务大臣铃木，于日本时间22日凌晨会见了美国财长珍妮特耶伦。会后，接受媒体采访的财务大臣铃木表示，与财政部长珍妮特耶伦讨论了外汇市场近期的趋势。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-此外，铃木大臣表示：“从外汇市场来看，近期日元贬值幅度仍然很大。在维持G7和G20的外汇协议的同时，日本和美国在外汇问题上已明确表示要密切合作。”
-
-对于乌克兰局势，铃木大臣表示，“我们强烈谴责俄罗斯入侵乌克兰，日美将继续与G7等国密切合作，稳步实施对俄罗斯的制裁。”在参加了一系列国际会议之后，铃木财务大臣接受采访时宣布了增加对乌克兰的联合融资。在世界银行和国际货币基金组织会议上日本将对乌克兰的联合融资从1亿美元增加到3亿美元。
-
-此外，铃木大臣还会见了出席会议的乌克兰财政部长马尔琴科。并向马尔琴科财政部长表达了对乌克兰增加到3亿日元的追加支援以及表明对乌克兰抵抗侵略战争的支持不会改变。马尔琴科财政部长向铃木大臣表达了感谢之意。
-
-信息来源：[鈴木財務相 米イエレン財務長官と会談「円安 日米で意思疎通」](https://www3.nhk.or.jp/news/html/20220422/k10013593541000.html)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+总编：zhong
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

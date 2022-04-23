@@ -2,32 +2,31 @@
 ---
 
 
-## 遭日本驱逐的8名俄罗斯外交人员已离境
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2390053/)
+## 财经｜美国证监会再将17间中概股公司列入“预定摘牌名单”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2390145/)
 
-作者：日本东京方舟农场—Miyali7768(文玉)/台湾宝岛农场 港台前线
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-据国外媒体报道，4月20日，遭到日本驱逐的8名俄罗斯外交官已经乘坐俄罗斯准备的撤侨班机，自羽田机场飞离东京，同机撤离的还有其他相关外交人员。 据悉，日本政府是在4月8日宣布驱逐这8名俄罗斯驻日外交人员的，其中包括俄罗斯驻日大使馆外交官与俄罗斯通商代表部职员。
+**图/文｜CP **
+**发布时间｜22/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美國證監會再將17間中概股公司列入「預定摘牌名單」.jpg)
 
-日媒引述知情人士消息称，这八人主要负责日本境内的情报工作，其中不乏日本警方重点关注人物、俄军总参谋部情报总局（GRU）与对外情报局（SVR）的人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-54.jpg)
-从历史上看，日本宣布外国外交官为不受欢迎的人的先例屈指可数，仅分别在1973年驱逐一名韩国外交官，2006年驱逐一名科特迪瓦外交官；2012年驱逐了叙利亚大使。因而这次日本一次性驱逐多名外交官的行为被外界认为极不寻常。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-日本首相岸田文雄称，这一措施是针对俄罗斯对乌克兰的入侵做出的制裁，是在认真评估当前局势的基础上做出的。日本内阁官房副长官矶崎仁彦对驱逐俄外交人员一事表态“鉴于事务性质，不予回覆”。
 
-参考链接：
-1. [日本罕見一次驅逐8名俄羅斯外交人士 傳皆為俄情蒐部門職員](https://news.ltn.com.tw/news/world/breakingnews/3899002)
-2. [媒体：遭到日本驱逐的俄罗斯外交官已经飞离东京l](https://sputniknews.cn/20220420/1040996309.html)
-3. [俄乌战争｜日本今驱逐8名俄罗斯外交人员](https://gnews.org/zh-hans/2378361/)
+美国证券交易委员会（SEC）21日公布，增加17间中概股公司列入“预定摘牌名单”，是自3月以来第五批待摘牌名单。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+涉事的17间公司分别为：知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳。
 
-总编：zhong
-编辑：飞虹/zhong
-审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+SEC表示，上述公司可以在5月12日前向SEC提交证据，证明自己不具备被摘牌的条件。
+
+根据美国《外国公司问责法案》（HFCAA），如果外国上市公司连续三年未能提交美国上市公司会计监督委员会所要求的报告，SEC有权将其从交易所摘牌。
+
+另外，巧合的是，今日（22日）是知乎（2390）赴港上市后，正式挂牌的首日，不料被美国证监会列入“预定除牌名单”，导致股价开市即泻逾26%，报23.55元。以知乎上市定价为32.06元计，不计手续费，每手100股，每手要蚀851元。
+
+來源｜[SEC](https://www.sec.gov/hfcaa)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
