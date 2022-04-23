@@ -2,35 +2,34 @@
 ---
 
 
-## 俄乌战争之后体制内多数人相信新中国联邦能够灭共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2399581/)
+## 网路热传普京身体出问题的视频
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399675/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.29.38-PM.png)
-4月19日，郭文贵先生在大直播中，谈起了中共国内人士如何看待不同阶段的爆料革命灭共事业。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-23.33.56.png)
+当地时间4月21日，一则网路视频在社交媒体广泛传播。视频里是普京和自己的外交部长正在开会的画面，只见普京脸色发白，双脚抖动，右手紧紧抓着桌角，该视频中虽然使用了快速播放，将10分钟的视频压缩至几十秒内，但不难看出普京的痛苦表情。
 
-爆料之初，那些曾经和郭先生有过深层交往的体制内和商界人士，纷纷表示“君子不立于危墙之下”。他们认为爆料革命就是那堵危墙，谁立危墙之下，谁就会被中共疯狂追杀。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388614.jpg)
-随着爆料革命的各种判断不断得到验证，越来越多的人在听了郭先生直播以后逃离中共国，或者选择加入爆料革命，甚至很多人冒着生命危险提供重要情报。但多数体制内的人，虽然也佩服郭先生，也相信共产党会被灭掉，但觉得那应该是别人的事，自己只要多捞钱，得过且过，精致利己就可以了。
+自郭先生爆料普京身体出问题后，各个大媒体都试图拍摄普京身体异样的画面，但独裁政府的特点决定了国家领导的身体是最高机密。俄乌战争以后，有普京出现的电视画面都经过了后期处理。4月21日郭先生透露普京正在积极和西方和谈，随即这则普京身体出问题的视频热传。
 
-近期，俄乌战争的爆发，以及习近平对上海进行大隔离造成的人道灾难，让这种情况发生了本质性的转变。体制内绝大多数人开始相信，在爆料革命中成长起来的新中国联邦，是唯一一个能灭掉中共的组织，这种使命是上天赋予的，独一无二，坚定不移。
+从独裁国家的政治需求来看，普京若有继续战争的决定，身体问题不可能会大量披露，这则视频的发布侧面验证郭先生关于普京正在与西方和谈的爆料讯息，普京也可能正在用此举向西方略表诚意，毕竟俄罗斯假新闻也层出不穷。
 
-梅迪卡前线的救援更让世界上所有人知道有这样一群灭共的中国人，扭转了以往共产党所代表的懦弱、自私、贪婪的中国人形象。
+reference：
 
-鉴于俄乌战争经济制裁的示范效应，共产党的很多海外家人正在受到影响。体制内后知后觉的人不禁感叹到：不是郭文贵赢了，是共产党输了。
+[https://gettr.com/post/p16l8ey85d0](https://gettr.com/post/p16l8ey85d0)
 
-参考链接：[Watch MILES GUO live on GETTR419五周年专场](https://gettr.com/post/p161dm5929a)
+撰稿、发布：骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-206.jpg)
+* * *
 
-编辑：熊嘟嘟
+欢迎订阅我们的GNews账号：
 
-总编：飞虹
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-审核：Ivy001
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.29.38-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

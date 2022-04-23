@@ -2,27 +2,38 @@
 ---
 
 
-## 中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397515/)
+## 对利率上升的担忧恶化，周五美国股市下跌2.8%
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398391/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，荷兰法院宣布，俄罗斯拥有的阿姆斯特丹贸易银行(Amsterdam Trade Bank)破产，主要因这家银行卷入有关乌克兰战争制裁的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-137.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpreview.redd.it%2Fdq12d56xc4v81.png%3Fwidth%3D640%26crop%3Dsmart%26auto%3Dwebp%26s%3D9dd306d51a83569b59e50aa5845b1ef05c8f08ee&amp;imgrefurl=https%3A%2F%2Fwww.reddit.com%2Fr%2Fukraine%2Fcomments%2Fu9kkzx%2Famsterdam_trade_bank_a_subsidiary_of_russias_alfa%2F&amp;tbnid=eOJeu1nyjnXw3M&amp;vet=12ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ..i&amp;docid=HOcmNfkrEGbSnM&amp;w=640&amp;h=320&amp;itg=1&amp;q=Amsterdam%20Trade%20Bank&amp;ved=2ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ)
-阿姆斯特丹地方法院周五裁定，俄罗斯最大民营商业银行阿尔法银行(Alfa Bank)所属的阿姆斯特丹贸易银行破产，且获得荷兰中央银行证实。荷兰央行指出，阿姆斯特丹贸易银行成立于1994年，拥有约23000名客户。
+撰稿：Gradient Boost
 
-美国4月6日针对俄罗斯联邦储蓄银行(Sberbank)与阿尔法银行等俄罗斯银行实施严苛制裁，冻结其与美国金融体系有关的所有资产，阿姆斯特丹贸易银行也受到英国制裁的影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/235.jpg)图片来自网络
+本周五，华尔街股市出现跳水，标普 500 指数创下近七周来最大单日跌幅，其原因在于投资者对利率飙升和美联储努力对抗通胀的担忧正在逐步加深。同时一些公司令人失望的利润报告也动摇了市场的主要支柱。
 
-消息来源:[俄羅斯不敵制裁！俄屬阿姆斯特丹貿易銀行宣告“破產” 北約法律顧問：須再認定種族屠殺罪行](https://news.fx168news.com/politics/2204/5841375.shtml)
+标准普尔 500 指数下跌 2.8%，连续第三周下跌。道琼斯工业平均指数下跌 2.8%，创下 18 个月以来的最大跌幅，此前曾短暂下跌逾 1,000 点。纳斯达克指数也出现了近七周以来最糟糕的一天，收盘下跌 2.6%。人们对几十年来最高通胀、乌克兰战争和冠状病毒的担忧仍在蔓延。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+此前，美联储已经上调了一次关键隔夜利率，这是自 2018 年以来的首次上调，因为它寻求主动取消大流行期间持续的经济援助，它还准备采取其他措施对长期利率施加上行压力。
+
+通过提高企业和家庭的借贷成本，更高的利率意味着经济放缓，这有望阻止几代人以来最严重的通货膨胀。但它们同时却也可能引发经济衰退，同时给大多数类型的投资带来下行压力。
+
+Commonwealth Financial Network 投资管理主管布赖恩·普赖斯 (Brian Price) 表示：“经过多年的非常宽松，美联储已经明确表示，在可预见的未来，政策将会收紧……他们的强硬立场让投资者不得不暂停观望，因为许多人需要评估对未来利润率和（股票）倍数的影响。”
+
+规模较小的公司股票也大幅下跌，罗素 2000 指数下跌 50.80 点，或 2.6%，达到 1,940.66。
+
+*编辑：Gradient Boost*
+
+*发稿：mgjxs*
+
+新闻参考链接：[AP News](https://apnews.com/article/business-japan-asia-financial-markets-prices-0575e0bba40355e305493d204ea54c40)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
  
 

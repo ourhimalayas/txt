@@ -2,39 +2,35 @@
 ---
 
 
-## 对利率上升的担忧恶化，周五美国股市下跌2.8%
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398391/)
+## 有声|加入北约近了？芬兰国会表态支持
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2398591/)
 
-撰稿：Gradient Boost
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+【自由时报】俄国入侵乌克兰令周边国家自危，芬兰和瑞典纷纷表达加入北大西洋公约组织（NATO）的可能性，芬兰国会最大党派如今也对加入北约展现正面看法。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-11.jpg)**芬兰国会就是否加入北约展开辩论。图为总理马林。（路透）**
+《路透社》报导，芬兰国会于当地时间周三就是否加入北约进行辩论。总理马林所属的社会民主党虽没有直接提及北约，但表态支持军事结盟的构想。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/235.jpg)图片来自网络
-本周五，华尔街股市出现跳水，标普 500 指数创下近七周来最大单日跌幅，其原因在于投资者对利率飙升和美联储努力对抗通胀的担忧正在逐步加深。同时一些公司令人失望的利润报告也动摇了市场的主要支柱。
+芬兰虽与北约保持密切合作，但始终保持战略自主。在俄国对乌克兰发动入侵后，芬兰意识到强化防卫与安全的必要性。马林先前提到，是否向北约提出申请得花上数周时间决定。
 
-标准普尔 500 指数下跌 2.8%，连续第三周下跌。道琼斯工业平均指数下跌 2.8%，创下 18 个月以来的最大跌幅，此前曾短暂下跌逾 1,000 点。纳斯达克指数也出现了近七周以来最糟糕的一天，收盘下跌 2.6%。人们对几十年来最高通胀、乌克兰战争和冠状病毒的担忧仍在蔓延。
+芬兰政府曾表示，是否加入北约可由国会表决来展现民间支持与否，而不用诉诸公投。不过无论是表决还是公投皆无拟定时间点。
 
-此前，美联储已经上调了一次关键隔夜利率，这是自 2018 年以来的首次上调，因为它寻求主动取消大流行期间持续的经济援助，它还准备采取其他措施对长期利率施加上行压力。
+[【援引连结】](https://news.ltn.com.tw/news/world/breakingnews/3900255)
 
-通过提高企业和家庭的借贷成本，更高的利率意味着经济放缓，这有望阻止几代人以来最严重的通货膨胀。但它们同时却也可能引发经济衰退，同时给大多数类型的投资带来下行压力。
-
-Commonwealth Financial Network 投资管理主管布赖恩·普赖斯 (Brian Price) 表示：“经过多年的非常宽松，美联储已经明确表示，在可预见的未来，政策将会收紧……他们的强硬立场让投资者不得不暂停观望，因为许多人需要评估对未来利润率和（股票）倍数的影响。”
-
-规模较小的公司股票也大幅下跌，罗素 2000 指数下跌 50.80 点，或 2.6%，达到 1,940.66。
-
-*编辑：Gradient Boost*
-
-*发稿：mgjxs*
-
-新闻参考链接：[AP News](https://apnews.com/article/business-japan-asia-financial-markets-prices-0575e0bba40355e305493d204ea54c40)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
