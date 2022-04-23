@@ -2,8 +2,8 @@
 ---
 
 
-## 上海閔行羅秀三村，騙居民下樓做核酸，結果直接帶去方艙。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395835/)
+## 安徽蕪湖封城，市民半夜搶菜。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395943/)
 
 作者：东京樱花团小视频组
 

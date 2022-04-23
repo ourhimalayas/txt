@@ -2,8 +2,8 @@
 ---
 
 
-## 中共国，上海，那些流落街头人们，一切灾难都是ccp造成的。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395600/)
+## 上海浦東新區蘆潮港海鮮批發點一誌願者發聲：發現有公職人員開公車去那裏弄海鮮，他因為堅持原則竟被解職。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395795/)
 
 作者：东京樱花团小视频组
 

@@ -2,52 +2,28 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月22日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2393219/)
+## 郭文贵4.21：北京大隔离即将到来
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2394045/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-23-012307.jpg)
-1、恒大、融创多家头部房企年报难产或有退市风险
-![img](https://media.gettr.com/group30/origin/2022/04/22/02/aed34795-bb45-a401-870f-41134c307dfe/21771b6c343c397690d92508e69aa445_500x0.png)
-截至4月21日，距离A股上市公司2021年年报披露收官期还有9天时间从Wind 获悉，66家上市房企还未发布年报，包括此前已经公布债务违约的多家“千亿元阵营”房企。A股房企尚有一周多的时间，但港股部分上市房企已经过了年报披露收官期仍未公布经审计的年报，包括中国恒大、融创中国、世茂集团三大头部房企在内，合计共9家房企年报仍旧难产，从4月1日至今，这些企业仍处在停牌状态中。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-22-at-21.39.31.png)
+4月21日，郭文贵先生突然直播，他说，中共武警已经部署到北京至少十几个地方，这是拟大隔离的前奏。
 
-财经G评：发布了财报股票价格暴跌，拖时间造假，熬一天是一天！
+据郭先生的消息透露，美国众议院议长南希佩洛西将于4月26日访问台湾，而且不会变了。
 
-链接 [https://finance.sina.com.cn/roll/2022-04-22/doc-imcwiwst3268475.shtml](https://finance.sina.com.cn/roll/2022-04-22/doc-imcwiwst3268475.shtml)
+中共与美方举行紧急会晤，并向美方表达了所谓的“严重关切”。然而，这次美方对于中共的“严重关切”不予理睬，认为中方没有关切俄罗斯入侵乌克兰事件，现在中方关切什么呢？而且南希佩洛西是议长，三权分立的美国，政府管不了议长的日程。
 
-2、中共加强：对非法集资保持严打态势 紧盯养老、投融资领域
-![img](https://media.gettr.com/group24/origin/2022/04/22/03/7bec49cd-589b-add9-55af-574c0bf19b1a/621f54da6bd0aee2d98be78914aa7e80_500x0.png)
-2022年处置非法集资部际联席会议4月19日召开。银保监会主席郭树清出席并讲话，扎实推进《防范和处置非法集资条例》落地见效，严厉打击非法集资违法犯罪活动，2022年打非处非工作要提高政治站位，消化存量、管控变量。继续对非法集资保持严打态势，形成有力震慑，紧盯养老、投融资等重点领域，稳妥有序出清风险。
+之后，中共撂狠话，称—4月26日将是一个中美关系的分水岭！
 
-财经G评：金融领域严打运动！管控老百姓的钱袋子，想逃离中共国的资金，时间窗口正在消失！如果爆发对台战争，现在就是最后的机会！
+根据郭先生获得的准确情报，北京五环以内及六环和七环之间有十几个点大量进驻武警。
 
-链接 [https://news.cnstock.com/news,bwkx-202204-4866853.htm](https://news.cnstock.com/news,bwkx-202204-4866853.htm)
+郭先生预计，“这应该是北京大隔离的前奏，如果中共在4月26日至5月6日之间对台湾采取行动，北京肯定会实施戒严，上海的局势将更糟糕”。
 
-3、银保监会将以更大力度促进银行保险业对外开放
-![img](https://media.gettr.com/group6/origin/2022/04/22/03/b2cbba05-0f59-9f46-6c24-8e76eb77bc2d/7b654f00fa4fe287ba0d69c9d902a945_500x0.png)
-银保监会副主席梁涛谈下一步银行保险业对外开放：将取消境外金融机构作为中资商业银行法人机构的发起人或战略投资者总资产不少于100亿美元的要求，明确境内外资银行投资入股中资商业银行的持股比例不受限制；取消外资银行发行一般金融债券的审批；加强对疫情风险、气候风险、科技风险等新型风险的研究，做好海外突发风险事件的应对准备。
+因此，郭先生呼吁北京的战友为大规模隔离做好充分准备。
 
-财经G评：中共治国的伎俩是：儒表法里。在金融领域亦是如此，对内加强管控，对外招商引资，这个时候把内部经济风险与外资绑起来，正所谓你中有我，我中有你！外资是不是要思考一下：为什么在这个时候中共对外资开放呢？
+来源：
 
-链接：[https://finance.sina.com.cn/chanjing/cyxw/2022-04-22/doc-imcwiwst3301599.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-22/doc-imcwiwst3301599.shtml)
-
-4、又一批中概股上美“预摘牌名单”包含知乎、理想汽车等17家公司
-![img](https://media.gettr.com/group15/origin/2022/04/22/03/9607e62d-5d9e-f8e8-02cd-00d232db6d66/eccb5cdad52047ace11dff5ae694f27a_500x0.png)
-4月22日电 根据美国证劵交易委员会（SEC）网站最新披露，知乎、理想汽车等公司加入“预摘牌名单”。SEC网站披露的具体名单显示，知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳均被纳入。
-
-链接：[https://finance.sina.com.cn/chanjing/gsnews/2022-04-22/doc-imcwipii5747409.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-04-22/doc-imcwipii5747409.shtml)
-
-5、币安要求从加密货币骗局的诉讼中移除
-![img](https://media.gettr.com/group37/origin/2022/04/22/03/3ecdcafa-1361-f12c-5d4d-10a5ecd38ac3/2f334dfa38c7a99312eb998e388b37c2_500x0.png)
-币安Binance 周四要求德克萨斯州的一名联邦法官免于一项价值 800 万美元的诉讼，该诉讼声称该加密货币交易所“协助和教唆”了一场局。原告 Divya Gadasalli 正在联邦民事法院起诉这家开曼群岛公司，指控币安在该计划中的作用，她说这涉及兑现她在 Coinbase (COIN) 上购买的加密货币。Gadasalli 还起诉 TD 银行、Abacus 联邦储蓄银行和 Poloniex 加密货币交易所等。
-
-链接 ：[https://www.coindesk.com/policy/2022/04/21/binance-asks-to-be-removed-from-crypto-romance-scam-lawsuit/](https://www.coindesk.com/policy/2022/04/21/binance-asks-to-be-removed-from-crypto-romance-scam-lawsuit/)
-
-海报：润玉
-
-配图：文双
-
-上传排版：文勇
+[Miles Guo Getter](https://gettr.com/post/p16cfisc410)
 
  
 
