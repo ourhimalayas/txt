@@ -2,52 +2,33 @@
 ---
 
 
-## 美国CDC就儿童不明原因肝炎病例发出全国性警报
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2396016/)
+## 台湾援助乌克兰并表示双方都在抵挡威权主义的最前线
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396086/)
 
-翻译：多伦多蓝莲花- 灭共文明
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-487.jpg)图片来自网络
+《海峡时报》近日报道，台湾外长周五（4月22日）在宣布向基辅和乌克兰医疗机构捐赠800万美元（1100万新元）时，告诉乌克兰首都市长，他们的民主国家站在 “抵抗 “大型专制邻国的第一线。
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-《零对冲》4月22日报道，**在阿拉巴马州的儿童被发现有腺病毒和肝炎感染后，美国疾控中心发布了一个健康警报。**
+乌克兰战争在台湾获得了广泛的同情，许多人认为俄罗斯的入侵（莫斯科称之为特别军事行动）与中共国的军事压力有相似之处，中共国一直以来将民主自由的台湾视为自己的领土。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/CDC.jpg)美国疾控中心（图片来源：路透社）
+台湾已经谴责了俄罗斯的入侵，加入了西方主导的制裁，并为乌克兰难民捐赠了2000万美元，这些资金主要来自于台湾民众。中共国没有谴责俄罗斯，只捐赠了1500万人民币（320万新元）的人道主义援助。
 
-此前，该州一家大型医院的临床医生向疾控中心报告，有一群**儿童同时感染了肝炎和腺病毒。** 美国疾控中心称，医院报告了五名有**明显肝损伤的儿科患者**，包括三名**急性肝衰竭患者**，他们的**腺病毒检测结果也呈阳性**，并补充说，这些孩子以前是健康的，没有人感染过中共病毒。
+外交部长吳釗燮通过视频会议向基辅市长维塔利-克里奇科表示，台湾和乌克兰都是民主国家，”站在抵制威权主义扩张的第一线”，吴先生的部门援引他的话说。
 
-疾控中心还指出，五名儿童患有**41型腺病毒**，**通常表现为腹泻、呕吐和发烧，而且它往往可以伴随着呼吸道症状。**
+“台湾政府和人民也面临着来自台湾海峡两岸威权政权的高度威胁，因此对乌克兰目前所面临的局势感同身受，”吴先生补充说，“威权政权”指的是中共国。
 
-据报道，该医院的病例调查工作还发现了另外四名患有肝炎和腺病毒感染的儿科病人，从2021年10月到2022年2月，总共有九名病人入院。其中两名患者需要进行肝脏移植。
+台湾以前没有宣布过台湾和乌克兰高级官员之间的会谈。
 
-据《**美国国立生物技术信息中心**》NCBI 2021年7月8日在线发表了一篇关于《**2019年冠状病毒病后发生的自身免疫性肝炎的诱因**》的文章中，强调了**新冠病毒mRNA疫苗可能增加患者自身免疫疾病的风险，包括吉兰-巴雷综合征和原发性胆管炎**。
+台湾与乌克兰没有外交关系，与许多欧洲国家的首都不同，台湾甚至没有在基辅设立代表处。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001-7.jpg)儿童正在接种疫苗（图片来源：网络）
+参考链接：
 
-美国卫生部门官员告诉当地媒体，除阿拉巴马州的9个病例外，北卡罗来纳州也发现了两个病例。
+[https://www.straitstimes.com/asia/east-asia/taiwan-offers-aid-to-kyiv-tells-mayor-they-are-both-on-frontline-resisting-authoritarianism](https://www.straitstimes.com/asia/east-asia/taiwan-offers-aid-to-kyiv-tells-mayor-they-are-both-on-frontline-resisting-authoritarianism)
 
-当局目前正在调查小儿肝炎和腺病毒病例之间的联系。该机构还要求临床医生和州公共卫生官员，如果发现10岁以下儿童的天门冬氨酸氨基转移酶或丙氨酸氨基转移酶升高，表明肝脏有问题，就要报告。
+*编辑：金生水*
 
-报道指出，本月早些时候，**英国报告了A、B、C、D和E型肝炎病毒检测阴性的儿童小儿肝炎病例，其中包括一些腺病毒感染者**。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/002-6.jpg)
-新冠病毒（图片来源：网络）
-
-英国当局表示，**在英国至少有100名10岁以下的儿童被诊断出患有原因不明的急性肝炎。**
-
-据**欧洲疾控中心**在星期二的**公告中称，丹麦、西班牙和荷兰也发现了类似病例。**
-
-新闻来源链接：
-
-[https://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-childrenhttps://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-children](https://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-childrenhttps://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-children)
-
-校对与发布：飞花逐月
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

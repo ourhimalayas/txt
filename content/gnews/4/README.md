@@ -2,57 +2,72 @@
 ---
 
 
-## 一位作家在波兰和乌克兰难民营里看到的志愿者服务
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2396386/)
+## 深圳志愿者以口头通知为借口通知不打疫苗者不得做核酸
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2396643/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ukraine_refugee_camp_web_main1.jpg)图片来源: 加拿大《多伦多星报》
-加拿大《多伦多星报》4月19日发表的一篇加拿大作家Liam Hunt的文章：在八周内，近500万乌克兰人逃离了俄罗斯的侵略。许多人首先抵达波兰边境小镇梅迪卡(Medyka)，随着一连串完全由非政府组织和宗教团体组成的临时帐篷的出现，这里的人口激增。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/深圳副本.png)
+据[**500 ****𝕸𝖎𝖑𝖊𝖘**](https://twitter.com/SafeGuard009)[@SafeGuard009](https://twitter.com/SafeGuard009)于[12:07 PM · Apr 23, 2022](https://twitter.com/SafeGuard009/status/1517716649482547201)发布的推文——
 
-当地几乎所有的基本事务都是由不相干的志愿者而不是地方当局来执行的。他们的职责通常包括准备食物、分发毛毯、搬运行李、清洁帐篷内部，或在帐篷外站岗——警惕人贩子和犯罪分子，因为难民们最容易受到这些人的伤害。
-
-虽然警察和军事人员已经被动员起来，但他们只能确保难民有序地通过这片蛇形营地。对于那些进行人道主义援助的人来说，唯一的服务制服是志愿者们穿着的宽松的黄色背心。
-
-在乌克兰边境城镇谢赫尼(Shehyni)，没有为那些流离失所者提供服务的设施，人道主义援助也很少。我在那里遇到了31岁的法比奥(Fabio)，他是一名葡萄牙空乘人员，在REMAR做志愿者，这个非政府组织为难民建造了一个可以容纳400人的食堂和睡眠设施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/fabio-0.png)图片来源: 加拿大《多伦多星报》
-当我问他为什么决定来乌克兰时，他告诉我，他的信仰驱使他这样做。但他也被更多的物质动机所吸引。他告诉我：“我在家里看了两个星期关于[战争]的电视。我想，不，我不能在乌克兰遭受这种事情的时候，只是坐在这里……我于是搭乘航班，来到这里。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/feather-0.png)图片来源: 加拿大《多伦多星报》
-在波兰境内，由华裔美国人政治游说组织“法治基金”(Rule of Law Foundation)运营的帐篷恰好是其中规模最大、组织最严密的帐篷。我和他们中一名来自加拿大的志愿者促膝而谈，她叫Feather，19岁，在多伦多大学读书。
-
-她告诉我:“我来到波兰的主要原因之一是，我最好的朋友的家人在乌克兰，在被围困的马里乌波尔。”
-
-起初，Feather的语气听起来很沮丧，但在她讲述如何帮助一位乌克兰老妇人与她在多伦多的儿子团聚时，她的语调提高了。
-
-Feather说：“我们帮助她与她的儿子取得联系，因为她的手机坏了，她不会说英语，也不会说波兰语……我们得帮她搭乘飞机，买一部新手机……她还需要做核酸检测，所以我们必须为她计划好一切。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/agatha-0.png)图片来源: 加拿大《多伦多星报》
-后来，在华沙，我遇到了39岁的阿加莎(Agatha)，她最近把来自基辅的诺娜(Nona)接到她家。68岁的诺娜和她45岁的女儿玛莎(Masha)一起来到这里，玛莎在抵达波兰首都时精神崩溃了，正在附近的一家精神病医院住院接受治疗。
-
-对阿加莎来说，开放她的家是一个很简单的决定。
-
-“当战争开始时……我躺在床上，半个晚上我都在想，也许你可以带人去你的家？整晚，我都在和自己讨论这个问题。……我问我丈夫：帕维尔(Pavel)，告诉我，我们为什么不这样做呢？他找不到拒绝的理由。所以我说，好吧，我们就住在儿子的房间里。”
-
-无论是在梅迪卡、华沙，还是在世界其他地方，数以百万计的乌克兰人都依赖着出于宗教信仰或普通人类同情心所激发的个人善意。为了这个世界，我希望这些资源是可以补充的。
-
-随着战争的进行，国际社会不能再拖拖拉拉。目前，个人的慈善行为正在弥补主权国家的不作为。但是，任何依赖个人慈善捐款的解决方案充其量都是不可持续的，而且当自愿支持逐渐消失时，可能会引发另一场危机。
-
-**简评：**
-
-中国人民是热爱和平的民族。中国人民坚定地与乌克兰人民站在一起，反对独裁者普京发动的非法侵略战争。新中国联邦和法治基金在波兰边境组织的这场针对乌克兰难民的人道主义救援行动，充分展示了新中国人的形象。也进一步向世界证实了，中国共产党不能代表中国人，热爱和平的14亿中国人是被邪恶的中共政权绑架了。
-
-我们在波兰边境所看到的人道主义救援行动，让我们看到这个世界的善良是没有国界的；俄乌战争所造成的人道灾难、全球供应链崩溃、粮食和能源价格上涨……让我们看到，战争所带来的危害是可以跨越国界的，没有人可以在战争中独善其身。俄乌战争的本质是邪恶的中共极权联合独裁的普京政府发起的反人类战争，是独裁主义者要实现其全球扩张野心的战争。而在这个世界上，所有邪恶的源头都在指向中国共产党。中共政权在国内发动内战，非法获得中共大陆的统治权；中共无视民意、巧取豪夺，利用从中国老百姓手中侵吞的财富，对内以腐败治国，对外以蓝金黄腐蚀他国；中共公然压榨、随意杀害对其政权持有异议的人士，并对新疆维吾尔族人实行种族灭绝；中共利用新冠病毒对全世界发动生化战争，杀害了数以百万计的无辜民众；中共疯狂扩充军备，对民主台湾进行多年的武力恫吓，威胁世界和平……中共之恶，罄竹难书，其恶行已经从国内延伸到国际，如果再不加以制止，整个人类都将进一步受其所害。五年多来，郭文贵先生创建的新中国联邦一直在致力于消灭中共，而做为世界罪恶的根源，消灭中共不仅应该是中国人的必须，更应该是世界人民的必须。
-
-新闻链接: [What I learned volunteering in refugee camps in Poland and Ukraine](https://www.thestar.com/opinion/contributors/2022/04/19/what-i-learned-volunteering-in-refugee-camps-in-poland-and-ukraine.html%20?rf)
-
-翻译/简评: kkoto(芬兰大灰狼) / PR: Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+深圳某社区人员要求打第三针才能做核酸。视频拍摄者问过卫健委没有这样的规定 社区人员说只是接到了街道办的通知，但是拿不出文件 [#深圳强制接种](https://twitter.com/hashtag/%E6%B7%B1%E5%9C%B3%E5%BC%BA%E5%88%B6%E6%8E%A5%E7%A7%8D?src=hashtag_click)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+> 深圳某社区人员要求打第三针才能做核酸。视频拍摄者问过卫健委没有这样的规定
+> 
+> 社区人员说只是接到了街道办的通知，但是拿不出文件[#深圳强制接种](https://twitter.com/hashtag/%E6%B7%B1%E5%9C%B3%E5%BC%BA%E5%88%B6%E6%8E%A5%E7%A7%8D?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pxyxqnt5gw](https://t.co/pxyxqnt5gw)
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [April 23, 2022](https://twitter.com/SafeGuard009/status/1517716649482547201?ref_src=twsrc%5Etfw)
+
+
+
+视频概要——
+
+**社区居民：**你是长源社区的对不对？姓杨对吧？
+
+**红马甲：**对，是的。
+
+**社区居民：**我打电话给卫健委，他说深圳市和社区桃园街道没有任何的文件，下发说没打全疫苗或者没有打疫苗的人不可以在社区做核酸，没有这个文件，没有这个规定。你现在是代表你个人，还是代表社区来讲这个话？
+
+**红马甲：**我是接到了街道办的通知，你有意见你可以向上面提。
+
+**社区居民：**麻烦你把通知拿出来给我看。
+
+**红马甲：**我们也是接到通知而已。
+
+**社区居民：**把通知拿出来。
+
+**红马甲：**没有文件。
+
+**社区居民：**没有文件你就在撒谎，你就在替政府撒谎。
+
+**红马甲：**我们整个桃园街道办都是这样子。
+
+**社区居民：**你在替政府撒谎！
+
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+
+深圳市的同胞们请一定坚持住，在基层红马甲拿不出具体文件的情况下，用所谓的志愿者用另外的形式强推疫苗。话再说回来，即使基层红马甲拿出所谓的具体文件，也不足以做出擅自接种疫苗的决定，因为中共疫苗是杀人武器，所以不管基层政府敢不敢出具红头文件，深圳的同胞和所有未打疫苗的其他地区的同胞们都要保护好自己和家人，这是我们必须要做的事情。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
