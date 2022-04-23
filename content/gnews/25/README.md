@@ -2,51 +2,67 @@
 ---
 
 
-## 马斯克透露，如果成功收购推特，将净化推特平台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2395753/)
+## 英国将为乌提供星战“同款” 风暴者防空装甲车（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2395800/)
 
-![03 September 2020, Brandenburg, Grünheide: Elon Musk, head of Tesla, stands on the construction site of the Tesla Giga-Factory and talks to journalists. In Grünheide near Berlin, a maximum of 500,000 vehicles per year are to roll off the assembly line from July 2021 - and according to the car manufacturer's plans, the maximum is to be reached as quickly as possible.](https://dw-wp-production.imgix.net/2022/04/EM-1-scaled.jpg?fit=crop&amp;ar=16%3A9&amp;w=2048&amp;auto=format&amp;ixlib=react-9.3.0)伊隆·马斯克 （Getty图片）
-美国每日连线(Daily Wire)4月22日报道，伊隆·马斯克在周四透露，如果他收购该社交媒体平台(推特)的竞标成功，该平台将会发生一些变化。
+翻译：噜噜咪
 
-在马斯克发表这番言论之前，他在一份提交给美国证券交易委员会(SEC)的新的备案文件中列出，他已经从三个渠道获得了465亿美元的资金来收购该公司，其中包括摩根士丹利的130亿美元，其他银行的125亿美元，以及他自己的210亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-在有关SEC备案文件的消息传出后，马斯克在推特上写道：“如果我们的推特(Twitter)竞标成功，我们将击败或坚决打击垃圾邮件机器人！并确认所有(账号为)真实的人类。”
 
-马斯克在本月早些时候的一次TED(Technology,Entertainment,Design)演讲中说，推特需要将其算法开源，该公司对推文采取的任何行动都需要向公众彻底解释，以阻止该公司对该平台的“幕后操纵”行为。
 
-据马斯克称，推特的秘密算法可能“相当危险”，他说，它可以推广一些推文，同时不推广另一些推文。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-482.jpg)防空装甲车“风暴者”发射“星光”高速导弹（HVM）
 
-马斯克说，当涉及到判断推文是否应该因其内容的性质而被删除时，政策应该是：如果有疑问，让推文存在。马斯克还提出了为用户增加一个编辑按钮的想法。
+继英国向乌克兰交付便携式“星光”单兵短程防空导弹后，英国小报《太阳报》4月18日报道，伦敦计划向这个陷入困境的国家交付Alvis风暴者（由英国 Alvis Vickers 公司制造的现代军用装甲车）高速导弹装甲车，每辆车可装载16-20枚激光制导“星光”导弹。
 
-马斯克周二的两条推文引发了一些争议，其中一条是为确定一家社交媒体公司的政策是否有效提供一个“好”指标；另一条则在询问谁是互联网上“隐秘的”审查和去平台化的幕后黑手。
+风暴者不仅赋予防空系统以机动性和装甲保护，而且其集成的传感器和火控系统使其对低空飞行的俄罗斯飞机的杀伤力大大增强。 尽管风暴者相对来说很不起眼，但奇怪的是，如果你是《星球大战》电影的粉丝，你可能已经看到了“实战”中的风暴者——具体来说，2017年的星球大战外传电影《侠盗一号》在影片早期的城市战斗场景中出现了现实中的风暴者。
 
-马斯克首先回复了科技企业家马克·安德森（Marc Andreessen）的一条推文，他写道：“我预测传统互联网堆栈所有层级的审查/去平台化政策本质上是相同的。只有罕见的例外。”马斯克回应说：“这极其令人担忧，是谁在推动这种审查制度/去平台化？非常隐秘。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-133.png)
 
-马斯克在推特上写道：“如果左右两派最极端的10%的人都同样不高兴，那么一个社交媒体平台的政策就是好政策。”
+去掉虚构的TX-225“占领者”反叛乱坦克细长的履带和侧面安装的激光炮，你会看到一个潜在的“风暴者”平板模型的车体。
 
-简评：
+这辆为科幻电影改装的车辆，实际上是1991年海湾战争中为携带法国“牛头人”布雷器而制造的六辆中的一辆，后来又改装了英国“盾牌”布雷系统，可以快速部署240枚反坦克地雷——所有这些都已经退役了。
 
-在21世纪，社交媒体的威力远超核武器。社交媒体不透明的运营政策，背后都被无形的手控制着。社交媒体左右着人们的思维，影响着政府的决策。伊隆·马斯克所触及的领域，都会带来新的血液，颠覆所谓的“传统”，希望马斯克向社交媒体的进军可以改变社交媒体的运营方式。
+**星光和风暴者**
 
-推特公司目前的状况已经腐朽不堪，近乎彻底服务于中共控制下的资本集团。在法官未作出判决前，推特的审查制度已经予以了裁判。可以存在的推文只是推特公司乐见其存在的，一些娱乐新闻、明星动态宣传或者绯闻等一系列没有营养的讯息充斥着推特平台，消耗着人们的时间、愚弄着人们的大脑。而对于揭露中共在香港、新疆、西藏的暴行或者中共利用新冠病毒(COVID-19)发动的生化战争的真相等，都以极度流氓的手段进行封锁，关闭相关账号，迎合以中共为代表的邪恶集团的目的，为了利益出卖一切良知与正义。反观我们爆料革命推出的盖特(GETTR)、GTV，GNEWS等社交媒体平台则完全遵循唯真不破、尊重事实的原则，传播真相、曝光邪恶、为良知和正义发声。已然成为这个大危机时代的明灯，也必然成为未来社交媒体平台的领航者。
+乌克兰转而接受暴风者高速导弹（Stormer HVM）防空模型，该模型在其顶部安装了一个携带8枚“星光”地对空导弹的发射器。另外在车内还装载8-12枚导弹，车内有三名乘员（指挥官、炮手、司机）。
 
-新闻链接:
+正如之前的文章所详述的那样，星光高速导弹（HVM）不仅比更常见的“毒刺”便携式导弹具有更大的最大速度（3-4马赫）、射程（4.35英里）和高度（16,000英尺），而且它可能绕过大多数传统的飞机对抗措施。
 
-[https://www.dailywire.com/news/elon-musk-reveals-2-changes-that-are-coming-to-twitter-if-takeover-bid-successful?%3Futm\_source=twitter](https://www.dailywire.com/news/elon-musk-reveals-2-changes-that-are-coming-to-twitter-if-takeover-bid-successful?%3Futm_source=twitter)
+星光导弹没有热导引头，而是依靠光学和激光组合制导：炮手使用发射器上的光学传感器追踪目标，然后使用激光将制导指令传送到导弹尾部的接收器。这种方法不会被标准的飞机自卫系统所打败，如金属箔片、照明弹、雷达干扰和定向红外对抗措施，尽管光学遮蔽剂可以发挥作用。
 
-翻译/简评:親愛的瑪嘉烈
+为了稳妥起见，星光导弹分成三个独立的爆炸“飞镖”，以最大限度地提高摧毁目标飞机的几率。
 
-PR: Harvey（叶知秋）
+乌克兰在3月首次从英国收到星光单兵防空导弹（MANPADS），到4月1日，一枚星光导弹已经在乌克兰东部击落了一架相对先进的米-28N“浩劫”攻击直升机，显然是炸掉了它的机尾。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-98.png)
+
+现在据报道，伦敦可能通过C-17运输机交付，发送少量装备“风暴者”的装甲车到乌克兰服役。这是伦敦承诺向乌克兰派遣的总共120辆（或可能155辆）装甲车中的一部分。
+
+14吨重的阿尔维斯风暴者FV433是英国轻型装甲车家族的一个扩大的、现代化的后裔，被称为通用侦察车辆（履带式）或CVR（T）。风暴者比狭窄的CRV(T)s有更大的空间，并且像它的前辈一样，旨在承担不同的任务有效载荷。
+
+早期生产的风暴者主要用于出口，包括为印度尼西亚生产的40辆两栖运兵车，为阿曼生产的10辆指挥所变种车，以及为马来西亚生产的25辆安装20毫米大炮或双机枪炮塔的战车。
+
+在20世纪90年代，英国最终采购了135辆风暴者HVM防空车和10辆风暴者侦察车。这些车辆在2003年被部署到伊拉克，但没有参与战斗。今天，60辆仍在皇家炮兵第12团的三个炮组中服役。这表明英国保留了超过70辆退役的风暴者HVM的库存。
+
+[**接下篇英国将为乌提供星战“同款”** **风暴者防空装甲车（2/2）**](https://gnews.org/zh-hans/2395868/)
+
+新闻来源：[uk is sending stormer anti aircraft tank seen in star wars to ukraine](https://www.19fortyfive.com/2022/04/uk-is-sending-stormer-anti-aircraft-tank-seen-in-star-wars-to-ukraine/)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+素材：peacelv
+审核：文乐
+校对：信心满满
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
  
 

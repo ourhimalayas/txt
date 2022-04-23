@@ -2,31 +2,47 @@
 ---
 
 
-## 俄罗斯测试新导弹进行核威胁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395925/)
+## 大直播后记：盗国贼没事偷着乐，老百姓还能跪着活？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2395954/)
 
-作者：纽约香草山农场教育部-马克文、百合观察
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-在俄罗斯入侵乌克兰大约2个月后，俄罗斯称测试了一种新的具有核武能力洲际导弹，普京称“这是世界最好的核导弹”。普京八周前宣布入侵时，普京就提到了俄罗斯的核力量，并警告威胁西方民主国家。联合国秘书长安东尼奥·古特雷斯表示，“曾经不可想象的核冲突前景，现在再次成为可能。”
+#### 整理：红红火火
+编辑：伏而起之
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a-8.png)图片源自网络
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片35-24.png)
 
-离俄罗斯重要的二战胜利庆祝日只有几周的时间了，普京在乌克兰军事行动连续失败后，急于在节日到来之际做表现，用一些技术成就展示给俄罗斯老百姓看，同时威胁乌克兰等西方国家。
+图片来源：雅典娜设计组（614）
 
-俄罗斯自从2月24日入侵乌克兰以来，派出了数万的俄军士兵，受到了乌克兰激烈抵抗，再加西方对俄罗斯实施了全面制裁，以及对乌克兰军事经济支持，乌克兰成功的阻止俄罗斯普京想要占领主要城市。
 
-【参考链接】 [https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/](https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/) AA[https://www.reuters.com/article/un-secretary-general-0314-mon-idCNKCS2LC05Z](https://www.reuters.com/article/un-secretary-general-0314-mon-idCNKCS2LC05Z)
+**Jessica：**
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+生在中国，没事你就偷着乐吧，其实这话不是对我们普通百姓说的，这有可能是盗国贼们的家训，对他们那些不肖子孙说的——生在中国，你们就偷着乐，哪有这么多的韭菜，哪有这么多的愚蠢的韭菜来供养我们？所以，墙内的同胞快点醒过来吧，这也是我们每天在这里做直播的意义所在，就是能唤醒更多的人，让他们听到不同的声音。
 
-编辑/校对/发稿：Daxia
+**大根:**
 
-**更多资讯，更多关注**
+谢谢，有请我们的雅各先生。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+**雅各:**
+
+我前几天跟一位缅甸的朋友在交流，他谈到了缅甸民众对军方独裁的反抗，很多神学院的学生现在都不能正常上课，因为他们要去反抗。听完之后，我就非常惭愧，为什么？因为我在想，缅甸这个国家可以做到这个程度，为什么中国不可以呢？
+
+现在这个封城和核酸检测，已经威胁到每个民众的生命财产安全，没有这种反抗，或者说很少有这种系统性的反抗。那我就在想，缺乏一个反抗的土壤，即使有一个人，或者说一小部分人出来反抗，如果得不到支持的话，他很快就会被消灭。就像一根火柴一样，你一根火柴能点多久？消灭一根火柴是容易的，但是如果一根火柴能够点燃整片火的话，它就会成为一个燎原之火啊。
+
+所以，我们不一定会成为那个振臂高呼的人，但我们至少要做支持这种人的土壤的一部分。对于体制内这些朋友们来讲，你们不一定能够扑灭习太阳他们的邪恶之火，但是你们至少可以成为枪口抬高一寸的人，然后保留证据，我相信将来对你们的后代和自身的生命财产安全会有巨大的帮助。
+
+**大根:**
+
+谢谢，非常感谢各位。我想分享几个数字，冰冷的数字，大家可以从这几个数字得到自己的答案。香港运动中750万人口抗争了几年，官方的非正常死亡人数是2000多人，然后七哥爆料，如果没记错应该是在1万。香港抗争了几年，我就跟你干了，就是这种抗争，管他赢输，我就跟你干。上海是一个2500万的城市啊，按照七哥的爆料，现在死亡可能百万了。这就是上海，大陆就是绝对顺从的。我们扩大到俄乌战争，大家看得到，打了一个多月了，我去看了一下两个国家的死亡人数，加在一起，官方报道大概是15000人左右，还有人说这个数字说多了。
+
+资料来源：[4月22日文贵大直播](https://gettr.com/post/p16lhcr821c)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

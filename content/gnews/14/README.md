@@ -2,16 +2,10 @@
 ---
 
 
-## 上海，大量的外援蔬菜當垃圾丟棄，不給百姓吃。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395895/)
+## 安徽蕪湖封城，市民半夜搶菜。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395943/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

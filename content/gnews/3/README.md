@@ -2,33 +2,35 @@
 ---
 
 
-## 【G时新闻】美国会议长南希·佩罗西即将访台
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2395983/)
+## 新加坡将在下周取消大部分新冠限制
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396036/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据文贵先生4月21日盖特直播报道，美国国会议长南希·佩罗西已确定4月26日到访台湾。此消息一出，给台湾未来4月26日至5月6日前这段时间的安全形势带来极大不确定性。
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-485.jpg)图片来自网络
+《路透社》近日报道，新加坡卫生部周五表示，为了应对每日新感染病例的减少，新加坡将从4月26日起取消大部分剩余的新冠限制，并放宽对旅行者的入境要求。
 
-对此，中共召开紧急会议，并向美方表达严重关切。美方则严厉回应，表示在中共支持俄罗斯入侵乌克兰问题上，美也曾向中共表达严重关切，中共置若罔闻。国会议长南希·佩罗西的访问行程，美国务院无权干涉。中共强硬通知美方，若如此，4月26日这个时间点，将是台湾的分水岭。
+这些措施包括取消对团体人数的限制，允许员工完全返回工作场所，同时自该大流行病开始以来首次降低东南亚金融中心的警戒级别。
 
-据文贵先生透露，习近平过去已经做好了所有攻台准备，已无回头路。美议长防台，习若再不动手，二十大必被中共内部灭掉。加之普京战争失利，求和心切，以及国内疫情防控导致民怨沸腾，经济临近崩溃等各种形势逼迫，让习选择拼死一搏，陷入最后疯狂，若拿不下台湾，就会灭掉台湾。
+当局还宣布取消已接种新冠疫苗的旅行者在出发前往新加坡之前进行新冠测试的要求。
 
-盖特链接：[https://gettr.com/post/p16ngc5d853](https://gettr.com/post/p16ngc5d853)
+“财政部长兼政府冠状病毒工作组联合主席劳伦斯-黄说：”经过两年非常艰难的抗击病毒的过程，情况终于有了变化，我们现在可以有一个当之无愧的喘息机会。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+“但是让我们永远记住，我们越来越接近终点，但比赛还没有结束，大流行病肯定没有结束。”
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+然而，一些限制规则将继续存在，例如在室内公共场合和公共交通工具上必须戴口罩。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+然而，许多限制将继续适用于未接种新冠疫苗的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+新加坡为其550万人口中的93%接种了新冠疫苗，是世界上接种率最高的国家之一。它也是新冠死亡率最低的国家之一。
+
+参考链接：
+
+[https://www.reuters.com/world/asia-pacific/singapore-remove-most-covid-restrictions-next-week-2022-04-22/](https://www.reuters.com/world/asia-pacific/singapore-remove-most-covid-restrictions-next-week-2022-04-22/)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

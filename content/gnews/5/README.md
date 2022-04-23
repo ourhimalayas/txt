@@ -2,33 +2,43 @@
 ---
 
 
-## 俄国防部研究所大楼被烧
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395969/)
+## 今年有769名运动员在比赛中倒下 怎么回事？（1/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396021/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+翻译： Jenny Ball
 
-据《自由时报》4月21日报道，俄罗斯普京20日宣布成功试射号称“世上最强“的萨尔马特（Sarmat）洲际弹道飞弹，21日位于特维尔市（Tver）的俄罗斯国防部第二中央研究所大楼突然发生大火，至少5死30伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/c-4.png)
 
-该研究所负责专职开发防空武器，也有制造导航、地面控制系统、航空飞行器的导引定位等，而俄罗斯主力飞弹伊斯坎德尔（Iskander）与S-400也是在该栋大楼所设计。 
 
-报道说俄军方20日在俄国北部普列塞茨克太空发射场（Plesetsk Cosmodrome）成功进行萨尔马特试射，俄罗斯国防部称将大幅提高俄国战略核武的战力。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-230.png)
 
-21日白天该研究所发生大火，从流出的视频可见，该栋大楼冒出大量黑烟，火势相当猛烈，目前已知至少5人死亡、30人受伤，传出大楼屋顶也因大火而坍塌。当地消防部门在中午得到报警并前往救援，初步怀疑为研究所二楼老旧电线与塑胶造成大火。
+在 2021 年 3 月至 2022 年 3 月的一场比赛中，超过 769 名运动员倒在了赛场上。
 
-【参考来源】[https://news.ltn.com.tw/news/world/breakingnews/3901462](https://news.ltn.com.tw/news/world/breakingnews/3901462)
+One America News Network (OAN)披露了这一令人震惊的统计数据，该网络还发现，心脏骤停运动员的平均年龄仅为 23 岁。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+由调查人员、新闻编辑、记者和“寻求真相的人”组成的团队“好科学”（Good Sciencing ）的最新报告，详细介绍了运动员在 COVID-19 注射后发生的 890 次心脏骤停和其他严重问题，包括 579 人死亡。
 
-编辑/校对/发稿：Daxia
+随着此类情况变得不可忽视，甚至澳大利亚的主流媒体体育频道都推测，健康问题可能与 COVID-19 注射有关，其中一位主持人承认，多名球员在 COVID-19加强剂注射后患有心脏问题和贝尔麻痹。
+
+接下篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）
+
+新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

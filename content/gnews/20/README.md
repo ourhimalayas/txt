@@ -2,10 +2,16 @@
 ---
 
 
-## 上海閔行羅秀三村，騙居民下樓做核酸，結果直接帶去方艙。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395835/)
+## 上海，大量的外援蔬菜當垃圾丟棄，不給百姓吃。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395895/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组
