@@ -2,27 +2,41 @@
 ---
 
 
-## 有声｜中共国多家银行网点提现难
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2396715/)
+## 每周报告显示突破性病例占 COVID 感染的 47%
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396746/)
 
-By: 秘翻新闻
+翻译： Jenny Ball
 
-**2022-04-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-23-141104.jpg)
-[大纪元](https://www.epochtimes.com/gb/22/4/22/n13717978.htm)4月23日报导，近期中共国有银行储户在提款和查询账户时遇阻碍。不少储户对此表示不满，他们觉得明明这钱是自己的，查询和提现本应通畅，不应被作为服务行业的银行刁难。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
-一段现场视频显示，有储户4月20日在河南禹州新民生村镇银行的一个网点要求查询自己的现金账户情况，该储户称早上6点就到达网点一直僵持到银行下班，工作人员一直以“网开二类卡不存在”为由拒绝给予查询。
 
-自4月18日起，位于河南的三家村镇银行的储户突然提现困难。这三家村镇银行分别是禹州新民生村镇银行、上蔡惠民村镇银行和柘城黄淮村镇银行。三家银行的发起行均为许昌农村商业银行股份有限公司。
 
-据消息称，上述银行存款取不出来，APP打不开，电话打不通，高官联系不上，打市长电话也无人接听，目前大量储户正在建立维权群。此外，抖音上有储户自曝600万的存款无法取出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-18.jpeg)
 
-（秘翻新闻 二丫编辑）
+《在线纪事》报道：
 
-发布:星星
+随着俄勒冈州对 COVID-19 的担忧消退，以及广泛的疫苗接种推动失去动力，出现了新的数据显示疫苗的功效低于先前的预期。在俄勒冈州卫生局的最新报告中，疫苗突破病例占俄勒冈州 COVID-19 病例的近一半。
+
+俄勒冈州卫生局 4 月 7 日的 COVID-19 突破报告显示，在 3 月 27 日至 4 月 2 日期间， 报告的 2,035 例 COVID-19 病例中，有960疫苗突破病例 (47.2%)。这个数字可能甚至比数据显示的还要高，因为数据包括向公共卫生部门报告的阳性检测结果，而不是在家中检测出的阳性结果。
+
+该机构关于疫苗接种突破性死亡的最新报告揭示了类似的趋势。在 3 月份，46.4% 报告的 COVID-19 死亡病例发生在完全接种疫苗的人群中。
+
+新闻来源：[COVID: Breakthrough Cases Made up 47% of COVID Infections, Weekly Report Shows](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
+
+审核：文乐  
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

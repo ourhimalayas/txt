@@ -2,8 +2,8 @@
 ---
 
 
-## 一女子在 20 天内两次感染新冠病毒 创下新纪录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396912/)
+## 随着原始Omicron的消失 这些是BA.2次变种的主要区别
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396950/)
 
 翻译： Jenny Ball
 
@@ -11,22 +11,22 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-498.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-499.jpg)
 
-[据CNBC报导:](https://www.cnbc.com/2022/04/21/woman-caught-covid-twice-in-20-days-marking-a-new-record.html)
+[NBC报道：](https://www.nbcnews.com/health/health-news/omicron-ba-2-variant-symptoms-covid-rcna25069)
 
-据西班牙研究人员称，据报道，一名医护人员在感染由 Delta 变体引起的感染后，仅 20 天就检测出 Omicron 冠状病毒株呈阳性。
+自去年 12 月以来，冠状病毒的 Omicron 变体一直在美国占据主导地位，但在冬季导致重大感染激增的 Omicron 变体，现在仅占新病例的不到 7%。
 
-研究人员将于下周末在葡萄牙举行的今年欧洲临床微生物学和传染病大会上，介绍对这名 31 岁女性的案例研究，她已完全接种疫苗，并注射了加强免疫针。
+一个更易传播的Omicron次变体 BA.2 约占美国病例的3/4，而BA.2 也产生了自己的子系 BA.2.12.1，它似乎正在获得动力：从 4 月初的美国病例的 7% 上升到上周的 19%。 纽约州卫生局上周表示，BA.2.12.1 最有可能导致该州病例数上升。
 
-感染之间的 20 天间隔是已知最短的。
+到目前为止，新版本的 Omicron 与之前在美国大行其道的版本之间的主要区别在于可传播性。 白宫首席医学顾问福奇博士估计，BA.2 的传染性比最初的 Omicron 谱系高 50%。
 
-新闻来源：[Woman Catches COVID Twice Within 20 Days, Marking a New Record](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
+新闻来源：[As Original Omicron Disappears, These Are the BA.2 Subvariant’s Key Differences](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
 
 * * *
 
-审核：文乐    
-校对：信心满满
+审核：文乐
+校对：阿伯塔
 发布：五通庙
 
 **更多资讯，更多关注**

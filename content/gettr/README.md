@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 8:09 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group4/origin/2022/04/23/07/fd8f7628-75ec-95b4-04e9-6adeacb9dda6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 5:00 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -147,13 +154,6 @@
 
 4/22/2022 Miles Guo’s GETTR: The caregiver exposing the true story of a Shanghai senior who had to eat poop and died from it has been classified by the Communist Party as a “narrative attack” manipulated by foreigners causing devastating damage!  The top priority of the New Federal State of China is to awaken and save more Chinese fellows as well as humanity and having more people join us is only secondary<br/><br/>4/22/2022 文贵盖特：直播说上海有老人吃屎吃死了的义工已被中共定位为外国人操纵的且具有巨大杀伤力的舆论攻击！新中国联邦第一任务是唤醒和拯救更多的同胞和同类，让更多的人加入我们排第二位<br/>
 ![img](https://media.gettr.com/group38/getter/2022/04/22/22/82175298-9a9d-4564-d687-f34b44142cb0/out.jpg)
-
----
-
-`@miles 4/22/2022 8:45 PM (UTC)`
-
-2022.04.22  新中国联邦 | 喜健康   唤醒.危机时刻的传播心理学
-![img](https://media.gettr.com/group12/origin/2022/04/22/20/ce9c91b9-105e-0b15-a035-25f207f36b62/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

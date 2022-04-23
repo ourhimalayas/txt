@@ -2,40 +2,20 @@
 ---
 
 
-## 每周报告显示突破性病例占 COVID 感染的 47%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396746/)
+## 视频|多国财长和央行行长在俄罗斯发言时退出 G20 会议
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2396753/)
 
-翻译： Jenny Ball
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+在4月20日召开的国际货币基金组织和世界银行会议中，当俄罗斯官员发言，強调莫斯科在入侵乌克兰后处于孤立狀态時，财政部长珍妮特·耶伦和其他全球金融领导人以离开会议室或关掉屏幕的形式，即时退出了 G20 会议，以示“战争与合作不相容”。
+法国经济部长布鲁诺·勒梅尔在 G20 会议开幕式上宣称，请俄罗斯“放弃参加 G20 会议”。加拿大财政部长弗里兰在社交媒体上表示：面对俄罗斯持续的侵略和战争罪行，世界民主国家不会袖手旁观。她补充说，本周在华盛顿举行的会议旨在支持全球经济，俄罗斯非法入侵乌克兰对全球经济构成严重威胁，因此，俄罗斯不应该参加这些会议。
+自俄罗斯入侵乌克兰后，美国及其盟友对俄罗斯实施了全面制裁，不但阻止了莫斯科动用其外汇储备，还禁止进口俄罗斯石油。英国则针对居住在那里的一些俄罗斯富裕精英实施了制裁。英国财政大臣里希·苏纳克说：我们要团结一致谴责俄罗斯对乌克兰的非法战争，并加强国际协调合作，继续惩罚侵略者。
 
+发稿：qiutian（邱甜）
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-18.jpeg)
-
-《在线纪事》报道：
-
-随着俄勒冈州对 COVID-19 的担忧消退，以及广泛的疫苗接种推动失去动力，出现了新的数据显示疫苗的功效低于先前的预期。在俄勒冈州卫生局的最新报告中，疫苗突破病例占俄勒冈州 COVID-19 病例的近一半。
-
-俄勒冈州卫生局 4 月 7 日的 COVID-19 突破报告显示，在 3 月 27 日至 4 月 2 日期间， 报告的 2,035 例 COVID-19 病例中，有960疫苗突破病例 (47.2%)。这个数字可能甚至比数据显示的还要高，因为数据包括向公共卫生部门报告的阳性检测结果，而不是在家中检测出的阳性结果。
-
-该机构关于疫苗接种突破性死亡的最新报告揭示了类似的趋势。在 3 月份，46.4% 报告的 COVID-19 死亡病例发生在完全接种疫苗的人群中。
-
-新闻来源：[COVID: Breakthrough Cases Made up 47% of COVID Infections, Weekly Report Shows](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
-
-* * *
-
-审核：文乐  
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
