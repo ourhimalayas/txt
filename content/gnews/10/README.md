@@ -2,34 +2,25 @@
 ---
 
 
-## 网路热传普京身体出问题的视频
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399675/)
+## 新中国联邦可能会在乌克兰和波兰建立大使馆
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2399699/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-23.33.56.png)
-当地时间4月21日，一则网路视频在社交媒体广泛传播。视频里是普京和自己的外交部长正在开会的画面，只见普京脸色发白，双脚抖动，右手紧紧抓着桌角，该视频中虽然使用了快速播放，将10分钟的视频压缩至几十秒内，但不难看出普京的痛苦表情。
+撰稿：银河系农场—骄子，日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.29.38-PM.png)
+4月21日，郭文贵先生在直播中提到，目前普京由于战事上的连续失利，对西方发出了和解信号，谈判结果可能在6月中旬或者下旬定下来。如若普京交枪投降，那么我们在前线对乌克兰的救援行动可能会有一个大的改变。我们也许会在当地置办一个固定的物业，和当地政府商量，建立第一个大使馆，称为新中国联邦驻梅迪卡战地大使馆。另外我们也会深入到乌克兰基辅，建立新中国联邦驻基辅大使馆。随即也会派出新中国联邦的大使。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388610.jpg)
+郭文贵先生表示，在本次俄乌战争中，新中国联邦前往乌克兰前线的战友们，以无我、勇敢、坚定的勇气，在梅迪卡救援前线展示出跟中国共产党完全不同的、新中国人的面貌，令新中国联邦的民运已经紧紧地和乌克兰以及犹太人、犹太组织紧密地联系在一起了。同时在本次救援中，各个国家，包括联合国，都知道了新中国联邦的存在和意义，为今后新中国联邦跟全世界的合作埋下伏笔，也为新中国联邦进一步走向国际奠定了非常良好的基础。
 
-自郭先生爆料普京身体出问题后，各个大媒体都试图拍摄普京身体异样的画面，但独裁政府的特点决定了国家领导的身体是最高机密。俄乌战争以后，有普京出现的电视画面都经过了后期处理。4月21日郭先生透露普京正在积极和西方和谈，随即这则普京身体出问题的视频热传。
+目前，新中国联邦在网络上的搜索量已经从过去的千万级增加到了十几亿级。
 
-从独裁国家的政治需求来看，普京若有继续战争的决定，身体问题不可能会大量披露，这则视频的发布侧面验证郭先生关于普京正在与西方和谈的爆料讯息，普京也可能正在用此举向西方略表诚意，毕竟俄罗斯假新闻也层出不穷。
+参考链接： [04.21.2022 七哥乱聊直播](https://gettr.com/post/p16cfisc410)
 
-reference：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-207.jpg)
 
-[https://gettr.com/post/p16l8ey85d0](https://gettr.com/post/p16l8ey85d0)
+编辑/总编/审核：飞虹
 
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.29.38-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,35 @@
 ---
 
 
-## 五角大楼：预计乌克兰战争将长期化
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2398423/)
+## 有声|加入北约近了？芬兰国会表态支持
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2398591/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-1-3da0902a29.jpg)图片来源：时代
-4月22日，《华盛顿观察家报》报道说，五角大楼发言人约翰·科比（John Kirby）在周五的简报中表示，预计乌克兰战争将“长期化”。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+【自由时报】俄国入侵乌克兰令周边国家自危，芬兰和瑞典纷纷表达加入北大西洋公约组织（NATO）的可能性，芬兰国会最大党派如今也对加入北约展现正面看法。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-11.jpg)**芬兰国会就是否加入北约展开辩论。图为总理马林。（路透）**
+《路透社》报导，芬兰国会于当地时间周三就是否加入北约进行辩论。总理马林所属的社会民主党虽没有直接提及北约，但表态支持军事结盟的构想。
 
-科比说，“我们预计战争在几天内，甚至在未来几周内不会结束，我们认为它有可能比这更久。”
+芬兰虽与北约保持密切合作，但始终保持战略自主。在俄国对乌克兰发动入侵后，芬兰意识到强化防卫与安全的必要性。马林先前提到，是否向北约提出申请得花上数周时间决定。
 
-文章报道，周五，俄罗斯高级指挥官鲁斯塔姆·明尼卡耶夫（Rustam Minnekayev）声称，除了东部的顿巴斯地区，莫斯科现在还想“完全控制”乌克兰南部。
+芬兰政府曾表示，是否加入北约可由国会表决来展现民间支持与否，而不用诉诸公投。不过无论是表决还是公投皆无拟定时间点。
 
-俄罗斯本周一直在增加其在顿巴斯地区的兵力。他们的增援是以增加四个BTG(营级战术小组)的方式进行的，这使得该地区的BTG总数大约达到了80个，一位美国高级国防官员本周早些时候告诉记者，每个BTG大约由800-1000名军人组成。
+[【援引连结】](https://news.ltn.com.tw/news/world/breakingnews/3900255)
 
-这位官员还说，五角大楼认为，相对于开始入侵时的实力，俄罗斯目前还拥有大约75%的能力。
-
-发言人科比说，“因为俄罗斯人现在把他们的目标集中在一块较小的地理区域，一个他们现在已经与乌克兰武装部队战斗了八年的区域，而且在许多情况下一直在非法占领，（所以）我们会预计战斗可能会延长。”
-
-报道说，美国和许多西方国家一样，向乌克兰提供军事装备以战斗。拜登政府迄今提供的八个军事包的资金量将近35亿美元，最近的两个军事包是专门为适应乌克兰人在顿巴斯地区作战的需要而制作的，其中一些需要有限的培训。
-
-*责编：彩虹*
-
-**新闻来源**
-
-[Pentagon doesn’t anticipate war in Ukraine will end in the ‘coming weeks’](https://www.washingtonexaminer.com/policy/defense-national-security/pentagon-doesnt-anticipate-war-in-ukraine-will-end-in-the-coming-weeks)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

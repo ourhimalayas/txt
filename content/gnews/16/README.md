@@ -2,42 +2,34 @@
 ---
 
 
-## 加拿大证实：死亡加速与疫苗有关
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2399608/)
+## 欧盟官员拟议实行比特币交易禁令
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2399621/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-是的，所以这个数据来自于类似CDC的加拿大(相关机构)。加拿大在死亡报告方面有一个滞后的问题，比美国的情况更严重。因此，这就是为什么数据只涉及整个国家到10月底的情况。但是，有趣的是，这个数据来自于我一直在联系的一个人，他的名字叫Kelly Brown(凯利-布朗)。他是加拿大的一个金融专业人士，他（只是）发布了这个数据，并没有指责疫苗。他只是说，在加拿大，同一年龄段的超额死亡人数增加得惊人，从0到44岁，所以它包括了更多的人。我（说）的千禧一代是25到44岁，所以加拿大的数据包括的年龄段更大。注意在8月至10月，也就是图表的右边，加速强制（注射疫苗），就像在美国一样，是不是？是的。因此，所有这些，我们北边的邻居加拿大，由于他们的数据滞后，刚好证实了我们在美国看到的千禧年年龄组的情况。让我们看一下图表二。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/yIZOhuI8p1srFarOxzvUC28xeDcCQ_t1OC15bTgteW0.jpg)
+当地时间4月22日，欧盟官员在禁止使用工作证明算法采矿来获取数字资产的辩论中提出了禁止比特币交易的方案。欧盟官员甚至建议全面禁止比特币交易以遏制其巨大的能源消耗。
 
-阿尔伯塔省和B.C.省，这些是每周的超额死亡（数据），同样的年龄组，正如我们刚才在图表一中看到的，对吗？对。之所以指出这一点，是因为那里的数据更新，它持续到2021年底。它代表了加拿大25%的人口,所以这是从其他数据中提取出来的，但是你可以看到在11月到12月（随着时间的推移）趋势是向上的。
+欧盟官员在与瑞典金融监管机构、环保机构的会面中提出，监管机构应向比特币施压，要求其改善目前的能源密集型消耗工作机制。据剑桥大学的数据，比特币每年用于采矿的电力为139太瓦时，而整个英国在2021年的全年电力仅为265太瓦时。欧盟最近正在投票禁止比特币采矿的工作机制。瑞波联合创始人也在与绿色环保组织合作，向比特币施压。欧盟同时认为应该保护可持续的数字加密货币。
 
-因此，对于加拿大正在发生的事情，有很大、很大的疑问。这是很可怕的。为什么年轻人在不断地死亡？再说一遍，人们会谈论毒品过量、酗酒和自杀，当然，也许这些都有上升的趋势。对于美国，（这些信息）是很重要的。我的意思是，这绝对是重要的。
+知情人士称，欧盟完全可以合理地全面禁止使用能源密集型采矿算法的数字加密货币资产，比特币首当其冲。
 
-是的。所以，它的基本要点是，千禧一代和年轻人在这种疾病中幸存下来的比例是99.99%，你知道，幸存下来。那么，发生了什么事情导致这些峰值，为什么第二个峰值比第一个峰值高？那么可能是强制措施促成了这一点，（疫苗强制令）强迫人们，（如果你想）回到学校,(想)踢足球，去上大学，去找你的第一份工作，好吧，你需要打针和接种疫苗，并要打加强针和被网络信息洗脑告诉你去打加强针。这可能解释了为什么这个图表会走高？好吧，你看，我是一个投资者，我发表过论文，我肯定地说，这是疫苗（问题）。这个问题，这个问题却没有被主流媒体，被美国的CDC、FDA或NIH各部门，以及加拿大的同等机构问起。我觉得他们在隐瞒一些事情，我认为他们在隐瞒临床试验数据层面发生欺诈的事实。这件事（COVID疫苗）被匆匆通过，被推动，监管机构已经被抓住，他们认为这会没事的。我认为他们知道这是一种垃圾疫苗，但我觉得他们真的不认为它会这么快杀死这么多人。现在他们知道自己搞砸了。然后，当你被抓时你会怎么做？当你被抓的时候，你会掩盖它.
+reference：
 
-注：https://www.urbandictionary.com/define.php?term=Ruh-roh
+[https://cointelegraph.com/news/eu-officials-considered-bitcoin-trading-ban-to-enforce-proposed-mining-ban/amp](https://cointelegraph.com/news/eu-officials-considered-bitcoin-trading-ban-to-enforce-proposed-mining-ban/amp)
 
-撰稿/翻译/听写 – 扬帆视频组
-上传/发稿 – 野草
+撰稿、发布：骄子
 
-素材提供 – 文倩
-软件听写 – 蓝色天空
-听写校对 – 小白咖啡馆
-文稿翻译 – Aima
-翻译校对 – abbs
-字幕添加 – 文雅
-最终审核 – 文倩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
