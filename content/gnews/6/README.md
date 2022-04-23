@@ -2,46 +2,27 @@
 ---
 
 
-## 欧盟主席公开表明乌克兰即欧州自由民主的核心
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2399169/)
+## 前线救援营地再添新设施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2399421/)
 
-作者: 东京樱花团 – 麗子
+作者：骄子
 
+当地时间4月20日，新中国联邦和法治基金救援团队在梅蒂卡营地中再次增设了新的宣传设备：一台位于救援帐篷内的大屏液晶电视和一个高达6米的LED盘古擎天柱。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-9.57.33-AM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+据前线记者战友介绍，前线救援帐篷作为各个国际机构以及乌克兰难民工作和休息的大本营，其内部的液晶电视会不间断地播放爆料革命战友们制作的精美视频，这也让营地中的各国志愿者更加便捷地认知新中国联邦。至于户外LED盘古擎天柱则被设置在乌克兰难民出境的必经之路上，那里将循环播放新中国联邦以及当地救援机构的一些广告画面，用以方便难民寻求帮助。
 
+据悉，自新中国联邦在梅蒂卡展开救援以来，包括灭共马甲、气球和咖啡在内的各类周边物品深受营地中志愿者的喜爱。此外，波兰政府向前线战友发放的义工工作牌和救援营地中的路标都直接使用了新中国联邦的名称和国旗。而对于所有在前线无私辛勤付出的战友，国际友人们除了感谢之外，也对新中国联邦的灭共决心表达了坚定的支持。
 
+参考链接：[2022.04.23早 新中国联邦 | 新闻](https://gettr.com/post/p16rf8ncece)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-
-4月20日，欧州理事会主席米歇尔访问了乌克兰首都基辅，对正在遭遇俄罗斯入侵的乌克兰表示声援。而后欧盟主席在自己的推特上写道：”今天我在基辅，它是欧洲自由民主的核心”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/23-04-2022.jpg)
-
-图片来源网络
-
-此前欧盟高层也多次访问乌克兰。其中，欧洲议会主席梅佐拉于本月1日访问了基辅。8日，欧盟委员会主席冯德莱恩也协同外交安全事务高级代表博雷尔一起前往基辅，并会见了泽伦斯基总统，同时还访问了基辅附近、平民惨遭俄军杀害的布查地区。
-
-郭文贵先生也曾在盖特直播中指出，乌克兰的政治文明与民主社会体制让普京产生了恐惧，普京的疯狂入侵与乌克兰人民的英勇反抗必定会成就乌克兰在欧盟的核心地位。而欧盟主席今日推文所言进一步证实了爆料革命对时局发展的精准预测。
-
-
-
-相关链接:
-
-[https://news.yahoo.co.jp/articles/8c88ef4b7e163cc2b7ed45bcc2841985d3c93411](https://news.yahoo.co.jp/articles/8c88ef4b7e163cc2b7ed45bcc2841985d3c93411)
-
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+总编：Irene木木
+编辑：玫瑰圓
+审核：Ivy001
+校正/发稿：谐趣园
 
  
 

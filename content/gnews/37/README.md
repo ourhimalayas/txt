@@ -2,28 +2,28 @@
 ---
 
 
-## 中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397515/)
+## 俄乌战局最新消息汇总 04/23/2022
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2397862/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，荷兰法院宣布，俄罗斯拥有的阿姆斯特丹贸易银行(Amsterdam Trade Bank)破产，主要因这家银行卷入有关乌克兰战争制裁的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-137.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpreview.redd.it%2Fdq12d56xc4v81.png%3Fwidth%3D640%26crop%3Dsmart%26auto%3Dwebp%26s%3D9dd306d51a83569b59e50aa5845b1ef05c8f08ee&amp;imgrefurl=https%3A%2F%2Fwww.reddit.com%2Fr%2Fukraine%2Fcomments%2Fu9kkzx%2Famsterdam_trade_bank_a_subsidiary_of_russias_alfa%2F&amp;tbnid=eOJeu1nyjnXw3M&amp;vet=12ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ..i&amp;docid=HOcmNfkrEGbSnM&amp;w=640&amp;h=320&amp;itg=1&amp;q=Amsterdam%20Trade%20Bank&amp;ved=2ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ)
-阿姆斯特丹地方法院周五裁定，俄罗斯最大民营商业银行阿尔法银行(Alfa Bank)所属的阿姆斯特丹贸易银行破产，且获得荷兰中央银行证实。荷兰央行指出，阿姆斯特丹贸易银行成立于1994年，拥有约23000名客户。
+作者：加拿大蓝莲花农场  文斌
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.35.59-PM.png)
+- 截止当地时间4月22日，俄罗斯军队仍未放弃对乌克兰哈尔科夫州的炮击，同时，其还封锁了哈尔科夫市的部分地区。此外，俄军还在通过小范围攻击试探伊久姆周围的乌克兰阵地。
 
-美国4月6日针对俄罗斯联邦储蓄银行(Sberbank)与阿尔法银行等俄罗斯银行实施严苛制裁，冻结其与美国金融体系有关的所有资产，阿姆斯特丹贸易银行也受到英国制裁的影响。
 
-消息来源:[俄羅斯不敵制裁！俄屬阿姆斯特丹貿易銀行宣告“破產” 北約法律顧問：須再認定種族屠殺罪行](https://news.fx168news.com/politics/2204/5841375.shtml)
+- 另一方面，俄乌两军在乌克兰东北部的交火也仍未止息：俄军在波帕斯纳亚、鲁别日诺耶和北顿涅斯克区域都增援了部分兵力，这也导致波帕斯纳亚大约一半的区域目前处于沦陷状态，但乌克兰守军依然在顽强地进行巷战反击。
+- 至于南部阵线，俄罗斯试图在赫尔松建立“赫尔松人民共和国”，用以巩固其军事占领并为永久控制这些地区创造条件。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
+- 另据相关消息显示，虽然俄罗斯国防部长声称俄军已经取得了马里乌波尔战役的胜利，但乌克兰守军在当地亚速工厂周围的反击战仍在继续。鉴于俄罗斯军队或将试图困死坚守该市的乌克兰士兵，乌克兰官员呼吁当地停火并允许乌克兰守军和被困平民离开马里乌波尔。有消息人士认为，参与马里乌波尔战役的俄罗斯部队目前应该伤亡惨重：虽然马里乌波尔市或将失守，但乌克兰部队已经成功地束缚和削弱了大量的俄罗斯军队。为此，尽管俄军企图将部分当地部队重新部署至其他地区进行增援，但这些部队基本不能再释放出符合预期的战斗力。
+
+
+参考链接：[News Live On A Map.](https://liveuamap.com)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,30 @@
 ---
 
 
-## 喜币KYC流程详解
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2395265/)
+## 【每日聚焦】俄乌战事4月23日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2395437/)
 
-作者：香草山商业部–天情老人情早
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-481.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-203.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-174.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-158.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-70.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-42.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-49.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-29.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/1314.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/17-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/19-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/20-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/21-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/22-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/23-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/25-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/29-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/30-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/31-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3233.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/34-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/35-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/36-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/37-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/38-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3940.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/40-2.jpg)
-编辑/审核/发稿：Bronx Bombers
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
+1、基辅和乌克兰东北部：在过去24小时内，该地区没有重大变化。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2、哈尔科夫和伊久姆：乌克兰总参谋部报告说，有来自第6集团军以及波罗的海和北方舰队的多达7个营级战术群的俄军继续部分封锁哈尔科夫并炮击该市。一个亲俄电报频道报道说，俄军击退了乌克兰对科扎恰洛帕尼的反击，该地位于哈尔科夫北部，距离俄罗斯边境仅5公里，这可能表明乌克兰尝试在哈尔科夫以北向俄罗斯边境进行反击，可能威胁到别尔哥罗德。4月22日，俄军对伊久姆以南的乌克兰阵地进行了局部攻击和侦察，但没有取得任何进展。乌克兰特种作战司令部声称，4月22日在伊久姆附近一个未指明的地点摧毁了俄军正在使用的一座桥梁。乌克兰总参谋部报告说，俄罗斯第1坦克军、第20和第35集团军、第68军团和未指明的空降部队的人员集结在伊久姆附近，这里面许多部队是在基辅周围和乌克兰东北部的战斗中战损严重的。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+3、顿涅茨克州和卢甘斯克州：4月22日，俄军继续沿着乌克兰东部的接触线进行局部攻击，也继续以波帕斯纳亚、鲁别日诺耶和马林卡为重点，并在伊久姆周围取得了小的进展，占领了洛佐瓦亚村；在绿谷和克里米纳地区，俄军继续巩固他们最近占领的阵地，为进一步进攻做准备。在过去24小时内，军事形势没有发生实质性变化，俄罗斯军队继续进行局部攻击，不断投入增援兵力，而不是进行暂停休整，以便为更广泛的攻势做准备。乌克兰总参谋部报告说，4月22日，之前在切尔尼戈夫一带作战第41集团军撤出的部分人员部署到了乌克兰东部战场。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+4、马里乌波尔：俄军没有停止轰炸亚速钢铁厂，并继续围攻剩余的乌克兰守军，并一再拒绝乌克兰关于开放人道主义走廊以疏散平民的要求。俄罗斯国防部4月22日表示，只有当乌克兰军队举起白旗投降时，才会在马里乌波尔开始人道主义救援，并声称乌克兰守军将在两周内耗尽食物和物资。俄罗斯和顿涅茨克共和国的部队继续巩固其对马里乌波尔关键位置的控制，并可能为建立占领区伪政权创造条件。有部分俄军离开了马里乌波尔，目前无法确认哪些俄罗斯部队已经离开和他们可能的目的地。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+5、南部战线：俄军在过去24小时内对赫尔松西边和扎波罗热的乌克兰阵地进行了进行大规模轰炸和不成功的攻击。乌克兰总参谋部报告说，隶属俄罗斯第58集团军的第19摩步师的成员部署在扎波罗热前线，可能是为了支持北部的进攻行动，旨在包围乌克兰东部的乌克兰军队，尽管俄罗斯军队仍然很不可能在这些进攻行动中取得重大进展。俄罗斯还在为在扎波罗热州和赫尔松州建立代理共和国创造条件，以巩固俄罗斯对这些地区的控制，并征用乌克兰的人力。乌克兰国防部发言人在4月22日报告说，俄军阻止乌克兰公民离开这些地区，并准备征召适龄男子。
 
+6、乌克兰军情局4月22日报告说，有几名俄罗斯军官因在乌克兰的失败而被解职或监禁。报告中说，俄罗斯当局逮捕了黑海舰队司令奥西波夫海军上将，并正在调查黑海舰队参谋长平丘克海军中将，原因可能是莫斯科号的被击沉。报告中还说，第6集团军司令、第1近卫坦克军司令和副司令以及第22军团司令都因表现不尽人意而被免职。对军官的清洗不太可能提高俄军的战力，因为接替的指挥官很可能经验不足，要实现普京设定的那个不合理的目标会面临巨大压力。
+
+校对：文斌/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
