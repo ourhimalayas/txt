@@ -2,38 +2,31 @@
 ---
 
 
-## 澳洲CCP病毒死亡人数再次出现上升
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398316/)
+## 西澳州长的孩子因感染中共病毒重症入院
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2398377/)
 
-撰稿：Gradient Boost
+**整理报道：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/234-1.jpg)图片来自网络
-在过去 24 小时内，澳大利亚又有 39名CCP病毒感染患者不幸离世，这使得最近两周的七日平均CCP病毒死亡数字持续处于攀升状态。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/fda790c7953bce92c265d2d2675124eb5c1987d3-16x9-x0y226w4341h2442.jpg)Sound Telegraph
 
-新南威尔士州在过去 24 小时内记录了 16 例死亡和 12,633 例 CCP病毒阳性检测，相较昨天的新增病例数量有所下降。该州目前有 1632 名感染者住院，其中 62 人正在接受重症监护。同时，该州的七日平均新增感染数整个四月都处于下滑状态。
 
-在维多利亚州，今日已发现 8120 例新的CCP病毒感染病例，同时有13 人在不幸因病毒感染而离世。目前维州有 449 人在医院接受治疗，其中 35 人在重症监护室，8 人需要呼吸机，该州的七日平均新增感染从三月开始便在持续缓慢增长。
+自中共病毒（COVID-19）疫情以来，西澳大利亚州政府一直推行疫苗强制政策。2022年一月份，西澳州长麦高恩（Mark McGowan）在新闻发布会上公布了疫苗接种的最新规则，要求西澳州16岁及以上的人在一些公共场所和工作场所必须提供接种两剂的疫苗接种证明，除非获得疫苗接种豁免。
 
-在昆士兰州，过去的 24小时内又发生了六起与CCP病毒相关的死亡事件。同时，昆士兰州又记录了 7212 例新增CCP病毒感染病例。该州有 47,391 例活跃病例，513 人因感染该病毒而住院——其中15人在重症监护室。该州已经于近日宣布，将放宽密切接触者的隔离要求与规则。
+虽然西澳州的接种率一直在增加，但是西澳州的确诊病例却并没有减少。西澳大利亚州于过去的24小时记录了8777例新病例和5例新增死亡病例。目前该州有42613例活跃病例，258人住院，其中9人在重症监护室。
 
-*编辑：Gradient Boost*
+本周五（4月22日）麦高恩州长办公室证实州长的核酸检测PCR结果呈阳性，后来州长办公室透露麦高恩州长三个孩子中的一个因病重而入院。州长办公室的该份声明中写到：“**这位孩子已完全接种疫苗，但由于感染而病情严重。**孩子仍在医院接受治疗。在这个困难时期，麦高恩家庭要求就该事项予以保密。”
 
-*发稿：mgjxs*
+据悉，麦高恩州长有三个孩子——两个儿子和一个女儿。
 
-新闻参考链接：
+*发布：翼族*
 
-[9 News](https://www.9news.com.au/national/coronavirus-update-australia-covid19-numbers-infections-deaths-nsw-victoria-queensland/9e8f0384-615e-4f88-8f33-30da950f1aca)
+参考链接：[WA Premier Mark McGowan’s child admitted to hospital in serious condition with COVID-19](https://amp.abc.net.au/article/101008148)
 
-[谷歌统计信息](https://www.google.com/search?q=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E7%96%AB%E6%83%85%E6%AD%BB%E4%BA%A1%E4%BA%BA%E6%95%B0&amp;ei=_t9jYs7jJpeYseMPsNyl4Ao&amp;oq=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A+%E7%96%AB%E6%83%85%E6%AD%BB%E4%BA%A1&amp;gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQgAQQDDoHCAAQRxCwAzoKCAAQsQMQgwEQQzoECAAQQzoNCC4QsQMQgwEQ1AIQQzoNCC4QsQMQxwEQowIQQzoECC4QQzoHCC4QsQMQQzoFCAAQgAQ6CAgAEIAEELEDOgUILhCABDoLCC4QgAQQxwEQ0QM6CwguEIAEEMcBEK8BOgcIABCABBAKOhAILhCxAxCDARDHARCvARAKOgcIABCxAxAKOg0ILhCxAxCDARCxAxAKOgoILhCxAxDUAhAKOgcILhCxAxAKOgQIABAKOggIABCxAxCDAToECAAQHjoGCAAQChAeSgQIQRgASgQIRhgAUOEKWJhCYPhRaAFwAXgAgAHzA4gB80WSAQgyLTEuMTQuOJgBAKABAcgBCsABAQ&amp;sclient=gws-wiz)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,38 +2,24 @@
 ---
 
 
-## 对利率上升的担忧恶化，周五美国股市下跌2.8%
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2398391/)
+## SpaceX卫星轻松防御俄攻击 五角大厦：值得美军学习
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2398427/)
 
-撰稿：Gradient Boost
+素材：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-23-下午8.36.32.png)图片来源：互联网
+乌俄战争爆发后，SpaceX创始人马斯克（Elon Musk）迅速提供星链（Starlink）卫星权限给乌克兰，维持乌国网路畅通，且不费吹灰之力抵御俄罗斯的电磁攻击。对此，五角大厦电子战主任戴夫·特雷珀（Dave Tremper）感叹「从电子战技术专家的角度来看，这太棒了」。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/235.jpg)图片来自网络
-本周五，华尔街股市出现跳水，标普 500 指数创下近七周来最大单日跌幅，其原因在于投资者对利率飙升和美联储努力对抗通胀的担忧正在逐步加深。同时一些公司令人失望的利润报告也动摇了市场的主要支柱。
+综合外媒报导，自俄罗斯2014年侵占乌克兰领土克里米亚以来，俄罗斯军方在乌克兰的顿巴斯地区广泛使用电子战，使用电磁信号来发现乌克兰军队位置并破坏无人机等设备。
 
-标准普尔 500 指数下跌 2.8%，连续第三周下跌。道琼斯工业平均指数下跌 2.8%，创下 18 个月以来的最大跌幅，此前曾短暂下跌逾 1,000 点。纳斯达克指数也出现了近七周以来最糟糕的一天，收盘下跌 2.6%。人们对几十年来最高通胀、乌克兰战争和冠状病毒的担忧仍在蔓延。
+供应乌克兰卫星网路的SpaceX创始人马斯克，日前也曾表示，俄罗斯曾一度瘫痪Starlink星链卫星数小时，不过在为期两天的软件更新后，就已成功抵挡所有攻击。
 
-此前，美联储已经上调了一次关键隔夜利率，这是自 2018 年以来的首次上调，因为它寻求主动取消大流行期间持续的经济援助，它还准备采取其他措施对长期利率施加上行压力。
+对此，特雷珀指出，星链设备在威胁出现时能够快速更新软件的方式，是美国需要学习的能力。并在上周的《C4ISRNET》采访上表示，美国需要加强本身的电子战反应速度。
 
-通过提高企业和家庭的借贷成本，更高的利率意味着经济放缓，这有望阻止几代人以来最严重的通货膨胀。但它们同时却也可能引发经济衰退，同时给大多数类型的投资带来下行压力。
+原文链接：[SpaceX衛星輕鬆防禦俄攻擊 五角大廈：值得美軍學習](https://news.ltn.com.tw/news/world/breakingnews/3903365)
 
-Commonwealth Financial Network 投资管理主管布赖恩·普赖斯 (Brian Price) 表示：“经过多年的非常宽松，美联储已经明确表示，在可预见的未来，政策将会收紧……他们的强硬立场让投资者不得不暂停观望，因为许多人需要评估对未来利润率和（股票）倍数的影响。”
+* * *
 
-规模较小的公司股票也大幅下跌，罗素 2000 指数下跌 50.80 点，或 2.6%，达到 1,940.66。
-
-*编辑：Gradient Boost*
-
-*发稿：mgjxs*
-
-新闻参考链接：[AP News](https://apnews.com/article/business-japan-asia-financial-markets-prices-0575e0bba40355e305493d204ea54c40)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息****，****更多关注****
-**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
+*编辑&发布：长岛开心*
 
  
 

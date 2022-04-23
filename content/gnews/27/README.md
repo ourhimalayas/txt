@@ -2,34 +2,31 @@
 ---
 
 
-## 中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397415/)
+## 俄乌战争｜欧洲理事会主席呼吁俄军停火 联合国秘书长下周将会面俄乌总统
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2397512/)
 
-撰稿：东京樱花团/peterwong
+**港台前线 zhong｜2022-4-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-13.png)
+欧洲理事会主席米歇尔（Charles Michel）20日突访乌克兰外，曾与俄罗斯总统普京电话会谈90分钟，米歇尔呼吁俄停火。此外，他敦促俄乌双方领导人进行直接会谈，对此俄罗斯总统则表示双方直接会谈取决于停火协商的进展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04233.png)[图片来源](https://www.bullfrag.com/stripe-and-twitter-to-test-crypto-payments-feature-with-connect-and-usdc/)
+联合国方面，秘书长安东尼奥·古特雷斯（ Antonio Guterres）将于周二前往莫斯科与俄罗斯总统普京会面，周四前往乌克兰与总统泽连斯基、外交部长库莱巴（Dmytro Kuleba）会谈。
 
-4月22日，数字支付处理服务商Stripe 宣布将允许企业通过加密货币向其用户付款，Twitter将是第一家客户，这是数字金融公司对数字资产抱有热情的最新迹象。
 
-Stripe是一家金融服务和软件即服务（SaaS）公司，该公司主要为电子商务网站和移动应用程序提供支付处理软件和应用编程接口，目前市值950亿美元，
 
-Stripe表示，它将开始通过加密货币公司Circle发行的稳定币USDC，为商家提供以加密货币支付的能力。稳定币是与法定货币挂钩的代币，以维持稳定的价格。
+> Next week, I will meet with President Vladimir Putin in Russia and President Volodymyr Zelenskyy in Ukraine.
+> 
+> We need urgent steps to save lives, end the human suffering and bring about peace in Ukraine.
+> — António Guterres (@antonioguterres) [April 23, 2022](https://twitter.com/antonioguterres/status/1517687237525352449?ref_src=twsrc%5Etfw)
 
-在Stripe的技术支持下，Twitter将是第一家整合新支付方式的公司。从周五开始，这个社交媒体平台将让一定数量的创作者从其付费的Ticketed Spaces和Super Follows功能中获得USDC的收入。
 
-Stripe表示：“我们计划随着时间的推移增加对其他轨道和支付货币的支持。”
 
-这是自四年前放弃对比特币的支持以来，Stripe首次大幅推动加密货币的发展。Stripe于2018年1月停止接受比特币支付，理由是数字硬币因价格波动和日常交易效率低下。在去年11月，Stripe联合创始人约翰-科里森(John Collison)暗示，该公司可能很快再次提供加密货币支持。
+来源｜[NHK](https://www3.nhk.or.jp/nhkworld/en/news/20220423_12/)
 
-Stripe周五在一篇博文中说：“虽然加密货币的‘价值存储’方面通常受到最多关注，但我们认为‘开放的全球金融轨道’的前景至少同样引人注目。因此，我们一直在探索如何利用基于加密货币的平台来解锁更广泛的访问。”
+* * *
 
-Stripe不是唯一一家向数字货币开放其平台的数字金融公司，事实上，该公司可以说是姗姗来迟。维萨(Visa)、万事达(Mastercard)和贝宝(PayPal)以及其他主要支付处理商都已经宣布了自己在该领域的行动，当时数字货币还处于上涨的行情中。
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
-消息来源：[支付公司Stripe支持稳定币！从推特公司开始 创作者获得USDC收入](https://ca.fx168news.com/cryptocurrency/2204/5840916.shtml)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
