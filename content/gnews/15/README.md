@@ -2,45 +2,31 @@
 ---
 
 
-## 南澳取消密接隔离要求
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396176/)
+## 美国CDC数据：中共病毒是2021年第三大死因
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2396200/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-493.jpg)图片来自网络
-《News AU》近日报道，南澳大利亚州将在下周废除其新冠密切接触者隔离规则，使其限制与东部各州保持一致。
+编译：文斗
 
-州长彼得-马利奥斯卡斯周五晚上宣布，这些变化将于4月30日凌晨12点01分生效。
+根据美国疾病控制和预防中心4月22日公布的数据，COVID-19是2021年美国的第三大死因。
 
-这意味着感染病例的密切接触者将不再需要隔离7天。
+疾病控制中心数据显示，去年有41.5万人死于COVID-19；排在心脏病（69.3万人死亡）和癌症（60.5万人死亡）之后。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-202.jpg)
+疾病预防控制中心的数字依据是死亡证明数据。
 
-但他们离开家时需要戴上口罩，在七天内完成五次快速抗原测试，并被禁止进入医院和老年护理机构等高风险环境。
+中共病毒也是2020年的第三大死因，但在2021年造成的死亡人数比2020年多6万人。
 
-如果密切接触者出现症状，他们必须进行核酸检测，并在收到结果之前进行隔离。
+研究人员分析了这些数据，按年龄、性别、种族和民族将总体死亡和COVID-19死亡的数量和比率制成表格。
 
-检测结果呈阳性的人仍需隔离7天。
+COVID-19的死亡率在85岁及以上人群、非西班牙裔夏威夷原住民或其他太平洋岛民以及阿拉斯加原住民人群中最高。
 
-“尽管这对我们社区的许多人来说是一种解脱，但我们可以向其他人保证，这是以一种安全的方式进行的， “马利奥斯卡斯先生说。
+从2020年到2021年，美国的整体死亡率增加了0.7%。
 
-“这对全州的小企业主和工人来说将是一个很大的安慰。”
+周五，政府数据显示，自疫情开始以来，生活在英国的每10人中有超过7人–3850万人–感染了COVID-19。
 
-马利奥斯卡斯先生说，那些在截止日期前任何时候被认为是密切接触者的人仍然需要隔离，但在下周五规则改变后就可以离开。
+约翰-霍普金斯大学的追踪器显示，截至4月23日，全世界至少有621万人死于中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-173.jpg)
+新闻来源：[https://www.upi.com/Top\_News/US/2022/04/22/cdc-data-covid-19-third-leading-cause-of-death/7591650657064/](https://www.upi.com/Top_News/US/2022/04/22/cdc-data-covid-19-third-leading-cause-of-death/7591650657064/)
 
-他们还需要提供一份阴性结果的自测盒。
-
-首席公共卫生官员尼古拉-斯普雷尔敦促密切接触者在可能的情况下在家工作，并在离开家和在其他人身边时尽量小心谨慎。
-
-“当你不必被隔离时，你需要非常注意你可能会发生感染，”她说。
-
-本周早些时候，新南威尔士州、维多利亚州和昆士兰州都取消了他们的密切接触规则。
-
-参考链接：
-
-[https://www.news.com.au/lifestyle/health/south-australia-removes-close-contact-isolation-requirement/news-story/462be08b44274065cf6b652460552bdf](https://www.news.com.au/lifestyle/health/south-australia-removes-close-contact-isolation-requirement/news-story/462be08b44274065cf6b652460552bdf)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
