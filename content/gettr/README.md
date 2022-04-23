@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 10:50 PM (UTC)`
+
+【Ukraine Rescue】 04/22/2022 The suspected spy of the Chinese Communist Party cut the billboard wire of our New Federal State of China in the United Nations Migration Agency tent.<br/><br/>【乌克兰救援】 04/22/2022 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
+![img](https://media.gettr.com/group11/getter/2022/04/23/22/de22b283-a6e2-0417-8e03-5bcdf39cba00/out.jpg)
+
+---
+
 `@miles 4/23/2022 10:32 PM (UTC)`
 
 4/23/2022 Miles Guo: According to our fellow fighters from mainland China, the daily positive cases in Beijing are at least tens of thousands, and the CCP has well prepared for imposing a massive lockdown and control in Beijing; Miles Guo reminded us again that all positive cases are actually the COVID vaccine reactions, and the vaccine disaster created by the CCP is on its way.<br/><br/>4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临<br/>
@@ -146,13 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 【Ukraine Rescue】 04/20/2022 Tibetan Lama says in front of the big tent of the NFSC & ROLF Ukraine Rescue: Don't have hatred against the Chinese people. The only one who makes the problem is the CCP. They always tells lies to the world, they take away the freedom of the people, and they conduct genocide and destroy the nature. And recently, they destroyed many big statues of Tibet. The Chinese government buys everything. If they continue to do bad things, they will suffer and pay.<br/><br/>【乌克兰救援】 04/20/2022 西藏喇嘛在新中国联邦和法治基金乌克兰救援大帐篷前说：不要恨中国人，唯一要恨的是中国共产党，他们总是向世界撒弥天大谎、剥夺人民的自​​由、种族灭绝、破坏自然。最近，他们毁坏了许多西藏大佛像。中共国政府收买一切。如果他们继续作恶多端，他们就会万劫不复。<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/23/10/baddfdb4-9788-d938-81cc-9f8c97d81566/out.jpg)
-
----
-
-`@miles 4/23/2022 8:09 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group4/origin/2022/04/23/07/fd8f7628-75ec-95b4-04e9-6adeacb9dda6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,54 +2,30 @@
 ---
 
 
-## 最新报告显示，疫苗接种后出现史无前例的运动员晕倒和死亡案例
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2400831/)
+## 上海新冠病毒隔离营中绝望的野营床
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2400832/)
 
-作者：纽约香草山农场 – 四季
+#### 编译 意大利达芬奇农场 小白鸽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+在中国上海的这个新冠病毒检疫设施中，人们躺在一排排相隔不到一臂之距的野营床上……他们的手提箱和其他个人物品散落在他们旁边。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-23-alle-22.22.46.png)图片来源：eventiavversinews.it
+数百名新冠病毒检测呈阳性的人聚集在该设施中，由于中国以令人难以置信的社会经济成本推行的荒谬的清零政策，这只是该市数十个被改建为检疫中心的地方之一。
 
+医疗保健专业人员试图阻止人们自杀，被拍摄成为头条新闻。
 
+中国强迫无辜公民生活在屈辱的条件下。他们必须以牺牲市场经济为代价，让刚刚开始摆脱贫困的人们屈服，他们必须产生一种无能为力的感觉而且缺乏自由感。
 
+人类巧妙地制造危机。上海居民饿死，仓库里的粮食腐烂，商业被摧毁。物资无法运送到被迫关闭的商店和市场。
 
+疫情清零是一项失败、疯狂和残酷的政策。
 
-据[The Expose](https://gnews.org/wp-admin/post.php?post=2393749&amp;action=edit&amp;lang=zh-hans) 4月20日报道，由调查员、新闻编辑、记者和”真相寻求者”组成的”Good Sciencing”团队的一份最新报告显示，从2021年3月到2022年3月，在接种中共病毒疫苗后，有超过769名运动员在比赛中在球场上晕倒，同时，报告详细介绍了890例心脏骤停和其他严重问题，包括579例死亡。
+文贵先生在4月份的大直播中透露：习近平让中国人没电、没水、没冰箱、没吃品的目的是测试老百姓在极限战争情况下的反应，中共甚至不惜将其15万亿的美元GDP降至5万亿；中共最终要制造经济灾难从而干掉美国。清零政策达到了非常重要的目的：整个经济要闭关锁国、增加社会承受能力。由此可见：中共不灭，灾难不断。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-149.png)
+参考链接：
 
-所有国际足联男性职业足球/足球运动员在比赛、训练中因心血管疾病死亡的情况
+[https://www.eventiavversinews.it/lettini-da-campo-disperazione-e-pane-semplice-nei-campi-di-quarantena-covid-di-shanghai/](https://www.eventiavversinews.it/lettini-da-campo-disperazione-e-pane-semplice-nei-campi-di-quarantena-covid-di-shanghai/)
 
-同时，由”The Exposé”所做的调查发现，2021年，国际足联职业足球/足球运动员的死亡率是2009年至2020年期间所记录的平均死亡率的4倍，仅2021年12月发生的死亡人数就与过去12年的年平均数相当。
-
-广泛的研究表明，职业足球/足球运动员因心血管问题而死亡的人数每三个月翻一番。2021年因心血管问题而死亡的人数是2020年的15倍以上。
-
-随着这样的案例变得无法忽视，诸多媒体也就此进行了报道。英国足球传奇人物、体育评论员马特·勒蒂塞尔（Matt Le Tissier）表示，去年，不仅是足球运动员，甚至一般的体育人员，网球运动员、板球运动员、篮球运动员都倒在了运动场上，这简直令人难以置信。
-
-美国新闻网（OAN）披露，心脏骤停的运动员的平均年龄只有23岁；澳大利亚的一家主流媒体体育频道也猜测，这些健康问题可能与中共病毒疫苗接种有关；2022年4月初，由于有15名球员退出了比赛，迈阿密公开赛成为头条新闻，据报道这些退赛的运动员都接受了中共病毒疫苗接种。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑、上传: Xiao baige
 
  
 

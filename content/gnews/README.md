@@ -15,77 +15,77 @@
 
 ---
 
-### [哪些国家在 2021 年获得了最多的加密货币收益？](/content/gnews/1/README.md)
+### [2022年4月23日七哥临时直播摘要及音频—银河系农场](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [哪些国家在 2021 年获得了最多的加密货币收益？](/content/gnews/2/README.md)
  ` 纽约香草山MOS02`
 
-### [安省劳工仲裁员为企业解雇未打疫苗员工开绿灯](/content/gnews/2/README.md)
+### [安省劳工仲裁员为企业解雇未打疫苗员工开绿灯](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [大卡车运动期间，大部分对渥太华警方的投诉被驳回](/content/gnews/3/README.md)
+### [大卡车运动期间，大部分对渥太华警方的投诉被驳回](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [摔落的共军战机为何有外国飞行员？](/content/gnews/4/README.md)
+### [摔落的共军战机为何有外国飞行员？](/content/gnews/5/README.md)
  ` 蓝莲花农场`
 
-### [上海新冠病毒隔离营中绝望的野营床](/content/gnews/5/README.md)
+### [上海新冠病毒隔离营中绝望的野营床](/content/gnews/6/README.md)
  ` xiaobaige`
 
-### [最新报告显示，疫苗接种后出现史无前例的运动员晕倒和死亡案例](/content/gnews/6/README.md)
+### [最新报告显示，疫苗接种后出现史无前例的运动员晕倒和死亡案例](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [G20加拿大和盟友抵制俄罗斯](/content/gnews/7/README.md)
+### [G20加拿大和盟友抵制俄罗斯](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [调查显示加拿大保守派人士更加反对政府监控](/content/gnews/8/README.md)
+### [调查显示加拿大保守派人士更加反对政府监控](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/9/README.md)
+### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/04/23 文贵先生盖特精要](/content/gnews/10/README.md)
+### [2022/04/23 文贵先生盖特精要](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国外长和防长将于周日到访基辅](/content/gnews/11/README.md)
+### [美国外长和防长将于周日到访基辅](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号](/content/gnews/12/README.md)
+### [4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/13/README.md)
+### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/14/README.md)
+### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/15/README.md)
+### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/16/README.md)
  ` MOS香港部`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/16/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.23 俄乌战事汇总](/content/gnews/17/README.md)
+### [截至4.23 俄乌战事汇总](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/18/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](/content/gnews/19/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/20/README.md)
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/21/README.md)
+### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海即将解封 之后将进行政治清算](/content/gnews/22/README.md)
+### [上海即将解封 之后将进行政治清算](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/23/README.md)
+### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [习近平为何决心打台湾](/content/gnews/24/README.md)
- ` 焦點20分`
 
 ### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`

@@ -2,80 +2,61 @@
 ---
 
 
-## 哪些国家在 2021 年获得了最多的加密货币收益？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2400909/)
+## 2022年4月23日七哥临时直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2401044/)
 
-翻译：香草山商业部——文锤
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220423_副本.png)
+视频连接：[2022年4月23日 七哥乱聊](https://gettr.com/streaming/p16qngm5663)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+1 、北京真正的感染情况是，每天至少一万到两万；
 
+2、现在在北京，过去两周内，已经进驻的部队有6万多人。而且是“驻扎式的进入”；
 
+3 、现在所谓的“阳性”，几乎全部是疫苗导致的；
 
+4、国内战友，冒着生命的危险和代价，一次次的送出消息；
 
+5、共产党非常清楚，这次上海，北京，就是疫苗灾难的最早期阶段、上海还会有N次隔离！
 
-分析公司 Chainalysis 最近发表的一项研究告诉我们，2021 年哪些国家在加密货币方面的收益最大。谁是最好的投资者，谁是最差的学生？
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-51.jpg)图片来源于网络
-**加密货币收益最多的国家**
+6、上海，广州，苏州，杭州，深圳，北京，武汉，郑州，大连，青岛，会有无数次隔离。理由是，这些城市的疫苗普及率太高，洋疫苗打得也太多；
 
-Chainalysis 澄清说，使用的方法并非完美无缺，但它是按国家/地区全面了解加密货币收益的好方法。首先，我们注意到 2021 年对投资者来说大多是积极的：在全球范围内，他们赚了 1627 亿美元。与 2020 年相比，这是一个明显的进步，当时他们“仅”产生了 325 亿美元。
+7、这是一次全国性的所谓压力测试，这叫 新时代的国家管理模式，  网络控制，防火墙，建立供销社，建立粮食通道，垄断网上交易，关闭支付宝，彻底控制微信；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-68.png)图 1：按国家/地区划分的收益分布
-图片来源于网络
+8、建议战友能不动就别动。但要保证有网络，水，药，粮食，能源；
 
-如果我们按国家/地区查看细分，我们还看到来自美国的投资者获得的收益最多：
+9、估计北京会隔离1-2个月，不会太长，但是解封后还会再隔离，反反复复搞几次；
 
-他们与英国和德国一起进入前三名。法国排名第八，收益估计超过 40 亿美元。
+10、 所有银行都是共产党控制，会限制额度，限制取现。特别是企业的大额交易都不允许；
 
-**一定的异质性**
+11、美国所有的问题将集中在中期大选期间，政治上会有一系列大行动；
 
-Chainalysis 指出，如果排名前列包括大笔储蓄，那么其他人正在争夺一个令人羡慕的位置：
+12、习近平相信莫德尔周期，会趁美国混乱 拿下台湾，拿下亚洲，推广人民币和金砖国的金融系统，把上合组织推广为替代美国的组织；
 
-“ 就像去年一样，我们看到许多国家的集体加密货币投资表现似乎优于传统的经济繁荣指标。 ”
+13、4月26日，南希佩罗西能否顺利访台，现在来看，不一定。
 
-土耳其、越南和捷克共和国等国家的 GDP 相对较小，但其加密货币收益却使它们位居榜首。例如，我们注意到，土耳其投资者在 2021 年的收益超过了法国投资者。
+**注：大直播音频——**
 
-一个很大的变化来自中国，排名第四。该国在 2021 年禁止在其领土上进行加密货币开采，从而引发了一场地震。根据 Chainalysis 的说法，我们看到了对投资的影响。自 2020 年以来，加密货币投资者的收益确实“仅”增长了 194%，而美国为 476%，英国为 431%，德国为 423%。
+编辑整理：柚子；
 
-**哪些加密货币为投资者提供了最大的收益？**
+发布：黎明之前；
 
-今年的另一个变化：以太（ETH） 的收益首次超过比特币（BTC）。投资者从以太坊筹集了 763 亿美元，而比特币则为 747 亿美元。根据 Chainalysis 的说法，原因可以在去中心化金融方面找到：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“ 我们认为，这反映了对以太坊的需求不断增长，这得益于 2021 年 DeFi 的突破，大多数 DeFi 协议都建立在以太坊区块链上。 ”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-27.png)图 2：加密货币的收益分配
-图片来源于网络
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-但是，也有一些例外……包括日本。该国对 BTC 表现出明显的偏好，BTC为其投资者筹集了近 40 亿美元，而 ETH 为 7.9 亿美元。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-该报告最后解释说，这些数据显示了该行业持续巩固的迹象：
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-“ 数据不仅表明加密资产价格正在上涨，而且表明加密货币仍然是新兴市场用户的经济机会来源。 ”
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**文章来源：[Quels sont les pays ayant réalisé le plus de gains en cryptomonnaies en 2021 ? (cryptoast.fr)](https://cryptoast.fr/pays-realise-gains-cryptomonnaies-2021/)**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
