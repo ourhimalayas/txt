@@ -2,78 +2,72 @@
 ---
 
 
-## 观察：普京急于把习近平彻底拉下水
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2396561/)
+## 深圳志愿者以口头通知为借口通知不打疫苗者不得做核酸
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2396643/)
 
-#### 加拿大多伦多蓝莲花农场 丁过
-![普京最新视频曝光抓桌子抽脚疲惫疑坐实癌症传闻- 时刻新闻](https://pbs.twimg.com/ext_tw_video_thumb/1517046401141719040/pu/img/YZHWK7kdOLQ2_iam.jpg)参考：News Time
-最近普京抛出乌克兰去军事化、去纳粹化的停战条件，不仅要求的条件越来越少，而且明确表态不寻求更替乌克兰现政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/深圳副本.png)
+据[**500 ****𝕸𝖎𝖑𝖊𝖘**](https://twitter.com/SafeGuard009)[@SafeGuard009](https://twitter.com/SafeGuard009)于[12:07 PM · Apr 23, 2022](https://twitter.com/SafeGuard009/status/1517716649482547201)发布的推文——
 
-4月19日发生了很多耐人寻味的事情。
+深圳某社区人员要求打第三针才能做核酸。视频拍摄者问过卫健委没有这样的规定 社区人员说只是接到了街道办的通知，但是拿不出文件 [#深圳强制接种](https://twitter.com/hashtag/%E6%B7%B1%E5%9C%B3%E5%BC%BA%E5%88%B6%E6%8E%A5%E7%A7%8D?src=hashtag_click)
 
-乌克兰外长库列巴4月19日表示，俄乌战争结果在战场上决定，而不是在谈判桌上，同一天，乌克兰总统办公室主任、乌方谈判代表波多利亚克宣布，与俄罗斯的和平谈判已冻结；
 
-4月19日，美国总统拜登与英国首相约翰逊、加拿大总理特鲁多等领导人举行视频会议，商讨如何应对俄乌战争。当天，美国官员称，我们正在以“前所未有”的速度向乌克兰运送武器；
 
-4月19日，俄罗斯毫不示弱，俄副总理尤里·鲍里索夫声称，俄罗斯有包括精确制导武器在内的足够武器库存。
+> 深圳某社区人员要求打第三针才能做核酸。视频拍摄者问过卫健委没有这样的规定
+> 
+> 社区人员说只是接到了街道办的通知，但是拿不出文件[#深圳强制接种](https://twitter.com/hashtag/%E6%B7%B1%E5%9C%B3%E5%BC%BA%E5%88%B6%E6%8E%A5%E7%A7%8D?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pxyxqnt5gw](https://t.co/pxyxqnt5gw)
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [April 23, 2022](https://twitter.com/SafeGuard009/status/1517716649482547201?ref_src=twsrc%5Etfw)
 
-也就是说，不管是乌克兰、俄罗斯还是西方，都完全不相信俄乌之间有和平谈判。
 
-实际上俄乌谈判从未停止，但达成和议的可能性越来越小：
 
-俄罗斯谈判团长梅丁斯基22日表示，经过多轮马拉松式的“讨论”，谈判毫无进展，当天俄外长拉夫罗夫也向外界传达了悲观态度。
+视频概要——
 
-普京则在21日电话中向欧洲理事会主席查尔斯·米歇尔“诉苦”：基辅还没有准备好接受我们的方案。
+**社区居民：**你是长源社区的对不对？姓杨对吧？
 
-表明普京在找台阶退出乌克兰，但泽伦斯基并不配合：俄罗斯称已向乌克兰提交了新的书面和谈提案，但乌克兰总统泽伦斯基表示，他既没有看到也没有听说过，why？
-![和普丁見面要談什麼？《經濟學人》專訪烏克蘭總統澤倫斯基｜天下雜誌](https://storage.googleapis.com/www-cw-com-tw/article/202203/article-6242b77c6228d.jpg)参考：Viewing
-简单举个例子，摆一下理：
+**红马甲：**对，是的。
 
-一个大流氓冲进邻居家肆意开火、奸杀、掳掠，遭到反击并引发众邻斥责围殴后，流氓见势不妙要一走了之，可以吗？当然不可以。
+**社区居民：**我打电话给卫健委，他说深圳市和社区桃园街道没有任何的文件，下发说没打全疫苗或者没有打疫苗的人不可以在社区做核酸，没有这个文件，没有这个规定。你现在是代表你个人，还是代表社区来讲这个话？
 
-虽然俄乌谈判细节不对外透露，但谈判焦点无非是克里米亚的主权归属、顿巴斯地区“自治”（注意，顿巴斯地区有极其丰富的油气和煤炭资源）、战争赔偿金额、谁是战犯如何处置等，都是难以谈拢的大问题。
+**红马甲：**我是接到了街道办的通知，你有意见你可以向上面提。
 
-其中的战争赔偿，据路透社22日报道，乌克兰总统泽伦斯斯21日表示，乌克兰已经有50万无辜平民死于战争。而在约一个月前，乌克兰政府就主张俄罗斯赔偿4000亿美元，时至今日，乌克兰的损失已经倍增甚至更多，普京能坐下来和泽伦斯基商议赔偿吗？
+**社区居民：**麻烦你把通知拿出来给我看。
 
-显然，只要普京还掌控俄罗斯，就不会有和谈，战场决斗是产生结果的唯一方式。
+**红马甲：**我们也是接到通知而已。
 
-因此，普京急于得到中共的公开支持和全面军援。
+**社区居民：**把通知拿出来。
 
-表面上俄罗斯卫星通讯社（Sputnik）是俄罗斯联邦政府下辖的新闻机构，实际是普京的喉舌。该通讯社周五报道，美国白宫副国安顾问辛格（Daleep Singh）周四表示，有证据显示，中共国正在透过多种管道军援俄罗斯。
+**红马甲：**没有文件。
 
-迫于压力，中共军援俄罗斯一直是偷偷摸摸进行的，这样的军援无法满足俄罗斯巨大的战争需要。
+**社区居民：**没有文件你就在撒谎，你就在替政府撒谎。
 
-俄罗斯卫星通讯社故意曝光中共的军援，最大的可能是，普京对习近平军援力度不足表达不满，普京急于把军援公开化，彻底把习近平拉下水。
+**红马甲：**我们整个桃园街道办都是这样子。
 
-缘于俄军在乌东仍然被动挨打，而且普京急于实现“第二阶段军事行动”目标：
+**社区居民：**你在替政府撒谎！
 
-普京另一喉舌俄新社22日报道，俄罗斯中部军区副司令鲁斯塔姆·明内卡耶夫21日称，俄罗斯军队计划全面占领乌克兰东部和南部的数百英里沿海地带，和俄罗斯占领的摩尔多瓦一个地区连成一片，建立向西陆地走廊，说明俄罗斯的侵略不会止步于乌克兰。
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
-随即乌克兰国防部证实了该消息，痛斥普京终于撕下伪面具，承认“第二阶段军事行动”的目标不是战胜他虚构出来的乌克兰“纳粹”，而是实现侵吞乌克兰领土的野心。
-![中共外强中干习近平最大的恐惧是什么？(图) - 亡党- 评析- -看中国网- (移动版)](https://img3.secretchina.com/pic/2021/7-3/p2964831a55673568-ss.jpg)参考：China Insights
-习近平和普京在冬奥期间签署了“无上限、无止境”的结盟协议，即便俄军出乎普京意外陷入困境，中俄关系还未出现松动，个中缘由且听前白宫高官深度解读：
+深圳市的同胞们请一定坚持住，在基层红马甲拿不出具体文件的情况下，用所谓的志愿者用另外的形式强推疫苗。话再说回来，即使基层红马甲拿出所谓的具体文件，也不足以做出擅自接种疫苗的决定，因为中共疫苗是杀人武器，所以不管基层政府敢不敢出具红头文件，深圳的同胞和所有未打疫苗的其他地区的同胞们都要保护好自己和家人，这是我们必须要做的事情。
 
-前白宫国安会亚洲事务主任埃文·梅代罗斯（Evan Medeiros）认为，习近平有一条真正的底线：防止普京失去权力。
+撰稿：喜马拉雅的肉夹馍；
 
-原因很简单，习近平一直将普京作为对抗西方的盟友，在普京身上下了太大的赌注，已经退不出输不起了。
+审核：喜马拉雅的馍夹肉；
 
-梅代罗斯进一步解析：普京下台对习近平而言不是小风险而是大风险，是对中共和习近平的生存威胁，因此习近平正在拉拢金砖国家共同支持俄罗斯，所以，西方将不可避免地迎来日益紧密的中俄同盟挑战。
+校对：Maarago；
 
-新中国联邦创始人郭文贵先生在最近的直播中陆续指出，中共在中东打击石油美元，收买金砖国家抛弃美元，是对美国发起金融超限战。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-据引力波战友近日报道，中共利用海运集装箱的垄断优势，制造供应链市场乱象，宁可空载返航也拒绝装运美国出口商品和货物。另外，习近平对几亿人连续进行“清零封锁”，对全球产业供应链造成了巨大冲击，是对西方发起经济超限战。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-可以预见，习近平将很快公开和普京联手全面对抗西方，但可以肯定的是，中俄邪恶同盟由于失道寡助、军事技术全面落后、没有有效市场的持续支撑，将难逃一败涂地、灰飞烟灭的结局！
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-参考：
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔剑灭红虫](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-[Russian negotiator confirms ‘several long conversations’ took place with Ukrainian side](https://www.reuters.com/world/europe/russian-negotiator-confirms-several-long-conversations-took-place-with-ukrainian-2022-04-22/)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[中國軍援俄羅斯？ 白宮官員：證據顯示共軍正幫助俄軍](https://news.ltn.com.tw/news/world/breakingnews/3901973)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[美国前国安高官：这才是习近平的底线](https://www.iask.ca/news/170993)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[不要跟中共谈判：从集装箱逆差看中美贸易协议的荒谬](https://himoney.press/the-absurdity-of-the-u-s-china-trade-deal-in-terms-of-the-container-deficit/)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,31 +2,40 @@
 ---
 
 
-## 台海战争一触即发，上海和香港将成台湾反击目标
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2396900/)
+## 战争中的家庭悲剧-父亲因买面包而死
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2396962/)
 
-**整理/编辑：小红帽**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_from_2022-04-23_14-32-55.png)图片来源：郭文贵先生4月22日盖文视频
+作者：纽约香草山农场教育部—马克文、朱丽叶
 
 
-2022年4月22日，郭文贵先生在盖特小视频中爆料，台海战争一触即发。中共这次很认真地想要攻打或封锁台湾。上海和香港一定会成为台湾反击的目标，福建将成为第一个受害者。大连、青岛的军事基地也将十分危险。
 
-郭先生介绍，美国国会众议院议长南希·佩洛西（Nancy Pelosi）将于4月26日访问台湾，这在5月6日前是个大事。因为佩洛西可能由于台湾降落不了，就直接降落到日本去了。听说中共这回很认真，想干点大事，那就是攻打台湾或者封锁台湾。一旦中共这样做，福建，上海，香港就完了。台湾反击一定要打上海，打香港，而且这些地方一定会断水断电。福建就更别提了，第一个受害的就是福建。像大连，青岛这些军事基地，肯定是最危险的。
 
-郭先生感叹，这个世代，这个世界，简直不敢想象。俄乌战争，台湾战争一触即发。冠状病毒肆虐世界。疫苗灾难，还没到5月份，到处是癌症。癌症爆发，各种疾病，什么胰腺癌，淋巴癌，各种免疫功能的癌症，在全世界各地的年轻人群中，直线上升。然后经济，各个股市，债券市场，忽上忽下。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-4.png)
+亚娜·巴切克（Yana Bachek），一名英文老师，居住在乌克兰哈尔科夫。当俄军炮击开始时，她正准备线上课程。亚娜·巴切克立刻接到了她母亲用颤抖的声音打来电话，说她父亲出去买面包了，还没回来。亚娜·巴切克马上想冲出去，被她的搭档阻止。她立即给父亲打电话，没人接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/b35c5158fc06aca8.jpg)[图源网络](https://www.reuters.com/world/europe/picture-its-story-daughters-shock-trip-buy-bread-ends-her-fathers-life-2022-04-21/)
+跟随救护车赶到现场的摄影记者捕捉到亚娜·巴切克站在她父亲尸体旁痛苦的表情以及她母亲的哀嚎。亚娜·巴切克的父亲，一位79岁的车队经理，因为出门买面包被俄军炮弹炸死。
 
-所谓亲共产主义和共产主义的迷恋者，试图要征服世界。自由主义，民主主义正在跟共产主义进行殊死的较量。人类从来没有像今天这样过。郭先生坚信，今天的世界是混乱的，混沌的，当然也充满了机会；充满了前所未有的，人类追求真理的，也就是我们正道主义的，一个最好的机会。                      
+俄罗斯否认在俄乌战争中以平民为目标，并否认乌克兰所说的暴行证据，称乌克兰蓄意破坏和平谈判。随着基辅附近布查的大屠杀和港口城市马里乌波尔的破坏，对哈尔科夫等城市的不分青红皂白的炮击已成为克里姆林宫所谓的在乌克兰的“特殊军事行动”的象征。
 
-资料来源：[郭文贵先生4月22日盖文](https://gettr.com/post/p16o5kyca70)
+自从俄罗斯入侵乌克兰以后，哈尔科夫几乎每天都受到轰炸。她的父亲是当天被炸至死的人员之一，在战争中，死后也不能正常埋葬。那个沾满了父亲鲜血的面包放在门口走廊的桌上，每次她走到门口时，都会暂短的触摸一下，因为它是父亲手中最后的一件东西。
 
-发布： 文武全才
+参考来源：
+[A picture and its story: A daughter’s shock as a trip to buy bread ends her father’s life](https://www.reuters.com/world/europe/picture-its-story-daughters-shock-trip-buy-bread-ends-her-fathers-life-2022-04-21/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-17.jpg)
+
+编辑/校对/发稿：兰兰
+
+更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-new-4.png)
+
 
 
 
