@@ -2,31 +2,28 @@
 ---
 
 
-## 美国犹太组织JDC的义工祝愿新中国联邦早日灭共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2396965/)
+## 中日财经爆┃乌克兰央行禁止法币购买比特币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397122/)
 
-#### 整理/编辑：小红帽
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月22日，乌克兰国家银行宣布禁止使用格里夫尼亚(乌克兰货币)购买比特币，并将每月使用外币购买比特币的上限定为3300美元。该央行表示，这些措施对于防止资本外流和减轻外汇储备压力是必要的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃乌克兰央行禁止法币购买比特币.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwzimg.fx994.com%2Ftest%2Fguoji%2F2021-07-12%2F637616948778214267%2FART637616948778214267_258118.jpg_bitdefault&amp;imgrefurl=https%3A%2F%2Fwww.wikibit.uk%2F202107124954483115.html&amp;tbnid=9QJdrQ8jLqGILM&amp;vet=12ahUKEwi5sJrO3qn3AhXRxoUKHf_bDnMQMygEegUIARCxAQ..i&amp;docid=ep6WlIW_OK1QGM&amp;w=990&amp;h=556&amp;itg=1&amp;q=%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%BD%E5%AE%B6%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwi5sJrO3qn3AhXRxoUKHf_bDnMQMygEegUIARCxAQ)
+乌克兰国家银行并不是乌克兰第一家禁止比特币购买的机构。今年3月，该国最大的商业银行PirvatBank停止客户使用乌克兰货币购买比特币。此举正值俄罗斯入侵乌克兰，破坏了双方经济之际。本月早些时候，世界银行估计乌克兰的国内生产总值今年将下降45%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-85.png)图片来源：郭文贵先生4月22日盖文视频
+在乌克兰提出新的加密货币限制之前，该国通过数字代币获得了大量捐赠款项。为了支持其与俄罗斯间的对抗，乌克兰通过加密货币捐款筹集资金，3月份设定的目标是2亿美元，目前已经获得了近6700万美元。
 
+消息来源:
+[【比特日报】币安陷俄监管风暴！比特币跌破4万大关 乌克兰突宣布：限买加密货币防资本外逃](https://ca.fx168news.com/cryptocurrency/2204/5841551.shtml)
 
-2022年4月21日，在波兰梅迪卡难民救援中心，美国犹太组织JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务并祝愿新中国联邦早日灭共。
-
-来自犹太分发委员会（JDC），名叫Derick的波兰义工告诉法治基金和新中国联邦的义工妮可，他们非常感谢法治基金的乌克兰救援行动和义工们的帮忙。Derick多次跟新中国联邦的义工一起工作并且感到非常愉快。他不停地称赞法治基金和新中国联邦的义工们非常棒。
-
-Derick说，他已经带了好几批难民到法治基金的大帐篷。他知道法治基金的义工是来自新中国联邦的新中国人。他也认识法治基金和新中国联邦的标志，认识法治基金帐篷里面的义工们。对于义工的周到服务，他觉得非常高兴和感激。
-
-最后，Derick祝愿中国共产党很快被消灭。妮可也表示，对灭共的目标充满了信心。
-
-资料来源：[郭文贵先生4月22日盖文](https://gettr.com/post/p16lqcx1b36)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

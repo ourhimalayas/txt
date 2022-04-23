@@ -15,92 +15,92 @@
 
 ---
 
-### [视频|郭文贵先生灭共谋略之“反间计”](/content/gnews/1/README.md)
+### [美国高官访问所罗门群岛 如果成为中共国的军事据点则采取“相应的应对”（下）](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中日财经爆┃日元贬值创20年新低 日央行仍坚持宽松政策](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频|上海疫情](/content/gnews/3/README.md)
  ` 爆料视频`
 
-### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(四)](/content/gnews/2/README.md)
+### [美国高官访问所罗门群岛 如果成为中共国的军事据点则采取“相应的应对”（上）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花时政┃习近平总加速师全票当选中共广西壮族自治区二十大代表](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022/04/18 墙内世界](/content/gnews/3/README.md)
+### [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（2/4）](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频|郭文贵先生灭共谋略之“反间计”](/content/gnews/7/README.md)
+ ` 爆料视频`
+
+### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(四)](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022/04/18 墙内世界](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆┃币安深度卷入俄罗斯国家交易](/content/gnews/4/README.md)
+### [中日财经爆┃币安深度卷入俄罗斯国家交易](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃乌克兰央行禁止法币购买比特币](/content/gnews/5/README.md)
+### [中日财经爆┃乌克兰央行禁止法币购买比特币](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [预期俄在乌动用核武 芬兰加入北约辩论激烈](/content/gnews/6/README.md)
+### [预期俄在乌动用核武 芬兰加入北约辩论激烈](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（1/4）](/content/gnews/7/README.md)
+### [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（1/4）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜上海母亲带孩子求医4天无果 整夜苦等后怒吼](/content/gnews/8/README.md)
+### [有声｜上海母亲带孩子求医4天无果 整夜苦等后怒吼](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国警告中共：如以任何方式帮助俄罗斯 将会面临严重后果](/content/gnews/9/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [昆士兰解除密切接触者及未接种疫苗旅客的隔离规定](/content/gnews/10/README.md)
+### [昆士兰解除密切接触者及未接种疫苗旅客的隔离规定](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国犹太组织JDC的义工祝愿新中国联邦早日灭共](/content/gnews/11/README.md)
+### [美国犹太组织JDC的义工祝愿新中国联邦早日灭共](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [战争中的家庭悲剧-父亲因买面包而死](/content/gnews/12/README.md)
- ` 历史组`
-
-### [随着原始Omicron的消失 这些是BA.2次变种的主要区别](/content/gnews/13/README.md)
+### [随着原始Omicron的消失 这些是BA.2次变种的主要区别](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [联合国秘书长与普京26日会面 为实现和平访问莫斯科](/content/gnews/14/README.md)
+### [联合国秘书长与普京26日会面 为实现和平访问莫斯科](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [一女子在 20 天内两次感染新冠病毒 创下新纪录](/content/gnews/15/README.md)
+### [一女子在 20 天内两次感染新冠病毒 创下新纪录](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台海战争一触即发，上海和香港将成台湾反击目标](/content/gnews/16/README.md)
+### [台海战争一触即发，上海和香港将成台湾反击目标](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [文贵视角:419事件是新中国联邦女权运动的开始](/content/gnews/17/README.md)
+### [文贵视角:419事件是新中国联邦女权运动的开始](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [一家钢铁厂变成马里乌波尔最后的堡垒和据点](/content/gnews/18/README.md)
+### [一家钢铁厂变成马里乌波尔最后的堡垒和据点](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美联储大幅加息箭在弦上 美元反弹或近“临界点”](/content/gnews/19/README.md)
+### [美联储大幅加息箭在弦上 美元反弹或近“临界点”](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾部署射程1200公里巡航导弹 范围覆盖上海，加强对中共国威慑(下)](/content/gnews/20/README.md)
+### [台湾部署射程1200公里巡航导弹 范围覆盖上海，加强对中共国威慑(下)](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泽连斯基：世界必须为俄罗斯使用战术核武器攻击乌克兰做好准备](/content/gnews/21/README.md)
+### [泽连斯基：世界必须为俄罗斯使用战术核武器攻击乌克兰做好准备](/content/gnews/25/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [有声｜股票债券汇率集体暴跌 中共国市场陷入痛苦期](/content/gnews/22/README.md)
+### [有声｜股票债券汇率集体暴跌 中共国市场陷入痛苦期](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾部署射程1200公里巡航导弹 范围覆盖上海，加强对中共国威慑(上)](/content/gnews/23/README.md)
+### [台湾部署射程1200公里巡航导弹 范围覆盖上海，加强对中共国威慑(上)](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [亚裔美国人正脱离民主党 而且可能永远不回头](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/25/README.md)
+### [视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/28/README.md)
  ` MOSVIDEO`
 
-### [视频|2022年3月国际社会对中共的打击制裁汇总](/content/gnews/26/README.md)
- ` MOSVIDEO`
-
-### [视频|多国财长和央行行长在俄罗斯发言时退出 G20 会议](/content/gnews/27/README.md)
- ` MOSVIDEO`
-
-### [【G时新闻】美众议院议长佩洛西访台或许只能降落日本 中共国内大量资金外逃激化两阵营搏斗](/content/gnews/28/README.md)
+### [【G时新闻】美众议院议长佩洛西访台或许只能降落日本 中共国内大量资金外逃激化两阵营搏斗](/content/gnews/29/README.md)
  ` G-时新闻`
-
-### [每周报告显示突破性病例占 COVID 感染的 47%](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【G时新闻】中共国人民币下跌和中共国内大恐慌](/content/gnews/30/README.md)
  ` G-时新闻`

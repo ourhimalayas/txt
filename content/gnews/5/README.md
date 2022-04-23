@@ -2,28 +2,37 @@
 ---
 
 
-## 中日财经爆┃乌克兰央行禁止法币购买比特币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397122/)
+## 樱花时政┃习近平总加速师全票当选中共广西壮族自治区二十大代表
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397253/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/深藏不露
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，乌克兰国家银行宣布禁止使用格里夫尼亚(乌克兰货币)购买比特币，并将每月使用外币购买比特币的上限定为3300美元。该央行表示，这些措施对于防止资本外流和减轻外汇储备压力是必要的。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中日财经爆┃乌克兰央行禁止法币购买比特币.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwzimg.fx994.com%2Ftest%2Fguoji%2F2021-07-12%2F637616948778214267%2FART637616948778214267_258118.jpg_bitdefault&amp;imgrefurl=https%3A%2F%2Fwww.wikibit.uk%2F202107124954483115.html&amp;tbnid=9QJdrQ8jLqGILM&amp;vet=12ahUKEwi5sJrO3qn3AhXRxoUKHf_bDnMQMygEegUIARCxAQ..i&amp;docid=ep6WlIW_OK1QGM&amp;w=990&amp;h=556&amp;itg=1&amp;q=%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%BD%E5%AE%B6%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwi5sJrO3qn3AhXRxoUKHf_bDnMQMygEegUIARCxAQ)
-乌克兰国家银行并不是乌克兰第一家禁止比特币购买的机构。今年3月，该国最大的商业银行PirvatBank停止客户使用乌克兰货币购买比特币。此举正值俄罗斯入侵乌克兰，破坏了双方经济之际。本月早些时候，世界银行估计乌克兰的国内生产总值今年将下降45%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-232.png)
 
-在乌克兰提出新的加密货币限制之前，该国通过数字代币获得了大量捐赠款项。为了支持其与俄罗斯间的对抗，乌克兰通过加密货币捐款筹集资金，3月份设定的目标是2亿美元，目前已经获得了近6700万美元。
+**2022****年4月22日，中共广西壮族自治区代表会议在南宁召开，会议选举产生了广西壮族自治区出席党的二十大代表。在广西参选的中共提名的代表候选人习近平总加速师以全票当选中共二十大代表。当大会宣布习近平总加速师在选举中以全票当选中共党的二十大代表时，全场爆发出长时间热烈的掌声。**
 
-消息来源:
-[【比特日报】币安陷俄监管风暴！比特币跌破4万大关 乌克兰突宣布：限买加密货币防资本外逃](https://ca.fx168news.com/cryptocurrency/2204/5841551.shtml)
+**代表们认为，习近平总加速师全票当选二十大代表，是广西250多万名党员、15万多个基层党组织的共同意愿，充分体现了5700万广西各族干部群众对习近平总加速师的衷心爱戴，反映了亿万人民紧跟伟大复兴领航人踔厉笃行，开创更加美好未来的共同心声和强烈愿望。代表们坚信，在习近平总加速师的带领下，大家一定会把日子过得更有甜头，更有奔头。唯有撸起袖子加油干，才能不负习近平总加速师的殷切期望！**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+**我知道他在说谎，**
+
+**他自己也知道自己说谎，**
+
+**他也知道我知道他在说谎，**
+
+**我也知道他知道我知道他说谎，**
+
+**他知道我也知道他知道我知道他说谎，但是他依然在说谎！**
+
+#### 信息来源：[广西选举产生出席党的二十大代表 习近平全票当选](https://www.southcn.com/node_07e973c1a3/d0089f6656.shtml)
+
+**编辑：东京樱花团/知了知了**
+**发布：东京樱花团/**yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

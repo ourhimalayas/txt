@@ -2,41 +2,34 @@
 ---
 
 
-## 每周报告显示突破性病例占 COVID 感染的 47%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396746/)
+## 【G时新闻】美众议院议长佩洛西访台或许只能降落日本 中共国内大量资金外逃激化两阵营搏斗
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2396748/)
 
-翻译： Jenny Ball
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+4月22日，郭文贵先生于Gettr视频中透露，美众议院议长南希·佩洛西4月26日的访台飞机或许只得降落在日本，如果中共对台有动作台湾也会反击，并表示，大量资金外逃中共国激化两大阵营的殊死搏斗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+4月26日佩洛西的访问台湾将是个重大事件，但中共的强烈反应，或有封锁台湾或者攻打台湾的过激动作，可能导致佩罗西的访台飞机最终只会降落在日本。对于中共的直接威胁甚至军事攻击，台湾方面一定也会有军事反击。那时，福建省、上海、香港肯定是首当其冲，而且这些地方一定会处于断电、断水状态。大连、青岛因为有军事基地，也成为最危险的区域之一。
 
+俄乌战争持续进行，中共对台战争一触即发，新冠病毒肆虐世界的同时疫苗灾难已经开始，世界经济处于崩塌边缘。
 
+各国股市、债市忽上忽下，根据公开在册的基金统计出3 月境外投资者净卖出了近180 亿美元的中共国债券，然而这也只是资金外流的冰山一角。比如，与中共沆瀣一气的PAG（太盟投资集团）在中共国投资达几百亿美元，最近也想撤资逃离但发现根本无法实现，投资款早就被王岐山等中共高层家族瓜分殆尽，这也是PAG不敢公开自己投资组合的原因。PAG的诈骗行为影响的不只是自己，这些投资款涉及美国、加拿大等国家的养老基金、教育基金，PAG未来的结局只能是破产。跟着共产党走进火葬场适用于任何人也包括PAG本身，即便PAG曾大力协助中共做恶勾兑，但最终一定会被法律严惩，PAG事件一定成为中美之间、世界所有金融机构和司法机构最大的丑闻之一（制造假文件、作假证、收买律师）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-18.jpeg)
+共产主义和亲共产主义者试图征服世界，世界自由民主主义正在与共产主义殊死搏斗，处于危机之中但也充满了前所未有的生机。
 
-《在线纪事》报道：
-
-随着俄勒冈州对 COVID-19 的担忧消退，以及广泛的疫苗接种推动失去动力，出现了新的数据显示疫苗的功效低于先前的预期。在俄勒冈州卫生局的最新报告中，疫苗突破病例占俄勒冈州 COVID-19 病例的近一半。
-
-俄勒冈州卫生局 4 月 7 日的 COVID-19 突破报告显示，在 3 月 27 日至 4 月 2 日期间， 报告的 2,035 例 COVID-19 病例中，有960疫苗突破病例 (47.2%)。这个数字可能甚至比数据显示的还要高，因为数据包括向公共卫生部门报告的阳性检测结果，而不是在家中检测出的阳性结果。
-
-该机构关于疫苗接种突破性死亡的最新报告揭示了类似的趋势。在 3 月份，46.4% 报告的 COVID-19 死亡病例发生在完全接种疫苗的人群中。
-
-新闻来源：[COVID: Breakthrough Cases Made up 47% of COVID Infections, Weekly Report Shows](https://childrenshealthdefense.org/defender/covid-nw-moderna-file-eua-shot-very-young-kids/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
-
+编辑/上传：一叶
+盖特链接：[https://gettr.com/post/p16pj30c74e](https://gettr.com/post/p16pj30c74e)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
 
-审核：文乐  
-校对：信心满满
-发布：五通庙
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
