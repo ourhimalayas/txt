@@ -2,33 +2,30 @@
 ---
 
 
-## 俄国防部研究所大楼被烧
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395969/)
+## 国际货币基金组织因俄乌战争下调全球增长预测
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2395986/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+作者：纽约香草山 – 文希
+![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
+4月19日，国际货币基金组织IMF在其最新的《世界经济展望》中预测，2022年发达经济体的经济将增长3.3%，新兴市场和发展中经济体将增长3.8%，分别低于此前所预测的3.9%和4.8%。并表示，今年的全球经济放缓主要是因为俄罗斯入侵乌克兰，以及中共因疫情实施封锁影响了供应链。
 
-据《自由时报》4月21日报道，俄罗斯普京20日宣布成功试射号称“世上最强“的萨尔马特（Sarmat）洲际弹道飞弹，21日位于特维尔市（Tver）的俄罗斯国防部第二中央研究所大楼突然发生大火，至少5死30伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-38.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/c-4.png)
+IMF称，战争将进一步加剧通胀，在美国和欧洲部分地区，通货膨胀正在加速，达到几十年来的最快水平，引发了人们对各国央行收紧货币政策的预期，其收紧速度比之前预测的要快。
 
-该研究所负责专职开发防空武器，也有制造导航、地面控制系统、航空飞行器的导引定位等，而俄罗斯主力飞弹伊斯坎德尔（Iskander）与S-400也是在该栋大楼所设计。 
+IMF首席经济学家皮埃尔-奥利维尔·古林查斯表示，这场战争加剧了近年来对全球经济造成巨大影响的一系列供应冲击，这些冲击会通过商品市场、贸易和金融联系广泛传播，还会增加世界经济更永久地分裂为具有不同技术标准、跨境支付系统和储备货币的地缘政治区块的风险。
 
-报道说俄军方20日在俄国北部普列塞茨克太空发射场（Plesetsk Cosmodrome）成功进行萨尔马特试射，俄罗斯国防部称将大幅提高俄国战略核武的战力。
+参考链接：
 
-21日白天该研究所发生大火，从流出的视频可见，该栋大楼冒出大量黑烟，火势相当猛烈，目前已知至少5人死亡、30人受伤，传出大楼屋顶也因大火而坍塌。当地消防部门在中午得到报警并前往救援，初步怀疑为研究所二楼老旧电线与塑胶造成大火。
+- [‘Seismic waves’: IMF cuts global growth forecast over Russia war](https://www.aljazeera.com/economy/2022/4/19/seismic-waves-imf-cuts-global-growth-forecast-over-russia-war)
 
-【参考来源】[https://news.ltn.com.tw/news/world/breakingnews/3901462](https://news.ltn.com.tw/news/world/breakingnews/3901462)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-编辑/校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+总编/编辑：飞虹
+审核：木木
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,10 @@
 ---
 
 
-## 上海，租客不讓進租屋，在外面流浪，居委不管。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395862/)
+## 安徽蕪湖封城，市民半夜搶菜。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395943/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

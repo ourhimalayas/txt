@@ -2,43 +2,37 @@
 ---
 
 
-## 今年有769名运动员在比赛中倒下 怎么回事？（1/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396021/)
+## 日本将四个有争议的岛屿列为被俄罗斯“非法占领”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396099/)
 
-翻译： Jenny Ball
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-488.jpg)图片来自网络
+《雅虎新闻》近日报道，在周五发布的最新版本的外交报告中，日本将其与俄罗斯存在所有权争议的四个岛屿描述为 “被俄罗斯非法占领”，与最近的其他版本相比，日本使用了更强烈的语言来描述领土争端，并强调了在俄罗斯入侵乌克兰的情况下双方陷入停滞的关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+2022年的《外交蓝皮书》是日本外务省发布的一份关于日本外交政策的年度报告，其中的描述是近二十年来第一次使用这种措辞。日本正在努力改善与俄罗斯的关系，以重新获得对千岛群岛（日方称为北方领土）的控制权，它以前曾以较柔和的语气描述这一争端。
 
+外务省在报告中说：”北方领土是日本拥有主权的一组岛屿，是日本领土的一个组成部分，但目前它们被俄罗斯非法占领。”
 
+前苏联在二战结束时从日本手中夺取的俄罗斯控制的岛屿的争端使两国无法签署和平条约。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-230.png)
+该报告上一次使用类似的表述是在2003年，但在去年之前一直在淡化其措辞，当时它将该争端描述为 “日本和俄罗斯之间的最大问题”，并指出 “日本对这些岛屿拥有主权”。
 
-在 2021 年 3 月至 2022 年 3 月的一场比赛中，超过 769 名运动员倒在了赛场上。
+日本已经与其他七国集团国家一起对俄罗斯实施了一系列制裁。东京在针对俄罗斯的国际努力中发挥了更大的作用，因为它担心入侵对东亚的影响，在那里，中共国的军队已经变得越来越自信。
 
-One America News Network (OAN)披露了这一令人震惊的统计数据，该网络还发现，心脏骤停运动员的平均年龄仅为 23 岁。
+日本已经面临来自俄罗斯的报复，俄罗斯最近宣布暂停与东京的和平条约谈判，其中包括关于争议岛屿的谈判。
 
-由调查人员、新闻编辑、记者和“寻求真相的人”组成的团队“好科学”（Good Sciencing ）的最新报告，详细介绍了运动员在 COVID-19 注射后发生的 890 次心脏骤停和其他严重问题，包括 579 人死亡。
+日本还寻求加强其国防能力和预算，作为预计今年晚些时候对日本国家安全战略进行的重要修订的一部分。
 
-随着此类情况变得不可忽视，甚至澳大利亚的主流媒体体育频道都推测，健康问题可能与 COVID-19 注射有关，其中一位主持人承认，多名球员在 COVID-19加强剂注射后患有心脏问题和贝尔麻痹。
+日俄之间是世仇，日本自然不会放弃这一次俄罗斯被全球制裁的机会。我们姑且不论这四个岛屿的归属权，单说日本为了四个小岛寸土必争，从未放弃。中共什么时侯能收回丢给俄国的一百多万平方公里土地啊（库页岛、外兴安岭、海参崴等）？而不是像现在这样低头认怂说不存在领土争议。
 
-接下篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）
+参考链接：
 
-新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
+[https://news.yahoo.com/japan-says-disputed-islands-illegally-111711150.html](https://news.yahoo.com/japan-says-disputed-islands-illegally-111711150.html)
 
-* * *
+*编辑：金生水*
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

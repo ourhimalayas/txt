@@ -2,32 +2,43 @@
 ---
 
 
-## 国际社会继续制裁俄罗斯 援助乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2395987/)
+## 今年有769名运动员在比赛中倒下 怎么回事？（1/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396021/)
 
-作者：澳s喜 – 追着曙光跑；纽约香草山教育部 – Naughty(文行)
-![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
-据外媒综合报道，英国4月21日在其对俄罗斯的制裁名单上增加了26个新项目，包括对俄罗斯军事人物和国防公司的制裁。
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-29.png)
-
-当天美国总统乔·拜登表示，美国将向乌克兰提供另外 8 亿美元的军事援助和 5 亿美元的直接经济援助，以帮助乌克兰在击退俄罗斯的新一轮的进攻。军事援助包括 72 门榴弹炮、144,000 发炮弹、72 辆牵引榴弹炮的战术车辆和 121 架凤凰幽灵战术无人机。
-
-德国发展部长斯文贾·舒尔茨宣布，将进一步向乌克兰提供 3700 万欧元用于战争后的重建。
-
-21日，丹麦和西班牙首相同时访问了基辅，会见了乌克兰总统泽连斯并表示会向乌克兰运送更多武器。西班牙还表示，将持续努力推动俄乌战争结束，同时会提供“所有需要的人道和军事援助”，并接收乌克兰难民。
-
-参考链接：
-
-- [UK sanctions Russian generals it says have ‘blood on their hands’](https://www.reuters.com/world/uk/uk-sets-out-26-new-sanctions-against-russia-2022-04-21/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-230.png)
+
+在 2021 年 3 月至 2022 年 3 月的一场比赛中，超过 769 名运动员倒在了赛场上。
+
+One America News Network (OAN)披露了这一令人震惊的统计数据，该网络还发现，心脏骤停运动员的平均年龄仅为 23 岁。
+
+由调查人员、新闻编辑、记者和“寻求真相的人”组成的团队“好科学”（Good Sciencing ）的最新报告，详细介绍了运动员在 COVID-19 注射后发生的 890 次心脏骤停和其他严重问题，包括 579 人死亡。
+
+随着此类情况变得不可忽视，甚至澳大利亚的主流媒体体育频道都推测，健康问题可能与 COVID-19 注射有关，其中一位主持人承认，多名球员在 COVID-19加强剂注射后患有心脏问题和贝尔麻痹。
+
+接下篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）
+
+新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
