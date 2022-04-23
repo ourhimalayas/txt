@@ -2,31 +2,35 @@
 ---
 
 
-## 有声｜上海变身“集中营” 人们失去姓名只认门牌号
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2391991/)
+## 加拿大人参与拯救乌克兰数字历史的全球努力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2394092/)
 
-**By:秘翻新闻**
-
-**2022-04-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/422-2.jpg)
-[新唐人](https://www.ntdtv.com/gb/2022/04/21/a103406674.html)北京时间4月22日综合消息。中共国上海封控宛如一个大集中营。市民失去社会联系，在业主群和团购群中，只剩门牌号码来标记身份。政府投喂的“保供产品”中充斥着发霉变质的食物和伪劣产品。
-
-据中央社报导，封城之后，上海的微信群组中，团购与防疫通报等群组大幅增加，而这类新增的群组一般都要求成员用自家门牌号码来作为微信名称，据称是为了方便管理。
-
-在大量的互动中，上海居民也逐渐将自己与“编号”连结，对自己的门牌号信息瞬间做成反应。
-
-此外，众多[网友爆料显示](https://www.ntdtv.com/gb/2022/04/21/a103406628.html)，不少居民小区管理方发放给居民的保供物资中，存在诸多问题产品。不仅有臭猪肉、奶头肉，还有仿冒、三无产品，甚至有网友从榨菜里吃出了钢片，还有的供货生产厂商过去曾经因销售劣质产品被惩罚过。
-
-有网友直言，上海的所谓“保供体系”实质上就是官商特许经营，只是让少数人可以发财的工具。
-
-(秘翻新闻 二丫编辑)
-
-发布：文橙
+##### 作者：加拿大温哥华扬帆农场 -【青青/重生之鹰】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2802.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
 
 
+据CTV NEWS 4月19日报道，加拿大人参与了一项保护乌克兰文化遗产数字内容和数据的全球任务。俄罗斯不分青红皂白的轰炸对乌克兰的数字内容和数据构成了威胁。这个名为“拯救乌克兰文化遗产在线”(save Ukrainian Cultural Heritage Online)的组织拥有1300多名专业人员，包括图书管理员、档案管理员、研究人员和程序员，他们自愿识别并存档乌克兰重要网站，并把这些网站的数据存放在大学、图书馆、博物馆和画廊的服务器上。到目前为止，该组织已经从3500多个网站保存了超过30tb的扫描文件、艺术品和其他材料。
 
+阿尔伯塔大学的加拿大乌克兰研究所(Canadian Institute of Ukraine Studies)也参与了一个名为“档案救援队”(Archives Rescue Team)的平行项目，该项目正在帮助支持尚未发表的研究。
+
+原文链接：[https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420](https://www.ctvnews.ca/canada/canadians-involved-in-global-effort-to-save-ukraine-s-digital-history-1.5865420)
+
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-4.jpg)
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,52 @@
 ---
 
 
-## 樱花时政┃英国驻基辅大使馆将于下周重新开放
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2391963/)
+## 新西兰财经G乐部2022年4月22日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2393219/)
 
-撰稿、图片：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃英国驻基辅大使馆将于下周重新开放.jpg)
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-23-012307.jpg)
+1、恒大、融创多家头部房企年报难产或有退市风险
+![img](https://media.gettr.com/group30/origin/2022/04/22/02/aed34795-bb45-a401-870f-41134c307dfe/21771b6c343c397690d92508e69aa445_500x0.png)
+截至4月21日，距离A股上市公司2021年年报披露收官期还有9天时间从Wind 获悉，66家上市房企还未发布年报，包括此前已经公布债务违约的多家“千亿元阵营”房企。A股房企尚有一周多的时间，但港股部分上市房企已经过了年报披露收官期仍未公布经审计的年报，包括中国恒大、融创中国、世茂集团三大头部房企在内，合计共9家房企年报仍旧难产，从4月1日至今，这些企业仍处在停牌状态中。
 
-英国首相鲍里斯-约翰逊宣布，英国驻乌克兰首都基辅的大使馆将在下周重新开放。
+财经G评：发布了财报股票价格暴跌，拖时间造假，熬一天是一天！
 
-约翰逊说，在俄罗斯入侵前不久关闭后，外交使团将再次打开大门。
+链接 [https://finance.sina.com.cn/roll/2022-04-22/doc-imcwiwst3268475.shtml](https://finance.sina.com.cn/roll/2022-04-22/doc-imcwiwst3268475.shtml)
 
-外交部长利兹-特拉斯说，梅林达-西蒙斯大使由于 “严重的安全局势”离开后，将返回该市。
+2、中共加强：对非法集资保持严打态势 紧盯养老、投融资领域
+![img](https://media.gettr.com/group24/origin/2022/04/22/03/7bec49cd-589b-add9-55af-574c0bf19b1a/621f54da6bd0aee2d98be78914aa7e80_500x0.png)
+2022年处置非法集资部际联席会议4月19日召开。银保监会主席郭树清出席并讲话，扎实推进《防范和处置非法集资条例》落地见效，严厉打击非法集资违法犯罪活动，2022年打非处非工作要提高政治站位，消化存量、管控变量。继续对非法集资保持严打态势，形成有力震慑，紧盯养老、投融资等重点领域，稳妥有序出清风险。
 
-欧洲的外交官们也在陆续返回乌克兰首都基辅。
+财经G评：金融领域严打运动！管控老百姓的钱袋子，想逃离中共国的资金，时间窗口正在消失！如果爆发对台战争，现在就是最后的机会！
 
-首相是在德里的一个新闻发布会上宣布这一消息的，他在那里与印度领导人纳伦德拉-莫迪举行会谈。
+链接 [https://news.cnstock.com/news,bwkx-202204-4866853.htm](https://news.cnstock.com/news,bwkx-202204-4866853.htm)
 
-在承诺向乌克兰提供价值1亿英镑的武器之后，约翰逊先生本月早些时候访问了基辅，会见了总统沃洛基米尔-泽连斯基。
+3、银保监会将以更大力度促进银行保险业对外开放
+![img](https://media.gettr.com/group6/origin/2022/04/22/03/b2cbba05-0f59-9f46-6c24-8e76eb77bc2d/7b654f00fa4fe287ba0d69c9d902a945_500x0.png)
+银保监会副主席梁涛谈下一步银行保险业对外开放：将取消境外金融机构作为中资商业银行法人机构的发起人或战略投资者总资产不少于100亿美元的要求，明确境内外资银行投资入股中资商业银行的持股比例不受限制；取消外资银行发行一般金融债券的审批；加强对疫情风险、气候风险、科技风险等新型风险的研究，做好海外突发风险事件的应对准备。
 
-在接受记者提问时，当被问及他是否同意俄罗斯的轰炸可能持续到明年年底的情报，并且俄罗斯可能取得胜利时，首相说这是一种令人悲哀的 “现实的可能性”。
+财经G评：中共治国的伎俩是：儒表法里。在金融领域亦是如此，对内加强管控，对外招商引资，这个时候把内部经济风险与外资绑起来，正所谓你中有我，我中有你！外资是不是要思考一下：为什么在这个时候中共对外资开放呢？
 
-他说 “[弗拉基米尔]普京有一支庞大的军队。他在一个非常困难的政治位置，因为他犯了一个灾难性的错误。“
+链接：[https://finance.sina.com.cn/chanjing/cyxw/2022-04-22/doc-imcwiwst3301599.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-22/doc-imcwiwst3301599.shtml)
 
-“他现在唯一的选择，真的，就是继续尝试使用他那令人震惊的、由大炮驱动的折磨人的方法，试图把乌克兰人磨死。”
+4、又一批中概股上美“预摘牌名单”包含知乎、理想汽车等17家公司
+![img](https://media.gettr.com/group15/origin/2022/04/22/03/9607e62d-5d9e-f8e8-02cd-00d232db6d66/eccb5cdad52047ace11dff5ae694f27a_500x0.png)
+4月22日电 根据美国证劵交易委员会（SEC）网站最新披露，知乎、理想汽车等公司加入“预摘牌名单”。SEC网站披露的具体名单显示，知乎、诺华家具、LOVARRA、万春医药、瑞幸咖啡、极光移动、Scientific Energy、中国食品、Value Exchange International、泽尔西西医疗集团、Entrepreneur Universe Bright Group、中比能源、中网载线、尚乘国际、百世集团、理想汽车和贝壳均被纳入。
 
-“我认为，无论弗拉基米尔-普京在接下来的几个月里能够发挥怎样的军事优势，我同意这可能是一个漫长的时期，他都无法征服乌克兰人民的精神。”
+链接：[https://finance.sina.com.cn/chanjing/gsnews/2022-04-22/doc-imcwipii5747409.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-04-22/doc-imcwipii5747409.shtml)
 
-首相说，他正在研究英国可以做些什么来 “回补 “波兰等国家的武器，”这些国家可能希望派遣更重的武器来帮助保卫乌克兰人”。
+5、币安要求从加密货币骗局的诉讼中移除
+![img](https://media.gettr.com/group37/origin/2022/04/22/03/3ecdcafa-1361-f12c-5d4d-10a5ecd38ac3/2f334dfa38c7a99312eb998e388b37c2_500x0.png)
+币安Binance 周四要求德克萨斯州的一名联邦法官免于一项价值 800 万美元的诉讼，该诉讼声称该加密货币交易所“协助和教唆”了一场局。原告 Divya Gadasalli 正在联邦民事法院起诉这家开曼群岛公司，指控币安在该计划中的作用，她说这涉及兑现她在 Coinbase (COIN) 上购买的加密货币。Gadasalli 还起诉 TD 银行、Abacus 联邦储蓄银行和 Poloniex 加密货币交易所等。
 
-约翰逊先生说：”我们正在考虑向波兰发送坦克以帮助他们，因为他们向乌克兰发送了一些T-72[坦克]和采取其他类似措施。”
+链接 ：[https://www.coindesk.com/policy/2022/04/21/binance-asks-to-be-removed-from-crypto-romance-scam-lawsuit/](https://www.coindesk.com/policy/2022/04/21/binance-asks-to-be-removed-from-crypto-romance-scam-lawsuit/)
 
-信息来源：
-[Ukraine: UK embassy in Kyiv to reopen next week, says PM](https://www.bbc.com/news/uk-61190310)
+海报：润玉
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+配图：文双
+
+上传排版：文勇
 
  
 
