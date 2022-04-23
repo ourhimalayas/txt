@@ -2,38 +2,36 @@
 ---
 
 
-## 昆士兰解除密切接触者及未接种疫苗旅客的隔离规定
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2396982/)
+## 2022/04/18 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2397176/)
 
-撰稿：Gradient Boost
+1. 4月15日，上海。疑似一位老人核酸检测阳性后，被医护人员从其住宅处强制拉走隔离。
+2. 4月17日， 江苏苏州。102岁独居老人，自己一个人在家，按照中共疫情防控政策却需要每天下楼做核酸检测。
+3. 某地居民爬出中共政府设置的隔离封锁线后，被无处不在的监控人员呵斥返家。
+4. 4月17日，江苏南通第三人民医院发现新冠病毒阳性确诊病例后，医院附近周边立即被进入大面积管控状态。
+5. 4月16日，上海。新冠病毒阳性患者转阴后，仍被当地社区要求拉去集中隔离点观察。患者深夜哭诉，惹周围群众不满。
+6. 4月16日，上海。中共疫情隔离区，方舱医院下的隔离生活。
+7. 4月17日，上海。疫情下的疾控中心权力大无边，要求你隔离你就得隔离。隔离中转点九十多岁的老人也无法例外，坐等一夜等待被集中隔离。
+8. 4月17日，上海宝山区顾村中学。来不及建方舱医院，阳性患者被就地取材安置在顾村中学的一个临时隔离点。
+9. 4月10日，安徽阜阳市。男子在阜阳颖州区中共疫情管控区内，碰到一位年轻人夜晚在垃圾桶里翻找吃的。
+10. 疫情下的中国大陆，一边物资奇缺多少人饿死，一边物资却又会人为原因的导致被大量浪费。共产主义统治下的社会总是会反复出现大量饿死人的人祸惨案
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.22-B.jpg)网络图片
-昆士兰州是澳大利亚又一个取消对 COVID-19 密切接触者和未接种疫苗的国际入境者隔离要求的地区。从下周四开始，过去强制性的七天隔离条件将不再适用于任何一类人。尽管如此，一些其它规定仍然适用于密切接触者。
 
-自4 月 28 日下午 6 点以后，任何无症状的密切接触者都可以继续他们的日常生活，这也包括重返工作岗位。如果密切接触者出现了症状——即使他们的检测结果为阴性——他们仍应在家进行自主隔离。因此确定隔离与否的条件似乎从是否阳性转变为是否出现症状。
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon
+ 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
+- *3，翻译：一切都是刚刚开始Miles#4229
+ 4，PR：Seven-Star Ant*
 
-不过另一方面，对于密切接触者的病毒检测要求并没有完全解除。如果一位居民被认定为密切接触者，那么他仍需要每隔一天进行一次检测——即便是在无症状的情况下。同时密切接触者也需要在外出时佩戴口罩。
 
-另外，密切接触者在发现自己是密切接触者后7天内不可以访问“脆弱环境”，包括医院及养老院等。
+* * *
 
-目前，昆士兰州对Isolation和Quarantine的这两个单词给予了不同解释，尽管这两个词在中文语境里都可以理解为隔离。在昆士兰，Quarantine是指远离他人以防您感染 COVID-19，而Isolation是指在您知道自己感染 COVID-19 时远离他人。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑：Gradient Boost*
 
-*发布：Gradient Boost*
+编辑：【英国伦敦喜庄园编辑部】
 
-新闻参考链接：
-
-[9 News](https://www.9news.com.au/national/queensland-covid19-close-contact-rule-changes-explained/efbdb634-2c44-4333-9960-5235f0f247ba)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-**更多信息，更多关注
-**[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

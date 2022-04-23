@@ -2,40 +2,67 @@
 ---
 
 
-## 有声|日媒揭露疫情下中共国经济真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397345/)
+## 马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（3/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2397441/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月18日，郭先生盖特视频中爆料，中共国所谓的2022年第一季度GDP上涨4.8%，是一贯的弄虚作假，真实数据一定是负数。
+**翻译：噜噜咪**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2859-edited.png)图片来源:dailymail.co.uk
 
-日媒在当天揭露了墙内经济的真实状况。记者走访了一家北京市内由恒大公司投资运营的购物中心。整个中心门可罗雀，大部分店面甚至连装修都没有，待租的店面挂出8折入驻的字样，想要吸引商铺签约，只有为数不多的商铺还在营业。据商户们反映，造成购物中心经营惨淡的原因，不是恒大地产的暴雷，而是持续两年多的中共病毒疫情。自病毒爆发以来，他们的生意就一直处于下坡的状态。整个购物中心渐渐地人去楼空，宛如废墟。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-39.jpg)
-郭先生还指出，中共内部人士透露，高层早已定调今年所有跟GDP相关数字，必须维持在4%以上。同时，强制清零政策的目的就是为了降低近七成的社会成本，省下的这些社会成本，就会成为中共口中GDP增长的基石。他强调，这表明中共根本不是市场经济，而是政治经济。
+控制马里乌波尔意味着俄罗斯拥有亚速海的整条海岸线，并拥有一条安全的陆路通道，将莫斯科在2014年夺取并吞并的克里米亚半岛与俄罗斯大陆和分离主义分子控制的乌克兰东部地区联系起来。
+
+它连接了俄罗斯入侵的两个主轴，并使俄罗斯军队能够加入对乌克兰东部大部分军队发动的主要攻势。
+
+英国国防部今天表示，夺取该城市具有战略和象征意义，这增强了普京在5月9日俄罗斯胜利日之前展示重大成功的希望，其行动将与庆祝活动同时进行，并将加大力度。
+
+但是，如果普京的部队最终消灭了港口的所有抵抗力量并将其据为己有，那么他们将只剩下一个冒烟的城市外壳。
+
+马里乌波尔市市长瓦迪姆·博伊琴科本月早些时候说，该城市中心90%以上的基础设施已被损坏，其中40%以上“无法恢复”。
+
+博伊琴科还说，据信有超过10,000名平民在俄罗斯的攻击中死亡。
+
+对该市战争罪行的调查正在进行中，其中两次袭击是特别的重点：一次是对产科病房的袭击，另一次是对一个剧院的袭击，当时有数百名平民在那里避难。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2861.png)图片来源:dailymail.co.uk
+
+乌克兰在马里乌波尔的最后据点位于港口边的亚速钢铁厂，那里有数百甚至数千名乌克兰战士和平民被困。
+
+车臣军阀和普京的盟友拉姆赞·卡德罗夫昨天宣布，该工厂将“在午餐时间”落入俄罗斯手中，但普京今天命令其军队不要夺取乌克兰抵抗的最后堡垒。
+
+普京没有派他的军队进入工厂，因为工厂下面有一个庞大的迷宫式隧道，而是选择让他的军队封锁所有进出工厂的入口和出口，有效地创造了一个庇护乌克兰人无法逃离的坟墓。
+
+普京在克里姆林宫的一次电视会议上对绍伊古说：“我认为对工业区强攻的提议是不必要的。我命令你取消它”。
+
+他说他决定不强攻钢铁厂是出于保护俄罗斯士兵生命的考虑。
+
+他说：“没有必要爬进这些地下墓穴，在这些地下工业设施里爬行，”。
+
+“把这个工业区封锁起来，让一只苍蝇都飞不出去”。
+
+绍伊古确认该工厂已被“安全封锁”，普京向亚速钢铁厂尚未投降的乌克兰战士发出最后的信息。
+
+他要求他们放下武器，说俄罗斯将尊重他们，并为受伤者提供医疗援助。
+
+但乌克兰当局难以想象这一消息，他们说俄罗斯一次又一次地对先前商定的“人道主义走廊”发起攻击，阻止许多平民逃离该城市到安全地带。
+
+**素材:peacelv**
+
+**素材链接：**[Mass graves for the thousands of Mariupol victims ‘liberated’ by Russia: Satellite images show extent of Putin’s carnage as he orders troops to seal soldiers and civilians in steelworks and starve them to death](https://www.dailymail.co.uk/news/article-10740519/Satellite-images-extent-Putins-carnage-Mariupol.html)
+
+- [马里乌波尔乱葬岗曝光 万人被屠杀 数千人被围困（2/4）](https://gnews.org/zh-hans/2397185/)
 
 
+* * *
 
-
-
-文字版原文：[日媒揭露疫情下中共国经济真相](https://gnews.org/zh-hans/2390530/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

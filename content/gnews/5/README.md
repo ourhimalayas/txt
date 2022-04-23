@@ -2,40 +2,39 @@
 ---
 
 
-## 新冠患者3成有后遗症
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397474/)
+## 日本外交报告书称北部争议岛屿“被俄罗斯非法占领”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2397513/)
 
-撰稿：东京樱花团/立正道
+撰稿：Gradient Boost
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2865.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fthehill.com%2Fwp-content%2Fuploads%2Fsites%2F2%2F2022%2F03%2Fmr_covidvaccine_092721_ap-seth-wenig.jpg%3Fw%3D1280&amp;imgrefurl=https%3A%2F%2Fthehill.com%2Fpolicy%2Fhealthcare%2F3459664-quarter-of-us-covid-1)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/233.jpg)图片来自网络
+日本在周五发布的最新外交报告中将与俄罗斯有领土争议的四个岛屿描述为“被俄罗斯非法占领”——较先前版本的言语更加强烈——并强调俄罗斯入侵乌克兰后两国之间急剧降温的关系。
 
-近日，美国研究机构数据表明，中共病毒（新冠病毒）患者中有3成患有后遗症。该项研究结果由美国UCLA的Sun M.Yoo等人针对感染后急性后遗症(PASC)相关的研究而得出的结论。
+外务省发布的关于日本外交政策年度报告《2022 年外交蓝皮书》中有关争议岛屿的描述可以说是近 20 年来最严厉的。日本正在努力改善与莫斯科的关系以重新控制千岛群岛，东京称其为北部领土，此前曾以较温和的语气描述这场争端。
 
-**症状持续60天以上**
+如今该报告直接写到：“北方领土是日本拥有主权的一组岛屿，是日本领土不可分割的一部分，但目前它们被俄罗斯非法占领。”
 
-在美国，老年人、少数民族、社会弱者中COVID-19导致的死亡率很高，但是对称为Long COVID和PASC的关系一无所知。因此，Yoo等人对症状性COVID-19患者进行了PASC相关的研究。
+该报告上一次使用类似的表述是在 2003 年，后来措辞稍有缓和，将岛屿争端描述为“日本和俄罗斯之间最大的担忧”，但仍然指出“日本对这些岛屿拥有主权”。
 
-**倦怠感最多**
+日本与其他七国集团国家一道，对俄罗斯实施了一系列制裁。东京在针对俄罗斯的国际行动中发挥了更大的作用，因为它担心其势力对于东亚的影响。作为回应，俄罗斯最近宣布暂停与东京的和平条约谈判，其中包括就争议岛屿进行谈判。
 
-调查的结果显示，住院患者800例中246例(30.8%)，外来患者238例中63例(26.5%)，整体1,038例中309例(29.8%)被认定为PASC（后遗症）。
+另一方面，中共国军队在东亚的活动也开始变得越来越频繁。日本因此也在寻求加强其国防能力和预算，这或将在今年晚些时候成为对日本国家安全战略进行重大修订的一个部分。
 
-出院/门诊30天后的调查报告，急性COVID-19感染者症状中,最频繁的是倦怠感73.2%。其次,呼吸短促63.6%,发热、寒51.5%,肌肉痛50.6%。
+*编辑：**Gradient Boost*
 
-出院/门诊60-90天后发现PASC的患者中，最多的症状是倦怠感(31.4%)，接着是呼吸短促(13.9%),味觉/嗅觉障碍(9.8%)。发热(1.9%)和疹子(不到1%)很少。
+*发稿：**mgjxs*
 
-根据出院/门诊患者的不同，看PASC症状,两群的倦怠感最多，住院患者的呼吸短(15.4%)，外来患者的味觉/嗅觉障碍(15.9%)是第二多。
+新闻参考链接：[AP News](https://apnews.com/article/russia-ukraine-europe-japan-tokyo-moscow-70d175af0c1ff116555d74a636ad3a87)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-年龄、种族/民族、SVI、有无基础代谢病与PASC的发病无关。
+**更多信息****，****更多关注****
+**[**乌克兰救援****UkraineRescue****官方****Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生****Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会****Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心****Discord**](https://discord.gg/zv8j42srdN)
 
-Yoo先生表示:“这次我们的研究显示,每10名COVID-19患者中有3人出现与PASC的症状,最频繁的是倦怠感。作为与PASC相关的独立因子,通过COVID-19提取了住院、糖尿病、BMI高值。但是,与COVID-19重症及死亡、高龄、少数民族、社会弱者, 与PASC没有关联。
-
-此外，“这项研究了解Long COVID的轨迹,现有并存疾病、社会人口统计学因素、疫苗接种情况、病毒变异型等个别因素，以及是如何影响Long COVID症状的种类和持久性。因为患者仍末完全健康，有必要长期地追踪各种患者。
-
-信息来源：[コロナ患者の3割が後遺症を発症](https://medical-tribune.co.jp/news/2022/0421545347/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220422)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

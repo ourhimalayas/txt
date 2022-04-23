@@ -2,42 +2,27 @@
 ---
 
 
-## 有声|新中国联邦网站4月19日正式上线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2397271/)
+## 有声｜美国警告索罗门群岛勿让中共建军事基地
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2397368/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2022年4月19日，是郭文贵先生发生美国之音VOA419断播、爆料革命开启新征程的5周年纪念日。这一天，新中国联邦官方网站正式公布并投入使用，以纪念这个重要的日子，展示新中国联邦、新中国人的新形象。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-46.jpg)
-联邦官网是新中国联邦的门户网站，目前有中英文两种语言，内容除与郭先生有关的各项信息及新闻链接外，还包括法治基金、各农场服务器和G系列各项具体内容的链接引流，以及拥有我们自己定义权的新中国联邦辞典和自主开发的搜索功能，风格倾向于简单，大方。
+By:**秘翻新闻**
 
-联邦网站是爆料革命、新中国联邦所有农场服务器和G系列的入口，可以起到重要的宣传作用。另外，网站还开通了一对一、安全的客户服务功能，战友们可以通过文字进行沟通投诉，或者爆料。未来，网站还将承接战友认证等功能。
+**2022-04-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-21.png)
+据《[路透社](https://www.reuters.com/world/asia-pacific/us-adviser-campbell-visits-solomon-islands-after-china-pact-signed-2022-04-22/)》4月23日报道，本周五，美国国土安全部印太协调人库尔特·坎贝尔和美国国务院东亚和太平洋事务助理国务卿康达，率领的美国高级代表团与索罗门总理索加瓦雷的政府成员进行了90分钟的会晤，讨论中共在周二与索罗门签署的安全合作协议问题。
 
+美国官员告知索加瓦雷，虽然美国尊重各国政府为其人民做出决定的权利，但是中索协议正在对印太地区及美国和澳大利亚构成区域安全威胁，造成潜在的区域安全影响。
 
+白宫在随后公布的一份声明中表示，如果索罗门允许中共在该群岛保留永久性的军事存在，或建立军事设施，美国将严重关切，并做出相应回应。
 
+白宫还表示，美国将加快在索罗门首都霍尼亚拉开设大使馆的工作，还将分别与索罗门群岛的官员展开高级别战略对话。
 
+秘翻新闻 巴拉克编译报道
 
+发布 : 恩典
 
-
-文字版原文：[新中国联邦网站4月19日正式上线](https://gnews.org/zh-hans/2390046/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
