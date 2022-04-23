@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 10:32 PM (UTC)`
+
+4/23/2022 Miles Guo: According to our fellow fighters from mainland China, the daily positive cases in Beijing are at least tens of thousands, and the CCP has well prepared for imposing a massive lockdown and control in Beijing; Miles Guo reminded us again that all positive cases are actually the COVID vaccine reactions, and the vaccine disaster created by the CCP is on its way.<br/><br/>4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临<br/>
+![img](https://media.gettr.com/group47/getter/2022/04/23/22/143f6d57-73ad-2ffd-153e-c90abf965b6b/out.jpg)
+
+---
+
+`@miles 4/23/2022 10:28 PM (UTC)`
+
+4/23/2022 Miles Guo: Those fellow fighters who did not follow my advice regret it, but it is too late. The data collected by a fellow fighter in Shanghai confirms my estimate of the death toll in Shanghai. Fellow fighters, you must not pay the price of your life or ruin your whole family because of ignorance and stupidity.<br/><br/>4/23/2022 文贵直播：之前没有听文贵劝告的战友们虽然后悔不及，但为时已晚；上海战友统计的数据印证了文贵关于上海死亡人数的估计；战友们千万不要因为无知和愚蠢付出生命的代价或毁了全家！<br/>
+![img](https://media.gettr.com/group39/getter/2022/04/23/22/5e22e167-49f0-0d50-3986-fb80b4f1359d/out.jpg)
+
+---
+
 `@miles 4/23/2022 10:24 PM (UTC)`
 
 4/23/2022 Miles Guo: All the banks in Communist China are under the CCP’s control. These banks will restrict cash withdrawals and transfers and will regulate accounts with large amounts. The banks and bankers in Communist China will be the new victims of the CCP, including Dong Wenbiao, Zhang Hongwei, Bruno Wu, Jack Ma, and others.<br/><br/>4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号，中共国的银行和银行家都是共产党的新的牺牲品，包括董文标、张宏伟、吴征、马云等等<br/><br/>
@@ -139,20 +153,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group4/origin/2022/04/23/07/fd8f7628-75ec-95b4-04e9-6adeacb9dda6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 5:00 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group26/origin/2022/04/23/04/9f2c0094-5192-9487-741d-bffd0664c9af/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 3:03 AM (UTC)`
-
-2022-4-22《鸡血王喜币大作战》 第一百七十三集 嘉宾：青藤、文空、风雨之中
-![img](https://media.gettr.com/group10/origin/2022/04/23/03/44756be8-3069-d5fa-a3b2-3e40ed1c813d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

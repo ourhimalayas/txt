@@ -42,62 +42,62 @@
 ### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/content/gnews/10/README.md)
+### [2022/04/23 文贵先生盖特精要](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/04/23 文贵先生盖特精要](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国外长和防长将于周日到访基辅](/content/gnews/12/README.md)
+### [美国外长和防长将于周日到访基辅](/content/gnews/11/README.md)
  ` Shuizhuyu`
 
-### [4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号](/content/gnews/13/README.md)
+### [4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/14/README.md)
+### [4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七、八月份访台](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/15/README.md)
+### [4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/16/README.md)
+### [【粤语配音】2022年4月23日：南希·佩洛西是否能成功访台](/content/gnews/15/README.md)
  ` MOS香港部`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/17/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [截至4.23 俄乌战事汇总](/content/gnews/18/README.md)
+### [截至4.23 俄乌战事汇总](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/19/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](/content/gnews/20/README.md)
+### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （一）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/21/README.md)
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/22/README.md)
+### [26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海即将解封 之后将进行政治清算](/content/gnews/23/README.md)
+### [上海即将解封 之后将进行政治清算](/content/gnews/22/README.md)
  ` 焦點20分`
 
-### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/24/README.md)
+### [德国央行警告俄天然气禁运将带来严重危机](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [习近平为何决心打台湾](/content/gnews/25/README.md)
+### [习近平为何决心打台湾](/content/gnews/24/README.md)
  ` 焦點20分`
 
-### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/26/README.md)
+### [取消迪士尼优惠税制 或是批评佛罗里达州的报复](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/27/README.md)
+### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/28/README.md)
+### [“普京总统违反一切国际法”俄罗斯人的反战之声（D-2）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [BBC报道中共删除上海“四月之声”视频](/content/gnews/28/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [2022/04/23 英喜时事速递](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

@@ -2,27 +2,33 @@
 ---
 
 
-## 有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2400341/)
+## 26人安危不明 连夜搜索知床观光船 2021年6月也有触礁事故
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400287/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NFSC-7.jpg)
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+23日下午，在北海道知床半岛海域，有26名乘客乘坐的观光船漏水，要求救援。
+视频来源：FNN新闻
+26人的安危状况依然不明朗，海上保安厅正在彻夜进行搜索。
 
-文字版原文：[新中国联邦新闻、NFSC新闻访谈简报|2022年4月21日晚](https://gnews.org/zh-hans/2389088/)
+下午1时15分左右，在北海道知床半岛海域，第118号通报称，26人乘坐的观光船“KAZU 1船头漏水即将下沉的无线电被截获”。
 
-音频处理：Fei797
-发稿：Fei797
+下午2点左右，在接到旅游船航运公司“（船体）倾斜30度左右”的联系后，船上的联系中断了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+据说当时海浪的高度有3米左右。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+航运公司等曾对海保解释说，“上船时已经让26个人全部穿上了救生衣”、“引擎似乎不能用”，海保一直彻夜进行搜救活动。
+
+另外，据悉，观光船在2021年6月也发生了在载有23名乘客的状态下搁浅的事故。
+
+参考链接：[安否不明26人の捜索 夜通し続く 知床観光船　2021年6月にも座礁事故 (fnn.jp)](https://www.fnn.jp/articles/-/351362)
+
+* * *
+
+素材：宫米叶
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
 
  
