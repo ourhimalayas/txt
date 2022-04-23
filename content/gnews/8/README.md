@@ -2,35 +2,37 @@
 ---
 
 
-## 大直播后记：嘉宾谈美国的策略及灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2394830/)
+## 加拿大交通出行口罩授权依旧实行
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2395045/)
 
-#### 整理：Anita、红红火火
-编辑：李易通
+##### 作者：加拿大温哥华扬帆农场 -【青青/文莱】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2827.png)图片来源：[CTV News](https://www.ctvnews.ca/health/coronavirus/no-plans-to-change-masking-policy-on-planes-trains-in-canada-as-u-s-drops-mandate-alghabra-1.5867020)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片35-15.png)图片来源：雅典娜设计组（614）
 
+据加拿大【CTV新闻】4月19日报道，加拿大交通部长表示，虽然美国放弃其国家口罩授权，但加拿大交通工具的口罩限制依然存在。
 
-Rachel:我们新中国联邦灭共的过程，也是我们结交朋友的过程。我们知道什么人是可以相信的，什么人是我们可以联盟的，什么人是我们可以利用的。我们不希望最后打扫战场的时候这个世界被摧毁。中共可以用核弹来解决问题，或者是用暴力来解决问题，那样的话我们收获的将是一个很悲惨的世界，有可能一大半的人都死了，我们的家园将被炸得稀巴烂，环境将被核污染破坏了。但是这个世界有我们新中国联邦就会不一样。
+报道称，美国法官日前推翻了国家对飞机、火车和公共汽车的口罩授权，但与此同时的加拿大，仍有600万人无法自由出行，因此保守党交通评论家认为加拿大正在与世界脱节。交通部长对此认为，加拿大与新冠大流行的卫生措施正在不断重新评估，但目前仍需坚持口罩授权。
 
-我有时候真的很羡慕美国人能够有这样的政治体制，一步一步走来，尽管美国的行动很慢，但心里知道邪恶的中共一定被灭，我们知道神和地球的主人已经安排好了这一切，灭共这一篇是一定会被翻过的。我们只要行动，只要祈祷，中共一定会被灭，这是我的两点感受跟大家分享一下。
+据悉，总理特鲁多日前在新不伦瑞克省举行的新闻发布会上对此表示，有必要在恢复正常状态的同时对新冠大流行的防治措施进行平衡。
 
-摔跤的雅阁:昨天我们的主持人大根先生说，希望今天的直播可以碰撞出点火花，所以我稍微提供一点点火花。大根刚才问的这个关于两党政治的问题，在灭共的这个事情上面，这个问题已经有点是过去式了。为什么？因为佩罗西访问台湾的事情，众议院其实通过了三项决议，总共有四项是跟香港的民主抗议活动有关的。他们支持香港，都是一次投票通过的。也就是说，民主党跟共和党在灭共、支持台湾、支持香港的事情上面，他们的立场是一致的，这已经是两党的共识。
+原文链接：[Mask mandate: Transport minister weighs in on U.S. court ruling | CTV News](https://www.ctvnews.ca/health/coronavirus/no-plans-to-change-masking-policy-on-planes-trains-in-canada-as-u-s-drops-mandate-alghabra-1.5867020)
 
-所以我觉得在灭共的这个点上，不太存在之前所谓的两党政治的问题，因为整体上灭共已经不仅是美国民意的代表了，通过众议院共和民主两党体现出来，这也是为什么CCP觉得压力非常大。特别我们刚才看到王沪宁的思想之一，就是利用美国的两党政治摇摆， 所以我觉得这个是现在让CCP非常头疼的事情。但是同时习大神要攻打台湾也是他不得不做的事情，这个局势虽然对台湾人民来讲，对墙内老百姓来讲，战争一定不是一个好的事情，但是对灭共却是有利的。
+上传/发稿 – 【青青】
+撰稿/翻译/听写 -【文莱】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-这里面我就想到一个隐患，其实同时也是一个机会，就是西方世界会不会区分中共跟中国人。特别是台湾这边的局势越来越紧张的时候，灭共的脚步越来越加速的时候，我在这里面看到有一个积极的信号，就是西方以美国为代表，他们支持香港和台湾，他们是区分对待的。他们对香港、台湾和新中国联邦会区别对待，这个是我看到的区分中国共产党跟中国人的积极的信号。也就是说对于国内的民众包括体制内的人来讲，加入新中国联邦就是大家唯一的选择，因为你必须得有一个实体可以依靠，加入新中国联邦可以让你保命保财报仇。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-资料来源：[4月22日文贵大直播](https://gettr.com/post/p16lhcr821c)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
