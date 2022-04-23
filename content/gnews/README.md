@@ -15,110 +15,110 @@
 
 ---
 
-### [秘翻在线：联合国秘书长计划26日会见普京以谋求和平](/content/gnews/1/README.md)
+### [【乌克兰救援】一位来自法国的志愿者为我们铲除中共的理念鼓掌叫好](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：俄罗斯首次公布&#8221;莫斯科号&#8221;巡洋舰沉没造成的伤亡情况](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [马斯克示意他拥有接管Twitter所需的全部资金](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [企业媒体声称言论自由是件坏事，而且危险](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [河北首富疑为大午集团新东家，观察人士称魏家勾结当权者发不义横财](/content/gnews/3/README.md)
+### [【全文字幕】2022年04月16日 七哥乱聊直播](/content/gnews/4/README.md)
+ ` 文贵视频字幕全集`
+
+### [新中国联邦刚刚在梅迪卡营地设立的为方便难民的LED广告牌被人蓄意破坏割断了电缆](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [“法治基金” 乌克兰救援备受瞩目](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2022年4月23日《樱花快报》：中共官媒定调将进一步加强上海疫情管控](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [泽伦斯基警告俄罗斯不仅盯上乌克兰南部还有其它国家](/content/gnews/8/README.md)
+ ` 蓝莲花农场`
+
+### [俄罗斯国防部研究大楼突发大火](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [4/23/2022 银河快讯：日本关于北方领土对俄罗斯的和解立场转变；日本政府释放部分石油国家储备](/content/gnews/4/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [三家中共国能源公司正在谈判购买壳牌在俄罗斯天然气出口项目中的股份](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料419断播前孟宏伟跟他联系](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共封城政策将推高美国的通货膨胀，俄乌战争将导致全球粮食危机](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年4月22日大直播速记精萃](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
+### [欧盟所有成员国自7月1日起必须执行中共病毒数字证书](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【 蓝枫法律 】巨大建筑支柱中的裂缝之应对：去中心化和独立思考](/content/gnews/7/README.md)
+### [埃隆-马斯克可能将特斯拉、SpaceX和Twitter合并为新的“超级公司”](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：联合国秘书长计划26日会见普京以谋求和平](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [救援前线：梅迪卡营地液晶显示屏遭遇黑手](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【 蓝枫法律 】区块链之媒体和公司组织变革](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [加拿大交通出行口罩授权依旧实行](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [强硬清零误春耕 缺种缺肥陷困境 中国恐现粮荒？](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [雅典娜时报-第271期](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022年4月23日《樱花简报》：民调显示40%日本民众支持加强对俄制裁](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [帝国蛙鸣](/content/gnews/12/README.md)
- ` 纽约香草山MOS02`
-
-### [大直播后记：外国友人给新中国联邦救援的感谢信](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [COVID-19疫苗副作用集萃(2022.4.23G)-新冠疫苗加强针对身体造成的危害](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220422郭文贵大直播 ：对独裁没有威胁的王沪宁才能活下来](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [COVID-19疫苗副作用集萃(2022.4.23F)-新冠疫苗对身体带来的副作用](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [COVID-19疫苗副作用集萃(2022.4.23E)-新冠疫苗对身体带来的副作用](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|网红乐乐的牌子上写着中国共产党是人类的公敌](/content/gnews/18/README.md)
- ` 爆料视频`
-
-### [视频|疫情乱像](/content/gnews/19/README.md)
- ` 爆料视频`
-
-### [俄罗斯国防部研究大楼突发大火](/content/gnews/20/README.md)
- ` 日本東京方舟農場`
-
-### [视频|破门做核酸，到底谁是犯法者](/content/gnews/21/README.md)
- ` 爆料视频`
-
-### [视频|砸，砸出人的尊严](/content/gnews/22/README.md)
- ` 爆料视频`
-
-### [参议员泰德·克鲁兹：美国对中共国的依赖是严重的国家安全风险](/content/gnews/23/README.md)
- ` 美国政要直译推`
-
-### [世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [4/22/2022 七哥盖特：台海战争一触即发！中共这次很认真地想要攻打或封锁台湾！上海、香港一定会成为台湾反击的目标，福建将成为第一个受害者，大连、青岛的军事基地也将十分危险](/content/gnews/25/README.md)
- ` 秘密翻译组-北美组`
-
-### [梅迪卡营地有声报道，新中国联邦设备被恶意破坏，战友被威胁](/content/gnews/26/README.md)
- ` NFSC News`
-
-### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [国防专家吁加拿大政府要担心导弹威胁](/content/gnews/28/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [共产独裁的恶行出现在波兰梅迪卡](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [过半加拿大人正与经济困难作斗争](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [西班牙投资者因冷战风险而撤出中共国](/content/gnews/31/README.md)
+### [马斯克示意他拥有接管Twitter所需的全部资金](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花时政┃驻乌克兰和波兰大使馆即将设立 新中国联邦全面登上世界政治舞台](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [河北首富疑为大午集团新东家，观察人士称魏家勾结当权者发不义横财](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
 
-### [加拿大人参与拯救乌克兰数字历史的全球努力](/content/gnews/33/README.md)
+### [4/23/2022 银河快讯：日本关于北方领土对俄罗斯的和解立场转变；日本政府释放部分石油国家储备](/content/gnews/19/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [文贵爆料419断播前孟宏伟跟他联系](/content/gnews/20/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022年4月22日大直播速记精萃](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [【 蓝枫法律 】巨大建筑支柱中的裂缝之应对：去中心化和独立思考](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [若推特收购成功 马斯克誓言消灭「这群人」](/content/gnews/23/README.md)
+ ` 蓝莲花农场`
+
+### [强硬清零误春耕 缺种缺肥陷困境 中国恐现粮荒？](/content/gnews/24/README.md)
+ ` 日本东京方舟农场`
+
+### [COVID-19疫苗副作用集萃(2022.4.23G)-新冠疫苗加强针对身体造成的危害](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [COVID-19疫苗副作用集萃(2022.4.23F)-新冠疫苗对身体带来的副作用](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [COVID-19疫苗副作用集萃(2022.4.23E)-新冠疫苗对身体带来的副作用](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄罗斯国防部研究大楼突发大火](/content/gnews/28/README.md)
+ ` 日本東京方舟農場`
+
+### [视频|砸，砸出人的尊严](/content/gnews/29/README.md)
+ ` 爆料视频`
+
+### [参议员泰德·克鲁兹：美国对中共国的依赖是严重的国家安全风险](/content/gnews/30/README.md)
+ ` 美国政要直译推`
+
+### [世卫组织报告了近150起针对乌克兰卫生保健设施的袭击事件](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [佩洛西访台飞机或许只能降去日本，大量资金外逃激化两阵营搏斗](/content/gnews/34/README.md)
- ` YALUN 亚伦`
+### [梅迪卡营地有声报道，新中国联邦设备被恶意破坏，战友被威胁](/content/gnews/32/README.md)
+ ` NFSC News`
 
-### [郭文贵4.21：北京大隔离即将到来](/content/gnews/35/README.md)
- ` 秘密翻译组-原创组`
+### [加拿大媒体报道法治基金乌克兰救援行动](/content/gnews/33/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [共产独裁的恶行出现在波兰梅迪卡](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西班牙投资者因冷战风险而撤出中共国](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [新西兰财经G乐部2022年4月22日:财经新闻整理](/content/gnews/36/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
