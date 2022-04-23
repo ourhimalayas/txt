@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 2:05 AM (UTC)`
+
+2022.04.22  新中国联邦 | 喜财经   馬斯克開嗆札克伯格：Meta完全被他控制
+![img](https://media.gettr.com/group20/origin/2022/04/23/02/5edd2aaa-8379-17c7-1261-f349754f94d7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/23/2022 1:00 AM (UTC)`
 
 2022.04.22 晚  新中国联邦 | 新闻访谈   4月26日Nancy Pelosi 访台，台湾面临中共毁岛命运
@@ -147,13 +154,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月21日第48天当日救援统计：<br/>Medyka救援站接待：约252人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13611人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 48 - Date: April 21, 2022 :<br/>Medyka Rescue Station Reception: about 252 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13611 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group24/getter/2022/04/22/15/12fc97ca-f34c-7305-12eb-61d515393130/2b16e8aba7de9c270a683436ffa1ac90.jpg)
-
----
-
-`@miles 4/22/2022 3:27 PM (UTC)`
-
-<br/>【Ukraine Rescue】 04/22/2022 A volunteer from Brazil excitedly took a picture in front of the poster of the NFSC and says, “I love it! Well done guys!“<br/><br/>【乌克兰救援】 04/22/2022 一位来自巴西的志愿者兴奋地站在新中国联邦的海报前合影，她表示：我爱死这个海报了！你们太棒了！
-![img](https://media.gettr.com/group46/getter/2022/04/22/15/940caed3-ae58-f81d-d85a-cc4453543c9b/out.jpg)
 
 ---
 
