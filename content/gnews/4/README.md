@@ -2,24 +2,24 @@
 ---
 
 
-## 不列颠哥伦比亚省医疗护工短缺依然严重
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400521/)
+## 加拿大启动Aeroplan基金帮助乌克兰人赴加
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400556/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、撰稿：自由法兰西
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大自媒体【真北方】4月20日报导，加拿大不列颠哥伦比亚省政府【B.C省】在解雇数千名因未接种新冠疫苗的医护人员后，省政府宣布将投入1200万加元以聘请外国培训护士，从而解决严重的劳工短缺问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2949.png)
-报导称，B.C省的医疗护工在新冠大流行前期已处于危机水平，工作人员的短缺直接导致一月份的一周内有高达27000个班次的空缺。尽管医护人员严重短缺，但该省仍在继续终止公共部门的工作。据悉，该省公共医疗机构中有2582名员工因疫苗授权而被解雇。
+《多伦多太阳报》4月20日报道，加拿大人现在可以捐赠现金或Aeroplan航空里程积分，帮助乌克兰人逃离战火，飞抵加拿大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2956.png)
+加拿大政府早些时候宣布接受乌克兰难民，并允许他们以临时居民身份在加拿大居住最多3年，已有超过54,000名乌克兰人获批。但目前当务之急是如何尽快帮助已逃离到欧洲各地的乌克兰人踏上前往加拿大的旅程。
 
-对此，宪法自由正义中心指出，该省在医疗护工已经崩溃的前提下，以工作威逼加拿大医疗护工妥协，但该省更应该做的事是利用纳税人的钱照顾该省的护工，而不是聘请外国护工。因此，B.C最高法院已收到了一份请愿书，要求取消违宪的疫苗授权，该案预计将于今年夏天开庭审理。
+移民部长弗雷泽表示，该项基金可以帮助至少1万名乌克兰人及其家人赴加。负责管理基金的Miles4Migrants慈善机构专门利用捐赠的飞行里程来帮助有合法旅行许可但囊中羞涩的难民逃离战火。
 
-链接：
+加航已率先为该项基金捐赠了1亿积分，约合200万美元；美国夏皮罗基金会宣布它将匹配捐赠最高不超过5000万积分的加拿大人捐款，约合100万美元。人们可以捐赠与Miles4Migrants合作的所有航空公司的里程积分，大多伦多犹太基金会则负责现金募捐。
 
-[B.C. spending millions on foreign nurses after firing thousands of healthcare workers | True North (tnc.news)](https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/)
+原文链接：[https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada](https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada)
 
 上传/发稿 – 文永
-撰稿/翻译/听写 – 文莱
-素材/采编 – 青青
+撰稿/翻译/听写 – 自由法兰西
+素材/采编 – 文莱
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 

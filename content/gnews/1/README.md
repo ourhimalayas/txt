@@ -2,24 +2,22 @@
 ---
 
 
-## 加拿大启动Aeroplan基金帮助乌克兰人赴加
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400556/)
+## G20加拿大和盟友抵制俄罗斯
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2400731/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、撰稿：自由法兰西
+##### 作者：加拿大温哥华扬帆农场 – 采编：青青、撰稿：文所未闻
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-《多伦多太阳报》4月20日报道，加拿大人现在可以捐赠现金或Aeroplan航空里程积分，帮助乌克兰人逃离战火，飞抵加拿大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2956.png)
-加拿大政府早些时候宣布接受乌克兰难民，并允许他们以临时居民身份在加拿大居住最多3年，已有超过54,000名乌克兰人获批。但目前当务之急是如何尽快帮助已逃离到欧洲各地的乌克兰人踏上前往加拿大的旅程。
+据加拿大《CTV新闻》4月21日报道，周三在华盛顿举行的G20集团财长和央行行长会议上会议上，当俄罗斯财政部长在G20会议上发言时，加拿大财政部长联同其他盟友集体退场，以抗议俄罗斯对乌克兰的武力入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2996.png)
+据悉，加拿大财政部长表示，俄罗斯非法入侵乌克兰是对全球经济的严重威胁。俄罗斯不应该被允许参加G20会议。面对俄罗斯的持续侵略和战争罪行，世界上的民主国家不会袖手旁观。
 
-移民部长弗雷泽表示，该项基金可以帮助至少1万名乌克兰人及其家人赴加。负责管理基金的Miles4Migrants慈善机构专门利用捐赠的飞行里程来帮助有合法旅行许可但囊中羞涩的难民逃离战火。
+得道多助，失道寡助。全球对俄罗斯的经济制裁日益加深，俄罗斯从全球事务中被踢出局已成事实。而背后的金主“中共”更是难逃其责。
 
-加航已率先为该项基金捐赠了1亿积分，约合200万美元；美国夏皮罗基金会宣布它将匹配捐赠最高不超过5000万积分的加拿大人捐款，约合100万美元。人们可以捐赠与Miles4Migrants合作的所有航空公司的里程积分，大多伦多犹太基金会则负责现金募捐。
-
-原文链接：[https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada](https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada)
+原文链接：[https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864](https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864)
 
 上传/发稿 – 文永
-撰稿/翻译/听写 – 自由法兰西
-素材/采编 – 文莱
+撰稿/翻译/听写 – 文所未闻
+素材/采编 – 青青
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
