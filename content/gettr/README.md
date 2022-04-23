@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/23/2022 12:51 PM (UTC)`
+
+ 4月23号：七哥大约在20分钟左右开始乱聊直播，大约时长半小时左右！
+![img](https://media.gettr.com/group32/getter/2022/04/23/12/fa0961d4-b4ff-11d4-37f5-5c355d084705/out.jpg)
+
+---
+
 `@miles 4/23/2022 12:32 PM (UTC)`
 
 2022.04.23早  新中国联邦 | 新闻  
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
 ![img](https://media.gettr.com/group34/getter/2022/04/22/22/d47979df-30f5-bf74-7f9b-ecd23072b98d/out.jpg)
-
----
-
-`@miles 4/22/2022 10:41 PM (UTC)`
-
-【Ukraine Rescue】 04/20/2022 Thubten Wangchen, the parliamentary director of the Tibetan government-in-exile, is interviewed by our fellow fighter Nicole at the border town Medyka. Both sides share the exact same opinion that CCP wants to control the whole world and has been violating human rights. The CCP is the biggest threat to world peace and  the whole world should work together to take down the CCP. Thubten Wangchen lived with the Dalai Lama in India for 11 years, and now serves as the head of the Tibetan Parliament in Barcelona, Spain.<br/><br/>【乌克兰救援】 04/20/2022 西藏流亡政府议会主任图登旺臣在梅迪卡边境接受战友妮可采访，双方对中共的认识完全一致：中共为了图霸世界，一直并正在大肆侵犯人权，它是世界和平最大的威胁，全世界都应该团结起来共同灭共。图登旺臣在印度达赖喇嘛身边生活了11年，现在西班牙巴塞罗那担任西藏议会主任。
-![img](https://media.gettr.com/group9/getter/2022/04/22/22/77bc97aa-1d8c-d7a1-9035-9e61508fa82b/out.jpg)
 
 ---
 

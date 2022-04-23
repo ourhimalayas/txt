@@ -2,30 +2,36 @@
 ---
 
 
-## 中日财经爆| Stripe宣布支持稳定币支付 将率先应用于Twitter
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397415/)
+## 新冠患者3成有后遗症
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397474/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/立正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04233.png)[图片来源](https://www.bullfrag.com/stripe-and-twitter-to-test-crypto-payments-feature-with-connect-and-usdc/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2865.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fthehill.com%2Fwp-content%2Fuploads%2Fsites%2F2%2F2022%2F03%2Fmr_covidvaccine_092721_ap-seth-wenig.jpg%3Fw%3D1280&amp;imgrefurl=https%3A%2F%2Fthehill.com%2Fpolicy%2Fhealthcare%2F3459664-quarter-of-us-covid-1)
 
-4月22日，数字支付处理服务商Stripe 宣布将允许企业通过加密货币向其用户付款，Twitter将是第一家客户，这是数字金融公司对数字资产抱有热情的最新迹象。
+近日，美国研究机构数据表明，中共病毒（新冠病毒）患者中有3成患有后遗症。该项研究结果由美国UCLA的Sun M.Yoo等人针对感染后急性后遗症(PASC)相关的研究而得出的结论。
 
-Stripe是一家金融服务和软件即服务（SaaS）公司，该公司主要为电子商务网站和移动应用程序提供支付处理软件和应用编程接口，目前市值950亿美元，
+**症状持续60天以上**
 
-Stripe表示，它将开始通过加密货币公司Circle发行的稳定币USDC，为商家提供以加密货币支付的能力。稳定币是与法定货币挂钩的代币，以维持稳定的价格。
+在美国，老年人、少数民族、社会弱者中COVID-19导致的死亡率很高，但是对称为Long COVID和PASC的关系一无所知。因此，Yoo等人对症状性COVID-19患者进行了PASC相关的研究。
 
-在Stripe的技术支持下，Twitter将是第一家整合新支付方式的公司。从周五开始，这个社交媒体平台将让一定数量的创作者从其付费的Ticketed Spaces和Super Follows功能中获得USDC的收入。
+**倦怠感最多**
 
-Stripe表示：“我们计划随着时间的推移增加对其他轨道和支付货币的支持。”
+调查的结果显示，住院患者800例中246例(30.8%)，外来患者238例中63例(26.5%)，整体1,038例中309例(29.8%)被认定为PASC（后遗症）。
 
-这是自四年前放弃对比特币的支持以来，Stripe首次大幅推动加密货币的发展。Stripe于2018年1月停止接受比特币支付，理由是数字硬币因价格波动和日常交易效率低下。在去年11月，Stripe联合创始人约翰-科里森(John Collison)暗示，该公司可能很快再次提供加密货币支持。
+出院/门诊30天后的调查报告，急性COVID-19感染者症状中,最频繁的是倦怠感73.2%。其次,呼吸短促63.6%,发热、寒51.5%,肌肉痛50.6%。
 
-Stripe周五在一篇博文中说：“虽然加密货币的‘价值存储’方面通常受到最多关注，但我们认为‘开放的全球金融轨道’的前景至少同样引人注目。因此，我们一直在探索如何利用基于加密货币的平台来解锁更广泛的访问。”
+出院/门诊60-90天后发现PASC的患者中，最多的症状是倦怠感(31.4%)，接着是呼吸短促(13.9%),味觉/嗅觉障碍(9.8%)。发热(1.9%)和疹子(不到1%)很少。
 
-Stripe不是唯一一家向数字货币开放其平台的数字金融公司，事实上，该公司可以说是姗姗来迟。维萨(Visa)、万事达(Mastercard)和贝宝(PayPal)以及其他主要支付处理商都已经宣布了自己在该领域的行动，当时数字货币还处于上涨的行情中。
+根据出院/门诊患者的不同，看PASC症状,两群的倦怠感最多，住院患者的呼吸短(15.4%)，外来患者的味觉/嗅觉障碍(15.9%)是第二多。
 
-消息来源：[支付公司Stripe支持稳定币！从推特公司开始 创作者获得USDC收入](https://ca.fx168news.com/cryptocurrency/2204/5840916.shtml)
+年龄、种族/民族、SVI、有无基础代谢病与PASC的发病无关。
+
+Yoo先生表示:“这次我们的研究显示,每10名COVID-19患者中有3人出现与PASC的症状,最频繁的是倦怠感。作为与PASC相关的独立因子,通过COVID-19提取了住院、糖尿病、BMI高值。但是,与COVID-19重症及死亡、高龄、少数民族、社会弱者, 与PASC没有关联。
+
+此外，“这项研究了解Long COVID的轨迹,现有并存疾病、社会人口统计学因素、疫苗接种情况、病毒变异型等个别因素，以及是如何影响Long COVID症状的种类和持久性。因为患者仍末完全健康，有必要长期地追踪各种患者。
+
+信息来源：[コロナ患者の3割が後遺症を発症](https://medical-tribune.co.jp/news/2022/0421545347/?utm_source=recent&amp;utm_medium=email&amp;utm_campaign=mailmag220422)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

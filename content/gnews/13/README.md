@@ -2,22 +2,33 @@
 ---
 
 
-## 樱花时政┃中共媒体开始转向北京疫情
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2398175/)
+## 在马里乌波尔找到新的集体墓地 或埋葬1000名居民 联合国高层与普京举行会谈（下）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2398304/)
 
-撰稿：东京樱花团/Garrettw
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+上一篇：[在马里乌波尔找到新的集体墓地 或埋葬1000名居民 联合国高层与普京举行会谈（下）](https://gnews.org/zh-hans/2398247/)
 
-4月23日，北京召开第312场疫情防控新闻发布会。北京新增15例确诊病例，涉朝阳、顺义、房山,含9名学生、1名外卖快递配送员；4月22日以来累计报告20例感染者，目前已隐匿传播一周。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-505.jpg)[**图片来源**](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg-issue.yunnan.cn%2Fuploadfile%2Ftest%2F2022%2F0317%2F202203170914133511.jpg&amp;imgrefurl=https%3A%2F%2Fm.yunnan.cn%2Fsystem%2F2022%2F03%2F17%2F031974629.shtml&amp;tbnid=CQNLDfojCciw5M&amp;vet=12ahUKEwiixtnDkKr3AhUBdRQKHYREBlgQMygAegUIARCDAQ..i&amp;docid=pDVym5k8X60RPM&amp;w=2829&amp;h=1992&amp;q=%E5%8C%97%E4%BA%AC%E7%96%AB%E6%83%85%E9%80%9A%E6%8A%A5%E4%BC%9A&amp;ved=2ahUKEwiixtnDkKr3AhUBdRQKHYREBlgQMygAegUIARCDAQ)
-其他中共的宣传媒体也提及此次疫情已隐匿传播了一周，如环球时报，中共的青年报，好看视频等，而且还登上百度热搜的前三；中共的此次发布的北京疫情涉及了，朝阳，顺义，房山等区域，涉及学校、旅行团及多个家庭。对接下来的所有的相关人员及各类产所开始核算封锁了，进而整个北京封锁。中共向来就是如此忽悠老百姓，事出有因，干什么都是对的。同时中共的假恶丑，都是爆料革命新中国联邦的武器，也再次验证郭文贵先生于4月22日在Gettr的紧急直播中说的：北京一定会戒严，北京五环以内及六环和七环之间有十几个点大量进驻武警，应该是北京大隔离的前奏。
+在这种情况下，面对停火，联合国高层将进入当地。
+视频来源：FNN新闻
+联合国秘书长古特雷斯26日将在俄罗斯莫斯科与普京总统举行会谈；28日，他将在乌克兰与泽连斯基总统会晤。
 
-希望北京的普通百姓尽快尽早离开。一切都已经开始了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-140.png)图片来源：百度
-消息来源：[北京疫情开始了](https://baijiahao.baidu.com/s?id=1730894465697550892&amp;wfr=spider&amp;for=pc)
+与双方会谈，被认为是寻找停火的线索。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+俄罗斯军队认为，下一个目标是南部等国的完全控制，战斗将更加激烈。
+
+乌克兰总理施米哈里在美国华盛顿与国务卿布林肯会晤，“我确信他将赢得与俄罗斯的战争”，并要求美国提供进一步支持。
+
+参考链接：[マリウポリで新たな集団墓地見つかる 1000人の住民埋葬か　国連トップ プーチン氏と会談へ (fnn.jp)](https://www.fnn.jp/articles/-/351149)
+
+* * *
+
+素材：宫米叶
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
