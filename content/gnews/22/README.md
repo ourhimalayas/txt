@@ -2,8 +2,8 @@
 ---
 
 
-## 上海，發國難財。視頻中顯示低價進、高價出，一箱雞蛋賺70-80，一車雞蛋賺7-8萬，一天賺64萬。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395877/)
+## 安徽蕪湖封城，市民半夜搶菜。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2395943/)
 
 作者：东京樱花团小视频组
 

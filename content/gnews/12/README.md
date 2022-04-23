@@ -2,46 +2,42 @@
 ---
 
 
-## 大直播后记：盗国贼没事偷着乐，老百姓还能跪着活？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2395954/)
+## 今年有769名运动员在比赛中倒下 怎么回事？（1/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396021/)
 
-#### 整理：红红火火
-编辑：伏而起之
+翻译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片35-24.png)
-
-图片来源：雅典娜设计组（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
 
 
-**Jessica：**
 
-生在中国，没事你就偷着乐吧，其实这话不是对我们普通百姓说的，这有可能是盗国贼们的家训，对他们那些不肖子孙说的——生在中国，你们就偷着乐，哪有这么多的韭菜，哪有这么多的愚蠢的韭菜来供养我们？所以，墙内的同胞快点醒过来吧，这也是我们每天在这里做直播的意义所在，就是能唤醒更多的人，让他们听到不同的声音。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-230.png)
 
-**大根:**
+在 2021 年 3 月至 2022 年 3 月的一场比赛中，超过 769 名运动员倒在了赛场上。
 
-谢谢，有请我们的雅各先生。
+One America News Network (OAN)披露了这一令人震惊的统计数据，该网络还发现，心脏骤停运动员的平均年龄仅为 23 岁。
 
-**雅各:**
+由调查人员、新闻编辑、记者和“寻求真相的人”组成的团队“好科学”（Good Sciencing ）的最新报告，详细介绍了运动员在 COVID-19 注射后发生的 890 次心脏骤停和其他严重问题，包括 579 人死亡。
 
-我前几天跟一位缅甸的朋友在交流，他谈到了缅甸民众对军方独裁的反抗，很多神学院的学生现在都不能正常上课，因为他们要去反抗。听完之后，我就非常惭愧，为什么？因为我在想，缅甸这个国家可以做到这个程度，为什么中国不可以呢？
+随着此类情况变得不可忽视，甚至澳大利亚的主流媒体体育频道都推测，健康问题可能与 COVID-19 注射有关，其中一位主持人承认，多名球员在 COVID-19加强剂注射后患有心脏问题和贝尔麻痹。
 
-现在这个封城和核酸检测，已经威胁到每个民众的生命财产安全，没有这种反抗，或者说很少有这种系统性的反抗。那我就在想，缺乏一个反抗的土壤，即使有一个人，或者说一小部分人出来反抗，如果得不到支持的话，他很快就会被消灭。就像一根火柴一样，你一根火柴能点多久？消灭一根火柴是容易的，但是如果一根火柴能够点燃整片火的话，它就会成为一个燎原之火啊。
+接下篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）
 
-所以，我们不一定会成为那个振臂高呼的人，但我们至少要做支持这种人的土壤的一部分。对于体制内这些朋友们来讲，你们不一定能够扑灭习太阳他们的邪恶之火，但是你们至少可以成为枪口抬高一寸的人，然后保留证据，我相信将来对你们的后代和自身的生命财产安全会有巨大的帮助。
+新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
 
-**大根:**
+* * *
 
-谢谢，非常感谢各位。我想分享几个数字，冰冷的数字，大家可以从这几个数字得到自己的答案。香港运动中750万人口抗争了几年，官方的非正常死亡人数是2000多人，然后七哥爆料，如果没记错应该是在1万。香港抗争了几年，我就跟你干了，就是这种抗争，管他赢输，我就跟你干。上海是一个2500万的城市啊，按照七哥的爆料，现在死亡可能百万了。这就是上海，大陆就是绝对顺从的。我们扩大到俄乌战争，大家看得到，打了一个多月了，我去看了一下两个国家的死亡人数，加在一起，官方报道大概是15000人左右，还有人说这个数字说多了。
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
-资料来源：[4月22日文贵大直播](https://gettr.com/post/p16lhcr821c)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
 
  
 

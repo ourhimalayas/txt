@@ -2,33 +2,52 @@
 ---
 
 
-## 沪指再度失守3100 人民币汇率创6个月新低
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395950/)
+## 美国CDC就儿童不明原因肝炎病例发出全国性警报
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2396016/)
 
-作者：香草山教育部-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-综合媒体4月21日报道，随着上海中共疫情封锁的继续，沪指再度失守3100点，中共国内和香港股价均跌至四周低点；人民币对美元即期汇率亦连续两日大跌，创六个月以来新低。
+翻译：多伦多蓝莲花- 灭共文明
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/b-3.png)图片源自网络
+编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
+《零对冲》4月22日报道，**在阿拉巴马州的儿童被发现有腺病毒和肝炎感染后，美国疾控中心发布了一个健康警报。**
 
-据了解，中共股市三大指数今日收盘跌幅均超出了2%，各个板块几乎全线下跌。其中，沪指再度失守3100点，两市逾百股跌停，超4400股下跌。与此同时，人民币对美元汇率在在岸市场连续两日大跌，跌幅超过1%。，而更多反映国际投资者预期的离岸人民币对美元汇率亦同样出现暴跌，人民币跌至六个月来的最低点。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CDC.jpg)美国疾控中心（图片来源：路透社）
 
-据相关机构分析，美联储加息在即，能源价格亦在高位攀升，加之上海疫情的扩散和封锁政策的延续，种种原因均促使了外资对中共经济的前景丧失信心。同时，中共党魁习近平在今日的博鳌论坛上公然发表反对西方制裁的演讲，尤其是对中俄“友谊”的肯定亦使投资人们纷纷对中共失去信任，从而加速了股票、债券市场的资金外流，进一步导致了人民币的汇率增大。股市与人民币汇率的接连失守或正意味着中共经济已岌岌可危。
+此前，该州一家大型医院的临床医生向疾控中心报告，有一群**儿童同时感染了肝炎和腺病毒。** 美国疾控中心称，医院报告了五名有**明显肝损伤的儿科患者**，包括三名**急性肝衰竭患者**，他们的**腺病毒检测结果也呈阳性**，并补充说，这些孩子以前是健康的，没有人感染过中共病毒。
 
-【新闻来源】[http://stock.jrj.com.cn/2022/04/21150236418689.shtml](http://stock.jrj.com.cn/2022/04/21150236418689.shtml) [https://finance.sina.com.cn/stock/roll/2022-04-21/doc-imcwiwst3192864.shtml](https://finance.sina.com.cn/stock/roll/2022-04-21/doc-imcwiwst3192864.shtml) [https://tw.news.yahoo.com/博鰲亞洲論壇登場-人民幣跌破6-41探5個月低點-鏡新聞-074735155.html](https://tw.news.yahoo.com/%E5%8D%9A%E9%B0%B2%E4%BA%9E%E6%B4%B2%E8%AB%96%E5%A3%87%E7%99%BB%E5%A0%B4-%E4%BA%BA%E6%B0%91%E5%B9%A3%E8%B7%8C%E7%A0%B46-41%E6%8E%A25%E5%80%8B%E6%9C%88%E4%BD%8E%E9%BB%9E-%E9%8F%A1%E6%96%B0%E8%81%9E-074735155.html) [https://www.asiafinan](https://www.asiafinancial.com/china-hong-kong-stocks-sink-on-supply-chain-slowdown-fears)
+疾控中心还指出，五名儿童患有**41型腺病毒**，**通常表现为腹泻、呕吐和发烧，而且它往往可以伴随着呼吸道症状。**
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+据报道，该医院的病例调查工作还发现了另外四名患有肝炎和腺病毒感染的儿科病人，从2021年10月到2022年2月，总共有九名病人入院。其中两名患者需要进行肝脏移植。
 
-编辑/校对/发稿：Daxia
+据《**美国国立生物技术信息中心**》NCBI 2021年7月8日在线发表了一篇关于《**2019年冠状病毒病后发生的自身免疫性肝炎的诱因**》的文章中，强调了**新冠病毒mRNA疫苗可能增加患者自身免疫疾病的风险，包括吉兰-巴雷综合征和原发性胆管炎**。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/001-7.jpg)儿童正在接种疫苗（图片来源：网络）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+美国卫生部门官员告诉当地媒体，除阿拉巴马州的9个病例外，北卡罗来纳州也发现了两个病例。
 
+当局目前正在调查小儿肝炎和腺病毒病例之间的联系。该机构还要求临床医生和州公共卫生官员，如果发现10岁以下儿童的天门冬氨酸氨基转移酶或丙氨酸氨基转移酶升高，表明肝脏有问题，就要报告。
 
+报道指出，本月早些时候，**英国报告了A、B、C、D和E型肝炎病毒检测阴性的儿童小儿肝炎病例，其中包括一些腺病毒感染者**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002-6.jpg)
+新冠病毒（图片来源：网络）
+
+英国当局表示，**在英国至少有100名10岁以下的儿童被诊断出患有原因不明的急性肝炎。**
+
+据**欧洲疾控中心**在星期二的**公告中称，丹麦、西班牙和荷兰也发现了类似病例。**
+
+新闻来源链接：
+
+[https://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-childrenhttps://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-children](https://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-childrenhttps://www.zerohedge.com/medical/cdc-issues-nationwide-alert-about-mysterious-hepatitis-cases-children)
+
+校对与发布：飞花逐月
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

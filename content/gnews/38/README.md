@@ -2,92 +2,59 @@
 ---
 
 
-## 参议员泰德·克鲁兹：美国对中共国的依赖是严重的国家安全风险
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2394504/)
+## COVID-19疫苗副作用集萃(2022.4.23F)-新冠疫苗对身体带来的副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2394721/)
 
-**参议员泰德·克鲁兹**： 
-长期以来，美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的依赖一直是严重且持续存在的国家安全风险。在 COVID ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) ) 之后，不再有任何不作为的借口。我们需要放开我们的供应链。 【转推文：在上海几乎完全封锁的情况下，这是目前在海上等待装卸货物的商船地图； 加剧全球供应链困境】
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
+#### 整理/编辑：禄森
 
-
-> America's dependency on China has long been an acute and persistent national security risk. After COVID, there's no excuse anymore for inaction. We need to unwind our supply chains. [https://t.co/D0qM80Stz7](https://t.co/D0qM80Stz7)
-> — Ted Cruz (@tedcruz) [April 22, 2022](https://twitter.com/tedcruz/status/1517519014767087617?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-80.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-**美国务卿安东尼·布林肯**： 
-与乌克兰总理杰尼斯·什米加尔[@Denys\_Shmyhal](https://twitter.com/Denys_Shmyhal) 会面，讨论乌克兰最需要什么来保卫自己和进行重建。 乌克兰捍卫自由和民主的勇气鼓舞了我们所有人。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+**帖子原文**：
 
+**博主: 墨墨在日本搬砖**
 
-> Excellent meeting with Prime Minister [@Denys\_Shmyhal](https://twitter.com/Denys_Shmyhal?ref_src=twsrc%5Etfw) to discuss what Ukraine needs most to defend itself and rebuild. Ukraine’s courage in defense of freedom and democracy inspires all of us. [pic.twitter.com/skj81WoqIZ](https://t.co/skj81WoqIZ)
-> — Secretary Antony Blinken (@SecBlinken) [April 22, 2022](https://twitter.com/SecBlinken/status/1517603397029056512?ref_src=twsrc%5Etfw)
+疫苗第三针反应
 
+昨天打了摩德纳第三针，距离第二针7个月多，还以为第三针不会像第二针那样反应剧烈，还是自己太年轻。昨天上午11点半打的，下午手臂就开始疼。晚上10点左右开始有发烧反应，先是全身哆嗦，发冷汗，然后逐渐开始头疼发烫，不用测都知道发烧了，吃了EVE就睡过去了。第二天也就是今天又烧了一次，全身发汗，睡衣都湿透了。傍晚冲了个澡，按第二针反应经验，应该发完两回就没事了。太难受了，据说第四针已经在路上了。啥时候是个头啊
 
+**作者发布于2022-3-26**
 
-**前国务卿迈克.蓬佩奥**： 
-共和党人认真对待移民问题——我们开启了修建（边境）隔离墙，并说：如果你想成为美国公民，就要以正确的途径去做！ 移民并不像职业政治家想让我们相信的那么复杂。
+**评论选集**
 
+吕方琳评论:
 
+打完第二天烧38.6照样骑车来回一个小时去接娃，没吃退烧药，因为觉得就是针的副作用，难受是挺煎熬的，但好了还是会再打第四五针，没办法啊怕将来不打会受限，谁知道呢
 
-> Republicans took immigration seriously – we started building the wall and said if you want to become an American citizen, do it the right way! Immigration isn’t as complicated as career politicians want us to believe.
-> — Mike Pompeo (@mikepompeo) [April 22, 2022](https://twitter.com/mikepompeo/status/1517508528369541121?ref_src=twsrc%5Etfw)
+妖精评论:
 
+昨天中午打的，从38.3-39已经烧了一个晚上了
 
+苏打柠檬青梅薄荷酒评论:
 
-**参议员霍利新闻办公室**： 
-在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 最近威胁要在该地区(台湾)发动‘暴力’攻击的情况下，参议员霍利“正在带头立法，以加快美国向 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 运送武器的速度。” 【转华盛顿自由灯塔报道： 霍利：美国必须“尽快”武装台湾】
+我昨天打的，烧了一整夜，现在都还没退，求一个有用的退烧药，真遭不住了
 
-
-
-> Senator Hawley “is spearheading legislation that would expedite U.S. arms shipments to Taiwan amid the Communist Party’s latest threat to unleash 'violence' in the region."[https://t.co/rn4lBnUFLA](https://t.co/rn4lBnUFLA)
-> — Senator Hawley Press Office (@SenHawleyPress) [April 22, 2022](https://twitter.com/SenHawleyPress/status/1517551158637772801?ref_src=twsrc%5Etfw)
-
-
-
-**参议员卢比奥新闻办公室**： 
-商务部长雷蒙多[@SecRaimondo](https://twitter.com/SecRaimondo) 一再淡化 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的威胁。 今天，在美国商务部[@CommerceGov](https://twitter.com/CommerceGov) 官方声明中， 雷蒙多用 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的首选名称来指代 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)。 这是拜登政府对我们在台湾的民主盟友的侮辱。
-【转美国外交政策委员会成员Michael Sobolik 的推文： 吉娜·雷蒙多和美国商务部将台湾称为“中国台北”是否有正当理由？ 】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-75.png)图片来源：小红书
 
 
-
-> .[@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) has repeatedly downplayed the threat of the Chinese Communist Party.⁰⁰Today, in an official [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) statement, Raimondo refers to [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s preferred title. This is an insult to our democratic allies in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) from the Biden Administration. 🇹🇼 [https://t.co/fxVfD92FQk](https://t.co/fxVfD92FQk)
-> — Senator Rubio Press (@SenRubioPress) [April 22, 2022](https://twitter.com/SenRubioPress/status/1517582195711434753?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-29.png)图片来源：小红书
 
 
+参考链接：[全身哆嗦，发冷汗，头痛发热](https://www.xiaohongshu.com/discovery/item/623f130b0000000001028e45?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650611723)
 
-**众议员马乔丽·泰勒·格林**： 
-共和党人必须保护选举的廉正性。 这是我们国家最重要的问题之一。 当人民失去投票权和选择议员的自由时，我们的国家就失去了。 只有人民才有权利选择将谁送到国会。
+发布：*wenly*
 
-
-
-> Republicans must protect election integrity.
-> 
-> It’s one of the most important issues in our country.
-> 
-> When the People lose their right to vote & their freedom to choose their representatives, our country is lost.
-> 
-> Only the People have the right to choose who they send to Congress.
-> — Rep. Marjorie Taylor Greene (@RepMTG) [April 22, 2022](https://twitter.com/RepMTG/status/1517483596075917312?ref_src=twsrc%5Etfw)
-
-
-
-**众议院外交委员会共和党**： 
-委员会领袖麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul)：“美国与所罗门群岛有着战时纽带，这种纽带无论如何都会持续下去，但我们感到担忧，因为这种不透明、开放式的军事协议威胁到所罗门群岛的主权及其人民的利益。
-“鉴于这些岛屿的战略位置，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 显然想利用所罗门群岛作为战略资产来颠覆印-太地区的军事稳定。
- “我希望索瓦加雷总理记住中共外交政策负责人杨洁篪的话：‘中国是大国，你们是小国，这是事实。’ ”
-
-阅读更多内容
-【转politico 报道：习近平在太平洋岛国外交对决中击败拜登 所罗门群岛政府周三宣布，它与中共国签署了一项有争议的安全协议，美国及其盟国担心这可能会给北京在太平洋地区的军事行动提供一个新的滩头阵地。】
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "The U.S. shares a wartime bond with the Solomon Islands that will endure no matter what, but we are concerned because this opaque, open-ended military agreement threatens the sovereignty of the Solomon Islands and the interests of its people.
-> — House Foreign Affairs GOP (@HouseForeignGOP) [April 21, 2022](https://twitter.com/HouseForeignGOP/status/1517149642512773120?ref_src=twsrc%5Etfw)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

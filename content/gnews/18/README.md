@@ -2,31 +2,37 @@
 ---
 
 
-## 俄罗斯测试新导弹进行核威胁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2395925/)
+## 英国议会拟立法 禁止购买新疆生产的医疗用品
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2395973/)
 
-作者：纽约香草山农场教育部-马克文、百合观察
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-在俄罗斯入侵乌克兰大约2个月后，俄罗斯称测试了一种新的具有核武能力洲际导弹，普京称“这是世界最好的核导弹”。普京八周前宣布入侵时，普京就提到了俄罗斯的核力量，并警告威胁西方民主国家。联合国秘书长安东尼奥·古特雷斯表示，“曾经不可想象的核冲突前景，现在再次成为可能。”
+**撰稿：日本东京方舟农场  子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a-8.png)图片源自网络
+4月22日，英国议会提议修改立法，禁止卫生服务部门购买新疆地区生产的医疗用品。
 
-离俄罗斯重要的二战胜利庆祝日只有几周的时间了，普京在乌克兰军事行动连续失败后，急于在节日到来之际做表现，用一些技术成就展示给俄罗斯老百姓看，同时威胁乌克兰等西方国家。
+英国政府周五表示，已经提出了一项对《健康和社会保健法案》的修正案，旨在消除国民健保署（NHS）对“受奴役和人口贩运影响”的商品和服务的使用。
 
-俄罗斯自从2月24日入侵乌克兰以来，派出了数万的俄军士兵，受到了乌克兰激烈抵抗，再加西方对俄罗斯实施了全面制裁，以及对乌克兰军事经济支持，乌克兰成功的阻止俄罗斯普京想要占领主要城市。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-8.jpg)（图片来自大纪元）
 
-【参考链接】 [https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/](https://www.reuters.com/world/europe/russia-tests-new-intercontinental-ballistic-missile-2022-04-20/) AA[https://www.reuters.com/article/un-secretary-general-0314-mon-idCNKCS2LC05Z](https://www.reuters.com/article/un-secretary-general-0314-mon-idCNKCS2LC05Z)
+虽然此修正案没有具体提及新疆，但将有助于确保NHS不购买或使用涉及任何形式的奴工产品或服务。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+此举意味着英国可以制定法规，规定NHS应采取相应的步骤，来评估与供应商相关的风险水平，以及将其排除在招标过程之外。
 
-编辑/校对/发稿：Daxia
+卫生部长萨吉德‧贾维德（Sajid Javid）说，我希望这成为英国消除全球供应链中奴工制和人口贩运的转折点。作为本国最大的公共采购机构，NHS完全有能力带头开展这项工作。”据悉，英国议会下议院将从4月25日开始讨论这些修正案。
 
-**更多资讯，更多关注**
+此前，尽管中共在新疆问题上一再辩称，新疆集中营是再教育和培训设施，并否认有任何虐待行为，称其只是打击宗教极端主义。但是，人权组织和英国议员指责中共对维吾尔人和其它群体进行大规模镇压，包括酷刑和强迫劳动，以及将100万新疆人关押在集中营等。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+2021年4月22日，英国议会宣布中共对新疆的镇压为种族灭绝。同时，英国政府对一些中共官员实施制裁，并出台规则试图阻止与新疆地区有关的商品进入供应链。
+
+美国2021年1月宣布禁止从新疆进口棉花和西红柿等产品；同年6月，美国政府禁止进口新疆地区制造的部分太阳能产品材料，同时对五家中共国公司实施制裁，将它们加入限制出口黑名单。
+
+此外，西方一些知名品牌包括耐克等公司宣布停止使用新疆生产的棉花等材料，作为抗议中共在新疆对维吾尔等少数民族实施镇压和奴役。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/22/n13717922.htm](https://www.epochtimes.com/gb/22/4/22/n13717922.htm)
+
+总编：老孙
+校对发布：文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

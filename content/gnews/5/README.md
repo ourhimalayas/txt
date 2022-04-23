@@ -2,43 +2,33 @@
 ---
 
 
-## 今年有769名运动员在比赛中倒下 怎么回事？（1/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2396021/)
+## 台湾援助乌克兰并表示双方都在抵挡威权主义的最前线
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2396086/)
 
-翻译： Jenny Ball
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-487.jpg)图片来自网络
+《海峡时报》近日报道，台湾外长周五（4月22日）在宣布向基辅和乌克兰医疗机构捐赠800万美元（1100万新元）时，告诉乌克兰首都市长，他们的民主国家站在 “抵抗 “大型专制邻国的第一线。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-40.jpg)
+乌克兰战争在台湾获得了广泛的同情，许多人认为俄罗斯的入侵（莫斯科称之为特别军事行动）与中共国的军事压力有相似之处，中共国一直以来将民主自由的台湾视为自己的领土。
 
+台湾已经谴责了俄罗斯的入侵，加入了西方主导的制裁，并为乌克兰难民捐赠了2000万美元，这些资金主要来自于台湾民众。中共国没有谴责俄罗斯，只捐赠了1500万人民币（320万新元）的人道主义援助。
 
+外交部长吳釗燮通过视频会议向基辅市长维塔利-克里奇科表示，台湾和乌克兰都是民主国家，”站在抵制威权主义扩张的第一线”，吴先生的部门援引他的话说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-230.png)
+“台湾政府和人民也面临着来自台湾海峡两岸威权政权的高度威胁，因此对乌克兰目前所面临的局势感同身受，”吴先生补充说，“威权政权”指的是中共国。
 
-在 2021 年 3 月至 2022 年 3 月的一场比赛中，超过 769 名运动员倒在了赛场上。
+台湾以前没有宣布过台湾和乌克兰高级官员之间的会谈。
 
-One America News Network (OAN)披露了这一令人震惊的统计数据，该网络还发现，心脏骤停运动员的平均年龄仅为 23 岁。
+台湾与乌克兰没有外交关系，与许多欧洲国家的首都不同，台湾甚至没有在基辅设立代表处。
 
-由调查人员、新闻编辑、记者和“寻求真相的人”组成的团队“好科学”（Good Sciencing ）的最新报告，详细介绍了运动员在 COVID-19 注射后发生的 890 次心脏骤停和其他严重问题，包括 579 人死亡。
+参考链接：
 
-随着此类情况变得不可忽视，甚至澳大利亚的主流媒体体育频道都推测，健康问题可能与 COVID-19 注射有关，其中一位主持人承认，多名球员在 COVID-19加强剂注射后患有心脏问题和贝尔麻痹。
+[https://www.straitstimes.com/asia/east-asia/taiwan-offers-aid-to-kyiv-tells-mayor-they-are-both-on-frontline-resisting-authoritarianism](https://www.straitstimes.com/asia/east-asia/taiwan-offers-aid-to-kyiv-tells-mayor-they-are-both-on-frontline-resisting-authoritarianism)
 
-接下篇今年有769名运动员在比赛中倒下 怎么回事？（2/3）
+*编辑：金生水*
 
-新闻来源：[769 Athletes Collapsed This Year During Competition. What’s Going On?](https://childrenshealthdefense.org/defender/athletes-collapsed-during-competition-cola/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6b27e4ab-c4e9-45c1-a185-8545aa3d3c2a)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xixi.jpeg)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
