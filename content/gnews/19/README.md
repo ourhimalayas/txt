@@ -2,42 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.24A)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401483/)
+## 俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2401503/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-#### 整理/编辑：红红火火
+据《中央社》4月22日报道，俄罗斯民众为抗议普京发动侵略乌克兰战争，已纵火烧了5个征兵办公室。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-84.png)图片来源：雅典娜设计组(614)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-51.jpg)（图片来源：推特）
 
+报导称，自俄罗斯入侵乌克兰以来，俄罗斯当地民众相继以火烧征兵办公室的行动来抗议侵略战争。莫尔多维亚（Mordovia）偏远地区的民众近期向征兵处投掷汽油弹摧毁了多台电脑，以及祖博瓦波利亚纳区（Zubova Polyana）的征兵资料库。因此，当地的征兵活动宣告暂停。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+除此之外，卢霍维齐（Lukhovitsy）、佛洛尼斯（Voronezh）、斯维尔德洛夫斯克（Sverdlovsk）和伊文诺弗（Ivanovo）的征兵办公室也在开战不久后被当地居民投掷汽油弹攻击。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+报导指出，被当局逮捕的年轻人表示想以破坏征兵的行动来抗议俄罗斯入侵乌克兰。这些人将面临刑事指控，罪名包括毁损财务、谋杀未遂与恐怖主义等。
 
-博主:  无语凝耶DC
+据悉，俄国每年征兵2次，一次在春季，一次在秋季，征兵对象为18至27岁男性，入伍服役1年。本月展开的春季征兵，目标是在7月15日前征召13万4500名新兵。
 
-**帖子原文:**
+参考链接：
+[https://www.cna.com.tw/news/aopl/202204220230.aspx](https://www.cna.com.tw/news/aopl/202204220230.aspx)
 
-一直没怀疑过。但自从去年下半年接种完新冠疫苗至现在心脏一直不适，比如现在的惊醒，胸闷，气短，心跳加速，困却难以入眠，头晕，记忆力衰退等等。去医院检查没发现问题，开了一个月的药也已吃完，未见好转。以前心脏可一直没问题啊。目前身体逐渐变垮，无法控制。也没见有啥报道、说法、办法。
-
-#新冠疫苗
-
-发布于 2022-04-22
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-112.png)图片来源：微博
-
-
-参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑：海星
+总编：老孙
+校对发布：Linda
 
  
 

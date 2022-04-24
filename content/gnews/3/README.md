@@ -2,8 +2,8 @@
 ---
 
 
-## 马斯克成功挑战俄罗斯，五角大楼：SpaceX成功阻止俄对乌电子战。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401654/)
+## 形形色色的上海方艙。人員密集，男女混合隔離。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401688/)
 
 作者：东京樱花团小视频组
 

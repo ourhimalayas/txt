@@ -2,97 +2,70 @@
 ---
 
 
-## 众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2401237/)
+## 制裁打击俄罗斯经济，尽管普京不这么说
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2401250/)
 
-**众议员迈克·沃尔茨**： 
-尽管(对俄)实施了制裁，但看到有漏洞被人利用仍然令人沮丧。 欧洲仍在从俄罗斯购买数千亿立方米的天然气，为普京的战争机器提供资金。 美国和欧洲应该采取更多措施来阻止普京。 【附沃尔茨议员接受采访视频】
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1128492268_16479357587771n-edited.jpg)图片来自网络
 
+在俄乌战争爆发近两个月后，克里姆林宫采取了非同寻常的措施来阻挡西方的经济反击。虽然俄罗斯可以宣称取得了一些象征性的胜利，但西方制裁的全部影响已经开始以非常真实的方式体现出来。
 
+随着西方国家切断俄罗斯的外汇储备，限制关键技术的进口并采取其他限制性行动，克里姆林宫采取了一些严厉的措施来保护经济。这些措施包括将利率提高到20%，实行资本控制，并迫使俄罗斯企业将其利润兑换成卢布。
 
-> It's frustrating to see the loopholes being taken despite the sanctions in place.
-> 
-> Hundreds of billions of cubic-meters of gas are still being bought by Europe from Russia, financing Putin's war machine. There's a lot more the U.S. and Europe should be doing to stop Putin. [pic.twitter.com/ISf7ivTBXA](https://t.co/ISf7ivTBXA)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517930049827188737?ref_src=twsrc%5Etfw)
+结果，卢布的价值在最初的暴跌之后有所恢复，上周中央银行撤销了部分加息。俄罗斯总统弗拉基米尔-普京感到有恃无恐，并宣称–唤起二战的想象–该国经受住了西方制裁的“闪电战”。
 
+印第安纳大学经济学教授迈克尔-阿列克谢耶夫（Michael Alexeev）说：“政府想描绘出这样一幅画面：事情没有实际情况那么糟糕。”他研究了苏联解体后转型期的俄罗斯经济。
 
+然而，仔细观察就会发现，制裁正在对俄罗斯的经济造成伤害：
 
-**美国国务院**： 
-拜登总统[@POTUS](https://twitter.com/POTUS) 宣布了一项名为“为乌克兰团结起来”的新计划，以使寻求避难的乌克兰人能够直接从欧洲来到美国。 “这个程序会很快。它会被精简顺畅。” 【附拜登讲话视频，将开通快速通道接受10万乌克兰难民】
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announces a new program, “Unite for Ukraine,” to enable Ukrainians seeking refuge to come directly from Europe to the United States. "This program will be fast. It will be streamlined." [pic.twitter.com/IJl844lCIE](https://t.co/IJl844lCIE)
-> — Department of State (@StateDept) [April 23, 2022](https://twitter.com/StateDept/status/1517873428098740224?ref_src=twsrc%5Etfw)
-
+- 该国正在经受二十年来最严重的通货膨胀袭击。国家的经济统计机构Rosstat说，上个月的通货膨胀率达到17.3%，是2002年以来的最高水平。相比之下，国际货币基金组织预计今年发展中国家的消费价格将从去年的5.9%上升到8.7%。
+- 一些俄罗斯公司已经被迫停业。多份报告称，一家坦克制造商由于缺乏零部件而不得不停止生产。美国官员指出，拉达汽车厂的关闭–这是俄罗斯公司Avtovaz生产的品牌，由法国汽车制造商雷诺公司控股–是制裁产生影响的一个迹象。
+- 莫斯科市长说，由于外国公司关闭业务，该市将损失20万个就业机会。300多家公司已经撤出，在集装箱公司马士基、UPS、DHL和其他运输公司退出俄罗斯后，国际供应链已基本关闭。
+- 俄罗斯正面临着历史性的债券违约，这可能会使该国在几年内被冻结在债务市场之外。
 
 
-**前国务卿迈克.蓬佩奥**： 
-美国梦之所以强大，是因为每个人都可得到它。不要停止相信它！
+同时，财政部官员和大多数经济学家敦促耐心等待，制裁需要几个月的时间才能产生全面效果。如果俄罗斯在一段时间内无法获得适当数量的资本、零部件或供应品，这将导致更多的工厂和企业关闭，导致失业率上升。
 
+在俄罗斯因2014年夺取乌克兰克里米亚半岛而受到制裁后，其经济数据花了近一整年时间才显示出困境的迹象，如通货膨胀率上升、工业生产下降和经济增长放缓。
 
+“坦率地说，我们应该寻找的东西，以了解制裁是否有效，现在还不容易看到”，弗吉尼亚州威廉和玛丽学院的经济学教授大卫-费尔德曼说。“我们要看的是商品的价格，他们生产的商品数量和商品的质量。最后一项是最难看到的，也可能是最后出现的”。
 
-> The American Dream is powerful because it is available to everyone. Don’t stop believing in it!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517934426352664578?ref_src=twsrc%5Etfw)
+关于制裁如何影响俄罗斯经济的透明度是有限的，这主要是因为克里姆林宫采取了非同寻常的手段来支撑它，其最大的部门–石油和天然气–由于欧洲、中共国和印度对俄罗斯能源的依赖而基本没有受到影响。
 
+国际金融研究所的经济学家Benjamin Hilgenstock和Elina Ribakova在上个月发布的一份报告中估计，如果欧盟、英国和美国禁止俄罗斯的石油和天然气，俄罗斯经济今年可能收缩20%以上。目前的预测是收缩15%。
 
+虽然欧盟已经同意在8月前禁止俄罗斯的煤炭，并正在讨论对石油的制裁，但到目前为止，27个国家在停止石油和天然气方面还没有达成共识。欧洲对俄罗斯供应的依赖程度远远超过英国和美国，这两个国家已经禁止或正在逐步淘汰俄罗斯石油。同时，俄罗斯用石油和天然气每天从欧洲获得8.5亿美元。
 
-**参议员比尔·哈格蒂**： 
-拜登总统已发出公开邀请，将于 5 月 23 日跨越我们的南部边境。 我敢肯定，#中共 和贩毒集团正在将毒品生产提高到历史最高水平。 他们在美国杀死我们的孩子，把每个城镇都变成了边境城镇。 
-【译者注：拜登拟于5月23日结束第42条，该条款“允许政府在某些公共卫生紧急情况下阻止个人引入”】
+这并不是俄罗斯第一次全力维护卢布的价值，将其作为抵抗西方的象征。在整个20世纪70年代和80年代，苏联的官方汇率是1卢布约等于1.35美元，而黑市汇率则接近1美元兑4卢布。1990年代末的俄罗斯债务危机也部分是由克里姆林宫积极维护货币价值造成的。
 
+美国财政部官员否定了卢布复苏的意义。
 
+财政部长珍妮特-耶伦(Janet Yellen)说：“俄罗斯经济确实因我们实施的制裁而陷入困境，卢布的价值因中央银行的干预而被人为地抬高。”
 
-> President Biden has sent out an open invitation to come cross our southern border on May the 23rd. I'm certain that the CCP and the cartels are ramping up drug production to all-time high levels. They're killing our kids here in America and turning every town into a border town.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 22, 2022](https://twitter.com/SenatorHagerty/status/1517644417368301575?ref_src=twsrc%5Etfw)
+如果俄罗斯赢得这场经济战争，以及如何赢得这场经济战争，将取决于克里姆林宫是否能在西方国家推动分裂，使制裁变得零散和不那么有效。同时，俄罗斯将有时间为其无法再获得的商品开发替代品，这一概念被称为进口替代。
 
+回顾2014年的制裁，美国国会研究服务部在1月份说，对俄罗斯的影响不大，只是因为美国有效地单独行动。这一次，有多个国际参与者。
 
+但印第安纳大学教授Alexeev认为有一个明显的差距。
 
-**前国务次卿基思·克拉奇**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 不花一兵一弹就达到他们的地缘政治目的。他们持续性地以科技作为杠杆，让他们的极权主义政权受益。是时候反对这些行动了。这就是我们的“清洁网络”要达成的目标。 
-【转国家利益网文章，应对中国极权主义的答案, 是(采用)值得信赖的技术】
+“只要俄罗斯能够继续出售石油和天然气，他们就会蒙混过关”，他说。
 
+**新闻来源：**[Sanctions hit Russian economy, although Putin says otherwise](https://fortune.com/2022/04/23/sanctions-hit-russian-economy-although-putin-says-otherwise/)
 
+* * *
 
-> China achieves its geopolitical goals without sending an army or firing a shot. They have consistently leveraged [#technology](https://twitter.com/hashtag/technology?src=hash&amp;ref_src=twsrc%5Etfw) to benefit their totalitarian regime. It's time to stand up against these actions. That's what we achieved with the Clean Network. [https://t.co/nBfeYLFVhL](https://t.co/nBfeYLFVhL)
-> — Keith J. Krach (@KeithJKrach) [April 23, 2022](https://twitter.com/KeithJKrach/status/1517858345079742466?ref_src=twsrc%5Etfw)
+审核：Aries的星
+校对：阿伯塔
+发布：信心的选择
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-**参议员玛莎·布莱克本**： 
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” 
-——罗纳德·里根总统
-
-
-
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-当我担任国务卿时，美国的力量一直在我心中。 我们使世界各国的领导人信服于美国的实力，因此 (那时) 我们也更加安全。 我们需要再做一次！ 以实力求和平，行之有效！
-
-
-
-> When I was Secretary of State, American strength was always on my mind. We convinced world leaders of American power, and we were safer because of it. We need to do it again! Peace through strength works!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517912245774307329?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨**： 
-普京公开测试他的核能力，以表明它们是现代的、有效的并且他可以使用它们。 与此同时，拜登推迟并保持我们的（核武器）测试秘密。 这样的威慑不起作用。保持和平是要展示我们的力量、而不是把它隐藏起来。
-
-
-
-> Putin's openly testing his nuclear capabilities to show they're modern, they work & that he can use them.
-> 
-> Meanwhile, Biden's delaying & keeping our tests a secret. That's not how deterrence works. Peace is kept by demonstrating our strength not hiding it. [pic.twitter.com/mXmNdf4ytV](https://t.co/mXmNdf4ytV)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517936340947644421?ref_src=twsrc%5Etfw)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
  
 

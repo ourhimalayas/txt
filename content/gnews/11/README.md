@@ -2,19 +2,20 @@
 ---
 
 
-## 共产党会将毒疫苗害人事件转嫁给老百姓不听话和美帝国主义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2401579/)
+## 雅典娜时报-第272期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401607/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+#### 《雅典娜时报》汇聚全球新闻时事
 
-*发布：陶子*
+#### 编辑：精灵蓝
+排版：0-0
+![圖片](https://media.discordapp.net/attachments/825592691433668612/967325202587455498/272-1.jpg?width=862&amp;height=1219)![圖片](https://media.discordapp.net/attachments/825592691433668612/967325202830729256/272-2.jpg?width=862&amp;height=1219)
+发布：*陶子*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
