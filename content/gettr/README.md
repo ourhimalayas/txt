@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 11:29 AM (UTC)`
+
+ 4月24号：尊敬的战友们好……今天的直播多长时间好？
+![img](https://media.gettr.com/group46/getter/2022/04/24/11/1fc23bbe-b6c1-d84a-ecbd-1c436f2b1292/out.jpg)
+
+---
+
 `@miles 4/24/2022 9:48 AM (UTC)`
 
  4月24号：尊敬的战友们好……中国人仅仅用了5年时间就从全球的买买买……到今天的人间地狱的生活，这是什么原因造成的呢？
@@ -147,13 +154,6 @@
 
 4/23/2022 Miles Guo: Nancy Pelosi may not be able to visit Taiwan on April 26th. The CCP hired many agents in the US in an attempt to delay Pelosi’s Taiwan visit till July or August. Xi Jinping is anticipating chaos in the US after midterm elections. Xi plans to take advantage of the chaos to defeat the US, occupy Taiwan, and advance his own RMB financial system to the entire world.<br/><br/>4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七八月份访台，习近平寄希望于美国中期选举的“大乱”而进入美国，拿下台湾，并在全世界推广人民币金融系统。<br/>
 ![img](https://media.gettr.com/group18/getter/2022/04/23/22/17aedeb4-89e8-f42a-108c-dbe726998dd5/out.jpg)
-
----
-
-`@miles 4/23/2022 10:12 PM (UTC)`
-
-4/23/2022 Miles Guo: Never happened ever since 1949! Within 2 weeks over 60,000 armed police were deployed and stationed in Beijing! Communist China is in the early phase of outbreak of COVID vaccine adverse effects and disasters; the cities of Beijing, Shanghai, Guangzhou and Shenzhen etc will be quarantined over and over again; quarantine and internet control are the CCP's measures under the so-called "State Management Model of the New Era".<br/><br/>4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队！ 大陆现在就是疫苗灾难、疫苗反应的最早期；北上广深等城还会有无数次隔离，隔离和网控等手段就是中共所谓新时代的国家管理模式<br/>
-![img](https://media.gettr.com/group9/getter/2022/04/23/22/7b8cd301-d4ca-7c79-d322-a7137ee9c92b/out.jpg)
 
 ---
 
