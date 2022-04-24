@@ -2,28 +2,30 @@
 ---
 
 
-## 美国及欧盟联合声明反对改变台海和平现状
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2402442/)
+## 美国应该立法停止再向中共国注入投资
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2402443/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：银河系农场 – 骄子
 ![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
-4月22日，美国副国务卿舍曼与欧盟对外事务部秘书长沙尼诺，发表共同声明表示，维持台海和平稳定对区域及全球的和平繁荣至为重要，反对任何破坏现状的行为。
+4月21日国外媒体报道，美国国会正在准备确定一份旨在帮助美国与中共国竞争的历史性立法，尤其是在高科技行业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-51.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-56.png)
 
-据悉，美国及欧盟高层于4月19～22日在欧盟总部布鲁塞尔进行了有关俄乌战争及中共议题的讨论。 舍曼与沙尼诺特别对于中共采用经济战略手段胁迫其他国家的行为表达了关切与反对，并呼吁国际社会合作应对中共日益增加的经济胁迫事件。美欧同时警告中共，不要破坏国际对俄罗斯的制裁，也不得向俄罗斯提供任何形式的支持，否则中共将面临美国及欧盟的强力对抗。
+近期的一些数据显示，自2010年以来，美国各州和地方政府已经向中共公司提供了近20亿美元的补贴。中共利用美国联邦和各州管理制度的不同，对症下药，牺牲了很多美国企业的利益。
 
-在台湾问题上，美欧双方表示，支持和平解决两岸问题，反对任何破坏现状的行为。对此，台湾外交部表达了感谢，并强调维持台海和平与稳定已经是欧美等民主阵营国家的主流共识。
+除经济利益外，中共同时在购买政治影响力。因为美国实施三权分立的制度，各州州长都拥有自己的一些自主权，比如州长可不遵从白宫的命令，同时他们拥有一定的外交独立性，使中共可以收买一些州长和地方民选官员，在白宫对中共采取强硬行动时为中共站台。
+
+报道认为，国会应该在立法中禁止美国各州对中共国提供财政援助，阻止任何联邦援助流向中共国公司，并要求各州承诺在一定时间内不补贴中共国公司。
 
 参考链接：
 
-- [美歐高層中國對話 支持台海和平反對破壞現狀](https://www.cna.com.tw/news/aipl/202204220358.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [State and local governments need to stop subsidizing Chinese companies](https://thehill.com/opinion/finance/3275383-state-and-local-governments-need-to-stop-subsidizing-chinese-companies/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
 
 总编/编辑：飞虹
-审核：飞虹
+审核：木木
 校正/发稿：海阔天空1
 ![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
