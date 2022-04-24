@@ -2,14 +2,20 @@
 ---
 
 
-## 我们在前线的每一秒钟都会给中国人积下无尽的福报
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406721/)
+## 俄乌战争的前因后果
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2406733/)
 
-听写：叮叮         编辑：文宝
+文贵大直播20220424
 
-战友们，现在你们在前线花钱，你花一块钱，后面捐两三块钱。不能去前线的战友们，法制基金捐款的人，很多捐款捐不了大额，找了很多人来捐钱，冒着很多危险。我们第一次有美国的曼哈顿的基金在找我，“Miles，我想向你们的基金捐钱，前提是不要把我公布出去”。我说，“那你就不要捐。我们是接受公益捐款，不是公益偷钱，你凭啥捐了不让说？我有啥资格不让说？” 但是兄弟姐妹们，这个打过疫苗的富豪，刚刚从医院出来要捐钱。
+文案指导：顽童（纽伦堡正义）
 
-兄弟姐妹们，我们在前线的每一秒钟都会给中国人积下无尽的福报。你们的每一秒钟七哥都永远的感恩。七哥对你们每个人都愿意以身相许，如果你们愿意的话，等回来吧。听说Feather被染病以后家人不要你，告诉你家人七哥要你，保证你一辈子到美国来过上比在你家还好的日子，谁不要都送这来，不论男的女的。七哥的智商和智慧，我没钱，我可以让你们很有钱，我告诉你。谢谢了兄弟姐妹
+撰稿：文晓（樱花团）文仁（77功成）烟火（樱花团）
+
+书法：沙漠之花（香草山）
+
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-10.png)
+*发布：Theodosia*
 
  
 

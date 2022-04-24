@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 7:16 PM (UTC)`
+
+4/24/2022 Miles Guo: The attempted attack on Sarah by Tim Carlsgaard, an ultra-leftist who worships communism, was a grossly racist act! The essence of this incident is the rivalry between communism and liberalism.<br/><br/>4/24/2022 文贵直播：崇拜共产主义的极左分子Tim Carlsgaard在梅迪卡营地试图袭击小Sarah的事件是严重的种族歧视！其本质共产主义和自由主义的较量!<br/>
+![img](https://media.gettr.com/group16/getter/2022/04/24/19/526127ab-8387-0199-2ba9-464579e5a623/out.jpg)
+
+---
+
 `@miles 4/24/2022 6:31 PM (UTC)`
 
 2022-4-24 ，困境里🌋，如何化险为夷？#小小尼莫音乐会 🎼第八期，现实世界的重重困境，我们一起用音乐突围🧗🏻
@@ -146,13 +153,6 @@
 
 2022.04.23 晚  新中国联邦 | 新闻   有可疑人士蓄意破坏新中国联邦法制基金救援基地；西藏流亡政府议会主任在梅迪卡边境接受战友采访
 ![img](https://media.gettr.com/group36/origin/2022/04/24/00/0faa071d-63d1-9681-45cf-5ff609e19fac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 11:56 PM (UTC)`
-
-4月23号：恰恰是在一年前的同一天，2021年4月23号．七哥的预警中国的航空母舰用的是俄罗斯的飞机和俄罗斯的飞行员．这说明了什么？
-> `@taishan 4/23/2022 10:26 PM (UTC)`<br/>郭文贵先生是最早向全世界爆料中共的战机雇佣外国飞行员。在航母上起飞舰载机的是个巨大的挑战。因为中共仿冒的发动机功率不够，推力不足以在航母上短距离起飞，中共国自己培养的飞行员不足以驾驭这样高难度的飞行。中共为了对国内民众洗脑，宣扬自己军队威威、不可一世，雇佣了很多俄罗斯飞行员来协助共军，甚至连舰载机也是直接租用俄罗斯的。<br/><br/>今日坠击机事件又一次证明郭文贵先生爆料的真实性和郭文贵情报的精准性！！这也再一次验证了爆料革命告诉全世界的中共是纸老虎，中共军队的无能和共产党的找爹文化本质！！自己的军人无能需要找外国人帮忙！这不就是共产党的找俄爹的本性吗？
 
 ---
 
