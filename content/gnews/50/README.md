@@ -2,36 +2,27 @@
 ---
 
 
-## 乌克兰放弃大疆无人机改用美国设备
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2395888/)
+## 中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397515/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月22日，荷兰法院宣布，俄罗斯拥有的阿姆斯特丹贸易银行(Amsterdam Trade Bank)破产，主要因这家银行卷入有关乌克兰战争制裁的影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-137.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpreview.redd.it%2Fdq12d56xc4v81.png%3Fwidth%3D640%26crop%3Dsmart%26auto%3Dwebp%26s%3D9dd306d51a83569b59e50aa5845b1ef05c8f08ee&amp;imgrefurl=https%3A%2F%2Fwww.reddit.com%2Fr%2Fukraine%2Fcomments%2Fu9kkzx%2Famsterdam_trade_bank_a_subsidiary_of_russias_alfa%2F&amp;tbnid=eOJeu1nyjnXw3M&amp;vet=12ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ..i&amp;docid=HOcmNfkrEGbSnM&amp;w=640&amp;h=320&amp;itg=1&amp;q=Amsterdam%20Trade%20Bank&amp;ved=2ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ)
+阿姆斯特丹地方法院周五裁定，俄罗斯最大民营商业银行阿尔法银行(Alfa Bank)所属的阿姆斯特丹贸易银行破产，且获得荷兰中央银行证实。荷兰央行指出，阿姆斯特丹贸易银行成立于1994年，拥有约23000名客户。
 
-乌克兰近日指控中共国大疆无人机扰乱其防务，宣布不再使用其无人机改用美国初创公司设备。
+美国4月6日针对俄罗斯联邦储蓄银行(Sberbank)与阿尔法银行等俄罗斯银行实施严苛制裁，冻结其与美国金融体系有关的所有资产，阿姆斯特丹贸易银行也受到英国制裁的影响。
 
-乌克兰官员称，中共国最大无人机制造商大疆创新科技有限公司（简称大疆）的产品对乌军和平民构成安全风险。大疆提供给乌克兰的产品会出现技术故障，而提供给俄罗斯的产品却完全没有任何问题。他们认为，这可能是大疆在有意破坏乌克兰防务。
+消息来源:[俄羅斯不敵制裁！俄屬阿姆斯特丹貿易銀行宣告“破產” 北約法律顧問：須再認定種族屠殺罪行](https://news.fx168news.com/politics/2204/5841375.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-26.jpg)（图片来自大纪元）
-
-乌克兰政府官员和无人机经销商表示，一些大疆公司的“航空镜”（AeroScopes）屡次出现故障，这些无人机探测系统原本可以识别和跟踪其它无人机及其飞行员。乌克兰政府官员表示，在战争开始时，这些设备无法启动，大疆数据遭到了篡改。
-
-大疆公司承认航空镜出现故障，并表示在进行修复，但否认公司对其产品进行过篡改。
-
-对此，乌克兰官员反驳称，俄罗斯已经成功地使用了相同的航空镜系统来瞄准乌克兰的无人机和飞行员。并且根据乌克兰国家特殊通信和信息保护局的一份报告显示，大疆公司“帮助俄罗斯进行了攻击”。
-
-电子产品远端连线软体公司Blynk IoT Platform共同创办人沃拉迪米尔‧希曼斯基（Volodymyr Shymanskyy）在推特上揭露，大疆限制了乌克兰军队使用“航空镜”技术的能力，让俄罗斯入侵者获得了重要的空中侦察优势。
-
-乌克兰副总理米哈伊洛‧费多罗夫（Mykhailo Fedorov）3月中旬曾在推特上发布的一封公开信，敦促大疆停止与俄罗斯的生意。他说，俄军“正在乌克兰境内使用大疆的产品，为导弹导航，杀害平民”。
-
-鉴于此，乌克兰放弃了大疆无人机转而使用美国设备，BRINC Drones和Skydio等美国初创公司成为填补乌克兰市场空缺的重要企业。截止目前，已有超过六家美国初创公司表示，他们已经向乌克兰捐赠或出售了无人机和无人机防御系统。
-
-此外，大疆在乌克兰的争议事件，加剧了美国对这家中共国公司安全性的担忧。从而促使共和党议员提出一项法案。该法案将把大疆添加到美国联邦通信委员会（FCC）的实体名单中，为禁止该公司的飞机使用美国通信基础设施铺路。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/22/n13717883.htm](https://www.epochtimes.com/gb/22/4/22/n13717883.htm)
-
-总编：老孙
-校对发布：文曦
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注** **
+**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

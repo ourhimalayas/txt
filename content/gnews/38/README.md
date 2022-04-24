@@ -2,37 +2,42 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2401091/)
+## COVID-19疫苗副作用集萃（2022.4.24A)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401483/)
 
-作者：香草山翻译部
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-106.png)
+#### 整理/编辑：红红火火
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-22.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.23早 《NFSC新闻》](https://gettr.com/streaming/p16rf8ncece)
-[2022.04.23早《NFSC新闻访谈》](https://gettr.com/streaming/p16rcv7f153)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-106.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-84.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+博主:  无语凝耶DC
+
+**帖子原文:**
+
+一直没怀疑过。但自从去年下半年接种完新冠疫苗至现在心脏一直不适，比如现在的惊醒，胸闷，气短，心跳加速，困却难以入眠，头晕，记忆力衰退等等。去医院检查没发现问题，开了一个月的药也已吃完，未见好转。以前心脏可一直没问题啊。目前身体逐渐变垮，无法控制。也没见有啥报道、说法、办法。
+
+#新冠疫苗
+
+发布于 2022-04-22
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-112.png)图片来源：微博
+
+
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

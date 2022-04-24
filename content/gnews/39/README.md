@@ -2,42 +2,96 @@
 ---
 
 
-## 截至4.23 俄乌战事汇总
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2400377/)
+## 众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2401237/)
 
-#### 采集/翻译：文洋
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16507412441.png)
-1.乌克兰总理丹尼斯-施米哈尔已经会见了美国能源部副部长大卫-特克和国际货币基金组织总裁克里斯塔琳娜-格奥尔基耶娃。
-双方讨论了增加美国的核燃料供应，以及对俄罗斯核电站燃料、石油和天然气的禁运。他们还再次讨论了国际货币基金组织可能向乌克兰提供的财政援助。
-2.据芬兰媒体报道，芬兰议会目前约有112名成员准备投票赞成加入北约，而12名议员则反对。其余的人正在等待辩论的开始，以便决定他们的立场。根据初步报告，芬兰议会将于4月27日开始辩论加入北约的可能性。
-3.俄罗斯国家杜马代表叶莲娜-德拉佩科公开呼吁违反俄罗斯宪法。
-4.美国公司Guardian Industries宣布退出俄罗斯市场。该公司是生产镀膜玻璃、玻璃绝缘材料和汽车工业玻璃的世界领导者之一。
-5.土耳其对前往叙利亚的俄罗斯军用和民用飞机关闭了其领空。
-6.波兰向乌克兰移交了价值16亿美元的军事装备。
-7.乌克兰边防局声称，俄罗斯对切尔尼戈夫地区进行了炮击。
-8.美国常驻欧安组织代表迈克尔-卡彭特称，俄罗斯可能在攻打马里乌波尔时使用了化学品。包括催泪瓦斯，并与能够引起更强烈症状的化学品混合，以削弱和削弱乌克兰和平民战士的能力。
-9.俄罗斯政府已责成石油生产商提高在交易所出售的燃料的比例。该决定旨在保持国内汽油和柴油市场在季节性需求增长中的稳定局面。
-10.乌克兰在战争中，约208名儿童被杀害，超过387名儿童受伤。
-11.根据Insa研究所进行的民意调查，50%的德国人反对向乌克兰提供重型武器。另有43%的受访者支持向基辅运送此类武器的想法。
-12.俄罗斯国防部报告称，今天下午，敖德萨附近军用机场的一个物流终端被俄罗斯航空航天防御部队的高精度远程导弹击毁。
-13.敖德萨遭到了火箭弹袭击。据乌克兰总统办公室主任安德烈-叶尔马克称，有5人死亡，另有18人受伤。死者中包括一个三个月大的婴儿。
-14.乌克兰外交部长德米特罗-库莱巴对今天在敖德萨发生的爆炸事件作出回应：俄罗斯对敖德萨的导弹袭击的唯一目的是散播恐怖。应该承认俄罗斯是一个支持恐怖主义的国家，并予以相应处理。
-15.欧盟讨论对俄罗斯的第六套制裁方案，包括对俄罗斯能源市场的打击。
-16.土耳其外交部长梅夫卢特-卡武索格鲁宣布：土耳其已对前往叙利亚的俄罗斯军用和民用飞机关闭了其领空。
-17.乌克兰继续开展一项运动，以揭露业主或受益人为俄罗斯和白俄罗斯公民的公司的资产。这些人的资产计划为国家利益而被扣押。
-18.据《世界报》报道，莱茵金属公司已向德国当局申请许可，向乌克兰出口100辆马尔德步兵战车。
-19.乌克兰国防部主要情报局：两名将军在打击俄罗斯军队在赫尔松地区的前沿控制站中丧生，还有一人受伤，情况危急。
-20.马里乌波尔市长顾问Pyotr Andryushchenko称，该市平民的疏散再次被俄罗斯军队破坏。
-俄罗斯富翁奥列格-廷科夫正在与潜在买家谈判，以出售其家族信托基金在TCS集团的35%股份。
-21.欧洲正在考虑限制从俄罗斯购买石油的三种方案：实施禁运、规定价格上限和建立一个 “支付机制以保留 “俄罗斯自与乌克兰的敌对行动开始以来获得的收益。
-22.美国国防部正在寻求加快生产有效的武器，使用这些武器只需最低限度的培训，以便向乌克兰提供。
-23.俄罗斯副总理维多利亚-阿布拉姆琴科提议允许某些类别的婴儿食品的包装含量增加一倍，以解决包装材料短缺的困境。
-24.《华尔街日报》报道了俄罗斯是如何规避石油禁运的：俄罗斯将这些原油装上油轮，运往 “未知目的地”。 此外，俄罗斯石油与其他石油混合，在市场上变成了 “拉脱维亚混合油 “和 “土库曼混合油”。自入侵乌克兰以来，在这种模式下已经装了1100万桶，而在战前为零。
-25.联合国秘书长安东尼奥-古特雷斯在莫斯科与弗拉基米尔-普京会晤两天后将访问基辅。
+**众议员迈克·沃尔茨**： 
+尽管(对俄)实施了制裁，但看到有漏洞被人利用仍然令人沮丧。 欧洲仍在从俄罗斯购买数千亿立方米的天然气，为普京的战争机器提供资金。 美国和欧洲应该采取更多措施来阻止普京。 【附沃尔茨议员接受采访视频】
 
-1. 乌克兰情报部门报告称：俄罗斯已经开始在暂时被占领的乌克兰三个地区–赫尔松、哈尔科夫和扎波罗热的领土上强行将乌克兰医务人员派往前线，为俄罗斯伤员提供急救服务。如果医护人员拒绝，就会受到被枪杀的威胁。
-2. 乌克兰情报部门报告称，又有两名俄罗斯将军死亡。还有另一个人受了重伤。
-前一天，乌克兰武装部队在赫尔松州捣毁了第49联合军的前沿指挥所。早前有报道称，袭击发生时，约有50名俄罗斯军官在指挥所内。
+
+
+> It's frustrating to see the loopholes being taken despite the sanctions in place.
+> 
+> Hundreds of billions of cubic-meters of gas are still being bought by Europe from Russia, financing Putin's war machine. There's a lot more the U.S. and Europe should be doing to stop Putin. [pic.twitter.com/ISf7ivTBXA](https://t.co/ISf7ivTBXA)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517930049827188737?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院**： 
+拜登总统[@POTUS](https://twitter.com/POTUS) 宣布了一项名为“为乌克兰团结起来”的新计划，以使寻求避难的乌克兰人能够直接从欧洲来到美国。 “这个程序会很快。它会被精简顺畅。” 【附拜登讲话视频，将开通快速通道接受10万乌克兰难民】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announces a new program, “Unite for Ukraine,” to enable Ukrainians seeking refuge to come directly from Europe to the United States. "This program will be fast. It will be streamlined." [pic.twitter.com/IJl844lCIE](https://t.co/IJl844lCIE)
+> — Department of State (@StateDept) [April 23, 2022](https://twitter.com/StateDept/status/1517873428098740224?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥**： 
+美国梦之所以强大，是因为每个人都可得到它。不要停止相信它！
+
+
+
+> The American Dream is powerful because it is available to everyone. Don’t stop believing in it!
+> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517934426352664578?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂**： 
+拜登总统已发出公开邀请，将于 5 月 23 日跨越我们的南部边境。 我敢肯定，#中共 和贩毒集团正在将毒品生产提高到历史最高水平。 他们在美国杀死我们的孩子，把每个城镇都变成了边境城镇。 
+【译者注：拜登拟于5月23日结束第42条，该条款“允许政府在某些公共卫生紧急情况下阻止个人引入”】
+
+
+
+> President Biden has sent out an open invitation to come cross our southern border on May the 23rd. I'm certain that the CCP and the cartels are ramping up drug production to all-time high levels. They're killing our kids here in America and turning every town into a border town.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 22, 2022](https://twitter.com/SenatorHagerty/status/1517644417368301575?ref_src=twsrc%5Etfw)
+
+
+
+**前国务次卿基思·克拉奇**：
+ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 不花一兵一弹就达到他们的地缘政治目的。他们持续性地以科技作为杠杆，让他们的极权主义政权受益。是时候反对这些行动了。这就是我们的“清洁网络”要达成的目标。 
+【转国家利益网文章，应对中国极权主义的答案, 是(采用)值得信赖的技术】
+
+
+
+> China achieves its geopolitical goals without sending an army or firing a shot. They have consistently leveraged [#technology](https://twitter.com/hashtag/technology?src=hash&amp;ref_src=twsrc%5Etfw) to benefit their totalitarian regime. It's time to stand up against these actions. That's what we achieved with the Clean Network. [https://t.co/nBfeYLFVhL](https://t.co/nBfeYLFVhL)
+> — Keith J. Krach (@KeithJKrach) [April 23, 2022](https://twitter.com/KeithJKrach/status/1517858345079742466?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本**： 
+“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” 
+——罗纳德·里根总统
+
+
+
+> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克·蓬佩奥**： 
+当我担任国务卿时，美国的力量一直在我心中。 我们使世界各国的领导人信服于美国的实力，因此 (那时) 我们也更加安全。 我们需要再做一次！ 以实力求和平，行之有效！
+
+
+
+> When I was Secretary of State, American strength was always on my mind. We convinced world leaders of American power, and we were safer because of it. We need to do it again! Peace through strength works!
+> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517912245774307329?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克.沃尔茨**： 
+普京公开测试他的核能力，以表明它们是现代的、有效的并且他可以使用它们。 与此同时，拜登推迟并保持我们的（核武器）测试秘密。 这样的威慑不起作用。保持和平是要展示我们的力量、而不是把它隐藏起来。
+
+
+
+> Putin's openly testing his nuclear capabilities to show they're modern, they work & that he can use them.
+> 
+> Meanwhile, Biden's delaying & keeping our tests a secret. That's not how deterrence works. Peace is kept by demonstrating our strength not hiding it. [pic.twitter.com/mXmNdf4ytV](https://t.co/mXmNdf4ytV)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517936340947644421?ref_src=twsrc%5Etfw)
+
+
+
 
 
  

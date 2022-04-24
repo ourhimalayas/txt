@@ -2,28 +2,25 @@
 ---
 
 
-## 中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2397515/)
+## 中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2399571/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月22日，荷兰法院宣布，俄罗斯拥有的阿姆斯特丹贸易银行(Amsterdam Trade Bank)破产，主要因这家银行卷入有关乌克兰战争制裁的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-137.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpreview.redd.it%2Fdq12d56xc4v81.png%3Fwidth%3D640%26crop%3Dsmart%26auto%3Dwebp%26s%3D9dd306d51a83569b59e50aa5845b1ef05c8f08ee&amp;imgrefurl=https%3A%2F%2Fwww.reddit.com%2Fr%2Fukraine%2Fcomments%2Fu9kkzx%2Famsterdam_trade_bank_a_subsidiary_of_russias_alfa%2F&amp;tbnid=eOJeu1nyjnXw3M&amp;vet=12ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ..i&amp;docid=HOcmNfkrEGbSnM&amp;w=640&amp;h=320&amp;itg=1&amp;q=Amsterdam%20Trade%20Bank&amp;ved=2ahUKEwjOlN-L8an3AhWQxYUKHcYmB-wQMygCegUIARCzAQ)
-阿姆斯特丹地方法院周五裁定，俄罗斯最大民营商业银行阿尔法银行(Alfa Bank)所属的阿姆斯特丹贸易银行破产，且获得荷兰中央银行证实。荷兰央行指出，阿姆斯特丹贸易银行成立于1994年，拥有约23000名客户。
+撰稿：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-24-at-12.42.19-AM.jpeg)图片来源：网络
+4月23日，郭先生在盖特直播指出，北京百分之百会进入隔离戒严，就像哈尔滨、青岛、大连、海口一样。
 
-美国4月6日针对俄罗斯联邦储蓄银行(Sberbank)与阿尔法银行等俄罗斯银行实施严苛制裁，冻结其与美国金融体系有关的所有资产，阿姆斯特丹贸易银行也受到英国制裁的影响。
+北京已经完全布置好隔离封城的准备。目前北京报道的这里哪里又确诊多少阳性，都不要相信，那是中共为了掩盖打毒疫苗导致阳性的真相而报道的，也是为隔离封锁做新闻舆论准备。
 
-消息来源:[俄羅斯不敵制裁！俄屬阿姆斯特丹貿易銀行宣告“破產” 北約法律顧問：須再認定種族屠殺罪行](https://news.fx168news.com/politics/2204/5841375.shtml)
+内部知情战友指出，北京最低的时候，一天能够验出来一万到两万阳性案例，最近没有一天低于几万的，而且绝大多数阳性都是打毒疫苗导致的。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+中共知道毒疫苗会导致很多人死亡，就把疫苗死人的责任推给所有的病毒。中共想通过所谓隔离阻断病毒的传播，是老百姓不配合隔离、到处乱跑、甚至给外国人传递信息，而造成伤亡的的事件，全都是老百姓和美帝国主义的错。这就是中共转嫁矛盾，掩盖毒疫苗真相的手段。
 
+郭先生最后透露，在过去两周，进入北京的武警有6万多名，而且是驻扎式的。这也是自从1949年以来，第一次这么短时间内有6万多武警驻扎式进入北京。中共派那么多武警驻扎，是为了长期的周期性封城做准备。
+
+*发布：追着曙光跑*
+
+信息来源：[4月23日 七哥乱聊](https://gettr.com/streaming/p16qngm5663)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
