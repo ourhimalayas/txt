@@ -2,14 +2,81 @@
 ---
 
 
-## 【 蓝枫法律 】 五十一期 法律你我她：言论自由法律 之 社交媒体平台的遵循与逾越 &#8211; PPT展示
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2405509/)
+## 中共国推广煤炭，使减排努力受挫
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2405736/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-244.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-147.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-109.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-76.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-69.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6-57.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-53.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-41.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-38.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/13-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/14-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/17-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-10.png)
-**直播视频：**[https://gettr.com/post/p16srcaaf60](https://gettr.com/post/p16srcaaf60)
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+北京 — 中共国正在推广燃煤发电，因为执政的共产党试图重振低迷的经济，这促使人们警告说，中共国政府正在挫败从全球最大的碳排放源中削减改变气候的努力。
 
-**编辑/发文：蓝枫法律栏目**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/tempsnip乌鲁木齐热电厂的烟和蒸汽从塔楼上升起.png)*2*021年4月21日，从中国西部的新疆维吾尔自治区乌鲁木齐市的一架飞机上看到，燃煤的乌鲁木齐热电厂的烟和蒸汽从塔楼上升起。中国正在推广燃煤发电，因为执政的共产党试图重振疲软的经济，这促使人们警告说，北京正在挫败减少全球最大来源的改变气候的碳排放的努力。(AP Photo/Mark Schiefelbein, File)
+ 
+
+据新闻报道，官方计划要求今年将煤炭产能提高3亿吨。这相当于去年41亿吨产量的7%，比2020年增加了5.7%。
+
+中共国是风能和太阳能的最大投资者之一，但在去年经济增长骤降，能源短缺导致停电和工厂停工后，忧心忡忡的领导人要求增加燃煤发电。俄罗斯对乌克兰的攻击加剧了人们对外国石油和煤炭供应可能中断的焦虑。
+
+绿色和平组织的高级全球政策顾问李硕说：“这种确保能源安全的心态已经成为主导，胜过了碳中和。我们正在进入一个对中国的气候行动相对不利的时期。”
+
+官员们面临着确保稳定的政治压力，因为习近平主席准备尝试打破传统，在秋季授予自己第三个五年任期的执政党领导人。
+
+据商业新闻杂志《财新》报道，内阁官员在4月20日批准扩大产能计划的会议上说，煤炭对“能源安全”很重要。
+
+执政党还在建设发电厂，为经济注入资金，恢复增长，2021年最后一个季度的增长率比一年前下降了4%，低于全年8.1%的扩张。
+
+各国政府已承诺努力将大气变暖限制在比工业化前的水平高2摄氏度（3.6华氏度）。领导人说他们真正想要的是限制在1.5摄氏度（2.7华氏度）。
+
+科学家们说，即使世界达到了2015年巴黎气候公约和2021年格拉斯哥后续协议中的2度目标，这仍然会导致海面升高，风暴加剧，动植物灭绝，更多的人死于高温、烟雾和传染病。
+
+中共国是煤炭的最大生产国和消费国。全球趋势取决于北京的做法。
+
+中国共产党以其经济发展需要为由，拒绝了具有约束力的排放承诺。北京一直避免加入那些承诺逐步淘汰燃煤发电的政府。
+
+在2020年对联合国的一次演讲中，习近平说，碳排放将在2030年达到峰值，但他没有宣布目标数量。习近平说，中共国的目标是到2060年实现碳中和，即通过植树和其他策略从大气中清除的碳与工业和家庭排放的碳一样多。
+
+根据世界资源研究所的数据，中共国占全球排放量的26.1%，比美国的12.8%高出一倍多。研究公司Rhodium Group称，中共国的排放量超过了所有发达经济体的总和。
+
+根据WRI的数据，中国的14亿人平均每年排放相当于8.4吨的二氧化碳。这还不到美国平均17.7吨的一半，但比欧盟的7.5吨要多。
+
+中国拥有丰富的煤炭供应，在去年燃烧的44亿吨煤炭中，90%以上是中国生产的。其一半以上的石油和天然气是进口的，领导人认为这是一个战略风险。
+
+中国到2060年实现碳中和的目标似乎已经步入正轨，但使用更多的煤炭“可能会危及这一目标，或者至少会减缓这一目标，并使其成本更高”，环境调查机构的克莱尔-佩里在一封电子邮件中说。
+
+佩里说，推广煤炭将使到2030年高峰年的排放量“远远高于它们需要的水平”。
+
+她说：“这一举措完全违背了科学。”
+
+北京已花费数百亿美元建设太阳能和风力发电场，以减少对进口石油和天然气的依赖，并清理其被烟雾污染的城市。2020年，中国占了全球风能和太阳能投资的一半左右。
+
+不过，在不久的将来，煤炭预计将供应其60%的电力。
+
+北京正在削减数百万个工作岗位，以缩小其臃肿的国有煤炭开采业，但产量和消费量仍在上升。
+
+当局说他们正在减少每单位经济产出的碳排放。政府报告说去年减少了3.8%，比2020年的1%要好，但比2017年的5.1%有所下降。
+
+根据国家统计局的数据，在全球对中共国出口的需求复苏推动了制造业的繁荣之后，去年的能源使用总量比2020年增加了5.2%。
+
+如果刺激性支出用于建造更多的桥梁、火车站和其他公共工程，也可能提高碳产出。这将鼓励碳密集型的钢铁和水泥生产。
+
+绿色和平组织的李先生说，中共国的燃煤电厂平均以大约一半的产能运行，但建造更多的电厂可以创造就业机会和经济活动。他说，即使现在不需要这些电力，地方领导人也面临着让它们自己付费的压力。
+
+李说：“这就把中国锁定在一条更高碳的道路上。这很难解决。”
+
+新闻来源：[China promotes coal in setback for efforts to cut emissions](https://abcnews.go.com/International/wireStory/china-promotes-coal-setback-efforts-cut-emissions-84272155)
+
+* * *
+
+审核：Aries的星
+校对：小东
+发布：信心满满
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 

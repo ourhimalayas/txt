@@ -2,64 +2,27 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.24F)&#8211;疫苗第三针整个人陷入极度虚弱状态
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404503/)
+## SpaceX成功抵御俄罗斯的电磁攻击
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404535/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+作者：DC农场 自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
 
-#### 整理/编辑：禄森
+据美媒4月20日报道，五角大楼专家表示，上个月SpaceX成功且迅速地阻止了俄罗斯对星链的网络攻击，迫使俄军目前已经放弃对乌克兰实施电磁战，确保了乌克兰与互联网保持连接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.08.04-PM.png)
+俄乌战争伊始，马斯克在接到乌克兰官方发出的求助推文后，迅速将数千个星链终端设备运送到了乌克兰。次日，星链就被俄罗斯攻击并受到干扰。SpaceX仅仅通过修复一行代码就使得俄罗斯的电磁攻击失效。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-6.png)图片来源：雅典娜设计组(614)
+五角大楼的技术专家对此感到欣喜，并表示，在建造新的电子战设备方面，美国需要进行更多创新思考，必须提出新的系统，提供更大的弹性和速度，这包括将人工智能和机器学习整合到下.
 
+参考链接：[SpaceX shut down a Russian electromagnetic warfare attack in Ukraine last month — and the Pentagon is taking notes](https://www.defensenews.com/air/2022/04/20/spacex-shut-down-a-russian-electromagnetic-warfare-attack-in-ukraine-last-month-and-the-pentagon-is-taking-notes/)
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-博主:你若安好便是晴天
-
-康希诺加强针的感受
-
-4月21号去工人医院接种第三针疫苗，本想和前两针一样接种北京生物，然而没有人和我合针。医生又说打了康希诺之后的抗体比科兴和生物要强三倍，但提醒我打完康熙诺一般人都要发烧，我心里想发点小烧不算什么，扛扛就过去了。我思考了几分钟决定尝试打康希诺。下午4:30左右，我接种成功。当时并没有什么反应，还在回家的路上顺便买了一些菜和杂粮。
-
-晚上9:00左右的时候感觉有点低烧，但当时并没有量体温。10:00左右和儿子视频，儿子提醒我康熙诺的后劲很大，要准备好布洛芬，可能会发高烧。心里不由得佩服儿子懂得真多，终有一天儿子的见识和格局超过了爸爸妈妈， 可以给我们提出意见，建议和指导。虽然儿子这样提醒我，我心里还是有一丝侥幸，不会发那么高的烧吧？
-
-岂知我太轻敌了，康熙诺的反应来势凶猛，势不可挡。凌晨5:00多的时候感觉烧的温度越来越高已经攀升到38.7度，浑身疼痛，每个关节都象扎了针，左胳膊疼痛难抬，浑身发冷，头疼欲裂。 随后的一天我一边有气无力地躺在床上，一边像水牛一样狂饮水，里面加上Vc泡腾片和柠檬片，不停地穿梭于卫生间和床。中午老公炖了排骨冬瓜汤，逼着自己喝了一大碗补给能量。然后又吃了两个大橙子。老公劝我吃布洛芬退烧不要硬撑着，我说好不容易经历了痛苦换来抗体，不能因为吃退烧药效果打折，所以心想晚上睡觉前再吃，否则无法入眠。坚信通过物理降温和喝水，补充维C，可以熬过这一关，期待明天的我恢复正常，神清气爽，万物可爱。
-
-浑浑沌沌中，想到儿子4月2号到4月4号连续烧了三天，烧到39度多，我们鞭长莫及爱莫能助，无人在身边照料，还得坚强地给自己准备一日三餐。不知道儿子是如何挺过那个至暗时刻的。顿时觉得心如针扎般的疼。想到儿子的坚强，我顿然有了勇气！
-
-我知道我的免疫力正在和病毒较量，相信：那些打不败我们的，终究使我们更加强大！
-
-作者发布于:2022-4-22
-
-**评论选集**
-
-是肥欣a评论:
-
-我打了除了手臂酸痛 抬不起来 第三天就好了
-
-妈妈别着急评论:
-
-我买了退烧药再去打的。结果没发烧。我是打完狂喝水。水里加柠檬汁。喝得都想吐了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-130.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-38.png)图片来源：小红书
-
-
-参考链接：[反复高烧低烧，浑身疼痛，头痛欲裂，发冷](https://www.xiaohongshu.com/discovery/item/62627a46000000000102fec5?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650794105)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+编辑：Delilah小胖
+总编：Zion文恩
+审核：文真
+校正/发稿：我不在这里
+![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

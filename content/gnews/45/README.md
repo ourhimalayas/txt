@@ -2,36 +2,67 @@
 ---
 
 
-## 邪恶独裁国家的法律是统治工具❗️
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2403438/)
+## 在入侵乌克兰战争中阵亡的部分俄罗斯将军和指挥官们
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2403458/)
 
-编译：波士顿五月花—-jiasen;思澈
+编辑/翻译：金陵小生
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
-中共国及俄罗斯两个最大最邪恶的独裁国家每时每刻都在肆无忌惮地撒谎骗人，却对说真话的人以各种手段打击报复，直至肉体消灭。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-3.jpg)安德烈-苏霍维茨基（**Andrei Sukhovetsky**）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3080B497-84B9-4487-8196-3B9BD913F811.jpeg)
+安德烈-苏霍维茨基（**Andrei Sukhovetsky**）少将是俄罗斯军方第一个报道出来被狙击手击毙的高级将领，苏霍维茨基是俄罗斯第7空降师的指挥官和第41联合武器部队的副指挥官。
 
-俄罗斯一位著名的反对派活动家的律师周五表示，俄罗斯已对他提起刑事诉讼，理由是他涉嫌散布有关莫斯科在乌克兰的军事行动的虚假信息。
+据基辅和俄罗斯媒体报道，他是被一名狙击手打死的，子弹从1500米外射出。
 
-4 月 11 日 CNN 播出了弗拉基米尔·卡拉-穆尔扎 (Vladimir Kara-Murza) 批评俄罗斯在乌克兰的行动的采访几个小时后，他在位于莫斯科的家中被拘留。
 
-卡拉-穆尔扎的律师瓦迪姆·普罗霍罗夫（Vadim Prokhorov）说，“弗拉基米尔·卡拉-穆尔扎现在是“俄罗斯调查委员会部”的主要调查对象，”普罗霍罗夫在 Facebook 上写道。“一个刑事诉讼已经开始……理由是‘蓄意公开传播关于俄罗斯武装部队的虚假信息’。”普罗霍罗夫没有具体说此案是什么时候开始的。
 
-俄罗斯议会上个月通过了一项法律，规定对那些故意散布有关莫斯科所谓的在乌克兰的“特别军事行动”的“假”新闻的人判处最高 15 年的监禁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-4.png)维塔利-格拉西莫夫（**Vitaly Gerasimov**）
 
-俄罗斯官员表示，新法律是必要的，因为它是为了保护其军队并打击有关其在乌克兰军事行动的虚假信息。
+俄罗斯第41军第一副军长维塔利-格拉西莫夫（**Vitaly Gerasimov**）少将。维塔利-格拉西莫夫少将成为乌克兰军事情报部门声称的第二个被击杀的俄罗斯高级指挥官。
 
-俄罗斯官员所称的新法律其目的就是为了保护他们的虚假信息压制真实信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-6.jpg)安德烈-科列斯尼科夫（Andrey Kolesnikov）
 
-纵观中共国发生的事情有过之无不及！
+乌克兰军方在一条推文中说，他们击毙了俄罗斯的安德烈-科列斯尼科夫（Andrey Kolesnikov）少将。据信他是第29联合武器部队的指挥官，他的死亡将使他成为第三个被击毙的俄罗斯高级将领。
 
-在2021年4月21日的七哥乱聊直播中，郭文贵先生爆料说：上海要解封，政治上要算帐，要在媒体上找出所谓的反党的、有其他用心的、给海外媒体递刀子的人，要清算，提醒战友们注意安去。在今天的乱聊直播中郭先生指出，共产党的封城是为了以冠状病毒掩盖政治经济民生等各种社会问题，进而掩盖即将全面爆发的疫苗灾难。同时，一定压制任何真实信息的传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-5.png)奥列格-米迪亚夫（Oleg Mityaev）
 
-只要有中国共产党，中国人就不可能有安定祥和自由的生活。现在新中国联播有了自己的媒体平台，战友们在郭文贵先生带领下不断揭露中国共产党的假恶黑，唤醒有正义有良知的同类，消灭人类一切灾难的根源 – 中国共产党及其合作者。
+据报道，乌克兰内政部顾问安东-杰拉先科在Telegram上写道，俄罗斯失去了第四位将军奥列格-米迪亚夫（Oleg Mityaev）少将，他在俄罗斯对马里乌波尔市的进攻中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-7.png)安德烈-莫德维切夫（Andrei Mordvichev）
+乌克兰军队总参谋部在推特上说，俄罗斯中将安德烈-莫德维切夫（Andrei Mordvichev）是俄武装力量南部军区第8总队的指挥官。
+据当地媒体Interfax报道，前总统顾问Oleksiy Arestovych称，这位将军在乌克兰军队袭击赫尔松机场附近的Chornobayivka机场时被打死，该机场被用作俄罗斯的临时基地。
+莫德维切夫的死亡一直存在争议，《伦敦时报》称，在报道他的死亡后，他被拍到与车臣领导人拉姆赞-卡德罗夫的合影。
 
-译文素材：[https://nationalpost.com/pmn/news-pmn/crime-pmn/russia-opens-criminal-case-against-activist-over-fake-news-on-ukraine-lawyer](https://nationalpost.com/pmn/news-pmn/crime-pmn/russia-opens-criminal-case-against-activist-over-fake-news-on-ukraine-lawyer)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-8.jpg)Yakov Rezantsev中将
 
-*发布：思澈*
+据《基辅独立报》记者Illia Ponomarenko报道，乌克兰说干掉了俄罗斯第49联合武器军指挥官、其最高级别的军事官员之一Yakov Rezantsev中将。
+俄罗斯没有证实这起死亡事件，泽伦斯基的一名助手说，这起事件发生在乌克兰南部的一个村庄Chornobaivka。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-9.jpg)米特里-萨夫罗诺夫（Dmitry Safronov）
+
+乌克兰国防部表示，俄罗斯武装部队第61独立海军陆战队旅指挥官德米特里-萨夫罗诺夫（Dmitry Safronov）中校在乌克兰军队夺回哈尔科夫地区楚胡夫市的战斗中被打死。
+
+**Dmitry Safronov**
+乌克兰国防部表示，俄罗斯武装部队第61独立海军陆战队旅指挥官德米特里-萨夫罗诺夫中校在乌克兰军队夺回哈尔科夫地区楚胡夫市的战斗中被打死。
+
+**Denis Glebov**
+在宣布萨夫罗诺夫死亡的同一声明中，乌克兰国防部表示，第11独立空降突击队的副指挥官丹尼斯-格列博夫中校也已遇难。
+俄罗斯新闻机构报道说，格列博夫是在参加顿巴斯的一次特别行动中被杀的，并被追授勇气勋章。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-10.jpg)康斯坦丁-齐泽夫斯基（Konstantin Zizevsky）上校
+
+据报道，第247近卫空中突击团指挥官康斯坦丁-齐泽夫斯基（Konstantin Zizevsky）上校在顿涅茨克和卢甘斯克的军事行动中被击毙。
+普斯科夫州州长米哈伊尔-维德尼科夫在Instagram上发文证实了他的死亡。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-11.jpg)尤里-阿加尔科夫（Yuri Agarkov）中校
+
+据普斯科夫州州长米哈伊尔**–**维德尼科夫（**Mikhail Vedernikov**）在**Instagram**上发表的同一篇文章称，警卫队中校尤里**–**阿加尔科夫与康斯坦丁**–**齐泽夫斯基一起去世。** **
+
+据俄罗斯媒体报道，阿加尔科夫此前曾担任第**56**空中突击旅的参谋长，并指挥一个摩托化步枪团。
+
+原文出处：[How the Russian officer elite is being decimated in Ukraine – 23 generals and commanders who were killed in action](https://www.businessinsider.com/ukraine-russian-officer-elite-decimated-9-who-were-killed-in-combat-2022-3)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
 
 
 

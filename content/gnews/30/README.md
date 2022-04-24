@@ -2,27 +2,31 @@
 ---
 
 
-## SpaceX成功抵御俄罗斯的电磁攻击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404535/)
+## 联合国：越来越多证据表明俄罗斯犯下战争罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404691/)
 
-作者：DC农场 自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+撰稿：澳喜-追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-45.png)
+据外媒4月22日报道，联合国人权办公室当天表示，有越来越多的证据表明俄罗斯在乌克兰犯下了战争罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388618.jpg)
+联合国人权事务高级专员巴切莱特指出，俄罗斯武装部队不分青红皂白地炮击和轰炸人口稠密地区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为都可能构成战争罪行。
 
-据美媒4月20日报道，五角大楼专家表示，上个月SpaceX成功且迅速地阻止了俄罗斯对星链的网络攻击，迫使俄军目前已经放弃对乌克兰实施电磁战，确保了乌克兰与互联网保持连接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.08.04-PM.png)
-俄乌战争伊始，马斯克在接到乌克兰官方发出的求助推文后，迅速将数千个星链终端设备运送到了乌克兰。次日，星链就被俄罗斯攻击并受到干扰。SpaceX仅仅通过修复一行代码就使得俄罗斯的电磁攻击失效。
+根据联合国目前掌握的数据，从2月24日至4月20日，联合国特派团已记录并核实有2345名平民被杀，2919人受伤。
 
-五角大楼的技术专家对此感到欣喜，并表示，在建造新的电子战设备方面，美国需要进行更多创新思考，必须提出新的系统，提供更大的弹性和速度，这包括将人工智能和机器学习整合到下.
+巴切莱特表示，在俄罗斯军队以前占领的地区，不断发现的对平民的处决规模还扩大，而随着在马里乌波尔等激烈战斗地区发生的恐怖事件的曝光，实际数字还会高得多。
 
-参考链接：[SpaceX shut down a Russian electromagnetic warfare attack in Ukraine last month — and the Pentagon is taking notes](https://www.defensenews.com/air/2022/04/20/spacex-shut-down-a-russian-electromagnetic-warfare-attack-in-ukraine-last-month-and-the-pentagon-is-taking-notes/)
+巴切莱特还谈及了以平民屠杀事件而被世界关注的布查镇的情况。她说，联合国人权工作人员4月9日在布查镇进行调查期间，取得了包括法外处决在内的50名平民被处死的证据。
 
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+参考链接：
 
-编辑：Delilah小胖
-总编：Zion文恩
-审核：文真
-校正/发稿：我不在这里
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+[U.N. rights office cites growing evidence of war crimes in Ukraine](https://www.reuters.com/world/un-rights-office-cites-growing-evidence-war-crimes-ukraine-2022-04-22/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-215.jpg)
+
+编辑/总编/审核：飞虹
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
