@@ -2,30 +2,24 @@
 ---
 
 
-## 樱花时政┃俄计划在其占领区对乌克兰平民征兵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2403689/)
+## 秘翻在线：韩国将从25日开始新冠（中共病毒）等级下调至2级
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2403769/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄计划在其占领区对乌克兰平民征兵.png)[图片来源](https://www.mfat.govt.nz/jp/countries-and-regions/europe/ukraine/russian-invasion-of-ukraine/#:~:text=Brexit-,Russian%20invasion%20of%20Ukraine,-MFAT%20Alerts)
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-50.jpg)图片来源：本文链接
+据韩媒《KBS》4月24日的新闻，韩国中央灾难安全对策本部透露，防疫当局明天（25日）将新型冠状病毒（中共病毒）的传染病等级下调至2级。允许在电影院和室内体育设施中摄取食物。
 
-英国国防部23日发表声明，俄罗斯正计划在它非法占领的乌克兰南部城市赫尔松和乌克兰中南部的扎波罗热对乌克兰平民征兵。
+如果新型冠状病毒（中共病毒）被分类为2级传染病，那么1级时适用的“确诊时7天的隔离义务”和“医疗机构立即申报患者的义务”将被取消。确诊患者在遵守个人防疫守则的同时，可以使用普通医疗机构。
 
-根据乌克兰方面获得的情报。俄罗斯在其控制下的东部顿巴斯的许多地区和强行吞并的乌克兰克里米亚半岛也进行过类似的征兵活动。
+但政府为了能在医疗现场进行充分的准备，决定从25日开始将4周定为“履行期”，暂时维持包括7日确诊患者隔离义务在内的现行管理体系。因此，短期内新型冠状病毒（中共病毒）诊断、检查体系将维持现状。并将在综合判断防疫情况后,决定是否解除隔离义务。
 
-声明称，《日内瓦公约》规定，占领国不能强迫他们本应保护的个人被编入自己的部队或成为辅助兵力。并谴责使用压力和有组织的进行宣传活动让其加入兵役，都是不可接受的。
+从明天（25日）开始，不仅是电影院和室内体育观看场，大众交通上也允许食用食物。比如一直以来被禁止饮食的▲（投币）练歌房▲室内体育设施▲洗浴场业▲赛车、警政、赛马、国内赌场▲电影院、演出场▲多功能房间▲室内体育馆▲博物馆、美术馆、科学馆▲图书馆▲按摩店▲超市、百货商店▲游戏厅▲展示会、博览会▲美容业▲补习班▲读书室、学习咖啡馆▲宗教设施▲访问销售宣传馆等多重利用设施和除国际航班外的公交车、地铁、出租车等，都将恢复。
 
-信息源：
-[https://news.yahoo.co.jp/articles/1aa8be89d41e6e8a2eb727f1f0edcbf2b72e32d6#:~:text=%E3%83%AD%](text=%E3%83%AD%)
+大型超市、百货商店等流通设施允许试吃、试饮。但是，为了最小化新冠病毒（中共病毒）感染的危险，试吃、试饮活动要在指定的就餐特别管理区域进行，活动设施之间要保持3米以上，就餐过程中人与人之间的距离要保持1米以上。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+信息来源：[https://news.kbs.co.kr/news/view.do?ncd=5447417&ref=A](https://news.kbs.co.kr/news/view.do?ncd=5447417&amp;ref=A)
+
+责编：Eric Kim
 
  
 

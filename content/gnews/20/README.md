@@ -2,39 +2,67 @@
 ---
 
 
-## 上海封城｜持续封控打乱国际运输 卫星图显示上海港货物堆积如山
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2403328/)
+## COVID-19疫苗副作用集萃(2022.4.24B)——接种新冠疫苗患寻麻疹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2403593/)
 
-**图/文｜CP **
-**发布时间｜24/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城｜持續封控打亂國際運輸-衛星圖顯示上海港貨物堆積如山-.jpg)
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+#### 整理/编辑：禄森
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-2.png)图片来源：雅典娜设计组(614)
 
 
-中共以防疫之名封锁上海已维持近一个月，综合外媒报道，虽然近期上海开始陆续复工，但严格防疫政策导致当地运输依然停摆，其中卡车运输受影响最大，货运司机无法畅通运行，导致许多等待装货的空集装箱堆积码头。相关程式显示，截至4月21日，世界上最繁忙的上海集装箱港口—“上海港”目前货物堆积如山。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-中国欧盟商会估计，自封控以来，中国可用的货车数量已下跌40%。加上各地防疫政策不一、货车通行需一连串行政审批，同时需要出示48小时核酸检测结果，令许多司机即使获逾双倍报酬，也不愿前往上海。航运承运人和行业顾问称，虽然上海港仍在运营，但能够向港口运送货物的卡车短缺，意味着集装箱运力闲置情况愈发严重。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/61554090_303-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/phpbr49py.jpeg)
+**帖子原文**：
 
-相关程式显示，截至4月21日，世界上最繁忙的上海集装箱港口—“上海港”目前货物堆积如山
-据美国供应链数据公司FourKites Inc.数据显示，截至上周一（18日），一个装有进口货物的集装箱在上海港等待作业的平均时间为8.3天，是封控前的两倍还多。
+博主:寻丢丢
 
-日本物流公司日邮物流（Yusen Logistics）亦透露指，公司过去两周货运量下降，正常情况每日要打包8,000立方米货物，但过去一周末打包量仅为往常6%，有几天甚至没货物运出，公司预计，出口量到5月下旬会大幅下降。
+因为新冠疫苗得了寻麻疹，好痛苦。一年都没好。
 
-针对该情况，丹麦货运分析公司Sea Intelligence谘询服务副总裁Bjorn Vang认为，即使严格封控措施会在5月初解除，但由于工厂希望弥补生产停滞带来的影响，货车和船舶在接下来几周会被预定一空，如果是这样，国际物流至少要到7月才能恢复正常。
+脖子真的好痒，好想抓。
 
-德国联邦工业联合会（BDI）主席鲁思沃亦忧心，受上海防疫影响，德国工业界未来几周的生产流程会被打乱，尤其是那些以来原材料进口或建筑部件交付的行业。
+去看医生，医生说我是皮肤划痕症。
 
-他指出，受俄乌战事、新冠疫情影响，企业和客户已感受到国际物流动荡的影响，运输价格上涨了一倍多。他续指，中共对上海的封锁时间越长，经济后果就越严重，无论对全球经济亦或是对德国出口业。他强调，海运供应链的问题，短期内还看不到任何缓解趋势。
+就是皮肤使劲按或者擦皮肤的话，会留痕迹，就像划痕一样。真的好难受。因为寻麻疹，我现在都有点洁癖了，一直在洗手。
 
-來源｜[fortune](https://fortune.com/2022/04/21/china-covid-lockdown-shanghai-port-supply-chain-backlog-container-ships/)、[seatrade](https://www.seatrade-maritime.com/containers/shanghai-lockdown-container-line-blank-sailings-remain-normal)、[NYtimes](https://www.nytimes.com/2022/04/08/business/china-lockdowns-supply-chain.html)
+作者发布于:2022-4-23
 
-* * *
+**评论选集**
 
-**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+oxny评论:
+
+我不知道为什么得了也快一年了经常复发我都感觉因为这个寻麻疹我都没以前快乐了
+
+木木评论:
+
+我正痒着……吃了一粒过敏药还没全部控制住
+
+sara在荷兰评论:
+
+ym解毒：伊维菌素、锌、维D3、维C等等
+
+苏颜sy评论:
+
+我是打完第二针疫苗就得了划痕性荨麻疹，每天都要吃过敏药。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-120.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-34.png)图片来源：小红书
+
+
+参考链接：[接种新冠疫苗患寻麻疹，一年了还没康复](https://www.xiaohongshu.com/discovery/item/62641edb000000002103ba26?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761144)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

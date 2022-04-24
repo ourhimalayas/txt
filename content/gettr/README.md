@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 9:48 AM (UTC)`
+
+ 4月24号：尊敬的战友们好……中国人仅仅用了5年时间就从全球的买买买……到今天的人间地狱的生活，这是什么原因造成的呢？
+![img](https://media.gettr.com/group47/getter/2022/04/24/09/1d053861-28d0-bc8d-2648-0521e642d162/out.jpg)
+
+---
+
 `@miles 4/24/2022 9:03 AM (UTC)`
 
 【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案。
@@ -147,13 +154,6 @@
 
 4/23/2022 Miles Guo: Never happened ever since 1949! Within 2 weeks over 60,000 armed police were deployed and stationed in Beijing! Communist China is in the early phase of outbreak of COVID vaccine adverse effects and disasters; the cities of Beijing, Shanghai, Guangzhou and Shenzhen etc will be quarantined over and over again; quarantine and internet control are the CCP's measures under the so-called "State Management Model of the New Era".<br/><br/>4/23/2022 文贵直播：自1949年以来首次！北京仅两周内就驻扎式进入了6万多部队！ 大陆现在就是疫苗灾难、疫苗反应的最早期；北上广深等城还会有无数次隔离，隔离和网控等手段就是中共所谓新时代的国家管理模式<br/>
 ![img](https://media.gettr.com/group9/getter/2022/04/23/22/7b8cd301-d4ca-7c79-d322-a7137ee9c92b/out.jpg)
-
----
-
-`@miles 4/23/2022 10:05 PM (UTC)`
-
-4/23/2022 Miles Guo: I can tell you it is 100% sure that Beijing will be quarantined! Not 99% but 100% sure! The CCP has been aware that if they let Chinese people live well, Chinese people will be making difficult for them.<br/><br/>4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子！<br/>
-![img](https://media.gettr.com/group24/getter/2022/04/23/22/980700f3-e919-8574-07b4-5ebd8532c27a/out.jpg)
 
 ---
 
