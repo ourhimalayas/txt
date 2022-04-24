@@ -2,12 +2,20 @@
 ---
 
 
-## 救援现场三大重点
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406673/)
+## 俄乌战争的前因后果
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2406733/)
 
-听写：叮叮         编辑：文宝
+文贵大直播20220424
 
-包括你去了以后，看到我们战友们，从大家染上病，从阳复阴，整个过程。这是考验我们新中国联邦人，我们怎么对待人、怎么对待别人、怎么对待人的人性，包括你们怎么对待动物、包括你们对待恐惧，自私还是无私，怎么相信只有消灭中国共产党，才是解决人类所有问题的唯一办法和希望，每时每刻，而且这些你们是感受不到的。你知道那个咖啡，听说你们有一个叫七哥的人设计了一个非常棒的咖啡，我相信你每时每刻在现场能感受到三大重点：就是七哥要求文耀从非洲运来的第一大帐篷。这个帐篷绝对是咱的门面。珊姐，你们服吧，是吧？Feather，你们服不服？是不是，对方输入中、Kent？这是我们的标志。第二就是你们的马甲，这是七哥千呼万闹、哭哭闹闹给你们要出来的，Take Down the China Communist Party，这个马甲成为了一个标志。第三个就是咱们的飘香的咖啡。咖啡是喝到肚里的，马甲是看到眼里的，帐篷里边是给你安全和交流的。七哥可以说把色、味全感受都展示给了世界，一个完全不同的、一个对人类的所有的认知的新理解。
+文案指导：顽童（纽伦堡正义）
+
+撰稿：文晓（樱花团）文仁（77功成）烟火（樱花团）
+
+书法：沙漠之花（香草山）
+
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-10.png)
+*发布：Theodosia*
 
  
 
