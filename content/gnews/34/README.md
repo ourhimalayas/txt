@@ -2,71 +2,38 @@
 ---
 
 
-## 美国的“爆炸性”法律协议让武汉实验室销毁数据（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2402775/)
+## 俄罗斯恶意网络行动的威胁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2402862/)
 
-翻译： Jenny Ball
+作者：日本东京方舟农场 – Miyali7768(文玉）
+![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
+根据《NEWXMAX》新闻网4月20报道，美国联邦机构和安全盟友周三发布的一份联合公告，警告俄罗斯对基础设施目标的网络威胁可能超出乌克兰边界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1231277670.jpg)
 
+美国网络安全和基础设施安全局（CISA）在其公告中称，自俄入侵乌克兰以来，政府网络专家发布的俄罗斯对关键基础设施构成的网络威胁的最全面看法， 俄罗斯可能在未来几天和几周内执行“恶意网络行动” 。
 
+CISA 主任 Jen Easterly 表示，俄罗斯国家支持和俄罗斯结盟的网络犯罪集团对美国国土的威胁能力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-239.png)
+Easterly 强调：“我们知道恶意网络活动是俄罗斯剧本的一部分。我们也知道俄罗斯政府正在探索针对美国关键基础设施进行网络攻击的可行选项。”
 
-根据美国知情权获得的一份法律文件，武汉病毒研究所有权要求美国的合作实验室销毁其所有工作记录。
+报告还显示俄罗斯支持的一些网络犯罪组织威胁要开展网络行动，以报复针对俄罗斯或向乌克兰提供物质支持的国家或组织的网络攻击。
 
-武汉实验室与德克萨斯大学医学分部 (UTMB) 加尔维斯顿国家实验室之间的一份谅解备忘录指出，每个实验室都可以要求对方归还或“销毁”任何所谓的“秘密文件”——任何通信、文件、他们合作产生的数据或设备——并要求他们擦除任何副本。
+作为一项行动方案，CISA 及其合作伙伴建议组织和公司 升级安全网络，特别是身份验证和远程桌面协议，加强最终用户意识培训。
 
-“一方有权要求对方在没有任何备份的情况下销毁和/或归还秘密文件、材料和设备，”协议规定。
+参考链接：[US Agencies, Cybersecurity Allies Issue Warning About Russian Cyber Attacks](https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/)
 
-即使在该协议的五年期限于 2022 年 10 月结束后，该权利仍然保留。根据该协议的广泛语言，所有文件都有资格销毁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
 
-协议规定：“所有合作……均应被各方视为机密信息。”
-
-2018 年，武汉和得克萨斯州最大生物防护实验室的负责人在《科学》杂志上宣布了一项正式的合作协议。这些实验室是世界上为数不多的在新型冠状病毒方面开展类似前沿工作的设施中的两个。
-
-得克萨斯州的实验室在美国国立卫生研究院的资助下，正在与中国科学院下属的武汉实验室进行生物安全培训。
-
-根据协议，这些实验室还打算开展联合研究项目,并共享资源。
-
-武汉实验室保留要求销毁由美国纳税人资助的美国服务器上数据的权利的消息传出之际，正值一场需要进行调查才能使武汉的冠状病毒研究免于引发 COVID-19 大流行的怀疑的辩论之际。
-
-这也引发了关于武汉实验室高级科学家石正丽保证她永远不会删除敏感数据的问题。
-
-专家说，该条款还为德克萨斯实验室提出了一些法律危险信号。
-
-“坦率地说，该条款具有爆炸性，”格特曼·古特曼& 布鲁克斯合伙人事务所（PLLC Guttman, Buschner & Brooks PLLC）的合伙人鲁本·古特曼（Reuben Guttman） 说，他专门负责确保政府项目的完整性，“每当我看到一个公共实体时，我都会非常担心破坏记录。”
-
-古特曼说，如果是私人实体，应该有内部记录保留和销毁的政策，但作为一个公共机构，德克萨斯实验室在旨在保护联邦和州纳税人资金，在法律上面临更高的标准。
-
-这些法律包括联邦虚假申报法和德克萨斯公共信息法。加尔维斯顿国家实验室是德克萨斯大学系统的一部分，并获得联邦资助。
-
-“你不能随便说，‘好吧，你知道，中国人可以告诉我们什么时候销毁一份文件。’这样行不通，”古特曼说，“必须有一个完整的协议。”
-
-该条款还可能阻碍国会对 COVID-19 大流行的调查。
-
-德克萨斯大学医学分部(UTMB)发言人克里斯托弗·史密斯 (Christopher Smith) 在一份声明中说，德克萨斯实验室“由美国国立卫生研究院 (NIH) 建立，旨在帮助应对全球健康威胁”。“作为政府资助的实体，UTMB 必须遵守适用的公共信息法义务，包括保存其研究和发现的所有文件。”
-
-“UTMB 认为，世界上任何地方从事生物防护工作的所有科学家，都必须掌握生物安全和实验室操作中经过验证的最佳实践的第一手知识。“
-
-接下篇：[美国的“爆炸性”法律协议让武汉实验室销毁数据（2/2）](https://gnews.org/zh-hans/2402800/)
-
-新闻来源：[‘Explosive’ Legal Agreement With U.S. Lets Wuhan Lab Destroy Data](https://childrenshealthdefense.org/defender/legal-agreement-wuhan-lab-data/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
-
-* * *
-
-审核：文乐    
-校对：信心满满
-发布：五通庙
+编辑/校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

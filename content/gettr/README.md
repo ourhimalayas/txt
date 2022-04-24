@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 9:03 AM (UTC)`
+
+【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案。
+![img](https://media.gettr.com/group36/getter/2022/04/24/09/b876c7cd-7b56-d57e-3c57-2f025d1532e2/out.jpg)
+
+---
+
 `@miles 4/24/2022 7:10 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -147,13 +154,6 @@
 
 4/23/2022 Miles Guo: I can tell you it is 100% sure that Beijing will be quarantined! Not 99% but 100% sure! The CCP has been aware that if they let Chinese people live well, Chinese people will be making difficult for them.<br/><br/>4/23/2022 文贵直播：北京百分之百会被隔离！没有99%，只有100%！共产党认为只要老百姓有好日子过，他们自己一定没好日子！<br/>
 ![img](https://media.gettr.com/group24/getter/2022/04/23/22/980700f3-e919-8574-07b4-5ebd8532c27a/out.jpg)
-
----
-
-`@miles 4/23/2022 10:03 PM (UTC)`
-
-“麦田里的俄爹...” 飞飞秀救援快报 2022-04-23<br/>For English：gettr.com/streaming/p16sxf58827
-![img](https://media.gettr.com/group8/origin/2022/04/23/22/f408fafc-23a1-4cfe-de8b-daa8f1b2e665/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
