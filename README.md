@@ -15,41 +15,41 @@
 
 ---
 
-### [俄乌战争的前因后果](/content/gnews/1/README.md)
+### [好几个国家元首已经承认新中国联邦](/content/gnews/1/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [俄乌战争的前因后果](/content/gnews/2/README.md)
  ` MilesGuoLivePPT`
 
-### [千言万语无法形容七哥对你们的感恩](/content/gnews/2/README.md)
+### [千言万语无法形容七哥对你们的感恩](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [我们在前线的每一秒钟都会给中国人积下无尽的福报](/content/gnews/3/README.md)
+### [我们在前线的每一秒钟都会给中国人积下无尽的福报](/content/gnews/4/README.md)
  ` 加拿大温哥华英里农场`
 
-### [还有比我们再伟大的人吗？](/content/gnews/4/README.md)
+### [还有比我们再伟大的人吗？](/content/gnews/5/README.md)
  ` 加拿大温哥华英里农场`
 
-### [这次救援对人类理解中共和中国人分开意义重大](/content/gnews/5/README.md)
+### [这次救援对人类理解中共和中国人分开意义重大](/content/gnews/6/README.md)
  ` 加拿大温哥华英里农场`
 
-### [Fellow Ukrainian Chinese Mr. Peng Joins the NFSC](/content/gnews/6/README.md)
+### [Fellow Ukrainian Chinese Mr. Peng Joins the NFSC](/content/gnews/7/README.md)
  ` MOSVIDEO`
 
-### [视频|妮可战友采访一位支持新中国联邦灭共的莫桑比克义工](/content/gnews/7/README.md)
+### [视频|妮可战友采访一位支持新中国联邦灭共的莫桑比克义工](/content/gnews/8/README.md)
  ` MOSVIDEO`
 
-### [视频|新中国联邦准备在波兰梅迪卡设立大使馆](/content/gnews/8/README.md)
+### [视频|新中国联邦准备在波兰梅迪卡设立大使馆](/content/gnews/9/README.md)
  ` MOSVIDEO`
 
-### [救援现场三大重点](/content/gnews/9/README.md)
+### [救援现场三大重点](/content/gnews/10/README.md)
  ` 加拿大温哥华英里农场`
 
-### [这个民族有救吗？](/content/gnews/10/README.md)
+### [这个民族有救吗？](/content/gnews/11/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中共对待孔子的态度都是为其统治服务](/content/gnews/11/README.md)
+### [中共对待孔子的态度都是为其统治服务](/content/gnews/12/README.md)
  ` 经济小组`
-
-### [话题最多的就是在乌克兰的救援](/content/gnews/12/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/13/README.md)
  ` NFSC News`

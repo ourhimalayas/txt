@@ -2,8 +2,8 @@
 ---
 
 
-## 视频|新中国联邦准备在波兰梅迪卡设立大使馆
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406674/)
+## 视频|妮可战友采访一位支持新中国联邦灭共的莫桑比克义工
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406702/)
 
 香草山：铭心
 
