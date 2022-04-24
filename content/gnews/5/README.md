@@ -2,14 +2,34 @@
 ---
 
 
-## 中国只剩阴间和阳间
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406519/)
+## 视频|新中国联邦和法治基金收到来自乌克兰驻新加坡_文莱_新西兰大使馆的感谢信
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406607/)
 
-听写：叮叮         编辑：文宝
+香草山：铭心
 
-现在中国人没有信仰，奴才当了主人那感觉大家都体会到了，穿上了大白的衣裳，不是打死狗。你看有多少故事啊，我们战友说他亲妹妹都受到了骚扰，说人家送来的东西合法送到小区，就是有人问她，你还想要点特别的吗？要特别服务给我打电话留电话，结果他妹妹真有特别服务了，结果人马山就要求，那你得付出代价，她说那要多少钱？我想让你跟我睡觉，哇，他妹妹骂，就是说什么：“你再敢骂一句，我现在就说你是阳性。” 吓得他妹不敢吱声，“你敢说出去就说你是阳性” Rachel你想过一个问题吗？我们一生怕的事、怀疑的事、解决的事就是生死的问题，一个叫阴间，一个叫阳间，今天的中国已经把整个中国变成了一个活着的阴间和阳间，我让你活成活人，直接到阴间去，我就把你变成阳性；我让你待在里边，已经确认阳性，所谓的方舱就等死的地方；我让你变成阴性，生死一线间阴间和阳间之分就是一套 “大白” 的衣裳，还有写上共产党突击队员。
+新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
 
-在长春，有战友告诉我说他亲自看到就是楼里边的小女孩被带下去，几个小时回来，他说那一定不是强奸，一定是轮奸，就是换吃的去了，但是所有的人说老百姓根本没有意识到这个事的严重性，在家待着呢，歌颂党、扭秧歌，有吃的呀，他不知道接下来是什么，整个中国没有第三间，就是阴间和阳间，而且你在活着的…在阴间阳间的权力就是你身边那个曾经熟悉很认识的街道委员会和居委会和你可能跟上一次床能换来的就能决定你是阴间还是阳间。你父母的无知，我可以告诉你我没法给你说，我遇到的好多亲的爱的都打了疫苗，你知道能把我心能痛死。
+The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
+
+今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
+
+Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
+
+奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+
+Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
+
+非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
+
+It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
+
+从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
+
+As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
+
+
+
+【发布】奇门遁甲
 
  
 

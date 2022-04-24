@@ -2,32 +2,10 @@
 ---
 
 
-## 视频|捐物资的西班牙人
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406467/)
+## 视频|4.19开启了中共灭亡不可逆的进程
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406552/)
 
 香草山：铭心
-
-两位从西班牙来捐物资的西班牙人走进我们的帐篷，
-
-Two Spaniards who came to the border to donate supplies visited the NFSC tents
-
-问我们要灭共马甲。
-
-and asked for our “Take Down the CCP” vests.
-
-我们问他们为什么要这个马甲，
-
-The front line volunteers asked why the guests wanted this vest,
-
-他们说，我们要穿着这个马甲去中共国，
-
-and they said: “We are going to wear this vest in Communist China,
-
-我们要用这件马甲表达我们的心声
-
-and we want to express our true voice and stance by wearing this vest.”
-
-
 
 发布：奇门遁甲
 

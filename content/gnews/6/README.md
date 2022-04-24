@@ -2,12 +2,37 @@
 ---
 
 
-## 战友冒着生死危险去送药
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406518/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
 
-听写：叮叮         编辑：文宝
+作者：香草山翻译部
 
-你知道我有太多故事要讲给你们听，但是你们真的…….你知道我们在上海救了多少人？救了多少家庭？你们去想想。我们的战友在过去这些天就是冒着生死危险去给送药去，但是你知道被送药的人，如果你们今天在看直播，你们知道吗？每次送药我心都是疼的，就像Rachel现在心疼一样。你信七哥，你当初你都有能力，而且被送药的人都是又官又有钱的，你不备药，让我们这些战友买通这些政府官员。有的战友竟然花10万块钱现金允许给送去几板药，跟你素不相识。这个被送药的战友你有没有想过，你把咱们跟你素不认识、爱的战友命给全家悬于一线。完了以后他告诉我说：“七哥，我要是被这帮抓着以后我就完蛋了。” 我说：“以后你再也不能这么干了！” 我可以告诉，今天在长春、在整个上海，我们战友所有救的没有一次失败的，到现在上海和长春没有一个战友要粮食的，就是要药。要药的战友你想想，七哥不是责备你们，你这个时候你知道你得到药的时候，这些人不是给你送的药，是拿着命给你送的药。第二，钱，我们战友们现在很多人都是：七哥放心，几年在家，咱拿现金能花得了，做得很好，食品准备得也不错；但是很可怕有另外一条，有些战友是真有条件离开上海的，现在我告诉大家你回到农村可能比上海更差，现在很多农村戒严以后，村长可能是强奸你一点都不商量，你在那小县城里边遇到县长、局长比上海还坏。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
+[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
+
+
 
  
 

@@ -15,74 +15,74 @@
 
 ---
 
-### [视频|419断播的意义](/content/gnews/1/README.md)
- ` MOSVIDEO`
-
-### [视频|419一定会成为一个伟大的日子](/content/gnews/2/README.md)
- ` MOSVIDEO`
-
-### [视频|4.19开启了中共灭亡不可逆的进程](/content/gnews/3/README.md)
- ` MOSVIDEO`
-
-### [视频|谷歌地圖已停止隱藏俄羅斯的秘密軍事和戰略設施](/content/gnews/4/README.md)
- ` MOSVIDEO`
-
-### [中国只剩阴间和阳间](/content/gnews/5/README.md)
+### [探索和得到以后追求的就是接受和放下](/content/gnews/1/README.md)
  ` 加拿大温哥华英里农场`
 
-### [战友冒着生死危险去送药](/content/gnews/6/README.md)
+### [中国人有勇气的吗？](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [习深信的两件事:他是神，他信莫德尔周期](/content/gnews/7/README.md)
+### [共产党早就准备好被制裁](/content/gnews/3/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/4/README.md)
+ ` NFSC News`
+
+### [视频|新中国联邦和法治基金收到来自乌克兰驻新加坡_文莱_新西兰大使馆的感谢信](/content/gnews/5/README.md)
+ ` MOSVIDEO`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月24日早](/content/gnews/6/README.md)
+ ` 纽约香草山MOS01`
+
+### [视频|中共内部讲话中共内部会议：不要提及疫苗灾难](/content/gnews/7/README.md)
+ ` MOSVIDEO`
+
+### [中共对上海大隔离期间网路言论进行清算](/content/gnews/8/README.md)
+ ` NFSC News`
+
+### [2022年4月24日大直播速记精萃](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [视频|419断播的意义](/content/gnews/10/README.md)
+ ` MOSVIDEO`
+
+### [视频|419一定会成为一个伟大的日子](/content/gnews/11/README.md)
+ ` MOSVIDEO`
+
+### [视频|4.19开启了中共灭亡不可逆的进程](/content/gnews/12/README.md)
+ ` MOSVIDEO`
+
+### [习把食品和水变成了武器](/content/gnews/13/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [视频|谷歌地圖已停止隱藏俄羅斯的秘密軍事和戰略設施](/content/gnews/14/README.md)
+ ` MOSVIDEO`
+
+### [学会放下](/content/gnews/15/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [习深信的两件事:他是神，他信莫德尔周期](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [习近平全票当选二十大代表，享受强奸民意的快感](/content/gnews/8/README.md)
+### [习近平全票当选二十大代表，享受强奸民意的快感](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [共产党备战当中](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
+### [灭共是拯救香港的唯一办法](/content/gnews/18/README.md)
+ ` NFSC News`
 
-### [被击沉莫斯科号上船员1死亡27失踪](/content/gnews/10/README.md)
+### [俄罗斯计划在秋季前部署洲际核导弹](/content/gnews/19/README.md)
+ ` NFSC News`
+
+### [中共企图在美国中期选举之时称霸世界](/content/gnews/20/README.md)
+ ` NFSC News`
+
+### [纽约教育员工因提供“假疫苗证明”被惩罚](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爆料革命救了很多人](/content/gnews/11/README.md)
- ` 加拿大温哥华英里农场`
-
-### [视频|捐物资的西班牙人](/content/gnews/12/README.md)
- ` MOSVIDEO`
-
-### [执政者的两样武器](/content/gnews/13/README.md)
- ` 加拿大温哥华英里农场`
-
-### [灭共是拯救香港的唯一办法](/content/gnews/14/README.md)
- ` NFSC News`
-
-### [俄罗斯计划在秋季前部署洲际核导弹](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [普京会见防长影片显其健康状况恶化](/content/gnews/16/README.md)
- ` NFSC News`
-
-### [美国犹太组织义工盛赞新中国联邦救援行动](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [文贵爆料 4.24：不看“天花板”的上海人](/content/gnews/18/README.md)
- ` 秘密翻译组-原创组`
-
-### [视频|梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节](/content/gnews/19/README.md)
- ` MOSVIDEO`
-
-### [纽约教育员工因提供“假疫苗证明”被惩罚](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [IMF驻日本审查团长称日元汇率风险将超预期](/content/gnews/21/README.md)
+### [IMF驻日本审查团长称日元汇率风险将超预期](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [莫迪在戒备森严的情况下访问印度控制的克什米尔地区](/content/gnews/22/README.md)
+### [莫迪在戒备森严的情况下访问印度控制的克什米尔地区](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵大直播要点（2022年4月24日）](/content/gnews/23/README.md)
- ` 波士顿五月花农场`
 
 ### [4/24/2022国内经济财经周报：田惠宇被调查；多家银行出现取现难](/content/gnews/24/README.md)
  ` 秘密翻译组金融团队`
