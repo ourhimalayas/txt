@@ -2,29 +2,29 @@
 ---
 
 
-## 北京当局已准备好随时封锁隔离 国内检测阳性几乎因疫苗反应
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2405684/)
+## 隔離封鎖將長達個把月 會反復進行 需要做好長期準備
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2405793/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
-\* 北京被大隔离的可能性是100%，目前中共已经完全准备好随时封锁北京。
+\*逃到外地，要先確保能安全到達，不要被困在半路；
 
-\*据内部消息，北京目前每天阳性确诊新增 都是至少1-2万起，而目前国内检测出的阳性几乎都是疫苗导致的。
+\*要考慮到當地的隔離情況，再做決定；
 
-\*在过去这两周，北京已经进驻了6万多武警。
+\*\*要保證有：網絡，食物和水，藥品，備好如煤氣罐，充電器（發電機）等能提供基本能源的設備，基本生活用品，現金，等等。
 
-\*上海虽被解封，但随后还会被 反复封锁隔离。这种模式将会在多个省市实行，相当于变相的军管。
+\*隔離封鎖 會長達個把月，並且會反复實施，一定要做好長期的準備。
 
-视频来源: 20220423—郭先生短直播
-视频制作: 文星光
+視頻來源: 20220423—郭先生短直播
+視頻製作: 文星光
 文案:文星光
 
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+**更多資訊，更多關注**
+[焦點20分GETTR](https://gettr.com/user/20minfocus)
+[焦點20分](https://gettr.com/user/20minfocus)[TWITTER](https://twitter.com/20minfocus)**
+**[烏克蘭救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
+**[郭文貴先生Gettr](https://gettr.com/user/miles)**
+**[全球喜馬拉雅農場聯盟委員會Gettr](https://gettr.com/user/GlobalAlliance)**
+**[喜馬拉雅聯盟大使館全球客服中心Discord](https://discord.gg/zv8j42srdN)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 

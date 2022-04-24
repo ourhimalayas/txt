@@ -2,29 +2,35 @@
 ---
 
 
-## 德国莱茵金属希望向乌克兰出口100辆Marder IFV装甲车
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2403869/)
+## 泽连斯基宣布，美国国务卿和国防部长将访问乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404489/)
 
-**撰稿：日本东京方舟农场 北极**
+#### **【雅典娜快讯】紧贴时代脉博**
 
-据市政厅报4月23日报道，德国莱茵金属公司下属子公司要求德国联邦安全委员会放开许可，允许向乌克兰出口100辆Marder IFV貂式步兵装甲车。
+#### **翻译/编辑：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-25.jpeg)（图片来自网络）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-128.png)图片来源：The Boston Globe & 雅典娜设计组
 
-据报道，该申请已由德国经济部移交给联邦安全委员会。联邦安全委员会是德国的最高军事决策机构，委员会主席由总理兼任，成员有总理办公室主任，以及外交部长，内政部长，国防部长，财政部长，经济合作部长和司法部长等。
 
-据消息人士分析，这意味着在未来几天，联邦安全委员会将不得不决定是否准备好从德国直接向乌克兰供应重型武器。这是自俄乌战争开始以来的第一次此类申请。
+当地时间周六，乌克兰总统泽连斯基宣布，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将前往乌克兰讨论武器援助问题。
 
-莱茵金属公司的子公司希望“尽快”将Marder IFV出售给乌克兰。
+在新闻发布会上，泽连斯基表示，周日他将与美国高级官员会面，讨论俄罗斯加强侵略和美国可以提供的额外支持。
 
-Marder IFV是第二次世界大战后由联邦德国研发的步兵战车，在21世纪之前，貂式步兵战车是德国联邦国防军陆军机械化步兵师的主力步兵战车，现在正在被美洲狮（Puma IFV）步兵战车逐步取代。
+“我们将讨论我们需要的武器清单及其供应速度。最近几周，一切都得到了改善。我对此表示感谢”，他说：“一旦我们拥有更多武器，一旦拥有足够的武器，相信我，我们将立即夺回被俄罗斯占领的领土。”
 
-参考链接：
-1. [https://reurl.cc/VDXAM5](https://reurl.cc/VDXAM5)
-2. [https://reurl.cc/zZz3DQ](https://reurl.cc/zZz3DQ)
+这将是自2月24日战争爆发以来美国高层首次访问基辅，布林肯和奥斯汀的访问是在标志性的一天——战争进入第三个月的那一天，此时乌克兰东部继续爆发激战。
 
-总编：老孙
-校对发布：文曦
+拜登总统本周宣布，将向乌克兰提供另外8亿美元的安全援助，其中包括另外72门榴弹炮，以及120多架“凤凰幽灵”无人机。
+
+参考链接：[Blinken due to meet Zelenskiy in first wartime visit by top US officials to Ukraine | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/24/blinken-due-to-meet-zelenskiy-in-first-wartime-visit-by-top-us-officials-to-ukraine)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

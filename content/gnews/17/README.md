@@ -2,47 +2,42 @@
 ---
 
 
-## 有声|俄乌战局最新消息汇总 04/23/2022
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2405566/)
+## 随着冠状病毒病例的减少，以色列取消了室内口罩规定
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2405639/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+耶路撒冷 – 随着该国冠状病毒的新病例持续下降，以色列已经取消了实施了近一年的室内口罩规定。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/tempsnip随着冠状病毒病例的减少，以色列取消了室内口罩规定.png)文件 – 2022 年 1 月 4 日，在以色列特拉维夫，人们，有些人戴着防护口罩，排队接受 PCR 和快速抗原 COVID-19 冠状病毒检测。以色列已经解除了近一年的室内口罩要求，因为 该国新的冠状病毒病例继续下降。 口罩要求的结束于 2022 年 4 月 23 日星期六晚上生效。在医院、老年护理机构和国际航班上，口罩仍然是强制性的。（美联社照片/Ariel Schalit，文件）
 
+口罩规定的终止于周六晚生效。在医院、老年护理机构和国际航班上仍然必须戴口罩。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.35.59-PM-768x412-1.png)
+自1月份最新一波感染的高峰期以来，以色列的COVID-19新病例已经下降。冠状病毒的严重病例已经从Omicron变体爆发期间的1200多例高位骤降至200例左右。
 
+根据卫生部的数据，自两年前大流行开始以来，以色列已经记录了超过400万例冠状病毒病例和至少10658例死亡病例–其中超过五分之一是在1月份以来。
 
-- 截止当地时间4月22日，俄罗斯军队仍未放弃对乌克兰哈尔科夫州的炮击，同时，其还封锁了哈尔科夫市的部分地区。此外，俄军还在通过小范围攻击试探伊久姆周围的乌克兰阵地。
+在全国940万人口中，超过72%的人至少接种了一剂辉瑞/生物技术公司的疫苗，近一半的人已经接种了三针。
 
+在新型Omicron病毒出现后，以色列于11月关闭了边境，但在此后的几个月里，以色列对外国游客重新开放，并取消了几乎所有冠状病毒限制。
 
-- 另一方面，俄乌两军在乌克兰东北部的交火也仍未止息：俄军在波帕斯纳亚、鲁别日诺耶和北顿涅斯克区域都增援了部分兵力，这也导致波帕斯纳亚大约一半的区域目前处于沦陷状态，但乌克兰守军依然在顽强地进行巷战反击。
-- 至于南部阵线，俄罗斯试图在赫尔松建立“赫尔松人民共和国”，用以巩固其军事占领并为永久控制这些地区创造条件。
-- 另据相关消息显示，虽然俄罗斯国防部长声称俄军已经取得了马里乌波尔战役的胜利，但乌克兰守军在当地亚速工厂周围的反击战仍在继续。鉴于俄罗斯军队或将试图困死坚守该市的乌克兰士兵，乌克兰官员呼吁当地停火并允许乌克兰守军和被困平民离开马里乌波尔。有消息人士认为，参与马里乌波尔战役的俄罗斯部队目前应该伤亡惨重：虽然马里乌波尔市或将失守，但乌克兰部队已经成功地束缚和削弱了大量的俄罗斯军队。为此，尽管俄军企图将部分当地部队重新部署至其他地区进行增援，但这些部队基本不能再释放出符合预期的战斗力。
+新闻来源：[Israel lifts indoor mask mandate as coronavirus cases drop](https://www.washingtonpost.com/world/israel-lifts-indoor-mask-mandate-as-coronavirus-cases-drop/2022/04/24/dd3f0bfc-c397-11ec-b5df-1fba61a66c75_story.html?utm_source=feedly&amp;utm_medium=referral&amp;utm_campaign=wp_world)
 
+* * *
 
+审核：Aries的星
+校对：信心满满
+发布：信心满满
 
-
-
-
-文字版原文：[俄乌战局最新消息汇总 04/23/2022](https://gnews.org/zh-hans/2397862/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

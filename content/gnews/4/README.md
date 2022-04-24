@@ -2,94 +2,70 @@
 ---
 
 
-## 除了中共国 俄罗斯也被人民公敌抹黑和境外势力操控？
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2405742/)
+## 【商见你我他】第51期新闻简讯（三）
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2406012/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+编辑：波士顿五月花—DM；cici
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1a9bae1e-bdb2-410c-a8b3-eb3857774b89.jpg)
+首先，让我们关注《铁锁梦》MV上线以来的最新状况，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+《铁锁梦》MV在全球上线第三天，登榜iTunes 。截至4月21号，11国MV总榜第一名，12国MV流行曲榜第一名。继《灭共的雪》和《铁锁梦》两首单曲同时上榜，并连续占领多个国家和地区iTunes排行榜前列，震撼世界。
 
-4月22日，俄罗斯司法部以所谓涉嫌在乌克兰的军事行动中散布有关俄罗斯军队的虚假信息为由将反对派政治家弗拉基米尔·卡拉-穆尔扎（Vladimir Kara-Murza）列入“外国代理人”名单，莫斯科巴斯曼尼地方法院（The Basmanny District Court of Moscow）下令对他进行审前拘留至6月12日。
+让我们继续创造奇迹，努力打榜，以歌灭共。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-24_22-28-56.png)
+接下来，是新中国联邦新闻，本周文贵先生直播以及盖特资讯：
 
-卡拉-穆尔扎拥有剑桥大学历史学硕士学位，是俄罗斯政治活动家、人民自由党的前副领导人，也是俄罗斯国家杜马的候选人和电影制片人，是《全球马格尼茨基法案》（Global Magnitsky Act）人权问责制的高级顾问。他同时是《华盛顿邮报》（Washington Post）的特约撰稿人，在莫斯科回声广播电台（Echo of Moscow radio station）每周主持一次节目，并曾为BBC、RTVi 和Kommersant工作，曾获得萨哈罗夫（Sakharov Prize）良心行为奖（Act of Conscience）、马格尼茨基人权奖（Magnitsky Human Rights Award）和日内瓦峰会勇气奖（Geneva Summit Courage Award）。
+1）美国众议院议长佩洛西将于4月26日访台，这次美方对于中共的“严重关切”不予理睬。中共宣称，4月26日将是一个中美关系的分水岭。
 
-这位受过西方教育的活动家和记者是俄罗斯反对派领导人鲍里斯·涅姆佐夫（Boris Nemtsov）的长期合作伙伴，鲍里斯·涅姆佐夫自由基金会的主席。
+2）北京五环以内及六环和七环之间有十几个点大量进驻武警。体制内战友爆料，中共正在丧心病狂地准备在北京进行大隔离、搞极限测试，并趁机除掉一些老年人，这并不只是有粮食有水就行的。
 
-2015年和2017年，卡拉-穆尔扎两次昏迷住院，每一次都非常严重，并且表现出与中毒一致的症状。对他生命的企图被广泛认为是俄罗斯政府对他在马格尼茨基制裁方面所做的工作的报复。
+3）上海即将解封，但要秋后算账清算。习太阳想折腾上海，韩正曾经偷坐火车回上海看望江朱，引习警觉。
 
-乌克兰调查报告组织[Bellingcat](https://www.bellingcat.com/)表示，在疑似中毒事件发生之前，俄罗斯联邦安全局(Federal Security Service，简称FSB)跟踪了他。而他的亲密伙伴和上司鲍里斯·涅姆佐夫于2015年在克里姆林宫附近被暗杀。据称，FSB还于2020年8月毒杀了政治活动家阿列克谢·纳瓦尔尼（Aleksey Navalny）。
+4）上海绝大多数人核酸检测呈阳性是疫苗反应造成的。中共在青岛、哈尔滨、大连、海口等城市接下来要做的是以“清零”为掩护，真正目的是给更多人打疫苗来消灭人口。中共认为60岁以上的人是社会的负担，不应继续生存，这部分人口必须清除。
 
-多年来，卡拉-穆尔扎一直在游说西方，反对总统弗拉基米尔·普京的独裁政权。他的律师瓦迪姆·普罗霍罗夫(Vadim Prokhorov)在Facebook上发布消息，莫斯科巴斯曼尼地区法院下令将这位40岁反对派领导人关押至6月12日。
+中共的“清零”管控也是其灭亡前的最后挣扎。
 
-根据瓦迪姆·普罗霍罗夫在Facebook上发布的关于提起刑事诉讼的命令副本，卡拉-穆尔扎的案件是针对他在3月中旬，向美国亚利桑那州议会下议院议员发表关于普京在乌克兰的军事行动的演讲时启动的。
+5）几个月前提醒大家在中共国银行存的钱会取不出来，上海有战友信了郭先生的话并取了现金，在封城期间花重金成功离开上海。
 
-克里姆林宫发言人德米特里·佩斯科夫（Dmitry Peskov）说：“调查委员会根据俄罗斯刑法典修正案行使权力和职责。”
+中共体制的邪恶在于，永远要牺牲99%的人的生命、安全和财富来保障1%的人的安全和利益。中共是奴隶主，99%的中国人是奴隶。
 
-在俄罗斯入侵乌克兰后，莫斯科加大了消除异议的力度。俄罗斯国内独立媒体已被关闭或暂停运营，数以万计的俄罗斯人离开该国以抗议克里姆林宫的政策。
+6）2017年郭七条的“不反习”是郭先生对中共高层采取的战术，其实是要灭了习。
 
-俄罗斯国家杜马打着“保护俄罗斯和及其人民的利益”为幌子，紧急批准了一项修订俄罗斯刑法典的法案，以惩罚所谓“传播有关俄罗斯军队行动的虚假信息;抹黑俄罗斯武装部队的行为;呼吁对俄罗斯实施制裁”。
+傅政华, 孙力军和吴征必须受到最严厉的法律制裁。孟建柱现在最后悔当时没有把习做掉。
 
-该法案增加了俄罗斯刑法典第207.3条，该条规定，旨在保护俄罗斯及其人民的利益，公开传播有关俄罗斯武装部队行动的虚假信息，最高刑罚为10至15年监禁（如果后果严重）；法院还可以处以最高150万卢布的罚款，或命令最多一年的社区服刑，或最多三年的劳教。
+充当中共走狗的所谓中国各界名流不会被中共所怜悯，最终会走进中共给他们准备的火葬场。只有郭先生了解中共这个流氓组织的本质。
 
-卡拉-穆尔扎因发布俄罗斯政府认为“虚假”的军方信息，最高可被判处15年徒刑。
+7）招商银行发布公告称免去田惠宇行长、董事职务，这验证了文贵在2019年11月30日的爆料 ：田惠宇、田国立、周亮、康典都会被抓，这是习王的斗争结果，中共就是一台魔鬼的绞肉机。
 
-与此同时，卡拉-穆尔扎和七位著名记者被宣布为“外国代理人”（foreign agents），其中包括现已被俄罗斯政府解散的莫斯科回声广播电台编辑阿列克谢·维涅迪克托夫（Alexei Venediktov）。
+8）滕文生和王沪宁在习还是副主席的时候就提出”中共未来30年”，习当时认为要把中共国变成海洋大国和劳动力输出国，要通过偷、抢、骗西方企业来获取科技并打垮美元，从而让中共领导全世界。
 
-俄罗斯司法部在一份声明中表示，已在其不断增长的“外国代理人”名单中增加了八个人，其中包括2020年8月被毒杀的俄罗斯反对派领导人阿列克谢·纳瓦尔尼的得力助手列昂尼德·沃尔科夫（Leonid Volkov）和资深记者亚历山大·涅夫佐罗夫（Alexander Nevzorov）。
+9）郭先生对台湾的防御能力毫不乐观：所有人都指望美国前来解救，贪生怕死，缺乏实战经验，也无力对抗来自中共的饱和性进攻。
 
-3月，俄罗斯调查人员对涅夫佐罗夫提起刑事诉讼，指控其散布莫斯科军队故意炮击乌克兰陷入困境的马里乌波尔市的一家妇产医院的“虚假”消息。
+台湾问题涉及很多方面，情况复杂希望渺茫，台湾内部腐败，甚至购买产自中共的无人机，懦弱的台湾不敢面对自澳洲购买的无人机实为中共售卖的事实。
 
-根据俄罗斯法律，被认定为“外国代理人”的个人或实体必须披露资金来源，接受审计，并在其所有文本、视频和社交媒体帖子中附上 “外国代理人”的标题。
+10）如果中共打台湾，美日将别无选择地参战，前提是台湾要反抗中共进攻，若台湾不反抗，美日等盟军则会等台湾快完蛋的时候参战并灭掉共军。
 
-这让人想起前苏联时代的“人民公敌”（enemy of the people）一词，旨在适用于从国外获得资金并参与任何“政治活动”的个人或团体。
+习绝对敢对台使用战略核武器，习觉得如果他得不到台湾，那就让谁都得不到。
 
-“境外势力操控”、“外国代理人”、“抹黑”、“人民公敌”在独裁国家普遍存在。
+虽然台湾有卖台贼，但爆料革命和国际社会都在保护台湾。郭先生将会向西方提供中共潜水艇方位的情报，助力西方使用水下镭射将其一举歼灭。
 
-在去年9月26日，中共国国务院新闻办公室发表《新疆的人口发展》白皮书，就把中共对新疆维吾尔族和其它少数民族族裔的种族灭绝和反人类罪，归结为“反华势力”抹黑的结果。
+11）欧洲和美国正在进行“引俄出洞”和“引共出洞”的策略，俄乌战争是正义和邪恶的终极大战。俄乌战场本周将有大战，背后的目的就是普京要借此要挟和世界讲数。
 
-白皮书第六章“关于境外反华势力炒作的几个问题”，”强迫劳动”、强制绝育”、“亲子分离”、“文化灭绝”、“宗教迫害”，政府任意拘留，包括将超过100万维吾尔人和其他主要是穆斯林少数群体的成员大规模拘留在非法集中营，另外200万人被拘留在在非法集中营，全天接受 “再教育”培训，全部归为境外反华势力大肆炒作，疯狂歪曲抹黑新疆，攻击诋毁中共国政府的治疆政策，妖魔化中共国的结果。
+12）喜联储的创始人余建明接受英国GB News的采访时，谈到了虚拟货币对乌克兰救援活动的帮助。他特别提到今天的乌克兰就是明天的台湾，因为他本人来自香港，已经有过这种经历。他还担心目前新的邪恶轴心已经形成，这场战争只是更大一场战争的开始。
 
-而事实上，2021年1月19日，在川普政府任期的最后一日，时任美国国务卿蓬佩奥声明谴责中共国在新疆囚禁了超过一百万维族人及其他穆斯林少数族裔，并强制他们劳动、节育，限制其宗教自由等。蓬佩奥表示，“在仔细研究现有事实之后，我确定中共国在中共的领导和控制之下，对新疆的主要是穆斯林的维吾尔人和其他少数民族、宗教少数群体实施种族清洗” 。
+13）中国共产党将无法推脱掉疫苗、病毒、香港人道灾难、新疆大屠杀等一系列罪行的责任，全世界最终一定会跟它算账的。
 
-2022年4月12日，美国国务卿布林肯发布美国国务院《2021年国别人权报告》，该报告有关中共国包括大陆、香港、澳门和西藏）部分的第一页，认定“年内，新疆发生了针对以穆斯林为主的维吾尔人以及其他少数民族和宗教少数群体的种族灭绝和危害人类罪。罪行包括：任意监禁或以其他方式严重剥夺超过100万平民的人身自由；强制绝育、强制堕胎和更严格地实施国家的节育政策；强奸;对大量被任意拘留的人施以酷刑；强制性劳动;以及对宗教或信仰自由、言论自由和行动自由的严厉限制。
+14）新中国联邦必将获得最终胜利，闪亮登上世界舞台。
 
-参考数据：
+五年前，没人相信我们能灭共。但今天不一样了，自从俄乌战争开始，中共体制内发生了本质变化，内部的很多人认清了共产党和习大神才是危墙，是爆料革命用实力让他们心服口服。
 
-[Russia: Prominent opposition activist faces up to 15 years in prison for sharing information about the war in Ukraine](https://www.amnesty.org/en/latest/news/2022/04/russia-prominent-opposition-activist-faces-up-to-15-years-in-prison-for-sharing-information-about-the-war-in-ukraine/)
+15）419大直播在墙内影响巨大，所谓的净网、搜网活动与之有关。
 
-[Russia court jails opposition politician Kara-Murza](https://www.france24.com/en/live-news/20220422-russia-court-jails-opposition-politician-kara-murza)
+共产党连流氓土匪这个名称都不配，任何一个团体和政府去剥夺人们的生存权，和自己创造财富支配的权利的时候，那就是必须被消灭的时候，只是时间和方式问题，没有人可以阻挡共产党的灭亡。
 
-[Vladimir Kara-Murza](https://www.humanrightsfirst.org/biography/vladimir-kara-murza)
+16）最新数据显示，郭文贵先生在全网（不含国内）的粉丝共计1.93亿，郭先生和新中国联邦才有这么多流量，美国总统也做不到。当中国人都醒来的时候，那个数字又将是多么巨大。
 
-[Russia Court Orders Opposition Activist Held Over Charges He Distributed False Information](https://www.rferl.org/a/russia-kara-murza-false-news-army/31816424.html)
-
-[Kara-Murza arrested, Venediktov declared a foreign agent](https://www.sbs.com.au/language/english/audio/kara-murza-arrested-venediktov-declared-a-foreign-agent)
-
-[Венедиктов, Невзоров и Кара-Мурза признаны “иноагентами”](https://www.kasparov.ru/material.php?id=6262F40080DDD)
-
-[Следствие требует арестовать оппозиционера Владимира Кара-Мурзу](https://www.rosbalt.ru/moscow/2022/04/22/1954876.html)
-
-[EXPLAINER: Why the term ‘genocide’ matters in Ukraine war](https://apnews.com/article/russia-ukraine-putin-united-nations-general-assembly-biden-boris-johnson-0203afd4e88249fb68c06f00a1686e27)
-
-[Convention on the Prevention and Punishment of the Crime of Genocide](https://treaties.un.org/pages/ViewDetails.aspx?src=TREATY&amp;mtdsg_no=IV-1&amp;chapter=4)
-
-[防止及惩治灭绝种族罪公约](https://www.un.org/zh/documents/treaty/files/OHCHR-1948.shtml)
-
-[Remarks by President Biden Before Air Force One Departure](https://www.whitehouse.gov/briefing-room/speeches-remarks/2022/04/12/remarks-by-president-biden-before-air-force-one-departure-13/)
-
-[How the United States is Holding Russia and Belarus Accountable](https://www.state.gov/holding-russia-and-belarus-accountable/)
-
-[Biden: Russia war a ‘genocide,’ trying to ‘wipe out’ Ukraine](https://apnews.com/article/russia-ukraine-putin-zelenskyy-biden-genocides-c933e9effd7bb2e30d42be11e0384fcd)
-
-[2021 Country Reports on Human Rights Practices: China (Includes Hong Kong, Macau, and Tibet)](https://www.state.gov/reports/2021-country-reports-on-human-rights-practices/china/)
-
-[美国国务卿蓬佩奥：中国对维吾尔族“犯下种族清洗和反人类罪”](https://www.bbc.com/zhongwen/simp/world-55727785)
-
-[《新疆的人口发展》白皮书（全文）](https://baijiahao.baidu.com/s?id=1711930379120986103&amp;wfr=spider&amp;for=pc)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+封面图片/审核/发布：DM
 
  
 

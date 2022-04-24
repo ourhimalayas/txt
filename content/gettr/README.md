@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 3:40 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月23日第50天当日救援统计：<br/>Medyka救援站接待：约268人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约14171人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 50 - Date: April 23, 2022 :<br/>Medyka Rescue Station Reception: about 268 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 14171 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group31/getter/2022/04/24/15/adacf484-51b7-09d6-eb9f-2bf4f5d9a2e2/6879c604ca02a0a7e772c6e1fa959038.jpg)
+
+---
+
+`@miles 4/24/2022 3:38 PM (UTC)`
+
+04/24/2022 on the 6th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 4 countries Top Music Video Charts <br/>No.1 🥇 on 6 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Canada🇨🇦, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月24号，《铁锁梦》MV在全球上线第六天，登榜iTunes <br/>4国MV总榜第一名🥇<br/>6国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，加拿大🇨🇦，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2405812/
+
+---
+
 `@miles 4/24/2022 2:30 PM (UTC)`
 
 2022年4月24日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>从乌克兰救援以来，法治基金和法治社会受捐款是有史以来最高的。而且现在的捐款额远远超过了到乌克兰救援的前线。这说明了中国人的正义和中国人绝对不缺勇士、不缺有良知、不缺真正的有智慧。 希望中国人走向法治民主自由时代的真正的中国人，这就是我们的动力！<br/><br/>4/24/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors!<br/><br/>Since the beginning of the Ukraine rescue, donations to the ROL Foundation and Society are the highest ever. These donations far exceed other front line Ukrainian relief efforts. This shows the righteousness of the Chinese people. There are many courageous, conscientious, and wise Chinese people.  We hope Chinese enter the era of rule of law, democracy and freedom. This is our driving force!
@@ -140,20 +153,6 @@
 
 2022.04.23  PM NFSC news  NFSC may Establish Embassies in Ukraine and Poland
 ![img](https://media.gettr.com/group46/origin/2022/04/23/22/18167c12-f591-4db7-b475-251068d2ff7a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/23/2022 10:56 PM (UTC)`
-
-【Ukraine Rescue】 04/22/2022  An Irish volunteer interviewed by Nicole says: When money talks, truth dies. The mainstream media strictly censors people's speech out of financial interests, so the voice of the New Federal State of China and the true voice of the mainland Chinese people cannot be spread out.<br/><br/>【乌克兰救援】 04/22/2022 妮可采访爱尔兰义工，他说：金钱至上，真相就会死亡。主流媒体出于经济利益严格审查人们的言论，新中国联邦的声音发不出去，国内人民真实的心声发不出去。
-![img](https://media.gettr.com/group21/getter/2022/04/23/22/9cde61cc-8c26-ac99-747d-1c39d9665f83/out.jpg)
-
----
-
-`@miles 4/23/2022 10:50 PM (UTC)`
-
-【Ukraine Rescue】 04/22/2022 The suspected spy of the Chinese Communist Party cut the billboard wire of our New Federal State of China in the United Nations Migration Agency tent.<br/><br/>【乌克兰救援】 04/22/2022 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
-![img](https://media.gettr.com/group11/getter/2022/04/23/22/de22b283-a6e2-0417-8e03-5bcdf39cba00/out.jpg)
 
 ---
 
