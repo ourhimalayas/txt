@@ -2,67 +2,29 @@
 ---
 
 
-## 新西兰发现首例 XE 变种，但新西兰人需要担心吗？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2401904/)
+## 不要幻想皇城没啥事 北京百分之百会封城
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2402103/)
 
-翻译：sherryok (酷翻组)
-采集：玫瑰新闻组
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/04/v2-e25f1f44f327ac16dbf49f92739c3424_1440w.jpeg)
+3月22日张某某、俞某某网传“上海马上封城7天”“全封4天”。第二天上海警方就以造谣、传播虚假信息罪对两人进行立案侦查。3月26日上海新冠肺炎防控发布会振振有词地说，封三五天一周都不行。当时人们都以为上海有老佛爷、猪某、曾某、孟某、王副主席等党国大神，上海怎么会有事呢！3月28日突然开始阶段性封城，之后变成全城封控，至今解封也遥遥无期。
+![](http://www.xhby.net/zt/zzccfkyq/yw/202203/W020220323755109671414.png)
+4月24日的今天也许和当初上海市民有着同样的幻想，北京市民感觉自己是天子脚下的皇城，北京怎么会有事呢？但事实是，**过去两周仅北京驻扎式进入六万多武警，创建国以来乃至当时文革动乱驻扎人数之最**。如果潘家园封了一定会封朝阳，可能几个小时也可能一天的时间封朝阳。然后朝阳封完以后，他们会留出几个出口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+北京会和上海、哈尔滨、青岛、大连、海口、南昌、广州、杭州、苏州、深圳、武汉、郑州等城市一样，绝不是一天两天能过去而是长期的封控。封一段时间，给开一下封，开一下封让放放风，然后再把人关进去。为什么这么多大城市要集体封控动态清零呢？
+
+当局心里倍清楚，**各地疯控和清零是针对大规模疫苗灾难到来的提前极限测压**。这些城市的疫苗普及率高、洋疫苗打的也太多。通过一次又一次的集中核酸检测和封控隔离，就在**内部**解决了党国面临的所有生死问题。大规模疫苗灾难来临时，各种癌症、血栓、死人非常多，如果有人闹怎么办？他们会立马关城市；谁上街游行关谁；有人网上发真相就关闭和限制网络；有人想大额取款就边控和警告。
+
+由于权贵们把中国山川河海卖掉、毁掉殆尽，走头无路之时，**对外**他们就会借国家民族名义扩张战争。把所有巨额债务、经济腐败、欺骗、政治斗争等问题全转嫁到战争上去。所有问题都迎刃而解。
+
+**这就是新时代的国家管理模式：对内封控清零把罪价让老百姓顶包、对外以民族国家之名发动战争（对湾湾和对美欧西方）把罪责推给万恶的米帝和西方**。对内的集中核酸和封控，把老百姓关进自家房子监狱里（网络防火墙微信控制信息、供销社控制粮食，关掉支付宝银行控制金钱）。然后老百姓饿死病死、抑郁死、跳楼死各种死，大幅降低和清零社会成本（煤电水气、医疗保险等）。通过对外战争，把腐败权斗、金融经济崩塌、各种灾难甩锅给米国和战争。通过对内封控清零，让老百姓为国为疫情殉道，吞下战争的苦果和代价。
+
+信息来源：[文贵先生2022年4月23日直播](https://gettr.com/post/p16qngm5663)
+ [2022年4月23日七哥乱聊直播文字版](https://gnews.org/zh-hans/2399647/)
 
 
 
 
-
-
-
-![查看來源圖片](https://th.bing.com/th/id/OIP.Q7ulwsF6xfTIeVeXctM9uQHaE6?pid=ImgDet&amp;rs=1)
-
-首例奥米克戎 的 XE 变种在新西兰被发现，但这是否意味着我们必须重新调整疫情的交通灯设置，还是在与 奥米克戎的斗争中照常营业？
-
-新西兰卫生部周六（4月23日）报告说，感染者从海外前往新西兰，于 4 月 19 日抵达。他们于 4 月 20 日接受了检测，随后全基因组测序证实了 XE 变体。
-
-他们在家隔离。
-
-新变种 XE 于 1 月 19 日在英国首次发现，[澳大利亚一周前记录了第一例病例](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-australia-records-its-first-case-of-new-covid-19-variant-xe.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，从那时起，XE 到达新西兰只是时间问题。
-
-[布卢姆菲尔德说新变种值得关注，警告说如果它到达新西兰可能需要更严格的措施](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-[XE 是由另外两种菌株 BA.1（奥米克戎的原始菌株）和 BA.2 重组而成。](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-new-covid-variant-xe-potentially-10-percent-more-transmissible-than-omicron.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-根据迄今为止汇编的有限数据，早期估计表明新菌株的传播性比 BA.2 高约 10%，但需要更多数据来证实这一点。
-
-“在发现其不同的传播和疾病特征（包括严重程度）之前，XE 仍然属于奥米可戎的一个 变体”[世界卫生组织（WHO）3 月 29 日的一份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.who.int/publications/m/item/weekly-epidemiological-update-on-covid-19---29-march-2022)说。
-
-英国卫生当局在 3 月下旬表示，“没有足够的证据得出关于这种变体的增长优势或其他特性的结论。”
-
-英国卫生安全局首席医学顾问苏珊霍普金斯说：“这种特殊的重组 XE 显示出可变的增长率，我们还不能确定它是否具有真正的增长优势。”
-
-世卫组织表示将继续密切监测和评估与重组变体相关的公共卫生风险，并将在获得证据后提供进一步的更新。
-
-卫生部周六表示，该变种的出现并不意外，我们目前的健康系统应该足以应对任何爆发。.
-
-“在现阶段，管理其他 Omicron 变体的公共卫生设置被评估为适合管理 XE，不需要进行任何更改。
-
-“迄今为止，没有证据表明 XE 会导致比其他 Omicron 谱系更严重的疾病，并指出需要数周或数月才能确定每个新变体的严重程度。”
-
-即将卸任的新西兰卫生总干事阿什利·布鲁姆菲尔德本月早些时候警告说，[需要监测新的变种。](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-“这当然是我们需要密切关注的事情，关于 XE 的情况之一是它实际上是两个 Omicron 子变体 BA.1 和 BA.2 的组合，” 布鲁姆菲尔德 在 四月份的早新闻 上告诉记者。
-
-“这些病毒不断交换遗传物质。因此，XE 变体的传染性似乎比我们目前在全国广泛传播的 BA.2 变体高 10% 左右。”
-
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒Covid-19）**
-
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
-
-新闻链接：
-[https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html](https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
 
  
 

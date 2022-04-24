@@ -2,10 +2,10 @@
 ---
 
 
-## 上海一女子因饥饿发布视频呼救
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2402310/)
+## 美国商船在封锁期间被困在上海港口
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2402363/)
 
-04/22/2022 上海一女子因饥饿发布视频呼救。她一家7口，最小的孩子不到2岁，一个不到6岁，另外一个不到7岁。
+04/22/2022 美国商船船员吉安卡洛·托梅透露，他的船在封锁期间被困在上海港外两个月。他们的食物和水几乎耗尽。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
