@@ -2,20 +2,35 @@
 ---
 
 
-## 泽连斯基在东正教复活节致辞：我发誓邪恶不会摧毁乌克兰
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2406895/)
+## 研究表明只29%的染疫住院患者在一年内完全康复
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2406927/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04241.jpg)图片来自repubblica.it
-乌克兰总统弗拉基米尔·泽连斯基站在该国最著名的纪念碑之一的基辅有 1000 年历史的圣索菲亚大教堂内，在东正教复活节之际发表了讲话，承诺“邪恶”不会摧毁他的国家。
+根据一项新的研究，在英国因COVID-19而住院的人中只有29%在一年后完全康复。
 
-总统说到:“我们目睹了可怕的战争场面,正在与极其艰巨的挑战作斗争。但是最终我们将达到一个正义的结局，那是乌克兰人民幸福和繁荣生活的开始。我们的心中和灵魂充满了对占领者和他们所做的一切的愤怒仇恨，但是不要让愤怒从内部摧毁我们，要把它变成一种温和的力量来打败邪恶的力量“。
+亚洲新闻台（CNA）周日（4月24日）报道说，这些发现给出一个警告就是染疫转为慢性病将成为一种常态。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C-6.jpg)acru.med.umich.edu
+该研究还发现，染疫转为慢性病在女性中的发病率高于男性，肥胖者完全康复的可能性只有一半，而那些需要呼吸机的人在一年内完全康复的可能性更比肥胖者低58%。
 
-“保护我们免于不和和分离，不要失去团结，加强我们的意志和精神，让我们不要迷失自己，不要让我们失去对自由的渴望。因此，不要让我们失去对正义追求的战斗热情，不要失去对胜利的希望和尊严的感觉，并维护我们的自由“。
+该研究分析了2020年3月-2021年4月期间从39家英国医院出院的2300名染疫患者，审查了其中807名住院后5个月和一年的患者，研究结果发表在《柳叶刀呼吸医学》杂志上。
 
-原文链接: [https://video.repubblica.it/dossier/crisi\_in\_ucraina\_la\_russia\_il\_donbass\_i\_video/zelensky-nel-messaggio-pasquale-ortodosso-giuro-che-la-malvagita-non-distruggera-l-ucraina/413999/414926?ref=RHTP-BS-I339021822-P10-S1-F](https://video.repubblica.it/dossier/crisi_in_ucraina_la_russia_il_donbass_i_video/zelensky-nel-messaggio-pasquale-ortodosso-giuro-che-la-malvagita-non-distruggera-l-ucraina/413999/414926?ref=RHTP-BS-I339021822-P10-S1-F)
+报道称，研究中只有26%的人在5个月内完全康复，一年后只有28.9%的人完全康复。
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+“在我们的研究中，住院后5个月到一年的恢复有限，涉及症状、心理健康、运动能力、器官损伤和生活质量，这一点令人震惊。”据研究的共同负责人、英国国家健康与护理研究所的瑞秋·埃文斯（Rachel Evans）说。
+
+那些长途旅行者最常见的症状是：疲劳、肌肉疼痛、睡眠不好、体力减退和呼吸不畅。
+
+“如果没有有效的治疗方法，染疫转慢性病可能会成为一种高度流行的新的长期疾病。”据研究的共同负责人莱斯特大学的克里斯托弗·布莱特林（Christopher Brightling）说。
+
+该研究仍在进行，并将重新审视受试者的健康状况。据CNA报道，研究结果将被提交给欧洲临床微生物学和传染病大会。
+
+**快评**：这篇新闻报道英国一项对因染疫住院的患者做的长期调查。目前公布的是一年的康复状况，不容乐观。
+
+事实上，郭先生一再警告世界，新冠病毒是引子，疫苗才是目的和灭人类的武器。人类最大的灾难是这次CCP病毒和疫苗灾难，将有多惨令人无法想象。
+
+参考链接：
+[https://www.newsmax.com/newsfront/study-covid-19-hospitalizations-pandemic/2022/04/24/id/1067023/](https://www.newsmax.com/newsfront/study-covid-19-hospitalizations-pandemic/2022/04/24/id/1067023/)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

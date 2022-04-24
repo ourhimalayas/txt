@@ -2,22 +2,39 @@
 ---
 
 
-## 《历史的今天》2022.04.25
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2407052/)
+## 有声|中共杀人体制的危害
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407068/)
 
-作者：文珺追随MG
-![](https://assets.gnews.org/wp-content/uploads/2022/04/USS_Triton.jpg)[图片来自网络](https://zh.wikipedia.org/wiki/)
-1，1644年4月25日：中国明朝皇帝明思宗因李自成率领的农民军攻入北京而出奔，继而在景山自缢殉国，明朝灭亡。
-2，1945年4月25日：《联合国宪章》制宪会议在美国旧金山召开，45个国家参与会议。
-3，1956年4月25日：中共国第一届全国人大常委会第34次会议通过《关于处理在押日本侵略中国战争中战争犯罪分子的决定》。
-4，1957年4月25日：第一届中国出口商品交易会在广州举行。
-5，1960年4月25日：隶属于美国海军的特里同号核潜艇返回里霍伯斯滩，完成全世界首次水下环球航行。
-6，1999年4月25日：数万法轮功修炼者到北京中南海上访述说多年来对法轮功的不公正对待。然而时至今日，中共对法轮功的迫害仍在继续。
-7，2021年4月25日：文贵先生直播：拜登欧洲之行意义为何？中共内部经济一塌糊涂，民生银行是中国经济最大的地雷之一！习已经成为孤家“险”人，以共灭共的重点是曾庆红是否出手。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在纪念419事件五周年大直播中，郭先生提到了共产党体制的巨大危害。在这个体制中，人一旦进入，掌握一定的权力，就可以胡作非为，尝到权力带来的各种优越性。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388616.jpg)
+在目前上海的大隔离人道灾难中，体现得最为明显的，就是那些身穿防护服的工作人员。他们可以利用手中的权力，随意支配别人的行为，可以只用一个馒头作为交换，合法地性侵一名18岁女孩，这种极其不对等的交易只有在中共的体制下才有。而一些中共所谓的高官，如之前的孙力军，原本是一个钢铁倒卖商，通过某种途径进入中共体制后，便拥有了随意抓人杀人的权力，根本不必顾及任何人间律令、伦理道德。
 
-* * *
+这种权力至上体制，就像人体中毒一样，必须要经历很长的时间才能将其排出体外，可能一两世都不止。
 
-*发布：Theodosia*
+
+
+
+
+文字版原文：[中共杀人体制的危害](https://gnews.org/zh-hans/2399432/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

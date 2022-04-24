@@ -2,22 +2,22 @@
 ---
 
 
-## 法治基金将对破坏救援行动者诉诸法律
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2406940/)
+## 西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2406995/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3096.png)
-图片来源：Gettr
+#### 编译 意大利达芬奇农场 小白鸽
 
-据文贵先生4月24日盖特直播报道， 继22日法治基金梅迪卡营地巨型广告牌遭不明身份者破坏后，今天该事件调查有了最新进展。
+西澳大利亚州州长马克·麦高文(Mark McGowan)办公室证实，他的三个孩子中的一个在感染新冠病毒后住院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-16.41.58.png)图片来源：eventiavversinews.it
+声明中写道：“孩子已经完全接种疫苗了，但由于感染，他的情况很严重。孩子仍在医院接受持续护理。”最近几天，据透露，西澳大利亚州州长马克·麦高文（Mark McGowan）在与家人单独相聚期间，其新冠病毒检测呈阳性。麦高文最初在一名家庭成员感染病毒后检测为阴性，他是密切接触者。州长在一份声明说，他在周四进行了另一次PCR检测，结果呈阳性。“ 考虑到我的一个家庭成员新冠检测呈阳性，这并不奇怪，”他周五说，“根据法令，我的阳性结果将迫使我延长我的隔离期，一直到我能被允许离开家。”
 
-经查证，参与该事件的两名不明身份者均来自美国，所谓“联合国下移民组织”的人。二人以媒体报道过郭先生负面消息，FBI正在调查，以及我们是反疫苗者等为由，频繁辱骂新中国联邦救援义工，在营地四处散播谣言，抹黑新中国联邦和郭先生。他们实际是美国极左的共产主义崇拜者，正是这种对极权、对马克思的崇拜，才酿成了今天乌克兰的人道灾难。而且他们骨子里瞧不起黄种人，看不惯我们出色的救援工作，希望我们世代为奴，永远受压迫剥削，永远没有人权和尊严，是典型的种族歧视。
+“在此期间，我将继续隔离并在家工作。”州长预计将于5月1日参加在珀斯举行的工党联邦竞选活动。本周，联邦工党领袖安东尼·艾博年（Anthony Albanese)的病毒检测也呈阳性。
 
-鉴于对方缺乏诚恳道歉，我们将诉诸法律，决不妥协，依法维护中国人的人权和尊严。
+参考链接：
 
-新闻来源：[https://gettr.com/streaming/p16w4d7c25f](https://gettr.com/streaming/p16w4d7c25f)
+[https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/](https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/)
 
-编辑发稿：硫酸羟氯喹64
+编辑、上传：Xiao baige
 
  
 
