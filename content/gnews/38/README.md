@@ -2,27 +2,33 @@
 ---
 
 
-## SpaceX成功抵御俄罗斯的电磁攻击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404535/)
+## 【G时新闻】中共国军管开始了
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2404695/)
 
-作者：DC农场 自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【文所未闻】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+郭文贵先生4月23日通过GETTR直播爆料，CCP已经在北京派驻6万武警军人准备封城。真正的分区隔离、封控和军管马上开始。
 
-据美媒4月20日报道，五角大楼专家表示，上个月SpaceX成功且迅速地阻止了俄罗斯对星链的网络攻击，迫使俄军目前已经放弃对乌克兰实施电磁战，确保了乌克兰与互联网保持连接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.08.04-PM.png)
-俄乌战争伊始，马斯克在接到乌克兰官方发出的求助推文后，迅速将数千个星链终端设备运送到了乌克兰。次日，星链就被俄罗斯攻击并受到干扰。SpaceX仅仅通过修复一行代码就使得俄罗斯的电磁攻击失效。
+善良勤劳智慧的上海做梦都不会想到他们会遭到如此的劫难，被CCP以病毒清零的名义长期封控。许多人无辜地失去生命和健康。郭先生转诉国内相关部门战友的情报：上海、长春、深圳等地的COVID-19 病毒，实际是疫苗灾难。CCP将疫苗灾难转嫁给病毒传染，将他们的责任归罪于百姓之间的相互传染。
 
-五角大楼的技术专家对此感到欣喜，并表示，在建造新的电子战设备方面，美国需要进行更多创新思考，必须提出新的系统，提供更大的弹性和速度，这包括将人工智能和机器学习整合到下.
+为此，大搞特搞“封城”，实际就是将老百姓画地为牢监管起来，以防止百姓聚集对抗CCP。现在，中国就是一个大的监狱。 同时，CCP对全国实施金融监管、粮食和食品监管，不允许任何人从银行支取或转账所谓大额现金，将老百姓的财物牢牢控制住。如果百姓有任何反抗行为，直接将其定性为“勾结外部势力反党、反国家和反人民”。北京人民和全国人民艰难的时刻来到了！
 
-参考链接：[SpaceX shut down a Russian electromagnetic warfare attack in Ukraine last month — and the Pentagon is taking notes](https://www.defensenews.com/air/2022/04/20/spacex-shut-down-a-russian-electromagnetic-warfare-attack-in-ukraine-last-month-and-the-pentagon-is-taking-notes/)
+盖特链接：[https://gettr.com/post/p16ruk7a7ab](https://gettr.com/post/p16ruk7a7ab)
 
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-编辑：Delilah小胖
-总编：Zion文恩
-审核：文真
-校正/发稿：我不在这里
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

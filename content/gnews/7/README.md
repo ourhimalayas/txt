@@ -2,18 +2,30 @@
 ---
 
 
-## 视频|梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406439/)
+## 习深信的两件事:他是神，他信莫德尔周期
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2406513/)
 
-香草山：铭心
+习近平一生的相信的二个最根本的概念，第一个，习(近平)深信不疑他是上天派来的神来统治世界的。第二个就是相信莫德尔周期，莫德尔周期。他认为现在到了该世界上换权力中心和出现一个伟大的政治人物，那就是俺了。
 
-4月15日晚上7点半，梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节，以色列志愿者把NFSC帐篷比作“解放的营地”。以色列志愿者团队为了表示感谢新中国联邦，用英语讲解逾越节的习俗和意义。新中国联邦志愿者为节日备好水煮鸡蛋，代表越战越勇的意思，象征饱受苦难和奴役，但最终成为最坚强民族，为建立了自由家园从未停止，同时也是对新中国联邦人的祝福和支持，消灭中国共产党，建立自由法治家园。
+**【郭先生直播摘要】2022.4.19习深信的两件事:他是神** **，** **他信莫德尔周** **期**
 
-April 15th, 7:30 p.m. Israeli volunteers from the Medyka Rescue Center gathered at the NFSC tent to celebrate Passover, during which the Israeli volunteers have compared the center to a “center of freedom”. The Israeli volunteer team explained the customs and meaning of Passover in English as a token of appreciation to the NFSC. The New Federal State of China’s volunteers prepared boiled eggs for the holiday, representing the more they fight the more courageous they become. This symbolizes the people who suffered and were enslaved, but eventually became the strongest people who never stopped to build a free homeland. This is also a blessing and support for the New Federal State of China to take down the Chinese Communist Party and build a free homeland under the rule of law.
+**郭先生** **：**
+
+爆料时刻到来啊，莫德尔周期是美国近期的一个政治哲学家，他对这个世界的政治权力中心的交换，有个叫康德拉季耶夫周期，叫一个康期，二个康期。一个康期60年，就中国的一个甲子60年，120年就换一回。它这个东西是有争议的，但是王沪宁崇拜，是滕文生崇拜的。王沪宁，滕文生的女朋友都是跟我好的不得了，我都非常了解他们，我第一次告诉你们，习近平一生的相信的二个最根本的概念，第一个，习(近平)深信不疑他是上天派来的神来统治世界的。他真的，不是假的。中国现在我不想说谁，这都活着呢几个老和尚，我曾经在国内大量传播他的佛教思想，面对面的告诉他，你就是上天佛祖派来拯救中国人的，拯救世界的。包括武当山，包括西藏的N个喇嘛。中国宗教今天被强奸活球该，他深信。
+
+第二个就是相信莫德尔周期，莫德尔周期。他认为现在到了该世界上换权力中心和出现一个伟大的政治人物，那就是俺了。习从2006年就上了王沪宁这个王八蛋的当，然后韩正、曾(庆红)都说:”莫德尔周期是我党的机会，就中国人到了统治世界，出现一个世界领导人的时候，习近平就是你了。”
+
+我今天为啥跟你们讲这个？这是大事，我不能点破，几天前上海给他（习近平）写报告，赶快开封，上海人要死太多了。习还是一副老神呆呆的，说：“我们是有大使命之人，一定要镇的住，上海人应当更多的尝受尝受。隔离政策之后应该发生的事，应该让他(们)更加知道、感怀，国家和党这些年给上海的特殊政策和福利。在多几天无妨啊。”
+
+你研究习(近平)，你就研究莫德尔周期，就研究西藏里面的所谓的活佛再世。他（习近平）认为他就是那个活菩萨，莫德尔周期就是四个原则。战争，诞生新政权，绝对服从，绝对统治。然后权力分散，再战争，死亡大量的人口，经济转移，权力转移。习认为我就那120年的权力实现，就是我呀，美国正好120年。从一战到现在多少年？到了，到了！必打台湾，而且习一定和俄罗斯站在一起，而且一定是合法的大胆的站在一起。香港的沦落，给了习足够的自信，确定自己就是天子，确定自己就是莫德尔周期的选定的那个人。中国人的懦弱，还有这个冠状病毒的成功制造和2019年年底的成功发出，和完全再他的预料之中在全世界打的疫苗，打完疫苗之后，大家还在打疫苗，然后施行隔离政策，这叫现代化战争。
+
+所以，当时本人在场，有一次，习就是骂他旁边的几个人，你哥鳖样的，你TM瞎忽悠，你那打什么仗那什么……是吧！不行，咱们就给他搞点化学武器，不行，咱就给他搞点生化武器，他反正怕死人嘛。这他(习近平)原话。
 
 
 
-发布：奇门遁甲
+
+
+视频剪辑：CG. |听写：小蜜蜂 | 翻译 ：tonyj | 视频制作+字幕 ：芥末 |编辑：Quentin| 发布：闪电训练
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 5:29 PM (UTC)`
+
+2022年4月24日 俄乌战争战况播报
+![img](https://media.gettr.com/group9/origin/2022/04/24/17/75fa0380-6c52-acce-d0c3-c719bbcdfdc7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/24/2022 3:40 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月23日第50天当日救援统计：<br/>Medyka救援站接待：约268人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约14171人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 50 - Date: April 23, 2022 :<br/>Medyka Rescue Station Reception: about 268 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 14171 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,13 +153,6 @@
 
 2022.04.23 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 ![img](https://media.gettr.com/group9/origin/2022/04/23/23/d0d017b2-1964-27a6-de7a-a12c2eaaf0ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 11:00 PM (UTC)`
-
-2022.04.23  PM NFSC news  NFSC may Establish Embassies in Ukraine and Poland
-![img](https://media.gettr.com/group46/origin/2022/04/23/22/18167c12-f591-4db7-b475-251068d2ff7a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,27 +2,30 @@
 ---
 
 
-## 纽约教育员工因提供“假疫苗证明”被惩罚
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2406228/)
+## 俄罗斯计划在秋季前部署洲际核导弹
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2406457/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16508178141.png)USA Today
-据福克斯新闻4月24日报道，在纽约市教育局工作的数十名教育工作者被惩罚。据称，受到处罚的员工伪造了新冠疫苗接种证明。
+作者：纽约香草山 — Wenfei
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据外媒4月23日报道，俄罗斯计划在秋季前部署可携带核弹头的Sarmat洲际弹道导弹。
 
-前纽约市长比尔·德布拉西奥（Bill de Blasio）于2021对该市的教育工作者实施了疫苗强制令。纽约市发言人说，受影响的员工不到100人。他们将开始无薪假期。他说，虚假疫苗证书不仅是 “非法的”，而且还破坏了学校对抗新冠的普及成人疫苗接种的 “最佳保护”。该市尚未宣布无薪假期将持续多久。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/YYH4SJKINBK4PBEYEERHIANQYU.jpeg)
 
-联合教师联合会（UFT）律师贝思·诺顿（Beth Norton）说，“仅凭猜测疫苗接种文件是伪造的，就单方面将UFT成员从工资单中删除，这是完全不恰当的”。
+俄罗斯对外宣布，已经在周三首次试射了Sarmat洲际弹道导弹。该导弹系统可以携带 10 枚或更多核弹头和诱饵，并能够打击数千英里外美国或欧洲的目标。俄方称，新的洲际核导弹将被部署在莫斯科以东约 3,000 公里的西伯利亚。为了节省“巨大的资源和时间”，该导弹将直接安装在原来苏联时代的伏耶沃达导弹的发射井中。
 
-目前执法部门和该市调查特别专员（SCI）正在继续调查这些指控。教师联合工会批评说，该市还没有足够的证明显示这些员工伪造了他们的疫苗证明。一些成员被错误地认定为欺诈者。
+在由于资金和技术问题，Sarmat导弹研发一直被不断推迟。西方军事专家表示，在Sarmat导弹试射后，俄方还要花费更多的努力才能完成部署。
 
-真是窃铢者者贼，窃国者诸侯！生产、推行假疫苗的赚大钱，拒绝假疫苗而造假的却受到惩罚，这个世界什么时候能够回归正道？
+另据郭文贵先生揭露，俄罗斯在乌克兰战场的节节败退，以及“莫斯科号”被击沉、俄战略轰炸机的王牌飞行员离奇身亡双重打击下，普京似有和谈缓兵的打算。分析人士指出，俄方使用战略性核武器的可能性不大，部署Sarmat导弹的战略震慑意义大于战术意义。
 
-*责编：白夜*
+参考链接：[Russia to deploy Sarmat missiles by autumn in ‘historic’ nuclear upgrade](https://www.reuters.com/world/europe/russia-deploy-first-nuclear-capable-sarmat-missiles-tass-2022-04-23/)
 
-[原文链接](https://www.foxnews.com/us/nyc-school-employees-covid-vaccine-fraud)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-
-
+编辑：Zion文恩
+总编：Zion文恩
+审核：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
