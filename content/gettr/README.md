@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 11:21 PM (UTC)`
+
+4/24/2022 Miles Guo: Yesterday's crash of the CCP military aircraft was of great significance. It not only shocked the Western military establishment, proving to the West the capabilities of the Whistleblowers’ Movement to collect intelligence, but it is also a slap in the face of the CCP's claim regarding its independent military development. Many in the CCP are convinced that God is helping the Whistleblowers’ Movement. The Russian pilot instructors paid by the CCP are enjoying themselves in Communist China and unwilling to go back to Russia, and they are thinking of selling out Russia every day.<br/><br/>4/24/2022 文贵直播：昨天的中共坠机事件意义重大，它不仅震惊了西方军事机构，向西方证明了爆料革命的情报力量，而且打脸中共所宣称的独立军事发展，并让党内很多人相信爆料革命得天助；被中共收买的俄罗斯飞行员教练在中共国乐不思蜀，天天想着出卖俄罗斯<br/>
+![img](https://media.gettr.com/group50/getter/2022/04/24/23/ed248787-4498-a91e-3941-c2bfdcb63cad/out.jpg)
+
+---
+
+`@miles 4/24/2022 11:14 PM (UTC)`
+
+4/24/2022 Miles Guo: Yesterday's CCP military plane crash revealed the CCP's lack of capability to invade Taiwan! The CCP’s carrier-based aircraft are unreliable, so they can only use drones, missiles, and submarines to destroy Taiwan. Neither is the CCP able to land on Taiwan. So, the CCP is just a paper tiger! As long as the Taiwanese dare to resist for 3 hours, Taiwan will be able to receive international support.<br/><br/>4/24/2022 文贵直播：昨天的中共军机坠毁暴露出共产党根本没有能力打台湾！中共舰载机不靠谱，只能用无人机、导弹、潜水艇来破坏台湾；共军更没有登陆能力，中共就是个纸老虎！台湾只要敢于反抗3小时，就能获得国际支持<br/>
+![img](https://media.gettr.com/group44/getter/2022/04/24/23/051d6e19-e692-f89b-6422-8bc87a2b8110/out.jpg)
+
+---
+
 `@miles 4/24/2022 11:08 PM (UTC)`
 
 4/24/2022 Miles Guo: Historically, China and Russia are not aligned in 99% of cases. Modelski’s so-called long cycle is a disastrous joke. The third faction in the US, the Wall Street elites, has determined the history of China over the past 100 years, not the CCP.<br/><br/>4/24/2022 七哥直播：历史上中国和俄罗斯不在一起的时间占99%，互联网时代所谓的莫德尔斯基的长周期是一个灾难性的笑话，过去这一百年是美国的第三派——华尔街决定了中国的命运，而非共产党<br/><br/>
@@ -139,20 +153,6 @@
 
 04.24.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group42/origin/2022/04/24/04/349412a6-fd10-da3e-c4cd-2c561247e4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/24/2022 3:08 AM (UTC)`
-
-2022-4-23《鸡血王喜币大作战》 第一百七十四集 嘉宾：卡丽熙、Eric
-![img](https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/24/2022 2:38 AM (UTC)`
-
-4/23/2022 Miles Guo: Mr. Guo suggested that fellow fighters should assess their particular situations to decide whether or not going back to their hometowns in rural areas, if possible, staying where they are might be a better choice; there are 60,000 troops stationed in Beijing for a long-term lockdown preparation; the martial law is being implemented in Beijing, Shanghai, Guangzhou and Shenzhen; the CCP is trying to solve its economic and political issues by imposing lockdowns and further martial law by using the virus transmission as the excuse<br/><br/>4/23/2022 文贵直播：郭先生建议战友要跟据实际情况考虑是否回乡下，能不动则不动；北京有六万部队驻扎，目的就是为了进行实施长期隔离；中共在北京、上海、广州、深圳实际是在实行军管；中共的最终目的是要借病毒传染，通过隔离来实行军管，企图来解决其政治、经济问题<br/>
-![img](https://media.gettr.com/group5/getter/2022/04/24/02/f3cb16c5-5249-246d-5c73-11d45db4fe14/out.jpg)
 
 ---
 

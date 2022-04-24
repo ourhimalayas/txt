@@ -2,41 +2,65 @@
 ---
 
 
-## 有声|灭共即为消灭中共体制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407184/)
+## 2022年4月24日文贵大直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2407206/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-而在4月19日的大直播中，郭文贵先生强调，灭共的核心是要消灭中共的独裁体制，而这一体制内的绝大多数成员其实都是好人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/b6378602-0c56-4435-b59f-d5cc166ec0a3.jpeg)
-郭先生解释道，由于中共一贯在墙内施行的狭隘教育，有些号称支持爆料革命的人实际只是希望借由爆料革命除掉中共党内的某些个体，但这并不是灭共的实质。究其原因，个体的消失并不能动摇中共这一吃人的体制；相反的，其他手握大权的人仍然会继续鱼肉百姓。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220424_副本.png)
+盖特连接：[2022年4月24日 文贵大直播：俄乌战争前因后果；沪京等隔离与台湾；佩洛西访台成定局；国内目前经济情况](https://gettr.com/streaming/p16w4d7c25f)
 
-对此，郭先生举例道，习近平在文化大革命期间受到的伤害是这次中共在上海采取严厉封锁限制的一个主要原因，另一个则由于韩正未经通报，私自前往上海。在此情况下，习近平非但没有着手于改变中共体制，反而把这些私人仇恨宣泄在无辜的上海白姓身上。
+1、4/22梅迪卡一个讲英语的美国男人无端辱骂战友，而且动手袭击小Sarah，新中国联邦可以不救人，救人不是我们的必须承担的义务，但是绝不窝囊！任何人不能欺负新中国联邦战友；
 
-为此，郭先生认为，相较于只是针对某些个体的报复，痛恨共产党的墙内民众应该协力消灭中共的邪恶体制。
+2、梅迪卡发生的事：他们是共产主义崇拜者，这绝对是种族歧视，这是共产主义和自由的较量，嫉妒中国人，看不惯中国人好，新中国联邦人不能怕事，走到天涯海角也不能和他们拉倒；
 
+3、普京身体状况：普京的肾做过两次手术，还打瑞士的强化针，由于安全问题现在不能打了，他的身体撑不过2025年；
 
+4、习近平的身体比我们想象的还差；
 
+5、4/23/2021 郭先生爆料中共辽宁号航母的飞行员都来自俄罗斯；整整一年后，4/23/2022安徽霍山的歼17的教练版坠机，对党内信神不信党的人影响巨大；
 
+6、昨天安徽霍山的歼17的教练版坠机，充分说明中共就是纸老虎，台湾只要敢反击，中共不堪一击；
 
-文字版原文：[灭共即为消灭中共体制](https://gnews.org/zh-hans/2402128/)
+7、俄乌战争：俄罗斯和中国肯定解体，俄罗斯解体将有大量移民到欧美。中国解体后，连非洲都会遣返华人，将无地接受华人；
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+8、俄解体：日本北方四岛一定会拿回来；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+9、4/26 佩洛西 访问台湾时间计划没有变；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+10、一两周内喜币连续会有好消息；
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+11、疫苗灾难导致癌症爆发，接下来5月疫苗灾难到来，台湾战争、俄乌战争、不值一提；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+12、佩洛西访台秦刚都不知道；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+13、喜币贷款大概在6月底至8月初；
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+14、三个条件下，才会释放10%喜币配额；
+
+15、北京会比上海还糟糕；
+
+**注：大直播音频——**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord** **群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
