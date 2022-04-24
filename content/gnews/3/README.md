@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：上海人是不看天花板的 上海聚集的都是小聪明人
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406056/)
+## 20220424郭文贵大直播 ：北京是受诅咒的城市 北京人是流氓假仗义
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406093/)
 
 作者：东京樱花团小视频组
 

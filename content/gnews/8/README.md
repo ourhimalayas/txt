@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：蔡英文身边大多数决策人被中共收买，在中美之间摇摆是台湾的悲哀
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406020/)
+## 20220424郭文贵大直播 ：中共幻想通过拿下台积电 来获得技术和干掉美元
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406038/)
 
 作者：东京樱花团小视频组
 
