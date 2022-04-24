@@ -17,9 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 11:08 PM (UTC)`
+
+4/24/2022 Miles Guo: Historically, China and Russia are not aligned in 99% of cases. Modelski’s so-called long cycle is a disastrous joke. The third faction in the US, the Wall Street elites, has determined the history of China over the past 100 years, not the CCP.<br/><br/>4/24/2022 七哥直播：历史上中国和俄罗斯不在一起的时间占99%，互联网时代所谓的莫德尔斯基的长周期是一个灾难性的笑话，过去这一百年是美国的第三派——华尔街决定了中国的命运，而非共产党<br/><br/>
+![img](https://media.gettr.com/group48/getter/2022/04/24/23/d3fb052f-e13a-dc7e-f068-1d0a7f97787f/out.jpg)
+
+---
+
+`@miles 4/24/2022 11:00 PM (UTC)`
+
+2022.04.24  PM NFSC news  Chained Dream MV topped the iTunes Music charts in many countries
+![img](https://media.gettr.com/group47/origin/2022/04/24/22/b40e57ec-a0b7-5e05-1b26-089cfafe831f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/24/2022 10:06 PM (UTC)`
 
-“台湾，别怂！！” 飞飞秀救援快报 2022-04-24<br/>For English：gettr.com/streaming/p16xrpoe708
+“台湾，别怂，硬起来！！” 飞飞秀救援快报 2022-04-24<br/>For English：gettr.com/streaming/p16xrpoe708
 ![img](https://media.gettr.com/group25/origin/2022/04/24/22/7863877e-a3ab-f1d8-e7ef-54a573876687/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
@@ -139,20 +153,6 @@
 
 4/23/2022 Miles Guo: Mr. Guo suggested that fellow fighters should assess their particular situations to decide whether or not going back to their hometowns in rural areas, if possible, staying where they are might be a better choice; there are 60,000 troops stationed in Beijing for a long-term lockdown preparation; the martial law is being implemented in Beijing, Shanghai, Guangzhou and Shenzhen; the CCP is trying to solve its economic and political issues by imposing lockdowns and further martial law by using the virus transmission as the excuse<br/><br/>4/23/2022 文贵直播：郭先生建议战友要跟据实际情况考虑是否回乡下，能不动则不动；北京有六万部队驻扎，目的就是为了进行实施长期隔离；中共在北京、上海、广州、深圳实际是在实行军管；中共的最终目的是要借病毒传染，通过隔离来实行军管，企图来解决其政治、经济问题<br/>
 ![img](https://media.gettr.com/group5/getter/2022/04/24/02/f3cb16c5-5249-246d-5c73-11d45db4fe14/out.jpg)
-
----
-
-`@miles 4/24/2022 2:01 AM (UTC)`
-
-2022.04.23  新中国联邦 | 喜财经    喜币发行量背后的新金融模式；货币、财富与价值的爱恨情仇 ；G系列喜生态解读
-![img](https://media.gettr.com/group35/origin/2022/04/24/01/afbe3720-e7d1-be12-f5fc-6ff05f4c9995/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/24/2022 1:07 AM (UTC)`
-
-2022.04.23 晚  新中国联邦 | 新闻访谈   战斗机河南坠毁，惊现外国飞行员；封城前兆：多地开始大规模核酸检测
-![img](https://media.gettr.com/group6/origin/2022/04/24/01/c261b27d-4772-c8f0-f716-415254185c6f/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -15,38 +15,38 @@
 
 ---
 
-### [2022年4月24日文贵大直播摘要及音频—银河系农场](/content/gnews/1/README.md)
+### [有声|美国又将17家中概股公司列入“预摘牌”名单](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [2022年4月24日文贵大直播摘要及音频—银河系农场](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|灭共即为消灭中共体制](/content/gnews/2/README.md)
+### [有声|灭共即为消灭中共体制](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|中共体制决定了大多数民众利益的牺牲](/content/gnews/3/README.md)
+### [有声|中共体制决定了大多数民众利益的牺牲](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [一个孩子眼中的中共国军警（上）——讲述渗透在学校里的中共国军事化的洗脑教育](/content/gnews/4/README.md)
+### [一个孩子眼中的中共国军警（上）——讲述渗透在学校里的中共国军事化的洗脑教育](/content/gnews/5/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月23日早](/content/gnews/5/README.md)
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月23日早](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [4月24日文贵大直播要点（图片1-14）](/content/gnews/6/README.md)
+### [4月24日文贵大直播要点（图片1-14）](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [有声|美国应该立法停止再向中共国注入投资](/content/gnews/7/README.md)
+### [有声|美国应该立法停止再向中共国注入投资](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|南希·佩洛西访台 促使中共侵台 与美国对抗到底](/content/gnews/8/README.md)
+### [有声|南希·佩洛西访台 促使中共侵台 与美国对抗到底](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|哪些国家在 2021 年获得了最多的加密货币收益？](/content/gnews/9/README.md)
+### [有声|哪些国家在 2021 年获得了最多的加密货币收益？](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [2022/04/24文贵先生直播大纲](/content/gnews/10/README.md)
+### [2022/04/24文贵先生直播大纲](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|中共杀人体制的危害](/content/gnews/11/README.md)
- ` MOSREC`
 
 ### [全球增长的引擎正在熄火](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
