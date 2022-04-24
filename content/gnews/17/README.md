@@ -2,38 +2,102 @@
 ---
 
 
-## 习近平全票当选二十大代表，享受强奸民意的快感
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2406496/)
+## 视频|419断播的意义
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406561/)
 
-作者：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/04/773BEE9B-F3B6-4595-B6C5-6AEF3D79A486.jpg)
-众所周知，共产党有一个骗人的制度叫“政治协商”。共产党还有一个更骗人的代表叫“人民代表”。所谓的“人民代表”绝大多数是共产党的各级政府官员，和极个别的来自基层的被中共指定的人。总而言之，“人民代表”没有一个是由人民投票选出来的，却代表人民的一帮“婊”。
+香草山：铭心
 
-无耻的人让无耻的“代表”做出了更无耻的事。就是这样的一群“人民代表”要装模作样地“选出”中南坑的代表，去参加所谓的“全国代表大会”。中共的无耻表演已经到了无以复加的地步。
+On April 19th, 2017,
 
-2022年4月22日，中共广西壮族自治区“代表会议”在南宁召开，选举产生了广西壮族自治区出席二十大代表，候选人习近平以全票当选二十大代表。请注意是“全票当选”。
+2017年4月19日，
 
-然后，表演开始了。全场爆发出长时间热烈的掌声。据说掌声“经久不息”，因为掌声里有“代表”的命运、官运和前程，所以谁也不肯先停下来。其实鼓掌的都是奴隶，都逃脱不了奴隶的下场。
+Miles Guo was interviewed by the Voice of America (VOA).
 
-据中共媒体报道，“广西有250多万名党员、15万多个基层党组织、5700万人民……充分体现了5700人民的共同心声和强烈愿望”。就这样，5700万人民被集体强奸。试想，广西人民中像杨改兰一样的赤贫者、像杨佳一样的受辱者、像贾俊龙一样的受欺者，他们同意被你们代表了吗？如果让他们选，他们会选习近平吗？不服就试一把，搞个公开投票，看看广西人民有几个选习近平。当然也可能选习近平，因为每个人的腰眼上顶着一把枪。不是人民选了习近平，是枪选了习近平。如果是真实意思的表达，14亿中国人民有几个会选习近平？中国人民的共同心声是一个没有共产党的新中国，中国人民的强烈愿望是推翻共产党，实行一人一票的民主制度。
+郭文贵先生在接受美国之音VOA的直播采访时，
 
-无独有偶，19大的时候，习近平是在内蒙古全票当选的代表。习近平乐此不疲地搞这种“选举”，体验着一次次强奸民意的快感，享受着权力巅峰的惬意。
+However this interview was forcibly stopped by VOA.
 
-习近平实行的所谓“选举”，实则是检验，习近平在检验上台十年来的独裁成果。果然，100%当选，而且广西代表们纷纷表示，“要深刻领会`两个确立´、坚决做到`两个维护´。忠诚核心、拥戴核心、维护核心、捍卫核心”。说是两个其实就一个，确立和维护习近平一个人的独裁统治。
+被VOA强制中断了正在直播中的节目。
 
-“捍卫”这个词令人恐怖和恶心，不禁使人想到了朝鲜那个著名的胖子，朝鲜人民“誓死捍卫”的那个胖子金正恩。“捍卫”和“誓死”是紧紧连在一起的。习近平要的就是这个效果。他需要人民为他死，他也正在让人们去死。
+The incident then immediately sparked a great deal of attention around the world.
 
-网络上有一句话，“美国不是天堂，却是离天堂最近的国家；朝鲜不是地狱，却是离地狱最近的国家；中国不是朝鲜，却是离朝鲜最近的国家”。习近平治下的中共国已经赶超朝鲜。如果任由共产党和习近平胡作非为下去，中共国一定是地狱。
+该事件引发了世界的极大关注。
 
-爆料革命和新中国联邦正在铲除中共，正在为中国人民能够拥有一人一票做出巨大的努力。这张选票是人和奴的分水岭，是有尊严和受侮辱的分界线，是幸福和悲惨的根本区分标志。
+It is reported that just 24 hours before VOA decided to interview Miles,
 
-* * *
+据悉，就在VOA采访郭先生的24小时前，
 
-*编辑：文合*
+Meng Hongwei, the former Vice Minister of Public Security of the Chinese Communist Party,
 
-*封面：水涨船高*
+中共原公安部副部长孟宏伟，
 
-*发布：吐纳*
+used his position as President of Interpol
+
+借由其任国际刑警组织主席职位之便，
+
+to issue a red notice against Miles.
+
+通过国际刑警组织发布了对郭先生的红色通告。
+
+The Chinese Communist Party used every means to try to stop VOA’s interview with Miles.
+
+中共用尽手段，企图阻挠VOA对郭先生的采访。
+
+After the VOA incident, Miles realized the need for freedom of expression and communication.
+
+在VOA断播事件发生后，意识到言论自由传播的必须。
+
+Miles formally began a series of activities to expose the truth about the Chinese Communist Party,
+
+郭先生正式开启一系列针对中共秘闻的爆料活动，
+
+including the establishment of “Guo’s Seven Principles”,
+
+包括制定“郭七条”，
+
+the exposing “Blue, Gold and Yellow” plan of the Chinese Communist Party, the inside story of the HNA Group,
+
+揭露中共“蓝金黄”计划、海航集团内幕，
+
+and the “death of Wang Jian”.
+
+以及“王健之死”真相等
+
+These actions are universally known as the “Whistleblower Movement”.
+
+——而这些行动被统一命名为：“爆料革命”。
+
+On the other hand, Miles has designed a huge financial system for the future
+
+另一方面，郭先生为“爆料革命”的支持者的未来
+
+of the supporters of the “Whistleblower Movement”.
+
+设计了庞大金融体系。
+
+He has established G-Series ecosystems such as Himalaya Alliance, Himalaya Exchange,
+
+建立了喜马拉雅联盟、喜马拉雅联储，
+
+G-Club, G-Fashion, GNews and Gettr.
+
+G-Club、G-Fashion、GNews和Gettr等G系列生态圈。
+
+On April 19th, 2022, after five years of development,
+
+为纪念419这个重要的日子，2022年4月19日，经过五年的发展，
+
+the Himalaya Alliance website will be officially announced and put into use, to commemorate the important date of 419.
+
+喜马拉雅联盟网站将在这个重要日子正式宣布，投入使用。
+
+Showing the new image of the New Federal State of China and the new Chinese people.
+
+展现新中国联邦 ，新中国人的新形象。
+
+
+
+发布：奇门遁甲
 
  
 

@@ -2,18 +2,37 @@
 ---
 
 
-## 视频|谷歌地圖已停止隱藏俄羅斯的秘密軍事和戰略設施
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406528/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
 
-香草山：铭心
+作者：香草山翻译部
 
-谷歌地圖已停止隱藏俄羅斯的秘密軍事和戰略設施，允許公眾中的任何人查看。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
 
-開源所有俄羅斯秘密設施：包括洲際彈道導彈、指揮所等，分辨率為每像素 0.5m。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
+[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
 
 
-
-发布：奇门遁甲
 
  
 

@@ -2,34 +2,12 @@
 ---
 
 
-## 视频|新中国联邦和法治基金收到来自乌克兰驻新加坡_文莱_新西兰大使馆的感谢信
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406607/)
+## 这个民族有救吗？
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406672/)
 
-香草山：铭心
+听写：叮叮         编辑：文宝
 
-新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
-
-The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
-
-今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
-
-Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
-
-奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
-
-Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
-
-非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
-
-It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
-
-从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
-
-As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
-
-
-
-【发布】奇门遁甲
+这个民族有救吗？这个国家有救吗？你救他干啥？你救他干什么？Rachel你妈妈、你家人就这样的对待你，你觉得救她干什么？救出来干什么？还得相信党是吗？如果在这事儿上还对党没认清楚，对自己的智慧还没有清楚，对自己起码一个作为人的权利你都没搞清楚，这样的人救他又干什么呢？特别是乌克兰人，人家一家四口人把唯一怀孕的妻子送出来，其他人回去打仗去，而且希望俄罗斯不要停，继续开干。欧洲的他们有英国去了这个乌克兰回来的，他们这些人在去的路上是这样子说，回来的路上竟然告诉我说：“我们回来的时候大家沉默，下飞机以后都是共同一句话，马上他们行动。” 英国人比乌克兰还着急，为什么？原话就说：“赶快行动去。” 他被他们感动了，那是人的勇气和一个保护人的尊严起码应有的。为什么这么多年了，说当年日本人杀南京人三十万人，不过就几千日军，但凡一喊几嗓子日本人就吓跑了。今天呢？两千五百万上海人被不到十万人给统治着，你在家等死。接着就是广州，接着就是长春，长春人抡菜刀的本事呢？不是很牛吗？天天炫耀打老太太，打老爷们儿，五个人打一个人，东北爷们儿，来呀！你看到你老婆孩子要被人家诱奸、饿死，你不就是当孙子一样在屋里躲着吗？如果在长春之后东北人还吹自己多牛叉，上天会看着的。
 
  
 

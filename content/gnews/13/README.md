@@ -2,12 +2,34 @@
 ---
 
 
-## 习把食品和水变成了武器
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406541/)
+## 视频|新中国联邦和法治基金收到来自乌克兰驻新加坡_文莱_新西兰大使馆的感谢信
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406607/)
 
-听写：叮叮         编辑：文宝
+香草山：铭心
 
-香港，香港人现在是知道什么了？香港在过去几年所有人是什么？都是喝白酒。他说：“七哥，最大的流行香港是喝白酒。”然后现在他说：“七哥，现在不是香港流行喝白酒，香港人现在流行全撒谎，就完全是谎言，不敢说、不敢讲。” 深圳、香港、广州、整个沿海，包括上海，全核糖核酸完，中国人的良知已经没了，中国人一下子就回到，只要有吃的，我这边吃着，你那边强奸我都行。为了一个馍，就在过去文化大革命，就让厨师长每天强奸十几次，是吧？这个少女在桌子底下撅着个腚，厨师长掀着裙子强奸她，她在下边啃馍。这种事情在中国未来将是最伟大的，你不信是吧？不信走着看！我们爆料革命不需要任何人信，我们只做有良知的事情，一切灾难都没有开始，绝对没有开始！很快让你从心理上达到“只求吃，只求喝，你啥都不要”的时候，那才是“刚刚开始”。啥时候你能明白“根本不存在什么病毒的事儿，就是疫苗反应”的时候，人已经死了。就像咱们那个战友说，我问他，他说在北京开会，他说：“这死那么多人咋办呐？” 领导一拍桌子：“你TM傻呀，人死了还能说话吗？” 一句话说到点子上了，现在你可以不懂，等你懂的时候你已经没有嘴说话了。就像文化大革命饿死那四千万也好、八千万人也好，你见谁出来说过话呀？你见谁说过话呀？未来上海死的人会站出来说话吗？就因为上海人你长得好看你就站出来说话吗？一切这些都会很快让你看到痛苦和死亡之间那么和谐地存在，而且会感恩感党。习近平做了两件事：把食品和水变成了武器，让所有人都能听到和看到的都是他想让你听让你看到的。这一点他真做到了！
+新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
+
+The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
+
+今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
+
+Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
+
+奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+
+Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
+
+非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
+
+It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
+
+从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
+
+As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
+
+
+
+【发布】奇门遁甲
 
  
 

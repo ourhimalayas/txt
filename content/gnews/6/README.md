@@ -2,37 +2,12 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
+## 话题最多的就是在乌克兰的救援
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406643/)
 
-作者：香草山翻译部
+听写：叮叮         编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
-[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
-
-
+另外一个跟我这些天开会当中，可以说我话题最多的就是在乌克兰的救援。可能是你们在前线看到都是难民和一个个感人的故事，但是七哥所看到的不仅仅是这些。我们从战友当中，我们的前期去的大卫，到后来的文科、文戈、文耀，我们看到阿丙这些人，然后最后出现了明星级的人物文耀、文科、Nicole了。特别是Nicole，然后正义小Sarah又开始了。然后我们的“爆二代”Feather，然后精良、小小酥，是吧？路仁等等，你们这些人都火起来了。可是我们看到了一个，如果有十个Nicole，这事儿它又不一样了，有十个小Sarah也不一样。我们农场主当中的文耀、文科这种“老黄牛”精神和任劳任怨的明道，就到了现场，那种吃苦耐劳，真的是大家都关于明道的故事讲了很多。他就是个理工男，你看刚才回来了，话说不出来，视频也不行。你看你们前线整那么明白，这就是明道。
 
  
 
