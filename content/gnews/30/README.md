@@ -2,38 +2,67 @@
 ---
 
 
-## 邪恶独裁国家的法律是统治工具❗️
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2403438/)
+## COVID-19疫苗副作用集萃(2022.4.24B)——接种新冠疫苗患寻麻疹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2403593/)
 
-编译：波士顿五月花—-jiasen;思澈
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-中共国及俄罗斯两个最大最邪恶的独裁国家每时每刻都在肆无忌惮地撒谎骗人，却对说真话的人以各种手段打击报复，直至肉体消灭。
+#### 整理/编辑：禄森
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3080B497-84B9-4487-8196-3B9BD913F811.jpeg)
-
-俄罗斯一位著名的反对派活动家的律师周五表示，俄罗斯已对他提起刑事诉讼，理由是他涉嫌散布有关莫斯科在乌克兰的军事行动的虚假信息。
-
-4 月 11 日 CNN 播出了弗拉基米尔·卡拉-穆尔扎 (Vladimir Kara-Murza) 批评俄罗斯在乌克兰的行动的采访几个小时后，他在位于莫斯科的家中被拘留。
-
-卡拉-穆尔扎的律师瓦迪姆·普罗霍罗夫（Vadim Prokhorov）说，“弗拉基米尔·卡拉-穆尔扎现在是“俄罗斯调查委员会部”的主要调查对象，”普罗霍罗夫在 Facebook 上写道。“一个刑事诉讼已经开始……理由是‘蓄意公开传播关于俄罗斯武装部队的虚假信息’。”普罗霍罗夫没有具体说此案是什么时候开始的。
-
-俄罗斯议会上个月通过了一项法律，规定对那些故意散布有关莫斯科所谓的在乌克兰的“特别军事行动”的“假”新闻的人判处最高 15 年的监禁。
-
-俄罗斯官员表示，新法律是必要的，因为它是为了保护其军队并打击有关其在乌克兰军事行动的虚假信息。
-
-俄罗斯官员所称的新法律其目的就是为了保护他们的虚假信息压制真实信息。
-
-纵观中共国发生的事情有过之无不及！
-
-在2021年4月21日的七哥乱聊直播中，郭文贵先生爆料说：上海要解封，政治上要算帐，要在媒体上找出所谓的反党的、有其他用心的、给海外媒体递刀子的人，要清算，提醒战友们注意安去。在今天的乱聊直播中郭先生指出，共产党的封城是为了以冠状病毒掩盖政治经济民生等各种社会问题，进而掩盖即将全面爆发的疫苗灾难。同时，一定压制任何真实信息的传播。
-
-只要有中国共产党，中国人就不可能有安定祥和自由的生活。现在新中国联播有了自己的媒体平台，战友们在郭文贵先生带领下不断揭露中国共产党的假恶黑，唤醒有正义有良知的同类，消灭人类一切灾难的根源 – 中国共产党及其合作者。
-
-译文素材：[https://nationalpost.com/pmn/news-pmn/crime-pmn/russia-opens-criminal-case-against-activist-over-fake-news-on-ukraine-lawyer](https://nationalpost.com/pmn/news-pmn/crime-pmn/russia-opens-criminal-case-against-activist-over-fake-news-on-ukraine-lawyer)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-2.png)图片来源：雅典娜设计组(614)
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**帖子原文**：
+
+博主:寻丢丢
+
+因为新冠疫苗得了寻麻疹，好痛苦。一年都没好。
+
+脖子真的好痒，好想抓。
+
+去看医生，医生说我是皮肤划痕症。
+
+就是皮肤使劲按或者擦皮肤的话，会留痕迹，就像划痕一样。真的好难受。因为寻麻疹，我现在都有点洁癖了，一直在洗手。
+
+作者发布于:2022-4-23
+
+**评论选集**
+
+oxny评论:
+
+我不知道为什么得了也快一年了经常复发我都感觉因为这个寻麻疹我都没以前快乐了
+
+木木评论:
+
+我正痒着……吃了一粒过敏药还没全部控制住
+
+sara在荷兰评论:
+
+ym解毒：伊维菌素、锌、维D3、维C等等
+
+苏颜sy评论:
+
+我是打完第二针疫苗就得了划痕性荨麻疹，每天都要吃过敏药。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-120.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-34.png)图片来源：小红书
+
+
+参考链接：[接种新冠疫苗患寻麻疹，一年了还没康复](https://www.xiaohongshu.com/discovery/item/62641edb000000002103ba26?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761144)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

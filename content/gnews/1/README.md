@@ -2,36 +2,29 @@
 ---
 
 
-## 泽连斯基宣布，美国国务卿和国防部长将访问乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404489/)
+## 【G时新闻】中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2404594/)
 
-#### **【雅典娜快讯】紧贴时代脉博**
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+4月23日，郭先生在盖特直播指出，北京百分之百会进入隔离戒严，就像哈尔滨、青岛、大连、海口一样。 北京已经完全布置好隔离封城的准备。目前北京报道的这里哪里又确诊多少阳性，都不要相信，那是中共为了掩盖打毒疫苗导致阳性的真相而报道的，也是为隔离封锁做新闻舆论准备。 内部知情战友指出，北京最低的时候，一天能够验出来一万到两万阳性案例，最近没有一天低于几万的，而且绝大多数阳性都是打毒疫苗导致的。 中共知道毒疫苗会导致很多人死亡，就把疫苗死人的责任推给所有的病毒。中共想通过所谓隔离阻断病毒的传播，是老百姓不配合隔离、到处乱跑、甚至给外国人传递信息，而造成伤亡的的事件，全都是老百姓和美帝国主义的错。这就是中共转嫁矛盾，掩盖毒疫苗真相的手段。 郭先生最后透露，在过去两周，进入北京的武警有6万多名，而且是驻扎式的。这也是自从1949年以来，第一次这么短时间内有6万多武警驻扎式进入北京。中共派那么多武警驻扎，是为了长期的周期性封城做准备。
 
-#### **翻译/编辑：文泓**
+盖特链接：[https://gettr.com/post/p16s6fec106](https://gettr.com/post/p16s6fec106)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-128.png)图片来源：The Boston Globe & 雅典娜设计组
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-当地时间周六，乌克兰总统泽连斯基宣布，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将前往乌克兰讨论武器援助问题。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-在新闻发布会上，泽连斯基表示，周日他将与美国高级官员会面，讨论俄罗斯加强侵略和美国可以提供的额外支持。
-
-“我们将讨论我们需要的武器清单及其供应速度。最近几周，一切都得到了改善。我对此表示感谢”，他说：“一旦我们拥有更多武器，一旦拥有足够的武器，相信我，我们将立即夺回被俄罗斯占领的领土。”
-
-这将是自2月24日战争爆发以来美国高层首次访问基辅，布林肯和奥斯汀的访问是在标志性的一天——战争进入第三个月的那一天，此时乌克兰东部继续爆发激战。
-
-拜登总统本周宣布，将向乌克兰提供另外8亿美元的安全援助，其中包括另外72门榴弹炮，以及120多架“凤凰幽灵”无人机。
-
-参考链接：[Blinken due to meet Zelenskiy in first wartime visit by top US officials to Ukraine | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/24/blinken-due-to-meet-zelenskiy-in-first-wartime-visit-by-top-us-officials-to-ukraine)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

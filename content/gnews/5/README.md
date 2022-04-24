@@ -2,27 +2,29 @@
 ---
 
 
-## 意大利再拨两亿欧元支援乌克兰
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2404155/)
+## 【G时新闻】越来越多证据表明俄罗斯在乌克兰犯下战争罪
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2404569/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据路透社4月22 日的报道，联合国人权办公室周五（22日）表示，越来越多的证据表明俄罗斯在乌克兰犯下战争罪，包括无区别地轰炸和处决平民。 联合国人权事务高级专员巴切莱特指出，俄罗斯武装部队不分青红皂白地炮击和轰炸人口稠密地区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为可能构成战争罪。 她同时指出，从2月24日至4月20日期间，联合国特派团已记录并核实有2345名平民被杀，2919人受伤。 巴切莱特还谈到以平民屠杀事件而成为世界议程的布查镇的情况。她说，联合国人权工作人员4月9日在布查镇进行调查期间，取得了包括法外处决在内50名平民被处死的证据。 另外，俄罗斯将其入侵描述为解除乌克兰武装和“去纳粹化”的“特殊军事行动”，否认以平民为目标或犯下任何此类战争罪行。
 
+盖特链接：[https://gettr.com/post/p16rpj5bf39](https://gettr.com/post/p16rpj5bf39)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-12.32.12.png)图片来自网络
-意大利经济部长达涅莱•弗朗克(Daniele Franco)宣布再向乌克兰援助两亿欧元。
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-据意讯社报道，2021年意大利处于绝对贫困状态的未成年人为138.5万：比例很高， 为14.2%，与2020年相比较为稳定。但与2019年相比，高出近3个百分比， 2019年是11.4%。这是意大利国家统计局在第九版的《公平与可持续福利报告》中所强调的。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-简评：战争导致百姓更加贫困， 无论是参战国还是非参战国，最终受害的是普通民众。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-参考链接：
-
-[https://www.imolaoggi.it/2022/04/21/dallitalia-altri-200-milioni-di-euro-di-aiuti-allucraina/](https://www.imolaoggi.it/2022/04/21/dallitalia-altri-200-milioni-di-euro-di-aiuti-allucraina/)
-
-
-
-编辑、上传： Xiao baige
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

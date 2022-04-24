@@ -2,69 +2,37 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.24B)——接种新冠疫苗患寻麻疹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2403593/)
+## 中共军机坠毁河南，飞行员为俄罗斯人
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2403688/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/id13718685-Hongdu_L-15_Falcon-600x400-2.jpeg)
+当地时间4月23日，中共一架军机坠毁在河南省商丘市虞城县镇里固乡。从小视频中可以看到军机坠毁在农田里，当地老乡在坠落的残骸周围发现两个身着飞行员服装的军人躺到在农田中。其中飞行员中的中国人在打电话，说他一条腿可能是骨折了，围观的老乡看到外国样貌的飞行员十分警觉，就问这个人是谁，中国飞行员说那个外国样貌的人是教员。老乡放下了警惕，随即中国飞行员要求周围的老乡不要拍照。
 
-#### 整理/编辑：禄森
+郭先生在去年的4月23日直播时曾经说过，中共的战斗军机因为难度太大，国内根本没有人会开这种飞机，军机上面的飞行员都是俄罗斯人，按小时给钱。时隔一年，坠机事件后，果真中共的坠落军机上有俄罗斯的飞行员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-2.png)图片来源：雅典娜设计组(614)
+郭先生在最近的直播中说过，如果有需要，那么可以在直播当时就关掉北京市交管局指挥中心，让北京的红绿灯都灭了，修复红绿灯需要三个月。这可见新中国联邦在中共国内有无数个默默无闻的战友。而此次军机坠毁，俄罗斯飞行员现身，和郭先生爆料这件事的时间是一致的，都是4月23日，这种根本不是巧合，这是某种默契。
 
+reference：
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+[https://gettr.com/post/p16shng0082](https://gettr.com/post/p16shng0082)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+撰稿、发布：骄子
 
-**帖子原文**：
+* * *
 
-博主:寻丢丢
+欢迎订阅我们的GNews账号：
 
-因为新冠疫苗得了寻麻疹，好痛苦。一年都没好。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-脖子真的好痒，好想抓。
-
-去看医生，医生说我是皮肤划痕症。
-
-就是皮肤使劲按或者擦皮肤的话，会留痕迹，就像划痕一样。真的好难受。因为寻麻疹，我现在都有点洁癖了，一直在洗手。
-
-作者发布于:2022-4-23
-
-**评论选集**
-
-oxny评论:
-
-我不知道为什么得了也快一年了经常复发我都感觉因为这个寻麻疹我都没以前快乐了
-
-木木评论:
-
-我正痒着……吃了一粒过敏药还没全部控制住
-
-sara在荷兰评论:
-
-ym解毒：伊维菌素、锌、维D3、维C等等
-
-苏颜sy评论:
-
-我是打完第二针疫苗就得了划痕性荨麻疹，每天都要吃过敏药。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-120.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-34.png)图片来源：小红书
-
-
-参考链接：[接种新冠疫苗患寻麻疹，一年了还没康复](https://www.xiaohongshu.com/discovery/item/62641edb000000002103ba26?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761144)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
 
  
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

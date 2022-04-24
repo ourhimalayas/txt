@@ -2,37 +2,22 @@
 ---
 
 
-## 中共军机坠毁河南，飞行员为俄罗斯人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2403688/)
+## 秘翻在线：俄罗斯对乌克拉奥德萨进行导弹攻击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2403746/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/id13718685-Hongdu_L-15_Falcon-600x400-2.jpeg)
-当地时间4月23日，中共一架军机坠毁在河南省商丘市虞城县镇里固乡。从小视频中可以看到军机坠毁在农田里，当地老乡在坠落的残骸周围发现两个身着飞行员服装的军人躺到在农田中。其中飞行员中的中国人在打电话，说他一条腿可能是骨折了，围观的老乡看到外国样貌的飞行员十分警觉，就问这个人是谁，中国飞行员说那个外国样貌的人是教员。老乡放下了警惕，随即中国飞行员要求周围的老乡不要拍照。
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-49.jpg)图片来源：本文链接
+据韩媒《朝鲜日报》4月24日的消息，路透社和法新社当地时间23日报道说，俄军对乌克兰南部空军司令部发射的两枚导弹袭击了奥德萨地区的军事设施和民间居住建筑。据初步统计，截至目前，至少有5人死亡，18人受伤。据悉，死者中还包括出生3个月的新生儿。
 
-郭先生在去年的4月23日直播时曾经说过，中共的战斗军机因为难度太大，国内根本没有人会开这种飞机，军机上面的飞行员都是俄罗斯人，按小时给钱。时隔一年，坠机事件后，果真中共的坠落军机上有俄罗斯的飞行员。
+乌克兰当局担心，如果现场全面展开生存者救助及尸体搜索工作，人员伤亡规模将进一步扩大。对此，俄军当局表示，已经拆除了奥德萨内的武器储藏库。
 
-郭先生在最近的直播中说过，如果有需要，那么可以在直播当时就关掉北京市交管局指挥中心，让北京的红绿灯都灭了，修复红绿灯需要三个月。这可见新中国联邦在中共国内有无数个默默无闻的战友。而此次军机坠毁，俄罗斯飞行员现身，和郭先生爆料这件事的时间是一致的，都是4月23日，这种根本不是巧合，这是某种默契。
+据国际文传电讯社报道，俄罗斯空军的空中发射远程高精密导弹对奥德萨地区军用跟踪场的物流站进行了打击和破坏。俄方表示，该航站楼内保管着美国和欧洲国家支援的大量外国武器。此外，俄罗斯空军还破坏了保管导弹、大炮、弹药、燃料及润滑油等的乌克兰军储藏库16处。
 
-reference：
+信息来源： [https://www.chosun.com/international/international\_general/2022/04/24/KHUPZDDWRNGXFPMTEJGTF766JI](https://www.chosun.com/international/international_general/2022/04/24/KHUPZDDWRNGXFPMTEJGTF766JI)
 
-[https://gettr.com/post/p16shng0082](https://gettr.com/post/p16shng0082)
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+责编：Eric Kim
 
  
-
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
