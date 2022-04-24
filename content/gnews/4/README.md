@@ -2,48 +2,22 @@
 ---
 
 
-## 战友日常之-擎天一柱
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2406941/)
+## 西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2406995/)
 
-作者：纽约香草山设计部 – 蜂鸟
+#### 编译 意大利达芬奇农场 小白鸽
 
+西澳大利亚州州长马克·麦高文(Mark McGowan)办公室证实，他的三个孩子中的一个在感染新冠病毒后住院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-16.41.58.png)图片来源：eventiavversinews.it
+声明中写道：“孩子已经完全接种疫苗了，但由于感染，他的情况很严重。孩子仍在医院接受持续护理。”最近几天，据透露，西澳大利亚州州长马克·麦高文（Mark McGowan）在与家人单独相聚期间，其新冠病毒检测呈阳性。麦高文最初在一名家庭成员感染病毒后检测为阴性，他是密切接触者。州长在一份声明说，他在周四进行了另一次PCR检测，结果呈阳性。“ 考虑到我的一个家庭成员新冠检测呈阳性，这并不奇怪，”他周五说，“根据法令，我的阳性结果将迫使我延长我的隔离期，一直到我能被允许离开家。”
 
+“在此期间，我将继续隔离并在家工作。”州长预计将于5月1日参加在珀斯举行的工党联邦竞选活动。本周，联邦工党领袖安东尼·艾博年（Anthony Albanese)的病毒检测也呈阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+参考链接：
 
+[https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/](https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/)
 
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/41-2-scaled.jpg)
-* * *
-
-
-
-发稿：小鹿
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-42.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场** **GTV** **–** **香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场** **GTV-MOS TALK** **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场** **Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场** **YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+编辑、上传：Xiao baige
 
  
 

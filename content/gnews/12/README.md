@@ -2,32 +2,21 @@
 ---
 
 
-## 普京一副病体，无法硬撑
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2406870/)
+## 泽连斯基在东正教复活节致辞：我发誓邪恶不会摧毁乌克兰
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2406895/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-4.jpg)
-4月24日直播中，郭先生爆料普京如何使用假宣传让自己的身体看起来无比健壮。
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04241.jpg)图片来自repubblica.it
+乌克兰总统弗拉基米尔·泽连斯基站在该国最著名的纪念碑之一的基辅有 1000 年历史的圣索菲亚大教堂内，在东正教复活节之际发表了讲话，承诺“邪恶”不会摧毁他的国家。
 
-郭先生提到，在独裁集权的体制下，领袖的身体状况和国家生活、老百姓的洗脑紧密相连。一个领袖的身体好坏直接关系到国民生活的自豪感和国家经济的蓬勃，或者领袖的身体可以决定一切。无数个独裁领袖以身证实了这一点。斯大林、毛泽东、林彪都是如此。而民主国家由于纠偏机制，如美国拜登总统的身体状况是必须公布的，否则是刑事犯罪。
+总统说到:“我们目睹了可怕的战争场面,正在与极其艰巨的挑战作斗争。但是最终我们将达到一个正义的结局，那是乌克兰人民幸福和繁荣生活的开始。我们的心中和灵魂充满了对占领者和他们所做的一切的愤怒仇恨，但是不要让愤怒从内部摧毁我们，要把它变成一种温和的力量来打败邪恶的力量“。
 
-郭先生爆料普京此前的身体都是靠打针来维持的。之前普京每次出访，都会提前三周，在可承受的范围内吸氧、打针、注射血清等。到了出访目的地，都要脱衣展示自己身体的健壮，每个动作都是设计好的，用来骗老百姓。但由于动过手术，其中一次还是肾脏手术，普京现在身体已经无法打针了，因为不安全了。曾经的普大帝失去了医美，身心俱毁。郭先生提到普京的性格是极其自恋和变态的，作为一个独裁国家的领袖，普京的身体确实能够影响到俄乌战争的结局，俄罗斯很快会惨败。只是普京可能会在最后关头疯狂一下子，使用一些核武器。但能不能成功结果另说。
+“保护我们免于不和和分离，不要失去团结，加强我们的意志和精神，让我们不要迷失自己，不要让我们失去对自由的渴望。因此，不要让我们失去对正义追求的战斗热情，不要失去对胜利的希望和尊严的感觉，并维护我们的自由“。
 
-郭先生说，习近平的身体比想象的要糟糕。
+原文链接: [https://video.repubblica.it/dossier/crisi\_in\_ucraina\_la\_russia\_il\_donbass\_i\_video/zelensky-nel-messaggio-pasquale-ortodosso-giuro-che-la-malvagita-non-distruggera-l-ucraina/413999/414926?ref=RHTP-BS-I339021822-P10-S1-F](https://video.repubblica.it/dossier/crisi_in_ucraina_la_russia_il_donbass_i_video/zelensky-nel-messaggio-pasquale-ortodosso-giuro-che-la-malvagita-non-distruggera-l-ucraina/413999/414926?ref=RHTP-BS-I339021822-P10-S1-F)
 
-撰稿、发布：骄子
+责任编辑/发布:意大利达芬奇农场   萧亦
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

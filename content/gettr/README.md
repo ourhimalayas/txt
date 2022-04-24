@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 9:12 PM (UTC)`
+
+2022.04.24  新中国联邦 | 喜健康   “连花清瘟，中药神话还是全民骗局？
+![img](https://media.gettr.com/group49/origin/2022/04/24/21/c8f7ccbf-7c5b-c6c3-4d7e-48d487b72b16/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/24/2022 7:16 PM (UTC)`
 
 4/24/2022 Miles Guo: The attempted attack on Sarah by Tim Carlsgaard, an ultra-leftist who worships communism, was a grossly racist act! The essence of this incident is the rivalry between communism and liberalism.<br/><br/>4/24/2022 文贵直播：崇拜共产主义的极左分子Tim Carlsgaard在梅迪卡营地试图袭击小Sarah的事件是严重的种族歧视！其本质共产主义和自由主义的较量!<br/>
@@ -146,13 +153,6 @@
 
 4/23/2022: On April 23, 2021,  Miles revealed that the pilots on the CCP’s aircraft carrier Liaoning were all from Russia. Exactly one year later, a CCP military plane crashed in Henan Province, and local villagers found a Russian pilot in the wheat field along with a Chinese pilot. This proves that the relevant information Miles uncovered in 2021 is 100% true!<br/><br/>4/23/2022 一年前的4月23日，文贵爆料中共辽宁号航母的飞行员都来自俄罗斯；整整一年后，一架中共军机在河南坠毁，当地村民发现了掉落在麦田中的俄罗斯飞行员，这100%验证了文贵的爆料！<br/><br/>
 ![img](https://media.gettr.com/group30/getter/2022/04/24/00/096d6ef7-09dd-f431-6431-d3d3810e18e7/out.jpg)
-
----
-
-`@miles 4/24/2022 12:33 AM (UTC)`
-
-2022.04.23 晚  新中国联邦 | 新闻   有可疑人士蓄意破坏新中国联邦法制基金救援基地；西藏流亡政府议会主任在梅迪卡边境接受战友采访
-![img](https://media.gettr.com/group36/origin/2022/04/24/00/0faa071d-63d1-9681-45cf-5ff609e19fac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
