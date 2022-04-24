@@ -2,25 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2402039/)
+## 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2402171/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-159.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-23.png)
+【乌克兰救援】 04/22/2022 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
 
-
-校对：Stay文苑
-编辑：Stay文苑
-发稿：Stay文苑
-新闻：[https://gettr.com/post/p16t0x9e84c](https://gettr.com/post/p16t0x9e84c)
-访谈：[https://gettr.com/post/p16tm6g48c6](https://gettr.com/post/p16tm6g48c6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

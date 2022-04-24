@@ -2,67 +2,50 @@
 ---
 
 
-## 新西兰发现首例 XE 变种，但新西兰人需要担心吗？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2401904/)
+## 台湾昨日中共病毒破四千例，中共讽刺台湾人“抢打疫苗”
+` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2402123/)
 
-翻译：sherryok (酷翻组)
-采集：玫瑰新闻组
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/自由.png)
+作者：东京樱花团｜捆绑CCP一千年
 
 
 
+**中华民国3月以来，中共病毒持续高涨，至今单日增长破四千多例，岛内出现“疫苗抢打潮”。一个令人感到不安的是中共国完全掌控台湾疫情和疫苗接种率的升降以及分布位置，足见其阴险灭台计划正在趋于火战边缘。**
+
+据[中共国新华社](http://www.news.cn/2022-04/23/c_1128588714.htm)23日16点消息，“台流行疫情指挥中心23日公布，”[本土当天新增新冠肺炎确诊病例飙升至“4204例](http://www.news.cn/2022-04/23/c_1128588714.htm)，包括4126例本土病例和78例境外输入病例。”感染年龄层在未满5岁和90多岁的老幼人群，分别分布于新北市、台北市等地。
+
+- ***延展阅读****：*[*4月23日疫情整理包-全台飆破4千！北市+945例 2接种站莫德纳、高端随到随打*](https://udn.com/news/story/120940/6260871)*。*
 
 
+从上述消息可见，一个令人感到不安的是中共国完全掌控台湾疫情和疫苗接种率的升降以及分布位置，从中共国新华社具有讽刺口味的一句评论可见中共国的阴险灭台计划：
+
+“[台湾民众对待疫情的态度或从疫苗**“抢打潮**”中可见一斑](http://www.news.cn/2022-04/23/c_1128588714.htm)。“22日全台接种疫苗人次超过16万 。另据台湾公视新闻消息，[台湾各地出现“疫苗荒”各地爆出“抢打潮 ”](https://youtu.be/M5b7UC2sGXI)。不过，已有“20.04万剂莫德纳下午4点半抵台。”
+
+- ***延展阅读****：*[*国民党立委蒋万提三要求，包括提高老人疫苗覆盖率,扩大救护车队编制*](https://www.zaobao.com.sg/realtime/china/story20220422-1265283)*。*
 
 
-![查看來源圖片](https://th.bing.com/th/id/OIP.Q7ulwsF6xfTIeVeXctM9uQHaE6?pid=ImgDet&amp;rs=1)
+根据雅虎新闻网消息，台湾防疫总指挥陈时忠说，“今年第四批采购莫德纳疫苗20.04万剂，预计晚间抵达桃源国际机场，”“[接下来下周还要有100多万剂会到货，5月初应该就可提供儿童接种使用](https://tw.stock.yahoo.com/amphtml/news/%E9%99%B3%E6%99%82%E4%B8%AD-%E4%BB%8A%E5%B9%B4%E7%AC%AC%E5%9B%9B%E6%89%B9%E6%8E%A1%E8%B3%BC%E8%8E%AB%E5%BE%B7%E7%B4%8D%E7%96%AB%E8%8B%9720%E8%90%AC%E5%8A%91%E6%99%9A%E9%96%93%E6%8A%B5%E5%8F%B0-065122338.html)。”可见，台湾仍然在病毒和疫苗上显出他的傲慢和无知，这是中共乐见其成的效果。
 
-首例奥米克戎 的 XE 变种在新西兰被发现，但这是否意味着我们必须重新调整疫情的交通灯设置，还是在与 奥米克戎的斗争中照常营业？
+对于台湾出现疫苗强打潮现象，雅虎消息称，[台灣連續多日因本土确診破千例，出現疫苗搶打潮](https://tw.news.yahoo.com/%E6%90%B6%E6%89%93%E6%BD%AE%E5%86%8D%E7%8F%BE-%E5%8C%97%E5%8C%97%E5%9F%BA%E5%87%BA%E7%8F%BE%E7%96%AB%E8%8B%97%E9%A0%90%E7%B4%84%E4%B8%8D%E5%88%B0%E7%AA%98%E6%B3%81-044505040.html)。双北及基隆市疫苗庫存见底，很多人特地請假，到亚东医院要打莫德納疫苗，还有人打不到，“沒想到第三剂要事先預約，与医生发生争吵。“
 
-新西兰卫生部周六（4月23日）报告说，感染者从海外前往新西兰，于 4 月 19 日抵达。他们于 4 月 20 日接受了检测，随后全基因组测序证实了 XE 变体。
+2022年4月24日
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422114846.png)
+**阅读更多樱花团资讯**：
 
-他们在家隔离。
+- [【视频】北京突起疫情，多个小区实施封控](https://gnews.org/zh-hans/2401980/)。
+- [樱花时政｜上海封城又酿灾难 一居民楼被铁丝网隔离后起火。](https://gnews.org/zh-hans/2402013/)
+- [新闻述评：习近平发布“台籍兵”当天华视传出开战假讯。](https://gnews.org/zh-hans/2384195/)
+- [日本新泻县：中共病毒疫苗已致20人死亡](https://gnews.org/zh-hans/2390117/)
+- [【有声】俄军以“口炮”用来打击美军向乌克兰运送武器的飞机](https://gnews.org/zh-hans/2371728/)
+- [樱花时政｜649名乌克兰难民成功赴日 语言和就业问题凸显](https://gnews.org/zh-hans/2371342/)
+- [【视频】新闻述评：美国会跨党派议员访台谴责习近平支持了普京](https://gnews.org/zh-hans/2356260/)
+- [乌克兰国防部：载有核弹头的俄黑海舰队的旗舰被击沉引发担忧](https://gnews.org/zh-hans/2351656/)
+- [突破：俄纳粹军重新集结在乌东地区,一场血战即将开始](https://gnews.org/zh-hans/2342994/)
+- [美国总统坚称普京犯下“大屠杀”行为 将由国际审判庭定罪](https://gnews.org/zh-hans/2338330/)
+- [美总统助理沙利文称将启动国际刑事法院追讨俄罗斯总统普京 “战争罪”。](https://gnews.org/zh-hans/2290690/)
+- [NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
+- [新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
 
-新变种 XE 于 1 月 19 日在英国首次发现，[澳大利亚一周前记录了第一例病例](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-australia-records-its-first-case-of-new-covid-19-variant-xe.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，从那时起，XE 到达新西兰只是时间问题。
-
-[布卢姆菲尔德说新变种值得关注，警告说如果它到达新西兰可能需要更严格的措施](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-[XE 是由另外两种菌株 BA.1（奥米克戎的原始菌株）和 BA.2 重组而成。](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-new-covid-variant-xe-potentially-10-percent-more-transmissible-than-omicron.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-根据迄今为止汇编的有限数据，早期估计表明新菌株的传播性比 BA.2 高约 10%，但需要更多数据来证实这一点。
-
-“在发现其不同的传播和疾病特征（包括严重程度）之前，XE 仍然属于奥米可戎的一个 变体”[世界卫生组织（WHO）3 月 29 日的一份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.who.int/publications/m/item/weekly-epidemiological-update-on-covid-19---29-march-2022)说。
-
-英国卫生当局在 3 月下旬表示，“没有足够的证据得出关于这种变体的增长优势或其他特性的结论。”
-
-英国卫生安全局首席医学顾问苏珊霍普金斯说：“这种特殊的重组 XE 显示出可变的增长率，我们还不能确定它是否具有真正的增长优势。”
-
-世卫组织表示将继续密切监测和评估与重组变体相关的公共卫生风险，并将在获得证据后提供进一步的更新。
-
-卫生部周六表示，该变种的出现并不意外，我们目前的健康系统应该足以应对任何爆发。.
-
-“在现阶段，管理其他 Omicron 变体的公共卫生设置被评估为适合管理 XE，不需要进行任何更改。
-
-“迄今为止，没有证据表明 XE 会导致比其他 Omicron 谱系更严重的疾病，并指出需要数周或数月才能确定每个新变体的严重程度。”
-
-即将卸任的新西兰卫生总干事阿什利·布鲁姆菲尔德本月早些时候警告说，[需要监测新的变种。](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-“这当然是我们需要密切关注的事情，关于 XE 的情况之一是它实际上是两个 Omicron 子变体 BA.1 和 BA.2 的组合，” 布鲁姆菲尔德 在 四月份的早新闻 上告诉记者。
-
-“这些病毒不断交换遗传物质。因此，XE 变体的传染性似乎比我们目前在全国广泛传播的 BA.2 变体高 10% 左右。”
-
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒Covid-19）**
-
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
-
-新闻链接：
-[https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html](https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
 
  
 
