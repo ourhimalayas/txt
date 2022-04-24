@@ -2,12 +2,41 @@
 ---
 
 
-## 4月24日文贵大直播要点（图片1-14）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2407113/)
+## 有声|灭共即为消灭中共体制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407184/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/D940EAE3-99CD-4FDE-A310-241B223F1F85.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4795990E-C500-4011-84DC-C35C2FABAFD9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/F0B03CFE-948D-4523-9522-A18B722E7D90.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7E88C955-19DB-456F-A34D-B5F37682F3AA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/816FFDED-9ABC-44BF-A8FC-5998D6EA246F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B048E8E4-B004-45D2-A6B6-EC24B37C8518.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7FCD97F2-11DE-4F73-9E40-93B178125342.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/6470A9EF-BED3-4EDB-8BD4-BD05772CAF12.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2459D3A6-3279-4352-A652-DC735D006567.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/62C7F71E-915A-43A5-8808-2EA99227E06A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9204745E-BC1F-47C4-A12B-65D7D41F2CE2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/A70D5CB0-AAA4-46AF-BDE1-425C709ADEDD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/0F07092D-614A-406B-A98D-2393CB801900.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/D1D357B7-777C-47A1-BA90-819592AB35F3.jpeg)
-发布：水涨船高
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+而在4月19日的大直播中，郭文贵先生强调，灭共的核心是要消灭中共的独裁体制，而这一体制内的绝大多数成员其实都是好人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/b6378602-0c56-4435-b59f-d5cc166ec0a3.jpeg)
+郭先生解释道，由于中共一贯在墙内施行的狭隘教育，有些号称支持爆料革命的人实际只是希望借由爆料革命除掉中共党内的某些个体，但这并不是灭共的实质。究其原因，个体的消失并不能动摇中共这一吃人的体制；相反的，其他手握大权的人仍然会继续鱼肉百姓。
+
+对此，郭先生举例道，习近平在文化大革命期间受到的伤害是这次中共在上海采取严厉封锁限制的一个主要原因，另一个则由于韩正未经通报，私自前往上海。在此情况下，习近平非但没有着手于改变中共体制，反而把这些私人仇恨宣泄在无辜的上海白姓身上。
+
+为此，郭先生认为，相较于只是针对某些个体的报复，痛恨共产党的墙内民众应该协力消灭中共的邪恶体制。
+
+
+
+
+
+文字版原文：[灭共即为消灭中共体制](https://gnews.org/zh-hans/2402128/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,39 +2,12 @@
 ---
 
 
-## 有声|中共杀人体制的危害
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407068/)
+## 4月24日文贵大直播要点（图片1-14）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2407113/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在纪念419事件五周年大直播中，郭先生提到了共产党体制的巨大危害。在这个体制中，人一旦进入，掌握一定的权力，就可以胡作非为，尝到权力带来的各种优越性。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388616.jpg)
-在目前上海的大隔离人道灾难中，体现得最为明显的，就是那些身穿防护服的工作人员。他们可以利用手中的权力，随意支配别人的行为，可以只用一个馒头作为交换，合法地性侵一名18岁女孩，这种极其不对等的交易只有在中共的体制下才有。而一些中共所谓的高官，如之前的孙力军，原本是一个钢铁倒卖商，通过某种途径进入中共体制后，便拥有了随意抓人杀人的权力，根本不必顾及任何人间律令、伦理道德。
-
-这种权力至上体制，就像人体中毒一样，必须要经历很长的时间才能将其排出体外，可能一两世都不止。
-
-
-
-
-
-文字版原文：[中共杀人体制的危害](https://gnews.org/zh-hans/2399432/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/D940EAE3-99CD-4FDE-A310-241B223F1F85.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4795990E-C500-4011-84DC-C35C2FABAFD9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/F0B03CFE-948D-4523-9522-A18B722E7D90.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7E88C955-19DB-456F-A34D-B5F37682F3AA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/816FFDED-9ABC-44BF-A8FC-5998D6EA246F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B048E8E4-B004-45D2-A6B6-EC24B37C8518.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7FCD97F2-11DE-4F73-9E40-93B178125342.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/6470A9EF-BED3-4EDB-8BD4-BD05772CAF12.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2459D3A6-3279-4352-A652-DC735D006567.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/62C7F71E-915A-43A5-8808-2EA99227E06A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9204745E-BC1F-47C4-A12B-65D7D41F2CE2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/A70D5CB0-AAA4-46AF-BDE1-425C709ADEDD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/0F07092D-614A-406B-A98D-2393CB801900.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/D1D357B7-777C-47A1-BA90-819592AB35F3.jpeg)
+发布：水涨船高
 
  
 
