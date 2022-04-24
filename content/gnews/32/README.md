@@ -2,27 +2,38 @@
 ---
 
 
-## 视频|美国青年志愿者震惊于419美国之音断播事件
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2402801/)
+## 俄罗斯恶意网络行动的威胁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2402862/)
 
-制作：香草山视频部
+作者：日本东京方舟农场 – Miyali7768(文玉）
+![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
+根据《NEWXMAX》新闻网4月20报道，美国联邦机构和安全盟友周三发布的一份联合公告，警告俄罗斯对基础设施目标的网络威胁可能超出乌克兰边界。
 
-4月19日，前线救援记者Nicole在梅蒂卡难民中心采访了一位来自美国的青年志愿者。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1231277670.jpg)
 
-过程中，Nicole向这位志愿者解释了五年前美国之音VOA恶意中断郭文贵先生采访直播的事件。同时，Nicole也提到，虽然VOA是由美国联邦政府资助的新闻机构，但其中断直播的原因却仅仅是碍于中共政府的强力要求。
+美国网络安全和基础设施安全局（CISA）在其公告中称，自俄入侵乌克兰以来，政府网络专家发布的俄罗斯对关键基础设施构成的网络威胁的最全面看法， 俄罗斯可能在未来几天和几周内执行“恶意网络行动” 。
 
-对此，这位美国志愿者表示，美国本应该是言论自由、媒体自由和信仰自由的象征。然而，近几年来，这样的自由越来越多地被外国利益集团轻易操纵。更甚者，为了能在中共国获取利益，那些有影响力的组织和大公司牺牲了代表美国的自由价值观——这实在令人失望。
+CISA 主任 Jen Easterly 表示，俄罗斯国家支持和俄罗斯结盟的网络犯罪集团对美国国土的威胁能力。
 
-对此，郭文贵先生曾在直播中反复提到，包括美国之音和华尔街在内的许多公司都正在与美国人民的头号敌人——中共存在巨大的利益联系，他们正在与魔鬼做交易。
+Easterly 强调：“我们知道恶意网络活动是俄罗斯剧本的一部分。我们也知道俄罗斯政府正在探索针对美国关键基础设施进行网络攻击的可行选项。”
 
-此外，采访中，这位美国青年志愿者多次用“伤透了心”来形容419美国之音断播事件对自己的震撼。
+报告还显示俄罗斯支持的一些网络犯罪组织威胁要开展网络行动，以报复针对俄罗斯或向乌克兰提供物质支持的国家或组织的网络攻击。
 
-发稿：林礼
+作为一项行动方案，CISA 及其合作伙伴建议组织和公司 升级安全网络，特别是身份验证和远程桌面协议，加强最终用户意识培训。
+
+参考链接：[US Agencies, Cybersecurity Allies Issue Warning About Russian Cyber Attacks](https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+
+编辑/校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

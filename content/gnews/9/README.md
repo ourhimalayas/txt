@@ -2,47 +2,20 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.24A）——口服冠状病毒疫苗的反应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2403191/)
+## 担心大疆设备的安全，乌克兰向美初创企业采购无人机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2403347/)
 
-#### 整理：W2
-编辑：文泓
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55.png)图片来源：雅典娜设计组
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-13.jpg)图片来源：大纪元时报
+据《商业内幕》（Business Insider）4月23日报道，《华尔街日报》4月23日的一篇报道指出，由于担心中共的无人机制造商大疆（DJI）可能故意在其产品中制造“技术故障”以损害乌克兰的国防，乌克兰政府转而向美国的初创公司采购无人机，用于人员搜救行动和收集战场情报。
 
+自上个月以来，位于西雅图的无人机公司Brinc Drones已捐赠了10架无人机，并出售了50架供乌克兰国家紧急事务局使用。硅谷公司Skydio也向乌克兰国防部捐赠了数十架无人机，并向支持乌克兰的非政府组织出售了数百架。超过6家美国初创公司已向乌克兰捐赠或出售无人机，以帮助搜索和救援任务以及情报收集。五角大楼本周四（4月21日）宣布，将向乌克兰提供121架“凤凰幽灵”无人机，作为其8亿美元军事援助的一部分。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报导已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+此前，乌克兰政府曾警告中共大疆无人机的安全性，指出这些设备对乌克兰的军队和平民构成安全风险。他们质疑大疆无人机频繁出现技术故障，可能是为了故意破坏乌克兰的防务工作。乌克兰数字化转型部长米哈伊洛·费多罗夫 (Mykhailo Fedorov) 3月16日发推谴责大疆无人机向俄罗斯开放了其AeroScope（云哨）功能，以便俄军借助云哨的定位功能袭击乌克兰，导致许多无辜平民丧生，其中包括100多位儿童。
 
-[**副作用集萃** ** – GNEWS**](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-博主：嗨Y哈尼Y
-
-口服冠状病毒疫苗的副作用，嗜睡，轻微拉肚子，肠胃不适。可怜的崽崽哭闹了一天。
-
-吉木斯斯评论：
-
-我们（孩子）一直湿疹，满月的针刚打，这是第二个月的疫苗么？
-
-博主回复：
-
-这个是囗服冠状病毒疫苗。乙肝第二针上个月刚打完。有的疫苗必须在月份里打，过了就不能再打了……
-
-吉木斯斯评论：
-
-是的，这次没反应过半个月就能打下一针了，现在就是这样补打（疫苗）了，打到六七月就能按月打了。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-119.png)图片来源：博主小红书
-
-
-参考链接：[http://xhslink.com/In2NQg，复制本条信息，打开【小红书】App查看精彩内容！](http://xhslink.com/In2NQg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+新闻来源：[US startups donate drones after Ukrainian officials raise concerns over use of Chinese devices](https://www.businessinsider.com/us-drone-startups-brinc-dji-skydio-donating-ukraine-military-2022-4)
 
  
 

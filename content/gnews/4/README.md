@@ -2,20 +2,32 @@
 ---
 
 
-## 担心大疆设备的安全，乌克兰向美初创企业采购无人机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2403347/)
+## 樱花时政┃韩国当选总统代表团访日 拟改善双边关系
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2403428/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+韩国当选总统尹锡悦将派出代表团于今天4月24日启程前往日本，预计将与日本就第二次世界大战期间的 “征用 “问题等两国之间悬而未决的问题交换意见。据悉，该代表团携带了一封尹锡悦的亲笔慰问信，并希望在下月10日新政府上任前找到改善双边关系的突破口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃韩国当选总统代表团访日-拟改善双边关系.png)照片来源：本文链接
+由韩国当选总统尹锡悦派遣的代表团由议员、前外交官和专家等7人组成，于今天24日上午出发前往日本访问。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-13.jpg)图片来源：大纪元时报
-据《商业内幕》（Business Insider）4月23日报道，《华尔街日报》4月23日的一篇报道指出，由于担心中共的无人机制造商大疆（DJI）可能故意在其产品中制造“技术故障”以损害乌克兰的国防，乌克兰政府转而向美国的初创公司采购无人机，用于人员搜救行动和收集战场情报。
+代表团到本月28日在日本一共逗留五天，访问期间将与外交部、国会和商界的有关人员会面，预计将就朝鲜加速核导弹的发展，以及第二次世界大战期间的 “征用 “等日本和韩国之间关注的问题交换意见。此外，代表团成员透露携带了尹先生的一封慰问信。
 
-自上个月以来，位于西雅图的无人机公司Brinc Drones已捐赠了10架无人机，并出售了50架供乌克兰国家紧急事务局使用。硅谷公司Skydio也向乌克兰国防部捐赠了数十架无人机，并向支持乌克兰的非政府组织出售了数百架。超过6家美国初创公司已向乌克兰捐赠或出售无人机，以帮助搜索和救援任务以及情报收集。五角大楼本周四（4月21日）宣布，将向乌克兰提供121架“凤凰幽灵”无人机，作为其8亿美元军事援助的一部分。
+在离开韩国之前前，代表团团长、国会副议长郑镇石在仁川国际机场接受了采访说：”我们将转达尹先生日韩两国必须共同努力，尽快改善两国之间的关系的意思。努力为新的关系奠定基础”。
 
-此前，乌克兰政府曾警告中共大疆无人机的安全性，指出这些设备对乌克兰的军队和平民构成安全风险。他们质疑大疆无人机频繁出现技术故障，可能是为了故意破坏乌克兰的防务工作。乌克兰数字化转型部长米哈伊洛·费多罗夫 (Mykhailo Fedorov) 3月16日发推谴责大疆无人机向俄罗斯开放了其AeroScope（云哨）功能，以便俄军借助云哨的定位功能袭击乌克兰，导致许多无辜平民丧生，其中包括100多位儿童。
+日本是继盟友美国之后，尹锡悦派出代表团访问的第二个国家。
 
-新闻来源：[US startups donate drones after Ukrainian officials raise concerns over use of Chinese devices](https://www.businessinsider.com/us-drone-startups-brinc-dji-skydio-donating-ukraine-military-2022-4)
+信息来源：
+[韓国 ユン次期大統領 きょう代表団を日本に派遣](https://search.yahoo.co.jp/amp/s/www3.nhk.or.jp/news/html/20220424/amp/k10013596041000.html%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
