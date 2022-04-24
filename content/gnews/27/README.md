@@ -2,126 +2,52 @@
 ---
 
 
-## 上海悲歌《四月英雄》被中共全网封杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402256/)
+## 伊斯兰国称对阿富汗北部的致命爆炸负责
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2402417/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-52.jpg)[图片来源](https://www.google.com.hk/search?q=%E5%9B%9B%E6%9C%88%E8%8B%B1%E9%9B%84&amp;newwindow=1&amp;sxsrf=APq-WBvaABMuDBUy-et0-Dorw2A0YJZVzg:1650769748152&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiO58bD3Kv3AhVHp1YBHf_uB-QQ_AUoAXoECAEQAw&amp;cshid=1650769798312645&amp;biw=1707&amp;bih=770)
-4月24日，封城一个月后，上海人到达了忍耐的极限，继《四月之声》被封杀后，有音乐人制作了音乐视频《四月英雄》，歌曲改編自陈奕迅《孤勇者》，视频仅上传一小时，就被墙内全网封杀。
+翻译: 里奇
 
-有网友听完歌曲后表示，同一首歌，一样的歌词，应景的才最完美，才有力量。这是一个以低头的代价才能换来顺阶而上的自由的年代。一份孤独，一份倔强书写了一个个在黑暗中不屈的灵魂，孤独求败却在喘不过气来的暴政下有一种另类的倔强在不断延伸，不断伸张……
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
 
-附：四月英雄（孤勇者合唱版）歌词
 
-都是勇敢的
 
-你额头的伤口 你的 不同 你犯的错
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-238.png)4 月 21 日，位于阿富汗马扎里沙里夫繁忙地区的清真寺发生爆炸后，从 Seh Dokan 清真寺看到的景象。照片：Sayed Khodaiberdi Sadat/Anadolu Agency via Getty Images
 
-都不必隐藏
+据追踪武装团体和极端主义组织在线活动的非政府组织 SITE Intelligence Group 称，伊斯兰国在阿富汗的分支机构周四声称对北部城市马扎里沙里夫和昆都士发生的两起致命爆炸事件负责。
 
-你破旧的玩偶 你的面具 你的自我
+**推动新闻**：据路透社报道，针对马扎里沙里夫什叶派清真寺的第一次爆炸造成至少 10 人死亡，数十人受伤。据《纽约时报》报道，第二次爆炸针对昆都士的一辆小巴，造成至少四人死亡。
 
-他们说 要带着光 驯服每一头怪兽
+• 美联社报道，一枚路边炸弹也在喀布尔的 Dasht-e-Barchi 街区爆炸。
 
-他们说 要缝好你的伤 没有人爱小丑
+**大背景**：虽然阿富汗最近几个月相对平静，但据美联社报道，周四的爆炸事件是在周二喀布尔发生的一系列爆炸事件之后发生的。
 
-为何孤独 不可光荣
+• 这些爆炸袭击了教育机构，包括位于Dasht-e-Barchi 社区的一所高中，这里居住着许多来自什叶派哈扎拉社区的人——这是伊斯兰国和其他逊尼派武装分子经常针对的少数民族和宗教少数群体。包括儿童在内的至少六人在那次袭击中丧生。没有任何组织声称对此负责。
 
-人只有不完美 值得歌颂
+• 自去年8 月控制阿富汗以来，塔利班已发誓要保护该国的什叶派少数群体，他们在1990 年代激进组织的残暴统治下受到迫害。
 
-谁说污泥满身的不算英雄
 
-爱你孤身走暗巷
+```
+他们在说什么：塔利班谴责周四的袭击，称“这些罪行是与阿富汗社会无关的圈子所为。”
+```
 
-爱你不跪的模样
+• 联合国新任阿富汗人权状况特别报告员理查德·贝内特（Richard Bennett）在推文中谴责周四的袭击，称“对拥挤的学校和清真寺的系统性针对性攻击要求立即进行调查、问责并结束这种人权侵犯 。”
 
-爱你对峙过绝望
+新闻来源:[ISIS claims responsibility for deadly blasts in northern Afghanistan](https://www.axios.com/isis-claims-responsibility-for-deadly-blasts-in-northern-afghanistan-74566d1a-d2f0-4cd4-81ec-4a49d9692f47.html)
 
-不肯哭一场
+* * *
 
-爱你破烂的衣裳
+审核：文乐
+校对：小东
+发布：五通庙
 
-却敢堵命运的枪
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-爱你和我那么像
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
-缺口都一样
-
-去吗？配吗？这褴褛的披风
-
-战吗？战啊！以最卑微的梦
-
-致那黑夜中的呜咽与怒吼
-
-谁说站在光里的才算英雄
-
-他们说 要戒了你的狂 就像擦掉了污垢
-
-他们说 要顺台阶而上 而代价是低头
-
-那就让我 不可乘风
-
-你一样骄傲着 那种孤勇
-
-谁说对弈平凡的不算英雄
-
-爱你孤身走暗巷
-
-爱你不跪的模样
-
-爱你对峙过绝望
-
-不肯哭一场
-
-爱你破烂的衣裳
-
-却敢堵命运的枪
-
-爱你和我那么像
-
-缺口都一样
-
-去吗？配吗？这褴褛的披风
-
-战吗？战啊！以最卑微的梦
-
-致那黑夜中的呜咽与怒吼
-
-谁说站在光里的才算英雄
-
-你的斑驳 与众不同
-
-你的沉默 震耳欲聋 You Are The Hero
-
-爱你孤身走暗巷
-
-爱你不跪的模样
-
-爱你对峙过绝望
-
-不肯哭一场 (You Are The Hero)
-
-爱你来自于蛮荒
-
-一生不借谁的光
-
-你将造你的城邦
-
-在废墟之上
-
-去吗？去啊！以最卑微的梦
-
-战吗？战啊！以最孤高的梦
-
-致那黑夜中的呜咽与怒吼
-
-谁说站在光里的才算英雄
-
-[视频链接](https://youtu.be/e7l6qyd6H2s)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

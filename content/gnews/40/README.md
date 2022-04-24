@@ -2,42 +2,67 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.24A)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401483/)
+## 新西兰发现首例 XE 变种，但新西兰人需要担心吗？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2401904/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：sherryok (酷翻组)
+采集：玫瑰新闻组
 
-#### 整理/编辑：红红火火
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-84.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-博主:  无语凝耶DC
-
-**帖子原文:**
-
-一直没怀疑过。但自从去年下半年接种完新冠疫苗至现在心脏一直不适，比如现在的惊醒，胸闷，气短，心跳加速，困却难以入眠，头晕，记忆力衰退等等。去医院检查没发现问题，开了一个月的药也已吃完，未见好转。以前心脏可一直没问题啊。目前身体逐渐变垮，无法控制。也没见有啥报道、说法、办法。
-
-#新冠疫苗
-
-发布于 2022-04-22
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-112.png)图片来源：微博
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
 
-参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
-发布：*wenly*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
+
+![查看來源圖片](https://th.bing.com/th/id/OIP.Q7ulwsF6xfTIeVeXctM9uQHaE6?pid=ImgDet&amp;rs=1)
+
+首例奥米克戎 的 XE 变种在新西兰被发现，但这是否意味着我们必须重新调整疫情的交通灯设置，还是在与 奥米克戎的斗争中照常营业？
+
+新西兰卫生部周六（4月23日）报告说，感染者从海外前往新西兰，于 4 月 19 日抵达。他们于 4 月 20 日接受了检测，随后全基因组测序证实了 XE 变体。
+
+他们在家隔离。
+
+新变种 XE 于 1 月 19 日在英国首次发现，[澳大利亚一周前记录了第一例病例](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-australia-records-its-first-case-of-new-covid-19-variant-xe.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，从那时起，XE 到达新西兰只是时间问题。
+
+[布卢姆菲尔德说新变种值得关注，警告说如果它到达新西兰可能需要更严格的措施](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+[XE 是由另外两种菌株 BA.1（奥米克戎的原始菌株）和 BA.2 重组而成。](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-new-covid-variant-xe-potentially-10-percent-more-transmissible-than-omicron.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+根据迄今为止汇编的有限数据，早期估计表明新菌株的传播性比 BA.2 高约 10%，但需要更多数据来证实这一点。
+
+“在发现其不同的传播和疾病特征（包括严重程度）之前，XE 仍然属于奥米可戎的一个 变体”[世界卫生组织（WHO）3 月 29 日的一份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.who.int/publications/m/item/weekly-epidemiological-update-on-covid-19---29-march-2022)说。
+
+英国卫生当局在 3 月下旬表示，“没有足够的证据得出关于这种变体的增长优势或其他特性的结论。”
+
+英国卫生安全局首席医学顾问苏珊霍普金斯说：“这种特殊的重组 XE 显示出可变的增长率，我们还不能确定它是否具有真正的增长优势。”
+
+世卫组织表示将继续密切监测和评估与重组变体相关的公共卫生风险，并将在获得证据后提供进一步的更新。
+
+卫生部周六表示，该变种的出现并不意外，我们目前的健康系统应该足以应对任何爆发。.
+
+“在现阶段，管理其他 Omicron 变体的公共卫生设置被评估为适合管理 XE，不需要进行任何更改。
+
+“迄今为止，没有证据表明 XE 会导致比其他 Omicron 谱系更严重的疾病，并指出需要数周或数月才能确定每个新变体的严重程度。”
+
+即将卸任的新西兰卫生总干事阿什利·布鲁姆菲尔德本月早些时候警告说，[需要监测新的变种。](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+“这当然是我们需要密切关注的事情，关于 XE 的情况之一是它实际上是两个 Omicron 子变体 BA.1 和 BA.2 的组合，” 布鲁姆菲尔德 在 四月份的早新闻 上告诉记者。
+
+“这些病毒不断交换遗传物质。因此，XE 变体的传染性似乎比我们目前在全国广泛传播的 BA.2 变体高 10% 左右。”
+
+**疫苗（新冠疫苗）
+中共病毒（新冠病毒Covid-19）**
+
+**我们不反疫苗，只针对假疫苗
+我们不反科学，只针对反人类**
+
+新闻链接：
+[https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html](https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

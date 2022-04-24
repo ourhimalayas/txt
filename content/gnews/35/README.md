@@ -2,67 +2,52 @@
 ---
 
 
-## 新西兰发现首例 XE 变种，但新西兰人需要担心吗？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2401904/)
+## 樱花时政┃日本新西兰加强防务合作 以应对中俄&#8221;前所未有的挑战 &#8220;
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402170/)
 
-翻译：sherryok (酷翻组)
-采集：玫瑰新闻组
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日本新西兰加强防务合作-以应对中俄前所未有的挑战.png)[图片来源](https://www.zerohedge.com/geopolitical/japan-new-zealand-boost-defense-cooperation-amid-unprecedented-challenges)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+新西兰和日本周四（4月22日）同意加强防务合作，并启动正式谈判，以达成一项信息共享协议，因为世界面临俄乌战争带来的 “前所未有的挑战”。
 
+日本首相岸田文雄周四会见了来访的新西兰总理杰辛达-阿德恩，这是他去年当选以来的首次会面。
 
+在会谈后发表的一份联合声明中，两位领导人表示，他们同意在政治关系、国防和安全以及贸易和经济增长等领域加强合作。
 
+他们还同意开始就一项信息共享协议进行谈判，以便在国际安全问题上进行更密切的接触。
 
+阿德恩形容日本是新西兰 “在印度-太平洋地区最重要的伙伴之一”，它与日本有着共同的价值观和应对该地区所面临挑战的方法。
 
+她在一份声明中说：”日本和新西兰将共同努力，支持从新冠病毒COVID-19中恢复经济，应对气候变化，促进我们地区的和平与稳定，维护全球基于规则的秩序。”
 
+岸田和阿德恩强烈谴责俄罗斯对乌克兰的非法侵略，称其对基于规则的国际秩序构成 “严重威胁”，其影响远远超出欧洲和印太地区。
 
-![查看來源圖片](https://th.bing.com/th/id/OIP.Q7ulwsF6xfTIeVeXctM9uQHaE6?pid=ImgDet&amp;rs=1)
+他们要求莫斯科立即撤出在乌克兰的部队，并发誓继续对俄罗斯实施经济制裁。
 
-首例奥米克戎 的 XE 变种在新西兰被发现，但这是否意味着我们必须重新调整疫情的交通灯设置，还是在与 奥米克戎的斗争中照常营业？
+他们的会谈还涉及东海和南海，北京在那里增加了其军事存在。两位领导人表示，他们强烈反对试图以武力改变现状，并使有争议海域的紧张局势升级的单边行动。
 
-新西兰卫生部周六（4月23日）报告说，感染者从海外前往新西兰，于 4 月 19 日抵达。他们于 4 月 20 日接受了检测，随后全基因组测序证实了 XE 变体。
+两位领导人重申了根据国际法解决海洋争端的重要性，呼吁有关各方遵守2016年7月关于南海问题的最终和具有法律约束力的仲裁裁决。
 
-他们在家隔离。
+日本媒体共同社报道，岸田说，日本和新西兰 “不会容忍任何以武力改变现状的企图，并在东海和南海或任何其他地区反对这些企图”。
 
-新变种 XE 于 1 月 19 日在英国首次发现，[澳大利亚一周前记录了第一例病例](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-australia-records-its-first-case-of-new-covid-19-variant-xe.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，从那时起，XE 到达新西兰只是时间问题。
+日本和新西兰还承诺合作支持太平洋岛国的安全，并谴责朝鲜正在开发核武器。
 
-[布卢姆菲尔德说新变种值得关注，警告说如果它到达新西兰可能需要更严格的措施](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+这次会议是在所罗门群岛和中国正式签署安全条约之后举行的，该条约将允许北京在这个太平洋岛屿上部署武装警察和部队。
 
-[XE 是由另外两种菌株 BA.1（奥米克戎的原始菌株）和 BA.2 重组而成。](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-new-covid-variant-xe-potentially-10-percent-more-transmissible-than-omicron.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+4月18日，美国与日本、澳大利亚和新西兰的官员召开了一次会议，期间他们对所罗门-中国的交易表示关切。白宫表示，华盛顿对该协议的缺乏透明度和 “不明确的性质 “感到担忧。
 
-根据迄今为止汇编的有限数据，早期估计表明新菌株的传播性比 BA.2 高约 10%，但需要更多数据来证实这一点。
+信息来源：[** **](https://www.zerohedge.com/geopolitical/japan-new-zealand-boost-defense-cooperation-amid-unprecedented-challenges)
+[**Japan, New Zealand Boost Defense Cooperation Amid ‘Unprecedented Challenges’**](https://www.zerohedge.com/geopolitical/japan-new-zealand-boost-defense-cooperation-amid-unprecedented-challenges)
 
-“在发现其不同的传播和疾病特征（包括严重程度）之前，XE 仍然属于奥米可戎的一个 变体”[世界卫生组织（WHO）3 月 29 日的一份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.who.int/publications/m/item/weekly-epidemiological-update-on-covid-19---29-march-2022)说。
-
-英国卫生当局在 3 月下旬表示，“没有足够的证据得出关于这种变体的增长优势或其他特性的结论。”
-
-英国卫生安全局首席医学顾问苏珊霍普金斯说：“这种特殊的重组 XE 显示出可变的增长率，我们还不能确定它是否具有真正的增长优势。”
-
-世卫组织表示将继续密切监测和评估与重组变体相关的公共卫生风险，并将在获得证据后提供进一步的更新。
-
-卫生部周六表示，该变种的出现并不意外，我们目前的健康系统应该足以应对任何爆发。.
-
-“在现阶段，管理其他 Omicron 变体的公共卫生设置被评估为适合管理 XE，不需要进行任何更改。
-
-“迄今为止，没有证据表明 XE 会导致比其他 Omicron 谱系更严重的疾病，并指出需要数周或数月才能确定每个新变体的严重程度。”
-
-即将卸任的新西兰卫生总干事阿什利·布鲁姆菲尔德本月早些时候警告说，[需要监测新的变种。](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-“这当然是我们需要密切关注的事情，关于 XE 的情况之一是它实际上是两个 Omicron 子变体 BA.1 和 BA.2 的组合，” 布鲁姆菲尔德 在 四月份的早新闻 上告诉记者。
-
-“这些病毒不断交换遗传物质。因此，XE 变体的传染性似乎比我们目前在全国广泛传播的 BA.2 变体高 10% 左右。”
-
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒Covid-19）**
-
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
-
-新闻链接：
-[https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html](https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,97 +2,45 @@
 ---
 
 
-## 众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2401237/)
+## 4/24/2022 银河快讯：岸田首相会见亚太三国总理，确认合作应对乌克兰局势；德国总理肖尔茨将在下周访问日本
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2401689/)
 
-**众议员迈克·沃尔茨**： 
-尽管(对俄)实施了制裁，但看到有漏洞被人利用仍然令人沮丧。 欧洲仍在从俄罗斯购买数千亿立方米的天然气，为普京的战争机器提供资金。 美国和欧洲应该采取更多措施来阻止普京。 【附沃尔茨议员接受采访视频】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/K10013595911_2204231851_0423193122_01_02.jpeg)
+[图片来源](https://www3.nhk.or.jp/news/html/20220423/k10013595911000.html)
 
+**1．岸田首相会见亚太三国总理，确认合作应对乌克兰局势**
 
+[据NHK 4月23日报道，岸田首相在正在熊本市举行的亚太水峰会（详见第三条快讯）的会场与图瓦卢、柬埔寨和老挝的总理举行了首脑会议，并确认他们将共同处理乌克兰的局势。此外，24日是俄罗斯开始军事入侵乌克兰的两个月，岸田首相表示，他打算与国际社会合作继续对俄罗斯进行制裁，并表示这是结束军事入侵的关键时刻。同时，他表示，他将尽一切努力将物价飞涨对人民生活和经济的影响降到最低，并呼吁公众合作。](https://www3.nhk.or.jp/news/html/20220423/k10013595911000.html)
 
-> It's frustrating to see the loopholes being taken despite the sanctions in place.
-> 
-> Hundreds of billions of cubic-meters of gas are still being bought by Europe from Russia, financing Putin's war machine. There's a lot more the U.S. and Europe should be doing to stop Putin. [pic.twitter.com/ISf7ivTBXA](https://t.co/ISf7ivTBXA)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517930049827188737?ref_src=twsrc%5Etfw)
+**2． 德国总理肖尔茨将在下周访问日本**
 
+[据NHK报道，4月22日的例行新闻发布会上，德国政府宣布，总理肖尔茨将于下周27日离开德国，于28日至29日访问日本。这将是肖尔茨自去年12月上任以来首次访问日本。预计在今年6月德国担任主席国期间举行的七国集团峰会之前，各国领导人将在峰会上讨论诸如应对俄罗斯对乌克兰的军事侵略等问题。](https://www3.nhk.or.jp/news/html/20220423/k10013594961000.html)
 
+[前些年，德国对中共国的关系明显更加重视，前总理默克尔访问中国的次数超过了日本。但近期，德国对中共国的警惕性越来越高，并强调与日本的合作，两国的安全合作也得到了推动。](https://www3.nhk.or.jp/news/html/20220423/k10013594961000.html)
 
-**美国国务院**： 
-拜登总统[@POTUS](https://twitter.com/POTUS) 宣布了一项名为“为乌克兰团结起来”的新计划，以使寻求避难的乌克兰人能够直接从欧洲来到美国。 “这个程序会很快。它会被精简顺畅。” 【附拜登讲话视频，将开通快速通道接受10万乌克兰难民】
+**3． 第四届亚太水峰会在熊本市举行**
 
+[据时事通信社报道，4月23日，第四届亚太水峰会在熊本市举行，来自亚太地区的领导人讨论了与水有关的问题，并通过了《熊本宣言》，呼吁各国加强协作，应对与水有关的灾害，改善水资源环境。岸田文雄首相宣布，日本政府将在未来五年内提供约5000亿日元的支援资金，以促进使用日本先进技术的高质量基础设施的发展。](https://news.yahoo.co.jp/articles/8e4128cf00c7438213670336542193ab4ee883ea)
 
+**4．免费核酸检测点数量与1月相比增加1.7倍**
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announces a new program, “Unite for Ukraine,” to enable Ukrainians seeking refuge to come directly from Europe to the United States. "This program will be fast. It will be streamlined." [pic.twitter.com/IJl844lCIE](https://t.co/IJl844lCIE)
-> — Department of State (@StateDept) [April 23, 2022](https://twitter.com/StateDept/status/1517873428098740224?ref_src=twsrc%5Etfw)
+[NHK 4月23日报道，日本免费提供中共病毒（新冠病毒COVID-19）的PCR抗原检测的实验室数量正在迅速增加，已经上升到约1万所，是1月第六波感染在全国蔓延时的1.7倍。另一方面，检测的数量在减少，因此日本政府呼吁人们在重大节日出游或度假前积极接受检测。](https://www3.nhk.or.jp/news/html/20220423/k10013595491000.html)
 
+**5．法国雷诺公司考虑出售其持有的部分日产汽车股份**
 
+[彭博社4月22日报道，法国汽车巨头雷诺公司正在考虑出售其在日产汽车公司的部分股份。该公司将获得资金以加强其电动汽车业务。报导还称，日产可能会购买部分股权。](https://news.yahoo.co.jp/articles/cf44c6fbe5be4e8826d87a66902722222637cedf)
 
-**前国务卿迈克.蓬佩奥**： 
-美国梦之所以强大，是因为每个人都可得到它。不要停止相信它！
+**6．三菱将向比尔盖茨的去碳化相关基金投资130亿日元**
 
+[据NHK 4月23日报道，大型贸易公司三菱商事已决定向美国IT巨头微软的创始人比尔盖茨设立的基金投资1亿美元（约130亿日元），以发展与脱碳有关的业务。该基金旨在培育四个领域的企业，以实现去碳化，包括有望作为下一代能源利用的氢气，以及低碳排放的飞机替代燃料。三菱商事已经设定了在2030年比2020年减少50%的温室气体排放的目标，并计划投资约2万亿日元来实现这一目标。](https://www3.nhk.or.jp/news/html/20220423/k10013595071000.html)
 
+**【日本银河系农场-阿尔法星球】**
 
-> The American Dream is powerful because it is available to everyone. Don’t stop believing in it!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517934426352664578?ref_src=twsrc%5Etfw)
+素材：文德
 
+作者：帆間知津
 
-
-**参议员比尔·哈格蒂**： 
-拜登总统已发出公开邀请，将于 5 月 23 日跨越我们的南部边境。 我敢肯定，#中共 和贩毒集团正在将毒品生产提高到历史最高水平。 他们在美国杀死我们的孩子，把每个城镇都变成了边境城镇。 
-【译者注：拜登拟于5月23日结束第42条，该条款“允许政府在某些公共卫生紧急情况下阻止个人引入”】
-
-
-
-> President Biden has sent out an open invitation to come cross our southern border on May the 23rd. I'm certain that the CCP and the cartels are ramping up drug production to all-time high levels. They're killing our kids here in America and turning every town into a border town.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 22, 2022](https://twitter.com/SenatorHagerty/status/1517644417368301575?ref_src=twsrc%5Etfw)
-
-
-
-**前国务次卿基思·克拉奇**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 不花一兵一弹就达到他们的地缘政治目的。他们持续性地以科技作为杠杆，让他们的极权主义政权受益。是时候反对这些行动了。这就是我们的“清洁网络”要达成的目标。 
-【转国家利益网文章，应对中国极权主义的答案, 是(采用)值得信赖的技术】
-
-
-
-> China achieves its geopolitical goals without sending an army or firing a shot. They have consistently leveraged [#technology](https://twitter.com/hashtag/technology?src=hash&amp;ref_src=twsrc%5Etfw) to benefit their totalitarian regime. It's time to stand up against these actions. That's what we achieved with the Clean Network. [https://t.co/nBfeYLFVhL](https://t.co/nBfeYLFVhL)
-> — Keith J. Krach (@KeithJKrach) [April 23, 2022](https://twitter.com/KeithJKrach/status/1517858345079742466?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” 
-——罗纳德·里根总统
-
-
-
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-当我担任国务卿时，美国的力量一直在我心中。 我们使世界各国的领导人信服于美国的实力，因此 (那时) 我们也更加安全。 我们需要再做一次！ 以实力求和平，行之有效！
-
-
-
-> When I was Secretary of State, American strength was always on my mind. We convinced world leaders of American power, and we were safer because of it. We need to do it again! Peace through strength works!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517912245774307329?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨**： 
-普京公开测试他的核能力，以表明它们是现代的、有效的并且他可以使用它们。 与此同时，拜登推迟并保持我们的（核武器）测试秘密。 这样的威慑不起作用。保持和平是要展示我们的力量、而不是把它隐藏起来。
-
-
-
-> Putin's openly testing his nuclear capabilities to show they're modern, they work & that he can use them.
-> 
-> Meanwhile, Biden's delaying & keeping our tests a secret. That's not how deterrence works. Peace is kept by demonstrating our strength not hiding it. [pic.twitter.com/mXmNdf4ytV](https://t.co/mXmNdf4ytV)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517936340947644421?ref_src=twsrc%5Etfw)
-
-
-
-
+校对：windfish
 
  
 

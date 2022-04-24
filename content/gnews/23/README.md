@@ -2,28 +2,35 @@
 ---
 
 
-## 樱花时政┃普京将在秋季测试能够打击美国的核导弹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402346/)
+## 美国又将17家中概股公司列入“预摘牌”名单
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2402444/)
 
-撰稿：东京樱花团/asket
+作者：香草山教育部 – Noemi
+![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
+4月22日，媒体综合报道，美国证券交易委员会日前又将知乎、理想汽车、贝壳等17家中概股公司列入“预摘牌”名单，这是今年3月以来第5批被纳入该名单的中概股公司。
 
-克里姆林宫周六（4月23日）表示，俄罗斯计划在秋季前测试能够打击美国的新一代核洲际弹道导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-4.jpg)[图片来源](https://www.zerohedge.com/geopolitical/putin-test-nuclear-missile-capable-striking-us-autumn)
-据路透社报道，这个野性勃勃的目标是由俄罗斯航天局局长德米特里-罗戈津（Dmitry Rogozin）在周三进行首次试射后几天于周六宣布的。西方军事专家说，在部署该导弹之前，还需要进行更多的测试。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-67.png)
 
-萨马特导弹能够携带10个或更多的核弹头（或诱饵），并能够打击美国或欧洲数千英里外的目标。
+据了解，SEC除依据《外国公司问责法》将上述中共企也列入退市暂定名单外，同日还将富途控股、百度、爱奇艺、凯信远达医药以及Nocera五支中概股从暂定名单转入确定名单。而其他确定退市的中企还有百胜中国、和黄医药、微博、百济神州、再鼎医药和盛美半导体。
 
-本周的测试是在因资金和技术问题而推迟多年之后进行的。这次导弹试验为展示俄罗斯军工实力，标志着俄罗斯因乌克兰战争，与美国及其盟国的紧张关系飙升至1962年古巴导弹危机以来的最高水平。
+消息发出后，理想汽车港股一度重跌7.2%，今日首度在港挂牌的知乎，开盘价更是比发行价跌去24.8%，而确定退市的百度，港股亦跌去了超过4%。
 
-罗戈津在接受俄罗斯国家电视台采访时说，这些导弹将被部署在西伯利亚的克拉斯诺亚尔斯克（Krasnoyarsk）地区，距离莫斯科以东约3000公里（1860英里）的一个单位。
+此前，郭文贵先生曾在直播节目中多次指出，中概股将会彻底被踢出美国。同时，香港一旦失去了其在经济领域的国际地位，中共就会动用“烂招”来扰乱美国经济。为此，郭先生呼吁，美国只有对中共当权者及其家族的海外资产予以同俄罗斯寡头一样的经济制裁，才能制止中共对中国人民乃至世界人民财富的进一步掠夺。
 
-他补充说，这些导弹将被储存在与将被取代的苏联时代的沃耶沃达（Voyevoda）导弹相同的地点和发射井中，这将节省 “巨大的资源和时间”。
+参考链接：
 
-信息来源：[Putin To Test Nuclear Missile Capable Of Striking US By Autumn](https://www.zerohedge.com/geopolitical/putin-test-nuclear-missile-capable-striking-us-autumn)
+- [美又将17家中企列入“预摘牌名单”，贝壳、知乎、理想汽车等中企回应！](https://finance.sina.com.cn/tech/2022-04-22/doc-imcwipii5822455.shtml)
+- [美SEC再將17中企列入「退市風險名單」](https://www.epochtimes.com/b5/22/4/22/n13717607.htm)
+- [中概股將被踢出美國](https://gnews.org/zh-hant/2181797/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-122.jpg)
+
+总编：飞虹
+编辑：熊嘟嘟
+审核：Ivy001
+校正/发稿：海阔天空1
+![此图像的alt属性为空；文件名为图标-31.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-31.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

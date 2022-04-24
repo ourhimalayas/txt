@@ -2,46 +2,38 @@
 ---
 
 
-## 英国首相宣布将重新开放英国驻乌克兰基辅大使馆
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2402782/)
+## 俄罗斯恶意网络行动的威胁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2402862/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3033.png)2022年1 月，一名男子走过位于基辅的英国大使馆大楼。（卫报）
-英国《卫报》2022年4月22日报道，在俄罗斯入侵前，英国将其使馆迁出乌克兰首都，两个多月后，鲍里斯·约翰逊(Boris Johnson)宣布，英国将重新开放其基辅大使馆。
+作者：日本东京方舟农场 – Miyali7768(文玉）
+![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
+根据《NEWXMAX》新闻网4月20报道，美国联邦机构和安全盟友周三发布的一份联合公告，警告俄罗斯对基础设施目标的网络威胁可能超出乌克兰边界。
 
-自今年2月大使馆关闭以来，英国在乌克兰保留了一个外交机构，但没有提供亲自领事协助。英国外交部(FCDO)当时说，大使馆只是暂时搬迁，工作人员在乌克兰西部城市利沃夫的一个使馆办公室工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1231277670.jpg)
 
-然而，在俄罗斯军队在乌克兰的抵抗下被击退或从基辅周边地区撤出后，大使馆预计将在下周重新开放。返回的外交官团队将包括英国大使梅琳达·西蒙斯(Melinda Simmons)。
+美国网络安全和基础设施安全局（CISA）在其公告中称，自俄入侵乌克兰以来，政府网络专家发布的俄罗斯对关键基础设施构成的网络威胁的最全面看法， 俄罗斯可能在未来几天和几周内执行“恶意网络行动” 。
 
-这一声明是英国首相在印度举行的新闻发布会上宣布的，也是在他本月早些时候突然造访基辅会见了乌克兰总统泽连斯基之后作出的。
+CISA 主任 Jen Easterly 表示，俄罗斯国家支持和俄罗斯结盟的网络犯罪集团对美国国土的威胁能力。
 
-约翰逊在新德里举行的新闻发布会开始时说：“泽连斯基总统在基辅抵抗俄罗斯军队方面表现出的非凡毅力和成功意味着我可以宣布，很快，下周，我们将重新开放我们在乌克兰首都的大使馆。我想向那些在这一时期一直留在该地区的英国外交官表示敬意。”
+Easterly 强调：“我们知道恶意网络活动是俄罗斯剧本的一部分。我们也知道俄罗斯政府正在探索针对美国关键基础设施进行网络攻击的可行选项。”
 
-十多个欧洲国家以及欧盟已经重新开放了他们在基辅的代表团。其中包括意大利、西班牙和法国，它们于4月16日重新开放。法国大使艾蒂安·德·庞森(Etienne de Poncins)说：“对我和我的同事来说，这显然是一个非常感人的时刻。我们七个星期前离开了基辅。”他说，他们不知道自己是否会回来。
+报告还显示俄罗斯支持的一些网络犯罪组织威胁要开展网络行动，以报复针对俄罗斯或向乌克兰提供物质支持的国家或组织的网络攻击。
 
-捷克政府于4月13日返回，并在推特上宣布：“这是我们为对乌克兰表示支持而采取的诸多措施之一。”泽连斯基赞扬了那些外交团队已经返回乌克兰首都的国家，说他们正在向“侵略者发出一个明确的信号”。美国一直在权衡重新开放其在基辅的大使馆的可能性。
+作为一项行动方案，CISA 及其合作伙伴建议组织和公司 升级安全网络，特别是身份验证和远程桌面协议，加强最终用户意识培训。
 
-简评：
+参考链接：[US Agencies, Cybersecurity Allies Issue Warning About Russian Cyber Attacks](https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/)
 
-面对着的领土面积几十倍于乌克兰的俄罗斯，乌克兰人民的英勇反抗感动了全世界。乌克兰人民不仅仅是为了自己的主权而战，更是代表着全世界的民主国家来对抗以独裁者习近平和普京为代表的独裁政府。乌克兰在反抗俄罗斯侵略战中正取得的节节胜利以及欧洲诸多国家重新开放其在乌克兰的大使馆，都在彰显全世界民主阵营对抗独裁政权的胜利，也预示着乌克兰将取得反侵略战争的最终胜利。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
 
-中国人可以从乌克兰人民英勇的事迹中获得很多启发，中国人也需要勇敢的面对独裁者。上海封控的案例告诫我们，面对独裁政府，如果我们只是一味的妥协、退缩，独裁政府不但不知收敛，反而会更加肆无忌惮，灭绝人性地压迫老百姓。如果精明富裕的上海人都可能因粮食问题而丧失尊严，那其他地方的人民只会更惨。所有这些问题，中国的、世界的，根源都是中国共产党，消灭了中国共产党，所有的问题都会从根本上解决。不灭共，所有发生过的灾难，还会再一遍一遍重复地发生在我们每个人中国人身上，直至蔓延到全世界。所以，灭共不仅应该是中国人的必须，更应该是世界人民的必须。
+编辑/校正/发稿：海阔天空1
 
-新闻链接: [https://www.theguardian.com/world/2022/apr/22/britain-to-reopen-embassy-in-kyiv-boris-johnson-announces](https://www.theguardian.com/world/2022/apr/22/britain-to-reopen-embassy-in-kyiv-boris-johnson-announces)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR:Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
