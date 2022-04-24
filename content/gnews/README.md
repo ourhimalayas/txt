@@ -15,137 +15,137 @@
 
 ---
 
-### [习要连任二十大](/content/gnews/1/README.md)
- ` 加拿大温哥华英里农场`
-
-### [泽连斯基呼吁印度改变对乌克兰的态度](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [什么叫社会压力测试](/content/gnews/3/README.md)
- ` 加拿大温哥华英里农场`
-
-### [共产党的目的](/content/gnews/4/README.md)
- ` 加拿大温哥华英里农场`
-
-### [文·贵天成——文贵先生谈孟建柱（五十二）](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [近日，上海露天帳篷隔離營建在馬路上。](/content/gnews/6/README.md)
+### [4月21日，一位母親帶著8歲孩子，露天通宵等待給孩子看病，結果22日，醫院告知連B超都做不了。這位母親還聽說，有的人在這裡等了4天4夜，仍然得不到救治。](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4/23/2022 一年前的4月23日，文贵爆料中共辽宁号航母的飞行员都来自俄罗斯；整整一年后，一架中共军机在河南坠毁，当地村民发现了掉落在麦田中的俄罗斯飞行员，这100%验证了文贵的爆料](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [习要让你回到文化大革命前面的时代](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
-
-### [新西兰发现首例 XE 变种，但新西兰人需要担心吗？](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [疫苗灾难完全在计划控制之中](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
-
-### [习干的三件事](/content/gnews/11/README.md)
- ` 加拿大温哥华英里农场`
-
-### [4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [崑山中華園區，大多數是外來打工者，被困一個多月，不准出門，也不提供食物。](/content/gnews/14/README.md)
- ` Tokyo Sakura Video Group`
-
-### [美国务卿及防长将首访基辅 泽伦斯基：讨论重型武器交付](/content/gnews/15/README.md)
- ` 蓝莲花农场`
-
-### [上海封城，被迫流落街頭的人連個擋雨的帳篷也沒有；小陽人上海流浪記。](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
-
-### [4/24/2022 银河快讯：岸田首相会见亚太三国总理，确认合作应对乌克兰局势；德国总理肖尔茨将在下周访问日本](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [斯里兰卡政府家族化 经济崩溃民怨沸腾](/content/gnews/18/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [2022年4月24日《樱花简报》：日本《2022年版外交蓝皮书》强烈关切中共军事扩张霸行](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国警告将对中共在所罗门群岛的任何永久驻军作出回应](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [COVID-19疫苗副作用集萃（2022.4.24A)](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [制裁打击俄罗斯经济，尽管普京不这么说](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京](/content/gnews/24/README.md)
- ` 美国政要直译推`
-
-### [评《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》](/content/gnews/25/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月23日早](/content/gnews/26/README.md)
+### [新中國聯邦新聞、NFSC新聞訪談簡報|2022年4月23日晚](/content/gnews/2/README.md)
  ` 纽约香草山MOS01`
 
-### [世界医学协会力挺台湾参加世界卫生大会](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [新中国联邦新闻、NFSC新闻访谈简报|2022年4月23日晚](/content/gnews/3/README.md)
+ ` 纽约香草山MOS01`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共人口清除计划进行时 上海母亲哭诉什么病都看不了](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [截至4.23 俄乌战事汇总](/content/gnews/29/README.md)
+### [4月22日，南昌封城，市民搶物資，超市瘋搶一空。江西南昌市「闢謠」封城消息僅6小時後，就正式宣布封城。](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [习这盘大棋是征服世界](/content/gnews/6/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [樱花时政┃上海封城又酿灾难 一居民楼被铁丝网隔离后起火](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [习要连任二十大](/content/gnews/8/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [泽连斯基呼吁印度改变对乌克兰的态度](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [北京突起疫情，多個小區實施封控。](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/31/README.md)
+### [什么叫社会压力测试](/content/gnews/11/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [共产党的目的](/content/gnews/12/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [文·贵天成——文贵先生谈孟建柱（五十二）](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [短片《四月之聲》遭全網刪除。](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [近日，上海露天帳篷隔離營建在馬路上。](/content/gnews/15/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [习要让你回到文化大革命前面的时代](/content/gnews/16/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [新西兰发现首例 XE 变种，但新西兰人需要担心吗？](/content/gnews/17/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [崑山中華園區，大多數是外來打工者，被困一個多月，不准出門，也不提供食物。](/content/gnews/20/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国务卿及防长将首访基辅 泽伦斯基：讨论重型武器交付](/content/gnews/21/README.md)
+ ` 蓝莲花农场`
+
+### [上海徐匯區獨居老人，物資缺乏，向店鋪求助。](/content/gnews/22/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/24/2022 银河快讯：岸田首相会见亚太三国总理，确认合作应对乌克兰局势；德国总理肖尔茨将在下周访问日本](/content/gnews/23/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [斯里兰卡政府家族化 经济崩溃民怨沸腾](/content/gnews/24/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [2022年4月24日《樱花简报》：日本《2022年版外交蓝皮书》强烈关切中共军事扩张霸行](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国警告将对中共在所罗门群岛的任何永久驻军作出回应](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [COVID-19疫苗副作用集萃（2022.4.24A)](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京](/content/gnews/29/README.md)
+ ` 美国政要直译推`
+
+### [评《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》](/content/gnews/30/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种](/content/gnews/31/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月23日早](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [截至4.23 俄乌战事汇总](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文贵视角4.23：中共实行全国性隔离的原因和目的](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国军管开始了](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [所有部门都负责任地让这个死循环活着 复旦教授斥防疫政策](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/34/README.md)
+### [欧盟为谷歌、Meta 制定新的网上规则以遏制非法内容](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/35/README.md)
+### [2022年3月国际社会对中共的打击制裁汇总与分析](/content/gnews/36/README.md)
  ` 经济小组`
 
-### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/36/README.md)
+### [新中国联邦可能会在乌克兰和波兰建立大使馆](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/37/README.md)
+### [乌克兰战争促使联合国安理会常任理事国的否决权改革](/content/gnews/38/README.md)
  ` 温哥华扬帆农场`
 
-### [2022年4月23日七哥乱聊直播文字版](/content/gnews/38/README.md)
+### [2022年4月23日七哥乱聊直播文字版](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/39/README.md)
+### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/40/README.md)
+### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/41/README.md)
  ` thedawn`
 
-### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/41/README.md)
+### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [美欧日经济周报（4月18日～4月22日）](/content/gnews/42/README.md)
+### [美欧日经济周报（4月18日～4月22日）](/content/gnews/43/README.md)
  ` 经济小组`
 
-### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/43/README.md)
+### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
-
-### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/44/README.md)
- ` 日本东京方舟农场`
 
 ### [中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

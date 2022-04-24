@@ -2,46 +2,42 @@
 ---
 
 
-## “上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （三）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2400400/)
+## COVID-19疫苗副作用集萃（2022.4.24A)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401483/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220331-053824_U12603_M754603_9de3-edited.jpg)图片来源：美联社
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-【接上篇：[“上海的人们受够了”：一位在中共国的哥伦比亚妇女的证词 （二）](https://gnews.org/zh-hans/2400368/)】
+#### 整理/编辑：红红火火
 
-上海的禁闭是如此严格，以至于食物都很难得到
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-84.png)图片来源：雅典娜设计组(614)
 
-完全禁闭使人们无法离开自己的家，甚至无法购买基本的生活用品。“理论上，一些人可以离开他们的家，在城市里走动，但这是非常困难的，”尤里解释说。“官方数据称，有数百万人处于这种状况，但很难核实这一信息。就我个人而言，我还没有看到它。尤里说，他也不知道有哪一个社区是开放的。
 
-**没有食物**
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-自4月初以来，上海居民报告说，由于供应短缺和缺乏送餐人员，他们很难在网上订购食品，甚至限制他们何时下订单。在被禁闭的最初几天，尤里回忆说，她无法让任何人给她送食物。第二周后，她才开始通过社区送货收到一些农产品。“但它们是非常中国化的蔬菜，我们甚至不知道如何烹饪，我甚至不知道这些蔬菜的名字，因为它们在我的文化中不存在，”她沮丧地解释道。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-自本月初以来，中共国政府一直在向完全封闭的社区内的人们赠送食品盒。“这是不可持续的，上海在这种禁闭上花了多少钱？”尤里问道。
+博主:  无语凝耶DC
 
-这名年轻的哥伦比亚妇女将继续留在医院，直到她进行两次PCR测试，并且测试结果为阴性。上周一她做了第一次测试，周二晚上她仍在等待结果。如果测试结果为阴性，她必须等待新一轮的测试，据说是在“几天后”，并希望结果是一致的。
+**帖子原文:**
 
-目前，她已经停止工作，不得不取消所有预定的会议。她忙于阅读，做填字游戏，但她说他在隔离中心度过的每一分钟都像是几个小时。
+一直没怀疑过。但自从去年下半年接种完新冠疫苗至现在心脏一直不适，比如现在的惊醒，胸闷，气短，心跳加速，困却难以入眠，头晕，记忆力衰退等等。去医院检查没发现问题，开了一个月的药也已吃完，未见好转。以前心脏可一直没问题啊。目前身体逐渐变垮，无法控制。也没见有啥报道、说法、办法。
 
-“一开始他们说禁闭将持续五天，现在已经超过两星期了。 什么时候才能结束？”
+#新冠疫苗
 
-**新闻来源：**[‘La gente en Shanghái está harta’: el testimonio de una colombiana en China](https://www.eltiempo.com/mundo/asia/shanghai-testimonio-de-una-colombiana-en-china-666308)
+发布于 2022-04-22
 
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-112.png)图片来源：微博
 
-审核：Aries的星
-校对：阿伯塔
-发布：信心的选择
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
