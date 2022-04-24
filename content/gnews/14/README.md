@@ -2,16 +2,10 @@
 ---
 
 
-## 近日，上海露天帳篷隔離營建在馬路上。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401939/)
+## 4月22日，南昌封城，市民搶物資，超市瘋搶一空。江西南昌市「闢謠」封城消息僅6小時後，就正式宣布封城。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2402018/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 编辑发布：东京樱花团小视频组
 

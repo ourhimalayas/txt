@@ -2,12 +2,25 @@
 ---
 
 
-## 什么叫社会压力测试
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2401972/)
+## 新中国联邦新闻、NFSC新闻访谈简报|2022年4月23日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2402039/)
 
-听写：叮叮         编辑：文宝
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-159.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-23.png)
 
-共产党所有的这个清零政策达到了非常重要的目的：整个经济要闭关锁国，我饿死你美国；第二，所有疫苗灾难死亡人数推给老百姓，社会增加承受能力，你能在家隔离5周6周，未来死人你还管谁？你活着你不会管别人死人的。王岐山的原话说：“文化大革命谁管谁生谁死呀？自己活着最重要！” 他旁边死的人，我们坐那块吃东西，他说：“那臭味熏天，啥也不在乎。” 临走时候把兜里边一个指甲剪还拿走呢，王岐山原话，那小子死了，发现肉都烂了，王岐山摸摸，发现里面有个指甲剪，他说还是进口的，德国产的，拿走了。叫“社会你的整个承受能力”，你要从你的高楼里、豪车里、冰箱里、床上，走到街上寻找垃圾吃，你只想活着。这谁造成的？你造成的，这叫社会压力测试，这要跟美国玩狠的。这一条。第二条大家看到是什么？
+
+校对：Stay文苑
+编辑：Stay文苑
+发稿：Stay文苑
+新闻：[https://gettr.com/post/p16t0x9e84c](https://gettr.com/post/p16t0x9e84c)
+访谈：[https://gettr.com/post/p16tm6g48c6](https://gettr.com/post/p16tm6g48c6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

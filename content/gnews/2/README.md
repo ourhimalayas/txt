@@ -2,21 +2,13 @@
 ---
 
 
-## 4月21日，一位母親帶著8歲孩子，露天通宵等待給孩子看病，結果22日，醫院告知連B超都做不了。這位母親還聽說，有的人在這裡等了4天4夜，仍然得不到救治。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2402041/)
+## 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2402171/)
 
-作者：东京樱花团小视频组
+【乌克兰救援】 04/22/2022 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-
-
-
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

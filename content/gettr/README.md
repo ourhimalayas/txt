@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 3:08 AM (UTC)`
+
+2022-4-23《鸡血王喜币大作战》 第一百七十四集 嘉宾：卡丽熙、Eric
+![img](https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/24/2022 2:38 AM (UTC)`
 
 4/23/2022 Miles Guo: Mr. Guo suggested that fellow fighters should assess their particular situations to decide whether or not going back to their hometowns in rural areas, if possible, staying where they are might be a better choice; there are 60,000 troops stationed in Beijing for a long-term lockdown preparation; the martial law is being implemented in Beijing, Shanghai, Guangzhou and Shenzhen; the CCP is trying to solve its economic and political issues by imposing lockdowns and further martial law by using the virus transmission as the excuse<br/><br/>4/23/2022 文贵直播：郭先生建议战友要跟据实际情况考虑是否回乡下，能不动则不动；北京有六万部队驻扎，目的就是为了进行实施长期隔离；中共在北京、上海、广州、深圳实际是在实行军管；中共的最终目的是要借病毒传染，通过隔离来实行军管，企图来解决其政治、经济问题<br/>
@@ -147,13 +154,6 @@
 
 2022-4-23《避风港》(39) WHO发布肝炎全球警告；疫苗是罪魁祸首
 ![img](https://media.gettr.com/group43/origin/2022/04/23/19/6ab322ae-31eb-a2b9-ff36-6a9441187f64/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 5:44 PM (UTC)`
-
-04.23.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group39/origin/2022/04/23/17/fb68a364-a7f6-1142-b406-3c53a1019f2e/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
