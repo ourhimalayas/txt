@@ -15,20 +15,20 @@
 
 ---
 
-### [2022年4月24日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
+### [【全文字幕】2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](/content/gnews/1/README.md)
+ ` 文贵视频字幕全集`
+
+### [2022年4月24日，全球中共病毒疫情情况汇总](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月23日七哥乱聊直播点评](/content/gnews/2/README.md)
+### [4月23日七哥乱聊直播点评](/content/gnews/3/README.md)
  ` 澳喜特战旅Gnews`
 
-### [意大利再拨两亿欧元支援乌克兰](/content/gnews/3/README.md)
+### [意大利再拨两亿欧元支援乌克兰](/content/gnews/4/README.md)
  ` xiaobaige`
 
-### [【每日聚焦】俄乌战事4月24日简要](/content/gnews/4/README.md)
+### [【每日聚焦】俄乌战事4月24日简要](/content/gnews/5/README.md)
  ` 蓝莲花农场`
-
-### [抵押贷款利率飙升，房价创历史新高，现房销售下滑](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [中共国疫情下的百态众生](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
@@ -90,17 +90,17 @@
 ### [COVID-19疫苗副作用集萃(2022.4.24B)——接种新冠疫苗患寻麻疹](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十五）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [地域知识为绘制南非非正规住区洪水的风险地图起到了很大作用](/content/gnews/27/README.md)
+### [地域知识为绘制南非非正规住区洪水的风险地图起到了很大作用](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [【蓝枫法律】未成年子女如何获得遗产](/content/gnews/28/README.md)
+### [【蓝枫法律】未成年子女如何获得遗产](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [羞怯，不仅强大且被低估：害羞并不是坏事的真正原因](/content/gnews/29/README.md)
+### [羞怯，不仅强大且被低估：害羞并不是坏事的真正原因](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
+
+### [在入侵乌克兰战争中阵亡的部分俄罗斯将军和指挥官们](/content/gnews/29/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [邪恶独裁国家的法律是统治工具❗️](/content/gnews/30/README.md)
  ` mayflowertranslate`
