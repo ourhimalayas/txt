@@ -2,50 +2,33 @@
 ---
 
 
-## 鸽子
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2403149/)
+## 樱花时政┃美国务卿及防长访问乌克兰，中共又坐立不安了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2403310/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
-窗外飞来一只鸽子
-搔首弄姿的不亦乐乎
-可知春天里的他
-是否为了等待她
-梳洗了尾羽
-又打扮了颈羽
-鸽子呀
-飞翔在自由
-呼朋唤友
-咕咕和乐
-在春天里尽情玩乐
-羡煞窗户里的我
+撰稿：日本东京樱花团/盘古明月
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+2022年4月21日
 
-我的窗户
-是牢笼锁具
-清零的政策
-是脖子上无形枷锁
-没吃没喝
-也不敢破门而出
-大白在外面凶神恶煞
-警察在颐指气使
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃美国务卿及防长访问乌克兰，中共又坐立不安了.png)
 
-鸽子啊
-你何时再到我窗户
-传送一点点
-春天的气息
-缓解一丝丝
-我的窒息
+当地时间4月23日，乌克兰总统泽连斯基对媒体表示，美国国务卿布林肯和国防部长奥斯汀将于24日到访乌克兰。美乌双方将讨论加快交付武器速度等问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
+4月22日，五角大楼发言人柯比表示，国防部长奥斯汀将于下周访问德国，就乌克兰的未来需求举行会议。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+中共在俄乌战争开始至今，一直在扮演着幕后操纵者的角色，从在国内通过舆论支持俄罗斯的侵略行径，到给俄罗斯源源不断的输送战略物资，无一不暴露出它反人类、是战争从犯、邪恶势力的嘴脸，此次，以美国为首的西方正义力量又一次对乌克兰的支持和援助，将再次让邪恶中共和俄罗斯坐立不安。
 
+信息来源：
+[美国务卿及美防长将于24日访问乌克兰](http://www.xhby.net/index/202204/t20220424_7516120.shtml)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

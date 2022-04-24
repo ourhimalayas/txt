@@ -2,97 +2,67 @@
 ---
 
 
-## 众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2401237/)
+## 新西兰发现首例 XE 变种，但新西兰人需要担心吗？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2401904/)
 
-**众议员迈克·沃尔茨**： 
-尽管(对俄)实施了制裁，但看到有漏洞被人利用仍然令人沮丧。 欧洲仍在从俄罗斯购买数千亿立方米的天然气，为普京的战争机器提供资金。 美国和欧洲应该采取更多措施来阻止普京。 【附沃尔茨议员接受采访视频】
+翻译：sherryok (酷翻组)
+采集：玫瑰新闻组
 
-
-
-> It's frustrating to see the loopholes being taken despite the sanctions in place.
-> 
-> Hundreds of billions of cubic-meters of gas are still being bought by Europe from Russia, financing Putin's war machine. There's a lot more the U.S. and Europe should be doing to stop Putin. [pic.twitter.com/ISf7ivTBXA](https://t.co/ISf7ivTBXA)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517930049827188737?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院**： 
-拜登总统[@POTUS](https://twitter.com/POTUS) 宣布了一项名为“为乌克兰团结起来”的新计划，以使寻求避难的乌克兰人能够直接从欧洲来到美国。 “这个程序会很快。它会被精简顺畅。” 【附拜登讲话视频，将开通快速通道接受10万乌克兰难民】
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announces a new program, “Unite for Ukraine,” to enable Ukrainians seeking refuge to come directly from Europe to the United States. "This program will be fast. It will be streamlined." [pic.twitter.com/IJl844lCIE](https://t.co/IJl844lCIE)
-> — Department of State (@StateDept) [April 23, 2022](https://twitter.com/StateDept/status/1517873428098740224?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥**： 
-美国梦之所以强大，是因为每个人都可得到它。不要停止相信它！
-
-
-
-> The American Dream is powerful because it is available to everyone. Don’t stop believing in it!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517934426352664578?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂**： 
-拜登总统已发出公开邀请，将于 5 月 23 日跨越我们的南部边境。 我敢肯定，#中共 和贩毒集团正在将毒品生产提高到历史最高水平。 他们在美国杀死我们的孩子，把每个城镇都变成了边境城镇。 
-【译者注：拜登拟于5月23日结束第42条，该条款“允许政府在某些公共卫生紧急情况下阻止个人引入”】
-
-
-
-> President Biden has sent out an open invitation to come cross our southern border on May the 23rd. I'm certain that the CCP and the cartels are ramping up drug production to all-time high levels. They're killing our kids here in America and turning every town into a border town.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 22, 2022](https://twitter.com/SenatorHagerty/status/1517644417368301575?ref_src=twsrc%5Etfw)
-
-
-
-**前国务次卿基思·克拉奇**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 不花一兵一弹就达到他们的地缘政治目的。他们持续性地以科技作为杠杆，让他们的极权主义政权受益。是时候反对这些行动了。这就是我们的“清洁网络”要达成的目标。 
-【转国家利益网文章，应对中国极权主义的答案, 是(采用)值得信赖的技术】
-
-
-
-> China achieves its geopolitical goals without sending an army or firing a shot. They have consistently leveraged [#technology](https://twitter.com/hashtag/technology?src=hash&amp;ref_src=twsrc%5Etfw) to benefit their totalitarian regime. It's time to stand up against these actions. That's what we achieved with the Clean Network. [https://t.co/nBfeYLFVhL](https://t.co/nBfeYLFVhL)
-> — Keith J. Krach (@KeithJKrach) [April 23, 2022](https://twitter.com/KeithJKrach/status/1517858345079742466?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” 
-——罗纳德·里根总统
-
-
-
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-当我担任国务卿时，美国的力量一直在我心中。 我们使世界各国的领导人信服于美国的实力，因此 (那时) 我们也更加安全。 我们需要再做一次！ 以实力求和平，行之有效！
-
-
-
-> When I was Secretary of State, American strength was always on my mind. We convinced world leaders of American power, and we were safer because of it. We need to do it again! Peace through strength works!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517912245774307329?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨**： 
-普京公开测试他的核能力，以表明它们是现代的、有效的并且他可以使用它们。 与此同时，拜登推迟并保持我们的（核武器）测试秘密。 这样的威慑不起作用。保持和平是要展示我们的力量、而不是把它隐藏起来。
-
-
-
-> Putin's openly testing his nuclear capabilities to show they're modern, they work & that he can use them.
-> 
-> Meanwhile, Biden's delaying & keeping our tests a secret. That's not how deterrence works. Peace is kept by demonstrating our strength not hiding it. [pic.twitter.com/mXmNdf4ytV](https://t.co/mXmNdf4ytV)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517936340947644421?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
 
 
 
+
+
+
+![查看來源圖片](https://th.bing.com/th/id/OIP.Q7ulwsF6xfTIeVeXctM9uQHaE6?pid=ImgDet&amp;rs=1)
+
+首例奥米克戎 的 XE 变种在新西兰被发现，但这是否意味着我们必须重新调整疫情的交通灯设置，还是在与 奥米克戎的斗争中照常营业？
+
+新西兰卫生部周六（4月23日）报告说，感染者从海外前往新西兰，于 4 月 19 日抵达。他们于 4 月 20 日接受了检测，随后全基因组测序证实了 XE 变体。
+
+他们在家隔离。
+
+新变种 XE 于 1 月 19 日在英国首次发现，[澳大利亚一周前记录了第一例病例](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-australia-records-its-first-case-of-new-covid-19-variant-xe.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，从那时起，XE 到达新西兰只是时间问题。
+
+[布卢姆菲尔德说新变种值得关注，警告说如果它到达新西兰可能需要更严格的措施](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+[XE 是由另外两种菌株 BA.1（奥米克戎的原始菌株）和 BA.2 重组而成。](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-new-covid-variant-xe-potentially-10-percent-more-transmissible-than-omicron.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+根据迄今为止汇编的有限数据，早期估计表明新菌株的传播性比 BA.2 高约 10%，但需要更多数据来证实这一点。
+
+“在发现其不同的传播和疾病特征（包括严重程度）之前，XE 仍然属于奥米可戎的一个 变体”[世界卫生组织（WHO）3 月 29 日的一份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.who.int/publications/m/item/weekly-epidemiological-update-on-covid-19---29-march-2022)说。
+
+英国卫生当局在 3 月下旬表示，“没有足够的证据得出关于这种变体的增长优势或其他特性的结论。”
+
+英国卫生安全局首席医学顾问苏珊霍普金斯说：“这种特殊的重组 XE 显示出可变的增长率，我们还不能确定它是否具有真正的增长优势。”
+
+世卫组织表示将继续密切监测和评估与重组变体相关的公共卫生风险，并将在获得证据后提供进一步的更新。
+
+卫生部周六表示，该变种的出现并不意外，我们目前的健康系统应该足以应对任何爆发。.
+
+“在现阶段，管理其他 Omicron 变体的公共卫生设置被评估为适合管理 XE，不需要进行任何更改。
+
+“迄今为止，没有证据表明 XE 会导致比其他 Omicron 谱系更严重的疾病，并指出需要数周或数月才能确定每个新变体的严重程度。”
+
+即将卸任的新西兰卫生总干事阿什利·布鲁姆菲尔德本月早些时候警告说，[需要监测新的变种。](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+“这当然是我们需要密切关注的事情，关于 XE 的情况之一是它实际上是两个 Omicron 子变体 BA.1 和 BA.2 的组合，” 布鲁姆菲尔德 在 四月份的早新闻 上告诉记者。
+
+“这些病毒不断交换遗传物质。因此，XE 变体的传染性似乎比我们目前在全国广泛传播的 BA.2 变体高 10% 左右。”
+
+**疫苗（新冠疫苗）
+中共病毒（新冠病毒Covid-19）**
+
+**我们不反疫苗，只针对假疫苗
+我们不反科学，只针对反人类**
+
+新闻链接：
+[https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html](https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

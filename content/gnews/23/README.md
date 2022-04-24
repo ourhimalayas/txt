@@ -2,34 +2,45 @@
 ---
 
 
-## 中共一战机坠毁 逃生飞行员中现一名外籍军人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2402872/)
+## 俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2402923/)
 
-**撰稿：日本东京方舟农场  子辰**
+**港台前线 zhong｜2022-4-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+爱莎尼亚、拉脱维亚、立陶宛总理22日联合声明称，支持乌克兰政府及勇敢的人民、乌克兰独立及主权、领土的完整，并提及“乌克兰前线正在为欧洲的共同价值而战”，未来三国将继续援乌，提供财政、军事、人道主义援助，**重型武器对于乌克蘭戰勝、維護歐洲和平至關重要**。
 
-4月23日，中共军方一架战斗机传出坠毁的消息。据相关视频显示，两名飞行员跳伞逃生，除一名为中国籍飞行员外，另一名为外籍人士。
+此外，日媒报导称拉脱维亚总理于联合记者会上表示“将共同努力清除俄罗斯天然气及其政治影响力”。其实，波罗的海三国早在西方各国大动作对俄实施能源制裁前，便率先宣布拒用俄罗斯天然气。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-54.jpg)（图片来自网络视频截图）
+## 美国务卿布林肯、国部长奥斯汀将于24日访问基辅
 
-据推特消息，4月23日，一架战斗机坠落在河南省商丘虞城县张集镇曹楼村，两名飞行员跳机逃生，其中一名是外籍人士，无死亡。
+（当地时间）23日乌克兰总统泽连斯基（Volodymyr Zelenskiy）透漏，美国务卿及国防部长将于24日前往基辅与其会晤，讨论美国向乌克兰提供那些武器抵御俄罗斯侵略。此前，美国总统拜登宣布对乌增加8亿美元的军援。
 
-另据网友发布的视频显示，飞机坠毁在附近麦田里，田地被大火烧成焦土。现场一片狼藉，战机已摔成碎片，散落在麦田里。机上两名飞行员跳伞成功，其中一名飞行员疑为俄罗斯军人。
+又22日波罗的海三国联合宣言中强调“重型武器”对乌克兰抵御俄罗斯、维护欧洲和平至关重要，紧接着美国高级官员便访问基辅，讨论军事援助细节。郭文贵曾于直播分析，他认为欧洲未来的核心将会是乌克兰等东欧。
 
-视频中，有村民询问躺卧在麦田的两人，“你是中国解放军吗？”一名飞行员回答“是”，并挥手拍摄者“不要拍照”。
+## 声明称：俄侵略威胁整个欧洲
 
-网上视频曝出后不久，就传出消息称，坠毁战机为L15猎鹰教练机，该军机坠毁地点在安徽省霍山县境内。
+三国联合声明提到，俄侵略对大西洋安全构成威胁，北约系属防御性联盟，为欧-大西洋的和平、安全、稳定而努力，波罗的海三国有计划在马德里即将举行的北约峰会，讨论下一阶段的北约战略概念，加强北约（东翼）面对长期威摄的防御，为避免任何侵略的可能，波罗的海国家建立现代化的前沿防御能力，陆海空必须拥有更大规模的现代化军力部署，波罗的海三国将会增加国防预算迅速实现此共同项目。
 
-据悉，L15猎鹰（教练-10，JL-10），是中共国中航二集团下南昌洪都航空设计的高级教练机，由俄罗斯雅科夫列夫设计局公司（Yakovlev）担任顾问协助开发，L15猎鹰每架成本为一亿元人民币左右，折合1,500万美元。
+## 波罗的海三国现代化军力含“法律、网路、资讯、情报、经济”面向
 
-事件一经曝光，旅居美国的原中共海军司令部参谋姚诚在推特表示，他说自己在中共国航空兵呆过二十多年，从没听说过外国飞行员用这种教练机带飞中共飞行员，除非是中共购买外国飞机才会在新机种上带飞。
+联合声明提到，波罗的海三国重视“混合威胁”，如网路攻击、资讯操弄、外国干涉、情报渗透、法律及经济战争等。
 
-据姚诚说，他认为中共反应很快，在视频出来不久就抛出了安徽一架L15教练机坠毁的消息，说是也有一名外籍飞行员，企图转移视线，混淆是非。从视频里可以看出这架飞机就是摔在河南商丘，从残骸和飞行员所着的装备看毫无疑问是一架超音速战斗机，与教练机差的十万八千里。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/23/n13718683.htm](https://www.epochtimes.com/gb/22/4/23/n13718683.htm)
 
-总编：老孙
-校对发布：Linda
+> Russian aggression challenges Euro-Atlantic security. 
+> 
+> With [@krisjaniskarins](https://twitter.com/krisjaniskarins?ref_src=twsrc%5Etfw) and [@IngridaSimonyte](https://twitter.com/IngridaSimonyte?ref_src=twsrc%5Etfw) we put our common approach in writing – how to best strengthen the security of our region & what decisions are needed at [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Madrid summit.
+> 
+> Our statement [https://t.co/M7WeOJ8FUb](https://t.co/M7WeOJ8FUb) [pic.twitter.com/J3JYCUUiDj](https://t.co/J3JYCUUiDj)
+> — Kaja Kallas (@kajakallas) [April 22, 2022](https://twitter.com/kajakallas/status/1517507268136292352?ref_src=twsrc%5Etfw)
+
+
+
+来源｜[YAHOO](https://news.yahoo.co.jp/articles/e4d6953d7cf4738ef006e133cee462e77a322f8d)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
 
  
 

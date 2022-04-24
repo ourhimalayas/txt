@@ -2,45 +2,59 @@
 ---
 
 
-## 俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2402923/)
+## 在马里乌波尔钢铁厂，孩子乞求着“我想看到太阳 ”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2402970/)
 
-**港台前线 zhong｜2022-4-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-爱莎尼亚、拉脱维亚、立陶宛总理22日联合声明称，支持乌克兰政府及勇敢的人民、乌克兰独立及主权、领土的完整，并提及“乌克兰前线正在为欧洲的共同价值而战”，未来三国将继续援乌，提供财政、军事、人道主义援助，**重型武器对于乌克蘭戰勝、維護歐洲和平至關重要**。
-
-此外，日媒报导称拉脱维亚总理于联合记者会上表示“将共同努力清除俄罗斯天然气及其政治影响力”。其实，波罗的海三国早在西方各国大动作对俄实施能源制裁前，便率先宣布拒用俄罗斯天然气。
-
-## 美国务卿布林肯、国部长奥斯汀将于24日访问基辅
-
-（当地时间）23日乌克兰总统泽连斯基（Volodymyr Zelenskiy）透漏，美国务卿及国防部长将于24日前往基辅与其会晤，讨论美国向乌克兰提供那些武器抵御俄罗斯侵略。此前，美国总统拜登宣布对乌增加8亿美元的军援。
-
-又22日波罗的海三国联合宣言中强调“重型武器”对乌克兰抵御俄罗斯、维护欧洲和平至关重要，紧接着美国高级官员便访问基辅，讨论军事援助细节。郭文贵曾于直播分析，他认为欧洲未来的核心将会是乌克兰等东欧。
-
-## 声明称：俄侵略威胁整个欧洲
-
-三国联合声明提到，俄侵略对大西洋安全构成威胁，北约系属防御性联盟，为欧-大西洋的和平、安全、稳定而努力，波罗的海三国有计划在马德里即将举行的北约峰会，讨论下一阶段的北约战略概念，加强北约（东翼）面对长期威摄的防御，为避免任何侵略的可能，波罗的海国家建立现代化的前沿防御能力，陆海空必须拥有更大规模的现代化军力部署，波罗的海三国将会增加国防预算迅速实现此共同项目。
-
-## 波罗的海三国现代化军力含“法律、网路、资讯、情报、经济”面向
-
-联合声明提到，波罗的海三国重视“混合威胁”，如网路攻击、资讯操弄、外国干涉、情报渗透、法律及经济战争等。
+编译： peacelv
 
 
 
-> Russian aggression challenges Euro-Atlantic security. 
-> 
-> With [@krisjaniskarins](https://twitter.com/krisjaniskarins?ref_src=twsrc%5Etfw) and [@IngridaSimonyte](https://twitter.com/IngridaSimonyte?ref_src=twsrc%5Etfw) we put our common approach in writing – how to best strengthen the security of our region & what decisions are needed at [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Madrid summit.
-> 
-> Our statement [https://t.co/M7WeOJ8FUb](https://t.co/M7WeOJ8FUb) [pic.twitter.com/J3JYCUUiDj](https://t.co/J3JYCUUiDj)
-> — Kaja Kallas (@kajakallas) [April 22, 2022](https://twitter.com/kajakallas/status/1517507268136292352?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
 
 
-来源｜[YAHOO](https://news.yahoo.co.jp/articles/e4d6953d7cf4738ef006e133cee462e77a322f8d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-520.jpg)在2022年4月18日发布的视频截图中，一名妇女抱着一个孩子走过，他们在俄罗斯入侵乌克兰时在一个掩体中避难，乌克兰的亚速营称该掩体位于乌克兰马里乌波尔的亚速钢厂。2022年4月18日发布的视频。亚速营/通过REUTERS发布消息
+
+4月23日(路透社)－在马里乌波尔一个巨大的钢铁厂内避难的妇女和儿童在周六发布的一段视频中说，他们对于能出去感到绝望，正在耗尽食物。
+
+视频由亚速营发布，是由亲乌克兰的民族主义在2014年成立的，后来被纳入乌克兰国民警卫队的一个团，它在马里乌波尔的防卫中发挥了突出作用。
+
+路透社无法独立核实视频是在哪里还是什么时候拍摄的。在视频中讲话的一些人提到该日期是4月21日。
+
+视频显示士兵们正在为该营所说正在Azovstal建筑群中避难的平民带来食物。
+
+一个抱着幼儿的妇女说钢铁厂里的人已经耗尽了食物：“我们真的想回家，”她说。
+
+总统顾问奥列克西-阿雷斯托维奇（Oleksiy Arestovych）周六表示，俄罗斯军队正在用空袭打击Azovstal建筑群，尽管莫斯科已经说了这周它将封锁钢铁厂而不是试图夺取它。超过1000个平民和保卫工厂的军队在工厂里，根据乌克兰当局称。
+
+一个不知名的男孩视频中说他急切地想离开，在钢铁厂呆两个月后。
+
+他说，“我想见到太阳因为这里昏暗，不像外面。当我们的房子重建后，我们可以生活在和平中。让乌克兰赢，因为乌克兰是我们的故乡。”
+
+视频显示妇女穿着Azovstal设计的制服，路透社核实了这一点，与文件图片相符。
+
+一个妇女说她已经自从2月27号就被困在钢铁厂，在俄罗斯发动它对乌克兰的侵入数天后。
+
+她说，“我们是工人的亲戚。但这里似乎是当时我们来这里最安全的地方，当时我们的房子遭到了炮击，变得无法居住。”
+
+俄罗斯军队自从战争的早些时候一直围攻和轰炸马里乌波尔，使这个通常有超过40万人居住的城市变成废墟。马里乌波尔市长的一名助手说，周六一次新的尝试疏散平民失败了。
+
+新闻来源：[“I want to see the sun” begs child in Mariupol steel works | Reuters](https://www.reuters.com/world/europe/i-want-see-sun-begs-child-mariupol-steel-works-2022-04-23/)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+素材： peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 
