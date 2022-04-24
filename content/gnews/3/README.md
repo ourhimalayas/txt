@@ -2,45 +2,36 @@
 ---
 
 
-## 俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2402923/)
+## 蹊跷：台铁公司化争议让台湾铁路五一全面停驶
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2403000/)
 
-**港台前线 zhong｜2022-4-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-爱莎尼亚、拉脱维亚、立陶宛总理22日联合声明称，支持乌克兰政府及勇敢的人民、乌克兰独立及主权、领土的完整，并提及“乌克兰前线正在为欧洲的共同价值而战”，未来三国将继续援乌，提供财政、军事、人道主义援助，**重型武器对于乌克蘭戰勝、維護歐洲和平至關重要**。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-此外，日媒报导称拉脱维亚总理于联合记者会上表示“将共同努力清除俄罗斯天然气及其政治影响力”。其实，波罗的海三国早在西方各国大动作对俄实施能源制裁前，便率先宣布拒用俄罗斯天然气。
+#### 整理：li yan li
+编辑：文泓
 
-## 美国务卿布林肯、国部长奥斯汀将于24日访问基辅
-
-（当地时间）23日乌克兰总统泽连斯基（Volodymyr Zelenskiy）透漏，美国务卿及国防部长将于24日前往基辅与其会晤，讨论美国向乌克兰提供那些武器抵御俄罗斯侵略。此前，美国总统拜登宣布对乌增加8亿美元的军援。
-
-又22日波罗的海三国联合宣言中强调“重型武器”对乌克兰抵御俄罗斯、维护欧洲和平至关重要，紧接着美国高级官员便访问基辅，讨论军事援助细节。郭文贵曾于直播分析，他认为欧洲未来的核心将会是乌克兰等东欧。
-
-## 声明称：俄侵略威胁整个欧洲
-
-三国联合声明提到，俄侵略对大西洋安全构成威胁，北约系属防御性联盟，为欧-大西洋的和平、安全、稳定而努力，波罗的海三国有计划在马德里即将举行的北约峰会，讨论下一阶段的北约战略概念，加强北约（东翼）面对长期威摄的防御，为避免任何侵略的可能，波罗的海国家建立现代化的前沿防御能力，陆海空必须拥有更大规模的现代化军力部署，波罗的海三国将会增加国防预算迅速实现此共同项目。
-
-## 波罗的海三国现代化军力含“法律、网路、资讯、情报、经济”面向
-
-联合声明提到，波罗的海三国重视“混合威胁”，如网路攻击、资讯操弄、外国干涉、情报渗透、法律及经济战争等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-117.png)图片来源：Taiwan News & 雅典娜设计组
 
 
+台湾铁路在历经普悠玛号、太鲁阁号等重大列车事故后，从行政院、交通部到台铁，都面临庞大的改革压力，“台铁公司化”日趋摆上议事日程。
 
-> Russian aggression challenges Euro-Atlantic security. 
-> 
-> With [@krisjaniskarins](https://twitter.com/krisjaniskarins?ref_src=twsrc%5Etfw) and [@IngridaSimonyte](https://twitter.com/IngridaSimonyte?ref_src=twsrc%5Etfw) we put our common approach in writing – how to best strengthen the security of our region & what decisions are needed at [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Madrid summit.
-> 
-> Our statement [https://t.co/M7WeOJ8FUb](https://t.co/M7WeOJ8FUb) [pic.twitter.com/J3JYCUUiDj](https://t.co/J3JYCUUiDj)
-> — Kaja Kallas (@kajakallas) [April 22, 2022](https://twitter.com/kajakallas/status/1517507268136292352?ref_src=twsrc%5Etfw)
+台湾交通部就此制定“台铁公司2024年1月挂牌（进行公司化运作）”的目标，在还没有和工会完成协商之前，于2月21日将草案送进立法院审议，引发工会高度不满。发动工会成员在原本应放假的五一劳动节当天“不加班”，合法休假，获得广泛响应。
 
+据估计，5月1日当天，台铁运务和售票窗口都只会有一半人力上班，列车长只有三成，至于司机就更少。台铁局长表示，这就是五一当天列车全面停开的原因，因为派不出司机员，售票窗口也可能出现没人卖票的情形。
 
+由于此前交通部曾强硬指出，为了尊重工会意见，导致公司化的草案19年来都走不出交通部，这次直接把草案送进立法院交通委员会审议通过，劳资双方形成对立。现在台铁企业工会决定拉长战线，不仅五一劳动节要依法休假，今年端午节、中秋节和双十国庆等重要节日运输，都打算以“不加班”做为回应。
 
-来源｜[YAHOO](https://news.yahoo.co.jp/articles/e4d6953d7cf4738ef006e133cee462e77a322f8d)
+台铁估计，工会这次的抵制行动，至少将影响35.8万人次的旅客。
 
-* * *
+新闻链接：[九成司机罢工 台铁5/1全面停驶](https://www.epochtimes.com/gb/22/4/22/n13717822.htm)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

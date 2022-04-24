@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 7:10 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group8/origin/2022/04/24/07/ea04df94-d453-dd6a-5658-b74cf9113a15/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/24/2022 4:58 AM (UTC)`
 
 04.24.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -147,13 +154,6 @@
 
 “麦田里的俄爹...” 飞飞秀救援快报 2022-04-23<br/>For English：gettr.com/streaming/p16sxf58827
 ![img](https://media.gettr.com/group8/origin/2022/04/23/22/f408fafc-23a1-4cfe-de8b-daa8f1b2e665/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 8:45 PM (UTC)`
-
-2022.04.23  新中国联邦 | 喜健康   如斯医生专访
-![img](https://media.gettr.com/group45/origin/2022/04/18/20/93a747d6-61b9-c02d-36b0-79f6aa417f55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
