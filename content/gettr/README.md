@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 1:07 AM (UTC)`
+
+2022.04.23 晚  新中国联邦 | 新闻访谈   战斗机河南坠毁，惊现外国飞行员；封城前兆：多地开始大规模核酸检测
+![img](https://media.gettr.com/group6/origin/2022/04/24/01/c261b27d-4772-c8f0-f716-415254185c6f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/24/2022 12:39 AM (UTC)`
 
 4/23/2022: On April 23, 2021,  Miles revealed that the pilots on the CCP’s aircraft carrier Liaoning were all from Russia. Exactly one year later, a CCP military plane crashed in Henan Province, and local villagers found a Russian pilot in the wheat field along with a Chinese pilot. This proves that the relevant information Miles uncovered in 2021 is 100% true!<br/><br/>4/23/2022 一年前的4月23日，文贵爆料中共辽宁号航母的飞行员都来自俄罗斯；整整一年后，一架中共军机在河南坠毁，当地村民发现了掉落在麦田中的俄罗斯飞行员，这100%验证了文贵的爆料！<br/><br/>
@@ -147,12 +154,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 新中国联邦｜真人真事 第50期  华盛顿DC农场 Longwood大根<br/>同传English: https://gettr.com/streaming/p16rd9t2713
 ![img](https://media.gettr.com/group20/origin/2022/04/23/13/75a7f04c-6c8a-e769-09e5-9b5eecfecd0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 1:41 PM (UTC)`
-
-04/23/2022 on the 5th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 9 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月23号，《铁锁梦》MV在全球上线第五天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>9国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2398694/
 
 ---
 
