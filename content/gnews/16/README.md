@@ -2,70 +2,39 @@
 ---
 
 
-## COVID疫苗注射正在杀人吗？（3/4）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2403255/)
+## 上海封城｜持续封控打乱国际运输 卫星图显示上海港货物堆积如山
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2403328/)
 
-翻译： Jenny Ball
+**图/文｜CP **
+**发布时间｜24/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城｜持續封控打亂國際運輸-衛星圖顯示上海港貨物堆積如山-.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+中共以防疫之名封锁上海已维持近一个月，综合外媒报道，虽然近期上海开始陆续复工，但严格防疫政策导致当地运输依然停摆，其中卡车运输受影响最大，货运司机无法畅通运行，导致许多等待装货的空集装箱堆积码头。相关程式显示，截至4月21日，世界上最繁忙的上海集装箱港口—“上海港”目前货物堆积如山。
 
+中国欧盟商会估计，自封控以来，中国可用的货车数量已下跌40%。加上各地防疫政策不一、货车通行需一连串行政审批，同时需要出示48小时核酸检测结果，令许多司机即使获逾双倍报酬，也不愿前往上海。航运承运人和行业顾问称，虽然上海港仍在运营，但能够向港口运送货物的卡车短缺，意味着集装箱运力闲置情况愈发严重。
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/61554090_303-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/phpbr49py.jpeg)
 
-接上篇：[COVID疫苗注射正在杀人吗？（2/4）](https://gnews.org/zh-hans/2403127/)
+相关程式显示，截至4月21日，世界上最繁忙的上海集装箱港口—“上海港”目前货物堆积如山
+据美国供应链数据公司FourKites Inc.数据显示，截至上周一（18日），一个装有进口货物的集装箱在上海港等待作业的平均时间为8.3天，是封控前的两倍还多。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-214.jpg)
+日本物流公司日邮物流（Yusen Logistics）亦透露指，公司过去两周货运量下降，正常情况每日要打包8,000立方米货物，但过去一周末打包量仅为往常6%，有几天甚至没货物运出，公司预计，出口量到5月下旬会大幅下降。
 
-**12 ** **至 ** **17 ** **岁儿童因 ** **COVID ** **注射引起的心肌炎住院的可能性是因 ** **COVID ** **感染住院的五倍。**
+针对该情况，丹麦货运分析公司Sea Intelligence谘询服务副总裁Bjorn Vang认为，即使严格封控措施会在5月初解除，但由于工厂希望弥补生产停滞带来的影响，货车和船舶在接下来几周会被预定一空，如果是这样，国际物流至少要到7月才能恢复正常。
 
-可悲的是，孩子们也没有从注射中获益，所以，这对他们来说都是风险，没有好处。麦卡洛指出，没有记录在案的学校大爆发，也没有儿童教师的传播。他估计 80% 的学龄儿童已经免疫，这可以解释这一点。
+德国联邦工业联合会（BDI）主席鲁思沃亦忧心，受上海防疫影响，德国工业界未来几周的生产流程会被打乱，尤其是那些以来原材料进口或建筑部件交付的行业。
 
-而且，我们不要忘记，如果您注射了 COVID 疫苗，您有 100% 的机会面临与该疫苗相关的所有风险。另一方面，如果您拒绝注射，您感染 COVID-19 的可能性不是 100%，更不用说死于它了。您接触 SARS-CoV-2 并生病的几率不到 1%。
+他指出，受俄乌战事、新冠疫情影响，企业和客户已感受到国际物流动荡的影响，运输价格上涨了一倍多。他续指，中共对上海的封锁时间越长，经济后果就越严重，无论对全球经济亦或是对德国出口业。他强调，海运供应链的问题，短期内还看不到任何缓解趋势。
 
-**COVID-19 ** **与疫苗接种无关**
-
-正如麦卡洛所指出的，现在接种率最高的地区的 COVID 发病率高于疫苗推出前的水平。这也告诉我们，疫苗没有作用，不值得冒险。
-
-他引用了 2021 年 9 月 30 日发表在《欧洲流行病学杂志》上的研究，该研究发现， COVID-19 病例与全球 68 个国家和美国 2,947 个县的疫苗接种水平之间没有关系。如果有的话，就是疫苗接种率高的地区COVID-19 的发病率略高。
-
-例如，冰岛和葡萄牙超过 75% 的人口完全接种了疫苗，每 100 万人中的 COVID-19 病例比只有约 10% 的人口完全接种了疫苗的越南和南非多。美国各县的数据也显示了同样的情况。每 100,000 人中的新 COVID-19 病例“基本相似”，无论该州完全接种疫苗的人口比例如何。
-
-该研究甚至考虑了完全接种疫苗的人可能会出现一个月的滞后时间，因为，据说在最后一剂疫苗后需要两周时间才能发生“完全免疫”。
-
-严重 COVID 感染的住院率也有所上升，从 2021 年 1 月的 0.01% 上升到 2021 年 5 月的 9%，同时 COVID 死亡率从 0% 上升到 15.1%。简而言之，注射的人越多，一切都变得更糟，而不是更好。
-
-允许建立自然免疫力确实是唯一合理的前进方式。但话又说回来，COVID 疫苗不是为了保护公众健康，而是通过疫苗护照引入社会经济控制系统，这是麦卡洛在这次采访中没有讨论的问题。如果从医学的角度来看，没有任何意义。只有当你看到它的本质，它是一个控制系统时，它才有意义。
-
-**自然免疫比疫苗免疫** **“** **好很多** **”**
-
-根据麦卡洛的说法，“自然免疫比疫苗免疫要好得多”，研究一次又一次地证明了这一点。自然免疫优于疫苗诱导免疫的原因是：病毒含有五种不同的蛋白质。
-
-COVID 疫苗仅诱导针对其中一种蛋白质的抗体，即刺突蛋白，而不是 T 细胞免疫。 当你感染了整个病毒时，你会产生针对病毒所有部分的抗体，以及记忆 T 细胞。
-
-这也意味着自然免疫可以更好地防止变种，因为它可以识别病毒的多个部分。如果刺突蛋白发生显着变化，就像 Delta 变体一样，疫苗诱导的免疫可以被规避。而自然免疫的其他蛋白质仍然没有识别变异并攻击。
-
-以下是研究与 SARS-CoV-2 感染有关的自然免疫的学术出版物样本。
-
-请阅读文章最后部分，并解读早期治疗的作用。
-
-接下篇：[COVID疫苗注射正在杀人吗？（4/4）](https://gnews.org/zh-hans/2403357/)
-
-新闻来源：[the covid shots are killing people？](https://www.theepochtimes.com/the-covid-shots-are-killing-people_4411307.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-04-22&amp;utm_medium=email&amp;est=v%2Fmh3wGbziRYI2REwUQkMQO5JskQCHmYtpdcRqbpEJYVwSVe69TeN5kuM3sLiGp5RneFtQ%3D%3D)
+來源｜[fortune](https://fortune.com/2022/04/21/china-covid-lockdown-shanghai-port-supply-chain-backlog-container-ships/)、[seatrade](https://www.seatrade-maritime.com/containers/shanghai-lockdown-container-line-blank-sailings-remain-normal)、[NYtimes](https://www.nytimes.com/2022/04/08/business/china-lockdowns-supply-chain.html)
 
 * * *
 
-审核：文乐
-校对：小东
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
