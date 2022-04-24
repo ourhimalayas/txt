@@ -2,42 +2,33 @@
 ---
 
 
-## 有声|灭共即为消灭中共体制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407184/)
+## 有声|美国又将17家中概股公司列入“预摘牌”名单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407217/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-而在4月19日的大直播中，郭文贵先生强调，灭共的核心是要消灭中共的独裁体制，而这一体制内的绝大多数成员其实都是好人。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/b6378602-0c56-4435-b59f-d5cc166ec0a3.jpeg)
-郭先生解释道，由于中共一贯在墙内施行的狭隘教育，有些号称支持爆料革命的人实际只是希望借由爆料革命除掉中共党内的某些个体，但这并不是灭共的实质。究其原因，个体的消失并不能动摇中共这一吃人的体制；相反的，其他手握大权的人仍然会继续鱼肉百姓。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+4月22日，媒体综合报道，美国证券交易委员会日前又将知乎、理想汽车、贝壳等17家中概股公司列入“预摘牌”名单，这是今年3月以来第5批被纳入该名单的中概股公司。
 
-对此，郭先生举例道，习近平在文化大革命期间受到的伤害是这次中共在上海采取严厉封锁限制的一个主要原因，另一个则由于韩正未经通报，私自前往上海。在此情况下，习近平非但没有着手于改变中共体制，反而把这些私人仇恨宣泄在无辜的上海白姓身上。
+据了解，SEC除依据《外国公司问责法》将上述中共企也列入退市暂定名单外，同日还将富途控股、百度、爱奇艺、凯信远达医药以及Nocera五支中概股从暂定名单转入确定名单。而其他确定退市的中企还有百胜中国、和黄医药、微博、百济神州、再鼎医药和盛美半导体。
 
-为此，郭先生认为，相较于只是针对某些个体的报复，痛恨共产党的墙内民众应该协力消灭中共的邪恶体制。
+消息发出后，理想汽车港股一度重跌7.2%，今日首度在港挂牌的知乎，开盘价更是比发行价跌去24.8%，而确定退市的百度，港股亦跌去了超过4%。
 
+此前，郭文贵先生曾在直播节目中多次指出，中概股将会彻底被踢出美国。同时，香港一旦失去了其在经济领域的国际地位，中共就会动用“烂招”来扰乱美国经济。为此，郭先生呼吁，美国只有对中共当权者及其家族的海外资产予以同俄罗斯寡头一样的经济制裁，才能制止中共对中国人民乃至世界人民财富的进一步掠夺。
 
+文字版原文：[美国又将17家中概股公司列入“预摘牌”名单](https://gnews.org/zh-hans/2402444/)
 
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-文字版原文：[灭共即为消灭中共体制](https://gnews.org/zh-hans/2402128/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
