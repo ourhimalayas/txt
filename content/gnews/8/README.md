@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：中俄之间互毁互害
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2405797/)
+## 20220424郭文贵大直播 ：蔡英文身边大多数决策人被中共收买，在中美之间摇摆是台湾的悲哀
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406020/)
 
 作者：东京樱花团小视频组
 
