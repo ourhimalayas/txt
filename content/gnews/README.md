@@ -15,65 +15,65 @@
 
 ---
 
-### [20220424郭文贵大直播 ：美国国际地位影响力确实在衰弱 中共趁机3F美国](/content/gnews/1/README.md)
+### [20220424郭文贵大直播 ： Swift 美元将会衰落喜联储新的金融系统将会崛起](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220424郭文贵大直播 ：七哥 普京的身体状况已经到了极度自恋的程度](/content/gnews/2/README.md)
+### [打坐入定修行日记（一）](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [20220424郭文贵大直播 ：中国和俄罗斯解体 中国人出去不被世界接受！俄罗斯人能被世界接受](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220424郭文贵大直播 ：北京是受诅咒的城市 北京人是流氓假仗义](/content/gnews/3/README.md)
+### [中印大幅进口俄石油](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [20220424郭文贵大直播 ：美国国际地位影响力确实在衰弱 中共趁机3F美国](/content/gnews/5/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220424郭文贵大直播 ：访问台湾能使南希·佩罗西政治生涯圆满，她不会听中共忽悠，大概率还是4月26日访问台湾](/content/gnews/4/README.md)
+### [20220424郭文贵大直播 ：七哥 普京的身体状况已经到了极度自恋的程度](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
 
-### [2022年4月24日郭先生大直播文字同步精要](/content/gnews/5/README.md)
+### [俄原油受美制裁后依然通过油商流入全球市场](/content/gnews/7/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [20220424郭文贵大直播 ：北京是受诅咒的城市 北京人是流氓假仗义](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220424郭文贵大直播 ：访问台湾能使南希·佩罗西政治生涯圆满，她不会听中共忽悠，大概率还是4月26日访问台湾](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [2022年4月24日郭先生大直播文字同步精要](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [20220424郭文贵大直播 ：上海人是不看天花板的 上海聚集的都是小聪明人](/content/gnews/6/README.md)
+### [20220424郭文贵大直播 ：上海人是不看天花板的 上海聚集的都是小聪明人](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [文贵先生419大直播节选重点概括 参与嘉宾: 长岛、老班长、草根、如水、木兰、郝海东和叶钊颖](/content/gnews/7/README.md)
+### [文贵先生419大直播节选重点概括 参与嘉宾: 长岛、老班长、草根、如水、木兰、郝海东和叶钊颖](/content/gnews/12/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [20220424郭文贵大直播 ：中共幻想通过拿下台积电 来获得技术和干掉美元](/content/gnews/8/README.md)
+### [20220424郭文贵大直播 ：中共幻想通过拿下台积电 来获得技术和干掉美元](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【商见你我他】第51期新闻简讯（四）](/content/gnews/9/README.md)
- ` MayflowerBiz`
-
-### [起来！不愿做奴隶的人们，中共国歌歌词遭微博封杀](/content/gnews/10/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [20220424郭文贵大直播 ：蔡英文身边大多数决策人被中共收买，在中美之间摇摆是台湾的悲哀](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [2022年04月24日文贵大直播速记](/content/gnews/12/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [4/24/2022国内经济财经周报：田惠宇被调查；多家银行出现取现难](/content/gnews/13/README.md)
+### [4/24/2022国内经济财经周报：田惠宇被调查；多家银行出现取现难](/content/gnews/14/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|美国青年志愿者震惊于419美国之音断播事件](/content/gnews/14/README.md)
+### [有声|美国青年志愿者震惊于419美国之音断播事件](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [美国务卿将访问基乌 讨论武器提供等问题](/content/gnews/15/README.md)
+### [美国务卿将访问基乌 讨论武器提供等问题](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [上海封城：政府安装警报器以防市民逃跑](/content/gnews/16/README.md)
+### [上海封城：政府安装警报器以防市民逃跑](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币、躺平币、Hpay就是未来的金融信仰](/content/gnews/17/README.md)
+### [喜币、躺平币、Hpay就是未来的金融信仰](/content/gnews/18/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [随着冠状病毒病例的减少，以色列取消了室内口罩规定](/content/gnews/18/README.md)
+### [随着冠状病毒病例的减少，以色列取消了室内口罩规定](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [仍在与俄罗斯交易的公司面临未来的法律行动](/content/gnews/19/README.md)
+### [仍在与俄罗斯交易的公司面临未来的法律行动](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花FM｜中共日益严重的债务问题暴露了体制的弱点](/content/gnews/20/README.md)
- ` 樱花FM`
 
 ### [2022.4.24大直播 俄乌战争后，中俄人民的结局截然不同](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`

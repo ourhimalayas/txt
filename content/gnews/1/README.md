@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：美国国际地位影响力确实在衰弱 中共趁机3F美国
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406123/)
+## 20220424郭文贵大直播 ： Swift 美元将会衰落喜联储新的金融系统将会崛起
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406172/)
 
 作者：东京樱花团小视频组
 

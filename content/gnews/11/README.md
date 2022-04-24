@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：蔡英文身边大多数决策人被中共收买，在中美之间摇摆是台湾的悲哀
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406020/)
+## 20220424郭文贵大直播 ：上海人是不看天花板的 上海聚集的都是小聪明人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406056/)
 
 作者：东京樱花团小视频组
 

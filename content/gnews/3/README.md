@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：北京是受诅咒的城市 北京人是流氓假仗义
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406093/)
+## 20220424郭文贵大直播 ：中国和俄罗斯解体 中国人出去不被世界接受！俄罗斯人能被世界接受
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406136/)
 
 作者：东京樱花团小视频组
 

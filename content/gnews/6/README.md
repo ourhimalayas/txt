@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：上海人是不看天花板的 上海聚集的都是小聪明人
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406056/)
+## 20220424郭文贵大直播 ：七哥 普京的身体状况已经到了极度自恋的程度
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406112/)
 
 作者：东京樱花团小视频组
 
