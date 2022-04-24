@@ -42,8 +42,8 @@
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+**更多资讯，更多关注** **
+**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
 [**郭文贵先生Gettr**](https://gettr.com/user/miles)**
 **[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 [**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)

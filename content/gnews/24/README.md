@@ -2,28 +2,37 @@
 ---
 
 
-## 美国外长和防长将于周日到访基辅
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2400509/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月23日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2401091/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-106.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-22.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.23早 《NFSC新闻》](https://gettr.com/streaming/p16rf8ncece)
+[2022.04.23早《NFSC新闻访谈》](https://gettr.com/streaming/p16rcv7f153)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-106.png)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_1103.jpg)
-
-
-图片来源：路透社
-
-基辅，4 月 23 日（路透社）乌克兰领导人周六表示，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将于周日前往基辅，并与乌克兰总统泽连斯基举行会谈。
-
-泽连斯基他在基辅的新闻发布会上说，他将讨论乌克兰对抗俄罗斯入侵所需的武器种类。
-
-简评：战争在最激烈的阶段， 美国外长布林肯和国防部长奥斯汀将于4月24日访问基辅， 肯定是落实军事援助的具体实施。 拜登总统宣布的8亿美元的军事援助也许是决定战争结束时间的主要因素。
-
-[美国外长和防长将于周日到访基辅](美国外长和防长将于周日到访基辅)
-
-编辑发表： Shuizhuyu
 
  
 

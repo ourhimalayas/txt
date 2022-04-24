@@ -24,7 +24,7 @@
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
