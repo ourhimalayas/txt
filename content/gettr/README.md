@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 12:25 PM (UTC)`
+
+2022年4月24日 文贵大直播：俄乌战争前因后果；沪京等隔离与台湾；佩洛西访台成定局；国内目前经济情况
+![img](https://media.gettr.com/group41/origin/2022/04/24/12/f43b55e2-2afe-f525-bf41-40d2270de3ca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/24/2022 11:29 AM (UTC)`
 
  4月24号：尊敬的战友们好……今天的直播多长时间好？
@@ -147,13 +154,6 @@
 
 4/23/2022 Miles Guo: All the banks in Communist China are under the CCP’s control. These banks will restrict cash withdrawals and transfers and will regulate accounts with large amounts. The banks and bankers in Communist China will be the new victims of the CCP, including Dong Wenbiao, Zhang Hongwei, Bruno Wu, Jack Ma, and others.<br/><br/>4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号，中共国的银行和银行家都是共产党的新的牺牲品，包括董文标、张宏伟、吴征、马云等等<br/><br/>
 ![img](https://media.gettr.com/group10/getter/2022/04/23/22/5e0c217a-564f-9559-17c8-223cbddc03e0/out.jpg)
-
----
-
-`@miles 4/23/2022 10:20 PM (UTC)`
-
-4/23/2022 Miles Guo: Nancy Pelosi may not be able to visit Taiwan on April 26th. The CCP hired many agents in the US in an attempt to delay Pelosi’s Taiwan visit till July or August. Xi Jinping is anticipating chaos in the US after midterm elections. Xi plans to take advantage of the chaos to defeat the US, occupy Taiwan, and advance his own RMB financial system to the entire world.<br/><br/>4/23/2022 文贵直播：南希·佩洛西4月26号不一定能访台，因为共产党疯狂找美国代言人游说佩洛西七八月份访台，习近平寄希望于美国中期选举的“大乱”而进入美国，拿下台湾，并在全世界推广人民币金融系统。<br/>
-![img](https://media.gettr.com/group18/getter/2022/04/23/22/17aedeb4-89e8-f42a-108c-dbe726998dd5/out.jpg)
 
 ---
 

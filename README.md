@@ -15,23 +15,23 @@
 
 ---
 
-### [【全文字幕】2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](/content/gnews/1/README.md)
+### [泽连斯基宣布，美国国务卿和国防部长将访问乌克兰](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【全文字幕】2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](/content/gnews/2/README.md)
  ` 文贵视频字幕全集`
 
-### [2022年4月24日，全球中共病毒疫情情况汇总](/content/gnews/2/README.md)
+### [2022年4月24日，全球中共病毒疫情情况汇总](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4月23日七哥乱聊直播点评](/content/gnews/3/README.md)
+### [4月23日七哥乱聊直播点评](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [意大利再拨两亿欧元支援乌克兰](/content/gnews/4/README.md)
+### [意大利再拨两亿欧元支援乌克兰](/content/gnews/5/README.md)
  ` xiaobaige`
 
-### [【每日聚焦】俄乌战事4月24日简要](/content/gnews/5/README.md)
+### [【每日聚焦】俄乌战事4月24日简要](/content/gnews/6/README.md)
  ` 蓝莲花农场`
-
-### [中共国疫情下的百态众生](/content/gnews/6/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [疫情封控中的上海人：上海仁恒河滨城的民间防疫指南“太卷了”，人类的理性之光被点亮](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
@@ -129,60 +129,57 @@
 ### [COVID疫苗注射正在杀人吗？（3/4）](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗注射正在杀人吗？（2/4）](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [传不出的声音《四月之声》](/content/gnews/40/README.md)
+### [传不出的声音《四月之声》](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/41/README.md)
+### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/40/README.md)
  ` MOSVIDEO`
 
-### [视频|俄乌战局最新消息汇总](/content/gnews/42/README.md)
+### [视频|俄乌战局最新消息汇总](/content/gnews/41/README.md)
  ` MOSVIDEO`
 
-### [视频|灭共即为消灭中共体制](/content/gnews/43/README.md)
+### [视频|灭共即为消灭中共体制](/content/gnews/42/README.md)
  ` MOSVIDEO`
 
-### [中共一战机坠毁 逃生飞行员中现一名外籍军人](/content/gnews/44/README.md)
+### [中共一战机坠毁 逃生飞行员中现一名外籍军人](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（四）](/content/gnews/45/README.md)
+### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（四）](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（一）](/content/gnews/46/README.md)
+### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（一）](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（二）](/content/gnews/47/README.md)
+### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（二）](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京](/content/gnews/48/README.md)
+### [众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京](/content/gnews/47/README.md)
  ` 美国政要直译推`
 
-### [美国研究显示：中共病毒在 2021 年再次成为第三大死因](/content/gnews/49/README.md)
+### [美国研究显示：中共病毒在 2021 年再次成为第三大死因](/content/gnews/48/README.md)
  ` thedawn`
 
-### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/50/README.md)
+### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/49/README.md)
  ` 秘密翻译组金融团队`
 
-### [美欧日经济周报（4月18日～4月22日）](/content/gnews/51/README.md)
+### [美欧日经济周报（4月18日～4月22日）](/content/gnews/50/README.md)
  ` 经济小组`
 
-### [中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产](/content/gnews/52/README.md)
+### [中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
+### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/54/README.md)
+### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/55/README.md)
+### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共才是世界上黑帮的幕后大佬](/content/gnews/56/README.md)
+### [中共才是世界上黑帮的幕后大佬](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/57/README.md)
+### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
