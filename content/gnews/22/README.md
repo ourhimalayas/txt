@@ -2,12 +2,20 @@
 ---
 
 
-## 还有比我们再伟大的人吗？
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406720/)
+## 俄乌战争的前因后果
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2406733/)
 
-听写：叮叮         编辑：文宝
+文贵大直播20220424
 
-世界上，我老是告诉我自己，还有比我们再伟大的人吗？当七哥看到你们每时每刻在前线，你想想七哥一天24小时，我有点空，当我看到你们的信息的时候，七哥啥感受？你们如果是七哥，你们啥感受？新中国联邦有这么多兄弟跟我从未谋过面，因为一个信仰、因为一个追求，抛家舍业，冒着枪林弹雨、炸弹的危险，只在几百米之外就是战场的地方，还不能“双修”，是吧？到那去，放弃了“双修”温暖的生活，热被窝，到那儿去吃风、戴口罩、冰凉。而且要面临着各种危险，还严格要求自己。而且是没有苗族，还都染上了病，最后都复了阴，而且要照顾素未谋面的孩子、老人。你觉得人类上还有任何人比我们做得再伟大吗？你告诉我是有钱的、是有权的、还是有名的？很多人给法制基金捐款的，我们很多战友的留言是感动至极的，给我发信息：七哥，我捐钱捐的就是这些在前线的这些战友们。我看到他们，才觉得我作中国人活得不白活。
+文案指导：顽童（纽伦堡正义）
+
+撰稿：文晓（樱花团）文仁（77功成）烟火（樱花团）
+
+书法：沙漠之花（香草山）
+
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-10.png)
+*发布：Theodosia*
 
  
 
