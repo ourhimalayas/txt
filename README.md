@@ -15,89 +15,89 @@
 
 ---
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十）](/content/gnews/1/README.md)
+### [视频|乌克兰大使馆致信感谢新中国联邦](/content/gnews/1/README.md)
+ ` MOSVIDEO`
+
+### [文·贵天成——文贵先生谈“习近平”（九）](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西太银行预测澳洲央行将在六月一次性加息40个基点](/content/gnews/2/README.md)
- ` 澳喜农场`
+### [接种新冠疫苗后48小时内死亡人数占VAERS报告的 21%](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [灭白打台湾是习近平计划转移内部政治经济问题树立自己秦始皇地位](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [视频|新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/4/README.md)
+ ` MOSVIDEO`
 
-### [香港自2020年以来首次允许国际旅行者入境](/content/gnews/4/README.md)
- ` 澳喜农场`
+### [对乌克兰及世界无底线侵略是习普自我打脸](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上海战友用大量现金逃出上海](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2022.4.24新闻集萃](/content/gnews/6/README.md)
+### [73年首次有6万武警驻扎北京，隔离和网控手段将无止境](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国、西班牙、葡萄牙三国领导人公开支持马克龙](/content/gnews/7/README.md)
+### [美国警告中共若在所罗门群岛驻军美就会回应](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [文·贵天成——文贵先生谈“习近平”（八）](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共所到之处都对美国构成了最大外部风险，但左派认为习和美国是一样的](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [数据显示四月外资正加速撤离中国](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [郭文贵直播音频2022.04.23](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022.4.24新闻集萃](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [德国、西班牙、葡萄牙三国领导人公开支持马克龙](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年4月23郭文贵先生七哥乱聊直播全文听写](/content/gnews/8/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [419总结上海即将解封,台湾人对战友的评价，关于G系列投资建议](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [伊斯兰国称对阿富汗北部的致命爆炸负责](/content/gnews/10/README.md)
+### [伊斯兰国称对阿富汗北部的致命爆炸负责](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Error404｜转载：上海是预示未来一百年的大河](/content/gnews/11/README.md)
+### [Error404｜转载：上海是预示未来一百年的大河](/content/gnews/15/README.md)
  ` 關注組`
 
-### [法国和德国规避武器禁运，向俄罗斯出售武器](/content/gnews/12/README.md)
+### [法国和德国规避武器禁运，向俄罗斯出售武器](/content/gnews/16/README.md)
  ` 波士顿五月花农场金融部`
 
-### [美国商船在封锁期间被困在上海港口](/content/gnews/13/README.md)
+### [美国商船在封锁期间被困在上海港口](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花时政┃普京将在秋季测试能够打击美国的核导弹](/content/gnews/14/README.md)
+### [樱花时政┃普京将在秋季测试能够打击美国的核导弹](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（四）](/content/gnews/15/README.md)
+### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（四）](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海一女子因饥饿发布视频呼救](/content/gnews/16/README.md)
+### [上海一女子因饥饿发布视频呼救](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（一）](/content/gnews/17/README.md)
+### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（一）](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（二）](/content/gnews/18/README.md)
+### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（二）](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰总理访日期间受到一对悲伤起舞的巨型奇异果吉祥物的欢迎](/content/gnews/19/README.md)
+### [新西兰总理访日期间受到一对悲伤起舞的巨型奇异果吉祥物的欢迎](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【乌克兰救援】爱尔兰义工：金钱至上，真相就会死亡](/content/gnews/20/README.md)
+### [【乌克兰救援】爱尔兰义工：金钱至上，真相就会死亡](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [被中共封禁的《四月之声》](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乔治·华盛顿号航母一周内三名水手自杀身亡](/content/gnews/22/README.md)
+### [乔治·华盛顿号航母一周内三名水手自杀身亡](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花时政┃泽伦斯基宣布布林肯和奥斯汀将访问乌克兰](/content/gnews/23/README.md)
+### [樱花时政┃泽伦斯基宣布布林肯和奥斯汀将访问乌克兰](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海悲歌《四月英雄》被中共全网封杀](/content/gnews/24/README.md)
+### [上海悲歌《四月英雄》被中共全网封杀](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯为成员的所有国际安全组织均已名存实亡](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [4/23/2022 文贵直播：北京有六万部队驻扎，目的就是为了进行实施长期隔离；中共在北京、上海、广州、深圳实际是在实行军管](/content/gnews/26/README.md)
- ` 秘密翻译组-北美组`
-
-### [特别报告：加密货币巨头币安是如何与俄罗斯联邦安全局相关机构建立起联系的 &#8211; 第一部分](/content/gnews/27/README.md)
+### [特别报告：加密货币巨头币安是如何与俄罗斯联邦安全局相关机构建立起联系的 &#8211; 第一部分](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [樱花时政┃日本新西兰加强防务合作 以应对中俄&#8221;前所未有的挑战 &#8220;](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

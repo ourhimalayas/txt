@@ -2,30 +2,55 @@
 ---
 
 
-## 俄罗斯为成员的所有国际安全组织均已名存实亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2402247/)
+## 乔治·华盛顿号航母一周内三名水手自杀身亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2402261/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ezgif-1-8a0dfe41c8.jpg)图片来源：CNBC
-周四，乌克兰国防部长奥列斯基·雷兹尼科夫（Oleksii Reznikov）在《华尔街日报》上发表专栏文章，称随着俄罗斯对乌克兰入侵的不断加剧，将俄罗斯作为成员的多个国际安全组织已经名存实亡。对此，《国会山报》于4月23日做了引述报道。
+翻译：噜噜咪
 
-在专栏文章中，雷兹尼科夫写道：“俄罗斯对乌克兰的战争所造成的伤亡，已经促成了战后的全球秩序和安全体系。俄罗斯已经做了国际安全机构所希望防止的一切（灾难和危险）。莫斯科拥有常任理事国席位的联合国安全理事会（U.N. Security Council）怎么可能会履行其维护和平的使命呢？”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
 
-并且，“当欧洲合作与安全组织（OCSE）的一个参与国袭击了另一个参与国并杀害了数千名平民时，在欧洲大陆上还能有什么样的安全与合作？这些组织已经名存实亡了。”
 
-雷兹尼科夫认为，这些国际安全机构需要被取代，因为它们只为“大国”的利益服务，而不是为所有国家的利益服务。
 
-报道说，乌克兰目前虽然不是由15个成员组成的联合国安理会的成员，但它是欧洲合作与安全组织（OCSE）的成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-513.jpg)在过去的一年里，美国海军乔治·华盛顿号航空母舰上共有7名水手自杀。
 
-在专栏文章中，雷兹尼科夫指出，西方对乌克兰局势的反应“过于缓慢”。
+据报道，弗吉尼亚州乔治·华盛顿号上的一名水手上周开枪自杀，这是本月分配到该舰的第三位水手，也是近一年来的第七位。
 
-他解释道：“正如沃洛基米尔·泽连斯基总统所说，全球对这种危机的反应应该是立即的，应该在24小时之内，而不是在几周或几个月之后。任何侵略者都必须面对预防措施带来的不可逆转的惩罚，而这些预防措施，即所谓的延迟制裁机制，完全可以在和平时期得到批准并自动生效”。
+据美国海军研究所（USNI）新闻报道，弗吉尼亚州首席验尸官办公室证实，海军士官长新兵（MASR）泽维尔·亨特·米切尔·桑多于4月15日死于自残的枪伤。
 
-*责编：彩虹*
+海军刑事调查处（NCIS）的官员不愿证实米切尔·桑多当时是否正在执勤，或者他是否使用了公务武器。随着调查的继续，没有公布有关该事件的其他细节。
 
-**新闻来源**
+发言人杰夫·休斯顿在一份声明中告诉USNI新闻：“正如我们对所有非战斗性的、无医疗护理的海军部成员的死亡所做的那样，NCIS正在进行彻底的调查，以确定MASR泽维尔·米切尔·桑多死亡的情况。”
 
-[Ukrainian defense minister says international security organizations have failed](https://thehill.com/policy/international/3461135-ukrainian-defense-minister-says-international-security-organizations-have-failed/?rl=1)
+根据海军的说法，米切尔·桑多在船上被发现时没有反应。他被送往纽波特纽斯的河滨地区医疗中心，在那里他被宣布死亡。
+
+据报道，米切尔·桑多于8月入伍，是一周内分配到该舰的第三位自杀士兵。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-211.jpg)乔治·华盛顿号战舰上最近发生的事件仍在调查中
+据USNI新闻报道，零售服务专家三等兵米卡伊尔·夏普于4月9日自杀身亡，随后是内部通信电工三等兵娜塔莎·赫夫曼于4月10日自杀。
+
+该媒体报道，第四名水手在12月自杀身亡。在过去的12个月中，共有七名分配到乔治·华盛顿号的水兵死亡。
+
+“我们可以确认，在过去12个月里，分配到乔治·华盛顿号的水手共有七人死亡——2021年有4人，2022年有3人，”海军大西洋空军发言人罗伯特·迈尔斯中校在一份声明中告诉USNI新闻。
+
+“围绕这些事件的情况各不相同，现在做出假设还为时过早，因为有些事件仍在调查之中。”
+
+这艘航母正停靠在纽波特纽斯造船厂进行维护，处于五年调整的最后阶段。
+
+新闻来源：[3 USS George Washington sailors took their own lives in one week: report](https://nypost.com/2022/04/22/3-uss-george-washington-sailors-took-their-own-lives-in-one-week/)
+
+* * *
+
+素材：peacelv
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
  
 

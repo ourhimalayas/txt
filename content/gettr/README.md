@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 4:58 AM (UTC)`
+
+04.24.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group42/origin/2022/04/24/04/349412a6-fd10-da3e-c4cd-2c561247e4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/24/2022 3:08 AM (UTC)`
 
 2022-4-23《鸡血王喜币大作战》 第一百七十四集 嘉宾：卡丽熙、Eric
@@ -147,13 +154,6 @@
 
 2022.04.23  新中国联邦 | 喜健康   如斯医生专访
 ![img](https://media.gettr.com/group45/origin/2022/04/18/20/93a747d6-61b9-c02d-36b0-79f6aa417f55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 7:03 PM (UTC)`
-
-2022-4-23《避风港》(39) WHO发布肝炎全球警告；疫苗是罪魁祸首
-![img](https://media.gettr.com/group43/origin/2022/04/23/19/6ab322ae-31eb-a2b9-ff36-6a9441187f64/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
