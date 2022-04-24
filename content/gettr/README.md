@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 1:52 PM (UTC)`
+
+【Ukraine Rescue】4/22/2022 After the event of an American man trying to attack Little Sara at the Medyka camp, several French volunteers come over to show support to us and blame that American man.<br/><br/>【乌克兰救援】4/22/2022 在一名美国人在梅迪卡营地试图袭击小Sara的事件后，几名法国志愿者来向我们表示支持并指责那个美国人。<br/><br/>
+![img](https://media.gettr.com/group36/getter/2022/04/24/13/a61f955b-81ca-2c07-19d9-671e4e188eab/out.jpg)
+
+---
+
 `@miles 4/24/2022 12:44 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月22日第49天当日救援统计：<br/>Medyka救援站接待：约292人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13903人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 49 - Date: April 22, 2022 :<br/>Medyka Rescue Station Reception: about 292 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13903 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 4/23/2022 Miles Guo: According to our fellow fighters from mainland China, the daily positive cases in Beijing are at least tens of thousands, and the CCP has well prepared for imposing a massive lockdown and control in Beijing; Miles Guo reminded us again that all positive cases are actually the COVID vaccine reactions, and the vaccine disaster created by the CCP is on its way.<br/><br/>4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临<br/>
 ![img](https://media.gettr.com/group47/getter/2022/04/23/22/143f6d57-73ad-2ffd-153e-c90abf965b6b/out.jpg)
-
----
-
-`@miles 4/23/2022 10:28 PM (UTC)`
-
-4/23/2022 Miles Guo: Those fellow fighters who did not follow my advice regret it, but it is too late. The data collected by a fellow fighter in Shanghai confirms my estimate of the death toll in Shanghai. Fellow fighters, you must not pay the price of your life or ruin your whole family because of ignorance and stupidity.<br/><br/>4/23/2022 文贵直播：之前没有听文贵劝告的战友们虽然后悔不及，但为时已晚；上海战友统计的数据印证了文贵关于上海死亡人数的估计；战友们千万不要因为无知和愚蠢付出生命的代价或毁了全家！<br/>
-![img](https://media.gettr.com/group39/getter/2022/04/23/22/5e22e167-49f0-0d50-3986-fb80b4f1359d/out.jpg)
 
 ---
 

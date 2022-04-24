@@ -2,25 +2,24 @@
 ---
 
 
-## SpaceX成功抵御俄罗斯的电磁攻击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404535/)
+## 俄乌战争以来多国限制食用油出口
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404528/)
 
-作者：DC农场 自由信仰
+作者：纽约香草山 Wenfei
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+乌克兰与俄罗斯在全世界葵花油出口市场中所占份额比率高达80%。自乌克兰战争爆发以来，全球食用油价格飙升。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.30.32-PM.png)
+据外媒4月22日报道，世界上最大的棕榈油生产国印度尼西亚，宣布将于4月28日起，禁止所有食用油及其原材料的出口。
 
-据美媒4月20日报道，五角大楼专家表示，上个月SpaceX成功且迅速地阻止了俄罗斯对星链的网络攻击，迫使俄军目前已经放弃对乌克兰实施电磁战，确保了乌克兰与互联网保持连接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.08.04-PM.png)
-俄乌战争伊始，马斯克在接到乌克兰官方发出的求助推文后，迅速将数千个星链终端设备运送到了乌克兰。次日，星链就被俄罗斯攻击并受到干扰。SpaceX仅仅通过修复一行代码就使得俄罗斯的电磁攻击失效。
+暨印尼限制食用油出口后，阿根廷也提高了豆油的出口税。芝加哥豆油期货价格涨幅高达 3.5%。吉隆坡棕榈油早盘上涨 0.7%。巴黎的油菜籽和北美的油菜籽期货也上涨至新高。
 
-五角大楼的技术专家对此感到欣喜，并表示，在建造新的电子战设备方面，美国需要进行更多创新思考，必须提出新的系统，提供更大的弹性和速度，这包括将人工智能和机器学习整合到下.
+疫苗危机，原料通胀与粮食危机在不断威胁全世界各国在温饱线上挣扎的底层家庭，也在不断蚕食中产者所剩不多的储蓄和希望。食物短缺让马来西亚，斯里兰卡，伊拉克等国民众走上街头抗议食品价格高企。
 
-参考链接：[SpaceX shut down a Russian electromagnetic warfare attack in Ukraine last month — and the Pentagon is taking notes](https://www.defensenews.com/air/2022/04/20/spacex-shut-down-a-russian-electromagnetic-warfare-attack-in-ukraine-last-month-and-the-pentagon-is-taking-notes/)
+参考链接：[**‘**Mayhem’ Ensues as Top Shipper Indonesia Bans Edible Oil Exports](https://www.yahoo.com/now/top-palm-producer-bans-exports-105708700.html)
 
 ![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-编辑：Delilah小胖
-总编：Zion文恩
-审核：文真
+编辑/总编/审核：Zion文恩
 校正/发稿：我不在这里
 ![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
  

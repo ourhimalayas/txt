@@ -2,50 +2,47 @@
 ---
 
 
-## 积累巨大国际关系和巨大国际信用的新中国联邦越来越强
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2404936/)
+## 2022年4月24日战时快讯（1）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404961/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8830.57%EF%BC%89%E7%A7%AF%E7%B4%AF%E5%B7%A8%E5%A4%A7%E5%9B%BD%E9%99%85%E5%85%B3%E7%B3%BB%E5%92%8C%E5%B7%A8%E5%A4%A7%E5%9B%BD%E9%99%85%E4%BF%A1%E7%94%A8%E7%9A%84%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%BC%BA%E3%80%902022%E5%B9%B402%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
+#### 雅典娜情报组《战时快讯专栏》
 
-**郭文贵先生：**更重要的事情，我们所有的新中国联邦人一定有利他之心。这就从过去的所谓的皇权、神权时代转移到现在的所谓资本主义、社会主义的这种不三不四的时代，到正道主义。没有一个照顾别人的这个主义是不可能人类安全的，谁都没有了尊严。
+整理/编辑：gardeniahu
 
-“藏富于民”这句话是人类上皇权神权说的话，共产党就已经说烂了，结果钱全跑他家去了，全跑他们家瑞士银行、私人手里去了。王岐山一个人的钱是你多少人的钱。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/9715-6d4189177f91d511fc9b09492daa7ad8.jpg)图片来源：美国之音
 
-但是七哥绝对做到了，在绝对的透明法律面前藏富在战友手里边。而且这些钱，战友们，我就不相信，老马你有一个亿两亿你能干啥去？你还能把卓玛给我废了？你还能弄小三小四小五？吓死你也不敢，是吧？因为什么？你受新中国联邦人的约束，骂都骂死你了，诅咒都把你诅咒死了。你必须要对卓玛好，你开大腿的时候谁照顾你了？谁心疼你呀？不就人家卓玛，你血拉呼的，是吧？
 
-这里边就有一个人性、良知、善良，这就是我们要告诉所有战友们，我们的正道主义是以善为本、唯真不破、利他主义。绝不能像资本主义，有钱的人就赶快把老婆弄了，然后有钱的女人把老公废了，然后拉拉皮，直接弄几个小三儿、小模特，不允许！我们必须像人一样的，对人有绝对的尊重，有尊严的、安全的、不受人家诱惑的利益，和对性有绝对的尊重和崇尚的利他之心的这种人的关系存在。
+1、俄罗斯侵犯乌克兰迈入第3个月，乌克兰总统泽连斯基周六23日宣布，美国国务卿布林肯和国防部长奥斯汀将会于24日到访基辅，与他举行会谈。
 
-这就是咱今天，兄弟你看到的是新中国联邦在这个当中最大的价值和机会，展示了与他们不同，而且积累了巨大的国际关系，积累了巨大的国际信用，而且当他们都倒下的时候我们却越来越强大。
+2、台湾疫情持续攀升，今天（4月24日）通报本土确诊病例突破5000大关，截至目前累计5万6468例确诊。
 
-新中国联盟不仅会代表14亿中国人，会代表世界上像喜欢新中国联邦郝海东兄弟、钊颖妹妹的宣言念的那样，所有爱好正义的、不吃狗肉的和爱护动物的、尊重人的、相信人类有万佛万神上天的和我们站在一起，这是绝佳的机会。
+3、法国智库分析称美国未直接干预乌克兰战事是为了保留军力捍卫台湾。
 
-字幕来源：[2022年2月18日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2033310/)
+4、上海封城之际，中国首都北京疫情再起，当局援引调查结果称，疫情已隐匿传播一周，“情况紧急，形势险峻”，预料未来还会发现续发病例，须以“最短时间遏制疫情扩散”。
 
-编辑整理：海贼王M.D.LUFFY；
+5、澳洲国防部长杜登（Peter Dutton）今天指控中国，为了争取国际合约而行贿他国，但对于北京新近与索罗门群岛签订的安全协议是否涉及贪腐，澳洲防长拒绝表示意见。
 
-字幕档制作：知津；
+6、联合国今天发出声明说，秘书长古特瑞斯（Antonio Guterres）25日将访问身为俄乌停战重要斡旋者的土耳其，之后再前往俄罗斯与乌克兰。
 
-视频制作及上传：Cindy；
+7、俄罗斯周六（4月23日）表示，准备在今年秋季部署具有对美国进行核打击能力的萨尔马特重型洲际弹道导弹。
 
-G-News发布：海贼王M.D.LUFFY；
+8、日本外务大臣林芳正星期六在登上在亚洲水域游弋的一艘美国航空母舰时承诺，日本将加强军事力量，帮助美国维护地区安全。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+9、俄罗斯入侵主权国家乌克兰的行动公然违反了联合国宪章，激起世界舆论和世界大多数爱好和平国家的愤怒。美国等西方国家呼吁G-20（二十国集团）的大多数成员共同努力把俄罗斯从这个组织中剔除出去。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+10、欧盟统计局表示，乌克兰战争和中国新冠疫情对经济的影响正在继续推动价格上涨，3月份欧元区通货膨胀率已达到欧元问世以来的最高水平。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+11、据媒体报道，首批数字人民币线上贷款近日落地青岛，累计开立个人钱包超2.6亿个。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+以上讯息均来自于网络，仅供参考。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+发布：文武全才
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,31 +2,39 @@
 ---
 
 
-## 联合国：越来越多证据表明俄罗斯犯下战争罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404691/)
+## 遭制裁的俄银行创始人：90%的俄罗斯人反对俄乌战争 呼吁西方给普京“一个明确的出口”
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2404583/)
 
-撰稿：澳喜-追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-45.png)
-据外媒4月22日报道，联合国人权办公室当天表示，有越来越多的证据表明俄罗斯在乌克兰犯下了战争罪。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388618.jpg)
-联合国人权事务高级专员巴切莱特指出，俄罗斯武装部队不分青红皂白地炮击和轰炸人口稠密地区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为都可能构成战争罪行。
+编辑/翻译：幸运草
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
-根据联合国目前掌握的数据，从2月24日至4月20日，联合国特派团已记录并核实有2345名平民被杀，2919人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-12.jpg)俄罗斯数字银行创始人 奥列格·廷科夫（Oleg Tinkov）
 
-巴切莱特表示，在俄罗斯军队以前占领的地区，不断发现的对平民的处决规模还扩大，而随着在马里乌波尔等激烈战斗地区发生的恐怖事件的曝光，实际数字还会高得多。
+4月19日，俄罗斯数字银行创始人廷科夫抨击俄罗斯对乌克兰的“疯狂”战争，并呼吁西方国家给俄罗斯领导人普京“一个明确的出口，以保住他的面子，停止这场大屠杀。”
 
-巴切莱特还谈及了以平民屠杀事件而被世界关注的布查镇的情况。她说，联合国人权工作人员4月9日在布查镇进行调查期间，取得了包括法外处决在内的50名平民被处死的证据。
+廷科夫在Instagram上发帖称，“90%的俄罗斯人反对这场战争!”他还认为，剩下的10%是“白痴”，俄罗斯军队已经暴露出了“愚蠢”。
 
-参考链接：
+“我看不出有一个人是这场疯狂战争的受益者!”廷科夫在Instagram上用俄语写道。“无辜的人民和士兵正在死去。将军们从宿醉中醒来，意识到他们的军队很烂。”
 
-[U.N. rights office cites growing evidence of war crimes in Ukraine](https://www.reuters.com/world/un-rights-office-cites-growing-evidence-war-crimes-ukraine-2022-04-22/)
+“如果这个国家的其他一切都是肮脏的裙带关系，军队怎么能好呢?”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-215.jpg)
+廷科夫写道:“克林姆林宫的官员们很震惊，不仅他们，就连他们的孩子夏天也不能去地中海了。”“商人们正在努力抢救剩下的财产。”
 
-编辑/总编/审核：飞虹
+“当然有白痴在画Z(在俄罗斯，其象征支持入侵乌克兰)”，“但任何国家都有10%的白痴。”
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-45.png)
+“亲爱的‘西方集体’，请给普京一个明确的退路，以保全他的面子，阻止这场大屠杀，”廷科夫在结尾处写道。“请更加理性和人道主义。”
+
+廷科夫是TCS Group Holding和数字银行Tinkoff Bank的创始人。在他发表这篇文章的几周前，英国制裁了他，冻结了他在英国的个人资产。英国还制裁了其他一些俄罗斯个人和实体。
+
+在俄罗斯于2月底入侵乌克兰之前，54岁的廷科夫的财富估计超过44.2亿美元。
+
+但《福布斯》上月报道称，他已经失去了亿万富翁的地位，因为自去年11月以来，Tinkoff Bank的股价大幅下跌。
+
+原文出处：[Sanctioned Russian bank founder Oleg Tinkov condemns ‘insane’ Ukraine war, calls on West to give Putin face-saving exit](https://www.cnbc.com/2022/04/19/russian-bank-founder-oleg-tinkov-condemns-ukraine-war-seeks-putin-exit.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,35 @@
 ---
 
 
-## 2022/04/21 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2404513/)
+## 泽连斯基宣布，美国国务卿和国防部长将访问乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404489/)
 
-1. 4月19日，上海新长征福利院。上海出现大量耋耄老人被中共以确诊阳性为借口转运至隔离方舱的景象。
-2. 4月19日，上海市普陀区。小区阳性患者，年纪大了，走路都困难，但是志愿者又不敢靠近提供直接帮助。老人只能独自、艰难的走到门口，进行转运。
-3. 4月16日，上海杨浦区延吉二村。一位90岁老伯独自拄着拐杖被转运去方舱，家中还留下93岁老伴。
-4. 4月18日，上海方舱医院集中隔离点內的隔离景象。如此隔离环境是集中治疗还是有意加速传播？
-5. 上海，中共治理下的一线大城市。把一个小伙子饿的只能在路边垃圾桶里捡东西吃，靠一位好心的驾驶员拿来盒饭和泡面。
-6. 上海多区域出现饿死人的时候，网络上却不断流传出外地支援食物被浪费掉的视频。不知道是当地政府的懶政，还是别有用心！
-7. 上海，大量新鲜的蔬菜水果直接被扔掉，环卫工人们觉得太可惜了重新收拾起来使用。
-8. 中共在各地没有期限的无尽封控和无序混乱的社会管理，使封控监管人员和被困百姓成为了直接对立的两个群体。
-9. 疫情下的中共国，穿上了防护服，往往就意味着拥有了决定他人是否自由的非法权力！
-10. 某地社区管理者在和市民的冲突中，直接扬言要将不听话人员定义为阳性患者送去方舱集中营隔离。
-11. 疫情下的冲突，多地都有出现穿着白衣耍流氓的混乱景象。
-12. 面对防疫人员不尊重人的行为，市民与其发生肢体冲突。
+#### **【雅典娜快讯】紧贴时代脉博**
+
+#### **翻译/编辑：文泓**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-128.png)图片来源：The Boston Globe & 雅典娜设计组
 
 
-- *1，搜集：Free20200604、加油干吧总加速师 、Filon
- 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
-- *3，翻译：TommyPeanut#3408
- 4，PR：Seven-Star Ant , yyshere*
+当地时间周六，乌克兰总统泽连斯基宣布，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将前往乌克兰讨论武器援助问题。
 
+在新闻发布会上，泽连斯基表示，周日他将与美国高级官员会面，讨论俄罗斯加强侵略和美国可以提供的额外支持。
 
-* * *
+“我们将讨论我们需要的武器清单及其供应速度。最近几周，一切都得到了改善。我对此表示感谢”，他说：“一旦我们拥有更多武器，一旦拥有足够的武器，相信我，我们将立即夺回被俄罗斯占领的领土。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+这将是自2月24日战争爆发以来美国高层首次访问基辅，布林肯和奥斯汀的访问是在标志性的一天——战争进入第三个月的那一天，此时乌克兰东部继续爆发激战。
 
+拜登总统本周宣布，将向乌克兰提供另外8亿美元的安全援助，其中包括另外72门榴弹炮，以及120多架“凤凰幽灵”无人机。
 
-编辑：【英国伦敦喜庄园编辑部】
+参考链接：[Blinken due to meet Zelenskiy in first wartime visit by top US officials to Ukraine | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/24/blinken-due-to-meet-zelenskiy-in-first-wartime-visit-by-top-us-officials-to-ukraine)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

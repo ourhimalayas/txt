@@ -2,47 +2,39 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾 (2022年4月13日~4月20日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404534/)
+## 2022/04/21 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2404513/)
 
-作者：DC农场 火来
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.03.32-PM.png)
-- 2022年4月13日至20日，除中共国外，全球新增中共病毒确诊患者489万余例，同比上周的667万余例下降了26.7%；此外，本周新增确诊死亡病例18125例，同比上周的22667例下降了20.0%。本周已是连续第七周全球确诊病例和死亡病例持续负增长。
-
-
-- 截止4月20日，除中共国外，全球累计接种了83.1亿剂中共病毒疫苗，同比4月13日的接种数据增长了0.362%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续七周低于百分之一。
-
-
-- 4月14日，据美联社收集并分析的数据显示，2020-2021学年度，选择在家上学的学生比疫情前增长了63%，2021-2022学年学校已经完全重新开放，但是在家上学的学生比例仍然维持在高位，仅比上一年度下降了17%。家长们仍然对健康等因素感到担忧。
-
-
-- 4月14日，辉瑞向FDA申请五岁以下儿童疫苗加强针的使用授权。
-
-
-- 4月18日，美国佛罗里达州联邦法官下令撤销联邦政府针对飞机、火车等公共交通乘客的口罩强制令。两天后的4月20日，美国CDC随即要求司法部对佛罗里达州联邦法官的裁决进行上诉。
+1. 4月19日，上海新长征福利院。上海出现大量耋耄老人被中共以确诊阳性为借口转运至隔离方舱的景象。
+2. 4月19日，上海市普陀区。小区阳性患者，年纪大了，走路都困难，但是志愿者又不敢靠近提供直接帮助。老人只能独自、艰难的走到门口，进行转运。
+3. 4月16日，上海杨浦区延吉二村。一位90岁老伯独自拄着拐杖被转运去方舱，家中还留下93岁老伴。
+4. 4月18日，上海方舱医院集中隔离点內的隔离景象。如此隔离环境是集中治疗还是有意加速传播？
+5. 上海，中共治理下的一线大城市。把一个小伙子饿的只能在路边垃圾桶里捡东西吃，靠一位好心的驾驶员拿来盒饭和泡面。
+6. 上海多区域出现饿死人的时候，网络上却不断流传出外地支援食物被浪费掉的视频。不知道是当地政府的懶政，还是别有用心！
+7. 上海，大量新鲜的蔬菜水果直接被扔掉，环卫工人们觉得太可惜了重新收拾起来使用。
+8. 中共在各地没有期限的无尽封控和无序混乱的社会管理，使封控监管人员和被困百姓成为了直接对立的两个群体。
+9. 疫情下的中共国，穿上了防护服，往往就意味着拥有了决定他人是否自由的非法权力！
+10. 某地社区管理者在和市民的冲突中，直接扬言要将不听话人员定义为阳性患者送去方舱集中营隔离。
+11. 疫情下的冲突，多地都有出现穿着白衣耍流氓的混乱景象。
+12. 面对防疫人员不尊重人的行为，市民与其发生肢体冲突。
 
 
-- 4月20日，辉瑞董事会成员、前FDA官员Scott Gottlieb医生接受采访时表示，哪怕周围的人都不戴口罩，高质量的N95口罩仍然有较好的保护作用。
+- *1，搜集：Free20200604、加油干吧总加速师 、Filon
+ 2，听写：Seven-Star Ant  / 听写PR：乐禧禧*
+- *3，翻译：TommyPeanut#3408
+ 4，PR：Seven-Star Ant , yyshere*
 
 
-- 4月20日，诺华公司宣布，该公司研发的新冠和流感综合疫苗初期实验显示有不错的效果，将继续推进第二期临床试验，但是诺华的新冠疫苗至今仍然没有获得FDA的使用授权。
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-参考链接：
+编辑：【英国伦敦喜庄园编辑部】
 
-1. [Homeschooling surge continues despite schools reopening](https://apnews.com/article/covid-business-health-buffalo-education-d37f4f1d12e57b72e5ddf67d4f897d9a)
-2. [Pfizer and BioNTech to ask FDA to authorize COVID-19 booster for kids as young as 5](https://www.cbsnews.com/news/covid-vaccine-booster-pfizer-kids-ask-fda/)
-3. [CDC asks Justice Department to proceed with mask mandate appeal](https://www.foxnews.com/us/cdc-asks-justice-department-proceed-mask-mandate-appeal)
-4. [DOJ to appeal ruling striking down mask mandate after CDC gives OK](https://nypost.com/2022/04/20/cdc-asks-doj-to-appeal-ruling-to-bring-back-mask-mandate-on-planes-trains/)
-5. [Dr. Scott Gottlieb: High-quality Covid masks work even if others around you aren’t wearing one](https://www.cnbc.com/2022/04/20/dr-scott-gottlieb-covid-masks-work-even-if-others-around-you-arent-wearing-one.html)
-6. [Novavax says vaccine targeting Covid and flu shows promising results in early data](https://www.cnbc.com/2022/04/20/novavax-says-vaccine-targeting-covid-and-flu-shows-promising-results-in-early-data.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
-
-编辑/总编/审核：Zion文恩
-校正/发稿：我不在这里
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

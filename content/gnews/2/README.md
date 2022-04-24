@@ -2,40 +2,39 @@
 ---
 
 
-## 封得越凶转得越猛的“四月之声”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404995/)
+## 有声|国际货币基金组织因俄乌战争下调全球增长预测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2405096/)
 
-#### 【雅典娜快讯，紧贴时代脉搏】
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+4月19日，国际货币基金组织IMF在其最新的《世界经济展望》中预测，2022年发达经济体的经济将增长3.3%，新兴市场和发展中经济体将增长3.8%，分别低于此前所预测的3.9%和4.8%。并表示，今年的全球经济放缓主要是因为俄罗斯入侵乌克兰，以及中共因疫情实施封锁影响了供应链。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-38.png)
+IMF称，战争将进一步加剧通胀，在美国和欧洲部分地区，通货膨胀正在加速，达到几十年来的最快水平，引发了人们对各国央行收紧货币政策的预期，其收紧速度比之前预测的要快。
 
-**翻译：li yan li
-编辑：李易通**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-47.png)图片来源：雅典娜设计组
+IMF首席经济学家皮埃尔-奥利维尔·古林查斯表示，这场战争加剧了近年来对全球经济造成巨大影响的一系列供应冲击，这些冲击会通过商品市场、贸易和金融联系广泛传播，还会增加世界经济更永久地分裂为具有不同技术标准、跨境支付系统和储备货币的地缘政治区块的风险。
 
 
-4月23日，据自由亚洲电台报道，一部收集了多个上海疫情期间录音对话的短视频在中文社交媒体上被广泛转载，但很快便遭到中共国全面封杀。然而，封杀并未止住这段视频传播的步伐。
 
-这是一段不到6分钟的短视频，以航拍上海城市的黑白画面为主，配以该市疫情下的多段录音片段。影片发布后于周五（4月22日）刷屏各大中文社交媒体，也随即遭到中共全网删除。
 
-不仅视频，“四月之声”四个字很快被封禁，原作者“永远的草莓园”的公众号和视频号也遭到删除。
 
-记录或评论疫情的文章或视频在中共国遭遇审查不足为奇，但是这段视频却引发了“越封杀越转发”的现象级传播。
+文字版原文：[国际货币基金组织因俄乌战争下调全球增长预测](https://gnews.org/zh-hans/2395986/)
 
-许多网民对这段视频的评价是“温和”、“令人泪目”、甚至“正能量”，他们纷纷表示无法理解视频遭到删除的原因。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-针对“四月之声”被删一事，中国官媒《环球时报》前总编辑胡锡进在微博上评论道：“互联网是西方发明的，与他们的制度是量体裁衣关系，进入中国，它需要在一定程度上‘中国化’，与我们这里的现实对接。中国的网络管理必须有，否则互联网就会在政治上‘改造’中国。一些删帖是必要的。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-另有一些人已经开始担心：上海解封后，现在响彻天际的“四月之声”终究会被遗忘。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新闻链接：[封得越凶转得越猛的“四月之声”](https://www.rfa.org/mandarin/Xinwen/8-04232022163115.html)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布：文武全才
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
