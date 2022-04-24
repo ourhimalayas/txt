@@ -16,6 +16,8 @@
 ---
 ## 頁面 33/42 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) ... [42](/content/README-42.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
 
+[文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/content/2018/09/20180902-4129689166696666776.md)
+
 [文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/content/2018/09/20180901-709890250224874284.md)
 
 [文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义](/content/2018/08/20180830-588921941020307115.md)
@@ -63,8 +65,6 @@
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/2018/07/20180711-4817682308462486547.md)
 
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/2018/07/20180710-2033069974209071479.md)
-
-[文字版：July 6th 2018 郭媒体直播](/content/2018/07/20180707-180274757659338281.md)
 
 
 ## 頁面 33/42 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) ... [42](/content/README-42.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,8 @@
 ---
 ## 頁面 40/42 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)
 
+[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/2018/04/20180418-3075028168264714407.md)
+
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/2018/04/20180418-8134538330051894256.md)
 
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/content/2018/04/20180418-6592319178525638083.md)
@@ -63,8 +65,6 @@
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/2018/04/20180418-893371473063503687.md)
 
 [NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/2018/04/20180418-8782315684152609597.md)
-
-[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/2018/04/20180418-1567783947311551796.md)
 
 
 ## 頁面 40/42 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [42](/content/README-42.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)

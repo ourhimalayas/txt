@@ -16,6 +16,8 @@
 ---
 ## 頁面 17/42 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [42](/content/README-42.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年04月18日郭先生GTV 直播](/content/2020/04/20200421-4424351447189958963.md)
+
 [文字版：2020年4月15日郭先生G-TV直播](/content/2020/04/20200418-7334677930976897436.md)
 
 [文字版:2020年4月14日郭先生G-TV直播](/content/2020/04/20200418-2928137426806462584.md)
@@ -63,8 +65,6 @@
 [文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/2020/03/20200319-5480491388779340708.md)
 
 [文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/content/2020/03/20200317-7978079183041505608.md)
-
-[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/content/2020/03/20200316-6955651449637446921.md)
 
 
 ## 頁面 17/42 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [42](/content/README-42.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

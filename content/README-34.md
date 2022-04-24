@@ -16,6 +16,8 @@
 ---
 ## 頁面 34/42 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) ... [42](/content/README-42.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)
 
+[文字版：July 6th 2018 郭媒体直播](/content/2018/07/20180707-180274757659338281.md)
+
 [翻译：中国电子间谍威胁 by Bill](/content/2018/07/20180707-1620127195279414710.md)
 
 [文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180705-8441159493365541935.md)
@@ -63,8 +65,6 @@
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/2018/04/20180426-3820645061800034569.md)
 
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/2018/04/20180426-4217728045032280574.md)
-
-[郭文贵先生与陈志煜对话录音（中英字幕）](/content/2018/04/20180425-6089618542439587251.md)
 
 
 ## 頁面 34/42 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) ... [42](/content/README-42.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)

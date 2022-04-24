@@ -16,6 +16,8 @@
 ---
 ## 頁面 28/42 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) ... [42](/content/README-42.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月29日：臺灣，香港，將是滅共的重要之地](/content/2019/04/20190430-3839114876829416800.md)
+
 [文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播](/content/2019/04/20190429-8077674753386524222.md)
 
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/content/2019/04/20190425-6473105803624226885.md)
@@ -63,8 +65,6 @@
 [文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/2019/03/20190303-6089231756466029624.md)
 
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/2019/02/20190228-4589670167001687334.md)
-
-[文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/2019/02/20190227-2121363787945897238.md)
 
 
 ## 頁面 28/42 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) ... [42](/content/README-42.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)

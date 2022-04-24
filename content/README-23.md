@@ -16,6 +16,8 @@
 ---
 ## 頁面 23/42 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [42](/content/README-42.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月21日郭先生第一次报平安](/content/2019/10/20191022-1216375453972564281.md)
+
 [文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/2019/10/20191021-396418607512158731.md)
 
 [文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/2019/10/20191019-5901855488500270018.md)
@@ -63,8 +65,6 @@
 [文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
 
 [文字版：2019年9月14日郭先生报平安视频](/content/2019/09/20190915-5986309951181433663.md)
-
-[文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/content/2019/09/20190915-1829806510018363153.md)
 
 
 ## 頁面 23/42 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [42](/content/README-42.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

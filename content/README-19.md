@@ -16,6 +16,8 @@
 ---
 ## 頁面 19/42 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [42](/content/README-42.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/content/2020/02/20200204-1180621866015014143.md)
+
 [文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/content/2020/02/20200204-5956561708667682413.md)
 
 [文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/content/2020/02/20200203-308153761485477225.md)
@@ -63,8 +65,6 @@
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/content/2020/01/20200112-3278403890679158483.md)
 
 [文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/content/2020/01/20200112-7411568700881167018.md)
-
-[文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/content/2020/01/20200109-4663679773917256212.md)
 
 
 ## 頁面 19/42 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [42](/content/README-42.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

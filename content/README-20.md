@@ -16,6 +16,8 @@
 ---
 ## 頁面 20/42 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [42](/content/README-42.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/content/2020/01/20200109-4663679773917256212.md)
+
 [文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/content/2020/01/20200109-5452647040359019543.md)
 
 [文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/content/2020/01/20200108-9198356254528115677.md)
@@ -63,8 +65,6 @@
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/content/2019/12/20191215-671526428688511323.md)
 
 [文字版：2019年12月13日文贵报平安，王健的第四种死法](/content/2019/12/20191214-6641233035759881210.md)
-
-[文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/content/2019/12/20191212-5839330453623085189.md)
 
 
 ## 頁面 20/42 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [42](/content/README-42.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
