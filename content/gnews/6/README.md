@@ -2,12 +2,11 @@
 ---
 
 
-## 上海徐匯區田林二村核酸檢測陰性的，送往安徽隔離；上海泗塘一村，留下核酸陽性的，送陰性的來大華公園城市小區。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401770/)
+## 崑山中華園區，大多數是外來打工者，被困一個多月，不准出門，也不提供食物。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401863/)
 
 作者：东京樱花团小视频组
 
-校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组
 
 * * *

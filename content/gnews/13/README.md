@@ -2,8 +2,8 @@
 ---
 
 
-## 新一輪疫情攻入北京？4月23日，北京朝陽區8個重點街鄉大規模核酸檢測； 遮不住了？23日，北京當局疫情通告稱：初步流調結果顯示，已隱匿傳播了一周。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401678/)
+## 網友：想離開上海不容易。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401700/)
 
 作者：东京樱花团小视频组
 

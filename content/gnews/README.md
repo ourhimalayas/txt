@@ -15,56 +15,56 @@
 
 ---
 
-### [俄罗斯入侵乌克兰重新点燃了日俄对北方四岛的争夺战](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [4/23/2022 文贵直播：上海战友统计的数据印证了文贵关于上海死亡人数的估计；战友们千万不要因为无知和愚蠢付出生命的代价或毁了全家](/content/gnews/2/README.md)
+### [4/23/2022 一年前的4月23日，文贵爆料中共辽宁号航母的飞行员都来自俄罗斯；整整一年后，一架中共军机在河南坠毁，当地村民发现了掉落在麦田中的俄罗斯飞行员，这100%验证了文贵的爆料](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [习想扩哪里](/content/gnews/3/README.md)
+### [疫苗灾难完全在计划控制之中](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [上海徐匯區獨居老人，物資缺乏，向店鋪求助。](/content/gnews/4/README.md)
- ` Tokyo Sakura Video Group`
-
-### [普京以为真的一星期拿下乌克兰](/content/gnews/5/README.md)
+### [习干的三件事](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [上海徐匯區田林二村核酸檢測陰性的，送往安徽隔離；上海泗塘一村，留下核酸陽性的，送陰性的來大華公園城市小區。](/content/gnews/6/README.md)
+### [4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [崑山中華園區，大多數是外來打工者，被困一個多月，不准出門，也不提供食物。](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【粤语配音】2022年4月23日：中共通过隔离解决所有疫苗灾难死亡的问题](/content/gnews/7/README.md)
- ` MOS香港部`
+### [俄罗斯入侵乌克兰重新点燃了日俄对北方四岛的争夺战](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [城市压力测试](/content/gnews/8/README.md)
+### [4/23/2022 文贵直播：上海战友统计的数据印证了文贵关于上海死亡人数的估计；战友们千万不要因为无知和愚蠢付出生命的代价或毁了全家](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [习想扩哪里](/content/gnews/9/README.md)
  ` 加拿大温哥华英里农场`
 
-### [網友：想離開上海不容易。](/content/gnews/9/README.md)
+### [上海徐匯區獨居老人，物資缺乏，向店鋪求助。](/content/gnews/10/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4/24/2022 银河快讯：岸田首相会见亚太三国总理，确认合作应对乌克兰局势；德国总理肖尔茨将在下周访问日本](/content/gnews/10/README.md)
+### [普京以为真的一星期拿下乌克兰](/content/gnews/11/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [上海徐匯區田林二村核酸檢測陰性的，送往安徽隔離；上海泗塘一村，留下核酸陽性的，送陰性的來大華公園城市小區。](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [網友：想離開上海不容易。](/content/gnews/13/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [4/24/2022 银河快讯：岸田首相会见亚太三国总理，确认合作应对乌克兰局势；德国总理肖尔茨将在下周访问日本](/content/gnews/14/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [形形色色的上海方艙。人員密集，男女混合隔離。](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [斯里兰卡政府家族化 经济崩溃民怨沸腾](/content/gnews/12/README.md)
+### [斯里兰卡政府家族化 经济崩溃民怨沸腾](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新一輪疫情攻入北京？4月23日，北京朝陽區8個重點街鄉大規模核酸檢測； 遮不住了？23日，北京當局疫情通告稱：初步流調結果顯示，已隱匿傳播了一周。](/content/gnews/13/README.md)
+### [新一輪疫情攻入北京？4月23日，北京朝陽區8個重點街鄉大規模核酸檢測； 遮不住了？23日，北京當局疫情通告稱：初步流調結果顯示，已隱匿傳播了一周。](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [普京在马里乌波尔吃瘪已经沦为欧洲的笑柄，人们走上街头为马里乌波尔的捍卫者们欢呼！荣耀属于乌克兰。](/content/gnews/14/README.md)
- ` Tokyo Sakura Video Group`
-
-### [共产党想做什么](/content/gnews/15/README.md)
- ` 加拿大温哥华英里农场`
-
-### [2022年4月24日《樱花简报》：日本《2022年版外交蓝皮书》强烈关切中共军事扩张霸行](/content/gnews/16/README.md)
+### [2022年4月24日《樱花简报》：日本《2022年版外交蓝皮书》强烈关切中共军事扩张霸行](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [继市政厅研究中心化工厂后俄罗斯又起火啦，这次是俄罗斯火箭和航天器科学中心TsNIIMash。该研究所是俄罗斯联邦的主要分析中心。（据说这地方距离克林姆林宫18公里）](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [美国警告将对中共在所罗门群岛的任何永久驻军作出回应](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
