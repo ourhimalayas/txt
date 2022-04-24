@@ -2,38 +2,46 @@
 ---
 
 
-## 俄罗斯恶意网络行动的威胁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2402862/)
+## 俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2402923/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
-![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
-根据《NEWXMAX》新闻网4月20报道，美国联邦机构和安全盟友周三发布的一份联合公告，警告俄罗斯对基础设施目标的网络威胁可能超出乌克兰边界。
+**港台前线 zhong｜2022-4-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+爱莎尼亚、拉脱维亚、立陶宛总理22日联合声明称，支持乌克兰政府及勇敢的人民、乌克兰独立及主权、领土的完整，并提及“乌克兰前线正在为欧洲的共同价值而战”，未来三国将继续援乌，提供财政、军事、人道主义援助，**重型武器对于乌克蘭戰勝、維護歐洲和平至關重要**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1231277670.jpg)
+此外，日媒报导称拉脱维亚总理于联合记者会上表示“将共同努力清除俄罗斯天然气及其政治影响力”。其实，波罗的海三国早在西方各国大动作对俄实施能源制裁前，便率先宣布拒用俄罗斯天然气。
 
-美国网络安全和基础设施安全局（CISA）在其公告中称，自俄入侵乌克兰以来，政府网络专家发布的俄罗斯对关键基础设施构成的网络威胁的最全面看法， 俄罗斯可能在未来几天和几周内执行“恶意网络行动” 。
+## 美国务卿布林肯、国部长奥斯汀将于24日访问基辅
 
-CISA 主任 Jen Easterly 表示，俄罗斯国家支持和俄罗斯结盟的网络犯罪集团对美国国土的威胁能力。
+（当地时间）23日乌克兰总统泽连斯基（Volodymyr Zelenskiy）透漏，美国务卿及国防部长将于24日前往基辅与其会晤，讨论美国向乌克兰提供那些武器抵御俄罗斯侵略。此前，美国总统拜登宣布对乌增加8亿美元的军援。
 
-Easterly 强调：“我们知道恶意网络活动是俄罗斯剧本的一部分。我们也知道俄罗斯政府正在探索针对美国关键基础设施进行网络攻击的可行选项。”
+又22日波罗的海三国联合宣言中强调“重型武器”对乌克兰抵御俄罗斯、维护欧洲和平至关重要，紧接着美国高级官员便访问基辅，讨论军事援助细节。郭文贵曾于直播分析，他认为欧洲未来的核心将会是乌克兰等东欧。
 
-报告还显示俄罗斯支持的一些网络犯罪组织威胁要开展网络行动，以报复针对俄罗斯或向乌克兰提供物质支持的国家或组织的网络攻击。
+## 声明称：俄侵略威胁整个欧洲
 
-作为一项行动方案，CISA 及其合作伙伴建议组织和公司 升级安全网络，特别是身份验证和远程桌面协议，加强最终用户意识培训。
+三国联合声明提到，俄侵略对大西洋安全构成威胁，北约系属防御性联盟，为欧-大西洋的和平、安全、稳定而努力，波罗的海三国有计划在马德里即将举行的北约峰会，讨论下一阶段的北约战略概念，加强北约（东翼）面对长期威摄的防御，为避免任何侵略的可能，波罗的海国家建立现代化的前沿防御能力，陆海空必须拥有更大规模的现代化军力部署，波罗的海三国将会增加国防预算迅速实现此共同项目。
 
-参考链接：[US Agencies, Cybersecurity Allies Issue Warning About Russian Cyber Attacks](https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/)
+## 波罗的海三国现代化军力含“法律、网路、资讯、情报、经济”面向
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
+联合声明提到，波罗的海三国重视“混合威胁”，如网路攻击、资讯操弄、外国干涉、情报渗透、法律及经济战争等。
 
-编辑/校正/发稿：海阔天空1
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+> Russian aggression challenges Euro-Atlantic security. 
+> 
+> With [@krisjaniskarins](https://twitter.com/krisjaniskarins?ref_src=twsrc%5Etfw) and [@IngridaSimonyte](https://twitter.com/IngridaSimonyte?ref_src=twsrc%5Etfw) we put our common approach in writing – how to best strengthen the security of our region & what decisions are needed at [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Madrid summit.
+> 
+> Our statement [https://t.co/M7WeOJ8FUb](https://t.co/M7WeOJ8FUb) [pic.twitter.com/J3JYCUUiDj](https://t.co/J3JYCUUiDj)
+> — Kaja Kallas (@kajakallas) [April 22, 2022](https://twitter.com/kajakallas/status/1517507268136292352?ref_src=twsrc%5Etfw)
+
+
+
+来源｜[YAHOO](https://news.yahoo.co.jp/articles/e4d6953d7cf4738ef006e133cee462e77a322f8d)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
