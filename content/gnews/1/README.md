@@ -2,38 +2,20 @@
 ---
 
 
-## 推广“新台湾模式”,台湾不会像上海那样封城
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2403662/)
+## 秘翻在线：俄罗斯对乌克拉奥德萨进行导弹攻击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2403746/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-49.jpg)图片来源：本文链接
+据韩媒《朝鲜日报》4月24日的消息，路透社和法新社当地时间23日报道说，俄军对乌克兰南部空军司令部发射的两枚导弹袭击了奥德萨地区的军事设施和民间居住建筑。据初步统计，截至目前，至少有5人死亡，18人受伤。据悉，死者中还包括出生3个月的新生儿。
 
-#### 整理：li yan li
-编辑：文泓
+乌克兰当局担心，如果现场全面展开生存者救助及尸体搜索工作，人员伤亡规模将进一步扩大。对此，俄军当局表示，已经拆除了奥德萨内的武器储藏库。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-123.png)图片来源：Taiwan News & 雅典娜设计组
+据国际文传电讯社报道，俄罗斯空军的空中发射远程高精密导弹对奥德萨地区军用跟踪场的物流站进行了打击和破坏。俄方表示，该航站楼内保管着美国和欧洲国家支援的大量外国武器。此外，俄罗斯空军还破坏了保管导弹、大炮、弹药、燃料及润滑油等的乌克兰军储藏库16处。
 
+信息来源： [https://www.chosun.com/international/international\_general/2022/04/24/KHUPZDDWRNGXFPMTEJGTF766JI](https://www.chosun.com/international/international_general/2022/04/24/KHUPZDDWRNGXFPMTEJGTF766JI)
 
-4月23日，台湾行政院长苏贞昌表示，台湾不会采取上海那样的封锁措施，以达到控制国内新冠病例的增加。因为绝大多数感染者没有症状或只出现轻微症状，并承诺继续开放。
-
-自今年年初以来，台湾一直在应对本地病例的激增，但总体数字仍然有限——自1月1日以来有18436例，而台湾总人口约2300万，仅有4人死亡。
-
-台湾政府预计，到本月底，每天的病例将达到1万例，并警告说，高峰可能在几周之后到来。
-
-目前台湾政府正在推广“新台湾模式”，放弃清零，学习逐渐与病毒共存，避免关闭经济，而上海为控制疫情而采取的封城措施已持续1月多。
-
-台湾政府将提供更多快速检测试剂，为下一步的重新开放做准备，并减少新冠病毒感染者或密接者的隔离时间。
-
-台湾已经把对所有入境人员的隔离时间从两周缩短到10天，并正在考虑在重新开放边境之际进一步逐步减少隔离时间。
-
-新闻链接：[尽管新冠病例增加 台湾不会像上海那样封城](https://www.voachinese.com/a/taiwan-won-t-go-into-shanghai-like-lockdown-despite-rising-covid-cases-premier-says-20220422/6541849.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+责编：Eric Kim
 
  
 

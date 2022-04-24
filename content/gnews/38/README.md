@@ -2,49 +2,38 @@
 ---
 
 
-## 数据显示四月外资正加速撤离中国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2402578/)
+## 俄罗斯恶意网络行动的威胁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2402862/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-518.jpg)图片来自网络
-《路透社》近日报道，海外投资者在4月加大幅度抛售中共国股票，此前他们也曾抛售过中共国股票，原因是对新冠长期封锁的影响、经济增长和俄乌战争的影响的担忧不断增加。
+作者：日本东京方舟农场 – Miyali7768(文玉）
+![此图像的alt属性为空；文件名为新图标-4.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-4.png)
+根据《NEWXMAX》新闻网4月20报道，美国联邦机构和安全盟友周三发布的一份联合公告，警告俄罗斯对基础设施目标的网络威胁可能超出乌克兰边界。
 
-路孚特Eikon和香港证券交易所的数据显示，本月迄今为止，外国投资者通过香港的股票连接计划净卖出了价值10.1亿美元的中国股票，此前他们在3月份的销售量为71亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1231277670.jpg)
 
-中共国股票4月迄今已下跌近5%，因为上海和其他大城市严格的新冠封锁使经济活动瘫痪。
+美国网络安全和基础设施安全局（CISA）在其公告中称，自俄入侵乌克兰以来，政府网络专家发布的俄罗斯对关键基础设施构成的网络威胁的最全面看法， 俄罗斯可能在未来几天和几周内执行“恶意网络行动” 。
 
-今年以来，内地大盘和中盘股已经下跌了约20%，使中共国股市成为继俄罗斯之后全球表现最差的股市。
+CISA 主任 Jen Easterly 表示，俄罗斯国家支持和俄罗斯结盟的网络犯罪集团对美国国土的威胁能力。
 
-中国最高证券监管机构周四表示，尽管面临诸多挑战，但经济仍然健康，要求机构投资者更多地投资于股票，以帮助限制短期市场波动，同时为经济结构调整作出贡献。
+Easterly 强调：“我们知道恶意网络活动是俄罗斯剧本的一部分。我们也知道俄罗斯政府正在探索针对美国关键基础设施进行网络攻击的可行选项。”
 
-资产管理公司施罗德表示，中国股市估值目前已回到2020年3月新冠封锁前和2018年12月中美紧张关系飙升时观察到的低谷。
+报告还显示俄罗斯支持的一些网络犯罪组织威胁要开展网络行动，以报复针对俄罗斯或向乌克兰提供物质支持的国家或组织的网络攻击。
 
-“鉴于目前所有的不确定性，在面对风险时需要耐心。然而，由于强大的国内投资者基础，A股可能更具弹性。它们也有能力从更大的政策宽松中受益。”
+作为一项行动方案，CISA 及其合作伙伴建议组织和公司 升级安全网络，特别是身份验证和远程桌面协议，加强最终用户意识培训。
 
-债券投资者仍处于观望状态，主要是因为美国国债收益率飙升，侵蚀了中国债务的溢价，而且人民币也在迅速下跌。
+参考链接：[US Agencies, Cybersecurity Allies Issue Warning About Russian Cyber Attacks](https://www.newsmax.com/newsfront/cybersecurity-hacking-cyber-attacks-russia/2022/04/20/id/1066558/)
 
-上个月，外部投资者通过香港债券通卖出了价值177亿美元的中共国债券，这是自至少2017年8月以来最大的资金外流。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-10.jpg)
 
-中国中央国债登记结算有限责任公司的数据显示，截至3月底，外资持有的中国债券为35.7亿美元，为五个月来最低。
+编辑/校正/发稿：海阔天空1
 
-星展银行策略师Duncan Tan表示：”中共国政府债券（CGBs）在未来几个月可能会出现外资持有量下降，因为随着今年全球债券的大跌，CGBs的收益率优势已经消失，而且现在对中国人民银行积极降息的预期也很低。
-
-“全球债券投资者可能会认为，未来中共国国债的超额收益潜力会小很多。”
-
-你的钱在哪里，你的心就在哪里。这次中共面对疫情失控的封锁措施使很多人对中共国的未来不再抱有信心，就算嘴上不说，但大家纷纷都在用脚投票，“移民加拿大”搜索量暴增28倍就可以证明这一点。
-
-外资也是一样，上海封城使得很多外资工厂无法开工，资本是很现实的，如果无法在这里赚到钱那它们就会走，所以外资为什么会加速撤离中国就不难解释了。
-
-参考链接：
-
-[https://www.reuters.com/world/china/chinese-markets-continue-see-foreign-investment-outflows-april-2022-04-22/](https://www.reuters.com/world/china/chinese-markets-continue-see-foreign-investment-outflows-april-2022-04-22/)
-
-[https://www.rfa.org/mandarin/yataibaodao/huanjing/hx-04192022075829.html](https://www.rfa.org/mandarin/yataibaodao/huanjing/hx-04192022075829.html)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
