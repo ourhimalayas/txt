@@ -15,56 +15,56 @@
 
 ---
 
-### [有声|联合国表示 逾770万乌克兰人在国内流离失所](/content/gnews/1/README.md)
+### [灭共者之郭氏情报站（53）2022/04/23 七哥乱聊直播摘要](/content/gnews/1/README.md)
+ ` MOS Designer香草山设计部`
+
+### [过快的农村城市化应付的代价](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [共产党会将毒疫苗害人事件转嫁给老百姓不听话和美帝国主义](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [女子卖150碗熟肉被举报三无产品，法院：退赔5万。](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [共产党已经无路可走只有对外扩张战争](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [习近平对江浙人的看法](/content/gnews/6/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [【全文字幕】2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](/content/gnews/7/README.md)
+ ` 文贵视频字幕全集`
+
+### [中共国，上海一市民患帕金森被冒名注册志愿者。](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [北京及全国百分百施行隔离封城政策](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国，莲花清瘟是拿来预防的，还是拿来治疗的？在国外一些国家是禁止的！菜，食品送不进来，这药可以畅通无阻！到头来都是利益集团在挣。](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|俄罗斯测试新导弹进行核威胁](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处](/content/gnews/2/README.md)
+### [俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [有声|台湾积极反抗才能赢得盟军参战](/content/gnews/3/README.md)
+### [有声|台湾积极反抗才能赢得盟军参战](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|美志愿者为美国公司与中共深度勾连而羞愧](/content/gnews/4/README.md)
+### [有声|美志愿者为美国公司与中共深度勾连而羞愧](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|外企纷纷撤出 莫斯科20万人面临失业](/content/gnews/5/README.md)
+### [有声|战争中的家庭悲剧-父亲因买面包而死](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [COVID-19疫苗副作用集萃（2022.4.24B)](/content/gnews/6/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.24A)](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.24A)](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [4月23日勿忘香港（图片1-10）](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [20220423郭文贵乱聊直播 ：上海北京隔离的真相就是疫苗灾难最早期表现](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|日本援助乌克兰防护用品和无人机](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [20220423郭文贵乱聊直播 ：打着国家和民族的名义发动战争 转嫁矛盾掩盖真相](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [谈古论今 | 修成菩萨相——女性的最高境界](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [20220423郭文贵乱聊直播 ：北京绝对会被隔离未来将进行全国性的压力测试](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [4月23日乌克兰救援行动（图片1-15）](/content/gnews/14/README.md)
- ` 波士顿五月花农场`
-
-### [20220423郭文贵乱聊直播 ：4月26日佩罗西访台不一定成功](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [制裁打击俄罗斯经济，尽管普京不这么说](/content/gnews/16/README.md)
+### [制裁打击俄罗斯经济，尽管普京不这么说](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [20220423郭文贵乱聊直播 ：北京实行军管 掩盖疫苗造成的大量人员死亡](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京](/content/gnews/18/README.md)
  ` 美国政要直译推`
@@ -129,23 +129,23 @@
 ### [2022年4月23日七哥乱聊直播文字版](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/39/README.md)
+### [郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/39/README.md)
+ ` NFSC News`
+
+### [中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京](/content/gnews/40/README.md)
  ` thedawn`
 
-### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/40/README.md)
+### [4/23/2022国际财经快讯：俄罗斯阿姆斯特丹贸易银行宣布破产；币安交易所与俄安全局关联机构有联系](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [美欧日经济周报（4月18日～4月22日）](/content/gnews/41/README.md)
+### [美欧日经济周报（4月18日～4月22日）](/content/gnews/42/README.md)
  ` 经济小组`
 
-### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/42/README.md)
+### [闲聊澳洲：蓬佩奥接受FOX采访谈中共打台湾，佩罗西议长或迫降日本](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/43/README.md)
+### [若中共在所罗门群岛建永久军事存在，美将做出相应回应](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
-
-### [五角大楼：预计乌克兰战争将长期化](/content/gnews/44/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [中日财经爆┃金融制裁威力初显 俄属阿姆斯特丹贸易银行宣告破产](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

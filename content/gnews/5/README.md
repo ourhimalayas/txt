@@ -2,27 +2,20 @@
 ---
 
 
-## 有声|外企纷纷撤出 莫斯科20万人面临失业
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2401492/)
+## 共产党已经无路可走只有对外扩张战争
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2401569/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-自俄罗斯2月下旬向乌克兰发起侵略后，许多在俄外企为了表达抗议，纷纷作出撤离或暂停业务的决定，对当地经济产生了一定程度的打击。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-莫斯科市市长索比亚宁（Sergey Sobyanin）18日在博客中提到，随着越来越多的西方企业撤出，莫斯科将会有20万人面临失业风险。索比亚宁表示，对此，俄罗斯当局将拨款33.6亿卢布，以支持受到外企撤离影响的本地员工，希望为超过58,000名外企员工提供支持，目前约12,500人正在接受再培训，其余的也有望在公共工程项目中获得临时工作的机会。据耶鲁大学管理学院的统计数据显示，有超过 750 家企业缩减了在俄罗斯的业务。
+*发布：陶子*
 
-文字版原文：[外企纷纷撤出 莫斯科20万人面临失业](https://gnews.org/zh-hans/2388177/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-音频处理/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

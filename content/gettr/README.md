@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 12:39 AM (UTC)`
+
+4/23/2022: On April 23, 2021,  Miles revealed that the pilots on the CCP’s aircraft carrier Liaoning were all from Russia. Exactly one year later, a CCP military plane crashed in Henan Province, and local villagers found a Russian pilot in the wheat field along with a Chinese pilot. This proves that the relevant information Miles uncovered in 2021 is 100% true!<br/><br/>4/23/2022 一年前的4月23日，文贵爆料中共辽宁号航母的飞行员都来自俄罗斯；整整一年后，一架中共军机在河南坠毁，当地村民发现了掉落在麦田中的俄罗斯飞行员，这100%验证了文贵的爆料！<br/><br/>
+![img](https://media.gettr.com/group30/getter/2022/04/24/00/096d6ef7-09dd-f431-6431-d3d3810e18e7/out.jpg)
+
+---
+
+`@miles 4/24/2022 12:35 AM (UTC)`
+
+A PLA’s fighter jet crashed today in Shangqiu, Henan province. Onsite videos confirm that PLA hires Russian pilots. On this exact day last year (Apr 23, 2021), Mr. Miles Guo exposed that the PLA hired Russian pilots and used fighter jets (J-15, J-15B) from Russia to show they were able to take off and land on aircraft carrier Liaoning. <br/><br/>中共党卫军的战斗机今天在河南商丘坠毁。现场的视频证实了中共军队雇佣俄罗斯飞行员。去年的今天（2021年4月23日），郭先生爆料中共雇佣俄罗斯的飞行员和用来自俄罗斯的歼15和歼15B在辽宁号航母上表演起飞降落。
+![img](https://media.gettr.com/group26/origin/2022/04/24/00/5b756cb3-5fb5-a364-16c7-d4e890c6180f/out.jpg)
+
+---
+
+`@miles 4/24/2022 12:33 AM (UTC)`
+
+2022.04.23 晚  新中国联邦 | 新闻   有可疑人士蓄意破坏新中国联邦法制基金救援基地；西藏流亡政府议会主任在梅迪卡边境接受战友采访
+![img](https://media.gettr.com/group36/origin/2022/04/24/00/0faa071d-63d1-9681-45cf-5ff609e19fac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/23/2022 11:56 PM (UTC)`
 
 4月23号：恰恰是在一年前的同一天，2021年4月23号．七哥的预警中国的航空母舰用的是俄罗斯的飞机和俄罗斯的飞行员．这说明了什么？
@@ -133,26 +154,6 @@ The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – 
 
 新中国联邦｜真人真事 第50期  华盛顿DC农场 Longwood大根<br/>同传English: https://gettr.com/streaming/p16rd9t2713
 ![img](https://media.gettr.com/group20/origin/2022/04/23/13/75a7f04c-6c8a-e769-09e5-9b5eecfecd0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 1:41 PM (UTC)`
-
-04/23/2022 on the 5th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 7 countries Top Music Video Charts <br/>No.1 🥇 on 9 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Hungary🇭🇺, Canada🇨🇦, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月23号，《铁锁梦》MV在全球上线第五天，登榜iTunes <br/>7国MV总榜第一名🥇<br/>9国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，匈牙利🇭🇺，加拿大🇨🇦，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2398694/
-
----
-
-`@miles 4/23/2022 1:10 PM (UTC)`
-
-七哥乱聊
-![img](https://media.gettr.com/group44/origin/2022/04/23/13/babc218b-a1ac-0789-a655-5c4a4ec27355/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 12:51 PM (UTC)`
-
- 4月23号：七哥大约在20分钟左右开始乱聊直播，大约时长半小时左右！
-![img](https://media.gettr.com/group32/getter/2022/04/23/12/fa0961d4-b4ff-11d4-37f5-5c355d084705/out.jpg)
 
 ---
 
