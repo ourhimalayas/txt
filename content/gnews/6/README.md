@@ -2,12 +2,63 @@
 ---
 
 
-## 4月23日乌克兰救援行动（图片1-15）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2401283/)
+## COVID-19疫苗副作用集萃（2022.4.24B)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401490/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2C3556BC-523B-44E5-ACFC-8B22BF5CBD50.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/60C1B4E5-595A-4FCC-A14B-38EE645055B6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/70F03432-61E5-4AEC-9827-E16B6F1CB7BF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6D2BF6D9-2B49-4EF9-88C1-363492455AF1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CD9DCDA8-FC08-4213-BC92-02FE1802C115.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/ABCCDCAC-E9F0-4057-A68B-C4D947468C96.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/585163ED-EEBC-47AB-BEC5-D99C35990A15.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/53B55AC2-35D5-4F37-BC97-D2A681B57DDC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/68A6C4D6-F585-49E8-AE14-7AD47CBB1E0C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/82AB88BD-F26F-4AB7-8074-1BA8BED71B4F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5C38E90A-7B45-4BC4-8A46-44ADBB139A67.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/AECB309B-5736-42A1-BF24-311F5204FE81.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CAD99D53-C5B3-40EE-86D5-5AFCB6604896.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6DBD631D-2C5A-4756-92D6-618EAEA6263C.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/EF6AE636-2650-4A5B-9D91-091DBEE9C8E1.png)
-发布：水涨船高
+#### 雅典娜情报组《疫苗灾难收集专栏》
+
+整理/编辑：红红火火
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-31.png)图片来源：雅典娜设计组(614)
+
+
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**博主:  水师提督**
+
+**帖子原文:**
+
+我叫张旭，家住黑龙江省齐齐哈尔市甘南县查哈阳农场。我儿子叫张力仁十周岁，他是一个心地善良，乐于助人，活泼可爱，身体健康的好孩子好学生2021年11月26日接种长春生物生产的新冠疫苗第二针20分钟后出现呕吐，一周后出现浑身乏力，腿疼，嗓子疼，咳嗽，低烧，然后吃药和输液，（当时以为是感冒）12月17日孩子高烧38.5度，然后带她去县医院做检查，医生建议去市医院做进一步检查，12月18日去齐齐哈尔市医学院附属第二医院做骨穿确诊急性白血病。然后住院化疗，现在已经四个完成疗程的化疗。
+
+现已花费15万元，医生说还要五年的持续治疗。我本来就是个农民现在已经债台高筑。
+
+孩子脱离危险期后，我向当地疾控中心申报接种疫苗后罕见严重不良反应，疾控中心向@人民日报 我要的资料病历很多，但鉴定结果是简简单单的“偶合症”，这份鉴定结果上没有说明根据什么医学依据鉴定的，更是对疫苗的成分只字未提，我们都知道，制作疫苗里面要加入甲醛，丙酮，柳酸汞等等（国家规定每毫克的疫苗里面不能超过50微克甲醛），还有这个疫苗的AD反应，突刺蛋白氧化石墨烯什么的。我从向疾控中心上报到给我鉴定结果，已有将近两个月，相关部门就是推诿踢皮球，最可笑的是鉴定结果已经完成，居然还向我要孩子七年前因为脑炎住院的病历和家族史（我和我爱人家里面没有人得过血液病）。
+
+当时相关人员呼吁要形成免疫屏障，人人接种新冠疫苗，我父母都70岁了，积极参与早晨去排队打疫苗，比工作人员去的还要早，在那里排队等候。
+
+众所周知，新冠疫苗是二类疫苗，应该在紧急情况下使用，我家这里从疫情开始到现在没有过一例阳性患者，那当时我们这里为什么要让所有人都接种疫苗？现在我儿子因为接种疫苗得了白血病，属于罕见严重不良反应，怎么没有人管了？也不知道是谁组织的鉴定会？在哪儿找的所谓的专家？我要求参加鉴定会也不让，既然是公平公正的鉴定会，为什么害怕家属参加？
+
+最后，希望正直正义的相关领导为我们主持公道！（和我儿子一样，因为接种疫苗后得白血病，血液病的人有很多）请看到这条微博的人帮我转发，谢谢了！
+
+**#新冠疫苗****#白血病**
+
+**发布于 2022-04-22**
+
+**精选评论**
+
+打不死的小强2022:
+
+你孩子的白血病是免疫系统被破坏造成的，你还给他化疗继续破坏免疫系统，就算“好了”也只是因为症状被压抑，表面上好了，导致问题的原因根本没解决，在体内继续酝酿，过了不久又会爆发。作为医生我可以很肯定的跟你说现代医学根本治不了癌症，所以我们从来不说治愈率，只有五年存活率，因为会复发
+
+水师提督丶:谢谢您 我也想过带孩子去看中医
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-151.png)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-69.png)图片来源：小红书
+
+
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
+
+发布：文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220423郭文贵乱聊直播 ：北京实行军管 掩盖疫苗造成的大量人员死亡
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401246/)
+## 20220423郭文贵乱聊直播 ：上海北京隔离的真相就是疫苗灾难最早期表现
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401392/)
 
 作者：东京樱花团小视频组
 

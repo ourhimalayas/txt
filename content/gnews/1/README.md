@@ -2,12 +2,37 @@
 ---
 
 
-## 4月23日勿忘香港（图片1-10）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2401416/)
+## 有声|联合国表示 逾770万乌克兰人在国内流离失所
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2401504/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/090C5C3B-B0F3-4733-A177-656374D0FE39.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/43AE79C1-FFF2-4626-8B21-2B3CA06956C6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/257A92FF-2604-4FFE-A166-B901A49D824D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D03AC4BC-9EC9-4D3A-AC03-92D7F0CFC82F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A8542C6C-88C7-4BB0-AAC3-B365DA412F74.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/FD697221-A9FE-4D8E-ADAF-893A39C22CD3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9F19B928-BEE0-448B-9C81-22C493D1A0F0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/02285F40-6D29-41FA-BD64-DF3F44DF619B.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BF288270-C10F-409C-8360-BB79A07215C1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/0A21AD9B-CFDE-4A4A-AABD-4353AD89E527.png)
-发布：水涨船高
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月21日，联合国移民机构表示，自俄罗斯发动入侵战争以来，已有超过 770 万乌克兰人在国内流离失所。这个数字占乌克兰总人口的 17%，比4月初评估的人数增加了 9%，比3月中旬首次评估的人数增加了 19%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-48.png)
+该机构表示，在这些流离失所的人群中，至少60%是妇女，超过一半的人普遍缺乏食物。另外在乌克兰境内，有5岁以下儿童的家庭中，有28%表示他们在为孩子筹备食物时遇到了困难，比四月初时增加了3个百分点。
+
+
+
+
+
+文字版原文：[联合国表示 逾770万乌克兰人在国内流离失所](https://gnews.org/zh-hans/2395988/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
