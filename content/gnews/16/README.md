@@ -2,40 +2,41 @@
 ---
 
 
-## IMF：俄乌大战将导致经济增长“显著放缓” 中美经济增长预期均遭下调
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2404774/)
+## 有声|温布尔登网球锦标赛禁止俄罗斯和白俄罗斯运动员参加
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2405154/)
 
-编辑/翻译：幸运草
-发稿：中华联邦公民
-德国纽伦堡正义农场
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+来自外媒4月20日的消息，温网承办方全英俱乐部正式发表声明，宣布温布尔登网球锦标赛将禁止所有俄罗斯和白俄罗斯球员参加比赛，理由是俄罗斯入侵了乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10-20.png)
+声明称：在这种不合理和前所未有的军事侵略的情况下，俄罗斯政权从俄罗斯或白俄罗斯球员参与锦标赛中获得任何好处是不可接受的，因此俱乐部打算拒绝俄罗斯和白俄罗斯球员参加 2022 年世锦赛。
 
-国际货币基金组织（IMF）4月19表示，由于俄罗斯入侵乌克兰，今年全球经济复苏将“显著放缓”。IMF不仅下调了东欧国家的增长前景，还警告称，世界各国将受到战争对商品市场造成的破坏的影响。
+该禁令将丹尼尔·梅德韦杰夫等 31名男子球员排除在外。前女子世界排名第一的维多利亚·阿扎伦卡和现排名第四的阿里娜·萨巴伦卡也被禁止参赛。
 
-IMF预测，今明两年全球经济增长预期遭下调。IMF将2022年全球经济增长预测从4.4%降至3.6%，将2023年全球经济增长预测从3.8%降至3.6%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-14.jpg)
-
-IMF 经济顾问古林查斯表示：“这场危机发生在全球经济处于改善的道路上时爆发，因为经济尚未从新冠大流行中完全恢复。”
-
-俄罗斯的经济增长遭到了最大的下调，今年该国经济预计将收缩8.5%（入侵前预计将增长2.8%）。西方对该国的制裁切断了其进出口贸易，其他措施则在很大程度上使俄罗斯中央银行和私人银行与全球金融体系脱节。
-
-但由于俄罗斯作为能源和金属出口国，对全球经济的十分重要，全球经济可能会感受到价格上涨的连锁反应。IMF表示，供应中断可能会加剧美国等国家已经出现的高通胀。
-
-古林查斯指出：“即使在战争之前，由于大宗商品价格飙升和大流行引发的供需失衡，许多经济体的通货膨胀率已经飙升。”
-
-**美国和中国经济增长预期遭下调**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-13-副本-1.jpg)
-
-物价压力仍然是美国经济增长的首要因素，IMF预计美国今年GDP将增长3.7%（低于1月份预测的4.0%）。尽管IMF将美国对俄罗斯的敞口描述为“有限”，但美联储将采取的更加激进的加息路径恐打压经济增长。高通胀正在促使美联储官员支持大幅且连续的加息。
-
-IMF还提请注意新冠疫情防控措施引发的风险。中国严格的清零政策导致上海等主要经济中心遭到封锁，促使IMF将中国今年的增长前景下调至4.4%（相比之下，其1月份的预测为4.8%）。
-
-原文出处：[Global economy to ‘slow significantly’ following Russian invasion of Ukraine: IMF](https://finance.yahoo.com/news/9-am-et-tuesday-global-economy-to-slow-significantly-following-russian-invasion-of-ukraine-imf-130051089.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
+另外，稍早些时候，波士顿马拉松赛已经禁止俄罗斯和白俄罗斯选手参加；俄罗斯足球队也被取消了参加今年晚些时候在卡塔尔举行的男子世界杯的资格。
 
 
+
+
+
+文字版原文：[温布尔登网球锦标赛禁止俄罗斯和白俄罗斯运动员参加](https://gnews.org/zh-hans/2395984/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

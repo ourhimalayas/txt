@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 2:30 PM (UTC)`
+
+2022年4月24日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>从乌克兰救援以来，法治基金和法治社会受捐款是有史以来最高的。而且现在的捐款额远远超过了到乌克兰救援的前线。这说明了中国人的正义和中国人绝对不缺勇士、不缺有良知、不缺真正的有智慧。 希望中国人走向法治民主自由时代的真正的中国人，这就是我们的动力！<br/><br/>4/24/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors!<br/><br/>Since the beginning of the Ukraine rescue, donations to the ROL Foundation and Society are the highest ever. These donations far exceed other front line Ukrainian relief efforts. This shows the righteousness of the Chinese people. There are many courageous, conscientious, and wise Chinese people.  We hope Chinese enter the era of rule of law, democracy and freedom. This is our driving force!
+![img](https://media.gettr.com/group46/getter/2022/04/24/14/cc657d3f-4629-a482-5a48-10745f8b70ff/out.jpg)
+
+---
+
 `@miles 4/24/2022 1:52 PM (UTC)`
 
 【Ukraine Rescue】4/22/2022 After the event of an American man trying to attack Little Sara at the Medyka camp, several French volunteers come over to show support to us and blame that American man.<br/><br/>【乌克兰救援】4/22/2022 在一名美国人在梅迪卡营地试图袭击小Sara的事件后，几名法国志愿者来向我们表示支持并指责那个美国人。<br/><br/>
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】 04/22/2022 The suspected spy of the Chinese Communist Party cut the billboard wire of our New Federal State of China in the United Nations Migration Agency tent.<br/><br/>【乌克兰救援】 04/22/2022 疑似共产党的间谍在联合国移民署帐篷里面剪断了我们新中国联邦广告牌的电线
 ![img](https://media.gettr.com/group11/getter/2022/04/23/22/de22b283-a6e2-0417-8e03-5bcdf39cba00/out.jpg)
-
----
-
-`@miles 4/23/2022 10:32 PM (UTC)`
-
-4/23/2022 Miles Guo: According to our fellow fighters from mainland China, the daily positive cases in Beijing are at least tens of thousands, and the CCP has well prepared for imposing a massive lockdown and control in Beijing; Miles Guo reminded us again that all positive cases are actually the COVID vaccine reactions, and the vaccine disaster created by the CCP is on its way.<br/><br/>4/23/2022 文贵直播：据国内战友的消息，北京每天至少不下上万人检测出阳性，中共已在北京做好大封控的准备；文贵再次提醒大家，所有的病毒阳性都是疫苗反应，是中共共故意制造的疫苗灾难的来临<br/>
-![img](https://media.gettr.com/group47/getter/2022/04/23/22/143f6d57-73ad-2ffd-153e-c90abf965b6b/out.jpg)
 
 ---
 

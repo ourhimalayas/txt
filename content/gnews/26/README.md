@@ -2,47 +2,39 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾 (2022年4月13日~4月20日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404534/)
+## 遭制裁的俄银行创始人：90%的俄罗斯人反对俄乌战争 呼吁西方给普京“一个明确的出口”
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2404583/)
 
-作者：DC农场 火来
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.03.32-PM.png)
-- 2022年4月13日至20日，除中共国外，全球新增中共病毒确诊患者489万余例，同比上周的667万余例下降了26.7%；此外，本周新增确诊死亡病例18125例，同比上周的22667例下降了20.0%。本周已是连续第七周全球确诊病例和死亡病例持续负增长。
+编辑/翻译：幸运草
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-12.jpg)俄罗斯数字银行创始人 奥列格·廷科夫（Oleg Tinkov）
 
-- 截止4月20日，除中共国外，全球累计接种了83.1亿剂中共病毒疫苗，同比4月13日的接种数据增长了0.362%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续七周低于百分之一。
+4月19日，俄罗斯数字银行创始人廷科夫抨击俄罗斯对乌克兰的“疯狂”战争，并呼吁西方国家给俄罗斯领导人普京“一个明确的出口，以保住他的面子，停止这场大屠杀。”
 
+廷科夫在Instagram上发帖称，“90%的俄罗斯人反对这场战争!”他还认为，剩下的10%是“白痴”，俄罗斯军队已经暴露出了“愚蠢”。
 
-- 4月14日，据美联社收集并分析的数据显示，2020-2021学年度，选择在家上学的学生比疫情前增长了63%，2021-2022学年学校已经完全重新开放，但是在家上学的学生比例仍然维持在高位，仅比上一年度下降了17%。家长们仍然对健康等因素感到担忧。
+“我看不出有一个人是这场疯狂战争的受益者!”廷科夫在Instagram上用俄语写道。“无辜的人民和士兵正在死去。将军们从宿醉中醒来，意识到他们的军队很烂。”
 
+“如果这个国家的其他一切都是肮脏的裙带关系，军队怎么能好呢?”
 
-- 4月14日，辉瑞向FDA申请五岁以下儿童疫苗加强针的使用授权。
+廷科夫写道:“克林姆林宫的官员们很震惊，不仅他们，就连他们的孩子夏天也不能去地中海了。”“商人们正在努力抢救剩下的财产。”
 
+“当然有白痴在画Z(在俄罗斯，其象征支持入侵乌克兰)”，“但任何国家都有10%的白痴。”
 
-- 4月18日，美国佛罗里达州联邦法官下令撤销联邦政府针对飞机、火车等公共交通乘客的口罩强制令。两天后的4月20日，美国CDC随即要求司法部对佛罗里达州联邦法官的裁决进行上诉。
+“亲爱的‘西方集体’，请给普京一个明确的退路，以保全他的面子，阻止这场大屠杀，”廷科夫在结尾处写道。“请更加理性和人道主义。”
 
+廷科夫是TCS Group Holding和数字银行Tinkoff Bank的创始人。在他发表这篇文章的几周前，英国制裁了他，冻结了他在英国的个人资产。英国还制裁了其他一些俄罗斯个人和实体。
 
-- 4月20日，辉瑞董事会成员、前FDA官员Scott Gottlieb医生接受采访时表示，哪怕周围的人都不戴口罩，高质量的N95口罩仍然有较好的保护作用。
+在俄罗斯于2月底入侵乌克兰之前，54岁的廷科夫的财富估计超过44.2亿美元。
 
+但《福布斯》上月报道称，他已经失去了亿万富翁的地位，因为自去年11月以来，Tinkoff Bank的股价大幅下跌。
 
-- 4月20日，诺华公司宣布，该公司研发的新冠和流感综合疫苗初期实验显示有不错的效果，将继续推进第二期临床试验，但是诺华的新冠疫苗至今仍然没有获得FDA的使用授权。
+原文出处：[Sanctioned Russian bank founder Oleg Tinkov condemns ‘insane’ Ukraine war, calls on West to give Putin face-saving exit](https://www.cnbc.com/2022/04/19/russian-bank-founder-oleg-tinkov-condemns-ukraine-war-seeks-putin-exit.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
 
-参考链接：
-
-1. [Homeschooling surge continues despite schools reopening](https://apnews.com/article/covid-business-health-buffalo-education-d37f4f1d12e57b72e5ddf67d4f897d9a)
-2. [Pfizer and BioNTech to ask FDA to authorize COVID-19 booster for kids as young as 5](https://www.cbsnews.com/news/covid-vaccine-booster-pfizer-kids-ask-fda/)
-3. [CDC asks Justice Department to proceed with mask mandate appeal](https://www.foxnews.com/us/cdc-asks-justice-department-proceed-mask-mandate-appeal)
-4. [DOJ to appeal ruling striking down mask mandate after CDC gives OK](https://nypost.com/2022/04/20/cdc-asks-doj-to-appeal-ruling-to-bring-back-mask-mandate-on-planes-trains/)
-5. [Dr. Scott Gottlieb: High-quality Covid masks work even if others around you aren’t wearing one](https://www.cnbc.com/2022/04/20/dr-scott-gottlieb-covid-masks-work-even-if-others-around-you-arent-wearing-one.html)
-6. [Novavax says vaccine targeting Covid and flu shows promising results in early data](https://www.cnbc.com/2022/04/20/novavax-says-vaccine-targeting-covid-and-flu-shows-promising-results-in-early-data.html)
-
-
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
-
-编辑/总编/审核：Zion文恩
-校正/发稿：我不在这里
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

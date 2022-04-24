@@ -2,12 +2,14 @@
 ---
 
 
-## 辉瑞中共病毒疫苗缺乏适当的质量控制
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2405251/)
+## 【 蓝枫法律 】 五十一期 法律你我她：言论自由法律 之 社交媒体平台的遵循与逾越 &#8211; PPT展示
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2405509/)
 
-04/23/2022 内奥米·沃尔夫表示：辉瑞中共病毒疫苗的合作伙伴拜恩泰科和上海复星医药集团有合作。美国食品药品监管局没有对辉瑞疫苗进行质量控制和毒性检查。
+#### **加拿大温哥华扬帆农场 – 蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-244.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-147.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-109.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-76.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-69.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6-57.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-53.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9-41.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/10-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/11-38.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/12-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/13-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/14-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/15-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/16-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/17-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/18-10.png)
+**直播视频：**[https://gettr.com/post/p16srcaaf60](https://gettr.com/post/p16srcaaf60)
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+**编辑/发文：蓝枫法律栏目**
 
  
 
