@@ -2,10 +2,10 @@
 ---
 
 
-## 法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2401864/)
+## 俄罗斯入侵乌克兰重新点燃了日俄对北方四岛的争夺战
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2401845/)
 
-04/22/2022 法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术
+04/22/2022 印度媒体Wion：俄罗斯入侵乌克兰重新点燃了日俄对北方四岛的争夺战。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

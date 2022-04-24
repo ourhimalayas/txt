@@ -2,12 +2,16 @@
 ---
 
 
-## 短片《四月之聲》遭全網刪除。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401944/)
+## 近日，上海露天帳篷隔離營建在馬路上。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401939/)
 
 作者：东京樱花团小视频组
 
-網傳短視頻《四月之聲》控訴當局出爾反爾和封城製造的無數人道災難。該視頻沒有出現不適內容，可能是為避免「太過敏感」。
+
+
+
+
+
 
 编辑发布：东京樱花团小视频组
 

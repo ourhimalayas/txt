@@ -2,26 +2,21 @@
 ---
 
 
-## 新中國聯邦新聞、NFSC新聞訪談簡報|2022年4月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2402040/)
+## 4月21日，一位母親帶著8歲孩子，露天通宵等待給孩子看病，結果22日，醫院告知連B超都做不了。這位母親還聽說，有的人在這裡等了4天4夜，仍然得不到救治。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2402041/)
 
-作者：香草山翻譯部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-159.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-TC-22.png)
+作者：东京樱花团小视频组
 
 
-校對：Stay文苑
-編輯：Stay文苑
-發稿：Stay文苑
-新聞：[https://gettr.com/post/p16t0x9e84c](https://gettr.com/post/p16t0x9e84c)
-訪談：[https://gettr.com/post/p16tm6g48c6](https://gettr.com/post/p16tm6g48c6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
 
-**更多資訊，更多關注** 
-[紐約香草山農場 | GETTR](https://www.gettr.com/user/himalaya_mos)
-[紐約香草山農場 ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[歡迎加入香草山農場  | Discord](https://discord.com/invite/ChqXAHd)
 
+
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
