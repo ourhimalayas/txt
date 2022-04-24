@@ -2,102 +2,29 @@
 ---
 
 
-## 视频|419断播的意义
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406561/)
+## 中共对上海大隔离期间网路言论进行清算
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2406580/)
 
-香草山：铭心
+作者：银河系农场 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+在4月21日的直播节目中，郭先生就指出，上海大隔离可能很快结束，接下来中共将对隔离期间的网络言论进行审查与清算。
 
-On April 19th, 2017,
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-12.42.11-PM.png)
 
-2017年4月19日，
+仅一日后，中共喉舌4月21日发表消息称，封禁所谓传播上海防疫谣言的30个网路群组，对23名发布谣言的国内微信个人用户进行处罚。并否认网络上热传的上海民警背假人，孕妇早产死亡，援助物资无人接收，蔬菜烂在地里卖不掉等老百姓经历的真实事件。中共当局系统性的洗地、辟谣上海疫情人道灾难，引发各界的强烈愤慨，但迫于中共淫威，此类消息
 
-Miles Guo was interviewed by the Voice of America (VOA).
+郭先生在22日盖特视频中爆料，因发布上海大隔离期间，一位老人因没有食物吃，饿到吃粪便致死的义工，被中共定义为国外势力操纵，对党造成巨大伤害的舆论攻击行为。中共对上海的清理整顿实质已然摆在明面。
 
-郭文贵先生在接受美国之音VOA的直播采访时，
+参考链接：[4月22号：尊敬的战友们好．对中国共产党的经济和金融市场，包括香港．有任何幻想的人．那绝对是噩梦，你将失去一切！醒来吧，被欺骗了百年的同胞们！](https://gettr.com/post/p16mdd865c9)
 
-However this interview was forcibly stopped by VOA.
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-被VOA强制中断了正在直播中的节目。
+总编：文恩
+编辑：静言
+审核：Irene木木
+校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
 
-The incident then immediately sparked a great deal of attention around the world.
-
-该事件引发了世界的极大关注。
-
-It is reported that just 24 hours before VOA decided to interview Miles,
-
-据悉，就在VOA采访郭先生的24小时前，
-
-Meng Hongwei, the former Vice Minister of Public Security of the Chinese Communist Party,
-
-中共原公安部副部长孟宏伟，
-
-used his position as President of Interpol
-
-借由其任国际刑警组织主席职位之便，
-
-to issue a red notice against Miles.
-
-通过国际刑警组织发布了对郭先生的红色通告。
-
-The Chinese Communist Party used every means to try to stop VOA’s interview with Miles.
-
-中共用尽手段，企图阻挠VOA对郭先生的采访。
-
-After the VOA incident, Miles realized the need for freedom of expression and communication.
-
-在VOA断播事件发生后，意识到言论自由传播的必须。
-
-Miles formally began a series of activities to expose the truth about the Chinese Communist Party,
-
-郭先生正式开启一系列针对中共秘闻的爆料活动，
-
-including the establishment of “Guo’s Seven Principles”,
-
-包括制定“郭七条”，
-
-the exposing “Blue, Gold and Yellow” plan of the Chinese Communist Party, the inside story of the HNA Group,
-
-揭露中共“蓝金黄”计划、海航集团内幕，
-
-and the “death of Wang Jian”.
-
-以及“王健之死”真相等
-
-These actions are universally known as the “Whistleblower Movement”.
-
-——而这些行动被统一命名为：“爆料革命”。
-
-On the other hand, Miles has designed a huge financial system for the future
-
-另一方面，郭先生为“爆料革命”的支持者的未来
-
-of the supporters of the “Whistleblower Movement”.
-
-设计了庞大金融体系。
-
-He has established G-Series ecosystems such as Himalaya Alliance, Himalaya Exchange,
-
-建立了喜马拉雅联盟、喜马拉雅联储，
-
-G-Club, G-Fashion, GNews and Gettr.
-
-G-Club、G-Fashion、GNews和Gettr等G系列生态圈。
-
-On April 19th, 2022, after five years of development,
-
-为纪念419这个重要的日子，2022年4月19日，经过五年的发展，
-
-the Himalaya Alliance website will be officially announced and put into use, to commemorate the important date of 419.
-
-喜马拉雅联盟网站将在这个重要日子正式宣布，投入使用。
-
-Showing the new image of the New Federal State of China and the new Chinese people.
-
-展现新中国联邦 ，新中国人的新形象。
-
-
-
-发布：奇门遁甲
 
  
 

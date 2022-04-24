@@ -2,37 +2,34 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
+## 视频|新中国联邦和法治基金收到来自乌克兰驻新加坡_文莱_新西兰大使馆的感谢信
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406607/)
 
-作者：香草山翻译部
+香草山：铭心
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
+新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
+The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
 
-文章仅代表作者本人观点，与Gnews无关
+今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
 
-视频参看：
-[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
-[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
+Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
+It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
+
+从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
+
+As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
 
 
+
+【发布】奇门遁甲
 
  
 

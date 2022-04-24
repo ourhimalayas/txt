@@ -2,12 +2,12 @@
 ---
 
 
-## 在一名美国人在梅迪卡营地试图袭击小Sara的事件后，几名法国志愿者来向我们表示支持并指责那个美国人
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2405231/)
+## 辉瑞中共病毒疫苗缺乏适当的质量控制
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2405251/)
 
-【乌克兰救援】4/22/2022 在一名美国人在梅迪卡营地试图袭击小Sara的事件后，几名法国志愿者来向我们表示支持并指责那个美国人。
+04/23/2022 内奥米·沃尔夫表示：辉瑞中共病毒疫苗的合作伙伴拜恩泰科和上海复星医药集团有合作。美国食品药品监管局没有对辉瑞疫苗进行质量控制和毒性检查。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

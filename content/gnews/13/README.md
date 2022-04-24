@@ -2,34 +2,29 @@
 ---
 
 
-## 视频|新中国联邦和法治基金收到来自乌克兰驻新加坡_文莱_新西兰大使馆的感谢信
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406607/)
+## 北上广深军管戒严 中共用疫情掩盖疫苗灾难
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2406627/)
 
-香草山：铭心
+作者：银河系农场 骄子 ，日本方舟农场 Andy5
 
-新中国联邦和法治基金收到来自乌克兰驻新加坡\文莱\新西兰大使馆的感谢信
+4月23日郭文贵先生在盖特紧急直播中指出，中共会用病毒隔离防疫手段，来掩盖疫苗灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-12.51.54-PM.png)
+郭先生爆料，目前中共从各地抽调至北京的武警人数，已经激增至6万。并且这些武警都是按照长期驻扎的标准入京的。这是中共建国以来，甚至文革时期都未曾出现过的。这表明中共知道疫苗灾难已经来临。上海、广州、杭州、苏州、深圳、北京、武汉、郑州、大连、青岛等省市由于中共病毒疫苗施打过多，当疫苗灾难到来时，会有大量死亡事件发生，目前该现象已经在上海显现。大面积的死亡可能会导致社会动乱，中共恐惧老百姓上街，于是利用暴力隔离手段强行欺骗，将疫苗造成的死亡全部转嫁，谎称是老百姓不听话，不按规矩进行隔离造成的死亡，同时也是所谓的反对派联合境外势力给国内带来动乱。
 
-The New Federal State of China and the Rule of Law Foundation Received a Letter of Gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand
+郭先生还提到，北京隔离可能按月进行，1-2个月过后会有一段放风期，然后继续隔离，如此循环。如若有人上街闹事，就会被下令隔离，有人在微信等社交媒体发布真相，也会马上被屏蔽。中共同时采取的措施还包括关闭电商和支付方式，关闭老百姓买粮食、出行和日常生活的所有渠道，让人在家隔离，活活等死。
 
-今天，新中国联邦和法治基金收到了一封乌克兰驻新加坡\文莱\新西兰大使馆的感谢信。
+郭先生最后再次提醒大家，墙内的疫苗灾难已经开始，战友们要根据自己的情况做好应对。
 
-Today, the New Federal State of China and the Rule of Law Foundation received a letter of gratitude from the Embassy of Ukraine in Singapore, Brunei, and New Zealand.
+参考链接：[七哥乱聊](https://gettr.com/post/p16qngm5663)
 
-奥莱娜·费莱纽克（Olena Feleniuk ）女士，以乌克兰驻新加坡\文莱\新西兰大使馆的贸易办公室主任的官方身份，致谢新中国联邦和法治基金，感谢我们帮助乌克兰公民Kyrylo Kucherov先生一家3口成功从乌克兰撤离，成功抵达了新西兰的奥克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-Ms. Olena Feleniuk, in her official capacity as the Chief Trade Officer of the Embassy of Ukraine in Singapore, Brunei, and New Zealand, thanked the New Federal State of China and the Rule of Law Foundation for their help in the successful evacuation of Mr. Kyrylo Kucherov’s family of 3 Ukrainian citizens from Ukraine to their successful arrival in Auckland, New Zealand.
+总编：文恩
+编辑：熊嘟嘟
+审核：文真
+校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
 
-非常重要的是，费莱纽克女士在信中明确提到了新中国联邦，她写道：感谢新中国联邦和法治基金会，对俄罗斯入侵乌克兰而离家的乌克兰人的撤离工作的支持和帮助！
-
-It is of great significance that Ms. Feleniuk explicitly mentions the NFSC in her letter, stating: “Thank you, New Federal State of China and the Rule of Law Foundation, for your support and assistance in the evacuation of Ukrainians who had left their homes after Russia’s invasion of Ukraine.
-
-从费莱纽克女士所附的机票中可以看到，这一家是4月17号的飞机从波兰的克拉科夫飞往新西兰的奥克兰。费莱纽克女士在信中提到“飞行难度较大，因此飞行过程中修改了航线”，并附上了改航的附件。
-
-As seen from the airline tickets attached by Ms. Feleniuk, the family of 3 was on a flight from Krakow, Poland to Auckland, New Zealand on April 17th. In her letter, Ms. Feleniuk mentioned that “the flight was difficult as the flight route was modified during the flight”, and added an attachment of the modified tickets.
-
-
-
-【发布】奇门遁甲
 
  
 
