@@ -2,10 +2,16 @@
 ---
 
 
-## 崑山中華園區，大多數是外來打工者，被困一個多月，不准出門，也不提供食物。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401863/)
+## 近日，上海露天帳篷隔離營建在馬路上。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401939/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
 
 编辑发布：东京樱花团小视频组
 

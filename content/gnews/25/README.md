@@ -2,38 +2,76 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2401091/)
+## 评《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2401148/)
 
-作者：香草山翻译部
+**作者：卢卡斯，沉默老歌，88JJ，16626**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-106.png)
+发布于Gnews网站的一篇文章[《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》](https://gnews.org/zh-hans/2401108/)描述了当前世界范围内即将开始的疫苗灾难，而各国政府仍在继续强推疫苗接种。辉瑞公司制造的疫苗占有全世界疫苗市场最大份额，二个月前该公司被美国法庭强制立即公布了辉瑞疫苗多达1000多项致命副作用。然而各国政府对这些已经公开的疫苗副作用充耳不闻，仍在不顾一切地生产、制造并继续强推疫苗接种，这背后的原因令人费解。本文作者对此进行了思索和评述，形成一篇短文，抛砖引玉，希望引起更多人的深思。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/A8BE219B-9716-4904-8F19-7FD78B1A6D44.png)图源：[La caricature d’Ygreck](https://www.journaldemontreal.com/2022/04/18/la-caricature-dygreck)
+**88JJ评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-22.png)
+**强推疫苗接种背后的阴谋**
 
-文章仅代表作者本人观点，与Gnews无关
+日本推广疫苗接种完全是在巨大的经济利益的诱惑下 ，药厂和暗黑势力，以及政客们勾结的阴谋。此外，还有被金钱收买的无良医生和媒体合伙作案的结果。这些媒体日复一日的鼓吹疫苗对人体是安全的，他们向民众推荐疫苗，诱导民众 打疫苗，却避而不谈疫苗的副作用以及接种疫苗带来的隐患。现在，大多数日本人都知道媒体是帮着政府说假话，媒体为了赚钱 放弃了人性、正义，完全不顾人类生存的根本利益。
 
-视频参看：
-[2022.04.23早 《NFSC新闻》](https://gettr.com/streaming/p16rf8ncece)
-[2022.04.23早《NFSC新闻访谈》](https://gettr.com/streaming/p16rcv7f153)
+中共国以国家法律手段强行推广疫苗接种的同时，还用三五千元的金钱诱导鼓励老年人打疫苗。现在人都长寿，活到八九十岁的老人是普遍现象，给老年人发放退休金、医疗保险费已经成为中共政府的巨大负担，中共企图一劳永逸、合理合法地让老年人死亡。这些老年人把青春献给中共盗国贼之后，最后在死亡之后， 再把一生的财富献给中共的，用支付举世震惊的高价医疗和丧葬费用的方式。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+**沉默老歌评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-18.jpeg)
+**吸血鬼** **突然给你钱**
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+中共对老百姓的剥削盘剥可谓空前绝后：各种各样的收费数不胜数，每个领域、每个行业都可以乱收费，吸尽民脂民膏。乱收费在中共国的各个行业简直是无处不在，例如教育，交通，通信，银行，企业，工商，公共服务，过桥费，暂住人员，厕所。曾有报导称娃哈哈集团被收费项目竟然多达500多项！可以想象在中共国，为什么无处不在无时不有的吸血鬼现在突然出现诡异反常的事情，给你钱让你去打疫苗，而且不断的加码给钱，这完全不符合常识性逻辑，这说明什么？答案只有一个，你打了疫苗，中共获利更大！那什么情况下可以获利更大，就是杀人，杀死你，这样中共不需要再为这些退休的老年人支付医药费和退休金。除此之外，没有任何逻辑、任何理由来解释邪恶的中共强制老年人打疫苗还给钱的政策和做法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-106.png)
+**卢卡斯评：**
 
+随着全球疫苗灾难大爆发的即将来临，世界各国的黑暗势力正在拼命努力掩盖灾难的真相。
 
+今年3月29日，美国FDA和CDC批准给50岁以上的成年人接种第二针新冠疫苗辉瑞或莫德纳加强针，声称这可以对该年龄组的人群提供更高级别的保护，因为该人群的本身身体疾病状况导致他们易于被感染导致重症，同时批准那些犯有自身免疫系统弱症的12岁以上少儿接种第二针加强针[1]。
 
+在加拿大，第六波冠状病毒变体（BA.2）正在袭击加拿大各主要城市，导致更多的感染案例，更多住院病患以及更多的死亡案列[2]。加拿大主流媒体城市新闻认为，这一波病毒袭击主要驱动力主要是[3]：1）BA.2变体具有高度传染性；2）民众自身免疫力的退化，3）全加拿大城市的解封。此外，新的更加具有传染性的变体XE也已经出现[3]，该变体乃Omicron和BA.2的杂交变体。上述这些理由成为加拿大各省政府推广第二针疫苗加强针的振振有词的借口[4,5,6]。
+
+为什么在辉瑞疫苗公司公布了1000多项疫苗的副作用之后，还有那么多人继续相信疫苗的效果而继续打疫苗呢？愚以为，这是民众迷信科学，相信政府和主流媒体，被其深度洗脑而失去思考能力和常识性逻辑的结果。
+
+冠状病毒及其疫苗是世界黑暗势力控制和屠杀全人类的工具和手段；前者本身的致命性并不高，是个引子和借口，后者是关键，是真正的杀戮人类的工具。 疫苗公司、政府和主流媒体完全被世界黑暗势力所控制，这三者都是共谋犯罪。疫苗公司、政府和主流媒体坚持声称，接种疫苗加强针对民众的身体健康提供额外的保护，可以防重症，减少住院率和死亡率；他们反复强调的逻辑是：疫苗是安全的，如果由于接种疫苗而产生什么副作用，被感染，重症甚至死亡，那都是疫苗接种者自身脆弱的免疫系统或基础性疾病导致的，跟接种疫苗没有任何关系。上述操作手法不仅让他们对疫苗灾难不需要负任何责任，而且从中赚取了巨额金钱财富，还让那些疫苗灾难的受害者对他们感恩戴德，自己心甘情愿地承受这灾难性的后果。
+
+西方国家的养老金已经被与中共合谋的精英们掏空，疫苗仍然是他们用来消灭老年人群的最佳工具，可以让他们避免爆雷而暴露自己的罪恶。随着疫苗灾难的到来，对此难辞其咎的疫苗公司、政府和造假欺骗民众的主流媒体为了继续掩盖疫苗灾难，他们利用一波又一波的新的病毒变体来恐吓民众继续一针一针地打疫苗加强针，直到把他们打死为止，然后把打疫苗引起的所有副作用和死亡都归因于受害者本身，这是个完美犯罪计划，他们得以继续实行的原因是大多数民众仍然没有清醒过来。因此，继续大力传播文贵先生领导的爆料革命所揭露的有关冠状病毒及其疫苗、疫苗灾难的真相，唤醒更多的人类同胞仍然是爆料革命拯救全世界的关键一环。
+
+**16626** **评：**
+
+**我们祝愿中国联邦人以及全世界人民顺利度过** ** ** **五月份**
+
+在Gnews日前发表的一篇题为《加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了[7]》的文章 指出，还有几天就到5月份了 ，请大家一定小心。疫苗灾难很快就会到来了。尽管当前主流媒体没有正面报道，但已经有很多病例证明了，由于接种了疫苗，在身体内产生了大量刺突蛋白，疫苗本身也把一些有毒物质， 例如， 脂质纳米颗粒，等有毒物质，带入身体中，削弱了人体的免疫能力，甚至关闭了人体的免疫反应。心血管病案例的增加就是一个证明，特别是 ，有相当可观数量的，身体素质相当好的运动员，由于心脏相关的疾病，在参加国际比赛 时突然在比赛中退出，正如Gnews日前发表的一篇题为《十五名”完全接种疫苗”的网球运动员无法完成迈阿密公开赛》的文章 所指出的[8]。
+
+在结束这篇文章之前，让我们祝愿中国联邦人以及全世界人民顺利 地进入五月份，平安度过即将到来的疫苗灾难。
+
+**参考文献：**
+
+**[1] **[**Federal agencies authorize second COVID-19 booster shot for Americans 50 and older**](https://www.usatoday.com/story/news/health/2022/03/29/fda-authorizes-second-covid-booster-americans-50-and-older-pfizer-moderna/7198420001/)
+
+**[2] **[**Ontario’s top doctor says COVID-19 hospital, ICU admissions to peak next week**](https://toronto.ctvnews.ca/ontario-s-top-doctor-says-covid-19-hospital-icu-admissions-to-peak-next-week-1.5872787)
+
+**[3] **[**Ontario well into 6th wave driven by BA.2 subvariant, uncertainty over COVID case growth: science table**](https://toronto.citynews.ca/2022/04/14/ontario-covid-modelling-6th-wave/)
+
+**[4] **[**Ontario offering 4th COVID-19 vaccine dose to everyone 60 and up starting April 7**](https://www.cp24.com/news/ontario-offering-4th-covid-19-vaccine-dose-to-everyone-60-and-up-starting-april-7-1.5850265)
+
+**[5] **[**Nova Scotia expands eligibility for 2nd COVID-19 booster shots to youth, individuals over 70**](https://atlantic.ctvnews.ca/nova-scotia-expands-eligibility-for-2nd-covid-19-booster-shots-to-youth-individuals-over-70-1.5872381)
+
+**[6] **[**Toronto offers Novavax vaccines to residents 18 years of age and older starting April 21**](https://www.cp24.com/news/toronto-offers-novavax-vaccines-to-residents-18-years-of-age-and-older-starting-april-21-1.5862762)
+
+**[7] **[**加拿大正处于第6波COVID-19疫情中，疫苗灾难很快就会到来了**](https://gnews.org/zh-hans/2341618/)
+
+**[8] **[**十五名”完全接种疫苗”的网球运动员无法完成迈阿密公开赛**](https://gnews.org/zh-hans/2305892/)
+
+**编辑：卢卡斯**
+
+**发布：歪桑**
+
+20220424
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

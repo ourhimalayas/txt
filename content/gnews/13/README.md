@@ -2,22 +2,13 @@
 ---
 
 
-## 網友：想離開上海不容易。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2401700/)
+## 法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2401864/)
 
-作者：东京樱花团小视频组
+04/22/2022 法国公司泰雷兹绕过禁运向俄罗斯侵略者出售最新军事技术
 
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-
-
-
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

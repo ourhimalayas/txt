@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 2:01 AM (UTC)`
+
+2022.04.23  新中国联邦 | 喜财经    喜币发行量背后的新金融模式；货币、财富与价值的爱恨情仇 ；G系列喜生态解读
+![img](https://media.gettr.com/group35/origin/2022/04/24/01/afbe3720-e7d1-be12-f5fc-6ff05f4c9995/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/24/2022 1:07 AM (UTC)`
 
 2022.04.23 晚  新中国联邦 | 新闻访谈   战斗机河南坠毁，惊现外国飞行员；封城前兆：多地开始大规模核酸检测
@@ -147,13 +154,6 @@
 
 The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 ![img](https://media.gettr.com/group36/origin/2022/04/23/16/2b5970e2-a9eb-eb93-bc61-cb5c26f76478/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/23/2022 2:29 PM (UTC)`
-
-新中国联邦｜真人真事 第50期  华盛顿DC农场 Longwood大根<br/>同传English: https://gettr.com/streaming/p16rd9t2713
-![img](https://media.gettr.com/group20/origin/2022/04/23/13/75a7f04c-6c8a-e769-09e5-9b5eecfecd0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
