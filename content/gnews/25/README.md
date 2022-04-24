@@ -2,24 +2,67 @@
 ---
 
 
-## 【粤语配音】2022年4月23日：中共通过隔离解决所有疫苗灾难死亡的问题
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2401769/)
+## 新西兰发现首例 XE 变种，但新西兰人需要担心吗？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2401904/)
 
-紐約香草山-香港部
+翻译：sherryok (酷翻组)
+采集：玫瑰新闻组
 
-我们可以告诉大家，北京已经完全布置好，现在就是干什么？哦..这幼儿园有仨，那幼儿园有四个，然后哪个市场…都是放狗屁、罗圈屁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-我告诉大家，北京一直以来，最起码每天都能验出1万到2万个，最低的说，什么叫做阳性？现在中国的所有的检查出的病毒，绝大多数全部都是疫苗导致的，共产党也知道疫苗会死很多人，那它把这个死人的责任推给谁去啊，推给所有的病毒。
 
-疫苗死亡的时候，说你不听话，我要隔离，你们搞传染，结果死了那么多人，永远是由于老百姓不听话，还有极少一部分人是坏人，给外国人递刀子，反正这个病毒传染跟共产党没关系，跟疫苗没关系，全都老百姓的错和美帝国主义的错，这就是转嫁矛盾、转嫁问题，掩盖真实的真相，这才是真正的本质。
 
-现在在北京已经进了多少部队，知道吗？战友们，我说的吓死你，仅仅北京就过去的两周就进去6万多，而且不是过去的6万多来了以后，24小时、两天就走的临时进入，这完全是驻扎式进入，记住今天郭文贵说的话，老杂毛们，只有你们懂，这些老百姓傻乎乎都不懂，这是即1949年以后，包括文化大革命，第一次在北京6万个武警是驻扎式的进入，什么概念呢？如果共产党你不知道病毒的真相，你不可能驻扎式的进入，共产党非常清楚。
 
-这次北京和上海就是疫苗灾难，疫苗后期反应的最早期，记住我今天说的话，上海还有N次隔离，上海、广州、杭州、苏州、深圳、北京、武汉、郑州、大连、青岛，会无数次，为什么？因为这几个地方疫苗普及率太高，阳性也是打（疫苗）的太多，一次又一次的给你隔离，就解决了所有共产党面临的生死问题
 
-未来死人，大家都上街怎么办？未来都死人，上街闹怎么办？我都给你测试完了，你上街一闹，我把城市给你关了，你上街一游行，我就把你关了，只要有人发这个真相，我就给你关了，这叫新时代的国家管理模式，这就是为什么把你网控起来，建立防火墙，建立所有的供销社，建立粮食通道，垄断整个网络、所有网上交易，包括现在把支付宝关掉，把微信彻底控制，一个专一的老百姓发声的平台，一个唯一的老百姓买粮的方式，一个唯一的老百姓上网的方式，一个唯一的电力来源的方式，一个唯一的出行的交通方式，全被共产党给捏住了，中国人民就是养在猪圈里的猪，而且不是农村猪圈里的猪，就是现在猪圈，就是四面带笼子的那个。
 
-我估计北京隔离会在以月为准，一个月两个月，但不会太长时间，然后给你放一放，放一段过一段时间又给你来一把，实际上就把北京上海广州深圳，就是军管了，然后凡是未来疫苗死人的时候，把疫苗死人灾难就彻底控制住了，这就是共产党内部定的政策，以冠状病毒的传染，阳性，掩盖所有的冠状病毒的经济问题政治问题，最后达到疫苗灾难所有的问题通过隔离解决。
+
+![查看來源圖片](https://th.bing.com/th/id/OIP.Q7ulwsF6xfTIeVeXctM9uQHaE6?pid=ImgDet&amp;rs=1)
+
+首例奥米克戎 的 XE 变种在新西兰被发现，但这是否意味着我们必须重新调整疫情的交通灯设置，还是在与 奥米克戎的斗争中照常营业？
+
+新西兰卫生部周六（4月23日）报告说，感染者从海外前往新西兰，于 4 月 19 日抵达。他们于 4 月 20 日接受了检测，随后全基因组测序证实了 XE 变体。
+
+他们在家隔离。
+
+新变种 XE 于 1 月 19 日在英国首次发现，[澳大利亚一周前记录了第一例病例](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-australia-records-its-first-case-of-new-covid-19-variant-xe.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，从那时起，XE 到达新西兰只是时间问题。
+
+[布卢姆菲尔德说新变种值得关注，警告说如果它到达新西兰可能需要更严格的措施](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+[XE 是由另外两种菌株 BA.1（奥米克戎的原始菌株）和 BA.2 重组而成。](https://www-newshub-co-nz.translate.goog/home/world/2022/04/coronavirus-new-covid-variant-xe-potentially-10-percent-more-transmissible-than-omicron.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+根据迄今为止汇编的有限数据，早期估计表明新菌株的传播性比 BA.2 高约 10%，但需要更多数据来证实这一点。
+
+“在发现其不同的传播和疾病特征（包括严重程度）之前，XE 仍然属于奥米可戎的一个 变体”[世界卫生组织（WHO）3 月 29 日的一份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.who.int/publications/m/item/weekly-epidemiological-update-on-covid-19---29-march-2022)说。
+
+英国卫生当局在 3 月下旬表示，“没有足够的证据得出关于这种变体的增长优势或其他特性的结论。”
+
+英国卫生安全局首席医学顾问苏珊霍普金斯说：“这种特殊的重组 XE 显示出可变的增长率，我们还不能确定它是否具有真正的增长优势。”
+
+世卫组织表示将继续密切监测和评估与重组变体相关的公共卫生风险，并将在获得证据后提供进一步的更新。
+
+卫生部周六表示，该变种的出现并不意外，我们目前的健康系统应该足以应对任何爆发。.
+
+“在现阶段，管理其他 Omicron 变体的公共卫生设置被评估为适合管理 XE，不需要进行任何更改。
+
+“迄今为止，没有证据表明 XE 会导致比其他 Omicron 谱系更严重的疾病，并指出需要数周或数月才能确定每个新变体的严重程度。”
+
+即将卸任的新西兰卫生总干事阿什利·布鲁姆菲尔德本月早些时候警告说，[需要监测新的变种。](https://www-newshub-co-nz.translate.goog/home/politics/2022/04/covid-19-director-general-of-health-says-new-xe-variant-something-to-keep-an-eye-on-warns-stricter-measures-could-be-needed-if-it-arrives-in-nz.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
+
+“这当然是我们需要密切关注的事情，关于 XE 的情况之一是它实际上是两个 Omicron 子变体 BA.1 和 BA.2 的组合，” 布鲁姆菲尔德 在 四月份的早新闻 上告诉记者。
+
+“这些病毒不断交换遗传物质。因此，XE 变体的传染性似乎比我们目前在全国广泛传播的 BA.2 变体高 10% 左右。”
+
+**疫苗（新冠疫苗）
+中共病毒（新冠病毒Covid-19）**
+
+**我们不反疫苗，只针对假疫苗
+我们不反科学，只针对反人类**
+
+新闻链接：
+[https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html](https://www.newshub.co.nz/home/new-zealand/2022/04/covid-19-the-first-case-of-the-xe-variant-has-been-found-in-new-zealand-but-do-kiwis-need-to-be-concerned.html)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

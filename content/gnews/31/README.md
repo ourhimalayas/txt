@@ -2,42 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.24A)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401483/)
+## 斯里兰卡政府家族化 经济崩溃民怨沸腾
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2401687/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+**作者：意大利罗马达芬奇农场 HOKKYOKU KAMIKAZE**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S-7.jpg)the-quest.org
+这是来自《外交政策》杂志的摘选，发表在4月22日的日语版《新闻周刊》（Newsweek）上。标题为“斯里兰卡，除了总统的家人，所有部长都辞职了 面对经济崩溃，对裙带关系的愤怒爆发了”。
 
-#### 整理/编辑：红红火火
+文中称，斯里兰卡的旅游业在新冠疫情期间遭受重创，经济正面临严重经济危机，4月12日停止支付510亿美元的外债，该国目前已深陷债务违约。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-84.png)图片来源：雅典娜设计组(614)
+它还使其货币贬值，大幅提高政策利率，目前正与国际货币基金组织商讨补救措施。其经济政策的失败和政治裙带关系使民怨沸腾。
 
+各地反政府抗议活动连连爆发，尽管4月3日至4日期间除总统拉贾帕克萨及其任首相的兄长外所有内阁成员已全部辞职，民众抗议风暴仍在继续中。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+总统表面上表示愿意与抗议者会面，但抗议者依然强烈要求解任总统及其占据要职的家族官员。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+此次反政府抗议活动被称为斯里兰卡版的“阿拉伯之春”。到目前看拉贾帕克萨毫无辞职之意。
 
-博主:  无语凝耶DC
+**评**：CCP病毒改变了世界格局，加速了全球独裁政权的崩塌，让觉醒中的各国人民加快了实现民主自由化的脚步。
 
-**帖子原文:**
+新闻来源：
+[https://www.newsweekjapan.jp/stories/world/2022/04/post-98558.php](https://www.newsweekjapan.jp/stories/world/2022/04/post-98558.php)
 
-一直没怀疑过。但自从去年下半年接种完新冠疫苗至现在心脏一直不适，比如现在的惊醒，胸闷，气短，心跳加速，困却难以入眠，头晕，记忆力衰退等等。去医院检查没发现问题，开了一个月的药也已吃完，未见好转。以前心脏可一直没问题啊。目前身体逐渐变垮，无法控制。也没见有啥报道、说法、办法。
-
-#新冠疫苗
-
-发布于 2022-04-22
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-112.png)图片来源：微博
-
-
-参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑 发布：意大利罗马达芬奇农场 Roma
 
  
 

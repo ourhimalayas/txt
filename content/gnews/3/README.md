@@ -2,53 +2,126 @@
 ---
 
 
-## 樱花时政┃日本新西兰加强防务合作 以应对中俄&#8221;前所未有的挑战 &#8220;
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402170/)
+## 上海悲歌《四月英雄》被中共全网封杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402256/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/日本新西兰加强防务合作-以应对中俄前所未有的挑战.png)[图片来源](https://www.zerohedge.com/geopolitical/japan-new-zealand-boost-defense-cooperation-amid-unprecedented-challenges)
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-52.jpg)[图片来源](https://www.google.com.hk/search?q=%E5%9B%9B%E6%9C%88%E8%8B%B1%E9%9B%84&amp;newwindow=1&amp;sxsrf=APq-WBvaABMuDBUy-et0-Dorw2A0YJZVzg:1650769748152&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiO58bD3Kv3AhVHp1YBHf_uB-QQ_AUoAXoECAEQAw&amp;cshid=1650769798312645&amp;biw=1707&amp;bih=770)
+4月24日，封城一个月后，上海人到达了忍耐的极限，继《四月之声》被封杀后，有音乐人制作了音乐视频《四月英雄》，歌曲改編自陈奕迅《孤勇者》，视频仅上传一小时，就被墙内全网封杀。
 
-新西兰和日本周四（4月22日）同意加强防务合作，并启动正式谈判，以达成一项信息共享协议，因为世界面临俄乌战争带来的 “前所未有的挑战”。
+有网友听完歌曲后表示，同一首歌，一样的歌词，应景的才最完美，才有力量。这是一个以低头的代价才能换来顺阶而上的自由的年代。一份孤独，一份倔强书写了一个个在黑暗中不屈的灵魂，孤独求败却在喘不过气来的暴政下有一种另类的倔强在不断延伸，不断伸张……
 
-日本首相岸田文雄周四会见了来访的新西兰总理杰辛达-阿德恩，这是他去年当选以来的首次会面。
+附：四月英雄（孤勇者合唱版）歌词
 
-在会谈后发表的一份联合声明中，两位领导人表示，他们同意在政治关系、国防和安全以及贸易和经济增长等领域加强合作。
+都是勇敢的
 
-他们还同意开始就一项信息共享协议进行谈判，以便在国际安全问题上进行更密切的接触。
+你额头的伤口 你的 不同 你犯的错
 
-阿德恩形容日本是新西兰 “在印度-太平洋地区最重要的伙伴之一”，它与日本有着共同的价值观和应对该地区所面临挑战的方法。
+都不必隐藏
 
-她在一份声明中说：”日本和新西兰将共同努力，支持从新冠病毒COVID-19中恢复经济，应对气候变化，促进我们地区的和平与稳定，维护全球基于规则的秩序。”
+你破旧的玩偶 你的面具 你的自我
 
-岸田和阿德恩强烈谴责俄罗斯对乌克兰的非法侵略，称其对基于规则的国际秩序构成 “严重威胁”，其影响远远超出欧洲和印太地区。
+他们说 要带着光 驯服每一头怪兽
 
-他们要求莫斯科立即撤出在乌克兰的部队，并发誓继续对俄罗斯实施经济制裁。
+他们说 要缝好你的伤 没有人爱小丑
 
-他们的会谈还涉及东海和南海，北京在那里增加了其军事存在。两位领导人表示，他们强烈反对试图以武力改变现状，并使有争议海域的紧张局势升级的单边行动。
+为何孤独 不可光荣
 
-两位领导人重申了根据国际法解决海洋争端的重要性，呼吁有关各方遵守2016年7月关于南海问题的最终和具有法律约束力的仲裁裁决。
+人只有不完美 值得歌颂
 
-日本媒体共同社报道，岸田说，日本和新西兰 “不会容忍任何以武力改变现状的企图，并在东海和南海或任何其他地区反对这些企图”。
+谁说污泥满身的不算英雄
 
-日本和新西兰还承诺合作支持太平洋岛国的安全，并谴责朝鲜正在开发核武器。
+爱你孤身走暗巷
 
-这次会议是在所罗门群岛和中国正式签署安全条约之后举行的，该条约将允许北京在这个太平洋岛屿上部署武装警察和部队。
+爱你不跪的模样
 
-4月18日，美国与日本、澳大利亚和新西兰的官员召开了一次会议，期间他们对所罗门-中国的交易表示关切。白宫表示，华盛顿对该协议的缺乏透明度和 “不明确的性质 “感到担忧。
+爱你对峙过绝望
 
-信息来源：[** **](https://www.zerohedge.com/geopolitical/japan-new-zealand-boost-defense-cooperation-amid-unprecedented-challenges)
-[**Japan, New Zealand Boost Defense Cooperation Amid ‘Unprecedented Challenges’**](https://www.zerohedge.com/geopolitical/japan-new-zealand-boost-defense-cooperation-amid-unprecedented-challenges)
+不肯哭一场
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+爱你破烂的衣裳
 
+却敢堵命运的枪
+
+爱你和我那么像
+
+缺口都一样
+
+去吗？配吗？这褴褛的披风
+
+战吗？战啊！以最卑微的梦
+
+致那黑夜中的呜咽与怒吼
+
+谁说站在光里的才算英雄
+
+他们说 要戒了你的狂 就像擦掉了污垢
+
+他们说 要顺台阶而上 而代价是低头
+
+那就让我 不可乘风
+
+你一样骄傲着 那种孤勇
+
+谁说对弈平凡的不算英雄
+
+爱你孤身走暗巷
+
+爱你不跪的模样
+
+爱你对峙过绝望
+
+不肯哭一场
+
+爱你破烂的衣裳
+
+却敢堵命运的枪
+
+爱你和我那么像
+
+缺口都一样
+
+去吗？配吗？这褴褛的披风
+
+战吗？战啊！以最卑微的梦
+
+致那黑夜中的呜咽与怒吼
+
+谁说站在光里的才算英雄
+
+你的斑驳 与众不同
+
+你的沉默 震耳欲聋 You Are The Hero
+
+爱你孤身走暗巷
+
+爱你不跪的模样
+
+爱你对峙过绝望
+
+不肯哭一场 (You Are The Hero)
+
+爱你来自于蛮荒
+
+一生不借谁的光
+
+你将造你的城邦
+
+在废墟之上
+
+去吗？去啊！以最卑微的梦
+
+战吗？战啊！以最孤高的梦
+
+致那黑夜中的呜咽与怒吼
+
+谁说站在光里的才算英雄
+
+[视频链接](https://youtu.be/e7l6qyd6H2s)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

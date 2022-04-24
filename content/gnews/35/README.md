@@ -2,52 +2,43 @@
 ---
 
 
-## 疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2401108/)
+## COVID-19疫苗副作用集萃（2022.4.24A)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2401483/)
 
-**作者：16626，沉默老歌，88JJ，卢卡斯**
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-世界各国由于接种新冠疫苗所产生的副作用及其导致的死亡案例 ，正在逐渐增加；疫苗接种对各国社会和经济造成的灾难已渐显。据郭文贵先生的情报，世界范围内大规模的疫苗灾难很有可能于5月份中下旬出现。
+#### 整理/编辑：红红火火
 
-然而，世界邪恶势力仍在不顾一切地生产、制造并继续强推疫苗接种。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-84.png)图片来源：雅典娜设计组(614)
 
-到目前为止，世界上的几个发达国家都没有由官方明确的指出新冠疫苗有哪些副作用，或承认新冠疫苗对人体会造成哪些致命伤害。相反，竟然还在极力生产、制造和推广疫苗。据日本的报道[1] ，厚生劳动省（卫生、劳动和福利部）的专家委员会批准了由美国生物技术公司——新星公司novavax开发的一种新型冠状病毒疫苗，使其成为可在日本使用的第四种新型冠状病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/519DAB67-0A96-41C1-BBC8-D13C57992449.png)**屏幕截图： [1]**
-日本媒体在 2022年4月21号有报道称[2]，政府正在考虑为60岁以上的老年人接种第四剂新型冠状病毒疫苗。同一天在加拿大魁北克省，主流媒体蒙特利尔日报 刊登了一幅知名漫画家伊格雷克（Ygreck）漫画 [3]。该漫画描绘了一位魁北克的疫苗接种者手持一张疫苗接种卡 ，卡上显示人们需要接种九针疫苗才算是完全疫苗接种；该卡持有者完成了第一针到第四针，下一针是第五针了，一直到完成九针疫苗接种以后，接种者会获得 一杯免费咖啡。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/507514D0-6DFA-4226-B2E0-707D3DEEE956.png)**屏幕截图： [3]**
-专制独裁毫无人性的中共国在强推疫苗方面的所作所为，在世界上称得上是首屈一指 ：竟然推出了令世人诟病的“病毒清零政策”，这完全违背了基本的科学常识，导致无数人间惨剧。从以下几位盖特大V发布的盖特截图可见一斑（泰山@taishan，中原佛手@zhongyuanfoshou，台灣巴黎@taiwanparis）。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4E1889C7-C2F8-47BC-8479-B9710A3510B1.png)**屏幕截图： [4]**![](https://assets.gnews.org/wp-content/uploads/2022/04/EF7DD194-315F-491E-AB28-E638392B0E84.png)**屏幕截图： [5]**![](https://assets.gnews.org/wp-content/uploads/2022/04/0008DF56-1232-40E1-AB84-A43984D688AA.jpeg)**屏幕截图： [6]**
-为什么邪恶势力仍在不顾一切地生产、制造并继续强推疫苗接种 ？强推疫苗接种背后的阴谋是什么？吸血鬼突然给你钱，这又是出于何种原因？请看续篇“评《疫苗灾难即将开始爆发，邪恶势力仍在强推疫苗接种》”。
 
-**声明：**
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
+博主:  无语凝耶DC
 
-**参考资料**
+**帖子原文:**
 
-[1][“ノババックスのワクチン承認了承，4種類目、武田薬品が国内製造,”](https://nordot.app/888741027016605696)
+一直没怀疑过。但自从去年下半年接种完新冠疫苗至现在心脏一直不适，比如现在的惊醒，胸闷，气短，心跳加速，困却难以入眠，头晕，记忆力衰退等等。去医院检查没发现问题，开了一个月的药也已吃完，未见好转。以前心脏可一直没问题啊。目前身体逐渐变垮，无法控制。也没见有啥报道、说法、办法。
 
-[2] [“4回目接種、60歳以上対象，基礎疾患がある人も,”](https://nordot.app/889864467877822464.)
+#新冠疫苗
 
-[3] [“La caricature d’Ygreck,”](https://www.journaldemontreal.com/2022/04/18/la-caricature-dygreck)
+发布于 2022-04-22
 
-[4] [泰山@taishan](https://gettr.com/post/p150iz0e67c)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-112.png)图片来源：微博
 
-[5] [中原佛手@zhongyuanfoshou.](https://gettr.com/post/p16chcd72db)
 
-[6] [台灣巴黎@taiwanparis](https://gettr.com/post/p14cfj6453e)
+参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
 
-**编辑：卢卡斯**
+发布：*wenly*
 
-**发布：歪桑**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-20220422
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
