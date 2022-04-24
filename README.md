@@ -15,34 +15,34 @@
 
 ---
 
-### [抵押贷款利率飙升，房价创历史新高，现房销售下滑](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [2022年4月24日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国疫情下的百态众生](/content/gnews/2/README.md)
+### [4月23日七哥乱聊直播点评](/content/gnews/2/README.md)
  ` 澳喜特战旅Gnews`
 
-### [27岁的意大利职业游泳运动员因心脏病发作“突然和意外”死亡](/content/gnews/3/README.md)
+### [意大利再拨两亿欧元支援乌克兰](/content/gnews/3/README.md)
+ ` xiaobaige`
+
+### [【每日聚焦】俄乌战事4月24日简要](/content/gnews/4/README.md)
+ ` 蓝莲花农场`
+
+### [抵押贷款利率飙升，房价创历史新高，现房销售下滑](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [关于“统一大市场”乌托邦的几点胡思乱想](/content/gnews/4/README.md)
+### [中共国疫情下的百态众生](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [疫情封控中的上海人：上海仁恒河滨城的民间防疫指南“太卷了”，人类的理性之光被点亮](/content/gnews/5/README.md)
+### [疫情封控中的上海人：上海仁恒河滨城的民间防疫指南“太卷了”，人类的理性之光被点亮](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [德国莱茵金属希望向乌克兰出口100辆Marder IFV装甲车](/content/gnews/6/README.md)
+### [德国莱茵金属希望向乌克兰出口100辆Marder IFV装甲车](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [“像对家畜一样用铁丝网把他们围起来” ——上海封城引发新的强烈抗议](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [乌总统透露美国国务卿和国防部长将访问基辅](/content/gnews/8/README.md)
+### [乌总统透露美国国务卿和国防部长将访问基辅](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十六）](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [COVID-19疫苗副作用集萃（2022.4.24E）&#8211;新冠第三针荨麻疹](/content/gnews/10/README.md)
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十六）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [秘翻在线：韩国将从25日开始新冠（中共病毒）等级下调至2级](/content/gnews/11/README.md)
@@ -72,83 +72,83 @@
 ### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十四）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯周日通过乌克兰向欧洲出口天然气](/content/gnews/20/README.md)
+### [中共军机坠毁河南，飞行员为俄罗斯人](/content/gnews/20/README.md)
+ ` 银河歌舞厅`
+
+### [俄罗斯周日通过乌克兰向欧洲出口天然气](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [推广“新台湾模式”,台湾不会像上海那样封城](/content/gnews/21/README.md)
+### [推广“新台湾模式”,台湾不会像上海那样封城](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰战争：俄罗斯是否犯下种族灭绝罪？](/content/gnews/22/README.md)
+### [乌克兰战争：俄罗斯是否犯下种族灭绝罪？](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [乌克兰称美国官员访问基辅](/content/gnews/23/README.md)
+### [乌克兰称美国官员访问基辅](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [COVID-19疫苗副作用集萃(2022.4.24B)——接种新冠疫苗患寻麻疹](/content/gnews/24/README.md)
+### [COVID-19疫苗副作用集萃(2022.4.24B)——接种新冠疫苗患寻麻疹](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十五）](/content/gnews/25/README.md)
+### [文·贵天成（精选篇）——文贵先生谈孟建柱（五十五）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [地域知识为绘制南非非正规住区洪水的风险地图起到了很大作用](/content/gnews/26/README.md)
+### [地域知识为绘制南非非正规住区洪水的风险地图起到了很大作用](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [【蓝枫法律】未成年子女如何获得遗产](/content/gnews/27/README.md)
+### [【蓝枫法律】未成年子女如何获得遗产](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [羞怯，不仅强大且被低估：害羞并不是坏事的真正原因](/content/gnews/28/README.md)
+### [羞怯，不仅强大且被低估：害羞并不是坏事的真正原因](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [邪恶独裁国家的法律是统治工具❗️](/content/gnews/29/README.md)
+### [邪恶独裁国家的法律是统治工具❗️](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [中共嘴上一套，实际却是另一套](/content/gnews/30/README.md)
+### [中共嘴上一套，实际却是另一套](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京按需设定疫情情况，准备开启恐怖的大隔离](/content/gnews/31/README.md)
+### [北京按需设定疫情情况，准备开启恐怖的大隔离](/content/gnews/32/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [河南禹州新民生村镇银行拒绝让储户查询存款](/content/gnews/32/README.md)
+### [河南禹州新民生村镇银行拒绝让储户查询存款](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [东北黑土地加速流失，中国粮食危机风险加大](/content/gnews/33/README.md)
+### [东北黑土地加速流失，中国粮食危机风险加大](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [COVID疫苗注射正在杀人吗？（4/4）](/content/gnews/34/README.md)
+### [COVID疫苗注射正在杀人吗？（4/4）](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海封城｜持续封控打乱国际运输 卫星图显示上海港货物堆积如山](/content/gnews/35/README.md)
+### [上海封城｜持续封控打乱国际运输 卫星图显示上海港货物堆积如山](/content/gnews/36/README.md)
  ` 關注組`
 
-### [为了增强体能，改善睡眠和提高自身免疫力：单一维生素比复合维生素效果更好吗？](/content/gnews/36/README.md)
+### [为了增强体能，改善睡眠和提高自身免疫力：单一维生素比复合维生素效果更好吗？](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [COVID疫苗注射正在杀人吗？（3/4）](/content/gnews/37/README.md)
+### [COVID疫苗注射正在杀人吗？（3/4）](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗注射正在杀人吗？（2/4）](/content/gnews/38/README.md)
+### [COVID疫苗注射正在杀人吗？（2/4）](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [传不出的声音《四月之声》](/content/gnews/39/README.md)
+### [传不出的声音《四月之声》](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/40/README.md)
+### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/41/README.md)
  ` MOSVIDEO`
 
-### [视频|俄乌战局最新消息汇总](/content/gnews/41/README.md)
+### [视频|俄乌战局最新消息汇总](/content/gnews/42/README.md)
  ` MOSVIDEO`
 
-### [视频|灭共即为消灭中共体制](/content/gnews/42/README.md)
+### [视频|灭共即为消灭中共体制](/content/gnews/43/README.md)
  ` MOSVIDEO`
 
-### [携带巡航导弹的黑海俄罗斯舰群威慑乌克兰全境](/content/gnews/43/README.md)
+### [携带巡航导弹的黑海俄罗斯舰群威慑乌克兰全境](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [中共一战机坠毁 逃生飞行员中现一名外籍军人](/content/gnews/44/README.md)
+### [中共一战机坠毁 逃生飞行员中现一名外籍军人](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
-
-### [数据显示四月外资正加速撤离中国](/content/gnews/45/README.md)
- ` 澳喜农场`
 
 ### [樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（四）](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
