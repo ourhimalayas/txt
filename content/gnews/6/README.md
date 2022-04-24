@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：七哥 普京的身体状况已经到了极度自恋的程度
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406112/)
+## 20220424郭文贵大直播 ：如果共产党不灭 台湾将会衰落 大量人移民 核心产业被亚洲其他国家瓜分
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406185/)
 
 作者：东京樱花团小视频组
 

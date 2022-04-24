@@ -2,57 +2,47 @@
 ---
 
 
-## 4月23日俄乌战场最新进展
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404533/)
+## 一周疫情、疫苗信息回顾 (2022年4月13日~4月20日)
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404534/)
 
-作者：加拿大蓝莲花农场  文斌
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-8.50.10-PM.png)
-- 在基辅和乌克兰东北部，过去24小时内，该地区没有重大变化。
-
-
-- 在哈尔科夫和伊久姆，乌克兰总参谋部报告说，有来自第6集团军以及波罗的海和北方舰队的多达7个营级战术群的俄军，继续部分封锁哈尔科夫并炮击该市。
+作者：DC农场 火来
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.03.32-PM.png)
+- 2022年4月13日至20日，除中共国外，全球新增中共病毒确诊患者489万余例，同比上周的667万余例下降了26.7%；此外，本周新增确诊死亡病例18125例，同比上周的22667例下降了20.0%。本周已是连续第七周全球确诊病例和死亡病例持续负增长。
 
 
-- 一个亲俄电报频道报道说，俄军击退了乌克兰对科扎恰洛帕尼的反击，该地位于哈尔科夫北部，距离俄罗斯边境仅5公里，这可能表明，乌克兰尝试在哈尔科夫以北向俄罗斯边境进行反击，可能威胁到别尔哥罗德。
-
-4月22日，俄军对伊久姆以南的乌克兰阵地进行了局部攻击和侦察，但没有取得任何进展。乌克兰特种作战司令部声称，4月22日在伊久姆附近一个未指明的地点摧毁了俄军正在使用的一座桥梁。
-
-乌克兰总参谋部报告说，俄罗斯第1坦克军、第20和第35集团军、第68军团和未指明的空降部队的人员集结在伊久姆附近，这里面许多部队是在基辅周围和乌克兰东北部的战斗中战损严重的。
+- 截止4月20日，除中共国外，全球累计接种了83.1亿剂中共病毒疫苗，同比4月13日的接种数据增长了0.362%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续七周低于百分之一。
 
 
-- 在顿涅茨克州和卢甘斯克州，4月22日，俄军继续沿着乌克兰东部的接触线进行局部攻击，也继续以波帕斯纳亚、鲁别日诺耶和马林卡为重点，并在伊久姆周围取得了小的进展，占领了洛佐瓦亚村；在绿谷和克里米纳地区，俄军继续巩固他们最近占领的阵地，为进一步进攻做准备。
-
-在过去24小时内，军事形势没有发生实质性变化，俄罗斯军队继续进行局部攻击，不断投入增援兵力，而不是进行暂停休整，以便为更广泛的攻势做准备。
-
-乌克兰总参谋部报告说，4月22日，之前在切尔尼戈夫一带作战第41集团军撤出的部分人员，部署到了乌克兰东部战场。
+- 4月14日，据美联社收集并分析的数据显示，2020-2021学年度，选择在家上学的学生比疫情前增长了63%，2021-2022学年学校已经完全重新开放，但是在家上学的学生比例仍然维持在高位，仅比上一年度下降了17%。家长们仍然对健康等因素感到担忧。
 
 
-- 在马里乌波尔，俄军没有停止轰炸亚速钢铁厂，继续围攻剩余的乌克兰守军，并一再拒绝乌克兰关于开放人道主义走廊以疏散平民的要求。
-
-俄罗斯国防部4月22日表示，只有当乌克兰军队举起白旗投降时，才会在马里乌波尔开始人道主义救援，并声称乌克兰守军将在两周内耗尽食物和物资。俄罗斯和顿涅茨克共和国的部队继续巩固其对马里乌波尔关键位置的控制，并可能为建立占领区伪政权创造条件。有部分俄军离开了马里乌波尔，目前无法确认哪些俄罗斯部队已经离开，以及他们可能的目的地。
+- 4月14日，辉瑞向FDA申请五岁以下儿童疫苗加强针的使用授权。
 
 
-- 南部战线，俄军在过去24小时内对赫尔松西边和扎波罗热的乌克兰阵地进行了进行大规模轰炸和不成功的攻击。
-
-乌克兰总参谋部报告说，隶属俄罗斯第58集团军的第19摩步师的成员，部署在扎波罗热前线，可能是为了支持北部的进攻行动，旨在包围乌克兰东部的乌克兰军队，尽管俄罗斯军队仍然很不可能在这些进攻行动中取得重大进展。
-
-俄罗斯还在为在扎波罗热州和赫尔松州建立代理共和国创造条件，以巩固俄罗斯对这些地区的控制，并征用乌克兰的人力。
-
-乌克兰国防部发言人在4月22日报告说，俄军阻止乌克兰公民离开这些地区，并准备征召适龄男子。
+- 4月18日，美国佛罗里达州联邦法官下令撤销联邦政府针对飞机、火车等公共交通乘客的口罩强制令。两天后的4月20日，美国CDC随即要求司法部对佛罗里达州联邦法官的裁决进行上诉。
 
 
-- 乌克兰军情局4月22日报告说，有几名俄罗斯军官因在乌克兰的失败而被解职或监禁。报告中说，俄罗斯当局逮捕了黑海舰队司令奥西波夫海军上将，并正在调查黑海舰队参谋长平丘克海军中将，原因可能是莫斯科号的被击沉。报告中还说，第6集团军司令、第1近卫坦克军司令和副司令以及第22军团司令都因表现不尽人意而被免职。
-
-对军官的清洗不太可能提高俄军的战力，因为接替的指挥官很可能经验不足，要实现普京设定的那个不合理的目标，会面临巨大压力。
+- 4月20日，辉瑞董事会成员、前FDA官员Scott Gottlieb医生接受采访时表示，哪怕周围的人都不戴口罩，高质量的N95口罩仍然有较好的保护作用。
 
 
-参考链接：[News Live On A Map.](https://liveuamap.com)
+- 4月20日，诺华公司宣布，该公司研发的新冠和流感综合疫苗初期实验显示有不错的效果，将继续推进第二期临床试验，但是诺华的新冠疫苗至今仍然没有获得FDA的使用授权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-编辑/总编/审核：Irene木木
+参考链接：
+
+1. [Homeschooling surge continues despite schools reopening](https://apnews.com/article/covid-business-health-buffalo-education-d37f4f1d12e57b72e5ddf67d4f897d9a)
+2. [Pfizer and BioNTech to ask FDA to authorize COVID-19 booster for kids as young as 5](https://www.cbsnews.com/news/covid-vaccine-booster-pfizer-kids-ask-fda/)
+3. [CDC asks Justice Department to proceed with mask mandate appeal](https://www.foxnews.com/us/cdc-asks-justice-department-proceed-mask-mandate-appeal)
+4. [DOJ to appeal ruling striking down mask mandate after CDC gives OK](https://nypost.com/2022/04/20/cdc-asks-doj-to-appeal-ruling-to-bring-back-mask-mandate-on-planes-trains/)
+5. [Dr. Scott Gottlieb: High-quality Covid masks work even if others around you aren’t wearing one](https://www.cnbc.com/2022/04/20/dr-scott-gottlieb-covid-masks-work-even-if-others-around-you-arent-wearing-one.html)
+6. [Novavax says vaccine targeting Covid and flu shows promising results in early data](https://www.cnbc.com/2022/04/20/novavax-says-vaccine-targeting-covid-and-flu-shows-promising-results-in-early-data.html)
+
+
+![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+
+编辑/总编/审核：Zion文恩
 校正/发稿：我不在这里
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

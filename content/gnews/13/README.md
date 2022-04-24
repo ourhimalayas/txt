@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：中共幻想通过拿下台积电 来获得技术和干掉美元
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406038/)
+## 20220424郭文贵大直播 ：七哥 普京的身体状况已经到了极度自恋的程度
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406112/)
 
 作者：东京樱花团小视频组
 

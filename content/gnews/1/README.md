@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ： Swift 美元将会衰落喜联储新的金融系统将会崛起
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406172/)
+## 20220424郭文贵大直播 ：台湾一定是美国长期的航母驻扎地 台湾现在的病毒就是疫苗灾难
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406236/)
 
 作者：东京樱花团小视频组
 

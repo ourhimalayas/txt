@@ -2,44 +2,16 @@
 ---
 
 
-## 有声|美国青年志愿者震惊于419美国之音断播事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2405756/)
+## 20220424郭文贵大直播 ：北京是受诅咒的城市 北京人是流氓假仗义
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406093/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-4月19日，前线救援记者Nicole在梅蒂卡难民中心采访了一位来自美国的青年志愿者。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-10.13.28-AM.png)
-过程中，Nicole向这位志愿者解释了五年前美国之音VOA恶意中断郭文贵先生采访直播的事件。同时，Nicole也提到，虽然VOA是由美国联邦政府资助的新闻机构，但其中断直播的原因却仅仅是碍于中共政府的强力要求。
+作者：东京樱花团小视频组
 
-对此，这位美国志愿者表示，美国本应该是言论自由、媒体自由和信仰自由的象征。然而，近几年来，这样的自由越来越多地被外国利益集团轻易操纵。更甚者，为了能在中共国获取利益，那些有影响力的组织和大公司牺牲了代表美国的自由价值观——这实在令人失望。
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-对此，郭文贵先生曾在直播中反复提到，包括美国之音和华尔街在内的许多公司都正在与美国人民的头号敌人——中共存在巨大的利益联系，他们正在与魔鬼做交易。
-
-此外，采访中，这位美国青年志愿者多次用“伤透了心”来形容419美国之音断播事件对自己的震撼。
-
-
-
-
-
-文字版原文：[美国青年志愿者震惊于419美国之音断播事件](https://gnews.org/zh-hans/2399499/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
