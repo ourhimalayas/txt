@@ -2,22 +2,18 @@
 ---
 
 
-## 郭文贵直播音频2022.04.23
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2402573/)
+## 视频|新中国联邦和法治基金乌克兰救援的最新数据
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2402660/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6383d6c383a688bc0ce747d8282e44b3_500x0-15.jpeg)
-### 视频链接：
+制作：香草山视频部
 
-[https://gettr.com/post/p16qngm5663](https://gettr.com/post/p16qngm5663)
+2022年3月5日到3月19日期间，从乌克兰到波兰克拉科夫的救援大巴累计发车39台，共计救助两千零九名难民，当中包括乌克兰的妇女、儿童以及中国同胞。截止4月19日，波兰梅蒂卡前线救援帐篷当天接待252余名难民，自救援开始总计接待难民人数超过一万三千六百一十一人。
 
-### 音频链接：
+发稿：林礼
 
-
-
-
-
-编辑发布：闪电训练
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

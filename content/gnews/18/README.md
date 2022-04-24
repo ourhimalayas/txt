@@ -2,28 +2,23 @@
 ---
 
 
-## 樱花时政┃普京将在秋季测试能够打击美国的核导弹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402346/)
+## 郭文贵直播音频2022.04.23
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2402573/)
 
-撰稿：东京樱花团/asket
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6383d6c383a688bc0ce747d8282e44b3_500x0-15.jpeg)
+### 视频链接：
 
-克里姆林宫周六（4月23日）表示，俄罗斯计划在秋季前测试能够打击美国的新一代核洲际弹道导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-4.jpg)[图片来源](https://www.zerohedge.com/geopolitical/putin-test-nuclear-missile-capable-striking-us-autumn)
-据路透社报道，这个野性勃勃的目标是由俄罗斯航天局局长德米特里-罗戈津（Dmitry Rogozin）在周三进行首次试射后几天于周六宣布的。西方军事专家说，在部署该导弹之前，还需要进行更多的测试。
+[https://gettr.com/post/p16qngm5663](https://gettr.com/post/p16qngm5663)
 
-萨马特导弹能够携带10个或更多的核弹头（或诱饵），并能够打击美国或欧洲数千英里外的目标。
+### 音频链接：
 
-本周的测试是在因资金和技术问题而推迟多年之后进行的。这次导弹试验为展示俄罗斯军工实力，标志着俄罗斯因乌克兰战争，与美国及其盟国的紧张关系飙升至1962年古巴导弹危机以来的最高水平。
 
-罗戈津在接受俄罗斯国家电视台采访时说，这些导弹将被部署在西伯利亚的克拉斯诺亚尔斯克（Krasnoyarsk）地区，距离莫斯科以东约3000公里（1860英里）的一个单位。
 
-他补充说，这些导弹将被储存在与将被取代的苏联时代的沃耶沃达（Voyevoda）导弹相同的地点和发射井中，这将节省 “巨大的资源和时间”。
 
-信息来源：[Putin To Test Nuclear Missile Capable Of Striking US By Autumn](https://www.zerohedge.com/geopolitical/putin-test-nuclear-missile-capable-striking-us-autumn)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+编辑发布：闪电训练
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

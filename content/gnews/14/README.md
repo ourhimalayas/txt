@@ -2,52 +2,43 @@
 ---
 
 
-## 伊斯兰国称对阿富汗北部的致命爆炸负责
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2402417/)
+## 美国警告中共若在所罗门群岛驻军美就会回应
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2402634/)
 
-翻译: 里奇
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-519.jpg)图片来自网络
+《SBS News》近日报道，一个高级别的美国代表团星期五会见了所罗门群岛领导人，并警告说，美国将对在这个太平洋岛国建立永久性中国军事存在的任何步骤表示 “重大关切并作出相应回应”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
+白宫的一份声明说，所罗门群岛总理马纳塞-索加瓦雷向由白宫印太协调员库尔特-坎贝尔率领的访问团重申，在与中共国签署的安全协议中，不会有军事基地，不会有长期存在，也不会有军事投射能力。
 
+白宫没有表明美国将对这种情况作出何种反应，但其直截了当的语气表明了美国的关注程度，这导致本周向这个偏远岛国派遣了坎贝尔先生的代表团。
 
+“如果中共采取步骤建立事实上的永久性军事存在、电力设施或军事设施，代表团指出，美国届时将有重大关切，并作出相应回应，”它说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-238.png)4 月 21 日，位于阿富汗马扎里沙里夫繁忙地区的清真寺发生爆炸后，从 Seh Dokan 清真寺看到的景象。照片：Sayed Khodaiberdi Sadat/Anadolu Agency via Getty Images
+“美国强调，它将与区域伙伴协商，密切关注事态发展。”
 
-据追踪武装团体和极端主义组织在线活动的非政府组织 SITE Intelligence Group 称，伊斯兰国在阿富汗的分支机构周四声称对北部城市马扎里沙里夫和昆都士发生的两起致命爆炸事件负责。
+声明说，美国代表团概述了华盛顿为促进索罗门群岛人民的福利将采取的具体步骤，包括加快在那里开设大使馆，加强在未爆弹药方面的合作，以及派遣“济慈号”医疗船来解决健康问题。
 
-**推动新闻**：据路透社报道，针对马扎里沙里夫什叶派清真寺的第一次爆炸造成至少 10 人死亡，数十人受伤。据《纽约时报》报道，第二次爆炸针对昆都士的一辆小巴，造成至少四人死亡。
+它说，美国还将提供更多的新冠疫苗给所罗门群岛，并将推进气候和健康倡议。
 
-• 美联社报道，一枚路边炸弹也在喀布尔的 Dasht-e-Barchi 街区爆炸。
+声明说，双方就与中共国的安全协议进行了 “实质性讨论”。
 
-**大背景**：虽然阿富汗最近几个月相对平静，但据美联社报道，周四的爆炸事件是在周二喀布尔发生的一系列爆炸事件之后发生的。
+声明说：”所罗门群岛代表表示，该协议仅适用于国内，但美国代表团指出，该协议有潜在的区域安全影响，包括对美国及其盟友和伙伴的影响。”
 
-• 这些爆炸袭击了教育机构，包括位于Dasht-e-Barchi 社区的一所高中，这里居住着许多来自什叶派哈扎拉社区的人——这是伊斯兰国和其他逊尼派武装分子经常针对的少数民族和宗教少数群体。包括儿童在内的至少六人在那次袭击中丧生。没有任何组织声称对此负责。
+代表团在所罗门群岛首都霍尼亚拉会见了索加瓦雷先生，在此之前，所罗门群岛和中共国说他们已经签署了一项安全协议，尽管美国及其盟国纷纷呼吁，敦促该岛国不要继续进行这项协议，他们担心这将大大扩展中共国在该地区的军事影响力。
 
-• 自去年8 月控制阿富汗以来，塔利班已发誓要保护该国的什叶派少数群体，他们在1990 年代激进组织的残暴统治下受到迫害。
+所罗门群岛在太平洋地区占有战略地位，二战中曾是一些最为激烈的战斗发生的地方。
 
+民主国家再也不会给独裁者扩张的机会了，共识就是最终要消灭独裁政权。
 
-```
-他们在说什么：塔利班谴责周四的袭击，称“这些罪行是与阿富汗社会无关的圈子所为。”
-```
+参考链接：
 
-• 联合国新任阿富汗人权状况特别报告员理查德·贝内特（Richard Bennett）在推文中谴责周四的袭击，称“对拥挤的学校和清真寺的系统性针对性攻击要求立即进行调查、问责并结束这种人权侵犯 。”
+[https://www.sbs.com.au/news/article/us-warns-of-response-to-any-permanent-china-military-presence-in-solomons/0kvs8esxd](https://www.sbs.com.au/news/article/us-warns-of-response-to-any-permanent-china-military-presence-in-solomons/0kvs8esxd)
 
-新闻来源:[ISIS claims responsibility for deadly blasts in northern Afghanistan](https://www.axios.com/isis-claims-responsibility-for-deadly-blasts-in-northern-afghanistan-74566d1a-d2f0-4cd4-81ec-4a49d9692f47.html)
+*编辑：金生水*
 
-* * *
-
-审核：文乐
-校对：小东
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
