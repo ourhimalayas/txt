@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 12:44 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月22日第49天当日救援统计：<br/>Medyka救援站接待：约292人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13903人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 49 - Date: April 22, 2022 :<br/>Medyka Rescue Station Reception: about 292 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13903 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group26/getter/2022/04/24/12/48bebefd-9d0d-8911-c9cb-68127b5f7772/028aa774782fa7036bedeb562e24e559.jpg)
+
+---
+
 `@miles 4/24/2022 12:25 PM (UTC)`
 
 2022年4月24日 文贵大直播：俄乌战争前因后果；沪京等隔离与台湾；佩洛西访台成定局；国内目前经济情况
@@ -147,13 +154,6 @@
 
 4/23/2022 Miles Guo: Those fellow fighters who did not follow my advice regret it, but it is too late. The data collected by a fellow fighter in Shanghai confirms my estimate of the death toll in Shanghai. Fellow fighters, you must not pay the price of your life or ruin your whole family because of ignorance and stupidity.<br/><br/>4/23/2022 文贵直播：之前没有听文贵劝告的战友们虽然后悔不及，但为时已晚；上海战友统计的数据印证了文贵关于上海死亡人数的估计；战友们千万不要因为无知和愚蠢付出生命的代价或毁了全家！<br/>
 ![img](https://media.gettr.com/group39/getter/2022/04/23/22/5e22e167-49f0-0d50-3986-fb80b4f1359d/out.jpg)
-
----
-
-`@miles 4/23/2022 10:24 PM (UTC)`
-
-4/23/2022 Miles Guo: All the banks in Communist China are under the CCP’s control. These banks will restrict cash withdrawals and transfers and will regulate accounts with large amounts. The banks and bankers in Communist China will be the new victims of the CCP, including Dong Wenbiao, Zhang Hongwei, Bruno Wu, Jack Ma, and others.<br/><br/>4/23/2022 文贵直播：中共国所有的银行都是共产党控制的，银行会限制取现、转账并监管大额账号，中共国的银行和银行家都是共产党的新的牺牲品，包括董文标、张宏伟、吴征、马云等等<br/><br/>
-![img](https://media.gettr.com/group10/getter/2022/04/23/22/5e0c217a-564f-9559-17c8-223cbddc03e0/out.jpg)
 
 ---
 

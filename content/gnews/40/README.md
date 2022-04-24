@@ -2,39 +2,64 @@
 ---
 
 
-## 上海封城｜持续封控打乱国际运输 卫星图显示上海港货物堆积如山
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2403328/)
+## COVID疫苗注射正在杀人吗？（4/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2403357/)
 
-**图/文｜CP **
-**发布时间｜24/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城｜持續封控打亂國際運輸-衛星圖顯示上海港貨物堆積如山-.jpg)
+编译： Jenny Ball
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
 
-中共以防疫之名封锁上海已维持近一个月，综合外媒报道，虽然近期上海开始陆续复工，但严格防疫政策导致当地运输依然停摆，其中卡车运输受影响最大，货运司机无法畅通运行，导致许多等待装货的空集装箱堆积码头。相关程式显示，截至4月21日，世界上最繁忙的上海集装箱港口—“上海港”目前货物堆积如山。
 
-中国欧盟商会估计，自封控以来，中国可用的货车数量已下跌40%。加上各地防疫政策不一、货车通行需一连串行政审批，同时需要出示48小时核酸检测结果，令许多司机即使获逾双倍报酬，也不愿前往上海。航运承运人和行业顾问称，虽然上海港仍在运营，但能够向港口运送货物的卡车短缺，意味着集装箱运力闲置情况愈发严重。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/61554090_303-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/phpbr49py.jpeg)
 
-相关程式显示，截至4月21日，世界上最繁忙的上海集装箱港口—“上海港”目前货物堆积如山
-据美国供应链数据公司FourKites Inc.数据显示，截至上周一（18日），一个装有进口货物的集装箱在上海港等待作业的平均时间为8.3天，是封控前的两倍还多。
+接上篇：[COVID疫苗注射正在杀人吗？（3/4）](https://gnews.org/zh-hans/2403255/)
 
-日本物流公司日邮物流（Yusen Logistics）亦透露指，公司过去两周货运量下降，正常情况每日要打包8,000立方米货物，但过去一周末打包量仅为往常6%，有几天甚至没货物运出，公司预计，出口量到5月下旬会大幅下降。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-107.png)
 
-针对该情况，丹麦货运分析公司Sea Intelligence谘询服务副总裁Bjorn Vang认为，即使严格封控措施会在5月初解除，但由于工厂希望弥补生产停滞带来的影响，货车和船舶在接下来几周会被预定一空，如果是这样，国际物流至少要到7月才能恢复正常。
+- 《英国医疗》(BMJ) 2021 年 1 月得出结论：“在 2020 年 3 月至 2020 年 4 月期间，在英国的第一波大流行期间证明有感染证据的 11, 000 名医护人员中，没有人在2020 年 10 月至 2020 年 11 月之间第二波大流行中出现有症状的再感染。”
+- 《科学》2021 年 2 月报道称，“在 COVID-19 之后会产生大量免疫记忆，涉及所有四种主要类型的免疫记忆 [抗体、记忆 B 细胞、记忆 CD8+ T 细胞和记忆 CD4+ T 细胞]。
+- 大约 95% 的受试者在感染后约 6 个月保留了免疫记忆。循环抗体滴度不能预测 T 细胞记忆。一项 2,800 人的研究发现，在约 118 天的时间内没有出现症状性再感染，而1,246人在研究中未观察到超过 6 个月有症状的再感染。
+- 2021 年 2 月发布在medRxiv上的一项研究得出的结论是：“自然感染似乎可以在至少 7 个月内对再感染产生强有力的保护作用，其疗效约为 95%。”
+- 2021 年 4 月发表在 medRxiv上的一项研究报告称，“对于有记录的感染，对先前 SARS-CoV-2 感染的总体估计保护水平为 94.8%；我们的结果质疑：是否需要为以前感染过的人接种疫苗。”
+- 2021 年 4 月在BioRxiv上发布的另一项研究得出结论：“继典型的轻度 COVID-19 病例之后，SARS-CoV-2 特异性 CD8+ T 细胞不仅持续存在，而且以协调的方式持续分化，进入一种具有长寿、自我更新记忆的状态特征，并进入康复期。”
+- 2021 年 5 月的《自然》文章，发现 SARS-CoV-2 感染会诱导长寿的骨髓浆细胞，这是保护性抗体的重要来源。即使在轻度感染后，在感染后 11 个月后，仍可检测到抗 SARS-CoV-2 刺突蛋白抗体。
+- 2021 年 5 月 E 临床医学的一项研究发现，“在 COVID-19 自然感染后近一年内，抗体检测是可能的。”
+- 2021 年 6 月的《自然》文章表明，在感染后 6 到 12 个月之间，中和抗体的浓度保持不变。作者对一年中康复者血液中 SARS-CoV-2 特异性记忆 B 细胞的分析表明，急性免疫反应甚至会持续超过 6 个月。
+- 这些记忆 B 细胞通过称为体细胞超突变的过程不断增强其 SARS-CoV-2 特异性抗体的反应性。好消息是，迄今为止的证据表明，感染 SARS-CoV-2 会在大多数人中诱导长期免疫。”
 
-德国联邦工业联合会（BDI）主席鲁思沃亦忧心，受上海防疫影响，德国工业界未来几周的生产流程会被打乱，尤其是那些以来原材料进口或建筑部件交付的行业。
 
-他指出，受俄乌战事、新冠疫情影响，企业和客户已感受到国际物流动荡的影响，运输价格上涨了一倍多。他续指，中共对上海的封锁时间越长，经济后果就越严重，无论对全球经济亦或是对德国出口业。他强调，海运供应链的问题，短期内还看不到任何缓解趋势。
+**再感染非常罕见**
 
-來源｜[fortune](https://fortune.com/2022/04/21/china-covid-lockdown-shanghai-port-supply-chain-backlog-container-ships/)、[seatrade](https://www.seatrade-maritime.com/containers/shanghai-lockdown-container-line-blank-sailings-remain-normal)、[NYtimes](https://www.nytimes.com/2022/04/08/business/china-lockdowns-supply-chain.html)
+麦卡洛强调，如果您已经感染过一次新冠病毒，也无需担心再次感染。
+
+“再感染是一个不常见的事件，”绝对再感染率介于 0% 至 1.1% 之间，而中位再感染率仅为 0.27%。
+
+另一项研究揭示了同样令人放心的结果。它跟踪了 43,044 名 SARS-CoV-2 抗体阳性的人长达 35 周，只有 0.7% 的人再次感染。
+
+与 COVID-19 注射不同，在 7 个月的随访中没有迹象表明免疫力减弱，这导致研究人员得出结论：“再感染是罕见的。
+
+“这是一劳永逸的，”麦卡洛说。如果你有过一次，你就不会再感染。他还建议，您确认过一次 COVID-19 后不要再去 PCR 检测，因为任何后续的阳性检测都只是假阳性。
+
+**早期治疗方案**
+
+最后，如果您感染 COVID-19，知道有几种非常有效的早期治疗选择，早期治疗是预防严重感染和预防“长期 COVID”的关键。这里有一些建议。
+
+新闻来源：[the covid shots are killing people？](https://www.theepochtimes.com/the-covid-shots-are-killing-people_4411307.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-04-22&amp;utm_medium=email&amp;est=v%2Fmh3wGbziRYI2REwUQkMQO5JskQCHmYtpdcRqbpEJYVwSVe69TeN5kuM3sLiGp5RneFtQ%3D%3D)
 
 * * *
 
-**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 
