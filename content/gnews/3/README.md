@@ -2,25 +2,18 @@
 ---
 
 
-## IMF驻日本审查团长称日元汇率风险将超预期
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2406209/)
+## 视频|梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406439/)
 
-**作者：意大利罗马达芬奇农场 HOKKYOKU KAMIKAZE**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/J-6.jpg)marketwatch.com
-据“华盛顿时事”报道，国际货币基金组织（IMF）驻日本审查团长拉尼尔·萨尔加多先生22日在接受采访时表示，由日美利差导致的近期日元急剧贬值，今后大有可能超出预期并显现更大的压力。
+香草山：铭心
 
-他称“日元的波动与其经济基础条件相符”，同时对“日元的迅速波动很可能影响企业发展规划制定”表示担忧。
+4月15日晚上7点半，梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节，以色列志愿者把NFSC帐篷比作“解放的营地”。以色列志愿者团队为了表示感谢新中国联邦，用英语讲解逾越节的习俗和意义。新中国联邦志愿者为节日备好水煮鸡蛋，代表越战越勇的意思，象征饱受苦难和奴役，但最终成为最坚强民族，为建立了自由家园从未停止，同时也是对新中国联邦人的祝福和支持，消灭中国共产党，建立自由法治家园。
 
-萨尔加多先生还指出：“在岸田政府倡导的‘新资本主义’的目标下，只要日本经济能有效增长，企业存有上调员工收入的空间。为了避免由于日元贬值所造成的进口商品价格上涨而遏制个人消费问题，希望日本企业能积极主动上调薪资”。
+April 15th, 7:30 p.m. Israeli volunteers from the Medyka Rescue Center gathered at the NFSC tent to celebrate Passover, during which the Israeli volunteers have compared the center to a “center of freedom”. The Israeli volunteer team explained the customs and meaning of Passover in English as a token of appreciation to the NFSC. The New Federal State of China’s volunteers prepared boiled eggs for the holiday, representing the more they fight the more courageous they become. This symbolizes the people who suffered and were enslaved, but eventually became the strongest people who never stopped to build a free homeland. This is also a blessing and support for the New Federal State of China to take down the Chinese Communist Party and build a free homeland under the rule of law.
 
-国际货币基金组织（IMF）刚发布的最新全球经济展望中，将日本2022年的GDP实际增长率从之前的 1 月份预测下调了0.9%至2.4%。萨尔加多先生表示，其中0.5%归咎于俄乌战争，0.4%归咎于新冠疫情。受俄乌战争的影响，物价暴涨，欧洲经济放缓也间接地影响了日本的出口贸易。
 
-**评**：结合七哥去年大直播，虽然日元现阶段在130所谓关口内波动，未来大有冲击150甚至170的可能。这波世界第三次大战中的日元贬值已经不由日本政府和央行所控制。
 
-新闻来源：
-[https://www.jiji.com/jc/article?k=2022042300417&g=int](https://www.jiji.com/jc/article?k=2022042300417&amp;g=int)
-
-编辑 发布：意大利罗马达芬奇农场 Roma
+发布：奇门遁甲
 
  
 

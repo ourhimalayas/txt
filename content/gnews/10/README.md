@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：中国和俄罗斯解体 中国人出去不被世界接受！俄罗斯人能被世界接受
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406136/)
+## 20220424郭文贵大直播 ：有币不会用惨大了，八月底将会推出喜贷款
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406325/)
 
 作者：东京樱花团小视频组
 
