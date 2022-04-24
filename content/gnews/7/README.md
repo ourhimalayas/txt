@@ -2,30 +2,54 @@
 ---
 
 
-## 华尔街的贪婪决定了中共的存活
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2406864/)
+## 经济学家皮帕·马尔姆格伦在 2022 年世界政府峰会上声称数字区块链将用于新的会计系统
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2406869/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/541aa96e-55da-4dae-9b30-e68084dbddde.jpg)
-4月24日大直播中郭先生与战友分享用开放的思维看待中国和俄罗斯的合作。
+Dr. Pippa Malmgren (American economist)
+皮帕·马尔姆格伦博士（美国经济学家）
 
-郭先生提到，历史总有一些所谓的巧合，而后世的人通过总结规律，如莫德尔周期，中国的六十年一个甲子，用超长跨度的时间来企图窥视人类的当下和以后，并且神秘地称之为宿命和必然。这种做法一叶障目，非常狭隘，若是某些学说成为了主流，毫无疑问也就变成了禁锢人类发展的枷锁。我们现在高速发展的讯息互联网，人类科技能够去到月球和太空，这些因素本身已经引导人们不能再用陈词滥调来考虑问题。说到中共和俄罗斯走在一起，是因为共产主义、独裁体制、奴役人民的共同点，但这段近代史只是浩瀚历史中的小小部分。哪怕近代史上这100年的合作，双方都是不断反复同床异梦的。
+we are about to and I’ll say this boldly
+我们即将, 我会大胆地说
 
-90年代苏联解体，8964后中共没有解体，还存活了下来，是美国和华尔街决定了中共的存活。美国社会有三派，一派是民主党，民主党中间一部分是好人，另一部分人属于极左，崇拜马克思主义。另一派是极右派，以川普班农为主，在郭先生爆料之前，他们并不是真正要灭共，只是利己主义的驱动。美国第三派是华尔街派，这派力量由于庞大的金钱，可以决定以上两派的生死。共产党在8964以后能够活下来的原因就是因为美国华尔街金钱派的支持。
+We’re about to abandon the traditional system of money and accounting
+我们即将放弃传统的货币和会计制度
 
-撰稿、发布：骄子
+and introduce a new one
+并引入一个新的
 
-* * *
+and the new ones, the new accounting is what we call blockchain
+新的会计制度就是我们所说的区块链
 
-欢迎订阅我们的GNews账号：
+It means digital
+这意味着数字
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+it means having a almost perfect record of every single transaction happens in the economy
+这意味着对经济中发生的每一笔交易都有几乎完美的记录
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+which will give us far greater clarity over what’s going on
+这将使我们更加清楚正在发生的事情
+
+**原视频链接**[https://twitter.com/conceptualjames/status/1517725945083441154?s=24](https://twitter.com/conceptualjames/status/1517725945083441154?s=24)
+
+Date:04/23/2022
+原视频标题: Economist Pippa Malmgren at the World Government Summit 2022 claims that digital blockchain will use into the new accounting system
+经济学家皮帕·马尔姆格伦在 2022 年世界政府峰会上声称数字区块链将用于新的会计系统
+原视频日期：2022/04/23
+原视频链接https://twitter.com/conceptualjames/status/1517725945083441154?s=24
+任务编号：KE488（4325）
+视频时间段 : 0:00-0:25
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

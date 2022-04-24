@@ -2,54 +2,32 @@
 ---
 
 
-## 经济学家皮帕·马尔姆格伦在 2022 年世界政府峰会上声称数字区块链将用于新的会计系统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2406869/)
+## 普京一副病体，无法硬撑
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2406870/)
 
-Dr. Pippa Malmgren (American economist)
-皮帕·马尔姆格伦博士（美国经济学家）
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-4.jpg)
+4月24日直播中，郭先生爆料普京如何使用假宣传让自己的身体看起来无比健壮。
 
-we are about to and I’ll say this boldly
-我们即将, 我会大胆地说
+郭先生提到，在独裁集权的体制下，领袖的身体状况和国家生活、老百姓的洗脑紧密相连。一个领袖的身体好坏直接关系到国民生活的自豪感和国家经济的蓬勃，或者领袖的身体可以决定一切。无数个独裁领袖以身证实了这一点。斯大林、毛泽东、林彪都是如此。而民主国家由于纠偏机制，如美国拜登总统的身体状况是必须公布的，否则是刑事犯罪。
 
-We’re about to abandon the traditional system of money and accounting
-我们即将放弃传统的货币和会计制度
+郭先生爆料普京此前的身体都是靠打针来维持的。之前普京每次出访，都会提前三周，在可承受的范围内吸氧、打针、注射血清等。到了出访目的地，都要脱衣展示自己身体的健壮，每个动作都是设计好的，用来骗老百姓。但由于动过手术，其中一次还是肾脏手术，普京现在身体已经无法打针了，因为不安全了。曾经的普大帝失去了医美，身心俱毁。郭先生提到普京的性格是极其自恋和变态的，作为一个独裁国家的领袖，普京的身体确实能够影响到俄乌战争的结局，俄罗斯很快会惨败。只是普京可能会在最后关头疯狂一下子，使用一些核武器。但能不能成功结果另说。
 
-and introduce a new one
-并引入一个新的
+郭先生说，习近平的身体比想象的要糟糕。
 
-and the new ones, the new accounting is what we call blockchain
-新的会计制度就是我们所说的区块链
+撰稿、发布：骄子
 
-It means digital
-这意味着数字
+* * *
 
-it means having a almost perfect record of every single transaction happens in the economy
-这意味着对经济中发生的每一笔交易都有几乎完美的记录
+欢迎订阅我们的GNews账号：
 
-which will give us far greater clarity over what’s going on
-这将使我们更加清楚正在发生的事情
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-**原视频链接**[https://twitter.com/conceptualjames/status/1517725945083441154?s=24](https://twitter.com/conceptualjames/status/1517725945083441154?s=24)
-
-Date:04/23/2022
-原视频标题: Economist Pippa Malmgren at the World Government Summit 2022 claims that digital blockchain will use into the new accounting system
-经济学家皮帕·马尔姆格伦在 2022 年世界政府峰会上声称数字区块链将用于新的会计系统
-原视频日期：2022/04/23
-原视频链接https://twitter.com/conceptualjames/status/1517725945083441154?s=24
-任务编号：KE488（4325）
-视频时间段 : 0:00-0:25
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

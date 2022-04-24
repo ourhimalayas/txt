@@ -2,12 +2,20 @@
 ---
 
 
-## 千言万语无法形容七哥对你们的感恩
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406722/)
+## 俄乌战争的前因后果
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2406733/)
 
-听写：叮叮         编辑：文宝
+文贵大直播20220424
 
-千言万语无法形容七哥对你们的感恩，看到你们对猫、狗、人的照顾，Nicole和正义小Sarah的这些采访，你看看每个采访的视频都像一个导弹一样射向坏人。共产党太害怕了，共产党的内部说：“他们在乌克兰搞这个事情，绝不是郭文贵的智商能搞出来的，这绝对是美帝国主义策划出来的。” 向天发誓没有任何人，就是我们战友自发的。但是共产党你记住，我们这些人是开了“天眼”的人，我们受上天之眷顾，知道该怎么做才是做最正确的事。我们是替佛行道、替民请命，为十四亿中国人和海外华人的安全奋斗，干掉这个不能代表中国人的中国共产党。谢谢！
+文案指导：顽童（纽伦堡正义）
+
+撰稿：文晓（樱花团）文仁（77功成）烟火（樱花团）
+
+书法：沙漠之花（香草山）
+
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-10.png)
+*发布：Theodosia*
 
  
 
