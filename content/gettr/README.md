@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/24/2022 2:38 AM (UTC)`
+
+4/23/2022 Miles Guo: Mr. Guo suggested that fellow fighters should assess their particular situations to decide whether or not going back to their hometowns in rural areas, if possible, staying where they are might be a better choice; there are 60,000 troops stationed in Beijing for a long-term lockdown preparation; the martial law is being implemented in Beijing, Shanghai, Guangzhou and Shenzhen; the CCP is trying to solve its economic and political issues by imposing lockdowns and further martial law by using the virus transmission as the excuse<br/><br/>4/23/2022 文贵直播：郭先生建议战友要跟据实际情况考虑是否回乡下，能不动则不动；北京有六万部队驻扎，目的就是为了进行实施长期隔离；中共在北京、上海、广州、深圳实际是在实行军管；中共的最终目的是要借病毒传染，通过隔离来实行军管，企图来解决其政治、经济问题<br/>
+![img](https://media.gettr.com/group5/getter/2022/04/24/02/f3cb16c5-5249-246d-5c73-11d45db4fe14/out.jpg)
+
+---
+
 `@miles 4/24/2022 2:01 AM (UTC)`
 
 2022.04.23  新中国联邦 | 喜财经    喜币发行量背后的新金融模式；货币、财富与价值的爱恨情仇 ；G系列喜生态解读
@@ -147,13 +154,6 @@
 
 04.23.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 ![img](https://media.gettr.com/group39/origin/2022/04/23/17/fb68a364-a7f6-1142-b406-3c53a1019f2e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/23/2022 4:34 PM (UTC)`
-
-The New Federal State Of China & the ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
-![img](https://media.gettr.com/group36/origin/2022/04/23/16/2b5970e2-a9eb-eb93-bc61-cb5c26f76478/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
