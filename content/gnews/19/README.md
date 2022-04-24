@@ -2,35 +2,38 @@
 ---
 
 
-## 泽连斯基宣布，美国国务卿和国防部长将访问乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404489/)
+## 遭制裁的俄银行创始人：90%的俄罗斯人反对俄乌战争 呼吁西方给普京“一个明确的出口”
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2404583/)
 
-#### **【雅典娜快讯】紧贴时代脉博**
+编辑/翻译：幸运草
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
-#### **翻译/编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0424-12.jpg)俄罗斯数字银行创始人 奥列格·廷科夫（Oleg Tinkov）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-128.png)图片来源：The Boston Globe & 雅典娜设计组
+4月19日，俄罗斯数字银行创始人廷科夫抨击俄罗斯对乌克兰的“疯狂”战争，并呼吁西方国家给俄罗斯领导人普京“一个明确的出口，以保住他的面子，停止这场大屠杀。”
 
+廷科夫在Instagram上发帖称，“90%的俄罗斯人反对这场战争!”他还认为，剩下的10%是“白痴”，俄罗斯军队已经暴露出了“愚蠢”。
 
-当地时间周六，乌克兰总统泽连斯基宣布，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将前往乌克兰讨论武器援助问题。
+“我看不出有一个人是这场疯狂战争的受益者!”廷科夫在Instagram上用俄语写道。“无辜的人民和士兵正在死去。将军们从宿醉中醒来，意识到他们的军队很烂。”
 
-在新闻发布会上，泽连斯基表示，周日他将与美国高级官员会面，讨论俄罗斯加强侵略和美国可以提供的额外支持。
+“如果这个国家的其他一切都是肮脏的裙带关系，军队怎么能好呢?”
 
-“我们将讨论我们需要的武器清单及其供应速度。最近几周，一切都得到了改善。我对此表示感谢”，他说：“一旦我们拥有更多武器，一旦拥有足够的武器，相信我，我们将立即夺回被俄罗斯占领的领土。”
+廷科夫写道:“克林姆林宫的官员们很震惊，不仅他们，就连他们的孩子夏天也不能去地中海了。”“商人们正在努力抢救剩下的财产。”
 
-这将是自2月24日战争爆发以来美国高层首次访问基辅，布林肯和奥斯汀的访问是在标志性的一天——战争进入第三个月的那一天，此时乌克兰东部继续爆发激战。
+“当然有白痴在画Z(在俄罗斯，其象征支持入侵乌克兰)”，“但任何国家都有10%的白痴。”
 
-拜登总统本周宣布，将向乌克兰提供另外8亿美元的安全援助，其中包括另外72门榴弹炮，以及120多架“凤凰幽灵”无人机。
+“亲爱的‘西方集体’，请给普京一个明确的退路，以保全他的面子，阻止这场大屠杀，”廷科夫在结尾处写道。“请更加理性和人道主义。”
 
-参考链接：[Blinken due to meet Zelenskiy in first wartime visit by top US officials to Ukraine | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/24/blinken-due-to-meet-zelenskiy-in-first-wartime-visit-by-top-us-officials-to-ukraine)
+廷科夫是TCS Group Holding和数字银行Tinkoff Bank的创始人。在他发表这篇文章的几周前，英国制裁了他，冻结了他在英国的个人资产。英国还制裁了其他一些俄罗斯个人和实体。
 
-发布：*wenly*
+在俄罗斯于2月底入侵乌克兰之前，54岁的廷科夫的财富估计超过44.2亿美元。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+但《福布斯》上月报道称，他已经失去了亿万富翁的地位，因为自去年11月以来，Tinkoff Bank的股价大幅下跌。
+
+原文出处：[Sanctioned Russian bank founder Oleg Tinkov condemns ‘insane’ Ukraine war, calls on West to give Putin face-saving exit](https://www.cnbc.com/2022/04/19/russian-bank-founder-oleg-tinkov-condemns-ukraine-war-seeks-putin-exit.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码.png)德农 Discord 二维码
 
  
 

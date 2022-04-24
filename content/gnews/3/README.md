@@ -2,56 +2,41 @@
 ---
 
 
-## 若乌克兰开打美国停掉俄罗斯SWIFT的同时会停掉中共的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2404852/)
+## 有声|国际社会继续制裁俄罗斯 援助乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2404991/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8828.57%EF%BC%89%E8%8B%A5%E4%B9%8C%E5%85%8B%E5%85%B0%E5%BC%80%E6%89%93%E7%BE%8E%E5%9B%BD%E5%81%9C%E6%8E%89%E4%BF%84%E7%BD%97%E6%96%AFSWIFT%E7%9A%84%E5%90%8C%E6%97%B6%E4%BC%9A%E5%81%9C%E6%8E%89%E4%B8%AD%E5%85%B1%E7%9A%84%E3%80%902022%E5%B9%B402%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据外媒综合报道，英国4月21日在其对俄罗斯的制裁名单上增加了26个新项目，包括对俄罗斯军事人物和国防公司的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-29.png)
+当天美国总统乔·拜登表示，美国将向乌克兰提供另外 8 亿美元的军事援助和 5 亿美元的直接经济援助，以帮助乌克兰在击退俄罗斯的新一轮的进攻。军事援助包括 72 门榴弹炮、144,000 发炮弹、72 辆牵引榴弹炮的战术车辆和 121 架凤凰幽灵战术无人机。
 
-**郭文贵先生：**所以你知道我的感受就是，中国人就在苏联面前永远是输家。就像文化、吃饭和品味一样，你永远是满头虱子那个郭老七，跑到俄罗斯来，你永远不是人家干干净净泡澡的俄罗斯人，人家泡澡旁边还有肥皂，免费。我当时很惊讶，你们还有肥皂？香喷喷的肥皂，我闻闻。我旁边那个哥们，我记得特别清楚姓毕的一个人，拿牙咬咬，“老七，这玩意儿都能吃，香。”我说：“你别吃人家肥皂。”
+德国发展部长斯文贾·舒尔茨宣布，将进一步向乌克兰提供 3700 万欧元用于战争后的重建。
 
-就是在世界面前，“习太阳” 、中国人就是当年满头虱子、要试图吃人家肥皂的土老包子。而且世界现在已经把中国人认为是对台湾、对世界的威胁。你去不去、你打不打，都这么收拾你。
+21日，丹麦和西班牙首相同时访问了基辅，会见了乌克兰总统泽连斯并表示会向乌克兰运送更多武器。西班牙还表示，将持续努力推动俄乌战争结束，同时会提供“所有需要的人道和军事援助”，并接收乌克兰难民。
 
-我听说，你知道这个欧洲还有美国明确告诉苏联，告诉普京：你打仗开始，我Swift就给你停了。然后俄罗斯人就问了一句：那你会不会停中共国的Swift啊？就是美元。美国人点点头——没有说出来，点点头！
 
-你想这有多可怕呀？是吧？神奇四侠和（法）图麦他去偷你家大卫的东西了，你说你踹他两脚，那我问你：你会不会顺便把老马也踹两脚？你点点头，是吧？因为老马在那使坏了。
 
-这很危险，这很危险啊！所以说中国人就是个牺牲品嘛，就是个傻叉嘛。就中国人现在还跟着俄罗斯在那大唱赞歌呢，“美帝国主义”呢，疯子！
 
-乌克兰事件看出中国人在国际上你连个狗屁都不是，你就是一个土豪来给人家送钱的。第二，在文化上、精神上、地缘政治上，中国人你没有参与的份儿。你自我感觉成了世界的一极了，你什么“给世界把脉”了，你胡球蛋的，搭都不搭理你。
 
-另外一个，全世界谁都可能谈个Deal，做个交易，绝不跟你中共谈。这说明中共在世界的政权眼里边，你就是我奴役14亿中国人民的工具、代表人，压根儿就没看起过你。
+文字版原文：[国际社会继续制裁俄罗斯 援助乌克兰](https://gnews.org/zh-hans/2395987/)
 
-但是可悲的是中国人把共产党真当成比爹娘还亲的亲人和党。他们不知道“锁链女”、彭帅，他们不知道香港病毒，他不知道乌克兰事件付出的钱，全是你的钱！
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-这是为什么东北人现在到处、天天一身都是虱子，都改革开放了，都已经给世界把脉了，你还是这副德性，悲剧！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-字幕来源：[2022年2月18日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2033310/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑整理：海贼王M.D.LUFFY；
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-字幕档制作：知津；
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-视频制作及上传：Cindy；
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

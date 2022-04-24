@@ -2,20 +2,35 @@
 ---
 
 
-## 秘翻在线：俄罗斯对乌克拉奥德萨进行导弹攻击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2403746/)
+## 泽连斯基宣布，美国国务卿和国防部长将访问乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404489/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-49.jpg)图片来源：本文链接
-据韩媒《朝鲜日报》4月24日的消息，路透社和法新社当地时间23日报道说，俄军对乌克兰南部空军司令部发射的两枚导弹袭击了奥德萨地区的军事设施和民间居住建筑。据初步统计，截至目前，至少有5人死亡，18人受伤。据悉，死者中还包括出生3个月的新生儿。
+#### **【雅典娜快讯】紧贴时代脉博**
 
-乌克兰当局担心，如果现场全面展开生存者救助及尸体搜索工作，人员伤亡规模将进一步扩大。对此，俄军当局表示，已经拆除了奥德萨内的武器储藏库。
+#### **翻译/编辑：文泓**
 
-据国际文传电讯社报道，俄罗斯空军的空中发射远程高精密导弹对奥德萨地区军用跟踪场的物流站进行了打击和破坏。俄方表示，该航站楼内保管着美国和欧洲国家支援的大量外国武器。此外，俄罗斯空军还破坏了保管导弹、大炮、弹药、燃料及润滑油等的乌克兰军储藏库16处。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-128.png)图片来源：The Boston Globe & 雅典娜设计组
 
-信息来源： [https://www.chosun.com/international/international\_general/2022/04/24/KHUPZDDWRNGXFPMTEJGTF766JI](https://www.chosun.com/international/international_general/2022/04/24/KHUPZDDWRNGXFPMTEJGTF766JI)
 
-责编：Eric Kim
+当地时间周六，乌克兰总统泽连斯基宣布，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将前往乌克兰讨论武器援助问题。
+
+在新闻发布会上，泽连斯基表示，周日他将与美国高级官员会面，讨论俄罗斯加强侵略和美国可以提供的额外支持。
+
+“我们将讨论我们需要的武器清单及其供应速度。最近几周，一切都得到了改善。我对此表示感谢”，他说：“一旦我们拥有更多武器，一旦拥有足够的武器，相信我，我们将立即夺回被俄罗斯占领的领土。”
+
+这将是自2月24日战争爆发以来美国高层首次访问基辅，布林肯和奥斯汀的访问是在标志性的一天——战争进入第三个月的那一天，此时乌克兰东部继续爆发激战。
+
+拜登总统本周宣布，将向乌克兰提供另外8亿美元的安全援助，其中包括另外72门榴弹炮，以及120多架“凤凰幽灵”无人机。
+
+参考链接：[Blinken due to meet Zelenskiy in first wartime visit by top US officials to Ukraine | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/24/blinken-due-to-meet-zelenskiy-in-first-wartime-visit-by-top-us-officials-to-ukraine)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
