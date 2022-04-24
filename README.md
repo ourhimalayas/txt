@@ -15,59 +15,59 @@
 
 ---
 
-### [文贵爆料 4.24：不看“天花板”的上海人](/content/gnews/1/README.md)
+### [共产党备战当中](/content/gnews/1/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [爆料革命救了很多人](/content/gnews/2/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [视频|捐物资的西班牙人](/content/gnews/3/README.md)
+ ` MOSVIDEO`
+
+### [执政者的两样武器](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [文贵爆料 4.24：不看“天花板”的上海人](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [一场大战即将开始](/content/gnews/2/README.md)
+### [一场大战即将开始](/content/gnews/6/README.md)
  ` 加拿大温哥华英里农场`
 
-### [视频|梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节](/content/gnews/3/README.md)
+### [视频|梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节](/content/gnews/7/README.md)
  ` MOSVIDEO`
 
-### [共产党的导弹布局](/content/gnews/4/README.md)
+### [共产党的导弹布局](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [特别报告：加密货币巨头币安是如何与俄罗斯联邦安全局相关机构建立起联系的 &#8211; 第二部分](/content/gnews/5/README.md)
+### [特别报告：加密货币巨头币安是如何与俄罗斯联邦安全局相关机构建立起联系的 &#8211; 第二部分](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频|NFSC乌克兰救援团队与以色列救援组织一起庆祝象征自由的逾越节](/content/gnews/6/README.md)
+### [视频|NFSC乌克兰救援团队与以色列救援组织一起庆祝象征自由的逾越节](/content/gnews/10/README.md)
  ` MOSVIDEO`
 
-### [新中国联邦超强的情报能力](/content/gnews/7/README.md)
+### [新中国联邦超强的情报能力](/content/gnews/11/README.md)
  ` 加拿大温哥华英里农场`
 
-### [20220424郭文贵大直播 ：制止疫苗灾难就是提前隔离和极压测试！这是两战之前的整治行动！](/content/gnews/8/README.md)
+### [20220424郭文贵大直播 ：制止疫苗灾难就是提前隔离和极压测试！这是两战之前的整治行动！](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [红旗导弹系统打的是欧洲的飞机](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
-
-### [20220424郭文贵大直播 ：有币不会用惨大了，八月底将会推出喜贷款](/content/gnews/10/README.md)
+### [20220424郭文贵大直播 ：有币不会用惨大了，八月底将会推出喜贷款](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [共产党已经布置好导弹](/content/gnews/11/README.md)
- ` 加拿大温哥华英里农场`
-
-### [20220424郭文贵大直播 ：任何有良知的人都会看清这场疫苗灾难](/content/gnews/12/README.md)
+### [20220424郭文贵大直播 ：任何有良知的人都会看清这场疫苗灾难](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220424郭文贵大直播 ：蔡英文是绑架了台湾2300万人安全的情况下 博得了台湾的价值](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220424郭文贵大直播 ：台湾一定是美国长期的航母驻扎地 台湾现在的病毒就是疫苗灾难](/content/gnews/14/README.md)
- ` Tokyo Sakura Video Group`
-
-### [美国代表团对所中安全协议范围目的和透明度提出质疑](/content/gnews/15/README.md)
- ` 温哥华扬帆农场`
-
-### [纽约教育员工因提供“假疫苗证明”被惩罚](/content/gnews/16/README.md)
+### [纽约教育员工因提供“假疫苗证明”被惩罚](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [IMF驻日本审查团长称日元汇率风险将超预期](/content/gnews/17/README.md)
+### [IMF驻日本审查团长称日元汇率风险将超预期](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [莫迪在戒备森严的情况下访问印度控制的克什米尔地区](/content/gnews/18/README.md)
+### [莫迪在戒备森严的情况下访问印度控制的克什米尔地区](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵大直播要点（2022年4月24日）](/content/gnews/18/README.md)
+ ` 波士顿五月花农场`
 
 ### [4/24/2022国内经济财经周报：田惠宇被调查；多家银行出现取现难](/content/gnews/19/README.md)
  ` 秘密翻译组金融团队`

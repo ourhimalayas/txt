@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：任何有良知的人都会看清这场疫苗灾难
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406270/)
+## 20220424郭文贵大直播 ：制止疫苗灾难就是提前隔离和极压测试！这是两战之前的整治行动！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406367/)
 
 作者：东京樱花团小视频组
 

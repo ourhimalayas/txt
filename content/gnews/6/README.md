@@ -2,18 +2,16 @@
 ---
 
 
-## 视频|NFSC乌克兰救援团队与以色列救援组织一起庆祝象征自由的逾越节
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406420/)
+## 一场大战即将开始
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406440/)
 
-香草山：铭心
+听写：叮叮         编辑：文宝
 
-今天是犹太人的逾越节（Psssover)，庆祝犹太祖先走出埃及被奴役的命运从而获得自由的节日。梅迪卡营地所有的犹太人将聚集在法治基金新中国大帐篷里举行这个重要的节日，他们称法治基金新中国联邦的大帐篷为“自由的帐篷“，因为新中国联邦不仅在帮助乌克兰难民逃出战争获得自由，也在帮助14亿被中共奴役的中国人获得自由。
+这一场这预示着什么？我就担心咱前线的战友了，我就担心这一场血战即将到来，即将到来。塞尔维亚这个歼-60它为啥现在报出来了？七哥咱们先爆出来的，咱们战友先爆出来的，咱提前几周就爆出来了，它也：“反正老子也藏不住了，就直接给写出来了嘛。” 但是共产党你知道吗？你去沙特、伊拉克、突尼斯、叙利亚，老子全知道，包括也门。我再告诉大家，共产党某个船在美国的就在门口，west，船上载有导弹。这不是古巴导弹危机，战友们你们都是在谷歌上搜那些信息，一百个古巴导弹危机跟这个也不能比呀，这个意义大了去了！据说共产党昨天公布完以后，对西方的军事家吓懵了，没想到。“你不是调查我支持俄罗斯吗？老子就干了！”
 
-Today is Passover, the Jewish holiday that celebrates the freedom of the Jewish ancestors from slavery in Egypt. All the Jewish people in the Medyka camp will gather for this important holiday at the Rule of Law Foundation’s tent. They call this tent the “the tent of freedom” because the New Federal State of China is not only helping Ukrainian refugees escape from war and gain freedom, but is also helping the 1.4 billion Chinese, enslaved by the Chinese Communist Party, gain freedom.
+现在给俄罗斯在支持什么？我可以告诉大家，所有国有企业包括连北车这样的企业都是在给俄罗斯制造什么？武器、导弹。俄罗斯现在整个军队大调整，军工大调整，军兵大调整，全在调，把整个东部、北部的人都在往回调，进行重新打乱重新调。然后下一步的攻击是什么？以导弹、飞机为主，而且绝大多数武器来自于中共国；而且俄罗斯最大的武器加工厂就在黑龙江，就在中朝边境和中俄边境上，24小时加班，那里不测核糖核酸，加班工资从1.5倍变到3倍现在。特别是小型的整个无人机的挂载武器系统，全面，一场大战即将开始！
 
-
-
-发布：奇门遁甲
+所以兄弟姐妹们，咱们新中国联邦作为唯一一个向世界告诉共产党要参与乌克兰战争，帮助俄罗斯，站在一起；和几年前说共产党和普京两个人要统治全人类，邪恶五国，就咱一家说。然后告诉…它去乌克兰、它去台湾，而且共产党一定会支持俄罗斯，同时打乌克兰的时候而且会武器支持，全力支持，全都发生了！
 
  
 

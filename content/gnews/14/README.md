@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：台湾一定是美国长期的航母驻扎地 台湾现在的病毒就是疫苗灾难
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406236/)
+## 20220424郭文贵大直播 ：任何有良知的人都会看清这场疫苗灾难
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406270/)
 
 作者：东京樱花团小视频组
 

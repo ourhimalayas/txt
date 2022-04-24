@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：蔡英文是绑架了台湾2300万人安全的情况下 博得了台湾的价值
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406247/)
+## 20220424郭文贵大直播 ：有币不会用惨大了，八月底将会推出喜贷款
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2406325/)
 
 作者：东京樱花团小视频组
 

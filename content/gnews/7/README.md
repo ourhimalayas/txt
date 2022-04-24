@@ -2,12 +2,18 @@
 ---
 
 
-## 新中国联邦超强的情报能力
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2406401/)
+## 视频|梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2406439/)
 
-听写：叮叮         编辑：文宝
+香草山：铭心
 
-那么中国人到那儿去干什么呢？基本上是到那儿吃点儿、嫖点儿，弄点儿农业产品。共产党为啥要搞它，就是主要是整个共产党有原来南斯拉夫这个关系，所谓的培养独裁了国家，打这个楔子。这个红旗系统FK3是给它和土耳其和沙特，和伊朗，和叙利亚、突尼斯这些地方、也门，这是一个诱惑，特别是土耳其。保加利亚。这个保加利亚这个鸟儿国很有意思。保加利亚里边儿有一个叫做黑莫奇，这个黑莫奇这个家伙就是一个当地的大佬，相当于中国的就是曾庆红这个人物，跟中国搞了很多钱，最大的投资银行就是民生银行。七哥都和这些人都接触过，所以跟你们直播，七哥跟你们说说，那你们是猜，七哥是亲身经历，都是亲身经历过这几个人。所以说看着FK3你知道，七哥最早知道FK3 往那儿运的是谁呀？我今天告诉共产党，你一定猜郭文贵为什么几周以前都知道。因为FK3 它得用J20送，J20就是共产党偷的这么个技术，而且J20最大的帮助者，很大的悲哀是乌克兰飞机技术，是吧？俄罗斯偷美国，然后最核心技术是乌克兰帮助建的。当时这个J20要去运，今天七哥毫不夸张地说，它有几架J20、它J20什么时候起飞？飞行数据是啥？七哥分分钟拿到。等哪天咱们的新平台上线的时候，我准备玩儿个节目，我让草根儿兄弟连续直播72小时，啥也不干，就是一张一张往外推这个J20的数据，咱不干别的。弄完J20咱就那个歼20，是吧？歼21，我让你共产党看着草根小哥在那块儿吃着冰棍儿，抽着烟，一张一张给你划，你看看郭文贵能不能做到？全世界上情报专家什么以色列、美国情报专家，让他拿鞋底抽自己的脸。他永远得不到，我们能拿到，想拿多少拿多少，就这么牛！包括这次飞行数据，飞到哪儿了，怎么拿的，你飞行中间出了什么问题，包括中间出问题，两架飞机出了故障，咱都掌握。记住今天郭文贵说的话共产党，你这些老杂毛儿记住我说的话。
+4月15日晚上7点半，梅迪卡营地的以色列志愿者们聚集在NFSC帐篷庆祝逾越节，以色列志愿者把NFSC帐篷比作“解放的营地”。以色列志愿者团队为了表示感谢新中国联邦，用英语讲解逾越节的习俗和意义。新中国联邦志愿者为节日备好水煮鸡蛋，代表越战越勇的意思，象征饱受苦难和奴役，但最终成为最坚强民族，为建立了自由家园从未停止，同时也是对新中国联邦人的祝福和支持，消灭中国共产党，建立自由法治家园。
+
+April 15th, 7:30 p.m. Israeli volunteers from the Medyka Rescue Center gathered at the NFSC tent to celebrate Passover, during which the Israeli volunteers have compared the center to a “center of freedom”. The Israeli volunteer team explained the customs and meaning of Passover in English as a token of appreciation to the NFSC. The New Federal State of China’s volunteers prepared boiled eggs for the holiday, representing the more they fight the more courageous they become. This symbolizes the people who suffered and were enslaved, but eventually became the strongest people who never stopped to build a free homeland. This is also a blessing and support for the New Federal State of China to take down the Chinese Communist Party and build a free homeland under the rule of law.
+
+
+
+发布：奇门遁甲
 
  
 
