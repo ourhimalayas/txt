@@ -2,36 +2,30 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
+## 中共企图在美国中期选举之时称霸世界
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2406443/)
 
-作者：香草山翻译部
+作者：银河系农场 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+在4月23日的直播中，郭文贵先生揭露：中共计划在今年11月美国内中期选举之后伺机搅扰国际政局。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-12.27.35-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
+据郭先生透露，习近平迷信莫德尔斯基周期，自诩是重掌新世界霸权的天选之人。独裁者的狂妄无知使他坚信，中共能够在11、12月期间趁着美国中期选举之乱，完成收复台湾、控制亚洲，向世界大力推广人民币和金砖国的金融系统的称霸阴谋，并将金砖组织和上海金融推广到全世界，形成替代美元金融的新生态。
 
-文章仅代表作者本人观点，与Gnews无关
+为了实现这一政治、经济企图，习近平当局已对中共国实施戒严，控制老百姓的粮食和财富。人禁足在家里，钱禁足在银行，以所谓的防疫为名，不允许日常吃饭，不允许大额汇款和取现。中国人有的会因为中共疫苗灾难死去，没有死去的中国人的财富，乃至未来近千年的利益都被中共掠夺，只为了共产党要推广自己的人民币系统。中共认为要么成功，要么让全世界陪葬。
 
-视频参看：
-[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
-[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
+郭先生进一步说，届时，人民币面临的不是贬值，是直接变成废纸。港股目前在两万浮动，只要跌到一万八，港币马上消失。以上中共的美梦，只会更快地让自己走向灭亡。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：[七哥乱聊](https://gettr.com/post/p16qngm5663)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
-
+总编：文恩
+编辑：玫瑰圓
+审核：文真
+校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
 
 
  

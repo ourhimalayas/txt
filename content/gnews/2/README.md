@@ -2,37 +2,12 @@
 ---
 
 
-## 有声|中共计划所谓的“未来30年”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407059/)
+## 4月24日文贵大直播要点（图片1-14）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2407113/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月19日，在纪念419断播五周年大直播中，郭文贵先生透露，在习近平还是中共副主席的时候，就密谋了一个所谓的“中共未来30年”的计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388617.jpg)
-当时，滕文生和王沪宁根据中共发展的所谓30年一个阶段的特征，向习近平提出了一个“中共未来30年”的概念。认为在未来30年中，中共国要转变为海洋大国和劳动力输出国，以解决生产力过剩的根本性问题。同时，或通过政府措施强迫外企交出先进的技术；或通过偷、抢、骗等手段，不惜一切代价拿到西方的先进科技，并且要在金融上击溃美元。最后达到中共领导全世界的目的。
-
-
-
-
-
-文字版原文：[中共计划所谓的“未来30年”](https://gnews.org/zh-hans/2399336/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/D940EAE3-99CD-4FDE-A310-241B223F1F85.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4795990E-C500-4011-84DC-C35C2FABAFD9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/F0B03CFE-948D-4523-9522-A18B722E7D90.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7E88C955-19DB-456F-A34D-B5F37682F3AA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/816FFDED-9ABC-44BF-A8FC-5998D6EA246F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B048E8E4-B004-45D2-A6B6-EC24B37C8518.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/7FCD97F2-11DE-4F73-9E40-93B178125342.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/6470A9EF-BED3-4EDB-8BD4-BD05772CAF12.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2459D3A6-3279-4352-A652-DC735D006567.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/62C7F71E-915A-43A5-8808-2EA99227E06A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9204745E-BC1F-47C4-A12B-65D7D41F2CE2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/A70D5CB0-AAA4-46AF-BDE1-425C709ADEDD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/0F07092D-614A-406B-A98D-2393CB801900.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/D1D357B7-777C-47A1-BA90-819592AB35F3.jpeg)
+发布：水涨船高
 
  
 

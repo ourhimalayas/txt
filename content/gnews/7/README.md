@@ -2,22 +2,37 @@
 ---
 
 
-## 西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2406995/)
+## 有声|中共计划所谓的“未来30年”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2407059/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月19日，在纪念419断播五周年大直播中，郭文贵先生透露，在习近平还是中共副主席的时候，就密谋了一个所谓的“中共未来30年”的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388617.jpg)
+当时，滕文生和王沪宁根据中共发展的所谓30年一个阶段的特征，向习近平提出了一个“中共未来30年”的概念。认为在未来30年中，中共国要转变为海洋大国和劳动力输出国，以解决生产力过剩的根本性问题。同时，或通过政府措施强迫外企交出先进的技术；或通过偷、抢、骗等手段，不惜一切代价拿到西方的先进科技，并且要在金融上击溃美元。最后达到中共领导全世界的目的。
 
-西澳大利亚州州长马克·麦高文(Mark McGowan)办公室证实，他的三个孩子中的一个在感染新冠病毒后住院。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-16.41.58.png)图片来源：eventiavversinews.it
-声明中写道：“孩子已经完全接种疫苗了，但由于感染，他的情况很严重。孩子仍在医院接受持续护理。”最近几天，据透露，西澳大利亚州州长马克·麦高文（Mark McGowan）在与家人单独相聚期间，其新冠病毒检测呈阳性。麦高文最初在一名家庭成员感染病毒后检测为阴性，他是密切接触者。州长在一份声明说，他在周四进行了另一次PCR检测，结果呈阳性。“ 考虑到我的一个家庭成员新冠检测呈阳性，这并不奇怪，”他周五说，“根据法令，我的阳性结果将迫使我延长我的隔离期，一直到我能被允许离开家。”
 
-“在此期间，我将继续隔离并在家工作。”州长预计将于5月1日参加在珀斯举行的工党联邦竞选活动。本周，联邦工党领袖安东尼·艾博年（Anthony Albanese)的病毒检测也呈阳性。
 
-参考链接：
 
-[https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/](https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/)
 
-编辑、上传：Xiao baige
+文字版原文：[中共计划所谓的“未来30年”](https://gnews.org/zh-hans/2399336/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
