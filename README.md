@@ -15,67 +15,67 @@
 
 ---
 
-### [除了中共国 俄罗斯也被人民公敌抹黑和境外势力操控？](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
+### [20220424郭文贵大直播 ：集权国家独裁者的身体状况跟该国家的命运紧密相连](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [中共国推广煤炭，使减排努力受挫](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [海岸警卫队称在失踪的日本观光船上发现9人](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国务卿将访问基乌 讨论武器提供等问题](/content/gnews/4/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [莫迪在戒备森严的情况下访问印度控制的克什米尔地区](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [北京当局已准备好随时封锁隔离 国内检测阳性几乎因疫苗反应](/content/gnews/6/README.md)
+### [北京當局已準備好隨時封鎖隔離 國內檢測陽性幾乎因疫苗反應](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [爆料革命——历史的今天2月6日](/content/gnews/7/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [对阿富汗少数民族的致命袭击表明塔利班没有履行其承诺（一）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播 4/24 中共诡计用尽 佩洛西一波三折坚持访台](/content/gnews/8/README.md)
- ` 秘密翻译组-原创组`
+### [除了中共国 俄罗斯也被人民公敌抹黑和境外势力操控？](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
 
-### [2022年2月5-6日 郭文贵先生视频 节选整理](/content/gnews/9/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [隔离封锁将长达个把月 会反复进行 需要做好长期准备](/content/gnews/5/README.md)
+ ` 焦點20分`
 
-### [上海封城：政府安装警报器以防市民逃跑](/content/gnews/10/README.md)
+### [中共国推广煤炭，使减排努力受挫](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [海岸警卫队称在失踪的日本观光船上发现9人](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国务卿将访问基乌 讨论武器提供等问题](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [北京当局已准备好随时封锁隔离 国内检测阳性几乎因疫苗反应](/content/gnews/9/README.md)
+ ` 焦點20分`
+
+### [同胞们醒来反抗吧，有勇气自杀为什么不反抗呢?](/content/gnews/10/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [上海封城：政府安装警报器以防市民逃跑](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [20220424郭文贵大直播 ：谁惹了新中国联邦人不管他们在哪里我们也不和他拉到 要战斗到底](/content/gnews/11/README.md)
+### [20220424郭文贵大直播 ：谁惹了新中国联邦人不管他们在哪里我们也不和他拉到 要战斗到底](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [喜币、躺平币、Hpay就是未来的金融信仰](/content/gnews/12/README.md)
+### [喜币、躺平币、Hpay就是未来的金融信仰](/content/gnews/13/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [随着冠状病毒病例的减少，以色列取消了室内口罩规定](/content/gnews/13/README.md)
+### [随着冠状病毒病例的减少，以色列取消了室内口罩规定](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [仍在与俄罗斯交易的公司面临未来的法律行动](/content/gnews/14/README.md)
+### [仍在与俄罗斯交易的公司面临未来的法律行动](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [20220424郭文贵大直播 ： 共产党拿着奴役14亿中国人民跟华尔街做交换](/content/gnews/15/README.md)
+### [20220424郭文贵大直播 ： 共产党拿着奴役14亿中国人民跟华尔街做交换](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [2022.4.24大直播 俄乌战争后，中俄人民的结局截然不同](/content/gnews/16/README.md)
+### [有声|俄乌战局最新消息汇总 04/23/2022](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [2022.4.24大直播 俄乌战争后，中俄人民的结局截然不同](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [20220424郭文贵大直播 ：俄乌战争的前因后果(PPT)](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|遭日本驱逐的8名俄罗斯外交人员已离境](/content/gnews/18/README.md)
+### [有声|遭日本驱逐的8名俄罗斯外交人员已离境](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [秘翻在线：中共国网络新词“润”，润出百姓心态！](/content/gnews/19/README.md)
+### [秘翻在线：中共国网络新词“润”，润出百姓心态！](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美、英、加承诺为乌克兰提供更多武器](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|乌军指挥官讲述马里乌波尔战争的真实情况](/content/gnews/21/README.md)
+### [有声|美、英、加承诺为乌克兰提供更多武器](/content/gnews/21/README.md)
  ` MOSREC`
 
 ### [辉瑞中共病毒疫苗缺乏适当的质量控制](/content/gnews/22/README.md)

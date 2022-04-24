@@ -2,51 +2,30 @@
 ---
 
 
-## 莫迪在戒备森严的情况下访问印度控制的克什米尔地区
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2405689/)
+## 隔离封锁将长达个把月 会反复进行 需要做好长期准备
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2405741/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
-印度斯里纳加 — 印度总理纳伦德拉-莫迪周日访问了喜马拉雅山脉的克什米尔，这是新德里在2019年剥夺了这个有争议地区的半自治权并直接控制了该地区后的首次公开活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
+\*逃到外地，要先确保能安全到达，不要被困在半路；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/tempsnip莫迪在戒备森严的情况下访问印度控制的克什米尔地区.png)4月星期五，在印度查谟，一名安全人员在袭击现场附近巡逻
+\*要考虑到当地的隔离情况，再做决定；
 
-莫迪在大规模安保中抵达，并计划在一次公共活动中发表讲话，审查发展工作。他的讲话将是纪念一年一度的Panchayati Raj（即基层民主）日的活动的一部分。
+\*\*要保证有：网络，食物和水，药品，备好如煤气罐，充电器（发电机）等能提供基本能源的设备，基本生活用品，现金，等等。
 
-数以万计的民众和来自整个地区的地方议会的当选官员聚集在查谟市附近的帕利村，参加演讲。莫迪访问的这个地区普遍欢迎印度政府三年前的空前变革。
+\*隔离封锁 会长达个把月，并且会反复实施，一定要做好长期的准备。
 
-官员们说，理事会代表基层治理，但其成员没有立法权。自2018年以来，该地区一直没有一个民选政府。
-
-政府军在克什米尔各地展开行动，以挫败任何暴力行为。周五，两名疑似武装分子和一名准军事人员在距离帕利约15公里（9英里）的枪战中被打死。
-
-警察局长迪尔巴格-辛格说，被杀的武装分子是一支“来自巴基斯坦的自杀小队”，可能是被派来破坏莫迪的访问。他没有提供任何证据来支持他的说法。
-
-莫迪在克什米尔地位改变后的前两次访问是到军营与士兵一起庆祝印度教节日。2019年，莫迪政府撤销了该地区的半自治地位，废除了其独立的宪法，将该地区分成两个联邦领土–拉达克和查谟-克什米尔，并在前所未有的封锁中取消了对土地和工作的继承保护。
-
-此后，该地区一直处于紧张状态，因为当局制定了一系列新的法律，批评者和许多居民担心这些法律会改变穆斯林占多数的克什米尔的人口结构。
-
-克什米尔被印度和巴基斯坦分割开来，两个对手都声称该地区是完整的。自1989年以来，叛军一直在与印度的统治作斗争。大多数穆斯林克什米尔人支持叛军的目标，即该领土在巴基斯坦统治下或作为一个独立国家统一起来。
-
-印度坚持认为克什米尔的激进主义是巴基斯坦支持的恐怖主义。巴基斯坦否认这一指控，而大多数克什米尔人认为这是一场合法的自由斗争。数以万计的平民、叛军和政府军在冲突中被杀害。
-
-新闻来源：[India’s Modi touts development projects in visit to Kashmir](https://abcnews.go.com/International/wireStory/modi-visits-indian-controlled-kashmir-amid-tight-security-84275109)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：信心满满
+视频来源: 20220423—郭先生短直播
+视频制作: 文星光
+文案:文星光
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
-
-
-
+**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CCP-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
