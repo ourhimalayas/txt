@@ -2,43 +2,34 @@
 ---
 
 
-## 随着冠状病毒病例的减少，以色列取消了室内口罩规定
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2405639/)
+## 美国务卿将访问基乌 讨论武器提供等问题
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2405693/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
-耶路撒冷 – 随着该国冠状病毒的新病例持续下降，以色列已经取消了实施了近一年的室内口罩规定。
+**翻译：文舞两道**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/tempsnip随着冠状病毒病例的减少，以色列取消了室内口罩规定.png)文件 – 2022 年 1 月 4 日，在以色列特拉维夫，人们，有些人戴着防护口罩，排队接受 PCR 和快速抗原 COVID-19 冠状病毒检测。以色列已经解除了近一年的室内口罩要求，因为 该国新的冠状病毒病例继续下降。 口罩要求的结束于 2022 年 4 月 23 日星期六晚上生效。在医院、老年护理机构和国际航班上，口罩仍然是强制性的。（美联社照片/Ariel Schalit，文件）
+4月23日，乌克兰总统泽连斯基在首都基辅举行新闻发布会，宣布美国国务卿布林肯和美国国防部长奥斯汀将于24日访问乌克兰首都基辅，此次访问的目的是向俄罗斯和世界展示对乌克兰的支援。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5DC4F6B7-D788-4692-B6A0-323D0B55532E.jpeg)图片来源：https://www.sankei.com
+泽连斯基总统是在首都地下深处的一个地铁站的站台上举行的新闻发布会。
 
-口罩规定的终止于周六晚生效。在医院、老年护理机构和国际航班上仍然必须戴口罩。
+这是自俄罗斯军事入侵以来，美国内阁级官员首次进入首都基辅，届时将详细讨论美国进一步向乌克兰提供武器等问题。
 
-自1月份最新一波感染的高峰期以来，以色列的COVID-19新病例已经下降。冠状病毒的严重病例已经从Omicron变体爆发期间的1200多例高位骤降至200例左右。
+泽连斯基总统强调需要其他国家提供更多的武器支持，并呼吁 “如果我们得到足够的武器，我们将很快能够夺回被俄罗]暂时占领的土地”，他说，俄罗斯的入侵已经 “改变了欧洲对乌克兰的态度”，并呼吁亚洲国家更多地参与进来。
 
-根据卫生部的数据，自两年前大流行开始以来，以色列已经记录了超过400万例冠状病毒病例和至少10658例死亡病例–其中超过五分之一是在1月份以来。
+泽伦斯基总统透露，4月23日在对乌克兰南部城市敖德萨的导弹袭击中，造成的死亡人数已上升至8人，包括一名三个月大的婴儿。
 
-在全国940万人口中，超过72%的人至少接种了一剂辉瑞/生物技术公司的疫苗，近一半的人已经接种了三针。
+**信息来源：**
 
-在新型Omicron病毒出现后，以色列于11月关闭了边境，但在此后的几个月里，以色列对外国游客重新开放，并取消了几乎所有冠状病毒限制。
+[米国務長官らキーウ訪問へ　武器供与など協議](https://www.sankei.com/article/20220424-ICWNRSGRMBMH7DF6R2FDMGBACE/)
 
-新闻来源：[Israel lifts indoor mask mandate as coronavirus cases drop](https://www.washingtonpost.com/world/israel-lifts-indoor-mask-mandate-as-coronavirus-cases-drop/2022/04/24/dd3f0bfc-c397-11ec-b5df-1fba61a66c75_story.html?utm_source=feedly&amp;utm_medium=referral&amp;utm_campaign=wp_world)
+**编辑：LILY**
 
-* * *
+**发布：歪桑**
 
-审核：Aries的星
-校对：信心满满
-发布：信心满满
+20220424
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

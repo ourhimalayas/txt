@@ -2,30 +2,38 @@
 ---
 
 
-## 俄罗斯计划在秋季前部署洲际核导弹
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2406457/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
 
-作者：纽约香草山 — Wenfei
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-据外媒4月23日报道，俄罗斯计划在秋季前部署可携带核弹头的Sarmat洲际弹道导弹。
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/YYH4SJKINBK4PBEYEERHIANQYU.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
 
-俄罗斯对外宣布，已经在周三首次试射了Sarmat洲际弹道导弹。该导弹系统可以携带 10 枚或更多核弹头和诱饵，并能够打击数千英里外美国或欧洲的目标。俄方称，新的洲际核导弹将被部署在莫斯科以东约 3,000 公里的西伯利亚。为了节省“巨大的资源和时间”，该导弹将直接安装在原来苏联时代的伏耶沃达导弹的发射井中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
 
-在由于资金和技术问题，Sarmat导弹研发一直被不断推迟。西方军事专家表示，在Sarmat导弹试射后，俄方还要花费更多的努力才能完成部署。
+文章仅代表作者本人观点，与Gnews无关
 
-另据郭文贵先生揭露，俄罗斯在乌克兰战场的节节败退，以及“莫斯科号”被击沉、俄战略轰炸机的王牌飞行员离奇身亡双重打击下，普京似有和谈缓兵的打算。分析人士指出，俄方使用战略性核武器的可能性不大，部署Sarmat导弹的战略震慑意义大于战术意义。
+视频参看：
+[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
+[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
 
-参考链接：[Russia to deploy Sarmat missiles by autumn in ‘historic’ nuclear upgrade](https://www.reuters.com/world/europe/russia-deploy-first-nuclear-capable-sarmat-missiles-tass-2022-04-23/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
 
-编辑：Zion文恩
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
