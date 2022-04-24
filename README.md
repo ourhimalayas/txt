@@ -15,77 +15,77 @@
 
 ---
 
-### [俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全](/content/gnews/1/README.md)
+### [2018年9月17日郭文贵先生直播全文字版](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [携带巡航导弹的黑海俄罗斯舰群威慑乌克兰全境](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全](/content/gnews/3/README.md)
  ` 關注組`
 
-### [朝鲜官方媒体释放“拥核”信号](/content/gnews/2/README.md)
+### [朝鲜官方媒体释放“拥核”信号](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [俄军攻势未获重大进展 马里乌波尔遭到继续轰炸](/content/gnews/3/README.md)
+### [俄军攻势未获重大进展 马里乌波尔遭到继续轰炸](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [召集所有武器制造商：五角大楼寻求武装乌克兰的新思路](/content/gnews/4/README.md)
+### [召集所有武器制造商：五角大楼寻求武装乌克兰的新思路](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共一战机坠毁 逃生飞行员中现一名外籍军人](/content/gnews/5/README.md)
+### [中共一战机坠毁 逃生飞行员中现一名外籍军人](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [卫星照片显示马里乌波尔出现埋葬乌克兰平民的万人坑](/content/gnews/6/README.md)
+### [卫星照片显示马里乌波尔出现埋葬乌克兰平民的万人坑](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [俄罗斯恶意网络行动的威胁](/content/gnews/7/README.md)
+### [俄罗斯恶意网络行动的威胁](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [樱花时政┃芬兰将在未来几周内提交加入北约的申请](/content/gnews/8/README.md)
+### [樱花时政┃芬兰将在未来几周内提交加入北约的申请](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世卫组织：11个国家报告了169例不明原因的儿童肝炎](/content/gnews/9/README.md)
+### [世卫组织：11个国家报告了169例不明原因的儿童肝炎](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|美国青年志愿者震惊于419美国之音断播事件](/content/gnews/10/README.md)
+### [视频|美国青年志愿者震惊于419美国之音断播事件](/content/gnews/12/README.md)
  ` MOSVIDEO`
 
-### [美国的“爆炸性”法律协议让武汉实验室销毁数据（2/2）](/content/gnews/11/README.md)
+### [美国的“爆炸性”法律协议让武汉实验室销毁数据（2/2）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|前线救援营地再添新设施](/content/gnews/12/README.md)
+### [视频|前线救援营地再添新设施](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [英国首相宣布将重新开放英国驻乌克兰基辅大使馆](/content/gnews/13/README.md)
+### [英国首相宣布将重新开放英国驻乌克兰基辅大使馆](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国的“爆炸性”法律协议让武汉实验室销毁数据（1/2）](/content/gnews/14/README.md)
+### [美国的“爆炸性”法律协议让武汉实验室销毁数据（1/2）](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|“消灭中共”成为救援营地中的强力声音](/content/gnews/15/README.md)
+### [视频|“消灭中共”成为救援营地中的强力声音](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
-### [指望世界会救中国，那是白日做梦，中国人只能自己救自己](/content/gnews/16/README.md)
+### [指望世界会救中国，那是白日做梦，中国人只能自己救自己](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|乌克兰大使馆致信感谢新中国联邦](/content/gnews/17/README.md)
+### [视频|乌克兰大使馆致信感谢新中国联邦](/content/gnews/19/README.md)
  ` MOSVIDEO`
 
-### [文·贵天成——文贵先生谈“习近平”（九）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“习近平”（九）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [接种新冠疫苗后48小时内死亡人数占VAERS报告的 21%](/content/gnews/19/README.md)
+### [接种新冠疫苗后48小时内死亡人数占VAERS报告的 21%](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/20/README.md)
+### [视频|新中国联邦和法治基金乌克兰救援的最新数据](/content/gnews/22/README.md)
  ` MOSVIDEO`
 
-### [73年首次有6万武警驻扎北京，隔离和网控手段将无止境](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共所到之处都对美国构成了最大外部风险，但左派认为习和美国是一样的](/content/gnews/22/README.md)
+### [中共所到之处都对美国构成了最大外部风险，但左派认为习和美国是一样的](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [德国、西班牙、葡萄牙三国领导人公开支持马克龙](/content/gnews/23/README.md)
+### [德国、西班牙、葡萄牙三国领导人公开支持马克龙](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国又将17家中概股公司列入“预摘牌”名单](/content/gnews/24/README.md)
- ` NFSC News`
 
 ### [美国应该立法停止再向中共国注入投资](/content/gnews/25/README.md)
  ` NFSC News`

@@ -2,183 +2,70 @@
 ---
 
 
-## 指望世界会救中国，那是白日做梦，中国人只能自己救自己
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2402766/)
+## 美国的“爆炸性”法律协议让武汉实验室销毁数据（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2402775/)
 
-为什么上海人就不反抗呢
-¿Por qué las personas de Shanghai no se resisten?
+翻译： Jenny Ball
 
-中国人为啥不反抗
-¿Por qué los chinos no se resisten?
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-9.jpg)
 
-上天赋予每个人的基本权利
-Dios nos otorgó a cada uno el derecho básico
 
-保护自己的家人和自己的生命安全
-De proteger la vida y la seguridad de uno mismo y de nuestras familias
 
-和维护自己起码的尊严
-Mantener una mínima dignidad propia
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-239.png)
 
-上海, 广州, 长春就这个样子
-Shanghai, Guangzhou, Changchun son así
+根据美国知情权获得的一份法律文件，武汉病毒研究所有权要求美国的合作实验室销毁其所有工作记录。
 
-世界会救中国吗, 没有人救得了中国
-¿El mundo salvará a China? Nadie podrá salvar a China
+武汉实验室与德克萨斯大学医学分部 (UTMB) 加尔维斯顿国家实验室之间的一份谅解备忘录指出，每个实验室都可以要求对方归还或“销毁”任何所谓的“秘密文件”——任何通信、文件、他们合作产生的数据或设备——并要求他们擦除任何副本。
 
-只有中国人救中国人
-Sólo los mismos chinos podrán salvarse a sí mismos
+“一方有权要求对方在没有任何备份的情况下销毁和/或归还秘密文件、材料和设备，”协议规定。
 
-别指望别人
-No esperen de los demás
+即使在该协议的五年期限于 2022 年 10 月结束后，该权利仍然保留。根据该协议的广泛语言，所有文件都有资格销毁。
 
-那些大V埋怨这个, 埋怨那个
-Esas cuentas verificadas se quejan de esto y aquello
+协议规定：“所有合作……均应被各方视为机密信息。”
 
-又是诗啊, 又是词什么的
-Con poemas, letras o algo
+2018 年，武汉和得克萨斯州最大生物防护实验室的负责人在《科学》杂志上宣布了一项正式的合作协议。这些实验室是世界上为数不多的在新型冠状病毒方面开展类似前沿工作的设施中的两个。
 
-当面包吃吗
-A caso es como ¿comer pan?
+得克萨斯州的实验室在美国国立卫生研究院的资助下，正在与中国科学院下属的武汉实验室进行生物安全培训。
 
-管吃吗
-¿Sirve para comer?
+根据协议，这些实验室还打算开展联合研究项目,并共享资源。
 
-你见过有一个文人拯救过这个国家吗
-¿Has visto a un literato salvando a este país?
+武汉实验室保留要求销毁由美国纳税人资助的美国服务器上数据的权利的消息传出之际，正值一场需要进行调查才能使武汉的冠状病毒研究免于引发 COVID-19 大流行的怀疑的辩论之际。
 
-文人最后都是权力的打手
-Al final los literatos son luchadores del poder
+这也引发了关于武汉实验室高级科学家石正丽保证她永远不会删除敏感数据的问题。
 
-权力的走狗
-Lacayos del poder
+专家说，该条款还为德克萨斯实验室提出了一些法律危险信号。
 
-中国有一人, 你见过一人救过中国人吗
-En China hay una persona, ¿has visto una persona salvando a los chinos?
+“坦率地说，该条款具有爆炸性，”格特曼·古特曼& 布鲁克斯合伙人事务所（PLLC Guttman, Buschner & Brooks PLLC）的合伙人鲁本·古特曼（Reuben Guttman） 说，他专门负责确保政府项目的完整性，“每当我看到一个公共实体时，我都会非常担心破坏记录。”
 
-你见过一人帮助中国人吗
-¿Has visto una persona ayudando a los chinos?
+古特曼说，如果是私人实体，应该有内部记录保留和销毁的政策，但作为一个公共机构，德克萨斯实验室在旨在保护联邦和州纳税人资金，在法律上面临更高的标准。
 
-中国人自己在自己的家人, 不要说国家了
-Los chinos mismos con su familia… no digamos el país
+这些法律包括联邦虚假申报法和德克萨斯公共信息法。加尔维斯顿国家实验室是德克萨斯大学系统的一部分，并获得联邦资助。
 
-别谈国家了
-No mencionemos al país
+“你不能随便说，‘好吧，你知道，中国人可以告诉我们什么时候销毁一份文件。’这样行不通，”古特曼说，“必须有一个完整的协议。”
 
-你自己的家都没有搞好
-Si hasta tu propia familia no está bien formada
+该条款还可能阻碍国会对 COVID-19 大流行的调查。
 
-你保什么国, 爱什么国
-Con qué proteges y amas a tu país
+德克萨斯大学医学分部(UTMB)发言人克里斯托弗·史密斯 (Christopher Smith) 在一份声明中说，德克萨斯实验室“由美国国立卫生研究院 (NIH) 建立，旨在帮助应对全球健康威胁”。“作为政府资助的实体，UTMB 必须遵守适用的公共信息法义务，包括保存其研究和发现的所有文件。”
 
-然后动不动, 你看那个上海的那些文人
-Luego mira aquellos literatos de Shanghai
+“UTMB 认为，世界上任何地方从事生物防护工作的所有科学家，都必须掌握生物安全和实验室操作中经过验证的最佳实践的第一手知识。“
 
-什么湾湾回来, 把台湾带回来
-Que si Wanwan regresa, trae de regreso a Taiwán
+接下篇：[美国的“爆炸性”法律协议让武汉实验室销毁数据（2/2）](https://gnews.org/zh-hans/2402800/)
 
-自己死了, 嗝屁了
-Él mismo murió
-
-就这种王八蛋就是早就(该)让他死了, 你知道吗
-Este tipo de bastardo simplemente (debería) haberlo dejado morir hace tiempo
-
-他就不应该活在这世界上
-No debería estar en este mundo
-
-台湾人招你惹你了, 把台湾带回来
-Los taiwaneses se metieron contigo para que quieras traerlos de regreso
-
-台湾人要不要回来是台湾人做决定
-Los taiwaneses regresan o no, ellos mismos toman la decisión
-
-你是要强迫人家回来
-Estás obligando a la gente volver
-
-你把人家打出去, 你再强迫人家回来
-Los golpeas y los obligas a volver
-
-你哪来的所谓的四个自信呢
-De ¿dónde viene la llamada autoconfianza?
-
-还有那个郎咸平, 什么名嘴
-Y ese Lang Xianping, y que presentador
-
-那郎咸平是什么东西
-Ese tal Lang Xianping
-
-人家那个渣子, 毛屎坑的蛆都比他强
-Es una escoria, los gusanos en el pozo de excrementos son mejores que él
-
-骗女的睡觉
-Engaña a las mujeres para acostarse con él
-
-陪他睡了好几年的空姐
-Una azafata que se acostó con él durante varios años
-
-给人家车, 给人家房子
-Le dió un carro y una casa
-
-再打官司要回来
-Y la demanda para pedirlo de regreso
-
-结果人家说你送给我的, 有证据
-Resulta que la persona dijo, “tú me lo regalaste, tengo pruebas”
-
-到了法官(那儿), 叫前妻再来做伪证
-Cuando llegó a (donde) el juez, llamó a su ex esposa para cometer perjurio
-
-说这个房子, 车是前妻的, 再把它要回去
-Dijo que esta casa y el carro son de su ex esposa, y lo quiere que lo devuelva
-
-陪睡5年, 最后小姐成负资产
-Se acostó con él durante cinco años, finalmente, la señorita se convirtió en equidad negativa
-
-帮他打过官司的律师是咱们的战友
-El abogado que la ayudó en el juicio es nuestro compañero luchador
-
-现在可能也在看直播
-Podría estar viendo la transmisión en vivo ahora
-
-用他的话说
-Así como expresó él
-
-七哥, 没见过一个这么渣的一个人
-“Miles, nunca he visto a alguien tan escoria”
-
-律师费都不愿意付
-Ni siquiera quiso pagar los honorarios de los abogados
-
-他(律师)说跟他(郎咸平)睡的女人多了去了
-Su (abogado) dijo que hay muchísimas mujeres que se acostaron con él (Lang Xianping)
-
-都是要女人给他(付)出东西
-Él sólo pide a las mujeres que (sacrifique) algo
-
-天天站在讲台上给中国人指导江山
-Y se para en el podio todos los días para guiar al pueblo chino
+新闻来源：[‘Explosive’ Legal Agreement With U.S. Lets Wuhan Lab Destroy Data](https://childrenshealthdefense.org/defender/legal-agreement-wuhan-lab-data/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=fc076b92-52ba-437f-afd7-a299e78e4878)
 
 * * *
 
-日期：04/22/2022
-原视频标题：指望世界会救中国，那是白日做梦，中国人只能自己救自己
-Esperar que el mundo salve a China es soñar despierto, los chinos sólo pueden salvarse a sí mismo
+审核：文乐    
+校对：信心满满
+发布：五通庙
 
-原视频日期：04/20/2022
-原视频网址：[https://gettr.com/post/p164ftte19f](https://gettr.com/post/p164ftte19f)
-任务编号：KC496(4295)
-视频时间段：0:00-02:31
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-6.jpeg)
 
  
 
