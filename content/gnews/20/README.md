@@ -2,47 +2,27 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾 (2022年4月13日~4月20日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404534/)
+## 俄罗斯5个征兵处遭纵火
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404617/)
 
-作者：DC农场 火来
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.03.32-PM.png)
-- 2022年4月13日至20日，除中共国外，全球新增中共病毒确诊患者489万余例，同比上周的667万余例下降了26.7%；此外，本周新增确诊死亡病例18125例，同比上周的22667例下降了20.0%。本周已是连续第七周全球确诊病例和死亡病例持续负增长。
+撰稿：日本东京方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-45.png)
+据外媒4月22日报道，自从俄罗斯入侵乌克兰以来，已有多达5个征兵办公室遭到纵火。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388621.jpg)
+据报道，本月18日在俄罗斯莫尔多维亚偏远的地区发生了一起最新纵火案。纵火者投掷汽油弹摧毁多台电脑，以及祖博瓦波利亚纳区的征兵资料库，当地征兵活动被迫暂停。
 
+另外，在今年3月，有三个征兵办公室遭当地居民投掷汽油弹攻击。被逮捕年轻人表示，他们纵火破坏征兵旨在抗议俄入侵乌克兰。2月，在俄军入侵乌克兰4天后，一名21岁年轻人就在莫斯科州城一处征兵办公室纵火，想藉由破坏档案来阻止征兵。报道称，被捕者面临多项刑事指控。
 
-- 截止4月20日，除中共国外，全球累计接种了83.1亿剂中共病毒疫苗，同比4月13日的接种数据增长了0.362%。全球中共病毒疫苗的接种情况趋于稳定，增长率已连续七周低于百分之一。
+据悉，俄罗斯每年春、夏各征兵一次，对象为18至27岁男性。本月展开的春季征兵，目标是在7月15日前征召13万4500名新兵。
 
+参考链接：[不想參戰 俄羅斯5個徵兵處遭縱火](https://www.cna.com.tw/news/aopl/202204220230.aspx)
 
-- 4月14日，据美联社收集并分析的数据显示，2020-2021学年度，选择在家上学的学生比疫情前增长了63%，2021-2022学年学校已经完全重新开放，但是在家上学的学生比例仍然维持在高位，仅比上一年度下降了17%。家长们仍然对健康等因素感到担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-213.jpg)
 
+编辑/总编/审核：飞虹
 
-- 4月14日，辉瑞向FDA申请五岁以下儿童疫苗加强针的使用授权。
-
-
-- 4月18日，美国佛罗里达州联邦法官下令撤销联邦政府针对飞机、火车等公共交通乘客的口罩强制令。两天后的4月20日，美国CDC随即要求司法部对佛罗里达州联邦法官的裁决进行上诉。
-
-
-- 4月20日，辉瑞董事会成员、前FDA官员Scott Gottlieb医生接受采访时表示，哪怕周围的人都不戴口罩，高质量的N95口罩仍然有较好的保护作用。
-
-
-- 4月20日，诺华公司宣布，该公司研发的新冠和流感综合疫苗初期实验显示有不错的效果，将继续推进第二期临床试验，但是诺华的新冠疫苗至今仍然没有获得FDA的使用授权。
-
-
-参考链接：
-
-1. [Homeschooling surge continues despite schools reopening](https://apnews.com/article/covid-business-health-buffalo-education-d37f4f1d12e57b72e5ddf67d4f897d9a)
-2. [Pfizer and BioNTech to ask FDA to authorize COVID-19 booster for kids as young as 5](https://www.cbsnews.com/news/covid-vaccine-booster-pfizer-kids-ask-fda/)
-3. [CDC asks Justice Department to proceed with mask mandate appeal](https://www.foxnews.com/us/cdc-asks-justice-department-proceed-mask-mandate-appeal)
-4. [DOJ to appeal ruling striking down mask mandate after CDC gives OK](https://nypost.com/2022/04/20/cdc-asks-doj-to-appeal-ruling-to-bring-back-mask-mandate-on-planes-trains/)
-5. [Dr. Scott Gottlieb: High-quality Covid masks work even if others around you aren’t wearing one](https://www.cnbc.com/2022/04/20/dr-scott-gottlieb-covid-masks-work-even-if-others-around-you-arent-wearing-one.html)
-6. [Novavax says vaccine targeting Covid and flu shows promising results in early data](https://www.cnbc.com/2022/04/20/novavax-says-vaccine-targeting-covid-and-flu-shows-promising-results-in-early-data.html)
-
-
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
-
-编辑/总编/审核：Zion文恩
-校正/发稿：我不在这里
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

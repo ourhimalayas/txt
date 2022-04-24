@@ -2,27 +2,39 @@
 ---
 
 
-## SpaceX成功抵御俄罗斯的电磁攻击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2404535/)
+## NFSC乌克兰救援行动引起的国际反响
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2404688/)
 
-作者：DC农场 自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+作者：香草山信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3052.png)
 
-据美媒4月20日报道，五角大楼专家表示，上个月SpaceX成功且迅速地阻止了俄罗斯对星链的网络攻击，迫使俄军目前已经放弃对乌克兰实施电磁战，确保了乌克兰与互联网保持连接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.08.04-PM.png)
-俄乌战争伊始，马斯克在接到乌克兰官方发出的求助推文后，迅速将数千个星链终端设备运送到了乌克兰。次日，星链就被俄罗斯攻击并受到干扰。SpaceX仅仅通过修复一行代码就使得俄罗斯的电磁攻击失效。
 
-五角大楼的技术专家对此感到欣喜，并表示，在建造新的电子战设备方面，美国需要进行更多创新思考，必须提出新的系统，提供更大的弹性和速度，这包括将人工智能和机器学习整合到下.
+郭先生在4月10日的大直播中跟战友们分享了新中国联邦乌克兰国际救援团队开赴前线以来最近浮现的三件大事：
 
-参考链接：[SpaceX shut down a Russian electromagnetic warfare attack in Ukraine last month — and the Pentagon is taking notes](https://www.defensenews.com/air/2022/04/20/spacex-shut-down-a-russian-electromagnetic-warfare-attack-in-ukraine-last-month-and-the-pentagon-is-taking-notes/)
+第一，专门有人录下前线战友的视频向日本政府报告，日本政府官员说：“如果这些人能坚持到战后，一定会有多个国家公开承认新中国联邦的地位！”
 
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-01-at-3.49.08-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM.png)
+第二，欧洲多国政府包括以色列最近都在前线亲自关注我们的所作所为，多国政要已就承认新中国联邦国际地位一事与郭先生保持秘密联系，有欧洲官员还写了法律保证书并对郭先生说：“如果联合国不来承认新中国联邦的话，就会有人替联合国办“承认新中国联邦”这件事，甚至某些国家会独立承认新中国联邦！这个意义太大了，大到可以跟乌克兰战争中乌克兰人的英勇反抗得到全世界的认可与敬佩相提并论！”这位欧洲官员还说新中国联邦此举带给世界全新的思考与启示：为什么有中国人敢站出来说中共不代表中国人？新中国联邦人是坚决反对中共支持俄罗斯对乌克兰的非正义侵略战争的！并表示这对我们理解并区分开中共与中国人的战略意义无比重大，我们只需消灭操纵十四亿中国人的坏蛋中共就够了！
 
-编辑：Delilah小胖
-总编：Zion文恩
-审核：文真
-校正/发稿：我不在这里
-![此图像的alt属性为空；文件名为Screen-Shot-2022-04-23-at-7.21.17-PM.png](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+第三，郭先生收到起码不低于十个且大都跟中共深度勾兑的最牛叉犹太人的信息：“谢谢你Miles，谢谢你们新中国联邦在前线所做的一切，我们很多在乌克兰的犹太人同胞都是你们救出来的！”某国前任总统告诉助理说：“你告诉Miles，他这次已做的和正在做的事情，真的会让这个世界重新认识中国人，我要向他致以最高的敬意！”并表示如果方便，愿意跟郭先生见面并参与郭先生的大直播。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16D2980A-4CF7-42D6-A896-B854C49F0447.jpeg)
+郭先生现在所住的Sherry旁边一个超级牛叉的人、世界级大佬、华尔街金融界大佬之一、投资中共国排第二的人物现在也跟我们爆料革命站在一起了。 这位大佬问郭先生：“你们支持乌克兰是为了什么？”郭先生回答说：“向天地许诺，没有任何目的与利益，就是让人知道我们不能被共产党代表，我们是要干掉共产党的中国人，以防止海外排华！”
+
+加上最近比利时现任总理德克罗公开到新中国联邦前线救援营地亲自为我们站台，波兰政府最近公开给前线战友颁发志愿者工作证，多国政府正在通过各种各样的方式关注、认可和赞美新中国联邦的存在及其作为，新中国联邦的所作所为事实上已经得到西方主流世界的认可，对新中国联邦国际地位的官方正式的书面认可只是时间问题。
+
+图片和新闻源于:
+
+[https://gettr.com/post/p14iwpvf134](https://gettr.com/post/p14iwpvf134)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/FF64CD69-1221-476F-9780-93935D4A4177.jpeg)
+
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

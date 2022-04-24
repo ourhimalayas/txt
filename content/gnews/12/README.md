@@ -2,33 +2,43 @@
 ---
 
 
-## 【G时新闻】中共国军管开始了
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2404695/)
+## 冬奥会假雪的毒素和核元素一模一样万年也无法让它消失
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2404989/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-郭文贵先生4月23日通过GETTR直播爆料，CCP已经在北京派驻6万武警军人准备封城。真正的分区隔离、封控和军管马上开始。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8832.57%EF%BC%89%E5%86%AC%E5%A5%A5%E4%BC%9A%E5%81%87%E9%9B%AA%E7%9A%84%E6%AF%92%E7%B4%A0%E5%92%8C%E6%A0%B8%E5%85%83%E7%B4%A0%E4%B8%80%E6%A8%A1%E4%B8%80%E6%A0%B7%E4%B8%87%E5%B9%B4%E4%B9%9F%E6%97%A0%E6%B3%95%E8%AE%A9%E5%AE%83%E6%B6%88%E5%A4%B1%E3%80%902022%E5%B9%B402%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:4)
 
-善良勤劳智慧的上海做梦都不会想到他们会遭到如此的劫难，被CCP以病毒清零的名义长期封控。许多人无辜地失去生命和健康。郭先生转诉国内相关部门战友的情报：上海、长春、深圳等地的COVID-19 病毒，实际是疫苗灾难。CCP将疫苗灾难转嫁给病毒传染，将他们的责任归罪于百姓之间的相互传染。
+**郭文贵先生：**这个雪谁也没招。这个雪的技术最早的开发者是德国，德国后来这个东西到了美国，然后到日本，日本明令不允许使用这技术，使用属于犯罪！现在这个室内的冻雪技术和室外冻雪技术完全两回事儿。我看很多人留言说“香港还有那个室内这个所谓的人工雪”，他根本不知道室内的雪和室外的雪完全不同的技术。
 
-为此，大搞特搞“封城”，实际就是将老百姓画地为牢监管起来，以防止百姓聚集对抗CCP。现在，中国就是一个大的监狱。 同时，CCP对全国实施金融监管、粮食和食品监管，不允许任何人从银行支取或转账所谓大额现金，将老百姓的财物牢牢控制住。如果百姓有任何反抗行为，直接将其定性为“勾结外部势力反党、反国家和反人民”。北京人民和全国人民艰难的时刻来到了！
+我忘了那三种化学元素叫什么，就这个要冻住它还不让它化掉，这两个毒万年不会消失的在地球上，记住，没有任何东西能让它消失，就和核元素是一模一样，就这么悲哀。
 
-盖特链接：[https://gettr.com/post/p16ruk7a7ab](https://gettr.com/post/p16ruk7a7ab)
+字幕来源：[2022年2月18日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2033310/)
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+编辑整理：海贼王M.D.LUFFY；
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+字幕档制作：知津；
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

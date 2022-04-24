@@ -2,32 +2,35 @@
 ---
 
 
-## 乌总统透露美国国务卿和国防部长将访问基辅
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2403847/)
+## 泽连斯基宣布，美国国务卿和国防部长将访问乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2404489/)
 
-**撰稿：日本东京方舟农场  子辰**
+#### **【雅典娜快讯】紧贴时代脉博**
 
-4月23日，乌克兰总统沃洛季米尔·泽连斯基（Volodymyr Zelenskiy）透露，美国国务卿布林肯和美国国防部长奥斯汀将于4月24日访问基辅，并与其进行会晤。
+#### **翻译/编辑：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-527.jpg)（图片来自网络）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-128.png)图片来源：The Boston Globe & 雅典娜设计组
 
-泽连斯基在新闻发布会上表示，他将于两位美国官员举行会谈，并谈论将向乌克兰提供哪些武器来对抗俄罗斯。
 
-自从俄罗斯入侵乌克兰以来，美国已经向乌克兰提供了总计约34亿美元的安全援助。
+当地时间周六，乌克兰总统泽连斯基宣布，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀将前往乌克兰讨论武器援助问题。
 
-据拜登公布的援助乌克兰武器清单中，包括了一些重型火炮武器，有72门155毫米榴弹炮和14.4万发弹药，和72辆牵引155毫米榴弹炮的战术车辆，此外还有122架“凤凰幽灵”战术无人机系统（Phoenix Ghost Tactical Unmanned Aerial Systems），以及其它野战设备和备件。
+在新闻发布会上，泽连斯基表示，周日他将与美国高级官员会面，讨论俄罗斯加强侵略和美国可以提供的额外支持。
 
-乌总统泽连斯基，呼吁他的西方盟友提供更多的“重型武器”来对抗俄罗斯军队，他说，“我们需要重型火炮、装甲车辆、防空系统和战斗机。只要能帮助击退俄罗斯军队，阻止他们的战争罪行，什么武器都行。”泽连斯基希望，“尽可能多地提供”155毫米炮弹和152毫米炮弹。据悉这些弹药已被列入武器援助清单中。
+“我们将讨论我们需要的武器清单及其供应速度。最近几周，一切都得到了改善。我对此表示感谢”，他说：“一旦我们拥有更多武器，一旦拥有足够的武器，相信我，我们将立即夺回被俄罗斯占领的领土。”
 
-据联合国表示，自俄罗斯入侵乌克兰以来，截至4月22日，已有2435名平民丧生，5381人受伤，近520万人逃离乌克兰。
+这将是自2月24日战争爆发以来美国高层首次访问基辅，布林肯和奥斯汀的访问是在标志性的一天——战争进入第三个月的那一天，此时乌克兰东部继续爆发激战。
 
-俄军在试图控制基辅失败后，最近将进攻重点转移到了乌克兰南部和东部的领土。目前来看，俄军是打算占领连接克里米亚（Crimea）和顿巴斯（Donbass）的走廊，而马里乌波尔是该走廊沿线的一个重要城市。
+拜登总统本周宣布，将向乌克兰提供另外8亿美元的安全援助，其中包括另外72门榴弹炮，以及120多架“凤凰幽灵”无人机。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/23/n13718768.htm](https://www.epochtimes.com/gb/22/4/23/n13718768.htm)
+参考链接：[Blinken due to meet Zelenskiy in first wartime visit by top US officials to Ukraine | Ukraine | The Guardian](https://www.theguardian.com/world/2022/apr/24/blinken-due-to-meet-zelenskiy-in-first-wartime-visit-by-top-us-officials-to-ukraine)
 
-总编：老孙
-校对发布：爱放飞
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
