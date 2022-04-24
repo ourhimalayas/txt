@@ -2,36 +2,45 @@
 ---
 
 
-## 俄军攻势未获重大进展 马里乌波尔遭到继续轰炸
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2402881/)
+## 俄乌战争｜波罗的海三国联合声明 俄侵略威胁大西洋安全 拒用俄能源维护区域安全
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2402923/)
 
-**撰稿：日本东京方舟农场  子辰**
+**港台前线 zhong｜2022-4-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-14.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+爱莎尼亚、拉脱维亚、立陶宛总理22日联合声明称，支持乌克兰政府及勇敢的人民、乌克兰独立及主权、领土的完整，并提及“乌克兰前线正在为欧洲的共同价值而战”，未来三国将继续援乌，提供财政、军事、人道主义援助，**重型武器对于乌克蘭戰勝、維護歐洲和平至關重要**。
 
-4月23日，英国国防部针对俄罗斯宣布在对顿巴斯地区攻击中占领了数十个小镇的消息表示，俄军面对乌克兰的反击，在过去24小时内并没有取得重大进展。乌方称，俄军恢复了对马里乌波尔的轰炸。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-55.jpg)（图片来自网络）
-据英国国防部国防情报局（DI）在最新简报中表示，“尽管俄军活动有所增加，但其军队在过去24小时内没有取得重大进展，因为乌克兰的反击继续阻碍了俄军的挺进。”
+此外，日媒报导称拉脱维亚总理于联合记者会上表示“将共同努力清除俄罗斯天然气及其政治影响力”。其实，波罗的海三国早在西方各国大动作对俄实施能源制裁前，便率先宣布拒用俄罗斯天然气。
 
-简报称，由于乌克兰空中和海上的有效防御性，致使俄罗斯空军和海军“尚未在这两个领域建立控制权”。
+## 美国务卿布林肯、国部长奥斯汀将于24日访问基辅
 
-简报中说，“尽管俄罗斯宣称征服了马里乌波尔（乌克兰东南部），但那里仍在继续发生着激烈战斗，挫败了俄罗斯夺取这座城市的企图”。并称这种局势正在“减缓俄军在乌克兰东部顿巴斯地区的预期进展”。
+（当地时间）23日乌克兰总统泽连斯基（Volodymyr Zelenskiy）透漏，美国务卿及国防部长将于24日前往基辅与其会晤，讨论美国向乌克兰提供那些武器抵御俄罗斯侵略。此前，美国总统拜登宣布对乌增加8亿美元的军援。
 
-俄罗斯在未能撼动乌克兰首都基辅后，将战争重点从北部和中部转向东部和南部，并首次透露其目标是“完全控制”乌克兰南部和顿巴斯地区。
+又22日波罗的海三国联合宣言中强调“重型武器”对乌克兰抵御俄罗斯、维护欧洲和平至关重要，紧接着美国高级官员便访问基辅，讨论军事援助细节。郭文贵曾于直播分析，他认为欧洲未来的核心将会是乌克兰等东欧。
 
-据悉，目前俄军仅部分控制了乌克兰南部，乌克兰政府仍控制着主要城市尼古拉耶夫和敖德萨，部分乌克兰军队在被围困的马里乌波尔一家钢铁厂内坚守阵地。
+## 声明称：俄侵略威胁整个欧洲
 
-位于马里乌波尔的Azovstal钢铁厂，是世界上最大的钢铁厂之一。据乌克兰当局称，有超过1,000名平民被困在该工厂。
+三国联合声明提到，俄侵略对大西洋安全构成威胁，北约系属防御性联盟，为欧-大西洋的和平、安全、稳定而努力，波罗的海三国有计划在马德里即将举行的北约峰会，讨论下一阶段的北约战略概念，加强北约（东翼）面对长期威摄的防御，为避免任何侵略的可能，波罗的海国家建立现代化的前沿防御能力，陆海空必须拥有更大规模的现代化军力部署，波罗的海三国将会增加国防预算迅速实现此共同项目。
 
-乌克兰总统顾问奥列克西‧阿列斯托维奇（Oleksiy Arestovych）称，俄军队正在空袭该钢铁厂，他说，“尽管身处钢铁厂的乌军处境非常困难，但他们仍在坚守阵地，并进行反击。”
+## 波罗的海三国现代化军力含“法律、网路、资讯、情报、经济”面向
 
-乌克兰官员表示，目前顿涅茨克和卢甘斯克正在持续激烈战斗中。
+联合声明提到，波罗的海三国重视“混合威胁”，如网路攻击、资讯操弄、外国干涉、情报渗透、法律及经济战争等。
 
-此外，乌克兰总统办公室副主任凯里洛‧季莫申科（Kyrylo Tymoshenko）在周六的一份声明中宣布了宵禁。当局警告称俄罗斯可能在节日庆祝活动期间增加军事活动。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/23/n13718574.htm](https://www.epochtimes.com/gb/22/4/23/n13718574.htm)
 
-总编：老孙
-校对发布：Linda
+> Russian aggression challenges Euro-Atlantic security. 
+> 
+> With [@krisjaniskarins](https://twitter.com/krisjaniskarins?ref_src=twsrc%5Etfw) and [@IngridaSimonyte](https://twitter.com/IngridaSimonyte?ref_src=twsrc%5Etfw) we put our common approach in writing – how to best strengthen the security of our region & what decisions are needed at [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Madrid summit.
+> 
+> Our statement [https://t.co/M7WeOJ8FUb](https://t.co/M7WeOJ8FUb) [pic.twitter.com/J3JYCUUiDj](https://t.co/J3JYCUUiDj)
+> — Kaja Kallas (@kajakallas) [April 22, 2022](https://twitter.com/kajakallas/status/1517507268136292352?ref_src=twsrc%5Etfw)
+
+
+
+来源｜[YAHOO](https://news.yahoo.co.jp/articles/e4d6953d7cf4738ef006e133cee462e77a322f8d)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
 
  
 
