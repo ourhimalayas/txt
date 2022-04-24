@@ -2,98 +2,36 @@
 ---
 
 
-## 众议员迈克·沃尔茨：美国和欧洲应该采取更多措施来阻止普京
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2401237/)
+## 樱花深度报道┃台湾可以从俄罗斯入侵乌克兰学到什么？（一）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2402306/)
 
-**众议员迈克·沃尔茨**： 
-尽管(对俄)实施了制裁，但看到有漏洞被人利用仍然令人沮丧。 欧洲仍在从俄罗斯购买数千亿立方米的天然气，为普京的战争机器提供资金。 美国和欧洲应该采取更多措施来阻止普京。 【附沃尔茨议员接受采访视频】
+编译：东京樱花团/Hopkins
 
+【编者按】俄罗斯入侵乌克兰正在引起深刻的反思。随着中共和俄罗斯宣布他们的友谊“没有限制”，他们正在“狼狈为奸”，台湾人担心他们将成为下一个猎物。如何生存？战斗精神和正确的西方武器可能会阻碍强大的敌人，乌克兰已经展示了坚强的战斗精神、勇敢的领导、有韧性的人口——以及西方的武器——这是能够阻止更大的敌人的关键。台湾准备得越好，中共入侵失败的可能性就越大。俄罗斯“狼”在乌克兰的挣扎表明了中共“狈”也将被挡在台湾岛门外。 本文编译自《经济学家》杂志2022年4月23日发表的文章“[What Taiwan can learn from Russia’s invasion of Ukraine](https://www.economist.com/briefing/what-taiwan-can-learn-from-russias-invasion-of-ukraine/21808850)”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-18.jpg)
+在台北的一个星期五晚上，数十人聚集在一家书店，讨论如果台湾发生战争该怎么办。商店橱窗贴满了谴责中共、支持西藏、新疆和香港自由的标语。旁边是一堵新的抗议墙：一面乌克兰国旗上点缀着英语、普通话和台湾语的便利贴：“与乌克兰站在一起”。一个人说，“操普京”，另一个人感叹，第三个人高呼：“中共，俄罗斯：狼狈为奸”，即狼和狈（神兽）勾结作恶。这指的是一个传统的故事，两个畸形生物——前腿长后腿短的狼和相反残疾的狈——合作吃羊。
 
+随着中共和俄罗斯宣布他们的友谊“没有限制”，台湾人担心他们将成为下一个猎物。如何生存？在书店里，一位前海军信号员和一位马伽术（Krav Maga）武术教练带领讨论了可能的战争带来的灾难规划、自卫、互助、治疗伤口等。自俄罗斯入侵乌克兰以来，此类研讨会变得特别受欢迎，徐子涵（[T.H.Schee](https://schee.medium.com/?source=about_page-------------------------------------)），前海军信号员说，“一年前，大多数人认为我们这一代永远不会看到战争，”他解释道，“乌克兰让每个人都意识到：战争就在这里。”他认为，这次会议是克服投降主义的难得机会。“我们首先专注于保护自己、家人和社区。我们希望政府能做一些事情。”
 
-> It's frustrating to see the loopholes being taken despite the sanctions in place.
-> 
-> Hundreds of billions of cubic-meters of gas are still being bought by Europe from Russia, financing Putin's war machine. There's a lot more the U.S. and Europe should be doing to stop Putin. [pic.twitter.com/ISf7ivTBXA](https://t.co/ISf7ivTBXA)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517930049827188737?ref_src=twsrc%5Etfw)
+自从中国的民族主义统治者（国民党）在 1949 年与共产党的内战失败并逃往台湾以来，大陆的入侵一直令人担忧。长期以来，这两个实体都声称是中国的合法政府。鲜明的台湾身份逐渐形成，但自称中华民国的台湾却不敢宣布独立，生怕激怒大陆。这让它陷入了困境：一个充满活力的民主国家和世界上最大的先进半导体供应商，却只与 14 个国家有外交关系。
 
+几十年来，台湾已经从反攻大陆的幻想转向了一种日益加深的绝望——一种它无法靠自己的力量来击败入侵的体验。国防开支占 GDP 的比重从 1990 年的 5.2% 下降到 2000 年的 2.7% 和 2020 年的 1.9%（今年可能会上升到 2.1%）。斯德哥尔摩国际和平研究所（The Stockholm International Peace Research Institute）估计，以美元计算，中共的国防预算是台湾的 20 倍。
 
+国防开支在台湾一直不受欢迎，部分原因在于1987年结束的近40年军事独裁的遗留问题。武装部队正在萎缩，因为他们让位于全志愿部队。征兵仅剩下的一点点——男性四个月——被认为是浪费时间，经常被推卸责任。徐先生打趣说，步兵最强的技能是“刷墙、捡草和伪造文件”。有一段时间，一些台湾人认为与中共的贸易可能会停止这种威胁，但中共国家主席习近平咄咄逼人的民族主义已经打消了这种幻想。在很大程度上，台湾只能躲在美国威慑的盾牌后面。
 
-**美国国务院**： 
-拜登总统[@POTUS](https://twitter.com/POTUS) 宣布了一项名为“为乌克兰团结起来”的新计划，以使寻求避难的乌克兰人能够直接从欧洲来到美国。 “这个程序会很快。它会被精简顺畅。” 【附拜登讲话视频，将开通快速通道接受10万乌克兰难民】
+俄罗斯入侵乌克兰正在引起深刻的反思。乌克兰人的顽强抵抗让一些台湾人希望他们也能抵挡强大的敌人。然而，战争也带来了两个发人深省的想法，一是制裁威胁和西方对乌克兰的武装都没有阻止俄罗斯，另一个是俄罗斯的核威胁阻止了美国直接干预，中共也有核武器。
 
+智库台湾国际战略研究中心的一项民意调查显示出矛盾的情绪。它显示愿意为保卫台湾而战的台湾人的比例惊人地上升，从 12 月的 40% 上升到 3 月的 70%。类似的百分比支持延长征兵期，这一举措目前正在辩论中。但对美国干预的信心明显下降，从 55% 降至 43%。几乎不到三分之一的受访者认为台湾可以单独阻止入侵。
 
+（未完待续）
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announces a new program, “Unite for Ukraine,” to enable Ukrainians seeking refuge to come directly from Europe to the United States. "This program will be fast. It will be streamlined." [pic.twitter.com/IJl844lCIE](https://t.co/IJl844lCIE)
-> — Department of State (@StateDept) [April 23, 2022](https://twitter.com/StateDept/status/1517873428098740224?ref_src=twsrc%5Etfw)
+信息来源：
 
+“[What Taiwan can learn from Russia’s invasion of Ukraine](https://www.economist.com/briefing/what-taiwan-can-learn-from-russias-invasion-of-ukraine/21808850)”
 
-
-**前国务卿迈克.蓬佩奥**： 
-美国梦之所以强大，是因为每个人都可得到它。不要停止相信它！
-
-
-
-> The American Dream is powerful because it is available to everyone. Don’t stop believing in it!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517934426352664578?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂**： 
-拜登总统已发出公开邀请，将于 5 月 23 日跨越我们的南部边境。 我敢肯定，#中共 和贩毒集团正在将毒品生产提高到历史最高水平。 他们在美国杀死我们的孩子，把每个城镇都变成了边境城镇。 
-【译者注：拜登拟于5月23日结束第42条，该条款“允许政府在某些公共卫生紧急情况下阻止个人引入”】
-
-
-
-> President Biden has sent out an open invitation to come cross our southern border on May the 23rd. I'm certain that the CCP and the cartels are ramping up drug production to all-time high levels. They're killing our kids here in America and turning every town into a border town.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 22, 2022](https://twitter.com/SenatorHagerty/status/1517644417368301575?ref_src=twsrc%5Etfw)
-
-
-
-**前国务次卿基思·克拉奇**：
- [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 不花一兵一弹就达到他们的地缘政治目的。他们持续性地以科技作为杠杆，让他们的极权主义政权受益。是时候反对这些行动了。这就是我们的“清洁网络”要达成的目标。 
-【转国家利益网文章，应对中国极权主义的答案, 是(采用)值得信赖的技术】
-
-
-
-> China achieves its geopolitical goals without sending an army or firing a shot. They have consistently leveraged [#technology](https://twitter.com/hashtag/technology?src=hash&amp;ref_src=twsrc%5Etfw) to benefit their totalitarian regime. It's time to stand up against these actions. That's what we achieved with the Clean Network. [https://t.co/nBfeYLFVhL](https://t.co/nBfeYLFVhL)
-> — Keith J. Krach (@KeithJKrach) [April 23, 2022](https://twitter.com/KeithJKrach/status/1517858345079742466?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” 
-——罗纳德·里根总统
-
-
-
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克·蓬佩奥**： 
-当我担任国务卿时，美国的力量一直在我心中。 我们使世界各国的领导人信服于美国的实力，因此 (那时) 我们也更加安全。 我们需要再做一次！ 以实力求和平，行之有效！
-
-
-
-> When I was Secretary of State, American strength was always on my mind. We convinced world leaders of American power, and we were safer because of it. We need to do it again! Peace through strength works!
-> — Mike Pompeo (@mikepompeo) [April 23, 2022](https://twitter.com/mikepompeo/status/1517912245774307329?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨**： 
-普京公开测试他的核能力，以表明它们是现代的、有效的并且他可以使用它们。 与此同时，拜登推迟并保持我们的（核武器）测试秘密。 这样的威慑不起作用。保持和平是要展示我们的力量、而不是把它隐藏起来。
-
-
-
-> Putin's openly testing his nuclear capabilities to show they're modern, they work & that he can use them.
-> 
-> Meanwhile, Biden's delaying & keeping our tests a secret. That's not how deterrence works. Peace is kept by demonstrating our strength not hiding it. [pic.twitter.com/mXmNdf4ytV](https://t.co/mXmNdf4ytV)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 23, 2022](https://twitter.com/michaelgwaltz/status/1517936340947644421?ref_src=twsrc%5Etfw)
-
-
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

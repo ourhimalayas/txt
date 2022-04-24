@@ -2,33 +2,26 @@
 ---
 
 
-## 【G时新闻】中共国军管开始了
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2404695/)
+## 樱花时政┃入侵战争致俄驻美大使馆被封锁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2404851/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【文所未闻】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-郭文贵先生4月23日通过GETTR直播爆料，CCP已经在北京派驻6万武警军人准备封城。真正的分区隔离、封控和军管马上开始。
+撰稿：东京樱花团/盐和光
 
-善良勤劳智慧的上海做梦都不会想到他们会遭到如此的劫难，被CCP以病毒清零的名义长期封控。许多人无辜地失去生命和健康。郭先生转诉国内相关部门战友的情报：上海、长春、深圳等地的COVID-19 病毒，实际是疫苗灾难。CCP将疫苗灾难转嫁给病毒传染，将他们的责任归罪于百姓之间的相互传染。
+4月24日环球时报报道，俄罗斯全俄国家电视广播公司24日播出对俄罗斯驻美国大使安东诺夫的采访。安东诺夫表示，俄驻美使领馆工作事实上已被美当局封锁，俄罗斯驻休斯敦和纽约总领馆在美国银行开具的账户被关闭，使领馆源源不断接到威胁电话和信件，甚至一度还发生过使馆出口被封锁的情况。
 
-为此，大搞特搞“封城”，实际就是将老百姓画地为牢监管起来，以防止百姓聚集对抗CCP。现在，中国就是一个大的监狱。 同时，CCP对全国实施金融监管、粮食和食品监管，不允许任何人从银行支取或转账所谓大额现金，将老百姓的财物牢牢控制住。如果百姓有任何反抗行为，直接将其定性为“勾结外部势力反党、反国家和反人民”。北京人民和全国人民艰难的时刻来到了！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3058.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.sputniknews.cn%2Fimg%2F102313%2F42%2F1023134223_0%3A0%3A2150%3A1210_1920x0_80_0_0_0927adcaf870b281bde4314644b328ec.jpg&amp;imgrefurl=https%3A%2F%2Fsputniknews.cn%2F20220203%2F1038646975.html&amp;tbnid=6zhp_ejGcJcblM&amp;vet=12ahUKEwj-_Mf83qz3AhUYcxoKHeeJBQQQMygAegUIARC4AQ..i&amp;docid=70AEV6_LFgFT3M&amp;w=1920&amp;h=1081&amp;q=%E4%BF%84%E9%A9%BB%E7%BE%8E%E5%A4%A7%E4%BD%BF%E9%A6%86&amp;ved=2ahUKEwj-_Mf83qz3AhUYcxoKHeeJBQQQMygAegUIARC4AQ)
 
-盖特链接：[https://gettr.com/post/p16ruk7a7ab](https://gettr.com/post/p16ruk7a7ab)
+在4月5日，据德国媒体报道，德方宣布40名俄外交人员为“不受欢迎的人”，并要求他们5天内离境。同一天，法国外交部也在当日发表声明说，法方决定驱逐35名俄外交人员。这些人员的活动“违反了法国安全利益”。据法国媒体报道，法方决定驱逐35名俄外交人员。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+与此同时，比利时驱逐21名俄外交官,荷兰驱逐17名俄外交官，爱尔兰驱逐4名俄外交官，捷克驱逐1名俄外交官，波罗的海三国驱逐了10名俄外交官，波兰驱逐45名俄外交官，拉脱维亚驱逐俄大使、外交降级，立宛驱逐俄大使、外交降级，此时的俄罗斯已被全世界孤立。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+美国对待俄罗斯入侵乌克兰，在外交政策上给予了俄罗斯一定的空间，官方没有任何回应，在此次封锁后俄罗斯驻美国大使馆后，美俄关系也将进入真正的冰点状态。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+信息源：[俄驻美大使：俄驻美使领馆工作事实上已被美当局封锁](https://mo.mbd.baidu.com/r/F0nRHUmaru?f=cp&amp;rs=169107046&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5327844e2ba737f6&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

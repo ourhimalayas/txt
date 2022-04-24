@@ -2,29 +2,49 @@
 ---
 
 
-## 【G时新闻】中共为掩盖毒疫苗真相，借病毒之名隔离封锁北京
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2404594/)
+## 德国在与法国之间对抗时做出拉外敌进入欧洲的错误决定
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2404766/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月23日，郭先生在盖特直播指出，北京百分之百会进入隔离戒严，就像哈尔滨、青岛、大连、海口一样。 北京已经完全布置好隔离封城的准备。目前北京报道的这里哪里又确诊多少阳性，都不要相信，那是中共为了掩盖打毒疫苗导致阳性的真相而报道的，也是为隔离封锁做新闻舆论准备。 内部知情战友指出，北京最低的时候，一天能够验出来一万到两万阳性案例，最近没有一天低于几万的，而且绝大多数阳性都是打毒疫苗导致的。 中共知道毒疫苗会导致很多人死亡，就把疫苗死人的责任推给所有的病毒。中共想通过所谓隔离阻断病毒的传播，是老百姓不配合隔离、到处乱跑、甚至给外国人传递信息，而造成伤亡的的事件，全都是老百姓和美帝国主义的错。这就是中共转嫁矛盾，掩盖毒疫苗真相的手段。 郭先生最后透露，在过去两周，进入北京的武警有6万多名，而且是驻扎式的。这也是自从1949年以来，第一次这么短时间内有6万多武警驻扎式进入北京。中共派那么多武警驻扎，是为了长期的周期性封城做准备。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8826.57%EF%BC%89%E5%BE%B7%E5%9B%BD%E5%9C%A8%E4%B8%8E%E6%B3%95%E5%9B%BD%E4%B9%8B%E9%97%B4%E5%AF%B9%E6%8A%97%E6%97%B6%E5%81%9A%E5%87%BA%E6%8B%89%E5%A4%96%E6%95%8C%E8%BF%9B%E5%85%A5%E6%AC%A7%E6%B4%B2%E7%9A%84%E9%94%99%E8%AF%AF%E5%86%B3%E5%AE%9A%E3%80%902022%E5%B9%B402%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:5)
 
-盖特链接：[https://gettr.com/post/p16s6fec106](https://gettr.com/post/p16s6fec106)
+**郭文贵先生：**所以吧德国这一次，你看德国，你们两个，微蓝、福利，你就看德国这个民族它是有问题的，就德国永远在历史上它选择对它最不利的、对人类也是最不利的。
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+所以说当时的大斯特劳斯讲过一句话，说：“永远要小心两个国家：东南亚的日本和欧洲的德国”。李光耀的书当中要记住，他说：“任何人不要忽略了在亚洲的在静静躺在那里的日本”。然后英国丘吉尔说过：“在任何情况下英国人都不要忘了德国这个民族的个性”。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+你能看得出来的，德国这次在跟苏联这个事上，就是俄罗斯这个事上，你看出来，它因为云溪二号（北溪二号）的天然气管道，还有一个，它地势太近了，它不敢惹苏联，它不敢惹这俄罗斯，还有各种交通利益还有贸易。你可以选择，但是你发现它不是一个希望你俄罗斯怎么样，它甚至在欧洲这个问题是姓谁，是姓德国还是姓现在已经出局的英国还是法国上？
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+他在玩啥？玩一个很危险的游戏，它认为可能是俄罗斯加入对它并没坏处。严格讲这是对欧洲的背叛你知道吗？欧洲现在像西班牙、像比利时，吃的饭都是人家的德国的饭，没有意大利、没有西班牙，比利时没有德国人借给你钱已经都破产了。法图麦、神奇四侠现在已经去乌克兰中国城去了已经，你想啥呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+都是德国人的贡献，这欧洲，人家德国是拿真钱真银给你的，但是这个时候它跟法国之间的对抗它成了一个，这就拉外敌来了。
+
+字幕来源：[2022年2月18日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2033310/)
+
+编辑整理：海贼王M.D.LUFFY；
+
+字幕档制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
