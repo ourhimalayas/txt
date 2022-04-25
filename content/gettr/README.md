@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 1:54 PM (UTC)`
+
+【Ukraine Rescue】04/24/2022 Volunteers from all over the world love the Billboard of the NFSC and ROLF, they hope to see the slogans of TAKE DOWN THE CCP in all kinds of languages on it.<br/><br/>【乌克兰救援】04/24/2022 来自世界各地的救援义工都喜欢法治基金新中国联邦的擎天柱，希望有各种语言的新中国联邦灭共标语出现在上面。<br/><br/>
+![img](https://media.gettr.com/group43/getter/2022/04/25/13/2340c9bc-ed67-87a1-c978-f37228c7cac1/out.jpg)
+
+---
+
+`@miles 4/25/2022 1:46 PM (UTC)`
+
+【Ukraine Rescue】04/24/2022  A Christan from Norway worried about the religious freedom of Chinese Christans. He likes Chinese history and culture. Chinese people need a good government for freedom. And the German volunteer said “the New Federal State of China is beautiful and wonderful. We need the real Chinese people to stand up for the truth.”<br/><br/>【乌克兰救援】04/24/2022  来自挪威的基督徒对生活在中共国的基督徒的宗教自由感到忧心。他热爱中国的历史和文化，中国人应该需要一个好的政府，代表自由的政府。他身边的德国义工说：“新中国联邦是美丽和美好的，我们需要像新中国联邦这样的人能够站出来说真话。”
+![img](https://media.gettr.com/group41/getter/2022/04/25/13/843a6f07-b994-7461-7729-52b0ff533fd3/out.jpg)
+
+---
+
 `@miles 4/25/2022 1:22 PM (UTC)`
 
 【Ukraine Rescue】4/24/2022 The French mother and her son are volunteering in Medyka. Poland. They speak fluent Mandarin. The French mother used to work at the French Embassy in Beijing for 15 years. They love China and the Chinese people very much. Our fellow fighter Nicole told them that the mission of the New Federal State of China is to take down the evil Chinese Communist Party. The new Chinese people love freedom and peace. <br/><br/>【乌克兰救援】4/24/2022  这位法国母亲和她的儿子正在波兰的梅迪卡做志愿者，他们会说一口流利的普通话，这位法国母亲曾在法国驻北京大使馆工作了15年，他们非常热爱中国和中国人民。我们的战友妮可告诉他们，中国新联邦国的使命是摧毁邪恶的中国共产党，新中国人民热爱自由与和平。
@@ -144,20 +158,6 @@
 
 4/24/2022 Miles Guo: Yesterday's crash of the CCP military aircraft was of great significance. It not only shocked the Western military establishment, proving to the West the capabilities of the Whistleblowers’ Movement to collect intelligence, but it is also a slap in the face of the CCP's claim regarding its independent military development. Many in the CCP are convinced that God is helping the Whistleblowers’ Movement. The Russian pilot instructors paid by the CCP are enjoying themselves in Communist China and unwilling to go back to Russia, and they are thinking of selling out Russia every day.<br/><br/>4/24/2022 文贵直播：昨天的中共坠机事件意义重大，它不仅震惊了西方军事机构，向西方证明了爆料革命的情报力量，而且打脸中共所宣称的独立军事发展，并让党内很多人相信爆料革命得天助；被中共收买的俄罗斯飞行员教练在中共国乐不思蜀，天天想着出卖俄罗斯<br/>
 ![img](https://media.gettr.com/group50/getter/2022/04/24/23/ed248787-4498-a91e-3941-c2bfdcb63cad/out.jpg)
-
----
-
-`@miles 4/24/2022 11:14 PM (UTC)`
-
-4/24/2022 Miles Guo: Yesterday's CCP military plane crash revealed the CCP's lack of capability to invade Taiwan! The CCP’s carrier-based aircraft are unreliable, so they can only use drones, missiles, and submarines to destroy Taiwan. Neither is the CCP able to land on Taiwan. So, the CCP is just a paper tiger! As long as the Taiwanese dare to resist for 3 hours, Taiwan will be able to receive international support.<br/><br/>4/24/2022 文贵直播：昨天的中共军机坠毁暴露出共产党根本没有能力打台湾！中共舰载机不靠谱，只能用无人机、导弹、潜水艇来破坏台湾；共军更没有登陆能力，中共就是个纸老虎！台湾只要敢于反抗3小时，就能获得国际支持<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/24/23/051d6e19-e692-f89b-6422-8bc87a2b8110/out.jpg)
-
----
-
-`@miles 4/24/2022 11:08 PM (UTC)`
-
-4/24/2022 Miles Guo: Historically, China and Russia are not aligned in 99% of cases. Modelski’s so-called long cycle is a disastrous joke. The third faction in the US, the Wall Street elites, has determined the history of China over the past 100 years, not the CCP.<br/><br/>4/24/2022 七哥直播：历史上中国和俄罗斯不在一起的时间占99%，互联网时代所谓的莫德尔斯基的长周期是一个灾难性的笑话，过去这一百年是美国的第三派——华尔街决定了中国的命运，而非共产党<br/><br/>
-![img](https://media.gettr.com/group48/getter/2022/04/24/23/d3fb052f-e13a-dc7e-f068-1d0a7f97787f/out.jpg)
 
 ---
 

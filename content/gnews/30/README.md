@@ -2,35 +2,46 @@
 ---
 
 
-## 澳防长：维护和平必须做好战争准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410603/)
+## 欧洲市场开盘时将下跌；法国马克龙将连任总统
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2410938/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/LYNXMPEB070CN_L-edited.jpg)图片来源： REUTERS/Ints Kalnins
 
-#### 整理/编辑：BENJ1
+伦敦–随着全球市场的抛售持续到新的交易周，欧洲股市周一预计将大幅低开。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-155.png)图片来源：网络
+根据IG的数据，英国富时指数开盘下跌94点，报7,533点；德国DAX指数下跌241点，报13,901点；法国CAC40指数下跌72点，报6,509点。
 
+欧洲的投资者还将消化周一法国总统选举的预计结果，并关注乌克兰的最新发展。
 
-所罗门群岛与中共签署的军事协议让澳大利亚担忧中共可能在澳洲家门口建立军事基地，直接威胁国家安全。澳大利亚国防部长达顿（Peter Dutton）对此表示，维护太平洋地区和平的唯一途径就是做好战争的准备。
+法国的埃马纽埃尔-马克龙(Emmanuel Macron)看起来将在周日的选举中轻松击败他的竞争对手玛丽娜-勒庞(Marine Le Pen)，凭借其亲商业和亲欧盟的议程，获得第二个总统任期。
 
-达顿（Peter Dutton）部长表示：“我们不应该想当然地认为，澳新军团，或那些在第二次世界大战中，在越南，中东等地区的每一场冲突中所做出的牺牲，可以在某种程度上，使本地区永远不再发生冲突。我们必须现实一点，像希特勒这样的人并不只存在于我们的想像中或历史之中”
+官方结果显示，共和国前进党的中间派马克龙在第二轮即最后一轮投票中获得了58.5%的选票。民族主义和极右翼的国民大会党的勒庞获得了近42%的选票。
 
-在澳新军团日纪念活动举办前，澳洲总理莫里森接受《澳洲人报》采访时说：“（中共是否建立军事基地）是大家共同关心的问题，不仅仅是澳洲，这是澳洲和本地区国家的政府，特别是像斐济和巴布亚新几内亚这样的国家（也关心的问题）。”
+随着俄罗斯对乌克兰的入侵在周日进入第三个月，欧洲投资者继续关注着乌克兰的发展。这场冲突已造成数千人死亡，并导致了欧洲自二战以来最严重的难民危机。
 
-“与我们的新西兰伙伴，当然还有美国伙伴一起合作，在涉及到这些问题时，我与美国有着同样的红线。”
+乌克兰总理Denys Shmyhal表示，只有俄罗斯军队完全撤出该国，战争才能结束。
 
-在澳新军团日前夕，澳洲总理莫里森警告说，中共如果在所罗门群岛建立军事基地将触碰澳洲和美国的“红线”
+继华尔街上周五的抛售之后，亚太市场周一大幅下跌。在道琼斯工业平均指数连跌四周的情况下，美国股票期货周日晚间下跌，因为投资者评估了利率上升的可能性。华尔街也在为一周的财报做准备，包括亚马逊和苹果等主要科技公司的报告。
 
-参考链接：[澳防长：为战争做好准备才能维护和平](https://www.epochtimes.com/gb/22/4/25/n13719762.htm)
+周一，德意志银行、飞利浦和罗氏将发布收益报告。发布的数据将包括德国Ifo公司的最新商业环境调查。
 
-发布：*wenly*
+**新闻来源：**[European stocks fall 2% as global sell-off, China Covid concerns batter sentiment](https://www.cnbc.com/2022/04/25/european-markets-as-investors-react-to-frances-macron-win.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
 
  
 

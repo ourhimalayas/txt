@@ -2,24 +2,42 @@
 ---
 
 
-## 樱花时政┃网民敦促中宣部制定“个人崇拜的底线”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2411162/)
+## 有声|俄乌战争以来多国限制食用油出口
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2411251/)
 
-撰稿：东京樱花团/上善若水
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+乌克兰与俄罗斯在全世界葵花油出口市场中所占份额比率高达80%。自乌克兰战争爆发以来，全球食用油价格飙升。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.30.32-PM.png)
+据外媒4月22日报道，世界上最大的棕榈油生产国印度尼西亚，宣布将于4月28日起，禁止所有食用油及其原材料的出口。
 
-最近网上流传名叫“荆中”的网民在2022年4月20日写给中共20大的“建言”，题目是“请中宣部制定个人崇拜的底线”。
+暨印尼限制食用油出口后，阿根廷也提高了豆油的出口税。芝加哥豆油期货价格涨幅高达 3.5%。吉隆坡棕榈油早盘上涨 0.7%。巴黎的油菜籽和北美的油菜籽期货也上涨至新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3167.png)（图片来源于本文链接）
+疫苗危机，原料通胀与粮食危机在不断威胁全世界各国在温饱线上挣扎的底层家庭，也在不断蚕食中产者所剩不多的储蓄和希望。食物短缺让马来西亚，斯里兰卡，伊拉克等国民众走上街头抗议食品价格高企。
 
-“荆中”的建言说：“2017年10月24日中共十九大修改的党章，第10条第6款规定，党禁止任何形式的个人崇拜”。他解释说，“现在广大公众感到贵党个人崇拜的气氛越演越烈”，“不知道个人崇拜的底线是什么”，所以，请中宣部制定一个“个人崇拜底线”的文字说明。
 
-该网民还说，“最近广西自治区党代会闭会文件，对个人描述又有新的发展”。是不是属于个人崇拜范畴? 如果是属于的话，“中宣部就应该有动作”。“荆中”质疑广西搞“个人崇拜”的原因，应该与中共广西书记刘宁有关，因为此人最近在党代会上提出“永远拥戴领袖、捍卫领袖、追随领袖”的口号，并推出题为“紧跟伟大复兴领航人”的电视专题片，被认为正在全国酝酿一场升级版“颂圣”造势运动。
 
-信息来源：[网民敦促中宣部制定“个人崇拜的底线”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220424-%E7%BD%91%E6%B0%91%E6%95%A6%E4%BF%83%E4%B8%AD%E5%AE%A3%E9%83%A8%E5%88%B6%E5%AE%9A-%E4%B8%AA%E4%BA%BA%E5%B4%87%E6%8B%9C%E7%9A%84%E5%BA%95%E7%BA%BF)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
+
+文字版原文：[俄乌战争以来多国限制食用油出口](https://gnews.org/zh-hans/2404528/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

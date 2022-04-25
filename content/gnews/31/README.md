@@ -2,70 +2,41 @@
 ---
 
 
-## COVID-19疫苗副作用集萃(2022.4.25F)&#8211;三针摩德纳疫苗当天身体陷入极度虚弱中
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410501/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410866/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### **整理：枳实** **
+** **美工：精灵蓝** 
 
-#### 整理/编辑：禄森
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-10.png)图片来源：雅典娜设计组(614)
-
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-**帖子原文**：
-
-博主:千小华
-
-疫苗第三针 莫得那 随时记录中
-
-**随时更新中**
-
-疫苗第三针，选了莫得那，我的反应开始了…
-
-约的上午10点，一起床就发现脖子睡落枕了
-
-开局不利，扎针那一刻我就明白了，我逃不过这一劫，因为扎针的时候我就痛。
-
-前两针辉瑞，我都发烧了，第二针38+，应该算是反应偏强烈的，虽然知道莫得那厉害，但是没想到这么快。
-
-打完回家睡了一觉，3点多起来发现胳膊超级痛。
-
-晚上6点…37.1度，开始发烧，6.20…37.4度，开始上升
-
-9.30…37.66 浑身酸痛，呼吸滚烫滚烫的
-
-。10.40…38.08度，直打冷战，头疼。
-
-11.10…38.77度，吃了面，喝了汤，吃下了退烧药。
-
-12.00…37.7度，温度下来一些，还是没有完全退烧
-
-4月25日
-
-6.00…36.7度，看样子烧了一晚上，迷迷糊糊。
-
-10.00…38.01度，又开始了。
-
-即时更新中…….
-
-作者发布于:2022-4-24
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-150.png)图片来源：小红书
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-19.png)图片：雅典娜农场设计组 精灵蓝
 
 
-参考链接：[反复高烧，浑身酸痛](https://www.xiaohongshu.com/discovery/item/6265174400000000210340a8?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=62480ace0000000010005395&amp;apptime=1650860905)
+雅典娜疫情更新（2022年 4月25日）
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-158.png)图片：雅典娜农场设计组 精灵蓝
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-45.png)图片：雅典娜农场设计组 精灵蓝
+
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
 发布：*wenly*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

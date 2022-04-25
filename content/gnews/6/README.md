@@ -2,23 +2,25 @@
 ---
 
 
-## 秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2411262/)
+## 有声｜美国国务卿布林肯和国防部长奥斯汀访问基辅
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2411369/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-52.jpg)图片来源：本文链接
-据韩媒《朝鲜日报》4月25日的消息，美国《纽约时报》(NYT)当地时间19日报道称，政府正在讨论是否解除室外口罩佩戴，在无人戴口罩的情况下，即使独自佩戴口罩，也有预防新冠病毒（中共病毒）感染的效果。
+By:**秘翻新闻**
 
-据媒体报道，口罩会减少感染新冠病毒（中共病毒）的颗粒排放量和吸入量，因此戴口罩对预防感染最有效。但是，在没有人戴口罩的情况下，独自佩戴也有效果。2020年在瑞士一家酒店发生的集体感染事例就是代表性的例子。当时，戴着布遮脸罩的多数服务员和客人感染了新冠病毒（中共病毒）。相反，戴口罩的人虽然停留在同一空间，但并没有被感染。美国田纳西州实施的调查也显示，义务戴口罩地区的新冠肺炎（中共病毒）住院率低于没有义务戴口罩的地区。
+**2022-04-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/425-7.png)
+[华尔街日报](https://www.wsj.com/articles/ukraines-volodymyr-zelensky-awaits-easter-visit-from-top-u-s-officials-11650794278)4月24日报道，美国国务卿布林肯和国防部长奥斯汀周日在基辅会见乌克兰总统泽连斯基，这是自战争开始以来美国官员对乌克兰的最高级别访问。
 
-预防感染的效果根据口罩种类和佩戴方法等也有所不同。日本的一项研究显示，棉口罩的保护效果仅为17~27%，而手术用口罩的保护效果为47~50%。松散佩戴的N95口罩有57~86%的保护效果，贴身佩戴的N95口罩有79~90%的保护效果。
+泽连斯基的高级顾问阿雷斯托维奇在一个深夜的视频中说，美国官员已经与乌克兰总统会面。
 
-保健专家特别劝告说，要想预防传播力强的隐形奥密克戎(BA.2)变异，应佩戴N95、KN95、KF94等性能好的口罩。
+此前，泽连斯基在周六的新闻发布会上表示，他预计将与来访的美国官员讨论军事援助问题，因为俄军正在乌克兰东部发动进攻。乌克兰需要更多武器才能击退俄罗斯军队。
 
-信息来源：[https://www.chosun.com/international/international\_general/2022/04/25/7Q7FTYOVFBEUFLMVNW647ULVVY/?utm\_source=naver&utm\_medium=referral&utm\_campaign=naver-news](https://www.chosun.com/international/international_general/2022/04/25/7Q7FTYOVFBEUFLMVNW647ULVVY/?utm_source=naver&amp;utm_medium=referral&amp;utm_campaign=naver-news)
+（秘翻新闻 自由信仰 编译报道）
 
-责编：Eric Kim
+发布 : 文橙
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-5.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
