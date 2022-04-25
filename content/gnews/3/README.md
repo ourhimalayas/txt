@@ -2,11 +2,19 @@
 ---
 
 
-## 人类的无知和短浅和恐惧、自私，导致的人类的灾难远远大于共产主义和邪教
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407942/)
+## 我最痛苦的就是看到我的同胞是如此的愚昧、懦弱、自私
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408036/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：10-09：20-005-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：30-09：40-006-1.jpg)
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

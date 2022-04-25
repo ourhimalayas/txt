@@ -2,47 +2,37 @@
 ---
 
 
-## 上海封城：政府安装警报器以防市民逃跑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2405659/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2406606/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Bild12.jpg)HECTOR RETAMAL/法新社通过盖蒂图片社
-来自《布赖特巴特新闻网》4月22日报道：据中共国营的《环球时报》周五报道，上海市政府周四开始在一些住宅安装电子报警器，以防止人们离开家，而该市的所有人口仍然处于国家规定的中共病毒封城状态。
+作者：香草山翻译部
 
-“那些需要在家隔离的人，将会在门上被安装传感器，”上海市政府4月21日说。这一规定是在周四晚间发布的一份市政通知中公布的，并立即生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
 
-英国广播公司（BBC）周五也报道了上海新近升级的封锁措施，这些措施将“包括放置电子门警报器以防止感染者离开”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-23.png)
 
-门上警报器是上海市政府新近收紧的市中心持续封锁规则的一部分，封城开始于4月5日，适用于全市近2600万居民。
+文章仅代表作者本人观点，与Gnews无关
 
-据《环球时报》报道，上海的中共官员周五晚间举行了一次会议，他们 “发誓要……采取更有力的方法，在与病毒斗争的所有方面实施新冠病毒（中共病毒）清零战略”。
+视频参看：
+[2022.04.24早 《NFSC新闻》](https://gettr.com/streaming/p16vjm961dd)
+[2022.04.24早《NFSC新闻访谈》](https://gettr.com/streaming/p16vvtm7571)
 
-这家由中共经营的报纸在4月22日提供了一些例子，说明上海封城在最近几天是如何加剧的，并写道：
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-上海居民李翠华住在一个被封锁管理的住宅小区，这意味着她不应该也不允许走出家门，她告诉《环球时报》，她所在的社区在周四晚上（4月21日）发出通知，志愿者将在未来五天里挨家挨户为居民做核酸测试。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
 
-上海居民Catherin You告诉《环球时报》，她居住的静安区以前允许居民在社区外行走，周四（4月21日）升级了限制措施，要求居民不要离开楼栋，在家里待命，只能下楼去买食物和其他生活必须品。
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-**简评:**
-
-中共的封锁政策和防疫没有任何关系，而是对民众的忍耐力的压力测试。按照中共一贯的毫无人性的行为逻辑，在公民家门口中安装报警器，控制公民的行动自由是再自然不过的事情。但中共之恶对于西方人来说当今天仍然是陌生的，西方人也许看到了中共对少数族裔的屠杀，对异议人士的迫害，但他们也许很难想到，中共会对其苦心经营的门面城市的居民下此狠手。封锁前上海向世界展示的，几乎与西方发达城市无异的，先进开放的思维水平、精致体面的生活方式等等，都在暴政之下荡然无存。
-
-中共国就是一个屠宰场，中共从未把人民有当作人对待。它们的户籍制度不让人随便迁徙，计划生育政策不让人正常繁衍后代，现在它们制造并投放病毒，进而借机封锁百姓。曾经的武汉，西安，深圳，如今的上海等等一个个千万人口的城市都曾被中共严酷封锁，并造成无数人道灾难。
-
-中共制造了病毒，甚至可以说它们就是病毒本身。只要共产主义幽灵还在世界存在，它们就会不断给人类带来灾难。没有共产党对全人类都很重要。
-
-新闻链接：[Shanghai Lockdown: Officials Install Door Alarms to Prevent Escapes](https://www.breitbart.com/asia/2022/04/22/shanghai-lockdown-officials-install-door-alarms-to-prevent-escapes/)
-
-*翻译/简评: Victory(木先生) / PR:村民彼得潘*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-93.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

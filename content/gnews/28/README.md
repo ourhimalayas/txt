@@ -2,32 +2,37 @@
 ---
 
 
-## 北京的灾难可能比上海惨烈
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2406788/)
+## 【G时新闻】俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2407270/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-25-at-02.55.02.png)
-4月24日大直播中郭先生再次警告中共目前的暴力防疫和极限施压都是在为即将到来的疫苗灾难做准备。目前已经进行或正在进行的城市包括上海、北京。这两个城市的灾难程度从因果角度来说，也许是报应。
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据《中央社》4月22日报道，俄罗斯民众为抗议普京发动侵略乌克兰战争，已纵火烧毁5个征兵办公室。
 
-中国共产党诞生于上海。中国人和上海人很相似，上海聚集了很多小聪明的人，鼠目寸光，极为短视，经过极限施压的上海，仍然会有大批人去买房，房价根本不会降，中共不灭，上海永远都是繁华大都市的代名词，是无数人挤破头都要去的地方。
+报导称，自俄罗斯入侵乌克兰以来，俄罗斯当地民众相继以火烧征兵办公室的行动来抗议侵略战争。莫尔多维亚（Mordovia）偏远地区的民众近期向征兵处投掷汽油弹摧毁了多台电脑，以及祖博瓦波利亚纳区（Zubova Polyana）的征兵资料库。
 
-中国共产党成长于北京。北京充满了流氓假仗义，北京有钱人的钱几乎都是脏钱，北京人极其傲慢，明明什么都没有，但言语之间个个都是大爷，有人一辈子不刷牙。北京就像是上帝吐掉的一口痰，从地理、生活、人文都肮脏。献祭给上天的首选城市就是北京。
+因此，当地的征兵活动宣告暂停。 除此之外，卢霍维齐（Lukhovitsy）、佛洛尼斯（Voronezh）、斯维尔德洛夫斯克（Sverdlovsk）和伊文诺弗（Ivanovo）的征兵办公室也在开战不久后被当地居民投掷汽油弹攻击。
 
-尽管上海人小聪明，但也就破财，不致于丧命。但北京的傲慢会要人命，郭先生坦言，未来要打仗或者政治动乱，北京会比上海惨烈地多，将会成为死人最多的城市。
+报导指出，被当局逮捕的年轻人表示想以破坏征兵的行动来抗议俄罗斯入侵乌克兰。这些人将面临刑事指控，罪名包括毁损财务、谋杀未遂与恐怖主义等。
 
-撰稿、发布：骄子
+据悉，俄国每年征兵2次，一次在春季，一次在秋季，征兵对象为18至27岁男性，入伍服役1年。本月展开的春季征兵，目标是在7月15日前征召13万4500名新兵。
 
+盖特链接：[https://gettr.com/post/p16v83p2bac](https://gettr.com/post/p16v83p2bac)
+
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-欢迎订阅我们的GNews账号：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,15 +2,19 @@
 ---
 
 
-## 網傳演員趙麗穎捐贈上海的物資被扔進了垃圾車。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407928/)
+## 俄乌战争完以后中共国也会解体，以及中共国解体后俄国人和中国人的不同境遇（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408031/)
 
-作者：东京樱花团小视频组
+**PPT制作：小蜗牛；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：30-09：40-004-1.jpg)
+发布：tianzhihuan
 
-编辑发布：东京樱花团小视频组
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

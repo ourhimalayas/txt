@@ -2,10 +2,18 @@
 ---
 
 
-## 4/24/2022 文贵直播：昨天的中共军机坠毁暴露出共产党根本没有能力打台湾！中共舰载机不靠谱，只能用无人机、导弹、潜水艇来破坏台湾；共军更没有登陆能力，中共就是个纸老虎
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2407949/)
+## 蔡英文的骑墙派政治作风是台湾的悲哀（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408040/)
 
-秘密翻译组-北美组
+**PPT制作：小蜗牛；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：40-09：50-001.jpg)
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

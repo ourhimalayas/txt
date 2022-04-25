@@ -2,18 +2,10 @@
 ---
 
 
-## 普京的身体出了问题（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407918/)
+## 4/24/2022 文贵直播： 从爆料革命开始到现在，爆料革命和无数看似无关的各种事件存在神奇惊人的巧合，而这些看似巧合的背后实际证明了爆料革命情报的准确性，向世人展示了爆料革命得天佑的事实
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2408012/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：10-09：20-003-1.jpg)
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+秘密翻译组-北美组
 
  
 

@@ -2,12 +2,10 @@
 ---
 
 
-## 雪上加霜，杭州爆疫情 。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407892/)
+## 上海浦東新區北蔡鎮，當局說是把陰性的人拉到酒店，結果騙到方艙裡，出不來了。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407967/)
 
 作者：东京樱花团小视频组
-
-23日淩晨，杭州拱墅區發布二級響應，拱墅區全域劃定爲防範區，全城在搶菜。網友： 在杭州的人個個都很緊張，搶菜、搶著做核酸、等著被封 。
 
 
 
