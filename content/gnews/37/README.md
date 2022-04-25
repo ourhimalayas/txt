@@ -2,24 +2,31 @@
 ---
 
 
-## 中共文革式防疫&#8211;北京
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2408318/)
+## 德前总理称无法长期“孤立”俄罗斯
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2408434/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+据《德国之声》4月24日报道，德国前总理施罗德在接受《纽约时报》采访时表示，长远来看，无论从政治还是经济方面，都无法“孤立”像俄罗斯这样的国家。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46-1536x113-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-537.jpg)（图片来自德国之声）
+
+据报道，德国前总理施罗德（Gerhard Schröder）在4月23日发表的《纽约时报》采访中表示，长远来看，无论从政治还是经济方面，都无法”孤立”像俄罗斯这样的国家。他认为，德国工业需要来自俄罗斯的原材料，不仅限于石油和天然气，还包括稀土，这些原材料不能被轻易替代。
+
+在接受这家美国媒体采访时，施罗德还表示反对德国对俄罗斯实施能源禁令。他称，期待德国在俄乌战争结束后恢复与莫斯科的关系。施罗德还强调，德国和欧洲的和平与繁荣将始终取决于与俄罗斯的对话。
+
+对于俄乌战争，施罗德一直认为这是”一个错误”。在他看来，布查（Bucha）发生的大量乌克兰平民被杀事件，俄罗斯士兵对此负有责任，必须进行”调查”。然而，他不相信相关指示来自普京。
+
+这是自两个月前俄罗斯入侵乌克兰以来，施罗德首次接受媒体访问。这位前总理因为与俄罗斯总统普京的密切关系以及他在俄罗斯国有能源企业中的职位而受到大量批评，包括来自他本党内的指责。
+
+在社民党内，一些地方组织已对施罗德提起党令诉讼。德国总理肖尔茨也呼吁施罗德辞去他在俄罗斯国有能源公司的职务。
+
+参考链接：
+[https://reurl.cc/lo0k1j](https://reurl.cc/lo0k1j)
+
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

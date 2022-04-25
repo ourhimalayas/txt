@@ -2,28 +2,19 @@
 ---
 
 
-## 澳大利亚政府对32家宣传机构实施制裁 停止播放俄罗斯国家频道
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2408942/)
+## 商丘坠机说明共产党没有能力登陆战只能靠无人机导弹毁灭性攻击
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2409332/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3139.png)
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-（图片来自原文）
+*发布：陶子*
 
-乌克兰文化和信息政策部长奥列克桑德-特卡琴科（Oleksandr Tkachenko）在其Telegram频道上写道，上个月，我就澳大利亚限制俄罗斯宣传的问题，向澳大利亚的同事保罗-弗莱彻（Paul Fletcher）发出了呼吁。
-
-现在，澳大利亚的公共广播公司已停止播放所有俄罗斯国家的宣传频道。
-
-澳大利亚政府已经对32名宣传者和虚假信息的传播者实施了制裁，其中包括今日俄罗斯、战略文化基金会、InfoRos和NewsFront的高级编辑。
-
-另外，特卡琴科说，澳大利亚的主要平台已经参与了打击虚假信息的斗争，特别是他们已经开始对俄罗斯的宣传内容进行相应的标记和删除。
-
-此外，澳大利亚广播公司正在考虑增加乌克兰新闻在电波中的份额，包括播放乌克兰电视频道的可能性。
-
-新闻来源链接：[https://en.interfax.com.ua/news/general/826272.html](https://en.interfax.com.ua/news/general/826272.html)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

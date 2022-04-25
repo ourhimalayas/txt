@@ -2,34 +2,28 @@
 ---
 
 
-## 中共几周内将士兵、船只和战斗机带到所罗门群岛
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2408543/)
+## 法国大选｜马克龙成功连任法国总统 大批民众上街抗议
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2408896/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3131.png)
+**图/文｜CP 发布时间｜25/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/馬克龍成功連任法國總統-大批民眾上街抗議.jpg)
 
-（图片来自原文）
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-4月19日周二，中国共产党（CCP）与南太平洋岛国的安全协议敲定后，中共警告澳大利亚，中共的军队、船只和飞机将在几周内抵达其所罗门群岛的军事基地——距澳大利亚海岸不到2000公里。
 
-总理斯科特-莫里森警告说，巴布亚新几内亚、斐济、萨摩亚和汤加也面临着与中共达成类似协议的压力。
+法国周日（24日）举行总统大选次轮投票，初步票站调查结果显示，争取连任的总统马克龙（Emmanuel Macron）以约58.55%的得票率，击败得票率约41.45%的极右翼国民联盟候选人马琳勒庞（Marine Le Pen）。今届选举投票率不足72%，是1969年以来的新低；投白票比率达28%，亦是1969年以来最高。
 
-洛伊研究所的东亚高级研究员理查德-麦格雷戈（Richard McGregor）预计，北京将 “以最快的速度 “在澳大利亚联邦选举前建立一个实际的立足点。
+马克龙在艾菲尔铁塔下的战神广场公园发表胜利演说，感谢支持者和法国人民，“从现在开始，我不再是一个阵营的候选人，而是所有人的总统。选举结果反映国民不支持极右翼立场。”另外，他指出，新任期将会运用新手法治理法国。
 
-并警告说，中共的长期目标是在太平洋地区拥有永久的军事存在。在当地派驻军队，建立具体的生活区。估计中共会以给补给船加油为借口建立一个小码头。
+另一边厢，马琳勒庞承认落败，她认为选举结果其实也反映出法国政局已被成功重整，所取得的成绩将带领国民联盟在6月的国会选举中处于有利位置。
 
-澳大利亚战略政策研究所执行主任彼得-詹宁斯（Peter Jennings）认为，中共将通过实际转移资产来迅速巩固这一立足点，预计货机和船只将抵达，并卸下各种东西。
+消息公布后，美国总统拜登、欧盟委员会主席冯德莱恩、欧洲理事会主席米歇尔和欧洲议会议长梅措拉分都在第一时间向马克龙表示祝贺。
 
-同时，詹宁斯先生认为，几十年来，我们高估了我们在太平洋地区的影响力；在促进我们的安全方面投资不足；也没有理解中共的战略意图。该协议的达成，也说明了澳大利亚政策上的严重失败。
+不过，根据法国民众在Twitter上上传的影片显示，马克龙宣布成功连任后，有大批市民上街抗议，以表达他们对选举结果失望与愤怒。当局出动防暴警察驱散，期间更向示威者喷洒催泪瓦斯。
 
-澳大利亚在2020年发布的国防政策设定了三个基本目标：塑造澳大利亚的战略环境；阻止针对利益的行动；以及如需要时，以可信的军事力量作出回应。这三个目标我们都失败了。
+來源｜[NDTV](https://www.ndtv.com/world-news/protests-in-paris-after-emmanuel-macron-wins-french-polls-police-use-teargas-2916745)
 
-这是美国和中共两个大国在某个地区上演的竞争。所罗门群岛离澳大利亚非常近。所罗门群岛一直是美国的好朋友，现在看来，所罗门群岛已经把注意力转移到其他地方，并与中共签署了安全协议。
-
-新闻来源链接：[https://www.dailymail.co.uk/news/article-10735463/China-military-base-Solomon-Islands-weeks-putting-Australia-risk.html](https://www.dailymail.co.uk/news/article-10735463/China-military-base-Solomon-Islands-weeks-putting-Australia-risk.html)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

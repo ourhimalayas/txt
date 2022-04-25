@@ -2,32 +2,24 @@
 ---
 
 
-## 封城蔓延至北京，朝阳区首先进行核酸检测
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2408508/)
+## 普京对外交丧失了兴趣
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2408818/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-복사본.jpg)封城蔓延至北京，朝阳区首先进行核酸检测 网络图片
-据网易新闻暨澎湃新闻4月24日报道，据北京市疾控中心副主任、全国新型冠状病毒肺炎专家组成员庞星火和北京市委宣传部对外新闻处处长田伟介绍，朝阳区被定为高风险地区，将从4月25日起对生活、工作在朝阳的人员进行核酸检测，25日、27日、29日每天检测1次。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-542.jpg)
+零对冲网4月24日报道，普京已经对通过外交途径终止在乌克兰的战争不再抱希望，意味着他只有采用占领乌克兰土地的策略。
 
-惨无人道的封城在上海还没有结束，人间炼狱的模式蔓延到了北京，朝阳市首当其冲被认定为高风险地区。接下来可以想象的，全员核酸检测，强制隔离感染者和疑似感染者，甚至是婴幼儿。没有提前备粮的民众就算饿死、病死、跳楼死、上吊死，也无法动摇中共对老百姓的铁石心肠。与其被隔离、封城而死，莫不如奋起反抗，为自己和下一代争取一个生存的空间。
+这个俄罗斯总统上个月说他已经很认真地考虑了一个和平方案，但在伊斯坦布尔的和平谈判刚开始，乌克兰总统泽连斯基指控了克里姆林宫在马利乌波尔和布查犯下了战争罪行，当时的谈判因而搁浅。
 
-新闻参考链接：[https://www.163.com/dy/article/H5O15RS00530M570.html](https://www.163.com/dy/article/H5O15RS00530M570.html)
+据普京的说法，这个和平谈判的努力已经结束了。他当初想要找到一个方式来显示自己是战胜者，然而，随着俄罗斯的莫斯科号战略导弹舰被击沉后，他感觉到了羞辱，普京对战场的判断来自于莫斯科电视台，导致了他判断的偏差。
 
-* * *
+据参与谈判者透露，普京目前在外交上的新姿态是他认为俄罗斯可以从乌克兰获得更多的领土。 周六，泽连斯基说他希望谈判继续，否则在马利乌波尔的人民会有更多的死亡。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+短期来说，这个和平谈判还无法实现。
 
 
 
-
-
-
+#### 新闻来源： [Putin Has ‘Lost Interest’ In Diplomacy](https://www.zerohedge.com/geopolitical/putin-has-lost-interest-diplomacy)
 
 
 
