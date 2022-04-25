@@ -2,62 +2,37 @@
 ---
 
 
-## 普京政权被指“掩盖”俄武研所火灾死亡人数（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409997/)
+## 普京病成这样了？脸脖浮肿、驼坐、单手紧抓桌沿、脚打拍子
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2410108/)
 
-翻译：噜噜咪
+翻译/编辑：幸运草
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0425-4.jpg)
 
+俄罗斯总统普京与俄国国防部长绍伊古4月21日在克里姆林宫会面的视频，再掀起对普京健康状况的热议。一些观察家认为，从俄罗斯入侵乌克兰以来，普京健康似在迅速恶化。
 
+电视转播画面显示，普京在和绍伊古会谈时，脸部、脖部浮肿，略微含胸驼背、头部前倾地坐在椅上，右手却紧抓桌子，右脚间歇在地上打拍子，神态怪异。
 
+基辅独立报国防记者波诺马连科发推说，“这只是我(的问题)还是普京真的随着战争每一天过去，就看起来更不健康了？”、“现在和2月底之间，我可看出(普京外观)有巨大差异”。
 
+前英国国会议员兼小说家门施转推有该视频链接的推文，并表示，我之前报道过，普京患有帕金森，“这里你可见到他紧抓着桌子，所以看不到他颤抖的手，但他无法让脚停止抖动”。
 
-**接上篇：[普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）](https://gnews.org/zh-hans/2409868/)**
+普京自2月24日下令俄军入侵乌克兰以来，他健康状况就一直遭到质疑。普京最近一次露面时，他的脸和脖子看起来浮肿，让专家臆测他可能是在服用类固醇、或在接受化疗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-553.jpg)四名军事科学家被迫从特维尔燃烧的研究所的窗户跳下
+根据俄罗斯调查新闻机构Proekt在4月1日报道，有医生团队经常去看普京：从2016年至2020年，一名甲状腺癌外科医生共去看了普京35次，另一名耳鼻喉医师去看了普京59次。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/555.jpg)左图：俄罗斯总统普京。右图：俄罗斯特维尔的记者亚历山大·甘伯格。
+据报道，在绍伊古建议下，普京也一直在使用替代疗法，包括浸泡在“装有充满鹿茸血液萃取物的浴缸”中养生。鹿血被认为可以改善心血管系统，并使皮肤恢复活力。
 
-当地受人尊敬的记者亚历山大·甘伯格在SOTA电报频道上报道说，他独家看到了“死亡者”名单。然而，他说，由于俄罗斯的审查制度和“不伤害对我重要的人”，他不能提供进一步的细节。
+美国前总统特朗普的俄罗斯顾问希尔2月告诉Politico，普京可能因为背部问题，在吃高剂量类固醇。
 
-他说：“刑事调查人员正在现场工作，直到星期天，之后他们将公布损失情况。”
+原文出处：
 
-甘伯格补充说：“截至4月22日晚上10点，共有25人。从4月21日开始有7人，4月22日有18人被发现并被确认。最年轻的是一名少校，是1983年出生的男子。最年长的是90或91岁，生于1931年。”
+[Putin’s Health Questioned After Video of Him Gripping Table Circulates](https://www.newsweek.com/vladimir-putin-health-speculation-meeting-video-1699854)
 
-“我不知道他在这个年龄在研究所的工作场所做什么。大多数遇难者都是男性。数字还不是最终的。这是个大悲剧”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-185.jpg)四名军事科学家被迫从燃烧的大楼中跳出窗户
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-162.jpg)2022年4月21日晚，俄罗斯特维尔的一家军事研究所在火灾后的照片。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-116.jpg)俄罗斯一家绝密的军事研究机构爆发一场大火
-
-俄罗斯关键的国防设施如何发生火灾的问题已经立案。一位获救的军事科学家说，他们面对的是吹过长长走廊的有毒黑烟，并补充说：“我的同事感觉比我更糟糕，我仍有意识。”
-
-“他已经站不起来了。我告诉消防员，应该先把他拉出来，但救援人员回答说，无法把他抬起来，需要先救我。”
-
-“不幸的是，这位同事没能被抢救过来，他死了。我在医院里，在第一次注射后才清醒过来。”
-
-一架紧急直升机被派去向燃烧的研究所洒水，该研究所现在已被烧毁。
-
-新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
-
-* * *
-
-素材：peacelv
-审核：文乐
-校对：小东
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
-
+[Bloated Vladimir Putin video heightens theories Russian leader is sick](https://nypost.com/2022/04/22/vladimir-putin-video-heightens-theories-russian-leader-is-sick/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
