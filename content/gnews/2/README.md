@@ -2,11 +2,11 @@
 ---
 
 
-## 前线救援行动被破坏，但是我们绝不妥协（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407774/)
+## 前线救援行动被破坏，但是我们绝不妥协（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407867/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/08：40-08：50-002.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/08：40-08：50-007.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

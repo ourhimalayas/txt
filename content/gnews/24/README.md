@@ -2,22 +2,22 @@
 ---
 
 
-## 中共战机坠毁再次印证文贵先生情报准确性
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2406999/)
+## 西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2406995/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3098.png)
-图片来源：Gettr
+#### 编译 意大利达芬奇农场 小白鸽
 
-据文贵先生4月24日盖特直播报道，昨日，网传一架中共战机坠毁，机上中共和俄罗斯飞行员各一名跳伞后跌落在河南商丘市虞城县镇里固乡的视频。这也再次印证了文贵先生早在去年同天，爆料中共航母舰载机全部雇佣俄军飞行员这一情报的准确性。同时打脸中共此前一直吹嘘的走所谓“军事独立”道路。
+西澳大利亚州州长马克·麦高文(Mark McGowan)办公室证实，他的三个孩子中的一个在感染新冠病毒后住院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-16.41.58.png)图片来源：eventiavversinews.it
+声明中写道：“孩子已经完全接种疫苗了，但由于感染，他的情况很严重。孩子仍在医院接受持续护理。”最近几天，据透露，西澳大利亚州州长马克·麦高文（Mark McGowan）在与家人单独相聚期间，其新冠病毒检测呈阳性。麦高文最初在一名家庭成员感染病毒后检测为阴性，他是密切接触者。州长在一份声明说，他在周四进行了另一次PCR检测，结果呈阳性。“ 考虑到我的一个家庭成员新冠检测呈阳性，这并不奇怪，”他周五说，“根据法令，我的阳性结果将迫使我延长我的隔离期，一直到我能被允许离开家。”
 
-文贵先生还披露，中俄间军事合作不是简单的飞行员培训，而是已不分彼此。坠毁机型为歼17教练版，中共飞行员跳伞后居然吓得一直在哭。外国政府看到中共飞行员跳伞后的状态，非常震惊。他们认为这完全不堪一击，中共根本没能力打台湾。若打台湾就只能是毁灭性的，中共不具备夺岛登陆能力。
+“在此期间，我将继续隔离并在家工作。”州长预计将于5月1日参加在珀斯举行的工党联邦竞选活动。本周，联邦工党领袖安东尼·艾博年（Anthony Albanese)的病毒检测也呈阳性。
 
-文贵先生同时披露，俄军飞行员不愿回国的原因：一是享受中共的声色犬马和优厚待遇；二是争相找机会出卖俄军事情报。中俄间实际是同床不同梦，互毁互害的关系。
+参考链接：
 
-新闻来源：[https://gettr.com/streaming/p16w4d7c25f](https://gettr.com/streaming/p16w4d7c25f)
+[https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/](https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/)
 
-编辑发稿：硫酸羟氯喹64
+编辑、上传：Xiao baige
 
  
 

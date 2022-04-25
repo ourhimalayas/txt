@@ -2,19 +2,21 @@
 ---
 
 
-## 七哥回答关于Nancy Pelosi访台及喜币（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407715/)
+## 中共国，网友电话质问医保局辉瑞是不是特效药，为何会纳入八省市医保，CCP自己都不清楚能不能治covid，一个字就是骗！因为这是CCP和黑暗沼泽勾结坑害中国人！给中国人打毒疫苗，在给中国人吃毒药。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407749/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：50-11：00-007.jpg)
-发布：tianzhihuan
+作者：东京樱花团小视频组
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
+
+
+
+
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

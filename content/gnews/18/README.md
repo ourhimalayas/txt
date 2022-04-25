@@ -2,27 +2,36 @@
 ---
 
 
-## 2022年4月25日《樱花简报》：日本外相林芳正视察参与日美联合训练的“林肯”号航母
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2407425/)
+## 福奇曾与中共病毒所签署允许销毁记录的备忘录
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407423/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425-scaled.jpg)
-2022年4月25日《樱花简报》新闻：
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/npr.jpg)图片来源：NPR
+《门户专家》（Thegatewaypundit）网站4月21日报道：《国家脉搏》的记者娜塔莉·温特斯发现了福奇和武汉病毒学研究所之间的一份备忘录，其中同意在必要时可以销毁记录。
 
-◆日本新增确诊中共病毒4万3966例
-4月24日，日本通报新增中共病毒确诊4万3966例，新增染疫死亡27例。
+加尔维斯顿国家实验室是安东尼·福奇的国家过敏症和传染病研究所的资助下建造的，与武汉病毒学研究所签订了谅解备忘录，授予中共国实验室权利，让美国同行销毁和/或归还秘密文件、材料和设备，而不做任何备份。
 
-◆岸田首相将与三国首脑合作应对乌局势
-日本首相岸田文雄4月23日与图瓦卢，柬埔寨和老挝的总理或首相举行了会谈。在与三国首脑的会谈中，岸田均与对方确认将合作应对乌克兰局势。
+《国家脉搏》此前发现了这家实验室与武汉病毒学研究所的多年合作关系，包括在实验室的生物安全4级(BSL)设施中举办交流项目和培训研究人员。这两家实验室的负责人承认，他们在2018年研究了世界上最危险的病原体。
 
-◆日本外相林芳正视察“林肯”号航母
-4月23日，日本外务大臣林芳正与美驻日大使伊曼纽尔,视察了为参加与日本自卫队联合训练而部署在太平洋上的“亚伯拉罕・林肯”号核动力航空母舰。
+这一消息是在围绕安东尼·福奇资助武汉病毒学研究所蝙蝠冠状病毒研究的争议中传出的。在美国，什么样的政府机构允许记录被销毁，并与中共国签署协议这样做?有人这么做的原因只有一个，那就是为了隐瞒什么。福奇博士想隐瞒什么？
 
-◆北海道游船沉船9人获救
-4月23日下午，一艘在北海道知床半岛近海海域航行的游船向日本海上保安厅请求救援，称该船已经进水。游船上载有26名乘客及船员。目前，搜救活动正在持续。截至24日上午11时，已有9人获救。
+链接：[https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/](https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/)
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+上传/发稿 – 云起时
+撰稿/翻译/听写 – 重生之鹰
+素材/采编 – UCool 优酷
+校对/审核 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
