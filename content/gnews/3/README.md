@@ -2,13 +2,12 @@
 ---
 
 
-## 苏联和中国64是否解体由美国华尔街决定
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408074/)
+## 疫苗灾难是共产党消灭“无用人口”的手段（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408256/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
+**PPT制作：小蜗牛；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-004-1.jpg)
+发布：tianzhihuan
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

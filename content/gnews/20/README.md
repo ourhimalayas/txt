@@ -2,8 +2,8 @@
 ---
 
 
-## 在疫情封控下，某高校一學生喊自己是「我收了帝國主義的錢，把我帶出學校 」
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407891/)
+## 上海硬隔離封樓封到了有外國人居住的小區，被罵後白衛兵撤退。上海匯賢居，這裡的高檔住宅區上大鐵板後，小區內包括外國住戶都在吼叫。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407950/)
 
 作者：东京樱花团小视频组
 

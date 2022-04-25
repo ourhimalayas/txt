@@ -2,11 +2,11 @@
 ---
 
 
-## 世界格局面临重新洗牌（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408086/)
+## 战友提问关于去台湾和国内经济的恶化问题（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408259/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：50-10：00-004-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：50-11：00-002-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

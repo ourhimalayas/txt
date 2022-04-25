@@ -2,11 +2,11 @@
 ---
 
 
-## 世界格局面临重新洗牌（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408073/)
+## 疫苗灾难是共产党消灭“无用人口”的手段（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408254/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：50-10：00-002-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-003-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

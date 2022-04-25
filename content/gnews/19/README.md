@@ -2,8 +2,8 @@
 ---
 
 
-## 網友：上海，住在方艙不想回家，出去沒吃的。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407909/)
+## 上海浦東新區北蔡鎮，當局說是把陰性的人拉到酒店，結果騙到方艙裡，出不來了。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407967/)
 
 作者：东京樱花团小视频组
 

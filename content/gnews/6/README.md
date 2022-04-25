@@ -2,11 +2,11 @@
 ---
 
 
-## 佩洛西想访台，认为是她政治生涯最后的辉煌（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408053/)
+## 疫苗灾难是共产党消灭“无用人口”的手段（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408251/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：40-09：50-005.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-002-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：
