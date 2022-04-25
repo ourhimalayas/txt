@@ -2,80 +2,54 @@
 ---
 
 
-## 普京未能在战场上实现他的巨大野心 &#8211; 拜登总统
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2408423/)
+## 中共主导了美国军事供应链
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2408570/)
 
-**美国国务院： **
-拜登总统@POTUS：我们在国内的团结，我们与盟友和伙伴的团结，以及我们与乌克兰人民的团结，正在向普京发出一个明确无误的信息：他永远不会成功地统治和占领整个乌克兰。 【图中文字：普京未能在战场上实现他的巨大野心 – 拜登总统】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3132.png)
 
+（图片来自原文）
 
+皮尤民意调查发现，自从俄罗斯入侵乌克兰并吸引了全世界的注意力以来，
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw): Our unity at home, our unity with our Allies and partners, and our unity with the Ukrainian people is sending an unmistakable message to Putin: He will never succeed in dominating and occupying all of Ukraine. [pic.twitter.com/V4ltUz5EAW](https://t.co/V4ltUz5EAW)
-> — Department of State (@StateDept) [April 24, 2022](https://twitter.com/StateDept/status/1518031975419838467?ref_src=twsrc%5Etfw)
+美国人在短短两个月内基本上将他们对俄罗斯的看法从竞争对手转变为敌人。
 
+但是，我们不能对俄罗斯的关注成为外交政策的近视看法。还记得伊朗、北朝鲜，以及最重要的中国共产党（CCP）独裁统治的国家——中共国吗？
 
+在俄罗斯入侵的同一天，美国国防部（DoD）发布了一份74页的报告，详细说明了对美国国家安全而言，美国的自卫能力取决于共产主义中共国。这比俄罗斯的威胁更大、更关键。
 
-**拜登总统： **
-在普京对乌克兰发动无端无理的攻击两个月后，基辅仍然屹立不倒。 泽连斯基总统和他的民选政府仍在继续执政。 我们将继续支持乌克兰人保卫家园的战斗。
+一份国防部提出的64条建议，详细说明了美国无法向军队提供所需的几个领域，包括电池生产、微电子和金属铸造。
 
+要知道，电池在许多国防产品中是必不可少的，为从装甲车到夜视镜的任何东西提供动力。国防部指出，94%的氢氧化锂、76%的电解液、70%的碳酸锂和65%的阳极都在中共国生产。大多数电池是在美国以外生产的，但即使是在我们境内生产的，生产商也依赖中共国的部件。
 
+据预测，事情会变得更糟。国防部指出，它预计对电池的依赖将 “在2030年之前急剧加速”，并警告说这种转变–部分是由军方承诺的碳中和所驱动–可能 “无意中扩大 “中共的主导地位。
 
-> Two months after Putin launched an unprovoked and unjustified attack on Ukraine, Kyiv still stands. President Zelenskyy and his democratically-elected government remain in power.
->  
-> We will continue to support Ukrainians in their fight to defend their homeland.
-> — President Biden (@POTUS) [April 24, 2022](https://twitter.com/POTUS/status/1518291602975989762?ref_src=twsrc%5Etfw)
+军队也同样依赖微电子。中共再次主导了这个行业。在美国，没有领先的5纳米技术节点的商业生产商。
 
+中共一直不惜一切代价地努力扩大其对微电子的控制。国防部说，除了对其国内产业的补贴，中共还通过 “购买关键的微电子公司和技术，盗窃知识产权，以及积极的人才招聘 “来扩大其控制。
 
+台湾生产世界上约90%的先进半导体。中共对台湾的入侵将切断美国及世界与台湾相关的联系。
 
-**参议员玛莎·布莱克本： **
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” ——罗纳德·里根总统
+并且，中共在微电子领域的主导地位已经伤害了美国军队。在多个国防部系统中发现了假冒的微电子部件。
 
+甚至，我们的军队对中共国的依赖到了最基本的产品：金属。
 
+军队需要金属铸件，从防护装备到子弹壳，但中共在金属铸件行业中占主导地位，其产量比接下来七个国家的总和还要多，是美国的四倍。
 
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
+我们对中共国的依赖不仅仅限于军事供应。
 
+在国防部报告的同一天，其他五个联邦机构发布了关于供应链的报告。而对中共国的依赖是一个共同的主题。
 
+能源部观察到中共在太阳能发电和稀土矿物开采方面的主导地位–这是现代技术的关键组成部分。而在我们已经面临供应链问题的时候，交通部指出有三家中共国公司制造了95%的干货集装箱。
 
-**众议员迈克尓·麦考尔： **
-自拜登就职以来，已有 250 万人越过了他的开放边界。 第42 条款被取消意味着在接下来的五周内有 50万人(非法入境)。 这是我们南部边境历史上最严重的危机。 【附视频，麦考尔议员接受福克斯新闻采访，谈南部边境危机】
+中共还控制着抗生素和非专利药物供应。虽然俄罗斯的入侵造成了化肥的供应冲击，但中共的风险要高得多。
 
+美国面临的最重要的国家安全问题莫过于我们对中共国的过度依赖。确保美国拥有安全，以及获得货物的机会，美国将供应链从中共国转移出去，应该是其首要任务。
 
+新闻来源链接：[https://townhall.com/columnists/willcoggin/2022/04/22/china-dominates-our-military-supply-chain-n2606163](https://townhall.com/columnists/willcoggin/2022/04/22/china-dominates-our-military-supply-chain-n2606163)
 
-> 2.5 million people have cross over Biden’s open border since his inauguration. Title 42 being lifted means 500,000 over the next five weeks. This is the worst crisis in the history of our southern border. [pic.twitter.com/m5hWHh1D8F](https://t.co/m5hWHh1D8F)
-> — Michael McCaul (@RepMcCaul) [April 24, 2022](https://twitter.com/RepMcCaul/status/1518260287991959553?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-[#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 正在对美国的青年——包括在我的家乡田纳西州——发动芬太尼和非法毒品战争，而拜登政府为了他们的政治利益，让我们的南部边境完全开放，从而实现了(中共的)这一目标。
-
-
-
-> The Chinese Communist Party is waging a fentanyl and illicit drug war on America’s youth—including in my home state of Tennessee—and the Biden Admin is enabling it by leaving our southern border wide open for their political gain.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 25, 2022](https://twitter.com/SenatorHagerty/status/1518388067488444416?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·华尔兹：** 
-我很难相信这是一个意外…… 【转推称：尽管台湾不是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的一部分，但拜登的商务部长称台湾为“中华台北”。这是对热爱自由的台湾人民的一记耳光，也是在给 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 开绿灯。】
-
-
-
-> I have a hard time believing this was an accident… [https://t.co/1DPZ0RFLP6](https://t.co/1DPZ0RFLP6)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 25, 2022](https://twitter.com/michaelgwaltz/status/1518415887098945538?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥： **
-“你是我藏身之处，你必保护我脱离患难，以得救的欢呼四面环绕我。” 诗篇 第32章 7节 [#主日圣经](https://gettr.com/hashtag/%23%E4%B8%BB%E6%97%A5%E5%9C%A3%E7%BB%8F) [#SundayScripture](https://gettr.com/hashtag/%23SundayScripture)
-
-
-
-> “You are my hiding place; You shall preserve me from trouble; You shall surround me with songs of deliverance.” Psalm 32:7[#SundayScripture](https://twitter.com/hashtag/SundayScripture?src=hash&amp;ref_src=twsrc%5Etfw) ✝️
-> — Mike Pompeo (@mikepompeo) [April 24, 2022](https://twitter.com/mikepompeo/status/1518261230674321408?ref_src=twsrc%5Etfw)
-
-
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 
