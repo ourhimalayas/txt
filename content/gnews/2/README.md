@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大SunWing航班因遭骇客攻击而被全面延误
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412879/)
+## 过半加拿大人正面临经济困难
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412931/)
 
 ##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509121501.png)图片来源：CTV新闻
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509136291.png)图片来源：CTV新闻
 
 
-据【CBC新闻】4月19日报道，由于所使用的第三方服务器提供商遭到网络入侵，导致加拿大[SunWing航空公司]当天有大批航班被延误，并因此造成数千名乘客滞留机场。
+据加拿大自媒体【真北方】4月19日报道，最新民调显示，超过半数以上的加拿大人正在努力解决个人财务问题，部分人甚至已接近破产的边缘。
 
-报道称，从两天前开始，[SunWing公司]几乎所有航班都受到了影响。此次网络攻击已导致其客户操作系统无法工作，值机人员只能人工处理航班信息并手动填写登机牌。故障还造成该公司被迫连续停飞四天航班，数千名乘客滞留在多伦多皮尔逊国际机场，另有部分乘客滞留国外无法按时返回加拿大。
+在该项于4月8日至11日进行的公共研究调查结果中，约51% 的受访者表示他们目前的经济状况出现了问题，而其中有15%的人则表示生活非常艰难。尽管加拿大目前仍未摆脱疫情的影响，但经济情况的恶化已超过新冠病毒灾难而成为国民最关心的问题。调查发现，37% 的受访者将生活成本其列为首要问题，通货膨胀问题紧随其后，达到 13%。
 
-遭受攻击的 Airline Choice 是一家总部位于美国的服务器提供商，并与多家航空公司有业务往来，因此，本次网路攻击也波及到全球多家航空公司。而[SunWing]是唯一受到影响的加拿大航空公司。
+此外，据加拿大统计局的最新数据，目前6%的通胀率已达到30年来的最高点，并对加拿大人造成了沉重打击。生活成本因此已成为加拿大保守党领导人竞选的核心问题。
 
-原文链接：[https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728](https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728)
+原文链接：[https://tnc.news/2022/04/19/over-half-of-canadians-struggling-with-financial-difficulties/](https://tnc.news/2022/04/19/over-half-of-canadians-struggling-with-financial-difficulties/)
 
 上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【活力人生】
-素材/采编 -【活力人生】
+撰稿/翻译/听写 -【重生之鹰】
+素材/采编 -【文莱】
 校对/审核 -【硫酸羟氯喹64】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
