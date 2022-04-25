@@ -2,13 +2,12 @@
 ---
 
 
-## 乌克兰Medyka营地被蓄意攻击，我们一定要做好取证，告对方种族歧视
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407447/)
+## 战友提问关于去台湾和国内经济的恶化问题（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407518/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：50-11：00-003-1.jpg)
+发布：tianzhihuan
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

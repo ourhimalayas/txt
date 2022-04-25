@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 12:59 AM (UTC)`
+
+2022.04.24 晚  新中国联邦 | 新闻访谈  中共管制社交媒体，禁言删帖，给老百姓洗脑，对各国政府挑拨离间，虚假宣传
+![img](https://media.gettr.com/group38/origin/2022/04/25/00/00d291aa-edd1-7afb-b042-0dd35aa117e2/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/25/2022 12:29 AM (UTC)`
 
 2022.04.24 晚  新中国联邦 | 新闻   习近平被身边的人忽悠，相信打台湾能解决一切问题；普京示好西方，或迫使习近平毁灭台湾
@@ -148,13 +155,6 @@
 
  4月24号：尊敬的战友们好……今天的直播多长时间好？
 ![img](https://media.gettr.com/group46/getter/2022/04/24/11/1fc23bbe-b6c1-d84a-ecbd-1c436f2b1292/out.jpg)
-
----
-
-`@miles 4/24/2022 9:48 AM (UTC)`
-
- 4月24号：尊敬的战友们好……中国人仅仅用了5年时间就从全球的买买买……到今天的人间地狱的生活，这是什么原因造成的呢？
-![img](https://media.gettr.com/group47/getter/2022/04/24/09/1d053861-28d0-bc8d-2648-0521e642d162/out.jpg)
 
 ---
 
