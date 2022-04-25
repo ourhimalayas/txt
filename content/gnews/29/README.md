@@ -2,82 +2,30 @@
 ---
 
 
-## 疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居（续）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2409732/)
+## 俄乌战争｜英国食用油短缺 当地超市推限购令 欧洲油品价格急升
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2409992/)
 
-[![NFSC News](https://assets.gnews.org/wp-content/uploads/ultimatemember/22638/profile_photo-190x190.jpeg?1650834842)](https://gnews.org/zh-hans/author/mos2/)
-[NFSC News](https://gnews.org/zh-hans/author/mos2/)
+**图/文｜CP **
+**发布时间｜25/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜英國食用油短缺-當地超市推限購令-歐洲油品價格急升.jpg)
 
-作者：纽约香草山佛教部—无尽夏
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-*因为后人，而不是我们自己，将创作我们这个时代的传说故事。  ——约翰·托尔金*
-
-【内容摘要：这是上篇[《疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居》](https://gnews.org/zh-hans/2408726/)的评论截图，篇篇都是上海市民的心声，感人至深。**】**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图01.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图02.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图03.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图04.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图05.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图06.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图07.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图08.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图09.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图10.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图11.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图12.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图13.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图14.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图15.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图16.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图17.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图18.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图19.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图20.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图21.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图22.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图23.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图24.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图25.jpg)
-原创：每天被邻居投喂的  来源：[上海去哪吃](https://mp.weixin.qq.com/s/1bZ3HOnf9hq71YWE0lpssg)*2022-04-17*
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+俄乌战争持续扰乱全球供应链稳定，日前，英国食用油已出现严重短缺，多间大型连锁超市都相机推出不同程度的限购措施，以保证大部分民众得到必要用油保障。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402%E5%9B%9B%E6%9C%88%E6%9C%88%E5%8E%86-2.png)
+由于英国超市销售的大部分葵花籽油来自乌克兰，受俄罗斯入侵乌克兰所累，导致供应中断造成货品短缺和对其他食用油需求的增加，一些超市不得不对包括葵花籽油、橄榄油和菜籽油在内油品作出购买限制。
 
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
+英国最大型的连锁超市 Tesco 强调，存货仍然充足，惟仍限制每位顾客一次购买3瓶食用油。据其超市的网页显示，个别食用油已经显示缺货，另外，Waitrose和Morrisons等大型超市亦有限制每位顾客一次购买2瓶食用油的措施。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国零售联盟表示，超市采取的限制措施是临时的，是为了保证所有人都能买到上述油品。不过，根据英国国家统计局4月13日公布的数据显示，当地食用油和脂肪的价格上涨了7%，比一年前的价格，高出近四分之一。而欧洲7成的葵花籽油都来自乌克兰，但战事令供应中断，带动食用油价格急升。
+
+來源｜[RTE](https://www.rte.ie/news/uk/2022/0423/1293892-uk-supermarkets-cooking-oil/)
+
+* * *
+
+**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

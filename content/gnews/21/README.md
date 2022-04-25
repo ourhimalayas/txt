@@ -2,20 +2,25 @@
 ---
 
 
-## 共产党打台湾靠什么，只是纸老虎
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410120/)
+## 有声｜法国马克龙连任 得票率反映法国政治现新格局
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2410177/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**By:秘翻新闻**
 
-*发布：陶子*
+**2022-04-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-25-165901.jpg)
+综合外媒4月25日报道，法国今天举行的总统大选第二轮投票结果出炉，马克龙成为20年来首位连任的法国总统。值得注意的是，勒庞的41.8%的得票率创下右派在法国总统大选中支持度的新高。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+从得票率上看，比起上次大选，马克龙与勒庞得票率差距缩小很多。上次马克龙领先30多个百分点，这次则缩小至16.2%。这次得票率差距的大幅缩小，反映出法国内部政治的张裂和新格局的形成。此外，由于这次马克龙的声势有所降低，预料马克龙在六月议会选举时，或许并不能如之前一样拿下多数席位。
 
+之前郭先生曾在直播中表示，法国这次要左到底，因此法国需要一场大的变革。
+
+编译：明澈
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-5.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
