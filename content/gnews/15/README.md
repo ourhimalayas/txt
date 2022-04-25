@@ -2,28 +2,45 @@
 ---
 
 
-## 法国大选｜马克龙成功连任法国总统 大批民众上街抗议
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2408896/)
+## 俄罗斯在乌克兰的失败可能会促使中共入侵台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409193/)
 
-**图/文｜CP 发布时间｜25/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/馬克龍成功連任法國總統-大批民眾上街抗議.jpg)
+#### **【雅典娜观察】和您一起洞察世界**
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+#### **翻译/编辑：文泓**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-138.png)图片来源：New Youk Post & 雅典娜设计组
 
 
-法国周日（24日）举行总统大选次轮投票，初步票站调查结果显示，争取连任的总统马克龙（Emmanuel Macron）以约58.55%的得票率，击败得票率约41.45%的极右翼国民联盟候选人马琳勒庞（Marine Le Pen）。今届选举投票率不足72%，是1969年以来的新低；投白票比率达28%，亦是1969年以来最高。
+北京正在从莫斯科在乌克兰的失败中吸取教训，但是其结果不是西方想要的。
 
-马克龙在艾菲尔铁塔下的战神广场公园发表胜利演说，感谢支持者和法国人民，“从现在开始，我不再是一个阵营的候选人，而是所有人的总统。选举结果反映国民不支持极右翼立场。”另外，他指出，新任期将会运用新手法治理法国。
+普京入侵乌克兰不是一个“意外”，西方已监测，一年多前俄罗斯与白俄罗斯的军演结束后，军事装备就留在当地。而习近平的“伟大复兴”也押宝台湾。
 
-另一边厢，马琳勒庞承认落败，她认为选举结果其实也反映出法国政局已被成功重整，所取得的成绩将带领国民联盟在6月的国会选举中处于有利位置。
+当西方团结一致对俄罗斯实施严厉制裁并在物质上支持乌克兰，这让莫斯科和北京感到震惊。国际战略分析家认为俄军的严重失败并不影响中共的军事决策。
 
-消息公布后，美国总统拜登、欧盟委员会主席冯德莱恩、欧洲理事会主席米歇尔和欧洲议会议长梅措拉分都在第一时间向马克龙表示祝贺。
+“中共使用武力（犯台）的意愿是一个政治决定，而不仅是由军事能力评估所决定，”战略与国际研究中心(CSIS)分析师林邦尼和退休的美国情报官员约翰·卡尔弗认为。
 
-不过，根据法国民众在Twitter上上传的影片显示，马克龙宣布成功连任后，有大批市民上街抗议，以表达他们对选举结果失望与愤怒。当局出动防暴警察驱散，期间更向示威者喷洒催泪瓦斯。
+**即使中** **共** **没有信心成功地对台湾进行两栖入侵，** **但** **北京** **坚信** **，不使用武力的地缘政治和内部成本** **已** **超过了** **攻台** **军事失败的风险。**
 
-來源｜[NDTV](https://www.ndtv.com/world-news/protests-in-paris-after-emmanuel-macron-wins-french-polls-police-use-teargas-2916745)
+在入侵乌克兰问题上，北京保持态度模糊，但中共对台湾的态度始终没有改变。中共继续警告国际贸易、官方联系和国际承认方面的所谓台湾“红线”。
 
-**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+北京的军力强大，压倒弱小邻国的能力比俄罗斯强得多。澳大利亚专家认为，中共对台湾的军事入侵在军事上将更加复杂，将美国及其盟国卷入台湾冲突的风险也更高。它可能采取军事恐吓和施压的形式——例如夺取岛屿、封锁港口和扰乱渔船队。
+
+中共国似乎有信心应对任何国际反弹，他们认为，对中国实施经济制裁可能会对全球贸易、供应链和金融机构造成重大损害，而且对内加大对自力更生措施和替代系统的投资。
+
+十多年来，中共的“防火墙”将其人民与世界其他地区隔离开来。他们看到和听到的一切都是为了适应共产党的统治。
+
+北京认为台湾已是中共国的一部分，它只是一个任性的、不听话的、亲西方的孤儿。
+
+参考链接：[How Russia’s war could be motivating China to invade Taiwan | news.com.au — Australia’s leading news site](https://www.news.com.au/technology/innovation/military/russias-war-could-be-motivating-china-to-invade-taiwan/news-story/84934b802039b8a9b08b0d2c0289db28)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
