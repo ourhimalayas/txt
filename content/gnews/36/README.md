@@ -2,27 +2,38 @@
 ---
 
 
-## 北京难逃封城灾难！
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2410423/)
+## 中共国大部分地区将迎强降雨等灾害性天气
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2411206/)
 
-编译： 波士顿五月花—-思澈
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-25-at-21.28.19-1.png)
+当地时间4月25日，中共国气象中心发布灾难天气预警。4月24日至27日，中共黄河以南地区将迎来今年最大范围对流天气，湖南、湖北、贵州等地将会有8至9级雷暴大风、冰雹。
 
-北京最大的区也是在京最多外国人居住的朝阳区所有居民自周一起必须每两天接受三次核酸测试，该区有些超市货架已经售空。
+从目前报道和社交媒体小视屏来看，贵州、河南、上海、广西、福建已经出现灾害性天气，包括冰雹、大风，强降雨等，地上的冰雹有鸡蛋大。河南等地暴雨如注，居民家中和一些街道已经出现大量积水，上海地区的防疫人员都被大风刮走，上海还接连发布灾害天气预警，预计未来将有11级大风雷暴、冰雹，局部地区还伴随龙卷风等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1E9C9D40-B4AB-4BF3-A049-1AA9F940C299.jpeg)
+据中共方面的报道，今年江南华南地区雨量较常年同期偏多一倍。西南地区东部、江汉、江南、华南北部较常年雨量偏多3至6成。
 
-北京当局警告说，病毒已经在这个拥有2100万人口的大都市中传播了一个星期而未被发现，因此可能会发现更多的病例。
+2022是中国传统壬寅水年，郭先生在2022年初即提到中共国今年将会水灾频繁。目前不到5月份，尚未进入雨季，中共国灾难性天气已经提前到来。
 
-周末已经开始封锁了个别公寓楼，北京当局还在周一对位于东部的朝阳区的几个街区进行了封锁。居民暂时不允许离开该地区。那里的餐馆和娱乐场所也被关闭。中共卫生部一位专家说：”当朝阳和其他地区的测试结果出来时，它将使我们更好地了解北京的整体疫情情况，进一步的措施将相应跟进”。朝阳区是外国使馆的所在地，也是大多数外国人在北京居住的地方。
+上海弧状积雨云
 
-郭文贵先生已经警告，北京一定封城而且封城造成的灾难会比上海还要严重。
+[https://www.thepaper.cn/newsDetail\_forward\_17793829](https://www.thepaper.cn/newsDetail_forward_17793829)
 
-素材来源：[https://www.radioneandertal.de/artikel/massentests-auch-in-peking-angst-vor-lockdown-1289038.html](https://www.radioneandertal.de/artikel/massentests-auch-in-peking-angst-vor-lockdown-1289038.html)
+[https://gettr.com/post/p17011e6b0d](https://gettr.com/post/p17011e6b0d)
 
-*发布：思澈*
+撰稿、发布：骄子
 
+* * *
 
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
