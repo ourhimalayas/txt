@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 11:35 PM (UTC)`
+
+4/24/2022 Miles Guo: The Russia-Ukraine war has turned Russia’s image of a warrior nation into a nation of cowards and frauds. Russia is bound to disintegrate, with numerous people emigrating abroad. After the dissolution of Communist China, very few countries in the world will be willing to take in Chinese immigrants. Most of the overseas Chinese  who are with the ruling CCP families will be deported back to China, except those who were granted political asylum and the citizens of the New Federal State of China.<br/><br/>4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外；中共国解体后将不会有很多国家接受中国移民，除了拿了政庇的人和新中国联邦人，有共产党背景的海外华人将被遣返<br/>
+![img](https://media.gettr.com/group28/getter/2022/04/25/23/f0001528-b2e7-c4fb-c07b-c156492af578/out.jpg)
+
+---
+
+`@miles 4/25/2022 11:28 PM (UTC)`
+
+4/24/2022 Miles Guo: After the demise of the CCP, the Chinese people can neither survive in their own land nor be accepted by the world. The existence of the CCP will only accelerate the advent of the era of cannibalism. Too many Chinese people are full of indifference, ignorance, selfishness, stupidity, and cowardice, and they indulge in fantasies. All these are rooted in their lack of faith.<br/><br/>4/24/2022 文贵直播：中共灭亡后的中国人既无法在自己的土地上生存，又不被世界所接受；中共的存在只会加速人吃人时代的到来；太多中国人充满麻木、无知、自私、愚昧、懦弱并沉浸在幻想中，这一切的根源都在于没有信仰<br/>
+![img](https://media.gettr.com/group6/getter/2022/04/25/23/57b232a4-624f-4c3b-8572-4699709d23be/out.jpg)
+
+---
+
 `@miles 4/25/2022 11:19 PM (UTC)`
 
 4/24/2022 Miles Guo: Nancy Pelosi has the incentive to visit Taiwan while she is still in power, and her visit will aid the midterm elections. Nancy Pelosi certainly can see through the CCP's trick of having her postpone the visit. There is a high chance that it will be a sudden and unanticipated visit!<br/><br/>4/24/2022 文贵直播: 出访台湾既是因为南希. 佩洛西（Nancy Pelosi）有这个权力，也是为了在中期大选中拉选票。南希.佩洛西看透了中共要她推迟出访的诡计，所以很大概率会突访台湾！<br/><br/>
@@ -139,20 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 【Ukraine Rescue】4/24/2022 The French mother and her son are volunteering in Medyka. Poland. They speak fluent Mandarin. The French mother used to work at the French Embassy in Beijing for 15 years. They love China and the Chinese people very much. Our fellow fighter Nicole told them that the mission of the New Federal State of China is to take down the evil Chinese Communist Party. The new Chinese people love freedom and peace. <br/><br/>【乌克兰救援】4/24/2022  这位法国母亲和她的儿子正在波兰的梅迪卡做志愿者，他们会说一口流利的普通话，这位法国母亲曾在法国驻北京大使馆工作了15年，他们非常热爱中国和中国人民。我们的战友妮可告诉他们，中国新联邦国的使命是摧毁邪恶的中国共产党，新中国人民热爱自由与和平。
 ![img](https://media.gettr.com/group38/getter/2022/04/25/13/a85f45b1-c581-ecdc-4a54-850c9e4ba6df/out.jpg)
-
----
-
-`@miles 4/25/2022 1:13 PM (UTC)`
-
-2022.04.25早  新中国联邦 | 新闻访谈   美国救援义工赞扬新中国联邦人正在改变历史 美国务卿和防长访问基辅: 追加军援
-![img](https://media.gettr.com/group36/origin/2022/04/25/13/edaa415e-67a2-c5cd-a4ec-fd74075709c1/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/25/2022 12:33 PM (UTC)`
-
-2022.04.25 早  新中国联邦 | 新闻   梅迪卡新中国联邦广告牌希望之光重现；美国SSF救援组织义工称赞新中国联邦
-![img](https://media.gettr.com/group33/origin/2022/04/25/12/8317ce98-b971-d56b-0faa-b4a504527153/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
