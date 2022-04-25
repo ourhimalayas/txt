@@ -2,16 +2,35 @@
 ---
 
 
-## 自己的福和祸就是自己造成的
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2412551/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
 
-听写：叮叮         编辑：文宝
+作者：香草山翻译部
 
-兄弟姐妹们，这两首歌真的了不起，我不知道你们是怎么感受的，中国人对好事忘得快，对坏事、对痛苦忘得也快，但对这个歌声真不应该忘记。这两首歌的打榜奇迹和唐平老师、威廉王老师，做出这样的歌曲实在太了不起了。还有我们其他几个战友不方便说的，在背后的帮忙。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
 
-所以这一次从这个打歌上看到了新中国联邦在世界上的新的影响力、新的力量，也能看出来我们真的是得到上帝的帮助，一切真的是奇迹。就像铲共得到兰博基尼，而且来自王雁平的手。另外一个就是我们战友们在得到的奖，好几个都是应该得奖，就像做局一样做出来的那么个奖一样，应该的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
 
-兄弟姐妹们，一定今天我的直播叫大家相信：什么事情都不是偶然，永远不要怪罪别人，自己的福和祸就是自己造成的，跟别人没关系。就包括中国人今天这么苦难，你不要为他忧伤，不要为他悲伤，因为那都是他们自己作来的，我这么想。而且要学会接受、放下，更重要的学会感恩。我更加感恩的事情，我每天早上醒来，想想上海、广州，想想长春，我就好好地工作。我再想想乌克兰战场上的人，还有比我们再幸福的吗？想想香港、想想台湾的恐惧，我们还有什么怕的？我们有啥不感恩的？对吧？我就这种想法，所以说你嫂子老说，你怎么就不疲劳呢？我说想想那些在战场上的人，想想在国内的人，我有什么资格疲劳？我有什么资格说我辛苦？没有资格说。
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
+[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
 
  
 

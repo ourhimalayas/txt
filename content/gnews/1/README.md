@@ -2,10 +2,16 @@
 ---
 
 
-## 4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2412801/)
+## 五月花简报（04/25/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2412819/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5C6E8424-3C8B-46F4-B3F2-F06BD71E969D.jpeg)
+
+*发布：思澈*
+
+
 
  
 

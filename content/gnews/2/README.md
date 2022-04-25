@@ -2,31 +2,10 @@
 ---
 
 
-## 英国向乌克兰派遣特种空勤部队
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2412794/)
+## 4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2412801/)
 
-作者：Naughty(文行)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
-
-当地时间4月23日，外媒报道称，英国特种空勤部队（SAS）的专家，已被部署到乌克兰西部。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-58.jpg)
-特种空勤部队，简称SAS，是一支精锐的军事力量，训练有素，可以进行特种作战、监视和反恐。据内部人士透露，大约20名SAS成员已被派往利沃夫地区开展活动。
-
-英方表示，今年早些时候向乌克兰派遣了军事训练员，指导当地部队使用反坦克武器，但英国政府在俄罗斯入侵前一周已经撤出了，除那些需要保护英国大使的部队以外的，所有部队。
-
-目前尚不清楚SAS参与乌克兰的哪些军事活动。分析人士普遍认为，这次英国派遣空军特种部队的意义重大。
-
-参考链接：[Russia investigates media report on presence of British SAS special forces in Ukraine](https://www.reuters.com/world/russia-investigates-media-report-presence-british-sas-special-forces-ukraine-2022-04-23/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-总编：文真
-编辑：Jack Li文阳
-审核：文真
-校正/发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+秘密翻译组-北美组
 
  
 

@@ -2,35 +2,14 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
+## 战友提供的信息会发挥到极致
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2412650/)
 
-作者：香草山翻译部
+听写：叮叮         编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+当习近平在上海和广州、吉林、郑州，当他开始核糖核酸进行隔离，特别当我看到他把东风导弹FK3送到塞尔维亚，更重要的事情，对美国的插屁眼核糖核酸，叫美国授权撤离，再次地拒绝是吧，这种情况下，咱们的战略就要变了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
-[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+我很多话不能说，我再次地在这里向所有的国内的战友们说一下啊，近期内，上海、长春、广州，包括共产党的军事行动的那些机密的信息，都是你们冒着生命，以生命为代价给七哥的，七哥不会忘！新中国联邦不会忘！天知地知七哥会知道，就像我给你们每个人说的话一样，你交给七哥的信息七哥会尽大可能地发挥到灭共的事业上去，我尽可能地分享到美国和欧洲以及日本的这些国家政府身上去，让他们提前预知共产党的这些行动，减少伤亡和伤害。特别像日本政府收到我们有些战友送的情报非常之惊讶，说：郭先生，完全超出你当初给我们说的价值，会拯救很多日本人。就像我们给欧洲国家提供的情报来自战友一样，欧洲说我们会减少很多经济损失，未来一旦到达那个战争级别的时候，我们会少死很多人。我们也会给美国政府提供很多信息。你们每个人的名字七哥都不会忘掉，也不会不告诉这些国家政府。
 
  
 
