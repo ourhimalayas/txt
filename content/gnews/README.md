@@ -15,46 +15,46 @@
 
 ---
 
-### [雅典娜时报-第273期](/content/gnews/1/README.md)
+### [绿色和平组织在挪威海域拦截了一艘俄罗斯油轮](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [雅典娜时报-第274期](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/2/README.md)
+### [雅典娜时报-第273期](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/4/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [【G时新闻】俄乌战争后，中俄人民的结局将截然不同](/content/gnews/3/README.md)
+### [【G时新闻】俄乌战争后，中俄人民的结局将截然不同](/content/gnews/5/README.md)
  ` G-时新闻`
 
-### [加拿大官员退出G20会议以抗议俄罗斯参与](/content/gnews/4/README.md)
+### [加拿大官员退出G20会议以抗议俄罗斯参与](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/5/README.md)
+### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [【G叻睇真D】渥太华警方报告显示 ：大卡车运动期间对警方的投诉大部分被驳回](/content/gnews/6/README.md)
+### [【G叻睇真D】渥太华警方报告显示 ：大卡车运动期间对警方的投诉大部分被驳回](/content/gnews/8/README.md)
  ` G-时新闻`
 
-### [4/24/2022 文贵直播：中共灭亡后的中国人既无法在自己的土地上生存，又不被世界所接受；中共的存在只会加速人吃人时代的到来](/content/gnews/7/README.md)
+### [4/24/2022 文贵直播：中共灭亡后的中国人既无法在自己的土地上生存，又不被世界所接受；中共的存在只会加速人吃人时代的到来](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [战友日常之-为台祝祷](/content/gnews/8/README.md)
- ` MOS Designer香草山设计部`
-
-### [4/24/2022 文贵直播: 出访台湾既是因为Nancy Pelosi有这个权力，也是为了在中期大选中拉选票。Nancy Pelosi看透了中共要她推迟出访的诡计，所以很大概率会突访台湾](/content/gnews/9/README.md)
+### [4/24/2022 文贵直播: 出访台湾既是因为Nancy Pelosi有这个权力，也是为了在中期大选中拉选票。Nancy Pelosi看透了中共要她推迟出访的诡计，所以很大概率会突访台湾](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友](/content/gnews/10/README.md)
+### [4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [【G时新闻】美国务卿将访问基辅 讨论武器提供等问题](/content/gnews/11/README.md)
+### [【G时新闻】美国务卿将访问基辅 讨论武器提供等问题](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [2018年9月22日 郭文贵先生直播全文字版（合集）](/content/gnews/12/README.md)
+### [2018年9月22日 郭文贵先生直播全文字版（合集）](/content/gnews/13/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [五至十一岁儿童入境加拿大将不再需中共病毒测试](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [BC省发生纵火案，乌克兰神父一家险葬身火海](/content/gnews/14/README.md)
+### [五至十一岁儿童入境加拿大将不再需中共病毒测试](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [樱花时政┃北京11区开展核酸检测，或为大封控做准备](/content/gnews/15/README.md)

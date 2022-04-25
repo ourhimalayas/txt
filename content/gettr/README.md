@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 11:43 PM (UTC)`
+
+ 4月25号：尊敬的战友们好·应战友们的要求……录一段SNOW的视频给大家😻SNOW 刚刚洗完澡😘太可爱了……
+![img](https://media.gettr.com/group11/getter/2022/04/25/23/46975459-ef9c-1dd0-7834-b5fbe7781540/out.jpg)
+
+---
+
+`@miles 4/25/2022 11:41 PM (UTC)`
+
+2022.04.25 NFSC fringe episode 176<br/>中文同传：https://gettr.com/streaming/p172ulnba89
+![img](https://media.gettr.com/group28/origin/2022/03/23/23/34c0cd2b-d861-56cb-a06f-9bed9d4e13aa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 11:35 PM (UTC)`
 
 4/24/2022 Miles Guo: The Russia-Ukraine war has turned Russia’s image of a warrior nation into a nation of cowards and frauds. Russia is bound to disintegrate, with numerous people emigrating abroad. After the dissolution of Communist China, very few countries in the world will be willing to take in Chinese immigrants. Most of the overseas Chinese  who are with the ruling CCP families will be deported back to China, except those who were granted political asylum and the citizens of the New Federal State of China.<br/><br/>4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外；中共国解体后将不会有很多国家接受中国移民，除了拿了政庇的人和新中国联邦人，有共产党背景的海外华人将被遣返<br/>
@@ -139,20 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 【Ukraine Rescue】 04/24/22 A volunteer from California is impressed to see our Communist extermination vest and after taking pictures she comments: This idea of you advocating freedom of speech and thought is amazing! You are the largest rescue group here and you are making a big change! I have a lot of respect!<br/><br/>【乌克兰救援】 04/24/22 来自美国加州的志愿者看到我们的灭共马甲无比钦佩，并在拍照后表示：你们这种倡导言论和思想自由的理念非常了不起！你们是这里最大的救援团体，你们正在进行着一个伟大的转变，太佩服你们了！
 ![img](https://media.gettr.com/group20/getter/2022/04/25/14/fa0b9658-e225-52e2-fd7f-9025b033f8e1/out.jpg)
-
----
-
-`@miles 4/25/2022 1:54 PM (UTC)`
-
-【Ukraine Rescue】04/24/2022 Volunteers from all over the world love the Billboard of the NFSC and ROLF, they hope to see the slogans of TAKE DOWN THE CCP in all kinds of languages on it.<br/><br/>【乌克兰救援】04/24/2022 来自世界各地的救援义工都喜欢法治基金新中国联邦的擎天柱，希望有各种语言的新中国联邦灭共标语出现在上面。<br/><br/>
-![img](https://media.gettr.com/group43/getter/2022/04/25/13/2340c9bc-ed67-87a1-c978-f37228c7cac1/out.jpg)
-
----
-
-`@miles 4/25/2022 1:22 PM (UTC)`
-
-【Ukraine Rescue】4/24/2022 The French mother and her son are volunteering in Medyka. Poland. They speak fluent Mandarin. The French mother used to work at the French Embassy in Beijing for 15 years. They love China and the Chinese people very much. Our fellow fighter Nicole told them that the mission of the New Federal State of China is to take down the evil Chinese Communist Party. The new Chinese people love freedom and peace. <br/><br/>【乌克兰救援】4/24/2022  这位法国母亲和她的儿子正在波兰的梅迪卡做志愿者，他们会说一口流利的普通话，这位法国母亲曾在法国驻北京大使馆工作了15年，他们非常热爱中国和中国人民。我们的战友妮可告诉他们，中国新联邦国的使命是摧毁邪恶的中国共产党，新中国人民热爱自由与和平。
-![img](https://media.gettr.com/group38/getter/2022/04/25/13/a85f45b1-c581-ecdc-4a54-850c9e4ba6df/out.jpg)
 
 ---
 
