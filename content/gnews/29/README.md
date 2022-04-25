@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党新时代的国家管理模式-只要有人上街一闹就封城，共产党像对待猪一样对待中国人民
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408047/)
+## 普大帝脸上塌陷因怕不安全不能再打的瑞士美容针
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408089/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

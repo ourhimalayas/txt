@@ -2,46 +2,42 @@
 ---
 
 
-## 推特在股东压力下寻求与马斯克达成交易
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2407828/)
+## 日本外相在访问美国航母时承诺加强军事力量
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2407991/)
 
-翻译：多伦多蓝莲花- 灭共文明
+![FILE PHOTO - Polish and Japanese foreign ministers attend a news conference in Warsaw](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/MGUK3PJXN5O55LOLESNV5J47SQ.jpg)日本外相林义政于 2022 年 4 月 4 日在波兰华沙举行的新闻发布会上发表讲话。 来自 路透社
+路透社于4月23日报道，日本外相在周六访问在亚洲水域巡逻的美国林肯号航空母舰时承诺，日本将加强军事力量，帮助美国维护地区安全。
 
-编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-《路透社》4月24日报道，**周日，据知情人士透露，推特公司面临来自股东越来越大的压力，要求与特斯拉首席执行官马斯克进行进一步谈判。此前，马斯克称430亿美元的全现金收购报价是他的最佳和最终报价。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/马斯克-3-e1650850097247.jpg)在这张拍摄于2022年4月15日的照片中，埃隆·马斯克的推特账号在智能手机上。（图片来源：路透社）
-据报道，自4月14日公布收购要约以来，他一直在与Twitter股东会面，寻求支持。**马斯克曾表示，推特需要私有化，才能成长，成为一个真正的言论自由平台。**
+“今天我能够在前线亲身体验国家安全。”林芳正(Yoshimasa Hayashi)在在东京以南水域航行的亚伯拉罕·林肯号航空母舰的机库甲板上对记者说。并补充道，日本将“显著加强”其防御能力，并与美国密切合作。
 
-一位不愿透露姓名的消息人士称，虽然推特股东对收购价格持有不同的观点，但**在马斯克在上周四披露，他现在有465亿美元的融资后，面临股东的压力，推特更倾向于接受马斯克的收购要约。**推特高管们现在正在重新审查投标，并且比以前更有可能尝试谈判。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/马斯克1.jpg)特斯拉首席执行官埃隆.马斯克。（图片来源：盖蒂图片）
-报道称，推特将于下周四发布季度收益报告，预计董事会将发现马斯克提出的每股54.20美元的全现金收购报价过低。尽管如此，一些同意这一立场的股东仍希望Twitter向马斯克寻求更好的报价。
+林芳正说，日本认为俄罗斯对乌克兰的入侵是对国际外交准则的公然冒犯，并担心这可能会鼓励邻国中共国使用军事力量来赢得对台湾的控制，并威胁附近的日本岛屿。日本还对中共与莫斯科深化安全伙伴关系表示担忧，包括中俄在日本周边海域进行的联合军事演习。
 
-消息人士称，**推特董事会的一个选择是向马斯克公开账目，试图说服他提高报价。另一个办法是征求其他潜在投标人的报价。**虽然目前还不清楚推特将采取何种方式，但其董事会越来越有可能在拒绝当前报价的同时，**试图从马斯克那里寻求更好的报价。**
+林芳正与美国大使拉姆·伊曼纽尔(Rahm Emanuel)一起从东京飞往这艘航空母舰，伊曼纽尔警告说，俄罗斯将对乌克兰的入侵称作“特殊军事行动”，这对远在欧洲以外的地区，包括印度太平洋地区都构成了安全风险。
 
-一位投资Twitter的基金经理表示，如果下周一觉醒来，**看到马斯克提出他所谓的最佳和最终报价，可能达到每股64.20美元，我不会感到惊讶。**他还表示，马斯克也有可能放弃收购，一切皆有可能。
+两人在林肯号的甲板上观看了航母的飞行操作，林肯号刚刚从靠近朝鲜半岛的日本海驶出，在朝鲜最近一次发射导弹后，林肯号与日本海上自卫队进行了海军演习。
+
+简评：
+
+日本从二战后的战败国，变成现在为民主世界抗争独裁暴政不可或缺的力量，这一切都要源于日本在二战后抛弃军国主义，在美国的监督下完成了民主制度 的建立。面对中共现在对台湾的蠢蠢欲动，日本和美国紧密合作加强了在台海地区以及印太地区与中共的对抗，时刻警告、震慑中共。
+
+台湾和日本是唇亡齿寒的关系，如果不坚定的捍卫台湾的独立性，台湾的沦陷将意味着整个东亚沦陷于共产主义中共暴政的控制之下。朝鲜的导弹试射、中东乱局、甚至可以说俄乌战争都是中共政权为实现其全球扩张的野心而策划的阴谋。美日及其盟友应该提升危机意识，更加积极主动地加强在印太地区的军事力量的部署，以遏制中共的军事扩张行为，维护本国在该地区的利益，维护印太和平，并在中共未来发动其蓄谋已久的侵台战争的时候，协防台湾一举消灭中共，维护世界和平。
+
+新闻链接:[https://www.reuters.com/world/asia-pacific/japans-foreign-minister-promises-stronger-military-visit-us-carrier-2022-04-23/](https://www.reuters.com/world/asia-pacific/japans-foreign-minister-promises-stronger-military-visit-us-carrier-2022-04-23/)
+
+翻译/简评:親愛的瑪嘉烈
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> Taking Twitter private at $54.20 should be up to shareholders, not the board
-> — Elon Musk (@elonmusk) [April 14, 2022](https://twitter.com/elonmusk/status/1514698036760530945?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
-
-4月14日，马斯克调查问卷：以54.2美元的价格将Twitter私有化应该由股东决定，而不是由董事会决定，其中83.5%的投票人赞同。
-消息人士称，**推特董事会正在权衡的一个担忧是，除非它寻求与马斯克谈判，否则许多股东可能会在收购要约中支持他。**消息人士补充称，尽管毒丸计划将阻止Twitter股东公开出售其股票，但该公司担心，如果事实证明此举违背了许多投资者的意愿，其谈判筹码将大幅削弱。
-
-此前，马斯克提出每股54.20美元的全现金收购报价。周五，推特的收盘价，报每股48.93美元。
-
-新闻来源链接：
-
-[Exclusive: Twitter under shareholder pressure to seek deal with Musk, sources say | Reuters](https://www.reuters.com/business/exclusive-twitter-under-shareholder-pressure-seek-deal-with-musk-sources-say-2022-04-24/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,24 @@
 ---
 
 
-## 安大略省卫生部将延长配戴口罩规定
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2408183/)
+## 樱花时政┃上海现升级版封锁铁丝网 与动物园同款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2408325/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3117.png)图片来源：[https://toronto.ctvnews.ca/](https://toronto.ctvnews.ca/ontario-extending-remaining-mask-mandates-past-april-27-government-confirms-1.5872278)
-据【CTV新闻】4月23日报道，为应对和防控第六波新冠病毒疫情，安大略省政府要求在医疗机构、长期护理院和公共交通设施中配戴口罩的规定，将从4月27日延长至6月11日。
+撰稿：东京樱花团/秋明
 
-据悉，安省日前因感染新冠病毒而住院的人数约为1600人，比前一天略有减少。其中，重症监护中的患者人数同比也略有下降。目前，该省除配戴口罩的规定被延长外，其他与疫情相关的限制措施均已被停止。
+中共对付人民的智慧简直让人叹服！近日上海出现升级版的封锁工具铁丝网，跟动物园里的还是同款，高速公路及时有效地把原材料运到目的地，缺粮死人的时候也没见他们这么积极运输食品，就算运到上海，一部分被贪污了，一部分被高价卖了，一部分腐烂扔垃圾堆！
 
-此外，安省卫生部还宣布，将为器官和干细胞移植者、部分癌症患者和T细胞免疫治疗者等免疫功能低下的病人提供新冠病毒抗体治疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/04251.png)
 
-新闻来源： [https://toronto.ctvnews.ca/ontario-extending-remaining-mask-mandates-past-april-27-government-confirms-1.5872278](https://toronto.ctvnews.ca/ontario-extending-remaining-mask-mandates-past-april-27-government-confirms-1.5872278)
+铁丝网里的动物有饲养员送食物，白天可以出来放放风，铁丝网里的整栋楼的人们啊，不知道有没有送食物的？能不能下楼在方寸之地走两步？
 
-上传/发稿 – 青青 撰稿/翻译/听写 -晨熹
-素材/采编 – UCool 优酷                  核对/审核 – 硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+平心而论，相对于焊单元门，铁丝网还是多了那么一点动物味儿，上海的防护措施越来越动物性化了，如果不幸失火，大家可以跑出单元门，想办法翻越铁丝网，还有一线生机，悍住单元门，整栋楼被封锁在里面，就毫无生机可言了。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+但愿上海的防控隔离措施再多一些动物性化，前几天被隔离失火的居民楼惨叫真是不忍卒睹啊！
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

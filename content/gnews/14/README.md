@@ -2,50 +2,81 @@
 ---
 
 
-## 樱花时政┃美国警告所罗门领导人 不要让中共建立军事基地
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2408290/)
+## 普京未能在战场上实现他的巨大野心 &#8211; 拜登总统
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2408423/)
 
-撰稿：东京樱花团/asket
+**美国国务院： **
+拜登总统@POTUS：我们在国内的团结，我们与盟友和伙伴的团结，以及我们与乌克兰人民的团结，正在向普京发出一个明确无误的信息：他永远不会成功地统治和占领整个乌克兰。 【图中文字：普京未能在战场上实现他的巨大野心 – 拜登总统】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3125.png)
 
-[图片来源](https://www.zerohedge.com/geopolitical/us-respond-accordingly-if-solomon-islands-china-pact-permits-military-base)
 
-美国警告所罗门群岛领导人，如果根据所罗门群岛-中国安全条约的条款，允许在这个太平洋岛国建立军事设施，美国将做出 “相应的反应”。
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw): Our unity at home, our unity with our Allies and partners, and our unity with the Ukrainian people is sending an unmistakable message to Putin: He will never succeed in dominating and occupying all of Ukraine. [pic.twitter.com/V4ltUz5EAW](https://t.co/V4ltUz5EAW)
+> — Department of State (@StateDept) [April 24, 2022](https://twitter.com/StateDept/status/1518031975419838467?ref_src=twsrc%5Etfw)
 
-白宫周五（4月22日）表示，一个高级别的美国代表团已经在霍尼亚拉会见了所罗门群岛的领导人，并对该协议的目的和透明度提出了关切。
 
-根据其声明，所罗门群岛的官员已经澄清，该安全协议仅用于国内应用，但美国代表团声称，它对华盛顿及其盟友构成了 “潜在的区域安全影响”。
 
-“如果采取步骤建立事实上的永久性军事存在、权力投射能力或军事设施，美国届时将有重大关切并作出重大回应，”美国代表团说。
+**拜登总统： **
+在普京对乌克兰发动无端无理的攻击两个月后，基辅仍然屹立不倒。 泽连斯基总统和他的民选政府仍在继续执政。 我们将继续支持乌克兰人保卫家园的战斗。
 
-白宫没有具体说明美国将如何回应。
 
-美国代表团由国家安全委员会印太协调员库尔特-坎贝尔（Kurt Campbell）和负责东亚和太平洋事务的助理国务卿丹尼尔-克里滕布林克（Daniel Kritenbrink）率领。
 
-白宫表示，所罗门群岛总理马纳西-索加瓦雷（Manasseh Sogavare）已经保证，根据与中共达成的协议，不允许有任何军事基地、长期存在或权力投射能力。
+> Two months after Putin launched an unprovoked and unjustified attack on Ukraine, Kyiv still stands. President Zelenskyy and his democratically-elected government remain in power.
+>  
+> We will continue to support Ukrainians in their fight to defend their homeland.
+> — President Biden (@POTUS) [April 24, 2022](https://twitter.com/POTUS/status/1518291602975989762?ref_src=twsrc%5Etfw)
 
-白宫补充说：”美国强调，将与区域伙伴协商，密切关注事态发展。“
 
-白宫表示，在他们的会晤中，所罗门群岛同意华盛顿提出的启动 “高级别战略对话 “的建议，以解决双方的关切，并推动实际进展。
 
-华盛顿还将加快在所罗门群岛开设美国大使馆，派遣 “慈悲 “号医院船解决公共卫生问题，提供更多的疫苗，并推进 “人与人之间关系 “的举措。
+**参议员玛莎·布莱克本： **
+“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” ——罗纳德·里根总统
 
-白宫补充说：”双方同意更详细地讨论共同关心的安全问题，经济和社会发展，公共卫生，以及金融和债务。“
 
-本周早些时候签署的所罗门群岛-中国安全协议引发了美国及其盟国的警觉，即北京可能利用该协议在该地区建立其军事存在，并破坏印度-太平洋地区的稳定。
 
-根据一份泄露的协议草案，北京将能够在征得所罗门群岛同意的情况下，派遣警察、军队、武器甚至军舰，以 “保护所罗门群岛的中国人员和重大项目的安全”。
+> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
 
-所罗门群岛的位置非常关键，由于其对海上通道的影响，二战期间曾发生过很多战斗。这项安全协议将把北京的触角从南海扩大到澳大利亚北部城市凯恩斯的1700公里（1060英里）以内。
 
-4月18日，美国与日本、澳大利亚和新西兰的官员召开了一次会议，期间他们对所罗门-中国的交易表示关切。白宫表示，华盛顿对该协议的缺乏透明度和 “不明确的性质 “感到担忧。
 
-信息来源：[** US To “Respond Accordingly” If Solomon Islands-China Pact Permits Military Base**](https://www.zerohedge.com/geopolitical/us-respond-accordingly-if-solomon-islands-china-pact-permits-military-base)
+**众议员迈克尓·麦考尔： **
+自拜登就职以来，已有 250 万人越过了他的开放边界。 第42 条款被取消意味着在接下来的五周内有 50万人(非法入境)。 这是我们南部边境历史上最严重的危机。 【附视频，麦考尔议员接受福克斯新闻采访，谈南部边境危机】
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
+> 2.5 million people have cross over Biden’s open border since his inauguration. Title 42 being lifted means 500,000 over the next five weeks. This is the worst crisis in the history of our southern border. [pic.twitter.com/m5hWHh1D8F](https://t.co/m5hWHh1D8F)
+> — Michael McCaul (@RepMcCaul) [April 24, 2022](https://twitter.com/RepMcCaul/status/1518260287991959553?ref_src=twsrc%5Etfw)
+
+
+
+**参议员比尔·哈格蒂：** 
+[#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 正在对美国的青年——包括在我的家乡田纳西州——发动芬太尼和非法毒品战争，而拜登政府为了他们的政治利益，让我们的南部边境完全开放，从而实现了(中共的)这一目标。
+
+
+
+> The Chinese Communist Party is waging a fentanyl and illicit drug war on America’s youth—including in my home state of Tennessee—and the Biden Admin is enabling it by leaving our southern border wide open for their political gain.
+> — Senator Bill Hagerty (@SenatorHagerty) [April 25, 2022](https://twitter.com/SenatorHagerty/status/1518388067488444416?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·华尔兹：** 
+我很难相信这是一个意外…… 【转推称：尽管台湾不是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的一部分，但拜登的商务部长称台湾为“中华台北”。这是对热爱自由的台湾人民的一记耳光，也是在给 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 开绿灯。】
+
+
+
+> I have a hard time believing this was an accident… [https://t.co/1DPZ0RFLP6](https://t.co/1DPZ0RFLP6)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 25, 2022](https://twitter.com/michaelgwaltz/status/1518415887098945538?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥： **
+“你是我藏身之处，你必保护我脱离患难，以得救的欢呼四面环绕我。” 诗篇 第32章 7节 [#主日圣经](https://gettr.com/hashtag/%23%E4%B8%BB%E6%97%A5%E5%9C%A3%E7%BB%8F) [#SundayScripture](https://gettr.com/hashtag/%23SundayScripture)
+
+
+
+> “You are my hiding place; You shall preserve me from trouble; You shall surround me with songs of deliverance.” Psalm 32:7[#SundayScripture](https://twitter.com/hashtag/SundayScripture?src=hash&amp;ref_src=twsrc%5Etfw) ✝️
+> — Mike Pompeo (@mikepompeo) [April 24, 2022](https://twitter.com/mikepompeo/status/1518261230674321408?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

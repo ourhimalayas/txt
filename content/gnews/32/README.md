@@ -2,10 +2,19 @@
 ---
 
 
-## 4/24/2022 七哥直播：历史上中国和俄罗斯不在一起的时间占99%，互联网时代所谓的莫德尔斯基的长周期是一个灾难性的笑话，过去这一百年是美国的第三派——华尔街决定了中国的命运，而非共产党
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2407910/)
+## 中国和俄罗斯走在一起就是因为独裁主义
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408052/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+*发布：陶子*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
