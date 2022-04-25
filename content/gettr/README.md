@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@globalalliance 4/25/2022 1:52 AM (UTC)`
+
+2022.04.24 农场联盟工作汇报
+![img](https://media.gettr.com/group39/origin/2022/02/14/03/37205369-b1b3-29bc-d3d8-a0702b98014d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 2:04 AM (UTC)`
 
 2022.04.24  新中国联邦 | 喜财经  数字货币的发行如何取代传统法币，构建新经济生态？
@@ -148,13 +157,6 @@
 
 【Ukraine Rescue】4/22/2022 After the event of an American man trying to attack Little Sara at the Medyka camp, several French volunteers come over to show support to us and blame that American man.<br/><br/>【乌克兰救援】4/22/2022 在一名美国人在梅迪卡营地试图袭击小Sara的事件后，几名法国志愿者来向我们表示支持并指责那个美国人。<br/><br/>
 ![img](https://media.gettr.com/group36/getter/2022/04/24/13/a61f955b-81ca-2c07-19d9-671e4e188eab/out.jpg)
-
----
-
-`@miles 4/24/2022 12:44 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月22日第49天当日救援统计：<br/>Medyka救援站接待：约292人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约13903人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 49 - Date: April 22, 2022 :<br/>Medyka Rescue Station Reception: about 292 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 13903 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group26/getter/2022/04/24/12/48bebefd-9d0d-8911-c9cb-68127b5f7772/028aa774782fa7036bedeb562e24e559.jpg)
 
 ---
 
