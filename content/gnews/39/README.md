@@ -2,43 +2,53 @@
 ---
 
 
-## 澳洲新南威尔士开始使用新的疫情报告系统及规则
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2411345/)
+## 北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411411/)
 
-撰稿：Gradient Boost
+编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1.jpg-5.png)
-网络图片
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
 
-在过去的 24 小时内，悉尼所在的新南威尔士州又有 4 人不幸死于CCP病毒——该州报告了 7985 例新增感染病例，使得总活跃病例人数达到170,733 人。
+北京–中国首都北京周末警告说，科威德已经在该市扩散了一周而未被发现，而且随着调查的进行，还会发现更多的病例。
 
-从周一开始，新南威尔士州卫生局对CCP病毒疫情报告方式进行了精剪，该举动进一步表明官方准备逐步回归正常。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3174.png)
+中共国的首都北京报告说，周末的Covid病例激增，周一开始在朝阳的商业区进行大规模检测。在该区，图中的一个社区被列为高风险区。
+姜启明｜中国新闻社｜盖蒂图片社
 
-新南威尔士州卫生局过去常常提供详细的每日病例信息，但该报告现在将每周发布一次。每日的CCP病毒疫情媒体发布将会取消，不过详细信息仍然可以在新南威尔士卫生部的官方网站以及社交媒体账号上查看。
+周一，朝阳主要商业区开始对在该地区生活或工作的任何人进行为期三天的大规模检测，该地区是许多大使馆和外国企业的所在地。自上周五以来，北京新报告的42例Covid病例中，该区占了大多数。
 
-对于卫生部门的举措，部分网友表示认可，因为减少报告频率可以适当降低政府支出。也有网友希望当局能够进一步放宽更多措施。另一些网友则表示不理解。总体来说褒贬不一。
+在北京，只有特定的公寓楼被锁住了。学校大多保持开放，但朝阳商务区下令停止所有的个人团体活动和培训课程，包括艺术和体育。
 
-与此同时，墨尔本所在的维多利亚州今天同样记录了4例死亡以及 7643 例新增CCP病毒感染病例。该州目前仍有 52,806 例活跃病例，其中 31 名患者处于重症监护状态。目前维多利亚地区累计因CCP病毒感染而死亡的人数已经达到2904 人。
+在主要商业区以南一个地铁站的一小部分地区，所有餐馆、娱乐场所、室内健身房和非必要的业务将从周一早上开始关闭。据国家媒体报道，当地政府补充说，受影响地区的居民一般应在家里工作，除非有必要，否则不要外出。
 
-*编辑：Gradient Boost*
+北京的病例增加，是因为中国大陆面临着自2020年初以来最严重的Covid疫情。中共国一直坚持严格的零Covid政策，利用迅速封锁、隔离和旅行限制来控制病毒的爆发。
 
-*发布：疯狂的韭菜*
+中国最大的城市–上海的大部分地区仍然处于长期封锁状态，自周五以来报告了100多起与Covid有关的新死亡病例。
 
-新闻参考链接：
+在全国范围内，上海迄今为止占了最多的Covid病例，周日报告了2400多例有症状的病例和16900多例无症状病例。
 
-[9 News](https://www.9news.com.au/national/nsw-victoria-daily-covid-19-cases-updates-and-hospitalisations-april-25/96fae1fe-1165-4532-912d-c2f5dbf0b637)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+据Wind资讯报道，北京和上海根据GDP位列中共国十大省级地区。数据显示，北京的经济在第一季度增长了4.8%，与全国水平持平，而上海的经济增长了3.1%，因为有针对性的封锁在3月份上升。
 
+市政府表示，受北京朝阳商业区最新一轮案件影响的服务业工人每天可以获得100元（15.38美元），最多21天。
 
+据了解，病例激增和大规模检测的消息促使当地人急于囤积食物。
 
-**更多信息，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3175.png)
 
-[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
+来源：[China’s capital city warns of more Covid cases and begins mass testing in the central business district](https://www.cnbc.com/2022/04/25/chinas-capital-city-beijing-begins-covid-testing-in-business-district.html)
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+* * *
 
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

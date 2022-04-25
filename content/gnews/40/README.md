@@ -2,24 +2,50 @@
 ---
 
 
-## 德国总理舒尔茨回避澄清问题
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2411326/)
+## 尽管普京嘴硬，制裁已严重打击俄罗斯经济
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2411392/)
 
-[MONA JAEGER](https://www.faz.net/redaktion/mona-jaeger-14222921.html)的评论，更新于2022年4月22日21:37(CET)
-翻译：蔚蓝的天/校对:   trustguo
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-3-1.jpg)图片：不再亲密：2022年2月15 舒尔茨访问普京。/ EPA
-德国联邦总统弗兰克·瓦尔特·施泰因迈尔谈到了德国对俄罗斯政策中的错误，也谈到了他本人对普京的看法是错误的。他这样做，不仅为过去20年中所有承担责任的政治家打开了一扇门，而且也为施泰因迈尔所属的社民党（[SPD](https://www.faz.net/aktuell/politik/thema/spd)）打开了一扇门，但舒尔茨总理拒绝开启这扇门。即使在战争结束后，他也不想让其政党的部分错误政策被重新评估。相反，他认为社会民主主义是受害者的角色，其党员总是被描绘成不可信任的人，并且在历史上的作用也被歪曲了。
+撰稿：Gradient Boost
 
-舒尔茨（[Scholz](https://www.faz.net/aktuell/politik/thema/olaf-scholz)）不愿回顾过去是可以被理解的。因为如果他和其他人这样做，社民党将会被卷入最猛烈的风暴中。对与俄罗斯良好的和平共处的错误和危险的理解在社民党中已经渗透得太深，这也可以从知名的社会民主党人士最近的言论中看出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-558.jpg)
+网络图片
 
-**这段历史不易回避**
-同样令人愤慨的是，[Manuela Schwesig](https://www.faz.net/aktuell/politik/thema/manuela-schwesig)无意对梅克伦堡-西波美拉尼亚的北溪二号项目中的掩盖策略做一澄清。 五十年前，和平偶像维利·勃兰特已经比今天的许多社会民主党人走得更远，正是他的角色最近被许多党内人士歪曲了。
+俄乌战争近两个月后，克里姆林宫采取了非同寻常的措施来削弱西方的经济反攻。虽然俄罗斯貌似取得一些“象征性的胜利”，然而西方制裁的全面影响已经逐步显现。
 
-现在人们喜欢声称，而不仅仅是社民党的政治家，他们对普京的看法是错误的。事实是：普京从格罗兹尼到格鲁吉亚再到叙利亚的暴行，并没有引起社会民主党领导层的太多关注。同样他们对普京谋杀和剥夺其政治对手的权力的态度也是如此。这段历史是无法回避的。德国与俄罗斯关系的重新调整才刚刚开始，另外社民党现在是德国的执政党。但是，舒尔茨打算如何拯救与普京有联系的原社民党，同时又成为北约东翼国家的可靠伙伴呢？
+随着西方采取行动切断俄罗斯的外汇储备，限制关键技术的进口并采取其他限制措施，克里姆林宫采取了一些严厉措施来保护经济：其中包括将利率提高到高达 20%、实施资本管制以及迫使俄罗斯企业将利润兑换成卢布。
 
-原文链接：[https://www.faz.net/aktuell/politik/russland-politik-der-spd-olaf-scholz-scheut-die-aufklaerung-17976179.html](https://www.faz.net/aktuell/politik/russland-politik-der-spd-olaf-scholz-scheut-die-aufklaerung-17976179.html)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+这些举动使得卢布的价值在经历了最初的暴跌之后已经恢复，上周央行逆转了部分加息。俄罗斯总统弗拉基米尔·普京（Vladimir Putin）变得胆大妄为，并宣称该国经受住了西方制裁的“闪电战”。
+
+然而，仔细观察人们可以发现，各项制裁正在蚕食俄罗斯的经济：
+
+该国正在经历二十年来最严重的通货膨胀。经济统计机构 Rosstat 表示，上个月的通货膨胀率达到 17.3%，为 2002 年以来的最高水平。相比之下，国际货币基金组织预计发展中国家的消费者价格今年将上涨 8.7%，高于去年的 5.9%。
+
+一些俄罗斯公司也被迫关闭。几份报告称，由于缺少零件，一家坦克制造商不得不停止生产。美国官员指出，关闭拉达汽车工厂——一个由俄罗斯公司 Avtovaz 制造并由法国汽车制造商雷诺拥有多数股权的品牌——是制裁生效的迹象。
+
+莫斯科市长表示，该市正在考虑因外国公司关闭业务而造成 200,000 人失业。在集装箱公司马士基、UPS、DHL 和其他运输公司退出俄罗斯后，300 多家公司退出，国际供应链基本关闭。同时俄罗斯正面临其债券的历史性违约，这可能会使该国在数年内被冻结在国际债务市场之外。
+
+编辑：Gradient Boost
+
+发布：疯狂的韭菜
+
+新闻参考链接：
+
+[AP News](https://apnews.com/article/russia-ukraine-business-europe-economy-dd7bcb1c09b4020a3f75048c4045fa90)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+
+
+
+**更多信息，更多关注**
+
+[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
