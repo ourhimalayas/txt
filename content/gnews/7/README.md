@@ -2,70 +2,49 @@
 ---
 
 
-## MV版《铁锁梦》上线第7天位列5国iTunesMV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2411061/)
+## 生物技术的战场，如何与中国的风险研发相抗衡（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411189/)
 
-4/25/2022 郭文贵先生的歌曲《铁锁梦》MV版视频上线第7天位列5国iTunesMV榜榜首！
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3165-edited.png)*2009年9月，在中国新乡的一个实验室里*
+*Stringer / 路透社*
+
+【接上篇：[生物技术的战场，如何与中国的风险研发相抗衡（一）](https://gnews.org/zh-hans/2411106/)】
+
+**创新或灭亡**
+
+中共国在生物技术方面的发展需要美国的回应。上一个国家生物伦理委员会于2017年失效，而华盛顿方面尚未授权成立一个替代委员会。新成立的委员会应与大学和产业界合作，制定围绕生物伦理的规范和期望。这种公私合作的良好模式已经存在。安全DNA项目和晨曦集团等组织–分别致力于安全和公平地管理基因合成和脑机接口的独立联盟–是科学家、伦理学家和其他人能够共同完成的例子。未来的跨学科团队可以充当守门员，肯定道德标准并谴责违法行为–例如，决定谁能在高影响力的期刊上发表文章并被邀请参加有声望的会议。
+
+这些伙伴关系还可以帮助弥合在疫苗护照、基因编辑免疫、以及付费测试COVID-19新疗法的挑战试验等问题上的意识形态分歧。这些是民主社会完全有能力处理的辩论。世界上最大的四个民主国家–澳大利亚、印度、日本和美国–已经认识到生命科学研究的生存利害关系，最近承诺集体解决“未来的关键和新兴技术，首先是生物技术”。这项工作应该包括在《世界生物伦理与人权宣言》等国际协议、《生物武器公约》等条约以及T-12等多边安排–技术先进的民主国家集团的基础上建立一个全球医学伦理联盟。
+
+然而，民主社会不能单独维持生物伦理标准。展望未来，美国和其他民主国家必须与专制国家接触，特别是在共同关心的领域，包括生物多样性、气候变化和高度传染性疾病。一个自然的起点是监督，以确保北京实际执行其2021年的《生物安全法》–该立法旨在指导北京在从生物恐怖主义到生物技术等方面的政策。华盛顿还应该关注制定新的人类实验和遗传信息共享的条约准则。
+
+**奥林匹克精神**
+
+中共国以DNA为基础挑选2022年奥运会参赛选手的方法可能看起来是一个严峻的未来的预兆。但该国的体育历史也为管理这种新形式的地缘政治竞争提供了一条道路。
+
+1988年至1998年期间，52名中共国奥运运动员的违禁药物检测结果呈阳性，包括半打金牌得主。为了应对由此引起的国际抗议，国际奥委会成立了世界反兴奋剂机构。受此打击，中共国制定了世界上最严格的反兴奋剂措施–要求运动员和教练员进行教育、考试和承诺。违规者将被终身禁赛。中共国政府还试图修复其声誉，资助新的研究，并承诺对国际反兴奋剂工作作出长期承诺。
+
+当时，核查和透明度使人们有可能追究中共国违反道德规范的责任，国际压力和有意义的制裁威胁促使中共国政府在体育领域采取更负责任的行动。今天，类似的政策可以在生物伦理学领域发挥作用，帮助控制中共国的鲁莽行为。这样一来，北京革命性的奥运选拔过程可能成为世界需要的开端，以解决即将到来的科学进步的道德地位问题。
+
+【完结】
+
+**新闻来源：**[The Biotech Battlefield How to Contend With China’s Risky R&D](https://www.foreignaffairs.com/articles/china/2022-04-25/biotech-battlefield)
 
 * * *
 
-[【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+审核：Aries的星
+校对：阿伯塔
+发布：信心的选择
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_71.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_72.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs-MV】Monday-25-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 1:22 PM (UTC)`
+
+【Ukraine Rescue】4/24/2022 The French mother and her son are volunteering in Medyka. Poland. They speak fluent Mandarin. The French mother used to work at the French Embassy in Beijing for 15 years. They love China and the Chinese people very much. Our fellow fighter Nicole told them that the mission of the New Federal State of China is to take down the evil Chinese Communist Party. The new Chinese people love freedom and peace. <br/><br/>【乌克兰救援】4/24/2022  这位法国母亲和她的儿子正在波兰的梅迪卡做志愿者，他们会说一口流利的普通话，这位法国母亲曾在法国驻北京大使馆工作了15年，他们非常热爱中国和中国人民。我们的战友妮可告诉他们，中国新联邦国的使命是摧毁邪恶的中国共产党，新中国人民热爱自由与和平。
+![img](https://media.gettr.com/group38/getter/2022/04/25/13/a85f45b1-c581-ecdc-4a54-850c9e4ba6df/out.jpg)
+
+---
+
+`@miles 4/25/2022 1:13 PM (UTC)`
+
+2022.04.25早  新中国联邦 | 新闻访谈   美国救援义工赞扬新中国联邦人正在改变历史 美国务卿和防长访问基辅: 追加军援
+![img](https://media.gettr.com/group36/origin/2022/04/25/13/edaa415e-67a2-c5cd-a4ec-fd74075709c1/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/25/2022 12:33 PM (UTC)`
 
 2022.04.25 早  新中国联邦 | 新闻   梅迪卡新中国联邦广告牌希望之光重现；美国SSF救援组织义工称赞新中国联邦
@@ -144,20 +158,6 @@
 
 4/24/2022 Miles Guo: Historically, China and Russia are not aligned in 99% of cases. Modelski’s so-called long cycle is a disastrous joke. The third faction in the US, the Wall Street elites, has determined the history of China over the past 100 years, not the CCP.<br/><br/>4/24/2022 七哥直播：历史上中国和俄罗斯不在一起的时间占99%，互联网时代所谓的莫德尔斯基的长周期是一个灾难性的笑话，过去这一百年是美国的第三派——华尔街决定了中国的命运，而非共产党<br/><br/>
 ![img](https://media.gettr.com/group48/getter/2022/04/24/23/d3fb052f-e13a-dc7e-f068-1d0a7f97787f/out.jpg)
-
----
-
-`@miles 4/24/2022 11:00 PM (UTC)`
-
-2022.04.24  PM NFSC news  Chained Dream MV topped the iTunes Music charts in many countries
-![img](https://media.gettr.com/group47/origin/2022/04/24/22/b40e57ec-a0b7-5e05-1b26-089cfafe831f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/24/2022 10:06 PM (UTC)`
-
-“台湾，别怂，硬起来！！” 飞飞秀救援快报 2022-04-24<br/>For English：gettr.com/streaming/p16xrpoe708
-![img](https://media.gettr.com/group25/origin/2022/04/24/22/7863877e-a3ab-f1d8-e7ef-54a573876687/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

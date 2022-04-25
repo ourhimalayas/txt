@@ -2,27 +2,12 @@
 ---
 
 
-## 樱花时政┃乌克兰指俄准备在其占领区举行“假公投”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2410843/)
+## 中共的非人性封控正在制造更多灾难
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2411005/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-泽林斯基指责俄试图在其占领的赫尔松和扎波罗热组织“假公投”。泽连斯基在一段视频信息中呼吁乌被占领区的居民保持警觉，不要向俄军队提供他们索取的任何个人资料，如护照号码。他警告说，这不是仅仅为了进行人口普查……
+04/23/2022 中共的非人性封控正在制造更多灾难：一居民楼着火，但是因小区门口被安装了障碍物，消防车无法进入施救。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-251.png)图片来源于本文链接
-
-这不是为了给你任何形式的人道援助。他说，“如果组织这种‘把戏’的命令来自莫斯科，那么，这实际上是在你们的土地上伪造所谓的公投”。泽林斯基3月初已经指责过俄试图在赫尔松举行类似于2014年俄吞并克里米亚半岛的“公投”。法新社说，基辅和西方认为这样做是非法的。
-
-信息来源：[乌克兰指俄罗斯准备在其占领区举行“假公投”](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220422-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%8C%87%E4%BF%84%E7%BD%97%E6%96%AF%E5%87%86%E5%A4%87%E5%9C%A8%E5%85%B6%E5%8D%A0%E9%A2%86%E5%8C%BA%E4%B8%BE%E8%A1%8C-%E5%81%87%E5%85%AC%E6%8A%95)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

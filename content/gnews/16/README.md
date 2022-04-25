@@ -2,41 +2,36 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410866/)
+## 大直播后记：美国的第三派势力华尔街决定了过去的100年
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2411027/)
 
-#### **整理：枳实** **
-** **美工：精灵蓝** 
+#### 整理：Lucy、红红火火
+编辑：JH
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-19.png)图片：雅典娜农场设计组 精灵蓝
-
-
-雅典娜疫情更新（2022年 4月25日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-158.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片37-17.png)图片来源：雅典娜设计组
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-45.png)图片：雅典娜农场设计组 精灵蓝
+文智：我想请教，背后到底有什么原因导致俄罗斯和中共国最后又走到了一起？
 
+七哥(文贵先生)：
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+我觉得很多科学家专家教授历史学家都爱把莫德尔斯基周期，塔西佗陷阱之类这些周期性的东西，包括中国人所相信的60年一甲子，放在一起对比，试图找出什么规律周期，或者发现什么门道，我认为这是一种灾难性的想法。
+
+你看看历史，你往回看几千年好像都一样，事实这里面的本质和细节都不一样。现在共产党和俄罗斯（原苏联）为啥走在一起？大家看看，它们不走在一起多长时间呢？走在一起多长时间呢？它们不走在一起的时间多过走在一起的时间，大家都记住走在一起的时间了，即近代史。近代为啥走在一起了？就是共产主义，说白了就是独裁主义，奴役老百姓的奴隶主义。就是咱老百姓所说的假、骗、偷、黑，就这么简单。
+
+那么，你再去看看今天的美国，中共国和俄罗斯三者的关系，就像世界版的三国演义一样，就是合纵连横。所谓的就是两个不同的统治方式。核心的是，现在的互联网时代不存在任何历史上可借鉴之处，所谓莫尔德斯基周期，完全是在放狗屁。现代的通信互联网和全球一体化，人类已经往月球往太空发展，在这样的时代，这都是灾难性的笑话。所以，现在俄罗斯和中国共产党所谓的过去100年的合作，70年的执政合作，这中间最起码反反复复了四、五次了，同床不同梦，同梦不同床。
+
+那么，八九六四和苏联，为啥苏联解体了？中共没解体？这不是中共决定的，和中共的体制没半毛钱关系，是美国的华尔街决定的。这就像我见了戈尔巴乔夫，和他开玩笑：“你说这六四没把中国共产党搞垮，却把你们搞垮了。如果你们不垮，会不会和中共一样搞出上海这样的大城市？”戈尔巴乔夫脑子很清楚，斩钉截铁地说，“不是中国共产党让它不倒的，是美国让它不倒的，是美国人让苏联解体的。”根本不在于共产党和苏联，是在于美国，在于华尔街。所以刚才你看到（乌克兰救援）前线的斗争了吗？美国有三派，不是光民主党和共和党两派，民主党骨子里面有很多人是好的，也有很多是极左派，所谓男女不分，骨子里崇拜的是马克思主义。然后极右派，就是所谓的川普、班农，要说在我之前他们想灭共，我是不相信的，他们也就是利己主义。那么第三派在哪？说实话，就是华尔街派，真正的金钱派。这一派可以决定任何右派和左派。那么今天的结果是什么？就是美国的华尔街派第三派，就是所谓的看不见的第三只手，永远在裤裆里边的，永远在阴暗处。所以答案是：华尔街决定了过去的这100年，不是中国共产党，而且中共就是拿着14亿奴隶和华尔街作交换，就这么简单。
+
+资料来源：[4月24日文贵大直播](https://gettr.com/post/p16w4d7c25f)
 
 发布：*wenly*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
