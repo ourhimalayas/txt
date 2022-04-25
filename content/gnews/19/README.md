@@ -2,33 +2,32 @@
 ---
 
 
-## 来自专家的怀疑，在上海扩散着&#8221;对北京的不信任&#8221;–中国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2412694/)
+## 英国向乌克兰派遣特种空勤部队
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2412794/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-10.jpg)
-【上海时事通讯社】国内专家已经开始质疑中国为彻底遏制新冠状病毒感染所采取的“病毒清零”政策。尽管上海大部分地区已被封禁（城市封锁）了近一个月，但感染人数仍在以每天约2万人的速度增加。 （人们）对中央政府指挥的防疫措施的不信任感正在扩散。
+作者：Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-466.jpeg)图片来源网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
 
-“这种情况不能再继续下去了”。最近，新冠状病毒对策的权威钟南山博士在一本国内英文学术期刊上（发表论文）指出了“病毒清零”政策的局限性，呼吁有必要使社会和经济活动正常化、恢复国际往来。
+当地时间4月23日，外媒报道称，英国特种空勤部队（SAS）的专家，已被部署到乌克兰西部。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-58.jpg)
+特种空勤部队，简称SAS，是一支精锐的军事力量，训练有素，可以进行特种作战、监视和反恐。据内部人士透露，大约20名SAS成员已被派往利沃夫地区开展活动。
 
-报道该论文的文章被立即删除，但已在互联网社交网站（SNS）上广为扩散、一石激起千层浪。此外，现居上海的著名经济学家郎咸平在社交网站上发帖报告，他的母亲因等待病毒（核酸）检测结果导致无法接受紧急治疗而死亡。他警告道，“如果不尽快重启经济活动，上海（经济）将螺旋式下降下去”。
+英方表示，今年早些时候向乌克兰派遣了军事训练员，指导当地部队使用反坦克武器，但英国政府在俄罗斯入侵前一周已经撤出了，除那些需要保护英国大使的部队以外的，所有部队。
 
-上海作为一个国际城市，当初对城市封锁持否定态度，旨在控制其对经济的影响。自3月下旬，当（病毒）开始真正蔓延后，就由中央政府指导防疫措施，“当地人插不上嘴”（市府官员）。
+目前尚不清楚SAS参与乌克兰的哪些军事活动。分析人士普遍认为，这次英国派遣空军特种部队的意义重大。
 
-然而，每天都有大量的资金从金融市场流向海外。调查显示，“50%的外国居民考虑在一年内离开这个城市”， “这已不再是防疫，而是北京政治面子的问题。上海的经济被扼杀殆尽”等不满声在市民之间高涨。
+参考链接：[Russia investigates media report on presence of British SAS special forces in Ukraine](https://www.reuters.com/world/russia-investigates-media-report-presence-british-sas-special-forces-ukraine-2022-04-23/)
 
-当局对批评的蔓延紧张不已。最近，一份名为“四月之声”的上海市民投诉电话的音频汇编发贴在社交网站上，成为热搜话题，但已被立即删除。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-参考链接：[ゼロコロナ、識者からも疑問＝上海で広がる「北京不信」―中国(時事通信) – goo ニュース](https://news.goo.ne.jp/article/jiji/world/jiji-220424X653.html)
+总编：文真
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：Fei797
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
 
-素材：zicoround
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
