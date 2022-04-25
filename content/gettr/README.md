@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 2:07 PM (UTC)`
+
+4月25日：尊敬的战友们好邪恶的共产党，让神人共愤！【上海乌云密布，出现狂风、暴雨、冰雹天气。这次天气过程极不寻常。老天爷这是来收上海的魑魅魍魉了。】
+![img](https://media.gettr.com/group16/getter/2022/04/25/14/c51bc8ff-d952-5f37-7bc9-618d0914b0f8/out.jpg)
+
+---
+
+`@miles 4/25/2022 2:04 PM (UTC)`
+
+【Ukraine Rescue】 04/24/22 A volunteer from California is impressed to see our Communist extermination vest and after taking pictures she comments: This idea of you advocating freedom of speech and thought is amazing! You are the largest rescue group here and you are making a big change! I have a lot of respect!<br/><br/>【乌克兰救援】 04/24/22 来自美国加州的志愿者看到我们的灭共马甲无比钦佩，并在拍照后表示：你们这种倡导言论和思想自由的理念非常了不起！你们是这里最大的救援团体，你们正在进行着一个伟大的转变，太佩服你们了！
+![img](https://media.gettr.com/group20/getter/2022/04/25/14/fa0b9658-e225-52e2-fd7f-9025b033f8e1/out.jpg)
+
+---
+
 `@miles 4/25/2022 1:54 PM (UTC)`
 
 【Ukraine Rescue】04/24/2022 Volunteers from all over the world love the Billboard of the NFSC and ROLF, they hope to see the slogans of TAKE DOWN THE CCP in all kinds of languages on it.<br/><br/>【乌克兰救援】04/24/2022 来自世界各地的救援义工都喜欢法治基金新中国联邦的擎天柱，希望有各种语言的新中国联邦灭共标语出现在上面。<br/><br/>
@@ -144,20 +158,6 @@
 
 樱花【时事要闻】<br/>#老外 送 #隔离 #方仓  #直播了<br/>
 ![img](https://media.gettr.com/group46/getter/2022/04/24/15/3c850d62-714a-bea0-73b1-57b4d0a346bf/out.jpg)
-
----
-
-`@miles 4/24/2022 11:26 PM (UTC)`
-
-4/24/2022 Miles Guo: The cursing and assault happened to our fellow fighters at the Medyka rescue camp is absolutely racial discrimination. We will definitely take the offenders to court!<br/><br/>4/24/2022 文贵直播：发生在梅迪卡救援前线对我们战友的辱骂攻击事件是绝对的种族歧视，我们一定要把当事人告上法庭！<br/><br/>
-![img](https://media.gettr.com/group18/getter/2022/04/24/23/a108a595-be6b-636f-bfc9-d8d3438ea190/out.jpg)
-
----
-
-`@miles 4/24/2022 11:21 PM (UTC)`
-
-4/24/2022 Miles Guo: Yesterday's crash of the CCP military aircraft was of great significance. It not only shocked the Western military establishment, proving to the West the capabilities of the Whistleblowers’ Movement to collect intelligence, but it is also a slap in the face of the CCP's claim regarding its independent military development. Many in the CCP are convinced that God is helping the Whistleblowers’ Movement. The Russian pilot instructors paid by the CCP are enjoying themselves in Communist China and unwilling to go back to Russia, and they are thinking of selling out Russia every day.<br/><br/>4/24/2022 文贵直播：昨天的中共坠机事件意义重大，它不仅震惊了西方军事机构，向西方证明了爆料革命的情报力量，而且打脸中共所宣称的独立军事发展，并让党内很多人相信爆料革命得天助；被中共收买的俄罗斯飞行员教练在中共国乐不思蜀，天天想着出卖俄罗斯<br/>
-![img](https://media.gettr.com/group50/getter/2022/04/24/23/ed248787-4498-a91e-3941-c2bfdcb63cad/out.jpg)
 
 ---
 
