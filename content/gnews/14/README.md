@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大SunWing航班因遭骇客攻击而被全面延误
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412879/)
+## 不列颠哥伦比亚省医疗护工严重短缺
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412965/)
 
 ##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509121501.png)图片来源：CTV新闻
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1650914714.png)图片来源：CTV新闻
 
 
-据【CBC新闻】4月19日报道，由于所使用的第三方服务器提供商遭到网络入侵，导致加拿大[SunWing航空公司]当天有大批航班被延误，并因此造成数千名乘客滞留机场。
+据自媒体【真北方】4月20日报道，加拿大BC省政府在解雇数千名因未接种新冠病毒疫苗的医护人员后，宣布将投入1200万加元来聘请外国培训护士，以图解决卫生行业严重的劳工短缺问题。
 
-报道称，从两天前开始，[SunWing公司]几乎所有航班都受到了影响。此次网络攻击已导致其客户操作系统无法工作，值机人员只能人工处理航班信息并手动填写登机牌。故障还造成该公司被迫连续停飞四天航班，数千名乘客滞留在多伦多皮尔逊国际机场，另有部分乘客滞留国外无法按时返回加拿大。
+报道称，BC省的医疗护工人数在疫情初期已处于危机水平，工作人员的短缺直接导致最高达27000个班次的空缺。尽管如此，当局仍不惜以终止部分公共卫生机构的工作为代价，解雇了其约2600名未接种疫苗的员工。
 
-遭受攻击的 Airline Choice 是一家总部位于美国的服务器提供商，并与多家航空公司有业务往来，因此，本次网路攻击也波及到全球多家航空公司。而[SunWing]是唯一受到影响的加拿大航空公司。
+对此，[宪法自由正义中心]指出，BC省卫生部在医护人员已严重不足的情况下，不仅未能妥善安置和照顾好本省的雇员，而且还浪费纳税人钱去聘请外国护工。而为解决目前的困境，当务之急应该是立刻取消疫苗授权政策。
 
-原文链接：[https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728](https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728)
+原文链接：[https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/](https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/)
 
 上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【活力人生】
-素材/采编 -【活力人生】
+撰稿/翻译/听写 -【文莱】
+素材/采编 -【青青】
 校对/审核 -【硫酸羟氯喹64】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *

@@ -2,25 +2,25 @@
 ---
 
 
-## 不列颠哥伦比亚省医疗护工严重短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412965/)
+## 保守派加拿大人更加反对政府监控
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2413047/)
 
 ##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1650914714.png)图片来源：CTV新闻
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509161241.png)图片来源：卡尔加里先驱报
 
 
-据自媒体【真北方】4月20日报道，加拿大BC省政府在解雇数千名因未接种新冠病毒疫苗的医护人员后，宣布将投入1200万加元来聘请外国培训护士，以图解决卫生行业严重的劳工短缺问题。
+据【卡尔加里先驱报】4月21日报道，最新民意调查显示，意识形态偏右的加拿大人比左翼人士更加反对政府对民众的监控。
 
-报道称，BC省的医疗护工人数在疫情初期已处于危机水平，工作人员的短缺直接导致最高达27000个班次的空缺。尽管如此，当局仍不惜以终止部分公共卫生机构的工作为代价，解雇了其约2600名未接种疫苗的员工。
+根据调查结果，有 47% 的受访者表示，他们高度关注政府对加拿大人的监控情况。根据政治派别细分，右倾的加拿大人中关注此问题的比例高达76%，而中间派和左派的比例分别为 48% 和 35%。
 
-对此，[宪法自由正义中心]指出，BC省卫生部在医护人员已严重不足的情况下，不仅未能妥善安置和照顾好本省的雇员，而且还浪费纳税人钱去聘请外国护工。而为解决目前的困境，当务之急应该是立刻取消疫苗授权政策。
+此外，参与调查的大多数加拿大人均反对任何形式的政府监控，只有公共场所的视频监控措施获得了少数人的支持。调查还发现性别、教育程度都会影响受访者的选择。但总体而言，政治观点在人们的反应和回答中影响程度最大。
 
-原文链接：[https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/](https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/)
+原文链接：[https://calgaryherald.com/news/canada/canadian-conservatives-more-opposed-to-government-surveillance-than-the-left-poll](https://calgaryherald.com/news/canada/canadian-conservatives-more-opposed-to-government-surveillance-than-the-left-poll)
 
 上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【文莱】
-素材/采编 -【青青】
+撰稿/翻译/听写 -【活力人生】
+素材/采编 -【活力人生】
 校对/审核 -【硫酸羟氯喹64】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
