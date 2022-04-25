@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 5:40 PM (UTC)`
+
+04.25.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group22/origin/2022/04/25/17/2ee72124-f09b-4d8e-928d-15df055fd1d9/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/25/2022 4:08 PM (UTC)`
 
 4/24/2022 Ukraine Rescue: According to Sarah and Nicole, there are various indications that the two provocative Americans were trained and prepared, and their remarks were full of racist rhetoric; our slogan “we are the new Chinese to take down the CCP” made the communism followers furious and they showed their true colors.<br/><br/>4/24/2022 乌克兰救援连线: 小Sarah和Nicole认为种种迹象表明那两个挑衅的美国人是受过训练有备而来的，他们的言论充满了种族主义论调；“我们是消灭邪恶中共的新中国人”这句话令共产主义的追随者气急败坏，原形毕露！<br/><br/>
@@ -146,13 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group47/origin/2022/04/25/04/d9f7f868-d6fd-4c5a-68d7-d3df9904a5e1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/25/2022 3:05 AM (UTC)`
-
-2022-4-24《鸡血王喜币大作战》 第一百七十五集 嘉宾：齐天二圣、七里香
-![img](https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
