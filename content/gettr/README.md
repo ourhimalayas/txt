@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 2:24 PM (UTC)`
+
+4/24/2022 Miles Guo: On the one hand, "Xi the Sun" wants to take over TSMC's technologies for the benefit of the CCP, and on the other hand, he wants to take out the chip supply chain to put the world economy in trouble for the sake of destroying the US dollar. I think this is just a fool's daydream, and the CCP can't achieve either of these two goals.<br/><br/>4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到！<br/>
+![img](https://media.gettr.com/group47/getter/2022/04/25/14/003e729f-ce5b-fa0f-d573-dd64ade549f0/out.jpg)
+
+---
+
+`@miles 4/25/2022 2:15 PM (UTC)`
+
+4/24/2022 Miles Guo: Tsai Ing-wen does not dare to be strongly anti-CCP or pro-CCP, nor does she dare to go against America. The CCP, however, has controlled most of the people surrounding Tsai Ing-wen. That explains the tragedy of Taiwan and why the CCP is so aggressive towards Taiwan today.<br/><br/>4/24/2022 文贵直播：蔡英文既不敢强烈反共，又不敢亲共，更不敢跟美国人对着干，而中共却控制了蔡英文身边的绝大多数人，这就是台湾的悲哀以及中共对台湾如此嚣张的原因<br/><br/>
+![img](https://media.gettr.com/group47/getter/2022/04/25/14/7ab28f94-c2d4-3ec9-f4d1-a8dd92542d4e/out.jpg)
+
+---
+
 `@miles 4/25/2022 2:07 PM (UTC)`
 
 4月25日：尊敬的战友们好邪恶的共产党，让神人共愤！【上海乌云密布，出现狂风、暴雨、冰雹天气。这次天气过程极不寻常。老天爷这是来收上海的魑魅魍魉了。】
@@ -142,22 +156,6 @@
 
 2022.04.24 晚  新中国联邦 | 新闻访谈  中共管制社交媒体，禁言删帖，给老百姓洗脑，对各国政府挑拨离间，虚假宣传
 ![img](https://media.gettr.com/group38/origin/2022/04/25/00/00d291aa-edd1-7afb-b042-0dd35aa117e2/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/25/2022 12:29 AM (UTC)`
-
-2022.04.24 晚  新中国联邦 | 新闻   习近平被身边的人忽悠，相信打台湾能解决一切问题；普京示好西方，或迫使习近平毁灭台湾
-![img](https://media.gettr.com/group40/origin/2022/04/25/00/b8ab4a98-12f1-2757-d52c-2792cb62b7ec/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@sakuravideo 4/24/2022 3:17 PM (UTC)`
-
-樱花【时事要闻】<br/>#老外 送 #隔离 #方仓  #直播了<br/>
-![img](https://media.gettr.com/group46/getter/2022/04/24/15/3c850d62-714a-bea0-73b1-57b4d0a346bf/out.jpg)
 
 ---
 

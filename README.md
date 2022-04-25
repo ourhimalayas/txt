@@ -15,113 +15,113 @@
 
 ---
 
-### [有声|灭共者之郭氏情报站（53）2022/04/23 七哥乱聊直播摘要](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [中共打台湾的根本原因是控制芯片，打倒美帝](/content/gnews/2/README.md)
- ` 银河歌舞厅`
-
-### [有声｜汽车芯片大厂不堪上海封城 将业务迁至新加坡](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [尽管普京嘴硬，制裁已严重打击俄罗斯经济](/content/gnews/5/README.md)
- ` 澳喜特战旅Gnews`
-
-### [有声｜美国国务卿布林肯和国防部长奥斯汀访问基辅](/content/gnews/6/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [「股灾吉祥物」翻车鱼入市区河道畅游 港股危矣](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声｜上海疫苗灾难爆发 死亡人数攀升 防疫乱象继续](/content/gnews/8/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [澳洲新南威尔士开始使用新的疫情报告系统及规则](/content/gnews/9/README.md)
- ` 澳喜特战旅Gnews`
-
-### [德国总理舒尔茨回避澄清问题](/content/gnews/10/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [有声|联合国：越来越多证据表明俄罗斯犯下战争罪](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [有声｜莫斯科男子因穿了亲乌克兰的运动鞋被罚款](/content/gnews/12/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [樱花时政┃美防长：乌克兰若有合适军备支持就能获胜](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|SpaceX成功抵御俄罗斯的电磁攻击](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|俄乌战争以来多国限制食用油出口](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [秘翻在线：乌克兰向俄罗斯提议在马里乌波尔防御据点举行会谈](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [打过疫苗的飞行员在驾驶舱内心脏骤停,Freedom Flyers组织揭露大量航空公司的掩盖行为 （第二部分）](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [樱花时政┃俄乌战争来首次访问乌克兰的美国高官](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [团体倡禁英美学府奖学金诱惑港青](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【全文字幕】2022年4月23日七哥乱聊直播](/content/gnews/21/README.md)
- ` 文贵视频字幕全集`
-
-### [中共国大部分地区将迎强降雨等灾害性天气](/content/gnews/22/README.md)
- ` 银河歌舞厅`
-
-### [大直播后记：台湾问题和世界经济的崩塌](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [视频|联合国表示 乌克兰国内逾770万人流离失所](/content/gnews/24/README.md)
- ` MOSVIDEO`
-
-### [生物技术的战场，如何与中国的风险研发相抗衡（二）](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [4/25/2022 银河快讯：即将上任的韩国政府代表团访问日本；日本新增中共病毒（新冠病毒covid-19）15人死亡，38,579人被感染](/content/gnews/26/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [生物技术的战场，如何与中共国的风险研发相抗衡（一）](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大直播后记：5月份要开始的疫苗灾难会让你忘掉现在的一切战争](/content/gnews/28/README.md)
- ` 雅典娜GNotes`
-
-### [我要饿死了，我能反抗吗？](/content/gnews/29/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [欧洲市场开盘时将下跌；法国马克龙将连任总统](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [全球疫情疫苗数据更新](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022/04/25 英喜时事速递](/content/gnews/32/README.md)
+### [无苗灭共者必要之德性](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年4月25日，全球中共病毒疫情情况汇总](/content/gnews/33/README.md)
+### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国及世界疫情简报（04-25-2022）](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
+
+### [崇祯自缢看中共下场](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [新视频出现后，普京的健康猜测加剧](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中日财经爆｜沪指大跌失守3000点](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳防长：维护和平必须做好战争准备](/content/gnews/35/README.md)
+### [7.24系列——揭下《琼斯母亲》进步杂志的面纱](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰救援前线报道4.25.2022：维护新中国联邦人的尊严和人权已迫在眉睫](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
+### [中共6万武警进驻北京，为实施军管做准备](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [郭文贵直播摘要和音频2022.04.24](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [有声|新中国联邦新闻、NFSC新闻访谈简报|2022年4月23日晚](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [喜悦辣评](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [国会议员麦考尔: 中共害怕自己的人民](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [泽连斯基复活节讲话强调基督复活的荣光战胜黑暗](/content/gnews/12/README.md)
+ ` 战云长天时评`
+
+### [有声|灭共者之郭氏情报站（53）2022/04/23 七哥乱聊直播摘要](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [中共打台湾的根本原因是控制芯片，打倒美帝](/content/gnews/14/README.md)
+ ` 银河歌舞厅`
+
+### [有声｜汽车芯片大厂不堪上海封城 将业务迁至新加坡](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [尽管普京嘴硬，制裁已严重打击俄罗斯经济](/content/gnews/17/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [有声｜美国国务卿布林肯和国防部长奥斯汀访问基辅](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [「股灾吉祥物」翻车鱼入市区河道畅游 港股危矣](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声｜上海疫苗灾难爆发 死亡人数攀升 防疫乱象继续](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [澳洲新南威尔士开始使用新的疫情报告系统及规则](/content/gnews/21/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [德国总理舒尔茨回避澄清问题](/content/gnews/22/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [有声|联合国：越来越多证据表明俄罗斯犯下战争罪](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声｜莫斯科男子因穿了亲乌克兰的运动鞋被罚款](/content/gnews/24/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [秘翻在线：乌克兰向俄罗斯提议在马里乌波尔防御据点举行会谈](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [打过疫苗的飞行员在驾驶舱内心脏骤停,Freedom Flyers组织揭露大量航空公司的掩盖行为 （第二部分）](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [团体倡禁英美学府奖学金诱惑港青](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【全文字幕】2022年4月23日七哥乱聊直播](/content/gnews/28/README.md)
+ ` 文贵视频字幕全集`
+
+### [中共国大部分地区将迎强降雨等灾害性天气](/content/gnews/29/README.md)
+ ` 银河歌舞厅`
+
+### [大直播后记：台湾问题和世界经济的崩塌](/content/gnews/30/README.md)
+ ` 雅典娜GNotes`
+
+### [4/25/2022 银河快讯：即将上任的韩国政府代表团访问日本；日本新增中共病毒（新冠病毒covid-19）15人死亡，38,579人被感染](/content/gnews/31/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [大直播后记：5月份要开始的疫苗灾难会让你忘掉现在的一切战争](/content/gnews/32/README.md)
+ ` 雅典娜GNotes`
+
+### [我要饿死了，我能反抗吗？](/content/gnews/33/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [欧洲市场开盘时将下跌；法国马克龙将连任总统](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022/04/25 英喜时事速递](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中日财经爆｜沪指大跌失守3000点](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [北京难逃封城灾难！](/content/gnews/37/README.md)
  ` mayflowertranslate`

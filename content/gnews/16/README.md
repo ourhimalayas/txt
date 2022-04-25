@@ -2,42 +2,53 @@
 ---
 
 
-## 有声|俄乌战争以来多国限制食用油出口
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2411251/)
+## 北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411411/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰与俄罗斯在全世界葵花油出口市场中所占份额比率高达80%。自乌克兰战争爆发以来，全球食用油价格飙升。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-24-at-9.30.32-PM.png)
-据外媒4月22日报道，世界上最大的棕榈油生产国印度尼西亚，宣布将于4月28日起，禁止所有食用油及其原材料的出口。
+编译：七叶之芒
 
-暨印尼限制食用油出口后，阿根廷也提高了豆油的出口税。芝加哥豆油期货价格涨幅高达 3.5%。吉隆坡棕榈油早盘上涨 0.7%。巴黎的油菜籽和北美的油菜籽期货也上涨至新高。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
 
-疫苗危机，原料通胀与粮食危机在不断威胁全世界各国在温饱线上挣扎的底层家庭，也在不断蚕食中产者所剩不多的储蓄和希望。食物短缺让马来西亚，斯里兰卡，伊拉克等国民众走上街头抗议食品价格高企。
+北京–中国首都北京周末警告说，科威德已经在该市扩散了一周而未被发现，而且随着调查的进行，还会发现更多的病例。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3174.png)
+中共国的首都北京报告说，周末的Covid病例激增，周一开始在朝阳的商业区进行大规模检测。在该区，图中的一个社区被列为高风险区。
+姜启明｜中国新闻社｜盖蒂图片社
 
+周一，朝阳主要商业区开始对在该地区生活或工作的任何人进行为期三天的大规模检测，该地区是许多大使馆和外国企业的所在地。自上周五以来，北京新报告的42例Covid病例中，该区占了大多数。
 
+在北京，只有特定的公寓楼被锁住了。学校大多保持开放，但朝阳商务区下令停止所有的个人团体活动和培训课程，包括艺术和体育。
 
+在主要商业区以南一个地铁站的一小部分地区，所有餐馆、娱乐场所、室内健身房和非必要的业务将从周一早上开始关闭。据国家媒体报道，当地政府补充说，受影响地区的居民一般应在家里工作，除非有必要，否则不要外出。
 
-文字版原文：[俄乌战争以来多国限制食用油出口](https://gnews.org/zh-hans/2404528/)
+北京的病例增加，是因为中国大陆面临着自2020年初以来最严重的Covid疫情。中共国一直坚持严格的零Covid政策，利用迅速封锁、隔离和旅行限制来控制病毒的爆发。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+中国最大的城市–上海的大部分地区仍然处于长期封锁状态，自周五以来报告了100多起与Covid有关的新死亡病例。
+
+在全国范围内，上海迄今为止占了最多的Covid病例，周日报告了2400多例有症状的病例和16900多例无症状病例。
+
+据Wind资讯报道，北京和上海根据GDP位列中共国十大省级地区。数据显示，北京的经济在第一季度增长了4.8%，与全国水平持平，而上海的经济增长了3.1%，因为有针对性的封锁在3月份上升。
+
+市政府表示，受北京朝阳商业区最新一轮案件影响的服务业工人每天可以获得100元（15.38美元），最多21天。
+
+据了解，病例激增和大规模检测的消息促使当地人急于囤积食物。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3175.png)
+
+来源：[China’s capital city warns of more Covid cases and begins mass testing in the central business district](https://www.cnbc.com/2022/04/25/chinas-capital-city-beijing-begins-covid-testing-in-business-district.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

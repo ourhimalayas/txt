@@ -2,24 +2,41 @@
 ---
 
 
-## 德国总理舒尔茨回避澄清问题
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2411326/)
+## 喜悦辣评
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411551/)
 
-[MONA JAEGER](https://www.faz.net/redaktion/mona-jaeger-14222921.html)的评论，更新于2022年4月22日21:37(CET)
-翻译：蔚蓝的天/校对:   trustguo
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-3-1.jpg)图片：不再亲密：2022年2月15 舒尔茨访问普京。/ EPA
-德国联邦总统弗兰克·瓦尔特·施泰因迈尔谈到了德国对俄罗斯政策中的错误，也谈到了他本人对普京的看法是错误的。他这样做，不仅为过去20年中所有承担责任的政治家打开了一扇门，而且也为施泰因迈尔所属的社民党（[SPD](https://www.faz.net/aktuell/politik/thema/spd)）打开了一扇门，但舒尔茨总理拒绝开启这扇门。即使在战争结束后，他也不想让其政党的部分错误政策被重新评估。相反，他认为社会民主主义是受害者的角色，其党员总是被描绘成不可信任的人，并且在历史上的作用也被歪曲了。
+作者：木林
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+中共党媒“人民网”4月18日报导，孙春兰4月15日至16日在上海调研指导疫情防控工作，期间曾前往黄浦区老西门街道梦花街区域、南京东路街道平望居民区……
 
-舒尔茨（[Scholz](https://www.faz.net/aktuell/politik/thema/olaf-scholz)）不愿回顾过去是可以被理解的。因为如果他和其他人这样做，社民党将会被卷入最猛烈的风暴中。对与俄罗斯良好的和平共处的错误和危险的理解在社民党中已经渗透得太深，这也可以从知名的社会民主党人士最近的言论中看出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3176-edited.png)
 
-**这段历史不易回避**
-同样令人愤慨的是，[Manuela Schwesig](https://www.faz.net/aktuell/politik/thema/manuela-schwesig)无意对梅克伦堡-西波美拉尼亚的北溪二号项目中的掩盖策略做一澄清。 五十年前，和平偶像维利·勃兰特已经比今天的许多社会民主党人走得更远，正是他的角色最近被许多党内人士歪曲了。
+就在报道的当天，网络上就出现了孙总理在上海豫园集团总部大厦楼顶摆拍的相关照片。
 
-现在人们喜欢声称，而不仅仅是社民党的政治家，他们对普京的看法是错误的。事实是：普京从格罗兹尼到格鲁吉亚再到叙利亚的暴行，并没有引起社会民主党领导层的太多关注。同样他们对普京谋杀和剥夺其政治对手的权力的态度也是如此。这段历史是无法回避的。德国与俄罗斯关系的重新调整才刚刚开始，另外社民党现在是德国的执政党。但是，舒尔茨打算如何拯救与普京有联系的原社民党，同时又成为北约东翼国家的可靠伙伴呢？
+这位习一尊的钦差大臣这一趟上海之行真是不易。实地走访的过程中，处处遇到群情激愤的受饿百姓“砸场子”，弄得孙大总理落荒而逃，最终无奈只好跟做贼似的躲在了国企楼顶摆拍宣传。
 
-原文链接：[https://www.faz.net/aktuell/politik/russland-politik-der-spd-olaf-scholz-scheut-die-aufklaerung-17976179.html](https://www.faz.net/aktuell/politik/russland-politik-der-spd-olaf-scholz-scheut-die-aufklaerung-17976179.html)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+为了给习主席挣面子，为了给党国装样子。孙大婊豁出去了，用口罩遮住她这张老脸，誓要把这场“抗疫大戏”一演到底。眼不见，心不烦，找个楼顶把戏演。人民群众的呼声全当没听到，反正孙大婊就是要把戏演足。演穿帮了不要紧，舆论控制，疯狂删帖、封号，这一套流程下来能看到真相的人真是少之又少。“我不管你们信不信，反正我演完了，把不信的人嘴巴都封住。没有人再吭声儿了，我就当你们全信了。”
+
+把戏演足的孙大婊，在央视的采访当中，着重强调了按照“总书记”的要求，坚持党中央的“动态清零”方针。说白了就是这次“新冠大革命”的最终决策者就是总书记习近平。俗话说“婊子无情，戏子无义”。在中国最现代化都市的大上海，饿殍遍野、惨绝人寰局面的这口“大锅”，直接甩给了伟大领袖习主席。
+
+无论如何，这“动态清零”的方针一定要贯彻到底。只是苦了习惯在灯红酒绿下生活的上海百姓。
+
+这一份荒唐，一定会写入史册。
+
+古有赵高朝堂上指鹿为马，今有孙大婊大上海“掩耳到零”。
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

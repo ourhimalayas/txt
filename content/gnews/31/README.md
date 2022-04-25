@@ -2,41 +2,43 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410866/)
+## 4/25/2022 银河快讯：即将上任的韩国政府代表团访问日本；日本新增中共病毒（新冠病毒covid-19）15人死亡，38,579人被感染
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2411168/)
 
-#### **整理：枳实** **
-** **美工：精灵蓝** 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/56824d3c2ddc4c5491e5613e9699b23a_13_11.jpeg)
+[图片来源](https://topics.smt.docomo.ne.jp/article/tbs/world/tbs-6014724)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-19.png)图片：雅典娜农场设计组 精灵蓝
+**1. 即将上任的韩国政府代表团访问日本**
 
+[据时事通讯社4月24号报道，韩国当选总统尹锡悦的 “政策协议代表团 “将于24日至28日访问日本，并与日本政府官员和国会议员会面。据称, 代表团将在外务省访问外务大臣，他们还寻求与岸田文雄首相会面，将就恢复在文在寅政府时期恶化的日韩关系以及朝鲜局势交换意见。自民党外交部会长佐藤正久表示：”岸田首相不可能出席” 韩国总统就职典礼。](https://www.jiji.com/jc/article?k=2022042400215&amp;g=int)
 
-雅典娜疫情更新（2022年 4月25日）
+**2. 日本24日新增中共病毒（新冠病毒covid-19）38,579人，15人死亡**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+[据NHK 4月24号报道，24日日本新增38,579人感染中共病毒（新冠病毒covid-19），包括在机场被隔离的人在内，日本国内感染的总人数为7,668,375人，加上游轮上感染的712名乘客和船员，总计7，669，087人。同日还有15人死亡：千叶县4人，北海道2人，冈山县2人，三重县1人，京都县1人，宫崎县1人，山口县1人，枥木县1人，福冈县1人和茨城县1人。 死亡总人数为29,322人，包括在日本被确认感染的29,309人和邮轮上的13人。另一方面，症状改善后出院的人数为7,135,403人。](https://www3.nhk.or.jp/news/html/20220424/k10013597051000.html)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+**3. 经济再生相建议考虑逐步放宽对口罩的要求**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-158.png)图片：雅典娜农场设计组 精灵蓝
+[据每日新闻4月24号报道，山际经济再生相在谈及关于佩戴口罩被推荐为防止中共病毒（新冠病毒covid-19）的措施时表示，”我认为，当你在户外露天时，确实不需要佩戴口罩”，并建议可以考虑逐步放宽这一做法。然而，他也指出，”在这之前还有许多步骤”。 他以放宽户外佩戴口罩为例，认为 ：”现实的做法是积累科学依据，慢慢增加不需过度使用口罩的场合，逐步放宽（口罩的使用）。”](https://news.yahoo.co.jp/articles/9097d9d8a7cdcf9355c6b5bd76c91a1b0126b62f)
 
+**4.** **截至** **7月底，6100种食品价格或平均上涨11%**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-45.png)图片：雅典娜农场设计组 精灵蓝
+[据NHK 4月24号报道，私营研究公司帝国数据银行对日本105家主要食品和饮料制造商进行了一项调查。超过半数的54家，在今年1月至7月期间提高了其产品的价格，或正计划这样做。就产品类别而言，加工食品，如杯面、火腿和冷冻食品，由于小麦和其他成分的价格上涨，以及高油价导致的包装材料价格上涨，大约2900种产品的价格将平均上涨12%。](https://www3.nhk.or.jp/news/html/20220424/k10013596301000.html)
 
+**5. 京都和其他城市三年来将首次迎来没有紧急状态的黄金周**
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+[据每日放送4月24号报道，黄金周于4月29日开始。 这将是三年来大阪、兵库和京都在都没有宣布紧急状态下的第一个假期。京都连续两年在黄金周期间被宣布为紧急状态。今年，尽管人们对第七波中共病毒（新冠病毒covid-19）感到担忧，但将在三年来第一次在无紧急状态下迎来一个长假。近畿地区的新病例数为：大阪府2733例，兵库县1438例，京都府841人，滋贺县356人，奈良县262人，和歌山县205人。](https://news.yahoo.co.jp/articles/d1651710708564ca4dbfe4db4a687b5224e5ef96)
 
-发布：*wenly*
+**6. 大约30%的资产管理公司没有建立ESG投资系统**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[据NHK 4月24号报道，为了实现脱碳社会，所谓的 “ESG投资 “正吸引着越来越多的关注，据透露，大约30%的处理相关投资信托的资产管理公司没有专门的部门，也没有建立起相关体制。 金融监管局已决定加强监督。此外，大约70%的受访ESG投资信托基金将其全部或部分管理外包给外部机构，而一些公司表示，他们对外包伙伴的ESG投资战略没有具体了解。](https://news.yahoo.co.jp/articles/d1651710708564ca4dbfe4db4a687b5224e5ef96)
+
+**【日本银河系农场-阿尔法星球】**
+
+素材：文德
+
+作者：Totoro
+
+校对：Tagomi
 
  
 
