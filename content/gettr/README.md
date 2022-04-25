@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 10:58 AM (UTC)`
+
+2022.04.25  新中国联邦 | 军情室  俄罗斯部署彈道导弹目标乌東，俄羅斯布良斯克石油設施爆炸，中共军机坠毁惊现俄羅斯教官，中共從烏克蘭獲得的軍備技術
+![img](https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 7:05 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -151,13 +158,6 @@
 
 2022年4月24日 俄乌战争战况播报
 ![img](https://media.gettr.com/group9/origin/2022/04/24/17/75fa0380-6c52-acce-d0c3-c719bbcdfdc7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/24/2022 3:40 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月23日第50天当日救援统计：<br/>Medyka救援站接待：约268人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约14171人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 50 - Date: April 23, 2022 :<br/>Medyka Rescue Station Reception: about 268 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 14171 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group31/getter/2022/04/24/15/adacf484-51b7-09d6-eb9f-2bf4f5d9a2e2/6879c604ca02a0a7e772c6e1fa959038.jpg)
 
 ---
 
