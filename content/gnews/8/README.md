@@ -2,58 +2,37 @@
 ---
 
 
-## 塔利班下令禁止TikTok等软件 称“误导”年青人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2410043/)
+## 普京病成这样了？脸脖浮肿、驼坐、单手紧抓桌沿、脚打拍子
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2410108/)
 
-翻译: 里奇
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-10.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-25-104513.jpg)图片来源:英国广播公司
+翻译/编辑：幸运草
+发稿：中华联邦公民
+德国纽伦堡正义农场
 
-塔利班已下令禁止视频共享应用程序 TikTok 和在线多人游戏 PUBG，坚称它们正在让阿富汗年轻人“误入歧途”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0425-4.jpg)
 
-该激进组织表示，它还将禁止电视频道播放该组织认定为“不道德的素材”。
+俄罗斯总统普京与俄国国防部长绍伊古4月21日在克里姆林宫会面的视频，再掀起对普京健康状况的热议。一些观察家认为，从俄罗斯入侵乌克兰以来，普京健康似在迅速恶化。
 
-这是在最近禁止音乐、电影和电视肥皂剧之后发生的。
+电视转播画面显示，普京在和绍伊古会谈时，脸部、脖部浮肿，略微含胸驼背、头部前倾地坐在椅上，右手却紧抓桌子，右脚间歇在地上打拍子，神态怪异。
 
-塔利班在去年掌权时承诺对政府采取更温和的态度，但越来越多地限制自由，尤其是女性的自由。
+基辅独立报国防记者波诺马连科发推说，“这只是我(的问题)还是普京真的随着战争每一天过去，就看起来更不健康了？”、“现在和2月底之间，我可看出(普京外观)有巨大差异”。
 
-该组织以其严厉的伊斯兰统治而闻名，这是其在 1996 年至 2001 年间首次执政的特点。
+前英国国会议员兼小说家门施转推有该视频链接的推文，并表示，我之前报道过，普京患有帕金森，“这里你可见到他紧抓着桌子，所以看不到他颤抖的手，但他无法让脚停止抖动”。
 
-塔利班发言人伊纳穆拉·萨曼加尼表示，最新的禁令对于“防止年轻一代被误导”是必要的。
+普京自2月24日下令俄军入侵乌克兰以来，他健康状况就一直遭到质疑。普京最近一次露面时，他的脸和脖子看起来浮肿，让专家臆测他可能是在服用类固醇、或在接受化疗。
 
-但目前尚不清楚禁令何时生效，持续多长时间。
+根据俄罗斯调查新闻机构Proekt在4月1日报道，有医生团队经常去看普京：从2016年至2020年，一名甲状腺癌外科医生共去看了普京35次，另一名耳鼻喉医师去看了普京59次。
 
-这是该组织自去年 8 月上台以来首次禁止应用程序。
+据报道，在绍伊古建议下，普京也一直在使用替代疗法，包括浸泡在“装有充满鹿茸血液萃取物的浴缸”中养生。鹿血被认为可以改善心血管系统，并使皮肤恢复活力。
 
-BBC 阿富汗服务编辑 Hameed Shuja 说，最近几个月，TikTok 和 PUBG 与年轻的阿富汗人的关系变得更加紧密，因为许多其他形式的娱乐都被禁止了。
+美国前总统特朗普的俄罗斯顾问希尔2月告诉Politico，普京可能因为背部问题，在吃高剂量类固醇。
 
-我们的同事说，TikTok 尤其受到喜欢拍摄幽默短片并将其发布在平台上的年轻人的欢迎。
+原文出处：
 
-PUBG，是绝地求生的简称，是一款由韩国开发商打造的在线射击游戏，也相当火爆。前政府之前试图禁止 PUBG 但以失败告终。
+[Putin’s Health Questioned After Video of Him Gripping Table Circulates](https://www.newsweek.com/vladimir-putin-health-speculation-meeting-video-1699854)
 
-近年来，阿富汗的互联网用户数量与青年人口一起迅速增长，目前约有 900 万用户。
-
-该国 3900 万人口中近三分之二年龄在 25 岁及以下。
-
-该禁令于周四宣布，同一天，四次单独的爆炸案袭击了阿富汗各地的城市，包括在马扎里沙里夫市的什叶派清真寺。
-
-至少有31人丧生，87人受伤。伊斯兰国组织承认实施了这次袭击。
-
-周四，国家通讯社 Bakhtar News 报道说，塔利班逮捕了袭击清真寺的主谋。
-
-新闻来源: 英国广播公司 [Afghanistan: Taliban orders TikTok, PUBG ban for ‘misleading’ youths](Taliban%20orders%20TikTok,%20PUBG%20ban%20for%20'misleading'%20youths)
-
-* * *
-
-审核：文乐
-校对：小东
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
+[Bloated Vladimir Putin video heightens theories Russian leader is sick](https://nypost.com/2022/04/22/vladimir-putin-video-heightens-theories-russian-leader-is-sick/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/德农二维码-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

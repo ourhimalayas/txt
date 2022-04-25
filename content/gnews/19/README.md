@@ -2,27 +2,29 @@
 ---
 
 
-## 樱花时政┃日本官房副长官祝贺马克龙连任 强调法日印太合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2409725/)
+## 中共觉得自己该活到100岁，老百姓活到60岁就该干掉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409812/)
 
-撰稿：东京樱花团/百花李香
+**整理/编辑：小红帽  **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-552.jpg)[图片来源](https://www.google.com/search?q=%E4%BC%8A%E6%9B%BC%E7%BA%BD%E5%B0%94%C2%B7%E9%A9%AC%E5%85%8B%E9%BE%99&amp;sxsrf=APq-WBt5DKe2-i)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_from_2022-04-25_15-56-07.png)图片来源：郭文贵先生4月24日直播视频
 
-在4月25日的新闻发布会上，内阁官房副长官矶崎仁彦祝贺马克龙在法国总统选举中再次当选，他表示，希望继续与马克龙总统领导的法国紧密合作。
 
-有关法日关系，矶崎强调，两国关系是“一个重要而特殊的合作伙伴，共享自由、民主、人权和法治的普世价值。”他希望加强在印太地区的合作以及在应对俄罗斯入侵乌克兰等问题上深化合作。矶崎表示，“这是一个结束残暴的侵略和保护和平与秩序的关键时刻。从来没有一个时期比现在更需要七国集团（G7）团结一致。”
+2022年4月24日，郭文贵先生在直播中爆料，在中南坑里，像江泽民、朱镕基等人，每个都想活到100岁，而对于普通老百姓，最好在60岁以后全干掉。
 
-信息源：[マクロン大統領再選に「心より祝意」　磯崎副長官、日仏連携の重要性強調](https://news.yahoo.co.jp/articles/def540207cbb0be9cf94b137743debe7a80a0a78#:~:text=%E3%83%9E%E3%)
+郭先生说，现在共产党要求老百姓养老靠自己。养老靠国家的话，你就是不爱国。但是，在中南坑里面，朱镕基都活得快100岁了。江泽民也都快100岁了。哪个不活到90岁，100岁？你觉得这仅仅是因为医疗条件好吗？还是大家都住空调房？他们绝大多数是用血清和世界上医疗不让用的，这些反人道的办法来养活他们的生命。那些中南坑的老领导，活90多岁、100岁是国家的福气。邓小平死了大家都哭，郭先生还哭了。郭先生问：“你觉得老百姓要死了，杨改兰死了有几个人哭？”
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+郭先生认识的军队的一个人曾经跟郭先生发生很大的争执。那位军人认为，中国有6个亿人正好。老人占1/3，孩子占1/3，中年人占1/3，那这个国家就强大了。这个人现在是习近平最相信的，军队里的人。郭先生问道：“按你这说，咱到哪天就执行非自然死了？很多老人都该枪毙了？”他回答：“对！”这是中共发自内心的想法，毫不掩饰。像金灿荣、张召忠，还有胡锡进，发自内心就觉得自己可以活100岁，你们这老百姓最好60岁以后全干掉，直接注射毒针。现在找美国人把你干掉，用疫苗把你干掉，已经对你很客气了。 
+
+资料来源：[郭文贵先生4月24日盖特直播](https://gettr.com/streaming/p16w4d7c25f)
+
+发布：  文武全才
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
