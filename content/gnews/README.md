@@ -15,62 +15,62 @@
 
 ---
 
-### [中共几周内将士兵、船只和战斗机带到所罗门群岛](/content/gnews/1/README.md)
+### [大直播后记：七哥对美国台湾上海未來的前景预测](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：南希佩洛西到访台湾的情报](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [中共主导了美国军事供应链](/content/gnews/3/README.md)
  ` topnews`
 
-### [全球食品通胀飙升 印尼禁止棕榈油出口](/content/gnews/2/README.md)
+### [大直播后记：中共攻台妄图利用台积电为抓手干掉美元](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [中共几周内将士兵、船只和战斗机带到所罗门群岛](/content/gnews/5/README.md)
+ ` topnews`
+
+### [全球食品通胀飙升 印尼禁止棕榈油出口](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [封城蔓延至北京，朝阳区首先进行核酸检测](/content/gnews/3/README.md)
+### [封城蔓延至北京，朝阳区首先进行核酸检测](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共计划经济给中国人带来一场灾难](/content/gnews/4/README.md)
+### [中共计划经济给中国人带来一场灾难](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [上海当局搭建两米围栏封锁居民 引发市民不满](/content/gnews/5/README.md)
+### [上海当局搭建两米围栏封锁居民 引发市民不满](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯和中共海军舰艇在日本西南部水域穿行](/content/gnews/6/README.md)
- ` topnews`
-
-### [日本失踪船只十人确认遇难](/content/gnews/7/README.md)
+### [日本失踪船只十人确认遇难](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.25A）&#8211;严重严重严重过敏体质打新冠疫苗了吗](/content/gnews/8/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.25A）&#8211;严重严重严重过敏体质打新冠疫苗了吗](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Nancy Pelosi去台湾](/content/gnews/9/README.md)
+### [共产党没有平等、博爱、包容](/content/gnews/12/README.md)
  ` 加拿大温哥华英里农场`
 
-### [德前总理称无法长期“孤立”俄罗斯](/content/gnews/10/README.md)
+### [德前总理称无法长期“孤立”俄罗斯](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [佛州州长签法案禁止学校等场所的批判种族理论——民主党提起诉讼](/content/gnews/11/README.md)
+### [佛州州长签法案禁止学校等场所的批判种族理论——民主党提起诉讼](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：赵立坚就上海封城发帖引大量愤怒评论](/content/gnews/12/README.md)
+### [秘翻在线：赵立坚就上海封城发帖引大量愤怒评论](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [引领人类文明不断进步才是世界主导者](/content/gnews/13/README.md)
+### [引领人类文明不断进步才是世界主导者](/content/gnews/16/README.md)
  ` 历史组`
 
-### [普京未能在战场上实现他的巨大野心 &#8211; 拜登总统](/content/gnews/14/README.md)
+### [普京未能在战场上实现他的巨大野心 &#8211; 拜登总统](/content/gnews/17/README.md)
  ` 美国政要直译推`
 
-### [樱花时政┃中共疫情封控政策导致外资芯片大厂撤离](/content/gnews/15/README.md)
+### [樱花时政┃中共疫情封控政策导致外资芯片大厂撤离](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京疫情升温 朝阳区封控管理](/content/gnews/16/README.md)
+### [北京疫情升温 朝阳区封控管理](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
-
-### [上帝给人类带来最多的是包容、博爱](/content/gnews/17/README.md)
- ` 加拿大温哥华英里农场`
-
-### [新中国联邦的“G系列”](/content/gnews/18/README.md)
- ` 加拿大温哥华英里农场`
-
-### [樱花时政┃上海现升级版封锁铁丝网 与动物园同款](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [加拿大国际毕业生逗留时间将被延长](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

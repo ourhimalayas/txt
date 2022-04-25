@@ -2,53 +2,34 @@
 ---
 
 
-## 日本失踪船只十人确认遇难
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2408471/)
+## 封城蔓延至北京，朝阳区首先进行核酸检测
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2408508/)
 
-翻译：噜噜咪
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-복사본.jpg)封城蔓延至北京，朝阳区首先进行核酸检测 网络图片
+据网易新闻暨澎湃新闻4月24日报道，据北京市疾控中心副主任、全国新型冠状病毒肺炎专家组成员庞星火和北京市委宣传部对外新闻处处长田伟介绍，朝阳区被定为高风险地区，将从4月25日起对生活、工作在朝阳的人员进行核酸检测，25日、27日、29日每天检测1次。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+惨无人道的封城在上海还没有结束，人间炼狱的模式蔓延到了北京，朝阳市首当其冲被认定为高风险地区。接下来可以想象的，全员核酸检测，强制隔离感染者和疑似感染者，甚至是婴幼儿。没有提前备粮的民众就算饿死、病死、跳楼死、上吊死，也无法动摇中共对老百姓的铁石心肠。与其被隔离、封城而死，莫不如奋起反抗，为自己和下一代争取一个生存的空间。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-539.jpg)2022年4月24日共同社拍摄的这张照片中，一艘渔船从宇多罗港出发，在日本北海道县沙里寻找失踪的观光船“Kazu 1”号。
-
-日本海岸警卫队的直升机在日本沙里知床半岛对失踪观光船“Kazu 1”号上的失踪人员进行搜救行动。
-
-东京，4月24日（路透社） – 海岸警卫队周日表示，目前为止，在该国北部海岸失踪的一艘日本观光船上发现的10人已被确认死亡。
-
-这艘船于周六失踪，船上有26人在北海道主要岛屿附近巡航。
-
-海岸警卫队在一份公告中说，在这10人中，7人是男性，3人是女性。
-
-船上有24名乘客，包括2名儿童，以及2名船员。
-
-当地渔业合作社的一名官员说，该地区水域的流冰最晚持续到3月，现在的水温是2到3摄氏度（36-37华氏度）。
-
-他说：“在这样的水中仅仅几分钟，你的意识就会开始变得模糊。”
-
-在“Kazu 1”号在以野生动物和壮观的海岸线而闻名的知床半岛附近遇到麻烦之后，当局正在使用飞机和巡逻艇，包括海岸警卫队的七艘船、三架飞机和四架直升机，搜寻乘客和船员。
-
-海岸警卫队在星期六下午从船员那里听说，水正在淹没船只。据共同社报道，最后一次听到它的消息是在大约两小时后，它与游船运营公司联系，说它的龙骨正以30度的角度倾斜。
-
-海岸警卫队说，目前还不清楚这艘船发生了什么，该公司没有人可以发表评论。
-
-新闻来源：[Search continues as 10 people from missing Japanese boat confirmed dead](https://www.reuters.com/world/asia-pacific/four-people-found-missing-japan-ship-condition-unknown-nhk-2022-04-24/)
+新闻参考链接：[https://www.163.com/dy/article/H5O15RS00530M570.html](https://www.163.com/dy/article/H5O15RS00530M570.html)
 
 * * *
 
-素材：peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
+
+
+
+
+
 
  
 

@@ -2,62 +2,42 @@
 ---
 
 
-## 佛州州长签法案禁止学校等场所的批判种族理论——民主党提起诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2408427/)
+## COVID-19疫苗副作用集萃（2022.4.25A）&#8211;严重严重严重过敏体质打新冠疫苗了吗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2408454/)
 
-翻译: 里奇
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+整理/编辑：机器猫
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-7.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+帖子原文：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-538.jpg)
+原文作者：小红薯6224FD80
 
-佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五签署了一项法案，规定学校和企业不得“有意或无意地”教授“与生俱来的种族主义、性别歧视者或压迫者”。
+严重严重严重过敏体质打新冠疫苗了吗
 
+曾因为过敏窒息过，过敏周期按年算，最长一次5年，5年期间每一天醒来手上都是血，无论睡前戴手套还是给手指上缠绷带都一样，过敏源做了好几次了，湿疹荨麻疹皮炎循环穿插，偶尔过敏性水肿接触性皮炎等等，吃激素摸激素喝中药，因为家中有自己救助的小流浪所以真的想打疫苗，很焦虑怕自己连累小动物，可是又很担心打了自己反而更危险，去年有过急诊被拒之门外的经历，也有打疫苗过敏的经历，万能的大数据想问问有没有和我差不多严重程度的jm打了疫苗吗？有引发过敏吗？#湿疹#慢性荨麻疹#脂溢性皮炎#过敏体质#严重过敏体质
 
-```
-周五，德桑蒂斯州长在海厄利亚花园(Hialeah Gardens) 的 Mater Academy Charter特许中学初中/高中举行的新闻发布会上，
-签署了众议院第 7 号法案或“个人自由”成为法律。
-```
+#湿疹#严重过敏体质#过敏体质#慢性荨麻疹#脂溢性皮炎
 
-新法律将结束佛罗里达州的企业和教育灌输，并将于 2022 年 7 月 1 日生效。
+精选评论：
 
-佛罗里达州州长罗恩·德桑蒂斯周五签署了一项有争议的法案，批评人士称该法案将大大限制学校的种族教育。
+汪春华 回复：过敏体质还救助小流浪，这会更加加重过敏。
 
-HB 7，正式名称为“个人自由”议案，禁止教育工作者教授与种族相关的某些主题，部分目的是防止教师因历史事件而让学生对他们的种族感到内疚或羞耻。
+（.‵ω′.） 回复：别打别打，我过敏性鼻炎，打完直接特异性皮炎了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3129.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3128.png)图片来源：小红书
+素材来源：
 
-“我们相信教育，而不是灌输” 德桑蒂斯在新闻发布会上说。“我们认为，在佛罗里达州自由的一个重要组成部分是在未经您同意的情况下免受压迫性意识形态反对您的自由。”
+[严重严重严重过敏体质打新冠疫苗了吗](https://www.xiaohongshu.com/discovery/item/625d697a000000002103faea?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761825)
 
-该法案于3月由佛罗里达州立法机构通过，禁止教育工作者教授学生批判性种族理论，即“一个种族、肤色、国籍或性别在道德上优于另一种族、肤色、国籍的成员，或性别”，并且“一个人，由于他或她的种族、肤色、国籍或性别，无论是有意还是无意，是与生俱来的种族主义者、性别歧视者或压迫者。”
-
-德桑蒂斯说：“我们不会用你的税款来教我们的孩子憎恨这个国家或憎恨彼此。”
-
-该法案签署成为法律几分钟后，民主党人提起诉讼，质疑新法律，声称它违反了第一和第十四修正案的权利。
-
-塔拉哈西民主党人报道：
-
-来自佛罗里达州各地的一群原告对州长罗恩·德桑蒂斯、司法部长阿什利·穆迪和其他质疑 HB7 合宪性的人提起了联邦诉讼。
-
-原告包括一名来自塔拉哈西的教育工作者、一名来自海牛县的高中教师、一名中央佛罗里达大学的教授和一名秋季入学幼儿园的年轻女孩。
-
-他们对周五签署的众议院第 7 号法案提出指控，称该法案禁止 K-12 学校的批判性种族理论而违反了他们的第一和第十四修正案权利。他们周五在佛罗里达州北区的美国地方法院提起诉讼。
-
-新闻来源:[Governor Ron DeSantis Signs Bill Banning Critical Race Theory in Schools and Workplaces into Law — Democrats File Lawsuit](https://www.thegatewaypundit.com/2022/04/governor-ron-desantis-signs-bill-banning-critical-race-theory-schools-workplaces-law-democrats-files-lawsuit/)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

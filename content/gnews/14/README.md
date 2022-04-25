@@ -2,80 +2,62 @@
 ---
 
 
-## 普京未能在战场上实现他的巨大野心 &#8211; 拜登总统
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2408423/)
+## 佛州州长签法案禁止学校等场所的批判种族理论——民主党提起诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2408427/)
 
-**美国国务院： **
-拜登总统@POTUS：我们在国内的团结，我们与盟友和伙伴的团结，以及我们与乌克兰人民的团结，正在向普京发出一个明确无误的信息：他永远不会成功地统治和占领整个乌克兰。 【图中文字：普京未能在战场上实现他的巨大野心 – 拜登总统】
+翻译: 里奇
 
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw): Our unity at home, our unity with our Allies and partners, and our unity with the Ukrainian people is sending an unmistakable message to Putin: He will never succeed in dominating and occupying all of Ukraine. [pic.twitter.com/V4ltUz5EAW](https://t.co/V4ltUz5EAW)
-> — Department of State (@StateDept) [April 24, 2022](https://twitter.com/StateDept/status/1518031975419838467?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
 
 
-**拜登总统： **
-在普京对乌克兰发动无端无理的攻击两个月后，基辅仍然屹立不倒。 泽连斯基总统和他的民选政府仍在继续执政。 我们将继续支持乌克兰人保卫家园的战斗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-538.jpg)
+
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五签署了一项法案，规定学校和企业不得“有意或无意地”教授“与生俱来的种族主义、性别歧视者或压迫者”。
 
 
+```
+周五，德桑蒂斯州长在海厄利亚花园(Hialeah Gardens) 的 Mater Academy Charter特许中学初中/高中举行的新闻发布会上，
+签署了众议院第 7 号法案或“个人自由”成为法律。
+```
 
-> Two months after Putin launched an unprovoked and unjustified attack on Ukraine, Kyiv still stands. President Zelenskyy and his democratically-elected government remain in power.
->  
-> We will continue to support Ukrainians in their fight to defend their homeland.
-> — President Biden (@POTUS) [April 24, 2022](https://twitter.com/POTUS/status/1518291602975989762?ref_src=twsrc%5Etfw)
+新法律将结束佛罗里达州的企业和教育灌输，并将于 2022 年 7 月 1 日生效。
 
+佛罗里达州州长罗恩·德桑蒂斯周五签署了一项有争议的法案，批评人士称该法案将大大限制学校的种族教育。
 
+HB 7，正式名称为“个人自由”议案，禁止教育工作者教授与种族相关的某些主题，部分目的是防止教师因历史事件而让学生对他们的种族感到内疚或羞耻。
 
-**参议员玛莎·布莱克本： **
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” ——罗纳德·里根总统
+“我们相信教育，而不是灌输” 德桑蒂斯在新闻发布会上说。“我们认为，在佛罗里达州自由的一个重要组成部分是在未经您同意的情况下免受压迫性意识形态反对您的自由。”
 
+该法案于3月由佛罗里达州立法机构通过，禁止教育工作者教授学生批判性种族理论，即“一个种族、肤色、国籍或性别在道德上优于另一种族、肤色、国籍的成员，或性别”，并且“一个人，由于他或她的种族、肤色、国籍或性别，无论是有意还是无意，是与生俱来的种族主义者、性别歧视者或压迫者。”
 
+德桑蒂斯说：“我们不会用你的税款来教我们的孩子憎恨这个国家或憎恨彼此。”
 
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
+该法案签署成为法律几分钟后，民主党人提起诉讼，质疑新法律，声称它违反了第一和第十四修正案的权利。
 
+塔拉哈西民主党人报道：
 
+来自佛罗里达州各地的一群原告对州长罗恩·德桑蒂斯、司法部长阿什利·穆迪和其他质疑 HB7 合宪性的人提起了联邦诉讼。
 
-**众议员迈克尓·麦考尔： **
-自拜登就职以来，已有 250 万人越过了他的开放边界。 第42 条款被取消意味着在接下来的五周内有 50万人(非法入境)。 这是我们南部边境历史上最严重的危机。 【附视频，麦考尔议员接受福克斯新闻采访，谈南部边境危机】
+原告包括一名来自塔拉哈西的教育工作者、一名来自海牛县的高中教师、一名中央佛罗里达大学的教授和一名秋季入学幼儿园的年轻女孩。
 
+他们对周五签署的众议院第 7 号法案提出指控，称该法案禁止 K-12 学校的批判性种族理论而违反了他们的第一和第十四修正案权利。他们周五在佛罗里达州北区的美国地方法院提起诉讼。
 
+新闻来源:[Governor Ron DeSantis Signs Bill Banning Critical Race Theory in Schools and Workplaces into Law — Democrats File Lawsuit](https://www.thegatewaypundit.com/2022/04/governor-ron-desantis-signs-bill-banning-critical-race-theory-schools-workplaces-law-democrats-files-lawsuit/)
 
-> 2.5 million people have cross over Biden’s open border since his inauguration. Title 42 being lifted means 500,000 over the next five weeks. This is the worst crisis in the history of our southern border. [pic.twitter.com/m5hWHh1D8F](https://t.co/m5hWHh1D8F)
-> — Michael McCaul (@RepMcCaul) [April 24, 2022](https://twitter.com/RepMcCaul/status/1518260287991959553?ref_src=twsrc%5Etfw)
+* * *
 
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-**参议员比尔·哈格蒂：** 
-[#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 正在对美国的青年——包括在我的家乡田纳西州——发动芬太尼和非法毒品战争，而拜登政府为了他们的政治利益，让我们的南部边境完全开放，从而实现了(中共的)这一目标。
-
-
-
-> The Chinese Communist Party is waging a fentanyl and illicit drug war on America’s youth—including in my home state of Tennessee—and the Biden Admin is enabling it by leaving our southern border wide open for their political gain.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 25, 2022](https://twitter.com/SenatorHagerty/status/1518388067488444416?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·华尔兹：** 
-我很难相信这是一个意外…… 【转推称：尽管台湾不是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的一部分，但拜登的商务部长称台湾为“中华台北”。这是对热爱自由的台湾人民的一记耳光，也是在给 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 开绿灯。】
-
-
-
-> I have a hard time believing this was an accident… [https://t.co/1DPZ0RFLP6](https://t.co/1DPZ0RFLP6)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 25, 2022](https://twitter.com/michaelgwaltz/status/1518415887098945538?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥： **
-“你是我藏身之处，你必保护我脱离患难，以得救的欢呼四面环绕我。” 诗篇 第32章 7节 [#主日圣经](https://gettr.com/hashtag/%23%E4%B8%BB%E6%97%A5%E5%9C%A3%E7%BB%8F) [#SundayScripture](https://gettr.com/hashtag/%23SundayScripture)
-
-
-
-> “You are my hiding place; You shall preserve me from trouble; You shall surround me with songs of deliverance.” Psalm 32:7[#SundayScripture](https://twitter.com/hashtag/SundayScripture?src=hash&amp;ref_src=twsrc%5Etfw) ✝️
-> — Mike Pompeo (@mikepompeo) [April 24, 2022](https://twitter.com/mikepompeo/status/1518261230674321408?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 
