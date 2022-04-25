@@ -2,47 +2,35 @@
 ---
 
 
-## 北京的封锁恐惧在增加
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2412583/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
 
-共同社北京4月25日报道，由于中共国首都开始在中心地区进行大规模的病毒测试，北京最大的朝阳区（有大量外籍人士居住）的人们周一试图储备足够的食物，因为人们对可能的封锁的担忧不断增加。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/B-6.jpg)washingtonpost.com
-为了遏制冠状病毒在该市的传播，共产党领导的政府加强了其激进的清零政策，尽管它已经影响了中共国更广泛的经济并使居民感到沮丧。
+作者：香草山翻译部
 
-在北京，每天新增的COVID-19病例数量从周五的6例增加到周六的22例，促使当地卫生部门加强防疫措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
 
-绝大多数大使馆都位于朝阳，该区有大约350万人口，该区也是许多大公司办公室所在地。周一，人们在COVID-19检测点排队，因为当局要求他们在上班前接受PCR检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
 
-北京的一些日本公司已经要求其员工在家工作。
+文章仅代表作者本人观点，与Gnews无关
 
-在过去的几天里，当地人一直试图储存食品和商品，因为他们已经担心北京在不久的将来可能会像中共国的商业中心上海一样被封锁。
+视频参看：
+[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
+[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
 
-拥有超过2490万人口的上海的部分地区仍然被封锁，居住在封锁区的居民的行动受到严格限制，公共交通也被停止。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-严格的检疫规定也阻止了司机运送货物，使上海人更难获得足够的食物和日常用品。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
 
-在北京，一些居民已经被当局强制留在家中，直到他们被确认为病毒阴性。
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-在朝阳，一位购买了大量蔬菜的50多岁的中国妇女告诉共同社，她囤积了足够 “维持一个月 ”的食物，因为北京“可能会像上海一样被封锁”。
-
-国际货币基金组织在1月发布的《世界经济展望》报告的更新中说，由于政府阻止病毒的努力可能会抑制消费和投资，中共国的经济增长将在2022年放缓到4.8%。
-
-然而，中共国已表示决心继续执行其清零政策，如在爆发时对城市进行封锁，并对来自国外的旅行者进行隔离，即使在今年早些时候北京冬奥会和残奥会结束后也是如此。
-
-在中共国人们纷纷猜测，执政的共产党不会放松执行清零政策，直到秋季十年一次的党代会结束，习近平主席将在会上获得有争议的第三个领导人任期。
-
-外交事务专家说，尽管高度传染性的奥米克戎变体正在蔓延，但习近平的领导层可能会收紧规定，以炫耀其在控制病毒方面的成就。
-
-在全国范围内，大量的中共国人被认为是被这种全方位的限制所激怒，这种限制现在已经实施了两年多。
-
-**快评**：是的，没错，北京即将实施封锁隔离，比上海更严苛。这些外媒的新闻在印证郭先生情报的准确，但他们不知道中共的邪恶用心，即便知道了也不愿意相信，就像大多数墙内人对中共还抱着幻想。
-
-昨天郭先生在文贵大直播中说，他最痛苦的是看到国人这么自私、懦弱、无知，还深深享受其中。上海人有小聪明，北京人有大傲慢。上海人的小聪明伤财，北京人的傲慢不仅会要了自己命还要了他人的命。北京的境况会比上海惨N倍。
-
-参考链接：
-[https://english.kyodonews.net/news/2022/04/7050481d721f-lockdown-fears-grow-in-beijings-biggest-district-of-chaoyang.html](https://english.kyodonews.net/news/2022/04/7050481d721f-lockdown-fears-grow-in-beijings-biggest-district-of-chaoyang.html)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
 
  
 

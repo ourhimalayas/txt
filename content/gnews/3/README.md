@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：任何情况都不会动摇七哥灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413208/)
+## 七哥金句：宗教和信仰之间的最大区别
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413251/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-560.jpg)
+整理:雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-74.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

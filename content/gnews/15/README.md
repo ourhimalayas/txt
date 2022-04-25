@@ -2,26 +2,26 @@
 ---
 
 
-## 大部分对警方在抗议期间的投诉被驳回
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412997/)
+## 保守派加拿大人更加反对政府监控
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2413047/)
 
 ##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509153881.png)图片来源：真北方
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509161241.png)图片来源：卡尔加里先驱报
 
 
-据自媒体《真北方》4月21日报道，渥太华警方的一份最新报告显示，在今年二月份的自由车队运动期间，众多抗议者对警方的大部分投诉均被当局驳回。
+据【卡尔加里先驱报】4月21日报道，最新民意调查显示，意识形态偏右的加拿大人比左翼人士更加反对政府对民众的监控。
 
-报告显示，与2021年相比，今年第一季度对渥太华警方的投诉量激增了3倍多。在收到的327个投诉中，84%与反疫苗护照运动有关，包括指控警方行为违法、过度使用武力和失职等。但其中只有3%的案件被转交给警方独立审查办公室进行调查。
+根据调查结果，有 47% 的受访者表示，他们高度关注政府对加拿大人的监控情况。根据政治派别细分，右倾的加拿大人中关注此问题的比例高达76%，而中间派和左派的比例分别为 48% 和 35%。
 
-据悉，大部分投诉都以”没有意义、无理取闹、事发6个月以上、不符合公共利益，或未经证实”等理由被警方驳回。其中包括在镇压期间发生的残疾妇女被骑警故意踩踏而严重骨折的事件。当局对此的结论是：由于损伤不重，不再予以调查。
+此外，参与调查的大多数加拿大人均反对任何形式的政府监控，只有公共场所的视频监控措施获得了少数人的支持。调查还发现性别、教育程度都会影响受访者的选择。但总体而言，政治观点在人们的反应和回答中影响程度最大。
 
-原文链接：[https://tnc.news/2022/04/21/majority-of-complaints-against-ottawa-police-during-convoy-thrown-out/](https://tnc.news/2022/04/21/majority-of-complaints-against-ottawa-police-during-convoy-thrown-out/)
+原文链接：[https://calgaryherald.com/news/canada/canadian-conservatives-more-opposed-to-government-surveillance-than-the-left-poll](https://calgaryherald.com/news/canada/canadian-conservatives-more-opposed-to-government-surveillance-than-the-left-poll)
 
 上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【自由法兰西 】
-素材/采编 -【文莱】
-校对/审核 -【自由法兰西 】
+撰稿/翻译/听写 -【活力人生】
+素材/采编 -【活力人生】
+校对/审核 -【硫酸羟氯喹64】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 

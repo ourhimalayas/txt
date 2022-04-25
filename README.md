@@ -15,95 +15,95 @@
 
 ---
 
-### [七哥金句：爆料革命改变了中国](/content/gnews/1/README.md)
+### [俄罗斯警告美国不要向乌克兰运送更多武器](/content/gnews/1/README.md)
+ ` Shuizhuyu`
+
+### [七哥金句：人体基因问题](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：中共内斗](/content/gnews/2/README.md)
+### [七哥金句：宗教和信仰之间的最大区别](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：任何情况都不会动摇七哥灭共](/content/gnews/3/README.md)
+### [【粤语配音】2022年4月24日：中国人因为没有信仰被世界抛弃](/content/gnews/4/README.md)
+ ` MOS香港部`
+
+### [上海新冠&#8221;清零&#8221;](/content/gnews/5/README.md)
+ ` The Potomac View`
+
+### [七哥金句：人类不需要共产党](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：大家一定要备粮！](/content/gnews/4/README.md)
+### [马斯克与推特达成 440 亿美元的交易](/content/gnews/7/README.md)
+ ` Shuizhuyu`
+
+### [七哥金句：习绝对敢在台湾使用核武器](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：什么叫马克思主义？](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
+### [上海升级电子门警报器以加强管制](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/6/README.md)
+### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [揭露真正的政坛的现状](/content/gnews/7/README.md)
+### [揭露真正的政坛的现状](/content/gnews/11/README.md)
  ` 加拿大温哥华英里农场`
 
-### [揭露朱善璐，李友等的丑闻丑事](/content/gnews/8/README.md)
+### [揭露朱善璐，李友等的丑闻丑事](/content/gnews/12/README.md)
  ` 加拿大温哥华英里农场`
 
-### [揭露付振华的罪行和背后的阴谋](/content/gnews/9/README.md)
+### [揭露付振华的罪行和背后的阴谋](/content/gnews/13/README.md)
  ` 加拿大温哥华英里农场`
 
-### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/10/README.md)
+### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [保守派加拿大人更加反对政府监控](/content/gnews/11/README.md)
+### [保守派加拿大人更加反对政府监控](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共国是美国最大的反情报威胁](/content/gnews/12/README.md)
+### [中共国是美国最大的反情报威胁](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海市民在暴雨中做核酸检测](/content/gnews/13/README.md)
+### [上海市民在暴雨中做核酸检测](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国在美国芬太尼危机中的角色](/content/gnews/14/README.md)
+### [中共国在美国芬太尼危机中的角色](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/15/README.md)
+### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [不列颠哥伦比亚省医疗护工严重短缺](/content/gnews/16/README.md)
+### [不列颠哥伦比亚省医疗护工严重短缺](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [【蓝枫法律】如何选择遗嘱&amp;信托的执行人](/content/gnews/17/README.md)
+### [【蓝枫法律】如何选择遗嘱&amp;信托的执行人](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [澳大利亚的依赖性使中共将贸易武器化](/content/gnews/18/README.md)
+### [澳大利亚的依赖性使中共将贸易武器化](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [过半加拿大人正面临经济困难](/content/gnews/19/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [【蓝枫法律】：如何确认遗嘱的合法性](/content/gnews/20/README.md)
+### [【蓝枫法律】：如何确认遗嘱的合法性](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [美议员呼吁建乌克兰野战医院，以色列启动战地医院](/content/gnews/21/README.md)
+### [美议员呼吁建乌克兰野战医院，以色列启动战地医院](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大SunWing航班因遭骇客攻击而被全面延误](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [截至4.25 俄乌战事汇总](/content/gnews/23/README.md)
+### [截至4.25 俄乌战事汇总](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [英国向乌克兰派遣特种空勤部队](/content/gnews/25/README.md)
+### [英国向乌克兰派遣特种空勤部队](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [突然过早死亡的情况还在不断发生](/content/gnews/26/README.md)
+### [突然过早死亡的情况还在不断发生](/content/gnews/27/README.md)
  ` xiaobaige`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月25日早](/content/gnews/27/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月25日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [北京的封锁恐惧在增加](/content/gnews/28/README.md)
+### [北京的封锁恐惧在增加](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共将在2025年模拟撞击近地卫星](/content/gnews/29/README.md)
+### [中共将在2025年模拟撞击近地卫星](/content/gnews/30/README.md)
  ` 银河歌舞厅`
-
-### [北京警告说有更多的Covid病例开始在中央商业区进行大规模检测](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [北京将被封城 压力测试席卷全国](/content/gnews/31/README.md)
  ` NFSC News`
