@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 3:05 AM (UTC)`
+
+2022-4-24《鸡血王喜币大作战》 第一百七十五集 嘉宾：齐天二圣、七里香
+![img](https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@globalalliance 4/25/2022 1:52 AM (UTC)`
@@ -150,13 +157,6 @@
 
 2022年4月24日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>从乌克兰救援以来，法治基金和法治社会受捐款是有史以来最高的。而且现在的捐款额远远超过了到乌克兰救援的前线。这说明了中国人的正义和中国人绝对不缺勇士、不缺有良知、不缺真正的有智慧。 希望中国人走向法治民主自由时代的真正的中国人，这就是我们的动力！<br/><br/>4/24/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors!<br/><br/>Since the beginning of the Ukraine rescue, donations to the ROL Foundation and Society are the highest ever. These donations far exceed other front line Ukrainian relief efforts. This shows the righteousness of the Chinese people. There are many courageous, conscientious, and wise Chinese people.  We hope Chinese enter the era of rule of law, democracy and freedom. This is our driving force!
 ![img](https://media.gettr.com/group46/getter/2022/04/24/14/cc657d3f-4629-a482-5a48-10745f8b70ff/out.jpg)
-
----
-
-`@miles 4/24/2022 1:52 PM (UTC)`
-
-【Ukraine Rescue】4/22/2022 After the event of an American man trying to attack Little Sara at the Medyka camp, several French volunteers come over to show support to us and blame that American man.<br/><br/>【乌克兰救援】4/22/2022 在一名美国人在梅迪卡营地试图袭击小Sara的事件后，几名法国志愿者来向我们表示支持并指责那个美国人。<br/><br/>
-![img](https://media.gettr.com/group36/getter/2022/04/24/13/a61f955b-81ca-2c07-19d9-671e4e188eab/out.jpg)
 
 ---
 
