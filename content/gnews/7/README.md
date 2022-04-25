@@ -2,13 +2,33 @@
 ---
 
 
-## 4月25日乌克兰救援行动（图片1-6）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2412591/)
+## 来自专家的怀疑，在上海扩散着&#8221;对北京的不信任&#8221;–中国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2412694/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7B9516A6-F221-47DB-B10D-8E7E96594D28.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5E1AD089-CB72-4809-B86A-6EB950BC33EC.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/96949A6F-D33F-4CF2-968A-0E504CC1F6FB.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4F3CBAF9-34BA-49E5-A41E-B69DFD5C0BAF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/0629B1C6-A039-42A9-8240-97057ED47F4F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A160F06B-065C-48B4-97C9-8D75ECCACD7D.jpeg)
-发布：水涨船高
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-10.jpg)
+【上海时事通讯社】国内专家已经开始质疑中国为彻底遏制新冠状病毒感染所采取的“病毒清零”政策。尽管上海大部分地区已被封禁（城市封锁）了近一个月，但感染人数仍在以每天约2万人的速度增加。 （人们）对中央政府指挥的防疫措施的不信任感正在扩散。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-466.jpeg)图片来源网络
+
+“这种情况不能再继续下去了”。最近，新冠状病毒对策的权威钟南山博士在一本国内英文学术期刊上（发表论文）指出了“病毒清零”政策的局限性，呼吁有必要使社会和经济活动正常化、恢复国际往来。
+
+报道该论文的文章被立即删除，但已在互联网社交网站（SNS）上广为扩散、一石激起千层浪。此外，现居上海的著名经济学家郎咸平在社交网站上发帖报告，他的母亲因等待病毒（核酸）检测结果导致无法接受紧急治疗而死亡。他警告道，“如果不尽快重启经济活动，上海（经济）将螺旋式下降下去”。
+
+上海作为一个国际城市，当初对城市封锁持否定态度，旨在控制其对经济的影响。自3月下旬，当（病毒）开始真正蔓延后，就由中央政府指导防疫措施，“当地人插不上嘴”（市府官员）。
+
+然而，每天都有大量的资金从金融市场流向海外。调查显示，“50%的外国居民考虑在一年内离开这个城市”， “这已不再是防疫，而是北京政治面子的问题。上海的经济被扼杀殆尽”等不满声在市民之间高涨。
+
+当局对批评的蔓延紧张不已。最近，一份名为“四月之声”的上海市民投诉电话的音频汇编发贴在社交网站上，成为热搜话题，但已被立即删除。
+
+参考链接：[ゼロコロナ、識者からも疑問＝上海で広がる「北京不信」―中国(時事通信) – goo ニュース](https://news.goo.ne.jp/article/jiji/world/jiji-220424X653.html)
+
+* * *
+
+素材：zicoround
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

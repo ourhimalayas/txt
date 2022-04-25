@@ -2,53 +2,30 @@
 ---
 
 
-## 北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411411/)
+## 中共打台湾的根本原因是控制芯片，打倒美帝
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2411447/)
 
-编译：七叶之芒
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/22222.jpg)
+4月24日大直播中，郭先生与战友分享中共打台湾的真实目的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+习近平为首的共产党想统治世界的核心目标是击垮美元。只要击垮美元，习近平就想当然认为是干掉了美国，而打台湾是实现这个目标的最好方式。首先世界80%的芯片供应链出自台积电，中共认为打台湾将会影响全世界的芯片市场供应，其次中共常年在台积电实施蓝金黄，企图将台积电的先进技术和人才据为己有。中共的幻想是，当世界经济衰落，而自己手中又牢牢控制台积电，美元自然而然会被击垮，美国将不复存在，这种一举几得的事情是中共的一贯做法，当然在这个条件下，习近平一统全球的目标就会实现。
 
-北京–中国首都北京周末警告说，科威德已经在该市扩散了一周而未被发现，而且随着调查的进行，还会发现更多的病例。
+暂且不说中共企图只利用一件事就能达到无数个目标的愚蠢思维，就仅仅是单纯去做一件事比如拿下台积电，都很难。而从美国方面来看，国家的每一分钱都是Nancy Pelosi批准，她是实际上权力超过总统的人，在经历了一次对中共的妥协之后，也或者说是政治周旋。4月26日她要访问台湾，毫无疑问这是代表美国最高权力和实力的到访。况且此次访问台湾对Nancy Pelosi本人的政治生涯来说也是一次完美升华，无论中期选举输赢与否，访台都将会是最荣耀的一笔。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3174.png)
-中共国的首都北京报告说，周末的Covid病例激增，周一开始在朝阳的商业区进行大规模检测。在该区，图中的一个社区被列为高风险区。
-姜启明｜中国新闻社｜盖蒂图片社
-
-周一，朝阳主要商业区开始对在该地区生活或工作的任何人进行为期三天的大规模检测，该地区是许多大使馆和外国企业的所在地。自上周五以来，北京新报告的42例Covid病例中，该区占了大多数。
-
-在北京，只有特定的公寓楼被锁住了。学校大多保持开放，但朝阳商务区下令停止所有的个人团体活动和培训课程，包括艺术和体育。
-
-在主要商业区以南一个地铁站的一小部分地区，所有餐馆、娱乐场所、室内健身房和非必要的业务将从周一早上开始关闭。据国家媒体报道，当地政府补充说，受影响地区的居民一般应在家里工作，除非有必要，否则不要外出。
-
-北京的病例增加，是因为中国大陆面临着自2020年初以来最严重的Covid疫情。中共国一直坚持严格的零Covid政策，利用迅速封锁、隔离和旅行限制来控制病毒的爆发。
-
-中国最大的城市–上海的大部分地区仍然处于长期封锁状态，自周五以来报告了100多起与Covid有关的新死亡病例。
-
-在全国范围内，上海迄今为止占了最多的Covid病例，周日报告了2400多例有症状的病例和16900多例无症状病例。
-
-据Wind资讯报道，北京和上海根据GDP位列中共国十大省级地区。数据显示，北京的经济在第一季度增长了4.8%，与全国水平持平，而上海的经济增长了3.1%，因为有针对性的封锁在3月份上升。
-
-市政府表示，受北京朝阳商业区最新一轮案件影响的服务业工人每天可以获得100元（15.38美元），最多21天。
-
-据了解，病例激增和大规模检测的消息促使当地人急于囤积食物。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3175.png)
-
-来源：[China’s capital city warns of more Covid cases and begins mass testing in the central business district](https://www.cnbc.com/2022/04/25/chinas-capital-city-beijing-begins-covid-testing-in-business-district.html)
+撰稿、发布：骄子
 
 * * *
 
-审核：Aries的星
-校对：阿伯塔
-发布：花羽
+欢迎订阅我们的GNews账号：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

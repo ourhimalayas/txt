@@ -2,50 +2,53 @@
 ---
 
 
-## 尽管普京嘴硬，制裁已严重打击俄罗斯经济
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2411392/)
+## 北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411411/)
 
-撰稿：Gradient Boost
+编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-558.jpg)
-网络图片
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
 
-俄乌战争近两个月后，克里姆林宫采取了非同寻常的措施来削弱西方的经济反攻。虽然俄罗斯貌似取得一些“象征性的胜利”，然而西方制裁的全面影响已经逐步显现。
+北京–中国首都北京周末警告说，科威德已经在该市扩散了一周而未被发现，而且随着调查的进行，还会发现更多的病例。
 
-随着西方采取行动切断俄罗斯的外汇储备，限制关键技术的进口并采取其他限制措施，克里姆林宫采取了一些严厉措施来保护经济：其中包括将利率提高到高达 20%、实施资本管制以及迫使俄罗斯企业将利润兑换成卢布。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3174.png)
+中共国的首都北京报告说，周末的Covid病例激增，周一开始在朝阳的商业区进行大规模检测。在该区，图中的一个社区被列为高风险区。
+姜启明｜中国新闻社｜盖蒂图片社
 
-这些举动使得卢布的价值在经历了最初的暴跌之后已经恢复，上周央行逆转了部分加息。俄罗斯总统弗拉基米尔·普京（Vladimir Putin）变得胆大妄为，并宣称该国经受住了西方制裁的“闪电战”。
+周一，朝阳主要商业区开始对在该地区生活或工作的任何人进行为期三天的大规模检测，该地区是许多大使馆和外国企业的所在地。自上周五以来，北京新报告的42例Covid病例中，该区占了大多数。
 
-然而，仔细观察人们可以发现，各项制裁正在蚕食俄罗斯的经济：
+在北京，只有特定的公寓楼被锁住了。学校大多保持开放，但朝阳商务区下令停止所有的个人团体活动和培训课程，包括艺术和体育。
 
-该国正在经历二十年来最严重的通货膨胀。经济统计机构 Rosstat 表示，上个月的通货膨胀率达到 17.3%，为 2002 年以来的最高水平。相比之下，国际货币基金组织预计发展中国家的消费者价格今年将上涨 8.7%，高于去年的 5.9%。
+在主要商业区以南一个地铁站的一小部分地区，所有餐馆、娱乐场所、室内健身房和非必要的业务将从周一早上开始关闭。据国家媒体报道，当地政府补充说，受影响地区的居民一般应在家里工作，除非有必要，否则不要外出。
 
-一些俄罗斯公司也被迫关闭。几份报告称，由于缺少零件，一家坦克制造商不得不停止生产。美国官员指出，关闭拉达汽车工厂——一个由俄罗斯公司 Avtovaz 制造并由法国汽车制造商雷诺拥有多数股权的品牌——是制裁生效的迹象。
+北京的病例增加，是因为中国大陆面临着自2020年初以来最严重的Covid疫情。中共国一直坚持严格的零Covid政策，利用迅速封锁、隔离和旅行限制来控制病毒的爆发。
 
-莫斯科市长表示，该市正在考虑因外国公司关闭业务而造成 200,000 人失业。在集装箱公司马士基、UPS、DHL 和其他运输公司退出俄罗斯后，300 多家公司退出，国际供应链基本关闭。同时俄罗斯正面临其债券的历史性违约，这可能会使该国在数年内被冻结在国际债务市场之外。
+中国最大的城市–上海的大部分地区仍然处于长期封锁状态，自周五以来报告了100多起与Covid有关的新死亡病例。
 
-编辑：Gradient Boost
+在全国范围内，上海迄今为止占了最多的Covid病例，周日报告了2400多例有症状的病例和16900多例无症状病例。
 
-发布：疯狂的韭菜
+据Wind资讯报道，北京和上海根据GDP位列中共国十大省级地区。数据显示，北京的经济在第一季度增长了4.8%，与全国水平持平，而上海的经济增长了3.1%，因为有针对性的封锁在3月份上升。
 
-新闻参考链接：
+市政府表示，受北京朝阳商业区最新一轮案件影响的服务业工人每天可以获得100元（15.38美元），最多21天。
 
-[AP News](https://apnews.com/article/russia-ukraine-business-europe-economy-dd7bcb1c09b4020a3f75048c4045fa90)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+据了解，病例激增和大规模检测的消息促使当地人急于囤积食物。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3175.png)
 
+来源：[China’s capital city warns of more Covid cases and begins mass testing in the central business district](https://www.cnbc.com/2022/04/25/chinas-capital-city-beijing-begins-covid-testing-in-business-district.html)
 
-**更多信息，更多关注**
+* * *
 
-[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

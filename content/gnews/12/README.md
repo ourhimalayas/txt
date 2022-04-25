@@ -2,12 +2,35 @@
 ---
 
 
-## 情报信息太重要了
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2412549/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
 
-听写：叮叮         编辑：文宝
+作者：香草山翻译部
 
-我们永远不会忘记的。而且我们现在已经看到共产党不是完了，共产党真的是已经彻彻底底完蛋啦，我给它的时间不会超过2025年。在这之前我们都不要犯天真的毛病，我们尽可能地减少中国少死一些无辜的同胞，共产党灭亡前少带走一个人，在海外不要让共产党拉仇恨，毁掉我们很多海外的华人的形象，影响海外华人的安全，更不能让世界上仇裔、仇华、排华的事情发生。所以说这些战友们，你们提供的情报信息太重要了！太感谢了！谢谢草根兄弟！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
+[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
 
  
 
