@@ -2,10 +2,10 @@
 ---
 
 
-## 北京市民正在恐慌性购买储存物资，以防中共突然且非人性的封城
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2409707/)
+## 为防止人们逃离上海，政府在上海和江苏交界安装了带刺的铁丝网
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2409719/)
 
-04/24/2022 北京市民正在恐慌性购买储存物资，以防中共突然且非人性的封城
+04/23/2022 为防止人们逃离上海，政府在上海和江苏交界安装了带刺的铁丝网
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

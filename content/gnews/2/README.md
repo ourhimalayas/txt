@@ -2,82 +2,54 @@
 ---
 
 
-## 疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居（续）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2409732/)
+## 民生集萃——疫情下服装业遭受重创（2022.4.25C）&#8211;十三行女装加工厂现状
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409829/)
 
-[![NFSC News](https://assets.gnews.org/wp-content/uploads/ultimatemember/22638/profile_photo-190x190.jpeg?1650834842)](https://gnews.org/zh-hans/author/mos2/)
-[NFSC News](https://gnews.org/zh-hans/author/mos2/)
+#### **雅典娜情报组《民生灾难收集专栏》**
 
-作者：纽约香草山佛教部—无尽夏
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-*因为后人，而不是我们自己，将创作我们这个时代的传说故事。  ——约翰·托尔金*
+#### 整理/编辑：gardeniahu
 
-【内容摘要：这是上篇[《疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居》](https://gnews.org/zh-hans/2408726/)的评论截图，篇篇都是上海市民的心声，感人至深。**】**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图01.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图02.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图03.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图04.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图05.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图06.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图07.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图08.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图09.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图10.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图11.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图12.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图13.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图14.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图15.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图16.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图17.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图18.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图19.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图20.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图21.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图22.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图23.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图24.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图25.jpg)
-原创：每天被邻居投喂的  来源：[上海去哪吃](https://mp.weixin.qq.com/s/1bZ3HOnf9hq71YWE0lpssg)*2022-04-17*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-15.png)图片来源：雅典娜设计组(614)
 
 
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402%E5%9B%9B%E6%9C%88%E6%9C%88%E5%8E%86-2.png)
+**帖子原文：**
 
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
+十三行女装加工厂现状
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这一段时间有很多老厂家发信息给我问我开档口了没有拿版过去。
+
+做服装这么多年就是积累了这些无形中的财富，老板们对我也很好，把我吩咐的事情都当作自己的事情来做，真的很感谢他们。
+
+我每次路过这一条招工长街还有招客户的心理很不是滋味，这两年亏钱的也不计其数，做服装加工厂也很累每次我们起床他们都还没有睡觉都是晚班赶货。各行各业都在煎熬中都有各自的难处，这几天疫情的风波又起来了什么时候是个头。赶紧赶紧把口罩摘下吧。
+
+#焦虑  #广州服装创业
+
+发布于04.09
+
+**精选评论**
+
+是友文呀回复:还挺奇怪的，现在淘宝一堆预售做不出衣服，批发市场衣服卖不出去，资源好像不对等。
+
+落头氏回复：我家是做辅料的也是不乐观，很多裁缝不做了，这年头大环境不好，吃穿用度里最先砍掉的就是穿。只要穿得过去就继续穿旧衣服，包括我自己也是。对服饰鞋包的购买欲望越来越低。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-148.png)图片来源：小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-44.png)图片来源：小红书
+
+
+参考链接：[十三行女装加工厂现状](https://www.xiaohongshu.com/discovery/item/6251156500000000210380ff?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761676)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
