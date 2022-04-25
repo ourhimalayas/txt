@@ -2,42 +2,31 @@
 ---
 
 
-## 特斯拉与主要互联网提供商合作，测试车载 Wi-Fi 热点功能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2409546/)
+## 疫情｜北京朝阳区疫情升温 上海人指导囤货 惟民众相信“一定不会像上海一样”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2409561/)
 
-评论：***特斯拉刚刚公布的2022年第一季度财报业绩，再次成为人们议论的焦点。其净利润达到了创纪录的33亿美元，远高于市场预期的21.5亿美元，同比暴涨658%。得益于再次创纪录的财务业绩，特斯拉CEO马斯克可能会获得一笔新的230亿美元薪酬奖励。此外，马斯克称特斯拉有望今年实现全自动驾驶…担心马斯克收购Twitter现金流不够的朋友们可以放宽心了***。
+**图/文｜CP **
+**发布时间｜25/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/疫情｜北京朝陽區疫情升溫-上海人指導囤貨-惟民眾相信「一定不會像上海一樣」.jpg)
 
-据《insiderpaper.com》作者：Brendan Byrne，2022年4月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3142.png)图片来源：Wikimedia Commons
-特斯拉已开始与几家主要互联网提供商测试车载 WIFI热点功能，以便为其车队提供备用互联网连接。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-根据汽车技术网站的说法，连接性是特斯拉在汽车行业提供的一个关键特征。它为客户提供了一些有趣和实用的功能，特斯拉也使用它来收集车队数据和改进车辆功能，最引人注目的是 Autopilot功能。
 
-2018年，特斯拉推出了付费的“高级联网服务”套餐，使用该套餐的车主可以通过支付月费获得额外的更大数据量，这项服务的价格为每个月10美元。特斯拉车主不得不决定是否每月为高级连接服务支付10美元。
+北京新冠疫情升温，3天内新增41宗本土感染，以朝阳区26宗最多。周日北京再录得19宗本土确诊个案，其中11宗来自朝阳区，当局要求扩大朝阳区的核酸检测范围，并于今日起（25日）每隔一日，进行三轮核酸检测。目睹上海人被封城后的苦况，北京人忧步后尘，于是纷纷抢购物资，超市、商场几乎被买空，更有市民买了一整头生猪背回家，情境十分怪诞夸张。
 
-最近，这家汽车制造商推出了一项软件更新，允许车主在驾驶时使用手机的WIFI热点，替代车辆本身的LTE 网络连接。
+据北京日报报道，受疫情影响，北京潘家园、双井、劲松等地区网购平台，昨日出现不同程度的绿色蔬菜供应不足现象。
 
-现在，特斯拉显然正在研究另一种选择，涉及使用互联网提供商提供的 WIFI热点。
+有北京网友以“今晚每个北京朋友都有一个上海朋友在劝说”为题发贴，引起许多网友留言讨论，也有上海网友写下“11点血的经验”分享给北京人，指点囤货迷津，内容提及肉类、切好的葱姜蒜都必须要冷冻储存，家里若有空位最好多买一个冰箱等，并建议在这个时候可以准备种“葱和大蒜了…”。
 
-报道称：“一位名为Analytic的推特用户成功地在自己的车上激活了这项新功能。特斯拉似乎正在与北美、欧洲和亚洲的几家主要互联网提供商合作，以测试该功能。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/疫情｜北京朝陽區疫情升溫-上海人指導囤貨-惟民眾相信「一定不會像上海一樣」1.jpg)
 
-“特斯拉似乎正在与北美、欧洲和亚洲的几家主要互联网提供商合作，测试这一功能。”该公司补充说。
+不过，美团买菜、叮咚买菜等生鲜网购平台纷纷对外宣布将启动紧急响应机制，紧急调拨货源，并宣称目前管控区内“货足价平”。北京当局亦强调，物资供应充足，民众生活有保障。因此，大部分北京民众对情况比较乐观，有信心“北京一定不会像上海一样。”
 
-特斯拉黑客“green”证实该功能位于特斯拉的软件后端，并且目前特斯拉公司正在对其进行测试。
+來源｜[yahoo](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%8D%E7%8F%BE%E5%9B%A4%E8%B3%BC%E6%BD%AE-%E8%83%A1%E9%8C%AB%E9%80%B2-%E4%B8%8A%E6%B5%B7%E5%80%92%E6%A5%A3%E4%BA%8B%E4%B8%8D%E6%9C%83%E9%87%8D%E6%BC%94-052700900.html)、[Now](https://news.now.com/home/international/player?newsId=473861)、[网易](https://www.163.com/dy/article/H5Q20J5G05533F8G.html?f=post2020_dy_recommends)
 
-随着车内基于互联网的娱乐功能越来越多，以及特斯拉需要从车队中获得更多数据，数据需求增加，该功能将发挥重要的作用，它将能够大幅提升特斯拉汽车的互联性。
+* * *
 
-原文连接：[**https://insiderpaper.com/elon-musks-tesla-testing-in-car-wi-fi-hotspot-connectivity-with-major-internet-providers/**](https://insiderpaper.com/elon-musks-tesla-testing-in-car-wi-fi-hotspot-connectivity-with-major-internet-providers/)
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**Subscribe EpidemicConcernGroup Gettr** **：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

@@ -2,66 +2,42 @@
 ---
 
 
-## 彼得·达顿（Peter Dutton）说澳大利亚应该为战争做好准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409509/)
+## 特斯拉与主要互联网提供商合作，测试车载 Wi-Fi 热点功能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2409546/)
 
-#### 翻译：文扬
-编辑：李易通
+评论：***特斯拉刚刚公布的2022年第一季度财报业绩，再次成为人们议论的焦点。其净利润达到了创纪录的33亿美元，远高于市场预期的21.5亿美元，同比暴涨658%。得益于再次创纪录的财务业绩，特斯拉CEO马斯克可能会获得一笔新的230亿美元薪酬奖励。此外，马斯克称特斯拉有望今年实现全自动驾驶…担心马斯克收购Twitter现金流不够的朋友们可以放宽心了***。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-144.png)图片来源：Jason Edwards
+据《insiderpaper.com》作者：Brendan Byrne，2022年4月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3142.png)图片来源：Wikimedia Commons
+特斯拉已开始与几家主要互联网提供商测试车载 WIFI热点功能，以便为其车队提供备用互联网连接。
 
+根据汽车技术网站的说法，连接性是特斯拉在汽车行业提供的一个关键特征。它为客户提供了一些有趣和实用的功能，特斯拉也使用它来收集车队数据和改进车辆功能，最引人注目的是 Autopilot功能。
 
-彼得·达顿（Peter Dutton）已就中国和俄罗斯的威胁发表了他的言论，警告澳大利亚应该为战争做好准备。
+2018年，特斯拉推出了付费的“高级联网服务”套餐，使用该套餐的车主可以通过支付月费获得额外的更大数据量，这项服务的价格为每个月10美元。特斯拉车主不得不决定是否每月为高级连接服务支付10美元。
 
-国防部长的评论与斯科特·莫里森（Scott Morrison）的评论相呼应，莫里森利用黎明仪式警告说，从北京到莫斯科有一个新的 “专制弧”。
+最近，这家汽车制造商推出了一项软件更新，允许车主在驾驶时使用手机的WIFI热点，替代车辆本身的LTE 网络连接。
 
-总理说他已经划定了一条红线，在北京与所罗门群岛签订了有争议的安全协议后，他将毫不犹豫地与盟友一起把中国挡在澳大利亚的门外。
+现在，特斯拉显然正在研究另一种选择，涉及使用互联网提供商提供的 WIFI热点。
 
-达顿先生（Mr Dutton）在接受九号台采访时，对局势作出了坦率的评估，鼓励澳大利亚人接受 “我们这个时代的现实”。
+报道称：“一位名为Analytic的推特用户成功地在自己的车上激活了这项新功能。特斯拉似乎正在与北美、欧洲和亚洲的几家主要互联网提供商合作，以测试该功能。”
 
-他说：“我们不应该认为澳新军团做出的牺牲是理所当然的。”
+“特斯拉似乎正在与北美、欧洲和亚洲的几家主要互联网提供商合作，测试这一功能。”该公司补充说。
 
-“我们必须现实地认识到，像希特勒和其他人一样的人并不是我们想象出来的，或者说他们已经被历史抛弃了。”
+特斯拉黑客“green”证实该功能位于特斯拉的软件后端，并且目前特斯拉公司正在对其进行测试。
 
-“我们目前在普京（Putin）总统那里看到一个愿意杀死妇女和儿童的人。这在2022年正在发生。”
+随着车内基于互联网的娱乐功能越来越多，以及特斯拉需要从车队中获得更多数据，数据需求增加，该功能将发挥重要的作用，它将能够大幅提升特斯拉汽车的互联性。
 
-他警告说，中国正在“走一条非常慎重的道路，维护和平的唯一途径是为战争做准备，并作为一个国家强大起来。”
+原文连接：[**https://insiderpaper.com/elon-musks-tesla-testing-in-car-wi-fi-hotspot-connectivity-with-major-internet-providers/**](https://insiderpaper.com/elon-musks-tesla-testing-in-car-wi-fi-hotspot-connectivity-with-major-internet-providers/)
 
-当九号台主持人卡尔·斯特凡诺维奇（Karl Stefanovic）质疑他的 “挑衅性”语言时，达顿先生进行了反驳。
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-他说：“我们现在处于一个与1930年代非常相似的时期，我认为1930年代有很多人希望他们在这十年中更早地发表意见。”
-
-在达尔文的一个简短的新闻发布会上，工党议员理查德·马尔斯（Richard Marles）声称，国防部长只是空谈，没有行动。
-
-他说：“我们正处于我们历史上的一个时刻，我们的战略环境与第二次世界大战结束以来的许多时刻一样复杂。”
-
-马尔斯（Marles）先生对政府的记录进行了抨击，他指出，政府抛弃了法国的潜艇合同，而选择了英国和美国设计的核动力舰艇——这些舰艇预计要到2040年才能到达。
-
-“我们当然需要准备，但我们没有看到本届政府的准备工作。”
-
-马尔斯先生补充说：“这是一个一再失败的政府。”
-
-当被问及他是否担心中国越过总理的 “红线 ”时，这位工党议员说，在太平洋地区建立军事基地将 “极大地改变澳大利亚的国家安全框架”。
-
-“在这个时刻，我们发现自己在问这些问题，这说明斯科特·莫里森在处理太平洋地区关系方面的失败，特别是斯科特·莫里森在处理与所罗门群岛关系方面的失败。”
-
-莫里森先生和反对党领袖安东尼·艾博（Anthony Albanese）都将乌克兰战争与澳新军团精神联系在一起。
-
-莫里森先生说：“在这个特殊的日子里，当我们纪念那些为我们的自由而战的人时，我们与此刻做同样事情的乌克兰人民站在一起。”
-
-他和工党副领袖理查德·马尔斯（Richard Marles）出席了在达尔文举行的黎明仪式，当时全国正在纪念该市被轰炸80周年。
-
-尽管为了纪念澳新军团日而短暂的停止，但随着领导人恢复竞选活动，预计国家安全仍将是一个关键问题。
-
-原文链接： [Federal election: Peter Dutton says Australia should be prepared for war | news.com.au — Australia’s leading news site](https://www.news.com.au/technology/innovation/military/peter-dutton-says-australia-should-be-prepared-for-war/news-story/7ba64018bda3b940be2fe6f1a8954029)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
