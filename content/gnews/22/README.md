@@ -2,27 +2,53 @@
 ---
 
 
-## 樱花时政┃日本官房副长官祝贺马克龙连任 强调法日印太合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2409725/)
+## 普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409868/)
 
-撰稿：东京樱花团/百花李香
+翻译：噜噜咪
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-552.jpg)[图片来源](https://www.google.com/search?q=%E4%BC%8A%E6%9B%BC%E7%BA%BD%E5%B0%94%C2%B7%E9%A9%AC%E5%85%8B%E9%BE%99&amp;sxsrf=APq-WBt5DKe2-i)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
-在4月25日的新闻发布会上，内阁官房副长官矶崎仁彦祝贺马克龙在法国总统选举中再次当选，他表示，希望继续与马克龙总统领导的法国紧密合作。
 
-有关法日关系，矶崎强调，两国关系是“一个重要而特殊的合作伙伴，共享自由、民主、人权和法治的普世价值。”他希望加强在印太地区的合作以及在应对俄罗斯入侵乌克兰等问题上深化合作。矶崎表示，“这是一个结束残暴的侵略和保护和平与秩序的关键时刻。从来没有一个时期比现在更需要七国集团（G7）团结一致。”
 
-信息源：[マクロン大統領再選に「心より祝意」　磯崎副長官、日仏連携の重要性強調](https://news.yahoo.co.jp/articles/def540207cbb0be9cf94b137743debe7a80a0a78#:~:text=%E3%83%9E%E3%)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-550.jpg)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+普京政权被指控“掩盖”俄罗斯最高机密武器研究设施的死亡人数，因为一名当地记者声称，至少有25人在这场致命的大火中丧生，而不是像克里姆林宫支持的媒体所坚持的“最多7人”。
+
+视频显示，周四，位于特维尔的俄罗斯联邦国防部第二中央研究所被大火烧毁，莫斯科的伊斯坎德尔导弹就是在这里设计的，此后启动了刑事调查。
+
+四名军事科学家被迫从燃烧的建筑物中跳出窗户，国家媒体不同程度地报道说有五人或七人死亡。
+
+但现在声称至少有25人死亡，可能包括俄罗斯的一些主要导弹科学家。火灾发生两天后，寻找被困在瓦砾下的幸存者的工作仍在进行，据说至少有五人在接受重症监护。
+
+该研究所是设计“伊斯坎德尔”导弹的核心单位，普京已向乌克兰投放了这种导弹，以及俄罗斯的S-400导弹防御系统。它还参与了其他“秘密项目”。这一损失被认为是对普京导弹现代化计划的打击。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-222.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所的消防员被大火吞噬。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-184.jpg)位于特维尔的俄罗斯联邦国防部第二中央研究所发生了一场大火。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-161.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所发生火灾后被烧毁的遗迹。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-115.jpg)起火原因尚不清楚，但有报道称出现了“有毒的蓝黑色烟雾”。
+
+**接下篇：** **普京政权被指** **“** **掩盖** **”** **俄武研所火灾死亡人数（** **2/2** **）**
+
+新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
+
+* * *
+
+素材：peacelv
+审核：文乐
+校对：小东
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 

@@ -2,53 +2,29 @@
 ---
 
 
-## 普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409868/)
+## 俄乌战争｜英国食用油短缺 当地超市推限购令 欧洲油品价格急升
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2409992/)
 
-翻译：噜噜咪
+**图/文｜CP **
+**发布时间｜25/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜英國食用油短缺-當地超市推限購令-歐洲油品價格急升.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+俄乌战争持续扰乱全球供应链稳定，日前，英国食用油已出现严重短缺，多间大型连锁超市都相机推出不同程度的限购措施，以保证大部分民众得到必要用油保障。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-550.jpg)
+由于英国超市销售的大部分葵花籽油来自乌克兰，受俄罗斯入侵乌克兰所累，导致供应中断造成货品短缺和对其他食用油需求的增加，一些超市不得不对包括葵花籽油、橄榄油和菜籽油在内油品作出购买限制。
 
-普京政权被指控“掩盖”俄罗斯最高机密武器研究设施的死亡人数，因为一名当地记者声称，至少有25人在这场致命的大火中丧生，而不是像克里姆林宫支持的媒体所坚持的“最多7人”。
+英国最大型的连锁超市 Tesco 强调，存货仍然充足，惟仍限制每位顾客一次购买3瓶食用油。据其超市的网页显示，个别食用油已经显示缺货，另外，Waitrose和Morrisons等大型超市亦有限制每位顾客一次购买2瓶食用油的措施。
 
-视频显示，周四，位于特维尔的俄罗斯联邦国防部第二中央研究所被大火烧毁，莫斯科的伊斯坎德尔导弹就是在这里设计的，此后启动了刑事调查。
+英国零售联盟表示，超市采取的限制措施是临时的，是为了保证所有人都能买到上述油品。不过，根据英国国家统计局4月13日公布的数据显示，当地食用油和脂肪的价格上涨了7%，比一年前的价格，高出近四分之一。而欧洲7成的葵花籽油都来自乌克兰，但战事令供应中断，带动食用油价格急升。
 
-四名军事科学家被迫从燃烧的建筑物中跳出窗户，国家媒体不同程度地报道说有五人或七人死亡。
-
-但现在声称至少有25人死亡，可能包括俄罗斯的一些主要导弹科学家。火灾发生两天后，寻找被困在瓦砾下的幸存者的工作仍在进行，据说至少有五人在接受重症监护。
-
-该研究所是设计“伊斯坎德尔”导弹的核心单位，普京已向乌克兰投放了这种导弹，以及俄罗斯的S-400导弹防御系统。它还参与了其他“秘密项目”。这一损失被认为是对普京导弹现代化计划的打击。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-222.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所的消防员被大火吞噬。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-184.jpg)位于特维尔的俄罗斯联邦国防部第二中央研究所发生了一场大火。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-161.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所发生火灾后被烧毁的遗迹。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-115.jpg)起火原因尚不清楚，但有报道称出现了“有毒的蓝黑色烟雾”。
-
-**接下篇：** **普京政权被指** **“** **掩盖** **”** **俄武研所火灾死亡人数（** **2/2** **）**
-
-新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
+來源｜[RTE](https://www.rte.ie/news/uk/2022/0423/1293892-uk-supermarkets-cooking-oil/)
 
 * * *
 
-素材：peacelv
-审核：文乐
-校对：小东
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+**Subscribe Frontline Gettr** **：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

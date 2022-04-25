@@ -2,19 +2,26 @@
 ---
 
 
-## 共产党打台湾靠什么，只是纸老虎
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410120/)
+## 视频|美国又将17家中概股公司列入“预摘牌”名单
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2410160/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+制作：香草山视频部
 
-*发布：陶子*
+4月22日，媒体综合报道，美国证券交易委员会日前又将知乎、理想汽车、贝壳等17家中概股公司列入“预摘牌”名单，这是今年3月以来第5批被纳入该名单的中概股公司。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+据了解，SEC除依据《外国公司问责法》将上述中共企也列入退市暂定名单外，同日还将富途控股、百度、爱奇艺、凯信远达医药以及Nocera五支中概股从暂定名单转入确定名单。而其他确定退市的中企还有百胜中国、和黄医药、微博、百济神州、再鼎医药和盛美半导体。
+
+消息发出后，理想汽车港股一度重跌7.2%，今日首度在港挂牌的知乎，开盘价更是比发行价跌去24.8%，而确定退市的百度，港股亦跌去了超过4%。
+
+此前，郭文贵先生曾在直播节目中多次指出，中概股将会彻底被踢出美国。同时，香港一旦失去了其在经济领域的国际地位，中共就会动用“烂招”来扰乱美国经济。为此，郭先生呼吁，美国只有对中共当权者及其家族的海外资产予以同俄罗斯寡头一样的经济制裁，才能制止中共对中国人民乃至世界人民财富的进一步掠夺。
+
+
+
+发稿：有莫举名
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

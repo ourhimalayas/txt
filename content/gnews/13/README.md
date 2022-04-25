@@ -2,61 +2,32 @@
 ---
 
 
-## 普京政权被指“掩盖”俄武研所火灾死亡人数（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409997/)
+## 宁波外教杀人案一审被判死刑
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2410107/)
 
-翻译：噜噜咪
+撰稿：红杉
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/251-2.png)图片来自网络
+4月21日浙江省宁波市中级人民法院一审公开宣判美国籍被告人沙迪德·阿布杜梅亭杀人案，对被告人以故意杀人罪判处死刑。
 
+经审理查明，2019年两者相识，自2021年5月中下旬开始，受害人陈某某多次提出分手，沙迪德·阿布杜梅亭不同意并进行言语威胁。同年6月14日20时许，经事先联系，沙迪德·阿布杜梅亭携带折叠刀、衣物等，到达宁波市通途路南侧清水桥路口公交车站附近人行道与陈某某见面交谈。21时48分许，沙迪德·阿布杜梅亭用随身携带的折叠刀捅刺、切割陈某某颈部数刀，陈某某失去反抗能力后，又继续戳刺陈某某面部数刀，导致陈某某大出血当场死亡。宁波市中级人民法院认为，被告人沙迪德·阿布杜梅亭故意非法剥夺他人生命，手段残忍，犯罪情节特别恶劣，其行为已构成故意杀人罪。
 
+案件发生后，因涉及外籍人士，引起了较大争议，同时也将矛头指向校方。被害人父母第一时间从河北赶到宁波，在见了女儿遗体后，想去学校看看遗物。校方以“影响不好”为由阻止入校，又说学生在外面发生的事情，“学校没有责任”。6月18日，死者父母带着女儿遗照在校门口讨说法，事件才通过网络引起关注。
 
+一直以来，在华外国人的超国民待遇的新闻不断涌现，从巨额奖学金到提供美女学伴，从享受夏日空调到本土学生只能靠绿豆汤解暑，而中共竭尽打压舆论。事实上本案外教在作案前，已收到多起性骚扰的投诉。再看现在的上海，有的洋人可以登车徜徉，或欢饮于酒吧，而国人却像牛羊一般圈禁。中共一面狂吹国家伟大、文化昌盛、万国来朝，另一面砸钱收买人心，同时私下移民移钱海外——在其强硬傲慢的外表之下，实际是跪舔数十年的卖国行径。
 
+*编辑：Gradient Boost
+发稿：mgjxs*新闻参考链接：
+[http://www.takungpao.com/news/232108/2022/0421/711084.html](http://www.takungpao.com/news/232108/2022/0421/711084.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-**接上篇：[普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）](https://gnews.org/zh-hans/2409868/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-553.jpg)四名军事科学家被迫从特维尔燃烧的研究所的窗户跳下
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/555.jpg)左图：俄罗斯总统普京。右图：俄罗斯特维尔的记者亚历山大·甘伯格。
-
-当地受人尊敬的记者亚历山大·甘伯格在SOTA电报频道上报道说，他独家看到了“死亡者”名单。然而，他说，由于俄罗斯的审查制度和“不伤害对我重要的人”，他不能提供进一步的细节。
-
-他说：“刑事调查人员正在现场工作，直到星期天，之后他们将公布损失情况。”
-
-甘伯格补充说：“截至4月22日晚上10点，共有25人。从4月21日开始有7人，4月22日有18人被发现并被确认。最年轻的是一名少校，是1983年出生的男子。最年长的是90或91岁，生于1931年。”
-
-“我不知道他在这个年龄在研究所的工作场所做什么。大多数遇难者都是男性。数字还不是最终的。这是个大悲剧”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-185.jpg)四名军事科学家被迫从燃烧的大楼中跳出窗户
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-162.jpg)2022年4月21日晚，俄罗斯特维尔的一家军事研究所在火灾后的照片。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-116.jpg)俄罗斯一家绝密的军事研究机构爆发一场大火
-
-俄罗斯关键的国防设施如何发生火灾的问题已经立案。一位获救的军事科学家说，他们面对的是吹过长长走廊的有毒黑烟，并补充说：“我的同事感觉比我更糟糕，我仍有意识。”
-
-“他已经站不起来了。我告诉消防员，应该先把他拉出来，但救援人员回答说，无法把他抬起来，需要先救我。”
-
-“不幸的是，这位同事没能被抢救过来，他死了。我在医院里，在第一次注射后才清醒过来。”
-
-一架紧急直升机被派去向燃烧的研究所洒水，该研究所现在已被烧毁。
-
-新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
-
-* * *
-
-素材：peacelv
-审核：文乐
-校对：小东
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
+**更多信息，更多关注** **
+**[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)**
+**[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)**
+**[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
 
  
 
