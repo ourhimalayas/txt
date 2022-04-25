@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国是美国最大的反情报威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2413039/)
+## 上海市民在暴雨中做核酸检测
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2413033/)
 
-04/22/2022 美国联邦调查局局长克里斯托弗·雷在采访中称中共国是美国最大的反情报威胁，规模之大历史上前所未见。
+04/25/2022 4月25日，上海市民被要求在暴雨中排队进行核酸检测。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
