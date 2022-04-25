@@ -2,31 +2,31 @@
 ---
 
 
-## 安大略省卫生部将延长配戴口罩规定
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2408183/)
+## 法大选尘埃落定马克龙连任 勒庞得票率表明法国严重分裂
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2408228/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3117.png)图片来源：[https://toronto.ctvnews.ca/](https://toronto.ctvnews.ca/ontario-extending-remaining-mask-mandates-past-april-27-government-confirms-1.5872278)
-据【CTV新闻】4月23日报道，为应对和防控第六波新冠病毒疫情，安大略省政府要求在医疗机构、长期护理院和公共交通设施中配戴口罩的规定，将从4月27日延长至6月11日。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-25-上午10.37.36.png)图片来源Z：互联网
+据POLITICO周日（4月24日）报道，马克龙连任，但勒庞的大比分表明法国越来越分裂。超过 1200 万人选择了勒庞，比 2017 年她上一次竞选总统期间增加了约 500 万人，这表明，她试图将她的政党带入政治主流的战略在很大程度上是成功的。【1】
 
-据悉，安省日前因感染新冠病毒而住院的人数约为1600人，比前一天略有减少。其中，重症监护中的患者人数同比也略有下降。目前，该省除配戴口罩的规定被延长外，其他与疫情相关的限制措施均已被停止。
+根据初步统计，中间派候选人马克龙-现任总统得票率为 58.5% ，而勒庞的得票率为 41.5%。马克龙赢得他的第二个五年任期。
 
-此外，安省卫生部还宣布，将为器官和干细胞移植者、部分癌症患者和T细胞免疫治疗者等免疫功能低下的病人提供新冠病毒抗体治疗。
+“这一结果是对我们的领导人和欧洲领导人的极大不信任的[标志]，这是他们不能忽视的信息，”勒庞在其让步演讲中告诉支持者。”选民们已经表明，他们希望有一个强大的反对马克龙的力量。”
 
-新闻来源： [https://toronto.ctvnews.ca/ontario-extending-remaining-mask-mandates-past-april-27-government-confirms-1.5872278](https://toronto.ctvnews.ca/ontario-extending-remaining-mask-mandates-past-april-27-government-confirms-1.5872278)
+最紧迫的挑战将是马克龙，他在一个严重分裂的国家开始他的第二个任期，那里的政治愤怒很容易演变成街头抗议和暴力。
 
-上传/发稿 – 青青 撰稿/翻译/听写 -晨熹
-素材/采编 – UCool 优酷                  核对/审核 – 硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+总统在他的胜利演说中承认了这些分歧。
+
+“我们的国家充满了怀疑和分歧，所以我们需要变得强大。但没有人会被遗忘，”他在埃菲尔铁塔前的八角形舞台上说道。
+
+原文链接：
+
+【1】[Macron reelected but Le Pen’s big score shows France increasingly divided](https://www.politico.eu/article/macron-re-elected-for-second-term-as-french-president-projection/)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*编辑&发布：长岛开心*
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

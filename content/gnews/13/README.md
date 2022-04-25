@@ -2,8 +2,8 @@
 ---
 
 
-## 當局掩蓋疫情真相知多少，上海安國醫院一幕。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2408135/)
+## 老外送隔离方仓,直播了。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2408169/)
 
 作者：东京樱花团小视频组
 

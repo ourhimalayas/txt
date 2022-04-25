@@ -2,8 +2,8 @@
 ---
 
 
-## 中国和俄罗斯走在一起就是因为独裁主义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408052/)
+## 苏联和中国64是否解体由美国华尔街决定
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408074/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

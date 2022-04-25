@@ -2,29 +2,33 @@
 ---
 
 
-## 台湾新增中共病毒确诊首超5千例 连续8天创历史新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2407722/)
+## 加拿大边境更新疫情限制措施
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2407823/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425-1.jpg)
-2022年4月25日《樱花快报》新闻：
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3103.png)图片来源：CTV News
 
-◆香港截至4月24日午夜，单日新增确诊中共病毒429例，较前一日减少94例。
+据【CTV新闻】4月22日报道，加拿大边境放宽疫情限制政策，5至11岁未接种或部分接种疫苗的儿童，在已完全接种疫苗监护人的陪同下，将不必完成入境前的核酸检测。
 
-◆台湾24日宣布，新增感染中共病毒5092例，新增首破5千例，连续八天创新高。
+据悉，目前对国际旅客在入境加拿大时的检疫规定已发生了变化。所有已完全接种者和由已完全接种的父母或监护人陪同的5-11岁儿童，以及有医疗豁免的旅行者，将不再需要在返回加拿大后执行隔离。但无论其疫苗接种状况如何，所有旅行者在使用联邦管制的交通工具，例如飞机或火车时，则都必须在整个旅行过程中配戴口罩。
 
-◆北京24日报告新增中共病毒21例，朝阳区14个社区“封锁” 。
+此外，所有旅行者在抵加的72小时内，都必须向入境海关提供各项强制性旅行信息。而那些未能正确填写信息者将面临被隔离、罚款或其他惩罚制裁。
 
-◆英国《泰晤士报》和法新社24日报道称，因中共病毒感染而住院的人中，只有29%的人在一年内完全治愈，其余的人会受到长期后遗症的折磨。
+新闻来源： [https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864](https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864)
 
-◆中共对疫情严格的“清零政策”将加剧全球供应链的困境，导致未来几个月的通货膨胀加剧，目前全球五分之一的集装箱船滞留在各地港口，其中30%的积压货物来自中共国。
+上传/发稿 – 青青 撰稿/翻译/听写 -文莱
+素材/采编 – 青青 校对/审核 – 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-◆马斯克在最近收购推特的过程中，创建了三家总部位于特拉华州的控股公司，这可能会为他的众多投资提供更广泛的保护。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-◆美国五角大楼发言人柯比周末表示，预计乌克兰的战争将“延长”，但有一线希望战争能够即刻停止，但结束的条件几乎不可能达到。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
