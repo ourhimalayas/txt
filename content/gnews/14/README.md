@@ -2,8 +2,8 @@
 ---
 
 
-## 坠机的事是天意，震撼了世界和党内，天佑爆料革命，天助爆料革命（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410130/)
+## 坠机的事是天意，震撼了世界和党内，天佑爆料革命，天助爆料革命（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410148/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

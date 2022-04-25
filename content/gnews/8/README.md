@@ -2,29 +2,32 @@
 ---
 
 
-## 有声｜韩国候任总统派代表团访日 改善关系促合作
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2410161/)
+## 樱花灭共诗——白卫兵（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2410270/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-223.jpg)
 
-**2022-04-25**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-249.png)
-[新唐人](https://www.ntdtv.com/gb/2022/04/24/a103409088.html)北京时间4月25日消息，为改善韩日关系，韩国候任总统尹锡悦派遣代表团，对日本进行为期五天的访问，周日，代表团已抵达日本。
+白衣奉诏文，革命借还魂。
 
-这是韩国候任总统尹锡悦继4月初派代表团访问美国后，第二次向外国派出代表团。
+卫戍方一巷，持枪吓四邻。
 
-“韩日政策协商代表团”共7人，由韩国国会副议长郑镇硕担任团长。韩国代表团将于4月25日会见日本外务大臣林芳正，同时，代表团正与日方协调拜会日本首相岸田文雄的事宜。据韩联社报导，代表团携带了尹锡悦致日本首相岸田文雄的亲笔信，但具体内容不得而知。
+老兵勾妒意，小将献忠心。
 
-尹锡悦日前表示：“为发展两国关系，恢复首脑间的信赖十分重要”。
+狗盗乘时运，博得座上宾。
 
-双方将讨论韩日关系发展、韩美日合作等事宜。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/155_20220425182448.png)配图：东京樱花团/闪闪
 
-秘翻新闻 二丫编辑报道
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注** **
+**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-31-224805-5.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
