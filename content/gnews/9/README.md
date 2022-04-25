@@ -2,19 +2,20 @@
 ---
 
 
-## 中共解体后的状况，排华及华人遭遣返
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410629/)
+## 视频|马里乌波尔再现万人坑
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2410783/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+制作：香草山视频部
 
-*发布：陶子*
+4月21日，乌克兰公布了一家商业卫星发布拍到的一组照片，在马里乌波尔市郊外的曼胡什原墓地旁，出现了新的万人坑。俄罗斯人把大量马里乌波尔平民的尸体运到曼胡什附近，挖了巨大的战壕进行掩埋。当地官员指控说，这是21世纪最严重的战争罪行。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+马里乌波尔市长指出，可能有多达9000人平民尸体被埋入万人坑。1941年德国纳粹在基辅附近的娘子谷地区杀害了34000名犹太人并埋入万人坑，如今俄军犯下了相同的罪行。
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

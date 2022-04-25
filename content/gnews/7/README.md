@@ -2,27 +2,22 @@
 ---
 
 
-## 喜悦辣评——第08期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2410661/)
+## 视频|日媒惊叹乌克兰危机让日本欧洲连接更紧密
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2410800/)
 
-作者：木林
-排版：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
-古有赵高朝堂上指鹿为马，今有孙大婊大上海“掩耳到零”。
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/lp220425.001.jpeg)
+日本媒体在4月15日的节目中，惊叹俄罗斯对乌克兰的侵略，让日本和欧盟明白来双方安保策略的紧密相连。
 
-发稿：信心的选择
+首先，无论日本还是欧盟、北约，都有俄罗斯这个共同的邻国，而不是一直以来各自区分的远东地区和欧洲地区。其次，在之前举行的北约外长会议上，在作为伙伴国出席的日本提出中共国议题之前，北约各国外长就已经针对中共国展开了热烈的讨论，热烈程度不亚于主要议题的乌克兰危机。最后，北约外长们更是先日本一步提出，日本和欧洲都面临同样的处境，并表示北约和日本处于同一个战线上。
+
+正如郭文贵先生所说，中共习近平对台湾的野心，不亚于普京对乌克兰的望眼欲穿。一旦台湾失守，那么日本必定遭受灾难，美国和日本将没有选择地支援台湾。中共的疯狂必将唤醒一个强大的日本.
+
+发稿：Daxia
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
-
-
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
