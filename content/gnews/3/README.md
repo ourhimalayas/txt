@@ -2,10 +2,48 @@
 ---
 
 
-## 4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2413472/)
+## 战友日常之-为台祝祷
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2413503/)
 
-秘密翻译组-北美组
+作者：纽约香草山设计部 – 蜂鸟
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/40-3-scaled.jpg)
+* * *
+
+
+
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-42.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场** **GTV** **–** **香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场** **GTV-MOS TALK** **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场** **Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场** **YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
