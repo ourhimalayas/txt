@@ -2,41 +2,45 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410866/)
+## 我要饿死了，我能反抗吗？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2410987/)
 
-#### **整理：枳实** **
-** **美工：精灵蓝** 
+作者：天天打包包
+![](https://assets.gnews.org/wp-content/uploads/2022/04/G新闻-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-10.jpg)
+***任何一个人，都有免于饥饿的权力，这是天赋人权，任何政府或者组织都无权剥夺***……
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-19.png)图片：雅典娜农场设计组 精灵蓝
+上海的所谓的”疫情“封城，将2000万上海人封锁在了家中，并且切断了物流配送，造成了食物和物资的极具短缺，造成了巨大的人道灾难。
+
+## **防疫压倒一切？**
+
+在社交媒体上，在各种流传出的视频里，每天都能看到悲剧的发生。有人身患重病，却被拦住无法送入医院治疗，在家慢慢等待死亡。有人被迫和所谓的社区”志愿者“发生性关系，就为了换取一点食物填饱肚子。还有报道，有安徽打工女孩被饿死在上海的出租屋中！
+
+对于这些悲剧的发生，中共有他自己的逻辑：防控疫情就是压倒一切的”政治任务“，当百姓的需求与政府的要求相冲突矛盾时，即使这些需求是为了维持基本的生存，还是应该”坚定不移，听党话，跟党走“。即便病死，饿死在家里，你也没有出门看病，出门买菜的权利，因为出门就是破坏防疫。
+
+虽然有少部分的上海市民用行动抗议这种杀人式的封城，但是大部分的市民还是在极度的饥饿中等待着疫情的结束。似乎这样做才是【顾大局、识大体】。这种随意的把人关在家里，让人饿死病死的行为，百姓就真的没权力反抗吗？
+
+## **避免饥饿是天赋人权**
+
+美国总统小罗斯福在1941年国情咨文演讲中，他提出了“世界各地”的人们应该享有的四项基本自由：
+
+1. 言论自由（Freedom of speech）
+2. 信仰自由（Freedom of worship）
+3. 免于匮乏的自由（Freedom from want）
+4. 免于恐惧的自由（Freedom from fear）
 
 
-雅典娜疫情更新（2022年 4月25日）
+小罗斯福表达的”四大自由“意义之深远，影响了美国社会从上到下的每个角落，在当时宣告了美国孤立主义的结束，后来纳入《大西洋宪章》，二战后又写入《联合国宪章》，成为了国际上民主国家的共识。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-2-1.jpg)美国画家诺曼·洛克威尔1943年创作的四幅系列油画之一《免于匮乏的自由》
+其中第三条关于”免于匮乏的自由“，意味着”保障每一个国家的居民健康和平的生活的经济理念“，也有人将其翻译为免于饥饿的自由：**任何一个人，都有免于饥饿的权力，这是天赋人权**，任何政府或者组织都无权剥夺，反过来说，任何一个政府或者组织，不管出于任何目的，需要人民忍受饥饿，都是非法的，无效的。上海封城造成的民众的饥饿状态，并不是外界物质匮乏或者是运输不畅，而是实实在在的人祸，是中共人为制造出来的。所以中共不管出于什么原因，任食物在小区外烂掉也不让食物进小区，这种反人类的行为，每一个饥饿的上海居民都有权去抗争。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+## **“紧急避险”受法律保护**
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。
+除了道义上的支持，法律有一个概念叫”紧急避险“，指的是当自身的生命安全受到威胁时，所作出的损害第三者的利益的行为时，可以不收法律的处罚。**在饥饿威胁到生命的时刻，人可以采取一切必要之手段，只要能活下去，都不算违法行为**。这也是郭先生直播提到的，上海人为了维护自己的生命权，采取的任何抗争手段都是可行的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-158.png)图片：雅典娜农场设计组 精灵蓝
+在未来的一段时间内，随着中共在国际上越来越疯狂的行为，国内的经济危机，粮食危机，疫苗危机更多的爆发，中共对民众的压迫会越来越剧烈，只有抗争，才是正确唯一的出路。墙内的百姓，如果继续在共产党的统治下做”良民“，那么上海的饥饿是真的才刚刚开始。
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-45.png)图片：雅典娜农场设计组 精灵蓝
-
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：*wenly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+审核校对：Barry Jack
+上传排版：F
 
  
 

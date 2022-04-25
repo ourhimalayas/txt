@@ -15,79 +15,79 @@
 
 ---
 
-### [秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [澳洲新南威尔士开始使用新的疫情报告系统及规则](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [有声|俄乌战争以来多国限制食用油出口](/content/gnews/2/README.md)
+### [德国总理舒尔茨回避澄清问题](/content/gnews/2/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [有声｜莫斯科男子因穿了亲乌克兰的运动鞋被罚款](/content/gnews/3/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [樱花时政┃美防长：乌克兰若有合适军备支持就能获胜](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|SpaceX成功抵御俄罗斯的电磁攻击](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [秘翻在线：乌克兰向俄罗斯提议在马里乌波尔防御据点举行会谈](/content/gnews/3/README.md)
+### [秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【全文字幕】2022年4月23日七哥乱聊直播](/content/gnews/4/README.md)
+### [有声|俄乌战争以来多国限制食用油出口](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [秘翻在线：乌克兰向俄罗斯提议在马里乌波尔防御据点举行会谈](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花时政┃俄乌战争来首次访问乌克兰的美国高官](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【全文字幕】2022年4月23日七哥乱聊直播](/content/gnews/10/README.md)
  ` 文贵视频字幕全集`
 
-### [大直播后记：台湾问题和世界经济的崩塌](/content/gnews/5/README.md)
+### [大直播后记：台湾问题和世界经济的崩塌](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [视频|联合国表示 乌克兰国内逾770万人流离失所](/content/gnews/6/README.md)
+### [视频|联合国表示 乌克兰国内逾770万人流离失所](/content/gnews/12/README.md)
  ` MOSVIDEO`
 
-### [生物技术的战场，如何与中国的风险研发相抗衡（二）](/content/gnews/7/README.md)
+### [生物技术的战场，如何与中国的风险研发相抗衡（二）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [民生集萃——疫情导致实体经济低迷（2022.4.25E）&#8211;在家隔离， 半夜穷的睡不着，太焦虑了](/content/gnews/8/README.md)
+### [民生集萃——疫情导致实体经济低迷（2022.4.25E）&#8211;在家隔离， 半夜穷的睡不着，太焦虑了](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4/25/2022 银河快讯：即将上任的韩国政府代表团访问日本；日本新增中共病毒（新冠病毒covid-19）15人死亡，38,579人被感染](/content/gnews/9/README.md)
+### [4/25/2022 银河快讯：即将上任的韩国政府代表团访问日本；日本新增中共病毒（新冠病毒covid-19）15人死亡，38,579人被感染](/content/gnews/15/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [樱花时政┃乌克兰指俄准备在其占领区举行“假公投”](/content/gnews/10/README.md)
+### [樱花时政┃网民敦促中宣部制定“个人崇拜的底线”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃网民敦促中宣部制定“个人崇拜的底线”](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [生物技术的战场，如何与中共国的风险研发相抗衡（一）](/content/gnews/12/README.md)
+### [生物技术的战场，如何与中共国的风险研发相抗衡（一）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [MV版《铁锁梦》上线第7天位列5国iTunesMV榜首](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大直播后记：5月份要开始的疫苗灾难会让你忘掉现在的一切战争](/content/gnews/14/README.md)
+### [大直播后记：5月份要开始的疫苗灾难会让你忘掉现在的一切战争](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [怼了以岭药业后，王思聪阳了&#8230;&#8230;](/content/gnews/15/README.md)
+### [怼了以岭药业后，王思聪阳了&#8230;&#8230;](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [大直播后记：美国的第三派势力华尔街决定了过去的100年](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [中共的非人性封控正在制造更多灾难](/content/gnews/17/README.md)
+### [中共的非人性封控正在制造更多灾难](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我要饿死了，我能反抗吗？](/content/gnews/18/README.md)
+### [我要饿死了，我能反抗吗？](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [欧洲市场开盘时将下跌；法国马克龙将连任总统](/content/gnews/19/README.md)
+### [欧洲市场开盘时将下跌；法国马克龙将连任总统](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰将改变小国由大国决定的命运](/content/gnews/20/README.md)
+### [乌克兰将改变小国由大国决定的命运](/content/gnews/23/README.md)
  ` GTV News Talk`
 
-### [全球疫情疫苗数据更新](/content/gnews/21/README.md)
+### [全球疫情疫苗数据更新](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃乌克兰指俄准备在其占领区举行“假公投”](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频|日媒惊叹乌克兰危机让日本欧洲连接更紧密](/content/gnews/23/README.md)
- ` MOSVIDEO`
-
-### [视频|又两名俄军将领在乌克兰攻击中阵亡](/content/gnews/24/README.md)
- ` MOSVIDEO`
-
-### [视频|马里乌波尔再现万人坑](/content/gnews/25/README.md)
+### [视频|日媒惊叹乌克兰危机让日本欧洲连接更紧密](/content/gnews/25/README.md)
  ` MOSVIDEO`
 
 ### [2022/04/25 英喜时事速递](/content/gnews/26/README.md)
