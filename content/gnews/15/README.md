@@ -2,66 +2,42 @@
 ---
 
 
-## 民生集萃—疫情导致实体经济低（2022.4.25B）物价飞涨，活不下去了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409420/)
+## 特斯拉与主要互联网提供商合作，测试车载 Wi-Fi 热点功能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2409546/)
 
-#### 雅典娜情报组《民生灾难收集专栏》
+评论：***特斯拉刚刚公布的2022年第一季度财报业绩，再次成为人们议论的焦点。其净利润达到了创纪录的33亿美元，远高于市场预期的21.5亿美元，同比暴涨658%。得益于再次创纪录的财务业绩，特斯拉CEO马斯克可能会获得一笔新的230亿美元薪酬奖励。此外，马斯克称特斯拉有望今年实现全自动驾驶…担心马斯克收购Twitter现金流不够的朋友们可以放宽心了***。
 
-#### 整理/编辑：禄森       
+据《insiderpaper.com》作者：Brendan Byrne，2022年4月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3142.png)图片来源：Wikimedia Commons
+特斯拉已开始与几家主要互联网提供商测试车载 WIFI热点功能，以便为其车队提供备用互联网连接。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-13.png)图片来源：雅典娜设计组(614)
+根据汽车技术网站的说法，连接性是特斯拉在汽车行业提供的一个关键特征。它为客户提供了一些有趣和实用的功能，特斯拉也使用它来收集车队数据和改进车辆功能，最引人注目的是 Autopilot功能。
 
+2018年，特斯拉推出了付费的“高级联网服务”套餐，使用该套餐的车主可以通过支付月费获得额外的更大数据量，这项服务的价格为每个月10美元。特斯拉车主不得不决定是否每月为高级连接服务支付10美元。
 
-【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
+最近，这家汽车制造商推出了一项软件更新，允许车主在驾驶时使用手机的WIFI热点，替代车辆本身的LTE 网络连接。
 
-**帖子原文：**
+现在，特斯拉显然正在研究另一种选择，涉及使用互联网提供商提供的 WIFI热点。
 
-博主：人间有味是清欢
+报道称：“一位名为Analytic的推特用户成功地在自己的车上激活了这项新功能。特斯拉似乎正在与北美、欧洲和亚洲的几家主要互联网提供商合作，以测试该功能。”
 
-荷兰物价飞涨
+“特斯拉似乎正在与北美、欧洲和亚洲的几家主要互联网提供商合作，测试这一功能。”该公司补充说。
 
-土超的油€3.49，听说欧亚上已是€4.99，鸡蛋由€3.25涨到€4.99，咋感觉鸡蛋都快要吃不起了。以前鸡腿一箱€15，现在涨价到€22。最可恶的是能源合同到期了，收到新的报价€849一个月，去年还是两百来欧，老百姓还活不活啦？
+特斯拉黑客“green”证实该功能位于特斯拉的软件后端，并且目前特斯拉公司正在对其进行测试。
 
-作者发布于:2022-4-7
+随着车内基于互联网的娱乐功能越来越多，以及特斯拉需要从车队中获得更多数据，数据需求增加，该功能将发挥重要的作用，它将能够大幅提升特斯拉汽车的互联性。
 
-**评论选集**
+原文连接：[**https://insiderpaper.com/elon-musks-tesla-testing-in-car-wi-fi-hotspot-connectivity-with-major-internet-providers/**](https://insiderpaper.com/elon-musks-tesla-testing-in-car-wi-fi-hotspot-connectivity-with-major-internet-providers/)
 
-小红薯616E1360评论:
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-游戏才刚开始，大的在后头呢
-
-比较月光评论:
-
-德国能源物价也在疯涨。前几天去德超买食品，挑水果时一个爷爷在鸡蛋前看了好久，最后放车里一盒后又拿出来了，我难过的不行。
-
-sara在荷兰评论:
-
-在推上看到的，有些老人家现在每天只吃一顿饭，暖气也舍不得开
-
-ONE1EVEN评论:
-
-俄罗斯让不友好国家拿卢布支付能源账单，暴涨是意料之中的事儿。俄罗斯除了能源之外，还有小麦，粮价也会上涨
-
-ling评论:
-
-国内物价也疯长 每天买菜的我 眼瞎了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-143.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-43.png)图片来源：小红书
-
-
-参考链接
-[荷兰无价飞涨，老百姓活不下去了](https://www.xiaohongshu.com/discovery/item/624e9d2e00000000010250a5?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761653)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
