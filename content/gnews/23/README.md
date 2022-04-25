@@ -2,82 +2,54 @@
 ---
 
 
-## 疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居（续）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2409732/)
+## 普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409868/)
 
-[![NFSC News](https://assets.gnews.org/wp-content/uploads/ultimatemember/22638/profile_photo-190x190.jpeg?1650834842)](https://gnews.org/zh-hans/author/mos2/)
-[NFSC News](https://gnews.org/zh-hans/author/mos2/)
+翻译：噜噜咪
 
-作者：纽约香草山佛教部—无尽夏
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-*因为后人，而不是我们自己，将创作我们这个时代的传说故事。  ——约翰·托尔金*
-
-【内容摘要：这是上篇[《疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居》](https://gnews.org/zh-hans/2408726/)的评论截图，篇篇都是上海市民的心声，感人至深。**】**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图01.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图02.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图03.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图04.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图05.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图06.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图07.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图08.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图09.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图10.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图11.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图12.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图13.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图14.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图15.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图16.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图17.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图18.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图19.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图20.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图21.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图22.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图23.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图24.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图25.jpg)
-原创：每天被邻居投喂的  来源：[上海去哪吃](https://mp.weixin.qq.com/s/1bZ3HOnf9hq71YWE0lpssg)*2022-04-17*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402%E5%9B%9B%E6%9C%88%E6%9C%88%E5%8E%86-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-550.jpg)
 
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
+普京政权被指控“掩盖”俄罗斯最高机密武器研究设施的死亡人数，因为一名当地记者声称，至少有25人在这场致命的大火中丧生，而不是像克里姆林宫支持的媒体所坚持的“最多7人”。
+
+视频显示，周四，位于特维尔的俄罗斯联邦国防部第二中央研究所被大火烧毁，莫斯科的伊斯坎德尔导弹就是在这里设计的，此后启动了刑事调查。
+
+四名军事科学家被迫从燃烧的建筑物中跳出窗户，国家媒体不同程度地报道说有五人或七人死亡。
+
+但现在声称至少有25人死亡，可能包括俄罗斯的一些主要导弹科学家。火灾发生两天后，寻找被困在瓦砾下的幸存者的工作仍在进行，据说至少有五人在接受重症监护。
+
+该研究所是设计“伊斯坎德尔”导弹的核心单位，普京已向乌克兰投放了这种导弹，以及俄罗斯的S-400导弹防御系统。它还参与了其他“秘密项目”。这一损失被认为是对普京导弹现代化计划的打击。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-222.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所的消防员被大火吞噬。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-184.jpg)位于特维尔的俄罗斯联邦国防部第二中央研究所发生了一场大火。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-161.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所发生火灾后被烧毁的遗迹。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-115.jpg)起火原因尚不清楚，但有报道称出现了“有毒的蓝黑色烟雾”。
+
+**接下篇：** **普京政权被指** **“** **掩盖** **”** **俄武研所火灾死亡人数（** **2/2** **）**
+
+新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
+
+* * *
+
+素材：peacelv
+审核：文乐
+校对：小东
+发布：五通庙
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

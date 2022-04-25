@@ -2,30 +2,22 @@
 ---
 
 
-## 秘翻新闻 ｜佩洛西或将按计划访台
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2409929/)
+## 台湾｜美国务院副助卿：美台应加强经贸合作 半导体供应链领袖
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2409965/)
 
-By:[秘翻新闻](https://gettr.com/post/p16zoajfbc5)
+**图文 zhong｜2022-4-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-1-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+驻芝加哥台北经济文化办事处与俄州官方、民间单位合办“美国中西部台美商业论坛”，美国务院副助卿华自强（Rick Waters）通过录影致词表示，他代表国务卿布林肯（Antony Blinken），在全球晶片短缺困境下，台湾身为全球高科技供应链领袖的角色格外重要，台美加强半导体及供应链安全，以因应中共的经济胁迫。
 
-[2022-04-25](https://gettr.com/post/p16zoajfbc5)
+俄州联邦众议员夏波（Steve Chabot）在论坛上表示，支持台美签订自由贸易协定，支持台湾纳入“印太经济架构”，台湾与理念相近国家密切合作以面对中（共）国的挑战。
 
-**新闻内容:**
+4月25日郭文贵直播透漏，美国等西方经过俄乌战争已了解到晶片产业不可重压于台湾，未来晶片产业将会分散布局。
 
-
-```
- 1.上海疫苗灾难爆发 死亡人数攀升 防疫乱象继续
- 2.北京疫情再起 北京朝阳划14个封控区 民众疯狂抢菜
- 3.汽车芯片大厂不堪上海封城 将业务迁至新加坡 
- 4.复活节拒停火 俄军再度攻击马里乌波尔
- 5.韩国候任总统派代表团访日 改善关系促合作 
-
-🔗Gettr链接：https://gettr.com/post/p16zoajfbc5
-发布:星星
-```
+来源｜[taiwannews](https://www.taiwannews.com.tw/en/news/4517916)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-50.jpg)
 
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
 
  
 

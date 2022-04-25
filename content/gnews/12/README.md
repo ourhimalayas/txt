@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党打台湾靠什么，只是纸老虎
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410120/)
+## 坠机的事是天意，震撼了世界和党内，天佑爆料革命，天助爆料革命（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2410148/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

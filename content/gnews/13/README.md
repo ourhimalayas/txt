@@ -2,32 +2,27 @@
 ---
 
 
-## 宁波外教杀人案一审被判死刑
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2410107/)
+## 中日财经爆┃中共经济已显崩溃之兆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2410135/)
 
-撰稿：红杉
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月25日，中共股市继近期连续下跌之后，今日再度大幅下挫，沪深两市共下跌4623家，上证跌破3000点重要关口，跌5.13%。而深证距离跌破一万点关口也仅一步之遥，收于10379.28点，跌6.08%。香港股市同样大跌，跌破20000关口，收于19869.34。在外汇市场，人民币汇率跌400点，五天已贬值2000点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/251-2.png)图片来自网络
-4月21日浙江省宁波市中级人民法院一审公开宣判美国籍被告人沙迪德·阿布杜梅亭杀人案，对被告人以故意杀人罪判处死刑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-70.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fassets.gnews.org%2Fwp-content%2Fuploads%2F2021%2F12%2F%25E5%259B%25BE%25E7%2589%2587145778.png&amp;imgrefurl=https%3A%2F%2Fgnews.org%2Fzh-hans%2F1793527%2F&amp;tbnid=C8enIDR_DQyUlM&amp;vet=12ahUKEwiF94-f9673AhUNShoKHZtuBDAQMygFegUIARCgAQ..i&amp;docid=OLgVcGcZt8b8FM&amp;w=826&amp;h=465&amp;itg=1&amp;q=%E4%B8%AD%E5%85%B1%E7%BB%8F%E6%B5%8E&amp;ved=2ahUKEwiF94-f9673AhUNShoKHZtuBDAQMygFegUIARCgAQ)
 
-经审理查明，2019年两者相识，自2021年5月中下旬开始，受害人陈某某多次提出分手，沙迪德·阿布杜梅亭不同意并进行言语威胁。同年6月14日20时许，经事先联系，沙迪德·阿布杜梅亭携带折叠刀、衣物等，到达宁波市通途路南侧清水桥路口公交车站附近人行道与陈某某见面交谈。21时48分许，沙迪德·阿布杜梅亭用随身携带的折叠刀捅刺、切割陈某某颈部数刀，陈某某失去反抗能力后，又继续戳刺陈某某面部数刀，导致陈某某大出血当场死亡。宁波市中级人民法院认为，被告人沙迪德·阿布杜梅亭故意非法剥夺他人生命，手段残忍，犯罪情节特别恶劣，其行为已构成故意杀人罪。
+除了各项经济指数大幅下跌之外，中共几乎一线城市和多个区域爆发疫情，特别是更多类似上海清零政策和严格封控，将导致大量人道灾难大量发生，经济更是影响巨大。北京多个区域爆发疫情，已有多个区域已经开始封控，目前，由于中共的变态清零政策，供应链已经发生严重断裂，如汽车行业因芯片已经半停工状态，无数行业处于亏损状态，外贸更是惨不忍睹！
 
-案件发生后，因涉及外籍人士，引起了较大争议，同时也将矛头指向校方。被害人父母第一时间从河北赶到宁波，在见了女儿遗体后，想去学校看看遗物。校方以“影响不好”为由阻止入校，又说学生在外面发生的事情，“学校没有责任”。6月18日，死者父母带着女儿遗照在校门口讨说法，事件才通过网络引起关注。
+从近几日的股汇大跌，中共的虚假经济已到崩溃边缘，墙内同胞再不认清形势，抱有天真和幻想，将悔之晚矣！更严重的是，因为中共的各种疯狂、疫苗灾难、粮食危机、攻打台湾，接下来，该考虑能不能活着和生存下去的问题！
 
-一直以来，在华外国人的超国民待遇的新闻不断涌现，从巨额奖学金到提供美女学伴，从享受夏日空调到本土学生只能靠绿豆汤解暑，而中共竭尽打压舆论。事实上本案外教在作案前，已收到多起性骚扰的投诉。再看现在的上海，有的洋人可以登车徜徉，或欢饮于酒吧，而国人却像牛羊一般圈禁。中共一面狂吹国家伟大、文化昌盛、万国来朝，另一面砸钱收买人心，同时私下移民移钱海外——在其强硬傲慢的外表之下，实际是跪舔数十年的卖国行径。
-
-*编辑：Gradient Boost
-发稿：mgjxs*新闻参考链接：
-[http://www.takungpao.com/news/232108/2022/0421/711084.html](http://www.takungpao.com/news/232108/2022/0421/711084.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-
-**更多信息，更多关注** **
-**[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)**
-**[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)**
-**[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注** **
+**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
