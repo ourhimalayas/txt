@@ -2,82 +2,62 @@
 ---
 
 
-## 疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居（续）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2409732/)
+## 文·贵天成——文贵先生谈“习近平”（十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409942/)
 
-[![NFSC News](https://assets.gnews.org/wp-content/uploads/ultimatemember/22638/profile_photo-190x190.jpeg?1650834842)](https://gnews.org/zh-hans/author/mos2/)
-[NFSC News](https://gnews.org/zh-hans/author/mos2/)
+**整理/编辑：BENJ1**
 
-作者：纽约香草山佛教部—无尽夏
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-*因为后人，而不是我们自己，将创作我们这个时代的传说故事。  ——约翰·托尔金*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片50-11.png)图片来源：雅典娜设计组（614）
 
-【内容摘要：这是上篇[《疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居》](https://gnews.org/zh-hans/2408726/)的评论截图，篇篇都是上海市民的心声，感人至深。**】**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图01.jpg)
+**郭文贵** **先生** **2020年5月16日** **直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图02.jpg)
+听说军队最近说，要开战就把台湾打烂它，甚至把它打沉它，永远不要在台湾成为分离什么所谓的，分裂祖国领土的一个永远让大家心痛的，长在中国人上的一个刺儿，把它打烂它，好多军人将军都这么说，前所未有的极端高涨。**纷纷给习近平写信** **，** **习主席** **，** **一旦历史时刻到来** **，** **我们做好了牺牲** **，** **愿意付出一切代价** **，** **把台湾打烂它** **，** **把香港必须收回** **。**哪有一国二制，就一国一制，你能怎么招我们？我们这一代人已经做出了牺牲，我们痛苦二三十年，中国将永远的安全，民富，泰康。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图03.jpg)
+**郭文贵** **先生** **2020年11月7日直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图04.jpg)
+十九届五中全会习近平的讲话发生了什么样的变化。大家发现了没有，**在那个时候** **，** **他已经意识到大势已去** **，** **他也知道他操纵这场选举的代价** **。**大家知道内部的调查，内部的整个政治平衡的结果，他有一共是五条，从此不提了：第一条，坚决打台湾，变成了台海两岸和平相处，你看到了这个问题。第二条，向全世界提供中国人治理地球的政治智慧，不提了。变成了共产党向全世界提供解决经济问题的办法，不谈政治了。第三条，大家看到了没有，所有的共产党内部的反腐，一个字没有了。第四条，对香港、对新疆、对西藏少数民族的弄死、打死、抓死、绝不答应的，没了。最后一条，对待所谓的人民和美帝国主义，共产党的什么决不答应，四个自信，没了。就是以习近平为核心的和挑战全世界的霸权美帝国主义的政策，没了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图05.jpg)
+为什么？十九届五中全会已经证明，共产党非常清楚，离了美国经济支持和政治支持的中共一定活不下去，中共内部的经济已经到了崩塌的边缘。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图06.jpg)
+**郭文** **先生** **贵2021年1月10日直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图07.jpg)
+我听过现任的习近平书记亲自面对面听他讲过同一个故事，就是吃鸡蛋的故事，在食堂的那个故事，我就纳闷为什么中国共产党都说这个故事，从当时的北京军区司令-周司令，到现在的习近平我都亲自听他们说过。就是在食堂的一个人，我不吃鸡蛋，对面人吃鸡蛋，说我发的鸡蛋你吃，就永远给他吃，有一天他拿出的时候，我也想吃了，就那不愿意了，你凭啥要吃鸡蛋，你凭啥不给我？就这个简单的故事，说法不一大概一样，**就习惯性给予** **，** **当不给的时候不但不感恩还成为仇人** **，** **他说中国老百姓就这样** **，** **你不能 把鸡蛋给他** **，** **你给他就怎么样怎么样** **。**当然我反对了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图08.jpg)
+**郭文贵** **先生** **2021年1月21日直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图09.jpg)
+**对习本人的思想我是很了解的，他满脑子都是毛思想、文化大革命!他习近平比谁都恨共产党。**但是他一定会利用共产党这个平台、共产党的这个舞台，他要报复，他要干点事出来。但是他一定不会放权的，他也不会给人民民主的。因为他对老百姓的看法是跟毛泽东一样：**中国老百姓就得像猪狗一样的养着，就是往死里整、一定要往死里整。**这我是很清楚的，王岐山就更不用说了——中国老百姓三年吃草都没事，让你吃草都是给你都恩赐。这两个文化大革命的产物出来，那中国就完蛋了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图10.jpg)
+资料来源：
+[郭文贵先生2020年5月16日直播](https://youtu.be/3PpxmHZ_5fU)
+[郭文贵先生2020年11月7日直播](https://www.youtube.com/watch?v=NhUw8olfOcs)
+[郭文先生贵2021年1月10日直播](https://gtv.org/video/id=5ffb0d22f579a75e0bcf7288)
+[郭文贵先生2021年1月21日直播](https://gtv.org/video/id=60098df5f579a75e0be5bd55)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图11.jpg)
+往期回顾：
+[文·贵天成——文贵先生谈“习近平”（一）](https://gnews.org/zh-hans/2355271/)
+[文·贵天成——文贵先生谈“习近平”（二）](https://gnews.org/zh-hans/2357742/)
+[文•贵天成——文贵先生谈“习近平”（三）](https://gnews.org/zh-hans/2362598/)
+[文•贵天成——文贵先生谈“习近平”（四）](https://gnews.org/zh-hans/2362740/)
+[文•贵天成——文贵先生谈“习近平”（五）](https://gnews.org/zh-hans/2390338/)
+[文·贵天成——文贵先生谈“习近平”（六）](https://gnews.org/zh-hans/2391012/)
+[文·贵天成——文贵先生谈“习近平”（七）](https://gnews.org/zh-hans/2392670/)
+[文·贵天成——文贵先生谈“习近平”（八）](https://gnews.org/zh-hans/2402602/)
+[文·贵天成——文贵先生谈“习近平”（九）](https://gnews.org/zh-hans/2402716/)
+[文·贵天成——文贵先生谈“习近平”（十）](https://gnews.org/zh-hans/2404590/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图12.jpg)
+发布：文武全才
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图13.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图14.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图15.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图16.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图17.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图18.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图19.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图20.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图21.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图22.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图23.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图24.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图25.jpg)
-原创：每天被邻居投喂的  来源：[上海去哪吃](https://mp.weixin.qq.com/s/1bZ3HOnf9hq71YWE0lpssg)*2022-04-17*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402%E5%9B%9B%E6%9C%88%E6%9C%88%E5%8E%86-2.png)
 
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

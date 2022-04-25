@@ -2,31 +2,53 @@
 ---
 
 
-## 樱花时政┃打脸俄军造谣，世界最强阻击手发声“没被俄军消灭”！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2409717/)
+## 普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409868/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-110.png)图片来源于网络
+翻译：噜噜咪
 
-据朝日新闻报道：从俄罗斯社交网络和其他来源传播到世界各地的，加拿大部队步兵团的毕业生，2015年他前往伊拉克为伊斯兰国作战，曾每天消灭敌军40人，对敌方造成重大威胁的，被认为是“世界上最好的狙击手”加拿大40岁的瓦力先生，已经在乌克兰被消灭了的消息，被加拿大媒体曝光为假消息。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
-据加拿大媒体采访瓦利时，瓦力解释说“我还活着。这就是事情的真相。因为他们可以通过频率等来定位我。出于安全考虑，我在前线，没有带智能手机。”
 
-在与俄军近距离约50米的交战中，虽然坦克炮弹在藏身的居民楼近3米地方爆炸，生存下来了。瓦力还表示，就目前而言，还将留在乌克兰，与俄罗斯军队作战。
 
-瓦力先生把妻子和年幼的孩子留在加拿大，于3月作为乌克兰志愿兵与朋友到达乌克兰，参与这场正义之战，让人不得不生出崇敬之心。而俄军的造谣消息中也不难看出，瓦力效应都能使俄军军心动摇，足见俄军心里素质的脆弱。瓦力的居民楼里3米远的爆炸的证言，也进一步证明了俄军违反战时国际法，不能杀平民百姓的条约。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-550.jpg)
 
-信息来源:[世界最高のスナイパー“奇跡の生還”　「抹殺」情報拡散も…ロシア軍と戦う決意](https://news.tv-asahi.co.jp/news_international/articles/000252603.html?display=full)
+普京政权被指控“掩盖”俄罗斯最高机密武器研究设施的死亡人数，因为一名当地记者声称，至少有25人在这场致命的大火中丧生，而不是像克里姆林宫支持的媒体所坚持的“最多7人”。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+视频显示，周四，位于特维尔的俄罗斯联邦国防部第二中央研究所被大火烧毁，莫斯科的伊斯坎德尔导弹就是在这里设计的，此后启动了刑事调查。
+
+四名军事科学家被迫从燃烧的建筑物中跳出窗户，国家媒体不同程度地报道说有五人或七人死亡。
+
+但现在声称至少有25人死亡，可能包括俄罗斯的一些主要导弹科学家。火灾发生两天后，寻找被困在瓦砾下的幸存者的工作仍在进行，据说至少有五人在接受重症监护。
+
+该研究所是设计“伊斯坎德尔”导弹的核心单位，普京已向乌克兰投放了这种导弹，以及俄罗斯的S-400导弹防御系统。它还参与了其他“秘密项目”。这一损失被认为是对普京导弹现代化计划的打击。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-222.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所的消防员被大火吞噬。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-184.jpg)位于特维尔的俄罗斯联邦国防部第二中央研究所发生了一场大火。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-161.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所发生火灾后被烧毁的遗迹。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-115.jpg)起火原因尚不清楚，但有报道称出现了“有毒的蓝黑色烟雾”。
+
+**接下篇：** **普京政权被指** **“** **掩盖** **”** **俄武研所火灾死亡人数（** **2/2** **）**
+
+新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
+
+* * *
+
+素材：peacelv
+审核：文乐
+校对：小东
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 

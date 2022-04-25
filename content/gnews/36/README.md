@@ -2,26 +2,28 @@
 ---
 
 
-## 普京对外交丧失了兴趣
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2408818/)
+## 澳大利亚政府对32家宣传机构实施制裁 停止播放俄罗斯国家频道
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2408942/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-542.jpg)
-零对冲网4月24日报道，普京已经对通过外交途径终止在乌克兰的战争不再抱希望，意味着他只有采用占领乌克兰土地的策略。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo777.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3139.png)
 
-这个俄罗斯总统上个月说他已经很认真地考虑了一个和平方案，但在伊斯坦布尔的和平谈判刚开始，乌克兰总统泽连斯基指控了克里姆林宫在马利乌波尔和布查犯下了战争罪行，当时的谈判因而搁浅。
+（图片来自原文）
 
-据普京的说法，这个和平谈判的努力已经结束了。他当初想要找到一个方式来显示自己是战胜者，然而，随着俄罗斯的莫斯科号战略导弹舰被击沉后，他感觉到了羞辱，普京对战场的判断来自于莫斯科电视台，导致了他判断的偏差。
+乌克兰文化和信息政策部长奥列克桑德-特卡琴科（Oleksandr Tkachenko）在其Telegram频道上写道，上个月，我就澳大利亚限制俄罗斯宣传的问题，向澳大利亚的同事保罗-弗莱彻（Paul Fletcher）发出了呼吁。
 
-据参与谈判者透露，普京目前在外交上的新姿态是他认为俄罗斯可以从乌克兰获得更多的领土。 周六，泽连斯基说他希望谈判继续，否则在马利乌波尔的人民会有更多的死亡。
+现在，澳大利亚的公共广播公司已停止播放所有俄罗斯国家的宣传频道。
 
-短期来说，这个和平谈判还无法实现。
+澳大利亚政府已经对32名宣传者和虚假信息的传播者实施了制裁，其中包括今日俄罗斯、战略文化基金会、InfoRos和NewsFront的高级编辑。
 
+另外，特卡琴科说，澳大利亚的主要平台已经参与了打击虚假信息的斗争，特别是他们已经开始对俄罗斯的宣传内容进行相应的标记和删除。
 
+此外，澳大利亚广播公司正在考虑增加乌克兰新闻在电波中的份额，包括播放乌克兰电视频道的可能性。
 
-#### 新闻来源： [Putin Has ‘Lost Interest’ In Diplomacy](https://www.zerohedge.com/geopolitical/putin-has-lost-interest-diplomacy)
+新闻来源链接：[https://en.interfax.com.ua/news/general/826272.html](https://en.interfax.com.ua/news/general/826272.html)
 
-
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 
