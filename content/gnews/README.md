@@ -81,44 +81,44 @@
 ### [共产党就是奴隶主，中国人就是奴隶](/content/gnews/22/README.md)
  ` 加拿大温哥华英里农场`
 
-### [上海的封城引发强烈抗议 北京准备应对中共病毒病例的增加](/content/gnews/23/README.md)
+### [普大帝做过肾手术心脏也不好（二）](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [上海的封城引发强烈抗议 北京准备应对中共病毒病例的增加](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [俄罗斯在乌克兰的失败可能会促使中共入侵台湾](/content/gnews/24/README.md)
+### [俄罗斯在乌克兰的失败可能会促使中共入侵台湾](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚政府对32家宣传机构实施制裁 停止播放俄罗斯国家频道](/content/gnews/25/README.md)
+### [澳大利亚政府对32家宣传机构实施制裁 停止播放俄罗斯国家频道](/content/gnews/26/README.md)
  ` topnews`
 
-### [泽连斯基会见美国务卿布林肯及防长奥斯汀](/content/gnews/26/README.md)
+### [泽连斯基会见美国务卿布林肯及防长奥斯汀](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国大选｜马克龙成功连任法国总统 大批民众上街抗议](/content/gnews/27/README.md)
+### [法国大选｜马克龙成功连任法国总统 大批民众上街抗议](/content/gnews/28/README.md)
  ` 關注組`
 
-### [世界医学会明确支持台湾参与WHO与WHA组织中来](/content/gnews/28/README.md)
+### [世界医学会明确支持台湾参与WHO与WHA组织中来](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京对外交丧失了兴趣](/content/gnews/29/README.md)
+### [普京对外交丧失了兴趣](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻北美时评】 中共诡计用尽 佩洛西一波三折坚持访台](/content/gnews/30/README.md)
+### [【秘翻北美时评】 中共诡计用尽 佩洛西一波三折坚持访台](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [自封城以来上海首次允许400万人走出家门，但仍坚持严格管控](/content/gnews/31/README.md)
+### [自封城以来上海首次允许400万人走出家门，但仍坚持严格管控](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰和日本宣布信息共享合约以应对中国对太平洋地区日益增长的威胁](/content/gnews/32/README.md)
+### [新西兰和日本宣布信息共享合约以应对中国对太平洋地区日益增长的威胁](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [全球食品通胀飙升 印尼禁止棕榈油出口](/content/gnews/33/README.md)
+### [全球食品通胀飙升 印尼禁止棕榈油出口](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [封城蔓延至北京，朝阳区首先进行核酸检测](/content/gnews/34/README.md)
+### [封城蔓延至北京，朝阳区首先进行核酸检测](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共计划经济给中国人带来一场灾难](/content/gnews/35/README.md)
- ` 澳喜农场`
 
 ### [美国总统将访问以色列](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
@@ -129,11 +129,11 @@
 ### [引领人类文明不断进步才是世界主导者](/content/gnews/38/README.md)
  ` 历史组`
 
-### [中共文革式防疫&#8211;北京](/content/gnews/39/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [樱花时政┃美国警告所罗门领导人 不要让中共建立军事基地](/content/gnews/40/README.md)
+### [樱花时政┃美国警告所罗门领导人 不要让中共建立军事基地](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [COVID-19疫苗副作用集萃(2022.4.25A) 两针辉瑞疫苗半年后出现副作用](/content/gnews/40/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [欧盟揭露德法等国出售武器给普京 高达3.5亿欧元](/content/gnews/41/README.md)
  ` 日本东京方舟农场`

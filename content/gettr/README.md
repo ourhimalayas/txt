@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 7:05 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group14/origin/2022/04/25/06/ac7981e7-e712-6fda-9df2-8ec2f2805118/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -151,12 +158,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月23日第50天当日救援统计：<br/>Medyka救援站接待：约268人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约14171人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 50 - Date: April 23, 2022 :<br/>Medyka Rescue Station Reception: about 268 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 14171 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group31/getter/2022/04/24/15/adacf484-51b7-09d6-eb9f-2bf4f5d9a2e2/6879c604ca02a0a7e772c6e1fa959038.jpg)
-
----
-
-`@miles 4/24/2022 3:38 PM (UTC)`
-
-04/24/2022 on the 6th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 4 countries Top Music Video Charts <br/>No.1 🥇 on 6 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Canada🇨🇦, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月24号，《铁锁梦》MV在全球上线第六天，登榜iTunes <br/>4国MV总榜第一名🥇<br/>6国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，加拿大🇨🇦，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2405812/
 
 ---
 
