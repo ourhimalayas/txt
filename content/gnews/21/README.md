@@ -2,36 +2,27 @@
 ---
 
 
-## 加拿大SunWing航班因遭骇客攻击而被全面延误
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412879/)
+## 美议员呼吁建乌克兰野战医院，以色列启动战地医院
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2412880/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509121501.png)图片来源：CTV新闻
+#### 选择/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16509122661.png)[图片来源](https://visitukraine.today/)
+据美军时报4月22日报道，美国两党共同建议在乌克兰建立野战医院，以应对伤亡的乌克兰军人和平民。
 
+这封由十多名众议院议员撰写的信函在上周五提交给国务卿布林肯（Blinken) 和国防部长奥斯汀（Austin）。信中吁拜登政府在乌克兰边境附近建立野战医院。美联社记录了36起俄罗斯对医疗设施的袭击，其导致医疗伤病者的能力受到影响。
 
-据【CBC新闻】4月19日报道，由于所使用的第三方服务器提供商遭到网络入侵，导致加拿大[SunWing航空公司]当天有大批航班被延误，并因此造成数千名乘客滞留机场。
+建议包括在波兰东部开设野战医院。这些医院旨在填补乌克兰医疗基础设施的空白。提供装甲救护车，旨在将部分伤者送往美军位于德国西部的兰德斯图尔地区医院。
 
-报道称，从两天前开始，[SunWing公司]几乎所有航班都受到了影响。此次网络攻击已导致其客户操作系统无法工作，值机人员只能人工处理航班信息并手动填写登机牌。故障还造成该公司被迫连续停飞四天航班，数千名乘客滞留在多伦多皮尔逊国际机场，另有部分乘客滞留国外无法按时返回加拿大。
+多数观察人士认为，乌克兰东部的战争可能会持续到夏天。乔·拜登总统承诺加大对乌克兰的支持力度，同时避免采取会导致普京与华盛顿发生直接冲突的行动。
 
-遭受攻击的 Airline Choice 是一家总部位于美国的服务器提供商，并与多家航空公司有业务往来，因此，本次网路攻击也波及到全球多家航空公司。而[SunWing]是唯一受到影响的加拿大航空公司。
+众议员杰森·克劳（Jason Crow）说，他支持拜登不派兵或在乌克兰部分地区建立禁飞区的决定。“但提供医疗支持不应被视为冲突升级”。在距离前线数百英里的波兰东部建立野战医院，配备美国和西方的医疗人员，可以减轻乌克兰的负担，并 “确保这场冲突的可持续性”。
 
-原文链接：[https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728](https://www.cbc.ca/news/canada/toronto/toronto-passengers-waiting-flight-delays-sunwing-1.6423728)
+另据耶路撒冷邮报3月25日消息，同日，以色列官方野战医院在乌克兰启动。希巴（Sheba）医疗中心的野战医院是第一家抵达乌克兰的医院，名为“科哈夫·梅尔”（闪亮之星）的这家野战医院，位于波兰与乌克兰边境的莫斯季斯卡镇附近。医疗志愿者目前正在照顾数百名难民。
 
-上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【活力人生】
-素材/采编 -【活力人生】
-校对/审核 -【硫酸羟氯喹64】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+*责编： 白夜*
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+参考链接 [1](https://www.militarytimes.com/flashpoints/ukraine/2022/04/22/lawmakers-want-us-to-set-up-field-hospitals-for-ukraine/) [2](https://www.jpost.com/international/article-702315)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

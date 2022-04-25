@@ -15,74 +15,74 @@
 
 ---
 
-### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [七哥金句：上海封城的凄惨](/content/gnews/2/README.md)
+### [七哥金句：文人最后都是权力的打手](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [保守派加拿大人更加反对政府监控](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [七哥金句：中共的政治需要清零的核酸](/content/gnews/4/README.md)
+### [七哥金句：只有中国人救中国人](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中共国是美国最大的反情报威胁](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [上海市民在暴雨中做核酸检测](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国在美国芬太尼危机中的角色](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/8/README.md)
+### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [傅政华还想当安全部部长](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
-
-### [傅振华为什么要对我们那么狠呢？](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
-
-### [检举揭发刘志华](/content/gnews/11/README.md)
- ` 加拿大温哥华英里农场`
-
-### [国内办黑案已经超出了人性超出了底线](/content/gnews/12/README.md)
- ` 加拿大温哥华英里农场`
-
-### [共产党查封了我的所有资产](/content/gnews/13/README.md)
- ` 加拿大温哥华英里农场`
-
-### [不列颠哥伦比亚省医疗护工严重短缺](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [七哥金句：我们的武器](/content/gnews/15/README.md)
+### [七哥金句：现行的核酸检测也是对人性的各种测试](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [【蓝枫法律】如何选择遗嘱&amp;信托的执行人](/content/gnews/16/README.md)
+### [揭露真正的政坛的现状](/content/gnews/5/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [揭露朱善璐，李友等的丑闻丑事](/content/gnews/6/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [揭露付振华的罪行和背后的阴谋](/content/gnews/7/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥金句：上海封城的凄惨](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [保守派加拿大人更加反对政府监控](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共国是美国最大的反情报威胁](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [上海市民在暴雨中做核酸检测](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国在美国芬太尼危机中的角色](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [共产党查封了我的所有资产](/content/gnews/15/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [不列颠哥伦比亚省医疗护工严重短缺](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [【蓝枫法律】如何选择遗嘱&amp;信托的执行人](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [澳大利亚的依赖性使中共将贸易武器化](/content/gnews/17/README.md)
+### [澳大利亚的依赖性使中共将贸易武器化](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [过半加拿大人正面临经济困难](/content/gnews/18/README.md)
+### [过半加拿大人正面临经济困难](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [【蓝枫法律】：如何确认遗嘱的合法性](/content/gnews/19/README.md)
+### [【蓝枫法律】：如何确认遗嘱的合法性](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [美议员呼吁建乌克兰野战医院，以色列启动战地医院](/content/gnews/20/README.md)
+### [美议员呼吁建乌克兰野战医院，以色列启动战地医院](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大SunWing航班因遭骇客攻击而被全面延误](/content/gnews/21/README.md)
+### [加拿大SunWing航班因遭骇客攻击而被全面延误](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [截至4.25 俄乌战事汇总](/content/gnews/22/README.md)
+### [截至4.25 俄乌战事汇总](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [五月花简报（04/25/2022）](/content/gnews/23/README.md)
- ` mayflowertranslate`
 
 ### [4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
