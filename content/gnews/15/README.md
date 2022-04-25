@@ -2,33 +2,22 @@
 ---
 
 
-## 中日财经爆┃中共股市暴跌，破3000点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2410349/)
+## 秘翻在线：负债千亿的泰禾集团暴雷
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2410440/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月25日中新经纬报道，A股进入节前最后一周交易日，三大指数集体低开，沪指自2020年7月以来首次跌破3000点关口，随后跌超4%，距2021年12月31日高点跌超20%。截至收盘，沪指报2928.51点，跌幅达5.13%。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-554.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fassets.gnews.org%2Fwp-content%2Fuploads%2F2022%2F03%2F%25E4%25B8%258A%25E8%25AF%2581%25E6%258C%2587%25E6%2595%25B0-e1647395906182.jpg&amp;imgrefurl=https%3A%2F%2Fgnews.org%2Fzh-hant%2F2171472%2F&amp;tbnid=jXFJGX3H5XZd2M&amp;vet=12ahUKEwingc6u_q73AhUJmhoKHcZmARsQMygwegUIARDrAQ..i&amp;docid=6VJtnIW4KfkpjM&amp;w=1194&amp;h=672&amp;itg=1&amp;q=%E4%B8%AD%E5%85%B1%E8%82%A1%E5%B8%82&amp;ved=2ahUKEwingc6u_q73AhUJmhoKHcZmARsQMygwegUIARDrAQ)
-此为2020年2月3日以来最大跌幅。沪指上一次跌破3000点是在2020年3月9日。当时，受疫情在全球扩散外盘下跌影响，大盘大幅跳空低开，直接跌破3000点，下跌后受2934点位的支撑，有所反弹震荡，收于2943点。再上一次，则是2020年1月23日，也是当年春节前最后一个交易日。当天，沪深两市双双跳空低开，随后跌幅明显扩大，沪指午后跌破3000点整数关口。
+**撰稿：葛大饼**
 
-2019年7月5日，三大股指开盘后集体下挫，盘初沪指一度跌破3000点整数关口，不过收盘时，沪指上涨0.19%，收报3011.06点。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11-40.png)图片来源： 搜狐
+根据2022年4月25日新浪报道，泰禾集团将2021年业绩预告由盈利超1亿元，修正为“巨亏35亿元-46亿元”，令市场与5万名股东直呼“踩雷”。
 
-除了中共国A股外，今天亚太市场全线下挫。
+据最新财报显示，泰禾集团的资产规模仍高达2227亿元，总负债规模也超过2000亿元，其实早在今年三月份，泰禾集团已现崩塌之势：泰禾集团曾公告，公司董事长兼总经理黄其森正在协助有关机关调查，与此同时，泰禾集团的大股东也陷入“被动减持”的风波。 泰禾集团的股价一路崩跌，截至最新收盘，泰禾股价仅剩2.49元/股，相比2018年的最高价（21.31元/股），累计跌幅高达88%，总市值累计蒸发更是高达453.9亿元。
 
-日经255指数低开低走，盘中大跌逾2%，韩国综合指数跌逾1.5%，中国台湾加权指数跌逾2.5%。港股表现更弱，恒生指数盘中大跌逾3%失守20000点整数关口，持续刷新3月17日以来新低；恒生科技指数跌近4%。
+新闻称泰禾集团于2019年首次曝出资金链紧张的问题， 2020年泰禾集团业绩全面亏损，年度净亏损金额高达51亿元，随着刚刚披露的2021年巨亏的业绩预告，预示着泰禾不仅被“ST”风险，很可能是下一个轰然倒下的房企。
 
-中共施行所谓的病毒隔离政策，致民生与经济不顾，使大半个中国处于封闭状态，股市的走势也是经济趋势，现在的经济状态也之前崩溃倒塌前的征兆。
+上周宜居爆雷，这周泰禾爆雷，中共控制的房地产公司频频爆雷，这也印证了郭文贵先生的爆料：中共房地产发生融资暴雷的时间将集中在2022年5月到7月, 而最让国际金融界恐惧的，是他们发现中共这些房地产商并无还款意愿。其结果，一方面，将使国际金融机构陷入灾难；另一方面，将会拖累中共国内的银行，牵连出中共相关高层隐藏的代持者，引发中共国内金融和政治的动荡，甚至导致保险公司不赔付保险，给墙内百姓带来无法想象的灾难。
 
-信息来源：[【沪指午盘险守3000点 两市超4300只个股下跌】](https://mo.mbd.baidu.com/r/F3pnPdGePe?f=cp&amp;rs=991282986&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ea807c2d379a6b68&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**[新闻来源](https://k.sina.cn/article_6241116541_173ffe17d019011a18.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
  
 
