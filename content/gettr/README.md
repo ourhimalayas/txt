@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 3:39 PM (UTC)`
+
+4/24/2022 Ukraine Rescue: Ever since erecting the 6-meter-high billboard at the rescue camp in Medyka, there have been people who not only verbally abused our fellow fighters, but also attempted to hit and almost injured them. While they had to apologize to us afterwards, they have repeatedly twisted the facts, and the citizens of the New Federal State of China will definitely investigate this matter to the end!<br/><br/>4/24/2022 乌克兰救援连线：自从把6米高的广告牌在梅迪卡救援营地竖起来后，就有人不仅言语辱骂，而且还动手差点伤到战友。虽然他们事后不得已道歉了，但却一再地歪曲事实，新中国联邦人定会将此事追查到底！<br/>
+![img](https://media.gettr.com/group50/getter/2022/04/25/15/d3ca549d-062d-a995-b1ca-00d28c65bb3b/out.jpg)
+
+---
+
+`@miles 4/25/2022 3:27 PM (UTC)`
+
+04/25/2022 on the 7th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 4 countries Top Music Video Charts <br/>No.1 🥇 on 5 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸,  Macau🇲🇴, Singapore🇸🇬, Germany🇩🇪, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月25号，《铁锁梦》MV在全球上线第七天，登榜iTunes <br/>4国MV总榜第一名🥇<br/>5国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，澳门🇲🇴，新加坡🇸🇬，德国🇩🇪，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2411062/
+
+---
+
 `@miles 4/25/2022 3:10 PM (UTC)`
 
 The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
@@ -142,20 +155,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 2022.04.24 农场联盟工作汇报
 ![img](https://media.gettr.com/group39/origin/2022/02/14/03/37205369-b1b3-29bc-d3d8-a0702b98014d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/25/2022 2:04 AM (UTC)`
-
-2022.04.24  新中国联邦 | 喜财经  数字货币的发行如何取代传统法币，构建新经济生态？
-![img](https://media.gettr.com/group16/origin/2022/04/25/02/c087f95b-4233-2d5b-3616-0b17d2c7bd9a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/25/2022 1:18 AM (UTC)`
-
-4/24/2022 Miles Guo: Since the beginning of our Whistleblowers’ Movement, we have witnessed astonishing coincidences between the Movement and many other events that seem to be irrelevant to the Movement. As a matter of fact, these seemly coincidences actually prove the accuracy of the intelligence information the Movement has obtained, and further show the world that the Movement is blessed<br/><br/>4/24/2022  文贵直播： 从爆料革命开始到现在，爆料革命和无数看似无关的各种事件存在神奇惊人的巧合，而这些看似巧合的背后实际证明了爆料革命情报的准确性，向世人展示了爆料革命得天佑的事实<br/>
-![img](https://media.gettr.com/group27/getter/2022/04/25/01/b539a20d-6285-c374-318a-2e2dab45529f/out.jpg)
 
 ---
 
