@@ -2,53 +2,65 @@
 ---
 
 
-## 北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411411/)
+## 泽连斯基复活节讲话强调基督复活的荣光战胜黑暗
+` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2411535/)
 
-编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/自由.png)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/89f4470f0ad9d047c2cdf8be0b29dc0767a68cdb.jpg)[来源：乌克兰国防部](https://www.mil.gov.ua/news/2022/04/25/prezident-ukraini-proviv-zustrich-z-derzhavnim-sekretarem-ta-ministrom-oboroni-ssha/)
+据乌克兰自由之声电台当地时间24日报道，“[乌克兰总统泽连斯基会见了正在乌克兰进行访问的美国国务卿布林肯和国防部长劳埃德奥斯汀](https://www.radiosvoboda.org/a/news-zelenskyy-pro-zustrich-z-blinkenom-i-ostinom/31819560.html)。”因为拜登政府不敢证实，乌克兰政府部将“[**总统会见美国国务卿和国防部长**](https://www.mil.gov.ua/news/2022/04/25/prezident-ukraini-proviv-zustrich-z-derzhavnim-sekretarem-ta-ministrom-oboroni-ssha/)“的信息在国防部官网。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+## **美国防长及国务卿访问基辅拜登却不敢证实** 
 
-北京–中国首都北京周末警告说，科威德已经在该市扩散了一周而未被发现，而且随着调查的进行，还会发现更多的病例。
+有趣的是，[美国国会山消息称，“拜登政府并未证实国防部长与乌克兰总统会面](https://thehill.com/policy/international/3461785-zelensky-meets-with-blinken-austin-in-kyiv-reports/)，但美联社和其他媒体均证实了这一消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3174.png)
-中共国的首都北京报告说，周末的Covid病例激增，周一开始在朝阳的商业区进行大规模检测。在该区，图中的一个社区被列为高风险区。
-姜启明｜中国新闻社｜盖蒂图片社
+## **泽连斯基赞赏美国的巨大援助** 
 
-周一，朝阳主要商业区开始对在该地区生活或工作的任何人进行为期三天的大规模检测，该地区是许多大使馆和外国企业的所在地。自上周五以来，北京新报告的42例Covid病例中，该区占了大多数。
+泽连斯基在与美国务卿和防长奥斯汀会见时“强调了在乌克兰的关键时刻，美国高级官员访问基辅的重要性。总统泽连斯基补充说：
 
-在北京，只有特定的公寓楼被锁住了。学校大多保持开放，但朝阳商务区下令停止所有的个人团体活动和培训课程，包括艺术和体育。
+“[我们赞赏美国以前所未有的方式帮助乌克兰。我要亲自感谢拜登总统和整个乌克兰人民在支持乌克兰方面发挥的领导作用，感谢他个人明确的立场。感谢所有美国人民以及国会的两院制和两党支持。我们看到了。我们感觉到了](https://www.radiosvoboda.org/a/news-zelenskyy-pro-zustrich-z-blinkenom-i-ostinom/31819560.html)。”
 
-在主要商业区以南一个地铁站的一小部分地区，所有餐馆、娱乐场所、室内健身房和非必要的业务将从周一早上开始关闭。据国家媒体报道，当地政府补充说，受影响地区的居民一般应在家里工作，除非有必要，否则不要外出。
+乌克兰总统赞赏“美国已经提供的34亿美元国防支持是对加强乌克兰国防能力的最大贡献。”
 
-北京的病例增加，是因为中国大陆面临着自2020年初以来最严重的Covid疫情。中共国一直坚持严格的零Covid政策，利用迅速封锁、隔离和旅行限制来控制病毒的爆发。
+## **泽连斯基要求追加对俄制裁** 
 
-中国最大的城市–上海的大部分地区仍然处于长期封锁状态，自周五以来报告了100多起与Covid有关的新死亡病例。
+泽连斯还谈到了“加强对俄罗斯的制裁、对乌克兰的财政支持和安全保障。”认为，“[这种援助已经有助于将乌克兰的防御能力提升到一个全新的水平](https://www.radiosvoboda.org/a/news-zelenskyy-pro-zustrich-z-blinkenom-i-ostinom/31819560.html)。
 
-在全国范围内，上海迄今为止占了最多的Covid病例，周日报告了2400多例有症状的病例和16900多例无症状病例。
+该消息也证实了美国如此重量级官员到访基辅，美国未敢承认。人们相信，这仍然来自于中、俄和欧盟各方势力的阻拦。
 
-据Wind资讯报道，北京和上海根据GDP位列中共国十大省级地区。数据显示，北京的经济在第一季度增长了4.8%，与全国水平持平，而上海的经济增长了3.1%，因为有针对性的封锁在3月份上升。
+## **美国会山证实国防部长国务卿访问基辅** 
 
-市政府表示，受北京朝阳商业区最新一轮案件影响的服务业工人每天可以获得100元（15.38美元），最多21天。
+根据国会山消息，俄罗斯在复活节不但没有停止对乌克兰的攻击，并且在加大力度袭击了乌克兰。并就此援引总统泽连斯基的话说，复活节，“[我以此庆祝基督的复活。“但我们正在为这个好消息而战，因为光明而真理的一面、人、主（基督）和神圣的真光都在站在我们这一边。](https://thehill.com/policy/international/3461785-zelensky-meets-with-blinken-austin-in-kyiv-reports/)”
 
-据了解，病例激增和大规模检测的消息促使当地人急于囤积食物。
+## **泽连斯基复活节演讲强调基督复活得胜** 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3175.png)
+泽连斯基复活节讲话是在战火中神迹般幸存下来的大圣索菲亚大教堂中，其中，他意味深长地说，“[因为瘟疫叫战争。去年的威胁和当前的威胁都因一件事而联合起来——没有什么能战胜乌克兰](https://www.mil.gov.ua/news/2022/04/24/privitannya-prezidenta-ukraini-volodimira-zelenskogo-z-velikodnem/)。”
 
-来源：[China’s capital city warns of more Covid cases and begins mass testing in the central business district](https://www.cnbc.com/2022/04/25/chinas-capital-city-beijing-begins-covid-testing-in-business-district.html)
+2022年4月25日
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422114846.png)
+**阅读更多樱花团资讯**：
 
-* * *
+- [台湾昨日中共病毒破四千例，中共讽刺台湾人“抢打疫苗”](https://gnews.org/zh-hans/2402123/)
+- [樱花时政-邪恶的中共政权才是万恶之源（十）](https://gnews.org/zh-hans/2409633/)
 
-审核：Aries的星
-校对：阿伯塔
-发布：花羽
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
+- [樱花FM-没逻辑的上海确诊死亡数据 分析：不符合医学规律](https://gnews.org/zh-hans/2408895/)
+- [【视频】北京突起疫情，多个小区实施封控](https://gnews.org/zh-hans/2401980/)。
+- [新闻述评：习近平发布“台籍兵”当天华视传出开战假讯。](https://gnews.org/zh-hans/2384195/)
+- [【有声】俄军以“口炮”用来打击美军向乌克兰运送武器的飞机](https://gnews.org/zh-hans/2371728/)
+
+
+- [【视频】新闻述评：美国会跨党派议员访台谴责习近平支持了普京](https://gnews.org/zh-hans/2356260/)
+- [乌克兰国防部：载有核弹头的俄黑海舰队的旗舰被击沉引发担忧](https://gnews.org/zh-hans/2351656/)
+- [突破：俄纳粹军重新集结在乌东地区,一场血战即将开始](https://gnews.org/zh-hans/2342994/)
+- [美国总统坚称普京犯下“大屠杀”行为 将由国际审判庭定罪](https://gnews.org/zh-hans/2338330/)
+- [美总统助理沙利文称将启动国际刑事法院追讨俄罗斯总统普京 “战争罪”。](https://gnews.org/zh-hans/2290690/)
+
+
+- [NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
+- [新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
