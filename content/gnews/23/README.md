@@ -2,8 +2,8 @@
 ---
 
 
-## 普大帝做过肾手术心脏也不好（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2409310/)
+## 商丘坠机现俄罗斯飞行员说明中俄是军事合作已到你我不分的地步
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2409323/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

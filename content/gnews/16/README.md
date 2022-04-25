@@ -2,58 +2,24 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.25B）第三针加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2409366/)
+## 视频|俄罗斯计划在秋季前部署洲际核导弹
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2409416/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+制作：香草山视频部
 
-#### 整理/编辑：红红火火
+据外媒4月23日报道，俄罗斯计划在秋季前部署可携带核弹头的Sarmat洲际弹道导弹。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-12.png)图片来源：雅典娜设计组(614)
+俄罗斯对外宣布，已经在周三首次试射了Sarmat洲际弹道导弹。该导弹系统可以携带 10 枚或更多核弹头和诱饵，并能够打击数千英里外美国或欧洲的目标。俄方称，新的洲际核导弹将被部署在莫斯科以东约 3,000 公里的西伯利亚。为了节省“巨大的资源和时间”，该导弹将直接安装在原来苏联时代的伏耶沃达导弹的发射井中。
 
+在由于资金和技术问题，Sarmat导弹研发一直被不断推迟。西方军事专家表示，在Sarmat导弹试射后，俄方还要花费更多的努力才能完成部署。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+另据郭文贵先生揭露，俄罗斯在乌克兰战场的节节败退，以及“莫斯科号”被击沉、俄战略轰炸机的王牌飞行员离奇身亡双重打击下，普京似有和谈缓兵的打算。分析人士指出，俄方使用战略性核武器的可能性不大，部署Sarmat导弹的战略震慑意义大于战术意义。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+发稿：林礼
 
-博主:  小泡辣
-
-**帖子原文:**
-
-打完第三针，姨妈彻底出走了
-
-#姨妈推迟 #打了新冠疫苗姨妈推迟 #接姨妈 姨妈本来就不太正常，一直是推后现在好了，3月份彻底没来，小红书上的催经汤、催经穴都没有用，担心又着急
-
-发布于 2022-04-4
-
-**精选评论**
-
-Only:我打了前两针，姨妈直接出走两个月，检查是卵巢呈多囊样改变，但是激素那些正常还算不上多囊，现在不敢打第三针
-
-小泡椒(作者) : 这样的话第三针确实要考虑一下，问下医生会不会有影响
-
-Elaine : 我打了前两针姨妈出走八个月到现在吃药还没来检查直接说内膜太薄，没打之前姨妈特准特规律
-
-小泡椒(作者) : 八个月我今天第25天终于来了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-140.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-42.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/12345-9.png)图片来源：小红书
-
-
-参考链接：[混打三针新冠疫苗后副作用明显](https://www.xiaohongshu.com/discovery/item/6245b2970000000021036571?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649314250)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
