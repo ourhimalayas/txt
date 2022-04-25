@@ -2,45 +2,40 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.25B）&#8211;加强针的反应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2408768/)
+## 恶意攻击新中国联邦义工的 Tim Carlsgaard 与中共什么关系？
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2408816/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+##### 作者：加拿大温哥华扬帆农场 – 薇文Vivian
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![previewImg](https://pbs.twimg.com/media/FRGvSMdagAAfEFM.jpg)
+深挖掘！隐藏在Tim Carlsgaard后面与中共政府的利益往来。
 
-整理/编辑：机器猫
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片55-7.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+在新中国联邦救援营地搞破坏，并差点打到我们战友的人名字叫Tim Carlsgaard。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+Tim Carlsgaard 早年在民主党参议员 DeConcini 办公室做助理。 2009年他进入 [#XcelEnergyInc](https://gettr.com/hashtag/%23XcelEnergyInc) 担任”联络与公共事务”主管 ([链接](https://www.electricityforum.com/news-archive/sep08/Proposedpowerlinegeneratesopposition))。
 
-帖子原文：
+这是一家总部位于明尼苏达州的电力能源公用事业公司。该公司宣布在2035年减少80%碳排放、2050年100%提供清洁电力，成为美国第一个设定这一目标的公用事业公司。
 
-原文作者：R
+2018年10月，该公司与中共合作，其新能源项目NEC在中国进行试运行。NEC是把新能源与区块链相结合，打造新能源自由市场规则。([见链接](http://hainan.ifeng.com/a/20180905/6860064_0.shtml))
 
-加强针的反应
+他就是中共的前台打手。
 
-打完加强针第二天睡醒鼻咽部干到冒火，第三天睡醒还是这样，黄痰加血。
+[盖特链接](https://gettr.com/post/p16xwgpfaf9)
 
-现在第六天了，还是鼻塞，干，好痛苦。羡慕没反应的人。#打新冠疫苗
+上传/发稿 – 云起时
+撰稿/翻译/听写 – 薇文vivian
+素材/采编 – 薇文vivian
+校对/审核 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-精选评论：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-是葱何必装蒜 回复：我3月16号打的北京科兴加强针，今天姨妈都二天，这两天真的难受坏了，浑身酸痛，前两针都没反应，不知道是不是疫苗的原因！
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-梦想明天 回复：我打完滴第3天早上起来喉咙不舒服，晚上开始鼻塞，过了一天开始发烧头疼。鼻塞也还没好。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3135.png)
-素材来源：
-
-[加强针的反应](https://www.xiaohongshu.com/discovery/item/624fa9a40000000021037b8b?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761807)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

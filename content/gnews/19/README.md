@@ -2,40 +2,27 @@
 ---
 
 
-## 恶意攻击新中国联邦义工的 Tim Carlsgaard 与中共什么关系？
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2408816/)
+## 普京对外交丧失了兴趣
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2408818/)
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文Vivian
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![previewImg](https://pbs.twimg.com/media/FRGvSMdagAAfEFM.jpg)
-深挖掘！隐藏在Tim Carlsgaard后面与中共政府的利益往来。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-542.jpg)
+零对冲网4月24日报道，普京已经对通过外交途径终止在乌克兰的战争不再抱希望，意味着他只有采用占领乌克兰土地的策略。
 
-在新中国联邦救援营地搞破坏，并差点打到我们战友的人名字叫Tim Carlsgaard。
+这个俄罗斯总统上个月说他已经很认真地考虑了一个和平方案，但在伊斯坦布尔的和平谈判刚开始，乌克兰总统泽连斯基指控了克里姆林宫在马利乌波尔和布查犯下了战争罪行，当时的谈判因而搁浅。
 
-Tim Carlsgaard 早年在民主党参议员 DeConcini 办公室做助理。 2009年他进入 [#XcelEnergyInc](https://gettr.com/hashtag/%23XcelEnergyInc) 担任”联络与公共事务”主管 ([链接](https://www.electricityforum.com/news-archive/sep08/Proposedpowerlinegeneratesopposition))。
+据普京的说法，这个和平谈判的努力已经结束了。他当初想要找到一个方式来显示自己是战胜者，然而，随着俄罗斯的莫斯科号战略导弹舰被击沉后，他感觉到了羞辱，普京对战场的判断来自于莫斯科电视台，导致了他判断的偏差。
 
-这是一家总部位于明尼苏达州的电力能源公用事业公司。该公司宣布在2035年减少80%碳排放、2050年100%提供清洁电力，成为美国第一个设定这一目标的公用事业公司。
+据参与谈判者透露，普京目前在外交上的新姿态是他认为俄罗斯可以从乌克兰获得更多的领土。 周六，泽连斯基说他希望谈判继续，否则在马利乌波尔的人民会有更多的死亡。
 
-2018年10月，该公司与中共合作，其新能源项目NEC在中国进行试运行。NEC是把新能源与区块链相结合，打造新能源自由市场规则。([见链接](http://hainan.ifeng.com/a/20180905/6860064_0.shtml))
+短期来说，这个和平谈判还无法实现。
 
-他就是中共的前台打手。
 
-[盖特链接](https://gettr.com/post/p16xwgpfaf9)
 
-上传/发稿 – 云起时
-撰稿/翻译/听写 – 薇文vivian
-素材/采编 – 薇文vivian
-校对/审核 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+#### 新闻来源： [Putin Has ‘Lost Interest’ In Diplomacy](https://www.zerohedge.com/geopolitical/putin-has-lost-interest-diplomacy)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
