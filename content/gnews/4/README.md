@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：现行的核酸检测也是对人性的各种测试
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413098/)
+## 七哥金句：大家一定要备粮！
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413201/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句4.14-05.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

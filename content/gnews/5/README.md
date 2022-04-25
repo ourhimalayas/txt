@@ -2,14 +2,17 @@
 ---
 
 
-## 揭露真正的政坛的现状
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2413090/)
+## 七哥金句：什么叫马克思主义？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413180/)
 
-听写：叮叮         编辑：文宝
-
-
-
-像付振华这样的人，未来我们要揭发的人当中啊，四个人当中级别最低，我们还有很多这样的故事，中国今天很多的问题，实际就是那几个人搞的，就像文革，四人帮搞的乱七八糟，现在我们国内的政坛上也有几个坏人，我们的目标和任务就是让老百姓通过我们，提出的不可推翻的真实证据，让他们了解到谁是你们的好领导，谁是真正的腐败官员，是我们这个国家民族的威胁，这是我们下一步要做的！
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句4.14-04-1.jpg)
+发布：枫叶红了
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

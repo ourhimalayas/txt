@@ -15,50 +15,50 @@
 
 ---
 
-### [七哥金句：文人最后都是权力的打手](/content/gnews/1/README.md)
+### [七哥金句：爆料革命改变了中国](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：只有中国人救中国人](/content/gnews/2/README.md)
+### [七哥金句：中共内斗](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/3/README.md)
+### [七哥金句：任何情况都不会动摇七哥灭共](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：大家一定要备粮！](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：什么叫马克思主义？](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥金句：现行的核酸检测也是对人性的各种测试](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [揭露真正的政坛的现状](/content/gnews/5/README.md)
+### [揭露真正的政坛的现状](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [揭露朱善璐，李友等的丑闻丑事](/content/gnews/6/README.md)
+### [揭露朱善璐，李友等的丑闻丑事](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [揭露付振华的罪行和背后的阴谋](/content/gnews/7/README.md)
+### [揭露付振华的罪行和背后的阴谋](/content/gnews/9/README.md)
  ` 加拿大温哥华英里农场`
 
-### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/8/README.md)
+### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥金句：上海封城的凄惨](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [保守派加拿大人更加反对政府监控](/content/gnews/10/README.md)
+### [保守派加拿大人更加反对政府监控](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共国是美国最大的反情报威胁](/content/gnews/11/README.md)
+### [中共国是美国最大的反情报威胁](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海市民在暴雨中做核酸检测](/content/gnews/12/README.md)
+### [上海市民在暴雨中做核酸检测](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国在美国芬太尼危机中的角色](/content/gnews/13/README.md)
+### [中共国在美国芬太尼危机中的角色](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/14/README.md)
+### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [共产党查封了我的所有资产](/content/gnews/15/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [不列颠哥伦比亚省医疗护工严重短缺](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

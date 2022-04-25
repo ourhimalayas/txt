@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：文人最后都是权力的打手
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413167/)
+## 七哥金句：爆料革命改变了中国
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2413220/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句4.14-002.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-188.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

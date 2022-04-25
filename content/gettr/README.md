@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 8:45 PM (UTC)`
+
+2022.04.25  新中国联邦 | 喜健康   二氧化氯: 川普总统说的消毒剂，能抗击冠状病毒和毒疫苗吗？
+![img](https://media.gettr.com/group46/origin/2022/03/29/20/a67ef18a-9c0f-1adf-e14a-b8c60d81f78c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 5:40 PM (UTC)`
 
 04.25.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -146,13 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group14/origin/2022/04/25/06/ac7981e7-e712-6fda-9df2-8ec2f2805118/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/25/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group47/origin/2022/04/25/04/d9f7f868-d6fd-4c5a-68d7-d3df9904a5e1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
