@@ -72,13 +72,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 ---
 
-`@miles 4/25/2022 1:46 PM (UTC)`
-
-【Ukraine Rescue】04/24/2022  A Christan from Norway worried about the religious freedom of Chinese Christans. He likes Chinese history and culture. Chinese people need a good government for freedom. And the German volunteer said “the New Federal State of China is beautiful and wonderful. We need the real Chinese people to stand up for the truth.”<br/><br/>【乌克兰救援】04/24/2022  来自挪威的基督徒对生活在中共国的基督徒的宗教自由感到忧心。他热爱中国的历史和文化，中国人应该需要一个好的政府，代表自由的政府。他身边的德国义工说：“新中国联邦是美丽和美好的，我们需要像新中国联邦这样的人能够站出来说真话。”
-![img](https://media.gettr.com/group41/getter/2022/04/25/13/843a6f07-b994-7461-7729-52b0ff533fd3/out.jpg)
-
----
-
 `@miles 4/25/2022 1:22 PM (UTC)`
 
 【Ukraine Rescue】4/24/2022 The French mother and her son are volunteering in Medyka. Poland. They speak fluent Mandarin. The French mother used to work at the French Embassy in Beijing for 15 years. They love China and the Chinese people very much. Our fellow fighter Nicole told them that the mission of the New Federal State of China is to take down the evil Chinese Communist Party. The new Chinese people love freedom and peace. <br/><br/>【乌克兰救援】4/24/2022  这位法国母亲和她的儿子正在波兰的梅迪卡做志愿者，他们会说一口流利的普通话，这位法国母亲曾在法国驻北京大使馆工作了15年，他们非常热爱中国和中国人民。我们的战友妮可告诉他们，中国新联邦国的使命是摧毁邪恶的中国共产党，新中国人民热爱自由与和平。
@@ -155,6 +148,13 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 2022.04.24 农场联盟工作汇报
 ![img](https://media.gettr.com/group39/origin/2022/02/14/03/37205369-b1b3-29bc-d3d8-a0702b98014d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/25/2022 2:04 AM (UTC)`
+
+2022.04.24  新中国联邦 | 喜财经  数字货币的发行如何取代传统法币，构建新经济生态？
+![img](https://media.gettr.com/group16/origin/2022/04/25/02/c087f95b-4233-2d5b-3616-0b17d2c7bd9a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

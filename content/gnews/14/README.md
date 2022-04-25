@@ -2,29 +2,40 @@
 ---
 
 
-## 樱花时政┃中共对上海的网络封锁加剧市民愤怒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2411895/)
+## 【修罗短评】学者无风骨，育人毁天下
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2411930/)
 
-撰稿：东京樱花团/上善若水
+**作者:修罗闻道**
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/a8a581cd-b718-4ba5-ba1a-7454651729ec.jpg?asset_id=6c6adb54-4c49-4f11-bcd3-72ac6d53ebfe&amp;img_etag=%22defd2e335ac1d074acb862359aea1e5e%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/a8a581cd-b718-4ba5-ba1a-7454651729ec.jpg?asset_id=6c6adb54-4c49-4f11-bcd3-72ac6d53ebfe&amp;img_etag=%22defd2e335ac1d074acb862359aea1e5e%22&amp;size=1024)来源网络
+上海封城已经持续一个多月了，种种惨剧不断传来。对于每位爆料革命的战友来说，虽然早已预见这炼狱般的惨状，但内心还是会被心疼、心寒、惋惜与愤恨等种种情绪困扰。五年了，我们跟着郭先生知道了太多，也学会了太多。越是可以预知灾难，越是容易感到不安，因为我们无法阻止灾难，无法改变所有人的认知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共对上海的网络封锁加剧市民愤怒.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.stheadline.com%2Ff%2F680p0%2F0x0%2F100%2Fnone%2F37be331f2d7a43d8adcad15c604f8fd8%2Fstheadline%2Finewsmedia%2F20220424%2F_2022042417151459423.jpg&amp;imgrefurl=https%3A%2F%2Fstd.stheadline.com%2Fsc%2Fr)
+郭先生曾在大直播中说，再大的苦难也要学会平静的接受。今天看到一封求助信，我却还是忍不住破防了。不是因为心疼，而是因为愤怒。一封短短的信，仿佛展示了这罪恶的根源，是平庸之恶在苦苦哀求，是无信仰之灵在悲惨的挣扎。
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/1f2c7b1b-56b9-4500-a560-b21905a5086d.jpg?asset_id=284ffadf-63bb-4395-8d38-7b01fecf6552&amp;img_etag=%2229f7ab02d3f09eced672b3b8be0f43ec%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/1f2c7b1b-56b9-4500-a560-b21905a5086d.jpg?asset_id=284ffadf-63bb-4395-8d38-7b01fecf6552&amp;img_etag=%2229f7ab02d3f09eced672b3b8be0f43ec%22&amp;size=1024)
+这封流传甚广的求助信，落款是同济北苑业委会。中间有一句小区业主的描述的求助者为“200多位教授、专家、博士后、院士、副部级待遇的领导”。这种文字上的小聪明，被体制内可谓玩得炉火纯青，必须先表明自己的身份和要性。可谓，无声之处见无耻。
 
-4月22日晚间视频“四月之声”在网络上广泛转载，随即又被中共审查删除。
+求助信中一副卑微的嘴脸，低三下四的姿态。只不过为了一口吃食，细细读来，甚觉可悲。
 
-这段视频当中汇总了几十段音频，这些音频都是最近几周在上海爆出的广为认知的事件，当中人们激动的争吵声，或无助的求助声，恐惧的呼喊声，又或者无奈，和一声声感谢，当中承载的情感与视频当中平静空旷的上海空中俯瞰图形成对比。这段视频被广泛转载的程度前所未见，至少它激发的情绪和行动统一性，是自从武汉李文亮2020年去世之后，再未出现过的。
+贪生怕死、卑微懦弱、摇尾乞怜……很难用文字描述得清楚，这字里行间流露的是下作与可笑。
 
-视频被审查，被禁，没能让网民们感到挫败，他们与审查方开展了速度和智慧竞赛，一次又一次以其他方式让这段视频再出现在人们的视野，这短短的6分钟视频，浓缩了数十段震惊世人的荒诞场景，见证了把“清零政策”推向极致的连带损害。
+曾几何时，学者乃是国家风骨之楷模，高级知识分子是一个社会风气的引领者和塑造者。再看看这些被关在了上海巨型监狱的所谓教授、专家、院士、副部级领导，他们只知道自己面临的窘迫，可曾想到没有这些所谓名头的普通百姓是如果过活的？
 
-中共网络审查已经进行了许多年，审查越来越严厉，网民已经修炼成了规避这些审查的大师，艺术中带着讽刺。尤其提到了中共国网民发布的迈克尔·杰克逊的歌曲“他们不在乎我们”，还有“悲惨世界”当中的“你可听到人民在歌唱”，以及奥威尔小说改编的电影1984，来影射上海现状正是恰如其分，表现的是淋漓尽致，活灵活现。
+作为高级知识分子，应该拥有更宽广的视野，更多的信息渠道，更客观的判断力，也应该有更多的发声管道和影响力，而如今，都做了什么呢？连个写“上海日记”的都没有。那些平常在上海品着咖啡的所谓作家呢？指点江山、纵横经济的学者都在干什么呢？就只会为了自己的生存而摇尾乞怜吗？你们口中的胸怀天下呢？那股小资与傲慢去哪里了？
 
-信息来源：
-[上海《四月之声》遭全网封杀 中国网民发怒接力转](https://www.voachinese.com/a/voices-of-april-banned-in-china-20220422/6541436.html)
+近年来，中共国的所谓专家、教授、院士们可曾关心过百姓？可曾批评过政府？上海所谓的“清零防疫政策”造成的次生灾害已经导致数以万计的百姓失去生命，而你们还在装睡。现在终于轮到自己也挨饿了，才像猪一般的哀嚎几声。拥有五千年历史的华夏文明正在遭遇最黑暗的一百年，在中共马列主义和共产主义培育下的知识分子们，是多么的可悲的存在。
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/1522f36a-49d0-43c8-a7ac-3fe31c0817aa.png?asset_id=fae45631-8d97-41ea-9660-8fd11833accf&amp;img_etag=%22dc584e744f64d7c0f6de249ae966e6f7%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/1522f36a-49d0-43c8-a7ac-3fe31c0817aa.png?asset_id=fae45631-8d97-41ea-9660-8fd11833accf&amp;img_etag=%22dc584e744f64d7c0f6de249ae966e6f7%22&amp;size=1024)
+再看看上海现政府的管理人员，有多少都是你们的学生、子弟，在你们的教诲下，这些人学成了什么德行？这群所谓的现任领导将一所国际大都市生生困成了人间炼狱。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
+无信仰、无骨气的教授、专家和院士们，这座城市发生的一切罪恶，都有你们的一份。雪崩时，没有一片雪花觉得自己有责任，然而，雪崩时，没有任何一片雪花是无辜的。天道有轮回，上海的封城证明了，在中共的独裁专制统治之下，任何人都可以是下一个受害者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/二维码.jpg)
+*编辑：【英国伦敦喜庄园编辑部】*
 
+*校对：仙女儿-文善 | 审核：文明明 | Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
