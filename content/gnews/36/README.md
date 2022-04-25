@@ -2,22 +2,42 @@
 ---
 
 
-## 秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2411262/)
+## 澳洲新南威尔士开始使用新的疫情报告系统及规则
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2411345/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-52.jpg)图片来源：本文链接
-据韩媒《朝鲜日报》4月25日的消息，美国《纽约时报》(NYT)当地时间19日报道称，政府正在讨论是否解除室外口罩佩戴，在无人戴口罩的情况下，即使独自佩戴口罩，也有预防新冠病毒（中共病毒）感染的效果。
+撰稿：Gradient Boost
 
-据媒体报道，口罩会减少感染新冠病毒（中共病毒）的颗粒排放量和吸入量，因此戴口罩对预防感染最有效。但是，在没有人戴口罩的情况下，独自佩戴也有效果。2020年在瑞士一家酒店发生的集体感染事例就是代表性的例子。当时，戴着布遮脸罩的多数服务员和客人感染了新冠病毒（中共病毒）。相反，戴口罩的人虽然停留在同一空间，但并没有被感染。美国田纳西州实施的调查也显示，义务戴口罩地区的新冠肺炎（中共病毒）住院率低于没有义务戴口罩的地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1.jpg-5.png)
+网络图片
 
-预防感染的效果根据口罩种类和佩戴方法等也有所不同。日本的一项研究显示，棉口罩的保护效果仅为17~27%，而手术用口罩的保护效果为47~50%。松散佩戴的N95口罩有57~86%的保护效果，贴身佩戴的N95口罩有79~90%的保护效果。
+在过去的 24 小时内，悉尼所在的新南威尔士州又有 4 人不幸死于CCP病毒——该州报告了 7985 例新增感染病例，使得总活跃病例人数达到170,733 人。
 
-保健专家特别劝告说，要想预防传播力强的隐形奥密克戎(BA.2)变异，应佩戴N95、KN95、KF94等性能好的口罩。
+从周一开始，新南威尔士州卫生局对CCP病毒疫情报告方式进行了精剪，该举动进一步表明官方准备逐步回归正常。
 
-信息来源：[https://www.chosun.com/international/international\_general/2022/04/25/7Q7FTYOVFBEUFLMVNW647ULVVY/?utm\_source=naver&utm\_medium=referral&utm\_campaign=naver-news](https://www.chosun.com/international/international_general/2022/04/25/7Q7FTYOVFBEUFLMVNW647ULVVY/?utm_source=naver&amp;utm_medium=referral&amp;utm_campaign=naver-news)
+新南威尔士州卫生局过去常常提供详细的每日病例信息，但该报告现在将每周发布一次。每日的CCP病毒疫情媒体发布将会取消，不过详细信息仍然可以在新南威尔士卫生部的官方网站以及社交媒体账号上查看。
 
-责编：Eric Kim
+对于卫生部门的举措，部分网友表示认可，因为减少报告频率可以适当降低政府支出。也有网友希望当局能够进一步放宽更多措施。另一些网友则表示不理解。总体来说褒贬不一。
+
+与此同时，墨尔本所在的维多利亚州今天同样记录了4例死亡以及 7643 例新增CCP病毒感染病例。该州目前仍有 52,806 例活跃病例，其中 31 名患者处于重症监护状态。目前维多利亚地区累计因CCP病毒感染而死亡的人数已经达到2904 人。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/national/nsw-victoria-daily-covid-19-cases-updates-and-hospitalisations-april-25/96fae1fe-1165-4532-912d-c2f5dbf0b637)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+
+
+
+**更多信息，更多关注**
+
+[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 

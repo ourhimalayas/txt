@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 4:08 PM (UTC)`
+
+4/24/2022 Ukraine Rescue: According to Sarah and Nicole, there are various indications that the two provocative Americans were trained and prepared, and their remarks were full of racist rhetoric; our slogan “we are the new Chinese to take down the CCP” made the communism followers furious and they showed their true colors.<br/><br/>4/24/2022 乌克兰救援连线: 小Sarah和Nicole认为种种迹象表明那两个挑衅的美国人是受过训练有备而来的，他们的言论充满了种族主义论调；“我们是消灭邪恶中共的新中国人”这句话令共产主义的追随者气急败坏，原形毕露！<br/><br/>
+![img](https://media.gettr.com/group9/getter/2022/04/25/16/5f53615e-b14e-af32-1d77-ccf6086de080/out.jpg)
+
+---
+
+`@miles 4/25/2022 3:58 PM (UTC)`
+
+【Ukraine Rescue】04/24/2022  A Christian from Norway worried about the religious freedom of Chinese Christians. He likes Chinese history and culture. Chinese people need a good government for freedom. And the German volunteer said “the New Federal State of China is beautiful and wonderful. We need the real Chinese people to stand up for the truth.”<br/><br/>【乌克兰救援】04/24/2022  来自挪威的基督徒对生活在中共国的基督徒的宗教自由感到忧心。他热爱中国的历史和文化，中国人应该需要一个好的政府，代表自由的政府。他身边的德国义工说：“新中国联邦是美丽和美好的，我们需要像新中国联邦这样的人能够站出来说真话。”<br/><br/>
+![img](https://media.gettr.com/group33/getter/2022/04/25/15/6405aebc-3c78-f205-36be-d11593bde902/out.jpg)
+
+---
+
 `@miles 4/25/2022 3:39 PM (UTC)`
 
 4/24/2022 Ukraine Rescue: Ever since erecting the 6-meter-high billboard at the rescue camp in Medyka, there have been people who not only verbally abused our fellow fighters, but also attempted to hit and almost injured them. While they had to apologize to us afterwards, they have repeatedly twisted the facts, and the citizens of the New Federal State of China will definitely investigate this matter to the end!<br/><br/>4/24/2022 乌克兰救援连线：自从把6米高的广告牌在梅迪卡救援营地竖起来后，就有人不仅言语辱骂，而且还动手差点伤到战友。虽然他们事后不得已道歉了，但却一再地歪曲事实，新中国联邦人定会将此事追查到底！<br/>
@@ -139,22 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 2022-4-24《鸡血王喜币大作战》 第一百七十五集 嘉宾：齐天二圣、七里香
 ![img](https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@globalalliance 4/25/2022 1:52 AM (UTC)`
-
-2022.04.24 农场联盟工作汇报
-![img](https://media.gettr.com/group39/origin/2022/02/14/03/37205369-b1b3-29bc-d3d8-a0702b98014d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/25/2022 2:04 AM (UTC)`
-
-2022.04.24  新中国联邦 | 喜财经  数字货币的发行如何取代传统法币，构建新经济生态？
-![img](https://media.gettr.com/group16/origin/2022/04/25/02/c087f95b-4233-2d5b-3616-0b17d2c7bd9a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

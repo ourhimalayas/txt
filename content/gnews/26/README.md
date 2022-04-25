@@ -2,82 +2,28 @@
 ---
 
 
-## 新视频出现后，普京的健康猜测加剧
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411616/)
+## 台湾大学江晃荣博士站出来公开反对毒疫苗（一）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2411648/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
-视频显示普京在与白俄罗斯总统会面前手在颤抖，这增加了人们对这位俄罗斯领导人健康的担忧。
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/04/台湾大学江晃荣博士站出来公开反对毒疫苗（一）.jpg)
+近日，台湾大学江晃荣博士站出来公开反对中共病毒疫苗的三段视频在网络热传。江博士表示，反疫苗是有理论根据有学术报告的。政府当局要抓我，就放马过来。这是三段视频中的第一段，疫苗研究人员几乎没有人打疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3177-edited.png)
-*2013年6月17日，在北爱尔兰贝尔法斯特，俄罗斯总统弗拉基米尔-普京抵达贝尔法斯特国际机场。普京的一段病毒视频引发了对这位领导人健康的质疑。*
-*Peter Muhly/Getty images*
+以下文字根据江博士视频整理：
 
-视频显示普京在与白俄罗斯总统会面前手在颤抖，这增加了人们对这位俄罗斯领导人健康的担忧。
+大家好，我是江晃荣（音译）。我是台湾大学农业化学化学系毕业。我是专攻发酵及酵素，我是生物化学博士。我曾经在美国做过生物化学研究，也曾经在日本京都大学做过研究，并且担任客座教授，也在日本的民间公司服务过。我在一九八零年的时候，我们是第一批应征进行研究人员。
 
-在这段录像中，可以看到普京在迎接白俄罗斯总统亚历山大-卢卡申科并与他拥抱之前，举起了他的手并摇晃。
+当时研究的最大的计划就是用遗传工程，就是今天说的刺突蛋白技术，生产B型肝炎疫苗。可是，我们从事研究的研究人员，几乎没有人打疫苗。我们都知道这疫苗，其实是有问题。现在没有问题的疫苗只有一种，就是小孩子刚出生的时候，我们所打的什么三合一、五合一的包括百日咳、日本脑炎，小老麻痹，混合的疫苗，这些疫苗经过一百多年的人体实验，基本上是没有问题的。
 
-普京在向前走几步之前，还显得腿部僵硬，引发了人们对他健康的进一步担忧。
+现在有问题的疫苗是一九六零年代有生物科技发展之后所生产的疫苗，包括现在高中女生、大学女生在打的子宫颈癌疫苗，这些都是有问题的。你想病毒的遗传结构有两种，一种是DNA,一种是RNA。我们生的时候打的市面上有效的病毒几乎都是DNA。
 
-评论家们质疑这位俄罗斯领导人是否可能患有帕金森病。这段视频被发布在Twitter页面Visegrad 24上，浏览量已超过100万次。
+一种疫苗从研究到生产至少要经过十年，包括临床实验、动物实验、人体实验、副作用的一些研究工作，才能够上市。
 
-推特链接：
+视频链接：[https://gettr.com/post/p16zuj5dfb6](https://gettr.com/post/p16zuj5dfb6)
 
-
-
-> Many suspected it after his weird meeting sign Shoigu, during which he held on to the table for 13 minutes.
-> 
-> This is probably the clearest video of something being wrong with Putin’s health.
-> 
-> Look at his leg & hand tremors!
-> 
-> Any doctor out there willing to weigh in? 
-> 
-> Parkinson? [pic.twitter.com/Vt0TpHtdrF](https://t.co/Vt0TpHtdrF)
-> — Visegrád 24 (@visegrad24) [April 24, 2022](https://twitter.com/visegrad24/status/1518024361223110656?ref_src=twsrc%5Etfw)
-
-
-
-标题写道：“许多人怀疑是在他与绍伊古的奇怪会面之后，在会面期间，他在桌子上坚持了13分钟。”
-
-“这可能是普京的健康出现问题的最清晰的视频。看看他的腿和手的颤抖。”
-
-“有哪位医生愿意透露一下情况？帕金森症？”
-
-新的猜测是在上周社交媒体上流传的一段视频之后出现的，该视频显示普京在会见国防部长谢尔盖-绍伊古时抓紧了一张桌子。
-
-虽然克里姆林宫表示，两人会面是为了讨论俄罗斯在马里乌波尔的军事战略，这是普京宣布“成功”的一个战略性港口城市，但远处的围观者关注的是总统的样子。
-
-在图片中，可以看到普京抓着他和绍伊古之间的桌子，以及懒洋洋地坐在椅子上，人们很快猜测他可能健康状况不佳。近几个月来，有传言说这位领导人可能患有疾病。
-
-据在线媒体《莫斯科时报》4月1日报道，克里姆林宫本月初否认普京接受了与甲状腺癌有关的手术。
-
-普京与国防部长会面的视频被观看了240多万次，许多人再次质疑俄罗斯总统是否可能患有帕金森病。
-
-4月1日，俄罗斯新闻媒体Proekt发表了一篇调查性报道，声称普京经常被一个医生团队看病。该网站称，两名耳鼻喉专家定期为普京看病，还有一名专攻甲状腺癌的肿瘤外科医生。Proekt的报道还称，普京一直在使用一种替代疗法，即用割下的鹿角提取的血液进行沐浴。
-
-《莫斯科时报》报道称，记者阿列克谢-维内迪克托夫在其Telegram频道上写道，他曾向克里姆林宫发言人德米特里-佩斯科夫询问有关癌症的传言。
-
-“虚构和不真实”，佩斯科夫告诉韦内迪克托夫，这促使该记者特别问道，说普京没有患癌症是否正确。
-
-据《莫斯科时报》报道，“正确的”，佩斯科夫回答。
-
-《新闻周刊》已与俄罗斯外交部取得联系，寻求评论。
-
-来源： [Vladimir Putin Health Speculation Intensifies After New Video Emerges](https://www.newsweek.com/vladimir-putin-russia-health-viral-video-latest-parkinsons-cancer-1700445)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
