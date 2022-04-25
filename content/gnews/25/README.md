@@ -2,36 +2,44 @@
 ---
 
 
-## 普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409868/)
+## 普京政权被指“掩盖”俄武研所火灾死亡人数（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2409997/)
 
 翻译：噜噜咪
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-10.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-550.jpg)
 
-普京政权被指控“掩盖”俄罗斯最高机密武器研究设施的死亡人数，因为一名当地记者声称，至少有25人在这场致命的大火中丧生，而不是像克里姆林宫支持的媒体所坚持的“最多7人”。
 
-视频显示，周四，位于特维尔的俄罗斯联邦国防部第二中央研究所被大火烧毁，莫斯科的伊斯坎德尔导弹就是在这里设计的，此后启动了刑事调查。
+**接上篇：[普京政权被指“掩盖”俄武研所火灾死亡人数（1/2）](https://gnews.org/zh-hans/2409868/)**
 
-四名军事科学家被迫从燃烧的建筑物中跳出窗户，国家媒体不同程度地报道说有五人或七人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-553.jpg)四名军事科学家被迫从特维尔燃烧的研究所的窗户跳下
 
-但现在声称至少有25人死亡，可能包括俄罗斯的一些主要导弹科学家。火灾发生两天后，寻找被困在瓦砾下的幸存者的工作仍在进行，据说至少有五人在接受重症监护。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/555.jpg)左图：俄罗斯总统普京。右图：俄罗斯特维尔的记者亚历山大·甘伯格。
 
-该研究所是设计“伊斯坎德尔”导弹的核心单位，普京已向乌克兰投放了这种导弹，以及俄罗斯的S-400导弹防御系统。它还参与了其他“秘密项目”。这一损失被认为是对普京导弹现代化计划的打击。
+当地受人尊敬的记者亚历山大·甘伯格在SOTA电报频道上报道说，他独家看到了“死亡者”名单。然而，他说，由于俄罗斯的审查制度和“不伤害对我重要的人”，他不能提供进一步的细节。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-222.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所的消防员被大火吞噬。
+他说：“刑事调查人员正在现场工作，直到星期天，之后他们将公布损失情况。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-184.jpg)位于特维尔的俄罗斯联邦国防部第二中央研究所发生了一场大火。
+甘伯格补充说：“截至4月22日晚上10点，共有25人。从4月21日开始有7人，4月22日有18人被发现并被确认。最年轻的是一名少校，是1983年出生的男子。最年长的是90或91岁，生于1931年。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-161.jpg)2022年4月21日，俄罗斯特维尔一家军事研究所发生火灾后被烧毁的遗迹。
+“我不知道他在这个年龄在研究所的工作场所做什么。大多数遇难者都是男性。数字还不是最终的。这是个大悲剧”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-115.jpg)起火原因尚不清楚，但有报道称出现了“有毒的蓝黑色烟雾”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-185.jpg)四名军事科学家被迫从燃烧的大楼中跳出窗户
 
-**接下篇：** **普京政权被指** **“** **掩盖** **”** **俄武研所火灾死亡人数（** **2/2** **）**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-162.jpg)2022年4月21日晚，俄罗斯特维尔的一家军事研究所在火灾后的照片。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-116.jpg)俄罗斯一家绝密的军事研究机构爆发一场大火
+
+俄罗斯关键的国防设施如何发生火灾的问题已经立案。一位获救的军事科学家说，他们面对的是吹过长长走廊的有毒黑烟，并补充说：“我的同事感觉比我更糟糕，我仍有意识。”
+
+“他已经站不起来了。我告诉消防员，应该先把他拉出来，但救援人员回答说，无法把他抬起来，需要先救我。”
+
+“不幸的是，这位同事没能被抢救过来，他死了。我在医院里，在第一次注射后才清醒过来。”
+
+一架紧急直升机被派去向燃烧的研究所洒水，该研究所现在已被烧毁。
 
 新闻来源：[Putin’s regime is accused of ‘covering-up’ death toll of ’25 military scientists killed in fire at Russian weapons research facility’](https://www.dailymail.co.uk/news/article-10746369/Cover-25-military-scientists-killed-fire-Russian-weapons-research-facility.html)
 
@@ -48,7 +56,7 @@
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
 
  
 

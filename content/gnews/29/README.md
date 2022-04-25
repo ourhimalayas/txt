@@ -2,33 +2,82 @@
 ---
 
 
-## 乌克兰泥泞道路成为抵抗俄军的秘密武器
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2409594/)
+## 疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居（续）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2409732/)
 
-**撰稿：日本东京方舟农场  子辰**
+[![NFSC News](https://assets.gnews.org/wp-content/uploads/ultimatemember/22638/profile_photo-190x190.jpeg?1650834842)](https://gnews.org/zh-hans/author/mos2/)
+[NFSC News](https://gnews.org/zh-hans/author/mos2/)
 
-俄乌战争中，军事专家表示，俄军忽略了乌克兰方面一个非常规但又非常有效的秘密武器 ，即“泥泞的道路”。
+作者：纽约香草山佛教部—无尽夏
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*因为后人，而不是我们自己，将创作我们这个时代的传说故事。  ——约翰·托尔金*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-549.jpg)（图片来自网络）
+【内容摘要：这是上篇[《疫情封控中的上海人：因为疫情，我重新认识了隔壁邻居》](https://gnews.org/zh-hans/2408726/)的评论截图，篇篇都是上海市民的心声，感人至深。**】**
 
-乌克兰的泥泞道路状况，每年都会发生两次 ，头一次是在春天，冰雪逐渐消融之际。这时候乌克兰的地形就会变得泥泞不堪且很难通行。这种会有大量雨水伴随的情形会在秋天再次出现。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图01.jpg)
 
-据军事专家认为，这些泥浆有助于减缓俄军在乌克兰部分地区的推进，尤其是北部地区。依照很多图片和视频来看，这种泥泞道路让俄军遭受了巨大损失。它使俄罗斯坦克、卡车和其它装甲车辆被困在乌克兰泥泞的道路或田野上，之后不得不被遗弃。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图02.jpg)
 
-这种情况，让俄罗斯分析家和军事家产生质疑，他们认为，俄罗斯军方应该更清楚他们的部队将面临什么样的条件。他们应该为地面条件做更好的准备，从而避免乌克兰春季泥泞地形造成的困扰。这显示出其军事指挥部和士兵缺乏计划准备和一定的战术技能。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图03.jpg)
 
-据英国国防智库RUSI的研究分析师山姆·克兰尼-埃文斯（Sam Cranny-Evans）告诉CNBC，俄罗斯的大多数军用车辆本来能够应对乌克兰的泥泞道路，但问题出现在多辆车使用同样类型的履带，这对任何对“地形力学”或“土壤与车辆的相互作用”有基本了解的军事指挥官来说都是可以预见的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图04.jpg)
 
-埃文斯分析家说，只要他们不重复行驶在同一条“轨道”上，他们的很多车辆在泥泞中行驶是没有问题的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图05.jpg)
 
-其实历史上，泥泞道路阻碍军事进攻进程这一现象并非罕见。例如拿破仑在1812年对俄罗斯帝国的入侵因泥泞道路而拖慢进程；1941年希特勒的军队入侵当时的苏联时，也遇到了泥泞和不利地形所带来的后勤问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图06.jpg)
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/24/n13719439.htm](https://www.epochtimes.com/gb/22/4/24/n13719439.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图07.jpg)
 
-总编：老孙
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图08.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图09.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图10.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图11.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图12.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图13.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图14.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图15.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图16.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图17.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图18.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图19.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图20.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图21.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图22.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图23.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图24.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220425重新认识邻居续插图25.jpg)
+原创：每天被邻居投喂的  来源：[上海去哪吃](https://mp.weixin.qq.com/s/1bZ3HOnf9hq71YWE0lpssg)*2022-04-17*
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402%E5%9B%9B%E6%9C%88%E6%9C%88%E5%8E%86-2.png)
+
+编辑：霍比特人
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

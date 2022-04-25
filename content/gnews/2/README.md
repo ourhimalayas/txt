@@ -2,31 +2,48 @@
 ---
 
 
-## 樱花时政┃美国务卿访问基辅，并宣布将向乌克兰派驻外交官
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2410324/)
+## 民生集萃——疫情物价飞涨（2022.4.25D）&#8211;加拿大物价暴涨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410436/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-54.png)（图片源自本文链接）
-4月25日时事通信社消息：据法新社报道，美国官员透露，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀于24日访问了乌克兰首都基辅。这是自俄罗斯入侵乌克兰以来，美国内阁级官员首次访问基辅。
+#### **雅典娜情报组《民生灾难收集专栏》**
 
-乌克兰方面已提前告知这两名官员的访问，但美国方面是在两人离开乌克兰领土后确认了这次访问。布林肯先生和奥斯汀先生对沃洛基米尔·泽伦斯基总统表示声援，并告知打算逐步让美国外交官返回乌克兰。
+#### 整理/编辑：gardeniahu
 
-此外，还约定了追加超过7亿美元的直接和间接的军事援助。其中，3亿美元将用于购买武器。新武器采购的援助也将提供给向乌克兰提供武器的邻近伙伴国家。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片44-17.png)图片来源：雅典娜设计组(614)
 
-据布林肯先生说，拜登总统打算在未来几天任命驻斯洛伐克大使布里奇特·布林克为驻乌克兰大使。乌克兰大使的职位自2019年以来一直空着。
 
-24日，泽伦斯基在推特（Twitter）上发帖称，”乌克兰和美国之间的友谊和伙伴关系从未如此强大”。
+【前言：作为全球第二大经济体的中国被誉为“世界经济的引擎”，人均GDP据称已高达8万元人民币，2021年新年伊始习近平更是宣布“脱贫攻坚战取得了全面胜利”，创造了“人间奇迹”。然而由于中共内斗，各地政府以疫情防控为由对市场和商品进行自上而下的管控和封锁，再加上房地产危机的临近，民营企业纷纷倒闭裁员，与就业、收入和社保等直接相关的民生问题突显，生存危机已经离每一位中国同胞越来越近。本专栏将陆续收集民生和失业等信息，揭露中共的邪恶统治。】
 
-信息来源： [米国務長官、キーウを訪問 外交官戻すと表明（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/cecca4c0a6ce3e35b64f87b89817c8afe47e83b9)
+**帖子原文**：
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**加拿大物价暴涨**
+
+这物价涨的也太快了，依稀记得疫情前这一联八宝粥的价格是$ 6.99。上次买的时候还是$ 9.99呢，今天就$ 1 0.49了
+
+grocery shopping的花销都赶上以前2倍了，继续这么涨下去是不是要3倍了。
+
+#加拿大生活  #加拿大物价  #多伦多生活  #北美生活  #疫情物价飞涨
+
+发布于04.20
+
+**精选评论**
+
+浮浮睡不醒回复:说个物价涨了都有这么多人不爱听。
+
+engaging回复：淘宝上都人民币45了，这个价正常。不过这明明是国内的物价涨，加拿大物价涨不涨还是看本地的东西价格好一些。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-149.png)图片来源：小红书
+
+
+参考链接：[加拿大物价暴涨](https://www.xiaohongshu.com/discovery/item/625f7a990000000001025473?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1650761718)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
