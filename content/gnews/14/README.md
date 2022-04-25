@@ -2,35 +2,14 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
+## 让一个人健康地认知世界
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2412649/)
 
-作者：香草山翻译部
+听写：叮叮         编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+这个教育GEDU里边我觉得最核心的就是什么？就是让人从小、最早地认知自己、认知这个世界。把所有人最美好的一面给启迪出来。没有比认知世界再重要的了，读万卷书不如行万里路，我认为走一百里路都比读万卷书强，不用走万里路，走一百里路都比读万卷书强。你明道你没有去过欧洲，你没有到现场你有这感受吗？你去过集中营，你更应该去哪儿？去希特勒他所有在奥地利生活的地方，你就知道我今天说习近平，一个人的成长和蹲过监狱的人，还有一个被人、社会抛弃冷漠的人，还有男女生活不健康的人，哈哈，希特勒这个货，变态的人，跟自己的亲外甥女搞，这种变态的人。希特勒最喜欢就是听人家楼上做爱，是吧。穷困潦倒，然后恋上了军衣症，然后撒谎，然后就开始自己从梦游中走向自己的人生的成功。这些都是我们要学习的，GEDU没有的，让一个人健康地认知世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
 
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
-[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
 
  
 

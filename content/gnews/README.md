@@ -15,98 +15,98 @@
 
 ---
 
-### [五月花简报（04/25/2022）](/content/gnews/1/README.md)
+### [DC每日热点0425](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [截至4.25 俄乌战事汇总](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [习的习惯](/content/gnews/3/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [新中国联邦人需要的是绝对的认知和教育](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [五月花简报（04/25/2022）](/content/gnews/5/README.md)
  ` mayflowertranslate`
 
-### [4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇](/content/gnews/2/README.md)
+### [4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [英国向乌克兰派遣特种空勤部队](/content/gnews/3/README.md)
+### [英国向乌克兰派遣特种空勤部队](/content/gnews/7/README.md)
  ` NFSC News`
 
-### [4月25日勿忘香港（图片1-10）](/content/gnews/4/README.md)
+### [4月25日勿忘香港（图片1-10）](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [中共下调外汇存款准备金率1个百分点](/content/gnews/5/README.md)
+### [中共下调外汇存款准备金率1个百分点](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共攻打台湾《战备16条》解读](/content/gnews/6/README.md)
- ` 温哥华扬帆农场`
-
-### [民调显示大多数民主党人不希望拜登参选2024](/content/gnews/7/README.md)
+### [民调显示大多数民主党人不希望拜登参选2024](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [来自专家的怀疑，在上海扩散着&#8221;对北京的不信任&#8221;–中国](/content/gnews/8/README.md)
+### [来自专家的怀疑，在上海扩散着&#8221;对北京的不信任&#8221;–中国](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [突然过早死亡的情况还在不断发生](/content/gnews/9/README.md)
+### [突然过早死亡的情况还在不断发生](/content/gnews/12/README.md)
  ` xiaobaige`
 
-### [俄军连续五天攻击1000多个地点， &#8220;萨尔马特&#8221;将于今秋部署](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [但凡有反抗绝不会有这么悲惨的下场](/content/gnews/11/README.md)
+### [战友提供的信息会发挥到极致](/content/gnews/13/README.md)
  ` 加拿大温哥华英里农场`
 
-### [战友提供的信息会发挥到极致](/content/gnews/12/README.md)
+### [让一个人健康地认知世界](/content/gnews/14/README.md)
  ` 加拿大温哥华英里农场`
 
-### [让一个人健康地认知世界](/content/gnews/13/README.md)
+### [独裁者都是惶恐不安](/content/gnews/15/README.md)
  ` 加拿大温哥华英里农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月25日早](/content/gnews/14/README.md)
+### [北朝鲜今年会有很大一个变数](/content/gnews/16/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月25日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [北京的封锁恐惧在增加](/content/gnews/15/README.md)
+### [北京的封锁恐惧在增加](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [G系列创造的财富都将属于新中国联邦](/content/gnews/16/README.md)
- ` 加拿大温哥华英里农场`
-
-### [情报信息太重要了](/content/gnews/17/README.md)
- ` 加拿大温哥华英里农场`
-
-### [中共将在2025年模拟撞击近地卫星](/content/gnews/18/README.md)
+### [中共将在2025年模拟撞击近地卫星](/content/gnews/19/README.md)
  ` 银河歌舞厅`
 
-### [4/24/2022 乌克兰救援连线: 小Sarah和Nicole认为种种迹象表明那两个挑衅的美国人是受过训练有备而来的，他们的言论充满了种族主义论调；“我们是消灭邪恶中共的新中国人”这句话令共产主义的追随者气急败坏，原形毕露](/content/gnews/19/README.md)
+### [4/24/2022 乌克兰救援连线: 小Sarah和Nicole认为种种迹象表明那两个挑衅的美国人是受过训练有备而来的，他们的言论充满了种族主义论调；“我们是消灭邪恶中共的新中国人”这句话令共产主义的追随者气急败坏，原形毕露](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [北京警告说有更多的Covid病例开始在中央商业区进行大规模检测](/content/gnews/20/README.md)
+### [北京警告说有更多的Covid病例开始在中央商业区进行大规模检测](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [世界上最年长者在日本去世 享年119岁](/content/gnews/21/README.md)
+### [世界上最年长者在日本去世 享年119岁](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [4月24日俄乌战场最新进展](/content/gnews/22/README.md)
+### [4月24日俄乌战场最新进展](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [4/24/2022 乌克兰救援连线：自从把6米高的广告牌在梅迪卡救援营地竖起来后，就有人不仅言语辱骂，而且还动手差点伤到战友](/content/gnews/23/README.md)
+### [4/24/2022 乌克兰救援连线：自从把6米高的广告牌在梅迪卡救援营地竖起来后，就有人不仅言语辱骂，而且还动手差点伤到战友](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到](/content/gnews/24/README.md)
+### [4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [北京将被封城 压力测试席卷全国](/content/gnews/25/README.md)
+### [北京将被封城 压力测试席卷全国](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松](/content/gnews/26/README.md)
+### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松](/content/gnews/27/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记](/content/gnews/27/README.md)
+### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推特将接受马斯克最初的430亿美元报价](/content/gnews/28/README.md)
+### [推特将接受马斯克最初的430亿美元报价](/content/gnews/29/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共媒体断章取义歪曲报道泽连斯基答中共记者的恶意提问](/content/gnews/29/README.md)
+### [中共媒体断章取义歪曲报道泽连斯基答中共记者的恶意提问](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [【修罗短评】学者无风骨，育人毁天下](/content/gnews/30/README.md)
+### [【修罗短评】学者无风骨，育人毁天下](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线 : 马斯克即将点燃Twitter 的火箭](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的](/content/gnews/32/README.md)
  ` 经济小组`
