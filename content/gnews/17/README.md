@@ -2,35 +2,12 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
+## 独裁者都是惶恐不安
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2412648/)
 
-作者：香草山翻译部
+听写：叮叮         编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
-[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
-
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+金三胖也好，伊朗也好，叙利亚真的是阿萨德也好，所有的这些独裁者在这个时候，大家能看到，几乎是惶恐不安，惶恐不安，所有坏人都会知道，当汽车上警笛响的时候他内心就一定会惶恐，当他远离了警车的警报的时候，他会觉得有安全感。而今天的北朝鲜还有伊朗、叙利亚，就这独裁国家，还有其它那几个坏国家，七哥第一个告诉你们全世界我说巴基斯坦伊姆兰·汗被干掉，谢利夫会回来，你们看到马上就发生了吧，我告诉你们北朝鲜金家会被干掉，而且金家被干掉的速度可能会远远超出你想象，原因非常简单，这是我和很多战略专家说的时候他们说，如果Miles这要你说对了，你就是先知什么的….我说我对什么知都不感兴趣，管个鸟用啊，我说我该吃啥吃啥，看着美女我也是馋得够呛，有什么用啊，一点不管用。因为一个很简单，你们没有去过北朝鲜，没有人研究过金家，金家就是一个谎话编造的一个王国，绑架了几千万人民，全国人民的瘦和饥饿养活了一个胖子。世界上都愿意看着，你们这个民族就这样被这几个家族给虐待，那你玩儿去吧。人家不管，谁有义务管，大家一弄说美国要管，大家你们想想，凭啥美国管？你几千万人民、全国人民被几个人管着、虐着，我管你干啥？你不解放你自己我凭啥解放你？
 
  
 

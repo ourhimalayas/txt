@@ -2,40 +2,39 @@
 ---
 
 
-## 【修罗短评】学者无风骨，育人毁天下
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2411930/)
+## 推特将接受马斯克最初的430亿美元报价
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2411994/)
 
-**作者:修罗闻道**
-[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/a8a581cd-b718-4ba5-ba1a-7454651729ec.jpg?asset_id=6c6adb54-4c49-4f11-bcd3-72ac6d53ebfe&amp;img_etag=%22defd2e335ac1d074acb862359aea1e5e%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/a8a581cd-b718-4ba5-ba1a-7454651729ec.jpg?asset_id=6c6adb54-4c49-4f11-bcd3-72ac6d53ebfe&amp;img_etag=%22defd2e335ac1d074acb862359aea1e5e%22&amp;size=1024)来源网络
-上海封城已经持续一个多月了，种种惨剧不断传来。对于每位爆料革命的战友来说，虽然早已预见这炼狱般的惨状，但内心还是会被心疼、心寒、惋惜与愤恨等种种情绪困扰。五年了，我们跟着郭先生知道了太多，也学会了太多。越是可以预知灾难，越是容易感到不安，因为我们无法阻止灾难，无法改变所有人的认知。
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-25-下午11.00.56.png)图片来源：互联网
+推特公司准备同意以约 430 亿美元现金出售给埃隆·马斯克（Elon Musk），特斯拉公司的首席执行官称其为“最好的价格”。知情人士说，这是对这家社交媒体公司的最终“报价”。
 
-郭先生曾在大直播中说，再大的苦难也要学会平静的接受。今天看到一封求助信，我却还是忍不住破防了。不是因为心疼，而是因为愤怒。一封短短的信，仿佛展示了这罪恶的根源，是平庸之恶在苦苦哀求，是无信仰之灵在悲惨的挣扎。
-[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/1f2c7b1b-56b9-4500-a560-b21905a5086d.jpg?asset_id=284ffadf-63bb-4395-8d38-7b01fecf6552&amp;img_etag=%2229f7ab02d3f09eced672b3b8be0f43ec%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/1f2c7b1b-56b9-4500-a560-b21905a5086d.jpg?asset_id=284ffadf-63bb-4395-8d38-7b01fecf6552&amp;img_etag=%2229f7ab02d3f09eced672b3b8be0f43ec%22&amp;size=1024)
-这封流传甚广的求助信，落款是同济北苑业委会。中间有一句小区业主的描述的求助者为“200多位教授、专家、博士后、院士、副部级待遇的领导”。这种文字上的小聪明，被体制内可谓玩得炉火纯青，必须先表明自己的身份和要性。可谓，无声之处见无耻。
+消息人士称，一旦董事会开会向 Twitter 股东推荐这笔交易，Twitter 可能会在周一晚些时候宣布这笔每股 54.20 美元的交易。消息人士补充说，交易总是有可能在最后一刻破裂。
 
-求助信中一副卑微的嘴脸，低三下四的姿态。只不过为了一口吃食，细细读来，甚觉可悲。
+根据福布斯的统计，马斯克是世界上最富有的人，他正在以个人身份就收购 Twitter 进行谈判，而特斯拉并未参与这笔交易。
 
-贪生怕死、卑微懦弱、摇尾乞怜……很难用文字描述得清楚，这字里行间流露的是下作与可笑。
+消息人士称，到目前为止，Twitter 未能根据与马斯克的协议获得一项“去商店”条款，该条款允许其在交易签署后征求其他投标。消息人士补充说，尽管如此，推特仍将被允许通过向马斯克支付分手费来接受另一方的报价。
 
-曾几何时，学者乃是国家风骨之楷模，高级知识分子是一个社会风气的引领者和塑造者。再看看这些被关在了上海巨型监狱的所谓教授、专家、院士、副部级领导，他们只知道自己面临的窘迫，可曾想到没有这些所谓名头的普通百姓是如果过活的？
+消息人士要求匿名，因为此事属于机密。Twitter 和马斯克没有立即回应置评请求。
 
-作为高级知识分子，应该拥有更宽广的视野，更多的信息渠道，更客观的判断力，也应该有更多的发声管道和影响力，而如今，都做了什么呢？连个写“上海日记”的都没有。那些平常在上海品着咖啡的所谓作家呢？指点江山、纵横经济的学者都在干什么呢？就只会为了自己的生存而摇尾乞怜吗？你们口中的胸怀天下呢？那股小资与傲慢去哪里了？
+Twitter 股价周一在纽约盘前交易中上涨 4.5%，至 51.15 美元。
 
-近年来，中共国的所谓专家、教授、院士们可曾关心过百姓？可曾批评过政府？上海所谓的“清零防疫政策”造成的次生灾害已经导致数以万计的百姓失去生命，而你们还在装睡。现在终于轮到自己也挨饿了，才像猪一般的哀嚎几声。拥有五千年历史的华夏文明正在遭遇最黑暗的一百年，在中共马列主义和共产主义培育下的知识分子们，是多么的可悲的存在。
-[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/1522f36a-49d0-43c8-a7ac-3fe31c0817aa.png?asset_id=fae45631-8d97-41ea-9660-8fd11833accf&amp;img_etag=%22dc584e744f64d7c0f6de249ae966e6f7%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/1522f36a-49d0-43c8-a7ac-3fe31c0817aa.png?asset_id=fae45631-8d97-41ea-9660-8fd11833accf&amp;img_etag=%22dc584e744f64d7c0f6de249ae966e6f7%22&amp;size=1024)
-再看看上海现政府的管理人员，有多少都是你们的学生、子弟，在你们的教诲下，这些人学成了什么德行？这群所谓的现任领导将一所国际大都市生生困成了人间炼狱。
+马斯克曾表示，Twitter 需要私有化才能发展并成为一个真正的言论自由平台。
 
-无信仰、无骨气的教授、专家和院士们，这座城市发生的一切罪恶，都有你们的一份。雪崩时，没有一片雪花觉得自己有责任，然而，雪崩时，没有任何一片雪花是无辜的。天道有轮回，上海的封城证明了，在中共的独裁专制统治之下，任何人都可以是下一个受害者。
+这笔交易将在马斯克公布支持此次收购的融资方案四天后达成。据路透社周日报道，这导致 Twitter 董事会更加认真地对待这笔交易，许多股东要求公司不要让交易机会溜走。
 
-*编辑：【英国伦敦喜庄园编辑部】*
+此次出售将代表 Twitter 承认，尽管有望实现公司为 2023 年设定的雄心勃勃的财务目标，但在 11 月掌舵的新任首席执行官帕拉格·阿格拉瓦尔 (Parag Agrawal) 并未在使公司获得更多利润方面产生足够的吸引力。就在去年 11 月，Twitter 的股价还高于马斯克的出价。
 
-*校对：仙女儿-文善 | 审核：文明明 | Page: Daoiii*
+马斯克的谈判策略——提出一个报价并坚持下去——类似于另一位亿万富翁沃伦·巴菲特(Warren Buffett)就收购进行谈判的方式。马斯克在首次披露对 Twitter 的报价时没有提供任何融资细节，这让市场对其前景持怀疑态度。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+原文链接：
 
-[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
+【1】[Twitter set to accept Musk’s original $43 bln offer](https://www.reuters.com/technology/exclusive-twitter-set-accept-musks-best-final-offer-sources-2022-04-25/)
+
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
