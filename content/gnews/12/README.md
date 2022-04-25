@@ -2,31 +2,31 @@
 ---
 
 
-## 泽连斯基与美高级代表团会晤并获得军援承诺
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2413299/)
+## 【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2413361/)
 
-##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-18.png)
+**撰稿：Grace**
 
-据【CTV NEWS】4月25日报道， 周日晚，美国务卿和国防部长会见了乌克兰总统泽连斯基，这是自俄罗斯入侵以来美代表团对基辅最高级别访问。期间，泽连斯基要求获得更强大武器对抗俄军在乌东的军事行动。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-25-at-5.32.05-PM.jpeg)图片来源：salon.com
+据《福克斯新闻》4月25日报道，纽约最高法院的一名法官周一认定美国前总统唐纳德·川普犯有民事藐视罪，命令他每天支付1万美元，直到他完全遵守纽约总检察长莱蒂西亚·詹姆斯(Letitia James)对川普组织的调查传票。
 
-美代表团承诺将提供超3亿美元军援资金，并已批准出售1.65亿美元弹药。同时表示拜登总统将很快宣布驻乌克兰大使提名人选，新大使下周返回乌克兰。美乌双方同级别会晤最近一次是2月19日在慕尼黑与副总统卡马拉·哈里斯会面。当时，泽连斯基一再强调，乌克兰需要更多重型武器，包括远程防空系统和战机。
+据报道，在川普总统前律师迈克尔·科恩(Michael Cohen)在国会表明，川普在报表上夸大了各种资产的价值，以便在贷款和税收方面获得更有利的条件后，詹姆斯一直在寻求各种财务记录。
 
-[原文链接](https://www.ctvnews.ca/world/ukrainian-steel-plant-bombed-zelenskyy-to-meet-u-s-officials-1.5873894)
+本月早些时候，詹姆斯的办公室要求按日计罚，并认为川普因未能在3月31日的最后期限前交出文件而应被视为藐视法庭。川普总统的律师阿琳娜·哈巴(Alina Habba)认为，川普没有上交的任何材料都是由川普组织掌握的，而不是川普总统个人。
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+最终，法官阿瑟·恩戈隆(Arthur Engoron)裁定，川普没有对文件进行适当的搜索，因此没有遵守之前2月份的法庭命令。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+詹姆斯在4 月25日的一条推文中，公布了法官的这一裁决，詹姆斯写道：“在一项重大胜利中，法院作出了有利于我们的裁决，纽约最高法院的一名法官周一认定前美国总统唐纳德·川普普藐视法庭。在他每天继续违抗法院的命令-向我的办公室交出文件-的日子里，唐纳德·川普必须为此支付10,000美元。”
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+詹姆斯还表示，她对川普和川普组织的财务交易的调查将继续进行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+她在另一则推文中说道：“今天，正义取得了胜利。我们对唐纳德·川普和川普组织的财务交易的调查将继续进行，不会受到阻碍，因为没有人可以凌驾于法律之上。”
+
+报道称，在离开法院后接受记者询问时，哈巴拒绝发表评论。
+
+**新闻来源：** **[NY judge holds Trump in contempt, issues daily $10K fines until he complies with AG](https://www.foxnews.com/politics/court-holds-trump-in-contempt-issues-daily-10k-fines-until-he-complies-with-ny-ag-probe)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

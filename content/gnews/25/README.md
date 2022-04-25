@@ -2,27 +2,36 @@
 ---
 
 
-## 美议员呼吁建乌克兰野战医院，以色列启动战地医院
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2412880/)
+## 不列颠哥伦比亚省医疗护工严重短缺
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412965/)
 
-#### 选择/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16509122661.png)[图片来源](https://visitukraine.today/)
-据美军时报4月22日报道，美国两党共同建议在乌克兰建立野战医院，以应对伤亡的乌克兰军人和平民。
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1650914714.png)图片来源：CTV新闻
 
-这封由十多名众议院议员撰写的信函在上周五提交给国务卿布林肯（Blinken) 和国防部长奥斯汀（Austin）。信中吁拜登政府在乌克兰边境附近建立野战医院。美联社记录了36起俄罗斯对医疗设施的袭击，其导致医疗伤病者的能力受到影响。
 
-建议包括在波兰东部开设野战医院。这些医院旨在填补乌克兰医疗基础设施的空白。提供装甲救护车，旨在将部分伤者送往美军位于德国西部的兰德斯图尔地区医院。
+据自媒体【真北方】4月20日报道，加拿大BC省政府在解雇数千名因未接种新冠病毒疫苗的医护人员后，宣布将投入1200万加元来聘请外国培训护士，以图解决卫生行业严重的劳工短缺问题。
 
-多数观察人士认为，乌克兰东部的战争可能会持续到夏天。乔·拜登总统承诺加大对乌克兰的支持力度，同时避免采取会导致普京与华盛顿发生直接冲突的行动。
+报道称，BC省的医疗护工人数在疫情初期已处于危机水平，工作人员的短缺直接导致最高达27000个班次的空缺。尽管如此，当局仍不惜以终止部分公共卫生机构的工作为代价，解雇了其约2600名未接种疫苗的员工。
 
-众议员杰森·克劳（Jason Crow）说，他支持拜登不派兵或在乌克兰部分地区建立禁飞区的决定。“但提供医疗支持不应被视为冲突升级”。在距离前线数百英里的波兰东部建立野战医院，配备美国和西方的医疗人员，可以减轻乌克兰的负担，并 “确保这场冲突的可持续性”。
+对此，[宪法自由正义中心]指出，BC省卫生部在医护人员已严重不足的情况下，不仅未能妥善安置和照顾好本省的雇员，而且还浪费纳税人钱去聘请外国护工。而为解决目前的困境，当务之急应该是立刻取消疫苗授权政策。
 
-另据耶路撒冷邮报3月25日消息，同日，以色列官方野战医院在乌克兰启动。希巴（Sheba）医疗中心的野战医院是第一家抵达乌克兰的医院，名为“科哈夫·梅尔”（闪亮之星）的这家野战医院，位于波兰与乌克兰边境的莫斯季斯卡镇附近。医疗志愿者目前正在照顾数百名难民。
+原文链接：[https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/](https://tnc.news/2022/04/20/b-c-spending-millions-on-foreign-nurses-after-firing-thousands-of-healthcare-workers/)
 
-*责编： 白夜*
+上传/发稿 – 【文莱】
+撰稿/翻译/听写 -【文莱】
+素材/采编 -【青青】
+校对/审核 -【硫酸羟氯喹64】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-参考链接 [1](https://www.militarytimes.com/flashpoints/ukraine/2022/04/22/lawmakers-want-us-to-set-up-field-hospitals-for-ukraine/) [2](https://www.jpost.com/international/article-702315)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

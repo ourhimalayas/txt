@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 11:01 PM (UTC)`
+
+4/24/2022 Miles Guo: There will be a huge shift of world geopolitical landscape post the Russia-Ukraine war and the demise of the CCP; the SWIFT sanction on Russia is a double-edged sword, which prompted almost two-thirds of the countries in the world searching for a secure and encrypted payment system that cannot be weaponized. This provides a golden opportunity for the rise of Himalaya Exchange and Himalaya Pay.<br/><br/>4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇<br/>
+![img](https://media.gettr.com/group3/getter/2022/04/25/23/9d78e8cc-c0e2-7d29-9212-d0bbf35eccd2/out.jpg)
+
+---
+
+`@miles 4/25/2022 10:59 PM (UTC)`
+
+2022.04.25  PM NFSC news  Putin’s Wooing of the West May Catalyze Xi Jinping’s Assault on Taiwan
+![img](https://media.gettr.com/group17/origin/2022/04/25/22/5e78df04-10f3-2770-1c56-7ea79d590ef6/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/25/2022 10:05 PM (UTC)`
 
 “钱多多~~” 飞飞秀救援快报 2022-04-25<br/>For English：gettr.com/streaming/p172l9k470e
@@ -139,20 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 4月25号：又让七哥蒙对了……刚刚掉下飞机的那个村村子的村长(吴红旗)先生被消失了……是真的吗？就因为他起了这样的名字．就应该被消失吗？龙头建筑变龟头……起个名也犯法……<br/><br/>马上在中共国．说英文．讲英文都将是卖国罪……这是什么世道？【冥币兑美元，上证指数，恒生指数今日全部暴跌】
 ![img](https://media.gettr.com/group32/getter/2022/04/25/12/55330a6e-ab82-0f60-c542-f81190676f0c/d9b58156a6b5166f4e79660b215b6d39.jpg)
-
----
-
-`@miles 4/25/2022 11:59 AM (UTC)`
-
-2022.04.25 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
-![img](https://media.gettr.com/group22/origin/2022/04/25/11/927bfe15-a361-f980-278e-497f50ca5bfb/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/25/2022 10:58 AM (UTC)`
-
-2022.04.25  新中国联邦 | 军情室  俄罗斯部署彈道导弹目标乌東，俄羅斯布良斯克石油設施爆炸，中共军机坠毁惊现俄羅斯教官，中共從烏克蘭獲得的軍備技術
-![img](https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

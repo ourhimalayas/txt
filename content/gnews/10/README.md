@@ -2,31 +2,33 @@
 ---
 
 
-## 【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2413361/)
+## BC省发生纵火案，乌克兰神父一家险葬身火海
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2413375/)
 
-**撰稿：Grace**
+##### 作者：加拿大温哥华扬帆农场 -【撰稿/翻译/听写，多作者以全角顿号间隔】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-14.jpg)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-25-at-5.32.05-PM.jpeg)图片来源：salon.com
-据《福克斯新闻》4月25日报道，纽约最高法院的一名法官周一认定美国前总统唐纳德·川普犯有民事藐视罪，命令他每天支付1万美元，直到他完全遵守纽约总检察长莱蒂西亚·詹姆斯(Letitia James)对川普组织的调查传票。
+加拿大网络媒体《真北方》4月24日报道，BC省维多利亚警方正在调查一起纵火案，一名身份不明的嫌疑人在乌克兰天主教神父维什涅夫斯基家中纵火，当时他和他的家人正在睡觉。
 
-据报道，在川普总统前律师迈克尔·科恩(Michael Cohen)在国会表明，川普在报表上夸大了各种资产的价值，以便在贷款和税收方面获得更有利的条件后，詹姆斯一直在寻求各种财务记录。
+周三凌晨1点左右，神父被妻子的呼救声惊醒，有人将汽油从他们前门的邮件槽口倒入，然后点燃。所幸最后全家五口都逃离了火灾，包括他们的三个孩子—年龄分别为5岁、7岁和11岁，其中最大的孩子因跳楼受伤，目前正在医院接受治疗。家里两岁的小猫托尼也被消防员抢救出来。
 
-本月早些时候，詹姆斯的办公室要求按日计罚，并认为川普因未能在3月31日的最后期限前交出文件而应被视为藐视法庭。川普总统的律师阿琳娜·哈巴(Alina Habba)认为，川普没有上交的任何材料都是由川普组织掌握的，而不是川普总统个人。
+维多利亚警方目前正在调查这起纵火案，并要求目击者站出来，包括那些拥有车载摄像仪或监控录像的人。該出事房屋靠近附近的一所乌克兰天主教堂，维什涅夫斯基神父一直致力于帮助乌克兰人逃离俄乌战火。该纵火事件是否具有针对性，警方目前尚无定论。
 
-最终，法官阿瑟·恩戈隆(Arthur Engoron)裁定，川普没有对文件进行适当的搜索，因此没有遵守之前2月份的法庭命令。
+[原文链接](https://tnc.news/2022/04/24/family-of-ukrainian-priest-narrowly-escapes-victoria-house-fire-lit-by-arsonist/)
 
-詹姆斯在4 月25日的一条推文中，公布了法官的这一裁决，詹姆斯写道：“在一项重大胜利中，法院作出了有利于我们的裁决，纽约最高法院的一名法官周一认定前美国总统唐纳德·川普普藐视法庭。在他每天继续违抗法院的命令-向我的办公室交出文件-的日子里，唐纳德·川普必须为此支付10,000美元。”
+上传/发稿 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-詹姆斯还表示，她对川普和川普组织的财务交易的调查将继续进行。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-她在另一则推文中说道：“今天，正义取得了胜利。我们对唐纳德·川普和川普组织的财务交易的调查将继续进行，不会受到阻碍，因为没有人可以凌驾于法律之上。”
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-报道称，在离开法院后接受记者询问时，哈巴拒绝发表评论。
-
-**新闻来源：** **[NY judge holds Trump in contempt, issues daily $10K fines until he complies with AG](https://www.foxnews.com/politics/court-holds-trump-in-contempt-issues-daily-10k-fines-until-he-complies-with-ny-ag-probe)**
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
