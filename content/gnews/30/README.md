@@ -2,27 +2,34 @@
 ---
 
 
-## 欧盟揭露德法等国出售武器给普京 高达3.5亿欧元
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2407723/)
+## 加拿大邮政暂停向中共国空运包裹服务
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2408026/)
 
-**撰稿：日本东京方舟农场  海星**
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3106.png)图片来源：[https://www.canadapost-postescanada.ca](https://www.canadapost-postescanada.ca/cpc/en/our-company/news-and-media/service-alerts.page)
 
-据《自由时报》4月24日报导，欧盟揭露德法等多个成员国利用武器禁运措施的漏洞向俄罗斯出口了价值高达3.5亿欧元的军事武器。
+加拿大邮政公司官网 4月 21 日发布通知，宣布从即日起，暂停从加拿大向中共国航空货运包裹服务，直至另行通知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-534.jpg)（图片来源：路透社）
+加拿大邮政对此表示，做出该决定的原因是缺乏足够的航空运力，同时也表示加拿大与中国之间的包裹平邮服务将继续运营， 不过通过平邮方式寄送包裹的交付时间最多可能长达 12 周。
 
-据报导，根据欧盟与英国媒体《每日电讯报》分享的资料显示，欧盟尽管在 2014 年俄罗斯吞并克里米亚后对其实施武器禁运措施，但发现至少有 10 个成员国利用该措施的漏洞向普京政府出口了巨额军事设备，包括炸弹、火箭、飞弹和枪支等等。
+据悉，[联邦快递]已在 4 月 12 日发布通知，称因中共国疫情封锁及交通情况影响，暂停向上海、江苏、浙江、安徽、江西等五省市投送国际快递。此外，UPS 也宣布因疫情原因从 4 月 13 日起暂停目的地为中国上海、江苏、浙江的国际快递服务。
 
-报导指出，卖给俄罗斯的军事装备中有78% 由德国和法国公司提供。德国公司向莫斯科出售了价值 1.21 亿欧元的两用设备，包括步枪和特种防护车辆。法国则被发现向俄罗斯运送了价值 1.52亿欧元的军事设备，而且该国不仅出售了炸弹、火箭和鱼雷，还为 1000 多辆俄罗斯坦克以及战斗机和攻击直升机的导航系统提供热像仪。
+新闻来源：[https://www.canadapost-postescanada.ca/cpc/en/our-company/news-and-media/service-alerts.page](https://www.canadapost-postescanada.ca/cpc/en/our-company/news-and-media/service-alerts.page)
 
-对此，德国辩称这些军事武器是在普京政府保证它们用于民用而非军用后才出售的。然而，欧盟部分成员国怀疑这些武器已被俄军用于入侵乌克兰，在波罗的海和东部成员国的剧烈抗议后，欧盟于4月8日紧急补上了禁运武器措施的漏洞。
+上传/发稿 – 青青
+撰稿/翻译/听写 -活力人生 素材/采编 -活力人生
+校对/审核 – 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-参考链接：
-[https://ec.ltn.com.tw/article/breakingnews/3903471](https://ec.ltn.com.tw/article/breakingnews/3903471)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-总编：老孙
-校对发布：爱放飞
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

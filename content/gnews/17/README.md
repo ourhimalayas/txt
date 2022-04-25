@@ -2,8 +2,8 @@
 ---
 
 
-## 普大帝脸上塌陷因怕不安全不能再打的瑞士美容针
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408089/)
+## 普京身心俱毁过不了2025年（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408253/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

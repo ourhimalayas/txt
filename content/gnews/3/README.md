@@ -2,30 +2,29 @@
 ---
 
 
-## 中日财经爆┃德国再借400亿欧元以缓解俄乌战争的影响
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2408289/)
+## 樱花时政┃中共疫情封控政策导致外资芯片大厂撤离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2408417/)
 
-撰稿：东京樱花团/asket
+撰稿：东京樱花团/法治小哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3123.png)[图片来源](https://www.zerohedge.com/political/france-votes-president-wall-street-warns-le-pen-upset-would-be-bigger-shock-brexit)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情封控政策导致外资芯片大厂撤离.png)[图片来源](https://img.ltn.com.tw/Upload/business/page/800/2022/04/25/phpdLheN6.jpg)
 
-德国以厌恶债务著称，但它已经决定，将再借入近400亿欧元（430亿美元），以缓冲乌克兰战争造成的经济打击。
+**全球芯片大厂安森美半导体公司（ON Semiconductor）日前宣布关闭位于上海的全球配送中心，并将相关业务迁往新加坡。**
 
-据彭博社援引几位接近德国政府的消息人士称，他们计划用这笔钱来缓解战争对经济和金融的影响（即为该国公民提供更多救济），这导致能源价格飙升，必须由德国公司和消费者承担。
+据新加坡媒体本周日报道，安森美发布的通知函中称，公司业务因上海进入封控状态而受到影响，位于当地的全球配送中心被迫关闭。
 
-财政部长克里斯蒂安-林德纳（Christian Lindner）的提案一旦通过，就会被送到德国议会的联邦议院批准。
+报道引述该公司的发言人表示，公司在此之前已经尝试通过多种方式加快支付，但确实无法及时满足客户需求。为缓解防疫措施带来的影响，公司已经向其它地点转移业务，例如新加坡和马尼拉配送中心。
 
-自新冠病毒大流行开始以来，德国政府已经结束了长期以来对债务的反对，并发动了一场前所未有的借贷狂潮。2020年的净新债为1300亿欧元，2021年将达到创纪录的2150亿欧元。
+安森美是目前世界最大的模拟（analog）与逻辑（logic）芯片产品供应商，为全球汽车感知领域提供80%以上的电子元器件。
 
-执政联盟已经连续三年暂停对新借款的宪法限制，以应对新冠病毒大流行带来的经济影响。
-
-除了这批最新的资金，总理奥拉夫-肖尔茨（Olaf Scholz）还宣布了一项价值1000亿欧元的特别基金，用于支付德国大规模增加的军事开支。这也将帮助德国实现北约每年经济产出2%的军事开支目标。林德纳表示，为该基金融资的借款将分几年进行，这意味着2022年的借款可能会超过1400亿欧元，取决于该基金有多少钱将归入本财政年度。
-
-信息来源：** **[**Germany Borrows Another 40 Billion Euros To Cushion Fallout From War In Ukraine**](https://www.zerohedge.com/markets/germany-borrows-another-40-billion-euros-cushion-fallout-war-ukraine)
+信息来源：
+[汽车芯片大厂不堪上海封城迁至新加坡](https://www.rfa.org/mandarin/Xinwen/9-04242022155437.html)
 
 *编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/二维码.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
