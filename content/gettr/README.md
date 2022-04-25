@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 1:18 AM (UTC)`
+
+4/24/2022 Miles Guo: Since the beginning of our Whistleblowers’ Movement, we have witnessed astonishing coincidences between the Movement and many other events that seem to be irrelevant to the Movement. As a matter of fact, these seemly coincidences actually prove the accuracy of the intelligence information the Movement has obtained, and further show the world that the Movement is blessed<br/><br/>4/24/2022  文贵直播： 从爆料革命开始到现在，爆料革命和无数看似无关的各种事件存在神奇惊人的巧合，而这些看似巧合的背后实际证明了爆料革命情报的准确性，向世人展示了爆料革命得天佑的事实<br/>
+![img](https://media.gettr.com/group27/getter/2022/04/25/01/b539a20d-6285-c374-318a-2e2dab45529f/out.jpg)
+
+---
+
 `@miles 4/25/2022 12:59 AM (UTC)`
 
 2022.04.24 晚  新中国联邦 | 新闻访谈  中共管制社交媒体，禁言删帖，给老百姓洗脑，对各国政府挑拨离间，虚假宣传
@@ -148,13 +155,6 @@
 
 2022年4月24日 文贵大直播：俄乌战争前因后果；沪京等隔离与台湾；佩洛西访台成定局；国内目前经济情况
 ![img](https://media.gettr.com/group41/origin/2022/04/24/12/f43b55e2-2afe-f525-bf41-40d2270de3ca/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/24/2022 11:29 AM (UTC)`
-
- 4月24号：尊敬的战友们好……今天的直播多长时间好？
-![img](https://media.gettr.com/group46/getter/2022/04/24/11/1fc23bbe-b6c1-d84a-ecbd-1c436f2b1292/out.jpg)
 
 ---
 

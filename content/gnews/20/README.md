@@ -2,22 +2,28 @@
 ---
 
 
-## 西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2406995/)
+## 俄罗斯称别尔哥罗德地区的村庄遭到乌克兰炮击
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2407404/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+素材：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-25-上午7.57.29.png)图片来源：互联网
+俄罗斯国家通讯社塔斯社援引当地官员的话说，俄罗斯与乌克兰接壤的别尔哥罗德（Belgorod）地区的一个村庄遭到乌方炮击。
 
-西澳大利亚州州长马克·麦高文(Mark McGowan)办公室证实，他的三个孩子中的一个在感染新冠病毒后住院。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-16.41.58.png)图片来源：eventiavversinews.it
-声明中写道：“孩子已经完全接种疫苗了，但由于感染，他的情况很严重。孩子仍在医院接受持续护理。”最近几天，据透露，西澳大利亚州州长马克·麦高文（Mark McGowan）在与家人单独相聚期间，其新冠病毒检测呈阳性。麦高文最初在一名家庭成员感染病毒后检测为阴性，他是密切接触者。州长在一份声明说，他在周四进行了另一次PCR检测，结果呈阳性。“ 考虑到我的一个家庭成员新冠检测呈阳性，这并不奇怪，”他周五说，“根据法令，我的阳性结果将迫使我延长我的隔离期，一直到我能被允许离开家。”
+据塔斯社报道，地区政府负责人弗拉基米尔·佩尔采夫（Vladimir Pertsev）周日在他的电报频道上说，一枚弹丸落入田野后，没有人员受伤或建筑物受损。
 
-“在此期间，我将继续隔离并在家工作。”州长预计将于5月1日参加在珀斯举行的工党联邦竞选活动。本周，联邦工党领袖安东尼·艾博年（Anthony Albanese)的病毒检测也呈阳性。
+“有一枚来自乌克兰的弹丸，但不是墓地，正如一些媒体所写，而是在现场。它是一枚弹丸，而不是六枚，因为它的来源不可靠。建筑物没有损坏，更不用说受害者了. 村里的局势很平静，”佩尔采夫说。
 
-参考链接：
+Otradnoye Belgorod区距乌克兰边境约7公里，村内约有700人居住。
 
-[https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/](https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/)
+原文链接：
 
-编辑、上传：Xiao baige
+【1】[在别尔哥罗德地区报道说，Otradnoe 村境内被乌克兰炮击](https://tass.ru/proisshestviya/14459483)
+
+* * *
+
+*编辑&发布：长岛开心*
+
+
 
  
 

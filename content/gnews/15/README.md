@@ -2,28 +2,19 @@
 ---
 
 
-## 俄罗斯称别尔哥罗德地区的村庄遭到乌克兰炮击
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2407404/)
+## 人类最险恶的就是羡慕嫉妒恨
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407477/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-25-上午7.57.29.png)图片来源：互联网
-俄罗斯国家通讯社塔斯社援引当地官员的话说，俄罗斯与乌克兰接壤的别尔哥罗德（Belgorod）地区的一个村庄遭到乌方炮击。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据塔斯社报道，地区政府负责人弗拉基米尔·佩尔采夫（Vladimir Pertsev）周日在他的电报频道上说，一枚弹丸落入田野后，没有人员受伤或建筑物受损。
+*发布：陶子*
 
-“有一枚来自乌克兰的弹丸，但不是墓地，正如一些媒体所写，而是在现场。它是一枚弹丸，而不是六枚，因为它的来源不可靠。建筑物没有损坏，更不用说受害者了. 村里的局势很平静，”佩尔采夫说。
-
-Otradnoye Belgorod区距乌克兰边境约7公里，村内约有700人居住。
-
-原文链接：
-
-【1】[在别尔哥罗德地区报道说，Otradnoe 村境内被乌克兰炮击](https://tass.ru/proisshestviya/14459483)
-
-* * *
-
-*编辑&发布：长岛开心*
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

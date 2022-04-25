@@ -2,36 +2,47 @@
 ---
 
 
-## 福奇曾与中共病毒所签署允许销毁记录的备忘录
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407423/)
+## 聚焦：破坏救援与灭共的坏人逃到天涯海角也摆脱不了法律的严惩
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2407503/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/npr.jpg)图片来源：NPR
-《门户专家》（Thegatewaypundit）网站4月21日报道：《国家脉搏》的记者娜塔莉·温特斯发现了福奇和武汉病毒学研究所之间的一份备忘录，其中同意在必要时可以销毁记录。
+作者：多伦多蓝莲花- 丁过
 
-加尔维斯顿国家实验室是安东尼·福奇的国家过敏症和传染病研究所的资助下建造的，与武汉病毒学研究所签订了谅解备忘录，授予中共国实验室权利，让美国同行销毁和/或归还秘密文件、材料和设备，而不做任何备份。
+编辑：丁过、灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
+近日，法治基金驻波兰梅迪卡前线的义工们，为了方便来往难民得到及时救助，为了让来自世界各地的物资捐助者、救援人员、义工及记者等人道援助人员得到当地稀缺的网络服务，在梅迪卡竖起了一块6米高的巨型电子显示牌。
 
-《国家脉搏》此前发现了这家实验室与武汉病毒学研究所的多年合作关系，包括在实验室的生物安全4级(BSL)设施中举办交流项目和培训研究人员。这两家实验室的负责人承认，他们在2018年研究了世界上最危险的病原体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/显示牌2.png)新中国联邦显示牌（图片来源：新中国联邦NFSC新闻）
 
-这一消息是在围绕安东尼·福奇资助武汉病毒学研究所蝙蝠冠状病毒研究的争议中传出的。在美国，什么样的政府机构允许记录被销毁，并与中共国签署协议这样做?有人这么做的原因只有一个，那就是为了隐瞒什么。福奇博士想隐瞒什么？
+指示牌主要的功能是，即使在夜间，也能从远处看到指示牌上的班车班次、免费WiFi密码和救援电话、邮箱等，节省了大量时间和人工成本。
 
-链接：[https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/](https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/)
+同时新中国联邦理所当然地把【消灭中国共产党】中英文打在牌子的顶端，旨在告诉世界，中共为普京政权侵略乌克兰提供了资金和军援，是这场灾难背后的主要元凶。
 
-上传/发稿 – 云起时
-撰稿/翻译/听写 – 重生之鹰
-素材/采编 – UCool 优酷
-校对/审核 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+单就中共是乌克兰战争始作俑者这一项，消灭中共就是天经地义的事情，何况中共70多年来屠杀了近亿无辜中国人，还向世界疯狂输出腐败和共产主义威权，释放了让世界陷入灾难的生化病毒，因此消灭中共并不是什么政治口号，而是非常急迫的人类自救行动。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+新中国联邦的壮举，得到了全球正义人士的高度赞誉，但也不断招致邪恶力量的攻击，先是中共“老朋友”布隆伯格的彭博社记者来到前线指责灭共行动是出于“政治目的”，被我们的前线记者Nicole反击后灰溜溜离开。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/坏蛋1.jpg)袭击新中国联邦乌克兰前线救援战友小Sarah的美国人（图片来源：新中国联邦NFSC新闻）
+据事件亲历者正义小Sarah 说， 一个多月前，就来了几个打着救援名义的美国人（目前人数不祥），他们同样以灭共行动是“政治宣传PROPAGANDA”作为借口，手握所谓主流媒体Mother Jones （《琼斯妈妈》）30多天前对郭文贵先生的负面报道，窜进梅迪卡营地各个帐蓬大肆丑化和攻击新中国联邦，阻拦行人不让靠近拍照显示牌，指责新中国联邦支持“极右翼”的班农、川普等。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+相信剪断显示牌电缆的就是这一伙人。那么《琼斯妈妈》又是什么货色呢？据维基百科，该杂志的创办者琼斯是一名社会主义拥护者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+以上种种迹象表明，这伙人早就有备而来，而他们假装被攻击时的碰瓷专业程度、专找女义工威胁辱骂抢夺手机，以及各种无耻的栽赃手法，足以证明他们根本不是一般的持不同政见者，他们欺软怕硬、极为下三滥的作派和中共的流氓行径高度契合。
+三个肇事者想做巴士跑掉，其中一人假装用头撞巴士，想碰瓷与讹诈。
+这个事件在阅历无数的郭文贵先生看来，只不过是灭共过程中的小小插曲，他在今天的大直播中肯定了前线战友们的勇敢和理智，同时提醒所有战友，以后临事千万不要懦弱恐惧。
+
+郭先生的郑重申明令这伙人闻风丧胆：这伙人涉嫌种族歧视，往班农和我们身上泼脏水，他们是极左共产主义对自由主义（普世价值）的挑战，不要说他们逃回美国，他们逃到天涯海角，我们都不放过他们，我们将在各地对他们发起最凌厉的法律行动。
+
+新闻来源链接：
+
+[2022年4月24日大直播速记精萃 – GNEWS](https://gnews.org/zh-hans/2406563/)
+
+[MILES GUO on GETTR: “【Ukraine Rescue】 04/22/2022 The…”](https://gettr.com/post/p16uw67f7fd)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

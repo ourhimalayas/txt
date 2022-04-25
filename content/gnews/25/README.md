@@ -2,32 +2,23 @@
 ---
 
 
-## 北京的灾难可能比上海惨烈
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2406788/)
+## 西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2406995/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-25-at-02.55.02.png)
-4月24日大直播中郭先生再次警告中共目前的暴力防疫和极限施压都是在为即将到来的疫苗灾难做准备。目前已经进行或正在进行的城市包括上海、北京。这两个城市的灾难程度从因果角度来说，也许是报应。
+#### 编译 意大利达芬奇农场 小白鸽
 
-中国共产党诞生于上海。中国人和上海人很相似，上海聚集了很多小聪明的人，鼠目寸光，极为短视，经过极限施压的上海，仍然会有大批人去买房，房价根本不会降，中共不灭，上海永远都是繁华大都市的代名词，是无数人挤破头都要去的地方。
+西澳大利亚州州长马克·麦高文(Mark McGowan)办公室证实，他的三个孩子中的一个在感染新冠病毒后住院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-24-alle-16.41.58.png)图片来源：eventiavversinews.it
+声明中写道：“孩子已经完全接种疫苗了，但由于感染，他的情况很严重。孩子仍在医院接受持续护理。”最近几天，据透露，西澳大利亚州州长马克·麦高文（Mark McGowan）在与家人单独相聚期间，其新冠病毒检测呈阳性。麦高文最初在一名家庭成员感染病毒后检测为阴性，他是密切接触者。州长在一份声明说，他在周四进行了另一次PCR检测，结果呈阳性。“ 考虑到我的一个家庭成员新冠检测呈阳性，这并不奇怪，”他周五说，“根据法令，我的阳性结果将迫使我延长我的隔离期，一直到我能被允许离开家。”
 
-中国共产党成长于北京。北京充满了流氓假仗义，北京有钱人的钱几乎都是脏钱，北京人极其傲慢，明明什么都没有，但言语之间个个都是大爷，有人一辈子不刷牙。北京就像是上帝吐掉的一口痰，从地理、生活、人文都肮脏。献祭给上天的首选城市就是北京。
+“在此期间，我将继续隔离并在家工作。”州长预计将于5月1日参加在珀斯举行的工党联邦竞选活动。本周，联邦工党领袖安东尼·艾博年（Anthony Albanese)的病毒检测也呈阳性。
 
-尽管上海人小聪明，但也就破财，不致于丧命。但北京的傲慢会要人命，郭先生坦言，未来要打仗或者政治动乱，北京会比上海惨烈地多，将会成为死人最多的城市。
+参考链接：
 
-撰稿、发布：骄子
+[https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/](https://www.eventiavversinews.it/in-gravi-condizioni-il-figlio-del-premier-australiano-mcgowan-completamente-vaccinato-e-positivo-al-covid/)
 
-* * *
+编辑、上传：Xiao baige
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

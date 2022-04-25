@@ -2,23 +2,36 @@
 ---
 
 
-## 中共战机坠毁再次印证文贵先生情报准确性
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2406999/)
+## 福奇曾与中共病毒所签署允许销毁记录的备忘录
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407423/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3098.png)
-图片来源：Gettr
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/npr.jpg)图片来源：NPR
+《门户专家》（Thegatewaypundit）网站4月21日报道：《国家脉搏》的记者娜塔莉·温特斯发现了福奇和武汉病毒学研究所之间的一份备忘录，其中同意在必要时可以销毁记录。
 
-据文贵先生4月24日盖特直播报道，昨日，网传一架中共战机坠毁，机上中共和俄罗斯飞行员各一名跳伞后跌落在河南商丘市虞城县镇里固乡的视频。这也再次印证了文贵先生早在去年同天，爆料中共航母舰载机全部雇佣俄军飞行员这一情报的准确性。同时打脸中共此前一直吹嘘的走所谓“军事独立”道路。
+加尔维斯顿国家实验室是安东尼·福奇的国家过敏症和传染病研究所的资助下建造的，与武汉病毒学研究所签订了谅解备忘录，授予中共国实验室权利，让美国同行销毁和/或归还秘密文件、材料和设备，而不做任何备份。
 
-文贵先生还披露，中俄间军事合作不是简单的飞行员培训，而是已不分彼此。坠毁机型为歼17教练版，中共飞行员跳伞后居然吓得一直在哭。外国政府看到中共飞行员跳伞后的状态，非常震惊。他们认为这完全不堪一击，中共根本没能力打台湾。若打台湾就只能是毁灭性的，中共不具备夺岛登陆能力。
+《国家脉搏》此前发现了这家实验室与武汉病毒学研究所的多年合作关系，包括在实验室的生物安全4级(BSL)设施中举办交流项目和培训研究人员。这两家实验室的负责人承认，他们在2018年研究了世界上最危险的病原体。
 
-文贵先生同时披露，俄军飞行员不愿回国的原因：一是享受中共的声色犬马和优厚待遇；二是争相找机会出卖俄军事情报。中俄间实际是同床不同梦，互毁互害的关系。
+这一消息是在围绕安东尼·福奇资助武汉病毒学研究所蝙蝠冠状病毒研究的争议中传出的。在美国，什么样的政府机构允许记录被销毁，并与中共国签署协议这样做?有人这么做的原因只有一个，那就是为了隐瞒什么。福奇博士想隐瞒什么？
 
-新闻来源：[https://gettr.com/streaming/p16w4d7c25f](https://gettr.com/streaming/p16w4d7c25f)
+链接：[https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/](https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/)
 
-编辑发稿：硫酸羟氯喹64
+上传/发稿 – 云起时
+撰稿/翻译/听写 – 重生之鹰
+素材/采编 – UCool 优酷
+校对/审核 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

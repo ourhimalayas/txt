@@ -2,13 +2,12 @@
 ---
 
 
-## 人类最险恶的就是羡慕嫉妒恨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407477/)
+## 七哥回答关于Nancy Pelosi访台及喜币（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407715/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：50-11：00-007.jpg)
+发布：tianzhihuan
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
