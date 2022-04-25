@@ -15,74 +15,74 @@
 
 ---
 
-### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/1/README.md)
+### [雅典娜时报-第273期](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/2/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [加拿大官员退出G20会议以抗议俄罗斯参与](/content/gnews/2/README.md)
+### [【G时新闻】俄乌战争后，中俄人民的结局将截然不同](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [加拿大官员退出G20会议以抗议俄罗斯参与](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/3/README.md)
+### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/24/2022 文贵直播：中共灭亡后的中国人既无法在自己的土地上生存，又不被世界所接受；中共的存在只会加速人吃人时代的到来](/content/gnews/4/README.md)
+### [【G叻睇真D】渥太华警方报告显示 ：大卡车运动期间对警方的投诉大部分被驳回](/content/gnews/6/README.md)
+ ` G-时新闻`
+
+### [4/24/2022 文贵直播：中共灭亡后的中国人既无法在自己的土地上生存，又不被世界所接受；中共的存在只会加速人吃人时代的到来](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [战友日常之-为台祝祷](/content/gnews/5/README.md)
+### [战友日常之-为台祝祷](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [4/24/2022 文贵直播: 出访台湾既是因为Nancy Pelosi有这个权力，也是为了在中期大选中拉选票。Nancy Pelosi看透了中共要她推迟出访的诡计，所以很大概率会突访台湾](/content/gnews/6/README.md)
+### [4/24/2022 文贵直播: 出访台湾既是因为Nancy Pelosi有这个权力，也是为了在中期大选中拉选票。Nancy Pelosi看透了中共要她推迟出访的诡计，所以很大概率会突访台湾](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友](/content/gnews/7/README.md)
+### [4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [2018年9月22日 郭文贵先生直播全文字版（合集）](/content/gnews/8/README.md)
+### [【G时新闻】美国务卿将访问基辅 讨论武器提供等问题](/content/gnews/11/README.md)
+ ` G-时新闻`
+
+### [2018年9月22日 郭文贵先生直播全文字版（合集）](/content/gnews/12/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [五至十一岁儿童入境加拿大将不再需中共病毒测试](/content/gnews/9/README.md)
+### [五至十一岁儿童入境加拿大将不再需中共病毒测试](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [BC省发生纵火案，乌克兰神父一家险葬身火海](/content/gnews/10/README.md)
+### [BC省发生纵火案，乌克兰神父一家险葬身火海](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花时政┃北京11区开展核酸检测，或为大封控做准备](/content/gnews/11/README.md)
+### [樱花时政┃北京11区开展核酸检测，或为大封控做准备](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪](/content/gnews/12/README.md)
+### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯的制裁表明“统一行动”产生了影响](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [泽连斯基与美高级代表团会晤并获得军援承诺](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [【粤语配音】2022年4月24日：中国人因为没有信仰被世界抛弃](/content/gnews/15/README.md)
+### [【粤语配音】2022年4月24日：中国人因为没有信仰被世界抛弃](/content/gnews/17/README.md)
  ` MOS香港部`
 
-### [上海新冠&#8221;清零&#8221;](/content/gnews/16/README.md)
+### [上海新冠&#8221;清零&#8221;](/content/gnews/18/README.md)
  ` The Potomac View`
 
-### [马斯克与推特达成 440 亿美元的交易](/content/gnews/17/README.md)
+### [马斯克与推特达成 440 亿美元的交易](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [上海升级电子门警报器以加强管制](/content/gnews/18/README.md)
+### [上海升级电子门警报器以加强管制](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/19/README.md)
+### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [揭露付振华的罪行和背后的阴谋](/content/gnews/20/README.md)
- ` 加拿大温哥华英里农场`
-
-### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/21/README.md)
+### [加拿大启动航空计划基金帮助乌克兰人赴加](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [保守派加拿大人更加反对政府监控](/content/gnews/22/README.md)
+### [保守派加拿大人更加反对政府监控](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共国是美国最大的反情报威胁](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [大部分对警方在抗议期间的投诉被驳回](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

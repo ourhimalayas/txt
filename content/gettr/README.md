@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 11:19 PM (UTC)`
+
+4/24/2022 Miles Guo: Nancy Pelosi has the incentive to visit Taiwan while she is still in power, and her visit will aid the midterm elections. Nancy Pelosi certainly can see through the CCP's trick of having her postpone the visit. There is a high chance that it will be a sudden and unanticipated visit!<br/><br/>4/24/2022 文贵直播: 出访台湾既是因为南希. 佩洛西（Nancy Pelosi）有这个权力，也是为了在中期大选中拉选票。南希.佩洛西看透了中共要她推迟出访的诡计，所以很大概率会突访台湾！<br/><br/>
+![img](https://media.gettr.com/group7/getter/2022/04/25/23/760fc936-d052-89ba-9dba-1b5573f78ba6/out.jpg)
+
+---
+
+`@miles 4/25/2022 11:11 PM (UTC)`
+
+4/24/2022 Miles Guo: Fellow fighter Nicole talked about extreme leftists at the Ukraine rescue front line cursing our fellow fighters, smearing the Whistleblowers' Movement, and faking an accident and attempting to blame it on our fellow fighters. Their conduct is a hate crime towards the citizens of the New Federal State of China!<br/><br/>4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友；他们的这种行径是针对新中国联邦人的仇恨犯罪！<br/>
+![img](https://media.gettr.com/group25/getter/2022/04/25/23/0749c2dd-cbad-819e-1394-279ac80446ab/out.jpg)
+
+---
+
 `@miles 4/25/2022 11:01 PM (UTC)`
 
 4/24/2022 Miles Guo: There will be a huge shift of world geopolitical landscape post the Russia-Ukraine war and the demise of the CCP; the SWIFT sanction on Russia is a double-edged sword, which prompted almost two-thirds of the countries in the world searching for a secure and encrypted payment system that cannot be weaponized. This provides a golden opportunity for the rise of Himalaya Exchange and Himalaya Pay.<br/><br/>4/24/2022 文贵直播：俄乌战争和中共灭亡后世界板块大变局；美元SWIFT制裁俄罗斯是双刃剑，促使世界2/3的国家都想寻找安全加密且不能用作军事武器的支付系统，喜联储、HPay面临良好发展机遇<br/>
@@ -139,20 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 2022.04.25 早  新中国联邦 | 新闻   梅迪卡新中国联邦广告牌希望之光重现；美国SSF救援组织义工称赞新中国联邦
 ![img](https://media.gettr.com/group33/origin/2022/04/25/12/8317ce98-b971-d56b-0faa-b4a504527153/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/25/2022 12:31 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月24日第51天当日救援统计：<br/>Medyka救援站接待：约138人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约14309人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 51 - Date: April 24, 2022 :<br/>Medyka Rescue Station Reception: about 138 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 14309 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group12/getter/2022/04/25/12/334e00de-68cc-eb38-ba35-48a1915ef5d6/15c1cf9a1fb5796a8dbaf64334413703.jpg)
-
----
-
-`@miles 4/25/2022 12:27 PM (UTC)`
-
-4月25号：又让七哥蒙对了……刚刚掉下飞机的那个村村子的村长(吴红旗)先生被消失了……是真的吗？就因为他起了这样的名字．就应该被消失吗？龙头建筑变龟头……起个名也犯法……<br/><br/>马上在中共国．说英文．讲英文都将是卖国罪……这是什么世道？【冥币兑美元，上证指数，恒生指数今日全部暴跌】
-![img](https://media.gettr.com/group32/getter/2022/04/25/12/55330a6e-ab82-0f60-c542-f81190676f0c/d9b58156a6b5166f4e79660b215b6d39.jpg)
 
 ---
 
