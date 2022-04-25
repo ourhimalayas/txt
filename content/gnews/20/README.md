@@ -2,65 +2,33 @@
 ---
 
 
-## 泽连斯基复活节讲话强调基督复活的荣光战胜黑暗
-` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2411535/)
+## 无苗灭共者必要之德性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2411758/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/自由.png)
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/04/89f4470f0ad9d047c2cdf8be0b29dc0767a68cdb.jpg)[来源：乌克兰国防部](https://www.mil.gov.ua/news/2022/04/25/prezident-ukraini-proviv-zustrich-z-derzhavnim-sekretarem-ta-ministrom-oboroni-ssha/)
-据乌克兰自由之声电台当地时间24日报道，“[乌克兰总统泽连斯基会见了正在乌克兰进行访问的美国国务卿布林肯和国防部长劳埃德奥斯汀](https://www.radiosvoboda.org/a/news-zelenskyy-pro-zustrich-z-blinkenom-i-ostinom/31819560.html)。”因为拜登政府不敢证实，乌克兰政府部将“[**总统会见美国国务卿和国防部长**](https://www.mil.gov.ua/news/2022/04/25/prezident-ukraini-proviv-zustrich-z-derzhavnim-sekretarem-ta-ministrom-oboroni-ssha/)“的信息在国防部官网。
+[![](https://express.adobe.com/page/f3zrMzUyN4dOb/images/b0ded87e-e19f-4d3a-a9cb-53dd108bfd64.jpg?asset_id=6cd3ab2d-afb9-4d37-bc88-8549a2b1451b&amp;img_etag=%222d3ae17ae8011f83fbb89391a23a3c04%22&amp;size=1024)](https://express.adobe.com/page/f3zrMzUyN4dOb/images/b0ded87e-e19f-4d3a-a9cb-53dd108bfd64.jpg?asset_id=6cd3ab2d-afb9-4d37-bc88-8549a2b1451b&amp;img_etag=%222d3ae17ae8011f83fbb89391a23a3c04%22&amp;size=1024)来源网络
+**作者：文护念**
 
-## **美国防长及国务卿访问基辅拜登却不敢证实** 
+今日之世界，新世界也。思想新，科技新，政体新，人物新，凡全世界有形无形之事物，一一皆劈前古所未有，而今全世界的焦点似乎都无法回避一个新话题：新中国联邦。人人知之，人人慕之，无俟吾论。
 
-有趣的是，[美国国会山消息称，“拜登政府并未证实国防部长与乌克兰总统会面](https://thehill.com/policy/international/3461785-zelensky-meets-with-blinken-austin-in-kyiv-reports/)，但美联社和其他媒体均证实了这一消息。
+灭共者，天演之公例也！肉身凡胎，必争自存，争自存则有优有劣，劣而败者，其权利必为优而胜者所吞并。如今的中共俨然变成“危墙”，兵败如山倒，树倒猢狲散，其盘踞要津的资源正在奔向新中国联邦。那么是时势造无苗灭共者，还是无苗灭共者造时势？时势英雄，递相为因，递相为果，在新老世界过渡阶段，适于时代之潮流为贵，如若成为新中国联邦之无苗灭共者，不可缺之德性有两端焉。
 
-## **泽连斯基赞赏美国的巨大援助** 
+其一谓勇气，在动荡时代所不可缺也。凡革新者要抛弃其旧形，犹进步者必当掷弃其故步。欲上高楼，先离平地，欲适异国，先去故乡。当中共这个“旧者”已破，新中国联邦尚未成熟之际，现状往往是瓦砾狼藉，器物播散，其现象之苍凉，有十倍于从前。普通老百姓只观眼前之小害，不察后此之大利；投机取巧者，或胆识不足，或长虑却顾，而不敢轻于一发。而新中国联邦之无苗灭共者，故必有大刀阔斧之力，乃能收筚路蓝缕之功；必须要有雷霆万钧之能，方可造鸿鹄千里之势。若是者，唯勇者也。
 
-泽连斯基在与美国务卿和防长奥斯汀会见时“强调了在乌克兰的关键时刻，美国高级官员访问基辅的重要性。总统泽连斯基补充说：
+其二则是忍耐性。郭先生为了消灭中共，踯躅于中共泥潭三十余载，可进而不可退，与猛兽战，大业未成，两鬓白发，期间恒遇无数阻力，受诬受陷，但初心不改。故无苗灭共者必须要有像郭先生之忍耐性。古语曰：“行百里者半九十。”井挖掘九仞犹为弃井，山亏一篑遂无成功，惟危惟微，间不容发。
+[![](https://express.adobe.com/page/f3zrMzUyN4dOb/images/7062243d-bdc0-4731-8b25-8a1034754205.jpg?asset_id=59a3374a-ed6f-440f-b86e-d1f00d30b9ed&amp;img_etag=%22c33e272416e5d9ef5b5c58b96c8ab66e%22&amp;size=2560)](https://express.adobe.com/page/f3zrMzUyN4dOb/images/7062243d-bdc0-4731-8b25-8a1034754205.jpg?asset_id=59a3374a-ed6f-440f-b86e-d1f00d30b9ed&amp;img_etag=%22c33e272416e5d9ef5b5c58b96c8ab66e%22&amp;size=1024)
+笔者作为最普通的战友，无法在这场伟大的变革中扮演重要角色，囿于墙内，生计所迫，唯有工作之余抽空做力所能及之事。这五年以来，我无法向身边亲朋直抒胸臆，或不被理解，正是芸芸众生心里孤独的根源。梵高曾说过：“每个人心里都有一团火，路过的人却只能看见烟。”我们必须学会接受，不被理解才是人生的常态。深宵时分，我们总想找一个可以为自己分担痛苦的人，可是大多时候，我们那些惊天动地的悲恸，在别人的眼里只不过是随手拂过的尘埃，因此我们必须学会悲喜自渡，学会放下。
 
-“[我们赞赏美国以前所未有的方式帮助乌克兰。我要亲自感谢拜登总统和整个乌克兰人民在支持乌克兰方面发挥的领导作用，感谢他个人明确的立场。感谢所有美国人民以及国会的两院制和两党支持。我们看到了。我们感觉到了](https://www.radiosvoboda.org/a/news-zelenskyy-pro-zustrich-z-blinkenom-i-ostinom/31819560.html)。”
+世间所有的灿烂，都需要千倍的孤独来偿还。所谓的修心养性，养的是面对任何人生境遇都能有从容不迫的心性、德性。愿各位战友都能成为一名合格的无苗灭共者。
 
-乌克兰总统赞赏“美国已经提供的34亿美元国防支持是对加强乌克兰国防能力的最大贡献。”
+*编辑：【英国伦敦喜庄园编辑部】*
 
-## **泽连斯基要求追加对俄制裁** 
+*校对： 仙女儿-文善 | 审核：文明明  | Page: Daoiii*
 
-泽连斯还谈到了“加强对俄罗斯的制裁、对乌克兰的财政支持和安全保障。”认为，“[这种援助已经有助于将乌克兰的防御能力提升到一个全新的水平](https://www.radiosvoboda.org/a/news-zelenskyy-pro-zustrich-z-blinkenom-i-ostinom/31819560.html)。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-该消息也证实了美国如此重量级官员到访基辅，美国未敢承认。人们相信，这仍然来自于中、俄和欧盟各方势力的阻拦。
-
-## **美国会山证实国防部长国务卿访问基辅** 
-
-根据国会山消息，俄罗斯在复活节不但没有停止对乌克兰的攻击，并且在加大力度袭击了乌克兰。并就此援引总统泽连斯基的话说，复活节，“[我以此庆祝基督的复活。“但我们正在为这个好消息而战，因为光明而真理的一面、人、主（基督）和神圣的真光都在站在我们这一边。](https://thehill.com/policy/international/3461785-zelensky-meets-with-blinken-austin-in-kyiv-reports/)”
-
-## **泽连斯基复活节演讲强调基督复活得胜** 
-
-泽连斯基复活节讲话是在战火中神迹般幸存下来的大圣索菲亚大教堂中，其中，他意味深长地说，“[因为瘟疫叫战争。去年的威胁和当前的威胁都因一件事而联合起来——没有什么能战胜乌克兰](https://www.mil.gov.ua/news/2022/04/24/privitannya-prezidenta-ukraini-volodimira-zelenskogo-z-velikodnem/)。”
-
-2022年4月25日
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220422114846.png)
-**阅读更多樱花团资讯**：
-
-- [台湾昨日中共病毒破四千例，中共讽刺台湾人“抢打疫苗”](https://gnews.org/zh-hans/2402123/)
-- [樱花时政-邪恶的中共政权才是万恶之源（十）](https://gnews.org/zh-hans/2409633/)
-
-
-- [樱花FM-没逻辑的上海确诊死亡数据 分析：不符合医学规律](https://gnews.org/zh-hans/2408895/)
-- [【视频】北京突起疫情，多个小区实施封控](https://gnews.org/zh-hans/2401980/)。
-- [新闻述评：习近平发布“台籍兵”当天华视传出开战假讯。](https://gnews.org/zh-hans/2384195/)
-- [【有声】俄军以“口炮”用来打击美军向乌克兰运送武器的飞机](https://gnews.org/zh-hans/2371728/)
-
-
-- [【视频】新闻述评：美国会跨党派议员访台谴责习近平支持了普京](https://gnews.org/zh-hans/2356260/)
-- [乌克兰国防部：载有核弹头的俄黑海舰队的旗舰被击沉引发担忧](https://gnews.org/zh-hans/2351656/)
-- [突破：俄纳粹军重新集结在乌东地区,一场血战即将开始](https://gnews.org/zh-hans/2342994/)
-- [美国总统坚称普京犯下“大屠杀”行为 将由国际审判庭定罪](https://gnews.org/zh-hans/2338330/)
-- [美总统助理沙利文称将启动国际刑事法院追讨俄罗斯总统普京 “战争罪”。](https://gnews.org/zh-hans/2290690/)
-
-
-- [NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
-- [新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
-
-
+[![](https://express.adobe.com/page/f3zrMzUyN4dOb/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/f3zrMzUyN4dOb/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

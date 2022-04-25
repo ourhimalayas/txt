@@ -2,43 +2,26 @@
 ---
 
 
-## 有声|俄罗斯5个征兵处遭纵火
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2411819/)
+## 樱花时政┃澳防长批中共全球搞蓝金黄 “中所协议”也不例外
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2412030/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+撰稿：东京樱花团/上善若水
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃澳防长批中共全球搞蓝金黄-中所协议也不例外.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.guim.co.uk%2Fimg%2Fmedia%2F6681c1c044e6822fafd1d2e80f7ec161b28911a2%2F0_148_4951_2971%2Fmaster%2F4951.jpg%3Fwidth%3D465%26quality%3D45%26auto%3Dformat%26fit%3Dmax%26dpr%3D2%26s%3Dcff661f596720fd58f71d)
 
-据外媒4月22日报道，自从俄罗斯入侵乌克兰以来，已有多达5个征兵办公室遭到纵火。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388621.jpg)
-据报道，本月18日在俄罗斯莫尔多维亚偏远的地区发生了一起最新纵火案。纵火者投掷汽油弹摧毁多台电脑，以及祖博瓦波利亚纳区的征兵资料库，当地征兵活动被迫暂停。
+澳洲国防部长达顿周日（4月24日）在澳大利亚天空新闻上说，”中共不按我们的规则行事”。“如果你看看在非洲发生的事情，就会发现有行贿腐败支付”。他继续说，“我们永远无法与这种做法竞争。我们有价值观，我们有法制，我们尊重它们。”
 
-另外，在今年3月，有三个征兵办公室遭当地居民投掷汽油弹攻击。被逮捕年轻人表示，他们纵火破坏征兵旨在抗议俄入侵乌克兰。2月，在俄军入侵乌克兰4天后，一名21岁年轻人就在莫斯科州城一处征兵办公室纵火，想藉由破坏档案来阻止征兵。报道称，被捕者面临多项刑事指控。
+达顿继续说，”中共干涉外国的行为令人难以置信地咄咄逼人，它为了签署协议，愿意支付贿赂来击败其他国家，这就是现代中共国的现实”。
 
-据悉，俄罗斯每年春、夏各征兵一次，对象为18至27岁男性。本月展开的春季征兵，目标是在7月15日前征召13万4500名新兵。
+所罗门群岛在上周宣布与北京签订了一项安全协议。达顿认为贿赂是中共和所罗门群岛最近签署的有争议的安全协议中起到了关键作用。这项轮廓模糊不清的安全协议重新引起所罗门群岛的邻国和盟友澳大利亚的不安，也令美国担忧。
 
+信息来源：
+[澳大利亚指责中国通过行贿获得国际协议](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220424-%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E6%8C%87%E8%B4%A3%E4%B8%AD%E5%9B%BD%E9%80%9A%E8%BF%87%E8%A1%8C%E8%B4%BF%E8%8E%B7%E5%BE%97%E5%9B%BD%E9%99%85%E5%8D%8F%E8%AE%AE)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 
-
-
-文字版原文：[俄罗斯5个征兵处遭纵火](https://gnews.org/zh-hans/2404617/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/二维码.jpg)
 
  
 

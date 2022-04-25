@@ -2,37 +2,48 @@
 ---
 
 
-## 台湾大学江晃荣博士站出来公开反对毒疫苗（二）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2411827/)
+## 担心所中安全协议影响地区安全 日本副外相前往所罗门群岛
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2412050/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-155.png)
-近日，台湾大学江晃荣博士站出来公开反对中共病毒疫苗的三段视频在网络热传。江博士表示，反疫苗是有理论根据有学术报告的。政府当局要抓我，就放马过来。这是三段视频中的第二段，covid-19是RNA病毒突变速度很快，疫苗研究跟不上病毒突变的快，并且
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-covid-19 是有治疗药物的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-以下文字根据江博士视频整理：
+中共国和所罗门群岛上周确认的所中安全协议，让包括美国、澳大利亚、新西兰、日本在内等的西方盟国感到震惊，他们担心该地区的军事集结。日本副外相上杉健太郎今天前往所罗门群岛进行为期三天的访问。预计上杉健太郎将向索加瓦雷政府转达日本对所中安全条约的关切，并讨论双边和地区问题。
 
-那今天covid-19，他不是dna病毒，他是RNA病毒。那有啥不一样？RNA病毒，会一直突变一直突变一直突变，速度很快。艾滋病a i d s的病毒是rna病毒，它不断的突变，你根本没有办法制造病毒（疫苗）。我们今天打的疫苗是新冠肺炎病毒及副作用疫苗。
+4月20日，所罗门群岛总理马纳西·索加瓦雷在议会宣布，它的政府已与中共国签署了一项新的安全协定。据报导，所中安全协议允许中共国向所罗门群岛派遣警察和军事人员“协助维持社会秩序”，同时中共国军舰可以在该国港口停靠“后勤补给”，引发了中共可能在澳大利亚和新西兰门口建立海军基地的担忧。
 
-病毒一直突变，你第一代所制造的疫苗产生的抗体怎么可能会有效。前美国总统川普选举的时候曾经感染covid-19，当时三天就好了，大家都觉得很奇怪。他的医生最近接受访问，讲川普不是打疫苗好的。他有两种药物，一种是叫做伊维菌素，一种是喹啉。伊维菌素是专门治疗人跟动物蛔虫，就是肠道的寄生虫的药物。
+澳大利亚曾敦促所罗门群岛不要签署该协议，并派出国际发展和太平洋部长塞德·塞塞利亚与索加瓦雷进行会谈。在中共国宣布签署协议后，塞塞利杰和澳大利亚外交部长玛丽斯﹒佩恩在一份联合声明中表示，他们“深感失望”，担心该协议的制定缺乏透明度，并指出它有可能破坏我们地区的稳定。
 
-那么最近发现伊维菌素对于covid-19是有非常好的效果。一颗新台币两块钱，你赚不了钱，那疫苗能够赚大钱。叫你打疫苗一剂、两剂、三剂、四剂。当打的疫苗没有干染，政府告诉你我的疫苗有效。当打了疫苗感染，他告诉你，这是突破性干染。
+所罗门群岛的主要反对党、密克罗尼西亚和其他太平洋岛国也对该协议表示担忧。
 
-什么叫突破性干染？没有功效就是突破性干染。结果你打的疫苗不幸死亡，他会跟媒体讲，这个人本来就有一些疾病，有高血压、有糖尿病。请问我有糖尿病，我可能可以多活二十年，我打了你的疫苗，明天就过世。难道疫苗是个催化剂吗？
+美国国务院发言人内德·普莱斯表示，所中安全协议的广泛性质为中共国军队部署到所罗门群岛敞开了大门。4月22日，由美国国家安全委员会印太事务协调员库尔特·坎贝尔、负责东亚和太平洋事务的助理国务卿丹尼尔·克里滕布尔克率领的高级代表团与索加瓦雷以及他的两打内阁成员和高级职员，以及岛上著名的宗教领袖和政治反对派主要成员会面了90分钟，警告索加瓦雷，如果最近与中共国达成的安全合作协议对美国或盟国的利益构成威胁，美国将对这个南太平洋国家采取未指明的行动。美国还计划重新开放自1993年以来一直关闭的所罗门群岛大使馆。
 
-我们看到太多太多的不幸的例子，打的疫苗过世的人，比确诊过世的人还要多。亲爱的观众，听众朋友，请问，这种情况你还需要打疫苗啊?
+近年来，日本显著加强了与西方国家的安全合作，并扩大了与美国、澳大利亚、印度、法国、英国和德国等其他西方伙伴的联合演习，这些伙伴都对中共国日益增长的影响力感到担忧。特别是中共国在日本控制的尖阁诸岛（钓鱼岛）附近东海的军事和海岸警卫队活动，日本将中共国在东海和南海日益强硬的军事活动视为对世界上一些最繁忙的海上航道的威胁。
 
-视频链接：[https://gettr.com/post/p16zc0ld741](https://gettr.com/post/p16zc0ld741)
+4月22日，日本外相林义政表示，“我们认为该协议可能会影响整个亚太地区的安全，我们正在关注事态发展”。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+最近中共官方宣传的《[战备16条，择机行动](https://www.dfjb.net/dongfang/54619.html)》称，“眼下，欧洲战火纷飞，欧盟乱作一团，美帝对外要纵火，又要浇油，还要灭火，对内通货膨胀，疫情失控，民怨沸腾。因此，美帝顾此失彼，手忙脚乱，此谓天时！”。“在全球布局，加强与遭受美国霸凌国家的深度合作”。
+
+中共外交部发言人汪文斌在4月19日回答记者提问时称，太平洋岛国不是谁家的“后院”，更不是地缘对抗的“棋子”。
+
+中共认为，目前俄罗斯入侵乌克兰，欧洲国家忙于乌克兰战场，美国深受中共病毒及疫苗灾难祸害，正是加快全球布局，进入西方盟国“后院”的最好时机。
+
+参考数据：
+
+[Japan to send envoy to Solomons amid worry over China pact](https://apnews.com/article/china-japan-asia-tokyo-beijing-f1cbe09a7fea347c412dd18568241671)
+
+[两岸统一时间窗口已开，战备16条，择机行动](https://www.dfjb.net/dongfang/54619.html)
+
+[US Warns Solomon Islands of Action Over Pact With China](https://www.usnews.com/news/world/articles/2022-04-22/us-officials-land-in-solomons-to-discuss-china-pact-concerns)
+
+[SOLOMON ISLANDS-CHINA SECURITY COOPERATION SIGNED](https://solomons.gov.sb/solomon-islands-china-security-cooperation-signed/)
+
+[Solomon Islands leader defends new security pact with China](https://apnews.com/article/china-australia-united-states-solomon-islands-honiara-0fc2ce7a1cbbf784907c8f92312841c7)
+
+[2022年4月19日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202204/t20220419_10669711.shtml)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

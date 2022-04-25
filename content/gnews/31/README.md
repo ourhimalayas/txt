@@ -2,44 +2,30 @@
 ---
 
 
-## 有声|联合国：越来越多证据表明俄罗斯犯下战争罪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2411317/)
+## 中共打台湾的根本原因是控制芯片，打倒美帝
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2411447/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒4月22日报道，联合国人权办公室当天表示，有越来越多的证据表明俄罗斯在乌克兰犯下了战争罪。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S__8388618.jpg)
-联合国人权事务高级专员巴切莱特指出，俄罗斯武装部队不分青红皂白地炮击和轰炸人口稠密地区，杀害平民，破坏医院、学校和其他民用基础设施，这些行为都可能构成战争罪行。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/22222.jpg)
+4月24日大直播中，郭先生与战友分享中共打台湾的真实目的。
 
-根据联合国目前掌握的数据，从2月24日至4月20日，联合国特派团已记录并核实有2345名平民被杀，2919人受伤。
+习近平为首的共产党想统治世界的核心目标是击垮美元。只要击垮美元，习近平就想当然认为是干掉了美国，而打台湾是实现这个目标的最好方式。首先世界80%的芯片供应链出自台积电，中共认为打台湾将会影响全世界的芯片市场供应，其次中共常年在台积电实施蓝金黄，企图将台积电的先进技术和人才据为己有。中共的幻想是，当世界经济衰落，而自己手中又牢牢控制台积电，美元自然而然会被击垮，美国将不复存在，这种一举几得的事情是中共的一贯做法，当然在这个条件下，习近平一统全球的目标就会实现。
 
-巴切莱特表示，在俄罗斯军队以前占领的地区，不断发现的对平民的处决规模还扩大，而随着在马里乌波尔等激烈战斗地区发生的恐怖事件的曝光，实际数字还会高得多。
+暂且不说中共企图只利用一件事就能达到无数个目标的愚蠢思维，就仅仅是单纯去做一件事比如拿下台积电，都很难。而从美国方面来看，国家的每一分钱都是Nancy Pelosi批准，她是实际上权力超过总统的人，在经历了一次对中共的妥协之后，也或者说是政治周旋。4月26日她要访问台湾，毫无疑问这是代表美国最高权力和实力的到访。况且此次访问台湾对Nancy Pelosi本人的政治生涯来说也是一次完美升华，无论中期选举输赢与否，访台都将会是最荣耀的一笔。
 
-巴切莱特还谈及了以平民屠杀事件而被世界关注的布查镇的情况。她说，联合国人权工作人员4月9日在布查镇进行调查期间，取得了包括法外处决在内的50名平民被处死的证据。
+撰稿、发布：骄子
 
+* * *
 
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-
-文字版原文：[联合国：越来越多证据表明俄罗斯犯下战争罪](https://gnews.org/zh-hans/2404691/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

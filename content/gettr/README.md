@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 3:10 PM (UTC)`
+
+The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
+![img](https://media.gettr.com/group19/origin/2022/04/25/15/0c7a9d64-6153-b6fd-2242-4fa12ee23cbc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 2:24 PM (UTC)`
 
 4/24/2022 Miles Guo: On the one hand, "Xi the Sun" wants to take over TSMC's technologies for the benefit of the CCP, and on the other hand, he wants to take out the chip supply chain to put the world economy in trouble for the sake of destroying the US dollar. I think this is just a fool's daydream, and the CCP can't achieve either of these two goals.<br/><br/>4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到！<br/>
@@ -149,13 +156,6 @@
 
 4/24/2022 Miles Guo: Since the beginning of our Whistleblowers’ Movement, we have witnessed astonishing coincidences between the Movement and many other events that seem to be irrelevant to the Movement. As a matter of fact, these seemly coincidences actually prove the accuracy of the intelligence information the Movement has obtained, and further show the world that the Movement is blessed<br/><br/>4/24/2022  文贵直播： 从爆料革命开始到现在，爆料革命和无数看似无关的各种事件存在神奇惊人的巧合，而这些看似巧合的背后实际证明了爆料革命情报的准确性，向世人展示了爆料革命得天佑的事实<br/>
 ![img](https://media.gettr.com/group27/getter/2022/04/25/01/b539a20d-6285-c374-318a-2e2dab45529f/out.jpg)
-
----
-
-`@miles 4/25/2022 12:59 AM (UTC)`
-
-2022.04.24 晚  新中国联邦 | 新闻访谈  中共管制社交媒体，禁言删帖，给老百姓洗脑，对各国政府挑拨离间，虚假宣传
-![img](https://media.gettr.com/group38/origin/2022/04/25/00/00d291aa-edd1-7afb-b042-0dd35aa117e2/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
