@@ -15,121 +15,121 @@
 
 ---
 
-### [4/24/2022 文贵直播：蔡英文既不敢强烈反共，又不敢亲共，更不敢跟美国人对着干，而中共却控制了蔡英文身边的绝大多数人，这就是台湾的悲哀以及中共对台湾如此嚣张的原因](/content/gnews/1/README.md)
+### [4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [上海居民抗议封锁居民楼](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大直播后记：政客都是贪婪且利益熏心，阿扁远胜于蔡英文](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [一家三代在俄罗斯导弹袭击中丧生](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [解决经济基础是我现在最重要的帮助大家](/content/gnews/5/README.md)
+### [突然间变成天才歌唱家](/content/gnews/2/README.md)
  ` 加拿大温哥华英里农场`
 
-### [这个事情大家不必惊慌](/content/gnews/6/README.md)
+### [音乐的力量太大了](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [高人的境界](/content/gnews/7/README.md)
+### [现在唱的歌一定会火](/content/gnews/4/README.md)
  ` 加拿大温哥华英里农场`
 
-### [打榜两首歌是奇迹](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
+### [4/24/2022 文贵直播：蔡英文既不敢强烈反共，又不敢亲共，更不敢跟美国人对着干，而中共却控制了蔡英文身边的绝大多数人，这就是台湾的悲哀以及中共对台湾如此嚣张的原因](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
-### [一名上海的外国人表示她对上海很失望](/content/gnews/9/README.md)
+### [北京将被封城 压力测试席卷全国](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [上海居民抗议封锁居民楼](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【乌克兰救援】来自美国加州的志愿者看到我们的灭共马甲无比钦佩](/content/gnews/10/README.md)
+### [一家三代在俄罗斯导弹袭击中丧生](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国称俄罗斯军队在过去 24 小时内没有取得重大进展](/content/gnews/11/README.md)
+### [这个事情大家不必惊慌](/content/gnews/9/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [高人的境界](/content/gnews/10/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [打榜两首歌是奇迹](/content/gnews/11/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [它一定会成为中国有史以来最为流行的歌](/content/gnews/12/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [一名上海的外国人表示她对上海很失望](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【乌克兰救援】来自美国加州的志愿者看到我们的灭共马甲无比钦佩](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [英国称俄罗斯军队在过去 24 小时内没有取得重大进展](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [中国共产党用500元奖励诱骗老人接种疫苗](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [爆料革命——历史的今天2月9日](/content/gnews/13/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松](/content/gnews/14/README.md)
+### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松](/content/gnews/16/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记](/content/gnews/15/README.md)
+### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推特将接受马斯克最初的430亿美元报价](/content/gnews/16/README.md)
+### [推特将接受马斯克最初的430亿美元报价](/content/gnews/18/README.md)
  ` 波士顿五月花农场金融部`
 
-### [习干的几个事](/content/gnews/17/README.md)
- ` 加拿大温哥华英里农场`
-
-### [【修罗短评】学者无风骨，育人毁天下](/content/gnews/18/README.md)
+### [【修罗短评】学者无风骨，育人毁天下](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线 : 马斯克即将点燃Twitter 的火箭](/content/gnews/19/README.md)
+### [秘翻在线 : 马斯克即将点燃Twitter 的火箭](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的](/content/gnews/20/README.md)
+### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的](/content/gnews/21/README.md)
  ` 经济小组`
 
-### [封校日志](/content/gnews/21/README.md)
+### [封校日志](/content/gnews/22/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [台湾大学江晃荣博士站出来公开反对毒疫苗（三）](/content/gnews/22/README.md)
+### [台湾大学江晃荣博士站出来公开反对毒疫苗（三）](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾大学江晃荣博士站出来公开反对毒疫苗（二）](/content/gnews/23/README.md)
+### [台湾大学江晃荣博士站出来公开反对毒疫苗（二）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [无苗灭共者必要之德性](/content/gnews/24/README.md)
+### [无苗灭共者必要之德性](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧](/content/gnews/25/README.md)
+### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾大学江晃荣博士站出来公开反对毒疫苗（一）](/content/gnews/26/README.md)
+### [台湾大学江晃荣博士站出来公开反对毒疫苗（一）](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [崇祯自缢看中共下场](/content/gnews/27/README.md)
+### [崇祯自缢看中共下场](/content/gnews/28/README.md)
  ` 波士顿五月花农场`
 
-### [新视频出现后，普京的健康猜测加剧](/content/gnews/28/README.md)
+### [新视频出现后，普京的健康猜测加剧](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [7.24系列——揭下《琼斯母亲》进步杂志的面纱](/content/gnews/29/README.md)
+### [7.24系列——揭下《琼斯母亲》进步杂志的面纱](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共6万武警进驻北京，为实施军管做准备](/content/gnews/30/README.md)
+### [中共6万武警进驻北京，为实施军管做准备](/content/gnews/31/README.md)
  ` 波士顿五月花农场`
 
-### [泽连斯基复活节讲话强调基督复活的荣光战胜黑暗](/content/gnews/31/README.md)
+### [泽连斯基复活节讲话强调基督复活的荣光战胜黑暗](/content/gnews/32/README.md)
  ` 战云长天时评`
 
-### [中共打台湾的根本原因是控制芯片，打倒美帝](/content/gnews/32/README.md)
+### [中共打台湾的根本原因是控制芯片，打倒美帝](/content/gnews/33/README.md)
  ` 银河歌舞厅`
 
-### [北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测](/content/gnews/33/README.md)
+### [北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [尽管普京嘴硬，制裁已严重打击俄罗斯经济](/content/gnews/34/README.md)
+### [尽管普京嘴硬，制裁已严重打击俄罗斯经济](/content/gnews/35/README.md)
  ` 澳喜特战旅Gnews`
 
-### [「股灾吉祥物」翻车鱼入市区河道畅游 港股危矣](/content/gnews/35/README.md)
+### [「股灾吉祥物」翻车鱼入市区河道畅游 港股危矣](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳洲新南威尔士开始使用新的疫情报告系统及规则](/content/gnews/36/README.md)
+### [澳洲新南威尔士开始使用新的疫情报告系统及规则](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [德国总理舒尔茨回避澄清问题](/content/gnews/37/README.md)
+### [德国总理舒尔茨回避澄清问题](/content/gnews/38/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：乌克兰向俄罗斯提议在马里乌波尔防御据点举行会谈](/content/gnews/39/README.md)
+### [秘翻在线：独自佩戴口罩是否也有预防新冠病毒（中共病毒）的效果？](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [生物技术的战场，如何与中国的风险研发相抗衡（二）](/content/gnews/40/README.md)

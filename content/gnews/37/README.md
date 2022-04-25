@@ -2,24 +2,43 @@
 ---
 
 
-## 德国总理舒尔茨回避澄清问题
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2411326/)
+## 澳洲新南威尔士开始使用新的疫情报告系统及规则
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2411345/)
 
-[MONA JAEGER](https://www.faz.net/redaktion/mona-jaeger-14222921.html)的评论，更新于2022年4月22日21:37(CET)
-翻译：蔚蓝的天/校对:   trustguo
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-30-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image1-3-1.jpg)图片：不再亲密：2022年2月15 舒尔茨访问普京。/ EPA
-德国联邦总统弗兰克·瓦尔特·施泰因迈尔谈到了德国对俄罗斯政策中的错误，也谈到了他本人对普京的看法是错误的。他这样做，不仅为过去20年中所有承担责任的政治家打开了一扇门，而且也为施泰因迈尔所属的社民党（[SPD](https://www.faz.net/aktuell/politik/thema/spd)）打开了一扇门，但舒尔茨总理拒绝开启这扇门。即使在战争结束后，他也不想让其政党的部分错误政策被重新评估。相反，他认为社会民主主义是受害者的角色，其党员总是被描绘成不可信任的人，并且在历史上的作用也被歪曲了。
+撰稿：Gradient Boost
 
-舒尔茨（[Scholz](https://www.faz.net/aktuell/politik/thema/olaf-scholz)）不愿回顾过去是可以被理解的。因为如果他和其他人这样做，社民党将会被卷入最猛烈的风暴中。对与俄罗斯良好的和平共处的错误和危险的理解在社民党中已经渗透得太深，这也可以从知名的社会民主党人士最近的言论中看出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1.jpg-5.png)
+网络图片
 
-**这段历史不易回避**
-同样令人愤慨的是，[Manuela Schwesig](https://www.faz.net/aktuell/politik/thema/manuela-schwesig)无意对梅克伦堡-西波美拉尼亚的北溪二号项目中的掩盖策略做一澄清。 五十年前，和平偶像维利·勃兰特已经比今天的许多社会民主党人走得更远，正是他的角色最近被许多党内人士歪曲了。
+在过去的 24 小时内，悉尼所在的新南威尔士州又有 4 人不幸死于CCP病毒——该州报告了 7985 例新增感染病例，使得总活跃病例人数达到170,733 人。
 
-现在人们喜欢声称，而不仅仅是社民党的政治家，他们对普京的看法是错误的。事实是：普京从格罗兹尼到格鲁吉亚再到叙利亚的暴行，并没有引起社会民主党领导层的太多关注。同样他们对普京谋杀和剥夺其政治对手的权力的态度也是如此。这段历史是无法回避的。德国与俄罗斯关系的重新调整才刚刚开始，另外社民党现在是德国的执政党。但是，舒尔茨打算如何拯救与普京有联系的原社民党，同时又成为北约东翼国家的可靠伙伴呢？
+从周一开始，新南威尔士州卫生局对CCP病毒疫情报告方式进行了精剪，该举动进一步表明官方准备逐步回归正常。
 
-原文链接：[https://www.faz.net/aktuell/politik/russland-politik-der-spd-olaf-scholz-scheut-die-aufklaerung-17976179.html](https://www.faz.net/aktuell/politik/russland-politik-der-spd-olaf-scholz-scheut-die-aufklaerung-17976179.html)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+新南威尔士州卫生局过去常常提供详细的每日病例信息，但该报告现在将每周发布一次。每日的CCP病毒疫情媒体发布将会取消，不过详细信息仍然可以在新南威尔士卫生部的官方网站以及社交媒体账号上查看。
+
+对于卫生部门的举措，部分网友表示认可，因为减少报告频率可以适当降低政府支出。也有网友希望当局能够进一步放宽更多措施。另一些网友则表示不理解。总体来说褒贬不一。
+
+与此同时，墨尔本所在的维多利亚州今天同样记录了4例死亡以及 7643 例新增CCP病毒感染病例。该州目前仍有 52,806 例活跃病例，其中 31 名患者处于重症监护状态。目前维多利亚地区累计因CCP病毒感染而死亡的人数已经达到2904 人。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/national/nsw-victoria-daily-covid-19-cases-updates-and-hospitalisations-april-25/96fae1fe-1165-4532-912d-c2f5dbf0b637)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+
+
+
+**更多信息，更多关注**
+
+[**乌克兰救援** **UkraineRescue** **官方** **Gettr**](https://gettr.com/user/ukrainerescue)[**郭文贵先生** **Gettr**](https://gettr.com/user/miles)[**全球喜马拉雅农场联盟委员会** **Gettr**](https://gettr.com/user/GlobalAlliance)[**喜马拉雅联盟大使馆全球客服中心** **Discord**](https://discord.gg/zv8j42srdN)
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
