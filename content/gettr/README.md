@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@sakuravideo 4/24/2022 3:17 PM (UTC)`
+
+樱花【时事要闻】<br/>#老外 送 #隔离 #方仓  #直播了<br/>
+![img](https://media.gettr.com/group46/getter/2022/04/24/15/3c850d62-714a-bea0-73b1-57b4d0a346bf/out.jpg)
+
+---
+
+`@miles 4/24/2022 11:26 PM (UTC)`
+
+4/24/2022 Miles Guo: The cursing and assault happened to our fellow fighters at the Medyka rescue camp is absolutely racial discrimination. We will definitely take the offenders to court!<br/><br/>4/24/2022 文贵直播：发生在梅迪卡救援前线对我们战友的辱骂攻击事件是绝对的种族歧视，我们一定要把当事人告上法庭！<br/><br/>
+![img](https://media.gettr.com/group18/getter/2022/04/24/23/a108a595-be6b-636f-bfc9-d8d3438ea190/out.jpg)
+
+---
+
 `@miles 4/24/2022 11:21 PM (UTC)`
 
 4/24/2022 Miles Guo: Yesterday's crash of the CCP military aircraft was of great significance. It not only shocked the Western military establishment, proving to the West the capabilities of the Whistleblowers’ Movement to collect intelligence, but it is also a slap in the face of the CCP's claim regarding its independent military development. Many in the CCP are convinced that God is helping the Whistleblowers’ Movement. The Russian pilot instructors paid by the CCP are enjoying themselves in Communist China and unwilling to go back to Russia, and they are thinking of selling out Russia every day.<br/><br/>4/24/2022 文贵直播：昨天的中共坠机事件意义重大，它不仅震惊了西方军事机构，向西方证明了爆料革命的情报力量，而且打脸中共所宣称的独立军事发展，并让党内很多人相信爆料革命得天助；被中共收买的俄罗斯飞行员教练在中共国乐不思蜀，天天想着出卖俄罗斯<br/>
@@ -139,20 +155,6 @@
 
 【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案。
 ![img](https://media.gettr.com/group36/getter/2022/04/24/09/b876c7cd-7b56-d57e-3c57-2f025d1532e2/out.jpg)
-
----
-
-`@miles 4/24/2022 7:10 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group8/origin/2022/04/24/07/ea04df94-d453-dd6a-5658-b74cf9113a15/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/24/2022 4:58 AM (UTC)`
-
-04.24.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group42/origin/2022/04/24/04/349412a6-fd10-da3e-c4cd-2c561247e4ad/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -15,91 +15,91 @@
 
 ---
 
-### [节目在国内引起了很大的反响](/content/gnews/1/README.md)
- ` 加拿大温哥华英里农场`
+### [灭共者之郭氏情报站（54）2022/04/24 文贵大直播摘要](/content/gnews/1/README.md)
+ ` MOS Designer香草山设计部`
 
-### [20220424郭文贵大直播 ：世界经济一定崩塌，我们新中国联邦人是诺亚方舟都无法比拟最幸福的一群人！](/content/gnews/2/README.md)
+### [20220424郭文贵大直播 ：不杀存在杀敌一千自伤八百 受伤的都是老百姓 共产党自会更好](/content/gnews/2/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|俄罗斯恶意网络行动的威胁](/content/gnews/3/README.md)
+### [【全文字幕】2022年4月21日七哥乱聊直播](/content/gnews/3/README.md)
+ ` 文贵视频字幕全集`
+
+### [救援没有农场之分](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [节目在国内引起了很大的反响](/content/gnews/5/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [20220424郭文贵大直播 ：世界经济一定崩塌，我们新中国联邦人是诺亚方舟都无法比拟最幸福的一群人！](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国高官访问基辅 乌克兰提出更多武器援助的要求](/content/gnews/7/README.md)
+ ` 蓝莲花农场`
+
+### [有声|俄罗斯恶意网络行动的威胁](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|美国又将17家中概股公司列入“预摘牌”名单](/content/gnews/4/README.md)
+### [有声|美国又将17家中概股公司列入“预摘牌”名单](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [2022年4月24日文贵大直播摘要及音频—银河系农场](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|灭共即为消灭中共体制](/content/gnews/6/README.md)
+### [有声|灭共即为消灭中共体制](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|中共体制决定了大多数民众利益的牺牲](/content/gnews/7/README.md)
+### [有声|中共体制决定了大多数民众利益的牺牲](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [一个孩子眼中的中共国军警（上）——讲述渗透在学校里的中共国军事化的洗脑教育](/content/gnews/8/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [4月24日文贵大直播要点（图片1-14）](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [有声|美国应该立法停止再向中共国注入投资](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [全球增长的引擎正在熄火](/content/gnews/11/README.md)
+### [全球增长的引擎正在熄火](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共战机坠毁再次印证文贵先生情报准确性](/content/gnews/12/README.md)
+### [中共战机坠毁再次印证文贵先生情报准确性](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重](/content/gnews/13/README.md)
+### [西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重](/content/gnews/14/README.md)
  ` xiaobaige`
 
-### [打过疫苗的飞行员在驾驶舱内心脏骤停, Freedom Flyers 组织揭露大量航空公司的掩盖行为 (第一部分)](/content/gnews/14/README.md)
+### [打过疫苗的飞行员在驾驶舱内心脏骤停, Freedom Flyers 组织揭露大量航空公司的掩盖行为 (第一部分)](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [研究表明只29%的染疫住院患者在一年内完全康复](/content/gnews/15/README.md)
+### [研究表明只29%的染疫住院患者在一年内完全康复](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [截至4.24 俄乌战事汇总](/content/gnews/16/README.md)
+### [截至4.24 俄乌战事汇总](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京一副病体，无法硬撑](/content/gnews/17/README.md)
+### [普京一副病体，无法硬撑](/content/gnews/18/README.md)
  ` 银河歌舞厅`
 
-### [华尔街的贪婪决定了中共的存活](/content/gnews/18/README.md)
+### [华尔街的贪婪决定了中共的存活](/content/gnews/19/README.md)
  ` 银河歌舞厅`
 
-### [2022/04/24 英喜时事速递](/content/gnews/19/README.md)
+### [2022/04/24 英喜时事速递](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教练版军机坠毁显示中共军事不堪一击](/content/gnews/20/README.md)
+### [教练版军机坠毁显示中共军事不堪一击](/content/gnews/21/README.md)
  ` 银河歌舞厅`
 
-### [奥地利宣布反对乌克兰加入欧盟](/content/gnews/21/README.md)
+### [奥地利宣布反对乌克兰加入欧盟](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯人和中共国人的不同命运](/content/gnews/22/README.md)
+### [俄罗斯人和中共国人的不同命运](/content/gnews/23/README.md)
  ` 银河歌舞厅`
 
-### [喜联储开启人类金融多样化的未来](/content/gnews/23/README.md)
+### [喜联储开启人类金融多样化的未来](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [北京的灾难可能比上海惨烈](/content/gnews/24/README.md)
+### [北京的灾难可能比上海惨烈](/content/gnews/25/README.md)
  ` 银河歌舞厅`
 
-### [中共对待孔子的态度都是为其统治服务](/content/gnews/25/README.md)
+### [中共对待孔子的态度都是为其统治服务](/content/gnews/26/README.md)
  ` 经济小组`
 
-### [北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/26/README.md)
+### [北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月24日早](/content/gnews/27/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月24日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [中共对上海大隔离期间网路言论进行清算](/content/gnews/28/README.md)
- ` NFSC News`
-
-### [灭共是拯救香港的唯一办法](/content/gnews/29/README.md)
+### [中共对上海大隔离期间网路言论进行清算](/content/gnews/29/README.md)
  ` NFSC News`
 
 ### [中共企图在美国中期选举之时称霸世界](/content/gnews/30/README.md)
@@ -159,16 +159,16 @@
 ### [美欧日经济周报（4月18日～4月22日）](/content/gnews/48/README.md)
  ` 经济小组`
 
-### [文编|共产党的秘密你都可以卖，新中国联邦是你最好的桥梁](/content/gnews/49/README.md)
+### [文编|七哥呼吁战友们不但要有勇气反抗，还要有智慧](/content/gnews/49/README.md)
  ` KarmaLabs`
 
-### [文编|七哥回忆与BBC采访被王岐山叫停 当时和其他媒体的合作](/content/gnews/50/README.md)
+### [文编|回顾VOA断播的这5周年对我们的意义太大了！](/content/gnews/50/README.md)
  ` KarmaLabs`
 
-### [文编|长春的战友这次表现得比上海战友棒！](/content/gnews/51/README.md)
+### [文编|共产党的秘密你都可以卖，新中国联邦是你最好的桥梁](/content/gnews/51/README.md)
  ` KarmaLabs`
 
-### [文编|七哥深度解读VOA的前世今生](/content/gnews/52/README.md)
+### [文编|七哥回忆与BBC采访被王岐山叫停 当时和其他媒体的合作](/content/gnews/52/README.md)
  ` KarmaLabs`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)

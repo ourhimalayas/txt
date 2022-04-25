@@ -2,8 +2,8 @@
 ---
 
 
-## 20220424郭文贵大直播 ：世界经济一定崩塌，我们新中国联邦人是诺亚方舟都无法比拟最幸福的一群人！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407317/)
+## 20220424郭文贵大直播 ：不杀存在杀敌一千自伤八百 受伤的都是老百姓 共产党自会更好
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407333/)
 
 作者：东京樱花团小视频组
 
