@@ -2,22 +2,21 @@
 ---
 
 
-## 中共文革式防疫&#8211;上海
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2408319/)
+## 秘翻在线：赵立坚就上海封城发帖引大量愤怒评论
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2408426/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-**[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/玫瑰看新闻尾巴-1.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-2.png](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-2.png)
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/画像3.png)（图片源自本文链接）
+4月25日读卖新闻上海消息：就中共国上海因中共病毒(新冠病毒)的传播而被封锁一事，中共国外交部副新闻秘书赵立坚在一个社交网站上批评说：与美国相比，上海的感染情况微不足道。
+
+20日这个帖子发出后，社交网络上出现了大量愤怒的评论：如 “难道你不知道很多居民们牺牲了生命吗？封锁是一场人为的灾难!”等等。赵立坚的帖子以及更多评论内容已经被删除，无法再看到。
+
+严厉的封锁并没能阻止上海的疫情蔓延，22日起，对外出的限制变得更加严厉。由于人们看不到解封的希望，居民的愤怒越来越强，有人22日在社交网站上发布了一段控诉封城的6分钟的视频。制作者不详，但看上去应该是上海市民。
+
+这段名为 “四月之声 “的视频显示，居民们哀叹食物短缺，以及医院因实施感染控制措施而拒绝治疗，市政府直到封锁前都骗市民说不会进行封锁。这些视频被相继删除，但诸如”难道居民都没有发言权吗？ 倾听上海的声音”等帖子仍在继续。
+
+信息源：[上海ロックダウン巡り、中国外務省・副報道局長のＳＮＳ投稿に怒りのコメント相次ぐ（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/626bdb99a00b34059b93535c3952cf9f5879a9b8)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

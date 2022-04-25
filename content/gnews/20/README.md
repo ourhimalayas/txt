@@ -2,33 +2,63 @@
 ---
 
 
-## 加拿大国际毕业生逗留时间将被延长
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2408324/)
+## 佛州州长签法案禁止学校等场所的批判种族理论——民主党提起诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2408427/)
 
-##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3126.png)圖片來源：ctvnews.ca
+翻译: 里奇
 
-据【CTV新闻】4月23日报道，在加拿大完成中学后教育的国际学生将被允许在该国逗留更长时间。同时，联邦政府还制定计划来帮助他们获得永久居留权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
-移民部长日前表示，那些工作许可在 2022 年到期的毕业生将有资格获得最长18个月的延期。此外，政府还将面向计划成为永久居民的留学生重新启动快速入境抽签政策。
 
-据悉，为解决移民申请个案的长期积压，加拿大政府在疫情期间暂停了工作经验类、联邦技术工人及技术贸易类项目的移民申请工作。移民部对此表示：目前，绝大多数以上类别的新申请将尽可能在六个月内处理完毕。
 
-新闻来源： [https://www.ctvnews.ca/politics/federal-government-will-let-international-graduates-stay-in-canada-another-18-months-1.5872325](https://www.ctvnews.ca/politics/federal-government-will-let-international-graduates-stay-in-canada-another-18-months-1.5872325)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-538.jpg)
 
-上传/发稿 – 青青
-撰稿/翻译/听写 – 晨熹 素材/采编 – 青青 校对/审核 – 硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五签署了一项法案，规定学校和企业不得“有意或无意地”教授“与生俱来的种族主义、性别歧视者或压迫者”。
+
+
+```
+周五，德桑蒂斯州长在海厄利亚花园(Hialeah Gardens) 的 Mater Academy Charter特许中学初中/高中举行的新闻发布会上，
+签署了众议院第 7 号法案或“个人自由”成为法律。
+```
+
+新法律将结束佛罗里达州的企业和教育灌输，并将于 2022 年 7 月 1 日生效。
+
+佛罗里达州州长罗恩·德桑蒂斯周五签署了一项有争议的法案，批评人士称该法案将大大限制学校的种族教育。
+
+HB 7，正式名称为“个人自由”议案，禁止教育工作者教授与种族相关的某些主题，部分目的是防止教师因历史事件而让学生对他们的种族感到内疚或羞耻。
+
+“我们相信教育，而不是灌输” 德桑蒂斯在新闻发布会上说。“我们认为，在佛罗里达州自由的一个重要组成部分是在未经您同意的情况下免受压迫性意识形态反对您的自由。”
+
+该法案于3月由佛罗里达州立法机构通过，禁止教育工作者教授学生批判性种族理论，即“一个种族、肤色、国籍或性别在道德上优于另一种族、肤色、国籍的成员，或性别”，并且“一个人，由于他或她的种族、肤色、国籍或性别，无论是有意还是无意，是与生俱来的种族主义者、性别歧视者或压迫者。”
+
+德桑蒂斯说：“我们不会用你的税款来教我们的孩子憎恨这个国家或憎恨彼此。”
+
+该法案签署成为法律几分钟后，民主党人提起诉讼，质疑新法律，声称它违反了第一和第十四修正案的权利。
+
+塔拉哈西民主党人报道：
+
+来自佛罗里达州各地的一群原告对州长罗恩·德桑蒂斯、司法部长阿什利·穆迪和其他质疑 HB7 合宪性的人提起了联邦诉讼。
+
+原告包括一名来自塔拉哈西的教育工作者、一名来自海牛县的高中教师、一名中央佛罗里达大学的教授和一名秋季入学幼儿园的年轻女孩。
+
+他们对周五签署的众议院第 7 号法案提出指控，称该法案禁止 K-12 学校的批判性种族理论而违反了他们的第一和第十四修正案权利。他们周五在佛罗里达州北区的美国地方法院提起诉讼。
+
+新闻来源:[Governor Ron DeSantis Signs Bill Banning Critical Race Theory in Schools and Workplaces into Law — Democrats File Lawsuit](https://www.thegatewaypundit.com/2022/04/governor-ron-desantis-signs-bill-banning-critical-race-theory-schools-workplaces-law-democrats-files-lawsuit/)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

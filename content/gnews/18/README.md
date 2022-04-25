@@ -2,28 +2,53 @@
 ---
 
 
-## 樱花时政┃中共疫情封控政策导致外资芯片大厂撤离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2408417/)
+## 日本失踪船只十人确认遇难
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2408471/)
 
-撰稿：东京樱花团/法治小哥
+翻译：噜噜咪
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共疫情封控政策导致外资芯片大厂撤离.png)[图片来源](https://img.ltn.com.tw/Upload/business/page/800/2022/04/25/phpdLheN6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
 
-**全球芯片大厂安森美半导体公司（ON Semiconductor）日前宣布关闭位于上海的全球配送中心，并将相关业务迁往新加坡。**
 
-据新加坡媒体本周日报道，安森美发布的通知函中称，公司业务因上海进入封控状态而受到影响，位于当地的全球配送中心被迫关闭。
 
-报道引述该公司的发言人表示，公司在此之前已经尝试通过多种方式加快支付，但确实无法及时满足客户需求。为缓解防疫措施带来的影响，公司已经向其它地点转移业务，例如新加坡和马尼拉配送中心。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-539.jpg)2022年4月24日共同社拍摄的这张照片中，一艘渔船从宇多罗港出发，在日本北海道县沙里寻找失踪的观光船“Kazu 1”号。
 
-安森美是目前世界最大的模拟（analog）与逻辑（logic）芯片产品供应商，为全球汽车感知领域提供80%以上的电子元器件。
+日本海岸警卫队的直升机在日本沙里知床半岛对失踪观光船“Kazu 1”号上的失踪人员进行搜救行动。
 
-信息来源：
-[汽车芯片大厂不堪上海封城迁至新加坡](https://www.rfa.org/mandarin/Xinwen/9-04242022155437.html)
+东京，4月24日（路透社） – 海岸警卫队周日表示，目前为止，在该国北部海岸失踪的一艘日本观光船上发现的10人已被确认死亡。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
+这艘船于周六失踪，船上有26人在北海道主要岛屿附近巡航。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/二维码.jpg)
+海岸警卫队在一份公告中说，在这10人中，7人是男性，3人是女性。
+
+船上有24名乘客，包括2名儿童，以及2名船员。
+
+当地渔业合作社的一名官员说，该地区水域的流冰最晚持续到3月，现在的水温是2到3摄氏度（36-37华氏度）。
+
+他说：“在这样的水中仅仅几分钟，你的意识就会开始变得模糊。”
+
+在“Kazu 1”号在以野生动物和壮观的海岸线而闻名的知床半岛附近遇到麻烦之后，当局正在使用飞机和巡逻艇，包括海岸警卫队的七艘船、三架飞机和四架直升机，搜寻乘客和船员。
+
+海岸警卫队在星期六下午从船员那里听说，水正在淹没船只。据共同社报道，最后一次听到它的消息是在大约两小时后，它与游船运营公司联系，说它的龙骨正以30度的角度倾斜。
+
+海岸警卫队说，目前还不清楚这艘船发生了什么，该公司没有人可以发表评论。
+
+新闻来源：[Search continues as 10 people from missing Japanese boat confirmed dead](https://www.reuters.com/world/asia-pacific/four-people-found-missing-japan-ship-condition-unknown-nhk-2022-04-24/)
+
+* * *
+
+素材：peacelv
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
 
  
 

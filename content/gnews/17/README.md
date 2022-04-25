@@ -2,78 +2,32 @@
 ---
 
 
-## 普京未能在战场上实现他的巨大野心 &#8211; 拜登总统
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2408423/)
+## 上海当局搭建两米围栏封锁居民 引发市民不满
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2408486/)
 
-**美国国务院： **
-拜登总统@POTUS：我们在国内的团结，我们与盟友和伙伴的团结，以及我们与乌克兰人民的团结，正在向普京发出一个明确无误的信息：他永远不会成功地统治和占领整个乌克兰。 【图中文字：普京未能在战场上实现他的巨大野心 – 拜登总统】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-14.jpg)上海当局搭建两米围栏封锁居民 引发市民不满 网络图片
+据美国之音4月24日报道，中共当局自4月1日起对拥有2600万人口的上海采用全面封城的“清零”防疫政策，每天全民核酸检测，强制隔离所有阳性感染者。全市居民被强制关在方舱医院或者家里长达三个多星期依然没有解封，上海当局开始在许多居民楼外搭建约两米高的绿色围栏，引发市民对封城措施进一步的不满。
 
+上海的全面封城停止了整个城市的运转。网上传出的大量视频、图像和文字显示上海居民食品耗尽、缺医少药、家人被分离，以及隔离条件极其恶劣等问题。在过去一个星期里，当局还将一些小区整体外移清空。许多居民利用社媒表达不满和愤怒。法国作家雨果小说《悲惨世界》的同名改编音乐剧《悲惨世界》中的抗议歌曲《你可听见人民在呐喊？》的视频在网上被疯传，已在微信上有9000万点击观看。
 
+由于当局严密的审查，许多内容被删除，迫使居民用婉转词句、谐音字等不同方式与审查者周旋。
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw): Our unity at home, our unity with our Allies and partners, and our unity with the Ukrainian people is sending an unmistakable message to Putin: He will never succeed in dominating and occupying all of Ukraine. [pic.twitter.com/V4ltUz5EAW](https://t.co/V4ltUz5EAW)
-> — Department of State (@StateDept) [April 24, 2022](https://twitter.com/StateDept/status/1518031975419838467?ref_src=twsrc%5Etfw)
+中共用圈养牲畜的方式对待14亿中共国民众。就算是对待牲畜，也不可能任其活活饿死、病死而无动于衷。上海封城期间，饿死、因无法及时就医病死，以及无法忍受煎熬而自杀的民众不计其数。当局丝毫不为所动，还另外搭建围栏，严防百姓出逃。
 
+自疫情开始，中共就没有公告过真实的感染和死亡数据。2600万人口的上海，仅仅因为几十个病例就全面封城，这到底有多大的谎言呢？惨无人道的封城，没有饿死病毒，却把上海变成了人间炼狱。只有把中共国每一个城市都变成中共的坟墓，中国老百姓才能够真正地得到自由，否则上海的惨剧会在中共国每一个城市和乡村轮番上演。
 
+新闻参考链接：[https://www.voachinese.com/a/shanghai-fences-up-covid-hit-areas-fuelling-fresh-outcry-20220424/6542797.html](https://www.voachinese.com/a/shanghai-fences-up-covid-hit-areas-fuelling-fresh-outcry-20220424/6542797.html)
 
-**拜登总统： **
-在普京对乌克兰发动无端无理的攻击两个月后，基辅仍然屹立不倒。 泽连斯基总统和他的民选政府仍在继续执政。 我们将继续支持乌克兰人保卫家园的战斗。
+* * *
 
-
-
-> Two months after Putin launched an unprovoked and unjustified attack on Ukraine, Kyiv still stands. President Zelenskyy and his democratically-elected government remain in power.
->  
-> We will continue to support Ukrainians in their fight to defend their homeland.
-> — President Biden (@POTUS) [April 24, 2022](https://twitter.com/POTUS/status/1518291602975989762?ref_src=twsrc%5Etfw)
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**参议员玛莎·布莱克本： **
-“自由距离灭绝永远不会超过一代人的时间。 我们没有通过血脉遗传给我们的孩子们。 必须为自由而奋斗、保护自由并传递给他们，让他们也这样做。” ——罗纳德·里根总统
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-> “Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.” – President Ronald Reagan
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 23, 2022](https://twitter.com/MarshaBlackburn/status/1517995893395443721?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克尓·麦考尔： **
-自拜登就职以来，已有 250 万人越过了他的开放边界。 第42 条款被取消意味着在接下来的五周内有 50万人(非法入境)。 这是我们南部边境历史上最严重的危机。 【附视频，麦考尔议员接受福克斯新闻采访，谈南部边境危机】
-
-
-
-> 2.5 million people have cross over Biden’s open border since his inauguration. Title 42 being lifted means 500,000 over the next five weeks. This is the worst crisis in the history of our southern border. [pic.twitter.com/m5hWHh1D8F](https://t.co/m5hWHh1D8F)
-> — Michael McCaul (@RepMcCaul) [April 24, 2022](https://twitter.com/RepMcCaul/status/1518260287991959553?ref_src=twsrc%5Etfw)
-
-
-
-**参议员比尔·哈格蒂：** 
-[#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 正在对美国的青年——包括在我的家乡田纳西州——发动芬太尼和非法毒品战争，而拜登政府为了他们的政治利益，让我们的南部边境完全开放，从而实现了(中共的)这一目标。
-
-
-
-> The Chinese Communist Party is waging a fentanyl and illicit drug war on America’s youth—including in my home state of Tennessee—and the Biden Admin is enabling it by leaving our southern border wide open for their political gain.
-> — Senator Bill Hagerty (@SenatorHagerty) [April 25, 2022](https://twitter.com/SenatorHagerty/status/1518388067488444416?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·华尔兹：** 
-我很难相信这是一个意外…… 【转推称：尽管台湾不是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的一部分，但拜登的商务部长称台湾为“中华台北”。这是对热爱自由的台湾人民的一记耳光，也是在给 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 开绿灯。】
-
-
-
-> I have a hard time believing this was an accident… [https://t.co/1DPZ0RFLP6](https://t.co/1DPZ0RFLP6)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 25, 2022](https://twitter.com/michaelgwaltz/status/1518415887098945538?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥： **
-“你是我藏身之处，你必保护我脱离患难，以得救的欢呼四面环绕我。” 诗篇 第32章 7节 [#主日圣经](https://gettr.com/hashtag/%23%E4%B8%BB%E6%97%A5%E5%9C%A3%E7%BB%8F) [#SundayScripture](https://gettr.com/hashtag/%23SundayScripture)
-
-
-
-> “You are my hiding place; You shall preserve me from trouble; You shall surround me with songs of deliverance.” Psalm 32:7[#SundayScripture](https://twitter.com/hashtag/SundayScripture?src=hash&amp;ref_src=twsrc%5Etfw) ✝️
-> — Mike Pompeo (@mikepompeo) [April 24, 2022](https://twitter.com/mikepompeo/status/1518261230674321408?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
 
 
