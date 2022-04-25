@@ -15,17 +15,17 @@
 
 ---
 
-### [美国将很快重新开放基辅大使馆](/content/gnews/1/README.md)
+### [俄罗斯的制裁表明“统一行动”产生了影响](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [泽连斯基与美高级代表团会晤并获得军援承诺](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [美国将很快重新开放基辅大使馆](/content/gnews/3/README.md)
  ` Shuizhuyu`
 
-### [七哥金句：记住我们为什么走在一起](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [全球发达国家，对于俄罗斯个人制裁时间线](/content/gnews/3/README.md)
+### [全球发达国家，对于俄罗斯个人制裁时间线](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
-
-### [七哥金句：能自食其力才配追求信仰](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
 
 ### [【粤语配音】2022年4月24日：中国人因为没有信仰被世界抛弃](/content/gnews/5/README.md)
  ` MOS香港部`
