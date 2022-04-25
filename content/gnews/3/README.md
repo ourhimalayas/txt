@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党已经无路可走只有对外扩张战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407422/)
+## 乌克兰Medyka营地被蓄意攻击，我们一定要做好取证，告对方种族歧视
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407447/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

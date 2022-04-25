@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党会将毒疫苗害人事件转嫁给老百姓不听话和美帝国主义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407442/)
+## 我们要消灭中国共产党最重要的是维护中国人的人权尊严和法治
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407470/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

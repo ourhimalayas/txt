@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 12:29 AM (UTC)`
+
+2022.04.24 晚  新中国联邦 | 新闻   习近平被身边的人忽悠，相信打台湾能解决一切问题；普京示好西方，或迫使习近平毁灭台湾
+![img](https://media.gettr.com/group40/origin/2022/04/25/00/b8ab4a98-12f1-2757-d52c-2792cb62b7ec/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@sakuravideo 4/24/2022 3:17 PM (UTC)`
@@ -148,13 +155,6 @@
 
  4月24号：尊敬的战友们好……中国人仅仅用了5年时间就从全球的买买买……到今天的人间地狱的生活，这是什么原因造成的呢？
 ![img](https://media.gettr.com/group47/getter/2022/04/24/09/1d053861-28d0-bc8d-2648-0521e642d162/out.jpg)
-
----
-
-`@miles 4/24/2022 9:03 AM (UTC)`
-
-【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案。
-![img](https://media.gettr.com/group36/getter/2022/04/24/09/b876c7cd-7b56-d57e-3c57-2f025d1532e2/out.jpg)
 
 ---
 

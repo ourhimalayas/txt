@@ -2,35 +2,36 @@
 ---
 
 
-## 【G时新闻】新中国联邦可能会在乌克兰和波兰建立大使馆
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2407376/)
+## 福奇曾与中共病毒所签署允许销毁记录的备忘录
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407423/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-4月21日，郭文贵先生在直播中提到，目前普京由于战事上的连续失利，对西方发出了和解信号，谈判结果可能在6月中旬或下旬敲定。如若普京交枪投降，那么我们在前线对乌克兰的救援行动可能会有一个大的改变。
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/npr.jpg)图片来源：NPR
+《门户专家》（Thegatewaypundit）网站4月21日报道：《国家脉搏》的记者娜塔莉·温特斯发现了福奇和武汉病毒学研究所之间的一份备忘录，其中同意在必要时可以销毁记录。
 
-我们也许会在当地置办一个固定的物业，和当地政府协商，建立第一个大使馆，称为新中国联邦驻梅迪卡战地大使馆。另外我们也会深入到乌克兰基辅，建立新中国联邦驻基辅大使馆。随即也会派出新中国联邦的大使。
+加尔维斯顿国家实验室是安东尼·福奇的国家过敏症和传染病研究所的资助下建造的，与武汉病毒学研究所签订了谅解备忘录，授予中共国实验室权利，让美国同行销毁和/或归还秘密文件、材料和设备，而不做任何备份。
 
-郭文贵先生表示，在本次俄乌战争中，新中国联邦前往乌克兰前线的战友们，以无我、勇敢、坚定的勇气，在梅迪卡救援前线展示出跟中国共产党完全不同的、新中国人的面貌，令新中国联邦的命运和乌克兰以及犹太人、犹太组织紧密地联系在一起。
+《国家脉搏》此前发现了这家实验室与武汉病毒学研究所的多年合作关系，包括在实验室的生物安全4级(BSL)设施中举办交流项目和培训研究人员。这两家实验室的负责人承认，他们在2018年研究了世界上最危险的病原体。
 
-同时在本次救援中，各个国家，包括联合国，都知道了新中国联邦的存在和意义，为今后新中国联邦跟全世界的合作埋下伏笔，也为新中国联邦进一步走向国际奠定了非常良好的基础。
+这一消息是在围绕安东尼·福奇资助武汉病毒学研究所蝙蝠冠状病毒研究的争议中传出的。在美国，什么样的政府机构允许记录被销毁，并与中共国签署协议这样做?有人这么做的原因只有一个，那就是为了隐瞒什么。福奇博士想隐瞒什么？
 
-盖特链接：[https://gettr.com/post/p16uhva4206](https://gettr.com/post/p16uhva4206)
+链接：[https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/](https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/)
 
-撰稿/翻译/听写 – G时新闻组
-上传/发稿 – 【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+上传/发稿 – 云起时
+撰稿/翻译/听写 – 重生之鹰
+素材/采编 – UCool 优酷
+校对/审核 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
 更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 - [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
 - [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
 - [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
