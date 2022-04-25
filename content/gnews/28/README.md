@@ -2,27 +2,22 @@
 ---
 
 
-## 樱花时政┃日本官房副长官祝贺马克龙连任 强调法日印太合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2409725/)
+## 台湾｜美国务院副助卿：美台应加强经贸合作 半导体供应链领袖
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2409965/)
 
-撰稿：东京樱花团/百花李香
+**图文 zhong｜2022-4-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/copy-1-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+驻芝加哥台北经济文化办事处与俄州官方、民间单位合办“美国中西部台美商业论坛”，美国务院副助卿华自强（Rick Waters）通过录影致词表示，他代表国务卿布林肯（Antony Blinken），在全球晶片短缺困境下，台湾身为全球高科技供应链领袖的角色格外重要，台美加强半导体及供应链安全，以因应中共的经济胁迫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-552.jpg)[图片来源](https://www.google.com/search?q=%E4%BC%8A%E6%9B%BC%E7%BA%BD%E5%B0%94%C2%B7%E9%A9%AC%E5%85%8B%E9%BE%99&amp;sxsrf=APq-WBt5DKe2-i)
+俄州联邦众议员夏波（Steve Chabot）在论坛上表示，支持台美签订自由贸易协定，支持台湾纳入“印太经济架构”，台湾与理念相近国家密切合作以面对中（共）国的挑战。
 
-在4月25日的新闻发布会上，内阁官房副长官矶崎仁彦祝贺马克龙在法国总统选举中再次当选，他表示，希望继续与马克龙总统领导的法国紧密合作。
+4月25日郭文贵直播透漏，美国等西方经过俄乌战争已了解到晶片产业不可重压于台湾，未来晶片产业将会分散布局。
 
-有关法日关系，矶崎强调，两国关系是“一个重要而特殊的合作伙伴，共享自由、民主、人权和法治的普世价值。”他希望加强在印太地区的合作以及在应对俄罗斯入侵乌克兰等问题上深化合作。矶崎表示，“这是一个结束残暴的侵略和保护和平与秩序的关键时刻。从来没有一个时期比现在更需要七国集团（G7）团结一致。”
+来源｜[taiwannews](https://www.taiwannews.com.tw/en/news/4517916)
 
-信息源：[マクロン大統領再選に「心より祝意」　磯崎副長官、日仏連携の重要性強調](https://news.yahoo.co.jp/articles/def540207cbb0be9cf94b137743debe7a80a0a78#:~:text=%E3%83%9E%E3%)
+* * *
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注** **
-**[**乌克兰救援UkraineRescue** **官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
 
  
 
