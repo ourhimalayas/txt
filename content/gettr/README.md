@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group47/origin/2022/04/25/04/d9f7f868-d6fd-4c5a-68d7-d3df9904a5e1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 3:05 AM (UTC)`
 
 2022-4-24《鸡血王喜币大作战》 第一百七十五集 嘉宾：齐天二圣、七里香
@@ -150,13 +157,6 @@
 `@miles 4/24/2022 3:38 PM (UTC)`
 
 04/24/2022 on the 6th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes <br/>No.1 🥇on 4 countries Top Music Video Charts <br/>No.1 🥇 on 6 countries Pop Music Video Charts <br/>Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thanks to our brothers and sisters in Hong Kong🇭🇰, USA🇺🇸, UAE🇦🇪, Macau🇲🇴, Taiwan🇹🇼, Singapore🇸🇬, Germany🇩🇪, Canada🇨🇦, Cambodia🇰🇭, Malaysia🇲🇾<br/>🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月24号，《铁锁梦》MV在全球上线第六天，登榜iTunes <br/>4国MV总榜第一名🥇<br/>6国MV流行曲榜第一名🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港🇭🇰，美国🇺🇸，阿联酋🇦🇪，澳门🇲🇴，台湾🇹🇼，新加坡🇸🇬，德国🇩🇪，加拿大🇨🇦，柬埔寨🇰🇭，马来西亚🇲🇾的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2405812/
-
----
-
-`@miles 4/24/2022 2:30 PM (UTC)`
-
-2022年4月24日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>从乌克兰救援以来，法治基金和法治社会受捐款是有史以来最高的。而且现在的捐款额远远超过了到乌克兰救援的前线。这说明了中国人的正义和中国人绝对不缺勇士、不缺有良知、不缺真正的有智慧。 希望中国人走向法治民主自由时代的真正的中国人，这就是我们的动力！<br/><br/>4/24/2022 Rule of Law Foundation and Society donors messages collection. Rule of Law Foundation and Society appreciate all of our supporters and donors!<br/><br/>Since the beginning of the Ukraine rescue, donations to the ROL Foundation and Society are the highest ever. These donations far exceed other front line Ukrainian relief efforts. This shows the righteousness of the Chinese people. There are many courageous, conscientious, and wise Chinese people.  We hope Chinese enter the era of rule of law, democracy and freedom. This is our driving force!
-![img](https://media.gettr.com/group46/getter/2022/04/24/14/cc657d3f-4629-a482-5a48-10745f8b70ff/out.jpg)
 
 ---
 

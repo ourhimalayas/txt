@@ -2,62 +2,34 @@
 ---
 
 
-## 佛州州长签法案禁止学校等场所的批判种族理论——民主党提起诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2408427/)
+## 封城蔓延至北京，朝阳区首先进行核酸检测
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2408508/)
 
-翻译: 里奇
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-복사본.jpg)封城蔓延至北京，朝阳区首先进行核酸检测 网络图片
+据网易新闻暨澎湃新闻4月24日报道，据北京市疾控中心副主任、全国新型冠状病毒肺炎专家组成员庞星火和北京市委宣传部对外新闻处处长田伟介绍，朝阳区被定为高风险地区，将从4月25日起对生活、工作在朝阳的人员进行核酸检测，25日、27日、29日每天检测1次。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-179.jpg)
+惨无人道的封城在上海还没有结束，人间炼狱的模式蔓延到了北京，朝阳市首当其冲被认定为高风险地区。接下来可以想象的，全员核酸检测，强制隔离感染者和疑似感染者，甚至是婴幼儿。没有提前备粮的民众就算饿死、病死、跳楼死、上吊死，也无法动摇中共对老百姓的铁石心肠。与其被隔离、封城而死，莫不如奋起反抗，为自己和下一代争取一个生存的空间。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-538.jpg)
-
-佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五签署了一项法案，规定学校和企业不得“有意或无意地”教授“与生俱来的种族主义、性别歧视者或压迫者”。
-
-
-```
-周五，德桑蒂斯州长在海厄利亚花园(Hialeah Gardens) 的 Mater Academy Charter特许中学初中/高中举行的新闻发布会上，
-签署了众议院第 7 号法案或“个人自由”成为法律。
-```
-
-新法律将结束佛罗里达州的企业和教育灌输，并将于 2022 年 7 月 1 日生效。
-
-佛罗里达州州长罗恩·德桑蒂斯周五签署了一项有争议的法案，批评人士称该法案将大大限制学校的种族教育。
-
-HB 7，正式名称为“个人自由”议案，禁止教育工作者教授与种族相关的某些主题，部分目的是防止教师因历史事件而让学生对他们的种族感到内疚或羞耻。
-
-“我们相信教育，而不是灌输” 德桑蒂斯在新闻发布会上说。“我们认为，在佛罗里达州自由的一个重要组成部分是在未经您同意的情况下免受压迫性意识形态反对您的自由。”
-
-该法案于3月由佛罗里达州立法机构通过，禁止教育工作者教授学生批判性种族理论，即“一个种族、肤色、国籍或性别在道德上优于另一种族、肤色、国籍的成员，或性别”，并且“一个人，由于他或她的种族、肤色、国籍或性别，无论是有意还是无意，是与生俱来的种族主义者、性别歧视者或压迫者。”
-
-德桑蒂斯说：“我们不会用你的税款来教我们的孩子憎恨这个国家或憎恨彼此。”
-
-该法案签署成为法律几分钟后，民主党人提起诉讼，质疑新法律，声称它违反了第一和第十四修正案的权利。
-
-塔拉哈西民主党人报道：
-
-来自佛罗里达州各地的一群原告对州长罗恩·德桑蒂斯、司法部长阿什利·穆迪和其他质疑 HB7 合宪性的人提起了联邦诉讼。
-
-原告包括一名来自塔拉哈西的教育工作者、一名来自海牛县的高中教师、一名中央佛罗里达大学的教授和一名秋季入学幼儿园的年轻女孩。
-
-他们对周五签署的众议院第 7 号法案提出指控，称该法案禁止 K-12 学校的批判性种族理论而违反了他们的第一和第十四修正案权利。他们周五在佛罗里达州北区的美国地方法院提起诉讼。
-
-新闻来源:[Governor Ron DeSantis Signs Bill Banning Critical Race Theory in Schools and Workplaces into Law — Democrats File Lawsuit](https://www.thegatewaypundit.com/2022/04/governor-ron-desantis-signs-bill-banning-critical-race-theory-schools-workplaces-law-democrats-files-lawsuit/)
+新闻参考链接：[https://www.163.com/dy/article/H5O15RS00530M570.html](https://www.163.com/dy/article/H5O15RS00530M570.html)
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发布：五通庙
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-11.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
+
+
+
+
+
 
  
 
