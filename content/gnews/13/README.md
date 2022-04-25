@@ -2,10 +2,10 @@
 ---
 
 
-## 一名上海的外国人表示她对上海很失望
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2412332/)
+## 上海居民抗议封锁居民楼
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2412375/)
 
-04/24/2022 一名上海的外国人表示她对上海很失望。政府把人民当畜生一样对待。
+04/23/2022 一位上海汇贤居的勇敢男子警告硬隔离的人说：你们敢封，我就可以下来推翻它！我坐牢去！脑子坏特了！
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

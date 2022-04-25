@@ -2,82 +2,54 @@
 ---
 
 
-## 新视频出现后，普京的健康猜测加剧
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2411616/)
+## 普京在复活节参加礼拜的视频引发了对他健康状况的担忧
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2411722/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
-视频显示普京在与白俄罗斯总统会面前手在颤抖，这增加了人们对这位俄罗斯领导人健康的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ewscripps.brightspotcdn.com3_.jpg)来源于英国《每日星报》
+来源于英国《每日星报》网站2022年04月24日的报道，昨晚，俄罗斯领导人弗拉基米尔·普京(Vladimir Putin)在复活节参加教堂礼拜后，人们猜测他患有严重疾病。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3177-edited.png)
-*2013年6月17日，在北爱尔兰贝尔法斯特，俄罗斯总统弗拉基米尔-普京抵达贝尔法斯特国际机场。普京的一段病毒视频引发了对这位领导人健康的质疑。*
-*Peter Muhly/Getty images*
+普京即将在今年10月年满70岁，但他似乎站立不稳，根据东正教传统在4月24日举行的复活节庆祝中，他在礼拜时似乎一度紧握烛台以获得支撑。
 
-视频显示普京在与白俄罗斯总统会面前手在颤抖，这增加了人们对这位俄罗斯领导人健康的担忧。
+这位独裁者似乎不受控制地抽搐和咀嚼他的嘴唇，这使得人们更加相信他患有帕金森病的观点。
 
-在这段录像中，可以看到普京在迎接白俄罗斯总统亚历山大-卢卡申科并与他拥抱之前，举起了他的手并摇晃。
+他的动作显得缓慢而刻意，仿佛要花大力气才能把它们控制住。
 
-普京在向前走几步之前，还显得腿部僵硬，引发了人们对他健康的进一步担忧。
+虽然他最近几周表现出的一些面部肿胀似乎有所减轻，但普京看起来又瘦又弱，与他热衷于自我宣传的“强人”形象相去甚远。
 
-评论家们质疑这位俄罗斯领导人是否可能患有帕金森病。这段视频被发布在Twitter页面Visegrad 24上，浏览量已超过100万次。
+德克萨斯理工大学(Texas Tech University)肢体语言专家埃里克·布西教授(Erik Bucy)告诉《太阳报》：“与我们几年前观察到的那个人相比，这是一个虚弱得令人惊讶的普京。”
 
-推特链接：
+“一位健壮的总统不需要伸出一只手来支撑自己，也不会担心保持双脚踩在地上。”
 
+普京和他的国防部长谢尔盖·绍伊古(Sergei Shoigu)最近会面的视频显示，这位俄罗斯领导人看上去很臃肿，弓着背坐在桌前，一只手抓着桌面显然是为了掩盖震颤。
 
+未经证实的报道称，普京患有甲状腺癌或帕金森病，或两者兼而有之。
 
-> Many suspected it after his weird meeting sign Shoigu, during which he held on to the table for 13 minutes.
-> 
-> This is probably the clearest video of something being wrong with Putin’s health.
-> 
-> Look at his leg & hand tremors!
-> 
-> Any doctor out there willing to weigh in? 
-> 
-> Parkinson? [pic.twitter.com/Vt0TpHtdrF](https://t.co/Vt0TpHtdrF)
-> — Visegrád 24 (@visegrad24) [April 24, 2022](https://twitter.com/visegrad24/status/1518024361223110656?ref_src=twsrc%5Etfw)
+俄罗斯专家马克·加莱奥蒂(Mark Galeotti)说，普金是因为觉得自己的生命即将逝去，才迫不及待地想要完成他自诩为其历史使命的重建旧俄罗斯帝国的功绩。
 
+他写道：“他渴望取得某种胜利，他可能决定将一切赌在掷核骰子上。”
 
+**简评：**
 
-标题写道：“许多人怀疑是在他与绍伊古的奇怪会面之后，在会面期间，他在桌子上坚持了13分钟。”
+郭文贵先生曾经爆料过：习太阳曾经同时做脾和肾的手术；普京为了保持容颜一直打肉毒杆菌，他的身体也有问题。这篇译文只不过印证了郭先生之前对普京的爆料。
 
-“这可能是普京的健康出现问题的最清晰的视频。看看他的腿和手的颤抖。”
+试想独裁者金正恩坐火车到中共国时，沿途要求他的下属将他的屎尿都要收集起来带回北韩，就为了保密他的生物数据及身体健康状况。同为独裁者的普京要做这样的事也是分分钟钟的事，可普京却能够放出视频让外界能够轻易地解读到他的身体健康状况发生了问题，做为克格勃出身的普京身上发生这种事不得不让人猜测他的演戏成分也许多过事实真相。
 
-“有哪位医生愿意透露一下情况？帕金森症？”
+不管哪个独裁者的怎样表演，只要紧跟郭先生曾经反复告诫新中国联邦的战友们的话：独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想。只有推翻共产党这样的体制，才能从根本上消除独裁者产生的土壤，也才能将人民从独裁者手中解放出来。
 
-新的猜测是在上周社交媒体上流传的一段视频之后出现的，该视频显示普京在会见国防部长谢尔盖-绍伊古时抓紧了一张桌子。
+新闻链接：[‘Unsteady’ Putin fuels Parkinson’s rumours as he fidgets in church amid health fears](https://www.dailystar.co.uk/news/world-news/unsteady-putin-fuels-parkinsons-rumours-26785646)
 
-虽然克里姆林宫表示，两人会面是为了讨论俄罗斯在马里乌波尔的军事战略，这是普京宣布“成功”的一个战略性港口城市，但远处的围观者关注的是总统的样子。
-
-在图片中，可以看到普京抓着他和绍伊古之间的桌子，以及懒洋洋地坐在椅子上，人们很快猜测他可能健康状况不佳。近几个月来，有传言说这位领导人可能患有疾病。
-
-据在线媒体《莫斯科时报》4月1日报道，克里姆林宫本月初否认普京接受了与甲状腺癌有关的手术。
-
-普京与国防部长会面的视频被观看了240多万次，许多人再次质疑俄罗斯总统是否可能患有帕金森病。
-
-4月1日，俄罗斯新闻媒体Proekt发表了一篇调查性报道，声称普京经常被一个医生团队看病。该网站称，两名耳鼻喉专家定期为普京看病，还有一名专攻甲状腺癌的肿瘤外科医生。Proekt的报道还称，普京一直在使用一种替代疗法，即用割下的鹿角提取的血液进行沐浴。
-
-《莫斯科时报》报道称，记者阿列克谢-维内迪克托夫在其Telegram频道上写道，他曾向克里姆林宫发言人德米特里-佩斯科夫询问有关癌症的传言。
-
-“虚构和不真实”，佩斯科夫告诉韦内迪克托夫，这促使该记者特别问道，说普京没有患癌症是否正确。
-
-据《莫斯科时报》报道，“正确的”，佩斯科夫回答。
-
-《新闻周刊》已与俄罗斯外交部取得联系，寻求评论。
-
-来源： [Vladimir Putin Health Speculation Intensifies After New Video Emerges](https://www.newsweek.com/vladimir-putin-russia-health-viral-video-latest-parkinsons-cancer-1700445)
+翻译/简评：Brianchow / PR：村民彼得潘
 
 * * *
 
-审核：Aries的星
-校对：信心满满
-发布：花羽
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西喜-5.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
