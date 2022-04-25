@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/25/2022 10:05 PM (UTC)`
+
+“钱多多~~” 飞飞秀救援快报 2022-04-25<br/>For English：gettr.com/streaming/p172l9k470e
+![img](https://media.gettr.com/group41/origin/2022/04/22/22/4f57735b-f5e6-8a68-83ad-db82df07f0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/25/2022 8:45 PM (UTC)`
 
 2022.04.25  新中国联邦 | 喜健康   二氧化氯: 川普总统说的消毒剂，能抗击冠状病毒和毒疫苗吗？
@@ -146,13 +153,6 @@ The NFSC & ROLF<br/>Ukraine Frontline Rescue Team – News & Updates
 
 2022.04.25  新中国联邦 | 军情室  俄罗斯部署彈道导弹目标乌東，俄羅斯布良斯克石油設施爆炸，中共军机坠毁惊现俄羅斯教官，中共從烏克蘭獲得的軍備技術
 ![img](https://media.gettr.com/group48/origin/2022/04/25/10/0e1fb22b-a918-2a69-0067-b6ac76382fab/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/25/2022 7:05 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group14/origin/2022/04/25/06/ac7981e7-e712-6fda-9df2-8ec2f2805118/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

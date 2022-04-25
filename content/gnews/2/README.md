@@ -2,31 +2,22 @@
 ---
 
 
-## 泽连斯基与美高级代表团会晤并获得军援承诺
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2413299/)
+## 樱花时政┃北京11区开展核酸检测，或为大封控做准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2413367/)
 
-##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-18.png)
+撰稿：东京樱花团/皓月当空郭
 
-据【CTV NEWS】4月25日报道， 周日晚，美国务卿和国防部长会见了乌克兰总统泽连斯基，这是自俄罗斯入侵以来美代表团对基辅最高级别访问。期间，泽连斯基要求获得更强大武器对抗俄军在乌东的军事行动。
+北京4月25日晚，北京市中共病毒（新冠病毒Covid-19）疫情防控工作第315场新闻发布会上，发言人徐和建介绍，在本市朝阳区已经开展核酸检测基础上，进一步扩大区域筛查的范围，从26日至30日，对东城、西城、海淀、丰台、石景山、房山、通州、顺义、昌平、大兴、经开区等11个区域开展三轮核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-562.jpg)[图片来源](http://pic.people.com.cn/n1/2022/0425/c1016-32407954.html)
+根据郭文贵先生多次直播中讲到，北京一定会隔离，甚至相当于军管状态！想想北京几千万人口做核酸是怎样的场面，而中共一定通过这次大范围病毒核酸检测，以病毒阳性为借口，继而采取大面积封控，实施军管状态！
 
-美代表团承诺将提供超3亿美元军援资金，并已批准出售1.65亿美元弹药。同时表示拜登总统将很快宣布驻乌克兰大使提名人选，新大使下周返回乌克兰。美乌双方同级别会晤最近一次是2月19日在慕尼黑与副总统卡马拉·哈里斯会面。当时，泽连斯基一再强调，乌克兰需要更多重型武器，包括远程防空系统和战机。
+或许受爆料革命的传播影响，从网络上已经看到在24日大量市民排队抢购物质，网络订单暴增，看来很多市民已经做了防范，但是仍然有很多脑残继续安乐着。中共的变态封控，以管控达到不可告人目的，让北京的老百姓防不胜防，你可以买一时物质，但是中共会持续的折磨你，在这样的邪恶政权下，一切都是权宜之计，只有消灭中共，才会真正的自由安全，才会云消雾散，在中共统治下，又有多少城市和地区遭受中共的变态折磨，中国同胞赶快醒来吧！
 
-[原文链接](https://www.ctvnews.ca/world/ukrainian-steel-plant-bombed-zelenskyy-to-meet-u-s-officials-1.5873894)
+消息来源：[4月26日至30日，北京对11个区域人员开展三轮核酸检测](https://www.sohu.com/a/541202678_163278)
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
