@@ -2,8 +2,8 @@
 ---
 
 
-## 中共国，上海妈妈为了孩子看病通宵等核酸。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407685/)
+## 網友：上海，住在方艙不想回家，出去沒吃的。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407909/)
 
 作者：东京樱花团小视频组
 

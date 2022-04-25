@@ -2,11 +2,11 @@
 ---
 
 
-## 前线救援行动被破坏，但是我们绝不妥协（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407829/)
+## 普京的身体出了问题（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407932/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/08：40-08：50-006.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：10-09：20-004-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

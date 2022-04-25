@@ -2,34 +2,34 @@
 ---
 
 
-## 福奇曾与中共病毒所签署允许销毁记录的备忘录
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407423/)
+## 上海超低的中共病毒死亡人数引发外界质疑
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407472/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/npr.jpg)图片来源：NPR
-《门户专家》（Thegatewaypundit）网站4月21日报道：《国家脉搏》的记者娜塔莉·温特斯发现了福奇和武汉病毒学研究所之间的一份备忘录，其中同意在必要时可以销毁记录。
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEW.jpg)图片来源：秘密翻译组视频
+据【CTV NEWS】4月21日报道， 尽管这场疫情已经持续了近两个月，并感染了这个城市的数十万人，但超过2500万人口的上海仅报告了25例中共病毒死亡。美联社对死亡人数的调查揭示了中共当局统计疫情死亡数据比世界其他地区更窄、更不透明且标准不一致。
 
-加尔维斯顿国家实验室是安东尼·福奇的国家过敏症和传染病研究所的资助下建造的，与武汉病毒学研究所签订了谅解备忘录，授予中共国实验室权利，让美国同行销毁和/或归还秘密文件、材料和设备，而不做任何备份。
+包括美国在内的大多数国家/地区，指南规定，任何以中共病毒为因素或促成因素的死亡均被视为与中共病毒相关的死亡。但在中共国，只计算那些直接死于中共病毒的人。疫情期间，中共当局仅将肺部扫描显示有肺炎的患者视为“有症状”的病毒病例，其他即使检测阳性，并有典型症状，也被视为无症状。
 
-《国家脉搏》此前发现了这家实验室与武汉病毒学研究所的多年合作关系，包括在实验室的生物安全4级(BSL)设施中举办交流项目和培训研究人员。这两家实验室的负责人承认，他们在2018年研究了世界上最危险的病原体。
+在被质疑上海中共病毒死亡数据时，中共国家卫生委在一份传真中表示，“没有依据怀疑中国的流行病数据和统计数据的准确性”。
 
-这一消息是在围绕安东尼·福奇资助武汉病毒学研究所蝙蝠冠状病毒研究的争议中传出的。在美国，什么样的政府机构允许记录被销毁，并与中共国签署协议这样做?有人这么做的原因只有一个，那就是为了隐瞒什么。福奇博士想隐瞒什么？
-
-链接：[https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/](https://www.thegatewaypundit.com/2022/04/fauci-signed-deal-china-agreeing-destroy-return-secret-files-materials-equipment-without-backup/)
+新闻来源：[https://www.ctvnews.ca/health/coronavirus/surprisingly-low-shanghai-covid-19-death-count-spurs-questions-1.5869917](https://www.ctvnews.ca/health/coronavirus/surprisingly-low-shanghai-covid-19-death-count-spurs-questions-1.5869917)
 
 上传/发稿 – 云起时
-撰稿/翻译/听写 – 重生之鹰
-素材/采编 – UCool 优酷
+撰稿/翻译/听写 – 晨熹
+素材/采编 – 青青
 校对/审核 – 云起时
+
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
 更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  

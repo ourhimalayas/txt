@@ -2,12 +2,18 @@
 ---
 
 
-## 这个民族太懦弱、自私
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2407702/)
+## 普京的身体出了问题（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407913/)
 
-听写：叮叮         编辑：文宝
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：10-09：20-002-1.jpg)
+发布：tianzhihuan
 
-我觉得会有，但是不会像你想象的那个效果。唐平的“啊~哈~”这个在国内是火大了，就这个“啊哈”是火大了。这个《铁锁梦》真的是火大了，包括《灭共的雪》在国内绝对是超过10亿次的重复的听是肯定了，这个咱们在国内的战友们都是很清楚。下载以后特别是有一些下载音乐的都是已经传疯了，因为咱们都可以找到数据，你们也可以通过现在海外第三方查这个歌有多少人、被人听过多少次，你们都是可以查得到的，可以预估出来的超过10亿次。但是就是我想说的，我不觉得对灭共上会有多大的帮助。中国人连自己的爹妈、自己的兄弟姐妹在饥饿中你都救不了自己，他都不会动手，听几首歌怎么会动得了？这个民族、这个国家到了懦弱、自私、无知到了一个你无法想象的程度。就是能吃垃圾堆里的垃圾都不会反抗，能把自己的宠物狗和猫剁了吃了。或者跟自己老公、自己孩子跳楼自杀都不会反抗，你觉得几首歌能吗？不能。会有影响，没有什么多大意义。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

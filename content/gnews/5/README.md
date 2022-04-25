@@ -2,16 +2,10 @@
 ---
 
 
-## 中共国，网友电话质问医保局辉瑞是不是特效药，为何会纳入八省市医保，CCP自己都不清楚能不能治covid，一个字就是骗！因为这是CCP和黑暗沼泽勾结坑害中国人！给中国人打毒疫苗，在给中国人吃毒药。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407749/)
+## 網傳演員趙麗穎捐贈上海的物資被扔進了垃圾車。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407928/)
 
 作者：东京樱花团小视频组
-
-
-
-
-
-
 
 编辑发布：东京樱花团小视频组
 

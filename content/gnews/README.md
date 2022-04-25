@@ -15,100 +15,100 @@
 
 ---
 
-### [共产党破坏“擎天柱”事件和敌对势力对乌克兰救援破坏的三个本质看法](/content/gnews/1/README.md)
+### [中共军机坠落看爆料革命的情报和天意（一）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [前线救援行动被破坏，但是我们绝不妥协（七）](/content/gnews/2/README.md)
+### [4/24/2022 文贵直播：昨天的中共军机坠毁暴露出共产党根本没有能力打台湾！中共舰载机不靠谱，只能用无人机、导弹、潜水艇来破坏台湾；共军更没有登陆能力，中共就是个纸老虎](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [人类的无知和短浅和恐惧、自私，导致的人类的灾难远远大于共产主义和邪教](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [【粤语配音】2022年4月24日：疫苗灾难将超过病毒和战争带来的灾难](/content/gnews/3/README.md)
+### [普京的身体出了问题（三）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [網傳演員趙麗穎捐贈上海的物資被扔進了垃圾車。](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [普京的身体出了问题（二）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [普京的身体出了问题（一）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [4/24/2022 七哥直播：历史上中国和俄罗斯不在一起的时间占99%，互联网时代所谓的莫德尔斯基的长周期是一个灾难性的笑话，过去这一百年是美国的第三派——华尔街决定了中国的命运，而非共产党](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [網友：上海，住在方艙不想回家，出去沒吃的。](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [雪上加霜，杭州爆疫情 。](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [在疫情封控下，某高校一學生喊自己是「我收了帝國主義的錢，把我帶出學校 」](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [【粤语配音】2022年4月24日：疫苗灾难将超过病毒和战争带来的灾难](/content/gnews/12/README.md)
  ` MOS香港部`
 
-### [前线救援行动被破坏，但是我们绝不妥协（六）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
+### [安大略省将口罩规定延长保留至六月](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共国，网友电话质问医保局辉瑞是不是特效药，为何会纳入八省市医保，CCP自己都不清楚能不能治covid，一个字就是骗！因为这是CCP和黑暗沼泽勾结坑害中国人！给中国人打毒疫苗，在给中国人吃毒药。](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
+### [加拿大边境更新疫情限制措施](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [台湾新增中共病毒确诊首超5千例 连续8天创历史新高](/content/gnews/6/README.md)
+### [欧盟揭露德法等国出售武器给普京 高达3.5亿欧元](/content/gnews/15/README.md)
+ ` 日本东京方舟农场`
+
+### [台湾新增中共病毒确诊首超5千例 连续8天创历史新高](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [这个民族太懦弱、自私](/content/gnews/7/README.md)
- ` 加拿大温哥华英里农场`
-
-### [加拿大国际学生毕业后将可延期逗留18个月](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [中共国，上海妈妈为了孩子看病通宵等核酸。](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共国，深圳解封后的状态，未来全国都是这样！ccp的毒疫苗还有军管这次大淘沙中很多中国人会死亡。](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共国, 为了逼打第三针各种恶心招数。](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共国,上海95岁老大爷被ccp强制隔离！也许这样折腾中命就没了。](/content/gnews/12/README.md)
- ` Tokyo Sakura Video Group`
-
-### [聚焦：破坏救援与灭共的坏人逃到天涯海角也摆脱不了法律的严惩](/content/gnews/13/README.md)
+### [聚焦：破坏救援与灭共的坏人逃到天涯海角也摆脱不了法律的严惩](/content/gnews/17/README.md)
  ` 蓝莲花农场`
 
-### [上海前车之鉴 北京超市出现抢购](/content/gnews/14/README.md)
- ` 蓝莲花农场`
-
-### [上海超低的中共病毒死亡人数引发外界质疑](/content/gnews/15/README.md)
+### [上海超低的中共病毒死亡人数引发外界质疑](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美太空部队首席架构师离职，发出警告“保卫我们的国家”](/content/gnews/16/README.md)
+### [美太空部队首席架构师离职，发出警告“保卫我们的国家”](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年4月25日《樱花简报》：日本外相林芳正视察参与日美联合训练的“林肯”号航母](/content/gnews/17/README.md)
+### [2022年4月25日《樱花简报》：日本外相林芳正视察参与日美联合训练的“林肯”号航母](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福奇曾与中共病毒所签署允许销毁记录的备忘录](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [俄罗斯称别尔哥罗德地区的村庄遭到乌克兰炮击](/content/gnews/19/README.md)
+### [俄罗斯称别尔哥罗德地区的村庄遭到乌克兰炮击](/content/gnews/21/README.md)
  ` 波士顿五月花农场金融部`
 
-### [美国高官访问基辅 乌克兰提出更多武器援助的要求](/content/gnews/20/README.md)
+### [美国高官访问基辅 乌克兰提出更多武器援助的要求](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [【G时新闻】俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处](/content/gnews/21/README.md)
+### [【G时新闻】俄罗斯民众抗议俄发动入侵乌克兰战争 火烧5个征兵处](/content/gnews/23/README.md)
  ` G-时新闻`
 
-### [全球增长的引擎正在熄火](/content/gnews/22/README.md)
+### [全球增长的引擎正在熄火](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共战机坠毁再次印证文贵先生情报准确性](/content/gnews/23/README.md)
+### [中共战机坠毁再次印证文贵先生情报准确性](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [西澳大利亚州州长儿子接种新冠疫苗后仍患新冠，病情严重](/content/gnews/24/README.md)
- ` xiaobaige`
-
-### [研究表明只29%的染疫住院患者在一年内完全康复](/content/gnews/25/README.md)
+### [研究表明只29%的染疫住院患者在一年内完全康复](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [截至4.24 俄乌战事汇总](/content/gnews/26/README.md)
+### [截至4.24 俄乌战事汇总](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京的灾难可能比上海惨烈](/content/gnews/27/README.md)
+### [北京的灾难可能比上海惨烈](/content/gnews/28/README.md)
  ` 银河歌舞厅`
 
-### [中共对待孔子的态度都是为其统治服务](/content/gnews/28/README.md)
+### [中共对待孔子的态度都是为其统治服务](/content/gnews/29/README.md)
  ` 经济小组`
 
-### [北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/29/README.md)
+### [北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月24日早](/content/gnews/30/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月24日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [中共对上海大隔离期间网路言论进行清算](/content/gnews/31/README.md)
- ` NFSC News`
-
-### [中共企图在美国中期选举之时称霸世界](/content/gnews/32/README.md)
+### [中共对上海大隔离期间网路言论进行清算](/content/gnews/32/README.md)
  ` NFSC News`
 
 ### [4/24/2022国内经济财经周报：田惠宇被调查；多家银行出现取现难](/content/gnews/33/README.md)

@@ -2,38 +2,33 @@
 ---
 
 
-## 上海前车之鉴 北京超市出现抢购
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2407482/)
+## 加拿大边境更新疫情限制措施
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2407823/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-3.jpg)
-中共病毒疫情蔓延各地，中共暴力严管的防疫手段就是赤裸裸的杀人，在对疫情严格封控的预期心理下，首都北京多家超市24日出现抢购。有网友形容，上海人民在封控中等物资，北京人民在物资中等封控。
+##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3103.png)图片来源：CTV News
 
-北京疫情升温，3天新增41例中共病毒本土感染者，以朝阳区占26例最多，朝阳区25日起全员核酸检测。有朝阳区民众告诉中央社记者，社区已经规定25、27和29日要做3轮的核酸检测，全体居民都要参加。
+据【CTV新闻】4月22日报道，加拿大边境放宽疫情限制政策，5至11岁未接种或部分接种疫苗的儿童，在已完全接种疫苗监护人的陪同下，将不必完成入境前的核酸检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpZH54Wd.jpg)图片来源：路透
+据悉，目前对国际旅客在入境加拿大时的检疫规定已发生了变化。所有已完全接种者和由已完全接种的父母或监护人陪同的5-11岁儿童，以及有医疗豁免的旅行者，将不再需要在返回加拿大后执行隔离。但无论其疫苗接种状况如何，所有旅行者在使用联邦管制的交通工具，例如飞机或火车时，则都必须在整个旅行过程中配戴口罩。
 
-也有食品供应商告诉记者，收到电商平台业者的通知说，北京商家需加大自己的安全库存至少一个月以上，希望厂商了解仓库情况并优先保证供应给北京的商店。
+此外，所有旅行者在抵加的72小时内，都必须向入境海关提供各项强制性旅行信息。而那些未能正确填写信息者将面临被隔离、罚款或其他惩罚制裁。
 
-综合媒体报导及网络讯息，今晚北京、尤其是朝阳区的多家超市里人群大增，许多货架被一扫而空，鸡蛋、新鲜蔬菜和肉品都被抢购。甚至超市的线上购物平台也都显示多项商品补货中，或是因订单激增，配送可能延迟。
+新闻来源： [https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864](https://www.ctvnews.ca/politics/freeland-allies-walk-out-of-g20-meeting-over-russian-participation-1.5868864)
 
-在社群平台微博上，有一些网友给出囤货建议或清单，并表示生活必需品很广，并不只是食物，包括卫生用品、常用药品、消毒液都在内。还有人建议最近可以先去理发，避免长时间封控时无法理发。
+上传/发稿 – 青青 撰稿/翻译/听写 -文莱
+素材/采编 – 青青 校对/审核 – 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-有网友形容，现在好像已经进入到了一种「货已经囤好了，什么时候封我」的状态里。也有天津、广州网友分享自身经验说，不需要恐慌囤货，其实疫情封控很快就过去；但有了上海封控已经近1个月的经验，有些人认为还是多囤些好。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-郭文贵先生在直播中早早就预警了这一切，让大家储存好物资做好防御的这一切，有条件的最好远离大城市，尽可能的到能自给自足的偏远地区躲避疫苗灾难。爆料革命的提前预警没有引起很多人的重视，之前武汉，西安，东北等地区一次次的封城造成的惨剧仍在没有引起多数人们的重视，上海的惨剧是在一次次的教训中发生的。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-惨剧一次次不停的发生，归根结底源于对中共一次次的信任盲从，跟着共产党进入火葬场，中共不灭，灾难不止！不要在相信共产党了，只有灭共才有希望！
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3904359](https://news.ltn.com.tw/news/world/breakingnews/3904359)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

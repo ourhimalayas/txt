@@ -2,36 +2,27 @@
 ---
 
 
-## 上海超低的中共病毒死亡人数引发外界质疑
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2407472/)
+## 欧盟揭露德法等国出售武器给普京 高达3.5亿欧元
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2407723/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEW.jpg)图片来源：秘密翻译组视频
-据【CTV NEWS】4月21日报道， 尽管这场疫情已经持续了近两个月，并感染了这个城市的数十万人，但超过2500万人口的上海仅报告了25例中共病毒死亡。美联社对死亡人数的调查揭示了中共当局统计疫情死亡数据比世界其他地区更窄、更不透明且标准不一致。
+**撰稿：日本东京方舟农场  海星**
 
-包括美国在内的大多数国家/地区，指南规定，任何以中共病毒为因素或促成因素的死亡均被视为与中共病毒相关的死亡。但在中共国，只计算那些直接死于中共病毒的人。疫情期间，中共当局仅将肺部扫描显示有肺炎的患者视为“有症状”的病毒病例，其他即使检测阳性，并有典型症状，也被视为无症状。
+据《自由时报》4月24日报导，欧盟揭露德法等多个成员国利用武器禁运措施的漏洞向俄罗斯出口了价值高达3.5亿欧元的军事武器。
 
-在被质疑上海中共病毒死亡数据时，中共国家卫生委在一份传真中表示，“没有依据怀疑中国的流行病数据和统计数据的准确性”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-534.jpg)（图片来源：路透社）
 
-新闻来源：[https://www.ctvnews.ca/health/coronavirus/surprisingly-low-shanghai-covid-19-death-count-spurs-questions-1.5869917](https://www.ctvnews.ca/health/coronavirus/surprisingly-low-shanghai-covid-19-death-count-spurs-questions-1.5869917)
+据报导，根据欧盟与英国媒体《每日电讯报》分享的资料显示，欧盟尽管在 2014 年俄罗斯吞并克里米亚后对其实施武器禁运措施，但发现至少有 10 个成员国利用该措施的漏洞向普京政府出口了巨额军事设备，包括炸弹、火箭、飞弹和枪支等等。
 
-上传/发稿 – 云起时
-撰稿/翻译/听写 – 晨熹
-素材/采编 – 青青
-校对/审核 – 云起时
+报导指出，卖给俄罗斯的军事装备中有78% 由德国和法国公司提供。德国公司向莫斯科出售了价值 1.21 亿欧元的两用设备，包括步枪和特种防护车辆。法国则被发现向俄罗斯运送了价值 1.52亿欧元的军事设备，而且该国不仅出售了炸弹、火箭和鱼雷，还为 1000 多辆俄罗斯坦克以及战斗机和攻击直升机的导航系统提供热像仪。
 
+对此，德国辩称这些军事武器是在普京政府保证它们用于民用而非军用后才出售的。然而，欧盟部分成员国怀疑这些武器已被俄军用于入侵乌克兰，在波罗的海和东部成员国的剧烈抗议后，欧盟于4月8日紧急补上了禁运武器措施的漏洞。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+参考链接：
+[https://ec.ltn.com.tw/article/breakingnews/3903471](https://ec.ltn.com.tw/article/breakingnews/3903471)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+总编：老孙
+校对发布：爱放飞
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

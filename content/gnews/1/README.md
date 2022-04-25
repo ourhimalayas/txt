@@ -2,11 +2,11 @@
 ---
 
 
-## 共产党破坏“擎天柱”事件和敌对势力对乌克兰救援破坏的三个本质看法
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407878/)
+## 中共军机坠落看爆料革命的情报和天意（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2407968/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/08：50-09：00-001.jpg)
+**PPT制作：小蜗牛；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：20-09：30-001.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：
