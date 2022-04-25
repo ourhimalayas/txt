@@ -15,95 +15,95 @@
 
 ---
 
-### [4/24/2022 乌克兰救援连线: 小Sarah和Nicole认为种种迹象表明那两个挑衅的美国人是受过训练有备而来的，他们的言论充满了种族主义论调；“我们是消灭邪恶中共的新中国人”这句话令共产主义的追随者气急败坏，原形毕露](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [北京警告说有更多的Covid病例开始在中央商业区进行大规模检测](/content/gnews/2/README.md)
+### [两名美国高级官员将访基乌，乌克兰总统警告中止停战谈判](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [世界上最年长者在日本去世 享年119岁](/content/gnews/3/README.md)
+### [4月25日乌克兰救援行动（图片1-6）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [北京的封锁恐惧在增加](/content/gnews/3/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [4/24/2022 乌克兰救援连线：自从把6米高的广告牌在梅迪卡救援营地竖起来后，就有人不仅言语辱骂，而且还动手差点伤到战友](/content/gnews/4/README.md)
+### [一箭四雕](/content/gnews/4/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [粮食的问题一定是灾难](/content/gnews/5/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [自己的福和祸就是自己造成的](/content/gnews/6/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [G系列创造的财富都将属于新中国联邦](/content/gnews/7/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [中共将在2025年模拟撞击近地卫星](/content/gnews/8/README.md)
+ ` 银河歌舞厅`
+
+### [4/24/2022 乌克兰救援连线: 小Sarah和Nicole认为种种迹象表明那两个挑衅的美国人是受过训练有备而来的，他们的言论充满了种族主义论调；“我们是消灭邪恶中共的新中国人”这句话令共产主义的追随者气急败坏，原形毕露](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到](/content/gnews/5/README.md)
+### [北京警告说有更多的Covid病例开始在中央商业区进行大规模检测](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [世界上最年长者在日本去世 享年119岁](/content/gnews/11/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [4/24/2022 乌克兰救援连线：自从把6米高的广告牌在梅迪卡救援营地竖起来后，就有人不仅言语辱骂，而且还动手差点伤到战友](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [突然间变成天才歌唱家](/content/gnews/6/README.md)
- ` 加拿大温哥华英里农场`
-
-### [音乐的力量太大了](/content/gnews/7/README.md)
- ` 加拿大温哥华英里农场`
-
-### [现在唱的歌一定会火](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
-
-### [《铁锁梦》打开了世界上对中国人认知](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
-
-### [中国是一个粮食进口国](/content/gnews/10/README.md)
- ` 加拿大温哥华英里农场`
-
-### [4/24/2022 文贵直播：蔡英文既不敢强烈反共，又不敢亲共，更不敢跟美国人对着干，而中共却控制了蔡英文身边的绝大多数人，这就是台湾的悲哀以及中共对台湾如此嚣张的原因](/content/gnews/11/README.md)
+### [4/24/2022 文贵直播: 习太阳一方面想把台积电的技术为中共所用，另一方面想通过干掉芯片供应链从而使世界经济出问题以灭掉美元。文贵认为这不过是痴人说梦，中共一样也做不到](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [北京将被封城 压力测试席卷全国](/content/gnews/12/README.md)
+### [《铁锁梦》打开了世界上对中国人认知](/content/gnews/14/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [中国是一个粮食进口国](/content/gnews/15/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [4/24/2022 文贵直播：蔡英文既不敢强烈反共，又不敢亲共，更不敢跟美国人对着干，而中共却控制了蔡英文身边的绝大多数人，这就是台湾的悲哀以及中共对台湾如此嚣张的原因](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [北京将被封城 压力测试席卷全国](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [上海居民抗议封锁居民楼](/content/gnews/13/README.md)
+### [上海居民抗议封锁居民楼](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [一家三代在俄罗斯导弹袭击中丧生](/content/gnews/14/README.md)
+### [一家三代在俄罗斯导弹袭击中丧生](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [高人的境界](/content/gnews/15/README.md)
- ` 加拿大温哥华英里农场`
-
-### [打榜两首歌是奇迹](/content/gnews/16/README.md)
- ` 加拿大温哥华英里农场`
-
-### [它一定会成为中国有史以来最为流行的歌](/content/gnews/17/README.md)
- ` 加拿大温哥华英里农场`
-
-### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松](/content/gnews/18/README.md)
+### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松](/content/gnews/20/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记](/content/gnews/19/README.md)
+### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推特将接受马斯克最初的430亿美元报价](/content/gnews/20/README.md)
+### [推特将接受马斯克最初的430亿美元报价](/content/gnews/22/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共媒体断章取义歪曲报道泽连斯基答中共记者的恶意提问](/content/gnews/21/README.md)
+### [中共媒体断章取义歪曲报道泽连斯基答中共记者的恶意提问](/content/gnews/23/README.md)
  ` mayflowertranslate`
 
-### [【修罗短评】学者无风骨，育人毁天下](/content/gnews/22/README.md)
+### [【修罗短评】学者无风骨，育人毁天下](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线 : 马斯克即将点燃Twitter 的火箭](/content/gnews/23/README.md)
+### [秘翻在线 : 马斯克即将点燃Twitter 的火箭](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的](/content/gnews/24/README.md)
+### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的](/content/gnews/26/README.md)
  ` 经济小组`
 
-### [封校日志](/content/gnews/25/README.md)
+### [封校日志](/content/gnews/27/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [台湾大学江晃荣博士站出来公开反对毒疫苗（三）](/content/gnews/26/README.md)
+### [台湾大学江晃荣博士站出来公开反对毒疫苗（二）](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾大学江晃荣博士站出来公开反对毒疫苗（二）](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [无苗灭共者必要之德性](/content/gnews/28/README.md)
+### [无苗灭共者必要之德性](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧](/content/gnews/29/README.md)
+### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [崇祯自缢看中共下场](/content/gnews/30/README.md)
- ` 波士顿五月花农场`
 
 ### [新视频出现后，普京的健康猜测加剧](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`

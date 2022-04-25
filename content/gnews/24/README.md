@@ -2,77 +2,40 @@
 ---
 
 
-## 新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的
-` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2411918/)
+## 【修罗短评】学者无风骨，育人毁天下
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2411930/)
 
-作者：日本东京樱花团农场-小雨Rain；美国纽约香草山农场-ILOVE战神
+**作者:修罗闻道**
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/a8a581cd-b718-4ba5-ba1a-7454651729ec.jpg?asset_id=6c6adb54-4c49-4f11-bcd3-72ac6d53ebfe&amp;img_etag=%22defd2e335ac1d074acb862359aea1e5e%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/a8a581cd-b718-4ba5-ba1a-7454651729ec.jpg?asset_id=6c6adb54-4c49-4f11-bcd3-72ac6d53ebfe&amp;img_etag=%22defd2e335ac1d074acb862359aea1e5e%22&amp;size=1024)来源网络
+上海封城已经持续一个多月了，种种惨剧不断传来。对于每位爆料革命的战友来说，虽然早已预见这炼狱般的惨状，但内心还是会被心疼、心寒、惋惜与愤恨等种种情绪困扰。五年了，我们跟着郭先生知道了太多，也学会了太多。越是可以预知灾难，越是容易感到不安，因为我们无法阻止灾难，无法改变所有人的认知。
 
-2022年1月25日，全球最知名的女股神，方舟基金的创始人，被称为女版巴菲特的木头姐，公开了2022年达132页的投资大思路报告。
+郭先生曾在大直播中说，再大的苦难也要学会平静的接受。今天看到一封求助信，我却还是忍不住破防了。不是因为心疼，而是因为愤怒。一封短短的信，仿佛展示了这罪恶的根源，是平庸之恶在苦苦哀求，是无信仰之灵在悲惨的挣扎。
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/1f2c7b1b-56b9-4500-a560-b21905a5086d.jpg?asset_id=284ffadf-63bb-4395-8d38-7b01fecf6552&amp;img_etag=%2229f7ab02d3f09eced672b3b8be0f43ec%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/1f2c7b1b-56b9-4500-a560-b21905a5086d.jpg?asset_id=284ffadf-63bb-4395-8d38-7b01fecf6552&amp;img_etag=%2229f7ab02d3f09eced672b3b8be0f43ec%22&amp;size=1024)
+这封流传甚广的求助信，落款是同济北苑业委会。中间有一句小区业主的描述的求助者为“200多位教授、专家、博士后、院士、副部级待遇的领导”。这种文字上的小聪明，被体制内可谓玩得炉火纯青，必须先表明自己的身份和要性。可谓，无声之处见无耻。
 
-该报告绝对是股神级别团队的水平! 最核心的用词就是Disruptive Innovation，说好听，就是颠覆性创新；说不好听，就是破坏性创新；商业游戏规则全变了。
+求助信中一副卑微的嘴脸，低三下四的姿态。只不过为了一口吃食，细细读来，甚觉可悲。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片34-2.png)
+贪生怕死、卑微懦弱、摇尾乞怜……很难用文字描述得清楚，这字里行间流露的是下作与可笑。
 
-报告从商业游戏规则改变的速度，跨行业和市场份额的曝光，不确定和不知道性，合规合法障碍，政治法律压力以及竞争版图等六方面，以全面详细的数据阐明：2022年，是一个颠覆性创新年。
+曾几何时，学者乃是国家风骨之楷模，高级知识分子是一个社会风气的引领者和塑造者。再看看这些被关在了上海巨型监狱的所谓教授、专家、院士、副部级领导，他们只知道自己面临的窘迫，可曾想到没有这些所谓名头的普通百姓是如果过活的？
 
-其中最引人注目的，就是新中国联邦G生态已经做成的几个投资标的物——区块链的公链和私链，数字货币，数字钱包，数字支付系统，去中心化金融，网络3.0，稳定币，社交媒体，社交商业 …..
+作为高级知识分子，应该拥有更宽广的视野，更多的信息渠道，更客观的判断力，也应该有更多的发声管道和影响力，而如今，都做了什么呢？连个写“上海日记”的都没有。那些平常在上海品着咖啡的所谓作家呢？指点江山、纵横经济的学者都在干什么呢？就只会为了自己的生存而摇尾乞怜吗？你们口中的胸怀天下呢？那股小资与傲慢去哪里了？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片35-42.png)
+近年来，中共国的所谓专家、教授、院士们可曾关心过百姓？可曾批评过政府？上海所谓的“清零防疫政策”造成的次生灾害已经导致数以万计的百姓失去生命，而你们还在装睡。现在终于轮到自己也挨饿了，才像猪一般的哀嚎几声。拥有五千年历史的华夏文明正在遭遇最黑暗的一百年，在中共马列主义和共产主义培育下的知识分子们，是多么的可悲的存在。
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/1522f36a-49d0-43c8-a7ac-3fe31c0817aa.png?asset_id=fae45631-8d97-41ea-9660-8fd11833accf&amp;img_etag=%22dc584e744f64d7c0f6de249ae966e6f7%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/1522f36a-49d0-43c8-a7ac-3fe31c0817aa.png?asset_id=fae45631-8d97-41ea-9660-8fd11833accf&amp;img_etag=%22dc584e744f64d7c0f6de249ae966e6f7%22&amp;size=1024)
+再看看上海现政府的管理人员，有多少都是你们的学生、子弟，在你们的教诲下，这些人学成了什么德行？这群所谓的现任领导将一所国际大都市生生困成了人间炼狱。
 
-未来的网络不再是中心化公司拥有的网络，而是全球使用者拥有的网络。
+无信仰、无骨气的教授、专家和院士们，这座城市发生的一切罪恶，都有你们的一份。雪崩时，没有一片雪花觉得自己有责任，然而，雪崩时，没有任何一片雪花是无辜的。天道有轮回，上海的封城证明了，在中共的独裁专制统治之下，任何人都可以是下一个受害者。
 
-网络上每一个数字货币使用者，值$22,500美金；
+*编辑：【英国伦敦喜庄园编辑部】*
 
-到2026年，数字钱包市值达5.7万亿美金，在2021年市值仅4000万美金。
+*校对：仙女儿-文善 | 审核：文明明 | Page: Daoiii*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片36-4.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片37-19.png)
-
-其他投资的标的物还有，全息医学图谱，生物基因编辑，电动车，自动叫车服务，自动物流， 3D打印和机器人，轨道式太空等。
-
-报告大篇幅介绍了比特币和以太坊的生态系统。其中给出估算，至2030年，一个比特币的价值将超过100万美金。报告称，由于以太坊去中心化的金融体系和智能合约下的同质和非同质化代币(NFT)等将取代传统金融体系，十年内，以太坊的市值将超过20万亿美金。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片38-5.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片39-24.png)
-
-报告指出，随着Web 3.0 时代的到来，数字资产将在人们的消费中占据越来越大的份额，而NFT为数字资产的所有权提供了一个稳定的全球框架。NFT的销售量在2021年达到210亿美元。而以太坊则是NFT发行以及交易的主要平台。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片40-2.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片41-12.png)
-
-虽然报告对比特币和以太坊生态系统的优点分析透彻，但并没有对它们可能面临的各国政府监管挑战做出分析。相比之下，喜马拉雅币背后负责任的生态系统，严格的KYC，中心化的管理，去中心化的技术，高效的支付系统以及庞大的实体商品流通生态圈将使它在未来广阔的数字货币市场中占领巨大的份额，并且面对政府监管的阻力会小的多。郭文贵先生最近在盖特视频中表示，喜币将会成为全世界最流行、最早的数字法币。
-
-整篇报告，令我印象最深的几个关键词，除了颠覆创新外，还有协调融合，技术信用，数字世界等。
-
-总之，在全球知名女股神方舟基金出具的2022年投资报告中，有一半以上的投资标的物，都在新中国联邦的G系列中做出来啦！并且在稳步的健康扩张中。
-
-我想起了郭先生经常说的话，新中国联邦人，不仅有创造财富的智慧，而且有实现财富的行动力。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片42-2.png)
-
-感恩爆料革命和新中国联邦！
-
-参考链接：
-
-
-
-> [Big Ideas 2022](https://ark-invest.com/big-ideas-2022/)
-
-
-
-[https://gettr.com/post/p14y3tsd6bc](https://gettr.com/post/p14y3tsd6bc)
-
-[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
-
-*校对/发稿：飞虹*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-18.jpg)
-
-
-
+[![](https://express.adobe.com/page/WZO1K2DumS4tI/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)](https://express.adobe.com/page/WZO1K2DumS4tI/images/60e5ab43-049c-40a9-a871-3279e8ceb7fb.jpg?asset_id=349c53dd-15da-44be-959a-aad539d78c7b&amp;img_etag=%22a5df03ac55e200afc67e63dfc4f1ff11%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
