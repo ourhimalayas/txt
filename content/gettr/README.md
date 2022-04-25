@@ -17,17 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/25/2022 12:24 PM (UTC)`
+`@miles 4/25/2022 12:33 PM (UTC)`
 
-4月25号：不让七哥蒙对了……刚刚调下飞机的那个村村子的村长(吴红旗)先生被消失了……是真的吗？就因为他起了这样的名字．就应该被消失吗？龙口变龟头起个名也犯法……<br/><br/>马上在中共国．说英文讲英文都将是卖国罪……这是什么世道？【冥币兑美元，上证指数，恒生指数今日全部暴跌】
-![img](https://media.gettr.com/group31/getter/2022/04/25/12/62a313f4-19a3-c796-2e74-1514c3ca0d0f/3bd46af32a1085c5551fe2d12e6d9164.jpg)
+2022.04.25 早  新中国联邦 | 新闻   梅迪卡新中国联邦广告牌希望之光重现；美国SSF救援组织义工称赞新中国联邦
+![img](https://media.gettr.com/group33/origin/2022/04/25/12/8317ce98-b971-d56b-0faa-b4a504527153/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
-`@miles 4/25/2022 12:21 PM (UTC)`
+`@miles 4/25/2022 12:31 PM (UTC)`
 
-4月25号：不让七哥蒙对了……刚刚调下飞机的那个村村子的村长(吴红旗)先生被消失了……是真的吗？就因为他起了这样的名字．就应该被消失吗？龙口变龟头起个名也犯法……<br/><br/>马上在中共国．说英文讲英文都将是卖国罪……这是什么世道？【冥币兑美元，上证指数，恒生指数今日全部暴跌】
-![img](https://media.gettr.com/group29/getter/2022/04/25/12/3bc404ec-bbaf-c72b-8b68-f3f6671cba10/754c688176c3f57f2fc86264903cba11.jpg)
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月24日第51天当日救援统计：<br/>Medyka救援站接待：约138人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约14309人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 51 - Date: April 24, 2022 :<br/>Medyka Rescue Station Reception: about 138 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 14309 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group12/getter/2022/04/25/12/334e00de-68cc-eb38-ba35-48a1915ef5d6/15c1cf9a1fb5796a8dbaf64334413703.jpg)
+
+---
+
+`@miles 4/25/2022 12:27 PM (UTC)`
+
+4月25号：又让七哥蒙对了……刚刚掉下飞机的那个村村子的村长(吴红旗)先生被消失了……是真的吗？就因为他起了这样的名字．就应该被消失吗？龙头建筑变龟头……起个名也犯法……<br/><br/>马上在中共国．说英文．讲英文都将是卖国罪……这是什么世道？【冥币兑美元，上证指数，恒生指数今日全部暴跌】
+![img](https://media.gettr.com/group32/getter/2022/04/25/12/55330a6e-ab82-0f60-c542-f81190676f0c/d9b58156a6b5166f4e79660b215b6d39.jpg)
 
 ---
 
@@ -151,13 +158,6 @@
 
 “台湾，别怂，硬起来！！” 飞飞秀救援快报 2022-04-24<br/>For English：gettr.com/streaming/p16xrpoe708
 ![img](https://media.gettr.com/group25/origin/2022/04/24/22/7863877e-a3ab-f1d8-e7ef-54a573876687/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/24/2022 9:12 PM (UTC)`
-
-2022.04.24  新中国联邦 | 喜健康   “连花清瘟，中药神话还是全民骗局？
-![img](https://media.gettr.com/group49/origin/2022/04/24/21/c8f7ccbf-7c5b-c6c3-4d7e-48d487b72b16/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

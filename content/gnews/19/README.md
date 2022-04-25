@@ -2,36 +2,24 @@
 ---
 
 
-## 澳防长：维护和平必须做好战争准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2410603/)
+## 中日财经爆｜沪指大跌失守3000点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2410749/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+撰稿：东京樱花团/爆料大王
 
-#### 整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3164.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fk.sinaimg.cn%2Fn%2Ftranslate%2F110%2Fw580h330%2F20181011%2F9mn8-hkrzvkw6119688.jpg%2Fw700h350z1l10t108bc.jpg&amp;imgrefurl=https%3A%2F%2Fnews.google.com%2Farticles%2FCBMiVGh0dHA6Ly9maW5hbmNlLnNpbmEuY29tLmNu)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-155.png)图片来源：网络
+当地时间4月25日A股三大指数低开低走，早盘市场震荡下挫，沪指频频考验3000点整数关口，地产、金融异动“护盘”，深成指、创业板指盘中一度跌超3％，午前跌幅略有收窄；午后A股再度走弱，沪指击穿3000点并跌超5％刷新2020年7月以来新低，深成指跌超6％。
 
+截至收盘，沪指跌5.13％，报2928.51点，深成指跌6.08％，报10379.28点，创业板指跌5.56％，报2169点。沪深两市合计成交额8969亿元；北向资金实际净卖出43.96亿元。两市股涨停，股跌停（含ST股），超过4600只个股下跌，约1900股跌超9％。
 
-所罗门群岛与中共签署的军事协议让澳大利亚担忧中共可能在澳洲家门口建立军事基地，直接威胁国家安全。澳大利亚国防部长达顿（Peter Dutton）对此表示，维护太平洋地区和平的唯一途径就是做好战争的准备。
+行业板块全线飘绿，工程咨询服务、银行、航空机场、证券、工程建设等跌幅相对较小，船舶制造、小金属、计算机设备、航天航空、能源金属等跌幅靠前；题材方面，肝素、超级品牌、券商、地下管网等概念相对活跃。
 
-达顿（Peter Dutton）部长表示：“我们不应该想当然地认为，澳新军团，或那些在第二次世界大战中，在越南，中东等地区的每一场冲突中所做出的牺牲，可以在某种程度上，使本地区永远不再发生冲突。我们必须现实一点，像希特勒这样的人并不只存在于我们的想像中或历史之中”
+消息来源：[收评：沪指大跌5.13%失守3000点，两市超4600只个股下跌 – 今日头条](https://www.toutiao.com/article/7090433996550734349/?app=news_article&amp;timestamp=1650876560&amp;use_new_style=1&amp;req_id=202204251649190101420410291C13DDF1&amp;group_id=7090433996550734349&amp;share_token=8ce0dbc6-6869-4359-9e2e-ee097f665e7a&amp;tt_from=copy_link&amp;utm_source=)
 
-在澳新军团日纪念活动举办前，澳洲总理莫里森接受《澳洲人报》采访时说：“（中共是否建立军事基地）是大家共同关心的问题，不仅仅是澳洲，这是澳洲和本地区国家的政府，特别是像斐济和巴布亚新几内亚这样的国家（也关心的问题）。”
-
-“与我们的新西兰伙伴，当然还有美国伙伴一起合作，在涉及到这些问题时，我与美国有着同样的红线。”
-
-在澳新军团日前夕，澳洲总理莫里森警告说，中共如果在所罗门群岛建立军事基地将触碰澳洲和美国的“红线”
-
-参考链接：[澳防长：为战争做好准备才能维护和平](https://www.epochtimes.com/gb/22/4/25/n13719762.htm)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
