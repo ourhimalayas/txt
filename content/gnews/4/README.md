@@ -2,11 +2,11 @@
 ---
 
 
-## 俄乌战争完以后中共国也会解体，以及中共国解体后俄国人和中国人的不同境遇（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408032/)
+## 世界格局面临重新洗牌（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408073/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：30-09：40-005-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：50-10：00-002-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

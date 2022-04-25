@@ -2,21 +2,20 @@
 ---
 
 
-## 上海連夜加裝鐵絲網硬隔離，把老百姓家大門焊起來。有網友稱上海要變動物園嗎？
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2407984/)
+## 共产党新时代的国家管理模式-只要有人上街一闹就封城，共产党像对待猪一样对待中国人民
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408047/)
 
-作者：东京樱花团小视频组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
+*发布：陶子*
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-
-
-
-
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

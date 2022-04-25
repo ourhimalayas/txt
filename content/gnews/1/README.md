@@ -2,11 +2,11 @@
 ---
 
 
-## 蔡英文的骑墙派政治作风是台湾的悲哀（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408041/)
+## 世界格局面临重新洗牌（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408086/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：40-09：50-002.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：50-10：00-004-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

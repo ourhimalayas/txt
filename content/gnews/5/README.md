@@ -2,11 +2,11 @@
 ---
 
 
-## 俄乌战争完以后中共国也会解体，以及中共国解体后俄国人和中国人的不同境遇（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408031/)
+## 关于南希佩洛西议长到访台湾的情报
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2408061/)
 
 **PPT制作：小蜗牛；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09：30-09：40-004-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09：50-10：00-001-1.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：
