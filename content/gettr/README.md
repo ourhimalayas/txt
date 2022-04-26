@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p176hi18835.md)
+
+4月26号：尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！
+
+<img src="https://media.gettr.com/group42/getter/2022/04/26/14/9451c9c5-5161-20b5-493d-c1e843657310/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 1:23 PM UTC  - :tv:直播](/content/gettr/p175qxf13c6.md)
 
 Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese people are different from the Chinese Communist Party (CCP) and the new Chinese are working to take down the CCP. He introduced the rescue efforts by the...
@@ -26,11 +34,11 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 
 ---
 
-[@miles 4/26/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p176hi18835.md)
+[@miles 4/26/2022 4:15 PM UTC  - :tv:直播](/content/gettr/p176k6e235f.md)
 
-4月26号：尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！
+4/24/2022 Miles Guo: If the CCP attacks Taiwan, the US will provide weapons for Taiwan to bomb the cities in mainland China such as Beijing; the arrogance of people in Beijing will make their lives even worse than those in Shanghai...
 
-<img src="https://media.gettr.com/group42/getter/2022/04/26/14/9451c9c5-5161-20b5-493d-c1e843657310/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/04/26/16/2b768360-9805-fbbc-f028-3017c8755d7b/out.jpg" width="506" height="284">
 
 ---
 
@@ -95,14 +103,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p1732ara1b0.md)
-
-4/24/2022 Miles Guo: Fellow fighter Nicole talked about extreme leftists at the Ukraine rescue front line cursing our fellow fighters, smearing the Whistleblowers' Movement, and faking an accident and attempting to blame it on our ...
-
-<img src="https://media.gettr.com/group25/getter/2022/04/25/23/0749c2dd-cbad-819e-1394-279ac80446ab/out.jpg" width="506" height="284">
 
 ---
 
