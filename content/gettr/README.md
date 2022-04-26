@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 1:23 PM UTC  - :tv:直播](/content/gettr/p175qxf13c6.md)
+
+Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese people are different from the Chinese Communist Party (CCP) and the new Chinese are working to take down the CCP. He introduced the rescue efforts by the...
+
+<img src="https://media.gettr.com/group48/origin/2022/04/26/13/6049d4fd-abef-633c-c717-2fc54cc916ad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 1:11 PM UTC  - :tv:直播](/content/gettr/p175ajw7246.md)
 
 2022.04.26 早  新中国联邦 | 新闻访谈   中共国重回统购统销计划经济时代；中共外汇局强调人民币资产具长期投资价值
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/26/2022 1:23 PM UTC  - :tv:直播](/content/gettr/p175qxf13c6.md)
+[@miles 4/26/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p176hi18835.md)
 
-Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese people are different from the Chinese Communist Party (CCP) and the new Chinese are working to take down the CCP. He introduced the rescue efforts by the...
+4月26号：尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！
 
-<img src="https://media.gettr.com/group48/origin/2022/04/26/13/6049d4fd-abef-633c-c717-2fc54cc916ad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/04/26/14/9451c9c5-5161-20b5-493d-c1e843657310/out.jpg" width="506" height="284">
 
 ---
 
@@ -87,14 +95,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17367w5fa5.md)
-
-4/24/2022 Miles Guo: There will be a huge shift of world geopolitical landscape post the Russia-Ukraine war and the demise of the CCP; the SWIFT sanction on Russia is a double-edged sword, which prompted almost two-thirds of the co...
-
-<img src="https://media.gettr.com/group3/getter/2022/04/25/23/9d78e8cc-c0e2-7d29-9212-d0bbf35eccd2/out.jpg" width="506" height="284">
 
 ---
 
