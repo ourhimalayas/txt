@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 4/26/2022 4:47 PM UTC ](/content/gettr/p176mvsf553.md)
+
+04/26/2022 on the 8th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+
+
+No.1🥇 on Hong Kong🇭🇰,Germany🇩🇪 and Cambodia🇰🇭 Top Music Video Charts 
+
+No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts 
+
+...
+
+---
+
 [@miles 4/26/2022 4:15 PM UTC  - :tv:直播](/content/gettr/p176k6e235f.md)
 
 4/24/2022 Miles Guo: If the CCP attacks Taiwan, the US will provide weapons for Taiwan to bomb the cities in mainland China such as Beijing; the arrogance of people in Beijing will make their lives even worse than those in Shanghai...
@@ -42,17 +56,13 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 
 ---
 
-[@miles 4/26/2022 4:47 PM UTC ](/content/gettr/p176mvsf553.md)
+[@sunrise 4/26/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1751ih4d04.md)
 
-04/26/2022 on the 8th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+快板三句半《中共疫情封条》
 
+# 中共疫情封条#曲艺花苑#快板
 
-
-No.1🥇 on Hong Kong🇭🇰,Germany🇩🇪 and Cambodia🇰🇭 Top Music Video Charts 
-
-No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts 
-
-...
+<img src="https://media.gettr.com/group11/origin/2022/04/26/06/7de64904-eaa1-fc69-f0f7-15f62ccbd067/out.jpg" width="506" height="284">
 
 ---
 
@@ -117,14 +127,6 @@ No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p1730omf59a.md)
-
-4/24/2022 Miles Guo: After the demise of the CCP, the Chinese people can neither survive in their own land nor be accepted by the world. The existence of the CCP will only accelerate the advent of the era of cannibalism. Too many C...
-
-<img src="https://media.gettr.com/group6/getter/2022/04/25/23/57b232a4-624f-4c3b-8572-4699709d23be/out.jpg" width="506" height="284">
 
 ---
 
