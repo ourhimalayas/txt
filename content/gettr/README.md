@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p17594j67ad.md)
+
+2022-4-26《避风港》(40) 疫苗接种剂数与高死亡率正相关
+
+<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 6:35 PM UTC  - :tv:直播](/content/gettr/p1778510abc.md)
 
 【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/26/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p17594j67ad.md)
+[@miles 4/26/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p177n4k249c.md)
 
-2022-4-26《避风港》(40) 疫苗接种剂数与高死亡率正相关
+2022.04.26  新中国联邦 | 喜健康   Omicron 感染与再感染的预防和上期兽药伊维菌素澄清答疑
 
-<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/04/26/20/bc962440-5712-8ef1-8f9e-3ca5136362f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group39/origin/2022/04/26/04/e580d40d-47ed-436e-38c4-cefa5e88fa89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 4:33 AM UTC  - :tv:直播](/content/gettr/p17500xd9e6.md)
-
-4/24/2022 Miles Guo: The COVID vaccines have caused the number of cancer cases to soar in Beijing, Changchun, Zhengzhou, Wuhan, and even in Europe and America. The biggest challenge faced by humanity is the COVID vaccine disaster. ...
-
-<img src="https://media.gettr.com/group42/getter/2022/04/26/04/e06038ec-f8ff-1bad-b5a3-118ef4068a1c/out.jpg" width="506" height="284">
 
 ---
 
