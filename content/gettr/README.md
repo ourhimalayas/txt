@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/25/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1723520b8a.md)
+
+2022.04.25  新中国联邦 | 喜健康   二氧化氯: 川普总统说的消毒剂，能抗击冠状病毒和毒疫苗吗？
+
+<img src="https://media.gettr.com/group46/origin/2022/03/29/20/a67ef18a-9c0f-1adf-e14a-b8c60d81f78c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p175gsk1df8.md)
+
+2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
+
+<img src="https://media.gettr.com/group31/origin/2022/04/26/11/f9b8ba21-c9db-7fc1-01c5-0b0458893a4e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p174u6nfae2.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -23,14 +39,6 @@
 4/24/2022 Miles Guo: The COVID vaccines have caused the number of cancer cases to soar in Beijing, Changchun, Zhengzhou, Wuhan, and even in Europe and America. The biggest challenge faced by humanity is the COVID vaccine disaster. ...
 
 <img src="https://media.gettr.com/group42/getter/2022/04/26/04/e06038ec-f8ff-1bad-b5a3-118ef4068a1c/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p175gsk1df8.md)
-
-2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
-
-<img src="https://media.gettr.com/group31/origin/2022/04/26/11/f9b8ba21-c9db-7fc1-01c5-0b0458893a4e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ For English：gettr.com/streaming/p172l9k470e
 而当下即将爆发大规模疫苗灾难更是邪恶中共有理由的不知不觉的进入计划经济政府统购统销了。
 
 <img src="https://media.gettr.com/group32/getter/2022/04/26/00/5b2939cc-a0dc-b2c0-d0e8-aea286d98be4/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p1737bm9574.md)
-
-2022.04.25 晚  新中国联邦 | 新闻访谈  西藏流亡政府议会主任图登旺臣在梅迪卡前线接受战友妮可采访
-
-<img src="https://media.gettr.com/group33/origin/2022/03/29/01/808684b3-1109-5442-fbd5-d0a88d5bd753/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
