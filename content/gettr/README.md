@@ -2,11 +2,61 @@
 ---
 
 
+[@miles 4/26/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p177sh2b359.md)
+
+4/26/2022 Miles Guo's GETTR: Many people asked about my views on the acquisition of Twitter by Elon Musk. Elon Musk is a smart guy and he will for sure come out several brilliant ideas, but no one can wipe off the influence of the ...
+
+<img src="https://media.gettr.com/group15/getter/2022/04/26/23/ded40a39-bbec-09a5-c7f9-cc0886d026b6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p178l1l9446.md)
 
 2022.04.26  PM NFSC news  CCP Virus Vaccinated American Airlines Pilot Goes Into Cardiac Arrest
 
 <img src="https://media.gettr.com/group15/origin/2022/04/26/22/f3baa2db-7447-f5a5-d716-7b32f8a856a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p178nz552d8.md)
+
+
+
+4月26号：尊敬的战友们好……感谢你们的关心，今天是个大日子．好日子，一个期盼了五年的新的里程碑的开始，记住今天吧，兄弟姐妹们，一切都已经开始。
+
+<img src="https://media.gettr.com/group25/getter/2022/04/26/23/04a82e9a-1087-c9ba-22a4-1246c802fdf7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 11:14 PM UTC ](/content/gettr/p178p1x4dea.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年4月25日第52天当日救援统计：
+
+Medyka救援站接待：约283人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约14592人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 52 - Date: A...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/26/23/9fa6b9ad-8b1a-bb36-72b8-0855ee751ce3/be875571760b93d7440807a2ca9c6750.jpg" width="506" height="284">
 
 ---
 
@@ -57,38 +107,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
 
 <img src="https://media.gettr.com/group21/getter/2022/04/26/18/b397388d-3c86-d1a5-5181-657877793d70/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:14 PM UTC ](/content/gettr/p178p1x4dea.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月25日第52天当日救援统计：
-
-Medyka救援站接待：约283人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约14592人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 52 - Date: A...
-
-<img src="https://media.gettr.com/group6/getter/2022/04/26/23/9fa6b9ad-8b1a-bb36-72b8-0855ee751ce3/be875571760b93d7440807a2ca9c6750.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +195,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.26 早  新中国联邦 | 新闻访谈   中共国重回统购统销计划经济时代；中共外汇局强调人民币资产具长期投资价值
 
 <img src="https://media.gettr.com/group29/origin/2022/04/26/13/58e7eb85-021a-fdec-b37f-3e96532e4bd0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/26/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p175ajgc69c.md)
-
-2022.04.26 早 新中国联邦 | 新闻  俄乌边境城市储油设施爆炸起火；灭共是中国女权运动的开始；助共为虐 恶有恶报 419群丑图；中共股市汇市楼市三大皆空
-
-<img src="https://media.gettr.com/group30/origin/2022/04/26/12/bd2ff4e1-0439-b981-7ed1-fce5ada16f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p175gsk1df8.md)
-
-2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
-
-<img src="https://media.gettr.com/group31/origin/2022/04/26/11/f9b8ba21-c9db-7fc1-01c5-0b0458893a4e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
