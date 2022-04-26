@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p177n4k249c.md)
+
+2022.04.26  新中国联邦 | 喜健康   Omicron 感染与再感染的预防和上期兽药伊维菌素澄清答疑
+
+<img src="https://media.gettr.com/group15/origin/2022/04/26/20/bc962440-5712-8ef1-8f9e-3ca5136362f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p17594j67ad.md)
 
 2022-4-26《避风港》(40) 疫苗接种剂数与高死亡率正相关
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 4/26/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p177n4k249c.md)
+[@miles 4/26/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p177at8208d.md)
 
-2022.04.26  新中国联邦 | 喜健康   Omicron 感染与再感染的预防和上期兽药伊维菌素澄清答疑
+A volunteer from Italy is interested in our vest (take down the CCP) and is interviewed by Nicole. He has lived in Xiamen, China for a few years as an English teacher. He is very surprised to see the new Chinese people here who are...
 
-<img src="https://media.gettr.com/group15/origin/2022/04/26/20/bc962440-5712-8ef1-8f9e-3ca5136362f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/04/26/21/905a622f-7134-e200-dd29-6cc57145142e/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group39/origin/2022/04/26/04/e580d40d-47ed-436e-38c4-cefa5e88fa89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p174e1ea124.md)
-
-4/24/2022 Miles Guo: The biggest possibility after the CCP invades Taiwan is that it will be destroyed instantaneously, and the U.S. aircraft carriers will dock in Taiwan in the long run. The so-called virus outbreak in Taiwan now ...
-
-<img src="https://media.gettr.com/group23/getter/2022/04/26/04/3b672218-617f-8fa1-3f88-885715203c81/out.jpg" width="506" height="284">
 
 ---
 
