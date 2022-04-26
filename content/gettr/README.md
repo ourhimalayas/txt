@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 4:15 PM UTC  - :tv:直播](/content/gettr/p176k6e235f.md)
+
+4/24/2022 Miles Guo: If the CCP attacks Taiwan, the US will provide weapons for Taiwan to bomb the cities in mainland China such as Beijing; the arrogance of people in Beijing will make their lives even worse than those in Shanghai...
+
+<img src="https://media.gettr.com/group33/getter/2022/04/26/16/2b768360-9805-fbbc-f028-3017c8755d7b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p176hi18835.md)
 
 4月26号：尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！
@@ -34,11 +42,17 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 
 ---
 
-[@miles 4/26/2022 4:15 PM UTC  - :tv:直播](/content/gettr/p176k6e235f.md)
+[@miles 4/26/2022 4:47 PM UTC ](/content/gettr/p176mvsf553.md)
 
-4/24/2022 Miles Guo: If the CCP attacks Taiwan, the US will provide weapons for Taiwan to bomb the cities in mainland China such as Beijing; the arrogance of people in Beijing will make their lives even worse than those in Shanghai...
+04/26/2022 on the 8th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
 
-<img src="https://media.gettr.com/group33/getter/2022/04/26/16/2b768360-9805-fbbc-f028-3017c8755d7b/out.jpg" width="506" height="284">
+
+
+No.1🥇 on Hong Kong🇭🇰,Germany🇩🇪 and Cambodia🇰🇭 Top Music Video Charts 
+
+No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts 
+
+...
 
 ---
 
@@ -103,14 +117,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:19 PM UTC  - :tv:直播](/content/gettr/p173aazedb6.md)
-
-4/24/2022 Miles Guo: Nancy Pelosi has the incentive to visit Taiwan while she is still in power, and her visit will aid the midterm elections. Nancy Pelosi certainly can see through the CCP's trick of having her postpone the visit....
-
-<img src="https://media.gettr.com/group7/getter/2022/04/25/23/760fc936-d052-89ba-9dba-1b5573f78ba6/out.jpg" width="506" height="284">
 
 ---
 
