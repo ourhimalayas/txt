@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p177at8208d.md)
+
+A volunteer from Italy is interested in our vest (take down the CCP) and is interviewed by Nicole. He has lived in Xiamen, China for a few years as an English teacher. He is very surprised to see the new Chinese people here who are...
+
+<img src="https://media.gettr.com/group44/origin/2022/04/26/21/905a622f-7134-e200-dd29-6cc57145142e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p177n4k249c.md)
 
 2022.04.26  新中国联邦 | 喜健康   Omicron 感染与再感染的预防和上期兽药伊维菌素澄清答疑
@@ -34,11 +42,13 @@
 
 ---
 
-[@miles 4/26/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p177at8208d.md)
+[@miles 4/26/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p177wv6528f.md)
 
-A volunteer from Italy is interested in our vest (take down the CCP) and is interviewed by Nicole. He has lived in Xiamen, China for a few years as an English teacher. He is very surprised to see the new Chinese people here who are...
+“多维网自宫了...” 飞飞秀救援快报 2022-04-26
 
-<img src="https://media.gettr.com/group44/origin/2022/04/26/21/905a622f-7134-e200-dd29-6cc57145142e/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p178b8rad46
+
+<img src="https://media.gettr.com/group23/origin/2022/04/26/22/02127552-8552-3a57-6cf3-4b9abcc2298f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group39/origin/2022/04/26/04/e580d40d-47ed-436e-38c4-cefa5e88fa89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p174gte15e6.md)
-
-4/24/2022 Miles Guo: Tsai Ing-wen failed to seize the opportunity to fight for the dignity and benefits that Taiwanese truly deserve. The arrogant politicians do not understand Taiwan's values and live by taking chances every day. ...
-
-<img src="https://media.gettr.com/group39/getter/2022/04/26/04/b158d332-4b99-5358-6c6b-7a29c4faa8a0/out.jpg" width="506" height="284">
 
 ---
 
