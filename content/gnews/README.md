@@ -15,56 +15,56 @@
 
 ---
 
-### [绿色和平组织在挪威海域拦截了一艘俄罗斯油轮](/content/gnews/1/README.md)
+### [有声|美国联邦调查局局长称：中共的间谍活动规模史无前例](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|北上广深军管戒严 中共用疫情掩盖疫苗灾难](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|郭文贵先生海外全网粉丝达到1.93亿](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|俄乌战争之后体制内多数人相信新中国联邦能够灭共](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [24小时内两起俄罗斯寡头死亡案件被发现](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [雅典娜时报-第274期](/content/gnews/2/README.md)
+### [绿色和平组织在挪威海域拦截了一艘俄罗斯油轮](/content/gnews/6/README.md)
+ ` 日本东京方舟农场`
+
+### [雅典娜时报-第274期](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第273期](/content/gnews/3/README.md)
+### [雅典娜时报-第273期](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/4/README.md)
+### [中共解体后的状况，排华及华人遭遣返](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/10/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [【G时新闻】俄乌战争后，中俄人民的结局将截然不同](/content/gnews/5/README.md)
+### [【G时新闻】俄乌战争后，中俄人民的结局将截然不同](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [加拿大官员退出G20会议以抗议俄罗斯参与](/content/gnews/6/README.md)
+### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【G叻睇真D】渥太华警方报告显示 ：大卡车运动期间对警方的投诉大部分被驳回](/content/gnews/13/README.md)
+ ` G-时新闻`
+
+### [【G时新闻】美国务卿将访问基辅 讨论武器提供等问题](/content/gnews/14/README.md)
+ ` G-时新闻`
+
+### [五至十一岁儿童入境加拿大将不再需中共病毒测试](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [【G叻睇真D】渥太华警方报告显示 ：大卡车运动期间对警方的投诉大部分被驳回](/content/gnews/8/README.md)
- ` G-时新闻`
-
-### [4/24/2022 文贵直播：中共灭亡后的中国人既无法在自己的土地上生存，又不被世界所接受；中共的存在只会加速人吃人时代的到来](/content/gnews/9/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/24/2022 文贵直播: 出访台湾既是因为Nancy Pelosi有这个权力，也是为了在中期大选中拉选票。Nancy Pelosi看透了中共要她推迟出访的诡计，所以很大概率会突访台湾](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/24/2022 文贵直播：战友Nicole讲述乌克兰救援前线的极左分子辱骂战友，诋毁爆料革命，企图制造事端诬陷战友](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [【G时新闻】美国务卿将访问基辅 讨论武器提供等问题](/content/gnews/12/README.md)
- ` G-时新闻`
-
-### [2018年9月22日 郭文贵先生直播全文字版（合集）](/content/gnews/13/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [五至十一岁儿童入境加拿大将不再需中共病毒测试](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [樱花时政┃北京11区开展核酸检测，或为大封控做准备](/content/gnews/15/README.md)
+### [樱花时政┃北京11区开展核酸检测，或为大封控做准备](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪](/content/gnews/16/README.md)
+### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [【粤语配音】2022年4月24日：中国人因为没有信仰被世界抛弃](/content/gnews/17/README.md)
- ` MOS香港部`
 
 ### [上海新冠&#8221;清零&#8221;](/content/gnews/18/README.md)
  ` The Potomac View`

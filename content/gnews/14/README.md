@@ -2,31 +2,39 @@
 ---
 
 
-## 五至十一岁儿童入境加拿大将不再需中共病毒测试
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2413407/)
+## 【G时新闻】美国务卿将访问基辅 讨论武器提供等问题
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2413452/)
 
-##### 作者：加拿大温哥华扬帆农场 – 风云小哥（采编）、晨熹（编译）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-19.png)
+##### 播  报：加拿大温哥华扬帆农场 – 文广
+视频制作：加拿大温哥华扬帆农场 – Gracelshan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+4月23日，乌克兰总统泽连斯基在首都基辅举行新闻发布会，宣布美国国务卿布林肯和美国国防部长奥斯汀将于24日访问乌克兰首都基辅，此次访问的目的是向俄罗斯和世界展示对乌克兰的支援。
 
-据【全球新闻】4月22日报道， 联邦政府周五表示，从美国东部时间4月25 日凌晨1点始，5至11岁儿童在完全接种疫苗的父母、继父母、监护人或导师陪同下，无需再做入境前中共病毒测试。但12岁及以上已部分接种疫苗或未接种疫苗的旅行者仍需要进行入境前测试。同时，已完全接种疫苗的旅客将不再需要在入境时提供隔离计划。
+泽连斯基总统是在首都地下深处的一个地铁站的站台上举行的新闻发布会。
 
-联邦政府将不再要求在4月25日或之后进入加拿大的完全接种疫苗的旅行者在公共场所佩戴口罩、监测和报告他们是否有症状；如同行者中有测试阳性者，需保留密切接触者和访问地点清单。上述措施指抵加后14天内。此外，所有旅客仍需在抵加72小时内上传旅行和疫苗接种信息，未能提交信息者没有资格获得相关豁免。政府同时表示，所有旅行者都必须在整个行程中继续佩戴口罩。
+这是自俄罗斯军事入侵以来，美国内阁级官员首次进入首都基辅，届时将详细讨论美国进一步向乌克兰提供武器等问题。
 
-[原文链接](https://globalnews.ca/news/8778158/canada-covid-19-border-rule-changes-kids-5-11/)
+泽连斯基总统强调需要其他国家提供更多的武器支持，并呼吁 “如果我们得到足够的武器，我们将很快能够夺回被俄罗]暂时占领的土地”，他说，俄罗斯的入侵已经 “改变了欧洲对乌克兰的态度”，并呼吁亚洲国家更多地参与进来。
 
-上传/发稿 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+泽伦斯基总统透露，4月23日在对乌克兰南部城市敖德萨的导弹袭击中，造成的死亡人数已上升至8人，包括一名三个月大的婴儿。
+
+盖特链接：[https://gettr.com/post/p16xprn5154](https://gettr.com/post/p16xprn5154)
+
+原文链接：[https://gnews.org/zh-hans/2405693/](https://gnews.org/zh-hans/2405693/)
+
+撰稿/翻译/听写 – G时新闻组
+上传/发稿 – 蔚蓝之境
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
 更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 - [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 枫叶快讯](https://gettr.com/user/torontofarmcn)
 - [Gettr: 加拿大温哥华扬帆农场 枫叶财经](https://gettr.com/user/maplefinance)
 - [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Canada_YF_banner_CN-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
