@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 4/26/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p175h4y30e4.md)
+[@miles 4/26/2022 6:35 PM UTC  - :tv:直播](/content/gettr/p1778510abc.md)
 
-04.26.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
 
-<img src="https://media.gettr.com/group20/origin/2022/04/26/17/318ced77-91aa-e358-8c96-6b044fc93d20/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
 
 <img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p175h4y30e4.md)
+
+04.26.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group20/origin/2022/04/26/17/318ced77-91aa-e358-8c96-6b044fc93d20/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022-4-25《鸡血王喜币大作战》 第一百七十六集 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group39/origin/2022/04/26/03/06ab0dc7-e09a-7844-9837-e0bffb0b5441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p173dqj90de.md)
-
-2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
-
-<img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
