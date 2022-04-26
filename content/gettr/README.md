@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p174u6nfae2.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group42/origin/2022/04/26/06/894dc293-5d39-8108-48cb-bdf6186141a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1758qwa69c.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/26/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p174u6nfae2.md)
+[@miles 4/26/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p175gsk1df8.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
 
-<img src="https://media.gettr.com/group42/origin/2022/04/26/06/894dc293-5d39-8108-48cb-bdf6186141a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/04/26/11/f9b8ba21-c9db-7fc1-01c5-0b0458893a4e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -55,14 +63,6 @@
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1723520b8a.md)
-
-2022.04.25  新中国联邦 | 喜健康   二氧化氯: 川普总统说的消毒剂，能抗击冠状病毒和毒疫苗吗？
-
-<img src="https://media.gettr.com/group46/origin/2022/03/29/20/a67ef18a-9c0f-1adf-e14a-b8c60d81f78c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
