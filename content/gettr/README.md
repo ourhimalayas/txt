@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 11:35 PM UTC ](/content/gettr/p178o4u2bb2.md)
+
+4月26号：共产党的老杂毛们……你们准备好了吗？你们所有在海外的盗国财富．都将是被没收．并转给我们新中国联邦……还给中国人民！所有的中国人民必须永远的又自己，现在已经拥有的房子的产权土地却完全不用还所谓的共产党的银行责任和信用卡和贷款，因为中国人民过去的70年被盗走的财富，远远得大于现在人民欠的所谓银行的钱。咱们走看吧……老杂毛呗。https://www.voachinese.com/a/us-seized-Russian-assets-20220426/6...
+
+<img src="https://media.gettr.com/group7/getter/2022/04/26/23/fb4117af-103a-fe54-4b10-87f8f220e6ec/e0c4e3eccf2aeb74d1e6e7ef36e61582.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p177sh2b359.md)
 
 4/26/2022 Miles Guo's GETTR: Many people asked about my views on the acquisition of Twitter by Elon Musk. Elon Musk is a smart guy and he will for sure come out several brilliant ideas, but no one can wipe off the influence of the ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p178l1l9446.md)
+[@miles 4/26/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p178og0eb3a.md)
 
-2022.04.26  PM NFSC news  CCP Virus Vaccinated American Airlines Pilot Goes Into Cardiac Arrest
+2022.04.26 NFSC fringe episode 177
 
-<img src="https://media.gettr.com/group15/origin/2022/04/26/22/f3baa2db-7447-f5a5-d716-7b32f8a856a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/04/26/23/ddca144e-5d5f-c1d7-8a43-7b367c490b08/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +33,14 @@
 4月26号：尊敬的战友们好……感谢你们的关心，今天是个大日子．好日子，一个期盼了五年的新的里程碑的开始，记住今天吧，兄弟姐妹们，一切都已经开始。
 
 <img src="https://media.gettr.com/group25/getter/2022/04/26/23/04a82e9a-1087-c9ba-22a4-1246c802fdf7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p178l1l9446.md)
+
+2022.04.26  PM NFSC news  CCP Virus Vaccinated American Airlines Pilot Goes Into Cardiac Arrest
+
+<img src="https://media.gettr.com/group15/origin/2022/04/26/22/f3baa2db-7447-f5a5-d716-7b32f8a856a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,22 +195,6 @@ No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts
 4月26号：尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！
 
 <img src="https://media.gettr.com/group42/getter/2022/04/26/14/9451c9c5-5161-20b5-493d-c1e843657310/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 1:23 PM UTC  - :tv:直播](/content/gettr/p175qxf13c6.md)
-
-Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese people are different from the Chinese Communist Party (CCP) and the new Chinese are working to take down the CCP. He introduced the rescue efforts by the...
-
-<img src="https://media.gettr.com/group48/origin/2022/04/26/13/6049d4fd-abef-633c-c717-2fc54cc916ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 1:11 PM UTC  - :tv:直播](/content/gettr/p175ajw7246.md)
-
-2022.04.26 早  新中国联邦 | 新闻访谈   中共国重回统购统销计划经济时代；中共外汇局强调人民币资产具长期投资价值
-
-<img src="https://media.gettr.com/group29/origin/2022/04/26/13/58e7eb85-021a-fdec-b37f-3e96532e4bd0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
