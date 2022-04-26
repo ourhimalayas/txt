@@ -2,11 +2,19 @@
 ---
 
 
-[@miles 4/26/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p173dqj90de.md)
+[@miles 4/26/2022 4:33 AM UTC  - :tv:直播](/content/gettr/p17500xd9e6.md)
 
-2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
+4/24/2022 Miles Guo: The COVID vaccines have caused the number of cancer cases to soar in Beijing, Changchun, Zhengzhou, Wuhan, and even in Europe and America. The biggest challenge faced by humanity is the COVID vaccine disaster. ...
 
-<img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/04/26/04/e06038ec-f8ff-1bad-b5a3-118ef4068a1c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 4:37 AM UTC  - :tv:直播](/content/gettr/p174e1ea124.md)
+
+4/24/2022 Miles Guo: The biggest possibility after the CCP invades Taiwan is that it will be destroyed instantaneously, and the U.S. aircraft carriers will dock in Taiwan in the long run. The so-called virus outbreak in Taiwan now ...
+
+<img src="https://media.gettr.com/group23/getter/2022/04/26/04/3b672218-617f-8fa1-3f88-885715203c81/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,35 +26,19 @@
 
 ---
 
-[@miles 4/25/2022 3:27 PM UTC ](/content/gettr/p171bv7017f.md)
+[@miles 4/26/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p173dqj90de.md)
 
-04/25/2022 on the 7th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
-No.1 🥇on 4 countries Top Music Video Charts 
-
-No.1 🥇 on 5 countries Pop Music Video Charts 
-
-Miracle continuous…… 🎉🎉🎉🎉🎉🎉🎉
-
-
-
-Thank...
+<img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
-[@miles 4/25/2022 3:39 PM UTC  - :tv:直播](/content/gettr/p171kchd096.md)
+[@miles 4/26/2022 4:43 AM UTC  - :tv:直播](/content/gettr/p174gte15e6.md)
 
-4/24/2022 Ukraine Rescue: Ever since erecting the 6-meter-high billboard at the rescue camp in Medyka, there have been people who not only verbally abused our fellow fighters, but also attempted to hit and almost injured them. Whil...
+4/24/2022 Miles Guo: Tsai Ing-wen failed to seize the opportunity to fight for the dignity and benefits that Taiwanese truly deserve. The arrogant politicians do not understand Taiwan's values and live by taking chances every day. ...
 
-<img src="https://media.gettr.com/group50/getter/2022/04/25/15/d3ca549d-062d-a995-b1ca-00d28c65bb3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/25/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p171hksed0f.md)
-
-【Ukraine Rescue】04/24/2022  A Christian from Norway worried about the religious freedom of Chinese Christians. He likes Chinese history and culture. Chinese people need a good government for freedom. And the German volunteer said “...
-
-<img src="https://media.gettr.com/group33/getter/2022/04/25/15/6405aebc-3c78-f205-36be-d11593bde902/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/04/26/04/b158d332-4b99-5358-6c6b-7a29c4faa8a0/out.jpg" width="506" height="284">
 
 ---
 
