@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 6:35 PM UTC  - :tv:直播](/content/gettr/p1778510abc.md)
+
+【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
+
+<img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 6:11 PM UTC  - :tv:直播](/content/gettr/p177km9c206.md)
 
 4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/26/2022 6:35 PM UTC  - :tv:直播](/content/gettr/p1778510abc.md)
+[@miles 4/26/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p17594j67ad.md)
 
-【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
+2022-4-26《避风港》(40) 疫苗接种剂数与高死亡率正相关
 
-<img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 4/24/2022 Miles Guo: Tsai Ing-wen failed to seize the opportunity to fight for the dignity and benefits that Taiwanese truly deserve. The arrogant politicians do not understand Taiwan's values and live by taking chances every day. ...
 
 <img src="https://media.gettr.com/group39/getter/2022/04/26/04/b158d332-4b99-5358-6c6b-7a29c4faa8a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p173mon572d.md)
-
-2022-4-25《鸡血王喜币大作战》 第一百七十六集 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group39/origin/2022/04/26/03/06ab0dc7-e09a-7844-9837-e0bffb0b5441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
