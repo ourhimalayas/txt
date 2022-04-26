@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 4/25/2022 2:24 PM UTC  - :tv:直播](/content/gettr/p170k1p67d7.md)
+[@miles 4/26/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p173dqj90de.md)
 
-4/24/2022 Miles Guo: On the one hand, "Xi the Sun" wants to take over TSMC's technologies for the benefit of the CCP, and on the other hand, he wants to take out the chip supply chain to put the world economy in trouble for the sak...
+2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
-<img src="https://media.gettr.com/group47/getter/2022/04/25/14/003e729f-ce5b-fa0f-d573-dd64ade549f0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
