@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 4/26/2022 1:11 PM UTC  - :tv:直播](/content/gettr/p175ajw7246.md)
+
+2022.04.26 早  新中国联邦 | 新闻访谈   中共国重回统购统销计划经济时代；中共外汇局强调人民币资产具长期投资价值
+
+<img src="https://media.gettr.com/group29/origin/2022/04/26/13/58e7eb85-021a-fdec-b37f-3e96532e4bd0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p175gsk1df8.md)
 
 2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
@@ -71,16 +79,6 @@
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p172s9r5dee.md)
-
-“钱多多~~” 飞飞秀救援快报 2022-04-25
-
-For English：gettr.com/streaming/p172l9k470e
-
-<img src="https://media.gettr.com/group41/origin/2022/04/22/22/4f57735b-f5e6-8a68-83ad-db82df07f0b4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
