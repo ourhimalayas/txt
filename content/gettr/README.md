@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/26/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p175h4y30e4.md)
+
+04.26.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group20/origin/2022/04/26/17/318ced77-91aa-e358-8c96-6b044fc93d20/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 5:18 PM UTC  - :tv:直播](/content/gettr/p1778w30c23.md)
+
+4/24/2022 Miles Guo: The CCP's so-called "kill 1000 enemies at the cost of injuring 800 of our own" actually means "at the cost of injuring Lao Baixing". No one in the Zhongnan Pit will ever get harmed! In the eyes of the CCP, Lao ...
+
+<img src="https://media.gettr.com/group30/getter/2022/04/26/17/44bd2b29-fce2-528a-c497-70f00802f03a/out.jpg" width="506" height="284">
+
+---
+
 [@sunrise 4/26/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1751ih4d04.md)
 
 快板三句半《中共疫情封条》
@@ -66,11 +82,11 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 
 ---
 
-[@miles 4/26/2022 5:18 PM UTC  - :tv:直播](/content/gettr/p1778w30c23.md)
+[@miles 4/26/2022 5:50 PM UTC  - :tv:直播](/content/gettr/p176t78798e.md)
 
-4/24/2022 Miles Guo: The CCP's so-called "kill 1000 enemies at the cost of injuring 800 of our own" actually means "at the cost of injuring Lao Baixing". No one in the Zhongnan Pit will ever get harmed! In the eyes of the CCP, Lao ...
+【Ukraine Rescue】04/25/2022 Four Belgian volunteers see many people wearing the “TAKE DOWN the Chinese Communist Party” vest just two hours after they came to Medyka camp. Then they come to ask if they could have one and agree with ...
 
-<img src="https://media.gettr.com/group30/getter/2022/04/26/17/44bd2b29-fce2-528a-c497-70f00802f03a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/04/26/17/2a50f037-6b5f-f146-709c-46ea9962dfbd/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,24 +151,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p172v5a8835.md)
-
-2022.04.25 NFSC fringe episode 176
-
-中文同传：https://gettr.com/streaming/p172ulnba89
-
-<img src="https://media.gettr.com/group28/origin/2022/03/23/23/34c0cd2b-d861-56cb-a06f-9bed9d4e13aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p172qj5026c.md)
-
- 4月25号：尊敬的战友们好·应战友们的要求……录一段SNOW的视频给大家😻SNOW 刚刚洗完澡😘太可爱了……
-
-<img src="https://media.gettr.com/group11/getter/2022/04/25/23/46975459-ef9c-1dd0-7834-b5fbe7781540/out.jpg" width="506" height="284">
 
 ---
 
