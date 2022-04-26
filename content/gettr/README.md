@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 4/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p178l1l9446.md)
+
+2022.04.26  PM NFSC news  CCP Virus Vaccinated American Airlines Pilot Goes Into Cardiac Arrest
+
+<img src="https://media.gettr.com/group15/origin/2022/04/26/22/f3baa2db-7447-f5a5-d716-7b32f8a856a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p177wv6528f.md)
+
+“多维网自宫了...” 飞飞秀救援快报 2022-04-26
+
+For English：gettr.com/streaming/p178b8rad46
+
+<img src="https://media.gettr.com/group23/origin/2022/04/26/22/02127552-8552-3a57-6cf3-4b9abcc2298f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p177at8208d.md)
 
 A volunteer from Italy is interested in our vest (take down the CCP) and is interviewed by Nicole. He has lived in Xiamen, China for a few years as an English teacher. He is very surprised to see the new Chinese people here who are...
@@ -42,13 +60,35 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 
 ---
 
-[@miles 4/26/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p177wv6528f.md)
+[@miles 4/26/2022 11:14 PM UTC ](/content/gettr/p178p1x4dea.md)
 
-“多维网自宫了...” 飞飞秀救援快报 2022-04-26
+新中国联邦·法治基金——乌克兰救援行动报告
 
-For English：gettr.com/streaming/p178b8rad46
 
-<img src="https://media.gettr.com/group23/origin/2022/04/26/22/02127552-8552-3a57-6cf3-4b9abcc2298f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+2022年4月25日第52天当日救援统计：
+
+Medyka救援站接待：约283人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约14592人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 52 - Date: A...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/26/23/9fa6b9ad-8b1a-bb36-72b8-0855ee751ce3/be875571760b93d7440807a2ca9c6750.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +193,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
 
 <img src="https://media.gettr.com/group31/origin/2022/04/26/11/f9b8ba21-c9db-7fc1-01c5-0b0458893a4e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/26/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p174u6nfae2.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group42/origin/2022/04/26/06/894dc293-5d39-8108-48cb-bdf6186141a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1758qwa69c.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group39/origin/2022/04/26/04/e580d40d-47ed-436e-38c4-cefa5e88fa89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
