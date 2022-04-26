@@ -2,6 +2,16 @@
 ---
 
 
+[@sunrise 4/26/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1751ih4d04.md)
+
+快板三句半《中共疫情封条》
+
+# 中共疫情封条#曲艺花苑#快板
+
+<img src="https://media.gettr.com/group11/origin/2022/04/26/06/7de64904-eaa1-fc69-f0f7-15f62ccbd067/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 4:47 PM UTC ](/content/gettr/p176mvsf553.md)
 
 04/26/2022 on the 8th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
@@ -56,13 +66,11 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 
 ---
 
-[@sunrise 4/26/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1751ih4d04.md)
+[@miles 4/26/2022 5:18 PM UTC  - :tv:直播](/content/gettr/p1778w30c23.md)
 
-快板三句半《中共疫情封条》
+4/24/2022 Miles Guo: The CCP's so-called "kill 1000 enemies at the cost of injuring 800 of our own" actually means "at the cost of injuring Lao Baixing". No one in the Zhongnan Pit will ever get harmed! In the eyes of the CCP, Lao ...
 
-# 中共疫情封条#曲艺花苑#快板
-
-<img src="https://media.gettr.com/group11/origin/2022/04/26/06/7de64904-eaa1-fc69-f0f7-15f62ccbd067/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/04/26/17/44bd2b29-fce2-528a-c497-70f00802f03a/out.jpg" width="506" height="284">
 
 ---
 
@@ -127,14 +135,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 11:35 PM UTC  - :tv:直播](/content/gettr/p173bxaf2c5.md)
-
-4/24/2022 Miles Guo: The Russia-Ukraine war has turned Russia’s image of a warrior nation into a nation of cowards and frauds. Russia is bound to disintegrate, with numerous people emigrating abroad. After the dissolution of Commun...
-
-<img src="https://media.gettr.com/group28/getter/2022/04/25/23/f0001528-b2e7-c4fb-c07b-c156492af578/out.jpg" width="506" height="284">
 
 ---
 
