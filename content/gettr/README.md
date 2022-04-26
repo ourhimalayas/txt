@@ -10,13 +10,11 @@
 
 ---
 
-[@miles 4/25/2022 3:10 PM UTC  - :tv:直播](/content/gettr/p170nt7e98e.md)
+[@miles 4/26/2022 3:01 AM UTC  - :tv:直播](/content/gettr/p173mon572d.md)
 
-The NFSC & ROLF
+2022-4-25《鸡血王喜币大作战》 第一百七十六集 嘉宾：青藤、Nick
 
-Ukraine Frontline Rescue Team – News & Updates
-
-<img src="https://media.gettr.com/group19/origin/2022/04/25/15/0c7a9d64-6153-b6fd-2242-4fa12ee23cbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/04/26/03/06ab0dc7-e09a-7844-9837-e0bffb0b5441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
