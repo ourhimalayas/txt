@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1758qwa69c.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group39/origin/2022/04/26/04/e580d40d-47ed-436e-38c4-cefa5e88fa89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 4:33 AM UTC  - :tv:直播](/content/gettr/p17500xd9e6.md)
 
 4/24/2022 Miles Guo: The COVID vaccines have caused the number of cancer cases to soar in Beijing, Changchun, Zhengzhou, Wuhan, and even in Europe and America. The biggest challenge faced by humanity is the COVID vaccine disaster. ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/26/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p1758qwa69c.md)
+[@miles 4/26/2022 7:02 AM UTC  - :tv:直播](/content/gettr/p174u6nfae2.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group39/origin/2022/04/26/04/e580d40d-47ed-436e-38c4-cefa5e88fa89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/04/26/06/894dc293-5d39-8108-48cb-bdf6186141a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -47,14 +55,6 @@
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/25/2022 5:40 PM UTC  - :tv:直播](/content/gettr/p16zzac5534.md)
-
-04.25.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group22/origin/2022/04/25/17/2ee72124-f09b-4d8e-928d-15df055fd1d9/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
