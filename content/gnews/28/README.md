@@ -2,31 +2,26 @@
 ---
 
 
-## 英国向乌克兰派遣特种空勤部队
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2412794/)
+## 美议员呼吁建乌克兰野战医院，以色列启动战地医院
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2412880/)
 
-作者：Naughty(文行)
+#### 选择/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16509122661.png)[图片来源](https://visitukraine.today/)
+据美军时报4月22日报道，美国两党共同建议在乌克兰建立野战医院，以应对伤亡的乌克兰军人和平民。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
+这封由十多名众议院议员撰写的信函在上周五提交给国务卿布林肯（Blinken) 和国防部长奥斯汀（Austin）。信中吁拜登政府在乌克兰边境附近建立野战医院。美联社记录了36起俄罗斯对医疗设施的袭击，其导致医疗伤病者的能力受到影响。
 
-当地时间4月23日，外媒报道称，英国特种空勤部队（SAS）的专家，已被部署到乌克兰西部。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-58.jpg)
-特种空勤部队，简称SAS，是一支精锐的军事力量，训练有素，可以进行特种作战、监视和反恐。据内部人士透露，大约20名SAS成员已被派往利沃夫地区开展活动。
+建议包括在波兰东部开设野战医院。这些医院旨在填补乌克兰医疗基础设施的空白。提供装甲救护车，旨在将部分伤者送往美军位于德国西部的兰德斯图尔地区医院。
 
-英方表示，今年早些时候向乌克兰派遣了军事训练员，指导当地部队使用反坦克武器，但英国政府在俄罗斯入侵前一周已经撤出了，除那些需要保护英国大使的部队以外的，所有部队。
+多数观察人士认为，乌克兰东部的战争可能会持续到夏天。乔·拜登总统承诺加大对乌克兰的支持力度，同时避免采取会导致普京与华盛顿发生直接冲突的行动。
 
-目前尚不清楚SAS参与乌克兰的哪些军事活动。分析人士普遍认为，这次英国派遣空军特种部队的意义重大。
+众议员杰森·克劳（Jason Crow）说，他支持拜登不派兵或在乌克兰部分地区建立禁飞区的决定。“但提供医疗支持不应被视为冲突升级”。在距离前线数百英里的波兰东部建立野战医院，配备美国和西方的医疗人员，可以减轻乌克兰的负担，并 “确保这场冲突的可持续性”。
 
-参考链接：[Russia investigates media report on presence of British SAS special forces in Ukraine](https://www.reuters.com/world/russia-investigates-media-report-presence-british-sas-special-forces-ukraine-2022-04-23/)
+另据耶路撒冷邮报3月25日消息，同日，以色列官方野战医院在乌克兰启动。希巴（Sheba）医疗中心的野战医院是第一家抵达乌克兰的医院，名为“科哈夫·梅尔”（闪亮之星）的这家野战医院，位于波兰与乌克兰边境的莫斯季斯卡镇附近。医疗志愿者目前正在照顾数百名难民。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+*责编： 白夜*
 
-总编：文真
-编辑：Jack Li文阳
-审核：文真
-校正/发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
+参考链接 [1](https://www.militarytimes.com/flashpoints/ukraine/2022/04/22/lawmakers-want-us-to-set-up-field-hospitals-for-ukraine/) [2](https://www.jpost.com/international/article-702315)
 
  
 

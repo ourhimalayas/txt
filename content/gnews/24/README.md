@@ -2,26 +2,26 @@
 ---
 
 
-## 大部分对警方在抗议期间的投诉被驳回
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2412997/)
+## 加拿大启动航空计划基金帮助乌克兰人赴加
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2413072/)
 
 ##### 作者：加拿大温哥华扬帆农场 – 枫叶快讯组
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509153881.png)图片来源：真北方
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16509165371.png)图片来源：多伦多星报
 
 
-据自媒体《真北方》4月21日报道，渥太华警方的一份最新报告显示，在今年二月份的自由车队运动期间，众多抗议者对警方的大部分投诉均被当局驳回。
+据《多伦多太阳报》4月20日报道，加拿大人现在可以通过捐赠现金或Aeroplan航空里程积分，来帮助乌克兰难民逃离战火，飞抵加拿大。
 
-报告显示，与2021年相比，今年第一季度对渥太华警方的投诉量激增了3倍多。在收到的327个投诉中，84%与反疫苗护照运动有关，包括指控警方行为违法、过度使用武力和失职等。但其中只有3%的案件被转交给警方独立审查办公室进行调查。
+联邦政府早些时候曾宣布接受乌克兰难民，并允许他们以临时居民身份在加拿大居住最多3年。尽管目前已有超过54,000名乌克兰人的避难申请以获得该国获批，但当务之急是如何尽快帮助已逃至欧洲各地的乌克兰难民踏上前往加拿大的旅程。
 
-据悉，大部分投诉都以”没有意义、无理取闹、事发6个月以上、不符合公共利益，或未经证实”等理由被警方驳回。其中包括在镇压期间发生的残疾妇女被骑警故意踩踏而严重骨折的事件。当局对此的结论是：由于损伤不重，不再予以调查。
+加拿大移民部长对此表示，该捐赠计划可以帮助至少1万名乌克兰人及其家属赴加。目前，加航已率先为该项基金捐赠了1亿航空里程积分，约合200万美元。此外，[大多伦多犹太基金会]则负责现金募捐。
 
-原文链接：[https://tnc.news/2022/04/21/majority-of-complaints-against-ottawa-police-during-convoy-thrown-out/](https://tnc.news/2022/04/21/majority-of-complaints-against-ottawa-police-during-convoy-thrown-out/)
+原文链接：[https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada](https://torontosun.com/news/national/canada-launches-aeroplan-fund-to-bring-ukrainians-to-canada)
 
 上传/发稿 – 【文莱】
-撰稿/翻译/听写 -【自由法兰西 】
+撰稿/翻译/听写 -【自由法兰西】
 素材/采编 -【文莱】
-校对/审核 -【自由法兰西 】
+校对/审核 -【硫酸羟氯喹64】
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 

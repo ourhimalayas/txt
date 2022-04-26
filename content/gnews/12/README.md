@@ -2,10 +2,20 @@
 ---
 
 
-## 4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2413569/)
+## 雅典娜时报-第274期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2413631/)
 
-秘密翻译组-北美组
+#### 《雅典娜时报》汇聚全球新闻时事
+
+#### 编辑：精灵蓝
+排版：0-0
+![圖片](https://media.discordapp.net/attachments/825592691433668612/968098019549515806/274-1.jpg?width=946&amp;height=1338)![圖片](https://media.discordapp.net/attachments/825592691433668612/968098028399525928/274-2.jpg?width=946&amp;height=1338)
+发布：*陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

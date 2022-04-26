@@ -2,35 +2,31 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2412584/)
+## 英国向乌克兰派遣特种空勤部队
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2412794/)
 
-作者：香草山翻译部
+作者：Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-24.png)
+当地时间4月23日，外媒报道称，英国特种空勤部队（SAS）的专家，已被部署到乌克兰西部。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-58.jpg)
+特种空勤部队，简称SAS，是一支精锐的军事力量，训练有素，可以进行特种作战、监视和反恐。据内部人士透露，大约20名SAS成员已被派往利沃夫地区开展活动。
 
-文章仅代表作者本人观点，与Gnews无关
+英方表示，今年早些时候向乌克兰派遣了军事训练员，指导当地部队使用反坦克武器，但英国政府在俄罗斯入侵前一周已经撤出了，除那些需要保护英国大使的部队以外的，所有部队。
 
-视频参看：
-[2022.04.25早 《NFSC新闻》](https://gettr.com/streaming/p170geobc0b)
-[2022.04.25早《NFSC新闻访谈》](https://gettr.com/streaming/p170sol5d2d)
+目前尚不清楚SAS参与乌克兰的哪些军事活动。分析人士普遍认为，这次英国派遣空军特种部队的意义重大。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：[Russia investigates media report on presence of British SAS special forces in Ukraine](https://www.reuters.com/world/russia-investigates-media-report-presence-british-sas-special-forces-ukraine-2022-04-23/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+总编：文真
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-99.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-23-at-7.21.17-PM.png)
 
  
 
