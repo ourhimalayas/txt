@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 4/25/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p1723520b8a.md)
+[@miles 4/26/2022 12:33 PM UTC  - :tv:直播](/content/gettr/p175ajgc69c.md)
 
-2022.04.25  新中国联邦 | 喜健康   二氧化氯: 川普总统说的消毒剂，能抗击冠状病毒和毒疫苗吗？
+2022.04.26 早 新中国联邦 | 新闻  俄乌边境城市储油设施爆炸起火；灭共是中国女权运动的开始；助共为虐 恶有恶报 419群丑图；中共股市汇市楼市三大皆空
 
-<img src="https://media.gettr.com/group46/origin/2022/03/29/20/a67ef18a-9c0f-1adf-e14a-b8c60d81f78c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/04/26/12/bd2ff4e1-0439-b981-7ed1-fce5ada16f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
