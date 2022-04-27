@@ -11,8 +11,17 @@
 
 ---
 
+#### [樱花时政┃俄罗斯驱逐八名日本外交官 以示报复](/content/gnews/2426425.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [昔日满足全国粮食供应的东北黑土已近不复存在](/content/gnews/2426399.md)
  `秘密翻譯組G-Translators`
+
+#### [为什么台湾对全球经济如此重要？](/content/gnews/2426397.md)
+ `mayflowertranslate`
+
+#### [有声&#124;俄罗斯强征占领区居民入伍违反日内瓦公约](/content/gnews/2426378.md)
+ `MOSREC`
 
 #### [有声&#124;俄乌边境城市储油设施爆炸起火](/content/gnews/2426363.md)
  `MOSREC`
@@ -53,9 +62,6 @@
 #### [【粤语配音】2022年4月27日：未来的金融不再有法币](/content/gnews/2426127.md)
  `MOS香港部`
 
-#### [罗马尼亚义工大赞新中国联邦灭共！](/content/gnews/2426114.md)
- `NewS Gman`
-
 #### [加拿大计划新建雷达系统对抗俄罗斯威胁](/content/gnews/2426102.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
@@ -64,9 +70,6 @@
 
 #### [疫苗灾难显现，辉瑞公司却仍为5至11岁儿童申请Covid加强针的FDA授权](/content/gnews/2426085.md)
  `温哥华扬帆农场`
-
-#### [多维新闻宣布停止运营](/content/gnews/2426059.md)
- `NewS Gman`
 
 #### [特鲁多掩盖公众对网络审查法案的异议](/content/gnews/2426050.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -97,9 +100,6 @@
 
 #### [截至4.27 俄乌战事汇总](/content/gnews/2425828.md)
  `秘密翻譯組G-Translators`
-
-#### [俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气](/content/gnews/2425762.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [在垃圾箱里找吃的](/content/gnews/2425389.md)
  `Tokyo Sakura Video Group`
