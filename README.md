@@ -11,6 +11,9 @@
 
 ---
 
+#### [战友日常之-GEDU上课啦](/content/gnews/2426923.md)
+ `MOS Designer香草山设计部`
+
 #### [4月24日，想离开上海的男子自述](/content/gnews/2426897.md)
  `Tokyo Sakura Video Group`
 
@@ -36,9 +39,6 @@
  `墨尔本雅典娜农场`
 
 #### [樱花FM┃美国将对乌克兰追加8亿美元军援 援助总额已近30亿](/content/gnews/2426818.md)
- `樱花FM`
-
-#### [樱花FM┃沙特经济因高油价而翻倍](/content/gnews/2426811.md)
  `樱花FM`
 
 #### [美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注](/content/gnews/2426785.md)
