@@ -10,11 +10,33 @@
 
 ---
 
+[@7upgogo 4/27/2022 6:56 AM UTC ](/content/gettr/p17ai9i8a08.md)
+
+美驱逐舰再次通过台湾海峡
+
+Destroyer USS Sampson Transits Taiwan Strait
+
+
+
+      The US 7th Fleet said the USS Sampson (DDG-102) had sailed from north to south through the strait on Tuesday. “The ship's transit through the Taiwan Strait demonst...
+
+<img src="https://media.gettr.com/group41/origin/2022/04/27/06/5d8b5f7c-47ea-2e70-fa55-ee38dde598ea/316ab5769a41524c1fe2350bad4edcc0.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 12:55 PM UTC  - :tv:直播](/content/gettr/p17b2f297af.md)
 
 2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
 
 <img src="https://media.gettr.com/group15/origin/2022/04/27/12/358cc594-98f9-e9fe-4b67-6f66f1adddc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p17anje471e.md)
+
+4月27号：我R共产党八辈祖宗！这个时候开始说实话了多少人因为这种毒疫苗死掉呢，谁能负责任呢？
+
+<img src="https://media.gettr.com/group6/getter/2022/04/27/12/e53e1153-1417-bb0b-b385-591563e3c769/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +69,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 53 - Date: A...
 
 <img src="https://media.gettr.com/group10/getter/2022/04/27/12/7d2a13d8-b220-1f4e-0636-d96f475f9517/289748d60ac719dea19f2e5b8dafddc1.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p17anje471e.md)
-
-4月27号：我R共产党八辈祖宗！这个时候开始说实话了多少人因为这种毒疫苗死掉呢，谁能负责任呢？
-
-<img src="https://media.gettr.com/group6/getter/2022/04/27/12/e53e1153-1417-bb0b-b385-591563e3c769/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +199,6 @@ Day 53 - Date: A...
 4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
 
 <img src="https://media.gettr.com/group21/getter/2022/04/26/23/80d75ddd-feb1-9c9d-145c-228d719b6bb2/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p178og0eb3a.md)
-
-2022.04.26 NFSC fringe episode 177
-
-<img src="https://media.gettr.com/group49/origin/2022/04/26/23/ddca144e-5d5f-c1d7-8a43-7b367c490b08/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
