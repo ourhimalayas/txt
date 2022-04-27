@@ -11,6 +11,18 @@
 
 ---
 
+#### [【说事儿】苏州昆山小区：封控一个月没钱吃饭爆冲突](/content/gnews/2422451.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】加拿大正在向乌克兰输送重型武器及弹药](/content/gnews/2422447.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】私有化Twitter｜马斯克豪掷440亿成功收购Twitter 特朗普坚持不会回归](/content/gnews/2422420.md)
+ `TokyoSakuraDesignGroup`
+
+#### [布林肯称美国即将发表针对中国的国安政策](/content/gnews/2422419.md)
+ `墨尔本雅典娜农场`
+
 #### [【说事儿】首批使用人民币支付的俄罗斯煤炭即将抵达中共国](/content/gnews/2422392.md)
  `TokyoSakuraDesignGroup`
 
@@ -20,14 +32,14 @@
 #### [视频显示普京在迎接白俄罗斯总统时似乎跌跌撞撞，手在颤抖](/content/gnews/2422372.md)
  `墨尔本雅典娜农场`
 
+#### [中日财经爆&#124;德国将废除北京谊安医疗对禾珥医疗的收购](/content/gnews/2422370.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆&#124;恒大5.74 亿在岸票息延期六个月支付获批准](/content/gnews/2422369.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [【说事儿】大肆造谣抹黑郭文贵的《多维新闻》宣布停运](/content/gnews/2422357.md)
  `TokyoSakuraDesignGroup`
-
-#### [辉瑞寻求FDA授权给5至11岁的儿童打加强针](/content/gnews/2422355.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [来自罗马尼亚的志愿者雅尼对旨在推翻中共的新中国联邦十分赞赏和尊重](/content/gnews/2422350.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -53,9 +65,6 @@
 #### [大肆造谣抹黑郭文贵的《多维新闻》宣布停运](/content/gnews/2422315.md)
  `TokyoSakuraDesignGroup`
 
-#### [《历史的今天》 2022.04.27](/content/gnews/2422307.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [民生集萃—疫情导致实体经济低迷（2022.4.27F）—我已经停业14天内心在崩溃的边缘](/content/gnews/2422303.md)
  `墨尔本雅典娜农场`
 
@@ -64,9 +73,6 @@
 
 #### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”](/content/gnews/2422234.md)
  `關注組`
-
-#### [超70%美国人支持对中国商品征收关税 即便推高通胀也在所不惜](/content/gnews/2422230.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [樱花时政┃中共新疫苗获批，或将大规模接种](/content/gnews/2422218.md)
  `TokyoSakuraDesignGroup`
@@ -91,9 +97,6 @@
 
 #### [中共大外宣多维网宣布关停 爆料革命取得里程碑式胜利](/content/gnews/2421892.md)
  `秘密翻譯組G-Translators`
-
-#### [美最高法院允许饱受种族争议的高中招生政策](/content/gnews/2421857.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [2022年4月26日郭先生盖特 — 视频2「6分59秒」](/content/gnews/2421741.md)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -134,12 +137,6 @@
 #### [秘翻在线：好大喜功的中共北斗芯片](/content/gnews/2421118.md)
  `秘密翻譯組G-Translators`
 
-#### [秘翻在线：北京正在变相为防疫封锁舆论造势](/content/gnews/2421100.md)
- `秘密翻譯組G-Translators`
-
-#### [英国政府将向乌克兰捐赠救护车队](/content/gnews/2421092.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [台湾｜外交部严正说明 中华民国台湾是“主权独立”国家](/content/gnews/2421091.md)
  `關注組`
 
@@ -163,6 +160,9 @@
 
 #### [文贵直播 4.26.2022 郭先生谈马斯克收购推特给盖特带来的挑战与机会](/content/gnews/2419055.md)
  `秘密翻译组-原创组`
+
+#### [有声&#124;北京中共病毒确诊病例激增引发居民恐慌性囤粮](/content/gnews/2418343.md)
+ `【🌹玫瑰新闻】`
 
 #### [有声&#124;中共国首次发现奥密克戎BA.2.3进化分支](/content/gnews/2418339.md)
  `【🌹玫瑰新闻】`
