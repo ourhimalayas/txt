@@ -2,56 +2,71 @@
 ---
 
 
+#### [视频&#124;俄乌边境城市储油设施爆炸起火](/content/gnews/2421956.md)
+ `MOSVIDEO`
+
+#### [父母被强制隔离，两岁孩子困在家中，最终酿成悲剧](/content/gnews/2421952.md)
+ `Tokyo Sakura Video Group`
+
+#### [大多数美国人支持对中共国的进口产品提高关税](/content/gnews/2421951.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [樱花深度报道┃中共应为每个谎言承受经济制裁（下）](/content/gnews/2421946.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [2022-04-25 &#8211; 救援前线的报道](/content/gnews/2421942.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [警察：「你请注意，警察不是为人民服务的！」](/content/gnews/2421932.md)
+ `Tokyo Sakura Video Group`
+
+#### [美导弹驱逐舰又穿越台海了 中共一如既往又强烈抗议了](/content/gnews/2421924.md)
+ `秘密翻譯組G-Translators`
+
+#### [上海发通行卡 每周规定次数及外出时间](/content/gnews/2421916.md)
+ `Tokyo Sakura Video Group`
+
+#### [视频&#124;俄乌战争最新资讯](/content/gnews/2421915.md)
+ `MOSVIDEO`
+
+#### [中共大外宣多维网宣布关停 爆料革命取得里程碑式胜利](/content/gnews/2421892.md)
+ `秘密翻譯組G-Translators`
+
+#### [上海市民责疑上海捐赠品分配不公](/content/gnews/2421876.md)
+ `Tokyo Sakura Video Group`
+
+#### [美最高法院允许饱受种族争议的高中招生政策](/content/gnews/2421857.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [布林肯不认为普京真的想和乌克兰谈判](/content/gnews/2421853.md)
+ `秘密翻譯組G-Translators`
+
+#### [澳大利亚储备银行“正面临”提高利率的压力](/content/gnews/2421852.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [上海市闵行区梅陇镇发的盒饭 肉里有寄生虫](/content/gnews/2421844.md)
+ `Tokyo Sakura Video Group`
+
+#### [2022年4月26日郭先生盖特 — 视频2「6分59秒」](/content/gnews/2421741.md)
+ `喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+#### [硅光子芯片初创企业的发展速度和投资不断增加](/content/gnews/2421712.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [2018年有290万人死于流感和肺炎 2020年流感病例下降98% 2020年有280万人 死于covid。 &#8230;要想知道他们做了什么，其实并不难](/content/gnews/2421708.md)
  `Tokyo Sakura Video Group`
 
-#### [习近平在“全球安全倡议”提案中呼应普京意见](/content/gnews/2421707.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [私有化Twitter｜马斯克豪掷440亿成功收购Twitter 特朗普坚持不会回归](/content/gnews/2421697.md)
- `TokyoSakuraDesignGroup`
-
 #### [PeterMcCullough博士： 当今美国ICU死亡率是 30%。我们遇到最危险的心脏病发作称为 ST 段抬高型心肌梗塞，其死亡率是2%。 30%的ICU死亡率高得令人无法接受](/content/gnews/2421696.md)
- `Tokyo Sakura Video Group`
-
-#### [美驱逐舰再次通过台湾海峡](/content/gnews/2421641.md)
- `加拿大温哥华英里农场`
-
-#### [乌仍控制亚速钢铁厂 ,亚速钢铁厂遭俄军密集空袭](/content/gnews/2421637.md)
- `加拿大温哥华英里农场`
-
-#### [台军一中将核酸呈阳性，为首例台军将领确诊病例](/content/gnews/2421636.md)
- `加拿大温哥华英里农场`
-
-#### [美防长表示：乌克兰能赢 防长会晤泽连斯基后表示：如果有正确的武器和支持，乌克兰能赢。我们会尽一切可能，继续尽一切努力，确保他们能这样](/content/gnews/2421611.md)
  `Tokyo Sakura Video Group`
 
 #### [COVID-19疫苗副作用集萃（2022.4.27C）](/content/gnews/2421589.md)
  `墨尔本雅典娜农场`
 
-#### [上海没有吃的只能捡丢弃的物资](/content/gnews/2421574.md)
- `Tokyo Sakura Video Group`
-
-#### [期盼CCP 早点灭亡，所有的灾难才会结束](/content/gnews/2421544.md)
- `Tokyo Sakura Video Group`
-
 #### [疫苗灾难｜20岁垒球明星Lauren Bernett突然离世 就读学校接种率高达92%](/content/gnews/2421484.md)
  `關注組`
 
-#### [COVID-19疫苗副作用集萃（2022.4.27B）&#8211;第三针加强针](/content/gnews/2421466.md)
- `墨尔本雅典娜农场`
-
-#### [民生集萃—疫情导致实体经济低迷（2022.4.27C）一场疫情改变我的一切认知，生活太难了](/content/gnews/2421429.md)
- `墨尔本雅典娜农场`
-
 #### [2022年4月26日郭先生盖特 — 视频1「9分57秒」](/content/gnews/2421425.md)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-#### [普京给了美国一个未曾想到的巨大机会](/content/gnews/2421381.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【粤语配音】2022年4月26日：多维的案子对新中国联帮至关重要](/content/gnews/2421352.md)
- `MOS香港部`
 
 #### [澳大利亚支援乌克兰六门 155 毫米火炮，应对俄罗斯的侵略](/content/gnews/2421326.md)
  `走进澳洲`
@@ -86,9 +101,6 @@
 #### [苏共解体宣言宣告其独裁体制终结](/content/gnews/2421157.md)
  `历史组`
 
-#### [尽管中国封城导致需求下降但澳洲铁矿石长期利润仍将可观](/content/gnews/2421148.md)
- `澳喜农场`
-
 #### [Elon Musk收购推特,汪文斌不敢回答中国人能否用推特](/content/gnews/2421143.md)
  `喜马拉雅日本银河系农场`
 
@@ -119,12 +131,6 @@
 #### [美国悬赏1000万美元征集有关俄罗斯情报人员的信息](/content/gnews/2420998.md)
  `thedawn`
 
-#### [日经新闻：宝马和奥迪暂停通过铁路向中共国供货](/content/gnews/2420972.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [疾控中心：一半以上的美国人感染中共病毒包括四分之三的儿童](/content/gnews/2420926.md)
- `蓝莲花农场`
-
 #### [兰德.保罗:告诉蝠奇不要碰我们的孩子们 —— 不要疫苗强制](/content/gnews/2420924.md)
  `美国政要直译推`
 
@@ -143,9 +149,6 @@
 #### [文贵直播 4.26.2022 郭先生谈马斯克收购推特给盖特带来的挑战与机会](/content/gnews/2419055.md)
  `秘密翻译组-原创组`
 
-#### [新西兰财经G乐部2022年4月26日:财经新闻整理](/content/gnews/2418223.md)
- `Finance-GCLUB【新西兰财经G乐部】`
-
 #### [澳美退而划红线，称中共不能在所罗门群岛建海军基地](/content/gnews/2416229.md)
  `秘密翻譯組G-Translators`
 
@@ -153,9 +156,6 @@
  `秘密翻譯組G-Translators`
 
 #### [毛泽东语录2.0｜广西推《习近平思想》口袋书 人手一册掀学“习”热潮](/content/gnews/2415571.md)
- `關注組`
-
-#### [疫情｜北京核酸检测今起扩大至11个区 传上海周内全面解禁](/content/gnews/2415404.md)
  `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
