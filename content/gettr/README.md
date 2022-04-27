@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17dmuod0bc.md)
+
+4/27/2022 Miles Guo’s GETTR: The economy and morale in Communist China is in a total mess, because God is helping us take down the CCP! Our fellow fighters at the Ukraine front line helping refugees are the biggest heroes of the Ne...
+
+<img src="https://media.gettr.com/group13/getter/2022/04/27/23/6878b97d-1d67-5b26-5549-1d30a27733bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p17d5ae9e66.md)
 
 2022.04.27  PM NFSC news  U.K. removes tariffs on all goods from Ukraine, ban exports to Russia
@@ -10,11 +18,13 @@
 
 ---
 
-[@miles 4/27/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17dmuod0bc.md)
+[@miles 4/27/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p17dxmud274.md)
 
-4/27/2022 Miles Guo’s GETTR: The economy and morale in Communist China is in a total mess, because God is helping us take down the CCP! Our fellow fighters at the Ukraine front line helping refugees are the biggest heroes of the Ne...
+2022.04.27《The Fringe》 Episode 178
 
-<img src="https://media.gettr.com/group13/getter/2022/04/27/23/6878b97d-1d67-5b26-5549-1d30a27733bd/out.jpg" width="506" height="284">
+中文同传：https://gettr.com/streaming/p17ddb62cdc
+
+<img src="https://media.gettr.com/group10/origin/2022/04/27/23/70720d66-8549-3b0f-114e-fc2583a5a4c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,38 +179,6 @@ Destroyer USS Sampson Transits Taiwan Strait
 4月27号：我R共产党八辈祖宗！这个时候开始说实话了多少人因为这种毒疫苗死掉呢，谁能负责任呢？
 
 <img src="https://media.gettr.com/group6/getter/2022/04/27/12/e53e1153-1417-bb0b-b385-591563e3c769/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:15 PM UTC ](/content/gettr/p17ass3364e.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月26日第53天当日救援统计：
-
-Medyka救援站接待：约168人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约14760人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 53 - Date: A...
-
-<img src="https://media.gettr.com/group10/getter/2022/04/27/12/7d2a13d8-b220-1f4e-0636-d96f475f9517/289748d60ac719dea19f2e5b8dafddc1.jpg" width="506" height="284">
 
 ---
 
