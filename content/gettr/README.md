@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 4/27/2022 4:32 PM UTC  - :tv:直播](/content/gettr/p17bq7h3a35.md)
+
+【Ukraine Rescue】04/25/22 Ben, the bunnyman from Kentucky, USA, expresses movingly: I came here twice to help these people, but also to support your efforts; without your tent, without your organization, this doesn't exist; and you ...
+
+<img src="https://media.gettr.com/group25/getter/2022/04/27/16/54ec780f-128f-f1a8-5fcd-c0d4533cf155/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 1:22 PM UTC  - :tv:直播](/content/gettr/p17anve6cfb.md)
 
 [Ukraine Rescue] Nicole interviewed an Israeli volunteer who was born in the former Soviet Union on the frontline of the Russian-Ukrainian rescue. As a person born in a former communist dictatorship country, she understands the sit...
@@ -183,14 +191,6 @@ Day 53 - Date: A...
 2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
 
 <img src="https://media.gettr.com/group41/origin/2022/04/27/00/35f288fb-9467-f6a6-1b91-6e9ec33ef780/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p178ezo6cfb.md)
-
-2022.04.26 晚  新中国联邦 | 新闻   北京扩大核酸检测范围 传闻指上海计划本周内全面解禁；封城导致上海港货物堆积 全球供应链中断 国际股价油价大跌
-
-<img src="https://media.gettr.com/group41/origin/2022/04/27/00/b34c6b1d-ef4a-5cd1-b696-fbad0ccce84b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
