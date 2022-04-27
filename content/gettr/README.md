@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p178mm50f3c.md)
+
+2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
+
+<img src="https://media.gettr.com/group41/origin/2022/04/27/00/35f288fb-9467-f6a6-1b91-6e9ec33ef780/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p178ezo6cfb.md)
 
 2022.04.26 晚  新中国联邦 | 新闻   北京扩大核酸检测范围 传闻指上海计划本周内全面解禁；封城导致上海港货物堆积 全球供应链中断 国际股价油价大跌
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/27/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p178mm50f3c.md)
+[@miles 4/27/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p178n37888f.md)
 
-2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
+2022.04.26  新中国联邦 | 喜财经  石油以及人民币走势；Elon Mask 以440亿美金收购推特Twitter成功-背后意味什么
 
-<img src="https://media.gettr.com/group41/origin/2022/04/27/00/35f288fb-9467-f6a6-1b91-6e9ec33ef780/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/04/27/01/255bb628-464d-a429-376a-8271ee807229/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 【Ukraine Rescue】04/25/2022 Four Belgian volunteers see many people wearing the “TAKE DOWN the Chinese Communist Party” vest just two hours after they came to Medyka camp. Then they come to ask if they could have one and agree with ...
 
 <img src="https://media.gettr.com/group27/getter/2022/04/26/17/2a50f037-6b5f-f146-709c-46ea9962dfbd/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 5:18 PM UTC  - :tv:直播](/content/gettr/p1778w30c23.md)
-
-4/24/2022 Miles Guo: The CCP's so-called "kill 1000 enemies at the cost of injuring 800 of our own" actually means "at the cost of injuring Lao Baixing". No one in the Zhongnan Pit will ever get harmed! In the eyes of the CCP, Lao ...
-
-<img src="https://media.gettr.com/group30/getter/2022/04/26/17/44bd2b29-fce2-528a-c497-70f00802f03a/out.jpg" width="506" height="284">
 
 ---
 
