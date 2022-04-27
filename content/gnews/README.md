@@ -2,23 +2,26 @@
 ---
 
 
+#### [中共独裁 22省份启动“全国统一车辆通行证”](/content/gnews/2422472.md)
+ `儒为`
+
+#### [【说事儿】日本发现首例原因不明的儿童急性肝炎](/content/gnews/2422466.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中日财经爆&#124;俄法院下令没收谷歌700 万美元在俄资产](/content/gnews/2422462.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [【说事儿】苏州昆山小区：封控一个月没钱吃饭爆冲突](/content/gnews/2422451.md)
  `TokyoSakuraDesignGroup`
 
 #### [【说事儿】加拿大正在向乌克兰输送重型武器及弹药](/content/gnews/2422447.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】私有化Twitter｜马斯克豪掷440亿成功收购Twitter 特朗普坚持不会回归](/content/gnews/2422420.md)
- `TokyoSakuraDesignGroup`
-
 #### [布林肯称美国即将发表针对中国的国安政策](/content/gnews/2422419.md)
  `墨尔本雅典娜农场`
 
-#### [【说事儿】首批使用人民币支付的俄罗斯煤炭即将抵达中共国](/content/gnews/2422392.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】马斯克收购推特涉及政治、经济和赌博因素，盖特迎来机遇与挑战](/content/gnews/2422382.md)
- `TokyoSakuraDesignGroup`
+#### [中共解体已成必然](/content/gnews/2422381.md)
+ `纽约香草山MOS02`
 
 #### [视频显示普京在迎接白俄罗斯总统时似乎跌跌撞撞，手在颤抖](/content/gnews/2422372.md)
  `墨尔本雅典娜农场`
@@ -50,9 +53,6 @@
 #### [中日财经爆&#124;大疆宣布暂停俄乌两国业务](/content/gnews/2422331.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中日财经爆&#124;突发！俄罗斯能源巨头停止对波兰和保加利亚供应天然气](/content/gnews/2422330.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [大肆造谣抹黑郭文贵的《多维新闻》宣布停运](/content/gnews/2422315.md)
  `TokyoSakuraDesignGroup`
 
@@ -71,14 +71,26 @@
 #### [基辅会晤后，美国再次承诺将协助乌克兰取得胜利](/content/gnews/2422100.md)
  `日本东京方舟农场`
 
+#### [视频&#124;中共对待孔子的态度都是为其统治服务](/content/gnews/2422079.md)
+ `MOSVIDEO`
+
+#### [4月24日晚，上海，徐汇 北蔡 松江等多区民众开始抗议](/content/gnews/2422069.md)
+ `Tokyo Sakura Video Group`
+
 #### [樱花时政┃奥斯汀主持40多国防长会议，讨论持续军援乌克兰](/content/gnews/2422068.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期](/content/gnews/2422060.md)
  `關注組`
 
+#### [上海疫情疫情防控期间，外国人承受不住CCP 高压政策，宣泄被封控的精神和肉体不满](/content/gnews/2422053.md)
+ `Tokyo Sakura Video Group`
+
 #### [巴基斯坦孔子学院遭自杀式炸弹袭击，院长等4人身亡](/content/gnews/2422040.md)
  `墨尔本雅典娜农场`
+
+#### [4月26日，上海松江九亭镇居民反映收到政府发放的酱鸭，怀疑起泡泡且有虫，并称小区其他业主也说酱鸭是坏的。 CCP 就是要让人民吃有毒，垃圾，生蛆的食品！因为这些食品只有CCP 能控制，普通人不可能插手这个物资！](/content/gnews/2422029.md)
+ `Tokyo Sakura Video Group`
 
 #### [乌克兰准备对包括飞行员在内的俄军事人员提出战争罪指控](/content/gnews/2421967.md)
  `西班牙巴塞罗那喜悦农场`
@@ -107,26 +119,14 @@
 #### [秘翻在线 :巴基斯坦发生针对中国人的自杀式炸弹攻击事件](/content/gnews/2421207.md)
  `秘密翻譯組G-Translators`
 
-#### [持续不断的封锁使不少金融从业者认真考虑离开上海](/content/gnews/2421196.md)
- `澳喜农场`
-
-#### [中共体制的录音片段 : 计划经济不可避免](/content/gnews/2421184.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [北京开始封城 市民恐慌性抢购食品](/content/gnews/2421173.md)
  `战云长天时评`
 
 #### [新加坡取消对工作者的新冠疫苗强制接种要求](/content/gnews/2421162.md)
  `澳喜农场`
 
-#### [Elon Musk收购推特,汪文斌不敢回答中国人能否用推特](/content/gnews/2421143.md)
- `喜马拉雅日本银河系农场`
-
 #### [国际刑事法院参与调查在乌克兰发生的战争罪指控](/content/gnews/2421135.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [秘翻在线：好大喜功的中共北斗芯片](/content/gnews/2421118.md)
- `秘密翻譯組G-Translators`
 
 #### [台湾｜外交部严正说明 中华民国台湾是“主权独立”国家](/content/gnews/2421091.md)
  `關注組`
