@@ -2,11 +2,43 @@
 ---
 
 
-[@miles 4/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p178l1l9446.md)
+[@miles 4/27/2022 12:15 PM UTC ](/content/gettr/p17ass3364e.md)
 
-2022.04.26  PM NFSC news  CCP Virus Vaccinated American Airlines Pilot Goes Into Cardiac Arrest
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group15/origin/2022/04/26/22/f3baa2db-7447-f5a5-d716-7b32f8a856a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+2022年4月26日第53天当日救援统计：
+
+Medyka救援站接待：约168人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约14760人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 53 - Date: A...
+
+<img src="https://media.gettr.com/group10/getter/2022/04/27/12/7d2a13d8-b220-1f4e-0636-d96f475f9517/289748d60ac719dea19f2e5b8dafddc1.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:28 PM UTC  - :tv:直播](/content/gettr/p17ang7d7c5.md)
+
+4月27号：尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重新健康，安全起来，一切都已经开始！
+
+<img src="https://media.gettr.com/group49/getter/2022/04/27/12/e1ce2d7b-11bf-700b-d98d-1edd09fc08a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,38 +195,6 @@
 4月26号：尊敬的战友们好……感谢你们的关心，今天是个大日子．好日子，一个期盼了五年的新的里程碑的开始，记住今天吧，兄弟姐妹们，一切都已经开始。
 
 <img src="https://media.gettr.com/group25/getter/2022/04/26/23/04a82e9a-1087-c9ba-22a4-1246c802fdf7/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:14 PM UTC ](/content/gettr/p178p1x4dea.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月25日第52天当日救援统计：
-
-Medyka救援站接待：约283人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约14592人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 52 - Date: A...
-
-<img src="https://media.gettr.com/group6/getter/2022/04/26/23/9fa6b9ad-8b1a-bb36-72b8-0855ee751ce3/be875571760b93d7440807a2ca9c6750.jpg" width="506" height="284">
 
 ---
 
