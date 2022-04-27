@@ -3,6 +3,8 @@
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/content/transcript/2020/02/20200207-1018085438750382057.md)
+
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/content/transcript/2020/02/20200204-4372842395981895522.md)
 
 [文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/content/transcript/2020/02/20200204-1180621866015014143.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/content/transcript/2020/01/20200115-3214760195479457165.md)
 
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/content/transcript/2020/01/20200113-2672985235705561306.md)
-
-[文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/content/transcript/2020/01/20200112-3278403890679158483.md)
 
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

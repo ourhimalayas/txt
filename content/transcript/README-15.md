@@ -3,6 +3,8 @@
 
 ## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭先生7月12日GTV直播](/content/transcript/2020/07/20200715-541227053977601101.md)
+
 [文字版：郭先生2020年7月8号GTV直播](/content/transcript/2020/07/20200715-3384664929547072780.md)
 
 [文字版：郭先生7月5日GTV直播](/content/transcript/2020/07/20200709-8762268395418060735.md)
@@ -50,8 +52,6 @@
 [文字版:5月27日郭先生GTV直播](/content/transcript/2020/05/20200530-3579241706056800133.md)
 
 [文字版：5月25日郭先生GTV直播](/content/transcript/2020/05/20200528-6916942439704303274.md)
-
-[文字版:郭先生5月23日GTV第二次直播](/content/transcript/2020/05/20200528-1016481976863648605.md)
 
 
 ## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

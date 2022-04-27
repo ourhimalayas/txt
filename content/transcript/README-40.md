@@ -3,6 +3,8 @@
 
 ## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)
 
+[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/transcript/2018/04/20180418-3704285633140806842.md)
+
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/transcript/2018/04/20180418-4937079468780903769.md)
 
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/transcript/2018/04/20180418-8134538330051894256.md)
@@ -50,8 +52,6 @@
 [逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国](/content/transcript/2018/04/20180418-745923463937073308.md)
 
 [郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！](/content/transcript/2018/04/20180418-5215268758560370583.md)
-
-[CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/transcript/2018/04/20180418-893371473063503687.md)
 
 
 ## 頁面 40/42 [**<**](/content/transcript/README-39.md) [1](/content/transcript/README.md) ... [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) **40** [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-41.md) [查看全部](/content/transcript/README-all.md)

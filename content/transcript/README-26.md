@@ -3,6 +3,8 @@
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190710-3352711753808364354.md)
+
 [文字版：2019年7月8日：文贵车上谈王健之死](/content/transcript/2019/07/20190710-5360676795961744736.md)
 
 [文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/transcript/2019/07/20190710-4802216487220776718.md)
@@ -50,8 +52,6 @@
 [文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历](/content/transcript/2019/06/20190613-2844499569524374811.md)
 
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/transcript/2019/06/20190611-3204594728389036788.md)
-
-[文字版：2019年6月8日文貴直播](/content/transcript/2019/06/20190608-7050696263727200895.md)
 
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

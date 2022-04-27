@@ -3,6 +3,8 @@
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/content/transcript/2019/05/20190503-4410540874074802687.md)
+
 [文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/content/transcript/2019/05/20190501-8065411428742956557.md)
 
 [文字版：2019年4月29日：臺灣，香港，將是滅共的重要之地](/content/transcript/2019/04/20190430-3839114876829416800.md)
@@ -50,8 +52,6 @@
 [文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/transcript/2019/03/20190305-7678928871394571383.md)
 
 [文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/transcript/2019/03/20190304-4934492035985499612.md)
-
-[文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/transcript/2019/03/20190303-6089231756466029624.md)
 
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

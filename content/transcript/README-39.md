@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/transcript/2018/04/20180418-7095490617264238723.md)
+
 [（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/transcript/2018/04/20180418-1176717369305738792.md)
 
 [11月8日文贵twitter再次被封7天后的报平安视频](/content/transcript/2018/04/20180418-7262790199483543364.md)
@@ -50,8 +52,6 @@
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/transcript/2018/04/20180418-8435837672278368881.md)
 
 [翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/transcript/2018/04/20180418-2767584797521758033.md)
-
-[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/transcript/2018/04/20180418-3704285633140806842.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

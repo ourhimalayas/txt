@@ -3,6 +3,8 @@
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/transcript/2019/03/20190303-6089231756466029624.md)
+
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/transcript/2019/02/20190228-4589670167001687334.md)
 
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/transcript/2019/02/20190227-2121363787945897238.md)
@@ -50,8 +52,6 @@
 [文字版：2019年1月23日文貴報平安直播](/content/transcript/2019/01/20190125-5995035220130924499.md)
 
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/transcript/2019/01/20190123-2188991099465691450.md)
-
-[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/transcript/2019/01/20190123-8364143851191456056.md)
 
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
