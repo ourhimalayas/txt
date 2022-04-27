@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17b3h46a02.md)
+
+2022.04.27  新中国联邦 | 军情室  芬兰瑞典申请加入北约，德国澳洲再次援助军备，俄T90M坦克惊现乌东，美舰再次穿越台湾海峡，浅谈激光雷达反潜探测
+
+<img src="https://media.gettr.com/group22/origin/2022/04/27/10/02576a3d-55f0-348b-5ddb-d59d1ed1c791/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17a7mpfff1.md)
 
 4/26/2022 Miles Guo's GETTR: The PAX case has been successfully turned into a criminal case, and this is of great significance to the Whistleblowers' Movement and the New Federal State of China! The CCP agents involved in this case...
@@ -100,11 +108,11 @@
 
 ---
 
-[@miles 4/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17b3h46a02.md)
+[@wenfeng2020 4/27/2022 10:54 AM UTC ](/content/gettr/p17basy5686.md)
 
-2022.04.27  新中国联邦 | 军情室  芬兰瑞典申请加入北约，德国澳洲再次援助军备，俄T90M坦克惊现乌东，美舰再次穿越台湾海峡，浅谈激光雷达反潜探测
+CGI获得有关GTV机密信息不是从多维网blog获得的，而是通过情报力量获得的，也就是说通过中共的情报系统获得的，为了掩盖这一刑事犯罪行为，多维网制造了假证，虽然博客日期是2020年10月27日，但是HTML底层代码显示的日期是2021年1月29日。这个天大的阴谋，背后是中共的一国情报力量和对美国的无处不在的蓝金黄。CGI的合伙人：Richard Frankel，蒙古包、DWAC收购案，说服七哥保安公司终止服务；PAG/PAX，吴征，Richard Fran...
 
-<img src="https://media.gettr.com/group22/origin/2022/04/27/10/02576a3d-55f0-348b-5ddb-d59d1ed1c791/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/04/27/10/a0de6f9a-7236-2170-325a-2e8320d6eaeb/d591a3e27ee1f4d6cd54133b20932bbe.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@
 4月26号：尊敬的战友们好……感谢你们的关心，今天是个大日子．好日子，一个期盼了五年的新的里程碑的开始，记住今天吧，兄弟姐妹们，一切都已经开始。
 
 <img src="https://media.gettr.com/group25/getter/2022/04/26/23/04a82e9a-1087-c9ba-22a4-1246c802fdf7/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p178l1l9446.md)
-
-2022.04.26  PM NFSC news  CCP Virus Vaccinated American Airlines Pilot Goes Into Cardiac Arrest
-
-<img src="https://media.gettr.com/group15/origin/2022/04/26/22/f3baa2db-7447-f5a5-d716-7b32f8a856a8/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
