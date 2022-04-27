@@ -2,44 +2,59 @@
 ---
 
 
-#### [网友：上海，上千人隔离在办公大楼，震撼](/content/gnews/2425297.md)
+#### [马斯克可能改变的关于 Twitter 的五件事](/content/gnews/2425474.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [20220427郭文贵大直播 ：只有相信自己有不灭的灵魂才能拯救自己](/content/gnews/2425458.md)
  `Tokyo Sakura Video Group`
 
-#### [20220427郭文贵大直播 ：草根谈多维网站关闭的标志性事件](/content/gnews/2425266.md)
+#### [20220427郭文贵大直播 ：草根小哥从日本经济现状谈到中国经济早已崩溃的事实](/content/gnews/2425448.md)
  `Tokyo Sakura Video Group`
 
-#### [【 蓝枫法律 】 第五十一期 言论自由法律 &#8211; 社交媒体平台的遵循与逾越 &#8211; 全文听写](/content/gnews/2425260.md)
- `加拿大温哥华扬帆农场蓝枫法律`
+#### [中共攻台的美国日本欧洲可能的反应](/content/gnews/2425432.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [在垃圾箱里找吃的](/content/gnews/2425389.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220427郭文贵大直播 ：中共经济崩溃的深层分析（PPT）](/content/gnews/2425313.md)
+ `Tokyo Sakura Video Group`
+
+#### [德国将首次向乌克兰提供重型武器装备清单或包括88辆问世于上世纪60年代的豹式坦克](/content/gnews/2425278.md)
+ `Tokyo Sakura Video Group`
+
+#### [樱花FM｜封城阻塞供应链 特斯拉上海工厂被迫继续推迟复产](/content/gnews/2425265.md)
+ `樱花FM`
 
 #### [俄罗斯释放被监禁的美国海军陆战队员](/content/gnews/2425259.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [欧盟委员会主席冯德莱恩在新德里举行的2022年瑞辛纳对话上发表讲话： “俄罗斯和CCP国声明他们的友谊没有‘限制’，他们的合作没有‘禁区’ ”](/content/gnews/2425240.md)
- `Tokyo Sakura Video Group`
+#### [俄乌战局最新消息汇总（04.27）](/content/gnews/2425251.md)
+ `NFSC News`
 
-#### [20220427郭文贵大直播 ：爆料革命历经艰辛迎曙光](/content/gnews/2425238.md)
- `Tokyo Sakura Video Group`
+#### [美国将很快重新开放基辅大使馆](/content/gnews/2425250.md)
+ `NFSC News`
 
-#### [【文貴大直播 期期有话说】](/content/gnews/2425178.md)
- `SpicyWorld`
-
-#### [文·贵天成——文贵先生谈“多维网”（三）](/content/gnews/2425167.md)
- `墨尔本雅典娜农场`
+#### [樱花FM｜乌克兰总统宣布 俄军已发动对东部的大规模攻势](/content/gnews/2425166.md)
+ `樱花FM`
 
 #### [中共国老百姓现在都憋着一股气，随时会爆炸，CCP会在人民快要爆炸的时候适当解压放气，这就是CCP的统治手段](/content/gnews/2425148.md)
  `Tokyo Sakura Video Group`
 
-#### [现在疫情基本都是疫苗反应](/content/gnews/2425147.md)
+#### [什么叫疫苗？疫苗就是毒](/content/gnews/2425144.md)
  `加拿大温哥华英里农场`
 
-#### [我们不能被共产党代表](/content/gnews/2425146.md)
- `加拿大温哥华英里农场`
-
-#### [你们就是那盏希望的灯](/content/gnews/2425145.md)
+#### [我们这一次又一次的重大的爆料](/content/gnews/2425143.md)
  `加拿大温哥华英里农场`
 
 #### [【多维关闭】](/content/gnews/2425131.md)
  `SpicyWorld`
+
+#### [樱花FM｜乌克兰又在俄军占领区发现化学武器“残骸”](/content/gnews/2425116.md)
+ `樱花FM`
+
+#### [樱花FM｜日本宣布向乌克兰提供化武防护口罩和无人机](/content/gnews/2425089.md)
+ `樱花FM`
 
 #### [【多维关闭】](/content/gnews/2425085.md)
  `SpicyWorld`
@@ -59,20 +74,14 @@
 #### [乌克兰邻国摩尔多瓦亲俄派地区发生爆炸](/content/gnews/2425041.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【共党不亡、百姓疾苦】](/content/gnews/2425038.md)
- `SpicyWorld`
-
-#### [【动物园】](/content/gnews/2425016.md)
- `SpicyWorld`
-
 #### [乌克兰指控7名俄罗斯军事人员犯有战争罪 3名俄罗斯飞行员也在指控之列](/content/gnews/2425011.md)
  `喜马拉雅-华盛顿DC农场`
 
+#### [樱花FM｜出于安全考虑 拜登暂无计划访问基辅](/content/gnews/2424984.md)
+ `樱花FM`
+
 #### [【上海人民币汇率】](/content/gnews/2424927.md)
  `SpicyWorld`
-
-#### [有声&#124;高雄再一次突发大范围停电](/content/gnews/2424921.md)
- `MOSREC`
 
 #### [受害家庭发起广告牌运动称辉瑞公司的药物和威斯康星医院杀死了他们的女儿格蕾丝](/content/gnews/2424861.md)
  `喜马拉雅-华盛顿DC农场`
@@ -86,20 +95,14 @@
 #### [美国高级官员在首都会见泽伦斯基时说：“俄罗斯在战争中是失败的”](/content/gnews/2424844.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [苦难的中国](/content/gnews/2424815.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [有声&#124;中共军机坠落事件的意义](/content/gnews/2424803.md)
  `MOSREC`
 
+#### [秘翻新闻｜中共第一情报网“多维”停业内幕](/content/gnews/2424792.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [2022/04/27 英喜时事速递](/content/gnews/2424731.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [秘翻在线：73%的美国人赞成向乌克兰提供武器援助](/content/gnews/2424717.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯中断了向波兰和保加利亚的天然气供应](/content/gnews/2424679.md)
- `秘密翻譯組G-Translators`
 
 #### [美国及世界疫情简报（04-27-2022）](/content/gnews/2424675.md)
  `波士顿五月花农场`
@@ -109,9 +112,6 @@
 
 #### [美国务卿与防长到访基辅 布林肯：确切证据表明乌克兰正取得成功](/content/gnews/2424530.md)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [北京战友务必为封城做好全面准备](/content/gnews/2424472.md)
- `NFSC News`
 
 #### [4/27/2022 银河快讯：政府决定采取6兆2000亿日元的紧急措施，应对油价和商品价格飙升；自卫队飞机放弃从印度运输物资](/content/gnews/2423830.md)
  `日本银河系农场-阿尔法星球`
@@ -137,9 +137,6 @@
 #### [彭佩奥警惕中共攻打台湾的必然性](/content/gnews/2422422.md)
  `NFSC News`
 
-#### [FDA批准争议药物瑞德西韦用于染疫幼童](/content/gnews/2422421.md)
- `NFSC News`
-
 #### [中日财经爆&#124;德国将废除北京谊安医疗对禾珥医疗的收购](/content/gnews/2422370.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -157,6 +154,9 @@
 
 #### [樱花时政┃瑞士否决了德国向乌克兰重新出口坦克弹药的请求](/content/gnews/2421082.md)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [【每日聚焦】俄乌战事4月27日简要](/content/gnews/2420658.md)
+ `蓝莲花农场`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
