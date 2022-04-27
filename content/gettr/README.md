@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 4/27/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p178mm50f3c.md)
+
+2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
+
+<img src="https://media.gettr.com/group41/origin/2022/04/27/00/35f288fb-9467-f6a6-1b91-6e9ec33ef780/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1788fi1ee1.md)
+
+4/26/2022 Miles Guo’s GETTR: The Chinese Communist Party believes that the Chinese people have a tremendous amount of resilience and tendency to forget. So, the CCP has got ready for its long-term plan to let the Chinese people liv...
+
+<img src="https://media.gettr.com/group8/getter/2022/04/27/00/b57b19c7-7fa4-1c20-f365-bde5d28b8a63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p178kd5db9a.md)
 
 4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
@@ -23,14 +39,6 @@
 4月26号：共产党的老杂毛们……你们准备好了吗？你们所有在海外的盗国财富．都将是被没收．并转给我们新中国联邦……还给中国人民！所有的中国人民必须永远的又自己，现在已经拥有的房子的产权土地却完全不用还所谓的共产党的银行责任和信用卡和贷款，因为中国人民过去的70年被盗走的财富，远远得大于现在人民欠的所谓银行的钱。咱们走看吧……老杂毛呗。https://www.voachinese.com/a/us-seized-Russian-assets-20220426/6...
 
 <img src="https://media.gettr.com/group7/getter/2022/04/26/23/fb4117af-103a-fe54-4b10-87f8f220e6ec/e0c4e3eccf2aeb74d1e6e7ef36e61582.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1788fi1ee1.md)
-
-4/26/2022 Miles Guo’s GETTR: The Chinese Communist Party believes that the Chinese people have a tremendous amount of resilience and tendency to forget. So, the CCP has got ready for its long-term plan to let the Chinese people liv...
-
-<img src="https://media.gettr.com/group8/getter/2022/04/27/00/b57b19c7-7fa4-1c20-f365-bde5d28b8a63/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 4/24/2022 Miles Guo: The CCP's so-called "kill 1000 enemies at the cost of injuring 800 of our own" actually means "at the cost of injuring Lao Baixing". No one in the Zhongnan Pit will ever get harmed! In the eyes of the CCP, Lao ...
 
 <img src="https://media.gettr.com/group30/getter/2022/04/26/17/44bd2b29-fce2-528a-c497-70f00802f03a/out.jpg" width="506" height="284">
-
----
-
-[@sunrise 4/26/2022 6:59 AM UTC  - :tv:直播](/content/gettr/p1751ih4d04.md)
-
-快板三句半《中共疫情封条》
-
-# 中共疫情封条#曲艺花苑#快板
-
-<img src="https://media.gettr.com/group11/origin/2022/04/26/06/7de64904-eaa1-fc69-f0f7-15f62ccbd067/out.jpg" width="506" height="284">
 
 ---
 
