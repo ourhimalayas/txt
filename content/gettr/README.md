@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p178n37888f.md)
+
+2022.04.26  新中国联邦 | 喜财经  石油以及人民币走势；Elon Mask 以440亿美金收购推特Twitter成功-背后意味什么
+
+<img src="https://media.gettr.com/group3/origin/2022/04/27/01/255bb628-464d-a429-376a-8271ee807229/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p178mm50f3c.md)
 
 2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
@@ -18,11 +26,17 @@
 
 ---
 
-[@miles 4/27/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p178n37888f.md)
+[@7upgogo 4/26/2022 7:16 PM UTC ](/content/gettr/p1775s18338.md)
 
-2022.04.26  新中国联邦 | 喜财经  石油以及人民币走势；Elon Mask 以440亿美金收购推特Twitter成功-背后意味什么
+美方重型运输机密集抵达波兰
 
-<img src="https://media.gettr.com/group3/origin/2022/04/27/01/255bb628-464d-a429-376a-8271ee807229/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+
+        4月25日据乌克兰国际文传电讯社报道，美国重型运输机密集抵达距离乌克兰边境仅90公里的波兰城市热舒夫，一天之内至少有6架降落，包括2架美国空军C-17A军用运输机，以及多架由美国五角大楼租用的波音747运输机。
+
+　　美国总统拜登4月21日曾表示，美国将向乌克兰提供价值8亿美元的额外安全援助。美国防部当天称，此次额外安全援助包括72门155毫米口径榴弹炮、72辆榴弹炮牵引车、14.4万发炮弹以及逾121架战术...
+
+<img src="https://media.gettr.com/group24/origin/2022/04/26/19/ea62df4f-ee3f-aec1-8bad-6af0558f68e4/a93950d92510177f6d95bbd7a172fe06.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +185,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
 
 <img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 5:45 PM UTC  - :tv:直播](/content/gettr/p175h4y30e4.md)
-
-04.26.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group20/origin/2022/04/26/17/318ced77-91aa-e358-8c96-6b044fc93d20/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
