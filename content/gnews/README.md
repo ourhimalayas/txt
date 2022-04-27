@@ -2,6 +2,12 @@
 ---
 
 
+#### [有声&#124;中共病毒在成为2021年度美国第三大死因](/content/gnews/2426319.md)
+ `MOSREC`
+
+#### [有声&#124;又两名俄军将领在乌克兰攻击中阵亡](/content/gnews/2426302.md)
+ `MOSREC`
+
 #### [北京一小区紧急封闭](/content/gnews/2426238.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -59,9 +65,6 @@
 #### [渥太华医生认为第六波疫情高峰即将到来](/content/gnews/2426011.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [美元的“没落” 催生了数字货币的春天 台湾的未来令人担忧](/content/gnews/2426010.md)
- `焦點20分`
-
 #### [日媒揭露俄罗斯在布查惨案上的谎言](/content/gnews/2425953.md)
  `NFSC News`
 
@@ -80,11 +83,17 @@
 #### [截至4.27 俄乌战事汇总](/content/gnews/2425828.md)
  `秘密翻譯組G-Translators`
 
+#### [俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气](/content/gnews/2425762.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [在垃圾箱里找吃的](/content/gnews/2425389.md)
  `Tokyo Sakura Video Group`
 
 #### [我们什么时候才能知道上海封城的后果](/content/gnews/2425387.md)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [美国海军导弹驱逐舰通过台湾海峡 中共国军队反对](/content/gnews/2425298.md)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [网友：上海，上千人隔离在办公大楼，震撼](/content/gnews/2425297.md)
  `Tokyo Sakura Video Group`
@@ -98,9 +107,6 @@
 #### [文编&#124;中共幻想通过拿下台积电来获得技术和干掉美元](/content/gnews/2425208.md)
  `KarmaLabs`
 
-#### [文编&#124;访问台湾能使南希·佩洛西政治生涯圆满，她不会听中共忽悠，大概率还是4月26日访问台湾](/content/gnews/2425159.md)
- `KarmaLabs`
-
 #### [中共国老百姓现在都憋着一股气，随时会爆炸，CCP会在人民快要爆炸的时候适当解压放气，这就是CCP的统治手段](/content/gnews/2425148.md)
  `Tokyo Sakura Video Group`
 
@@ -109,9 +115,6 @@
 
 #### [新西兰财经G乐部2022年4月27日:财经新闻整理](/content/gnews/2424933.md)
  `Finance-GCLUB【新西兰财经G乐部】`
-
-#### [【上海人民币汇率】](/content/gnews/2424927.md)
- `SpicyWorld`
 
 #### [受害家庭发起广告牌运动称辉瑞公司的药物和威斯康星医院杀死了他们的女儿格蕾丝](/content/gnews/2424861.md)
  `喜马拉雅-华盛顿DC农场`
@@ -124,9 +127,6 @@
 
 #### [2022/04/27 英喜时事速递](/content/gnews/2424731.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [美国及世界疫情简报（04-27-2022）](/content/gnews/2424675.md)
- `波士顿五月花农场`
 
 #### [喜联储开启人类金融多样化未来](/content/gnews/2424584.md)
  `NFSC News`
