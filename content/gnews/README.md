@@ -2,6 +2,36 @@
 ---
 
 
+#### [辉瑞寻求FDA授权给5至11岁的儿童打加强针](/content/gnews/2422355.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [来自罗马尼亚的志愿者雅尼对旨在推翻中共的新中国联邦十分赞赏和尊重](/content/gnews/2422350.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [小小酥战友向以色列记者介绍法治基金和新中国联邦的救援工作](/content/gnews/2422344.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [罗马尼亚的志愿者Yanni理解很多中国人被中共所洗脑](/content/gnews/2422335.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [美国副总统卡玛拉·哈里斯中共病毒检测呈阳性](/content/gnews/2422332.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中日财经爆&#124;大疆宣布暂停俄乌两国业务](/content/gnews/2422331.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆&#124;突发！俄罗斯能源巨头停止对波兰和保加利亚供应天然气](/content/gnews/2422330.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [大肆造谣抹黑郭文贵的《多维新闻》宣布停运](/content/gnews/2422315.md)
+ `TokyoSakuraDesignGroup`
+
+#### [民生集萃—疫情导致实体经济低迷（2022.4.27F）—我已经停业14天内心在崩溃的边缘](/content/gnews/2422303.md)
+ `墨尔本雅典娜农场`
+
+#### [中共病毒已导致1.9亿美国人受感染](/content/gnews/2422284.md)
+ `秘密翻譯組G-Translators`
+
 #### [马斯克收购推特涉及政治、经济和赌博因素，盖特迎来机遇与挑战](/content/gnews/2422268.md)
  `TokyoSakuraDesignGroup`
 
@@ -17,32 +47,11 @@
 #### [樱花时政┃中共新疫苗获批，或将大规模接种](/content/gnews/2422218.md)
  `TokyoSakuraDesignGroup`
 
-#### [苏州昆山小区：封控一个月没钱吃饭爆冲突](/content/gnews/2422197.md)
- `TokyoSakuraDesignGroup`
-
-#### [民生集萃——疫情导致实体经济低迷（2022.4.27E）&#8211;疫情下的服装工作室该何去何从？](/content/gnews/2422193.md)
- `墨尔本雅典娜农场`
-
-#### [关于马斯克收购推特的感想](/content/gnews/2422174.md)
- `墨尔本雅典娜农场`
-
-#### [民生集萃——疫情导致实体经济低迷（2022.4.27D）&#8211;疫情第三年，亲们的收入受影响没？](/content/gnews/2422152.md)
- `墨尔本雅典娜农场`
-
 #### [基辅会晤后，美国再次承诺将协助乌克兰取得胜利](/content/gnews/2422100.md)
  `日本东京方舟农场`
 
-#### [视频&#124;中共对待孔子的态度都是为其统治服务](/content/gnews/2422079.md)
- `MOSVIDEO`
-
-#### [4月24日晚，上海，徐汇 北蔡 松江等多区民众开始抗议](/content/gnews/2422069.md)
- `Tokyo Sakura Video Group`
-
 #### [樱花时政┃奥斯汀主持40多国防长会议，讨论持续军援乌克兰](/content/gnews/2422068.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [视频&#124;研究表明 中共国不会成为下一个世界秩序主导国](/content/gnews/2422061.md)
- `MOSVIDEO`
 
 #### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期](/content/gnews/2422060.md)
  `關注組`
@@ -57,9 +66,6 @@
  `西班牙巴塞罗那喜悦农场`
 
 #### [樱花深度报道┃中共应为每个谎言承受经济制裁（上）](/content/gnews/2421947.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花深度报道┃中共应为每个谎言承受经济制裁（下）](/content/gnews/2421946.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [美导弹驱逐舰又穿越台海了 中共一如既往又强烈抗议了](/content/gnews/2421924.md)
@@ -79,9 +85,6 @@
 
 #### [疫苗灾难｜20岁垒球明星Lauren Bernett突然离世 就读学校接种率高达92%](/content/gnews/2421484.md)
  `關注組`
-
-#### [2022年4月26日郭先生盖特 — 视频1「9分57秒」](/content/gnews/2421425.md)
- `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 #### [女性自杀式炸弹袭击者在卡拉奇大学杀害了三名中国教师和巴基斯坦人](/content/gnews/2421266.md)
  `新加坡狮城农场 Himalaya Singapore`
@@ -127,9 +130,6 @@
 
 #### [樱花时政┃瑞士否决了德国向乌克兰重新出口坦克弹药的请求](/content/gnews/2421082.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [率真的比利时志愿者希望穿上灭共马甲](/content/gnews/2421070.md)
- `墨尔本雅典娜农场`
 
 #### [郭文贵先生2022年4月26日第二条盖特视频（6分59秒）精要版](/content/gnews/2421029.md)
  `東京櫻花団-Tokyo Sakura Group`
