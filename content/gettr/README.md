@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 4:32 AM UTC  - :tv:直播](/content/gettr/p179wyfb1a2.md)
+
+4/26/2022 Miles Guo's GETTR: Why has Xi Jinping ordered Duowei News to close its website? Duowei has posted fabricated photos and fake day and time to defame Mr. Miles Guo, after which Bruno’s business partner, a former FBI officer...
+
+<img src="https://media.gettr.com/group23/getter/2022/04/27/04/fb51876d-0cbe-1ef5-cf54-8c6f67c8beab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p179op593e8.md)
 
 【Ukraine Rescue】04/25/2022 When interviewed by our fellow fighter Nicole, volunteer Yanni from Romania says that he understands many Chinese people have no freedom to access information and have been brainwashed by the CCP.
@@ -60,11 +68,11 @@
 
 ---
 
-[@miles 4/27/2022 4:32 AM UTC  - :tv:直播](/content/gettr/p179wyfb1a2.md)
+[@miles 4/27/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17aduw6e44.md)
 
-4/26/2022 Miles Guo's GETTR: Why has Xi Jinping ordered Duowei News to close its website? Duowei has posted fabricated photos and fake day and time to defame Mr. Miles Guo, after which Bruno’s business partner, a former FBI officer...
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group23/getter/2022/04/27/04/fb51876d-0cbe-1ef5-cf54-8c6f67c8beab/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/04/27/04/fde52c40-6057-01a7-149b-d89113281fbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 2022-4-26《避风港》(40) 疫苗接种剂数与高死亡率正相关
 
 <img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 6:35 PM UTC  - :tv:直播](/content/gettr/p1778510abc.md)
-
-【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
-
-<img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
 
 ---
 
