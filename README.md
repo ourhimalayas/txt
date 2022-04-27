@@ -11,6 +11,24 @@
 
 ---
 
+#### [新冠疫情封锁——打击中共国股市和人民币](/content/gnews/2424973.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [20220427郭文贵大直播 ：梅迪卡营地当地政府给新中国联邦救援队的正式批文](/content/gnews/2424955.md)
+ `Tokyo Sakura Video Group`
+
+#### [【上海人民币汇率】](/content/gnews/2424927.md)
+ `SpicyWorld`
+
+#### [【蒙面是劣势么】](/content/gnews/2424903.md)
+ `SpicyWorld`
+
+#### [郭文贵盖特音频2022.04.27](/content/gnews/2424868.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [受害家庭发起广告牌运动称辉瑞公司的药物和威斯康星医院杀死了他们的女儿格蕾丝](/content/gnews/2424861.md)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [【封】](/content/gnews/2424855.md)
  `SpicyWorld`
 
@@ -20,11 +38,17 @@
 #### [樱花时政┃六成美国人已曾感染新冠](/content/gnews/2424851.md)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [美国高级官员在首都会见泽伦斯基时说：“俄罗斯在战争中是失败的”](/content/gnews/2424844.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [文贵大直播要点-主持：文空（2022年4月27日）](/content/gnews/2424836.md)
+ `波士顿五月花农场`
+
 #### [中共国北京市新冠管制封锁前夕](/content/gnews/2424835.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [安省将高风险场所的口罩令延长至6月11日](/content/gnews/2424805.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [有声&#124;中共军机坠落事件的意义](/content/gnews/2424803.md)
+ `MOSREC`
 
 #### [20220427郭文贵大直播 ：梅迪卡救援营地的最新变化](/content/gnews/2424799.md)
  `Tokyo Sakura Video Group`
@@ -59,9 +83,6 @@
 #### [有声｜世卫通报儿童不明急性肝炎 网曝已传到上海](/content/gnews/2424671.md)
  `秘密翻译组-即时新闻播报组`
 
-#### [习下令关停《多维》情报网 意味着新中国联邦将崛起于壬寅年](/content/gnews/2424590.md)
- `战云长天时评`
-
 #### [喜联储开启人类金融多样化未来](/content/gnews/2424584.md)
  `NFSC News`
 
@@ -71,14 +92,8 @@
 #### [北京战友务必为封城做好全面准备](/content/gnews/2424472.md)
  `NFSC News`
 
-#### [中国病毒疫苗灾难 将是人类史上的最大灾难](/content/gnews/2424125.md)
- `MilesGuoLivePPT`
-
 #### [中共经济崩溃的深层分析](/content/gnews/2424096.md)
  `MilesGuoLivePPT`
-
-#### [樱花时政┃中共国海军侵入领海 日本抗议](/content/gnews/2423890.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [4/27/2022 银河快讯：政府决定采取6兆2000亿日元的紧急措施，应对油价和商品价格飙升；自卫队飞机放弃从印度运输物资](/content/gnews/2423830.md)
  `日本银河系农场-阿尔法星球`
@@ -101,13 +116,7 @@
 #### [中日财经爆┃中共病毒和毒疫苗后遗症使丰田汽车减产至45年新低](/content/gnews/2423626.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【说事儿】樱花时政┃中共新疫苗获批，或将大规模接种](/content/gnews/2423621.md)
- `TokyoSakuraDesignGroup`
-
 #### [泽伦斯基称普京利用核战争威胁“敲诈世界”](/content/gnews/2423578.md)
- `西班牙巴塞罗那喜悦农场`
-
-#### [缅甸法院以腐败罪判处素季5年徒刑](/content/gnews/2423559.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [樱花FM｜中国人获得日本首个“特定技能2号”资格](/content/gnews/2423273.md)
@@ -115,15 +124,6 @@
 
 #### [4/27/2022 国际财经快讯：Visa一季度业绩受惠于强劲的消费支出，经济担忧缓解；纳斯达克指数暴跌至2020年底以来最低收盘价](/content/gnews/2423263.md)
  `秘密翻译组金融团队`
-
-#### [樱花FM｜记者在基辅采访报道时响起了空袭警报声](/content/gnews/2423252.md)
- `樱花FM`
-
-#### [樱花FM｜公开反对侵略乌克兰战争的名人麦莉·赛勒斯](/content/gnews/2423238.md)
- `樱花FM`
-
-#### [樱花FM｜日本前首相安倍晋三就目前时局发表看法](/content/gnews/2423223.md)
- `樱花FM`
 
 #### [樱花时政┃岸田文雄与泽连斯基举行电话会谈](/content/gnews/2423092.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -136,6 +136,12 @@
 
 #### [中日财经爆&#124;俄法院下令没收谷歌700 万美元在俄资产](/content/gnews/2422462.md)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [彭佩奥警惕中共攻打台湾的必然性](/content/gnews/2422422.md)
+ `NFSC News`
+
+#### [FDA批准争议药物瑞德西韦用于染疫幼童](/content/gnews/2422421.md)
+ `NFSC News`
 
 #### [视频显示普京在迎接白俄罗斯总统时似乎跌跌撞撞，手在颤抖](/content/gnews/2422372.md)
  `墨尔本雅典娜农场`
@@ -154,12 +160,6 @@
 
 #### [疫苗灾难｜20岁垒球明星Lauren Bernett突然离世 就读学校接种率高达92%](/content/gnews/2421484.md)
  `關注組`
-
-#### [秘翻在线：巴基斯坦发生针对中共国公民的自杀式爆炸事件](/content/gnews/2421255.md)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线 :巴基斯坦发生针对中国人的自杀式炸弹攻击事件](/content/gnews/2421207.md)
- `秘密翻譯組G-Translators`
 
 #### [樱花时政┃瑞士否决了德国向乌克兰重新出口坦克弹药的请求](/content/gnews/2421082.md)
  `東京櫻花団-Tokyo Sakura Group`
