@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17a7mpfff1.md)
+
+4/26/2022 Miles Guo's GETTR: The PAX case has been successfully turned into a criminal case, and this is of great significance to the Whistleblowers' Movement and the New Federal State of China! The CCP agents involved in this case...
+
+<img src="https://media.gettr.com/group23/getter/2022/04/27/07/a2359755-f04c-c341-1dce-52bcaf5dc6a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p179vwfc263.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -92,11 +100,11 @@
 
 ---
 
-[@miles 4/27/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17a7mpfff1.md)
+[@miles 4/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17b3h46a02.md)
 
-4/26/2022 Miles Guo's GETTR: The PAX case has been successfully turned into a criminal case, and this is of great significance to the Whistleblowers' Movement and the New Federal State of China! The CCP agents involved in this case...
+2022.04.27  新中国联邦 | 军情室  芬兰瑞典申请加入北约，德国澳洲再次援助军备，俄T90M坦克惊现乌东，美舰再次穿越台湾海峡，浅谈激光雷达反潜探测
 
-<img src="https://media.gettr.com/group23/getter/2022/04/27/07/a2359755-f04c-c341-1dce-52bcaf5dc6a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/04/27/10/02576a3d-55f0-348b-5ddb-d59d1ed1c791/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 52 - Date: A...
 
 <img src="https://media.gettr.com/group6/getter/2022/04/26/23/9fa6b9ad-8b1a-bb36-72b8-0855ee751ce3/be875571760b93d7440807a2ca9c6750.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p177wv6528f.md)
-
-“多维网自宫了...” 飞飞秀救援快报 2022-04-26
-
-For English：gettr.com/streaming/p178b8rad46
-
-<img src="https://media.gettr.com/group23/origin/2022/04/26/22/02127552-8552-3a57-6cf3-4b9abcc2298f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
