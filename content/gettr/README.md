@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 4/27/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17dmuod0bc.md)
+
+4/27/2022 Miles Guo’s GETTR: The economy and morale in Communist China is in a total mess, because God is helping us take down the CCP! Our fellow fighters at the Ukraine front line helping refugees are the biggest heroes of the Ne...
+
+<img src="https://media.gettr.com/group13/getter/2022/04/27/23/6878b97d-1d67-5b26-5549-1d30a27733bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p17dnu8ba31.md)
 
 【Ukraine Rescue】 04/25/22 A volunteer from Italy, Paulo, who used to be an English teacher in Xiamen, Fujian, comes forward to talk to us when he sees our anti-communist vests. He says he knows many Chinese friends who are longing ...
 
 <img src="https://media.gettr.com/group10/getter/2022/04/27/23/d191576e-9a12-2b04-04d2-e6fdab74d501/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p17dnjb6a85.md)
+
+4/27/2022 Miles Guo’s GETTR: Duowei News, which has been run by the CCP for more than 20 years, made a huge mistake and was therefore forced to be shut down. Yu Pun-hoi of Duowei News, Weijian Shan of PAG, and Bruno Wu conspired to...
+
+<img src="https://media.gettr.com/group39/getter/2022/04/27/23/63cce88a-9af3-c634-f75d-ffd2a2565054/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +81,6 @@ About the New Federal State of China #NFSC 👇
 We ...
 
 <img src="https://media.gettr.com/group3/origin/2022/04/25/19/f8522dac-7e76-364c-4a1a-965e2f989e15/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p17dnjb6a85.md)
-
-4/27/2022 Miles Guo’s GETTR: Duowei News, which has been run by the CCP for more than 20 years, made a huge mistake and was therefore forced to be shut down. Yu Pun-hoi of Duowei News, Weijian Shan of PAG, and Bruno Wu conspired to...
-
-<img src="https://media.gettr.com/group39/getter/2022/04/27/23/63cce88a-9af3-c634-f75d-ffd2a2565054/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Day 53 - Date: A...
 4月27号：尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重新健康，安全起来，一切都已经开始！
 
 <img src="https://media.gettr.com/group49/getter/2022/04/27/12/e1ce2d7b-11bf-700b-d98d-1edd09fc08a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17b3h46a02.md)
-
-2022.04.27  新中国联邦 | 军情室  芬兰瑞典申请加入北约，德国澳洲再次援助军备，俄T90M坦克惊现乌东，美舰再次穿越台湾海峡，浅谈激光雷达反潜探测
-
-<img src="https://media.gettr.com/group22/origin/2022/04/27/10/02576a3d-55f0-348b-5ddb-d59d1ed1c791/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
