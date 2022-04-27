@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/27/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p17aw6l5969.md)
+
+[Ukraine Rescue] 04/26/2022 Nicole, our fellow fighter, interviewed a veteran who served in the British army for 16 years on the rescue front. He very much recognized that freedom is not free, and freedom can only be obtained throu...
+
+<img src="https://media.gettr.com/group17/origin/2022/04/27/12/c6405b88-49a0-5ed7-4359-a8b241ad1129/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:55 PM UTC  - :tv:直播](/content/gettr/p17b2f297af.md)
+
+2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
+
+<img src="https://media.gettr.com/group15/origin/2022/04/27/12/358cc594-98f9-e9fe-4b67-6f66f1adddc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 12:15 PM UTC ](/content/gettr/p17ass3364e.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -31,6 +47,14 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 53 - Date: A...
 
 <img src="https://media.gettr.com/group10/getter/2022/04/27/12/7d2a13d8-b220-1f4e-0636-d96f475f9517/289748d60ac719dea19f2e5b8dafddc1.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p17anje471e.md)
+
+4月27号：我R共产党八辈祖宗！这个时候开始说实话了多少人因为这种毒疫苗死掉呢，谁能负责任呢？
+
+<img src="https://media.gettr.com/group6/getter/2022/04/27/12/e53e1153-1417-bb0b-b385-591563e3c769/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,37 +188,11 @@ Day 53 - Date: A...
 
 ---
 
-[@miles 4/26/2022 11:35 PM UTC ](/content/gettr/p178o4u2bb2.md)
-
-4月26号：共产党的老杂毛们……你们准备好了吗？你们所有在海外的盗国财富．都将是被没收．并转给我们新中国联邦……还给中国人民！所有的中国人民必须永远的又自己，现在已经拥有的房子的产权土地却完全不用还所谓的共产党的银行责任和信用卡和贷款，因为中国人民过去的70年被盗走的财富，远远得大于现在人民欠的所谓银行的钱。咱们走看吧……老杂毛呗。https://www.voachinese.com/a/us-seized-Russian-assets-20220426/6...
-
-<img src="https://media.gettr.com/group7/getter/2022/04/26/23/fb4117af-103a-fe54-4b10-87f8f220e6ec/e0c4e3eccf2aeb74d1e6e7ef36e61582.jpg" width="506" height="284">
-
----
-
 [@miles 4/26/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p178og0eb3a.md)
 
 2022.04.26 NFSC fringe episode 177
 
 <img src="https://media.gettr.com/group49/origin/2022/04/26/23/ddca144e-5d5f-c1d7-8a43-7b367c490b08/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p177sh2b359.md)
-
-4/26/2022 Miles Guo's GETTR: Many people asked about my views on the acquisition of Twitter by Elon Musk. Elon Musk is a smart guy and he will for sure come out several brilliant ideas, but no one can wipe off the influence of the ...
-
-<img src="https://media.gettr.com/group15/getter/2022/04/26/23/ded40a39-bbec-09a5-c7f9-cc0886d026b6/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:26 PM UTC  - :tv:直播](/content/gettr/p178nz552d8.md)
-
-
-
-4月26号：尊敬的战友们好……感谢你们的关心，今天是个大日子．好日子，一个期盼了五年的新的里程碑的开始，记住今天吧，兄弟姐妹们，一切都已经开始。
-
-<img src="https://media.gettr.com/group25/getter/2022/04/26/23/04a82e9a-1087-c9ba-22a4-1246c802fdf7/out.jpg" width="506" height="284">
 
 ---
 
