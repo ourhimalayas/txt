@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 4/26/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p177sh2b359.md)
+[@miles 4/26/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p178kd5db9a.md)
 
-4/26/2022 Miles Guo's GETTR: Many people asked about my views on the acquisition of Twitter by Elon Musk. Elon Musk is a smart guy and he will for sure come out several brilliant ideas, but no one can wipe off the influence of the ...
+4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
 
-<img src="https://media.gettr.com/group15/getter/2022/04/26/23/ded40a39-bbec-09a5-c7f9-cc0886d026b6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/04/26/23/80d75ddd-feb1-9c9d-145c-228d719b6bb2/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.04.26 NFSC fringe episode 177
 
 <img src="https://media.gettr.com/group49/origin/2022/04/26/23/ddca144e-5d5f-c1d7-8a43-7b367c490b08/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 11:24 PM UTC  - :tv:直播](/content/gettr/p177sh2b359.md)
+
+4/26/2022 Miles Guo's GETTR: Many people asked about my views on the acquisition of Twitter by Elon Musk. Elon Musk is a smart guy and he will for sure come out several brilliant ideas, but no one can wipe off the influence of the ...
+
+<img src="https://media.gettr.com/group15/getter/2022/04/26/23/ded40a39-bbec-09a5-c7f9-cc0886d026b6/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts
 4/24/2022 Miles Guo: If the CCP attacks Taiwan, the US will provide weapons for Taiwan to bomb the cities in mainland China such as Beijing; the arrogance of people in Beijing will make their lives even worse than those in Shanghai...
 
 <img src="https://media.gettr.com/group33/getter/2022/04/26/16/2b768360-9805-fbbc-f028-3017c8755d7b/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 2:20 PM UTC  - :tv:直播](/content/gettr/p176hi18835.md)
-
-4月26号：尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！
-
-<img src="https://media.gettr.com/group42/getter/2022/04/26/14/9451c9c5-5161-20b5-493d-c1e843657310/out.jpg" width="506" height="284">
 
 ---
 
