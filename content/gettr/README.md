@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 4/27/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p17aw6l5969.md)
-
-[Ukraine Rescue] 04/26/2022 Nicole, our fellow fighter, interviewed a veteran who served in the British army for 16 years on the rescue front. He very much recognized that freedom is not free, and freedom can only be obtained throu...
-
-<img src="https://media.gettr.com/group17/origin/2022/04/27/12/c6405b88-49a0-5ed7-4359-a8b241ad1129/out.jpg" width="506" height="284">
-
----
-
 [@7upgogo 4/27/2022 6:56 AM UTC ](/content/gettr/p17ai9i8a08.md)
 
 美驱逐舰再次通过台湾海峡
@@ -21,6 +13,22 @@ Destroyer USS Sampson Transits Taiwan Strait
       The US 7th Fleet said the USS Sampson (DDG-102) had sailed from north to south through the strait on Tuesday. “The ship's transit through the Taiwan Strait demonst...
 
 <img src="https://media.gettr.com/group41/origin/2022/04/27/06/5d8b5f7c-47ea-2e70-fa55-ee38dde598ea/316ab5769a41524c1fe2350bad4edcc0.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p17aw6l5969.md)
+
+[Ukraine Rescue] 04/26/2022 Nicole, our fellow fighter, interviewed a veteran who served in the British army for 16 years on the rescue front. He very much recognized that freedom is not free, and freedom can only be obtained throu...
+
+<img src="https://media.gettr.com/group17/origin/2022/04/27/12/c6405b88-49a0-5ed7-4359-a8b241ad1129/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 1:22 PM UTC  - :tv:直播](/content/gettr/p17anve6cfb.md)
+
+[Ukraine Rescue] Nicole interviewed an Israeli volunteer who was born in the former Soviet Union on the frontline of the Russian-Ukrainian rescue. As a person born in a former communist dictatorship country, she understands the sit...
+
+<img src="https://media.gettr.com/group21/origin/2022/04/27/13/32a13227-4849-4cf8-acda-d7426f35adbb/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Day 53 - Date: A...
 4/26/2022 Miles Guo’s GETTR: The Chinese Communist Party believes that the Chinese people have a tremendous amount of resilience and tendency to forget. So, the CCP has got ready for its long-term plan to let the Chinese people liv...
 
 <img src="https://media.gettr.com/group8/getter/2022/04/27/00/b57b19c7-7fa4-1c20-f365-bde5d28b8a63/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p178kd5db9a.md)
-
-4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
-
-<img src="https://media.gettr.com/group21/getter/2022/04/26/23/80d75ddd-feb1-9c9d-145c-228d719b6bb2/out.jpg" width="506" height="284">
 
 ---
 
