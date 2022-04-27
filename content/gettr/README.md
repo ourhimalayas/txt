@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/27/2022 6:22 PM UTC  - :tv:直播](/content/gettr/p17bcc12bc3.md)
+
+2022年4月27日  犹太大屠杀纪念日特别直播
+
+<img src="https://media.gettr.com/group41/origin/2022/04/27/18/fd5afba7-05f0-d4a7-695c-49e6f1c5aeea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 5:32 PM UTC  - :tv:直播](/content/gettr/p17b2g4dd21.md)
+
+2022年4月27日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group40/origin/2022/04/27/17/a438d558-29a1-ff4b-83be-87a42b09fe5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 4:32 PM UTC  - :tv:直播](/content/gettr/p17bq7h3a35.md)
 
 【Ukraine Rescue】04/25/22 Ben, the bunnyman from Kentucky, USA, expresses movingly: I came here twice to help these people, but also to support your efforts; without your tent, without your organization, this doesn't exist; and you ...
@@ -18,11 +34,11 @@
 
 ---
 
-[@miles 4/27/2022 5:32 PM UTC  - :tv:直播](/content/gettr/p17b2g4dd21.md)
+[@dailybeats 4/22/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p16kuyf4125.md)
 
-2022年4月27日 俄乌战争战况播报
+Fine Food from the New Federal State of China and Rule of Law Foundation interviewed a German physician, Dr. Wjahat Waraich at Medyka, the Polish Ukraine border.  Dr. Waraich set up a clinic to provide emergency medical support and...
 
-<img src="https://media.gettr.com/group40/origin/2022/04/27/17/a438d558-29a1-ff4b-83be-87a42b09fe5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/04/22/05/5a6e1ed3-1aef-7229-e53c-0c50dd797d11/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,22 +199,6 @@ Day 53 - Date: A...
 　　美国总统拜登4月21日曾表示，美国将向乌克兰提供价值8亿美元的额外安全援助。美国防部当天称，此次额外安全援助包括72门155毫米口径榴弹炮、72辆榴弹炮牵引车、14.4万发炮弹以及逾121架战术...
 
 <img src="https://media.gettr.com/group24/origin/2022/04/26/19/ea62df4f-ee3f-aec1-8bad-6af0558f68e4/a93950d92510177f6d95bbd7a172fe06.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p178n37888f.md)
-
-2022.04.26  新中国联邦 | 喜财经  石油以及人民币走势；Elon Mask 以440亿美金收购推特Twitter成功-背后意味什么
-
-<img src="https://media.gettr.com/group3/origin/2022/04/27/01/255bb628-464d-a429-376a-8271ee807229/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/27/2022 1:00 AM UTC  - :tv:直播](/content/gettr/p178mm50f3c.md)
-
-2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
-
-<img src="https://media.gettr.com/group41/origin/2022/04/27/00/35f288fb-9467-f6a6-1b91-6e9ec33ef780/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
