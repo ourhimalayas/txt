@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1794788be4.md)
+
+2022-4-26《鸡血王喜币大作战》 第一百七十七集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@7upgogo 4/26/2022 7:16 PM UTC ](/content/gettr/p1775s18338.md)
 
 美方重型运输机密集抵达波兰
@@ -40,11 +48,15 @@
 
 ---
 
-[@miles 4/27/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1794788be4.md)
+[@miles 4/27/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p179op593e8.md)
 
-2022-4-26《鸡血王喜币大作战》 第一百七十七集 嘉宾：无双柳薇薇、文空
+【Ukraine Rescue】04/25/2022 When interviewed by our fellow fighter Nicole, volunteer Yanni from Romania says that he understands many Chinese people have no freedom to access information and have been brainwashed by the CCP.
 
-<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+【乌克兰...
+
+<img src="https://media.gettr.com/group44/getter/2022/04/27/04/e5e34c72-be2e-f189-33c2-9ba87941829e/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
 
 <img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 6:11 PM UTC  - :tv:直播](/content/gettr/p177km9c206.md)
-
-4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
-
-<img src="https://media.gettr.com/group21/getter/2022/04/26/18/b397388d-3c86-d1a5-5181-657877793d70/out.jpg" width="506" height="284">
 
 ---
 
