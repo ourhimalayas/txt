@@ -3,6 +3,8 @@
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年11月14日郭文贵先生路上直播](/content/transcript/2019/11/20191116-589334000754628973.md)
+
 [文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/content/transcript/2019/11/20191115-1929062712375432404.md)
 
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/content/transcript/2019/11/20191113-7768308991130879569.md)
@@ -50,8 +52,6 @@
 [文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/content/transcript/2019/10/20191024-2483219428770784114.md)
 
 [文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/content/transcript/2019/10/20191024-6179823633507138709.md)
-
-[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/transcript/2019/10/20191022-2968214834265730245.md)
 
 
 ## 頁面 22/42 [**<**](/content/transcript/README-21.md) [1](/content/transcript/README.md) ... [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) **22** [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-23.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 17/42 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年4月19日郭先生GTV直播](/content/transcript/2020/04/20200423-2216881106964005874.md)
+
 [文字版:2020年04月18日郭先生GTV 直播](/content/transcript/2020/04/20200421-4424351447189958963.md)
 
 [文字版：2020年4月15日郭先生G-TV直播](/content/transcript/2020/04/20200418-7334677930976897436.md)
@@ -50,8 +52,6 @@
 [文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/transcript/2020/03/20200321-732520138033685407.md)
 
 [文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/transcript/2020/03/20200319-5480491388779340708.md)
-
-[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/content/transcript/2020/03/20200317-7978079183041505608.md)
 
 
 ## 頁面 17/42 [**<**](/content/transcript/README-16.md) [1](/content/transcript/README.md) ... [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) **17** [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-18.md) [查看全部](/content/transcript/README-all.md)

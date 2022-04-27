@@ -3,6 +3,8 @@
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/transcript/2018/10/20181025-6578176193643751329.md)
+
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/transcript/2018/10/20181025-1627101594427437852.md)
 
 [文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/content/transcript/2018/10/20181021-3410714193458373203.md)
@@ -50,8 +52,6 @@
 [文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/content/transcript/2018/09/20180906-3174109642123274435.md)
 
 [文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/content/transcript/2018/09/20180904-9130143766772913828.md)
-
-[文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/content/transcript/2018/09/20180904-16996182542595224.md)
 
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

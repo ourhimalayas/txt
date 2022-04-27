@@ -3,6 +3,8 @@
 
 ## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/transcript/2018/04/20180426-4217728045032280574.md)
+
 [郭文贵先生与陈志煜对话录音（中英字幕）](/content/transcript/2018/04/20180425-6089618542439587251.md)
 
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/transcript/2018/04/20180425-1035788071787459036.md)
@@ -50,8 +52,6 @@
 [文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/content/transcript/2018/04/20180418-7552905014733217015.md)
 
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/content/transcript/2018/04/20180418-7199501813043943627.md)
-
-[文字版： 3月28日香港黑警察与金正恩访华！](/content/transcript/2018/04/20180418-7167850208053713596.md)
 
 
 ## 頁面 35/42 [**<**](/content/transcript/README-34.md) [1](/content/transcript/README.md) ... [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) **35** [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-36.md) [查看全部](/content/transcript/README-all.md)

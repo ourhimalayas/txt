@@ -3,6 +3,8 @@
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/transcript/2019/10/20191022-2968214834265730245.md)
+
 [文字版：2019年10月21日郭先生第一次报平安](/content/transcript/2019/10/20191022-1216375453972564281.md)
 
 [文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/transcript/2019/10/20191021-396418607512158731.md)
@@ -50,8 +52,6 @@
 [文字版：2019年9月15日 香港已成为恐惧之港](/content/transcript/2019/09/20190917-7577220596935524798.md)
 
 [文字版：2019年9月16日郭先生直播](/content/transcript/2019/09/20190917-3170231134844722988.md)
-
-[文字版：2019年9月14日郭先生报平安视频](/content/transcript/2019/09/20190915-5986309951181433663.md)
 
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

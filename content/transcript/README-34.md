@@ -3,6 +3,8 @@
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/transcript/2018/07/20180710-2033069974209071479.md)
+
 [文字版：July 6th 2018 郭媒体直播](/content/transcript/2018/07/20180707-180274757659338281.md)
 
 [翻译：中国电子间谍威胁 by Bill](/content/transcript/2018/07/20180707-1620127195279414710.md)
@@ -50,8 +52,6 @@
 [文字版：4月28日金正恩是我们学习的坏榜样！](/content/transcript/2018/04/20180429-1799430545409667372.md)
 
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/transcript/2018/04/20180426-3820645061800034569.md)
-
-[翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/transcript/2018/04/20180426-4217728045032280574.md)
 
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)

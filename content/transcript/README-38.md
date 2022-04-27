@@ -3,6 +3,8 @@
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/transcript/2018/04/20180418-6750041180802210914.md)
+
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/transcript/2018/04/20180418-1392173713763860435.md)
 
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/transcript/2018/04/20180418-3422500630253145548.md)
@@ -50,8 +52,6 @@
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/content/transcript/2018/04/20180418-5435715492986281855.md)
 
 [Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/transcript/2018/04/20180418-7095490617264238723.md)
-
-[（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/transcript/2018/04/20180418-1176717369305738792.md)
 
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

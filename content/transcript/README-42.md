@@ -3,6 +3,8 @@
 
 ## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
 
+[郭文贵先生9月10号报平安直播文字版](/content/transcript/2018/04/20180418-8363627678146390497.md)
+
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)](/content/transcript/2018/04/20180418-3089407742427439276.md)
 
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版](/content/transcript/2018/04/20180418-1789482780048338185.md)

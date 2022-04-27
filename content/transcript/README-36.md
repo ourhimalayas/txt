@@ -3,6 +3,8 @@
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版： 3月28日香港黑警察与金正恩访华！](/content/transcript/2018/04/20180418-7167850208053713596.md)
+
 [文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/content/transcript/2018/04/20180418-6369908428549122870.md)
 
 [文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/content/transcript/2018/04/20180418-2462703104101503083.md)
@@ -50,8 +52,6 @@
 [文字版：《文贵看春晚》爆料（一，二）](/content/transcript/2018/04/20180418-7031561939158175109.md)
 
 [文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/content/transcript/2018/04/20180418-3829299290570910245.md)
-
-[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/transcript/2018/04/20180418-763599540793711583.md)
 
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
