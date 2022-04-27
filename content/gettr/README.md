@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17aduw6e44.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group26/origin/2022/04/27/04/fde52c40-6057-01a7-149b-d89113281fbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 4:32 AM UTC  - :tv:直播](/content/gettr/p179wyfb1a2.md)
 
 4/26/2022 Miles Guo's GETTR: Why has Xi Jinping ordered Duowei News to close its website? Duowei has posted fabricated photos and fake day and time to defame Mr. Miles Guo, after which Bruno’s business partner, a former FBI officer...
@@ -68,11 +76,11 @@
 
 ---
 
-[@miles 4/27/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17aduw6e44.md)
+[@miles 4/27/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p17aiydadc5.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+【Ukraine Rescue】04/25/22 Volunteer Yanni from Romania says he once lived under communist Romania, he knows the risk of free expression of political opinion. So he very much appreciates and respects the New Federal State of China wh...
 
-<img src="https://media.gettr.com/group26/origin/2022/04/27/04/fde52c40-6057-01a7-149b-d89113281fbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/04/27/05/ac93ad51-6a0f-ec52-ceb5-d8b9a260ec42/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 2022.04.26  新中国联邦 | 喜健康   Omicron 感染与再感染的预防和上期兽药伊维菌素澄清答疑
 
 <img src="https://media.gettr.com/group15/origin/2022/04/26/20/bc962440-5712-8ef1-8f9e-3ca5136362f4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 7:00 PM UTC  - :tv:直播](/content/gettr/p17594j67ad.md)
-
-2022-4-26《避风港》(40) 疫苗接种剂数与高死亡率正相关
-
-<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
