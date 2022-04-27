@@ -26,11 +26,11 @@ We ...
 
 ---
 
-[@miles 4/27/2022 6:22 PM UTC  - :tv:直播](/content/gettr/p17bcc12bc3.md)
+[@miles 4/27/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p17d4stfa23.md)
 
-2022年4月27日  犹太大屠杀纪念日特别直播
+2022.04.27  新中国联邦 | 喜健康  急救速成
 
-<img src="https://media.gettr.com/group41/origin/2022/04/27/18/fd5afba7-05f0-d4a7-695c-49e6f1c5aeea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/04/27/20/8739a3ff-123f-d999-7d29-b676eeb70b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -41,6 +41,14 @@ We ...
 When the days that the young Belgian is volunteering in the Medyka refugee camp,  he deeply felt that every volunteer put giving more help to Ukrainian refugees on the first plac...
 
 <img src="https://media.gettr.com/group46/origin/2022/04/25/00/5387e52c-06f5-5993-2958-be1184acb33c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 6:22 PM UTC  - :tv:直播](/content/gettr/p17bcc12bc3.md)
+
+2022年4月27日  犹太大屠杀纪念日特别直播
+
+<img src="https://media.gettr.com/group41/origin/2022/04/27/18/fd5afba7-05f0-d4a7-695c-49e6f1c5aeea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,18 +207,6 @@ Day 53 - Date: A...
 4/26/2022 Miles Guo's GETTR: Why has Xi Jinping ordered Duowei News to close its website? Duowei has posted fabricated photos and fake day and time to defame Mr. Miles Guo, after which Bruno’s business partner, a former FBI officer...
 
 <img src="https://media.gettr.com/group23/getter/2022/04/27/04/fb51876d-0cbe-1ef5-cf54-8c6f67c8beab/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p179op593e8.md)
-
-【Ukraine Rescue】04/25/2022 When interviewed by our fellow fighter Nicole, volunteer Yanni from Romania says that he understands many Chinese people have no freedom to access information and have been brainwashed by the CCP.
-
-
-
-【乌克兰...
-
-<img src="https://media.gettr.com/group44/getter/2022/04/27/04/e5e34c72-be2e-f189-33c2-9ba87941829e/out.jpg" width="506" height="284">
 
 ---
 
