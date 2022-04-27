@@ -2,6 +2,20 @@
 ---
 
 
+[@7upgogo 4/26/2022 7:16 PM UTC ](/content/gettr/p1775s18338.md)
+
+美方重型运输机密集抵达波兰
+
+
+
+        4月25日据乌克兰国际文传电讯社报道，美国重型运输机密集抵达距离乌克兰边境仅90公里的波兰城市热舒夫，一天之内至少有6架降落，包括2架美国空军C-17A军用运输机，以及多架由美国五角大楼租用的波音747运输机。
+
+　　美国总统拜登4月21日曾表示，美国将向乌克兰提供价值8亿美元的额外安全援助。美国防部当天称，此次额外安全援助包括72门155毫米口径榴弹炮、72辆榴弹炮牵引车、14.4万发炮弹以及逾121架战术...
+
+<img src="https://media.gettr.com/group24/origin/2022/04/26/19/ea62df4f-ee3f-aec1-8bad-6af0558f68e4/a93950d92510177f6d95bbd7a172fe06.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p178n37888f.md)
 
 2022.04.26  新中国联邦 | 喜财经  石油以及人民币走势；Elon Mask 以440亿美金收购推特Twitter成功-背后意味什么
@@ -26,17 +40,11 @@
 
 ---
 
-[@7upgogo 4/26/2022 7:16 PM UTC ](/content/gettr/p1775s18338.md)
+[@miles 4/27/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1794788be4.md)
 
-美方重型运输机密集抵达波兰
+2022-4-26《鸡血王喜币大作战》 第一百七十七集 嘉宾：无双柳薇薇、文空
 
-
-
-        4月25日据乌克兰国际文传电讯社报道，美国重型运输机密集抵达距离乌克兰边境仅90公里的波兰城市热舒夫，一天之内至少有6架降落，包括2架美国空军C-17A军用运输机，以及多架由美国五角大楼租用的波音747运输机。
-
-　　美国总统拜登4月21日曾表示，美国将向乌克兰提供价值8亿美元的额外安全援助。美国防部当天称，此次额外安全援助包括72门155毫米口径榴弹炮、72辆榴弹炮牵引车、14.4万发炮弹以及逾121架战术...
-
-<img src="https://media.gettr.com/group24/origin/2022/04/26/19/ea62df4f-ee3f-aec1-8bad-6af0558f68e4/a93950d92510177f6d95bbd7a172fe06.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
 
 <img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 5:50 PM UTC  - :tv:直播](/content/gettr/p176t78798e.md)
-
-【Ukraine Rescue】04/25/2022 Four Belgian volunteers see many people wearing the “TAKE DOWN the Chinese Communist Party” vest just two hours after they came to Medyka camp. Then they come to ask if they could have one and agree with ...
-
-<img src="https://media.gettr.com/group27/getter/2022/04/26/17/2a50f037-6b5f-f146-709c-46ea9962dfbd/out.jpg" width="506" height="284">
 
 ---
 
