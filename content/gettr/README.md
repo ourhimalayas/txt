@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p179vwfc263.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group42/origin/2022/04/27/06/b8df0ab4-a6d3-70c9-861f-e214e7f0856f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p17aiydadc5.md)
 
 【Ukraine Rescue】04/25/22 Volunteer Yanni from Romania says he once lived under communist Romania, he knows the risk of free expression of political opinion. So he very much appreciates and respects the New Federal State of China wh...
@@ -84,11 +92,11 @@
 
 ---
 
-[@miles 4/27/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p179vwfc263.md)
+[@miles 4/27/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17a7mpfff1.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+4/26/2022 Miles Guo's GETTR: The PAX case has been successfully turned into a criminal case, and this is of great significance to the Whistleblowers' Movement and the New Federal State of China! The CCP agents involved in this case...
 
-<img src="https://media.gettr.com/group42/origin/2022/04/27/06/b8df0ab4-a6d3-70c9-861f-e214e7f0856f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/04/27/07/a2359755-f04c-c341-1dce-52bcaf5dc6a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Day 52 - Date: A...
 For English：gettr.com/streaming/p178b8rad46
 
 <img src="https://media.gettr.com/group23/origin/2022/04/26/22/02127552-8552-3a57-6cf3-4b9abcc2298f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 9:08 PM UTC  - :tv:直播](/content/gettr/p177at8208d.md)
-
-A volunteer from Italy is interested in our vest (take down the CCP) and is interviewed by Nicole. He has lived in Xiamen, China for a few years as an English teacher. He is very surprised to see the new Chinese people here who are...
-
-<img src="https://media.gettr.com/group44/origin/2022/04/26/21/905a622f-7134-e200-dd29-6cc57145142e/out.jpg" width="506" height="284">
 
 ---
 
