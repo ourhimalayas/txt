@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 4/27/2022 11:02 PM UTC  - :tv:直播](/content/gettr/p17d5ae9e66.md)
+
+2022.04.27  PM NFSC news  U.K. removes tariffs on all goods from Ukraine, ban exports to Russia
+
+<img src="https://media.gettr.com/group44/origin/2022/04/27/22/e134a8fa-c80b-41cd-4079-2ae4dc2e70ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p17dnu8ba31.md)
+
+【Ukraine Rescue】 04/25/22 A volunteer from Italy, Paulo, who used to be an English teacher in Xiamen, Fujian, comes forward to talk to us when he sees our anti-communist vests. He says he knows many Chinese friends who are longing ...
+
+<img src="https://media.gettr.com/group10/getter/2022/04/27/23/d191576e-9a12-2b04-04d2-e6fdab74d501/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p17dl5203a0.md)
+
+ 4月27号：尊敬的战友们好……开完庭了开完庭了，谢谢战友们的关心，感恩上天护佑我们的一切，大家一起为美好的今天感谢万佛万神吧，一切都已经开始！
+
+<img src="https://media.gettr.com/group41/getter/2022/04/27/22/06e6b685-ace5-4134-fa89-d008f9d99c04/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17dgnuacda.md)
 
 “吴红旗你在哪？？” 飞飞秀救援快报 2022-04-27
@@ -44,11 +68,11 @@ We ...
 
 ---
 
-[@miles 4/27/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p17dl5203a0.md)
+[@miles 4/27/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p17dnjb6a85.md)
 
- 4月27号：尊敬的战友们好……开完庭了开完庭了，谢谢战友们的关心，感恩上天护佑我们的一切，大家一起为美好的今天感谢万佛万神吧，一切都已经开始！
+4/27/2022 Miles Guo’s GETTR: Duowei News, which has been run by the CCP for more than 20 years, made a huge mistake and was therefore forced to be shut down. Yu Pun-hoi of Duowei News, Weijian Shan of PAG, and Bruno Wu conspired to...
 
-<img src="https://media.gettr.com/group41/getter/2022/04/27/22/06e6b685-ace5-4134-fa89-d008f9d99c04/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/04/27/23/63cce88a-9af3-c634-f75d-ffd2a2565054/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,30 +209,6 @@ Day 53 - Date: A...
 2022.04.27  新中国联邦 | 军情室  芬兰瑞典申请加入北约，德国澳洲再次援助军备，俄T90M坦克惊现乌东，美舰再次穿越台湾海峡，浅谈激光雷达反潜探测
 
 <img src="https://media.gettr.com/group22/origin/2022/04/27/10/02576a3d-55f0-348b-5ddb-d59d1ed1c791/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17a7mpfff1.md)
-
-4/26/2022 Miles Guo's GETTR: The PAX case has been successfully turned into a criminal case, and this is of great significance to the Whistleblowers' Movement and the New Federal State of China! The CCP agents involved in this case...
-
-<img src="https://media.gettr.com/group23/getter/2022/04/27/07/a2359755-f04c-c341-1dce-52bcaf5dc6a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 6:56 AM UTC  - :tv:直播](/content/gettr/p179vwfc263.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group42/origin/2022/04/27/06/b8df0ab4-a6d3-70c9-861f-e214e7f0856f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 5:59 AM UTC  - :tv:直播](/content/gettr/p17aiydadc5.md)
-
-【Ukraine Rescue】04/25/22 Volunteer Yanni from Romania says he once lived under communist Romania, he knows the risk of free expression of political opinion. So he very much appreciates and respects the New Federal State of China wh...
-
-<img src="https://media.gettr.com/group50/getter/2022/04/27/05/ac93ad51-6a0f-ec52-ceb5-d8b9a260ec42/out.jpg" width="506" height="284">
 
 ---
 
