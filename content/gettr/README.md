@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 4/26/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p178kd5db9a.md)
+[@miles 4/27/2022 3:43 PM UTC  - :tv:直播](/content/gettr/p17b2fq2662.md)
 
-4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
+2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
 
-<img src="https://media.gettr.com/group21/getter/2022/04/26/23/80d75ddd-feb1-9c9d-145c-228d719b6bb2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/04/27/12/358cc594-98f9-e9fe-4b67-6f66f1adddc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
