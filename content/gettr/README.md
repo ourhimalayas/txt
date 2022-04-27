@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/26/2022 11:50 PM UTC  - :tv:直播](/content/gettr/p178kd5db9a.md)
+
+4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
+
+<img src="https://media.gettr.com/group21/getter/2022/04/26/23/80d75ddd-feb1-9c9d-145c-228d719b6bb2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 1:22 PM UTC  - :tv:直播](/content/gettr/p17anve6cfb.md)
+
+[Ukraine Rescue] Nicole interviewed an Israeli volunteer who was born in the former Soviet Union on the frontline of the Russian-Ukrainian rescue. As a person born in a former communist dictatorship country, she understands the sit...
+
+<img src="https://media.gettr.com/group21/origin/2022/04/27/13/32a13227-4849-4cf8-acda-d7426f35adbb/out.jpg" width="506" height="284">
+
+---
+
 [@7upgogo 4/27/2022 6:56 AM UTC ](/content/gettr/p17ai9i8a08.md)
 
 美驱逐舰再次通过台湾海峡
@@ -21,22 +37,6 @@ Destroyer USS Sampson Transits Taiwan Strait
 [Ukraine Rescue] 04/26/2022 Nicole, our fellow fighter, interviewed a veteran who served in the British army for 16 years on the rescue front. He very much recognized that freedom is not free, and freedom can only be obtained throu...
 
 <img src="https://media.gettr.com/group17/origin/2022/04/27/12/c6405b88-49a0-5ed7-4359-a8b241ad1129/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 1:22 PM UTC  - :tv:直播](/content/gettr/p17anve6cfb.md)
-
-[Ukraine Rescue] Nicole interviewed an Israeli volunteer who was born in the former Soviet Union on the frontline of the Russian-Ukrainian rescue. As a person born in a former communist dictatorship country, she understands the sit...
-
-<img src="https://media.gettr.com/group21/origin/2022/04/27/13/32a13227-4849-4cf8-acda-d7426f35adbb/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:55 PM UTC  - :tv:直播](/content/gettr/p17b2f297af.md)
-
-2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
-
-<img src="https://media.gettr.com/group15/origin/2022/04/27/12/358cc594-98f9-e9fe-4b67-6f66f1adddc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
