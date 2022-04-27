@@ -2,11 +2,53 @@
 ---
 
 
+[@himalayadcfarm 4/25/2022 7:25 PM UTC  - :tv:直播](/content/gettr/p171whwe9d4.md)
+
+🆘🇺🇦🆘Report from NFSC's Ukraine Rescue by King】
+
+
+
+【🆘🇺🇦🆘来自乌克兰救援前线精糧的报道】
+
+今天我们在前方DC的战友精糧,在Medyka接受波兰最畅销新闻周刊《政治》（Polityka）采访.
+
+采访问题很尖锐,精糧的回答很精彩!
+
+"那你自己就是一个难民了,所以你能够理解那些人了?"
+
+
+
+About the New Federal State of China #NFSC 👇
+
+We ...
+
+<img src="https://media.gettr.com/group3/origin/2022/04/25/19/f8522dac-7e76-364c-4a1a-965e2f989e15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 6:22 PM UTC  - :tv:直播](/content/gettr/p17bcc12bc3.md)
 
 2022年4月27日  犹太大屠杀纪念日特别直播
 
 <img src="https://media.gettr.com/group41/origin/2022/04/27/18/fd5afba7-05f0-d4a7-695c-49e6f1c5aeea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@himalayadcfarm 4/25/2022 12:22 AM UTC  - :tv:直播](/content/gettr/p16y4l82b90.md)
+
+【🆘🇺🇦🆘Report from NFSC's Ukraine Rescue by King】
+
+When the days that the young Belgian is volunteering in the Medyka refugee camp,  he deeply felt that every volunteer put giving more help to Ukrainian refugees on the first plac...
+
+<img src="https://media.gettr.com/group46/origin/2022/04/25/00/5387e52c-06f5-5993-2958-be1184acb33c/out.jpg" width="506" height="284">
+
+---
+
+[@dailybeats 4/22/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p16kuyf4125.md)
+
+Fine Food from the New Federal State of China and Rule of Law Foundation interviewed a German physician, Dr. Wjahat Waraich at Medyka, the Polish Ukraine border.  Dr. Waraich set up a clinic to provide emergency medical support and...
+
+<img src="https://media.gettr.com/group27/getter/2022/04/22/05/5a6e1ed3-1aef-7229-e53c-0c50dd797d11/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +73,6 @@
 2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
 
 <img src="https://media.gettr.com/group15/origin/2022/04/27/12/358cc594-98f9-e9fe-4b67-6f66f1adddc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@dailybeats 4/22/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p16kuyf4125.md)
-
-Fine Food from the New Federal State of China and Rule of Law Foundation interviewed a German physician, Dr. Wjahat Waraich at Medyka, the Polish Ukraine border.  Dr. Waraich set up a clinic to provide emergency medical support and...
-
-<img src="https://media.gettr.com/group27/getter/2022/04/22/05/5a6e1ed3-1aef-7229-e53c-0c50dd797d11/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,28 +211,6 @@ Day 53 - Date: A...
 【乌克兰...
 
 <img src="https://media.gettr.com/group44/getter/2022/04/27/04/e5e34c72-be2e-f189-33c2-9ba87941829e/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1794788be4.md)
-
-2022-4-26《鸡血王喜币大作战》 第一百七十七集 嘉宾：无双柳薇薇、文空
-
-<img src="https://media.gettr.com/group30/origin/2022/04/11/02/15ee138b-bd0b-d959-df2e-3f3931cad89f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@7upgogo 4/26/2022 7:16 PM UTC ](/content/gettr/p1775s18338.md)
-
-美方重型运输机密集抵达波兰
-
-
-
-        4月25日据乌克兰国际文传电讯社报道，美国重型运输机密集抵达距离乌克兰边境仅90公里的波兰城市热舒夫，一天之内至少有6架降落，包括2架美国空军C-17A军用运输机，以及多架由美国五角大楼租用的波音747运输机。
-
-　　美国总统拜登4月21日曾表示，美国将向乌克兰提供价值8亿美元的额外安全援助。美国防部当天称，此次额外安全援助包括72门155毫米口径榴弹炮、72辆榴弹炮牵引车、14.4万发炮弹以及逾121架战术...
-
-<img src="https://media.gettr.com/group24/origin/2022/04/26/19/ea62df4f-ee3f-aec1-8bad-6af0558f68e4/a93950d92510177f6d95bbd7a172fe06.jpg" width="506" height="284">
 
 ---
 
