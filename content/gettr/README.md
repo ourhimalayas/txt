@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 4/26/2022 11:35 PM UTC ](/content/gettr/p178o4u2bb2.md)
+[@miles 4/27/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p178ezo6cfb.md)
 
-4月26号：共产党的老杂毛们……你们准备好了吗？你们所有在海外的盗国财富．都将是被没收．并转给我们新中国联邦……还给中国人民！所有的中国人民必须永远的又自己，现在已经拥有的房子的产权土地却完全不用还所谓的共产党的银行责任和信用卡和贷款，因为中国人民过去的70年被盗走的财富，远远得大于现在人民欠的所谓银行的钱。咱们走看吧……老杂毛呗。https://www.voachinese.com/a/us-seized-Russian-assets-20220426/6...
+2022.04.26 晚  新中国联邦 | 新闻   北京扩大核酸检测范围 传闻指上海计划本周内全面解禁；封城导致上海港货物堆积 全球供应链中断 国际股价油价大跌
 
-<img src="https://media.gettr.com/group7/getter/2022/04/26/23/fb4117af-103a-fe54-4b10-87f8f220e6ec/e0c4e3eccf2aeb74d1e6e7ef36e61582.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/04/27/00/b34c6b1d-ef4a-5cd1-b696-fbad0ccce84b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@
 4/26/2022 Miles Guo’s GETTR: Elon Musk’s acquisition of Twitter brings big challenge and also opportunities to GETTR, most challenges comes with management capabilities of GETTR team, but what will happen will be good to the Whistl...
 
 <img src="https://media.gettr.com/group21/getter/2022/04/26/23/80d75ddd-feb1-9c9d-145c-228d719b6bb2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 11:35 PM UTC ](/content/gettr/p178o4u2bb2.md)
+
+4月26号：共产党的老杂毛们……你们准备好了吗？你们所有在海外的盗国财富．都将是被没收．并转给我们新中国联邦……还给中国人民！所有的中国人民必须永远的又自己，现在已经拥有的房子的产权土地却完全不用还所谓的共产党的银行责任和信用卡和贷款，因为中国人民过去的70年被盗走的财富，远远得大于现在人民欠的所谓银行的钱。咱们走看吧……老杂毛呗。https://www.voachinese.com/a/us-seized-Russian-assets-20220426/6...
+
+<img src="https://media.gettr.com/group7/getter/2022/04/26/23/fb4117af-103a-fe54-4b10-87f8f220e6ec/e0c4e3eccf2aeb74d1e6e7ef36e61582.jpg" width="506" height="284">
+
+---
+
+[@miles 4/27/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1788fi1ee1.md)
+
+4/26/2022 Miles Guo’s GETTR: The Chinese Communist Party believes that the Chinese people have a tremendous amount of resilience and tendency to forget. So, the CCP has got ready for its long-term plan to let the Chinese people liv...
+
+<img src="https://media.gettr.com/group8/getter/2022/04/27/00/b57b19c7-7fa4-1c20-f365-bde5d28b8a63/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,28 +189,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 # 中共疫情封条#曲艺花苑#快板
 
 <img src="https://media.gettr.com/group11/origin/2022/04/26/06/7de64904-eaa1-fc69-f0f7-15f62ccbd067/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 4:47 PM UTC ](/content/gettr/p176mvsf553.md)
-
-04/26/2022 on the 8th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-
-
-No.1🥇 on Hong Kong🇭🇰,Germany🇩🇪 and Cambodia🇰🇭 Top Music Video Charts 
-
-No.1🥇 on USA🇺🇸 and Germany🇩🇪 Pop Music Video Charts 
-
-...
-
----
-
-[@miles 4/26/2022 4:15 PM UTC  - :tv:直播](/content/gettr/p176k6e235f.md)
-
-4/24/2022 Miles Guo: If the CCP attacks Taiwan, the US will provide weapons for Taiwan to bomb the cities in mainland China such as Beijing; the arrogance of people in Beijing will make their lives even worse than those in Shanghai...
-
-<img src="https://media.gettr.com/group33/getter/2022/04/26/16/2b768360-9805-fbbc-f028-3017c8755d7b/out.jpg" width="506" height="284">
 
 ---
 
