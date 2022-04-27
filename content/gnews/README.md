@@ -2,50 +2,65 @@
 ---
 
 
-#### [视频&#124;俄乌边境城市储油设施爆炸起火](/content/gnews/2421956.md)
+#### [首批使用人民币支付的俄罗斯煤炭即将抵达中共国](/content/gnews/2422080.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;中共对待孔子的态度都是为其统治服务](/content/gnews/2422079.md)
  `MOSVIDEO`
 
-#### [父母被强制隔离，两岁孩子困在家中，最终酿成悲剧](/content/gnews/2421952.md)
+#### [4月24日晚，上海，徐汇 北蔡 松江等多区民众开始抗议](/content/gnews/2422069.md)
  `Tokyo Sakura Video Group`
 
-#### [大多数美国人支持对中共国的进口产品提高关税](/content/gnews/2421951.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
+#### [樱花时政┃奥斯汀主持40多国防长会议，讨论持续军援乌克兰](/content/gnews/2422068.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [视频&#124;研究表明 中共国不会成为下一个世界秩序主导国](/content/gnews/2422061.md)
+ `MOSVIDEO`
+
+#### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期](/content/gnews/2422060.md)
+ `關注組`
+
+#### [上海疫情疫情防控期间，外国人承受不住CCP 高压政策，宣泄被封控的精神和肉体不满](/content/gnews/2422053.md)
+ `Tokyo Sakura Video Group`
+
+#### [视频&#124;中共股市汇市楼市三大皆空](/content/gnews/2422041.md)
+ `MOSVIDEO`
+
+#### [巴基斯坦孔子学院遭自杀式炸弹袭击，院长等4人身亡](/content/gnews/2422040.md)
+ `墨尔本雅典娜农场`
+
+#### [大型科技公司反对特鲁多的言论审查法案](/content/gnews/2422039.md)
+ `TokyoSakuraDesignGroup`
+
+#### [4月26日，上海松江九亭镇居民反映收到政府发放的酱鸭，怀疑起泡泡且有虫，并称小区其他业主也说酱鸭是坏的。 CCP 就是要让人民吃有毒，垃圾，生蛆的食品！因为这些食品只有CCP 能控制，普通人不可能插手这个物资！](/content/gnews/2422029.md)
+ `Tokyo Sakura Video Group`
+
+#### [视频&#124;助共为虐 恶有恶报 419群丑图](/content/gnews/2422019.md)
+ `MOSVIDEO`
+
+#### [河南发现一例人感染H3N8禽流感病例，为4岁男孩！是不是农村又要开始杀鸡了！未来人民吃什么！CCP 削减人口进行中](/content/gnews/2422015.md)
+ `Tokyo Sakura Video Group`
+
+#### [视频&#124;灭共是中国女权运动的开始](/content/gnews/2421991.md)
+ `MOSVIDEO`
+
+#### [乌克兰准备对包括飞行员在内的俄军事人员提出战争罪指控](/content/gnews/2421967.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [樱花深度报道┃中共应为每个谎言承受经济制裁（上）](/content/gnews/2421947.md)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花深度报道┃中共应为每个谎言承受经济制裁（下）](/content/gnews/2421946.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [2022-04-25 &#8211; 救援前线的报道](/content/gnews/2421942.md)
- `喜马拉雅德国纽伦堡正义农场`
-
-#### [警察：「你请注意，警察不是为人民服务的！」](/content/gnews/2421932.md)
- `Tokyo Sakura Video Group`
-
 #### [美导弹驱逐舰又穿越台海了 中共一如既往又强烈抗议了](/content/gnews/2421924.md)
  `秘密翻譯組G-Translators`
-
-#### [上海发通行卡 每周规定次数及外出时间](/content/gnews/2421916.md)
- `Tokyo Sakura Video Group`
-
-#### [视频&#124;俄乌战争最新资讯](/content/gnews/2421915.md)
- `MOSVIDEO`
 
 #### [中共大外宣多维网宣布关停 爆料革命取得里程碑式胜利](/content/gnews/2421892.md)
  `秘密翻譯組G-Translators`
 
-#### [上海市民责疑上海捐赠品分配不公](/content/gnews/2421876.md)
- `Tokyo Sakura Video Group`
-
 #### [美最高法院允许饱受种族争议的高中招生政策](/content/gnews/2421857.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [布林肯不认为普京真的想和乌克兰谈判](/content/gnews/2421853.md)
- `秘密翻譯組G-Translators`
-
-#### [澳大利亚储备银行“正面临”提高利率的压力](/content/gnews/2421852.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [上海市闵行区梅陇镇发的盒饭 肉里有寄生虫](/content/gnews/2421844.md)
- `Tokyo Sakura Video Group`
 
 #### [2022年4月26日郭先生盖特 — 视频2「6分59秒」](/content/gnews/2421741.md)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -58,9 +73,6 @@
 
 #### [PeterMcCullough博士： 当今美国ICU死亡率是 30%。我们遇到最危险的心脏病发作称为 ST 段抬高型心肌梗塞，其死亡率是2%。 30%的ICU死亡率高得令人无法接受](/content/gnews/2421696.md)
  `Tokyo Sakura Video Group`
-
-#### [COVID-19疫苗副作用集萃（2022.4.27C）](/content/gnews/2421589.md)
- `墨尔本雅典娜农场`
 
 #### [疫苗灾难｜20岁垒球明星Lauren Bernett突然离世 就读学校接种率高达92%](/content/gnews/2421484.md)
  `關注組`
@@ -80,9 +92,6 @@
 #### [樱花时政┃中共急对美舰桑普森号穿越台海跳脚](/content/gnews/2421254.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃暴击中共法律超限战（三）：多维网被迫关闭](/content/gnews/2421246.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [秘翻在线 :巴基斯坦发生针对中国人的自杀式炸弹攻击事件](/content/gnews/2421207.md)
  `秘密翻譯組G-Translators`
 
@@ -97,9 +106,6 @@
 
 #### [新加坡取消对工作者的新冠疫苗强制接种要求](/content/gnews/2421162.md)
  `澳喜农场`
-
-#### [苏共解体宣言宣告其独裁体制终结](/content/gnews/2421157.md)
- `历史组`
 
 #### [Elon Musk收购推特,汪文斌不敢回答中国人能否用推特](/content/gnews/2421143.md)
  `喜马拉雅日本银河系农场`
@@ -143,9 +149,6 @@
 #### [中共股市汇市楼市三大皆空](/content/gnews/2419558.md)
  `NFSC News`
 
-#### [马斯克收购推特涉及政治、经济和赌博因素，盖特迎来机遇与挑战](/content/gnews/2419409.md)
- `YALUN 亚伦`
-
 #### [文贵直播 4.26.2022 郭先生谈马斯克收购推特给盖特带来的挑战与机会](/content/gnews/2419055.md)
  `秘密翻译组-原创组`
 
@@ -154,9 +157,6 @@
 
 #### [马斯克与中共国的生意往来将成为世人关注收购推特的焦点](/content/gnews/2415898.md)
  `秘密翻譯組G-Translators`
-
-#### [毛泽东语录2.0｜广西推《习近平思想》口袋书 人手一册掀学“习”热潮](/content/gnews/2415571.md)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
