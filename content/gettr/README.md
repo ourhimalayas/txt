@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 4/27/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p179op593e8.md)
+
+【Ukraine Rescue】04/25/2022 When interviewed by our fellow fighter Nicole, volunteer Yanni from Romania says that he understands many Chinese people have no freedom to access information and have been brainwashed by the CCP.
+
+
+
+【乌克兰...
+
+<img src="https://media.gettr.com/group44/getter/2022/04/27/04/e5e34c72-be2e-f189-33c2-9ba87941829e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 3:02 AM UTC  - :tv:直播](/content/gettr/p1794788be4.md)
 
 2022-4-26《鸡血王喜币大作战》 第一百七十七集 嘉宾：无双柳薇薇、文空
@@ -48,15 +60,11 @@
 
 ---
 
-[@miles 4/27/2022 4:12 AM UTC  - :tv:直播](/content/gettr/p179op593e8.md)
+[@miles 4/27/2022 4:32 AM UTC  - :tv:直播](/content/gettr/p179wyfb1a2.md)
 
-【Ukraine Rescue】04/25/2022 When interviewed by our fellow fighter Nicole, volunteer Yanni from Romania says that he understands many Chinese people have no freedom to access information and have been brainwashed by the CCP.
+4/26/2022 Miles Guo's GETTR: Why has Xi Jinping ordered Duowei News to close its website? Duowei has posted fabricated photos and fake day and time to defame Mr. Miles Guo, after which Bruno’s business partner, a former FBI officer...
 
-
-
-【乌克兰...
-
-<img src="https://media.gettr.com/group44/getter/2022/04/27/04/e5e34c72-be2e-f189-33c2-9ba87941829e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/04/27/04/fb51876d-0cbe-1ef5-cf54-8c6f67c8beab/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ A volunteer from Italy is interested in our vest (take down the CCP) and is inte
 【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
 
 <img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 6:18 PM UTC  - :tv:直播](/content/gettr/p176xe41860.md)
-
-4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
-
-<img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
 
 ---
 
