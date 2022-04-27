@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p17d4stfa23.md)
+
+2022.04.27  新中国联邦 | 喜健康  急救速成
+
+<img src="https://media.gettr.com/group16/origin/2022/04/27/20/8739a3ff-123f-d999-7d29-b676eeb70b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayadcfarm 4/25/2022 7:25 PM UTC  - :tv:直播](/content/gettr/p171whwe9d4.md)
 
 🆘🇺🇦🆘Report from NFSC's Ukraine Rescue by King】
@@ -26,11 +34,13 @@ We ...
 
 ---
 
-[@miles 4/27/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p17d4stfa23.md)
+[@miles 4/27/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17dgnuacda.md)
 
-2022.04.27  新中国联邦 | 喜健康  急救速成
+“吴红旗你在哪？？” 飞飞秀救援快报 2022-04-27
 
-<img src="https://media.gettr.com/group16/origin/2022/04/27/20/8739a3ff-123f-d999-7d29-b676eeb70b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p17d5o579cf
+
+<img src="https://media.gettr.com/group38/origin/2022/04/27/22/e64eea2c-6ede-9eac-1b9b-2240646eee2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +209,6 @@ Day 53 - Date: A...
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group26/origin/2022/04/27/04/fde52c40-6057-01a7-149b-d89113281fbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 4:32 AM UTC  - :tv:直播](/content/gettr/p179wyfb1a2.md)
-
-4/26/2022 Miles Guo's GETTR: Why has Xi Jinping ordered Duowei News to close its website? Duowei has posted fabricated photos and fake day and time to defame Mr. Miles Guo, after which Bruno’s business partner, a former FBI officer...
-
-<img src="https://media.gettr.com/group23/getter/2022/04/27/04/fb51876d-0cbe-1ef5-cf54-8c6f67c8beab/out.jpg" width="506" height="284">
 
 ---
 
