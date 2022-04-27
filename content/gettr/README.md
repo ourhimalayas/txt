@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 4/27/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17dgnuacda.md)
+
+“吴红旗你在哪？？” 飞飞秀救援快报 2022-04-27
+
+For English：gettr.com/streaming/p17d5o579cf
+
+<img src="https://media.gettr.com/group38/origin/2022/04/27/22/e64eea2c-6ede-9eac-1b9b-2240646eee2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p17d4stfa23.md)
 
 2022.04.27  新中国联邦 | 喜健康  急救速成
@@ -34,13 +44,11 @@ We ...
 
 ---
 
-[@miles 4/27/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17dgnuacda.md)
+[@miles 4/27/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p17dl5203a0.md)
 
-“吴红旗你在哪？？” 飞飞秀救援快报 2022-04-27
+ 4月27号：尊敬的战友们好……开完庭了开完庭了，谢谢战友们的关心，感恩上天护佑我们的一切，大家一起为美好的今天感谢万佛万神吧，一切都已经开始！
 
-For English：gettr.com/streaming/p17d5o579cf
-
-<img src="https://media.gettr.com/group38/origin/2022/04/27/22/e64eea2c-6ede-9eac-1b9b-2240646eee2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/04/27/22/06e6b685-ace5-4134-fa89-d008f9d99c04/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Day 53 - Date: A...
 【Ukraine Rescue】04/25/22 Volunteer Yanni from Romania says he once lived under communist Romania, he knows the risk of free expression of political opinion. So he very much appreciates and respects the New Federal State of China wh...
 
 <img src="https://media.gettr.com/group50/getter/2022/04/27/05/ac93ad51-6a0f-ec52-ceb5-d8b9a260ec42/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17aduw6e44.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group26/origin/2022/04/27/04/fde52c40-6057-01a7-149b-d89113281fbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
