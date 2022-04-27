@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/27/2022 4:32 PM UTC  - :tv:直播](/content/gettr/p17bq7h3a35.md)
+
+【Ukraine Rescue】04/25/22 Ben, the bunnyman from Kentucky, USA, expresses movingly: I came here twice to help these people, but also to support your efforts; without your tent, without your organization, this doesn't exist; and you ...
+
+<img src="https://media.gettr.com/group25/getter/2022/04/27/16/54ec780f-128f-f1a8-5fcd-c0d4533cf155/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 3:43 PM UTC  - :tv:直播](/content/gettr/p17b2fq2662.md)
 
 2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/27/2022 4:32 PM UTC  - :tv:直播](/content/gettr/p17bq7h3a35.md)
+[@miles 4/27/2022 5:32 PM UTC  - :tv:直播](/content/gettr/p17b2g4dd21.md)
 
-【Ukraine Rescue】04/25/22 Ben, the bunnyman from Kentucky, USA, expresses movingly: I came here twice to help these people, but also to support your efforts; without your tent, without your organization, this doesn't exist; and you ...
+2022年4月27日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group25/getter/2022/04/27/16/54ec780f-128f-f1a8-5fcd-c0d4533cf155/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/04/27/17/a438d558-29a1-ff4b-83be-87a42b09fe5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Day 53 - Date: A...
 2022.04.26 晚  新中国联邦 | 新闻访谈  马斯克 3 ～6 个月内入主Twitter会怎么玩儿？ 亚马逊贝索斯是否五十步笑百步？
 
 <img src="https://media.gettr.com/group41/origin/2022/04/27/00/35f288fb-9467-f6a6-1b91-6e9ec33ef780/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p1788fi1ee1.md)
-
-4/26/2022 Miles Guo’s GETTR: The Chinese Communist Party believes that the Chinese people have a tremendous amount of resilience and tendency to forget. So, the CCP has got ready for its long-term plan to let the Chinese people liv...
-
-<img src="https://media.gettr.com/group8/getter/2022/04/27/00/b57b19c7-7fa4-1c20-f365-bde5d28b8a63/out.jpg" width="506" height="284">
 
 ---
 
