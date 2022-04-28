@@ -3,6 +3,8 @@
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/content/transcript/2020/01/20200117-6983690269092492510.md)
+
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/content/transcript/2020/01/20200115-3214760195479457165.md)
 
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/content/transcript/2020/01/20200113-2672985235705561306.md)
@@ -50,8 +52,6 @@
 [文字版：2019年12月8号文贵报平安直播](/content/transcript/2019/12/20191220-6902125038601635282.md)
 
 [文字版：2019年12月17日文贵报平安直播](/content/transcript/2019/12/20191220-5572994760820034862.md)
-
-[文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/content/transcript/2019/12/20191218-6370413042704455809.md)
 
 
 ## 頁面 20/42 [**<**](/content/transcript/README-19.md) [1](/content/transcript/README.md) ... [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) **20** [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-21.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 30/42 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/content/transcript/2019/01/20190127-8646715222462480282.md)
+
 [文字版：2019年1月23日文貴報平安直播](/content/transcript/2019/01/20190125-5995035220130924499.md)
 
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/transcript/2019/01/20190123-2188991099465691450.md)
@@ -50,8 +52,6 @@
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/transcript/2018/12/20181218-3889821236277365249.md)
 
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/transcript/2018/12/20181218-8948086997100898897.md)
-
-[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误](/content/transcript/2018/12/20181211-7088742512990169570.md)
 
 
 ## 頁面 30/42 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

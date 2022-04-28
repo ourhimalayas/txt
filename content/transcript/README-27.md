@@ -3,6 +3,8 @@
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年6月13日谈香港反遣返游行](/content/transcript/2019/06/20190613-2395571549035614161.md)
+
 [文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历](/content/transcript/2019/06/20190613-2844499569524374811.md)
 
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/transcript/2019/06/20190611-3204594728389036788.md)
@@ -50,8 +52,6 @@
 [文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/transcript/2019/05/20190510-8107152999267349007.md)
 
 [文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/transcript/2019/05/20190508-7522402504104525602.md)
-
-[文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/transcript/2019/05/20190507-3556468867911732041.md)
 
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

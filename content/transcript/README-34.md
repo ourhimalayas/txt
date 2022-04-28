@@ -3,6 +3,8 @@
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/transcript/2018/07/20180719-6182147046946865202.md)
+
 [2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/transcript/2018/07/20180719-5954422145993644820.md)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/content/transcript/2018/07/20180719-5443469418694785796.md)
@@ -50,8 +52,6 @@
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/transcript/2018/05/20180512-8900938020145834574.md)
 
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/transcript/2018/05/20180507-6937287796340481468.md)
-
-[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/transcript/2018/05/20180506-3935055223509815225.md)
 
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)

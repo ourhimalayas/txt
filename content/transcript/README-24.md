@@ -3,6 +3,8 @@
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/content/transcript/2019/09/20190921-9126784850251019674.md)
+
 [文字版：2019年9月17日文貴報平安](/content/transcript/2019/09/20190917-2323498074578492581.md)
 
 [文字版：2019年9月15日 香港已成为恐惧之港](/content/transcript/2019/09/20190917-7577220596935524798.md)
@@ -50,8 +52,6 @@
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/transcript/2019/08/20190819-5676820155081817041.md)
 
 [文字版：郭文貴先生8月16日文貴直播](/content/transcript/2019/08/20190819-2341336785643764547.md)
-
-[文字版：郭文貴先生2019年8月15日報平安直播](/content/transcript/2019/08/20190819-7582253714688026419.md)
 
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

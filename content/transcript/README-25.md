@@ -3,6 +3,8 @@
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭文貴先生2019年8月15日報平安直播](/content/transcript/2019/08/20190819-7582253714688026419.md)
+
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/content/transcript/2019/08/20190815-8696204592091636594.md)
 
 [文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/content/transcript/2019/08/20190814-2176259177090842759.md)
@@ -50,8 +52,6 @@
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190722-5623982298172574655.md)
 
 [文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/content/transcript/2019/07/20190716-7014702308102493724.md)
-
-[文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/content/transcript/2019/07/20190716-7612931641491284190.md)
 
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

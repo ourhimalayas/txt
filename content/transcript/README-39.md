@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/content/transcript/2018/04/20180418-2945530337059474065.md)
+
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/content/transcript/2018/04/20180418-197797650669402457.md)
 
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/content/transcript/2018/04/20180418-5435715492986281855.md)
@@ -50,8 +52,6 @@
 [翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/transcript/2018/04/20180418-7145054021115241529.md)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/transcript/2018/04/20180418-7152292434988843422.md)
-
-[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/transcript/2018/04/20180418-1311698055875889734.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

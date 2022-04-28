@@ -3,6 +3,8 @@
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误](/content/transcript/2018/12/20181211-7088742512990169570.md)
+
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/transcript/2018/12/20181211-3146997192813491543.md)
 
 [文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！](/content/transcript/2018/12/20181209-8884360174846064842.md)
@@ -50,8 +52,6 @@
 [文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/transcript/2018/11/20181101-6081222795262941074.md)
 
 [翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/content/transcript/2018/10/20181030-5728690210531220405.md)
-
-[文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/transcript/2018/10/20181029-8202855451212977956.md)
 
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

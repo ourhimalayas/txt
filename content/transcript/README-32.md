@@ -3,6 +3,8 @@
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/transcript/2018/10/20181029-8202855451212977956.md)
+
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/transcript/2018/10/20181029-1889983154079130395.md)
 
 [文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/content/transcript/2018/10/20181026-2575309675439495092.md)
@@ -50,8 +52,6 @@
 [文字版：9月10号马云辞职的真正原因](/content/transcript/2018/09/20180913-8040960110830809305.md)
 
 [文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/content/transcript/2018/09/20180913-5367861768541759446.md)
-
-[文字版：9月10号马云辞职的真正的目的与动机瞒天过海](/content/transcript/2018/09/20180912-2723188184703053742.md)
 
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

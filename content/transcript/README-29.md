@@ -3,6 +3,8 @@
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/transcript/2019/03/20190305-5389062198160032746.md)
+
 [文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/transcript/2019/03/20190305-7678928871394571383.md)
 
 [文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/transcript/2019/03/20190304-4934492035985499612.md)
@@ -50,8 +52,6 @@
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/content/transcript/2019/01/20190131-1680667895953644784.md)
 
 [文字版：2019年1月25日習近平和王岐山會有一戰](/content/transcript/2019/01/20190127-3156421909348071205.md)
-
-[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/content/transcript/2019/01/20190127-8646715222462480282.md)
 
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
