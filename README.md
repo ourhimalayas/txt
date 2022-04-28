@@ -11,6 +11,24 @@
 
 ---
 
+#### [2022年04月28日七哥临时直播速记](/content/gnews/2432183.md)
+ `Mr. Miles Guo's News Briefing`
+
+#### [美敦促中共向俄罗斯施压结束战争](/content/gnews/2432172.md)
+ `GTV News Talk`
+
+#### [海外维吾尔人遭中共政府围剿](/content/gnews/2432164.md)
+ `NFSC News`
+
+#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月28日早](/content/gnews/2432160.md)
+ `纽约香草山MOS01`
+
+#### [有声&#124;中非共和国采用比特币作为官方货币](/content/gnews/2432123.md)
+ `MOSREC`
+
+#### [中共加速进入北朝鲜模式](/content/gnews/2432116.md)
+ `NFSC News`
+
 #### [【说事儿】数字货币喜币将超过比特币 更超越瑞士银行金融机构 所有人的财富受到保护](/content/gnews/2432105.md)
  `TokyoSakuraDesignGroup`
 
@@ -20,23 +38,14 @@
 #### [【说事儿】中共意图控制芯片产业链以打垮美元 南西-佩洛西可能忽然访台](/content/gnews/2432084.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】北京大规模新冠阳性是疫苗反应面封城，中共用隔离掩盖疫苗等灾难](/content/gnews/2432056.md)
- `TokyoSakuraDesignGroup`
+#### [滿江紅·建國感懷](/content/gnews/2432057.md)
+ `纽约香草山MOS02`
 
 #### [有声&#124;中共控制各个银行以限制民众大额取现和转账](/content/gnews/2432046.md)
  `MOSREC`
 
-#### [【说事儿】澳国防部长达顿发出警告：澳大利亚人应为战争做准备](/content/gnews/2432033.md)
- `TokyoSakuraDesignGroup`
-
-#### [【辟谷】](/content/gnews/2432026.md)
- `SpicyWorld`
-
 #### [串珠669:多维是隶属中共安全部的间谍情报网站](/content/gnews/2432005.md)
  `郭爆料串珠`
-
-#### [美官员布林肯、奥斯汀秘密访问基辅并与泽连斯基会面](/content/gnews/2431980.md)
- `topnews`
 
 #### [有声&#124;中共海外大外宣面临全面失败](/content/gnews/2431962.md)
  `MOSREC`
@@ -44,11 +53,14 @@
 #### [有声&#124;中共股市汇市楼市三大皆空](/content/gnews/2431929.md)
  `MOSREC`
 
-#### [串珠668:中共按照极限战争的方式做社会压力测试](/content/gnews/2431915.md)
- `郭爆料串珠`
+#### [心脏病专家说，30%接种疫苗的飞行员会因为疫苗伤害而无法通过健康检查!](/content/gnews/2431922.md)
+ `mayflowertranslate`
 
 #### [疫情封控中的上海人：四月英雄](/content/gnews/2431904.md)
  `纽约香草山MOS02`
+
+#### [【蓝枫法律】社交媒体的“搅局者”Gettr和马斯克](/content/gnews/2431875.md)
+ `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [日本宣布拜登将于5月22日访日](/content/gnews/2431853.md)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -58,9 +70,6 @@
 
 #### [樱花时政┃拜登新提案，用俄罗斯寡头资产补偿乌克兰](/content/gnews/2431839.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声&#124;中共金融界掀反腐风暴](/content/gnews/2431838.md)
- `MOSREC`
 
 #### [俄乌战局最新消息汇总（04.28）](/content/gnews/2431837.md)
  `NFSC News`
@@ -79,12 +88,6 @@
 
 #### [欧洲重新考虑和中共的贸易经济关系](/content/gnews/2431606.md)
  `银河歌舞厅`
-
-#### [中共坠机是天意](/content/gnews/2431587.md)
- `墨尔本雅典娜农场`
-
-#### [郭先生解析普京“硬汉形象”下的内幕](/content/gnews/2431483.md)
- `NFSC News`
 
 #### [意大利出现神秘的儿童新型肝炎病例](/content/gnews/2431392.md)
  `xiaobaige`
@@ -115,9 +118,6 @@
 
 #### [马斯克收购推特后有关言论自由成为热议的焦点](/content/gnews/2430720.md)
  `新西兰伊甸农场听写编辑组`
-
-#### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/2430718.md)
- `NFSC News`
 
 #### [4/28/2022 国际财经快讯：日元兑美元贬值再加速，创20年来新低；Archegos创始人比尔·黄和前首席财务官被控证券欺诈](/content/gnews/2430602.md)
  `秘密翻译组金融团队`
