@@ -2,6 +2,40 @@
 ---
 
 
+[@miles 4/28/2022 10:00 PM UTC  - 2圖](/content/gettr/p17i7j1d8dc.md)
+
+ 4月28日：与曾庆红家族派来向我借款的代表……到现场视察拆迁工地了我…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group8/getter/2022/04/28/21/89c35a60-31c4-b612-69fd-79fdd8dcd813/1c1ab53e452a4dadb77cbac2518f2727.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p17il5lfcf9.md)
+
+“以色列” 飞飞秀救援快报 2022-04-27
+
+For English：gettr.com/streaming/p17ht7n08bd
+
+<img src="https://media.gettr.com/group35/origin/2022/04/28/22/05d47100-22c6-c348-176e-ef555f10ae40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 10:07 PM UTC ](/content/gettr/p17i5dl3db5.md)
+
+ 4月28日：与我最喜欢的不忠诚的懦弱的……自私的……最优秀的律师朱茂元兄弟在一起！ 
+
+
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/04/28/22/f8c5d1f8-bfe9-eb42-bf4f-00b59c9502d0/5459ec188aecb2c37b412a771bc1990d.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 9:50 PM UTC ](/content/gettr/p17hwde94c3.md)
 
  4月28日：刚刚从清风看守所走出的我…… 
@@ -11,6 +45,18 @@
 
 
 <img src="https://media.gettr.com/group25/getter/2022/04/28/21/142bfd1e-e81c-a846-87aa-d27f780fddb2/aad14695f88b4d68c4b9465a7be8ca53.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 10:10 PM UTC  - 3圖](/content/gettr/p17i2zn6d01.md)
+
+4月28日：刚出青峰看守所，与比我早离开看守所的8964狱友们还有老领导见面时的我。 
+
+
+
+
+
+<img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
 
 ---
 
@@ -64,6 +110,18 @@ No.1🥇 on USA🇺🇸, Germany🇩🇪 and Cambodia🇰🇭 Pop Music Videos C
 
 ---
 
+[@miles 4/28/2022 9:58 PM UTC ](/content/gettr/p17i2zjcddd.md)
+
+ 4月28日：在香港参加裕达董事会的我…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group40/getter/2022/04/28/21/98f45678-b65f-85c7-af6c-a14be6b84c17/1e9f8ba1ad01dd094527c214c73d5b2e.jpg" width="506" height="284">
+
+---
+
 [@7upgogo 4/28/2022 5:30 PM UTC ](/content/gettr/p17hhf8d329.md)
 
 美国将加快没收俄罗斯寡头财产以补偿乌克兰
@@ -89,18 +147,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 ...
 
 <img src="https://media.gettr.com/group6/getter/2022/04/28/21/34f60020-ce54-da9a-2591-b09043e20c37/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:58 PM UTC ](/content/gettr/p17i2zjcddd.md)
-
- 4月28日：在香港参加裕达董事会的我…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group40/getter/2022/04/28/21/98f45678-b65f-85c7-af6c-a14be6b84c17/1e9f8ba1ad01dd094527c214c73d5b2e.jpg" width="506" height="284">
 
 ---
 
@@ -152,14 +198,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 
 ---
 
-[@miles 4/28/2022 4:34 PM UTC ](/content/gettr/p17hbey405b.md)
-
- 4月28日：尊敬的战友们好……让愚蠢的人．去相信比爹娘还亲的中国共产党吧，有缘分智慧的人，最终会相信所谓的境外，为中国人民争取利益．安全和子孙未来．新中国联邦……如果中国人在以上两个选择上还没有醒来的话，那他们将永远不会再有醒来的机会了。
-
-<img src="https://media.gettr.com/group15/getter/2022/04/28/16/489a4e6d-544f-24e7-c2bc-7f23ba25f433/148d39cc8d458f18b610315dd3e0788b.jpg" width="506" height="284">
-
----
-
 [@miles 4/28/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p17gys49c0c.md)
 
  4月28日：这几句话唱得太好了？
@@ -173,30 +211,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 4月28号：扎扎实实地走向死亡的永不能回头的行动。【郭先生早就告诫世界，多数人都选择不信，现在要承担相信魔共的后果了，只是这果也是沉甸甸，压在人心上很痛。】
 
 <img src="https://media.gettr.com/group25/getter/2022/04/28/16/6e29b6ea-64ff-db7a-afdb-cb4f39aa31d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p17gfmr73e0.md)
-
-2022.04.28 早  七哥乱聊直播
-
-<img src="https://media.gettr.com/group24/origin/2022/04/28/14/f9591e53-84e4-3885-aaf3-06c70a8e06fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@s7gril 4/28/2022 1:37 PM UTC ](/content/gettr/p17g7mn2bfc.md)
-
-#Shanweijian, the high-ranking CCP spy is in deep shit. His nightmare just begins. The #Ponzi scheme of the #CCPKleptocrates will be busted. No fools will ever buy into the CCP's shit wrapped in gold-gilt paper.  https://financeess...
-
-<img src="https://media.gettr.com/group10/origin/2022/04/28/13/c5028143-5ff4-0b21-3795-c5adcbaf69b2/f1f5fb7595f3652cde1727453cb92917.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17four1fb2.md)
-
-2022.04.28 早  新中国联邦 | 新闻访谈
-
-<img src="https://media.gettr.com/group7/origin/2022/04/28/13/f482d3fd-22cc-476c-4c2d-414c8ce647e1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
