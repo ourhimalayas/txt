@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p17gfmfdbf0.md)
+
+2022.04.28 早 新中国联邦 | 新闻 前苏联志愿者谈自由的重要性；国际义工称新中国联邦帐篷是救援营地的基石；郭先生解析普京“硬汉形象”下的内幕；华尔街的贪婪决定了中共的存活
+
+<img src="https://media.gettr.com/group40/origin/2022/04/28/12/00cfde79-10c4-22c6-874b-9447a625850d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p17fv9fd7ef.md)
 
 The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day. Mr. Erez Eshel, the founder and president of Ein Prat, praised the brave New Federal State of Chinese people who shared the sa...
@@ -74,11 +82,11 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@miles 4/28/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p17gfmfdbf0.md)
+[@miles 4/28/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17four1fb2.md)
 
-2022.04.28 早 新中国联邦 | 新闻 前苏联志愿者谈自由的重要性；国际义工称新中国联邦帐篷是救援营地的基石；郭先生解析普京“硬汉形象”下的内幕；华尔街的贪婪决定了中共的存活
+2022.04.28 早  新中国联邦 | 新闻访谈
 
-<img src="https://media.gettr.com/group40/origin/2022/04/28/12/00cfde79-10c4-22c6-874b-9447a625850d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/04/28/13/f482d3fd-22cc-476c-4c2d-414c8ce647e1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Fellow fighter Lubiken was interviewed by a French journalist. He introduced the
 No.1🥇 on Taiwan🇹🇼, Germany🇩🇪 and Cambodia🇰🇭 Top Music Videos Chart
 
 No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 Pop...
-
----
-
-[@miles 4/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17dzqnb3c5.md)
-
-2022.04.27 晚  新中国联邦 | 新闻访谈      多维假证案件的再讨论，郭先生5年钓鱼终于到了收网时刻
-
-<img src="https://media.gettr.com/group15/origin/2022/04/28/01/563804f9-008e-0d2e-d068-427f699bc409/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
