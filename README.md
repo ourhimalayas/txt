@@ -11,6 +11,18 @@
 
 ---
 
+#### [截止4月25日乌克兰救援行动数据信息](/content/gnews/2429629.md)
+ `TokyoSakuraDesignGroup`
+
+#### [做假证？连习近平都坐不住了](/content/gnews/2429615.md)
+ `TokyoSakuraDesignGroup`
+
+#### [福奇声称CDC应凌驾于法律之上而不受任何司法审查](/content/gnews/2429579.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [苏共解体宣言宣告其共产独裁体制终结](/content/gnews/2429576.md)
+ `NFSC News`
+
 #### [多维跑路](/content/gnews/2429569.md)
  `TokyoSakuraDesignGroup`
 
@@ -38,17 +50,11 @@
 #### [没有一个国家的钞票有锚定,银行破产可无理由拒绝还钱](/content/gnews/2429501.md)
  `喜马拉雅日本银河系农场`
 
-#### [樱花时政┃卡拉奇大学孔子学院爆炸多人伤亡 巴分离组织警告还将对中共目标发起袭击](/content/gnews/2429497.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【说事儿】北京开始封城 市民恐慌性抢购食品](/content/gnews/2429476.md)
- `TokyoSakuraDesignGroup`
+#### [美议员称：中共利用病毒疫情制造供应链短缺](/content/gnews/2429496.md)
+ `纽约香草山MOS02`
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位](/content/gnews/2429419.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [《历史的今天》2022.04.28](/content/gnews/2429404.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [取消、唤醒和性别焦虑文化；寻求庇护和保护](/content/gnews/2429325.md)
  `西班牙巴塞罗那喜悦农场`
@@ -95,14 +101,14 @@
 #### [樱花FM┃习近平的疫苗阴谋是现实版“人类清除计划”](/content/gnews/2429142.md)
  `樱花FM`
 
-#### [樱花FM┃五角大楼：乌克兰已收到美国盟友提供的战斗机](/content/gnews/2429113.md)
- `樱花FM`
-
 #### [【樱话】中共国逾20城市封城 疫苗灾难正在到来](/content/gnews/2429086.md)
  `TokyoSakuraDesignGroup`
 
 #### [樱花FM┃普京指责西方制裁违反世贸组织原则](/content/gnews/2429038.md)
  `樱花FM`
+
+#### [04/28每日播报｜社媒消息：娜塔莉温特斯 罗伯特马龙博士](/content/gnews/2428947.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作](/content/gnews/2428855.md)
  `關注組`
@@ -149,9 +155,6 @@
 #### [布林肯，奥斯汀承诺向乌克兰提供更多援助](/content/gnews/2427851.md)
  `NFSC News`
 
-#### [俄、中一定解体 两国人民的命运截然不同](/content/gnews/2427850.md)
- `NFSC News`
-
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。](/content/gnews/2427736.md)
  `美国政要直译推`
 
@@ -163,9 +166,6 @@
 
 #### [4/27/2022 国际财经快讯：Visa一季度业绩受惠于强劲的消费支出，经济担忧缓解；纳斯达克指数暴跌至2020年底以来最低收盘价](/content/gnews/2423263.md)
  `秘密翻译组金融团队`
-
-#### [樱花时政┃岸田文雄与泽连斯基举行电话会谈](/content/gnews/2423092.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
