@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17four1fb2.md)
+
+2022.04.28 早  新中国联邦 | 新闻访谈
+
+<img src="https://media.gettr.com/group7/origin/2022/04/28/13/f482d3fd-22cc-476c-4c2d-414c8ce647e1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p17gfmfdbf0.md)
 
 2022.04.28 早 新中国联邦 | 新闻 前苏联志愿者谈自由的重要性；国际义工称新中国联邦帐篷是救援营地的基石；郭先生解析普京“硬汉形象”下的内幕；华尔街的贪婪决定了中共的存活
@@ -82,11 +90,11 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@miles 4/28/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17four1fb2.md)
+[@s7gril 4/28/2022 1:37 PM UTC ](/content/gettr/p17g7mn2bfc.md)
 
-2022.04.28 早  新中国联邦 | 新闻访谈
+#Shanweijian, the high-ranking CCP spy is in deep shit. His nightmare just begins. The #Ponzi scheme of the #CCPKleptocrates will be busted. No fools will ever buy into the CCP's shit wrapped in gold-gilt paper.  https://financeess...
 
-<img src="https://media.gettr.com/group7/origin/2022/04/28/13/f482d3fd-22cc-476c-4c2d-414c8ce647e1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/04/28/13/c5028143-5ff4-0b21-3795-c5adcbaf69b2/f1f5fb7595f3652cde1727453cb92917.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Fellow fighter Lubiken was interviewed by a French journalist. He introduced the
 2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17ducxb2bb.md)
-
-2022.04.27  新中国联邦 | 喜财经    邪恶货币威胁美元, 投资喜币立刻行动
-
-<img src="https://media.gettr.com/group17/origin/2022/04/28/02/bcd4936c-8ae5-aebc-c39f-4174b5cdb647/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
