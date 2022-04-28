@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 8:07 PM UTC ](/content/gettr/p17i39w55cc.md)
+
+ 4月28日：这么简单，符合逻辑的答案．需要用生命和健康来来作为找到正确答案的验证条件吗？可悲呀……
+
+<img src="https://media.gettr.com/group36/getter/2022/04/28/20/ee450af6-c6cf-52d2-8460-f381a256ebec/ccd20898341b4e7e812d486664bf8b63.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 7:05 PM UTC  - :tv:直播](/content/gettr/p17foqf9fb0.md)
 
 2022-4-28《避风港》(41) 辉瑞疫苗水太深
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 4/28/2022 8:07 PM UTC ](/content/gettr/p17i39w55cc.md)
+[@miles 4/28/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p17htyr7be6.md)
 
- 4月28日：这么简单，符合逻辑的答案．需要用生命和健康来来作为找到正确答案的验证条件吗？可悲呀……
+2022.04.28  新中国联邦 | 喜健康  病毒满视野，我们该吃啥（下）
 
-<img src="https://media.gettr.com/group36/getter/2022/04/28/20/ee450af6-c6cf-52d2-8460-f381a256ebec/ccd20898341b4e7e812d486664bf8b63.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/04/28/20/5cf24e7d-6a19-6b53-1355-3b2d6c21243a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,16 +197,6 @@ Nicole：1986年获诺贝尔和平奖的大屠杀幸存者说过，在纳粹大�
 04/27/2022 A commemoration of the Holocaust of Jewish people during World War II was held in the big tent of the New Federal State of China and Rule of Law Foundation. At the end of the event, these volunteers from Israel and NFSC ...
 
 <img src="https://media.gettr.com/group16/origin/2022/04/28/06/19915030-d8e2-dbbf-e002-afe81cb479c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p17fgf2e55f.md)
-
-Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders, former Deputy Director of Israel's Ministry of Education, and founder of the Pre-Military Leadership Institute.
-
-He said:...
-
-<img src="https://media.gettr.com/group24/origin/2022/04/28/05/73922cf3-e379-273a-bd53-0ce17cee830d/out.jpg" width="506" height="284">
 
 ---
 
