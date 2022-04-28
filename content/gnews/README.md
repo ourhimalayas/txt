@@ -41,9 +41,6 @@
 #### [20220427郭文贵大直播 ：救援队在与各个国际组织以及政府部门接触中学习成长](/content/gnews/2426694.md)
  `Tokyo Sakura Video Group`
 
-#### [20220427郭文贵大直播 ：只有中共国虚假的经济泡沫被戳破之后世界才会迎来真正繁荣](/content/gnews/2426641.md)
- `Tokyo Sakura Video Group`
-
 #### [樱花FM┃从红卫兵到白卫兵——民族性的癌症](/content/gnews/2426544.md)
  `樱花FM`
 
