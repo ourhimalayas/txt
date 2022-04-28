@@ -2,14 +2,26 @@
 ---
 
 
+#### [北京疫情蔓延，紧锣密鼓封控。不让进北京，不许拍照；北京朝阳医院被封，停诊；首都师范大学实验小学，连夜转移隔离；昌平区龙德广场被封](/content/gnews/2433294.md)
+ `Tokyo Sakura Video Group`
+
+#### [近日，上海奉贤区农委片区，网友抓拍政府部门人员出来散心，老百姓被封控](/content/gnews/2433281.md)
+ `Tokyo Sakura Video Group`
+
+#### [农户害怕猪被偷，背着去农地干活](/content/gnews/2433257.md)
+ `Tokyo Sakura Video Group`
+
+#### [上海，视频中一男子指核酸检测志愿者身份不明而发生争执，志愿者据绝回答自己的身份](/content/gnews/2433251.md)
+ `Tokyo Sakura Video Group`
+
+#### [上海嘉定区，他被封在楼里，无物资供应，跳楼了](/content/gnews/2433216.md)
+ `Tokyo Sakura Video Group`
+
 #### [上海街头的流浪者](/content/gnews/2433194.md)
  `Tokyo Sakura Video Group`
 
-#### [一场大雨后，上海露天帐篷方舱搬迁了](/content/gnews/2433178.md)
- `Tokyo Sakura Video Group`
-
-#### [拥挤不堪的方舱](/content/gnews/2433138.md)
- `Tokyo Sakura Video Group`
+#### [雅典娜时报-第277期](/content/gnews/2433190.md)
+ `墨尔本雅典娜农场`
 
 #### [中共海外最大情报机构多维新闻网紧急关停](/content/gnews/2433114.md)
  `扬帆枫叶快讯`
@@ -23,12 +35,6 @@
 #### [加拿大将修改对俄罗斯制裁法案](/content/gnews/2433111.md)
  `扬帆枫叶快讯`
 
-#### [渥太华摩托车集会遭警方禁止](/content/gnews/2433110.md)
- `扬帆枫叶快讯`
-
-#### [DC大中华时事：英国人权组织指香港新闻自由已几乎被完全摧毁](/content/gnews/2433106.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [20220428郭文贵乱聊直播 ：渡过艰难你会摸到信仰的碗边](/content/gnews/2433091.md)
  `Tokyo Sakura Video Group`
 
@@ -40,9 +46,6 @@
 
 #### [20220428郭文贵乱聊直播 ：即将发生大灾难时会天降异象](/content/gnews/2433075.md)
  `Tokyo Sakura Video Group`
-
-#### [中国的Covid-19：令人震惊的情况如何引发对工业短缺的担忧](/content/gnews/2433059.md)
- `纽约香草山MOS02`
 
 #### [五月花简报（28/04/2022）](/content/gnews/2432660.md)
  `mayflowertranslate`
@@ -127,9 +130,6 @@
 
 #### [俄罗斯的战争正在威胁中东的粮食安全](/content/gnews/2431139.md)
  `波士顿五月花农场金融部`
-
-#### [加拿大麦农就沉重碳税抨击特鲁多政府](/content/gnews/2430498.md)
- `扬帆枫叶快讯`
 
 #### [美国批评中国未履行保护知识产权承诺](/content/gnews/2429799.md)
  `波士顿五月花农场金融部`
