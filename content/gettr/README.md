@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17it3r21ce.md)
+
+2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
+
+<img src="https://media.gettr.com/group48/origin/2022/04/28/22/79fce751-0b61-30f4-0464-3bed78f29f07/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 10:00 PM UTC  - 2圖](/content/gettr/p17i7j1d8dc.md)
 
  4月28日：与曾庆红家族派来向我借款的代表……到现场视察拆迁工地了我…… 
@@ -14,11 +22,13 @@
 
 ---
 
-[@miles 4/28/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17it3r21ce.md)
+[@miles 4/28/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17ivi2adbc.md)
 
-2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
+2022.04.28《The Fringe》 Episode 179
 
-<img src="https://media.gettr.com/group48/origin/2022/04/28/22/79fce751-0b61-30f4-0464-3bed78f29f07/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+中文同传：https://gettr.com/streaming/p17iwvtf032
+
+<img src="https://media.gettr.com/group32/origin/2022/04/28/23/9dcc52ad-f3c1-e35d-31d4-72aaa0d64eb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +213,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
 
 <img src="https://media.gettr.com/group5/getter/2022/04/28/17/55aeb114-ac68-8825-39f2-71a1e2628206/577be0f3a1b20fe5bf74b8702971ecd0.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 4:44 PM UTC  - :tv:直播](/content/gettr/p17havtd962.md)
-
-4月28号：扎扎实实地走向死亡的永不能回头的行动。【郭先生早就告诫世界，多数人都选择不信，现在要承担相信魔共的后果了，只是这果也是沉甸甸，压在人心上很痛。】
-
-<img src="https://media.gettr.com/group25/getter/2022/04/28/16/6e29b6ea-64ff-db7a-afdb-cb4f39aa31d7/out.jpg" width="506" height="284">
 
 ---
 
