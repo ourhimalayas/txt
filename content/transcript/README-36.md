@@ -3,6 +3,10 @@
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/transcript/2018/04/20180418-2853950060193549328.md)
+
+[文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/content/transcript/2018/04/20180418-7552905014733217015.md)
+
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/content/transcript/2018/04/20180418-7199501813043943627.md)
 
 [文字版： 3月28日香港黑警察与金正恩访华！](/content/transcript/2018/04/20180418-7167850208053713596.md)
@@ -48,10 +52,6 @@
 [文字版文贵2018年3月4号3月5号报平安视频](/content/transcript/2018/04/20180418-4459886476955021656.md)
 
 [文字版：《文贵看春晚》爆料最后精彩演讲](/content/transcript/2018/04/20180418-1760383134905621462.md)
-
-[文字版：《文贵看春晚》爆料（三，四）](/content/transcript/2018/04/20180418-9010451938927487211.md)
-
-[文字版：《文贵看春晚》爆料（一，二）](/content/transcript/2018/04/20180418-7031561939158175109.md)
 
 
 ## 頁面 36/42 [**<**](/content/transcript/README-35.md) [1](/content/transcript/README.md) ... [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) **36** [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) ... [**>**](/content/transcript/README-37.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 30/42 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年1月23日文貴報平安直播](/content/transcript/2019/01/20190125-5995035220130924499.md)
+
+[文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/transcript/2019/01/20190123-2188991099465691450.md)
+
 [文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/transcript/2019/01/20190123-8364143851191456056.md)
 
 [文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/content/transcript/2019/01/20190122-141136365873986277.md)
@@ -48,10 +52,6 @@
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/transcript/2018/12/20181218-8948086997100898897.md)
 
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误](/content/transcript/2018/12/20181211-7088742512990169570.md)
-
-[文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/transcript/2018/12/20181211-3146997192813491543.md)
-
-[文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！](/content/transcript/2018/12/20181209-8884360174846064842.md)
 
 
 ## 頁面 30/42 [**<**](/content/transcript/README-29.md) [1](/content/transcript/README.md) ... [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) **30** [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-31.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,10 @@
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国](/content/transcript/2018/04/20180418-745923463937073308.md)
+
+[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！](/content/transcript/2018/04/20180418-5215268758560370583.md)
+
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/transcript/2018/04/20180418-893371473063503687.md)
 
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/transcript/2018/04/20180418-1567783947311551796.md)
@@ -48,10 +52,6 @@
 [2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱](/content/transcript/2018/04/20180418-4181709165210679355.md)
 
 [文贵9月13日直播：姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？](/content/transcript/2018/04/20180418-4709479553029497905.md)
-
-[8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/transcript/2018/04/20180418-2681102089407913933.md)
-
-[翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护](/content/transcript/2018/04/20180418-3813308793717217976.md)
 
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

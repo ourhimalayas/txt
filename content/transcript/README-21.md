@@ -3,6 +3,10 @@
 
 ## 頁面 21/42 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/content/transcript/2019/12/20191218-3353927093351940100.md)
+
+[文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/content/transcript/2019/12/20191217-6566572008069059453.md)
+
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/content/transcript/2019/12/20191215-671526428688511323.md)
 
 [文字版：2019年12月13日文贵报平安，王健的第四种死法](/content/transcript/2019/12/20191214-6641233035759881210.md)
@@ -48,10 +52,6 @@
 [文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/content/transcript/2019/11/20191120-7407976853651843177.md)
 
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/transcript/2019/11/20191119-700270483313252940.md)
-
-[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/transcript/2019/11/20191118-3253846857255260107.md)
-
-[文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/content/transcript/2019/11/20191117-3916342912052380154.md)
 
 
 ## 頁面 21/42 [**<**](/content/transcript/README-20.md) [1](/content/transcript/README.md) ... [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) **21** [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-22.md) [查看全部](/content/transcript/README-all.md)

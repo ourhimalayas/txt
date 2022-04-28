@@ -3,6 +3,10 @@
 
 ## 頁面 12/42 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
 
+[2020年12月27日郭先生大使馆群聊内容整理-附听写文字版](/content/transcript/2020/12/20201227-698031.md)
+
+[2020年12月25日郭先生直播内容整理-附听写文字版](/content/transcript/2020/12/20201225-691455.md)
+
 [文字版2020年12月25日郭先生GTV直播](/content/transcript/2020/12/20201225-728174.md)
 
 [文字版2020年12月23日郭先生GTV盖特视频](/content/transcript/2020/12/20201223-681584.md)
@@ -48,10 +52,6 @@
 [文字版2020年11月28日郭先生GTV直播](/content/transcript/2020/11/20201128-640822.md)
 
 [文字版2020年11月27日郭先生GTV直播](/content/transcript/2020/11/20201127-640673.md)
-
-[文字版：2020年11月14日郭文贵先生直播连线香草山](/content/transcript/2020/11/20201123-5538570264251162424.md)
-
-[文字版：2020年11月14日郭文贵先生直播视频](/content/transcript/2020/11/20201123-6996095476462078865.md)
 
 
 ## 頁面 12/42 [**<**](/content/transcript/README-11.md) [1](/content/transcript/README.md) ... [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) **12** [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-13.md) [查看全部](/content/transcript/README-all.md)
