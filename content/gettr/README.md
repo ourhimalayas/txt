@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 4/28/2022 9:35 AM UTC  - :tv:直播](/content/gettr/p17fmus5653.md)
+
+Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders supports the New Federal State of China. He believes that one day China will be a nation of freedom. 
+
+ 
+
+以色利最大的培养未来领袖的组织 ...
+
+<img src="https://media.gettr.com/group5/origin/2022/04/28/09/a624dd30-4db7-b1d9-9dde-d265eecfdd11/out.jpg" width="506" height="284">
+
+---
+
+[@himalayaathena 4/28/2022 9:01 AM UTC ](/content/gettr/p17ey2sd2b3.md)
+
+在波兰时间4月27日晚8点，以色利培养未来领袖的组织领导学院的创始人和总裁埃雷兹·埃舍尔先生一行来到法治基金新中国联邦大帐篷，举行了一年一度犹太人大屠杀纪念日活动。
+
+埃舍尔先生曾担任以色列教育部前副主任，中校和特种部队预备役指挥官。
+
+以下是前方记者Nicole与埃舍尔先生的精彩对话：
+
+Nicole：1986年获诺贝尔和平奖的大屠杀幸存者说过，在纳粹大屠杀期间，许多国家都保持沉默，在面对邪恶势力时，我们要亮出观点不能选择中立。
+
+埃舍尔：在圣经里记载，如...
+
+---
+
 [@miles 4/28/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p17ewloce4f.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -23,20 +49,6 @@
 4/27/2022 Ukraine Rescue: The fellow fighters at the front line are participating in the rescue operation, while learning how to communicate with the government officials of other countries. Fellow fighters, who are growing every d...
 
 <img src="https://media.gettr.com/group37/getter/2022/04/28/05/2a20a999-0a21-c8f3-2016-7d66ed2550da/out.jpg" width="506" height="284">
-
----
-
-[@himalayaathena 4/28/2022 9:01 AM UTC ](/content/gettr/p17ey2sd2b3.md)
-
-在波兰时间4月27日晚8点，以色利培养未来领袖的组织领导学院的创始人和总裁埃雷兹·埃舍尔先生一行来到法治基金新中国联邦大帐篷，举行了一年一度犹太人大屠杀纪念日活动。
-
-埃舍尔先生曾担任以色列教育部前副主任，中校和特种部队预备役指挥官。
-
-以下是前方记者Nicole与埃舍尔先生的精彩对话：
-
-Nicole：1986年获诺贝尔和平奖的大屠杀幸存者说过，在纳粹大屠杀期间，许多国家都保持沉默，在面对邪恶势力时，我们要亮出观点不能选择中立。
-
-埃舍尔：在圣经里记载，如...
 
 ---
 
@@ -163,22 +175,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 4/27/2022 Miles Guo’s GETTR: The economy and morale in Communist China is in a total mess, because God is helping us take down the CCP! Our fellow fighters at the Ukraine front line helping refugees are the biggest heroes of the Ne...
 
 <img src="https://media.gettr.com/group13/getter/2022/04/27/23/6878b97d-1d67-5b26-5549-1d30a27733bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 11:03 PM UTC  - :tv:直播](/content/gettr/p17dnu8ba31.md)
-
-【Ukraine Rescue】 04/25/22 A volunteer from Italy, Paulo, who used to be an English teacher in Xiamen, Fujian, comes forward to talk to us when he sees our anti-communist vests. He says he knows many Chinese friends who are longing ...
-
-<img src="https://media.gettr.com/group10/getter/2022/04/27/23/d191576e-9a12-2b04-04d2-e6fdab74d501/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 11:12 PM UTC  - :tv:直播](/content/gettr/p17dnjb6a85.md)
-
-4/27/2022 Miles Guo’s GETTR: Duowei News, which has been run by the CCP for more than 20 years, made a huge mistake and was therefore forced to be shut down. Yu Pun-hoi of Duowei News, Weijian Shan of PAG, and Bruno Wu conspired to...
-
-<img src="https://media.gettr.com/group39/getter/2022/04/27/23/63cce88a-9af3-c634-f75d-ffd2a2565054/out.jpg" width="506" height="284">
 
 ---
 
