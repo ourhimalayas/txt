@@ -16,6 +16,28 @@
 
 ---
 
+[@7upgogo 4/28/2022 5:30 PM UTC ](/content/gettr/p17hhf8d329.md)
+
+美国将加快没收俄罗斯寡头财产以补偿乌克兰
+
+President Biden’s Plan To Compensate Ukraine Using Seized Russia Oligarch Assets
+
+
+
+On April 28，The White House send a proposal for a comprehensive legislative package that will enhance the United States Gover...
+
+<img src="https://media.gettr.com/group39/origin/2022/04/28/17/da95d386-d3ec-be5c-aa83-8fd496fd16fb/1a0e2bc6a3b9ad56c2d477574b858101.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p17htibc9ae.md)
+
+4/28/2022 Miles Guo: The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day and it has significant meaning. Duowei News, as the Communist Party's largest oversea network for espionag...
+
+<img src="https://media.gettr.com/group14/getter/2022/04/28/21/f58752d2-5f22-f94c-dd85-ad8de9024772/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p17htyr7be6.md)
 
 2022.04.28  新中国联邦 | 喜健康  病毒满视野，我们该吃啥（下）
@@ -61,14 +83,6 @@
  4月28日：尊敬的战友们好……让愚蠢的人．去相信比爹娘还亲的中国共产党吧，有缘分智慧的人，最终会相信所谓的境外，为中国人民争取利益．安全和子孙未来．新中国联邦……如果中国人在以上两个选择上还没有醒来的话，那他们将永远不会再有醒来的机会了。
 
 <img src="https://media.gettr.com/group15/getter/2022/04/28/16/489a4e6d-544f-24e7-c2bc-7f23ba25f433/148d39cc8d458f18b610315dd3e0788b.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p17htibc9ae.md)
-
-4/28/2022 Miles Guo: The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day and it has significant meaning. Duowei News, as the Communist Party's largest oversea network for espionag...
-
-<img src="https://media.gettr.com/group14/getter/2022/04/28/21/f58752d2-5f22-f94c-dd85-ad8de9024772/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,20 +203,6 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 以色利最大的培养未来领袖的组织 ...
 
 <img src="https://media.gettr.com/group5/origin/2022/04/28/09/a624dd30-4db7-b1d9-9dde-d265eecfdd11/out.jpg" width="506" height="284">
-
----
-
-[@himalayaathena 4/28/2022 9:01 AM UTC ](/content/gettr/p17ey2sd2b3.md)
-
-在波兰时间4月27日晚8点，以色利培养未来领袖的组织领导学院的创始人和总裁埃雷兹·埃舍尔先生一行来到法治基金新中国联邦大帐篷，举行了一年一度犹太人大屠杀纪念日活动。
-
-埃舍尔先生曾担任以色列教育部前副主任，中校和特种部队预备役指挥官。
-
-以下是前方记者Nicole与埃舍尔先生的精彩对话：
-
-Nicole：1986年获诺贝尔和平奖的大屠杀幸存者说过，在纳粹大屠杀期间，许多国家都保持沉默，在面对邪恶势力时，我们要亮出观点不能选择中立。
-
-埃舍尔：在圣经里记载，如...
 
 ---
 
