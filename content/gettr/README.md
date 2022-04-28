@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 4/28/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p17dosk3226.md)
+
+4/27/2022 Ukraine Rescue: Fellow fighter King and Margaret share the story of how the vests bearing the slogan of taking down the Chinese Communist Party helped foreign volunteers and a painter to distinguish the Chinese from the C...
+
+<img src="https://media.gettr.com/group18/getter/2022/04/28/01/ea424eba-b75c-734d-b981-c4764e47d74c/out.jpg" width="506" height="284">
+
+---
+
+[@gettr 4/27/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p17ant09cbf.md)
+
+"Twitter's business model is misery...This part of the reason why we launched #GETTR to give people a more positive environment."
+
+
+
+CEO @jasonmillerindc w/ @mariabartiromo on Twitter's malaise and GETTR's rise. 
+
+
+
+Full clip here ...
+
+<img src="https://media.gettr.com/group42/origin/2022/04/27/15/96fce053-7761-d433-9815-f677c1715688/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p17dleh0989.md)
 
 2022.04.27 晚  新中国联邦 | 新闻     苏共解体宣言宣告其共产独裁体制终结;中共积极发展中共病毒疫苗经济
@@ -36,19 +60,11 @@
 
 ---
 
-[@gettr 4/27/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p17ant09cbf.md)
+[@miles 4/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17dzqnb3c5.md)
 
-"Twitter's business model is misery...This part of the reason why we launched #GETTR to give people a more positive environment."
+2022.04.27 晚  新中国联邦 | 新闻访谈      多维假证案件的再讨论，郭先生5年钓鱼终于到了收网时刻
 
-
-
-CEO @jasonmillerindc w/ @mariabartiromo on Twitter's malaise and GETTR's rise. 
-
-
-
-Full clip here ...
-
-<img src="https://media.gettr.com/group42/origin/2022/04/27/15/96fce053-7761-d433-9815-f677c1715688/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/04/28/01/563804f9-008e-0d2e-d068-427f699bc409/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,28 +189,6 @@ Fine Food from the New Federal State of China and Rule of Law Foundation intervi
 [Ukraine Rescue] Nicole interviewed an Israeli volunteer who was born in the former Soviet Union on the frontline of the Russian-Ukrainian rescue. As a person born in a former communist dictatorship country, she understands the sit...
 
 <img src="https://media.gettr.com/group21/origin/2022/04/27/13/32a13227-4849-4cf8-acda-d7426f35adbb/out.jpg" width="506" height="284">
-
----
-
-[@7upgogo 4/27/2022 6:56 AM UTC ](/content/gettr/p17ai9i8a08.md)
-
-美驱逐舰再次通过台湾海峡
-
-Destroyer USS Sampson Transits Taiwan Strait
-
-
-
-      The US 7th Fleet said the USS Sampson (DDG-102) had sailed from north to south through the strait on Tuesday. “The ship's transit through the Taiwan Strait demonst...
-
-<img src="https://media.gettr.com/group41/origin/2022/04/27/06/5d8b5f7c-47ea-2e70-fa55-ee38dde598ea/316ab5769a41524c1fe2350bad4edcc0.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:58 PM UTC  - :tv:直播](/content/gettr/p17anje471e.md)
-
-4月27号：我R共产党八辈祖宗！这个时候开始说实话了多少人因为这种毒疫苗死掉呢，谁能负责任呢？
-
-<img src="https://media.gettr.com/group6/getter/2022/04/27/12/e53e1153-1417-bb0b-b385-591563e3c769/out.jpg" width="506" height="284">
 
 ---
 
