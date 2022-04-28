@@ -11,6 +11,15 @@
 
 ---
 
+#### [中共国，深圳民治，打第三针发300块购物券](/content/gnews/2428753.md)
+ `Tokyo Sakura Video Group`
+
+#### [4月27日讯，2021年常住人口数据，15个省份常住人口出现下降](/content/gnews/2428725.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国，上海李律师不切断核酸检测利益链，疫情就很难结束。 我的看法：不铲除CCP 疫情永远不会结束！](/content/gnews/2428707.md)
+ `Tokyo Sakura Video Group`
+
 #### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶](/content/gnews/2428691.md)
  `Tokyo Sakura Video Group`
 
@@ -53,14 +62,17 @@
 #### [利沃夫建起花墙，而象征俄乌友好的纪念雕像已被拆除](/content/gnews/2428439.md)
  `澳喜农场`
 
+#### [樱花时政┃普京警告 如果西方国家参与协助乌克兰 俄将进行 &#8220;闪电式 &#8220;报复](/content/gnews/2428438.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [2022年4月27日郭先生盖特 — 视频1「8分39秒」](/content/gnews/2428394.md)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 #### [欧盟宣布结束COVID-19紧急阶段](/content/gnews/2428393.md)
  `秘密翻譯組G-Translators`
 
-#### [印度宣布中国公民持有的旅游签证无效](/content/gnews/2428349.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [澳洲已向流离失所的乌克兰人发放七千多份签证](/content/gnews/2428368.md)
+ `澳喜农场`
 
 #### [北京快速而激烈地对2000万居民进行新冠测试](/content/gnews/2428326.md)
  `GTV News Talk`
@@ -68,17 +80,11 @@
 #### [国际｜英外交大臣：支持全球北约、确保台湾自我防卫、阻止印太威胁](/content/gnews/2428298.md)
  `關注組`
 
-#### [德国、英国政府和加拿大宣布向乌克兰提供武器](/content/gnews/2428297.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [推特接受马斯克收购, 将私有化](/content/gnews/2428289.md)
  `GTV News Talk`
 
 #### [有调查显示澳新银行房贷申请造假比例最高](/content/gnews/2428280.md)
  `澳喜农场`
-
-#### [中共将在2025年模拟撞击近地卫星](/content/gnews/2428271.md)
- `GTV News Talk`
 
 #### [亲共派马克龙赢得法国总统大选连任](/content/gnews/2428215.md)
  `GTV News Talk`
@@ -104,18 +110,6 @@
 #### [太平联盟案件转成刑事案件将把中共间谍网全消灭](/content/gnews/2428066.md)
  `墨尔本雅典娜农场`
 
-#### [闲聊澳洲：多维网关闭的真实原因](/content/gnews/2428054.md)
- `墨尔本雅典娜农场`
-
-#### [大直播后记：连线前线救援营地——前线战友的外交能力不断提升](/content/gnews/2428041.md)
- `雅典娜GNotes`
-
-#### [美国首位乌克兰出生众议员 呼吁拜登亲访基辅](/content/gnews/2427999.md)
- `GTV News Talk`
-
-#### [美国总统拜登将于5月20日至24日访韩日](/content/gnews/2427885.md)
- `波士顿五月花农场金融部`
-
 #### [布林肯，奥斯汀承诺向乌克兰提供更多援助](/content/gnews/2427851.md)
  `NFSC News`
 
@@ -140,11 +134,8 @@
 #### [一疫功成好登基？](/content/gnews/2427437.md)
  `银河勇气之星`
 
-#### [讲述中共国军事化的洗脑教育（上）](/content/gnews/2427413.md)
- `喜马拉雅纽约磐石农场`
-
-#### [中共：“无论如何都将加强与俄罗斯的战略合作”](/content/gnews/2427227.md)
- `喜马拉雅农场新西兰站`
+#### [帮日本战友汇出700多万美元的战友听到南普陀跟定七哥](/content/gnews/2427193.md)
+ `喜马拉雅日本银河系农场`
 
 #### [新西兰财经G乐部2022年4月27日:财经新闻整理](/content/gnews/2424933.md)
  `Finance-GCLUB【新西兰财经G乐部】`
@@ -163,9 +154,6 @@
 
 #### [樱花时政┃奥斯汀主持40多国防长会议，讨论持续军援乌克兰](/content/gnews/2422068.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期](/content/gnews/2422060.md)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
