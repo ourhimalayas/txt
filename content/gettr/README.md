@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/28/2022 5:08 AM UTC  - :tv:直播](/content/gettr/p17fcsj453a.md)
+
+4/27/2022 Ukraine Rescue: The fellow fighters at the front line are participating in the rescue operation, while learning how to communicate with the government officials of other countries. Fellow fighters, who are growing every d...
+
+<img src="https://media.gettr.com/group37/getter/2022/04/28/05/2a20a999-0a21-c8f3-2016-7d66ed2550da/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17fgq806cf.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group17/origin/2022/04/28/04/a2c96d47-35dc-c25f-1651-304d2f27f0e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@7upgogo 4/28/2022 4:22 AM UTC ](/content/gettr/p17eg93ccad.md)
 
 美众院通过助台恢复"世卫观察员"法案！将送总统签署
@@ -26,11 +42,13 @@ Fellow fighter Lubiken was interviewed by a French journalist. He introduced the
 
 ---
 
-[@miles 4/28/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17fgq806cf.md)
+[@miles 4/28/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p17fgf2e55f.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders, former Deputy Director of Israel's Ministry of Education, and founder of the Pre-Military Leadership Institute.
 
-<img src="https://media.gettr.com/group17/origin/2022/04/28/04/a2c96d47-35dc-c25f-1651-304d2f27f0e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+He said:...
+
+<img src="https://media.gettr.com/group24/origin/2022/04/28/05/73922cf3-e379-273a-bd53-0ce17cee830d/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,24 +175,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 For English：gettr.com/streaming/p17d5o579cf
 
 <img src="https://media.gettr.com/group38/origin/2022/04/27/22/e64eea2c-6ede-9eac-1b9b-2240646eee2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p17d4stfa23.md)
-
-2022.04.27  新中国联邦 | 喜健康  急救速成
-
-<img src="https://media.gettr.com/group16/origin/2022/04/27/20/8739a3ff-123f-d999-7d29-b676eeb70b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayadcfarm 4/25/2022 12:22 AM UTC  - :tv:直播](/content/gettr/p16y4l82b90.md)
-
-【🆘🇺🇦🆘Report from NFSC's Ukraine Rescue by King】
-
-When the days that the young Belgian is volunteering in the Medyka refugee camp,  he deeply felt that every volunteer put giving more help to Ukrainian refugees on the first plac...
-
-<img src="https://media.gettr.com/group46/origin/2022/04/25/00/5387e52c-06f5-5993-2958-be1184acb33c/out.jpg" width="506" height="284">
 
 ---
 
