@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 4/28/2022 4:34 PM UTC ](/content/gettr/p17hbey405b.md)
+
+ 4月28日：尊敬的战友们好……让愚蠢的人．去相信比爹娘还亲的中国共产党吧，有缘分智慧的人，最终会相信所谓的境外，为中国人民争取利益．安全和子孙未来．新中国联邦……如果中国人在以上两个选择上还没有醒来的话，那他们将永远不会再有醒来的机会了。
+
+<img src="https://media.gettr.com/group15/getter/2022/04/28/16/489a4e6d-544f-24e7-c2bc-7f23ba25f433/148d39cc8d458f18b610315dd3e0788b.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p17gys49c0c.md)
+
+ 4月28日：这几句话唱得太好了？
+
+<img src="https://media.gettr.com/group45/getter/2022/04/28/16/3ccf1514-7f7c-e84f-9865-947e8ddb1263/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p17gfmr73e0.md)
+
+2022.04.28 早  七哥乱聊直播
+
+<img src="https://media.gettr.com/group24/origin/2022/04/28/14/f9591e53-84e4-3885-aaf3-06c70a8e06fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@s7gril 4/28/2022 1:37 PM UTC ](/content/gettr/p17g7mn2bfc.md)
 
 #Shanweijian, the high-ranking CCP spy is in deep shit. His nightmare just begins. The #Ponzi scheme of the #CCPKleptocrates will be busted. No fools will ever buy into the CCP's shit wrapped in gold-gilt paper.  https://financeess...
@@ -98,11 +122,11 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@miles 4/28/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p17gfmr73e0.md)
+[@miles 4/28/2022 4:44 PM UTC  - :tv:直播](/content/gettr/p17havtd962.md)
 
-2022.04.28 早  七哥乱聊直播
+4月28号：扎扎实实地走向死亡的永不能回头的行动。【郭先生早就告诫世界，多数人都选择不信，现在要承担相信魔共的后果了，只是这果也是沉甸甸，压在人心上很痛。】
 
-<img src="https://media.gettr.com/group24/origin/2022/04/28/14/f9591e53-84e4-3885-aaf3-06c70a8e06fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/04/28/16/6e29b6ea-64ff-db7a-afdb-cb4f39aa31d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,37 +200,11 @@ WASHINGTON, April 27.  The U.S. House of Representatives unanimously passed legi
 
 ---
 
-[@himalayamayflo1 4/28/2022 3:45 AM UTC  - :tv:直播](/content/gettr/p17eaut487d.md)
-
-🇺🇦🇺🇦前线纪实🇺🇦🇺🇦
-
-Fellow fighter Lubiken was interviewed by a French journalist. He introduced the New Federal State of China and the Rule of Law Foundation’s rescue operation. He said that: The Chinese people is not equal to t...
-
-<img src="https://media.gettr.com/group48/origin/2022/04/28/03/248e8b42-19d3-3b8f-ccce-cb91554daf4f/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/28/2022 3:56 AM UTC  - :tv:直播](/content/gettr/p17e86m8949.md)
 
 4/27/2022 Ukraine Rescue: A famous British rescue organization delivered supplies to us and paid a special visit to the tent of the New Federal State of China, indicating that our rescue operation is becoming increasingly well-know...
 
 <img src="https://media.gettr.com/group5/getter/2022/04/28/03/d4fe8e6f-d22a-7d17-6bc9-f959cd3eed2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17ehbge5da.md)
-
-4/27/2022 Holocaust Remembrance Day: Fellow fighter Hua said that mankind should always remember the Holocaust and learn from this tragedy. We put aside hatred and care for each other. When the world is blinded by evil, brave peopl...
-
-<img src="https://media.gettr.com/group41/getter/2022/04/28/03/3c0b2d11-74c2-3f56-5ea8-b6f76db505b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17eajjfa9d.md)
-
-2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
-
-<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
