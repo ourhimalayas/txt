@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 4/27/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p17dxmud274.md)
+
+2022.04.27《The Fringe》 Episode 178
+
+中文同传：https://gettr.com/streaming/p17ddb62cdc
+
+<img src="https://media.gettr.com/group10/origin/2022/04/27/23/70720d66-8549-3b0f-114e-fc2583a5a4c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17dmuod0bc.md)
 
 4/27/2022 Miles Guo’s GETTR: The economy and morale in Communist China is in a total mess, because God is helping us take down the CCP! Our fellow fighters at the Ukraine front line helping refugees are the biggest heroes of the Ne...
@@ -18,13 +28,11 @@
 
 ---
 
-[@miles 4/27/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p17dxmud274.md)
+[@miles 4/28/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p17dleh0989.md)
 
-2022.04.27《The Fringe》 Episode 178
+2022.04.27 晚  新中国联邦 | 新闻     苏共解体宣言宣告其共产独裁体制终结;中共积极发展中共病毒疫苗经济
 
-中文同传：https://gettr.com/streaming/p17ddb62cdc
-
-<img src="https://media.gettr.com/group10/origin/2022/04/27/23/70720d66-8549-3b0f-114e-fc2583a5a4c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/04/28/00/bb998536-ca19-f834-255c-f5d9a821c69a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Destroyer USS Sampson Transits Taiwan Strait
 4月27号：我R共产党八辈祖宗！这个时候开始说实话了多少人因为这种毒疫苗死掉呢，谁能负责任呢？
 
 <img src="https://media.gettr.com/group6/getter/2022/04/27/12/e53e1153-1417-bb0b-b385-591563e3c769/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:28 PM UTC  - :tv:直播](/content/gettr/p17ang7d7c5.md)
-
-4月27号：尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重新健康，安全起来，一切都已经开始！
-
-<img src="https://media.gettr.com/group49/getter/2022/04/27/12/e1ce2d7b-11bf-700b-d98d-1edd09fc08a2/out.jpg" width="506" height="284">
 
 ---
 
