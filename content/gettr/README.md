@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p17euwfa5e5.md)
+
+04/27/2022 A commemoration of the Holocaust of Jewish people during World War II was held in the big tent of the New Federal State of China and Rule of Law Foundation. At the end of the event, these volunteers from Israel and NFSC ...
+
+<img src="https://media.gettr.com/group16/origin/2022/04/28/06/19915030-d8e2-dbbf-e002-afe81cb479c7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 5:08 AM UTC  - :tv:直播](/content/gettr/p17fcsj453a.md)
 
 4/27/2022 Ukraine Rescue: The fellow fighters at the front line are participating in the rescue operation, while learning how to communicate with the government officials of other countries. Fellow fighters, who are growing every d...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/28/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p17euwfa5e5.md)
+[@miles 4/28/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p17ewloce4f.md)
 
-04/27/2022 A commemoration of the Holocaust of Jewish people during World War II was held in the big tent of the New Federal State of China and Rule of Law Foundation. At the end of the event, these volunteers from Israel and NFSC ...
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group16/origin/2022/04/28/06/19915030-d8e2-dbbf-e002-afe81cb479c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/04/28/06/f3b935ed-c2d8-8e3b-921c-ecc96abd1aab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 4/27/2022 Miles Guo’s GETTR: Duowei News, which has been run by the CCP for more than 20 years, made a huge mistake and was therefore forced to be shut down. Yu Pun-hoi of Duowei News, Weijian Shan of PAG, and Bruno Wu conspired to...
 
 <img src="https://media.gettr.com/group39/getter/2022/04/27/23/63cce88a-9af3-c634-f75d-ffd2a2565054/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 10:54 PM UTC  - :tv:直播](/content/gettr/p17dl5203a0.md)
-
- 4月27号：尊敬的战友们好……开完庭了开完庭了，谢谢战友们的关心，感恩上天护佑我们的一切，大家一起为美好的今天感谢万佛万神吧，一切都已经开始！
-
-<img src="https://media.gettr.com/group41/getter/2022/04/27/22/06e6b685-ace5-4134-fa89-d008f9d99c04/out.jpg" width="506" height="284">
 
 ---
 
