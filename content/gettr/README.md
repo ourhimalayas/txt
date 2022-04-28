@@ -14,6 +14,18 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
+[@miles 4/28/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p17fxuq5d7d.md)
+
+【乌克兰救援】04/26/2022  梅迪卡营地的一名英国退伍军人非常敬佩新中国联邦。他希望能消灭全球的共产主义。他同意共产主义不仅在共产主义国家危害人类，而且也侵蚀了西方民主国家。西方的疫苗护照、言论审查都是共产主义的不同形式，是换了说法的独裁。
+
+
+
+【Ukraine Rescue】04/26/2022 A British veteran at Medyka respects the NFSC. He hopes to eliminate communi...
+
+<img src="https://media.gettr.com/group40/getter/2022/04/28/10/dfbc6e43-3315-a094-a577-f7ceb838fd06/out.jpg" width="506" height="284">
+
+---
+
 [@himalayaathena 4/28/2022 9:01 AM UTC ](/content/gettr/p17ey2sd2b3.md)
 
 在波兰时间4月27日晚8点，以色利培养未来领袖的组织领导学院的创始人和总裁埃雷兹·埃舍尔先生一行来到法治基金新中国联邦大帐篷，举行了一年一度犹太人大屠杀纪念日活动。
@@ -167,14 +179,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 中文同传：https://gettr.com/streaming/p17ddb62cdc
 
 <img src="https://media.gettr.com/group10/origin/2022/04/27/23/70720d66-8549-3b0f-114e-fc2583a5a4c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17dmuod0bc.md)
-
-4/27/2022 Miles Guo’s GETTR: The economy and morale in Communist China is in a total mess, because God is helping us take down the CCP! Our fellow fighters at the Ukraine front line helping refugees are the biggest heroes of the Ne...
-
-<img src="https://media.gettr.com/group13/getter/2022/04/27/23/6878b97d-1d67-5b26-5549-1d30a27733bd/out.jpg" width="506" height="284">
 
 ---
 
