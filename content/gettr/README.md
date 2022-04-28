@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 4/28/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p17dosk3226.md)
+[@miles 4/28/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17eajjfa9d.md)
 
-4/27/2022 Ukraine Rescue: Fellow fighter King and Margaret share the story of how the vests bearing the slogan of taking down the Chinese Communist Party helped foreign volunteers and a painter to distinguish the Chinese from the C...
+2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
 
-<img src="https://media.gettr.com/group18/getter/2022/04/28/01/ea424eba-b75c-734d-b981-c4764e47d74c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@
 No.1🥇 on Taiwan🇹🇼, Germany🇩🇪 and Cambodia🇰🇭 Top Music Videos Chart
 
 No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 Pop...
+
+---
+
+[@miles 4/28/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p17dosk3226.md)
+
+4/27/2022 Ukraine Rescue: Fellow fighter King and Margaret share the story of how the vests bearing the slogan of taking down the Chinese Communist Party helped foreign volunteers and a painter to distinguish the Chinese from the C...
+
+<img src="https://media.gettr.com/group18/getter/2022/04/28/01/ea424eba-b75c-734d-b981-c4764e47d74c/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Fine Food from the New Federal State of China and Rule of Law Foundation intervi
 2022年4月27日 俄乌战争战况播报
 
 <img src="https://media.gettr.com/group40/origin/2022/04/27/17/a438d558-29a1-ff4b-83be-87a42b09fe5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/27/2022 4:32 PM UTC  - :tv:直播](/content/gettr/p17bq7h3a35.md)
-
-【Ukraine Rescue】04/25/22 Ben, the bunnyman from Kentucky, USA, expresses movingly: I came here twice to help these people, but also to support your efforts; without your tent, without your organization, this doesn't exist; and you ...
-
-<img src="https://media.gettr.com/group25/getter/2022/04/27/16/54ec780f-128f-f1a8-5fcd-c0d4533cf155/out.jpg" width="506" height="284">
 
 ---
 
