@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p17dleh0989.md)
+
+2022.04.27 晚  新中国联邦 | 新闻     苏共解体宣言宣告其共产独裁体制终结;中共积极发展中共病毒疫苗经济
+
+<img src="https://media.gettr.com/group29/origin/2022/04/28/00/bb998536-ca19-f834-255c-f5d9a821c69a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/27/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p17dxmud274.md)
 
 2022.04.27《The Fringe》 Episode 178
@@ -28,11 +36,19 @@
 
 ---
 
-[@miles 4/28/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p17dleh0989.md)
+[@gettr 4/27/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p17ant09cbf.md)
 
-2022.04.27 晚  新中国联邦 | 新闻     苏共解体宣言宣告其共产独裁体制终结;中共积极发展中共病毒疫苗经济
+"Twitter's business model is misery...This part of the reason why we launched #GETTR to give people a more positive environment."
 
-<img src="https://media.gettr.com/group29/origin/2022/04/28/00/bb998536-ca19-f834-255c-f5d9a821c69a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+CEO @jasonmillerindc w/ @mariabartiromo on Twitter's malaise and GETTR's rise. 
+
+
+
+Full clip here ...
+
+<img src="https://media.gettr.com/group42/origin/2022/04/27/15/96fce053-7761-d433-9815-f677c1715688/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +187,6 @@ Destroyer USS Sampson Transits Taiwan Strait
       The US 7th Fleet said the USS Sampson (DDG-102) had sailed from north to south through the strait on Tuesday. “The ship's transit through the Taiwan Strait demonst...
 
 <img src="https://media.gettr.com/group41/origin/2022/04/27/06/5d8b5f7c-47ea-2e70-fa55-ee38dde598ea/316ab5769a41524c1fe2350bad4edcc0.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 12:52 PM UTC  - :tv:直播](/content/gettr/p17aw6l5969.md)
-
-[Ukraine Rescue] 04/26/2022 Nicole, our fellow fighter, interviewed a veteran who served in the British army for 16 years on the rescue front. He very much recognized that freedom is not free, and freedom can only be obtained throu...
-
-<img src="https://media.gettr.com/group17/origin/2022/04/27/12/c6405b88-49a0-5ed7-4359-a8b241ad1129/out.jpg" width="506" height="284">
 
 ---
 
