@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 5:30 PM UTC  - 3圖](/content/gettr/p17h5d69916.md)
+
+428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
+
+<img src="https://media.gettr.com/group5/getter/2022/04/28/17/55aeb114-ac68-8825-39f2-71a1e2628206/577be0f3a1b20fe5bf74b8702971ecd0.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 4:34 PM UTC ](/content/gettr/p17hbey405b.md)
 
  4月28日：尊敬的战友们好……让愚蠢的人．去相信比爹娘还亲的中国共产党吧，有缘分智慧的人，最终会相信所谓的境外，为中国人民争取利益．安全和子孙未来．新中国联邦……如果中国人在以上两个选择上还没有醒来的话，那他们将永远不会再有醒来的机会了。
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/28/2022 5:30 PM UTC  - 3圖](/content/gettr/p17h5d69916.md)
+[@miles 4/28/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p17foq49035.md)
 
-428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
+2022.04.28 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group5/getter/2022/04/28/17/55aeb114-ac68-8825-39f2-71a1e2628206/577be0f3a1b20fe5bf74b8702971ecd0.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/04/28/17/c0465c0b-35b9-f3ce-0377-50ef7de0ae23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -191,20 +199,6 @@ He said:...
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group17/origin/2022/04/28/04/a2c96d47-35dc-c25f-1651-304d2f27f0e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@7upgogo 4/28/2022 4:22 AM UTC ](/content/gettr/p17eg93ccad.md)
-
-美众院通过助台恢复"世卫观察员"法案！将送总统签署
-
-Bill to help Taiwan regain WHO status passes Congress, sent to Biden for signature
-
-
-
-WASHINGTON, April 27.  The U.S. House of Representatives unanimously passed legislation on Wednesday calling on the St...
-
-<img src="https://media.gettr.com/group47/origin/2022/04/28/04/661a1e45-70cb-bf10-a284-10cb5783ee4d/2fd1d71f8527ee0aa6f650f25182eed0.jpg" width="506" height="284">
 
 ---
 
