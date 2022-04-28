@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 4/28/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p17fxuq5d7d.md)
+
+【乌克兰救援】04/26/2022  梅迪卡营地的一名英国退伍军人非常敬佩新中国联邦。他希望能消灭全球的共产主义。他同意共产主义不仅在共产主义国家危害人类，而且也侵蚀了西方民主国家。西方的疫苗护照、言论审查都是共产主义的不同形式，是换了说法的独裁。
+
+
+
+【Ukraine Rescue】04/26/2022 A British veteran at Medyka respects the NFSC. He hopes to eliminate communi...
+
+<img src="https://media.gettr.com/group40/getter/2022/04/28/10/dfbc6e43-3315-a094-a577-f7ceb838fd06/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 9:35 AM UTC  - :tv:直播](/content/gettr/p17fmus5653.md)
 
 Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders supports the New Federal State of China. He believes that one day China will be a nation of freedom. 
@@ -14,15 +26,35 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@miles 4/28/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p17fxuq5d7d.md)
+[@miles 4/28/2022 10:50 AM UTC ](/content/gettr/p17gddb3558.md)
 
-【乌克兰救援】04/26/2022  梅迪卡营地的一名英国退伍军人非常敬佩新中国联邦。他希望能消灭全球的共产主义。他同意共产主义不仅在共产主义国家危害人类，而且也侵蚀了西方民主国家。西方的疫苗护照、言论审查都是共产主义的不同形式，是换了说法的独裁。
+新中国联邦·法治基金——乌克兰救援行动报告
 
 
 
-【Ukraine Rescue】04/26/2022 A British veteran at Medyka respects the NFSC. He hopes to eliminate communi...
+2022年4月27日第54天当日救援统计：
 
-<img src="https://media.gettr.com/group40/getter/2022/04/28/10/dfbc6e43-3315-a094-a577-f7ceb838fd06/out.jpg" width="506" height="284">
+Medyka救援站接待：约218人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约14978人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 54 - Date: A...
+
+<img src="https://media.gettr.com/group29/getter/2022/04/28/10/68585856-dcad-b2ef-c3c2-9dbc140b10b4/dbd0ae74c4369907cda9c00bb28e757f.jpg" width="506" height="284">
 
 ---
 
