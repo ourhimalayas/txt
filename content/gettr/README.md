@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p17g71z78b9.md)
+
+2022.04.28 AM NFSC news  NFSC International Fellow Fighter Talks About CCP Not Equivalent to Chinese
+
+<img src="https://media.gettr.com/group46/origin/2022/04/28/11/adc7846f-93a6-edd0-11d2-d2e552929016/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 10:50 AM UTC ](/content/gettr/p17gddb3558.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -58,11 +66,11 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@miles 4/28/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p17g71z78b9.md)
+[@miles 4/28/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p17fv9fd7ef.md)
 
-2022.04.28 AM NFSC news  NFSC International Fellow Fighter Talks About CCP Not Equivalent to Chinese
+The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day. Mr. Erez Eshel, the founder and president of Ein Prat, praised the brave New Federal State of Chinese people who shared the sa...
 
-<img src="https://media.gettr.com/group46/origin/2022/04/28/11/adc7846f-93a6-edd0-11d2-d2e552929016/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/04/28/12/346182bc-21bd-494c-f264-aeea4dcb4290/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 2022.04.27 晚  新中国联邦 | 新闻访谈      多维假证案件的再讨论，郭先生5年钓鱼终于到了收网时刻
 
 <img src="https://media.gettr.com/group15/origin/2022/04/28/01/563804f9-008e-0d2e-d068-427f699bc409/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 12:34 AM UTC  - :tv:直播](/content/gettr/p17dleh0989.md)
-
-2022.04.27 晚  新中国联邦 | 新闻     苏共解体宣言宣告其共产独裁体制终结;中共积极发展中共病毒疫苗经济
-
-<img src="https://media.gettr.com/group29/origin/2022/04/28/00/bb998536-ca19-f834-255c-f5d9a821c69a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
