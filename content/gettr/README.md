@@ -10,6 +10,24 @@
 
 ---
 
+[@miles 4/28/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p17euwfa5e5.md)
+
+04/27/2022 A commemoration of the Holocaust of Jewish people during World War II was held in the big tent of the New Federal State of China and Rule of Law Foundation. At the end of the event, these volunteers from Israel and NFSC ...
+
+<img src="https://media.gettr.com/group16/origin/2022/04/28/06/19915030-d8e2-dbbf-e002-afe81cb479c7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p17fgf2e55f.md)
+
+Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders, former Deputy Director of Israel's Ministry of Education, and founder of the Pre-Military Leadership Institute.
+
+He said:...
+
+<img src="https://media.gettr.com/group24/origin/2022/04/28/05/73922cf3-e379-273a-bd53-0ce17cee830d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17fgq806cf.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -39,16 +57,6 @@ WASHINGTON, April 27.  The U.S. House of Representatives unanimously passed legi
 Fellow fighter Lubiken was interviewed by a French journalist. He introduced the New Federal State of China and the Rule of Law Foundation’s rescue operation. He said that: The Chinese people is not equal to t...
 
 <img src="https://media.gettr.com/group48/origin/2022/04/28/03/248e8b42-19d3-3b8f-ccce-cb91554daf4f/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 5:11 AM UTC  - :tv:直播](/content/gettr/p17fgf2e55f.md)
-
-Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders, former Deputy Director of Israel's Ministry of Education, and founder of the Pre-Military Leadership Institute.
-
-He said:...
-
-<img src="https://media.gettr.com/group24/origin/2022/04/28/05/73922cf3-e379-273a-bd53-0ce17cee830d/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
  4月27号：尊敬的战友们好……开完庭了开完庭了，谢谢战友们的关心，感恩上天护佑我们的一切，大家一起为美好的今天感谢万佛万神吧，一切都已经开始！
 
 <img src="https://media.gettr.com/group41/getter/2022/04/27/22/06e6b685-ace5-4134-fa89-d008f9d99c04/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17dgnuacda.md)
-
-“吴红旗你在哪？？” 飞飞秀救援快报 2022-04-27
-
-For English：gettr.com/streaming/p17d5o579cf
-
-<img src="https://media.gettr.com/group38/origin/2022/04/27/22/e64eea2c-6ede-9eac-1b9b-2240646eee2e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
