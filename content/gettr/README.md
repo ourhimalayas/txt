@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p17foq49035.md)
+
+2022.04.28 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group30/origin/2022/04/28/17/c0465c0b-35b9-f3ce-0377-50ef7de0ae23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 5:30 PM UTC  - 3圖](/content/gettr/p17h5d69916.md)
 
 428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/28/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p17foq49035.md)
+[@miles 4/28/2022 7:05 PM UTC  - :tv:直播](/content/gettr/p17foqf9fb0.md)
 
-2022.04.28 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022-4-28《避风港》(41) 辉瑞疫苗水太深
 
-<img src="https://media.gettr.com/group30/origin/2022/04/28/17/c0465c0b-35b9-f3ce-0377-50ef7de0ae23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 He said:...
 
 <img src="https://media.gettr.com/group24/origin/2022/04/28/05/73922cf3-e379-273a-bd53-0ce17cee830d/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17fgq806cf.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group17/origin/2022/04/28/04/a2c96d47-35dc-c25f-1651-304d2f27f0e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
