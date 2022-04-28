@@ -2,6 +2,24 @@
 ---
 
 
+[@himalayamayflo1 4/28/2022 3:45 AM UTC  - :tv:直播](/content/gettr/p17eaut487d.md)
+
+🇺🇦🇺🇦前线纪实🇺🇦🇺🇦
+
+Fellow fighter Lubiken was interviewed by a French journalist. He introduced the New Federal State of China and the Rule of Law Foundation’s rescue operation. He said that: The Chinese people is not equal to t...
+
+<img src="https://media.gettr.com/group48/origin/2022/04/28/03/248e8b42-19d3-3b8f-ccce-cb91554daf4f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17ehbge5da.md)
+
+4/27/2022 Holocaust Remembrance Day: Fellow fighter Hua said that mankind should always remember the Holocaust and learn from this tragedy. We put aside hatred and care for each other. When the world is blinded by evil, brave peopl...
+
+<img src="https://media.gettr.com/group41/getter/2022/04/28/03/3c0b2d11-74c2-3f56-5ea8-b6f76db505b2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17eajjfa9d.md)
 
 2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
@@ -18,11 +36,11 @@
 
 ---
 
-[@miles 4/28/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17ehbge5da.md)
+[@miles 4/28/2022 3:56 AM UTC  - :tv:直播](/content/gettr/p17e86m8949.md)
 
-4/27/2022 Holocaust Remembrance Day: Fellow fighter Hua said that mankind should always remember the Holocaust and learn from this tragedy. We put aside hatred and care for each other. When the world is blinded by evil, brave peopl...
+4/27/2022 Ukraine Rescue: A famous British rescue organization delivered supplies to us and paid a special visit to the tent of the New Federal State of China, indicating that our rescue operation is becoming increasingly well-know...
 
-<img src="https://media.gettr.com/group41/getter/2022/04/28/03/3c0b2d11-74c2-3f56-5ea8-b6f76db505b2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/04/28/03/d4fe8e6f-d22a-7d17-6bc9-f959cd3eed2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,22 +67,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 2022.04.27 晚  新中国联邦 | 新闻访谈      多维假证案件的再讨论，郭先生5年钓鱼终于到了收网时刻
 
 <img src="https://media.gettr.com/group15/origin/2022/04/28/01/563804f9-008e-0d2e-d068-427f699bc409/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@gettr 4/27/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p17ant09cbf.md)
-
-"Twitter's business model is misery...This part of the reason why we launched #GETTR to give people a more positive environment."
-
-
-
-CEO @jasonmillerindc w/ @mariabartiromo on Twitter's malaise and GETTR's rise. 
-
-
-
-Full clip here ...
-
-<img src="https://media.gettr.com/group42/origin/2022/04/27/15/96fce053-7761-d433-9815-f677c1715688/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +177,6 @@ We ...
 When the days that the young Belgian is volunteering in the Medyka refugee camp,  he deeply felt that every volunteer put giving more help to Ukrainian refugees on the first plac...
 
 <img src="https://media.gettr.com/group46/origin/2022/04/25/00/5387e52c-06f5-5993-2958-be1184acb33c/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 6:22 PM UTC  - :tv:直播](/content/gettr/p17bcc12bc3.md)
-
-2022年4月27日  犹太大屠杀纪念日特别直播
-
-<img src="https://media.gettr.com/group41/origin/2022/04/27/18/fd5afba7-05f0-d4a7-695c-49e6f1c5aeea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
