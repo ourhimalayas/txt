@@ -2,30 +2,6 @@
 ---
 
 
-[@miles 4/28/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p17fxuq5d7d.md)
-
-【乌克兰救援】04/26/2022  梅迪卡营地的一名英国退伍军人非常敬佩新中国联邦。他希望能消灭全球的共产主义。他同意共产主义不仅在共产主义国家危害人类，而且也侵蚀了西方民主国家。西方的疫苗护照、言论审查都是共产主义的不同形式，是换了说法的独裁。
-
-
-
-【Ukraine Rescue】04/26/2022 A British veteran at Medyka respects the NFSC. He hopes to eliminate communi...
-
-<img src="https://media.gettr.com/group40/getter/2022/04/28/10/dfbc6e43-3315-a094-a577-f7ceb838fd06/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:35 AM UTC  - :tv:直播](/content/gettr/p17fmus5653.md)
-
-Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders supports the New Federal State of China. He believes that one day China will be a nation of freedom. 
-
- 
-
-以色利最大的培养未来领袖的组织 ...
-
-<img src="https://media.gettr.com/group5/origin/2022/04/28/09/a624dd30-4db7-b1d9-9dde-d265eecfdd11/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/28/2022 10:50 AM UTC ](/content/gettr/p17gddb3558.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -55,6 +31,38 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 54 - Date: A...
 
 <img src="https://media.gettr.com/group29/getter/2022/04/28/10/68585856-dcad-b2ef-c3c2-9dbc140b10b4/dbd0ae74c4369907cda9c00bb28e757f.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p17fxuq5d7d.md)
+
+【乌克兰救援】04/26/2022  梅迪卡营地的一名英国退伍军人非常敬佩新中国联邦。他希望能消灭全球的共产主义。他同意共产主义不仅在共产主义国家危害人类，而且也侵蚀了西方民主国家。西方的疫苗护照、言论审查都是共产主义的不同形式，是换了说法的独裁。
+
+
+
+【Ukraine Rescue】04/26/2022 A British veteran at Medyka respects the NFSC. He hopes to eliminate communi...
+
+<img src="https://media.gettr.com/group40/getter/2022/04/28/10/dfbc6e43-3315-a094-a577-f7ceb838fd06/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:35 AM UTC  - :tv:直播](/content/gettr/p17fmus5653.md)
+
+Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders supports the New Federal State of China. He believes that one day China will be a nation of freedom. 
+
+ 
+
+以色利最大的培养未来领袖的组织 ...
+
+<img src="https://media.gettr.com/group5/origin/2022/04/28/09/a624dd30-4db7-b1d9-9dde-d265eecfdd11/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p17g71z78b9.md)
+
+2022.04.28 AM NFSC news  NFSC International Fellow Fighter Talks About CCP Not Equivalent to Chinese
+
+<img src="https://media.gettr.com/group46/origin/2022/04/28/11/adc7846f-93a6-edd0-11d2-d2e552929016/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -201,16 +209,6 @@ No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 P
 2022.04.27 晚  新中国联邦 | 新闻     苏共解体宣言宣告其共产独裁体制终结;中共积极发展中共病毒疫苗经济
 
 <img src="https://media.gettr.com/group29/origin/2022/04/28/00/bb998536-ca19-f834-255c-f5d9a821c69a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p17dxmud274.md)
-
-2022.04.27《The Fringe》 Episode 178
-
-中文同传：https://gettr.com/streaming/p17ddb62cdc
-
-<img src="https://media.gettr.com/group10/origin/2022/04/27/23/70720d66-8549-3b0f-114e-fc2583a5a4c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
