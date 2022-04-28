@@ -2,17 +2,65 @@
 ---
 
 
-[@miles 4/28/2022 9:18 PM UTC  - :tv:直播](/content/gettr/p17ifdc7a04.md)
+[@miles 4/28/2022 9:50 PM UTC ](/content/gettr/p17hwde94c3.md)
 
-4/28/2022 Miles Guo: We don't have a say on whether or when Nancy Pelosi is going to Taiwan, but she's a skillful politician; our fellow fighters should stay calm and be patient
+ 4月28日：刚刚从清风看守所走出的我…… 
 
 
 
-4/28/2022 文贵直播：佩罗西去不去台湾咱说了不算啊，不过人家美国人会玩儿，战友们别着急啊
 
-...
 
-<img src="https://media.gettr.com/group6/getter/2022/04/28/21/34f60020-ce54-da9a-2591-b09043e20c37/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/04/28/21/142bfd1e-e81c-a846-87aa-d27f780fddb2/aad14695f88b4d68c4b9465a7be8ca53.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:51 PM UTC ](/content/gettr/p17hua3cb70.md)
+
+ 4月28号：已建好郑州裕达别墅，以房地产开发商身份重新第二次生命的我…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group33/getter/2022/04/28/21/e688a9d2-221d-5ec7-5e8a-7f1c6e3b2e19/65280d9482e169ef3f57ea1353a82034.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:53 PM UTC ](/content/gettr/p17i2rtf329.md)
+
+ 4月28日：作为河南省最大的外资房地产开发商．引进日本十几个国家投资的……最有实力的金融集团．与郑州，当时的市长陈易初会见了我！ 
+
+
+
+
+
+<img src="https://media.gettr.com/group16/getter/2022/04/28/21/80a5462d-ed3e-a51a-9857-2dc695da8376/8b7c1758183dc2594043cac3b3358916.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:56 PM UTC ](/content/gettr/p17hvzba99e.md)
+
+4月28日：在美国开董事会坐着土豪车，与贺老一起遊逛曼哈顿的我！ 
+
+
+
+
+
+<img src="https://media.gettr.com/group32/getter/2022/04/28/21/83794901-58ec-d6fd-33fb-615e911c3a2c/90b41a4429efe17c2d3672a0c41e2eeb.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:58 PM UTC ](/content/gettr/p17hrff95c5.md)
+
+04/28/2022 on the 10th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+No.1🥇 on Germany🇩🇪 and Cambodia🇰🇭 Top Music Videos Chart
+
+No.1🥇 on USA🇺🇸, Germany🇩🇪 and Cambodia🇰🇭 Pop Music Videos Chart
+
+
+
+“...
 
 ---
 
@@ -27,6 +75,32 @@ President Biden’s Plan To Compensate Ukraine Using Seized Russia Oligarch Asse
 On April 28，The White House send a proposal for a comprehensive legislative package that will enhance the United States Gover...
 
 <img src="https://media.gettr.com/group39/origin/2022/04/28/17/da95d386-d3ec-be5c-aa83-8fd496fd16fb/1a0e2bc6a3b9ad56c2d477574b858101.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:18 PM UTC  - :tv:直播](/content/gettr/p17ifdc7a04.md)
+
+4/28/2022 Miles Guo: We don't have a say on whether or when Nancy Pelosi is going to Taiwan, but she's a skillful politician; our fellow fighters should stay calm and be patient
+
+
+
+4/28/2022 文贵直播：佩罗西去不去台湾咱说了不算啊，不过人家美国人会玩儿，战友们别着急啊
+
+...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/28/21/34f60020-ce54-da9a-2591-b09043e20c37/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:58 PM UTC ](/content/gettr/p17i2zjcddd.md)
+
+ 4月28日：在香港参加裕达董事会的我…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group40/getter/2022/04/28/21/98f45678-b65f-85c7-af6c-a14be6b84c17/1e9f8ba1ad01dd094527c214c73d5b2e.jpg" width="506" height="284">
 
 ---
 
@@ -123,86 +197,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 2022.04.28 早  新中国联邦 | 新闻访谈
 
 <img src="https://media.gettr.com/group7/origin/2022/04/28/13/f482d3fd-22cc-476c-4c2d-414c8ce647e1/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 12:32 PM UTC  - :tv:直播](/content/gettr/p17gfmfdbf0.md)
-
-2022.04.28 早 新中国联邦 | 新闻 前苏联志愿者谈自由的重要性；国际义工称新中国联邦帐篷是救援营地的基石；郭先生解析普京“硬汉形象”下的内幕；华尔街的贪婪决定了中共的存活
-
-<img src="https://media.gettr.com/group40/origin/2022/04/28/12/00cfde79-10c4-22c6-874b-9447a625850d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 12:25 PM UTC  - :tv:直播](/content/gettr/p17fv9fd7ef.md)
-
-The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day. Mr. Erez Eshel, the founder and president of Ein Prat, praised the brave New Federal State of Chinese people who shared the sa...
-
-<img src="https://media.gettr.com/group17/origin/2022/04/28/12/346182bc-21bd-494c-f264-aeea4dcb4290/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 11:59 AM UTC  - :tv:直播](/content/gettr/p17g71z78b9.md)
-
-2022.04.28 AM NFSC news  NFSC International Fellow Fighter Talks About CCP Not Equivalent to Chinese
-
-<img src="https://media.gettr.com/group46/origin/2022/04/28/11/adc7846f-93a6-edd0-11d2-d2e552929016/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 10:50 AM UTC ](/content/gettr/p17gddb3558.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月27日第54天当日救援统计：
-
-Medyka救援站接待：约218人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约14978人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 54 - Date: A...
-
-<img src="https://media.gettr.com/group29/getter/2022/04/28/10/68585856-dcad-b2ef-c3c2-9dbc140b10b4/dbd0ae74c4369907cda9c00bb28e757f.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p17fxuq5d7d.md)
-
-【乌克兰救援】04/26/2022  梅迪卡营地的一名英国退伍军人非常敬佩新中国联邦。他希望能消灭全球的共产主义。他同意共产主义不仅在共产主义国家危害人类，而且也侵蚀了西方民主国家。西方的疫苗护照、言论审查都是共产主义的不同形式，是换了说法的独裁。
-
-
-
-【Ukraine Rescue】04/26/2022 A British veteran at Medyka respects the NFSC. He hopes to eliminate communi...
-
-<img src="https://media.gettr.com/group40/getter/2022/04/28/10/dfbc6e43-3315-a094-a577-f7ceb838fd06/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:35 AM UTC  - :tv:直播](/content/gettr/p17fmus5653.md)
-
-Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization for training future leaders supports the New Federal State of China. He believes that one day China will be a nation of freedom. 
-
- 
-
-以色利最大的培养未来领袖的组织 ...
-
-<img src="https://media.gettr.com/group5/origin/2022/04/28/09/a624dd30-4db7-b1d9-9dde-d265eecfdd11/out.jpg" width="506" height="284">
 
 ---
 
