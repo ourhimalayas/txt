@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17eajjfa9d.md)
+
+2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
+
+<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17ducxb2bb.md)
 
 2022.04.27  新中国联邦 | 喜财经    邪恶货币威胁美元, 投资喜币立刻行动
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/28/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17eajjfa9d.md)
+[@miles 4/28/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17ehbge5da.md)
 
-2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
+4/27/2022 Holocaust Remembrance Day: Fellow fighter Hua said that mankind should always remember the Holocaust and learn from this tragedy. We put aside hatred and care for each other. When the world is blinded by evil, brave peopl...
 
-<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/04/28/03/3c0b2d11-74c2-3f56-5ea8-b6f76db505b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ When the days that the young Belgian is volunteering in the Medyka refugee camp,
 Fine Food from the New Federal State of China and Rule of Law Foundation interviewed a German physician, Dr. Wjahat Waraich at Medyka, the Polish Ukraine border.  Dr. Waraich set up a clinic to provide emergency medical support and...
 
 <img src="https://media.gettr.com/group27/getter/2022/04/22/05/5a6e1ed3-1aef-7229-e53c-0c50dd797d11/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 5:32 PM UTC  - :tv:直播](/content/gettr/p17b2g4dd21.md)
-
-2022年4月27日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group40/origin/2022/04/27/17/a438d558-29a1-ff4b-83be-87a42b09fe5f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
