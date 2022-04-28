@@ -2,6 +2,14 @@
 ---
 
 
+[@s7gril 4/28/2022 1:37 PM UTC ](/content/gettr/p17g7mn2bfc.md)
+
+#Shanweijian, the high-ranking CCP spy is in deep shit. His nightmare just begins. The #Ponzi scheme of the #CCPKleptocrates will be busted. No fools will ever buy into the CCP's shit wrapped in gold-gilt paper.  https://financeess...
+
+<img src="https://media.gettr.com/group10/origin/2022/04/28/13/c5028143-5ff4-0b21-3795-c5adcbaf69b2/f1f5fb7595f3652cde1727453cb92917.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17four1fb2.md)
 
 2022.04.28 早  新中国联邦 | 新闻访谈
@@ -90,11 +98,11 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@s7gril 4/28/2022 1:37 PM UTC ](/content/gettr/p17g7mn2bfc.md)
+[@miles 4/28/2022 2:33 PM UTC  - :tv:直播](/content/gettr/p17gfmr73e0.md)
 
-#Shanweijian, the high-ranking CCP spy is in deep shit. His nightmare just begins. The #Ponzi scheme of the #CCPKleptocrates will be busted. No fools will ever buy into the CCP's shit wrapped in gold-gilt paper.  https://financeess...
+2022.04.28 早  七哥乱聊直播
 
-<img src="https://media.gettr.com/group10/origin/2022/04/28/13/c5028143-5ff4-0b21-3795-c5adcbaf69b2/f1f5fb7595f3652cde1727453cb92917.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/04/28/14/f9591e53-84e4-3885-aaf3-06c70a8e06fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,16 +207,6 @@ Fellow fighter Lubiken was interviewed by a French journalist. He introduced the
 2022-4-27《鸡血王喜币大作战》 第一百七十八集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 2:08 AM UTC ](/content/gettr/p17dww7c939.md)
-
-04/27/2022 on the 9th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Taiwan🇹🇼, Germany🇩🇪 and Cambodia🇰🇭 Top Music Videos Chart
-
-No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 Pop...
 
 ---
 
