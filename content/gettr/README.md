@@ -2,16 +2,6 @@
 ---
 
 
-[@himalayamayflo1 4/28/2022 3:45 AM UTC  - :tv:直播](/content/gettr/p17eaut487d.md)
-
-🇺🇦🇺🇦前线纪实🇺🇦🇺🇦
-
-Fellow fighter Lubiken was interviewed by a French journalist. He introduced the New Federal State of China and the Rule of Law Foundation’s rescue operation. He said that: The Chinese people is not equal to t...
-
-<img src="https://media.gettr.com/group48/origin/2022/04/28/03/248e8b42-19d3-3b8f-ccce-cb91554daf4f/out.jpg" width="506" height="284">
-
----
-
 [@7upgogo 4/28/2022 4:22 AM UTC ](/content/gettr/p17eg93ccad.md)
 
 美众院通过助台恢复"世卫观察员"法案！将送总统签署
@@ -23,6 +13,24 @@ Bill to help Taiwan regain WHO status passes Congress, sent to Biden for signatu
 WASHINGTON, April 27.  The U.S. House of Representatives unanimously passed legislation on Wednesday calling on the St...
 
 <img src="https://media.gettr.com/group47/origin/2022/04/28/04/661a1e45-70cb-bf10-a284-10cb5783ee4d/2fd1d71f8527ee0aa6f650f25182eed0.jpg" width="506" height="284">
+
+---
+
+[@himalayamayflo1 4/28/2022 3:45 AM UTC  - :tv:直播](/content/gettr/p17eaut487d.md)
+
+🇺🇦🇺🇦前线纪实🇺🇦🇺🇦
+
+Fellow fighter Lubiken was interviewed by a French journalist. He introduced the New Federal State of China and the Rule of Law Foundation’s rescue operation. He said that: The Chinese people is not equal to t...
+
+<img src="https://media.gettr.com/group48/origin/2022/04/28/03/248e8b42-19d3-3b8f-ccce-cb91554daf4f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17fgq806cf.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group17/origin/2022/04/28/04/a2c96d47-35dc-c25f-1651-304d2f27f0e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,30 +165,6 @@ For English：gettr.com/streaming/p17d5o579cf
 2022.04.27  新中国联邦 | 喜健康  急救速成
 
 <img src="https://media.gettr.com/group16/origin/2022/04/27/20/8739a3ff-123f-d999-7d29-b676eeb70b74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayadcfarm 4/25/2022 7:25 PM UTC  - :tv:直播](/content/gettr/p171whwe9d4.md)
-
-🆘🇺🇦🆘Report from NFSC's Ukraine Rescue by King】
-
-
-
-【🆘🇺🇦🆘来自乌克兰救援前线精糧的报道】
-
-今天我们在前方DC的战友精糧,在Medyka接受波兰最畅销新闻周刊《政治》（Polityka）采访.
-
-采访问题很尖锐,精糧的回答很精彩!
-
-"那你自己就是一个难民了,所以你能够理解那些人了?"
-
-
-
-About the New Federal State of China #NFSC 👇
-
-We ...
-
-<img src="https://media.gettr.com/group3/origin/2022/04/25/19/f8522dac-7e76-364c-4a1a-965e2f989e15/out.jpg" width="506" height="284">
 
 ---
 
