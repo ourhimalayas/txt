@@ -2,6 +2,12 @@
 ---
 
 
+#### [普京警告他国不得干预俄乌战争](/content/gnews/2432195.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [微软称受到中共国的网路攻击](/content/gnews/2432187.md)
+ `GTV News Talk`
+
 #### [2022年04月28日七哥临时直播速记](/content/gnews/2432183.md)
  `Mr. Miles Guo's News Briefing`
 
@@ -20,14 +26,14 @@
 #### [中共加速进入北朝鲜模式](/content/gnews/2432116.md)
  `NFSC News`
 
+#### [【秘翻时评】 伊朗总统会晤中共国务委员兼国防部长](/content/gnews/2432106.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [【说事儿】数字货币喜币将超过比特币 更超越瑞士银行金融机构 所有人的财富受到保护](/content/gnews/2432105.md)
  `TokyoSakuraDesignGroup`
 
 #### [有声&#124;喜联储开启人类金融多样化未来](/content/gnews/2432089.md)
  `MOSREC`
-
-#### [【说事儿】中共意图控制芯片产业链以打垮美元 南西-佩洛西可能忽然访台](/content/gnews/2432084.md)
- `TokyoSakuraDesignGroup`
 
 #### [滿江紅·建國感懷](/content/gnews/2432057.md)
  `纽约香草山MOS02`
@@ -41,17 +47,11 @@
 #### [有声&#124;中共海外大外宣面临全面失败](/content/gnews/2431962.md)
  `MOSREC`
 
-#### [有声&#124;中共股市汇市楼市三大皆空](/content/gnews/2431929.md)
- `MOSREC`
-
 #### [心脏病专家说，30%接种疫苗的飞行员会因为疫苗伤害而无法通过健康检查!](/content/gnews/2431922.md)
  `mayflowertranslate`
 
 #### [疫情封控中的上海人：四月英雄](/content/gnews/2431904.md)
  `纽约香草山MOS02`
-
-#### [【蓝枫法律】社交媒体的“搅局者”Gettr和马斯克](/content/gnews/2431875.md)
- `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [日本宣布拜登将于5月22日访日](/content/gnews/2431853.md)
  `喜马拉雅意大利罗马达芬奇农场`
