@@ -14,6 +14,14 @@
 
 ---
 
+[@miles 4/28/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17it3r21ce.md)
+
+2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
+
+<img src="https://media.gettr.com/group48/origin/2022/04/28/22/79fce751-0b61-30f4-0464-3bed78f29f07/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 10:04 PM UTC  - :tv:直播](/content/gettr/p17il5lfcf9.md)
 
 “以色列” 飞飞秀救援快报 2022-04-27
@@ -36,18 +44,6 @@ For English：gettr.com/streaming/p17ht7n08bd
 
 ---
 
-[@miles 4/28/2022 9:50 PM UTC ](/content/gettr/p17hwde94c3.md)
-
- 4月28日：刚刚从清风看守所走出的我…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group25/getter/2022/04/28/21/142bfd1e-e81c-a846-87aa-d27f780fddb2/aad14695f88b4d68c4b9465a7be8ca53.jpg" width="506" height="284">
-
----
-
 [@miles 4/28/2022 10:10 PM UTC  - 3圖](/content/gettr/p17i2zn6d01.md)
 
 4月28日：刚出青峰看守所，与比我早离开看守所的8964狱友们还有老领导见面时的我。 
@@ -57,6 +53,18 @@ For English：gettr.com/streaming/p17ht7n08bd
 
 
 <img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 9:50 PM UTC ](/content/gettr/p17hwde94c3.md)
+
+ 4月28日：刚刚从清风看守所走出的我…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group25/getter/2022/04/28/21/142bfd1e-e81c-a846-87aa-d27f780fddb2/aad14695f88b4d68c4b9465a7be8ca53.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
 
 <img src="https://media.gettr.com/group5/getter/2022/04/28/17/55aeb114-ac68-8825-39f2-71a1e2628206/577be0f3a1b20fe5bf74b8702971ecd0.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p17gys49c0c.md)
-
- 4月28日：这几句话唱得太好了？
-
-<img src="https://media.gettr.com/group45/getter/2022/04/28/16/3ccf1514-7f7c-e84f-9865-947e8ddb1263/out.jpg" width="506" height="284">
 
 ---
 
