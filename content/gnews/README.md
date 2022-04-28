@@ -2,20 +2,26 @@
 ---
 
 
-#### [美发布宗教自由报告称中共继续实施“宗教中国化”政策](/content/gnews/2429376.md)
+#### [没有一个国家的钞票有锚定,银行破产可无理由拒绝还钱](/content/gnews/2429501.md)
+ `喜马拉雅日本银河系农场`
+
+#### [樱花时政┃卡拉奇大学孔子学院爆炸多人伤亡 巴分离组织警告还将对中共目标发起袭击](/content/gnews/2429497.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】北京开始封城 市民恐慌性抢购食品](/content/gnews/2429476.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花时政┃台国防部：汉光演习借鉴俄乌战争经验](/content/gnews/2429420.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃美力挺台湾恢复世卫组织观察员地位](/content/gnews/2429419.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [从2022全球华语大学生短诗大赛看国内民意](/content/gnews/2429418.md)
  `澳喜农场`
 
-#### [【说事儿】日本政府决定向乌克兰提供防护面具和无人机](/content/gnews/2429368.md)
- `TokyoSakuraDesignGroup`
-
-#### [中共病毒成为墙国唯一的病说明什么](/content/gnews/2429352.md)
- `澳喜农场`
-
-#### [【说事儿】马斯克的推特已经在面临中共的影响](/content/gnews/2429350.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】富士康昆山两工厂再次停工威胁苹果供应链](/content/gnews/2429332.md)
- `TokyoSakuraDesignGroup`
+#### [《历史的今天》2022.04.28](/content/gnews/2429404.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [取消、唤醒和性别焦虑文化；寻求庇护和保护](/content/gnews/2429325.md)
  `西班牙巴塞罗那喜悦农场`
@@ -86,14 +92,14 @@
 #### [中共在多城市实施隔离的目的是军事的准备和对疫苗灾难来前的极压测试](/content/gnews/2429007.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [今日盖特大V推荐 — 约翰·所罗门（John Solomon）](/content/gnews/2428964.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作](/content/gnews/2428855.md)
  `關注組`
 
 #### [俄乌战争｜加拿大议会全票通过 俄对乌克兰的战争行为是“种族灭绝”](/content/gnews/2428729.md)
  `關注組`
+
+#### [英国2022年的移民人数将创历史新高](/content/gnews/2428685.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [中共继续大言不惭为自己的防疫政策叫好](/content/gnews/2428673.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,9 +157,6 @@
 
 #### [樱花时政┃岸田文雄与泽连斯基举行电话会谈](/content/gnews/2423092.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [突发｜香港87岁老戏骨曾江倒毙检疫酒店 死因有待确认 料已接种疫苗](/content/gnews/2423081.md)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
