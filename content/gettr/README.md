@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 4/28/2022 9:18 PM UTC  - :tv:直播](/content/gettr/p17ifdc7a04.md)
+
+4/28/2022 Miles Guo: We don't have a say on whether or when Nancy Pelosi is going to Taiwan, but she's a skillful politician; our fellow fighters should stay calm and be patient
+
+
+
+4/28/2022 文贵直播：佩罗西去不去台湾咱说了不算啊，不过人家美国人会玩儿，战友们别着急啊
+
+...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/28/21/34f60020-ce54-da9a-2591-b09043e20c37/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p17htyr7be6.md)
+
+2022.04.28  新中国联邦 | 喜健康  病毒满视野，我们该吃啥（下）
+
+<img src="https://media.gettr.com/group18/origin/2022/04/28/20/5cf24e7d-6a19-6b53-1355-3b2d6c21243a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 8:07 PM UTC ](/content/gettr/p17i39w55cc.md)
 
  4月28日：这么简单，符合逻辑的答案．需要用生命和健康来来作为找到正确答案的验证条件吗？可悲呀……
@@ -42,11 +64,11 @@
 
 ---
 
-[@miles 4/28/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p17htyr7be6.md)
+[@miles 4/28/2022 9:24 PM UTC  - :tv:直播](/content/gettr/p17htibc9ae.md)
 
-2022.04.28  新中国联邦 | 喜健康  病毒满视野，我们该吃啥（下）
+4/28/2022 Miles Guo: The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day and it has significant meaning. Duowei News, as the Communist Party's largest oversea network for espionag...
 
-<img src="https://media.gettr.com/group18/origin/2022/04/28/20/5cf24e7d-6a19-6b53-1355-3b2d6c21243a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/04/28/21/f58752d2-5f22-f94c-dd85-ad8de9024772/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +203,6 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 Nicole：1986年获诺贝尔和平奖的大屠杀幸存者说过，在纳粹大屠杀期间，许多国家都保持沉默，在面对邪恶势力时，我们要亮出观点不能选择中立。
 
 埃舍尔：在圣经里记载，如...
-
----
-
-[@miles 4/28/2022 6:30 AM UTC  - :tv:直播](/content/gettr/p17ewloce4f.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group50/origin/2022/04/28/06/f3b935ed-c2d8-8e3b-921c-ecc96abd1aab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 6:06 AM UTC  - :tv:直播](/content/gettr/p17euwfa5e5.md)
-
-04/27/2022 A commemoration of the Holocaust of Jewish people during World War II was held in the big tent of the New Federal State of China and Rule of Law Foundation. At the end of the event, these volunteers from Israel and NFSC ...
-
-<img src="https://media.gettr.com/group16/origin/2022/04/28/06/19915030-d8e2-dbbf-e002-afe81cb479c7/out.jpg" width="506" height="284">
 
 ---
 
