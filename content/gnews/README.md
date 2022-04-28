@@ -2,6 +2,33 @@
 ---
 
 
+#### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶](/content/gnews/2428691.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共国，人去世了，无法看最后一眼！女儿是不是疫苗导致死亡！答应了却又反悔！当面一套背后一套就是ccp](/content/gnews/2428681.md)
+ `Tokyo Sakura Video Group`
+
+#### [中共继续大言不惭为自己的防疫政策叫好](/content/gnews/2428673.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [丹麦暂停新冠防疫限制](/content/gnews/2428633.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中共监狱国，一点没错](/content/gnews/2428629.md)
+ `Tokyo Sakura Video Group`
+
+#### [普京从没想到世界会一致如此迅速而坚定地支持乌克兰](/content/gnews/2428614.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [“世界政府”对主权国家的威胁将自第75届世界卫生大会开始](/content/gnews/2428571.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [美官员：俄军处决试图投降者 部分遗体显示遭酷刑](/content/gnews/2428548.md)
+ `蓝莲花农场`
+
+#### [喜悦辣评](/content/gnews/2428541.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [樱花深度报道┃共产主义中国已经抛弃了传统战争规则（下）](/content/gnews/2428505.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -17,20 +44,11 @@
 #### [利沃夫建起花墙，而象征俄乌友好的纪念雕像已被拆除](/content/gnews/2428439.md)
  `澳喜农场`
 
-#### [樱花时政┃普京警告 如果西方国家参与协助乌克兰 俄将进行 &#8220;闪电式 &#8220;报复](/content/gnews/2428438.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [2022年4月27日郭先生盖特 — 视频1「8分39秒」](/content/gnews/2428394.md)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 #### [欧盟宣布结束COVID-19紧急阶段](/content/gnews/2428393.md)
  `秘密翻譯組G-Translators`
-
-#### [澳洲已向流离失所的乌克兰人发放七千多份签证](/content/gnews/2428368.md)
- `澳喜农场`
-
-#### [西喜时事新闻简报 — 台海局势时事篇](/content/gnews/2428357.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [印度宣布中国公民持有的旅游签证无效](/content/gnews/2428349.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -50,23 +68,14 @@
 #### [有调查显示澳新银行房贷申请造假比例最高](/content/gnews/2428280.md)
  `澳喜农场`
 
-#### [视频&#124;关于梅迪卡前线受到攻击事件的回应](/content/gnews/2428272.md)
- `爆料视频`
-
 #### [中共将在2025年模拟撞击近地卫星](/content/gnews/2428271.md)
  `GTV News Talk`
-
-#### [上海封城救护车延误导致车祸伤者死亡](/content/gnews/2428258.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [亲共派马克龙赢得法国总统大选连任](/content/gnews/2428215.md)
  `GTV News Talk`
 
 #### [外国投资者正在抛弃中国，俄罗斯的战争是最新的导火索](/content/gnews/2428201.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [俄威胁要断供波兰天然气，因其拒绝以卢布进行支付](/content/gnews/2428196.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [世界银行警告俄乌战争将导致50年来最大的物价冲击](/content/gnews/2428159.md)
  `澳喜农场`
@@ -76,9 +85,6 @@
 
 #### [教皇再次呼吁停止攻击乌克兰](/content/gnews/2428122.md)
  `GTV News Talk`
-
-#### [卡拉奇大学发生爆炸，造成四人死亡，包括三名中共国教师](/content/gnews/2428118.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [封锁政策执行者“大白”已经引发居民的愤怒](/content/gnews/2428099.md)
  `澳喜农场`
@@ -113,9 +119,6 @@
 #### [中共攻台目标是台积电 毁掉美元](/content/gnews/2427848.md)
  `NFSC News`
 
-#### [中共用毒疫苗杀人有足够动机](/content/gnews/2427844.md)
- `NFSC News`
-
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。](/content/gnews/2427736.md)
  `美国政要直译推`
 
@@ -130,9 +133,6 @@
 
 #### [讲述中共国军事化的洗脑教育（上）](/content/gnews/2427413.md)
  `喜马拉雅纽约磐石农场`
-
-#### [北京实施大规模新冠病毒测试 居民忧封城抢购食品](/content/gnews/2427319.md)
- `日本东京方舟农场`
 
 #### [中共：“无论如何都将加强与俄罗斯的战略合作”](/content/gnews/2427227.md)
  `喜马拉雅农场新西兰站`
