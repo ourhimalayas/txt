@@ -2,11 +2,37 @@
 ---
 
 
+[@miles 4/28/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17ducxb2bb.md)
+
+2022.04.27  新中国联邦 | 喜财经    邪恶货币威胁美元, 投资喜币立刻行动
+
+<img src="https://media.gettr.com/group17/origin/2022/04/28/02/bcd4936c-8ae5-aebc-c39f-4174b5cdb647/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 1:01 AM UTC  - :tv:直播](/content/gettr/p17dosk3226.md)
 
 4/27/2022 Ukraine Rescue: Fellow fighter King and Margaret share the story of how the vests bearing the slogan of taking down the Chinese Communist Party helped foreign volunteers and a painter to distinguish the Chinese from the C...
 
 <img src="https://media.gettr.com/group18/getter/2022/04/28/01/ea424eba-b75c-734d-b981-c4764e47d74c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 2:08 AM UTC ](/content/gettr/p17dww7c939.md)
+
+04/27/2022 on the 9th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
+
+No.1🥇 on Taiwan🇹🇼, Germany🇩🇪 and Cambodia🇰🇭 Top Music Videos Chart
+
+No.1🥇 on Hong Kong🇭🇰, USA🇺🇸, Taiwan🇹🇼 and Germany🇩🇪 Pop...
+
+---
+
+[@miles 4/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17dzqnb3c5.md)
+
+2022.04.27 晚  新中国联邦 | 新闻访谈      多维假证案件的再讨论，郭先生5年钓鱼终于到了收网时刻
+
+<img src="https://media.gettr.com/group15/origin/2022/04/28/01/563804f9-008e-0d2e-d068-427f699bc409/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -57,14 +83,6 @@ Full clip here ...
 2022.04.27  PM NFSC news  U.K. removes tariffs on all goods from Ukraine, ban exports to Russia
 
 <img src="https://media.gettr.com/group44/origin/2022/04/27/22/e134a8fa-c80b-41cd-4079-2ae4dc2e70ed/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17dzqnb3c5.md)
-
-2022.04.27 晚  新中国联邦 | 新闻访谈      多维假证案件的再讨论，郭先生5年钓鱼终于到了收网时刻
-
-<img src="https://media.gettr.com/group15/origin/2022/04/28/01/563804f9-008e-0d2e-d068-427f699bc409/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,22 +191,6 @@ Fine Food from the New Federal State of China and Rule of Law Foundation intervi
 【Ukraine Rescue】04/25/22 Ben, the bunnyman from Kentucky, USA, expresses movingly: I came here twice to help these people, but also to support your efforts; without your tent, without your organization, this doesn't exist; and you ...
 
 <img src="https://media.gettr.com/group25/getter/2022/04/27/16/54ec780f-128f-f1a8-5fcd-c0d4533cf155/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 3:43 PM UTC  - :tv:直播](/content/gettr/p17b2fq2662.md)
-
-2022年4月27日 文贵大直播：疫苗之毒与青蒿素功效；中共经济崩塌深层原因；多维网站关闭PAG将亡
-
-<img src="https://media.gettr.com/group15/origin/2022/04/27/12/358cc594-98f9-e9fe-4b67-6f66f1adddc0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/27/2022 1:22 PM UTC  - :tv:直播](/content/gettr/p17anve6cfb.md)
-
-[Ukraine Rescue] Nicole interviewed an Israeli volunteer who was born in the former Soviet Union on the frontline of the Russian-Ukrainian rescue. As a person born in a former communist dictatorship country, she understands the sit...
-
-<img src="https://media.gettr.com/group21/origin/2022/04/27/13/32a13227-4849-4cf8-acda-d7426f35adbb/out.jpg" width="506" height="284">
 
 ---
 
