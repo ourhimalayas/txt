@@ -12,6 +12,28 @@ Fellow fighter Lubiken was interviewed by a French journalist. He introduced the
 
 ---
 
+[@7upgogo 4/28/2022 4:22 AM UTC ](/content/gettr/p17eg93ccad.md)
+
+美众院通过助台恢复"世卫观察员"法案！将送总统签署
+
+Bill to help Taiwan regain WHO status passes Congress, sent to Biden for signature
+
+
+
+WASHINGTON, April 27.  The U.S. House of Representatives unanimously passed legislation on Wednesday calling on the St...
+
+<img src="https://media.gettr.com/group47/origin/2022/04/28/04/661a1e45-70cb-bf10-a284-10cb5783ee4d/2fd1d71f8527ee0aa6f650f25182eed0.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 3:56 AM UTC  - :tv:直播](/content/gettr/p17e86m8949.md)
+
+4/27/2022 Ukraine Rescue: A famous British rescue organization delivered supplies to us and paid a special visit to the tent of the New Federal State of China, indicating that our rescue operation is becoming increasingly well-know...
+
+<img src="https://media.gettr.com/group5/getter/2022/04/28/03/d4fe8e6f-d22a-7d17-6bc9-f959cd3eed2b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17ehbge5da.md)
 
 4/27/2022 Holocaust Remembrance Day: Fellow fighter Hua said that mankind should always remember the Holocaust and learn from this tragedy. We put aside hatred and care for each other. When the world is blinded by evil, brave peopl...
@@ -33,14 +55,6 @@ Fellow fighter Lubiken was interviewed by a French journalist. He introduced the
 2022.04.27  新中国联邦 | 喜财经    邪恶货币威胁美元, 投资喜币立刻行动
 
 <img src="https://media.gettr.com/group17/origin/2022/04/28/02/bcd4936c-8ae5-aebc-c39f-4174b5cdb647/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 3:56 AM UTC  - :tv:直播](/content/gettr/p17e86m8949.md)
-
-4/27/2022 Ukraine Rescue: A famous British rescue organization delivered supplies to us and paid a special visit to the tent of the New Federal State of China, indicating that our rescue operation is becoming increasingly well-know...
-
-<img src="https://media.gettr.com/group5/getter/2022/04/28/03/d4fe8e6f-d22a-7d17-6bc9-f959cd3eed2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +191,6 @@ We ...
 When the days that the young Belgian is volunteering in the Medyka refugee camp,  he deeply felt that every volunteer put giving more help to Ukrainian refugees on the first plac...
 
 <img src="https://media.gettr.com/group46/origin/2022/04/25/00/5387e52c-06f5-5993-2958-be1184acb33c/out.jpg" width="506" height="284">
-
----
-
-[@dailybeats 4/22/2022 5:35 AM UTC  - :tv:直播](/content/gettr/p16kuyf4125.md)
-
-Fine Food from the New Federal State of China and Rule of Law Foundation interviewed a German physician, Dr. Wjahat Waraich at Medyka, the Polish Ukraine border.  Dr. Waraich set up a clinic to provide emergency medical support and...
-
-<img src="https://media.gettr.com/group27/getter/2022/04/22/05/5a6e1ed3-1aef-7229-e53c-0c50dd797d11/out.jpg" width="506" height="284">
 
 ---
 
