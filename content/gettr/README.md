@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 4/28/2022 5:30 PM UTC  - 3圖](/content/gettr/p17h5d69916.md)
+
+428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
+
+<img src="https://media.gettr.com/group5/getter/2022/04/28/17/55aeb114-ac68-8825-39f2-71a1e2628206/577be0f3a1b20fe5bf74b8702971ecd0.jpg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 4:42 PM UTC  - :tv:直播](/content/gettr/p17gys49c0c.md)
 
  4月28日：这几句话唱得太好了？
 
 <img src="https://media.gettr.com/group45/getter/2022/04/28/16/3ccf1514-7f7c-e84f-9865-947e8ddb1263/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 4:44 PM UTC  - :tv:直播](/content/gettr/p17havtd962.md)
+
+4月28号：扎扎实实地走向死亡的永不能回头的行动。【郭先生早就告诫世界，多数人都选择不信，现在要承担相信魔共的后果了，只是这果也是沉甸甸，压在人心上很痛。】
+
+<img src="https://media.gettr.com/group25/getter/2022/04/28/16/6e29b6ea-64ff-db7a-afdb-cb4f39aa31d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -122,14 +138,6 @@ Mr. Erez Eshel, founder and President of Ein Prat, Israel's largest organization
 
 ---
 
-[@miles 4/28/2022 4:44 PM UTC  - :tv:直播](/content/gettr/p17havtd962.md)
-
-4月28号：扎扎实实地走向死亡的永不能回头的行动。【郭先生早就告诫世界，多数人都选择不信，现在要承担相信魔共的后果了，只是这果也是沉甸甸，压在人心上很痛。】
-
-<img src="https://media.gettr.com/group25/getter/2022/04/28/16/6e29b6ea-64ff-db7a-afdb-cb4f39aa31d7/out.jpg" width="506" height="284">
-
----
-
 [@himalayaathena 4/28/2022 9:01 AM UTC ](/content/gettr/p17ey2sd2b3.md)
 
 在波兰时间4月27日晚8点，以色利培养未来领袖的组织领导学院的创始人和总裁埃雷兹·埃舍尔先生一行来到法治基金新中国联邦大帐篷，举行了一年一度犹太人大屠杀纪念日活动。
@@ -197,14 +205,6 @@ Bill to help Taiwan regain WHO status passes Congress, sent to Biden for signatu
 WASHINGTON, April 27.  The U.S. House of Representatives unanimously passed legislation on Wednesday calling on the St...
 
 <img src="https://media.gettr.com/group47/origin/2022/04/28/04/661a1e45-70cb-bf10-a284-10cb5783ee4d/2fd1d71f8527ee0aa6f650f25182eed0.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 3:56 AM UTC  - :tv:直播](/content/gettr/p17e86m8949.md)
-
-4/27/2022 Ukraine Rescue: A famous British rescue organization delivered supplies to us and paid a special visit to the tent of the New Federal State of China, indicating that our rescue operation is becoming increasingly well-know...
-
-<img src="https://media.gettr.com/group5/getter/2022/04/28/03/d4fe8e6f-d22a-7d17-6bc9-f959cd3eed2b/out.jpg" width="506" height="284">
 
 ---
 
