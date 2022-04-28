@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/28/2022 7:05 PM UTC  - :tv:直播](/content/gettr/p17foqf9fb0.md)
+
+2022-4-28《避风港》(41) 辉瑞疫苗水太深
+
+<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p17foq49035.md)
 
 2022.04.28 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 4/28/2022 7:05 PM UTC  - :tv:直播](/content/gettr/p17foqf9fb0.md)
+[@miles 4/28/2022 8:07 PM UTC ](/content/gettr/p17i39w55cc.md)
 
-2022-4-28《避风港》(41) 辉瑞疫苗水太深
+ 4月28日：这么简单，符合逻辑的答案．需要用生命和健康来来作为找到正确答案的验证条件吗？可悲呀……
 
-<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/04/28/20/ee450af6-c6cf-52d2-8460-f381a256ebec/ccd20898341b4e7e812d486664bf8b63.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Nicole：1986年获诺贝尔和平奖的大屠杀幸存者说过，在纳粹大�
 04/27/2022 A commemoration of the Holocaust of Jewish people during World War II was held in the big tent of the New Federal State of China and Rule of Law Foundation. At the end of the event, these volunteers from Israel and NFSC ...
 
 <img src="https://media.gettr.com/group16/origin/2022/04/28/06/19915030-d8e2-dbbf-e002-afe81cb479c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 5:08 AM UTC  - :tv:直播](/content/gettr/p17fcsj453a.md)
-
-4/27/2022 Ukraine Rescue: The fellow fighters at the front line are participating in the rescue operation, while learning how to communicate with the government officials of other countries. Fellow fighters, who are growing every d...
-
-<img src="https://media.gettr.com/group37/getter/2022/04/28/05/2a20a999-0a21-c8f3-2016-7d66ed2550da/out.jpg" width="506" height="284">
 
 ---
 
