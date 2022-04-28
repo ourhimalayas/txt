@@ -11,6 +11,24 @@
 
 ---
 
+#### [【樱话】北京开始封城 市民恐慌性抢购食品](/content/gnews/2429027.md)
+ `TokyoSakuraDesignGroup`
+
+#### [国际｜日首相岸田文雄 4月底出访英、义、越、泰、印尼五国](/content/gnews/2429021.md)
+ `關注組`
+
+#### [【樱话】岸田文雄与泽连斯基举行电话会谈](/content/gnews/2429008.md)
+ `TokyoSakuraDesignGroup`
+
+#### [中共在多城市实施隔离的目的是军事的准备和对疫苗灾难来前的极压测试](/content/gnews/2429007.md)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [日本政府新设置新冠病毒对策专家委员会](/content/gnews/2428984.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【樱话】日本政府决定向乌克兰提供防护面具和无人机](/content/gnews/2428983.md)
+ `TokyoSakuraDesignGroup`
+
 #### [今日盖特大V推荐 — 约翰·所罗门（John Solomon）](/content/gnews/2428964.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -23,20 +41,8 @@
 #### [上海隔离后房价不会跌](/content/gnews/2428926.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [今日盖特大V推荐 — 克里斯蒂·诺姆（Kristi Noem）](/content/gnews/2428922.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【樱话】俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气](/content/gnews/2428908.md)
- `TokyoSakuraDesignGroup`
-
-#### [美众院通过助台恢复&#8221;世卫观察员&#8221;法案！将送总统签署](/content/gnews/2428907.md)
- `加拿大温哥华英里农场`
-
 #### [入侵乌克兰受挫，普京威胁使用核武器](/content/gnews/2428884.md)
  `墨尔本雅典娜农场`
-
-#### [【樱话】华尔街–背后的庞大力量 决定了苏联的死亡和中共的存续](/content/gnews/2428856.md)
- `TokyoSakuraDesignGroup`
 
 #### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作](/content/gnews/2428855.md)
  `關注組`
@@ -61,6 +67,9 @@
 
 #### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶](/content/gnews/2428691.md)
  `Tokyo Sakura Video Group`
+
+#### [英国2022年的移民人数将创历史新高](/content/gnews/2428685.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [中共继续大言不惭为自己的防疫政策叫好](/content/gnews/2428673.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -101,9 +110,6 @@
 #### [樱花时政┃普京警告 如果西方国家参与协助乌克兰 俄将进行 &#8220;闪电式 &#8220;报复](/content/gnews/2428438.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [欧盟宣布结束COVID-19紧急阶段](/content/gnews/2428393.md)
- `秘密翻譯組G-Translators`
-
 #### [澳洲已向流离失所的乌克兰人发放七千多份签证](/content/gnews/2428368.md)
  `澳喜农场`
 
@@ -130,9 +136,6 @@
 
 #### [世界银行警告俄乌战争将导致50年来最大的物价冲击](/content/gnews/2428159.md)
  `澳喜农场`
-
-#### [教皇再次呼吁停止攻击乌克兰](/content/gnews/2428122.md)
- `GTV News Talk`
 
 #### [封锁政策执行者“大白”已经引发居民的愤怒](/content/gnews/2428099.md)
  `澳喜农场`
@@ -162,9 +165,6 @@
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [突发｜香港87岁老戏骨曾江倒毙检疫酒店 死因有待确认 料已接种疫苗](/content/gnews/2423081.md)
- `關注組`
-
-#### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”](/content/gnews/2422234.md)
  `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
