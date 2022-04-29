@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 6:13 AM UTC  - :tv:直播](/content/gettr/p17kps46278.md)
+
+Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
+
+<img src="https://media.gettr.com/group48/origin/2022/04/29/06/dd67e548-275a-b323-a10e-ae9aa8bf59ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p17k9hub023.md)
 
 【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
@@ -10,11 +18,15 @@
 
 ---
 
-[@miles 4/29/2022 6:13 AM UTC  - :tv:直播](/content/gettr/p17kps46278.md)
+[@miles 4/29/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17kelk20c5.md)
 
-Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
+Alhurra TV had a great interview with Nicole. The TV crew all wore the New Federal State of China's take down the CCP vest to show their support.
 
-<img src="https://media.gettr.com/group48/origin/2022/04/29/06/dd67e548-275a-b323-a10e-ae9aa8bf59ef/out.jpg" width="506" height="284">
+
+
+Alhurra is a United States-based public Arabic-language satellite TV channel that ...
+
+<img src="https://media.gettr.com/group40/origin/2022/04/29/06/a5e57ee6-a9b5-414f-480a-1f623d8eb1b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,18 +189,6 @@ For English：gettr.com/streaming/p17ht7n08bd
 
 
 <img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:58 PM UTC ](/content/gettr/p17i2zjcddd.md)
-
- 4月28日：在香港参加裕达董事会的我…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group40/getter/2022/04/28/21/98f45678-b65f-85c7-af6c-a14be6b84c17/1e9f8ba1ad01dd094527c214c73d5b2e.jpg" width="506" height="284">
 
 ---
 
