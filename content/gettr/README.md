@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p17ikam01e8.md)
+
+4/28/2022 Miles Guo: A fellow fighter who just fled Communist China spoke of how he could tell the intelligence of a person and whether he has a future or not simply through this person’s attitude to the Whistleblowers’ Movement; t...
+
+<img src="https://media.gettr.com/group33/getter/2022/04/29/01/5ed10a28-7c15-1c8a-fc42-0ce026076b2c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p17j5u97a9d.md)
 
 2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/29/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p17ikam01e8.md)
+[@miles 4/29/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p17itdtf7df.md)
 
-4/28/2022 Miles Guo: A fellow fighter who just fled Communist China spoke of how he could tell the intelligence of a person and whether he has a future or not simply through this person’s attitude to the Whistleblowers’ Movement; t...
+4/28/2022 Miles Guo: Shanghai is waiting for food and supplies, and the lockdown will be lifted in Shanghai. Some areas of Beijing are under lockdown, and the entire Beijing will go on lockdown soon. The suffering of the people in ...
 
-<img src="https://media.gettr.com/group33/getter/2022/04/29/01/5ed10a28-7c15-1c8a-fc42-0ce026076b2c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/04/29/01/77ab04ca-2bc0-5569-6950-2cdb2f0d9fe8/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,20 +209,6 @@ President Biden’s Plan To Compensate Ukraine Using Seized Russia Oligarch Asse
 On April 28，The White House send a proposal for a comprehensive legislative package that will enhance the United States Gover...
 
 <img src="https://media.gettr.com/group39/origin/2022/04/28/17/da95d386-d3ec-be5c-aa83-8fd496fd16fb/1a0e2bc6a3b9ad56c2d477574b858101.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:18 PM UTC  - :tv:直播](/content/gettr/p17ifdc7a04.md)
-
-4/28/2022 Miles Guo: We don't have a say on whether or when Nancy Pelosi is going to Taiwan, but she's a skillful politician; our fellow fighters should stay calm and be patient
-
-
-
-4/28/2022 文贵直播：佩罗西去不去台湾咱说了不算啊，不过人家美国人会玩儿，战友们别着急啊
-
-...
-
-<img src="https://media.gettr.com/group6/getter/2022/04/28/21/34f60020-ce54-da9a-2591-b09043e20c37/out.jpg" width="506" height="284">
 
 ---
 
