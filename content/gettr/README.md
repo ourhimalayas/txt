@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 4/28/2022 10:07 PM UTC ](/content/gettr/p17i5dl3db5.md)
+
+ 4月28日：与我最喜欢的不忠诚的懦弱的……自私的……最优秀的律师朱茂元兄弟在一起！ 
+
+
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/04/28/22/f8c5d1f8-bfe9-eb42-bf4f-00b59c9502d0/5459ec188aecb2c37b412a771bc1990d.jpg" width="506" height="284">
+
+---
+
+[@miles 4/28/2022 10:10 PM UTC  - 3圖](/content/gettr/p17i2zn6d01.md)
+
+4月28日：刚出青峰看守所，与比我早离开看守所的8964狱友们还有老领导见面时的我。 
+
+
+
+
+
+<img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p17kmxnad1b.md)
 
 4/28/2022 Miles Guo: When you come abroad, you should not keep the same way of thinking as you were in Communist China. Speculation will cost you a lot; the disasters of 2022 and 2023 will be even more tragic than what happened in ...
@@ -15,14 +39,6 @@
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group20/origin/2022/04/29/06/882ef8a7-f5ca-44e5-b01d-25bdeb5d07d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p17khb29364.md)
-
-4/29/2022 Miles Guo: Immigration figures from countries around China indicate that the capable men are now fleeing the CCP China. According to our fellow fighters, huge amounts of money are flowing out of HK and the mainland! No on...
-
-<img src="https://media.gettr.com/group36/getter/2022/04/29/06/344e9cd3-a934-d90d-6206-ddddbd0ebbb1/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +67,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
 
 <img src="https://media.gettr.com/group18/getter/2022/04/29/05/621998c1-8fd7-4d1e-3d26-bc955c835392/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 7:13 AM UTC  - :tv:直播](/content/gettr/p17kgu503d1.md)
-
-4/27/2022 Miles Guo: Liu He told his American buddy that among the 31 provincial level administrative divisions in Communist China, only three of them paid taxes to the central government in 2020, while the rest of the regions were...
-
-<img src="https://media.gettr.com/group9/getter/2022/04/29/07/307264b4-8f65-8933-834f-4c953aa02ec6/out.jpg" width="506" height="284">
 
 ---
 
