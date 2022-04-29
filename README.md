@@ -26,6 +26,9 @@
 #### [文·贵天成——文贵先生谈孟建柱（六十二）](/content/gnews/2435959.md)
  `墨尔本雅典娜农场`
 
+#### [有声｜加国防部长：加国正在训练乌军队使用榴弹炮](/content/gnews/2435954.md)
+ `秘密翻译组-即时新闻播报组`
+
 #### [【樱话】COVID-19疫苗并发症的爆发将很快使医疗系统崩溃](/content/gnews/2435953.md)
  `TokyoSakuraDesignGroup`
 
@@ -79,9 +82,6 @@
 
 #### [前美财政部官员：中共国的封锁应促美重新审视供应链](/content/gnews/2435701.md)
  `秘密翻譯組G-Translators`
-
-#### [樱花FM┃台湾可以从俄罗斯入侵乌克兰学到什么？（三）](/content/gnews/2435678.md)
- `樱花FM`
 
 #### [中日财经爆┃特斯拉召回部分Model 3进行系统升级](/content/gnews/2435636.md)
  `東京櫻花団-Tokyo Sakura Group`
