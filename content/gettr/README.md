@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 4/29/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p17l79de01e.md)
+
+ 4月29号：尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！
+
+<img src="https://media.gettr.com/group39/getter/2022/04/29/14/f74e6800-b051-840e-0ee9-57691e10b975/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17kv3l1754.md)
 
 2022.04.29  新中国联邦 | 军情室  今日军事热点最新战情动态，马里乌波尔最后的钢铁壁垒，中共坦克继承俄式坦克缺陷
@@ -161,16 +169,6 @@ NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
 - 形象大方、口齿清晰
 
 有意愿加入的战友请联系 正义的小新战友，或填写下面的报名表格：https://docs.google.com/forms/d/e/1FAIpQLSf_2y8HBNKmPMPLZiWu-tG1q0dfxcE1RhaFyHvvqMdK41n-rQ/viewfo...
-
----
-
-[@miles 4/28/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17ivi2adbc.md)
-
-2022.04.28《The Fringe》 Episode 179
-
-中文同传：https://gettr.com/streaming/p17iwvtf032
-
-<img src="https://media.gettr.com/group32/origin/2022/04/28/23/9dcc52ad-f3c1-e35d-31d4-72aaa0d64eb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
