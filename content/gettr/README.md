@@ -2,6 +2,18 @@
 ---
 
 
+[@miles 4/29/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17kelk20c5.md)
+
+Alhurra TV had a great interview with Nicole. The TV crew all wore the New Federal State of China's take down the CCP vest to show their support.
+
+
+
+Alhurra is a United States-based public Arabic-language satellite TV channel that ...
+
+<img src="https://media.gettr.com/group40/origin/2022/04/29/06/a5e57ee6-a9b5-414f-480a-1f623d8eb1b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 6:13 AM UTC  - :tv:直播](/content/gettr/p17kps46278.md)
 
 Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
@@ -18,15 +30,11 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 
 ---
 
-[@miles 4/29/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17kelk20c5.md)
+[@miles 4/29/2022 6:57 AM UTC  - :tv:直播](/content/gettr/p17khb29364.md)
 
-Alhurra TV had a great interview with Nicole. The TV crew all wore the New Federal State of China's take down the CCP vest to show their support.
+4/29/2022 Miles Guo: Immigration figures from countries around China indicate that the capable men are now fleeing the CCP China. According to our fellow fighters, huge amounts of money are flowing out of HK and the mainland! No on...
 
-
-
-Alhurra is a United States-based public Arabic-language satellite TV channel that ...
-
-<img src="https://media.gettr.com/group40/origin/2022/04/29/06/a5e57ee6-a9b5-414f-480a-1f623d8eb1b4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/04/29/06/344e9cd3-a934-d90d-6206-ddddbd0ebbb1/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,18 +151,6 @@ NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
 2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
 
 <img src="https://media.gettr.com/group48/origin/2022/04/28/22/79fce751-0b61-30f4-0464-3bed78f29f07/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 10:00 PM UTC  - 2圖](/content/gettr/p17i7j1d8dc.md)
-
- 4月28日：与曾庆红家族派来向我借款的代表……到现场视察拆迁工地了我…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group8/getter/2022/04/28/21/89c35a60-31c4-b612-69fd-79fdd8dcd813/1c1ab53e452a4dadb77cbac2518f2727.jpg" width="506" height="284">
 
 ---
 
