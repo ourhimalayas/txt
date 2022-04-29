@@ -2,6 +2,14 @@
 ---
 
 
+[@realcolidora 4/27/2022 8:16 AM UTC ](/content/gettr/p179qfq6335.md)
+
+它们没有土地时，地主是违法的，它们拥有土地时就合法了； 没有资本时，资本家是违法的，它们拥有资本时就合法了； 在野时，独裁、专制是违法的，他们执政时这些就合法了； 没枪时，人民有枪是合法的，它们有枪时人民有枪就违法了； 夺取政权时，民主、宪政、自由是合法的，它们坐江山时这些就违法了。
+
+<img src="https://media.gettr.com/group36/getter/2022/04/27/08/0ff6a8bb-b10f-1663-e2d2-efd732be293f/c12582f7b0fefa6d96c466bdc5e6d91c.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 9:14 PM UTC ](/content/gettr/p17ngp728a6.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -31,6 +39,24 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 55 - Date: A...
 
 <img src="https://media.gettr.com/group11/getter/2022/04/29/21/7cc8dafe-20b1-5dd9-8385-91be52b197ad/0e0efd8e1d4a9119d1c4b9ec8787d4d7.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p17nj6hc04d.md)
+
+“单伟建” 飞飞秀救援快报 2022-04-29
+
+For English：gettr.com/streaming/p17nnhi6f0
+
+<img src="https://media.gettr.com/group49/origin/2022/04/29/22/752552ab-ca14-32ad-8a36-04c0096f851b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 9:32 PM UTC  - :tv:直播](/content/gettr/p17mw4v750f.md)
+
+【Ukraine Rescue】04/27/2022 Israeli volunteers hold Holocaust Remembrance Day in the tent of the New Federal State of China. Mr. Erez Eshel says the Holocaust was pure evil, and defeating it took time. In this process, it is importa...
+
+<img src="https://media.gettr.com/group50/getter/2022/04/29/21/69ede2d4-3d77-8f4e-fb7a-d7ee0b23f60e/out.jpg" width="506" height="284">
 
 ---
 
@@ -79,14 +105,6 @@ Day 55 - Date: A...
 2022年4月29日 文贵大直播：认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来
 
 <img src="https://media.gettr.com/group48/origin/2022/04/29/12/629de1f6-9177-5545-aee8-c2c1dd258507/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 9:32 PM UTC  - :tv:直播](/content/gettr/p17mw4v750f.md)
-
-【Ukraine Rescue】04/27/2022 Israeli volunteers hold Holocaust Remembrance Day in the tent of the New Federal State of China. Mr. Erez Eshel says the Holocaust was pure evil, and defeating it took time. In this process, it is importa...
-
-<img src="https://media.gettr.com/group50/getter/2022/04/29/21/69ede2d4-3d77-8f4e-fb7a-d7ee0b23f60e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +185,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 2022-4-28《鸡血王喜币大作战》 第一百七十九集 嘉宾：无双柳薇薇、Tex
 
 <img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p17jk97ac2a.md)
-
-【Ukraine Rescue】04/26/2022   Indian volunteers say that China and India are two ancient countries with long histories. Peace, this word is already entered into our DNA. No political party can take away our hearts and minds. Politic...
-
-<img src="https://media.gettr.com/group40/getter/2022/04/29/02/e221bda0-0775-bc5e-de58-2ea9230ee02c/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p17j6mm6093.md)
-
-2022.04.28  新中国联邦 | 喜财经    救命支付系统 —— HPay喜支付
-
-<img src="https://media.gettr.com/group49/origin/2022/04/29/02/d7d46d26-2d0a-e1eb-5668-6df8dd99b814/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
