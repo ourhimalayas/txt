@@ -2,19 +2,19 @@
 ---
 
 
-[@chen88888899 4/29/2022 6:13 PM UTC ](/content/gettr/p17mtji5830.md)
+[@miles 4/29/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p17nsfha11b.md)
 
-这是最好的福利！
+4/29/2022 Miles Guo’s GETTR: Communist China is facing huge troubles both inside and overseas. Shortage of food supply, economic collapse and COVID vaccine disasters are all happening, yet the CCP dares to challenge the US and plan...
 
-<img src="https://media.gettr.com/group17/getter/2022/04/29/18/79d2bb10-a99d-9e5d-bccf-4eb4bac16c9d/a50590cf266ab28b5e0298ff60a84878.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/04/29/23/dbc3e1a7-5d05-2b01-39d5-e26507160463/out.jpg" width="506" height="284">
 
 ---
 
-[@realcolidora 4/27/2022 8:16 AM UTC ](/content/gettr/p179qfq6335.md)
+[@miles 4/29/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17noid87de.md)
 
-它们没有土地时，地主是违法的，它们拥有土地时就合法了； 没有资本时，资本家是违法的，它们拥有资本时就合法了； 在野时，独裁、专制是违法的，他们执政时这些就合法了； 没枪时，人民有枪是合法的，它们有枪时人民有枪就违法了； 夺取政权时，民主、宪政、自由是合法的，它们坐江山时这些就违法了。
+4/29/2022 Miles Guo’s GETTR: Liao Guoxun, the mayor of Tianjin, was executed; a bunch of people got arrested this morning, including those who worked at the Ministry of Railways, Customs Office, Wang Qishan’s buddies at PBOC, and H...
 
-<img src="https://media.gettr.com/group36/getter/2022/04/27/08/0ff6a8bb-b10f-1663-e2d2-efd732be293f/c12582f7b0fefa6d96c466bdc5e6d91c.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/04/29/23/2f62b7eb-8985-db74-15d7-f7ad14b63550/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 2022.04.29  PM NFSC news   The Yellow Vests of helps International Friends Understand NFSC Citizens
 
 <img src="https://media.gettr.com/group28/origin/2022/04/29/22/52e4d54c-b7b3-4bc4-93ab-1e4faf0d7295/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@realcolidora 4/27/2022 8:16 AM UTC ](/content/gettr/p179qfq6335.md)
+
+它们没有土地时，地主是违法的，它们拥有土地时就合法了； 没有资本时，资本家是违法的，它们拥有资本时就合法了； 在野时，独裁、专制是违法的，他们执政时这些就合法了； 没枪时，人民有枪是合法的，它们有枪时人民有枪就违法了； 夺取政权时，民主、宪政、自由是合法的，它们坐江山时这些就违法了。
+
+<img src="https://media.gettr.com/group36/getter/2022/04/27/08/0ff6a8bb-b10f-1663-e2d2-efd732be293f/c12582f7b0fefa6d96c466bdc5e6d91c.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Alhurra TV had a great interview with Nicole. Not only did their entire team wea
 Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
 
 <img src="https://media.gettr.com/group48/origin/2022/04/29/06/dd67e548-275a-b323-a10e-ae9aa8bf59ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 5:02 AM UTC  - :tv:直播](/content/gettr/p17k9hub023.md)
-
-【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
-
-<img src="https://media.gettr.com/group18/getter/2022/04/29/05/621998c1-8fd7-4d1e-3d26-bc955c835392/out.jpg" width="506" height="284">
 
 ---
 
