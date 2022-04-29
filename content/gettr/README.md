@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 4/28/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17ivi2adbc.md)
+
+2022.04.28《The Fringe》 Episode 179
+
+中文同传：https://gettr.com/streaming/p17iwvtf032
+
+<img src="https://media.gettr.com/group32/origin/2022/04/28/23/9dcc52ad-f3c1-e35d-31d4-72aaa0d64eb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/28/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17it3r21ce.md)
 
 2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
@@ -22,13 +32,21 @@
 
 ---
 
-[@miles 4/28/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17ivi2adbc.md)
+[@miles 4/29/2022 12:18 AM UTC ](/content/gettr/p17iu4i0468.md)
 
-2022.04.28《The Fringe》 Episode 179
+NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
 
-中文同传：https://gettr.com/streaming/p17iwvtf032
+ 面向全球农场招募【主播】 
 
-<img src="https://media.gettr.com/group32/origin/2022/04/28/23/9dcc52ad-f3c1-e35d-31d4-72aaa0d64eb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+如果您是新中国联邦、爆料革命的坚定支持者，并且：
+
+- 可以露脸
+
+- 会说【粤语】
+
+- 形象大方、口齿清晰
+
+有意愿加入的战友请联系 正义的小新战友，或填写下面的报名表格：https://docs.google.com/forms/d/e/1FAIpQLSf_2y8HBNKmPMPLZiWu-tG1q0dfxcE1RhaFyHvvqMdK41n-rQ/viewfo...
 
 ---
 
@@ -205,14 +223,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 2022.04.28 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
 <img src="https://media.gettr.com/group30/origin/2022/04/28/17/c0465c0b-35b9-f3ce-0377-50ef7de0ae23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/28/2022 5:30 PM UTC  - 3圖](/content/gettr/p17h5d69916.md)
-
-428：我的乖乖哟……太漂亮啦……https://www.instagram.com/p/Cc5lWUKsSVO/?igshid=NjY2NjE5MzQ=
-
-<img src="https://media.gettr.com/group5/getter/2022/04/28/17/55aeb114-ac68-8825-39f2-71a1e2628206/577be0f3a1b20fe5bf74b8702971ecd0.jpg" width="506" height="284">
 
 ---
 
