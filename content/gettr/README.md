@@ -2,14 +2,6 @@
 ---
 
 
-[@miles 4/29/2022 9:37 AM UTC  - :tv:直播](/content/gettr/p17k4l52810.md)
-
-Alhurra TV had a great interview with Nicole. Not only did their entire team wear the New Federal State of China vest to support the New China Federation. They also brought our New Federal State of China manifesto back to their cou...
-
-<img src="https://media.gettr.com/group3/origin/2022/04/29/09/1097b955-90b9-fd2a-3f75-2ee05e448ec1/out.jpg" width="506" height="284">
-
----
-
 [@nfscsupertaiwan 4/29/2022 9:56 AM UTC  - :tv:直播](/content/gettr/p17k1q91c27.md)
 
 2022.4.29
@@ -27,6 +19,22 @@ Alhurra 是一個位於美國的公共『阿拉伯語』衛星電視頻道，向
 繁中-英【台灣寶島農場】
 
 <img src="https://media.gettr.com/group16/origin/2022/04/29/09/466a05c7-326b-7f4c-5f22-6af6cd26056f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 9:37 AM UTC  - :tv:直播](/content/gettr/p17k4l52810.md)
+
+Alhurra TV had a great interview with Nicole. Not only did their entire team wear the New Federal State of China vest to support the New China Federation. They also brought our New Federal State of China manifesto back to their cou...
+
+<img src="https://media.gettr.com/group3/origin/2022/04/29/09/1097b955-90b9-fd2a-3f75-2ee05e448ec1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17kv3l1754.md)
+
+2022.04.29  新中国联邦 | 军情室  今日军事热点最新战情动态，马里乌波尔最后的钢铁壁垒，中共坦克继承俄式坦克缺陷
+
+<img src="https://media.gettr.com/group31/origin/2022/04/29/10/a8eebcb4-244c-c188-e7c9-8409cf7fb349/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
 中文同传：https://gettr.com/streaming/p17iwvtf032
 
 <img src="https://media.gettr.com/group32/origin/2022/04/28/23/9dcc52ad-f3c1-e35d-31d4-72aaa0d64eb2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17it3r21ce.md)
-
-2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
-
-<img src="https://media.gettr.com/group48/origin/2022/04/28/22/79fce751-0b61-30f4-0464-3bed78f29f07/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
