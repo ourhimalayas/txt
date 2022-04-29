@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p17kvfq5114.md)
+
+04.29.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+
+<img src="https://media.gettr.com/group25/origin/2022/04/29/15/53adbbdd-08bb-e923-029d-916362c15a1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 2:41 PM UTC  - :tv:直播](/content/gettr/p17ltak738a.md)
 
 【Ukraine Rescue】04/27/2022 A Polish man at NFSC’s Ukraine rescue tent: It took 30 years in Poland to get rid of the communist poison after the communist regime broke down.  Communists do not allow average people to live their norma...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 4/29/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p17kvfq5114.md)
+[@miles 4/29/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p17ktfx4e3f.md)
 
-04.29.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+2022年4月29日 俄乌战争战况播报
 
-<img src="https://media.gettr.com/group25/origin/2022/04/29/15/53adbbdd-08bb-e923-029d-916362c15a1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/04/29/17/4d2764eb-3777-d27f-84b6-6f0835317d66/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
 
 <img src="https://media.gettr.com/group32/origin/2022/04/29/01/9653c2ac-49cd-909a-6ea8-cd15087812cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/29/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p17j482d6ff.md)
-
-【Ukraine Rescue】04/26/2022 A Scottish volunteer sees nothing wrong with the anti-communist message on our billboard. He believes that Medyka should be a democratic and peaceful place, where every individual or organization has the ...
-
-<img src="https://media.gettr.com/group4/getter/2022/04/29/00/9b73b410-1196-e8c4-a60a-b83dc0bb8fcf/out.jpg" width="506" height="284">
 
 ---
 
