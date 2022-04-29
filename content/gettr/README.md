@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p17j6mm6093.md)
+
+2022.04.28  新中国联邦 | 喜财经    救命支付系统 —— HPay喜支付
+
+<img src="https://media.gettr.com/group49/origin/2022/04/29/02/d7d46d26-2d0a-e1eb-5668-6df8dd99b814/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p17itdtf7df.md)
 
 4/28/2022 Miles Guo: Shanghai is waiting for food and supplies, and the lockdown will be lifted in Shanghai. Some areas of Beijing are under lockdown, and the entire Beijing will go on lockdown soon. The suffering of the people in ...
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 4/29/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p17j6mm6093.md)
+[@miles 4/29/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p17jk97ac2a.md)
 
-2022.04.28  新中国联邦 | 喜财经    救命支付系统 —— HPay喜支付
+【Ukraine Rescue】04/26/2022   Indian volunteers say that China and India are two ancient countries with long histories. Peace, this word is already entered into our DNA. No political party can take away our hearts and minds. Politic...
 
-<img src="https://media.gettr.com/group49/origin/2022/04/29/02/d7d46d26-2d0a-e1eb-5668-6df8dd99b814/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/04/29/02/e221bda0-0775-bc5e-de58-2ea9230ee02c/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,20 +211,6 @@ No.1🥇 on USA🇺🇸, Germany🇩🇪 and Cambodia🇰🇭 Pop Music Videos C
 
 
 <img src="https://media.gettr.com/group40/getter/2022/04/28/21/98f45678-b65f-85c7-af6c-a14be6b84c17/1e9f8ba1ad01dd094527c214c73d5b2e.jpg" width="506" height="284">
-
----
-
-[@7upgogo 4/28/2022 5:30 PM UTC ](/content/gettr/p17hhf8d329.md)
-
-美国将加快没收俄罗斯寡头财产以补偿乌克兰
-
-President Biden’s Plan To Compensate Ukraine Using Seized Russia Oligarch Assets
-
-
-
-On April 28，The White House send a proposal for a comprehensive legislative package that will enhance the United States Gover...
-
-<img src="https://media.gettr.com/group39/origin/2022/04/28/17/da95d386-d3ec-be5c-aa83-8fd496fd16fb/1a0e2bc6a3b9ad56c2d477574b858101.jpg" width="506" height="284">
 
 ---
 
