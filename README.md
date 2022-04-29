@@ -11,17 +11,29 @@
 
 ---
 
+#### [【樱话】美国决定将冻结俄罗斯银行资产转交给受害国乌克兰](/content/gnews/2436020.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】欧盟委员估计高达80%的欧洲人感染过新冠病毒](/content/gnews/2436003.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】超过一半的美国人口感染过新冠感染](/content/gnews/2435970.md)
+ `TokyoSakuraDesignGroup`
+
+#### [上海居民发起敲盆抗议 大妈攻陷居委会](/content/gnews/2435969.md)
+ `日本东京方舟农场`
+
+#### [文·贵天成——文贵先生谈孟建柱（六十二）](/content/gnews/2435959.md)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】COVID-19疫苗并发症的爆发将很快使医疗系统崩溃](/content/gnews/2435953.md)
+ `TokyoSakuraDesignGroup`
+
 #### [【樱话】纳斯达克跌至2020年底以来最低收盘价](/content/gnews/2435940.md)
  `TokyoSakuraDesignGroup`
 
 #### [联合国秘书长访问乌克兰期间 基辅遭导弹袭击](/content/gnews/2435930.md)
  `日本东京方舟农场`
-
-#### [【樱话】丹麦暂停中共病毒疫苗接种](/content/gnews/2435907.md)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】盖特具有任何社交媒体无可比拟的优势](/content/gnews/2435890.md)
- `TokyoSakuraDesignGroup`
 
 #### [House of 多维 / 2](/content/gnews/2435889.md)
  `骄子`
@@ -29,17 +41,11 @@
 #### [辉瑞公司在儿童身上测试莱姆病疫苗 专家质疑其必要性](/content/gnews/2435887.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【樱话】德国新总理首次亚洲行到访日本](/content/gnews/2435868.md)
- `TokyoSakuraDesignGroup`
-
 #### [拜登预增加330亿美元用来援助乌克兰](/content/gnews/2435864.md)
  `日本东京方舟农场`
 
 #### [俄谎称华沙将在乌进行“维和行动”，欲激怒北约成员国参战](/content/gnews/2435859.md)
  `战云长天时评`
-
-#### [【樱话】德意志银行警告美经济处于 “重大衰退 ”的边缘](/content/gnews/2435858.md)
- `TokyoSakuraDesignGroup`
 
 #### [秘翻新闻｜封锁之下“杨改兰”再现上海滩](/content/gnews/2435857.md)
  `秘密翻译组-即时新闻播报组`
@@ -50,11 +56,11 @@
 #### [热点｜中共特务单伟建狠批上海封城致经济半瘫痪 透露已转移资产](/content/gnews/2435834.md)
  `關注組`
 
-#### [文·贵天成——文贵先生谈孟建柱（六十一）](/content/gnews/2435829.md)
- `墨尔本雅典娜农场`
-
 #### [文贵先生盖特精要- 2022/04/28](/content/gnews/2435827.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [文·贵天成——文贵先生谈孟建柱（六十三）](/content/gnews/2435816.md)
+ `墨尔本雅典娜农场`
 
 #### [樱花FM┃普京将在秋季测试能够打击美国的核导弹](/content/gnews/2435781.md)
  `樱花FM`
@@ -73,9 +79,6 @@
 
 #### [前美财政部官员：中共国的封锁应促美重新审视供应链](/content/gnews/2435701.md)
  `秘密翻譯組G-Translators`
-
-#### [文·贵天成——文贵先生谈孟建柱（六十）](/content/gnews/2435682.md)
- `墨尔本雅典娜农场`
 
 #### [樱花FM┃台湾可以从俄罗斯入侵乌克兰学到什么？（三）](/content/gnews/2435678.md)
  `樱花FM`
@@ -96,9 +99,6 @@
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿](/content/gnews/2435495.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃联合国改革：五常动用否决权需做出说明](/content/gnews/2435492.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”](/content/gnews/2435480.md)
@@ -161,11 +161,11 @@
 #### [中共又双叒入美知识产权黑名单](/content/gnews/2434223.md)
  `日本东京方舟农场`
 
+#### [【每日聚焦】俄乌战事4月29日简要](/content/gnews/2433993.md)
+ `蓝莲花农场`
+
 #### [大众汽车集团涉及中共侵犯人权的行为遭曝光](/content/gnews/2433987.md)
  `秘密翻譯組G-Translators`
-
-#### [中日财经爆&#124;欧盟批准向受到中共国报复的立陶宛公司提供援助](/content/gnews/2433954.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
