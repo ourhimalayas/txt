@@ -11,6 +11,9 @@
 
 ---
 
+#### [中共大搞基础设施投资背后的秘密](/content/gnews/2439370.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [英国派出军队参与欧洲防御部署](/content/gnews/2439331.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -25,6 +28,9 @@
 
 #### [莫德纳申请授权儿童用中共病毒疫苗](/content/gnews/2439266.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [五月花简报（29/04/2022）](/content/gnews/2439259.md)
+ `mayflowertranslate`
 
 #### [有声&#124;PAX诉讼成功从民事案件转为刑事案件](/content/gnews/2439255.md)
  `MOSREC`
@@ -58,12 +64,6 @@
 
 #### [特鲁多关于自由车队影响贸易的谬论](/content/gnews/2439112.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [自由车队组织者塔玛拉·利奇获自由奖](/content/gnews/2439099.md)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [美国拜登总统下个月20日至24日访问韩国和日本](/content/gnews/2439098.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [顶级专家：绝望的普京致使当前美俄核风险管理异常脆弱](/content/gnews/2439074.md)
  `蓝莲花农场`
