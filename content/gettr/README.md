@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p17ktfx4e3f.md)
+
+2022年4月29日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group38/origin/2022/04/29/17/4d2764eb-3777-d27f-84b6-6f0835317d66/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p17kvfq5114.md)
 
 04.29.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -34,11 +42,11 @@
 
 ---
 
-[@miles 4/29/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p17ktfx4e3f.md)
+[@miles 4/29/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p17n6dhddbd.md)
 
-2022年4月29日 俄乌战争战况播报
+2022.04.29  新中国联邦 | 喜健康   从孔子学院的失败看中国信仰的缺失
 
-<img src="https://media.gettr.com/group38/origin/2022/04/29/17/4d2764eb-3777-d27f-84b6-6f0835317d66/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/04/29/20/f5662eed-e502-57e5-2c47-93d50b0e1374/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 4/28/2022 Miles Guo: A fellow fighter who just fled Communist China spoke of how he could tell the intelligence of a person and whether he has a future or not simply through this person’s attitude to the Whistleblowers’ Movement; t...
 
 <img src="https://media.gettr.com/group33/getter/2022/04/29/01/5ed10a28-7c15-1c8a-fc42-0ce026076b2c/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p17j5u97a9d.md)
-
-2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
-
-<img src="https://media.gettr.com/group32/origin/2022/04/29/01/9653c2ac-49cd-909a-6ea8-cd15087812cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
