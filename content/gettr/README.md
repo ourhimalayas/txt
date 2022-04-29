@@ -2,11 +2,13 @@
 ---
 
 
-[@miles 4/29/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p17nsfha11b.md)
+[@miles 4/29/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17nscv80c9.md)
 
-4/29/2022 Miles Guo’s GETTR: Communist China is facing huge troubles both inside and overseas. Shortage of food supply, economic collapse and COVID vaccine disasters are all happening, yet the CCP dares to challenge the US and plan...
+2022.04.29 NFSC fringe episode 180
 
-<img src="https://media.gettr.com/group20/getter/2022/04/29/23/dbc3e1a7-5d05-2b01-39d5-e26507160463/out.jpg" width="506" height="284">
+中文同传：https://gettr.com/streaming/p17nsib05f7
+
+<img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,26 @@
 4/29/2022 Miles Guo's GETTR: Hong Kong's foreign debts and loans will implode! The financial system of the CCP can no longer sustain. The CCP's so-called incentive plan, Closed-Loop economy and mega-infrastructure plan will only ex...
 
 <img src="https://media.gettr.com/group48/getter/2022/04/29/23/64939fec-d8b3-c276-72b1-7aacfae490ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p17nsfha11b.md)
+
+4/29/2022 Miles Guo’s GETTR: Communist China is facing huge troubles both inside and overseas. Shortage of food supply, economic collapse and COVID vaccine disasters are all happening, yet the CCP dares to challenge the US and plan...
+
+<img src="https://media.gettr.com/group20/getter/2022/04/29/23/dbc3e1a7-5d05-2b01-39d5-e26507160463/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p17nkl49a6a.md)
+
+【乌克兰救援】04/27/2022  来自乌克兰的年轻志愿者认为将铲除中共的新中国联邦人和中共区分开来是一个伟大的信息，她支持我们明确我们的立场：反对支持普京和这场战争的中共。
+
+
+
+【Ukraine Rescue】04/27/2022 The young volunteer from Ukraine thinks it is a great message to distinguish the NFSC who is eliminating the CCP...
+
+<img src="https://media.gettr.com/group36/getter/2022/04/29/23/5c737881-751b-aec2-cdc1-47240fb0246b/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,27 +186,11 @@ Alhurra TV had a great interview with Nicole. Not only did their entire team wea
 
 ---
 
-[@miles 4/29/2022 7:04 AM UTC  - :tv:直播](/content/gettr/p17kmxnad1b.md)
-
-4/28/2022 Miles Guo: When you come abroad, you should not keep the same way of thinking as you were in Communist China. Speculation will cost you a lot; the disasters of 2022 and 2023 will be even more tragic than what happened in ...
-
-<img src="https://media.gettr.com/group37/getter/2022/04/29/07/6c7b214b-a10f-98b1-ad0c-036c4fb922b7/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/29/2022 7:06 AM UTC  - :tv:直播](/content/gettr/p17keo5a199.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group20/origin/2022/04/29/06/882ef8a7-f5ca-44e5-b01d-25bdeb5d07d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 6:13 AM UTC  - :tv:直播](/content/gettr/p17kps46278.md)
-
-Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
-
-<img src="https://media.gettr.com/group48/origin/2022/04/29/06/dd67e548-275a-b323-a10e-ae9aa8bf59ef/out.jpg" width="506" height="284">
 
 ---
 
