@@ -2,11 +2,37 @@
 ---
 
 
+[@chen88888899 4/29/2022 6:13 PM UTC ](/content/gettr/p17mtji5830.md)
+
+这是最好的福利！
+
+<img src="https://media.gettr.com/group17/getter/2022/04/29/18/79d2bb10-a99d-9e5d-bccf-4eb4bac16c9d/a50590cf266ab28b5e0298ff60a84878.jpg" width="506" height="284">
+
+---
+
 [@realcolidora 4/27/2022 8:16 AM UTC ](/content/gettr/p179qfq6335.md)
 
 它们没有土地时，地主是违法的，它们拥有土地时就合法了； 没有资本时，资本家是违法的，它们拥有资本时就合法了； 在野时，独裁、专制是违法的，他们执政时这些就合法了； 没枪时，人民有枪是合法的，它们有枪时人民有枪就违法了； 夺取政权时，民主、宪政、自由是合法的，它们坐江山时这些就违法了。
 
 <img src="https://media.gettr.com/group36/getter/2022/04/27/08/0ff6a8bb-b10f-1663-e2d2-efd732be293f/c12582f7b0fefa6d96c466bdc5e6d91c.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17myxga269.md)
+
+2022.04.29  PM NFSC news   The Yellow Vests of helps International Friends Understand NFSC Citizens
+
+<img src="https://media.gettr.com/group28/origin/2022/04/29/22/52e4d54c-b7b3-4bc4-93ab-1e4faf0d7295/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p17nj6hc04d.md)
+
+“单伟建” 飞飞秀救援快报 2022-04-29
+
+For English：gettr.com/streaming/p17nnhi6f0
+
+<img src="https://media.gettr.com/group49/origin/2022/04/29/22/752552ab-ca14-32ad-8a36-04c0096f851b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -39,16 +65,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 55 - Date: A...
 
 <img src="https://media.gettr.com/group11/getter/2022/04/29/21/7cc8dafe-20b1-5dd9-8385-91be52b197ad/0e0efd8e1d4a9119d1c4b9ec8787d4d7.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p17nj6hc04d.md)
-
-“单伟建” 飞飞秀救援快报 2022-04-29
-
-For English：gettr.com/streaming/p17nnhi6f0
-
-<img src="https://media.gettr.com/group49/origin/2022/04/29/22/752552ab-ca14-32ad-8a36-04c0096f851b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
 
 <img src="https://media.gettr.com/group39/getter/2022/04/29/05/5449ce2c-cf3e-bebb-50f3-75f2351e3e8e/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17kquqc6c9.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group40/origin/2022/04/29/04/a69020a7-b6ec-3280-d990-1047484a2cbe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17ja7b3e70.md)
-
-2022-4-28《鸡血王喜币大作战》 第一百七十九集 嘉宾：无双柳薇薇、Tex
-
-<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
