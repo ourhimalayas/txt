@@ -2,6 +2,46 @@
 ---
 
 
+[@miles 4/29/2022 9:14 PM UTC ](/content/gettr/p17ngp728a6.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年4月28日第55天当日救援统计：
+
+Medyka救援站接待：约250人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约15228人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 55 - Date: A...
+
+<img src="https://media.gettr.com/group11/getter/2022/04/29/21/7cc8dafe-20b1-5dd9-8385-91be52b197ad/0e0efd8e1d4a9119d1c4b9ec8787d4d7.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p17n6dhddbd.md)
+
+2022.04.29  新中国联邦 | 喜健康   从孔子学院的失败看中国信仰的缺失
+
+<img src="https://media.gettr.com/group16/origin/2022/04/29/20/f5662eed-e502-57e5-2c47-93d50b0e1374/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 5:34 PM UTC  - :tv:直播](/content/gettr/p17ktfx4e3f.md)
 
 2022年4月29日 俄乌战争战况播报
@@ -42,11 +82,11 @@
 
 ---
 
-[@miles 4/29/2022 8:44 PM UTC  - :tv:直播](/content/gettr/p17n6dhddbd.md)
+[@miles 4/29/2022 9:32 PM UTC  - :tv:直播](/content/gettr/p17mw4v750f.md)
 
-2022.04.29  新中国联邦 | 喜健康   从孔子学院的失败看中国信仰的缺失
+【Ukraine Rescue】04/27/2022 Israeli volunteers hold Holocaust Remembrance Day in the tent of the New Federal State of China. Mr. Erez Eshel says the Holocaust was pure evil, and defeating it took time. In this process, it is importa...
 
-<img src="https://media.gettr.com/group16/origin/2022/04/29/20/f5662eed-e502-57e5-2c47-93d50b0e1374/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/04/29/21/69ede2d4-3d77-8f4e-fb7a-d7ee0b23f60e/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,22 +183,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 2022.04.28  新中国联邦 | 喜财经    救命支付系统 —— HPay喜支付
 
 <img src="https://media.gettr.com/group49/origin/2022/04/29/02/d7d46d26-2d0a-e1eb-5668-6df8dd99b814/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/29/2022 1:30 AM UTC  - :tv:直播](/content/gettr/p17itdtf7df.md)
-
-4/28/2022 Miles Guo: Shanghai is waiting for food and supplies, and the lockdown will be lifted in Shanghai. Some areas of Beijing are under lockdown, and the entire Beijing will go on lockdown soon. The suffering of the people in ...
-
-<img src="https://media.gettr.com/group33/getter/2022/04/29/01/77ab04ca-2bc0-5569-6950-2cdb2f0d9fe8/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p17ikam01e8.md)
-
-4/28/2022 Miles Guo: A fellow fighter who just fled Communist China spoke of how he could tell the intelligence of a person and whether he has a future or not simply through this person’s attitude to the Whistleblowers’ Movement; t...
-
-<img src="https://media.gettr.com/group33/getter/2022/04/29/01/5ed10a28-7c15-1c8a-fc42-0ce026076b2c/out.jpg" width="506" height="284">
 
 ---
 
