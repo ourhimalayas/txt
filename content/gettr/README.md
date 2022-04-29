@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 4/29/2022 6:13 AM UTC  - :tv:直播](/content/gettr/p17kps46278.md)
+
+Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
+
+<img src="https://media.gettr.com/group48/origin/2022/04/29/06/dd67e548-275a-b323-a10e-ae9aa8bf59ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 5:14 AM UTC  - :tv:直播](/content/gettr/p17kifwca5b.md)
+
+【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
+
+<img src="https://media.gettr.com/group39/getter/2022/04/29/05/5449ce2c-cf3e-bebb-50f3-75f2351e3e8e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17kquqc6c9.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -71,14 +87,6 @@
 2022.04.28 晚  新中国联邦 | 新闻   PAX刑事案件揭露中共渗透美国司法界真相；区块链将成为国际会计制度的基础
 
 <img src="https://media.gettr.com/group50/origin/2022/04/29/00/4dc18089-fec4-176d-e5f1-a88a889614f0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 5:14 AM UTC  - :tv:直播](/content/gettr/p17kifwca5b.md)
-
-【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
-
-<img src="https://media.gettr.com/group39/getter/2022/04/29/05/5449ce2c-cf3e-bebb-50f3-75f2351e3e8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,20 +177,6 @@ For English：gettr.com/streaming/p17ht7n08bd
 
 
 <img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:58 PM UTC ](/content/gettr/p17hrff95c5.md)
-
-04/28/2022 on the 10th day of release of Miles Guo’s latest MV “Chained Dream” hits iTunes 
-
-No.1🥇 on Germany🇩🇪 and Cambodia🇰🇭 Top Music Videos Chart
-
-No.1🥇 on USA🇺🇸, Germany🇩🇪 and Cambodia🇰🇭 Pop Music Videos Chart
-
-
-
-“...
 
 ---
 
