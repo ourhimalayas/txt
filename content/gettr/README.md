@@ -2,11 +2,11 @@
 ---
 
 
-[@miles 4/28/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p17it3r21ce.md)
+[@miles 4/29/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p17liyeb409.md)
 
-2022.04.28  PM NFSC news   The CCP Actively Develops CCP Virus Vaccine Economy
+2022年4月29日 文贵大直播：认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来
 
-<img src="https://media.gettr.com/group48/origin/2022/04/28/22/79fce751-0b61-30f4-0464-3bed78f29f07/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/04/29/12/629de1f6-9177-5545-aee8-c2c1dd258507/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
