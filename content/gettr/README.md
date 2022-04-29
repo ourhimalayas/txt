@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p17j5u97a9d.md)
+
+2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
+
+<img src="https://media.gettr.com/group32/origin/2022/04/29/01/9653c2ac-49cd-909a-6ea8-cd15087812cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ixns7080.md)
 
 2022.04.28 晚  新中国联邦 | 新闻   PAX刑事案件揭露中共渗透美国司法界真相；区块链将成为国际会计制度的基础
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/29/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p17j5u97a9d.md)
+[@miles 4/29/2022 1:26 AM UTC  - :tv:直播](/content/gettr/p17ikam01e8.md)
 
-2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
+4/28/2022 Miles Guo: A fellow fighter who just fled Communist China spoke of how he could tell the intelligence of a person and whether he has a future or not simply through this person’s attitude to the Whistleblowers’ Movement; t...
 
-<img src="https://media.gettr.com/group32/origin/2022/04/29/01/9653c2ac-49cd-909a-6ea8-cd15087812cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/04/29/01/5ed10a28-7c15-1c8a-fc42-0ce026076b2c/out.jpg" width="506" height="284">
 
 ---
 
@@ -215,14 +223,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 4/28/2022 Miles Guo: The Russian-Ukrainian Rescue Front of the New Federal State of China held the Holocaust Remembrance Day and it has significant meaning. Duowei News, as the Communist Party's largest oversea network for espionag...
 
 <img src="https://media.gettr.com/group14/getter/2022/04/28/21/f58752d2-5f22-f94c-dd85-ad8de9024772/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 8:46 PM UTC  - :tv:直播](/content/gettr/p17htyr7be6.md)
-
-2022.04.28  新中国联邦 | 喜健康  病毒满视野，我们该吃啥（下）
-
-<img src="https://media.gettr.com/group18/origin/2022/04/28/20/5cf24e7d-6a19-6b53-1355-3b2d6c21243a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
