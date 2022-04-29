@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 2:41 PM UTC  - :tv:直播](/content/gettr/p17ltak738a.md)
+
+【Ukraine Rescue】04/27/2022 A Polish man at NFSC’s Ukraine rescue tent: It took 30 years in Poland to get rid of the communist poison after the communist regime broke down.  Communists do not allow average people to live their norma...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/29/14/b53a5cd9-74a6-6cfb-3964-b63347fc15e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p17l79de01e.md)
 
  4月29号：尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/29/2022 2:41 PM UTC  - :tv:直播](/content/gettr/p17ltak738a.md)
+[@miles 4/29/2022 3:08 PM UTC  - :tv:直播](/content/gettr/p17kvfq5114.md)
 
-【Ukraine Rescue】04/27/2022 A Polish man at NFSC’s Ukraine rescue tent: It took 30 years in Poland to get rid of the communist poison after the communist regime broke down.  Communists do not allow average people to live their norma...
+04.29.2022 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
-<img src="https://media.gettr.com/group6/getter/2022/04/29/14/b53a5cd9-74a6-6cfb-3964-b63347fc15e5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/04/29/15/53adbbdd-08bb-e923-029d-916362c15a1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
 
 <img src="https://media.gettr.com/group32/origin/2022/04/29/01/9653c2ac-49cd-909a-6ea8-cd15087812cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/29/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ixns7080.md)
-
-2022.04.28 晚  新中国联邦 | 新闻   PAX刑事案件揭露中共渗透美国司法界真相；区块链将成为国际会计制度的基础
-
-<img src="https://media.gettr.com/group50/origin/2022/04/29/00/4dc18089-fec4-176d-e5f1-a88a889614f0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
