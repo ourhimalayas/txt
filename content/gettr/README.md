@@ -2,6 +2,32 @@
 ---
 
 
+[@miles 4/29/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ixns7080.md)
+
+2022.04.28 晚  新中国联邦 | 新闻   PAX刑事案件揭露中共渗透美国司法界真相；区块链将成为国际会计制度的基础
+
+<img src="https://media.gettr.com/group50/origin/2022/04/29/00/4dc18089-fec4-176d-e5f1-a88a889614f0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 12:18 AM UTC ](/content/gettr/p17iu4i0468.md)
+
+NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
+
+ 面向全球农场招募【主播】 
+
+如果您是新中国联邦、爆料革命的坚定支持者，并且：
+
+- 可以露脸
+
+- 会说【粤语】
+
+- 形象大方、口齿清晰
+
+有意愿加入的战友请联系 正义的小新战友，或填写下面的报名表格：https://docs.google.com/forms/d/e/1FAIpQLSf_2y8HBNKmPMPLZiWu-tG1q0dfxcE1RhaFyHvvqMdK41n-rQ/viewfo...
+
+---
+
 [@miles 4/28/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17ivi2adbc.md)
 
 2022.04.28《The Fringe》 Episode 179
@@ -32,21 +58,11 @@
 
 ---
 
-[@miles 4/29/2022 12:18 AM UTC ](/content/gettr/p17iu4i0468.md)
+[@miles 4/29/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p17j482d6ff.md)
 
-NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
+【Ukraine Rescue】04/26/2022 A Scottish volunteer sees nothing wrong with the anti-communist message on our billboard. He believes that Medyka should be a democratic and peaceful place, where every individual or organization has the ...
 
- 面向全球农场招募【主播】 
-
-如果您是新中国联邦、爆料革命的坚定支持者，并且：
-
-- 可以露脸
-
-- 会说【粤语】
-
-- 形象大方、口齿清晰
-
-有意愿加入的战友请联系 正义的小新战友，或填写下面的报名表格：https://docs.google.com/forms/d/e/1FAIpQLSf_2y8HBNKmPMPLZiWu-tG1q0dfxcE1RhaFyHvvqMdK41n-rQ/viewfo...
+<img src="https://media.gettr.com/group4/getter/2022/04/29/00/9b73b410-1196-e8c4-a60a-b83dc0bb8fcf/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,22 +223,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
  4月28日：这么简单，符合逻辑的答案．需要用生命和健康来来作为找到正确答案的验证条件吗？可悲呀……
 
 <img src="https://media.gettr.com/group36/getter/2022/04/28/20/ee450af6-c6cf-52d2-8460-f381a256ebec/ccd20898341b4e7e812d486664bf8b63.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 7:05 PM UTC  - :tv:直播](/content/gettr/p17foqf9fb0.md)
-
-2022-4-28《避风港》(41) 辉瑞疫苗水太深
-
-<img src="https://media.gettr.com/group36/origin/2022/04/26/18/45703810-7615-febb-0232-e0696d6d91fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 5:47 PM UTC  - :tv:直播](/content/gettr/p17foq49035.md)
-
-2022.04.28 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group30/origin/2022/04/28/17/c0465c0b-35b9-f3ce-0377-50ef7de0ae23/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
