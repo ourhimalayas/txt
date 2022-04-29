@@ -11,20 +11,35 @@
 
 ---
 
+#### [中共国称俄罗斯关系是世界的“新模式”](/content/gnews/2438819.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [美军驱逐舰例行训练 再次穿越台湾海峡](/content/gnews/2438805.md)
+ `NFSC News`
+
+#### [&#8220;封城（措施）糟透了&#8221;](/content/gnews/2438776.md)
+ `加拿大温哥华扬帆农场视频组`
+
 #### [新中国联邦前线战友学习与各国政府官员沟通、交流](/content/gnews/2438768.md)
  `NFSC News`
 
 #### [灭共黄马甲助力国际友人了解新中国联邦人](/content/gnews/2438755.md)
  `NFSC News`
 
+#### [俄乌战局最新消息汇总（04.29）](/content/gnews/2438754.md)
+ `NFSC News`
+
+#### [联合国通过决议 限制五常“一票否决权”](/content/gnews/2438753.md)
+ `NFSC News`
+
+#### [美支持扣押俄官员及寡头非法资产](/content/gnews/2438752.md)
+ `NFSC News`
+
 #### [中共大搞内循环意图拯救国内经济 粮食食品供应断裂老百姓恐将无粮可食](/content/gnews/2438735.md)
  `焦點20分`
 
-#### [区块链将成为国际会计制度的基础](/content/gnews/2438724.md)
+#### [“除四害之麻雀清零”与中共病毒清零](/content/gnews/2438704.md)
  `NFSC News`
-
-#### [装置作品《202204致哀布查惨案》](/content/gnews/2438709.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [北约准备进行大规模军事演习](/content/gnews/2438676.md)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -35,23 +50,17 @@
 #### [20220429郭文贵大直播 ：Eglise医生说伊维菌素是青蒿素的最佳搭档](/content/gnews/2438655.md)
  `Tokyo Sakura Video Group`
 
-#### [我和我的爆料革命-北京封控后的悲与喜](/content/gnews/2438653.md)
+#### [在爆料革命中开智—4.19断播门我的见与闻](/content/gnews/2438654.md)
  `新西兰伊甸农场听写编辑组`
 
-#### [CCP以假治国大面积封城形势下竟然宣称农民收入增加](/content/gnews/2438652.md)
+#### [我和我的爆料革命-北京封控后的悲与喜](/content/gnews/2438653.md)
  `新西兰伊甸农场听写编辑组`
 
 #### [刘鹤透露20年只有3个省市上缴税金 中共国正面临大量移民和资金的流出](/content/gnews/2438645.md)
  `焦點20分`
 
-#### [活着灭共才是硬道理](/content/gnews/2438635.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [樱花FM┃日本派官员前往所罗门群岛 关切中共不断扩大的军事影响](/content/gnews/2438633.md)
  `樱花FM`
-
-#### [郭先生户外草坪直播要点（2022年4月29日）](/content/gnews/2438619.md)
- `波士顿五月花农场`
 
 #### [樱花FM┃中共疫情封控政策导致外资芯片大厂撤离](/content/gnews/2438608.md)
  `樱花FM`
@@ -71,29 +80,17 @@
 #### [拜登政府动用手段打击虚假信息传播](/content/gnews/2438498.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [樱花FM┃德国再借400亿欧元以缓解俄乌战争的影响](/content/gnews/2438492.md)
- `樱花FM`
-
 #### [拜登再为乌克兰提供额外330亿美元](/content/gnews/2438307.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [加拿大最新人口普查显示老龄化严重](/content/gnews/2438228.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [PAX刑事案件揭露中共渗透美国司法界真相](/content/gnews/2438210.md)
- `NFSC News`
-
 #### [美通胀指数上升6.6% 创40年来最高](/content/gnews/2438169.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
 #### [辉瑞等三家疫苗厂正在试验致死剂量的疫苗](/content/gnews/2438162.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月29日早](/content/gnews/2438148.md)
- `纽约香草山MOS01`
-
-#### [只有消灭中国共产党，中国人才能活下去](/content/gnews/2438099.md)
- `thedawn`
 
 #### [北京要封城？居民吓得连夜开车逃离](/content/gnews/2438029.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -106,6 +103,9 @@
 
 #### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠](/content/gnews/2437751.md)
  `秘密翻譯組G-Translators`
+
+#### [为最坏时刻到来做好准备](/content/gnews/2437716.md)
+ `NFSC News`
 
 #### [秘翻在线：中共偷换概念让人民相信饥饿可以长寿](/content/gnews/2437673.md)
  `秘密翻譯組G-Translators`
