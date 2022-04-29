@@ -38,18 +38,6 @@
 
 ---
 
-[@miles 4/29/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17kelk20c5.md)
-
-Alhurra TV had a great interview with Nicole. The TV crew all wore the New Federal State of China's take down the CCP vest to show their support.
-
-
-
-Alhurra is a United States-based public Arabic-language satellite TV channel that ...
-
-<img src="https://media.gettr.com/group40/origin/2022/04/29/06/a5e57ee6-a9b5-414f-480a-1f623d8eb1b4/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/29/2022 6:13 AM UTC  - :tv:直播](/content/gettr/p17kps46278.md)
 
 Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
