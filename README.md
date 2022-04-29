@@ -11,11 +11,20 @@
 
 ---
 
+#### [有声&#124;PAX诉讼成功从民事案件转为刑事案件](/content/gnews/2439255.md)
+ `MOSREC`
+
+#### [有声&#124;乌克兰用NFT记录历史 欲为数字货币领先国家](/content/gnews/2439233.md)
+ `MOSREC`
+
 #### [2022/04/28 英喜时事速递](/content/gnews/2439228.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [2022/04/29 文贵先生盖特精要](/content/gnews/2439207.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月28日早](/content/gnews/2439205.md)
+ `MOSREC`
 
 #### [论权力的诅咒与正道的结构](/content/gnews/2439189.md)
  `郭郊玉米地`
@@ -80,14 +89,8 @@
 #### [机遇与挑战并存 盖特是未来媒体界的诺亚方舟](/content/gnews/2438841.md)
  `NFSC News`
 
-#### [MV版《铁锁梦》上线第11天位列德国、柬埔寨iTunesMV榜首](/content/gnews/2438806.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [美军驱逐舰例行训练 再次穿越台湾海峡](/content/gnews/2438805.md)
  `NFSC News`
-
-#### [【秘翻时评】 美乌共享情报 CIA局长明确最大威胁是中共](/content/gnews/2438762.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [Peter McCullough博士 &#8211; 疫苗造成了大量的人死亡](/content/gnews/2438561.md)
  `加拿大温哥华扬帆农场视频组`
@@ -103,9 +106,6 @@
 
 #### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠](/content/gnews/2437751.md)
  `秘密翻譯組G-Translators`
-
-#### [为最坏时刻到来做好准备](/content/gnews/2437716.md)
- `NFSC News`
 
 #### [秘翻在线：中共偷换概念让人民相信饥饿可以长寿](/content/gnews/2437673.md)
  `秘密翻譯組G-Translators`
