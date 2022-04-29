@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p17l79de01e.md)
+
+ 4月29号：尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！
+
+<img src="https://media.gettr.com/group39/getter/2022/04/29/14/f74e6800-b051-840e-0ee9-57691e10b975/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p17liyeb409.md)
 
 2022年4月29日 文贵大直播：认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/29/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p17l79de01e.md)
+[@miles 4/29/2022 2:41 PM UTC  - :tv:直播](/content/gettr/p17ltak738a.md)
 
- 4月29号：尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！
+【Ukraine Rescue】04/27/2022 A Polish man at NFSC’s Ukraine rescue tent: It took 30 years in Poland to get rid of the communist poison after the communist regime broke down.  Communists do not allow average people to live their norma...
 
-<img src="https://media.gettr.com/group39/getter/2022/04/29/14/f74e6800-b051-840e-0ee9-57691e10b975/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/04/29/14/b53a5cd9-74a6-6cfb-3964-b63347fc15e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,24 +159,6 @@ Nicole is having a conversation with a college student from Jerusalem. The stude
 【Ukraine Rescue】04/26/2022 A Scottish volunteer sees nothing wrong with the anti-communist message on our billboard. He believes that Medyka should be a democratic and peaceful place, where every individual or organization has the ...
 
 <img src="https://media.gettr.com/group4/getter/2022/04/29/00/9b73b410-1196-e8c4-a60a-b83dc0bb8fcf/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 12:18 AM UTC ](/content/gettr/p17iu4i0468.md)
-
-NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
-
- 面向全球农场招募【主播】 
-
-如果您是新中国联邦、爆料革命的坚定支持者，并且：
-
-- 可以露脸
-
-- 会说【粤语】
-
-- 形象大方、口齿清晰
-
-有意愿加入的战友请联系 正义的小新战友，或填写下面的报名表格：https://docs.google.com/forms/d/e/1FAIpQLSf_2y8HBNKmPMPLZiWu-tG1q0dfxcE1RhaFyHvvqMdK41n-rQ/viewfo...
 
 ---
 
