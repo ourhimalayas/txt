@@ -11,26 +11,41 @@
 
 ---
 
+#### [拜登政府动用手段打击虚假信息传播](/content/gnews/2438498.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [樱花FM┃德国再借400亿欧元以缓解俄乌战争的影响](/content/gnews/2438492.md)
+ `樱花FM`
+
+#### [20220429郭文贵大直播 ：未来的躺平币是中共无法阻挡的](/content/gnews/2438481.md)
+ `Tokyo Sakura Video Group`
+
+#### [【说事儿】美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注](/content/gnews/2438477.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】“越南制造”出口远超深圳](/content/gnews/2438448.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃马克龙再次当选法国总统 勒庞认输](/content/gnews/2438444.md)
+ `樱花FM`
+
+#### [【说事儿】绿色围栏封楼让居民困惑不已，上海抗疫苗灾难频现](/content/gnews/2438418.md)
+ `TokyoSakuraDesignGroup`
+
+#### [20220429郭文贵大直播 ：郭先生4月29日盖特视频 国内要搞内循环经济 金融系统已经支撑不下去 港交所出重大丑闻](/content/gnews/2438416.md)
+ `Tokyo Sakura Video Group`
+
+#### [樱花FM┃“复仇旅游”需求爆发！韩国北欧旅游销售额达629万韩元](/content/gnews/2438405.md)
+ `樱花FM`
+
 #### [【说事儿】多维伙同PAX做假证露馅被习近平下令关闭，28日的开庭具备重大标志意义](/content/gnews/2438382.md)
  `TokyoSakuraDesignGroup`
 
 #### [20220429郭文贵大直播 ：郭先生4月29日盖特 中国预计雨季会有大范围水灾 粮食危机迫近](/content/gnews/2438342.md)
  `Tokyo Sakura Video Group`
 
-#### [【说事儿】中共纸包不住火为推出中共病毒解药青蒿素做铺垫](/content/gnews/2438311.md)
- `TokyoSakuraDesignGroup`
-
-#### [樱花FM┃法国总统选举：现任总统马克龙当选连任](/content/gnews/2438300.md)
- `樱花FM`
-
-#### [【说事儿】河北极端防疫 强制居民交出家中钥匙](/content/gnews/2438291.md)
- `TokyoSakuraDesignGroup`
-
-#### [多维网法庭证据造假 在美应诉前被习紧急关闭](/content/gnews/2438276.md)
- `秘密翻译组-原创组`
-
-#### [【说事儿】普京总统脸部变形源于停打瑞士针剂，身心俱毁却很有可能孤注一掷](/content/gnews/2438266.md)
- `TokyoSakuraDesignGroup`
+#### [拜登再为乌克兰提供额外330亿美元](/content/gnews/2438307.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [20220429郭文贵大直播 ：分布式记账的数字货币必将取代法币（PPT）](/content/gnews/2438235.md)
  `Tokyo Sakura Video Group`
@@ -41,13 +56,7 @@
 #### [20220429郭文贵大直播 ：政清：为什么区块链技术是新时代人类必须掌握的金融科技（2）](/content/gnews/2438217.md)
  `Tokyo Sakura Video Group`
 
-#### [樱花FM┃刺突蛋白破坏基因的真相](/content/gnews/2438201.md)
- `樱花FM`
-
 #### [20220429郭文贵大直播 ： 区块链数字货币会让你的价值和使用价值的权利得到保护](/content/gnews/2438196.md)
- `Tokyo Sakura Video Group`
-
-#### [20220429郭文贵大直播 ：政清：为什么区块链技术是新时代人类必须掌握的金融科技（1）](/content/gnews/2438171.md)
  `Tokyo Sakura Video Group`
 
 #### [美通胀指数上升6.6% 创40年来最高](/content/gnews/2438169.md)
@@ -62,9 +71,6 @@
 #### [只有消灭中国共产党，中国人才能活下去](/content/gnews/2438099.md)
  `thedawn`
 
-#### [20220429郭文贵大直播 ：新中国联邦是政治、商业及科技的结合](/content/gnews/2438070.md)
- `Tokyo Sakura Video Group`
-
 #### [中共暂停与朝鲜的货运列车业务](/content/gnews/2438051.md)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -77,11 +83,11 @@
 #### [4/29/2022国际财经快讯：苹果公司在年初强劲后看到更大的供应问题；亚马逊的业绩和前景不及预期](/content/gnews/2437997.md)
  `秘密翻译组金融团队`
 
+#### [习太阳如何称霸世界？基于莫德尔斯基“霸权周期论”的分析](/content/gnews/2437988.md)
+ `纽约香草山MOS03`
+
 #### [【商见你我他】第52期新闻简讯（一）](/content/gnews/2437932.md)
  `MayflowerBiz`
-
-#### [黄金周期间日元兑美元将冲刺150 ？](/content/gnews/2437900.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [疫情封控中的上海人：上海封控人民实现“亲邻”](/content/gnews/2437883.md)
  `纽约香草山MOS02`
@@ -89,14 +95,8 @@
 #### [美国及世界疫情简报（04-29-2022）](/content/gnews/2437812.md)
  `波士顿五月花农场`
 
-#### [高盛为比特币提供抵押贷款](/content/gnews/2437806.md)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠](/content/gnews/2437751.md)
  `秘密翻譯組G-Translators`
-
-#### [有声&#124;挪威基督徒祝愿推翻中共后的新中国能有信仰自由](/content/gnews/2437708.md)
- `MOSREC`
 
 #### [秘翻在线：中共偷换概念让人民相信饥饿可以长寿](/content/gnews/2437673.md)
  `秘密翻譯組G-Translators`
