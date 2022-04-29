@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 4/29/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17nbvu76fc.md)
+
+4/29/2022 Miles Guo's GETTR: Hong Kong's foreign debts and loans will implode! The financial system of the CCP can no longer sustain. The CCP's so-called incentive plan, Closed-Loop economy and mega-infrastructure plan will only ex...
+
+<img src="https://media.gettr.com/group48/getter/2022/04/29/23/64939fec-d8b3-c276-72b1-7aacfae490ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17noid87de.md)
 
 4/29/2022 Miles Guo’s GETTR: Liao Guoxun, the mayor of Tianjin, was executed; a bunch of people got arrested this morning, including those who worked at the Ministry of Railways, Customs Office, Wang Qishan’s buddies at PBOC, and H...
@@ -177,14 +185,6 @@ Alhurra TV had a great interview with Nicole. Not only did their entire team wea
 Nicole is having a conversation with a college student from Jerusalem. The student says that evil will never win over good and communism will fail someday, just like what happened to her grandparents in the Soviet Union. Nicole say...
 
 <img src="https://media.gettr.com/group48/origin/2022/04/29/06/dd67e548-275a-b323-a10e-ae9aa8bf59ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 5:14 AM UTC  - :tv:直播](/content/gettr/p17kifwca5b.md)
-
-【Ukraine Rescue】04/26/2022 Domingos, a volunteer from Mozambique, while praising the relief work of the NFSC, states: What you are expressing is a statement, an opinion and a belief, not in any way a political propaganda. Because o...
-
-<img src="https://media.gettr.com/group39/getter/2022/04/29/05/5449ce2c-cf3e-bebb-50f3-75f2351e3e8e/out.jpg" width="506" height="284">
 
 ---
 
