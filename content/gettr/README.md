@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p17jk97ac2a.md)
+
+【Ukraine Rescue】04/26/2022   Indian volunteers say that China and India are two ancient countries with long histories. Peace, this word is already entered into our DNA. No political party can take away our hearts and minds. Politic...
+
+<img src="https://media.gettr.com/group40/getter/2022/04/29/02/e221bda0-0775-bc5e-de58-2ea9230ee02c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 2:05 AM UTC  - :tv:直播](/content/gettr/p17j6mm6093.md)
 
 2022.04.28  新中国联邦 | 喜财经    救命支付系统 —— HPay喜支付
@@ -42,11 +50,11 @@
 
 ---
 
-[@miles 4/29/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p17jk97ac2a.md)
+[@miles 4/29/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17ja7b3e70.md)
 
-【Ukraine Rescue】04/26/2022   Indian volunteers say that China and India are two ancient countries with long histories. Peace, this word is already entered into our DNA. No political party can take away our hearts and minds. Politic...
+2022-4-28《鸡血王喜币大作战》 第一百七十九集 嘉宾：无双柳薇薇、Tex
 
-<img src="https://media.gettr.com/group40/getter/2022/04/29/02/e221bda0-0775-bc5e-de58-2ea9230ee02c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -137,18 +145,6 @@ For English：gettr.com/streaming/p17ht7n08bd
 
 
 <img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:50 PM UTC ](/content/gettr/p17hwde94c3.md)
-
- 4月28日：刚刚从清风看守所走出的我…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group25/getter/2022/04/28/21/142bfd1e-e81c-a846-87aa-d27f780fddb2/aad14695f88b4d68c4b9465a7be8ca53.jpg" width="506" height="284">
 
 ---
 
