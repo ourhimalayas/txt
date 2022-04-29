@@ -2,53 +2,62 @@
 ---
 
 
+#### [4/29/2022 银河快讯：美日首脑会谈将与5月23日举行；日本央行维持大规模货币宽松措施](/content/gnews/2438675.md)
+ `日本银河系农场-阿尔法星球`
+
+#### [20220429郭文贵大直播 ：Eglise医生说伊维菌素是青蒿素的最佳搭档](/content/gnews/2438655.md)
+ `Tokyo Sakura Video Group`
+
+#### [刘鹤透露20年只有3个省市上缴税金 中共国正面临大量移民和资金的流出](/content/gnews/2438645.md)
+ `焦點20分`
+
+#### [活着灭共才是硬道理](/content/gnews/2438635.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [樱花FM┃日本派官员前往所罗门群岛 关切中共不断扩大的军事影响](/content/gnews/2438633.md)
+ `樱花FM`
+
+#### [郭先生户外草坪直播要点（2022年4月29日）](/content/gnews/2438619.md)
+ `波士顿五月花农场`
+
+#### [七哥说—第67期](/content/gnews/2438618.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [樱花FM┃中共疫情封控政策导致外资芯片大厂撤离](/content/gnews/2438608.md)
+ `樱花FM`
+
+#### [樱花FM┃上海封城已成为“人性照妖镜”，凸显中共统治下人性堕落](/content/gnews/2438584.md)
+ `樱花FM`
+
+#### [Peter McCullough博士 &#8211; 疫苗造成了大量的人死亡](/content/gnews/2438561.md)
+ `加拿大温哥华扬帆农场视频组`
+
+#### [樱花FM┃美国警告所罗门领导人 不要让中共建立军事基地](/content/gnews/2438560.md)
+ `樱花FM`
+
+#### [中共国和朝鲜间货物列车因新冠扩散再次停运](/content/gnews/2438557.md)
+ `温哥华圆成农场🇨🇦`
+
 #### [拜登政府动用手段打击虚假信息传播](/content/gnews/2438498.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [樱花FM┃德国再借400亿欧元以缓解俄乌战争的影响](/content/gnews/2438492.md)
  `樱花FM`
 
-#### [20220429郭文贵大直播 ：未来的躺平币是中共无法阻挡的](/content/gnews/2438481.md)
- `Tokyo Sakura Video Group`
-
-#### [【说事儿】美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注](/content/gnews/2438477.md)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】“越南制造”出口远超深圳](/content/gnews/2438448.md)
- `TokyoSakuraDesignGroup`
-
-#### [樱花FM┃马克龙再次当选法国总统 勒庞认输](/content/gnews/2438444.md)
- `樱花FM`
-
-#### [【说事儿】绿色围栏封楼让居民困惑不已，上海抗疫苗灾难频现](/content/gnews/2438418.md)
- `TokyoSakuraDesignGroup`
-
-#### [20220429郭文贵大直播 ：郭先生4月29日盖特视频 国内要搞内循环经济 金融系统已经支撑不下去 港交所出重大丑闻](/content/gnews/2438416.md)
- `Tokyo Sakura Video Group`
-
-#### [樱花FM┃“复仇旅游”需求爆发！韩国北欧旅游销售额达629万韩元](/content/gnews/2438405.md)
- `樱花FM`
-
-#### [【说事儿】多维伙同PAX做假证露馅被习近平下令关闭，28日的开庭具备重大标志意义](/content/gnews/2438382.md)
- `TokyoSakuraDesignGroup`
-
-#### [20220429郭文贵大直播 ：郭先生4月29日盖特 中国预计雨季会有大范围水灾 粮食危机迫近](/content/gnews/2438342.md)
- `Tokyo Sakura Video Group`
+#### [04/29/22 香港快讯 入狱美籍律师指狱中被剥夺人权 惩教署：不评论、若不满可作申诉](/content/gnews/2438436.md)
+ `英喜-粵語組`
 
 #### [拜登再为乌克兰提供额外330亿美元](/content/gnews/2438307.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [20220429郭文贵大直播 ：分布式记账的数字货币必将取代法币（PPT）](/content/gnews/2438235.md)
- `Tokyo Sakura Video Group`
+#### [自杀不是人生的选择](/content/gnews/2438284.md)
+ `焦點20分`
 
 #### [加拿大最新人口普查显示老龄化严重](/content/gnews/2438228.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [20220429郭文贵大直播 ：政清：为什么区块链技术是新时代人类必须掌握的金融科技（2）](/content/gnews/2438217.md)
- `Tokyo Sakura Video Group`
-
-#### [20220429郭文贵大直播 ： 区块链数字货币会让你的价值和使用价值的权利得到保护](/content/gnews/2438196.md)
- `Tokyo Sakura Video Group`
+#### [PAX刑事案件揭露中共渗透美国司法界真相](/content/gnews/2438210.md)
+ `NFSC News`
 
 #### [美通胀指数上升6.6% 创40年来最高](/content/gnews/2438169.md)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -68,23 +77,14 @@
 #### [北京要封城？居民吓得连夜开车逃离](/content/gnews/2438029.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【商见你我他】第52期新闻简讯（二）](/content/gnews/2438022.md)
- `MayflowerBiz`
-
 #### [4/29/2022国际财经快讯：苹果公司在年初强劲后看到更大的供应问题；亚马逊的业绩和前景不及预期](/content/gnews/2437997.md)
  `秘密翻译组金融团队`
 
 #### [习太阳如何称霸世界？基于莫德尔斯基“霸权周期论”的分析](/content/gnews/2437988.md)
  `纽约香草山MOS03`
 
-#### [【商见你我他】第52期新闻简讯（一）](/content/gnews/2437932.md)
- `MayflowerBiz`
-
 #### [疫情封控中的上海人：上海封控人民实现“亲邻”](/content/gnews/2437883.md)
  `纽约香草山MOS02`
-
-#### [美国及世界疫情简报（04-29-2022）](/content/gnews/2437812.md)
- `波士顿五月花农场`
 
 #### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠](/content/gnews/2437751.md)
  `秘密翻譯組G-Translators`
@@ -128,9 +128,6 @@
 #### [秘翻在线：俄罗斯向联合国秘书长访问的基辅发射导弹](/content/gnews/2436476.md)
  `秘密翻譯組G-Translators`
 
-#### [秘翻在线：乌克兰起诉10名布查屠杀事件中的俄军](/content/gnews/2436451.md)
- `秘密翻譯組G-Translators`
-
 #### [二十一世纪的农民起义](/content/gnews/2436424.md)
  `纽约香草山MOS02`
 
@@ -151,6 +148,9 @@
 
 #### [疫情｜欧美不明儿童肝炎蔓延至亚洲 至少一人丧命](/content/gnews/2435027.md)
  `關注組`
+
+#### [2022年04月29日文贵大直播速记](/content/gnews/2434988.md)
+ `Mr. Miles Guo's News Briefing`
 
 #### [樱花时政┃美国将与乌克兰扩大情报共享范围](/content/gnews/2434636.md)
  `東京櫻花団-Tokyo Sakura Group`
