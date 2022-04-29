@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/29/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17ja7b3e70.md)
+
+2022-4-28《鸡血王喜币大作战》 第一百七十九集 嘉宾：无双柳薇薇、Tex
+
+<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 2:18 AM UTC  - :tv:直播](/content/gettr/p17jk97ac2a.md)
 
 【Ukraine Rescue】04/26/2022   Indian volunteers say that China and India are two ancient countries with long histories. Peace, this word is already entered into our DNA. No political party can take away our hearts and minds. Politic...
@@ -50,11 +58,11 @@
 
 ---
 
-[@miles 4/29/2022 3:04 AM UTC  - :tv:直播](/content/gettr/p17ja7b3e70.md)
+[@miles 4/29/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17kquqc6c9.md)
 
-2022-4-28《鸡血王喜币大作战》 第一百七十九集 嘉宾：无双柳薇薇、Tex
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group5/origin/2022/04/29/03/0ed4fa4d-89db-9dfc-a211-2d68f3700797/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/04/29/04/a69020a7-b6ec-3280-d990-1047484a2cbe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,18 +153,6 @@ For English：gettr.com/streaming/p17ht7n08bd
 
 
 <img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 9:51 PM UTC ](/content/gettr/p17hua3cb70.md)
-
- 4月28号：已建好郑州裕达别墅，以房地产开发商身份重新第二次生命的我…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group33/getter/2022/04/28/21/e688a9d2-221d-5ec7-5e8a-7f1c6e3b2e19/65280d9482e169ef3f57ea1353a82034.jpg" width="506" height="284">
 
 ---
 
