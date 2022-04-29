@@ -10,23 +10,31 @@ Alhurra TV had a great interview with Nicole. Not only did their entire team wea
 
 ---
 
+[@nfscsupertaiwan 4/29/2022 9:56 AM UTC  - :tv:直播](/content/gettr/p17k1q91c27.md)
+
+2022.4.29
+
+Alhurra｜對新中國聯邦採訪報導🎙️
+
+Alhurra TV 對 Nicole 進行了精彩的採訪。 
+
+Alhurra 是一個位於美國的公共『阿拉伯語』衛星電視頻道，向中東和北非的觀眾，播放新聞和時事節目。
+
+這個是美國政府阿拉伯語頻道，他們來自埃及，採訪過程中Nicole 戰友向Alhurra 記者介紹義工們穿的馬甲標語，並贈送了Alhurra 記者『新中國聯邦宣言』❗
+
+
+
+繁中-英【台灣寶島農場】
+
+<img src="https://media.gettr.com/group16/origin/2022/04/29/09/466a05c7-326b-7f4c-5f22-6af6cd26056f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p17ka211881.md)
 
 4/28/2022 Miles Guo: Immigration figures from countries around China indicate that the capable men are now fleeing the CCP China. According to our fellow fighters, huge amounts of money are flowing out of HK and the mainland! No on...
 
 <img src="https://media.gettr.com/group32/getter/2022/04/29/08/7d1b56c6-4e11-8a64-a387-d635d36dc364/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 10:10 PM UTC  - 3圖](/content/gettr/p17i2zn6d01.md)
-
-4月28日：刚出青峰看守所，与比我早离开看守所的8964狱友们还有老领导见面时的我。 
-
-
-
-
-
-<img src="https://media.gettr.com/group21/getter/2022/04/28/22/748d4a96-d7a6-a568-6194-316bb4375e8e/b9ac63f2712504e5980b8e8f5ab02383.jpg" width="506" height="284">
 
 ---
 
