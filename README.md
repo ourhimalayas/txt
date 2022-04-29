@@ -11,6 +11,9 @@
 
 ---
 
+#### [加拿大议员吁停止中央银行数字货币](/content/gnews/2439018.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [习要求今年GDP必须超美 真实经济已摇摇欲坠](/content/gnews/2438980.md)
  `NFSC News`
 
@@ -82,9 +85,6 @@
 
 #### [加拿大最新人口普查显示老龄化严重](/content/gnews/2438228.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [美通胀指数上升6.6% 创40年来最高](/content/gnews/2438169.md)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [辉瑞等三家疫苗厂正在试验致死剂量的疫苗](/content/gnews/2438162.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
