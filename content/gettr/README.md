@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 4/29/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p17j5u97a9d.md)
+
+2022.04.28 晚  新中国联邦 | 新闻访谈  马斯克收购推特跟进分析；北京疫情封控开始
+
+<img src="https://media.gettr.com/group32/origin/2022/04/29/01/9653c2ac-49cd-909a-6ea8-cd15087812cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p17j482d6ff.md)
+
+【Ukraine Rescue】04/26/2022 A Scottish volunteer sees nothing wrong with the anti-communist message on our billboard. He believes that Medyka should be a democratic and peaceful place, where every individual or organization has the ...
+
+<img src="https://media.gettr.com/group4/getter/2022/04/29/00/9b73b410-1196-e8c4-a60a-b83dc0bb8fcf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 12:18 AM UTC ](/content/gettr/p17iu4i0468.md)
 
 NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
@@ -55,14 +71,6 @@ NFSC news 新中国联邦｜新闻（ 粤语版 ）开播啦
 
 
 <img src="https://media.gettr.com/group8/getter/2022/04/28/21/89c35a60-31c4-b612-69fd-79fdd8dcd813/1c1ab53e452a4dadb77cbac2518f2727.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 12:32 AM UTC  - :tv:直播](/content/gettr/p17j482d6ff.md)
-
-【Ukraine Rescue】04/26/2022 A Scottish volunteer sees nothing wrong with the anti-communist message on our billboard. He believes that Medyka should be a democratic and peaceful place, where every individual or organization has the ...
-
-<img src="https://media.gettr.com/group4/getter/2022/04/29/00/9b73b410-1196-e8c4-a60a-b83dc0bb8fcf/out.jpg" width="506" height="284">
 
 ---
 
@@ -215,14 +223,6 @@ On April 28，The White House send a proposal for a comprehensive legislative pa
 2022.04.28  新中国联邦 | 喜健康  病毒满视野，我们该吃啥（下）
 
 <img src="https://media.gettr.com/group18/origin/2022/04/28/20/5cf24e7d-6a19-6b53-1355-3b2d6c21243a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/28/2022 8:07 PM UTC ](/content/gettr/p17i39w55cc.md)
-
- 4月28日：这么简单，符合逻辑的答案．需要用生命和健康来来作为找到正确答案的验证条件吗？可悲呀……
-
-<img src="https://media.gettr.com/group36/getter/2022/04/28/20/ee450af6-c6cf-52d2-8460-f381a256ebec/ccd20898341b4e7e812d486664bf8b63.jpg" width="506" height="284">
 
 ---
 
