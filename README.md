@@ -20,6 +20,9 @@
 #### [一个男人在注射完covid 加强针后跌倒在地](/content/gnews/2435229.md)
  `Tokyo Sakura Video Group`
 
+#### [郭先生以台湾为例解析何谓政客](/content/gnews/2435225.md)
+ `GTV News Talk`
+
 #### [拜登政府将助力台湾重回世卫组织](/content/gnews/2435224.md)
  `GTV News Talk`
 
@@ -38,11 +41,8 @@
 #### [樱花FM┃中共人口清除计划进行时 上海母亲哭诉什么病都看不了](/content/gnews/2435182.md)
  `樱花FM`
 
-#### [樱花FM┃上海封城又酿灾难 一居民楼被铁丝网隔离后起火](/content/gnews/2435166.md)
- `樱花FM`
-
-#### [普京要败了。美乌唱衰，普京不服也没用！](/content/gnews/2435156.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
+#### [【蓝枫法律】推特等科技巨头对爆料革命的攻击](/content/gnews/2435105.md)
+ `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [俄外长威胁警告将发动第三次世界大战](/content/gnews/2435057.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
