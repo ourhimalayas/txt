@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17rp8968ff.md)
+
+2022.04.30  PM NFSC news    Modelski Cycle Research Shows CCP cannot be the Next World Leader
+
+<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17s70ef455.md)
 
 “斗地主” 飞飞秀救援快报 2022-04-30
@@ -44,11 +52,11 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 
 ---
 
-[@miles 4/30/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17rp8968ff.md)
+[@miles 4/30/2022 11:02 PM UTC ](/content/gettr/p17sjve6a99.md)
 
-2022.04.30  PM NFSC news    Modelski Cycle Research Shows CCP cannot be the Next World Leader
+The Toronto Star reported on April 19 on the story of Feather, a 19-year-old girl from the University of Toronto and a member of the New Federal State of China, who participated in the Rule of Law Foundation's Ukraine relief effort...
 
-<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/04/30/23/3dc5f5bb-8625-4289-8267-6dfa313de3a4/7d9badbdeaa930c4718b4b76d53c2709.png" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ A columnist from the Philippines expressed his gratitude and admiration for the 
 【Ukraine Rescue】04/27/2022 A young volunteer from Kyiv sheds tears when she tells what she experienced at the beginning of the war. The Russian soldiers have just been raping kids in front of their parents. She says the Ukrainian p...
 
 <img src="https://media.gettr.com/group11/getter/2022/04/30/10/d20d016c-0f69-c327-a384-bbcd94c42f20/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 8:43 AM UTC  - :tv:直播](/content/gettr/p17ox4jf7fa.md)
-
-Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolution of the dashboard, live streaming for all verified users, Vision short videos, DMs, video projection to TV screen, Gettr pay, attention tokens (cry...
-
-<img src="https://media.gettr.com/group50/getter/2022/04/30/08/a1e5cfd1-586a-eb76-f20f-190b5c0d3be0/out.jpg" width="506" height="284">
 
 ---
 
