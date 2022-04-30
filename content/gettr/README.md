@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 8:43 AM UTC  - :tv:直播](/content/gettr/p17ox4jf7fa.md)
+
+Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolution of the dashboard, live streaming for all verified users, Vision short videos, DMs, video projection to TV screen, Gettr pay, attention tokens (cry...
+
+<img src="https://media.gettr.com/group50/getter/2022/04/30/08/a1e5cfd1-586a-eb76-f20f-190b5c0d3be0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 8:22 AM UTC  - :tv:直播](/content/gettr/p17p9m7d660.md)
 
 4/28/2022 Miles Guo: Buying Twitter might not necessarily be good for Elon Musk, but it is good for our Whistleblowers’ Movement. Not only do our fellow fighters want to invest in GETTR's stocks, but Liu He’s buddy also wants to ho...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 4/30/2022 8:43 AM UTC  - :tv:直播](/content/gettr/p17ox4jf7fa.md)
+[@miles 4/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p17p4596830.md)
 
-Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolution of the dashboard, live streaming for all verified users, Vision short videos, DMs, video projection to TV screen, Gettr pay, attention tokens (cry...
+【Ukraine Rescue】04/27/2022 A young volunteer from Kyiv sheds tears when she tells what she experienced at the beginning of the war. The Russian soldiers have just been raping kids in front of their parents. She says the Ukrainian p...
 
-<img src="https://media.gettr.com/group50/getter/2022/04/30/08/a1e5cfd1-586a-eb76-f20f-190b5c0d3be0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/04/30/10/d20d016c-0f69-c327-a384-bbcd94c42f20/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 4/29/2022 Miles Guo's GETTR: Hong Kong's foreign debts and loans will implode! The financial system of the CCP can no longer sustain. The CCP's so-called incentive plan, Closed-Loop economy and mega-infrastructure plan will only ex...
 
 <img src="https://media.gettr.com/group48/getter/2022/04/29/23/64939fec-d8b3-c276-72b1-7aacfae490ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 11:10 PM UTC  - :tv:直播](/content/gettr/p17nsfha11b.md)
-
-4/29/2022 Miles Guo’s GETTR: Communist China is facing huge troubles both inside and overseas. Shortage of food supply, economic collapse and COVID vaccine disasters are all happening, yet the CCP dares to challenge the US and plan...
-
-<img src="https://media.gettr.com/group20/getter/2022/04/29/23/dbc3e1a7-5d05-2b01-39d5-e26507160463/out.jpg" width="506" height="284">
 
 ---
 
