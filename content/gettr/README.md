@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/30/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p17qkzla3c7.md)
+
+新中国联邦｜真人真事 第51期 乌克兰救援特辑  华盛顿DC农场 精糧 For English: https://gettr.com/streaming/p17qv2abde1
+
+<img src="https://media.gettr.com/group28/origin/2022/04/30/14/ebd76415-cb1a-acff-aca3-d3d0d0a5c29b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p17qhu4e7a7.md)
+
+【Ukraine Rescue】04/26/2022Every Chinese who has fled China has a sad story to tell. Since the Chinese Communist Party seized power, it has been creating havoc and every generation has suffered from it. Nicole's parents were victims...
+
+<img src="https://media.gettr.com/group39/getter/2022/04/30/14/2ac7354b-6d0d-05b3-1c1f-e0ed85da582a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p17pt0lb54e.md)
 
 Nicole is interviewing a former Israeli soldier, Alex, the head of the Israeli-Ukrainian war front-line rescue delegation, who is also a current reservist. He talked about the importance of Holocaust Remembrance Day to Israelis, an...
@@ -74,11 +90,11 @@ Day 56 - Date: A...
 
 ---
 
-[@miles 4/30/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p17qhu4e7a7.md)
+[@miles 4/30/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p17qvluf298.md)
 
-【Ukraine Rescue】04/26/2022Every Chinese who has fled China has a sad story to tell. Since the Chinese Communist Party seized power, it has been creating havoc and every generation has suffered from it. Nicole's parents were victims...
+ 4月30号：尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！
 
-<img src="https://media.gettr.com/group39/getter/2022/04/30/14/2ac7354b-6d0d-05b3-1c1f-e0ed85da582a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/04/30/14/578e71a5-50b0-9748-3bc2-d9571754869c/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +193,6 @@ We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP�
 The CCP is the root cause of all global disasters. The only way t...
 
 <img src="https://media.gettr.com/group12/origin/2022/04/30/04/47c4a905-8451-fb3b-d5e7-156b542cbbb2/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17op4x8863.md)
-
-Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel likes the New Federal State of China (NFSC) hat very much and is happy wearing it. When asked about his thoughts about our mission to take down the CC...
-
-<img src="https://media.gettr.com/group21/origin/2022/04/30/03/de8ecbf8-6b61-6347-a417-9e512a18eacb/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p17o69l6d9d.md)
-
-2022-4-29《鸡血王喜币大作战》 第一百八十集 嘉宾：青藤、风雨之中
-
-<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
