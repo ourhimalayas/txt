@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p17rite477b.md)
+
+Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agency for Israel, the most influential organization in the world and the most important driving force behind Israel's founding in 1929. David Ben-Gurion, p...
+
+<img src="https://media.gettr.com/group26/origin/2022/04/30/21/039a558e-d2a2-ecdb-b2cb-e5ec61e42396/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p17rr1f9090.md)
 
 2022.04.30  新中国联邦 | 喜健康   美国执业心理医生麦可专访
@@ -26,11 +34,13 @@
 
 ---
 
-[@miles 4/30/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p17rite477b.md)
+[@miles 4/30/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17s70ef455.md)
 
-Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agency for Israel, the most influential organization in the world and the most important driving force behind Israel's founding in 1929. David Ben-Gurion, p...
+“斗地主” 飞飞秀救援快报 2022-04-30
 
-<img src="https://media.gettr.com/group26/origin/2022/04/30/21/039a558e-d2a2-ecdb-b2cb-e5ec61e42396/out.jpg" width="506" height="284">
+For English：gettr.com/streaming/p17rvo443cc
+
+<img src="https://media.gettr.com/group19/origin/2022/04/30/22/c1487d92-c686-5967-4527-0b17f1487071/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 4/28/2022 Miles Guo: Buying Twitter might not necessarily be good for Elon Musk, but it is good for our Whistleblowers’ Movement. Not only do our fellow fighters want to invest in GETTR's stocks, but Liu He’s buddy also wants to ho...
 
 <img src="https://media.gettr.com/group21/getter/2022/04/30/08/7821e8c0-a546-e156-ca56-717f2f61446c/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 7:59 AM UTC  - :tv:直播](/content/gettr/p17p1nv5d99.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group21/origin/2022/04/30/07/2eac8972-77a5-4f2a-70a7-5cb07295c3e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
