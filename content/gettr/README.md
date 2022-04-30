@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p17qv5e753d.md)
+
+【Ukraine Rescue】04/28/2022 In an interview with foreign media, fellow fighter Jing Liang says that the purpose of the NFSC rescue work is to show the world that Chinese people recognize humanitarian values, and are willing to live ...
+
+<img src="https://media.gettr.com/group10/getter/2022/04/30/15/3de33526-5de0-36e8-eff9-24dbc0d37970/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p17qkzla3c7.md)
 
 新中国联邦｜真人真事 第51期 乌克兰救援特辑  华盛顿DC农场 精糧 For English: https://gettr.com/streaming/p17qv2abde1
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/30/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p17qv5e753d.md)
+[@miles 4/30/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p17ppz13863.md)
 
-【Ukraine Rescue】04/28/2022 In an interview with foreign media, fellow fighter Jing Liang says that the purpose of the NFSC rescue work is to show the world that Chinese people recognize humanitarian values, and are willing to live ...
+2022.04.30 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group10/getter/2022/04/30/15/3de33526-5de0-36e8-eff9-24dbc0d37970/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/04/30/17/78918c8b-a64a-cd2a-bed0-06a38b3af819/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 4/29/2022 Ukraine Rescue: The Ukraine rescue operation showcased the soft power and economic strength of the New Federal State of China and told the world that we are the extraordinary ones that are different from the CCP. Through ...
 
 <img src="https://media.gettr.com/group33/getter/2022/04/30/05/b22a5fa7-b0f1-41c0-833a-ca58253c3c68/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17pco6ec7b.md)
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-
-<img src="https://media.gettr.com/group4/origin/2022/04/30/04/e213a419-f6d0-760d-fd02-28f976c81169/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
