@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17qiwt0c2b.md)
+
+2022.04.30  早 新中国联邦 | 新闻访谈   朱茂元的启示；330亿对乌援助；同期其他的案件
+
+<img src="https://media.gettr.com/group34/origin/2022/04/30/13/43503f9d-93ed-4bae-e195-bbc8519f74bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 12:38 PM UTC ](/content/gettr/p17pygi0458.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -50,11 +58,11 @@ Day 56 - Date: A...
 
 ---
 
-[@miles 4/30/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17qiwt0c2b.md)
+[@miles 4/30/2022 1:42 PM UTC  - :tv:直播](/content/gettr/p17qkoy6727.md)
 
-2022.04.30  早 新中国联邦 | 新闻访谈   朱茂元的启示；330亿对乌援助；同期其他的案件
+【Ukraine Rescue】04/26/2022An independent filmmaker from Australia, Elliot Goodyear, is planning to make a documentary on the Ukrainian rescue, and Nicole introduces him to a lot of what the NFSC is doing, but the mainstream media i...
 
-<img src="https://media.gettr.com/group34/origin/2022/04/30/13/43503f9d-93ed-4bae-e195-bbc8519f74bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/04/30/13/4f8a662a-a937-cdd2-7f33-d4f0ff57f556/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
  4月29号：愿所有的中国同胞们早日能醒来……不要让邪恶的中国共产党……继续祸害我们的下三代的未来子孙了……无论是今天的上海．和昨天的香港🇭🇰和明天的台湾．和过去的文化大革命……都是他们犯下的滔天大罪的证据．共产党不灭中国人民和世界人民．不会有安全和健康美好的未来……永远都不会。
 
 <img src="https://media.gettr.com/group18/getter/2022/04/30/01/4ab89ccc-c181-8878-ddcb-ff805d7ef327/d2669d964078f02a1715fbbcc105350e.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p17nqjg5028.md)
-
-2022.04.29  晚 新中国联邦 | 新闻访谈    上海，北京，广州相继沦陷；多种数字货币动作频繁
-
-<img src="https://media.gettr.com/group25/origin/2022/04/30/01/62f72d0a-c258-baa7-f29c-2ecae5468e59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
