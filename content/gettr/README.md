@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 4/30/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p17q1gn240c.md)
+
+2022.04.30  AM NFSC news   Ukraine Rescue Operation Update; Updates on the Russia-Ukraine War Today 
+
+<img src="https://media.gettr.com/group14/origin/2022/04/30/10/1200344a-076d-0794-c086-27333314f6d7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p17p4596830.md)
+
+【Ukraine Rescue】04/27/2022 A young volunteer from Kyiv sheds tears when she tells what she experienced at the beginning of the war. The Russian soldiers have just been raping kids in front of their parents. She says the Ukrainian p...
+
+<img src="https://media.gettr.com/group11/getter/2022/04/30/10/d20d016c-0f69-c327-a384-bbcd94c42f20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 8:43 AM UTC  - :tv:直播](/content/gettr/p17ox4jf7fa.md)
 
 Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolution of the dashboard, live streaming for all verified users, Vision short videos, DMs, video projection to TV screen, Gettr pay, attention tokens (cry...
@@ -34,11 +50,11 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 
 ---
 
-[@miles 4/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p17p4596830.md)
+[@miles 4/30/2022 12:07 PM UTC  - :tv:直播](/content/gettr/p17q7eeeca8.md)
 
-【Ukraine Rescue】04/27/2022 A young volunteer from Kyiv sheds tears when she tells what she experienced at the beginning of the war. The Russian soldiers have just been raping kids in front of their parents. She says the Ukrainian p...
+A columnist from the Philippines expressed his gratitude and admiration for the New Federal State of China's rescue operation in Medyka, hoping that his Philippine compatriots would stand up as bravely as the people of NFSC. The fr...
 
-<img src="https://media.gettr.com/group11/getter/2022/04/30/10/d20d016c-0f69-c327-a384-bbcd94c42f20/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/04/30/12/72d44828-1562-0341-abbc-b3011eef395d/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +175,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 【Ukraine Rescue】04/27/2022 The young volunteer from Ukraine thinks it is a great message to distinguish the NFSC who is eliminating the CCP...
 
 <img src="https://media.gettr.com/group36/getter/2022/04/29/23/5c737881-751b-aec2-cdc1-47240fb0246b/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17nbvu76fc.md)
-
-4/29/2022 Miles Guo's GETTR: Hong Kong's foreign debts and loans will implode! The financial system of the CCP can no longer sustain. The CCP's so-called incentive plan, Closed-Loop economy and mega-infrastructure plan will only ex...
-
-<img src="https://media.gettr.com/group48/getter/2022/04/29/23/64939fec-d8b3-c276-72b1-7aacfae490ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17noid87de.md)
-
-4/29/2022 Miles Guo’s GETTR: Liao Guoxun, the mayor of Tianjin, was executed; a bunch of people got arrested this morning, including those who worked at the Ministry of Railways, Customs Office, Wang Qishan’s buddies at PBOC, and H...
-
-<img src="https://media.gettr.com/group5/getter/2022/04/29/23/2f62b7eb-8985-db74-15d7-f7ad14b63550/out.jpg" width="506" height="284">
 
 ---
 
