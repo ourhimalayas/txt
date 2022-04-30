@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 4/30/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17s70ef455.md)
+
+“斗地主” 飞飞秀救援快报 2022-04-30
+
+For English：gettr.com/streaming/p17rvo443cc
+
+<img src="https://media.gettr.com/group19/origin/2022/04/30/22/c1487d92-c686-5967-4527-0b17f1487071/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p17rite477b.md)
 
 Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agency for Israel, the most influential organization in the world and the most important driving force behind Israel's founding in 1929. David Ben-Gurion, p...
@@ -34,13 +44,11 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 
 ---
 
-[@miles 4/30/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17s70ef455.md)
+[@miles 4/30/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17rp8968ff.md)
 
-“斗地主” 飞飞秀救援快报 2022-04-30
+2022.04.30  PM NFSC news    Modelski Cycle Research Shows CCP cannot be the Next World Leader
 
-For English：gettr.com/streaming/p17rvo443cc
-
-<img src="https://media.gettr.com/group19/origin/2022/04/30/22/c1487d92-c686-5967-4527-0b17f1487071/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ A columnist from the Philippines expressed his gratitude and admiration for the 
 Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolution of the dashboard, live streaming for all verified users, Vision short videos, DMs, video projection to TV screen, Gettr pay, attention tokens (cry...
 
 <img src="https://media.gettr.com/group50/getter/2022/04/30/08/a1e5cfd1-586a-eb76-f20f-190b5c0d3be0/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 8:22 AM UTC  - :tv:直播](/content/gettr/p17p9m7d660.md)
-
-4/28/2022 Miles Guo: Buying Twitter might not necessarily be good for Elon Musk, but it is good for our Whistleblowers’ Movement. Not only do our fellow fighters want to invest in GETTR's stocks, but Liu He’s buddy also wants to ho...
-
-<img src="https://media.gettr.com/group21/getter/2022/04/30/08/7821e8c0-a546-e156-ca56-717f2f61446c/out.jpg" width="506" height="284">
 
 ---
 
