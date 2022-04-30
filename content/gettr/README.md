@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 1:42 PM UTC  - :tv:直播](/content/gettr/p17qkoy6727.md)
+
+【Ukraine Rescue】04/26/2022An independent filmmaker from Australia, Elliot Goodyear, is planning to make a documentary on the Ukrainian rescue, and Nicole introduces him to a lot of what the NFSC is doing, but the mainstream media i...
+
+<img src="https://media.gettr.com/group12/getter/2022/04/30/13/4f8a662a-a937-cdd2-7f33-d4f0ff57f556/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17qiwt0c2b.md)
 
 2022.04.30  早 新中国联邦 | 新闻访谈   朱茂元的启示；330亿对乌援助；同期其他的案件
@@ -58,11 +66,11 @@ Day 56 - Date: A...
 
 ---
 
-[@miles 4/30/2022 1:42 PM UTC  - :tv:直播](/content/gettr/p17qkoy6727.md)
+[@miles 4/30/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p17pt0lb54e.md)
 
-【Ukraine Rescue】04/26/2022An independent filmmaker from Australia, Elliot Goodyear, is planning to make a documentary on the Ukrainian rescue, and Nicole introduces him to a lot of what the NFSC is doing, but the mainstream media i...
+Nicole is interviewing a former Israeli soldier, Alex, the head of the Israeli-Ukrainian war front-line rescue delegation, who is also a current reservist. He talked about the importance of Holocaust Remembrance Day to Israelis, an...
 
-<img src="https://media.gettr.com/group12/getter/2022/04/30/13/4f8a662a-a937-cdd2-7f33-d4f0ff57f556/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/04/30/13/763d2b04-ed2e-3626-51d1-c36793bf53b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 2022.04.29  新中国联邦 | 喜财经    中共國內外疲軟 習近平下令：今年GDP要擊敗美國
 
 <img src="https://media.gettr.com/group36/origin/2022/04/30/02/396af10c-e010-7f4e-e248-cac90e26b375/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/30/2022 1:46 AM UTC  - 3圖](/content/gettr/p17nwrz6e2b.md)
-
- 4月29号：愿所有的中国同胞们早日能醒来……不要让邪恶的中国共产党……继续祸害我们的下三代的未来子孙了……无论是今天的上海．和昨天的香港🇭🇰和明天的台湾．和过去的文化大革命……都是他们犯下的滔天大罪的证据．共产党不灭中国人民和世界人民．不会有安全和健康美好的未来……永远都不会。
-
-<img src="https://media.gettr.com/group18/getter/2022/04/30/01/4ab89ccc-c181-8878-ddcb-ff805d7ef327/d2669d964078f02a1715fbbcc105350e.jpg" width="506" height="284">
 
 ---
 
