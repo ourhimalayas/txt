@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 4/30/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p17pjb2c983.md)
+
+4/29/2022 Ukraine Rescue: Fellow fighters came to Medyka to save lives while showing the world a new image of the new Chinese as peace-loving, compassionate, reasonable, and inclusive. Our rescue operation has received recognition ...
+
+<img src="https://media.gettr.com/group46/getter/2022/04/30/05/95d52437-34a1-7b07-c6db-ffe37003f846/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p17p9l16dc5.md)
 
 4/29/2022 Ukraine Rescue: Wenyiao: In the Ukraine rescue camp of the New Federal State of China , more and more organizations and individuals from all over the world have learnt that the new Chinese are the group of people who are ...
 
 <img src="https://media.gettr.com/group6/getter/2022/04/30/05/10489ced-2016-dc92-f23f-d5fcedb03726/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 5:23 AM UTC  - :tv:直播](/content/gettr/p17p4c9efe9.md)
+
+4/29/2022 Ukraine Rescue: The Israeli rescue organization One Heart says it stands firmly with the New Federal State of China and recognizes that the New Federal State of China represents the Chinese people. Historically, both Chin...
+
+<img src="https://media.gettr.com/group8/getter/2022/04/30/05/68164b46-fbf1-7a29-cd6a-2750d7f0231d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p17p4na0840.md)
+
+4/29/2022 Ukraine Rescue: The Ukraine rescue operation showcased the soft power and economic strength of the New Federal State of China and told the world that we are the extraordinary ones that are different from the CCP. Through ...
+
+<img src="https://media.gettr.com/group33/getter/2022/04/30/05/b22a5fa7-b0f1-41c0-833a-ca58253c3c68/out.jpg" width="506" height="284">
 
 ---
 
@@ -94,14 +118,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 
 ---
 
-[@miles 4/30/2022 5:12 AM UTC  - :tv:直播](/content/gettr/p17p4na0840.md)
-
-4/29/2022 Ukraine Rescue: The Ukraine rescue operation showcased the soft power and economic strength of the New Federal State of China and told the world that we are the extraordinary ones that are different from the CCP. Through ...
-
-<img src="https://media.gettr.com/group33/getter/2022/04/30/05/b22a5fa7-b0f1-41c0-833a-ca58253c3c68/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p17nkl49a6a.md)
 
 【乌克兰救援】04/27/2022  来自乌克兰的年轻志愿者认为将铲除中共的新中国联邦人和中共区分开来是一个伟大的信息，她支持我们明确我们的立场：反对支持普京和这场战争的中共。
@@ -161,46 +177,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 For English：gettr.com/streaming/p17nnhi6f0
 
 <img src="https://media.gettr.com/group49/origin/2022/04/29/22/752552ab-ca14-32ad-8a36-04c0096f851b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 9:14 PM UTC ](/content/gettr/p17ngp728a6.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月28日第55天当日救援统计：
-
-Medyka救援站接待：约250人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约15228人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 55 - Date: A...
-
-<img src="https://media.gettr.com/group11/getter/2022/04/29/21/7cc8dafe-20b1-5dd9-8385-91be52b197ad/0e0efd8e1d4a9119d1c4b9ec8787d4d7.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 9:32 PM UTC  - :tv:直播](/content/gettr/p17mw4v750f.md)
-
-【Ukraine Rescue】04/27/2022 Israeli volunteers hold Holocaust Remembrance Day in the tent of the New Federal State of China. Mr. Erez Eshel says the Holocaust was pure evil, and defeating it took time. In this process, it is importa...
-
-<img src="https://media.gettr.com/group50/getter/2022/04/29/21/69ede2d4-3d77-8f4e-fb7a-d7ee0b23f60e/out.jpg" width="506" height="284">
 
 ---
 
