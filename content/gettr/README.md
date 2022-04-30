@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 4/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p17q02ada21.md)
+
+2022.04.30早  新中国联邦 | 新闻
+
+<img src="https://media.gettr.com/group45/origin/2022/04/30/12/7b471b27-3cee-5635-f5be-ca108eb98eaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 12:07 PM UTC  - :tv:直播](/content/gettr/p17q7eeeca8.md)
+
+A columnist from the Philippines expressed his gratitude and admiration for the New Federal State of China's rescue operation in Medyka, hoping that his Philippine compatriots would stand up as bravely as the people of NFSC. The fr...
+
+<img src="https://media.gettr.com/group29/origin/2022/04/30/12/72d44828-1562-0341-abbc-b3011eef395d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p17p4596830.md)
 
 【Ukraine Rescue】04/27/2022 A young volunteer from Kyiv sheds tears when she tells what she experienced at the beginning of the war. The Russian soldiers have just been raping kids in front of their parents. She says the Ukrainian p...
@@ -47,14 +63,6 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 4/29/2022 Ukraine Rescue: Fellow fighters came to Medyka to save lives while showing the world a new image of the new Chinese as peace-loving, compassionate, reasonable, and inclusive. Our rescue operation has received recognition ...
 
 <img src="https://media.gettr.com/group46/getter/2022/04/30/05/95d52437-34a1-7b07-c6db-ffe37003f846/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 12:07 PM UTC  - :tv:直播](/content/gettr/p17q7eeeca8.md)
-
-A columnist from the Philippines expressed his gratitude and admiration for the New Federal State of China's rescue operation in Medyka, hoping that his Philippine compatriots would stand up as bravely as the people of NFSC. The fr...
-
-<img src="https://media.gettr.com/group29/origin/2022/04/30/12/72d44828-1562-0341-abbc-b3011eef395d/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 中文同传：https://gettr.com/streaming/p17nv7gb806
 
 <img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 11:43 PM UTC  - :tv:直播](/content/gettr/p17nkl49a6a.md)
-
-【乌克兰救援】04/27/2022  来自乌克兰的年轻志愿者认为将铲除中共的新中国联邦人和中共区分开来是一个伟大的信息，她支持我们明确我们的立场：反对支持普京和这场战争的中共。
-
-
-
-【Ukraine Rescue】04/27/2022 The young volunteer from Ukraine thinks it is a great message to distinguish the NFSC who is eliminating the CCP...
-
-<img src="https://media.gettr.com/group36/getter/2022/04/29/23/5c737881-751b-aec2-cdc1-47240fb0246b/out.jpg" width="506" height="284">
 
 ---
 
