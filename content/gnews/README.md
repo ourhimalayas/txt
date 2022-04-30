@@ -2,6 +2,9 @@
 ---
 
 
+#### [樱花时政┃中共颁布新法：拐卖罪犯自首可免罚](/content/gnews/2444269.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [随着 COVID 病例下降，拉丁美洲国家放宽限制](/content/gnews/2444248.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -75,9 +78,6 @@
  `樱花FM`
 
 #### [樱花FM｜勇者](/content/gnews/2443911.md)
- `樱花FM`
-
-#### [樱花FM｜邪恶的中共政权才是万恶之源（十）](/content/gnews/2443838.md)
  `樱花FM`
 
 #### [泽连斯基称俄罗斯是纳粹的意识形态继承者](/content/gnews/2443837.md)
