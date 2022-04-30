@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 4/29/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p17o3r92e31.md)
+
+2022.04.29 NFSC fringe episode 180
+
+中文同传：https://gettr.com/streaming/p17nv7gb806
+
+<img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17nscv80c9.md)
 
 2022.04.29 NFSC fringe episode 180
@@ -12,13 +22,11 @@
 
 ---
 
-[@miles 4/29/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p17o3r92e31.md)
+[@miles 4/30/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p17nraw4528.md)
 
-2022.04.29 NFSC fringe episode 180
+2022.04.29  晚 新中国联邦 | 新闻   莫桑比克志愿者：表达观点 绝不等于政治宣传；新中国联邦接受Alhurra电视台采访
 
-中文同传：https://gettr.com/streaming/p17nv7gb806
-
-<img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/04/30/00/bd4f8fc5-c1db-c527-71b5-3f99a4798fc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Day 55 - Date: A...
 Alhurra TV had a great interview with Nicole. Not only did their entire team wear the New Federal State of China vest to support the New China Federation. They also brought our New Federal State of China manifesto back to their cou...
 
 <img src="https://media.gettr.com/group3/origin/2022/04/29/09/1097b955-90b9-fd2a-3f75-2ee05e448ec1/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 8:30 AM UTC  - :tv:直播](/content/gettr/p17ka211881.md)
-
-4/28/2022 Miles Guo: Immigration figures from countries around China indicate that the capable men are now fleeing the CCP China. According to our fellow fighters, huge amounts of money are flowing out of HK and the mainland! No on...
-
-<img src="https://media.gettr.com/group32/getter/2022/04/29/08/7d1b56c6-4e11-8a64-a387-d635d36dc364/out.jpg" width="506" height="284">
 
 ---
 
