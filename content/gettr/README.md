@@ -2,6 +2,30 @@
 ---
 
 
+[@miles 4/30/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17s2xyb17f.md)
+
+4月30日：这还不是最坏的，只是刚刚开始！【「疯了，女子被关疯，家属抱头痛哭」  是什么造就了这一幕幕悲剧？ 是中国共产党！ 和中国人的懦弱！-】
+
+<img src="https://media.gettr.com/group31/getter/2022/04/30/23/fe70188b-dd17-09ee-f4ac-a1e1e90af4d1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p17rtmj1bf4.md)
+
+4/30/2022 Miles Guo’s GETTR: Given such an abysmal situation in the economy, the CCP is still falsely claiming that its GDP growth rate is 6.8% or 4.6%! This is pure BS! There will be more bad luck for anyone who doesn't know the e...
+
+<img src="https://media.gettr.com/group38/getter/2022/04/30/23/5a3a5cea-7702-c07f-05f4-c7f722254f7d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 11:02 PM UTC ](/content/gettr/p17sjve6a99.md)
+
+The Toronto Star reported on April 19 on the story of Feather, a 19-year-old girl from the University of Toronto and a member of the New Federal State of China, who participated in the Rule of Law Foundation's Ukraine relief effort...
+
+<img src="https://media.gettr.com/group18/origin/2022/04/30/23/3dc5f5bb-8625-4289-8267-6dfa313de3a4/7d9badbdeaa930c4718b4b76d53c2709.png" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17rp8968ff.md)
 
 2022.04.30  PM NFSC news    Modelski Cycle Research Shows CCP cannot be the Next World Leader
@@ -52,11 +76,11 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 
 ---
 
-[@miles 4/30/2022 11:02 PM UTC ](/content/gettr/p17sjve6a99.md)
+[@miles 4/30/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p17s8ce255e.md)
 
-The Toronto Star reported on April 19 on the story of Feather, a 19-year-old girl from the University of Toronto and a member of the New Federal State of China, who participated in the Rule of Law Foundation's Ukraine relief effort...
+4/30/2022 Miles Guo’s GETTR: Apple, Amazon LLC and other major corporations’ yearly reports revealed one thing - this disaster has started. Miles Guo said many years ago that 2022 is the darkest year of humanity, the year of COVID ...
 
-<img src="https://media.gettr.com/group18/origin/2022/04/30/23/3dc5f5bb-8625-4289-8267-6dfa313de3a4/7d9badbdeaa930c4718b4b76d53c2709.png" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/04/30/23/ec8f34a2-8ef8-84ea-ac52-0abbf6681fbb/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +177,6 @@ Day 56 - Date: A...
 2022.04.30早  新中国联邦 | 新闻
 
 <img src="https://media.gettr.com/group45/origin/2022/04/30/12/7b471b27-3cee-5635-f5be-ca108eb98eaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p17q1gn240c.md)
-
-2022.04.30  AM NFSC news   Ukraine Rescue Operation Update; Updates on the Russia-Ukraine War Today 
-
-<img src="https://media.gettr.com/group14/origin/2022/04/30/10/1200344a-076d-0794-c086-27333314f6d7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/30/2022 12:07 PM UTC  - :tv:直播](/content/gettr/p17q7eeeca8.md)
-
-A columnist from the Philippines expressed his gratitude and admiration for the New Federal State of China's rescue operation in Medyka, hoping that his Philippine compatriots would stand up as bravely as the people of NFSC. The fr...
-
-<img src="https://media.gettr.com/group29/origin/2022/04/30/12/72d44828-1562-0341-abbc-b3011eef395d/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 10:24 AM UTC  - :tv:直播](/content/gettr/p17p4596830.md)
-
-【Ukraine Rescue】04/27/2022 A young volunteer from Kyiv sheds tears when she tells what she experienced at the beginning of the war. The Russian soldiers have just been raping kids in front of their parents. She says the Ukrainian p...
-
-<img src="https://media.gettr.com/group11/getter/2022/04/30/10/d20d016c-0f69-c327-a384-bbcd94c42f20/out.jpg" width="506" height="284">
 
 ---
 
