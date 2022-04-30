@@ -10,6 +10,14 @@
 
 ---
 
+[@miles 4/30/2022 8:06 PM UTC ](/content/gettr/p17r2rxc344.md)
+
+4月30号：尊敬的战友们好……无数的事实都在告诉我们，人类将用生命的代价．来换来一个大家都知道的答案……疫苗是真正的这场大病毒灾难……【七哥好！今天早上參加完一個葬禮，三針疫苗，突然發現癌症，晚期，一個月就走了。和墓地管理公司的老闆聊了一會兒，得知新冠病毒以來，當地死亡人數增加了30%（規模大到可以代表當地的整體數字）。我告訴他，做好準備，疫苗災難剛剛開始。他深信不移，因為他也知道羥氯奎、伊維菌素。我也告訴了他，疫苗有解藥，等我們消滅了共產黨之後，大家就會知...
+
+<img src="https://media.gettr.com/group28/getter/2022/04/30/20/b2dde23b-efb6-f8e9-8946-60a6620ad72f/8045b205b7001de712d58c134e452f42.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p17ppz13863.md)
 
 2022.04.30 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -159,14 +167,6 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group21/origin/2022/04/30/07/2eac8972-77a5-4f2a-70a7-5cb07295c3e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p17pjb2c983.md)
-
-4/29/2022 Ukraine Rescue: Fellow fighters came to Medyka to save lives while showing the world a new image of the new Chinese as peace-loving, compassionate, reasonable, and inclusive. Our rescue operation has received recognition ...
-
-<img src="https://media.gettr.com/group46/getter/2022/04/30/05/95d52437-34a1-7b07-c6db-ffe37003f846/out.jpg" width="506" height="284">
 
 ---
 
