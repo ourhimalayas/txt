@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p17pt0lb54e.md)
+
+Nicole is interviewing a former Israeli soldier, Alex, the head of the Israeli-Ukrainian war front-line rescue delegation, who is also a current reservist. He talked about the importance of Holocaust Remembrance Day to Israelis, an...
+
+<img src="https://media.gettr.com/group12/origin/2022/04/30/13/763d2b04-ed2e-3626-51d1-c36793bf53b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 1:42 PM UTC  - :tv:直播](/content/gettr/p17qkoy6727.md)
 
 【Ukraine Rescue】04/26/2022An independent filmmaker from Australia, Elliot Goodyear, is planning to make a documentary on the Ukrainian rescue, and Nicole introduces him to a lot of what the NFSC is doing, but the mainstream media i...
@@ -66,11 +74,11 @@ Day 56 - Date: A...
 
 ---
 
-[@miles 4/30/2022 1:51 PM UTC  - :tv:直播](/content/gettr/p17pt0lb54e.md)
+[@miles 4/30/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p17qhu4e7a7.md)
 
-Nicole is interviewing a former Israeli soldier, Alex, the head of the Israeli-Ukrainian war front-line rescue delegation, who is also a current reservist. He talked about the importance of Holocaust Remembrance Day to Israelis, an...
+【Ukraine Rescue】04/26/2022Every Chinese who has fled China has a sad story to tell. Since the Chinese Communist Party seized power, it has been creating havoc and every generation has suffered from it. Nicole's parents were victims...
 
-<img src="https://media.gettr.com/group12/origin/2022/04/30/13/763d2b04-ed2e-3626-51d1-c36793bf53b1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/04/30/14/2ac7354b-6d0d-05b3-1c1f-e0ed85da582a/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 2022-4-29《鸡血王喜币大作战》 第一百八十集 嘉宾：青藤、风雨之中
 
 <img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p17nojw3d02.md)
-
-2022.04.29  新中国联邦 | 喜财经    中共國內外疲軟 習近平下令：今年GDP要擊敗美國
-
-<img src="https://media.gettr.com/group36/origin/2022/04/30/02/396af10c-e010-7f4e-e248-cac90e26b375/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
