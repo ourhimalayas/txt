@@ -2,6 +2,21 @@
 ---
 
 
+#### [【粤语配音】2022年4月30日：世界经济已经开始走向崩塌](/content/gnews/2445551.md)
+ `MOS香港部`
+
+#### [中共与辉瑞的关联正在浮出水面](/content/gnews/2445535.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [证据显示医药公司早知道疫苗的潜在危害](/content/gnews/2445530.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [新中国联邦救援的目的是展示其与世界和睦相处的价值观](/content/gnews/2445526.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [文贵先生的爆料非常及时，非常果断，非常必要](/content/gnews/2445494.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [视频&#124;北京人在备物资等封控](/content/gnews/2445482.md)
  `爆料视频`
 
@@ -32,23 +47,11 @@
 #### [冷战以来英国国防部大规模8000人赴东欧联合演习](/content/gnews/2445409.md)
  `NewS Gman`
 
-#### [日印尼首脑会议一致认为军事入侵是不可接受的](/content/gnews/2445378.md)
- `NewS Gman`
-
 #### [【G时新闻】美国CDC与FDA出于政治目的改变了中共病毒指南并压制了真相](/content/gnews/2445343.md)
  `G-时新闻`
 
-#### [诗歌《疾病就是良药》](/content/gnews/2445341.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [认清梅迪卡乌克兰救援营地的攻击者Tim Carlsgaard](/content/gnews/2445284.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [俄罗斯军队继续围攻马里乌波尔乌克兰东南部的钢铁厂](/content/gnews/2445279.md)
- `NewS Gman`
-
-#### [美国已摆脱新冠？福奇改口：处于从加速暴发到相对可控的过渡期](/content/gnews/2445218.md)
- `加拿大温哥华英里农场`
 
 #### [截至4.30 俄乌战事汇总](/content/gnews/2445168.md)
  `秘密翻譯組G-Translators`
@@ -101,6 +104,9 @@
 #### [中共上海封城压力测试将尽，北京压力测试又起](/content/gnews/2443985.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [加拿大皇家骑警就2016年阿迦汗之旅曾考虑对特鲁多提出刑事指控](/content/gnews/2443963.md)
+ `加拿大温哥华扬帆农场视频组`
+
 #### [樱花时政┃中共是全球气候变化的毒瘤](/content/gnews/2443748.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -144,12 +150,6 @@
  `美国政要直译推`
 
 #### [文编&#124;习近平与普京为了自己的私心不惜牺牲两国人民为代价](/content/gnews/2438209.md)
- `KarmaLabs`
-
-#### [文编&#124;战争最大的挑战是平民的生命安全](/content/gnews/2438183.md)
- `KarmaLabs`
-
-#### [文编&#124;世界金融中心香港的悲惨历史](/content/gnews/2438149.md)
  `KarmaLabs`
 
 #### [热点｜中共特务单伟建狠批上海封城致经济半瘫痪 透露已转移资产](/content/gnews/2435834.md)
