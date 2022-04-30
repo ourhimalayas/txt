@@ -11,11 +11,29 @@
 
 ---
 
-#### [【说事儿】只有消灭中国共产党，中国人才能活下去](/content/gnews/2443879.md)
+#### [【说事儿】拜登再为乌克兰提供额外330亿美元](/content/gnews/2444010.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】CCP病毒疫苗导致严重自身免疫性肝炎](/content/gnews/2443840.md)
+#### [给侥幸老百姓一封哀的美敦书](/content/gnews/2444009.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [泽连斯基谈马里乌波尔是废墟中的俄罗斯集中营](/content/gnews/2444001.md)
+ `Shuizhuyu`
+
+#### [中共上海封城压力测试将尽，北京压力测试又起](/content/gnews/2443985.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [【说事儿】前所未有——日本要参加北约峰会！](/content/gnews/2443984.md)
  `TokyoSakuraDesignGroup`
+
+#### [【说事儿】美众院通过法案调查中共是否助俄逃避制裁](/content/gnews/2443972.md)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;4月29日Gettr临时直播 1 这叫政治运动 从共产党存在的那天起就没停过](/content/gnews/2443971.md)
+ `爆料视频`
+
+#### [有声&#124;国际货币基金总裁确诊中共病毒](/content/gnews/2443880.md)
+ `MOSREC`
 
 #### [泽连斯基称俄罗斯是纳粹的意识形态继承者](/content/gnews/2443837.md)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -23,20 +41,14 @@
 #### [樱花时政┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约](/content/gnews/2443836.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【说事儿】英外长警告中共国遵守全球规则](/content/gnews/2443808.md)
- `TokyoSakuraDesignGroup`
-
 #### [视频&#124;纪实歌谣《倒不停》](/content/gnews/2443801.md)
  `爆料视频`
 
-#### [【说事儿】加拿大国会一致投票通过 将俄在乌克兰的暴行认定为种族灭绝](/content/gnews/2443759.md)
- `TokyoSakuraDesignGroup`
+#### [美国及世界疫情简报（04-30-2022）](/content/gnews/2443753.md)
+ `波士顿五月花农场`
 
 #### [樱花时政┃中共是全球气候变化的毒瘤](/content/gnews/2443748.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [【说事儿】德决议向乌克兰提供重武器](/content/gnews/2443563.md)
- `TokyoSakuraDesignGroup`
 
 #### [有声&#124;盖特具有任何社交媒体无可比拟的优势](/content/gnews/2443528.md)
  `MOSREC`
@@ -47,14 +59,8 @@
 #### [1美元兑日元达到130平台，为20年来的日元最弱水准](/content/gnews/2443487.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [有声&#124;美军驱逐舰例行训练 再次穿越台湾海峡](/content/gnews/2443441.md)
- `MOSREC`
-
 #### [有声&#124;联合国通过决议 限制五常“一票否决权”](/content/gnews/2443402.md)
  `MOSREC`
-
-#### [视频&#124;2017年5月15日文贵爆料视频中多次提到朱茂元](/content/gnews/2443383.md)
- `爆料视频`
 
 #### [中日财经爆┃上海封城 中国经济数据降为2008年2月以来最低](/content/gnews/2443337.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -89,9 +95,6 @@
 #### [女士递进式质疑中共防疫无依无据试图操纵国家医保](/content/gnews/2443139.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [2022年4月30日战时快讯](/content/gnews/2443138.md)
- `墨尔本雅典娜农场`
-
 #### [中日财经爆┃供销社：中共一盘下不完的大棋！](/content/gnews/2443119.md)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -107,14 +110,11 @@
 #### [艺术为善：乌克兰儿童如何通过NFTs资助人道主义工作](/content/gnews/2442867.md)
  `新加坡狮城农场 Himalaya Singapore`
 
+#### [《避风港Haven》直播内容精选（第四十期）](/content/gnews/2442800.md)
+ `喜马拉雅纽约磐石农场`
+
 #### [【G时新闻】中共加速进入北朝鲜模式](/content/gnews/2442635.md)
  `G-时新闻`
-
-#### [十岁女孩突发颅内出血的微博下面出现一面倒的疫苗质疑](/content/gnews/2442583.md)
- `喜马拉雅日本银河系农场`
-
-#### [2022年4月30日，全球中共病毒疫情情况汇总](/content/gnews/2442535.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [金正恩警告朝鲜可能“先发制人”使用核武器](/content/gnews/2442514.md)
  `Shuizhuyu`
