@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p17nraw4528.md)
+
+2022.04.29  晚 新中国联邦 | 新闻   莫桑比克志愿者：表达观点 绝不等于政治宣传；新中国联邦接受Alhurra电视台采访
+
+<img src="https://media.gettr.com/group15/origin/2022/04/30/00/bd4f8fc5-c1db-c527-71b5-3f99a4798fc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/29/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p17o3r92e31.md)
 
 2022.04.29 NFSC fringe episode 180
@@ -22,11 +30,11 @@
 
 ---
 
-[@miles 4/30/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p17nraw4528.md)
+[@miles 4/30/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p17nqjg5028.md)
 
-2022.04.29  晚 新中国联邦 | 新闻   莫桑比克志愿者：表达观点 绝不等于政治宣传；新中国联邦接受Alhurra电视台采访
+2022.04.29  晚 新中国联邦 | 新闻访谈    上海，北京，广州相继沦陷；多种数字货币动作频繁
 
-<img src="https://media.gettr.com/group15/origin/2022/04/30/00/bd4f8fc5-c1db-c527-71b5-3f99a4798fc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/04/30/01/62f72d0a-c258-baa7-f29c-2ecae5468e59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Day 55 - Date: A...
 2022.04.29  新中国联邦 | 军情室  今日军事热点最新战情动态，马里乌波尔最后的钢铁壁垒，中共坦克继承俄式坦克缺陷
 
 <img src="https://media.gettr.com/group31/origin/2022/04/29/10/a8eebcb4-244c-c188-e7c9-8409cf7fb349/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 9:37 AM UTC  - :tv:直播](/content/gettr/p17k4l52810.md)
-
-Alhurra TV had a great interview with Nicole. Not only did their entire team wear the New Federal State of China vest to support the New China Federation. They also brought our New Federal State of China manifesto back to their cou...
-
-<img src="https://media.gettr.com/group3/origin/2022/04/29/09/1097b955-90b9-fd2a-3f75-2ee05e448ec1/out.jpg" width="506" height="284">
 
 ---
 
