@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 4/30/2022 3:11 PM UTC  - :tv:直播](/content/gettr/p17qv5e753d.md)
+
+【Ukraine Rescue】04/28/2022 In an interview with foreign media, fellow fighter Jing Liang says that the purpose of the NFSC rescue work is to show the world that Chinese people recognize humanitarian values, and are willing to live ...
+
+<img src="https://media.gettr.com/group10/getter/2022/04/30/15/3de33526-5de0-36e8-eff9-24dbc0d37970/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p17qvluf298.md)
+
+ 4月30号：尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！
+
+<img src="https://media.gettr.com/group26/getter/2022/04/30/14/578e71a5-50b0-9748-3bc2-d9571754869c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p17qhu4e7a7.md)
 
 【Ukraine Rescue】04/26/2022Every Chinese who has fled China has a sad story to tell. Since the Chinese Communist Party seized power, it has been creating havoc and every generation has suffered from it. Nicole's parents were victims...
@@ -90,14 +106,6 @@ Day 56 - Date: A...
 
 ---
 
-[@miles 4/30/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p17qvluf298.md)
-
- 4月30号：尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！
-
-<img src="https://media.gettr.com/group26/getter/2022/04/30/14/578e71a5-50b0-9748-3bc2-d9571754869c/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/30/2022 12:07 PM UTC  - :tv:直播](/content/gettr/p17q7eeeca8.md)
 
 A columnist from the Philippines expressed his gratitude and admiration for the New Federal State of China's rescue operation in Medyka, hoping that his Philippine compatriots would stand up as bravely as the people of NFSC. The fr...
@@ -175,24 +183,6 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group4/origin/2022/04/30/04/e213a419-f6d0-760d-fd02-28f976c81169/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayadcfarm 4/30/2022 4:04 AM UTC  - :tv:直播](/content/gettr/p17oe2tfda6.md)
-
-❤️【救援前线精彩瞬间】
-
-❤️救援前线战友和新中国联邦咖啡杯合影
-
-
-
-About the New Federal State of China #NFSC 👇
-
-We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. 
-
-The CCP is the root cause of all global disasters. The only way t...
-
-<img src="https://media.gettr.com/group12/origin/2022/04/30/04/47c4a905-8451-fb3b-d5e7-156b542cbbb2/out.jpg" width="506" height="284">
 
 ---
 
