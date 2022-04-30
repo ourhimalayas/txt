@@ -11,6 +11,9 @@
 #### [美国开始在德国培训乌克兰人](/content/gnews/2445022.md)
  `喜马拉雅-华盛顿DC农场`
 
+#### [中共国：据预测，因感染的蔓延，五连休“黄金周”旅行将大幅下降，旅游观光等行业棘手（下）](/content/gnews/2445015.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [樱花FM┃G系列投资名词](/content/gnews/2445014.md)
  `樱花FM`
 
@@ -85,9 +88,6 @@
 
 #### [给侥幸老百姓一封哀的美敦书](/content/gnews/2444009.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [泽连斯基谈马里乌波尔是废墟中的俄罗斯集中营](/content/gnews/2444001.md)
- `Shuizhuyu`
 
 #### [中共上海封城压力测试将尽，北京压力测试又起](/content/gnews/2443985.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
