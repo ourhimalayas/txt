@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p17rr1f9090.md)
+
+2022.04.30  新中国联邦 | 喜健康   美国执业心理医生麦可专访
+
+<img src="https://media.gettr.com/group13/origin/2022/04/09/20/2d54ea9f-7bd6-3481-5ec2-1c064ebb1b4e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 8:06 PM UTC ](/content/gettr/p17r2rxc344.md)
 
 4月30号：尊敬的战友们好……无数的事实都在告诉我们，人类将用生命的代价．来换来一个大家都知道的答案……疫苗是真正的这场大病毒灾难……【七哥好！今天早上參加完一個葬禮，三針疫苗，突然發現癌症，晚期，一個月就走了。和墓地管理公司的老闆聊了一會兒，得知新冠病毒以來，當地死亡人數增加了30%（規模大到可以代表當地的整體數字）。我告訴他，做好準備，疫苗災難剛剛開始。他深信不移，因為他也知道羥氯奎、伊維菌素。我也告訴了他，疫苗有解藥，等我們消滅了共產黨之後，大家就會知...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/30/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p17rr1f9090.md)
+[@miles 4/30/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p17rite477b.md)
 
-2022.04.30  新中国联邦 | 喜健康   美国执业心理医生麦可专访
+Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agency for Israel, the most influential organization in the world and the most important driving force behind Israel's founding in 1929. David Ben-Gurion, p...
 
-<img src="https://media.gettr.com/group13/origin/2022/04/09/20/2d54ea9f-7bd6-3481-5ec2-1c064ebb1b4e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/04/30/21/039a558e-d2a2-ecdb-b2cb-e5ec61e42396/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolu
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group21/origin/2022/04/30/07/2eac8972-77a5-4f2a-70a7-5cb07295c3e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 5:23 AM UTC  - :tv:直播](/content/gettr/p17p4c9efe9.md)
-
-4/29/2022 Ukraine Rescue: The Israeli rescue organization One Heart says it stands firmly with the New Federal State of China and recognizes that the New Federal State of China represents the Chinese people. Historically, both Chin...
-
-<img src="https://media.gettr.com/group8/getter/2022/04/30/05/68164b46-fbf1-7a29-cd6a-2750d7f0231d/out.jpg" width="506" height="284">
 
 ---
 
