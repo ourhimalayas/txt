@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 8:22 AM UTC  - :tv:直播](/content/gettr/p17p9m7d660.md)
+
+4/28/2022 Miles Guo: Buying Twitter might not necessarily be good for Elon Musk, but it is good for our Whistleblowers’ Movement. Not only do our fellow fighters want to invest in GETTR's stocks, but Liu He’s buddy also wants to ho...
+
+<img src="https://media.gettr.com/group21/getter/2022/04/30/08/7821e8c0-a546-e156-ca56-717f2f61446c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 7:59 AM UTC  - :tv:直播](/content/gettr/p17p1nv5d99.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 4/30/2022 8:22 AM UTC  - :tv:直播](/content/gettr/p17p9m7d660.md)
+[@miles 4/30/2022 8:43 AM UTC  - :tv:直播](/content/gettr/p17ox4jf7fa.md)
 
-4/28/2022 Miles Guo: Buying Twitter might not necessarily be good for Elon Musk, but it is good for our Whistleblowers’ Movement. Not only do our fellow fighters want to invest in GETTR's stocks, but Liu He’s buddy also wants to ho...
+Jason Miller talks about the soon coming secret weapons of Gettr: sharper resolution of the dashboard, live streaming for all verified users, Vision short videos, DMs, video projection to TV screen, Gettr pay, attention tokens (cry...
 
-<img src="https://media.gettr.com/group21/getter/2022/04/30/08/7821e8c0-a546-e156-ca56-717f2f61446c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/04/30/08/a1e5cfd1-586a-eb76-f20f-190b5c0d3be0/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 4/29/2022 Miles Guo’s GETTR: Liao Guoxun, the mayor of Tianjin, was executed; a bunch of people got arrested this morning, including those who worked at the Ministry of Railways, Customs Office, Wang Qishan’s buddies at PBOC, and H...
 
 <img src="https://media.gettr.com/group5/getter/2022/04/29/23/2f62b7eb-8985-db74-15d7-f7ad14b63550/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17myxga269.md)
-
-2022.04.29  PM NFSC news   The Yellow Vests of helps International Friends Understand NFSC Citizens
-
-<img src="https://media.gettr.com/group28/origin/2022/04/29/22/52e4d54c-b7b3-4bc4-93ab-1e4faf0d7295/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
