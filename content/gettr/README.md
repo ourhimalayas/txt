@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p17q02ada21.md)
+
+2022.04.30早  新中国联邦 | 新闻
+
+<img src="https://media.gettr.com/group45/origin/2022/04/30/12/7b471b27-3cee-5635-f5be-ca108eb98eaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p17q1gn240c.md)
 
 2022.04.30  AM NFSC news   Ukraine Rescue Operation Update; Updates on the Russia-Ukraine War Today 
@@ -10,11 +18,35 @@
 
 ---
 
-[@miles 4/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p17q02ada21.md)
+[@miles 4/30/2022 12:38 PM UTC ](/content/gettr/p17pygi0458.md)
 
-2022.04.30早  新中国联邦 | 新闻
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group45/origin/2022/04/30/12/7b471b27-3cee-5635-f5be-ca108eb98eaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年4月29日第56天当日救援统计：
+
+Medyka救援站接待：约242人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约15470人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 56 - Date: A...
+
+<img src="https://media.gettr.com/group36/getter/2022/04/30/12/7bb8ab57-0eff-f3ad-7321-1371dd4737fc/10501f60de92d9387a22711345a0406c.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +193,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 2022.04.29  晚 新中国联邦 | 新闻   莫桑比克志愿者：表达观点 绝不等于政治宣传；新中国联邦接受Alhurra电视台采访
 
 <img src="https://media.gettr.com/group15/origin/2022/04/30/00/bd4f8fc5-c1db-c527-71b5-3f99a4798fc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 11:52 PM UTC  - :tv:直播](/content/gettr/p17o3r92e31.md)
-
-2022.04.29 NFSC fringe episode 180
-
-中文同传：https://gettr.com/streaming/p17nv7gb806
-
-<img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
