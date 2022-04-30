@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p17o69l6d9d.md)
+
+2022-4-29《鸡血王喜币大作战》 第一百八十集 嘉宾：青藤、风雨之中
+
+<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p17nojw3d02.md)
 
 2022.04.29  新中国联邦 | 喜财经    中共國內外疲軟 習近平下令：今年GDP要擊敗美國
@@ -44,11 +52,11 @@
 
 ---
 
-[@miles 4/30/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p17o69l6d9d.md)
+[@miles 4/30/2022 3:40 AM UTC  - :tv:直播](/content/gettr/p17op4x8863.md)
 
-2022-4-29《鸡血王喜币大作战》 第一百八十集 嘉宾：青藤、风雨之中
+Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel likes the New Federal State of China (NFSC) hat very much and is happy wearing it. When asked about his thoughts about our mission to take down the CC...
 
-<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/04/30/03/de8ecbf8-6b61-6347-a417-9e512a18eacb/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Day 55 - Date: A...
 【Ukraine Rescue】04/27/2022 A Polish man at NFSC’s Ukraine rescue tent: It took 30 years in Poland to get rid of the communist poison after the communist regime broke down.  Communists do not allow average people to live their norma...
 
 <img src="https://media.gettr.com/group6/getter/2022/04/29/14/b53a5cd9-74a6-6cfb-3964-b63347fc15e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 2:07 PM UTC  - :tv:直播](/content/gettr/p17l79de01e.md)
-
- 4月29号：尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！
-
-<img src="https://media.gettr.com/group39/getter/2022/04/29/14/f74e6800-b051-840e-0ee9-57691e10b975/out.jpg" width="506" height="284">
 
 ---
 
