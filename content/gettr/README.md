@@ -50,13 +50,11 @@ Day 56 - Date: A...
 
 ---
 
-[@rwmalonemd 4/29/2022 2:09 PM UTC ](/content/gettr/p17lqkr2010.md)
+[@miles 4/30/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17qiwt0c2b.md)
 
-Hate saying “I told you so”
+2022.04.30  早 新中国联邦 | 新闻访谈   朱茂元的启示；330亿对乌援助；同期其他的案件
 
-
-
-https://www.nature.com/articles/s41598-022-10928-z
+<img src="https://media.gettr.com/group34/origin/2022/04/30/13/43503f9d-93ed-4bae-e195-bbc8519f74bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
