@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 7:59 AM UTC  - :tv:直播](/content/gettr/p17p1nv5d99.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group21/origin/2022/04/30/07/2eac8972-77a5-4f2a-70a7-5cb07295c3e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 5:17 AM UTC  - :tv:直播](/content/gettr/p17pjb2c983.md)
 
 4/29/2022 Ukraine Rescue: Fellow fighters came to Medyka to save lives while showing the world a new image of the new Chinese as peace-loving, compassionate, reasonable, and inclusive. Our rescue operation has received recognition ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/30/2022 7:59 AM UTC  - :tv:直播](/content/gettr/p17p1nv5d99.md)
+[@miles 4/30/2022 8:22 AM UTC  - :tv:直播](/content/gettr/p17p9m7d660.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+4/28/2022 Miles Guo: Buying Twitter might not necessarily be good for Elon Musk, but it is good for our Whistleblowers’ Movement. Not only do our fellow fighters want to invest in GETTR's stocks, but Liu He’s buddy also wants to ho...
 
-<img src="https://media.gettr.com/group21/origin/2022/04/30/07/2eac8972-77a5-4f2a-70a7-5cb07295c3e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/04/30/08/7821e8c0-a546-e156-ca56-717f2f61446c/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 2022.04.29  PM NFSC news   The Yellow Vests of helps International Friends Understand NFSC Citizens
 
 <img src="https://media.gettr.com/group28/origin/2022/04/29/22/52e4d54c-b7b3-4bc4-93ab-1e4faf0d7295/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/29/2022 10:05 PM UTC  - :tv:直播](/content/gettr/p17nj6hc04d.md)
-
-“单伟建” 飞飞秀救援快报 2022-04-29
-
-For English：gettr.com/streaming/p17nnhi6f0
-
-<img src="https://media.gettr.com/group49/origin/2022/04/29/22/752552ab-ca14-32ad-8a36-04c0096f851b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
