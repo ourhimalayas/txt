@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p17nojw3d02.md)
+
+2022.04.29  新中国联邦 | 喜财经    中共國內外疲軟 習近平下令：今年GDP要擊敗美國
+
+<img src="https://media.gettr.com/group36/origin/2022/04/30/02/396af10c-e010-7f4e-e248-cac90e26b375/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 1:46 AM UTC  - 3圖](/content/gettr/p17nwrz6e2b.md)
 
  4月29号：愿所有的中国同胞们早日能醒来……不要让邪恶的中国共产党……继续祸害我们的下三代的未来子孙了……无论是今天的上海．和昨天的香港🇭🇰和明天的台湾．和过去的文化大革命……都是他们犯下的滔天大罪的证据．共产党不灭中国人民和世界人民．不会有安全和健康美好的未来……永远都不会。
@@ -36,21 +44,11 @@
 
 ---
 
-[@miles 4/29/2022 11:41 PM UTC  - :tv:直播](/content/gettr/p17nscv80c9.md)
+[@miles 4/30/2022 3:00 AM UTC  - :tv:直播](/content/gettr/p17o69l6d9d.md)
 
-2022.04.29 NFSC fringe episode 180
+2022-4-29《鸡血王喜币大作战》 第一百八十集 嘉宾：青藤、风雨之中
 
-中文同传：https://gettr.com/streaming/p17nsib05f7
-
-<img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p17nojw3d02.md)
-
-2022.04.29  新中国联邦 | 喜财经    中共國內外疲軟 習近平下令：今年GDP要擊敗美國
-
-<img src="https://media.gettr.com/group36/origin/2022/04/30/02/396af10c-e010-7f4e-e248-cac90e26b375/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/04/28/03/29e05201-d0e2-151d-be51-166f91d5cc72/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
