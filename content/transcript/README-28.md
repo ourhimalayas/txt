@@ -3,6 +3,8 @@
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/transcript/2019/05/20190508-7522402504104525602.md)
+
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/transcript/2019/05/20190507-3556468867911732041.md)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/transcript/2019/05/20190505-8215359128431540656.md)
@@ -50,8 +52,6 @@
 [文字版：2019年4月2日郭文贵先生报平安](/content/transcript/2019/04/20190403-7393706925448798261.md)
 
 [文字版：2019年3月29日郭文贵先生浴火重生](/content/transcript/2019/03/20190330-2880102853633751402.md)
-
-[文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/transcript/2019/03/20190306-7214667164782949477.md)
 
 
 ## 頁面 28/42 [**<**](/content/transcript/README-27.md) [1](/content/transcript/README.md) ... [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) **28** [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-29.md) [查看全部](/content/transcript/README-all.md)

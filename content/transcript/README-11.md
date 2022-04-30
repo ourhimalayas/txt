@@ -3,6 +3,8 @@
 
 ## 頁面 11/42 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)
 
+[全文字版2021年6月4日郭文贵先生G-TV直播](/content/transcript/2021/06/20210604-1301563.md)
+
 [全文字版2021年5月30日郭文贵先生G-TV直播](/content/transcript/2021/05/20210530-1285961.md)
 
 [全文字版2021年5月27日郭文贵先生G-TV直播:新中国联邦拯救了世界](/content/transcript/2021/05/20210527-1277441.md)
@@ -50,8 +52,6 @@
 [文字版2021年1月10日郭先生GTV直播](/content/transcript/2021/01/20210110-769545.md)
 
 [文字版2021年1月7日郭先生GTV直播](/content/transcript/2021/01/20210107-769489.md)
-
-[文字版2021年1月4日郭先生GTV直播](/content/transcript/2021/01/20210104-729873.md)
 
 
 ## 頁面 11/42 [**<**](/content/transcript/README-10.md) [1](/content/transcript/README.md) ... [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) [10](/content/transcript/README-10.md) **11** [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-12.md) [查看全部](/content/transcript/README-all.md)

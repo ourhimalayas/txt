@@ -3,6 +3,8 @@
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/transcript/2018/04/20180418-2729532853787239400.md)
+
 [美国新闻关于郭先生的报道的收集](/content/transcript/2018/04/20180418-2688604786049331221.md)
 
 [逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国](/content/transcript/2018/04/20180418-745923463937073308.md)
@@ -50,8 +52,6 @@
 [2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/transcript/2018/04/20180418-1721457250505894859.md)
 
 [文贵9月15日直播第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习主席，党中央！](/content/transcript/2018/04/20180418-3737775031867528364.md)
-
-[2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱](/content/transcript/2018/04/20180418-4181709165210679355.md)
 
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)

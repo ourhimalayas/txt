@@ -3,6 +3,8 @@
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/content/transcript/2019/10/20191028-4834533128406187922.md)
+
 [文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/transcript/2019/10/20191028-9024076555776316516.md)
 
 [文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/content/transcript/2019/10/20191025-642685838159792507.md)
@@ -50,8 +52,6 @@
 [文字版：2019年9月24日郭文貴先生和江財神路德三人談政治經濟愛情以及外星人！妄圖彈劾總統是好事！](/content/transcript/2019/09/20190927-5347503096158314507.md)
 
 [文字版：9月24日 郭文贵先生直播 红烧肉真香，CCP给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级别分配，美女当小三，帅哥当领导夫人](/content/transcript/2019/09/20190927-2016233729904353338.md)
-
-[文字版：2019年9月22日郭文贵先生直播 CCP突發三大戰役挑戰全球，妄圖共產天下，垂死掙扎](/content/transcript/2019/09/20190924-48639377592397821.md)
 
 
 ## 頁面 23/42 [**<**](/content/transcript/README-22.md) [1](/content/transcript/README.md) ... [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) **23** [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-24.md) [查看全部](/content/transcript/README-all.md)

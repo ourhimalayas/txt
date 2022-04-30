@@ -3,6 +3,8 @@
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/transcript/2020/03/20200325-1518205290434863780.md)
+
 [文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/content/transcript/2020/03/20200325-7072048714867304434.md)
 
 [文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/transcript/2020/03/20200323-7421159796736318134.md)
@@ -50,8 +52,6 @@
 [文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/transcript/2020/02/20200216-8326399150836754935.md)
 
 [文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/transcript/2020/02/20200214-4470688033484197678.md)
-
-[文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/transcript/2020/02/20200212-3562611532085874008.md)
 
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

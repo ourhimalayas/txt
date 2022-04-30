@@ -3,6 +3,8 @@
 
 ## 頁面 42/42 [**<**](/content/transcript/README-41.md) [1](/content/transcript/README.md) ... [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) **42** [查看全部](/content/transcript/README-all.md)
 
+[2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱](/content/transcript/2018/04/20180418-4181709165210679355.md)
+
 [文贵9月13日直播：姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？](/content/transcript/2018/04/20180418-4709479553029497905.md)
 
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/transcript/2018/04/20180418-2681102089407913933.md)
