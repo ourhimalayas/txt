@@ -2,6 +2,24 @@
 ---
 
 
+#### [俄乌战争每天都在改变着世界](/content/gnews/2440245.md)
+ `雅典娜GNotes`
+
+#### [中国的粮食食品危机，食物链彻底完蛋](/content/gnews/2440236.md)
+ `雅典娜GNotes`
+
+#### [只有消灭中国共产党，中国人才能活下去，中国人才能真真正正的活得好](/content/gnews/2440235.md)
+ `雅典娜GNotes`
+
+#### [中国经济核心的问题是所有的金融系统真撑不住了](/content/gnews/2440230.md)
+ `雅典娜GNotes`
+
+#### [2022年4月30日《樱花快报》：台湾累计感染中共病毒人数突破10万！](/content/gnews/2440225.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [这不是政治斗争，这是政治运动](/content/gnews/2440222.md)
+ `雅典娜GNotes`
+
 #### [嘉宾谈区块链技术及应用（一）](/content/gnews/2440221.md)
  `雅典娜GNotes`
 
@@ -20,12 +38,6 @@
 #### [分布式记账的数字货币系统必将取代法币](/content/gnews/2440203.md)
  `雅典娜GNotes`
 
-#### [战友对喜币喜联储的区块链技术分享（四）](/content/gnews/2440202.md)
- `雅典娜GNotes`
-
-#### [独裁者的屠杀从未停止（二）](/content/gnews/2440186.md)
- `雅典娜GNotes`
-
 #### [当民主党人感染新冠病毒时，他们都必须背诵批准的角本](/content/gnews/2440157.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -35,20 +47,11 @@
 #### [五年前419没报的王岐山的秘密](/content/gnews/2440087.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [20220429郭文贵大直播 ：（PPT）生存归于正义，毁灭归于邪恶](/content/gnews/2440082.md)
- `Tokyo Sakura Video Group`
-
-#### [20220429郭文贵大直播 ：Eglise说明共产党疫苗杀人武器，核酸是骗局，疫苗副作用、灾难正在来临](/content/gnews/2440078.md)
- `Tokyo Sakura Video Group`
-
 #### [COVID-19疫苗副作用集萃(2022.4.30B)&#8211;三针疫苗，每打一针都出现副作用](/content/gnews/2440050.md)
  `墨尔本雅典娜农场`
 
-#### [鼓励投资喜币，别鼠目寸光，别在拿回SEC钱上出错](/content/gnews/2439876.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【G时新闻】海外维吾尔人遭中共政府围剿](/content/gnews/2439841.md)
- `G-时新闻`
+#### [大直播后记：新中国联邦展示新形象](/content/gnews/2439996.md)
+ `雅典娜GNotes`
 
 #### [谈古论今 ┃ 拒绝病毒疫苗，珍惜你的先天免疫系统](/content/gnews/2439809.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -70,9 +73,6 @@
 
 #### [比特币成为中非共和国的官方货币](/content/gnews/2439354.md)
  `西班牙巴塞罗那喜悦农场`
-
-#### [英国派出军队参与欧洲防御部署](/content/gnews/2439331.md)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [五月花简报（29/04/2022）](/content/gnews/2439259.md)
  `mayflowertranslate`
