@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 1:46 AM UTC  - 3圖](/content/gettr/p17nwrz6e2b.md)
+
+ 4月29号：愿所有的中国同胞们早日能醒来……不要让邪恶的中国共产党……继续祸害我们的下三代的未来子孙了……无论是今天的上海．和昨天的香港🇭🇰和明天的台湾．和过去的文化大革命……都是他们犯下的滔天大罪的证据．共产党不灭中国人民和世界人民．不会有安全和健康美好的未来……永远都不会。
+
+<img src="https://media.gettr.com/group18/getter/2022/04/30/01/4ab89ccc-c181-8878-ddcb-ff805d7ef327/d2669d964078f02a1715fbbcc105350e.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p17nqjg5028.md)
 
 2022.04.29  晚 新中国联邦 | 新闻访谈    上海，北京，广州相继沦陷；多种数字货币动作频繁
@@ -38,11 +46,11 @@
 
 ---
 
-[@miles 4/30/2022 1:46 AM UTC  - 3圖](/content/gettr/p17nwrz6e2b.md)
+[@miles 4/30/2022 2:09 AM UTC  - :tv:直播](/content/gettr/p17nojw3d02.md)
 
- 4月29号：愿所有的中国同胞们早日能醒来……不要让邪恶的中国共产党……继续祸害我们的下三代的未来子孙了……无论是今天的上海．和昨天的香港🇭🇰和明天的台湾．和过去的文化大革命……都是他们犯下的滔天大罪的证据．共产党不灭中国人民和世界人民．不会有安全和健康美好的未来……永远都不会。
+2022.04.29  新中国联邦 | 喜财经    中共國內外疲軟 習近平下令：今年GDP要擊敗美國
 
-<img src="https://media.gettr.com/group18/getter/2022/04/30/01/4ab89ccc-c181-8878-ddcb-ff805d7ef327/d2669d964078f02a1715fbbcc105350e.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/04/30/02/396af10c-e010-7f4e-e248-cac90e26b375/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Day 55 - Date: A...
  4月29号：尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！
 
 <img src="https://media.gettr.com/group39/getter/2022/04/29/14/f74e6800-b051-840e-0ee9-57691e10b975/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 12:49 PM UTC  - :tv:直播](/content/gettr/p17liyeb409.md)
-
-2022年4月29日 文贵大直播：认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来
-
-<img src="https://media.gettr.com/group48/origin/2022/04/29/12/629de1f6-9177-5545-aee8-c2c1dd258507/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
