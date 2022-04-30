@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 4/30/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p17p9l16dc5.md)
+[@miles 4/30/2022 7:59 AM UTC  - :tv:直播](/content/gettr/p17p1nv5d99.md)
 
-4/29/2022 Ukraine Rescue: Wenyiao: In the Ukraine rescue camp of the New Federal State of China , more and more organizations and individuals from all over the world have learnt that the new Chinese are the group of people who are ...
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-<img src="https://media.gettr.com/group6/getter/2022/04/30/05/10489ced-2016-dc92-f23f-d5fcedb03726/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/04/30/07/2eac8972-77a5-4f2a-70a7-5cb07295c3e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 4/29/2022 Ukraine Rescue: The Israeli rescue organization One Heart says it stands firmly with the New Federal State of China and recognizes that the New Federal State of China represents the Chinese people. Historically, both Chin...
 
 <img src="https://media.gettr.com/group8/getter/2022/04/30/05/68164b46-fbf1-7a29-cd6a-2750d7f0231d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 5:03 AM UTC  - :tv:直播](/content/gettr/p17p9l16dc5.md)
+
+4/29/2022 Ukraine Rescue: Wenyiao: In the Ukraine rescue camp of the New Federal State of China , more and more organizations and individuals from all over the world have learnt that the new Chinese are the group of people who are ...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/30/05/10489ced-2016-dc92-f23f-d5fcedb03726/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 2022.04.29  PM NFSC news   The Yellow Vests of helps International Friends Understand NFSC Citizens
 
 <img src="https://media.gettr.com/group28/origin/2022/04/29/22/52e4d54c-b7b3-4bc4-93ab-1e4faf0d7295/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@realcolidora 4/27/2022 8:16 AM UTC ](/content/gettr/p179qfq6335.md)
-
-它们没有土地时，地主是违法的，它们拥有土地时就合法了； 没有资本时，资本家是违法的，它们拥有资本时就合法了； 在野时，独裁、专制是违法的，他们执政时这些就合法了； 没枪时，人民有枪是合法的，它们有枪时人民有枪就违法了； 夺取政权时，民主、宪政、自由是合法的，它们坐江山时这些就违法了。
-
-<img src="https://media.gettr.com/group36/getter/2022/04/27/08/0ff6a8bb-b10f-1663-e2d2-efd732be293f/c12582f7b0fefa6d96c466bdc5e6d91c.jpg" width="506" height="284">
 
 ---
 
