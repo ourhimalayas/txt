@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p17nqjg5028.md)
+
+2022.04.29  晚 新中国联邦 | 新闻访谈    上海，北京，广州相继沦陷；多种数字货币动作频繁
+
+<img src="https://media.gettr.com/group25/origin/2022/04/30/01/62f72d0a-c258-baa7-f29c-2ecae5468e59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 12:40 AM UTC  - :tv:直播](/content/gettr/p17nraw4528.md)
 
 2022.04.29  晚 新中国联邦 | 新闻   莫桑比克志愿者：表达观点 绝不等于政治宣传；新中国联邦接受Alhurra电视台采访
@@ -30,11 +38,11 @@
 
 ---
 
-[@miles 4/30/2022 1:05 AM UTC  - :tv:直播](/content/gettr/p17nqjg5028.md)
+[@miles 4/30/2022 1:46 AM UTC  - 3圖](/content/gettr/p17nwrz6e2b.md)
 
-2022.04.29  晚 新中国联邦 | 新闻访谈    上海，北京，广州相继沦陷；多种数字货币动作频繁
+ 4月29号：愿所有的中国同胞们早日能醒来……不要让邪恶的中国共产党……继续祸害我们的下三代的未来子孙了……无论是今天的上海．和昨天的香港🇭🇰和明天的台湾．和过去的文化大革命……都是他们犯下的滔天大罪的证据．共产党不灭中国人民和世界人民．不会有安全和健康美好的未来……永远都不会。
 
-<img src="https://media.gettr.com/group25/origin/2022/04/30/01/62f72d0a-c258-baa7-f29c-2ecae5468e59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/04/30/01/4ab89ccc-c181-8878-ddcb-ff805d7ef327/d2669d964078f02a1715fbbcc105350e.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Day 55 - Date: A...
 2022年4月29日 文贵大直播：认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来
 
 <img src="https://media.gettr.com/group48/origin/2022/04/29/12/629de1f6-9177-5545-aee8-c2c1dd258507/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p17kv3l1754.md)
-
-2022.04.29  新中国联邦 | 军情室  今日军事热点最新战情动态，马里乌波尔最后的钢铁壁垒，中共坦克继承俄式坦克缺陷
-
-<img src="https://media.gettr.com/group31/origin/2022/04/29/10/a8eebcb4-244c-c188-e7c9-8409cf7fb349/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
