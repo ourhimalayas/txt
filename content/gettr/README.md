@@ -10,11 +10,27 @@
 
 ---
 
+[@miles 4/30/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p17rxxc5e30.md)
+
+2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p17rtmj1bf4.md)
 
 4/30/2022 Miles Guo’s GETTR: Given such an abysmal situation in the economy, the CCP is still falsely claiming that its GDP growth rate is 6.8% or 4.6%! This is pure BS! There will be more bad luck for anyone who doesn't know the e...
 
 <img src="https://media.gettr.com/group38/getter/2022/04/30/23/5a3a5cea-7702-c07f-05f4-c7f722254f7d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p17s8ce255e.md)
+
+4/30/2022 Miles Guo’s GETTR: Apple, Amazon LLC and other major corporations’ yearly reports revealed one thing - this disaster has started. Miles Guo said many years ago that 2022 is the darkest year of humanity, the year of COVID ...
+
+<img src="https://media.gettr.com/group9/getter/2022/04/30/23/ec8f34a2-8ef8-84ea-ac52-0abbf6681fbb/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,14 +89,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 2022-4-30《避风港》（42）新冠疫苗——儿童祭
 
 <img src="https://media.gettr.com/group27/origin/2022/04/30/18/97947fc1-7aa5-c652-51df-8afd1614c89a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p17s8ce255e.md)
-
-4/30/2022 Miles Guo’s GETTR: Apple, Amazon LLC and other major corporations’ yearly reports revealed one thing - this disaster has started. Miles Guo said many years ago that 2022 is the darkest year of humanity, the year of COVID ...
-
-<img src="https://media.gettr.com/group9/getter/2022/04/30/23/ec8f34a2-8ef8-84ea-ac52-0abbf6681fbb/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 56 - Date: A...
 
 <img src="https://media.gettr.com/group36/getter/2022/04/30/12/7bb8ab57-0eff-f3ad-7321-1371dd4737fc/10501f60de92d9387a22711345a0406c.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 12:29 PM UTC  - :tv:直播](/content/gettr/p17q02ada21.md)
-
-2022.04.30早  新中国联邦 | 新闻
-
-<img src="https://media.gettr.com/group45/origin/2022/04/30/12/7b471b27-3cee-5635-f5be-ca108eb98eaa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
