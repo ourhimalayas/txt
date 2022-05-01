@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 4:07 PM UTC ](/content/gettr/p17vsbc0a2d.md)
+
+5月1号：尊敬的战友们好！郑琪，赵丽贞．就是这两个人当年要杀害七哥的……美国的法律最终会将他们绳之以法！
+
+<img src="https://media.gettr.com/group49/getter/2022/05/01/16/cbba07b7-ccde-8156-217d-4003582f2078/3750ea0b79ad39bdd49f6999814935a3.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p17ujt39451.md)
 
 【Ukraine Rescue】04/29/2022 Russian university student Natasha joins other young Ukrainians to work with Ukrainian refugees. She says that speaking out for justice in the face of evil outweighs her fear of Putin. So she understands ...
@@ -66,11 +74,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 4:07 PM UTC ](/content/gettr/p17vsbc0a2d.md)
+[@miles 5/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p17vegpebbf.md)
 
-5月1号：尊敬的战友们好！郑琪，赵丽贞．就是这两个人当年要杀害七哥的……美国的法律最终会将他们绳之以法！
+Volunteers with different nationalities from all over the world met at Medyka-the polish and Ukrainian border.They gathered inside and outside of the NFSC tents sipping the delicious coffee brewed with love. During the interview, t...
 
-<img src="https://media.gettr.com/group49/getter/2022/05/01/16/cbba07b7-ccde-8156-217d-4003582f2078/3750ea0b79ad39bdd49f6999814935a3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/05/01/16/657586fa-1dc6-c0a0-22f6-e73841c36ed5/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 11:20 PM UTC  - :tv:直播](/content/gettr/p17rtmj1bf4.md)
-
-4/30/2022 Miles Guo’s GETTR: Given such an abysmal situation in the economy, the CCP is still falsely claiming that its GDP growth rate is 6.8% or 4.6%! This is pure BS! There will be more bad luck for anyone who doesn't know the e...
-
-<img src="https://media.gettr.com/group38/getter/2022/04/30/23/5a3a5cea-7702-c07f-05f4-c7f722254f7d/out.jpg" width="506" height="284">
 
 ---
 
