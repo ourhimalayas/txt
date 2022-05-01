@@ -16,14 +16,6 @@
 
 ---
 
-[@miles 5/1/2022 6:58 PM UTC  - :tv:直播](/content/gettr/p17waim2763.md)
-
- 5月1号：尊敬的战友们好……衷心地感谢．今天参与直播和背后默默的无私的贡献的所有的战友们，今天将是全球人类走向一个新的时代的开始……
-
-<img src="https://media.gettr.com/group10/getter/2022/05/01/18/2ebd1564-bea6-ad67-e622-ff98f0a37bb4/out.jpg" width="506" height="284">
-
----
-
 [@himalayaathena 5/1/2022 1:25 PM UTC ](/content/gettr/p17v33ta16c.md)
 
 一筹莫展 中共召集所有银行商讨海外资产免受制裁
