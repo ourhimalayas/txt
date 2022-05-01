@@ -2,41 +2,47 @@
 ---
 
 
-#### [20220501郭文贵大直播 ：新中国联邦人必须要做到的三点](/content/gnews/2450819.md)
+#### [20220501郭文贵大直播 ：第四个感受，国内体制内社会上各个领域很多人觉醒过来](/content/gnews/2450941.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：第三个感受，新中国联邦深入人心](/content/gnews/2450928.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：第二个感受 新中国联邦全方位受到全世界关注](/content/gnews/2450917.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：为什么中国取钱限额](/content/gnews/2450903.md)
+ `Tokyo Sakura Video Group`
+
+#### [COVID-19疫苗副作用集萃（2022.5.1D）&#8211;打了新冠疫苗第三针出现右边脸面瘫](/content/gnews/2450902.md)
+ `墨尔本雅典娜农场`
+
+#### [20220501郭文贵大直播 ：希望被救助的战友能够感恩 救助的战友不图回报](/content/gnews/2450883.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：中国经济已经瘫痪妄图搞内循环 即将进入畜奴时代](/content/gnews/2450871.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：七哥对国内同胞的忠告 过去拥有的将会失去 要行动起来](/content/gnews/2450867.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：中共已经开始提倡挨饿精神，开始限制人员出入境](/content/gnews/2450859.md)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：打过疫苗的人的血液用于输血是次生灾害，中共关键部门和个别地区却禁止打疫苗以做后备](/content/gnews/2450848.md)
  `Tokyo Sakura Video Group`
 
 #### [20220501郭文贵大直播 ：在未来中共国活着将成为唯一希望](/content/gnews/2450807.md)
  `Tokyo Sakura Video Group`
 
-#### [20220501郭文贵大直播 ：七哥五个感受之一，中共已成功地把中国搞成了畜奴社会](/content/gnews/2450788.md)
- `Tokyo Sakura Video Group`
-
 #### [2022年5月1日 文贵大直播 速记精萃](/content/gnews/2450766.md)
  `雅典娜GNotes`
-
-#### [20220501郭文贵大直播 ：中美恢复新的贸易伙伴关系的内幕](/content/gnews/2450758.md)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：郭先生419的直播不被美国西方媒体封杀 乌克兰的灾难或许能避免](/content/gnews/2450737.md)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：毒疫苗的解药青蒿素 广泛地使用还是非常难 但新中国联邦人近水楼台](/content/gnews/2450735.md)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：胡佛研究中心 费正清研究中心就是一帮骗子](/content/gnews/2450714.md)
- `Tokyo Sakura Video Group`
-
-#### [七架白俄罗斯国家航空公司贝拉维亚的飞机违反出口管制被美国制裁](/content/gnews/2450712.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [【G时新闻】普京抢劫乌克兰几十万吨粮食](/content/gnews/2450708.md)
  `G-时新闻`
 
-#### [20220501郭文贵大直播 ：习近平为了一统江山不惜灭藏，灭疆，灭回，灭蒙把全中国人变成畜奴！](/content/gnews/2450688.md)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：轴心法会在日本欧洲成为法律 更多国家消灭马克思社会主义](/content/gnews/2450665.md)
- `Tokyo Sakura Video Group`
+#### [俄海军使用乌克兰的海豚“军团”保护其黑海舰队](/content/gnews/2450625.md)
+ `mayflowertranslate`
 
 #### [2022年5月1日文贵大直播摘要及音频—银河系农场](/content/gnews/2450600.md)
  `喜马拉雅日本银河系农场`
@@ -92,9 +98,6 @@
 #### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（f）](/content/gnews/2450250.md)
  `西班牙巴塞罗那喜悦农场`
 
-#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（e）](/content/gnews/2450200.md)
- `西班牙巴塞罗那喜悦农场`
-
 #### [观察：佩洛西突访基辅确认“杀死普京”基调](/content/gnews/2450151.md)
  `蓝莲花农场`
 
@@ -103,9 +106,6 @@
 
 #### [文贵爆料 5.1：改朝换代后的中共国，活着就是一切](/content/gnews/2449945.md)
  `秘密翻译组-原创组`
-
-#### [截至5.1 俄乌战事汇总](/content/gnews/2449872.md)
- `秘密翻譯組G-Translators`
 
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回](/content/gnews/2449811.md)
  `秘密翻译组金融团队`
