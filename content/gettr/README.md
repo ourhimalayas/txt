@@ -2,6 +2,20 @@
 ---
 
 
+[@miles 5/1/2022 6:02 PM UTC ](/content/gettr/p17vgrzd980.md)
+
+ 5月1号：世界经济面临的最大的危机和挑战……
+
+---
+
+[@miles 5/1/2022 5:40 PM UTC  - 6圖](/content/gettr/p17vixlc6df.md)
+
+5月1号：尊敬的战友们好，这一连串的发生的事实……和历史的偶然性，是否能让我们找出一个基本的准确的答案呢？
+
+<img src="https://media.gettr.com/group17/getter/2022/05/01/17/3fe7fb88-77c8-37cf-8df2-ce5437552660/bd3e7bd7303e2dae367e6b7969648d76.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 5:15 PM UTC ](/content/gettr/p17vxhta494.md)
 
  5月1号：疫苗灾难真正的开始……这些都是偶然的吗？你能承受得了所谓这样的偶然事件吗？ 
@@ -12,11 +26,23 @@ https://twitter.com/kelly77720/status/1520617153191301121?s=12&t=lYTYZK3Calb86v7
 
 ---
 
-[@miles 5/1/2022 5:40 PM UTC  - 6圖](/content/gettr/p17vixlc6df.md)
+[@himalayaathena 5/1/2022 1:25 PM UTC ](/content/gettr/p17v33ta16c.md)
 
-5月1号：尊敬的战友们好，这一连串的发生的事实……和历史的偶然性，是否能让我们找出一个基本的准确的答案呢？
+一筹莫展 中共召集所有银行商讨海外资产免受制裁
 
-<img src="https://media.gettr.com/group17/getter/2022/05/01/17/3fe7fb88-77c8-37cf-8df2-ce5437552660/bd3e7bd7303e2dae367e6b7969648d76.jpg" width="506" height="284">
+2022年5月1日报道，中国监管机构已与国内外银行召开紧急会议，讨论如何保护该国的海外资产免受美国主导的制裁，类似于俄罗斯因入侵乌克兰而实施的制裁。
+
+
+
+中共官员们担心，如果发生地区性军事冲突或其他危机，可能会对北京采取同样的措施。
+
+
+
+在整个危机期间，中共主席习近平的政府一直坚定支持普京，但中国的银行和公司仍对与俄罗斯实体进行任何可能引发美国制裁的业务保持警惕。
+
+
+
+https://gnews.org...
 
 ---
 
@@ -167,22 +193,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 2022-4-30《鸡血王喜币大作战》 第一百八十一集 嘉宾：卡丽熙、Eric
 
 <img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p17syp5d49a.md)
-
-【Ukraine Rescue】04/29/2022 A Russian volunteer from Moscow says it's really important right now to show Ukrainians and show the world that we do not agree with what Putin is doing. We really want to support all Ukrainians. A lot of...
-
-<img src="https://media.gettr.com/group12/getter/2022/05/01/01/abd9c4a5-cc70-15e8-1cc6-706132007f1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17t108e0a8.md)
-
-2022.04.30  新中国联邦 | 喜财经    投资模拟器讲解   如何理解“GTV为王”  喜金融三驾马车
-
-<img src="https://media.gettr.com/group8/origin/2022/05/01/02/6a14ce22-8dbf-dd6b-924b-3980c0dcc5dd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
