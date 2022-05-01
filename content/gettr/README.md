@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ql0r86dd.md)
+
+2022.04.30 晚 新中国联邦 | 新闻     香港外债和贷款将爆大雷 中共的金融系统即将崩溃；中共党内又抓人 政治运动不断
+
+<img src="https://media.gettr.com/group28/origin/2022/05/01/00/dc8614c5-bd5c-03f1-12c3-68e02110aacf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 12:11 AM UTC  - :tv:直播](/content/gettr/p17slvr9d1f.md)
 
 4/30/2022 Miles Guo’s GETTR: I want to remind fellow fighters in mainland China that all the nightmares have yet begun. A prince from a Middle Eastern country sold all his investments in Communist China at 30% of the market prices ...
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/1/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ql0r86dd.md)
+[@miles 5/1/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17s4qm91b8.md)
 
-2022.04.30 晚 新中国联邦 | 新闻     香港外债和贷款将爆大雷 中共的金融系统即将崩溃；中共党内又抓人 政治运动不断
+2022.04.30 晚 新中国联邦 | 新闻访谈     美众议院通过评估习近平的干涉和颠覆法案：大陆全民核酸检测真是免费的吗？；小米因外汇违规被印度扣押 7.25 亿美元资产
 
-<img src="https://media.gettr.com/group28/origin/2022/05/01/00/dc8614c5-bd5c-03f1-12c3-68e02110aacf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/05/01/01/33998b7d-4bc6-057c-5ac5-4a1122a2f1cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 【Ukraine Rescue】04/26/2022Every Chinese who has fled China has a sad story to tell. Since the Chinese Communist Party seized power, it has been creating havoc and every generation has suffered from it. Nicole's parents were victims...
 
 <img src="https://media.gettr.com/group39/getter/2022/04/30/14/2ac7354b-6d0d-05b3-1c1f-e0ed85da582a/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 1:42 PM UTC  - :tv:直播](/content/gettr/p17qkoy6727.md)
-
-【Ukraine Rescue】04/26/2022An independent filmmaker from Australia, Elliot Goodyear, is planning to make a documentary on the Ukrainian rescue, and Nicole introduces him to a lot of what the NFSC is doing, but the mainstream media i...
-
-<img src="https://media.gettr.com/group12/getter/2022/04/30/13/4f8a662a-a937-cdd2-7f33-d4f0ff57f556/out.jpg" width="506" height="284">
 
 ---
 
