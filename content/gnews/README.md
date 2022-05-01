@@ -2,6 +2,12 @@
 ---
 
 
+#### [樱花时政┃美国立场强硬：除非拒绝普京 否则拜登或不出席20国峰会](/content/gnews/2448581.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃逝去的人们2](/content/gnews/2448577.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [知识、内容与结构：Gnews写作心得分享](/content/gnews/2448541.md)
  `澳喜特战旅Gnews`
 
@@ -22,9 +28,6 @@
 
 #### [荷兰义工谈新中国联邦的使命](/content/gnews/2448457.md)
  `韩国正道农场`
-
-#### [樱花时政┃佩洛西访突问基辅，与乌克兰总统举行会谈](/content/gnews/2448456.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共党内又抓人 政治运动不断](/content/gnews/2448455.md)
  `NFSC News`
@@ -127,9 +130,6 @@
 
 #### [「基辅之鬼」原来没死！真实身份：乌克兰人的超级英雄](/content/gnews/2447814.md)
  `蓝莲花农场`
-
-#### [俄乌战争之我见](/content/gnews/2447437.md)
- `墨尔本雅典娜农场`
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会](/content/gnews/2447420.md)
  `東京櫻花団-Tokyo Sakura Group`
