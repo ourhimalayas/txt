@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/1/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p17wn6zf8d7.md)
+
+“一颗棋子...” 飞飞秀救援快报 2022-05-01
+
+For English：gettr.com/streaming/p17wlkp8055
+
+<img src="https://media.gettr.com/group40/origin/2022/05/01/22/b3125ce2-bc95-0e8c-5d6b-cab212e5f390/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 8:47 PM UTC  - :tv:直播](/content/gettr/p17we0g5c2a.md)
 
 2022.05.01  新中国联邦 | 喜健康   五月疫苗大灾难之全球儿童爆发性肝炎：腺病毒还是疫苗灾难
@@ -10,13 +20,11 @@
 
 ---
 
-[@miles 5/1/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p17wn6zf8d7.md)
+[@miles 5/1/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17wog30736.md)
 
-“一颗棋子...” 飞飞秀救援快报 2022-05-01
+【Ukraine Rescue】04/30/2022  French volunteer Caroline: NFSC’s coffee is the best. The NFSC’s rescue team is very friendly. Taking down the Chinese Communist Party is necessary. She feels emotional at the solidarity and modesty of t...
 
-For English：gettr.com/streaming/p17wlkp8055
-
-<img src="https://media.gettr.com/group40/origin/2022/05/01/22/b3125ce2-bc95-0e8c-5d6b-cab212e5f390/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/05/01/22/d6caf349-49b8-a4a2-4b20-7a5cb2883c26/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Nicole interviewed a Dutch volunteer, he said that the global expansion of the C
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group46/origin/2022/05/01/07/bdf42e75-71dd-9cca-b600-86c4d4710575/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17to0eddae.md)
-
-Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of the Rule of Law Foundation and the New Federal State of China and our mission to take down the Chinese Communist Party (CCP). He said he didn't expect t...
-
-<img src="https://media.gettr.com/group36/origin/2022/05/01/06/7efd4eec-b673-1b87-c064-da44dabb81c5/out.jpg" width="506" height="284">
 
 ---
 
