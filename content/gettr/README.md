@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 12:11 AM UTC  - :tv:直播](/content/gettr/p17slvr9d1f.md)
+
+4/30/2022 Miles Guo’s GETTR: I want to remind fellow fighters in mainland China that all the nightmares have yet begun. A prince from a Middle Eastern country sold all his investments in Communist China at 30% of the market prices ...
+
+<img src="https://media.gettr.com/group4/getter/2022/05/01/00/31511192-532c-21cd-e150-0b96309de81d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p17rxxc5e30.md)
 
 2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/1/2022 12:11 AM UTC  - :tv:直播](/content/gettr/p17slvr9d1f.md)
+[@miles 5/1/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ql0r86dd.md)
 
-4/30/2022 Miles Guo’s GETTR: I want to remind fellow fighters in mainland China that all the nightmares have yet begun. A prince from a Middle Eastern country sold all his investments in Communist China at 30% of the market prices ...
+2022.04.30 晚 新中国联邦 | 新闻     香港外债和贷款将爆大雷 中共的金融系统即将崩溃；中共党内又抓人 政治运动不断
 
-<img src="https://media.gettr.com/group4/getter/2022/05/01/00/31511192-532c-21cd-e150-0b96309de81d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/origin/2022/05/01/00/dc8614c5-bd5c-03f1-12c3-68e02110aacf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 【Ukraine Rescue】04/26/2022An independent filmmaker from Australia, Elliot Goodyear, is planning to make a documentary on the Ukrainian rescue, and Nicole introduces him to a lot of what the NFSC is doing, but the mainstream media i...
 
 <img src="https://media.gettr.com/group12/getter/2022/04/30/13/4f8a662a-a937-cdd2-7f33-d4f0ff57f556/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 1:04 PM UTC  - :tv:直播](/content/gettr/p17qiwt0c2b.md)
-
-2022.04.30  早 新中国联邦 | 新闻访谈   朱茂元的启示；330亿对乌援助；同期其他的案件
-
-<img src="https://media.gettr.com/group34/origin/2022/04/30/13/43503f9d-93ed-4bae-e195-bbc8519f74bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
