@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/1/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p17slmtf095.md)
+
+2022-4-30《鸡血王喜币大作战》 第一百八十一集 嘉宾：卡丽熙、Eric
+
+<img src="https://media.gettr.com/group17/origin/2022/05/01/03/59a13cc6-17b4-c104-aa41-64188eba097e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17t108e0a8.md)
+
+2022.04.30  新中国联邦 | 喜财经    投资模拟器讲解   如何理解“GTV为王”  喜金融三驾马车
+
+<img src="https://media.gettr.com/group8/origin/2022/05/01/02/6a14ce22-8dbf-dd6b-924b-3980c0dcc5dd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17s4qm91b8.md)
 
 2022.04.30 晚 新中国联邦 | 新闻访谈     美众议院通过评估习近平的干涉和颠覆法案：大陆全民核酸检测真是免费的吗？；小米因外汇违规被印度扣押 7.25 亿美元资产
@@ -47,14 +63,6 @@
 4月30日：这还不是最坏的，只是刚刚开始！【「疯了，女子被关疯，家属抱头痛哭」  是什么造就了这一幕幕悲剧？ 是中国共产党！ 和中国人的懦弱！-】
 
 <img src="https://media.gettr.com/group31/getter/2022/04/30/23/fe70188b-dd17-09ee-f4ac-a1e1e90af4d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17t108e0a8.md)
-
-2022.04.30  新中国联邦 | 喜财经    投资模拟器讲解   如何理解“GTV为王”  喜金融三驾马车
-
-<img src="https://media.gettr.com/group8/origin/2022/05/01/02/6a14ce22-8dbf-dd6b-924b-3980c0dcc5dd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 【Ukraine Rescue】04/28/2022 In an interview with foreign media, fellow fighter Jing Liang says that the purpose of the NFSC rescue work is to show the world that Chinese people recognize humanitarian values, and are willing to live ...
 
 <img src="https://media.gettr.com/group10/getter/2022/04/30/15/3de33526-5de0-36e8-eff9-24dbc0d37970/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p17qvluf298.md)
-
- 4月30号：尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！
-
-<img src="https://media.gettr.com/group26/getter/2022/04/30/14/578e71a5-50b0-9748-3bc2-d9571754869c/out.jpg" width="506" height="284">
 
 ---
 
