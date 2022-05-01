@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p17wgww9851.md)
+
+2022.05.01  PM NFSC news   HK's External Debt to Implode; CCP's Financial System to Collapse
+
+<img src="https://media.gettr.com/group30/origin/2022/05/01/22/2ca74b5b-e224-fcef-a2b9-72bcffc918e0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p17wx8k091a.md)
+
+5/1/2022 Miles Guo: “Xi the God” and the CCP want a “change of dynasty” and take China into an era of imperial dynasty. This is a retrogression of civilization, and those who believe in the CCP will pay a dear price; Putin wants to...
+
+<img src="https://media.gettr.com/group36/getter/2022/05/01/23/7df6030f-2512-bc9d-b656-008757199dff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p17x5ui24f7.md)
+
+5/1/2022 Miles Guo: The Chinese Communist Party has successfully led the Chinese people into an animal-slave society! There is a complete moral bankruptcy. People are harming each other, and all they care about is to survive like a...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/01/23/993add13-e75b-bcaf-06e4-85ce5d702431/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17wog30736.md)
+
+【Ukraine Rescue】04/30/2022  French volunteer Caroline: NFSC’s coffee is the best. The NFSC’s rescue team is very friendly. Taking down the Chinese Communist Party is necessary. She feels emotional at the solidarity and modesty of t...
+
+<img src="https://media.gettr.com/group26/getter/2022/05/01/22/d6caf349-49b8-a4a2-4b20-7a5cb2883c26/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p17wn6zf8d7.md)
 
 “一颗棋子...” 飞飞秀救援快报 2022-05-01
@@ -20,11 +52,11 @@ For English：gettr.com/streaming/p17wlkp8055
 
 ---
 
-[@miles 5/1/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17wog30736.md)
+[@miles 5/1/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17wm594572.md)
 
-【Ukraine Rescue】04/30/2022  French volunteer Caroline: NFSC’s coffee is the best. The NFSC’s rescue team is very friendly. Taking down the Chinese Communist Party is necessary. She feels emotional at the solidarity and modesty of t...
+5/1/2022 Miles Guo: Mr. Guo shares with us his No. 2 feeling he has experienced lately. In his real life, he's got the feeling that the New Federal State of China and the Whistleblowers' Movement have received full attention from a...
 
-<img src="https://media.gettr.com/group26/getter/2022/05/01/22/d6caf349-49b8-a4a2-4b20-7a5cb2883c26/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/05/01/23/0ea32f9f-824b-8f74-91bf-a0deeac92076/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,38 +195,6 @@ Volunteers with different nationalities from all over the world met at Medyka-th
 【Ukraine Rescue】04/30/2022 On the front lines of Medica, the Polish and NFSC volunteers work together to rescue cats and dogs. The animals also have their own passports and are being sent to Poland. Meanwhile, our fellow Chinese in...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/01/12/533da6d5-bf10-b1e1-8f97-d7126d10c195/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 8:55 AM UTC  - :tv:直播](/content/gettr/p17u7p43820.md)
-
-The CCP has eroded American freedom and the rule of law and infiltrated the US judicial system, the economy, and the financial sector, and Shan Weijian's PAG has defrauded Americans of their pensions to invest in Communist China's ...
-
-<img src="https://media.gettr.com/group5/origin/2022/05/01/08/2699c727-fff5-b77a-35de-4a10d79e1bb3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17ttvq4396.md)
-
-Nicole interviewed a Dutch volunteer,  he admires the courage and wisdom of Mr. Miles Guo, who warned the Western world of the CCP's BGY plan as early as five years ago at the National Press Club in Washington, DC, USA. He said tha...
-
-<img src="https://media.gettr.com/group42/origin/2022/05/01/08/41200024-a8f6-d396-76ff-dfc3bf6d39d3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 7:45 AM UTC  - :tv:直播](/content/gettr/p17tqprbe71.md)
-
-Nicole interviewed a Dutch volunteer, he said that the global expansion of the CCP threatens the free world, and The CCP buys western politicians with money because of their greed for profits. The consequences are very serious, whi...
-
-<img src="https://media.gettr.com/group23/origin/2022/05/01/07/64bff9a7-008d-ca9c-db38-9f70a3639043/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p17tzad77c2.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group46/origin/2022/05/01/07/bdf42e75-71dd-9cca-b600-86c4d4710575/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
