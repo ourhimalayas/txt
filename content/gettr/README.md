@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/1/2022 2:03 AM UTC  - :tv:直播](/content/gettr/p17syp5d49a.md)
+
+【Ukraine Rescue】04/29/2022 A Russian volunteer from Moscow says it's really important right now to show Ukrainians and show the world that we do not agree with what Putin is doing. We really want to support all Ukrainians. A lot of...
+
+<img src="https://media.gettr.com/group12/getter/2022/05/01/01/abd9c4a5-cc70-15e8-1cc6-706132007f1d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17s4qm91b8.md)
+
+2022.04.30 晚 新中国联邦 | 新闻访谈     美众议院通过评估习近平的干涉和颠覆法案：大陆全民核酸检测真是免费的吗？；小米因外汇违规被印度扣押 7.25 亿美元资产
+
+<img src="https://media.gettr.com/group38/origin/2022/05/01/01/33998b7d-4bc6-057c-5ac5-4a1122a2f1cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ql0r86dd.md)
 
 2022.04.30 晚 新中国联邦 | 新闻     香港外债和贷款将爆大雷 中共的金融系统即将崩溃；中共党内又抓人 政治运动不断
@@ -34,11 +50,11 @@
 
 ---
 
-[@miles 5/1/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17s4qm91b8.md)
+[@miles 5/1/2022 2:06 AM UTC  - :tv:直播](/content/gettr/p17t108e0a8.md)
 
-2022.04.30 晚 新中国联邦 | 新闻访谈     美众议院通过评估习近平的干涉和颠覆法案：大陆全民核酸检测真是免费的吗？；小米因外汇违规被印度扣押 7.25 亿美元资产
+2022.04.30  新中国联邦 | 喜财经    投资模拟器讲解   如何理解“GTV为王”  喜金融三驾马车
 
-<img src="https://media.gettr.com/group38/origin/2022/05/01/01/33998b7d-4bc6-057c-5ac5-4a1122a2f1cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/05/01/02/6a14ce22-8dbf-dd6b-924b-3980c0dcc5dd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -132,27 +148,11 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 
 ---
 
-[@miles 4/30/2022 2:45 PM UTC  - :tv:直播](/content/gettr/p17qkzla3c7.md)
-
-新中国联邦｜真人真事 第51期 乌克兰救援特辑  华盛顿DC农场 精糧 For English: https://gettr.com/streaming/p17qv2abde1
-
-<img src="https://media.gettr.com/group28/origin/2022/04/30/14/ebd76415-cb1a-acff-aca3-d3d0d0a5c29b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 4/30/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p17qvluf298.md)
 
  4月30号：尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！
 
 <img src="https://media.gettr.com/group26/getter/2022/04/30/14/578e71a5-50b0-9748-3bc2-d9571754869c/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 2:00 PM UTC  - :tv:直播](/content/gettr/p17qhu4e7a7.md)
-
-【Ukraine Rescue】04/26/2022Every Chinese who has fled China has a sad story to tell. Since the Chinese Communist Party seized power, it has been creating havoc and every generation has suffered from it. Nicole's parents were victims...
-
-<img src="https://media.gettr.com/group39/getter/2022/04/30/14/2ac7354b-6d0d-05b3-1c1f-e0ed85da582a/out.jpg" width="506" height="284">
 
 ---
 
