@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p17ujt39451.md)
+
+【Ukraine Rescue】04/29/2022 Russian university student Natasha joins other young Ukrainians to work with Ukrainian refugees. She says that speaking out for justice in the face of evil outweighs her fear of Putin. So she understands ...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/01/12/b81d3a56-c8ca-5e7d-f372-bf91cdb22b70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 12:42 PM UTC  - :tv:直播](/content/gettr/p17ud5w4e05.md)
 
 2022年5月1日 文贵大直播：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
@@ -58,11 +66,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p17ujt39451.md)
+[@miles 5/1/2022 4:07 PM UTC ](/content/gettr/p17vsbc0a2d.md)
 
-【Ukraine Rescue】04/29/2022 Russian university student Natasha joins other young Ukrainians to work with Ukrainian refugees. She says that speaking out for justice in the face of evil outweighs her fear of Putin. So she understands ...
+5月1号：尊敬的战友们好！郑琪，赵丽贞．就是这两个人当年要杀害七哥的……美国的法律最终会将他们绳之以法！
 
-<img src="https://media.gettr.com/group17/getter/2022/05/01/12/b81d3a56-c8ca-5e7d-f372-bf91cdb22b70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/05/01/16/cbba07b7-ccde-8156-217d-4003582f2078/3750ea0b79ad39bdd49f6999814935a3.jpg" width="506" height="284">
 
 ---
 
@@ -135,14 +143,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17s2xyb17f.md)
-
-4月30日：这还不是最坏的，只是刚刚开始！【「疯了，女子被关疯，家属抱头痛哭」  是什么造就了这一幕幕悲剧？ 是中国共产党！ 和中国人的懦弱！-】
-
-<img src="https://media.gettr.com/group31/getter/2022/04/30/23/fe70188b-dd17-09ee-f4ac-a1e1e90af4d1/out.jpg" width="506" height="284">
 
 ---
 
