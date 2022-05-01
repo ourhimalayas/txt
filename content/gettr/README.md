@@ -2,6 +2,44 @@
 ---
 
 
+[@miles 5/1/2022 5:15 PM UTC ](/content/gettr/p17vxhta494.md)
+
+ 5月1号：疫苗灾难真正的开始……这些都是偶然的吗？你能承受得了所谓这样的偶然事件吗？ 
+
+
+
+https://twitter.com/kelly77720/status/1520617153191301121?s=12&t=lYTYZK3Calb86v7Gh6PCwQ
+
+---
+
+[@ahnewsfeed 5/1/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p17tw0jd8f4.md)
+
+复旦大学王德峰教授2014年振聋发聩的讲课，其中谈到的：
+
+今日之中国，整个民族没有精神家园，人与人之间信任危机蔓延至家庭内部，使中国社会处于解体的边缘。
+
+
+
+为什么？
+
+因为这个体制一开始就是错的，
+
+中国人民付了百年的代价在一条错误的路上越走越远，
+
+无法纠偏，唯有创出一条新的道路！
+
+<img src="https://media.gettr.com/group11/origin/2022/05/01/04/01033d32-04ad-8c11-78d5-f9cfbcdb8a6a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 4:52 PM UTC  - :tv:直播](/content/gettr/p17vo7u7c34.md)
+
+2022.05.01 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group49/origin/2022/05/01/16/27f013e3-9e75-5125-dbe3-f9b749ee9736/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p17vegpebbf.md)
 
 Volunteers with different nationalities from all over the world met at Medyka-the polish and Ukrainian border.They gathered inside and outside of the NFSC tents sipping the delicious coffee brewed with love. During the interview, t...
@@ -82,11 +120,21 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 4:52 PM UTC  - :tv:直播](/content/gettr/p17vo7u7c34.md)
+[@pangushixun 4/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p17qfcta746.md)
 
-2022.05.01 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+习近平手下
 
-<img src="https://media.gettr.com/group49/origin/2022/05/01/16/27f013e3-9e75-5125-dbe3-f9b749ee9736/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+黄万盛酒后吐真言
+
+
+
+#盘古时讯 
+
+#核酸 
+
+#不是健康问题 #政治问题
+
+<img src="https://media.gettr.com/group38/getter/2022/04/30/13/fe0a6a2f-b0c4-3aa6-92eb-1823e7092949/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,30 +183,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 2022.04.30 晚 新中国联邦 | 新闻访谈     美众议院通过评估习近平的干涉和颠覆法案：大陆全民核酸检测真是免费的吗？；小米因外汇违规被印度扣押 7.25 亿美元资产
 
 <img src="https://media.gettr.com/group38/origin/2022/05/01/01/33998b7d-4bc6-057c-5ac5-4a1122a2f1cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/1/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p17ql0r86dd.md)
-
-2022.04.30 晚 新中国联邦 | 新闻     香港外债和贷款将爆大雷 中共的金融系统即将崩溃；中共党内又抓人 政治运动不断
-
-<img src="https://media.gettr.com/group28/origin/2022/05/01/00/dc8614c5-bd5c-03f1-12c3-68e02110aacf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 12:11 AM UTC  - :tv:直播](/content/gettr/p17slvr9d1f.md)
-
-4/30/2022 Miles Guo’s GETTR: I want to remind fellow fighters in mainland China that all the nightmares have yet begun. A prince from a Middle Eastern country sold all his investments in Communist China at 30% of the market prices ...
-
-<img src="https://media.gettr.com/group4/getter/2022/05/01/00/31511192-532c-21cd-e150-0b96309de81d/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p17rxxc5e30.md)
-
-2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-
-<img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
