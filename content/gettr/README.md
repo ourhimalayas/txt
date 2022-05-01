@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/1/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17to0eddae.md)
+
+Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of the Rule of Law Foundation and the New Federal State of China and our mission to take down the Chinese Communist Party (CCP). He said he didn't expect t...
+
+<img src="https://media.gettr.com/group36/origin/2022/05/01/06/7efd4eec-b673-1b87-c064-da44dabb81c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 5:04 AM UTC ](/content/gettr/p17ua5056ca.md)
+
+Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
+
+<img src="https://media.gettr.com/group19/origin/2022/05/01/05/ca9cc26d-b004-d4e4-3ebe-d809acfce43c/8008a98127bd8200cd8e57c2010f6f66.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17twk41f4e.md)
 
 2022年05月01日 俄乌战争战况播报
@@ -23,14 +39,6 @@
 【Ukraine Rescue】04/29/2022 A Russian volunteer from Moscow says it's really important right now to show Ukrainians and show the world that we do not agree with what Putin is doing. We really want to support all Ukrainians. A lot of...
 
 <img src="https://media.gettr.com/group12/getter/2022/05/01/01/abd9c4a5-cc70-15e8-1cc6-706132007f1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 5:04 AM UTC ](/content/gettr/p17ua5056ca.md)
-
-Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
-
-<img src="https://media.gettr.com/group19/origin/2022/05/01/05/ca9cc26d-b004-d4e4-3ebe-d809acfce43c/8008a98127bd8200cd8e57c2010f6f66.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 4月30号：尊敬的战友们好……无数的事实都在告诉我们，人类将用生命的代价．来换来一个大家都知道的答案……疫苗是真正的这场大病毒灾难……【七哥好！今天早上參加完一個葬禮，三針疫苗，突然發現癌症，晚期，一個月就走了。和墓地管理公司的老闆聊了一會兒，得知新冠病毒以來，當地死亡人數增加了30%（規模大到可以代表當地的整體數字）。我告訴他，做好準備，疫苗災難剛剛開始。他深信不移，因為他也知道羥氯奎、伊維菌素。我也告訴了他，疫苗有解藥，等我們消滅了共產黨之後，大家就會知...
 
 <img src="https://media.gettr.com/group28/getter/2022/04/30/20/b2dde23b-efb6-f8e9-8946-60a6620ad72f/8045b205b7001de712d58c134e452f42.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 7:01 PM UTC  - :tv:直播](/content/gettr/p17q6qb4af8.md)
-
-2022-4-30《避风港》（42）新冠疫苗——儿童祭
-
-<img src="https://media.gettr.com/group27/origin/2022/04/30/18/97947fc1-7aa5-c652-51df-8afd1614c89a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
