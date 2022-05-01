@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17twk41f4e.md)
+
+2022年05月01日 俄乌战争战况播报
+
+<img src="https://media.gettr.com/group43/origin/2022/05/01/04/42c33b75-2f2a-b5ae-0bbe-ff32d68e3fd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 3:07 AM UTC  - :tv:直播](/content/gettr/p17slmtf095.md)
 
 2022-4-30《鸡血王喜币大作战》 第一百八十一集 嘉宾：卡丽熙、Eric
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/1/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17twk41f4e.md)
+[@miles 5/1/2022 5:04 AM UTC ](/content/gettr/p17ua5056ca.md)
 
-2022年05月01日 俄乌战争战况播报
+Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
 
-<img src="https://media.gettr.com/group43/origin/2022/05/01/04/42c33b75-2f2a-b5ae-0bbe-ff32d68e3fd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/05/01/05/ca9cc26d-b004-d4e4-3ebe-d809acfce43c/8008a98127bd8200cd8e57c2010f6f66.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 2022-4-30《避风港》（42）新冠疫苗——儿童祭
 
 <img src="https://media.gettr.com/group27/origin/2022/04/30/18/97947fc1-7aa5-c652-51df-8afd1614c89a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 5:27 PM UTC  - :tv:直播](/content/gettr/p17ppz13863.md)
-
-2022.04.30 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group13/origin/2022/04/30/17/78918c8b-a64a-cd2a-bed0-06a38b3af819/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
