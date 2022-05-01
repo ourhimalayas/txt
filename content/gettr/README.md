@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p17tzad77c2.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group46/origin/2022/05/01/07/bdf42e75-71dd-9cca-b600-86c4d4710575/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 6:40 AM UTC  - :tv:直播](/content/gettr/p17to0eddae.md)
 
 Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of the Rule of Law Foundation and the New Federal State of China and our mission to take down the Chinese Communist Party (CCP). He said he didn't expect t...
@@ -10,11 +18,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p17tzad77c2.md)
+[@miles 5/1/2022 7:45 AM UTC  - :tv:直播](/content/gettr/p17tqprbe71.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+Nicole interviewed a Dutch volunteer, he said that the global expansion of the CCP threatens the free world, and The CCP buys western politicians with money because of their greed for profits. The consequences are very serious, whi...
 
-<img src="https://media.gettr.com/group46/origin/2022/05/01/07/bdf42e75-71dd-9cca-b600-86c4d4710575/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/05/01/07/64bff9a7-008d-ca9c-db38-9f70a3639043/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 2022.04.30  新中国联邦 | 喜健康   美国执业心理医生麦可专访
 
 <img src="https://media.gettr.com/group13/origin/2022/04/09/20/2d54ea9f-7bd6-3481-5ec2-1c064ebb1b4e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 8:06 PM UTC ](/content/gettr/p17r2rxc344.md)
-
-4月30号：尊敬的战友们好……无数的事实都在告诉我们，人类将用生命的代价．来换来一个大家都知道的答案……疫苗是真正的这场大病毒灾难……【七哥好！今天早上參加完一個葬禮，三針疫苗，突然發現癌症，晚期，一個月就走了。和墓地管理公司的老闆聊了一會兒，得知新冠病毒以來，當地死亡人數增加了30%（規模大到可以代表當地的整體數字）。我告訴他，做好準備，疫苗災難剛剛開始。他深信不移，因為他也知道羥氯奎、伊維菌素。我也告訴了他，疫苗有解藥，等我們消滅了共產黨之後，大家就會知...
-
-<img src="https://media.gettr.com/group28/getter/2022/04/30/20/b2dde23b-efb6-f8e9-8946-60a6620ad72f/8045b205b7001de712d58c134e452f42.jpg" width="506" height="284">
 
 ---
 
