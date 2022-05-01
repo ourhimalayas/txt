@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 5/1/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p17x1m2b7b7.md)
+
+5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/01/23/91cf4fe2-1098-9a57-f3ea-6824bc57ae15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p17wgww9851.md)
 
 2022.05.01  PM NFSC news   HK's External Debt to Implode; CCP's Financial System to Collapse
 
 <img src="https://media.gettr.com/group30/origin/2022/05/01/22/2ca74b5b-e224-fcef-a2b9-72bcffc918e0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p17wl5965dc.md)
+
+5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
+
+<img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +39,14 @@
 5/1/2022 Miles Guo: The Chinese Communist Party has successfully led the Chinese people into an animal-slave society! There is a complete moral bankruptcy. People are harming each other, and all they care about is to survive like a...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/01/23/993add13-e75b-bcaf-06e4-85ce5d702431/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17wm594572.md)
+
+5/1/2022 Miles Guo: Mr. Guo shares with us his No. 2 feeling he has experienced lately. In his real life, he's got the feeling that the New Federal State of China and the Whistleblowers' Movement have received full attention from a...
+
+<img src="https://media.gettr.com/group11/getter/2022/05/01/23/0ea32f9f-824b-8f74-91bf-a0deeac92076/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +73,6 @@ For English：gettr.com/streaming/p17wlkp8055
 2022.05.01  新中国联邦 | 喜健康   五月疫苗大灾难之全球儿童爆发性肝炎：腺病毒还是疫苗灾难
 
 <img src="https://media.gettr.com/group22/origin/2022/05/01/20/eefc76cd-32f7-1767-a1df-1940a5c8c000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17wm594572.md)
-
-5/1/2022 Miles Guo: Mr. Guo shares with us his No. 2 feeling he has experienced lately. In his real life, he's got the feeling that the New Federal State of China and the Whistleblowers' Movement have received full attention from a...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/01/23/0ea32f9f-824b-8f74-91bf-a0deeac92076/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,22 +195,6 @@ Volunteers with different nationalities from all over the world met at Medyka-th
 【Ukraine Rescue】04/29/2022 Russian university student Natasha joins other young Ukrainians to work with Ukrainian refugees. She says that speaking out for justice in the face of evil outweighs her fear of Putin. So she understands ...
 
 <img src="https://media.gettr.com/group17/getter/2022/05/01/12/b81d3a56-c8ca-5e7d-f372-bf91cdb22b70/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 12:42 PM UTC  - :tv:直播](/content/gettr/p17ud5w4e05.md)
-
-2022年5月1日 文贵大直播：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
-
-<img src="https://media.gettr.com/group34/origin/2022/05/01/11/65939c8a-9537-7d54-8564-0a555c39c839/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p17uybe9d30.md)
-
-【Ukraine Rescue】04/30/2022 On the front lines of Medica, the Polish and NFSC volunteers work together to rescue cats and dogs. The animals also have their own passports and are being sent to Poland. Meanwhile, our fellow Chinese in...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/01/12/533da6d5-bf10-b1e1-8f97-d7126d10c195/out.jpg" width="506" height="284">
 
 ---
 
