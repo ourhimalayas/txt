@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 4/30/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p17rxxc5e30.md)
+
+2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+
+<img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 4/30/2022 11:18 PM UTC  - :tv:直播](/content/gettr/p17s2xyb17f.md)
 
 4月30日：这还不是最坏的，只是刚刚开始！【「疯了，女子被关疯，家属抱头痛哭」  是什么造就了这一幕幕悲剧？ 是中国共产党！ 和中国人的懦弱！-】
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 4/30/2022 11:44 PM UTC  - :tv:直播](/content/gettr/p17rxxc5e30.md)
+[@miles 5/1/2022 12:11 AM UTC  - :tv:直播](/content/gettr/p17slvr9d1f.md)
 
-2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
+4/30/2022 Miles Guo’s GETTR: I want to remind fellow fighters in mainland China that all the nightmares have yet begun. A prince from a Middle Eastern country sold all his investments in Communist China at 30% of the market prices ...
 
-<img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/05/01/00/31511192-532c-21cd-e150-0b96309de81d/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,38 +153,6 @@ Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agenc
 2022.04.30  早 新中国联邦 | 新闻访谈   朱茂元的启示；330亿对乌援助；同期其他的案件
 
 <img src="https://media.gettr.com/group34/origin/2022/04/30/13/43503f9d-93ed-4bae-e195-bbc8519f74bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/30/2022 12:38 PM UTC ](/content/gettr/p17pygi0458.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月29日第56天当日救援统计：
-
-Medyka救援站接待：约242人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约15470人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 56 - Date: A...
-
-<img src="https://media.gettr.com/group36/getter/2022/04/30/12/7bb8ab57-0eff-f3ad-7321-1371dd4737fc/10501f60de92d9387a22711345a0406c.jpg" width="506" height="284">
 
 ---
 
