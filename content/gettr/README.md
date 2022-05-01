@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 7:45 AM UTC  - :tv:直播](/content/gettr/p17tqprbe71.md)
+
+Nicole interviewed a Dutch volunteer, he said that the global expansion of the CCP threatens the free world, and The CCP buys western politicians with money because of their greed for profits. The consequences are very serious, whi...
+
+<img src="https://media.gettr.com/group23/origin/2022/05/01/07/64bff9a7-008d-ca9c-db38-9f70a3639043/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p17tzad77c2.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -18,11 +26,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 7:45 AM UTC  - :tv:直播](/content/gettr/p17tqprbe71.md)
+[@miles 5/1/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17ttvq4396.md)
 
-Nicole interviewed a Dutch volunteer, he said that the global expansion of the CCP threatens the free world, and The CCP buys western politicians with money because of their greed for profits. The consequences are very serious, whi...
+Nicole interviewed a Dutch volunteer,  he admires the courage and wisdom of Mr. Miles Guo, who warned the Western world of the CCP's BGY plan as early as five years ago at the National Press Club in Washington, DC, USA. He said tha...
 
-<img src="https://media.gettr.com/group23/origin/2022/05/01/07/64bff9a7-008d-ca9c-db38-9f70a3639043/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/05/01/08/41200024-a8f6-d396-76ff-dfc3bf6d39d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ For English：gettr.com/streaming/p17rvo443cc
 Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agency for Israel, the most influential organization in the world and the most important driving force behind Israel's founding in 1929. David Ben-Gurion, p...
 
 <img src="https://media.gettr.com/group26/origin/2022/04/30/21/039a558e-d2a2-ecdb-b2cb-e5ec61e42396/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p17rr1f9090.md)
-
-2022.04.30  新中国联邦 | 喜健康   美国执业心理医生麦可专访
-
-<img src="https://media.gettr.com/group13/origin/2022/04/09/20/2d54ea9f-7bd6-3481-5ec2-1c064ebb1b4e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
