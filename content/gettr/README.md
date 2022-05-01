@@ -2,17 +2,25 @@
 ---
 
 
+[@miles 5/1/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p17vtme34df.md)
+
+2022-5-1 ，「帮助」的真意🍑，#小小尼莫音乐会 🎼第九期，以心待心，播种善良，用爱收获爱💝
+
+<img src="https://media.gettr.com/group25/origin/2022/05/01/18/5b2173f7-6096-54c2-7399-66d34e1088ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 6:02 PM UTC ](/content/gettr/p17vgrzd980.md)
 
  5月1号：世界经济面临的最大的危机和挑战……
 
 ---
 
-[@miles 5/1/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p17vtme34df.md)
+[@miles 5/1/2022 6:58 PM UTC  - :tv:直播](/content/gettr/p17waim2763.md)
 
-2022-5-1 ，「帮助」的真意🍑，#小小尼莫音乐会 🎼第九期，以心待心，播种善良，用爱收获爱💝
+ 5月1号：尊敬的战友们好……衷心地感谢．今天参与直播和背后默默的无私的贡献的所有的战友们，今天将是全球人类走向一个新的时代的开始……
 
-<img src="https://media.gettr.com/group25/origin/2022/05/01/18/5b2173f7-6096-54c2-7399-66d34e1088ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/05/01/18/2ebd1564-bea6-ad67-e622-ff98f0a37bb4/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
 
 <img src="https://media.gettr.com/group19/origin/2022/05/01/05/ca9cc26d-b004-d4e4-3ebe-d809acfce43c/8008a98127bd8200cd8e57c2010f6f66.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p17twk41f4e.md)
-
-2022年05月01日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group43/origin/2022/05/01/04/42c33b75-2f2a-b5ae-0bbe-ff32d68e3fd4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
