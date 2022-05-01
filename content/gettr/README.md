@@ -10,6 +10,14 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
+[@miles 5/1/2022 7:08 AM UTC  - :tv:直播](/content/gettr/p17tzad77c2.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group46/origin/2022/05/01/07/bdf42e75-71dd-9cca-b600-86c4d4710575/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 5:04 AM UTC ](/content/gettr/p17ua5056ca.md)
 
 Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
