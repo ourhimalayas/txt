@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 8:55 AM UTC  - :tv:直播](/content/gettr/p17u7p43820.md)
+
+The CCP has eroded American freedom and the rule of law and infiltrated the US judicial system, the economy, and the financial sector, and Shan Weijian's PAG has defrauded Americans of their pensions to invest in Communist China's ...
+
+<img src="https://media.gettr.com/group5/origin/2022/05/01/08/2699c727-fff5-b77a-35de-4a10d79e1bb3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17ttvq4396.md)
 
 Nicole interviewed a Dutch volunteer,  he admires the courage and wisdom of Mr. Miles Guo, who warned the Western world of the CCP's BGY plan as early as five years ago at the National Press Club in Washington, DC, USA. He said tha...
@@ -34,11 +42,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 8:55 AM UTC  - :tv:直播](/content/gettr/p17u7p43820.md)
+[@miles 5/1/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p17uybe9d30.md)
 
-The CCP has eroded American freedom and the rule of law and infiltrated the US judicial system, the economy, and the financial sector, and Shan Weijian's PAG has defrauded Americans of their pensions to invest in Communist China's ...
+【Ukraine Rescue】04/30/2022 On the front lines of Medica, the Polish and NFSC volunteers work together to rescue cats and dogs. The animals also have their own passports and are being sent to Poland. Meanwhile, our fellow Chinese in...
 
-<img src="https://media.gettr.com/group5/origin/2022/05/01/08/2699c727-fff5-b77a-35de-4a10d79e1bb3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/05/01/12/533da6d5-bf10-b1e1-8f97-d7126d10c195/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@ The Toronto Star reported on April 19 on the story of Feather, a 19-year-old gir
 2022.04.30  PM NFSC news    Modelski Cycle Research Shows CCP cannot be the Next World Leader
 
 <img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/30/2022 10:06 PM UTC  - :tv:直播](/content/gettr/p17s70ef455.md)
-
-“斗地主” 飞飞秀救援快报 2022-04-30
-
-For English：gettr.com/streaming/p17rvo443cc
-
-<img src="https://media.gettr.com/group19/origin/2022/04/30/22/c1487d92-c686-5967-4527-0b17f1487071/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
