@@ -10,6 +10,16 @@
 
 ---
 
+[@miles 5/1/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p17wn6zf8d7.md)
+
+“一颗棋子...” 飞飞秀救援快报 2022-05-01
+
+For English：gettr.com/streaming/p17wlkp8055
+
+<img src="https://media.gettr.com/group40/origin/2022/05/01/22/b3125ce2-bc95-0e8c-5d6b-cab212e5f390/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p17vtme34df.md)
 
 2022-5-1 ，「帮助」的真意🍑，#小小尼莫音乐会 🎼第九期，以心待心，播种善良，用爱收获爱💝
@@ -185,14 +195,6 @@ Nicole interviewed a Dutch volunteer, he said that the global expansion of the C
 Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of the Rule of Law Foundation and the New Federal State of China and our mission to take down the Chinese Communist Party (CCP). He said he didn't expect t...
 
 <img src="https://media.gettr.com/group36/origin/2022/05/01/06/7efd4eec-b673-1b87-c064-da44dabb81c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 5:04 AM UTC ](/content/gettr/p17ua5056ca.md)
-
-Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
-
-<img src="https://media.gettr.com/group19/origin/2022/05/01/05/ca9cc26d-b004-d4e4-3ebe-d809acfce43c/8008a98127bd8200cd8e57c2010f6f66.jpg" width="506" height="284">
 
 ---
 
