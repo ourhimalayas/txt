@@ -3,6 +3,8 @@
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/transcript/2018/12/20181218-3889821236277365249.md)
+
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/transcript/2018/12/20181218-8948086997100898897.md)
 
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误](/content/transcript/2018/12/20181211-7088742512990169570.md)
@@ -50,8 +52,6 @@
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/transcript/2018/11/20181102-2322680967443605626.md)
 
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/transcript/2018/11/20181102-6608329269804536528.md)
-
-[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/transcript/2018/11/20181101-6081222795262941074.md)
 
 
 ## 頁面 31/42 [**<**](/content/transcript/README-30.md) [1](/content/transcript/README.md) ... [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) **31** [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-32.md) [查看全部](/content/transcript/README-all.md)

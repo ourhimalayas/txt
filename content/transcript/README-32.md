@@ -3,6 +3,8 @@
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/transcript/2018/11/20181101-6081222795262941074.md)
+
 [翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/content/transcript/2018/10/20181030-5728690210531220405.md)
 
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/transcript/2018/10/20181029-8202855451212977956.md)
@@ -50,8 +52,6 @@
 [文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/content/transcript/2018/09/20180917-8550776674007589502.md)
 
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/content/transcript/2018/09/20180916-1687313530283465166.md)
-
-[文字版：9月10号马云辞职的真正原因](/content/transcript/2018/09/20180913-8040960110830809305.md)
 
 
 ## 頁面 32/42 [**<**](/content/transcript/README-31.md) [1](/content/transcript/README.md) ... [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) **32** [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-33.md) [查看全部](/content/transcript/README-all.md)

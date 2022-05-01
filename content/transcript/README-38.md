@@ -3,6 +3,8 @@
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)
 
+[美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/content/transcript/2018/04/20180418-4208012880425825380.md)
+
 [何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊](/content/transcript/2018/04/20180418-2077883396848379491.md)
 
 [曹长青 郭宝胜对谈—郭文贵保卫战白热化](/content/transcript/2018/04/20180418-7284381815755271685.md)
@@ -50,8 +52,6 @@
 [路透社：美国国会催促要求中国记者注册为特工](/content/transcript/2018/04/20180418-1850311727870023205.md)
 
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/transcript/2018/04/20180418-2996614567598336236.md)
-
-[国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/transcript/2018/04/20180418-6885559451730743203.md)
 
 
 ## 頁面 38/42 [**<**](/content/transcript/README-37.md) [1](/content/transcript/README.md) ... [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) **38** [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-39.md) [查看全部](/content/transcript/README-all.md)

@@ -3,6 +3,8 @@
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190722-5623982298172574655.md)
+
 [文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/content/transcript/2019/07/20190716-7014702308102493724.md)
 
 [文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/content/transcript/2019/07/20190716-7612931641491284190.md)
@@ -50,8 +52,6 @@
 [文字稿：香港時間2019年6月17日上午直播](/content/transcript/2019/06/20190618-7972608617443196420.md)
 
 [文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/transcript/2019/06/20190615-9025117161508016054.md)
-
-[文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/content/transcript/2019/06/20190615-8556712015252001819.md)
 
 
 ## 頁面 26/42 [**<**](/content/transcript/README-25.md) [1](/content/transcript/README.md) ... [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) **26** [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-27.md) [查看全部](/content/transcript/README-all.md)

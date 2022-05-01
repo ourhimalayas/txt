@@ -3,6 +3,8 @@
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)
 
+[国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/transcript/2018/04/20180418-6885559451730743203.md)
+
 [自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/content/transcript/2018/04/20180418-4898378291964960909.md)
 
 [文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/content/transcript/2018/04/20180418-2945530337059474065.md)
@@ -50,8 +52,6 @@
 [翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/transcript/2018/04/20180418-8757739535920514791.md)
 
 [2017年10月26日郭文贵直播十九大后爆料计划](/content/transcript/2018/04/20180418-5280457825220252571.md)
-
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/transcript/2018/04/20180418-7145054021115241529.md)
 
 
 ## 頁面 39/42 [**<**](/content/transcript/README-38.md) [1](/content/transcript/README.md) ... [34](/content/transcript/README-34.md) [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) **39** [40](/content/transcript/README-40.md) [41](/content/transcript/README-41.md) [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-40.md) [查看全部](/content/transcript/README-all.md)

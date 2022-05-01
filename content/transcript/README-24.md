@@ -3,6 +3,8 @@
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：9月24日 郭文贵先生直播 红烧肉真香，CCP给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级别分配，美女当小三，帅哥当领导夫人](/content/transcript/2019/09/20190927-2016233729904353338.md)
+
 [文字版：2019年9月22日郭文贵先生直播 CCP突發三大戰役挑戰全球，妄圖共產天下，垂死掙扎](/content/transcript/2019/09/20190924-48639377592397821.md)
 
 [文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/content/transcript/2019/09/20190921-9126784850251019674.md)
@@ -50,8 +52,6 @@
 [文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/content/transcript/2019/08/20190822-18293374283100190.md)
 
 [文字版：8月18日文贵吃饱了直播](/content/transcript/2019/08/20190822-8029195555016463956.md)
-
-[2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/transcript/2019/08/20190819-5676820155081817041.md)
 
 
 ## 頁面 24/42 [**<**](/content/transcript/README-23.md) [1](/content/transcript/README.md) ... [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) **24** [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-25.md) [查看全部](/content/transcript/README-all.md)

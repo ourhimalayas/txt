@@ -3,6 +3,8 @@
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/content/transcript/2018/07/20180725-7254204072739066791.md)
+
 [文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/transcript/2018/07/20180722-7878722502564769859.md)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/transcript/2018/07/20180719-6182147046946865202.md)
@@ -50,8 +52,6 @@
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/transcript/2018/05/20180525-5314910770568044153.md)
 
 [文字版郭文贵先生2018 05 17 Broadcast试播](/content/transcript/2018/05/20180520-991291288208648069.md)
-
-[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/transcript/2018/05/20180512-8900938020145834574.md)
 
 
 ## 頁面 34/42 [**<**](/content/transcript/README-33.md) [1](/content/transcript/README.md) ... [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) **34** [35](/content/transcript/README-35.md) [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-35.md) [查看全部](/content/transcript/README-all.md)
