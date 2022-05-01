@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p17uybe9d30.md)
+
+【Ukraine Rescue】04/30/2022 On the front lines of Medica, the Polish and NFSC volunteers work together to rescue cats and dogs. The animals also have their own passports and are being sent to Poland. Meanwhile, our fellow Chinese in...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/01/12/533da6d5-bf10-b1e1-8f97-d7126d10c195/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 8:55 AM UTC  - :tv:直播](/content/gettr/p17u7p43820.md)
 
 The CCP has eroded American freedom and the rule of law and infiltrated the US judicial system, the economy, and the financial sector, and Shan Weijian's PAG has defrauded Americans of their pensions to invest in Communist China's ...
@@ -42,11 +50,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 12:10 PM UTC  - :tv:直播](/content/gettr/p17uybe9d30.md)
+[@miles 5/1/2022 12:42 PM UTC  - :tv:直播](/content/gettr/p17ud5w4e05.md)
 
-【Ukraine Rescue】04/30/2022 On the front lines of Medica, the Polish and NFSC volunteers work together to rescue cats and dogs. The animals also have their own passports and are being sent to Poland. Meanwhile, our fellow Chinese in...
+2022年5月1日 文贵大直播：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
 
-<img src="https://media.gettr.com/group42/getter/2022/05/01/12/533da6d5-bf10-b1e1-8f97-d7126d10c195/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/05/01/11/65939c8a-9537-7d54-8564-0a555c39c839/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 The Toronto Star reported on April 19 on the story of Feather, a 19-year-old girl from the University of Toronto and a member of the New Federal State of China, who participated in the Rule of Law Foundation's Ukraine relief effort...
 
 <img src="https://media.gettr.com/group18/origin/2022/04/30/23/3dc5f5bb-8625-4289-8267-6dfa313de3a4/7d9badbdeaa930c4718b4b76d53c2709.png" width="506" height="284">
-
----
-
-[@miles 4/30/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17rp8968ff.md)
-
-2022.04.30  PM NFSC news    Modelski Cycle Research Shows CCP cannot be the Next World Leader
-
-<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
