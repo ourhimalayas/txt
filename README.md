@@ -11,6 +11,15 @@
 
 ---
 
+#### [文贵爆料 5.1：改朝换代后的中共国，活着就是一切](/content/gnews/2449945.md)
+ `秘密翻译组-原创组`
+
+#### [能源危机中法国一半的核电站被关闭](/content/gnews/2449934.md)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [世界经济已开始走向崩塌](/content/gnews/2449919.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [自卫队飞机出发运送乌克兰逃难者物资](/content/gnews/2449915.md)
  `西班牙巴塞罗那喜悦农场`
 
@@ -77,17 +86,11 @@
 #### [塞尔维亚在紧张的巴尔干地区展示中共防空导弹](/content/gnews/2449609.md)
  `秘密翻譯組G-Translators`
 
-#### [铁链女未获救人贩子不严惩 中共竟还出台纵容犯罪新法](/content/gnews/2449597.md)
- `秘密翻譯組G-Translators`
-
 #### [Elon Musk 出售48亿美元的特斯拉股票 收购推特](/content/gnews/2449592.md)
  `喜马拉雅德国纽伦堡正义农场`
 
 #### [【乌克兰救援】04/29/2022 荷兰义工赞同新中国联邦灭共的事业](/content/gnews/2449591.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [串珠671:中共蓄谋强制疫苗清除老人和“低端人口”](/content/gnews/2449581.md)
- `郭爆料串珠`
 
 #### [佩洛西议长和国会代表团会见泽连斯基总统](/content/gnews/2449553.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -145,9 +148,6 @@
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会](/content/gnews/2447420.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [美国田纳西州通过法案开放伊维菌素使用](/content/gnews/2447321.md)
- `NFSC News`
 
 #### [2022年05月01日文贵大直播速记(话题2，3）](/content/gnews/2447235.md)
  `Mr. Miles Guo's News Briefing`
