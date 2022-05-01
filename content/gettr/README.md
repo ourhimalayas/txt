@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17ttvq4396.md)
+
+Nicole interviewed a Dutch volunteer,  he admires the courage and wisdom of Mr. Miles Guo, who warned the Western world of the CCP's BGY plan as early as five years ago at the National Press Club in Washington, DC, USA. He said tha...
+
+<img src="https://media.gettr.com/group42/origin/2022/05/01/08/41200024-a8f6-d396-76ff-dfc3bf6d39d3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 7:45 AM UTC  - :tv:直播](/content/gettr/p17tqprbe71.md)
 
 Nicole interviewed a Dutch volunteer, he said that the global expansion of the CCP threatens the free world, and The CCP buys western politicians with money because of their greed for profits. The consequences are very serious, whi...
@@ -26,11 +34,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17ttvq4396.md)
+[@miles 5/1/2022 8:55 AM UTC  - :tv:直播](/content/gettr/p17u7p43820.md)
 
-Nicole interviewed a Dutch volunteer,  he admires the courage and wisdom of Mr. Miles Guo, who warned the Western world of the CCP's BGY plan as early as five years ago at the National Press Club in Washington, DC, USA. He said tha...
+The CCP has eroded American freedom and the rule of law and infiltrated the US judicial system, the economy, and the financial sector, and Shan Weijian's PAG has defrauded Americans of their pensions to invest in Communist China's ...
 
-<img src="https://media.gettr.com/group42/origin/2022/05/01/08/41200024-a8f6-d396-76ff-dfc3bf6d39d3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/05/01/08/2699c727-fff5-b77a-35de-4a10d79e1bb3/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ The Toronto Star reported on April 19 on the story of Feather, a 19-year-old gir
 For English：gettr.com/streaming/p17rvo443cc
 
 <img src="https://media.gettr.com/group19/origin/2022/04/30/22/c1487d92-c686-5967-4527-0b17f1487071/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 9:00 PM UTC  - :tv:直播](/content/gettr/p17rite477b.md)
-
-Nicole is interviewing Alex Gorelik, who is a representative of The Jewish Agency for Israel, the most influential organization in the world and the most important driving force behind Israel's founding in 1929. David Ben-Gurion, p...
-
-<img src="https://media.gettr.com/group26/origin/2022/04/30/21/039a558e-d2a2-ecdb-b2cb-e5ec61e42396/out.jpg" width="506" height="284">
 
 ---
 
