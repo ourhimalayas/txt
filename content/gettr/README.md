@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p17vegpebbf.md)
+
+Volunteers with different nationalities from all over the world met at Medyka-the polish and Ukrainian border.They gathered inside and outside of the NFSC tents sipping the delicious coffee brewed with love. During the interview, t...
+
+<img src="https://media.gettr.com/group10/origin/2022/05/01/16/657586fa-1dc6-c0a0-22f6-e73841c36ed5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/1/2022 4:07 PM UTC ](/content/gettr/p17vsbc0a2d.md)
 
 5月1号：尊敬的战友们好！郑琪，赵丽贞．就是这两个人当年要杀害七哥的……美国的法律最终会将他们绳之以法！
@@ -74,11 +82,11 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@miles 5/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p17vegpebbf.md)
+[@miles 5/1/2022 4:52 PM UTC  - :tv:直播](/content/gettr/p17vo7u7c34.md)
 
-Volunteers with different nationalities from all over the world met at Medyka-the polish and Ukrainian border.They gathered inside and outside of the NFSC tents sipping the delicious coffee brewed with love. During the interview, t...
+2022.05.01 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group10/origin/2022/05/01/16/657586fa-1dc6-c0a0-22f6-e73841c36ed5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/05/01/16/27f013e3-9e75-5125-dbe3-f9b749ee9736/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 2022.04.30    NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 
 <img src="https://media.gettr.com/group22/origin/2022/04/30/23/090df3ae-91d2-de47-3c18-54f8d12075de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/30/2022 11:28 PM UTC  - :tv:直播](/content/gettr/p17s8ce255e.md)
-
-4/30/2022 Miles Guo’s GETTR: Apple, Amazon LLC and other major corporations’ yearly reports revealed one thing - this disaster has started. Miles Guo said many years ago that 2022 is the darkest year of humanity, the year of COVID ...
-
-<img src="https://media.gettr.com/group9/getter/2022/04/30/23/ec8f34a2-8ef8-84ea-ac52-0abbf6681fbb/out.jpg" width="506" height="284">
 
 ---
 
