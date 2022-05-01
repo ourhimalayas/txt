@@ -12,6 +12,14 @@ https://twitter.com/kelly77720/status/1520617153191301121?s=12&t=lYTYZK3Calb86v7
 
 ---
 
+[@miles 5/1/2022 5:40 PM UTC  - 6圖](/content/gettr/p17vixlc6df.md)
+
+5月1号：尊敬的战友们好，这一连串的发生的事实……和历史的偶然性，是否能让我们找出一个基本的准确的答案呢？
+
+<img src="https://media.gettr.com/group17/getter/2022/05/01/17/3fe7fb88-77c8-37cf-8df2-ce5437552660/bd3e7bd7303e2dae367e6b7969648d76.jpg" width="506" height="284">
+
+---
+
 [@ahnewsfeed 5/1/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p17tw0jd8f4.md)
 
 复旦大学王德峰教授2014年振聋发聩的讲课，其中谈到的：
@@ -29,6 +37,24 @@ https://twitter.com/kelly77720/status/1520617153191301121?s=12&t=lYTYZK3Calb86v7
 无法纠偏，唯有创出一条新的道路！
 
 <img src="https://media.gettr.com/group11/origin/2022/05/01/04/01033d32-04ad-8c11-78d5-f9cfbcdb8a6a/out.jpg" width="506" height="284">
+
+---
+
+[@pangushixun 4/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p17qfcta746.md)
+
+习近平手下
+
+黄万盛酒后吐真言
+
+
+
+#盘古时讯 
+
+#核酸 
+
+#不是健康问题 #政治问题
+
+<img src="https://media.gettr.com/group38/getter/2022/04/30/13/fe0a6a2f-b0c4-3aa6-92eb-1823e7092949/out.jpg" width="506" height="284">
 
 ---
 
@@ -120,24 +146,6 @@ Nicole is interviewing a Dutch volunteer about the Ukraine rescue operation of t
 
 ---
 
-[@pangushixun 4/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p17qfcta746.md)
-
-习近平手下
-
-黄万盛酒后吐真言
-
-
-
-#盘古时讯 
-
-#核酸 
-
-#不是健康问题 #政治问题
-
-<img src="https://media.gettr.com/group38/getter/2022/04/30/13/fe0a6a2f-b0c4-3aa6-92eb-1823e7092949/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/1/2022 5:04 AM UTC ](/content/gettr/p17ua5056ca.md)
 
 Chinese people have no food to eat, the second Great Famine is coming. The Chinese Communist Party(CCP)’s economy is collapsing and there is no money to import food. Nearly 40 million people were starved to death in the Great Famin...
@@ -175,14 +183,6 @@ Chinese people have no food to eat, the second Great Famine is coming. The Chine
 2022.04.30  新中国联邦 | 喜财经    投资模拟器讲解   如何理解“GTV为王”  喜金融三驾马车
 
 <img src="https://media.gettr.com/group8/origin/2022/05/01/02/6a14ce22-8dbf-dd6b-924b-3980c0dcc5dd/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/1/2022 1:03 AM UTC  - :tv:直播](/content/gettr/p17s4qm91b8.md)
-
-2022.04.30 晚 新中国联邦 | 新闻访谈     美众议院通过评估习近平的干涉和颠覆法案：大陆全民核酸检测真是免费的吗？；小米因外汇违规被印度扣押 7.25 亿美元资产
-
-<img src="https://media.gettr.com/group38/origin/2022/05/01/01/33998b7d-4bc6-057c-5ac5-4a1122a2f1cc/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
