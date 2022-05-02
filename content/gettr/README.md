@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p17xj1d7e93.md)
+
+2022-5-1《鸡血王喜币大作战》 第一百八十二集 嘉宾：齐天二圣、七里香
+
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p17xrjkae4b.md)
 
 5/1/2022 Miles Guo: The New Federal State of China now has the greatest mission in the history of humanity - to help the Chinese people rebuild the country. What I am worried about is how to rebuild China following the destruction ...
@@ -56,11 +64,11 @@
 
 ---
 
-[@miles 5/2/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p17xj1d7e93.md)
+[@miles 5/2/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p17xrjr2e8e.md)
 
-2022-5-1《鸡血王喜币大作战》 第一百八十二集 嘉宾：齐天二圣、七里香
+5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
 
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/05/02/03/04370d28-c2eb-f2df-22c5-503237ffb50d/out.jpg" width="506" height="284">
 
 ---
 
@@ -93,14 +101,6 @@
 2022.05.01  晚 新中国联邦 | 新闻    以色列犹太机构代表：支持新中国联邦的乌克兰救援行动；俄罗斯义工：支持乌克兰 祝愿中国人民获得自由
 
 <img src="https://media.gettr.com/group21/origin/2022/05/02/00/b9fc75f3-8c25-7e6c-a1c4-5b695bf5fa67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p17x1m2b7b7.md)
-
-5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/01/23/91cf4fe2-1098-9a57-f3ea-6824bc57ae15/out.jpg" width="506" height="284">
 
 ---
 
