@@ -16,6 +16,14 @@
 
 ---
 
+[@miles 5/2/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p17x6kg438e.md)
+
+2022.05.01  晚 新中国联邦 | 新闻访谈    普京面临三刀,  硬汉形象瓦解
+
+<img src="https://media.gettr.com/group30/origin/2022/05/02/01/56e86e53-af15-5118-be7a-6711da4e8ceb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 12:49 AM UTC  - 3圖](/content/gettr/p17wz9ld756.md)
 
  5月1号：这就已经到了，九二年到．九三年了？？……胸怀大哥大呀……孟姜女哭塑处的思考
@@ -32,6 +40,14 @@
 
 ---
 
+[@miles 5/2/2022 12:56 AM UTC  - 3圖](/content/gettr/p17xh3ybad8.md)
+
+ 5月1号：应很多战友的要求拼命地找出了长头发时的照片．大家能猜猜？这是什么时间拍的吗？七哥用湾流飞机的时候，中国一架私人飞机都没有……
+
+<img src="https://media.gettr.com/group16/getter/2022/05/02/00/8dfec958-c880-c50e-47db-3ac24e0e1300/702ec0b7a8af5f42d14d61b2f6b50c56.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p17xghvcbc7.md)
 
 2022.05.01  晚 新中国联邦 | 新闻    以色列犹太机构代表：支持新中国联邦的乌克兰救援行动；俄罗斯义工：支持乌克兰 祝愿中国人民获得自由
@@ -45,14 +61,6 @@
 5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
 
 <img src="https://media.gettr.com/group15/getter/2022/05/01/23/91cf4fe2-1098-9a57-f3ea-6824bc57ae15/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:56 AM UTC  - 3圖](/content/gettr/p17xh3ybad8.md)
-
- 5月1号：应很多战友的要求拼命地找出了长头发时的照片．大家能猜猜？这是什么时间拍的吗？七哥用湾流飞机的时候，中国一架私人飞机都没有……
-
-<img src="https://media.gettr.com/group16/getter/2022/05/02/00/8dfec958-c880-c50e-47db-3ac24e0e1300/702ec0b7a8af5f42d14d61b2f6b50c56.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +169,6 @@ https://gnews.org...
 5月1号：尊敬的战友们好，这一连串的发生的事实……和历史的偶然性，是否能让我们找出一个基本的准确的答案呢？
 
 <img src="https://media.gettr.com/group17/getter/2022/05/01/17/3fe7fb88-77c8-37cf-8df2-ce5437552660/bd3e7bd7303e2dae367e6b7969648d76.jpg" width="506" height="284">
-
----
-
-[@ahnewsfeed 5/1/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p17tw0jd8f4.md)
-
-复旦大学王德峰教授2014年振聋发聩的讲课，其中谈到的：
-
-今日之中国，整个民族没有精神家园，人与人之间信任危机蔓延至家庭内部，使中国社会处于解体的边缘。
-
-
-
-为什么？
-
-因为这个体制一开始就是错的，
-
-中国人民付了百年的代价在一条错误的路上越走越远，
-
-无法纠偏，唯有创出一条新的道路！
-
-<img src="https://media.gettr.com/group11/origin/2022/05/01/04/01033d32-04ad-8c11-78d5-f9cfbcdb8a6a/out.jpg" width="506" height="284">
 
 ---
 
