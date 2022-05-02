@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p17y69k9e92.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group15/origin/2022/05/02/05/c6a89a6e-8472-9555-761b-033bcdaf862d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 4:40 AM UTC  - :tv:直播](/content/gettr/p17yju6b1a2.md)
 
 5/1/2022 Miles Guo: Once Nancy Pelosi visits Taiwan, the CCP will create conflicts and incite anti-Chinese incidents around the world, so that overseas Chinese are forced to return to Communist China; lockdowns and "Zero COVID" pol...
@@ -80,11 +88,35 @@
 
 ---
 
-[@miles 5/2/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p17y69k9e92.md)
+[@miles 5/2/2022 5:52 AM UTC ](/content/gettr/p17yiuiae91.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group15/origin/2022/05/02/05/c6a89a6e-8472-9555-761b-033bcdaf862d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022年4月30日第57天当日救援统计：
+
+Medyka救援站接待：约538人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16008人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 57 - Date: A...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/02/05/b1f3250b-311c-99ba-a350-111f32115bca/322cd530f39d0c37302cedc86ad7cd3e.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +189,6 @@
 5/1/2022 Miles Guo: Mr. Guo shares with us his No. 2 feeling he has experienced lately. In his real life, he's got the feeling that the New Federal State of China and the Whistleblowers' Movement have received full attention from a...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/01/23/0ea32f9f-824b-8f74-91bf-a0deeac92076/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 10:59 PM UTC  - :tv:直播](/content/gettr/p17wog30736.md)
-
-【Ukraine Rescue】04/30/2022  French volunteer Caroline: NFSC’s coffee is the best. The NFSC’s rescue team is very friendly. Taking down the Chinese Communist Party is necessary. She feels emotional at the solidarity and modesty of t...
-
-<img src="https://media.gettr.com/group26/getter/2022/05/01/22/d6caf349-49b8-a4a2-4b20-7a5cb2883c26/out.jpg" width="506" height="284">
 
 ---
 
