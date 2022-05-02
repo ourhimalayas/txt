@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p17xrjkae4b.md)
+
+5/1/2022 Miles Guo: The New Federal State of China now has the greatest mission in the history of humanity - to help the Chinese people rebuild the country. What I am worried about is how to rebuild China following the destruction ...
+
+<img src="https://media.gettr.com/group29/getter/2022/05/02/03/bdac8612-8433-873d-640c-13cbf845988f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 2:30 AM UTC  - :tv:直播](/content/gettr/p17xlwv6fdb.md)
 
 5/1/2022 Miles Guo: The New Federal State of China and the Whistleblowers' Movement have had a profound impact on the world, with the ideas of the New Federal State of China and the Way of Righteousness being widely accepted. The s...
@@ -48,11 +56,11 @@
 
 ---
 
-[@miles 5/2/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p17xrjkae4b.md)
+[@miles 5/2/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p17xj1d7e93.md)
 
-5/1/2022 Miles Guo: The New Federal State of China now has the greatest mission in the history of humanity - to help the Chinese people rebuild the country. What I am worried about is how to rebuild China following the destruction ...
+2022-5-1《鸡血王喜币大作战》 第一百八十二集 嘉宾：齐天二圣、七里香
 
-<img src="https://media.gettr.com/group29/getter/2022/05/02/03/bdac8612-8433-873d-640c-13cbf845988f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/streaming/p17wlkp8055
 2022.05.01  新中国联邦 | 喜健康   五月疫苗大灾难之全球儿童爆发性肝炎：腺病毒还是疫苗灾难
 
 <img src="https://media.gettr.com/group22/origin/2022/05/01/20/eefc76cd-32f7-1767-a1df-1940a5c8c000/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 6:34 PM UTC  - :tv:直播](/content/gettr/p17vtme34df.md)
-
-2022-5-1 ，「帮助」的真意🍑，#小小尼莫音乐会 🎼第九期，以心待心，播种善良，用爱收获爱💝
-
-<img src="https://media.gettr.com/group25/origin/2022/05/01/18/5b2173f7-6096-54c2-7399-66d34e1088ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
