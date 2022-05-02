@@ -2,11 +2,35 @@
 ---
 
 
+[@miles 5/2/2022 3:04 PM UTC  - :tv:直播](/content/gettr/p1814ny2214.md)
+
+2022.05.02  七哥乱聊
+
+<img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 2:49 PM UTC ](/content/gettr/p17zz7x0016.md)
 
  5月2号：突然有了想直播的冲动，但我只有很少的时间可以咋办呢？咋办呢？
 
 <img src="https://media.gettr.com/group8/getter/2022/05/02/14/263ea553-7bc6-81a5-3e96-d9203aebc40f/629f8139f8f275440c2d06a97b05eb8f.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p180xvnc901.md)
+
+【Ukraine Rescue】 04/30/22 Christine, a young volunteer from Ukraine, shares her feelings on the relief work and says: I was inspired to see Chinese people who really are fighting against communism, and it makes me believe that we c...
+
+<img src="https://media.gettr.com/group20/getter/2022/05/02/15/fc3509f4-b7a2-99c0-2b32-b53534d676fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p180i1i6884.md)
+
+2022.05.02  七哥乱聊
+
+<img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -19,14 +43,6 @@
 https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex-spy-chief-claims-re...
 
 <img src="https://media.gettr.com/group14/getter/2022/05/02/14/9a4d0539-127b-775a-2f0e-26687ecc870f/a01edf86aefa9c6b8d8f7d4c53fc9729.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p180i1i6884.md)
-
-2022.05.02  七哥乱聊
-
-<img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,22 +195,6 @@ Day 57 - Date: A...
 5/1/2022 Miles Guo: Once Nancy Pelosi visits Taiwan, the CCP will create conflicts and incite anti-Chinese incidents around the world, so that overseas Chinese are forced to return to Communist China; lockdowns and "Zero COVID" pol...
 
 <img src="https://media.gettr.com/group27/getter/2022/05/02/04/4292914d-d237-c98e-4db9-78dd3b4f29ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p17xrjr2e8e.md)
-
-5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
-
-<img src="https://media.gettr.com/group14/getter/2022/05/02/03/04370d28-c2eb-f2df-22c5-503237ffb50d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 3:16 AM UTC  - :tv:直播](/content/gettr/p17xj1d7e93.md)
-
-2022-5-1《鸡血王喜币大作战》 第一百八十二集 嘉宾：齐天二圣、七里香
-
-<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
