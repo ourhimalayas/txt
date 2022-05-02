@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17y64hc25d.md)
+
+2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
+
+<img src="https://media.gettr.com/group8/origin/2022/05/02/08/a3b037e5-f940-ea4c-e0c8-6d68aeaaf78f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17yulf1f20.md)
 
 【Ukraine Rescue】04/30/2022 A Polish paramedic volunteer says she is really surprised to see so many Chinese people at the Medyka border. Polish has as well a long history of communism. We understand communism very well, and your si...
@@ -136,11 +144,19 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17y64hc25d.md)
+[@miles 5/2/2022 10:25 AM UTC  - :tv:直播](/content/gettr/p17y8m6f893.md)
 
-2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
+A rotten tree cannot represent the forest, 
 
-<img src="https://media.gettr.com/group8/origin/2022/05/02/08/a3b037e5-f940-ea4c-e0c8-6d68aeaaf78f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+a dark cloud cannot represent the sky; 
+
+A dictator cannot represent the people, 
+
+evil cannot represent justice; 
+
+Angelic little girl, I would like to be represented by you, your soul ...
+
+<img src="https://media.gettr.com/group29/origin/2022/05/02/10/f0b578d1-9e69-9510-28f8-67132e031f31/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +197,6 @@ Day 57 - Date: A...
 5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:13 PM UTC  - :tv:直播](/content/gettr/p17wm594572.md)
-
-5/1/2022 Miles Guo: Mr. Guo shares with us his No. 2 feeling he has experienced lately. In his real life, he's got the feeling that the New Federal State of China and the Whistleblowers' Movement have received full attention from a...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/01/23/0ea32f9f-824b-8f74-91bf-a0deeac92076/out.jpg" width="506" height="284">
 
 ---
 
