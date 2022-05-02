@@ -2,11 +2,43 @@
 ---
 
 
+[@miles 5/2/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p182mry8661.md)
+
+2022.05.02 PM NFSC news  Russian volunteer supports Ukraine and wishes for Chinese people to be free
+
+<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p182mjs9cec.md)
+
+5/1/2022 Miles Guo: The AXIS Act implies that the Americans do not want to sit back and watch the CCP turn Communist China into the center of world civilization. The New Federal State of China must take action, unite all the forces...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/02/23/62918aed-258b-02f3-2ccc-8e1311fdb8dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p182iji533d.md)
 
 A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of his Ukraine friends has been killed and one has been captured. Nicole tells him that the new Chinese people from the New Federal State of China stand wi...
 
 <img src="https://media.gettr.com/group49/origin/2022/05/02/22/a8591c58-cdce-b7e2-7401-bc9b50a846a0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p182xpmd4e0.md)
+
+5/2/2022 Miles Guo: Why did I post old photos in the past several days? Why should we put together a roadmap for the Whistleblowers’ Movement? Why should we do it starting with myself? Do you know how the things going on in east Uk...
+
+<img src="https://media.gettr.com/group23/getter/2022/05/02/23/f7fddb57-af53-45f4-6437-4bac7cde17c8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p182w0m26aa.md)
+
+5/1/2022 Miles Guo: In the days to come, the U.S. may make a series of high-profile initiatives such as restoring the General Consulate in Chengdu and lowering tariffs for Communist China. The U.S. makes deals with the CCP just for...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/02/22/4be87ea6-1d1d-3cd8-dc34-327a507c62cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -57,14 +89,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 2022.05.02  七哥乱聊
 
 <img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p182w0m26aa.md)
-
-5/1/2022 Miles Guo: In the days to come, the U.S. may make a series of high-profile initiatives such as restoring the General Consulate in Chengdu and lowering tariffs for Communist China. The U.S. makes deals with the CCP just for...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/02/22/4be87ea6-1d1d-3cd8-dc34-327a507c62cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,30 +165,6 @@ https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex
 2022.05.02  早 新中国联邦 | 新闻   英格兰义工感谢新中国联邦的灭共行动；中共GDP造假掩盖国内经济崩塌
 
 <img src="https://media.gettr.com/group29/origin/2022/05/02/12/32cdc8f8-c055-b9e4-e144-db5e2dec4958/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p180eg68fdc.md)
-
-2022.05.02 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
-
-<img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1808sqc2e2.md)
-
-2022.05.02  新中国联邦 | 军情室  TB2再袭俄军巡逻艇，俄境内油库火灾频發，網傳俄總參謀長受傷，盘点普京的核武威胁
-
-<img src="https://media.gettr.com/group6/origin/2022/05/02/10/630bb151-745a-a28f-5458-ecfc427cc684/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p17zboy6e7d.md)
-
-NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1.  Joe said the communism has infiltrated every aspect of our society all over the world. He loves China and the Chinese people. But what we don't want a...
-
-<img src="https://media.gettr.com/group25/origin/2022/05/02/10/884ff1dc-ea0a-9eba-1dd3-efa797909736/out.jpg" width="506" height="284">
 
 ---
 
