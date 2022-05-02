@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p17y2q710cc.md)
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+
+<img src="https://media.gettr.com/group31/origin/2022/05/02/06/0305efc2-af53-3312-e25e-0df3a9602d67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 5:52 AM UTC ](/content/gettr/p17yiuiae91.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -120,11 +128,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p17y2q710cc.md)
+[@miles 5/2/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17yulf1f20.md)
 
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+【Ukraine Rescue】04/30/2022 A Polish paramedic volunteer says she is really surprised to see so many Chinese people at the Medyka border. Polish has as well a long history of communism. We understand communism very well, and your si...
 
-<img src="https://media.gettr.com/group31/origin/2022/05/02/06/0305efc2-af53-3312-e25e-0df3a9602d67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/05/02/07/4489f8bc-d486-a16c-e59f-853600e74f83/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Day 57 - Date: A...
 5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:05 PM UTC  - :tv:直播](/content/gettr/p17wx8k091a.md)
-
-5/1/2022 Miles Guo: “Xi the God” and the CCP want a “change of dynasty” and take China into an era of imperial dynasty. This is a retrogression of civilization, and those who believe in the CCP will pay a dear price; Putin wants to...
-
-<img src="https://media.gettr.com/group36/getter/2022/05/01/23/7df6030f-2512-bc9d-b656-008757199dff/out.jpg" width="506" height="284">
 
 ---
 
