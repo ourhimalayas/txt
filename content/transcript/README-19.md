@@ -3,6 +3,8 @@
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/transcript/2020/02/20200216-8326399150836754935.md)
+
 [文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/transcript/2020/02/20200214-4470688033484197678.md)
 
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/transcript/2020/02/20200212-3562611532085874008.md)
@@ -50,8 +52,6 @@
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/transcript/2020/01/20200121-9098198645527028408.md)
 
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/transcript/2020/01/20200120-5512396279941051665.md)
-
-[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/content/transcript/2020/01/20200119-3958906328707892329.md)
 
 
 ## 頁面 19/42 [**<**](/content/transcript/README-18.md) [1](/content/transcript/README.md) ... [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) **19** [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-20.md) [查看全部](/content/transcript/README-all.md)

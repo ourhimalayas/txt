@@ -3,6 +3,8 @@
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：8月18日文贵吃饱了直播](/content/transcript/2019/08/20190822-8029195555016463956.md)
+
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/transcript/2019/08/20190819-5676820155081817041.md)
 
 [文字版：郭文貴先生8月16日文貴直播](/content/transcript/2019/08/20190819-2341336785643764547.md)
@@ -50,8 +52,6 @@
 [文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/transcript/2019/07/20190726-7427179275360633583.md)
 
 [文字版：2019年7月22日 談談華爾街日報的報導](/content/transcript/2019/07/20190724-4998396878425414363.md)
-
-[文字版：2019年7月23日健身后直播](/content/transcript/2019/07/20190723-3137442274090003733.md)
 
 
 ## 頁面 25/42 [**<**](/content/transcript/README-24.md) [1](/content/transcript/README.md) ... [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) **25** [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-26.md) [查看全部](/content/transcript/README-all.md)

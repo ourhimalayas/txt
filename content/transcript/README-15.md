@@ -3,6 +3,8 @@
 
 ## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：郭先生2020年7月22日GTV直播](/content/transcript/2020/07/20200726-865086789235456284.md)
+
 [文字版：郭先生2020年7月19号参加大卫小哥采访](/content/transcript/2020/07/20200726-1420691719987690334.md)
 
 [文字版：郭先生2020年7月19日GTV直播](/content/transcript/2020/07/20200726-4115956209071178859.md)
@@ -50,8 +52,6 @@
 [文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/content/transcript/2020/06/20200609-6663996851433423244.md)
 
 [新中国联邦六四建国直播图文版](/content/transcript/2020/06/20200606-8976575972430129554.md)
-
-[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/transcript/2020/06/20200604-1889289193459336361.md)
 
 
 ## 頁面 15/42 [**<**](/content/transcript/README-14.md) [1](/content/transcript/README.md) ... [10](/content/transcript/README-10.md) [11](/content/transcript/README-11.md) [12](/content/transcript/README-12.md) [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) **15** [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) [18](/content/transcript/README-18.md) [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-16.md) [查看全部](/content/transcript/README-all.md)

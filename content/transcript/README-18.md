@@ -3,6 +3,8 @@
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2020年3月27日一切美好再也回不到今天了](/content/transcript/2020/03/20200331-6998457737623230780.md)
+
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/transcript/2020/03/20200328-980133680998762013.md)
 
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/transcript/2020/03/20200325-1518205290434863780.md)
@@ -50,8 +52,6 @@
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/transcript/2020/02/20200220-6957915304895832685.md)
 
 [文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/transcript/2020/02/20200218-4076658468529416877.md)
-
-[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/transcript/2020/02/20200216-8326399150836754935.md)
 
 
 ## 頁面 18/42 [**<**](/content/transcript/README-17.md) [1](/content/transcript/README.md) ... [13](/content/transcript/README-13.md) [14](/content/transcript/README-14.md) [15](/content/transcript/README-15.md) [16](/content/transcript/README-16.md) [17](/content/transcript/README-17.md) **18** [19](/content/transcript/README-19.md) [20](/content/transcript/README-20.md) [21](/content/transcript/README-21.md) [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-19.md) [查看全部](/content/transcript/README-all.md)

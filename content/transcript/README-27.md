@@ -3,6 +3,8 @@
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/transcript/2019/06/20190615-9025117161508016054.md)
+
 [文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/content/transcript/2019/06/20190615-8556712015252001819.md)
 
 [文字版：郭先生緊急喊話香港616必須上街！](/content/transcript/2019/06/20190615-3492189013164617550.md)
@@ -50,8 +52,6 @@
 [文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/transcript/2019/05/20190511-3890850294287177156.md)
 
 [文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/transcript/2019/05/20190510-4083283175191346612.md)
-
-[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/content/transcript/2019/05/20190510-3983721227880771175.md)
 
 
 ## 頁面 27/42 [**<**](/content/transcript/README-26.md) [1](/content/transcript/README.md) ... [22](/content/transcript/README-22.md) [23](/content/transcript/README-23.md) [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) **27** [28](/content/transcript/README-28.md) [29](/content/transcript/README-29.md) [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-28.md) [查看全部](/content/transcript/README-all.md)

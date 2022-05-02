@@ -3,6 +3,8 @@
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)
 
+[文字版：2019年4月2日郭文贵先生报平安](/content/transcript/2019/04/20190403-7393706925448798261.md)
+
 [文字版：2019年3月29日郭文贵先生浴火重生](/content/transcript/2019/03/20190330-2880102853633751402.md)
 
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/transcript/2019/03/20190306-7214667164782949477.md)
@@ -50,8 +52,6 @@
 [翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/transcript/2019/02/20190207-4952752821783304200.md)
 
 [For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/content/transcript/2019/02/20190206-4750659155472193962.md)
-
-[文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/content/transcript/2019/01/20190131-8326021185101637411.md)
 
 
 ## 頁面 29/42 [**<**](/content/transcript/README-28.md) [1](/content/transcript/README.md) ... [24](/content/transcript/README-24.md) [25](/content/transcript/README-25.md) [26](/content/transcript/README-26.md) [27](/content/transcript/README-27.md) [28](/content/transcript/README-28.md) **29** [30](/content/transcript/README-30.md) [31](/content/transcript/README-31.md) [32](/content/transcript/README-32.md) [33](/content/transcript/README-33.md) [34](/content/transcript/README-34.md) ... [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-30.md) [查看全部](/content/transcript/README-all.md)

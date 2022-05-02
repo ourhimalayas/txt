@@ -3,6 +3,8 @@
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
 
+[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/content/transcript/2018/04/20180418-4451931649943991252.md)
+
 [美国挺郭后援会截止至今日名单如下](/content/transcript/2018/04/20180418-4811924814985663963.md)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/transcript/2018/04/20180418-2729532853787239400.md)
@@ -50,8 +52,6 @@
 [2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？](/content/transcript/2018/04/20180418-5167983296675509473.md)
 
 [2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳](/content/transcript/2018/04/20180418-4084377282763556.md)
-
-[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/transcript/2018/04/20180418-1721457250505894859.md)
 
 
 ## 頁面 41/42 [**<**](/content/transcript/README-40.md) [1](/content/transcript/README.md) ... [36](/content/transcript/README-36.md) [37](/content/transcript/README-37.md) [38](/content/transcript/README-38.md) [39](/content/transcript/README-39.md) [40](/content/transcript/README-40.md) **41** [42](/content/transcript/README-42.md) [**>**](/content/transcript/README-42.md) [查看全部](/content/transcript/README-all.md)
