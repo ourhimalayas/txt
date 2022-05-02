@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 4:40 AM UTC  - :tv:直播](/content/gettr/p17yju6b1a2.md)
+
+5/1/2022 Miles Guo: Once Nancy Pelosi visits Taiwan, the CCP will create conflicts and incite anti-Chinese incidents around the world, so that overseas Chinese are forced to return to Communist China; lockdowns and "Zero COVID" pol...
+
+<img src="https://media.gettr.com/group27/getter/2022/05/02/04/4292914d-d237-c98e-4db9-78dd3b4f29ea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 3:49 AM UTC  - :tv:直播](/content/gettr/p17xrjr2e8e.md)
 
 5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
@@ -72,11 +80,11 @@
 
 ---
 
-[@miles 5/2/2022 4:40 AM UTC  - :tv:直播](/content/gettr/p17yju6b1a2.md)
+[@miles 5/2/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p17y69k9e92.md)
 
-5/1/2022 Miles Guo: Once Nancy Pelosi visits Taiwan, the CCP will create conflicts and incite anti-Chinese incidents around the world, so that overseas Chinese are forced to return to Communist China; lockdowns and "Zero COVID" pol...
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group27/getter/2022/05/02/04/4292914d-d237-c98e-4db9-78dd3b4f29ea/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/05/02/05/c6a89a6e-8472-9555-761b-033bcdaf862d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@
 【Ukraine Rescue】04/30/2022  French volunteer Caroline: NFSC’s coffee is the best. The NFSC’s rescue team is very friendly. Taking down the Chinese Communist Party is necessary. She feels emotional at the solidarity and modesty of t...
 
 <img src="https://media.gettr.com/group26/getter/2022/05/01/22/d6caf349-49b8-a4a2-4b20-7a5cb2883c26/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 10:08 PM UTC  - :tv:直播](/content/gettr/p17wn6zf8d7.md)
-
-“一颗棋子...” 飞飞秀救援快报 2022-05-01
-
-For English：gettr.com/streaming/p17wlkp8055
-
-<img src="https://media.gettr.com/group40/origin/2022/05/01/22/b3125ce2-bc95-0e8c-5d6b-cab212e5f390/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
