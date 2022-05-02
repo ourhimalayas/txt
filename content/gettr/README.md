@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p182kml148c.md)
+
+5/2/2022 Miles Guo: The Himalaya Coin will certainly go to the moon! The whole family of a Japanese friend who invested in the construction of Yuda Palace Hotel wants to buy the Himalaya Coins in large quantities. The properties ne...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/02/23/90ed1261-459f-785d-79f8-aac6dd37fa0f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 11:16 PM UTC ](/content/gettr/p182y65d6fd.md)
 
 The Chinese Communist Party (CCP) control the circulation of RMB by restricting the bank withdrawals for the deplorable, thus keeping the USD exchange rate to RMB at 6-7. The China’s economy is grossly falsified and fraudulent, and...
@@ -10,11 +18,11 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 
 ---
 
-[@miles 5/2/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p182mry8661.md)
+[@miles 5/2/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p182kq126a5.md)
 
-2022.05.02 PM NFSC news  Russian volunteer supports Ukraine and wishes for Chinese people to be free
+2022.05.02  NFSC fringe  Episode 181
 
-<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/05/02/23/8e2e1481-bdca-5fbf-4aa7-34b92ef99924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 5/2/2022 Miles Guo: As the CCP is on its way of demise, the Whistleblowers’ Movement and the New Federal State of China have entered a critical moment. Many people have realized how impactful I am during the lockdown in mainland Ch...
 
 <img src="https://media.gettr.com/group7/getter/2022/05/02/23/d75e7bb6-dcfd-09bb-111c-2a0974a2e9d0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p182mry8661.md)
+
+2022.05.02 PM NFSC news  Russian volunteer supports Ukraine and wishes for Chinese people to be free
+
+<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex
 【Ukraine Rescue】04/30/2022 A Korean volunteer from Austria was impressed by the rescue work of the New Federation of China. Speaking of the evil of North Korea and the CCP dictatorship and the harm to the world, he smiles knowingly...
 
 <img src="https://media.gettr.com/group9/getter/2022/05/02/14/a23f64dc-d742-c492-7571-6ec5abed7a26/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 1:49 PM UTC  - 5圖](/content/gettr/p1806ozdcd7.md)
-
- 5月2号：尊敬的战友们好……再来几张的照片……
-
-<img src="https://media.gettr.com/group27/getter/2022/05/02/13/5432b626-e6ce-34dd-985e-3b9416045101/cee18fef649d197dee177b05efea6968.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p180bb5e3b3.md)
-
-5月2号：新中国联邦爆二代太强了……新中国联邦……灭共革命的一代．强国又一代，这是我们的未来．这是我们的骄傲，这是我们的希望。【郭叔好，最近为了新中国联邦咖啡我和爱迪创作了一首新歌曲。近期我们一家都在参与救援行动的宣传和分享。我最近也在联盟新闻那边去做总编，喜妈跟进您的号召也在参与亚太地区的前线连线直播和ppt制作，松鼠也是在继续农场内部的各种活动，爱迪也写了好些中英文GNEWS；所以近期之前没有新的歌曲创作。但我们看到了新中国联邦救援行动的重要性和新中国联...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/02/13/6054f66a-52d7-38eb-38f1-c52164696fa9/out.jpg" width="506" height="284">
 
 ---
 
