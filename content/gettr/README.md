@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 2:49 PM UTC ](/content/gettr/p17zz7x0016.md)
+
+ 5月2号：突然有了想直播的冲动，但我只有很少的时间可以咋办呢？咋办呢？
+
+<img src="https://media.gettr.com/group8/getter/2022/05/02/14/263ea553-7bc6-81a5-3e96-d9203aebc40f/629f8139f8f275440c2d06a97b05eb8f.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 2:37 PM UTC  - 2圖](/content/gettr/p180hthf892.md)
 
 5月2号：过去的五年．只有我一个人．告诉全世界的各国政府．普京的身体非常的不好，而且做过两次手术，但所有人都是选择了不相信．由此可见，世界上所谓的情报机构不像电影里演的那么了不起，我们老百姓都是被这些所谓法定的机构玩弄的牺牲品而已。这张照片寓意深远了——
@@ -14,11 +22,11 @@ https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex
 
 ---
 
-[@miles 5/2/2022 1:49 PM UTC  - 5圖](/content/gettr/p1806ozdcd7.md)
+[@miles 5/2/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p180i1i6884.md)
 
- 5月2号：尊敬的战友们好……再来几张的照片……
+2022.05.02  七哥乱聊
 
-<img src="https://media.gettr.com/group27/getter/2022/05/02/13/5432b626-e6ce-34dd-985e-3b9416045101/cee18fef649d197dee177b05efea6968.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +35,14 @@ https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex
 【Ukraine Rescue】04/30/2022 A Korean volunteer from Austria was impressed by the rescue work of the New Federation of China. Speaking of the evil of North Korea and the CCP dictatorship and the harm to the world, he smiles knowingly...
 
 <img src="https://media.gettr.com/group9/getter/2022/05/02/14/a23f64dc-d742-c492-7571-6ec5abed7a26/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 1:49 PM UTC  - 5圖](/content/gettr/p1806ozdcd7.md)
+
+ 5月2号：尊敬的战友们好……再来几张的照片……
+
+<img src="https://media.gettr.com/group27/getter/2022/05/02/13/5432b626-e6ce-34dd-985e-3b9416045101/cee18fef649d197dee177b05efea6968.jpg" width="506" height="284">
 
 ---
 
@@ -179,22 +195,6 @@ Day 57 - Date: A...
 2022-5-1《鸡血王喜币大作战》 第一百八十二集 嘉宾：齐天二圣、七里香
 
 <img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p17xrjkae4b.md)
-
-5/1/2022 Miles Guo: The New Federal State of China now has the greatest mission in the history of humanity - to help the Chinese people rebuild the country. What I am worried about is how to rebuild China following the destruction ...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/02/03/bdac8612-8433-873d-640c-13cbf845988f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:30 AM UTC  - :tv:直播](/content/gettr/p17xlwv6fdb.md)
-
-5/1/2022 Miles Guo: The New Federal State of China and the Whistleblowers' Movement have had a profound impact on the world, with the ideas of the New Federal State of China and the Way of Righteousness being widely accepted. The s...
-
-<img src="https://media.gettr.com/group29/getter/2022/05/02/02/051e2a90-2cd6-0ac6-ec12-4c6b20cab43a/out.jpg" width="506" height="284">
 
 ---
 
