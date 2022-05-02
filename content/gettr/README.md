@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p17xuwy85da.md)
+
+2022.05.01 农场联盟工作汇报
+
+<img src="https://media.gettr.com/group10/origin/2022/02/07/03/91050338-c50d-5a70-2249-83adcf48a829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p17x6kg438e.md)
 
 2022.05.01  晚 新中国联邦 | 新闻访谈    普京面临三刀,  硬汉形象瓦解
@@ -24,11 +32,11 @@
 
 ---
 
-[@miles 5/2/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p17xuwy85da.md)
+[@miles 5/2/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p17x9ncebf4.md)
 
-2022.05.01 农场联盟工作汇报
+5/1/2022 Miles Guo: My fifth recent feeling is that the G-series’s big impact on the global economic field is out of my expectation, especially the Himalaya Exchange, Himalaya Coin and Himalaya Pay, GETTR and GNEWS, all of which ar...
 
-<img src="https://media.gettr.com/group10/origin/2022/02/07/03/91050338-c50d-5a70-2249-83adcf48a829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/05/02/02/1ee3f592-3012-0c20-2e2d-9bbeb1e34fde/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ For English：gettr.com/streaming/p17wlkp8055
 
 
 https://gnews.org...
-
----
-
-[@miles 5/1/2022 5:40 PM UTC  - 6圖](/content/gettr/p17vixlc6df.md)
-
-5月1号：尊敬的战友们好，这一连串的发生的事实……和历史的偶然性，是否能让我们找出一个基本的准确的答案呢？
-
-<img src="https://media.gettr.com/group17/getter/2022/05/01/17/3fe7fb88-77c8-37cf-8df2-ce5437552660/bd3e7bd7303e2dae367e6b7969648d76.jpg" width="506" height="284">
 
 ---
 
