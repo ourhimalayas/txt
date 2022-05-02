@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p17x6kg438e.md)
+
+2022.05.01  晚 新中国联邦 | 新闻访谈    普京面临三刀,  硬汉形象瓦解
+
+<img src="https://media.gettr.com/group30/origin/2022/05/02/01/56e86e53-af15-5118-be7a-6711da4e8ceb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 12:46 AM UTC ](/content/gettr/p17wrx90fa8.md)
 
  5月1号：尊敬的战友们好，这是我从清丰看守．所出来后的十几个月建立的郑州的大老板家具厂办公室！在郑州市机电研究所办公楼．
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 5/2/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p17x6kg438e.md)
+[@miles 5/2/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p17xuwy85da.md)
 
-2022.05.01  晚 新中国联邦 | 新闻访谈    普京面临三刀,  硬汉形象瓦解
+2022.05.01 农场联盟工作汇报
 
-<img src="https://media.gettr.com/group30/origin/2022/05/02/01/56e86e53-af15-5118-be7a-6711da4e8ceb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/02/07/03/91050338-c50d-5a70-2249-83adcf48a829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,24 +177,6 @@ https://gnews.org...
 5月1号：尊敬的战友们好，这一连串的发生的事实……和历史的偶然性，是否能让我们找出一个基本的准确的答案呢？
 
 <img src="https://media.gettr.com/group17/getter/2022/05/01/17/3fe7fb88-77c8-37cf-8df2-ce5437552660/bd3e7bd7303e2dae367e6b7969648d76.jpg" width="506" height="284">
-
----
-
-[@pangushixun 4/30/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p17qfcta746.md)
-
-习近平手下
-
-黄万盛酒后吐真言
-
-
-
-#盘古时讯 
-
-#核酸 
-
-#不是健康问题 #政治问题
-
-<img src="https://media.gettr.com/group38/getter/2022/04/30/13/fe0a6a2f-b0c4-3aa6-92eb-1823e7092949/out.jpg" width="506" height="284">
 
 ---
 
