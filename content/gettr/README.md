@@ -2,11 +2,27 @@
 ---
 
 
+[@miles 5/2/2022 11:16 PM UTC ](/content/gettr/p182y65d6fd.md)
+
+The Chinese Communist Party (CCP) control the circulation of RMB by restricting the bank withdrawals for the deplorable, thus keeping the USD exchange rate to RMB at 6-7. The China’s economy is grossly falsified and fraudulent, and...
+
+<img src="https://media.gettr.com/group7/origin/2022/05/02/23/6beee54a-9c10-7c31-b90b-582446cdc466/f2bf8a83359f586b3ce220a115fafab9.png" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p182mry8661.md)
 
 2022.05.02 PM NFSC news  Russian volunteer supports Ukraine and wishes for Chinese people to be free
 
 <img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p182x3uf618.md)
+
+5/2/2022 Miles Guo: As the CCP is on its way of demise, the Whistleblowers’ Movement and the New Federal State of China have entered a critical moment. Many people have realized how impactful I am during the lockdown in mainland Ch...
+
+<img src="https://media.gettr.com/group7/getter/2022/05/02/23/d75e7bb6-dcfd-09bb-111c-2a0974a2e9d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +34,19 @@
 
 ---
 
-[@miles 5/2/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p182iji533d.md)
-
-A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of his Ukraine friends has been killed and one has been captured. Nicole tells him that the new Chinese people from the New Federal State of China stand wi...
-
-<img src="https://media.gettr.com/group49/origin/2022/05/02/22/a8591c58-cdce-b7e2-7401-bc9b50a846a0/out.jpg" width="506" height="284">
-
----
-
 [@miles 5/2/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p182xpmd4e0.md)
 
 5/2/2022 Miles Guo: Why did I post old photos in the past several days? Why should we put together a roadmap for the Whistleblowers’ Movement? Why should we do it starting with myself? Do you know how the things going on in east Uk...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/02/23/f7fddb57-af53-45f4-6437-4bac7cde17c8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p182iji533d.md)
+
+A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of his Ukraine friends has been killed and one has been captured. Nicole tells him that the new Chinese people from the New Federal State of China stand wi...
+
+<img src="https://media.gettr.com/group49/origin/2022/05/02/22/a8591c58-cdce-b7e2-7401-bc9b50a846a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex
 5月2号：新中国联邦爆二代太强了……新中国联邦……灭共革命的一代．强国又一代，这是我们的未来．这是我们的骄傲，这是我们的希望。【郭叔好，最近为了新中国联邦咖啡我和爱迪创作了一首新歌曲。近期我们一家都在参与救援行动的宣传和分享。我最近也在联盟新闻那边去做总编，喜妈跟进您的号召也在参与亚太地区的前线连线直播和ppt制作，松鼠也是在继续农场内部的各种活动，爱迪也写了好些中英文GNEWS；所以近期之前没有新的歌曲创作。但我们看到了新中国联邦救援行动的重要性和新中国联...
 
 <img src="https://media.gettr.com/group24/getter/2022/05/02/13/6054f66a-52d7-38eb-38f1-c52164696fa9/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p180ag94074.md)
-
-2022.05.02  早 新中国联邦 | 新闻访谈   拜登将邀太平洋地区领导人访美；东南亚五国登上全球遭中共国渗透前十国榜单，台湾排行第九
-
-<img src="https://media.gettr.com/group10/origin/2022/05/02/13/b61c36a8-e99e-a7f3-614b-453cb9496d59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p17zymrea1e.md)
-
-2022.05.02  早 新中国联邦 | 新闻   英格兰义工感谢新中国联邦的灭共行动；中共GDP造假掩盖国内经济崩塌
-
-<img src="https://media.gettr.com/group29/origin/2022/05/02/12/32cdc8f8-c055-b9e4-e144-db5e2dec4958/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
