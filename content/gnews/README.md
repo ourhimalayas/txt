@@ -2,6 +2,27 @@
 ---
 
 
+#### [俄罗斯和乌克兰总统同意参加今年的G20](/content/gnews/2455948.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [乌克兰志愿者克里斯汀：看到真正反抗共产主义的中国人，我很受鼓舞](/content/gnews/2455947.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中国人不要再做人畜](/content/gnews/2455943.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [视频&#124;联合国通过决议 限制五常“一票否决权”](/content/gnews/2455935.md)
+ `MOSVIDEO`
+
+#### [4月30日俄乌战况最新进展](/content/gnews/2455922.md)
+ `NFSC News`
+
+#### [主流媒体CNN为医药公司疫苗经济大作宣传](/content/gnews/2455915.md)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [韩国志愿者认为我们需要摆脱世界上大部分威胁民主或自由的共产主义危机](/content/gnews/2455914.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [【全文字幕】2022年2月24日 郭文贵先生紧急直播](/content/gnews/2455890.md)
  `文贵视频字幕全集`
 
@@ -44,17 +65,11 @@
 #### [“轴心法” 是拯救中国人最后的希望](/content/gnews/2455814.md)
  `NFSC News`
 
-#### [【说事儿】核酸检测耽误治疗，一岁半男童无辜丧命](/content/gnews/2455798.md)
- `TokyoSakuraDesignGroup`
-
 #### [【说事儿】保时捷向为中国客户减配问题道歉](/content/gnews/2455777.md)
  `TokyoSakuraDesignGroup`
 
 #### [俄罗斯打击了美国在乌克兰的武器](/content/gnews/2455769.md)
  `韩国正道农场`
-
-#### [【说事儿】美国租借法案和轴心法案开启世界大战应对模式](/content/gnews/2455764.md)
- `TokyoSakuraDesignGroup`
 
 #### [波兰向乌克兰派出200辆坦克，基辅称俄罗斯在东部遭受巨大损失](/content/gnews/2455763.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -62,8 +77,8 @@
 #### [2022年5月2日战时快讯](/content/gnews/2455742.md)
  `墨尔本雅典娜农场`
 
-#### [【说事儿】中共拉多国小弟为“动态清零”防疫政策站台](/content/gnews/2455704.md)
- `TokyoSakuraDesignGroup`
+#### [有声&#124;法国政府宣布为公民创建新的数字身份应用](/content/gnews/2455723.md)
+ `MOSREC`
 
 #### [美官员认为不存在‘俄罗斯使用核武器的’威胁](/content/gnews/2455685.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -71,17 +86,8 @@
 #### [乌克兰马里乌波尔钢铁厂开始撤离市民](/content/gnews/2455673.md)
  `温哥华圆成农场🇨🇦`
 
-#### [中国的经济正在崩溃](/content/gnews/2455663.md)
- `加拿大温哥华扬帆农场视频组`
-
-#### [视频&#124;美军驱逐舰例行训练 再次穿越台湾海峡](/content/gnews/2455652.md)
- `MOSVIDEO`
-
 #### [郭先生分享近期前所未有的五个感受](/content/gnews/2455632.md)
  `银河歌舞厅`
-
-#### [有声&#124;日媒前线记者继续揭露中共上海防疫的本质](/content/gnews/2455619.md)
- `MOSREC`
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱](/content/gnews/2455568.md)
  `墨尔本雅典娜农场`
@@ -128,17 +134,11 @@
 #### [北京再爆健康宝弹窗集中出现凸显当局极限压力测试前兆](/content/gnews/2454303.md)
  `战云长天时评`
 
-#### [卫星数据显示中共国封锁的严重程度](/content/gnews/2454279.md)
- `喜马拉雅农场新西兰站`
-
 #### [川普“真相社交”平台成为虚假信息委员会的目标](/content/gnews/2454258.md)
  `秘密翻譯組G-Translators`
 
 #### [国际｜传芬兰5月12日 正式决定是否加入北约](/content/gnews/2453777.md)
  `關注組`
-
-#### [秘翻在线：俄罗斯宣布战胜节与战胜宣言的可能性“无关”](/content/gnews/2453750.md)
- `秘密翻譯組G-Translators`
 
 #### [中共国内取钱限额的核心原因](/content/gnews/2453569.md)
  `银河歌舞厅`
