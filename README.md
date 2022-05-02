@@ -11,14 +11,29 @@
 
 ---
 
-#### [【说事儿】小米涉嫌违反印度外汇法7.25亿美元被扣押](/content/gnews/2455691.md)
+#### [【说事儿】核酸检测耽误治疗，一岁半男童无辜丧命](/content/gnews/2455798.md)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】保时捷向为中国客户减配问题道歉](/content/gnews/2455777.md)
+ `TokyoSakuraDesignGroup`
+
+#### [俄罗斯打击了美国在乌克兰的武器](/content/gnews/2455769.md)
+ `韩国正道农场`
+
+#### [【说事儿】美国租借法案和轴心法案开启世界大战应对模式](/content/gnews/2455764.md)
+ `TokyoSakuraDesignGroup`
+
+#### [波兰向乌克兰派出200辆坦克，基辅称俄罗斯在东部遭受巨大损失](/content/gnews/2455763.md)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [2022年5月2日战时快讯](/content/gnews/2455742.md)
+ `墨尔本雅典娜农场`
+
+#### [【说事儿】中共拉多国小弟为“动态清零”防疫政策站台](/content/gnews/2455704.md)
  `TokyoSakuraDesignGroup`
 
 #### [美官员认为不存在‘俄罗斯使用核武器的’威胁](/content/gnews/2455685.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【说事儿】俄乌冲突持续 乌总统称谈判有中断风险](/content/gnews/2455678.md)
- `TokyoSakuraDesignGroup`
 
 #### [乌克兰马里乌波尔钢铁厂开始撤离市民](/content/gnews/2455673.md)
  `温哥华圆成农场🇨🇦`
@@ -26,20 +41,14 @@
 #### [有声&#124;FDA寻求批准为5岁以下儿童接种COVID-19疫苗](/content/gnews/2455669.md)
  `MOSREC`
 
-#### [【说事儿】国内经济崩塌前，中共继续忽悠GDP增长并试图复活企业](/content/gnews/2455664.md)
- `TokyoSakuraDesignGroup`
-
 #### [中国的经济正在崩溃](/content/gnews/2455663.md)
  `加拿大温哥华扬帆农场视频组`
-
-#### [疫苗灾难下——中共封锁城市的毁灭性社会代价](/content/gnews/2455662.md)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [郭先生分享近期前所未有的五个感受](/content/gnews/2455632.md)
  `银河歌舞厅`
 
-#### [舒尔茨倡导与日本开展氢能合作](/content/gnews/2455623.md)
- `澳喜特战旅Gnews`
+#### [有声&#124;日媒前线记者继续揭露中共上海防疫的本质](/content/gnews/2455619.md)
+ `MOSREC`
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱](/content/gnews/2455568.md)
  `墨尔本雅典娜农场`
@@ -48,9 +57,6 @@
  `MOSREC`
 
 #### [樱花FM┃你为什么要给我钱？](/content/gnews/2455542.md)
- `樱花FM`
-
-#### [樱花FM┃供销社：中共一盘下不完的大棋！](/content/gnews/2455538.md)
  `樱花FM`
 
 #### [上海市民，敲锅抗议封城进入第五周](/content/gnews/2455462.md)
@@ -92,9 +98,6 @@
 #### [2022/05/02 英喜时事速递](/content/gnews/2454983.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [芯片财团ISMC将在印度卡纳塔克邦建立30亿美元的工厂](/content/gnews/2454953.md)
- `墨尔本雅典娜农场`
-
 #### [视频&#124;中共不但输出病毒，还输出通货膨胀](/content/gnews/2454856.md)
  `MOSVIDEO`
 
@@ -106,9 +109,6 @@
 
 #### [疫苗背后的利益关系概况](/content/gnews/2454570.md)
  `澳喜农场`
-
-#### [《2022年乌克兰民主防御租借法案》通过](/content/gnews/2454480.md)
- `澳喜特战旅Gnews`
 
 #### [中日财经爆┃禁止医院进口！中共外汇完了](/content/gnews/2454415.md)
  `東京櫻花団-Tokyo Sakura Group`
