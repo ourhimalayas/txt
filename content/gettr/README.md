@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17yulf1f20.md)
+
+【Ukraine Rescue】04/30/2022 A Polish paramedic volunteer says she is really surprised to see so many Chinese people at the Medyka border. Polish has as well a long history of communism. We understand communism very well, and your si...
+
+<img src="https://media.gettr.com/group48/getter/2022/05/02/07/4489f8bc-d486-a16c-e59f-853600e74f83/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p17y2q710cc.md)
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -128,11 +136,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17yulf1f20.md)
+[@miles 5/2/2022 8:11 AM UTC  - :tv:直播](/content/gettr/p17y64f990c.md)
 
-【Ukraine Rescue】04/30/2022 A Polish paramedic volunteer says she is really surprised to see so many Chinese people at the Medyka border. Polish has as well a long history of communism. We understand communism very well, and your si...
+2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
 
-<img src="https://media.gettr.com/group48/getter/2022/05/02/07/4489f8bc-d486-a16c-e59f-853600e74f83/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/05/02/08/a3b037e5-f940-ea4c-e0c8-6d68aeaaf78f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Day 57 - Date: A...
 5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p17x5ui24f7.md)
-
-5/1/2022 Miles Guo: The Chinese Communist Party has successfully led the Chinese people into an animal-slave society! There is a complete moral bankruptcy. People are harming each other, and all they care about is to survive like a...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/01/23/993add13-e75b-bcaf-06e4-85ce5d702431/out.jpg" width="506" height="284">
 
 ---
 
