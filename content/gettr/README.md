@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/2/2022 5:52 AM UTC ](/content/gettr/p17yiuiae91.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年4月30日第57天当日救援统计：
+
+Medyka救援站接待：约538人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16008人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 57 - Date: A...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/02/05/b1f3250b-311c-99ba-a350-111f32115bca/322cd530f39d0c37302cedc86ad7cd3e.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 5:04 AM UTC  - :tv:直播](/content/gettr/p17y69k9e92.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -88,35 +120,11 @@
 
 ---
 
-[@miles 5/2/2022 5:52 AM UTC ](/content/gettr/p17yiuiae91.md)
+[@miles 5/2/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p17y2q710cc.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
-
-
-2022年4月30日第57天当日救援统计：
-
-Medyka救援站接待：约538人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16008人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 57 - Date: A...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/02/05/b1f3250b-311c-99ba-a350-111f32115bca/322cd530f39d0c37302cedc86ad7cd3e.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/05/02/06/0305efc2-af53-3312-e25e-0df3a9602d67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Day 57 - Date: A...
 5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p17wgww9851.md)
-
-2022.05.01  PM NFSC news   HK's External Debt to Implode; CCP's Financial System to Collapse
-
-<img src="https://media.gettr.com/group30/origin/2022/05/01/22/2ca74b5b-e224-fcef-a2b9-72bcffc918e0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
