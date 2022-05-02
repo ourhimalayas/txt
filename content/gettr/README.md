@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p181leid02a.md)
+
+2022.05.02  新中国联邦 | 喜健康   老药新用：探讨含碘药剂抵抗冠状病毒感染
+
+<img src="https://media.gettr.com/group25/origin/2022/05/02/20/c08d693a-b560-9103-7391-992719737fe4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p17yz6ib817.md)
 
 2022.05.02 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -34,11 +42,13 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 ---
 
-[@miles 5/2/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p181leid02a.md)
+[@miles 5/2/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p182hixd978.md)
 
-2022.05.02  新中国联邦 | 喜健康   老药新用：探讨含碘药剂抵抗冠状病毒感染
+“老照片” 飞飞秀救援快报 2022-05-02
 
-<img src="https://media.gettr.com/group25/origin/2022/05/02/20/c08d693a-b560-9103-7391-992719737fe4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1820lm77b3
+
+<img src="https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ Angelic little girl, I would like to be represented by you, your soul ...
 2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
 
 <img src="https://media.gettr.com/group8/origin/2022/05/02/08/a3b037e5-f940-ea4c-e0c8-6d68aeaaf78f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 7:40 AM UTC  - :tv:直播](/content/gettr/p17yulf1f20.md)
-
-【Ukraine Rescue】04/30/2022 A Polish paramedic volunteer says she is really surprised to see so many Chinese people at the Medyka border. Polish has as well a long history of communism. We understand communism very well, and your si...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/02/07/4489f8bc-d486-a16c-e59f-853600e74f83/out.jpg" width="506" height="284">
 
 ---
 
