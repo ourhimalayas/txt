@@ -2,11 +2,39 @@
 ---
 
 
+[@miles 5/2/2022 2:37 PM UTC  - 2圖](/content/gettr/p180hthf892.md)
+
+5月2号：过去的五年．只有我一个人．告诉全世界的各国政府．普京的身体非常的不好，而且做过两次手术，但所有人都是选择了不相信．由此可见，世界上所谓的情报机构不像电影里演的那么了不起，我们老百姓都是被这些所谓法定的机构玩弄的牺牲品而已。这张照片寓意深远了——
+
+
+
+https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex-spy-chief-claims-re...
+
+<img src="https://media.gettr.com/group14/getter/2022/05/02/14/9a4d0539-127b-775a-2f0e-26687ecc870f/a01edf86aefa9c6b8d8f7d4c53fc9729.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 1:49 PM UTC  - 5圖](/content/gettr/p1806ozdcd7.md)
 
  5月2号：尊敬的战友们好……再来几张的照片……
 
 <img src="https://media.gettr.com/group27/getter/2022/05/02/13/5432b626-e6ce-34dd-985e-3b9416045101/cee18fef649d197dee177b05efea6968.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 2:39 PM UTC  - :tv:直播](/content/gettr/p17zywi0472.md)
+
+【Ukraine Rescue】04/30/2022 A Korean volunteer from Austria was impressed by the rescue work of the New Federation of China. Speaking of the evil of North Korea and the CCP dictatorship and the harm to the world, he smiles knowingly...
+
+<img src="https://media.gettr.com/group9/getter/2022/05/02/14/a23f64dc-d742-c492-7571-6ec5abed7a26/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p180bb5e3b3.md)
+
+5月2号：新中国联邦爆二代太强了……新中国联邦……灭共革命的一代．强国又一代，这是我们的未来．这是我们的骄傲，这是我们的希望。【郭叔好，最近为了新中国联邦咖啡我和爱迪创作了一首新歌曲。近期我们一家都在参与救援行动的宣传和分享。我最近也在联盟新闻那边去做总编，喜妈跟进您的号召也在参与亚太地区的前线连线直播和ppt制作，松鼠也是在继续农场内部的各种活动，爱迪也写了好些中英文GNEWS；所以近期之前没有新的歌曲创作。但我们看到了新中国联邦救援行动的重要性和新中国联...
+
+<img src="https://media.gettr.com/group24/getter/2022/05/02/13/6054f66a-52d7-38eb-38f1-c52164696fa9/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,30 +195,6 @@ Day 57 - Date: A...
 5/1/2022 Miles Guo: The New Federal State of China and the Whistleblowers' Movement have had a profound impact on the world, with the ideas of the New Federal State of China and the Way of Righteousness being widely accepted. The s...
 
 <img src="https://media.gettr.com/group29/getter/2022/05/02/02/051e2a90-2cd6-0ac6-ec12-4c6b20cab43a/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p17x9ncebf4.md)
-
-5/1/2022 Miles Guo: My fifth recent feeling is that the G-series’s big impact on the global economic field is out of my expectation, especially the Himalaya Exchange, Himalaya Coin and Himalaya Pay, GETTR and GNEWS, all of which ar...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/02/02/1ee3f592-3012-0c20-2e2d-9bbeb1e34fde/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:01 AM UTC  - :tv:直播](/content/gettr/p17xuwy85da.md)
-
-2022.05.01 农场联盟工作汇报
-
-<img src="https://media.gettr.com/group10/origin/2022/02/07/03/91050338-c50d-5a70-2249-83adcf48a829/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p180bb5e3b3.md)
-
-5月2号：新中国联邦爆二代太强了……新中国联邦……灭共革命的一代．强国又一代，这是我们的未来．这是我们的骄傲，这是我们的希望。【郭叔好，最近为了新中国联邦咖啡我和爱迪创作了一首新歌曲。近期我们一家都在参与救援行动的宣传和分享。我最近也在联盟新闻那边去做总编，喜妈跟进您的号召也在参与亚太地区的前线连线直播和ppt制作，松鼠也是在继续农场内部的各种活动，爱迪也写了好些中英文GNEWS；所以近期之前没有新的歌曲创作。但我们看到了新中国联邦救援行动的重要性和新中国联...
-
-<img src="https://media.gettr.com/group24/getter/2022/05/02/13/6054f66a-52d7-38eb-38f1-c52164696fa9/out.jpg" width="506" height="284">
 
 ---
 
