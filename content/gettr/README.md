@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p17yzjz7f4b.md)
+
+NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
+
+<img src="https://media.gettr.com/group13/origin/2022/05/02/15/7f439604-2145-2cc0-25d3-057888ba0547/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 3:43 PM UTC  - :tv:直播](/content/gettr/p180ytj51f7.md)
 
 5/1/2022 Miles Guo: Many large national institutional investors want to work with us; and our endeavor to take down the CCP has been recognized worldwide! The West is taking a series of actions to eliminate the CCP's spy networks a...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/2/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p17yzjz7f4b.md)
+[@miles 5/2/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p17yz6ib817.md)
 
-NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
+2022.05.02 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
 
-<img src="https://media.gettr.com/group13/origin/2022/05/02/15/7f439604-2145-2cc0-25d3-057888ba0547/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/05/02/17/50341c6e-fdf1-c14e-1bca-bd1b34523919/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,38 +171,6 @@ Angelic little girl, I would like to be represented by you, your soul ...
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 
 <img src="https://media.gettr.com/group31/origin/2022/05/02/06/0305efc2-af53-3312-e25e-0df3a9602d67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 5:52 AM UTC ](/content/gettr/p17yiuiae91.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年4月30日第57天当日救援统计：
-
-Medyka救援站接待：约538人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16008人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 57 - Date: A...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/02/05/b1f3250b-311c-99ba-a350-111f32115bca/322cd530f39d0c37302cedc86ad7cd3e.jpg" width="506" height="284">
 
 ---
 
