@@ -11,8 +11,14 @@
 
 ---
 
+#### [英特尔首席执行官表示，全球芯片短缺将持续到2024年](/content/gnews/2456569.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [文贵爆料5.2：政事太多，乱聊有料](/content/gnews/2456562.md)
  `秘密翻译组-原创组`
+
+#### [渥太华警方打压摩托车队“滚雷行动”](/content/gnews/2456536.md)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [郭先生令人深思的五个感受](/content/gnews/2456525.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -32,6 +38,12 @@
 #### [中共国社会的扭曲](/content/gnews/2456469.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
+#### [有声新闻-新西兰财经G乐部2022年5月2日:财经新闻整理](/content/gnews/2456431.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [新西兰财经G乐部2022年5月2日:财经新闻整理](/content/gnews/2456430.md)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
 #### [有声&#124;上海市民敲锅抗议封锁，被中共定性境外势力参与](/content/gnews/2456429.md)
  `MOSREC`
 
@@ -46,9 +58,6 @@
 
 #### [加拿大拒绝多数军人疫苗豁免申请](/content/gnews/2456409.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [中日财经爆┃芬兰中止与俄罗斯国家原子能公司的核电站合同](/content/gnews/2456366.md)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [有声&#124;Omicron新变异株具更强感染力及突破性感染](/content/gnews/2456358.md)
  `MOSREC`
@@ -115,15 +124,6 @@
 
 #### [波兰向乌克兰派出200辆坦克，基辅称俄罗斯在东部遭受巨大损失](/content/gnews/2455763.md)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [2022年5月2日战时快讯](/content/gnews/2455742.md)
- `墨尔本雅典娜农场`
-
-#### [美官员认为不存在‘俄罗斯使用核武器的’威胁](/content/gnews/2455685.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [乌克兰马里乌波尔钢铁厂开始撤离市民](/content/gnews/2455673.md)
- `温哥华圆成农场🇨🇦`
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱](/content/gnews/2455568.md)
  `墨尔本雅典娜农场`
