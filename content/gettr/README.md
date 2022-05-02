@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p180eg68fdc.md)
+
+2022.05.02 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
+
+<img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1808sqc2e2.md)
 
 2022.05.02  新中国联邦 | 军情室  TB2再袭俄军巡逻艇，俄境内油库火灾频發，網傳俄總參謀長受傷，盘点普京的核武威胁
@@ -162,19 +170,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p180eg68fdc.md)
+[@miles 5/2/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p17zymrea1e.md)
 
-2022.05.02 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
+2022.05.02  早 新中国联邦 | 新闻   英格兰义工感谢新中国联邦的灭共行动；中共GDP造假掩盖国内经济崩塌
 
-<img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:49 AM UTC  - 3圖](/content/gettr/p17wz9ld756.md)
-
- 5月1号：这就已经到了，九二年到．九三年了？？……胸怀大哥大呀……孟姜女哭塑处的思考
-
-<img src="https://media.gettr.com/group3/getter/2022/05/02/00/5271c40d-d397-c922-f0bc-dba1a848af71/8c3717713e3ed4d12117a04cdb5a3aa3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/02/12/32cdc8f8-c055-b9e4-e144-db5e2dec4958/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
