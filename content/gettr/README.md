@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p17yz6ib817.md)
+
+2022.05.02 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+
+<img src="https://media.gettr.com/group22/origin/2022/05/02/17/50341c6e-fdf1-c14e-1bca-bd1b34523919/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 3:58 PM UTC  - :tv:直播](/content/gettr/p17yzjz7f4b.md)
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
@@ -26,11 +34,11 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 ---
 
-[@miles 5/2/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p17yz6ib817.md)
+[@miles 5/2/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p181leid02a.md)
 
-2022.05.02 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+2022.05.02  新中国联邦 | 喜健康   老药新用：探讨含碘药剂抵抗冠状病毒感染
 
-<img src="https://media.gettr.com/group22/origin/2022/05/02/17/50341c6e-fdf1-c14e-1bca-bd1b34523919/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/05/02/20/c08d693a-b560-9103-7391-992719737fe4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Angelic little girl, I would like to be represented by you, your soul ...
 【Ukraine Rescue】04/30/2022 A Polish paramedic volunteer says she is really surprised to see so many Chinese people at the Medyka border. Polish has as well a long history of communism. We understand communism very well, and your si...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/02/07/4489f8bc-d486-a16c-e59f-853600e74f83/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 7:01 AM UTC  - :tv:直播](/content/gettr/p17y2q710cc.md)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group31/origin/2022/05/02/06/0305efc2-af53-3312-e25e-0df3a9602d67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
