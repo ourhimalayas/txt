@@ -136,7 +136,7 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 8:11 AM UTC  - :tv:直播](/content/gettr/p17y64f990c.md)
+[@miles 5/2/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17y64hc25d.md)
 
 2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
 
