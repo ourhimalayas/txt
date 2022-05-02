@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/2/2022 1:49 PM UTC  - 5圖](/content/gettr/p1806ozdcd7.md)
+
+ 5月2号：尊敬的战友们好……再来几张的照片……
+
+<img src="https://media.gettr.com/group27/getter/2022/05/02/13/5432b626-e6ce-34dd-985e-3b9416045101/cee18fef649d197dee177b05efea6968.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p180ag94074.md)
+
+2022.05.02  早 新中国联邦 | 新闻访谈   拜登将邀太平洋地区领导人访美；东南亚五国登上全球遭中共国渗透前十国榜单，台湾排行第九
+
+<img src="https://media.gettr.com/group10/origin/2022/05/02/13/b61c36a8-e99e-a7f3-614b-453cb9496d59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p17zymrea1e.md)
 
 2022.05.02  早 新中国联邦 | 新闻   英格兰义工感谢新中国联邦的灭共行动；中共GDP造假掩盖国内经济崩塌
@@ -170,27 +186,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 1:10 AM UTC  - :tv:直播](/content/gettr/p17x6kg438e.md)
+[@miles 5/2/2022 1:59 PM UTC  - :tv:直播](/content/gettr/p180bb5e3b3.md)
 
-2022.05.01  晚 新中国联邦 | 新闻访谈    普京面临三刀,  硬汉形象瓦解
+5月2号：新中国联邦爆二代太强了……新中国联邦……灭共革命的一代．强国又一代，这是我们的未来．这是我们的骄傲，这是我们的希望。【郭叔好，最近为了新中国联邦咖啡我和爱迪创作了一首新歌曲。近期我们一家都在参与救援行动的宣传和分享。我最近也在联盟新闻那边去做总编，喜妈跟进您的号召也在参与亚太地区的前线连线直播和ppt制作，松鼠也是在继续农场内部的各种活动，爱迪也写了好些中英文GNEWS；所以近期之前没有新的歌曲创作。但我们看到了新中国联邦救援行动的重要性和新中国联...
 
-<img src="https://media.gettr.com/group30/origin/2022/05/02/01/56e86e53-af15-5118-be7a-6711da4e8ceb/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/2/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p180ag94074.md)
-
-2022.05.02  早 新中国联邦 | 新闻访谈   拜登将邀太平洋地区领导人访美；东南亚五国登上全球遭中共国渗透前十国榜单，台湾排行第九
-
-<img src="https://media.gettr.com/group10/origin/2022/05/02/13/b61c36a8-e99e-a7f3-614b-453cb9496d59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:56 AM UTC  - 3圖](/content/gettr/p17xh3ybad8.md)
-
- 5月1号：应很多战友的要求拼命地找出了长头发时的照片．大家能猜猜？这是什么时间拍的吗？七哥用湾流飞机的时候，中国一架私人飞机都没有……
-
-<img src="https://media.gettr.com/group16/getter/2022/05/02/00/8dfec958-c880-c50e-47db-3ac24e0e1300/702ec0b7a8af5f42d14d61b2f6b50c56.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/05/02/13/6054f66a-52d7-38eb-38f1-c52164696fa9/out.jpg" width="506" height="284">
 
 ---
 
