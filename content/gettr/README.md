@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p17wgww9851.md)
+[@miles 5/2/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p17xghvcbc7.md)
 
-2022.05.01  PM NFSC news   HK's External Debt to Implode; CCP's Financial System to Collapse
+2022.05.01  晚 新中国联邦 | 新闻    以色列犹太机构代表：支持新中国联邦的乌克兰救援行动；俄罗斯义工：支持乌克兰 祝愿中国人民获得自由
 
-<img src="https://media.gettr.com/group30/origin/2022/05/01/22/2ca74b5b-e224-fcef-a2b9-72bcffc918e0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/05/02/00/b9fc75f3-8c25-7e6c-a1c4-5b695bf5fa67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
 
 <img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 11:00 PM UTC  - :tv:直播](/content/gettr/p17wgww9851.md)
+
+2022.05.01  PM NFSC news   HK's External Debt to Implode; CCP's Financial System to Collapse
+
+<img src="https://media.gettr.com/group30/origin/2022/05/01/22/2ca74b5b-e224-fcef-a2b9-72bcffc918e0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Volunteers with different nationalities from all over the world met at Medyka-th
 5月1号：尊敬的战友们好！郑琪，赵丽贞．就是这两个人当年要杀害七哥的……美国的法律最终会将他们绳之以法！
 
 <img src="https://media.gettr.com/group49/getter/2022/05/01/16/cbba07b7-ccde-8156-217d-4003582f2078/3750ea0b79ad39bdd49f6999814935a3.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 12:54 PM UTC  - :tv:直播](/content/gettr/p17ujt39451.md)
-
-【Ukraine Rescue】04/29/2022 Russian university student Natasha joins other young Ukrainians to work with Ukrainian refugees. She says that speaking out for justice in the face of evil outweighs her fear of Putin. So she understands ...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/01/12/b81d3a56-c8ca-5e7d-f372-bf91cdb22b70/out.jpg" width="506" height="284">
 
 ---
 
