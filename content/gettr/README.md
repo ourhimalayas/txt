@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/2/2022 2:49 PM UTC ](/content/gettr/p17zz7x0016.md)
+[@miles 5/2/2022 3:43 PM UTC  - :tv:直播](/content/gettr/p180ytj51f7.md)
 
- 5月2号：突然有了想直播的冲动，但我只有很少的时间可以咋办呢？咋办呢？
+5/1/2022 Miles Guo: Many large national institutional investors want to work with us; and our endeavor to take down the CCP has been recognized worldwide! The West is taking a series of actions to eliminate the CCP's spy networks a...
 
-<img src="https://media.gettr.com/group8/getter/2022/05/02/14/263ea553-7bc6-81a5-3e96-d9203aebc40f/629f8139f8f275440c2d06a97b05eb8f.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/05/02/15/03819ee8-5466-e3ee-1bdb-d95ecc70a7b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@
 【Ukraine Rescue】 04/30/22 Christine, a young volunteer from Ukraine, shares her feelings on the relief work and says: I was inspired to see Chinese people who really are fighting against communism, and it makes me believe that we c...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/02/15/fc3509f4-b7a2-99c0-2b32-b53534d676fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 2:49 PM UTC ](/content/gettr/p17zz7x0016.md)
+
+ 5月2号：突然有了想直播的冲动，但我只有很少的时间可以咋办呢？咋办呢？
+
+<img src="https://media.gettr.com/group8/getter/2022/05/02/14/263ea553-7bc6-81a5-3e96-d9203aebc40f/629f8139f8f275440c2d06a97b05eb8f.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Day 57 - Date: A...
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
 <img src="https://media.gettr.com/group15/origin/2022/05/02/05/c6a89a6e-8472-9555-761b-033bcdaf862d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 4:40 AM UTC  - :tv:直播](/content/gettr/p17yju6b1a2.md)
-
-5/1/2022 Miles Guo: Once Nancy Pelosi visits Taiwan, the CCP will create conflicts and incite anti-Chinese incidents around the world, so that overseas Chinese are forced to return to Communist China; lockdowns and "Zero COVID" pol...
-
-<img src="https://media.gettr.com/group27/getter/2022/05/02/04/4292914d-d237-c98e-4db9-78dd3b4f29ea/out.jpg" width="506" height="284">
 
 ---
 
