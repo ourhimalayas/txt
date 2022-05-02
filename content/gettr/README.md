@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/2/2022 10:25 AM UTC  - :tv:直播](/content/gettr/p17y8m6f893.md)
+
+A rotten tree cannot represent the forest, 
+
+a dark cloud cannot represent the sky; 
+
+A dictator cannot represent the people, 
+
+evil cannot represent justice; 
+
+Angelic little girl, I would like to be represented by you, your soul ...
+
+<img src="https://media.gettr.com/group29/origin/2022/05/02/10/f0b578d1-9e69-9510-28f8-67132e031f31/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17y64hc25d.md)
 
 2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
@@ -144,19 +160,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 10:25 AM UTC  - :tv:直播](/content/gettr/p17y8m6f893.md)
+[@miles 5/2/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p17zboy6e7d.md)
 
-A rotten tree cannot represent the forest, 
+NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1.  Joe said the communism has infiltrated every aspect of our society all over the world. He loves China and the Chinese people. But what we don't want a...
 
-a dark cloud cannot represent the sky; 
-
-A dictator cannot represent the people, 
-
-evil cannot represent justice; 
-
-Angelic little girl, I would like to be represented by you, your soul ...
-
-<img src="https://media.gettr.com/group29/origin/2022/05/02/10/f0b578d1-9e69-9510-28f8-67132e031f31/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/05/02/10/884ff1dc-ea0a-9eba-1dd3-efa797909736/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ Angelic little girl, I would like to be represented by you, your soul ...
 2022.05.01  晚 新中国联邦 | 新闻    以色列犹太机构代表：支持新中国联邦的乌克兰救援行动；俄罗斯义工：支持乌克兰 祝愿中国人民获得自由
 
 <img src="https://media.gettr.com/group21/origin/2022/05/02/00/b9fc75f3-8c25-7e6c-a1c4-5b695bf5fa67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 11:21 PM UTC  - :tv:直播](/content/gettr/p17wl5965dc.md)
-
-5/1/2022 Miles Guo: The investors of the G-series used to talk business only, but now not only do they deeply believe that the fellow fighters can take down the CCP, but they also think that their benefits are inextricably linked t...
-
-<img src="https://media.gettr.com/group22/getter/2022/05/01/23/017627fa-6e10-9782-e2b2-6c4f350ace74/out.jpg" width="506" height="284">
 
 ---
 
