@@ -2,6 +2,24 @@
 ---
 
 
+[@miles 5/2/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p182iji533d.md)
+
+A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of his Ukraine friends has been killed and one has been captured. Nicole tells him that the new Chinese people from the New Federal State of China stand wi...
+
+<img src="https://media.gettr.com/group49/origin/2022/05/02/22/a8591c58-cdce-b7e2-7401-bc9b50a846a0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p182hixd978.md)
+
+“老照片” 飞飞秀救援快报 2022-05-02
+
+For English：gettr.com/streaming/p1820lm77b3
+
+<img src="https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p181leid02a.md)
 
 2022.05.02  新中国联邦 | 喜健康   老药新用：探讨含碘药剂抵抗冠状病毒感染
@@ -42,13 +60,11 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 ---
 
-[@miles 5/2/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p182hixd978.md)
+[@miles 5/2/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p182w0m26aa.md)
 
-“老照片” 飞飞秀救援快报 2022-05-02
+5/1/2022 Miles Guo: In the days to come, the U.S. may make a series of high-profile initiatives such as restoring the General Consulate in Chengdu and lowering tariffs for Communist China. The U.S. makes deals with the CCP just for...
 
-For English：gettr.com/streaming/p1820lm77b3
-
-<img src="https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/05/02/22/4be87ea6-1d1d-3cd8-dc34-327a507c62cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,30 +165,6 @@ https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex
 NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1.  Joe said the communism has infiltrated every aspect of our society all over the world. He loves China and the Chinese people. But what we don't want a...
 
 <img src="https://media.gettr.com/group25/origin/2022/05/02/10/884ff1dc-ea0a-9eba-1dd3-efa797909736/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:25 AM UTC  - :tv:直播](/content/gettr/p17y8m6f893.md)
-
-A rotten tree cannot represent the forest, 
-
-a dark cloud cannot represent the sky; 
-
-A dictator cannot represent the people, 
-
-evil cannot represent justice; 
-
-Angelic little girl, I would like to be represented by you, your soul ...
-
-<img src="https://media.gettr.com/group29/origin/2022/05/02/10/f0b578d1-9e69-9510-28f8-67132e031f31/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 8:18 AM UTC  - :tv:直播](/content/gettr/p17y64hc25d.md)
-
-2022年5月1日 文贵大直播(纯享版)：俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌
-
-<img src="https://media.gettr.com/group8/origin/2022/05/02/08/a3b037e5-f940-ea4c-e0c8-6d68aeaaf78f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
