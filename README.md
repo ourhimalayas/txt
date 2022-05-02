@@ -11,26 +11,41 @@
 
 ---
 
+#### [樱花FM┃郭文贵先生2022年4月30日盖特视频（9分30秒）全文字版](/content/gnews/2454067.md)
+ `樱花FM`
+
+#### [德国加快了结束对俄罗斯石油依赖的时间框架](/content/gnews/2454049.md)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [樱花FM┃极权的代表普京和习近平是灾难的第一责任人](/content/gnews/2454023.md)
+ `樱花FM`
+
+#### [樱花FM┃揭秘青蒿素为何能治疗癌症](/content/gnews/2453993.md)
+ `樱花FM`
+
+#### [樱花时评┃俄总参偷访乌克兰伊久姆意在策反，被乌克兰防范](/content/gnews/2453989.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃中共颁布新法：拐卖罪犯自首可免罚](/content/gnews/2453970.md)
+ `樱花FM`
+
+#### [樱花时政┃中共不除恶果难消！日本又一名儿童染中共病毒死亡](/content/gnews/2453962.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃中共北京防疫风声鹤唳 疯狂打击“谣言散布者 ”](/content/gnews/2453949.md)
+ `樱花FM`
+
+#### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（三）](/content/gnews/2453941.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约](/content/gnews/2453937.md)
+ `樱花FM`
+
 #### [樱花FM┃中共是全球气候变化的毒瘤](/content/gnews/2453920.md)
  `樱花FM`
 
-#### [樱花FM┃上海封城 中国经济数据降为2008年2月以来最低](/content/gnews/2453887.md)
- `樱花FM`
-
-#### [谈古论今 &#124; 法无定法和法无高下](/content/gnews/2453886.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM┃五角大楼：美国正在欧洲训练乌克兰部队](/content/gnews/2453870.md)
- `樱花FM`
-
-#### [中共国妄称对台湾的攻击不能被称为“入侵”](/content/gnews/2453863.md)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [毒疫苗 杭州启动奥密克戎变异株疫苗临床试验](/content/gnews/2453845.md)
- `儒为`
-
-#### [【说事儿】俄乌战争敏感时期中日防长分别访问哈萨克斯坦](/content/gnews/2453839.md)
- `TokyoSakuraDesignGroup`
+#### [《历史的今天》2022.05.02](/content/gnews/2453888.md)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [乌克兰士兵用前苏联制造的 “Igla” 击落了价值4000万美元的俄SU-34战斗机](/content/gnews/2453838.md)
  `日本东京方舟农场`
@@ -38,17 +53,11 @@
 #### [【说事儿】世卫组织不打自招地暗示最近儿童肝炎因起于毒疫苗](/content/gnews/2453809.md)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】辉瑞疫苗早期试验死亡率达3.7% 但FDA依然批准](/content/gnews/2453795.md)
- `TokyoSakuraDesignGroup`
-
 #### [装置作品《和平鸽》（一）](/content/gnews/2453792.md)
  `西班牙巴塞罗那喜悦农场`
 
 #### [国际｜传芬兰5月12日 正式决定是否加入北约](/content/gnews/2453777.md)
  `關注組`
-
-#### [樱花FM┃女士递进式质疑中共防疫无依无据试图操纵国家医保](/content/gnews/2453767.md)
- `樱花FM`
 
 #### [秘翻在线：俄罗斯宣布战胜节与战胜宣言的可能性“无关”](/content/gnews/2453750.md)
  `秘密翻譯組G-Translators`
@@ -82,12 +91,6 @@
 
 #### [中期大选之前，中美关系可能和缓](/content/gnews/2453552.md)
  `银河歌舞厅`
-
-#### [皮特·麦考洛医生指出应当叫停所有疫苗强制令](/content/gnews/2453551.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [一位来自波兰的医疗救援义工说在梅迪卡看到这么多中国人她真的感到吃惊](/content/gnews/2453514.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [欧盟驻京使团中国雇员被拘数月 欧盟要求中共做出合理回应](/content/gnews/2453503.md)
  `秘密翻譯組G-Translators`
@@ -163,9 +166,6 @@
 
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查](/content/gnews/2449101.md)
  `秘密翻譯組G-Translators`
-
-#### [文·贵天成——文贵先生谈孟建柱（六十四）](/content/gnews/2448545.md)
- `墨尔本雅典娜农场`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
