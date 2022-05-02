@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p17zboy6e7d.md)
+
+NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1.  Joe said the communism has infiltrated every aspect of our society all over the world. He loves China and the Chinese people. But what we don't want a...
+
+<img src="https://media.gettr.com/group25/origin/2022/05/02/10/884ff1dc-ea0a-9eba-1dd3-efa797909736/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 10:25 AM UTC  - :tv:直播](/content/gettr/p17y8m6f893.md)
 
 A rotten tree cannot represent the forest, 
@@ -160,11 +168,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p17zboy6e7d.md)
+[@miles 5/2/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1808sqc2e2.md)
 
-NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1.  Joe said the communism has infiltrated every aspect of our society all over the world. He loves China and the Chinese people. But what we don't want a...
+2022.05.02  新中国联邦 | 军情室  TB2再袭俄军巡逻艇，俄境内油库火灾频發，網傳俄總參謀長受傷，盘点普京的核武威胁
 
-<img src="https://media.gettr.com/group25/origin/2022/05/02/10/884ff1dc-ea0a-9eba-1dd3-efa797909736/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/02/10/630bb151-745a-a28f-5458-ecfc427cc684/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1. 
  5月1号：应很多战友的要求拼命地找出了长头发时的照片．大家能猜猜？这是什么时间拍的吗？七哥用湾流飞机的时候，中国一架私人飞机都没有……
 
 <img src="https://media.gettr.com/group16/getter/2022/05/02/00/8dfec958-c880-c50e-47db-3ac24e0e1300/702ec0b7a8af5f42d14d61b2f6b50c56.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:35 AM UTC  - :tv:直播](/content/gettr/p17xghvcbc7.md)
-
-2022.05.01  晚 新中国联邦 | 新闻    以色列犹太机构代表：支持新中国联邦的乌克兰救援行动；俄罗斯义工：支持乌克兰 祝愿中国人民获得自由
-
-<img src="https://media.gettr.com/group21/origin/2022/05/02/00/b9fc75f3-8c25-7e6c-a1c4-5b695bf5fa67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
