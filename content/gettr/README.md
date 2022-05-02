@@ -2,11 +2,33 @@
 ---
 
 
-[@miles 5/1/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p17x1m2b7b7.md)
+[@miles 5/2/2022 12:46 AM UTC ](/content/gettr/p17wrx90fa8.md)
 
-5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
+ 5月1号：尊敬的战友们好，这是我从清丰看守．所出来后的十几个月建立的郑州的大老板家具厂办公室！在郑州市机电研究所办公楼．
 
-<img src="https://media.gettr.com/group15/getter/2022/05/01/23/91cf4fe2-1098-9a57-f3ea-6824bc57ae15/out.jpg" width="506" height="284">
+原来这曾是罗干的办公室，上万块人民币的老板台．还用上了直播电话，这个照片太珍贵了…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group46/getter/2022/05/02/00/cbd0459d-de03-6484-72d7-15d997bd8e3c/f2709b34f1dbe367a6b1ff2cb88de157.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 12:49 AM UTC  - 3圖](/content/gettr/p17wz9ld756.md)
+
+ 5月1号：这就已经到了，九二年到．九三年了？？……胸怀大哥大呀……孟姜女哭塑处的思考
+
+<img src="https://media.gettr.com/group3/getter/2022/05/02/00/5271c40d-d397-c922-f0bc-dba1a848af71/8c3717713e3ed4d12117a04cdb5a3aa3.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 12:53 AM UTC  - 6圖](/content/gettr/p17xaq0d16b.md)
+
+ 5月1号：当时在一两天飞行……游览旧金山，华盛顿纽约城市．中国人还真没几个！
+
+<img src="https://media.gettr.com/group27/getter/2022/05/02/00/55c99b71-6b36-fcc4-7e9b-46b37b664747/20f39be6360307542bb2b4c8f14199de.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +37,22 @@
 2022.05.01  晚 新中国联邦 | 新闻    以色列犹太机构代表：支持新中国联邦的乌克兰救援行动；俄罗斯义工：支持乌克兰 祝愿中国人民获得自由
 
 <img src="https://media.gettr.com/group21/origin/2022/05/02/00/b9fc75f3-8c25-7e6c-a1c4-5b695bf5fa67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/1/2022 11:16 PM UTC  - :tv:直播](/content/gettr/p17x1m2b7b7.md)
+
+5/1/2022 Miles Guo: My third recent feeling is the Whistleblowers’ Movement and our cause to take down the CCP have won the hearts and minds of the people in the US. I am respected and cared for by people of all races and ethniciti...
+
+<img src="https://media.gettr.com/group15/getter/2022/05/01/23/91cf4fe2-1098-9a57-f3ea-6824bc57ae15/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 12:56 AM UTC  - 3圖](/content/gettr/p17xh3ybad8.md)
+
+ 5月1号：应很多战友的要求拼命地找出了长头发时的照片．大家能猜猜？这是什么时间拍的吗？七哥用湾流飞机的时候，中国一架私人飞机都没有……
+
+<img src="https://media.gettr.com/group16/getter/2022/05/02/00/8dfec958-c880-c50e-47db-3ac24e0e1300/702ec0b7a8af5f42d14d61b2f6b50c56.jpg" width="506" height="284">
 
 ---
 
@@ -126,16 +164,6 @@ https://gnews.org...
 
 ---
 
-[@miles 5/1/2022 5:15 PM UTC ](/content/gettr/p17vxhta494.md)
-
- 5月1号：疫苗灾难真正的开始……这些都是偶然的吗？你能承受得了所谓这样的偶然事件吗？ 
-
-
-
-https://twitter.com/kelly77720/status/1520617153191301121?s=12&t=lYTYZK3Calb86v7Gh6PCwQ
-
----
-
 [@ahnewsfeed 5/1/2022 4:48 AM UTC  - :tv:直播](/content/gettr/p17tw0jd8f4.md)
 
 复旦大学王德峰教授2014年振聋发聩的讲课，其中谈到的：
@@ -171,30 +199,6 @@ https://twitter.com/kelly77720/status/1520617153191301121?s=12&t=lYTYZK3Calb86v7
 #不是健康问题 #政治问题
 
 <img src="https://media.gettr.com/group38/getter/2022/04/30/13/fe0a6a2f-b0c4-3aa6-92eb-1823e7092949/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 4:52 PM UTC  - :tv:直播](/content/gettr/p17vo7u7c34.md)
-
-2022.05.01 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group49/origin/2022/05/01/16/27f013e3-9e75-5125-dbe3-f9b749ee9736/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/1/2022 4:39 PM UTC  - :tv:直播](/content/gettr/p17vegpebbf.md)
-
-Volunteers with different nationalities from all over the world met at Medyka-the polish and Ukrainian border.They gathered inside and outside of the NFSC tents sipping the delicious coffee brewed with love. During the interview, t...
-
-<img src="https://media.gettr.com/group10/origin/2022/05/01/16/657586fa-1dc6-c0a0-22f6-e73841c36ed5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/1/2022 4:07 PM UTC ](/content/gettr/p17vsbc0a2d.md)
-
-5月1号：尊敬的战友们好！郑琪，赵丽贞．就是这两个人当年要杀害七哥的……美国的法律最终会将他们绳之以法！
-
-<img src="https://media.gettr.com/group49/getter/2022/05/01/16/cbba07b7-ccde-8156-217d-4003582f2078/3750ea0b79ad39bdd49f6999814935a3.jpg" width="506" height="284">
 
 ---
 
