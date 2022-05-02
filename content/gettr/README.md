@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1808sqc2e2.md)
+
+2022.05.02  新中国联邦 | 军情室  TB2再袭俄军巡逻艇，俄境内油库火灾频發，網傳俄總參謀長受傷，盘点普京的核武威胁
+
+<img src="https://media.gettr.com/group6/origin/2022/05/02/10/630bb151-745a-a28f-5458-ecfc427cc684/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 10:36 AM UTC  - :tv:直播](/content/gettr/p17zboy6e7d.md)
 
 NFSC Medyka correspondent Nicole interviewed a volunteer from England on May 1.  Joe said the communism has infiltrated every aspect of our society all over the world. He loves China and the Chinese people. But what we don't want a...
@@ -154,25 +162,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 12:46 AM UTC ](/content/gettr/p17wrx90fa8.md)
+[@miles 5/2/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p180eg68fdc.md)
 
- 5月1号：尊敬的战友们好，这是我从清丰看守．所出来后的十几个月建立的郑州的大老板家具厂办公室！在郑州市机电研究所办公楼．
+2022.05.02 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
 
-原来这曾是罗干的办公室，上万块人民币的老板台．还用上了直播电话，这个照片太珍贵了…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group46/getter/2022/05/02/00/cbd0459d-de03-6484-72d7-15d997bd8e3c/f2709b34f1dbe367a6b1ff2cb88de157.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p1808sqc2e2.md)
-
-2022.05.02  新中国联邦 | 军情室  TB2再袭俄军巡逻艇，俄境内油库火灾频發，網傳俄總參謀長受傷，盘点普京的核武威胁
-
-<img src="https://media.gettr.com/group6/origin/2022/05/02/10/630bb151-745a-a28f-5458-ecfc427cc684/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/05/02/11/ed843c2e-3299-adf7-1dad-3554ecf11897/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
