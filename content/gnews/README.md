@@ -2,8 +2,17 @@
 ---
 
 
+#### [文贵爆料5.2：政事太多，乱聊有料](/content/gnews/2456562.md)
+ `秘密翻译组-原创组`
+
+#### [郭先生令人深思的五个感受](/content/gnews/2456525.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [秘翻在线：中共国推行国产操作系统办公](/content/gnews/2456498.md)
  `秘密翻譯組G-Translators`
+
+#### [2022年05月01日文贵大直播速记](/content/gnews/2456487.md)
+ `焦點20分`
 
 #### [【G时新闻】邪恶国家中俄第一座铁路桥即将通行扩大交易能力](/content/gnews/2456475.md)
  `G-时新闻`
@@ -13,6 +22,9 @@
 
 #### [中共国社会的扭曲](/content/gnews/2456469.md)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [有声&#124;上海市民敲锅抗议封锁，被中共定性境外势力参与](/content/gnews/2456429.md)
+ `MOSREC`
 
 #### [郭文贵先生谈5个感受](/content/gnews/2456428.md)
  `焦點20分`
@@ -32,20 +44,11 @@
 #### [有声&#124;Omicron新变异株具更强感染力及突破性感染](/content/gnews/2456358.md)
  `MOSREC`
 
-#### [2022年05月02日七哥临时直播](/content/gnews/2456354.md)
- `Mr. Miles Guo's News Briefing`
-
 #### [郭文贵直播摘要和音频 2022.05.01](/content/gnews/2456336.md)
  `喜马拉雅-华盛顿DC农场`
 
-#### [樱花时政┃中共网监再升级：微信、抖音、知乎均显示发布者IP，部分大V现形](/content/gnews/2456315.md)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [俄罗斯国内反对普京的人正在与美国CIA取得联系](/content/gnews/2456281.md)
  `银河歌舞厅`
-
-#### [有声&#124;中共国地方债就是旁氏骗局](/content/gnews/2456261.md)
- `MOSREC`
 
 #### [习近平已做好中国人死一半的准备 中共国进入畜奴社会](/content/gnews/2456259.md)
  `焦點20分`
@@ -92,16 +95,10 @@
 #### [从卡尔的“轴心时代”看轴心法](/content/gnews/2455903.md)
  `历史组`
 
-#### [上海某社区称居民敲锅要物资乃境外势力撺掇结果](/content/gnews/2455889.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [樱花时政┃美国将出台新法案保护乌克兰 授予总统反制俄罗斯动用核生化的军事权力](/content/gnews/2455879.md)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共借反腐转移上海封城造成的社会矛盾](/content/gnews/2455816.md)
- `NFSC News`
-
-#### [郭文贵先生近期的五个感受](/content/gnews/2455815.md)
  `NFSC News`
 
 #### [俄罗斯打击了美国在乌克兰的武器](/content/gnews/2455769.md)
@@ -157,6 +154,9 @@
 
 #### [英格兰义工感谢新中国联邦的灭共行动](/content/gnews/2452004.md)
  `NFSC News`
+
+#### [中共对台导弹部署——民用商船成移动式导弹定位靶?](/content/gnews/2444647.md)
+ `经济小组`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
