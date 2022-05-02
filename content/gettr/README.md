@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p17zymrea1e.md)
+
+2022.05.02  早 新中国联邦 | 新闻   英格兰义工感谢新中国联邦的灭共行动；中共GDP造假掩盖国内经济崩塌
+
+<img src="https://media.gettr.com/group29/origin/2022/05/02/12/32cdc8f8-c055-b9e4-e144-db5e2dec4958/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p180eg68fdc.md)
 
 2022.05.02 NFSC news  The Jewish Volunteer Shows Supports To NFSC Frontline Rescue Team
@@ -170,19 +178,11 @@ Day 57 - Date: A...
 
 ---
 
-[@miles 5/2/2022 12:34 PM UTC  - :tv:直播](/content/gettr/p17zymrea1e.md)
+[@miles 5/2/2022 1:09 PM UTC  - :tv:直播](/content/gettr/p180ag94074.md)
 
-2022.05.02  早 新中国联邦 | 新闻   英格兰义工感谢新中国联邦的灭共行动；中共GDP造假掩盖国内经济崩塌
+2022.05.02  早 新中国联邦 | 新闻访谈   拜登将邀太平洋地区领导人访美；东南亚五国登上全球遭中共国渗透前十国榜单，台湾排行第九
 
-<img src="https://media.gettr.com/group29/origin/2022/05/02/12/32cdc8f8-c055-b9e4-e144-db5e2dec4958/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 12:53 AM UTC  - 6圖](/content/gettr/p17xaq0d16b.md)
-
- 5月1号：当时在一两天飞行……游览旧金山，华盛顿纽约城市．中国人还真没几个！
-
-<img src="https://media.gettr.com/group27/getter/2022/05/02/00/55c99b71-6b36-fcc4-7e9b-46b37b664747/20f39be6360307542bb2b4c8f14199de.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/05/02/13/b61c36a8-e99e-a7f3-614b-453cb9496d59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
