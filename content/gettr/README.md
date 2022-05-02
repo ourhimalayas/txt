@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/2/2022 2:30 AM UTC  - :tv:直播](/content/gettr/p17xlwv6fdb.md)
+
+5/1/2022 Miles Guo: The New Federal State of China and the Whistleblowers' Movement have had a profound impact on the world, with the ideas of the New Federal State of China and the Way of Righteousness being widely accepted. The s...
+
+<img src="https://media.gettr.com/group29/getter/2022/05/02/02/051e2a90-2cd6-0ac6-ec12-4c6b20cab43a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 2:20 AM UTC  - :tv:直播](/content/gettr/p17x9ncebf4.md)
 
 5/1/2022 Miles Guo: My fifth recent feeling is that the G-series’s big impact on the global economic field is out of my expectation, especially the Himalaya Exchange, Himalaya Coin and Himalaya Pay, GETTR and GNEWS, all of which ar...
@@ -40,11 +48,11 @@
 
 ---
 
-[@miles 5/2/2022 2:30 AM UTC  - :tv:直播](/content/gettr/p17xlwv6fdb.md)
+[@miles 5/2/2022 3:14 AM UTC  - :tv:直播](/content/gettr/p17xrjkae4b.md)
 
-5/1/2022 Miles Guo: The New Federal State of China and the Whistleblowers' Movement have had a profound impact on the world, with the ideas of the New Federal State of China and the Way of Righteousness being widely accepted. The s...
+5/1/2022 Miles Guo: The New Federal State of China now has the greatest mission in the history of humanity - to help the Chinese people rebuild the country. What I am worried about is how to rebuild China following the destruction ...
 
-<img src="https://media.gettr.com/group29/getter/2022/05/02/02/051e2a90-2cd6-0ac6-ec12-4c6b20cab43a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/05/02/03/bdac8612-8433-873d-640c-13cbf845988f/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,26 +167,6 @@ For English：gettr.com/streaming/p17wlkp8055
 2022-5-1 ，「帮助」的真意🍑，#小小尼莫音乐会 🎼第九期，以心待心，播种善良，用爱收获爱💝
 
 <img src="https://media.gettr.com/group25/origin/2022/05/01/18/5b2173f7-6096-54c2-7399-66d34e1088ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalayaathena 5/1/2022 1:25 PM UTC ](/content/gettr/p17v33ta16c.md)
-
-一筹莫展 中共召集所有银行商讨海外资产免受制裁
-
-2022年5月1日报道，中国监管机构已与国内外银行召开紧急会议，讨论如何保护该国的海外资产免受美国主导的制裁，类似于俄罗斯因入侵乌克兰而实施的制裁。
-
-
-
-中共官员们担心，如果发生地区性军事冲突或其他危机，可能会对北京采取同样的措施。
-
-
-
-在整个危机期间，中共主席习近平的政府一直坚定支持普京，但中国的银行和公司仍对与俄罗斯实体进行任何可能引发美国制裁的业务保持警惕。
-
-
-
-https://gnews.org...
 
 ---
 
