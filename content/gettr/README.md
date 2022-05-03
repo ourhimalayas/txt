@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p185y3n9194.md)
+
+【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
+
+<img src="https://media.gettr.com/group44/getter/2022/05/03/16/1cf57072-abf8-227b-596e-11a69b63a9d7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1869vj7777.md)
 
 【Ukraine Rescue】05/02/2022 During an interview in front of  the tent of the NFSC, Marco, a German Doctor, told King that communism is just a fraud that allows the rich people to take all the money and leaves the majority living in ...
@@ -186,11 +194,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p185y3n9194.md)
+[@miles 5/3/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1875bw4d76.md)
 
-【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
+2022-5-3《避风港》（43）疫苗——全球公共卫生系统的黑暗写照
 
-<img src="https://media.gettr.com/group44/getter/2022/05/03/16/1cf57072-abf8-227b-596e-11a69b63a9d7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/05/03/18/2705e4d8-d9d2-3a45-b770-ea3eed7a616b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Day 58 - Date: Ma...
 2022.05.02  晚 新中国联邦 | 新闻访谈     佩洛西突然访问基辅见泽连斯基，下一站台湾?
 
 <img src="https://media.gettr.com/group18/origin/2022/05/03/01/895fbf20-875b-24eb-4396-38ad59282225/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/3/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p182qi6047f.md)
-
-2022.05.02  晚 新中国联邦 | 新闻   G系列影响世界, 与人类命运联系在一起; 人民币兑美元应为60到70比1, 中共控制兑换权
-
-<img src="https://media.gettr.com/group10/origin/2022/05/03/00/3efd78fe-5557-a7f9-67f3-ab2f74378cc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
