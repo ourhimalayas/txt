@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p182qi6047f.md)
+
+2022.05.02  晚 新中国联邦 | 新闻   G系列影响世界, 与人类命运联系在一起; 人民币兑美元应为60到70比1, 中共控制兑换权
+
+<img src="https://media.gettr.com/group10/origin/2022/05/03/00/3efd78fe-5557-a7f9-67f3-ab2f74378cc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p182rfd0d8d.md)
 
 5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/3/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p182qi6047f.md)
+[@miles 5/3/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p182x7i3bfd.md)
 
-2022.05.02  晚 新中国联邦 | 新闻   G系列影响世界, 与人类命运联系在一起; 人民币兑美元应为60到70比1, 中共控制兑换权
+2022.05.02  晚 新中国联邦 | 新闻访谈     佩洛西突然访问基辅见泽连斯基，下一站台湾?
 
-<img src="https://media.gettr.com/group10/origin/2022/05/03/00/3efd78fe-5557-a7f9-67f3-ab2f74378cc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/05/03/01/895fbf20-875b-24eb-4396-38ad59282225/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 【Ukraine Rescue】 04/30/22 Christine, a young volunteer from Ukraine, shares her feelings on the relief work and says: I was inspired to see Chinese people who really are fighting against communism, and it makes me believe that we c...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/02/15/fc3509f4-b7a2-99c0-2b32-b53534d676fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:49 PM UTC ](/content/gettr/p17zz7x0016.md)
-
- 5月2号：突然有了想直播的冲动，但我只有很少的时间可以咋办呢？咋办呢？
-
-<img src="https://media.gettr.com/group8/getter/2022/05/02/14/263ea553-7bc6-81a5-3e96-d9203aebc40f/629f8139f8f275440c2d06a97b05eb8f.jpg" width="506" height="284">
 
 ---
 
