@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/3/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p187v6u7842.md)
+
+5/3/2022 Miles Guo: The very first thing that the Whistleblowers' Movement should do is to oppose the cult of personality, which is the foundation of the dictatorship's propaganda, brainwashing, and fabrication of lies and heresies...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/03/22/20faf322-1b4a-5ea3-5dc9-ec45a7febad5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/3/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p186xftc07c.md)
+
+2022.05.03  新中国联邦 | 喜健康   资本家，科学家谋财害命的“科学原理”—不仅儿童肝炎爆发，任何疾病均可扎扎实实大流行
+
+<img src="https://media.gettr.com/group48/origin/2022/05/03/20/be486d69-d4dd-89fb-58a8-5298287dff79/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1875bw4d76.md)
 
 2022-5-3《避风港》（43）疫苗——全球公共卫生系统的黑暗写照
@@ -188,33 +204,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 1:24 AM UTC ](/content/gettr/p183blq8fa1.md)
+[@miles 5/3/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p187j9e31b0.md)
 
-5月2号：尊敬的战友们好．刚刚的就好像有人在指路一样．又找出几张不可思议的照片，明天一定分享给大家，我彻底
+5/3/2022 Miles Guo: What is the story behind the photo taken at the observation deck on the 70th floor of the Bank of China Tower in Hong Kong in 1994 or 1995? The Bank of China (Hong Kong) was willing to provide me with a loan of ...
 
-被震撼到了，这些照片好像是从天上掉下来的一样，我已经几十年没有看到了，天哪．什么样的力量，在背后指导着我们得新中国联邦灭共……
-
-
-
-【“老照片” 飞飞秀救援快报 2022-05-02 For English：gettr.com/streaming/p1820lm77b3 https://gettr.com/post/p182hixd978】
-
-<img src="https://media.gettr.com/group24/getter/2022/05/03/01/f002fe7a-f01c-232d-6b26-f5a0b904f506/313d285234e36d5693ab4ed3ffb8a8d7.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p186xftc07c.md)
-
-2022.05.03  新中国联邦 | 喜健康   资本家，科学家谋财害命的“科学原理”—不仅儿童肝炎爆发，任何疾病均可扎扎实实大流行
-
-<img src="https://media.gettr.com/group48/origin/2022/05/03/20/be486d69-d4dd-89fb-58a8-5298287dff79/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 1:28 AM UTC  - :tv:直播](/content/gettr/p182rr282d6.md)
-
-5/1/2022 Miles Guo: Communist China is entering an upgraded version of North Korea! Soon you will see all the celebrities going to work in the countryside or factories; The CCP has downgraded the highest pursuit of human beings, th...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/03/01/1715c20f-1111-ebd7-bc3d-23e1225f8458/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/05/03/22/19ee2d88-5c19-2663-5d00-aabf0fac1f53/out.jpg" width="506" height="284">
 
 ---
 
