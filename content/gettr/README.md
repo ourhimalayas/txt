@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p184hio1e73.md)
+
+5/2/2022 Each of these old photos has witnessed the trajectory of my personal growth. What is the connection between these photos and my revelations in the past five years? Now it is the time to let the world know the history of th...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/03/07/c94fd58d-b897-458a-7554-10f1dc575f7a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 6:47 AM UTC  - :tv:直播](/content/gettr/p184iihb5ba.md)
 
 May 2nd, 2022, many media report that Putin was diagnosed with abdominal cancer a year and a half ago and has Parkinson's disease, may undergo cancer surgery in the near future and temporarily hand power to another person.
@@ -82,11 +90,35 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p184hio1e73.md)
+[@miles 5/3/2022 7:38 AM UTC ](/content/gettr/p183x2s38e7.md)
 
-5/2/2022 Each of these old photos has witnessed the trajectory of my personal growth. What is the connection between these photos and my revelations in the past five years? Now it is the time to let the world know the history of th...
+新中国联邦·法治基金——乌克兰救援行动报告
 
-<img src="https://media.gettr.com/group31/getter/2022/05/03/07/c94fd58d-b897-458a-7554-10f1dc575f7a/out.jpg" width="506" height="284">
+
+
+2022年5月2日第59天当日救援统计：
+
+Medyka救援站接待：约160人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16346人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 59 - Date: Ma...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/03/07/fd1dc6a3-ea72-d432-c530-fe1495ba73b2/cfd1a61fcd8c9a54f8113d181f9e16de.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +207,6 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 5/2/2022 Miles Guo: Why did I post old photos in the past several days? Why should we put together a roadmap for the Whistleblowers’ Movement? Why should we do it starting with myself? Do you know how the things going on in east Uk...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/02/23/f7fddb57-af53-45f4-6437-4bac7cde17c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:48 PM UTC  - :tv:直播](/content/gettr/p182iji533d.md)
-
-A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of his Ukraine friends has been killed and one has been captured. Nicole tells him that the new Chinese people from the New Federal State of China stand wi...
-
-<img src="https://media.gettr.com/group49/origin/2022/05/02/22/a8591c58-cdce-b7e2-7401-bc9b50a846a0/out.jpg" width="506" height="284">
 
 ---
 
