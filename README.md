@@ -11,41 +11,77 @@
 
 ---
 
-#### [跨境货车司机关口苦候谋生](/content/gnews/2460737.md)
+#### [用暗网可从俄国联系美国中情局](/content/gnews/2460939.md)
+ `韩国正道农场`
+
+#### [视频&#124;美国中期大选之前，中美关系可能和缓](/content/gnews/2460934.md)
+ `MOSVIDEO`
+
+#### [视频&#124;佩洛西访台将促使中共引发海外排华、仇华事件](/content/gnews/2460930.md)
+ `MOSVIDEO`
+
+#### [【樱话】渥太华警方打压摩托车队“滚雷行动”](/content/gnews/2460929.md)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花时政┃拜登夫人将访问欧洲 看望乌克兰难民](/content/gnews/2460927.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中共发布抓捕杭州“马某”通告 阿里巴巴港股立跌260亿美元](/content/gnews/2460732.md)
- `纽约香草山MOS02`
+#### [视频&#124;人民币兑美元应为60到70比1 中共控制兑换权](/content/gnews/2460926.md)
+ `MOSVIDEO`
+
+#### [日本银河系农场东京风采—— 一直在行动 天天在灭共](/content/gnews/2460921.md)
+ `银河勇气之星`
+
+#### [视频&#124;G系列影响世界 与人类命运联系在一起](/content/gnews/2460913.md)
+ `MOSVIDEO`
+
+#### [中日财经爆┃德国用印度代替中国？](/content/gnews/2460857.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共大外宣喊话马斯克，要求去掉“政府和官媒”标签](/content/gnews/2460831.md)
+ `秘密翻譯組G-Translators`
+
+#### [有声&#124;郭文贵先生近期的五个感受](/content/gnews/2460818.md)
+ `MOSREC`
+
+#### [中共因畏惧美国制裁，正制定方案来保护海外资产](/content/gnews/2460790.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [外交部长称台湾准备在与中共国发生冲突时自卫](/content/gnews/2460776.md)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [有声&#124;“轴心法” 是拯救中国人最后的希望](/content/gnews/2460770.md)
+ `MOSREC`
+
+#### [樱花时政┃疯狂大规模消毒 中共疫情防控作秀](/content/gnews/2460760.md)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [2022/05/03 英喜时事速递](/content/gnews/2460722.md)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [一名英国志愿者加入外国军团去乌克兰参加战斗](/content/gnews/2460690.md)
- `波士顿五月花农场`
+#### [秘翻新闻｜中共战狼身处境外 美揭露中共助俄虚假宣传](/content/gnews/2460714.md)
+ `秘密翻译组-即时新闻播报组`
 
 #### [悲剧的马云](/content/gnews/2460688.md)
  `银河勇气之星`
 
+#### [澳大利亚即将上线借记转账的新支付系统](/content/gnews/2460687.md)
+ `走进澳洲`
+
+#### [澳大利亚探索废物回收循环经济](/content/gnews/2460666.md)
+ `走进澳洲`
+
 #### [有声&#124;中国股票市场创6年以来最大单月跌幅](/content/gnews/2460642.md)
  `MOSREC`
-
-#### [有声｜德国或在新制裁中支持欧盟禁运俄罗斯石油](/content/gnews/2460632.md)
- `秘密翻译组-即时新闻播报组`
 
 #### [港府“恩典”港人 再度放宽社交距离](/content/gnews/2460621.md)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [有声｜英国承诺将再向乌克兰提供3.75亿美元军事援助](/content/gnews/2460620.md)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声&#124;金正恩誓言若受到威胁将先发制人使用核武器](/content/gnews/2460604.md)
- `MOSREC`
-
-#### [有声｜俄罗斯称希特勒有犹太血统遭多国谴责](/content/gnews/2460603.md)
- `秘密翻译组-即时新闻播报组`
-
 #### [研究发现，CCP病毒疫苗接种使中风的风险增加了11,361%](/content/gnews/2460577.md)
  `澳喜特战旅Gnews`
+
+#### [澳大利亚首都地区未接种新冠疫苗的教师和医护人员可返回工作岗位](/content/gnews/2460556.md)
+ `澳喜农场`
 
 #### [樱花时政┃美国不遗余力支持乌克兰 70多门M777榴弹炮已运抵](/content/gnews/2460550.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -58,12 +94,6 @@
 
 #### [德国支持芬兰和瑞典加入北约](/content/gnews/2460501.md)
  `Shuizhuyu`
-
-#### [中日财经爆┃斯洛伐克寻求豁免对俄罗斯石油的禁运](/content/gnews/2460500.md)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [风林往事——隐藏的地产炸弹](/content/gnews/2460497.md)
- `墨尔本雅典娜农场`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福](/content/gnews/2460487.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -83,50 +113,26 @@
 #### [接种Covid-19疫苗使死亡风险至少增加4800%](/content/gnews/2460344.md)
  `喜马拉雅农场新西兰站`
 
-#### [连接黑龙江同江市与俄罗斯的“黑龙江大桥”正式通车](/content/gnews/2460343.md)
- `澳喜特战旅Gnews`
-
 #### [秘翻在线：美国称俄罗斯本月中旬将通过居民投票合并顿巴斯](/content/gnews/2460325.md)
  `秘密翻譯組G-Translators`
 
 #### [秘翻在线：欧洲足联追加制裁俄罗斯使其无法继续参加国际赛事](/content/gnews/2460305.md)
  `秘密翻譯組G-Translators`
 
-#### [视频&#124;中共GDP造假掩盖国内经济崩塌](/content/gnews/2460286.md)
- `MOSVIDEO`
-
 #### [秘翻在线：俄罗斯侵略导致的全球粮食危机](/content/gnews/2460283.md)
  `秘密翻譯組G-Translators`
-
-#### [意大利社会学家认为中共是独裁政府并祝愿灭共成功](/content/gnews/2460270.md)
- `墨尔本雅典娜农场`
 
 #### [秘翻在线：美国驻乌克兰大使馆5月底前将重返基辅](/content/gnews/2460250.md)
  `秘密翻譯組G-Translators`
 
-#### [风林往事——五丑疯了](/content/gnews/2460237.md)
- `墨尔本雅典娜农场`
-
-#### [每日约2万人，为什么现在回到乌克兰？](/content/gnews/2460206.md)
- `澳喜特战旅Gnews`
-
 #### [秘翻在线：匈牙利总理向教皇转达“俄罗斯计划于5月9日结束战争”](/content/gnews/2460174.md)
  `秘密翻譯組G-Translators`
-
-#### [2022年4月下旬国际大事一览](/content/gnews/2460165.md)
- `温哥华圆成农场🇨🇦`
-
-#### [佩洛西在基辅与泽连斯基会面中誓言美国将支持乌克兰](/content/gnews/2460108.md)
- `topnews`
 
 #### [俄罗斯将从摩尔多瓦开辟新的军事阵线](/content/gnews/2460072.md)
  `topnews`
 
 #### [一名勇敢的英国志愿者去乌克兰加入战斗以对抗普京的军队](/content/gnews/2460016.md)
  `墨尔本雅典娜农场`
-
-#### [乌克兰的武器更新将苏联武器踢出欧洲市场](/content/gnews/2460010.md)
- `topnews`
 
 #### [中国籍瑞士科学家被美司法部指控窃取葛兰素史克商业机密](/content/gnews/2459853.md)
  `秘密翻譯組G-Translators`
@@ -164,9 +170,6 @@
 #### [热搜｜党媒改口“马某某”涉多项危害国家罪 阿里巴巴急挫4%](/content/gnews/2458292.md)
  `關注組`
 
-#### [5/2/2022国际财经快讯：欧盟商讨年底前对俄罗斯实施石油禁令；美国天然气产量增长放缓](/content/gnews/2456652.md)
- `秘密翻译组金融团队`
-
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -177,8 +180,5 @@
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [中共才是世界上黑帮的幕后大佬](/content/gnews/2201508.md)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/2197304.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
