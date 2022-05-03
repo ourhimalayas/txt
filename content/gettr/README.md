@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1875bw4d76.md)
+
+2022-5-3《避风港》（43）疫苗——全球公共卫生系统的黑暗写照
+
+<img src="https://media.gettr.com/group7/origin/2022/05/03/18/2705e4d8-d9d2-3a45-b770-ea3eed7a616b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p185y3n9194.md)
 
 【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
@@ -194,11 +202,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 7:02 PM UTC  - :tv:直播](/content/gettr/p1875bw4d76.md)
+[@miles 5/3/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p186xftc07c.md)
 
-2022-5-3《避风港》（43）疫苗——全球公共卫生系统的黑暗写照
+2022.05.03  新中国联邦 | 喜健康   资本家，科学家谋财害命的“科学原理”—不仅儿童肝炎爆发，任何疾病均可扎扎实实大流行
 
-<img src="https://media.gettr.com/group7/origin/2022/05/03/18/2705e4d8-d9d2-3a45-b770-ea3eed7a616b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/05/03/20/be486d69-d4dd-89fb-58a8-5298287dff79/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Day 58 - Date: Ma...
 5/1/2022 Miles Guo: Communist China is entering an upgraded version of North Korea! Soon you will see all the celebrities going to work in the countryside or factories; The CCP has downgraded the highest pursuit of human beings, th...
 
 <img src="https://media.gettr.com/group11/getter/2022/05/03/01/1715c20f-1111-ebd7-bc3d-23e1225f8458/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p182x7i3bfd.md)
-
-2022.05.02  晚 新中国联邦 | 新闻访谈     佩洛西突然访问基辅见泽连斯基，下一站台湾?
-
-<img src="https://media.gettr.com/group18/origin/2022/05/03/01/895fbf20-875b-24eb-4396-38ad59282225/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
