@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1850hva7f4.md)
+
+2022.05.03  AM NFSC news   India Volunteer: Political Parties will Perish, and Peace will Endure
+
+<img src="https://media.gettr.com/group38/origin/2022/05/03/11/8e435855-2bd4-11b7-8df6-496760153572/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p18569i1ff2.md)
 
 5月3号：尊敬的战友们好！所有的中国人，只需要知道．自己是人．不是畜生．什么问题都能解决了！【其实就是两脚的事，用不着敲盆，更用不着跳楼】
@@ -146,11 +154,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1850hva7f4.md)
+[@miles 5/3/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p185fmv14e7.md)
 
-2022.05.03  AM NFSC news   India Volunteer: Political Parties will Perish, and Peace will Endure
+2022.05.03 文贵大直播：谈谈老照片，普京手术， 民生问题
 
-<img src="https://media.gettr.com/group38/origin/2022/05/03/11/8e435855-2bd4-11b7-8df6-496760153572/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/05/03/12/da5dfe71-ce46-65ce-f694-571056b78a8b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ Day 58 - Date: Ma...
 2022.05.02  NFSC fringe  Episode 181
 
 <img src="https://media.gettr.com/group49/origin/2022/05/02/23/8e2e1481-bdca-5fbf-4aa7-34b92ef99924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:16 PM UTC ](/content/gettr/p182y65d6fd.md)
-
-The Chinese Communist Party (CCP) control the circulation of RMB by restricting the bank withdrawals for the deplorable, thus keeping the USD exchange rate to RMB at 6-7. The China’s economy is grossly falsified and fraudulent, and...
-
-<img src="https://media.gettr.com/group7/origin/2022/05/02/23/6beee54a-9c10-7c31-b90b-582446cdc466/f2bf8a83359f586b3ce220a115fafab9.png" width="506" height="284">
 
 ---
 
