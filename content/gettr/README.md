@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p184jtg9164.md)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group29/origin/2022/05/03/04/a24bd2d5-1ea7-7830-4c06-816787e2242c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 3:45 AM UTC ](/content/gettr/p183pyy2e49.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -64,11 +72,13 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p184jtg9164.md)
+[@miles 5/3/2022 6:47 AM UTC  - :tv:直播](/content/gettr/p184iihb5ba.md)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+May 2nd, 2022, many media report that Putin was diagnosed with abdominal cancer a year and a half ago and has Parkinson's disease, may undergo cancer surgery in the near future and temporarily hand power to another person.
 
-<img src="https://media.gettr.com/group29/origin/2022/05/03/04/a24bd2d5-1ea7-7830-4c06-816787e2242c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ Since ...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/03/06/73599b79-0b95-b40d-8564-0ffa0d085efe/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of h
 For English：gettr.com/streaming/p1820lm77b3
 
 <img src="https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 8:45 PM UTC  - :tv:直播](/content/gettr/p181leid02a.md)
-
-2022.05.02  新中国联邦 | 喜健康   老药新用：探讨含碘药剂抵抗冠状病毒感染
-
-<img src="https://media.gettr.com/group25/origin/2022/05/02/20/c08d693a-b560-9103-7391-992719737fe4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
