@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 10:31 PM UTC  - :tv:直播](/content/gettr/p187y3xeddc.md)
+
+5/3/2022 Miles Guo: Here is a photo I took at Chu-yuan Lee's office in the Hung Kuo Headquarters Building in Taipei. The Taiwanese people have helped the Chinese people to preserve the most wonderful and important cultures, religio...
+
+<img src="https://media.gettr.com/group33/getter/2022/05/03/22/7f038726-00c4-4228-f75e-2b153b5867c7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 10:24 PM UTC  - :tv:直播](/content/gettr/p187v6u7842.md)
 
 5/3/2022 Miles Guo: The very first thing that the Whistleblowers' Movement should do is to oppose the cult of personality, which is the foundation of the dictatorship's propaganda, brainwashing, and fabrication of lies and heresies...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/3/2022 10:31 PM UTC  - :tv:直播](/content/gettr/p187y3xeddc.md)
+[@miles 5/3/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p18801l2e4c.md)
 
-5/3/2022 Miles Guo: Here is a photo I took at Chu-yuan Lee's office in the Hung Kuo Headquarters Building in Taipei. The Taiwanese people have helped the Chinese people to preserve the most wonderful and important cultures, religio...
+2022.05.03  PM NFSC news   Ukraine Forces Strike Down 10 Russian Drones
 
-<img src="https://media.gettr.com/group33/getter/2022/05/03/22/7f038726-00c4-4228-f75e-2b153b5867c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/05/03/22/c8b78566-9a8b-41a6-25b6-2a331988c033/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Day 58 - Date: Ma...
 2022-5-2《鸡血王喜币大作战》 第一百八十三集 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p183daz5f2a.md)
-
-2022.05.02  新中国联邦 | 喜财经    从俄乌战争看整个台海和中共国的经济给世界带来什么影响
-
-<img src="https://media.gettr.com/group7/origin/2022/05/03/02/f4f06908-8243-be7c-584e-daa89c35902b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
