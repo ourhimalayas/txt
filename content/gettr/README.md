@@ -10,6 +10,22 @@
 
 ---
 
+[@miles 5/3/2022 10:31 PM UTC  - :tv:直播](/content/gettr/p187y3xeddc.md)
+
+5/3/2022 Miles Guo: Here is a photo I took at Chu-yuan Lee's office in the Hung Kuo Headquarters Building in Taipei. The Taiwanese people have helped the Chinese people to preserve the most wonderful and important cultures, religio...
+
+<img src="https://media.gettr.com/group33/getter/2022/05/03/22/7f038726-00c4-4228-f75e-2b153b5867c7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/3/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p187j9e31b0.md)
+
+5/3/2022 Miles Guo: What is the story behind the photo taken at the observation deck on the 70th floor of the Bank of China Tower in Hong Kong in 1994 or 1995? The Bank of China (Hong Kong) was willing to provide me with a loan of ...
+
+<img src="https://media.gettr.com/group11/getter/2022/05/03/22/19ee2d88-5c19-2663-5d00-aabf0fac1f53/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 8:55 PM UTC  - :tv:直播](/content/gettr/p186xftc07c.md)
 
 2022.05.03  新中国联邦 | 喜健康   资本家，科学家谋财害命的“科学原理”—不仅儿童肝炎爆发，任何疾病均可扎扎实实大流行
@@ -31,14 +47,6 @@
 【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
 
 <img src="https://media.gettr.com/group44/getter/2022/05/03/16/1cf57072-abf8-227b-596e-11a69b63a9d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1869vj7777.md)
-
-【Ukraine Rescue】05/02/2022 During an interview in front of  the tent of the NFSC, Marco, a German Doctor, told King that communism is just a fraud that allows the rich people to take all the money and leaves the majority living in ...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/03/16/d7586fe3-1db8-1a1f-a7a0-30a3eba3bdbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Day 58 - Date: Ma...
 2022.05.02  新中国联邦 | 喜财经    从俄乌战争看整个台海和中共国的经济给世界带来什么影响
 
 <img src="https://media.gettr.com/group7/origin/2022/05/03/02/f4f06908-8243-be7c-584e-daa89c35902b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/3/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p187j9e31b0.md)
-
-5/3/2022 Miles Guo: What is the story behind the photo taken at the observation deck on the 70th floor of the Bank of China Tower in Hong Kong in 1994 or 1995? The Bank of China (Hong Kong) was willing to provide me with a loan of ...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/03/22/19ee2d88-5c19-2663-5d00-aabf0fac1f53/out.jpg" width="506" height="284">
 
 ---
 
