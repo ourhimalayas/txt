@@ -16,6 +16,22 @@
 
 ---
 
+[@miles 5/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p183daz5f2a.md)
+
+2022.05.02  新中国联邦 | 喜财经    从俄乌战争看整个台海和中共国的经济给世界带来什么影响
+
+<img src="https://media.gettr.com/group7/origin/2022/05/03/02/f4f06908-8243-be7c-584e-daa89c35902b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/3/2022 1:28 AM UTC  - :tv:直播](/content/gettr/p182rr282d6.md)
+
+5/1/2022 Miles Guo: Communist China is entering an upgraded version of North Korea! Soon you will see all the celebrities going to work in the countryside or factories; The CCP has downgraded the highest pursuit of human beings, th...
+
+<img src="https://media.gettr.com/group11/getter/2022/05/03/01/1715c20f-1111-ebd7-bc3d-23e1225f8458/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p182x7i3bfd.md)
 
 2022.05.02  晚 新中国联邦 | 新闻访谈     佩洛西突然访问基辅见泽连斯基，下一站台湾?
@@ -45,14 +61,6 @@
 5/2/2022 Miles Guo: The Himalaya Coin will certainly go to the moon! The whole family of a Japanese friend who invested in the construction of Yuda Palace Hotel wants to buy the Himalaya Coins in large quantities. The properties ne...
 
 <img src="https://media.gettr.com/group48/getter/2022/05/02/23/90ed1261-459f-785d-79f8-aac6dd37fa0f/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 1:28 AM UTC  - :tv:直播](/content/gettr/p182rr282d6.md)
-
-5/1/2022 Miles Guo: Communist China is entering an upgraded version of North Korea! Soon you will see all the celebrities going to work in the countryside or factories; The CCP has downgraded the highest pursuit of human beings, th...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/03/01/1715c20f-1111-ebd7-bc3d-23e1225f8458/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 5/1/2022 Miles Guo: Many large national institutional investors want to work with us; and our endeavor to take down the CCP has been recognized worldwide! The West is taking a series of actions to eliminate the CCP's spy networks a...
 
 <img src="https://media.gettr.com/group35/getter/2022/05/02/15/03819ee8-5466-e3ee-1bdb-d95ecc70a7b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p180xvnc901.md)
-
-【Ukraine Rescue】 04/30/22 Christine, a young volunteer from Ukraine, shares her feelings on the relief work and says: I was inspired to see Chinese people who really are fighting against communism, and it makes me believe that we c...
-
-<img src="https://media.gettr.com/group20/getter/2022/05/02/15/fc3509f4-b7a2-99c0-2b32-b53534d676fc/out.jpg" width="506" height="284">
 
 ---
 
