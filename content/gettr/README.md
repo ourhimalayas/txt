@@ -2,6 +2,28 @@
 ---
 
 
+[@miles 5/3/2022 1:24 AM UTC ](/content/gettr/p183blq8fa1.md)
+
+5月2号：尊敬的战友们好．刚刚的就好像有人在指路一样．又找出几张不可思议的照片，明天一定分享给大家，我彻底
+
+被震撼到了，这些照片好像是从天上掉下来的一样，我已经几十年没有看到了，天哪．什么样的力量，在背后指导着我们得新中国联邦灭共……
+
+
+
+【“老照片” 飞飞秀救援快报 2022-05-02 For English：gettr.com/streaming/p1820lm77b3 https://gettr.com/post/p182hixd978】
+
+<img src="https://media.gettr.com/group24/getter/2022/05/03/01/f002fe7a-f01c-232d-6b26-f5a0b904f506/313d285234e36d5693ab4ed3ffb8a8d7.jpg" width="506" height="284">
+
+---
+
+[@miles 5/3/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p182x7i3bfd.md)
+
+2022.05.02  晚 新中国联邦 | 新闻访谈     佩洛西突然访问基辅见泽连斯基，下一站台湾?
+
+<img src="https://media.gettr.com/group18/origin/2022/05/03/01/895fbf20-875b-24eb-4396-38ad59282225/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p182qi6047f.md)
 
 2022.05.02  晚 新中国联邦 | 新闻   G系列影响世界, 与人类命运联系在一起; 人民币兑美元应为60到70比1, 中共控制兑换权
@@ -26,11 +48,11 @@
 
 ---
 
-[@miles 5/3/2022 1:11 AM UTC  - :tv:直播](/content/gettr/p182x7i3bfd.md)
+[@miles 5/3/2022 1:28 AM UTC  - :tv:直播](/content/gettr/p182rr282d6.md)
 
-2022.05.02  晚 新中国联邦 | 新闻访谈     佩洛西突然访问基辅见泽连斯基，下一站台湾?
+5/1/2022 Miles Guo: Communist China is entering an upgraded version of North Korea! Soon you will see all the celebrities going to work in the countryside or factories; The CCP has downgraded the highest pursuit of human beings, th...
 
-<img src="https://media.gettr.com/group18/origin/2022/05/03/01/895fbf20-875b-24eb-4396-38ad59282225/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/05/03/01/1715c20f-1111-ebd7-bc3d-23e1225f8458/out.jpg" width="506" height="284">
 
 ---
 
@@ -140,27 +162,11 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 ---
 
-[@miles 5/2/2022 3:04 PM UTC  - :tv:直播](/content/gettr/p1814ny2214.md)
-
-2022.05.02  七哥乱聊
-
-<img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 5/2/2022 3:05 PM UTC  - :tv:直播](/content/gettr/p180xvnc901.md)
 
 【Ukraine Rescue】 04/30/22 Christine, a young volunteer from Ukraine, shares her feelings on the relief work and says: I was inspired to see Chinese people who really are fighting against communism, and it makes me believe that we c...
 
 <img src="https://media.gettr.com/group20/getter/2022/05/02/15/fc3509f4-b7a2-99c0-2b32-b53534d676fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:58 PM UTC  - :tv:直播](/content/gettr/p180i1i6884.md)
-
-2022.05.02  七哥乱聊
-
-<img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
