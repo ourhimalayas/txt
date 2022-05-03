@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p185fmv14e7.md)
+
+2022.05.03 文贵大直播：谈谈老照片，普京手术， 民生问题
+
+<img src="https://media.gettr.com/group25/origin/2022/05/03/12/da5dfe71-ce46-65ce-f694-571056b78a8b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1850hva7f4.md)
 
 2022.05.03  AM NFSC news   India Volunteer: Political Parties will Perish, and Peace will Endure
@@ -154,11 +162,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p185fmv14e7.md)
+[@miles 5/3/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1852xea18b.md)
 
-2022.05.03 文贵大直播：谈谈老照片，普京手术， 民生问题
+【Ukraine Rescue】05/03/2022 The mayor of Medyka comes to visit the relief camp accompanied by his officials. The Director of Communications is pleased to learn about the humanitarian work of the NFSC & ROLF in Medyka, and takes out ...
 
-<img src="https://media.gettr.com/group25/origin/2022/05/03/12/da5dfe71-ce46-65ce-f694-571056b78a8b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/05/03/13/60dd37f1-2412-2f56-9633-a3ec999d05dd/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Day 58 - Date: Ma...
 2022.05.02  NFSC fringe  Episode 181
 
 <img src="https://media.gettr.com/group49/origin/2022/05/02/23/8e2e1481-bdca-5fbf-4aa7-34b92ef99924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:27 PM UTC  - :tv:直播](/content/gettr/p182x3uf618.md)
-
-5/2/2022 Miles Guo: As the CCP is on its way of demise, the Whistleblowers’ Movement and the New Federal State of China have entered a critical moment. Many people have realized how impactful I am during the lockdown in mainland Ch...
-
-<img src="https://media.gettr.com/group7/getter/2022/05/02/23/d75e7bb6-dcfd-09bb-111c-2a0974a2e9d0/out.jpg" width="506" height="284">
 
 ---
 
