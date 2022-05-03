@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/3/2022 7:38 AM UTC ](/content/gettr/p183x2s38e7.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月2日第59天当日救援统计：
+
+Medyka救援站接待：约160人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16346人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 59 - Date: Ma...
+
+<img src="https://media.gettr.com/group3/getter/2022/05/03/07/fd1dc6a3-ea72-d432-c530-fe1495ba73b2/cfd1a61fcd8c9a54f8113d181f9e16de.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p184hio1e73.md)
 
 5/2/2022 Each of these old photos has witnessed the trajectory of my personal growth. What is the connection between these photos and my revelations in the past five years? Now it is the time to let the world know the history of th...
@@ -90,35 +122,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 7:38 AM UTC ](/content/gettr/p183x2s38e7.md)
+[@miles 5/3/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1847eq2936.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+【Ukraine Rescue】05/01/2022 A Ukrainian psychologist who is about to go back to Kyiv said that basically this is a problem of freedom in the 21 century. People should collaborate rather than stretch their muscles. It is time to elim...
 
-
-
-2022年5月2日第59天当日救援统计：
-
-Medyka救援站接待：约160人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16346人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 59 - Date: Ma...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/03/07/fd1dc6a3-ea72-d432-c530-fe1495ba73b2/cfd1a61fcd8c9a54f8113d181f9e16de.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/05/03/07/ddeb7c7d-9a9d-4451-343c-718fe7a9f2a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 5/2/2022 Miles Guo: Why did I post old photos in the past several days? Why should we put together a roadmap for the Whistleblowers’ Movement? Why should we do it starting with myself? Do you know how the things going on in east Uk...
 
 <img src="https://media.gettr.com/group23/getter/2022/05/02/23/f7fddb57-af53-45f4-6437-4bac7cde17c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:57 PM UTC  - :tv:直播](/content/gettr/p182w0m26aa.md)
-
-5/1/2022 Miles Guo: In the days to come, the U.S. may make a series of high-profile initiatives such as restoring the General Consulate in Chengdu and lowering tariffs for Communist China. The U.S. makes deals with the CCP just for...
-
-<img src="https://media.gettr.com/group15/getter/2022/05/02/22/4be87ea6-1d1d-3cd8-dc34-327a507c62cb/out.jpg" width="506" height="284">
 
 ---
 
