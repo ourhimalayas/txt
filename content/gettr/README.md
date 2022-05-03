@@ -2,6 +2,38 @@
 ---
 
 
+[@miles 5/3/2022 3:45 AM UTC ](/content/gettr/p183pyy2e49.md)
+
+新中国联邦·法治基金——乌克兰救援行动报告
+
+
+
+2022年5月1日第58天当日救援统计：
+
+Medyka救援站接待：约178人
+
+
+
+累计救援总计：
+
+Medyka救援站接待：约16186人
+
+巴士救援难民：2009人
+
+巴士发车：39次
+
+
+
+New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
+
+
+
+Day 58 - Date: Ma...
+
+<img src="https://media.gettr.com/group32/getter/2022/05/03/03/e7fe8521-8ada-61b5-05ec-7db415ce5f69/16b1d27c96b939f67456e84f0f2c02e2.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p183fc7365b.md)
 
 2022-5-2《鸡血王喜币大作战》 第一百八十三集 嘉宾：青藤、Nick
@@ -32,35 +64,11 @@
 
 ---
 
-[@miles 5/3/2022 3:45 AM UTC ](/content/gettr/p183pyy2e49.md)
+[@miles 5/3/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p184jtg9164.md)
 
-新中国联邦·法治基金——乌克兰救援行动报告
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-
-
-2022年5月1日第58天当日救援统计：
-
-Medyka救援站接待：约178人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16186人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 58 - Date: Ma...
-
-<img src="https://media.gettr.com/group32/getter/2022/05/03/03/e7fe8521-8ada-61b5-05ec-7db415ce5f69/16b1d27c96b939f67456e84f0f2c02e2.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/05/03/04/a24bd2d5-1ea7-7830-4c06-816787e2242c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ For English：gettr.com/streaming/p1820lm77b3
 2022.05.02  新中国联邦 | 喜健康   老药新用：探讨含碘药剂抵抗冠状病毒感染
 
 <img src="https://media.gettr.com/group25/origin/2022/05/02/20/c08d693a-b560-9103-7391-992719737fe4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 5:30 PM UTC  - :tv:直播](/content/gettr/p17yz6ib817.md)
-
-2022.05.02 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-
-<img src="https://media.gettr.com/group22/origin/2022/05/02/17/50341c6e-fdf1-c14e-1bca-bd1b34523919/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
