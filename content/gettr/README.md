@@ -2,6 +2,16 @@
 ---
 
 
+[@miles 5/3/2022 6:47 AM UTC  - :tv:直播](/content/gettr/p184iihb5ba.md)
+
+May 2nd, 2022, many media report that Putin was diagnosed with abdominal cancer a year and a half ago and has Parkinson's disease, may undergo cancer surgery in the near future and temporarily hand power to another person.
+
+ Since ...
+
+<img src="https://media.gettr.com/group28/getter/2022/05/03/06/73599b79-0b95-b40d-8564-0ffa0d085efe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 4:59 AM UTC  - :tv:直播](/content/gettr/p184jtg9164.md)
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -72,13 +82,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 6:47 AM UTC  - :tv:直播](/content/gettr/p184iihb5ba.md)
+[@miles 5/3/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p184hio1e73.md)
 
-May 2nd, 2022, many media report that Putin was diagnosed with abdominal cancer a year and a half ago and has Parkinson's disease, may undergo cancer surgery in the near future and temporarily hand power to another person.
+5/2/2022 Each of these old photos has witnessed the trajectory of my personal growth. What is the connection between these photos and my revelations in the past five years? Now it is the time to let the world know the history of th...
 
- Since ...
-
-<img src="https://media.gettr.com/group28/getter/2022/05/03/06/73599b79-0b95-b40d-8564-0ffa0d085efe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/05/03/07/c94fd58d-b897-458a-7554-10f1dc575f7a/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ A brave English volunteer joins the Foreign Legion to fight in Ukraine. One of h
 5/1/2022 Miles Guo: In the days to come, the U.S. may make a series of high-profile initiatives such as restoring the General Consulate in Chengdu and lowering tariffs for Communist China. The U.S. makes deals with the CCP just for...
 
 <img src="https://media.gettr.com/group15/getter/2022/05/02/22/4be87ea6-1d1d-3cd8-dc34-327a507c62cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 10:02 PM UTC  - :tv:直播](/content/gettr/p182hixd978.md)
-
-“老照片” 飞飞秀救援快报 2022-05-02
-
-For English：gettr.com/streaming/p1820lm77b3
-
-<img src="https://media.gettr.com/group48/origin/2022/04/21/22/c630cebb-5c27-ba57-e526-22a658589694/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
