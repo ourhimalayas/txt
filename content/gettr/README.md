@@ -10,11 +10,11 @@
 
 ---
 
-[@miles 5/2/2022 11:16 PM UTC ](/content/gettr/p182y65d6fd.md)
+[@miles 5/3/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p182rfd0d8d.md)
 
-The Chinese Communist Party (CCP) control the circulation of RMB by restricting the bank withdrawals for the deplorable, thus keeping the USD exchange rate to RMB at 6-7. The China’s economy is grossly falsified and fraudulent, and...
+5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
 
-<img src="https://media.gettr.com/group7/origin/2022/05/02/23/6beee54a-9c10-7c31-b90b-582446cdc466/f2bf8a83359f586b3ce220a115fafab9.png" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/05/03/00/837a3407-a470-e62e-f605-a4bddaf5c2ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 2022.05.02  NFSC fringe  Episode 181
 
 <img src="https://media.gettr.com/group49/origin/2022/05/02/23/8e2e1481-bdca-5fbf-4aa7-34b92ef99924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/2/2022 11:16 PM UTC ](/content/gettr/p182y65d6fd.md)
+
+The Chinese Communist Party (CCP) control the circulation of RMB by restricting the bank withdrawals for the deplorable, thus keeping the USD exchange rate to RMB at 6-7. The China’s economy is grossly falsified and fraudulent, and...
+
+<img src="https://media.gettr.com/group7/origin/2022/05/02/23/6beee54a-9c10-7c31-b90b-582446cdc466/f2bf8a83359f586b3ce220a115fafab9.png" width="506" height="284">
 
 ---
 
@@ -145,18 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 2022.05.02  七哥乱聊
 
 <img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:37 PM UTC  - 2圖](/content/gettr/p180hthf892.md)
-
-5月2号：过去的五年．只有我一个人．告诉全世界的各国政府．普京的身体非常的不好，而且做过两次手术，但所有人都是选择了不相信．由此可见，世界上所谓的情报机构不像电影里演的那么了不起，我们老百姓都是被这些所谓法定的机构玩弄的牺牲品而已。这张照片寓意深远了——
-
-
-
-https://www.wionews.com/world/putin-to-undergo-cancer-operation-hand-power-to-ex-spy-chief-claims-re...
-
-<img src="https://media.gettr.com/group14/getter/2022/05/02/14/9a4d0539-127b-775a-2f0e-26687ecc870f/a01edf86aefa9c6b8d8f7d4c53fc9729.jpg" width="506" height="284">
 
 ---
 
