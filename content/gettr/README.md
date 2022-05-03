@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1869vj7777.md)
+
+【Ukraine Rescue】05/02/2022 During an interview in front of  the tent of the NFSC, Marco, a German Doctor, told King that communism is just a fraud that allows the rich people to take all the money and leaves the majority living in ...
+
+<img src="https://media.gettr.com/group43/getter/2022/05/03/16/d7586fe3-1db8-1a1f-a7a0-30a3eba3bdbe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p185wu28aa2.md)
 
 【Ukraine Rescue】05/02/2022 A mother and son from Moscow say that, like the Communist China, there is no freedom of speech in Russia under Putin; and like the new Chinese people from the NFSC, they come here to show the world that t...
@@ -178,11 +186,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1869vj7777.md)
+[@miles 5/3/2022 4:17 PM UTC  - :tv:直播](/content/gettr/p185y3n9194.md)
 
-【Ukraine Rescue】05/02/2022 During an interview in front of  the tent of the NFSC, Marco, a German Doctor, told King that communism is just a fraud that allows the rich people to take all the money and leaves the majority living in ...
+【Ukraine Rescue】05/03/2022 A volunteer from the U.S. comes and asks what the NFSC is and gives us an interview before he leaves after completing his relief work at the Ukrainian border. He expresses his love for Tibet and praises o...
 
-<img src="https://media.gettr.com/group43/getter/2022/05/03/16/d7586fe3-1db8-1a1f-a7a0-30a3eba3bdbe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/05/03/16/1cf57072-abf8-227b-596e-11a69b63a9d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Day 58 - Date: Ma...
 2022.05.02  晚 新中国联邦 | 新闻   G系列影响世界, 与人类命运联系在一起; 人民币兑美元应为60到70比1, 中共控制兑换权
 
 <img src="https://media.gettr.com/group10/origin/2022/05/03/00/3efd78fe-5557-a7f9-67f3-ab2f74378cc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p182rfd0d8d.md)
-
-5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
-
-<img src="https://media.gettr.com/group42/getter/2022/05/03/00/837a3407-a470-e62e-f605-a4bddaf5c2ff/out.jpg" width="506" height="284">
 
 ---
 
