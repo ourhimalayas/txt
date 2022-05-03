@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 9:43 AM UTC  - :tv:直播](/content/gettr/p184o920e60.md)
+
+【Ukraine Rescue】04/30/2022 An Italian volunteer from the SSF organization says that the Chinese government is a dictatorship and people living in China are suffering. He wishes our New Federal State of China victory in taking down ...
+
+<img src="https://media.gettr.com/group50/getter/2022/05/03/09/4f4a75d0-99a2-a7be-95a3-67ab54b8f7b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1847eq2936.md)
 
 【Ukraine Rescue】05/01/2022 A Ukrainian psychologist who is about to go back to Kyiv said that basically this is a problem of freedom in the 21 century. People should collaborate rather than stretch their muscles. It is time to elim...
@@ -130,11 +138,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 9:43 AM UTC  - :tv:直播](/content/gettr/p184o920e60.md)
+[@miles 5/3/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p18569i1ff2.md)
 
-【Ukraine Rescue】04/30/2022 An Italian volunteer from the SSF organization says that the Chinese government is a dictatorship and people living in China are suffering. He wishes our New Federal State of China victory in taking down ...
+5月3号：尊敬的战友们好！所有的中国人，只需要知道．自己是人．不是畜生．什么问题都能解决了！【其实就是两脚的事，用不着敲盆，更用不着跳楼】
 
-<img src="https://media.gettr.com/group50/getter/2022/05/03/09/4f4a75d0-99a2-a7be-95a3-67ab54b8f7b4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/05/03/10/7da37600-42a9-79e7-ecc0-67c9b5211988/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 5/2/2022 Miles Guo: As the CCP is on its way of demise, the Whistleblowers’ Movement and the New Federal State of China have entered a critical moment. Many people have realized how impactful I am during the lockdown in mainland Ch...
 
 <img src="https://media.gettr.com/group7/getter/2022/05/02/23/d75e7bb6-dcfd-09bb-111c-2a0974a2e9d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:04 PM UTC  - :tv:直播](/content/gettr/p182mjs9cec.md)
-
-5/1/2022 Miles Guo: The AXIS Act implies that the Americans do not want to sit back and watch the CCP turn Communist China into the center of world civilization. The New Federal State of China must take action, unite all the forces...
-
-<img src="https://media.gettr.com/group43/getter/2022/05/02/23/62918aed-258b-02f3-2ccc-8e1311fdb8dd/out.jpg" width="506" height="284">
 
 ---
 
