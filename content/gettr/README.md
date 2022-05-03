@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p18801l2e4c.md)
+
+2022.05.03  PM NFSC news   Ukraine Forces Strike Down 10 Russian Drones
+
+<img src="https://media.gettr.com/group6/origin/2022/05/03/22/c8b78566-9a8b-41a6-25b6-2a331988c033/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 10:31 PM UTC  - :tv:直播](/content/gettr/p187y3xeddc.md)
 
 5/3/2022 Miles Guo: Here is a photo I took at Chu-yuan Lee's office in the Hung Kuo Headquarters Building in Taipei. The Taiwanese people have helped the Chinese people to preserve the most wonderful and important cultures, religio...
@@ -18,11 +26,11 @@
 
 ---
 
-[@miles 5/3/2022 11:09 PM UTC  - :tv:直播](/content/gettr/p18801l2e4c.md)
+[@miles 5/3/2022 11:42 PM UTC  - :tv:直播](/content/gettr/p187yac601e.md)
 
-2022.05.03  PM NFSC news   Ukraine Forces Strike Down 10 Russian Drones
+2022.05.03  NFSC fringe  Episode 182
 
-<img src="https://media.gettr.com/group6/origin/2022/05/03/22/c8b78566-9a8b-41a6-25b6-2a331988c033/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/05/03/23/ea669af6-eb53-61e0-a0e8-1e0cc49a1b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 58 - Date: Ma...
 
 <img src="https://media.gettr.com/group32/getter/2022/05/03/03/e7fe8521-8ada-61b5-05ec-7db415ce5f69/16b1d27c96b939f67456e84f0f2c02e2.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p183fc7365b.md)
-
-2022-5-2《鸡血王喜币大作战》 第一百八十三集 嘉宾：青藤、Nick
-
-<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
