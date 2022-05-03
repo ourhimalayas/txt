@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1852xea18b.md)
+
+【Ukraine Rescue】05/03/2022 The mayor of Medyka comes to visit the relief camp accompanied by his officials. The Director of Communications is pleased to learn about the humanitarian work of the NFSC & ROLF in Medyka, and takes out ...
+
+<img src="https://media.gettr.com/group22/getter/2022/05/03/13/60dd37f1-2412-2f56-9633-a3ec999d05dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 12:19 PM UTC  - :tv:直播](/content/gettr/p185fmv14e7.md)
 
 2022.05.03 文贵大直播：谈谈老照片，普京手术， 民生问题
@@ -162,11 +170,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1852xea18b.md)
+[@miles 5/3/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p185wu28aa2.md)
 
-【Ukraine Rescue】05/03/2022 The mayor of Medyka comes to visit the relief camp accompanied by his officials. The Director of Communications is pleased to learn about the humanitarian work of the NFSC & ROLF in Medyka, and takes out ...
+【Ukraine Rescue】05/02/2022 A mother and son from Moscow say that, like the Communist China, there is no freedom of speech in Russia under Putin; and like the new Chinese people from the NFSC, they come here to show the world that t...
 
-<img src="https://media.gettr.com/group22/getter/2022/05/03/13/60dd37f1-2412-2f56-9633-a3ec999d05dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/05/03/15/86dbe36c-e033-4823-93b7-36a404dc4872/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ Day 58 - Date: Ma...
 5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/03/00/837a3407-a470-e62e-f605-a4bddaf5c2ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p182kml148c.md)
-
-5/2/2022 Miles Guo: The Himalaya Coin will certainly go to the moon! The whole family of a Japanese friend who invested in the construction of Yuda Palace Hotel wants to buy the Himalaya Coins in large quantities. The properties ne...
-
-<img src="https://media.gettr.com/group48/getter/2022/05/02/23/90ed1261-459f-785d-79f8-aac6dd37fa0f/out.jpg" width="506" height="284">
 
 ---
 
