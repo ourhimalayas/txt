@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p185wu28aa2.md)
+
+【Ukraine Rescue】05/02/2022 A mother and son from Moscow say that, like the Communist China, there is no freedom of speech in Russia under Putin; and like the new Chinese people from the NFSC, they come here to show the world that t...
+
+<img src="https://media.gettr.com/group18/getter/2022/05/03/15/86dbe36c-e033-4823-93b7-36a404dc4872/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1852xea18b.md)
 
 【Ukraine Rescue】05/03/2022 The mayor of Medyka comes to visit the relief camp accompanied by his officials. The Director of Communications is pleased to learn about the humanitarian work of the NFSC & ROLF in Medyka, and takes out ...
@@ -170,11 +178,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 3:19 PM UTC  - :tv:直播](/content/gettr/p185wu28aa2.md)
+[@miles 5/3/2022 4:01 PM UTC  - :tv:直播](/content/gettr/p1869vj7777.md)
 
-【Ukraine Rescue】05/02/2022 A mother and son from Moscow say that, like the Communist China, there is no freedom of speech in Russia under Putin; and like the new Chinese people from the NFSC, they come here to show the world that t...
+【Ukraine Rescue】05/02/2022 During an interview in front of  the tent of the NFSC, Marco, a German Doctor, told King that communism is just a fraud that allows the rich people to take all the money and leaves the majority living in ...
 
-<img src="https://media.gettr.com/group18/getter/2022/05/03/15/86dbe36c-e033-4823-93b7-36a404dc4872/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/05/03/16/d7586fe3-1db8-1a1f-a7a0-30a3eba3bdbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Day 58 - Date: Ma...
 5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
 
 <img src="https://media.gettr.com/group42/getter/2022/05/03/00/837a3407-a470-e62e-f605-a4bddaf5c2ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:39 PM UTC  - :tv:直播](/content/gettr/p182kq126a5.md)
-
-2022.05.02  NFSC fringe  Episode 181
-
-<img src="https://media.gettr.com/group49/origin/2022/05/02/23/8e2e1481-bdca-5fbf-4aa7-34b92ef99924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
