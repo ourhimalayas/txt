@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p182rfd0d8d.md)
+
+5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/03/00/837a3407-a470-e62e-f605-a4bddaf5c2ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/2/2022 11:38 PM UTC  - :tv:直播](/content/gettr/p182kml148c.md)
 
 5/2/2022 Miles Guo: The Himalaya Coin will certainly go to the moon! The whole family of a Japanese friend who invested in the construction of Yuda Palace Hotel wants to buy the Himalaya Coins in large quantities. The properties ne...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/3/2022 12:20 AM UTC  - :tv:直播](/content/gettr/p182rfd0d8d.md)
+[@miles 5/3/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p182qi6047f.md)
 
-5/1/2022  Miles Guo: Qin Gang is conspiring with the agents, traitors to the US and Taiwan to rebuild the Sino-U.S. economic and trade relations; the U.S. needs the Chinese to continue to provide cheap labor to solve its inflation ...
+2022.05.02  晚 新中国联邦 | 新闻   G系列影响世界, 与人类命运联系在一起; 人民币兑美元应为60到70比1, 中共控制兑换权
 
-<img src="https://media.gettr.com/group42/getter/2022/05/03/00/837a3407-a470-e62e-f605-a4bddaf5c2ff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/05/03/00/3efd78fe-5557-a7f9-67f3-ab2f74378cc8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 2022.05.02  七哥乱聊
 
 <img src="https://media.gettr.com/group41/origin/2022/05/02/14/e3acf562-19b2-a973-f5ba-3cd4844f98a8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 2:39 PM UTC  - :tv:直播](/content/gettr/p17zywi0472.md)
-
-【Ukraine Rescue】04/30/2022 A Korean volunteer from Austria was impressed by the rescue work of the New Federation of China. Speaking of the evil of North Korea and the CCP dictatorship and the harm to the world, he smiles knowingly...
-
-<img src="https://media.gettr.com/group9/getter/2022/05/02/14/a23f64dc-d742-c492-7571-6ec5abed7a26/out.jpg" width="506" height="284">
 
 ---
 
