@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1847eq2936.md)
+
+【Ukraine Rescue】05/01/2022 A Ukrainian psychologist who is about to go back to Kyiv said that basically this is a problem of freedom in the 21 century. People should collaborate rather than stretch their muscles. It is time to elim...
+
+<img src="https://media.gettr.com/group13/getter/2022/05/03/07/ddeb7c7d-9a9d-4451-343c-718fe7a9f2a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 7:38 AM UTC ](/content/gettr/p183x2s38e7.md)
 
 新中国联邦·法治基金——乌克兰救援行动报告
@@ -122,11 +130,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 7:49 AM UTC  - :tv:直播](/content/gettr/p1847eq2936.md)
+[@miles 5/3/2022 9:43 AM UTC  - :tv:直播](/content/gettr/p184o920e60.md)
 
-【Ukraine Rescue】05/01/2022 A Ukrainian psychologist who is about to go back to Kyiv said that basically this is a problem of freedom in the 21 century. People should collaborate rather than stretch their muscles. It is time to elim...
+【Ukraine Rescue】04/30/2022 An Italian volunteer from the SSF organization says that the Chinese government is a dictatorship and people living in China are suffering. He wishes our New Federal State of China victory in taking down ...
 
-<img src="https://media.gettr.com/group13/getter/2022/05/03/07/ddeb7c7d-9a9d-4451-343c-718fe7a9f2a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/05/03/09/4f4a75d0-99a2-a7be-95a3-67ab54b8f7b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 5/2/2022 Miles Guo: As the CCP is on its way of demise, the Whistleblowers’ Movement and the New Federal State of China have entered a critical moment. Many people have realized how impactful I am during the lockdown in mainland Ch...
 
 <img src="https://media.gettr.com/group7/getter/2022/05/02/23/d75e7bb6-dcfd-09bb-111c-2a0974a2e9d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:01 PM UTC  - :tv:直播](/content/gettr/p182mry8661.md)
-
-2022.05.02 PM NFSC news  Russian volunteer supports Ukraine and wishes for Chinese people to be free
-
-<img src="https://media.gettr.com/group35/origin/2022/04/30/22/53693cc1-a429-7b79-4845-3450cf326a7d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
