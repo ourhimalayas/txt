@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p18569i1ff2.md)
+
+5月3号：尊敬的战友们好！所有的中国人，只需要知道．自己是人．不是畜生．什么问题都能解决了！【其实就是两脚的事，用不着敲盆，更用不着跳楼】
+
+<img src="https://media.gettr.com/group13/getter/2022/05/03/10/7da37600-42a9-79e7-ecc0-67c9b5211988/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 9:43 AM UTC  - :tv:直播](/content/gettr/p184o920e60.md)
 
 【Ukraine Rescue】04/30/2022 An Italian volunteer from the SSF organization says that the Chinese government is a dictatorship and people living in China are suffering. He wishes our New Federal State of China victory in taking down ...
@@ -138,11 +146,11 @@ Day 58 - Date: Ma...
 
 ---
 
-[@miles 5/3/2022 10:29 AM UTC  - :tv:直播](/content/gettr/p18569i1ff2.md)
+[@miles 5/3/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1850hva7f4.md)
 
-5月3号：尊敬的战友们好！所有的中国人，只需要知道．自己是人．不是畜生．什么问题都能解决了！【其实就是两脚的事，用不着敲盆，更用不着跳楼】
+2022.05.03  AM NFSC news   India Volunteer: Political Parties will Perish, and Peace will Endure
 
-<img src="https://media.gettr.com/group13/getter/2022/05/03/10/7da37600-42a9-79e7-ecc0-67c9b5211988/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/05/03/11/8e435855-2bd4-11b7-8df6-496760153572/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ The Chinese Communist Party (CCP) control the circulation of RMB by restricting 
 5/2/2022 Miles Guo: As the CCP is on its way of demise, the Whistleblowers’ Movement and the New Federal State of China have entered a critical moment. Many people have realized how impactful I am during the lockdown in mainland Ch...
 
 <img src="https://media.gettr.com/group7/getter/2022/05/02/23/d75e7bb6-dcfd-09bb-111c-2a0974a2e9d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 11:11 PM UTC  - :tv:直播](/content/gettr/p182xpmd4e0.md)
-
-5/2/2022 Miles Guo: Why did I post old photos in the past several days? Why should we put together a roadmap for the Whistleblowers’ Movement? Why should we do it starting with myself? Do you know how the things going on in east Uk...
-
-<img src="https://media.gettr.com/group23/getter/2022/05/02/23/f7fddb57-af53-45f4-6437-4bac7cde17c8/out.jpg" width="506" height="284">
 
 ---
 
