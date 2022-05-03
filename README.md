@@ -11,8 +11,14 @@
 
 ---
 
+#### [香港新闻自由指数跌暴跌至第三世界水平](/content/gnews/2460533.md)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆┃意大利计划于2024年下半年 切断对俄罗斯天然气的依赖](/content/gnews/2460514.md)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [德国支持芬兰和瑞典加入北约](/content/gnews/2460501.md)
+ `Shuizhuyu`
 
 #### [中日财经爆┃斯洛伐克寻求豁免对俄罗斯石油的禁运](/content/gnews/2460500.md)
  `東京櫻花団-Tokyo Sakura Group`
@@ -101,9 +107,6 @@
 #### [俄罗斯将从摩尔多瓦开辟新的军事阵线](/content/gnews/2460072.md)
  `topnews`
 
-#### [英国石油公司因能源价格飙升而增加股票回购](/content/gnews/2460060.md)
- `Shuizhuyu`
-
 #### [一名勇敢的英国志愿者去乌克兰加入战斗以对抗普京的军队](/content/gnews/2460016.md)
  `墨尔本雅典娜农场`
 
@@ -116,23 +119,11 @@
 #### [真话是罪](/content/gnews/2459960.md)
  `纽约香草山MOS02`
 
-#### [油价因中国需求担忧而下滑，而欧盟权衡俄罗斯的石油禁令](/content/gnews/2459959.md)
- `Shuizhuyu`
-
-#### [俄罗斯入侵乌克兰最新战况更新](/content/gnews/2459918.md)
- `topnews`
-
-#### [两家在法兰克福的银行因“兼前”丑闻被搜查](/content/gnews/2459905.md)
- `Shuizhuyu`
-
 #### [中国籍瑞士科学家被美司法部指控窃取葛兰素史克商业机密](/content/gnews/2459853.md)
  `秘密翻譯組G-Translators`
 
 #### [樱花时政┃中共防疫宣传又翻车：3个人照顾全村禽畜，累到求救！](/content/gnews/2459664.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄罗斯在遭受严重损失后加紧征兵](/content/gnews/2459612.md)
- `西班牙巴塞罗那喜悦农场`
 
 #### [闲聊澳洲：郭先生5月2日盖特信息相关新闻补充](/content/gnews/2459484.md)
  `墨尔本雅典娜农场`
@@ -180,5 +171,8 @@
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [中共才是世界上黑帮的幕后大佬](/content/gnews/2201508.md)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/2197304.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
