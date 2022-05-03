@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p183daz5f2a.md)
+
+2022.05.02  新中国联邦 | 喜财经    从俄乌战争看整个台海和中共国的经济给世界带来什么影响
+
+<img src="https://media.gettr.com/group7/origin/2022/05/03/02/f4f06908-8243-be7c-584e-daa89c35902b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/3/2022 1:24 AM UTC ](/content/gettr/p183blq8fa1.md)
 
 5月2号：尊敬的战友们好．刚刚的就好像有人在指路一样．又找出几张不可思议的照片，明天一定分享给大家，我彻底
@@ -16,11 +24,11 @@
 
 ---
 
-[@miles 5/3/2022 2:02 AM UTC  - :tv:直播](/content/gettr/p183daz5f2a.md)
+[@miles 5/3/2022 3:08 AM UTC  - :tv:直播](/content/gettr/p183fc7365b.md)
 
-2022.05.02  新中国联邦 | 喜财经    从俄乌战争看整个台海和中共国的经济给世界带来什么影响
+2022-5-2《鸡血王喜币大作战》 第一百八十三集 嘉宾：青藤、Nick
 
-<img src="https://media.gettr.com/group7/origin/2022/05/03/02/f4f06908-8243-be7c-584e-daa89c35902b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/04/22/02/b3c39935-8089-ecb9-aa77-7ab470fbc99c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ For English：gettr.com/streaming/p1820lm77b3
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 <img src="https://media.gettr.com/group13/origin/2022/05/02/15/7f439604-2145-2cc0-25d3-057888ba0547/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/2/2022 3:43 PM UTC  - :tv:直播](/content/gettr/p180ytj51f7.md)
-
-5/1/2022 Miles Guo: Many large national institutional investors want to work with us; and our endeavor to take down the CCP has been recognized worldwide! The West is taking a series of actions to eliminate the CCP's spy networks a...
-
-<img src="https://media.gettr.com/group35/getter/2022/05/02/15/03819ee8-5466-e3ee-1bdb-d95ecc70a7b3/out.jpg" width="506" height="284">
 
 ---
 
