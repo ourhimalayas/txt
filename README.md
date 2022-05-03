@@ -11,8 +11,23 @@
 
 ---
 
-#### [北京12个区明日开展三轮核酸筛查](/content/gnews/2457870.md)
- `英國倫敦喜莊園 Himalaya London Club UK`
+#### [中共病毒治疗药物Paxlovid不能预防家庭成员之间感染](/content/gnews/2457965.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [乌克兰战场，无人机正在改变现代战争](/content/gnews/2457946.md)
+ `墨尔本雅典娜农场`
+
+#### [乌克兰击落俄罗斯10架无人机](/content/gnews/2457898.md)
+ `NFSC News`
+
+#### [美众议员表示 中共与俄罗斯组成邪恶轴心](/content/gnews/2457889.md)
+ `NFSC News`
+
+#### [美英针对台海局势开展高级别讨论](/content/gnews/2457880.md)
+ `NFSC News`
+
+#### [意大利与希腊放宽疫情限制](/content/gnews/2457879.md)
+ `NFSC News`
 
 #### [习近平力撑“清零”政策 中共经济加速崩溃](/content/gnews/2457869.md)
  `纽约香草山MOS02`
@@ -28,9 +43,6 @@
 
 #### [中共公开撒谎掩盖89年六四屠杀](/content/gnews/2457829.md)
  `历史组`
-
-#### [乌克兰希望从被围困的马里乌波尔钢铁厂撤离更多平民](/content/gnews/2457814.md)
- `喜马拉雅-华盛顿DC农场`
 
 #### [从上海返回杭州的遭遇](/content/gnews/2457813.md)
  `Tokyo Sakura Video Group`
@@ -74,9 +86,6 @@
 #### [上海闵行纪王镇，大批居民抗议](/content/gnews/2457647.md)
  `Tokyo Sakura Video Group`
 
-#### [小雞（小兔）先生Ben臨別特意接受採訪——Part A](/content/gnews/2457634.md)
- `喜马拉雅-华盛顿DC农场`
-
 #### [郭文贵精品视频-习近平为圆皇帝梦让国民吃屎、活活饿死、逼疯](/content/gnews/2457605.md)
  `cindy`
 
@@ -113,11 +122,11 @@
 #### [五月花简报（02/05/2022）](/content/gnews/2457025.md)
  `mayflowertranslate`
 
+#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(j)](/content/gnews/2456987.md)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [截至5.2 俄乌战事汇总](/content/gnews/2456814.md)
  `秘密翻譯組G-Translators`
-
-#### [20220501文贵大直播：《轴心法案》与轴心学说的起源及其本质](/content/gnews/2456760.md)
- `秘密翻译组-原创组`
 
 #### [马斯克将开发新的利润化推文技术](/content/gnews/2456734.md)
  `秘密翻譯組G-Translators`
@@ -127,9 +136,6 @@
 
 #### [中日财经爆┃涉嫌金融违法 小米集团被印度政府冻结7亿多美元](/content/gnews/2456635.md)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [文贵爆料5.2：政事太多，乱聊有料](/content/gnews/2456562.md)
- `秘密翻译组-原创组`
 
 #### [乌克兰撤离人员讲述了亚速钢铁厂掩体中的恐怖事件](/content/gnews/2456141.md)
  `波士顿五月花农场金融部`
@@ -160,12 +166,6 @@
 
 #### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案](/content/gnews/2452721.md)
  `關注組`
-
-#### [新中国联邦应着力做好的三件事](/content/gnews/2452041.md)
- `NFSC News`
-
-#### [中共GDP造假掩盖国内经济崩塌](/content/gnews/2452024.md)
- `NFSC News`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/2238309.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
