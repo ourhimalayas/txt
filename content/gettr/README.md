@@ -2,6 +2,12 @@
 ---
 
 
+[@miles 5/4/2022 3:11 PM UTC ](/content/gettr/p18ay2w2e30.md)
+
+5月4号：这是七哥．今年收到最早的．第一个．祝七哥生日快乐的视频，感谢日本银河农场和美……帅哥妹妹．兄弟们！
+
+---
+
 [@miles 5/4/2022 2:27 PM UTC  - :tv:直播](/content/gettr/p18a7470a0a.md)
 
 5月4号：尊敬的战友们好……这一次病毒阳性增长，一定要小心，这是疫苗灾难的开始……
@@ -18,9 +24,11 @@
 
 ---
 
-[@miles 5/4/2022 3:11 PM UTC ](/content/gettr/p18ay2w2e30.md)
+[@miles 5/4/2022 3:36 PM UTC  - :tv:直播](/content/gettr/p18bbfv8a18.md)
 
-5月4号：这是七哥．今年收到最早的．第一个．祝七哥生日快乐的视频，感谢日本银河农场和美……帅哥妹妹．兄弟们！
+5/3/2022 Miles Guo: I will show you the big picture of my personal history. The rise of the Whistleblowers' Movement and the New Federal State of China is by no means random, and I believe there is a mysterious force guiding us. St...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/04/15/316023ec-26f9-f500-e4a3-4a4e390d102f/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 没有爆料革命一定不可能有轴...
 
 <img src="https://media.gettr.com/group13/origin/2022/05/04/01/973d6621-7ffb-8bb2-e786-a5932e587f5d/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p188ikaee16.md)
-
-5/3/2022 Miles Guo: Whether or not parents let their children step into society early determines whether the person will succeed. Success requires faith and ambition beyond the ordinary. After I was released from the Qingfeng Deten...
-
-<img src="https://media.gettr.com/group19/getter/2022/05/04/01/6b53f022-dd55-00d1-fbcc-eb518e1e8897/out.jpg" width="506" height="284">
 
 ---
 
