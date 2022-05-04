@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18821aa548.md)
+
+2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
+
+<img src="https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 1:21 AM UTC  - :tv:直播](/content/gettr/p1888jvc12b.md)
 
 5/3/2022 Miles Guo: This is a photo of the place where I met with Ji Shengde, then deputy director of the Second Bureau of the PLA's General Staff Department, when I was young. In this photo, behind the Beijing Botanical Garden is ...
@@ -10,11 +18,11 @@
 
 ---
 
-[@miles 5/4/2022 1:59 AM UTC  - :tv:直播](/content/gettr/p18821aa548.md)
+[@miles 5/4/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1885ife28b.md)
 
-2022.05.03  新中国联邦 | 喜财经    股市汇市黄金走势；马斯克收购推特后，GETTR美国注册量飙升了323%
+2022-5-《鸡血王喜币大作战》 第一百八十四集 嘉宾：无双柳薇薇、文空
 
-<img src="https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/04/24/03/7ba45a6f-3054-0370-9364-ddf6ae58043d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 2022.05.03 文贵大直播：谈谈老照片，普京手术， 民生问题
 
 <img src="https://media.gettr.com/group25/origin/2022/05/03/12/da5dfe71-ce46-65ce-f694-571056b78a8b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p1850hva7f4.md)
-
-2022.05.03  AM NFSC news   India Volunteer: Political Parties will Perish, and Peace will Endure
-
-<img src="https://media.gettr.com/group38/origin/2022/05/03/11/8e435855-2bd4-11b7-8df6-496760153572/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
