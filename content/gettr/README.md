@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 1:04 AM UTC  - :tv:直播](/content/gettr/p187ye0ced9.md)
+
+2022.05.03  晚 新中国联邦 | 新闻访谈   老照片看到文貴先生的人生目標：信譽，生存， 發達，捨棄，無我--滅共
+
+<img src="https://media.gettr.com/group41/origin/2022/05/04/01/61a5cdf2-b6dc-28f9-7f9f-56f624b78123/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 12:31 AM UTC  - :tv:直播](/content/gettr/p187m7u3e6a.md)
 
 5/3/2022 Miles Guo: When I got out of Qingfeng Detention Center, I was under border control and my name was on the CCP's surveillance list due to my support of the June 4, 1989 event. I was unable to get loans or own any legal enti...
@@ -10,11 +18,27 @@
 
 ---
 
+[@miles 5/4/2022 1:06 AM UTC  - :tv:直播](/content/gettr/p188ikaee16.md)
+
+5/3/2022 Miles Guo: Whether or not parents let their children step into society early determines whether the person will succeed. Success requires faith and ambition beyond the ordinary. After I was released from the Qingfeng Deten...
+
+<img src="https://media.gettr.com/group19/getter/2022/05/04/01/6b53f022-dd55-00d1-fbcc-eb518e1e8897/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 12:33 AM UTC  - :tv:直播](/content/gettr/p188b2y8d59.md)
 
 2022.05.03  晚 新中国联邦 | 新闻   联合国证实俄乌战争已致3000多平民丧生；俄罗斯总参谋长赴前线督战時受伤
 
 <img src="https://media.gettr.com/group47/origin/2022/05/04/00/0d8f6f8e-fa75-3a9c-8c57-d11b264df2a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1880gjc36a.md)
+
+5/3/2022 Miles Guo: Almost all my old photos were confiscated by the CCP police and State Security agents. The CCP also classified my photos and those of my family as top state secrets. It is quite difficult to find the photos that...
+
+<img src="https://media.gettr.com/group17/getter/2022/05/04/00/45f5fcf5-575a-5f18-71da-21f371ace061/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +71,6 @@
 5/3/2022 Miles Guo: The very first thing that the Whistleblowers' Movement should do is to oppose the cult of personality, which is the foundation of the dictatorship's propaganda, brainwashing, and fabrication of lies and heresies...
 
 <img src="https://media.gettr.com/group28/getter/2022/05/03/22/20faf322-1b4a-5ea3-5dc9-ec45a7febad5/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/4/2022 12:41 AM UTC  - :tv:直播](/content/gettr/p1880gjc36a.md)
-
-5/3/2022 Miles Guo: Almost all my old photos were confiscated by the CCP police and State Security agents. The CCP also classified my photos and those of my family as top state secrets. It is quite difficult to find the photos that...
-
-<img src="https://media.gettr.com/group17/getter/2022/05/04/00/45f5fcf5-575a-5f18-71da-21f371ace061/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,46 +159,6 @@
 【Ukraine Rescue】05/01/2022 A Ukrainian psychologist who is about to go back to Kyiv said that basically this is a problem of freedom in the 21 century. People should collaborate rather than stretch their muscles. It is time to elim...
 
 <img src="https://media.gettr.com/group13/getter/2022/05/03/07/ddeb7c7d-9a9d-4451-343c-718fe7a9f2a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 7:38 AM UTC ](/content/gettr/p183x2s38e7.md)
-
-新中国联邦·法治基金——乌克兰救援行动报告
-
-
-
-2022年5月2日第59天当日救援统计：
-
-Medyka救援站接待：约160人
-
-
-
-累计救援总计：
-
-Medyka救援站接待：约16346人
-
-巴士救援难民：2009人
-
-巴士发车：39次
-
-
-
-New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report 
-
-
-
-Day 59 - Date: Ma...
-
-<img src="https://media.gettr.com/group3/getter/2022/05/03/07/fd1dc6a3-ea72-d432-c530-fe1495ba73b2/cfd1a61fcd8c9a54f8113d181f9e16de.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 7:15 AM UTC  - :tv:直播](/content/gettr/p184hio1e73.md)
-
-5/2/2022 Each of these old photos has witnessed the trajectory of my personal growth. What is the connection between these photos and my revelations in the past five years? Now it is the time to let the world know the history of th...
-
-<img src="https://media.gettr.com/group31/getter/2022/05/03/07/c94fd58d-b897-458a-7554-10f1dc575f7a/out.jpg" width="506" height="284">
 
 ---
 
