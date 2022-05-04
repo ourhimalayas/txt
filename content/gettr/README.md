@@ -2,6 +2,14 @@
 ---
 
 
+[@miles 5/4/2022 3:26 AM UTC ](/content/gettr/p188xdi558d.md)
+
+The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subversion act, and calls for "the Chinese Communist Party is not the same as the Chinese people, the Chinese Communist Party is the cause of all disasters i...
+
+<img src="https://media.gettr.com/group41/origin/2022/05/04/03/7e11b64c-577b-09f6-d072-cc0acdb57866/24db7a7d13fee34202e61014344daafc.png" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 3:05 AM UTC  - :tv:直播](/content/gettr/p1885ife28b.md)
 
 2022-5-《鸡血王喜币大作战》 第一百八十四集 嘉宾：无双柳薇薇、文空
@@ -26,11 +34,11 @@
 
 ---
 
-[@miles 5/4/2022 3:26 AM UTC ](/content/gettr/p188xdi558d.md)
+[@miles 5/4/2022 5:06 AM UTC  - :tv:直播](/content/gettr/p189w6c9849.md)
 
-The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subversion act, and calls for "the Chinese Communist Party is not the same as the Chinese people, the Chinese Communist Party is the cause of all disasters i...
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 
-<img src="https://media.gettr.com/group41/origin/2022/05/04/03/7e11b64c-577b-09f6-d072-cc0acdb57866/24db7a7d13fee34202e61014344daafc.png" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/05/04/04/1770b868-ec1e-391f-93c3-17712e0fdf85/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 【Ukraine Rescue】05/02/2022 A mother and son from Moscow say that, like the Communist China, there is no freedom of speech in Russia under Putin; and like the new Chinese people from the NFSC, they come here to show the world that t...
 
 <img src="https://media.gettr.com/group18/getter/2022/05/03/15/86dbe36c-e033-4823-93b7-36a404dc4872/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 1:19 PM UTC  - :tv:直播](/content/gettr/p1852xea18b.md)
-
-【Ukraine Rescue】05/03/2022 The mayor of Medyka comes to visit the relief camp accompanied by his officials. The Director of Communications is pleased to learn about the humanitarian work of the NFSC & ROLF in Medyka, and takes out ...
-
-<img src="https://media.gettr.com/group22/getter/2022/05/03/13/60dd37f1-2412-2f56-9633-a3ec999d05dd/out.jpg" width="506" height="284">
 
 ---
 
