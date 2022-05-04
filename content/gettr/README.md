@@ -2,6 +2,22 @@
 ---
 
 
+[@miles 5/4/2022 12:00 PM UTC  - :tv:直播](/content/gettr/p18aejv621e.md)
+
+2022.05.04  AM NFSC news   Korean Volunteer Believes Our Next Encounter Will Be in a Free World
+
+<img src="https://media.gettr.com/group25/origin/2022/05/04/11/278dc230-4452-785a-5b25-3194f616efde/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 5/4/2022 11:34 AM UTC  - 2圖](/content/gettr/p18api7a7a0.md)
+
+🙏🙏🙏🙏🙏🙏🙏【2022年5月4日上午，我们收到西班牙巴塞罗那⾮政府组织协会 “TERRASSA AJUDA A NENS D’UCRAÏNA”（特雷萨救助乌克兰⼉童之家，简称TANU）主席José Muñoz Cosialls 先生致新中国联邦的感谢信，感谢新中国联邦在俄乌战争爆发初期成功解救96名乌克兰未成年儿童到达西班牙的壮举。我们感谢七哥、感谢爆料革命、新中国联邦、法治基金、喜马拉雅联盟委员会以及所有为这次救援付出努力的战友们，这个世界...
+
+<img src="https://media.gettr.com/group42/getter/2022/05/04/11/e7002695-e856-675a-3a93-e29131d18420/a9a10deb3ffe961444b0ba0e4875ca8b.jpg" width="506" height="284">
+
+---
+
 [@miles 5/4/2022 10:58 AM UTC  - :tv:直播](/content/gettr/p18as73bcc0.md)
 
 2022.05.04  新中国联邦 | 军情室  军情室连线文疯而动战友，讲述前线战况
@@ -74,11 +90,11 @@ The U.S. Axis Act, HR 7314, which evaluates Xi Jinping's interference and subver
 
 ---
 
-[@miles 5/4/2022 11:34 AM UTC  - 2圖](/content/gettr/p18api7a7a0.md)
+[@miles 5/4/2022 12:12 PM UTC  - 2圖](/content/gettr/p18a3j7533b.md)
 
-🙏🙏🙏🙏🙏🙏🙏【2022年5月4日上午，我们收到西班牙巴塞罗那⾮政府组织协会 “TERRASSA AJUDA A NENS D’UCRAÏNA”（特雷萨救助乌克兰⼉童之家，简称TANU）主席José Muñoz Cosialls 先生致新中国联邦的感谢信，感谢新中国联邦在俄乌战争爆发初期成功解救96名乌克兰未成年儿童到达西班牙的壮举。我们感谢七哥、感谢爆料革命、新中国联邦、法治基金、喜马拉雅联盟委员会以及所有为这次救援付出努力的战友们，这个世界...
+🙏🙏🙏🙏🙏🙏🙏【On the morning of May 4, 2022, we received a letter of thanks from the Association of the non-governmental organization "TERRASSA AJUDA A NENS D'UCRAÏNA" (Teresa Home for Ukrainian Children, or TANU) in Barcelona, Sp...
 
-<img src="https://media.gettr.com/group42/getter/2022/05/04/11/e7002695-e856-675a-3a93-e29131d18420/a9a10deb3ffe961444b0ba0e4875ca8b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/05/04/12/918d1520-b7f3-ed46-ebba-70e2992ae395/cb713d9a8ebc552f0d0d4e1e59f9f098.jpg" width="506" height="284">
 
 ---
 
@@ -145,22 +161,6 @@ This is certainly that the Axis Act wouldn’t exist without the Whistle-blower 
 2022.05.03  PM NFSC news   Ukraine Forces Strike Down 10 Russian Drones
 
 <img src="https://media.gettr.com/group6/origin/2022/05/03/22/c8b78566-9a8b-41a6-25b6-2a331988c033/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/3/2022 10:31 PM UTC  - :tv:直播](/content/gettr/p187y3xeddc.md)
-
-5/3/2022 Miles Guo: Here is a photo I took at Chu-yuan Lee's office in the Hung Kuo Headquarters Building in Taipei. The Taiwanese people have helped the Chinese people to preserve the most wonderful and important cultures, religio...
-
-<img src="https://media.gettr.com/group33/getter/2022/05/03/22/7f038726-00c4-4228-f75e-2b153b5867c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/3/2022 10:28 PM UTC  - :tv:直播](/content/gettr/p187j9e31b0.md)
-
-5/3/2022 Miles Guo: What is the story behind the photo taken at the observation deck on the 70th floor of the Bank of China Tower in Hong Kong in 1994 or 1995? The Bank of China (Hong Kong) was willing to provide me with a loan of ...
-
-<img src="https://media.gettr.com/group11/getter/2022/05/03/22/19ee2d88-5c19-2663-5d00-aabf0fac1f53/out.jpg" width="506" height="284">
 
 ---
 
